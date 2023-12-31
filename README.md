@@ -1,51 +1,11 @@
 # Latest News
--  Assistência Social no Mato Grosso entregou cestas de alimentos a mais de 300 mil famílias carentes
--  חי מה-NBA: וושינגטון וויזארדס - אטלנטה הוקס 15:22 (רבע 1)
--  ברקע המלחמה והאנטישמיות בעולם: מאות עולים לישראל מצפון אמריקה
--  זו המחווה המרגשת של מכללת סמי שמעון עבור החטופים
--  I stole some money from a close friend but I feel so ashamed of what I did
--  إحباط هجوم ليلة رأس السنة في ألمانيا.. وتوقيف 3 أشخاص
--  استشهاد شاب فلسطيني نفذ عملية طعن شرق القدس
--  إنهاء عمل المحكمة الدولية الخاصة بقضية اغتيال الحريري
--  "ديكسمود" حاملة مروحيات فرنسية تتحول لمستشفى ميدانى بالعريش لإنقاذ مصابى غزة
--  إندبندنت: إلغاء العشرات من رحلات القطارات ببريطانيا ليلة رأس السنة بسبب الطقس
--  حكومة الاحتلال تقرر استمرار إخلاء المستوطنات الشمالية
--  Pagamentos com revisão no INSS para quem recebe aposentadoria
--  I am struggling to pay bills and do my shopping as I hit the menopause
--  From Blue Pacific to Indo-Pacific: how politics and language define our ‘Indigenous ocean’
--  I’ve been using a ‘holy grail’ hair product for 6 months – the growth and thickness of my strands is insane
--  Single and stunning Mariah Carey celebrates New Year in Aspen after Bryan Tanaka split
--  اشتعال النيران في مخزن أخشاب بالمرج
--  Candidato a la alcaldía de Barahona exhorta a no realizar disparos al aire durante festejos de Año Nuevo
--  Coronation Street spoilers: Heartbroken Daisy Midgeley loses everything as Bethany Platt returns
--  Mand stukket i låret med kniv på Amager
--  غدًا.. 5 مباريات في الجولة 11 من دوي كرة السلة الممتاز
--  الاحتلال يمنع سيارات الإسعاف من دخول مخيم المغازي بقطاع غزة
--  نجوم الكرة السعودية يعلقون عبر "الميدان" على اطلاق المسار الثاني للاستثمار وتخصيص الأندية
--  بـ 38.0 ملم.. القصيم تسجل أعلى معدل لكميات هطول الأمطار
--  İşgalci İsrail'e Gazze'de ağır darbe... İşgalci ordu 5 tugayını geri çekme kararı aldı
--  ليلة رأس السنة.. احتفالات كبيرة وعروض تجذب الأنظار
--  حرس الحدود بمنطقة جازان ينقذ بحارًا تعرض لإصابة على متن زورق
--  MINISTAR GAŠIĆ: Obišao službenike beogradskog odreda Žandarmerije, PJP, PU Beograd
--  As histórias contadas no último dia do ano
--  Sete distritos sob aviso amarelo devido a agitação marítima até quarta-feira
--  Μητροπολίτης Πατρών: «Σύγχρονοι Ηρώδεις όσοι δρομολογούν την τεκνοθεσία από ομόφυλα ζευγάρια»
--  I dream of having a threesome with another man – but worry my wife will divorce me
--  Deebo Samuel Continues to Vouch for Brock Purdy as the MVP Despite Christian McCaffrey’s Better Odds
--  «لن نتراجع أبدا».. بوتين يخاطب الشعب الروسي بليلة رأس السنة 2024اليوم الأحد، 31 ديسمبر 2023 06:20 مـ
--  बिहार: नीतीश कुमार ने अपनी संपत्ति का दिया विवरण, इन मंत्रियों ने भी की घोषणा
--  قرينة الرئيس تهنئ الشعب المصري بمناسبة بداية العام الجديداليوم الأحد، 31 ديسمبر 2023 07:29 مـ
--  Harun Beyaz’ın Gazze'ye ithaf ettiği “Yalın Ayaklı” eseri yayında
--  Konor Mekregor se vraća u oktagon
--  Как изменится организм, если вы завяжете с алкоголем в новом году
--  VIDEO: Pogledajte novogodišnji vatromet u Sidneyju
--  Cadeaux d’Urgo : la ministre de la Santé Agnès Firmin Le Bodo nie tout « conflit d’intérêts »
--  Taylor Swift returns to Arrowhead Stadium for Travis Kelce’s Chiefs game on New Year’s Eve
--  II. Margit dán királynő bejelentette lemondását
--  Conor McGregor napokon objavio datum povratka u UFC i protiv koga će se boriti
--  У Покровську росіяни поранили двох людей
--  Запрет на салюты и фейерверки: что угрожает за нарушение в новогоднюю ночь
--  2024 йил Ёшлар ва бизнесни қўллаб-қувватлаш йили деб эълон қилинди.
--  국가대표팀에서 영구 결번이 나올 수도... 아르헨 축구 협회장 “메시가 은퇴하면 10번 아무도 못 써”
--  My new Victoria’s Secret pushup bra does wonders for my B-cups – it makes them look like Cs and is the most comfortable
--  Eurostar dibatalkan akibat banjir
+-  بنك المغرب: الدرهم يرتفع بنسبة 2.31% مقابل الدولار في الأسبوع الأخير من 2023
+-  إصابة 21 سودانيًا في انقلاب سيارة بأسوان
+-  لا علاقة لها بالتنجيم.. رئيس معهد البحوث الفلكية: 2024 سنة "كبيسة"
+-  مهشم الرأس.. جهود لكشف غموض مقتل مسن في شبرا الخيمة
+-  تحذير عاجل من الأرصاد بشأن الشبورة المائية.. وتكشف أماكن سقوط الأمطار
+-  واقعة غريبة.. شاب سعودي يكافئ طبيبا بهدية غير متوقعة "فيديو"
+-  خلاف على الميراث.. مصرع شخص في مشاجرة مع أشقائه بالقليوبية
+-  Amazon México activa una doble promoción para sus dispositivos Echo: con increíbles rebajas y cuatro meses de Amazon Music Unlimited
+-  Rainha da Dinamarca abdicará após 52 anos no trono
+-  Ushqimet fatsjellëse që nuk duhet të mungojnë në tryezën festive të Vitit të Ri
