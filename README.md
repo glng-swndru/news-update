@@ -1,11 +1,51 @@
 # Latest News
--  [외신 또 저출산 주목…‘한국소멸론’ 이어 ‘국방약화 악재’ 지적
--  حصاد 2023.. تطوير رؤية النشر بهيئة الكتاب وإصدار 450 عنوانًا
--  वास्तु टिप्स: भूलकर भी अपने घर में न लगाएं इस तरह की पेंटिंग, वरना…
--  7 วันอันตรายปีใหม่ 2 วัน ตาย 71 เจ็บ 739 - คุมเข้มเมาแล้วขับ
--  5 smart ways to spend your year-end bonus
--  स्वास्थ्य देखभाल: ठंड में बढ़ जाता है हार्ट अटैक का खतरा, रखें अपनी सेहत का ख्याल
--  Jalandhar News: कॉमेडियन कपिल शर्मा को पराठे खिलाने वाले पर केस, जानें- क्या है पूरा मामला
--  বাংলাদেশ-নিউজিল্যান্ড ম্যাচে বৃষ্টির বাগড়া, হারের দ্বারপ্রান্তে বাংলাদেশ
--  রাশিয়ার শহরে হামলায় ২০ জন নিহত: ক্রেমলিন
--  കാനം രാജേന്ദ്രന്റെ മരണത്തെ തുടർന്ന് മാറ്റിവെച്ച കൊച്ചിയിലെ നവകേരള സദസ്സ് നാളെയും മറ്റന്നാളുമായി നടക്കും
+-  Lauri Markkasen Utah voitti vuoden viimeisen ottelunsa, kaatoi kotiparketillaan Miamin
+-  Lelaki Indonesia didakwa bunuh kakak kandung
+-  บขส.เตรียมแผนรับคนกลับกรุง 1-3 ม.ค.นี้ ไม่ต่ำวันละ 6 หมื่นคน
+-  New Years celebrations ready to go ahead - weather permitting
+-  परियोजना धितोमा लगानी बढाउन बैंकहरूलाई आग्रह
+-  दु्रतमार्गका ४ हजारभन्दा बढी रूख कटान स्वीकृत
+-  बालकुमारी घटना : मृतक युवाका परिवारलाई १०/१० लाख दिने निर्णय
+-  तथ्यांकोवाच : कोशी प्रदेशको थोक विक्रय, खुद्रा विक्रय, गाडी, मोटरसाइकल मर्मत क्षेत्रको गार्हस्थ्य उत्पादन रू. ७५ अर्ब
+-  डेडिकेटेड–ट्रंक लाइन विवाद : प्रधानमन्त्री अलमल्याउने प्राधिकरण लाइन काट्ने
+-  2024: Nigerians expect govt to maintain low profile, stabilise the naira, patronise local products
+-  Weather Update : थर्टी फर्स्टवर पावसाचं सावट! नवीन वर्षातही पावसाची शक्यता
+-  Nach Erdrutsch: Schwander Spenglerfirma kommt in neue Hände
+-  Jahresrückblick: Das war der Dezember 2023 in Graubünden
+-  Ohne brummenden Schädel ins neue Jahr starten
+-  Yksityiskohdat jäivät närästämään Salon kuntaliitoksessa – entisten kunnanjohtajien mielestä päätavoite kuitenkin toteutui
+-  Сколько голов надо забить Овечкину, чтобы обойти Гретцки? Расклады после 829-го гола Александра
+-  dpa-AFX KUNDEN-INFO: Finanzanalysen in den dpa-AFX Diensten
+-  Tyrese Haliburton tutoie des sommets : 20 passes jeudi, 23 passes cette nuit, on le SAIT qu’il va aller chercher les 30
+-  عاجل.. إيقاف سائق الأجرة 30 يومًا عند تجاوز عدد الرحلات الملغاة 5 في الشهر
+-  Rameswaram - Hubli: రామేశ్వరం - హుబ్లీ రైలు సేవల పొడిగింపు
+-  سیاسی جماعتوں کا منشور اور آئی ایم ایف
+-  В воронежском парке «Орленок» обновили подсветку
+-  В Евросоюзе обозначили сроки вступления Украины в альянс
+-  Lage in Hochwassergebieten auch zu Silvester angespannt
+-  고물가시대, 맛집은 못가도 ‘맛집 메뉴’는 먹는다…RMR 인기 계속
+-  Lage in Hochwassergebieten auch zu Silvester angespannt
+-  Lage in Hochwassergebieten auch zu Silvester angespannt
+-  Seydişehir tarımında kazançlı dönem
+-  7 Aplikasi yang Sering Digunakan Buat Selingkuh, Discord Salah Satunya
+-  В Смоленске оперативники раскрыли факт незаконного использования документов для образования юридических лиц
+-  ВСУ обстреляли Белгород, погибли 21 человек-ВИДЕО -ОБНОВЛЕНО 2
+-  Cricket-New Zealand beat Bangladesh in final T20 to level series 1-1
+-  Pengelolaan Retribusi di Kawasan Wisata Pantai Selatan sebagai Dampak Jalur Jalan Lintas Selatan
+-  'จุรินทร์'จ่ออภิปรายงบ 67 ตามเนื้อผ้า สอนมวยรัฐบาลถ้าไม่ได้ทำอะไรผิด ก็อย่าไปกลัวถูกซักฟอก
+-  Sara López fue nombrada Arquera del Año 2023 por la Federación Mundial de Tiro con Arco
+-  شوگر…… ایک خاموش قاتل
+-  He reminds me of an Australian: South Africa great lauds Virat Kohli for injecting fighting spirit in Team India
+-  Avslører ukjente sider av Amundsen: – Tør ikke å vise det til journalister
+-  메타킹커피, ‘시즈널 리미티드’ 딸기 음료 5종 선보여
+-  제야의 종 10만명 운집 예상… 새해 '자정의 태양' 뜬다
+-  Tilsa Lozano o Ricardo Rondón: se eligió verdadero “ave fénix” en premios de El Gran Chef Famosos
+-  Британский премьер Сунак проигнорировал тему Украины в ходе новогоднего обращения
+-  El mercado reaccionó al bono verde de Los Haroldos y hubo sobreoferta de capitales
+-  Sydney bereitet Riesenfeuerwerk vor - erstmals auch mit KI
+-  한국군의 새로운 적은 ‘저출산’…CNN “시간이 많지 않다”
+-  Pokémon wird emotional mit Snorlax und Cubone Anime: Watch
+-  Minskat tryck i Kinas industri
+-  Minskat tryck i Kinas industri
+-  [과천 영아사체 유기 50대 친모 결국 ‘무혐의’
+-  Sydney bereitet Riesenfeuerwerk vor - erstmals auch mit KI
