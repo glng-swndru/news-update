@@ -1,51 +1,51 @@
 # Latest News
--  CHP Genel Başkanı Özel, siyasi parti genel başkanlarının yeni yılını kutladı
--  Asesinan a un hombre en Los Santos
--  "אפילו סטיבי וונדר היה יכול לראות את זה": דווקא ביום ההולדת, לברון ג'יימס התעצבן ועורר סערה
--  Así era Logan, el niño perdido hace 20 años | PERFIL
--  Security forces kill three terrorists in Bajaur district
--  Tomek Wilczkiewicz na Sylwestra i Nowy Rok
--  Uz tenis na SK u novu godinu: Vekić i Ćorić otvaraju sezonu u Australiji
--  Rangers say SFA fail to disclose VAR audio from Old Firm clash despite ‘repeated requests’
--  2023 US Box Office Crossing $9 Billion, Led By Universal; ‘Wonka’ Tops New Year’s Weekend With $31M+ – Sunday Update
--  “Ver a alegria e o encantamento das pessoas durante esses dias vai ficar marcado em minha memória”, afirma primeira-dama
--  طقس غائم جزئياً على الساحل الليلة وتحذير من رياح قوية وأمواج عالية في البحر
--  Eleven bars and restaurants in Belfast to check out this Veganuary
--  Liverpool z pierwszym zimowym ruchem. Nie takiego ruchu oczekiwano [OFICJALNIE]
--  Müzik eşliğinde oynarken birbirlerine giren gençlerin kavgası kamerada
--  Biblioteca de Leopardi é catalogada e informatizada na Itália
--  Pronađeno telo u Savi: Leš je uočen nedaleko od Mosta mladosti
--  Juventus Women, Rosucci saluta un 2023 stregato: «Finalmente sta per finire…» – FOTO
--  Vídeo mostra momento exato da execução de comerciante em Rio Branco
--  River Hoy: novedades sobre Arezo, Petroli jugará en Godoy Cruz y noticias de pretemporada
--  Chivite llama a la "unidad" tras apoyar a Bildu: "El ruido no soluciona los problemas de la gente"
--  New women's professional hockey league, with hopes of staying power, ready to drop the puck
--  Premier’s New Year’s message
--  Presidente Díaz-Canel pide que 2024 sea “un tránsito de esperanza” para Cuba
--  Wanda Nara mostró por primera vez el comunicado que detalla qué tipo de leucemia tiene
--  Djokovic feiert Team-Sieg mit Silvesterparty auf dem Platz
--  Sirenenalarm am Silvesternachmittag in Erdmannsdorf - Was ist passiert?
--  Vorläufiges Ergebnis: 73,3 Prozent für Kongos Präsidenten
--  Tko je 16-godišnja pikado senzacija koja igra četvrtfinale Svjetskog prvenstva?
--  PREDICCIONES de Baba Vanga para el 2024
--  “Ver a alegria e o encantamento das pessoas durante esses dias vai ficar marcado em minha memória”, afirma primeira-dama
--  Maja Berović otkrila kako je došlo do saradnje sa Cecom i Futom: "Oduševljena sam, zvučimo kao jedna osoba"
--  Fuerzas anti-retirada de Ucrania disparan a un grupo de soldados ucranianos en retirada | Video
--  Transcript: David Becker, founder of the Center for Election Innovation & Research, on "Face the Nation," Dec. 31, 2023
--  Novo Seguro-Desemprego: Parcelas que podem ser liberadas
--  Detienen al campeón del mundo Rohan Dennis, acusado de matar a su mujer
--  نائب وزير التعليم العالي يتفقد سير الأداء بجامعة إب
--  Jason Kelce hilariously upstages Travis as he arrives for Eagles game in a gray tracksuit with tassels down to his KNEES - after his brother is spotted in a bold tiger-print outfit in Kansas City
--  Kölner Dom unter Schutz: Polizei nimmt nach Terroralarm drei weitere Verdächtige fest
--  Bakan Fidan'dan yeni yıl mesajı: Doğruyu savunmaktan asla çekinmeyeceğiz
--  Niğde'de 2 akrabasını vurdu, intihar etti!
--  AK Parti Balıkesir Gençlik Kolları Başkanı Uysal vefat etti
--  Niğde'de akrabalar arasında silahlı kavga! 3 ölü
--  İthalat Rejimi Kararında Değişiklik Kararı Resmi Gazete'de
--  Ankara'da hastane kantininde cep telefonu hırsızlığı!
--  Düzce'de polisin durdurduğu motosiklet alev alarak yandı
--  Hakkari'de deprem!
--  Ankara'daki yılbaşı tedbirleri KGYS Merkezi'nden takip ediliyor
--  Движение автотранспорта по Крымскому мосту возобновили
--  استشهاد وفقدان ١٠ أفراد من منتسبي الجيش اليمني باعتداء امريكي .. بيان
--  Hora do Conto
+-  Bundan sonra adı ATATÜRK kupası olsun
+-  Hakkari'de 4,4 büyüklüğünde deprem
+-  PIJAN ZASPAO U HODNIKU ZGRADE Komšinica morala da ga preskače da bi ušla u svoj stan: Evo koliku je kaznu dobio
+-  Champagnekorkar kan ge svåra ögonskador
+-  Haryana: गेस्ट टीचर्स पर लाठीचार्ज, शिक्षा मंत्री के आवास का करने जा रहे थे घेराव
+-  Bùi Thị Xuân Hạnh đăng quang Hoa hậu Hoàn vũ Việt Nam 2023!
+-  4 kiểu áo blazer lỗi mốt không nên sắm diện Tết
+-  Quang Hải gia nhập hội "cuồng" vợ: Chăm Chu Thanh Huyền từng "chân tơ kẽ tóc" trước ngày ăn hỏi và đón dâu
+-  Arsenal thua trận thứ 2 liên tiếp ở Premier League
+-  Mở lòng đón nhận nhiều tin vui từ thế giới năm mới 2024
+-  حسام موافي يحذر من مشاهدة أفلام الرعب.. لن تتوقع ما يحدث لجسمك
+-  Năm Du lịch quốc gia Điện Biên khởi động với hội đua thuyền của người Thái
+-  "جوًا أو بحرًا".. التايمز: بريطانيا تستعد لشن هجمات ضد الحوثيين
+-  ایلون مسک پھر دنیا کے امیر ترین شخص بن گئے
+-  Yeni yıla saatler kaldı! Taksim'de yılbaşı yoğunluğu
+-  সিলেটে জাতীয় পার্টির নির্বাচনী সভায় অংশ নেওয়ায় বিএনপি নেতাকে বহিষ্কার
+-  سینئر پی ٹی آئی رہنما لطیف کھوسہ کے بیٹے خرم لطیف کو گرفتار کرلیا گیا
+-  Cómo recuperar una publicación eliminada en Facebook
+-  Los motivos por los que Indiana Cubero, la hija de Nicole Neumann, prefiere vivir con su padre
+-  Medico Juve derubato: picchiato anche il cane, la ricostruzione
+-  L'Under 20 femminile nel Wevza a caccia di un posto agli Europei
+-  بتوجيهات رئيس الدولة.. شخبوط بن نهيان يفتتح محطات للتحلية في رفح لضخ المياه إلى سكان غزة
+-  مولانا فضل الرحمٰن کی گاڑی پر فائرنگ، مولانا فضل الرحمٰن کس حال میں ہیں؟ پولیس کا بیان آگیا
+-  En République démocratique du Congo, le président Félix Tshisekedi largement réélu
+-  Capodanno, Toti: "Per la Liguria il meglio deve ancora arrivare"
+-  Jitħabbru ċ-ċelebrazzjonijiet liturġiċi tal-Arċisqof għal Jannar
+-  A háborús agresszor Vlagyimir Putyin szerint 2024 a családok éve lesz Oroszországban
+-  Felszentelés előtt egy nappal szétverték a dunavecsei Mária-szobor fejét
+-  Silvester in Hamburg: Wo geböllert werden darf, wie der HVV fährt – der Überblick
+-  Geldautomaten-Sprengungen: Warum Verbrecher lieber nicht in Hamburg zuschlagen
+-  Lebuktattuk Kocsis Mátét, Böjte Csaba háborogni kezdett, Pinokkió pedig még soha nem volt ilyen sötét – Itt vannak 2023 legjobb Népszava-videói
+-  Milli Piyango 400 TL kazanan numaralar hangileri? 2024 yılbaşı çekilişi son 1 rakamına göre 400 TL Amorti kazanan numaralar
+-  Gümrük müşavirliği işlemlerinde gelecek yıla ilişkin asgari ücret tarifesi belli oldu
+-  Tottenham, sahasında 3 golle güldü
+-  Hakkari, 4.4 ile sallandı
+-  Başkan Erdoğan'dan AK Parti Balıkesir İl Gençlik Kolları Başkanına taziye mesajı
+-  Liverpool, genç oyuncusunu geri çağırdı
+-  مقتل منقبين موريتانيين جراء قصف خارج الحدود الشمالية
+-  قسنطينة: 16 فرقة في الطبعة ال19 للمهرجان الوطني لمسرح الطفل
+-  قيادة الدرك الوطني تسطر مخططا خاصا لتأمين رأس السنة الميلادية الجديدة
+-  رفض قرابة 64 ألف طن من السلع على مستوى الحدود في
+-  تيبازة: حريق بوحدة تخزين مواد إنتاج الحليب ببورقيقة وعملية إخماده متواصلة
+-  فلسطين: عدد الشهداء هذا العام يشكل أكبر حصيلة شهدتها فلسطين منذ نكبة 1948
+-  Werra-Meißner: Jäger sehen Rotwild in Gefahr und setzen auf neue Landesregierung
+-  Preocupa la posible apertura de importaciones de fruta fina en la Comarca Andina
+-  Poznata lica u nedjeljnom điru: Dario i Mirela Srna na Silvestrovo svratili do Grada
+-  Arranca la San Silvestre LPGC
+-  Gazze'deki yıkıma 2. Dünya Savaşı benzetmesi
+-  Son dakika! Hakkari'de korkutan deprem
+-  Bakan Fidan'dan yeni yıl mesajı
