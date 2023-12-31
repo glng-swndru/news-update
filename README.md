@@ -1,51 +1,51 @@
 # Latest News
--  Centros de Saúde também sentem a pressão do aumento de utentes
--  NFL says it is looking into clip of furious Panthers owner David Tepper appearing to throw drink at celebrating Jaguars fans as Carolina falls to league-worst 2-14
--  The final countdown! Revellers brave the rain as they gather in crowds across Britain ahead of midnight firework displays to kick off 2024
--  Rehabilitación de Bocatoma La Peña en Tumbes beneficiará 20,000 familias
--  Former UKIP backer Arron Banks vows to raise £10million if Nigel Farage returns to lead Reform UK
--  49ers play follow the leader, and Brock Purdy delivers both the football and the No. 1 seed
--  First-half turnovers put Patriots in ‘impossible position’ against Bills
--  ‘리틀 쏘니’ 사르, 선제골→햄스트링 부상… ‘네이션스컵 출전 불발’ 가능성도 제기
--  السياحة الداخلية.. وتحدي جذب أموال المواطنين الطائرة في السياحة الخارجية
--  جامعة قطر: قبول 186 طالبا في الدراسات العليا لـ«ربيع 2024»
--  « أشغال».. وتحدي تنفيذ المشاريع في مواعيدها
--  «الصحة».. وتحدي المواعيد والعلاج بالخارج
--  «الرياضة والشباب».. وتحدي مواجهة الثقافة الاستهلاكية عند الشباب
--  نصائح للعنابي قبل المهمة الصعبة في كأس آسيا.. الأرض لا تلعب مع أصحابها دائماً
--  Kommt Lohrer Glasfaserausbau heuer zum Abschluss?
--  Jubiläen 2024: Denkwürdige Begebenheiten im Bereich des heutigen Landkreises Miltenberg
--  تنويه هـام من مصرف التجارة والتنمية بشأن الإقفال السنوي
--  Gobierno trabajará en el impulso de la economía y la lucha frontal contra la delincuencia
--  'Bão" chấn thương càn quét, HLV Troussier có méo mặt?
--  5 cầu thủ M.U xuất sắc nhất năm 2023
--  Dean Jones báo tin không vui về M.U trong kỳ chuyển nhượng đông
--  Vắt kiệt sức Bukayo Saka và cái giá Arsenal phải trả
--  Madeleine McCann search will ‘eventually yield results’ say determined parents Kate & Gerry in New Year message of hope
--  Tenisová senzace na Nový rok. Kvitová oznámila, že v létě čeká potomka
--  A Merry Christmas!!!
--  Prevalecen feminicidios en Chihuahua; van 41 en 2023
--  “생계비 달라” 출소 사흘만에 공무원 흉기 협박한 50대 징역 6년
--  이재명, 신년인사회서 “청룡의 힘으로 더 나은 미래 향해 힘 있게 나아가자”
--  Alberto Fernández festejó el 2024 en un hotel de lujo en Madrid
--  Premio mayor del segundo sorteo de consolación 2023: número 16 con la serie 835
--  توقيع مذكرة تفاهم مشتركة للتعاون العلمي والثقافي بين جامعة المهرة وجامعة حضرموت
--  Giants Week 17 report card: Brian Daboll should have vetoed ill-advised call
--  Jenni Hermoso, en las Campanadas: "Que 2024 traiga muchos títulos y mucha igualdad para todos"
--  SPRM panggil bekas PM, ketua setiausaha sulit minggu ini
--  Jenni Hermoso, en las Campanadas: "Que 2024 traiga muchos títulos y mucha igualdad para todos"
--  Asia festeja la llegada del Año Nuevo, pero las guerras opacan el 2024
--  "저출산 극복 기원"‥희망찬 2024년 알리는 대한민국 새해 첫아기 탄생
--  About A Boy star Augustus Prew looks unrecognisable as he shows off hunky body transformation 21 years later
--  Alles Gute und guten Rutsch ins neue Jahr
--  Netanyahu rejects claims accusing Israel of genocide in Gaza
--  Boğa Burcu 2024 Yıllık Burç Yorumları - Boğa Burcu Aşk ve Kariyer Yorumları
--  Aslan Burcu 2024 Yıllık Burç Yorumları - Aslan Burcu Aşk ve Kariyer Yorumları
--  1944-2024 – France-Soir 80 ans au service de l'information
--  Sretna Nova 2024. godina!
--  ‘He gets his credit’: Deatrich Wise credits Jerod Mayo for Patriots slowing down Josh Allen in loss to Bills
--  Houthi ships sunk as US repels attack on cargo vessel
--  Houthi ships sunk as US repels attack on cargo vessel
--  منتخبنا يهزم كمبوديا بثلاثية المعز.. تجربة مفيدة للعنابي
--  إدارة البحوث بـ «الأوقاف» تصدر العدد 200 من كتاب الأمة
--  방망이 들고 나타나더니 '퍽퍽'…'새해맞이' 이색 체험방
+-  فاشلون .. - د.نايف الحمد
+-  الوداع الأخير
+-  قرار 10 لاعبين أجانب - يعقوب المطير
+-  ولنا في الحياة (هلال) - احمد العلولا
+-  أمانة الشرقية تستعرض منجزاتها التنموية
+-  صح لسانك
+-  وزير الداخلية يشكر أمير منطقة تبوك لحصول إمارة المنطقة على المركز الأول في الجائزة الوطنية للعمل التطوعي
+-  فواصل
+-  انتخاب المملكة رئيسًا للاجتماع الـ(11) للجنة التراث في العالم الإسلامي
+-  أمير المنطقة الشرقية يستقبل نائبه في مطار قاعدة الملك عبدالعزيز بالظهران
+-  اختتام بطولة الجودو المفتوحة لذوي الإعاقة البصرية بالرياض
+-  الأمير فيصل بن بندر: نخطو خطوات جيدة لجعل الرياض بهذا المستوى الراقي
+-  لجنة حكام التايكوندو تجهز الطواقم للموسم الجديد
+-  القيادة تعزي رئيس الإمارات في وفاة الشيخة مهرة آل نهيان
+-  طائرة الهلال تواصل التحليق.. والأهلي يتغلب على النصر
+-  تحويل البترول إلى بتروكيماويات لتعظيم القيمة المضافة للنفط - د.عبدالحفيظ عبدالرحيم محبوب
+-  أمير منطقة المدينة المنورة يزور المسجد النبوي الشريف
+-  تدريبات المتصدر تتوقف 16 يومًا ثم تعود بغيابات دولية كبيرة
+-  مليار ريال نصيب منفذ جديدة عرعر من حركة التجارة عبر المنافذ البرية بالمملكة
+-  أمير منطقة الرياض يرأس اجتماع جمعية «إنسان»
+-  استثمار الاستضافات إعلامياً - د.عبدالعزيز الجار الله
+-  الاتفاق يتوج بكأس الاتحاد السعودي لكرة قدم الصالات
+-  متاريس تتناسل في طريق عودة ترمب - د.عبدالله بن موسى الطاير
+-  62 مليون ريال مبيعات أسواق الإبل في ثامن نسخ مهرجان الملك عبدالعزيز بالصياهد
+-  أمير المنطقة الشرقية يصدر عدداً من القرارات الإدارية
+-  الادعاءات العلمية واتخاذ القرار - عبدالرحمن الحبيب
+-  بدء المسار الثاني من مشروع استثمار وتخصيص الأندية الرياضية
+-  البنتاغون: إغراق 3 قوارب حوثية هاجمت سفينة حاويات قبالة اليمن
+-  «تاسي» يُنهي تعاملاته بنهاية 9 أشهر بتداولات بلغت 974 مليار ريال و«نمو» 6.36 مليارات ريال
+-  الأمير سلمان بن سلطان يصل المدينة المنورة مباشراً مهام عمله أميراً للمنطقة ‎
+-  نفط آخر (2-3) - خالد بن حمد المالك
+-  «الميركاتو الشتوي» ينطلق اليوم ويستمر 30 يوماً
+-  مجلس الحرب الإسرائيلي يبحث عقد صفقة أسرى مع حماس
+-  الهيئة العامة للعقار: أكثر من 96 ألف وحدة مفروزة بمساحات تتجاوز الـ(30) مليون متر مربع خلال 2023
+-  الأخضر دشن معسكره في قطر بحصة تدريب خفيفة
+-  أكثر من 600 مليون ريال مجموع تبرعات الحملة الشعبية لإغاثة أهالي غزة
+-  «الإحصاء»: 45.8 % من العاملين في المملكةيعملون أكثر من 40 ساعة في الأسبوع
+-  رقم قياسي للوزراء المشاركين في الاجتماع الوزاري الخاص بالتعدين في الرياض
+-  بوتين: روسيا "ستصبح أقوى" في 2024
+-  تعرفي إليها.. فوائد تناول الأناناس على صحة الجسم
+-  الموت يغيب الإعلامية المصرية كاريمان حمزة
+-  Vierschanzentournee: Karl Geiger sauer, Pius Paschke rätselt – DSV-Abstimmungen nach der Qualifikation – Skisprung-Video
+-  푸르지오 텃밭서 재건축 '완승' 거둔 더샵…이유 있었다
+-  Dina Bolaurte: en el 2024 la prioridad será el cierre de brechas en salud y educación
+-  VELIČANSTVENA SCENA Beograd na vodi zasijao kao u bajci (VIDEO)
+-  إصابة شخص بحروق في حريق مخزن خردة أسفل عقار ببشتيل
+-  نشرة منتصف الليل| موعد إجازة عيد الميلاد.. وفاة الإعلامية كاريمان حمزة
+-  5 movies that are perfect to watch on New Year’s Eve
+-  Iran releases Spaniard held for more than a year
+-  أول رد من أسرة طفل فسلطيني تشوّه وجهه في غزة.. استجاب النادي الأهلي لطلبه
