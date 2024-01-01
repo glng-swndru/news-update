@@ -1,51 +1,51 @@
 # Latest News
--  ইরানের ঐতিহ্যবাহী কাচপণ্যের ইতিহাস
--  ইন্দোনেশিয়ায় রোবোটিক টেলিসার্জারি কেন্দ্র স্থাপন করবে ইরান
--  ফরিদপুর-১ আসনে দোলনের ঈগল মার্কার পক্ষে ভোট বিপ্লব ঘটাবেন মধুখালীর কামালদিয়া ইউপি চেয়ারম্যান মামুন
--  একতরফা নির্বাচনের মাধ্যমে দেশকে বিশ্ব থেকে বিচ্ছিন্ন না করার আহ্বান এবি পার্টির
--  قائمة قوية لليابان في كأس آسيا
--  سفينة حربية إيرانية تدخل البحر الأحمر
--  القادري والعمري نسايب
--  القطاع الصناعي بالأردن يشغل 268 ألف عامل
--  الاحتلال: إصابة 2234 جنديا منذ بداية الحرب
--  لطيفة تقرر دفن والدتها في تونس
--  حقيقة وفاة الامير السعودي النائم
--  حفل تخرج غير مألوف.. شاهد الكباب يغزو جامعة أردنية
--  포항, 오베르단 완전 영입…“탈압박·전진 드리블 리그 최고 수준”
--  Klart: Exakt så mycket får du i pension i år
--  Kickoff | OFFICIAL: Ghana confirm final AFCON squad
--  리버풀 스카우터 앞에서 ‘멀티골’ 작렬…살라 후계자는 9경기 5골 윙어
--  안토니의 처참한 경기력에 레전드도 분노... “경기 이해를 아예 못 하는데? 포지션 바꾸자”
--  푸른 용처럼 비상을 꿈꾼다…갑진년 청룡의 해 빛낼 용띠 스타들
--  Benzema, la verità sulla fuga dall'Arabia Saudita: cosa è successo
--  LPG price increased by OGRA
--  สนามบินดอนเมืองแน่น คาดวันนี้ผู้โดยสารในประเทศ 5.4 หมื่นคน
--  لن تتوقع.. طبيب يكشف 3 طرق سريعة لخفض ضغط الدم خلال دقائق
--  "الرقابة الصحية: اعتماد 279 منشأة وتنفيذ 1122 زيارة خلال 2023
--  أفضل 10.. صلاح ضمن قائمة هدافي العالم 2023
--  جرثومة المعدة تزيد خطر إصابتك بمرض عقلي خطير - احذرها
--  التموين: تطوير 396 مكتبا وانخفاض زمن استخراج البطاقة إلى 7 أيام
--  "لبيب كان رافض".. العدل يكشف ما فعله فتوح مع شيكابالا قبل التجديد
--  مسؤول إسرائيلي: المرحلة الثالثة من الحرب في غزة ستستغرق 6 أشهر
--  وزيرة الثقافة: افتتاح عدد كبير من المنشآت الثقافية في 2024
--  92 % زيادة في قيمة عجز الموازنة خلال أول 5 أشهر من العام الجاري
--  حصاد 2023.. التنمية المحلية: إحالة 837 موظفًا بالمحليات للنيابات العامة والإدارية
--  أكاديمية مصر للطيران للتدريب تستقبل زيارات طلاب الجامعات والمعاهد
--  วันขึ้นปีใหม่!!! นักท่องเที่ยวแห่กราบสรีระสังขาร'หลวงปู่หมุน'
--  แฟนคลับลุ้น! 'โอบ-ปราง'เช็กอินเกาหลีใต้ ถึงไม่มีรูปคู่แต่จับสังเกตได้
--  Carolina Hurricanes haluaa jo eroon Sebastian Ahon joukkuekaverista
--  Vahvistus: Manchester United -floppi vaihtoi maisemaa
--  NHL-asiantuntija ihasteli Nuorten Leijonien hyökkääjää: "Varatkaa nyt joku hänet"
--  Liverpool virittelee jättihankintaa
--  Jenkkitähti löi muille jauhot suuhun Tour de Skillä – Kerttu Niskanen taisteli
--  CGTN: Embracing 2024, how will China deliver a better life for the people?
--  CGTN: How Chinese modernization brings new opportunities to world
--  日 강진 여파로 동해 묵호에 67㎝ 지진해일…강원도 소방 비상 대응 1단계 발령
--  Brände, Böllerwürfe und Platzverweise: Die Bilanz der Polizei für die Silvesternacht im Ostalbkreis
--  Eva iz Livna prva je beba rođena u HBŽ-u u ovoj godini
--  Magazinović: Ostaviti svu dnevnu politiku i međustranačke sukobe kada su interesi države u pitanju
--  Yeni korku: Telefonsuz kalmak!
--  2024 yılında hangi araç ne kadar MTV ödeyecek? Motorlu Taşıtlar Vergisi (MTV) tarifesi!
--  Gazze'de can kaybı 21 bin 978'e yükseldi
--  Минобороны заявило о поражении аэродромов ВСУ с носителями Storm Shadow
--  Rs 3 crore worth gold seized at Hyderabad Airport
+-  Reportan seis personas atrapadas tras terremotos
+-  Me interesa ser un buen ejemplo: Peso Pluma
+-  Regnerischer Jahresanfang in Sachsen
+-  [ŽT] Izraelis atsikrato rezervistų. Kas vyksta
+-  [ŽT] Įsiveržė į Lenkiją 40 km. Skelbiamas Maskvos reikalavimas
+-  „Ten yra aerodromas, iš kurio kyla bombonešiai... Turėtų ruoštis.“ Skelbiamas sekantis taikinys
+-  Kyjivas lieka tikslu numeris vienas. Atskleistos neįtikėtinos miesto apsaugos priemonės
+-  [ŽT] ​„Tai teroro aktas!“ Panašu, kad Zacharova prarado adekvatumą. Kas nutiko
+-  [ŽT] Įspūdingas vaizdas – ukrainiečių tankas apšaudo okupantus iš kelių metrų (Video)
+-  [ŽT] Skamba visame pasaulyje. Čekija pasiuntė Rusiją „ant 3 raidžių“
+-  [ŽT] „Padidintas budrumas.“ Netikėti įvykiai prie Baltarusijos sienos. Kas vyksta
+-  Путин тинчликка тайёр, фақат Россия шартлари асосида.
+-  Kızıldeniz'de sıcak gelişme: İran bölgeye savaş gemisi gönderdi
+-  Safir son bölüm 18 bölüm full izle! Safir 18. bölüm izle tek parça!
+-  Acıyla başladı, acıyla bitti
+-  Taliban: Afganistan'daki saldırıların arkasında Tacikistanlı ve Pakistanlılar var
+-  Dünya devi takip ediyor! Trabzonspor'a Uğurcan Çakır piyangosu vurabilir
+-  İsrail Gazze'de 21 bin 978 kişiyi katletti
+-  İngilizler sütlü çayı özellikle kışın tüketiyor! İşte sebebi
+-  Djiku ve Amartey'e milli davet
+-  "Filistin'e destek, İsrail'e lanet" yürüyüşünde bir vatandaşa saldırmıştı... Saldırgan yakalandı
+-  Marcelino'dan Eric Bailly'ye övgü dolu sözler
+-  “Memleketin bir şehrini değil her şehrini fiber ağlarla örüyoruz”
+-  Kızıl Goncalar yeni bölümü bu akşam var mı, yok mu? Kızıl Goncalar neden yok? FOX Tv 1 Ocak 2024 yayın akışı
+-  وزارة العدل الليبية تبحث عقد اتفاق مع مصر لنقل السجناء
+-  E rëndë, një tjetër aksident në Pogradec, përplasen dy automjete, dyshohet për të plagosur
+-  Zece cupluri s-au căsătorit la Poarta Sărutului în noaptea de Revelion. Doi tineri și-au unit destinele în uniforma de jandarm
+-  News24 | Is Cavin Johnson the answer for struggling Kaizer Chiefs in 2024?
+-  Fiyat listelerinin görünür yerde olması sevindirdi
+-  Bursa'da yeni yılın ilk günü otobüs terminalinde yoğunluk!
+-  Yalova Süper Amatör'de 8. hafta heyecanı
+-  Kırklareli'nde suç oranları azaldı
+-  Manisa'da polisten kaçan şüpheli cami tuvaletinde yakalandı
+-  Antalyaspor'da Sergen Yalçın dönemi başlıyor
+-  Bursaspor'un Efes maçı biletleri satışta
+-  Şəmkirdə 10 otaqlı evdə yanğın
+-  Onlara 3 illik vergi güzəşti tətbiq edilir
+-  대구시 "새해부터 버스는 74세, 도시철도는 66세 이상 무료···보훈대상자·다자녀가구·난임부부 지원 확대"
+-  갑진년 띠별로 본 운세
+-  Devotees throng temples, churches on New Year
+-  Wisata Cianjur Diserbu 200 Ribu Wisatawan
+-  Top news headlines at 7 pm: Massive Tsunami in Japan, Goldy Brar declared terrorist and more
+-  Aslan'da iki isim yol ayrımında: Teklifler değerlendirilecek
+-  Rutschenparadies in NRW feiert Wiedereröffnung: Attraktion ist „top secret“
+-  Japan issues tsunami warnings after a series of very strong earthquakes shook its western coastline
+-  Two youths die in accident in Bhadravathi
+-  [‘이선균 협박女’ 머그샷 공개될까?…올해부터 마약범죄 등 ‘중대범죄자’ 머그샷 공개
+-  [“나라에 1억 벌어준 내가 애국자”…불법주차 2827건 신고 인증글 ‘눈길’
+-  Customized Dog Food- Global Market Insights and Sales Trends 2024 | Hungry Bark, Ollie Pets, JustFoodForDogs, Spot & Tango, PetPlate, Muenster Milling Company
+-  Larissa, Paolla, Marina, Anitta, Isis: 22 looks de Réveillon
