@@ -1,51 +1,51 @@
 # Latest News
--  1인가구 노인, 월 소득 213만원 이하면 기초연금 받는다…부부는 340만원
--  금병산 오른 김진태 지사 “2024년 미래산업 글로벌도시 도약의 원년”
--  평창군 지난해 재해예방사업 추진 전국 우수 지자체 선정
--  [오피셜] '선제골 후 햄스트링 부상→캡틴 SON 품에서 눈물'...토트넘 '핵심 MF' 쓰러졌다, 네이션스컵 출전도 불투명
--  한소희, 새해인사 "올해도 열심히 노저어 봅시다, 쉴 땐 쉬고!" [MD★스타]
--  So bunt wird im Vogtland gefeiert: Worauf wir uns 2024 freuen können
--  Markalar fiyatları değiştirmek için harekete geçti
--  Atıktan ekonomiye 100 milyar TL katkı
--  Bu kadarı pes dedirtti! Ev sahiplerinin 'IBAN' oyunu ortaya çıktı
--  Başkan Erdoğan: Asıl çıkışımız 2024'te olacak
--  바르사 깜짝 결단! 칸셀루 완전 영입 위해 ‘성골 수비수’와 스왑딜 추진
--  Sydney apartment building on fire, resident badly injured
--  Myki Fares, Road Tolls & Property Taxes Are All Going Up In Victoria & I Hate 2024 Already
--  12 เส้นทางกลับกทม.รถยังวิ่งฉิว ยกเว้น "ถนนมิตรภาพ" รถเริ่มแน่น
--  LGD, ‘CES 2024’서 SDV 대응 차세대 전장 솔루션 공개
--  Bélgica recibe el testigo de España en la Presidencia de la UE con unas elecciones a la vista
--  뮤지컬 '아가사', 로이역에 김경수 추가 캐스팅
--  Ўзбекистон ва Қозоғистон 2024 йил учун режаларни муҳокама қилди.
--  Педагогларга малака тоифаларини беришнинг янги тартиби белгиланди.
--  Meteoroloji'den son dakika uyarısı: Tüm yurdu etkisi altına alacak!
--  Farming support scheme motion voted down
--  광복회 "정신 나간 정신전력교재, 신원식 인식 반영 아닌가 의구심"
--  CBIC notifies extension of Deadline: Authorised Sea Carriers Can Submit Cargo Declarations till March 31, 2024
--  Von der Leyen felicita a España por su «exitoso» trabajo durante la Presidencia de la UE
--  제천·단양에서 서울까지 KTX로 ‘한번에’
--  “정치권 민생에 집중” “승진과 연봉 상승” “친구들과 추억 쌓기”… 충청민의 소원 꾸러미
--  지역대학, 지역소멸 위기에 맞서는 ‘선봉장’ 맡았다
--  North Korea's Kim orders military to 'thoroughly annihilate' US, South Korea if provoked
--  Yet another politically charged year ahead
--  Sargento de la policía de NY mata su esposa, sus 2 hijos y se suicida
--  Vijay’s 68th film titled ‘The Greatest of All Time’
--  [신년사] 최기문 영천시장 "비룡승운의 기를 모아 영천 발전의 큰 획 그을 것"
--  Mohsin Naqvi's gift for people on New Year
--  Iran frees Spaniard Santiago Sánchez Cogedor after a year of detention
--  Irán libera al español Santiago Sánchez Cogedor tras un año de detención
--  La Toya pokazala, da ima še en talent, s katerim si služi kruh
--  Criollo Frankie Montás firma con los Rojos por un año y US$16 MM
--  एक रात में गायब हो गया तालाब…बिहार के दरभंगा में अजीबोगरीब मामला
--  Happy New Year 2024: नए साल पर सीएम ने किया रुद्राभिषेक, प्रदेशवासियों के सुख, समृद्धि की प्रार्थना की
--  EEUU retirará su portaaviones del Mediterráneo en próximos días
--  AP PHOTOS: Dancing with the bears lives on as a unique custom in Romania
--  Road Accident: নতুন বছরের শুরুতেই ৪ টি দুর্ঘটনা কলকাতা সহ-জেলায়, আহত DSP-সহ ৪ পুলিশকর্মী
--  4 Cara untuk Membuat Pola Makan Anda Lebih Hijau dan Sehat
--  (지면)3조 클럽 벌써 10개…불황에도 식품사 실적 날았다
--  بالفيديو- هل ينهي برادلي كوبر مسيرته في التمثيل بعد بدئه في عمله الجديد..إليكم التفاصيل
--  بعد إمتناعها عن حضور الـ ميت غالا منذ عام 2007.. جينيفر غارنر تكشف لأول مرة سبب هذا القرار
--  Najmanj toliko višja bo minimalna plača
--  What’s Popular On Streaming Now
--  VIDEO : नए साल पर सीएम ने किया रुद्राभिषेक
--  Ντίλερ του Μοντ Παρνές αποκαλύπτει ιστορίες τρέλας από το ναό του τζόγου: Ο τραπεζίτης με το τάπερ που έπεσε νεκρός στη ρουλέτα
+-  Gotion High-tech 첫 번째 배터리 팩 미국 프리몬트 공장에서 생산
+-  Arbeitgeberpräsident will Reformen bei Rente und Arbeitszeit
+-  Wenig Hoffnung auf Frieden in der Ukraine und in Gaza 2024
+-  Çorum'da yabancı uyruklu genç kaldırımda ölü bulundu
+-  Yeni yılın ilk gününde Bursa'da hava nasıl olacak?
+-  Bursa'da yılbaşını kutlarken havai fişek elinde böyle patladı
+-  İstanbul'da feci kaza! Otomobil tırın altına girdi
+-  Yeni yılda hayatımızda neler değişecek?
+-  Çanakkale Boğazı'nda sis engeli
+-  Başkan Erdoğan, 18'inci zafer için meydanlara çıkıyor! İlk miting için anlamlı karar
+-  Esenler'de trafik kazası
+-  노동시간 길수록 낮아지는 행복…52시간 초과 청년 가장 '불행'
+-  سمو نائب الأمير يهنئ رئيس مجلس السيادة السوداني
+-  Raketenalarm in Israel zu Neujahrsbeginn - Die Nacht im Überblick
+-  Tuvcīņu meistars Brūss Lī un viņa pēkšņā nāve. Kas īsti notika?
+-  We can’t watch drug abuse destroy Nigeria’s future – Buhari
+-  Microsoft ending support for Windows 10 could send 240 mln PCs to landfills
+-  Serie A điêu đứng khi 'Luật Beckham' mãn hạn
+-  صاحب السمو يهنئ رئيس مجلس السيادة السوداني
+-  KSRTC to add 100 Pallakki sleeper buses
+-  Welcome 2024 but markets expect tough time ahead; US Dollar losing dominance
+-  Uber-Ola कैब बुक करते वक्त इन 5 बातों का रखें ख्याल, न सताएगा डर और न होगी कोई गड़बड़
+-  राम रहीम ने भेजी चिट्ठी: जिन परिवारों में हुई नशे से मौत, उनकी आर्थिक मदद करेगा सिरसा डेरा सच्चा सौदा
+-  Men more likely to get fungal acne than women, expert shares main reasons behind
+-  Upskilling teachers, students key focus for 2024, MC Sudhakar
+-  Samsung Galaxy S24 Series จะฉลาดยิ่งขึ้นด้วยฟีเจอร์ Live Translate และ Generative Edit
+-  “우리가 만드는 기회, 새로운 경북시대”…경상북도 올해 신년화두
+-  “밤에 아파도 걱정 마세요”…경북도, 소아청소년 응급의료기관 5곳 운영
+-  경북도, 통합 경북행복재단 출범…3월까지 대표이사 선임
+-  고병헌 경북경총 회장, 구미시 고향사랑기부제 2024년 1호 고액기부
+-  [인물수첩] 윤석우 농협 의성군지부장 "농업 발전·농업인 소득 증대에 힘쓸 터"
+-  구미문화예술발전소, 구미코서 새해 첫 작품 전시회
+-  [인사]칠곡군
+-  경북 칠곡군 호이장학금 기탁 줄이어
+-  아이넷방송그룹 박준희 회장, 서울대 자연과학대학 송년회 후원
+-  [화요초대석] 국민만 바라봅시다
+-  باتيلي يجدد دعوته لحوار بناء يجمع القادة الليبيين
+-  Tsarukyan axmaqdır, ondan xoşum gəlmir - Huker
+-  UP: सीएम सुरक्षा की स्कॉर्पियो लखनऊ-आगरा एक्सप्रेसवे पर पलटी, चालक व तीन अधिकारी घायल; टायर फटने से हुआ हादसा
+-  Telangana schools closed today as govt declares New Year as general holiday
+-  Central Govt notifies Provisional Collection of Taxes Act, 2023
+-  ASI launches restrooms, cafes for tourists in Hampi
+-  Hình ảnh đường phố Hà Nội yên bình trong ngày đầu năm mới 2024
+-  Amrit Bharat Express between Malda Town & Bengaluru a big draw
+-  ISRO’s successfully launches XPoSat mission to decode mysteries of Black holes
+-  HFCL Wins Rs 1,127 Cr BSNL Order To Transform Optical Network
+-  Top Builders Secure Reduced Rates For Construction Finance
+-  Wenig Hoffnung auf Frieden in der Ukraine und in Gaza 2024
+-  Wenig Hoffnung auf Frieden in der Ukraine und in Gaza 2024
+-  Un Año Nuevo
