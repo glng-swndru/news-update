@@ -1,51 +1,51 @@
 # Latest News
--  Gotion High-tech 첫 번째 배터리 팩 미국 프리몬트 공장에서 생산
--  Arbeitgeberpräsident will Reformen bei Rente und Arbeitszeit
--  Wenig Hoffnung auf Frieden in der Ukraine und in Gaza 2024
--  Çorum'da yabancı uyruklu genç kaldırımda ölü bulundu
--  Yeni yılın ilk gününde Bursa'da hava nasıl olacak?
--  Bursa'da yılbaşını kutlarken havai fişek elinde böyle patladı
--  İstanbul'da feci kaza! Otomobil tırın altına girdi
--  Yeni yılda hayatımızda neler değişecek?
--  Çanakkale Boğazı'nda sis engeli
--  Başkan Erdoğan, 18'inci zafer için meydanlara çıkıyor! İlk miting için anlamlı karar
--  Esenler'de trafik kazası
--  노동시간 길수록 낮아지는 행복…52시간 초과 청년 가장 '불행'
--  سمو نائب الأمير يهنئ رئيس مجلس السيادة السوداني
--  Raketenalarm in Israel zu Neujahrsbeginn - Die Nacht im Überblick
--  Tuvcīņu meistars Brūss Lī un viņa pēkšņā nāve. Kas īsti notika?
--  We can’t watch drug abuse destroy Nigeria’s future – Buhari
--  Microsoft ending support for Windows 10 could send 240 mln PCs to landfills
--  Serie A điêu đứng khi 'Luật Beckham' mãn hạn
--  صاحب السمو يهنئ رئيس مجلس السيادة السوداني
--  KSRTC to add 100 Pallakki sleeper buses
--  Welcome 2024 but markets expect tough time ahead; US Dollar losing dominance
--  Uber-Ola कैब बुक करते वक्त इन 5 बातों का रखें ख्याल, न सताएगा डर और न होगी कोई गड़बड़
--  राम रहीम ने भेजी चिट्ठी: जिन परिवारों में हुई नशे से मौत, उनकी आर्थिक मदद करेगा सिरसा डेरा सच्चा सौदा
--  Men more likely to get fungal acne than women, expert shares main reasons behind
--  Upskilling teachers, students key focus for 2024, MC Sudhakar
--  Samsung Galaxy S24 Series จะฉลาดยิ่งขึ้นด้วยฟีเจอร์ Live Translate และ Generative Edit
--  “우리가 만드는 기회, 새로운 경북시대”…경상북도 올해 신년화두
--  “밤에 아파도 걱정 마세요”…경북도, 소아청소년 응급의료기관 5곳 운영
--  경북도, 통합 경북행복재단 출범…3월까지 대표이사 선임
--  고병헌 경북경총 회장, 구미시 고향사랑기부제 2024년 1호 고액기부
--  [인물수첩] 윤석우 농협 의성군지부장 "농업 발전·농업인 소득 증대에 힘쓸 터"
--  구미문화예술발전소, 구미코서 새해 첫 작품 전시회
--  [인사]칠곡군
--  경북 칠곡군 호이장학금 기탁 줄이어
--  아이넷방송그룹 박준희 회장, 서울대 자연과학대학 송년회 후원
--  [화요초대석] 국민만 바라봅시다
--  باتيلي يجدد دعوته لحوار بناء يجمع القادة الليبيين
--  Tsarukyan axmaqdır, ondan xoşum gəlmir - Huker
--  UP: सीएम सुरक्षा की स्कॉर्पियो लखनऊ-आगरा एक्सप्रेसवे पर पलटी, चालक व तीन अधिकारी घायल; टायर फटने से हुआ हादसा
--  Telangana schools closed today as govt declares New Year as general holiday
--  Central Govt notifies Provisional Collection of Taxes Act, 2023
--  ASI launches restrooms, cafes for tourists in Hampi
--  Hình ảnh đường phố Hà Nội yên bình trong ngày đầu năm mới 2024
--  Amrit Bharat Express between Malda Town & Bengaluru a big draw
--  ISRO’s successfully launches XPoSat mission to decode mysteries of Black holes
--  HFCL Wins Rs 1,127 Cr BSNL Order To Transform Optical Network
--  Top Builders Secure Reduced Rates For Construction Finance
--  Wenig Hoffnung auf Frieden in der Ukraine und in Gaza 2024
--  Wenig Hoffnung auf Frieden in der Ukraine und in Gaza 2024
--  Un Año Nuevo
+-  '1조+α 투자' 벌써부터 우승후보 거론…NYM과 LAD는 과연 다를까? 다저스 WS 우승 배당률 '최저'
+-  "분노는 계속된다"…'서울의 봄' 1200만 돌파, '부산행' '변호인' 제치고 쾌속질주
+-  '내남결' 박민영 "소식·이온음료로 37kg까지 감량…위 줄어 살 찌우기 어려웠다"
+-  شهداء وجرحى في غارات الاحتلال المتواصلة على قطاع غزة
+-  خلال نصف ساعة .. عدة زلازل تضرب تركيا
+-  بمناسبة العام الجديد .. زيلينسكي يخيّر مواطنيه بين أمرين
+-  وزيرة إسرائيلية تقدم اعتذارا نادرا
+-  خبير عسكري أمريكي يكشف مصدر التهديد الأمني الحقيقي لبلاده
+-  Toni Nieminen hullaannutti Suomen – Hjallis Harkimo keksi hölmön idean
+-  [인사] 대전시 유성구(1월1일자)
+-  Vũ Thu Phương lên tiếng giữa lúc "trò cưng" Xuân Hạnh đăng quang: "Kết quả được sự đồng thuận của tất cả giám khảo"
+-  Du khách quốc tế đón thời khắc chuyển giao năm mới tại Hà Nội
+-  Không được đến trường vì bị cha mẹ ép đi thuyền vòng quanh thế giới suốt 10 năm, cô gái tự học rồi đỗ Oxford, "trả thù" bằng sự nghiệp lẫy lừng
+-  [이수완의 월드비전] 바햐흐로 '슈퍼 선거'의 해 …지정학적 쓰나미 공습 대비할 때
+-  DAAWO+AKHRISO: Liiska Magacyada Xildhibaanada cusub ee Puntland
+-  আমার জন্য না, আপনাদের সন্তানের জন্য ভোটটা চেয়ে গেলাম: মাশরাফি
+-  People Gathered First Time In Historic Lal Chowk To Celebrate New Year Eve
+-  Rakul Preet Singh and Jackky Bhagnani to tie the knot in February?
+-  박종훈 경남교육감, 새해 첫날 국립3.15민주묘지 참배
+-  Kakao to beef up reform drive in 2024
+-  Green Bay Packers take management of race for last wildcard berth
+-  Oι πιο σημαντικές εκλογικές αναμετρήσεις του 2024
+-  Kültür ve Turizm Bakan Ersoy'dan Özgür özel'e 250 bin TL'lik dava
+-  Anneler yeni yıla evlat hasretiyle girdi
+-  Meteoroloji'den kritik uyarı! Kuvvetli sağanak ve kar geliyor
+-  Türk diplomatın kanı yerde kalmadı
+-  Gazze'yi ‘ilhak' talimatı
+-  İsrail'e destek için gönderilmişti: Talimatlar değişiyor
+-  İstanbul, Ankara ve İzmir'de "Kalkan-6" operasyonu: 121 düzensiz göçmen yakalandı
+-  Με ρουκέτες της Χαμάς υποδέχθηκε το 2024 το Ισραήλ – Οι νέοι βγήκαν να γιορτάσουν γεμάτοι τρόμο
+-  Ο οικονομικός καζαμίας το 2024: Τι προβλέπουν οι «γκουρού»
+-  Şehirler arası otobüsler için yeni düzenleme... Kullanımına başlandı
+-  Ολονύχτιες επιθέσεις στην Ουκρανία με πέντε νεκρούς σε Ντονέτσκ και Οδησσό
+-  Te 4 astrološke znake čakajo skrivne afere v letu 2024! Ne bodo se mogli upreti
+-  Vigil for Palestine in Omagh today at 12 noon
+-  Üç ilde Kalkan-6 Operasyonu! 121 düzensiz göçmen yakalandı
+-  Kaymakam Çanga yılbaşında görev yapan personelleri yalnız bırakmadı
+-  मन्त्रिपरिषद् बैठकको खाजा खर्च कटौती गर्ने प्रधानमन्त्री प्रचण्डको घोषणा, वार्षिक ६० लाख रुपैयाँ जोगिने
+-  Крупнейшую с 2017 года вспышку на Солнце зарегистрировали в новогоднюю ночь
+-  ЗСУ нанесли 24 удари по російським загарбникам
+-  صدور العدد 600 من مجلة “الجندي”
+-  Много българи са именници днес, а на вратата чакайте и сурвакари
+-  Bulawayo woman remanded in custody over husband’s death
+-  С 1 января пошлина на экспорт нефти из России обнуляется
+-  김진태 도지사, 금병산 정상에서 새해 첫 일출과 함께 새해 인사 전달
+-  [르포] "용왕님요 조상대대로 지켜온 죽변 바다 고기 많이 나게 해주시소"
+-  Memur maaş artışı için gözler enflasyon verilerinde!
+-  Збірна США розгромила Словаччину: результати матчів чемпіонату світу U-20
+-  Querschläger explodiert direkt neben Kopf: Bub in Oberbayern bei Feuerwerk verletzt
+-  Bhadohi News: नए मोटर व्हीकल एक्ट को लेकर भड़के ट्रक चालक, वाराणसी-प्रयागराज हाईवे पर 12 किमी लंबा जाम
