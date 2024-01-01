@@ -1,51 +1,51 @@
 # Latest News
--  ‘আবারও সাফ জিতে ছাদখোলা বাসে সংবর্ধনা পেতে চাই’
--  [크립토 연간 브리핑] 지난해 '뒷심' 발동한 비트코인…올해 가상자산 상승세 이끌까
--  ব্যাডমিন্টন খেলার সময় মারা গেছেন পুলিশ কর্মকর্তা
--  Mothers of local Longhorns prepared for Sugar Bowl, potential 'home' game
--  Инвестор рассказал о серьезном падении стоимости соцсети Х после ее покупки Маском
--  Какие имена были популярны в КР в ушедшем году для новорожденных?
--  حقوقيون: ظروف صعبة جدا للأسيرات بسجون الاحتلال
--  وفيات الاثنين 1/ 1/ 2024
--  Snoop Dogg Set to Join NBCUniversal’s Primetime Coverage of the Olympics Summer Games 2024 in Paris
--  GS25, 1인가구 증가에 맥주 행사도 바꿨다.
--  태영건설發 자금 조달 악화 전망↑…정부, 채안펀드 증액 검토
--  주택·건설업계, 'PF 대책 마련·규제 완화' 요구 한목소리
--  [주간분양] 지난주 분양아파트 13개 중 3개만 '순위 내 마감'
--  대구시, 종소리에 담은 희망 '제야의 타종' 행사
--  서영교 부안해양경찰서장 취임… "신뢰받는 해경 돼달라"
--  부안군 종무식 열고 한해 마무리… "2024년 더 높이 비상"
--  수성구, ‘2023년 정보보안 평가’ 사이버 침해 대응 우수기관 선정
--  달서구, 2023년 대구시 자원순환행정 종합평가‘ 최우수기관’
--  [2024 신년사] SK 최태원 "거문고 줄 고처매는 자세로 경영시스템 점검해야"
--  고흥군, 우주발사체 산업 청룡처럼 힘차게 ‘비상’
--  ผวจ.น่าน นำพุทธสานิกชนชาวจังหวัดน่านสวดมนต์ข้ามปี เสริมสิริมงคล
--  खूबसूरती ही नहीं गुडलक भी बढ़ाता है डायमंड, पहनने से पहले जान लें ये जरूरी नियम
--  Life lessons from interviews
--  Angamaly-Sabari line to facilitate Vande Bharat operations; Southern Rly seeks revised estimate
--  Vuelca su auto al ir a exceso de velocidad y perder el control
--  Faeser reist ins Hochwassergebiet - weiterer Regen in Sicht
--  Die Demokratie ist im weltweiten Hochjahr der Wahlen in Gefahr – POLITICO
--  Auzmendi trasciende internacionalmente por ser el máximo anotador del fútbol hondureño en 2023
--  Kerala records worst rainfall deficit in 7 years
--  David Warner Retires From ODIs: डेविड वॉर्नर ने वनडे क्रिकेट से लिया संन्यास, पाकिस्तान के खिलाफ विदाई टेस्ट मैच से पहले की बड़ी घोषणा
--  Полковник СБУ Стариков: фронт украинской армии рухнет из-за мобилизованных
--  Comores: à moins de deux semaines du scrutin, la campagne en vitesse de croisière
--  P’Harcourt refinery begins test-run, Rivers, 11 others get supply soon
--  Bancos jamaicanos responden a aumento de estafas online
--  Anıtkabir’e ziyaretçi akını. İşte 2023’te Ata’sını ziyaret edenlerin sayısı
--  Teen shot while driving, crashes into unoccupied vehicle
--  Ilgdzīvošanas eksperts nosauc 5 soļus, kas palīdzēs paildzināt mūžu
--  California expanding free health care to 700,000+ immigrants living illegally in state
--  Polisten kaçan şahsın üzerinden satır çıktı
--  Sudheeran remains strident in his criticism of Congress state leadership
--  Marcas de amor y rebeldía que lo llevaron a ganar un prestigioso premio de ensayos
--  จ.แพร่ ประกอบพิธีสวดมนต์ข้ามปี เสริมสิริมงคล ส่งท้ายปี
--  ‘อุ๊งอิ๊ง’อวยพรปีใหม่2567 บอกคนไทยพร้อมรับความท้าทายใหม่ๆ
--  แสงแรกแห่งปี2567 นักท่องเที่ยวแห่ชม‘พระอาทิตย์’ขึ้นที่‘ภูกระดึง’ 06.43 น.
--  李家超︰區議員要做好「上情下達、下情上報」 將居民大事小情放在心上
--  นายกฯอวยพรคนไทยขอ67เป็นปีแห่งความก้าวหน้า ลั่นรัฐบาลเดินหน้าดูแลปชช.
--  دہشت گردی کے خلاف پوری قوم متحد ہو
--  Necrológicas de hoy, lunes 1 de enero de 2024
--  Leeds United: Transfer ins and outs - January 2024
--  Finding gold in the gully
+-  هل يتطلب مرض السكري من النوع الأول نظاما غذائيا صارما؟
+-  पानीका प्रखर सम्भव्य
+-  ยิปซีพยากรณ์ดวงรายวัน ประจำวันจันทร์ 1 มกราคม 2567
+-  Yatırımcı sayısı hızlı düştü
+-  “달로부터 봉황을 품다” 이점찬 도예가, 달항아리 전
+-  봄갤러리, 신춘기획전 ‘보고 또 보고’
+-  한동훈 "김건희 특검법, 국민 눈과 귀 가리는 것…공정하고 멋지게 이기는 공천해야"
+-  Cost-sharing of NH projects: CM Vijayan likely to hold talks with Gadkari
+-  Thị trường hân hoan vì S&P 500 mấp mé ngưỡng cao nhất mọi thời đại, Phố Wall lắc đầu: Vì sao?
+-  „Nejdražší“ hráči v lize: Krejčí beze změny, Kuchta pořád míň než ve Slavii
+-  New Laws That May Affect Your China Business from January 1, 2024
+-  Hero, TVS, Eicher, Maruti, M&M may see strong December wholesale numbers. CV sales number may be soft.
+-  dpa-AFX KUNDEN-INFO: Finanzanalysen in den dpa-AFX Diensten
+-  Taylor Swift and Travis Kelce pile into his Rolls Royce en route to their New Year's Eve festivities after his Chiefs came back to beat the Bengals in front of the adoring pop star at Arrowhead
+-  Top news developments from Kerala today
+-  Osaka wins opening match in return to elite tennis at Brisbane International
+-  LPG Cylinder: ਤੇਲ ਕੰਪਨੀਆਂ ਨੇ ਦਿੱਤਾ ਨਵੇਂ ਸਾਲ ਦਾ ਤੋਹਫ਼ਾ, ਪਹਿਲੇ ਦਿਨ ਤੋਂ ਇੰਨੀਆਂ ਘਟੀਆਂ LPG ਸਿਲੰਡਰ ਦੀਆਂ ਕੀਮਤਾਂ
+-  अगर एनिमल बनकर बवाल… नए साल पर दिल्ली पुलिस ने फिल्मी अंदाज में दी जनता को नसीहत
+-  Indian Navy enhances surveillance in Arabian Sea and Gulf of Aden
+-  ‘Kota Factory’ in 2023: Year of highest student suicides
+-  Pro-Pakistan separatist group Tehreek-e-Hurriyat banned by govt
+-  India brimming with self-confidence: PM
+-  Ibrahim, Palak avoid paparazzi as they get clicked together on New Year`s eve
+-  Why I boycotted Oyetola’s re-election campaign – Aregbesola
+-  Rangkuman setahun naratif beracun DAP
+-  Leserbild des Jahres 2023: Monat Dezember
+-  Neues Heizungsgesetz tritt in Kraft - was das bedeutet
+-  Pontresina will Zweitwohnungen besteuern – so geht es weiter
+-  Two youth from TN escape after snatching chain, caught in Kerala during another bid
+-  Odia literature can look forward to new year with hope
+-  Roads under smart city project in district to be completed by April: P A Mohamed Riyas
+-  Alam Flora kutip 3.06 tan sampah pada sambutan tahun baharu 2024
+-  Khởi đầu năm mới bằng hành trình du khảo Tôi yêu Tổ quốc tôi
+-  Vé máy bay Tết đi nửa đêm về sáng giá cũng cao ngất
+-  Thêm 1 quốc gia Đông Nam Á cho Toyota/Daihatsu bán xe trở lại
+-  Giao thông TP.HCM và Đông Nam Bộ kỳ vọng đột phá trong năm mới
+-  Khách bay Bamboo Airways dùng dịch vụ của Pacific Airlines
+-  Chuyển khoản nhầm 3 tỉ, sau 8 tháng chưa đòi được hết
+-  Nouvel-An: le catalogue des “mauvaises solutions” quand on a bu
+-  Dele Alli sắp hồi phục lại dính chấn thương mới
+-  Cú đúp tin vui cho Real trong ngày trở lại La Liga
+-  Andhra Pradesh health minister’s office vandalised by unknown persons
+-  Numaish to Kick off Today: నయా సాల్ లో నుమాయిష్‌ సందడి.. నేడు ప్రారంభించనున్న సీఎం రేవంత్.. 46 రోజుల పాటు కొనసాగనున్న ఎగ్జిబిషన్‌.. సమీప ప్రాంతాల్లో ట్రాఫిక్ ఆంక్షలు
+-  माओवादी केन्द्रको विशेष रुपान्तरण अभियान आज सकिँदै
+-  การอนุมัติ Bitcoin ETF อาจจะไม่กระตุ้นให้ตลาดพุ่งอย่างรุนแรงอย่างที่หลายคนคาด
+-  Nhiều thanh thiếu niên 'thông chốt' bị xử xử lý đêm Countdont 2024
+-  EU-voorzitter België moet halfjaar werk in twee maanden klaren
+-  На Львівщині внаслідок атаки РФ спалахнула пожежа в музеї Шухевича
+-  Tips Wujudkan Resolusi Kesehatan di Tahun Baru
+-  Israeli minister makes case for depopulation of Gaza — RT World News
