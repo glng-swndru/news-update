@@ -1,51 +1,51 @@
 # Latest News
--  Reportan seis personas atrapadas tras terremotos
--  Me interesa ser un buen ejemplo: Peso Pluma
--  Regnerischer Jahresanfang in Sachsen
--  [ŽT] Izraelis atsikrato rezervistų. Kas vyksta
--  [ŽT] Įsiveržė į Lenkiją 40 km. Skelbiamas Maskvos reikalavimas
--  „Ten yra aerodromas, iš kurio kyla bombonešiai... Turėtų ruoštis.“ Skelbiamas sekantis taikinys
--  Kyjivas lieka tikslu numeris vienas. Atskleistos neįtikėtinos miesto apsaugos priemonės
--  [ŽT] ​„Tai teroro aktas!“ Panašu, kad Zacharova prarado adekvatumą. Kas nutiko
--  [ŽT] Įspūdingas vaizdas – ukrainiečių tankas apšaudo okupantus iš kelių metrų (Video)
--  [ŽT] Skamba visame pasaulyje. Čekija pasiuntė Rusiją „ant 3 raidžių“
--  [ŽT] „Padidintas budrumas.“ Netikėti įvykiai prie Baltarusijos sienos. Kas vyksta
--  Путин тинчликка тайёр, фақат Россия шартлари асосида.
--  Kızıldeniz'de sıcak gelişme: İran bölgeye savaş gemisi gönderdi
--  Safir son bölüm 18 bölüm full izle! Safir 18. bölüm izle tek parça!
--  Acıyla başladı, acıyla bitti
--  Taliban: Afganistan'daki saldırıların arkasında Tacikistanlı ve Pakistanlılar var
--  Dünya devi takip ediyor! Trabzonspor'a Uğurcan Çakır piyangosu vurabilir
--  İsrail Gazze'de 21 bin 978 kişiyi katletti
--  İngilizler sütlü çayı özellikle kışın tüketiyor! İşte sebebi
--  Djiku ve Amartey'e milli davet
--  "Filistin'e destek, İsrail'e lanet" yürüyüşünde bir vatandaşa saldırmıştı... Saldırgan yakalandı
--  Marcelino'dan Eric Bailly'ye övgü dolu sözler
--  “Memleketin bir şehrini değil her şehrini fiber ağlarla örüyoruz”
--  Kızıl Goncalar yeni bölümü bu akşam var mı, yok mu? Kızıl Goncalar neden yok? FOX Tv 1 Ocak 2024 yayın akışı
--  وزارة العدل الليبية تبحث عقد اتفاق مع مصر لنقل السجناء
--  E rëndë, një tjetër aksident në Pogradec, përplasen dy automjete, dyshohet për të plagosur
--  Zece cupluri s-au căsătorit la Poarta Sărutului în noaptea de Revelion. Doi tineri și-au unit destinele în uniforma de jandarm
--  News24 | Is Cavin Johnson the answer for struggling Kaizer Chiefs in 2024?
--  Fiyat listelerinin görünür yerde olması sevindirdi
--  Bursa'da yeni yılın ilk günü otobüs terminalinde yoğunluk!
--  Yalova Süper Amatör'de 8. hafta heyecanı
--  Kırklareli'nde suç oranları azaldı
--  Manisa'da polisten kaçan şüpheli cami tuvaletinde yakalandı
--  Antalyaspor'da Sergen Yalçın dönemi başlıyor
--  Bursaspor'un Efes maçı biletleri satışta
--  Şəmkirdə 10 otaqlı evdə yanğın
--  Onlara 3 illik vergi güzəşti tətbiq edilir
--  대구시 "새해부터 버스는 74세, 도시철도는 66세 이상 무료···보훈대상자·다자녀가구·난임부부 지원 확대"
--  갑진년 띠별로 본 운세
--  Devotees throng temples, churches on New Year
--  Wisata Cianjur Diserbu 200 Ribu Wisatawan
--  Top news headlines at 7 pm: Massive Tsunami in Japan, Goldy Brar declared terrorist and more
--  Aslan'da iki isim yol ayrımında: Teklifler değerlendirilecek
--  Rutschenparadies in NRW feiert Wiedereröffnung: Attraktion ist „top secret“
--  Japan issues tsunami warnings after a series of very strong earthquakes shook its western coastline
--  Two youths die in accident in Bhadravathi
--  [‘이선균 협박女’ 머그샷 공개될까?…올해부터 마약범죄 등 ‘중대범죄자’ 머그샷 공개
--  [“나라에 1억 벌어준 내가 애국자”…불법주차 2827건 신고 인증글 ‘눈길’
--  Customized Dog Food- Global Market Insights and Sales Trends 2024 | Hungry Bark, Ollie Pets, JustFoodForDogs, Spot & Tango, PetPlate, Muenster Milling Company
--  Larissa, Paolla, Marina, Anitta, Isis: 22 looks de Réveillon
+-  김정은, 딸 주애에게 공개석상서 '볼 뽀뽀'…가운데 입장도 양보
+-  WSJ: أكثر من 70% من منازل غزة تعرضت للدمار جراء القصف
+-  Morsy świętowały Nowy Rok
+-  „Energetyki” tylko dla pełnoletnich
+-  Survivor Nihat Altınkaya kimdir?
+-  Gazze'de can kaybı 21 bin 978'e yükseldi
+-  Fransa'da yıldırım nedeniyle onlarca uçuş iptal edildi
+-  TİKA, Afganistan'da Ali Şir Nevai'nin eserini bastırdı
+-  CHP'de seçim hazırlıkları hızlandı!
+-  Trabzonspor Kulübü Başkanı Ertuğrul Doğan'dan yeni yıl mesajı
+-  Tunceli'de deprem oldu
+-  Kütahya'da horoz dövüşüne polis baskını
+-  Çorlu'da ev yangını
+-  Manisa Büyükşehir Belediyespor, başantrenör Hakan Demir ile anlaştı
+-  Kobra Murat kimdir? Kobra Murat'ın hastalığı ne?
+-  Konya'da uyuşturucu operasyonu! 1 tutuklama
+-  Demir yüklü gemi arızalandı
+-  Eşiyle tartıştı, otomobili uçuruma itti
+-  תושבי בארי ששוחררו מהשבי ביקרו לראשונה בקיבוץ: "לא ידענו אם נקום בבוקר"
+-  Ευρωπαϊκό πρωτάθλημα χάντμπολ: Οι ευχές των παικτών της εθνικής ομάδας για το νέο έτος και το Euro 2024
+-  Антониа и Илина се првите новороденчиња во Битола
+-  Museveni, Kagame mum on Tshisekedi's re-election
+-  Îngrijirea nou-născutului la domiciliu
+-  تمديد حبس صحفي تونسي للمرة الثالثة ونقابة الصحفيين تهدد بالتصعيد
+-  ২ থেকে ৪ জানুয়ারি বিএনপির গণসংযোগ কর্মসূচি
+-  Wird es König Charles im Jahr 2024 mit den indigenen Gemeinschaften in Kanada schaffen?
+-  За подписку на «экстремистские» каналы оштрафовали воспитательницу и конфисковали ее IPhone
+-  La Sala de Arte Sidor se encuentra lista para el año 2024
+-  Kigyulladt erkély, égési sérülések - Tizenöt emberrel szemben indult eljárás Szilveszterkor
+-  Hope for better prospects in 2024, Lagos PDP tells residents
+-  ড. ইউনূসের রায় নিয়ে যুক্তরাষ্ট্রের সঙ্গে সম্পর্কে প্রভাব পড়বে না: পররাষ্ট্রসচিব
+-  Number of migrants arriving to Britain in small boats drops 36% in 2023
+-  Somtel launches first 5G network in Somalia
+-  Pumas y su EXCITANTE CALENDARIO para el 2024 ¡Aquí todos los partidos que tendrán este año! | LIGA MX
+-  Juventus d’acciaio negli scontri diretti: il dato
+-  '울릉도·독도=안도' 일본 고지도 발견
+-  [알림] 2024 오피니언 새 필진이 찾아갑니다
+-  [지방시대 게임체인저] 홍준표 "TK신공항 사업 구체화…미래 대구 굴기 대변혁"
+-  한동훈 비대위원장, 보수 텃밭서 어떤 메시지 내놓을까
+-  '쌍특검' 거부권 등 처리 놓고 새해 벽두부터 여야 팽팽
+-  "반갑다, 푸른 용의 해"…지역 해맞이 명소 '구름인파'
+-  대구대 창업지원단, 청소년 Biz-Cool 새싹캠프·스타트업 교사연수 개최
+-  Конвейер репрессий. За подписку на «экстремистские» каналы оштрафовали воспитательницу и конфисковали ее IPhone
+-  호산대, ‘지방 전문대학 활상화사업’ 워크숍 개최
+-  경일대, 사제 간 유대로 10년간 기술 개발…산학협력으로 동문 기업 매출 10배 '급신장'
+-  영남대, ‘스마트 물산업 인재양성 취업박람회’ 개최
+-  เมาข้ามปี! ลุงขับเก๋งพุ่งชนมั่ว ถืออาวุธของมีคมไล่ฟันชาวบ้านวิ่งหนีกระเจิง
+-  Rivers crisis: Honour truce brokered by Tinubu, PDP group urges Fubara
+-  Neunkirchen - Wohnung brennt aus
+-  Brauchtum: Musik und Schwellköppe: Tausende starten in die Karnevalszeit
