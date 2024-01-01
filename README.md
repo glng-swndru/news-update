@@ -1,51 +1,51 @@
 # Latest News
--  Korea's exports down 7.4% in 2023 amid weak chip demand
--  S. Korea, US to complete strengthened 'extended deterrence' regime in 1st half of 2024: Yoon
--  Defense chief warns NK's reckless provocations will become 'prelude to destruction'
--  ‘혹시 전 어때요?’→‘안돼’ 레알 출신 GK, 친정팀에 ‘역제안’ 거절당했다
--  186억이면 월드컵 위너 공격수 영입 가능…‘손흥민과 토트넘 핵심 될 것’
--  Proposed Jail Term For Salary Defaulters, Futile Project – NECA
--  3일부터 학자금 대출 신청…등록금 4월 25일·생활비 5월 16일까지
--  Macron says 2024, marked by Olympics, will be year of French pride and hope
--  German police arrest three more over alleged Cologne Cathedral attack plot
--  UN chief closes tribunal founded to investigate 2005 assassination of former Lebanese prime minister
--  [전남 완도 선착장서 어획물 운반 80대 바다에 빠져 숨져
--  [외지사람 먼저 찾는 광주 송정역에 디지털 이미지 구축
--  [“저출산 심각한데…” 임산부 44% “상사·동료 눈치가 제일 힘들어”
--  [“시간 아까워 눈물난다”…8만명 모인 광안리 드론쇼 취소에 ‘부글부글’
--  [다음 대통령은? 처음 이재명 앞선 한동훈
--  [경북도, 영양·봉화 대규모 국책사업 양수발전소 선정
--  [장상길 포항시 부시장 1일 취임 "포항 발전 위해 최선 다할 것"
--  [[신년사] 尹대통령 “국정 중심은 국민…문제 해결 위해 행동하는 정부”
--  [[포토] 보성 율포해변 갑진년 해맞이 장관
--  [경북도, 경북행복재단·경북도청소년육성재단 통합 출범
--  [[전문] 尹대통령 신년사 “2024년 대한민국 재도약의 중대한 전환점”
--  [작년 무역적자 99.7만달러…수출 10월부터 증가세
--  [김우빈, 서울아산병원에 1억원 기부…새해 첫 날부터 선한 영향력 전파
--  김나영 유튜브 수익 1억원 쾌척 "한부모 여성 가장에게"
--  서대문구의회 주이삭 구의원, 요양보호사 권익 및 처우 개선 위해 힘써
--  OTT 웨이브 "상품 가입하면 3000코인 증정"
--  K리그1 포항, 브라질 출신 미드필더 오베르단 완전 영입
--  Makron u novogodišnjoj poruci pozvao Francuze na jedinstvo: Želim da 2024. bude godina odlučnosti
--  MAN lauds Tinubu, Kalu for peace project in S’East
--  كتائب القسام تطلق رشقة صواريخ نحو تل أبيب وأصوات الانفجارات وصافرات الإنذار تدوي
--  Cửa ngõ phía Đông TPHCM kẹt xe nghiêm trọng sau thời khắc chào năm mới
--  Produser American Idol yang Dituduh Paula Abdul Lakukan Pelecehan Seks Buka Suara
--  The world welcomes 2024 (Video)
--  Baltimore clinch AFC North title and high seed in play-offs with Miami mauling
--  Tổng thống Zelensky ca ngợi sự kiên cường của người Ukraine, quyết tâm có F-16 trong năm mới
--  Vì sao tăng trưởng kinh tế của Đà Nẵng quá thấp?
--  One injured in shooting outside Denver Museum of Nature and Science
--  尹대통령 "상반기 한미 확장억제 완성…북핵 위협 원천봉쇄"
--  [속보] 尹대통령 "문제 해결 위해 행동하는 정부 될 것"
--  PHOTOS: Denver Broncos beat LA Chargers 16-9 in NFL Week 17
--  युनिटेक हाइड्रोपावरमा लगानी गर्दै लक्ष्मी सस्टेनेबल इनर्जी फण्ड
--  ग्लोबल आइएमई बैंकको वार्षिकोत्सवमा प्रभातफेरी
--  Explota motocarga que vendía pirotécnicos en mercado de San Martín de Porres: Edificios aledaños quedaron afectados
--  Timnas AMIN Balas TPN: Bagaimana Mau Menang, Orang Temanya Nggak Jelas
--  [부음] 구자일(구병원 원장)씨 모친상
--  [포토뉴스] 2024년 갑진년 새해 첫 일출
--  아쉬웠던 '농구영신' 대구 한국가스공사, 울산 현대모비스에 석패
--  ¿Por qué al último día del año se le llama Nochevieja?
--  রাজধানীতে ফানুস উড়াতে গিয়ে দগ্ধ ৩
--  [인사]중소벤처기업부
+-  이재명 “尹정권, 대한민국 고사시켜…총선 승리로 국민·나라 지켜야”
+-  চাঁদপুরে অজ্ঞাত এক নারীর মরদেহ উদ্ধার
+-  Liverpool - hình mẫu cho Newcastle
+-  बजारीकरण गर्न सुन्तला महोत्सव
+-  이낙연 "기득권 유지 세력과 한판승부"…창당 의지 거듭 강조
+-  كيف يؤثّر الضغط الجوي المنخفض على الحالة الصحية للإنسان؟
+-  Die Farbe des Lichts hat keinen Einfluss auf Schlafmuster oder die innere Uhr • Earth.com
+-  사과 · 배 등 주요 과일 새해도 계속 비싸다
+-  이시아, 사랑스러운 미소
+-  유이, 고혹적인 블랙
+-  Lotto-Millionär tot gefunden – dramatische Wende nach großem Gewinn
+-  Lotto-König Chico plötzlich weg vom Luxus – „Nur das Nötigste zum Leben“
+-  ZDF unterbricht „Helene Fischer Show“: „Haben einen Fehler gemacht“
+-  Annalena Baerbock postet nacktes Körperteil – dann wird es eklig
+-  FC Schalke 04: Wilmots-Hammer? Ex-S04-Trainer ist sich sicher – „Bringt gewisse Qualifikation mit“
+-  4 điều người EQ cao KHÔNG BAO GIỜ nói vào ngày đầu năm mới, kiêng kỵ cẩn thận không gặp xui!
+-  사과 · 배 등 주요 과일 가격 강세 이어진다…대파도 비싸
+-  Athbhliain 2024
+-  철도 폭파에 요인 암살…교착 국면 우크라전쟁서 게릴라전 강화
+-  बुटवल–गोरुसिङे सडक चार लेनको
+-  So verhindern Sie, dass Hacker Ihr Android-Gerät hacken und Bankdaten stehlen
+-  Año Nuevo: cuál es su origen, qué significa y por qué no siempre se celebró el 1° de enero
+-  বিএনপি ও সমমনাদের বিভিন্ন কর্মসূচি আজ
+-  Ponte Preta encaminha permanência de Gabriel Santiago em 2024
+-  2023's Financial Roller Coaster: Experts Anticipate 2024 Opportunities
+-  Công ty lữ hành lớn nhất nước đạt doanh thu kỷ lục 1.435 tỷ trong quý 4/2023
+-  Thị trường hân hoan vì S&P 500 mấp mé ngưỡng cao nhất mọi thời đại, Phố Wall lắc đầu: Vì sao?
+-  ชาวเชียงใหม่ ร่วมทำบุญตักบาตร ในวันปีใหม่ 2567
+-  সকালেই পড়ুন আলোচিত ৫ খবর
+-  चार दिनपछि भेटिए डुम्रेबाट सम्पर्कविहिन भएका विदेशी पर्यटक
+-  Học mẹ cách tiết kiệm bằng hình thức mua vàng, đôi vợ chồng U40 mua nhà, mua xe sau 12 năm
+-  울진 다세대주택서 불…70대 · 40대 부자 사망
+-  টিভিতে আজকের খেলা
+-  “Haciendo el bien”: el mensaje de AMLO para recibir Año Nuevo
+-  لينوفو تكشف عن حاسوب Xiaoxin Pro 27 إصدار 2024
+-  "니들이 펩을 알아?"…'UCL 우승 직후' 펩이 로드리에게 전한 말→로드리의 '반발', 무슨 일?
+-  데이트 폭력 의심 현장 출동한 김성주·안정환, '일촉즉발' [시골경찰]
+-  대한항공, 2024년 새해 첫 고객 맞이하며 순항 기원
+-  '1조 3314억' 오타니 & 야마모토 듀오 만난다…日 국대 사령탑, 벌써 국제대회 준비→ML 캠프 시찰 예정
+-  레전드는 달랐다…동방신기, 20주년 단독 콘서트 '내공 大폭발'…"항상 믿어줘 감사"
+-  Maharashtra के पालघर में बच्ची के साथ दुष्कर्म करने वाले ट्रक चालक को 20 साल की जेल
+-  עם כניסת השנה האזרחית החדשה: אזעקות בדרום, בשפלה ובמרכז
+-  겨울방학, 롯데월드에 가면 ‘35주년 셀러브레이션 파티’
+-  West Bengal : माओवादी गतिविधियों से संबंधित मामलों में वांछित व्यक्ति बीरभूम में गिरफ्तार
+-  वरिष्ठ आईपीएस अधिकारी सारंगी ने ओडिशा के कार्यवाहक डीजीपी का कार्यभार संभाला
+-  축포와 대포…같은 날 다른 풍경 지구촌 새해맞이
+-  इंद्रेश कुमार ने मुसलमानों से समारोह के दौरान ‘श्री राम, जय राम, जय जय राम’ जपने की अपील की
+-  Haryana : निर्माणाधीन मकान की छत ढ़ह जाने से दो श्रमिकों की मौत, एक मजदूर गंभीर रूप से घायल
+-  [신년사] 남한권 울릉군수, quot;지혜와 용기 한 데 모아야 할 것quot;
+-  울진 다세대 주택 화재...2명 사망 1명 부상
