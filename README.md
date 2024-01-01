@@ -1,51 +1,11 @@
 # Latest News
--  '1조+α 투자' 벌써부터 우승후보 거론…NYM과 LAD는 과연 다를까? 다저스 WS 우승 배당률 '최저'
--  "분노는 계속된다"…'서울의 봄' 1200만 돌파, '부산행' '변호인' 제치고 쾌속질주
--  '내남결' 박민영 "소식·이온음료로 37kg까지 감량…위 줄어 살 찌우기 어려웠다"
--  شهداء وجرحى في غارات الاحتلال المتواصلة على قطاع غزة
--  خلال نصف ساعة .. عدة زلازل تضرب تركيا
--  بمناسبة العام الجديد .. زيلينسكي يخيّر مواطنيه بين أمرين
--  وزيرة إسرائيلية تقدم اعتذارا نادرا
--  خبير عسكري أمريكي يكشف مصدر التهديد الأمني الحقيقي لبلاده
--  Toni Nieminen hullaannutti Suomen – Hjallis Harkimo keksi hölmön idean
--  [인사] 대전시 유성구(1월1일자)
--  Vũ Thu Phương lên tiếng giữa lúc "trò cưng" Xuân Hạnh đăng quang: "Kết quả được sự đồng thuận của tất cả giám khảo"
--  Du khách quốc tế đón thời khắc chuyển giao năm mới tại Hà Nội
--  Không được đến trường vì bị cha mẹ ép đi thuyền vòng quanh thế giới suốt 10 năm, cô gái tự học rồi đỗ Oxford, "trả thù" bằng sự nghiệp lẫy lừng
--  [이수완의 월드비전] 바햐흐로 '슈퍼 선거'의 해 …지정학적 쓰나미 공습 대비할 때
--  DAAWO+AKHRISO: Liiska Magacyada Xildhibaanada cusub ee Puntland
--  আমার জন্য না, আপনাদের সন্তানের জন্য ভোটটা চেয়ে গেলাম: মাশরাফি
--  People Gathered First Time In Historic Lal Chowk To Celebrate New Year Eve
--  Rakul Preet Singh and Jackky Bhagnani to tie the knot in February?
--  박종훈 경남교육감, 새해 첫날 국립3.15민주묘지 참배
--  Kakao to beef up reform drive in 2024
--  Green Bay Packers take management of race for last wildcard berth
--  Oι πιο σημαντικές εκλογικές αναμετρήσεις του 2024
--  Kültür ve Turizm Bakan Ersoy'dan Özgür özel'e 250 bin TL'lik dava
--  Anneler yeni yıla evlat hasretiyle girdi
--  Meteoroloji'den kritik uyarı! Kuvvetli sağanak ve kar geliyor
--  Türk diplomatın kanı yerde kalmadı
--  Gazze'yi ‘ilhak' talimatı
--  İsrail'e destek için gönderilmişti: Talimatlar değişiyor
--  İstanbul, Ankara ve İzmir'de "Kalkan-6" operasyonu: 121 düzensiz göçmen yakalandı
--  Με ρουκέτες της Χαμάς υποδέχθηκε το 2024 το Ισραήλ – Οι νέοι βγήκαν να γιορτάσουν γεμάτοι τρόμο
--  Ο οικονομικός καζαμίας το 2024: Τι προβλέπουν οι «γκουρού»
--  Şehirler arası otobüsler için yeni düzenleme... Kullanımına başlandı
--  Ολονύχτιες επιθέσεις στην Ουκρανία με πέντε νεκρούς σε Ντονέτσκ και Οδησσό
--  Te 4 astrološke znake čakajo skrivne afere v letu 2024! Ne bodo se mogli upreti
--  Vigil for Palestine in Omagh today at 12 noon
--  Üç ilde Kalkan-6 Operasyonu! 121 düzensiz göçmen yakalandı
--  Kaymakam Çanga yılbaşında görev yapan personelleri yalnız bırakmadı
--  मन्त्रिपरिषद् बैठकको खाजा खर्च कटौती गर्ने प्रधानमन्त्री प्रचण्डको घोषणा, वार्षिक ६० लाख रुपैयाँ जोगिने
--  Крупнейшую с 2017 года вспышку на Солнце зарегистрировали в новогоднюю ночь
--  ЗСУ нанесли 24 удари по російським загарбникам
--  صدور العدد 600 من مجلة “الجندي”
--  Много българи са именници днес, а на вратата чакайте и сурвакари
--  Bulawayo woman remanded in custody over husband’s death
--  С 1 января пошлина на экспорт нефти из России обнуляется
--  김진태 도지사, 금병산 정상에서 새해 첫 일출과 함께 새해 인사 전달
--  [르포] "용왕님요 조상대대로 지켜온 죽변 바다 고기 많이 나게 해주시소"
--  Memur maaş artışı için gözler enflasyon verilerinde!
--  Збірна США розгромила Словаччину: результати матчів чемпіонату світу U-20
--  Querschläger explodiert direkt neben Kopf: Bub in Oberbayern bei Feuerwerk verletzt
--  Bhadohi News: नए मोटर व्हीकल एक्ट को लेकर भड़के ट्रक चालक, वाराणसी-प्रयागराज हाईवे पर 12 किमी लंबा जाम
+-  กองปราบรวบแก๊งยานรกชายแดนใต้สุดเหิมเกริม รัวอาก้าแหกด่านตรวจ
+-  หมดเวลาฉลองปีใหม่! หอบสัมภาระกลับกรุง ตั๋วรถเต็ม-ถ.มิตรภาพสาหัส
+-  이준석, 尹 겨냥 "돼지의 눈엔 돼지만 보여…뜻대로 안 되면 카르텔로 지목"
+-  경주 국도서 추돌사고…20대 1명 사망, 7명 중경상
+-  경북도, 통합 체외수정과 인공수정 등 난임 시술 25회 지원
+-  ㈜덕산코트랜, 경북도에 이웃사랑 성금 1천만원 전달
+-  새해 첫달 LPG 공급가 동결…상승 요인 있으나 소비자 부담 줄이기 위해 결정
+-  사과·배 등 과일 가격 강세…미국산 계란 112만 개 도입
+-  Nguyễn Thanh Giang: Chạy bộ đã thay đổi cuộc đời tôi
+-  Kava u kombinaciji s ova dva začina radi čuda: Ljudi su oduševljeni ovim utjecajem omiljenog napitka
