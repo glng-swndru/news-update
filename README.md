@@ -1,51 +1,51 @@
 # Latest News
--  "Superlega, sul principio di libertà Uefa-Fifa in fuorigioco"
--  50 Jahre auf Panorama-Hotel: Der Sandmann ist Stammgast in Oberhof
--  أبو عبيدة: تدمير 71 آلية عسكرية خلال 4 أيام وقتل 16 جنديا إسرائيليا
--  Hrvatska: Raketa u oko pogodila djevojčicu, u teškom je stanju
--  محافظ الوادي الجديد يتفقد أعمال التشطيبات بمقر نادي الهجن والفروسية
--  İsraelin təyinatı təsdiqləndi
--  Sud u Izraelu poništio sporni zakon koji je uveo premijer Benjamin Netanyahu
--  Pernambucano: Náutico oficializa contratação de Paulo Sérgio
--  Deflagración de gas en una vivienda en Anzoátegui dejó 2 muertos y 8 heridos
--  Ognisko TKKF Omega znowu pożegnało stary rok na sportowo
--  Zvali su je Vučićevom marionetom hrvatskih korijena: Brnabić odlazi, a Srbija ostaje neuređena država
--  Šok u svijetu sporta: Svjetski prvak u biciklizmu ubio svoju suprugu
--  Sunass atendió a más 123 mil usuarios de servicios de agua en 2023
--  KONTROFANZIVA PROPALA, RUSI SU NEPOBEDIVI: Zapad priznaje da je Ukrajina na ivici poraza
--  Uhapšena Amerikanka koja je ubila svoje troje djece
--  Frenkie de Jong: Hayalini kurduğum kulüpteyim
--  France :: Lions Indomptables, Le Compte A Rebours A Commencé
--  تشكيلة نيوكاسل الرسمية أمام ليفربول
--  Pamięć o bł. ks. Jerzym Popiełuszce
--  وزير العدل الإسرائيلي: حكم المحكمة العليا في قضية الإصلاحات القضائية لن يثبط عزيمتنا
--  La dura decisión que tomaron las hijas de Bruce Willis por el avance veloz de su demencia
--  Režiser Gladiatorja in Osmega potnika prejemnik najvišjega odlikovanja
--  Rusija se obrušila na Ukrajinu s 90 dronova
--  Le 10 cose da sapere (e che forse non sapevate) della Serie A2 Old WIld West Giornata 17
--  Sri Lanka raises fuel retail prices; first under new VAT hike
--  Liverpool-Newcastle: Duelo de ano novo sem portugueses no onze
--  الجيش الإسرائيلي يوسع نطاق هجومه في جنوب غزة
--  Beginning of a new welfare state
--  Medicinska sestra u Americi pacijentima ubrizgavala vodu, navodno umrlo deset osoba
--  بوتين يهدد بتكثيف الهجمات على أوكرانيا
--  Αντίδραση;
--  Opel Grandland GSe: Es lebe der Sport
--  Umfrage unter Experten: Das sollte 2024 beim Bauen und Wohnen passieren
--  Galaxy S24: ¡estas son las ofertas de reserva!
--  Opel Grandland GSe: Der sportliche Power-Plug-in-Hybrid im Test
--  Netanjahuova strana Likud kritizuje rozhodnutie súdu o reforme súdnictva
--  Νέα χρονιά, νέο σερί… (ΣΚΕΨΕΙΣ ΣΩΦΡΟΝΗ)
--  Liverpool XI vs Newcastle: Starting lineup, confirmed team news, injury latest for Premier League today
--  Elképesztő részletek: így szilvesztereztek a magyar sztárok - itt vannak a legújabb fotók, videók
--  İsrail tarihinde bir ilk Netanyahu'ya yüksek mahkemeden kötü haber geldi
--  גנץ על עילת הסבירות: "אחרי המלחמה נסדיר את מערכת היחסים בין הרשויות"
--  تشكيلة ليفربول الرسمية أمام نيوكاسل
--  Eric Bailly'den Beşiktaş paylaşımı: Taraftara mesaj yolladı
--  FOTO/ Aksident në Tiranë, drejtuesi i “Benz”-it del nga rruga dhe aksidenton një tjetër automjet
--  İsrail saldırıları sonrası iç acıtan görüntüler
--  من ضحايا دانيال..الهلال الأحمر درنة ينتشل جثمانين خلال يومين
--  المركز الوطني لمكافحة الأمراض يرسل تطعيمات لـ 30 بلدية
--  Kela lopetti pelivoittojen ”ennustamisen” – päätöksen takana apulaisoikeusasiamies
--  Tavalyi újévi fogadalmaként tanult meg svédül mostanra egy anyuka
--  ارتفاع ضحايا الهجوم الأوكراني على بيلجورود الروسية إلى 25 شخصا
+-  Liverpool çıldırdı! Mohamed Salah'ın yerine Kylian Mbappe
+-  Matteo Gabbia, Milan'a geri dönüyor!
+-  Milan'ın yıldızı Rafael Leao, dünyanın en iyi 11'ini yaptı
+-  Hull City, Sheffield Wendesday'e boyun eğdi
+-  Galán asume como nuevo alcalde de Bogotá
+-  Sebastian Aho valittiin NHL:n parhaaksi
+-  Maailmanmestari kuoli vain 32-vuotiaana - aviomies aiheutti kuoleman?
+-  КАТЕДРАЛАТА ВО КЕЛН ЌЕ ОСТАНЕ ПОД СИЛНО ОБЕЗБЕДУВАЊЕ ПО ТРЕВОГАТА ЗА ТЕРОРИСТИЧКИ НАПАД
+-  إجراء جديد قبل معسكر منتخب مصر استعدادا لأمم أفريقيا 2023 (صور)
+-  خالد بيومي منتقدا اختيارات فيتوريا: "لا يوجد عدل وهناك مجاملة لبعض اللاعبين"
+-  إعلام عبري: الجيش ينسحب من بعض مناطق غزة وسيتم تسريح قوات إضافية
+-  تعادل مثير بين المصري والإسماعيلي في الدوري
+-  بالفيديو| مشاهد من استهداف قوة إسرائيلية متحصنة بمبنى وسط جباليا بغزة
+-  صلاح يقود هجوم ليفربول لمواجهة نيوكاسل في الدوري الإنجليزي
+-  أبو عبيدة: تمكن مجاهدونا في الـ4 أيام الماضية من تدمير 71 آلية إسرائيلية بغزة
+-  В ДНР сообщили о гибели 9 152 мирных жителей с 2014 года из-за обстрелов ВСУ
+-  12 కిలోల గంజాయి స్వాధీనం
+-  Šibenčani nastavljaju s lijepom tradicijom: lampioni dobrih želja s Poljane se vinuli u nebo
+-  హామీల అమల్లో 85 శాతం ఫెయిల్‌
+-  ‘Bachelor’ alum Hannah Ann Sluss celebrates first Ravens game after Jake Funk signing
+-  El presidente Maduro reiteró disposición al diálogo con la oposición y EEUU
+-  "NE VOLIM EUFORIJU, POSLE TOGA MORAŠ DA DOŽIVIŠ PAD" Nataša Bekvalac iznenadila priznanjem, pa se dotakla detinjstva: "10 godina smo imale ISTU JELKU I UKRASE"
+-  Fulham trigger Tom Cairney contract extension as captain's future secured through to 2025
+-  وفاة المناضل الحقوقي خميس الشماري
+-  Кадыров сообщил о появлении в Чечне нового города
+-  అంగన్వాడీల నిరసన హోరు
+-  Larsa Pippen, Marcus Jordan packed on the PDA into wee hours for his birthday
+-  Uppdaterad "Carmen" med fokus på våld i hemmet
+-  Årets förstfödda – en kille
+-  Делегација на СДСМ му оддаде почит на Глигоров
+-  Ofertas de año nuevo en Amazon
+-  تشافي وجد بديل ألونسو في لاماسيا
+-  ستاروں کی روشنی میں آپ کا آج (منگل) کا دن کیسا رہے گا؟
+-  Норвегия разрешила прямую продажу оружия и оборонной продукции Украине
+-  Paris 2024: "Nous sommes optimistes à avoir ces épreuves de natation dans la Seine" assure Amélie Oudéa-Castéra, ministre des Sports
+-  Milan, le ultime di formazione in vista del Cagliari: tre Primavera e Luka Romero dal 1'
+-  New NC election laws take effect amid court challenges
+-  Famosos repetem look no réveillon por publicidade
+-  Pratite na SK: Gruž rasprodan, Hrvatska spremna za obranu trona
+-  Deutsche Bahn: Hiobsbotschaft im Ruhrgebiet – zwei wichtige Strecken wochenlang gesperrt
+-  Артемий Панарин стал второй звездой недели в НХЛ
+-  పడకలు, మందులు సరే.. నిర్ధారించే కిట్లెక్కడ?
+-  Sporting Goods Store Employees Fired After Chasing Alleged Gun Thief Despite Good Intentions: Report
+-  Silvia Pinal tiene cuidados especiales en casa tras salir del hospital
+-  4.1 earthquake rattles Southern California
+-  ابو عبيدة يصدر بياناً عاجلاً
+-  Amerika povukla veliki nosač aviona koji je dugo štitio Izrael
+-  La imagen del día: La orden de Fidel, luchar por nuestra Revolución
+-  Kobne posljedice novogodišnjeg slavlja: maloljetnica teško ozlijeđena od pirotehničke rakete
+-  Fave Speaks Out After Davido Performed Their Song “Kante” And Removed Her Verse
