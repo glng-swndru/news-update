@@ -1,51 +1,11 @@
 # Latest News
--  Zvijezda Cityja se oglasila nakon velikog šoka: ‘Ne znaju koju štetu čine s ovim strašnim zločinima‘
--  Đâu là emoji được dùng nhiều nhất năm 2023?
--  Nữ MC nổi tiếng Esports gặp "nghịch cảnh", lao đao do lượng follow xuống dốc
--  Live concert "sống" lại: Nghệ sĩ dám chơi lớn, khán giả dám chịu chi
--  Phụ nữ sau khi “thân mật” đừng vội làm 3 việc, tử cung sẽ rất biết ơn
--  Cựu nữ sinh trường Ams nhan sắc xinh chuẩn "học bá", nhận học bổng toàn phần Tiến sĩ khi mới 22 tuổi
--  Tài xế taxi dành 20 năm chụp hành khách ngồi băng ghế sau xe, bộ ảnh thu được khiến bất kỳ ai cũng trầm trồ
--  Động đất kinh hoàng ở Nhật Bản: Khoảnh khắc sóng thần ập vào bờ biển gây hoảng sợ
--  Mang thai lần 4, nhan sắc Miranda Kerr vẫn gây bão xứ Hàn chỉ qua 5 giây khoe bụng bầu
--  Thùy Tiên khoe visual đỉnh, Hà Hồ phát "cẩu lương" và 1 diễn viên bất ngờ tổ chức lễ ăn hỏi ngày đầu năm 2024
--  Учени създадоха почва, в която растенията растат по-бързо
--  Milieuactivist Paul Kingsnorth gruwt van avondmaal vieren op A12. 'Hernieuwd besef van heilige nodig'
--  Giants tackle Tyre Phillips tears quad, headed for surgery
--  Zavargások törtek ki a berlini utcákon, 390 embert vettek őrizetbe a szilveszteri erőszak miatt
--  Egy magyar-izraeli állampolgárt is meggyilkoltak a Hamász terroristái az október 7-i támadás alatt
--  Yunus'lu Leicester, evinde farklı kazandı
--  Detienen en aeropuerto iraquí a un venezolano que transportaba droga en el estómago
--  İsrail'de aşırı sağcı bakanlardan Gazze işgaline "gönüllü göç" kılıfı
--  DEČJA PISMA STARA PREKO 100 GODINA TERA SUZE NA OČI Pogledajte šta su 1905. godine brat i sestra tražili od Deda Mraza
--  Vidéo réelle ou intelligence artificielle? : L’équation des internautes sur la sortie de Karim Wade
--  PUTINA SU PROGLASILI MRTVIM BAR 18 PUTA Neki sumnjaju da iza ovih priča stoji upravo - Kremlj
--  Japonya'da Meydana Gelen Depreme Bir Tapınakta Yakalanan Japonlar Felaketin Eşiğinden Döndü
--  উচ্চশিক্ষায় বিদেশযাত্রা, আশীর্বাদ নাকি অভিশাপ?
--  Miles de dosis de vacunas contra enfermedades infantiles llegan a la Franja de Gaza
--  Gobierno extiende Plan Borrón y Cuenta Nueva hasta el 31 de enero
--  Unos 30 menores resultaron quemados por pólvora y líquidos calientes en el 2023
--  Baldur’s Gate 3 player finds clever use for Sussur Blooms
--  Israels nya taktik i Gaza
--  Falcao, Trejo y Dimitrievski, libres para negociar su futuro
--  Taylor Swift & Travis Kelce’s NYE Kiss Will Make Your Head Spin 'Round
--  Ivana Knoll otkrila gdje je rođena, mnogi u nevjerici: ‘Tvrdiš da si Hrvatica, a nisi’
--  Canarias estrena el año 2024 con la llegada de cinco barcazas con 256 migrantes
--  تعليم دمياط يعلن نتيجة مسابقة جماعة مناهضة التدخين والمخدرات النموذجية
--  Trump-Rückkehr: Militärexperte Carlo Masala sieht Europa völlig unvorbereitet
--  У Києві через російську ракетну атаку загинула колишня футболістка
--  DEVOJČICU POGODILA RAKETA U GLAVU! Užas u Hrvatskoj
--  Mejores discos del año: pulverizando la paridad
--  Mejores discos del año: pulverizando la paridad
--  تفاصيل مثيرة جداً.. هكذا ضرب جنوب لبنان "تهريب الكوكايين" إلى إسرائيل!
--  Meet the adorable babies born in Irish hospitals on New Year’s Day as first tot arrives four minutes after midnight
--  Rusija se obrušila na Ukrajinu napadom dosad neviđenih razmjera; Putin obećao vojnicima: ‘Retorika se mijenja...‘
--  Mikael och Frida Backlunds sorg – mamman dog i ALS: ”Gick jättesnabbt”
--  Ehrung für Fritz Bormann: 20 Jahre Bürgermeister in Rohrsen
--  Liverpool are ‘serious candidates’ to land Mbappe as Real Madrid may have shot themselves in foot with transfer approach
--  Sieg für Pinkelnig: Traumstart für ÖSV-Springerinnen
--  حميدتي: قوات الدعم السريع ليست بديلة للجيش السوداني ولا نسعى إلى السلطة بالقوة
--  Israel to withdraw some troops from Gaza amid new campaign planning
--  صفعة لنتنياهو.. المحكمة العليا في إسرائيل تلغي قانون المعقولية
--  İstanbul'un enflasyonu belli oldu
--  Marrocos interceptou mais de mil migrantes que pretendiam ir para Espanha
+-  Julia Roberts und ihr Danny Moder sind sich näher denn je
+-  Usain Bolt, World’s Fastest Man, Contemplates Athletics Coaching Career”
+-  Dinámica exterior y polémicas en política de España
+-  المحكمة العليا في الكيان تصفع نتنياهو
+-  حزب نتنياهو: قرار المحكمة العليا يتعارض مع إرادة الشعب
+-  الاحتلال يعترف بإصابة 5 جنود بقصف من لبنان
+-  Rusia cubre la Nochevieja ucraniana con una lluvia de drones explosivos
+-  Jon & Kate Plus 8 Season 2 Streaming: Watch & Stream Online via HBO Max
+-  Lukashenko felicita a Díaz-Canel y a Cuba por triunfo revolucionario
+-  Doctors report ‘nightmare’ surge in nasty Victorian disease across UK – here are the symptoms to look out for
