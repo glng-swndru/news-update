@@ -1,11 +1,11 @@
 # Latest News
--  '재혼' 임형준, 필라테스 강사 ♥X붕어빵 딸X북한강뷰 신혼집 '최초 공개'[동상이몽2](종합)
--  "자신을 보여줄 준비가 됐다" 이정후 향한 기대 폭발, SF 공격력에 불 붙인다
--  공연 예고했던 장범준 "예매 전부 취소하기로…죄송합니다" 무슨 일?
--  김슬기♥유현철, 결혼 계획 발표 "청약 당첨 아파트 입주→1월이나 2월쯤 생각 중" [조선의 사랑꾼](종합)
--  Brooke Burke, 52, reveals what she is doing in 2024 to 'strengthen my self-confidence' as she shows off her abs in a bikini while in Malibu
--  Tasman Highway crashed: Teenage pedestrian killed at Orielton, highway closed in both directions
--  [관악구, 착한가격업소 지원 등 물가안정 총력
--  [농협손해보험 서국동 대표이사 취임…“시장경쟁력 제고”
--  [‘2차전지株’ 대주주 양도세 완화 효과 누렸다…개미 집중매수 [투자360]
--  [한동훈, 비대위원장으로 첫 ‘텃밭’행 …TK 신년인사회 참석
+-  [신년기획-韓영화 라인업①] CJ '외계+인' 2부부터 '하얼빈'까지
+-  [신년기획-韓영화 라인업②] 롯데 '행복의 나라로''부활남'…대세 배우 가득
+-  [신년기획-韓영화 라인업③] 플러스엠 '범죄도시4''탈주'…'서울의 봄' 흥행 기운 계속
+-  [신년기획-韓영화 라인업④] 쇼박스, '시민 덕희''파묘' 업고 도약 노린다
+-  [신년기획-韓영화 라인업⑤] NEW '검은 수녀들''핸섬 가이즈'…신선한 조합 '기대'
+-  İpek Açar oğlu Ömer'i paylaştı!
+-  Aşkın Nur Yengi konserinde sürpriz!
+-  Ünlü isimden çarpıcı itiraflar!
+-  Gökhan Çıra kaza geçirdi!
+-  عاجل.. هل يعد سجل الأسرة وثيقة سفر؟.. توضيح مهم من الجوازات
