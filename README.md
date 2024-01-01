@@ -1,51 +1,51 @@
 # Latest News
--  Du lịch Hà Nội thu gần 1.500 tỷ đồng trong dịp Tết Dương lịch 2024
--  Tôn Kinh Lâm "đánh úp" tổ chức đám hỏi với cô gái lạ mặt sau 7 tháng chia tay tình cũ
--  Taylor Swift phá vỡ kỷ lục của Elvis Presley
--  Báu vật "vượt thời gian" 2.500 năm xuất hiện ở nơi cực kỳ vô lý
--  Cảnh sát xác nhận nghi phạm thứ 3 trong vụ án tống tiền Lee Sun Kyun
--  Album Dám Đam Mê Dám Rực Rỡ công bố dàn line-up quá khủng, "mở bát" Vpop 2024 đầy hoành tráng!
--  Giữa lúc bị đào lại loạt phát ngôn nhạy cảm, Hoa hậu Xuân Hạnh lên tiếng: "Đầu tiên tôi muốn gửi lời xin lỗi"
--  Mẫu đồng hồ nạm toàn kim cương, gây choáng bởi mức giá ngút trời trong lễ ăn hỏi của Quang Hải
--  Mỹ nhân trở thành “vật hiến tế” oan ức cho cả một bộ phim dở!
--  3 thứ này đặt trong nhà cần cẩn thận, nếu không đúng vị trí thì rất dễ làm hao hụt và thất thoát của cải
--  Emile Smith Rowe in Awkward Moment After Substitution in Arsenal Defeat to Fulham
--  إنذار من موجات تسونامي محتملة بعد زلزال كبير في وسط اليابان
--  سامسونج تضيف ميزة الترجمة الفورية للمكالمات إلى هواتف جالاكسي إس 24
--  فرص 2024.. وظائف شاغرة في وزارة الطاقة بدون خبرة لحملة الدبلوم والبكالوريوس
--  4 أسباب تؤدي إلى ظهور قشرة الرأس
--  4 أسباب تؤدي إلى ظهور قشرة الرأس
--  Ondergrondse container in brand in Voorthuizen
--  윤 대통령 “카르텔 타파” 이준석 “언론인들 방송하차…뜻대로 안되면 카르텔?”
--  Adana'da çıkan yangın aynı aileden üç can aldı!
--  U TOKU GODINE DODATNA POVEĆANjA PLATA I PENZIJA: Mali - U 2024. inflacija pada na tri ili 3,5%
--  PM Narendra Modi to Inaugurate BAPS Temple in Abu Dhabi
--  Van'da teröre büyük darbe! Operasyonlarda 602 şüpheli hakkında işlem yapıldı
--  Відсьогодні стартував другий етап земельної реформи: що змінилося
--  Deniz Seki: Ben hayattayken belgeselimi yapmasınlar
--  BİM aktüel 2 Ocak 2024 kataloğu... Yeni yılın ilk BİM aktüel ürünleri belli oldu!
--  2024 günlük yemek ücreti ne kadar oldu? Günlük yemek bedeli istisna tutarı Resmi Gazete!
--  İşte yeni yılın ilk bebekleri
--  सुदूरपश्चिम एमालेको आरोप- मुख्यमन्त्रीले एक वर्षमा निवास सजाउनेबाहेक अरू काम गरेनन्
--  Twist in Pregnant Teen and Boyfriend’s Deaths After Missing Induction | Latest US News Update
--  Rusija ove godine predsjedava BRIKS-om: Danas se pridružilo pet novih članica
--  "Tuấn Hải có lợi thế nhưng Hoàng Đức vẫn là cầu thủ hay nhất V-League"
--  Details of slain athlete Kiplagat as World Athletics mourns
--  Milli cimnastikçi İbrahim Çolak'ın hayali Paris Olimpiyatları'nda altın madalya kazanmak:
--  UVEK SPREMITE PREVIŠE HRANE, PA NE ZNATE ŠTA SA NjOM: Pročitajte nekoliko korisnih saveta kako da čuvate namirnice sa praznične trpeze
--  Alkolenker fuhr nach Unfall weiter
--  Джемілєв звернувся до мешканців Криму: «Цей рік буде останнім роком окупації»
--  Wild weather hits Gold Coast
--  Wild weather hits Gold Coast
--  سال 2023:بجلی اور گیس کی قیمتوں میں اضافے سےعوام پر کتنے ارب روپے کا بوجھ ڈالا گیا ؟ جان کر آپ حیران رہ جائیں
--  Nehoráznost, nebo chytrost? Bizarní montrealský gól rozdělil fanoušky
--  15 Ways to Set Life Goals You’ll Stick To This New Year
--  رئيس الدولة ونائباه يهنئون رئيس كوبا بذكرى اليوم الوطني لبلاده
--  [“명품백 대신 카지노” 中큰손은 마카오 향했다…12월 매출 전년비 433%↑
--  [[속보] 日정부 "지진 이후 원전에 이상 확인 안돼"
--  [신월성 2호기, 제6차 계획예방정비 착수
--  [“상전 모시듯 알바생 모실 바엔 차라리” ‘나홀로 사장님’ 이렇게 많을 줄
--  Japon : alerte au tsunami après une série de puissants séismes
--  Basketball: NBA: Weltmeister-Brüder Wagner verlieren mit Orlando
--  Avro 25'inci yılına girdi
--  Tek kelimeyle burçların 2024 şansları! 2024 hangi burç için ne getirecek?
+-  [FOTO] Na prepunom Trgu Vatroslava Lisinskog Osječani dočekali Novu godinu
+-  בניגוד לעולם: גיל הבדיקות הרפואיות לנהגים בארץ יועלה ל-75 שנה
+-  "Bring you home": תמיר גרינברג מקדיש שיר חדש לחטופים בעזה
+-  Dijamant Novu godinu proslavio u krugu porodice
+-  Starkes Erdbeben in Japan - Warnung vor Tsunami
+-  Kancelari Olaf Scholz viziton zonat e përmbytjeve në Gjermani
+-  Απόλλων Λεμεσού: Καλησπέρα... 2024 με ντέρμπι και ντεμπούτο Ματσίν
+-  И ПУИГ ПОЧНА ДА НАПЛАЌА ПАРКИРАЊЕ ОКОЛУ СТАДИОНОТ ВО СКОПЈЕ, ЕДЕН ЧАС Е 50 ДЕНАРИ
+-  Dalmia Bharat Stock Booms 3.5% As Brokerages Remain Bullish
+-  Tamil Nadu GST Authority Imposes Rs 13.83 Cr Tax Demand On Asian Paints
+-  Nobel laureate Muhammad Yunus faces jail in Bangladesh court ruling
+-  김천시 구성면 농가 컨테이너 화재로 전소, 인명피해 없어
+-  갈림길 선 우리 경제, '청룡의 해' 2024년 용 될까 이무기로 남을까
+-  જાપાનમાં 7.6ની તીવ્રતાનો ભૂકંપ, સમુદ્રકિનારે સુનામીની ચેતવણી
+-  Pas-de-Calais: la Lys commence à déborder à Thérouanne
+-  Başkan Kaplan, yeni yıla görevi başında girenleri unutmadı
+-  Evropa nuk është muze, ja si kontinenti po ndryshon shumë më shpejt se SHBA-ja
+-  تحضيرا للكان.. المنتخب الموريتاني يعسكر بتونس
+-  Całonocne polowanie na „szachedy” w Sylwestra
+-  Libur Kompetisi Liga 1, Pelatih Bojan Hodak Pulang ke Kroasia Bawa Jersey Persib Bandung
+-  Pesme o „srećnom raskidu“ najslušanije u 2023. godini
+-  Тревога цунами объявлена во Владивостоке
+-  Da febbraio aumenti fino a 4,49€ per alcuni clienti Fastweb rete fissa
+-  နာကျင်စရာ ၂၀၂၃ ခုနှစ်ကို ပြန်ငဲ့ကြည့်ရင်း ၂၀၂၄ ကို မျှော်ကြည့်ခြင်း
+-  Gazze'yi sadece onlar andı: İki yerde yılbaşı kutlamalarına yasak
+-  Sambung operasi Ipoh-Langkawi bergantung syarikat penerbangan
+-  THW-Hochwassereinsatz an der Aller: Bevölkerung ist dankbar
+-  ABŞ və Cənubi Koreya paytaxtları məhv olacaq – Kim Çen In açıqladı
+-  Defying Odds, Spanish Maestro Rafael Nadal Resumes Battle On Court
+-  Τροχαίο στη Λ. Ποσειδώνος: Αυτοκίνητο έπεσε πάνω σε προστατευτικές μπάρες
+-  อย่ากลัวที่จะเจ็บ เป็กกี้ ศรีธัญญา โพสต์แรกรับปีใหม่ ไม่มีงานอยู่ไม่ได้ ไม่มีผู้ชายอยู่ได้
+-  Incidentet në ndërrimin e viteve/ Autoritetet raportojnë për 2 të lënduar nga fishekzjarret
+-  Silvester nach in Frankfurt: Polizei räumt Konstablerwache nach Böller-Beschuss
+-  Indian singer B Praak stunned by Farhan Saeed cover of his song
+-  Disney'in ilk Mickey ve Minnie Mouse karakterleri kamu malı oldu
+-  İsrail ordusu: 27 Ekim'den bu yana Gazze'de 29 asker "operasyonel kazalarda" öldü
+-  Japan: Major tsunami warning issued after 7.4 magnitude quake
+-  البرهان: لا وقف للحرب إلا بانسحاب «الدعم السريع»
+-  Bilecik'te 'Tarım Orman ve İnsan' temalı fotoğraf sergisi açıldı
+-  Mưa to trái mùa làm rơi rụng hơn trăm tấn trái sầu riêng ở Tiền Giang
+-  Presidentin puhe | Sauli Niinistö pitää viimeisen uudenvuoden­puheensa
+-  Mardin'de taksi maganda kurşununa hedef oldu
+-  ПРВИ СНИМКИ ОД РАЗОРНИОТ ЗЕМЈОТРЕС ВО ЈАПОНИЈА: знамиња се веат, автомобили како на бранови (ВИДЕО)
+-  XpoSat: India launches space mission to study black holes
+-  Best of the Best 2023: McCann
+-  Bawa pulang RM90,000 selepas daratkan keli 7.5kg
+-  "بيروت عاصمة العواصم من جديد"... إليكم توقعات ميشال حايك لعام 2024
+-  حميدتي: لا نسعى للوصول للسلطة بالقوة... والحرب ستنتهي قريباً
+-  لاہور ہائیکورٹ: راولپنڈی بینچ کے اطراف سے پولیس نفری اور ناکے ہٹانے کا حکم
+-  वर्षान्त २०२३ : विश्व अर्थतन्त्र थलिएको वर्ष
