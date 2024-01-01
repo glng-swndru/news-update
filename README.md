@@ -1,11 +1,11 @@
 # Latest News
--  Több mint 200 embert vittek kórházba a túl sok alkohol miatt szilveszterkor, közülük 28-an kiskorúak voltak
--  [광주 서구을 “양부남 37.4%”…‘독주 양상’
--  هل حرب غزة...حرب دينية؟ / 2
--  النقل تعلن انجاز الرصيف رقم 2 في ميناء الفاو الكبير
--  هزات أرضية تضرب شرق تركيا وحالة من الذعر عشية ليلة رأس السنة
--  Households To Receive Free Cost Of Living Help Worth £50
--  Vučić čestitao Novu godinu: Srbija više ne čeka prilike, već ih stvara
--  Horóscopo y Predicciones de Mhoni Vidente del 1 de enero de 2024
--  דור הולך ונעלם: המשך מעקב הצעירים בליגת העל
--  כבוד ענק: אלבום ישראלי מבין 10 אלבומי הג'אז הטובים של השנה
+-  Türk Telekom CEO’su Ümit Önal: Memleketin bir şehrini değil her şehrini fiber ağlarla örüyoruz
+-  Sakarya'da ormanda yangın çıktı: Bölgeye ekipler sevk edildi
+-  דארק ולא ז'אן: הכוכב שהזמין את חבריו הקרובים ל"מסיבת מוות"
+-  ויטור עשוי לחזור להרכב הפועל באר שבע, ספר יפתח נגד חדרה
+-  24 הסדרות שאנחנו הכי מצפים להן ב-2024: אדוני האוויר, אלזבת, פולאאוט, הרוזן ממונטה קריסטו
+-  פרסום בגוגל: מדריך לעוצמת שיווק דיגיטלי
+-  World Introvert Day 2024: Date, history, significance; how to celebrate
+-  Bakan Ersoy açıkladı... Bin 500 personel alınacak
+-  Dolandırıcıya, fenomene, çeteye ‘dur'
+-  Panik çanları çalıyor... İsrail'in başı dertte!
