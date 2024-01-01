@@ -1,51 +1,11 @@
 # Latest News
--  Liverpool çıldırdı! Mohamed Salah'ın yerine Kylian Mbappe
--  Matteo Gabbia, Milan'a geri dönüyor!
--  Milan'ın yıldızı Rafael Leao, dünyanın en iyi 11'ini yaptı
--  Hull City, Sheffield Wendesday'e boyun eğdi
--  Galán asume como nuevo alcalde de Bogotá
--  Sebastian Aho valittiin NHL:n parhaaksi
--  Maailmanmestari kuoli vain 32-vuotiaana - aviomies aiheutti kuoleman?
--  КАТЕДРАЛАТА ВО КЕЛН ЌЕ ОСТАНЕ ПОД СИЛНО ОБЕЗБЕДУВАЊЕ ПО ТРЕВОГАТА ЗА ТЕРОРИСТИЧКИ НАПАД
--  إجراء جديد قبل معسكر منتخب مصر استعدادا لأمم أفريقيا 2023 (صور)
--  خالد بيومي منتقدا اختيارات فيتوريا: "لا يوجد عدل وهناك مجاملة لبعض اللاعبين"
--  إعلام عبري: الجيش ينسحب من بعض مناطق غزة وسيتم تسريح قوات إضافية
--  تعادل مثير بين المصري والإسماعيلي في الدوري
--  بالفيديو| مشاهد من استهداف قوة إسرائيلية متحصنة بمبنى وسط جباليا بغزة
--  صلاح يقود هجوم ليفربول لمواجهة نيوكاسل في الدوري الإنجليزي
--  أبو عبيدة: تمكن مجاهدونا في الـ4 أيام الماضية من تدمير 71 آلية إسرائيلية بغزة
--  В ДНР сообщили о гибели 9 152 мирных жителей с 2014 года из-за обстрелов ВСУ
--  12 కిలోల గంజాయి స్వాధీనం
--  Šibenčani nastavljaju s lijepom tradicijom: lampioni dobrih želja s Poljane se vinuli u nebo
--  హామీల అమల్లో 85 శాతం ఫెయిల్‌
--  ‘Bachelor’ alum Hannah Ann Sluss celebrates first Ravens game after Jake Funk signing
--  El presidente Maduro reiteró disposición al diálogo con la oposición y EEUU
--  "NE VOLIM EUFORIJU, POSLE TOGA MORAŠ DA DOŽIVIŠ PAD" Nataša Bekvalac iznenadila priznanjem, pa se dotakla detinjstva: "10 godina smo imale ISTU JELKU I UKRASE"
--  Fulham trigger Tom Cairney contract extension as captain's future secured through to 2025
--  وفاة المناضل الحقوقي خميس الشماري
--  Кадыров сообщил о появлении в Чечне нового города
--  అంగన్వాడీల నిరసన హోరు
--  Larsa Pippen, Marcus Jordan packed on the PDA into wee hours for his birthday
--  Uppdaterad "Carmen" med fokus på våld i hemmet
--  Årets förstfödda – en kille
--  Делегација на СДСМ му оддаде почит на Глигоров
--  Ofertas de año nuevo en Amazon
--  تشافي وجد بديل ألونسو في لاماسيا
--  ستاروں کی روشنی میں آپ کا آج (منگل) کا دن کیسا رہے گا؟
--  Норвегия разрешила прямую продажу оружия и оборонной продукции Украине
--  Paris 2024: "Nous sommes optimistes à avoir ces épreuves de natation dans la Seine" assure Amélie Oudéa-Castéra, ministre des Sports
--  Milan, le ultime di formazione in vista del Cagliari: tre Primavera e Luka Romero dal 1'
--  New NC election laws take effect amid court challenges
--  Famosos repetem look no réveillon por publicidade
--  Pratite na SK: Gruž rasprodan, Hrvatska spremna za obranu trona
--  Deutsche Bahn: Hiobsbotschaft im Ruhrgebiet – zwei wichtige Strecken wochenlang gesperrt
--  Артемий Панарин стал второй звездой недели в НХЛ
--  పడకలు, మందులు సరే.. నిర్ధారించే కిట్లెక్కడ?
--  Sporting Goods Store Employees Fired After Chasing Alleged Gun Thief Despite Good Intentions: Report
--  Silvia Pinal tiene cuidados especiales en casa tras salir del hospital
--  4.1 earthquake rattles Southern California
--  ابو عبيدة يصدر بياناً عاجلاً
--  Amerika povukla veliki nosač aviona koji je dugo štitio Izrael
--  La imagen del día: La orden de Fidel, luchar por nuestra Revolución
--  Kobne posljedice novogodišnjeg slavlja: maloljetnica teško ozlijeđena od pirotehničke rakete
--  Fave Speaks Out After Davido Performed Their Song “Kante” And Removed Her Verse
+-  الرابطة المحترفة الاولى موبيليس : تأجيل مباراة مولودية البيض- شباب بلوزداد الى موعد لاحق
+-  الرئيس تبون يريد جعل المواطن مصدرا للقرار الفاعل
+-  التاريخ الناصع يؤسس للمستقبل المشرق..
+-  الذاكرة الوطنية.. الأساس المتين للجزائر الجديدة
+-  ضمان وفرة المنتجات ذات الاستهلاك الواسع خلال رمضان
+-  النواب عازمون على مرافقة مسعى الرئيس في بناء جزائر جديدة
+-  الحفاظ على القدرة الشرائية للمواطن ودعم الاستثمار
+-  التطرّق إلى العلاقات الثنائية والزيارة المرتقبة للرئيس تبون إلى فرنسا
+-  العام الجديد سيكون مليئا بالإنجازات
+-  2024.. الرقي بالجزائر إلى مقامات أكبر
