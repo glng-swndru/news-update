@@ -1,11 +1,51 @@
 # Latest News
--  Əmanətlərə iki halda vergi güzəşti tətbiq olunacaq
--  Gecə klubu İvleevanı məhkəməyə verir
--  Drukke nieuwjaarsnacht in Ziekenhuis Gelderse Vallei
--  One shot and killed after argument at New Year's party in Capelle aan den IJssel
--  „Chcą przejąć potencjał PiS-owskiego TVP”. Apel o natychmiastowe zerwanie działań
--  „Chcą przejąć potencjał PiS-owskiego TVP”. Apel o natychmiastowe zerwanie działań
--  الدفاع المدني: أخمدنا أكثر من (24) ألف حادث حريق وأنقذنا نحو (411) مليار دينار عراقي خلال العام 2023
--  مركز الامام الحسين (عليه السلام) للمخطوطات: استخدام مواد وتقنيات حديثة في الترميم والصيانة
--  الداخلية تفصح عن خطتها الخاصة لعام 2024 بمكافحة المخدرات
--  من الفضلات البشرية.. شركة بريطانية تصنع وقود للطائرات
+-  Das ZDF beklagt höhere Kosten durch Programmänderungen
+-  Justiz: Über 2.500 Laienrichter beginnen ihre Amtszeit bei den Gerichten
+-  [2024 보안 전망 ⑤] 심리·습관 교묘하게 이용하는 피싱
+-  Ištyrė, kaip rytais pakinta kraujospūdis: gavo netikėtą rezultatą
+-  Netikėtas posūkis. „Rusai su tankais veržiasi į savo pozicijas.“ Kas nutiko (Video)
+-  [ŽT] Oro bazės įjungtos specialiu režimu. Gali būti košmaras sausio 1-2 d.
+-  [ŽT] Naujas pasaulio rekordas. „Su slidėmis įveikė Antarktidą“ (Video)
+-  سقوط رئيس مجلس إدارة إحدى المطاعم هارب من 186 سنة سجنًا بالقاهرة
+-  حقيقة عودة شهادة التعليم المفتوح للشكل الأكاديمي خلال 2024
+-  "العائد ١٢ مليار جنيه".. ميدو يطالب بخطوة غير مسبوقة في الدوري المصري
+-  ضبط شخص لاتهامه بالاتجار في العملات الرقمية بالدقهلية
+-  ننتظر فتح القيد.. فيوتشر يكشف تطورات انتقال لاعبه للزمالك
+-  جامعة الدلتا التكنولوجية تبحث سُبل التعاون المُشترك مع وفد صيني
+-  تباطؤ عجز صافي الأصول الأجنبية للبنوك بقيمة 170 مليون دولار في نوفمبر
+-  Niners Chemnitz live: Frust nach Niederlage im Spitzenspiel
+-  Vis, olie en handel: wordt de oorlog van 2024 uitgevochten op de Zuid-Chinese Zee?
+-  Von Trump bis Putin steht die EU im Jahr 2024 vor Prüfungen – DW – 01.01.2024
+-  TCS has to keep evolving as GenAI technology rises: CEO tells employees
+-  'Unfortunately...' - Dele Alli shares 'frustrating' injury update in new Everton message
+-  Quang Hải đón dâu bằng dàn siêu xe chục tỷ, có hành động ga lăng đến "tan chảy" với Chu Thanh Huyền
+-  Mbongeni Ngema granted special official funeral
+-  South Korea’s eastern province tells residents to evacuate after massive Japan quake
+-  कमाल की है ये मोहब्बत की चटनी,कैंसर और ह्रदयरोग के लिए फायदेमंद.
+-  DLNRG B500 Power Station: μπαταρία 520Wh για διακοπές, ΜΟΛΙΣ 174€!
+-  Žena u podrumu 200 godina stare kuće pronašla zastrašujuću prostoriju: Pogledajte što su zatekli unutra
+-  Sector de cuidado personal lucirá su mejor “rostro” en verano: los nuevos lanzamientos
+-  Првото родено бебе во Охрид е машко
+-  NAŽIVO Japonsko zasiahlo silné zemetrasenie: VIDEO Hrozí aj cunami, meteorológovia vydali varovanie
+-  বরিশাল-৫ আসনে স্বতন্ত্র প্রার্থীর ১৯ দফা ইশতেহার ঘোষণা
+-  Kriminalität: 15-Jähriger soll seine Freundin gewürgt haben: Zustand unverändert
+-  Die Müllabfuhr in Spring Valley findet am 2. Januar statt – Shaw Local
+-  Soccerladuma | Al Ahly Star Linked With Surprise January Exit
+-  Soccerladuma | Broos Leaves 56 Goals, 17 Clean Sheets Behind
+-  Артета: Това беше най-слабият ни мач през сезона
+-  日쓰나미 경보 여파… 동해안 지질 해일 우려에 ‘전전긍긍’
+-  Shillong Teer Result TODAY 01.01.2024 (OUT) First And Second Round Lottery Result
+-  Radulović za "Dan": Liјečenje matičnim ćeliјama u Kliničkom početkom ove godine
+-  Mersin'de kaçak kazı yaparken yakalandı, evinde tarihi eserler çıktı
+-  Yeni yıla Kartalkaya'da giren tatilciler, 2024'ün ilk gününü kayak keyfiyle geçirdi
+-  خلال احتفالات رأس السنة.. الشرطة الفرنسية تعتقل أكثر من 200 شخص في باريس
+-  زلزال اليابان يحرم أكثر من 36 ألف منزل من الكهرباء.. شدته 7.4 ريختر
+-  Mağaza indirimi izdihama neden oldu
+-  Notfälle: Starkes Erdbeben in Japan – Warnung vor Tsunami
+-  Klee glänzt mit Rang 7 – Amundsen siegt solo
+-  Nova godina, stare navike: Novak izbrojao do 406 – pad Đerea na startu
+-  Nedović: Sadašnja Zvezda i ona sa početka moje karijere nisu uporedive
+-  Prve bebe u Nišu i Leskovcu u 2024. godini su dečaci
+-  De Hea razmišljao o penziji?
+-  Ghaziabad Shocker: गाझियाबादमधील कौशांबी मेट्रो स्टेशनच्या फलाटावरून उडी मारल्याने तरुणाचा मृत्यू; पत्नीची हत्या करून झाला होता फरार
+-  אחרי שישה שבועות: הלוחם שנפצע בעזה שוחרר משיקום
