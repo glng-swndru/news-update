@@ -1,11 +1,51 @@
 # Latest News
--  المركزي الإسرائيلي: تكاليف حرب غزة تتخطى الـ 58 مليار دولار
--  غزة: خروج مستشفى خاص بمرض السرطان عن الخدمة
--  مقتل 15 جنديا صهيونيا بعملية للقسام في غزة
--  Manisa'da cinayet! Av tüfeğiyle vurulan çiftçi hayatını kaybetti
--  Aaron Jones punched in face during postgame brawl after Packers’ win over Vikings
--  העוקץ בביטוח לאומי נחשף: מי משקר שנכח במסיבת נובה?
--  ויז'ואל חתמה על הסכם להפצת פתרונות האחסון של טושיבה בישראל
--  סיכום המסחר בבורסה: עליות חדות במדדים בעקבות הורדת הריבית
--  רשות המסים: הוארך מתווה הפיצויים לעסקים בכל הארץ
--  Wohnen in Tokio: Die Schönheit der Welt auf 19 Quadratmetern
+-  Entinen ManU-pelaaja antoi tylyt rukkaset Lionel Messille
+-  Vasta 16-vuotias ihmeteini takoo käsittämätöntä jälkeä MM-kisoissa
+-  First Lady Welcomes First Baby Of Year 2024 At National Hospital, Abuja
+-  El mensaje oculto de Rocky para la era Milei
+-  Fan Notes from the Patriots’ loss to the Bills
+-  Ev sahibini döyüb əl-ayağını bağladılar – 20 min dollar pul və… VİDEO/FOTO
+-  Handwerk: Gevelsberger Lutz Kornowski im Finale als Mister Handwerk
+-  بانی پی ٹی آئی کو نہ نکالا جاتا تو ملک دیوالیہ ہوجاتا، حمزہ شہباز
+-  87 detenidos durante el último día de 2023
+-  DNA Exclusive: Will INDIA Bloc Parties, Congress Agree To Seat Sharing?
+-  Israël: la Cour suprême invalide une disposition majeure de la réforme judiciaire de Netanyahu
+-  Pas-de-Calais: le maire de Hames-Boucres décrit l'inquiétude des habitants face aux crues à répétition
+-  Blake Shelton, Gwen Stefani, Pierce Brosnan plan to make big life change in 2024
+-  Afectó severamente a Taylor Swift pleito con Kanye West
+-  Cumple Cereso un año de la ‘gran fuga’
+-  Pide Xóchitl a AMLO que deje de mentir en seguridad
+-  Israel: Gericht kippt Kernelement von Justizreform
+-  Israel: Gericht kippt Kernelement von Justizreform
+-  Israel: Gericht kippt Kernelement von Justizreform
+-  Schmale Lippen: So sah Djamila Rowe vor ihren Beauty-OPs aus
+-  Neujahrstreffen in Wachendorf und Osterholz
+-  Frontenaud | L’actu 2023 en dessins. Après avoir travaillé sur les fusées, il lance son entreprise à Frontenaud
+-  Cove Rangers confirm departure of defender Rio Davidson-Phipps
+-  Mesajul dureros al fotbalistului de 117.000.000 euro după ce hoții i-au spart casa, iar familia sa a fost în pericol
+-  CYBERGUN : Document AMF CP. 2023DD944135
+-  L'Oreal : Document AMF CP. 2023DD944134
+-  Teenager Luke Littler targets title after turning into youngest ever World Darts Championship semi-finalist
+-  البطولة العربية لكرة السلة: المنتخب التونسي يفوز على نظيره الصومالي 95-74 و يتاهل الى نصف النهائي
+-  Valerio Therapeutics : Document AMF CP. 2023DD944119
+-  Sensorion : Document AMF CP. 2023DD944120
+-  Quiz de l'année. Avez-vous bien suivi l'actualité de Bollène en 2023 ?
+-  Penemuan Bayi Ketika Pergantian Tahun Bikin Heboh Warga Blitar
+-  Iščejo tatova denarja iz avtomobila na Ajdovskem
+-  LRT trumpai. Nuo sausio – nauji reikalavimai paspirtukų vairuotojams: kas keičiasi?
+-  Escape Academy Ücretsiz Oldu
+-  Justiz: Israel: Gericht kippt Kernelement von Justizreform
+-  Justiz: Israel: Gericht kippt Kernelement von Justizreform
+-  Justiz: Israel: Gericht kippt Kernelement von Justizreform
+-  „Ich wollte und konnte nicht mehr“ - In intimem Brief erklärt Youtube-Star Bibi Claßen den Fans ihre Pause
+-  БАГАЦ объявил об отмене "Закона о принципе крайней неприемлемости"
+-  Se activa contingencia ambiental regional en CDMX y Edomex por quema de pirotecnia: estas son las alcaldías y municipios afectados
+-  Γράφουν για Φετφατζίδη: Αν φύγει από το ΑΠΟΕΛ επιστρέφει Θεσσαλονίκη…
+-  López Obrador desea felicidad y que les vaya “bien a todos” los mexicanos en el 2024
+-  Cătălin Cîrjan a dat un indiciu în legătură cu viitorul său! Rămâne la Rapid sau se întoarce la Arsenal?
+-  Acertijo visual: poné a prueba tu inteligencia y ayudá al pastor a cruzar el río sin que el lobo se coma a las ovejas
+-  عاجل.. بعد دوران الأغنام والبط وتجمد الدجاج.. ماذا يعني تجمع الغربان قبل وقوع زلزال اليابان؟
+-  PGA Tour feel immediate effect of Jon Rahm's LIV Golf switch ahead 2024 season opener
+-  وزارة الخارجية تقيم حفل توديع لرئيسة بعثة اليوبام بمناسبة انتهاء عملها في ليبيا .
+-  Pía, la primera beba nacida en 2024 en la Nueva Maternidad de Córdoba
+-  Πόλεμος στο Ισραήλ: Ο ισραηλινός στρατός διευρύνει τις επιθέσεις του στη νότια Γάζα, λένε οι IDF
