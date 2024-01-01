@@ -1,11 +1,51 @@
 # Latest News
--  الاحتلال يعتقل فلسطينيين غرب نابلس
--  "복조리 사려" 홍천지역 청소년 새해맞이 행사 눈길
--  철원 늘처음처럼 시각장애인 성금 기탁
--  국제무도연맹 블랙벨트센터 인제사랑기부금
--  송병훈 춘천 박사마을 백운회장 표창
--  횡성 제야의 종 타종행사
--  화성시강원특별자치도민회 제9·10대 회장 이·취임식
--  이준석 “패거리 카르텔, 뜻대로 안 되면 괴롭혀...세대 교체해야"
--  Danimarka Kraliçası taxtdan imtina edir
--  Cinq motifs d’espoir en 2024
+-  경북도. 2024년 난임부부 시술비 전폭 지원
+-  Japonya'da 7.4 büyüklüğünde deprem meydana geldi: Tsunami alarmı verildi
+-  Sivasspor'da Bülent Uygun dönemi
+-  Ersin Çelik'ten Gazze yürüyüşünde önemli mesajlar: Şehitlerimizin acısıyla Filistin'den de vazgeçmeyeceğiz terörle mücadeleden de
+-  בנק לאומי נגד הפועלים: מי יפשל בתחזית הריבית?
+-  דרעי יצליח לדחות פרסום החלטת בג"ץ? זה החוק אותו יחוקק
+-  רייטינג: הפטריוטים הביכו את רביב דרוקר, הכוכב הבא מדשדשת
+-  מגישת הטלוויזיה באמירה הזויה בשידור: "תוכל לחלוב לי את הפטמות?"
+-  אורנה בנאי סופגת איומים על חייה: "מאחלים לי דום לב"
+-  طقس : استقرار في العوامل الجوية هذا اليوم على أغلب مناطق البلاد .
+-  السفير الألماني : أتمنى أن يكون 2024 عامًا مليئًا بالتقدم والازدهار للشعب الليبي .
+-  كوريا الجنوبية تعلن أنها ستسكمل نظام الردع الموسع المعزز مع الولايات المتحدة خلال العام الجاري
+-  Yeni yılın ilk saatlerinde Rusya'dan Ukrayna'ya İHA saldırısı
+-  Galatasaray'da yaprak dökümü yaşanacak!
+-  "XPoSat" uydusu fırlatıldı
+-  دوزداغ: منتجع صحي يختبئ في أعماق منجم للملح بطرف آسيا
+-  Hoe goede voornemens negatief zijn voor je zelfbeeld, maar je ook dichter bij God kunnen brengen
+-  De Bijbel in een jaar lezen als goed voornemen? 'Je ontdekt elke keer weer iets nieuws'
+-  नव्या वर्षाचे स्वागत सुरु असतानाच जपान शक्तीशाली भूकंपाने हादरला; पश्चिम समुद्र किनाऱ्यावर त्सुनामी
+-  Günlük elektrik üretim ve tüketim verilerini TEİAŞ duyurdu
+-  Życzenia na Nowy Rok 2024. Kartki noworoczne 2024 z życzeniami - SMS, krótkie, śmieszne, oryginalne 1.01.2024
+-  Quetta Customs Seizes 33 Smuggled Vehicles Worth 84.6 Million Rupees
+-  Юксалишлар йили бўлади
+-  Dode bij schietpartij in Capelle
+-  Brandweer blust Culemborgs vreugdevuur met assistentie van politie
+-  Van'da yılın ilk bebeği 'Arya Mina' oldu
+-  Görevi başındaki güvenlik güçleri ve sağlık personellerine yeni yıl ziyareti
+-  Yaşlı Meclisi Anıtkabir'de
+-  Ukraine, Russia accuse each other of New Year's attacks
+-  De la restaurante sofisticate, la cluburi și petreceri în Centrul Vechi: Cum s-au distrat bucureștenii în noaptea de Revelion
+-  Zemetrasenie ničilo domy v Dolnej Krupej, Biely Kostol sa pripojil k Trnave
+-  Групата БРИКС вече наброява десет страни
+-  Polska pokonała Hiszpanię w United Cup i awansowała do ćwierćfinału!
+-  Le capitaine Ibrahim Traoré appelle les Burkinabè à cultiver l’amour entre eux
+-  مجرم کون؟
+-  Rakul Preet Marriage : காதலனை கரம் பிடிக்கும் ரகுல்... கல்யாண தேதி எப்போது தெரியுமா?
+-  [오세훈 "어울림의 가치 기억…동행으로 행복한 서울시 만들 것"
+-  ["시진핑 공포 정치에 공산당 무력화…경제에 악재"
+-  दिल्ली-NCR में साल के पहले दिन कोहरे और प्रदूषण की मार, देरी से चल रहीं 21 ट्रेनें
+-  دم تو ڑتی امید اور مہنگائی
+-  신원식, 새해 청룡부대 방문…'북 상시 도발 가능' 강조
+-  ১২ লাখ নকল সিগারেটসহ এক ব্যক্তিকে আটক
+-  ‘পিএসএল মিনি আইপিএলের মতো’
+-  Cà phê bệt, đường sách... những địa chỉ người Sài Gòn dạo chơi ngày đầu năm 2024
+-  Nicosia International Festival opens for 2024
+-  Viti i Ri troket në Shqipëri, si u prit në rrethe?
+-  Mikko Rantanen teki sen – historiallinen temppu NHL:ssä
+-  بھارت انسانی حقوق کی پامالیوں میں مصروف
+-  [속보] 日, 새해 첫날 규모 7.6 지진…북부 연안 쓰나미 경보
+-  Sports Calendar 2024: కోటీ ఆశలతో కొత్త ఏడాదిలోకి అథ్లెట్లు, ప్రతిష్టాత్మక ఒలింపిక్స్‌ ఈ ఏడాదే
