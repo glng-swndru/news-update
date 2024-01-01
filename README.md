@@ -1,51 +1,11 @@
 # Latest News
--  Nyt se viimein tapahtuu? Entinen Huuhkajat-luotsi on viimein astumassa syrjään
--  سيف تقا أفضل لاعب فى مباراة الاتحاد والداخلية
--  Das wünschen sich Menschen in Main-Spessart und Main-Tauber für 2024
--  Das wünschen sich Menschen in Main-Tauber und Main-Spessart für 2024
--  Polis åtalas för fusk i självscanningen på Ica
--  Fenerbahçe'de Becao’nun dönüş maçı netleşti
--  Veće plaće, napojnice preko kartice, viša dobna granica za umirovljenje žena: Što nam je donijela 2024. godina?
--  بالفيديو.. 2024 .. آمال عديدة وتفاؤل بواقع أجمل
--  رقم سلبي لـ صلاح بعد إهداره ركلة جزاء أمام نيوكاسل
--  Taksim'de yılın ilk ticari taksi denetimi yapıldı: 5 sürücüye 32 bin TL ceza
--  Son dakika: Çılgın Sayısal Loto çekilişi sonuçları belli oldu! 1 Ocak 2024 Sayısal Loto bilet sonucu sorgulama ekranı!
--  Aydın’da 73 yıllık stadın yıkımı başlıyor
--  Son dakika haberi: Hakkari'de korkutan deprem
--  Güney Amerika ülkeleri ve ABD yeni yıla havai fişek gösterileriyle girdi
--  Глава минэнерго Дагестана поздравил семьи участников СВО
--  Разочарование за Ливърпул - Салах изпусна от бялата точка (видео)
--  סתיו קצין נפרדת: "הכאב והבכי הפכו לשגרה, סיוט מתמשך"
--  A crash on a New York City parkway leaves 5 dead
--  Dezenformasyon Bülteni'nin 106. sayısını yayımlandı: Sosyal medyada yayılan yalanlar tek tek çürütüldü
--  Hakkari'de deprem: AFAD ilk detayları duyurdu
--  İYİ Parti'de istifa depremi: 11 kişi AK Parti'ye geçti
--  Hoop Hogs' Menifield named SEC Player of the Week after career-high 32-point outing sends Arkansas to 16-point win on Saturday
--  أمير القصيم: انخفاض نسبة البطالة بالمنطقة إلى 5.1%
--  Зимний учет диких животных стартовал в Нижегородской области
--  Los presidentes del PP hacen frente contra Sánchez en su mensaje de fin de año
--  Rivers: Fubara visits Akpajo health centre, pledges better services
--  Los presidentes del PP hacen frente contra Sánchez en su mensaje de fin de año
--  نئے قانون کے خلاف بس اور ٹرک ڈرائیوں کا چکاّ جام
--  Acun Ilıcalı geleneği bozmadı! Survivor adasına lüks aracıyla giriş yaptı
--  Rekordan broj napada jevrejskih naseljenika na Palestince u 2023.
--  Sunčev vjetar (video)
--  Otti’s wife welcomes first baby of 2024 in Abia
--  Real España se pronuncia respecto a Alexander López
--  Ondo: I never paid Akeredolu’s wife, son to be Commissioner – Rasaq Obe
--  Ölməz qəhrəmanımızın doğum günüdür
--  Na dočeku u Sarajevu specijalni gost drug Tito: Od svih republika, tu sam se najviše zabavljao VIDEO
--  Syukuri 40 tahun perasmian Masjid Kg Sg Besar
--  경남 함양울산고속도로서 4중 추돌…4명 사상
--  مساجد کی تعمیر بہترین صدقہ جاریہ ہے
--  Mujer atenta contra su vida en la colonia Xoclán de Mérida
--  Отмениха гол на Ливърпул заради засада (видео)
--  Fenerbahçe’de Krunic ısrarı! Limit belirlendi
--  Gombe: Yahaya grants clemency to 39 prison inmates
--  ONPE: Diez partidos políticos podrán difundir desde enero sus propuestas y planteamientos
--  Ова не се случило во Јапонија од 2011 година: Тогаш избувна катастрофа што предизвика топење на нуклеарни реактори
--  Čilić se konačno vraća tenisu
--  Oboren rekord: Jevrejski naseljenici nikad više napadali Palestince
--  Hakkari Yüksekova'da deprem!
--  RCB anjur Majlis Persahabatan sempena Tahun Baharu
--  Russian drones hit sites linked to Ukraine nationalists
+-  Naisten "NHL" käynnistyi - kanadalainen teki historiaa
+-  Az izraeli legfelsőbb bíróság megsemmisítette a felháborodást keltő Netanjahu-féle igazságügyi reform egyik elemét
+-  Kate Hudson wows fans with totally unexpected talent - see video here
+-  Funding slashed for loss-making Scottish National Investment Bank as part of widespread cuts
+-  Labour Party faults Tinubu’s New Year message to Nigerians
+-  Luke Littler now FAVOURITE to win World Darts Championship after Michael van Gerwen dumped out in worst loss in 13 year
+-  لهذه العوامل حققت أسعار الذهب عالمياً مكاسب سنوية قوية في 2023
+-  استشهاد أسير فلسطيني في سجن مجدو
+-  مصدر حوثي ينفي وقوع اشتباكات مع سفينة حربية أميركية
+-  Shumë punëtorë në vend punojnë jashtë orarit dhe nuk u regjistrohen orët
