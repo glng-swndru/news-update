@@ -1,11 +1,11 @@
 # Latest News
--  বছর শেষে নিট রিজার্ভ ১৭.৭ বিলিয়ন ডলার, আইএমএফ এর লক্ষ্যমাত্রা অর্জন
--  Wellinger bei Neujahrsspringen zur Halbzeit Vierter
--  Tennis-Duo Kerber/Zverev verliert gegen Frankreich
--  Fugitive US mother, 35, who fled to the UK 'after killing her two children' was found hiding in London hotel after going on the run because 'she knew exactly what was going to happen', court hears as she fights extradition
--  Terroralarm in Köln: Weiterer Verdächtiger festgesetzt
--  Want to live until you're 100? Three respected anti-ageing researchers reveal exactly what THEY do to avoid an early grave...
--  الموت يفجع الفنانة لطيفة
--  An 2024:Jean Romain Fanguinoyeny souhaite une année pleine d’espoirs
--  Gaza | Israel: „Die Ziele des Krieges erfordern einen längeren Kampf“
--  Chloe Madeley sheds light on her dating future and admits she wants MORE children after James Haskell split... before vowing to improve herself in sizzling New Year's selfie
+-  Sigue madre de Jocelyn buscando a su hija
+-  Amagan Xi, Putin, Netanyahu y Kim con más guerra en '24
+-  مدفوعات فوائد الديون بالموازنة في 5 أشهر تفوق قيمتها بعام 2021-2022 كله
+-  بعد مسار نزولي 9 سنوات.. المالية تتوقع ارتفاع عجز الموازنة إلى 7.5%
+-  إرتفاع حصيلة الشهداء في غزة إلى 21978
+-  Silvester: Polizei in Hamburg zieht positives Fazit | NDR.de – Nachrichten
+-  How an ex-police officer made $12 million in 3 years after buying ATMs for $2,100 and operating them as a side hustle
+-  Két személygépkocsi ütközött Kétyen, egy férfi a helyszínen meghalt
+-  Stramaccioni su Bennacer: «La sua partenza è una perdita grave per il Milan»
+-  Cheadle ‘murder’: Tributes to pensioner, 91, found dead alongside second woman as cops arrest man, 68, on murder
