@@ -1,11 +1,11 @@
 # Latest News
--  השחקן איאן זירינג ("בוורלי הילס 90210") הוכה באכזריות על ידי אופנוענים בכביש
--  लोअर इर्खुवा हाइड्रोको साधारण सभा पुस २७ मा,आईपीओ निष्कासन गर्ने प्रस्ताव
--  Årets første dag er kampdag!
--  टेस्ट राष्ट्र अफगानिस्तानलाई यूएईले ११ रनले हरायो, टी-२० सिरिजमा १-१ को बराबरी
--  Araç sahipleri dikkat! 2024 yılı Motorlu Taşıtlar Vergisi (MTV) belli oldu! Hangi araç kaç TL MTV ödeyecek?
--  Bugünden itibaren hepsi zamlı! İşte 2024 yılı zamlı vergileri, trafik cezaları, cep telefonu pasaport harçları...
--  عاجل.. إيداع الضمان الاجتماعي لشهر يناير اليوم
--  "شؤون الأسرة" يوضح كيفية دعم الصحة النفسية لليافعين
--  박인비·김연경·손아섭·이청용… 새해 빛날 용띠 스타들
--  Moti për datën 1 janar, viti nis me vranësira dhe reshje
+-  الاحتلال يعتقل فلسطينيين غرب نابلس
+-  "복조리 사려" 홍천지역 청소년 새해맞이 행사 눈길
+-  철원 늘처음처럼 시각장애인 성금 기탁
+-  국제무도연맹 블랙벨트센터 인제사랑기부금
+-  송병훈 춘천 박사마을 백운회장 표창
+-  횡성 제야의 종 타종행사
+-  화성시강원특별자치도민회 제9·10대 회장 이·취임식
+-  이준석 “패거리 카르텔, 뜻대로 안 되면 괴롭혀...세대 교체해야"
+-  Danimarka Kraliçası taxtdan imtina edir
+-  Cinq motifs d’espoir en 2024
