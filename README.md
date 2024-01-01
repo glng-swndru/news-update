@@ -1,51 +1,51 @@
 # Latest News
--  Tweejarig kind zwaargewond door balkonbrand in Den Bosch
--  Twee aanhoudingen in Delft na mogelijk schietincident
--  글로벌 아이웨어 브랜드 프로젝트 프로덕트, 2024년 메인 선글라스 컬렉션 런칭
--  카카오T, 해외 이용 급증…여행 수요 회복 입증
--  2023'te yaraları sanatla sardık
--  2023’e veda 2024’e merhaba
--  Şehit diplomatın katili öldürüldü
--  Fiyat listesi askıya çıktı
--  New Year Fitness Resolution 2024 : జనవరి 1 అని జిమ్​ ఫీజ్ కడుతున్నారా? హెల్తీగా ఉండేందుకు జిమ్​కే వెళ్లాలా ఏంటి?
--  CGV, 2024년 반가워'용' 캠페인 진행 "희망찬 새해 맞이하길"
--  ESPN BET Promo Code for College Football Playoff: Get $250 Semifinal Bonus
--  [MD인터뷰] 진종오 강원2024 조직위원장 "대회 준비 마무리 단계...청소년들 성장 디딤돌 되길"
--  '김슬기♥' 유현철, 예비장인 앞 만취…취중진담에 '위기일발' [조선의 사랑꾼]
--  2024년 ‘데드풀3’가 온다, 테일러 스위프트 출연 소식에 기대감↑[해외이슈]
--  不愛讀書跟外省老伯學模具，寫下「散熱股股王」奇蹟！高中肄業台灣黑手，如何讓 AI 巨頭少不了他？
--  PRVE FOTOGRAFIJE MASOVNE TUČE U NIŠU "Blic" saznaje: Dvojica mladića tukla jednog u haustoru: Policija zatekla polomljene flaše (FOTO/VIDEO)
--  OPRAVDALI UGLED SRPSKOG VOJNIKA, OCENJENI NAJVIŠIM OCENAMA: Redovna zamena kontingenta Vojske Srbije u Libanu
--  Божинов: Новата година ще е като старата, ама е нова
--  Khi anh tôi xuất hiện ở cửa, cả nhà vỡ òa vì cảm giác sum họp trong Tết này
--  Jarrod Gilbert: How American bikers influenced NZ street gangs
--  Mercato - PSG : Recalé par ces cracks, Paris tient sa revanche
--  [[신년사]조용익 부천시장, “‘원행이중(遠行以衆)’ 실천으로 부천의 미래 펼치겠다”
--  [작년 수출 7.4%↓, 3년만에 마이너스…무역적자 99.7억달러
--  [한동훈, “동료 시민과 대한민국 미래 만들겠다”
--  [한덕수, ‘새해 행사 뒷정리’ 환경공무관 찾아 “고된 일에 감사”
--  ["최근 3년간 수능 수학·과탐, 상위권서 남학생 우세"
--  [[신년사] 송호준 에코프로 대표 “시장 승장 되려면 기술리더십 갖춰야”
--  [尹 대통령, 현충원 방명록 "국민만 바라보며 민생경제 매진"
--  New Year's Eve Melbourne: Woman risks losing her eye after she is hit by an illegal firework
--  New Year 2024: દેશભરમાં લોકોએ નવા વર્ષનું કર્યું સ્વાગત, જુઓ અલગ અલગ શહેરોની તસવીર
--  Bùi Thị Xuân Hạnh đăng quang Hoa hậu Hoàn vũ Việt Nam 2023
--  New label you'll love
--  Arbaaz Khan: ਅਰਬਾਜ਼ ਖਾਨ ਨੇ ਸ਼ੂਰਾ ਨੂੰ 19 ਨੂੰ ਕੀਤਾ ਪਿਆਰ, ਫਿਰ 24 ਨੂੰ ਹੋਇਆ ਵਿਆਹ, ਸੁਣੋ ਪ੍ਰਪੋਜ਼ ਕਰਨ ਦਾ ਦਿਲਚਸਪ ਕਿੱਸਾ
--  Buratai calls for greater unity, urges rebranding
--  이재명 "국민과 나라 지켜야 한다는 사명뿐... 총선 반드시 승리할 것"
--  Angriffe auf Polizei, mehr als 200 Festnahmen in Berlin
--  助理：依斯邁沒參與迪拜行動 “他出國朝聖還主動抱扎希”
--  LG유플러스, 네트워크 장비 친환경 포장으로 탄소배출 줄인다
--  “조립식 모듈형 솔루션, 데이터센터 가용성 높여”
--  티피링크, AI 기반 400만화소 실내외용 CCTV 출시
--  [네트워크 분야 평가·전망④] 네트워크·보안 융합 SD-WAN/SASE, IT 인프라 혁신
--  കാവാലം– തട്ടാശേരി പാലം ചുവപ്പുനാടയഴിയാൻ ഇനിയുമെത്രനാൾ
--  Réveillon : Les forces de défense et de sécurité veillent au grain
--  ધોરણ-10 અને 12 પાસે માટે આસામ રાઈફલ્સમાં નોકરીની શાનદાર તક, આ રીતે કરો અરજી
--  Angriffe auf Polizei, mehr als 200 Festnahmen in Berlin
--  That's one way to start the year! Ryan Reynolds and Rob McElhenney toast 2024 by making MIDNIGHT announcement that two of Wrexham's biggest stars have signed new deals until 2027
--  Ganjar Pranowo Berkampanye di Jawa Tengah Hari Ini, Temui Relawan hingga Pendeta
--  2024: NILDS to focus on democracy consolidation, lawmakers’ capacity – DG
--  Hundreds of thousands of people became Canadian citizens in 2023
--  José Carlos González y Viviana Aroche conquistan la San Silvestre 2023
+-  Korea's exports down 7.4% in 2023 amid weak chip demand
+-  S. Korea, US to complete strengthened 'extended deterrence' regime in 1st half of 2024: Yoon
+-  Defense chief warns NK's reckless provocations will become 'prelude to destruction'
+-  ‘혹시 전 어때요?’→‘안돼’ 레알 출신 GK, 친정팀에 ‘역제안’ 거절당했다
+-  186억이면 월드컵 위너 공격수 영입 가능…‘손흥민과 토트넘 핵심 될 것’
+-  Proposed Jail Term For Salary Defaulters, Futile Project – NECA
+-  3일부터 학자금 대출 신청…등록금 4월 25일·생활비 5월 16일까지
+-  Macron says 2024, marked by Olympics, will be year of French pride and hope
+-  German police arrest three more over alleged Cologne Cathedral attack plot
+-  UN chief closes tribunal founded to investigate 2005 assassination of former Lebanese prime minister
+-  [전남 완도 선착장서 어획물 운반 80대 바다에 빠져 숨져
+-  [외지사람 먼저 찾는 광주 송정역에 디지털 이미지 구축
+-  [“저출산 심각한데…” 임산부 44% “상사·동료 눈치가 제일 힘들어”
+-  [“시간 아까워 눈물난다”…8만명 모인 광안리 드론쇼 취소에 ‘부글부글’
+-  [다음 대통령은? 처음 이재명 앞선 한동훈
+-  [경북도, 영양·봉화 대규모 국책사업 양수발전소 선정
+-  [장상길 포항시 부시장 1일 취임 "포항 발전 위해 최선 다할 것"
+-  [[신년사] 尹대통령 “국정 중심은 국민…문제 해결 위해 행동하는 정부”
+-  [[포토] 보성 율포해변 갑진년 해맞이 장관
+-  [경북도, 경북행복재단·경북도청소년육성재단 통합 출범
+-  [[전문] 尹대통령 신년사 “2024년 대한민국 재도약의 중대한 전환점”
+-  [작년 무역적자 99.7만달러…수출 10월부터 증가세
+-  [김우빈, 서울아산병원에 1억원 기부…새해 첫 날부터 선한 영향력 전파
+-  김나영 유튜브 수익 1억원 쾌척 "한부모 여성 가장에게"
+-  서대문구의회 주이삭 구의원, 요양보호사 권익 및 처우 개선 위해 힘써
+-  OTT 웨이브 "상품 가입하면 3000코인 증정"
+-  K리그1 포항, 브라질 출신 미드필더 오베르단 완전 영입
+-  Makron u novogodišnjoj poruci pozvao Francuze na jedinstvo: Želim da 2024. bude godina odlučnosti
+-  MAN lauds Tinubu, Kalu for peace project in S’East
+-  كتائب القسام تطلق رشقة صواريخ نحو تل أبيب وأصوات الانفجارات وصافرات الإنذار تدوي
+-  Cửa ngõ phía Đông TPHCM kẹt xe nghiêm trọng sau thời khắc chào năm mới
+-  Produser American Idol yang Dituduh Paula Abdul Lakukan Pelecehan Seks Buka Suara
+-  The world welcomes 2024 (Video)
+-  Baltimore clinch AFC North title and high seed in play-offs with Miami mauling
+-  Tổng thống Zelensky ca ngợi sự kiên cường của người Ukraine, quyết tâm có F-16 trong năm mới
+-  Vì sao tăng trưởng kinh tế của Đà Nẵng quá thấp?
+-  One injured in shooting outside Denver Museum of Nature and Science
+-  尹대통령 "상반기 한미 확장억제 완성…북핵 위협 원천봉쇄"
+-  [속보] 尹대통령 "문제 해결 위해 행동하는 정부 될 것"
+-  PHOTOS: Denver Broncos beat LA Chargers 16-9 in NFL Week 17
+-  युनिटेक हाइड्रोपावरमा लगानी गर्दै लक्ष्मी सस्टेनेबल इनर्जी फण्ड
+-  ग्लोबल आइएमई बैंकको वार्षिकोत्सवमा प्रभातफेरी
+-  Explota motocarga que vendía pirotécnicos en mercado de San Martín de Porres: Edificios aledaños quedaron afectados
+-  Timnas AMIN Balas TPN: Bagaimana Mau Menang, Orang Temanya Nggak Jelas
+-  [부음] 구자일(구병원 원장)씨 모친상
+-  [포토뉴스] 2024년 갑진년 새해 첫 일출
+-  아쉬웠던 '농구영신' 대구 한국가스공사, 울산 현대모비스에 석패
+-  ¿Por qué al último día del año se le llama Nochevieja?
+-  রাজধানীতে ফানুস উড়াতে গিয়ে দগ্ধ ৩
+-  [인사]중소벤처기업부
