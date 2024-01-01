@@ -1,11 +1,11 @@
 # Latest News
--  Jak se změní daň z nadstandardně vysokých příjmů v roce 2024
--  Jak je to nově s náhradou mzdy nebo platu u akcí s dětmi a mládeží
--  Los Knicks sorprenden a los Wolves con un recital de Randle
--  인천 초·중학생 2명, 그랜저 20㎞ 몰며 인터넷 중계 적발
--  By: bandırma betonarme
--  김정수 삼양라운드스퀘어 부회장 “‘인재 밀도’ 강화로 미래 비전 실현···글로벌 종합식품기업 도약 이루겠다”
--  “위암 환자 항생제 노출되면 면역 항암제 치료 효과 저하”
--  모야모야병 뇌혈관 우회술, 환자 사망률 낮춰
--  Fans spot key change Mohamed Salah made at half-time before he scores second half brace to become the 10th highest goalscorer in Premier League history
--  Rinden honores a custodios asesinados en el Cereso hace 1 año
+-  Al menos cinco muertos tras un gran terremoto que sacudió Japón el día de Año Nuevo
+-  באחד הימים העמוסים בשנה - הפגנה פרו פלשתינית יצרה פקקי ענק בדרך לנמל התעופה "קנדי" בניו יורק
+-  Nearly 30,000 migrants crossed Channel to UK last year
+-  Bono Parto Humanizado enero 2024: COBRA HOY el NUEVO DEPÓSITO del subsidio por Sistema Patria
+-  برلمانية تطالب بتقنين أوضاع العاملين بالصناديق الخاصة وضمهم للموازنة العامة
+-  너흐에 들다
+-  청룡의 힘찬 기운…2024년 갑진년
+-  오영훈 지사 "민생과 도민 초점, 변화 혁신으로 역량 결집”
+-  Bloomberg: ASML zag op verzoek van VS af van leveringen aan China
+-  [단독] 김호중, 3년만에 '미우새' 다시 뜬다…'母벤져스 계탔네'
