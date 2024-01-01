@@ -1,51 +1,51 @@
 # Latest News
--  Huge 500-Year-Old Longsword Recovered from Medieval Grave on Swedish Coast
--  दुई साता भैरहवा मुकाम बनाएर के गर्दैछन् पूर्वराजा ज्ञानेन्द्र शाह ?
--  Bank Holidays: ఈ నెలలో బ్యాంకులకు ఏకంగా 16 సెలవులు.. ఎప్పుడెప్పుడంటే..?
--  Japan issues tsunami warnings after a series of very strong earthquakes in the Sea of Japan
--  Kesineni Nani: వైసీపీ ఎమ్మెల్యేలే జగన్ పాలనపై తీవ్ర అసంతృప్తితో ఉన్నారు
--  We arrested 207 suspected robbers, recovered 108 firearms in 2023 – Oyo Police
--  Kickoff | Benzema goes 'AWOL' in Saudi Arabia
--  Nyt alkoi tapahtua NHL:ssä – miten käy Juuse Saroksen?
--  «Ўзбек маданияти элчиси» мақомини бериш тизими жорий этилади.
--  Россияда чақирув ёшини ошириш бўйича ўзгаришлар кучга кирди.
--  АҚШ контейнер кемасига ҳужум қилган ҳусийчиларнинг қайиқларини чўктириб юборди.
--  تشغيل 6 محطات مترو جديدة بالخط الثالث.. اعرف التفاصيل
--  बालकुमारी घटनामा छानबिन समिति गठन गर्ने मन्त्रिपरिषद्को निर्णय
--  الأرصاد تحذر من شبورة كثيفة بالطرق وتناشد السائقين بتجنب السرعة الزائدة
--  القاهرة الإخبارية: زلزال يضرب وسط اليابان وتحذيرات من موجات تسونامى
--  فصائل فلسطينية: قصفنا تجمعات لجنود الاحتلال جنوب شرق حى الزيتون فى غزة
--  تنويه مهم من وزارة الأوقاف بشأن 2000 وظيفة جديدة.. اعرف التفاصيل
--  وزارة التعليم: غلق موقع تسجيل التقدم لامتحانات الطلاب المصريين بالخارج غدا
--  وزير المالية: ماضون فى السياسات الداعمة للشمول المالى للتحول إلى الاقتصاد الرقمى
--  ارتفاع المؤشر الرئيسى للبورصة بنسبة 0.64% خلال جلسات شهر ديسمبر
--  صعود 10 قطاعات بالبورصة خلال جلسات شهر ديسمبر على رأسها "الموارد الأساسية"
--  "مزاد" سبب تأخير حسم الأهلى لصفقة الفلسطينى وسام أبو على
--  Moon gazings
--  日本石川縣發生7.6級地震 禤國全︰30團友在震央附近區域 目前情況安全
--  Anambra businessman requests 16 soldiers, 20 policemen, 12 DSS for security
--  Държавни служители на върха на щастието! Вдигат им заплатите
--  Japonsko zastihlo silné zemetrasenie: Hrozí aj cunami, meteorológovia vydali varovanie
--  Zákaz predaja a používania petárd začne platiť od utorka: Má to aj svoje výnimky
--  Meteorológovia vydali výstrahy pred hmlou i silným vetrom: Platí aj mierne lavínové nebezpečenstvo
--  ŠKANDÁL v šoubiznise: Slávna speváčka po rokoch vyťahuje špinu!
--  Na Slovensku by sa spaľovaním odpadu uživili tri zariadenia, povedal Taraba
--  Ngày 1/1: trung tâm TP.HCM bình yên đón năm mới, cà phê bệt vẫn là lựa chọn số 1 của giới trẻ
--  Cam Túc (Trung Quốc) tiếp tục hứng chịu động đất ngày cuối năm
--  5 lần ăn buffet, người phụ nữ âm thầm làm 1 chuyện khiến nhà hàng báo cảnh sát vì tổn thất hơn 156 triệu đồng
--  Một nhà hàng ở quận 1 thu tiền từ hoạt động mại dâm lên đến 20 tỉ đồng
--  Vinny Vũ: "Âm nhạc của Sixkie Dawgz vừa quen, vừa lạ, và đặc biệt khá là cuốn hút"
--  Hơn 15.000 du khách "xông đất" Đà Nẵng ngày đầu năm mới qua đường hàng không
--  Cuộc sống xa vợ con, một mình ở Hà Nội của NSƯT Quang Thắng
--  Podanie žiadosti o povolenie pre malé čistiarne odpadových vôd sa predĺži
--  Đang chấm bài kiểm tra, giáo viên phải ôm bụng cười ngặt nghẽo: Lớp có em học sinh hài hước quá!
--  Gujarat sets Guinness Record for performing mass Surya Namaskar; PM Modi heaps praises
--  Je dobré, že Gajan nechytal, hovorí Valent, ktorý dostal od Rusov päť gólov za tretinu
--  לקראת CES הכריזה LG על ליין חדש של טלוויזיות QNED ו-QNED Mini LED
--  青衣牙鷹洲街變電站爆炸冒白煙 釀全港至少18宗困升降機事故
--  OKLOPNA VOZILA NA ULICAMA NEMAČKE Na ulicama Berlina 4.000 policajaca! SVE ZBOG MLADIH KOJI SU NAMERNO GAĐALI LJUDE VATROMETOM
--  İstanbul'a 11 ayda 16 milyon turist
--  日, 규모 7.6 지진에 쓰나미 경보… 동해안 지진해일 주의 (종합)
--  Chaos as woman, 26, allegedly hit and trapped by out of control van
--  전주시, 환경부 '탄소중립도시' 예비후보지 선정…전북 유일
--  Morning Magic: రోజూ ఉదయాన్నే ఈ ఒక్క పని చేశారంటే చాలు.. ఎన్నిరోగాలు నయమవుతాయంటే..!
+-  "선발·불펜 모두 잘 할 수 있다" 'WBC 이후 美 망명' 쿠바 특급, 토론토행 적극 추천 '눈길'
+-  박민영, 37kg 투혼→前남친 논란 사과 "죄책감 위험신호…많이 후회, 심려끼쳐 죄송" [MD이슈](종합)
+-  분노한 포스텍, 상대 벤치에 '손가락질+고함'→"새해 복 많이 받아" 덕담까지...도대체 무슨 상황?
+-  Ιανουάριος 2024: Τα ζώδια που θα έχουν εξελίξεις στα επαγγελματικά
+-  Traditionele 'slepen' van spullen in nieuwjaarsnacht weer terug in Nieuwpoort
+-  51 Outdated and Toxic Things to Retire in 2024 – People Share
+-  المجلس الأعلى للقضاء يبحث الفصل في التظلمات المقدمة موخراً .
+-  "קרן אור של תקווה": התינוקות החדשים של 2024
+-  "ריאל מדריד מתכוונת לפנות השבוע לקיליאן אמבפה בפעם האחרונה"
+-  בכותונת לילה עם מחשוף עמוק: לא תאמינו שהיא בת 82
+-  블랙핑크 리사, 군살 없는 완벽 비키니 자태
+-  인천국제공항경찰단 새해 첫 대테러 훈련 실시
+-  인천시 동구, 2024년 새해 해맞이 행사 개최
+-  인천시 남동구 만월1호 공영주차장 1월부터 정식 운영
+-  인천시 계양구, 새해 맞아 ‘3.1만세운동 기념탑 참배’
+-  이동국 경기도박물관장 선임
+-  이의준 제13대 성남산업진흥원 원장 취임
+-  김종욱 해경청장, 유람선 대한 안전관리 활동 현장 직접 지휘
+-  이천식 제33대 인천해양경찰서장 취임
+-  최진모 제13대 평택해양경찰서 서장 취임
+-  한경국립대, 기관·직원 고용노동부 장관상 수상
+-  육군 55사단, 안성지역 6.25 참전용사 45가구 위문
+-  Premier League: Το πρώτο μήνυμα Γκρίλις μετά την διάρρηξη - «Δεν έχουν ιδέα τη ζημιά προκαλούν»
+-  Gillian Anderson megvillantotta teljesen pucér cicijét
+-  Prvi dan nove godine donosi nam i snijeg, HAK poslao upozorenje vozačima
+-  Dugaan Politisasi Penyaluran Bansos, Kepala Bapanas: Arahan Presiden, Tidak Berkaitan dengan Politik
+-  개혁신당, 이달 중순 창당 마무리 목표…"모든 시도당 창당계획"
+-  정의당 "7공화국 개헌 운동 시작…대통령 결선투표 등 도입해야"
+-  "이념 카르텔 타파" 외친 尹대통령…86 운동권 겨냥했나
+-  韓총리, '새해 행사 뒷정리' 환경공무관 찾아 "고된 일에 감사"
+-  이재명 "정치, 결국 국민이 하는것…정치인 작전이 이끌지 않아"
+-  한국, 유엔 안보리 이사국 활동 개시…상임이사국 분열 속 역할 모색
+-  "尹대통령 지지율 37.2%…수도권·3040서 반등"
+-  北, 김정은 연설 육성 보도하며 영상에 한미일 정상회의 사진
+-  군, 새해 첫날 포사격 훈련으로 '압도적 화력' 과시
+-  합참의장, '하늘의 지휘소' 피스아이서 새해 대비태세 점검
+-  대통령실 "신년 업무보고, 국민과 함께 민생 토론회 형식"
+-  오세훈 "어울림의 가치 기억…서울 따스하게 채워가겠다"
+-  日, 새해 첫날 규모 7.6 지진…북부 연안 쓰나미 경보
+-  尹대통령, 국무위원들과 떡국 먹으며 "민생 깊이 파고들어야"
+-  [인사] 대구 중구청
+-  새해 첫 날 일본서 7.6 규모 강진…"강원 일부 해안 안전 주의"
+-  與, 특검법은 반대지만…'김여사 리스크' 역풍 불까 노심초사
+-  [인사] 대구 남구청
+-  [인사] 대구소방안전본부
+-  Elektrikli soba faciası: 3 kişi hayatını kaybetti
+-  İşte Rachid Ghezzal'ın kadro dışı kalma nedeni
+-  Akar: Filistin'deki terör faaliyetlerini şiddetle lanetliyoruz
+-  Beşiktaş'ta kadro dışı kalanların durumu yeni hocaya bağlı
+-  Song of The Year: 'All these years been defending Ukhozi FM, this year I can't'
