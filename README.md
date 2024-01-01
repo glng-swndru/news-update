@@ -1,51 +1,11 @@
 # Latest News
--  Matić blizu potpisa za Novi Pazar
--  "Pričaću deci da sam bio trener Partizana i Žalgirisa"
--  Presidência russa do BRICS definirá estrutura para novo status de Estado “parceiro”, diz Putin
--  Jenni Hermoso anuncia su fichaje por Tigres 12 horas antes de declarar
--  Jättesköldpaddan Jonathan fyller 191 år – är världens äldsta landdjur
--  El Gobierno autorizó a exportar los “cortes populares” de carne prohibidos durante la gestión anterior
--  جيش الاحتلال يزعم أن سحب القوات من غزة لتخفيف الأعباء الاقتصادية
--  Potentially dangerous products that were recalled in 2023
--  Cruzan con la ilusión de iniciar el año nuevo en EU
--  El argumento más ambicioso de Trump por la 'inmunidad absoluta'
--  Analiza: Pse viti 2024 do të ripërcaktojë gjeopolitikën? Zgjedhje në më shumë se 70 vende të botës
--  Disney On Steamboat Willie In Public Domain
--  New Year can bring better sleep at night if you follow these 9 smart steps
--  Breakthroughs in Space Exploration: Unveiling the Cosmos in 2023
--  Kritično na istočnim granicama Rusije! Svet šokiran opasnim manevrom Ukrajine, hitno se oglasio Medvedev!
--  Εύβοια: Πρόσκρουση δεξαμενόπλοιου με σημαία Τουρκίας στο Βαθύ Αυλίδας - Συνελήφθη ο πλοίαρχος
--  Макрон пообещал Японии помощь в ликвидации последствий землетрясений
--  IRPF: 10% dos contribuintes concentram 51% da renda no Brasil
--  Одна история на двоих
--  NFL MVP odds: Lamar Jackson lapping the field after monster win over Dolphins
--  LIVE Premier League | Isak reageert razendsnel en zet Newcastle weer naast Liverpool
--  Σε εορταστική ατμόσφαιρα ο Δήμαρχος Πειραιά Γιάννης Μώραλης έκοψε την παραδοσιακή Βασιλόπιτα
--  Sismo de magnitud 4.1 sacude al sur de California
--  La Plata: un adolescente de 14 años volvía de la quema de muñecos y lo mataron de un balazo
--  Axarquía Welcomes First Baby of 2024
--  Gvardiol prvom objavom u 2024. pridobio velike simpatije: ‘Podsjetio bih na jednu stvar…’
--  코로나19 백신 사망 예방 효과 '지난해 8600명 이상'
--  5기 1차년도 '전문병원' 94개 지정‥기대했던 '반전'은 없었다
--  지난해 의약품 수출액, 대폭 감소…바이오·헬스, 두 자릿수 이상 줄어
--  프롤리아 시밀러 각축전, 앞서가는 셀트리온 쫓아가는 삼바에피스
--  의협 회장 선거의 해 밝았다…신년 메시지는 '뭉치자'
--  제5기 상급종합병원, '45+3-1=47'…경남동부·경기남부 확대
--  세계 최대 가전 전시회 CES 2024서 헬스테크 키워드는 '개인화'
--  글루카곤을 억제하니 살이 빠지더라…당뇨에서 비만까지 이어진 효과
--  AOSIMAN ASM-156FCC: δεύτερη οθόνη για PC, full HD, 16άρα με 99€!
--  El desgarrador mensaje de la madre de Tomasito en Año Nuevo: “Duele cómo pasa el tiempo y nada avanza en tu lucha”
--  القادسية يحتفي بعام الإبل 2024
--  De Gabigol a lendas do Flamengo e até rivais: personalidades do futebol se despedem de Denir
--  Taylor Swift, Travis Kelce share passionate new year's kiss
--  الإبعاد من المشاركة في بطولة "غلوري" يغضب المقاتل المغربي جمال بنصديق
--  مسؤول مستوطنات: الحكومة تحاول رشوة المستوطنين للعودة لغلاف غزة
--  Tigres da la bienvenida a Jenni Hermoso
--  Синдром самозванца
--  ما حكم الطلاق عبر الهاتف.. وهل يحتاج إلى شاهدين؟
--  في يناير خلال ٣٧ سنة .. طريف تسجل أعلى تكرار لانخفاض درجات الحرارة
--  عاجل.. حساب المواطن يجيب عن حالة نادرة بشأن المطلقة.. كيف تستفيد من الدخل الشهري؟
--  أفعى مميتة تقتحم مباراة .. ماذا حدث؟
--  برواتب ٧ آلاف ريال..بدء التقديم في برنامج تدريب منتهي بالتوظيف بالهيئة السعودية للتخصصات الطبية
--  دراسة تحذر: قلة الحركة تزيد معدلات إصابة الأطفال بأمراض خطيرة
--  Irã implanta no Mar Vermelho navio de guerra armado com mísseis de cruzeiro
+-  قناة عبرية تنشر تفاصيل مقترح اسرائيلي لهدنة جديدة بغزة
+-  من كان يتخيل هذا؟.. مشاهد جديدة لمعارك القسام أثارت ذعرا في إسرائيل
+-  مصرع 4 أشخاص وإجلاء عشرات الآلاف بعد زلزال اليابان
+-  [인사] 신아일보
+-  [오늘날씨] 오전까지 중부지방 비·눈… 낮최고 11도
+-  Presidente ucraniano afirma que Rusia sufre grandes pérdidas
+-  작년 무역적자 99.7억달러 … 반도체 회복에 적자 폭 크게 줄어
+-  ["중국이 전쟁 일으킨다"…노스트라 다무스가 예언한 2024년
+-  [새만금방조제 텐트 안에서 50대 남녀 숨진 채 발견
+-  [‘쾅·쾅·쾅’ 평창 LPG충전소 연쇄 폭발… 인근 300미터 불바다
