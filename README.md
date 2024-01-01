@@ -1,51 +1,51 @@
 # Latest News
--  김정은, 딸 주애에게 공개석상서 '볼 뽀뽀'…가운데 입장도 양보
--  WSJ: أكثر من 70% من منازل غزة تعرضت للدمار جراء القصف
--  Morsy świętowały Nowy Rok
--  „Energetyki” tylko dla pełnoletnich
--  Survivor Nihat Altınkaya kimdir?
--  Gazze'de can kaybı 21 bin 978'e yükseldi
--  Fransa'da yıldırım nedeniyle onlarca uçuş iptal edildi
--  TİKA, Afganistan'da Ali Şir Nevai'nin eserini bastırdı
--  CHP'de seçim hazırlıkları hızlandı!
--  Trabzonspor Kulübü Başkanı Ertuğrul Doğan'dan yeni yıl mesajı
--  Tunceli'de deprem oldu
--  Kütahya'da horoz dövüşüne polis baskını
--  Çorlu'da ev yangını
--  Manisa Büyükşehir Belediyespor, başantrenör Hakan Demir ile anlaştı
--  Kobra Murat kimdir? Kobra Murat'ın hastalığı ne?
--  Konya'da uyuşturucu operasyonu! 1 tutuklama
--  Demir yüklü gemi arızalandı
--  Eşiyle tartıştı, otomobili uçuruma itti
--  תושבי בארי ששוחררו מהשבי ביקרו לראשונה בקיבוץ: "לא ידענו אם נקום בבוקר"
--  Ευρωπαϊκό πρωτάθλημα χάντμπολ: Οι ευχές των παικτών της εθνικής ομάδας για το νέο έτος και το Euro 2024
--  Антониа и Илина се првите новороденчиња во Битола
--  Museveni, Kagame mum on Tshisekedi's re-election
--  Îngrijirea nou-născutului la domiciliu
--  تمديد حبس صحفي تونسي للمرة الثالثة ونقابة الصحفيين تهدد بالتصعيد
--  ২ থেকে ৪ জানুয়ারি বিএনপির গণসংযোগ কর্মসূচি
--  Wird es König Charles im Jahr 2024 mit den indigenen Gemeinschaften in Kanada schaffen?
--  За подписку на «экстремистские» каналы оштрафовали воспитательницу и конфисковали ее IPhone
--  La Sala de Arte Sidor se encuentra lista para el año 2024
--  Kigyulladt erkély, égési sérülések - Tizenöt emberrel szemben indult eljárás Szilveszterkor
--  Hope for better prospects in 2024, Lagos PDP tells residents
--  ড. ইউনূসের রায় নিয়ে যুক্তরাষ্ট্রের সঙ্গে সম্পর্কে প্রভাব পড়বে না: পররাষ্ট্রসচিব
--  Number of migrants arriving to Britain in small boats drops 36% in 2023
--  Somtel launches first 5G network in Somalia
--  Pumas y su EXCITANTE CALENDARIO para el 2024 ¡Aquí todos los partidos que tendrán este año! | LIGA MX
--  Juventus d’acciaio negli scontri diretti: il dato
--  '울릉도·독도=안도' 일본 고지도 발견
--  [알림] 2024 오피니언 새 필진이 찾아갑니다
--  [지방시대 게임체인저] 홍준표 "TK신공항 사업 구체화…미래 대구 굴기 대변혁"
--  한동훈 비대위원장, 보수 텃밭서 어떤 메시지 내놓을까
--  '쌍특검' 거부권 등 처리 놓고 새해 벽두부터 여야 팽팽
--  "반갑다, 푸른 용의 해"…지역 해맞이 명소 '구름인파'
--  대구대 창업지원단, 청소년 Biz-Cool 새싹캠프·스타트업 교사연수 개최
--  Конвейер репрессий. За подписку на «экстремистские» каналы оштрафовали воспитательницу и конфисковали ее IPhone
--  호산대, ‘지방 전문대학 활상화사업’ 워크숍 개최
--  경일대, 사제 간 유대로 10년간 기술 개발…산학협력으로 동문 기업 매출 10배 '급신장'
--  영남대, ‘스마트 물산업 인재양성 취업박람회’ 개최
--  เมาข้ามปี! ลุงขับเก๋งพุ่งชนมั่ว ถืออาวุธของมีคมไล่ฟันชาวบ้านวิ่งหนีกระเจิง
--  Rivers crisis: Honour truce brokered by Tinubu, PDP group urges Fubara
--  Neunkirchen - Wohnung brennt aus
--  Brauchtum: Musik und Schwellköppe: Tausende starten in die Karnevalszeit
+-  ‘Va a ser un muy buen año para México’: Sheinbaum
+-  Gospodarka wchodzi na obroty
+-  W gastronomii robi się gorąco
+-  Gamedev czeka na odbicie
+-  Polskie chemiczne nadzieje
+-  IT: Szansa na ożywienie
+-  Pożyczki pod nadzorem
+-  Meble podskoczą w drugim półroczu
+-  Dokąd pójdzie sztuczna inteligencja
+-  Rząd musi wymyśleć, jak szybciej ciąć emisję
+-  Sektor handlowy powraca na ulice
+-  Biurowce znalazły się na wirażu
+-  Mieszane uczucia producentów okien
+-  Bruksela i wybory pomogą rozkręcić inwestycje
+-  Targi jak sprzed pandemii
+-  Ubezpieczeniom przydałby się impuls
+-  Banki w cieniu budżetu
+-  Polskie kosmetyki podgryzą koncernowe
+-  Moda widzi przyszłość w jasnych barwach
+-  E-commerce liczy na lepszy czas. Stawia też na nowe technologie
+-  Deweloperzy magazynowi będą jeszcze bardziej ostrożni
+-  Zbożowy węzeł gordyjski w portach
+-  Fundusze VC wyczekują unijnego kapitału. Wówczas ruszą inwestycje
+-  Spożywka utyje na akwizycjach
+-  U deweloperów mieszkaniowych zrobi się spokojniej
+-  Biura podróży nie odpoczną. Drżą o marże
+-  Rynek inwestycyjny czeka na spadki stóp
+-  Lewiatan: potrzeba nam rąk do pracy
+-  W branży lotniczej mogą polecieć głowy
+-  Dyrektywa NPL już spóźniona, a niezwykle ważna
+-  Na co warto zwrócić uwagę w prognozach makroekonomicznych
+-  Hotele ruszą z kopyta
+-  Sądy zdecydują o cenach wody, a rząd o kaucji za opakowania
+-  Wszystko wszędzie naraz w energetyce
+-  O zagranicznie inwestycje trzeba będzie mocniej powalczyć
+-  W paliwach napięcie wciąż rośnie
+-  Fitness bije rekord za rekordem
+-  Motoryzacja w 2024 r: Wolniej, ale... drożej
+-  Erdoğan'ın İstanbul için düşündüğü isim kulislerden sızdı
+-  UnionSine Externe Festplatte 500 GB, ultradünn, tragbar, 2,5 Zoll, USB 3.0, SATA-Festplattenspeicher für PC, Mac, TV, Wii U, Xbox, PS4 (schwarz) HD2510
+-  Patriarca de Lisboa pede fim da "crispação" entre partidos e instituições
+-  Bakının bu küçəsində məhdudiyyət tətbiq edildi
+-  حجار يجول على المناطق الحدودية: نواكب يومياً نزوح اللبنانيين من المناطق غير الآمنة
+-  Verfrissende nieuwjaarsduik in Haastrecht
+-  Rennen voor goed doel
+-  Survivor All Star 2024 yarışmacıları kimlerdir? Survivor 2024 kadrosu Mavi- Kırmızı takım yarışmacıları
+-  Mükemmel balık kızartma tekniğinin püf noktası: Yumurta! İçinin pişmeme ihtimali yok
+-  854 schools to reopen in Thoothukudi district today
+-  Ve bitti bu iş! Fernando Muslera transferi hayırlı olsun
+-  Akıl hastanesine kaldırılmıştı! Dilan Polat'ın avukatından açıklama geldi : Felç kalma riski var
