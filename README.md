@@ -1,51 +1,11 @@
 # Latest News
--  Persiste el “hacinamiento crítico” en centros penitenciarios de Venezuela, denunció el OVP
--  عدن.. افتتاح مستشفى الهلال الأبيض الدولي في عدن وتخفيض بنسبة 20% بمناسبة الافتتاح
--  2 stycznia wolny od pracy. Dla kogo?
--  احتياطيات "العملة الصعبة" تتجاوز 35.8 ألف مليار
--  Silver jewellery brand Kicky and Perky launches its holiday collection
--  Bigg Boss 17 contestant Neil Bhatt feels Vicky Jain resorts to picking fights
--  זה אמיתי: הטיסה שחזרה אחורה בזמן
--  "מוסיקה משמשת כתרופה לאנשים, אתה מגיע אליהם הרבה יותר כמו רופא, מאשר מוסיקאי"
--  "אני מקווה שכשנתחתן הוא יזרום על זה": כוכבת "חתונמי" על הזוגיות החדשה
--  מנכ"ל רשות האוכלוסין: "שינוי המדיניות בנושא דרכונים זרים - בעקבות מידע על ניסיונות כניסה עם דרכונים מזויפים"
--  Erdő Péter lehet az új pápa?
--  Abdelaziz Ghoneim — Président de l’union égyptienne de boxe: «Voilà pourquoi nous avons choisi la Tunisie pour notre préparation»
--  أرخص موجود وأغلى مفقود"!!| كتب د. عبدالكريم الوزان
--  Omega-3 alan çocukların zeka testleri nasıl çıktı
--  Toto sú typy ľudí, ktorí ti môžu pokaziť zážitok z rapového koncertu: Poznáš ich?
--  Hommage — Ghazi Limam ( ex-gardien de but international du CAB ): «Le match contre le Brésil restera mon plus mauvais souvenir»
--  Detalji porodične tragedije koja je potresla BiH: Naručili sanduke, ostavili čak sedam pisama, u jednoj koverti 200 KM i naveli da je to novac namijenjen za kupovinu cvijeća
--  Bakanlık 2024 hedefini ziyaretçi işe gelirde eşitledi: 68 milyon ziyaretçi 68 milyar dolar gelir
--  선미, 새해에도 빛나는 비주얼
--  라이즈 컴백, 싱글 ‘Love 119’ 5일 공개
--  Houthis Warn of 'Repercussions After Ten Fighters Killed in US Red Sea Attack
--  मुख्यमंत्री डॉ. यादव ने सैटेलाइट की सफल लॉन्चिंग पर वैज्ञानिकों और देशवासियों को दी बधाई
--  “New Mother” Osaka gets her first win
--  Tempête. Feux de toitures attisés par le vent et inondations : la nuit des pompiers du Pas-de-Calais
--  PiS wzywa „wolnych Polaków” przed Sejm. Szykuje się frekwencyjna klapa?
--  Best of the Best 2023: L’Oréal
--  Кучеров впервые в карьере набрал 120 очков за календарный год
--  Više od polovine svijeta glasa u 2024. godini
--  Više od polovine svijeta glasa u 2024. godini
--  ‘We have lots of people coming for the first time’ – charity boss on rising need
--  It is not our job to win the referendum for the government, says election tsar
--  Founder of Fermanagh distillery says demand for Irish spirits has ‘exploded’
--  U ovu penziju možete da odete sa samo 5 godina radnog staža: Ovo su svi uslovi, ali ima i jedan izuzetak
--  Monaghan pianist says topping charts has turned his life ‘upside down’
--  النسخ الاحتياطية لتطبيق WhatsApp ستستفيد من سعة تخزين Google Drive بدءًا من عام 2024
--  수입차, 덜컥 샀다가 후회?…4천만원 이상車 보유 어르신, 기초연금 못받는다
--  Dieser Zoo ist in Deutschland einzigartig
--  OVE DVE BEBE SU ROĐENE U PRVOJ SEKUNDI NOVE GODINE U BEOGRADU! U svojim porodicama su četvrto dete
--  Kars'ta Mekke'nin Fethi ve Kudüs Gecesi Programı düzenlendi
--  Dikuntit Fans Fifty Shades of Grey, Jamie Dornan: Sangat Menakutkan
--  Bùi Thị Xuân Hạnh tiết lộ lý do mẹ và bố dượng không đến dự đêm Chung kết Hoa hậu Hoàn vũ Việt Nam 2023
--  Tết Dương lịch 2024, dân TP.HCM chọn ‘du lịch tại chỗ’, tiết kiệm chi tiêu
--  Loạt nữ sinh "khuynh đảo" cả trường chỉ vì khoảnh khắc chớp nhoáng ở hội thao: Thanh xuân nợ tôi những nữ thần như thế!
--  Động đất 7,5 độ richter tấn công Nhật Bản gây cảnh báo sóng thần mức cao nhất
--  Khởi động năm 2024 thật "rủng rỉnh" nhờ chọn túi xách hợp mệnh
--  56 người thiệt mạng vì tai nạn giao thông 3 ngày nghỉ Tết Dương lịch 2024
--  Giá gửi xe đêm Countdown ở Hà Nội tăng gấp hàng chục lần
--  5 mẫu áo khoác dáng dài nên sắm để mặc đẹp hơn trong dịp Tết 2024
--  Việt kiều Mỹ giả làm học viên cua cô giáo xinh như mộng, sống thử 3 năm "vỡ mộng"
--  Fatih Terim imzayı attı. Yunan Ligi'ni yayınlayacak kanal belli oldu
+-  Több mint 200 embert vittek kórházba a túl sok alkohol miatt szilveszterkor, közülük 28-an kiskorúak voltak
+-  [광주 서구을 “양부남 37.4%”…‘독주 양상’
+-  هل حرب غزة...حرب دينية؟ / 2
+-  النقل تعلن انجاز الرصيف رقم 2 في ميناء الفاو الكبير
+-  هزات أرضية تضرب شرق تركيا وحالة من الذعر عشية ليلة رأس السنة
+-  Households To Receive Free Cost Of Living Help Worth £50
+-  Vučić čestitao Novu godinu: Srbija više ne čeka prilike, već ih stvara
+-  Horóscopo y Predicciones de Mhoni Vidente del 1 de enero de 2024
+-  דור הולך ונעלם: המשך מעקב הצעירים בליגת העל
+-  כבוד ענק: אלבום ישראלי מבין 10 אלבומי הג'אז הטובים של השנה
