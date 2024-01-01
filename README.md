@@ -1,51 +1,11 @@
 # Latest News
--  Un muerto y 21 heridos en muertos incendio de un local de Austria
--  Benjamin Kiplagat bıçaklanarak öldürüldü
--  برطانیہ میں سیاحوں کو کاروباری سرگرمیوں میں مزید سہولت مل گئی
--  Aldi: Neujahrs-Hammer! Discounter schraubt an den Preisen – DAS kriegen Kunden jetzt billiger
--  Transferimet më befasuese të janarit në historinë e Serie A
--  La fotos prohibidas del nuevo novio de Juanita Tinelli
--  وزارة الشؤون الاجتماعية تحيل مخصصات منحتي الأولاد والزوجة والبنات الى المصارف.
--  Nieuw jaar, zelfde resultaat: Mathieu van der Poel gaat in 2024 vrolijk door met winnen
--  المغرب.. انخفاض الفاتورة الطاقية بنسبة 21,4 في المئة عند متم نونبر 2023
--  Lightning strikes in Celtic Challenge Welsh derby
--  Dean Elgar looking to bow out on top
--  Putin vows to ‘intensify’ strikes on Ukraine after deadly Belgorod attack
--  Еще два лося провалились под лед в Витебской области. Видео
--  Estas son las termas naturales al aire libre más grandes de la Argentina
--  Your Dream Wedding Venue
--  Awal Tahun Baru, Ganjar Ajak Anak & Istri Makan Manyung di Warung Bu Fat Semarang
--  Juventus Museum e Stadium Tour: che numeri nel 2023! Il comunicato UFFICIALE
--  Pakistan human rights body says an upcoming election is unlikely to be free and fair
--  منظمة نساء تواصل تندد بارتفاع الأسعار
--  عاجل.. "التجارة" تستدعي آلاف المكيفات من ماركة شهيرة .. وتكشف السبب
--  مفاجأة صادمة لـ "ماسك" في نهاية 2023 بشأن منصة "إكس"
--  المجلس الصحي يعلن عن توفر وظائف شاغرة بالرياض
--  Partisinden istifa edenler, isim değiştiren partiler, farklı partiye geçenler... Meclis aritmetiği birçok kez değişti
--  Buffon: Kalelerin boyutları değişsin!
--  PSG yeni transferini resmen açıkladı!
--  Më 2024, sytë kah normalizimi i marrëdhënieve me Serbinë
--  إشتباكات وقصف مدفعي إسرائيلي على منطقة التوام في بيت لاهيا شمالي قطاع غزة
--  Συγκινήθηκε η Νάνσυ Ζαμπέτογλου στην πρώτη εκπομπή του χρόνου: «Δεν έχω λόγια...»
--  Destination Weddings and Honeymoons
--  Fate/Samurai Remnant recebe teaser da primeira DLC do game
--  El año judicial 2024 arranca con un Supremo con déficit de magistrados y posible renovación del CGPJ bajo la batuta europea
--  Požiar v bare v meste Graz: Vyžiadal si jednu obeť a niekoľko zranených
--  Škandál priamo na pódiu: Argentínsky prezident si dal jazýčkovú so svojou partnerkou
--  Novi Pazar opet mijenja trenera
--  MN BEST OF 2023 - La formazione dell'anno è composta da...
--  Arabia Saudită a executat 170 de condamnați la moarte în 2023, iclusiv în ultima zi a anului
--  Taylor Swift and Travis Kelce Share New Year's Eve Kiss
--  Adjudicada la redacción del proyecto para la reordenación de la zona sur del Recinto Ferial de Almería
--  Murder in Rabat, police search for suspect
--  নির্বাচনী অস্থিরতার মধ্যে বেসরকারি খাতে ঋণ বিতরণ কমিয়েছে ব্যাংকগুলো
--  Strašni neredi u Nizozemskoj: Pritvoreno više od 200 ljudi, ozlijeđeni deseci policajaca, gorjeli automobili
--  "이거 실화? 캡틴 손흥민+황희찬 '토트넘'에서 호흡 가능성"…토트넘 스카우터, 황희찬에 눈독 "내년 여름 영입 추진한다"
--  Trump trials, possible government shutdown loom in 2024
--  Israel plans to withdraw thousands of troops from Gaza
--  Powerball starts out 2024 offering $810 million jackpot
--  ریسکیو1122 لوئر چترال نے گزشتہ سال کے دوران 3374 مختلف قسم کے واقعات وحادثات میں عوام کو بروقت ایمرجنسی سہولیات فراہم کیں، اسی دوران44 ہزار سے زائد غیر ضروری کالزبھی موصول ہوئیں۔ رپورٹ
--  What is the energy price cap and how does it work?
--  *** BILDplus Inhalt *** Entführungs-Drama in Dänemark - Kinder (13, 10) von Steakhaus-Erbin gekidnappt!
--  THY Avrupa Ligi'nin en iyisi Mario Hezonja
--  Taha Akyol ve Mustafa Karaalioğlu kritik haber başlıklarını değerlendiriyor
+-  אייל ברקוביץ' בדרך להתרסקות ברשת 13? "המהלך נועד לכישלון"
+-  הסוף לניהול החשבון בבנק? זו האפשרות החדשה שנשקלת
+-  ענף הנדל"ן על הורדת הריבית: "שינוי שרוכשי הדירות המתינו לו חודשים"
+-  בשורה לשוק הישראלי: פלטפורמת האיקומרס בשותפות מפתיעה
+-  חיים לוינסון רוצה שקשת 12 תפטר אותו? זה הצעד המפתיע
+-  הופעה נוצצת: השעון היוקרתי של כריסטיאנו רונאלדו
+-  פוקס במהלך מרגש במיוחד: משפחת ויזל בצעד יוצא דופן
+-  פיצוי של 200 מיליון שקל: נפגעי הנובה תובעים את המדינה
+-  נהגים שיכורים, סחר בסמים ומרדפים: היערכות המשטרה ל-2024 | צפו
+-  Juve, obiettivo Coppa Italia: Capodanno di lavoro in vista della Salernitana
