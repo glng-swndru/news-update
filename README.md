@@ -1,51 +1,51 @@
 # Latest News
--  فاشلون .. - د.نايف الحمد
--  الوداع الأخير
--  قرار 10 لاعبين أجانب - يعقوب المطير
--  ولنا في الحياة (هلال) - احمد العلولا
--  أمانة الشرقية تستعرض منجزاتها التنموية
--  صح لسانك
--  وزير الداخلية يشكر أمير منطقة تبوك لحصول إمارة المنطقة على المركز الأول في الجائزة الوطنية للعمل التطوعي
--  فواصل
--  انتخاب المملكة رئيسًا للاجتماع الـ(11) للجنة التراث في العالم الإسلامي
--  أمير المنطقة الشرقية يستقبل نائبه في مطار قاعدة الملك عبدالعزيز بالظهران
--  اختتام بطولة الجودو المفتوحة لذوي الإعاقة البصرية بالرياض
--  الأمير فيصل بن بندر: نخطو خطوات جيدة لجعل الرياض بهذا المستوى الراقي
--  لجنة حكام التايكوندو تجهز الطواقم للموسم الجديد
--  القيادة تعزي رئيس الإمارات في وفاة الشيخة مهرة آل نهيان
--  طائرة الهلال تواصل التحليق.. والأهلي يتغلب على النصر
--  تحويل البترول إلى بتروكيماويات لتعظيم القيمة المضافة للنفط - د.عبدالحفيظ عبدالرحيم محبوب
--  أمير منطقة المدينة المنورة يزور المسجد النبوي الشريف
--  تدريبات المتصدر تتوقف 16 يومًا ثم تعود بغيابات دولية كبيرة
--  مليار ريال نصيب منفذ جديدة عرعر من حركة التجارة عبر المنافذ البرية بالمملكة
--  أمير منطقة الرياض يرأس اجتماع جمعية «إنسان»
--  استثمار الاستضافات إعلامياً - د.عبدالعزيز الجار الله
--  الاتفاق يتوج بكأس الاتحاد السعودي لكرة قدم الصالات
--  متاريس تتناسل في طريق عودة ترمب - د.عبدالله بن موسى الطاير
--  62 مليون ريال مبيعات أسواق الإبل في ثامن نسخ مهرجان الملك عبدالعزيز بالصياهد
--  أمير المنطقة الشرقية يصدر عدداً من القرارات الإدارية
--  الادعاءات العلمية واتخاذ القرار - عبدالرحمن الحبيب
--  بدء المسار الثاني من مشروع استثمار وتخصيص الأندية الرياضية
--  البنتاغون: إغراق 3 قوارب حوثية هاجمت سفينة حاويات قبالة اليمن
--  «تاسي» يُنهي تعاملاته بنهاية 9 أشهر بتداولات بلغت 974 مليار ريال و«نمو» 6.36 مليارات ريال
--  الأمير سلمان بن سلطان يصل المدينة المنورة مباشراً مهام عمله أميراً للمنطقة ‎
--  نفط آخر (2-3) - خالد بن حمد المالك
--  «الميركاتو الشتوي» ينطلق اليوم ويستمر 30 يوماً
--  مجلس الحرب الإسرائيلي يبحث عقد صفقة أسرى مع حماس
--  الهيئة العامة للعقار: أكثر من 96 ألف وحدة مفروزة بمساحات تتجاوز الـ(30) مليون متر مربع خلال 2023
--  الأخضر دشن معسكره في قطر بحصة تدريب خفيفة
--  أكثر من 600 مليون ريال مجموع تبرعات الحملة الشعبية لإغاثة أهالي غزة
--  «الإحصاء»: 45.8 % من العاملين في المملكةيعملون أكثر من 40 ساعة في الأسبوع
--  رقم قياسي للوزراء المشاركين في الاجتماع الوزاري الخاص بالتعدين في الرياض
--  بوتين: روسيا "ستصبح أقوى" في 2024
--  تعرفي إليها.. فوائد تناول الأناناس على صحة الجسم
--  الموت يغيب الإعلامية المصرية كاريمان حمزة
--  Vierschanzentournee: Karl Geiger sauer, Pius Paschke rätselt – DSV-Abstimmungen nach der Qualifikation – Skisprung-Video
--  푸르지오 텃밭서 재건축 '완승' 거둔 더샵…이유 있었다
--  Dina Bolaurte: en el 2024 la prioridad será el cierre de brechas en salud y educación
--  VELIČANSTVENA SCENA Beograd na vodi zasijao kao u bajci (VIDEO)
--  إصابة شخص بحروق في حريق مخزن خردة أسفل عقار ببشتيل
--  نشرة منتصف الليل| موعد إجازة عيد الميلاد.. وفاة الإعلامية كاريمان حمزة
--  5 movies that are perfect to watch on New Year’s Eve
--  Iran releases Spaniard held for more than a year
--  أول رد من أسرة طفل فسلطيني تشوّه وجهه في غزة.. استجاب النادي الأهلي لطلبه
+-  Tweejarig kind zwaargewond door balkonbrand in Den Bosch
+-  Twee aanhoudingen in Delft na mogelijk schietincident
+-  글로벌 아이웨어 브랜드 프로젝트 프로덕트, 2024년 메인 선글라스 컬렉션 런칭
+-  카카오T, 해외 이용 급증…여행 수요 회복 입증
+-  2023'te yaraları sanatla sardık
+-  2023’e veda 2024’e merhaba
+-  Şehit diplomatın katili öldürüldü
+-  Fiyat listesi askıya çıktı
+-  New Year Fitness Resolution 2024 : జనవరి 1 అని జిమ్​ ఫీజ్ కడుతున్నారా? హెల్తీగా ఉండేందుకు జిమ్​కే వెళ్లాలా ఏంటి?
+-  CGV, 2024년 반가워'용' 캠페인 진행 "희망찬 새해 맞이하길"
+-  ESPN BET Promo Code for College Football Playoff: Get $250 Semifinal Bonus
+-  [MD인터뷰] 진종오 강원2024 조직위원장 "대회 준비 마무리 단계...청소년들 성장 디딤돌 되길"
+-  '김슬기♥' 유현철, 예비장인 앞 만취…취중진담에 '위기일발' [조선의 사랑꾼]
+-  2024년 ‘데드풀3’가 온다, 테일러 스위프트 출연 소식에 기대감↑[해외이슈]
+-  不愛讀書跟外省老伯學模具，寫下「散熱股股王」奇蹟！高中肄業台灣黑手，如何讓 AI 巨頭少不了他？
+-  PRVE FOTOGRAFIJE MASOVNE TUČE U NIŠU "Blic" saznaje: Dvojica mladića tukla jednog u haustoru: Policija zatekla polomljene flaše (FOTO/VIDEO)
+-  OPRAVDALI UGLED SRPSKOG VOJNIKA, OCENJENI NAJVIŠIM OCENAMA: Redovna zamena kontingenta Vojske Srbije u Libanu
+-  Божинов: Новата година ще е като старата, ама е нова
+-  Khi anh tôi xuất hiện ở cửa, cả nhà vỡ òa vì cảm giác sum họp trong Tết này
+-  Jarrod Gilbert: How American bikers influenced NZ street gangs
+-  Mercato - PSG : Recalé par ces cracks, Paris tient sa revanche
+-  [[신년사]조용익 부천시장, “‘원행이중(遠行以衆)’ 실천으로 부천의 미래 펼치겠다”
+-  [작년 수출 7.4%↓, 3년만에 마이너스…무역적자 99.7억달러
+-  [한동훈, “동료 시민과 대한민국 미래 만들겠다”
+-  [한덕수, ‘새해 행사 뒷정리’ 환경공무관 찾아 “고된 일에 감사”
+-  ["최근 3년간 수능 수학·과탐, 상위권서 남학생 우세"
+-  [[신년사] 송호준 에코프로 대표 “시장 승장 되려면 기술리더십 갖춰야”
+-  [尹 대통령, 현충원 방명록 "국민만 바라보며 민생경제 매진"
+-  New Year's Eve Melbourne: Woman risks losing her eye after she is hit by an illegal firework
+-  New Year 2024: દેશભરમાં લોકોએ નવા વર્ષનું કર્યું સ્વાગત, જુઓ અલગ અલગ શહેરોની તસવીર
+-  Bùi Thị Xuân Hạnh đăng quang Hoa hậu Hoàn vũ Việt Nam 2023
+-  New label you'll love
+-  Arbaaz Khan: ਅਰਬਾਜ਼ ਖਾਨ ਨੇ ਸ਼ੂਰਾ ਨੂੰ 19 ਨੂੰ ਕੀਤਾ ਪਿਆਰ, ਫਿਰ 24 ਨੂੰ ਹੋਇਆ ਵਿਆਹ, ਸੁਣੋ ਪ੍ਰਪੋਜ਼ ਕਰਨ ਦਾ ਦਿਲਚਸਪ ਕਿੱਸਾ
+-  Buratai calls for greater unity, urges rebranding
+-  이재명 "국민과 나라 지켜야 한다는 사명뿐... 총선 반드시 승리할 것"
+-  Angriffe auf Polizei, mehr als 200 Festnahmen in Berlin
+-  助理：依斯邁沒參與迪拜行動 “他出國朝聖還主動抱扎希”
+-  LG유플러스, 네트워크 장비 친환경 포장으로 탄소배출 줄인다
+-  “조립식 모듈형 솔루션, 데이터센터 가용성 높여”
+-  티피링크, AI 기반 400만화소 실내외용 CCTV 출시
+-  [네트워크 분야 평가·전망④] 네트워크·보안 융합 SD-WAN/SASE, IT 인프라 혁신
+-  കാവാലം– തട്ടാശേരി പാലം ചുവപ്പുനാടയഴിയാൻ ഇനിയുമെത്രനാൾ
+-  Réveillon : Les forces de défense et de sécurité veillent au grain
+-  ધોરણ-10 અને 12 પાસે માટે આસામ રાઈફલ્સમાં નોકરીની શાનદાર તક, આ રીતે કરો અરજી
+-  Angriffe auf Polizei, mehr als 200 Festnahmen in Berlin
+-  That's one way to start the year! Ryan Reynolds and Rob McElhenney toast 2024 by making MIDNIGHT announcement that two of Wrexham's biggest stars have signed new deals until 2027
+-  Ganjar Pranowo Berkampanye di Jawa Tengah Hari Ini, Temui Relawan hingga Pendeta
+-  2024: NILDS to focus on democracy consolidation, lawmakers’ capacity – DG
+-  Hundreds of thousands of people became Canadian citizens in 2023
+-  José Carlos González y Viviana Aroche conquistan la San Silvestre 2023
