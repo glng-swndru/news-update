@@ -1,51 +1,11 @@
 # Latest News
--  Aleksander Zniszczoł po konkursie w Garmisch-Partenkirchen: To był super skok w nowy rok!
--  New Year: Ibadan Chief Urges Citizens To Remain Steadfast In Prayers For Oyo, Nigeria
--  Szakítással indult számára az újév: véget ért a népszerű magyar énekesnő kapcsolata
--  De XRP prijs voor het einde van januari 2024, volgens AI
--  California workers are getting more sick leave and can't be fired for using marijuana outside work
--  Leao e l'idolo Ronaldo: "Posso arrivare ai suoi livelli". Su Pioli...
--  Atalanta, Gasperini sorride: esito Scalvini e visite Hien
--  Pronostici Premier League, West Ham-Brighton: l'analisi del match
--  وزارة الصحة تكشف عن عدد عمليات القلب المنفذة بالمراكز الطبية في ليبيا.
--  مكتب الصرف: قيمة صادرات السيارات تجاوزت 130 مليار درهم
--  كأس أمم إفريقيا.. الإصابة تبعد الغيني بارتي عن تشكيلة منتخب بلاده
--  بريطانيا تمنع الطلبة الأجانب من اصطحاب عائلاتهم
--  المقاومة: استهدفنا 26 آلية للاحتلال خلال 48 ساعة
--  رئيس بلدية "سديروت": خطة "غبية" للحكومة في غلاف غزة
--  Snažan potres pogodio Japan
--  Frontalzusammenstoß – ein Toter, zwei Schwerverletzte
--  „Bibisbeautypalace“ ist zurück
--  Cuba aplicará en 2024 el mayor ajuste macroeconómico en décadas
--  Mihić o Kaubojima: ‘Ima puno igrača koji su nositelji igre u klubovima, to nam treba u reprezentaciji’
--  TAC Security quiere salir a bolsa y se fija un objetivo de ingresos de 100 millones de rupias para el año fiscal 26
--  Gigante chino de vehículos eléctricos BYD aumenta 62% sus ventas en 2023
--  HSBC cierra la venta de su negocio de banca minorista en Francia
--  Politieagent ernstig gewond na mishandeling in Nijmegen
--  Ferrari-Star Carlos Sainz: So kämpft er gegen Leclerc
--  A lookahead for 2024: US elections, Paris Olympics, COP 29 and more
--  Hladni front doneo kišu i manje zahlađenje: Ovo su dani kada se početkom januara očekuje sneg u Srbiji
--  Aragua Gas cerró el 2023 con exitosos despliegues
--  في دوري” يلو”.. فوز الخلود والعين .. والفيصلي يتعثر أمام النجمة
--  Wish: O Poder dos Desejos | 5 motivos para assistir à nova animação da Disney
--  World Champion Cyclist Drove Car That Fatally Struck His Olympian Wife: Police
--  JO de Paris 2024: Diaw confiant sur la présence de Wembanyama avec les Bleus pour les Jeux
--  Mendoza no está recibiendo los fondos para medicamentos que envía la Nación
--  Oficial: Arouca apresenta Yanis Hamache como primeiro reforço do mercado de janeiro
--  Israels Oberster Gerichtshof lehnt Justizreformen ab – BBC.com
--  A 31-Unfall in Dorsten: Autos in Leitplanken, Fahrspur gesperrt, Trümmerteile auf 200 Meter
--  Mit Waffeneinsatz an Silvester gedroht – Mann festgesetzt
--  Fenerbahçe Çağlar Söyüncü'yü istiyor
--  Oznámili príčinu vraždy ugandského atléta. Polícia zadržala dvoch mužov
--  Foudroyé samedi, l‘aéroport de Brest toujours paralysé
--  Mit Waffeneinsatz an Silvester gedroht – Mann festgesetzt
--  Ани Пападопулу всяка вечер заспива със сценария на “Тревожност”
--  Workers, Pensioners’ Welfare: CYE Rates Makinde As Best Governor In Nigeria
--  Volume de emissões em Cabo Verde aumenta para 25,28 milhões de euros
--  AFCON 2023: Every previous title winner
--  121 irregular migrants nabbed in Türkiye
--  Kamu sosyal tesislerinde 2024'te uygulanacak fiyatlar belli oldu
--  Dangote Refinery receives fourth consignment of crude oil
--  رسميًا | تفعيل عضوية مصر في مجموعة البريكس
--  صلاح في قائمة أفضل عشر هدافين في الدوريات الخمس الكبرى
--  Volební souboj starců. Bojím se, že Trump ani Biden čtyři roky nevydrží, zní z USA
+-  Kocaeli'de eski eşini ve arkadaşını yaraladı
+-  İstanbul'da korku dolu anlar! Köprüye çıkıp kendini boşluğa bıraktı
+-  Fenerbahçe'den Çağlar Söyüncü hamlesi
+-  Preminuo dugogodišnji ekonom fudbalske reprezentacije Bosne i Hercegovine
+-  FANB desplegada en el Atlántico se repliega ante retirada del buque británico #1Ene
+-  De Zerbi, West Ham-Brighton: "Mitoma? Sorpresa la chiamata del Giappone"
+-  Dünyası başına yıkıldı! David de Gea için işler tam bir kabus
+-  لجنة الخدمات بمجلس الدولة تحذر “الدبيبة” من استمرار اتفاقية استثمار حقل الحمادة
+-  أزمة في صفقة انتقال مدافع أرسنال إلى ميلان
+-  מתי כריסטיאנו רונאלדו יפרוש? מאמן נבחרת פורטוגל ניסה להסביר
