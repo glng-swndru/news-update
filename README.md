@@ -1,11 +1,51 @@
 # Latest News
--  Berliner Rollheimer: Hilfe, unser Gartenparadies wird plattgemacht!
--  Yeni Şafak ve Ketebe'nin ödül gecesi: Türkiye Yazarlar Birliğinin '2023 Yılı Yazar, Fikir Adamı ve Sanatçıları Ödülleri'ni kazananlar açıklandı
--  İsrail'de büyük protestolara neden olan tartışmalı yargı reformunda iptal kararı
--  ОПАСНОСТА ОД ЦУНАМИ ПОМИНА: Над 80 земјотреси ја тресеа Јапонија, се уште тлеат пожари (ВИДЕО)
--  Flores solidarias y sus artistas
--  ¡Lo logramos! Gerardo Vargas reporta saldo blanco en Ahome durante festejos de Año Nuevo
--  ఘనంగా న్యూ ఇయర్‌ వేడుకలు
--  ఘనంగా కొత్త సంవత్సర వేడుకలు
--  బాబోయ్‌... తెగ తాగేశారు..!
--  تشواميني يوافق على طلب أنشيلوتي بتغيير مركزه
+-  "Superlega, sul principio di libertà Uefa-Fifa in fuorigioco"
+-  50 Jahre auf Panorama-Hotel: Der Sandmann ist Stammgast in Oberhof
+-  أبو عبيدة: تدمير 71 آلية عسكرية خلال 4 أيام وقتل 16 جنديا إسرائيليا
+-  Hrvatska: Raketa u oko pogodila djevojčicu, u teškom je stanju
+-  محافظ الوادي الجديد يتفقد أعمال التشطيبات بمقر نادي الهجن والفروسية
+-  İsraelin təyinatı təsdiqləndi
+-  Sud u Izraelu poništio sporni zakon koji je uveo premijer Benjamin Netanyahu
+-  Pernambucano: Náutico oficializa contratação de Paulo Sérgio
+-  Deflagración de gas en una vivienda en Anzoátegui dejó 2 muertos y 8 heridos
+-  Ognisko TKKF Omega znowu pożegnało stary rok na sportowo
+-  Zvali su je Vučićevom marionetom hrvatskih korijena: Brnabić odlazi, a Srbija ostaje neuređena država
+-  Šok u svijetu sporta: Svjetski prvak u biciklizmu ubio svoju suprugu
+-  Sunass atendió a más 123 mil usuarios de servicios de agua en 2023
+-  KONTROFANZIVA PROPALA, RUSI SU NEPOBEDIVI: Zapad priznaje da je Ukrajina na ivici poraza
+-  Uhapšena Amerikanka koja je ubila svoje troje djece
+-  Frenkie de Jong: Hayalini kurduğum kulüpteyim
+-  France :: Lions Indomptables, Le Compte A Rebours A Commencé
+-  تشكيلة نيوكاسل الرسمية أمام ليفربول
+-  Pamięć o bł. ks. Jerzym Popiełuszce
+-  وزير العدل الإسرائيلي: حكم المحكمة العليا في قضية الإصلاحات القضائية لن يثبط عزيمتنا
+-  La dura decisión que tomaron las hijas de Bruce Willis por el avance veloz de su demencia
+-  Režiser Gladiatorja in Osmega potnika prejemnik najvišjega odlikovanja
+-  Rusija se obrušila na Ukrajinu s 90 dronova
+-  Le 10 cose da sapere (e che forse non sapevate) della Serie A2 Old WIld West Giornata 17
+-  Sri Lanka raises fuel retail prices; first under new VAT hike
+-  Liverpool-Newcastle: Duelo de ano novo sem portugueses no onze
+-  الجيش الإسرائيلي يوسع نطاق هجومه في جنوب غزة
+-  Beginning of a new welfare state
+-  Medicinska sestra u Americi pacijentima ubrizgavala vodu, navodno umrlo deset osoba
+-  بوتين يهدد بتكثيف الهجمات على أوكرانيا
+-  Αντίδραση;
+-  Opel Grandland GSe: Es lebe der Sport
+-  Umfrage unter Experten: Das sollte 2024 beim Bauen und Wohnen passieren
+-  Galaxy S24: ¡estas son las ofertas de reserva!
+-  Opel Grandland GSe: Der sportliche Power-Plug-in-Hybrid im Test
+-  Netanjahuova strana Likud kritizuje rozhodnutie súdu o reforme súdnictva
+-  Νέα χρονιά, νέο σερί… (ΣΚΕΨΕΙΣ ΣΩΦΡΟΝΗ)
+-  Liverpool XI vs Newcastle: Starting lineup, confirmed team news, injury latest for Premier League today
+-  Elképesztő részletek: így szilvesztereztek a magyar sztárok - itt vannak a legújabb fotók, videók
+-  İsrail tarihinde bir ilk Netanyahu'ya yüksek mahkemeden kötü haber geldi
+-  גנץ על עילת הסבירות: "אחרי המלחמה נסדיר את מערכת היחסים בין הרשויות"
+-  تشكيلة ليفربول الرسمية أمام نيوكاسل
+-  Eric Bailly'den Beşiktaş paylaşımı: Taraftara mesaj yolladı
+-  FOTO/ Aksident në Tiranë, drejtuesi i “Benz”-it del nga rruga dhe aksidenton një tjetër automjet
+-  İsrail saldırıları sonrası iç acıtan görüntüler
+-  من ضحايا دانيال..الهلال الأحمر درنة ينتشل جثمانين خلال يومين
+-  المركز الوطني لمكافحة الأمراض يرسل تطعيمات لـ 30 بلدية
+-  Kela lopetti pelivoittojen ”ennustamisen” – päätöksen takana apulaisoikeusasiamies
+-  Tavalyi újévi fogadalmaként tanult meg svédül mostanra egy anyuka
+-  ارتفاع ضحايا الهجوم الأوكراني على بيلجورود الروسية إلى 25 شخصا
