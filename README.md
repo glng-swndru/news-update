@@ -1,51 +1,11 @@
 # Latest News
--  동해안권경제자유구역청, ‘강원경제자유구역청’ 명칭 변경
--  춘천지검 강릉지청 법무부 장관 표창 등 수상 눈길
--  في كييف.. إقرار بخسارة الحرب على عدة مستويات
--  التعليم العالي تبحث آليات زيادة أعداد الطلبة السعوديين الدارسين في الاردن
--  العثور على عداء أوغندي مقتولاً داخل سيارة
--  سعر غرام الذهب 21 بالأردن اليوم
--  هآرتس: مخاوف بإسرائيل من اتهامات الإبادة أمام محكمة العدل الدولية
--  معاريف: إسرائيل تعرض على أميركا خطة بشأن محور فيلادلفيا
--  فاتورة مياه تقتل امرأة مسنّة في إيطاليا
--  যুব বিশ্বকাপের দল ঘোষণা বিসিবির
--  Menajerler önerdi! ManU'nun yıldızı Fenerbahçe'ye
--  제37대 박노극 가평부군수 취임
--  [신년사] 임태희 경기도교육감
--  [신년사] 유승영 평택시의회 의장
--  [신년사] 이성철 파주시의회 의장
--  Anten tamir ederken canından oldu
--  Bursa'da protokol yeni yıla mesaide girdi
--  Memur ve emeklinin gözü enflasyonda! Ne kadar zam bekleniyor?
--  Türk-iş Genel Başkanı Atalay: Vergide acilen adalete ihtiyacımız var
--  Ehliyetsiz yakalanan kadın sürücünün pişkinliği pes dedirtti!
--  İstanbul'da yılın ilk günü: Otoyollar, sokaklar ve caddeler boş
--  Will 2024 be the year fake news destroys democracy?
--  Better take your vitamins
--  겨울바다에 풍덩
--  4·10 총선 100일 앞으로....제주 3개 선거구 '수성' '탈환' 놓고 격돌
--  2024’ün ilk bebeği Hatay’da dünyaya geldi
--  Velký přehled změn. Nový rok ve vaší peněžence
--  "매일 후회, 정신과 검사…죽기 살기로" 박민영, 전남친 논란 1년만 '내남결'로 복귀 [종합]
--  이건 기회야→아스널 2연패 추락…리버풀 선두 수성 '빅 찬스'
--  China Will 'Surely Be Reunified' With Taiwan: Xi Jinping In New Year Address
--  Zomato Hit With New GST Notices Worth Rs 4.2 Cr
--  New-year On Bouses Begins With Marginal Trade; IT, Finance Weighs
--  Russia Initiates Retaliatory Strikes Against Ukraine After 24 Killed In Border City
--  Indian Overseas Bank Introduces Savings Account Portability Option
--  Zomato Rings In Record-breaking New Year's Eve With Astonishing Surge In Orders
--  Bajaj Auto Records 16% YoY Surge In Total Sales For Dec '23
--  "Not Seeking Wider Conflict In Middle East": White House After US Sinks Houthi Ships In Red Sea
--  2024 & Ahead: Indian Economic Outlook
--  BEOGRAD SPAVA POSLE DOČEKA! Na ulicama prestonice ne da nema gužvi, nego nema žive duše!
--  박완수 경남지사 quot;새해, 우주항공산업 건설 본격화 할 것quot;
--  不認民調排第3 柯文哲堅稱現況是「3強鼎立」
--  Nhếch nhác đường lên thủ phủ hoa Tết ở Hà Nội
--  Vừa đăng quang, Hoa hậu Hoàn vũ Bùi Thị Xuân Hạnh đã xin lỗi, mong khán giả rộng lòng
--  Bí mật cuộc chiến đẫm máu từ lòng đất - Kỳ 2: Hầm ngầm ở bán đảo Triều Tiên hầm hập mùi thuốc súng
--  Ông Tập chúc năm mới Nga và Triều Tiên, gửi thông điệp về Mỹ - Trung
--  Công dân toàn cầu: Giấc mơ lãng mạn và có thật
--  Năm mới ước gì?
--  Tái hiện lễ ban sóc thời nhà Nguyễn
--  Nur eine Partei geht leer aus: Parteien baden in Großspenden
--  Greater accomplishments will happen in 2024 – Sanwo-Olu
+-  השחקן איאן זירינג ("בוורלי הילס 90210") הוכה באכזריות על ידי אופנוענים בכביש
+-  लोअर इर्खुवा हाइड्रोको साधारण सभा पुस २७ मा,आईपीओ निष्कासन गर्ने प्रस्ताव
+-  Årets første dag er kampdag!
+-  टेस्ट राष्ट्र अफगानिस्तानलाई यूएईले ११ रनले हरायो, टी-२० सिरिजमा १-१ को बराबरी
+-  Araç sahipleri dikkat! 2024 yılı Motorlu Taşıtlar Vergisi (MTV) belli oldu! Hangi araç kaç TL MTV ödeyecek?
+-  Bugünden itibaren hepsi zamlı! İşte 2024 yılı zamlı vergileri, trafik cezaları, cep telefonu pasaport harçları...
+-  عاجل.. إيداع الضمان الاجتماعي لشهر يناير اليوم
+-  "شؤون الأسرة" يوضح كيفية دعم الصحة النفسية لليافعين
+-  박인비·김연경·손아섭·이청용… 새해 빛날 용띠 스타들
+-  Moti për datën 1 janar, viti nis me vranësira dhe reshje
