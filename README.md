@@ -1,51 +1,11 @@
 # Latest News
--  [FOTO] Na prepunom Trgu Vatroslava Lisinskog Osječani dočekali Novu godinu
--  בניגוד לעולם: גיל הבדיקות הרפואיות לנהגים בארץ יועלה ל-75 שנה
--  "Bring you home": תמיר גרינברג מקדיש שיר חדש לחטופים בעזה
--  Dijamant Novu godinu proslavio u krugu porodice
--  Starkes Erdbeben in Japan - Warnung vor Tsunami
--  Kancelari Olaf Scholz viziton zonat e përmbytjeve në Gjermani
--  Απόλλων Λεμεσού: Καλησπέρα... 2024 με ντέρμπι και ντεμπούτο Ματσίν
--  И ПУИГ ПОЧНА ДА НАПЛАЌА ПАРКИРАЊЕ ОКОЛУ СТАДИОНОТ ВО СКОПЈЕ, ЕДЕН ЧАС Е 50 ДЕНАРИ
--  Dalmia Bharat Stock Booms 3.5% As Brokerages Remain Bullish
--  Tamil Nadu GST Authority Imposes Rs 13.83 Cr Tax Demand On Asian Paints
--  Nobel laureate Muhammad Yunus faces jail in Bangladesh court ruling
--  김천시 구성면 농가 컨테이너 화재로 전소, 인명피해 없어
--  갈림길 선 우리 경제, '청룡의 해' 2024년 용 될까 이무기로 남을까
--  જાપાનમાં 7.6ની તીવ્રતાનો ભૂકંપ, સમુદ્રકિનારે સુનામીની ચેતવણી
--  Pas-de-Calais: la Lys commence à déborder à Thérouanne
--  Başkan Kaplan, yeni yıla görevi başında girenleri unutmadı
--  Evropa nuk është muze, ja si kontinenti po ndryshon shumë më shpejt se SHBA-ja
--  تحضيرا للكان.. المنتخب الموريتاني يعسكر بتونس
--  Całonocne polowanie na „szachedy” w Sylwestra
--  Libur Kompetisi Liga 1, Pelatih Bojan Hodak Pulang ke Kroasia Bawa Jersey Persib Bandung
--  Pesme o „srećnom raskidu“ najslušanije u 2023. godini
--  Тревога цунами объявлена во Владивостоке
--  Da febbraio aumenti fino a 4,49€ per alcuni clienti Fastweb rete fissa
--  နာကျင်စရာ ၂၀၂၃ ခုနှစ်ကို ပြန်ငဲ့ကြည့်ရင်း ၂၀၂၄ ကို မျှော်ကြည့်ခြင်း
--  Gazze'yi sadece onlar andı: İki yerde yılbaşı kutlamalarına yasak
--  Sambung operasi Ipoh-Langkawi bergantung syarikat penerbangan
--  THW-Hochwassereinsatz an der Aller: Bevölkerung ist dankbar
--  ABŞ və Cənubi Koreya paytaxtları məhv olacaq – Kim Çen In açıqladı
--  Defying Odds, Spanish Maestro Rafael Nadal Resumes Battle On Court
--  Τροχαίο στη Λ. Ποσειδώνος: Αυτοκίνητο έπεσε πάνω σε προστατευτικές μπάρες
--  อย่ากลัวที่จะเจ็บ เป็กกี้ ศรีธัญญา โพสต์แรกรับปีใหม่ ไม่มีงานอยู่ไม่ได้ ไม่มีผู้ชายอยู่ได้
--  Incidentet në ndërrimin e viteve/ Autoritetet raportojnë për 2 të lënduar nga fishekzjarret
--  Silvester nach in Frankfurt: Polizei räumt Konstablerwache nach Böller-Beschuss
--  Indian singer B Praak stunned by Farhan Saeed cover of his song
--  Disney'in ilk Mickey ve Minnie Mouse karakterleri kamu malı oldu
--  İsrail ordusu: 27 Ekim'den bu yana Gazze'de 29 asker "operasyonel kazalarda" öldü
--  Japan: Major tsunami warning issued after 7.4 magnitude quake
--  البرهان: لا وقف للحرب إلا بانسحاب «الدعم السريع»
--  Bilecik'te 'Tarım Orman ve İnsan' temalı fotoğraf sergisi açıldı
--  Mưa to trái mùa làm rơi rụng hơn trăm tấn trái sầu riêng ở Tiền Giang
--  Presidentin puhe | Sauli Niinistö pitää viimeisen uudenvuoden­puheensa
--  Mardin'de taksi maganda kurşununa hedef oldu
--  ПРВИ СНИМКИ ОД РАЗОРНИОТ ЗЕМЈОТРЕС ВО ЈАПОНИЈА: знамиња се веат, автомобили како на бранови (ВИДЕО)
--  XpoSat: India launches space mission to study black holes
--  Best of the Best 2023: McCann
--  Bawa pulang RM90,000 selepas daratkan keli 7.5kg
--  "بيروت عاصمة العواصم من جديد"... إليكم توقعات ميشال حايك لعام 2024
--  حميدتي: لا نسعى للوصول للسلطة بالقوة... والحرب ستنتهي قريباً
--  لاہور ہائیکورٹ: راولپنڈی بینچ کے اطراف سے پولیس نفری اور ناکے ہٹانے کا حکم
--  वर्षान्त २०२३ : विश्व अर्थतन्त्र थलिएको वर्ष
+-  Victor Wembanyama a refermé sérieusement 2023 contre Boston : 21 points, 7 rebonds, et un dunk… Wembesque
+-  Bradley Beal efficace face au Magic : 25 points à 10/13 au tir, saison enfin lancée pour BB et les Suns ?
+-  Modena, quanti dilemmi
+-  Ketua DPRD Apresiasi Bima Arya Selesaikan Revitalisasi Masjid Agung Megah
+-  "OPROSTIĆU SVIMA KOJI SU ME POVREDILI" Stanija otkrila da li je sa Asminom dočekala 2024. godinu, a ovo joj je NAJVEĆA ŽELJA
+-  [시사일본어학원의 초단기 일본어 회화] 새해 복 많이 받으세요
+-  Đưa học trò tới Google, LG, Hyundai…
+-  Phú Quốc United Center rực rỡ đón năm mới
+-  Hàng trăm ngàn du khách về tham quan làng hoa Sa Đéc dịp năm mới
+-  Nữ sinh lớp 9 chết nghi tự tử vì bị gia đình la mắng
