@@ -1,51 +1,51 @@
 # Latest News
--  2024년 중국경제…‘침체’에서 ‘불황’으로
--  윤 대통령 “진정한 민생 정책 추진…행동하는 정부 될 것”
--  Varados, reciben el Año Nuevo; que acabe la incertidumbre es su deseo
--  Nhiều bạn trẻ ngất xỉu khi chờ xem nhạc hội chào năm mới ở Huế
--  Hải chiến trên Biển Đỏ: Hải quân Mỹ đánh chìm 3 tàu Houthi
--  Banks of the future will use AI to influence financial decisions, say experts
--  Woman Dies After Being Found on Street in Kitakyushu on New Year’s Eve; Found Bleeding From Injuries to Face, Body
--  Pelajar maut berlumba pada malam tahun baharu
--  세계 현존 최장 군주 덴마크 여왕 52년만에 퇴위
--  Berliner Polizei nimmt in der Silvesternacht zahlreiche Festnahmen vor – DW – 01.01.2024
--  경남도 신년 해맞이 새 경남시대 남해안 비전 발표
--  Sri Lanka Original Narrative Summary: 01/01
--  UMNO perlu bertegas dengan DAP, jangan ganggu sensitiviti umat Islam
--  尹대통령 “패거리 카르텔 타파…행동하는 정부될 것”
--  쿠팡, "입점 소상공인 21만명 넘어…판로개척에 6800억 투입"
--  [콘텐츠뷰] 경성크리처 "강한 신념엔 강한 책임이 뒤따른다"
--  Quang Hải mặc áo dài bảnh bao lên đường ăn hỏi Chu Thanh Huyền, sẵn sàng cho giây phút quan trọng bậc nhất cuộc đời
--  Nhân vật Bắc Đẩu thay đổi thế nào trong 20 năm lên sóng của Táo quân?
--  El índice Nifty de la India cierra el año con impresionantes ganancias y alcanza nuevos hitos
--  HSBC Continental Europe finaliza la venta de su banca minorista francesa a CCF
--  Silvester in Berlin: Polizei meldet zahlreiche Übergriffe und 200 Festnahmen
--  Chief Justice Roberts used his year-end report to ponder ethical uses of AI in law but didn't mention ethical questions circling the Supreme Court
--  El mensaje de esperanza y humor de Manu Sánchez en las campanadas de Canal Sur desde Jerez
--  Earthquake: Nepal jolts with tremors of 4.3 magnitude
--  here we go 떴다!...'제2의 리오넬 메시', 맨시티와 6년 계약!→초대형 유망주 품었다
--  [이재명 “2023년 국민에게 국가는 없었다…尹정권, 대한민국 고사시켜”
--  [사과·배 등 주요 과일 가격 안내린다…대파도 비싸
--  [“시급 1만1000원 3500명 뽑는다” ‘서울형 뉴딜 일자리' 12일까지 선발
--  [“숙소값 2~3배 내고 왔는데” 8만명 모인 부산 광안리 드론쇼 취소
--  [‘해맞이 행사 나왔다가 ‘꽈당’’ 경기지역 행사서 빙판길 낙상 등 사고 잇따라
--  [“세금 부담 때문에…” 작년 서울 아파트 증여 6년 만 최저
--  Nordkoreas Machthaber Kim befiehlt dem Militär, die USA und Südkorea „vollständig zu vernichten“, wenn es dazu provoziert wird
--  2024년 3월 중국 광저우서 제53회 CIFF 2024 개최
--  Vekic clinches marathon match
--  Vekic clinches marathon match
--  Alex Scott Flaunts Toned Abs and Cuddles with Jess Glynne on Winter Getaway
--  Kakek 90 Tahun di Pundong Ditemukan Meninggal Dunia di Kamar Mandi
--  Jahreswechsel: Ausgelassene Silvesterfeier – einige schwerwiegende Zwischenfälle
--  Sarawak govt may take over more major organisations this year, says Premier
--  Reliance Industries Becomes First in India to Use Chemical Recycling for Circular Polymers
--  국민의힘 "물러설 곳 없다…총선 승리하는 해 돼야"(종합)
--  Hoy no circula lunes 1 de enero 2024: Estos son los autos que no pueden salir en CDMX y Área Metropolitana del Valle de México
--  Peperiksaan bertulis SPM 2023 bermula 30 Januari
--  Killer Mom Kimberlee Singler Arrested in United Kingdom 4,000 Miles from Colorado Home following Discovery of Children’s Bodies
--  Meet man behind Rs 39000 crore company, Mukesh Ambani-led Jio's partner to make...
--  From Katrina Kaif to Subhash Ghai, Bollywood celebs extend New Year wishes to fans
--  Earthquake: Nepal jolts with tremors of 4.3 magnitude
--  Bundesliga: Hitzfeld schwärmt von Alonso und Bayer: „Ein Vorbild“
--  영국도 후티 반군 공격 검토
--  Iran oslobodio Španca uhapšenog pre 14 meseci zbog posete grobu Mahse Amini
+-  4월 총선은 운동권 대 비운동권 ‘최후의 격돌’
+-  Märchenhafter Jahresausklang auf Schloss Rochsburg
+-  Akciğer kanseri tedavisi gören genç kaldırımda ölü bulundu
+-  নিজেকে ক্ষমা করে দিলাম: চমক
+-  총선 D-100hellip;한동훈 quot;계산 없는 선의로quot; vs. 이재명 quot;크고 단단한 하나quot;
+-  quot;시대가 마음에 안 들더라도 무기를 놓지 말자quot;
+-  尹대통령 quot;이권middot;이념 기반 패거리 카르텔 반드시 타파하겠다quot;
+-  갤럽 차기 대통령감 선호도hellip;한동훈 24% vs.이재명 22%
+-  TFF Başkanı Mehmet Büyükekşi'den yeni yıl mesajı
+-  Jets score twice in third to beat Wild 3-2, spoil Fleury's 1,000th NHL game
+-  Meer dan 230 arrestaties in Berlijn, vijftien agenten gewond
+-  Không đảm bảo cơ cấu số lượng thành viên Hội đồng quản trị, TRA bị phạt tiền
+-  65.000 deelnemers verwacht bij jubileumeditie nieuwjaarsduik
+-  김건희가 말했다고... "저를 보호해 주실 수 있나요"
+-  Tourism Ministry channels RM2m more to stimulate Melaka’s VMY2024 promotion
+-  הונאת השכפ"צים: בן 20 מחולון חשוד שעקץ חיילים הנלחמים בעזה ובני משפחותיהם
+-  ĐT Việt Nam có duyên nợ đến mức nào với ĐT Indonesia trong năm 2024?
+-  Hull City: Transfer ins and outs - January 2024
+-  경남도 우수유출저감시설 김해 진영 등 4곳 758억원 선정
+-  Life | Less is more for 2024: Expert talks 'skinimalism' and other beauty trends you need to know
+-  Xu thế dòng tiền: Hiệu ứng tháng Giêng, thị trường sẽ bùng nổ thành công?
+-  이선균 협박해 5천만원 뜯은 협박범, “전과6범 유흥업소 실장과 사이 틀어지자 마약 제보”[MD이슈]
+-  Centre rejects as 'baseless' Bhagwant Mann's criticism for excluding Punjab tableau from R-Day parade
+-  최윤영, 우수상 수상→'환상연가 특별출연…"더 열심히 하란 의미, 힘 된다"
+-  Nod to rename Nemom, Kochuveli railway stations
+-  How do you get rid of attachment to someone you love so much? Treatment of attachment to a person in psychology
+-  В подконтрольном Киеву Херсоне снова прозвучали взрывы
+-  ‘What you see is what you get’: David Warner happy to have a beer with his critics, reflects on incredible international career
+-  City of Cape Town load shedding schedule – MONDAY
+-  CGTN: Jak čínská modernizace přináší světu nové příležitosti
+-  Raheem Anthony scores 17 to lead Tommies over Kangaroos 77-56
+-  Người trẻ sẽ chiếm lĩnh sách vở, văn chương
+-  Mua bảo hiểm ô tô nhưng công ty bảo hiểm chần chừ không bồi thường
+-  Giá gas tăng nhẹ ngày đầu năm 2024
+-  Kích thích huyệt tay đơn giản trị các chứng hoa mắt, chóng mặt thường gặp
+-  Bình Định rộn ràng chào đón những du khách đầu tiên xông đất năm mới
+-  Hiện tượng kinh tế, văn hóa toàn cầu Taylor Swift
+-  “돈 내고 써라”, 생성형 AI 시대 저작권료 지불 논의 본격화
+-  Periyar varsity on radar, now for scam in govt scheme
+-  젤렌스키 "더 좋은 내일은 저절로 오지 않는다"…신년사
+-  PM Modi Wishes Happy New Year To Everyone: पंतप्रधान नरेंद्र मोदी यांनी भारतीयांना दिल्या नवीन वर्षाच्या शुभेच्छा,पाहा ट्वीट
+-  نیا سال۔۔۔نئی امیدیں: پاکستان میں 2024ء کا پہلا سورج طلوع
+-  말바꾼 세입자 때문에 깨진 아파트 매매…대법 "잔금 지급 거절 정당할 수도"
+-  작년 99.7억弗 무역적자지만…12월 '수출·수지·반도체' 올해 최대(종합2보)
+-  Đừng nghĩ chỉ tiết kiệm mới làm bạn thoát nghèo, đây mới là 5 thói quen cần duy trì để dư được 100 triệu đầu tiên ở 2024
+-  A year when state’s health sector was severely tested, and survived
+-  Biden revela su propósito de Año Nuevo
+-  尹, 현충원 참배 "국민만 바라보며 민생경제 매진"
+-  Kate Candela preocupa a sus fans tras descompensarse en pleno show: “Mi cuerpo no resistió”
+-  특허청, 2일부터 ‘발명유공 포상’ 및 ‘올해의 발명왕’ 신청 접수
