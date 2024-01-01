@@ -1,51 +1,51 @@
 # Latest News
--  이재명 “尹정권, 대한민국 고사시켜…총선 승리로 국민·나라 지켜야”
--  চাঁদপুরে অজ্ঞাত এক নারীর মরদেহ উদ্ধার
--  Liverpool - hình mẫu cho Newcastle
--  बजारीकरण गर्न सुन्तला महोत्सव
--  이낙연 "기득권 유지 세력과 한판승부"…창당 의지 거듭 강조
--  كيف يؤثّر الضغط الجوي المنخفض على الحالة الصحية للإنسان؟
--  Die Farbe des Lichts hat keinen Einfluss auf Schlafmuster oder die innere Uhr • Earth.com
--  사과 · 배 등 주요 과일 새해도 계속 비싸다
--  이시아, 사랑스러운 미소
--  유이, 고혹적인 블랙
--  Lotto-Millionär tot gefunden – dramatische Wende nach großem Gewinn
--  Lotto-König Chico plötzlich weg vom Luxus – „Nur das Nötigste zum Leben“
--  ZDF unterbricht „Helene Fischer Show“: „Haben einen Fehler gemacht“
--  Annalena Baerbock postet nacktes Körperteil – dann wird es eklig
--  FC Schalke 04: Wilmots-Hammer? Ex-S04-Trainer ist sich sicher – „Bringt gewisse Qualifikation mit“
--  4 điều người EQ cao KHÔNG BAO GIỜ nói vào ngày đầu năm mới, kiêng kỵ cẩn thận không gặp xui!
--  사과 · 배 등 주요 과일 가격 강세 이어진다…대파도 비싸
--  Athbhliain 2024
--  철도 폭파에 요인 암살…교착 국면 우크라전쟁서 게릴라전 강화
--  बुटवल–गोरुसिङे सडक चार लेनको
--  So verhindern Sie, dass Hacker Ihr Android-Gerät hacken und Bankdaten stehlen
--  Año Nuevo: cuál es su origen, qué significa y por qué no siempre se celebró el 1° de enero
--  বিএনপি ও সমমনাদের বিভিন্ন কর্মসূচি আজ
--  Ponte Preta encaminha permanência de Gabriel Santiago em 2024
--  2023's Financial Roller Coaster: Experts Anticipate 2024 Opportunities
--  Công ty lữ hành lớn nhất nước đạt doanh thu kỷ lục 1.435 tỷ trong quý 4/2023
--  Thị trường hân hoan vì S&P 500 mấp mé ngưỡng cao nhất mọi thời đại, Phố Wall lắc đầu: Vì sao?
--  ชาวเชียงใหม่ ร่วมทำบุญตักบาตร ในวันปีใหม่ 2567
--  সকালেই পড়ুন আলোচিত ৫ খবর
--  चार दिनपछि भेटिए डुम्रेबाट सम्पर्कविहिन भएका विदेशी पर्यटक
--  Học mẹ cách tiết kiệm bằng hình thức mua vàng, đôi vợ chồng U40 mua nhà, mua xe sau 12 năm
--  울진 다세대주택서 불…70대 · 40대 부자 사망
--  টিভিতে আজকের খেলা
--  “Haciendo el bien”: el mensaje de AMLO para recibir Año Nuevo
--  لينوفو تكشف عن حاسوب Xiaoxin Pro 27 إصدار 2024
--  "니들이 펩을 알아?"…'UCL 우승 직후' 펩이 로드리에게 전한 말→로드리의 '반발', 무슨 일?
--  데이트 폭력 의심 현장 출동한 김성주·안정환, '일촉즉발' [시골경찰]
--  대한항공, 2024년 새해 첫 고객 맞이하며 순항 기원
--  '1조 3314억' 오타니 & 야마모토 듀오 만난다…日 국대 사령탑, 벌써 국제대회 준비→ML 캠프 시찰 예정
--  레전드는 달랐다…동방신기, 20주년 단독 콘서트 '내공 大폭발'…"항상 믿어줘 감사"
--  Maharashtra के पालघर में बच्ची के साथ दुष्कर्म करने वाले ट्रक चालक को 20 साल की जेल
--  עם כניסת השנה האזרחית החדשה: אזעקות בדרום, בשפלה ובמרכז
--  겨울방학, 롯데월드에 가면 ‘35주년 셀러브레이션 파티’
--  West Bengal : माओवादी गतिविधियों से संबंधित मामलों में वांछित व्यक्ति बीरभूम में गिरफ्तार
--  वरिष्ठ आईपीएस अधिकारी सारंगी ने ओडिशा के कार्यवाहक डीजीपी का कार्यभार संभाला
--  축포와 대포…같은 날 다른 풍경 지구촌 새해맞이
--  इंद्रेश कुमार ने मुसलमानों से समारोह के दौरान ‘श्री राम, जय राम, जय जय राम’ जपने की अपील की
--  Haryana : निर्माणाधीन मकान की छत ढ़ह जाने से दो श्रमिकों की मौत, एक मजदूर गंभीर रूप से घायल
--  [신년사] 남한권 울릉군수, quot;지혜와 용기 한 데 모아야 할 것quot;
--  울진 다세대 주택 화재...2명 사망 1명 부상
+-  2024년 중국경제…‘침체’에서 ‘불황’으로
+-  윤 대통령 “진정한 민생 정책 추진…행동하는 정부 될 것”
+-  Varados, reciben el Año Nuevo; que acabe la incertidumbre es su deseo
+-  Nhiều bạn trẻ ngất xỉu khi chờ xem nhạc hội chào năm mới ở Huế
+-  Hải chiến trên Biển Đỏ: Hải quân Mỹ đánh chìm 3 tàu Houthi
+-  Banks of the future will use AI to influence financial decisions, say experts
+-  Woman Dies After Being Found on Street in Kitakyushu on New Year’s Eve; Found Bleeding From Injuries to Face, Body
+-  Pelajar maut berlumba pada malam tahun baharu
+-  세계 현존 최장 군주 덴마크 여왕 52년만에 퇴위
+-  Berliner Polizei nimmt in der Silvesternacht zahlreiche Festnahmen vor – DW – 01.01.2024
+-  경남도 신년 해맞이 새 경남시대 남해안 비전 발표
+-  Sri Lanka Original Narrative Summary: 01/01
+-  UMNO perlu bertegas dengan DAP, jangan ganggu sensitiviti umat Islam
+-  尹대통령 “패거리 카르텔 타파…행동하는 정부될 것”
+-  쿠팡, "입점 소상공인 21만명 넘어…판로개척에 6800억 투입"
+-  [콘텐츠뷰] 경성크리처 "강한 신념엔 강한 책임이 뒤따른다"
+-  Quang Hải mặc áo dài bảnh bao lên đường ăn hỏi Chu Thanh Huyền, sẵn sàng cho giây phút quan trọng bậc nhất cuộc đời
+-  Nhân vật Bắc Đẩu thay đổi thế nào trong 20 năm lên sóng của Táo quân?
+-  El índice Nifty de la India cierra el año con impresionantes ganancias y alcanza nuevos hitos
+-  HSBC Continental Europe finaliza la venta de su banca minorista francesa a CCF
+-  Silvester in Berlin: Polizei meldet zahlreiche Übergriffe und 200 Festnahmen
+-  Chief Justice Roberts used his year-end report to ponder ethical uses of AI in law but didn't mention ethical questions circling the Supreme Court
+-  El mensaje de esperanza y humor de Manu Sánchez en las campanadas de Canal Sur desde Jerez
+-  Earthquake: Nepal jolts with tremors of 4.3 magnitude
+-  here we go 떴다!...'제2의 리오넬 메시', 맨시티와 6년 계약!→초대형 유망주 품었다
+-  [이재명 “2023년 국민에게 국가는 없었다…尹정권, 대한민국 고사시켜”
+-  [사과·배 등 주요 과일 가격 안내린다…대파도 비싸
+-  [“시급 1만1000원 3500명 뽑는다” ‘서울형 뉴딜 일자리' 12일까지 선발
+-  [“숙소값 2~3배 내고 왔는데” 8만명 모인 부산 광안리 드론쇼 취소
+-  [‘해맞이 행사 나왔다가 ‘꽈당’’ 경기지역 행사서 빙판길 낙상 등 사고 잇따라
+-  [“세금 부담 때문에…” 작년 서울 아파트 증여 6년 만 최저
+-  Nordkoreas Machthaber Kim befiehlt dem Militär, die USA und Südkorea „vollständig zu vernichten“, wenn es dazu provoziert wird
+-  2024년 3월 중국 광저우서 제53회 CIFF 2024 개최
+-  Vekic clinches marathon match
+-  Vekic clinches marathon match
+-  Alex Scott Flaunts Toned Abs and Cuddles with Jess Glynne on Winter Getaway
+-  Kakek 90 Tahun di Pundong Ditemukan Meninggal Dunia di Kamar Mandi
+-  Jahreswechsel: Ausgelassene Silvesterfeier – einige schwerwiegende Zwischenfälle
+-  Sarawak govt may take over more major organisations this year, says Premier
+-  Reliance Industries Becomes First in India to Use Chemical Recycling for Circular Polymers
+-  국민의힘 "물러설 곳 없다…총선 승리하는 해 돼야"(종합)
+-  Hoy no circula lunes 1 de enero 2024: Estos son los autos que no pueden salir en CDMX y Área Metropolitana del Valle de México
+-  Peperiksaan bertulis SPM 2023 bermula 30 Januari
+-  Killer Mom Kimberlee Singler Arrested in United Kingdom 4,000 Miles from Colorado Home following Discovery of Children’s Bodies
+-  Meet man behind Rs 39000 crore company, Mukesh Ambani-led Jio's partner to make...
+-  From Katrina Kaif to Subhash Ghai, Bollywood celebs extend New Year wishes to fans
+-  Earthquake: Nepal jolts with tremors of 4.3 magnitude
+-  Bundesliga: Hitzfeld schwärmt von Alonso und Bayer: „Ein Vorbild“
+-  영국도 후티 반군 공격 검토
+-  Iran oslobodio Španca uhapšenog pre 14 meseci zbog posete grobu Mahse Amini
