@@ -1,11 +1,51 @@
 # Latest News
--  المحكمة العليا الإسرائيلية تبطل عنصرًا رئيسيًا في الإصلاحات القضائية
--  جيش الاحتلال: السحب الجزئي لقواتنا من غزة لتخفيف الأعباء الاقتصادية
--  الحلقة المفرغة: الاكتئاب سبب ونتيجة للتوتر
--  2024년 청룡의 해, 00년생 용띠 아이돌 41인의 새해 소망
--  '감독 퇴장에도' 한국전력, 대한항공에 역전승​…女 정관장도 4연패 탈출
--  "혹시나 해서" '새해 첫날' 일감 찾아 나선 일용직 노동자들
--  치열해지는 '尹 명예훼손' 수싸움…'허위 비방' 입증할 검찰 예봉은
--  Wander Franco 'arrested in Dominican Republic after interrogations by prosecutors over alleged relationship with a minor... with MLB star to go before a judge THIS WEEK'
--  كيف يفكر الأغنياء؟ "مليونيرة شابة تحدد 4 قواعد قد يجعلوك مليونير"
--  Sports players who are best in bed revealed with a surprising winner — where does yours rank?
+-  Matić blizu potpisa za Novi Pazar
+-  "Pričaću deci da sam bio trener Partizana i Žalgirisa"
+-  Presidência russa do BRICS definirá estrutura para novo status de Estado “parceiro”, diz Putin
+-  Jenni Hermoso anuncia su fichaje por Tigres 12 horas antes de declarar
+-  Jättesköldpaddan Jonathan fyller 191 år – är världens äldsta landdjur
+-  El Gobierno autorizó a exportar los “cortes populares” de carne prohibidos durante la gestión anterior
+-  جيش الاحتلال يزعم أن سحب القوات من غزة لتخفيف الأعباء الاقتصادية
+-  Potentially dangerous products that were recalled in 2023
+-  Cruzan con la ilusión de iniciar el año nuevo en EU
+-  El argumento más ambicioso de Trump por la 'inmunidad absoluta'
+-  Analiza: Pse viti 2024 do të ripërcaktojë gjeopolitikën? Zgjedhje në më shumë se 70 vende të botës
+-  Disney On Steamboat Willie In Public Domain
+-  New Year can bring better sleep at night if you follow these 9 smart steps
+-  Breakthroughs in Space Exploration: Unveiling the Cosmos in 2023
+-  Kritično na istočnim granicama Rusije! Svet šokiran opasnim manevrom Ukrajine, hitno se oglasio Medvedev!
+-  Εύβοια: Πρόσκρουση δεξαμενόπλοιου με σημαία Τουρκίας στο Βαθύ Αυλίδας - Συνελήφθη ο πλοίαρχος
+-  Макрон пообещал Японии помощь в ликвидации последствий землетрясений
+-  IRPF: 10% dos contribuintes concentram 51% da renda no Brasil
+-  Одна история на двоих
+-  NFL MVP odds: Lamar Jackson lapping the field after monster win over Dolphins
+-  LIVE Premier League | Isak reageert razendsnel en zet Newcastle weer naast Liverpool
+-  Σε εορταστική ατμόσφαιρα ο Δήμαρχος Πειραιά Γιάννης Μώραλης έκοψε την παραδοσιακή Βασιλόπιτα
+-  Sismo de magnitud 4.1 sacude al sur de California
+-  La Plata: un adolescente de 14 años volvía de la quema de muñecos y lo mataron de un balazo
+-  Axarquía Welcomes First Baby of 2024
+-  Gvardiol prvom objavom u 2024. pridobio velike simpatije: ‘Podsjetio bih na jednu stvar…’
+-  코로나19 백신 사망 예방 효과 '지난해 8600명 이상'
+-  5기 1차년도 '전문병원' 94개 지정‥기대했던 '반전'은 없었다
+-  지난해 의약품 수출액, 대폭 감소…바이오·헬스, 두 자릿수 이상 줄어
+-  프롤리아 시밀러 각축전, 앞서가는 셀트리온 쫓아가는 삼바에피스
+-  의협 회장 선거의 해 밝았다…신년 메시지는 '뭉치자'
+-  제5기 상급종합병원, '45+3-1=47'…경남동부·경기남부 확대
+-  세계 최대 가전 전시회 CES 2024서 헬스테크 키워드는 '개인화'
+-  글루카곤을 억제하니 살이 빠지더라…당뇨에서 비만까지 이어진 효과
+-  AOSIMAN ASM-156FCC: δεύτερη οθόνη για PC, full HD, 16άρα με 99€!
+-  El desgarrador mensaje de la madre de Tomasito en Año Nuevo: “Duele cómo pasa el tiempo y nada avanza en tu lucha”
+-  القادسية يحتفي بعام الإبل 2024
+-  De Gabigol a lendas do Flamengo e até rivais: personalidades do futebol se despedem de Denir
+-  Taylor Swift, Travis Kelce share passionate new year's kiss
+-  الإبعاد من المشاركة في بطولة "غلوري" يغضب المقاتل المغربي جمال بنصديق
+-  مسؤول مستوطنات: الحكومة تحاول رشوة المستوطنين للعودة لغلاف غزة
+-  Tigres da la bienvenida a Jenni Hermoso
+-  Синдром самозванца
+-  ما حكم الطلاق عبر الهاتف.. وهل يحتاج إلى شاهدين؟
+-  في يناير خلال ٣٧ سنة .. طريف تسجل أعلى تكرار لانخفاض درجات الحرارة
+-  عاجل.. حساب المواطن يجيب عن حالة نادرة بشأن المطلقة.. كيف تستفيد من الدخل الشهري؟
+-  أفعى مميتة تقتحم مباراة .. ماذا حدث؟
+-  برواتب ٧ آلاف ريال..بدء التقديم في برنامج تدريب منتهي بالتوظيف بالهيئة السعودية للتخصصات الطبية
+-  دراسة تحذر: قلة الحركة تزيد معدلات إصابة الأطفال بأمراض خطيرة
+-  Irã implanta no Mar Vermelho navio de guerra armado com mísseis de cruzeiro
