@@ -1,51 +1,51 @@
 # Latest News
--  [전북 “128년 만에 ‘전북특별자치도’로 바뀐다”
--  [20년 만에 中 앞지른 美 수출…무역 판이 뒤집혔다
--  [이복현 금감원장 "부실기업에 자기책임원칙 엄격 적용"[신년사]
--  [“수능 직후 사촌오빠가 성폭행”…강간범 몰렸다가 ‘무죄’ 받은 이유
--  결국 헤어지는 이낙연, 1월 4일께 신당 창당 선언할 듯
--  '김건희 특검법'에 尹 거부권 행사 말아야 65%hellip;거부권 행사해야 25%
--  [호남대 이효철 교수, “시민 안전문화 기여” 광주시장 표창
--  ‘신도 성폭행’ 만민중앙교회 이재록 목사, 형 집행정지 중 사망
--  Stakeholders laud NSC over planned Nasarawa dry port
--  Aanvallen op Oekraïense steden in nieuwjaarsnacht
--  Brandweer blust meerdere woningbranden tijdens nieuwjaarsnacht
--  معروف یوٹیوبر اقراء کنول بڑی مشکل میں پھنس گئیں
--  Чиқиндилар билан боғлиқ ишларнинг сифати янада яхшиланади (+видео)
--  ‘月소득 213만원 이하’ 노인 1인 가구 기초연금 받는다
--  Profil Pemain AS Roma Leonardo Spinazzola yang Diincar Galatasaray
--  קין כעס על ההחמצות. ייני: "הצוות השיב לנו מה שאבד"
--  כמו יין טוב: צפו בכל השערים והבישולים של ערן זהבי העונה בליגה
--  Θρήνος με το νέο έτος… Ξεκληρίστηκε οικογένεια σε τροχαίο στη Λεμεσό – 4 νεκροί, ο ένας ανήλικος (pics)
--  오늘부터 범죄자 머그샷 공개… ‘이선균 협박녀’ 공개될까
--  Ncube’s Cowdray Park projects in limbo after Zanu PF bags seat
--  Mehrere Verletzte durch Pyrotechnik und weitere Vorfälle
--  ڈنمارک کی ملکہ نے تخت و تاج چھوڑنے کا اعلان کردیا
--  کاغذات نامزدگی مسترد ہونے کیخلاف اپیلوں پر سماعت آج ہوگی
--  The ‘once-only opportunity’ to expand Australia’s size by almost 50 per cent
--  The ‘once-only opportunity’ to expand Australia’s size by almost 50 per cent
--  The ‘once-only opportunity’ to expand Australia’s size by almost 50 per cent
--  The ‘once-only opportunity’ to expand Australia’s size by almost 50 per cent
--  Lãnh đạo Đài Loan gửi thông điệp năm mới tới Trung Quốc đại lục
--  Sinh viên khiếm thị luôn phá bỏ sự e ngại để đóng góp cho cộng đồng
--  Làm sao luôn đầy năng lượng, sức khỏe dồi dào trong năm mới?
--  280 du khách xông đất Đà Nẵng đầu năm
--  김민재가 평가하는 노이어는? “기대했던 것보다 훨씬 좋은 선수야…끊임없이 밀어붙이고 명확한 명령을 내려”
--  Raketenalarm in Israel zu Neujahrsbeginn
--  Polis misshandlad i Varberg
--  Raketenalarm in Israel zu Neujahrsbeginn
--  อำเภอสูงเม่น ประกอบพิธีทำบุญตักบาตร วันขึ้นปีใหม่
--  CPI Ramakrishna: ఎన్నికల రణరంగంలో ప్రజలే పాలకులుగా గెలవాలి
--  İsrail'den Gazze'de yerinden edilen Filistinliler için "Tony Blair" planı
--  විපක්ෂ නායකගේ නව වසරේ සුබපැතුම
--  한동훈 "계산 없는 선의를 정교한 정책으로 준비할 것"
--  Российские Су-25 на Краснолиманском направлении поразили технику ВСУ
--  Theater in Plaffeien: Durcheinander im Liebesglück
--  Johor pertimbang sedia kediaman untuk penuntut di Jordan
--  4500 husstander i Agder er uten strøm
--  ‘Beyond heartbroken’: Family of Brit mum & son killed in avalanche while skiing on Alps left with ‘hole in our lives’
--  Jet Israel Gempur Gaza, Dibalas Hamas dengan Tembakkan Roket
--  29.643 Wisatawan Berkunjung ke Parangtritis pada Malam Pergantian Tahun
--  Bieži piemirsts veselības aspekts, kas var ietekmēt pašsajūtu un mūža ilgumu
--  OPPO Find X7 และ OPPO Find X7 Ultra ถูกปล่อยภาพหลุดเครื่องจริงออกมาแล้ว
--  पिछले सप्ताह में 100 से अधिक फ़िलिस्तीनी आतंकवादी मारे गए : नेतन्याहू
+-  1인가구 노인, 월 소득 213만원 이하면 기초연금 받는다…부부는 340만원
+-  금병산 오른 김진태 지사 “2024년 미래산업 글로벌도시 도약의 원년”
+-  평창군 지난해 재해예방사업 추진 전국 우수 지자체 선정
+-  [오피셜] '선제골 후 햄스트링 부상→캡틴 SON 품에서 눈물'...토트넘 '핵심 MF' 쓰러졌다, 네이션스컵 출전도 불투명
+-  한소희, 새해인사 "올해도 열심히 노저어 봅시다, 쉴 땐 쉬고!" [MD★스타]
+-  So bunt wird im Vogtland gefeiert: Worauf wir uns 2024 freuen können
+-  Markalar fiyatları değiştirmek için harekete geçti
+-  Atıktan ekonomiye 100 milyar TL katkı
+-  Bu kadarı pes dedirtti! Ev sahiplerinin 'IBAN' oyunu ortaya çıktı
+-  Başkan Erdoğan: Asıl çıkışımız 2024'te olacak
+-  바르사 깜짝 결단! 칸셀루 완전 영입 위해 ‘성골 수비수’와 스왑딜 추진
+-  Sydney apartment building on fire, resident badly injured
+-  Myki Fares, Road Tolls & Property Taxes Are All Going Up In Victoria & I Hate 2024 Already
+-  12 เส้นทางกลับกทม.รถยังวิ่งฉิว ยกเว้น "ถนนมิตรภาพ" รถเริ่มแน่น
+-  LGD, ‘CES 2024’서 SDV 대응 차세대 전장 솔루션 공개
+-  Bélgica recibe el testigo de España en la Presidencia de la UE con unas elecciones a la vista
+-  뮤지컬 '아가사', 로이역에 김경수 추가 캐스팅
+-  Ўзбекистон ва Қозоғистон 2024 йил учун режаларни муҳокама қилди.
+-  Педагогларга малака тоифаларини беришнинг янги тартиби белгиланди.
+-  Meteoroloji'den son dakika uyarısı: Tüm yurdu etkisi altına alacak!
+-  Farming support scheme motion voted down
+-  광복회 "정신 나간 정신전력교재, 신원식 인식 반영 아닌가 의구심"
+-  CBIC notifies extension of Deadline: Authorised Sea Carriers Can Submit Cargo Declarations till March 31, 2024
+-  Von der Leyen felicita a España por su «exitoso» trabajo durante la Presidencia de la UE
+-  제천·단양에서 서울까지 KTX로 ‘한번에’
+-  “정치권 민생에 집중” “승진과 연봉 상승” “친구들과 추억 쌓기”… 충청민의 소원 꾸러미
+-  지역대학, 지역소멸 위기에 맞서는 ‘선봉장’ 맡았다
+-  North Korea's Kim orders military to 'thoroughly annihilate' US, South Korea if provoked
+-  Yet another politically charged year ahead
+-  Sargento de la policía de NY mata su esposa, sus 2 hijos y se suicida
+-  Vijay’s 68th film titled ‘The Greatest of All Time’
+-  [신년사] 최기문 영천시장 "비룡승운의 기를 모아 영천 발전의 큰 획 그을 것"
+-  Mohsin Naqvi's gift for people on New Year
+-  Iran frees Spaniard Santiago Sánchez Cogedor after a year of detention
+-  Irán libera al español Santiago Sánchez Cogedor tras un año de detención
+-  La Toya pokazala, da ima še en talent, s katerim si služi kruh
+-  Criollo Frankie Montás firma con los Rojos por un año y US$16 MM
+-  एक रात में गायब हो गया तालाब…बिहार के दरभंगा में अजीबोगरीब मामला
+-  Happy New Year 2024: नए साल पर सीएम ने किया रुद्राभिषेक, प्रदेशवासियों के सुख, समृद्धि की प्रार्थना की
+-  EEUU retirará su portaaviones del Mediterráneo en próximos días
+-  AP PHOTOS: Dancing with the bears lives on as a unique custom in Romania
+-  Road Accident: নতুন বছরের শুরুতেই ৪ টি দুর্ঘটনা কলকাতা সহ-জেলায়, আহত DSP-সহ ৪ পুলিশকর্মী
+-  4 Cara untuk Membuat Pola Makan Anda Lebih Hijau dan Sehat
+-  (지면)3조 클럽 벌써 10개…불황에도 식품사 실적 날았다
+-  بالفيديو- هل ينهي برادلي كوبر مسيرته في التمثيل بعد بدئه في عمله الجديد..إليكم التفاصيل
+-  بعد إمتناعها عن حضور الـ ميت غالا منذ عام 2007.. جينيفر غارنر تكشف لأول مرة سبب هذا القرار
+-  Najmanj toliko višja bo minimalna plača
+-  What’s Popular On Streaming Now
+-  VIDEO : नए साल पर सीएम ने किया रुद्राभिषेक
+-  Ντίλερ του Μοντ Παρνές αποκαλύπτει ιστορίες τρέλας από το ναό του τζόγου: Ο τραπεζίτης με το τάπερ που έπεσε νεκρός στη ρουλέτα
