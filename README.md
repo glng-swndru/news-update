@@ -1,11 +1,11 @@
 # Latest News
--  Naisten "NHL" käynnistyi - kanadalainen teki historiaa
--  Az izraeli legfelsőbb bíróság megsemmisítette a felháborodást keltő Netanjahu-féle igazságügyi reform egyik elemét
--  Kate Hudson wows fans with totally unexpected talent - see video here
--  Funding slashed for loss-making Scottish National Investment Bank as part of widespread cuts
--  Labour Party faults Tinubu’s New Year message to Nigerians
--  Luke Littler now FAVOURITE to win World Darts Championship after Michael van Gerwen dumped out in worst loss in 13 year
--  لهذه العوامل حققت أسعار الذهب عالمياً مكاسب سنوية قوية في 2023
--  استشهاد أسير فلسطيني في سجن مجدو
--  مصدر حوثي ينفي وقوع اشتباكات مع سفينة حربية أميركية
--  Shumë punëtorë në vend punojnë jashtë orarit dhe nuk u regjistrohen orët
+-  المحكمة العليا الإسرائيلية تبطل عنصرًا رئيسيًا في الإصلاحات القضائية
+-  جيش الاحتلال: السحب الجزئي لقواتنا من غزة لتخفيف الأعباء الاقتصادية
+-  الحلقة المفرغة: الاكتئاب سبب ونتيجة للتوتر
+-  2024년 청룡의 해, 00년생 용띠 아이돌 41인의 새해 소망
+-  '감독 퇴장에도' 한국전력, 대한항공에 역전승​…女 정관장도 4연패 탈출
+-  "혹시나 해서" '새해 첫날' 일감 찾아 나선 일용직 노동자들
+-  치열해지는 '尹 명예훼손' 수싸움…'허위 비방' 입증할 검찰 예봉은
+-  Wander Franco 'arrested in Dominican Republic after interrogations by prosecutors over alleged relationship with a minor... with MLB star to go before a judge THIS WEEK'
+-  كيف يفكر الأغنياء؟ "مليونيرة شابة تحدد 4 قواعد قد يجعلوك مليونير"
+-  Sports players who are best in bed revealed with a surprising winner — where does yours rank?
