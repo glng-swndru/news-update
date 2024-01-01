@@ -1,51 +1,51 @@
 # Latest News
--  경북도. 2024년 난임부부 시술비 전폭 지원
--  Japonya'da 7.4 büyüklüğünde deprem meydana geldi: Tsunami alarmı verildi
--  Sivasspor'da Bülent Uygun dönemi
--  Ersin Çelik'ten Gazze yürüyüşünde önemli mesajlar: Şehitlerimizin acısıyla Filistin'den de vazgeçmeyeceğiz terörle mücadeleden de
--  בנק לאומי נגד הפועלים: מי יפשל בתחזית הריבית?
--  דרעי יצליח לדחות פרסום החלטת בג"ץ? זה החוק אותו יחוקק
--  רייטינג: הפטריוטים הביכו את רביב דרוקר, הכוכב הבא מדשדשת
--  מגישת הטלוויזיה באמירה הזויה בשידור: "תוכל לחלוב לי את הפטמות?"
--  אורנה בנאי סופגת איומים על חייה: "מאחלים לי דום לב"
--  طقس : استقرار في العوامل الجوية هذا اليوم على أغلب مناطق البلاد .
--  السفير الألماني : أتمنى أن يكون 2024 عامًا مليئًا بالتقدم والازدهار للشعب الليبي .
--  كوريا الجنوبية تعلن أنها ستسكمل نظام الردع الموسع المعزز مع الولايات المتحدة خلال العام الجاري
--  Yeni yılın ilk saatlerinde Rusya'dan Ukrayna'ya İHA saldırısı
--  Galatasaray'da yaprak dökümü yaşanacak!
--  "XPoSat" uydusu fırlatıldı
--  دوزداغ: منتجع صحي يختبئ في أعماق منجم للملح بطرف آسيا
--  Hoe goede voornemens negatief zijn voor je zelfbeeld, maar je ook dichter bij God kunnen brengen
--  De Bijbel in een jaar lezen als goed voornemen? 'Je ontdekt elke keer weer iets nieuws'
--  नव्या वर्षाचे स्वागत सुरु असतानाच जपान शक्तीशाली भूकंपाने हादरला; पश्चिम समुद्र किनाऱ्यावर त्सुनामी
--  Günlük elektrik üretim ve tüketim verilerini TEİAŞ duyurdu
--  Życzenia na Nowy Rok 2024. Kartki noworoczne 2024 z życzeniami - SMS, krótkie, śmieszne, oryginalne 1.01.2024
--  Quetta Customs Seizes 33 Smuggled Vehicles Worth 84.6 Million Rupees
--  Юксалишлар йили бўлади
--  Dode bij schietpartij in Capelle
--  Brandweer blust Culemborgs vreugdevuur met assistentie van politie
--  Van'da yılın ilk bebeği 'Arya Mina' oldu
--  Görevi başındaki güvenlik güçleri ve sağlık personellerine yeni yıl ziyareti
--  Yaşlı Meclisi Anıtkabir'de
--  Ukraine, Russia accuse each other of New Year's attacks
--  De la restaurante sofisticate, la cluburi și petreceri în Centrul Vechi: Cum s-au distrat bucureștenii în noaptea de Revelion
--  Zemetrasenie ničilo domy v Dolnej Krupej, Biely Kostol sa pripojil k Trnave
--  Групата БРИКС вече наброява десет страни
--  Polska pokonała Hiszpanię w United Cup i awansowała do ćwierćfinału!
--  Le capitaine Ibrahim Traoré appelle les Burkinabè à cultiver l’amour entre eux
--  مجرم کون؟
--  Rakul Preet Marriage : காதலனை கரம் பிடிக்கும் ரகுல்... கல்யாண தேதி எப்போது தெரியுமா?
--  [오세훈 "어울림의 가치 기억…동행으로 행복한 서울시 만들 것"
--  ["시진핑 공포 정치에 공산당 무력화…경제에 악재"
--  दिल्ली-NCR में साल के पहले दिन कोहरे और प्रदूषण की मार, देरी से चल रहीं 21 ट्रेनें
--  دم تو ڑتی امید اور مہنگائی
--  신원식, 새해 청룡부대 방문…'북 상시 도발 가능' 강조
--  ১২ লাখ নকল সিগারেটসহ এক ব্যক্তিকে আটক
--  ‘পিএসএল মিনি আইপিএলের মতো’
--  Cà phê bệt, đường sách... những địa chỉ người Sài Gòn dạo chơi ngày đầu năm 2024
--  Nicosia International Festival opens for 2024
--  Viti i Ri troket në Shqipëri, si u prit në rrethe?
--  Mikko Rantanen teki sen – historiallinen temppu NHL:ssä
--  بھارت انسانی حقوق کی پامالیوں میں مصروف
--  [속보] 日, 새해 첫날 규모 7.6 지진…북부 연안 쓰나미 경보
--  Sports Calendar 2024: కోటీ ఆశలతో కొత్త ఏడాదిలోకి అథ్లెట్లు, ప్రతిష్టాత్మక ఒలింపిక్స్‌ ఈ ఏడాదే
+-  Huge 500-Year-Old Longsword Recovered from Medieval Grave on Swedish Coast
+-  दुई साता भैरहवा मुकाम बनाएर के गर्दैछन् पूर्वराजा ज्ञानेन्द्र शाह ?
+-  Bank Holidays: ఈ నెలలో బ్యాంకులకు ఏకంగా 16 సెలవులు.. ఎప్పుడెప్పుడంటే..?
+-  Japan issues tsunami warnings after a series of very strong earthquakes in the Sea of Japan
+-  Kesineni Nani: వైసీపీ ఎమ్మెల్యేలే జగన్ పాలనపై తీవ్ర అసంతృప్తితో ఉన్నారు
+-  We arrested 207 suspected robbers, recovered 108 firearms in 2023 – Oyo Police
+-  Kickoff | Benzema goes 'AWOL' in Saudi Arabia
+-  Nyt alkoi tapahtua NHL:ssä – miten käy Juuse Saroksen?
+-  «Ўзбек маданияти элчиси» мақомини бериш тизими жорий этилади.
+-  Россияда чақирув ёшини ошириш бўйича ўзгаришлар кучга кирди.
+-  АҚШ контейнер кемасига ҳужум қилган ҳусийчиларнинг қайиқларини чўктириб юборди.
+-  تشغيل 6 محطات مترو جديدة بالخط الثالث.. اعرف التفاصيل
+-  बालकुमारी घटनामा छानबिन समिति गठन गर्ने मन्त्रिपरिषद्को निर्णय
+-  الأرصاد تحذر من شبورة كثيفة بالطرق وتناشد السائقين بتجنب السرعة الزائدة
+-  القاهرة الإخبارية: زلزال يضرب وسط اليابان وتحذيرات من موجات تسونامى
+-  فصائل فلسطينية: قصفنا تجمعات لجنود الاحتلال جنوب شرق حى الزيتون فى غزة
+-  تنويه مهم من وزارة الأوقاف بشأن 2000 وظيفة جديدة.. اعرف التفاصيل
+-  وزارة التعليم: غلق موقع تسجيل التقدم لامتحانات الطلاب المصريين بالخارج غدا
+-  وزير المالية: ماضون فى السياسات الداعمة للشمول المالى للتحول إلى الاقتصاد الرقمى
+-  ارتفاع المؤشر الرئيسى للبورصة بنسبة 0.64% خلال جلسات شهر ديسمبر
+-  صعود 10 قطاعات بالبورصة خلال جلسات شهر ديسمبر على رأسها "الموارد الأساسية"
+-  "مزاد" سبب تأخير حسم الأهلى لصفقة الفلسطينى وسام أبو على
+-  Moon gazings
+-  日本石川縣發生7.6級地震 禤國全︰30團友在震央附近區域 目前情況安全
+-  Anambra businessman requests 16 soldiers, 20 policemen, 12 DSS for security
+-  Държавни служители на върха на щастието! Вдигат им заплатите
+-  Japonsko zastihlo silné zemetrasenie: Hrozí aj cunami, meteorológovia vydali varovanie
+-  Zákaz predaja a používania petárd začne platiť od utorka: Má to aj svoje výnimky
+-  Meteorológovia vydali výstrahy pred hmlou i silným vetrom: Platí aj mierne lavínové nebezpečenstvo
+-  ŠKANDÁL v šoubiznise: Slávna speváčka po rokoch vyťahuje špinu!
+-  Na Slovensku by sa spaľovaním odpadu uživili tri zariadenia, povedal Taraba
+-  Ngày 1/1: trung tâm TP.HCM bình yên đón năm mới, cà phê bệt vẫn là lựa chọn số 1 của giới trẻ
+-  Cam Túc (Trung Quốc) tiếp tục hứng chịu động đất ngày cuối năm
+-  5 lần ăn buffet, người phụ nữ âm thầm làm 1 chuyện khiến nhà hàng báo cảnh sát vì tổn thất hơn 156 triệu đồng
+-  Một nhà hàng ở quận 1 thu tiền từ hoạt động mại dâm lên đến 20 tỉ đồng
+-  Vinny Vũ: "Âm nhạc của Sixkie Dawgz vừa quen, vừa lạ, và đặc biệt khá là cuốn hút"
+-  Hơn 15.000 du khách "xông đất" Đà Nẵng ngày đầu năm mới qua đường hàng không
+-  Cuộc sống xa vợ con, một mình ở Hà Nội của NSƯT Quang Thắng
+-  Podanie žiadosti o povolenie pre malé čistiarne odpadových vôd sa predĺži
+-  Đang chấm bài kiểm tra, giáo viên phải ôm bụng cười ngặt nghẽo: Lớp có em học sinh hài hước quá!
+-  Gujarat sets Guinness Record for performing mass Surya Namaskar; PM Modi heaps praises
+-  Je dobré, že Gajan nechytal, hovorí Valent, ktorý dostal od Rusov päť gólov za tretinu
+-  לקראת CES הכריזה LG על ליין חדש של טלוויזיות QNED ו-QNED Mini LED
+-  青衣牙鷹洲街變電站爆炸冒白煙 釀全港至少18宗困升降機事故
+-  OKLOPNA VOZILA NA ULICAMA NEMAČKE Na ulicama Berlina 4.000 policajaca! SVE ZBOG MLADIH KOJI SU NAMERNO GAĐALI LJUDE VATROMETOM
+-  İstanbul'a 11 ayda 16 milyon turist
+-  日, 규모 7.6 지진에 쓰나미 경보… 동해안 지진해일 주의 (종합)
+-  Chaos as woman, 26, allegedly hit and trapped by out of control van
+-  전주시, 환경부 '탄소중립도시' 예비후보지 선정…전북 유일
+-  Morning Magic: రోజూ ఉదయాన్నే ఈ ఒక్క పని చేశారంటే చాలు.. ఎన్నిరోగాలు నయమవుతాయంటే..!
