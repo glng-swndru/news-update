@@ -1,11 +1,51 @@
 # Latest News
--  Sigue madre de Jocelyn buscando a su hija
--  Amagan Xi, Putin, Netanyahu y Kim con más guerra en '24
--  مدفوعات فوائد الديون بالموازنة في 5 أشهر تفوق قيمتها بعام 2021-2022 كله
--  بعد مسار نزولي 9 سنوات.. المالية تتوقع ارتفاع عجز الموازنة إلى 7.5%
--  إرتفاع حصيلة الشهداء في غزة إلى 21978
--  Silvester: Polizei in Hamburg zieht positives Fazit | NDR.de – Nachrichten
--  How an ex-police officer made $12 million in 3 years after buying ATMs for $2,100 and operating them as a side hustle
--  Két személygépkocsi ütközött Kétyen, egy férfi a helyszínen meghalt
--  Stramaccioni su Bennacer: «La sua partenza è una perdita grave per il Milan»
--  Cheadle ‘murder’: Tributes to pensioner, 91, found dead alongside second woman as cops arrest man, 68, on murder
+-  Liverbird Double Marathon for North Wales Road Runners Club duo!
+-  إشاعة: سيُعاد إصدار ثلاثية Bayonetta على Switch 2
+-  Válogatás a Népszava kedvenc 2023-as képeiből – III. rész
+-  القيمة السوقية للاعبي روشن تشهد انخفاض لنجوم كبار
+-  ‏الأخضر يتفوق على منتخبات مجموعته الآسيوية تاريخيًا
+-  طفل أمريكي يحلم بقميص رونالدو.. قميص النصر ينتشر في أمريكا
+-  لأول مرة في الأحساء.. شاب سعودي يطلق "عربة حلاقة متنقلة"
+-  باريس سان جيرمان الفرنسي يضم المدافع البرازيلي بيرالدو
+-  منتخب اليابان يستدعي لاعبًا مصابًا في كأس أمم آسيا 2023
+-  من صاحب إعاقة لرئيس قسم.. رحلة شاب سعودي تجسد معنى الإرادة
+-  11 % ارتفاعا في العملات الورقية المتداولة بالسعودية
+-  صندوق التنمية السياحي يُطلق مركز نمو السياحة "TDF Grow"
+-  Un periodista tunecino es detenido tras criticar a una ministra -abogado
+-  Karácsony Gergely: "Kezdjünk el beszélgetni, hátha kisül belőle valami jó"
+-  7 شهداء بقصف منزل بدير البلح
+-  مسيرة للمحامين من قصر العدل إلى مجمع النقابات دعما لغزة الاربعاء
+-  BRI Peduli Ajak Masyarakat Jaga Ekosistem Sungai
+-  بالأسماء.. مصرع 3 وإصابة 5 في حادث مروري بالوادي الجديد
+-  الطريقة الصحيحة لتنظيف جسدك أثناء الاستحمام.. دراسة تكشف مفاجأة
+-  التموين: زيادة السعات التخزينية للصوامع إلى 5.3 مليون طن
+-  أحدهم صنع مجدًا واستثناء وحيد.. كشف حساب المدربين الأجانب في عام 2023
+-  سعر الذهب في مصر بحلول تعاملات مساء أول أيام 2024
+-  رافائيل لياو: يمكنني الوصول إلى مستوى كريستيانو لكنني لن أكون لاعبا أنانيا
+-  القسام تعلن تفجير عدد من جنود الاحتلال في جبل الريس
+-  قمر الذئب واقترانات للكواكب والنجوم.. تفاصيل أولى الظواهر الفلكية في 2024
+-  맥그리거 UFC 복귀 "최고의 컴백될 것"…챈들러 "항상 맥그리거를 원했다!"
+-  ‘선수도, 심판도, 부인도…’→연말 연시는 섹시하게→‘본업’보다 ‘부업’에 더 열성적인 여자 축구人
+-  Mladi Hrvat (18) smrtno stradao od eksplozije improvizirane petarde
+-  Como dar entrada em um pedido para ter Pensão por Morte no INSS?
+-  Beşiktaş'ın Jose Cordoba teklifi 2.7 milyon Euro
+-  Türkiye 2023'te dünya yıldızlarını ağırladı
+-  Ne yaptın Kenan Yıldız! Bütün İtalya onu konuşuyor
+-  Hiç aklınıza gelmeyecek ürünler tüyleri noktaya çeviriyor! İşte pürüzsüz cilt için etkili sırlar
+-  Çanakkale'de düzensiz göçmenler yakalandı
+-  Blair'in Gazze girişimine ilişkin Filistin'den açıklama
+-  İnci Taneleri ne zaman başlıyor? Yılmaz Erdoğan'ın yeni dizisi İnci Taneleri hangi kanalda yayınlanacak?
+-  İran'ın BRICS üyeliği başladı
+-  1 Ocak reyting sonuçları: Safir, Kudüs Fatihi Selahaddin Eyyubi, Survivor All Star 2024 reyting sıralaması
+-  Daichi Kamada'dan Galatasaray cevabı!
+-  Eski İsrailli generalden kara harekatı yorumu: "Ordu Gazze'de çamura battı"
+-  “Disregard any prophetic announcements from the church; if you don’t put in effort in 2024, you won’t reap any rewards.” – Daniel Regha
+-  Τελικά, Ράγια ή Ράμσντεϊλ στην Άρσεναλ; Το απίθανο στατιστικό που… δεν δικαιώνει τον Αρτέτα!
+-  KRÖNIKA: Så resonerade hovrätten i fallet Adriana
+-  Streets of Rage: Revolution – Setting, gameplay & everything we know
+-  Þau hlutu fálkaorðuna á fyrsta degi ársins
+-  INSS: Doenças sem carências para liberação de aposentadorias
+-  «Зеркало недели»: в Киевской области произошли взрывы
+-  Treinador português atinge meias-finais da Taça do Rei do Bahrein
+-  רוכב אופנוע נפצע אנוש מפגיעת רכב סמוך לריחן
+-  Deadline for PGA Tour’s essential talks with Saudi Public Investment Fund pushed again
