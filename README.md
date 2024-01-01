@@ -1,11 +1,11 @@
 # Latest News
--  กองปราบรวบแก๊งยานรกชายแดนใต้สุดเหิมเกริม รัวอาก้าแหกด่านตรวจ
--  หมดเวลาฉลองปีใหม่! หอบสัมภาระกลับกรุง ตั๋วรถเต็ม-ถ.มิตรภาพสาหัส
--  이준석, 尹 겨냥 "돼지의 눈엔 돼지만 보여…뜻대로 안 되면 카르텔로 지목"
--  경주 국도서 추돌사고…20대 1명 사망, 7명 중경상
--  경북도, 통합 체외수정과 인공수정 등 난임 시술 25회 지원
--  ㈜덕산코트랜, 경북도에 이웃사랑 성금 1천만원 전달
--  새해 첫달 LPG 공급가 동결…상승 요인 있으나 소비자 부담 줄이기 위해 결정
--  사과·배 등 과일 가격 강세…미국산 계란 112만 개 도입
--  Nguyễn Thanh Giang: Chạy bộ đã thay đổi cuộc đời tôi
--  Kava u kombinaciji s ova dva začina radi čuda: Ljudi su oduševljeni ovim utjecajem omiljenog napitka
+-  양천구의회 황민철 의원, 예비군 육성지원 우수의회 선정 기여
+-  Yemek ve yol paralarında artış!
+-  Bakan Bayraktar'dan Gabar petrolü açıklaması: 30 bin varile çıkardık
+-  İzmir'de yılbaşı magandalarına suçüstü
+-  Balıkesir'de yılbaşı denetimlerinde 4 şüpheli yakalandı!
+-  Gemlik Belediyesi yaşlı konuk evinde yılbaşı sevinci
+-  Biến đồng ruộng nhỏ nhấp nhô, thành ruộng lớn bằng phẳng
+-  Tiền vệ Quang Hải mang sính lễ hỏi cưới Chu Thanh Huyền
+-  LG디스플레이, 내년 CES서 'SDV 최적화' 車 디스플레이 솔루션 공개
+-  [신년사] 송호준 에코프로 대표 "올해 기술 쿠데타로 이차전지 시장 주도"
