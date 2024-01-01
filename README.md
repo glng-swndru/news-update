@@ -1,11 +1,51 @@
 # Latest News
--  قناة عبرية تنشر تفاصيل مقترح اسرائيلي لهدنة جديدة بغزة
--  من كان يتخيل هذا؟.. مشاهد جديدة لمعارك القسام أثارت ذعرا في إسرائيل
--  مصرع 4 أشخاص وإجلاء عشرات الآلاف بعد زلزال اليابان
--  [인사] 신아일보
--  [오늘날씨] 오전까지 중부지방 비·눈… 낮최고 11도
--  Presidente ucraniano afirma que Rusia sufre grandes pérdidas
--  작년 무역적자 99.7억달러 … 반도체 회복에 적자 폭 크게 줄어
--  ["중국이 전쟁 일으킨다"…노스트라 다무스가 예언한 2024년
--  [새만금방조제 텐트 안에서 50대 남녀 숨진 채 발견
--  [‘쾅·쾅·쾅’ 평창 LPG충전소 연쇄 폭발… 인근 300미터 불바다
+-  Kickoff | Salah double fires Liverpool past Newcastle
+-  Localizan cuerpo de menor ahogado en playa de Sonsonate
+-  تأكيد انعقاد حدث Summer Game Fest في يونيو هذا العام
+-  바이든 "일본 지진 피해, 필요한 모든 지원 제공"
+-  (사)국제무도연맹 블랙벨트센터 강윤석 총재, 고향사랑기부금 기탁
+-  인제군 원통고등학교 교육공동체 일동, 이웃돕기 성금 기탁
+-  인제군 사회적기업협의회, 이웃돕기 성금 기탁
+-  인카금융서비스(주) 인제군지부, 이웃돕기 성금 기탁
+-  밀양시 상남면, ‘2024년 종남산 새해맞이’ 행사 개최
+-  진흥환경, 인제군에 이웃돕기 성금 기탁
+-  창녕군, 중앙부처·경남도 기관표창 ‘역대 최다 68건’ 수상 쾌거 달성
+-  배상요 전 인제부군수, 이웃돕기 성금 기탁
+-  인제군, 하늘내린인제 3대3 농구단 선수단 계약
+-  김명수 합참의장, 피스아이 탑승 신년 지휘비행
+-  인제군, 설 맞이 '인제채워드림카드 페이백 이벤트' 추진
+-  육군참모총장, 새해 첫 현장지도로 수기사·미사일사 찾아
+-  밀양시 교동, ‘2024년 추화산 해맞이’ 행사…시민 등 1000여명 참석
+-  국방부장관, 해병대 청룡부대 방문해 확고한 대비태세 강조
+-  Second seed Elina Svitolina is relishing having husband Gael Monfils in Auckland during the ASB Tennis Classic
+-  FC Liverpool baut Tabellenführung in Premier League aus
+-  Vera Wang, 74, looks incredibly youthful as she flaunts svelte frame in sparkly BIKINI dress while posing with daughter Josephine, 30, at lavish New Year's bash
+-  Heavy rain and 60mph gales set to spark more travel chaos for Brits on first day back to the office tomorrow - with yellow warnings in place across the country
+-  250 కోట్లు తాగేశారు!
+-  عصابة تهاجم ممثلا أمريكيا بشوارع هوليود نهارا.. صور
+-  ذكرى وحيد حامد.. 3 أشخاص وصفهم المبدع الكبير بأصحاب الفضل عليه
+-  كيف يمكن زيادة صادرات قطاعات الأسمدة والألومنيوم والسبائك والغزل والنسيج؟
+-  القانون يُلزم العاملين بالمجلس الأعلى للإعلام بالحفاظ على سرية الوثائق.. تفاصيل
+-  بيليه فى بورتريه .. حكاية أفضل من لمس كرة القدم بصور نادرة من حياته
+-  في أول يوم في 2024.. أطفال مصر بيوجهوا رسالة قوية لأطفال فلسطين
+-  خلاف على المال..لحظات الغضب تقود عامل لقتل صديقه
+-  استجواب عصابة تزوير المستندات تخصصت فى تقليد التوكيلات الرسمية
+-  Fury after war veteran, 102, was left stranded in his flat on Christmas Day after retirement block's lift broke down
+-  Теплые оттенки
+-  Dúbravka jednu penaltu chytil, druhú zavinil. Kríza Newcastlu pokračuje aj po šesťgólovom dueli s Liverpoolom
+-  Liverpool hạ Newcastle ở trận cầu 6 bàn thắng để xây chắc ngôi đầu Ngoại hạng Anh
+-  Doblete de Mohamed Salah en el triunfo 4-2 de Liverpool frente a Newcastle United
+-  రేపు రాష్ట్రవ్యాప్తంగా కలెక్టరేట్ల వద్ద బైఠాయింపు
+-  Alex Pineda deja el traje negro para despedir el 2023
+-  Sportistet më të paguara në vitin 2023: Dominimi i plotë i tenisteve
+-  رئيس الدولة ونائباه يهنئون رئيسي هايتي بذكرى الاستقلال وكوبا باليوم الوطني
+-  Rockingham police hunting hoon driver after alleged New Year’s Eve antics, burnouts and crash
+-  నిరసనల హోరు
+-  По ступеням восхождения
+-  김동완, ♡썸녀와 데이트 중 '깜짝 스킨십'…한고은 "아주 알차게 코스 짰네" [신랑수업]
+-  "메시, 다음 세대에 부끄럽지 않은가!"…아르헨 팬들 분노, 왜? 대표팀 10번 '영구 결번' 추진에 "메시라도 그건 아니지, 다음 GOAT 막는 것"
+-  토트넘-리버풀 CB출신의 '충격적인 이적'→손흥민보다 고작 한살 많은데 벌써 스페인 팀 선수 겸 감독이라니…
+-  "2024년에는 ♥득녀" 서장훈 신년 운세 적중할까?[물어보살]
+-  '살라 멀티골' 리버풀, 뉴캐슬 꺾고 2연승 질주...다득점+선두 수성 두 마리 토끼 잡았다!
+-  Valioliigassa nähtiin draamaa ja maaleja - Mo Salahilta upea "läksiäislahja" Liverpoolille
+-  Μια νίκη – δώρο από τον Σαλάχ με ευχές για χαρούμενο 2024 στη Λίβερπουλ! (ΒΑΘΜΟΛΟΓΙΑ)
