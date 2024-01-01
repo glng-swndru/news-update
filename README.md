@@ -1,11 +1,51 @@
 # Latest News
--  양천구의회 황민철 의원, 예비군 육성지원 우수의회 선정 기여
--  Yemek ve yol paralarında artış!
--  Bakan Bayraktar'dan Gabar petrolü açıklaması: 30 bin varile çıkardık
--  İzmir'de yılbaşı magandalarına suçüstü
--  Balıkesir'de yılbaşı denetimlerinde 4 şüpheli yakalandı!
--  Gemlik Belediyesi yaşlı konuk evinde yılbaşı sevinci
--  Biến đồng ruộng nhỏ nhấp nhô, thành ruộng lớn bằng phẳng
--  Tiền vệ Quang Hải mang sính lễ hỏi cưới Chu Thanh Huyền
--  LG디스플레이, 내년 CES서 'SDV 최적화' 車 디스플레이 솔루션 공개
--  [신년사] 송호준 에코프로 대표 "올해 기술 쿠데타로 이차전지 시장 주도"
+-  동해안권경제자유구역청, ‘강원경제자유구역청’ 명칭 변경
+-  춘천지검 강릉지청 법무부 장관 표창 등 수상 눈길
+-  في كييف.. إقرار بخسارة الحرب على عدة مستويات
+-  التعليم العالي تبحث آليات زيادة أعداد الطلبة السعوديين الدارسين في الاردن
+-  العثور على عداء أوغندي مقتولاً داخل سيارة
+-  سعر غرام الذهب 21 بالأردن اليوم
+-  هآرتس: مخاوف بإسرائيل من اتهامات الإبادة أمام محكمة العدل الدولية
+-  معاريف: إسرائيل تعرض على أميركا خطة بشأن محور فيلادلفيا
+-  فاتورة مياه تقتل امرأة مسنّة في إيطاليا
+-  যুব বিশ্বকাপের দল ঘোষণা বিসিবির
+-  Menajerler önerdi! ManU'nun yıldızı Fenerbahçe'ye
+-  제37대 박노극 가평부군수 취임
+-  [신년사] 임태희 경기도교육감
+-  [신년사] 유승영 평택시의회 의장
+-  [신년사] 이성철 파주시의회 의장
+-  Anten tamir ederken canından oldu
+-  Bursa'da protokol yeni yıla mesaide girdi
+-  Memur ve emeklinin gözü enflasyonda! Ne kadar zam bekleniyor?
+-  Türk-iş Genel Başkanı Atalay: Vergide acilen adalete ihtiyacımız var
+-  Ehliyetsiz yakalanan kadın sürücünün pişkinliği pes dedirtti!
+-  İstanbul'da yılın ilk günü: Otoyollar, sokaklar ve caddeler boş
+-  Will 2024 be the year fake news destroys democracy?
+-  Better take your vitamins
+-  겨울바다에 풍덩
+-  4·10 총선 100일 앞으로....제주 3개 선거구 '수성' '탈환' 놓고 격돌
+-  2024’ün ilk bebeği Hatay’da dünyaya geldi
+-  Velký přehled změn. Nový rok ve vaší peněžence
+-  "매일 후회, 정신과 검사…죽기 살기로" 박민영, 전남친 논란 1년만 '내남결'로 복귀 [종합]
+-  이건 기회야→아스널 2연패 추락…리버풀 선두 수성 '빅 찬스'
+-  China Will 'Surely Be Reunified' With Taiwan: Xi Jinping In New Year Address
+-  Zomato Hit With New GST Notices Worth Rs 4.2 Cr
+-  New-year On Bouses Begins With Marginal Trade; IT, Finance Weighs
+-  Russia Initiates Retaliatory Strikes Against Ukraine After 24 Killed In Border City
+-  Indian Overseas Bank Introduces Savings Account Portability Option
+-  Zomato Rings In Record-breaking New Year's Eve With Astonishing Surge In Orders
+-  Bajaj Auto Records 16% YoY Surge In Total Sales For Dec '23
+-  "Not Seeking Wider Conflict In Middle East": White House After US Sinks Houthi Ships In Red Sea
+-  2024 & Ahead: Indian Economic Outlook
+-  BEOGRAD SPAVA POSLE DOČEKA! Na ulicama prestonice ne da nema gužvi, nego nema žive duše!
+-  박완수 경남지사 quot;새해, 우주항공산업 건설 본격화 할 것quot;
+-  不認民調排第3 柯文哲堅稱現況是「3強鼎立」
+-  Nhếch nhác đường lên thủ phủ hoa Tết ở Hà Nội
+-  Vừa đăng quang, Hoa hậu Hoàn vũ Bùi Thị Xuân Hạnh đã xin lỗi, mong khán giả rộng lòng
+-  Bí mật cuộc chiến đẫm máu từ lòng đất - Kỳ 2: Hầm ngầm ở bán đảo Triều Tiên hầm hập mùi thuốc súng
+-  Ông Tập chúc năm mới Nga và Triều Tiên, gửi thông điệp về Mỹ - Trung
+-  Công dân toàn cầu: Giấc mơ lãng mạn và có thật
+-  Năm mới ước gì?
+-  Tái hiện lễ ban sóc thời nhà Nguyễn
+-  Nur eine Partei geht leer aus: Parteien baden in Großspenden
+-  Greater accomplishments will happen in 2024 – Sanwo-Olu
