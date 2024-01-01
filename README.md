@@ -1,11 +1,11 @@
 # Latest News
--  Kocaeli'de eski eşini ve arkadaşını yaraladı
--  İstanbul'da korku dolu anlar! Köprüye çıkıp kendini boşluğa bıraktı
--  Fenerbahçe'den Çağlar Söyüncü hamlesi
--  Preminuo dugogodišnji ekonom fudbalske reprezentacije Bosne i Hercegovine
--  FANB desplegada en el Atlántico se repliega ante retirada del buque británico #1Ene
--  De Zerbi, West Ham-Brighton: "Mitoma? Sorpresa la chiamata del Giappone"
--  Dünyası başına yıkıldı! David de Gea için işler tam bir kabus
--  لجنة الخدمات بمجلس الدولة تحذر “الدبيبة” من استمرار اتفاقية استثمار حقل الحمادة
--  أزمة في صفقة انتقال مدافع أرسنال إلى ميلان
--  מתי כריסטיאנו רונאלדו יפרוש? מאמן נבחרת פורטוגל ניסה להסביר
+-  Berliner Rollheimer: Hilfe, unser Gartenparadies wird plattgemacht!
+-  Yeni Şafak ve Ketebe'nin ödül gecesi: Türkiye Yazarlar Birliğinin '2023 Yılı Yazar, Fikir Adamı ve Sanatçıları Ödülleri'ni kazananlar açıklandı
+-  İsrail'de büyük protestolara neden olan tartışmalı yargı reformunda iptal kararı
+-  ОПАСНОСТА ОД ЦУНАМИ ПОМИНА: Над 80 земјотреси ја тресеа Јапонија, се уште тлеат пожари (ВИДЕО)
+-  Flores solidarias y sus artistas
+-  ¡Lo logramos! Gerardo Vargas reporta saldo blanco en Ahome durante festejos de Año Nuevo
+-  ఘనంగా న్యూ ఇయర్‌ వేడుకలు
+-  ఘనంగా కొత్త సంవత్సర వేడుకలు
+-  బాబోయ్‌... తెగ తాగేశారు..!
+-  تشواميني يوافق على طلب أنشيلوتي بتغيير مركزه
