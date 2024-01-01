@@ -1,51 +1,51 @@
 # Latest News
--  ‘Va a ser un muy buen año para México’: Sheinbaum
--  Gospodarka wchodzi na obroty
--  W gastronomii robi się gorąco
--  Gamedev czeka na odbicie
--  Polskie chemiczne nadzieje
--  IT: Szansa na ożywienie
--  Pożyczki pod nadzorem
--  Meble podskoczą w drugim półroczu
--  Dokąd pójdzie sztuczna inteligencja
--  Rząd musi wymyśleć, jak szybciej ciąć emisję
--  Sektor handlowy powraca na ulice
--  Biurowce znalazły się na wirażu
--  Mieszane uczucia producentów okien
--  Bruksela i wybory pomogą rozkręcić inwestycje
--  Targi jak sprzed pandemii
--  Ubezpieczeniom przydałby się impuls
--  Banki w cieniu budżetu
--  Polskie kosmetyki podgryzą koncernowe
--  Moda widzi przyszłość w jasnych barwach
--  E-commerce liczy na lepszy czas. Stawia też na nowe technologie
--  Deweloperzy magazynowi będą jeszcze bardziej ostrożni
--  Zbożowy węzeł gordyjski w portach
--  Fundusze VC wyczekują unijnego kapitału. Wówczas ruszą inwestycje
--  Spożywka utyje na akwizycjach
--  U deweloperów mieszkaniowych zrobi się spokojniej
--  Biura podróży nie odpoczną. Drżą o marże
--  Rynek inwestycyjny czeka na spadki stóp
--  Lewiatan: potrzeba nam rąk do pracy
--  W branży lotniczej mogą polecieć głowy
--  Dyrektywa NPL już spóźniona, a niezwykle ważna
--  Na co warto zwrócić uwagę w prognozach makroekonomicznych
--  Hotele ruszą z kopyta
--  Sądy zdecydują o cenach wody, a rząd o kaucji za opakowania
--  Wszystko wszędzie naraz w energetyce
--  O zagranicznie inwestycje trzeba będzie mocniej powalczyć
--  W paliwach napięcie wciąż rośnie
--  Fitness bije rekord za rekordem
--  Motoryzacja w 2024 r: Wolniej, ale... drożej
--  Erdoğan'ın İstanbul için düşündüğü isim kulislerden sızdı
--  UnionSine Externe Festplatte 500 GB, ultradünn, tragbar, 2,5 Zoll, USB 3.0, SATA-Festplattenspeicher für PC, Mac, TV, Wii U, Xbox, PS4 (schwarz) HD2510
--  Patriarca de Lisboa pede fim da "crispação" entre partidos e instituições
--  Bakının bu küçəsində məhdudiyyət tətbiq edildi
--  حجار يجول على المناطق الحدودية: نواكب يومياً نزوح اللبنانيين من المناطق غير الآمنة
--  Verfrissende nieuwjaarsduik in Haastrecht
--  Rennen voor goed doel
--  Survivor All Star 2024 yarışmacıları kimlerdir? Survivor 2024 kadrosu Mavi- Kırmızı takım yarışmacıları
--  Mükemmel balık kızartma tekniğinin püf noktası: Yumurta! İçinin pişmeme ihtimali yok
--  854 schools to reopen in Thoothukudi district today
--  Ve bitti bu iş! Fernando Muslera transferi hayırlı olsun
--  Akıl hastanesine kaldırılmıştı! Dilan Polat'ın avukatından açıklama geldi : Felç kalma riski var
+-  ExxonMobil traspasa operaciones de campo petrolero West Qurna 1 de Irak a PetroChina
+-  "تايمز": دول أوروبية تريد إطالة أمد النزاع في أوكرانيا حتى عام 2025 على الأقل
+-  بوتين يحدد أولويات رئاسة روسيا لمجموعة "بريكس"
+-  فعاليات نسائية: نفخر بمواقف الملك الثابتة والقوية لدعم الشعب الفلسطيني
+-  10 آلاف مريض سرطان بدون أدوية في غزة
+-  الهلال الأحمر ينقل 6 شهداء بعد قصف بمخيم المغازي
+-  맨유 전설의 '충격 고백', "맨유를 떠난 후 은퇴까지 고려했다!" 그에게 무슨 일이?
+-  اعلان صادر عن وزارة الصحة
+-  الدويري: هذه هدية المقاومة للاحتلال بداية رأس السنة
+-  القسام تفجر فوهة نفق بجنود الاحتلال بحي التفاح
+-  Hande Erçel'in yeğeni Aylin Mavi'den sevindiren haber!
+-  Hamas'tan Kızılhaç'a çağrı... "İsrail'in ihlallerini belgeleyin!"
+-  İlk imza! Josef de Souza resmen Başakşehir'de
+-  Ivan Toney'in bonservisi dudak uçuklattı
+-  Üstü açık otomobilde tehlikeli yolculuk!
+-  W Nałęczowie odbył się XXIX Bieg Bieg Sylwestrowy Nałęczów-Sao Paulo
+-  Medal gonił medal. 2023 rok był świetny dla lubelskich sportowców
+-  Fietser ernstig gewond na aanrijding met auto op N216 bij Giessenburg
+-  بالزي العسكري.. ملكة جمال العراق السابقة: أريد الموت إلى جانب الجيش الإسرائيلي
+-  صحة غزة: ارتفاع عدد الشهداء إلى 21978 فلسطينيًا
+-  غياب فتوح وزيزو عن مران الزمالك.. وتدريبات تأهيلية للرباعي
+-  عصير أحمر يخفض نسبة السكر في الدم عند تناوله قبل الوجبات
+-  رونالدو يتصدر.. الاتحاد الدولي للتاريخ والإحصاء يعلن قائمة أكثر 10 لاعبين تسجيلا للأهداف في 2023
+-  تعرف على موعد غلق نافذة الانتقالات الشتوية بعد التنسيق بين الدوريات الخمسة الكبرى
+-  تجديد حبس المتهم بقتل شاب بسبب مشاجرة فى عين شمساليوم الإثنين، 1 يناير 2024 04:15 مـ منذ 11 دقيقة
+-  وزيرا الصحة والأوقاف يعقدان لقاءً موسعًا مع وكلاء الوزارتين بجميع محافظات الجمهوريةاليوم الإثنين، 1 يناير 2024 03:35 مـ منذ 51 دقيقة
+-  محافظ المنيا يبحث قضايا وملفات خدمية مع عدد من نواب البرلماناليوم الإثنين، 1 يناير 2024 03:35 مـ منذ 51 دقيقة
+-  الدولية لحفظ القرآن الكريم والإبتهال الديني تختتم التصفيات المحلية المؤهلة بـ اختبارات...اليوم الإثنين، 1 يناير 2024 03:56 مـ منذ 30 دقيقة
+-  Ecija Belošević o 2023. godini: 'Sve se promijenilo u našim životima, nemam više vremena'
+-  Nikad nije kasno večeras od 20h: Sergej Ćetković zapjevao...
+-  Declared Terrorist! Son Of Former Punjab Cop, Killer Of Sidhu Moosewala, Reached Canada On Student Visa - Story Of Dreaded Criminal Goldy Brar
+-  Josef de Souza Türkiye'ye geri döndü
+-  Украинские войска обстреляли Донецк и Горловку
+-  بوتين: روسيا تريد إنهاء الصراع فى أوكرانيا ولكن بشروطها موسكو
+-  الصحة الفلسطينية بغزة: 1.9 مليون نازح معرضون للمجاعة والأوبئة
+-  Japón recibió el 2024 con un terremoto y alerta de tsunami: videos y fotos de un escenario de pánico
+-  Tennis-Duo Kerber/Zverev verliert gegen Frankreich
+-  E Diela Shqiptare – “Ka një mesazh për ty” – ADN-ja zbardh të vërtetën pas 50 vitesh (1 Janar 2024)
+-  Leicester v Huddersfield, Stoke v Ipswich and more: Football League clockwatch – live
+-  Blair'in Gazze girişimine ilişkin Filistin'den açıklama
+-  Marcelino: Eric Bailly olağanüstü özelliklere sahip bir oyuncu
+-  Süper Lig'e geri döndü! Josef de Souza resmen Başakşehir'de
+-  Çanakkale açıklarında 169 düzensiz göçmen yakalandı
+-  „Komm, küss mich!“: Oliver Pocher und Amira starten gemeinsam ins neue Jahr
+-  Sferopulos pred Fener: Čeka nas drugačiji meč
+-  Entrée en vigueur du régime de dispense de visa de l’UE pour le Kosovo
+-  Земјотрес во Турција
+-  Ministrja Koçiu viziton bebet e para të vitit 2024: Sihana dhe Amar, qofshin bekimi i këtij fillimviti
+-  بحث جديد يكشف أن الأسلحة بعيدة المدى ربما تواجدت قبل 10 آلاف سنة مما ظننا
+-  Magnitude 7.6 earthquake hits Japan
