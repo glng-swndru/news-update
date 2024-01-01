@@ -1,11 +1,11 @@
 # Latest News
--  A gyerekek is ebben a világban élnek, és onnantól, hogy kiteszik a lábukat otthonról, és nem jön a vonat, odáig, hogy mit tanulnak az iskolában, minden politika
--  Hulpdiensten gemeente Ede: ' Jaarwisseling druk, maar behapbaar'
--  La semaine des Français en NBA : Killian Hayes a gagné un match, Rudy Gobert en gagne plein
--  Vidéo : les 28 alley-oops convertis par Victor Wembanyama depuis le début de la saison
--  Papa Francisco: “Os nossos tempos, vazios de paz, precisam de uma Mãe”
--  Hamas sadece izledi: Siyonist İsrailli askerler birbirlerini öldürdü
--  Bakan Ersoy yeni yılın ilk müjdesini verdi: Bin 500 personel alınacak
--  Frühchen-Aufnahmestopp im Klinikum Hanau
--  Einführung des E-Rezepts: Wie Ärzte und Apotheken in Wertheim dazu stehen
--  Bu akşam hangi diziler var? 1 Ocak 2024 Pazartesi TV yayın akışı tüm kanallar
+-  Bakan açıkladı: 1500 personel alınacak
+-  Više od 300 uhapšenih u Berlinu u novogodišnjoj noći
+-  Jedna osoba poginula u saobraćajnoj nesreći u Stjepan Polju kod Gračanice
+-  Bajaga i Instruktori uveli Tuzlake u Novu godinu
+-  والد الزميل أحمد زنونة في ذمة الله
+-  اشترت سُمّاً عبر الإنترنت وانتحرت.. أمازون وغوغل بورطة!
+-  Am Nullpunkt ins EM-Jahr: Die Fallhöhe des Julian Nagelsmann
+-  Alba-Manager Baldi kritisiert Chemnitz: "War ein Ringkampf"
+-  Notfahrplan bei Chemnitzer Citybahn: Einschränkungen nach schwerem Unfall
+-  Tragický úvod roka v Trnave: Na Prednádraží usmrtil výťah človeka
