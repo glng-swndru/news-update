@@ -1,51 +1,51 @@
 # Latest News
--  4월 총선은 운동권 대 비운동권 ‘최후의 격돌’
--  Märchenhafter Jahresausklang auf Schloss Rochsburg
--  Akciğer kanseri tedavisi gören genç kaldırımda ölü bulundu
--  নিজেকে ক্ষমা করে দিলাম: চমক
--  총선 D-100hellip;한동훈 quot;계산 없는 선의로quot; vs. 이재명 quot;크고 단단한 하나quot;
--  quot;시대가 마음에 안 들더라도 무기를 놓지 말자quot;
--  尹대통령 quot;이권middot;이념 기반 패거리 카르텔 반드시 타파하겠다quot;
--  갤럽 차기 대통령감 선호도hellip;한동훈 24% vs.이재명 22%
--  TFF Başkanı Mehmet Büyükekşi'den yeni yıl mesajı
--  Jets score twice in third to beat Wild 3-2, spoil Fleury's 1,000th NHL game
--  Meer dan 230 arrestaties in Berlijn, vijftien agenten gewond
--  Không đảm bảo cơ cấu số lượng thành viên Hội đồng quản trị, TRA bị phạt tiền
--  65.000 deelnemers verwacht bij jubileumeditie nieuwjaarsduik
--  김건희가 말했다고... "저를 보호해 주실 수 있나요"
--  Tourism Ministry channels RM2m more to stimulate Melaka’s VMY2024 promotion
--  הונאת השכפ"צים: בן 20 מחולון חשוד שעקץ חיילים הנלחמים בעזה ובני משפחותיהם
--  ĐT Việt Nam có duyên nợ đến mức nào với ĐT Indonesia trong năm 2024?
--  Hull City: Transfer ins and outs - January 2024
--  경남도 우수유출저감시설 김해 진영 등 4곳 758억원 선정
--  Life | Less is more for 2024: Expert talks 'skinimalism' and other beauty trends you need to know
--  Xu thế dòng tiền: Hiệu ứng tháng Giêng, thị trường sẽ bùng nổ thành công?
--  이선균 협박해 5천만원 뜯은 협박범, “전과6범 유흥업소 실장과 사이 틀어지자 마약 제보”[MD이슈]
--  Centre rejects as 'baseless' Bhagwant Mann's criticism for excluding Punjab tableau from R-Day parade
--  최윤영, 우수상 수상→'환상연가 특별출연…"더 열심히 하란 의미, 힘 된다"
--  Nod to rename Nemom, Kochuveli railway stations
--  How do you get rid of attachment to someone you love so much? Treatment of attachment to a person in psychology
--  В подконтрольном Киеву Херсоне снова прозвучали взрывы
--  ‘What you see is what you get’: David Warner happy to have a beer with his critics, reflects on incredible international career
--  City of Cape Town load shedding schedule – MONDAY
--  CGTN: Jak čínská modernizace přináší světu nové příležitosti
--  Raheem Anthony scores 17 to lead Tommies over Kangaroos 77-56
--  Người trẻ sẽ chiếm lĩnh sách vở, văn chương
--  Mua bảo hiểm ô tô nhưng công ty bảo hiểm chần chừ không bồi thường
--  Giá gas tăng nhẹ ngày đầu năm 2024
--  Kích thích huyệt tay đơn giản trị các chứng hoa mắt, chóng mặt thường gặp
--  Bình Định rộn ràng chào đón những du khách đầu tiên xông đất năm mới
--  Hiện tượng kinh tế, văn hóa toàn cầu Taylor Swift
--  “돈 내고 써라”, 생성형 AI 시대 저작권료 지불 논의 본격화
--  Periyar varsity on radar, now for scam in govt scheme
--  젤렌스키 "더 좋은 내일은 저절로 오지 않는다"…신년사
--  PM Modi Wishes Happy New Year To Everyone: पंतप्रधान नरेंद्र मोदी यांनी भारतीयांना दिल्या नवीन वर्षाच्या शुभेच्छा,पाहा ट्वीट
--  نیا سال۔۔۔نئی امیدیں: پاکستان میں 2024ء کا پہلا سورج طلوع
--  말바꾼 세입자 때문에 깨진 아파트 매매…대법 "잔금 지급 거절 정당할 수도"
--  작년 99.7억弗 무역적자지만…12월 '수출·수지·반도체' 올해 최대(종합2보)
--  Đừng nghĩ chỉ tiết kiệm mới làm bạn thoát nghèo, đây mới là 5 thói quen cần duy trì để dư được 100 triệu đầu tiên ở 2024
--  A year when state’s health sector was severely tested, and survived
--  Biden revela su propósito de Año Nuevo
--  尹, 현충원 참배 "국민만 바라보며 민생경제 매진"
--  Kate Candela preocupa a sus fans tras descompensarse en pleno show: “Mi cuerpo no resistió”
--  특허청, 2일부터 ‘발명유공 포상’ 및 ‘올해의 발명왕’ 신청 접수
+-  ‘আবারও সাফ জিতে ছাদখোলা বাসে সংবর্ধনা পেতে চাই’
+-  [크립토 연간 브리핑] 지난해 '뒷심' 발동한 비트코인…올해 가상자산 상승세 이끌까
+-  ব্যাডমিন্টন খেলার সময় মারা গেছেন পুলিশ কর্মকর্তা
+-  Mothers of local Longhorns prepared for Sugar Bowl, potential 'home' game
+-  Инвестор рассказал о серьезном падении стоимости соцсети Х после ее покупки Маском
+-  Какие имена были популярны в КР в ушедшем году для новорожденных?
+-  حقوقيون: ظروف صعبة جدا للأسيرات بسجون الاحتلال
+-  وفيات الاثنين 1/ 1/ 2024
+-  Snoop Dogg Set to Join NBCUniversal’s Primetime Coverage of the Olympics Summer Games 2024 in Paris
+-  GS25, 1인가구 증가에 맥주 행사도 바꿨다.
+-  태영건설發 자금 조달 악화 전망↑…정부, 채안펀드 증액 검토
+-  주택·건설업계, 'PF 대책 마련·규제 완화' 요구 한목소리
+-  [주간분양] 지난주 분양아파트 13개 중 3개만 '순위 내 마감'
+-  대구시, 종소리에 담은 희망 '제야의 타종' 행사
+-  서영교 부안해양경찰서장 취임… "신뢰받는 해경 돼달라"
+-  부안군 종무식 열고 한해 마무리… "2024년 더 높이 비상"
+-  수성구, ‘2023년 정보보안 평가’ 사이버 침해 대응 우수기관 선정
+-  달서구, 2023년 대구시 자원순환행정 종합평가‘ 최우수기관’
+-  [2024 신년사] SK 최태원 "거문고 줄 고처매는 자세로 경영시스템 점검해야"
+-  고흥군, 우주발사체 산업 청룡처럼 힘차게 ‘비상’
+-  ผวจ.น่าน นำพุทธสานิกชนชาวจังหวัดน่านสวดมนต์ข้ามปี เสริมสิริมงคล
+-  खूबसूरती ही नहीं गुडलक भी बढ़ाता है डायमंड, पहनने से पहले जान लें ये जरूरी नियम
+-  Life lessons from interviews
+-  Angamaly-Sabari line to facilitate Vande Bharat operations; Southern Rly seeks revised estimate
+-  Vuelca su auto al ir a exceso de velocidad y perder el control
+-  Faeser reist ins Hochwassergebiet - weiterer Regen in Sicht
+-  Die Demokratie ist im weltweiten Hochjahr der Wahlen in Gefahr – POLITICO
+-  Auzmendi trasciende internacionalmente por ser el máximo anotador del fútbol hondureño en 2023
+-  Kerala records worst rainfall deficit in 7 years
+-  David Warner Retires From ODIs: डेविड वॉर्नर ने वनडे क्रिकेट से लिया संन्यास, पाकिस्तान के खिलाफ विदाई टेस्ट मैच से पहले की बड़ी घोषणा
+-  Полковник СБУ Стариков: фронт украинской армии рухнет из-за мобилизованных
+-  Comores: à moins de deux semaines du scrutin, la campagne en vitesse de croisière
+-  P’Harcourt refinery begins test-run, Rivers, 11 others get supply soon
+-  Bancos jamaicanos responden a aumento de estafas online
+-  Anıtkabir’e ziyaretçi akını. İşte 2023’te Ata’sını ziyaret edenlerin sayısı
+-  Teen shot while driving, crashes into unoccupied vehicle
+-  Ilgdzīvošanas eksperts nosauc 5 soļus, kas palīdzēs paildzināt mūžu
+-  California expanding free health care to 700,000+ immigrants living illegally in state
+-  Polisten kaçan şahsın üzerinden satır çıktı
+-  Sudheeran remains strident in his criticism of Congress state leadership
+-  Marcas de amor y rebeldía que lo llevaron a ganar un prestigioso premio de ensayos
+-  จ.แพร่ ประกอบพิธีสวดมนต์ข้ามปี เสริมสิริมงคล ส่งท้ายปี
+-  ‘อุ๊งอิ๊ง’อวยพรปีใหม่2567 บอกคนไทยพร้อมรับความท้าทายใหม่ๆ
+-  แสงแรกแห่งปี2567 นักท่องเที่ยวแห่ชม‘พระอาทิตย์’ขึ้นที่‘ภูกระดึง’ 06.43 น.
+-  李家超︰區議員要做好「上情下達、下情上報」 將居民大事小情放在心上
+-  นายกฯอวยพรคนไทยขอ67เป็นปีแห่งความก้าวหน้า ลั่นรัฐบาลเดินหน้าดูแลปชช.
+-  دہشت گردی کے خلاف پوری قوم متحد ہو
+-  Necrológicas de hoy, lunes 1 de enero de 2024
+-  Leeds United: Transfer ins and outs - January 2024
+-  Finding gold in the gully
