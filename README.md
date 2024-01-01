@@ -1,51 +1,51 @@
 # Latest News
--  Mától vízum nélkül utazhatnak az EU-ba a koszovóiak
--  بوتين: روسيا «ستكثف» ضرباتها العسكرية في أوكرانيا
--  Sevgilisini yılbaşı gecesine hazırladı!
--  «أمم أفريقيا»: نسوي يقود غينيا الاستوائية بنكهة «إسبانية»
--  غسالة سامسونج اتوماتيك 11 كجم
--  Supreme Court to start fixing lifetime disqualification ‘puzzle’ tomorrow
--  Galatasaray, Yıldız Futbolcuyla Yollarını Ayırıyor!
--  Pakistan, India exchange lists of prisoners, fishermen in their custody
--  BNP-M being kept away from elections under conspiracy: Mengal
--  Kédougou : Un incendie ravage une vingtaine d’habitations dans le village de Bantako…
--  PTI candidates, others file appeals in tribunals against rejection of nomination papers
--  Exercise BARRACUDA-XII valuable platform for participants to exchange best practices, share experiences: CNS
--  이창용 "부동산 PF 위험신호 감지...금융불안 가능성에 대비해야"
--  أهلا بك أيها العام الجديد..
--  كيم جونغ أون يهدد كوريا الجنوبية والولايات المتحدة
--  في أول أيام السنة.. شخص يسقط من عمارة ويلقى حتفه بالعاصمة
--  غويري يوجه رسالة مؤثرة للشعب الجزائري
--  وفاة 1836 شخصا في حوادث المرور خلال 2023!
--  «Атырау» официально определился с главным тренером
--  함양군, 2024년 공수의사 위촉과 장학금 기탁
--  산청군, 평생교육 지원사업 성과 눈길
--  남해군 농어촌버스 교체 ‘전기 저상버스’가 달린다
--  창원상의 ‘으랏차차 창원경제! 희망 떡 나누기’ 개최
--  거제주니어에프씨사회적협동조합, 사회적기업 인증 전환
--  창원시 황금알원예, 백미 100포 나눔
--  부산항만공사, 인도네시아서 ‘Korea Brand Fair’ 개최
--  함안 아라리농산 김치 베트남·대만 수출
--  한국철강, 사회복지공동모금회 ‘나눔명문기업’ 가입
--  진주 담다올, 간식꾸러미 100세트 기탁
--  고성군, 겨울철 양식어류 저수온 피해 대비 지도 점검
--  거제시, 노사민정협의회 정책 간담회
--  대원식품, 통영시 인재육성기금 1000만원 기탁
--  해군군수사, 위문금·위문품 기증 받아
--  대한항공, 2024년 ‘새해 첫 고객 맞이 행사’ 실시
--  [신년사]장충남 남해군수
--  고성군, 국토교통부 지적재조사사업 기관표창 수상
--  [지역기업 ‘활력 氣UP’]17.금아파워텍
--  [신년사]오태완 의령군수
--  사천시 농협조합공동사업법인 창립
--  [지역기업 ‘활력 氣UP’]16.상우정공
--  [신년특집]세계가 반한 ‘진주 K-기업가정신’
--  [신년사]나동연 양산시장
--  의령군수의사회, 천율에 후원금 기탁
--  [지역기업 ‘활력 氣UP’]15.JN항공
--  [신년사]천영기 통영시장
--  진주시여성자원봉사대 ‘사랑의 떡국 나눔’
--  [지역기업 ‘활력 氣UP’]18.S&K항공
--  [신년사]하승철 하동군수
--  함안군, 2024 갑진년 해맞이 행사 개최
--  [신년기획]진해신항 품은 창원시, 동북아 해양·항만 물류 도시 도약
+-  ইরানের ঐতিহ্যবাহী কাচপণ্যের ইতিহাস
+-  ইন্দোনেশিয়ায় রোবোটিক টেলিসার্জারি কেন্দ্র স্থাপন করবে ইরান
+-  ফরিদপুর-১ আসনে দোলনের ঈগল মার্কার পক্ষে ভোট বিপ্লব ঘটাবেন মধুখালীর কামালদিয়া ইউপি চেয়ারম্যান মামুন
+-  একতরফা নির্বাচনের মাধ্যমে দেশকে বিশ্ব থেকে বিচ্ছিন্ন না করার আহ্বান এবি পার্টির
+-  قائمة قوية لليابان في كأس آسيا
+-  سفينة حربية إيرانية تدخل البحر الأحمر
+-  القادري والعمري نسايب
+-  القطاع الصناعي بالأردن يشغل 268 ألف عامل
+-  الاحتلال: إصابة 2234 جنديا منذ بداية الحرب
+-  لطيفة تقرر دفن والدتها في تونس
+-  حقيقة وفاة الامير السعودي النائم
+-  حفل تخرج غير مألوف.. شاهد الكباب يغزو جامعة أردنية
+-  포항, 오베르단 완전 영입…“탈압박·전진 드리블 리그 최고 수준”
+-  Klart: Exakt så mycket får du i pension i år
+-  Kickoff | OFFICIAL: Ghana confirm final AFCON squad
+-  리버풀 스카우터 앞에서 ‘멀티골’ 작렬…살라 후계자는 9경기 5골 윙어
+-  안토니의 처참한 경기력에 레전드도 분노... “경기 이해를 아예 못 하는데? 포지션 바꾸자”
+-  푸른 용처럼 비상을 꿈꾼다…갑진년 청룡의 해 빛낼 용띠 스타들
+-  Benzema, la verità sulla fuga dall'Arabia Saudita: cosa è successo
+-  LPG price increased by OGRA
+-  สนามบินดอนเมืองแน่น คาดวันนี้ผู้โดยสารในประเทศ 5.4 หมื่นคน
+-  لن تتوقع.. طبيب يكشف 3 طرق سريعة لخفض ضغط الدم خلال دقائق
+-  "الرقابة الصحية: اعتماد 279 منشأة وتنفيذ 1122 زيارة خلال 2023
+-  أفضل 10.. صلاح ضمن قائمة هدافي العالم 2023
+-  جرثومة المعدة تزيد خطر إصابتك بمرض عقلي خطير - احذرها
+-  التموين: تطوير 396 مكتبا وانخفاض زمن استخراج البطاقة إلى 7 أيام
+-  "لبيب كان رافض".. العدل يكشف ما فعله فتوح مع شيكابالا قبل التجديد
+-  مسؤول إسرائيلي: المرحلة الثالثة من الحرب في غزة ستستغرق 6 أشهر
+-  وزيرة الثقافة: افتتاح عدد كبير من المنشآت الثقافية في 2024
+-  92 % زيادة في قيمة عجز الموازنة خلال أول 5 أشهر من العام الجاري
+-  حصاد 2023.. التنمية المحلية: إحالة 837 موظفًا بالمحليات للنيابات العامة والإدارية
+-  أكاديمية مصر للطيران للتدريب تستقبل زيارات طلاب الجامعات والمعاهد
+-  วันขึ้นปีใหม่!!! นักท่องเที่ยวแห่กราบสรีระสังขาร'หลวงปู่หมุน'
+-  แฟนคลับลุ้น! 'โอบ-ปราง'เช็กอินเกาหลีใต้ ถึงไม่มีรูปคู่แต่จับสังเกตได้
+-  Carolina Hurricanes haluaa jo eroon Sebastian Ahon joukkuekaverista
+-  Vahvistus: Manchester United -floppi vaihtoi maisemaa
+-  NHL-asiantuntija ihasteli Nuorten Leijonien hyökkääjää: "Varatkaa nyt joku hänet"
+-  Liverpool virittelee jättihankintaa
+-  Jenkkitähti löi muille jauhot suuhun Tour de Skillä – Kerttu Niskanen taisteli
+-  CGTN: Embracing 2024, how will China deliver a better life for the people?
+-  CGTN: How Chinese modernization brings new opportunities to world
+-  日 강진 여파로 동해 묵호에 67㎝ 지진해일…강원도 소방 비상 대응 1단계 발령
+-  Brände, Böllerwürfe und Platzverweise: Die Bilanz der Polizei für die Silvesternacht im Ostalbkreis
+-  Eva iz Livna prva je beba rođena u HBŽ-u u ovoj godini
+-  Magazinović: Ostaviti svu dnevnu politiku i međustranačke sukobe kada su interesi države u pitanju
+-  Yeni korku: Telefonsuz kalmak!
+-  2024 yılında hangi araç ne kadar MTV ödeyecek? Motorlu Taşıtlar Vergisi (MTV) tarifesi!
+-  Gazze'de can kaybı 21 bin 978'e yükseldi
+-  Минобороны заявило о поражении аэродромов ВСУ с носителями Storm Shadow
+-  Rs 3 crore worth gold seized at Hyderabad Airport
