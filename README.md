@@ -1,11 +1,11 @@
 # Latest News
--  Victor Wembanyama a refermé sérieusement 2023 contre Boston : 21 points, 7 rebonds, et un dunk… Wembesque
--  Bradley Beal efficace face au Magic : 25 points à 10/13 au tir, saison enfin lancée pour BB et les Suns ?
--  Modena, quanti dilemmi
--  Ketua DPRD Apresiasi Bima Arya Selesaikan Revitalisasi Masjid Agung Megah
--  "OPROSTIĆU SVIMA KOJI SU ME POVREDILI" Stanija otkrila da li je sa Asminom dočekala 2024. godinu, a ovo joj je NAJVEĆA ŽELJA
--  [시사일본어학원의 초단기 일본어 회화] 새해 복 많이 받으세요
--  Đưa học trò tới Google, LG, Hyundai…
--  Phú Quốc United Center rực rỡ đón năm mới
--  Hàng trăm ngàn du khách về tham quan làng hoa Sa Đéc dịp năm mới
--  Nữ sinh lớp 9 chết nghi tự tử vì bị gia đình la mắng
+-  Əmanətlərə iki halda vergi güzəşti tətbiq olunacaq
+-  Gecə klubu İvleevanı məhkəməyə verir
+-  Drukke nieuwjaarsnacht in Ziekenhuis Gelderse Vallei
+-  One shot and killed after argument at New Year's party in Capelle aan den IJssel
+-  „Chcą przejąć potencjał PiS-owskiego TVP”. Apel o natychmiastowe zerwanie działań
+-  „Chcą przejąć potencjał PiS-owskiego TVP”. Apel o natychmiastowe zerwanie działań
+-  الدفاع المدني: أخمدنا أكثر من (24) ألف حادث حريق وأنقذنا نحو (411) مليار دينار عراقي خلال العام 2023
+-  مركز الامام الحسين (عليه السلام) للمخطوطات: استخدام مواد وتقنيات حديثة في الترميم والصيانة
+-  الداخلية تفصح عن خطتها الخاصة لعام 2024 بمكافحة المخدرات
+-  من الفضلات البشرية.. شركة بريطانية تصنع وقود للطائرات
