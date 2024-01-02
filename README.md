@@ -1,51 +1,11 @@
 # Latest News
--  Greenwood nhận thẻ đỏ vô duyên, 8 người Getafe thất thủ trước Vallecano
--  Concessionária registra média de 120 veículos com problemas por dia no feriado prolongado na BR-163 de Sinop a Itiquira
--  Real Sociedad empata em casa
--  Despedimentos coletivos até novembro superam valor anual de 2022 e 2021
--  Ucrânia. ONU pede "libertação imediata" de dois poetas russos condenados
--  Emissão de certificados de aforro com limite de 7.000 milhões de euros em 2024
--  ​Autodeterminação de género nas escolas? "Devemos antes garantir que existem casas de banho"
--  Relatórios de técnicos sem competência legal podem encher tribunais com pedidos de anulação
--  올해 서울 공립초등학교 신입생, 4~5일에 예비소집
--  [현장EN:]이효리 러브콜 통했다…'레드카펫' 화려한 개막
--  '감독 경질 때문이라고?' 현대캐피탈, 1위 꺾은 상승세 진짜 이유
--  대만 대선 D-10…속 타들어가는 中 "민진당 재집권 막아라"
--  美대선 트럼프 당선시, 韓 당면한 경제·안보 과제는?
--  البرلمان الليبي: شعبنا مع الانتخابات وحكومة واحدة تمثله
--  James Milner, Premier Lig'de rekoru egale etti
--  Hamas lideri Heniyye'den suikaste sert mesaj! "İsrail direnişi asla kıramayacak"
--  Batı Şeria'da İsrail protestosu yükseliyor! Aruni suikasti sonrası Filistinliler kıyamda
--  ['챗GPT 개발사' 오픈AI, 지난해 매출 2조원 돌파…1년 새 57배로
--  [美 언론, 이재명 피습 신속 보도…“韓 정치 양극화 심해”
--  [하버드대 첫 흑인총장 사임…‘논문 표절 의혹’, ‘反 유대 논란’ 등 압박
--  [새해 벽두 전쟁 격화…러·우크라 대대적 미사일 공방 이어져
--  [이스라엘, 베이루트 외곽 하마스 시설 공격…정치국 2인자 사망
--  [“간병인 ‘지원’ 특약과 간병인 ‘사용’ 특약 달라요” 금감원, 소비자 유의 당부
--  [“오후에 비 또는 눈 올 수 있어요”…수도권 미세먼지 ‘나쁨’
--  ["업소녀에 돈 맡기면 큰 돈 번다"…이 말에 11명이 196억 날려
--  Municipio de Torreón espera recaudar más de 573 mdp del impuesto predial y del ISAI
--  حفيد أحد أبطال المقاومة ضحية لإذاعة موريتانيا
--  TESLA : RBC persiste à l'achat
--  Έχασε τα λόγια του ο εκπρόσωπος του Νετανιάχου: «Όποιος» σκότωσε τον Αρούρι δεν στόχευε Λίβανο ή Χεζμπολάχ
--  Predsednica Harvarda podnela ostavku zbog optužbi o plagiranju i svedočenja o antisemitizmu
--  New mom essentials: Unpacking the best in baby gear, formula, and more
--  Hezbolá afirmó que asesinato del número dos de Hamás en Líbano “no quedará impune”
--  Pedro Banga: Muere joven futbolista al desplomarse en pleno partido
--  "הקפטנים": לדוקו החדש של נטפליקס ופיפ"א יש את כל מה שצריך - וזו חלק מהבעיה
--  India lanza oficialmente una misión para estudiar los agujeros negros
--  Госдолг США превысил 34 триллиона долларов
--  السلطات التونسية تحبط 13 عملية هجرة غير شرعية
--  Q&A: Memory, brain function, and behavior—exploring the intricate connection through fear memories
--  Cako plas “bombën” në Albano Show: Yjet nuk ekzistojnë, jetojmë brenda një platforme
--  Diabetes and weight-loss drugs—Ozempic and Wegovy—not associated with increased suicidal thoughts, finds study
--  Шольц может досрочно уйти с поста, пишут СМИ
--  Experts chime in on most popular New Year’s resolutions
--  «Ποδαρικό με το δεξί» στο 2024 ο Ολυμπιακός
--  Arrestan a sujeto que hurtaba en negocios del mercado de Santa Tecla
--  Apple flink omlaag op Wall Street na adviesverlaging Barclays
--  Pritja e urgjencave, pediatër 24 orë, patologë dy turne dhe infermierë në gatishmëri
--  Grote brand bij bedrijf in Rutten onder controle
--  Malgin glänzt gegen müdes Ambri
--  Oakland: High-end Mexican restaurant to shutter Jan. 6
--  England: Brighton tókst ekki að nýta sér yfirburðina
+-  Pişirip yedikleri balon balığı yedi kişiyi hastanelik etti: Birinin durumu ağır
+-  Keylor Navas suena fuerte para llegar a México
+-  Governo português solidário com Japão pelas vítimas de sismo e colisão de aviões
+-  La ex portavoz socialista Soraya Rodríguez se une a Izquierda Española, a la espera de Nicolás Redondo
+-  의약품 허가 감소, 추세 변화 無…전문의약품 허가, 전년 比 줄어
+-  '사용범위 확대' 기준, 100억→50억 늘어날까‥'고가의약품'도 포함
+-  의약품 'e-라벨링'법 시행, 병원약사 '긍정적'·개국가는 '시기상조'
+-  수술실 CCTV 의무화 시행 3개월…우려 대비 영향 '잠잠(?)'
+-  성장세 탄력 받은 제약업종, 2023년 시총 규모 두 자릿수 확대
+-  政, 제약 리베이트 규제완화 法에 신중…"신약개발 유도해야"
