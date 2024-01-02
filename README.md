@@ -1,51 +1,51 @@
 # Latest News
--  بنك التنمية المحلية يتعزز بست وكالات جديدة في 2023
--  Россия самолёти Воронеж области устида ўқ-дориларни ташлаб юборди.
--  Ҳарбийлар билан учрашган Путин ва шарқий фронтдаги «Леопард»лар. Уруш суратлари.
--  Beyond Accommodation - Aryaduta Hotels Sets the Bar for Culturally-Rich Experiences in Indonesia
--  Szybszy niż oczekiwano wzrost gospodarki Singapuru
--  Mehmet Ocaktan ve Yıldıray Oğur, İstanbul'daki tehlikeli provokasyonu ve siyasetteki 'Suudi' polemiklerini tartıştı
--  지상파, 이재명 피습 피의자 진술 및 동기 집중 보도
--  Préparation CAN 2023 – La tanière se remplit, huis clos ce soir !
--  Courses Hippiques : 2éme journée : Kharé et Diofior confirment, Baakh 2 crée la surprise
--  El Ejército surcoreano realiza ejercicios de artillería con fuego real cerca de la frontera con Corea del Norte
--  Bruno Genesio'da son dakika gelişmesi! İmzaya bekleniyordu...
--  Proposed training college to tame insecurity
--  بدء فعاليات المؤتمر العلمي الأول حول تطوير المناهج التّعليمية
--  الصومال يرفض اتفاق الميناء بين إثيوبيا وأرض الصومال وتستدعي سفيرها .
--  Talijani: Brekalo igra još jednu, a onda ide u Dinamo ili Bolognu
--  Yufkanın arasına bundan sürün böreğiniz çıtır çıtır olacak! Börekçilerin sırrı
--  Гендиректор «Пари НН» не исключил возможность перехода Черышева
--  荣耀太原LIFE店开启别样跨年：赏魔法灯光大秀，拍新年最美照片
--  Lula passou a perna nos evangélicos
--  Nuri Şahin, ilk transferini Fenerbahçe'den yapıyor
--  Gunmen kidnap council chairman in Nasarawa
--  Lappeenrannassa sattui risteyskolari
--  Германия — Бушманн не верит в успех запрета на покупку секса
--  Five dead in Japan plane collision, says transport minister
--  Dolandırıcılara rekor ceza: 18'er yıl hapis ve 120'şer milyon lira ceza
--  Huawei’nin yeni otomobil markası ortaya çıktı! İşte logosu
--  Zamość: Na koniec roku do aresztu. Poszukiwany wpadł podczas kradzieży w sklepie
--  "Ботев"(Пд) започва подготовка в четвъртък, среща "Марица" в първата си контрола
--  Türkiye'deki en yaşanabilir iller değişti! Bakın memleketiniz kaçıncı sırada
--  Az egész ország területén akadozik a net, ez mindenkit érint!
--  Un ataque más: el Gobierno suspendió los créditos de Anses
--  Mujović: Cijena struje ostaje ista
--  Osimen i Lautaro najskuplji igrači u Seriji A
--  Bihar caste survey break-up be put in public domain, rules Supreme Court
--  В Киеве зафиксировали серьёзные перебои с интернетом
--  Katastrofa lotnicza w Japonii. Samolot z 379 pasażerami stanął w wielkich płomieniach
--  “김하성, 3루수로 상당한 경험” 고척에서 2루수 아니다? 4571억원 슈퍼스타가 아프잖아
--  조우종·정다은 부부, 공동 MC 맡았다
--  '축구화 잘못 맞네'…'전반전 PK 실축' 살라→축구화 교체 후 후반전 멀티골 폭발
--  '박지훈 24득점 폭발' 정관장, LG에 짜릿한 역전승…7연패 탈출 성공 [MD안양]
--  [포토] 고가 법인차량용 연두색 번호판
--  Gözler TÜİK'in açıklayacağı enflasyon rakamlarında: 2024'te bedelli askerlik ücreti ne olacak?
--  انتقدت جهات وصفتها بـ"المشبوهة".. الاتصالات عن دعمها لوسائل إعلام: إعلانات عن حملات وطنية
--  "الفصائل العراقية" تشن هجوما واسعا على قواعد امريكية في سوريا
--  Trinidad de Cuba: Luces y sombras de un desafiante 2023 (+ fotos)
--  Japan Airlines plane in flames on runway at Tokyo airport
--  Rohan Dennis and Melissa Hoskins had it all, with their Olympic dreams fulfilled, world championship medals secured and a young family bursting with love. Then something went terribly, terribly wrong outside their $2.45million mansion
--  Israel tăng cường oanh tạc Gaza dù rút bớt quân, cảnh báo lạnh người về giao tranh với Hamas
--  Life | Playwright Mbongeni Ngema's memorial service details announced
--  Harsha Chemudu’s ‘Sundaram Master’ locks release date
+-  بينهم "أبو دجانة".. القضاء العراقي يصدر أحكام الإعدام والمؤبد بحق 4 عناصر من داعش
+-  총선 100일도 안 남았는데 선거구, 선거제도는 확정도 못해
+-  새해 대낮부터 전자발찌 차고 처음 본 여자 성폭행…
+-  신원식 국방부 장관, 의원 시절 SNS에 "독도 영유권 분쟁은 사실"
+-  현역 국회의원 총출동…눈도장 명당경쟁 치열 [대구경북 신년교례회 이모저모]
+-  "이재명 피습, 윤 대통령 때문에 벌어져" 이경 발언에 전여옥 "보복운전사 다운 시각"
+-  한동훈 "대구는 저의 정치적 출생지"…국힘 시·도당 대구신년회 참석
+-  Performance All-Time : les 71 points de Donovan Mitchell face aux Bulls
+-  "تمثال مضروب".. حيلة شخصين للنصب على مواطنين بالمنيا
+-  جامعة القاهرة تنشر تقريرًا "إنجازات الجامعة دوليا فى دورياتها ومجلاتها العلمية"
+-  بعد وي.. فودافون وأورنج واتصالات تدرس سيناريوهات أسعار الإنترنت الأرضي
+-  صحيفة عبرية: تأييد نتنياهو بين الإسرائيليين انخفض إلى 15%
+-  تنظيم الاتصالات يبحث مع الأكاديمية الوطنية للتدريب تطوير معاهد الاتصالات
+-  تربية حلوان تنظم المؤتمر العلمي "تحولات التعليم في ظل الأزمات العالمية والتغيرات المناخية"
+-  إجلاء نحو 1200 شخص في شرق إندونيسيا بعد ثوران بركاني
+-  نجم الزمالك السابق: كهربا لا يستحق الانضمام للمنتخب
+-  "مصر للألومنيوم" ترفع أسعار منتجاتها بقيمة 6 آلاف جنيه للطن في يناير
+-  موعد مران المنتخب الأول في العاصمة الإدارية
+-  تسجيل صوتي مذهل.. أول مقطوعة موسيقية من شبكة العنكبوت
+-  الإسكان: حملة للكشف الطبى المبكر عن أمراض الثدي للنساء العاملات بالوزارة
+-  شيكابالا يواصل برنامجه في الزمالك.. وجلسة مطولة للاعبين قبل المران
+-  "رعب كبير " لعبة ملاهي تتعطل على ارتفاع عالي في لندن .. وهذا ما حدث
+-  حزب الله يستهدف تجمعًا للجنود الإسرائيليين على الحدود الجنوبية
+-  منها تكوين الحصوات.. إليك مخاطر حبس البول لفترات طويلة
+-  "المقاومة الإسلامية" تقصف قاعدتين أمريكيتين في العراق وسوريا
+-  شعبة النقل الدولي: هجمات الحوثيين لم تؤثر بشكل كبير على قناة السويس
+-  Putins nye superfabrikk: – Ingenting stopper Russland
+-  Ангел Червенков: Матай ще помогне много, Шакич разочарова
+-  Banyak Warga Yahudi ‘Kena Mental’, Ratusan Psikiater Israel Malah Ingin Buka Praktek di Inggris
+-  Mark Cuban’s Cost Plus Drug Company Sparks Moves To Change How Rx Drugs Are Priced
+-  В Твери завели уголовное дело по факту гибели семилетней девочки в реке
+-  ¿Por cuántos millones de euros se irá finalmente el Diablito Echeverri al Manchester City?
+-  科学实验告诉你 哪种口罩更防霾 | 科普时间
+-  (VIDEO) Nadal: Ovo je zaista emotivan i važan dan za mene
+-  Reenactment of laws for establishing College of Medicine programs in 4 universities lauded
+-  Minha Casa Minha Vida: Regras atualizadas para o Programa de financiamento
+-  Batıkan Manço'dan Doğukan Manço paylaşımı
+-  Başkan Erdoğan'dan Süper Kupa yorumu: Bu oyunu boşa çıkaracağız
+-  Filistin'den İsrail'e çok sert tepki... "İğrenç bir suç"
+-  Ocakta doğan Oğlak burcunun zayıf ve güçlü özellikleri! Çalışkanlığına aldanmayın
+-  Ketumlukta nirvana burçlar asla aşık olmuyor! İşte o 3 burç...
+-  "Böyle maddeler koydurmam" Sergen Yalçın imza töreninde iddialara noktayı koydu
+-  ASELSAN'dan 58,9 milyon dolarlık sözleşme
+-  Aile bu akşam yok mu? Aile dizisi neden yok, final mi yaptı?
+-  'Bana düşman oldular' diyen Ayşenil Şamlıoğlu yıllar sonra itiraf etti
+-  Fünf Tote bei Flugzeugkollision auf Flughafen in Tokio
+-  App de IA da Microsoft também já chegou ao iPhone
+-  Exploring the Diverse Gaming Modes in Battlegrounds Mobile India
+-  Alvorlig voldshendelse på privat adresse
+-  Tekoälyltä kysyttiin ihmiskunnan tuhoamisesta – Eipä tarvitse kysyä toista kertaa
