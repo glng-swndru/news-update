@@ -1,11 +1,11 @@
 # Latest News
--  Calgary kidnapping suspect arrested in Edmonton, hunt continues for alleged accomplices
--  (VIDEO) Južnokorejski opozicioni lider uboden nožem u vrat
--  تدريب وتوظيف.. شروط القبول في مبادرة روشن للتدريب المهني
--  إنذار باللون الأحمر على حائل والقصيم: "ضباب كثيف وتدني في الرؤية"
--  عاجل.. طريقة رفع إيقاف الخدمات في المملكة 2024؟.. وماذا تشمل؟
--  مواقيت الصلاة الأربعاء 21 جمادى الآخرة.. أهالي هذه المنطقة آخر من يصلون العشاء
--  Trump voittajasuosikkina Lontoossa
--  N.S. athlete hopeful Professional Women’s Hockey League will spark new opportunities
--  Nicaragua envía sus condolencias a Japón tras fuerte terremoto
--  Se tramitaron 165,287 pasaportes en el 2023
+-  Buscaba trabajo en un bar, le hizo una simple pregunta al empleador y la rechazaron
+-  Valencian europeliunelma elää
+-  Nuorten Leijonien välierän alkamisaika selvillä
+-  – بدء فعاليات المؤتمر العلمي الأول حول تطوير المناهج التّعليمية
+-  KM Peyton obituary
+-  Deiola a Sky: «Dopo il gol subito abbiamo fatto un po’ di errori e poi ci siamo sciolti»
+-  «1.5» مليار صادرات عملاء «تصدير»
+-  «الخبرة القطرية» تثري البطولة القارية
+-  Lil Nas X Asks Fans If They’re ‘Ready for a Show’ in New Era Teaser
+-  (VIDEO) Hechos violentos en Santa Cruz Xoxocotlán
