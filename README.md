@@ -1,51 +1,51 @@
 # Latest News
--  [2024 신년사] 이재근 국민은행장 "고객 퍼스트 중점…‘KB스타뱅킹’을 유니버설 플랫폼으로"
--  [인사] 신한은행
--  [2024 신년사] 김성태 기업은행장 "중소기업 위기극복 지원 최우선"
--  美대법원장 "AI 판사 등판? 아직 시기상조"… '환각현상' 등 부작용 경고
--  [날씨] 오늘 흐리고 온화…동해안 강한 너울, 해안가 출입 자제
--  दिल्ली में कोहरे के कारण रेल यातायात ठप: 26 ट्रेनें देरी से चली,यहां देखे लिस्ट
--  More EVs lose US tax credits including Tesla, Nissan, GM vehicles
--  Pirms ķeries pie uztura bagātinātājiem! Dažas lietas, kas tev jāzina par vitamīniem
--  김영록 전남지사 quot;대동정신으로 새로운 미래 100년 만들어가자quot;
--  김한규 의원, 이재명 대표 피습 살인 미수 quot;엄한 처벌이 뒤따라야quot;
--  [인사] 프레시안 경기인천취재본부
--  김대중 교육감 quot;더 나은 미래 위해 전남교육 대전환 속도 높이겠다quot;
--  quot;尹정권 합벅적으로 종식시키자quot;hellip;정동영, 전북 전주 출마 선언
--  दक्षिण कोरिया के विपक्षी नेता पर चाकू से हमला
--  الأكاديمية الوطنية للصناعات العسكرية 1445 فتح التسجيل لحملة الثانوية العامة عبر adi
--  Mainz 05 stellt wichtige personelle Weichen
--  Намушкаха с нож лидера на южнокорейската опозиция
--  طلباء اب اپنی کو برطانیہ نہیں لے جاسکیں گے
--  UN-Menschenrechtsbüro sieht Anzeichen für Kriegsverbrechen
--  Fraktionsvize Kuhle erleichtert über FDP-Mitgliederbefragung
--  Israel kämpft an mehreren Fronten
--  Ohne Carvalho, aber mit Elmas: RB Leipzig im Trainingslager
--  Kristina vom Dorf: Eine Verfechterin des sächsischen Dialektes wird Westsächsin des Jahres 2023
--  Mibrag-Chef sieht vorgezogenen Kohle-Ausstieg nicht kommen
--  Intervijas laikā Dienvidkorejā sadurts opozīcijas partijas līderis
--  Zum Tod von Tom Wilkinson
--  পঞ্চমবার সিআইপি সোহেল, মালদ্বীপ হাইকমিশনারের শুভেচ্ছা
--  شاهد الفيديو.. فنان أمريكي يغني لزعيم الحوثيين ويشكر ”جيش الحوثي”
--  بالتعاون مع أمريكا.. بريطانيا تستعد لتوجيه ضربات صاروخية ضد الحوثيين
--  Siang Ini, TKN Pastikan Gibran akan Datang ke Bawaslu Terkait Bagi-bagi Susu
--  Продължава специализираната полицейска операция за пияни и дрогирани зад волана
--  58 milletvekili sadece yemin etmek için kürsüye çıktı
--  En Chiapas, liberan a la empresaria de 73 años tras 11 días secuestrada
--  Hava Durumu (02-01-2024)
--  Hava Durumu (02-01-2024)
--  Orhan Şen tarih verdi: Kar İstanbul'un kapısına dayandı!
--  Boynundan bıçaklandı! Güney Kore'de ana muhalefet lideri saldırıya uğradığı anlar...
--  Flitsers op ring Antwerpen richting Nederland nieuwe recordhouder
--  Können Hunde Corona bekommen und es an ihre Besitzer weitergeben?
--  इस देश में मोटापे पर बनेगा कानून, नापी जाएगी कर्मचारियों की कमर!
--  Baron Black On Missing Much Of 2023, Says He Was Out With Injury & Illness
--  Sheinbaum destaca a los jóvenes como pieza fundamental para la 4T
--  Dövlət satınalmaları ilə bağlı yeni qanun qüvvəyə mindi
--  Tamara Keith und Amy Walter über den Wahlkampf 2024, die ersten Vorwahlen sind nur noch wenige Wochen entfernt
--  Acun Ilıcalı, genç aşkı Ayça Çağla Altunkaya yeni fotoğraf paylaştı
--  이창재 대웅제약 대표 “글로벌 헬스케어 기업 정체성 내재화할 단계”
--  진짜 제2의 이정후가 될 상인가…진정한 시험대, 영웅들은 23세 ‘뉴 히어로’ 기다린다
--  이강인, 배우 이나은과 열애설…"지인 사이"
--  尹, 금융투자소득세 폐지 공식화 "코리아 디스카운트 해소할 것"
--  ㈜올품 신임 대표이사에 26년 '하림맨' 강기철 씨 취임
+-  ‘짠한형’ 타블로, 투컷에 버럭…“너랑 똑같이 N분의 1로 돈 벌잖아!”
+-  전북 경찰, 국고보조금 부정수급 특별단속…121명 검거
+-  현대건설 윤영준 대표 "고부가가치 해외사업에 역량 결집
+-  양오봉 전북대 총장, 대학에 발전기금 1천만원 기탁
+-  이낙연 신당, 민주당 텃밭인 전북서 날 선 비판 "망국열차"
+-  김동철 한전 사장 "전기요금 정상화 이뤄낼 것…하루 이자만 90억"
+-  서거석 전북교육감 "실력·인성 키워 한국교육 중심 도약"
+-  민주당 전북도당 "똘똘 뭉쳐 대광법·의전원법 통과 노력"
+-  살라흐의 후반 2골 1도움…비결은 PK 실축 후 축구화 교체?
+-  김태현 국민연금공단 이사장 "희망 주는 국민연금"
+-  올해 지방공무원 보수 2.5% 인상 …9급 1호봉은 6%↑
+-  ‘Hóa rồng’ mỗi ngày rinh quà liền tay cùng Viettel Money
+-  Cách New York dọn núi rác thải 50 tấn sau giao thừa ở Quảng trường Thời đại
+-  Khách Tây khoái chí xuống ruộng tát nước, cấy lúa cùng nông dân Hội An
+-  Delhi: Minimum temperature settles notch above normal at 8.3 degrees Celsius
+-  Jr NTR pens note after safe return from quake-struck Japan
+-  New Year 2024: Priyanka Chopra and Nick Jonas celebrate with quirky glasses
+-  동해 묵호고, 올해 수도권대 40여명 합격… 영동지역 명문고 발돋움
+-  속초시 충혼탑 참배
+-  홍천군 6.25 및 월남전 참전유공자 추가 명각
+-  영월군 2024년 시무식
+-  2024년 인제군 시무식
+-  인제군 2024년 새해 충혼탑 참배식
+-  철원군의회 새해 현충탑 참배
+-  철원읍 새마을지도자 장학금 기부
+-  철원군청 시무식
+-  강릉시산림조합 안전기원제 개최
+-  강릉시의회 신년참배
+-  최윤순 전 국장 장학금 600만원 기탁
+-  원주시, 시무식 갖고 힘찬 새해 출발
+-  삼척시의회 충혼탑 참배 등 새해 일정 시작
+-  대순진리회 성주회, 후원금 5000만원 기탁
+-  삼척 도계초 학생들, 성금 기탁
+-  춘천시 신북읍번영회 해맞이 행사
+-  강원도립대 무료커피트럭 운영
+-  "상생경영에 적극 나서자" 강원랜드 2024년 시무식
+-  Liettuan ulkoministerin mukaan Kremlin imperialismi ei ole hävinnyt mihinkään
+-  La Agenda África 2063 de Marruecos valoriza el capital humano y refuerza la gobernanza económica del continente
+-  „Toyota“ parodė, kaip atrodys naujasis Europai skirtas elektromobilis
+-  Invité vun der Redaktioun (2. Januar): Marc Goergen, Deputéierte vun de Piraten
+-  Bitcoin 45 bin doları aştı
+-  이재명 피습에 외신도 긴급타전…“총선 4개월 앞두고 또 정치 폭력”
+-  Marvel’s ‘What If…?’ Releases An Action-Packed Sneak Peek Into Season 3
+-  مالية النواب تناقش اليوم موازنة وزارتي العمل والطاقة
+-  PM Modi to reach Kerala tomorrow; Shobhana, Mariyakutty to attend women’s meet
+-  Спорт по телевизията днес
+-  尹, 새해 첫 현장부터 '경제' …"금투세 폐지ㆍ은행권 힘 합쳐 상생"
+-  НАСА засне мощно изригване на Слънцето в новогодишната нощ
+-  Ukrainischer Präsident warnt Westen, Schwäche gegenüber Putin zu zeigen
+-  Στο σφυρί όλα τα αντικείμενα του Michael Schumacher
