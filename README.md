@@ -1,11 +1,51 @@
 # Latest News
--  MİT'ten terör örgütü PKK'ya kritik darbe: Sözde sorumlu öldürüldü
--  Aç kalan domuz sürüsü karayoluna indi
--  2. yudumda uykuya dalacaksınız! Top patlasa uyandırmayan 21 günlük kür tarifi
--  Fedon'dan evliliğiyle ilgili bomba itiraf!
--  Altın fiyatları bugün ne kadar oldu? 2 Ocak 2024 Kapalıçarşı ve piyasalarda Gram altın, çeyrek altın fiyatları
--  Bakan Göktaş'tan Mazhar Alanson'la Fuat Güner'e teşekkür!
--  İlk transfer! Fatih Terim eski oyuncusunu istedi
--  Edirne'de uyuşturucuya geçit yok!
--  İstanbul'da telefon dolandırıcılığı: 600 gram altınını kaptırdı
--  Ek dersler ne zaman yatar (Ocak 2024)? Yılbaşında ek ders ödenir mi?
+-  이장한 회장 “신약개발 패러다임 맞는 신규 모달리티 창출”
+-  의사협회, 불법 마약류 처방 등 혐의 회원 형사고발
+-  Alan Shearer and Ian Wright criticize Diogo Jota after controversial penalty call
+-  โกยเงินพุ่งช่วงเคาท์ดาวน์! 'ยกเว้นวีซ่า-ขยายเวลาเปิดผับตี4'เอื้อศก.ท่องเที่ยวไทย
+-  'ภูมิธรรม' เผย หลังคุย 'นายกฯ' กำชับตีปี๊บผลงานรบ. หลังทำงานเยอะ แต่ประชาสัมพันธ์น้อย
+-  Mercato Atalanta, Hien primo acquisto. Due uscite in prestito
+-  Juve-Salernitana, la probabile formazione: guida Locatelli, cambi in vista
+-  Lautaro Martinez, rinnovo vicino con l’Inter fino al 2028: cifre e dettagli
+-  Doig per Juric, dopo Ilic e Tameze nuova trattativa sull’asse Torino-Verona
+-  Diretta Milan-Cagliari ore 21: dove vederla in tv, streaming e probabili formazioni
+-  L'altro Inzaghi sulla strada di Allegri: occhio Juve, a Salerno si gioca tutto
+-  Ramakrishna: రాష్ట్రంలో అన్ని వర్గాల ప్రజలు ఆందోళనలో ఉన్నారు..
+-  پاک آسٹریلیا آخری ٹیسٹ، پاکستان کی پلیئنگ الیون کا اعلان
+-  Hàng trăm Phật tử tới Fansipan dâng đăng mừng Lễ vía Đức Phật A Di Đà
+-  Vắc xin 5 trong 1 về trạm, phụ huynh vui mừng khi trẻ không phải đi tiêm dịch vụ
+-  Nhà lãnh đạo thành công có đặc điểm gì?
+-  Vui và buồn trong đấu tranh phòng chống tham nhũng
+-  Thiếu tá công an bị thương khi trấn áp kẻ cầm dao chém bừa bãi ngoài đường
+-  رحيل ماجوباني .. المصور الذي وثق الفصل العنصري بجنوب أفريقيا
+-  Brisel: Vizna liberalizacija za Srbe na KiM u proceduri
+-  Growth Engine Revs Up
+-  PM Modi To Unveil Mega Projects in Tamil Nadu, Lakshadweep, And Kerala During Two-Day Visit
+-  Continue Prioritisation Of Capital Expenditure
+-  4 شهداء برصاص الاحتلال الإسرائيلي في بلدة عزون
+-  Во Владивостоке оцепили район на улице Алеутской из-за подозрительного предмета
+-  Südkoreanischer Oppositionsführer bei Angriff verletzt
+-  Plateau killings: Time to establish State/Community Policing
+-  کورونا کی نئی قسم کا پاکستان میں پھیلنے کا خدشہ، عازمین حج کی ویکسینیشن کا فیصلہ
+-  국민의힘 부산, '이재명 피습 사건'에 quot;극단적 폭력 있어서는 안 돼quot;
+-  Major Earthquake Strikes Japan On New Year’s Day, Leaving Destruction And Loss
+-  Околу 500 луѓе останаа блокирани на аеродром во Јапонија по земјотресот
+-  광주교통공사 4년 연속 공공기관 청렴도 우수
+-  Penyebab dan Cara Mencegah Depresi Pasca Melahirkan
+-  Augsburg: Erstes Neujahrsbaby im Josefinum ist ein Junge – Augsburger Allgemeine
+-  최연혜 가스공사 사장 “국민과 함께하는 에너지 혁신 리더 될 것”
+-  김찬진 동구청장 “초심 잃지 않고 활력 넘치는 동구 만들겠다”
+-  විදුලි සේවකයන් හෙට සිට තෙදිනක් විරෝධතාවයක
+-  Warto zaktualizować Chrome’a na telefony. Karta, którą oglądasz codziennie, teraz wygląda świetnie
+-  Top 10 Best-Selling Video Games of 2023: A Breakdown
+-  Αποδεκατισμένη μεν, με πίστη δε! (ΠΙΘΑΝΗ 11ΑΔΑ)
+-  مواطن روسي يفوز بمليار روبل في اليانصيب
+-  هجوم جوي إسرائيلي على ريف دمشق يسبب أضراراً
+-  জাফর উল্লাহকে দিয়েছেন নৌকা, আমাকে বৈঠা: নিক্সন চৌধুরী
+-  Die Gaming-Plattform stellt die Unterstützung für ältere Windows-Versionen ein
+-  Land Rover Classic Hadirkan Tenda untuk Classic Defender
+-  Lepa Brena napravila spektakl u Banjaluci
+-  في محافظتين.. مصرع وإصابة 16 بحوادث سير منفصلة
+-  Guinée : le colonel Doumbouya annonce un référendum en 2024
+-  الأردن يعزي اليابان بضحايا الزلزال
+-  OnePlus 12, Redmi Note 13: List of Smartphones To Be Launched in January 2024
