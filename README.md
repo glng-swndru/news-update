@@ -1,11 +1,11 @@
 # Latest News
--  Wydarzenia sportowe
--  경기 중고교생 10명 중 8명, 현재 학교생활에 ‘만족’
--  수원특례시의회, 2024년 시무식 개최
--  [신년사] 이길호 군포시의회 의장
--  경기도의회 더불어민주당 "이재명 대표 피습은 민주주의에 대한 심각한 위협이자 테러"
--  수원시 장안구, 제28대 이상수 장안구청장 취임
--  충남도지사, 도민 숲 조성 예금 1호 가입
--  예산군, 2024 갑진년 새해 ‘청룡’처럼 힘차게 열다
--  제13대 김영환 홍성소방서장 취임
--  염종현 경기도의회 의장, 2일 부천시 ‘원미구청 개청식’ 참석
+-  MİT'ten terör örgütü PKK'ya kritik darbe: Sözde sorumlu öldürüldü
+-  Aç kalan domuz sürüsü karayoluna indi
+-  2. yudumda uykuya dalacaksınız! Top patlasa uyandırmayan 21 günlük kür tarifi
+-  Fedon'dan evliliğiyle ilgili bomba itiraf!
+-  Altın fiyatları bugün ne kadar oldu? 2 Ocak 2024 Kapalıçarşı ve piyasalarda Gram altın, çeyrek altın fiyatları
+-  Bakan Göktaş'tan Mazhar Alanson'la Fuat Güner'e teşekkür!
+-  İlk transfer! Fatih Terim eski oyuncusunu istedi
+-  Edirne'de uyuşturucuya geçit yok!
+-  İstanbul'da telefon dolandırıcılığı: 600 gram altınını kaptırdı
+-  Ek dersler ne zaman yatar (Ocak 2024)? Yılbaşında ek ders ödenir mi?
