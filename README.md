@@ -1,51 +1,51 @@
 # Latest News
--  Russian missiles hit Ukrainian cities, killing 5 and injuring almost 100, Kyiv officials say
--  Population graph rises in urban, falls in rural areas, study reveals
--  Countdown begins on PSG star Kylian Mbappé&#039;s future
--  NC and Maoist Centre discuss NA Election
--  China breaks heat records in 2023 as sweltering weather baked cities from north to south
--  Innovative Smart Sports and Digital Health Tech From ITRI Debut at CES 2024
--  Fairmonde Golf Welcomes LPGA Star Angel Yin as a Shareholder in a Groundbreaking Investment
--  MediLink Therapeutics Announces Worldwide Collaboration and License Agreement with Roche to develop next-generation antibody drug conjugate in Oncology
--  Webull Launches in Canada
--  Allorion Therapeutics Announces Exclusive Option and Global License Agreement for Novel Preclinical-Stage EGFR L858R Allosteric Inhibitor Program with AstraZeneca
--  140 TVs discounted in Best Buy’s New Year sale — from $60
--  Israels neuer Außenminister sieht sein Land im 'Dritten Weltkrieg'
--  Ukraine appelliert an Welt für neue Waffenlieferungen
--  Férőhelyenként 56 millió forintból épült bölcsőde uniós támogatással egy nógrádi faluban
--  Krumhermersdorfer Miniaturversion des Erzgebirges findet nicht nur bei Modellbahn-Fans großen Anklang
--  Lennart hatte es plötzlich eilig: Zwickauer Neujahrsbaby erblickt um 2.01 Uhr das Licht der Welt
--  Olbernhau: Treibehaus verwandelt sich in Konzertsaal
--  Seiffen: 131,79 Euro für zehn Minuten Parken. Was ist denn da los?
--  Wind-Quali in Innsbruck: Kobayashi weit vor Wellinger
--  Kölner Trainersuche kurz vor dem Abschluss: "Externe Lösung"
--  Nach Mitgliederbefragung: FDP will sich stärker durchsetzen
--  ​Deco recomenda formação para bancários quando há alterações legislativas
--  Mulher encontrada morta dentro de um poço
--  Dell New Year Sale: Get an XPS 13 for $599 and plenty more
--  ایبٹ آباد:سرکاری گاڑی سے خاتون کیساتھ بدتمیزی‘فائرنگ بھی کی گئی
--  קיבוץ בארי עובר ליעד חדש: איפה יגורו 300 המשפחות ששרדו?
--  תעמולה פוליטית אסורה: זו הדרך בה סמוטריץ' השתמש בנכסי ציבור
--  Μια βόλτα στο Μουσείο για τον Κυριάκο Μητσοτάκη και την κόρη του Δάφνη
--  Kalabuhov: Visoki predstavnik ne postoji
--  La produzione di energia rinnovabile del Portogallo raggiunge un nuovo record nel 2023
--  Productie hernieuwbare energie Portugal bereikt nieuw record in 2023
--  Portugals Stromerzeugung aus erneuerbaren Energien erreicht 2023 einen neuen Rekord
--  Lobbyists sue DPP over acquittal of ex-CS Rotich
--  Wall Street entame la première séance de l'année dans le rouge avec Apple
--  جيش الاحتلال يزعم السيطرة على مقر الاستخبارات والتحكم التابع لحماس بمدينة غزة
--  Dragas chinas y planchones colombianos siguen operando
--  Иностранный хоккеист нашел новый клуб после ухода из «Бейбарыса»
--  Riječani režije više neće plaćati Ri-stanu. Taj posao preuzima gradska firma
--  Los mineros invaden TCOs y desplazan a los indígenas
--  Amarender Reddy తెలంగాణలో పెట్రోల్‌కి ఎలాంటి సమస్య లేదు
--  İsraildə məhkəmə islahatı qanunu ləğv edildi
--  Violenta pelea en un boliche de Mar del Plata durante Año Nuevo: una mujer le cortó la cara a otra con una copa rota
--  Moonspell iniciam digressão “Soombra” em Coimbra
--  HSBC zaoferuje aplikację konkurencyjną dla Revoluta
--  Tesla dostarczyła w 2023 roku 1,8 mln aut
--  الیکشن کمیشن کا قومی میڈیا کے کوڈ آف کنڈکٹ پر ایک روزہ تربیتی سیشن
--  RTE reveals popular series returning to screens after months off air
--  Former Man City star ‘set for shock Premier League return’ to rivals after starring in Bundesliga
--  গায়ের জোরে নির্বাচন দেশকে বিপর্যয়ের দিকে ঠেলে দিচ্ছে: ইসলামী আন্দোলন
--  Marketlerde yeni yıl zammı! Asgari ücretin ardından etiketler yeniden değişti
+-  Bandidos invadem residência em Sinop e furtam aparelhos eletrônicos e dinheiro
+-  Profissionais podem receber valores do abono salarial: entenda os requisitos
+-  الحلبي ترأس اجتماعاً تحضيراً لجلسة المال
+-  Milan Butterfield Scores For Nuneaton Borough
+-  محافظ المنيا يسلم 100 جهاز عروس لفتيات من الأسر الأولى بالرعاية
+-  زلزال اليابان يخلف دمارًا كبيرًا بالمناطق الساحلية وتحذيرات من تسونامي (صور- فيديو)
+-  غداً "الأربعاء".. "الأعلى للإعلام" يحتفل بتسليم 80 ترخيص جديد لوسائل الإعلام
+-  إصابة 18 في تصادم جرار زراعي وسيارة ملاكي بالدقهلية
+-  الأمم المتحدة: إسرائيل استمرت في اتباع سياسة التهجير القسري لعقود
+-  أشرف صبحي أمام رياضة البرلمان: "نرفع شعار النائب دائما على حق"
+-  وزير الإسكان يتابع سير العمل بمحطة تنقية مياه الشرب بإمبابة في الجيزة
+-  أكبر محطة على مستوى العالم.. سويلم يتفقد محطة الحمام لمعالجة مياه الصرف الزراعي بغرب الدلتا -تفاصيل
+-  ظهور يوسف حسن وتأهيل الثنائي في مران الزمالك
+-  وزير التعليم العالي يصدر قرارًا بإغلاق كيانين وهميين بمحافظة الإسكندرية
+-  تقي من أمراض القلب والسكتة الدماغية.. 4 فواكه تفتت الكوليسترول الضار
+-  زلزال اليابان يٌخلف دمار كبير بالمناطق الساحلية وتحذيرات من تسونامي (صور- فيديو)
+-  작위적 익명보도 시작으로 이선균을 '구경거리'로 만든 언론, 어떻게 해야할까
+-  Peter Obi, Pat Utomi pay condolence visit to Akeredolu’s family home
+-  Sci di Fondo - Tour de Ski: esordio assoluto in Coppa del Mondo per Martino Carollo
+-  Gigi D'Agostino a Sanremo 2024 dopo la malattia: l'annucio di Amadeus
+-  Reale Mutua Torino: info biglietti per la gara contro Cantù
+-  Sigue la búsqueda de supervivientes en Japón tras el fuerte sismo
+-  Adzic, signore dei debutti: la Juve, il piano Yildiz, Gerrard e De Bruyne
+-  Polacy ocenili przejęcie mediów publicznych. Ponad połowa badanych jest tego zdania
+-  All set for 2024 Kenya Kite Cup at Diani Beach
+-  The Future of TV Mounting: Exploring Smart and Motorised TV Wall Brackets
+-  Ålänning i muträttegång kan få fängelsestraff
+-  Viessmann schließt Verkauf von Klimasparte an US-Konzern ab
+-  Unbekannte sprühen 25 Meter langes Graffiti in Döbeln
+-  Neujahrskonzert in Hainichen ausverkauft: Wo gibt es noch Karten?
+-  Elsterberg will künftige Abc-Schützen aus Thüringer Nachbarorten aufnehmen und wird von der Landespolitik gebremst
+-  Die Flöha, die Zschopau und das Rätsel um einen Namen
+-  Erfolgreiche Reihe der Gesundheitsakademie wird im Erzgebirge fortgesetzt
+-  Weltmeisterin Hermoso bekräftigt: Kuss war aufgezwungen
+-  Unfall auf der A4 bei Glauchau
+-  Werdau: Schmöllnerin freut sich über ihr Neujahrsbaby
+-  Picos tem abastecimento de água suspenso após furto de cabos de energia elétrica
+-  Hoy Aylin y Emre están a punto de ser expuestos por Sanem
+-  How can Keir Starmer win big this year? By leading with love and ambition | Zoe Williams
+-  Needy students get bursaries
+-  'Musa do crime' investigada por se passar por turista para furtar viajantes é presa em tentativa de roubo a carro em Cuiabá
+-  Batman'da iki otomobil çarpıştı: 4 yaralı
+-  Antonela Roccuzzo recibió el 2024 junto a su familia
+-  Eleven People Killed In Kwara Road Crash, Seven Injured
+-  3 killed, including Murphy staffer, in deadly weekend on NJ roads
+-  홍남표 창원시장, 새해 미래 50년 먹거리 사업 챙겨
+-  Engenheiro morto após férias no Brasil: delegado marca depoimento e traça linhas de investigação em Ribeirão Preto
+-  창원시, 2024년 갑진년 시무식
+-  Fallece Juan Carlos Henao, destacado jurista y exrector de la Universidad Externado en Colombia
+-  Child sleep expert on how to get your children back into a routine before school
