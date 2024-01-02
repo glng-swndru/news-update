@@ -1,51 +1,51 @@
 # Latest News
--  Een mooi jaar vol hooroplossingen!
--  ASELSAN'dan bir başarı daha! 1,7 milyar TL'lik sözleşmeye imza atıldı
--  Milli Piyango yılbaşı ikramiyesinin "Kolombiya"ya çıktığı iddiasına ilişkin açıklama
--  Fenerbahçe aradığı stoperi buldu! 25 milyon euroluk duvar...
--  Filistin Kızılayı: İsrail'in Han Yunus'taki merkezimize saldırısında çok sayıda kişi öldürüldü
--  Yeryüzü Doktorları Gazze'nin yaralarına dikkat çekmek için sergi düzenledi
--  MİT'ten İsrail istihbaratına büyük operasyon! 8 ilde çoğunluğu 34 şüpheli gözaltına alındı
--  Arda Güler nihayet geri dönüyor
--  تركيا.. توقيف 33 شخصا بشبهة التجسس لصالح الاستخبارات الإسرئيلية
--  Cyprus electronics market expected to grow in 2024
--  Turkish Cypriots travel to Adiyaman for earthquake hotel trial
--  Anthony Vizcaya está listo para reforzar los innings finales de los Leones del Caracas
--  الملك يعزي اليابان بضحايا الزلزال
--  زلزال اليابان قد يكون حرّك الأرض 1.3 متر إلى الغرب
--  شكر على تعاز من عشيرة الرواشدة
--  الاحتلال يعترف بإصابة 31 جنديا
--  وفاة رئيس الموساد إبان حرب 1973
--  استمرار البحث عن إماراتي مفقود في الربع الخالي بالسعودية
--  New Year’s Gift: Olivia López Crespo Welcomes 2024 as the First Born in Alta Marina
--  X Social Network, formerly Twitter, witnesses 71% value drop
--  ‘Stop gaslighting Monique’: Musa Khawula blasts Katlego Maboe
--  Саудовская Аравия присоединилась к БРИКС
--  Słynny profil udostępnił nagranie Lewandowskich. Niestety. "Żenujące"
--  JJ's House Joins Forces with Sisters in the Fight Breast Cancer Foundation to Make Survivors Feel Beautiful
--  Novel Device Facilitates Successful No-Shave FUE Transplants for Long Hair with Ease
--  Hit and Run Law: పెట్రోల్ బంకుల వద్ద క్యూలైన్లకు కారణమేంటి? డ్రైవర్లు ఎందుకు దేశవ్యాప్త నిరసనకు దిగారు?
--  Az Orbán-rendszert kutatta Ádám Zoltán, a Corvinus kirúgott docense
--  W tym roku mieszkańcy Białej Podlaskiej nie pojadą autostradą A2
--  SPFL chief hits out over shock postponement – as he reminds rivals about their own six figure outlay
--  Aterriza en Madrid Santiago Sánchez Cogedor, el único español que se encontraba preso en Irán
--  تمديد صلوحية بطاقات النقل المجاني لجرحى الثورة وأولي الحق من ذوي الشهداء
--  Jokowi Janji Tambah Anggaran Pupuk Bersubsidi jadi Rp 14 Triliun
--  Person der Woche: Gavin Newsom: Der US-Präsidenten-Joker hatte ein Alkohol-Problem und kann kaum lesen
--  Bauchi Head Teacher Jailed 11 Years For Defiling Pupil
--  Zmasowany rosyjski atak. Ukraina przygotowała listę "pięciu kroków"
--  TS NEWS: సమ్మె విరమించిన లారీ డ్రైవర్లు..
--  Republican Chairman Says GOP's Attack on Joe Biden Crossed the Line
--  ‘We’re losing everything good’ cry punters as pub chain with 300 locations abruptly shuts branch doors after 17 years
--  Szomorú idők várnak az influenszerekre: a mesterséges intelligencia okozhatja a vesztüket
--  खुद को अर्जुन का वंशज मानने वाले ये मुस्लिम भी हिंदुओं की तरह दिवाली-दशहरा मनाते
--  She Was Captured By Hamas Terrorists...Brutalised...Know The Horrific Story Of 21-Yr-Old Tattoo Artiste
--  North’s minimum wage less than in Turkey for first time
--  Встреча Фарруха Хасанова, сериал «Дом», работа в Великобритании и рост тарифов на свет: что смотрят в Таджикистане?
--  Πρ. Παυλόπουλος: Το εμβληματικό Ηγετικό Πρότυπο του Κωνσταντίνου Καραμανλή*
--  Hapag-Lloyd evitará canal de Suez hasta el 9 de enero y volverá a evaluar la situación
--  Θεαματική Προσφορά* γνωριμίας Vodafone TV
--  Rangers v Kilmarnock LIVE score as fans hope to get Fabio Silva glimpse in Prem clash – stream, TV, channel, team news
--  উভয় স্টক এক্সচেঞ্জে লেনদেনে সেরা ৭ কোম্পানি
--  Börse im Zeitraffer - Bis zu 591 Prozent Gewinn: Das sind die besten deutschen Aktien des Jahres 2023
--  Şırnak'ta üretiliyor, Avrupa'nın dört bir yanına ihraç ediliyor
+-  مجلس الحسابات يستعد لإحالة ملفات منتخبين بارزين على النيابة العامة
+-  وزارة التعليم تستأنف جلسات الحوار مع النقابات لمتابعة تنفيذ اتفاق 26 دجنبر
+-  "وزارة بنموسى" تَستدعي الFNE لمواصلة الحوار.. و"قاشا" يكشف ل"أخبارنا" تفاصيل أوفر
+-  بين البقاء و الرحيل عن غلطة سراي .. وكيل أعمال النجم حكيم زياش يوضح
+-  المديرية الجهوية للفلاحة بكلميم وادنون تُسجل انخفاضا في إنتاج الزيتون بنسبة 30 بالمائة
+-  المديرية العامة للضرائب تصدر نسخة 2024 من المدونة العامة للضرائب
+-  Kibariye babasıyla ilgili ilk kez konuştu: Beni çok dövdü
+-  Finlandiya ve İsveç'te "bu kışın en düşük sıcaklıkları" kaydedildi
+-  İran Cumhurbaşkanı Reisi Türkiye'ye geliyor... Terörle mücadelede somut işbirliği en büyük beklenti
+-  Almanya'da aşırı sağ yükseliyor... Üye sayısında dikkat çeken artış
+-  İzmir açıklarında hortum oluştu
+-  Teklif yapıldı! Süper Lig devi Berkay Yılmaz için geri sayıma geçti
+-  TBMM Başkanı Kurtulmuş, RTÜK Başkanı Şahin'i kabul etti
+-  Weltkulturerbe: Chemiker untersucht Gewässer im Park des Schloss Augustusburg in Brühl
+-  Cô dâu làng bóng đá Việt được tặng vàng ngày cưới hỏi, đoán xem của ai "nặng" nhất?
+-  Đông Nhi bắt tay Hiền Thục, Jun Phạm giải mã 'Tết ổn' trong MV mới
+-  Nam Thư lên tiếng về bức ảnh ôm sát rạt đồng nghiệp nam đã có vợ: "Tôi xin rút kinh nghiệm"
+-  Chụp ảnh xấu lần đầu là lỗi của điện thoại, nhưng chụp mãi vẫn xấu là do bạn chưa biết những mẹo này rồi
+-  3 TỐ CHẤT của người làm lãnh đạo: Kẻ bình thường lướt qua, người thức thời đọc ngay để NHẢY VỌT trong năm 2024
+-  Indberetning af ledende medarbejderes og disses nærtståendes transaktioner med A.P. Møller - Mærsk A/S aktier i forbindelse med aktietilbagekøbsprogram
+-  לפני משחק העונה: אסולין ישפוט את מכבי ת"א, לייבה את מכבי חיפה
+-  טוקלומטי עשוי לרדת לספסל של מכבי פ"ת, פרמאטי במרכז ההגנה
+-  'Lướt sóng' cổ phiếu SEA trong chưa đầy một tháng, công ty con của Novaland đã lãi gấp đôi?
+-  Više od 22.000 mrtvih
+-  В Белгороде сократят рейсы общественного транспорта из-за атак ВСУ
+-  ETF Spot su Bitcoin: SORPRESA del fondo da 27 miliardi
+-  MrBeast Snubs Elon Musk's X; YouTuber Rejects Billion-Dollar Offer Citing Revenue Woes
+-  TDK'ya göre şoför nasıl yazılır? ‘şoför mü’ yoksa ‘şöför mü?’
+-  yada TDK yazımı nasıl? 'ya da' birleşik mi, ayrı mı yazılır?
+-  Haftasonu TDK yazılışı… Hafta sonu nasıl yazılır, birleşik mi, ayrı mı?
+-  Maalesef TDK yazılışı… Maalesef nasıl yazılır, ‘malesef’ mi, ‘maalesef’ mi?
+-  Hiçbir TDK yazılışı… Hiçbir nasıl yazılır, birleşik mi, ayrı mı?
+-  Yeni yılda ruh sağlığını iyileştirme yolları
+-  Birkaç TDK yazımı… Birkaç nasıl yazılır, ayrı mı, birleşik mi?
+-  HPV aşısı rahim ağzı kanserinden koruyor! Rahim ağzı kanseri ile ilgili merak edilenler
+-  Bakanlık harekete geçti: Görüntülere inceleme başlatıldı! Fabrika sahibinden işçiye şiddet
+-  ‘İyiki’ nasıl yazılır, birleşik mi ayrı mı? TDK ‘iyi ki’ yazılışı
+-  2024’te harç ücretleri ne kadar olacak?
+-  Gitgide nasıl yazılır? TDK “git gide” yazılışı birleşik mi, ayrı mı?
+-  Η Ουκρανία κατηγορεί τη Ρωσία ότι βομβαρδίζει "εσκεμμένα" "κατοικημένες" περιοχές
+-  Arda Güler Real Madrid-Mallorca maçının kadrosuna alındı
+-  Sophie Ellis-Bextor responds to ‘Murder On The Dancefloor’ resurgence for featuring in NSFW ‘Saltburn’ scene
+-  Fenerbahçe'de İstanbulspor maçı öncesinde kadro sıkıntısı
+-  انقطاع الغاز الإيراني يضرب الجنوب: تحذيرات من انقطاع الكهرباء في مواجهة الموجات البردية
+-  القائد الأعلى للجيش الليبي يعقد اجتماعاً عسكرياً موسعاً
+-  زيادة أسعار تذاكر مترو الانفاق بمصر، وتخوف من زيادة أسعار الكهرباء .
+-  Inter in flessione? La Juve è sul pezzo: sale anche la qualità dei bianconeri
+-  انطلاق فعاليات ملتقي تطوير مهارات طب الأسنان في ابوسليم.
+-  Aiyedatiwa assures workers of improved value, dignity for better future
+-  Samo 15 posto Izraelaca želi da Netanyahu ostane premijer, veću podršku ima Gantz
