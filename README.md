@@ -1,51 +1,51 @@
 # Latest News
--  Italie :: Au Coude-À-Coude En Serie A, L’as Roma Et L’atalanta Bc Se Croisent Pour Se Repositionner :: Italy
--  Hipohondri stalno brinu o zdravlju, a studija pokazala da žive kraće
--  Šola skratio spisak kandidata za EP
--  Japonya'daki 7.6'lık depremde can kaybı yükseldi
--  3 bin 59 eser Türkiye'ye getirildi
--  Truck Drivers Call Off Protests After Assurance From Centre On Hit-And-Run Law
--  Compromís denuncia «censura» a la Asociación MIAU de Fanzara
--  Militares fazem 'vaquinha' para ajudar Mauro Cid, delator de Bolsonaro, a pagar R$ 600 mil em dívidas
--  The meat and dairy industry is not 'climate neutral', despite some eye-catching claims
--  Main Evening News, Sport and Obituaries – Tuesday January 2nd
--  Guerre Israël-Hamas : la Turquie arrête une trentaine d'espions du Mossad
--  حماس : الاغتيالات لن تفلح في كسر إرادة شعبنا
--  Impaired driving charges in Charlottetown up in 2023
--  Aktivita vo výrobnom sektore v Spojených štátoch sa znížila, odráža slabý dopyt
--  మద్యం సేవించిన వారిపై చర్య తీసుకోవాలి
--  Matilda Vinberg klar för Tottenham
--  Benfica. Otamendi e Di Maria já treinam
--  Costa diz que Governo só fica obrigado a "recato" com a dissolução do Parlamento
--  వైఎస్సార్‌కు షర్మిల నివాళి
--  BVB wegen Transfer von Jadon Sancho in Gesprächen mit ManUnited
--  Matija Vuica prvi put se oglasila nakon smrti voljenog Jurice: Dirljiva fotografija slama srca
--  Intensifican búsqueda en redes de Luis Alejandro
--  Lubelskie kuchnią stoi! Znasz te tradycyjne potrawy?
--  Ich łupem były głownie pieniądze i złoto. Włamywacze z Rumunii zatrzymani
--  Manchester United to pursue Timo Werner, Eric-Maxim Choupo-Moting loan moves?
--  డిగ్రీ కళాశాలలో వసతులు కల్పించాలి
--  Hamás reporta muerte de su fundador y sublíder por explosiones Líbano
--  Работодателите вече плащат първите два дни от болничните, а не първите три
--  Gen. Koziej: Wojsko Polskie reaguje właściwie na incydenty rakietowe. Nie zawsze tak było
--  Tennis : La France au bout du suspense, grand défi à venir
--  Housing Minister Must Go
--  Mysteriöser Fall für Kripo - Wer ist der Tote mit dem Tweety-Tattoo?
--  Staatsschutz ermittelt - Galgen für Ampel-Regierung in Sachsen aufgestellt
--  ఉత్తమ సేవలు అందించాలి
--  Miha Zajc için iki aday
--  İstanbul sağanak yağış... Trafik yoğunluğu yüzde 80'e çıktı
--  'Ek MTV alınacak' iddiaları yalanlandı... Böyle bir çalışmanın olmadığı vurgulandı
--  Jadon Sancho yeniden Dortmund yolunda
--  Hamas'tan işgalci İsrail'in 'Salih Aruri' suikastı açıklaması... "Filistin halkının direnişini kıramayacak"
--  దివ్యాంగులకు తీరని అన్యాయం
--  Suomen ainoa Venäjän kunniakonsuli Pauli Saapunki luopui arvonimestä – Kuusamolainen kertoo saaneensa "uhkaavia sähköposteja ja tekstiviestejä"
--  تراند اليوم : شاهد.. مواطن يوثق مجموعة من القطط الرملية العربية أثناء تجولها في البر
--  تراند اليوم : بالفيديو .. المدرب خليل الزياني يكشف سبب تركه للثانوية العامة وتوجهه للتجارية
--  تراند اليوم : شاهد: شخص يجمع عملات معدنية بكميات ضخمة داخل جوالين مياه
--  تراند اليوم : اغتيال ⁧‫"صالح العاروري"‬⁩ القيادي في حركة ⁧حماس‬⁩ في قصف طائرة مسيرة إسرائيلية في بيروت‬⁩
--  Лидерът на "Хамас": Ще освободим израелските заложници при няколко условия
--  Beşiktaş'ta öz kaynak yatırımı devam ediyor! Semih Kılıçsoy ile sözleşme imzalandı
--  Fuller, Smith & Turner PLC: Transaction in Own Shares
--  Cease fire! Capodanno in Piazza Duomo a Milano, con Gaza nel cuore – video
--  Gran Hermano: Así fue la fuerte pelea entre Sabrina y Catalina por la nominación de Williams
+-  Duitsland steunt Oekraïne 'zolang het ons nodig heeft'
+-  Entran por el río y los regresa la Guardia de Texas
+-  Unveiling of PISE-P: The message, gains, prospects
+-  Çin'de yılbaşında yurt dışı seyahatler salgın öncesi düzeye ulaştı
+-  Lo que leeremos este año: estos son los libros más destacados de 2024
+-  Stejjer umani dwar il-problemi soċjali jiddominaw l-aħbarijiet ta’ Newsbook fl-2023
+-  Chilevisión confirma a los últimos dos integrantes de “Top Chef VIP”
+-  Pavlovic, l'esordio grazie a un ex Juve. Perché è il profilo giusto per Allegri
+-  Ronaldo, l'ultimo regalo per mamma Dolores è una Porsche da 100mila euro
+-  Inter al lavoro per il Verona: Calhanoglu assente! Lautaro e Dimarco...
+-  Juve, c'è il bonus a gennaio: ecco perché può valere il sorpasso all'Inter
+-  [ВИДЕО] Хајди Клум топлес трчка по плажата: Ужива во страстите со својот сопруг...
+-  Arabia Saudita ingresa al bloque económico BRICS
+-  Jefes del Eln reiteran la voluntad de seguir negociando la paz con el Gobierno
+-  న్యూఇయర్‌ ద్వారా ఆర్టీసీకి రూ.6లక్షలు ఆదాయం
+-  Japanese WWII Major said Dutch women in forced prostitution "have to get used to it"
+-  Hochwasserlage: Pegelstände der Flüsse im Rhein-Sieg-Kreis steigen deutlich an
+-  Broj žrtava razornog zemljotresa u Japanu porastao na 57
+-  Vượt qua đau thương, người Nhật Bản đã sống chung với những trận động đất kinh hoàng như thế nào?
+-  10 nhân vật nức tiếng nhất cuối thời nhà Thanh: Từ Hi đứng đầu, Uyển Dung xinh đẹp, người thứ 4 gây bất ngờ
+-  Hamas confirms deputy leader killed in Beirut blast
+-  ఆటో బోల్తా.. యువకుడి దుర్మరణం
+-  حكم مباراة ليفربول وأرسنال في كأس إنجلترا
+-  Women's and girls' sports: More popular than you may think
+-  Ağdam-Xankəndi dəmiryolunun tikintisindən son görüntülər
+-  Янги йилда инвестиция сиёсатини амалга ошириш ва “яшил” энергетикани ривожлантириш масалалари муҳокама қилинди
+-  Residents kick as Wike insists on issuance of certificate of occupancy in FCT
+-  هالاند على رأس تشكيلة العام في الدوري الإنجليزي
+-  DPS: Struja ipak poskupila 5,63 odsto, Vlada obmanjuje javnost
+-  Meteo centar TV Vijesti: U srijedu oblačno, do 16 stepeni
+-  Cronología del caso del dominicano Wander Franco, investigado por una presunta relación con una menor de edad
+-  Απαντήσεις που ξαφνιάζουν – Ποιοι αθλητές θεωρούνται πιο καλοί στο σεξ;
+-  توتنهام يحسم مستقبل ريجيلون بعد إنهاء إعارته لليونايتد
+-  Girona-Atletico Madrid, che sfida! Le quote dicono...
+-  Fernández Mirabal insta a reforzar militancia en el PLD de cara a las elecciones de 2024
+-  Viisi kuoli matkustajakoneen törmättyä rannikkovartioston koneeseen Tokiossa – palavasta Airbusista pääsivät ulos kaikki lähes 400 ihmistä
+-  Viisi kuoli matkustajakoneen törmättyä rannikkovartioston koneeseen Tokiossa – palavasta Airbusista pääsivät ulos kaikki lähes 400 ihmistä
+-  Ucrania pide más ayuda a sus aliados mientras Rusia reanuda bombardeos
+-  Releasing Nnamdi Kanu achievable — Reps Deputy Speaker, Kalu
+-  Trotz hoher Kriegs-Zustimmung: Israelis kehren Netanjahu den Rücken zu
+-  Europejski rynek akcji zaczął rok minimalnym spadkiem
+-  గురుకులానికి పూర్వ విద్యార్థుల వితరణ
+-  Ministerstwo zwróciło się do Google Polska o wyjaśnienia w sprawie informacji o kursie złotego
+-  ద్విచక్ర వాహనాన్ని ఢీకొన్న లారీ
+-  Video: Enumera la Policía Municipal sus propósitos para 2024
+-  Mata a su hermana y camina con su cabeza en calles de Michoacán
+-  Nicola Peltz and Brooklyn Beckham re-enact Dirty Dancing lift with glimpse into glitzy NYE celebrations
+-  Bigg Boss 17, day 80: Ankita Lokhande hits husband Vicky Jain multiple times in heated altercation
+-  Japan quake toll rises to 55 amid fears many trapped
+-  Harvard’s President Faces New Plagiarism Accusations
