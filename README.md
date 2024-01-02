@@ -1,11 +1,51 @@
 # Latest News
--  חג'ג' סובל מכאבים, אבל עשוי לשחק נגד הפועל פ"ת. חלאילי כשיר
--  تخفيض سعر 638 مستحضرا دوائيا خلال 2023
--  Carragher chỉ ra điểm yếu của Liverpool
--  Bị sếp lớn Leipzig chê, Carvalho gia nhập đội bóng ở Premier League
--  Nóng! Ratcliffe chuẩn bị gặp mặt Ten Hag và các cầu thủ Man United
--  احذر الشعور بالإرهاق وعدم التركيز من أعراض نقص هذا الفيتامين الشهير
--  الاحتلال الإسرائيلي يجدد قصفه على مقر الهلال الأحمر في خان يونس
--  حفرة رملية تبتلع شاباً حيا.. وهذا ما حدث له
--  ميزان المدفوعات يسجل فائضا بقيمة 229 مليون دولار بالربع الثالث من 2023
--  بداية 2024.. ارتفاع أسعار الإنترنت والكهرباء وترقب للبنزين
+-  Russian missiles hit Ukrainian cities, killing 5 and injuring almost 100, Kyiv officials say
+-  Population graph rises in urban, falls in rural areas, study reveals
+-  Countdown begins on PSG star Kylian Mbappé&#039;s future
+-  NC and Maoist Centre discuss NA Election
+-  China breaks heat records in 2023 as sweltering weather baked cities from north to south
+-  Innovative Smart Sports and Digital Health Tech From ITRI Debut at CES 2024
+-  Fairmonde Golf Welcomes LPGA Star Angel Yin as a Shareholder in a Groundbreaking Investment
+-  MediLink Therapeutics Announces Worldwide Collaboration and License Agreement with Roche to develop next-generation antibody drug conjugate in Oncology
+-  Webull Launches in Canada
+-  Allorion Therapeutics Announces Exclusive Option and Global License Agreement for Novel Preclinical-Stage EGFR L858R Allosteric Inhibitor Program with AstraZeneca
+-  140 TVs discounted in Best Buy’s New Year sale — from $60
+-  Israels neuer Außenminister sieht sein Land im 'Dritten Weltkrieg'
+-  Ukraine appelliert an Welt für neue Waffenlieferungen
+-  Férőhelyenként 56 millió forintból épült bölcsőde uniós támogatással egy nógrádi faluban
+-  Krumhermersdorfer Miniaturversion des Erzgebirges findet nicht nur bei Modellbahn-Fans großen Anklang
+-  Lennart hatte es plötzlich eilig: Zwickauer Neujahrsbaby erblickt um 2.01 Uhr das Licht der Welt
+-  Olbernhau: Treibehaus verwandelt sich in Konzertsaal
+-  Seiffen: 131,79 Euro für zehn Minuten Parken. Was ist denn da los?
+-  Wind-Quali in Innsbruck: Kobayashi weit vor Wellinger
+-  Kölner Trainersuche kurz vor dem Abschluss: "Externe Lösung"
+-  Nach Mitgliederbefragung: FDP will sich stärker durchsetzen
+-  ​Deco recomenda formação para bancários quando há alterações legislativas
+-  Mulher encontrada morta dentro de um poço
+-  Dell New Year Sale: Get an XPS 13 for $599 and plenty more
+-  ایبٹ آباد:سرکاری گاڑی سے خاتون کیساتھ بدتمیزی‘فائرنگ بھی کی گئی
+-  קיבוץ בארי עובר ליעד חדש: איפה יגורו 300 המשפחות ששרדו?
+-  תעמולה פוליטית אסורה: זו הדרך בה סמוטריץ' השתמש בנכסי ציבור
+-  Μια βόλτα στο Μουσείο για τον Κυριάκο Μητσοτάκη και την κόρη του Δάφνη
+-  Kalabuhov: Visoki predstavnik ne postoji
+-  La produzione di energia rinnovabile del Portogallo raggiunge un nuovo record nel 2023
+-  Productie hernieuwbare energie Portugal bereikt nieuw record in 2023
+-  Portugals Stromerzeugung aus erneuerbaren Energien erreicht 2023 einen neuen Rekord
+-  Lobbyists sue DPP over acquittal of ex-CS Rotich
+-  Wall Street entame la première séance de l'année dans le rouge avec Apple
+-  جيش الاحتلال يزعم السيطرة على مقر الاستخبارات والتحكم التابع لحماس بمدينة غزة
+-  Dragas chinas y planchones colombianos siguen operando
+-  Иностранный хоккеист нашел новый клуб после ухода из «Бейбарыса»
+-  Riječani režije više neće plaćati Ri-stanu. Taj posao preuzima gradska firma
+-  Los mineros invaden TCOs y desplazan a los indígenas
+-  Amarender Reddy తెలంగాణలో పెట్రోల్‌కి ఎలాంటి సమస్య లేదు
+-  İsraildə məhkəmə islahatı qanunu ləğv edildi
+-  Violenta pelea en un boliche de Mar del Plata durante Año Nuevo: una mujer le cortó la cara a otra con una copa rota
+-  Moonspell iniciam digressão “Soombra” em Coimbra
+-  HSBC zaoferuje aplikację konkurencyjną dla Revoluta
+-  Tesla dostarczyła w 2023 roku 1,8 mln aut
+-  الیکشن کمیشن کا قومی میڈیا کے کوڈ آف کنڈکٹ پر ایک روزہ تربیتی سیشن
+-  RTE reveals popular series returning to screens after months off air
+-  Former Man City star ‘set for shock Premier League return’ to rivals after starring in Bundesliga
+-  গায়ের জোরে নির্বাচন দেশকে বিপর্যয়ের দিকে ঠেলে দিচ্ছে: ইসলামী আন্দোলন
+-  Marketlerde yeni yıl zammı! Asgari ücretin ardından etiketler yeniden değişti
