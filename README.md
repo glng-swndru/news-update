@@ -1,11 +1,51 @@
 # Latest News
--  Aardbeving treft Japan, maar tsunami blijft uit
--  Telangana breaks record, tops organ donations
--  Carrom is struck off Shiv Chhatrapati award list; jobless world champ Dive distr
--  [종합] 군포 산본동 아파트 화재…1명 사망·14명 부상
--  Nikitin Dheer: Couldn’t have asked for a better Lanka
--  Ryan Reynolds sums up his 2023
--  Sonali Bendre enjoys rickshaw and cable car rides with family before Ganga Aarti
--  Akshay Kumar cycles into the New Year with daughter Nitara in Maldives
--  탐나는전 포인트 적립·생계급여 지원 기준 확대
--  ‘청룡의 해’…공동체 의식으로 고난 딛고 희망찬 한 해 되길
+-  한밤 중 아버지 차량 몰고 인터넷 생방송 초중생 검거
+-  진도군, 문광부 '대한민국 문화도시' 선정hellip;국비 100억 지원
+-  이재명 부산 방문 중 피습...흉기 찔려 병원 이송
+-  밤새 부산 영도구 아파트서 화재...입주민 2명 부상middot;40명 대피
+-  제주국제관악제, 올해부터 3년간 국비 지원 받는다
+-  [신년사] 이장우 대전시장 quot;발빠른 변화 대응과 주도적인 '응변창신' 자세로 일류경제도시 완성할 것quot;
+-  동해시, 전국 최초hellip;생애 첫 주민등록증 발급 축하금 지급
+-  동해시, 고향사랑기부금 목표액 초과 달성
+-  태백 '택시 콜센터' 통합운영hellip;4일 앞당겨 시민들 혼란?
+-  양산시, 시민 안녕middot;지역 발전 염원담은 '시민안녕기원제rsquo;
+-  ‘이재명 피습’에 尹대통령·한동훈 “결코 있어선 안 될 일”
+-  “국가채무 50년 뒤 GDP 2배”…재정준칙 도입은 또 무산
+-  홍익표, 尹 신년사에 “현실과 동떨어진 자화자찬…철 지난 이념 타령만”
+-  尹대통령 “韓 주식시장 저평가…자본시장 규제 혁파로 해소할 것”
+-  재난 중에도 야욕 드러낸 日…쓰나미 경보에 ‘독도 일본땅’
+-  ‘이재명 피습’에 비상 걸린 민주…“피의자 당원 여부 등 확인 예정”
+-  Nationaal Archief gunt kijkje achter schermen inhuldiging Juliana
+-  Oppositieleider Zuid-Korea in hals gestoken tijdens persmoment
+-  이재명 부산 방문 중 피습, 부산대 외상센터로 이송
+-  셀트리온, 아태지역 전문의약품 사업 이익남기고 전략적 매각
+-  유권자 10명 중 7명 "지역구 현역 교체"…한동훈 비대위 기대 42.1%
+-  강석훈 산은 회장 "韓 초저성장 위기 극복에 산은이 선봉장되겠다"
+-  한동훈 "이재명 피습, 절대 있어서는 안 될 일…엄정 수사해야"
+-  임종룡 우리금융 회장 “기업문화 혁신 통해 선도 금융그룹 도약할 것”
+-  세무에선 챗GPT보다 한 수 위..온비즈 택스 '세무GPT' 개발
+-  กทม.ฝุ่นพิษเกินเกณฑ์ 4 พื้นที่
+-  이효리, 상업광고 복귀한 이유? "안테나서 몇 억씩 쓰기 미안…많이 벌고 많이 쓰고파" [마데핫리뷰]
+-  결국 '월클 CB' 1년 연장 옵션 포기→'伊 유망주 수비수'로 대체?..."4400만 파운드에 영입 근접"
+-  NYM→BOS→BAL 등장! 류현진의 위엄, 열기 점점 뜨거워진다…연 '1000만+α' 꿈 아닌 현실이다
+-  [인사] 더팩트
+-  日 7.6 강진에도… 'K팝 콘서트' 측 "박서준→에스파 예정대로 출연" 우려 목소리↑ [MD이슈]
+-  황현식 LG유플러스 사장 “디지털혁신으로 고객중심 회사로…플랫폼 사업 확대”
+-  "최고의 수비형 중견수"…'유틸리티 강점' 배지환, 개막 로스터 합류 예상
+-  [EPL] "황소를 잡아라"... 토트넘 등 빅클럽 황희찬에 눈독
+-  Jennie lại gây choáng vì độ giàu: Sắm sofa gần 1 tỷ, thiết kế nom đơn giản nhưng độ sang xịn, êm ái đỉnh chóp
+-  Không phải BLACKPINK, người Lisa đón năm mới cùng là…
+-  Đỉnh cao kiếm tiền: Chàng sinh viên 21 tuổi kiếm được hơn 12 tỷ/năm với số vốn chưa tới 500 nghìn đồng
+-  Tôi đã có "hũ vàng" đầu tiên sau 4 năm tốt nghiệp đại học nhờ cách tiết kiệm tiền mà mẹ đã dạy tôi
+-  안산시, 환경부 '탄소중립도시 조성사업' 예비대상지 선정
+-  中 바이두, YY라이브 인수 포기...3년 노력 '물거품'
+-  كيف تحمي نفسك من الحسد؟.. طريقة أوصانا بها النبي لتحصين النفس
+-  민주 "尹, '쌍특검' 거부권 행사 시 권한쟁의심판 검토…이태원특별법 9일 본회의 처리"
+-  คุมประพฤติห่วงใย สร้างความปลอดภัยให้ประชาชน
+-  صدمة لكبار دوري روشن في الميركاتو
+-  허세홍 GS칼텍스 대표, 신년사 통해 지속가능하고 수익성 있는 성장 도모
+-  South Korean opposition leader attacked by unidentified man
+-  मणिपुर में 4 की गोली मारकर हत्या, 14 लोग घायल, घाटी के 5 जिलों में फिर से कर्फ्यू लगा
+-  "미래를 현실로 만드는 세브란스… 세계의료 패러다임 제시"
+-  송미령 농식품부 장관, 새해 현장 첫 행보
+-  새해 건강·체중 두 마리 토끼 잡고 싶다면… '365루틴' 어때요?
