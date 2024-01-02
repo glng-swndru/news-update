@@ -1,51 +1,51 @@
 # Latest News
--  Bonucci: "100 milioni e andavo via, la Juve disse no". L'idea per tornare
--  Intrigo Frendrup: la Juve c'è, una big d'Europa la supera
--  Sivasspor'da Bülent Uygun dönemi yeniden başlıyor
--  Husumetlisini çalıştığı fırında bıçaklayarak öldürdü
--  Diyanet İşleri Başkanlığı 27 mühendis alacak
--  Filistin'e destek yürüyüşündeki yumruklu saldırıda üniversite öğrencisinin ifadesi ortaya çıktı
--  33 İsrail casusu şüphelisi, 8 kentte yakalandı!
--  언론인권센터 “언론사, 포털 더 적극적으로 댓글 관리해야”
--  2023년 메인뉴스 시청자수, KBS ‘불안한 1위’
--  Mindestens 48 Tote nach Serie starker Beben in Japan
--  Sri Lanka Denies Permission To Chinese Survey Ships But Why Maldives Wants Beijing In Its Courtyard?
--  Star Wars, la regista del nuovo film con Rey si apre dopo mesi di silenzio
--  הספרדי שצעד למונדיאל ונעצר באיראן, שוחרר אחרי 15 חודשים בכלא
--  جثامين بالشوارع ودمار بعد انسحاب الاحتلال من أحياء شمالي غزة
--  “المريمي” : باتيلي يعرقل خطى مجلس النواب نحو الانتخابات في ليبيا
--  Ҳар биримиз масъулмиз
--  Dok Schmidt upozorava, traju pripreme za proslavu neustavnog Dana RS
--  Sylvox Reinvents Outdoor Entertainment - Unveils Portable, Waterproof TV and 75" Cinema Outdoor Smart TV at CES 2024
--  Bravo Media Successfully Launched MTR's (East Rail Line, Tuen Ma Line, Light Rail and MTR Bus) Advertising Concession on 1st Jan 2024
--  Así es el vestido de Cristina Pedroche en las Campanadas 2024
--  受邀往酒店房為手機充電 內地女子疑被男商人企圖強姦 遭吻胸指插陰道陽具貼面
--  UNO sieht Anzeichen für Kriegsverbrechen im Nahost-Krieg
--  الاحتلال يعتقل 11 فلسطينيا من الخليل
--  استهداف قاعدتين أمريكيتين في العراق وسوريا
--  Futebol: Janeiro quente para Académica e O. Hospital
--  Exigen recuperar antes de dos años las vías pecuarias tradicionales usurpadas
--  Duge kolone na graničnim prelazima na izlazu iz BiH
--  Las rachas de viento sur en Bizkaia superan los cien kilómetros por hora
--  Krieg im Nahen Osten – Nachrichten vom 1. Januar: Hamas-Autorität: 156 Palästinenser in Gaza innerhalb von 24 Stunden getötet
--  Midibüs ücretlerine zam geldi
--  TBMM Dilekçe Komisyonuna şaşırtan başvurular! Bu kadarda olmaz diyeceksiniz...
--  '조경수 비리 의혹' 박세복 전 영동군수 등 무더기 송치
--  치명적 부위 노린 이재명 흉기 피습…살인 미수 인정될까[어텐션 뉴스]
--  "새생명 희망되길" 충북대병원 뇌사 박승규씨 장기기증
--  부단체장 낙하산 인사 되풀이…충북 시·군 '부글'
--  광주전남 정치권, "이재명 대표 정치테러는 민주주의 파괴 행위"
--  '이재명 피습'에 정치권 분노·우려…일정도 줄줄이 취소[정다운의 뉴스톡]
--  Fuji dan Gonzalo Liburan Tahun Baru Bareng di Bali
--  Clarke: Warner's value stopped his contract being ripped up
--  Prošle godine avionom putovalo 4,6 milijardi ljudi, 80 poginulih
--  Perlu 3 Hari untuk Memulihkan Taman-taman yang Rusak di Bundaran HI Usai Pesta Malam Tahun Baru
--  Amazon Prime: Abonnenten erhalten jetzt ein neues Extra
--  Membandingkan Gaji Pilot vs Pemain Timnas Indonesia, Asnawi Mangkualam Cs Unggul Jauh?
--  Ιαπωνία: 48 νεκροί από τα 7,6 Ρίχτερ – «Τέτοιο σεισμό δεν έχω ξαναζήσει», η μαρτυρία Έλληνα
--  നാടിനെ കണ്ണീരിലാഴ്ത്തി ദമ്പതികളുടെ മരണം; കടം വീട്ടാനുള്ളത് 1000 രൂപാ മാത്രമെന്ന് കുറിപ്പ്
--  Ten lives lost on Donegal roads last year – RSA
--  CIPRIZACIJA SRBIJE: Južni dio ove zemlje od 1. siječnja putuje u zemlje Europske unije bez viza
--  Oświadczenie Audytorium 17: regionalne radiowe media publiczne nie powinny być zakładnikami kolejnej odsłony sporu politycznego
--  Schulwechsel: Welche Schule ist die richtige? Alle Infos zu weiterführenden Schulen in Leverkusen
--  Trafik denetimlerinde 397 sürücüye 634 bin 454 lira para cezası yazıldı
+-  رونالدو يهدي والدته سيارة ثمينة في عيد ميلادها
+-  نحو 20 مليون راكب لباص عمّان والسريع في 2023
+-  15 شهيدا شمالي قطاع غزة
+-  إزالة مخالفات لـ109 أشخاص بموقع البترا الأثري
+-  زيلينسكي لحلفائه الغربيين: لو خسرنا الحرب سيأكلكم بوتين على العشاء
+-  إسرائيل تنوي بناء مدينة ملاهٍ وفنادق ومتحف لقتلاها قرب غزة
+-  الحكومة: لا اختلالات بسلاسل توريد المواد الغذائية
+-  Corona-Zahlen in Bielefeld aktuell: Die Coronavirus-Daten im Überblick
+-  Brighton manager surprised by injured Mitoma’s Asian Cup call-up
+-  Oil prices jump after US forces repel Houthis in Red Sea
+-  Corona-Zahlen im Kreis Warendorf aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen im Kreis Steinfurt aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Kreis Recklinghausen aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Corona-Zahlen im Kreis Coesfeld aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen im Kreis Borken aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen in Münster aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen in Gelsenkirchen aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  ඩොලර් මිලියන 100ක ආයෝජනයක් සමඟ පෝට් සිටියට රෝහලක්
+-  Си Џинпинг призна дека Кина има економски проблеми
+-  Corona-Zahlen in Bottrop aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Rhein-Sieg-Kreis aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Rheinisch-Bergischer Kreis aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Corona-Zahlen im Oberbergischer Kreis aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Kreis Heinsberg aktuell: Inzidenz für Kreis Heinsberg, Nordrhein-Westfalen und Deutschland
+-  The Wrong Way to Use Healing Magic Season 1 Episode 1 Release Date & Time on Crunchyroll
+-  Corona-Zahlen im Kreis Euskirchen aktuell: Die Coronavirus-News aus der Region
+-  Bahnstrecke Frankfurt-Mannheim gesperrt: Ersatzverkehr läuft
+-  Corona-Zahlen im Rhein-Erft-Kreis aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Corona-Zahlen im Kreis Düren aktuell: Inzidenz für Kreis Düren, Nordrhein-Westfalen und Deutschland
+-  산업단지 날갯짓이 충북도를 리부팅한다
+-  갈등과 공존
+-  쉼 한 모금
+-  증평군 민속체험박물관 문광부 장관 표창 수상
+-  “청정 괴산 실현 이바지할 것”
+-  영동署 역대 최다 경감 승진자 배출
+-  “도시형 농촌 보은 미래 열 것”
+-  “열린 마음 낮은 자세로 소통”
+-  “지속적인 지역발전 힘쓰겠다”
+-  류귀현 청주화물터미널 대표 `고향사랑'
+-  “창의·감성 힘으로 지역발전 새지평”
+-  “극세척도 자세로 어려움 극복할 것”
+-  “군민 안전 강화·삶의 질 향상 최우선”
+-  최민호 세종시장 “자족기능 갖춘 대한민국 미래전략수도 건설”
+-  김태흠 충남지사 “스마트농업 육성·탄소중립 등 성과 창출”
+-  충주시청 이상원 `태극마크'
+-  살라 멀티골 … 리버풀 뉴캐슬 꺾고 EPL 선두 질주
+-  클린스만호 아시안컵 여정 `휘슬'
+-  청주 KB 박지수 WKBL 최초 3회 연속 라운드 최우수선수상
+-  `억~' 소리나는 김하성 몸값 전망
+-  “리버풀·토트넘 황희찬 영입 타진”
