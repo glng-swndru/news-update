@@ -1,51 +1,51 @@
 # Latest News
--  Dünya malı dünyada kalır atasözünün anlamı nedir?
--  Az Orbán-kormány Szuverenitásvédelmi Hivatala akar őrködni az önkormányzati választás tisztasága felett, de ellenőrizné majd az Európai Bizottság döntéseit is
--  Legkevesebb 48 halálos áldozata van Japánban az újévi földrengésnek
--  Juniorok idei prímái
--  Országszerte akadozik a Telekom és a Vodafone hálózata, sokan hívást indítani sem tudnak
--  Planirajte kupnju na vrijeme, na blagdan Sveta tri kralja trgovine neće raditi
--  الزمالك يفاوض ميسي الاتحاد
--  كوريا الشمالية تطلق 25 مقذوفا من بينها صواريخ عابرة للقارات خلال عام 2023
--  دي خيا يدرس قرارا صادما
--  مورينيو يتلقى نبأ صادما عن أبراهام
--  آل الشيخ يرد على اتهامات جماهير الهلال والنصر وأهلي جدة
--  نتنياهو يعقد اليوم اجتماعين لبحث ترتيبات ما بعد الحرب
--  ريال مدريد يهزم ثراء أندية البريميرليج
--  أجندة مزدحمة في انتظار برشلونة مع بداية 2024
--  السعودية تحول الشريحة الخامسة لمنحة دعم الموازنة للأردن بـ 38.6 مليون دولار
--  أنشيلوتي يحذر بيلينجهام من فخ مايوركا
--  مواعيد مباريات اليوم الثلاثاء والقنوات الناقلة
--  الحنيفات: نهدف لحفر 10 آلاف بئر العام الحالي
--  التربية تنشر اسئلة الرياضيات الورقة الثانية للدورة التكميلية
--  زلزال بقوة 7.6 درجات يضرب اليابان بأول ايام 2024
--  Beşiktaş’ın yıldızı Trabzonspor’a imzayı atıyor!
--  Ünlü fenomen Rahel Pekcan'ın, sevgilisi hayatını kaybetti!
--  الحنيفات: الأردن تجاوز أزمات عالمية وأزمة البحر الأحمر أثرت على سلاسل التزويد في العالم
--  CHP'de adaylar belli oluyor
--  민주, 이재명 피습에 "수사 통해 사건 진상 명명백백하게 밝혀달라"
--  El Real Zaragoza, muy bien posicionado en la cesión de Arnau Puigmal
--  Mujović: Neće porasti cijena električne energije, nismo na vlasti da "varamo narodnje nadanje"
--  Kate Middleton's 'Competitive' Nature Exposed in Viral Clip
--  ISRO launches XPoSat: इसरो ने रच दिया इतिहास, अब Black hole का खुलेगा राज़
--  Halle Berry u izazovnu izdanju našla se u liftu: 'Gle, zgodna si, ali mislim da ti nedostaju hlače'
--  Endonezya'da yanardağ patladı 1172 tahliye
--  Direksiyon hakimiyetini kaybedince elektrik direğine çarptı. 2 yaralı
--  Bengaluru witnesses 330 drunk driving cases, 14 road accidents on New Year’s Eve
--  SC to hear plea of senior IPS officer against removal as Himachal DGP
--  Utterly wasteful, unproductive exercise: Congress slams govt over demonetisation
--  गठबंधन सरकार ने किसानों के साथ किया सबसे ज्यादा विश्वासघात: शैलजा
--  Ira Khan and Nupur Shikhare wedding: Bride-to-be spotted in cool casuals
--  کاغذات نامزدگی مسترد کیے جانے کیخلاف شیخ رشید کی اپیل سماعت کیلئے منظور
--  Яшчэ аднаго ляўрэата Нобэлеўскай прэміі міру пакаралі зьняволеньнем
--  Apie vaistus vis dar žinome per mažai
--  44-Jähriger vor Gürtel-Lokal in Wien schwer verletzt
--  Gorčević: Imaćemo spremnu strukturu za novu fazu pregovora sa EU
--  Terkini Bisnis: Besaran Anggaran untuk Pembangunan IKN, Kinerja Pasar Modal RI di Tahun 2023
--  MN - Gaudenzi su Milan-Cagliari: "I sardi molto migliorati ultimamente: Ranieri un grandissimo tecnico"
--  Klopp perde aliança em comemoração de gol e é salvo por cinegrafista: 'Meu herói'; assista
--  Journées de diffusion des statistiques:Objectif atteint
--  V Košiciach budú meniť režim niektorých liniek MHD. Dve zrušia
--  Köprü ve otoyolların tane tane zamlı haşırt dı bilekbord listesi
--  שופטי העליון הצילו את הדמוקרטיה הישראלית. עכשיו הם צריכים ללמוד להקשיב
--  מעיין אדם: "אני בסדר, מפל מתה. לה קרה הדבר"
+-  بنك التنمية المحلية يتعزز بست وكالات جديدة في 2023
+-  Россия самолёти Воронеж области устида ўқ-дориларни ташлаб юборди.
+-  Ҳарбийлар билан учрашган Путин ва шарқий фронтдаги «Леопард»лар. Уруш суратлари.
+-  Beyond Accommodation - Aryaduta Hotels Sets the Bar for Culturally-Rich Experiences in Indonesia
+-  Szybszy niż oczekiwano wzrost gospodarki Singapuru
+-  Mehmet Ocaktan ve Yıldıray Oğur, İstanbul'daki tehlikeli provokasyonu ve siyasetteki 'Suudi' polemiklerini tartıştı
+-  지상파, 이재명 피습 피의자 진술 및 동기 집중 보도
+-  Préparation CAN 2023 – La tanière se remplit, huis clos ce soir !
+-  Courses Hippiques : 2éme journée : Kharé et Diofior confirment, Baakh 2 crée la surprise
+-  El Ejército surcoreano realiza ejercicios de artillería con fuego real cerca de la frontera con Corea del Norte
+-  Bruno Genesio'da son dakika gelişmesi! İmzaya bekleniyordu...
+-  Proposed training college to tame insecurity
+-  بدء فعاليات المؤتمر العلمي الأول حول تطوير المناهج التّعليمية
+-  الصومال يرفض اتفاق الميناء بين إثيوبيا وأرض الصومال وتستدعي سفيرها .
+-  Talijani: Brekalo igra još jednu, a onda ide u Dinamo ili Bolognu
+-  Yufkanın arasına bundan sürün böreğiniz çıtır çıtır olacak! Börekçilerin sırrı
+-  Гендиректор «Пари НН» не исключил возможность перехода Черышева
+-  荣耀太原LIFE店开启别样跨年：赏魔法灯光大秀，拍新年最美照片
+-  Lula passou a perna nos evangélicos
+-  Nuri Şahin, ilk transferini Fenerbahçe'den yapıyor
+-  Gunmen kidnap council chairman in Nasarawa
+-  Lappeenrannassa sattui risteyskolari
+-  Германия — Бушманн не верит в успех запрета на покупку секса
+-  Five dead in Japan plane collision, says transport minister
+-  Dolandırıcılara rekor ceza: 18'er yıl hapis ve 120'şer milyon lira ceza
+-  Huawei’nin yeni otomobil markası ortaya çıktı! İşte logosu
+-  Zamość: Na koniec roku do aresztu. Poszukiwany wpadł podczas kradzieży w sklepie
+-  "Ботев"(Пд) започва подготовка в четвъртък, среща "Марица" в първата си контрола
+-  Türkiye'deki en yaşanabilir iller değişti! Bakın memleketiniz kaçıncı sırada
+-  Az egész ország területén akadozik a net, ez mindenkit érint!
+-  Un ataque más: el Gobierno suspendió los créditos de Anses
+-  Mujović: Cijena struje ostaje ista
+-  Osimen i Lautaro najskuplji igrači u Seriji A
+-  Bihar caste survey break-up be put in public domain, rules Supreme Court
+-  В Киеве зафиксировали серьёзные перебои с интернетом
+-  Katastrofa lotnicza w Japonii. Samolot z 379 pasażerami stanął w wielkich płomieniach
+-  “김하성, 3루수로 상당한 경험” 고척에서 2루수 아니다? 4571억원 슈퍼스타가 아프잖아
+-  조우종·정다은 부부, 공동 MC 맡았다
+-  '축구화 잘못 맞네'…'전반전 PK 실축' 살라→축구화 교체 후 후반전 멀티골 폭발
+-  '박지훈 24득점 폭발' 정관장, LG에 짜릿한 역전승…7연패 탈출 성공 [MD안양]
+-  [포토] 고가 법인차량용 연두색 번호판
+-  Gözler TÜİK'in açıklayacağı enflasyon rakamlarında: 2024'te bedelli askerlik ücreti ne olacak?
+-  انتقدت جهات وصفتها بـ"المشبوهة".. الاتصالات عن دعمها لوسائل إعلام: إعلانات عن حملات وطنية
+-  "الفصائل العراقية" تشن هجوما واسعا على قواعد امريكية في سوريا
+-  Trinidad de Cuba: Luces y sombras de un desafiante 2023 (+ fotos)
+-  Japan Airlines plane in flames on runway at Tokyo airport
+-  Rohan Dennis and Melissa Hoskins had it all, with their Olympic dreams fulfilled, world championship medals secured and a young family bursting with love. Then something went terribly, terribly wrong outside their $2.45million mansion
+-  Israel tăng cường oanh tạc Gaza dù rút bớt quân, cảnh báo lạnh người về giao tranh với Hamas
+-  Life | Playwright Mbongeni Ngema's memorial service details announced
+-  Harsha Chemudu’s ‘Sundaram Master’ locks release date
