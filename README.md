@@ -1,51 +1,51 @@
 # Latest News
--  Windkraft im Erzgebirge: Diskussion über Für und Wider
--  Nadal gelingt Comeback-Sieg gegen Thiem
--  Sahin und Bender nehmen Arbeit beim BVB auf
--  مفارقة غريبة بين يناير 2023 و2024.. ماذا يحدث في الكرة الأرضية؟
--  Zimmetine Para Geçirdiği Öğrenildi: Yakalama Kararı Çıkarıldı!
--  55-Jährige prallt bei Casaccia mit Auto in Hausecke
--  Süper Kupa krizinin ardından yayınlanan Tanju Özcan'ın iğrenç reklamına soruşturma!
--  Eski kız arkadaşı ile ağabeyini vurmuştu: Yakalandı
--  Houston Rockets evinde Detroit Pistons'ı farklı yendi
--  Bakan Fidan Irak Türkmen Cephesi Başkanı Turan'ı ağırladı
--  Biznis Asocijacija u Njemačkoj veza sa dijasporom i stranim investitorima
--  Imaćemo spremnu strukturu za novu fazu pregovora sa EU
--  Học viện Kĩ thuật Quân sự lần đầu tiên dùng kết quả thi đánh giá năng lực của 2 ĐH Quốc gia để tuyển sinh
--  Токио аэропортига қўнишда йўловчи самолёт ёниб кетди.
--  Concurso Ministério da Pesca e Aquicultura é autorizado para 264 vagas
--  FPÖ – Brückl: „Deutsche Sprache ist für SPÖ-geführte Arbeiterkammer nicht wichtig“
--  Boom And Golden Child’s Jangjun Confirmed As New MCs For “Weekly Idol”
--  Намалена видливост поради магла на Страцин
--  Continuous learning and capacity building programmes for staff of Karimnagar DCCB, stresses Chairman Ravinder Rao
--  Netanjahus Finanzminister will den Gazastreifen neu bevölkern
--  TECNO's Newest Spark20 Pro+ Brings Many Industry-first Features in its Price Bracket
--  রেমিট্যান্স প্রবাহ বেড়েছে, ৬ মাসে এলো এক হাজার ৮০ কোটি ডলার
--  ยังไม่รู้ชะตากรรม 5 ลูกเรือเครื่องบินหน่วยยามฝั่ง หลังถูก JAL เฉี่ยวชน
--  日 JAL 항공기 화재 사고...외교부 "현재까지 한국인 피해 접수 없어"
--  Millionenpublikum für Neujahrskonzert der Wiener Philharmoniker: Bis zu 1,181 Millionen sahen Live-Übertragung in ORF 2
--  [민주 “이재명 대표, 혈관재건술 받아…중환자실서 회복중”[종합]
--  De grootste vraag van deze transferperiode bij SC Heerenveen: blijft aanvoerder Sven van Beek?
--  Tennis-Star Rafael Nadal gelingt Comeback-Sieg gegen Thiem in Brisbane
--  Что известно о ЧП с пассажирским самолетом в Японии
--  Maneras de cambiar
--  Angola entre os destinos turísticos a visitar em 2024
--  Maneras de cambiar
--  BKPSDM: Mutasi Besar-besaran Pemkot Makassar Digelar Besok Pukul 06.00
--  Shippingaktier upp på oro i Mellanöstern
--  Bantah Diintervensi Istana, Bawaslu Jakpus: Kalau Ada, Kasus Gibran Pasti Tak Diusut
--  Polizei- und Feuerwehreinsätze in der Silvesternacht 2023 in Sachsen-Anhalt
--  Slováci môžu od utorka žiadať o príspevok na zvýšenú splátku úveru
--  U Dinamo je stigao besplatno iz Hajduka. Nije se nametnuo, ali Jakir ga sada vodi na pripreme
--  Вильнюс намерен сократить поток въезжающих в страну белорусов
--  Son dakika! Elazığ'da deprem I Son depremler
--  Rafael Nadal makes impressive winning return in Brisbane after ‘toughest year’
--  Avion koji se sudario s putničkim avionom prevozio humanitarnu pomoć za žrtve potresa
--  Polonia dice que el nivel de amenaza de los ataques rusos ha caído, los aviones regresan a la base
--  El dólar inicia 2024 con ganancias frente al yen y el euro, el bitcóin supera los 45.000 dólares
--  El oro empieza 2024 con optimismo, por esperanzas de que la Fed rebaje las tasas
--  Las bolsas europeas tocan máximos de 23 meses, el petróleo sube
--  Kayıp Olarak Aranıyordu, Çekyatın İçinde Ölü Bulundu
--  Tennisstar Rafael Nadal ist wieder da: Spiel mit dem Feuer
--  NHK: судьба пяти человек из самолёта береговой охраны после ЧП в Токио неизвестна
--  Eski Japon yöntemi Shiatsu' gençlik noktaları: 10 yıl daha genç görünmek için basınç uygulamanız gereken noktalar...
+-  Dünya malı dünyada kalır atasözünün anlamı nedir?
+-  Az Orbán-kormány Szuverenitásvédelmi Hivatala akar őrködni az önkormányzati választás tisztasága felett, de ellenőrizné majd az Európai Bizottság döntéseit is
+-  Legkevesebb 48 halálos áldozata van Japánban az újévi földrengésnek
+-  Juniorok idei prímái
+-  Országszerte akadozik a Telekom és a Vodafone hálózata, sokan hívást indítani sem tudnak
+-  Planirajte kupnju na vrijeme, na blagdan Sveta tri kralja trgovine neće raditi
+-  الزمالك يفاوض ميسي الاتحاد
+-  كوريا الشمالية تطلق 25 مقذوفا من بينها صواريخ عابرة للقارات خلال عام 2023
+-  دي خيا يدرس قرارا صادما
+-  مورينيو يتلقى نبأ صادما عن أبراهام
+-  آل الشيخ يرد على اتهامات جماهير الهلال والنصر وأهلي جدة
+-  نتنياهو يعقد اليوم اجتماعين لبحث ترتيبات ما بعد الحرب
+-  ريال مدريد يهزم ثراء أندية البريميرليج
+-  أجندة مزدحمة في انتظار برشلونة مع بداية 2024
+-  السعودية تحول الشريحة الخامسة لمنحة دعم الموازنة للأردن بـ 38.6 مليون دولار
+-  أنشيلوتي يحذر بيلينجهام من فخ مايوركا
+-  مواعيد مباريات اليوم الثلاثاء والقنوات الناقلة
+-  الحنيفات: نهدف لحفر 10 آلاف بئر العام الحالي
+-  التربية تنشر اسئلة الرياضيات الورقة الثانية للدورة التكميلية
+-  زلزال بقوة 7.6 درجات يضرب اليابان بأول ايام 2024
+-  Beşiktaş’ın yıldızı Trabzonspor’a imzayı atıyor!
+-  Ünlü fenomen Rahel Pekcan'ın, sevgilisi hayatını kaybetti!
+-  الحنيفات: الأردن تجاوز أزمات عالمية وأزمة البحر الأحمر أثرت على سلاسل التزويد في العالم
+-  CHP'de adaylar belli oluyor
+-  민주, 이재명 피습에 "수사 통해 사건 진상 명명백백하게 밝혀달라"
+-  El Real Zaragoza, muy bien posicionado en la cesión de Arnau Puigmal
+-  Mujović: Neće porasti cijena električne energije, nismo na vlasti da "varamo narodnje nadanje"
+-  Kate Middleton's 'Competitive' Nature Exposed in Viral Clip
+-  ISRO launches XPoSat: इसरो ने रच दिया इतिहास, अब Black hole का खुलेगा राज़
+-  Halle Berry u izazovnu izdanju našla se u liftu: 'Gle, zgodna si, ali mislim da ti nedostaju hlače'
+-  Endonezya'da yanardağ patladı 1172 tahliye
+-  Direksiyon hakimiyetini kaybedince elektrik direğine çarptı. 2 yaralı
+-  Bengaluru witnesses 330 drunk driving cases, 14 road accidents on New Year’s Eve
+-  SC to hear plea of senior IPS officer against removal as Himachal DGP
+-  Utterly wasteful, unproductive exercise: Congress slams govt over demonetisation
+-  गठबंधन सरकार ने किसानों के साथ किया सबसे ज्यादा विश्वासघात: शैलजा
+-  Ira Khan and Nupur Shikhare wedding: Bride-to-be spotted in cool casuals
+-  کاغذات نامزدگی مسترد کیے جانے کیخلاف شیخ رشید کی اپیل سماعت کیلئے منظور
+-  Яшчэ аднаго ляўрэата Нобэлеўскай прэміі міру пакаралі зьняволеньнем
+-  Apie vaistus vis dar žinome per mažai
+-  44-Jähriger vor Gürtel-Lokal in Wien schwer verletzt
+-  Gorčević: Imaćemo spremnu strukturu za novu fazu pregovora sa EU
+-  Terkini Bisnis: Besaran Anggaran untuk Pembangunan IKN, Kinerja Pasar Modal RI di Tahun 2023
+-  MN - Gaudenzi su Milan-Cagliari: "I sardi molto migliorati ultimamente: Ranieri un grandissimo tecnico"
+-  Klopp perde aliança em comemoração de gol e é salvo por cinegrafista: 'Meu herói'; assista
+-  Journées de diffusion des statistiques:Objectif atteint
+-  V Košiciach budú meniť režim niektorých liniek MHD. Dve zrušia
+-  Köprü ve otoyolların tane tane zamlı haşırt dı bilekbord listesi
+-  שופטי העליון הצילו את הדמוקרטיה הישראלית. עכשיו הם צריכים ללמוד להקשיב
+-  מעיין אדם: "אני בסדר, מפל מתה. לה קרה הדבר"
