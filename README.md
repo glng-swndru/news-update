@@ -1,11 +1,51 @@
 # Latest News
--  Das neue Jahr in Castrop-Rauxel ist da: Wohin jetzt mit meinem Weihnachtsbaum?
--  Erdbeben in Japan: Bei einer Erdbebenserie in Japan kommen mindestens 21 Menschen ums Leben
--  Maybank IB: 2024 to be a ‘take-off’ year for Malaysia’s economic transition, GDP firmer at 4.4pc
--  '내가 이재명' 왕관 쓰고 접근…피로 얼룩진 가덕도
--  "어머니 오래 간병한 딸에게 임대주택 명의 줘야"
--  올해 인문사회·이공분야 학술연구에 9367억원 투입
--  [노컷브이]이재명 대표 흉기 피습 순간…"사인해달라" 순식간에 공격
--  韓 최대 규모 CJ슈퍼레이스에 모터바이크 대회도 열린다
--  Goldy Brar: ਕੌਣ ਹੈ ਅੱਤਵਾਦੀ ਗੋਲਡੀ ਬਰਾੜ ? ਪਹਿਲਾ ਪਰਚਾ ਕਦੋਂ ਹੋਇਆ ਸੀ ਦਰਜ, ਕੈਨੇਡਾ ਬੈਠਾ 5 ਸੂਬਿਆਂ 'ਚ ਚਲਾ ਰਿਹਾ ਗੈਂਗ
--  이재명, 부산 방문중 피습돼 병원 이송
+-  담양군, 갑진년(甲辰年) 시무식 열고 힘찬 출발
+-  여수시, 2023년 상·하반기 연속 행안부 지방물가평가 ‘최우수’기관
+-  보성군, 신년 현충탑 참배로 희망찬 군정 시작
+-  최태원 "눈앞 손익보다 미래산업 씨앗 뿌리도록 기업가정신 발휘"
+-  PhD Sabzi Wala: Punjab man sells vegetables on streets to overcome financial struggles
+-  Tổng giám đốc EVN nói về những nguyên nhân gây mất cân đối tài chính trong hai năm
+-  Những chính sách giáo dục có hiệu lực từ tháng 1
+-  Không khí lạnh đang tràn xuống, sáng mai miền Bắc mưa rét
+-  Đề xuất xây ngay đường vành đai 2 trên cao tới Cầu Giấy, vành đai 3 phía Bắc
+-  [영상] 평창 LPG충전소 폭발 후 화재로 처참해진 현장
+-  [속보] "이재명 목부위 1㎝ 열상, 의식있는 채 치료"… 피의자 묵비권 행사
+-  민주 “이재명 대표 테러, 민주주의에 대한 심각한 위협”
+-  인제군, 동서고속화철도 연계 역세권개발에 230억원대 사업비 투입 추진
+-  여야 정치권, 이재명 대표 피습 일제히 규탄..."있어서는 안될 일"
+-  10년새 원주 고령층 40% 급증… 청소년 감소 추세 심각
+-  Lee Jae-myung bıçaklı saldırıya uğradı
+-  Japonya'daki depremlerde 13 kişi hayatını kaybetti
+-  Fahimi setzt auf „verantwortungsbewusste“ Tarifabschlüsse
+-  "Cậu ấy làm tôi nhớ đến Cristiano và Messi"
+-  4 điểm đen của Liverpool trong chiến thắng trước Newcastle
+-  김유열 EBS 사장 “대규모 영업적자...모든 책임은 제게 있다”
+-  Fahimi setzt auf „verantwortungsbewusste“ Tarifabschlüsse
+-  박민 KBS 사장 “수신료 분리징수로 3000억 원대 누적 적자 예상”
+-  Sesi sekolah 2024 di Johor lancar pasca banjir termenung
+-  Twee gewonden door woningbrand in Edam
+-  Ram Mandir: सुरक्षा में अभेद्य होगा तीर्थ क्षेत्र पुरम, टेंट सिटी के साथ तीन सौ वाहनों के लिए पार्किंग स्थल
+-  Gaston Glock stirbt im Alter von 94 Jahren
+-  민주당 "이재명에 대한 테러이자 민주주의에 심각한 위협"
+-  Nuorilla Leijonilla karu muisto Slovakiasta – karsea epäonnistuminen
+-  경찰청장, 이재명 피습에 "수사본부 설치, 배후 유무 등 엄정 수사"
+-  이재명 습격 괴한, 흉기 감싸쥐고 접근…범행 계획 정황[영상]
+-  서울 사립학교 채용시, 교육청과 협의…1/5 이상 외부인
+-  TEM Otoyolu'nda kovalamaca kazayla bitti: 14 göçmen, 4 polis yaralı
+-  Krieg gegen die Ukraine: So ist die Lage
+-  Gold Silver Price​: ਨਵੇਂ ਸਾਲ 'ਚ ਸੋਨੇ-ਚਾਂਦੀ ਦੀ ਕੀਮਤ ਸਥਿਰ, ਜਾਣੋ ਅੱਜ ਦੇ ਤਾਜ਼ਾ ਰੇਟ
+-  英國首宗虛擬強姦案｜ 16歲女童化身角色遭性侵 心理情緒受創
+-  মাফিয়াতান্ত্রিক ভূত তাড়াতে ভোটদানে বিরত থাকুন: আতাউর রহমান
+-  목포시, 2023 비상대비훈련 유공기관 국무총리표창 수상
+-  연천군 전곡읍, ‘2024 국사봉 신년 해맞이 행사’ 개최
+-  [인사] 신한은행
+-  [2024년 신년사] 유재훈 예보 사장 "금융 변동성 확대 위한 대응체계 구축해야"
+-  정명근 화성시장 "시민 삶의 질 향상 위해 모든 분야에 행정력 집중"
+-  [인사] 한양증권
+-  인뱅 3사, 전세대출 금리 인하 경쟁 '불붙었다'
+-  화성시, 제14대 손임성 부시장 취임식 가져
+-  양도세 완화 효과 '2차전지'에 몰렸다…에코프로·에코프로비엠
+-  '의왕표 정동진' 왕송호수 해맞이 행사 진행
+-  손병두 이사장 "공정한 시장질서로 자본시장 신뢰 다질 것"
+-  이재용·최태원·정의선·구광모, 김기문‧최진식과 '맞손'…대‧중기 동반출발
+-  [2024년 신년사] 진승호 KIC 사장 "글로벌 리딩 국부펀드 도약할 것"
