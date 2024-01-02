@@ -1,51 +1,11 @@
 # Latest News
--  NS past dienstregeling aan om storm Henk
--  Waarom we het moeten hebben over Wilders en de roeping van de kerk. 'Het is tijd dat we wakker worden.'
--  Wat zijn struikelblokken als je de Bijbel in een jaar leest? 'Er zijn veel afhaakmomenten'
--  Poolse zloty leek even minder waard door foutje Google
--  Hamasleider staat open voor verenigde Palestijnse regering
--  Pensioenfondsen staan er iets slechter voor dan jaar geleden
--  Waterstand Markermeer zeer hoog, nachtelijke controles in Hoorn
--  Schepen Maersk blijven Rode Zee langer mijden
--  Williams Riveros: “Ya van a ver lo que es Fabián Bustos como profesional”
--  Kickoff | Mohafe throws challenge to Polokwane management
--  «Барселона»даги вундеркинд, ўзбекистонлик сеҳргар ва топ-бомбардирлар. Футболда 2023 йил кашфиётлари.
--  শ্রীপুরে রাস্তার পাশ থেকে শপিং ব্যাগে মোড়ানো নবজাতকের লাশ উদ্ধার
--  নতুন বছরে যাত্রা শুরু করল ‘আরএস কনফিডেন্স হোল্ডিংস’
--  ফরিদপুর-১ আসনে ঈগল মার্কার স্বতন্ত্র প্রার্থী দোলনের বিরামহীন প্রচারণা, নির্বাচনি সভায় মানুষের ঢল
--  সার্কাস মার্কা এ নির্বাচন বর্জন করুন: এমরান চৌধুরী
--  অবৈধ মালবাহী গাড়ি নিয়ে দুই পুলিশ সদস্যের লুকোচুরি
--  Prez Paudel stresses on engaging students in sports
--  La Nintendo Switch OLED édition Mario est encore en promotion : n’attendez pas
--  My toddler and daughter, 12, are sleeping on FLOORBOARDS after bed bugs ravaged home – our youngest was bitten on FACE
--  Migliori App Android per i Video
--  El drama de un padre y su lucha contra el agresivo cáncer que enfrenta su hijo
--  Vía auxiliar de la Panamericana invadida: la irresponsabilidad e impunidad de los choferes en opinión de tres especialistas
--  Temblor en República Dominicana hoy, 02 de enero: magnitud, hora y epicentro del último sismo vía CNS
--  Kia New Seltos: ¿cómo fue nuestra experiencia y qué tan rendidor es su nuevo motor de 1,5 litros?
--  Encefalomielitis equina: tras la muerte del primer paciente crece la preocupación por los otros 12 casos
--  People are just discovering an overlooked Wi-Fi ‘hoarding’ hack that can instantly speed up their internet connection
--  Monty Don sparks concern from Gardeners’ World fans with ‘dreadful’ pics of flooded home
--  Priscilla Presley Says Life With Elvis Presley Was a ‘Hard Road’: ‘I Was Hated For Marrying Him’
--  La Anses oficializó un bono de 55 mil pesos: quiénes lo cobrarán
--  Refugios de montaña en El Bolsón: la red más extensa, ríos de deshielo y senderos increíbles
--  Terdapat 4.854 Pemotor Menyeberang dari Bakauheni ke Jawa Awal 2024
--  القطاع النسائي في الحديدة يُحيي ذكرى ميلاد فاطمة الزهراء
--  Везенков е сред 10-те „Най…” на Европа
--  SON DAKİKA: Beşiktaş, Semih Kılıçsoy ile 2028 yılına kadar sözleşme imzaladı!
--  شهداء في قصف إسرائيلي استهدف منزلا بخان يونس
--  SON DAKİKA: TFF'den Süper Kupa duyurusu! 'Bazı önemli konulara açıklık getirmek isteriz diyerek' açıkladılar
--  Backstreet Boys’s AJ McLean and wife Rochelle announce separation after 12 years of marriage
--  المقاومة: قصفنا سديروت ومستوطنات غلاف غزة برشقة صاروخية
--  Confirmado: 97 mendocinos que perdieron el plan Potenciar Trabajo por irregularidades
--  الیکشن کے بعد کیا ہوگا، بیرسٹر گوہر نے بڑی دھمکی دیدی
--  La Ravoire. Les cinq priorités du maire d'Alexandre Gennaro pour 2024
--  "Mon image salie à vie, me définissant comme un monstre": Stéphane Plaza parle de son année "éprouvante" dans son message de bonne année
--  "Mon image salie à vie, me définissant comme un monstre": Stéphane Plaza parle de son année "éprouvante" dans son message de bonne année
--  Mercato - OM : Une recrue sur le départ ? Il lâche une annonce troublante
--  Unikom će tijekom siječnja prikupljati i odvoziti božićna drvca
--  Líder norcoreano advierte que “cada vez está más cerca un conflicto armado”
--  ¿A qué huele la fragancia de KFC?
--  Empiece el año trabajando en Sura: la empresa tiene vacantes con sueldos de más de $5 millones
--  Man Arrested After Shooting His Way Into Colorado Supreme Court Building
--  ChatGPT slammed for declining to make Muslim joke despite mocking Jews, Christians: ‘May offend some people’
+-  لحصر ممتلكات الدولة.. محافظ كفر الشيخ يوقع بروتوكول مع المساحة - صور
+-  محافظ جنوب سيناء يشهد عروضًا فنية لطلاب مدارس الطور
+-  قائد القوات البحرية المصرية يلتقى آمر القوة البحرية الكويتية
+-  حسام موافي يحذر من علامة تظهر في القدم تكشف الإصابة بمرض السكري
+-  "عندما يهدر فرصة ترى الابتسامة على وجهه".. لاعب ليفربول يتحدث عن محمد صلاح
+-  S&T Bancorp fija la convocatoria de resultados del cuarto trimestre para el 25 de enero
+-  Airbus envía un equipo de especialistas a Tokio para investigar el choque de aviones
+-  PGIM lanza fondos cotizados de bajo coste con opciones de protección
+-  Las empresas chinas de vehículos eléctricos anuncian un aumento de las entregas en el cuarto trimestre
+-  Lekéste az utolsó buszt, így lopott egy BMW-t, hogy hazaérjen az éjféli koccintásra
