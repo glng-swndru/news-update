@@ -1,51 +1,51 @@
 # Latest News
--  [DD퇴근길] 4대그룹 총수 "올해 경제 어렵다"…카카오 CA협의체, 투톱 체제로
--  DB손보, 인터넷전용 태아보험 출시…"임신 22주차 지나도 가입가능"
--  L’intelligenza artificiale sa anche volare: il primo aereo pilotato da un umanoide è realtà
--  Libros con encanto para hablar de recetas, amor y drogas con personajes de la literatura clásica
--  El Ibex-35 abre el nuevo año en positivo con la mirada en los bancos centrales
--  El Banco de la India lanza un depósito a plazo fijo especial para grandes fortunas y empresas
--  India sube el impuesto sobre el crudo y elimina los derechos de exportación del gasóleo y el ATF
--  Neuerungen für Immobiliennutzer: Das ändert sich 2024 für Mieter und Eigentümer
--  Israel-Hamas war latest: Israeli tanks 'pull back' in northern Gaza
--  Емил Ангелов: Девет контроли са много
--  Man, 20s, killed in horror New Year’s Day motorway crash as driver rushed to hospital and gardai issue urgent appeal
--  호반그룹, 42개 우수 협력업체에 감사패·상금 전달
--  Uzay endüstrisi İsrail ordusunun Gazze'de işlediği savaş suçlarını gizlemeye çalışıyor
--  ELLESMERE PORT: Book on Bowaters paper mill published
--  '이선균 협박' 혐의받는 20대 여성…아동학대 혐의로 피소
--  Что сейчас происходит в Браславе?
--  순천향대천안병원 제22대 박형국 병원장 취임
--  [“대표님 힘내시라”·“이건 아니지”…이재명 후송된 서울대병원 앞 아수라장[종합]
--  [광산구 “광주시교육청 청사 이전 추진 환영”
--  [“약은 안 만들어요?” 생수·건기식·부동산 사업까지…제약사 맞아?
--  [서울시 찾아가는 이동노동자 쉼터, 1개월간 4700명 방문…1개월 연장 운영
--  [김영록 지사, ‘지방소멸 극복 원년’ 현장 속으로
--  [㈜한양 “김광진 전 부시장, KBC 대담 발언 부적절”…‘고발 등 조치하겠다’
--  [삼성증권 “美연준 첫 금리 인하 6월→5월로 앞당겨질 듯” [투자360]
--  [김영록 지사, 청년 지역 정착위한 주거정책 구상
--  [펀딩 예열 완료, M&A 쏟아질까…변수는 'SI' [2024 PEF 20년②]
--  [이상익 함평군수, 2024년 새해에는 함평군 미래지역발전 비전사업 실현
--  [이재명 공격 범인, ‘살해하려 했다’ 진술... 경찰, 계획 범죄 ‘무게’ [종합]
--  [목포시, 소영호 부시장 이임·이상진 신임 부시장 취임
--  [나주시, 중기부 ‘글로벌 혁신특구’ 지정 … 에너지신산업 거점 우뚝
--  [BNK부산은행, 마트·학원 최대 5만원 할인 ‘ZipL(지플) 신용카드’ 출시
--  [전남대 교수 52명, ‘글로벌 최상위 2% 세계 과학자’에
--  Death toll climbs to 30 After Multiple Earthquakes Hit Japan In A Day
--  NBA｜新兵艾魯比率紐約人挫西岸一哥木狼 紐約人與速龍互換球員後齊贏
--  WOJNA: Ataki rakietowe na Ukrainie. Ostrzeżenie przed wzmożonym hałasem na wschodzie Polski
--  KRAJ: Wiele urzędów zamkniętych. Sądy odbiorą wolne 8 stycznia
--  ESTONIA: Małżeństwa osób tej samej płci są już w tym kraju legalne
--  POWIAT ZAMOJSKI: Pamięć o ofiarach. Kwiaty pod pomnikami
--  TARNOGRÓD: Młodzieżowa Rada Miejska wybrana. Kto w niej zasiada?
--  OBSZA: Rada uchwalił budżet na ten rok. Na inwestycje zaplanowano około 13 mln zł
--  BIŁGORAJ: Nowy samochód dla strażaków
--  BIŁGORAJ: Spektakl „Diabelski młyn” w BCK. Można kupować bilety
--  LIVE TEXT/ „Bombardamente masive asupra Ucrainei”: cel puțin patru persoane au decedat în urma atacurilor asupra regiunilor Kiev și Harkiv. Război în Ucraina, ziua 678
--  Този ден има мощна положителна енергия
--  Premium Bond Winners January 2024: Who won in NS&I's
--  Južnokorejski opozicioni lider uboden nožem u vrat
--  Putevi mokri i klizavi
--  Za godinu građani se zadužili skoro 140 miliona
--  Najbolja godina u istoriji za ruske banke
--  Inflacija i svakodnevna poskupljenja obilježili 2023.
+-  Detuvieron en España al presunto prestanombres de García Luna
+-  “다신 부르지 말라” 송영길, 또 檢 소환 불응…기소 초읽기
+-  서울고법, 김의철 前 KBS 사장 해임 유지…항고 기각
+-  공무원 보수 2.5% 오른다…尹대통령 연봉은?
+-  Через масовану атаку рф є пошкодження в мережах у Києві та області, без світла понад 250 тисяч домівок - Укренерго
+-  Brillantes Angebot für das, was gefragt ist
+-  Ѓоковиќ го повреди зглобот на раката пред почетокот на АО
+-  استقرار أسعار الذهـب بالاردن
+-  إحباط هجوم بطائرة مسيّرة استهدف قاعدة أميركية بالعراق
+-  Drei Spieler können dem S04 viel Geld einbringen
+-  Streefkerk telt veel kampioenen na de Streefkerkse Kampioenschappen
+-  Gouwestrand brengt elke week live-muziek naar GOUDasfalt
+-  Horoskop: Beförderung oder Kündigung? Diesen Sternzeichen steht eine große Veränderung bevor
+-  La dificultad para acceder a una vivienda crece en 2023 y se sitúa ya en niveles de 2012
+-  La dificultad para acceder a una vivienda crece en 2023 y se sitúa ya en niveles de 2012
+-  نئے سال کا پہلا تحفہ، ایل پی جی کی قیمت میں اضافہ
+-  拥抱美好的2024
+-  У Варонескай вобласьці пашкоджаныя прыватныя будынкі ад падзеньня расейскай ракеты, якая не даляцела да Ўкраіны
+-  Somali pirates are back in action, but a full scale return isn’t likely
+-  Snažni ruski napadi na Kijev i Harkiv, Rusi se osvećuju za Belgorod
+-  더현대 대구 리뉴얼 1년…MZ세대 50% 이상 유입 ‘핫플레이스’
+-  이강덕 시장 “포스텍 의대 설립은 지방소멸 막는 표본”
+-  Blac Chyna reduces her bre@st size in latest plastic surgery
+-  Elon Musk'ın 'X'inin değeri çakıldı
+-  ASML says Dutch government partly withdrew export licence
+-  جوڈیشل کمپلیکس توڑ پھوڑ کیس میں اشتہاری ملزم علی نواز اعوان نے سرنڈر کردیا
+-  Παρελθόν ο Ψύχας / Ανακοινώθηκε η κοινή συναινέσει λύση της συνεργασίας
+-  طُعن في رقبته.. كاميرا ترصد لحظة تعرض زعيم المعارضة بكوريا الجنوبية لهجوم مباغت
+-  Julia Menger wird neue Moderatorin bei „MDR um 4“
+-  اليرموك تعلن عن منحة شيرين أبو عاقلة لدراسة الماجستير بالإعلام
+-  طعن زعيم المعارضة في كوريا الجنوبية بسكين خلال مؤتمر صحفي
+-  Hyderabad: Over 3,000 drunk driving cases booked on New Years Eve
+-  방송사 사장 2024년 신년사 키워드는 '위기'
+-  Valtio korvaa ukrainalaislasten päivähoitokulut – Laitilalle 125 000 euron avustus
+-  Program Transisi Energi PLN Peroleh Pembiayaan Hijau Rp 12 Triliun
+-  Ian Ziering z Beverly Hills 90210 se na ulici popral s řidiči minibiků
+-  南市立委選舉公辦電視政見會3日登場 投票人數逾156萬
+-  Cristina Pedroche lidera las campanadas de fin de año con 5,6 millones de espectadores
+-  Massive Quake Claims Lives, Leaves Survivors Desperate In Japan
+-  شرطة كوريا الجنوبية تكشف معلومات عن حادث طعن زعيم المعارضة واستجواب المهاجم
+-  Eski Fenerbahçeli oyuncu yılın futbolcu seçildi
+-  Filistin'e destek yürüyüşünde vatandaşa yumruk atan şehir eşkıyasının ifadesi ortaya çıktı
+-  Brandweer rukt uit voor containerbrand in Frankrijkstraat in IJsselstein
+-  Savic adım adım Fenerbahçe'ye
+-  İsrail’in Gazze’deki kara operasyonunda ölen asker sayısı 173’e yükseldi
+-  Yeni varyant, yeni semptomlar! Covid-19'da bu belirtilere dikkat...
+-  Hakim Ziyech'in menajerinden açıklama!
+-  ABD gemilerini geri çekiyor
+-  British Gas giving £1,500 grants to UK households and you don't need to be customer
+-  City-profil kalder indbrud for traumatisk oplevelse
