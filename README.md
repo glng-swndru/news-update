@@ -1,11 +1,11 @@
 # Latest News
--  CIMB Group finaliza su salida de la intermediación bursátil con una venta de 169,7 millones de dólares
--  Las acciones de Pilbara Minerals fluctúan ante la caída del precio del espodumeno
--  Venezuela registra 10 trimestres consecutivos de crecimiento económico, asegura Maduro
--  Microbes May Be The Secret Behind Keto Diet's Protection Against Epileptic Seizures
--  Yerli imkanlarla büyüyen güç: TÜMOSAN
--  Deprem bölgesindeki inşaat işlerine yoğun ilgi var: Operatörlük ehliyetine talep 5 katına çıktı
--  Bu yıl kaya gazı arayacağız
--  [신년사] 손경식 CJ 회장 "'온리원' 정신 회복해 초격차 역량 갖춰야"
--  서유럽 6개국 게임 법령 총망라… 게임 정책·법제 연구 보고서 발간
--  SSG닷컴, 갑진년 맞이 ‘청룡 골드코인’ 판매
+-  Aardbeving treft Japan, maar tsunami blijft uit
+-  Telangana breaks record, tops organ donations
+-  Carrom is struck off Shiv Chhatrapati award list; jobless world champ Dive distr
+-  [종합] 군포 산본동 아파트 화재…1명 사망·14명 부상
+-  Nikitin Dheer: Couldn’t have asked for a better Lanka
+-  Ryan Reynolds sums up his 2023
+-  Sonali Bendre enjoys rickshaw and cable car rides with family before Ganga Aarti
+-  Akshay Kumar cycles into the New Year with daughter Nitara in Maldives
+-  탐나는전 포인트 적립·생계급여 지원 기준 확대
+-  ‘청룡의 해’…공동체 의식으로 고난 딛고 희망찬 한 해 되길
