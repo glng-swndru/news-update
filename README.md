@@ -1,51 +1,11 @@
 # Latest News
--  2024년 증권사 CEO 신년사 키워드는 '고객신뢰 회복'
--  박원석 "한동훈, '신상품 출시' 컨벤션 효과…실제 유권자 선택 달라"
--  Keddi foci: Langék kupadöntőbeli ellenfelük, Vargáék a listavezető ellen bizonyíthatnak
--  דליקטסן: בתוך מכונת החלומות של R2M ורותי ברודו
--  מנהיג האופוזיציה בדרום קוריאה נדקר במהלך מסיבת עיתונאים
--  העברות בעולם, 2.1: פפ סימן רכש חדש למנצ'סטר סיטי, גם יונייטד מנסה להתחזק
--  Today’s weather: Temps above average, rains
--  “민생 최우선으로” 파주시 ‘오직 민생 프로젝트’ 추진
--  Бешикташ постави краен срок на Левски за Кордоба
--  일본 강진에 尹, 기시다 총리에 위로전…'복구 지원'
--  Pohjois-Pohjanmaalla paukkuivat yön kovimmat pakkaset – Ylivieskassa mitattiin –37,8 astetta
--  Four shot dead in Soshanguve on New Year's Day
--  Help on the way for KZN families affected by heavy rains
--  НОК Украины: если россиян допускают, то мы не можем брать средства у МОК
--  ارتفاع أسعار خامي البصرة الثقيل والمتوسط
--  সুনামগঞ্জে নিয়ন্ত্রণ হারিয়ে গাছের সঙ্গে মাছবাহী পিকআপের ধাক্কা, নিহত ৩
--  টেস্ট ক্যাপ হারিয়ে ফেললেন ডেভিড ওয়ার্নার!
--  إسرائيل تعود إلى "سياسة الجدار" على طول الحدود مع الأردن ولبنان وحتى غزة
--  Смоленский Роспотребнадзор не советует есть новогодние салаты уже на второй день праздников
--  Dangote refinery gets more crude oil barrels
--  영덕 새해맞이 타종식, 청룡의 새해 활짝 열었다
--  청송읍 농촌중심지활성화사업 추진위원회, 성과공유회 및 주민화합 송년의 밤 개최
--  ㈜환승공조, 의성군 인재육성을 위해 장학금 기탁
--  성주군, 2024년 새해 힘찬 시작
--  İş yeri sahipleri kira artışlarında duyarlı olmalı!
--  Video: Südkoreas Oppositionsführer nach Messerangriff bei Bewusstsein
--  2024 제주 "담대한 혁신·새로운 성장·더 나은 미래" 선포
--  Taiwan detects two Chinese balloons in new year
--  Rezept zum Abnehmen: Dieser Schlank-Salat lässt Kilos purzeln
--  En Australie, un ex-cycliste accusé de féminicide après avoir renversé sa femme
--  Влезе в сила забраната чужди студенти да водят семействата си във Великобритания
--  İngiliz Devini Tekrar Ayağa Kaldırdı! Dünya, Rolls-Royce’un Başına Geçen Türk CEO'nun 220 Katlık Başarısını Konuşuyor
--  Misiones: secuestraron casi 5 mil kilos de marihuana que eran transportados en un camión
--  "한국 야당 대표 칼에 찔리다"…'이재명 피습' 타전한 외신들
--  Las ventas de las 100 principales promotoras chinas cayeron 16,5 % en 2023, según informe
--  Les véhicules Crit'Air 4 désormais interdits à Lyon et Grenoble
--  El turismo se dispara en China durante las vacaciones por Año Nuevo
--  Dienvidkorejā sadurts opozīcijas partijas līderis
--  Ukraine và phương Tây vững tin Nga đang thiệt hại nặng
--  Bản nâng cấp lớn của Kia Sportage sắp ra mắt và đây là dự đoán thiết kế xe
--  Cứ 1 phút có 1 người mắc ung thư vào năm 2040
--  Dạy và phạt con: Nhìn con để sửa mình
--  Trả hồ sơ điều tra bổ sung vụ chủ tịch FLC Trịnh Văn Quyết thao túng chứng khoán
--  Chủ tịch Quốc hội Vương Đình Huệ thị sát cao tốc Biên Hòa - Vũng Tàu
--  Arteta vẫn chỉ là HLV tiềm năng
--  Microsoft คือยักษ์ใหญ่ด้านความปลอดภัยทางไซเบอร์ตัวใหม่ที่ท้าทายคู่แข่งทางเทคโนโลยีรายใหญ่
--  Cumhurbaşkanı Erdoğan 2023 yılı dış ticaret verilerini paylaşacak
--  Arda Güler, Real Madrid formasıyla ilk maçına çıkacak
--  Japonya'daki depremde 24 kişi hayatını kaybetti
--  Dilan Polat'ın o görüntüleriyle ilgili açıklama
+-  Birlikdə çəkiləcəkləri reklam üçün milyonlar qazanacaqlar
+-  Publiek welkom bij finaleavond Stadsdichtersverkiezing
+-  충남도, 시무식 ···‘2023 도정을 빛낸 시책’ 선정
+-  평택, 제1형 당뇨병 환자 의료비 지원
+-  [2024 신년사] 윤재호 구미상공회의소 회장
+-  오크밸리, 콘도 1층에 총 14개 캐릭터룸 조성..."유아 가족 인기"
+-  예산군, 2024 갑진년 새해 ‘청룡’처럼 힘차게 열다
+-  부여군, 홍은아 부군수 취임... 개군 이래 첫 여성
+-  [2024 신년사] 안주찬 구미시의회 의장
+-  [2024 신년사] 정상혁 신한은행장 "'고객몰입 조직'으로 변화하고 고객 필요에 맞는 남다른 가치 제공"
