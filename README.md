@@ -1,51 +1,11 @@
 # Latest News
--  En los últimos días de 2023 ingresaron el país 100.000 argentinos
--  موريتانيا: استياء واسع النطاق من التميز والانتقاء غير المبرر في تعيينات جزئية في صفوف الجنرالات المتقاعدين
--  Two weeks on the road give new-look Raptors a chance to jell on and off the court
--  Ticaret Bakanı Bolat: Hem enflasyonda hem faizlerde iniş hızlanacak
--  FC Bayern – Thomas Tuchels Wunsch und Bedarf in der Abwehr: Das sind die Transferkandidaten beim FCB
--  RDC: La publication des résultats des élections législatives nationales et provinciales reportée
--  ריצה מאסר בישראל, והוביל את גלי הטרור בגדה: זהו סלאח אל-עאעורי שחוסל בביירות
--  Tapia ya es agente libre para negociar su futuro
--  El milenario descubrimiento arqueológico que hicieron soldados israelíes en Gaza
--  Зам.-лидерът на "Хамас" е убит при удар в Бейрут
--  Kolme neljästä mukaan - yksi suomalainen mäkikotka petti kuitenkin pahasti
--  Valioliigan kohumaalipyssyn siirtosaagaan saatiin merkittävä käänne
--  Entinen ManU-lupaus on noussut Evertonin tutkalle
--  Kanadalainen arvostettu asiantuntija hehkutti Nuorten Leijonien suurta sankaria
--  Real Madrid teki yhden asian selväksi - tätä ei tule tapahtumaan tammikuun siirtoikkunassa
--  Max Verstappen paljasti - tämä asia näytteli valtavaa roolia dominoinnin taustalla
--  Jättiyllätys - Kanada ulos nuorten MM-kisoista
--  2024: FG extends deadline for hajj registration
--  NVIDIA kündigt die Einführung der GeForce RTX 40 SUPER-GPUs für die CES 2024 an
--  Grand Kaizen Map – All Locations
--  खजुराहो के मंदिरों में कामुक मूर्तियाँ किसने और कब बनवाईं? इसका उत्तर इन मान्यताओं में निहित
--  अमेरिकी चिनूक-अपाचे के मुकाबले वायु सेना का स्वदेशी हेलीकॉप्टरों पर फोकस
--  Xρηματιστήριο Αθηνών: Άλμα πάνω από τις 1.300 μονάδες για τον Γενικό Δείκτη με «όπλο» την ΔΕΗ – Χάθηκαν τα αρχικά κέρδη για την Ευρώπη – Μικτές τάσεις στην Ν. Υόρκη
--  Impuesto predial: cinco claves para ponerse al día con la obligación
--  الوكالة الوطنية للإعلام: إرتفاع حصيلة الشهداء في إنفجار الضاحية إلى 6
--  തൃശൂരിൽ സ്ഥാനാർഥി നിർണയത്തിനു മുന്നേ സുരേഷ് ഗോപിക്കായി ചുവരെഴുത്ത്
--  Dette vet vi om den drapssiktede 32-åringen
--  Dell’s Catherine Doyle unveils technology outlook for 2024
--  Michelle Yeoh sorgt als frischgebackene Oma für Verwirrung
--  Kapıcılar Kralı oyuncuları! Kapıcılar Kralı ne zaman ve nerede çekildi? Kapıcılar Kralı İbrahim, Hüsnü Yıldız ve Sevil Üstekin merak uyandırdı!
--  संत महात्माओं व नेताओं ने महंत श्याम गिरि को याद कर दी श्रदांजलि
--  كيف علّق ميقاتي على إنفجار الضاحية الجنوبية؟
--  Yavaş'tan Uysal'a ziyaret: Gündem yerel seçim
--  Ambulanti e balneari: dai rinvii infiniti in parlamento alle bocciature di Tar e Consiglio di Stato, fino al no di Mattarella
--  VIDEO: Sanwo-Olu arrests soldier, motorcyclists for plying one way
--  Galápagos: Ordenan investigar uso de pirotecnia en la isla Santa Cruz
--  दुनिया में सबसे तेज़ भूकंप कब और कहाँ आया था? सबसे ज्यादा भूकंप इसी देश में आते हैं
--  Estados Unidos exige a Daniel Ortega que libere “inmediatamente” al obispo Rolando Álvarez
--  LaLiga… ¿Cosa de dos?
--  SKANDAL GÖRÜNTÜLƏR – Fabrik müdiri işçisinə görün nə etdi – ANBAAN VİDEO
--  Fluminense x São Raimundo-RR: escalações, retrospecto, onde assistir, arbitragem e palpites
--  Sky Airlines comienza a operar en Uruguay con cuatro rutas a Brasil, Chile y Perú
--  سالم زهران: ما بعد الأغتيال ليس كما قبله
--  "Семейството" на Вучич, Румен Радев и Каталин Новак публикува общо новогодишно изявление
--  Ist das ihr Freund? Alisha Lehmann postet Bild mit Fußballer
--  تأجيل محاكمة جمال اللبان بتهمة رشوة مجلس الدولة لـ5 فبراير
--  "صفقة هجومية".. من هو الطيب المزياني الذي ارتبط اسمه بالزمالك؟ (فيديو)
--  محافظ الجيزة يناقش مقترح إعداد سجل إلكتروني بالشوارع الرئيسية ومتفرعاتها
--  "لم تكن مبادئ أتاتورك مفتوحة للنقاش".. بيان من الاتحاد التركي عن إلغاء السوبر في السعودية
--  أمم أفريقيا تنتظر 144 لاعبا من الدوريات الأوروبية الكبرى
+-  Kanadan järkyttävää tappiota ruodittiin - "Tuntuu pahalta nuorten miesten puolesta"
+-  Manovra 2024 e Riforma Fiscale: le misure per le imprese
+-  Twitter/X brings back headlines on link previews but now they’re tiny [Gallery]
+-  Using UV disinfection instead of antibiotics in poultry farming
+-  Fast 380 Menschen an Bord: Airbus A350 brennt nach Kollision völlig aus – Radardaten geben Rätsel auf
+-  Brenda Lee’s ‘Rockin’ Around the Christmas Tree’ Jingles Back to No. 1 on Billboard Hot 100
+-  Adani-Hindenburg Row: SC To Pronounce Its Verdict On Wednesday
+-  Nicarágua prende 14º padre católico em menos de 2 semanas
+-  'Mulheres de Areia': Raquel reassume identidade e gera revolta ao impor condições para se separar de Marcos
+-  බදු ගෙවන්නා හඳුනාගැනීමේ අංකයක් ලබා නොගත්තොත් 50,000ක දඩයක්
