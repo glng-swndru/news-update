@@ -1,51 +1,11 @@
 # Latest News
--  Aslan'dan Spinazzola hamlesi
--  Hizbullah İsrail'e ait 3 askeri noktaya saldırı düzenlediğini belirtti
--  "Aboubakar'ı araştırıyoruz"
--  'Banished' words of 2024 released by Michigan university, continuing tradition
--  Добро утро!
--  Zvezdina milijarda
--  Bloomberg: Китай возобновил пошлины на ввоз угля
--  Piano AI bantu pemuzik kelainan upaya
--  Bahn-Streik im Januar: GDL-Lokführer nennen ersten möglichen Termin
--  Forexlive Americas FX news wrap 2 Jan: The USD and yields move higher. Stock lower.
--  Carne: cómo impactará en precios el fin de las restricciones para exportar
--  Obradović: "Posle 28 minuta sam bio mislima u derbiju, odluka o Ledeju sutra"
--  El Gobierno anuncia pago de bonos en dólares: cuáles son los titulos que cortan cupón
--  El real brasileño y otras monedas de la región se devaluaron fuerte ante el dólar: qué hay detrás
--  En La Caraqueña señalan que llevan meses con fallas en el servicio de gas directo
--  Fidelity cuts X valuation amid Musk turmoil
--  הפגיעה הראשונה בהנהגת החמאס לא היתה במנהרות עזה אלא דווקא בפרבר של ביירות
--  החלק הראשון של "מלאכים באמריקה" היה מושלם. החלק השני מתעלה עליו
--  Prima vacacional: ¿Qué es según la ley federal del trabajo?
--  Вучиќ победи и на повторените избори во Србија
--  موجة صقيع تضرب الهند وانخفاض قوى فى درجات الحرارة
--  جوجل تحتل الصدارة فى معالجة المشكلات الأمنية بمنصتها
--  متحدث مجلس الوزراء: اقتصار خطة تخفيف الأحمال على ساعات النهار
--  التنظيم والإدارة: المتقدمون للوظائف الحكومية يخضعون لامتحانات إلكترونية
--  حزب الله اللبناني يعلن استهدافه مجموعة من الجنود الإسرائيليين قرب موقع المرج جنوب لبنان
--  إعلام فلسطيني: إطلاق النار قرب حاجز حوارة استهدف مركبة للاحتلال الإسرائيلي
--  الاحتلال ينفذ غارة جوية وسط مدينة خان يونس جنوب قطاع غزة
--  قندوسي: اخترت الأهلي رغم عرض الزمالك.. والكوكى أول من آمن بقدراتى
--  مجلس الوزراء السعودي يشيد بالتعاون الثنائي مع اليابان في مجال الطاقة النظيفة
--  عمرو أدهم يكشف لـ"اليوم السابع" حقيقة رفع عقوبة إيقاف القيد عن الزمالك
--  Our Nintendo "Super Mario RPG" review: Patient gamers will love it
--  Jovic trascina il Milan ai quarti: Cagliari ko, prima gioia per Traorè
--  La estrella Conor McGregor anuncia su regreso a la UFC
--  Bachelorette Rachel Lindsay & Bryan Abasolo divorce after 4-year marriage
--  Etla: Suomen kilpailukyky paranee hieman tänä vuonna
--  Tacna: denuncian caso de discriminación y agresión física en la playa El Planchón
--  Race-by-race preview and tips for Kembla Grange on Wednesday
--  Race-by-race preview and tips for Kembla Grange on Wednesday
--  بطولة إنكلترا: برايتون يفرمل وست هام بالتعادل معه
--  اتحاد الكاراتيه يستعرض ترتيبات استضافة الدوري العالمي للشباب
--  مدرب الجزيرة: للمرة الأولى أقود فريقاً في المحترفين
--  علي مير.. موهوب الحمرية من طراز «ميرزا»
--  شيخة الشحي بطلة مهرجان ولي عهد دبي للقدرة
--  رونالد يرشح الإمارات لتكون لاعباً مهماً في برامج الاتحاد الدولي للتجديف الحديث
--  حالة فنية مثيرة في ملاعب الهواة.. هدف قاتل بـ 9 لاعبين
--  ماراثون دبي ينطلق الأحد على المسار المفضل لعدائي العالم
--  كرة قدم الصالات تواجه 5 تحديات
--  دبوب: منتخب فلسطين هدفه التأهل لأدوار متقدمة
--  So, Barbie Seems to Have Been an Outlier
--  Trump faces 91 felony counts across 4 criminal cases as 2024 campaign picks up
+-  Calgary kidnapping suspect arrested in Edmonton, hunt continues for alleged accomplices
+-  (VIDEO) Južnokorejski opozicioni lider uboden nožem u vrat
+-  تدريب وتوظيف.. شروط القبول في مبادرة روشن للتدريب المهني
+-  إنذار باللون الأحمر على حائل والقصيم: "ضباب كثيف وتدني في الرؤية"
+-  عاجل.. طريقة رفع إيقاف الخدمات في المملكة 2024؟.. وماذا تشمل؟
+-  مواقيت الصلاة الأربعاء 21 جمادى الآخرة.. أهالي هذه المنطقة آخر من يصلون العشاء
+-  Trump voittajasuosikkina Lontoossa
+-  N.S. athlete hopeful Professional Women’s Hockey League will spark new opportunities
+-  Nicaragua envía sus condolencias a Japón tras fuerte terremoto
+-  Se tramitaron 165,287 pasaportes en el 2023
