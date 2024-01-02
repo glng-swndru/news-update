@@ -1,51 +1,11 @@
 # Latest News
--  رونالدو يهدي والدته سيارة ثمينة في عيد ميلادها
--  نحو 20 مليون راكب لباص عمّان والسريع في 2023
--  15 شهيدا شمالي قطاع غزة
--  إزالة مخالفات لـ109 أشخاص بموقع البترا الأثري
--  زيلينسكي لحلفائه الغربيين: لو خسرنا الحرب سيأكلكم بوتين على العشاء
--  إسرائيل تنوي بناء مدينة ملاهٍ وفنادق ومتحف لقتلاها قرب غزة
--  الحكومة: لا اختلالات بسلاسل توريد المواد الغذائية
--  Corona-Zahlen in Bielefeld aktuell: Die Coronavirus-Daten im Überblick
--  Brighton manager surprised by injured Mitoma’s Asian Cup call-up
--  Oil prices jump after US forces repel Houthis in Red Sea
--  Corona-Zahlen im Kreis Warendorf aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen im Kreis Steinfurt aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Corona-Zahlen im Kreis Recklinghausen aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Corona-Zahlen im Kreis Coesfeld aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen im Kreis Borken aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen in Münster aktuell: Die Coronavirus-Daten im Überblick
--  Corona-Zahlen in Gelsenkirchen aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  ඩොලර් මිලියන 100ක ආයෝජනයක් සමඟ පෝට් සිටියට රෝහලක්
--  Си Џинпинг призна дека Кина има економски проблеми
--  Corona-Zahlen in Bottrop aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Corona-Zahlen im Rhein-Sieg-Kreis aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen im Rheinisch-Bergischer Kreis aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Corona-Zahlen im Oberbergischer Kreis aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Corona-Zahlen im Kreis Heinsberg aktuell: Inzidenz für Kreis Heinsberg, Nordrhein-Westfalen und Deutschland
--  The Wrong Way to Use Healing Magic Season 1 Episode 1 Release Date & Time on Crunchyroll
--  Corona-Zahlen im Kreis Euskirchen aktuell: Die Coronavirus-News aus der Region
--  Bahnstrecke Frankfurt-Mannheim gesperrt: Ersatzverkehr läuft
--  Corona-Zahlen im Rhein-Erft-Kreis aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Corona-Zahlen im Kreis Düren aktuell: Inzidenz für Kreis Düren, Nordrhein-Westfalen und Deutschland
--  산업단지 날갯짓이 충북도를 리부팅한다
--  갈등과 공존
--  쉼 한 모금
--  증평군 민속체험박물관 문광부 장관 표창 수상
--  “청정 괴산 실현 이바지할 것”
--  영동署 역대 최다 경감 승진자 배출
--  “도시형 농촌 보은 미래 열 것”
--  “열린 마음 낮은 자세로 소통”
--  “지속적인 지역발전 힘쓰겠다”
--  류귀현 청주화물터미널 대표 `고향사랑'
--  “창의·감성 힘으로 지역발전 새지평”
--  “극세척도 자세로 어려움 극복할 것”
--  “군민 안전 강화·삶의 질 향상 최우선”
--  최민호 세종시장 “자족기능 갖춘 대한민국 미래전략수도 건설”
--  김태흠 충남지사 “스마트농업 육성·탄소중립 등 성과 창출”
--  충주시청 이상원 `태극마크'
--  살라 멀티골 … 리버풀 뉴캐슬 꺾고 EPL 선두 질주
--  클린스만호 아시안컵 여정 `휘슬'
--  청주 KB 박지수 WKBL 최초 3회 연속 라운드 최우수선수상
--  `억~' 소리나는 김하성 몸값 전망
--  “리버풀·토트넘 황희찬 영입 타진”
+-  Noworoczny Wide Open Jam Session
+-  יחידת יהלום: הכוכבים הדרום-אמריקנים שבדרך לכבוש את הכדורגל העולמי
+-  وزارة التربية الفلسطينية تعلن استشهاد 4156 طالب و تدمير 381 مدرسة منذ بدء العدوان الإسرائيلي على قطاع غزة والضفة الغربية
+-  নৌকার প্রচারণায় ফাঁকা গুলি, অভিযোগ ইউপিডিএফের বিরুদ্ধে
+-  Maschine in Flammen - Flugzeugbrand in Tokio: Über 300 Menschen an Bord
+-  Судски совет ја одби пресудата од Управен за Весна Дамева: најавуваат разгледување, право на жалба нема
+-  Dobra godina iza nas, velika očekivanja i rast u 2024.
+-  Κίνα: Το 2023 ήταν η πιο ζεστή χρονιά που έχει καταγραφεί ποτέ
+-  Dikomandoi Young Lex, Peluru Tak Terkendali Sosialisasikan Program Ganjar-Mahfud
+-  Киевда 29 декабр кунги Россия ҳужуми қурбонлари сони ортди.
