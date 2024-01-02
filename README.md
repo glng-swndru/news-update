@@ -1,51 +1,11 @@
 # Latest News
--  USA tuhosi Latvian täysin nuorten MM-kiekossa
--  Cerró 2023 con 388 homicidios en la capital
--  Concluyen construcción de techumbre en Huerta Legarreta
--  Detienen a sujeto que disparó y lesionó a hombre en Madera
--  Destroza su camioneta luego de chocar contra barda
--  Tenía cuatro días tirado sobre la banqueta; lo trasladan al hospital
--  Anuncian en enero el descuento del 15% en pago del impuesto Predial
--  Muere alto funcionario de Hamas en explosión en Beirut
--  Cambiará UACh sus colores en el 2024
--  Video: Casi un kilómetro de fila en retén militar de Samalayuca
--  Quiere Santi Giménez jugar en Boca Juniors
--  Inicia cobro de Predial 2024 en Cuauhtémoc
--  Producir alimento cuesta 15% más a agricultores
--  Impugnan casinos veto de AMLO a tragamonedas
--  לאחר חיסול עארורי - מי על הכוונת של ישראל?
--  פרסום ראשון: אביעד פריג'ה ישוחרר לביתו ללא תנאים מגבילים
--  Roberto Assad comparte cómo fue trabajar para Sergio Mayer en “Solo para mujeres”
--  Vivek Ramaswamy Drops Out of CNN Debate He Didn’t Qualify For
--  Anćeloti: Ne tražimo štopera u januaru, hvala Brazilcima na razumijevanju
--  Bečić: Izvjesno da će Marković biti VDT
--  Na WhatsAppu korisnici više neće moći da vide brojeve
--  Istorija: Otkrivena zlodela srednjevekovnog kaluđera 'gangstera' u Engleskoj
--  Meni restorana na Ski centru 1450 antireklama za Kolašin
--  Mystery/thriller writers on tap for author programs at Yorktown Library
--  شركة “هاباج لويد” الألمانية تواصل تجنبها طريق الشحن عبر قناة السويس
--  డీఎంఎఫ్‌టీ పనులపై ఆరా
--  دنيا بطمة تنهار باكية: أتعرض لمؤامرة كبيرة
--  Use of cryopreserved oocytes increases with poor ovarian response, finds study
--  بتر ساق فادي إبراهيم والنجم اللبناني يعلق بكلمات مؤثرة
--  Voorzitter van Harvard stapt op na aanzwellende kritiek
--  Formazioni ufficiali Milan Cagliari: le scelte di Pioli e Ranieri in Coppa Italia
--  John de Jong legt nieuwe fraaie klus als technisch directeur naast zich neer
--  Nachtschwärmer feiern das neue Jahr in der Schweiz
--  ¿Cómo puedes hacer devoluciones de tus compras navideñas realizadas por internet?
--  Harvard University President Claudine Gay resigns amid plagiarism claims
--  Gasolina en Juárez, casi 7 pesos más cara que en El Paso
--  Presidenta Castro se quedó corta con cambios en gabinete
--  Improvement needed in managing UTI in patients with neurogenic bladder, says study
--  These 15 Top-Rated Lip Oils Will Keep Your Lips Hydrated Through Winte
--  Sports has an owner problem
--  Sancho Juve: colpo di scena! Ecco dove può finire il giocatore
--  Saturan citas para sacar INE
--  కొన్నిశాఖల ఉద్యోగులకే జీతాలు
--  Was New Lebanon Nick Emrick Involved In A Car Accident? Tribute Explored
--  Izraeli dróncsapásban megölték a Hamász helyettes vezetőjét Bejrútban
--  El 27 de enero se podrían realizar las movilizaciones convocadas por presidenta Castro
--  La Italinë, për të investuar në vendlindje
--  ¡Apantallantes!
--  “Perestroika”, de João Cerqueira, premiado pela Historical Fiction Company
--  నిజామాబాద్‌ పార్లమెంట్‌పై ఫోకస్‌
+-  "אמבפה מתנהג כמו ילד קטן, שיעזוב. נמאס לשמוע קשקושים עליו"
+-  מחזור 18 ביורוליג: מכבי תל אביב - מונאקו 2:2 (רבע 1)
+-  Rishikesh News: घने कोहरे से हवाई सेवाएं प्रभावित, सात उड़ानें विलंब से पहुंची
+-  Rishikesh News: वन विभाग ने बढ़ाई गश्त, ग्रामीणों ने की पिंजरा लगाने की मांग
+-  Rishikesh News: सात दिवसीय एनएसएस प्रशिक्षण शिविर शुरू
+-  Rishikesh News: सड़क नहीं तो वोट नहीं, ग्रामीणों ने पारित किया प्रस्ताव
+-  Noida News: सरिया-स्क्रैप माफिया रवि काना समेत 16 पर गैंगस्टर का केस दर्ज
+-  Noida News: धनेश हत्याकांड को सुलझाने में उलझी पुलिस, करीबियों पर शक
+-  Charkhi Dadri News: कॉटन की फैक्टरी में लगी आग, 5260 कॉटन की गांठें जली
+-  Ghazipur News: सुबह-शाम बढ़ी गलन, पांच तक बंद रहेंगे आठवीं कक्षा तक के स्कूल
