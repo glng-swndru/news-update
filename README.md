@@ -1,11 +1,51 @@
 # Latest News
--  Eski kız arkadaşı ve ağabeyinin olduğu aracı kurşunladı: 2 yaralı
--  Bursa'da bugün hava nasıl olacak?
--  이찬원, 고향 대구서 '찬스 감사제' 성료…풍성한 무대
--  Memur ve emekli zammı yarın belli olacak
--  Bercuti di Thailand, rakyat Malaysia sumbang hampir 2 bilion bhat
--  Klub zadovoljnih žensk, ameriški film – torek, 2. 1., ob 20.05 na TV SLO 1
--  Ўзбекистон жаҳон сиёсатининг марказларидан бирига ва глобал ташаббуслар муаллифига айланмоқда
--  Ўткир Розиқов: Академик бўлишнинг ҳам ўз мезонлари бор(+Видео)
--  Saudi sovereign wealth fund splashes cash in 2023
--  Trumps Rückkehr – eine Diktatur mit Ansage
+-  [2024 신년사] 이재근 국민은행장 "고객 퍼스트 중점…‘KB스타뱅킹’을 유니버설 플랫폼으로"
+-  [인사] 신한은행
+-  [2024 신년사] 김성태 기업은행장 "중소기업 위기극복 지원 최우선"
+-  美대법원장 "AI 판사 등판? 아직 시기상조"… '환각현상' 등 부작용 경고
+-  [날씨] 오늘 흐리고 온화…동해안 강한 너울, 해안가 출입 자제
+-  दिल्ली में कोहरे के कारण रेल यातायात ठप: 26 ट्रेनें देरी से चली,यहां देखे लिस्ट
+-  More EVs lose US tax credits including Tesla, Nissan, GM vehicles
+-  Pirms ķeries pie uztura bagātinātājiem! Dažas lietas, kas tev jāzina par vitamīniem
+-  김영록 전남지사 quot;대동정신으로 새로운 미래 100년 만들어가자quot;
+-  김한규 의원, 이재명 대표 피습 살인 미수 quot;엄한 처벌이 뒤따라야quot;
+-  [인사] 프레시안 경기인천취재본부
+-  김대중 교육감 quot;더 나은 미래 위해 전남교육 대전환 속도 높이겠다quot;
+-  quot;尹정권 합벅적으로 종식시키자quot;hellip;정동영, 전북 전주 출마 선언
+-  दक्षिण कोरिया के विपक्षी नेता पर चाकू से हमला
+-  الأكاديمية الوطنية للصناعات العسكرية 1445 فتح التسجيل لحملة الثانوية العامة عبر adi
+-  Mainz 05 stellt wichtige personelle Weichen
+-  Намушкаха с нож лидера на южнокорейската опозиция
+-  طلباء اب اپنی کو برطانیہ نہیں لے جاسکیں گے
+-  UN-Menschenrechtsbüro sieht Anzeichen für Kriegsverbrechen
+-  Fraktionsvize Kuhle erleichtert über FDP-Mitgliederbefragung
+-  Israel kämpft an mehreren Fronten
+-  Ohne Carvalho, aber mit Elmas: RB Leipzig im Trainingslager
+-  Kristina vom Dorf: Eine Verfechterin des sächsischen Dialektes wird Westsächsin des Jahres 2023
+-  Mibrag-Chef sieht vorgezogenen Kohle-Ausstieg nicht kommen
+-  Intervijas laikā Dienvidkorejā sadurts opozīcijas partijas līderis
+-  Zum Tod von Tom Wilkinson
+-  পঞ্চমবার সিআইপি সোহেল, মালদ্বীপ হাইকমিশনারের শুভেচ্ছা
+-  شاهد الفيديو.. فنان أمريكي يغني لزعيم الحوثيين ويشكر ”جيش الحوثي”
+-  بالتعاون مع أمريكا.. بريطانيا تستعد لتوجيه ضربات صاروخية ضد الحوثيين
+-  Siang Ini, TKN Pastikan Gibran akan Datang ke Bawaslu Terkait Bagi-bagi Susu
+-  Продължава специализираната полицейска операция за пияни и дрогирани зад волана
+-  58 milletvekili sadece yemin etmek için kürsüye çıktı
+-  En Chiapas, liberan a la empresaria de 73 años tras 11 días secuestrada
+-  Hava Durumu (02-01-2024)
+-  Hava Durumu (02-01-2024)
+-  Orhan Şen tarih verdi: Kar İstanbul'un kapısına dayandı!
+-  Boynundan bıçaklandı! Güney Kore'de ana muhalefet lideri saldırıya uğradığı anlar...
+-  Flitsers op ring Antwerpen richting Nederland nieuwe recordhouder
+-  Können Hunde Corona bekommen und es an ihre Besitzer weitergeben?
+-  इस देश में मोटापे पर बनेगा कानून, नापी जाएगी कर्मचारियों की कमर!
+-  Baron Black On Missing Much Of 2023, Says He Was Out With Injury & Illness
+-  Sheinbaum destaca a los jóvenes como pieza fundamental para la 4T
+-  Dövlət satınalmaları ilə bağlı yeni qanun qüvvəyə mindi
+-  Tamara Keith und Amy Walter über den Wahlkampf 2024, die ersten Vorwahlen sind nur noch wenige Wochen entfernt
+-  Acun Ilıcalı, genç aşkı Ayça Çağla Altunkaya yeni fotoğraf paylaştı
+-  이창재 대웅제약 대표 “글로벌 헬스케어 기업 정체성 내재화할 단계”
+-  진짜 제2의 이정후가 될 상인가…진정한 시험대, 영웅들은 23세 ‘뉴 히어로’ 기다린다
+-  이강인, 배우 이나은과 열애설…"지인 사이"
+-  尹, 금융투자소득세 폐지 공식화 "코리아 디스카운트 해소할 것"
+-  ㈜올품 신임 대표이사에 26년 '하림맨' 강기철 씨 취임
