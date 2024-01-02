@@ -1,51 +1,11 @@
 # Latest News
--  Sinh viên chế tạo hệ thống tự động chống cháy nổ xe máy
--  Nhật Bản gỡ tất cả cảnh báo sóng thần sau động đất 7,6 độ
--  Sớm đưa hệ thống công nghệ mới vào hoạt động để đảm bảo giao dịch chứng khoán
--  Ông Trịnh Văn Chiến và Nguyễn Đình Xứng nộp 45 tỉ đồng khắc phục sai phạm dự án Hạc Thành Tower
--  Cô gái trẻ bị giết, vứt xác phi tang trên sông Hàm Luông
--  '원칙과상식' "이재명 피습에 충격과 분노". 탈당에 차질?
--  Queensland Premier and Gold Coast Mayor address the media
--  Queensland Premier and Gold Coast Mayor address the media
--  Halle Berry, 57, looks incredible in lacy lingerie in celebratory photo
--  한은, 화폐기획전 ‘四時貨色: 국립공원의 사계, 화폐에 물들다’ 展 개최
--  홍해, 이란 순항미사일 장착 호위함 투입 '일촉즉발'
--  Karnataka Sculptor Arun Yogiraj's Ram Lalla Idol Finalised For Ayodhya Temple
--  ‘Use of antibiotics without prescription will be banned’: Veena George
--  Chinese EV giant BYD posts 62 per cent jump in 2023 vehicle sales
--  New Year 2024: Deepika Padukone shares glimpses of her `magical day 1 of 366`
--  दो महीने लड़ा युद्ध-नेतन्याहू के साथ फोटो, अब इजराइल ने अपने ही नागरिक को क्यों किया गिरफ्तार?
--  Экс-замминистра Тука признал, что Украина не способна производить порох
--  Severe thunderstorm hits Victoria’s west, thousands without power
--  Severe thunderstorm hits Victoria’s west, thousands without power
--  Ahmednagar Petrol Pump : अहमदनगरमध्ये अनेक पेट्रोल पंपावर पेट्रोल , डिझेल संपलं
--  김진표 국회의장 “제1야당 대표 흉기테러 강력 규탄”
--  Missing exchange student found cold and scared after what police call a 'cyber-kidnapping'
--  Tiga Pasangan Capres Berebut Penghuni Medsos
--  An innovation to ensure quality, fair price in coir industry
--  हिट अँड रन कायद्याविरोधात ट्रान्सपोर्ट युनियनच्या संपाचा दुसरा दिवस; इंधन तुटवड्याचं संकट उद्भवणार?
--  Citizenship Revocation; A case to watch
--  Manchester United Tak Berniat Perpanjang Kontrak Raphael Varane
--  Osaka tames nerves for winning return in Brisbane
--  ৬ ঘণ্টা পর শরীয়তপুর-চাঁদপুর রুটে ফেরি চলাচল স্বাভাবিক
--  IND vs SA: नए साल में जीत के साथ शुरुआत करेगी टीम इंडिया? आंकड़ों से जानें इस सवाल का जवाब
--  [▶▶ 개미 투자자 대박을 위해 수백만원 상당의 급등주 무료로 뿌립니다!
--  [이재명, 부산서 흉기 피습… 유력 정치인들 ‘테러 수난사’[종합]
--  [이재명 피습 순간…“사인해주세요” 취재진 뚫고 코앞서 급습
--  [[속보] 소방당국 "이재명 대표, 목 1㎝ 열상…의식 있는 채로 치료"
--  Consecration Ceremony of Ram Lalla Mandir at Ayodhya: कर्नाटकचे प्रसिद्ध शिल्पकार Arun Yogiraj यांनी साकारलेल्या रामलल्लाच्या मूर्तीची प्राणप्रतिष्ठा सोहळ्यासाठी निवड!
--  [‘경복궁 낙서’ 교사범과 입금자 달랐다… 경찰 “교사범 추적중”
--  कार्ययोजनाका नाममा उपभोक्तासँग उठाइँदै रकम
--  Стал известен главный фаворит Лиги Европы
--  J Devika’s book shines a ‘Little Fire’ on struggles of powerless
--  Jokowi to Visit Purworejo Today to Inaugurate Bus Terminals and Bridges
--  홍준표, 이재명 피습에 "죽고죽이는 검투자 정치 그만 둬야"
--  Mercurio consigue el triunfo en Sin Salida CMLL
--  Kerala launches K-Smart tech solution to streamline local self-government services
--  2 killed, several hurt in fiery crash in Rochester
--  Véres harcok Ukrajna-szerte, szilveszterkor sem szüneteltek a támadások
--  แม้ไม่มีรูปคู่ แต่สตอรี่ชัดมาก จับพิรุธคู่จิ้นลุ้นขยับสถานะ ทริปส่งท้ายปีเกาหลีใต้
--  В Японии полностью отменили угрозу цунами
--  В Японии полностью отменили угрозу цунами
--  Bombshell twist in Sea World helicopter crash that killed four people and injured nine others - as report makes dramatic drug find
--  Kolombiya Cumhurbaşkanı Petro: Yeter artık dursun bu katliamlar
+-  Das neue Jahr in Castrop-Rauxel ist da: Wohin jetzt mit meinem Weihnachtsbaum?
+-  Erdbeben in Japan: Bei einer Erdbebenserie in Japan kommen mindestens 21 Menschen ums Leben
+-  Maybank IB: 2024 to be a ‘take-off’ year for Malaysia’s economic transition, GDP firmer at 4.4pc
+-  '내가 이재명' 왕관 쓰고 접근…피로 얼룩진 가덕도
+-  "어머니 오래 간병한 딸에게 임대주택 명의 줘야"
+-  올해 인문사회·이공분야 학술연구에 9367억원 투입
+-  [노컷브이]이재명 대표 흉기 피습 순간…"사인해달라" 순식간에 공격
+-  韓 최대 규모 CJ슈퍼레이스에 모터바이크 대회도 열린다
+-  Goldy Brar: ਕੌਣ ਹੈ ਅੱਤਵਾਦੀ ਗੋਲਡੀ ਬਰਾੜ ? ਪਹਿਲਾ ਪਰਚਾ ਕਦੋਂ ਹੋਇਆ ਸੀ ਦਰਜ, ਕੈਨੇਡਾ ਬੈਠਾ 5 ਸੂਬਿਆਂ 'ਚ ਚਲਾ ਰਿਹਾ ਗੈਂਗ
+-  이재명, 부산 방문중 피습돼 병원 이송
