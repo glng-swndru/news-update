@@ -1,51 +1,51 @@
 # Latest News
--  Nach Entführung in Dänemark: Kinder von Steakhaus-Erbin Christina Block „sind wohlauf“
--  President Joe Biden will be only Democrat on NC primary ballot, state officials decide
--  Галант: Борбите на југот на Појасот Газа ќе продолжат да бидат интензивни
--  Hallenpokal der „Freien Presse“: So läuft der Kartenverkauf für die Zwischenrunden
--  Bitterfeld gelingt beim 3:0 gegen Dachau sechster Saisonsieg
--  اللجنة المركزية للإيفاد بالخارج تكشف عن أعداد الموفدين للدراسة بالخارج.
--  الأعلى للدولة يناقش الأوضاع السياسية في البلاد والمستجدات المتعقلة بالحوار الخماسي.
--  رئيس مجلس إدارة بانابريس يكشف في دكار عن خارطة طريق لتطوير الوكالة القارية وتحريرها من الإعتمادات على المساهمات الحكومية .
--  UCV FC se reforzó con Brayan Hurtado
--  Taylor Swift’s bejeweled New Year’s Eve dress costs $2K, but we found 5 similar styles for less
--  Повторно одекнуваат експлозии во Белгород
--  [관풍루] 이제 제발 '증오의 정치' 멈춰지길
--  [날씨] 1월 3일(수) "흐리고 가끔 비눈"
--  [사설] 대공 수사 맡은 경찰, 인력·역량 부족해 간첩 잡겠나
--  [사설] 이선균 죽음 원인이 검경 모두의 문제라는 조국, 거의 병이다
--  Česi opäť postúpili do semifinále. Mali sme aj trochu šťastíčka, priznali
--  [사설] 이재명 대표 부산에서 흉기 피습, 민주주의에 대한 도전
--  Legendarni fudbaler pronađen pretučen, jedva je mogao govoriti
--  Un interno de la cárcel de Monterroso golpea a otro reo y a un funcionario en la cabeza
--  Grindetti contra las SAD: “Lo que quiero es que Independiente compre al Chelsea”
--  Зеленски ги откри главните цели на Киев за 2024 година
--  Asgari ücret erimeye başladı! Çalışanlar zamlı maaşı alamadan düştü... İşte 6 günlük asgari ücret...
--  Форвард «Колорадо» Маккиннон признан первой звездой декабря в НХЛ
--  Muvhango: Tuesday’s episode, 2 January 2024 [VIDEO]
--  La Izquierda exige sesión especial de la Legislatura por Emergencia Laboral ante los despidos masivos de Macri
--  Korisnici Netflixa pišu da je ovo najbolji nogometni dokumentarac svih vremena
--  عباس ابراهيم: في ظل دخان الغدر صار السؤال: أين أصبح القرار ١٧٠١؟
--  Pat Sajak has embarrassing ‘Wheel of Fortune’ cue-card meltdown: ‘I messed up’
--  السعودية تفعل تقنيات الذكاء الاصطناعي بالمسجد الحرام
--  Gleisi critica Haddad por tentar interditar o debate sobre os rumos da economia
--  Harvard appoints Alan Garber as new interim president after he was seen nodding in approval during Claudine Gay's anti-Semitism testimony that led to her ousting
--  O șoferiță amendată de ziua ei a dat în judecată Poliția. Se aștepta să primească un tort
--  Woman arrested following Broadmeadows suspicious house fire
--  Woman arrested following Broadmeadows suspicious house fire
--  Woman arrested following Broadmeadows suspicious house fire
--  ‘Bachelorette’ Rachel Lindsay’s husband, Bryan Abasolo, files for divorce after 4 years of marriage
--  الحرس البلدي بنغازي: باشرنا في سحب المنتجات المغشوشة من السوق
--  This old Kristen Bell comedy flop is now top of Netflix
--  "On devrait en baver", un Niçois part à l’assaut du Dakar à bord d’une 4L très spéciale
--  Barstool’s Frank ‘the Tank’ Fleming lost over 150 pounds since peak of 500
--  Tribunal Federal emite orden contra Anuel AA por demanda millonaria por incumplir contrato
--  Resultados del salario mínimo podrían conocerse al final de esta semana
--  New Year is the trickiest time of the year for relationships - here are the 13 ways to save YOUR marriage from a breakup
--  The Traitors contestant Mollie Pearce proudly shows off her stoma bag in social media snaps ahead of appearing on the show
--  Kadınlar Türkiye Kupası’nda Dörtlü Final eşleşmeleri belli oldu
--  Netanyahu'ya destek hızla eriyor
--  עומר אדם ויעל שלביה מרגשים: זה מה שעשו למען הלוחם שנפל בעזה
--  Tragic twist after young Aussie boy died alongside his cousin while on holiday
--  נתניהו למשפחות החטופים: נשקלת האפשרות של הגליית צמרת חמאס מעזה
--  Salih el Aruri’nin annesi ve kardeşinden metanet dolu açıklama: Allah şehadetini kabul etsin
+-  Dave Chappelle’s Netflix Special Goes Viral For Blunt Transgender Comments
+-  총선 앞둔 이재명 피습에 野분열 '일시중단'…향후 정국은?
+-  '美1.6 의사당 난입사태, 폭력적'…"54%→50%로 줄었다"
+-  경찰 40여 명도 못 막은 이재명 피습…경호 사각지대 도마
+-  Bônus LeoVegas: até R$150 em apostas e R$5mil no cassino
+-  Kreise: Hamas-Anführer Al-Aruri ums Leben gekommen
+-  Президент Гарварда покинет свой пост из-за скандала вокруг антисемитизма
+-  Promocode Betmotion: use BETFUT e ganhe até R$400
+-  “El aumento del salario mínimo fue más alto de lo esperado y tendrá su impacto”
+-  Rubén Morales: Iribarren tiene ya 19 años esperando el PDUL #2Ene
+-  [北김여정, 尹 신년사에 “압도적 핵전력 확보에 정당성 부여” 즉각 반응
+-  Ushuaia se sumó a las ciudades que prohíben la tecnología 5G por eventuales riesgos a la salud
+-  AFAD duyurdu: Bağış hesabında toplanan 73 milyar lirayı afetzedelere ulaştı
+-  Piedmont Adult School classes run gamut of interests, start next week
+-  Hochwasserrisiko in Nordbayern durch anhaltende Regenfälle
+-  Ook leiders gewapende tak Hamas onder doden aanval Beiroet
+-  Mijlpaal in Oost-Europa: Estland stelt huwelijk open voor partners van hetzelfde geslacht
+-  Vijf doden en meer dan negentig gewonden bij aanvallen op Kyiv en Charkiv, burgerdode in Russische Belgorod
+-  Jongen (15) moet deel hand missen na aansteken gevonden cobra
+-  Ze školy rovnou do ruské armády. Osmnáctiletý Stas padl po dvou měsících v přední linii u Charkova
+-  Código bônus Parimatch: use PARIFUTEBOL para ganhar até R$1.500
+-  La gasolina es más cara en enero de 2024: sin subsidio y con más IEPS, el precio de la gasolina toma a México desprevenido
+-  Get Ready for a Spectacular Show: Quadrantids Meteor Shower on the Horizon
+-  Fenerbahçe konuk ettiği Kızılyıldız'a mağlup oldu
+-  #FOTOS Centro de Barquisimeto lució desolado tras la temporada decembrina #2Ene
+-  Get Advanced Gaming with a SAMSUNG Curved Monitor
+-  کانگریس نے آر ایس ایس کو گھر میں گھس کر دھویا!
+-  ¿Qué equipos son los grandes favoritos en las ligas europeas más importantes?
+-  Detienen a ex socio de Cooperativa Cruz Azul por corrupción
+-  Vinculado a proceso por agresión sexual a adolescente
+-  Lanza Rusia letal ola de misiles sobre Ucrania
+-  Max Castillo es reclamado de waivers por Boston
+-  تموين الإسكندرية تضبط مخزن مواد غذائية بحيازته سلع فاسدة
+-  Camila Batmanghelidjh dead aged 61: Founder of of scandal-hit charity Kids Company dies on New Year’s Day
+-  BC.Game bônus: use “futegame” e receba até 1 BTC em recompensas
+-  أسامة كمال عن اغتيال صالح العاروري: نتنياهو يشعل المنطقة لينقذ نفسه
+-  Hezbolá amenaza con tomar represalias contra Israel tras el asesinato de un alto cargo de Hamás en el Líbano
+-  Kastamonu'da samanlıkta yangın çıktı
+-  ROUNDUP 5: Hamas-Anführer Al-Aruri ums Leben gekommen - Israel im Verdacht
+-  మార్కెట్లో లాభాల స్వీకరణ
+-  2025 national No. 3 / 5-star prospect Darryn Peterson to visit Arkansas either in February or March, calls UA "guard university"
+-  ‘Peace of mind’: Manitoba expert on tips to declutter this new year
+-  Partidos de hoy, martes 2 de enero 2024: quién juega, a qué hora y dónde ver
+-  ¿Quién fue máximo goleador 2023? Tabla de máximos goleadores
+-  موسم الرياض.. كواليس بروفات ماجد المهندس لحفل "ليلة البرنس"
+-  Gustav Westman ny vd i Speqta
+-  الأخضر يستعد لودية لبنان بحصتين تدريبيتين.. ومانشيني يسمح بمغادرة ثلاثي المنتخب
+-  فايكانو يهزم خيتافي في الدوري الإسباني ويحقق فوزه الأول بعد غياب طويل
+-  مدرب فولهام يتحدث عن تألق ميتروفيتش مع الهلال
+-  فان دايك يرفض الحديث عن فرص ليفربول في الفوز بالدوري الإنجليزي
