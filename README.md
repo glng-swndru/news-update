@@ -1,11 +1,11 @@
 # Latest News
--  Buscaba trabajo en un bar, le hizo una simple pregunta al empleador y la rechazaron
--  Valencian europeliunelma elää
--  Nuorten Leijonien välierän alkamisaika selvillä
--  – بدء فعاليات المؤتمر العلمي الأول حول تطوير المناهج التّعليمية
--  KM Peyton obituary
--  Deiola a Sky: «Dopo il gol subito abbiamo fatto un po’ di errori e poi ci siamo sciolti»
--  «1.5» مليار صادرات عملاء «تصدير»
--  «الخبرة القطرية» تثري البطولة القارية
--  Lil Nas X Asks Fans If They’re ‘Ready for a Show’ in New Era Teaser
--  (VIDEO) Hechos violentos en Santa Cruz Xoxocotlán
+-  Kadınbudu Köfte Nasıl Yapılır? Evde Gerçek Kadınbudu Köfte Tarifi...
+-  İş gezisi dönüşü faciayla bitti! 'Ben kime ne diyeyim?'
+-  Storm Henk veroorzaakt overlast en ongemak in vrijwel hele land
+-  TOFAŞ deplasmanda galip geldi!
+-  Şarjda unutulan telefon faciası! Batarya patlaması sonucu 5 yaralı
+-  bhc그룹 아웃백 매장 직원이 컵 던지고 위협?…본사는 뒤늦은 대처에 ‘빈축’
+-  Hizbullah'tan İsrail'in suikastine karşı saldırı! 3 askeri nokta bombalandı
+-  Literatura en castellano: 12 libros recomendados para Reyes 2024
+-  Literatura internacional: 10 libros recomendados para Reyes
+-  Ingreso de turistas extranjeros al país en el 2023 recupera la cifra de la prepandemia
