@@ -1,51 +1,11 @@
 # Latest News
--  مجلس الحسابات يستعد لإحالة ملفات منتخبين بارزين على النيابة العامة
--  وزارة التعليم تستأنف جلسات الحوار مع النقابات لمتابعة تنفيذ اتفاق 26 دجنبر
--  "وزارة بنموسى" تَستدعي الFNE لمواصلة الحوار.. و"قاشا" يكشف ل"أخبارنا" تفاصيل أوفر
--  بين البقاء و الرحيل عن غلطة سراي .. وكيل أعمال النجم حكيم زياش يوضح
--  المديرية الجهوية للفلاحة بكلميم وادنون تُسجل انخفاضا في إنتاج الزيتون بنسبة 30 بالمائة
--  المديرية العامة للضرائب تصدر نسخة 2024 من المدونة العامة للضرائب
--  Kibariye babasıyla ilgili ilk kez konuştu: Beni çok dövdü
--  Finlandiya ve İsveç'te "bu kışın en düşük sıcaklıkları" kaydedildi
--  İran Cumhurbaşkanı Reisi Türkiye'ye geliyor... Terörle mücadelede somut işbirliği en büyük beklenti
--  Almanya'da aşırı sağ yükseliyor... Üye sayısında dikkat çeken artış
--  İzmir açıklarında hortum oluştu
--  Teklif yapıldı! Süper Lig devi Berkay Yılmaz için geri sayıma geçti
--  TBMM Başkanı Kurtulmuş, RTÜK Başkanı Şahin'i kabul etti
--  Weltkulturerbe: Chemiker untersucht Gewässer im Park des Schloss Augustusburg in Brühl
--  Cô dâu làng bóng đá Việt được tặng vàng ngày cưới hỏi, đoán xem của ai "nặng" nhất?
--  Đông Nhi bắt tay Hiền Thục, Jun Phạm giải mã 'Tết ổn' trong MV mới
--  Nam Thư lên tiếng về bức ảnh ôm sát rạt đồng nghiệp nam đã có vợ: "Tôi xin rút kinh nghiệm"
--  Chụp ảnh xấu lần đầu là lỗi của điện thoại, nhưng chụp mãi vẫn xấu là do bạn chưa biết những mẹo này rồi
--  3 TỐ CHẤT của người làm lãnh đạo: Kẻ bình thường lướt qua, người thức thời đọc ngay để NHẢY VỌT trong năm 2024
--  Indberetning af ledende medarbejderes og disses nærtståendes transaktioner med A.P. Møller - Mærsk A/S aktier i forbindelse med aktietilbagekøbsprogram
--  לפני משחק העונה: אסולין ישפוט את מכבי ת"א, לייבה את מכבי חיפה
--  טוקלומטי עשוי לרדת לספסל של מכבי פ"ת, פרמאטי במרכז ההגנה
--  'Lướt sóng' cổ phiếu SEA trong chưa đầy một tháng, công ty con của Novaland đã lãi gấp đôi?
--  Više od 22.000 mrtvih
--  В Белгороде сократят рейсы общественного транспорта из-за атак ВСУ
--  ETF Spot su Bitcoin: SORPRESA del fondo da 27 miliardi
--  MrBeast Snubs Elon Musk's X; YouTuber Rejects Billion-Dollar Offer Citing Revenue Woes
--  TDK'ya göre şoför nasıl yazılır? ‘şoför mü’ yoksa ‘şöför mü?’
--  yada TDK yazımı nasıl? 'ya da' birleşik mi, ayrı mı yazılır?
--  Haftasonu TDK yazılışı… Hafta sonu nasıl yazılır, birleşik mi, ayrı mı?
--  Maalesef TDK yazılışı… Maalesef nasıl yazılır, ‘malesef’ mi, ‘maalesef’ mi?
--  Hiçbir TDK yazılışı… Hiçbir nasıl yazılır, birleşik mi, ayrı mı?
--  Yeni yılda ruh sağlığını iyileştirme yolları
--  Birkaç TDK yazımı… Birkaç nasıl yazılır, ayrı mı, birleşik mi?
--  HPV aşısı rahim ağzı kanserinden koruyor! Rahim ağzı kanseri ile ilgili merak edilenler
--  Bakanlık harekete geçti: Görüntülere inceleme başlatıldı! Fabrika sahibinden işçiye şiddet
--  ‘İyiki’ nasıl yazılır, birleşik mi ayrı mı? TDK ‘iyi ki’ yazılışı
--  2024’te harç ücretleri ne kadar olacak?
--  Gitgide nasıl yazılır? TDK “git gide” yazılışı birleşik mi, ayrı mı?
--  Η Ουκρανία κατηγορεί τη Ρωσία ότι βομβαρδίζει "εσκεμμένα" "κατοικημένες" περιοχές
--  Arda Güler Real Madrid-Mallorca maçının kadrosuna alındı
--  Sophie Ellis-Bextor responds to ‘Murder On The Dancefloor’ resurgence for featuring in NSFW ‘Saltburn’ scene
--  Fenerbahçe'de İstanbulspor maçı öncesinde kadro sıkıntısı
--  انقطاع الغاز الإيراني يضرب الجنوب: تحذيرات من انقطاع الكهرباء في مواجهة الموجات البردية
--  القائد الأعلى للجيش الليبي يعقد اجتماعاً عسكرياً موسعاً
--  زيادة أسعار تذاكر مترو الانفاق بمصر، وتخوف من زيادة أسعار الكهرباء .
--  Inter in flessione? La Juve è sul pezzo: sale anche la qualità dei bianconeri
--  انطلاق فعاليات ملتقي تطوير مهارات طب الأسنان في ابوسليم.
--  Aiyedatiwa assures workers of improved value, dignity for better future
--  Samo 15 posto Izraelaca želi da Netanyahu ostane premijer, veću podršku ima Gantz
+-  Пропадна и последниот тендер – грчката фирма нема да го гради Чебрен
+-  Kickoff | AmaZulu president breaks silence on Mabasa rumours
+-  "האגו נעשה חזק יותר": ביברס נאתכו ניסה להסביר את הסיטואציה שהובילה לפיטוריו של ברק בכר
+-  נחשף: זהו הפרויקט הראשון של שלום אסייג מאז "שנות ה-90"
+-  26 אחוזים מהפסולת בחופי הארץ – בדלי סיגריות
+-  ח"כ צביקה פוגל בהשוואה מקוממת: "קודם נכריע את חמאס, ולקינוח נעשה סדר בבג"ץ"
+-  דיווח: ביתו של מפקד גדודי חללי אל-אקצא ברצועה הושמד
+-  "סטודנטית ירקה עליי": כוכב "הישרדות" הותקף כשהוא לבוש במדי צה"ל
+-  מירי כהן הטריפה את הרשת: מתכון לקונכיות דפי אורז קריספיות
+-  צפו: גנב עובר בין כלי רכב עד אשר מוצא רכב לא נעול
