@@ -1,51 +1,51 @@
 # Latest News
--  Detuvieron en España al presunto prestanombres de García Luna
--  “다신 부르지 말라” 송영길, 또 檢 소환 불응…기소 초읽기
--  서울고법, 김의철 前 KBS 사장 해임 유지…항고 기각
--  공무원 보수 2.5% 오른다…尹대통령 연봉은?
--  Через масовану атаку рф є пошкодження в мережах у Києві та області, без світла понад 250 тисяч домівок - Укренерго
--  Brillantes Angebot für das, was gefragt ist
--  Ѓоковиќ го повреди зглобот на раката пред почетокот на АО
--  استقرار أسعار الذهـب بالاردن
--  إحباط هجوم بطائرة مسيّرة استهدف قاعدة أميركية بالعراق
--  Drei Spieler können dem S04 viel Geld einbringen
--  Streefkerk telt veel kampioenen na de Streefkerkse Kampioenschappen
--  Gouwestrand brengt elke week live-muziek naar GOUDasfalt
--  Horoskop: Beförderung oder Kündigung? Diesen Sternzeichen steht eine große Veränderung bevor
--  La dificultad para acceder a una vivienda crece en 2023 y se sitúa ya en niveles de 2012
--  La dificultad para acceder a una vivienda crece en 2023 y se sitúa ya en niveles de 2012
--  نئے سال کا پہلا تحفہ، ایل پی جی کی قیمت میں اضافہ
--  拥抱美好的2024
--  У Варонескай вобласьці пашкоджаныя прыватныя будынкі ад падзеньня расейскай ракеты, якая не даляцела да Ўкраіны
--  Somali pirates are back in action, but a full scale return isn’t likely
--  Snažni ruski napadi na Kijev i Harkiv, Rusi se osvećuju za Belgorod
--  더현대 대구 리뉴얼 1년…MZ세대 50% 이상 유입 ‘핫플레이스’
--  이강덕 시장 “포스텍 의대 설립은 지방소멸 막는 표본”
--  Blac Chyna reduces her bre@st size in latest plastic surgery
--  Elon Musk'ın 'X'inin değeri çakıldı
--  ASML says Dutch government partly withdrew export licence
--  جوڈیشل کمپلیکس توڑ پھوڑ کیس میں اشتہاری ملزم علی نواز اعوان نے سرنڈر کردیا
--  Παρελθόν ο Ψύχας / Ανακοινώθηκε η κοινή συναινέσει λύση της συνεργασίας
--  طُعن في رقبته.. كاميرا ترصد لحظة تعرض زعيم المعارضة بكوريا الجنوبية لهجوم مباغت
--  Julia Menger wird neue Moderatorin bei „MDR um 4“
--  اليرموك تعلن عن منحة شيرين أبو عاقلة لدراسة الماجستير بالإعلام
--  طعن زعيم المعارضة في كوريا الجنوبية بسكين خلال مؤتمر صحفي
--  Hyderabad: Over 3,000 drunk driving cases booked on New Years Eve
--  방송사 사장 2024년 신년사 키워드는 '위기'
--  Valtio korvaa ukrainalaislasten päivähoitokulut – Laitilalle 125 000 euron avustus
--  Program Transisi Energi PLN Peroleh Pembiayaan Hijau Rp 12 Triliun
--  Ian Ziering z Beverly Hills 90210 se na ulici popral s řidiči minibiků
--  南市立委選舉公辦電視政見會3日登場 投票人數逾156萬
--  Cristina Pedroche lidera las campanadas de fin de año con 5,6 millones de espectadores
--  Massive Quake Claims Lives, Leaves Survivors Desperate In Japan
--  شرطة كوريا الجنوبية تكشف معلومات عن حادث طعن زعيم المعارضة واستجواب المهاجم
--  Eski Fenerbahçeli oyuncu yılın futbolcu seçildi
--  Filistin'e destek yürüyüşünde vatandaşa yumruk atan şehir eşkıyasının ifadesi ortaya çıktı
--  Brandweer rukt uit voor containerbrand in Frankrijkstraat in IJsselstein
--  Savic adım adım Fenerbahçe'ye
--  İsrail’in Gazze’deki kara operasyonunda ölen asker sayısı 173’e yükseldi
--  Yeni varyant, yeni semptomlar! Covid-19'da bu belirtilere dikkat...
--  Hakim Ziyech'in menajerinden açıklama!
--  ABD gemilerini geri çekiyor
--  British Gas giving £1,500 grants to UK households and you don't need to be customer
--  City-profil kalder indbrud for traumatisk oplevelse
+-  Samsung spaja naprednu umjetnu inteligenciju i uređaje u kuhinji
+-  Redan ma warunkową umowę sprzedaży znaków towarowych za 10,5-13,5 mln zł
+-  מה עובר על החיילים שירו בחבריהם ובחטופים? מומחה לטראומה חושף
+-  בשקט בשקט: אפל שברה מסורת בת 12 שנה
+-  מהנדסי ומהנדסות אפל מלמדים את ילדי ישראל המפונים מיישובי העוטף את מיומנויות הקידוד
+-  דיווח בטורקיה: 33 נעצרו בחשד לקשרים עם המוסד
+-  דגו: "צריך לנצח כל משחק ולקוות שבסוף הדברים יהיו תלויים בנו"
+-  Après le séisme au Japon qui ont fait 48 morts, à Wajima des images de désolation
+-  עליית מחירי הדלק היא הניצוץ שיצית גל התייקרויות
+-  هزة أرضية قوية تضرب نواحي جهة بني ملال‬
+-  بنموسى يستدعي النقابات وسط استمرار الاحتقان
+-  وجوه سينمائية فقدناها سنة 2023:
+-  هذه توقعات أحوال الطقس اليوم الثلاثاء
+-  بريطانيا سعت لتمكين محمد دحلان لضمان أمن إسرائيل في ذروة الانتفاضة الفلسطينية الثانية – وثائق بريطانية
+-  عندما تتساقط رموز الكابرانات وتبقى تطلّعات شعوب المغرب العربي
+-  قاعاتنا السينمائية مرشحة للتكاثر ابتداء من سنة 2023
+-  أمن البرنوصي يحقق في اعتداء محسوبين على إلترات المشجعين على مواطنين وموظفي الشرطة
+-  هزة أرضية بقوة 4.9 نواحي بني ملال
+-  بنموسى يستدعي النقابات التعليمية من أجل متابعة تنفيذ اتفاق 26 دجنبر
+-  تفاصيل إطلاق عيارات نارية عديدة بالبرنوصي
+-  Cadang peruntukan skim usahawan India ditambah RM30 juta – Ramanan
+-  [2024 신년사] 김창기 국세청장 "'따뜻한 세정' 어느 때보다 중요하고 필요한 시기"
+-  [포토] 현대차 정의선, 2024년 경제계 신년 인사회 참석
+-  민주 "이재명, 테러 여파로 尹 신년하례식 불참"
+-  [서산시·태안군 소식] 성일종 의원·조한기 예비후보 새해 첫 행보
+-  Hrvatska ima šanse u Europi jedino ako Hajduk bude prvak!
+-  La actividad de las fábricas españolas se contrae en diciembre por noveno mes consecutivo -PMI
+-  SoftBank venderá participaciones en Ola Electric y FirstCry, conserva 1.100 millones de dólares en empresas indias
+-  La bolsa española supera los 10.200 puntos al ganar el 1,05 % después de la apertura
+-  Kanada: Zašto su tri kanadska grada među 10 najboljih za život u svetu
+-  6 cầu thủ có nguy cơ phải "khăn gói" rời Arsenal gồm những ai?
+-  Na mlađima srpski tim ostao: Olga Danilović i Hamad Međedović se izborili za četvrtfinale Junajted kupa
+-  Kampioen ASWH
+-  이용록 홍성군수 “자강불식 각오로 미래혁신도시 실현”
+-  이재명 대표 피습에 정치권 “절대 있어선 안될 일”
+-  Ukrainian Soldiers Refuse to Carry Out Combat Missions - Intercepted Radio Surveillance
+-  Тотнъм отново поглежда към Нотингам за полузащитник
+-  이재명 피습한 피의자 60대 남성...경찰, 살인 미수 혐의 적용
+-  El puente de la Constitución-Inmaculada generó un gasto de 365 millones de euros en Madrid
+-  ต้อนรับปีใหม่ "เต่ามะเฟือง" ขึ้นวางไข่รังที่ 6 หาดท้ายเมือง
+-  Ozan Güven yıllar sonra setlere dönüyor! İşte rol alacağı dizi
+-  Dünya Müslüman Alimler Birliği'nden çağrı... "İşgalci İsrail'in kaçırdığı bebek geri alınsın"
+-  Fenerbahçe'ye sürpriz öneri: Thilo Kehrer
+-  İsrail'den yeni skandal! Sivillerin evlerini şarkı söyleyerek yıkıyor
+-  "Çocukluk aşkım" demişti! Mesut Özil'den flaş Fenerbahçe hamlesi
+-  Fransa'da kuvvetli yağış ve sel bekleniyor
+-  Erbil'de bomba yüklü İHA düşürüldü... ABD üssünü hedef almıştı
+-  Almanya'da muhalefetten "Ukrayna talebi"
+-  İmzalar atıldı! Sivasspor'da Bülent Uygun dönemi resmen başladı
+-  İsrail basını yazdı: Hamas'ın teklifini Tel Aviv reddetti
