@@ -1,11 +1,51 @@
 # Latest News
--  لحصر ممتلكات الدولة.. محافظ كفر الشيخ يوقع بروتوكول مع المساحة - صور
--  محافظ جنوب سيناء يشهد عروضًا فنية لطلاب مدارس الطور
--  قائد القوات البحرية المصرية يلتقى آمر القوة البحرية الكويتية
--  حسام موافي يحذر من علامة تظهر في القدم تكشف الإصابة بمرض السكري
--  "عندما يهدر فرصة ترى الابتسامة على وجهه".. لاعب ليفربول يتحدث عن محمد صلاح
--  S&T Bancorp fija la convocatoria de resultados del cuarto trimestre para el 25 de enero
--  Airbus envía un equipo de especialistas a Tokio para investigar el choque de aviones
--  PGIM lanza fondos cotizados de bajo coste con opciones de protección
--  Las empresas chinas de vehículos eléctricos anuncian un aumento de las entregas en el cuarto trimestre
--  Lekéste az utolsó buszt, így lopott egy BMW-t, hogy hazaérjen az éjféli koccintásra
+-  Leonardo Bonucci, Maguire'a sahip çıktı
+-  Tottenham'dan Pape Sarr'a yeni sözleşme
+-  Wirtz için Liverpool, Manchester City yarışı
+-  Анчелотті: Сподіваюся бути в Реалі і у 2028 році
+-  Nemilosrdni Putin ne odustaje od osvete: 'Nikada nisu ispalili toliko Kinžala u jednom napadu od početka rata'
+-  ഒരുമാസം കൊണ്ട് 71 ലക്ഷം അക്കൗണ്ടുകൾ നിരോധിച്ച് വാട്സാപ്പ്; പുതിയ ഐ ടി നിയമങ്ങളിൽ ഞെട്ടി ലോകം
+-  Dua Lipa bjonde për vitin 2024
+-  Vuelve Conor McGregor a UFC: Te decimos contra quién y cuándo regresa al octágono
+-  Steuerforderungen: Villa von Signa-Gründer Benko gepfändet
+-  Trainingsauftakt des FC Bayern ohne Gnabry und Davies
+-  Die ersten Babys 2024 im Plauener Vogtland-Klinikum heißen Janosch und Aryam
+-  "Dumny naród pada na kolana". Tak Niemcy piszą o Polakach
+-  Partnerchöre gestalten weihnachtliches Programm in Neuhausen
+-  Leipzig startet Trainingslager - Hoffnung auf Olmo-Rückkehr
+-  Поставиха Везенков сред най-добрите в Европа
+-  মিছিলে অস্ত্র প্রদর্শন, আওয়ামী লীগ নেতার অস্ত্র জব্দ
+-  Đoković o problemima sa zglobom: ‘Nadam se da nije ništa ozbiljno’
+-  New law on hit and run will be implemented after thorough discussion, says Union Home Secretary Ajay Bhalla: Top developments
+-  Asesinan a un venezolano de una puñalada en Santiago de Chile
+-  Agricoltura, pubblicati quattro bandi per 35 milioni di euro.
+-  Analistas consideran que es prematuro someter a Rixi Moncada a dos años de campaña
+-  Újabb elismerést kapott a budapesti atlétikai világbajnokság
+-  Yeni yılda trafik cezalarına yeni tarife
+-  Son dakika: İsrail Beyrut'ta Hamas ofisini vurdu
+-  Tödlicher Gleissturz, Otto-Wagner-Rückkehr & Machetenmord-Anklage
+-  Avantio: El software ideal para gestión de alquiler vacacional
+-  Govt ready to facilitate foreign investment: Minister Saud
+-  Mobile Deiche, viele Helfer: Land kämpft mit Hochwasser
+-  René Benko: Villa von Signa-Gründer wegen Steuerschulden gepfändet
+-  "В два раза". В США удивились возможностям российского оружия на Украине
+-  Πόλεμος στη Γάζα: Έκρηξη στη Βυρητό - Στόχος ήταν τα γραφεία της Χαμάς
+-  Cristiano Ronaldo es el máximo goleador del 2023
+-  Kommentar zur Ukraine: Eigennutz
+-  Les fans de GTA 6 révèlent les célébrités qu’ils veulent voir parodiées dans le jeu
+-  Замполитбюро ХАМАС погиб при подрыве офиса движения в Бейруте, пишут СМИ
+-  Po zaplenjanju krav še vladna cenzura za medije? Je razlog Palestinec?
+-  Bayat Foundation distributes winter aid to needy families in Bamyan
+-  Gaza-Krieg: Israels Außenminister sieht sein Land im „Dritten Weltkrieg“ gegen den Iran und Islamisten
+-  "Wer wird Millionär?": Kandidatin versucht Günther Jauch in Verlegenheit zu bringen
+-  Társaiért adta életét a Hamász magyar áldozata: fegyverrel vette fel a harcot a terroristákkal szemben
+-  Codes Type Soul | Reroll et tickets | Janvier 2024
+-  IHTT pide a transportistas invertir en nuevas unidades o no habrá pago de subsidio
+-  ¿Te gustaría ser policía? Lanzan convocatoria para formar parte de la Policía Municipal en Ahome
+-  Фридман: «Пропаганда Лукашенко, будете и дальше ссылаться на FP?»
+-  Chihuahuenses son los más cumplidos en el pago del Predial a nivel nacional: Bonilla
+-  Prodali 2 stana i podigli ušteđevinu za krstarenje koje je otkazano: Uskoro bismo mogli da budemo beskućnici
+-  Szykuje się transfer reprezentanta Polski? Pojawiła się ciekawa opcja
+-  Galatasaray Çağdaş Faktoring kupaya veda etti!
+-  Tjeckisk skräll – Kanada utslaget i JVM
+-  Összeütközött két repülőgép, majd tűzgolyóként száguldott a kifutón: Öten meghaltak a brutális balesetben
