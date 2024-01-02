@@ -1,51 +1,51 @@
 # Latest News
--  Dave Chappelle’s Netflix Special Goes Viral For Blunt Transgender Comments
--  총선 앞둔 이재명 피습에 野분열 '일시중단'…향후 정국은?
--  '美1.6 의사당 난입사태, 폭력적'…"54%→50%로 줄었다"
--  경찰 40여 명도 못 막은 이재명 피습…경호 사각지대 도마
--  Bônus LeoVegas: até R$150 em apostas e R$5mil no cassino
--  Kreise: Hamas-Anführer Al-Aruri ums Leben gekommen
--  Президент Гарварда покинет свой пост из-за скандала вокруг антисемитизма
--  Promocode Betmotion: use BETFUT e ganhe até R$400
--  “El aumento del salario mínimo fue más alto de lo esperado y tendrá su impacto”
--  Rubén Morales: Iribarren tiene ya 19 años esperando el PDUL #2Ene
--  [北김여정, 尹 신년사에 “압도적 핵전력 확보에 정당성 부여” 즉각 반응
--  Ushuaia se sumó a las ciudades que prohíben la tecnología 5G por eventuales riesgos a la salud
--  AFAD duyurdu: Bağış hesabında toplanan 73 milyar lirayı afetzedelere ulaştı
--  Piedmont Adult School classes run gamut of interests, start next week
--  Hochwasserrisiko in Nordbayern durch anhaltende Regenfälle
--  Ook leiders gewapende tak Hamas onder doden aanval Beiroet
--  Mijlpaal in Oost-Europa: Estland stelt huwelijk open voor partners van hetzelfde geslacht
--  Vijf doden en meer dan negentig gewonden bij aanvallen op Kyiv en Charkiv, burgerdode in Russische Belgorod
--  Jongen (15) moet deel hand missen na aansteken gevonden cobra
--  Ze školy rovnou do ruské armády. Osmnáctiletý Stas padl po dvou měsících v přední linii u Charkova
--  Código bônus Parimatch: use PARIFUTEBOL para ganhar até R$1.500
--  La gasolina es más cara en enero de 2024: sin subsidio y con más IEPS, el precio de la gasolina toma a México desprevenido
--  Get Ready for a Spectacular Show: Quadrantids Meteor Shower on the Horizon
--  Fenerbahçe konuk ettiği Kızılyıldız'a mağlup oldu
--  #FOTOS Centro de Barquisimeto lució desolado tras la temporada decembrina #2Ene
--  Get Advanced Gaming with a SAMSUNG Curved Monitor
--  کانگریس نے آر ایس ایس کو گھر میں گھس کر دھویا!
--  ¿Qué equipos son los grandes favoritos en las ligas europeas más importantes?
--  Detienen a ex socio de Cooperativa Cruz Azul por corrupción
--  Vinculado a proceso por agresión sexual a adolescente
--  Lanza Rusia letal ola de misiles sobre Ucrania
--  Max Castillo es reclamado de waivers por Boston
--  تموين الإسكندرية تضبط مخزن مواد غذائية بحيازته سلع فاسدة
--  Camila Batmanghelidjh dead aged 61: Founder of of scandal-hit charity Kids Company dies on New Year’s Day
--  BC.Game bônus: use “futegame” e receba até 1 BTC em recompensas
--  أسامة كمال عن اغتيال صالح العاروري: نتنياهو يشعل المنطقة لينقذ نفسه
--  Hezbolá amenaza con tomar represalias contra Israel tras el asesinato de un alto cargo de Hamás en el Líbano
--  Kastamonu'da samanlıkta yangın çıktı
--  ROUNDUP 5: Hamas-Anführer Al-Aruri ums Leben gekommen - Israel im Verdacht
--  మార్కెట్లో లాభాల స్వీకరణ
--  2025 national No. 3 / 5-star prospect Darryn Peterson to visit Arkansas either in February or March, calls UA "guard university"
--  ‘Peace of mind’: Manitoba expert on tips to declutter this new year
--  Partidos de hoy, martes 2 de enero 2024: quién juega, a qué hora y dónde ver
--  ¿Quién fue máximo goleador 2023? Tabla de máximos goleadores
--  موسم الرياض.. كواليس بروفات ماجد المهندس لحفل "ليلة البرنس"
--  Gustav Westman ny vd i Speqta
--  الأخضر يستعد لودية لبنان بحصتين تدريبيتين.. ومانشيني يسمح بمغادرة ثلاثي المنتخب
--  فايكانو يهزم خيتافي في الدوري الإسباني ويحقق فوزه الأول بعد غياب طويل
--  مدرب فولهام يتحدث عن تألق ميتروفيتش مع الهلال
--  فان دايك يرفض الحديث عن فرص ليفربول في الفوز بالدوري الإنجليزي
+-  "المهندسين" تدين الاعتداء الصهيوني على الضاحية الجنوبية في بيروت
+-  Spin Master completa la compra de Melissa & Doug por 950 millones de dólares
+-  Las acciones de Boeing caen al retirar Goldman Sachs su estatus de lista de convicción
+-  إحصائيات الشوط الأول بين ميلان وكالياري
+-  In een kwart eeuw asielbeleid lijkt er niets veranderd: ook kabinet-Kok kampte al met een opvangcrisis
+-  ישראל כץ מברך: "מקווה שהמוסד המפואר יפיק את הלקחים"
+-  ישראל תתייצב בפעם הראשונה בהאג: זו הסיבה לכך
+-  ميلان يتقدم أمام كالياري بثنائية في الشوط الأول
+-  펩트론 선택한 LG화학, 스페인서 도입한 성조숙증 치료제 상용화 포기
+-  Lumbardhi e quan Bucin “Golf 2”
+-  “개인 조건 합의 완료” 토트넘, 토디보 대신 ‘루마니아 국대 DF’ 영입 임박
+-  X volta a exibir títulos em links, mas de um jeito diferente
+-  Enfeksiyonlarda "mikroplazma" artışı
+-  Destrukcja państwa na ogromną skalę
+-  Presidente do PT chama governo de Israel de 'genocida'
+-  5 osób rannych w wypadku busa w m. Grabina Wola na A1
+-  يوفيتش يواصل التألق بقميص ميلان
+-  Atienden a empresario Carlos Bremer por desvanecimiento
+-  Empeñan pertenencias para salir de deudas
+-  Renuncia presidenta de Harvard entre polémica de plagio
+-  Lee Jae-myung, el opositor obrero surcoreano apuñalado
+-  Boda con temática del América se viraliza en redes sociales
+-  Quiénes son los muertos del trágico choque cerca de Lamarque
+-  When a pair of new footwear was ‘seized’ by police
+-  Bərdə-Ağdam dəmiryolunun tikintisindən son görüntülər
+-  Presidente de México confirma el secuestro de 31 migrantes en la frontera con EE.UU.
+-  'One to watch' - David Ornstein delivers verdict on Everton quest to sign Chelsea ace in January
+-  Piloto de helicóptero desaparecido em SP relatou dificuldade durante voo
+-  10 películas animadas que se estrenan en el 2024: “The Garfield Movie”, “Kung Fu Panda 4” y más
+-  Microsoft boss says UK was ‘tough and fair’ over Activision Blizzard deal
+-  Russia rains missiles on Ukraine, killing two and injuring dozens
+-  Lasun to Aregbesola: Don’t hallucinate over return to political leadership
+-  Jasikevicius: Genel olarak iyi değildik
+-  Thailand to waive visa requirements for Chinese nationals
+-  Asamblea Nacional entra al primer debate del proyecto urgente remitido por el Ejecutivo sobre competitividad energética
+-  Año Nuevo se mancha de sangre: Sicarios matan a 12 personas en pocas horas
+-  Camilla Parker Bowles Will Never Be ‘Truly Loved’ By the British Public Unless She Does 1 Thing, Expert Says
+-  Milwaukee TV Station Broadcasts NSFW Message Live After Packers Continue Their Search For a Playoff Berth
+-  Aubrey Huff deletes social media account after seemingly being outed as horndog
+-  Poland sends F-16 jets to border after Russian strikes on Ukraine
+-  Augusto Melo promete 'choque de gestão' no Corinthians
+-  Dizem que é a mais alta turbina eólica de madeira. Já funciona na Suécia
+-  Denuncian precariedad en el Hospital Gervasio Vera Custodio
+-  ¡Un recuerdo para toda la vida!: hermanos villarosarinos y sus primos conocieron a Scaloni
+-  Earthquake jolts off central Indonesia
+-  Putin potpisao rekordan broj tajnih dekreta u 2023.
+-  Puštanje talaca samo pod uslovima Hamasa
+-  Η πρώτη φορά του Λοΐζου και η... νέα αγαπημένη του
+-  Nga “dritaret e shtrigave” tek e marta ters, besëtytnitë më të përhapura në botë
+-  "Struja ipak poskupila 5,63 odsto, Vlada obmanjuje javnost"
