@@ -1,11 +1,11 @@
 # Latest News
--  Atalanta-Sassuolo, l'analisi del match di Coppa Italia
--  Pronostici Coppa Italia, le quote e le statistiche di Roma-Cremonese
--  Vesti Derthona e guadagna un biglietto
--  Periodistas de RPC radio y Telemetro fuman la pipa de la paz
--  رئيس المجلس الرئاسي يتلقى مزيداً من التهاني من رؤساء وقادة الدول بمناسبة ذكرى الاستقلال .
--  التأمين على السيارات: معالجة أزيد من 634 ألف شكوى منذ سنة 2022 عبر منصة "e-recours"
--  İran, Aruri suikastı sonrası katil İsrail'i kınadı
--  Hablemitoğlu suikastının zanlısı yakalandı... Nuri Gökhan Bozkır yakayı böyle ele verdi
--  İsrailli vekilden Salih el-Aruri suikastı için işgalci orduya övgü
--  من هم قادة "القسام" الذين استشهدوا رفقة العاروري في بيروت؟
+-  איש האופוזיציה האיראני קרא בכנסת: "ישראל צריכה להפציץ באיראן"
+-  مبادرة «تحدي الجامعات للمشي» في أم القرى
+-  Casos no INSS para entrar com a aposentadoria em até 56 anos
+-  Gustavo Petro, presidente de Colombia, invita a Residente a concierto a favor de Palestina
+-  Children Have Higher Hospitalizations From RSV Than Omicron or Influenza
+-  جامعة الجوف تحقق أعلى المراتب بالتصنيفات العالمية
+-  Tendrá Nido de Águilas campo sintético
+-  Eerste officiële storm van dit jaar gemeten in IJmuiden
+-  GTA 5 leaving Game Pass as year of GTA 6 hype kicks off
+-  Pennsylvania Senate candidate Dave McCormick meets with IDF officials in Israel
