@@ -1,51 +1,11 @@
 # Latest News
--  Trump in beroep tegen uitsluiting van voorverkiezing in Maine
--  VS veroordelen Israëlische uitspraken over nederzettingen in Gaza
--  Victims of Michigan home explosion identified as 4 Arkansans visiting family
--  'This is the lowest of lows:' Scammers pose as funeral home reps, target grieving families
--  Laman sesawang PADU ‘diserbu’
--  البطاط: شكرا قطر
--  Tocaron la puerta, abrió y dispararon: primer feminicidio de 2024 en Atlántico
--  الخرجي: تواصل مع القطاع السياحي لتقديم مزايا وخدمات للمتقاعدين
--  «تصدير»: 1.5 مليار ريال صادرات شركات قطرية في 2023
--  جناح لبنان بإكسبو يقدم لوحة شكر بالزهور لقطر
--  [현장연결] 당정, 오늘 '2024 경제정책방향' 협의 개최
--  3-1. Pepelu lidera al Valencia y arrolla a un perdido Villarreal
--  مسيرات وإضراب في الضفة ومخيمات لبنان عقب اغتيال العاروري (شاهد)
--  Hochwasser / Lage in Deutschland bleibt kritisch
--  Aktiviti kilang China menguncup bulan Dis
--  ¿Cuáles han sido los coches más vendidos en Euskadi en 2023?
--  Tenencia 2024 en el Edomex subirá de precio, ¿cuánto aumentará?
--  Several people, including 'key suspect,' arrested in killing of Oakland police officer
--  Österreich / Kickl ante portas: Im Superwahljahr drohen neue Triumphzüge der Rechtspopulisten
--  Dolores Fynaardt
--  Trump appeals disqualification from Maine primary ballot
--  Google’s new #BestPhonesForever ad highlights Pixel 8 Pro’s ‘Best Take,’ trolls iPhone
--  Senador de EEUU Menéndez afronta nuevas acusaciones de corrupción relacionadas con Catar
--  Good Spirits defaults on loan, loses CEO
--  Las cinco ciudades argentinas que no quieren tener antenas para 5G
--  نشرة التوك شو.. "الوزير" يكشف أسباب تحريك أسعار تذاكر المترو.. ومفكر استراتيجي: إسرائيل غرقت في الأنفاق
--  في الشتاء.. هكذا تحمي قلبك من تغيرات الطقس
--  Phó thủ lĩnh Hamas bị sát hại ở Lebanon
--  Waitangi Treaty Grounds museums evacuated, police search grounds following bomb threat
--  Los conciertos de Reyes en Triana acabarán este año a las 00.30 horas
--  ...Y la Estrella de Belén iluminó las calles del casco de Agüimes
--  El colegio Carlos Socas de Ingenio se retranquea unos metros para la seguridad de su comunidad
--  Gypsy Rose Blanchard is free, reflects on prison term for conspiring to kill her abusive mother
--  Gypsy Rose Blanchard is free, reflects on prison term for conspiring to kill her abusive mother
--  Trump geht gegen Ausschluss von Vorwahl im US-Staat Maine vor
--  Selena Gomez Hints at Retirement From Music: ‘I Feel Like I Have One More Album in Me’
--  올해 국민연금·기초연금 3.6% 더 받는다…국민연금 월평균 2만2310원 올라
--  민주, 의원총회 열고 이재명 피습 후속대책 논의…李, 수술 후 중환자실 회복 중
--  이탈리아 의료진, 절단된 다리의 신경으로 마비된 손 수술
--  Ukraine dihujani peluru berpandu, dua maut, puluhan cedera
--  Endus Diskriminasi, Sejumlah Advokat Menyomasi Bawaslu RI
--  Little Rock police identify officer involved in New Year's Eve Baseline Road Walmart shooting
--  Refineries: NNPC’s wobbly gyrations
--  Rafizi says Padu’s eKYC approval process done in less than five minutes, not three days
--  Polémica: "Ficharía a Messi si tuviese 20 años, hoy ficharía a Haaland"
--  Pelajar China ditemui lepas komplot ‘penculikan siber’
--  Surrey shooting leaves 19-year-old man seriously hurt
--  La ecuatoriana Lucía Yépez, al primer Ranking Series en Croacia previo a París 2024
--  Ruang Pintar PNM Dukung Akses Internet Anak Indonesia
--  '흉기 피습' 이재명, 서울대병원서 2시간 수술 후 회복 중
+-  尹 "금투세 폐지" 선언…부자감세·합의파기 후폭풍
+-  '흉기 피습' 이재명 회복중…민주당, 오늘 긴급 의총[뉴스쏙:속]
+-  "10년 전 재능만 믿고 배구 했다" 성숙해진 레오, 제2의 전성기 맞나
+-  No cash handouts in cost of living considerations
+-  مواعيد مباريات اليوم الأربعاء والقنوات الناقلة
+-  DAVIDO holidays in St Kitts and Nevis with his wife CHIOMA and their twins (VIDEO)
+-  Senador de EEUU es acusado por corrupción
+-  ¿Cuándo y dónde ver el primer eclipse solar del 2024?
+-  Busca por Tik Tok a su mamá desaparecida
+-  Video: Quedaron solo daños en palets tras incendio en TRW
