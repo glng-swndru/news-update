@@ -1,51 +1,51 @@
 # Latest News
--  مرصع بالذهب واللؤلؤ.. العتبة الحسينية تستبدل كساء ضريح الصحابي حبيب بن مظاهر الاسدي (فيديو)
--  오은영 찾아간 프로파일러의 고민은? "사람을 못 믿겠어요" [금쪽상담소]
--  이나은·이강인, 열애설 부인했지만 기정사실화?…누리꾼들은 "축하" [MD이슈](종합)
--  صحة الكرخ تعلن استقبال اكثر من (٦) ملايين مريض و اجراء (٢٠٠) الف عملية جراحية متنوعة خلال عام ٢٠٢٣
--  '2023년 세계 최다 득점자였는데'... 호날두는 2월부터 어머니를 보지 못했다 왜?
--  Asesinatos en el país bajaron 5% en 2023
--  Turkcell, depremzedelere yönelik 3,5 milyar liralık bağış ödemelerini tamamladı
--  Gaziantep'te yangın: Anne ve 4 çocuğu hastaneye kaldırıldı
--  Memur maaş zammı ne zaman belli olacak?
--  Россия Украина бўйлаб ёппасига зарба йўллади. Сўнгги маълумотлар.
--  Resmi imzalar atılıyor! Antalyaspor, Sergen Yalçın'a kavuştu
--  Ўзбекистонда маданий тадбирларнинг янги лойиҳалари тасдиқланди.
--  في هذا الموعد.. ماجد المهندس يحيى حفله الغنائي في دبى
--  غدًا.. جنات تطرح أغنيتها الجديدة "الشمخ الجواني"
--  Este es el nuevo juego gratis para siempre de Epic Games Store en la promoción de Navidad
--  羽田日航客機起火︱本港至少5班往返羽田航機受影響
--  Taylor Swift and Travis Kelce's Coordinating Dances Go Viral
--  Mirá cómo estará el tiempo en San Juan este lunes 2 de enero
--  Középiskolai felvételi 2024: elérhető a 2023/24-es szakmafüzet
--  بعد اليخت: الدكتورة خلود تستقبل 2024 بهدية تتجاوز 2 مليون درهم
--  اقتراحات أنيقة لموضة فساتين الحفلات في 2024
--  Tenista Naomi Osaka volvió a las pistas tras ser madre
--  雯雯新年又狂數老公張致恒！談離婚狀況再爆Seed：個個淨係識話我發癲
--  "اللجان الزكوية والضريبية" تنشر 9 آلاف قرار فوري عبر موقعها الإلكتروني
--  Freising - Autofahrer wollte pinkeln und landete im Graben
--  Tragické havárie lietadiel v roku 2023 si vyžiadali životy len 80 ľudí vrátane posádky
--  El Granada ficha a Augusto Batalla
--  Maailmanmestari Carmen Valero on kuollut
--  Nuoret Leijonat kohtalonotteluun - valmennukselta kova ratkaisu MM-puolivälierään
--  ManU tulee mukaan vääntöön 75 miljoonan euron pelaajasta
--  שותים ומחבקים: יריד יין למען יקבי קו העימות
--  אחרי 15 משחקים בלבד: ויין רוני פוטר גם מברמינגהאם
--  COVID Map Shows US States With Increased Hospitalizations Before Christmas
--  [부고]이선호(경기일보 지역사회부장)씨 부친상
--  [인사] 수원특례시
--  한동훈 quot;대구, 제 정치적 출생지hellip;동대구역 시민과 대화하며 정치 결심quot;
--  대전성모병원 이환희middot;김영율 교수팀, 세계골다공증학회 학술구연상 수상
--  Von Polt bis Pop, von Salsa bis Blasmusik: Wertheimer Kulturkalender hat auch 2024 einiges zu bieten
--  Bahnstrecke Frankfurt-Mannheim gesperrt
--  Bluttat Lohr: 14-Jähriger wird wegen Mordes an Gleichaltrigem angeklagt
--  Japón reportó 48 muertos tras terremoto que sacudió el país
--  Bahçede 1 TL'ye satılan mandalina markette 20 lira!
--  Bilecik'te 9 katlı binada yangın
--  Japonya'daki kaza sonrası THY uçağı Narita'ya yönlendirildi
--  Luke Littler, 16, reveals classy message from Brendan Dolan after stunning World Darts Championship quarter-final win
--  La banca redujo el crédito a empresas un 3,51 % hasta noviembre y a hogares, un 2,54 %
--  Las exportaciones rusas de gas por gasoducto a Europa caen un 56% en 2023 -cálculos de Reuters
--  Las bolsas del Sudeste Asiático inician el año con mayoría de subidas
--  Se espera que las acciones de Apple comiencen 2024 a la baja tras la rebaja de Barclays a vender debido a los poco impresionantes ingresos del iPhone
--  La filial de WISeKey obtiene una inversión estratégica de THA
+-  العمل تطلق خدمة (عتبات) للمشمولين بإعانة الحماية الاجتماعية
+-  السوداني يوجه بتغيير اسم "شارع المطار" الى "شارع الشهيد أبو مهدي المهندس"
+-  문재인 "이재명 피습, 놀랍다…용서받지 못할 테러행위"
+-  Statistiques NBA : les leaders au 2 janvier 2024 !
+-  Europska komisija određuje drugi skup VLOP-ova u okviru DSA-a
+-  Da Cairo e Rodriguez a Buongiorno e Radonjic: il capodanno dei granata
+-  Borbe u Pojasu Gaze još bjesne, uprkos djelomičnom povlačenju izraelskih vojnika
+-  Hiillostus alkoi jo nyt - tämä F1-kuski on koko ajan potku-uhan alla
+-  NorthLink cancels first ferry sailings of 2024
+-  Nyitrai Zsolt: a nyugdíjasok 2024-ben is számíthatnak a kormányra
+-  Manisa'da feci kaza! Çok sayıda yaralı var
+-  Araç sahipleri dikkat: Depoları doldurun! Okkalı bir ÖTV zammı geliyor...
+-  Viralna snimka: Pogledajte kako pod morem izgleda potres jačine 7,2 po Richteru
+-  Trei zile fără cardiologi la Spitalul de Urgență Târgu Jiu. „Bolile de inimă sunt principala cauză de deces în România“
+-  कारसेवकों की गिरफ्तारी पर मुख्यमंत्री सिद्दारमैया बोले, हम नफरत की राजनीति नहीं कर रहे
+-  Kijów w ogniu po rosyjskim ostrzale. Zełenski pokazał poruszające nagranie. "Piekło"
+-  A Ukrainian lawyer appealed to the CAS and challenged russia's admittance to the Olympics
+-  Yvonne Coldeweijer deelt bevallingsverhaal: ‘Ik heb veel verdrongen’
+-  Bizerte : Investissements agricoles en hausse de 24% en 2023
+-  Nestlé khởi động chiến dịch Tết 2024 với thông điệp "Cầu Đủ Là Được"
+-  Sự nghiệp suýt tiêu tan của nữ ca sĩ vừa công khai yêu thần đồng bóng đá Hàn Quốc
+-  Máy bay chở hơn 300 hành khách bốc cháy dữ dội tại sân bay Nhật Bản
+-  Japan Plane Fire Inside Video: टोक्यो के हानेडा हवाई अड्डे पर आग लगी विमान के अंदर का वीडियो आया सामने, 300 से ज्यादा यात्री सवार
+-  Dilan Polat iflic ola bilər
+-  Tulosvaroituksen antanut Nokia palkittiin kurssinousulla Helsingin pörssissä
+-  Japan Airlines plane on fire on runway at Tokyo's Haneda airport: TV images
+-  «Venir de un sitio pequeño, y además una isla, me hizo desde pequeña ser consciente de los límites»
+-  Adani Ports raise FY-24 cargo volume target to over 400 million tons
+-  Nuevas expresiones de solidaridad con Cuba en Uruguay
+-  ‘Mentally unstable’: Zodwa’s latest racy clip irks Ntsiki Mazwai
+-  מומחה משפטי מסביר: למה מחנה המחאה לא צריך למהר לחגוג את בג"ץ הסבירות?
+-  "כל פרט יכול לעזור למצוא אותם": מאמצים אדירים לאיתור החטופים
+-  חזר, ובגדול: נדאל שב לסבב לראשונה זה קרוב לשנה - וניצח את תים
+-  СМИ: в ЕС ускорили откачку из ПХГ на Украине из-за увеличения спроса
+-  גם זה יעבור? תמונת מצב עדכנית של שוק הטריידים ב-NBA
+-  Poliisi on kuullut Helsingin Vallilan taksiturman osapuolia – matkustajan mukaan nopeus oli liian suuri keliolosuhteisiin nähden
+-  חיכו לחצות: טיילור סוויפט וטראוויס קלסי חגגו יחד את הסילבסטר
+-  "지우면 과거의 나 부정하는 것"…이효리→BTS 정국·박재범, '타투? 후회 NO' 소신 밝힌 ★들 [MD이슈]
+-  אחרי שהותקף באכזריות: כוכב בוורלי הילס מספר על התקרית האלימה
+-  Poliisi on kuullut Helsingin Vallilan taksiturman osapuolia – matkustajan mukaan nopeus oli liian suuri keliolosuhteisiin nähden
+-  2024 a venit cu ieftiniri la carburanți: Vezi cât vor costa mâine și unde găsești cele mai mici prețuri la benzină și motorină
+-  Vor anstehender Sanierung: Union fordert mehr Geld für Bahnreisende bei Zugverspätungen
+-  VENECUELANSKI PREDSEDNIK NAJAVIO: &quot;Rusija pobeđuje u ekonomskom ratu koji je pokrenuo Zapad&quot;
+-  &quot;KADA UMREMO MI, NE UMIRE SVET, MORAMO MISLITI O DECI&quot; Vučić za Alo!: &quot;To moramo da rešavamo&quot;
+-  Ration Dealer Strike : বিভিন্ন দাবিদওয়া নিয়ে দেশজুড়ে অর্নির্দিষ্টকালীন ধর্মঘটের ডাক রেশন ডিলারদের
+-  سیلولر موبائل آپریٹرز نےغیرضروری سم کارڈز کی واپسی پر کتنی فیس نافذ کر دی؟ جانیے
+-  PIL in SC challenges new law on appointment of CEC, ECs; seeks ‘independent, transparent’ system
+-  Θάνατος 5μηνου βρέφους: Ψάχνουν αν ταρακουνήθηκε πριν η μετά εντοπιστεί αναίσθητο…
+-  Dortmund'a yardımcı hoca olarak giden Nuri Şahin, ilk transferini Fenerbahçe'den yapıyor
+-  Galatasaray taraftarlarının gözü yarın akşamda! Fatih Terim, Panathinaikos'un başında ilk maçına yarın çıkacak
