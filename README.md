@@ -1,51 +1,11 @@
 # Latest News
--  بينهم "أبو دجانة".. القضاء العراقي يصدر أحكام الإعدام والمؤبد بحق 4 عناصر من داعش
--  총선 100일도 안 남았는데 선거구, 선거제도는 확정도 못해
--  새해 대낮부터 전자발찌 차고 처음 본 여자 성폭행…
--  신원식 국방부 장관, 의원 시절 SNS에 "독도 영유권 분쟁은 사실"
--  현역 국회의원 총출동…눈도장 명당경쟁 치열 [대구경북 신년교례회 이모저모]
--  "이재명 피습, 윤 대통령 때문에 벌어져" 이경 발언에 전여옥 "보복운전사 다운 시각"
--  한동훈 "대구는 저의 정치적 출생지"…국힘 시·도당 대구신년회 참석
--  Performance All-Time : les 71 points de Donovan Mitchell face aux Bulls
--  "تمثال مضروب".. حيلة شخصين للنصب على مواطنين بالمنيا
--  جامعة القاهرة تنشر تقريرًا "إنجازات الجامعة دوليا فى دورياتها ومجلاتها العلمية"
--  بعد وي.. فودافون وأورنج واتصالات تدرس سيناريوهات أسعار الإنترنت الأرضي
--  صحيفة عبرية: تأييد نتنياهو بين الإسرائيليين انخفض إلى 15%
--  تنظيم الاتصالات يبحث مع الأكاديمية الوطنية للتدريب تطوير معاهد الاتصالات
--  تربية حلوان تنظم المؤتمر العلمي "تحولات التعليم في ظل الأزمات العالمية والتغيرات المناخية"
--  إجلاء نحو 1200 شخص في شرق إندونيسيا بعد ثوران بركاني
--  نجم الزمالك السابق: كهربا لا يستحق الانضمام للمنتخب
--  "مصر للألومنيوم" ترفع أسعار منتجاتها بقيمة 6 آلاف جنيه للطن في يناير
--  موعد مران المنتخب الأول في العاصمة الإدارية
--  تسجيل صوتي مذهل.. أول مقطوعة موسيقية من شبكة العنكبوت
--  الإسكان: حملة للكشف الطبى المبكر عن أمراض الثدي للنساء العاملات بالوزارة
--  شيكابالا يواصل برنامجه في الزمالك.. وجلسة مطولة للاعبين قبل المران
--  "رعب كبير " لعبة ملاهي تتعطل على ارتفاع عالي في لندن .. وهذا ما حدث
--  حزب الله يستهدف تجمعًا للجنود الإسرائيليين على الحدود الجنوبية
--  منها تكوين الحصوات.. إليك مخاطر حبس البول لفترات طويلة
--  "المقاومة الإسلامية" تقصف قاعدتين أمريكيتين في العراق وسوريا
--  شعبة النقل الدولي: هجمات الحوثيين لم تؤثر بشكل كبير على قناة السويس
--  Putins nye superfabrikk: – Ingenting stopper Russland
--  Ангел Червенков: Матай ще помогне много, Шакич разочарова
--  Banyak Warga Yahudi ‘Kena Mental’, Ratusan Psikiater Israel Malah Ingin Buka Praktek di Inggris
--  Mark Cuban’s Cost Plus Drug Company Sparks Moves To Change How Rx Drugs Are Priced
--  В Твери завели уголовное дело по факту гибели семилетней девочки в реке
--  ¿Por cuántos millones de euros se irá finalmente el Diablito Echeverri al Manchester City?
--  科学实验告诉你 哪种口罩更防霾 | 科普时间
--  (VIDEO) Nadal: Ovo je zaista emotivan i važan dan za mene
--  Reenactment of laws for establishing College of Medicine programs in 4 universities lauded
--  Minha Casa Minha Vida: Regras atualizadas para o Programa de financiamento
--  Batıkan Manço'dan Doğukan Manço paylaşımı
--  Başkan Erdoğan'dan Süper Kupa yorumu: Bu oyunu boşa çıkaracağız
--  Filistin'den İsrail'e çok sert tepki... "İğrenç bir suç"
--  Ocakta doğan Oğlak burcunun zayıf ve güçlü özellikleri! Çalışkanlığına aldanmayın
--  Ketumlukta nirvana burçlar asla aşık olmuyor! İşte o 3 burç...
--  "Böyle maddeler koydurmam" Sergen Yalçın imza töreninde iddialara noktayı koydu
--  ASELSAN'dan 58,9 milyon dolarlık sözleşme
--  Aile bu akşam yok mu? Aile dizisi neden yok, final mi yaptı?
--  'Bana düşman oldular' diyen Ayşenil Şamlıoğlu yıllar sonra itiraf etti
--  Fünf Tote bei Flugzeugkollision auf Flughafen in Tokio
--  App de IA da Microsoft também já chegou ao iPhone
--  Exploring the Diverse Gaming Modes in Battlegrounds Mobile India
--  Alvorlig voldshendelse på privat adresse
--  Tekoälyltä kysyttiin ihmiskunnan tuhoamisesta – Eipä tarvitse kysyä toista kertaa
+-  Quế Ngọc Hải, Nguyễn Tiến Linh chấn thương nặng hơn dự kiến
+-  10 xe đắt nhất năm 2023: Ngôi vương là siêu xe gần 1.300 tỉ đồng
+-  Đã có hơn 4 triệu liều vắc xin các loại để tiêm miễn phí cho trẻ em, phụ nữ...
+-  Cháy lớn cửa hàng sửa, buôn xe điện, phát ra nhiều tiếng nổ lớn
+-  Contrôle parrainages : Le dossier du Pr Daouda Ndiaye validé
+-  NHNN cấp hết 'room' tín dụng cho các ngân hàng ngay từ đầu năm
+-  Bármilyen okostelefonod van, már használhatod a Microsoft mesterséges intelligenciáját
+-  VVGZ WINT DE 3RIVIERENCUP
+-  Más de 22.000 palestinos han muerto en ataques israelíes contra Gaza desde el 7 de octubre -autoridades
+-  Người sếp của năm: Đi đám cưới Tân - Mi bỏ phong bì hơn cả cây vàng, mừng cưới Đặng Thu Hà tận 50 “củ”?
