@@ -1,51 +1,51 @@
 # Latest News
--  Samsung spaja naprednu umjetnu inteligenciju i uređaje u kuhinji
--  Redan ma warunkową umowę sprzedaży znaków towarowych za 10,5-13,5 mln zł
--  מה עובר על החיילים שירו בחבריהם ובחטופים? מומחה לטראומה חושף
--  בשקט בשקט: אפל שברה מסורת בת 12 שנה
--  מהנדסי ומהנדסות אפל מלמדים את ילדי ישראל המפונים מיישובי העוטף את מיומנויות הקידוד
--  דיווח בטורקיה: 33 נעצרו בחשד לקשרים עם המוסד
--  דגו: "צריך לנצח כל משחק ולקוות שבסוף הדברים יהיו תלויים בנו"
--  Après le séisme au Japon qui ont fait 48 morts, à Wajima des images de désolation
--  עליית מחירי הדלק היא הניצוץ שיצית גל התייקרויות
--  هزة أرضية قوية تضرب نواحي جهة بني ملال‬
--  بنموسى يستدعي النقابات وسط استمرار الاحتقان
--  وجوه سينمائية فقدناها سنة 2023:
--  هذه توقعات أحوال الطقس اليوم الثلاثاء
--  بريطانيا سعت لتمكين محمد دحلان لضمان أمن إسرائيل في ذروة الانتفاضة الفلسطينية الثانية – وثائق بريطانية
--  عندما تتساقط رموز الكابرانات وتبقى تطلّعات شعوب المغرب العربي
--  قاعاتنا السينمائية مرشحة للتكاثر ابتداء من سنة 2023
--  أمن البرنوصي يحقق في اعتداء محسوبين على إلترات المشجعين على مواطنين وموظفي الشرطة
--  هزة أرضية بقوة 4.9 نواحي بني ملال
--  بنموسى يستدعي النقابات التعليمية من أجل متابعة تنفيذ اتفاق 26 دجنبر
--  تفاصيل إطلاق عيارات نارية عديدة بالبرنوصي
--  Cadang peruntukan skim usahawan India ditambah RM30 juta – Ramanan
--  [2024 신년사] 김창기 국세청장 "'따뜻한 세정' 어느 때보다 중요하고 필요한 시기"
--  [포토] 현대차 정의선, 2024년 경제계 신년 인사회 참석
--  민주 "이재명, 테러 여파로 尹 신년하례식 불참"
--  [서산시·태안군 소식] 성일종 의원·조한기 예비후보 새해 첫 행보
--  Hrvatska ima šanse u Europi jedino ako Hajduk bude prvak!
--  La actividad de las fábricas españolas se contrae en diciembre por noveno mes consecutivo -PMI
--  SoftBank venderá participaciones en Ola Electric y FirstCry, conserva 1.100 millones de dólares en empresas indias
--  La bolsa española supera los 10.200 puntos al ganar el 1,05 % después de la apertura
--  Kanada: Zašto su tri kanadska grada među 10 najboljih za život u svetu
--  6 cầu thủ có nguy cơ phải "khăn gói" rời Arsenal gồm những ai?
--  Na mlađima srpski tim ostao: Olga Danilović i Hamad Međedović se izborili za četvrtfinale Junajted kupa
--  Kampioen ASWH
--  이용록 홍성군수 “자강불식 각오로 미래혁신도시 실현”
--  이재명 대표 피습에 정치권 “절대 있어선 안될 일”
--  Ukrainian Soldiers Refuse to Carry Out Combat Missions - Intercepted Radio Surveillance
--  Тотнъм отново поглежда към Нотингам за полузащитник
--  이재명 피습한 피의자 60대 남성...경찰, 살인 미수 혐의 적용
--  El puente de la Constitución-Inmaculada generó un gasto de 365 millones de euros en Madrid
--  ต้อนรับปีใหม่ "เต่ามะเฟือง" ขึ้นวางไข่รังที่ 6 หาดท้ายเมือง
--  Ozan Güven yıllar sonra setlere dönüyor! İşte rol alacağı dizi
--  Dünya Müslüman Alimler Birliği'nden çağrı... "İşgalci İsrail'in kaçırdığı bebek geri alınsın"
--  Fenerbahçe'ye sürpriz öneri: Thilo Kehrer
--  İsrail'den yeni skandal! Sivillerin evlerini şarkı söyleyerek yıkıyor
--  "Çocukluk aşkım" demişti! Mesut Özil'den flaş Fenerbahçe hamlesi
--  Fransa'da kuvvetli yağış ve sel bekleniyor
--  Erbil'de bomba yüklü İHA düşürüldü... ABD üssünü hedef almıştı
--  Almanya'da muhalefetten "Ukrayna talebi"
--  İmzalar atıldı! Sivasspor'da Bülent Uygun dönemi resmen başladı
--  İsrail basını yazdı: Hamas'ın teklifini Tel Aviv reddetti
+-  Bonucci: "100 milioni e andavo via, la Juve disse no". L'idea per tornare
+-  Intrigo Frendrup: la Juve c'è, una big d'Europa la supera
+-  Sivasspor'da Bülent Uygun dönemi yeniden başlıyor
+-  Husumetlisini çalıştığı fırında bıçaklayarak öldürdü
+-  Diyanet İşleri Başkanlığı 27 mühendis alacak
+-  Filistin'e destek yürüyüşündeki yumruklu saldırıda üniversite öğrencisinin ifadesi ortaya çıktı
+-  33 İsrail casusu şüphelisi, 8 kentte yakalandı!
+-  언론인권센터 “언론사, 포털 더 적극적으로 댓글 관리해야”
+-  2023년 메인뉴스 시청자수, KBS ‘불안한 1위’
+-  Mindestens 48 Tote nach Serie starker Beben in Japan
+-  Sri Lanka Denies Permission To Chinese Survey Ships But Why Maldives Wants Beijing In Its Courtyard?
+-  Star Wars, la regista del nuovo film con Rey si apre dopo mesi di silenzio
+-  הספרדי שצעד למונדיאל ונעצר באיראן, שוחרר אחרי 15 חודשים בכלא
+-  جثامين بالشوارع ودمار بعد انسحاب الاحتلال من أحياء شمالي غزة
+-  “المريمي” : باتيلي يعرقل خطى مجلس النواب نحو الانتخابات في ليبيا
+-  Ҳар биримиз масъулмиз
+-  Dok Schmidt upozorava, traju pripreme za proslavu neustavnog Dana RS
+-  Sylvox Reinvents Outdoor Entertainment - Unveils Portable, Waterproof TV and 75" Cinema Outdoor Smart TV at CES 2024
+-  Bravo Media Successfully Launched MTR's (East Rail Line, Tuen Ma Line, Light Rail and MTR Bus) Advertising Concession on 1st Jan 2024
+-  Así es el vestido de Cristina Pedroche en las Campanadas 2024
+-  受邀往酒店房為手機充電 內地女子疑被男商人企圖強姦 遭吻胸指插陰道陽具貼面
+-  UNO sieht Anzeichen für Kriegsverbrechen im Nahost-Krieg
+-  الاحتلال يعتقل 11 فلسطينيا من الخليل
+-  استهداف قاعدتين أمريكيتين في العراق وسوريا
+-  Futebol: Janeiro quente para Académica e O. Hospital
+-  Exigen recuperar antes de dos años las vías pecuarias tradicionales usurpadas
+-  Duge kolone na graničnim prelazima na izlazu iz BiH
+-  Las rachas de viento sur en Bizkaia superan los cien kilómetros por hora
+-  Krieg im Nahen Osten – Nachrichten vom 1. Januar: Hamas-Autorität: 156 Palästinenser in Gaza innerhalb von 24 Stunden getötet
+-  Midibüs ücretlerine zam geldi
+-  TBMM Dilekçe Komisyonuna şaşırtan başvurular! Bu kadarda olmaz diyeceksiniz...
+-  '조경수 비리 의혹' 박세복 전 영동군수 등 무더기 송치
+-  치명적 부위 노린 이재명 흉기 피습…살인 미수 인정될까[어텐션 뉴스]
+-  "새생명 희망되길" 충북대병원 뇌사 박승규씨 장기기증
+-  부단체장 낙하산 인사 되풀이…충북 시·군 '부글'
+-  광주전남 정치권, "이재명 대표 정치테러는 민주주의 파괴 행위"
+-  '이재명 피습'에 정치권 분노·우려…일정도 줄줄이 취소[정다운의 뉴스톡]
+-  Fuji dan Gonzalo Liburan Tahun Baru Bareng di Bali
+-  Clarke: Warner's value stopped his contract being ripped up
+-  Prošle godine avionom putovalo 4,6 milijardi ljudi, 80 poginulih
+-  Perlu 3 Hari untuk Memulihkan Taman-taman yang Rusak di Bundaran HI Usai Pesta Malam Tahun Baru
+-  Amazon Prime: Abonnenten erhalten jetzt ein neues Extra
+-  Membandingkan Gaji Pilot vs Pemain Timnas Indonesia, Asnawi Mangkualam Cs Unggul Jauh?
+-  Ιαπωνία: 48 νεκροί από τα 7,6 Ρίχτερ – «Τέτοιο σεισμό δεν έχω ξαναζήσει», η μαρτυρία Έλληνα
+-  നാടിനെ കണ്ണീരിലാഴ്ത്തി ദമ്പതികളുടെ മരണം; കടം വീട്ടാനുള്ളത് 1000 രൂപാ മാത്രമെന്ന് കുറിപ്പ്
+-  Ten lives lost on Donegal roads last year – RSA
+-  CIPRIZACIJA SRBIJE: Južni dio ove zemlje od 1. siječnja putuje u zemlje Europske unije bez viza
+-  Oświadczenie Audytorium 17: regionalne radiowe media publiczne nie powinny być zakładnikami kolejnej odsłony sporu politycznego
+-  Schulwechsel: Welche Schule ist die richtige? Alle Infos zu weiterführenden Schulen in Leverkusen
+-  Trafik denetimlerinde 397 sürücüye 634 bin 454 lira para cezası yazıldı
