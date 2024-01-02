@@ -1,51 +1,11 @@
 # Latest News
--  İsrail'in savaş sonrası Gazze planı: Aşiretler yönetsin
--  Merkez Bankası'ndan dikkat çeken adım: Ticari işletmelere uygulanacak temerrüt faiz oranı değişti
--  Galatasaray'da 4 yıldız satış listesinde
--  KB금융, ‘2024년 시무식’ 개최…‘금융의 사회적 책임’ 강조
--  김성태 IBK기업은행장 “고객가치 제고 향한 실질적 성과 창출해야”
--  이더리움, MACD·RSI 강세 등장으로 단기 랠리 가능성
--  한샘, 새해 목표 '수익성 높여 지속가능 성장 추진'
--  이재근 국민은행장 “고객 신뢰 최우선, ‘고객 First KB’로 거듭나야”
--  "외화대출채권, 해외 금융사 양도 가능"…1월 중 공포 즉시 시행
--  김병민, 이준석 신당에 "尹정부에 감정섞인 비난뿐…선명한 야당 구축"
--  Skoki narciarskie. Dzisiaj kwalifikacje, a jutro konkurs w Innsbrucku
--  Kto zaopiekuje się największą flagą w regionie? Trzeba ją regularnie wymieniać
--  Biała Podlaska: Mała uliczka, a radość ogromna
--  女人梦见烟花是什么意思
--  女性吃苹果能排毒养颜吗
--  원주세브란스기독병원 5회 연속 상급종합병원 인증
--  고성군 신년 충혼탑·수성제단 참배
--  고성군 2024년 시무식
--  인제 ‘이웃과 함께 따스함 더하기’ 행사
--  삼척시와 보훈단체장 등 충혼탑 참배
--  정선군의회 신년 인사회
--  정선군 충혼탑 참배
--  횡성군 시무식
--  횡성소방서장 취임식
--  용석진 양구소방서장 취임식 및 시무식
--  양구군 현충탑 참배
--  평창군 2024년 새해 현충탑 참배식 가져
--  지기선 화천부군수 임용
--  설악문화재단 장학금 수여
--  원주 명륜종합사회복지관, 사회복지실천가대상 특별상 수상
--  한국철도공사 강원본부·케이기획, 어촌 경제 활성화 나서
--  원주시의회, 2024년 시무식
--  동해해양경찰서, 시무식 열어 10명 승진임용, 모범공무원 표창
--  원주 명륜재가노인복지센터, 원예치료 프로그램 운영
--  춘천 성수고등학교 축제 수익금, 희망2024나눔캠페인 성금 기부
--  국화라이온스클럽, 이웃돕기성금 100만원 기탁
--  手术后补血补气吃什么最快最好
--  단구새마을금고 전기매트 12세트 기탁
--  농협은행 삼척시 지부장 장학금 기탁
--  삼척수협 초매식 및 간담회
--  춘천교육지원청, 2024년 ‘청렴 다짐 시무식’ 개최
--  춘천시 시무식
--  강원대, 2024년도 시무식 개최
--  한림대 2024년 신년하례식 개최
--  Bourse de Tunis : le volume des échanges en hausse de 143% en décembre
--  종근당 시무식… 지속가능한 성장 기반 마련 다짐
--  종근당 정기 승진인사
--  Condenan a un nobel de la paz por infringir la legislación laboral de Bangladés
--  Tanti giovanissimi in campo, ma è tutto fuorché una partita inutile: Milan-Cagliari è decisiva
--  Nieuwjaarsduik Lexmond 2024: tussen de felle buien door de Lek in
+-  Wydarzenia sportowe
+-  경기 중고교생 10명 중 8명, 현재 학교생활에 ‘만족’
+-  수원특례시의회, 2024년 시무식 개최
+-  [신년사] 이길호 군포시의회 의장
+-  경기도의회 더불어민주당 "이재명 대표 피습은 민주주의에 대한 심각한 위협이자 테러"
+-  수원시 장안구, 제28대 이상수 장안구청장 취임
+-  충남도지사, 도민 숲 조성 예금 1호 가입
+-  예산군, 2024 갑진년 새해 ‘청룡’처럼 힘차게 열다
+-  제13대 김영환 홍성소방서장 취임
+-  염종현 경기도의회 의장, 2일 부천시 ‘원미구청 개청식’ 참석
