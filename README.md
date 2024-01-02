@@ -1,51 +1,51 @@
 # Latest News
--  이장한 회장 “신약개발 패러다임 맞는 신규 모달리티 창출”
--  의사협회, 불법 마약류 처방 등 혐의 회원 형사고발
--  Alan Shearer and Ian Wright criticize Diogo Jota after controversial penalty call
--  โกยเงินพุ่งช่วงเคาท์ดาวน์! 'ยกเว้นวีซ่า-ขยายเวลาเปิดผับตี4'เอื้อศก.ท่องเที่ยวไทย
--  'ภูมิธรรม' เผย หลังคุย 'นายกฯ' กำชับตีปี๊บผลงานรบ. หลังทำงานเยอะ แต่ประชาสัมพันธ์น้อย
--  Mercato Atalanta, Hien primo acquisto. Due uscite in prestito
--  Juve-Salernitana, la probabile formazione: guida Locatelli, cambi in vista
--  Lautaro Martinez, rinnovo vicino con l’Inter fino al 2028: cifre e dettagli
--  Doig per Juric, dopo Ilic e Tameze nuova trattativa sull’asse Torino-Verona
--  Diretta Milan-Cagliari ore 21: dove vederla in tv, streaming e probabili formazioni
--  L'altro Inzaghi sulla strada di Allegri: occhio Juve, a Salerno si gioca tutto
--  Ramakrishna: రాష్ట్రంలో అన్ని వర్గాల ప్రజలు ఆందోళనలో ఉన్నారు..
--  پاک آسٹریلیا آخری ٹیسٹ، پاکستان کی پلیئنگ الیون کا اعلان
--  Hàng trăm Phật tử tới Fansipan dâng đăng mừng Lễ vía Đức Phật A Di Đà
--  Vắc xin 5 trong 1 về trạm, phụ huynh vui mừng khi trẻ không phải đi tiêm dịch vụ
--  Nhà lãnh đạo thành công có đặc điểm gì?
--  Vui và buồn trong đấu tranh phòng chống tham nhũng
--  Thiếu tá công an bị thương khi trấn áp kẻ cầm dao chém bừa bãi ngoài đường
--  رحيل ماجوباني .. المصور الذي وثق الفصل العنصري بجنوب أفريقيا
--  Brisel: Vizna liberalizacija za Srbe na KiM u proceduri
--  Growth Engine Revs Up
--  PM Modi To Unveil Mega Projects in Tamil Nadu, Lakshadweep, And Kerala During Two-Day Visit
--  Continue Prioritisation Of Capital Expenditure
--  4 شهداء برصاص الاحتلال الإسرائيلي في بلدة عزون
--  Во Владивостоке оцепили район на улице Алеутской из-за подозрительного предмета
--  Südkoreanischer Oppositionsführer bei Angriff verletzt
--  Plateau killings: Time to establish State/Community Policing
--  کورونا کی نئی قسم کا پاکستان میں پھیلنے کا خدشہ، عازمین حج کی ویکسینیشن کا فیصلہ
--  국민의힘 부산, '이재명 피습 사건'에 quot;극단적 폭력 있어서는 안 돼quot;
--  Major Earthquake Strikes Japan On New Year’s Day, Leaving Destruction And Loss
--  Околу 500 луѓе останаа блокирани на аеродром во Јапонија по земјотресот
--  광주교통공사 4년 연속 공공기관 청렴도 우수
--  Penyebab dan Cara Mencegah Depresi Pasca Melahirkan
--  Augsburg: Erstes Neujahrsbaby im Josefinum ist ein Junge – Augsburger Allgemeine
--  최연혜 가스공사 사장 “국민과 함께하는 에너지 혁신 리더 될 것”
--  김찬진 동구청장 “초심 잃지 않고 활력 넘치는 동구 만들겠다”
--  විදුලි සේවකයන් හෙට සිට තෙදිනක් විරෝධතාවයක
--  Warto zaktualizować Chrome’a na telefony. Karta, którą oglądasz codziennie, teraz wygląda świetnie
--  Top 10 Best-Selling Video Games of 2023: A Breakdown
--  Αποδεκατισμένη μεν, με πίστη δε! (ΠΙΘΑΝΗ 11ΑΔΑ)
--  مواطن روسي يفوز بمليار روبل في اليانصيب
--  هجوم جوي إسرائيلي على ريف دمشق يسبب أضراراً
--  জাফর উল্লাহকে দিয়েছেন নৌকা, আমাকে বৈঠা: নিক্সন চৌধুরী
--  Die Gaming-Plattform stellt die Unterstützung für ältere Windows-Versionen ein
--  Land Rover Classic Hadirkan Tenda untuk Classic Defender
--  Lepa Brena napravila spektakl u Banjaluci
--  في محافظتين.. مصرع وإصابة 16 بحوادث سير منفصلة
--  Guinée : le colonel Doumbouya annonce un référendum en 2024
--  الأردن يعزي اليابان بضحايا الزلزال
--  OnePlus 12, Redmi Note 13: List of Smartphones To Be Launched in January 2024
+-  이재명, 부산 방문 중 흉기 피습…현장서 용의자 검거
+-  화성산업, 파키스탄 온실가스 국제감축사업 우선협상자 선정
+-  Ето какво време ни очаква днес
+-  '쌍특검법' 국무회의에 미포함…거부권 상정 미뤄져
+-  김태오 DGB금융 회장 “대구은행 , 시중은행 전환…역사적 한 해 될 것”
+-  이준석 "한동훈, 인요한처럼 김건희 여사 성역 쌓아가고 있어"
+-  Young Simba FC bags Kakamega Governor’s Cup
+-  경북도 “밤에 아파도 걱정 마세요”
+-  삼성전자, 갤럭시 북3 Go 5G 출시
+-  한화생명, The H 건강보험 출시
+-  LG디스플레이 ‘CES 2024’서 차세대 차량용 디스플레이 솔루션 공개
+-  LG전자 ‘고객과 공감하는 AI’가 만드는 미래 스마트홈 선보여
+-  [2024 전망] 테크 업계 흔든 'AI 전쟁', 더 넓고 격렬해진다
+-  [신년사] 현신균 LG CNS 대표 "DX 핵심역량 내재화해 글로벌 진출 준비"
+-  [2024 전망] 새해에도 화두는 '생성형AI'...통신업계 경쟁 더 치열해진다
+-  [2024 전망] 다시 뛰는 네이버-카카오...'청룡의 해' 수익성 끌어올린다
+-  파격 할인 띄운 티몬 새해 첫 '몬스터메가세일' 열었다
+-  [2024 전망] ETF부터 법 시행까지...블록체인 제도권 편입 원년될 2024년
+-  Liikenne | Junaliikenteessä ongelmia ympäri Suomen
+-  Nintendo mijenja dobavljača za OLED panele? Novi bi mogao biti Samsung
+-  ‘Super soft and warm!’ Primark fans rave about £10 ‘cosy’ zip-ups that mean you won’t have to put the heating on
+-  Българите с по-голям интерес към жилища и кредити
+-  La Bolsa de Shanghái cae un 0,43 % y la de Shenzhen, un 1,3 %
+-  Avangrid (Iberdrola) pone fin al contrato de fusión con PNM
+-  La Bolsa de Indonesia alcanza la cifra récord de 79 OPI y aspira a los 8.000 puntos
+-  Las acciones de Power Grid Corporation suben gracias a un nuevo proyecto de transmisión
+-  TSMC se expande en Japón y estudia una segunda planta subvencionada por el gobierno
+-  Tailandia y China acuerdan la exención mutua de visados para viajeros a partir de marzo
+-  Aumentan las reservas de Union Jack Oil tras un nuevo informe
+-  Maersk sigue programando viajes al canal de Suez pese al ataque hutí
+-  La tarjeta gráfica AMD Radeon RX 7600 XT saldrá a la venta a finales de enero
+-  El crecimiento de la actividad fabril en China se acelera en diciembre -Caixin PMI
+-  催经药会导致流产吗
+-  催经的药物对怀孕有影响吗
+-  MoHRE’s Emiratisation targets on midsize firms goes into effect
+-  مهم من الضريبة للأردنيين
+-  조기취업형 계약학과, 2024학년도 신입생 정시 모집
+-  박현주 미래에셋 회장, 미래에셋컨설팅 주식 25% 기부 약정
+-  '예상보다 1달 일찍 복귀' 벤탄쿠르, 매디슨+사르 역할 동시에 수행해야 하는 중책 맡았다
+-  "ים של מדוזות": העובדים בתחנת הכוח נאלצו להתמודד עם אתגר מפתיע
+-  (Видео) Кој е политичарот кој беше нападнат со нож во Јужна Кореја – ќе му се суди за корупција, за влакно ги загуби претседателските избори
+-  Militares israelíes mataron a cuatro palestinos en Cisjordania
+-  Lidl is selling a perfume dupe of Dior’s famous J’adore scent and it’s £115 cheaper
+-  Lidl is selling a perfume dupe of Dior’s famous J’adore scent and it’s £115 cheaper
+-  Beijing scenic areas record over 4.8 mln visits during New Year holiday
+-  পশ্চিম তীরে ইসরায়েলি অভিযানে ৪ ফিলিস্তিনি নিহত
+-  Aircash: Μετασχηματίζοντας το χρηματοπιστωτικό τοπίο με καινοτομία και παγκόσμια επέκταση
+-  Estafa Siniestra, maxiproceso vigente más importante contra la corrupción en el país
+-  محمد صلاح يصطاد عدة عصافير بحجر واحد
+-  $70m tranche: Pakistan submits ‘Letter of Intent’ to IMF for approval I
