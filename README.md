@@ -1,51 +1,51 @@
 # Latest News
--  Duitsland steunt Oekraïne 'zolang het ons nodig heeft'
--  Entran por el río y los regresa la Guardia de Texas
--  Unveiling of PISE-P: The message, gains, prospects
--  Çin'de yılbaşında yurt dışı seyahatler salgın öncesi düzeye ulaştı
--  Lo que leeremos este año: estos son los libros más destacados de 2024
--  Stejjer umani dwar il-problemi soċjali jiddominaw l-aħbarijiet ta’ Newsbook fl-2023
--  Chilevisión confirma a los últimos dos integrantes de “Top Chef VIP”
--  Pavlovic, l'esordio grazie a un ex Juve. Perché è il profilo giusto per Allegri
--  Ronaldo, l'ultimo regalo per mamma Dolores è una Porsche da 100mila euro
--  Inter al lavoro per il Verona: Calhanoglu assente! Lautaro e Dimarco...
--  Juve, c'è il bonus a gennaio: ecco perché può valere il sorpasso all'Inter
--  [ВИДЕО] Хајди Клум топлес трчка по плажата: Ужива во страстите со својот сопруг...
--  Arabia Saudita ingresa al bloque económico BRICS
--  Jefes del Eln reiteran la voluntad de seguir negociando la paz con el Gobierno
--  న్యూఇయర్‌ ద్వారా ఆర్టీసీకి రూ.6లక్షలు ఆదాయం
--  Japanese WWII Major said Dutch women in forced prostitution "have to get used to it"
--  Hochwasserlage: Pegelstände der Flüsse im Rhein-Sieg-Kreis steigen deutlich an
--  Broj žrtava razornog zemljotresa u Japanu porastao na 57
--  Vượt qua đau thương, người Nhật Bản đã sống chung với những trận động đất kinh hoàng như thế nào?
--  10 nhân vật nức tiếng nhất cuối thời nhà Thanh: Từ Hi đứng đầu, Uyển Dung xinh đẹp, người thứ 4 gây bất ngờ
--  Hamas confirms deputy leader killed in Beirut blast
--  ఆటో బోల్తా.. యువకుడి దుర్మరణం
--  حكم مباراة ليفربول وأرسنال في كأس إنجلترا
--  Women's and girls' sports: More popular than you may think
--  Ağdam-Xankəndi dəmiryolunun tikintisindən son görüntülər
--  Янги йилда инвестиция сиёсатини амалга ошириш ва “яшил” энергетикани ривожлантириш масалалари муҳокама қилинди
--  Residents kick as Wike insists on issuance of certificate of occupancy in FCT
--  هالاند على رأس تشكيلة العام في الدوري الإنجليزي
--  DPS: Struja ipak poskupila 5,63 odsto, Vlada obmanjuje javnost
--  Meteo centar TV Vijesti: U srijedu oblačno, do 16 stepeni
--  Cronología del caso del dominicano Wander Franco, investigado por una presunta relación con una menor de edad
--  Απαντήσεις που ξαφνιάζουν – Ποιοι αθλητές θεωρούνται πιο καλοί στο σεξ;
--  توتنهام يحسم مستقبل ريجيلون بعد إنهاء إعارته لليونايتد
--  Girona-Atletico Madrid, che sfida! Le quote dicono...
--  Fernández Mirabal insta a reforzar militancia en el PLD de cara a las elecciones de 2024
--  Viisi kuoli matkustajakoneen törmättyä rannikkovartioston koneeseen Tokiossa – palavasta Airbusista pääsivät ulos kaikki lähes 400 ihmistä
--  Viisi kuoli matkustajakoneen törmättyä rannikkovartioston koneeseen Tokiossa – palavasta Airbusista pääsivät ulos kaikki lähes 400 ihmistä
--  Ucrania pide más ayuda a sus aliados mientras Rusia reanuda bombardeos
--  Releasing Nnamdi Kanu achievable — Reps Deputy Speaker, Kalu
--  Trotz hoher Kriegs-Zustimmung: Israelis kehren Netanjahu den Rücken zu
--  Europejski rynek akcji zaczął rok minimalnym spadkiem
--  గురుకులానికి పూర్వ విద్యార్థుల వితరణ
--  Ministerstwo zwróciło się do Google Polska o wyjaśnienia w sprawie informacji o kursie złotego
--  ద్విచక్ర వాహనాన్ని ఢీకొన్న లారీ
--  Video: Enumera la Policía Municipal sus propósitos para 2024
--  Mata a su hermana y camina con su cabeza en calles de Michoacán
--  Nicola Peltz and Brooklyn Beckham re-enact Dirty Dancing lift with glimpse into glitzy NYE celebrations
--  Bigg Boss 17, day 80: Ankita Lokhande hits husband Vicky Jain multiple times in heated altercation
--  Japan quake toll rises to 55 amid fears many trapped
--  Harvard’s President Faces New Plagiarism Accusations
+-  Trung vệ Wolverhampton liên tiếp mắc lỗi, Indonesia thua thảm Libya
+-  NÓNG! Đã có CLB liên hệ Man Utd để hỏi ký Sancho
+-  "Al Khelaifi stava per essere arrestato prima della presentazione di Luis Enrique"
+-  Werken vanuit een innerlijke roeping als echte motivatie. Deze chirurg herkent dat
+-  "Det har blivit en skittråkig tour"
+-  Russia Ukraine War: यूक्रेन को मिटाने के लिए रूस ने कीव पर ताबड़तोड़ मिसाइल अटैक किया
+-  אחרי סערת השימוע בקונגרס: נשיאת הארוורד התפטרה מתפקידה
+-  فعاليات احتجاجية في الأردن نصرة لغزة ورفضا لاستمرار العدوان (شاهد) #عاجل
+-  Winning Powerball store owners speak out on mystery winner: ‘It’s rewarding’
+-  Πιέσεις ΗΠΑ σε Τουρκία: «Πώληση F-35 στην Ελλάδα εάν συνεχίσετε τις καθυστερήσεις με τη Σουηδία»
+-  उत्तराखंड में इंडस्ट्री के लिए जमीन खरीदने वालों का स्वागत, रोक केवल भूमाफियाओं पर: धामी
+-  Val van zes meter zet leven Koen op z’n kop: ‘Ik kan mensen nu niet terugbetalen’
+-  Mitä ihmettä? Kiekkopomolta täysin käsittämätön lausunto Venäjästä
+-  ManU-hylkiö on löytämässä itselleen uuden seuran
+-  Σεμέδο για Μαρτίνς: «Πάμε»
+-  భద్రాద్రికే ఆ ఖ్యాతి
+-  Trotz Hochwassergefahr: Warum 800 Badewannen pro Sekunde aus dem Edersee abgelassen werden
+-  Mehmedović sutra zvanično osniva stranku u Tešnju
+-  Enero comienza con otro repunte migratorio
+-  Мэр Белгорода Демидов: работа крупных ТЦ будет приостановлена 3 и 4 января
+-  కలెక్టర్‌కు శుభాకాంక్షలు తెలిపిన జిల్లా అధికారులు
+-  Enes Ünal, 7,5 ay sonra sahaya çıktı!
+-  Sergen Yalçın ilk antrenmanına çıktı
+-  Σάλαχ αλ Αρούρι: Ποιος ήταν ο υπαρχηγός της Χαμάς που σκοτώθηκε σε ισραηλινή επίθεση στη Βηρυτό
+-  తొలివిడత సూపర్‌ అట!
+-  'Crnotina pokraj Sarajeva': Svjedočenje o masakru u tzv. 'autobusu smrti'
+-  Gunmen kill traditional ruler in Rivers
+-  تصدر اسم "صالح العاروري" منصات التواصل الاجتماعي عقب اغتياله بقصف إسرائيلي
+-  Biathlon: Alle Infos zum Weltcup in Oberhof
+-  Biathlon: Alle Infos zum Weltcup in Oberhof
+-  ¡Que no se te pase! Este 3 de enero harán el primer pago del 2024 de la Pensión del Bienestar
+-  Milli Saraylar 2023'te 7 milyonun üzerinde turist ağırladı
+-  పెట్రోల్‌ బంక్‌లో ముసుగు దొంగల హల్‌చల్‌
+-  U ovom hrvatskom gradu od nove godine više se ne plaća parking
+-  Momen Kaesang Dipeluk Ibu-Ibu yang Grogi Bertemu Saat Nobar di Tangsel
+-  Chloe Brockett ends feud with ‘love rival’ after refusing to film together on Towie over bitter fight
+-  Chloe Brockett ends feud with ‘love rival’ after refusing to film together on Towie over bitter fight
+-  Former finance minister Sartaj Aziz passes away
+-  ‘ప్రజాపాలన’ను సద్వినియోగం చేసుకోవాలి
+-  العاروري... 10 سنوات من التهديد والمطاردة
+-  مذكرة لوزارة التربية الوطنية تمدد السنة الدراسية لأسبوع لمواجهة نقص التحصيل بسبب الإضرابات
+-  Preços dos combustíveis descem 4,49% em Cabo Verde
+-  ITC’s renowned hotelier Nakul Anand retires after 45 years
+-  Německo: Ceny pojištění za obytné budovy stoupnou v roce 2024 o 7,5 %
+-  Xi erkennt die „schwierigen Zeiten“ an, die einige Unternehmen und Arbeitsplätze durchmachen
+-  Marino: La stella del sud continuerà il suo percorso, lavoreremo affinché resti nella massima serie
+-  ఉరి తాళ్లు తగిలించుకుని.. సమగ్ర శిక్ష ఉద్యోగుల నిరసన
+-  పోలింగ్‌ స్టేషన్లవారీగా వసతుల కల్పనపై నివేదిక ఇవ్వండి
+-  Novato y Caballero del año de LIDOM ya tienen nombre
+-  Steigende Pegel / Die Hochwasser-Lage in Luxemburg – „Abwarten und hoffen“
