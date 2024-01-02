@@ -1,11 +1,51 @@
 # Latest News
--  איש האופוזיציה האיראני קרא בכנסת: "ישראל צריכה להפציץ באיראן"
--  مبادرة «تحدي الجامعات للمشي» في أم القرى
--  Casos no INSS para entrar com a aposentadoria em até 56 anos
--  Gustavo Petro, presidente de Colombia, invita a Residente a concierto a favor de Palestina
--  Children Have Higher Hospitalizations From RSV Than Omicron or Influenza
--  جامعة الجوف تحقق أعلى المراتب بالتصنيفات العالمية
--  Tendrá Nido de Águilas campo sintético
--  Eerste officiële storm van dit jaar gemeten in IJmuiden
--  GTA 5 leaving Game Pass as year of GTA 6 hype kicks off
--  Pennsylvania Senate candidate Dave McCormick meets with IDF officials in Israel
+-  Nach Entführung in Dänemark: Kinder von Steakhaus-Erbin Christina Block „sind wohlauf“
+-  President Joe Biden will be only Democrat on NC primary ballot, state officials decide
+-  Галант: Борбите на југот на Појасот Газа ќе продолжат да бидат интензивни
+-  Hallenpokal der „Freien Presse“: So läuft der Kartenverkauf für die Zwischenrunden
+-  Bitterfeld gelingt beim 3:0 gegen Dachau sechster Saisonsieg
+-  اللجنة المركزية للإيفاد بالخارج تكشف عن أعداد الموفدين للدراسة بالخارج.
+-  الأعلى للدولة يناقش الأوضاع السياسية في البلاد والمستجدات المتعقلة بالحوار الخماسي.
+-  رئيس مجلس إدارة بانابريس يكشف في دكار عن خارطة طريق لتطوير الوكالة القارية وتحريرها من الإعتمادات على المساهمات الحكومية .
+-  UCV FC se reforzó con Brayan Hurtado
+-  Taylor Swift’s bejeweled New Year’s Eve dress costs $2K, but we found 5 similar styles for less
+-  Повторно одекнуваат експлозии во Белгород
+-  [관풍루] 이제 제발 '증오의 정치' 멈춰지길
+-  [날씨] 1월 3일(수) "흐리고 가끔 비눈"
+-  [사설] 대공 수사 맡은 경찰, 인력·역량 부족해 간첩 잡겠나
+-  [사설] 이선균 죽음 원인이 검경 모두의 문제라는 조국, 거의 병이다
+-  Česi opäť postúpili do semifinále. Mali sme aj trochu šťastíčka, priznali
+-  [사설] 이재명 대표 부산에서 흉기 피습, 민주주의에 대한 도전
+-  Legendarni fudbaler pronađen pretučen, jedva je mogao govoriti
+-  Un interno de la cárcel de Monterroso golpea a otro reo y a un funcionario en la cabeza
+-  Grindetti contra las SAD: “Lo que quiero es que Independiente compre al Chelsea”
+-  Зеленски ги откри главните цели на Киев за 2024 година
+-  Asgari ücret erimeye başladı! Çalışanlar zamlı maaşı alamadan düştü... İşte 6 günlük asgari ücret...
+-  Форвард «Колорадо» Маккиннон признан первой звездой декабря в НХЛ
+-  Muvhango: Tuesday’s episode, 2 January 2024 [VIDEO]
+-  La Izquierda exige sesión especial de la Legislatura por Emergencia Laboral ante los despidos masivos de Macri
+-  Korisnici Netflixa pišu da je ovo najbolji nogometni dokumentarac svih vremena
+-  عباس ابراهيم: في ظل دخان الغدر صار السؤال: أين أصبح القرار ١٧٠١؟
+-  Pat Sajak has embarrassing ‘Wheel of Fortune’ cue-card meltdown: ‘I messed up’
+-  السعودية تفعل تقنيات الذكاء الاصطناعي بالمسجد الحرام
+-  Gleisi critica Haddad por tentar interditar o debate sobre os rumos da economia
+-  Harvard appoints Alan Garber as new interim president after he was seen nodding in approval during Claudine Gay's anti-Semitism testimony that led to her ousting
+-  O șoferiță amendată de ziua ei a dat în judecată Poliția. Se aștepta să primească un tort
+-  Woman arrested following Broadmeadows suspicious house fire
+-  Woman arrested following Broadmeadows suspicious house fire
+-  Woman arrested following Broadmeadows suspicious house fire
+-  ‘Bachelorette’ Rachel Lindsay’s husband, Bryan Abasolo, files for divorce after 4 years of marriage
+-  الحرس البلدي بنغازي: باشرنا في سحب المنتجات المغشوشة من السوق
+-  This old Kristen Bell comedy flop is now top of Netflix
+-  "On devrait en baver", un Niçois part à l’assaut du Dakar à bord d’une 4L très spéciale
+-  Barstool’s Frank ‘the Tank’ Fleming lost over 150 pounds since peak of 500
+-  Tribunal Federal emite orden contra Anuel AA por demanda millonaria por incumplir contrato
+-  Resultados del salario mínimo podrían conocerse al final de esta semana
+-  New Year is the trickiest time of the year for relationships - here are the 13 ways to save YOUR marriage from a breakup
+-  The Traitors contestant Mollie Pearce proudly shows off her stoma bag in social media snaps ahead of appearing on the show
+-  Kadınlar Türkiye Kupası’nda Dörtlü Final eşleşmeleri belli oldu
+-  Netanyahu'ya destek hızla eriyor
+-  עומר אדם ויעל שלביה מרגשים: זה מה שעשו למען הלוחם שנפל בעזה
+-  Tragic twist after young Aussie boy died alongside his cousin while on holiday
+-  נתניהו למשפחות החטופים: נשקלת האפשרות של הגליית צמרת חמאס מעזה
+-  Salih el Aruri’nin annesi ve kardeşinden metanet dolu açıklama: Allah şehadetini kabul etsin
