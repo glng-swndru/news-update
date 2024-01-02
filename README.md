@@ -1,51 +1,51 @@
 # Latest News
--  العمل تطلق خدمة (عتبات) للمشمولين بإعانة الحماية الاجتماعية
--  السوداني يوجه بتغيير اسم "شارع المطار" الى "شارع الشهيد أبو مهدي المهندس"
--  문재인 "이재명 피습, 놀랍다…용서받지 못할 테러행위"
--  Statistiques NBA : les leaders au 2 janvier 2024 !
--  Europska komisija određuje drugi skup VLOP-ova u okviru DSA-a
--  Da Cairo e Rodriguez a Buongiorno e Radonjic: il capodanno dei granata
--  Borbe u Pojasu Gaze još bjesne, uprkos djelomičnom povlačenju izraelskih vojnika
--  Hiillostus alkoi jo nyt - tämä F1-kuski on koko ajan potku-uhan alla
--  NorthLink cancels first ferry sailings of 2024
--  Nyitrai Zsolt: a nyugdíjasok 2024-ben is számíthatnak a kormányra
--  Manisa'da feci kaza! Çok sayıda yaralı var
--  Araç sahipleri dikkat: Depoları doldurun! Okkalı bir ÖTV zammı geliyor...
--  Viralna snimka: Pogledajte kako pod morem izgleda potres jačine 7,2 po Richteru
--  Trei zile fără cardiologi la Spitalul de Urgență Târgu Jiu. „Bolile de inimă sunt principala cauză de deces în România“
--  कारसेवकों की गिरफ्तारी पर मुख्यमंत्री सिद्दारमैया बोले, हम नफरत की राजनीति नहीं कर रहे
--  Kijów w ogniu po rosyjskim ostrzale. Zełenski pokazał poruszające nagranie. "Piekło"
--  A Ukrainian lawyer appealed to the CAS and challenged russia's admittance to the Olympics
--  Yvonne Coldeweijer deelt bevallingsverhaal: ‘Ik heb veel verdrongen’
--  Bizerte : Investissements agricoles en hausse de 24% en 2023
--  Nestlé khởi động chiến dịch Tết 2024 với thông điệp "Cầu Đủ Là Được"
--  Sự nghiệp suýt tiêu tan của nữ ca sĩ vừa công khai yêu thần đồng bóng đá Hàn Quốc
--  Máy bay chở hơn 300 hành khách bốc cháy dữ dội tại sân bay Nhật Bản
--  Japan Plane Fire Inside Video: टोक्यो के हानेडा हवाई अड्डे पर आग लगी विमान के अंदर का वीडियो आया सामने, 300 से ज्यादा यात्री सवार
--  Dilan Polat iflic ola bilər
--  Tulosvaroituksen antanut Nokia palkittiin kurssinousulla Helsingin pörssissä
--  Japan Airlines plane on fire on runway at Tokyo's Haneda airport: TV images
--  «Venir de un sitio pequeño, y además una isla, me hizo desde pequeña ser consciente de los límites»
--  Adani Ports raise FY-24 cargo volume target to over 400 million tons
--  Nuevas expresiones de solidaridad con Cuba en Uruguay
--  ‘Mentally unstable’: Zodwa’s latest racy clip irks Ntsiki Mazwai
--  מומחה משפטי מסביר: למה מחנה המחאה לא צריך למהר לחגוג את בג"ץ הסבירות?
--  "כל פרט יכול לעזור למצוא אותם": מאמצים אדירים לאיתור החטופים
--  חזר, ובגדול: נדאל שב לסבב לראשונה זה קרוב לשנה - וניצח את תים
--  СМИ: в ЕС ускорили откачку из ПХГ на Украине из-за увеличения спроса
--  גם זה יעבור? תמונת מצב עדכנית של שוק הטריידים ב-NBA
--  Poliisi on kuullut Helsingin Vallilan taksiturman osapuolia – matkustajan mukaan nopeus oli liian suuri keliolosuhteisiin nähden
--  חיכו לחצות: טיילור סוויפט וטראוויס קלסי חגגו יחד את הסילבסטר
--  "지우면 과거의 나 부정하는 것"…이효리→BTS 정국·박재범, '타투? 후회 NO' 소신 밝힌 ★들 [MD이슈]
--  אחרי שהותקף באכזריות: כוכב בוורלי הילס מספר על התקרית האלימה
--  Poliisi on kuullut Helsingin Vallilan taksiturman osapuolia – matkustajan mukaan nopeus oli liian suuri keliolosuhteisiin nähden
--  2024 a venit cu ieftiniri la carburanți: Vezi cât vor costa mâine și unde găsești cele mai mici prețuri la benzină și motorină
--  Vor anstehender Sanierung: Union fordert mehr Geld für Bahnreisende bei Zugverspätungen
--  VENECUELANSKI PREDSEDNIK NAJAVIO: &quot;Rusija pobeđuje u ekonomskom ratu koji je pokrenuo Zapad&quot;
--  &quot;KADA UMREMO MI, NE UMIRE SVET, MORAMO MISLITI O DECI&quot; Vučić za Alo!: &quot;To moramo da rešavamo&quot;
--  Ration Dealer Strike : বিভিন্ন দাবিদওয়া নিয়ে দেশজুড়ে অর্নির্দিষ্টকালীন ধর্মঘটের ডাক রেশন ডিলারদের
--  سیلولر موبائل آپریٹرز نےغیرضروری سم کارڈز کی واپسی پر کتنی فیس نافذ کر دی؟ جانیے
--  PIL in SC challenges new law on appointment of CEC, ECs; seeks ‘independent, transparent’ system
--  Θάνατος 5μηνου βρέφους: Ψάχνουν αν ταρακουνήθηκε πριν η μετά εντοπιστεί αναίσθητο…
--  Dortmund'a yardımcı hoca olarak giden Nuri Şahin, ilk transferini Fenerbahçe'den yapıyor
--  Galatasaray taraftarlarının gözü yarın akşamda! Fatih Terim, Panathinaikos'un başında ilk maçına yarın çıkacak
+-  राष्ट्रपति र प्रधानमन्त्रीको तस्बिर कार्यकक्षमा राख्न राईलाई दबाब
+-  First storm of the year predicted to hit the Netherlands tonight; Gusts up to 110 km/h
+-  Benfica prepara proposta de 15 a 20 milhões por avançado do Santos
+-  Espera para doentes urgentes ultrapassava as 15 horas às 9h00 no Hospital Amadora-Sintra
+-  Lauri Markkasen joukkuekaveri teki kovan tempun - viimeksi se onnistui 5 801 päivää sitten
+-  Avion se zapalio tokom slijetanja na pistu
+-  Nadal se pobjedom vratio nakon godinu dana pauze
+-  'ปานปรีย์'เผย 1 มี.ค.67 เริ่มยกเว้นวีซ่าถาวรไทย-จีน สามารถพำนักได้ไม่เกิน 30 วัน
+-  ชาวบ้านวอนซ่อมถนน หลังฝนหยุดตกถนนเป็นหลุมเป็นบ่อสัญจรลำบาก
+-  ‘อนุทิน’ยัน!!! พร้อมเป็นเจ้าภาพนัดดินเนอร์พรรคร่วมรัฐบาล
+-  Kickoff | BREAKING: Rooney sacked after just three months!
+-  Kickoff | Rulani: Why Sundowns signed Mdunyelwa
+-  Krieg im Nahen Osten: Bildungsministerium: Mehr als 4.000 Studenten im Gaza-Krieg getötet
+-  Sutra u FBiH počinje isplata penzija: Ovo su najniža i najviša
+-  Landtagswahl in Sachsen: AfD liegt in Umfragen deutlich vor der CDU, SPD muss um den Einzug bangen
+-  بولندا تعلن إقلاع طائرات «إف - 16» لتأمين الحدود
+-  Sandra Perković objavila romantičnu fotku s vjenčanja i promijenila prezime na društvenoj mreži
+-  Tarena to Hold an Extraordinary General Meeting on February 20, 2024
+-  Harnessing the Transformative Power of Cold Chain Logistics with SSI Schaefer
+-  Thailand welcome 2024 at CentralWorld, Times Square of Asia - The only one World's Entertainment Countdown Landmark of All Time in the Heart of Bangkok
+-  Shanghai launches new online portal for expat services
+-  Prej 1 janarit çmimi i ri i energjisë elektrike, ja kush paguan më shtrenjtë
+-  فصيل فلسطيني يفقد الاتصال مع مجموعة تحتجز إسرائيلياً جراء «القصف الهمجي»
+-  المغرب يمنح تراخيص لمشروعات طاقة شمسية لتلبية التزاماته الدولية
+-  Dirigent Václav Hybš: Viděl jsem i Charlieho Chaplina
+-  মহাস্থান হাটে ভরা মৌসুমেও শীতকালীন সবজির দাম চড়া
+-  Japón: Evacuan a 400 pasajeros y tripulantes tras un incendio en un avión en Tokio
+-  إلى مزارعي القمح والشعير... بيان "هام" من وزارة الإقتصاد
+-  Schneechaos am Flughafen München: Gepäck seit 27 Tagen weg
+-  Alışveriş festivalindeki 1 TL'lik sehpalar yağmalandı
+-  İNSANIN DEĞİŞİM DÖNÜŞÜM SANCILARI
+-  Konya Büyükşehir, Sedirler Köprülü Kavşağı’nı tamamladı
+-  Türkiye'de, 2023 yılında 74 binin üzerinde sarsıntı kaydedildi
+-  SİYONİZMİN DOĞUŞU VE HEDEFLERİ-2
+-  TEBLİĞ YAYINLANDI
+-  Konya Büyükşehir'den 'Şehri Geleceğe Taşıyan Veri Çözümleri' Datathonu
+-  Taraftara kombine müjdesi
+-  CHP'de yerel seçim için aday belirleme süreci devam ediyor
+-  MİNİMUM 4 TRANSFER!
+-  Transfer yasağı cezası riski yok
+-  Korkmaz’dan flaş açıklamalar
+-  Ohod Saudi’ye dava açıldı
+-  Líder da oposição nomeado Primeiro-Ministro no Chade
+-  إسرائيل "تستسلم لجنوب إفريقيا" وتقرر المثول أمام محكمة العدل
+-  Konyaspor, İstanbul’da kamp yapacak
+-  대구경북 경제인들, 신년교례회서 위기 극복과 혁신적 경영전략 다짐
+-  경남도, 70명 초청해 '새해 도정에 바란다' 행사
+-  كلوب: لا أشعر بالمفاجأة من تألق صلاح "سر تبديل الحذاء بين الشوطين"
+-  천시열 신임 포항제철소장, 철강경쟁력 확보와 지역공헌강조
+-  Большинство белорусских студентов учатся платно
