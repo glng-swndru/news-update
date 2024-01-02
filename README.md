@@ -1,51 +1,51 @@
 # Latest News
--  Leonardo Bonucci, Maguire'a sahip çıktı
--  Tottenham'dan Pape Sarr'a yeni sözleşme
--  Wirtz için Liverpool, Manchester City yarışı
--  Анчелотті: Сподіваюся бути в Реалі і у 2028 році
--  Nemilosrdni Putin ne odustaje od osvete: 'Nikada nisu ispalili toliko Kinžala u jednom napadu od početka rata'
--  ഒരുമാസം കൊണ്ട് 71 ലക്ഷം അക്കൗണ്ടുകൾ നിരോധിച്ച് വാട്സാപ്പ്; പുതിയ ഐ ടി നിയമങ്ങളിൽ ഞെട്ടി ലോകം
--  Dua Lipa bjonde për vitin 2024
--  Vuelve Conor McGregor a UFC: Te decimos contra quién y cuándo regresa al octágono
--  Steuerforderungen: Villa von Signa-Gründer Benko gepfändet
--  Trainingsauftakt des FC Bayern ohne Gnabry und Davies
--  Die ersten Babys 2024 im Plauener Vogtland-Klinikum heißen Janosch und Aryam
--  "Dumny naród pada na kolana". Tak Niemcy piszą o Polakach
--  Partnerchöre gestalten weihnachtliches Programm in Neuhausen
--  Leipzig startet Trainingslager - Hoffnung auf Olmo-Rückkehr
--  Поставиха Везенков сред най-добрите в Европа
--  মিছিলে অস্ত্র প্রদর্শন, আওয়ামী লীগ নেতার অস্ত্র জব্দ
--  Đoković o problemima sa zglobom: ‘Nadam se da nije ništa ozbiljno’
--  New law on hit and run will be implemented after thorough discussion, says Union Home Secretary Ajay Bhalla: Top developments
--  Asesinan a un venezolano de una puñalada en Santiago de Chile
--  Agricoltura, pubblicati quattro bandi per 35 milioni di euro.
--  Analistas consideran que es prematuro someter a Rixi Moncada a dos años de campaña
--  Újabb elismerést kapott a budapesti atlétikai világbajnokság
--  Yeni yılda trafik cezalarına yeni tarife
--  Son dakika: İsrail Beyrut'ta Hamas ofisini vurdu
--  Tödlicher Gleissturz, Otto-Wagner-Rückkehr & Machetenmord-Anklage
--  Avantio: El software ideal para gestión de alquiler vacacional
--  Govt ready to facilitate foreign investment: Minister Saud
--  Mobile Deiche, viele Helfer: Land kämpft mit Hochwasser
--  René Benko: Villa von Signa-Gründer wegen Steuerschulden gepfändet
--  "В два раза". В США удивились возможностям российского оружия на Украине
--  Πόλεμος στη Γάζα: Έκρηξη στη Βυρητό - Στόχος ήταν τα γραφεία της Χαμάς
--  Cristiano Ronaldo es el máximo goleador del 2023
--  Kommentar zur Ukraine: Eigennutz
--  Les fans de GTA 6 révèlent les célébrités qu’ils veulent voir parodiées dans le jeu
--  Замполитбюро ХАМАС погиб при подрыве офиса движения в Бейруте, пишут СМИ
--  Po zaplenjanju krav še vladna cenzura za medije? Je razlog Palestinec?
--  Bayat Foundation distributes winter aid to needy families in Bamyan
--  Gaza-Krieg: Israels Außenminister sieht sein Land im „Dritten Weltkrieg“ gegen den Iran und Islamisten
--  "Wer wird Millionär?": Kandidatin versucht Günther Jauch in Verlegenheit zu bringen
--  Társaiért adta életét a Hamász magyar áldozata: fegyverrel vette fel a harcot a terroristákkal szemben
--  Codes Type Soul | Reroll et tickets | Janvier 2024
--  IHTT pide a transportistas invertir en nuevas unidades o no habrá pago de subsidio
--  ¿Te gustaría ser policía? Lanzan convocatoria para formar parte de la Policía Municipal en Ahome
--  Фридман: «Пропаганда Лукашенко, будете и дальше ссылаться на FP?»
--  Chihuahuenses son los más cumplidos en el pago del Predial a nivel nacional: Bonilla
--  Prodali 2 stana i podigli ušteđevinu za krstarenje koje je otkazano: Uskoro bismo mogli da budemo beskućnici
--  Szykuje się transfer reprezentanta Polski? Pojawiła się ciekawa opcja
--  Galatasaray Çağdaş Faktoring kupaya veda etti!
--  Tjeckisk skräll – Kanada utslaget i JVM
--  Összeütközött két repülőgép, majd tűzgolyóként száguldott a kifutón: Öten meghaltak a brutális balesetben
+-  En los últimos días de 2023 ingresaron el país 100.000 argentinos
+-  موريتانيا: استياء واسع النطاق من التميز والانتقاء غير المبرر في تعيينات جزئية في صفوف الجنرالات المتقاعدين
+-  Two weeks on the road give new-look Raptors a chance to jell on and off the court
+-  Ticaret Bakanı Bolat: Hem enflasyonda hem faizlerde iniş hızlanacak
+-  FC Bayern – Thomas Tuchels Wunsch und Bedarf in der Abwehr: Das sind die Transferkandidaten beim FCB
+-  RDC: La publication des résultats des élections législatives nationales et provinciales reportée
+-  ריצה מאסר בישראל, והוביל את גלי הטרור בגדה: זהו סלאח אל-עאעורי שחוסל בביירות
+-  Tapia ya es agente libre para negociar su futuro
+-  El milenario descubrimiento arqueológico que hicieron soldados israelíes en Gaza
+-  Зам.-лидерът на "Хамас" е убит при удар в Бейрут
+-  Kolme neljästä mukaan - yksi suomalainen mäkikotka petti kuitenkin pahasti
+-  Valioliigan kohumaalipyssyn siirtosaagaan saatiin merkittävä käänne
+-  Entinen ManU-lupaus on noussut Evertonin tutkalle
+-  Kanadalainen arvostettu asiantuntija hehkutti Nuorten Leijonien suurta sankaria
+-  Real Madrid teki yhden asian selväksi - tätä ei tule tapahtumaan tammikuun siirtoikkunassa
+-  Max Verstappen paljasti - tämä asia näytteli valtavaa roolia dominoinnin taustalla
+-  Jättiyllätys - Kanada ulos nuorten MM-kisoista
+-  2024: FG extends deadline for hajj registration
+-  NVIDIA kündigt die Einführung der GeForce RTX 40 SUPER-GPUs für die CES 2024 an
+-  Grand Kaizen Map – All Locations
+-  खजुराहो के मंदिरों में कामुक मूर्तियाँ किसने और कब बनवाईं? इसका उत्तर इन मान्यताओं में निहित
+-  अमेरिकी चिनूक-अपाचे के मुकाबले वायु सेना का स्वदेशी हेलीकॉप्टरों पर फोकस
+-  Xρηματιστήριο Αθηνών: Άλμα πάνω από τις 1.300 μονάδες για τον Γενικό Δείκτη με «όπλο» την ΔΕΗ – Χάθηκαν τα αρχικά κέρδη για την Ευρώπη – Μικτές τάσεις στην Ν. Υόρκη
+-  Impuesto predial: cinco claves para ponerse al día con la obligación
+-  الوكالة الوطنية للإعلام: إرتفاع حصيلة الشهداء في إنفجار الضاحية إلى 6
+-  തൃശൂരിൽ സ്ഥാനാർഥി നിർണയത്തിനു മുന്നേ സുരേഷ് ഗോപിക്കായി ചുവരെഴുത്ത്
+-  Dette vet vi om den drapssiktede 32-åringen
+-  Dell’s Catherine Doyle unveils technology outlook for 2024
+-  Michelle Yeoh sorgt als frischgebackene Oma für Verwirrung
+-  Kapıcılar Kralı oyuncuları! Kapıcılar Kralı ne zaman ve nerede çekildi? Kapıcılar Kralı İbrahim, Hüsnü Yıldız ve Sevil Üstekin merak uyandırdı!
+-  संत महात्माओं व नेताओं ने महंत श्याम गिरि को याद कर दी श्रदांजलि
+-  كيف علّق ميقاتي على إنفجار الضاحية الجنوبية؟
+-  Yavaş'tan Uysal'a ziyaret: Gündem yerel seçim
+-  Ambulanti e balneari: dai rinvii infiniti in parlamento alle bocciature di Tar e Consiglio di Stato, fino al no di Mattarella
+-  VIDEO: Sanwo-Olu arrests soldier, motorcyclists for plying one way
+-  Galápagos: Ordenan investigar uso de pirotecnia en la isla Santa Cruz
+-  दुनिया में सबसे तेज़ भूकंप कब और कहाँ आया था? सबसे ज्यादा भूकंप इसी देश में आते हैं
+-  Estados Unidos exige a Daniel Ortega que libere “inmediatamente” al obispo Rolando Álvarez
+-  LaLiga… ¿Cosa de dos?
+-  SKANDAL GÖRÜNTÜLƏR – Fabrik müdiri işçisinə görün nə etdi – ANBAAN VİDEO
+-  Fluminense x São Raimundo-RR: escalações, retrospecto, onde assistir, arbitragem e palpites
+-  Sky Airlines comienza a operar en Uruguay con cuatro rutas a Brasil, Chile y Perú
+-  سالم زهران: ما بعد الأغتيال ليس كما قبله
+-  "Семейството" на Вучич, Румен Радев и Каталин Новак публикува общо новогодишно изявление
+-  Ist das ihr Freund? Alisha Lehmann postet Bild mit Fußballer
+-  تأجيل محاكمة جمال اللبان بتهمة رشوة مجلس الدولة لـ5 فبراير
+-  "صفقة هجومية".. من هو الطيب المزياني الذي ارتبط اسمه بالزمالك؟ (فيديو)
+-  محافظ الجيزة يناقش مقترح إعداد سجل إلكتروني بالشوارع الرئيسية ومتفرعاتها
+-  "لم تكن مبادئ أتاتورك مفتوحة للنقاش".. بيان من الاتحاد التركي عن إلغاء السوبر في السعودية
+-  أمم أفريقيا تنتظر 144 لاعبا من الدوريات الأوروبية الكبرى
