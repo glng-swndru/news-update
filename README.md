@@ -1,11 +1,51 @@
 # Latest News
--  Quế Ngọc Hải, Nguyễn Tiến Linh chấn thương nặng hơn dự kiến
--  10 xe đắt nhất năm 2023: Ngôi vương là siêu xe gần 1.300 tỉ đồng
--  Đã có hơn 4 triệu liều vắc xin các loại để tiêm miễn phí cho trẻ em, phụ nữ...
--  Cháy lớn cửa hàng sửa, buôn xe điện, phát ra nhiều tiếng nổ lớn
--  Contrôle parrainages : Le dossier du Pr Daouda Ndiaye validé
--  NHNN cấp hết 'room' tín dụng cho các ngân hàng ngay từ đầu năm
--  Bármilyen okostelefonod van, már használhatod a Microsoft mesterséges intelligenciáját
--  VVGZ WINT DE 3RIVIERENCUP
--  Más de 22.000 palestinos han muerto en ataques israelíes contra Gaza desde el 7 de octubre -autoridades
--  Người sếp của năm: Đi đám cưới Tân - Mi bỏ phong bì hơn cả cây vàng, mừng cưới Đặng Thu Hà tận 50 “củ”?
+-  Een mooi jaar vol hooroplossingen!
+-  ASELSAN'dan bir başarı daha! 1,7 milyar TL'lik sözleşmeye imza atıldı
+-  Milli Piyango yılbaşı ikramiyesinin "Kolombiya"ya çıktığı iddiasına ilişkin açıklama
+-  Fenerbahçe aradığı stoperi buldu! 25 milyon euroluk duvar...
+-  Filistin Kızılayı: İsrail'in Han Yunus'taki merkezimize saldırısında çok sayıda kişi öldürüldü
+-  Yeryüzü Doktorları Gazze'nin yaralarına dikkat çekmek için sergi düzenledi
+-  MİT'ten İsrail istihbaratına büyük operasyon! 8 ilde çoğunluğu 34 şüpheli gözaltına alındı
+-  Arda Güler nihayet geri dönüyor
+-  تركيا.. توقيف 33 شخصا بشبهة التجسس لصالح الاستخبارات الإسرئيلية
+-  Cyprus electronics market expected to grow in 2024
+-  Turkish Cypriots travel to Adiyaman for earthquake hotel trial
+-  Anthony Vizcaya está listo para reforzar los innings finales de los Leones del Caracas
+-  الملك يعزي اليابان بضحايا الزلزال
+-  زلزال اليابان قد يكون حرّك الأرض 1.3 متر إلى الغرب
+-  شكر على تعاز من عشيرة الرواشدة
+-  الاحتلال يعترف بإصابة 31 جنديا
+-  وفاة رئيس الموساد إبان حرب 1973
+-  استمرار البحث عن إماراتي مفقود في الربع الخالي بالسعودية
+-  New Year’s Gift: Olivia López Crespo Welcomes 2024 as the First Born in Alta Marina
+-  X Social Network, formerly Twitter, witnesses 71% value drop
+-  ‘Stop gaslighting Monique’: Musa Khawula blasts Katlego Maboe
+-  Саудовская Аравия присоединилась к БРИКС
+-  Słynny profil udostępnił nagranie Lewandowskich. Niestety. "Żenujące"
+-  JJ's House Joins Forces with Sisters in the Fight Breast Cancer Foundation to Make Survivors Feel Beautiful
+-  Novel Device Facilitates Successful No-Shave FUE Transplants for Long Hair with Ease
+-  Hit and Run Law: పెట్రోల్ బంకుల వద్ద క్యూలైన్లకు కారణమేంటి? డ్రైవర్లు ఎందుకు దేశవ్యాప్త నిరసనకు దిగారు?
+-  Az Orbán-rendszert kutatta Ádám Zoltán, a Corvinus kirúgott docense
+-  W tym roku mieszkańcy Białej Podlaskiej nie pojadą autostradą A2
+-  SPFL chief hits out over shock postponement – as he reminds rivals about their own six figure outlay
+-  Aterriza en Madrid Santiago Sánchez Cogedor, el único español que se encontraba preso en Irán
+-  تمديد صلوحية بطاقات النقل المجاني لجرحى الثورة وأولي الحق من ذوي الشهداء
+-  Jokowi Janji Tambah Anggaran Pupuk Bersubsidi jadi Rp 14 Triliun
+-  Person der Woche: Gavin Newsom: Der US-Präsidenten-Joker hatte ein Alkohol-Problem und kann kaum lesen
+-  Bauchi Head Teacher Jailed 11 Years For Defiling Pupil
+-  Zmasowany rosyjski atak. Ukraina przygotowała listę "pięciu kroków"
+-  TS NEWS: సమ్మె విరమించిన లారీ డ్రైవర్లు..
+-  Republican Chairman Says GOP's Attack on Joe Biden Crossed the Line
+-  ‘We’re losing everything good’ cry punters as pub chain with 300 locations abruptly shuts branch doors after 17 years
+-  Szomorú idők várnak az influenszerekre: a mesterséges intelligencia okozhatja a vesztüket
+-  खुद को अर्जुन का वंशज मानने वाले ये मुस्लिम भी हिंदुओं की तरह दिवाली-दशहरा मनाते
+-  She Was Captured By Hamas Terrorists...Brutalised...Know The Horrific Story Of 21-Yr-Old Tattoo Artiste
+-  North’s minimum wage less than in Turkey for first time
+-  Встреча Фарруха Хасанова, сериал «Дом», работа в Великобритании и рост тарифов на свет: что смотрят в Таджикистане?
+-  Πρ. Παυλόπουλος: Το εμβληματικό Ηγετικό Πρότυπο του Κωνσταντίνου Καραμανλή*
+-  Hapag-Lloyd evitará canal de Suez hasta el 9 de enero y volverá a evaluar la situación
+-  Θεαματική Προσφορά* γνωριμίας Vodafone TV
+-  Rangers v Kilmarnock LIVE score as fans hope to get Fabio Silva glimpse in Prem clash – stream, TV, channel, team news
+-  উভয় স্টক এক্সচেঞ্জে লেনদেনে সেরা ৭ কোম্পানি
+-  Börse im Zeitraffer - Bis zu 591 Prozent Gewinn: Das sind die besten deutschen Aktien des Jahres 2023
+-  Şırnak'ta üretiliyor, Avrupa'nın dört bir yanına ihraç ediliyor
