@@ -1,51 +1,11 @@
 # Latest News
--  Bandidos invadem residência em Sinop e furtam aparelhos eletrônicos e dinheiro
--  Profissionais podem receber valores do abono salarial: entenda os requisitos
--  الحلبي ترأس اجتماعاً تحضيراً لجلسة المال
--  Milan Butterfield Scores For Nuneaton Borough
--  محافظ المنيا يسلم 100 جهاز عروس لفتيات من الأسر الأولى بالرعاية
--  زلزال اليابان يخلف دمارًا كبيرًا بالمناطق الساحلية وتحذيرات من تسونامي (صور- فيديو)
--  غداً "الأربعاء".. "الأعلى للإعلام" يحتفل بتسليم 80 ترخيص جديد لوسائل الإعلام
--  إصابة 18 في تصادم جرار زراعي وسيارة ملاكي بالدقهلية
--  الأمم المتحدة: إسرائيل استمرت في اتباع سياسة التهجير القسري لعقود
--  أشرف صبحي أمام رياضة البرلمان: "نرفع شعار النائب دائما على حق"
--  وزير الإسكان يتابع سير العمل بمحطة تنقية مياه الشرب بإمبابة في الجيزة
--  أكبر محطة على مستوى العالم.. سويلم يتفقد محطة الحمام لمعالجة مياه الصرف الزراعي بغرب الدلتا -تفاصيل
--  ظهور يوسف حسن وتأهيل الثنائي في مران الزمالك
--  وزير التعليم العالي يصدر قرارًا بإغلاق كيانين وهميين بمحافظة الإسكندرية
--  تقي من أمراض القلب والسكتة الدماغية.. 4 فواكه تفتت الكوليسترول الضار
--  زلزال اليابان يٌخلف دمار كبير بالمناطق الساحلية وتحذيرات من تسونامي (صور- فيديو)
--  작위적 익명보도 시작으로 이선균을 '구경거리'로 만든 언론, 어떻게 해야할까
--  Peter Obi, Pat Utomi pay condolence visit to Akeredolu’s family home
--  Sci di Fondo - Tour de Ski: esordio assoluto in Coppa del Mondo per Martino Carollo
--  Gigi D'Agostino a Sanremo 2024 dopo la malattia: l'annucio di Amadeus
--  Reale Mutua Torino: info biglietti per la gara contro Cantù
--  Sigue la búsqueda de supervivientes en Japón tras el fuerte sismo
--  Adzic, signore dei debutti: la Juve, il piano Yildiz, Gerrard e De Bruyne
--  Polacy ocenili przejęcie mediów publicznych. Ponad połowa badanych jest tego zdania
--  All set for 2024 Kenya Kite Cup at Diani Beach
--  The Future of TV Mounting: Exploring Smart and Motorised TV Wall Brackets
--  Ålänning i muträttegång kan få fängelsestraff
--  Viessmann schließt Verkauf von Klimasparte an US-Konzern ab
--  Unbekannte sprühen 25 Meter langes Graffiti in Döbeln
--  Neujahrskonzert in Hainichen ausverkauft: Wo gibt es noch Karten?
--  Elsterberg will künftige Abc-Schützen aus Thüringer Nachbarorten aufnehmen und wird von der Landespolitik gebremst
--  Die Flöha, die Zschopau und das Rätsel um einen Namen
--  Erfolgreiche Reihe der Gesundheitsakademie wird im Erzgebirge fortgesetzt
--  Weltmeisterin Hermoso bekräftigt: Kuss war aufgezwungen
--  Unfall auf der A4 bei Glauchau
--  Werdau: Schmöllnerin freut sich über ihr Neujahrsbaby
--  Picos tem abastecimento de água suspenso após furto de cabos de energia elétrica
--  Hoy Aylin y Emre están a punto de ser expuestos por Sanem
--  How can Keir Starmer win big this year? By leading with love and ambition | Zoe Williams
--  Needy students get bursaries
--  'Musa do crime' investigada por se passar por turista para furtar viajantes é presa em tentativa de roubo a carro em Cuiabá
--  Batman'da iki otomobil çarpıştı: 4 yaralı
--  Antonela Roccuzzo recibió el 2024 junto a su familia
--  Eleven People Killed In Kwara Road Crash, Seven Injured
--  3 killed, including Murphy staffer, in deadly weekend on NJ roads
--  홍남표 창원시장, 새해 미래 50년 먹거리 사업 챙겨
--  Engenheiro morto após férias no Brasil: delegado marca depoimento e traça linhas de investigação em Ribeirão Preto
--  창원시, 2024년 갑진년 시무식
--  Fallece Juan Carlos Henao, destacado jurista y exrector de la Universidad Externado en Colombia
--  Child sleep expert on how to get your children back into a routine before school
+-  Ticari araçla çarpışan kamyonet devrildi: 2 yaralı
+-  Rekabet Kurulu bazı işlemleri onayladı
+-  Trabzonspor, MKE Ankaragücü maçı hazırlıklarına devam etti
+-  Marketlerde etiketler değişti
+-  126 saat 52 dakika ile tarihe geçti! Güzellik kraliçesi 'en uzun şarkı söyleme' rekoru kırdı
+-  Erzincan'da 22 düzensiz göçmen yakalandı, 2 organizatör tutuklandı
+-  Les McCann yaşamını yitirdi
+-  Boynundan bıçaklanan Güney Kore muhalefet liderinin son durumu
+-  Bursa Valiliği, yeme içme işletmelerinde fiyat denetimini artırıyor!
+-  Üç kardeş babalarını ihbar etti: Bebek mezarı 20 yıl sonra açıldı
