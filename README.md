@@ -1,11 +1,51 @@
 # Latest News
--  Ticari araçla çarpışan kamyonet devrildi: 2 yaralı
--  Rekabet Kurulu bazı işlemleri onayladı
--  Trabzonspor, MKE Ankaragücü maçı hazırlıklarına devam etti
--  Marketlerde etiketler değişti
--  126 saat 52 dakika ile tarihe geçti! Güzellik kraliçesi 'en uzun şarkı söyleme' rekoru kırdı
--  Erzincan'da 22 düzensiz göçmen yakalandı, 2 organizatör tutuklandı
--  Les McCann yaşamını yitirdi
--  Boynundan bıçaklanan Güney Kore muhalefet liderinin son durumu
--  Bursa Valiliği, yeme içme işletmelerinde fiyat denetimini artırıyor!
--  Üç kardeş babalarını ihbar etti: Bebek mezarı 20 yıl sonra açıldı
+-  Histoires pour longues soirées d’hiver : La Brinvilliers, la marquise empoisonneuse
+-  WMG NEPRIKOSNOVENI LIDER U DIGITALNOM IZDAVAŠTVU U SRBIJI TOKOM ČITAVE 2023. GODINE Hvala na poverenju!
+-  Imagem do padroeiro despenca durante primeira missa do ano em Cuiabá
+-  고민시, 브라톱+레깅스 탄탄한 S라인 몸매…보드 위 요가 '섹시'
+-  Retro Gaming Watch coloca games antigos no pulso
+-  Pençe Kilit bölgesinde çok sayıda silah ve mühimmat ele geçirildi
+-  Kuwait University allows simultaneous work and study
+-  İran Cumhurbaşkanı Reisi'nin Türkiye'ye geleceği tarih belli oldu İki ülke arasında yeni sınır kapıları açılıyor
+-  Meet the AI model dubbed ‘hottest in the world’ who has footballers, MMA stars and tennis aces sliding into her DMs
+-  Gaza : les otages israéliens ne seront libérés que selon les « conditions » du Hamas
+-  Who is Alice Wood and what happened to Ryan Watson?
+-  Radiohead’s Ed O’Brien says he’s “deep into” next solo album and calls for Gaza ceasefire
+-  Εμπιστοσύνη σε Μηνά!
+-  Hardship: ‘Give Tinubu Three Or Two Years To Fix The Economy’ – Uzor Kalu Begs Nigerians
+-  Lewat Program Gebyok, Pemkab Kudus Percepat Pengadaan Digital
+-  Shocking moment idiot tries to launch firework from his mouth – before being hit in the face with sparks
+-  Tragic New Year’s Eve concert attack in Upstate New York claims 3 lives
+-  Con Vitor Roque no basta, el Barça busca centrocampista en invierno
+-  Везенков е в Топ 10 на европейските баскетболисти за 2023 г.
+-  Strengthening India’s Health Infrastructure: Union Minister Virtually Lays Foundation Stone for BSL-3 Lab at CRI Kasauli
+-  Turniej Czterech Skoczni. Dramat Kubackiego. Kamil Stoch zabrał głos
+-  Fjögur vilja verða biskup Íslands
+-  'Ajax wilde Mikautadze direct verkopen aan Metz: vraagprijs was Fransen te gortig'
+-  Tesla a fait exploser ses records de vente en 2023, à un détail près
+-  Landwirte kündigen neue Mega-Proteste an – Städte sollen noch im Januar lahmgelegt werden
+-  Landwirte kündigen neue Mega-Proteste an – Städte sollen noch im Januar lahmgelegt werden
+-  شمالی وزیرستان میں آپریشن کے دوران چار دہشت گرد ہلاک
+-  CAN 2024: Rennes répond à Belmadi, assurant avoir prévenu l'Algérie sur la blessure de Gouiri
+-  Ondo PDP chairman suspended over alleged anti-party activities
+-  Spaniard detained in Iran on walk to Qatar World Cup returns home
+-  "الريف والبادية" النيابية تبحث دور المدن الصناعية في تحقيق التنمية
+-  توترات البحر الأحمر ومخاوف الإمدادات تقفز بأسعار النفط اكثر من 2%
+-  هنية: شعبنا صامد ومقاومتنا بخير
+-  المعايطة: اقتصاد الكبتاجون يدر المليارات على الإيرانيين
+-  سعر كيلو الجزر بـ 50 قرشاً في السوق المركزي
+-  قرار من الحكومة لمربي الثروة الحيوانية وللشركات المستوردة للمواشي الحية
+-  امانة عمان : خصومات تشجيعيَّة لهؤلاء المواطنين
+-  רביעי ביורוקאפ: גינת עשוי לשוב לסגל הפועל תל אביב מול וולבס
+-  בני לם פוטר ממכבי פתח תקוה, רן קוז'וך מועמד מוביל להחלפתו
+-  דיווח בספרד: חיחון סימנה את שון וייסמן כמטרת הרכש העיקרית
+-  حاكم الشارقة يوجّه ببناء مسجدين على طريق خورفكان
+-  ברביעי: ריאל מדריד רוצה לשמור על הפסגה, ג'ירונה נגד אתלטיקו
+-  ליוביסבלייביץ' חזר בריינה, אזולאי פותח בהרכב של נתניה
+-  השבויה לשעבר רותי ל"ניו יורק טיימס": החטיפה הייתה הביקור השני שלי בעזה - והאחרון
+-  ג'יפ אוונג'ר החשמלי בארץ: מ-189 אלף שקל
+-  Korkunç Olay; Ahıra Girdiler 22 Koyunu Birden Öldürdüler
+-  Sunak accused of having ‘fingers in ears’ over climate change
+-  Beliebter Neujahrsvorsatz: Alkoholfreier Januar: Was bringen vier Wochen Verzicht für unsere Gesundheit?
+-  Saiba mais sobre José Roberto Burnier, jornalista que infartou em pleno plantão da Globo
+-  Beliebter Neujahrsvorsatz: Alkoholfreier Januar: Was bringen vier Wochen Verzicht für unsere Gesundheit?
