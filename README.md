@@ -1,51 +1,51 @@
 # Latest News
--  NOVA Merchant Bank to begin commercial banking, appoints Adebowale Oyedeji as CEO
--  Star Trek: Letzte Reise ins All – Die Asche der verstorbenen Besatzungsmitglieder wird in den Weltraum geschossen
--  Lockyer po dvou kolapsech řeší budoucnost. Naučte se první pomoc, vzkázal fanouškům
--  Hamasleider na dood nummer 2: wij zullen nooit verslagen worden
--  Rochester, New York, Absturz: Ermittler sagen, sie hätten bei dem Absturz in der Nähe des Kodak Centers keinen Zusammenhang mit Terrorismus festgestellt
--  Valor do novo salário mínimo para 2024
--  ضبط 17 طن ملح فاسد داخل مخزن مخالف في أسيوط - صور
--  الزراعة: حققنا طفرة زراعية كبيرة خلال الفترة الماضية
--  وزير النقل: الرئيس السيسي أجل رفع تذاكر المترو مرتين
--  "زراعة النواب" توصي بتنظيم زيارة ميدانية لسيناء
--  نجوم حفل "كاسيت 90" يصلون السعودية للمشاركة في موسم الرياض
--  العثور على جثتي طبيب وزوجته داخل شقتهما بمنطقة المعصرة
--  انقلاب مينى باص أعلى الطريق الأوسطى
--  لبنان: طالبنا الخارجية بتقديم شكوى عاجلة لمجلس الأمن بشأن انفجار بيروت
--  إسلام الشاطر: عام 2023 كان صعب واستثنائي على الأهلي
--  الصومال تعترض على اتفاقية وقعتها إدارة أقاليمها الشمالية مع إثيوبيا
--  أسامة كمال عن زيادة الأسعار: "النفوس ضيقة الآن وعلينا التحلي بالصبر"
--  Entenda como vai funcionar a nova modalidade do Pix
--  Irán envía un destructor al mar Rojo ante presencia de EEUU
--  Rafael Nadal makes emotional admission after triumphant return to tennis at Brisbane International
--  '90210' star Ian Ziering goes off on 'hooliganism on our streets' after street brawl with mini bikers
--  El luto por la muerte del pequeño arquero y la imputación al conductor que lo atropelló
--  Provokatör Fatih Altaylı hakkında soruşturma: Halkı kin ve düşmanlığa sevk etti
--  Emmanuel Vows To Support Gov Eno To Surpass Him
--  Deadline to Tear Out Nonfunctional Turf
--  Israel zieht Tausende Soldaten aus dem Gazastreifen ab
--  النخالة ينعى العاروري: كان قائدًا يشيع الثقة والاطمئنان في من حوله وفي من يتعامل معهم
--  Forseti Harvard segir af sér eftir harða gagnrýni
--  Ne Lampard, ne Giggs... James Milner, Premier Lig rekorlarını egale etti!
--  Sergen Yalçın Antalyaspor'un başında ilk antrenmanına çıktı, kameradan duyulan sözleri gündem oldu!
--  WhatsApp paralajmëron ndryshimin e ri: Përdoruesit nuk do të mund të shohin më ….
--  Ολυμπιακός – Αρμάνι Μιλάνο 79-74: Γλίτωσε το φιάσκο και μπήκε σε τροχιά εξάδας!
--  BKD DKI Jakarta: Lebih dari 5 Persen ASN Absen Usai Libur Tahun Baru
--  Desenvolvedora de Stray Souls anuncia fim de suas atividades
--  Франција ја затвори својата амбасада во Нигер
--  NiDCOM warns MDAs against ‘phoney’ diaspora groups, says ‘they have sinister motives’
--  Minus 40 Grad: Frösteln in Schweden und Finnland
--  בארה"ב טוענים: חיסולו של אל-עארורי - חלק מהתקפות חשאיות שביצעה ישראל נגד חמאס
--  Fyrsti sigur Snæfells kom gegn Fjölni
--  Kosova në rrezik nga Serbia, Maqedonci: 3 brigada ushtarake dhe 48 baza operacionale përgjatë kufirit
--  ארה"ב: דברי סמוטריץ' ובן גביר על הגירת פלסטינים מהרצועה חסרי אחריות
--  러, 우크라에 킨잘 등 미사일 100발 대폭격…폴란드 F-16 4대 출격
--  مسؤول في حركة الجهاد لـ"AWP": إغتيال العاروري سيزيد من المعارك وسيسهم في اشتدادها
--  이스라엘, 레바논 외곽 하마스 시설 공격…정치국 이인자 사망
--  Son dakika: Süper Loto çekilişi sonuçları belli oldu! 2 Ocak 2024 Süper Loto bilet sonucu sorgulama ekranı!
--  Quais são os documentos necessários para revisão da vida toda no INSS
--  Важните новини във ФАКТИ на 02.01.2024 г.
--  Погибшую при обстреле Белгорода семью похоронили в селе Казацкое
--  Jugadores de élite que serán gratis en seis meses
--  سجل تهديفي مميز ليوفيتش مع ميلان
+-  Greenwood nhận thẻ đỏ vô duyên, 8 người Getafe thất thủ trước Vallecano
+-  Concessionária registra média de 120 veículos com problemas por dia no feriado prolongado na BR-163 de Sinop a Itiquira
+-  Real Sociedad empata em casa
+-  Despedimentos coletivos até novembro superam valor anual de 2022 e 2021
+-  Ucrânia. ONU pede "libertação imediata" de dois poetas russos condenados
+-  Emissão de certificados de aforro com limite de 7.000 milhões de euros em 2024
+-  ​Autodeterminação de género nas escolas? "Devemos antes garantir que existem casas de banho"
+-  Relatórios de técnicos sem competência legal podem encher tribunais com pedidos de anulação
+-  올해 서울 공립초등학교 신입생, 4~5일에 예비소집
+-  [현장EN:]이효리 러브콜 통했다…'레드카펫' 화려한 개막
+-  '감독 경질 때문이라고?' 현대캐피탈, 1위 꺾은 상승세 진짜 이유
+-  대만 대선 D-10…속 타들어가는 中 "민진당 재집권 막아라"
+-  美대선 트럼프 당선시, 韓 당면한 경제·안보 과제는?
+-  البرلمان الليبي: شعبنا مع الانتخابات وحكومة واحدة تمثله
+-  James Milner, Premier Lig'de rekoru egale etti
+-  Hamas lideri Heniyye'den suikaste sert mesaj! "İsrail direnişi asla kıramayacak"
+-  Batı Şeria'da İsrail protestosu yükseliyor! Aruni suikasti sonrası Filistinliler kıyamda
+-  ['챗GPT 개발사' 오픈AI, 지난해 매출 2조원 돌파…1년 새 57배로
+-  [美 언론, 이재명 피습 신속 보도…“韓 정치 양극화 심해”
+-  [하버드대 첫 흑인총장 사임…‘논문 표절 의혹’, ‘反 유대 논란’ 등 압박
+-  [새해 벽두 전쟁 격화…러·우크라 대대적 미사일 공방 이어져
+-  [이스라엘, 베이루트 외곽 하마스 시설 공격…정치국 2인자 사망
+-  [“간병인 ‘지원’ 특약과 간병인 ‘사용’ 특약 달라요” 금감원, 소비자 유의 당부
+-  [“오후에 비 또는 눈 올 수 있어요”…수도권 미세먼지 ‘나쁨’
+-  ["업소녀에 돈 맡기면 큰 돈 번다"…이 말에 11명이 196억 날려
+-  Municipio de Torreón espera recaudar más de 573 mdp del impuesto predial y del ISAI
+-  حفيد أحد أبطال المقاومة ضحية لإذاعة موريتانيا
+-  TESLA : RBC persiste à l'achat
+-  Έχασε τα λόγια του ο εκπρόσωπος του Νετανιάχου: «Όποιος» σκότωσε τον Αρούρι δεν στόχευε Λίβανο ή Χεζμπολάχ
+-  Predsednica Harvarda podnela ostavku zbog optužbi o plagiranju i svedočenja o antisemitizmu
+-  New mom essentials: Unpacking the best in baby gear, formula, and more
+-  Hezbolá afirmó que asesinato del número dos de Hamás en Líbano “no quedará impune”
+-  Pedro Banga: Muere joven futbolista al desplomarse en pleno partido
+-  "הקפטנים": לדוקו החדש של נטפליקס ופיפ"א יש את כל מה שצריך - וזו חלק מהבעיה
+-  India lanza oficialmente una misión para estudiar los agujeros negros
+-  Госдолг США превысил 34 триллиона долларов
+-  السلطات التونسية تحبط 13 عملية هجرة غير شرعية
+-  Q&A: Memory, brain function, and behavior—exploring the intricate connection through fear memories
+-  Cako plas “bombën” në Albano Show: Yjet nuk ekzistojnë, jetojmë brenda një platforme
+-  Diabetes and weight-loss drugs—Ozempic and Wegovy—not associated with increased suicidal thoughts, finds study
+-  Шольц может досрочно уйти с поста, пишут СМИ
+-  Experts chime in on most popular New Year’s resolutions
+-  «Ποδαρικό με το δεξί» στο 2024 ο Ολυμπιακός
+-  Arrestan a sujeto que hurtaba en negocios del mercado de Santa Tecla
+-  Apple flink omlaag op Wall Street na adviesverlaging Barclays
+-  Pritja e urgjencave, pediatër 24 orë, patologë dy turne dhe infermierë në gatishmëri
+-  Grote brand bij bedrijf in Rutten onder controle
+-  Malgin glänzt gegen müdes Ambri
+-  Oakland: High-end Mexican restaurant to shutter Jan. 6
+-  England: Brighton tókst ekki að nýta sér yfirburðina
