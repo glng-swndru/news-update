@@ -1,51 +1,51 @@
 # Latest News
--  "المهندسين" تدين الاعتداء الصهيوني على الضاحية الجنوبية في بيروت
--  Spin Master completa la compra de Melissa & Doug por 950 millones de dólares
--  Las acciones de Boeing caen al retirar Goldman Sachs su estatus de lista de convicción
--  إحصائيات الشوط الأول بين ميلان وكالياري
--  In een kwart eeuw asielbeleid lijkt er niets veranderd: ook kabinet-Kok kampte al met een opvangcrisis
--  ישראל כץ מברך: "מקווה שהמוסד המפואר יפיק את הלקחים"
--  ישראל תתייצב בפעם הראשונה בהאג: זו הסיבה לכך
--  ميلان يتقدم أمام كالياري بثنائية في الشوط الأول
--  펩트론 선택한 LG화학, 스페인서 도입한 성조숙증 치료제 상용화 포기
--  Lumbardhi e quan Bucin “Golf 2”
--  “개인 조건 합의 완료” 토트넘, 토디보 대신 ‘루마니아 국대 DF’ 영입 임박
--  X volta a exibir títulos em links, mas de um jeito diferente
--  Enfeksiyonlarda "mikroplazma" artışı
--  Destrukcja państwa na ogromną skalę
--  Presidente do PT chama governo de Israel de 'genocida'
--  5 osób rannych w wypadku busa w m. Grabina Wola na A1
--  يوفيتش يواصل التألق بقميص ميلان
--  Atienden a empresario Carlos Bremer por desvanecimiento
--  Empeñan pertenencias para salir de deudas
--  Renuncia presidenta de Harvard entre polémica de plagio
--  Lee Jae-myung, el opositor obrero surcoreano apuñalado
--  Boda con temática del América se viraliza en redes sociales
--  Quiénes son los muertos del trágico choque cerca de Lamarque
--  When a pair of new footwear was ‘seized’ by police
--  Bərdə-Ağdam dəmiryolunun tikintisindən son görüntülər
--  Presidente de México confirma el secuestro de 31 migrantes en la frontera con EE.UU.
--  'One to watch' - David Ornstein delivers verdict on Everton quest to sign Chelsea ace in January
--  Piloto de helicóptero desaparecido em SP relatou dificuldade durante voo
--  10 películas animadas que se estrenan en el 2024: “The Garfield Movie”, “Kung Fu Panda 4” y más
--  Microsoft boss says UK was ‘tough and fair’ over Activision Blizzard deal
--  Russia rains missiles on Ukraine, killing two and injuring dozens
--  Lasun to Aregbesola: Don’t hallucinate over return to political leadership
--  Jasikevicius: Genel olarak iyi değildik
--  Thailand to waive visa requirements for Chinese nationals
--  Asamblea Nacional entra al primer debate del proyecto urgente remitido por el Ejecutivo sobre competitividad energética
--  Año Nuevo se mancha de sangre: Sicarios matan a 12 personas en pocas horas
--  Camilla Parker Bowles Will Never Be ‘Truly Loved’ By the British Public Unless She Does 1 Thing, Expert Says
--  Milwaukee TV Station Broadcasts NSFW Message Live After Packers Continue Their Search For a Playoff Berth
--  Aubrey Huff deletes social media account after seemingly being outed as horndog
--  Poland sends F-16 jets to border after Russian strikes on Ukraine
--  Augusto Melo promete 'choque de gestão' no Corinthians
--  Dizem que é a mais alta turbina eólica de madeira. Já funciona na Suécia
--  Denuncian precariedad en el Hospital Gervasio Vera Custodio
--  ¡Un recuerdo para toda la vida!: hermanos villarosarinos y sus primos conocieron a Scaloni
--  Earthquake jolts off central Indonesia
--  Putin potpisao rekordan broj tajnih dekreta u 2023.
--  Puštanje talaca samo pod uslovima Hamasa
--  Η πρώτη φορά του Λοΐζου και η... νέα αγαπημένη του
--  Nga “dritaret e shtrigave” tek e marta ters, besëtytnitë më të përhapura në botë
--  "Struja ipak poskupila 5,63 odsto, Vlada obmanjuje javnost"
+-  NOVA Merchant Bank to begin commercial banking, appoints Adebowale Oyedeji as CEO
+-  Star Trek: Letzte Reise ins All – Die Asche der verstorbenen Besatzungsmitglieder wird in den Weltraum geschossen
+-  Lockyer po dvou kolapsech řeší budoucnost. Naučte se první pomoc, vzkázal fanouškům
+-  Hamasleider na dood nummer 2: wij zullen nooit verslagen worden
+-  Rochester, New York, Absturz: Ermittler sagen, sie hätten bei dem Absturz in der Nähe des Kodak Centers keinen Zusammenhang mit Terrorismus festgestellt
+-  Valor do novo salário mínimo para 2024
+-  ضبط 17 طن ملح فاسد داخل مخزن مخالف في أسيوط - صور
+-  الزراعة: حققنا طفرة زراعية كبيرة خلال الفترة الماضية
+-  وزير النقل: الرئيس السيسي أجل رفع تذاكر المترو مرتين
+-  "زراعة النواب" توصي بتنظيم زيارة ميدانية لسيناء
+-  نجوم حفل "كاسيت 90" يصلون السعودية للمشاركة في موسم الرياض
+-  العثور على جثتي طبيب وزوجته داخل شقتهما بمنطقة المعصرة
+-  انقلاب مينى باص أعلى الطريق الأوسطى
+-  لبنان: طالبنا الخارجية بتقديم شكوى عاجلة لمجلس الأمن بشأن انفجار بيروت
+-  إسلام الشاطر: عام 2023 كان صعب واستثنائي على الأهلي
+-  الصومال تعترض على اتفاقية وقعتها إدارة أقاليمها الشمالية مع إثيوبيا
+-  أسامة كمال عن زيادة الأسعار: "النفوس ضيقة الآن وعلينا التحلي بالصبر"
+-  Entenda como vai funcionar a nova modalidade do Pix
+-  Irán envía un destructor al mar Rojo ante presencia de EEUU
+-  Rafael Nadal makes emotional admission after triumphant return to tennis at Brisbane International
+-  '90210' star Ian Ziering goes off on 'hooliganism on our streets' after street brawl with mini bikers
+-  El luto por la muerte del pequeño arquero y la imputación al conductor que lo atropelló
+-  Provokatör Fatih Altaylı hakkında soruşturma: Halkı kin ve düşmanlığa sevk etti
+-  Emmanuel Vows To Support Gov Eno To Surpass Him
+-  Deadline to Tear Out Nonfunctional Turf
+-  Israel zieht Tausende Soldaten aus dem Gazastreifen ab
+-  النخالة ينعى العاروري: كان قائدًا يشيع الثقة والاطمئنان في من حوله وفي من يتعامل معهم
+-  Forseti Harvard segir af sér eftir harða gagnrýni
+-  Ne Lampard, ne Giggs... James Milner, Premier Lig rekorlarını egale etti!
+-  Sergen Yalçın Antalyaspor'un başında ilk antrenmanına çıktı, kameradan duyulan sözleri gündem oldu!
+-  WhatsApp paralajmëron ndryshimin e ri: Përdoruesit nuk do të mund të shohin më ….
+-  Ολυμπιακός – Αρμάνι Μιλάνο 79-74: Γλίτωσε το φιάσκο και μπήκε σε τροχιά εξάδας!
+-  BKD DKI Jakarta: Lebih dari 5 Persen ASN Absen Usai Libur Tahun Baru
+-  Desenvolvedora de Stray Souls anuncia fim de suas atividades
+-  Франција ја затвори својата амбасада во Нигер
+-  NiDCOM warns MDAs against ‘phoney’ diaspora groups, says ‘they have sinister motives’
+-  Minus 40 Grad: Frösteln in Schweden und Finnland
+-  בארה"ב טוענים: חיסולו של אל-עארורי - חלק מהתקפות חשאיות שביצעה ישראל נגד חמאס
+-  Fyrsti sigur Snæfells kom gegn Fjölni
+-  Kosova në rrezik nga Serbia, Maqedonci: 3 brigada ushtarake dhe 48 baza operacionale përgjatë kufirit
+-  ארה"ב: דברי סמוטריץ' ובן גביר על הגירת פלסטינים מהרצועה חסרי אחריות
+-  러, 우크라에 킨잘 등 미사일 100발 대폭격…폴란드 F-16 4대 출격
+-  مسؤول في حركة الجهاد لـ"AWP": إغتيال العاروري سيزيد من المعارك وسيسهم في اشتدادها
+-  이스라엘, 레바논 외곽 하마스 시설 공격…정치국 이인자 사망
+-  Son dakika: Süper Loto çekilişi sonuçları belli oldu! 2 Ocak 2024 Süper Loto bilet sonucu sorgulama ekranı!
+-  Quais são os documentos necessários para revisão da vida toda no INSS
+-  Важните новини във ФАКТИ на 02.01.2024 г.
+-  Погибшую при обстреле Белгорода семью похоронили в селе Казацкое
+-  Jugadores de élite que serán gratis en seis meses
+-  سجل تهديفي مميز ليوفيتش مع ميلان
