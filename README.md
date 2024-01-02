@@ -1,11 +1,51 @@
 # Latest News
--  Noworoczny Wide Open Jam Session
--  יחידת יהלום: הכוכבים הדרום-אמריקנים שבדרך לכבוש את הכדורגל העולמי
--  وزارة التربية الفلسطينية تعلن استشهاد 4156 طالب و تدمير 381 مدرسة منذ بدء العدوان الإسرائيلي على قطاع غزة والضفة الغربية
--  নৌকার প্রচারণায় ফাঁকা গুলি, অভিযোগ ইউপিডিএফের বিরুদ্ধে
--  Maschine in Flammen - Flugzeugbrand in Tokio: Über 300 Menschen an Bord
--  Судски совет ја одби пресудата од Управен за Весна Дамева: најавуваат разгледување, право на жалба нема
--  Dobra godina iza nas, velika očekivanja i rast u 2024.
--  Κίνα: Το 2023 ήταν η πιο ζεστή χρονιά που έχει καταγραφεί ποτέ
--  Dikomandoi Young Lex, Peluru Tak Terkendali Sosialisasikan Program Ganjar-Mahfud
--  Киевда 29 декабр кунги Россия ҳужуми қурбонлари сони ортди.
+-  مرصع بالذهب واللؤلؤ.. العتبة الحسينية تستبدل كساء ضريح الصحابي حبيب بن مظاهر الاسدي (فيديو)
+-  오은영 찾아간 프로파일러의 고민은? "사람을 못 믿겠어요" [금쪽상담소]
+-  이나은·이강인, 열애설 부인했지만 기정사실화?…누리꾼들은 "축하" [MD이슈](종합)
+-  صحة الكرخ تعلن استقبال اكثر من (٦) ملايين مريض و اجراء (٢٠٠) الف عملية جراحية متنوعة خلال عام ٢٠٢٣
+-  '2023년 세계 최다 득점자였는데'... 호날두는 2월부터 어머니를 보지 못했다 왜?
+-  Asesinatos en el país bajaron 5% en 2023
+-  Turkcell, depremzedelere yönelik 3,5 milyar liralık bağış ödemelerini tamamladı
+-  Gaziantep'te yangın: Anne ve 4 çocuğu hastaneye kaldırıldı
+-  Memur maaş zammı ne zaman belli olacak?
+-  Россия Украина бўйлаб ёппасига зарба йўллади. Сўнгги маълумотлар.
+-  Resmi imzalar atılıyor! Antalyaspor, Sergen Yalçın'a kavuştu
+-  Ўзбекистонда маданий тадбирларнинг янги лойиҳалари тасдиқланди.
+-  في هذا الموعد.. ماجد المهندس يحيى حفله الغنائي في دبى
+-  غدًا.. جنات تطرح أغنيتها الجديدة "الشمخ الجواني"
+-  Este es el nuevo juego gratis para siempre de Epic Games Store en la promoción de Navidad
+-  羽田日航客機起火︱本港至少5班往返羽田航機受影響
+-  Taylor Swift and Travis Kelce's Coordinating Dances Go Viral
+-  Mirá cómo estará el tiempo en San Juan este lunes 2 de enero
+-  Középiskolai felvételi 2024: elérhető a 2023/24-es szakmafüzet
+-  بعد اليخت: الدكتورة خلود تستقبل 2024 بهدية تتجاوز 2 مليون درهم
+-  اقتراحات أنيقة لموضة فساتين الحفلات في 2024
+-  Tenista Naomi Osaka volvió a las pistas tras ser madre
+-  雯雯新年又狂數老公張致恒！談離婚狀況再爆Seed：個個淨係識話我發癲
+-  "اللجان الزكوية والضريبية" تنشر 9 آلاف قرار فوري عبر موقعها الإلكتروني
+-  Freising - Autofahrer wollte pinkeln und landete im Graben
+-  Tragické havárie lietadiel v roku 2023 si vyžiadali životy len 80 ľudí vrátane posádky
+-  El Granada ficha a Augusto Batalla
+-  Maailmanmestari Carmen Valero on kuollut
+-  Nuoret Leijonat kohtalonotteluun - valmennukselta kova ratkaisu MM-puolivälierään
+-  ManU tulee mukaan vääntöön 75 miljoonan euron pelaajasta
+-  שותים ומחבקים: יריד יין למען יקבי קו העימות
+-  אחרי 15 משחקים בלבד: ויין רוני פוטר גם מברמינגהאם
+-  COVID Map Shows US States With Increased Hospitalizations Before Christmas
+-  [부고]이선호(경기일보 지역사회부장)씨 부친상
+-  [인사] 수원특례시
+-  한동훈 quot;대구, 제 정치적 출생지hellip;동대구역 시민과 대화하며 정치 결심quot;
+-  대전성모병원 이환희middot;김영율 교수팀, 세계골다공증학회 학술구연상 수상
+-  Von Polt bis Pop, von Salsa bis Blasmusik: Wertheimer Kulturkalender hat auch 2024 einiges zu bieten
+-  Bahnstrecke Frankfurt-Mannheim gesperrt
+-  Bluttat Lohr: 14-Jähriger wird wegen Mordes an Gleichaltrigem angeklagt
+-  Japón reportó 48 muertos tras terremoto que sacudió el país
+-  Bahçede 1 TL'ye satılan mandalina markette 20 lira!
+-  Bilecik'te 9 katlı binada yangın
+-  Japonya'daki kaza sonrası THY uçağı Narita'ya yönlendirildi
+-  Luke Littler, 16, reveals classy message from Brendan Dolan after stunning World Darts Championship quarter-final win
+-  La banca redujo el crédito a empresas un 3,51 % hasta noviembre y a hogares, un 2,54 %
+-  Las exportaciones rusas de gas por gasoducto a Europa caen un 56% en 2023 -cálculos de Reuters
+-  Las bolsas del Sudeste Asiático inician el año con mayoría de subidas
+-  Se espera que las acciones de Apple comiencen 2024 a la baja tras la rebaja de Barclays a vender debido a los poco impresionantes ingresos del iPhone
+-  La filial de WISeKey obtiene una inversión estratégica de THA
