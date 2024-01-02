@@ -1,51 +1,51 @@
 # Latest News
--  राष्ट्रपति र प्रधानमन्त्रीको तस्बिर कार्यकक्षमा राख्न राईलाई दबाब
--  First storm of the year predicted to hit the Netherlands tonight; Gusts up to 110 km/h
--  Benfica prepara proposta de 15 a 20 milhões por avançado do Santos
--  Espera para doentes urgentes ultrapassava as 15 horas às 9h00 no Hospital Amadora-Sintra
--  Lauri Markkasen joukkuekaveri teki kovan tempun - viimeksi se onnistui 5 801 päivää sitten
--  Avion se zapalio tokom slijetanja na pistu
--  Nadal se pobjedom vratio nakon godinu dana pauze
--  'ปานปรีย์'เผย 1 มี.ค.67 เริ่มยกเว้นวีซ่าถาวรไทย-จีน สามารถพำนักได้ไม่เกิน 30 วัน
--  ชาวบ้านวอนซ่อมถนน หลังฝนหยุดตกถนนเป็นหลุมเป็นบ่อสัญจรลำบาก
--  ‘อนุทิน’ยัน!!! พร้อมเป็นเจ้าภาพนัดดินเนอร์พรรคร่วมรัฐบาล
--  Kickoff | BREAKING: Rooney sacked after just three months!
--  Kickoff | Rulani: Why Sundowns signed Mdunyelwa
--  Krieg im Nahen Osten: Bildungsministerium: Mehr als 4.000 Studenten im Gaza-Krieg getötet
--  Sutra u FBiH počinje isplata penzija: Ovo su najniža i najviša
--  Landtagswahl in Sachsen: AfD liegt in Umfragen deutlich vor der CDU, SPD muss um den Einzug bangen
--  بولندا تعلن إقلاع طائرات «إف - 16» لتأمين الحدود
--  Sandra Perković objavila romantičnu fotku s vjenčanja i promijenila prezime na društvenoj mreži
--  Tarena to Hold an Extraordinary General Meeting on February 20, 2024
--  Harnessing the Transformative Power of Cold Chain Logistics with SSI Schaefer
--  Thailand welcome 2024 at CentralWorld, Times Square of Asia - The only one World's Entertainment Countdown Landmark of All Time in the Heart of Bangkok
--  Shanghai launches new online portal for expat services
--  Prej 1 janarit çmimi i ri i energjisë elektrike, ja kush paguan më shtrenjtë
--  فصيل فلسطيني يفقد الاتصال مع مجموعة تحتجز إسرائيلياً جراء «القصف الهمجي»
--  المغرب يمنح تراخيص لمشروعات طاقة شمسية لتلبية التزاماته الدولية
--  Dirigent Václav Hybš: Viděl jsem i Charlieho Chaplina
--  মহাস্থান হাটে ভরা মৌসুমেও শীতকালীন সবজির দাম চড়া
--  Japón: Evacuan a 400 pasajeros y tripulantes tras un incendio en un avión en Tokio
--  إلى مزارعي القمح والشعير... بيان "هام" من وزارة الإقتصاد
--  Schneechaos am Flughafen München: Gepäck seit 27 Tagen weg
--  Alışveriş festivalindeki 1 TL'lik sehpalar yağmalandı
--  İNSANIN DEĞİŞİM DÖNÜŞÜM SANCILARI
--  Konya Büyükşehir, Sedirler Köprülü Kavşağı’nı tamamladı
--  Türkiye'de, 2023 yılında 74 binin üzerinde sarsıntı kaydedildi
--  SİYONİZMİN DOĞUŞU VE HEDEFLERİ-2
--  TEBLİĞ YAYINLANDI
--  Konya Büyükşehir'den 'Şehri Geleceğe Taşıyan Veri Çözümleri' Datathonu
--  Taraftara kombine müjdesi
--  CHP'de yerel seçim için aday belirleme süreci devam ediyor
--  MİNİMUM 4 TRANSFER!
--  Transfer yasağı cezası riski yok
--  Korkmaz’dan flaş açıklamalar
--  Ohod Saudi’ye dava açıldı
--  Líder da oposição nomeado Primeiro-Ministro no Chade
--  إسرائيل "تستسلم لجنوب إفريقيا" وتقرر المثول أمام محكمة العدل
--  Konyaspor, İstanbul’da kamp yapacak
--  대구경북 경제인들, 신년교례회서 위기 극복과 혁신적 경영전략 다짐
--  경남도, 70명 초청해 '새해 도정에 바란다' 행사
--  كلوب: لا أشعر بالمفاجأة من تألق صلاح "سر تبديل الحذاء بين الشوطين"
--  천시열 신임 포항제철소장, 철강경쟁력 확보와 지역공헌강조
--  Большинство белорусских студентов учатся платно
+-  Windkraft im Erzgebirge: Diskussion über Für und Wider
+-  Nadal gelingt Comeback-Sieg gegen Thiem
+-  Sahin und Bender nehmen Arbeit beim BVB auf
+-  مفارقة غريبة بين يناير 2023 و2024.. ماذا يحدث في الكرة الأرضية؟
+-  Zimmetine Para Geçirdiği Öğrenildi: Yakalama Kararı Çıkarıldı!
+-  55-Jährige prallt bei Casaccia mit Auto in Hausecke
+-  Süper Kupa krizinin ardından yayınlanan Tanju Özcan'ın iğrenç reklamına soruşturma!
+-  Eski kız arkadaşı ile ağabeyini vurmuştu: Yakalandı
+-  Houston Rockets evinde Detroit Pistons'ı farklı yendi
+-  Bakan Fidan Irak Türkmen Cephesi Başkanı Turan'ı ağırladı
+-  Biznis Asocijacija u Njemačkoj veza sa dijasporom i stranim investitorima
+-  Imaćemo spremnu strukturu za novu fazu pregovora sa EU
+-  Học viện Kĩ thuật Quân sự lần đầu tiên dùng kết quả thi đánh giá năng lực của 2 ĐH Quốc gia để tuyển sinh
+-  Токио аэропортига қўнишда йўловчи самолёт ёниб кетди.
+-  Concurso Ministério da Pesca e Aquicultura é autorizado para 264 vagas
+-  FPÖ – Brückl: „Deutsche Sprache ist für SPÖ-geführte Arbeiterkammer nicht wichtig“
+-  Boom And Golden Child’s Jangjun Confirmed As New MCs For “Weekly Idol”
+-  Намалена видливост поради магла на Страцин
+-  Continuous learning and capacity building programmes for staff of Karimnagar DCCB, stresses Chairman Ravinder Rao
+-  Netanjahus Finanzminister will den Gazastreifen neu bevölkern
+-  TECNO's Newest Spark20 Pro+ Brings Many Industry-first Features in its Price Bracket
+-  রেমিট্যান্স প্রবাহ বেড়েছে, ৬ মাসে এলো এক হাজার ৮০ কোটি ডলার
+-  ยังไม่รู้ชะตากรรม 5 ลูกเรือเครื่องบินหน่วยยามฝั่ง หลังถูก JAL เฉี่ยวชน
+-  日 JAL 항공기 화재 사고...외교부 "현재까지 한국인 피해 접수 없어"
+-  Millionenpublikum für Neujahrskonzert der Wiener Philharmoniker: Bis zu 1,181 Millionen sahen Live-Übertragung in ORF 2
+-  [민주 “이재명 대표, 혈관재건술 받아…중환자실서 회복중”[종합]
+-  De grootste vraag van deze transferperiode bij SC Heerenveen: blijft aanvoerder Sven van Beek?
+-  Tennis-Star Rafael Nadal gelingt Comeback-Sieg gegen Thiem in Brisbane
+-  Что известно о ЧП с пассажирским самолетом в Японии
+-  Maneras de cambiar
+-  Angola entre os destinos turísticos a visitar em 2024
+-  Maneras de cambiar
+-  BKPSDM: Mutasi Besar-besaran Pemkot Makassar Digelar Besok Pukul 06.00
+-  Shippingaktier upp på oro i Mellanöstern
+-  Bantah Diintervensi Istana, Bawaslu Jakpus: Kalau Ada, Kasus Gibran Pasti Tak Diusut
+-  Polizei- und Feuerwehreinsätze in der Silvesternacht 2023 in Sachsen-Anhalt
+-  Slováci môžu od utorka žiadať o príspevok na zvýšenú splátku úveru
+-  U Dinamo je stigao besplatno iz Hajduka. Nije se nametnuo, ali Jakir ga sada vodi na pripreme
+-  Вильнюс намерен сократить поток въезжающих в страну белорусов
+-  Son dakika! Elazığ'da deprem I Son depremler
+-  Rafael Nadal makes impressive winning return in Brisbane after ‘toughest year’
+-  Avion koji se sudario s putničkim avionom prevozio humanitarnu pomoć za žrtve potresa
+-  Polonia dice que el nivel de amenaza de los ataques rusos ha caído, los aviones regresan a la base
+-  El dólar inicia 2024 con ganancias frente al yen y el euro, el bitcóin supera los 45.000 dólares
+-  El oro empieza 2024 con optimismo, por esperanzas de que la Fed rebaje las tasas
+-  Las bolsas europeas tocan máximos de 23 meses, el petróleo sube
+-  Kayıp Olarak Aranıyordu, Çekyatın İçinde Ölü Bulundu
+-  Tennisstar Rafael Nadal ist wieder da: Spiel mit dem Feuer
+-  NHK: судьба пяти человек из самолёта береговой охраны после ЧП в Токио неизвестна
+-  Eski Japon yöntemi Shiatsu' gençlik noktaları: 10 yıl daha genç görünmek için basınç uygulamanız gereken noktalar...
