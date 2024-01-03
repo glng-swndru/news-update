@@ -1,11 +1,51 @@
 # Latest News
--  Banjir kilat tiada kesudahan
--  الاحتلال يقتحم مدينة نابلس
--  بن غفير يرد على انتقادات واشنطن
--  كأس أفريقيا لن تحرم اليونايتد من أونانا
--  غوغل تصدر قائمة أكثر المواضيع بحثا في عام 2023
--  Julgamento de atacante do escritor Salman Rushdie pode ser adiado
--  광주교육청, 광산구 신창동에 신청사 건립hellip;2028년 완공 목표
--  광주경찰, 4일 한동훈 비대위원장 방문 경호 대폭 강화
--  5일부터 동물병원 '진료비용' 게시 의무화hellip;위반 시 과태료
--  경기도, 올해 노후 공동주택 주거환경 개선 98억원 지원
+-  Mâm cỗ cưới 28 triệu của đại gia Quảng Ninh, rạp rộng 1000 mét vuông, cô dâu đeo vàng trĩu cổ
+-  Thêm một món Việt được Chi Pu bán tại quán phở ở Thượng Hải, netizen xứ Trung nhận xét thế nào?
+-  Jennie tiết lộ lý do không ký hợp đồng cá nhân với YG, khẳng định muốn ra mắt full album trong 2024
+-  Bà mẹ chia sẻ ảnh con học bài, nhìn thứ đính kèm trên tay của chị, ai nấy cười muốn tắc thở: Đồng cảm quá!
+-  West Fargo's Keyton McGregor commits to UMary football
+-  정관장 '활기력', 톰과제리 콜라보 '활기력 슈퍼히어로박스' 출시
+-  미 국가채무, 지난 29일 기준 사상 첫 34조 달러 돌파
+-  윤여준 "한동훈 비대위원장, 총선 후 다시 행정부로"
+-  KT&G, 재생에너지 구매 계약 체결…연간 전력 7.5% 대체
+-  이스라엘 국민 대다수 "전쟁 후 네타냐후 퇴임해야"
+-  '윤석열 비아냥' 김여정 담화… 윤 '우직, 미련' vs 문 전 대통령 '영특, 교활'
+-  "필러 시술, 만족도 높이려면 의료진 선택 중요"
+-  워크도니, 한국기자연합회 주관 '세계명품브랜드' 대상
+-  GNM자연의품격, '조정석 루테인' 루테인오메가3 리뉴얼
+-  글로벌 CEO들의 올해 핵심 경영 키워드는?
+-  강선우, 이재명 헬기 이송 의문 제기에 "음모론 가까워, 흠집 내지 않길"
+-  이디야커피, ‘ 변화와 혁신으로 재도약하는 2024 " 각오 다져
+-  도, 지난해 하반기 재정집행 전국 1위…90.91% 집행, 전국 평균 대비 3.44p%↑
+-  제주은행 을지연습 우수 공로 금융위원장 표창
+-  제주 드림타워 4분기 카지노 부문 순매출 519억원 기록
+-  한라도서관, ‘생각을 엮는 글쓰기, 생글생글!’ 운영
+-  62 personer er blevet dræbt af jordskælv i Japan
+-  62 personer er blevet dræbt af jordskælv i Japan
+-  Продолжит ли ОПЕК+ регулировать мировой рынок нефти в 2024 году
+-  日이시카와현 "노토반도 강진 사망자 62명으로 늘어"
+-  허은아, 국힘 탈당·의원직 상실…이준석 신당 합류
+-  티웨이항공 올해 첫 특가 프로모션 7일까지 진행
+-  홍익표 "정부, 김건희 방탄에만 몰두…쌍특검 거부권 행사 시 국민적 도전 직면"
+-  겨울철 목욕탕서 ‘어질어질’…어르신 ‘히트쇼크’ 주의
+-  Les premiers croisiéristes de l’année à la découverte de Mayotte !
+-  Фестивали января: песни под пальмой, новое ледовое шоу, рок с пивом и показы мод
+-  2024년 제약·바이오 산업 전망 '긍정적'…당뇨·비만 분야 가장 기대
+-  واشنطن ترفض تصريحات سموتريتش وبن غفير «التحريضية» عن تهجير سكان غزة
+-  身著單薄衣物蕩失路 熱心民警為8旬婆婆買羽絨服禦寒勁暖心
+-  Kış çayları ne kadar masum?
+-  Kaçak fabrikanın sekiz kapısı da mühürlendi
+-  SNT그룹 최평규 회장 “정중여산의 자세로 SNT 새역사 창조” 강조
+-  해수부, 2032년까지 '항만 재해 예방시설 정비' 8000억 투입
+-  O şehirde ev fiyatları yükselmeden son çıkış! Türkiye’nin en güzel şehri oldu: Herkes ev bakmaya başladı bile…
+-  총수 40명 주식, 1년새 10조원 늘었다…이재용 '1위'
+-  Polacy daleko w kolejce po wodór. Poznaliśmy raport PIE
+-  해양조사원, 항해용 전자책자 '항해서지' 전자책 발간
+-  Leszek Skiba, prezes Banku Pekao: Zmiana warty. Zostawiamy bank w dobrej kondycji
+-  Firmy wierzą w niskie ceny i stabilne dostawy gazu
+-  서울 아파트 분양전망지수 82.5…지난해 8월부터 내리막
+-  Wielkie kuszenie Kyliana Mbappe
+-  Brisbane. Mistrzowie tenisa wracają
+-  Szerzej otwarta furtka do pomocy dla osób w tarapatach finansowych
+-  Nie powinniśmy ulegać złudzeniom spadających cen energii
+-  도정일자 속이고 품종 허위기재…햅쌀 출하기 양곡 부정유통 적발
