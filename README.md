@@ -1,11 +1,51 @@
 # Latest News
--  بعد انتشاره بين الطلاب.. إجراءات الوقاية من الجديري المائي
--  الأزهر يُدين تفجيري "كرمان" بإيران: نرفض العنف والإرهاب ضد الأبرياء
--  "زراعة النواب" تناقش خطة الحكومة للتوسع في المحاصيل الاستراتيجية
--  بعد مد فترة التقديم.. خريطة أماكن شقق سكن لكل المصريين (الطرح التكميلي)
--  حقنة لفقدان الوزن كادت تنهي حياة عروس- ما القصة؟
--  Regresso às aulas. Quantos alunos começam 2024 sem professores?
--  Ministério da Educação: Mais de mil alunos sem professor a pelo menos uma disciplina
--  ‘굳이 지금 ML를?’ 고우석의 무(리)한 도전, 오타니가 스쳐간다
--  수원 삼성은 왜 강등됐나 ‘매탄병의 실체’ [취재파일上]
--  고우석vs마츠이… SD에서 펼쳐질 한·일 마무리 경쟁[초점]
+-  물류 비용 증가 가운데 후티반군 또다시 홍해 선박 표적 삼아
+-  가상자산, 카드 거래 금지대상에 추가된다
+-  12월 외환보유액 4201.5억달러…전월比 30.7억달러↑
+-  اليرموك والوطنية لشؤون المرأة توقعان مذكرة تفاهم
+-  مع الذكرى الرابعة لمقتل سليماني .. انفجاران كبيران يهزان إيران
+-  إعلان نتائج المشروع البحثي الريادي حول الزراعة الذكية بالهاشمية
+-  المقاومة تبث مشاهد لقصفها قوات الاحتلال بخان يونس
+-  – استقرار الدولار مع تراجع الإقبال على المخاطرة.
+-  الاحتلال يرفض التعليق على تفجيرات إيران
+-  Talat Atilla yazdı: Erdoğan'dan Yerlikaya'ya 'Neden Belediye konusuna soğuksun?'
+-  Economista libertario en LN+: "Que cueste andar en auto, porque antes era muy barato, y todos tenían auto"
+-  Sinan Gümüş'ün Antalyaspor serüveni sona erdi
+-  Kärppien tuore päävalmentaja joutui jättämään pelin kesken
+-  SM-liigavalmentajalta poikkeuksellisen kova avautuminen kärkipelaajista
+-  Onko Leijonat-luotsi Antti Pennasen Ilves jo kriisissä?
+-  ÖZET | Panathinaikos-Pas Giannina: 2-0
+-  Ankara Barosu'ndan tevhid bayrağı hazımsızlığı: İsmail Aydemir ve Vali Davut Gül hakkında suç duyurusunda bulundular
+-  BHOPAL NEWS - अरेरा कॉलोनी में अनमोल ज्वेलर्स वालों के घर एक करोड़ की लूट
+-  Ameaças de bombas nos Estados Unidos
+-  뉴욕증시, 금리 인하 기대 약화에 하락 마감…나스닥 1.18%↓
+-  PMO clarifies Trudeau and family stayed ‘at no cost’ during vacation in Jamaica
+-  Tekken 8 director shuts down “racism” accusations for not revealing Black fighter
+-  Baskonija "kopirala" Partizan VIDEO
+-  Un campeón de invierno agarrado a su pizarra
+-  Grand Designs is back: But with a new name, new channel, new hosts and new format
+-  Estados Unidos no ve "actos de genocidio" en Gaza, dice el Departamento de Estado
+-  Criminosos escalam muro, danificam parede e arrombam cofre em Ariquemes
+-  Aterrizaje suave de la economía de EE.UU. es "concebible" pero no "inevitable": Fed de Richmond
+-  N.H. bill targets undocumented immigrants driving with legal Mass. licenses
+-  Hezbollah Leader Promises Retribution for Killing of Hamas Official in Lebanon
+-  김봉교 예비후보 "구미 인동에 진학진로센터 구축"
+-  Stefanik slams Harvard for timing of president's resignation: 'Unacceptable'
+-  [변태가 아니었다?…생리대 찬 남성의 '대반전' 정체
+-  Белият дом: САЩ нямат нищо общо с експлозиите в Иран
+-  Kildare death notices and funeral arrangements
+-  충북 출근길 영하권 추위…곳곳 짙은 안개
+-  Trivić: Nećemo prihvatiti da RS provodi svoje izbore
+-  Kanye West šokirao pratioce fotografijom supruge, pišu mu da je ponižava
+-  Un gol de cabeza de Rüdiger desatasca al Real Madrid ante el Mallorca
+-  Calgary's rising housing prices, low inventory likely to persist in 2024: CREB
+-  Aumentará clientela en gimnasios por propósitos de año nuevo
+-  Bli med på den store snøryddedagen
+-  Aantal dodelijke slachtoffers bomaanslagen Iran bijgesteld naar 95
+-  Telecomprovider Telefónica akkoord over schrappen ruim 3400 banen
+-  Suomalaismaalivahti Atte Tolvanen maalin makuun ICEHL:ssä
+-  Beurzen op Wall Street opnieuw omlaag, Tesla tussen sterke dalers
+-  Пресметајте дали 2024 ќе биде ваша година
+-  Assalto a Buongiorno, il Napoli fa sul serio per il leader granata
+-  Acaba sin acuerdo reunión entre Iberia y sindicatos y se mantiene la huelga del 'handling'
+-  Le communiqué et les nominations en Conseil des Ministres de ce 03 janvier 2024
