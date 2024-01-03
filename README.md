@@ -1,51 +1,51 @@
 # Latest News
--  MİT'in avladığı Mossad casusları ile ilgili yeni gelişme
--  Boluspor, 2 transferi bitirdi!
--  Táningur verður milljóna­mæringur í kvöld
--  Nasrallah’tan dikkat çeken açıklama: Eğer hayatta kalırsam...
--  Kaavoitus | Hallinto-oikeus pani Stansvikinkallion katutyöt toistaiseksi jäihin
--  Taide | Espoon modernin taiteen museo Emma rikkoi viime vuonna kävijäennätyksensä
--  IGAD warns of Ethiopia-Somaliland deal’s ‘regional implications’
--  Simon Castaldi annonce qu'il arrête la télé-réalité pour se consacrer à de nouvelles envies
--  Boost productivity with Microsoft Office 2019 for Mac or Windows for just $40
--  ميتا تطرح خيارًا جديدًا لتتبع مواقع الويب التي تزورها
--  The best TV in 2024: Top picks from LG, TCL, Sony, Samsung, and Hisense
--  EASYJET : JP Morgan blijft neutraal
--  EASYJET: rating Neutral da JP Morgan
--  EASYJET : El JP Morgan se mantiene neutral
--  JPMorgan hebt Ziel für Easyjet auf 520 Pence - 'Neutral'
--  Chance find fulfills 110-year mission to give ancient Nubians a voice
--  Bengaluru court refers Wipro vs Jatin Dalal case to arbitration
--  WINDTRE, trasparenza tecnica rete mobile: le informazioni presenti nei nuovi documenti
--  Granada pobijedila nakon 135 dana, zabio Albanac koji će prijetiti Vatrenima
--  Hrvatska propustila potporu za veliki energetski projekt: “Zaustavili smo sektor koji je investicijski zanimljiv”
--  Hollywood couple sued by woman over alleged sexual assault insist claims ‘bogus’
--  LIVE | Die heiße Phase des Grunddurchgangs
--  Gobernador de Puerto Rico deberá dejar de utilizar popular eslogan
--  İran Cumhurbaşkanı Reisi'nin Türkiye ziyareti ertelendi
--  গণঅধিকার পরিষদ থেকে রেজা কিবরিয়ার পদত্যাগ, ভারপ্রাপ্ত আহ্বায়ক মিয়া মশিউজ্জামান
--  XboxDynasty Stream: ARK: Survival Ascended ab 19:45 Uhr auf Twitch
--  В Финляндии из-за морозов нарушилось движение поездов
--  Grünen-Chefin zu Hochwasser: Lassen Menschen mit Kosten nicht allein
--  Rudy Giuliani’s creditors may join forces to collect following bankruptcy bid
--  Corinthians pressiona, mas Flamengo vê negociação por Gabigol longe do fim
--  В Японии выросло число жертв землетрясения
--  Calgary property assessments say median single home value jumped to $610K from $555K
--  Uno a uno del Real Madrid ante el Mallorca: valoración y comentarios
--  SASSA: All the social grant payment dates for recipients
--  Nasrallah: Tötung von Hamas-Anführer war Angriff Israels
--  Ayatollah Khamenei promete "resposta dura" a explosão que fez 103 mortos
--  Alexis Vega no llegaría a Cruz Azul; no está de acuerdo en cláusulas por indisciplinas y rendimiento
--  Zach Wilson’s season is over with Jets future up in the air
--  Deichbruch-Gefahr in Hochwassergebieten - Scholz reist in den Osten
--  Zach Wilson ruled out for Jets’ finale at Patriots. Could be end of quarterback’s time in New York
--  My Brother’s Keeper: Wednesday’s episode, 3 January 2024 [VIDEO]
--  Apple rilascia la beta 2 di iOS 17.3, iPadOS 17.3, watchOS 10.3, tvOS 17.3 e macOS 14.3
--  Tko će na čelo DORH-a?
--  U-tec Set to Unveil Smart Home Ecosystem U home at CES
--  Nasrallah: Tötung von Hamas-Anführer war Angriff Israels
--  CP NewsAlert: B.C. mother who murdered daughter, 8, dies in prison
--  Лукашенко выразил соболезнования президенту Ирана
--  Filipinas y EE.UU. lanzan otra patrulla marítima conjunta en aguas disputadas con China
--  Cerca de 40.000 alunos recomeçam as aulas sem terem todos os professores
--  Divljao Mercedesom pa pokosio pješake: Podignuta optužnica protiv 23-godišnjaka
+-  هل يمكن تغيير مسار معاملة من تعديلات شكلية إلى طلب تملك جديد؟ إحكام توضح
+-  [ŽT] „Puikiai padirbėta, vaikinai!“ Rusijos droną numušė su sovietine priešlėktuvine patranka ZU-23-2 (Video)
+-  [ŽT] „Pasekmės katastrofiškos.“ To dar nėra buvę. Zalužnas skelbia, ką padarė „Patriot“
+-  „300 raketų. 200 dronų. To nėra patyrusi jokia kita pasaulio valstybė!“ Rusija išprotėjo (Video)
+-  [ŽT] JAV baikerių gauja užpuolė garsų žydų kilmės aktorių (Video)
+-  [ŽT] „Duokite ginklų, ir mes palaidosime šitą š#@& gabalą!“
+-  [ŽT] Izraelis nejuokauja. Skelbia, kiek šiandien „Hamas“ lyderių likvidavo Beirute (Foto)
+-  Πλημμύρες και χιόνια στη βορειοδυτική Ευρώπη – Ρεκόρ ψύχους στη Σουηδία με θερμοκρασίες -40
+-  «Οι διαβολικοί εγκληματίες θα πληρώσουν» – Οι απειλές Χαμενεΐ μετά τις εκρήξεις στο Ιράν
+-  13χρονος κατάφερε το ακατόρθωτο: Έγινε ο πρώτος που τερμάτισε το Tetris (video)
+-  Από βαριά λοίμωξη αναπνευστικού ο θάνατος του 15 μηνών βρέφους στην Πτολεμαΐδα
+-  Son dakika: Cumhurbaşkanı Erdoğan Reisi ile görüştü
+-  Polat soruşturmasında son durum ne?
+-  Eren Derdiyok antrenör oldu
+-  Migrant Arrivals In Spain Nearly Doubled In 2023
+-  Majka Ane Volš: Još čekam da mi se ćerka javi
+-  Rusland en Oekraïne hervatten uitwisseling krijgsgevangenen
+-  భూ వివాదంపై వాగ్వాదం
+-  కొనసాగుతున్న అవుట్‌సోర్సింగ్‌ ఉద్యోగుల సమ్మె
+-  Upoznajte tri savršena horoskopska para
+-  Jamenei amenaza con "una dura respuesta" a los "enemigos" responsables de ataque en Kerman
+-  INSS: 165 novas doenças ligadas ao trabalho para benefícios
+-  Obradović pred derbi: Sastav će verovatno biti isti kao protiv Asvela
+-  Реджеп Ердоган: Това е чудовищна терористична атака!
+-  Viral: Alana King’s delivery reminds people of Shane Warne
+-  De grootste vangst van Israël tot nu toe: wie was Hamas-kopstuk Saleh al-Arouri?
+-  నియంతృత్వం బలపడితే ప్రజాగ్రహం తప్పదు: సీపీఎం
+-  Aandeel geannuleerde vluchten VS op laagste niveau in 10 jaar
+-  Iranski ajatolah Hamnei obećao 'oštar odgovor' posle eksplozija koje su odnele više od 100 života
+-  Любим сериал се завръща на екран, ето кога
+-  Лукашэнка падпісаў закон, які абавязвае рэлігійныя арганізацыі прайсьці перарэгістрацыю. Патрабаваньні сталі больш жорсткімі
+-  A Samsung is megvillantotta a legújabb OLED-es Odyssey monitorjait
+-  Industrial Sacks Market Expands Significantly as Eco-Friendly Packaging Takes Center Stage in Global Industries, the Market to Hit $18.6 Billion by 2029 - Arizton
+-  Gunmen target two villages in Nigeria, leaving 15 dead
+-  Mijaín López: “Se acabó la ‘fiesta’, ahora a entrenar fuerte”
+-  గర్జించిన అంగన్వాడీలు
+-  المقاومة الإسلامية تزفّ الشهيدين على طريق القدس ظاهر ودقيق
+-  Shaun Goater Praised By City Women’s Striker
+-  Castlevania: Symphony of the Night si aggiorna su Sega Saturn con la Ultimate Version 1.0
+-  5 నిమిషాలు.. 13 కిలోమీటర్లు
+-  “Harrove që çuni babit të vendoste 500 euro në ballë”, Rike Roçi i kthehet Dojnës
+-  Ein Euro Gehalt: Ex-Nationalspieler unterschreibt bei Hajduk Split
+-  సజ్జలదిన్నెలో పర్యటించిన మాజీ ఎంపీ జేసీ
+-  Girl commits suicide after parents deny permission for New Year photoshoot
+-  "Pre bezpečnosť Ukrajiny aj nás". Krajiny NATO spoločne nakúpia stovky rakiet pre obranné systémy Patriot
+-  Översvämningar tvingar skolor att stänga i Tyskland
+-  3/1/2024
+-  నిమ్నవర్గాల ఆశాజ్యోతి సావిత్రిబాయి పూలే
+-  Nieuwe columnisten Ede Stad en Bennekoms Nieuwsblad van start
+-  Diablos Locos reúne juguetes en el primer torneo murguero entre Tenerife y Gran Canaria
