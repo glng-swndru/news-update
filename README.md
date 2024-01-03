@@ -1,51 +1,51 @@
 # Latest News
--  Görsel zeka testi: Resimdeki 8 kanaryayı 10 saniyede bulabilir misin? Fenerbahçeliler bile bulamıyor
--  Mossad ajanları sorguda... MİT ifadeleri almaya başladı
--  Serbest bırakılan İsrailli esirden Netanyahu eleştirisi: "Savaşı sürdürerek rehineleri kurtaramaz"
--  Newcastle için Michel Sanchez iddiası
--  S.Leone Ex-president Charged Over 'Coup Attempt'
--  Apple Seeds Second Betas of iOS 17.3 and iPadOS 17.3 to Developers
--  Гранада удари Кадис в битка на дъното
--  Samsung is offering a free $50 credit when you 'reserve' the new Galaxy S24 phones
--  Un rehén israelí murió el mes pasado durante un intento de rescate, según el Ejército
--  Investigan posibles ventajas fiscales en el pago de la cláusla de Neymar en 2017
--  Parlamento chileno retoma discusión de esperada reforma de pensiones de presidente Boric
--  Las acciones europeas registran su peor jornada en casi ocho semanas tras un 2023 estelar
--  ProPicks se reequilibra en enero: 2 acciones para comprar y una para vender
--  El precio de Bitcoin cae más de $4000, horas después de que Jim Cramer dijera que vivirá para siempre, pero ¿por qué?
--  ÚLTIMA HORA - Fallece Roberto del Cueto Legaspi, ex subgobernador de Banxico
--  Los futuros de la soja se recuperan de mínimos desde junio
--  Israel negocia con varios países para reasentar palestinos tras la guerra en Gaza
--  নৌকার বিজয় সুনিশ্চিত করতে সবাইকে একযোগে কাজ করতে হবে: রাজি ফখরুল
--  চবিতে শিক্ষক নিয়োগ স্থগিত চেয়ে ইউজিসির চিঠি
--  কক্সবাজার-৩: আ.লীগ ও স্বতন্ত্র প্রার্থীর সমর্থকদের মধ্যে সংঘর্ষ, গুলি
--  নোয়াখালীতে আ.লীগের দুপক্ষের সংঘর্ষে আহত ২৪, গাড়ি ভাঙচুর
--  El Congreso votará el próximo miércoles la convalidación de la reforma del paro y el decreto anticrisis
--  Tekashi y Yailin La Más Viral reaparecen juntos, felices y enamorados en un club nocturno de Miami
--  6 dicas para se proteger do golpe do FGTS em pleno 2024
--  Hisbollah-Chef Hassan Nasrallah spricht nach Tötung von Hamas-Vize Saleh al-Aruri im Libanon
--  The Beauty of Uvita, with its Pristine Beaches, Lush Rainforests, and Abundant Wildlife
--  Un joven denuncia que fue violado por ocho hombres en un parque de Madrid
--  Csak decemberben 15 milliót költött hirdetésre a Megafon, hogy „digitális szabadságharcosokat” toborozzon
--  Mindenkit megkérdez a Századvég a paksi erőmű környékén az atomenergiáról
--  Cladding firm Arconic not attending Grenfell event to hear bereaved testimonies
--  Cladding firm Arconic not attending Grenfell event to hear bereaved testimonies
--  Dos regalos: una película y un libro
--  Пойтахт бюджети тасдиқланди. Маблағ қаердан олиниб, қаерга сарфланади?.
--  Бир қанча мансабдор шахсларнинг тадбиркорлик фаолиятига чек қўйилди – Антикоррупция агентлиги .
--  ООН и ЕС осъдиха терористичната атака в Иран, Турция обяви "края на атлантическата ера"
--  Россия ва Украина ўртасида асирлар бўйича йирик алмашинув бўлиб ўтди .
--  Nederlandse ijsverenigingen houden adem in, vorst én zon in aantocht: ’We zijn alert’
--  Chiefs will rest Patrick Mahomes in Week 18, Blaine Gabbert to start
--  Билетите за контролите с тима на Кристиано Роналдо в Китай бяха изкупени за часове
--  "Endlich bin ich sie los": Paul Janke schießt gegen Eva!
--  Quem tem direito ao Auxílio-doença e como pedir no novo INSS
--  نصر الله: جريمة اغتيال العاروري لن تبقى دون رد
--  خامنئي يتوعد بردّ قاس بعد التفجيرين في جنوب إيران
--  السويد تسجل درجة الحرارة الأدنى منذ 130 عاماً
--  Presidente del PJ expresa “preocupación” por intento en el Congreso de reformar sistema de justicia y destituir a jueces supremos
--  Why the first partial heart transplant hailed as a success
--  Devolución FONAVI 2024: Cuándo sale el nuevo cronograma de pagos y lista de nuevos beneficiarios
--  Xavi: "Không cần nhiều lời"
--  NEC krijgt tegenvaller te verwerken door transferverzoek: 'Het is zijn goed recht'
--  أميركا وشركاؤها يجددون الدعوة لوقف هجمات الحوثيين بالبحر الأحمر
+-  MİT'in avladığı Mossad casusları ile ilgili yeni gelişme
+-  Boluspor, 2 transferi bitirdi!
+-  Táningur verður milljóna­mæringur í kvöld
+-  Nasrallah’tan dikkat çeken açıklama: Eğer hayatta kalırsam...
+-  Kaavoitus | Hallinto-oikeus pani Stansvikinkallion katutyöt toistaiseksi jäihin
+-  Taide | Espoon modernin taiteen museo Emma rikkoi viime vuonna kävijäennätyksensä
+-  IGAD warns of Ethiopia-Somaliland deal’s ‘regional implications’
+-  Simon Castaldi annonce qu'il arrête la télé-réalité pour se consacrer à de nouvelles envies
+-  Boost productivity with Microsoft Office 2019 for Mac or Windows for just $40
+-  ميتا تطرح خيارًا جديدًا لتتبع مواقع الويب التي تزورها
+-  The best TV in 2024: Top picks from LG, TCL, Sony, Samsung, and Hisense
+-  EASYJET : JP Morgan blijft neutraal
+-  EASYJET: rating Neutral da JP Morgan
+-  EASYJET : El JP Morgan se mantiene neutral
+-  JPMorgan hebt Ziel für Easyjet auf 520 Pence - 'Neutral'
+-  Chance find fulfills 110-year mission to give ancient Nubians a voice
+-  Bengaluru court refers Wipro vs Jatin Dalal case to arbitration
+-  WINDTRE, trasparenza tecnica rete mobile: le informazioni presenti nei nuovi documenti
+-  Granada pobijedila nakon 135 dana, zabio Albanac koji će prijetiti Vatrenima
+-  Hrvatska propustila potporu za veliki energetski projekt: “Zaustavili smo sektor koji je investicijski zanimljiv”
+-  Hollywood couple sued by woman over alleged sexual assault insist claims ‘bogus’
+-  LIVE | Die heiße Phase des Grunddurchgangs
+-  Gobernador de Puerto Rico deberá dejar de utilizar popular eslogan
+-  İran Cumhurbaşkanı Reisi'nin Türkiye ziyareti ertelendi
+-  গণঅধিকার পরিষদ থেকে রেজা কিবরিয়ার পদত্যাগ, ভারপ্রাপ্ত আহ্বায়ক মিয়া মশিউজ্জামান
+-  XboxDynasty Stream: ARK: Survival Ascended ab 19:45 Uhr auf Twitch
+-  В Финляндии из-за морозов нарушилось движение поездов
+-  Grünen-Chefin zu Hochwasser: Lassen Menschen mit Kosten nicht allein
+-  Rudy Giuliani’s creditors may join forces to collect following bankruptcy bid
+-  Corinthians pressiona, mas Flamengo vê negociação por Gabigol longe do fim
+-  В Японии выросло число жертв землетрясения
+-  Calgary property assessments say median single home value jumped to $610K from $555K
+-  Uno a uno del Real Madrid ante el Mallorca: valoración y comentarios
+-  SASSA: All the social grant payment dates for recipients
+-  Nasrallah: Tötung von Hamas-Anführer war Angriff Israels
+-  Ayatollah Khamenei promete "resposta dura" a explosão que fez 103 mortos
+-  Alexis Vega no llegaría a Cruz Azul; no está de acuerdo en cláusulas por indisciplinas y rendimiento
+-  Zach Wilson’s season is over with Jets future up in the air
+-  Deichbruch-Gefahr in Hochwassergebieten - Scholz reist in den Osten
+-  Zach Wilson ruled out for Jets’ finale at Patriots. Could be end of quarterback’s time in New York
+-  My Brother’s Keeper: Wednesday’s episode, 3 January 2024 [VIDEO]
+-  Apple rilascia la beta 2 di iOS 17.3, iPadOS 17.3, watchOS 10.3, tvOS 17.3 e macOS 14.3
+-  Tko će na čelo DORH-a?
+-  U-tec Set to Unveil Smart Home Ecosystem U home at CES
+-  Nasrallah: Tötung von Hamas-Anführer war Angriff Israels
+-  CP NewsAlert: B.C. mother who murdered daughter, 8, dies in prison
+-  Лукашенко выразил соболезнования президенту Ирана
+-  Filipinas y EE.UU. lanzan otra patrulla marítima conjunta en aguas disputadas con China
+-  Cerca de 40.000 alunos recomeçam as aulas sem terem todos os professores
+-  Divljao Mercedesom pa pokosio pješake: Podignuta optužnica protiv 23-godišnjaka
