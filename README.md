@@ -1,51 +1,51 @@
 # Latest News
--  [임성재 “마스터스 우승과 6연속 최종전 출전 목표…LIV골프엔 관심없다”
--  [크고 빨라진 ‘충남병원선’ 새해 첫 뱃고동
--  [정부·지자체, 올해 창업지원에 3조 7121억원 투입
--  [경제 6단체 “50인 미만 사업장 ‘중처법 적용’ 2년 유예해달라”
--  [인권위, “시간제 교원 근무경력도 ‘교육경력’ 포함하라” 권고
--  [“난 사디스트”…고3 제자 성적 학대한 女교사, 2심서 형량↑
--  [정부, 기초과학 2조 1179억 투입…“세계 최고 R&D 도전장”
--  [“초심으로! 대선”…대선주조, 대선 소주 상표 디자인 리뉴얼
--  Hamas Deputy Leader Saleh al-Arouri Killed In Alleged Israeli Drone Strike In Lebanon
--  "Mahua Moitra Carrying Out Illegal Surveillance On Me": Advocate Dehadrai Writes To CBI
--  SK hynix to Unveil Cutting-Edge AI Memory Tech at CES 2024
--  Mirae Asset Chairman Park Hyeon-joo Pledges Significant Share Donation to Foster Korean Talent
--  HMM Unveils Supply Chain Carbon Calculator for Eco-Friendly Cargo Transport
--  12th Fail: Did you know IPS officer Manoj Kumar Sharma, IRS officer Shraddha Joshi had cameos in Vikrant Massey film?
--  Ein Tresor für Kot: Projekt will Darmbakterien retten
--  Freiberg: Stadt will über Kita-Zukunft aufklären
--  Darum dauert es mit der Erneuerung der B 169 zwischen Frankenberg und Hainichen
--  Myśl Polska: Россия успешно поразила продвинутую военную инфраструктуру Киева
--  La verdadera razón de Carmen Barbieri para renunciar a Los 8 escalones del millón
--  동두천시 '2023년 정보공개 평가' 최우수기관 선정
--  Bursa'da feci kaza: TÜGVA Genel Başkan Yardımcısı Kaya yaralandı
--  Truck drivers' protest turns violent in Surat; policeman thrashed, 23 held
--  ‘শেখ হাসিনা বলেছেন ভাই ইনু-মেনন পাশে থাকেন, যাতে পেছন থেকে কেউ গুলি না মারে’
--  Operation Yukthiya - 1,100 more drug suspects under arrest
--  قوات الدعم السريع توافق على إطلاق سراح أكثر من 400 أسير ومحتجز بعد محادثات مع حمدوك
--  Arunachal Pradesh: 4 houses, granary gutted in fire
--  Harvard: Παραιτείται η πρύτανης Claudine Gay εν μέσω καταγγελιών για λογοκλοπή
--  СМИ: в Аргентине задержали трех человек, подозреваемых в подготовке теракта
--  Synkkä jakso mäkihypyssä – tästä jättiyllätyksestä jo vuosikymmen
--  Астраханские компании начали первые поставки рыбной продукции в Азербайджан
--  '반가워 쌍둥이 판다'
--  '쌍둥이 판다 방사장 나들이'
--  쌍둥이 판다 나들이
--  에버랜드 쌍둥아 판다 루이,후이바오 일반에 공개
--  에버랜드 쌍둥아 판다 루이,후이바오 일반에 공개
--  이원조 변호사, 그림·사진으로 아름다운 세상을 담다
--  쌍둥이 판다 공개
--  쌍둥이 판다
--  공개된 쌍둥이 판다
--  '반가워 쌍둥이 판다'
--  쌍둥이 판다 루이바오-후이바오 방사장 나들이
--  루이바오-후이바오 방사장 나들이
--  쌍둥이 판다 방사장 나들이
--  쌍둥이 판다 방사장 나들이
--  '정시모집' 원서접수 시작…유의사항 및 지원전략은?
--  에버랜드, 쌍둥이 판다 공개
--  민주당, 비상의총서 "민주주의 위협하는 모든 폭력에 반대"
--  쌍둥이 판다 루이바오-후이바오
--  Rusia Hujani Kyiv dan Kharkiv dengan Rudal, Ukraina Minta Barat Tambah Bantuan Militer
--  Fintiri, Bindow, Boss Mustapha, others to receive TGnews awards
+-  [‘일장기 같은 태극기’ 노출 프랑스 방송사, 韓정부 항의에 영상 삭제
+-  [[속보] 尹대통령 “테러는 자유민주주의의 적…이재명 빠른 쾌유 기원”
+-  [서경덕, ‘일장기 같은 태극기’ 내보낸 프랑스 방송사에 항의
+-  [주식카톡방 완전무료 선언” 파격결정
+-  [프로농구 원주 DB, 사랑의 쌀 500㎏ 전달
+-  ยิปซีพยากรณ์ดวงรายวัน ประจำวันพุธ 3 มกราคม 2567
+-  Ira Khan-Nupur Shikhare wedding: Aamir Khan`s daughter opts for a no-gift policy
+-  Bigg Boss 17: Aoora`s family responds to Ayesha Khan`s claims of aggression
+-  박성민 "'이재명 피습'에 이낙연·원칙과 상식, 탈당 회군 안해"
+-  [Q&A]'19% 단일세율' 20년간 적용받을 수 있다는데
+-  외국인 근로자, 2월까지 연말정산…공제 안놓치려면
+-  여행객 늘며…온라인쇼핑 月거래 21조, '역대 최대'
+-  민주 의원 일동 "모든 종류 폭력·혐오 반대…정치인 표적 테러 규탄"
+-  러시아, 지난해 신형 T-90 등 전차 4천대 신규 공급
+-  넷마블, 신임 각자 대표에 김병규 부사장 내정
+-  Ordinary Noise Dosimeter Market by Types, Applications, Manufacturers, End User - Global Forecast 2024-2030
+-  No update on injured Iheanacho, Ndidi ahead AFCON
+-  "中 BYD, 작년 4분기 53만대 인도… 세계 1위 테슬라 첫 추월"
+-  딥서치, C레벨 전문가 2명 영입… B2B 전문 AI 플랫폼으로 확장 박차
+-  “확률 몰래 바꿔 소비자 속였다” 공정위, 넥슨에 116억원 과징금 철퇴
+-  과기정통부, 기초연구사업 추진…"혁신적 R&D로 전환"
+-  Afreximbank Pledges Finance For Enugu’s Key Projects
+-  Tag Team Title Match & More Set For Next Week’s WWE NXT
+-  ฝ่ายค้าน ประสานเสียงอัดรัฐบาลทำงบฯ ไม่ตรงปก
+-  เปิดงบฯ ปี 2567 จำนวน 3.48 ล้านล้านบาท กับ 6 ยุทธศาสตร์ 63 แผนงาน
+-  Multi Beam Interferometer Market - Global Industry Perspective Comprehensive Analysis And Forecast, 2024 - 2030
+-  Enfrenta Gloria Trevi nueva demanda por explotación sexual
+-  Convoca Morena a Jucopo por ratificación en FGJ
+-  Se desintegra caravana en Chiapas tras promesa del INM
+-  Reabrirá CBP puertos fronterizos en Arizona, Texas y California
+-  Hieren a tiros a hombre y a una menor de edad
+-  Acumulación de gas LP causa explosión
+-  সংসদ নির্বাচন: মাঠে নেমেছে সশস্ত্র বাহিনী
+-  Telegraph: Запад может отказаться от Украины из-за успехов России
+-  بالخطوات.. كيف يمكنك تركيب الواي فاي في السيارة؟
+-  Taylor Swift, Miley Cyrus, SZA team up to top U.K. Music Chart
+-  ‘শাকিবকে ছাড়া আমি কাকে নিয়ে ছবি বানাবো?’
+-  Manual Shut-Off Valve Market Size, Growth, Forecast 2024-2030 (By Type, By application, By Company)
+-  Why not CBI probe: HC
+-  ফিরলেন উইলিয়ামসন, বিশ্রামে রাচিন
+-  품종 바꾸고 도정일 속여…양곡 부정유통 정미소·유통업자 15곳 적발
+-  LEDARE: Europas säkerhet kräver Tysklands upprustning
+-  Clear $7bn debt, manufacturers beg FG
+-  Jimmy Kimmel acusa de difamación a Aaron Rodgers por vincularlo con Jeffrey Epstein
+-  LEDARE: Jägar’n kommer!
+-  Jelang Pemilu 2024, Sejumlah Raperda Jateng Digenjot
+-  Vande Bharat: சென்னை - மைசூரு இடையே வந்தே பாரத் வாராந்திர சிறப்பு ரயில்.. இன்று முதல் இயக்கம்..
+-  Numerology Today 3 January 2024 : आजचा दिवस 'या' जन्मतारखेच्या लोकांसाठी शुभ; होणार धनलाभ
+-  Samsung stellt die Gaming-Monitorreihe Odyssey OLED 2024 vor: G9 49″ gebogen, G8 32″ flach 4K und 240 Hz, G6 27″ QHD und 360 Hz
+-  이재명 피습 범인, 작년 민주당에 위장가입?
