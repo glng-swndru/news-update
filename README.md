@@ -1,51 +1,51 @@
 # Latest News
--  5 неща, които убиват секса
--  Love is Blind Season 5 Contestant Suing Netflix Over ‘Traumatic’ Experience with Reality Show
--  Dez cidades do Acre já registram casos de Oropouche e Mayaro; número de infectados passa de 60
--  ارتفاع ضحايا العدوان الصهيوني على غزة الى 22.313 شهيد و57.296 جريحاً
--  ¡Entre los mejores! Julián Araujo quedó en el XI ideal de la mejores ligas europeas
--  Bebê com meningite morre em Alagoas; é a primeira vítima da doença em 2024
--  충남 공주시 단독주택서 불…3천만 원 피해
--  서용주 "이재명 피습은 암살 시도, 피의자 당적? 중요치 않아"[한판승부]
--  "Il ne va pas bien" : le fils d'Alain Delon estime que l'acteur a peut-être vécu "son dernier Noël"
--  اغتيال العاروري انحطاط مدو لسلوك سياسة العدو الصهيوني ضد أبناء فلسطين
--  العلماء الروس يطورون أدوية تعتمد على البكتيريا النافعة لمعالجة الجروح
--  Capivara faz lago de praça no centro de Campinas de moradia e chama atenção de moradores
--  दशरथ दीप : जहां श्रीराम करते थे पूजा, वह स्थान दुनिया के सबसे बड़े दीपक से होगा रोशन, गिनीज बुक के लिए तैयारी
--  السيد نصر الله: محور المقاومة يلتقي على رؤية استراتيجية.. وطوفان الأقصى كسر صورة «إسرائيل»
--  칠곡군, 계약 원가 심사로 31억원 절감…263건 심사
--  Francisco Arredondo regresa al Dakar en busca de nuevos desafíos
--  Γιατί στην ΑΕΚ να παίζει ο Μοχαμάντι και όχι ο Πήλιος
--  Las ventas de autos en EEUU en 2023 se recuperaron y llegaron a 15,5 millones de vehículos
--  TUČA NASRED ULICE U BEOGRADU! Haos u Žarkovu, devojka pokušava da razdvoji besne muškarce (VIDEO)
--  On last show for Brendan Hains
--  UN: Brodovi 18 pomorskih kompanija izbegavaju Crveno more da ih ne napadnu Huti
--  PSG giành Siêu cúp Pháp sau chiến thắng nhẹ nhàng trước Toulouse
--  «Жирона» – «Атлетико» – 4:3. Мартин забил на 90+1. Онлайн-трансляция
--  ردود فعل عربية ودولية غاضبة تدين الإرهاب بجميع أشكاله
--  Iggy Azalea Calls Quits On New Album, Cites Lack of Inspiration
--  Ian Ziering Street Fight Unprovoked by Bikers, So Claim Riders with Crew
--  Oppsiktsvekkende Virgil-statistikk ble dratt opp før Newcastle-seieren
--  Trump se žalio na odluku Mainea koja mu zabranjuje kandidaturu na izborima
--  Παναθηναϊκός: Ο Τερίμ έδωσε το στίγμα του – Αυτό αλλάζει
--  Спикер Палаты представителей Конгресса США назвал катастрофой ситуацию на южной границе
--  10 مجازر إسرائيلية في غزة ضحاياها مئات الفلسطينيين خلال ساعات
--  유산소 못지 않은 ‘근력 운동’의 3가지 특장점
--  اليمن يدين التفجيرين الإرهابيين بمدينة كرمان الإيرانية ويؤكد تضامنه الكامل مع طهران
--  عضو السياسي الأعلى الحوثــي لـ “قناة TRT”: أمـريكا هي من تهــدد الملاحة الدولية ومستعدون لكل الخيارات
--  Kogi poll: APC asks INEC to suspend inspection of election materials, redeploy REC
--  Wednesday's Child 15-year-old Aubrey wants to be adopted by a rock music-loving family who will support her love of singing
--  Trump Asks Supreme Court to Keep Him on Colorado Ballot
--  Trump asks US Supreme Court to review Colorado ruling barring him from the ballot over Jan. 6 attack
--  Son of late Scots crime kingpin Jamie Daniel ‘attacked behind bars by a rival drug dealer’
--  '이강인 결승골' PSG, 툴루즈 꺾고 프랑스 슈퍼컵 우승
--  الكشف عن المرشحين للتشكيلة المثالية لعام 2023.. أين محمد صلاح؟
--  "Мы просто мясо". На Украине выяснили, почему придется проиграть России
--  تأهب إسرائيلي بعد اغتيال العاروري ومخاوف من حرب شاملة
--  Ligas Caribeñas contratan a once venezolanos para reforzar su equipo
--  Death and Other Details Trailer: Mandy Patinkin Leads Hulu Murder Mystery Series
--  Scottie Scheffler nombrado por segundo año consecutivo Jugador del Año en el PGA Tour
--  How drinking sustainable wine can help vineyards and the planet
--  Suudiler Lahey'e gidiyor
--  İşgalcinin Kongo planı
--  Pavlovic'te zorlu rakipler
+-  Sancionan a exsecretaria general de la ANT por sobrecosto en contrato
+-  Álex Char habló con Petro para recuperar sede de Panamericanos y pide no perder la esperanza
+-  Lluvias intensas: Minsa monitorea estado de establecimientos de salud en regiones
+-  “골키퍼들 키가 커졌으니까 골대 크기를 늘리자”... 레전드 골키퍼의 혁신적인 발언
+-  Primer Consejo de Ministros del año abordó prioridades para impulsar la economía
+-  Gas Explosion: Traditional Ruler Urges LASEMA To Probe GM Of National Theatre
+-  Millionaire’s wife ‘annoyed’ at £8k a month ‘hair and skin allowance’ – because son, 2, gets ‘much bigger’ payout
+-  Thời tiết hôm nay 4-1: Bắc Bộ chìm trong gió lạnh, Nam Bộ ngày nắng
+-  Tin tức sáng 4-1: Chiêu mộ tài xế góp xe chạy taxi dịp Tết
+-  Tin tức thể thao sáng 4-1: Djokovic thua sốc ở Úc; Real Madrid vươn lên dẫn đầu La Liga
+-  김 의장, 신년 기자간담회…쌍특검·이태원특별법 견해 주목
+-  Cúm mùa tấn công, ai dễ chuyển nặng?
+-  ¿Adiós a los vasos? Starbucks permitirá a los clientes usar sus propias tazas
+-  Año Escolar 2024 en Perú: revisa el calendario y cuándo inician las clases, según Minedu
+-  El Girona descarta al Atlético y sostiene el mano a mano con el Madrid
+-  Dr Parihar conferred with RASSA fellow award
+-  [Stock Markets] Jittery Start to 2024 Markets Underscores Investor Caution
+-  Tras exitosa avant premiere: «Wish; el poder de los deseos» desde mañana en todos los cines del país
+-  Australian travellers describe moment Japan Airways flight explodes in flames on Tokyo tarmac
+-  Christian students denied their right to freedom of expression
+-  ESPN BET Promo Code NEWSWEEK: Score $150 Guaranteed Bonus for NBA, NFL
+-  SK 9연승 질주…김선형, 집념의 '묘기슛'
+-  Ngành nông nghiệp tỉnh Nam Định đạt giá trị sản xuất hơn 22.000 tỷ đồng năm 2023
+-  Consejo de Seguridad de la ONU piden a hutíes finalizar ataques contra sector marítimo
+-  Bolsa de São Paulo avanza un 0,10 % en su primera subida del año
+-  Gleisi critica CPI com foco no padre Júlio Lancellotti: “Absurdo”
+-  USA: Trump wendet sich im Streit um Teilnahme an Vorwahl an Supreme Court
+-  The most wicket-filled opening day in 122 years
+-  'He punched him in the face multiple times': Auburndale man arrested after intentionally ramming vehicle, punching another driver
+-  Indecopi sanciona por concertar precio del agua embotellada en Puerto Maldonado
+-  남성욱 "김정은, 트럼프와의 정상회담 오매불망 기대할 것"[한판승부]
+-  출근길 반짝 추위, 낮은 어제보다 따뜻…주말 다시 한파
+-  Nokian KrP pilasi SPV:n synttärit
+-  Kataja ja Kobrat palasivat voittojen tielle
+-  Suomalaisilta mäkikotkilta heikkoja siivuja – näin valmentaja kommentoi
+-  Devotional song ‘Rang Tera’ released
+-  Claudia Sheinbaum visitará Coahuila previo al Día de Reyes
+-  Where to Find Affordable Makeup and Lashes for Makeup Artists
+-  Holy Ten exposed: Michael Magz revealing interview with Ollah 7 Podcast
+-  Luke Humphries gewinnt Darts-WM: Finalsieg über Luke Littler
+-  '태양광 비리 의혹' 전 산자부 과장 등 구속영장 모두 기각
+-  이강인 시즌 3호골…'첫 우승 기쁨'
+-  고우석, 샌디에이고행…이정후와 '가족 동반 진출'
+-  La primera selección de fútbol eliminada del Mundial 2026
+-  De Minaur festeja triunfo sobre Djokovic: "Venci o melhor de todos os tempos"
+-  La polémica de las pelotas en la ATP: ¿Eso lesionó a Djokovic?
+-  JKTJAC delegation meets DSEJ, discusses issues of teachers
+-  أول طلاق في 2024.. هند عبد الحليم تنفصل عن زوجها بعد زواج استمر 3 سنوات
+-  يصغرها بـ 15 سنة: لأول مرة زوج نجوى كرم الاماراتي يظهر معها.. شاهدوا كيف قبّلها أمام الناس – (فيديو)
+-  Fiscal Chong responde a Ricardo Yáñez: “No podríamos tener resentimiento respecto de una persona jurídica”
