@@ -1,11 +1,11 @@
 # Latest News
--  2024 ek MTV alınacak mı? DMM resmen duyurdu: İşte araçlara göre ödenecek MTV listesi
--  PM promises cost of living relief in May budget
--  보험 들고 흔들리는 치아 뽑았다가 ‘낭패’... 보험금 못 받는다고?
--  한동훈 비대위원장, 인재영입위원장 직접 맡기로…이철규와 공동
--  금감원, 불법 공매도 등 민생침해 금융범죄 대응 강화…특사경 증원
--  윤여준 "박근혜, '커터칼 피습' 뒤 첫마디 '대전은요?'…참모진 아이디어"
--  Late cameo from Warner show as Pakistan fightback frustrates Cummins and Australia
--  Late cameo from Warner show as Pakistan fightback frustrates Cummins and Australia
--  Alleged gunman charged with murder in gangland shooting
--  How Web3 is empowering Indian developers, creating a global tech hub in India
+-  Za valorizaciju Đalovića pećine i Cmiljače potrebna pomoć Vlade
+-  海怡半島海景4房套 獲區外客以3.4萬元承租 回報6.9厘
+-  Boeing: Eine vermisste Mutter offenbart die tiefen Probleme des Flugzeugherstellers
+-  부산 다대동 한진重 용지 개발 본격화
+-  허윤홍 GS건설 CEO "현장에 문제·답 있다"
+-  올 서울입주량 역대 최저 둔촌주공 나와도 전세 불안
+-  용산국제업무지구 옆 '알짜땅'도 나왔다
+-  ‘짱구·코난·통통이’에 난리 난 2030…지갑문 활짝 열었다, 왜?
+-  מ.ס. אשדוד מתכוננת "לסנסציה של העונה". כנעאן וגיל כהן יפתחו
+-  איפה עובר הגבול? קניה ווסט הפשיט את אשתו והעלה את התמונות
