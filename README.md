@@ -1,51 +1,11 @@
 # Latest News
--  Jenni Hermoso ratifica al juez que el beso de Rubiales no fue consentido y tuvo presión
--  צפירת הרגעה בנאום נסראללה: חיזבאללה מורתע ולא מעוניין בהרחבת הלחימה
--  ניסיון הדחת נתניהו נכשל, אך נוצר ציר התנגדות שימנע ממנו להקדים את הבחירות
--  ["내 아이라 속여 결혼했는데"…이혼 후 아내에게 양육비 줘야할까?
--  ["꼭 XX로 찔러 죽인다"…배달음식 식었다고 '살인예고' 협박
--  [교사 아동학대 신고 문턱 높이자…3개월 간 신고 60% 급감했다
--  [DGB대구은행, 새해 전국 8개 지역본부와 사회공헌활동 진행
--  AB ve BM'den, İran’da düzenlenen terör saldırısına kınama
--  Departamenti i Shtetit thotë se nuk ka parë akte të gjenocidit në Gazë
--  تركيا: معدّل التضخّم يقترب من 65٪
--  18 شركة شحن غيرت مسارها إثر الهجمات بالبحر الأحمر
--  Real Madrid raapi arvokkaan voiton La Ligassa
--  Threats made to capitols in at least 5 states prompt evacuations, searches
--  Aydın'da evde yangın çıktı: Bir kişi yaralandı
--  Yedi yaşındaki Ferdi yedi saat arandı: Dağda uyurken bulundu
--  Veliki preokret Baskonije, Virtus bolji od Bajerna
--  Milatović obrazložio zašto je vratio Skupštini zakone
--  Porasla potrošnja na nove građevinske projekte u SAD-u
--  Aposentadoria no INSS: Aos 53 anos de idade, como dar entrada em um pedido?
--  ¿Un ratón malo? Anuncian dos películas de terror de Mickey Mouse después que quedara en dominio público
--  Μπαρτσελόνα - Ρεάλ Μαδρίτης 83-78: Ματ στο clasico με... πύργο Βέσελι
--  Chamber of Commerce CEO Criticizes Canadian Foreign Policy, Says Canada ‘Unserious’ Player on World Stage
--  Tetris tarihinde bir ilk!
--  La Junta impulsa un plan para potenciar al sector industrial del agua frente a la sequía
--  El Gobierno de Maduro muestra su desacuerdo con la decisión de la corte argentina de confiscar el avión de Emtrasur.
--  PSX gains 297 points
--  염정아, 美 캘리포니아서 식혜로 '대박'
--  Gold rate down by Rs1,300 per tola
--  Forexlive Americas FX news wrap: Dollar fades as Treasury yields reverse lower
--  De Panamá a Matute: Alianza Lima hizo oficial el fichaje de Waterman para la temporada 2024
--  AKP'de ilk adaylar açıklanıyor: Ömer Çelik tarih verdi
--  Gempa M 4,6 Guncang Kabupaten Kaur Bengkulu
--  Es oficial: CL-FPF determinó que Deportivo Municipal jugará la Liga 2
--  Govt Launches Probe As Fire Guts Kwara COVID-19 Centre
--  Rupee gains 17 paisas against dollar
--  Toàn cảnh vụ máy bay Nhật Bản phát nổ: Cú va chạm kinh hoàng trên đường băng và phép màu 90 giây giúp cứu sống gần 400 hành khách
--  La Justicia argentina ordena decomiso de avión venezolano-iraní solicitado por EE.UU.
--  A Jewison Bennette le salió carísima su ‘patada voladora’ a aficionado de Saprissa
--  “레반도프스키 대체자로 홀란드를 영입하고 싶다”... 바르셀로나 에이스의 소신 발언
--  Año escolar 2024 ya tiene fecha de inicio a nivel nacional: este es el día elegido por el Minedu
--  إبراهيم سعيد: فودا وجون فان يتنافسان على تدريب الزمالك
--  Dólar: cotización de cierre hoy 3 de enero en México
--  ¿Quién es el futbolista más valioso de la Liga 1 2024?
--  Gaza suma cientos de víctimas mientras la tensión crece en la frontera con Líbano
--  With Star Trek movies leaving Paramount Plus causing confusion, the case for DVDs gets Trekkie support
--  UNICEF Gazze'deki yetersiz beslenme sorununa dikkat çekti: "Zaman daralıyor"
--  Samet Akaydın'a sürpriz talip! Fenerbahçe'de ilk ayrılık çok yakın
--  Ancelotti: Arda Güler yakında süre alacak
--  1-0. Rüdiger salva el clásico tropiezo de enero
--  BM: Kızıldeniz'deki saldırılar gerilimi artırıyor
+-  حسام بن سعود يدشن فعاليات هيئة التراث ويطلق «شتاء الباحة 2024»
+-  المملكة: تنديد ورفض قاطع للتصريحات المتطرفة لوزيرين في حكومة الاحتلال الإسرائيلي
+-  تمكين المرأة بإلهام الرؤية
+-  لماذا نحن عاطفيون في تقييم سائقي «التطبيقات» ؟!
+-  291 طالباً يصقلون مهاراتهم ومواهبهم في الجبيل
+-  إسرائيل وحماس في حاجة لحرب طويلة !
+-  القطاع السياحي يؤتي أكله
+-  ​Compra de ações dos CTT foi apresentada ao BE e PCP, mas nenhum partido mostrou interesse
+-  معدات حديثة لكشط أسفلت الطرق بالمياه
+-  السعودية ترفض بشكل قاطع التصريحات المتطرفة لوزيرين في حكومة الاحتلال الإسرائيلي
