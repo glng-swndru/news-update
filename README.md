@@ -1,11 +1,11 @@
 # Latest News
--  [속보] 경찰, 이재명 대표 습격 60대 김모씨 자택·직장 압수수색
--  강원양돈농협 연탄 2000장 후원
--  속초전문건설협회 애향장학금 기탁
--  화촌면새마을회 성금 기탁
--  양양소방서 시무식
--  윤 대통령 "테러는 자유민주주의의 적… 이재명 대표 쾌유 기원"
--  영월군, 올해 농촌유학생 전년 대비 2배 이상 증가
--  [속보] 한동훈, 인재영입위원장 겸임… "이철규 전 위원장도 함께 일할 것"
--  당정 "영세소상공인 업체당 전기료 20만원 감면"
--  "강원겨울축제 제대로 즐기자" 홍천강꽁꽁축제 5일 개최
+-  Днес трябва да се мисли само положително и да не се работи много
+-  강력범죄 증가세…이상행동탐지·지능형CCTV 등 AI 보안 ‘주목’
+-  유럽연합 ‘의료기기규정(MDR)’ 대응 필요...제이앤피메디, MDR 대응 컨설팅 서비스 제공
+-  Bugün Aralık 2023 enflasyon oranı ne zaman, saat kaçta açıklanacak? Gözler TÜİK'te!
+-  PMU-Mali : Programme officiel du jeudi 04 janvier 2024
+-  غزہ فلسطینیوں کی سر زمین ہے اور رہے گی، امریکی محکمہ خارجہ
+-  গাজীপুরে ইউনিয়ন পরিষদ কার্যালয়ে আগুন
+-  وطن عزیز کا انتخابی ماحول
+-  A Cautionary Note on India Dispatching Warships to Counter Houthi Attacks
+-  South Korean police raid house of suspect who stabbed opposition leader Lee in the neck
