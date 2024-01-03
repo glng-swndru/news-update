@@ -1,11 +1,11 @@
 # Latest News
--  Rentnerin stirbt bei Wohnungsbrand in Eibenstock
--  Langsame Digitalisierung: Khan sieht Standort in Gefahr
--  Edmonton baut Siegesserie aus: Draisaitl mit Tor und Vorlage
--  Reversibilità 2024: arrivano nuovi tagli? I limiti di reddito (aggiornamento 3 GENNAIO)
--  인셀덤, 신제품 '콜라겐 100 멜팅 시트' 선보여
--  Çin tıbbının göz bebeği tarif! Öksürük ve soğuk algınlığı size asla uğramıyor
--  Hakim Ziyech'ten 49 milyon TL tasarruf
--  Diyarbakır'da şarjda kalan telefon dehşet saçtı: 5 kişi yaralandı
--  Küresel piyasalar karışık seyrediyor
--  Kızıldeniz'de hareketli dakikalar! ABD: 2 gemisavar füzesi atıldı
+-  ‘Bayğaralar’ suç örgütü üyesi 4 kişi, villada yakalandı
+-  Knox Platformu kullanıcılara güvenilir bir deneyim sunuyor
+-  Honor Magic6 Pro’nun tasarımı sızdırıldı
+-  Kullanılmayan aboneliklerden kurtulun
+-  Vekil sayısı 19'a düşen Saadet'ten CHP'ye önemli ziyaret
+-  Son dakika! Milyonlarca memur ve emeklinin beklediği rakamlar belli oldu... TÜİK Aralık enflasyonunu duyurdu
+-  Ισραήλ: Προετοιμάζεται για «κάθε σενάριο» μετά την επίθεση που σκότωσε τον 2ο τη τάξει της Χαμάς
+-  קומסיין בבשורה גדולה ללקוחות: זה הפיתוח שיקל עליכם
+-  כוכב הישרדות הותקף על מדים: "סטודנטית ירקה עליי, אני בהלם"
+-  המשבר בהייטק הישראלי: ירידה של עשרות אחוזים בהשקעות ב-2023
