@@ -1,51 +1,11 @@
 # Latest News
--  Başkentte sokak hayvanları toplatılıyor
--  Aşkından ölse dahi kadınları soğutan davranışlar! Ayrılık kararı alıyorlar, geri dönüşü yok
--  Zonguldak'ta batan geminin kayıp personelleri aranıyor
--  Kuruluş Osman bugün yok mu? Kuruluş Osman 143. bölüm ne zaman?
--  Zamlı emekli maaşları ne zaman yatacak? 2024 Emekli maaş farkı ne zaman ödenir? İşte tahsis numarasına göre ödeme günleri
--  Beşiktaş, Marko Simonovic transferini duyurdu
--  Bayrampaşa Belediyesi binasında yangın çıktı
--  Türkiye'den Güney Afrika'ya destek: İsrail hesap verecek
--  İran'da Kasım Süleymani'nin mezarı yakınında patlama
--  Devrim Özkan Lucas Torreira rotasını Ege'ye çevirdi... Tatil kareleri çok beğenildi
--  Fenerbahçe stoperini buldu! Stefan Savic için geri sayım
--  Protein barı etkisinde narlı yeşil mercimek salatası! İştah kapatıyor, zayıflatıyor
--  Explosioner vid Soleimanis grav – 20 döda
--  Emily Atack’s stepcousin, known to the star for nearly 30 years, is revealed as her unborn baby’s father
--  Her gün 1 bardak ılık ballı su içmek neye iyi gelir?
--  المقاومة تنفذ عملية مشتركة ضد جنود الاحتلال في غزة
--  It’s the thought that counts
--  El Banco Nación de Argentina será privatizado por el Gobierno de Milei para mejorar su eficiencia
--  Đoković: Mislim da će biti u redu
--  Chengdu Hi-tech Zone Jiaozi Avenue Metaverse District Opens on the 1st Day of the New Year
--  Nano Labs Announced Updates to Holders of ADRs Regarding Amendment to the Deposit Agreement and Termination of ADR Facility
--  Brii Biosciences Appoints Dr. Brian Alvin Johns as Chief Scientific Officer
--  Seeing Machines to showcase cutting edge interior sensing technology at CES 2024
--  “Mançester Yunayted”in futbolçusu alman klubuna keçir
--  Global Times: China practices wise foreign policy in managing relations
--  荣耀X50 GT品质性能双在线 满帧战神硬核打造档位品质王者
--  "Торпедо" сыграет на домашней арене против "Куньлунь Ред Стар"
--  รวบทันควันผัวติดยา-หึงโหด เมาทะเลาะเมียล็อคคอจนขาดใจตายต่อหน้าลูกเลี้ยง
--  رغم إعلان الحكومة استجابتها لمطالب نساء ورجال التعليم، تنسيقيات تواصل الاحتجاج
--  نادي سعودي يقدم عرضا ضخما لخطف مدافع المنتخب المغربي
--  "صحة غزة": ارتفاع حصيلة الحرب إلى 22 ألفا و313 شهيدا
--  "المستشارين" يصادق بالإجماع على مشروع التعويض عن حوادث الشغل
--  شباب الريف الناظوري يحقق نجاحا باهرا في دوري CUP NADOR 2024
--  مطار تطوان يستقبل أكثر من 237 ألف مسافر خلال السنة المنصرمة
--  افتتاح خط جوي مباشر جديد بين طنجة والقاهرة
--  المنتخب المغربي يجري أول حصة تدريبية استعدادا لكأس إفريقيا
--  اسعار صرف العملات الرئيسية خلال اليوم الثلاثاء
--  توقيع اتفاقية ثنائية بين محكمة النقض والمديرية العامة للأمن الوطني لتعزيز التعاون والشراكة (صورة)
--  مكتب الصرف يمدد آجل الإقرار بالممتلكات والحسابات البنكية المفتوحة خارج المغرب
--  صندوق الضمان الاجتماعي يطلق التسجيل بنظام "أمو الشامل"
--  Казахстан с 9 января отменяет туристический сбор для иностранных граждан
--  Medidas anunciadas por Haddad oneram setor produtivo e ameaçam empregos, diz Firjan
--  Дандыкин предрек скорое применение в зоне СВО искусственного интеллекта
--  Brice Clotaire Oligui Nguema:« L’accent doit être mis sur le quotidien des Gabonais »
--  Mandian Sidibé, DG OGP : « Je n’ai licencié personne, on est en difficulté »
--  Faltan técnicos ‘Made in México’; sólo dirigirán cuatro
--  Inter de Milán firmó al reemplazo de Cuadrado: el colombiano no se ha recuperado de sus lesiones
--  Германия не готова поставлять Украине ракеты Taurus – заявление
--  Elevan a 73 los muertos tras el terremoto en el oeste de Japón
--  Estatus de la calidad del aire en Cerro Merquín este 3 de enero de 2024
+-  صنعاء تؤكد: أي اعتداء أمريكي لن يمر دون رد
+-  9 أحداث سماوية مذهلة يمكن رؤيتها ليلاً في 2024.. ماهي
+-  إيران: مقتل 20 شخصا على الأقل بانفجار خلال مراسم إحياء ذكرى مقتل سليماني
+-  Mersin'in düşman işgalinden kurtuluşunu "Zafer Yürüyüşü" ile kutladılar
+-  Ahmet Nur Çebi, hakkındaki iddialara cevap verdi! "Art niyetli bir gayrettir"
+-  Dünya devlerinden Türkiye açıklaması: Dinamikler TL lehine döndü
+-  Hormonal Imbalance: અનિયમિત પિરિયડ્સનું કારણ છે હોર્મોનલ અસંતુલન,આ કુદરતી ઉપચારથી કરો
+-  At least 20 killed in blasts near Iranian Guards commander Soleimani’s tomb during ceremony
+-  ‎صدور موافقة خادم الحرمين الشريفين لاستضافة 1000معتمر
+-  Wyprzedaż polskich aktywów. Briefing rynków światowych
