@@ -1,11 +1,51 @@
 # Latest News
--  Niemieckie MSZ krytykuje izraelskie pomysły dotyczące Strefy Gazy
--  Przetarg na zbożowy terminal może trafić na unijną wokandę
--  Medialna zgoda polityczną utopią
--  Borys: Trzeba brać odpowiedzialność za to, co samemu się robi
--  Najwięcej upadłości jest w przetwórstwie i handlu
--  Coraz niższe prognozy inflacji, coraz wyższe prognozy płac
--  Przez komisy przewinęło się ponad 2 mln używanych aut
--  Jak zwiększyć bezpieczeństwo prawne firm
--  Top 5 tegorocznych dotacji dla firm
--  WIG obrał kurs na 100 tys. pkt
+-  İran Dini Lideri Ali Hamaney: Bu felaketin karşılığı çok sert olacak
+-  Son dakika! Ömer Çelik duyurdu: Büyükşehir adayları Pazar günü açıklanacak
+-  Carling Black Label Cup: Football and music collide in showdown!
+-  Terim-Erzan mesajlaşmasında fon detayı
+-  Kinder zurückgebracht: Europäischer Haftbefehl gegen Christina Block | Regional
+-  Rescataron a los 31 migrantes secuestrados en Tamaulipas y esto sabemos
+-  الحكومة تكشف دوافع تحريك أسعار الكهرباء والبنزين والمترو
+-  زيادة الأسعار مستمرة في 2024.. "متحدث الحكومة" يكشف موعد تحسن مؤشرات الاقتصاد
+-  "بسبب الوضع الأمني المتقلب".. ألمانيا وكندا تطالبان رعاياها بمغادرة لبنان
+-  Scheffler beats LIV's Rahm to PGA Tour player award
+-  Dictaron una medida cautelar que suspende la reforma laboral incluida en el DNU de Milei
+-  Autoridades mexicanas identifican a hondureños entre los 31 migrantes secuestrados
+-  „Sie hat es selbst in der Hand“: Sprecherin der letzten Generation erhält eine Bewährungsstrafe
+-  Kickoff | Boost for Bafana as Mali hit by injury crisis
+-  Hisbollah greift Ziele in Israel an – und warnt vor Eskalation
+-  Gerry Turner and Theresa Nist’s Guests Tease Golden Wedding Ceremony
+-  Ünlü şarkıcıdan kahreden haber: Kansere yakalandı! Tedavi görüyordu, hastalığını resmen açıkladı
+-  تطلعات‮ ‬تنظيمية‮ ‬للعام ‮‬2024م
+-  Meble do domu – gotowe zestawy czy meble na zamówienie?
+-  Во Турција почна првото големо судење за уривањето на зградите во земјотресот
+-  البيان الصادر عقب اجتماع الحكومة
+-  НАТО Европа осмони мудофаасини мингта Patriot ракетаси билан кучайтиради – ОАВ .
+-  Аргентина президенти Буюк Британияни Фолкленд оролларини қайтаришга чақирди .
+-  Фарғонада содир бўлган ЙТҲда 2 киши ҳалок бўлди.
+-  Tesla электромобил савдоси етакчилигини Хитой заводига бой берди .
+-  Xavi na tužan način objasnio teško stanje u Barceloni: ‘Nažalost, mi sebi takva dva igrača ne možemo priuštiti‘
+-  Son dakika! AK Parti Sözcüsü Çelik: İlk adayları 7 Ocak'ta açıklayacağız
+-  Der mysteriöse neue Porsche Taycan übertrifft die Rundenzeit des Tesla Model S Plaid Track Pack auf dem Nürburgring
+-  Pijany 72-latek się awanturował, więc policjanci zostawili go w lesie. Jest śledztwo prokuratury
+-  January Rookie Idol Group Brand Reputation Rankings Announced
+-  News24 | Here are the Daily Lotto numbers
+-  Report: Rams will sit Matthew Stafford, start Carson Wentz vs. 49ers
+-  Completan trabajos en estación de trenes Merritt 7
+-  Si të mos shtoni në peshë gjatë dimrit
+-  John Parker named new CEO of First Tee - Savannah
+-  Lecce maakt haast met Dilrosun: dit aanbod zou Feyenoord in beraad hebben
+-  DeSantis Keeps Getting Asked: Why Won’t He Directly Criticize Trump?
+-  Borkai Zsolt: Biztosan nem fogok visszalépni Dézsi Csaba András javára
+-  OM: dode man in Leek overleed niet door geweld
+-  "الشبكة الإقليمية" تطلق تصنيفها المهني وتنظم ملتقى الشخصيات الأكثر تأثيرًا في المسؤولية المجتمعية
+-  Janhvi and Khushi Kapoor recall staying strong post mom Sridevi`s passing
+-  13-year-old becomes first player to ever “beat” NES Tetris
+-  Compra de ações dos CTT cumpriu requisitos legais
+-  Ministri i Jashtëm britanik e nis vitin 2024 me vizitë në Kosovë, nesër pritet nga Osmani
+-  Gobierno peruano responderá a la Corte IDH por indulto a Fujimori
+-  Димитров: Ќе покренеме иницијатива да се донесе закон за изградба на Чебрен со домашни сили
+-  La CGT celebró el fallo que puso freno a la reforma laboral del DNU 70 de Javier Milei
+-  Descans a Fontajau: el València domina a l'Uni (18-26)
+-  Ilveksen kotituska jatkui myös vuoden ensimmäisessä ottelussa
+-  Keine weiteren Grafikkarten nötig? Leaks deuten auf AMD-Durchbruch hin – DER STANDARD
