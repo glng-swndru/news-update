@@ -1,11 +1,11 @@
 # Latest News
--  Trăng tròn đầu tiên và hai kỳ nguyệt thực của năm 2024 diễn ra lúc nào?
--  More than 70 per cent of Canada is 'abnormally dry.' Here's why
--  Ảnh nét căng Chi Pu trên sân khấu cùng Huỳnh Hiểu Minh: Visual bắt góc nào cũng đỉnh!
--  TUCP stands ready to partner with Office of Special Assistant to President for Investment and Economic Affairs (OSAPIEA) Sec. Frederick Go towards pro-labor rights pivot to make Philippines priority investment destination
--  الاغتيال باستخدام الطائرات المسيّرة.. ماذا نعرف عن تقنياته؟
--  The Shamrock Children: German refugees who found shelter in Ireland after WWII
--  Ayodhya: अयोध्या में राम मंदिर को लेकर बीजेपी ने बनाया ये मेगा प्लान, Video
--  "메시가 부르면 꼭 가야 하나요? 전 안 가요!"…아르헨티나 DF, 당당히 메시의 요청 거부! 메시보다는 아르헨티나 '명가' 선택
--  김하성이 치고, 고우석이 막는다... 고척에서 이 모습을 볼 수 있다 '韓 야구팬 기대감 폭발'
--  심형탁 "장모님과 5살 차이…♥사야에 화장실도 허락 받고 가" [옥문아]
+-  חברת MedOne במינוי מרענן: זה מנהל המכירות החדש
+-  בשורה נפלאה לתושבי ירושלים: פארק הייטק חדש יוקם בקרוב בעיר
+-  יצחק תשובה בעסקת ענק: רוכש מניות ב-20 מיליון שקל מהחברה הזו
+-  המחירים בסופרמרקטים יירדו ב-10%? הרפורמה החדשה נחשפת
+-  מותג הדרמו קוסמטיקה סבוקלם בקמפיין חדש: "לא משחקים בעור"
+-  פאולה וליאון נפרדים מקשת 12? זו הסיבה שהתכנית ירדה
+-  נתיבי איילון נחסמים הרמטית לתנועה: בשורה איומה לנהגים בישראל
+-  العلماء يحولون الفضلات البشرية إلى وقود للطائرات
+-  צפו: גיא זו-ארץ בשיחה מצמררת עם אחותו על בנה שנרצח
+-  "זה רק עניין של זמן עד שמישהו ייקח סכין ויתקוף יהודים": זינוק חד בגילויי האנטישמיות ברשתות החברתיות
