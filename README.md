@@ -1,11 +1,11 @@
 # Latest News
--  صنعاء تؤكد: أي اعتداء أمريكي لن يمر دون رد
--  9 أحداث سماوية مذهلة يمكن رؤيتها ليلاً في 2024.. ماهي
--  إيران: مقتل 20 شخصا على الأقل بانفجار خلال مراسم إحياء ذكرى مقتل سليماني
--  Mersin'in düşman işgalinden kurtuluşunu "Zafer Yürüyüşü" ile kutladılar
--  Ahmet Nur Çebi, hakkındaki iddialara cevap verdi! "Art niyetli bir gayrettir"
--  Dünya devlerinden Türkiye açıklaması: Dinamikler TL lehine döndü
--  Hormonal Imbalance: અનિયમિત પિરિયડ્સનું કારણ છે હોર્મોનલ અસંતુલન,આ કુદરતી ઉપચારથી કરો
--  At least 20 killed in blasts near Iranian Guards commander Soleimani’s tomb during ceremony
--  ‎صدور موافقة خادم الحرمين الشريفين لاستضافة 1000معتمر
--  Wyprzedaż polskich aktywów. Briefing rynków światowych
+-  [줄리안과 타일러가 창립한 웨이브엔터, 원더걸스 출신 우혜림과 전속계약 체결
+-  [‘日 항공기충돌’ 여파 지연·결항된 대한항공·아시아나 운항 정상화
+-  Navike Hrvata u online kupovini: Dominira potražnja za Samsungom i Appleom
+-  새해농업인 실용교육 참여하세요!
+-  부모님 감사합니다
+-  겨울비에 빨라진 발걸음
+-  1100도로 차량통제
+-  노지감귤 이어 만감류도 가격 좋네
+-  ميندي ينافس كيم سيونغ على جائزة حارس الشهر بالدوري السعودي
+-  Úgy ömlik Magyarországra a drága orosz gáz, mintha az Orbán-kormány tovább akarná értékesíteni
