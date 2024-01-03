@@ -1,11 +1,11 @@
 # Latest News
--  Afrika Uluslar Kupası'na Süper Lig'den 30 isim!
--  Bakan Fidan, İran Yol ve Şehircilik Bakanı Bezrpaş ile bir araya geldi
--  Kia gemileri yaktı: 250.000 TL indirdi! Egea'dan bile ucuz sıfır otomobil fırsatı
--  Andros Townsend Süper Lig yolunda
--  'Güvenlik, İstihbarat ve Koordinasyon Toplantısı' toplantısı gerçekleştirildi
--  Güney Kore'den sonra Japonya'da da bıçaklı saldırı... 4 kişi yaralandı
--  "Mir, tolerancija i nadnacionalna svijest stubovi evropske budućnosti"
--  Afghans deported by Pakistan ‘at risk’
--  40 سال میں پہلی بار ایک فرد ٹیٹرس گیم کو مکمل کرنے میں کامیاب
--  Bí thư Thành uỷ, Bộ trưởng Công an dự hội nghị triển khai công tác 2024 của Công an TP.HCM
+-  Duljaj: Milojević je pravi gospodin, popili smo kafu
+-  Rusi pojačavaju napade - NATO pomaže
+-  Juwelendiebstahl: Gericht legt Wert für Gerichtskosten fest
+-  Als Zweiter ins Finale: Wellinger träumt von Tournee-Triumph
+-  Warum sich das Theater in Freiberg in ein Wunderland verwandelt
+-  Pausaer Kaninchenzüchter setzen jetzt auch auf Geflügel
+-  Stromausfall legt Teile des Dresdner Stadtzentrums still
+-  Dynamo Dresden ohne Batista Meier ins Trainingslager
+-  Zwickau: Glück-Auf-Schwimmhalle geschlossen
+-  Gergerlioğlu: İnanılmaz bir karar, AYM fiilen bitiriliyor
