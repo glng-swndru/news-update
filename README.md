@@ -1,11 +1,51 @@
 # Latest News
--  Nova godina, nova Zvezda - sada se čeka kontinuitet
--  Narlıdere Belediyesi ve Temad’dan ortak protokol
--  [함양24시] “지리산이 빚은 달콤한 맛”…함양고종시곶감축제 12일 개막
--  [부산24시] 신규보증 6조원대…기보 “정책금융기관 역할 적극 수행”
--  여당 사령탑 한동훈 ‘野 심장부’ 첫 방문…‘긴장의 광주’
--  “이재명 주치의 왜 브리핑 안하나” 민주당, 서울대병원 대응 질타
--  Tras el terremoto en Japón, los supervivientes se enfrentan a la lluvia helada
--  La campaña de la renta de 2023 arrancará el 3 de abril y se extenderá hasta el 1 de julio
--  La inversión de compañías de renting en nuevos vehículos bate récord con 6.600 millones
--  Gerard Duelo retoma la presidencia de la confederación inmobiliaria CNAEI
+-  확률 0%? 넥슨, 메이플스토리 등 게임 내 유료 아이템 확률 조작 논란
+-  لمنع تساقط الشعر.. أشياء يمكن القيام بها
+-  Großparkplatz in Schwarzenberg teilweise gesperrt: Bauhof rückt zu Baumschnitt und Baumpflege an
+-  In Marienberg erklingen Kantaten 4 bis 6 des Weihnachtsoratoriums
+-  معاريف: تقديرات إسرائيلية بعدم تزايد القتال بالجبهة الشمالية
+-  RB-Trainer Rose über Zukunft von Klostermann: Keine Tendenz
+-  Tastra Reichenbach: Warum diese Frauen mal wieder auf Ebay aktiv sind
+-  Mintzlaff verteidigt Nagelsmann gegen Kritik
+-  Festwoche „850 Jahre Meerane“: Angebote für Aufbau der Bühnen sprengen Kostenrahmen
+-  "קוראים לי נאצית כי אני גאה בתרבות הלבנה"
+-  שפל בהשקעות, התרחקות קרנות זרות ופער מארה"ב: השנה העגומה של ההייטק הישראלי
+-  "הנה הם בורחים": בדיוק מקסימלי - כך צה"ל מחסל מחבלים באמצעות כטמ"ם | צפו
+-  כמעט בעירום מלא: הטירוף של קניה ווסט נמשך
+-  קשת 12 או ערוץ 14? אלו הערוצים שנתפסים בציבור כאמינים ביותר
+-  Reumütiger Dieb schickt vergoldeten Wetterhahn nach fast 25 Jahren zurück
+-  Así quedó el avión Airbus A350 calcinado por las llamas en el aeropuerto de Tokio (Fotos)
+-  [인사] 정보통신산업진흥원(NIPA)
+-  공공SW사업 법제도 정부 가이드 발간…상용SW 직접구매 비율 상향
+-  "혁신은 AI서 나온다"…김영섭 대표, KT 임직원에 당부한 네 가지는
+-  Ministry Urges Airlines To Do Justice With Passengers In Case of Flight Delays, Cancellations
+-  Opseth slapp med skrekken i kvalifiseringen i Villach
+-  Applen design-pomo karkasi Jony Iven firmaan – Apple-veteraanien ja OpenAI:n Sam Altmanin yhteisyritys pyrkii luomaan "tekoälyn iPhonen”
+-  Mohamed Kudus, le coup maître de West Ham
+-  Χρηματιστήριο Αθηνών: Μικρές απώλειες για τον Γενικό Δείκτη, κρατάει όμως τις 1.300 μονάδες
+-  Dólar hoy y dólar blue hoy, EN VIVO: cuál es la cotización del miércoles 3 de enero minuto a minuto
+-  [MD포토] 김태리 '매력 넘치는 숏 컷'
+-  [MD포토] 김우빈 '로봇 비율 그대로 멋진 역삼각형 상체'
+-  [MD포토] 김우빈 '올블랙 범접 불가 멋짐'
+-  [MD포토] 김우빈 '이 손에 레이저 안 나가요'
+-  [MD포토] 김우빈 '완벽 조각미, 역시 외계인이 맞네'
+-  [MD포토] 이하늬 '미소에서 느껴지는 여유'
+-  [MD포토] 이하늬 '매력 넘치는 보조개 미소'
+-  '4222억' 야마모토의 세부계약 공개, 원정 호텔 스위트룸+물리치료사 제공 '극진 대우'
+-  "토트넘은 '대체 불가'한 1명의 선수를 보유하고 있다!"…토트넘 출신의 확신, 아시안컵 차출→토트넘은 Son을 그리워할 것! '사르-비수마 이탈과 차원 다르다'
+-  고우석 ML행…오승환·정우람 황혼기, 조상우 컴백, 프리미어12 마무리 누구? SV 판도 ‘대혼전’
+-  [MD포토] 이하늬 '쏙 들어간 보조개 미소'
+-  [MD포토] 염정아 '베스트와 넥타이로 연출한 댄디룩'
+-  [MD포토] 조우진 '도사의 늠름함'
+-  서장훈 "'돌싱포맨', 원래 나 포함 '돌싱파이브'였다…집 촬영 때문에 거절" [슈퍼마켙](종합)
+-  [MD포토] 김의성 '악역 열연'
+-  [MD포토] 김태리 '등장부터 눈부신게'
+-  [MD포토] 김태리 '발걸음도 우아하게'
+-  Extreme cold grips the Nordics, breaking a 25-year record in Sweden for the coldest January night
+-  Bons plans théâtre et danse: Six créations genevoises à déballer au retour des Fêtes
+-  Çektiği çakmak gazı sonu oldu
+-  TFF'de devir-teslim! Mehmet Büyükekşi gidiyor
+-  Japonya'da deprem sonrası nükleer santralde su seviyesi yükseldi
+-  68 yaşındaki yaşlı adam hobi olarak üniversite okuyor
+-  Jandarma bir ayda 244 düzensiz göçmen ve 26 organizatörü yakaladı
+-  Amasya'da kamyonette bulunan 120 kilo esrara 2 tutuklama
