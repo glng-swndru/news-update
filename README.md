@@ -1,51 +1,51 @@
 # Latest News
--  Sancionan a exsecretaria general de la ANT por sobrecosto en contrato
--  Álex Char habló con Petro para recuperar sede de Panamericanos y pide no perder la esperanza
--  Lluvias intensas: Minsa monitorea estado de establecimientos de salud en regiones
--  “골키퍼들 키가 커졌으니까 골대 크기를 늘리자”... 레전드 골키퍼의 혁신적인 발언
--  Primer Consejo de Ministros del año abordó prioridades para impulsar la economía
--  Gas Explosion: Traditional Ruler Urges LASEMA To Probe GM Of National Theatre
--  Millionaire’s wife ‘annoyed’ at £8k a month ‘hair and skin allowance’ – because son, 2, gets ‘much bigger’ payout
--  Thời tiết hôm nay 4-1: Bắc Bộ chìm trong gió lạnh, Nam Bộ ngày nắng
--  Tin tức sáng 4-1: Chiêu mộ tài xế góp xe chạy taxi dịp Tết
--  Tin tức thể thao sáng 4-1: Djokovic thua sốc ở Úc; Real Madrid vươn lên dẫn đầu La Liga
--  김 의장, 신년 기자간담회…쌍특검·이태원특별법 견해 주목
--  Cúm mùa tấn công, ai dễ chuyển nặng?
--  ¿Adiós a los vasos? Starbucks permitirá a los clientes usar sus propias tazas
--  Año Escolar 2024 en Perú: revisa el calendario y cuándo inician las clases, según Minedu
--  El Girona descarta al Atlético y sostiene el mano a mano con el Madrid
--  Dr Parihar conferred with RASSA fellow award
--  [Stock Markets] Jittery Start to 2024 Markets Underscores Investor Caution
--  Tras exitosa avant premiere: «Wish; el poder de los deseos» desde mañana en todos los cines del país
--  Australian travellers describe moment Japan Airways flight explodes in flames on Tokyo tarmac
--  Christian students denied their right to freedom of expression
--  ESPN BET Promo Code NEWSWEEK: Score $150 Guaranteed Bonus for NBA, NFL
--  SK 9연승 질주…김선형, 집념의 '묘기슛'
--  Ngành nông nghiệp tỉnh Nam Định đạt giá trị sản xuất hơn 22.000 tỷ đồng năm 2023
--  Consejo de Seguridad de la ONU piden a hutíes finalizar ataques contra sector marítimo
--  Bolsa de São Paulo avanza un 0,10 % en su primera subida del año
--  Gleisi critica CPI com foco no padre Júlio Lancellotti: “Absurdo”
--  USA: Trump wendet sich im Streit um Teilnahme an Vorwahl an Supreme Court
--  The most wicket-filled opening day in 122 years
--  'He punched him in the face multiple times': Auburndale man arrested after intentionally ramming vehicle, punching another driver
--  Indecopi sanciona por concertar precio del agua embotellada en Puerto Maldonado
--  남성욱 "김정은, 트럼프와의 정상회담 오매불망 기대할 것"[한판승부]
--  출근길 반짝 추위, 낮은 어제보다 따뜻…주말 다시 한파
--  Nokian KrP pilasi SPV:n synttärit
--  Kataja ja Kobrat palasivat voittojen tielle
--  Suomalaisilta mäkikotkilta heikkoja siivuja – näin valmentaja kommentoi
--  Devotional song ‘Rang Tera’ released
--  Claudia Sheinbaum visitará Coahuila previo al Día de Reyes
--  Where to Find Affordable Makeup and Lashes for Makeup Artists
--  Holy Ten exposed: Michael Magz revealing interview with Ollah 7 Podcast
--  Luke Humphries gewinnt Darts-WM: Finalsieg über Luke Littler
--  '태양광 비리 의혹' 전 산자부 과장 등 구속영장 모두 기각
--  이강인 시즌 3호골…'첫 우승 기쁨'
--  고우석, 샌디에이고행…이정후와 '가족 동반 진출'
--  La primera selección de fútbol eliminada del Mundial 2026
--  De Minaur festeja triunfo sobre Djokovic: "Venci o melhor de todos os tempos"
--  La polémica de las pelotas en la ATP: ¿Eso lesionó a Djokovic?
--  JKTJAC delegation meets DSEJ, discusses issues of teachers
--  أول طلاق في 2024.. هند عبد الحليم تنفصل عن زوجها بعد زواج استمر 3 سنوات
--  يصغرها بـ 15 سنة: لأول مرة زوج نجوى كرم الاماراتي يظهر معها.. شاهدوا كيف قبّلها أمام الناس – (فيديو)
--  Fiscal Chong responde a Ricardo Yáñez: “No podríamos tener resentimiento respecto de una persona jurídica”
+-  الداخلية تكشف حقيقة اعتداء شرطي على عاطل وإتلاف ممتلكاته في القليوبية
+-  "معلومات الوزراء" ينظم برنامجا تدريبيا حول "تحليل البيانات ودعم اتخاذ القرار"
+-  "شقق وعربيات وتأسيس شركات.. ضبط 3 أشخاص غسلوا 30 مليون جنيه في تجارة العُملة
+-  مواعيد مباريات اليوم الخميس والقنوات الناقلة
+-  The Legendary Tigerman, Manel Cruz e Agir no festival Sons de Vez
+-  5 فيتامينات نقصها يتسبب في تساقط الشعر.. لا تتجاهلها
+-  Gippsland rivers searched for missing father of five, dumped pram and child car seats
+-  Gippsland rivers searched for missing father of five, dumped pram and child car seats
+-  Govt intervenes to bail out inept local authorities
+-  Přímé roční daňové odvody za zaměstnance s průměrnou mzdou činí 280 tisíc korun
+-  Přehled změn v DPH od roku 2024. Pocítí je všichni
+-  Detenidos en Buenos Aires tres sospechosos de formar parte de una "célula terrorista"
+-  Contas externas têm saldo negativo de US$ 1,6 bilhão em novembro
+-  Carpark of the FUTURE will see motors stacked on top of each other in a cylindrical ‘lift’ & moved around on boards
+-  "임서원은 천재다" 극찬받은 무대, 어땠길래? [유니버스 티켓] (종합)
+-  에이티즈, 美 '빌보드 200' 1위→4주 연속 진입…파죽지세 행보
+-  ‘Surely that’s cheating?’ cry The Traitors fans as contestant reveals ‘secret advantage’
+-  ‘Surely that’s cheating?’ cry The Traitors fans as contestant reveals ‘secret advantage’
+-  ‘Surely that’s cheating?’ cry The Traitors fans as contestant reveals ‘secret advantage’
+-  [오피셜] 포항, '제카 대체자' 찾았다...'K리그2 베스트11 공격수' 조르지 영입
+-  معركة غزة في لاهاي
+-  8 معلومات حول تطوير فندق رومانس المملوك لقطاع الأعمال بالاسكندرية
+-  كريم الدبيس: رفضت عرضا من بلجيكا من أجل تحقيق حلمى بالانضمام للأهلى
+-  محمد عواد: لا أعلم سبب استبعادى من قائمة أمم أفريقيا.. ومستمر مع الزمالك
+-  أحمد أمين أوفا: كنت أتمنى الانضمام لمنتخب مصر.. وفايلر طلب التعاقد معى
+-  تامر بيبرس يعلن التقدم باستقالة من اتحاد الطائرة
+-  كريم الدبيس: معلول يقدم لى النصائح دائما وكنت سعيدا بعدم التعاقد مع فتوح
+-  محمد ممدوح يحتفى بعيد ميلاد أخته مي: يا رب سنة حلوة عليكى يا صديقتى وأستاذتى
+-  عصام السقا الصديق الوفى من نعيم فى "جعفر العمدة" إلى زكى فى "الإسكندرانى"
+-  لطيفة ترثي والدتها: وجيعة كبيرة ماكنتش نتحملها لولا محبة الناس
+-  تعرف على شخصية يحيى الفخرانى فى مسلسله الجديد" عتبات البهجة"
+-  Daftar 11 Panelis Debat Capres Ketiga, Ada Guru Besar, Dosen hingga Eks KSAL
+-  Descubren metanfetaminas escondida en vagón del tren en Cajeme
+-  Uso de energia nuclear para tratar sangue tem norma atualizada
+-  신한알파리츠, 임대료 추정치 상향 중…목표가↑-NH
+-  GS, 재평가 길목에 선 저평가 가치주-흥국
+-  BİM'de North Pacific balıkçılık malzemelerinde kampanya! BİM 12 Ocak 2024 aktüel ürünler
+-  美 "이란 대규모 폭발은 테러인 듯"…IS 소행 가능성 거론
+-  Mourinho e l'attacco a Massimo Mauro in diretta tv: che cosa è successo
+-  Quarti di Coppa Italia: Monza, Trento e Milano alla Final Four
+-  ¡No arriesgue su vida! Disfrute de la playa siguiendo estas recomendaciones
+-  Black Caps coach Gary Stead will be keeping a eye on all-rounder Michael Bracewell's return to T20 Super Smash cricket from 4pm
+-  Trino Márquez: 2024, entre la incertidumbre y la esperanza
+-  홍자, 미스틱스토리와 전속계약 종료…"앞날 응원"
+-  Claudine Gay Resigns Under Pressure, New Plagiarism Allegations Surface
+-  JJ Watt makes awkward Jeffrey Epstein joke on Pat McAfee show - minutes after the host apologized for Aaron Rodgers' claims that Jimmy Kimmel is set to be on the list of associates
+-  Thai Embassy cautions against high-paying jobs in Cambodia
+-  라오스서 '버기카' 타던 한국인 관광객 사고로 숨져
+-  صندوق الثروة السيادية السعودي يتصدر صناديق الاستثمارات العالمية
+-  Van'da yoğun kar yağışı nedeniyle araçlar yolda kaldı!
