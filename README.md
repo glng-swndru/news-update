@@ -1,11 +1,11 @@
 # Latest News
--  KT, 신설 AI 연구소장에 SKT 출신 윤경아 상무 영입
--  이재명 급습 피의자, 등산용 흉기 개조해 범행… 계획범죄 정황 [이재명 피습 후폭풍]
--  격앙된 민주 “가짜뉴스는 2차 가해·2차 테러… 엄정 대처” [이재명 피습 후폭풍]
--  구글, 과기정통부와 협력으로 디지털 인재 양성 앞장
--  강보라 스윗드오 대표, ‘노 엑시트’ 캠페인 참여
--  국내 콘텐츠산업 매출·수출액 증가세 지속
--  딥서치, C레벨 2인 영입…“B2B 전문 AI 플랫폼 서비스 확장 가속”
--  사람인, ‘새해 소원 빌고 복 받아 가세용’ 이벤트
--  حزب إرادة: اغتيال العاروري محاولة يائسة من حكومة الكيان المفلسة لإرجاع شعبيتها
--  الميثاق الوطني يعقد لقاء استقطابيًا في لواء ذيبان
+-  Dul ve yetim aylıklarına gelen zam oranı ve yeni maaşlar belli oldu
+-  NI MACRON ZBOG NEMIRA U FRANCUSKOJ NIJE KUKAO KAO SADA VUČIĆ: 'Protesti u Beogradu negativno su utjecali na...'
+-  Pilates Products Market Analysis and Future Prospects for 2030
+-  Transparent Ceramics Market is expected to surpass the value US$ 2.85 Bn By 2031
+-  Nuclear Power Plant Equipment Market Insights and Sales 2024 | Alstom, Korea Hydro & Nuclear Energy, Hitachi-GE Nuclear Energy, Mitsubishi Heavy Industries, Larsen and Toubro Industries, Babcock and Wilcox, Dongfang Electric, Orano, Doosan Heavy Industrie
+-  Tethered Drone Market Size, Status, Growth | Industry Analysis Report 2030
+-  جواز السفر التونسي: قائمة الدول التي يمكن دخولها دون تأشيرة لعام 2024
+-  Electro-Thermic Household Appliances Market Key Players : Daikin Industries Ltd, Panasonic Holding Corp., Midea Group, Hair Group Corp., Voltas Ltd, Koninklijke Philips N.V., Dyson Ltd, Havells India Ltd, The Orpat Group, Crompton
+-  Dilan Polat'ın avukatı canlı yayında çılgına döndü! 'Uyduruyorsunuz' diyerek ünlü sunucuyu topa tuttu!
+-  Aston Villalla tilanne päällä: tarjous hyväksytty, mutta hyökkääjä ei halua Valioliigaan
