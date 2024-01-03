@@ -1,11 +1,11 @@
 # Latest News
--  地震波及新唐晶圓廠，正盤點評估復機時間
--  Korban Gempa Jepang di Ishikawa 62 Orang Tewas
--  Apa Itu Digital Nomad?
--  Pendidikan sivik pilih pemimpin
--  Naira begins 2024 with 8.23% loss to dollar
--  Çanakkale Boğazı tek yönlü gemi geçişlerine kapatıldı
--  Ribuan Pemudik dan Wisatawan Tinggalkan Palembang, 3 Ribu Lebih Penumpang Gunakan Kereta di Awal Tahun
--  모두싸인, 신용보증기금 ‘프리아이콘’ 선정…3년간 최대 50억 원 보증
--  “Mūsu vilcieni ir ērtāki!” Igauņi bremzē Latvijas plānus un vēlas vilcienu pārvadājumus veikt paši
--  Korban Meninggal Ledakan Tungku Smelter Morowali Bertambah 3 Orang, Total 21 Orang
+-  Ёлғиз кексалар учун поездга бепул чипталар ажратилади (+видео)
+-  Байден маъмурияти яна Конгресс қоидаларини четлаб ўтди
+-  АТР 2024 йилнинг илк рейтингини эълон қилди
+-  가스기술공사 2024년 시무식 개최...2030년 매출 1조원 달성 목표
+-  '고딩엄빠4' 2층 방 못 올라가는 고딩맘…눈물 뚝뚝
+-  Sao nhập tịch Indonesia xin lỗi người hâm mộ sau trận thua Libya 0-4
+-  Nhiều bệnh lây qua đường hô hấp tăng dịp cuối năm, TP.HCM chủ động phòng chống
+-  Người tham gia biên soạn không được vào hội đồng chọn sách giáo khoa
+-  Máy bay Japan Airlines chở 379 người được phép hạ cánh trước khi va chạm với máy bay tuần duyên
+-  Sẽ tiếp tục tăng giá điện?
