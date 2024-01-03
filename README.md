@@ -1,11 +1,11 @@
 # Latest News
--  TFF'den yayın ihalesiyle ilgili açıklama
--  Susurluk’ta kaybolan gencin cansız bedenine ulaşıldı
--  Cumhurbaşkanı Erdoğan’dan İran’a başsağlığı mesajı
--  İşçi servisi ile kamyonet çarpıştı: 3 yaralı
--  Decarbonization Technology Market to Reach US$4 Trillion by 2032 as Investments Climb and Renewable Energy Infrastructure Costs Fall
--  Meeranda Selected to Pitch at Microsoft Reactor
--  AUO debuts at CES 2024, and is Transforming the Concept of Smart Mobility
--  Innovation on Display: ZHAOWEI's 3.4mm IPD Adjustment Drive System Set to Impress at CES 2024
--  Lymow Reinvents the Lawn Mower; Previews Smart Mower Robot at CES 2024
--  턴 바이오테크놀로지스, 업계가 직면한 배송 및 타겟팅 문제를 해결하도록 설계된 eTurna™ 배송 플랫폼 확장 출시
+-  Afrika Uluslar Kupası'na Süper Lig'den 30 isim!
+-  Bakan Fidan, İran Yol ve Şehircilik Bakanı Bezrpaş ile bir araya geldi
+-  Kia gemileri yaktı: 250.000 TL indirdi! Egea'dan bile ucuz sıfır otomobil fırsatı
+-  Andros Townsend Süper Lig yolunda
+-  'Güvenlik, İstihbarat ve Koordinasyon Toplantısı' toplantısı gerçekleştirildi
+-  Güney Kore'den sonra Japonya'da da bıçaklı saldırı... 4 kişi yaralandı
+-  "Mir, tolerancija i nadnacionalna svijest stubovi evropske budućnosti"
+-  Afghans deported by Pakistan ‘at risk’
+-  40 سال میں پہلی بار ایک فرد ٹیٹرس گیم کو مکمل کرنے میں کامیاب
+-  Bí thư Thành uỷ, Bộ trưởng Công an dự hội nghị triển khai công tác 2024 của Công an TP.HCM
