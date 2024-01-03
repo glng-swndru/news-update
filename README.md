@@ -1,11 +1,11 @@
 # Latest News
--  ‘Bayğaralar’ suç örgütü üyesi 4 kişi, villada yakalandı
--  Knox Platformu kullanıcılara güvenilir bir deneyim sunuyor
--  Honor Magic6 Pro’nun tasarımı sızdırıldı
--  Kullanılmayan aboneliklerden kurtulun
--  Vekil sayısı 19'a düşen Saadet'ten CHP'ye önemli ziyaret
--  Son dakika! Milyonlarca memur ve emeklinin beklediği rakamlar belli oldu... TÜİK Aralık enflasyonunu duyurdu
--  Ισραήλ: Προετοιμάζεται για «κάθε σενάριο» μετά την επίθεση που σκότωσε τον 2ο τη τάξει της Χαμάς
--  קומסיין בבשורה גדולה ללקוחות: זה הפיתוח שיקל עליכם
--  כוכב הישרדות הותקף על מדים: "סטודנטית ירקה עליי, אני בהלם"
--  המשבר בהייטק הישראלי: ירידה של עשרות אחוזים בהשקעות ב-2023
+-  Moeldoko Anggap Rizal Ramli Sahabat walau Kerap Kritik Pemerintah
+-  Gaji Karyawan IT Bisa Terkikis Jika Tech Winter Startup Berlanjut di 2024
+-  ‘여름꽃’ 글라디올러스, 충남 태안에서 ‘겨울꽃’ 변신!
+-  태안사랑상품권, 올해부터 할인 한도액 30만 원으로 하향
+-  논산경찰서 성범죄 예방을 위한‘호신용 경보기(보관함)’설치
+-  충남서부보훈지청, 이시영 보훈팀장 장관 포상
+-  신성대 제6대 총장 서명범 박사 취임
+-  당진시, 충남도 서울학사 기숙사 입사생 모집
+-  천안시, 2024년 신년교례회 개최…‘지역사회 화합’ 도모
+-  맥키스컴퍼니가 키운 청년양조기업 당당한 독립선언
