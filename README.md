@@ -1,51 +1,51 @@
 # Latest News
--  Semesterfirare och hushåll vinner på starkare krona
--  "C'est quand même exceptionnel": le nord de l'Alsace touché par des inondations, des champs recouverts d'eau
--  Muğla açıklarında 25 düzensiz göçmen kurtarıldı
--  ABD'den Türkiye'ye F-16 savaş uçaklarının satışına ilişkin açıklama
--  Djokovic: "Creo que la muñeca estará bien para el Abierto de Australia"
--  Wraca sprawa granatnika Szymczyka. Są pierwsze wyniki kontroli MSWiA
--  Wraca sprawa granatnika Szymczyka. Są pierwsze wyniki kontroli MSWiA
--  Wraca sprawa granatnika Szymczyka. Są pierwsze wyniki kontroli MSWiA
--  Gasperini: "De Ketelaere, che segnale!". Sul Milan e format Coppa Italia...
--  Atalanta e De Ketelaere, Milan eccoci! E Miranchuk s'illumina: la Dea non russa
--  Telefonica annonce un plan de licenciements de EUR1,3 md en Espagne
--  1-0. Rüdiger salva el clásico tropiezo de enero
--  НПО «Наш дом - Европа» сообщает о повреждении Никорцминдского собора
--  Fed tolkas som mer återhållsamt om räntebanan
--  Mercato : Lyon et deux équipes anglaises veulent Saïd Benrahma
--  Arnold Švarceneger i Deni Devito najavili saradnju, moguć nastavak filma "Blizanci"
--  I tried Dunnes Stores’ new sportswear range from €25 – they’re just as good as Lululemon but costs way less
--  Izraelski sud odgodio primjenu zakona koji otežava opoziv premijera
--  Les contrats à terme sur le soja se redressent après avoir atteint leur niveau le plus bas en juin, les pluies étant bénéfiques aux cultures brésiliennes
--  Lamenta México atentado en Irán que dejó más de cien muertos
--  IKEA wycofuje reklamy z TV Republika. Europosłanka PiS nawołuje do bojkotu
--  Maestralni Luka Božić odveo Zadar do teške pobjede protiv Cedevite Junior
--  İnsanları İkiye Bölen "Uyuyan Güzel" Sorusu: Cevap Verenler Arasında Büyük Tartışma Çıkıyor!
--  Tarihte İlk Kez Bir Kutup Ayısı Kuş Gribinden Öldü
--  ¿Cuándo será presentada Jenni Hermoso con Tigres Femenil?
--  IKEA wycofuje reklamy z TV Republika. Europosłanka PiS nawołuje do bojkotu
--  Кирил Десподов започна 2024-а, както завърши 2023-а - с гол и 3 асистенции за победа на ПАОК
--  IKEA wycofuje reklamy z TV Republika. Europosłanka PiS nawołuje do bojkotu
--  LG, 144 Hz Yenileme Hızı Sunan Yapay Zekâ Odaklı Yeni OLED Televizyonlarını Tanıttı
--  Luke Littler emotionally hugs girlfriend Eloise Milburn as 16-year-old walks out for World Darts final at Ally Pally
--  Sabah ambil alih kawal selia bekalan elektrik
--  Os Três Patetas (Parte II)
--  Luke Humphries makes gesture to rowdy Ally Pally crowd after he’s mercilessly booed walking to stage for final
--  The Masked Singer fans convinced they know who is behind Cricket – and it’s a Radio 1 presenter
--  “No vamos a construir muros”: Sheinbaum ante problemática migratoria; “se trabaja en seguridad”
--  Kurtenbach: The middling Warriors are saying the quiet part out loud
--  Millainen tulevaisuus Saku Koivun pojalla siintää edessään? Näin TPS-luotsi vastasi
--  Emma Paton sparkles in elegant outfit for World Darts final as fans call Sky Sports host ‘star of the show’
--  Cowboys activate DL Viliami Fehoko from IR, place RB Deuce Vaughn on IR
--  Novak Djokovic megħlub minn Alex de Minaur
--  Amazon’s video ad push expected to generate an extra $5 billion in revenue
--  Oficial: Ex-Benfica é reforço de peso no Estrela da Amadora
--  Arda Güler yine oynamadı, Real Madrid tek golle kazandı
--  Rahapolitiikka | Yhdysvaltojen keskuspankki saattaa pitää tuumaustauon ennen korkojen laskemista
--  Lövések a magyar-ukrán határon, 12 kárpátaljai férfi őrizetben
--  Luli Melao inicia el 2024 por todo lo alto
--  NSW Health warn people to be on alert after seven develop Legionaires' disease around New Year's
--  NEIZVJESNOST JE TRAJALA DO KRAJA SUDIJSKOG VREMENA: Real Madrid teže od očekivanog savladao Mallorcu, pogledajte sažetke... (VIDEO)
--  Казахстан избавляется от российской пропаганды
--  VIDEO Bernabeu se ponovno naklonio Luki Modriću, pogledajte asistenciju kapetana Vatrenih u teškoj pobjedi Reala
+-  ‘케인 옆에서 뛸래?’... 뮌헨, 갑자기 ‘분데스리가 폭격기’ 영입전 참전
+-  Galería: Así se prepara una rosca de reyes
+-  طريقة ورابط التقديم في وظائف الخطوط الجوية السعودية
+-  Darts-WM 2024 – Finale heute live: Übertragung im Free-TV, Live-Stream und Live-Ticker
+-  Gouvernement : les nouvelles nominations du conseil des ministres et les textes adoptés
+-  ريال مدريد يفتتح 2024 بالفوز على مايوركا
+-  헤즈볼라 수장 "이스라엘의 베이루트 공격, 침묵하지 않을 것"
+-  Netflix mit neuer Preiserhöhung! Das genießen jetzt die Abonnenten
+-  Imputada por blanqueo de capitales en operación 'Napoleón' seguirá detenida
+-  Quick Fix: Greek Black Eyed Pea Casserole
+-  SUDAR KOD TERAZIJSKOG TUNELA Dva automobila slupana, stvaraju se gužve (FOTO)
+-  Le secteur du gaz naturel en Afrique prendra encore plus d’ampleur en 2024
+-  Chavismo publicó nuevo comunicado para quejarse por decomiso del avión venezolano-iraní en Buenos Aires
+-  Di Fusco: "Inter chiamata a vincere altrimenti sarebbe un fallimento"
+-  Eruption of Scabies Infections Hits UK
+-  "الميادين": غارة من مسيّرة إسرائيلية على بلدة يارون
+-  SEP: Estas son las fechas de las primeras vacaciones para educación básica en 2024
+-  Hallan golpeada a mujer en calle de Salina Cruz
+-  PES optužuje predsjednika Milatovića
+-  Halesowen man 'encouraged support for banned Northern Ireland loyalist groups', trial told
+-  La autodeterminación es un derecho que tiene todo pueblo en México: Adrián LeBarón
+-  Le fonds Fundamental Equity de Schonfeld termine l'année 2023 en hausse de 4,8% ; Marshall Wace avec deux fonds en hausse de 8% - sources
+-  LEDENI TALAS OKOVAO EVROPU: Najmanje dve osobe izgubile život, u Švedskoj izmereno neverovatnih - 43 stepena!
+-  Muere el humorista Paco Arévalo a los 76 años
+-  Mehrere Landeshauptstädte wurden aufgrund von Massen-E-Mails mit Bombendrohungen evakuiert
+-  Tagesschau-Reporter mit völligem Blackout – Jens Riewa greift ein
+-  Comandante israelita visita fronteira com Líbano após ataque em Beirute
+-  ดาวโจนส์ร่วงต่อเนื่อง ล่าสุดร่วงกว่า 300 จุด | RYT9
+-  O SUZANI MANČIĆ SVI MISLE DA SVE ZNAJU, A KADA ČUJU OVU INFORMACIJU OSTANU POTPUNO ŠOKIRANI! Evo koliko je zapravo VISOKA
+-  Japan: Zrakoplovu obalne straže navodno nije bilo odobreno polijetanje
+-  Women, non-binary candidates faced online harassment in 2023 P.E.I. election: report
+-  Women, non-binary candidates faced online harassment in 2023 P.E.I. election: report
+-  Women, non-binary candidates faced online harassment in 2023 P.E.I. election: report
+-  Women, non-binary candidates faced online harassment in 2023 P.E.I. election: report
+-  Vigil held to honor slain Muslim boy as accused attacker appears in court in Illinois
+-  Opération Nez rouge logs 30,000 drives across Canada in 2023
+-  POGINULA ŽENA U FUTOGU Pokosio je automobil, ulica zatvorena za saobraćaj
+-  ريال مدريد يعتلي صدارة الليغا بالفوز على مايوركا بهدف وحيد
+-  Vehicle sales posted biggest annual jump last year since 1997: DesRosiers
+-  Vehicle sales posted biggest annual jump last year since 1997: DesRosiers
+-  Firefighters battling large fire at Florida home of Miami Dolphins receiver Tyreek Hill
+-  ABD'de 13 yaşındaki çocuk Tetris oyununda 157. seviyeye gelen ilk kişi oldu
+-  İtalya'dan Gazze'deki çatışmalara yönelik açıklama: Endişe duyuyoruz
+-  Eski gözdesi attığı golle Fatih Terim'i mest etti
+-  Bursa'da Şehirlerarası Otobüs Terminalinde vatandaş ortalığı ayağa kaldırdı
+-  خالد يوسف عن اختيار العوضي لبطولة «الإسكندراني»: فيه مواصفات نجم الصف الأول
+-  EPL: Ten Hag receives boost as two Man Utd players return to training
+-  Nach Klimaprotest: Bewährungsstrafe für Sprecher der „letzten Generation“
+-  Kim Kardashian’s Once-Massive Mobile Game Is No More
+-  En microbikini, Jimena Barón comienza el nuevo año en la playa
