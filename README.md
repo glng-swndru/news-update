@@ -1,51 +1,51 @@
 # Latest News
--  Yusuf Demir, iddiaları yalanladı!
--  Bakan Özhaseki: Sağlam ve güvenli evler birer birer tamamlanıyor
--  Polonya'dan Ukrayna teklifi
--  Türkiye'den F-16 açıklaması
--  Antalya'da kırmızı bültenle aranan yabancı uyruklu 18 kişi yakalandı
--  BM: Gazzelilerin zorla gönderilmeleri soykırımdır
--  Eren Derdiyok'un yeni adresi duyuruldu!
--  Galatasaray'a talih kuşu kondu! Güle güle Mauro Icardi
--  Nuevas y aterradoras versiones de Mickey Mouse
--  ঘন কুয়াশায় বন্ধ পাটুরিয়া-আরিচা নৌরুট
--  Why we’ll honour the mighty and the lowly – TGNews
--  Bigg Boss 17: Captaincy task creates ruckus, Ankita Lokhande wins the race
--  Nupur Shikhare wears grey shorts and black vest to his own wedding; see video
--  Indian Street Premier League announces Pataudi Royalty, Saif Ali Khan & Kareena Kapoor Khan as Owners of Kolkata Team
--  ‘Curb Your Enthusiasm’ Season 12: Everything To Know Including The Release Date, Cast, Trailer, & More Info
--  Tata Power Celebrates the Power of Courage; Onboards Ace Mountaineer Baljeet Kaur
--  الدفاع الروسية: الإمارات توسطت في إعادة الأسرى الروس الذين كانوا لدى أوكرانيا
--  Bajden upozorava: Tramp je ozbiljna prijetnja temeljnim principima...
--  Viral Video: రోడ్డుపై వెళ్తున్న ఈ చిన్నారి.. తన నీడను చూడగానే షాక్.. చివరకు ఏం చేశాడో చూస్తే.. నవ్వు ఆపుకోలేరు..
--  অভিযোগ আমলে নিচ্ছে না নির্বাচন কমিশন: হাজী মিলন
--  Mansur Yavaş'tan sürpriz Davutoğlu ziyareti
--  The study of dreams: Scientists uncover new communication channels with dreamers
--  Which teams have the best fixtures this January? Dream Team managers to target cup competitions
--  L'Ukraine visée par des frappes russes d'une ampleur inédite
--  I Lovernj dobro pamti sve FOTO
--  „Super günstig und lecker“: Insiderin teilt Geheimtipp für asiatisches Essen in Stuttgart
--  PDP group urges Tinubu to probe Humanitarian minister, reverse suspension of NSIPA boss
--  विधानसभा अध्‍यक्ष ने त्रिपुरा सुंदरी मंदिर के दर्शन किये
--  Gbajabiamila urges Nigerians to be patient, commissions projects in Surulere
--  जिला कलक्टर रूक्मणि रियार ने किया विकसित भारत संकल्प यात्रा के तहत आयोजित कैंप का निरीक्षण
--  I work in a school – I know my Shein outfits are inappropriate but I don’t care, I’m a mom who’s doing her best
--  امریکہ: جہاز کے انجن میں پھنس کر 30 سالہ شخص ہلاک، تحقیقات جاری
--  الرئيس الإيراني: ندين بشدة الجريمة الإرهابية في كرمان وشعبنا سيبقى حاضرا في ساحة المعركة حتى تجفيف الإرهاب
--  „Moosaik“-Projekt in Starnberg nimmt weitere Planungshürde
--  Malini Awasthi, Hema Malini, Kumar Vishwas Among Celebs To Perform During Week-Long Program Ahead Of Ram Idol Pran Pratistha
--  ارتفاع حصيلة العدوان الإسرائيلي على غزة إلى أكثر من 22 ألف شهيد.
--  محكمة العدل الدولية تحدد يوم 11 يناير الجاري لعقد الجلسة الأولى لمحاكمة الكيان الاسرائيلي.
--  Journalist Umar Audu opens up on how he got fake Cotonou varsity degree
--  British Airways steward ‘suddenly drops dead’ in front of passengers before flight
--  Romero se reencuentra con ‘Chita’ en Puerto Cabello
--  كنعان: انهينا اعتمادات موازنة ٢٠٢٤ وسنتابع في اليومين المقبلين المواد المعلقة والاحتياطي لنتقدم بتقريرنا خلال الأسبوع المقبل
--  52 pemë i shtohen Parkut të Liqenit Artificial
--  Finance expert offers 'Relaxed' Everton verdict as new point deduction mooted
--  Risque de contamination à la Listeria: des barquettes de lardons rappelées dans toute la France
--  Η εντεκάδα του Εθνικού Άχνας
--  Unidade Local de Saúde da Região de Aveiro recebeu 58 médicos
--  JASAN STAV: Njemačka ponovila protivljenje zahtjevu izraelskih ministara za preseljenje stanovništva Gaze
--  GSFK: ticket sales inaugurated
--  Aposentadoria do INSS pode ser liberada para quem tem 56 anos de idade?
--  Поради сообраќајка, затворен за сообраќај патот Дебар-Центар Жупа
+-  BiVACOR Names Veteran Medical Device Executive Jim Dillon as Chief Executive Officer
+-  Kareena & Saif Buy Kolkata Cricket Team; Who Are Other Celebrity Owners?
+-  Goldman Sachs Asset Management stawia na naukę. Zebrał 650 mln USD
+-  Flamengo define reforço 'nível A' no mercado que pode 'substituir' Everton Ribeiro
+-  Gabigol antecipa reapresentação no Flamengo e posta foto em academia do Ninho do Urubu
+-  ईराक में मारा गया था कासिम सुलेमानी, ट्रंप के आदेश पर US ने किया था ड्रोन अटैक, अब कब्र पास हुए धमाके
+-  Barra admitió que no sabe quiénes redactaron el DNU de Milei
+-  مقتل أكثر من 100شخص في انفجارين بجنوب إيران .
+-  Vox registra una enmienda a la totalidad a la ley de amnistía
+-  Viral Video: बेहद अनोखा है ये पर्वत, इंसानी अंगूठे की तरह दिखती है चोटी!
+-  Nicușor Dan: Au fost alocate 27 de milioane de lei pentru deratizare și dezinsecție, în 2024
+-  Vox registra una enmienda a la totalidad a la ley de amnistía
+-  Dette vet vi før verdens største elektronikkmesse
+-  Большинство граждан Германии не верят, что «светофор» решит проблемы с миграцией
+-  عمدة بلدية كاثاليكاس الاسبانية يستقبل نائب مقاطعة بيرامكرين السيد محمد سالم احمد انويكظ ...صور
+-  Trenden har brutits – de skånska utsläppen ökar
+-  AIIMS की स्‍मार्ट लैब में रोबोट और AI की एंट्री, जानें डॉक्‍टर और मरीजों..
+-  Kal Ka Rashifal: वृश्चिक राशि वाले गहरे पानी में जाने से बचें, दुर्घटना हो सकती है? रखें सावधानी
+-  বৃহস্পতিবার কূটনীতিকদের ভোটের পরিস্থিতি জানাবে ইসি
+-  KRÖNIKA: Jag läser om Lannebos bok och längtar efter en planlös vandring
+-  Pharmaceutical Manufacturing Market Is Expected To See Huge Growth Globally By 2032
+-  Überfall in Dänemark: Hamburger Behörden prüfen weiter Sorgerechtsstreit
+-  رسوم شحن السلع من آسيا إلى البحر المتوسط ستزيد بمقدار الضعف
+-  בכורה לסלם בהרכב, גם קנצפולסקי ואיינבינדר פותחים בהפועל תל אביב
+-  One man injured after crash in Bannock County
+-  Re-calibrating the sail plan for Native Hawaiians, Pacific Islanders in ocean sciences
+-  Uruguay vuelve a las prácticas pensando preolímpico
+-  Sierra Nevada snowpack at lowest level in 10 years: What it means for California's water supply
+-  Chicken whisperers: Humans crack the clucking code
+-  Sweden sees coldest weather in 25 years
+-  Person påkörd av buss i Helsingborg
+-  Objavili novi spisak blokiranih kompanija
+-  OTAC DEČAKA UBICE (14) PRETIO RODITELJU IZ RIBNIKARA! Šokantna saznanja, čoveku rečeno da može da OSTANE BEZ ĆERKE!
+-  Potpisan ugovor za bezbjedan prevoz učenika
+-  PES: Ispunjavamo predizborna obećanja, za razliku od GP URA
+-  Istraživanje pokazalo novi simptom kovida
+-  Herl pobijedio u Insbruku, Kobajaši novi lider
+-  The Sunriser | Top Republican at Colorado Capitol to run against Boebert
+-  Lazović: U Poreču da provjerimo formu, povratak Borozana nam mnogo znači
+-  Evertonu prijeti nova kazna, pod istragom i Notingem Forest
+-  Borelj pozvao druge države da riješe rat Izraela i Hamasa
+-  U Gazi poginulo 22.313 ljudi
+-  Billionaire Goes on 4,000-Word DEI Rant After Harvard Prez Resignation
+-  Cooler Master deve apresentar fonte sem fan na CES 2024
+-  Около 900 машин ожидают в очереди у Крымского моста
+-  Capture tonight’s mega meteor shower at its best
+-  Sarajevo objavilo detaljan plan priprema za proljetni dio sezone
+-  Kaarinalaisen Victorin kotona on huima viritelmä, joka pudotti sähkölaskua satasella – Näin se toimii
+-  "¡Esto no es Rusia, j*der!": Dos hombres quitan el móvil de una anciana rusohablante y se burlan de ella en Lituania
+-  Camperdown play area left flooded as Dundee council ‘seeks solutions’ to water problems
