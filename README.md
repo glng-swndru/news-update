@@ -1,51 +1,51 @@
 # Latest News
--  BiVACOR Names Veteran Medical Device Executive Jim Dillon as Chief Executive Officer
--  Kareena & Saif Buy Kolkata Cricket Team; Who Are Other Celebrity Owners?
--  Goldman Sachs Asset Management stawia na naukę. Zebrał 650 mln USD
--  Flamengo define reforço 'nível A' no mercado que pode 'substituir' Everton Ribeiro
--  Gabigol antecipa reapresentação no Flamengo e posta foto em academia do Ninho do Urubu
--  ईराक में मारा गया था कासिम सुलेमानी, ट्रंप के आदेश पर US ने किया था ड्रोन अटैक, अब कब्र पास हुए धमाके
--  Barra admitió que no sabe quiénes redactaron el DNU de Milei
--  مقتل أكثر من 100شخص في انفجارين بجنوب إيران .
--  Vox registra una enmienda a la totalidad a la ley de amnistía
--  Viral Video: बेहद अनोखा है ये पर्वत, इंसानी अंगूठे की तरह दिखती है चोटी!
--  Nicușor Dan: Au fost alocate 27 de milioane de lei pentru deratizare și dezinsecție, în 2024
--  Vox registra una enmienda a la totalidad a la ley de amnistía
--  Dette vet vi før verdens største elektronikkmesse
--  Большинство граждан Германии не верят, что «светофор» решит проблемы с миграцией
--  عمدة بلدية كاثاليكاس الاسبانية يستقبل نائب مقاطعة بيرامكرين السيد محمد سالم احمد انويكظ ...صور
--  Trenden har brutits – de skånska utsläppen ökar
--  AIIMS की स्‍मार्ट लैब में रोबोट और AI की एंट्री, जानें डॉक्‍टर और मरीजों..
--  Kal Ka Rashifal: वृश्चिक राशि वाले गहरे पानी में जाने से बचें, दुर्घटना हो सकती है? रखें सावधानी
--  বৃহস্পতিবার কূটনীতিকদের ভোটের পরিস্থিতি জানাবে ইসি
--  KRÖNIKA: Jag läser om Lannebos bok och längtar efter en planlös vandring
--  Pharmaceutical Manufacturing Market Is Expected To See Huge Growth Globally By 2032
--  Überfall in Dänemark: Hamburger Behörden prüfen weiter Sorgerechtsstreit
--  رسوم شحن السلع من آسيا إلى البحر المتوسط ستزيد بمقدار الضعف
--  בכורה לסלם בהרכב, גם קנצפולסקי ואיינבינדר פותחים בהפועל תל אביב
--  One man injured after crash in Bannock County
--  Re-calibrating the sail plan for Native Hawaiians, Pacific Islanders in ocean sciences
--  Uruguay vuelve a las prácticas pensando preolímpico
--  Sierra Nevada snowpack at lowest level in 10 years: What it means for California's water supply
--  Chicken whisperers: Humans crack the clucking code
--  Sweden sees coldest weather in 25 years
--  Person påkörd av buss i Helsingborg
--  Objavili novi spisak blokiranih kompanija
--  OTAC DEČAKA UBICE (14) PRETIO RODITELJU IZ RIBNIKARA! Šokantna saznanja, čoveku rečeno da može da OSTANE BEZ ĆERKE!
--  Potpisan ugovor za bezbjedan prevoz učenika
--  PES: Ispunjavamo predizborna obećanja, za razliku od GP URA
--  Istraživanje pokazalo novi simptom kovida
--  Herl pobijedio u Insbruku, Kobajaši novi lider
--  The Sunriser | Top Republican at Colorado Capitol to run against Boebert
--  Lazović: U Poreču da provjerimo formu, povratak Borozana nam mnogo znači
--  Evertonu prijeti nova kazna, pod istragom i Notingem Forest
--  Borelj pozvao druge države da riješe rat Izraela i Hamasa
--  U Gazi poginulo 22.313 ljudi
--  Billionaire Goes on 4,000-Word DEI Rant After Harvard Prez Resignation
--  Cooler Master deve apresentar fonte sem fan na CES 2024
--  Около 900 машин ожидают в очереди у Крымского моста
--  Capture tonight’s mega meteor shower at its best
--  Sarajevo objavilo detaljan plan priprema za proljetni dio sezone
--  Kaarinalaisen Victorin kotona on huima viritelmä, joka pudotti sähkölaskua satasella – Näin se toimii
--  "¡Esto no es Rusia, j*der!": Dos hombres quitan el móvil de una anciana rusohablante y se burlan de ella en Lituania
--  Camperdown play area left flooded as Dundee council ‘seeks solutions’ to water problems
+-  Japon deprem uzmanı, 'güvenli bölge' olarak o ilçeyi gösterdi
+-  PKO BP: złoty na koniec I kw. 2024 r. umocni się do euro i dolara
+-  Produkcja przemysłowa w USA spadła. Opublikowano ważne dane
+-  Bloomberg: Tusk planuje wizytę w Wielkiej Brytanii. Może spotkać się z inwestorami
+-  الرئيس الإيراني يدين انفجاري «كرمان»: سيحاسبون
+-  Liste kalem kalem değişiyor! Engelli maaşı, kıdem tazminatı, 65 yaş aylığı için hesaplandı: İşte beklenen zamlar
+-  Rīgas Dzemdību namā pērn samazinājies jaundzimušo skaits
+-  Detenido un hombre en Rianxo tras dañar un coche y amenazar a policías con una horquilla de labranza
+-  Golden Globes Presenters: ‘Suits’ Duo, Angela Bassett, Will Ferrell Among First Names Set
+-  Here`s Why Bots Are Watching Your Instagram Story
+-  HunyHuny Expands Its Direct-To-Consumer Presence With Grand Opening
+-  Obituary: Italian Soprano Orianna Santunione Dies at 89
+-  Maskova kompanija lansirala 21 internet satelit Starlink u nisku orbitu Zemlje
+-  Maskova kompanija lansirala 21 internet satelit Starlink u nisku orbitu Zemlje
+-  Djokovic struggles with wrist injury as Australia stuns Serbia in quarterfinals of United Cup
+-  Mahakali Corridor: 241-km-long track opened so far in 15 years
+-  Thousands of doctors in Britain walk off the job in their longest-ever strike
+-  Rs 280 million deposited in PM&#039;s Disaster Relief Fund
+-  Judicial Council recommends 39 judges for High Courts
+-  4G service begins in Humla district
+-  Construction of big projects remains govt&#039;s priority, insists PM Dahal
+-  Edson Álvarez es elegido como MVP del West Ham vs Brighton
+-  Američki državni dug dostigao 34 milijarde dolara
+-  Američki državni dug dostigao 34 milijarde dolara
+-  Bigg Boss 17, 3 January 2024 Written Update for Episode 81: Chaos in BB House
+-  Acertijo visual: solo los que tienen vista de águila pueden ver la pareja de animales diferente
+-  Neuer Trainer bei abstiegsbedrohtem Landesligisten: Coach sieht neuen Verein als Sprungbrett
+-  Neuer Trainer bei abstiegsbedrohtem Landesligisten: Coach sieht neuen Verein als Sprungbrett
+-  Danimarka Kraliçesi tahttan çekildi! Ancak ünvanını kullanmaya devam edecek
+-  ‘দেশ ও মানুষের স্বার্থে সুষ্ঠু নির্বাচনের বিকল্প নেই’
+-  অসহযোগ আন্দোলনের পক্ষে ঢাবি ছাত্রদলের লিফলেট বিতরণ
+-  পুরান ঢাকাকে নতুন করে ‘স্মার্ট ঢাকা’ বিনির্মাণে কাজ করবো: সাঈদ খোকন
+-  ঢাবির ভর্তি বিজ্ঞপ্তি থেকে ‘ট্রান্সজেন্ডার’ শব্দ অপসারণের দাবি
+-  বিএনপির নির্বাচন বিরোধিতা ভোটের প্রচারণায় ভেসে গেছে: তথ্যমন্ত্রী
+-  Een horkerige coach, een team zonder talent en de hoop ooit een doelpunt te scoren
+-  Waarom het origineel van Shakespeare leuker is dan eigentijdse interpretatie Anyone But You
+-  Vuurwerkliefhebbers: kater van huftergedrag van relschoppers
+-  Winteropvang daklozen blijft dicht bij eindeloze regen, want het is buiten nog te warm
+-  Maximaal 30 kilometer per uur in de stad wordt de standaard. Met wat hulp houden mensen zich eraan.
+-  Rusland en Oekraïne ruilen honderden krijgsgevangenen uit
+-  Overstromingen en stroomuitval in Frankrijk en Verenigd Koninkrijk
+-  Bloomberg: subsidie moet Italiaan in elektrische auto krijgen
+-  Deze man redde als een Britse Oskar Schindler het leven van honderden Joodse kinderen
+-  রাজধানীতে ডিম ও মুরগির সুলভ মূল্যের বাজার চালু
+-  Jack Black se une al elenco de la película “Minecraft” (El rodaje, la participación de Jason Momoa y otros personajes)
+-  On Fox News, psychic predicts 'loss' for Trump in 2024
+-  Manchester City teki asiat selväksi - näin paljon Englannin maajoukkuemies maksaa
+-  Tässä on Juhamatti Aaltosen uusi seura
+-  Jasmi Joensuu puristi jatkoon - Tour de Skillä nähtiin myös jättimäinen yllätys
+-  Los Reyes Magos vendrán acompañados de lluvia y una masa de aire frío
