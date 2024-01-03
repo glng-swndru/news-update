@@ -1,51 +1,51 @@
 # Latest News
--  الداخلية تكشف حقيقة اعتداء شرطي على عاطل وإتلاف ممتلكاته في القليوبية
--  "معلومات الوزراء" ينظم برنامجا تدريبيا حول "تحليل البيانات ودعم اتخاذ القرار"
--  "شقق وعربيات وتأسيس شركات.. ضبط 3 أشخاص غسلوا 30 مليون جنيه في تجارة العُملة
--  مواعيد مباريات اليوم الخميس والقنوات الناقلة
--  The Legendary Tigerman, Manel Cruz e Agir no festival Sons de Vez
--  5 فيتامينات نقصها يتسبب في تساقط الشعر.. لا تتجاهلها
--  Gippsland rivers searched for missing father of five, dumped pram and child car seats
--  Gippsland rivers searched for missing father of five, dumped pram and child car seats
--  Govt intervenes to bail out inept local authorities
--  Přímé roční daňové odvody za zaměstnance s průměrnou mzdou činí 280 tisíc korun
--  Přehled změn v DPH od roku 2024. Pocítí je všichni
--  Detenidos en Buenos Aires tres sospechosos de formar parte de una "célula terrorista"
--  Contas externas têm saldo negativo de US$ 1,6 bilhão em novembro
--  Carpark of the FUTURE will see motors stacked on top of each other in a cylindrical ‘lift’ & moved around on boards
--  "임서원은 천재다" 극찬받은 무대, 어땠길래? [유니버스 티켓] (종합)
--  에이티즈, 美 '빌보드 200' 1위→4주 연속 진입…파죽지세 행보
--  ‘Surely that’s cheating?’ cry The Traitors fans as contestant reveals ‘secret advantage’
--  ‘Surely that’s cheating?’ cry The Traitors fans as contestant reveals ‘secret advantage’
--  ‘Surely that’s cheating?’ cry The Traitors fans as contestant reveals ‘secret advantage’
--  [오피셜] 포항, '제카 대체자' 찾았다...'K리그2 베스트11 공격수' 조르지 영입
--  معركة غزة في لاهاي
--  8 معلومات حول تطوير فندق رومانس المملوك لقطاع الأعمال بالاسكندرية
--  كريم الدبيس: رفضت عرضا من بلجيكا من أجل تحقيق حلمى بالانضمام للأهلى
--  محمد عواد: لا أعلم سبب استبعادى من قائمة أمم أفريقيا.. ومستمر مع الزمالك
--  أحمد أمين أوفا: كنت أتمنى الانضمام لمنتخب مصر.. وفايلر طلب التعاقد معى
--  تامر بيبرس يعلن التقدم باستقالة من اتحاد الطائرة
--  كريم الدبيس: معلول يقدم لى النصائح دائما وكنت سعيدا بعدم التعاقد مع فتوح
--  محمد ممدوح يحتفى بعيد ميلاد أخته مي: يا رب سنة حلوة عليكى يا صديقتى وأستاذتى
--  عصام السقا الصديق الوفى من نعيم فى "جعفر العمدة" إلى زكى فى "الإسكندرانى"
--  لطيفة ترثي والدتها: وجيعة كبيرة ماكنتش نتحملها لولا محبة الناس
--  تعرف على شخصية يحيى الفخرانى فى مسلسله الجديد" عتبات البهجة"
--  Daftar 11 Panelis Debat Capres Ketiga, Ada Guru Besar, Dosen hingga Eks KSAL
--  Descubren metanfetaminas escondida en vagón del tren en Cajeme
--  Uso de energia nuclear para tratar sangue tem norma atualizada
--  신한알파리츠, 임대료 추정치 상향 중…목표가↑-NH
--  GS, 재평가 길목에 선 저평가 가치주-흥국
--  BİM'de North Pacific balıkçılık malzemelerinde kampanya! BİM 12 Ocak 2024 aktüel ürünler
--  美 "이란 대규모 폭발은 테러인 듯"…IS 소행 가능성 거론
--  Mourinho e l'attacco a Massimo Mauro in diretta tv: che cosa è successo
--  Quarti di Coppa Italia: Monza, Trento e Milano alla Final Four
--  ¡No arriesgue su vida! Disfrute de la playa siguiendo estas recomendaciones
--  Black Caps coach Gary Stead will be keeping a eye on all-rounder Michael Bracewell's return to T20 Super Smash cricket from 4pm
--  Trino Márquez: 2024, entre la incertidumbre y la esperanza
--  홍자, 미스틱스토리와 전속계약 종료…"앞날 응원"
--  Claudine Gay Resigns Under Pressure, New Plagiarism Allegations Surface
--  JJ Watt makes awkward Jeffrey Epstein joke on Pat McAfee show - minutes after the host apologized for Aaron Rodgers' claims that Jimmy Kimmel is set to be on the list of associates
--  Thai Embassy cautions against high-paying jobs in Cambodia
--  라오스서 '버기카' 타던 한국인 관광객 사고로 숨져
--  صندوق الثروة السيادية السعودي يتصدر صناديق الاستثمارات العالمية
--  Van'da yoğun kar yağışı nedeniyle araçlar yolda kaldı!
+-  حزب الله يعلن استشهاد القيادي حسين يزبك
+-  La evolución puede impedir a los humanos resolver el cambio climático
+-  Blinken viajará a Israel y visitará capitales de Oriente Medio
+-  이란에서 '미스터리 연쇄폭발'…103명 사망[뉴스쏙:속]
+-  임플란트 시술받고 나온 50대 귀가 중 쓰러져…일주일째 의식불명
+-  3분이면 충분…이강인, 시즌 3호골…PSG 12번째 슈퍼컵 우승
+-  '3분이면 OK' 이강인, 시즌 3호 골…프로 데뷔 첫 우승 축포
+-  NYT: американский подросток первым в истории прошёл игру «Тетрис»
+-  والد العتيبي إلى رحمة الله
+-  ظاهرة خطيرة - جمال أحمد أبودسوقي
+-  صح لسانك
+-  فهود تصطاد لنا طيب الأثر - منى السعدي
+-  فواصل
+-  من بديل نيمار يا لذيذ؟ - سلطان مصلح مسلط الحارثي
+-  كيمياء تجاذب الأرواح - د. فهد بن أحمد النغيمش
+-  نائب أمير منطقة تبوك يلتقي رئيس الجامعة ومدير فرع الرياضة
+-  فوز فالنسيا ورايو فايكانو.. وتعادل سوسيداد مع ألافيس
+-  خلال فترة التوقف.. لن نتوقف - محمد الخيبري
+-  أكاديمية الدكتور سليمان الحبيب تعلن بدء التسجيل للالتحاق بالدفعة الثانية من برنامج الابتعاث الخارجي
+-  مركز التحكيم الرياضي يدشن خطته الاستراتيجية
+-  الخطاب الملكي: رؤية متفحصة لأبرز الإنجازات - د.شريف بن محمد الأتربي
+-  منح جاسم الياقوت شهادة شخصية العام للريادة الرياضية
+-  عبدالله الدويسان مدرباً لتايكوندو الهلال
+-  2024 حداد أسود لحروب وانهيار دولي 2023 - د. إبراهيم بن جلال فضلون
+-  الأمير فيصل بن بندر يستقبل طبيبين سعوديين حاصلين على جائزتين عالميتين
+-  رئيس «الطائرة»: تقليص اللاعبين الأجانب من أجل مستقبل المنتخب
+-  هل تنتقل تحديات 2023 إلى العام الجديد؟ - مها محمد الشريف
+-  أمير المنطقة الشرقية رعى فعاليات ملتقى المهارات والتدريب «وعد»
+-  مصر وليبيا يتأهلان إلى نهائي البطولة العربية الـ(25)
+-  وزارة التعليم والدوام الإلكتروني - د. محمد بن إبراهيم الملحم
+-  المنتدى السعودي للإعلام يطلق مبادرة سفراء الإعلام
+-  أمير جازان يتسلم تقرير «زراعة أشجار العود والصندل» بالمنطقة
+-  الاتحاد في معسكر الإمارات.. وخطة لتلافي الانتكاسات
+-  لا تحرير دون مقاومة وإن غلت الأثمان - حسن اليمني
+-  المملكة تدين التفجيرات الإرهابية التي استهدفت المدنيين في إيران
+-  «هيئة النقل» تحصد جائزة رواد الاستحقاق المحاسبي
+-  انطلاق النسخة الخامسة من رالي داكار السعودية بمشاركة 434 مركبة
+-  وزارة العدل: خدمات ناجزة وإنجازات مشهودة - حمد بن عبدالله القاضي
+-  القيادة تعزي إمبراطور اليابان في ضحايا الزلزال
+-  «موانئ» تعزز ريادة المملكة للقطاع البحري واللوجستي بمشاريع استثمارية تناهز 13 مليار ريال في 2023
+-  الأخضر يواجه نظيره اللبناني في أولى تجاربه قبل كأس آسيا
+-  أما آن للجانبين إلقاء السلاح؟! - خالد بن حمد المالك
+-  خادم الحرمين الشريفين يوافق على استضافة 1000 معتمر من جميع دول العالم
+-  أمريكا ترفض تصريحات إسرائيلية تدعو إلى إعادة توطين الفلسطينيين خارج غزة
+-  «السعودية لإعادة التمويل العقاري» تبرم اتفاقية لشراء محفظة بقيمة 5.8 مليارات ريال
+-  «أوبك» تجدد التزامها بوحدة المجموعة لتحقيق استقرار السوق
+-  Forsa-Vertrauensranking: Ärzte und Polizei genießen das größte Vertrauen
+-  Golden Orb Found at Bottom of The Ocean Mystifies Scientists
+-  US condemns S.Africa’s ‘meritless’ genocide case against Israel
+-  1,000 ikan siakap 90 sen habis dijual dalam sejam
