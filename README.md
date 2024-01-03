@@ -1,51 +1,51 @@
 # Latest News
--  물류 비용 증가 가운데 후티반군 또다시 홍해 선박 표적 삼아
--  가상자산, 카드 거래 금지대상에 추가된다
--  12월 외환보유액 4201.5억달러…전월比 30.7억달러↑
--  اليرموك والوطنية لشؤون المرأة توقعان مذكرة تفاهم
--  مع الذكرى الرابعة لمقتل سليماني .. انفجاران كبيران يهزان إيران
--  إعلان نتائج المشروع البحثي الريادي حول الزراعة الذكية بالهاشمية
--  المقاومة تبث مشاهد لقصفها قوات الاحتلال بخان يونس
--  – استقرار الدولار مع تراجع الإقبال على المخاطرة.
--  الاحتلال يرفض التعليق على تفجيرات إيران
--  Talat Atilla yazdı: Erdoğan'dan Yerlikaya'ya 'Neden Belediye konusuna soğuksun?'
--  Economista libertario en LN+: "Que cueste andar en auto, porque antes era muy barato, y todos tenían auto"
--  Sinan Gümüş'ün Antalyaspor serüveni sona erdi
--  Kärppien tuore päävalmentaja joutui jättämään pelin kesken
--  SM-liigavalmentajalta poikkeuksellisen kova avautuminen kärkipelaajista
--  Onko Leijonat-luotsi Antti Pennasen Ilves jo kriisissä?
--  ÖZET | Panathinaikos-Pas Giannina: 2-0
--  Ankara Barosu'ndan tevhid bayrağı hazımsızlığı: İsmail Aydemir ve Vali Davut Gül hakkında suç duyurusunda bulundular
--  BHOPAL NEWS - अरेरा कॉलोनी में अनमोल ज्वेलर्स वालों के घर एक करोड़ की लूट
--  Ameaças de bombas nos Estados Unidos
--  뉴욕증시, 금리 인하 기대 약화에 하락 마감…나스닥 1.18%↓
--  PMO clarifies Trudeau and family stayed ‘at no cost’ during vacation in Jamaica
--  Tekken 8 director shuts down “racism” accusations for not revealing Black fighter
--  Baskonija "kopirala" Partizan VIDEO
--  Un campeón de invierno agarrado a su pizarra
--  Grand Designs is back: But with a new name, new channel, new hosts and new format
--  Estados Unidos no ve "actos de genocidio" en Gaza, dice el Departamento de Estado
--  Criminosos escalam muro, danificam parede e arrombam cofre em Ariquemes
--  Aterrizaje suave de la economía de EE.UU. es "concebible" pero no "inevitable": Fed de Richmond
--  N.H. bill targets undocumented immigrants driving with legal Mass. licenses
--  Hezbollah Leader Promises Retribution for Killing of Hamas Official in Lebanon
--  김봉교 예비후보 "구미 인동에 진학진로센터 구축"
--  Stefanik slams Harvard for timing of president's resignation: 'Unacceptable'
--  [변태가 아니었다?…생리대 찬 남성의 '대반전' 정체
--  Белият дом: САЩ нямат нищо общо с експлозиите в Иран
--  Kildare death notices and funeral arrangements
--  충북 출근길 영하권 추위…곳곳 짙은 안개
--  Trivić: Nećemo prihvatiti da RS provodi svoje izbore
--  Kanye West šokirao pratioce fotografijom supruge, pišu mu da je ponižava
--  Un gol de cabeza de Rüdiger desatasca al Real Madrid ante el Mallorca
--  Calgary's rising housing prices, low inventory likely to persist in 2024: CREB
--  Aumentará clientela en gimnasios por propósitos de año nuevo
--  Bli med på den store snøryddedagen
--  Aantal dodelijke slachtoffers bomaanslagen Iran bijgesteld naar 95
--  Telecomprovider Telefónica akkoord over schrappen ruim 3400 banen
--  Suomalaismaalivahti Atte Tolvanen maalin makuun ICEHL:ssä
--  Beurzen op Wall Street opnieuw omlaag, Tesla tussen sterke dalers
--  Пресметајте дали 2024 ќе биде ваша година
--  Assalto a Buongiorno, il Napoli fa sul serio per il leader granata
--  Acaba sin acuerdo reunión entre Iberia y sindicatos y se mantiene la huelga del 'handling'
--  Le communiqué et les nominations en Conseil des Ministres de ce 03 janvier 2024
+-  Jenni Hermoso ratifica al juez que el beso de Rubiales no fue consentido y tuvo presión
+-  צפירת הרגעה בנאום נסראללה: חיזבאללה מורתע ולא מעוניין בהרחבת הלחימה
+-  ניסיון הדחת נתניהו נכשל, אך נוצר ציר התנגדות שימנע ממנו להקדים את הבחירות
+-  ["내 아이라 속여 결혼했는데"…이혼 후 아내에게 양육비 줘야할까?
+-  ["꼭 XX로 찔러 죽인다"…배달음식 식었다고 '살인예고' 협박
+-  [교사 아동학대 신고 문턱 높이자…3개월 간 신고 60% 급감했다
+-  [DGB대구은행, 새해 전국 8개 지역본부와 사회공헌활동 진행
+-  AB ve BM'den, İran’da düzenlenen terör saldırısına kınama
+-  Departamenti i Shtetit thotë se nuk ka parë akte të gjenocidit në Gazë
+-  تركيا: معدّل التضخّم يقترب من 65٪
+-  18 شركة شحن غيرت مسارها إثر الهجمات بالبحر الأحمر
+-  Real Madrid raapi arvokkaan voiton La Ligassa
+-  Threats made to capitols in at least 5 states prompt evacuations, searches
+-  Aydın'da evde yangın çıktı: Bir kişi yaralandı
+-  Yedi yaşındaki Ferdi yedi saat arandı: Dağda uyurken bulundu
+-  Veliki preokret Baskonije, Virtus bolji od Bajerna
+-  Milatović obrazložio zašto je vratio Skupštini zakone
+-  Porasla potrošnja na nove građevinske projekte u SAD-u
+-  Aposentadoria no INSS: Aos 53 anos de idade, como dar entrada em um pedido?
+-  ¿Un ratón malo? Anuncian dos películas de terror de Mickey Mouse después que quedara en dominio público
+-  Μπαρτσελόνα - Ρεάλ Μαδρίτης 83-78: Ματ στο clasico με... πύργο Βέσελι
+-  Chamber of Commerce CEO Criticizes Canadian Foreign Policy, Says Canada ‘Unserious’ Player on World Stage
+-  Tetris tarihinde bir ilk!
+-  La Junta impulsa un plan para potenciar al sector industrial del agua frente a la sequía
+-  El Gobierno de Maduro muestra su desacuerdo con la decisión de la corte argentina de confiscar el avión de Emtrasur.
+-  PSX gains 297 points
+-  염정아, 美 캘리포니아서 식혜로 '대박'
+-  Gold rate down by Rs1,300 per tola
+-  Forexlive Americas FX news wrap: Dollar fades as Treasury yields reverse lower
+-  De Panamá a Matute: Alianza Lima hizo oficial el fichaje de Waterman para la temporada 2024
+-  AKP'de ilk adaylar açıklanıyor: Ömer Çelik tarih verdi
+-  Gempa M 4,6 Guncang Kabupaten Kaur Bengkulu
+-  Es oficial: CL-FPF determinó que Deportivo Municipal jugará la Liga 2
+-  Govt Launches Probe As Fire Guts Kwara COVID-19 Centre
+-  Rupee gains 17 paisas against dollar
+-  Toàn cảnh vụ máy bay Nhật Bản phát nổ: Cú va chạm kinh hoàng trên đường băng và phép màu 90 giây giúp cứu sống gần 400 hành khách
+-  La Justicia argentina ordena decomiso de avión venezolano-iraní solicitado por EE.UU.
+-  A Jewison Bennette le salió carísima su ‘patada voladora’ a aficionado de Saprissa
+-  “레반도프스키 대체자로 홀란드를 영입하고 싶다”... 바르셀로나 에이스의 소신 발언
+-  Año escolar 2024 ya tiene fecha de inicio a nivel nacional: este es el día elegido por el Minedu
+-  إبراهيم سعيد: فودا وجون فان يتنافسان على تدريب الزمالك
+-  Dólar: cotización de cierre hoy 3 de enero en México
+-  ¿Quién es el futbolista más valioso de la Liga 1 2024?
+-  Gaza suma cientos de víctimas mientras la tensión crece en la frontera con Líbano
+-  With Star Trek movies leaving Paramount Plus causing confusion, the case for DVDs gets Trekkie support
+-  UNICEF Gazze'deki yetersiz beslenme sorununa dikkat çekti: "Zaman daralıyor"
+-  Samet Akaydın'a sürpriz talip! Fenerbahçe'de ilk ayrılık çok yakın
+-  Ancelotti: Arda Güler yakında süre alacak
+-  1-0. Rüdiger salva el clásico tropiezo de enero
+-  BM: Kızıldeniz'deki saldırılar gerilimi artırıyor
