@@ -1,11 +1,11 @@
 # Latest News
--  Днес трябва да се мисли само положително и да не се работи много
--  강력범죄 증가세…이상행동탐지·지능형CCTV 등 AI 보안 ‘주목’
--  유럽연합 ‘의료기기규정(MDR)’ 대응 필요...제이앤피메디, MDR 대응 컨설팅 서비스 제공
--  Bugün Aralık 2023 enflasyon oranı ne zaman, saat kaçta açıklanacak? Gözler TÜİK'te!
--  PMU-Mali : Programme officiel du jeudi 04 janvier 2024
--  غزہ فلسطینیوں کی سر زمین ہے اور رہے گی، امریکی محکمہ خارجہ
--  গাজীপুরে ইউনিয়ন পরিষদ কার্যালয়ে আগুন
--  وطن عزیز کا انتخابی ماحول
--  A Cautionary Note on India Dispatching Warships to Counter Houthi Attacks
--  South Korean police raid house of suspect who stabbed opposition leader Lee in the neck
+-  Rentnerin stirbt bei Wohnungsbrand in Eibenstock
+-  Langsame Digitalisierung: Khan sieht Standort in Gefahr
+-  Edmonton baut Siegesserie aus: Draisaitl mit Tor und Vorlage
+-  Reversibilità 2024: arrivano nuovi tagli? I limiti di reddito (aggiornamento 3 GENNAIO)
+-  인셀덤, 신제품 '콜라겐 100 멜팅 시트' 선보여
+-  Çin tıbbının göz bebeği tarif! Öksürük ve soğuk algınlığı size asla uğramıyor
+-  Hakim Ziyech'ten 49 milyon TL tasarruf
+-  Diyarbakır'da şarjda kalan telefon dehşet saçtı: 5 kişi yaralandı
+-  Küresel piyasalar karışık seyrediyor
+-  Kızıldeniz'de hareketli dakikalar! ABD: 2 gemisavar füzesi atıldı
