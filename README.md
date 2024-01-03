@@ -1,11 +1,51 @@
 # Latest News
--  حسام بن سعود يدشن فعاليات هيئة التراث ويطلق «شتاء الباحة 2024»
--  المملكة: تنديد ورفض قاطع للتصريحات المتطرفة لوزيرين في حكومة الاحتلال الإسرائيلي
--  تمكين المرأة بإلهام الرؤية
--  لماذا نحن عاطفيون في تقييم سائقي «التطبيقات» ؟!
--  291 طالباً يصقلون مهاراتهم ومواهبهم في الجبيل
--  إسرائيل وحماس في حاجة لحرب طويلة !
--  القطاع السياحي يؤتي أكله
--  ​Compra de ações dos CTT foi apresentada ao BE e PCP, mas nenhum partido mostrou interesse
--  معدات حديثة لكشط أسفلت الطرق بالمياه
--  السعودية ترفض بشكل قاطع التصريحات المتطرفة لوزيرين في حكومة الاحتلال الإسرائيلي
+-  5 неща, които убиват секса
+-  Love is Blind Season 5 Contestant Suing Netflix Over ‘Traumatic’ Experience with Reality Show
+-  Dez cidades do Acre já registram casos de Oropouche e Mayaro; número de infectados passa de 60
+-  ارتفاع ضحايا العدوان الصهيوني على غزة الى 22.313 شهيد و57.296 جريحاً
+-  ¡Entre los mejores! Julián Araujo quedó en el XI ideal de la mejores ligas europeas
+-  Bebê com meningite morre em Alagoas; é a primeira vítima da doença em 2024
+-  충남 공주시 단독주택서 불…3천만 원 피해
+-  서용주 "이재명 피습은 암살 시도, 피의자 당적? 중요치 않아"[한판승부]
+-  "Il ne va pas bien" : le fils d'Alain Delon estime que l'acteur a peut-être vécu "son dernier Noël"
+-  اغتيال العاروري انحطاط مدو لسلوك سياسة العدو الصهيوني ضد أبناء فلسطين
+-  العلماء الروس يطورون أدوية تعتمد على البكتيريا النافعة لمعالجة الجروح
+-  Capivara faz lago de praça no centro de Campinas de moradia e chama atenção de moradores
+-  दशरथ दीप : जहां श्रीराम करते थे पूजा, वह स्थान दुनिया के सबसे बड़े दीपक से होगा रोशन, गिनीज बुक के लिए तैयारी
+-  السيد نصر الله: محور المقاومة يلتقي على رؤية استراتيجية.. وطوفان الأقصى كسر صورة «إسرائيل»
+-  칠곡군, 계약 원가 심사로 31억원 절감…263건 심사
+-  Francisco Arredondo regresa al Dakar en busca de nuevos desafíos
+-  Γιατί στην ΑΕΚ να παίζει ο Μοχαμάντι και όχι ο Πήλιος
+-  Las ventas de autos en EEUU en 2023 se recuperaron y llegaron a 15,5 millones de vehículos
+-  TUČA NASRED ULICE U BEOGRADU! Haos u Žarkovu, devojka pokušava da razdvoji besne muškarce (VIDEO)
+-  On last show for Brendan Hains
+-  UN: Brodovi 18 pomorskih kompanija izbegavaju Crveno more da ih ne napadnu Huti
+-  PSG giành Siêu cúp Pháp sau chiến thắng nhẹ nhàng trước Toulouse
+-  «Жирона» – «Атлетико» – 4:3. Мартин забил на 90+1. Онлайн-трансляция
+-  ردود فعل عربية ودولية غاضبة تدين الإرهاب بجميع أشكاله
+-  Iggy Azalea Calls Quits On New Album, Cites Lack of Inspiration
+-  Ian Ziering Street Fight Unprovoked by Bikers, So Claim Riders with Crew
+-  Oppsiktsvekkende Virgil-statistikk ble dratt opp før Newcastle-seieren
+-  Trump se žalio na odluku Mainea koja mu zabranjuje kandidaturu na izborima
+-  Παναθηναϊκός: Ο Τερίμ έδωσε το στίγμα του – Αυτό αλλάζει
+-  Спикер Палаты представителей Конгресса США назвал катастрофой ситуацию на южной границе
+-  10 مجازر إسرائيلية في غزة ضحاياها مئات الفلسطينيين خلال ساعات
+-  유산소 못지 않은 ‘근력 운동’의 3가지 특장점
+-  اليمن يدين التفجيرين الإرهابيين بمدينة كرمان الإيرانية ويؤكد تضامنه الكامل مع طهران
+-  عضو السياسي الأعلى الحوثــي لـ “قناة TRT”: أمـريكا هي من تهــدد الملاحة الدولية ومستعدون لكل الخيارات
+-  Kogi poll: APC asks INEC to suspend inspection of election materials, redeploy REC
+-  Wednesday's Child 15-year-old Aubrey wants to be adopted by a rock music-loving family who will support her love of singing
+-  Trump Asks Supreme Court to Keep Him on Colorado Ballot
+-  Trump asks US Supreme Court to review Colorado ruling barring him from the ballot over Jan. 6 attack
+-  Son of late Scots crime kingpin Jamie Daniel ‘attacked behind bars by a rival drug dealer’
+-  '이강인 결승골' PSG, 툴루즈 꺾고 프랑스 슈퍼컵 우승
+-  الكشف عن المرشحين للتشكيلة المثالية لعام 2023.. أين محمد صلاح؟
+-  "Мы просто мясо". На Украине выяснили, почему придется проиграть России
+-  تأهب إسرائيلي بعد اغتيال العاروري ومخاوف من حرب شاملة
+-  Ligas Caribeñas contratan a once venezolanos para reforzar su equipo
+-  Death and Other Details Trailer: Mandy Patinkin Leads Hulu Murder Mystery Series
+-  Scottie Scheffler nombrado por segundo año consecutivo Jugador del Año en el PGA Tour
+-  How drinking sustainable wine can help vineyards and the planet
+-  Suudiler Lahey'e gidiyor
+-  İşgalcinin Kongo planı
+-  Pavlovic'te zorlu rakipler
