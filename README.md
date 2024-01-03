@@ -1,11 +1,11 @@
 # Latest News
--  Dul ve yetim aylıklarına gelen zam oranı ve yeni maaşlar belli oldu
--  NI MACRON ZBOG NEMIRA U FRANCUSKOJ NIJE KUKAO KAO SADA VUČIĆ: 'Protesti u Beogradu negativno su utjecali na...'
--  Pilates Products Market Analysis and Future Prospects for 2030
--  Transparent Ceramics Market is expected to surpass the value US$ 2.85 Bn By 2031
--  Nuclear Power Plant Equipment Market Insights and Sales 2024 | Alstom, Korea Hydro & Nuclear Energy, Hitachi-GE Nuclear Energy, Mitsubishi Heavy Industries, Larsen and Toubro Industries, Babcock and Wilcox, Dongfang Electric, Orano, Doosan Heavy Industrie
--  Tethered Drone Market Size, Status, Growth | Industry Analysis Report 2030
--  جواز السفر التونسي: قائمة الدول التي يمكن دخولها دون تأشيرة لعام 2024
--  Electro-Thermic Household Appliances Market Key Players : Daikin Industries Ltd, Panasonic Holding Corp., Midea Group, Hair Group Corp., Voltas Ltd, Koninklijke Philips N.V., Dyson Ltd, Havells India Ltd, The Orpat Group, Crompton
--  Dilan Polat'ın avukatı canlı yayında çılgına döndü! 'Uyduruyorsunuz' diyerek ünlü sunucuyu topa tuttu!
--  Aston Villalla tilanne päällä: tarjous hyväksytty, mutta hyökkääjä ei halua Valioliigaan
+-  Nova godina, nova Zvezda - sada se čeka kontinuitet
+-  Narlıdere Belediyesi ve Temad’dan ortak protokol
+-  [함양24시] “지리산이 빚은 달콤한 맛”…함양고종시곶감축제 12일 개막
+-  [부산24시] 신규보증 6조원대…기보 “정책금융기관 역할 적극 수행”
+-  여당 사령탑 한동훈 ‘野 심장부’ 첫 방문…‘긴장의 광주’
+-  “이재명 주치의 왜 브리핑 안하나” 민주당, 서울대병원 대응 질타
+-  Tras el terremoto en Japón, los supervivientes se enfrentan a la lluvia helada
+-  La campaña de la renta de 2023 arrancará el 3 de abril y se extenderá hasta el 1 de julio
+-  La inversión de compañías de renting en nuevos vehículos bate récord con 6.600 millones
+-  Gerard Duelo retoma la presidencia de la confederación inmobiliaria CNAEI
