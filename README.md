@@ -1,51 +1,11 @@
 # Latest News
--  البث المباشر لـ برنامج الوكيل
--  إصابات في قصف إسرائيلي لمخيم نور شمس بطولكرم
--  কুড়িগ্রামে সর্বনিম্ন তাপমাত্রা ১০.৫ ডিগ্রি সেলসিয়াস
--  ঢাবি অধিভুক্ত সাত কলেজের নতুন সমন্বয়ক অধ্যাপক ইউসুফ
--  শীতে ডায়াবেটিস নিয়ন্ত্রণে রাখার কৌশল
--  পঞ্চগড়ে মাঝারি শৈত্যপ্রবাহের আভাস
--  সরকারের সুবিধাভোগীদের ভোটকেন্দ্রে উপস্থিতি নিশ্চিত করার নির্দেশনা চেয়ে রিট
--  Jāsāk pieteikt atvaļinājumi! Vai darba devējs var liegt atpūtu izvēlētajā laikā?
--  דריכות שיא: הימים שאחרי חיסול עארורי יהיו משמעותיים
--  רס״ל מירון משה גרש, בן 21 מפתח תקווה, לוחם ביחידת יהל"ם, נפל בקרבות בצפון עזה
--  '메이플 큐브 확률 조작' 넥슨 116억 과징금 철퇴
--  Gobierno y empresas mexicanas estiman sobre 282 millones de euros gasto por Día de Reyes
--  La SEBI lanza un nuevo sistema de negociación con HDFC Bank como socio
--  El National Australia Bank registra un aumento de los préstamos para vehículos eléctricos
--  בעלות של 15 מיליון שקל: זה מרכז החדשנות שיוקם בפריפריה
--  ATC, local court grant bail to Ali Nawaz Awan
--  'Thế hệ vàng' của tuyển Anh trải qua sự nghiệp huấn luyện ra sao?
--  Pedri khao khát được sát cánh cùng Haaland
--  Lala Widy Punya Resolusi Menikah di 2024, Begini Kriteria Pria Idamannya
--  Baustelle B 169 im Erzgebirge: Wie lange noch Überholverbot gilt und wann die nächste Sperrung droht
--  Flöha: Urologische Facharztpraxis bleibt vorübergehend geschlossen
--  Camping an der Talsperre Pöhl wird 2024 erneut teurer
--  Weibliche DJs: Ein Jahr reicht Chemnitzerin nicht, um Vielfalt zu zeigen
--  В Турции опровергли утверждения о высылке аль-Арури до его гибели под давлением США
--  Empresarios ven con distinta óptica los efectos del acuerdo comercial con China
--  Новая серия взрывов прогремела над Белгородом
--  خبراء يراقبون توظيف البيانات المناخية في صمود المجتمعات أمام الكوارث
--  Президент Казахстана Токаев отверг слухи о планах пойти на выборы в 2026 году
--  زفاة خلف الربيع
--  Cartoon Network & Warner Bros Animation president takes stand against AI
--  공정위 116억원 과징금 '철퇴'에…넥슨 "소송 검토할 것"
--  Mega Millions del 2 de enero: números ganadores y resultados del martes
--  Nilai X Anjlok 71% Usai Dibeli Elon Musk
--  Таиланд и Китай согласовали введение безвизового режима для развития туризма
--  Anthony Albanese has been ‘asleep at the wheel’ when it comes to the cost of living
--  Ярославцы выложили в соцсетях фото необычного природного явления
--  Samsung Galaxy A55 renders appear online with think bezels and new bump on the side
--  Cho con học "Toán tư duy" rồi lên lớp 3 phải vất vả "cai", bà mẹ đưa ra loạt lý do cảnh tỉnh phụ huynh
--  Good Question: How do they make it snow inside U.S. Bank Stadium?
--  5 ƯCV cho danh hiệu “Cầu thủ xuất sắc nhất” Asian Cup 2024: Son Heung-min dẫn đầu
--  Police to seek warrant for suspect in stabbing attack against opposition leader
--  YouTube on verge of becoming most-used mobile platform in Korea: data
--  Năm 2024, nắng nóng gay gắt ở TPHCM sẽ đến sớm
--  Clip từ trên cao cho thấy hình ảnh chiếc máy bay Japan Airlines sau vụ cháy: Trơ trụi toàn bộ, chỉ còn lại vài mảnh
--  Cho con học "Toán tư duy" rồi lên lớp 3 phải vất vả "cai", bà mẹ đưa ra loạt lý do cảnh tỉnh phụ huynh
--  Thanh niên bê tráp đám hỏi tiết lộ tính cách thật của Quang Hải ngoài đời, nhắc đến drama của Chu Thanh Huyền với thái độ này
--  6 "bẫy" mua sắm cuối năm khiến nhiều người "cháy túi": Đừng để các chương trình mua 1 tặng 1 khiến bạn mờ mắt
--  Show thực tế khai phá thế hệ "mầm non giải trí" mới: HIEUTHUHAI lên như "diều gặp gió", 2 "tân binh" còn lại đã quen mặt khán giả
--  Phải đến khi bước sang tuổi 50, tôi mới nhận ra việc tiết kiệm cho quỹ "chăm sóc hưu trí” quan trọng như thế nào!
--  UP Weather: ठंड ने छुड़ाई कंपकंपी... वराणासी में बारिश; कई जिलों में छाया घना कोहरा; मौसम विभाग का ऑरेंज अलर्ट
+-  地震波及新唐晶圓廠，正盤點評估復機時間
+-  Korban Gempa Jepang di Ishikawa 62 Orang Tewas
+-  Apa Itu Digital Nomad?
+-  Pendidikan sivik pilih pemimpin
+-  Naira begins 2024 with 8.23% loss to dollar
+-  Çanakkale Boğazı tek yönlü gemi geçişlerine kapatıldı
+-  Ribuan Pemudik dan Wisatawan Tinggalkan Palembang, 3 Ribu Lebih Penumpang Gunakan Kereta di Awal Tahun
+-  모두싸인, 신용보증기금 ‘프리아이콘’ 선정…3년간 최대 50억 원 보증
+-  “Mūsu vilcieni ir ērtāki!” Igauņi bremzē Latvijas plānus un vēlas vilcienu pārvadājumus veikt paši
+-  Korban Meninggal Ledakan Tungku Smelter Morowali Bertambah 3 Orang, Total 21 Orang
