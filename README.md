@@ -1,11 +1,11 @@
 # Latest News
--  Moeldoko Anggap Rizal Ramli Sahabat walau Kerap Kritik Pemerintah
--  Gaji Karyawan IT Bisa Terkikis Jika Tech Winter Startup Berlanjut di 2024
--  ‘여름꽃’ 글라디올러스, 충남 태안에서 ‘겨울꽃’ 변신!
--  태안사랑상품권, 올해부터 할인 한도액 30만 원으로 하향
--  논산경찰서 성범죄 예방을 위한‘호신용 경보기(보관함)’설치
--  충남서부보훈지청, 이시영 보훈팀장 장관 포상
--  신성대 제6대 총장 서명범 박사 취임
--  당진시, 충남도 서울학사 기숙사 입사생 모집
--  천안시, 2024년 신년교례회 개최…‘지역사회 화합’ 도모
--  맥키스컴퍼니가 키운 청년양조기업 당당한 독립선언
+-  2024 ek MTV alınacak mı? DMM resmen duyurdu: İşte araçlara göre ödenecek MTV listesi
+-  PM promises cost of living relief in May budget
+-  보험 들고 흔들리는 치아 뽑았다가 ‘낭패’... 보험금 못 받는다고?
+-  한동훈 비대위원장, 인재영입위원장 직접 맡기로…이철규와 공동
+-  금감원, 불법 공매도 등 민생침해 금융범죄 대응 강화…특사경 증원
+-  윤여준 "박근혜, '커터칼 피습' 뒤 첫마디 '대전은요?'…참모진 아이디어"
+-  Late cameo from Warner show as Pakistan fightback frustrates Cummins and Australia
+-  Late cameo from Warner show as Pakistan fightback frustrates Cummins and Australia
+-  Alleged gunman charged with murder in gangland shooting
+-  How Web3 is empowering Indian developers, creating a global tech hub in India
