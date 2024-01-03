@@ -1,51 +1,11 @@
 # Latest News
--  Mogelijk schaatsweer op komst
--  Lublin: Nowy market znanej sieci przy ul. Gospodarczej. Będą promocje na otwarcie
--  Trzy wypadki jednego dnia. We wszystkich ucierpieli piesi
--  Call of Duty: Warzone: Tutorial-Video für Anfänger
--  Pak’s Top Election Body Indicts Imran Khan, His Former Aide Fawad Chaudhry In Contempt Case
--  POSNE BAJADERE SA ORASIMA: Sitni kolači koji su potpuni hit - savršene da se zasladite i za Badnji dan
--  Ekki er allt sem sýnist hjá „kynþokkafyllstu konu heims“ – Heimsfrægir menn hafa látið blekkjast
--  Das Jedermann-Auto: Der Toyota Corolla Hybrid Touring Sports im Test
--  Türk diziler Latin Amerika'yı fethetti
--  Önemli ziyarette kritik başlıklar! İran Cumhurbaşkanı Reisi Ankara'ya geliyor...
--  Bunu da gördük! 'Lüks' tıraş 1100 TL! "Altın makasla mı kesiyorlar?"
--  Kilmacrennan man left traumatised after vandalism at his home
--  "Tôi gần như đã ký hợp đồng với Chelsea"
--  Michael Owen nêu cầu thủ bị lấp bởi cái bóng của Ronaldo ở M.U
--  ŠAPIĆ: Doček Nove godine u Beogradu pokazao da je srpska prestonica jedna od najbezbednijih u Evropi
--  Alpine F1 : Le déficit de puissance ne vient pas que du moteur
--  Shillong Teer result today: Jan 3, 2024 first and second round number
--  Bursa'nın Ortabağlar Mahallesi'nde neler oluyor?
--  Savunma ve havacılıktan 2023'te ihracat rekoru
--  Cevdet Yılmaz'dan enflasyon değerlendirmesi
--  Bursa'daki biber gazlı saldırgandan "Keşke zamanı geri döndürebilsem"
--  Paul Onuachu: Trabzon'da olmak gerçekten harika
--  Destacan avances de Etiopía a favor de la paz y seguridad regionales
--  Football-Premier League : la CAN et la Coupe d’Asie font perdre le sommeil aux coachs des clubs anglais
--  Number of Indian unicorns created in 2023 dropped by 10 times compared to 2022
--  Hành khách chết bí ẩn trong động cơ máy bay ở Mỹ
--  Cậu cả nhà Ronaldo nối gót cha, 10 tuổi đã đeo đồng hồ nạm đầy kim cương chục tỷ
--  Ít tập thể dục, người Nhật vẫn sống thọ, trẻ lâu: Hầu hết do “thích” những thói quen này
--  3 kiểu “siêu phẩm” gia dụng đáng mua năm 2024: Máy giặt, robot hút bụi biết “nghĩ”, thêm máy lau hút khô ướt siêu đa năng
--  TikToker Hứa Quốc Anh bị phạt 7,5 triệu đồng
--  Phát hiện Khả Như đã unfollow Puka, tình bạn "toang" đúng như lời đồn?
--  Vì sao không có ai gặp nạn trên máy bay Japan Airlines bốc cháy? Quy tắc “viết bằng máu” đã cứu mạng 379 người
--  Động đất tại Nhật Bản: Người sống sót rơi vào bi kịch khi phải đối mặt với hàng loạt khó khăn
--  Phim tài liệu nói về bê bối của Hoa hậu Mỹ gây rúng động
--  Using Articles In Sentences : Future Lies in Present | ইংরেজি - ষষ্ঠ শ্রেণি
--  Feyenoord-verdediger Quilindschy Hartman kondigt opvallende carrièreswitch aan
--  Βρετανία: Ξεκίνησε η εξαήμερη απεργία των ειδικευόμενων γιατρών στην Αγγλία
--  Las terminaciones que más tocan en la Lotería del Niño
--  UAE Holds Strongest Passport In World, Check Out Where India Stands
--  Бившата годеница на Слави Трифонов го закъса
--  ManU laatii jo ensi kesän ostolistaa - yksi iso nimi jo katsottuna
--  Corona-Zahlen im Landkreis Weilheim-Schongau aktuell: Die Coronavirus-Daten im Überblick
--  TPS vahvisti ison uutisen: ”On aika kirjoittaa uusi luku!”
--  Bolton Wanderers linked to Luton Town striker Joe Taylor
--  EchoStar and DISH merge to create premier wireless and satellite solutions
--  Polisi Periksa Ketua Lemtaki, Usut Dugaan Firli Bahuri Bawa Dokumen Rahasia KPK ke Sidang Praperadilan
--  Corona-Zahlen im Landkreis Traunstein aktuell: Die Coronavirus-News aus der Region
--  We couldn’t sing or play instruments. We started a band
--  We couldn’t sing or play instruments. We started a band
--  We couldn’t sing or play instruments. We started a band
+-  לראשונה בארץ: זה מה שעשתה עיריית ר"ג למען התושבים
+-  מחיר הלחם יזנק? בית המשפט דורש תשובות מהמדינה
+-  צעירה ממנו ב-23 שנה: כוכב ארץ נהדרת בזוגיות חדשה ומפתיעה
+-  כוכב 'האח הגדול' מאיים: "יגיעו גם אליך יא זבל"
+-  אברי גלעד זועם: "אין סבלנות אליך ואל הדיבור שלך, סתום"
+-  איילה חסון מגיבה לסערת הענק בציוץ מפתיע: "התפטרה!"
+-  יוסף חדאד מגיב לסערה: "חבל שאתם אוכלים את הלב"
+-  חשמל מוזל בהשקעה של 470 מיליון שקל: אלו היישובים שירוויחו
+-  Roe vs Wade USA: Deathwatch, Post-Mortem & Afterwards
+-  حكومة الاحتلال تجتمع غدا لبحث تداعيات اغتيال العاروري
