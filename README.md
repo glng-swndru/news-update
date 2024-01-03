@@ -1,11 +1,51 @@
 # Latest News
--  VIVO| Conferencia de Manuel Adorni, vocero presidencial de Milei
--  Samsung anuncia su nueva gama de monitores gaming OLED
--  Halliburton se asegura un puesto en los Índices Dow Jones de Sostenibilidad 2023
--  Borrell, de la UE, afirma que el mundo debe imponer una solución al conflicto de Gaza
--  Caída del peso mexicano el 3 de enero: Precio del dólar sube; espera actas de Fed
--  Matrixport considera que los posibles rechazos de la SEC a los ETF de Bitcoin afectarán a los precios
--  Deutsche Bank anticipa un importante potencial de caída del valor de Tesla en 2024
--  Indexa Capital supera los 2.000 millones de euros bajo gestión
--  Generali AM confía en que los valores tecnológicos mantengan el buen tono en 2024
--  El fondo Bankinter Eficiencia Energética cierra 2023 con una rentabilidad del 24,3%
+-  Táto žena pracovala ako agentka ŠtB: Zároveň bola riaditeľkou slovenskej sekcie BBC počas studenej vojny!
+-  Ako vlani bačoval štát? Žiadna sláva, každé štvrté minuté euro si musel požičať!
+-  Novak Djokovic`s wrist injury dooms Serbia to Australia defeat
+-  ไม่มีคนค้าน!!! ‘เลขาฯนายกฯ’ยันทำถูกต้อง ขอโอน‘รอย’มา‘สมช.’
+-  Samsun’da uzman çavuş evinde ölü bulundu
+-  Gelecek Partisi Genel Başkanı Davutoğlu'ndan İYİ Parti lideri Akşener'e ziyaret
+-  İran'da Kasım Süleymani'nin mezarı yakınlarındaki patlamalarda ölü sayısı 103'e yükseldi
+-  Abisi ile 2 saat arayla vefat etti
+-  האם הראל ביטוח תשלם מיליונים בשביל שהמנכ"ל יישאר?
+-  "פתאום יש ארוחה חמה": אלו שתי הנשים שמסייעות לחיילי צה"ל
+-  פיגוע או פעילות של המוסד? לפחות 73 הרוגים באיראן
+-  India Alliance: पंजाब में कांग्रेस और AAP के बीच गठबंधन का फैसला 24 घंटे में, तनाव भी होगा खत्म!
+-  Ovi znakovi upućuju na to da vam fali važnog vitamina: Posljedice mogu biti neugodne
+-  Jennifer Lopez's Vacation Shoes Are Actually Shocking
+-  Bakan Fidan duyurdu: ABD Dışişleri Bakanı Blinken Türkiye'ye geliyor
+-  TBB ve İstanbul Barosu 'laiklik' ve 'şeriat' tartışmaları üzerinden darbe zemini inşa ediyor: Provokasyona destek için sıraya girdiler
+-  Cumhurbaşkanı Erdoğan'dan İran'a taziye mesajı: Menfur terör saldırılarından derin üzüntü duyduk
+-  קריסת הקיר בירושלים: הוארך מעצרם של ארבעה חשודים
+-  "איזה מסר מקבל הציבור"? תגובות קשות להסדר המקל עם הצעיר שדרס למוות את "סבא הברזל" ונמלט
+-  73 Killed, 170 Injured in Twin Blasts Near Slain Iran Military Commander's Grave
+-  Número de PIS e os meios de localizar pela internet
+-  Molestation: हाईकोर्ट का बड़ा फैसला; किसी लड़की का पीछा करना, धक्का देना छेड़छाड़ का अपराध नहीं माना जाएगा
+-  کراچی کیلئے بجلی 2 روپے87 پیسے فی یونٹ مزید مہنگی
+-  "فوربس" تكشف قائمة أقوى الرؤساء التنفيذيين في الشرق الأوسط لعام 2023
+-  Voitures électriques : elle détrône Tesla, qu'est-ce que l'entreprise chinoise BYD ?
+-  Veja quando se enquadra em Erro Médico e o momento de procurar a justiça
+-  İsrailli sunucu, tabancayla yayına katıldı
+-  Hatayspor, Çaykur Rizespor'a hazırlanıyor
+-  Bakan Fidan'dan İsrail'in Aruri suikastına tepki: Bu yol çıkmaz sokaktır
+-  Hizbullah, 2 mensubunun daha öldüğünü duyurdu
+-  Arteta'nın 3 isteği belli oldu
+-  TFF'den yayın ihalesi açıklaması
+-  TBMM Başkanı Kurtulmuş, TUSAŞ heyetini kabul etti
+-  Lüks tıraş gündeme bomba gibi düştü! Fiyatları görenler şok geçirdi!
+-  Путиновата "Единна Русия" се сдоби със собствена армия – ЧВК "Еспаньола"
+-  Млад мъж от петричко село е в неизвестност вече 5 дни
+-  Due ghiotte offerte per iniziare bene il 2024: che prezzi per Motorola e OnePlus
+-  Entre la CAN et la Coupe d'Asie, les clubs de Ligue 1 vont tirer la langue en janvier
+-  ‘बृगभूषण सिंह के लोग फोन कर धमका रहे हैं’, साक्षी मलिक ने सरकार से लगाई सुरक्षा की गुहार
+-  मॉडलिंग छोड़ अकाउंटिग का काम, मुंबई में जेल की हवा; जानें मिस्टीरियस दिव्या पाहुजा की इनसाइड स्टोरी
+-  Borrell afirma que el mundo” debe imponer” una solución al conflicto de Gaza
+-  Borrell afirma que el mundo” debe imponer” una solución al conflicto de Gaza
+-  Ubijen drugi čovjek Hamasa, Iran i Hezbolah prijete. Izrael: Spremni smo na sve
+-  Neke putničke agencije prestale prodavati Ryanairove letove
+-  Northwest Panhandle AgriLife Extension plans three annual crop conferences
+-  Bild: Россия сейчас ведет войну в худшем советском стиле
+-  Santiago 2023: Contraloría informó que no se han rendido $194 mil millones y que envió antecedentes al CDE
+-  Боксовите национали стартираха подготовка за юбилейното издание на Купа "Странджа"
+-  Detran informa o Calendário de Licenciamento de 2024
+-  शाम के नाश्ते के लिए बनाएं ब्रेड चीज़ बाइट, ये है आसान रेसिपी
