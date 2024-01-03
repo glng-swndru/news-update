@@ -1,51 +1,51 @@
 # Latest News
--  Европейските пазари записаха рязък спад в сряда
--  রংপুর-৩ আসনে নির্বাচনে অপ্রতিরোধ্য তৃতীয় লিঙ্গের রানি
--  Darts-WM: Die bisherigen Sieger im Überblick – Taylor, MvG und Co.
--  İran İçişleri'nden açıklama: Bu terör saldırısına en ezici şekilde cevap verilecek
--  Putin'den İran'a taziye mesajı
--  Danimarka Kraliçesi tahttan çekildi! Ancak ünvanını kullanmaya devam edecek
--  Özgür Özel İran'a taziye mesajı gönderdi
--  İYİ Parti Sözcüsü Kürşad Zorlu: 5 Ocak'tan itibaren sahaya iniyoruz
--  Tekirdağ'da müstakil evde çıkan yangında bir kişi öldü
--  İstanbul'da bir kişi silahla yaralandı
--  Kars'ta kar ve tipi etkili oldu
--  Bakan Uraloğlu, İranlı mevkidaşı Bazrpash ile görüştü
--  THY, AJet'in faaliyetlerine başlayacağı tarihi açıkladı
--  İran'da bir günlük yas ilan edildi
--  Xavi: Haaland ve Mbappe transferini düşünemeyiz
--  Önsezi yeteneği doğuştan güçlü ve lider 3 burç ortaya çıktı
--  Fransa'dan Gazze'ye insani yardım
--  Altı ay sonra ilk esir takası... Rusya ve Ukrayna 461 kişiyi serbest bıraktı
--  Guterres, Kirman saldırını kınadı
--  İsrail ile Lübnan sınırında gerilim tırmanıyor... Karşılıklı saldırılar düzenlendi
--  تشافي يحسم موقفه من التعاقد مع مبابي
--  Kein Schweizer Tag in Davos – Siege an Chanavat und Svahn
--  Founder and former CEO of Tingo Companies charged with Securities Fraud
--  Marcus Bank Review 2024
--  Terör saldırısı sonrası İran Cumhurbaşkanı Reisi'den ilk açıklama
--  نصر الله: طوفان الأقصى وجهت ضربة قاصمة لمسار التطبيع
--  Seçmen listeleri askıya çıkıyor!
--  Names in Jeffrey Epstein court documents to be unsealed in New York on Wednesday
--  Predstavljena karta koja doslovno znači život Jadranskom moru. Znanstvenike posebno zabrinjava jedna stvar...
--  Felcsaptak a lángok a Korányin
--  Odisha chit fund scam: OPID court orders confiscation of property of firm linked to AT Group
--  Krenulo prvo suđenje zbog urušavanja zgrada u potresu koji je pogodio Tursku, optuženima prijete velike kazne
--  Funcionarios reclaman a Matheu por qué no denunció cuando era ministro
--  Marta Lois renunciará a su acta de diputada para "emprender la campaña gallega"
--  Marta Lois renunciará a su acta de diputada para "emprender la campaña gallega"
--  港媽深圳影樓拍照險被剝光豬 性騷大控訴：「他把我內衣都扯下來！」被迫擺勾男姿勢 完事要簽「自願」合同｜Juicy叮
--  Europe Disposable Gloves Market to Witness Robust Expansion, More than $4 Billion Opportunities in the Next 6 Years - Arizton
--  Strašné chvíle prežili cestujúci vo vlaku v Tokiu: Žena zaútočila nožom, štyroch ľudí zranila!
--  «Diese katastrophale Tat wird eine harte Antwort nach sich ziehen»
--  SpaceX lanza primeros satélites de servicio celular con T-Mobile
--  Dodik: We will propose a new election law of the RS to be adopted by urgent procedure in the RSNA
--  رفع إشغالات شارع خالد بن الوليد في حي الزاوية الحمراء
--  Governo de Cabo Verde lança Oferta Pública de Venda da sua participação na Caixa Económica
--  Economie. La Maison Lejaby de lingerie placée en redressement judiciaire
--  Bakan Yumaklı, telefon bağlantısıyla Siirt'te 100 bin fidan dağıtım törenine katıldı
--  Ex-Ondo lawmaker declares gov ambition, says state deserves better deal
--  ريال مدريد يختتم استعداداته للقاء مايوركا
--  Jujutsu Kaisen Chapter 249 Release Date Revealed: What Are The Expectations!
--  Rache ist weiblich – düsterer Ludwigshafen-„Tatort“ zum Jahresstart
--  Opp fra Londons undergrunn med et budskap
+-  Görsel zeka testi: Resimdeki 8 kanaryayı 10 saniyede bulabilir misin? Fenerbahçeliler bile bulamıyor
+-  Mossad ajanları sorguda... MİT ifadeleri almaya başladı
+-  Serbest bırakılan İsrailli esirden Netanyahu eleştirisi: "Savaşı sürdürerek rehineleri kurtaramaz"
+-  Newcastle için Michel Sanchez iddiası
+-  S.Leone Ex-president Charged Over 'Coup Attempt'
+-  Apple Seeds Second Betas of iOS 17.3 and iPadOS 17.3 to Developers
+-  Гранада удари Кадис в битка на дъното
+-  Samsung is offering a free $50 credit when you 'reserve' the new Galaxy S24 phones
+-  Un rehén israelí murió el mes pasado durante un intento de rescate, según el Ejército
+-  Investigan posibles ventajas fiscales en el pago de la cláusla de Neymar en 2017
+-  Parlamento chileno retoma discusión de esperada reforma de pensiones de presidente Boric
+-  Las acciones europeas registran su peor jornada en casi ocho semanas tras un 2023 estelar
+-  ProPicks se reequilibra en enero: 2 acciones para comprar y una para vender
+-  El precio de Bitcoin cae más de $4000, horas después de que Jim Cramer dijera que vivirá para siempre, pero ¿por qué?
+-  ÚLTIMA HORA - Fallece Roberto del Cueto Legaspi, ex subgobernador de Banxico
+-  Los futuros de la soja se recuperan de mínimos desde junio
+-  Israel negocia con varios países para reasentar palestinos tras la guerra en Gaza
+-  নৌকার বিজয় সুনিশ্চিত করতে সবাইকে একযোগে কাজ করতে হবে: রাজি ফখরুল
+-  চবিতে শিক্ষক নিয়োগ স্থগিত চেয়ে ইউজিসির চিঠি
+-  কক্সবাজার-৩: আ.লীগ ও স্বতন্ত্র প্রার্থীর সমর্থকদের মধ্যে সংঘর্ষ, গুলি
+-  নোয়াখালীতে আ.লীগের দুপক্ষের সংঘর্ষে আহত ২৪, গাড়ি ভাঙচুর
+-  El Congreso votará el próximo miércoles la convalidación de la reforma del paro y el decreto anticrisis
+-  Tekashi y Yailin La Más Viral reaparecen juntos, felices y enamorados en un club nocturno de Miami
+-  6 dicas para se proteger do golpe do FGTS em pleno 2024
+-  Hisbollah-Chef Hassan Nasrallah spricht nach Tötung von Hamas-Vize Saleh al-Aruri im Libanon
+-  The Beauty of Uvita, with its Pristine Beaches, Lush Rainforests, and Abundant Wildlife
+-  Un joven denuncia que fue violado por ocho hombres en un parque de Madrid
+-  Csak decemberben 15 milliót költött hirdetésre a Megafon, hogy „digitális szabadságharcosokat” toborozzon
+-  Mindenkit megkérdez a Századvég a paksi erőmű környékén az atomenergiáról
+-  Cladding firm Arconic not attending Grenfell event to hear bereaved testimonies
+-  Cladding firm Arconic not attending Grenfell event to hear bereaved testimonies
+-  Dos regalos: una película y un libro
+-  Пойтахт бюджети тасдиқланди. Маблағ қаердан олиниб, қаерга сарфланади?.
+-  Бир қанча мансабдор шахсларнинг тадбиркорлик фаолиятига чек қўйилди – Антикоррупция агентлиги .
+-  ООН и ЕС осъдиха терористичната атака в Иран, Турция обяви "края на атлантическата ера"
+-  Россия ва Украина ўртасида асирлар бўйича йирик алмашинув бўлиб ўтди .
+-  Nederlandse ijsverenigingen houden adem in, vorst én zon in aantocht: ’We zijn alert’
+-  Chiefs will rest Patrick Mahomes in Week 18, Blaine Gabbert to start
+-  Билетите за контролите с тима на Кристиано Роналдо в Китай бяха изкупени за часове
+-  "Endlich bin ich sie los": Paul Janke schießt gegen Eva!
+-  Quem tem direito ao Auxílio-doença e como pedir no novo INSS
+-  نصر الله: جريمة اغتيال العاروري لن تبقى دون رد
+-  خامنئي يتوعد بردّ قاس بعد التفجيرين في جنوب إيران
+-  السويد تسجل درجة الحرارة الأدنى منذ 130 عاماً
+-  Presidente del PJ expresa “preocupación” por intento en el Congreso de reformar sistema de justicia y destituir a jueces supremos
+-  Why the first partial heart transplant hailed as a success
+-  Devolución FONAVI 2024: Cuándo sale el nuevo cronograma de pagos y lista de nuevos beneficiarios
+-  Xavi: "Không cần nhiều lời"
+-  NEC krijgt tegenvaller te verwerken door transferverzoek: 'Het is zijn goed recht'
+-  أميركا وشركاؤها يجددون الدعوة لوقف هجمات الحوثيين بالبحر الأحمر
