@@ -1,11 +1,51 @@
 # Latest News
--  كل ما يجب عليك معرفته للاستفادة من نظام أمو الشامل؟
--  تفعيل عطلة "إيض يناير" بقرار ملكي يَفرض على قطاع وزاري حيوي تأجيل مباراة للتوظيف
--  الدق تم.. عملية جديدة لسلاح الجو المغربي تسفر عن تدمير قوة إرهابية تابعة للبوليساريو
--  سنة 2024: سنة العزم والحزم والحسم
--  عبد اللّه البقالي يكتب: حديث اليوم
--  دراسة: ألعاب الفيديو المجسمة تقلل من أعراض الاكتئاب الشديد
--  هل هناك فرق بين اكتئاب ما بعد الولادة والكآبة النفاسية؟
--  شريك الحياة المصاب بالاكتئاب يؤثر سلباً على الصحة والمال
--  "كان كيسحابلي".. أيوب عنباوي يطلق جديده الفني (فيديو)
--  القوات المسلحة الملكية تكشف حصيلة محاربتها "للحريڭ"
+-  Европейските пазари записаха рязък спад в сряда
+-  রংপুর-৩ আসনে নির্বাচনে অপ্রতিরোধ্য তৃতীয় লিঙ্গের রানি
+-  Darts-WM: Die bisherigen Sieger im Überblick – Taylor, MvG und Co.
+-  İran İçişleri'nden açıklama: Bu terör saldırısına en ezici şekilde cevap verilecek
+-  Putin'den İran'a taziye mesajı
+-  Danimarka Kraliçesi tahttan çekildi! Ancak ünvanını kullanmaya devam edecek
+-  Özgür Özel İran'a taziye mesajı gönderdi
+-  İYİ Parti Sözcüsü Kürşad Zorlu: 5 Ocak'tan itibaren sahaya iniyoruz
+-  Tekirdağ'da müstakil evde çıkan yangında bir kişi öldü
+-  İstanbul'da bir kişi silahla yaralandı
+-  Kars'ta kar ve tipi etkili oldu
+-  Bakan Uraloğlu, İranlı mevkidaşı Bazrpash ile görüştü
+-  THY, AJet'in faaliyetlerine başlayacağı tarihi açıkladı
+-  İran'da bir günlük yas ilan edildi
+-  Xavi: Haaland ve Mbappe transferini düşünemeyiz
+-  Önsezi yeteneği doğuştan güçlü ve lider 3 burç ortaya çıktı
+-  Fransa'dan Gazze'ye insani yardım
+-  Altı ay sonra ilk esir takası... Rusya ve Ukrayna 461 kişiyi serbest bıraktı
+-  Guterres, Kirman saldırını kınadı
+-  İsrail ile Lübnan sınırında gerilim tırmanıyor... Karşılıklı saldırılar düzenlendi
+-  تشافي يحسم موقفه من التعاقد مع مبابي
+-  Kein Schweizer Tag in Davos – Siege an Chanavat und Svahn
+-  Founder and former CEO of Tingo Companies charged with Securities Fraud
+-  Marcus Bank Review 2024
+-  Terör saldırısı sonrası İran Cumhurbaşkanı Reisi'den ilk açıklama
+-  نصر الله: طوفان الأقصى وجهت ضربة قاصمة لمسار التطبيع
+-  Seçmen listeleri askıya çıkıyor!
+-  Names in Jeffrey Epstein court documents to be unsealed in New York on Wednesday
+-  Predstavljena karta koja doslovno znači život Jadranskom moru. Znanstvenike posebno zabrinjava jedna stvar...
+-  Felcsaptak a lángok a Korányin
+-  Odisha chit fund scam: OPID court orders confiscation of property of firm linked to AT Group
+-  Krenulo prvo suđenje zbog urušavanja zgrada u potresu koji je pogodio Tursku, optuženima prijete velike kazne
+-  Funcionarios reclaman a Matheu por qué no denunció cuando era ministro
+-  Marta Lois renunciará a su acta de diputada para "emprender la campaña gallega"
+-  Marta Lois renunciará a su acta de diputada para "emprender la campaña gallega"
+-  港媽深圳影樓拍照險被剝光豬 性騷大控訴：「他把我內衣都扯下來！」被迫擺勾男姿勢 完事要簽「自願」合同｜Juicy叮
+-  Europe Disposable Gloves Market to Witness Robust Expansion, More than $4 Billion Opportunities in the Next 6 Years - Arizton
+-  Strašné chvíle prežili cestujúci vo vlaku v Tokiu: Žena zaútočila nožom, štyroch ľudí zranila!
+-  «Diese katastrophale Tat wird eine harte Antwort nach sich ziehen»
+-  SpaceX lanza primeros satélites de servicio celular con T-Mobile
+-  Dodik: We will propose a new election law of the RS to be adopted by urgent procedure in the RSNA
+-  رفع إشغالات شارع خالد بن الوليد في حي الزاوية الحمراء
+-  Governo de Cabo Verde lança Oferta Pública de Venda da sua participação na Caixa Económica
+-  Economie. La Maison Lejaby de lingerie placée en redressement judiciaire
+-  Bakan Yumaklı, telefon bağlantısıyla Siirt'te 100 bin fidan dağıtım törenine katıldı
+-  Ex-Ondo lawmaker declares gov ambition, says state deserves better deal
+-  ريال مدريد يختتم استعداداته للقاء مايوركا
+-  Jujutsu Kaisen Chapter 249 Release Date Revealed: What Are The Expectations!
+-  Rache ist weiblich – düsterer Ludwigshafen-„Tatort“ zum Jahresstart
+-  Opp fra Londons undergrunn med et budskap
