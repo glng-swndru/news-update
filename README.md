@@ -1,51 +1,11 @@
 # Latest News
--  ‘케인 옆에서 뛸래?’... 뮌헨, 갑자기 ‘분데스리가 폭격기’ 영입전 참전
--  Galería: Así se prepara una rosca de reyes
--  طريقة ورابط التقديم في وظائف الخطوط الجوية السعودية
--  Darts-WM 2024 – Finale heute live: Übertragung im Free-TV, Live-Stream und Live-Ticker
--  Gouvernement : les nouvelles nominations du conseil des ministres et les textes adoptés
--  ريال مدريد يفتتح 2024 بالفوز على مايوركا
--  헤즈볼라 수장 "이스라엘의 베이루트 공격, 침묵하지 않을 것"
--  Netflix mit neuer Preiserhöhung! Das genießen jetzt die Abonnenten
--  Imputada por blanqueo de capitales en operación 'Napoleón' seguirá detenida
--  Quick Fix: Greek Black Eyed Pea Casserole
--  SUDAR KOD TERAZIJSKOG TUNELA Dva automobila slupana, stvaraju se gužve (FOTO)
--  Le secteur du gaz naturel en Afrique prendra encore plus d’ampleur en 2024
--  Chavismo publicó nuevo comunicado para quejarse por decomiso del avión venezolano-iraní en Buenos Aires
--  Di Fusco: "Inter chiamata a vincere altrimenti sarebbe un fallimento"
--  Eruption of Scabies Infections Hits UK
--  "الميادين": غارة من مسيّرة إسرائيلية على بلدة يارون
--  SEP: Estas son las fechas de las primeras vacaciones para educación básica en 2024
--  Hallan golpeada a mujer en calle de Salina Cruz
--  PES optužuje predsjednika Milatovića
--  Halesowen man 'encouraged support for banned Northern Ireland loyalist groups', trial told
--  La autodeterminación es un derecho que tiene todo pueblo en México: Adrián LeBarón
--  Le fonds Fundamental Equity de Schonfeld termine l'année 2023 en hausse de 4,8% ; Marshall Wace avec deux fonds en hausse de 8% - sources
--  LEDENI TALAS OKOVAO EVROPU: Najmanje dve osobe izgubile život, u Švedskoj izmereno neverovatnih - 43 stepena!
--  Muere el humorista Paco Arévalo a los 76 años
--  Mehrere Landeshauptstädte wurden aufgrund von Massen-E-Mails mit Bombendrohungen evakuiert
--  Tagesschau-Reporter mit völligem Blackout – Jens Riewa greift ein
--  Comandante israelita visita fronteira com Líbano após ataque em Beirute
--  ดาวโจนส์ร่วงต่อเนื่อง ล่าสุดร่วงกว่า 300 จุด | RYT9
--  O SUZANI MANČIĆ SVI MISLE DA SVE ZNAJU, A KADA ČUJU OVU INFORMACIJU OSTANU POTPUNO ŠOKIRANI! Evo koliko je zapravo VISOKA
--  Japan: Zrakoplovu obalne straže navodno nije bilo odobreno polijetanje
--  Women, non-binary candidates faced online harassment in 2023 P.E.I. election: report
--  Women, non-binary candidates faced online harassment in 2023 P.E.I. election: report
--  Women, non-binary candidates faced online harassment in 2023 P.E.I. election: report
--  Women, non-binary candidates faced online harassment in 2023 P.E.I. election: report
--  Vigil held to honor slain Muslim boy as accused attacker appears in court in Illinois
--  Opération Nez rouge logs 30,000 drives across Canada in 2023
--  POGINULA ŽENA U FUTOGU Pokosio je automobil, ulica zatvorena za saobraćaj
--  ريال مدريد يعتلي صدارة الليغا بالفوز على مايوركا بهدف وحيد
--  Vehicle sales posted biggest annual jump last year since 1997: DesRosiers
--  Vehicle sales posted biggest annual jump last year since 1997: DesRosiers
--  Firefighters battling large fire at Florida home of Miami Dolphins receiver Tyreek Hill
--  ABD'de 13 yaşındaki çocuk Tetris oyununda 157. seviyeye gelen ilk kişi oldu
--  İtalya'dan Gazze'deki çatışmalara yönelik açıklama: Endişe duyuyoruz
--  Eski gözdesi attığı golle Fatih Terim'i mest etti
--  Bursa'da Şehirlerarası Otobüs Terminalinde vatandaş ortalığı ayağa kaldırdı
--  خالد يوسف عن اختيار العوضي لبطولة «الإسكندراني»: فيه مواصفات نجم الصف الأول
--  EPL: Ten Hag receives boost as two Man Utd players return to training
--  Nach Klimaprotest: Bewährungsstrafe für Sprecher der „letzten Generation“
--  Kim Kardashian’s Once-Massive Mobile Game Is No More
--  En microbikini, Jimena Barón comienza el nuevo año en la playa
+-  بعد انتشاره بين الطلاب.. إجراءات الوقاية من الجديري المائي
+-  الأزهر يُدين تفجيري "كرمان" بإيران: نرفض العنف والإرهاب ضد الأبرياء
+-  "زراعة النواب" تناقش خطة الحكومة للتوسع في المحاصيل الاستراتيجية
+-  بعد مد فترة التقديم.. خريطة أماكن شقق سكن لكل المصريين (الطرح التكميلي)
+-  حقنة لفقدان الوزن كادت تنهي حياة عروس- ما القصة؟
+-  Regresso às aulas. Quantos alunos começam 2024 sem professores?
+-  Ministério da Educação: Mais de mil alunos sem professor a pelo menos uma disciplina
+-  ‘굳이 지금 ML를?’ 고우석의 무(리)한 도전, 오타니가 스쳐간다
+-  수원 삼성은 왜 강등됐나 ‘매탄병의 실체’ [취재파일上]
+-  고우석vs마츠이… SD에서 펼쳐질 한·일 마무리 경쟁[초점]
