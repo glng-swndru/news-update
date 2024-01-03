@@ -1,11 +1,11 @@
 # Latest News
--  UOL NEWS
--  Extensión de licencias de conducir: ¿En qué fecha debo renovar?
--  Today's American Express CD Rates: Earn up to 5% APY
--  Milatović vratio Skupštini tri zakona na ponovno odlučivanje
--  Citypress | Health department warns of outbreak as travellers return from cholera-endemic neighbouring countries
--  Presidente do Irão e da Rússia condenam atentado que matou pelo menos 103 pessoas no Irão
--  News24 | Thursday's weather: Thunderstorms and heavy rains expected in Eastern Cape
--  Les voitures de société en tête des ventes en 2023, alors que le particulier se gratte la tête pour faire le bon choix
--  El chollo de Jeep ha rebajado casi 6.000 euros su precio
--  Travis Kelce dijeli uvid u proslavu Nove godine s Taylor Swift
+-  كل ما يجب عليك معرفته للاستفادة من نظام أمو الشامل؟
+-  تفعيل عطلة "إيض يناير" بقرار ملكي يَفرض على قطاع وزاري حيوي تأجيل مباراة للتوظيف
+-  الدق تم.. عملية جديدة لسلاح الجو المغربي تسفر عن تدمير قوة إرهابية تابعة للبوليساريو
+-  سنة 2024: سنة العزم والحزم والحسم
+-  عبد اللّه البقالي يكتب: حديث اليوم
+-  دراسة: ألعاب الفيديو المجسمة تقلل من أعراض الاكتئاب الشديد
+-  هل هناك فرق بين اكتئاب ما بعد الولادة والكآبة النفاسية؟
+-  شريك الحياة المصاب بالاكتئاب يؤثر سلباً على الصحة والمال
+-  "كان كيسحابلي".. أيوب عنباوي يطلق جديده الفني (فيديو)
+-  القوات المسلحة الملكية تكشف حصيلة محاربتها "للحريڭ"
