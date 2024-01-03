@@ -1,11 +1,11 @@
 # Latest News
--  Sjeverozapadna Evropa bori se s ekstremnom hladnoćom i poplavama
--  Serán Yeoh y Ferrell presentadores en los Globos de Oro
--  Defiende Tren Maya... ¡Gobernador panista!
--  Se reduce en 13.5% precio de internet fijo
--  Dejan a sujeto semidesnudo entre maleza en San Guillermo
--  Božović iz zatvora piše slobodne dane
--  Cijene nafte iznad 76 dolara, trgovce brine opskrba
--  Lazio, quando rientrano Immobile e Luis Alberto? I tempi di recupero
--  ¿Quién fue Felipe Carrillo Puerto y por qué AMLO le dedicó este año?
--  Ευρωπαϊκό πρωτάθλημα πόλο: Η Ελλάδα και οι μεγάλοι της αντίπαλοι στην Κροατία
+-  Niemieckie MSZ krytykuje izraelskie pomysły dotyczące Strefy Gazy
+-  Przetarg na zbożowy terminal może trafić na unijną wokandę
+-  Medialna zgoda polityczną utopią
+-  Borys: Trzeba brać odpowiedzialność za to, co samemu się robi
+-  Najwięcej upadłości jest w przetwórstwie i handlu
+-  Coraz niższe prognozy inflacji, coraz wyższe prognozy płac
+-  Przez komisy przewinęło się ponad 2 mln używanych aut
+-  Jak zwiększyć bezpieczeństwo prawne firm
+-  Top 5 tegorocznych dotacji dla firm
+-  WIG obrał kurs na 100 tys. pkt
