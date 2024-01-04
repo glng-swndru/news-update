@@ -1,51 +1,11 @@
 # Latest News
--  US drone strike kills Iran-backed militia commander Abu Taqwa Al-Saedi who masterminded attacks on troops in Middle East
--  Kulonummi, Lassila ja Männistö turnauspalkinnoille
--  خالد مشعل: طريق الشهادة هو خيار القيادة كما هو خيار الجنود
--  Resultados de la Primitiva del jueves 4 de enero de 2024
--  لاعبو الفريق الوطني إحتفلوا بحكيمي
--  Ruotsi–Suomi-unelmafinaali jää kokematta – Yhdysvallat kaatoi Nuoret Leijonat vahvan ylivoimansa turvin
--  بلينكن يبدأ جولة جديدة في منطقة الشرق الأوسط
--  محمد بن راشد يطلق “أجندة دبي الاجتماعية 33” حتى العام 2033 تحت شعار “الأسرة أساس الوطن”
--  Impossível resistir a esta apetitosa tortinha saudável
--  Résultats Eurodreams: le tirage du jeudi 4 janvier 2024
--  Heinz AXES pudding everyone grew up eating and ‘it won’t come back no matter how much you miss it’
--  It's getting serious! Robert Irwin reveals girlfriend Rorie Buckey will be joining him in South Africa for I'm A Celebrity… amid engagement rumours
--  Why TGI Fridays Just Shut Down A Whopping 36 Locations
--  Coupe de France: la magnifique ambiance à l'entraînement de Revel, futur adversaire du PSG
--  Wall Street termine mitigée, les taux obligataires remontent
--  Naučnici otkrili novu klasu antibiotika, efikasno ubijaju jednu od najopasnijih bakterija
--  “김하성 트레이드 오퍼 기꺼이 들어줄게…” 고우석과 함께할 운명 아냐? 512억원 2루수 ‘어디로 가나’
--  "5개월 만에 이렇게 운명이 바뀐다고!"…무명 이강인 영입→유니폼 판매 1위→첫 우승 결승골→엔리케의 간판스타→파리의 새로운 왕자
--  '스파이크, 안면 강타' 득점...'배구여제'와 '디그여왕'의 동업자 정신, 기뻐하기보다 상대를 먼저 걱정하는 베테랑의 품격 [유진형의 현장 1mm]
--  “내가 30홈런 쳐야 두산 우승” 김재환 美에서 배수의 진…강정호 열정에 반했다 ‘부활 다짐’
--  Минэнерго РФ сообщило о переводе энергетиков в регионах в режим повышенной готовности
--  Cenzura na sylwestrze w Polsacie? Artyście kazano zmienić słowa piosenki
--  Pronostican un nuevo frente frío que producirá lluvias y vientos en Honduras
--  The First ‘Night Swim’ Reviews Did Not Enjoy Diving Into This Rare Blumhouse Miss
--  Ondo PDP appoints Tola Alabere as acting Chairman
--  Премьер Мелони: путём к переговорам по Украине станет равновесие в бою
--  Conflict in full swing: Forest bats found to avoid large areas around fast-moving wind turbines
--  Uruguay registró un 5,11 % de inflación en 2023
--  Une préfecture dément avoir rejeté la naturalisation de Belges francophones pour méconnaissance du français
--  Libertad condicional | Oscar Pistorius saldrá este #5Ene
--  طارق الجنايني: اهتمام المشاهد المصري والعربي بتفاصيل «حالة خاصة» أبهرنا
--  Transfer: Tuchel wants Bayern Munich to sign Chalobah from Chelsea
--  ЦИК может зарегистрировать первых кандидатов на выборах президента России
--  La Corée du Nord a fourni des missiles à la Russie pour attaquer l'Ukraine, selon la Maison Blanche
--  BBC The Traitors: Who are the traitors in the second series of the Claudia Winkleman show?
--  Usta sanatçı Ayla Algan hayatını kaybetti!
--  Así quedan las tarifas del transporte público en CDMX para 2024
--  Why did Ricky Rubio retire? What happened to Ricky Rubio?
--  РЖД начислит баллы программы лояльности пассажирам задержанных поездов под Челябинском
--  Europa Park: à 33 ans, l'Alsacien Julien Lauffenburger pilote la construction du prochain grand huit
--  Google Bard seguirá la estela de ChatGPT y tendrá una versión de pago
--  Retiring House Republican says $174,000 isn't enough money for members of Congress: 'Most of us don't have wealth'
--  Größere Überschwemmungen möglich
--  سعود بن صقر: الشباب القوة الفاعلة والمؤثرة في رسم ملامح المستقبل
--  القنوات الناقلة لكأس أمم إفريقيا 2024
--  بداية انطلاق القناة المغربية الإخبارية الخامسة وثلاث قنوات رياضية جديدة
--  لاعِبيْن مُهميْنِ يتلحقان بالمنتخب المغربي استعداد لكأس أفريقيا
--  بلاغ من الوكالة الوطنية للسلامة الطرقية
--  إسبانيا: إضراب يعطل 400 رحلة جوية لشركة إيبيريا
--  الخزينة.. توظيف مالي لمبلغ 20,75 مليار درهم من الفائض
+-  NASDAQ-Titel Microsoft-Aktien im Minus: Eigener Button für Microsofts KI-Co-Pilot
+-  Fußballstar macht nach gescheiterter Ehe seine neue Liebe öffentlich
+-  Το πανόραμα της Ευρωλίγκας
+-  Guarda Municipal de Lucas divulga balanço de 6,6 mil ocorrências; 576 veículos apreendidos
+-  Blanco y Negro aprueba a Jorge Almirón para ser el nuevo director técnico de Colo Colo
+-  Der SemperOpernball ist für sie ein Heimspiel
+-  BBC The Traitors confirms the identity of its fourth traitor as fans react to the 'unexpected' choice
+-  Η βαθμολογία της Euroleague: Μοιράζεται την 4η θέση με Φενέρ και Μακάμπι ο Ολυμπιακός
+-  CFE 2024: Hay aumentos en tu recibo a partir de enero y así quedan las tarifas
+-  ALISON BOSHOFF: How chef Brooklyn Beckham plans to sell his hot sauce in the virtual world as his billionaire father-in-law Nelson Peltz reportedly advises him on building his culinary empire
