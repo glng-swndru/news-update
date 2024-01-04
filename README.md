@@ -1,51 +1,51 @@
 # Latest News
--  البطولة: اتحاد تواركة يرتقي إلى المركز الثامن عقب الانتصار على أولمبيك آسفي
--  كريستيانو رونالدو يشتري قصرا في دولة عربية غير السعودية!
--  "التجهيز" تدعو مستعملي الطرق إلى الحذر
--  بلاغ هام من "الطرق السيارة" لمستعملي هذه المحاور الطرقية
--  كان 2023 .. "الكاف"يرفع قيمة الجوائز المالية
--  "الكاف" يرفع قيمة جوائز كأس أمم إفريقيا
--  قتلى وجرحى في صفوف ميليشيات البوليساريو اخترقت الجدار العازل
--  ناقوس الخطر يدقّ .. شبح الجفاف يخيم على ثاني أكبر سد بالمغرب
--  اتحاد تواركة يفوز على ضيفه أولمبيك آسفي "1-0"
--  عجز التساقطات وارتفاع درجات الحرارة يؤثران على إنتاج المحاصيل والمساحات المخصصة للرعي
--  تيزنيت : المكتب الإقليمي للجامعة الوطنية للتعليم FNE يُعزي المدير الإقليمي للتعليم
--  الحسيمة: اعتقال مرشحين محتملين للهجرة السرية
--  Un mort și mai mulți răniți într-un atac armat la un liceu din statul Iowa, SUA
--  בקצה החץ הצה"לי, הכי קרוב שאפשר לליבת האויב: יואב לימור עם לוחמי מגלן בלב חאן יונס
--  שליטה צבאית ושת"פ עם מצרים: במערכת הביטחון נערכים לחשוף את תוכנית "היום שאחרי" בעזה
--  Avistan en Colombia un raro ejemplar de un pájaro mitad macho y mitad hembra
--  Perú supera a Colombia como país con mayor diversidad de aves en el mundo, según Sernanp
--  COVID və maska rejimi ABŞ xəstəxanalarına qayıdır?
--  Registran en Alaska el primer caso mundial de un oso polar muerto por la gripe aviar
--  Jiżdiedu għal 12.5% l-interessi għal ħlasijiet kummerċjali tard
--  Vier ploegen strijden om de eindzege op finaleavond Ede Stad zaalvoetbaltoernooi
--  Primeros nombres de Jeffrey Epstein revelados: aquí están las conclusiones más importantes
--  Sərxoş ata bir yaşlı qızını beşinci mərtəbədən atdı
--  Ganz Oederan ist ans Glasfasernetz angeschlossen - jedenfalls fast
--  Schließung in Penig: Fleischerei Gretenkord und Bäckerei Stölzel ziehen sich zurück
--  Zamfara lawmaker grants scholarship to 118 students
--  Böse Überraschung für Mieter mit Fernwärme in Sachsen ab 2025?
--  Хитойдаги ишсизлик: Талабалар дипломнинг қадри тушиб кетганидан шикоят қилмоқда.
--  АҚШ Ироқда «Ҳизбуллоҳ» қўмондони машинасига зарба берди.
--  Эрондаги терактда жабрланганлар орасида Ўзбекистон фуқаролари йўқ.
--  Германия Конституциявий суди Усмоновнинг яхтадаги тинтувларга қарши даъвосини қабул қилмади.
--  Experten vermuten Verkettung von Fehlern als Ursache für Jetabsturz
--  Наманганда ўсмир отасининг машинасини бошқариб, 4 та қоидабузарлик ва ЙТҲ содир этди.
--  The US Tennis Association is reviewing its safeguarding policies and procedures
--  Grab Marvel's Guardians of the Galaxy for free on the Epic Games Store
--  Paulista A2: Em Hortolândia, executivo do Juventus fala sobre estrutura e contratações
--  THF'den Fenerbahçe, Galatasaray ve Trabzonspor'a davet
--  KRÖNIKA: Jag kände mig så äcklad – ska bli vegan
--  José Mourinho niega la posibilidad de dirigir a Brasil y mantiene a la Roma como prioridad
--  Játékokra költene a Gondoskodás Alapítvány Mosonmagyaróváron
--  Hunter și Herder, supercomputerele exascale germane, vor folosi AMD Instinct MI300A
--  Brejza za Sikorskiego w europarlamencie. „Pozostanę aktywnym parlamentarzystą”
--  Prince of Persia: The Lost Crown Ne Zaman Çıkıyor? Fiyatı Ne Kadar? Sistem Gereksinimleri Neler?
--  Tajemniczy transfer danych na telefon byłego szefa policji w Warszawie. Kilka godzin po akcji CBA
--  Tajemniczy transfer danych na telefon byłego szefa policji w Warszawie. Kilka godzin po akcji CBA
--  Ukraine-Blog: Mehrheit rechnet 2024 nicht mit Kriegsende
--  Brejza za Sikorskiego w europarlamencie. „Pozostanę aktywnym parlamentarzystą”
--  Muğla'da eş zamanlı uyuşturucu operasyonu... 11 zanlı gözaltında
--  KKTC Cumhurbaşkanı Tatar, Ankara'da "Kıbrıs Gerçekleri" sergisine ziyarette bulundu
--  Erik ten Hag açıkladı! Altay Bayındır oynayacak mı?
+-  עדי חבשוש בדרך לתפקיד ראשי: קשת 12 במהלך מפתיע
+-  מוריניו מגיע לנטפליקס: "הם משלמים לי טוב"
+-  רכבת ישראל בבשורה אדירה: אלו שתי התחנות שנפתחות מחדש
+-  טהוניה רובל חושפת דרמה רפואית: "תחזיקו לי אצבעות"
+-  Meteo centar TV Vijesti: U petak oblačno i bez padavina, do 18...
+-  Husiler saldırı için ABD'yi işaret etti... "Cezasız kalmayacak"
+-  İşgalci İsrail'in Gazze katliamında 90. gün
+-  Toyota gemileri yaktı: 2024'ün en çılgın Corolla kampanyası!
+-  BM'den, uluslararası kamuoyuna Sudan çağrısı: "Harekete geçilmeli"
+-  Video van de dag: Man vliegt in Las Vegas op rechter af na veroorde­ling en slaat erop los
+-  ‘HOTSPOT! is Eric Vloeimans in zijn uitbundigste vorm’
+-  MAST í­hugar að kæra Artic Sea Farm til ríkis­sak­sóknara
+-  Split u produžetku do velike pobjede u ABA ligi, dvojica igrača ostvarila double-double
+-  Furs poziva državljane k oddaji vloge za vzdrževane družinske člane
+-  Košarkarski as prvič o duševnih težavah in koncu kariere
+-  Carrefour dejará de vender en Francia productos de PepsiCo por su subida "inaceptable" de precios
+-  Desmiente Britney Spears su regreso a la música
+-  Invita DIF a adultos mayores a pasar por su apoyo alimentario
+-  Hero Vs Harley Davidson: హార్లే డేవిడ్‌సన్ రేంజ్‌లో హీరో బైక్ - లాంచ్ ఈ నెలలోనే!
+-  Rupee Closes Slightly Higher Supported By Dollar Inflows
+-  Russian Oil Price For India Hit 12-month High In November
+-  KKTC Cumhurbaşkanı Tatar: Hiçbir güç Türkiye ve KKTC'nin arasındaki bağları koparmaya yetmeyecek
+-  Gujarat Is In Talks With Chipmakers Of Japan, US, South Korea: Report
+-  ABD'de bir liseye silahlı saldırı: 1 ölü, 3 yaralı
+-  Bakan Fidan İranlı mevkidaşına taziyelerini iletti
+-  Ukrayna: Rus komuta merkezini vurduk
+-  Bakanı Tekin'den Kastamonu ziyareti
+-  Bayern Münih'te stoper harekatı!
+-  PepsiCo presenta un ERE que afectará a 550 empleados en España
+-  هآرتس: الشرطة لم تجد أدلة على اعتداءات جنسية يوم 7 أكتوبر
+-  إعلام عبري: قانون نتنياهو الناجم عن جنون العظمة مصيره مزبلة التاريخ
+-  مشاهد لمعارك في غزة وهجمات للقسام خلف خطوط التوغل - فيديو
+-  Az Indexet hazugsággal, a BKK vezetését elképesztő felelőtlenséggel vádolja a VEKE
+-  Megszűnik a fekvőbeteg-ellátás az orosházi kórház urológiai osztályán
+-  A horvátok visszautasítják Hernádi Zsolt vádjait, aki szerint Magyarország a magas horvát tranzitdíjak miatt kénytelen továbbra is orosz olajat venni
+-  Žuti dvaput morali pobijediti istu utakmicu, u novoj velikoj drami stigli do još jedne gostujuće pobjede
+-  ŠTA DONOSI NOVI ZAKON: Za otkrivanje poslovne tajne kazne i do 30.000 konvertibilnih maraka
+-  Nestašica leka za dijabetes: Ljudi ga kupuju da bi skinuli višak kilograma VIDEO
+-  Tom Hanks 2024: His Cinematic Legacy Amidst Epstein Rumors and Cultural Connections
+-  Οι 47+2 ποδοσφαιριστές που πηγαίνουν στο Κόπα Άφρικα: Δύο χωρίς απώλεια, ποια είναι η πιο «λαβωμένη»;
+-  AI-driven study redefines right heart health assessment with novel predictive model
+-  Split na američki pogon nastavio očajan niz "Igosa"
+-  Šola: Vidjelo se da imamo veliko zajedništvo i veću širinu;...
+-  קלינטון, הנסיך אנדרו וטראמפ: רשימת החברים של ג'פרי אפשטיין נחשפת
+-  "לקחנו על עצמנו ב'ארץ נהדרת' את המשימה להרים את המורל של העם"
+-  "שלטון פלסטיני אזרחי מתוך עזה, שלא עוין את ישראל": זו תוכנית מערכת הביטחון ליום שאחרי המלחמה
+-  אחרי 90 יום: משפחתו של חנן יבלונקה קיבלה הודעה שהוא חטוף בעזה
+-  פנרבחצ'ה - מכבי תל אביב 31:51 (רבע 2)
+-  מכבי נתניה העלתה את מחיר הכרטיס, הנהלת הפועל תל אביב תסבסד
+-  הליברטון מככב, יוקיץ' מאחורי לברון ודוראנט: ההצבעות לאולסטאר
