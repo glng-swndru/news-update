@@ -1,11 +1,11 @@
 # Latest News
--  Son dakika: Süper Loto çekilişi sonuçları belli oldu! 4 Ocak 2024 Süper Loto bilet sonucu sorgulama ekranı!
--  Fenerbahçe, Maccabi Tel Aviv'i rahat geçti
--  తల్లి, చెల్లికే జగన్‌ న్యాయం చేయలేదు
--  Стејт департмент: САД „не гледаат акти на геноцид“ во Газа
--  Comunidad china dona alimentos para personas de la tercera edad en Mérida
--  Dois são presos com drogas e munições em Colíder
--  Barbenheimer and jacked ticket sales gave big boost to Canadian box office in 2023
--  الميادين: تجدد القصف المدفعي العنيف شرقي خان يونس ووسطها جنوبي قطاع غزة
--  Канадского фигуриста Серенсена обвинили в изнасиловании
--  Mavericks Home Game Sponsored by TORRAS Launches, Special Edition Ostand Phone Case Stand Captivates Fans
+-  Braziliaanse media: 'Ajax gaat snel proberen smaakmaker Fluminense los te weken'
+-  Super Falcons Star Echegini Joins Juventus
+-  Gísli Þorgeir Íþróttamaður ársins með yfirburðum – Sex úr heimi fótboltans fengu atkvæði
+-  Honduras y Guatemala fortalecen la colaboración en desarrollo y democracia, afirma el presidente Bernardo Arévalo
+-  مصادر «الشرق الأوسط»: لجنة الاستقطابات للأربعة الكبار... لا تمويل لصفقاتكم الشتوية
+-  Harrysong Bags Political Appointment In Delta
+-  Koje je najštetnije alkoholno piće?
+-  Berisha në arrest shtëpie pa komunikim, Gjata: Shpikje e prokurorisë/ Ironizon Hila: Të bëjë dhe mbledhje kryesie poshtë dritares
+-  ADATA Brings Unlimited Sustainable Innovation to CES 2024
+-  Proud Luke Littler, 16, reveals the four celebrities who have slid into his DMs since World Darts Championships heroics
