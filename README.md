@@ -1,51 +1,11 @@
 # Latest News
--  Textile exports increase by 3% in December
--  Noah en Julia populairste kindernamen, Riley meest genderneutraal
--  Wohnprojekt: Nach Café Insel plant Euskirchener Caritas nun eine Demenz-WG in Weilerswist
--  Ukrajina i Rusija razmijenile stotine ratnih zarobljenika
--  No Plan To Increase Petrol Price To N1,200/Litre – NNPC
--  Mehrwertsteuer: Wie Menschen in Siegburg auf die gestiegenen Preise in der Gastronomie reagieren
--  Melis Sezen'e 27 yaş sürprizi
--  Zulhas Pastikan DMO Minyak Goreng Bakal Dilanjutkan, Ini Pertimbangannya
--  오병권 부지사, 안양 원룸텔 화재예방 대응상황 현장점검
--  Galatasaray'da Renato Sanches hamlesi
--  Jungfraubahn-Gruppe erreicht wieder Millionen-Marke
--  Transport minister says negligent contractor behind Rawang crane collapse, resulted in losses of RM2.4m to KTMB
--  Roma ikinci yarıda açıldı: İtalya Kupası'nda çeyrek finale çıktı!
--  Trabzonspor'dan Elneny ve Kampl açıklaması
--  ForFarmers N.V.: ForFarmers completes acquisition of Piast Pasze Sp. z.o.o.
--  Führerschein Lindlarerin wird für den freiwilligen Verzicht angefeindet
--  Transaction in Own Shares
--  Prinz Mally I. im Interview: Für mich ist der Leverkusener Karneval meine Heimatstadt
--  BGHL (EUR): NAV(s)
--  Valverde augura un Sevilla en crecimiento con Quique
--  Đặt con người làm trung tâm, Duy Tân khẳng định vị trí hàng đầu ngành nhựa
--  Das muss man alles über Königin Mary von Dänemark wissen!
--  Bundesregierung will Blinker für Fahrräder erlauben
--  Blinken ide na Bliski istok dok rastu strahovi od proširenja sukoba
--  Knicks’ Josh Hart makes comically bad pass into stands, jokes he can play in NFL
--  Stotine odsječene nakon zemljotresa u Japanu u kojem je poginulo najmanje 78 ljudi
--  Fenerbahçe, stoper ve orta saha transferi için gözünü Balkanlar'a dikti!
--  बृजभूषण के खिलाफ दर्ज यौन उत्पीड़न मामले में पेशी आज, पहलवानों की शिकायत पर नए सिरे से सुनवाई
--  Kuraklık nedeniyle çekilen gölden geriye liman kalıntıları kaldı
--  Tanguy Ndombele'nin yerine Jorginho! Galatasaray'da orta saha operasyonu
--  Beyanname şekilleniyor! AK Parti çalışmalarında üst aşamaya geçti
--  Batman'da 12 adrese eş zamanlı terör operasyonu
--  На севере Израиля прозвучали сирены воздушной тревоги
--  Yargıtay açıkladı, üye sayılarında düşüş: Dikkat çeken AKP ayrıntısı!
--  Nardaranda keçmiş məhkumdan avtomat götürülüb
--  লালমনিরহাট-৩ আসনে ত্রিমুখী লড়াই
--  В Узбекистане пытались продать российскую медаль XIX века
--  Çin'de hizmet faaliyetleri 5 ayın zirvesinde
--  Google agrees to Rs 41,000 crore settlement in Chrome incognito mode lawsuit
--  Galatasaray geçici çözümü buldu: Gelsin eski dostlar!
--  Selena'nın o ismi meğer bir zamanların en ünlü çocuk yıldızıymış!
--  BAGİS cihazı arızalanan balıkçı gemileriyle avcılık yapılamayacak
--  Yargıtay'ın Can Atalay kararına tepki yağdı
--  Inondations dans le Pas-de-Calais : Météo France maintient le département en vigilance rouge
--  Nigerian Art Student Sets New Guinness World Painting Record
--  Cara Bayar Bukalapak Lewat BRImo, Langkahnya Cukup Praktis
--  İş Bankası Genel Müdürü Hakan Aran'dan yüksek faiz uyarısı!
--  Tak Main-main, Daihatsu Curangi Hasil Tes Keselamatan Selama 30 Tahun
--  Zenius Setop Operasi Usai 20 Tahun Berdiri, Ini Penyebabnya
--  नासाले बीटीएसका तीन गीतलाई ‘चन्द्रमा मिसन’मा बजाउने
+-  Ferie zimowe 2024. Kiedy będą w Lubelskiem?
+-  4 Zodiako ženklai, kuriems dar šią žiemą prasidės šviesusis periodas
+-  원·달러 환율, 5.2원 오른 1310.0원 마감…美 매파적 의사록에 실망
+-  Transfer Serhou Guirassy'ego? Wszystko wskazuje na ten scenariusz
+-  الاحتلال يعتقل 8 فلسطينيين من رام الله
+-  محلل سياسي: الحرب في غزة هي بداية النهاية للاحتلال الإسرائيلي
+-  ترامب يطالب المحكمة العليا بإعادة اسمه إلى بطاقة الاقتراع في كولورادو
+-  코스피, 개인·외인 ‘팔자’에 2거래일 연속 하락... 2580대 '흔들'
+-  ارتفاع أسعار الذهب عالمياً
+-  Transfery - Relacja na żywo [04/01/2024]
