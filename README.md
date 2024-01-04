@@ -1,51 +1,51 @@
 # Latest News
--  Việt Á trích hoa hồng đến 40%, giám đốc CDC Bắc Giang nhận 'cảm ơn' 2 sổ tiết kiệm 5 tỉ
--  Tài xế dương tính với ma túy đá, tông ngã cảnh sát giao thông
--  Tuyển Việt Nam có 44,28% cơ hội giành vé đi tiếp ở Asian Cup 2023
--  Đồng loạt giảm giá tất cả mặt hàng xăng dầu
--  Bí thư Hà Nội: Chọn phương án rẻ nhất, minh bạch nhất để làm đường vành đai 4
--  Cơ quan du lịch Nhật Bản trấn an du khách Việt sau động đất
--  Ai đứng sau siêu dự án Sài Gòn Đại Ninh vụ chủ tịch Lâm Đồng bị khởi tố?
--  WESET English Center hợp tác cùng Hội Sinh viên Việt Nam tại Úc
--  Lớp học buổi tối thu hút giới trẻ Trung Quốc
--  Điều tra vụ người đàn ông lượm ve chai gặp nạn tử vong ở Củ Chi
--  עכשיו שהיא אישה חופשיה: האם בריטני ספירס תחזור לעשות מוזיקה?
--  סופי מי? ג'ו ג'ונאס יוצא עם דוגמנית הורסת
--  הפועל ירושלים הודיעה על התרת חוזהו של אלכסנדר דז'יקיץ'
--  10 Surprising Things about Edgar Allan Poe
--  10 Most Persistent Health Myths and Why They’re False
--  Celebra el Poder de la Mente en el día Mundial de la Hipnosis
--  La plantilla del bus urbano de Zaragoza vota este jueves si hace huelga el fin de semana de Reyes
--  Rauchfangkehrer besuchten den Bezirkshauptmann
--  Cursus DigiD in Rozet
--  Die KISTA bietet heuer ein dreistündiges Faschings-Feuerwerk
--  ABD'de maske uygulaması geri geldi
--  FOTOLAJM/ Papa Françesku me plis shqiptar me shqiponjën dykrenare
--  Arsenal complain to PGMOL and ask for key player to be given more protection
--  Theo ist das Mödlinger Neujahrsbaby 2024
--  Revolutionizing Displays: RT-RK and iWedia Introduce AndDesk, a Groundbreaking Smart Monitor OS Transforming Traditional Screens into Versatile Smart Devices
--  Make History with Us: Join Jumpshot in Shaping the Singapore 3x3 Scene
--  ΤΟΠΟΘΕΤΗΣΗ: «Τεράστιο και σοβαρότατο λάθος»
--  İran Cumhurbaşkanı Reisi bombalı saldırının ardından konuştu: Bedel ödeyecekler
--  [기고] 소나무재선충병 대확산, 방제 무용론 대안 없나
--  '댓글 국적 표시제' 도입될까?…근거 법안 처리는 답보
--  대구경북 대학 수시모집률 지난해보다 선방…지역 내 편차도 극심
--  대구 달서구 상인동서 산불…43분만에 꺼져
--  Distribusi Logistik Pemilu di Sulsel Terkendala Cuaca
--  Unterirdischer Jahresabschluss in Freistadt
--  경산시, 제10기 민원안내 자원봉사자 위촉식 개최
--  서산시, 공직자 8명 사무관으로 첫발 내디뎌
--  한화에어로, 미군과 다목적 무인차량 '아리온스멧' 성능시험
--  SK 최태원, 하이닉스서 새해 첫 현장경영…'반도체 사업' 점검
--  태영그룹 "태영인더스트리 매각 대금 전액 태영건설 지원"
--  la Pura in Gars: Neuer Eigentümer
--  Рух вантажівок у "Шегинях" знову заблоковано - Держприкордонслужба
--  Araç sahipleri bu geceye dikkat: İndirim geliyor
--  تاحیات نااہلی کیس؛ عدالتی معاون ریما عمر سپریم کورٹ نہ آ سکیں، جواب بھجوا دیا
--  Kirman Valisi: Patlamalar kontrol noktasının dışında gerçekleşti
--  Yerel seçim için süreç başladı: Seçmen listeleri askıya çıkıyor
--  En fazla ihracat yapılan 3 il belli oldu
--  Gazze'deki hükümet: İsrail bölgeyi 65 bin ton patlayıcıyla vurdu
--  Royal Enfield Hunter 350 Gets Two New Colour Options
--  „Strom und Gas werden erst teurer und dann vielleicht billiger“ so der Chef der Münchner Stadtwerke
--  מסתפק במועט: החלוץ שירד משכר שנתי של 7 מיליון לאירו אחד בחודש
+-  [속보] 김건희 주가조작 의혹·대장동 50억 클럽 진상규명 쌍특검법 정부 이송
+-  지은지 90년 삼척 봉황촌 철도가도교, 이달부터 임시 개통 나서
+-  갑을구미재활병원, 재활치료실 확장…'재활 선도병원 도약'
+-  노연홍 제약바이오협 회장 "사명감 갖고 가야할 길 가자"
+-  진옥동 회장, "절실함 갖고 일류 신한 달성 위해 치열하게 궁리할 것"
+-  Osun govt to spend N702m on meals, entertainment in 2024
+-  صدور قانون الغابات والثروات الغابية في الجريدة الرسمية
+-  قسنطينة: الشروع في تسليم البطاقة الرقمية للحرفي
+-  Dolar/TL 29,79 Seviyesinden İşlem Görüyor
+-  Nogometaši Osijeka započeli su s pripremama za nastavak sezone
+-  Croatia twin born minutes apart, but in different years
+-  Ekşi Sözlük’e Bir Engel Daha!
+-  ประชุมสัมมนาเพื่อเพิ่มประสิทธิภาพการบริหารจัดการ
+-  ‘Građanima će rasti plaće, krećemo na punu regulaciju rada nedjeljom. Plaće javnih službenika? Povijesna reforma!‘
+-  Какви са прогнозите за пазара на труда в България през 2024?
+-  포커스미디어, 부산생활권 스타트업 상생 DOOH 프로젝트 성료
+-  인덴트코퍼레이션, 위드소프트 ‘플렉스지’와 ‘브이리뷰’ 서비스 연동
+-  국회, ‘김건희·대장동 특검법’ 정부 이송, 尹대통령 거부권 임박
+-  美, 질소가스로 첫 사형 집행한다…“고통스럽고 굴욕” 반발
+-  혼자 사는 여성 집 침입해 감금·성폭행 시도한 30대 구속기소
+-  동전 가득 든 쇼핑백…초등생이 용돈 모아 ‘36만원’ 익명 기부
+-  طقس الخميس... أجواء باردة بأغلب الجهات
+-  مرض جلدي خطير يثير القلق في بريطانيا
+-  Le froid débarque en France la semaine prochaine
+-  المكتب السياسي لحزب التقدم والاشتراكية يدين الهجوم الصهيوني على بيروت واغتيال قيادات فلسطينية ومدنيين لبنانيين
+-  صندوق النقد الدولي: نمو القطاع غير النفطي بالخليج يتفوق على المعدل العالمي
+-  مراقبة الساحل ودورية بأعالي البحار تابعة للبحرية الملكية ينقذان 124 مهاجرا بالداخلة
+-  Nystartat konsultföretag i Linköping
+-  مهني يتوقع ارتفاع أسعار اللحوم بالمغرب
+-  Abrabot Automation AB - nytt företag startar i Linköping
+-  Nystartat konsultföretag i Linköping
+-  IFK om isproblemen: "Så tolkar jag reglerna"
+-  Devojka (23) u sred noći vozila suprotnim smerom! Zaustavila je policija i sprečila tragediju
+-  Linköping får nytt företag i restaurangbranschen
+-  സംസ്ഥാനത്തെ തദ്ദേശസ്വയംഭരണ സ്ഥാപനങ്ങള്‍ കേന്ദ്രീകരിച്ച് സംരംഭങ്ങള്‍ പ്രോത്സാഹിപ്പിക്കാന്‍ വ്യവസായ വകുപ്പ്
+-  Ajan Surgical AB - nytt företag startar i Linköping
+-  Nytt företag startas i Linköping - Hörna Lantbuk Aktiebolag
+-  Hatay'ın İskenderun ilçesinde sağanak etkili oldu
+-  İstanbul Taksiciler Esnaf Odası Başkanı Aksu: İndi-bindi 120 lira olmalı
+-  Dere yatağında altın arayan 6 şüpheli, suçüstü yakalandı
+-  Kars'ta uyuşturucu partisine polis baskını: Çok sayıda gözaltı var
+-  Mask mandates return at some US hospitals as COVID, flu jump
+-  Cómo crear una comunidad de WhatsApp paso a paso
+-  ระเบิดความแซ่บ! แอนโทเนีย ปาเซตบิกินีสีร้อนฉ่า ทำใจสั่นเป็นแถบ
+-  Arda Güler Maça Neden Çıkmadı!
+-  Sunflower season 2 announced, Sunil Grover, Mukul Chaddha to reprise their roles
+-  Ranbir Kapoor dons police uniform as he shoots with Rohit Shetty
+-  "Shocked and Saddened": MEA grieves twin blasts in Iran`s Kerman city
+-  Preity Zinta turns on `Tourist mode`, shares pic with `Pati Parmeshwar`
+-  DA LI JE REALNO DA JE OVO URADIO?! Dončić na zagrevanju izveo SPEKTAKULARAN POTEZ - sam sebi "namestio", pa MONSTRUOZNO zakucao!
