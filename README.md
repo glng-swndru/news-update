@@ -1,11 +1,51 @@
 # Latest News
--  삼성 라이온즈, 뷰캐넌과 결별하고 새 외인 투수 영입
--  이재명 습격범, 2015년부터 5년간 새누리당 당원이었다…지난해 민주당 입당
--  Sonam shares it took 16 months to feel like herself after birth of son Vayu
--  Telegraph: российские войска атаковали объекты оборонной промышленности Украины
--  Highest Paid Item Girl: అత్యధిక పారితోషికం తీసుకున్న ఐటెం-గర్ల్.. స్టార్ హీరోయిన్లకు మించి!
--  Diyarbakır’da 11 yıl hapisle aranan firari hükümlü yakalandı
--  Jose Mourinho tyynnyttelee villejä huhupuheita – ”En tiedä onko se totta vai ei”
--  Jari-Matti Latvala paljasti hyviä uutisia
--  Se oli siinä – HIFK jättää konkurssihakemuksen
--  Near Infrared Imaging Market Set to Shine with Projected Growth and Technological Advancements
+-  Batman'da 160 kilo etiketsiz sucuk imha edildi
+-  Şarampole devrilen hafif ticari aracın sürücüsü yaralandı
+-  Akdeniz Belediyesi etüt merkezi, üniversite kazandırıyor
+-  "Kiber-emberrablás" áldozata lett egy kínai cserediák
+-  אירוע מטריד: כתם שמן ענק התגלה מול חוף אשקלון
+-  המנורות האלו אסורות לשימוש: זה המותג שלא עומד בתקן
+-  הסוף לתקיפות הסייבר בישראל? ענקית האנרגיה משיקה מוצר חדש
+-  צוקרברג מוכר מניות במאות מיליוני דולרים - מה הוא מסתיר?
+-  שופרסל עברה על החוק? זה המוצר שגרם לסערה גדולה
+-  Stadtwerke Freiberg: Was Energie jetzt kostet
+-  Jubel in Glauchau: Spielzeug-Land belegt bei deutschlandweiter Umfrage den ersten Platz
+-  Kulturhauptstadt trifft Wirtschaft – die IHK als Vermittler
+-  NEW: Kariba water inflows surpass last year’s level
+-  [매일희평] 방안의 법카초밥.방안의 재판지연.방안의 입법폭주.방안의...
+-  Nuoret Leijonat iskee USA:n kimppuun välierässä - Kiekkoraamatulta tyly arvio mahdollisuuksista
+-  경기도, 2023년 초미세먼지 ‘좋음’ 150일…전년 대비 16일 감소
+-  Tutto quello che c'è da sapere su iPhone 16 Pro tra indiscrezioni e render ipotetici
+-  Камоцци: «Вопрос только к Гасперини, почему Миранчук так мало играет»
+-  IndiGo airfares to reduce by up to Rs 1,000 as airline withdraws fuel charge
+-  95 % من موازنة الخارجية للبعثات الدبلوماسية
+-  अग्निवीर भर्ती : दौड़ते समय इन बातों का रखें ध्यान, नहीं होगी थकान
+-  أبو زمع يلتحق بالجهاز الفني للنشامى في نهائيات كأس آسيا
+-  H Samsung παρουσίασε τα νέα OLED gaming monitors της που φτάνουν έως τα 360Hz
+-  Citypress | Swallows could be kicked out of the league for failure to honour fixtures
+-  News24 | WATCH | Minister Zizi Kodwa pays homage to photojournalist and struggle icon Peter Magubane
+-  Ünlü çikolata firmalarına dev ceza. Milyonlarca lira ödeyecekler
+-  AGAP: “Más que El Niño, el problema de la agroexportación es la regulación”
+-  İnsanların neden daha uzun yaşayamadığı ortaya çıktı. Bilim insanları açıkladı
+-  Crece liquidación de empresas medianas y pequeñas por debilidad de economía
+-  Municipios dejaron de ejecutar S/ 10,359.7 millones de sus recursos para obras
+-  Höhere Preissprünge auch bei Bestandsmieten?: „Wir brauchen mehr preisliche Flexibilität bei den Mieten“
+-  Nadal ya pasea el martillo
+-  VinFast to build car factory in India
+-  BMW Surpasses Mercedes-Benz, Emerging as South Korea’s Best-Selling Foreign Carmaker in the Previous Year
+-  PN Makassar Tunjuk LBH Amanagappa Jadi Penyedia Layanan Posbakum
+-  West Ham considering signing £17m striker in January to add firepower to attack
+-  강경준 피소에 '장신영·子→방송' 불똥…섣부른 판단은 금물 [MD이슈](종합)
+-  '핵심 코번 결장' 삼성 "다른 전술로 나갈 것" vs '3R 패배 설욕 다짐' KT "분위기 더 좋아졌다"
+-  Nhận 63,7% tín nhiệm thấp, chủ tịch huyện ở Hải Phòng xin thôi chức
+-  Izlio se Dunav u Novom Sadu VIDEO
+-  "ออร์ฟิช" ปลาลึกลับใต้ทะเลลึก 1,000 ม.เตรียมส่ง อพวช.สตัฟฟ์
+-  Encarece 30% rosca; costará más el festejo
+-  Fünf Kandidaten zur Auswahl: "Mogelpackung des Jahres 2023" gesucht
+-  Yeni Antibiyotik Türü Bulundu
+-  VIDEO Mir u sudnici! Nezadovoljan presudom skočio na sutkinju. Zaletio se, preskočio namještaj i počeo je čupati za kosu
+-  RUKOMET 2024: Zmajevi na Euru, raspored i satnice svih utakmica
+-  মার্করামের দুর্দান্ত শতকের পরও ভারতকে বড় লক্ষ্য দিতে পারল না দক্ষিণ আফ্রিকা
+-  3.6 million women due compensation from DWP after 'mistakes'
+-  Man, 30, arrested for New Year's Day Orchard Central slashing purportedly triggered by 'staring'
+-  Zatürre otu sadece zatürreye iyi gelmiyor...
