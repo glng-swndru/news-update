@@ -1,11 +1,11 @@
 # Latest News
--  Sunak verwacht in de tweede helft van het jaar verkiezingen
--  Ambulancezorg Groningen onder verscherpt toezicht na onrust
--  Ronaldo, Messi, Haaland make shortlist for FIFA FIFPro Team of the Year
--  Manchester United, Reguilon'un sözleşmesini feshetti
--  İlhan Palut: Hatayspor maçında kazanan biz olmak istiyoruz
--  800 milyon euroluk dev yatırım! Yolcu kapasitesi 82 milyona çıkacak
--  İstanbul Valisi Gül'den Ankara 1 nolu Barosu'na anlamlı cevap
--  İstanbul Sarıyer'de villada yangın paniği
--  Kozan Belediyesi, İstanbul'da tonlarca narenciye dağıttı
--  Aydın'da iki otomobil çarpıştı! 4 yaralı
+-  Norjalaiset dominoivat miesten takaa-ajoa
+-  Jukka Jalonen antoi ytimekkäät ohjeet Nuorille Leijonille ennen välieräottelua - "Silloin te olette vahvoilla"
+-  Manchester City lähellä argentiinalaislupauksen nappaamista
+-  Grad Ljubuški za 308 studenata dodijelio jednokratnu financijsku potporu
+-  Liječnici i stomatolozi traže pregovore o kolektivnom ugovoru
+-  Pušteni nalozi za isplate decembarskih naknada civilnim žrtvama rata i osobama s invaliditetom
+-  Raspisana međunarodna potjernica za Rajkom Karlicom osuđenim za ratni zločin na području B. Novog
+-  Jandroković: Datum parlamentarnih izbora u Hrvatskoj politička odluka, u 2. ili 3. tromjesečju
+-  SDA: It is high time for Dodik to be stopped
+-  U Brčkom uspješno revidirana finansijska poslovanja 32 subjekta u Distriktu
