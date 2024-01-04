@@ -1,11 +1,11 @@
 # Latest News
--  Marcelo espera "mais ou melhor" crescimento, justiça e coesão social em 2024
--  عالمی سطح پر بھارت کی دونمبری اور دوغلاپن بےنقاب
--  بلينكن يبدأ جولة شرق أوسطية جديدة
--  رونالدو يشتري قصراً بجزيرة المليارديرات في دبي
--  Soms is slang Truus vijf jaar zoek, maar ze vertrekt nooit van landgoed De Utrecht
--  मल्टीपर्पस फाइनान्सले लाभांश वितरण नगर्ने
--  REO proposes to establish 2860 polling stations for 8 districts of Hazara division
--  KSI hits back after fans claim 2023 was his “worst year ever”
--  هل تتعرض الإسكندرية لموجات تسونامي؟.. معهد علوم البحار يكشف التفاصيل
--  أمطار وشبورة.. الأرصاد تعلن طقس الـ 6 أيام المقبلة
+-  Isro Arm Teams Up With Elon Musk’s SpaceX For Satellite Launch
+-  Apple Settles Lawsuit Alleging Complicity In Gift Card Scam
+-  Bajaj Finance's Q3 Update Shows AUM Growth Surpassing Sept's 15-Quarter High
+-  Jio Financial Seeks New SEBI License For Mutual Funds
+-  IT Industry Veteran CP Gurnani Joins upGrad Board
+-  강민수 서울지방국세청장, 새해 맞아 현충원 참배
+-  임플란트 시술 받은 50대 女, 일주일째 의식불명…"평소 건강했는데"
+-  [인사] 관세청 인사 전보
+-  尹대통령 quot;공매도, 부작용 해소될 때까지 계속 금지quot;
+-  부동산PF에 흔들리는 건설업hellip;quot;태영 다음은 롯데건설?quot;
