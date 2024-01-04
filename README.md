@@ -1,11 +1,11 @@
 # Latest News
--  Paceville bouncer denies savage beating charges
--  A friend I've known for five years won't let me into her house even when I asked to use the toilet - and people are all saying the same thing
--  Ashley James proudly shows off her post-partum figure in an orange bikini as she cuddles her daughter in sweet throwback Maldives video
--  Community appeals for reopening of school in Mvurwi Town amidst shortage of secondary schools
--  Jeffrey Epstein's brother said if the pedophile had revealed what he knew about Trump and Clinton in 2016 the 'election would have to be canceled'
--  شقيقة صالح العاروري: إسرائيل ستندم على اغتياله
--  خريطة الأسعار اليوم: الذهب يقفز من جديد وتراجع الطماطم والبطاطس
--  وزير التنمية المحلية ومحافظ جنوب سيناء يناقشان الموقف التنفيذي للمشروعات
--  Palestinian athletes turn destroyed neighbourhoods into parkour arena
--  Wealthy architecture boss is banned from contacting his wife of 25 years after throwing a pack of sausage rolls in her face when she asked if he was going to London for 'cocaine and hookers' in attack at their £2m home
+-  Sunak verwacht in de tweede helft van het jaar verkiezingen
+-  Ambulancezorg Groningen onder verscherpt toezicht na onrust
+-  Ronaldo, Messi, Haaland make shortlist for FIFA FIFPro Team of the Year
+-  Manchester United, Reguilon'un sözleşmesini feshetti
+-  İlhan Palut: Hatayspor maçında kazanan biz olmak istiyoruz
+-  800 milyon euroluk dev yatırım! Yolcu kapasitesi 82 milyona çıkacak
+-  İstanbul Valisi Gül'den Ankara 1 nolu Barosu'na anlamlı cevap
+-  İstanbul Sarıyer'de villada yangın paniği
+-  Kozan Belediyesi, İstanbul'da tonlarca narenciye dağıttı
+-  Aydın'da iki otomobil çarpıştı! 4 yaralı
