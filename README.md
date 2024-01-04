@@ -1,11 +1,51 @@
 # Latest News
--  News24 Business | Lululemon founder: Brand not for 'certain customers', women in its ads 'not inspirational'
--  '나솔사계' 데프콘, "진정한 연애 멀티버스 열린다"
--  KIA, 김선빈과 동행 이어간다… 3년 총액 30억원 계약
--  남양유업, 60년 오너 경영 마침표…"새 주인 한앤코"
--  폴바셋, '딸기 시즌 메뉴' 출시 한달 만에 37만 잔 판매
--  NAF Personnel Get Accident Insurance Policy
--  Sergio Perez kuuman siirtohuhun keskellä
--  Mögliche Deglobalisierung: WTO-Chefökonom sieht Welt an einem Scheideweg
--  Ladri al plesso "Verga" di Fontanelle: rubati pc, tablet e materiale elettronico
--  Nuovo allarme drone al carcere "Di Lorenzo": accorrono polizia e carabinieri
+-  "PF 손실흡수능력 충분"… 태영건설 사태에 놀란 캐피탈업계, 우려 차단
+-  2024년 첫 조직 개편 나선 네이버, COO와 정책·RM 대표직 신설
+-  대구 달성군 가창면 대법 서원사, 연말연시 사랑의 떡국떡·백미 기부
+-  부산교육청, 부산형 맞춤형 교육·돌봄 서비스 제공 ‘잰걸음’
+-  [인사]경북도의회
+-  성주군 영진토목 이웃사랑성금 1천만원
+-  고령군 경희숯불가든 교육발전기금 등 기탁
+-  울진, 새해 시작을 빈 필하모니로 연다
+-  '조국 아들 성희롱' 주장한 가세연 운영진 검찰 송치…조국 "너무 오래 걸려"
+-  尹 대통령 "공매도 선거 끝나면 푼다? 부작용 해소 안되면 계속 금지"
+-  Sri Lanka Slashes Import Tax to Tackle Keeri Samba Rice Shortage
+-  Phát "cuồng" vì đồ ngọt trong dịp lễ Tết: Bác sĩ chỉ cách ăn ngon mà vẫn khoẻ
+-  Ông lão xuất hiện trong lớp với vẻ ngoài nhếch nhác, sinh viên tưởng là người dọn rác: Biết danh tính thật ai cũng "sốc"
+-  Châu Bùi ẩn ý chuyện kết hôn với Binz trong năm 2024?
+-  Có nên mua TV trưng bày giá rẻ?
+-  'Culemborgers in gesprek' in bibliotheek Culemborg
+-  Permis à 17 ans: "On espère qu’il n’y aura pas une augmentation des décès de jeunes sur les routes"
+-  Posebnosti volilnega leta v Ameriki
+-  "Le loup a naturellement peur de l’homme": la réaction d'un spécialiste à la supposée attaque dans le Var
+-  বৃহত্তম বন্দি বিনিময় করল রাশিয়া-ইউক্রেন
+-  ফরিদপুর-১: স্বতন্ত্র প্রার্থীর সমর্থকদের ওপর নৌকার সমর্থকদের হামলা, আহত ৩
+-  KTN journalist Jimmy Mbogoh leaves the station
+-  हेल्थ टिप्स: चाय बनाते और पीते समय की जाने वाली ये गलतियां चाय को बना देती हैं सेहत के लिए हानिकारक
+-  Darts-WM 2024 Ergebnisse: "Cool Hand Luke" Humphries bezwingt Luke "The Nuke" Littler und ist PDC-Weltmeister!
+-  Nejvyšší „bambus“ světa bere dech i po 20 letech. Je symbolem celé země
+-  Zima će pokazati zube: Stižu olujan vjetar i snijeg, ne planirajte putovanja
+-  طرح الإصدار الأول لعام 2024 من سندات الخزينة بقيمة 150 مليون دينار
+-  التربية: بدء تصحيح الأسئلة المقالية لمبحث الرياضيات التكميلي اليوم
+-  حادث صدم بين 4 مركبات في تلاع العلي
+-  بلينكن يبدأ جولة شرق أوسطية جديدة
+-  Tri velike prijetnje: Ove godine umjetna inteligencija donosi stravične ishode za čovječanstvo
+-  매디슨의 못 말리는 '다트 사랑'...월드 다트 챔피언십 결승전에서 포착
+-  울산 HD, 홍재석·최강민·최석현·김동욱·박상준 신인 5명 수혈... 이적 시장 포문
+-  Szabó Simon tavaly júniusban titokban elvált feleségétől: bevallotta, ilyen kapcsolat alakult ki közte és Balogh Edina között
+-  Seyir halinde ilerleyen tırın tehlikeli yolculuğu
+-  İşgalci İsrail saldırılarını sürdürüyor! Bir Filistinli hayatını kaybetti
+-  Osmaniye'de yasa dışı avcılığa karşı önlem!
+-  MİT ve Emniyet enselemişti... Sağlık kontrolü için hastaneye götürüldüler
+-  Seyir halinde ilerleyen araç alev alarak yandı
+-  Galatasaray'da Hakim Ziyech krizi! Eski takımına dönmek istiyor
+-  Spie : acquisition de JD Euroconfort
+-  Fotoğraf başı 100 dolar! Mossad'a yönelik operasyonda yeni detaylara ulaşıldı
+-  '이재명 기습' 피의자, 20분 만에 영장심사 종료
+-  Dave The Diver Celebrates 3 Million Sales
+-  안동소주, 도지사 품질인증기준 마련으로 세계화 시동
+-  «Каждая из команд заслужила победу». В Казахстане нашли объяснение камбэку «Барыса» в КХЛ
+-  Hardik Pandya’s Truth: Why Pandya misses out crucial series?
+-  اكتشاف 66 نوعاً جديداً من النباتات في الصين خلال 2023
+-  مسيرة إسرائيلية تقصف بلدة يارون بجنوب لبنان
+-  طه الدسوقى : دورى مختلف فى مسلسل حالة خاصة وبتمنى يعجب الجمهور
