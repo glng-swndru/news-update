@@ -1,51 +1,11 @@
 # Latest News
--  עדי חבשוש בדרך לתפקיד ראשי: קשת 12 במהלך מפתיע
--  מוריניו מגיע לנטפליקס: "הם משלמים לי טוב"
--  רכבת ישראל בבשורה אדירה: אלו שתי התחנות שנפתחות מחדש
--  טהוניה רובל חושפת דרמה רפואית: "תחזיקו לי אצבעות"
--  Meteo centar TV Vijesti: U petak oblačno i bez padavina, do 18...
--  Husiler saldırı için ABD'yi işaret etti... "Cezasız kalmayacak"
--  İşgalci İsrail'in Gazze katliamında 90. gün
--  Toyota gemileri yaktı: 2024'ün en çılgın Corolla kampanyası!
--  BM'den, uluslararası kamuoyuna Sudan çağrısı: "Harekete geçilmeli"
--  Video van de dag: Man vliegt in Las Vegas op rechter af na veroorde­ling en slaat erop los
--  ‘HOTSPOT! is Eric Vloeimans in zijn uitbundigste vorm’
--  MAST í­hugar að kæra Artic Sea Farm til ríkis­sak­sóknara
--  Split u produžetku do velike pobjede u ABA ligi, dvojica igrača ostvarila double-double
--  Furs poziva državljane k oddaji vloge za vzdrževane družinske člane
--  Košarkarski as prvič o duševnih težavah in koncu kariere
--  Carrefour dejará de vender en Francia productos de PepsiCo por su subida "inaceptable" de precios
--  Desmiente Britney Spears su regreso a la música
--  Invita DIF a adultos mayores a pasar por su apoyo alimentario
--  Hero Vs Harley Davidson: హార్లే డేవిడ్‌సన్ రేంజ్‌లో హీరో బైక్ - లాంచ్ ఈ నెలలోనే!
--  Rupee Closes Slightly Higher Supported By Dollar Inflows
--  Russian Oil Price For India Hit 12-month High In November
--  KKTC Cumhurbaşkanı Tatar: Hiçbir güç Türkiye ve KKTC'nin arasındaki bağları koparmaya yetmeyecek
--  Gujarat Is In Talks With Chipmakers Of Japan, US, South Korea: Report
--  ABD'de bir liseye silahlı saldırı: 1 ölü, 3 yaralı
--  Bakan Fidan İranlı mevkidaşına taziyelerini iletti
--  Ukrayna: Rus komuta merkezini vurduk
--  Bakanı Tekin'den Kastamonu ziyareti
--  Bayern Münih'te stoper harekatı!
--  PepsiCo presenta un ERE que afectará a 550 empleados en España
--  هآرتس: الشرطة لم تجد أدلة على اعتداءات جنسية يوم 7 أكتوبر
--  إعلام عبري: قانون نتنياهو الناجم عن جنون العظمة مصيره مزبلة التاريخ
--  مشاهد لمعارك في غزة وهجمات للقسام خلف خطوط التوغل - فيديو
--  Az Indexet hazugsággal, a BKK vezetését elképesztő felelőtlenséggel vádolja a VEKE
--  Megszűnik a fekvőbeteg-ellátás az orosházi kórház urológiai osztályán
--  A horvátok visszautasítják Hernádi Zsolt vádjait, aki szerint Magyarország a magas horvát tranzitdíjak miatt kénytelen továbbra is orosz olajat venni
--  Žuti dvaput morali pobijediti istu utakmicu, u novoj velikoj drami stigli do još jedne gostujuće pobjede
--  ŠTA DONOSI NOVI ZAKON: Za otkrivanje poslovne tajne kazne i do 30.000 konvertibilnih maraka
--  Nestašica leka za dijabetes: Ljudi ga kupuju da bi skinuli višak kilograma VIDEO
--  Tom Hanks 2024: His Cinematic Legacy Amidst Epstein Rumors and Cultural Connections
--  Οι 47+2 ποδοσφαιριστές που πηγαίνουν στο Κόπα Άφρικα: Δύο χωρίς απώλεια, ποια είναι η πιο «λαβωμένη»;
--  AI-driven study redefines right heart health assessment with novel predictive model
--  Split na američki pogon nastavio očajan niz "Igosa"
--  Šola: Vidjelo se da imamo veliko zajedništvo i veću širinu;...
--  קלינטון, הנסיך אנדרו וטראמפ: רשימת החברים של ג'פרי אפשטיין נחשפת
--  "לקחנו על עצמנו ב'ארץ נהדרת' את המשימה להרים את המורל של העם"
--  "שלטון פלסטיני אזרחי מתוך עזה, שלא עוין את ישראל": זו תוכנית מערכת הביטחון ליום שאחרי המלחמה
--  אחרי 90 יום: משפחתו של חנן יבלונקה קיבלה הודעה שהוא חטוף בעזה
--  פנרבחצ'ה - מכבי תל אביב 31:51 (רבע 2)
--  מכבי נתניה העלתה את מחיר הכרטיס, הנהלת הפועל תל אביב תסבסד
--  הליברטון מככב, יוקיץ' מאחורי לברון ודוראנט: ההצבעות לאולסטאר
+-  Австрија ќе им ги одзема автомобилите на оние кои возат брзо
+-  رونالدو يشتري قصرا فاخرا في دولة عربية غير السعودية
+-  Montbard. Nourredine Kassous, barbier et coiffeur, ouvre NK Barber
+-  Venarey-Les Laumes. Énergies renouvelables : quel périmètre ont déterminé les élus ?
+-  توزيع الدفعة (11) من صكوك التعويضات لـ (500) أسرة متضررة من الفيضانات بدرنة.
+-  Pokemon Go Dazzling Dream event: Shiny Cutiefly debut, bonuses, more
+-  Juventus Working On Overtaking Inter Milan In The Race For Ligue 1 Defender
+-  VYPOČUJTE SI Pravdivý príbeh: Syna som spoznal až pred štyridsiatkou
+-  Kanye West opäť provokuje "manželkou": Cez bradavky len dve šnúry a MIKRO nohavičky!
+-  MIMORIADNE V jednom z bytov v Bratislave našli ženu bez známok života, na mieste je polícia
