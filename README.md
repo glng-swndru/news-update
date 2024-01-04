@@ -1,51 +1,51 @@
 # Latest News
--  Corinthians 'estica a corda', mas desiste de Gabigol após demora do Flamengo
--  Vitor Roque estreia, Barcelona sofre, mas consegue vitória sobre o Las Palmas no fim em LALIGA
--  김용남 "이재명 피습 음모론, '열상' 경찰 최초 발표가 원인"[한판승부]
--  한문도 "태영건설 무너지면 국가 경제 위기? 파장은 제한적"[한판승부]
--  '지인 나체사진' 제작맡긴 대학생…옛법으로 처벌 못해 '무죄'
--  날은 포근한데 미세먼지 극성…주말에는 '한파'
--  אחד הסיפורים המדהימים אי פעם הפך לסרט מצמרר בנטפליקס
--  Iqbal Gwijangge Diberi Peran Berbeda di Timnas U-20 Indonesia
--  Billionaire James Packer shows off his slimmed-down figure after 33kg weight loss as he goes for a walk with his ex wife Jodhi Meares in LA after spending Christmas together
--  Kickoff | Barcelona off to winning start in 2024
--  美국무, 이스라엘 등 확전 위기 속 중동 순방
--  MAUREEN CALLAHAN: Pitiful Prince Andrew, Sleazy Bill Clinton and the burning shame that will never end... until they find the courage to tell us what they REALLY know about Epstein's circus of depravity
--  국민연금 지난해 100조원 벌었다…역대 최고 수익률 실현
--  유엔, 올해 세계 경제 성장률 전망 2.4%로 하향…한국 2.4% 예상
--  "미국서도 코로나19 재확산…JN.1이 새로운 주종"
--  국제유가 하락 전환…"美휘발유 재고 상승률 30년만 최고"
--  Viện binh chất lượng xuất hiện trên sân tập Chelsea
--  Daniel Noboa revela detalles sobre la construcción de las cárceles estilo Bukele
--  Allegri a Sky: «Gatti e la squadra hanno fatto una buona partita. E sono fortunato ad allenare questi giovani»
--  Kamil Piątkowski z niespodziawanym transferem. Zagra w LaLidze!
+-  Rimonta Barcellona all'ultimo respiro: decide Gundogan dal dischetto
+-  Atakuota Kinijos teritorija. Karšti vaizdai. Skubi Pekino reakcija. Kas vyksta (Video)
+-  The Best Ski Gloves And Mittens, Chosen By Our Outdoor Gear Experts
+-  المغرب يتراجع عن قرار تقييد إدخال الأمتعة المنزلية المستعملة من الخارج
+-  부산 광안대교 10년 만에 재단장...'글로벌 허브도시' 추진
+-  Cartoon: Happy New Year?
+-  Raúl González: "El Córdoba CF tiene que estar en el fútbol profesional"
+-  Saskatoon SPCA opens new facility: ‘Highest animal welfare standards’
+-  XBiotech entame la construction d'un nouveau centre de recherche et développement sur son campus de 19 hectares
+-  New York City is suing charter bus companies for transporting migrants from Texas
+-  New York City sues 17 bus companies for transporting migrants from Texas
+-  Блинкен поддержал скорейшее вступление Швеции в НАТО
+-  Netflix and cheers: Sci-fi films and spooky TV take the 2023 cake
+-  Manisa'da 14 ayrı cinsel saldırı suçundan aranan zanlı tutuklandı
+-  ישיבת הקבינט התפוצצה לאחר עימות בין שרים לרמטכ"ל
+-  '풀백-센터백 모두 소화한 슈퍼 땜빵' 에메르송 로얄, 다시 벤치 신세로 돌아갈 위기...부상자들이 돌아온다
+-  Washington Büyükelçisi Murat Mercan emekliliğe ayrılıyor
+-  Tomaba fotos desnuda a la hija de su pareja mientras dormía para luego venderlas
 -  محذرا من تفتت السودان.. رئيس الوزراء السابق عبد الله حمدوك يدعو قيادة الجيش إلى لقاء عاجل
--  PDI investiga hallazgo de cadáver en canal de regadío en Curacaví
--  QUENTIN LETTS watches Keir Starmer's New Year speech: 'He was like a hippo waddling into the swamp for its morning sit-down. Blimey it was dire'
--  Pasco en emergencia: gobernador regional coordina con Ejecutivo apoyo para damnificados
--  4 Best Doc Martens Dupes That Will Elevate Your Style Without Breaking the Bank
--  No se descartan heladas en la agricultura de Sinaloa; de haber daños se activarían los seguros: AARFS
--  Contemplan cambios en candidaturas: PVEM y Morena planean ir juntos en lo local en Sinaloa
--  Did Charles Lindbergh sacrifice his son for science and then stage a monstrous cover-up? The kidnap and murder of the legendary aviator's child was dubbed the 'crime of the century' - but now this chilling question is being asked
--  Lib Dem leader Ed Davey is accused of 'airbrushing' his involvement in the fallout of the Post Office scandal
--  Opinion – Mohamed Alabbar për marinën e Durrësit!
--  الجزائر تعرب عن ادانتها واستنكارها الشديدين للتفجير الارهابي المزدوج بجنوب ايران
--  Democratic Mayor Furious When Buses of Illegal Immigrants Show Up in His City, Says 'They're Not Welcome Here'
--  పెన్షన్లన్నీ పెండింగ్‌లోనే!
--  نيبينزيا: ما يحدث في البحر الأحمر نتيجة للعملية الإسرائيلية الوحشية في غزة
--  Basketbol ING Türkiye Kupası'nda yarı final heyecanı!
--  Barcelona son dakikada İlkay Gündoğan ile güldü!
--  İzmit'te silahlı kavga kanlı bitti: 1 ağır yaralı
--  Sean Dyche unhappy at ‘slow-mo’ decision to send off Dominic Calvert-Lewin
--  The Overlooked Experiment That Revealed the Quantum World
--  Mary Poppins actress Glynis Johns dies aged 100
--  Cambodia records 2 more cases of monkeypox
--  Afrikanisches Gospelmusik - Konzert
--  Peringatan Dini Gelombang Tinggi Hari Ini, Terbanyak di Wilayah Timur Indonesia
--  নির্বাচন ঘিরে নিরাপত্তার চাদরে কুমিল্লা
--  5 new Apple Arcade games to try in 2024 – and 3 to play again
--  Cristiano Ronaldo odbierze Trofeum Maradony podczas gali Globe Soccer Awards jako najlepszy strzelec minionego roku
--  Başakşehir’deki lüks sitede kanlı pusu!
--  తిట్టను పో!
--  Entre los 10 mejores anotadores del año, el “Bebote” Giménez único representante de Concacaf
--  Preokret Barselone, Bilbao u naletu
+-  زاخاروفا ردا على طلب كوليبا: لن يعزل أحد الدبلوماسيين الروس في العالم
+-  5 أطعمة مثالية على معدة فارغة
+-  Gol y 3 puntos a casa: Gündoğan marcó sobre el final el 2-1 del Barcelona vs. Las Palmas
+-  By: temp mail pro
+-  Police investigating shooting on Manitoba First Nation
+-  대구농수산물유통관리공사, 공식 출범...5일 제막식
+-  The Easiest and Fastest Way To Create a 360 Virtual Tour of a Home
+-  김정권 전 의원, 10일 '김해 한 바퀴' 출판기념회 개최
+-  В Пентагоне назвали полномочия выделить Украине помощь формальными
+-  Marcela Gómez y los 3 fichajes que vienen en América
+-  鼻酸！謝金晶淚謝豬哥亮 泣訴「下輩子還要叫您爸爸」
+-  [도봉구, 한글 변환된 옛 토지대장 발급 서비스 ‘전국 최초’
+-  سنتان محببتان ليوم الجمعة.. دار الإفتاء توضحهما
+-  Woman charged with murder alongside teen after shotgun death
+-  Woman charged with murder alongside teen after shotgun death
+-  Woman charged with murder alongside teen after shotgun death
+-  최태원 解弦更張-최창원 日新又日新…SK그룹 긴장 또 긴장
+-  Biden demanda a Texas por ley que permite detener a migrantes
+-  Drama u Srbiji: Opozicionar na samrti, odvela ga BIA, nađen u bolnici
+-  Column: Let’s work on anger management in 2024
+-  Ilkay Gundogan hóa người hùng, Barcelona nhọc nhằn đánh bại Las Palmas
+-  राष्ट्रिय सभामा ‘कस्ता’ आउलान् ?
+-  10 Km de Tagarro celebram história
+-  Vamos a seguir apoyando a NL: Claudia Sheinbaum
+-  Bruce Willis’ daughter Scout pays very poignant tribute to dementia-stricken dad
+-  Ankara'da halk ekmeğe de zam geldi
+-  Juventus leva susto, mas goleia Salernitana em bela virada e vai às quartas da Copa da Itália
+-  ŽESTOK NAPAD U RUSIJI Oboreno 10 raketa, povređene osobe prebačene u bolnicu
+-  "마흔에 다시 시작한 영어…10년간 공부해 실리콘밸리 갔죠"
+-  Nhổ răng sau 4 tháng vẫn đau đớn, không lành vết thương
+-  Pohreby - piatok 5. januára
