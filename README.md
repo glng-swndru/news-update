@@ -1,51 +1,51 @@
 # Latest News
--  고양시, 2024년 삭감예산·도시계획조례 재의요구
--  파주시, 음식점 위생등급 지정업소 59곳에 환경개선비 지원
--  시흥시, 노후 공동주택 및 소규모 공동주택 보조금 지원 추진
--  군포시, 장애인 전동보조기기 배상책임보험 대상 ‘노인 등’으로 확대
--  이천시·여주시 관할 경기이천아동보호전문기관 개관
--  고광효 관세청장, 2024년 새해 현충원 참배
--  '피습' 이재명, 일반 병실로 옮겨 회복치료 중…"면회 안 돼"
--  LG생활건강, 홈스타 청룡에디션 3종 출시
--  핵심내용 빠진 태영건설 자구안에...채권단 "알맹이가 없다" 비판
--  아모레퍼시픽 '한율', 신년 맞이 '한글 컬렉션' 출시
--  코인으로 도박자금 환치기…'손 팀장' 레이더엔 다 잡힌다
--  한화 3남 김동선 이끄는 한화갤러리아 주가 고공행진... 배경은?
--  Ăn vài hạt rẻ bèo này khi đói buổi sáng để nhận cả tá lợi ích sức khỏe, làm đẹp
--  Miền Bắc sắp hửng nắng, nền nhiệt tăng
--  3 phản ứng của cha mẹ khi con cái mắc lỗi tác động tới quá trình trưởng thành của trẻ
--  2023 là năm nóng kỷ lục thứ 2 được ghi nhận ở Anh
--  Francia está buscando colombianos que quieran estudiar y vacacionar: así se aplica
--  ‘103명 사망’ 이란 폭발 참극, 누가 주도했나…요동치는 중동
--  ‘이준석 돌풍’ 재현?…개혁신당, 당원 모집 하루 만에 ‘2만 명’ 모였다
--  국민연금 수급자 절반, 월 40만원 미만…평균 62만원
--  금리 인하 기대감 ‘급제동’…FOMC 의사록 봤더니
--  課程主任(數學) (EDB/CDI/452/23)招聘｜起薪$79,930 附政府工入職條件+申請方法
--  Un aniversario de valor
--  Nación y territorios
--  Borussia Dortmund want Jadon Sancho to join their training camp NEXT WEEK as they negotiation with Manchester United over a six-month loan to bring exiled 23-year-old back to Germany
--  열나고 근육통…독감인줄 알았더니 '급성 신우신염'
--  女子每周拔罐放血200ml致重度贫血 医生诊断为慢性失血
--  The dream isn't over for Luke the Nuke: Darts ace, 16, on course to amass '£40million fortune' with flurry of six-figure sponsorship deals despite 7-4 bruising against Luke Humphries - as 'unbelievably proud' family rally around to cheer on PDC runner-up
--  Un estudo da USC revela que os incendios estimulan a xerminación das especies exóticas invasoras
--  AMANDA PLATELL: Labour's plan for menopausal women in the workplace will make people LESS likely to employ those of a certain age
--  Sumba Island Among CNN Travel's Best Places to Visit in 2024
--  The UK economy could be losing out on £11 billion because of a lack of support for menopausal women at work, analysis suggests
--  Rishi Sunak will urge voters not to throw away the 'great progress' made and vow to put 'more money in people's pockets' as he hits the road to speak to voters ahead of this year's election
--  課程主任[校本課程發展(小學)－數學] (EDB/CSD/451/23)招聘｜起薪$79,930 附政府工入職條件+申請方法
--  경찰, '다방 주인 살인사건' 피의자 12년 만에 검거
--  Pengeroyok Anggota Satpol PP di Depan Plaza Indonesia Positif Konsumsi Narkotika
--  현대차그룹, 지난해 국내 판매 '일등공신' 모델은?
--  6 hrs of chaos as leopard strays into Gurgaon village
--  경기도의회 국민의힘, 수원시 현충탑 참배
--  Fans laugh as chants of 'Tottenham get battered everywhere they go' ring around Ally Pally during World Darts Championship final...as Spurs star James Maddison hits back with sign saying: 'north London is WHITE!'
--  스코티 셰플러, 2회 연속 PGA 투어 올해의 선수
--  Rechter geeft namen vrij van mensen die banden hadden met Epstein
--  KT 지니 TV, 브랜드 팝업 스토어 운영
--  국민연금 가입자 절반, 월 40만원도 못 받았다
--  Ex-CEC Rawat On EVM Hacking: 'Even Credit Cards Bear A Chip. Has Your Credit Card Ever Been Hacked?'
--  자영업자 인건비 해결사 서빙로봇 시장 커진다.
--  식품업계 ‘플레잇팅(Play+Eating)’ 트렌드 주목
--  US worries assassination may hit talks
--  Houthis say 'targeted' another container ship in the Red Sea
--  Israel on high alert as Hezbollah vows response for Hamas killing
+-  양주시립회암사지박물관, 겨울방학 특별 탐구생활 프로그램 운영
+-  의왕시의회 한채훈 의원 "버스정류장 16개소 온열의자 가동 시작 시간 한 시간 앞당겨져"
+-  용인특례시, 오는 8일부터 ‘임대형기숙사’ 건축위원회 심의 대상 포함
+-  "군포 가치 높일 정치하고 싶다"… 조경호 국회의장 비서실장, 본보 인터뷰서 총선 군포 출마 밝혀
+-  용인특례시, ‘2024년 수출지원사업 종합계획 ’수립… 지역 내 수출 기업 해외 판로 개척
+-  스타벅스, 반려동물 동반 가능한 구리갈매DT점 오픈
+-  용인 ATM 제조공장서 20대 직원 기계 깔려 숨져
+-  Jacinda Ardern将于本月完婚 在霍克湾举办私密小型婚礼
+-  AI 안정성 확보 속도 내는 산업계… "2024년은 AI 윤리의 해"
+-  태영건설 사태에 덤덤한 보험사들…PF 도미노 위기는 우려
+-  한국배터리산업협회, '인터배터리 2024' 개최 등 10대 핵심 사업 발표
+-  ITZY(있지) 컴백, 8일 멜론 스포트라이트서 카운트다운 라이브 무대 열린다
+-  [CES 2024] LG디스플레이, 480Hz 초고주사율 OLED 공개
+-  티빙 '환승연애3', 클립 조회수 600만 돌파…"전작보다 2배 빨라"
+-  [CES 2024] LG전자-마그나, '자율주행 통합 플랫폼' 개발…27년형 모델 탑재
+-  مقتل إمام أميركي بإطلاق نار خارج مسجده في نيوجيرسي
+-  أعشاب تساعد على تخفيف التوتر العصبي
+-  중랑구, 재난대응 안전한국훈련 평가서 '우수 자치구' 선정
+-  박강수 마포구청장 “구민 건강과 간접흡연 피해 예방 노력할 것”
+-  강남구, 2024 신년인사회 개최…"변화·혁신 선포"
+-  용산구, 삼각지·녹사평역 서울 아래숲길 공개
+-  이란 대통령, 솔레이마니 추모식 공격에 "큰 대가 치를 것"
+-  서울청년센터 강북, 청년 취업률 견인…고용노동부 장관 표창
+-  중구, 동국대와 ‘겨울방학 전공 체험 멘토링’ 운영
+-  LH, 류옥현 대전충남지역본부장 취임
+-  최기문 영천시장, 새해 첫 행보… 군사시설보호구역 해제 현장 방문
+-  영등포구, '2024년 신년인사회' 개최…향후 구정방향 공유
+-  최기문 영천시장, 역점사업 ‘금호대창 하이패스IC 설치공사’ 현장점검
+-  노원구 대표 복지서비스 '똑똑똑 돌봄단' 활동 강화
+-  대전 서구, 행안부 지방물가 안정관리 최우수 지자체 선정
+-  국회도서관, 미국 인공지능 입법 현황과 바이든 행정부 행정명령 소개
+-  대전 유성구, 장애인통합복지카드 발급수수료 전액 지원
+-  '차기 대통령 선호도' 이재명 39% 한동훈 35%
+-  대전시교육청, 전국 인성교육실천사례연구발표대회 수상 쾌거
+-  이재명, 중환자실서 일반 병실로 이동… 면회는 받지 않아
+-  도봉구, 방학역 일대 도심공공주택 복합사업 최초 승인
+-  홍익표, 尹에 국방장관 파면 요구… "함량미달 인사, 영토·안보 위태롭게 해"
+-  (재)정암장학회, (재)영천시장학회에 장학금 1억원 기탁
+-  '이준석 신당', 온라인 당원 모집 하루 만에 2만명 돌파
+-  대전시교육청, 초.중.고 200개교 동계강화훈련 예산 지원
+-  삼성전자, 현대차 협력…주거공간·이동공간 거리 좁힌다
+-  [속보] 남양유업 홍원식 회장, 경영권 분쟁 최종 '패소'
+-  용인시, ‘임대형기숙사’ 건축위원회 심의 대상 포함
+-  Clinton og prins Andrew nævnes i dokumenter om Epstein
+-  Clinton og prins Andrew nævnes i dokumenter om Epstein
+-  سعر الأعلاف اليوم في مصر الخميس 4 يناير 2024 .. مفاجأة بعد الزيادة الكبيرة
+-  Стали известны претенденты в сборную года ФИФА. Роналду и Месси в списке
+-  악성뇌종양 ‘교모세포종’, NK세포 조절 유전자 변이와 상관성 규명
+-  군인권센터, 인권위에 '윤일병' 재진정…김용원 기피 신청도
+-  창녕군 "자동차세 연납, 세금절약 혜택 누리세요"
