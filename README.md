@@ -1,11 +1,51 @@
 # Latest News
--  (30-30-30).. صيحة جديدة لفقدان الوزن هذه تفاصيلها
--  الكويت : تعيين الشيخ محمد صباح الصباح رئيساً لمجلس الوزراء
--  7 اكتشافات طبية باعثة للأمل في 2023
--  الاحتلال يعلن عن إصابة 19 جنديا
--  انفجارات ضخمة في جحر الديك جنوب غزة
--  Volgende week mogelijk schaatsen op weilanden, maar niet op meren
--  Meeste reizigers ooit op Eindhoven Airport in 2023
--  Medeverdachte in zaak Solid Grooves komt op vrije voeten
--  Bronnen: Rusland gaat korteafstandsraketten van Iran kopen
--  لماذا تضعف الرؤية بعد الأربعين وما العمل؟
+-  МИБ тузилмасида Мониторинг маркази ташкил этилади
+-  Ер тўғрисидаги қонунчилик такомиллаштирилиши муносабати билан Ҳукуматнинг айрим қарорларига ўзгартиришлар киритилади
+-  Сувдан фойдаланиш самарадорлигини ошириш чоралари кўриб чиқилди
+-  Ёшларни ватанпарвар этиб тарбиялашда мустаҳкам ҳуқуқий асос яратилди
+-  Ўзбекистон-Япония: таълимдаги самарали ҳамкорлик
+-  Гиёҳвандлик контрабандаси билан шуғулланган шахс ушланди
+-  Japonya'da deprem para politikasını etkileyecek
+-  Bugünkü maçlar 4 Ocak 2024... Bu akşam hangi maçlar var, hangi kanalda?
+-  Ancelotti'nin Arda Güler'e söylediği sözler ortaya çıktı!
+-  Exprezident Schuster slávi okrúhlych 90 rokov. Zablahoželali mu premiér Fico aj prezidentka (foto)
+-  Fenerbahçe'de sevindiren gelişme! Rodrigo Becao çalışmalara başladı
+-  TBMM Başkanı Kurtulmuş'tan İran'a teröre karşı işbirliği çağrısı
+-  Kırmızı ışıkta duran okul servisi içindeki öğrencilerle birlikte kaçırıldı
+-  İşgalci İsrail'in çekiciliği zayıfladı! Artık isteksiz davranıyorlar
+-  Cumhurbaşkanı Erdoğan, inşasında sona gelinen AK Parti konferans salonunu ziyaret ediyor
+-  Vanlı ailelerin evlat nöbeti kararlılıkla sürüyor
+-  Askerliği zorunlu hale getirmek için düğmeye bastılar
+-  İstanbul'da yağışlar etkisini gösterdi baraj doluluk oranları arttı
+-  İYİ Parti'de İmamoğlu pişmanlığı: Keşke ona oy vermeseydik
+-  How to level up fast in The Finals: Best XP farming methods
+-  Huijsen tra Roma e Frosinone: la decisione di Allegri per Juve-Salernitana
+-  Darts-WM: Das Ausscheiden von Michael van Gerwen im Viertelfinale ist die Quittung für seine Arroganz
+-  Triển khai phương án mới cứu tàu hàng 15.000 tấn mắc cạn ở Dung Quất
+-  Khán giả TP.HCM và một đêm chờ đợi thời khắc khai xuân bản lĩnh
+-  Điểm check-in mới toanh của người trẻ Sài Thành
+-  Festival hoa kiểng Sa Đéc- Cú hích cho du lịch Đồng Tháp
+-  Phát hiện điểm gì thú vị khi nhìn lại VN-Index quý 1 ròng rã 10 năm qua
+-  HLV Philippe Troussier: 'Vì tôi mà nhiều người không ủng hộ đội tuyển Việt Nam'
+-  Um diese Menschen wird getrauert
+-  پشاور، خواجہ سراﺅں کیلئے اسمبلیوں میں نشست کیلئے کیس کی سماعت
+-  Passar trote no Pará pode dar multa de até R$ 10 mil; lei está em vigor
+-  Delhi Police arrest wanted Hizbul Mujahideen operative Javaid Mattoo
+-  NeuroZoom Reviews 2024 (Honest Customer Warning Exposed) on Neuro Zoom
+-  MD ACV Gummies NZ and Australia | Shocking Review About MD ACV keto Gummies
+-  Bioheal CBD Gummies Reviews (Bio Heal CBD Gummies for Diabetes)
+-  Vorbereitungen für den Kirtag laufen auf Hochtouren
+-  Newlyweds Ira Khan and Nupur Shikhare drop their first selfie post-marriage
+-  Manoj Bajpayee lauds Killer Soup co-star Konkona Sen Sharma
+-  `Indian Superman`; Netizens go gaga over Aamir Khan`s son Junaid Khan
+-  Margarita de Dinamarca da su último paseo en carruaje por Copenhague como reina
+-  El precio de los carburantes cierra 2023 estabilizado y lejos de los máximos del año
+-  Los niños amputados de Gaza corren más riesgos sin atención especializada
+-  Walgreens Boots supera por 0,03$ las previsiones de BPA en el primer trimestre del año
+-  Un Nadal implacable se mete en cuartos de final en Brisbane
+-  España cuenta con más de 300 empresas centenarias
+-  Terremoto en Japón: Carrera contrarreloj para encontrar supervivientes
+-  Yvonne Woelke wehrt sich gegen die Vorwürfe von Djamila Rowe
+-  Berisha ‘ligjëron’ çdo ditë nga dritarja, Balla: E papranueshme! “Partizani”, korrupsion i pastër!
+-  Hochwasser: Kaum noch Regen ab Samstag – Wintereinbruch sorgt für neue Probleme
+-  Gran Hermano arrancó mal: sancionaron a Nicolás por romper una regla básica
