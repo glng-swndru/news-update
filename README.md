@@ -1,51 +1,51 @@
 # Latest News
--  Rimonta Barcellona all'ultimo respiro: decide Gundogan dal dischetto
--  Atakuota Kinijos teritorija. Karšti vaizdai. Skubi Pekino reakcija. Kas vyksta (Video)
--  The Best Ski Gloves And Mittens, Chosen By Our Outdoor Gear Experts
--  المغرب يتراجع عن قرار تقييد إدخال الأمتعة المنزلية المستعملة من الخارج
--  부산 광안대교 10년 만에 재단장...'글로벌 허브도시' 추진
--  Cartoon: Happy New Year?
--  Raúl González: "El Córdoba CF tiene que estar en el fútbol profesional"
--  Saskatoon SPCA opens new facility: ‘Highest animal welfare standards’
--  XBiotech entame la construction d'un nouveau centre de recherche et développement sur son campus de 19 hectares
--  New York City is suing charter bus companies for transporting migrants from Texas
--  New York City sues 17 bus companies for transporting migrants from Texas
--  Блинкен поддержал скорейшее вступление Швеции в НАТО
--  Netflix and cheers: Sci-fi films and spooky TV take the 2023 cake
--  Manisa'da 14 ayrı cinsel saldırı suçundan aranan zanlı tutuklandı
--  ישיבת הקבינט התפוצצה לאחר עימות בין שרים לרמטכ"ל
--  '풀백-센터백 모두 소화한 슈퍼 땜빵' 에메르송 로얄, 다시 벤치 신세로 돌아갈 위기...부상자들이 돌아온다
--  Washington Büyükelçisi Murat Mercan emekliliğe ayrılıyor
--  Tomaba fotos desnuda a la hija de su pareja mientras dormía para luego venderlas
--  محذرا من تفتت السودان.. رئيس الوزراء السابق عبد الله حمدوك يدعو قيادة الجيش إلى لقاء عاجل
--  زاخاروفا ردا على طلب كوليبا: لن يعزل أحد الدبلوماسيين الروس في العالم
--  5 أطعمة مثالية على معدة فارغة
--  Gol y 3 puntos a casa: Gündoğan marcó sobre el final el 2-1 del Barcelona vs. Las Palmas
--  By: temp mail pro
--  Police investigating shooting on Manitoba First Nation
--  대구농수산물유통관리공사, 공식 출범...5일 제막식
--  The Easiest and Fastest Way To Create a 360 Virtual Tour of a Home
--  김정권 전 의원, 10일 '김해 한 바퀴' 출판기념회 개최
--  В Пентагоне назвали полномочия выделить Украине помощь формальными
--  Marcela Gómez y los 3 fichajes que vienen en América
--  鼻酸！謝金晶淚謝豬哥亮 泣訴「下輩子還要叫您爸爸」
--  [도봉구, 한글 변환된 옛 토지대장 발급 서비스 ‘전국 최초’
--  سنتان محببتان ليوم الجمعة.. دار الإفتاء توضحهما
--  Woman charged with murder alongside teen after shotgun death
--  Woman charged with murder alongside teen after shotgun death
--  Woman charged with murder alongside teen after shotgun death
--  최태원 解弦更張-최창원 日新又日新…SK그룹 긴장 또 긴장
--  Biden demanda a Texas por ley que permite detener a migrantes
--  Drama u Srbiji: Opozicionar na samrti, odvela ga BIA, nađen u bolnici
--  Column: Let’s work on anger management in 2024
--  Ilkay Gundogan hóa người hùng, Barcelona nhọc nhằn đánh bại Las Palmas
--  राष्ट्रिय सभामा ‘कस्ता’ आउलान् ?
--  10 Km de Tagarro celebram história
--  Vamos a seguir apoyando a NL: Claudia Sheinbaum
--  Bruce Willis’ daughter Scout pays very poignant tribute to dementia-stricken dad
--  Ankara'da halk ekmeğe de zam geldi
--  Juventus leva susto, mas goleia Salernitana em bela virada e vai às quartas da Copa da Itália
--  ŽESTOK NAPAD U RUSIJI Oboreno 10 raketa, povređene osobe prebačene u bolnicu
--  "마흔에 다시 시작한 영어…10년간 공부해 실리콘밸리 갔죠"
--  Nhổ răng sau 4 tháng vẫn đau đớn, không lành vết thương
--  Pohreby - piatok 5. januára
+-  Second batch of Jeffrey Epstein-related court documents revealed
+-  Juventus Pesta Gol Saat Singkirkan Salernitana di 16 Besar Coppa Italia
+-  Río de Janeiro contará con 453 desfiles de comparsas
+-  소비자가 ‘보장’ 설계하는 건강보험 봇물…특약 종류만 100여개
+-  감탄사 절로 나오는 오버헤드킥! '결승골' 이강인 쾌조의 컨디션 입증…亞컵 기대감 급상승
+-  김선빈 KIA 잔류, 서건창 선택지 하나 사라졌다…1365안타에서 멈추나, 이제 영웅들의 손을 잡자
+-  '유니버스 티켓', 2월 공연 진행…상위 16인 무대 오른다
+-  "케인 없을 때 기억하지? 우리 잘했잖아!"…토트넘 떠난 '캡틴'의 당부, "내가 없을 때 더 많은 골 넣기를 바란다"
+-  르세라핌, 日오리콘 연간 '신인랭킹' 1위…매출 193억·20년만 대기록
+-  Geçen sene de gıda fiyatları durmadı
+-  Nick Carter is ‘completely heartbroken’ by death of sister, Bobbie Jean
+-  경주 돈사서 불… 돼지 150마리 폐사
+-  LG화학, 美 리듬파마슈티컬스에 희귀비만신약 기술수출
+-  LaLiga 2024: Así fue la victoria agónica del Barcelona contra Las Palmas
+-  Movida jornada en Colo Colo: acuerda venta de Damián Pizarro y la llegada de Almirón como DT
+-  Aposentadoria aos 55 anos de idade: Quais os critérios atuais do INSS?
+-  Oscar Pistorius será libertado 11 anos após assassinar namorada
+-  Guardiões da Galáxia da Marvel está de graça na Epic Games Store
+-  Survei Utting Research: Elektabilitas Anies Melejit Pasca-Debat Capres
+-  احذروا تناول حليب الشوفان.. أطباء يوضحون السبب
+-  إحصائيات فيتور روكي في أول مباراة له بقميص برشلونة
+-  스페인 바르셀로나, 리그 중위권 라스팔마스에 2-1 진땀승
+-  "جزائية قاتلة" تنقذ برشلونة من السقوط
+-  天文台｜早上天氣清涼 日間最高氣溫約21度 吹和緩偏東風
+-  Former Suva rep Pita Rabo
+-  Новак Джокович: Питайте други кой е най-великият
+-  La región Junín presenta 21 casos sospechosos de Covid-19
+-  Emilio Izaguirre cerca de traer a un ex jugador del Toluca
+-  Dread Mar-I ofrecerá concierto en Lima: Conoce los precios y dónde comprar las entradas
+-  ESCALA 24×7 RECIBE DE AWS EL PREMIO PARTNER DEL AÑO EN SU EVENTO ANUAL RE:INVENT
+-  Kamarátka Haščákovej († 43) opísala, čo sa dialo krátko pred speváčkinou smrťou: Desivé minúty!
+-  Louisiana Gov. Edwards to take law firm job after leaving office
+-  «لاليغا»: برشلونة يسقط بالماس الصعب… ويتقدم إلى الثالث
+-  Ventura County Is Asking You To Not Share Or Move Your Homegrown Fruit
+-  La Cuarta Transformación terminó con los gasolinazos: Sheinbaum
+-  توقيف أمين عام وزارة البيئة عن العمل
+-  Whiteside County Health Department plans expansion, adding optometry services
+-  Israel and the US must face the future of the war against Hamas
+-  Disminuye 15% la incidencia delictiva durante el 2023 en VCarranza; la más baja en CDMX
+-  Oberster Gerichtshof holt Fußball-Chef zurück ins Amt
+-  SUDAR DVA VOZA U METROU Nesreća na Menhetnu: Povređene 24 osobe, jedna kompozicija bila puna putnika (FOTO)
+-  Bucan a familiares de joven accidentado en Nochebuena rumbo a Búfalo
+-  Vinculan a 'El Pitufo' por el asesinato de una persona en bar en 2022
+-  Registró INM en 2023 más de 40 millones de migrantes regulares
+-  2023 marked most active labor-dispute year in more than two decades: Pew analysis
+-  Expropian terrenos en Yucatán y Campeche a favor del Tren Maya
+-  Comic book on K-pop group BTS charts their rise to stardom and military service
+-  LaLiga: El controversial penal y los “bloopers” de Vitor Roque por los que critican al FC Barcelona tras derrotar a Las Palmas
+-  歐美掀起「零酒精1月」挑戰，台灣要不要響應？
+-  디즈니 '위시' 주말엔 가족 관객 쓸어담는다
