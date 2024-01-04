@@ -1,11 +1,11 @@
 # Latest News
--  העברות בעולם, 4.1: קוצרה ההשאלה של רגילון, סאנצ'ו בדרך לדורטמונד
--  Francia Márquez arrendó pisos por más de 2.000 millones de pesos para el Ministerio de la Igualdad
--  Förderstopp nach Antisemitismus-Vorwürfen: Kulturzentrum „Oyoun“ will Gebäude in Neukölln nicht räumen
--  AUTO SE PREVRNUO NA KROV, VIŠE VOZILA UČESTVOVALO U UDESU Užas na Zrenjaninskom putu (VIDEO)
--  MIRKA VASILJEVIĆ PRIZNALA SVE O JOŠ JEDNOJ TRUDNOĆI: Falila nam je beba, želeli smo da osetimo taj miris
--  Inspeccionan escuelas de manejo para verificar conocimientos a futuros conductores
--  Alemania cerró 2023 con una inflación del 5,9 %, segunda mayor tasa desde la reunificación
--  Fracaso del peso mexicano: Precio del dólar no logra bajar de 17.00 hoy 4 de enero
--  Solicitudes semanales subsidio de desempleo EEUU caen más de lo esperado
--  La ministra Morant afirma que "no habrá futuro industrial" sin innovación
+-  Veikkausliiga-seuralta mielenkiintoinen pelaajahankinta – "Hän saa nyt ison mahdollisuuden"
+-  Трампа и Клинтона обвинили в педофилии
+-  Хикмет Гаджиев: Мы готовы рассмотреть модели вроде калининградской
+-  В Багдаде убит лидер проиранских боевиков
+-  BLOG/Bauernverband : Nachbesserungen beim Agrardiesel sind unzureichend
+-  Israel-News: Aktuelle Nachrichten zum Krieg in Nahost (Donnerstag, 04.01.2024)
+-  Insändare. ”Utred om Riksbanken har fått ner inflationen”
+-  Radiomann Oliver Washington: SRF-Journalist wird Jans’ Kommunikationschef
+-  Теперь официально. Чиновники ввели новый способ контроля за населением
+-  Сандерленд може поборотися з Поліссям за Михайличенка
