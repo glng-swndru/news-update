@@ -1,51 +1,11 @@
 # Latest News
--  [속보] 김건희 주가조작 의혹·대장동 50억 클럽 진상규명 쌍특검법 정부 이송
--  지은지 90년 삼척 봉황촌 철도가도교, 이달부터 임시 개통 나서
--  갑을구미재활병원, 재활치료실 확장…'재활 선도병원 도약'
--  노연홍 제약바이오협 회장 "사명감 갖고 가야할 길 가자"
--  진옥동 회장, "절실함 갖고 일류 신한 달성 위해 치열하게 궁리할 것"
--  Osun govt to spend N702m on meals, entertainment in 2024
--  صدور قانون الغابات والثروات الغابية في الجريدة الرسمية
--  قسنطينة: الشروع في تسليم البطاقة الرقمية للحرفي
--  Dolar/TL 29,79 Seviyesinden İşlem Görüyor
--  Nogometaši Osijeka započeli su s pripremama za nastavak sezone
--  Croatia twin born minutes apart, but in different years
--  Ekşi Sözlük’e Bir Engel Daha!
--  ประชุมสัมมนาเพื่อเพิ่มประสิทธิภาพการบริหารจัดการ
--  ‘Građanima će rasti plaće, krećemo na punu regulaciju rada nedjeljom. Plaće javnih službenika? Povijesna reforma!‘
--  Какви са прогнозите за пазара на труда в България през 2024?
--  포커스미디어, 부산생활권 스타트업 상생 DOOH 프로젝트 성료
--  인덴트코퍼레이션, 위드소프트 ‘플렉스지’와 ‘브이리뷰’ 서비스 연동
--  국회, ‘김건희·대장동 특검법’ 정부 이송, 尹대통령 거부권 임박
--  美, 질소가스로 첫 사형 집행한다…“고통스럽고 굴욕” 반발
--  혼자 사는 여성 집 침입해 감금·성폭행 시도한 30대 구속기소
--  동전 가득 든 쇼핑백…초등생이 용돈 모아 ‘36만원’ 익명 기부
--  طقس الخميس... أجواء باردة بأغلب الجهات
--  مرض جلدي خطير يثير القلق في بريطانيا
--  Le froid débarque en France la semaine prochaine
--  المكتب السياسي لحزب التقدم والاشتراكية يدين الهجوم الصهيوني على بيروت واغتيال قيادات فلسطينية ومدنيين لبنانيين
--  صندوق النقد الدولي: نمو القطاع غير النفطي بالخليج يتفوق على المعدل العالمي
--  مراقبة الساحل ودورية بأعالي البحار تابعة للبحرية الملكية ينقذان 124 مهاجرا بالداخلة
--  Nystartat konsultföretag i Linköping
--  مهني يتوقع ارتفاع أسعار اللحوم بالمغرب
--  Abrabot Automation AB - nytt företag startar i Linköping
--  Nystartat konsultföretag i Linköping
--  IFK om isproblemen: "Så tolkar jag reglerna"
--  Devojka (23) u sred noći vozila suprotnim smerom! Zaustavila je policija i sprečila tragediju
--  Linköping får nytt företag i restaurangbranschen
--  സംസ്ഥാനത്തെ തദ്ദേശസ്വയംഭരണ സ്ഥാപനങ്ങള്‍ കേന്ദ്രീകരിച്ച് സംരംഭങ്ങള്‍ പ്രോത്സാഹിപ്പിക്കാന്‍ വ്യവസായ വകുപ്പ്
--  Ajan Surgical AB - nytt företag startar i Linköping
--  Nytt företag startas i Linköping - Hörna Lantbuk Aktiebolag
--  Hatay'ın İskenderun ilçesinde sağanak etkili oldu
--  İstanbul Taksiciler Esnaf Odası Başkanı Aksu: İndi-bindi 120 lira olmalı
--  Dere yatağında altın arayan 6 şüpheli, suçüstü yakalandı
--  Kars'ta uyuşturucu partisine polis baskını: Çok sayıda gözaltı var
--  Mask mandates return at some US hospitals as COVID, flu jump
--  Cómo crear una comunidad de WhatsApp paso a paso
--  ระเบิดความแซ่บ! แอนโทเนีย ปาเซตบิกินีสีร้อนฉ่า ทำใจสั่นเป็นแถบ
--  Arda Güler Maça Neden Çıkmadı!
--  Sunflower season 2 announced, Sunil Grover, Mukul Chaddha to reprise their roles
--  Ranbir Kapoor dons police uniform as he shoots with Rohit Shetty
--  "Shocked and Saddened": MEA grieves twin blasts in Iran`s Kerman city
--  Preity Zinta turns on `Tourist mode`, shares pic with `Pati Parmeshwar`
--  DA LI JE REALNO DA JE OVO URADIO?! Dončić na zagrevanju izveo SPEKTAKULARAN POTEZ - sam sebi "namestio", pa MONSTRUOZNO zakucao!
+-  Galatasaray'da Sacha Boey krizi! Hala ikna edilemedi
+-  Sakla Beni 10. bölüm izle tek parça! İncila hamile mi? Ozan ile evlenecek mi?
+-  Kovalar iş imzalarını atıyor, Aslan dönen dolaplara uyanık olsun! Balık aşkına üzülme işine sarıl
+-  İran, Kirman'daki terör saldırısında ölü sayısını 84 olarak güncelledi
+-  AK Parti'den deprem bölgesine özel çalışma
+-  İbrahim Tatlıses'in çalışanlarını tedirgin eden tehdit!
+-  MSB iddiaları yalanladı: Türkiye Montrö'yü hassasiyetle uyguluyor
+-  Bakan Yumaklı duyurdu: 9 milyar 200 milyon lira devlet desteği sağladık
+-  Margot Robbie favori filmini açıkladı... Her izlediğinde ağlıyormuş
+-  INTEL CORP : Bernstein maintient son opinion neutre
