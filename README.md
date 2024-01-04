@@ -1,11 +1,11 @@
 # Latest News
--  Much uncertain in Rotterdam neighborhood fight that led to 71-year-old's murder
--  Ето какво увеличение на клиничните пътеки иска БЛС
--  MÄRKTE USA/Wall Street leicht erholt von Vortagesverlusten
--  Tour Eiffel (société De La) : STE - Bilan semestriel S2 2023 du Contrat de Liquidité
--  Gazze katliamına tepkiler çığ gibi büyüyor... Blinken'ın aracına kırmızı boya döküldü
--  Beşiktaş'ta Kasımpaşa maçı öncesi Ghezzal gelişmesi!
--  Floor de Groot draagt directie Kontakt Mediapartners over aan Rick den Besten, Simon Gijsbers en Annie Molenaar
--  Otac Mate Rimca osuđen na tri godine zatvora
--  Canucks prospect Jonathan Lekkerimaki leads Sweden over Czechia in world junior semis
--  Wat doet Ronald Koeman een halfjaar voor het EK? Zich een beeld vormen de dingen die hij níet weet
+-  С кем готов договариваться Путин
+-  En 2023, 14.535 jeux sont sortis sur Steam, un record
+-  মুরাদের সমর্থকদের ওপর নৌকার সমর্থকদের হামলা, আহত ১০
+-  ব্যারিস্টার জন যোগ্য পিতার যোগ্য সন্তান: সুষ্মিতা
+-  OL Groupe : prête Tino Kadewere au FC Nantes
+-  Solta o som!
+-  Argita Malltezi në krye të protestave të Rithemelimit: Qytetarët poshtë pallatit të Berishës dalin për dinjitetin e tyre
+-  Kızıldeniz'de tansiyon düşmüyor... Yemen'den patlayıcı yüklü bot fırlatıldı
+-  İsrail'de yargının soykırım sessizliği tartışılıyor... 'Kışkırtıcılar'a dava açılması çağrısı
+-  Görsel zeka testi: 8 saniyede 311 kişiden 3'ü başarılı oldu! Zekiler bile 7 kediyi bulamadı
