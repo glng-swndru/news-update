@@ -1,11 +1,11 @@
 # Latest News
--  Transações em Bolsa são anónimas e há “fortes penalizações” para quebra do sigilo
--  Diferença no valor da água entre municípios acima de 376 euros
--  IGAI abre inquérito a alegadas agressões da PSP a jornalista
--  Reportan fallas en app de BBVA
--  Inicia entrega-rececpción en Delegación Estatal del IMSS
--  «الاقتصاد»: 2943 شكوى في 2023.. ثلثها للمركبات وقطع الغيار
--  Китай остава най-големият пазар на нови автомобили и през миналата година
--  Have You Seen This Mississippi Couple? You Won't Believe Why They Are On the Run
--  New Revelations Emerge: Unsealed Court Records Shed Light on Epstein’s Old Sex Abuse Allegations
--  Qali Warma: Se conformó el 100 % de Comités de Alimentación Escolar en el ámbito nacional
+-  Man found seriously injured after road rage attack in Western Sydney
+-  Nekoliko državnih zgrada u SAD evakuisano zbog pretnji bombom
+-  Verkopen McDonald's in sommige landen omlaag door oorlog Gaza
+-  Premier Rutte aanwezig bij herdenkingsdienst Delors
+-  Vertraagde GPT Store van OpenAI volgende week alsnog online
+-  Más de la mitad de los consumidores financiados comprarán los regalos de Reyes vía online
+-  Suspenden paros en la planta de Amazon en Dos Hermanas (Sevilla) a la espera de acuerdo
+-  Sindicato da PSP questiona Ministério das Finanças sobre lista da pré-reforma
+-  Women's basketball team sets NCAA record with 141-point win
+-  BlackBerry sevenlere müjde! iPhone için ilginç kılıf
