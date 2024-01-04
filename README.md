@@ -1,51 +1,11 @@
 # Latest News
--  Informe de resultados: Los resultados del primer trimestre del ejercicio fiscal 2024 de UniFirst muestran un sólido crecimiento
--  Informe de resultados: Simulations Plus registra un fuerte crecimiento en el primer trimestre y cambios en la dirección
--  Mobileye prevé menores ingresos en el primer trimestre de 2024 por ajustes de inventario
--  CGI se asocia con NATS del Reino Unido para su renovación digital
--  A2Z Smart Technologies recaudará 3,23 millones de dólares en una venta de acciones
--  Galicia reclama que el Gobierno le permita convocar el PERTE mar-industria
--  Ficosa e Indie Semiconductor se alían para crear cámaras de automoción basadas en la IA
--  Arcadium Lithium anuncia la finalización de una fusión por acciones
--  Rendimiento de los bonos de EEUU sube tras datos de empleo mejores de lo esperado
--  Lilly lanza un sitio web y una opción de entrega a domicilio de medicamentos para adelgazar
--  Alaska Airlines amplía su flota con un nuevo Boeing 737-8
--  Sunak espera que haya elecciones en Reino Unido en el segundo semestre
--  A101'de bu hafta neler var? A101 4 Ocak 2024 aktüel ürünler kataloğu
--  11 ilde eş zamanlı "KAFES-28" operasyonu: 61 kişi yakalandı
--  Takımın yeni orta sahası oldu! Ve Yunus Akgün'ü resmen duyurdular
--  켄달 제너, 입은 듯 안 입은 듯 파격 노출 시스루
--  4 cầu thủ tiếp theo bị loại khỏi ĐT Việt Nam là ai?
--  Uyuşturucu maddelerini "Kübra, "Amca" diye şifrelediler!
--  Furto alla Jeraghese Calcio, bottino di 4mila euro: “Era frutto della raccolta fondi della cena di Natale”
--  Slovenské reťazce sťahujú z predaja taniere pre deti, obsahujú toxické kovy
--  پی ٹی آئی کے مرکزی دفتر میں بیرسٹر گوہر اور شیر افضل مروت آمنے سامنے
--  هل تحولت غزة لحقل تجارب لشركات الأسلحة الناشئة الإسرائيلية؟
--  Vahvistus: HJK teki kovan luokan hankinnan – "Meille oli erittäin tärkeää saada tämä sopimus maaliin"
--  إيران تخفض عدد ضحايا التفجير المزدوج
--  Андрей Рублев пробился в четвертьфинал турнира в Гонконге
--  El Greco medical centre to open in Nicosia this January
--  Researchers develop high-performance, stretchable solar cells
--  518 milyon yıllık yırtıcı solucan keşfedildi
--  Iz hrvatskih ljekarni povlači se još jedan lijek, sumnja se u neispravnost u kakvoći
--  Simon Le Baron rend un touchant hommage à la journaliste Clémentine Vergnaud, décédée à l’âge de 31 ans
--  By: Forex Quad
--  Schmid (SPÖ): Wiener Wissenschaft verliert eine Ikone: Dr. Christian Ehalt
--  Mornarov Amerikanac najbolji skakač ABA lige u decembru
--  Eşi ve kızı hakkındaki yorumlara sinirlenen Jess Molho: 'Onlar benim malım değil'
--  Teleurstellend WK darts bewijst: ‘Nederlanders een minder jaar? Michael van Gerwen heeft een minder jaar’
--  الجيش الأمريكي يؤكد تنفيذه ضربة في بغداد لـ"فصيل مسؤول عن هجمات ضده"
--  Ekrem İmamoğlu, taziye ziyaretinde Kur'an okudu
--  13 Aplikasi Berbahaya yang dapat Mengambil Alih Ponsel Android dari Jauh
--  La ONU le recuerda a Israel la prohibición sobre el traslado forzoso de la población
--  Стали известны детали смерти худрука команд КВН Агафонова: умер на отдыхе
--  Soft microrobots with super-compliant picoforce springs as onboard sensors and actuators
--  В Раде заявили о намерении украинских военачальников усилить мобилизацию
--  Bridgeclub 't Ambacht ondersteunt gratis bridgecursus voor beginners via e-mail
--  Altının kilogram fiyatı yükseldi
--  Kalinić je pokazao da nije u šoldima sve, a nije mu prvi put, prije sedam godina je odbio milijune kojima su ga mamili
--  Frío extremo, nieve e intensas lluvias colapsan media Europa
--  Gustavo Mioto, Ana Castela e Luan Pereira estão em “Solteiro Não Trai”, neste sábado
--  Kakvo nas vijeme očekuje sutra
--  Какво нас вијеме очекује сутра
--  عدد النازحين الفلسطينيين وصل إلى مليون شخص
+-  העברות בעולם, 4.1: קוצרה ההשאלה של רגילון, סאנצ'ו בדרך לדורטמונד
+-  Francia Márquez arrendó pisos por más de 2.000 millones de pesos para el Ministerio de la Igualdad
+-  Förderstopp nach Antisemitismus-Vorwürfen: Kulturzentrum „Oyoun“ will Gebäude in Neukölln nicht räumen
+-  AUTO SE PREVRNUO NA KROV, VIŠE VOZILA UČESTVOVALO U UDESU Užas na Zrenjaninskom putu (VIDEO)
+-  MIRKA VASILJEVIĆ PRIZNALA SVE O JOŠ JEDNOJ TRUDNOĆI: Falila nam je beba, želeli smo da osetimo taj miris
+-  Inspeccionan escuelas de manejo para verificar conocimientos a futuros conductores
+-  Alemania cerró 2023 con una inflación del 5,9 %, segunda mayor tasa desde la reunificación
+-  Fracaso del peso mexicano: Precio del dólar no logra bajar de 17.00 hoy 4 de enero
+-  Solicitudes semanales subsidio de desempleo EEUU caen más de lo esperado
+-  La ministra Morant afirma que "no habrá futuro industrial" sin innovación
