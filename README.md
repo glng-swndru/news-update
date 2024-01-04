@@ -1,51 +1,51 @@
 # Latest News
--  Second batch of Jeffrey Epstein-related court documents revealed
--  Juventus Pesta Gol Saat Singkirkan Salernitana di 16 Besar Coppa Italia
--  Río de Janeiro contará con 453 desfiles de comparsas
--  소비자가 ‘보장’ 설계하는 건강보험 봇물…특약 종류만 100여개
--  감탄사 절로 나오는 오버헤드킥! '결승골' 이강인 쾌조의 컨디션 입증…亞컵 기대감 급상승
--  김선빈 KIA 잔류, 서건창 선택지 하나 사라졌다…1365안타에서 멈추나, 이제 영웅들의 손을 잡자
--  '유니버스 티켓', 2월 공연 진행…상위 16인 무대 오른다
--  "케인 없을 때 기억하지? 우리 잘했잖아!"…토트넘 떠난 '캡틴'의 당부, "내가 없을 때 더 많은 골 넣기를 바란다"
--  르세라핌, 日오리콘 연간 '신인랭킹' 1위…매출 193억·20년만 대기록
--  Geçen sene de gıda fiyatları durmadı
--  Nick Carter is ‘completely heartbroken’ by death of sister, Bobbie Jean
--  경주 돈사서 불… 돼지 150마리 폐사
--  LG화학, 美 리듬파마슈티컬스에 희귀비만신약 기술수출
--  LaLiga 2024: Así fue la victoria agónica del Barcelona contra Las Palmas
--  Movida jornada en Colo Colo: acuerda venta de Damián Pizarro y la llegada de Almirón como DT
--  Aposentadoria aos 55 anos de idade: Quais os critérios atuais do INSS?
--  Oscar Pistorius será libertado 11 anos após assassinar namorada
--  Guardiões da Galáxia da Marvel está de graça na Epic Games Store
--  Survei Utting Research: Elektabilitas Anies Melejit Pasca-Debat Capres
--  احذروا تناول حليب الشوفان.. أطباء يوضحون السبب
--  إحصائيات فيتور روكي في أول مباراة له بقميص برشلونة
--  스페인 바르셀로나, 리그 중위권 라스팔마스에 2-1 진땀승
--  "جزائية قاتلة" تنقذ برشلونة من السقوط
--  天文台｜早上天氣清涼 日間最高氣溫約21度 吹和緩偏東風
--  Former Suva rep Pita Rabo
--  Новак Джокович: Питайте други кой е най-великият
--  La región Junín presenta 21 casos sospechosos de Covid-19
--  Emilio Izaguirre cerca de traer a un ex jugador del Toluca
--  Dread Mar-I ofrecerá concierto en Lima: Conoce los precios y dónde comprar las entradas
--  ESCALA 24×7 RECIBE DE AWS EL PREMIO PARTNER DEL AÑO EN SU EVENTO ANUAL RE:INVENT
--  Kamarátka Haščákovej († 43) opísala, čo sa dialo krátko pred speváčkinou smrťou: Desivé minúty!
--  Louisiana Gov. Edwards to take law firm job after leaving office
--  «لاليغا»: برشلونة يسقط بالماس الصعب… ويتقدم إلى الثالث
--  Ventura County Is Asking You To Not Share Or Move Your Homegrown Fruit
--  La Cuarta Transformación terminó con los gasolinazos: Sheinbaum
--  توقيف أمين عام وزارة البيئة عن العمل
--  Whiteside County Health Department plans expansion, adding optometry services
--  Israel and the US must face the future of the war against Hamas
--  Disminuye 15% la incidencia delictiva durante el 2023 en VCarranza; la más baja en CDMX
--  Oberster Gerichtshof holt Fußball-Chef zurück ins Amt
--  SUDAR DVA VOZA U METROU Nesreća na Menhetnu: Povređene 24 osobe, jedna kompozicija bila puna putnika (FOTO)
--  Bucan a familiares de joven accidentado en Nochebuena rumbo a Búfalo
--  Vinculan a 'El Pitufo' por el asesinato de una persona en bar en 2022
--  Registró INM en 2023 más de 40 millones de migrantes regulares
--  2023 marked most active labor-dispute year in more than two decades: Pew analysis
--  Expropian terrenos en Yucatán y Campeche a favor del Tren Maya
--  Comic book on K-pop group BTS charts their rise to stardom and military service
--  LaLiga: El controversial penal y los “bloopers” de Vitor Roque por los que critican al FC Barcelona tras derrotar a Las Palmas
--  歐美掀起「零酒精1月」挑戰，台灣要不要響應？
--  디즈니 '위시' 주말엔 가족 관객 쓸어담는다
+-  [“2026년부터 EU ‘디지털 제품 여권’ 도입…韓 기업 대응 서둘러야”
+-  [SK스페셜티, ESG 평가서 최고등급 ‘AA’ 획득
+-  [속보! 투자자 김모씨 '이것' 덕분에 고수익 달성!
+-  [41세 김아중"결혼,그런 행운 나한테도 있었으면…"
+-  [신협, 출자금 비과세 한도 2000만원으로 상향
+-  [“예금에 넣은 돈 꺼낼 때” 4대 은행 PB, 2024년 자산관리 전망[머니뭐니]
+-  [러, 우크라戰 ‘자국군 복무’ 외국인에게 시민권 준다
+-  [서울서 ‘겨울 절정’ 1월 화재 최다…5년간 2629건
+-  [기아 EV9, ‘북미 올해의 차’ 수상 쾌거…현대차그룹 역대 8번째
+-  [1월 졸업식에 책가방 구입도 빨라져…롯데온, 신학기 행사
+-  [싸게 파니 잘 팔리네…이마트24, ‘가격 동결’ 3월까지 유지
+-  [묻지도 따지지도 않고 월 0%대 금리로 대출 가능!
+-  [美 뉴욕서 지하철 열차 간 추돌 사고…20여 명 부상
+-  [美의원들, 현대차 등 무노조 자동차업체에 “노조 결성 방해 말라” 주문
+-  US will play Sweden for the World Juniors gold medal after beating Finland in the semifinals
+-  소득공제율 40%→80%...전통시장에 부는 '이른 봄바람'
+-  تقارير.. كانسيلو خارج السوبر الإسباني للإصابة
+-  أتلتيك بلباو يهزم إشبيلية ويتقدم إلى الثالث
+-  UAT reanuda actividades administrativas tras vacaciones decembrinas
+-  Reyes Magos en alcaldía Álvaro Obregón se adelantaron para entregar juguetes a niños
+-  OOTD 5 Selebriti Saat Umrah di Tahun Baru, BCL dan Febby Rastanty Kenakan Tas Branded Puluhan Juta!
+-  Menparekraf Sandiaga Uno: Libur Nataru 2024 BerKontribusi Rp120 Triliun pada Perekonomian Nasional
+-  Un muerto y cinco heridos deja tiroteo en escuela de Iowa, EE.UU.
+-  LG CNS, 과기부 표창 수상...데이터센터 운영 역량 인정
+-  New York City subway train derails in collision with another train, injuring more than 20 people
+-  Eli Lilly warns against 'cosmetic' use of popular diabetes, obesity drugs
+-  독립리서치 밸류파인더, 산업리포트 유료화 선언
+-  Taylor Swift allegedly recorded a vault track with ex Matty Healy for 1989 (Taylor's Version) - before scrapping his verse after their split
+-  Apoya Amanc a 210 menores con tratamientos contra el cáncer
+-  पूर्वाधार विकास र सडक यातायात
+-  Google must bargain with YouTube worker union, US labor board rules
+-  Isabel Gallardo, la coleccionista de recetas
+-  Sekjen PSSI Maju Jadi Caleg DPR RI, Bersaing dengan Presiden Borneo FC
+-  O teste que deve fazer uma vez por ano para testar a saúde cardiovascular
+-  RICHARD LITTLEJOHN: Here's an idea... maybe the Tories should stand down in favour of Reform UK
+-  Conselho Nacional do PSD aprovou por unanimidade coligação com CDS e PPM
+-  ‘Unfolding police incident’ in Coquitlam prompts road closures
+-  Box-Office Upset: 'Sound of Freedom' Bumps Taylor Swift's 'Eras Tour' Movie from 2023 Top 10 Film List
+-  Muere a los 100 años la actriz Glynis Johns, la madre de los niños en “Mary Poppins”
+-  UK court jails podcast pair for neo-Nazi series
+-  Oficial: Benfica confirma Marcos Leonardo como reforço
+-  Sean Dyche is hopeful Dwight McNeil avoided a serious ankle injury after Everton winger had to be carried off on a stretcher against Crystal Palace... but admits 'it's too early to tell'
+-  पर्यटन प्रबर्द्धनमा इलामेली प्रेरणा
+-  Teemu Pulkkiselle syntymäpäiväonnittelut – sen jälkeen tiputettiin kokoonpanosta
+-  FC Barcelonalle dramaattinen voitto Kanarialla
+-  Israeli defense minister lays out vision for next steps of Gaza war ahead of Blinken visit
+-  Malang Betul, Ada Hewan yang Punya Usia Terpendek di Dunia
+-  1 injured in ‘isolated’ shooting, Manitoba First Nation Police Service investigating
+-  Sunderland apologise for displaying rival's colours
+-  新闻报道亲爸贪污受贿 女主播急交棒给同事
