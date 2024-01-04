@@ -1,11 +1,11 @@
 # Latest News
--  لإطالة العمر عند الرجال
--  المؤتمر يدعو جماهير الشعب وقياداته وأعضائه وحلفاؤه للمشاركة في مظاهرات الجمعة
--  לוחם צה"ל נפצע קשה באזור ג'נין, עוד שניים נפגעו בינוני וקל במחנה פליטים באזור טול כרם
--  21 שנים אחרי שאביו נפל: הלוחם נפצע קשה בקרב בג'נין
--  למרות האשמות שהוטחו בישראל ובארה"ב: דאעש לקח אחריות על הפיגוע המשולב באיראן
--  הלחימה ברצועת עזה: חמישה לוחמי צה"ל נפצעו קשה ביממה האחרונה
--  "אם לא נאה לך - צא מהאולפן": עימות חריג במהלך השידור בין אנשי חדשות 13
--  טרגדיה: בן חודשיים נפטר משעלת
--  Kadınlar Türkiye Kupası'nda Fenerbahçe finalde
--  İran'daki kanlı saldırıyı DEAŞ üstlendi!
+-  Much uncertain in Rotterdam neighborhood fight that led to 71-year-old's murder
+-  Ето какво увеличение на клиничните пътеки иска БЛС
+-  MÄRKTE USA/Wall Street leicht erholt von Vortagesverlusten
+-  Tour Eiffel (société De La) : STE - Bilan semestriel S2 2023 du Contrat de Liquidité
+-  Gazze katliamına tepkiler çığ gibi büyüyor... Blinken'ın aracına kırmızı boya döküldü
+-  Beşiktaş'ta Kasımpaşa maçı öncesi Ghezzal gelişmesi!
+-  Floor de Groot draagt directie Kontakt Mediapartners over aan Rick den Besten, Simon Gijsbers en Annie Molenaar
+-  Otac Mate Rimca osuđen na tri godine zatvora
+-  Canucks prospect Jonathan Lekkerimaki leads Sweden over Czechia in world junior semis
+-  Wat doet Ronald Koeman een halfjaar voor het EK? Zich een beeld vormen de dingen die hij níet weet
