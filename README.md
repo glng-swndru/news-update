@@ -1,11 +1,11 @@
 # Latest News
--  Mamata Banerjee Birthday 2024: Here`s how TMC chief became Bengal`s beloved Didi
--  Bigg Boss 17: Vicky Jain picks a fight with Ankita Lokhande over her captaincy
--  Recognized by WEF as Global Lighthouse Factory, LONGi Leads Smart and Sustainable Manufacturing in the PV Industry
--  Montage Technology Introduces 4th-Gen DDR5 RCDs Enabling Data Rates up to 7200 MT/s
--  Deshalb wird Strom teurer
--  Angeklagter rastet aus: Sprungangriff auf Richter!
--  Galeria Kaufhof in Hildesheim schließt früher als ursprünglich geplant
--  Serve Shrimp Butter At Your Next Party And Thank Us Later
--  "السياحة النيابية" تزور مواقع في عجلون
--  بوتين يعرض تجنيس المقاتلين غير الروس في صفوف الجيش
+-  Se termina la era de Luis Zubeldía en Liga de Quito: presidente de los albos confirma que el técnico no continuará en el club
+-  Nevada obliga al cierre de tramo carretero en Chihuahua
+-  Pedro Pablo Velasco sale de Barcelona SC tras 10 temporadas en el club
+-  Protestkonvois und Blockaden der Landwirte: Verkehrschaos am gesamten Untermain erwartet
+-  Tiroteo dentro de escuela secundaria en Iowa deja varios heridos
+-  Σεισμός στην Ιαπωνία: Μάχη για την ανεύρεση επιζώντων - Στους 179 οι αγνοούμενοι
+-  নৌকাকে বিজয়ী করতে পিরোজপুরে ছাত্রলীগের প্রচারণা
+-  নেত্রকোণায় নৌকার প্রচারে নায়ক জায়েদ খান
+-  অপহরণের পর শ্যালিকার আত্মহত্যা, দুলাভাই কারাগারে
+-  সবাই নৌকার কথা বলছে, তবুও মাঠে আছি: স্বতন্ত্র প্রার্থী শাহজাহান
