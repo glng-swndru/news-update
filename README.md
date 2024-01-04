@@ -1,11 +1,51 @@
 # Latest News
--  Diego Simeone nói thẳng về đẳng cấp của Girona
--  Resmi Gazete'de yayımlandı... Balıkçılıkta yeni dönem
--  Altın fiyatları bugün ne kadar oldu? 4 Ocak 2024 Çeyrek altın, 24 ayar gram altın fiyatı son dakika
--  Zeki kadınları sevmeyen 3 erkek burcu! Kendi zekalarından üstünlüğü kabul etmezler
--  Bölgede gerilim had safhada! ABD, BM'yi acil harekete geçmeye çağırdı
--  Elveda Mauro Icardi! Galatasaray'da ayrılık: Transferi duyurdular
--  Alina Boz'dan eşi Umut Evirgen'le romantik poz!
--  Dere yatağına düzenek kurarak altın arayan şüpheliler yakalandı
--  Akneleri 30 saniyede kurutan 6 yağ! Geceden sabah cildinizde tek pürüz kalmayacak
--  Yıldız Tilbe'den 'Çalışıyorum' pozu... O hareketi dikkat çekti
+-  Trafficked Bauchi children: Gov Bala urges against ethnoreligious colouration
+-  Юсупова Хафиза Фуркат кизининг тиббиёт фанлари бўйича фалсафа доктори (PhD) диссертацияси ҳимояси ҳақида эълон
+-  Тўйчиев Олимжон Алижоновичнинг техника фанлари доктори (DSc) диссертация иши ҳимояси тўғрисида
+-  Адлия вазирлиги: қонунбузилишини бартараф этиш бўйича қарийб 56 минг тақдимнома киритилди
+-  토트넘에 닥친 두 번째 위기! 이번엔 손흥민이 없다...어떻게 극복할 것인가
+-  Karjalaisen kesätyöhaku alkaa maanantaina – Katso ohjeet hakemiseen
+-  Ancelotti adelt Rüdiger: „Auf höchstem Niveau“
+-  Dax stabil nach sehr schwachem Vortag
+-  Birgunj Police seize 3 trucks with over Rs 20M goods, exceeding bill value
+-  Nepal, India sign long-term agreement on electricity export
+-  '공공기관 2차 이전' 연내 불투명…내년 이후로 미뤄질 듯
+-  이재명, 물만 먹다 미음 식사 시작…"쉰목소리로 느릿느릿 말하는 상태"
+-  재정난 겪는 경영위기대학…구조개선 계획 있으면 국고 지원 받는다
+-  부실 우려 부동산 PF, LH가 매입…다주택자에게 '세컨드 홈' 허용
+-  대구문화예술회관 신년 음악회…빈 소년 합창단: ON STAGE
+-  "도둑 잡아라"…차량 절도범 추격해 붙잡은 달서구청 공무원
+-  Stiže zima: Od idućeg tjedna minusi i snijeg
+-  "בשורה לתעשיית הפודטק": הישג אדיר לחברת Imagindairy הישראלית
+-  "סגן הרמטכ"ל אומר 'זוזו' ויורה לבית עם המחבלים": הלוחמים שמצאו עצמם בקרב בלב עזה לצד האלוף ברעם
+-  פמלה אנדרסון קוטפת קמפיין חדש – וככה עוד לא ראיתם אותה
+-  [인사] 울릉군
+-  Weiter Regen erwartet: Unwetterwarnungen für Rheinland-Pfalz
+-  'Why did he leave her..': Aamir Khan kisses ex-wife Kiran at daughter Ira Khan's wedding with Nupur Shikhare [reactions]
+-  Rosną stawki morskich przewozów kontenerowych
+-  Chiny wróciły na pozycję największego na świecie importera LNG
+-  এই ডামি নির্বাচন সংসদে জনগণের প্রতিনিধিত্ব করবে না: ১২ দলীয় জোট
+-  Handeln Sie rasch, wenn Ihre Miete steigt!
+-  Amel Nafti, ancienne secrétaire d’Etat dans le gouvernement de Habib Essid, est décédée
+-  Borsa güne yükselişle başladı
+-  Bingöl'de operasyon: PKK'lı teröristlerin 8 katlı mağarası imha edildi
+-  Ambalajdaki fiyat oyunu: Asetonla siliyorlar!
+-  Vakit Nakittir Atasözünün Anlamı Nedir? Kısaca Açıklaması Ve Örnek Cümle…
+-  Alperen Şengün'den Brooklyn potasına 30 sayı
+-  Türkiye'nin en fazla ihracat yapan 3 ili belli oldu
+-  Sport | Warner's final Test fling ends disappointingly on rain-hit day in Sydney Test
+-  News24 | Both Hezbollah and Israel appear to signal no desire for spread of Gaza war
+-  Кой е цветът на 2024 година и как да го носите
+-  델테크놀로지스, “2024년은 AI기술이 실제 산업 현장에 적용될 것”
+-  새롭게 등장한 '사이버특보', 안보 체계 강화할 키맨 될까
+-  [DD퇴근길] 현대기아차 ERP, AWS에서 가동…네이버, 3인대표 체제 개편
+-  금융보안원, AI 혁신·보안 잡는다…‘AI혁신실’ 새롭게 등장
+-  매스웍스, ‘2023 세종 AI 챌린지’ 후원
+-  బైజూస్ ఆఫీసు వద్ద భారీ ఉద్రిక్తత..
+-  İstanbul Havalimanı'nın güvenlik hizmetlerinde yeni dönem
+-  Pedihok'23, BUÜ ev sahipliğinde gerçekleştirildi
+-  Süper Lig'de 19. hafta maçları başlıyor
+-  Bursa Valiliği'nden 2023 yıl sonu sergisi
+-  İstanbul Taksiciler Esnaf Odası Başkanı Aksu: İndi-bindi 120 lira olmalı
+-  Uludağ Üniversitesi'nde başarılı sporcular ödüllendirildi
+-  Yahudiler, Masonlar, dış güçler ve siyasette ahlak
