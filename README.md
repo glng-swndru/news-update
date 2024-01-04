@@ -1,11 +1,11 @@
 # Latest News
--  Man found seriously injured after road rage attack in Western Sydney
--  Nekoliko državnih zgrada u SAD evakuisano zbog pretnji bombom
--  Verkopen McDonald's in sommige landen omlaag door oorlog Gaza
--  Premier Rutte aanwezig bij herdenkingsdienst Delors
--  Vertraagde GPT Store van OpenAI volgende week alsnog online
--  Más de la mitad de los consumidores financiados comprarán los regalos de Reyes vía online
--  Suspenden paros en la planta de Amazon en Dos Hermanas (Sevilla) a la espera de acuerdo
--  Sindicato da PSP questiona Ministério das Finanças sobre lista da pré-reforma
--  Women's basketball team sets NCAA record with 141-point win
--  BlackBerry sevenlere müjde! iPhone için ilginç kılıf
+-  "Biseksüel Genlere" Sahip Erkeklerin Daha Çok Çocuğu Olduğu Ortaya Çıktı
+-  II. Dünya Savaşı'nda Nazilerin Korkulu Rüyası Olan Sovyet Kadın Hava Birliği: Gece Cadıları
+-  Pratapgarh News: कोतवाल साहब, मुझे जिंदा कर दो, भाइयों ने मार डाला
+-  Македонски државјанин учествувал во сообраќајка во Албанија, двајца повредени
+-  Fünf Monate nach Tod: Sandra Bullock verstreut Bryans Asche
+-  جيش الاحتلال يعلن عن عدد جديد للأسرى في غزة
+-  الاحتلال يشكل فرق تحقيق بإخفاقات 7 أكتوبر
+-  Mayor Eric Adams sues 17 charter bus companies for $700 million for transporting migrants to NYC
+-  Moradabad News: कटिंग से कांठ रोड हुई क्षतिग्रस्त, लोनिवि ने निर्माण के लिए जारी किया टेंडर
+-  Here's why Hamilton residents can expect their annual water bill to go up by $90 this year
