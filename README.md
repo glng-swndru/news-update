@@ -1,11 +1,51 @@
 # Latest News
--  Galatasaray'da Sacha Boey krizi! Hala ikna edilemedi
--  Sakla Beni 10. bölüm izle tek parça! İncila hamile mi? Ozan ile evlenecek mi?
--  Kovalar iş imzalarını atıyor, Aslan dönen dolaplara uyanık olsun! Balık aşkına üzülme işine sarıl
--  İran, Kirman'daki terör saldırısında ölü sayısını 84 olarak güncelledi
--  AK Parti'den deprem bölgesine özel çalışma
--  İbrahim Tatlıses'in çalışanlarını tedirgin eden tehdit!
--  MSB iddiaları yalanladı: Türkiye Montrö'yü hassasiyetle uyguluyor
--  Bakan Yumaklı duyurdu: 9 milyar 200 milyon lira devlet desteği sağladık
--  Margot Robbie favori filmini açıkladı... Her izlediğinde ağlıyormuş
--  INTEL CORP : Bernstein maintient son opinion neutre
+-  Sony India announces new no-pressure wireless sports headphones Float Run designed for runners and athletes
+-  Toronto Maple Leafsin huippuvahti hakee paluuta huipulle suomalaisvalmennuksessa
+-  France's winner secures the great escape
+-  France's winner secures the great escape
+-  Mossad'a yönelik operasyonlara ilişkin Bakan Tunç'tan açıklama
+-  Ziyaretçi akınına uğrayan Selimiye Camii'nin restorasyon çalışmaları devam ediyor
+-  İngiltere ve İspanya'da kupa arası Tivibu'da
+-  MHP'li Özarslan'dan Selahattin Demirtaş'ın açıklamasına sert tepki: Bu hevesler kursakta kalmaya mahkumdur
+-  CHP, DEM Parti ve TİP vekillerinin dokunulmazlık dosyaları TBMM'ye sevk edildi
+-  "교육균형발전 선도지구·서귀포 교육국제화 특구 운영"
+-  ব্লকে তিন কোম্পানির বড় লেনদেন
+-  Kahramanmaraş’ta yangın faciası!
+-  MSB kaynakları açıkladı: Çok ciddi tedbirler alınacak
+-  MSB'den bedelli askerlik açıklaması
+-  নারায়ণগঞ্জে নির্বাচনি জনসভায় শেখ হাসিনা
+-  SIEMENS ENERGY : Bernstein pas convaincu
+-  Presidente da República promulga dois diplomas do Governo
+-  미래에셋증권, 장기분산투자 문화 확산 위한 ‘제로 캠페인 시즌 2’ 시행
+-  '이지마인드 달팽이크림' 캐시워크 돈버는퀴즈 정답은?
+-  Bolsas europeias em alta, apesar de Wall Street ter terminado em baixa
+-  前两次都夺冠 乔帅澳网开打前又受伤
+-  1 Jahr MankeMobil
+-  Съветници на БСП – Бургас с питане за ремонт на улици в село Брястовец
+-  GRENKE : Warburg Research reste à l'achat
+-  La terre tremble plusieurs fois près de Sörenberg
+-  Bubbles-Show sorgte für Stimmung in Mödling
+-  3 جرحى بحادث سير في عبرا
+-  Le bric-à-brac de Zonebourse : Combien vaut Casino ?
+-  ยธ.นัดถก"ขังนอกคุก" 11 ม.ค.คาดใช้เกณฑ์ "อองซาน ซูจี"
+-  ‘김건희·대장동 50억 클럽 특검법' 정부 이송…민주 "尹 거부권 행사 포기하라"
+-  Bundesliga: 1. FC Köln bestätigt: Timo Schultz neuer Cheftrainer
+-  首秀曾摘2金1银 谷爱凌再征世界极限运动会
+-  David Beckham issues 'gutted' message days after honour snub as he's seen at UK home
+-  Oliebollenactie Hartekind 2023 een succes
+-  Yılmaz Tunç'tan Can Atalay açıklaması! Kesinleşmiş hüküm şu an TBMM'de
+-  TheraVet : retours positifs dans l'ostéosarcome canin
+-  Zbog respiratornih infekcija ograničene posjete u splitskom KBC-u: Veliki porast pacijenata na hitnom prijemu!
+-  Diyarbakır'da Kazıda 54 Çocuk Mezarı Bulundu
+-  Samsung Galaxy S24 Series: Latest News, Rumors And Everything We Know So Far
+-  Очередь легкового транспорта на выезд из Беларуси выросла в 2,4 раза за сутки
+-  fanatik.ro: Proprietara terenului pe care s-a construit "Ferma Dacilor" a dat în judecată o mănăstire. Motivul pentru care apropiata lui Cornel Dinicu a chemat-o în instanță
+-  Silvija iz 'Života na vagi' otkrila što joj Mislav V. često govori i priznala: 'Najviše me brine što će njegovi roditelji reći na mene'
+-  Investigation after two cows reported missing from Peebles farm
+-  Tom Sandoval Scolded by PETA for Posing with Tiger at Thailand Zoo
+-  Gypsy Rose Blanchard Gets Support from Munchausen Syndrome Org
+-  "سيكون رد غير عادي"... خواجة: نصرالله تعمّد أن يكون غامضاً!
+-  El Real Madrid es campeón de invierno junto a un Girona que peleará el título
+-  Nokia tecknar avtal med smartphonetillverkare
+-  Ex-Sierra Leone President, Koroma arrives in Nigeria on political asylum
+-  Gefahrlos radeln zwischen Wien und Raasdorf
