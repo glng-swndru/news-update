@@ -1,11 +1,11 @@
 # Latest News
--  С кем готов договариваться Путин
--  En 2023, 14.535 jeux sont sortis sur Steam, un record
--  মুরাদের সমর্থকদের ওপর নৌকার সমর্থকদের হামলা, আহত ১০
--  ব্যারিস্টার জন যোগ্য পিতার যোগ্য সন্তান: সুষ্মিতা
--  OL Groupe : prête Tino Kadewere au FC Nantes
--  Solta o som!
--  Argita Malltezi në krye të protestave të Rithemelimit: Qytetarët poshtë pallatit të Berishës dalin për dinjitetin e tyre
--  Kızıldeniz'de tansiyon düşmüyor... Yemen'den patlayıcı yüklü bot fırlatıldı
--  İsrail'de yargının soykırım sessizliği tartışılıyor... 'Kışkırtıcılar'a dava açılması çağrısı
--  Görsel zeka testi: 8 saniyede 311 kişiden 3'ü başarılı oldu! Zekiler bile 7 kediyi bulamadı
+-  Mittelsachsens Schiedsrichter dürfen diesmal jubeln
+-  DHB-Team dank Wolff mit Zittersieg gegen Portugal
+-  Gislason überrascht von Pekeler-Rücktritt
+-  "Provokačné vojenské aktivity". Čína i USA usporiadali v Juhočínskom mori vojenské cvičenia naraz
+-  Delcy Rodríguez: Guyana viola el derecho internacional para favorecer a la ExxonMobil
+-  Samsung to Unveil New Galaxy S24 Smartphones With Enhanced AI on January 17
+-  Szinte hihetetlen: 30 éve nem beszéltek egymással az egykori magyar sztárpár tagjai - válásuk után csak most békültek ki
+-  K bombovému útoku v Iráne sa prihlásil Islamský štát: Vyžiadal si desiatky obetí
+-  ‘Siento mucha motivación’, dice Gustavo Quinteros en presentación como técnico de Vélez Sarsfield
+-  LP-184 by Lantern Pharma for Prostate Cancer: Likelihood of Approval
