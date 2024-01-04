@@ -1,11 +1,11 @@
 # Latest News
--  Isro Arm Teams Up With Elon Musk’s SpaceX For Satellite Launch
--  Apple Settles Lawsuit Alleging Complicity In Gift Card Scam
--  Bajaj Finance's Q3 Update Shows AUM Growth Surpassing Sept's 15-Quarter High
--  Jio Financial Seeks New SEBI License For Mutual Funds
--  IT Industry Veteran CP Gurnani Joins upGrad Board
--  강민수 서울지방국세청장, 새해 맞아 현충원 참배
--  임플란트 시술 받은 50대 女, 일주일째 의식불명…"평소 건강했는데"
--  [인사] 관세청 인사 전보
--  尹대통령 quot;공매도, 부작용 해소될 때까지 계속 금지quot;
--  부동산PF에 흔들리는 건설업hellip;quot;태영 다음은 롯데건설?quot;
+-  News24 Business | Lululemon founder: Brand not for 'certain customers', women in its ads 'not inspirational'
+-  '나솔사계' 데프콘, "진정한 연애 멀티버스 열린다"
+-  KIA, 김선빈과 동행 이어간다… 3년 총액 30억원 계약
+-  남양유업, 60년 오너 경영 마침표…"새 주인 한앤코"
+-  폴바셋, '딸기 시즌 메뉴' 출시 한달 만에 37만 잔 판매
+-  NAF Personnel Get Accident Insurance Policy
+-  Sergio Perez kuuman siirtohuhun keskellä
+-  Mögliche Deglobalisierung: WTO-Chefökonom sieht Welt an einem Scheideweg
+-  Ladri al plesso "Verga" di Fontanelle: rubati pc, tablet e materiale elettronico
+-  Nuovo allarme drone al carcere "Di Lorenzo": accorrono polizia e carabinieri
