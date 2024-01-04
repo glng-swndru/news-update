@@ -1,11 +1,11 @@
 # Latest News
--  Rakibine sayı vermedi! Survivor'da düelloyu kim kazandı? 3 Ocak 2024 Survivor'da yaşananlar
--  2023시즌 K리그 연봉 공개… 국내 연봉킹은 울산 김영권
--  알리익스프레스, 강원동계청소년올림픽과 파트너십…'뭉초' 독점 판매
--  Shearer: “Liverpool sẽ tạo khoảng cách với nhóm bám đuổi”
--  Byron Castillo jugará en Peñarol de Uruguay, en medio de la polémica por la sanción del TAS
--  McIlroy wants LIV Golf like cricket’s Indian Premier League
--  Djokovic beaten by De Minaur at United Cup
--  매일탑리더스 아카데미 6기 정기 월례회
--  매일신문사 '국립공원 팔공산 영상으로 만나다' 영상 선보여
--  '모두가 문화생활을 즐길 수 있길' 대구섬유박물관, 점자리플릿, 시·청각장애인 전용 컨텐츠 개발
+-  पकड़ी गई आरोपी लड़की ने स्कूल काउंसलर को मार्च 2023 में अपने साथ हुए बलात्कार के बारे में बताया
+-  MobiKwik Eyes Rs 880 Cr In Fresh IPO Attempt
+-  Vedanta Resources Secures Consent For Bond Restructuring
+-  Wipro's Legal Battle With Former CFO Jatin Dalal Heads To Arbitration
+-  Outlets Retailing E20 Fuel Will Cover India By 2025: Hardeep Puri
+-  Thursday Market Opening : Adani Stocks In Focus, RVNL, IOC, ITC To Rule The Day
+-  النفط يرتفع مع زيادة المخاوف حيال إمدادات الشرق الأوسط
+-  이재명 대표 서울대병원 집도의 치료경과 브리핑
+-  서울대병원 의료진, 이재명 대표 치료 경과 브리핑
+-  이재명 대표 수술 집도의 브리핑
