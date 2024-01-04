@@ -1,51 +1,51 @@
 # Latest News
--  МИБ тузилмасида Мониторинг маркази ташкил этилади
--  Ер тўғрисидаги қонунчилик такомиллаштирилиши муносабати билан Ҳукуматнинг айрим қарорларига ўзгартиришлар киритилади
--  Сувдан фойдаланиш самарадорлигини ошириш чоралари кўриб чиқилди
--  Ёшларни ватанпарвар этиб тарбиялашда мустаҳкам ҳуқуқий асос яратилди
--  Ўзбекистон-Япония: таълимдаги самарали ҳамкорлик
--  Гиёҳвандлик контрабандаси билан шуғулланган шахс ушланди
--  Japonya'da deprem para politikasını etkileyecek
--  Bugünkü maçlar 4 Ocak 2024... Bu akşam hangi maçlar var, hangi kanalda?
--  Ancelotti'nin Arda Güler'e söylediği sözler ortaya çıktı!
--  Exprezident Schuster slávi okrúhlych 90 rokov. Zablahoželali mu premiér Fico aj prezidentka (foto)
--  Fenerbahçe'de sevindiren gelişme! Rodrigo Becao çalışmalara başladı
--  TBMM Başkanı Kurtulmuş'tan İran'a teröre karşı işbirliği çağrısı
--  Kırmızı ışıkta duran okul servisi içindeki öğrencilerle birlikte kaçırıldı
--  İşgalci İsrail'in çekiciliği zayıfladı! Artık isteksiz davranıyorlar
--  Cumhurbaşkanı Erdoğan, inşasında sona gelinen AK Parti konferans salonunu ziyaret ediyor
--  Vanlı ailelerin evlat nöbeti kararlılıkla sürüyor
--  Askerliği zorunlu hale getirmek için düğmeye bastılar
--  İstanbul'da yağışlar etkisini gösterdi baraj doluluk oranları arttı
--  İYİ Parti'de İmamoğlu pişmanlığı: Keşke ona oy vermeseydik
--  How to level up fast in The Finals: Best XP farming methods
--  Huijsen tra Roma e Frosinone: la decisione di Allegri per Juve-Salernitana
--  Darts-WM: Das Ausscheiden von Michael van Gerwen im Viertelfinale ist die Quittung für seine Arroganz
--  Triển khai phương án mới cứu tàu hàng 15.000 tấn mắc cạn ở Dung Quất
--  Khán giả TP.HCM và một đêm chờ đợi thời khắc khai xuân bản lĩnh
--  Điểm check-in mới toanh của người trẻ Sài Thành
--  Festival hoa kiểng Sa Đéc- Cú hích cho du lịch Đồng Tháp
--  Phát hiện điểm gì thú vị khi nhìn lại VN-Index quý 1 ròng rã 10 năm qua
--  HLV Philippe Troussier: 'Vì tôi mà nhiều người không ủng hộ đội tuyển Việt Nam'
--  Um diese Menschen wird getrauert
--  پشاور، خواجہ سراﺅں کیلئے اسمبلیوں میں نشست کیلئے کیس کی سماعت
--  Passar trote no Pará pode dar multa de até R$ 10 mil; lei está em vigor
--  Delhi Police arrest wanted Hizbul Mujahideen operative Javaid Mattoo
--  NeuroZoom Reviews 2024 (Honest Customer Warning Exposed) on Neuro Zoom
--  MD ACV Gummies NZ and Australia | Shocking Review About MD ACV keto Gummies
--  Bioheal CBD Gummies Reviews (Bio Heal CBD Gummies for Diabetes)
--  Vorbereitungen für den Kirtag laufen auf Hochtouren
--  Newlyweds Ira Khan and Nupur Shikhare drop their first selfie post-marriage
--  Manoj Bajpayee lauds Killer Soup co-star Konkona Sen Sharma
--  `Indian Superman`; Netizens go gaga over Aamir Khan`s son Junaid Khan
--  Margarita de Dinamarca da su último paseo en carruaje por Copenhague como reina
--  El precio de los carburantes cierra 2023 estabilizado y lejos de los máximos del año
--  Los niños amputados de Gaza corren más riesgos sin atención especializada
--  Walgreens Boots supera por 0,03$ las previsiones de BPA en el primer trimestre del año
--  Un Nadal implacable se mete en cuartos de final en Brisbane
--  España cuenta con más de 300 empresas centenarias
--  Terremoto en Japón: Carrera contrarreloj para encontrar supervivientes
--  Yvonne Woelke wehrt sich gegen die Vorwürfe von Djamila Rowe
--  Berisha ‘ligjëron’ çdo ditë nga dritarja, Balla: E papranueshme! “Partizani”, korrupsion i pastër!
--  Hochwasser: Kaum noch Regen ab Samstag – Wintereinbruch sorgt für neue Probleme
--  Gran Hermano arrancó mal: sancionaron a Nicolás por romper una regla básica
+-  News24 Business | Liquor licence gremlins thwart Takealot's festive booze sales
+-  India level Test series despite Markram's herculean effort
+-  Court grants PioTrans interdict against striking Rea Vaya workers
+-  Four Iran-backed militia fighters killed in Baghdad drone strike –sources
+-  Chelsea vs Preston: FA Cup prediction, kick-off time, TV, live stream, team news, h2h results, odds
+-  Rage Against the Machine drummer says band won’t play live again
+-  Two Reckitt baby formula powders recalled due to fears babies could develop sepsis or meningitis
+-  Empty RidgeView tower increases in assessed value, appeal filed
+-  Education of algae as renewable energy has potential to boost S’wak’s devt
+-  Doomed Japan plane on third quake mission when runway disaster hit
+-  Ruthless Nadal storms into Brisbane quarters
+-  Recipes for success: Chef Alexandros Negkro Tsatsaronis offers advice and a tasty chocolate orange cake recipe
+-  US to send top diplomats to Middle East as regional tensions spread
+-  Syngas Production Cost Analysis Report 2024: Production Process, Raw Materials Requirement and Plant Capital Cost
+-  SpaceX illegally fired workers critical of Elon Musk
+-  PM Kishida Pledges Full Government Support for Earthquake-Hit Region
+-  Luke Littler given an incredible offer by Jeremy Clarkson – but on one condition
+-  Magnus Cort to play 'bigger role' at Uno-X Mobility with Tour de France stage a target
+-  Strasbourg in fight to add striker Milos Lukovic into Chelsea club network
+-  10 Exciting Series and Films to Stream on Netflix in January 2024
+-  Fireworks enthusiasts say they are fed up with rioters, antisocial behavior
+-  Exclusive: Crystal Palace, Fulham and third club monitoring Roberto Firmino ahead of possible Premier League return
+-  'A blow' - Chris Sutton predicts result of Everton FA Cup clash v Crystal Palace
+-  Orcas spotted hunting gray whale, dolphins off California coast — seventh sighting since December
+-  Paris hotels triple prices for Olympics opening night, study shows
+-  Shillong Teer Result TODAY 04.01.2024 (OUT) First And Second Round Lottery Result
+-  Sterling surges on better-than-expected PMI, consumer credit
+-  Delhi Police Nab Hizbul Mujahideen Terrorist With Rs 5 Lakh Bounty Ahead Of 26th January
+-  Steam and Hydrogen Peroxide Biological Indicators Market Is Expected To See Huge Growth Globally By 2032
+-  The Bull: Here’s what Salman Khan’s new film with Karan Johar is about
+-  Rishi drops hint when the general election could take place this year
+-  Apple stock takes another hit, as Piper Sandler downgrades to neutral
+-  UK PM Sunak says that there will be no election this spring | Forexlive
+-  Potassium Iodide Production Cost Analysis Report 2024: Price Trends, Raw Materials Costs and Profit Margins | Syndicated Analytics
+-  Indian sports news wrap, January 4
+-  Rishi Sunak says ‘working assumption’ is general election in second half of 2024
+-  Mickey Mouse horror films announced as Disney copyright expires
+-  Best Samsung tablet deals: Get an Android tablet from $99
+-  Johnny Manziel Gives Honest Reaction When Compared to Prime CFB Lamar Jackson, Tim Tebow and Cam Newton
+-  경기도, 기회발전특구 지정 신청 위한 실무회의 개최
+-  오병권 경기도 행정1부지사, 원룸텔 화재 예방 상황 점검 나서
+-  경기도, 2023년 초미세먼지 '좋음' 150일… 전년 대비 16일 감소
+-  민주, 이재명 피습 사건에 '총선 일정표' 일부 차질 불가피
+-  경기도, 지적측량 자료조사 온라인 서비스 확대 시행
+-  배달특급, ESG 경영 선도…지난해 18만건 다회용기 사용
+-  경기도, 지방하천 498곳 침수피해방지대책 수립
+-  경기도, 권역형 환경보건센터 유치
+-  '경기공유서비스' 행안부 지자체 평가 우수사례 분야 1위… 장관상 수상
+-  [총선톡톡] 백군기 "용인·처인 발전 위해 헌신" - 윤재복 "국가 반도체 교육청 건립"
+-  Toll in deadliest Russian strike on Kyiv rises to 32
