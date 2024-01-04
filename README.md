@@ -1,51 +1,51 @@
 # Latest News
--  Trafficked Bauchi children: Gov Bala urges against ethnoreligious colouration
--  Юсупова Хафиза Фуркат кизининг тиббиёт фанлари бўйича фалсафа доктори (PhD) диссертацияси ҳимояси ҳақида эълон
--  Тўйчиев Олимжон Алижоновичнинг техника фанлари доктори (DSc) диссертация иши ҳимояси тўғрисида
--  Адлия вазирлиги: қонунбузилишини бартараф этиш бўйича қарийб 56 минг тақдимнома киритилди
--  토트넘에 닥친 두 번째 위기! 이번엔 손흥민이 없다...어떻게 극복할 것인가
--  Karjalaisen kesätyöhaku alkaa maanantaina – Katso ohjeet hakemiseen
--  Ancelotti adelt Rüdiger: „Auf höchstem Niveau“
--  Dax stabil nach sehr schwachem Vortag
--  Birgunj Police seize 3 trucks with over Rs 20M goods, exceeding bill value
--  Nepal, India sign long-term agreement on electricity export
--  '공공기관 2차 이전' 연내 불투명…내년 이후로 미뤄질 듯
--  이재명, 물만 먹다 미음 식사 시작…"쉰목소리로 느릿느릿 말하는 상태"
--  재정난 겪는 경영위기대학…구조개선 계획 있으면 국고 지원 받는다
--  부실 우려 부동산 PF, LH가 매입…다주택자에게 '세컨드 홈' 허용
--  대구문화예술회관 신년 음악회…빈 소년 합창단: ON STAGE
--  "도둑 잡아라"…차량 절도범 추격해 붙잡은 달서구청 공무원
--  Stiže zima: Od idućeg tjedna minusi i snijeg
--  "בשורה לתעשיית הפודטק": הישג אדיר לחברת Imagindairy הישראלית
--  "סגן הרמטכ"ל אומר 'זוזו' ויורה לבית עם המחבלים": הלוחמים שמצאו עצמם בקרב בלב עזה לצד האלוף ברעם
--  פמלה אנדרסון קוטפת קמפיין חדש – וככה עוד לא ראיתם אותה
--  [인사] 울릉군
--  Weiter Regen erwartet: Unwetterwarnungen für Rheinland-Pfalz
--  'Why did he leave her..': Aamir Khan kisses ex-wife Kiran at daughter Ira Khan's wedding with Nupur Shikhare [reactions]
--  Rosną stawki morskich przewozów kontenerowych
--  Chiny wróciły na pozycję największego na świecie importera LNG
--  এই ডামি নির্বাচন সংসদে জনগণের প্রতিনিধিত্ব করবে না: ১২ দলীয় জোট
--  Handeln Sie rasch, wenn Ihre Miete steigt!
--  Amel Nafti, ancienne secrétaire d’Etat dans le gouvernement de Habib Essid, est décédée
--  Borsa güne yükselişle başladı
--  Bingöl'de operasyon: PKK'lı teröristlerin 8 katlı mağarası imha edildi
--  Ambalajdaki fiyat oyunu: Asetonla siliyorlar!
--  Vakit Nakittir Atasözünün Anlamı Nedir? Kısaca Açıklaması Ve Örnek Cümle…
--  Alperen Şengün'den Brooklyn potasına 30 sayı
--  Türkiye'nin en fazla ihracat yapan 3 ili belli oldu
--  Sport | Warner's final Test fling ends disappointingly on rain-hit day in Sydney Test
--  News24 | Both Hezbollah and Israel appear to signal no desire for spread of Gaza war
--  Кой е цветът на 2024 година и как да го носите
--  델테크놀로지스, “2024년은 AI기술이 실제 산업 현장에 적용될 것”
--  새롭게 등장한 '사이버특보', 안보 체계 강화할 키맨 될까
--  [DD퇴근길] 현대기아차 ERP, AWS에서 가동…네이버, 3인대표 체제 개편
--  금융보안원, AI 혁신·보안 잡는다…‘AI혁신실’ 새롭게 등장
--  매스웍스, ‘2023 세종 AI 챌린지’ 후원
--  బైజూస్ ఆఫీసు వద్ద భారీ ఉద్రిక్తత..
--  İstanbul Havalimanı'nın güvenlik hizmetlerinde yeni dönem
--  Pedihok'23, BUÜ ev sahipliğinde gerçekleştirildi
--  Süper Lig'de 19. hafta maçları başlıyor
--  Bursa Valiliği'nden 2023 yıl sonu sergisi
--  İstanbul Taksiciler Esnaf Odası Başkanı Aksu: İndi-bindi 120 lira olmalı
--  Uludağ Üniversitesi'nde başarılı sporcular ödüllendirildi
--  Yahudiler, Masonlar, dış güçler ve siyasette ahlak
+-  Việt Á trích hoa hồng đến 40%, giám đốc CDC Bắc Giang nhận 'cảm ơn' 2 sổ tiết kiệm 5 tỉ
+-  Tài xế dương tính với ma túy đá, tông ngã cảnh sát giao thông
+-  Tuyển Việt Nam có 44,28% cơ hội giành vé đi tiếp ở Asian Cup 2023
+-  Đồng loạt giảm giá tất cả mặt hàng xăng dầu
+-  Bí thư Hà Nội: Chọn phương án rẻ nhất, minh bạch nhất để làm đường vành đai 4
+-  Cơ quan du lịch Nhật Bản trấn an du khách Việt sau động đất
+-  Ai đứng sau siêu dự án Sài Gòn Đại Ninh vụ chủ tịch Lâm Đồng bị khởi tố?
+-  WESET English Center hợp tác cùng Hội Sinh viên Việt Nam tại Úc
+-  Lớp học buổi tối thu hút giới trẻ Trung Quốc
+-  Điều tra vụ người đàn ông lượm ve chai gặp nạn tử vong ở Củ Chi
+-  עכשיו שהיא אישה חופשיה: האם בריטני ספירס תחזור לעשות מוזיקה?
+-  סופי מי? ג'ו ג'ונאס יוצא עם דוגמנית הורסת
+-  הפועל ירושלים הודיעה על התרת חוזהו של אלכסנדר דז'יקיץ'
+-  10 Surprising Things about Edgar Allan Poe
+-  10 Most Persistent Health Myths and Why They’re False
+-  Celebra el Poder de la Mente en el día Mundial de la Hipnosis
+-  La plantilla del bus urbano de Zaragoza vota este jueves si hace huelga el fin de semana de Reyes
+-  Rauchfangkehrer besuchten den Bezirkshauptmann
+-  Cursus DigiD in Rozet
+-  Die KISTA bietet heuer ein dreistündiges Faschings-Feuerwerk
+-  ABD'de maske uygulaması geri geldi
+-  FOTOLAJM/ Papa Françesku me plis shqiptar me shqiponjën dykrenare
+-  Arsenal complain to PGMOL and ask for key player to be given more protection
+-  Theo ist das Mödlinger Neujahrsbaby 2024
+-  Revolutionizing Displays: RT-RK and iWedia Introduce AndDesk, a Groundbreaking Smart Monitor OS Transforming Traditional Screens into Versatile Smart Devices
+-  Make History with Us: Join Jumpshot in Shaping the Singapore 3x3 Scene
+-  ΤΟΠΟΘΕΤΗΣΗ: «Τεράστιο και σοβαρότατο λάθος»
+-  İran Cumhurbaşkanı Reisi bombalı saldırının ardından konuştu: Bedel ödeyecekler
+-  [기고] 소나무재선충병 대확산, 방제 무용론 대안 없나
+-  '댓글 국적 표시제' 도입될까?…근거 법안 처리는 답보
+-  대구경북 대학 수시모집률 지난해보다 선방…지역 내 편차도 극심
+-  대구 달서구 상인동서 산불…43분만에 꺼져
+-  Distribusi Logistik Pemilu di Sulsel Terkendala Cuaca
+-  Unterirdischer Jahresabschluss in Freistadt
+-  경산시, 제10기 민원안내 자원봉사자 위촉식 개최
+-  서산시, 공직자 8명 사무관으로 첫발 내디뎌
+-  한화에어로, 미군과 다목적 무인차량 '아리온스멧' 성능시험
+-  SK 최태원, 하이닉스서 새해 첫 현장경영…'반도체 사업' 점검
+-  태영그룹 "태영인더스트리 매각 대금 전액 태영건설 지원"
+-  la Pura in Gars: Neuer Eigentümer
+-  Рух вантажівок у "Шегинях" знову заблоковано - Держприкордонслужба
+-  Araç sahipleri bu geceye dikkat: İndirim geliyor
+-  تاحیات نااہلی کیس؛ عدالتی معاون ریما عمر سپریم کورٹ نہ آ سکیں، جواب بھجوا دیا
+-  Kirman Valisi: Patlamalar kontrol noktasının dışında gerçekleşti
+-  Yerel seçim için süreç başladı: Seçmen listeleri askıya çıkıyor
+-  En fazla ihracat yapılan 3 il belli oldu
+-  Gazze'deki hükümet: İsrail bölgeyi 65 bin ton patlayıcıyla vurdu
+-  Royal Enfield Hunter 350 Gets Two New Colour Options
+-  „Strom und Gas werden erst teurer und dann vielleicht billiger“ so der Chef der Münchner Stadtwerke
+-  מסתפק במועט: החלוץ שירד משכר שנתי של 7 מיליון לאירו אחד בחודש
