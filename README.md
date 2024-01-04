@@ -1,51 +1,51 @@
 # Latest News
--  "PF 손실흡수능력 충분"… 태영건설 사태에 놀란 캐피탈업계, 우려 차단
--  2024년 첫 조직 개편 나선 네이버, COO와 정책·RM 대표직 신설
--  대구 달성군 가창면 대법 서원사, 연말연시 사랑의 떡국떡·백미 기부
--  부산교육청, 부산형 맞춤형 교육·돌봄 서비스 제공 ‘잰걸음’
--  [인사]경북도의회
--  성주군 영진토목 이웃사랑성금 1천만원
--  고령군 경희숯불가든 교육발전기금 등 기탁
--  울진, 새해 시작을 빈 필하모니로 연다
--  '조국 아들 성희롱' 주장한 가세연 운영진 검찰 송치…조국 "너무 오래 걸려"
--  尹 대통령 "공매도 선거 끝나면 푼다? 부작용 해소 안되면 계속 금지"
--  Sri Lanka Slashes Import Tax to Tackle Keeri Samba Rice Shortage
--  Phát "cuồng" vì đồ ngọt trong dịp lễ Tết: Bác sĩ chỉ cách ăn ngon mà vẫn khoẻ
--  Ông lão xuất hiện trong lớp với vẻ ngoài nhếch nhác, sinh viên tưởng là người dọn rác: Biết danh tính thật ai cũng "sốc"
--  Châu Bùi ẩn ý chuyện kết hôn với Binz trong năm 2024?
--  Có nên mua TV trưng bày giá rẻ?
--  'Culemborgers in gesprek' in bibliotheek Culemborg
--  Permis à 17 ans: "On espère qu’il n’y aura pas une augmentation des décès de jeunes sur les routes"
--  Posebnosti volilnega leta v Ameriki
--  "Le loup a naturellement peur de l’homme": la réaction d'un spécialiste à la supposée attaque dans le Var
--  বৃহত্তম বন্দি বিনিময় করল রাশিয়া-ইউক্রেন
--  ফরিদপুর-১: স্বতন্ত্র প্রার্থীর সমর্থকদের ওপর নৌকার সমর্থকদের হামলা, আহত ৩
--  KTN journalist Jimmy Mbogoh leaves the station
--  हेल्थ टिप्स: चाय बनाते और पीते समय की जाने वाली ये गलतियां चाय को बना देती हैं सेहत के लिए हानिकारक
--  Darts-WM 2024 Ergebnisse: "Cool Hand Luke" Humphries bezwingt Luke "The Nuke" Littler und ist PDC-Weltmeister!
--  Nejvyšší „bambus“ světa bere dech i po 20 letech. Je symbolem celé země
--  Zima će pokazati zube: Stižu olujan vjetar i snijeg, ne planirajte putovanja
--  طرح الإصدار الأول لعام 2024 من سندات الخزينة بقيمة 150 مليون دينار
--  التربية: بدء تصحيح الأسئلة المقالية لمبحث الرياضيات التكميلي اليوم
--  حادث صدم بين 4 مركبات في تلاع العلي
--  بلينكن يبدأ جولة شرق أوسطية جديدة
--  Tri velike prijetnje: Ove godine umjetna inteligencija donosi stravične ishode za čovječanstvo
--  매디슨의 못 말리는 '다트 사랑'...월드 다트 챔피언십 결승전에서 포착
--  울산 HD, 홍재석·최강민·최석현·김동욱·박상준 신인 5명 수혈... 이적 시장 포문
--  Szabó Simon tavaly júniusban titokban elvált feleségétől: bevallotta, ilyen kapcsolat alakult ki közte és Balogh Edina között
--  Seyir halinde ilerleyen tırın tehlikeli yolculuğu
--  İşgalci İsrail saldırılarını sürdürüyor! Bir Filistinli hayatını kaybetti
--  Osmaniye'de yasa dışı avcılığa karşı önlem!
--  MİT ve Emniyet enselemişti... Sağlık kontrolü için hastaneye götürüldüler
--  Seyir halinde ilerleyen araç alev alarak yandı
--  Galatasaray'da Hakim Ziyech krizi! Eski takımına dönmek istiyor
--  Spie : acquisition de JD Euroconfort
--  Fotoğraf başı 100 dolar! Mossad'a yönelik operasyonda yeni detaylara ulaşıldı
--  '이재명 기습' 피의자, 20분 만에 영장심사 종료
--  Dave The Diver Celebrates 3 Million Sales
--  안동소주, 도지사 품질인증기준 마련으로 세계화 시동
--  «Каждая из команд заслужила победу». В Казахстане нашли объяснение камбэку «Барыса» в КХЛ
--  Hardik Pandya’s Truth: Why Pandya misses out crucial series?
--  اكتشاف 66 نوعاً جديداً من النباتات في الصين خلال 2023
--  مسيرة إسرائيلية تقصف بلدة يارون بجنوب لبنان
--  طه الدسوقى : دورى مختلف فى مسلسل حالة خاصة وبتمنى يعجب الجمهور
+-  Textile exports increase by 3% in December
+-  Noah en Julia populairste kindernamen, Riley meest genderneutraal
+-  Wohnprojekt: Nach Café Insel plant Euskirchener Caritas nun eine Demenz-WG in Weilerswist
+-  Ukrajina i Rusija razmijenile stotine ratnih zarobljenika
+-  No Plan To Increase Petrol Price To N1,200/Litre – NNPC
+-  Mehrwertsteuer: Wie Menschen in Siegburg auf die gestiegenen Preise in der Gastronomie reagieren
+-  Melis Sezen'e 27 yaş sürprizi
+-  Zulhas Pastikan DMO Minyak Goreng Bakal Dilanjutkan, Ini Pertimbangannya
+-  오병권 부지사, 안양 원룸텔 화재예방 대응상황 현장점검
+-  Galatasaray'da Renato Sanches hamlesi
+-  Jungfraubahn-Gruppe erreicht wieder Millionen-Marke
+-  Transport minister says negligent contractor behind Rawang crane collapse, resulted in losses of RM2.4m to KTMB
+-  Roma ikinci yarıda açıldı: İtalya Kupası'nda çeyrek finale çıktı!
+-  Trabzonspor'dan Elneny ve Kampl açıklaması
+-  ForFarmers N.V.: ForFarmers completes acquisition of Piast Pasze Sp. z.o.o.
+-  Führerschein Lindlarerin wird für den freiwilligen Verzicht angefeindet
+-  Transaction in Own Shares
+-  Prinz Mally I. im Interview: Für mich ist der Leverkusener Karneval meine Heimatstadt
+-  BGHL (EUR): NAV(s)
+-  Valverde augura un Sevilla en crecimiento con Quique
+-  Đặt con người làm trung tâm, Duy Tân khẳng định vị trí hàng đầu ngành nhựa
+-  Das muss man alles über Königin Mary von Dänemark wissen!
+-  Bundesregierung will Blinker für Fahrräder erlauben
+-  Blinken ide na Bliski istok dok rastu strahovi od proširenja sukoba
+-  Knicks’ Josh Hart makes comically bad pass into stands, jokes he can play in NFL
+-  Stotine odsječene nakon zemljotresa u Japanu u kojem je poginulo najmanje 78 ljudi
+-  Fenerbahçe, stoper ve orta saha transferi için gözünü Balkanlar'a dikti!
+-  बृजभूषण के खिलाफ दर्ज यौन उत्पीड़न मामले में पेशी आज, पहलवानों की शिकायत पर नए सिरे से सुनवाई
+-  Kuraklık nedeniyle çekilen gölden geriye liman kalıntıları kaldı
+-  Tanguy Ndombele'nin yerine Jorginho! Galatasaray'da orta saha operasyonu
+-  Beyanname şekilleniyor! AK Parti çalışmalarında üst aşamaya geçti
+-  Batman'da 12 adrese eş zamanlı terör operasyonu
+-  На севере Израиля прозвучали сирены воздушной тревоги
+-  Yargıtay açıkladı, üye sayılarında düşüş: Dikkat çeken AKP ayrıntısı!
+-  Nardaranda keçmiş məhkumdan avtomat götürülüb
+-  লালমনিরহাট-৩ আসনে ত্রিমুখী লড়াই
+-  В Узбекистане пытались продать российскую медаль XIX века
+-  Çin'de hizmet faaliyetleri 5 ayın zirvesinde
+-  Google agrees to Rs 41,000 crore settlement in Chrome incognito mode lawsuit
+-  Galatasaray geçici çözümü buldu: Gelsin eski dostlar!
+-  Selena'nın o ismi meğer bir zamanların en ünlü çocuk yıldızıymış!
+-  BAGİS cihazı arızalanan balıkçı gemileriyle avcılık yapılamayacak
+-  Yargıtay'ın Can Atalay kararına tepki yağdı
+-  Inondations dans le Pas-de-Calais : Météo France maintient le département en vigilance rouge
+-  Nigerian Art Student Sets New Guinness World Painting Record
+-  Cara Bayar Bukalapak Lewat BRImo, Langkahnya Cukup Praktis
+-  İş Bankası Genel Müdürü Hakan Aran'dan yüksek faiz uyarısı!
+-  Tak Main-main, Daihatsu Curangi Hasil Tes Keselamatan Selama 30 Tahun
+-  Zenius Setop Operasi Usai 20 Tahun Berdiri, Ini Penyebabnya
+-  नासाले बीटीएसका तीन गीतलाई ‘चन्द्रमा मिसन’मा बजाउने
