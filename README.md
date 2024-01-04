@@ -1,11 +1,51 @@
 # Latest News
--  Ministra nega viagem de Gladson à China e caso vai parar no STF
--  Црвена Звезда му одржа лекција на Партизан во Евролигата
--  Scooter-Frontmann H.P. Baxxter heiratet im Sommer seine Freundin Sara
--  Juventus 'espeta' meia dúzia e fecha lote de apurados na Taça de Itália
--  Séville: l'énorme coup de gueule de Sergio Ramos contre un supporter
--  Sloba Vasić presadio bradu
--  The Bu Replanting and Coconut Training Workshop
--  ZVV Ede mag terugkijken op een prima organisatie Ede Stad zaalvoetbaltoernooi
--  Azerbaycan'dan Ermenistan'a barış sinyali
--  İsrail: Hamas'ın elinde halen 136 İsrailli esir var
+-  [CES 2024 관전포인트③] ‘가전의 전환’…마음 헤아리고 살림 돕는 AI
+-  "חפרתי בור באדמה והפכתי אותו לבית מערה נעים - רק בעלי עיניים חדות יזהו אותו"
+-  יעזוב את מכבי חיפה? ברסט וגרנאדה מעוניינות בפייר קורנו
+-  Grčka: Pop i popadija osumnjičeni za pranje novca i pronevjeru
+-  "התחתנתי עם אחותי החורגת אחרי לילה של תשוקה - זה הרגיש לא נכון אבל אנחנו מאושרים"
+-  Naučnici otkrili šta se krije iza opsednutosti teorijama zavjere
+-  David Warner reveals his beloved Baggy Green cap has been returned - but doesn't disclose one very important piece of information
+-  Triunfo con factura médica para Villares y José Ángel
+-  Empoli Milan, Baldanzi dal primo minuto? Le possibili scelte di Andreazzoli
+-  Yoğurt mayalarken dikkat! Bunu bilmediğiniz için olmuyormuş! En doğrusu bu şekilde yapılıyor
+-  Imogen Thomas reveals her mother Janet has been diagnosed with motor neurone disease and admits her health battle has left her 'heartbroken and in disbelief'
+-  Sport: „Gen Z“, „Millennials“ und „Boomer“ joggen und radeln so unterschiedlich
+-  Das sagen Fans zum „Forsthaus Rampensau“
+-  Ordu, Artvin, Rize, Giresunlular bu çiçeği gördüğünüz yerde kaçın! Yılandan daha zehirli
+-  NYC Mayor Eric Adams sues Texas charter bus companies for $708 million over costs of migrants transported to Big Apple - in effort to HALT Gov. Greg Abbott bussing them from Lone Star state
+-  Virginia town shuts down TikToker's tunnel building project: Viral star racked up millions of views excavating chamber 22ft below her own home
+-  Fans and pundits slam 'DISGRACEFUL' red card shown to Dominic Calvert-Lewin in FA Cup tie with Crystal Palace... as Jamie O'Hara says 'our game has been ruined by VAR'
+-  Em poucas horas, chuva em Campo Grande deixa rastros de destruição
+-  Bayern Munich are keen to sign Trevoh Chalobah on loan with Chelsea willing to let defender go in January as they look to raise funds to comply with FFP rules
+-  ¿Se quedará fuera de la contienda? TEPJF niega prórroga a Verástegui para recolección de firmas
+-  'I want everyone to know the b****** is gone': Father says he'll frame letter confirming killer who snatched his two-year-old daughter from her bed before murdering her has died in jail
+-  انطلاق بطولة التقاط الأوتاد بمحافظة بقيق بمشاركة 60 فارساً وفارسة
+-  Tucak: Nakon dugo vremena pala je Španjolska, ali nismo ništa napravili
+-  Intercontinental Exchange registra un aumento de los volúmenes de negociación para 2023
+-  Tacha Encourages Women to "Date at Least Three Guys"
+-  El Salvador claims its murder rate has fallen from 495 in 2022 to 154 in 2023 amid strongman president's brutal crackdown on gangs
+-  Catalyst Pharmaceuticals lanza una oferta pública de acciones de 150 millones de dólares
+-  İşgalci İsrail, Filistin Kızılayı personelinin evini vurdu: 2 can kaybı
+-  Cumhurbaşkanı Yardımcısı Yılmaz'dan Ayla Algan için başsağlığı mesajı
+-  Barça'yı ikna eden 3 neden
+-  Kenan Yıldız yine sahnede! Juventus evinde coştu
+-  İsrail'den 90 gün sonra 'Aksa Tufanı' kararı
+-  İşgalci İsrail, Han Yunus'ta Filistin Kızılayını hedef aldı.... 3 günde 7 kişi katledildi
+-  ¡Atentos policías jubilados y prejubilados! Por aterrizar el recurso para pagarles en Guasave
+-  Diabetes-Anzeichen bei Typ 1: Was sind die Symptome?
+-  МО РФ сообщило о перехвате и уничтожении 36 украинских БПЛА над Крымом
+-  A ndikon mungesa e vitaminës D tek tensioni i lartë i gjakut?
+-  Juventus z Milikiem zmiażdżył klub Polaka. Co za demolka. I jaki gol! [WIDEO]
+-  Juventus z Milikiem zmiażdżył klub Polaka. Co za demolka. I jaki gol! [WIDEO]
+-  AK Parti Sözcüsü Çelik'ten Kelime-i Tevhid bayrağı taşıyan vatandaşa saldırıya tepki: Hem cahillik hem barbarlık
+-  Un policía mató de un balazo a un ladrón que quiso asaltarlo en la puerta de su casa
+-  أعضاء هيئة تدريس بجامعة حلوان يشاركون بالبرنامج التدريبي الحوكمة الرقمية للقيادات
+-  تقرير دولي: مطار القاهرة‎ ‎من أسرع 3 مطارات نموًا في العالم منذ 2019 ‏
+-  بعد ساعات.. انقطاع المياه عن مناطق في فيصل والهرم لمدة 12 ساعة
+-  منتخب مصر يواصل تدريبه الثالث استعدادا لأمم أفريقيا 2024.. صور
+-  من المنوفية.. مصرع زوجين وطفليهما في حادث مروع بليبيا
+-  بعد اغتيال أحد قيادييها.. فصائل عراقية تستهدف قاعدتين أمريكيتين بسوريا
+-  محمد صلاح يصل إلى مصر وينضم لمعسكر المنتخب في العاصمة الإدارية
+-  عميدة إعلام القاهرة ووكيلة الكلية تتفقد سير امتحانات الدراسات العليا.. صور
+-  حظك اليوم وتوقعات الأبراج 5-1: مكاسب مالية لهذا البرج.. حب ورومانسية لهؤلاء
