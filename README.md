@@ -1,11 +1,11 @@
 # Latest News
--  "Biseksüel Genlere" Sahip Erkeklerin Daha Çok Çocuğu Olduğu Ortaya Çıktı
--  II. Dünya Savaşı'nda Nazilerin Korkulu Rüyası Olan Sovyet Kadın Hava Birliği: Gece Cadıları
--  Pratapgarh News: कोतवाल साहब, मुझे जिंदा कर दो, भाइयों ने मार डाला
--  Македонски државјанин учествувал во сообраќајка во Албанија, двајца повредени
--  Fünf Monate nach Tod: Sandra Bullock verstreut Bryans Asche
--  جيش الاحتلال يعلن عن عدد جديد للأسرى في غزة
--  الاحتلال يشكل فرق تحقيق بإخفاقات 7 أكتوبر
--  Mayor Eric Adams sues 17 charter bus companies for $700 million for transporting migrants to NYC
--  Moradabad News: कटिंग से कांठ रोड हुई क्षतिग्रस्त, लोनिवि ने निर्माण के लिए जारी किया टेंडर
--  Here's why Hamilton residents can expect their annual water bill to go up by $90 this year
+-  Son dakika: Süper Loto çekilişi sonuçları belli oldu! 4 Ocak 2024 Süper Loto bilet sonucu sorgulama ekranı!
+-  Fenerbahçe, Maccabi Tel Aviv'i rahat geçti
+-  తల్లి, చెల్లికే జగన్‌ న్యాయం చేయలేదు
+-  Стејт департмент: САД „не гледаат акти на геноцид“ во Газа
+-  Comunidad china dona alimentos para personas de la tercera edad en Mérida
+-  Dois são presos com drogas e munições em Colíder
+-  Barbenheimer and jacked ticket sales gave big boost to Canadian box office in 2023
+-  الميادين: تجدد القصف المدفعي العنيف شرقي خان يونس ووسطها جنوبي قطاع غزة
+-  Канадского фигуриста Серенсена обвинили в изнасиловании
+-  Mavericks Home Game Sponsored by TORRAS Launches, Special Edition Ostand Phone Case Stand Captivates Fans
