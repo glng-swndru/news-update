@@ -1,11 +1,51 @@
 # Latest News
--  Австрија ќе им ги одзема автомобилите на оние кои возат брзо
--  رونالدو يشتري قصرا فاخرا في دولة عربية غير السعودية
--  Montbard. Nourredine Kassous, barbier et coiffeur, ouvre NK Barber
--  Venarey-Les Laumes. Énergies renouvelables : quel périmètre ont déterminé les élus ?
--  توزيع الدفعة (11) من صكوك التعويضات لـ (500) أسرة متضررة من الفيضانات بدرنة.
--  Pokemon Go Dazzling Dream event: Shiny Cutiefly debut, bonuses, more
--  Juventus Working On Overtaking Inter Milan In The Race For Ligue 1 Defender
--  VYPOČUJTE SI Pravdivý príbeh: Syna som spoznal až pred štyridsiatkou
--  Kanye West opäť provokuje "manželkou": Cez bradavky len dve šnúry a MIKRO nohavičky!
--  MIMORIADNE V jednom z bytov v Bratislave našli ženu bez známok života, na mieste je polícia
+-  Een jaar later: hoe gaat het nu met deze longcovidpatiënten? 'Wat ik heb, wens ik niemand toe'
+-  VS: Noord-Korea levert Rusland ballistische raketten
+-  מיקרוסופט, טסלה ואנבידיה בדרך לעקוף את אפל? הנתונים נחשפים
+-  נטע אלחמיסטר מגיבה על הדרמה הרפואית: זה מה שקרה לה בהיריון
+-  Rapport de la Cour des comptes / Graves dérapages constatés : »Des mécanismes de reddition de comptes plus robustes doivent être instaurés » (Analyste)
+-  Espanjalainen koripallosuuruus Rubio ilmoitti NBA-uran päättymisestä
+-  Programmet med Thomas Helmig var rørende. Men på et punkt tager heppekoret fejl
+-  כריס פרום יוביל מפגן רכיבה סולידרי למען החטופים: "מלא תקווה שזה יקרב את שובם הביתה"
+-  ¡Pilas! Así regirá el pico y placa en Pereira el viernes 5 de enero
+-  Estudiar en el extranjero: la clave de 4 de los hombres más ricos de Colombia
+-  نابل: متساكنو منطقة جبل الحداد بقربة يطالبون بتعبيد الطريق المؤدية لمنطقتهم وفك عزلتهم
+-  İsrail barbarlığı Nazileri aratmıyor... Günde 108 çocuk katledildi
+-  Bedavaya Mohamed Elneny transferi! Süper Lig'e geri dönüyor
+-  Ukrayna, Sivastopol yakınlarındaki Rus komuta merkezini hedef aldıklarını açıkladı
+-  Fred'e talip çıktı! Fenerbahçe'ye resmi teklif...
+-  Yüksek yargıdaki çelişki için net mesaj... "Çözüm yeni Anayasa"
+-  US condemns South Africa’s ‘meritless’ genocide case against Israel
+-  Weekend w lubelskich klubach
+-  UK mortgage rates are finally falling as homeowners hope for relief
+-  The OnePlus Buds Pro 2 are down to just $130 right now!
+-  Γ.ΠΕΤΡΑΚΗ: «Είδαμε θετικά στοιχεία, σε αυτά θα χτίσουμε»
+-  Vuelven a aparecer en las costas gallegas grandes cantidades de pellets plásticos
+-  القس رفعت فكرى عن عدد اليوم السابع بمناسبة عيد الميلاد: يدعم ملف المواطنة
+-  أخبار البورصة اليوم الخميس 4-1-2024
+-  أسعار الذهب تتراجع فى التعاملات المسائية بعد طرح شهادة بنكية بعائد 27%
+-  حصاد 2023.. تنفيذ 2000 مشروع متنوع داخل قرى حياة كريمة بأسوان
+-  حصاد الأقصر 2023.. إنجازات الهيئة القومية لمياه الشرب والصرف الصحى بالمحافظة
+-  شوارع وحدائق أسوان تتلالأ لاستقبال الأجانب والمصريين بالموسم الشتوى.. صور
+-  أكبر مصنع للرقائق الإلكترونية بالعالم يثير الجدل فى تايوان
+-  مصرع شخصين وإصابة آخر فى تفحم سيارة بطريق الزعفرانة- غارب
+-  المشدد 10 سنوات لسائق لحيازته هيروين فى الإسكندرية
+-  ماجدة موريس: اختيار مدينة الإنتاج لتتولى مسئولية تصوير الأفلام الأجنبية بمصر موفق
+-  Госдеп США: Вашингтон не будет оказывать такую же помощь Киеву, как раньше
+-  Επίθεση στην Πράγα: Φοιτητές και καθηγητές τίμησαν τη μνήμη των 14 θυμάτων
+-  Attacks: NEMA delivers relief materials to Plateau for victims
+-  Rumunija kupuje 200 raketa za sistem "patriot"
+-  Se confirmó la lesión de Alejo Véliz en el Tottenham, ¿cuánto tiempo estará inactivo?
+-  Titration Software Market Size & Trends To 2031
+-  微軟推出30年來最大更新 ‘Copilot’ 鍵 AI助手
+-  B.C. seeks input on helping disaster evacuees ahead of wildfire season
+-  Advierten que desregular las prepagas hará colapsar el sistema de salud pública
+-  UDAVALA SE DVA PUTA, PA OSTALA TEŠKO RAZOČARANA! Verica imala SPORAZUMNI razvod od 1000. MARAKA, a nakon ove drame rekla je KRAJ
+-  Ossements découverts à Limoges: le cadavre d'un homme sans tête
+-  Swarming Robots, DNA, and Bitcoin: The Wild List of Stuff Heading to the Moon Next Week
+-  Oregon man arrested for sexually assaulting and kidnapping Fresno girl, police say
+-  🎥 | Luke Littler slaat terug na kritiek op relatie: ‘Of iemand dat nu leuk vindt of niet’
+-  Atentos, conductores: así regirá el pico y placa en Bogotá el viernes 5 de diciembre
+-  Pak-Afghan ties, hopes and scopes
+-  Glynis Johns, most known for role in 'Mary Poppins,' dies at 100
+-  FATA integration and leaders’ legacy
