@@ -1,11 +1,51 @@
 # Latest News
--  Former clerk who denied gay couples marriage licenses is ordered to pay $260,000
--  PM Modi Goes Snorkelling In Lakshadweep, Recalls "Enriching Journey Of Learning & Growing"
--  India Continues To Remain The Third-largest Tech Startup Ecosystem Globally
--  מוריניו: "לא מאמין שהבעלים של רומא מדברים עם מאמנים מאחורי גבי"
--  הטרנדים, הסיכומים והתקווה: המשפיענים סוגרים שנה
--  "שקט מפלצת": בעלי גן בטבריה חשודים בהתעללות בפעוטות
--  NOVAK JE JUNAČKI IZDRŽAO SUĐENA DEŠAVANJA: Numerolog Miša Zomboran otkriva šta očekuje Đokovića u 2024. godini
--  Radnik iz Slovenije na bolovanju proveo 12 godina
--  Iran obećao osvetu nakon fatalnih eksplozija
--  Dačić: Očekuje nas turbulentni period oko RS i Kosova
+-  Юнайтед търси евтин нападател в Бундеслигата - Труд
+-  أجهزة منزلية تستهلك الكهرباء رغم إغلاقها.. إزاي تتجنب ارتفاع الفاتورة؟
+-  Chuyên gia dinh dưỡng: Hãy thiết lập ‘lá chắn kép’, tăng đề kháng, tăng cơ hội khoẻ mạnh cho bản thân
+-  Globetrotter Group steigert 2023 Umsatz um 15 Prozent
+-  Zwei Menschen sterben bei Brand in Wohnheim in Uster ZH
+-  Wohlfühlromane als Flucht vor Krisen 2023 am häufigsten gekauft
+-  Globetrotter Group steigert 2023 Umsatz um 15 Prozent
+-  رائحتها الزكية مضرة بالصحة.. مخاطر صحية مقلقة يمكن أن يسببها إشعال الشموع المعطرة في المنازل
+-  Navin Waqar talks about red flags in a relationship
+-  IHC restores 10-year disqualification for NAB convicts
+-  Orosz provokációt sejtenek Varsóban, miután megjelent egy robotrepülő a lengyel légtérben
+-  U Novom Sadu zapaljen automobil predsednika AKV Vladimira Beljanskog
+-  ششمین نشست کمیته‌ی مشترک هماهنگی میان افغانستان و پاکستان برگزار شد
+-  Ræddi jarð­hræringar á Reykja­nesi við Margréti Þór­hildi
+-  11-годишен подкара мерцедеса на дядо си, който "уволнява" полицаи и налита на бой
+-  Núria Rodríguez-Planas: "Debe imponerse la cuota del 50% de mujeres en los niveles directivos"
+-  Veldrijder Vincent Baestaens (34) kondigt afscheid aan
+-  300 euros por sete horas. Bombeiros vão cobrar por macas retidas nos hospitais
+-  “É importante saber-se e saber por que razão” Pedro Nuno Santos não sabia da compra de ações dos CTT
+-  Jahrbuch zeigt facettenreiche Gladenbacher Europaschule
+-  Constitución 2024 y Asamblea Constituyente
+-  طريقة عمل قالب الأرز المخبوز بقطع اللحم والفواكه المجففة والمكسرات
+-  طريقة عمل الأرز بطبقة اللحم المفروم واللوز
+-  Сколько стоит паспорт для казахстанцев в 2024 году?
+-  Германия — Большинство ожидает премьер-министра от AfD в 2024 году
+-  Vande Bharat Route Change: Big News! Changed route of Vande Bharat train from Ayodhya to Anand Vihar, know the reason
+-  ผลสอบเบื้องต้น! เครื่องบินหน่วยยามฝั่งญี่ปุ่น ยังไม่ได้ไฟเขียวบินขึ้น
+-  Doctored Videos Of Politicians Circulate In India, Pakistan Ahead Of Elections 2024
+-  Bertín Osborne dice que no quiere ser padre del hijo de Gabriela Guillén
+-  Vilja ekki láta kalla sig lengur kú­reka
+-  아흐메드 ‘벽 낮은쪽으로 강타’ [MK포토]
+-  iPhone 17's front camera will be upgraded to 24MP, says Kuo
+-  Δημήτρης Κουρούμπαλης: «Έγραψαν σχόλιο για εμένα: να έρθει η αστυνομία θεάτρου να πάρει τον Κουρούμπαλη»
+-  धातु निर्मित चायनीज मांझे के उपयोग एवं विक्रय पर प्रतिबंध
+-  A slight drop in fuel prices registered in the Federation of Bosnia and Herzegovina
+-  Meiji Gekken 1874 Release Date, Cast, Storyline, Trailer Release, And Everything You Need To Know
+-  Etrangers délinquants : un total de 4.686 individus expulsés en 2023, en hausse de 30%
+-  Зачем к пылесосу прикреплять втулку от бумажных полотенец?
+-  Η ΑΕΚ ανακοίνωσε την απόκτηση του πρώην NBAer Μπράντον Νάιτ
+-  Tanggal 8 Februari 2024 Libur Apa? Cek Jadwal di SKB 3 Menteri
+-  Luton v Bolton betting offer: Bet £10 and get £40 in free bets with BetMGM
+-  El 2023 cierra con 1.145 muertos en carretera, tres menos que el año anterior
+-  Niskanen gewinnt im Schlusssprint – Fähndrich auf Rang 15
+-  تسريبات مصورة لهاتف ASUS ROG Phone 8 Pro تكشف عن حواف نحيفة
+-  JLab تعلن عن أول سماعة لاسلكية مميزة تدعم إلغاء الضوضاء النشطة وبسعر 80 دولار #CES2024
+-  بلے کا نشان ملے یا نہیں پی ٹی آئی الیکشن لڑے گی، لطیف کھوسہ
+-  DK Tulia katika mkutano wa 27 wa maspika, wenyeviti mabunge
+-  Seúl y Washington realizan ejercicio con fuego real junto a la frontera norcoreana
+-  Fiorello e la moglie Susanna Biondo: il bacio rubato dai paparazzi, le foto
+-  Полицията в Пловдив констатира 1274 нарушения по пътищата в празничните дни
