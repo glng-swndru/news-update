@@ -1,51 +1,11 @@
 # Latest News
--  “이미 벌어진 일”…여친 ‘바리캉 삭발·감금’ 혐의 20대男 변호사의 말
--  Gümrüklerde, 11 ayda 57 bin 15 cep telefonu ele geçirildi
--  Boşanmak isteyen kadına, baba ve 3 oğlundan silahlı saldırı!
--  3 ผู้ตัดสินไทย ร่วมทำหน้าที่ ศึก "เอเชียน คัพ 2023"
--  ‘आईसीसी क्रिकेटर ऑफ द ईयर’ की लिस्ट घोषित, इस भारतीय खिलाड़ी को किया गया नॉमिनेट
--  목욕장업 안전 및 특별 위생점검
--  당뇨환자 170명 안과 무료 검사
--  새해 시작, '필하모닉 앙상블' 과 함께
--  ट्रम्पद्वारा माइनका शीर्ष निर्वाचन अधिकारीको निर्णयविरुद्ध मुद्दा दायर
--  बदल गए क्रिकेट के नियम, फील्डिंग करने वाली टीम को बड़ा नुकसान, मैदान पर लगी चोट तो मिलेगा इतना समय
--  "دبحوا أخويا في ليلة رأس السنة" .. اللقاء الأخيرة في حياة ضحية أبو زعبل (صور)
--  سعر الدولار اليوم الخميس مقابل الجنيه في 10 بنوك مع بداية التعاملات
--  السعودية تتوسع في نطاق تطعيم كورونا لمواجهة المتحور الجديد
--  Why PM Modi`s Lakshadweep Tour Is More Than Just A Normal Visit
--  '운명의 날' D-7…향후 절차와 시나리오는? [갈길 험난한 태영건설①]
--  [속보] '김건희 주가조작 의혹·대장동 클럽 특검법' 정부 이송
--  장기요양 재택의료서비스 시범 사업에 대구경북 4곳 선정
--  대구서문시장연합회, 박종호 신임 회장 선임
--  Anne Rabe über die Wahlen in Sachsen, Thüringen und Brandenburg: Was im Osten anders ist – Podcast
--  워크아웃 불발 땐 ‘구조조정·기업청산’ 법정관리 수순…워크아웃과 차이점은? [갈길 험난한 태영건설②]
--  [TV] 국내 1세대 커피 농부와 대형 베이커리 제빵사들
--  Fomenta SSPH capacitación para agentes policiales y ya es un referente nacional
--  सोवा रिग्पा उपचार प्रणालीको विकास र विस्तारमा जोड
--  WATCH: South African airline the most On-Time Carrier [VIDEO]
--  वीडियो: विराट को डीन एल्गर ने छेड़ा, किंग कोहली ने दिया हैरान कर देने वाला जवाब
--  Türkiye'den Gazze'ye dördüncü yardım gemisi yola çıktı: İnsani yardımlar sürüyor
--  Số lượng nhà đầu tư đổ xô vào vàng trong năm 2023 lên mức cao kỷ lục
--  Man charged with murder following arrest over unrelated offence
--  Man charged with murder following arrest over unrelated offence
--  Man charged with murder following arrest over unrelated offence
--  นักร้องสาว ป่วยโรคซึมเศร้าขั้นรุนแรง ช็อกเจอเคสเดียวกัน แนะให้รักษาด้วยเซ็กส์
--  California city prepares to open $15M 'turbo roundabout' to fix deadly intersection - despite national aversion to European road feature
--  العريبي: سننجز مشاريع إعادة الإعمار بالسرعة والجودة المطلوبة
--  Aseveran efectividad de Transferón contra covid
--  Buscan extra para ratificar a Godoy; lamentan postura de la oposición
--  Rapero Alemán denuncia extorsión y se confiesa
--  A Breakthrough in Mass Spectrometry: MIT Researchers Develop Miniaturized and Affordable Quadrupole
--  노동력 착취하는 ‘염전 노동자 구인 공고’ 논란...“주 7일 근무에 월 202만 원”
--  Bán giá 15 triệu cho chiếc điện thoại mạnh ngang Galaxy S24+: Hãng này định không cần lợi nhuận hay sao?
--  Tiền xu và tiền giấy kỷ niệm năm Rồng “lên cơn sốt” ở Trung Quốc
--  Three cheers for Pakistan’s unexpected fighters
--  Three cheers for Pakistan’s unexpected fighters
--  Three cheers for Pakistan’s unexpected fighters
--  Three cheers for Pakistan’s unexpected fighters
--  Dilek Taşı'nın 17. bölümünde neler oldu?
--  Mahkemede kaos: Karar açıklanırken hakime saldırdı!
--  Van Gölü kıyısında teleskopla güneşi gözlemlediler
--  Domain nedir? İnternet sitesi domain ne demek?
--  Muharrem İnce, Özgür Özel'i ziyaret ediyor
--  Petrol fiyatları Kızıldeniz krizi sonrası yükselişte
+-  Diego Simeone nói thẳng về đẳng cấp của Girona
+-  Resmi Gazete'de yayımlandı... Balıkçılıkta yeni dönem
+-  Altın fiyatları bugün ne kadar oldu? 4 Ocak 2024 Çeyrek altın, 24 ayar gram altın fiyatı son dakika
+-  Zeki kadınları sevmeyen 3 erkek burcu! Kendi zekalarından üstünlüğü kabul etmezler
+-  Bölgede gerilim had safhada! ABD, BM'yi acil harekete geçmeye çağırdı
+-  Elveda Mauro Icardi! Galatasaray'da ayrılık: Transferi duyurdular
+-  Alina Boz'dan eşi Umut Evirgen'le romantik poz!
+-  Dere yatağına düzenek kurarak altın arayan şüpheliler yakalandı
+-  Akneleri 30 saniyede kurutan 6 yağ! Geceden sabah cildinizde tek pürüz kalmayacak
+-  Yıldız Tilbe'den 'Çalışıyorum' pozu... O hareketi dikkat çekti
