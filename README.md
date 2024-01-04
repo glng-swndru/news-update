@@ -1,11 +1,51 @@
 # Latest News
--  Mittelsachsens Schiedsrichter dürfen diesmal jubeln
--  DHB-Team dank Wolff mit Zittersieg gegen Portugal
--  Gislason überrascht von Pekeler-Rücktritt
--  "Provokačné vojenské aktivity". Čína i USA usporiadali v Juhočínskom mori vojenské cvičenia naraz
--  Delcy Rodríguez: Guyana viola el derecho internacional para favorecer a la ExxonMobil
--  Samsung to Unveil New Galaxy S24 Smartphones With Enhanced AI on January 17
--  Szinte hihetetlen: 30 éve nem beszéltek egymással az egykori magyar sztárpár tagjai - válásuk után csak most békültek ki
--  K bombovému útoku v Iráne sa prihlásil Islamský štát: Vyžiadal si desiatky obetí
--  ‘Siento mucha motivación’, dice Gustavo Quinteros en presentación como técnico de Vélez Sarsfield
--  LP-184 by Lantern Pharma for Prostate Cancer: Likelihood of Approval
+-  البطولة: اتحاد تواركة يرتقي إلى المركز الثامن عقب الانتصار على أولمبيك آسفي
+-  كريستيانو رونالدو يشتري قصرا في دولة عربية غير السعودية!
+-  "التجهيز" تدعو مستعملي الطرق إلى الحذر
+-  بلاغ هام من "الطرق السيارة" لمستعملي هذه المحاور الطرقية
+-  كان 2023 .. "الكاف"يرفع قيمة الجوائز المالية
+-  "الكاف" يرفع قيمة جوائز كأس أمم إفريقيا
+-  قتلى وجرحى في صفوف ميليشيات البوليساريو اخترقت الجدار العازل
+-  ناقوس الخطر يدقّ .. شبح الجفاف يخيم على ثاني أكبر سد بالمغرب
+-  اتحاد تواركة يفوز على ضيفه أولمبيك آسفي "1-0"
+-  عجز التساقطات وارتفاع درجات الحرارة يؤثران على إنتاج المحاصيل والمساحات المخصصة للرعي
+-  تيزنيت : المكتب الإقليمي للجامعة الوطنية للتعليم FNE يُعزي المدير الإقليمي للتعليم
+-  الحسيمة: اعتقال مرشحين محتملين للهجرة السرية
+-  Un mort și mai mulți răniți într-un atac armat la un liceu din statul Iowa, SUA
+-  בקצה החץ הצה"לי, הכי קרוב שאפשר לליבת האויב: יואב לימור עם לוחמי מגלן בלב חאן יונס
+-  שליטה צבאית ושת"פ עם מצרים: במערכת הביטחון נערכים לחשוף את תוכנית "היום שאחרי" בעזה
+-  Avistan en Colombia un raro ejemplar de un pájaro mitad macho y mitad hembra
+-  Perú supera a Colombia como país con mayor diversidad de aves en el mundo, según Sernanp
+-  COVID və maska rejimi ABŞ xəstəxanalarına qayıdır?
+-  Registran en Alaska el primer caso mundial de un oso polar muerto por la gripe aviar
+-  Jiżdiedu għal 12.5% l-interessi għal ħlasijiet kummerċjali tard
+-  Vier ploegen strijden om de eindzege op finaleavond Ede Stad zaalvoetbaltoernooi
+-  Primeros nombres de Jeffrey Epstein revelados: aquí están las conclusiones más importantes
+-  Sərxoş ata bir yaşlı qızını beşinci mərtəbədən atdı
+-  Ganz Oederan ist ans Glasfasernetz angeschlossen - jedenfalls fast
+-  Schließung in Penig: Fleischerei Gretenkord und Bäckerei Stölzel ziehen sich zurück
+-  Zamfara lawmaker grants scholarship to 118 students
+-  Böse Überraschung für Mieter mit Fernwärme in Sachsen ab 2025?
+-  Хитойдаги ишсизлик: Талабалар дипломнинг қадри тушиб кетганидан шикоят қилмоқда.
+-  АҚШ Ироқда «Ҳизбуллоҳ» қўмондони машинасига зарба берди.
+-  Эрондаги терактда жабрланганлар орасида Ўзбекистон фуқаролари йўқ.
+-  Германия Конституциявий суди Усмоновнинг яхтадаги тинтувларга қарши даъвосини қабул қилмади.
+-  Experten vermuten Verkettung von Fehlern als Ursache für Jetabsturz
+-  Наманганда ўсмир отасининг машинасини бошқариб, 4 та қоидабузарлик ва ЙТҲ содир этди.
+-  The US Tennis Association is reviewing its safeguarding policies and procedures
+-  Grab Marvel's Guardians of the Galaxy for free on the Epic Games Store
+-  Paulista A2: Em Hortolândia, executivo do Juventus fala sobre estrutura e contratações
+-  THF'den Fenerbahçe, Galatasaray ve Trabzonspor'a davet
+-  KRÖNIKA: Jag kände mig så äcklad – ska bli vegan
+-  José Mourinho niega la posibilidad de dirigir a Brasil y mantiene a la Roma como prioridad
+-  Játékokra költene a Gondoskodás Alapítvány Mosonmagyaróváron
+-  Hunter și Herder, supercomputerele exascale germane, vor folosi AMD Instinct MI300A
+-  Brejza za Sikorskiego w europarlamencie. „Pozostanę aktywnym parlamentarzystą”
+-  Prince of Persia: The Lost Crown Ne Zaman Çıkıyor? Fiyatı Ne Kadar? Sistem Gereksinimleri Neler?
+-  Tajemniczy transfer danych na telefon byłego szefa policji w Warszawie. Kilka godzin po akcji CBA
+-  Tajemniczy transfer danych na telefon byłego szefa policji w Warszawie. Kilka godzin po akcji CBA
+-  Ukraine-Blog: Mehrheit rechnet 2024 nicht mit Kriegsende
+-  Brejza za Sikorskiego w europarlamencie. „Pozostanę aktywnym parlamentarzystą”
+-  Muğla'da eş zamanlı uyuşturucu operasyonu... 11 zanlı gözaltında
+-  KKTC Cumhurbaşkanı Tatar, Ankara'da "Kıbrıs Gerçekleri" sergisine ziyarette bulundu
+-  Erik ten Hag açıkladı! Altay Bayındır oynayacak mı?
