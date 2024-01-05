@@ -1,51 +1,51 @@
 # Latest News
--  Neue Chefärztin am Klinikum für Gewebe-Analysen
--  [WORLD] Double dates: Croatia twin girls born in different years
--  Ladri alla farmacia del Viale: svuotato durante la notte il registratore di cassa
--  Meteo: svolta invernale nel weekend dell'Epifania con piogge, temporali e deciso calo termico
--  La "banda delle macchinette" torna all'istituto "Manzoni": due colpi nel giro di neanche 20 giorni
--  Approfitta del negozio chiuso per la pausa pranzo e in 10 minuti ruba i soldi lasciati in cassa
--  강원도교육청, 2024년 고교학점제 선택과목 지도역량 강화 추진
--  강원도교육청, ‘2023년 장애학생 직업교육 프로그램 운영 지원’ 결과 발표
--  이마트24, 올 1분기까지 PB '아임e' 상품 6종 가격 동결
--  어바웃펫, 반려동물 의료케어 포함 멤버십 '실비클럽' 론칭
--  김한정 의원, 의정보고회 개최...시민과의 대화도 병행
--  주광덕 시장, “영농 서비스 강화에 최선을 다할 것”
--  구리시, 고령친화도시 조성 모니터단 발족
--  구리시, 제5기 마을세무사 위촉
--  [최태호의 우리말 바로 알기] 열상(裂傷)과 자상(刺傷) 유감
--  [신년 인터뷰] 이상래 대전시의회 의장 quot;정책 역량middot;소통 강화해 집행부 견제middot;감시 집중quot;
--  [인사] 대전시 중구
--  LP가스 사고 '유비무환'hellip;대전시, 안전관리 긴급대책 추진
--  서천군, 법원용 무인민원발급 서비스 운영
--  보령시, 멧돼지middot;고라니 피해 농가 예방 시설 지원
--  김해복음병원, 지역응급의료센터 문열어
--  충남소방본부 119특수대응단 최우수 선정
--  "올해 정규앨범 발매 목표"…이효리 만난 제니, 무슨 말했을까 [오늘밤TV]
--  스파이어 "오메가엑스 변호사 고소, 출석·진술 응시NO…선처 없을 것" [공식](전문)
--  "3년 동안 90분 풀타임 못 뛴 선수와 재계약한다고?" …맨유팬 분노 폭발, "맨유 역사상 최악의 결정, 창피한 클럽이다" 누구이길래?
--  [MD포토] 이준호 '추위를 녹이는 훈훈한 인사'
--  [오피셜] 김기동의 서울, 'AG 금메달 멤버' 최준 영입하며 측면 강화...'3호 영입' 성공
--  '롯데→두산' 박흥식 수석 선임, 이승엽 감독 곁에서 보좌한다…김한수 코치는 '타격'에 전념 [공식발표]
--  금새록, 이병헌과 한솥밥…BH엔터와 전속계약 "잠재력 무궁무진" [공식]
--  [MD포토] 이준호 '시상식 참석 차 출국해요'
--  이마트 24, PB 커피·흰우유 가격 1분기까지 ‘동결’
--  [MD포토] 이준호 '공항을 멈추게 만드는 비주얼'
--  주진모, 5년 만에 방송 복귀 "♥민혜연 덕분에 웃는 얼굴로" [백반기행]
--  [MD포토] 이준호 '훈훈한 미소를 짓게 하는 모습'
--  [MD포토] 이준호 '가까이 볼수록 더 반하는 비주얼'
--  와일드오차드, 블랜디드 티 4종 신규 출시
--  [MD포토] 차은우 '비주얼에 비율까지 완벽'
--  [MD포토] 차은우 '만찢남 눈빛만 공개할게요'
--  [MD포토] 티파니영 '순백의 아름다운 패션'
--  [MD포토] 티파니영 '순백의 코트로 눈부시게'
--  [MD포토] 티파니영 '바림의 미모 질투에도 아름답네'
--  [MD포토] 티파니 '바람이 너무 불어요'
--  [MD포토] 티파니영 '소시적 미모 여전하네'
--  [MD포토] 티파니 영 '순백 패션, 눈부심 주의보'
--  [MD포토] 하정우 '건강미 넘치는 구릿빛 피부'
--  [MD포토] 하정우 '영화 한 장면 같은 출국'
--  산업은행 “태영그룹, 지주사 채무상환 890억을 태영건설 지원으로 왜곡”
--  [MD포토] 하정우 '가자 자카르타로'
--  [MD포토] 성시경 '버터 왕자 미소'
--  [MD포토] 성시경 '미소, 이게 최선이야'
+-  Jedan učenik ubijen u pucnjavi u školi u SAD, 17-godišnji napadač...
+-  وفيات الجمعة 2024/1/5
+-  "Tous les jihadistes du monde veulent qu’un attentat marque la faiblesse de la France", explique Gilles Kepel avant les Jeux olympiques
+-  Hadapi Tim-Tim Indonesia Timur, Gresik United Dril Fisik Pemain
+-  한동훈, 이재명 측에 병문안 의사 타진…李 측 “당분간 어려워”
+-  당정 “지역가입자 ‘자동차 부과’ 건보료 폐지”…이유는?
+-  장경태, 이재명 ‘헬기 이송’ 논란에 “권역외상센터, 정말 비상 응급 치료 받아야”
+-  고양 이어 양주서도 ‘카페 여주인’ 사망…공개수배 50대, ‘연쇄살인’ 가능성
+-  윤석열 정부가 제출한 법안 통과율 29%의 의미 [김동원 쓴소리 곧은 소리]
+-  문병호 등 12인 ‘이준석 신당’ 합류…“정부 여당은 입으로만, 야당은 무능”
+-  Тренер Кудерметовой рассказал о письме спортсменок против WTA
+-  "K-콘텐츠 살아있네"…콘텐츠 수출액 역대 최고, 132억달러 돌파
+-  ‘네이버×전북 로컬 브랜드 창업스쿨’ 스타트업 돕는다
+-  Watanzania kupewa kipaumbele sekta ya madini
+-  Genellikle Uzun Yolda Gördüğümüz Bu Karton Polis Maketleri Gerçekten İşe Yarıyor mu?
+-  Alarmları Kurun: İlk Türk Astronotun Uzaya Gideceği Tarih ve Saat Belli Oldu
+-  뮤직카우, NCT 드림 ‘ANL’ 옥션 6분 34초만에 상한가 마감
+-  [인사] 공정거래위원회
+-  Netizen xứ Trung thích thú trước diện mạo món phở gà quán Chi Pu khi mang ship, nhiều người mong có thể "hút chân không"
+-  Ανάρτηση από Τσίκο: «Περνάω δύσκολες στιγμές…»
+-  Redmi Note 13 series launched in India at starting price of Rs 16,999, other details inside
+-  Lubelski Nobel przyznany. Za pracę o autonomii uczelni
+-  Qualcomm’s VR Marvel: The Snapdragon XR2+ Gen 2 Platform Unleashed
+-  New York'ta iki metro treni çarpıştı: 24 yaralı!
+-  Zwischen Freude und Enttäuschung: Was die neue Postfiliale in Flöha bietet und was nicht
+-  Was bedeuten die neuen Fleischkennzeichnungen?
+-  Graffiti hoch oben an der A 72 bei Wilkau-Haßlau: Wie machen die das nur?
+-  Tagsüber bis -12 Grad: Am Wochenende kommt der Winter nach Sachsen
+-  檢, '은성수 아들 병역기피' 조력 의혹 병무청 공무원 수사
+-  Zuid-Koreaanse eilandbewoners naar schuilkelders na Noord-Koreaanse aanval
+-  Trainer Streich hofft auf Freiburger Winter-Transfers
+-  Wütende Bauern hindern Habeck am Verlassen einer Fähre
+-  থানায় তালিকাভুক্ত ১১ মামলার আসামিকে পুলিশ খুঁজে পায় না
+-  لماذا اختفى ملفّ النّازحين فجأةً؟
+-  "왜 음주운전 신고를 해"…휘발유 자기 몸에 부어 협박 50대 실형
+-  Altında yeni yıl nasıl geçecek? İşte piyasada son durum
+-  2024 Ocak ayı aile destek ödemeleri yattı mı, ne zaman yatırılacak?
+-  Sjever propada - na jugu nezaposlenih koliko u Beranama
+-  Trihineloza: Kako parazit vreba iz svinjskog mesa
+-  '위증 혐의' 이귀재 전북대 교수 재판행…검찰, 구속기소
+-  Andrijevica: Hiljadu stanovnika manje, urbano jezgro desetkovano
+-  СМИ сообщают, что Россия дважды применила северокорейские ракеты в Украине
+-  President Tinubu’s New Year speech and prospects contained therein
+-  روپے کی قدر بحال،ڈالر مزید سستا ہو گیا
+-  BVB-Kapitän Can hofft auf Sancho-Rückkehr
+-  Xiaomi Redmi Note 13 – Global Launch Date & Specifications
+-  Kaizer Chiefs chasing Nigerian AFCON star
+-  When You Race in the Say No to Drugs Holiday Classic, Everyone is the Winner
+-  Xerostomie, Dysgeusie, Schleimhaut-Läsionen - Corona zeigt sich auch am Mund – das sind die drei häufigsten Symptome
+-  Zamlı emekli maaşları bu tarihlerde hesaplarda! Emekliler hemen bu takvime bakın!
