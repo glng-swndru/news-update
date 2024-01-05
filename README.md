@@ -1,51 +1,51 @@
 # Latest News
--  quot;장애인middot;비장애인 함께해요quot;hellip;광주 남구, '반다비 체육센터' 완공
--  경찰, '염전 노예' 의혹 영상 제작 유튜버 검찰 송치
--  '돌아보는 100년, 나아가는 100년' 전남도청서 김대중 탄생 100주년 기념식
--  이재명 습격범 신상공개?hellip;경찰 quot;신중히 검토해 다음주 결정quot;
--  진보당 경기도당 quot;전두환 남은 867억 추징 방법 찾아야quot;
--  김동연, '직무 잘하고 있다' 58%hellip;부정평가 비율은 시도지사 중 최저
--  ‘ปชป.’ ยันไม่รับหลักการร่างพ.ร.บ.งบ 67
--  Airstrike in Baghdad kills Iran-backed militia leader
--  Myanmar junta pardons 10K prisoners on Independence Day
--  Largest male funnel-web spider found in Australia
--  Japan quake death toll goes up to 84
--  Manoj Bajpayee to contest Lok Sabha elections? Actor gives sarcastic response
--  China elevará su gasto fiscal en 2024, avanza su ministro de Finanzas
--  Core Lithium detiene el proyecto Finniss ante la caída de los precios del litio
--  АҚШ давлат котиби Яқин Шарққа сафар қилади.
--  « Jean-Jacques Goldman est la personnalité préférée des Français pour les valeurs qu’il porte dans un pays qui broie du noir : authenticité, nostalgie, patrimoine, divertissement »
--  Во Владимирской области произошел еще один смертельный пожар
--  Trung Quốc phát triển da điện tử điều chỉnh được nhiệt độ
--  Türkiye'nin tescillisi ama kimse yüzüne bakmıyor! 1 TL'ye almayan markette 20 TL veriyor: Üretici bedavaya çürümesini izliyor
--  Hình ảnh sương mù sáng nay ở TPHCM, nồng độ bụi mịn vượt mức cho phép hàng chục lần
--  ”Mångfalden bidrar till att personalen stannar i vården”
--  Eighties model Beverly Johnson, 71, stuns in a sparkling gold gown as she attends the 2024 Palm Springs International Film Festival Awards
--  Курс юаня на открытии торгов Мосбиржи снизился до 12,661 рубля
--  Beauty is pain! MAFS bride Susie Bradley gives her NRL star beau Todd Carney Botox injections as their son runs around her clinic
--  Song Hye Kyo bất ngờ có “con gái”, nhan sắc thế nào mà được dự đoán sẽ sớm vượt mặt mẹ
--  Магнитные бури 5 января: метеопатам стоит готовиться к волне геоударов
--  ¿Por qué fue cancelada la serie ‘Victorious’?
--  2 con trai của Tâm Tít thể hiện kỹ năng trượt tuyết siêu đỉnh, thần thái được khen "chuẩn thiếu gia nhà giàu"
--  Letos tudi razstave o oblekah in času
--  20 прогнози за България и света
--  Комплекс «Пале» приглашает костромичей на показы детского спектакля «Питер Пэн»
--  위상 떨어진 지상파 연말 시상식, 해법은 없나
--  Bộ trưởng Quốc phòng Israel hé lộ về giai đoạn tiếp theo ở Dải Gaza
--  Albanese slams Coalition ‘conspiracies’ on Alan Joyce meeting as ‘absurd’
--  Christopher Nolan’s Peloton Instructor Has Seen ‘Oppenheimer’ Twice, Still Doesn’t Understand ‘Tenet’: ‘That S— Went Right Over My Head’
--  चाहते हैं 100 साल जीना, 7 टिप्स की मदद से बढ़ा लें अपनी सांसें, रहेंगे हेल्दी
--  CDP-SNTP dicen decreto regula publicidad oficial afecta a medios, periodistas y productores de programas
--  Ukraine De Facto Became NATO's Testing Ground for Digital Warfare Against Russia – Moscow
--  مناظرة حالات الشريان الأورطي.. فريق طبي بريطاني يصل مستشفى أمراض القلب ١٣ يناير
--  Bianca Belair Shares First Poster For Love & WWE: Bianca & Montez
--  Osem chýb, ktoré robia ľudia po SEXE: Tú štvrtú určite robíte aj vy!
--  Bir alkol grubuna daha zam geldi
--  Film: Kinoverband: Filmtheater haben sich 2023 wieder gefüllt
--  [속보] 연평도 주민 대피령…"북한 도발 관련, 대피 유도 중"
--  전문가 "北, 긴장 후 협상 패턴 벗어나 대립 국면 장기화 우려"
--  대백프라자갤러리, 어린이 미술 체험전 ‘스노우 미술관4’ 개최
--  Solo tres de cada diez personas que se gradúan en ciencia y tecnología son mujeres
--  Thúy Nga tự hào con gái tự lập, hiểu chuyện
--  Жителей южнокорейского острова эвакуируют из-за «угрозы провокации» КНДР
--  NBA: Οι καλύτερες φάσεις του Αντετοκούνμπο και του Γουεμπανιάμα (vids)
+-  Chinas Tourismus rechnet nach Krisenjahren mit Aufschwung
+-  브루클린, 주전 대거 제외했다가 10만 달러 벌금 징계
+-  Será juzgado por robo y secuestro exprés
+-  Reciben a decenas de personas en refugio de Juárez
+-  Hamas'tan Aruri suikastı ile ilgili çok konuşulacak açıklama: Saldırı çemberini genişletmek istiyorlar
+-  Usta sanatçı Ayla Algan'dan acı haber! Hayatını kaybetti
+-  Pendik'te korkutan kaza: 2'si ağır 4 yaralı
+-  Başakşehir'de korkunç cinayet: İş insanına silahlı saldırı
+-  Pendik'te facianın eşiğinden dönüldü
+-  Vefatı sanat dünyasını yasa boğdu! Ünlü isimlerden Ayla Algan paylaşımları
+-  Ağızda eriyen fırında patates tarifi! Kahvaltılık lezzet bombası, 10 dakikada hazır
+-  Rohamtempóban adósítják el a magyarokat, kell a pénz repülőtérre és a lyukak betömésére
+-  „Fejleszteni kellene, nem tönkretenni” – Jövő héten egyeztet Budapest a Lázár-féle minisztériummal az új tömegközlekedési tarifarendszerről
+-  Meteorolojiden sis, kar ve yağış uyarısı! 5 Ocak hava durumu: Bugün hava nasıl olacak?
+-  Uyuyan faylar harekete geçti!
+-  Altın fiyatlarında neler oluyor? İşte son durum
+-  Bio-Agriculture Market Size To Grow At A CAGR Of 12.1% In The Forecast Period Of 2024-2032
+-  Algae Products Market Potential Analysis, Key Drivers, Emerging Growth, Trends And Forecast To 2033
+-  Ai có quyền chọn sách giáo khoa cũng đừng để học sinh nhận hậu quả
+-  Bãi rác tự phát 'thấy mà kinh' trước khu ký túc xá sinh viên
+-  Chủ xe liên tục bị va quệt, chán tới mức không muốn sửa nữa
+-  Loay hoay xử lý giấy phép sai của huyện Bình Chánh, thiệt hại tiền tỉ
+-  Mỹ giúp Nhật Bản mổ xẻ các bản ghi âm từ máy bay gặp nạn
+-  Nhật Bản động đất nhiều nhất thế giới, 1.500 trận mỗi năm
+-  Việt Nam thuộc nhóm tăng trưởng cao, quy mô kinh tế 430 tỉ USD, tín nhiệm quốc gia mức BB+
+-  В Киевской области звучат сирены воздушной тревоги
+-  티라유텍, 22일 임시주총 소집
+-  जान्हवी कपूर ने ब्लैक ड्रेस में शेयर किया अपना सिजलिंग लुक
+-  "Ovo je bolje nego što smo očekivali": Toni Nadal prezadovoljan Rafinim povratničkim izdanjima
+-  Tippfieber auch in Hückeswagen: Spiel um den Eurolotto-Jackpot
+-  부안군, 지속 가능한 '부안형 푸드플랜' 기반 조성
+-  Snow White and the Huntsman Streaming: Watch & Stream Online via Peacock
+-  "5세대 대통합"…성한빈·명재현·소희, '엠카' 3MC 완성
+-  Utilizó Trump temor y favores para ganar el apoyo republicano
+-  Valsts policija meklē bezvēsts pazudušo nepilngadīgo Eduardu Pikturnu
+-  Steve Smith and Marnus Labuschagne under fire for ugly on-field acts against Pakistan
+-  What is the oldest animal alive right now?
+-  “마취상태女 10여명을”…‘롤스로이스男’에 마약 처방한 의사가 한 짓
+-  IS group claims responsibility for Iran suicide bombings killing at least 84
+-  US claims Russia used North Korean ballistic missile in strikes on Ukraine
+-  Punjab Schools Winter Vacations Extended? Decision Awaiting on Possible Extension
+-  검찰 낙하산 천국? KT새노조 “내부 혁신이 먼저” 김영섭 대표 인사 비판
+-  5·18 단체 "국민의힘, 5·18 왜곡 시의원 즉각 제명하라"(종합)
+-  Bruce Almighty Streaming: Watch & Stream Online via HBO Max
+-  서울시, 올해 첫 초미세먼지 주의보 발령
+-  Ägypten: EU will neuen Flüchtlingsdeal – trotz scharfer Kritik
+-  Airport Security Market Regional Segments, Emerging Growth Rate, Navigating Top Trends And Forecast To 2033
+-  "세계 속에 전주를 알린다"…국제교류에 힘쓰는 전주시
+-  政府宣布本季住宅、商業地不會推出 甯漢豪指平常心應對發展商出手太低
+-  KBL 올스타, 13일 고양 대형 카페서 팬들과 특별한 시간 보낸다
