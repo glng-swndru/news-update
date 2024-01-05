@@ -1,11 +1,51 @@
 # Latest News
--  6 تفاصيل عليك بإدراجها في سيرتك الذاتية للفوز بوظيفة الأحلام
--  دراسة حديثة تكشف سر علاقة الطماطم بارتفاع ضغط الدم
--  أسعار العملات في السعودية اليوم الجمعة 5 يناير.. اليورو يسجل 4.11 ريال
--  أسعار الذهب في السعودية اليوم الجمعة 5 يناير.. عيار 24 يسجل 246.25 ريالًا
--  Hacienda inicia el año sin dar estímulos al IEPS
--  Plucky mole’s great escape from flooded nature reserve melts hearts
--  Özgür Özel'den 'Gülistan Doku' mesajı
--  These three Vancouver tech companies are hiring in 2024
--  ¡Protesta en Juchitán por cierre de Centro de Movilidad!
--  Big Thief’s Buck Meek Shared Two Delightful Singles That Barely Missed The Cut For His ‘Haunted Mountain’ Album
+-  بلینکن غزې ته د بشري مرستو او د کړکیچ د پراخیدو د مخنیوي لپاره سیمې ته بیا سفر وکړ
+-  Reuters: wywiad USA potwierdza, że zamach w irańskim mieście Kerman zorganizowało Państwo Islamskie
+-  Ville Peltosta otti pattiin: ”Kaivettiin verta nenästä”
+-  Internautas prestam solidariedade ao ministro Alexandre de Moraes
+-  La película basada en una tragedia real que es un éxito en Netflix y conmueve a todos de principio a fin
+-  تعيين الوزير والإطار السامي المهندس سيدي محمد ولد الطالب أعمر مديرا عاما للصندوق الوطني للضمان الاجتماعي
+-  Kuzey Avrupa'da aşırı soğuklar etkili oluyor
+-  Μιχάλης Ρέππας: Ανακαλύψαμε την πολιτική ορθότητα μαζί με τον Θανάση Παπαθανασίου πριν εφευρεθεί από μόνη της
+-  Буданов прокомментировал слухи о смерти Герасимова
+-  Vrouw die moeder liet doden na lang leed is nu een ‘heldin’ met 6,5 miljoen volgers: ‘Dubbel gevoel’
+-  Real Housewives of Orange County’s Tamra wants Sonja to move on from RHUGT “shtick”
+-  Roupão do líder no BBB 24 será fornecido por empresa centenária de SC
+-  لبيد: لم يقترح أحد تسليم غزة للسلطة الفلسطينية
+-  Ässien vuoro jäädä huippuvireisen Kärppien jalkoihin jääkiekkoliigassa, voittoputki venyi jo viiden ottelun mittaiseksi
+-  Das „absolute Blutbad“ – Russland verliert vier gepanzerte Fahrzeuge
+-  تنبيه مهم من "قوى" حول التصرف المطلوب عند تأخر تحديث حالة رخصة العمل
+-  الخارجية الأمريكية: العاروري أحد المسئولين عن 7 أكتوبر.. ومن حق إسرائيل الدفاع عن نفسها‏
+-  عاجل.. "الأرصاد" يُحذر من ضباب وشبورة على هذه المحافظات بالرياض لـ 8 صباحًا
+-  Jhansi News: आज छह फीडरों की बत्ती रहेगी गुल, 10 हजार लोग रहेंगे परेशान
+-  Gorakhpur News: मेस में भोजन की गुणवत्ता खराब मिलने पर जताई नाराजगी
+-  Noida News: अलाव से लगी तीन झुग्गियों में आग, एक मजदूर की मौत
+-  هاغاري: سيكون قتالنا أكثر كفاءة في العام الجاري
+-  الأمم المتحدة : غزة أصبحت مكانا للموت واليأس
+-  الاحتلال يعترف بإصابة 15 جنديا خلال 24 ساعة
+-  لبيد: لم يقترح أحد تسليم غزة للسلطة الفلسطينية
+-  رفع درجة الاستعدادات القصوى بقنا تزامنا مع الاحتفال بعيد الميلاد المجيد
+-  UŽASNA VEST ZA RUSOFOBE Najavljuje se snažan udarac?
+-  Rohtak News: सुनारिया में दुकानदार को घर में घुसकर पीटा
+-  Беса бара ДУИ да го исфрли Беким Незири од партијата
+-  Serie A, in campo Bologna-Genoa 0-1 LIVE
+-  Четворица од насилниците кои упаднаа во М-НАВ вечерва се изнесени пред Кривичниот суд
+-  Der CSU-Stadtrat plant einen spektakulären Turm im Norden Münchens
+-  What kind of underwear do you have on? Experts reveal the best styles to stay healthy down there
+-  শূন্য থেকে চূড়ায় ওঠার কাহিনী ‘টুয়েলভথ ফেল’
+-  News24 | Sudan's Burhan lashes out at leaders 'laughing with' RSF leader – as Ramaphosa did this week
+-  Wissen - Womit beschäftigt sich die Gen Z in ihrer Freizeit?
+-  Σκωτία: Καταζητούμενος για βιασμό σκηνοθέτησε τον θάνατό του - Πώς μπήκε τέλος στην περιπετειώδη καταδίωξή του
+-  ¿Cuál era la isla de Jeffrey Epstein, dónde está y qué pasaba ahí?
+-  Noida News: रवि काना की भाभी के घर दबिश, पांच वाहन व कंपनी के कागजात जब्त
+-  Capturan a presuntos mareros con armamento de grueso calibre
+-  Karleuša dobila ulogu fatalne razbojnice u Netfliksovoj seriji, dio će se snimati u Kotoru
+-  WFP plans food relief for 270,000 Zimbabweans, poor harvest expected
+-  Şəhidimizin tabutunu həyat yoldaşı apardı
+-  Lagos Assembly passes N2.267trn as 2024 budget
+-  Ander Lorente refuerza la zaga del Portugalete
+-  OnePlus Ace 3: Großer Akku und superhelles Display
+-  Mass funeral held for blast victims in Iran
+-  Gorakhpur News: आरपी वर्मा की पुण्यतिथि पर शास्त्रीय संगीत का आयोजन
+-  В Германии расследуют дело о попытке фермеров блокировать Хабека на пароме
+-  Federico Pereira está listo para su aventura con el Toluca: “Estoy muy contento”
