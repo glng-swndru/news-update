@@ -1,11 +1,51 @@
 # Latest News
--  בן כספית לוחם צדק: "הבריונים התנפלו על הרמטכ"ל"
--  הצעד הבא של OpenAI נחשף: זה המוצר שתשיק בשבוע הבא
--  ראש של חמור בבית קברות מוסלמי: כתב אישום בפרשה החריגה
--  אנה זק פותחת בקריירה חדשה: הצעד המפתיע של הכוכבת נחשף
--  BBL player hit in the head at training and taken to hospital
--  البطولة: مولودية وجدة يعلن إجراء مباراته أمام الرجاء البيضاوي بدون جماهير
--  دار الشعر بمراكش تنظم الدورة السابعة ل"تجارب شعرية"
--  الوكالة الوطنية للسلامة الطرقية تهيب بمستعملي الطريق توخي الحيطة والحذر بسبب سوء الأحوال الجوية المرتقبة
--  وزراء إسرائيليون يهاجمون قائد الجيش بشأن التحقيق بأحداث 7 أكتوبر
--  المغرب يتوقع نمو الاقتصاد ب2.4% خلال الربع الأول 2024
+-  JPMorgan ekonomisti: Fed, 250 baz puan faiz indirebilir
+-  Sherwood Hotels’in COO’su Ahmet Polat oldu
+-  Classroom of the Elite Season 3 Opening Theme Goes Live After Episode 1
+-  जितगढीलाई नेपाल अंग्रेज युद्धको अध्ययन केन्द्र बनाउन राष्ट्रपतिको आग्रह
+-  الجيش الإسرائيلي يشكل فريقا للتحقيق في هجوم حماس
+-  Heftig verzet tegen afschieten konijnen Sluftervallei
+-  Mercato - PSG : C'est mort pour ce transfert à 115M€
+-  Рустам Эмомали попросил Счетную палату проверить финансовую деятельность мэрии за 2023 год
+-  Google Bard könnte viele neue Funktionen erhalten, um die Benutzererfahrung noch besser zu machen
+-  Jakie rasy psów najlepiej odnajdą się w mieszkaniu? Praktyczne rady dla przyszłych właścicieli
+-  Elastyczność finansowa – jak przygotować się na kolejne fale wzrostu cen?
+-  Piala Asia 2023: Profil 3 Lawan Timnas Indonesia di Fase Grup, Jadwal Bertanding, dan Rekor Pertemuan
+-  KNKT Analisis Menyeluruh Faktor Penyebab Kecelakaan Kereta di Cicalengka Bandung
+-  DNIT advierte a Parxin que tendrá sanciones si no soluciona problemas de facturación
+-  Vrijwilligers Reddingsbrigade verrast met Krimpense Maan
+-  Torpil yazışmaları ile gündeme gelen Bakan Yardımcısı hakkında suç duyurusu
+-  Najstariji zabavni park na svetu zimi blista posebnim sjajem: Ulaz je besplatan
+-  بندقية صينية جديدة تدخل ترسانة حماس.. مواصفات فتّاكة ترعب العدو!
+-  Sindiket enam bulan jual barangan tiruan ‘online’ tumpas
+-  El Liverpool pierde a un Salah en 'modo Faraón': "No se pueden reemplazar sus goles"
+-  صراخ ومطاردة في بيروت... إليكم بالفيديو ما جرى!
+-  Musela plávať 53 hodín a napadli ju smrtiace medúzy. Je Diana Nyad podvodníčka či najvytrvalejšia žena planéty?
+-  Kommt Verteidiger-Juwel des FC Bayern im Test gegen Basel zum Einsatz?
+-  Гражданите могат да поискат алтернативни “пластмасови” съдове и прибори в търговските обекти
+-  Ciudades mexicanas buscarían los Juegos Panamericanos de 2027
+-  Neue Bezeichnungen für vier umwelttechnische Berufe
+-  Soccerladuma | Official: SABC Will Be Home Of AFCON
+-  Je li federalna vlast obećala mnogo više nego što je mogla ispuniti?
+-  Nationalspieler Kehrer wechselt zur AS Monaco
+-  Com indenização de férias, juíza do Rio recebeu mais de R$ 1 milhão em um mês
+-  El Tarazona no puede con el Sabadell y deja escapar una oportunidad de oro (3-1)
+-  Nebojša Milenković dobitnik nagrade „Lazar Trifunović“ za 2023.
+-  Estimativa indica inflação de 5,7% na Itália em 2023
+-  Германия — После протестов фермеров «светофор» пошел на уступки
+-  Marie Nilsson Lind är död
+-  Marie Nilsson Lind är död – blev 62 år
+-  İsrail gölgesinde 13. cuma! Namaz kılan Müslümanlar hedef alındı
+-  من بين الجثث والأنقاض.. عائدون إلى شمالي غزة يتعهدون بـ"عدم الرحيل"
+-  League of Legends gibt einen ersten Blick auf den neuen Drachen-Champion Smolder
+-  अदालतको अवहेलना मुद्दामा प्रचण्डले पाए सफाइ
+-  1 tỉ con cua tuyết biến mất bí ẩn, Alaska hủy đánh bắt 2 năm liền
+-  Tin tức giải trí 5-1: Thương Tín đột quỵ nhẹ lần thứ 2, vẫn ra MV và đóng sitcom
+-  TP.HCM hồi sinh sân khấu Sen Hồng, sẽ hoạt động trước Tết 2024
+-  Quy hoạch Kon Tum đến 2030: Phát triển 4 trung tâm đô thị
+-  Dọa tung clip nóng ép bé gái 14 tuổi quan hệ tình dục
+-  Blockade in Schlüttsiel: Daniel Günther verurteilt Aktion gegen Habeck scharf
+-  Haute-Corse : un incendie en plein hiver ravage 230 hectares de maquis
+-  «Остров чистоты и вкуса» возобновил доставку по Минску. Когда в других городах?
+-  At Chennai’s new rooftop bar, catch sunsets and sip on innovative cocktails like shiitake-infused whisky
+-  Минобороны Румынии держит военную помощь Украине в секрете от парламента
