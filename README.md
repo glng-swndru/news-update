@@ -1,11 +1,11 @@
 # Latest News
--  بعد وفاته.. المحكمة العليا الإيطالية تبرئ مارادونا من تهمة التهرب الضريبي
--  شاهد تدفق سيول مرتفعات حرة بني رشيد بين حائل والمدينة
--  تفوقت على تسلا.. أكثر سيارات "بي واي دي" مبيعا
--  إجازة منتصف الفصل الدراسي.. 170 حديقة جاهزة في تبوك و150 بالطائف
--  عاجل.. مختص بالشأن الاجتماعي يُحذر من هذا الخطر للشعوذة واتباع الدجالين (فيديو)
--  أطعمة لا يصح تناولها مع فاكهة اليوسفي
--  السودان.. البرهان: لا صلح ولا اتفاق مع الدعم السريع وسنقاتلهم حتى الموت
--  التجشؤ المفرط علامة على مرض مميت
--  Gaia capta passageiros a sul do Douro mas Estarreja continua contra o TGV
--  Schalke-Rückkehrer Wilmots: Winter-Transfers fraglich
+-  Beşiktaş'ta Necip Uysal şoku!
+-  BM, abluka altındaki Gazze'yi işaret etti: "Ölüm ve çaresizlik yerine dönüştü"
+-  Bin pişman oldular! Büyük Fred krizi
+-  Fenerbahçe'ye Fred müjdesi! Cezası açıklandı
+-  女 배구 현대건설, 승점 50 고지 최선착…대한항공은 1위 우리카드 격침
+-  Jackery Unveils Revolutionary Green Energy Innovations at CES 2024: Introducing Solar Generator Mars Bot and Solar Generator for Rooftop Tent
+-  DNA Exclusive: Will Kim Jong-Un`s Actions Trigger A Third World War?
+-  Műtrágyát szállító uszály ütközött egy Duna-hídnak, rakománya hatalmas halpusztulást okozhat
+-  Tanítanék Mozgalom: Az Orbán-kormány végig hazudott, a tanárokat újra megvezették
+-  Quebec man sought by U.S. after pregnant Mexican migrant dies crossing border
