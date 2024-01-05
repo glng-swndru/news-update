@@ -1,51 +1,51 @@
 # Latest News
--  Bursa'da kavgada 1 kişi bıçaklanarak yaralandı
--  Dışişleri'nden BM'nin Kıbrıs atamasına ilişkin açıklama
--  లావు, గుమ్మనూరు అవుట్‌!
--  Video: Golpiza de municipales a hombre fue el 31 de diciembre
--  Cae avioneta en Ramos Arizpe; mueren al menos 4
--  'I had to do something': Turkish volunteer feeds Japan earthquake victims
--  Hezbollah leader says his group must retaliate for suspected Israeli strike in Beirut
--  నిందేసి వెళ్లే ఎత్తుగడ!
--  'Starsky and Hutch' star David Soul dies at 80
--  [주명건 세종대 명예이사장, ‘방조제 활용’ 가덕도 신공항 프로젝트 수정안 제안
--  [국민대 학부생, 제60회 세무사 시험 수석합격
--  స్వల్ప అస్వస్థతతో ఆస్పత్రిలో చేరిన తమ్మినేని
--  Creator blows final whistle on 'Captain Tsubasa' soccer comic
--  Cher denied immediate conservatorship over son’s money, but the issue isn’t done
--  Ο Μπαπέ ανακοινώνει την απόφαση για το μέλλον του
--  Akşener, İYİ Parti Bursa Büyükşehir Belediye başkan adayını açıkladı
--  Ticaret Bakanlığı’ndan ‘İsrail'e ihracat’ açıklaması
--  3 stars listed on invite as guests at RFK Jr. birthday gala aren't attending
--  భగ్గుమన్న ఎస్‌ఎ్‌సఏ ఉద్యోగులు
--  Samsung entra al mundo automotriz sin tener autos: hace equipo con Tesla y Hyundai para sumar sus coches eléctricos a su ecosistema
--  Neuer Fan-Ansturm! HSV setzt tausende Karten für dieses Auswärtsspiel ab
--  ‘The Color Purple’ Star Colman Domingo Remembers His ‘Sweet’ First On-Screen Kiss With, You Guessed It, Paul Rudd
--  US equities eek out a gain but fall on the week for the first time since October
--  CFR Cluj a oficializat cel mai răsunător transfer al iernii: „Bun venit în familia noastră!”
--  Former Arkansas teacher accused of sex with student
--  Don’t be caught off guard by mild temperatures, make garden resolutions for 2024
--  La Casa Blanca busca espacios federales para albergar a migrantes en medio de la presión de las ciudades
--  NRA chief, one of the most powerful figures in U.S. gun policy, says he's resigning days before trial
--  David Soul, Starsky and Hutch star, dies at 80
--  David Soul, Starsky and Hutch star, dies at 80
--  David Soul, Starsky and Hutch star, dies at 80
--  David Soul, Starsky and Hutch star, dies at 80
--  Iraq prepares to close down U.S.-led coalition's mission
--  Massachusetts voters become latest to try and keep Trump off ballot over Jan. 6 attack
--  Sverige förlorade JVM-finalen mot USA
--  Iran arrests 11 suspects over bomb blasts; mourners demand revenge
--  سفينة هندية تعلن عن عملية عسكرية معقدة أجرتها لانقاذ طاقم سفينة تجارية ..تفاصيل
--  Los chihuahuenses sabemos que ir con Corral no es buena señal: Dirigente del PRD
--  Notowania ropy zaliczyły wzrost
--  Criciúma acerta contratação de lateral com passagens pelo Flamengo e Copa do Mundo
--  Los científicos han invitado formalmente a extraterrestres a visitar Kentucky
--  Lo mejor y lo peor de la serie de Netflix The Crown: la última temporada llegó a su fin y esto dice la crítica
--  10 jogos clássicos que completam 20 anos em 2024 e você não sabia
--  Verizon提出1億美元和解方案，客戶可申請退款
--  Pri havárii lietadla v Karibiku zahynul herec známy z Kobry 11
--  Sask. Pride groups say MLAs not responding well to constituents on pronoun law concerns
--  Wonderful Athy three-bed home has been meticulously refurbished
--  Epstein davasında yeni dosyalar paylaşıldı
--  Brasil suma problemas: Fernando Diniz dejó de ser el entrenador de la selección
--  David Soul married five women, including a Louisiana beauty queen at 21, three American actresses, and a British PR girl 30 years younger
+-  Câmara de Sinop devolve R$ 3,7 milhões para prefeitura
+-  Sondazhi/ Shumica e shqiptarëve nuk i çojnë fëmijët në aktivitete kulturore
+-  وزير إسرائيلي يدعو لإيجاد طرق أكثر إيلاما من الموت للفلسطينيين
+-  وفد من عائلات الأسرى الاسرائيليين يصل لقطر
+-  Biden acusa a Trump de sacrificar la democracia de EEUU por poder
+-  Ubjedljiv poraz bh. rukometaša protiv Švicarske
+-  Außerirdische in einem Einkaufszentrum in Miami? Polizei sagt „lol“
+-  The Latest Gems: Top Picture Books and Novels for Kids and Teens
+-  Cultura de Córdoba: a casi un mes del cambio de gobierno, no han designado autoridades
+-  Sweet revenge: U.S. beats hosts Sweden for world junior gold
+-  ŠA UPUTIO JAVNE PRETNJE "ZVEZDI GRANDA" Nakon što je Miona otkrila da ju pevač muvao, on se oglasio i obratio se reperu: "ČEKAM TE DA TI OBJASNIM SVE ŠTO TREBA"
+-  NACHBÖRSE/XDAX -0,0% auf 16.590 Punkte
+-  Odluka o stikerima: Kramon – korak ka de fakto priznanju, Beograd – samo ispunjavamo preuzete obaveze
+-  Mets claim infielder Diego Castillo off waivers from Diamondbacks
+-  How to buy bonds
+-  Bh. rukometaši poraženi od Švicarske sa 39:21
+-  Dışişleri Bakanlığı'ndan BM'nin Kıbrıs atamasına ilişkin açıklama
+-  Christian Cueva denuncia que no puede operarse aún por culpa de Alianza Alianza Lima
+-  Federal Circuit Affirms Sweet Win for SweeGen in Patent Invalidity Battle
+-  Tu objetivo es encontrar el valor que falta en la imagen en solo 8 segundos
+-  Las ventas de coches eléctricos e híbridos en Brasil crecerán un 60% en 2024, según un grupo industrial
+-  Braziliaanse verkoop elektrische en hybride auto's groeit met 60% in 2024, zegt industriegroep
+-  Laut Branchenverband soll der Absatz von Elektro- und Hybridautos in Brasilien bis 2024 um 60% steigen
+-  Le vendite di auto elettriche e ibride in Brasile cresceranno del 60% nel 2024, dice il gruppo industriale
+-  You’d never think my crispy chicken & mac ‘n cheese recipe could’ve helped me lose 100 lbs – a week’s worth cost $27.33
+-  La soia crolla per la terza settimana a causa delle piogge in Brasile; il mais tocca il minimo contrattuale
+-  La soja cae por tercera semana por las lluvias de Brasil; el maíz alcanza el mínimo del contrato
+-  Soja zakt voor derde week door regen in Brazilië; maïs raakt dieptepunt contract
+-  Soja sinkt in der dritten Woche wegen Regens in Brasilien; Mais erreicht Vertragstief
+-  17-year-old girl reported missing, possibly in crisis in Lakewood
+-  Berliner Möbelhaus hat die Preise kurzfristig massiv gesenkt
+-  Kinder der „Block House“-Erbin sind zurück bei ihrem Vater | NDR.de – Nachrichten
+-  Kommunikationsdaten liefern neue, bittere Details
+-  Orlen dla Elżbiety Bieńkowskiej?
+-  AFP 2024: CONSULTE en qué fondo de pensiones tienes tu dinero y cuánto es el monto acumulado
+-  Nick Carter: la dolorosa carta del vocalista de los Backstreet Boys a su hermana fallecida Bobbie Jean Carter
+-  مدينة طبرقة وجهة فرق أوروبية خلال التوقف الشتوي
+-  The best beard trimmers in 2024
+-  Kathua to get largest hatchery to increase chicken production
+-  Mushuc Runa busca el regreso de Jonatan Bauman tras su irregular paso por Barcelona SC
+-  Fans baffled as referee dishes out very rare punishment to Wolves star after horror tackle in FA Cup game with Brentford
+-  ¿Se extiende el período de Sesiones Extraordinarias? (video)
+-  Aktien New York Schluss: Anleger nach Wirtschaftsdaten verunsichert
+-  Feyyaz Uçar'dan teknik direktör mesajı: Yeni hocayla çıkmak istiyoruz
+-  Kirli emelleri ortaya çıktı: Terör devleti İsrail Gazzelileri Ruanda ve Çad'a göndermeyi planlıyor
+-  Infecciones por gripe y COVID empeoraron durante las fiestas de fin de año en EEUU
+-  Hajduk pred dogovorom s velikim talentom: Iz kluba bi trebao otići igrač koji je tek stigao
+-  Franţa şi Iordania au paraşutat 7 tone de ajutoare umanitare în Fâşia Gaza, anunţă Macron
+-  ‘르브론‧김연경‧오타니’로 본 샐러리캡과 페이컷 [스한 위클리]
+-  Digital transformation: What it is, why it matters and how to take part, with Sushil Kumar
