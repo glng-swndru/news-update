@@ -1,11 +1,11 @@
 # Latest News
--  Beşiktaş'ta Necip Uysal şoku!
--  BM, abluka altındaki Gazze'yi işaret etti: "Ölüm ve çaresizlik yerine dönüştü"
--  Bin pişman oldular! Büyük Fred krizi
--  Fenerbahçe'ye Fred müjdesi! Cezası açıklandı
--  女 배구 현대건설, 승점 50 고지 최선착…대한항공은 1위 우리카드 격침
--  Jackery Unveils Revolutionary Green Energy Innovations at CES 2024: Introducing Solar Generator Mars Bot and Solar Generator for Rooftop Tent
--  DNA Exclusive: Will Kim Jong-Un`s Actions Trigger A Third World War?
--  Műtrágyát szállító uszály ütközött egy Duna-hídnak, rakománya hatalmas halpusztulást okozhat
--  Tanítanék Mozgalom: Az Orbán-kormány végig hazudott, a tanárokat újra megvezették
--  Quebec man sought by U.S. after pregnant Mexican migrant dies crossing border
+-  Operación 'Apolo': 166 detenidos y decomiso de 8 armas
+-  Nuevas rebajas en el precio de los combustibles a partir de este lunes
+-  The third cricket test between Australia and Pakistan's flipped back the way of the hosts after 11 wickets fell after tea on day three at the Sydney Cricket Ground
+-  "تطور جديد" بقضية داني ألفيس.. فيديو يسبب أزمة
+-  Марек с декларация след скандала със залата в Дупница
+-  Ella Dvornik otkrila koliko je zaradila od razvoda s Charlesom i koliko često ide psihologu: ‘Dobro je...‘
+-  Actor Christian Oliver, 2 daughters die in plane crash
+-  Yellen: US Economy Has Achieved a ‘Soft Landing’
+-  Beşiktaş sahasında yine kayıp!
+-  Tahkim'den Fenerbahçe'ye müjde! Fred...
