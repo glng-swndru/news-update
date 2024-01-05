@@ -1,51 +1,11 @@
 # Latest News
--  ‘Golden Bachelor’ Alum Kathy Swarts Stole the Show at Gerry's Wedding
--  Ant and Dec fight back tears as Limitless Win game turns emotional and Hollywood star makes surprise appearance
--  Marcos Leonardo apresenta-se aos adeptos e jogador do Real Madrid reage
--  I didn’t take my watch off for forty years – I was floored to learn it was worth more than a sports car
--  Kızıl Goncalar dizisine RTÜK'ün kestiği ceza dünyaca ünlü Fransız gazetesine haber oldu
--  El primer “neobanco” de Venezuela abrirá en el primer trimestre del año
--  Jeux Olympiques de Paris 2024 : l’Équipe de France féminine participera au TQO pour se chauffer, douze joueuses sélectionnées !
--  Nigerian military authorities claim troops killed 43 suspected terrorists in one week
--  Perder gordura nos braços? É difícil, mas estas dicas ajudam
--  A 'recuperação' de Richarlison no Tottenham e o que você precisa ver pela ESPN no Star+
--  Ednaldo liga para Casares atrás de Dorival, escuta condições e papo ainda não evolui; veja bastidores
--  Jack Black continues to collect videogame movie roles like Infinity Stones after being cast in the Minecraft movie
--  7 days of rain: How much did your city get during new year’s storms?
--  Investigan la muerte de un hombre en una zona rural de Lleida
--  Investigan la muerte de un hombre en una zona rural de Lleida
--  Sharad Mohol shot dead in Pune: Read about the gangster suspected of killing Indian Mujahideen terrorist in jail using the drawstring of his pyjama
--  Három év letöltendő börtönt kapott Gánt korábbi fideszes polgármestere
--  Fejenként egy ezrest fizet a Vodafone az ügyfeleinek a keddi szolgáltatásleállásért
--  Gabriela Guillén sale de casa por primera vez tras dar a luz y se rompe ante la prensa: "Lo que ha pasado no lo voy a permitir"
--  Tesla To Recall 1.6 Mn Cars To Fix Autopilot, Reduce Risk Of Collision
--  Pakistan’s Debt Burden Mounts To $228 Bn: Report
--  ГЕРБ вижда Асен Василев като вицепремиер в кабинета след ротацията
--  Associação de USF diz que a estratégia de vacinação em farmácias falhou
--  Schummeln, Klüngeln und Bützen erlaubt: Zeltaufbau und Endspurt zur Proklamation in Bornheim-Merten
--  Plus de 4.100 migrants sénégalais ont débarqué à Dakhla en 2023
--  Pont-Évêque. La ludothèque va réaménager ses espaces de jeux
--  Transfer: Why Arsenal could fail to sign Arteta’s top target – Ray Parlour
--  Este sábado iniciará el Grito de Carnaval en El Callao
--  Chuzelles. Janvier : vœux du maire et assemblées générales des associations
--  Vernioz. Centre social Oviv : trois jours d’animations pour lancer l’année
--  Les Roches-de-Condrieu | Condrieu. Guillaume Thierry apprivoise l’inox et le transforme en œuvres d’art
--  US says it monitors situation to curb terrorist threats from Afghanistan
--  Estudo calcula mortes causadas por hidroxicloroquina durante a pandemia
--  Former police officer who defended US Capitol to run for Congress
--  Empty and neglected San Jose office building faces foreclosure as property woes widen
--  Acciai Speciali Terni, premio di risultato: busta paga più ‘pesante’ per i lavoratori
--  Non-league football pitch completely underwater with only goalposts visible after Storm Henk causes mayhem
--  러 선관위, 3월 대선서 푸틴의 경쟁후보 2명 등록 승인
--  I played with Gareth Bale and in Premier League and all EFL divisions but now want to lead Gillingham to FA Cup shock
--  Bungalovların yılbaşında doluluk oranı yüzde 91'i geçti...
--  أعراض هضمية تساعد في تشخيص سرطان يصيب النساء
--  بعد سنوات من وفاته.. محكمة إيطالية تُبرئ مارادونا
--  دراسة تكشف تأثيرا خطيرا لملح الطعام على صحة الكلى
--  بعد الانتقادات.. غوغل تبدأ بالتخلي تدريجيا عن أدوات التتبع
--  محام هولندي يلاحق أجانب يقاتلون لجانب الاحتلال في غزة
--  F1-pomolle puuhattiin potkuja - tilanne sai yllättävän käänteen
--  HJK:n maalitykki Englantiin - Klubi saa merkittävän siirtokorvauksen
--  Neuer Charts-Rekord für Udo Lindenberg und Apache 207
--  Марадона беше оневинен след смъртта си по обвинение в укриване на данъци
--  Todos los detalles: ¿Cómo será la pretemporada de River en Estados Unidos?
+-  Son dakika. Fenomen Talu çifti tutuklandı
+-  Chelsea trio could leave in January transfer window to satisfy Financial Fair Play and it could infuriate fanbase
+-  FGR iniciará procesos judiciales en contra cabecillas de la MS
+-  هنية يوجه رسالة لبلينكن - فيديو
+-  جندي إسرائيلي سابق: جيشنا يستخدم الفوسفور الأبيض في غزة ولبنان - فيديو
+-  भगवान राम पर विवादित टिप्पणी करने वाले NCP नेता पर FIR, गिरफ्तारी की आशंका
+-  Hizbullah lideri Nasrallah: Bir fırsat ile karşı karşıyayız
+-  Pega al turismo el súper peso
+-  Asesinatos, maltrato y arrestos, abusos de la GN
+-  Alertan por pavimento congelado en Cuauhtémoc
