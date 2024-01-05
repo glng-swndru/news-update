@@ -1,11 +1,51 @@
 # Latest News
--  Vrau të dashurën pasi e ngatërroi me një hajdut, lirohet nga burgu ish-kampioni paraolimpik
--  KIM: újraindul az Apáczai Ösztöndíjprogram
--  स्वाति मालीवाल जाएंगी राज्यसभा, आम आदमी पार्टी ने संजय सिंह और एनडी गुप्ता के नाम पर भी लगाया मुहर
--  Кеннеди в Белом доме: датские банкиры предсказали, что ждёт мир в 2024 году
--  Novosti za roditelje budućih prvašića. Prvi put u cijeloj županiji bit će e-upisi za osnovnu školu
--  하이키, 19일 컴백 확정…2024년 첫 신곡 발매 [공식]
--  DGB유페이, 대구 복음양로원에 자원순환 수익금 200만 기부
--  “동생 세 명 사망” 닉 카터 “갑작스러운 죽음, 상실감 극복 평생 걸릴수도”[해외이슈]
--  네이버페이, 10개 금융사와 제휴한 ‘주담대 갈아타기’ 출시 예정
--  강릉 급발진 의심 사망 이도현군 율곡초 명예졸업… "졸업장 보면 흐뭇하게 웃을 것"
+-  Telefon ve bilgisayar gözü kurutuyor
+-  Fed'in yeni yılda faiz indirimi ne zaman başlayacak? Yol haritasında sisli görünüm
+-  Boys Like Girls To Perform In Malaysia This Coming April
+-  Trauerfeier: Abschied von Wolfgang Schäuble
+-  Erkenntnisse aus dem CNN-Rathaus mit DeSantis und Haley
+-  Mahira Sharma visits Mahakaleshwar temple in Ujjain
+-  Boku nomme Neal au poste de PDG après le départ à la retraite de Prideaux
+-  Le directeur de Man Group quitte le conseil d'administration pour prendre la tête de la Banque fédérale américaine de St Louis
+-  SA premier resists calls to fire health minister
+-  التصعيد حتمي جنوباً.. الردّ على مرحلتين؟
+-  राजस्‍थान विधानसभा अध्‍यक्ष देवनानी से राज्‍यमंत्री खर्रा की शिष्‍टाचार मुलाकात
+-  Argentiinan uusi presidentti nykäisi moottorisahansa käyntiin
+-  China calls for 'restraint' from all parties after N. Korea shelling
+-  Na Mikovíniho ulici v Trnave horeli večer staré pneumatiky, nebolo to prvýkrát
+-  Ovo su kandidati za nasljednika Hrvoj Šipek: Tu su neka zanimljiva imena
+-  United Cup Quarterfinal Highlights: Maria Sakkari v Angelique Kerber
+-  United Cup Quarterfinal Highlights: Maria Sakkari v Angelique Kerber
+-  Melbourne ice cream shop gutted in arson attack
+-  Calls for safety review of SA tourist train
+-  Man accused of murdering man with disability faces court
+-  Epstein ofereceu recompensa para refutar alegações de que Stephen Hawking teria feito 'orgia' com menores
+-  "태영건설 890억 지원 없으면 워크아웃 없다"
+-  Betreiber deutscher Gas- und Wasserstoffspeicher warnen vor einem überlasteten Wasserstoffnetz – DER SPIEGEL
+-  इजरायल-हमास संघर्ष: भीषण लड़ाई के बीच गाजा में मरने वालों की संख्या बढ़कर 22,438 हुई
+-  Putevi mokri i klizavi, smanjena vidljivost
+-  Oskar Pistorijus: Bivši paraolimpijac uskoro na uslovnoj slobodi
+-  Taux : Le pari du vendredi qui agite Wall Street
+-  Filmtheater haben sich 2023 wieder gefüllt
+-  Експерти настояват за пренаписване на еврорегламента за ГМО-растенията
+-  Özdemir zu blockierter Fähre: "Denen geht's nicht um die Landwirtschaft"
+-  스카이입시교육학원 대치동점, 2024 서울대 연세대 서울교대 파이널 정시 MMI 면접 개강
+-  오픈AI, GPT-4 기반 앱 마켓플레이스 ‘GPT스토어’ 내주 공개
+-  Mantåget AB – nytt företag startar i Örnsköldsvik
+-  Riki Rubio napušta Klivlend i vraća se u Španiju
+-  산은 "태영, 자구계획 불이행 하면 11일 워크아웃 개시 불가"
+-  उधमसिंह नगर पुलिस ने ड्रग्स के साथ 3 को पकड़ा
+-  ลุงเจ้าของรถกระบะเผยนาทีระทึก รถพ่วงเสียหลักพุ่งชนท้ายต่อหน้าต่อตา
+-  European stocks see red at the open to start the day
+-  BREAKING: Revolution will be closing eight bars across UK after cost of living strain - full list
+-  «Международных стартов почти нет, ставки надо сокращать, а куда людям податься?»
+-  بوريل يتوجه إلى لبنان سعيا لتجنب التصعيد
+-  Influenza: Die Grippewelle hat begonnen – wer ist besonders wahrscheinlich, sich anzustecken?
+-  조국 "'尹 파면' 부칙조항 포함 '해고개헌', 국민투표서 무조건 통과"
+-  음주측정 거부 이틀 뒤 또 음주운전…간 큰 대전시 간부 공무원
+-  한동훈 "공관위원장에 판사 출신 정영환…제2부속실 설치에 '공감'"
+-  [인사] 안동시
+-  นายก อบจ.แพร่และนายก อบจ.น่าน ลงพื้นที่จังหวัดน่าน
+-  鴻海12月營收月減29.2%
+-  لماذا تضعف الرؤية بعد الأربعين وما العمل؟
+-  華通12月營收月減17.2%
