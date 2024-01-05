@@ -1,11 +1,51 @@
 # Latest News
--  İlk atandığı okuldan 44 yıl sonra emekli oldu
--  Bingöl'de 1 yılda 38 milyon 818 bin kök kenevir ele geçirildi
--  Sakarya'da içme suyu kalitesini artıracak çalışmalar tamamlandı
--  Trabzonspor, Ankara'ya gitti
--  Sosyal belediyecilikte öncü şehir Sakarya
--  Zafer Partisi Bursa'dan BUSKİ iddialarına dair açıklama!
--  Sevgilisini öldüren sporcuya 11 yıl sonra şartlı tahliye
--  كأس إفريقيا 2023/ الجزائر- تحضيرات: "المدرب الوطني يطلب تغيير توقيت مباراة الجزائر-بوروندي الودية"
--  Pourquoi la carte d'identité biométrique fait-elle peur ?
--  Palmeiras anuncia contratação de Caio Paulista, ex-São Paulo, como reforço para 2024
+-  La Unión Eléctrica anuncia una reserva de 475 MW para el horario pico de este viernes
+-  토트넘에서 뛰지도 못하는데? 다이어 뮌헨 이적 급물살...뮌헨 전문가 “구두 합의 완료”
+-  35 yıldır kumar oynadığını itiraf eden Serdar Ortaç neler kaybettiğini açıkladı
+-  Minister sprawiedliwości: Kamiński i Wąsik skazani, skutkiem wygaśnięcie mandatów
+-  Forest Guard With Unaccounted Cash Of Over Rs 1.5 Lakh Arrested In Odisha’s Nabarangpur
+-  Илиан Илиев с категорично становище за Алекс Колев! Бивш играч на Локо спря с футбола
+-  موفدون دوليون في بيروت يخترقون «الضبابية اللبنانية» لتطويق احتمالات توسع الحرب
+-  «ميرسك» تحوّل سفنها بعيداً عن البحر الأحمر «في المستقبل القريب»
+-  Пекин разрешил празднование Рождества, продвигая при этом радикальный коммунизм Мао
+-  Langenzersdorfer Buswartehäuschen werden klimafit
+-  MasterChef, la concorrente Anna ha occhi (a cuoricino) solo per Locatelli: così la farmacista elogia lo chef stellato – Video
+-  El frío gélido se mantiene en Rusia y Escandinavia, donde siguen los problemas de tráfico
+-  La reaparición pública de Charly García: fotos con los fanáticos y guiños a Pappo y Los Beatles
+-  घने कोहरे एवम शीट लहर के मध्य में आदिवासी बच्चो एवम महिलाओ की सेवा
+-  Allegados y compañeros de partido dan el último adiós al político alemán Wolfgang Schäuble
+-  Giannis y LeBron lideran votos para el All-Star Game
+-  Книга за родството между нацизма и комунизма
+-  914 kişilik meslek lisesinin tek kız öğrencisi
+-  Konya'da vatandaşlar, buldukları para ve cüzdanı zabıtaya teslim etti
+-  Prijzen van basisvoedsel 10 procent lager dan een jaar geleden
+-  Спортист Своге стартира зимната си подготовка
+-  Nebelstimmung an der Donau
+-  LEBENSPRAKTISCH UND PRAXISORIENTIERT
+-  A major paradigm shift has taken place in the energy sector, says Tikehau Capital
+-  Az idei első téglási babát köszöntötték
+-  Salzburger Schriftstellerin Helena Adler verstorben
+-  Test: Google Chrome schakelt bij 1 procent gebruikers cookies uit
+-  „Þétt umferð alveg frá opnun“
+-  Futbolista niega estar en lista de clientes del caso Jeffrey Epstein por abuso sexual
+-  French Spending Watchdog Accuses British Of Providing ‘Piecemeal’ Intelligence on Small Boat Crossings
+-  আদালতে ধোনি, করলেন ১৫ কোটি রুপির মামলা
+-  Spendenübergabe Firma Gnant
+-  Soccerladuma | Khune Unfazed: Chiefs Star Finally Breaks Silence
+-  US Economy Adds 216,000 in December to Finish 2023 With Strong Labor Market
+-  Petro devuelve al caicedismo empresa que presta servicio de agua en Santa Marta
+-  Wochenenddienst Bezirk Gänserndorf
+-  Paolo Espino gana premio Lanzador del Año de LIDOM
+-  Altının Kilogramı 3 Bin 497 TL Geriledi
+-  ONLINE: Biatlonistky jedou v Oberhofu sprint. Davidová dvakrát chybuje
+-  ONLINE: Biatlonistky jedou v Oberhofu sprint. Davidová dvakrát chybuje
+-  W miastach będzie więcej zieleni. Nowe pomysły samorządów
+-  Studiu: Ozempic și Wegovy nu sunt asociate cu o creștere a numărului de cazuri de gânduri suicidare
+-  Three Rescue Dogs Spotted Napping Together in Shelter Melt Hearts
+-  Nearly 300,000 lives could be saved in the next decade if states followed California’s example on gun laws, study says
+-  Just three rate cuts in 2024 could actually tighten financial conditions, says economist
+-  Tischtennis: Ein kurzer Weg mit hohen Hürden
+-  Messi'nin takım arkadaşından Türkiye'ye yeşil ışık
+-  Божиќни донации од НЛБ Банка под мотото „Свет полн со добрина е свет полн со можности“
+-  Az Epstein-ügy újabb dokumentumait hozták nyilvánosságra, Bill Clinton neve ismét előkerült
+-  Több mint tízezer igazgatási dolgozó maradhatott ki a rendvédelmisek béremeléséből
