@@ -1,51 +1,11 @@
 # Latest News
--  [“2026년부터 EU ‘디지털 제품 여권’ 도입…韓 기업 대응 서둘러야”
--  [SK스페셜티, ESG 평가서 최고등급 ‘AA’ 획득
--  [속보! 투자자 김모씨 '이것' 덕분에 고수익 달성!
--  [41세 김아중"결혼,그런 행운 나한테도 있었으면…"
--  [신협, 출자금 비과세 한도 2000만원으로 상향
--  [“예금에 넣은 돈 꺼낼 때” 4대 은행 PB, 2024년 자산관리 전망[머니뭐니]
--  [러, 우크라戰 ‘자국군 복무’ 외국인에게 시민권 준다
--  [서울서 ‘겨울 절정’ 1월 화재 최다…5년간 2629건
--  [기아 EV9, ‘북미 올해의 차’ 수상 쾌거…현대차그룹 역대 8번째
--  [1월 졸업식에 책가방 구입도 빨라져…롯데온, 신학기 행사
--  [싸게 파니 잘 팔리네…이마트24, ‘가격 동결’ 3월까지 유지
--  [묻지도 따지지도 않고 월 0%대 금리로 대출 가능!
--  [美 뉴욕서 지하철 열차 간 추돌 사고…20여 명 부상
--  [美의원들, 현대차 등 무노조 자동차업체에 “노조 결성 방해 말라” 주문
--  US will play Sweden for the World Juniors gold medal after beating Finland in the semifinals
--  소득공제율 40%→80%...전통시장에 부는 '이른 봄바람'
--  تقارير.. كانسيلو خارج السوبر الإسباني للإصابة
--  أتلتيك بلباو يهزم إشبيلية ويتقدم إلى الثالث
--  UAT reanuda actividades administrativas tras vacaciones decembrinas
--  Reyes Magos en alcaldía Álvaro Obregón se adelantaron para entregar juguetes a niños
--  OOTD 5 Selebriti Saat Umrah di Tahun Baru, BCL dan Febby Rastanty Kenakan Tas Branded Puluhan Juta!
--  Menparekraf Sandiaga Uno: Libur Nataru 2024 BerKontribusi Rp120 Triliun pada Perekonomian Nasional
--  Un muerto y cinco heridos deja tiroteo en escuela de Iowa, EE.UU.
--  LG CNS, 과기부 표창 수상...데이터센터 운영 역량 인정
--  New York City subway train derails in collision with another train, injuring more than 20 people
--  Eli Lilly warns against 'cosmetic' use of popular diabetes, obesity drugs
--  독립리서치 밸류파인더, 산업리포트 유료화 선언
--  Taylor Swift allegedly recorded a vault track with ex Matty Healy for 1989 (Taylor's Version) - before scrapping his verse after their split
--  Apoya Amanc a 210 menores con tratamientos contra el cáncer
--  पूर्वाधार विकास र सडक यातायात
--  Google must bargain with YouTube worker union, US labor board rules
--  Isabel Gallardo, la coleccionista de recetas
--  Sekjen PSSI Maju Jadi Caleg DPR RI, Bersaing dengan Presiden Borneo FC
--  O teste que deve fazer uma vez por ano para testar a saúde cardiovascular
--  RICHARD LITTLEJOHN: Here's an idea... maybe the Tories should stand down in favour of Reform UK
--  Conselho Nacional do PSD aprovou por unanimidade coligação com CDS e PPM
--  ‘Unfolding police incident’ in Coquitlam prompts road closures
--  Box-Office Upset: 'Sound of Freedom' Bumps Taylor Swift's 'Eras Tour' Movie from 2023 Top 10 Film List
--  Muere a los 100 años la actriz Glynis Johns, la madre de los niños en “Mary Poppins”
--  UK court jails podcast pair for neo-Nazi series
--  Oficial: Benfica confirma Marcos Leonardo como reforço
--  Sean Dyche is hopeful Dwight McNeil avoided a serious ankle injury after Everton winger had to be carried off on a stretcher against Crystal Palace... but admits 'it's too early to tell'
--  पर्यटन प्रबर्द्धनमा इलामेली प्रेरणा
--  Teemu Pulkkiselle syntymäpäiväonnittelut – sen jälkeen tiputettiin kokoonpanosta
--  FC Barcelonalle dramaattinen voitto Kanarialla
--  Israeli defense minister lays out vision for next steps of Gaza war ahead of Blinken visit
--  Malang Betul, Ada Hewan yang Punya Usia Terpendek di Dunia
--  1 injured in ‘isolated’ shooting, Manitoba First Nation Police Service investigating
--  Sunderland apologise for displaying rival's colours
--  新闻报道亲爸贪污受贿 女主播急交棒给同事
+-  Hư Trúc của Thiên long bát bộ đi giao hàng
+-  Trí tuệ nhân tạo dự đoán Asian Cup 2023: Việt Nam có khả năng gây bất ngờ cao nhất Đông Nam Á
+-  K-Pop đẩy mạnh sự đa dạng sắc tộc
+-  Nữ diễn viên phim Việt giờ vàng hot nhất hiện nay tham gia Ai Là Triệu Phú, "sang chấn tâm lý" ngay ở câu hỏi số 6!
+-  Hôn nhân Lưu Hương Giang - Hồ Hoài Anh: Trải qua gần 2 thập kỷ bên nhau, đã ly hôn từ hơn 4 năm trước?
+-  Ronaldo nhận vinh dự chưa từng có trong lịch sử
+-  Nhật Bản: Chạy đua tìm người sống sót dù đã qua 72 giờ vàng sau thảm họa động đất
+-  抢先看，中国经济的三个历史新高
+-  蓄动能 展韧性 显活力 中国经济发展以进促稳、笃定前行
+-  外贸新产品新业态潜力不断释放 中国市场持续增强外资“磁吸力”
