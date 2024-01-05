@@ -1,51 +1,51 @@
 # Latest News
--  Jedan učenik ubijen u pucnjavi u školi u SAD, 17-godišnji napadač...
--  وفيات الجمعة 2024/1/5
--  "Tous les jihadistes du monde veulent qu’un attentat marque la faiblesse de la France", explique Gilles Kepel avant les Jeux olympiques
--  Hadapi Tim-Tim Indonesia Timur, Gresik United Dril Fisik Pemain
--  한동훈, 이재명 측에 병문안 의사 타진…李 측 “당분간 어려워”
--  당정 “지역가입자 ‘자동차 부과’ 건보료 폐지”…이유는?
--  장경태, 이재명 ‘헬기 이송’ 논란에 “권역외상센터, 정말 비상 응급 치료 받아야”
--  고양 이어 양주서도 ‘카페 여주인’ 사망…공개수배 50대, ‘연쇄살인’ 가능성
--  윤석열 정부가 제출한 법안 통과율 29%의 의미 [김동원 쓴소리 곧은 소리]
--  문병호 등 12인 ‘이준석 신당’ 합류…“정부 여당은 입으로만, 야당은 무능”
--  Тренер Кудерметовой рассказал о письме спортсменок против WTA
--  "K-콘텐츠 살아있네"…콘텐츠 수출액 역대 최고, 132억달러 돌파
--  ‘네이버×전북 로컬 브랜드 창업스쿨’ 스타트업 돕는다
--  Watanzania kupewa kipaumbele sekta ya madini
--  Genellikle Uzun Yolda Gördüğümüz Bu Karton Polis Maketleri Gerçekten İşe Yarıyor mu?
--  Alarmları Kurun: İlk Türk Astronotun Uzaya Gideceği Tarih ve Saat Belli Oldu
--  뮤직카우, NCT 드림 ‘ANL’ 옥션 6분 34초만에 상한가 마감
--  [인사] 공정거래위원회
--  Netizen xứ Trung thích thú trước diện mạo món phở gà quán Chi Pu khi mang ship, nhiều người mong có thể "hút chân không"
--  Ανάρτηση από Τσίκο: «Περνάω δύσκολες στιγμές…»
--  Redmi Note 13 series launched in India at starting price of Rs 16,999, other details inside
--  Lubelski Nobel przyznany. Za pracę o autonomii uczelni
--  Qualcomm’s VR Marvel: The Snapdragon XR2+ Gen 2 Platform Unleashed
--  New York'ta iki metro treni çarpıştı: 24 yaralı!
--  Zwischen Freude und Enttäuschung: Was die neue Postfiliale in Flöha bietet und was nicht
--  Was bedeuten die neuen Fleischkennzeichnungen?
--  Graffiti hoch oben an der A 72 bei Wilkau-Haßlau: Wie machen die das nur?
--  Tagsüber bis -12 Grad: Am Wochenende kommt der Winter nach Sachsen
--  檢, '은성수 아들 병역기피' 조력 의혹 병무청 공무원 수사
--  Zuid-Koreaanse eilandbewoners naar schuilkelders na Noord-Koreaanse aanval
--  Trainer Streich hofft auf Freiburger Winter-Transfers
--  Wütende Bauern hindern Habeck am Verlassen einer Fähre
--  থানায় তালিকাভুক্ত ১১ মামলার আসামিকে পুলিশ খুঁজে পায় না
--  لماذا اختفى ملفّ النّازحين فجأةً؟
--  "왜 음주운전 신고를 해"…휘발유 자기 몸에 부어 협박 50대 실형
--  Altında yeni yıl nasıl geçecek? İşte piyasada son durum
--  2024 Ocak ayı aile destek ödemeleri yattı mı, ne zaman yatırılacak?
--  Sjever propada - na jugu nezaposlenih koliko u Beranama
--  Trihineloza: Kako parazit vreba iz svinjskog mesa
--  '위증 혐의' 이귀재 전북대 교수 재판행…검찰, 구속기소
--  Andrijevica: Hiljadu stanovnika manje, urbano jezgro desetkovano
--  СМИ сообщают, что Россия дважды применила северокорейские ракеты в Украине
--  President Tinubu’s New Year speech and prospects contained therein
--  روپے کی قدر بحال،ڈالر مزید سستا ہو گیا
--  BVB-Kapitän Can hofft auf Sancho-Rückkehr
--  Xiaomi Redmi Note 13 – Global Launch Date & Specifications
--  Kaizer Chiefs chasing Nigerian AFCON star
--  When You Race in the Say No to Drugs Holiday Classic, Everyone is the Winner
--  Xerostomie, Dysgeusie, Schleimhaut-Läsionen - Corona zeigt sich auch am Mund – das sind die drei häufigsten Symptome
--  Zamlı emekli maaşları bu tarihlerde hesaplarda! Emekliler hemen bu takvime bakın!
+-  “He doesn’t go cold, a mighty guy”: Aakash Chopra praises Bumrah following win over South Africa
+-  박진효 SK브로드밴드 사장 "일회용품 제로 함께해요"
+-  라온시큐어, '라온 메타데미 2.0 공개'…실습 효율성 높였다
+-  [IT진맥] 게임위 넋 나갔나...다크앤다커 심의가 '이용자 피해' 때문이라니
+-  दुई हाइड्रोपावर कम्पनीको शेयर मूल्य समायोजन
+-  “Valuable lessons”: Yashasvi Jaiswal on India’s win over South Africa in 2nd Test
+-  Stephanie Lose vil være folketingskandidat på hjemmebanen
+-  Stephanie Lose vil være folketingskandidat på hjemmebanen
+-  EPL: Seaman defends struggling Arsenal star, names Arteta’s real problem this season
+-  Nga Lindja e Mesme tek SHBA, Kutia e Pandorës për 2024-ën
+-  Izabel Goulart: Heißer Auftritt unter Palmen! Ihr Shirt ist plötzlich durchsichtig
+-  DEBATT: Ordet kärring kommer ursprungligen från käring
+-  Zamların ardından indirim geldi! Akaryakıtta bir devir sona erdi! (5 ocak 2024 motorin-benzin-LPG güncel fiyatları)
+-  Άρης: Σε πρώτο πλάνο ο Γάλλος Πιέρ Κορνούντ για το αριστερό άκρο της άμυνας
+-  Vico Therapeutics maakt een Serie B-financiering van $60 miljoen (€54 miljoen) bekend om het VO659 klinische-fase programma voor zeldzame neurologische ziekten te bevorderen en nieuwe mogelijkheden uit te breiden
+-  Vico Therapeutics Announces $60 million (€54 million) Series B Financing to Advance VO659 Clinical-Stage Program for Rare Neurological Diseases and Expand Pipeline
+-  Mental health services 'at breaking point' as psychosis calls double
+-  Ukraina Lancarkan Serangan Udara dari Krimea sampai Belgorod, Hasilnya?
+-  더존비즈온, 온라인 대출모집법인 라이선스 획득
+-  রাজধানীর প্রবেশমুখে র‌্যাবের চেকপোস্ট
+-  কোথায় শৈত্যপ্রবাহ, কোথায় বৃষ্টির আভাস জানুন
+-  যুক্তরাষ্ট্রে স্কুলে বন্দুকধারীর গুলিতে সহপাঠী নিহত, আহত ৫
+-  টি-টোয়েন্টি বিশ্বকাপে সবচেয়ে ‘কঠিন’ গ্রুপে বাংলাদেশ, প্রতিপক্ষ যারা
+-  এক ব্যক্তির ইচ্ছায় নির্বাচন হচ্ছে, ফলাফলও এক ব্যক্তির ইচ্ছায় নির্ধারিত: মঈন খান
+-  Drug gangs clash
+-  Putin offers faster citizenship to foreigners who fight for Russia
+-  নির্বাচনের দুই দিন আগে ভোটকেন্দ্রে আগুন
+-  নির্বাচনের দুই দিন আগে ভোটকেন্দ্রে আগুন
+-  Арестован тренер суперзвезды бокса. Выдвинуты серьёзные обвинения
+-  «Актобе» подпишет футболиста сборной Беларуси
+-  Inflatie gedaald tot bijna een procent
+-  Əməkdar artist xəstəxanaya yerləşdirildi – FOTO
+-  Sanwo-Olu and one-way riders
+-  South African athlete Oscar Pistorius to be released on parole after nearly 9 years in prison
+-  Najave događaja za 5.1.2024. godine (petak)
+-  BIHAMK - Pojačan promet na graničnim prijelazima na izlazu iz BiH
+-  Sjeverma Koreja ispalila artiljerijske granate u blizini južnokorejskih otoka
+-  고대의대, 미토콘드리아 유전질환 동물 모델 개발
+-  HD한국조선해양, 초대형 LPG운반선 2척 3032억 원에 수주
+-  PMI Siagakan Tiga Unit Ambulans Bantu Evakuasi Tabrakan Kereta di Cicalengka Bandung
+-  Liječnica otkriva kako prepoznati koji ste virus pobrali i kako se liječiti: 'Sezona je respiratornih infekcija'
+-  AS Gagalkan Serangan ke Pangkalannya di Suriah
+-  2024 대한민국을 이끄는 외식 트렌드 [신간]
+-  Australia Just Recorded The 5th Hottest Year And 4th Hottest December On Record
+-  Megdőlt a melegrekord, Bátán 16,4 fokot mértek csütörtökön
+-  Aracı Olanlar Dikkat: ÖTV Zammı Sonrası Akaryakıta İndirim!
+-  Elazığ’da sokak satıcılarına operasyon: 4 gözaltı
+-  سیکیورٹی فورسز کا ٹانک میں آپریشن، 2 دہشت گرد جہنم واصل
+-  Lice Stefa Karija posle trojke Jokića sa pola terena sve govori - karma ošamarila i Stiva Kera /VIDEO/
+-  Sirimiri: Bolsas con heces de perro de Manteo
