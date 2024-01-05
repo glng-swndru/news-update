@@ -1,51 +1,11 @@
 # Latest News
--  สถานทูตไทยในกรุงโซล เตือนระวัง “เกาหลีเหนือซ้อมรบ”
--  El 'fast track' se posiciona como base para agilizar el uso de IA en el SNS
--  Pas mungesës prej 6 muajsh në parlament, Ahmetaj humbet mandatin, kush pritet ta zëvendesojë
--  30-градусные морозы и сильный снег ожидаются в Казахстане
--  Passenger 'is found dead in plane toilet during flight from Tenerife to Manchester'
--  Jeździł po Przemyślu „pożyczonym” fiatem. Miał ponad 1,5 promila
--  May masisibak
--  The best-selling new cars and brands of 2023: Is your motor among the 10 most popular models?
--  'VVOP Wintercross in ander (regen)jasje gestoken'
--  CP Bzigu Kwazhi assumes duty as Osun State Commissioner of Police
--  বিপিএলের শুরুতে থাকছেন না দেশ সেরা তিন আম্পায়ার
--  Që nga mbrëmë në sulmet izraelite janë vrarë 32 palestinezë
--  Man and woman charged after bodies of two babies found in South Wales
--  Man and woman charged after bodies of two babies found in South Wales
--  Los vecinos de la calle Portón, a la espera «pruebas de presión» del agua
--  Estos trabajadores podrán cobrar la ayuda de casi 500 euros del SEPE en 2024
--  Esto es lo que subirán los salarios y el Ingreso Mínimo Vital en 2024
--  Pljevljak lišen slobode zbog dilovanja narkotika
--  পাকিস্তানে ৮ ফেব্রুয়ারি সাধারণ নির্বাচন হচ্ছে না
--  Anti Money laundering: What the UK’s AML consultation means for compliance professionals
--  Μήνυμα ΑΠΟΕΛ: «Ομάδα μέχρι το τελευταίο δευτερόλεπτο»
--  Writer Antonella Gambotto-Burke launches extraordinary attack on Constance Hall, branding her 'an inarticulate, overweight single mum with bad hair' - before the mummy blogger hits back
--  "جهوزية كاملة"... برقية من خطار إلى الوحدات
--  দিল্লিতে তাপমাত্রা ৭ ডিগ্রি, অনুভূত ২-৩ ডিগ্রির মতো
--  Handball-EM in Deutschland - DHB-Führung: EM als Schlüssel für gesellschaftlichen Erfolg
--  La inflación europea repunta en plena Navidad y disipa una rebaja inminente de tipos
--  El oro cae presionado por la subida del dólar y de los rendimientos de bonos del Tesoro
--  Las bolsas del sudeste asiático cierran con resultados mixtos
--  UMC registra un descenso del 18,94% en sus ingresos de diciembre
--  Tribunal chino acepta solicitud de liquidación por quiebra del grupo financiero Zhongzhi
--  AirNet recibe una notificación de incumplimiento del Nasdaq
--  Najmanje četiri osobe poginule, a desetine povrijeđeno u sudaru dva voza u Indoneziji
--  Neptün ve Uranüs'ün gerçek renkleri ortaya çıktı
--  Pendik'te sitede çıkan yangında 83 yaşındaki kadın hayatını kaybetti
--  Frota de veículos continua crescendo em Sinop e passa de 157 mil
--  کلائی کی گھڑی نے لگ بھگ 24 گھنٹے سمندر میں بہنے والے شخص کی جان بچالی
--  A pocas horas del Sorteo del Niño, podrías tener el número ganador: un mago de Tenerife lo pronostica
--  Miguelito aclaró su relación con Shirley Arica: “Si me hubiera gustado de otra manera se lo hubiera dicho”
--  Josh Cobb to leave Northants by mutual consent
--  Arsenal itavaa jezi nyeupe katika kampeni dhidi ya uhalifu wa visu na vurugu za vijana
--  Uzay filmi izlemek isteyenlere en iyi uzay filmleri (2024)
--  Vučić: Promijenićemo lice Srbije, EXPO za nas velika šansa (VIDEO)
--  S Club 7's Hannah Spearitt lost her home and started suffering panic attacks after the tragic death of ex Paul Cattermole - now she's ready to dance with danger on TV's most perilous show
--  الشيخ دعموش: لا شيء يردع المقاومة عن ما يجب القيام به لحماية لبنان وردع العدو
--  Iraklı polisler Türkçe öğreniyor
--  Nova procjena: Vrijednost X-a i dalje u strmoglavom padu
--  Gazeteci Fatih Altaylı'nın Savcılık ifadesi ortaya çıktı
--  Prens Harry'ye ölüm çağrısında bulunan podcast yayıncılarına hapis cezası
--  لبنان: تقدمنا بشكوى إلى مجلس الأمن ضد الاحتلال بسبب الهجوم على الضاحية الجنوبية
--  Telangana DCA’s raid: Unlicensed factory busted for illegal drug production
+-  איגוד השופטים מודה: יגאל פריד טעה כשלא קיבל את המלצת ה-VAR
+-  חי מליגת העל: הפועל ירושלים - הפועל חיפה 14:14 רבע 1)
+-  ויטור השלים עוד אימון וישוב להרכב הפועל באר שבע נגד ריינה
+-  الداخلية ترفع درجة استعداداتها للحالة القصوى.. وإلغاء الإجازات والراحات لتأمين عيد الميلاد
+-  Idući tjedan radovi na sanaciji ceste na Šubićevcu. Evo kako će se odvijati promet tom dionicom
+-  जवानों से भरी गाड़ी अनियंत्रित होकर पलटी, 15 जवान घायल, 4 गंभीर
+-  UK police say no probe into Prince Andrew over Epstein claims
+-  คอตก! บุกจับ'นายก อบต.บ้านไทย' หักหัวคิวเงินโบนัสพนักงาน 10 %
+-  Барқарор ривожланиш мақсадлари “Ўзбекистон – 2030” стратегияси билан ўзаро боғлиқликда амалга оширилади
+-  İran'da terör saldırısı soruşturması: Gözaltılar var...
