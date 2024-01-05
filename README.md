@@ -1,51 +1,11 @@
 # Latest News
--  Čestitke povodom Badnjeg dana i Božića
--  Priscilla Presley le cambió la vida a Cailee Spaeny
--  Evacúan islas en Corea del Sur ante lanzamiento de misiles norcoreanos
--  FACTBOX-With explosions in Iran, Islamic State attempts a comeback
--  Tesla 1.6 milyon aracını geri çağırdı
--  Bakan Uraloğlu İzmir'e hızlı trenin geleceği tarihi açıkladı
--  How Does a Residential Roofer Differ From a Commercial Roofer
--  جيش الاحتلال يتحدث عن استهداف مواقع لحزب الله
--  Uskoro novi režim: Najveći Hrvatski plinari će morati transakcije unaprijed prijavljivati Europskoj komisiji...
--  북한 해안포 사격에도 서해5도 주민들 의연해
--  유정복 인천시장, 北 도발 긴급회의 소집...주민안전 철저 지시
--  북한 포 사격 도발, 연평도·백령도 대피령 3시간 30분만 해제
--  الجمعية العامة للأمم المتحدة تعقد جلسة بشأن الوضع في غزة الثلاثاء القادم
--  Frauenanteil in Topetagen der Wirtschaft steigt - wirkt die Frauenquote?
--  Frauenanteil in Topetagen der Wirtschaft steigt - wirkt die Frauenquote?
--  Torino, torna Passador dal Rimini: è UFFICIALE
--  Móðir bað um hjálp við að leysa skólaverkefni 6 ára dóttur sinnar – Aðrir jafn forviða og hún yfir spurningunni
--  Rynek redukuje oczekiwania dotyczące cięcia stóp przez EBC
--  New Year, new Europe: Defence strategy, capabilities and technology
--  Əsgər analarına şad xəbər
--  Producent dronów Bayraktar został liderem tureckiego eksportu
--  Nurgül Yeşilçay'dan 'Şampiyonlar Ligi' paylaşımı
--  הפרת סדר: מכבי תל אביב שוב נפלה להתפרקות התקופתית
--  Komşunun canına tak etti! ABD'yi ülkeden kovmak için hazırlıklara başladılar
--  Tam 624 kilometrelik dev proje! Seyahat süresi 14 saatten 3,5 saate düşecek
--  İstanbul-Edirne arası 4 saatten 1 saat 35 dakikaya düşecek! Yeni gelişme
--  לא שה תמים: עברה של נשיאת הרווארד שהתפטרה כולל רגעים אפלים
--  Navigasyon tır sürücüsünü mağdur etti
--  מפעל העופות המוכר נופל קורבן לסחיטה: "העוף יהפוך לסלט"
--  חגיגת "משטובות" ביהודה ושומרון: המבצע החריג של המשטרה נחשף
--  "המחסל של העולם התחתון" מקים מפלגה חדשה: יתחרה בבן גביר?
--  האמת על הפיצויים נחשפת: כך תדעו למי לפנות
--  Reacția mamei Reevei după ce Oscar Pistorius, ucigașul fiicei sale, a fost eliberat condiționat
--  İran: Saldırıları üstlenen DEAŞ, ABD ve İsrail tarafından yönetiliyor
--  המקצוע הגרוע בישראל נחשף: איפה תרוויחו בחודש 5,369 שקל?
--  Insider Look: CES 2024’s Most Awaited AI Announcements You Can’t Miss
--  ලෝ ලෙවල් මාර්ගයේ කොටසක් හෙට වසයි
--  2024'te borsada ne alınırsa gider?
--  يحتل المركز السادس.. «عصابة عظيمة» يحقق 208 آلاف جنيه في أول أيام عرضه بالسينما
--  Nedim Şener yazdı: 445 aktif emniyet mensubu açığa alındı
--  İnşaat Malzeme Üretimi Önceki Yıla Göre Artış Gösterdi
--  الاستعلام عن صحة شاب خليجي أصيب في حادث سير بالمهندسين
--  So reagiert Minister Robert Habeck auf den Angriff der Bauern in Dagebüll
--  So reagiert Minister Robert Habeck auf den Angriff der Bauern in Dagebüll
--  Sony Alpha A7R V full review
--  Wetterdienst hebt Unwetterwarnungen auf
--  Griekspoor zegt toernooi af in aanloop naar Australian Open: ‘Voelt niet alsof ik er helemaal klaar voor ben’
--  “Alarmante”. Espanha teme ser ultrapassada por Portugal no PIB per capita nas próximas décadas
--  GNR realizou 315 transportes de órgãos em 2023
--  La primera jornada de huelga en Iberia deja 11 vuelos cancelados entre los tres aeropuertos gallegos y Madrid
+-  בן כספית לוחם צדק: "הבריונים התנפלו על הרמטכ"ל"
+-  הצעד הבא של OpenAI נחשף: זה המוצר שתשיק בשבוע הבא
+-  ראש של חמור בבית קברות מוסלמי: כתב אישום בפרשה החריגה
+-  אנה זק פותחת בקריירה חדשה: הצעד המפתיע של הכוכבת נחשף
+-  BBL player hit in the head at training and taken to hospital
+-  البطولة: مولودية وجدة يعلن إجراء مباراته أمام الرجاء البيضاوي بدون جماهير
+-  دار الشعر بمراكش تنظم الدورة السابعة ل"تجارب شعرية"
+-  الوكالة الوطنية للسلامة الطرقية تهيب بمستعملي الطريق توخي الحيطة والحذر بسبب سوء الأحوال الجوية المرتقبة
+-  وزراء إسرائيليون يهاجمون قائد الجيش بشأن التحقيق بأحداث 7 أكتوبر
+-  المغرب يتوقع نمو الاقتصاد ب2.4% خلال الربع الأول 2024
