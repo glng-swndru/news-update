@@ -1,51 +1,51 @@
 # Latest News
--  Iran mourns those slain in Islamic State-claimed suicide blasts as death toll rises to 89
--  [112 상황실에 “이재명 대구오면 작업할 것” 전화…경찰 수사
--  [▶▶ 24년부터 전국민 카카오톡 추천주 무료.!
--  [▶▶ 24년부터 전국민 카카오톡 추천주 무료.!
--  Hem adı hem tadı farklı! 11 bin ton üretiliyor 7 ay boyunca bozulmadan duruyor! Irak, İran, Suriye kasa kasa götürüyor
--  강원특별자치도 김진태 지사, 강릉산불피해 이재민 임시조립주택 현장점검
--  [금요극장] 빅 피쉬-팀 버튼 감독 판타지 영화
--  [한국기행] 새해엔 바라는 대로 5부-잘나가는 언니들
--  [스페이스 공감] 스페이스 곳간 - ‘시가 된 노래, 노래가 된 시’
--  EBS '명의' 신년 특집, 고위험 임신 질환...'임신중독증' ‘자궁 내 태아 발육 지연’
--  [세상에 나쁜 개는 없다] 오토바이에 끌려가던 개, 뉴스 속 '한티'는 어떻게 지내고 있을까?
--  [생방송투데이 맛집] ‘소곱창전골’ 맛집
--  임영웅, 콘서트 스태프에 도시락 대신 밥차 대접 … 알바생, 미담 후기 남겨
--  쿠팡, 한국경제 비판 기사에 ‘전면전’ 선언
--  SDA: The functioning of BHRT and FTV must not be called into question
--  Couple fleeced of more than $5000 in rental scam
--  Couple fleeced of more than $5000 in rental scam
--  สับเละ​‘งบฯศธ.​’ ​‘วิโรจน์​’เหน็บยุครมว.ชื่อ‘เพิ่มพูน’ แต่การศึกษาไทยถดถอย
--  'เบียร์ เดอะวอยซ์'โดนปลดฟ้าผ่าซีรีส์ดัง นักแสดงร่วมรับไม่ได้หลังมีปมฉาว
--  ชาวบ้านวังจันทร์ จ.ระยอง ร้องขอสร้างสระเก็บน้ำ หลังภัยแล้งรุนแรง
--  เปิดแชทเต็มๆ! 'หนุ่ม กรรชัย'ทักDMคุยกับ'เบียร์ เดอะวอยซ์'
--  '세기말의 사랑' 이유영·임선우·노재원, 각양각색 매력 넘치는 포스터 공개
--  #Mali : Mariage mixte islamo-chrétien : Des hauts et des bas
--  Boda boda riders sue Ruto’s UDA for misusing them during 2022 campaigns
--  Felipe Anderson Juve, super offerta dall’Arabia! I dettagli
--  Bankalar 2024 promosyonlarını güncelledi! Herkes kaşıkla o banka kepçeyle veriyor: Ziraat, İNG, İş Bankası, BBVA...
--  Bygglov för digital skylt upphävs efter protester
--  Бивш затворник прави купон за освобождаването си, няколко души са в болница
--  KPI Sanksi Program Brownis Tampilkan Lelaki Berpakaian dan Riasan Wanita
--  Бивш затворник прави купон за освобождаването си, няколко души са в болница
--  Бивш затворник прави купон за освобождаването си, няколко души са в болница
--  Para que serve um sonho?
--  Казахстанские борцы выступят на турнире в Хорватии
--  'Kal Raat Sapna Aaya?' Manoj Bajpayee Slams Reports About Him Joining Politics Soon
--  Koncert Petra Graša 9. januara na Dvorskom trgu na Cetinju
--  "Ukloniti sve objekte za privrednu djelatnost iz korita i sa obala rijeke Morače"
--  Michael Malone avait confiance en Nikola Jokic : “Tous les coachs, nous savions que ça allait rentrer”
--  We Might Get An Electric Nissan GT-R By 2030
--  Δανός ρεφ στο ντέρμπι κορυφής! (ΟΙ ΟΡΙΣΜΟΙ)
--  Нормализиран сообраќајот на патот Гостивар-Кичево
--  Reality Star Phyna Reignites Feud with Neo Akpofure, Labels Him a ‘Brostitute’
--  المسطحات الخضراء والزرقاء تقلل عبء الشيخوخة
--  (صيفا أم شتاء؟).. ماسك يتحدث عن فكرة غزو روسيا
--  حسناء تخدع أغنياء ومشاهير من نجوم كرة القدم
--  الاحتلال يستولي على جرار زراعي بالأغوار الشمالية
--  ‘환승연애 3’ 베스티 다혜-동진, 연애 기간 도합 13년… 장기연애 사실이었다
--  Trabzonspor'dan stoper hamlesi! Scott McKenna...
--  Mimecast reduces human risk with acquisition of Elevate Security
--  Grundwasser drückt in Keller von Familie aus Dorsten: „Ich habe geheult“
--  Yaralı atmacaya jandarma ekipleri sahip çıktı
+-  Eindhoven Diving Cup organises banner contest
+-  Korea’s Hancom buys document software firm Clipsoft
+-  Cab service Bolt launches platform also in Eindhoven
+-  기업의 블록체인 사업 진출 돕는 '쟁글'...'ERP'로 회계-유통량-공시 한번에 잡는다
+-  More sinkholes in Eindhoven after heavy rainfall
+-  Британия разгневана действиями КНДР и усиливает украинскую ПВО
+-  Большой переполох в бакинской чайхане
+-  Украина заменяет снаряды дронами
+-  Германия слезам азербайджанцев не верит
+-  Глава МИД Латвии: Путин не остановится
+-  Республиканцы выразили поддержку Трампу
+-  בגיל 43: יעל בר זוהר עושה את זה לראשונה בחייה
+-  בכיר בעיריית ירושלים איחל מוות ליהודים: "לא ידענו"
+-  FN: Ingen humanitär hjälp till norra Gaza
+-  Samsun'da hemşire, 7 sağlık çalışanını dolandırdı!
+-  Požar stana u povijesnoj jezgri Dubrovnika. Smrtno stradao 66-godišnji muškarac
+-  Antalya Gazipaşa'da acı olay: Çıkan yangında yaşamını yitirdi
+-  La Comunidad Valenciana establece el uso obligatorio de la mascarilla en hospitales y centros de salud
+-  الولايات المتحدة تجدد دعمها القوي للتصديق على انضمام السويد إلى حلف الناتو
+-  United Cup: Συνέτριψε την Κέρμπερ η Σάκκαρη
+-  MSB duyurdu: Etkisiz hale getirildiler
+-  34 Mossad ajanı adliyeye sevk edildi
+-  Uzmanlardan dikkat çeken açıklama: Belirti göstermeden bulaşıyor!
+-  الأسهم اليابانية تغلق على ارتفاع اليوم
+-  Davutoğlu'ndan Kılıçdaroğlu açıklaması: Hayal kırıklığına uğrattı
+-  "الغطاء النباتي": زيادة 600% في المساحات الخضراء بمكة المكرمة خلال أشهر
+-  أمانة الطائف تجهز 150 حديقة عامة لاستقبال الزوار خلال الإجازة
+-  الأخضر تحت23 يدشن تدريباته ضمن معسكره الإعدادي في الإمارات
+-  الأخضر يبحث عن استعادة أمجاده في العرس الآسيوي
+-  "ZATO SMO GA DOVELI U ZVEZDU!" Iks faktor koji je zakucao Partizan - Sferopulos MORAO da kaže ovo o njemu!
+-  Новите бизнеси стимулират активността в японския сектор на услугите
+-  Jokić servirao Kariju njegov specijalitet: Trojka sa pola terena za pobjedu
+-  "Zakrpite rupe na Martinićkom putu ili uplatite novac pa ćemo ih mi zakrpiti"
+-  Blagi dani da nas podsjećaju na vrijednosti koje ujedinjuju
+-  Teretni brod udario u most na Dunavu: Zatvoren granični prelaz između Srbije i Hrvatske
+-  Iz otvorene garaže nekretnine u izgradnji na Podmurvicama ukradena dva hidromasažna bazena vrijedna oko 6.000 eura
+-  치질 원인과 증상 그리고 치료 방법
+-  أرقام قياسية.. اقتصادي يزف بشرى سارة بشأن «البورصة» المصرية خلال 2024الأمس الخميس، 4 يناير 2024 04:53 مـ
+-  بنكا الأهلي ومصر يطرحان شهادات ادخار بعائد يصل إلى 27 %اليوم الجمعة، 5 يناير 2024 08:53 صـ
+-  حملات مكبرة لإزالة التعديات ومخالفات البناء بالعبور والشيخ زايد.. «صور»اليوم الجمعة، 5 يناير 2024 09:27 صـ
+-  بعد طرح شهادات الـ 27%.. تعرف على سعر جرام الذهب اليوماليوم الجمعة، 5 يناير 2024 09:01 صـ
+-  موعد تسليم قطع أراضي الإسكان المتميز بمدينة ملوي الجديدةاليوم الجمعة، 5 يناير 2024 08:57 صـ
+-  Atlantic: ВСУ не используют польские танки на фронте из-за российской артиллерии
+-  Ramos: “He visto oportuno parar una falta de respeto porque el sevillismo está muy por encima de las faltas de educación”
+-  小米澎湃OS打造家庭运动互联，手表和电视也能成为一对
+-  All-Ireland contenders CAN withstand absence of former Hurler of the Year, insists young star
+-  Chuyển động Nhà nông 5/1: Đầu tư 430 tỷ đồng cho vùng nguyên liệu mía
+-  Officielt: Freyr Alexandersson på plads i belgisk klub
+-  Muškarci rođeni u ova 4 znaka najbolji su izbor za bračnog partnera u 2024.
+-  Biarritz: ivre, il finit en garde à vue avec sa chèvre domestique
