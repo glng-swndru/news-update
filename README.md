@@ -1,51 +1,51 @@
 # Latest News
--  Demolition work begins on Aberystwyth town centre shop
--  Hatay'da heyelan: 3 yayla evi kullanılamaz hale geldi
--  Diyanet "Kadının çalışması eşinin iznine tabidir" dedi
--  Bursa'da inanılmaz kaza! Tır önüne kattığı otomobili 30 metre sürükledi
--  Kahramanmaraş sallandı!
--  Şeyma Subaşı Dominik'te
--  Германия — Кабельное телевидение дорожает: о чем следует знать
--  CBI nabs man for seeking bribe from firm over report submission for govt subsidy
--  Spesifikasi Huawei Nova 12 dan 12 Pro, Mulai Rilis Hari Ini dengan Chipset Kirin 8000
--  BMKG Prediksi Hujan Intensitas Sedang hingga Lebat Kembali Guyur Jabodetabek Malam Ini
--  House fire kills 2 people in Rawdon, Que.
--  Großbritannien: Premier Sunak will über Termin für Parlamentswahl entscheiden
--  В Казахстане объявили в розыск украинского миллионера
--  Kadırovdan ABŞ-a təklif: Sanksiyaları götürün, əvəzində…
--  Leicester City goalkeeper Daniel Iversen prepares to join Stoke City on loan until the end of the season as the out of favour Foxes stopper undergoes a medical with the Potters
--  حماد يلتقي عمداء أكثر من 20 بلدية من بلديات الساحل والجبل الغربي بمناطق غرب ليبيا.
--  مديرية أمن بنغازي تعلن ضبط أسلحة نارية وقنابل يدوية خلال إستيقافات أمنية.
--  Starsky & Hutch star David Soul dies, aged 80: Actor who won cult status for 1970s TV series and topped the charts with hit 'Don't Give Up On Us' passes away after 'valiant battle for life' - as his heartbroken wife leads tributes
--  تعطل أنظمة النقل مع اتجاه الصقيع في شمال أوروبا جنوبا .
--  البحرية الهندية ترسل سفينة إلى ناقلة استولى عليها قراصنة قبالة الصومال .
--  Musa: U sezoni gripe najvažnija je imunizacija i mjere opće higijene
--  বিএনপি-জামায়াতের হরতাল: ভোটার উপস্থিতি নিয়ে শঙ্কিত নন সাতক্ষীরার প্রার্থীরা
--  নারায়ণগঞ্জের ফতুল্লায় পিকআপ ভ্যানে আগুন
--  মাদারীপুরে মোটরসাইকেল নিয়ন্ত্রণ হারিয়ে গাছের সঙ্গে ধাক্কায় যুবক নিহত
--  Ministarstvo zdravlja Hamasa: U Pojasu Gaze poginulo 22.600 ljudi od početka rata
--  নির্বাচন বর্জনে জবি ছাত্রদলের গণসংযোগ
--  Pogledajte kakve su nekretnine ljudi spremni kupiti: Zapanjujuće koliko košta ovaj stan u Zagrebu
--  3 Berita Liga 1: Borneo FC, Persija Jakarta dan PSM Makassar
--  Дипломатический скандал между Беларусью и Швецией
--  Son dakika haberi: Emekli maaş zammı artacak mı ve en düşük emekli maaşı ne kadar olacak
--  China’s Digital Data Trafficking
--  You couldn't even get your big toe in it!' Parkgoers mock council's 'no swimming' signs next to ponds with water just six inches deep
--  ABD'de işsizlik rakamları açıklandı
--  Nach vierjähriger Zwangspause: Diese Züchter im Erzgebirge dürfen wieder edles Rassegeflügel zeigen
--  Rotorblatt für Mittelsachsens höchstes Windrad: 90-Meter-Riese durch das Nadelöhr gelenkt
--  Neue Elsterbrücke in Plauen ab Montag für Verkehr komplett gesperrt
--  Ďalšia tragédia v Bratislave: V Národnom onkologickom ústave vyskočil z okna pacient
--  Tötung von Hamas-Anführer: Vergeltung erneut angekündigt
--  Suspect arrested for hitting dog with umbrella at Saratoga park
--  Баскетболисты "Пари НН" сыграют на выезде в Саратове
--  ΑΕΚ: Ανοίγει το πάνω διάζωμα στα Άνω Λιόσια για τον Ολυμπιακό
--  Storm Henk chaos deepens: Now -6C deep freeze is on way after cows drowned, 1,000 homes were evacuated and rail lines and roads became rivers in flood crisis
--  EastEnders legend reveals surprise friendship with Traitors ‘villain’ Paul
--  İstanbul'da 361 cinayet aydınlatıldı
--  Ebu Ubeyde'yi anlamak
--  Eğitim uçağı tarlaya zorunlu iniş yaptı! 1 kişi yaralandı
--  Eljif Elmas'tan transfer itirafı: RB Leipzig benim için iyi bir seçenekti
--  Eminönü-Üsküdar feribotu arıza yaptı! Yolcular mahsur kaldı
--  Bakan Ersoy, Side Antik Kenti'ni ziyaret etti
--  Borrell: Almanya, İsrail'e yaptırım uygulanmasını kabul etmez
+-  وزير الصحة: تنمية قدرات العاملين من أولوياتنا لتحسين الخدمات المقدمة للمواطنين
+-  "حكم عليه في جلسة صلح مع مراته".. شاب يقتل عمدة قريته بعد صلاة الجمعة بالدقهلية
+-  موسم الخير.. شاهد رحلة القصب من الأرض لمصنع السكر في أسوان- فيديو وصور
+-  جوارديولا يكشف موعد مشاركة هالاند مع السيتي
+-  30.3 % انخفاضا بصافي الاستثمار الأجنبي المباشر بمصر بالربع الأول من 2023-2024
+-  سيدة تكتشف إصابة طفلتها بالخرف المبكر بهذه الطريقة
+-  هل يفعلها مجددًا؟.. لافيينا يضم الويشي في رحلة الصعود للممتاز
+-  نفاد تذاكر يناير لمعرض "رمسيس وذهب الفراعنة" بأستراليا
+-  برشلونة يعلن إصابة كانسيلو في الركبة وغيابه عن الفريق
+-  لم تلتزم بقرار الغلق.. الداخلية تحرر 200 مخالفة للمحلات خلال 24 ساعة
+-  وزير المالية: 50.9% زيادة في الإنفاق الفعلي على الدعم بنهاية يونيو 2023
+-  ارتفاع أسعار الحديد والأسمنت بالأسواق اليوم الجمعة (موقع رسمي)
+-  نصر الله: اغتيال العاروري لن يمر دون عقاب والرد سيكون في الميدان
+-  رئيس "الإنجيلية": مشاركة المصريين في الانتخابات الرئاسية عكس اهتمامهم ببناء وطنهم
+-  Niebezpieczny przeciwnik koszykarek Polskiego Cukru AZS UMCS Lublin
+-  İSKİ’nin Ataköy tesislerinde esrarengiz ceset
+-  CT firefighters battling blaze in Glencairn
+-  EFF expects to see growth in KZN in 2024 elections
+-  Klopp not wishing Salah too much luck at AFCON
+-  Google Chrome restricts cookies in first step towards elimination
+-  Concerns raised over impact of budget cuts at Khayelitsha District Hospital
+-  Iran lays to rest victims of IS twin bombings
+-  Mitchel en Martin van den Brink openen Dakar Rally volgens plan
+-  ASELSAN'dan 21,4 milyon dolarlık sözleşme
+-  Van der Tak: 'Geef onze boeren meer regie, ze zijn een voorbeeld voor het land'
+-  Miguel Antonio Bernal fue electo presidente de la FEDAP para el periodo 2024 - 2025
+-  Saint-Jean-de-Luz : Pourquoi les animations extérieures de ce week-end sont annulées ?
+-  Morbihan : armé d'une hache, il attaque très violemment un restaurateur
+-  FAKTA: Her er de seneste ti års modtagere af Cavlingprisen
+-  FAKTA: Her er de seneste ti års modtagere af Cavlingprisen
+-  "Món" này giá chỉ hơn 5 ngàn đồng nhưng có tác dụng ngừa ung thư, trị "3 cao", người Nhật cực thích
+-  Comentário à liturgia do Domingo da Epifania
+-  Террористы ИГИЛ массово прибывают в ФРГ
+-  Глава МИД Германии посетит Израиль и Палестину
+-  Белгород могут эвакуировать
+-  Naša stranka: SDA je i na primjeru RTVBiH prećutno pristala na podjelu države
+-  Premijer Nikšić čestita Božić svim pravoslavcima
+-  Iran uhapsio više osumnjičenih za napade u Kermanu
+-  Dopredsjednik RS-a: Blagdan Kristova rođenja budi nadu za bolje i vedrije sutra
+-  La Mojonera demanda un nuevo rumbo en el centro de salud
+-  Blinken Returns to Middle East as Tensions Grow With Israel
+-  Convention de partenariat pour renforcer l’autonomisation économique des femmes dans l’agriculture
+-  شؤون وشجون ايزيدية : عزيز شمو الياس
+-  ‘The Brothers Sun’ Star Sam Song Li on Playing Michelle Yeoh’s Favorite Son and His ‘Better Call Saul’ Physics Lesson
+-  Cade nell’oceano e viene salvato dopo un giorno alla deriva grazie al riflesso del suo orologio: “Uno squalo mi ha annusato, vivo per miracolo”
+-  Сенсацией закончился матч Рафаэля Надаля на турнире в Австралии
+-  Жителя Актау оштрафовали за оставленный в подъезде строительный мусор
+-  Bric-à-brac, concerts : 10 sorties à faire au Mans ce week-end
+-  "Izrael mora da učini više na zaštiti civila u Pojasu Gaze"
+-  Sosyal ve Ekonomik Destek ödemleri zamlandı! Çocuklu ailelere her ay ne kadar ödenecek!
