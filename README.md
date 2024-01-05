@@ -1,51 +1,51 @@
 # Latest News
--  দূষিত বায়ুর শহর: তৃতীয় স্থানে ঢাকা
--  নৌকায় ভোট চেয়ে কাঁদলেন, ভোটারদের কাঁদালেন এমপি দুদু
--  UN chief welcomes exchange of prisoners between Ukraine, Russia
--  Royal Mail eert Britse band Spice Girls met speciale reeks postzegels
--  Văn Toàn bị Quế Ngọc Hải troll khi ngồi một mình
--  The Sydney Morning Herald’s Photos of the Week, January 4, 2024
--  Estos son los números de la suerte para hoy viernes 5 de enero
--  В метро Нью-Йорка столкнулись два поезда
--  นายกฯสั่งติดตามผลกระทบ หลังเกิดเหตุสารเคมีรั่วไหล จ.สมุทรปราการ
--  DeSantis’ Anti-Vax Surgeon General Calls COVID Shots ‘the Antichrist'
--  ‘Moon Music’: Colaboradores, posible lanzamiento y lo que se sabe del nuevo disco de Coldplay
--  누아르 영화 속 주인공이 될 수 있는 ‘라운지목화 사동관’ 신규 오픈
--  오병권 행정1부지사, 안양 관양동 고시원 화재안전컨설팅 진행
--  민병덕 의원, 6일 ‘우리 동네 국회의원 일 잘하는 민병덕’ 출판기념회 열어
--  FC안양 ‘1인1체 축구야 놀자’, 초등 4학년 135학급 참여 ‘97% 만족’
--  구리시의회, 2023년 지방의회 청렴노력도 1등급 ·종합청렴도 2등급 각각 달성
--  남양주시, 오는 8일부터 취준생 면접 정장 무료 대여 서비스 시작
--  순천향대 부천병원, 권역응급의료센터 6년 연속 최우수 등급
--  부천보건소, 100세 건강실 11곳 새 단장
--  김상희 의원 "제2 경인선·신구로선 통합 노선 KDI 민자적격성 심사 접수"
--  새마을지도자가평읍협·새마을부녀회, 연탄나눔 봉사활동 구슬땀
--  가평소방서, 홍정현·김보민 구급대원에 하트세이버 순금 기장 수여
--  가평군체육회, 오는 2월 9일까지 2024 동계스포츠 스키교실 운영
--  최춘식 의원, 총선 1호 공약 "포천 발전에 UAM인프라 15항공단 활용 추진"
--  경기도·연천군·경기연구원, BIX 은통일반산단내 ‘기회발전특구’ 추진
--  부천성모병원, QI활동 마무리…응급의료센터연합팀 구연부문 최우수상
--  오산상의 ‘2024년 신년인사회’ 가져…"미래경제도시 원년으로 삼자" 다짐
--  이창근 제22대 총선 국힘 하남시 예비후보 6일 출판기념회 개최
--  오산대 교수학습센터, 2023년 ‘메타버스 컨소시엄 3차 년도 성과발표회’ 공로상
--  하남수산물전통시장, ‘2024년 전통시장 활성화 지원사업’ 선정
--  내일 6일 ‘소한 이름값’…아침 기온 5∼10도 뚝 떨어져
--  尹대통령, ‘김건희 특검법·대장동 50억클럽 특검법’에 거부권
--  "Đại gia" xăng dầu Thiên Minh Đức, Xuyên Việt Oil nợ thuế khủng vẫn có hàng nghìn tỷ cho lãnh đạo chủ chốt mượn
--  이관섭 "헌법 수호자 대통령은 원칙에 반하는 특검법안 거부 의무있다"
--  홍익표 "尹, 가족비리 방탄 위해 거부권 남용 최초 대통령으로 기록될 것"
--  민주당 공관위 구성, 송경재 상지대 교수 합류
--  ¿Qué programas de apoyo de Bienestar tendrán aumento este 2024?
--  Mann fastklemt etter ulykke på Askøy
--  Skydiving: రాముడి జెండాతో యువతి స్కైడైవింగ్.. ఏకంగా 13 వేల అడుగులపై నుంచి...
--  पुनर्निर्माणमा बेवास्ता
--  १० वर्षअघिको आर्थिक अभियानबाट: प्रदूषणजन्य रोगको उपचारमा वार्षिक २५ करोड
--  रुमलिएको नेपाल–भारत आर्थिक सहकार्य: नेपालले आफ्नो प्राथमिकता तय गर्न नसक्नु कमजोरी
--  Thị trường Tết lo thiếu gạo đặc sản
--  Backstage at the final Kiss show: Only in the pyrotechnic new issue of Classic Rock
--  AD Ports to build, operate terminals at Egyptian Red Sea ports
--  시력 저하 동반하는 노안·백내장, 동시에 개선 원한다면?
--  التعرف على المفقودين: إجمالي عدد الملفات لأسر ضحايا درنة جراء الفيضانات بلغت (1965) ملف
--  Cricket: Play resuming in Whanganui Premier 2 competition
--  Ruin and rescue dogs in quake-ravaged Wajima
--  구속 이재명 습격범, '역사' 거듭해 언급하며 지난 정부 비판
+-  [ŽT] „Laivo įgula apimta panikos.“ Neįtikėtini įvykiai. Skelbiama, kas nutiko Rusijos flagmanui „Admiral Makarov“
+-  ถกงบฯปี67วันที่3เริ่มแล้ว! ขณะที่2วันแรกใช้เวลา 30 ชม. คาดลงมติวาระแรกช่วง 3 ทุ่ม
+-  Sara Duterte is ‘my president,’ says retired soldier. His Matikas ‘mistahs’ are annoyed.
+-  ลงดาบ! ปิดผับสุขสันต์ 5 ปีปมจงใจเด็ก 17 ปีใช้บริการ
+-  Motor workers’ association of Assam calls 48-hour strike from today
+-  Vuelven Jorge Ramos y Keven Lamas a los Coqueros de Tuxpan
+-  Día de los Reyes Magos 2024: ¿Qué día llegan?
+-  홍준표 "'총리급 의전서열' 이재명…'서울 이송' 특혜 시비 자체가 유치"
+-  한동훈 비대위원장, "극단적 혐오 언행하는 분, 우리 당에 있을 자격 없다"
+-  "김건희 여사 보좌 제2부속실 설치, 국민이 대다수 좋다면 검토"
+-  '대구도시철도 1호선 영천 연장' 예타 통과…2029년까지 2천341억 투입
+-  갤러리청애, 청년작가 기획전…박한별 개인전 ‘나의 정원’
+-  Hội nghị Chính phủ với địa phương: Gỡ điểm nghẽn cho sản xuất, kinh doanh
+-  Tạm đình chỉ công tác giám đốc lên mạng chửi cấp trên
+-  조아제약 2024년 정기·특별 승진 인사
+-  복지부, 건강보험 재정 내 '혁신계정' 신설 필수의료 지원
+-  Shirley Arica le revela sus sentimientos a Arturo Longton: “Te he extrañado un montón” | Tierra Brava
+-  Maui’s mayor says Lahaina debris site will be used temporarily until a permanent spot is found
+-  Berechnungen: Treibhausgasemissionen in Deutschland so niedrig wie in den 1950er Jahren – Politik
+-  القاهرة 26 مليون والغردقة 8 ملايين.. أعداد الركاب بالمطارات خلال 2023
+-  В Ярославле пожаловались на нечищеный автовокзал
+-  [용인문화재단 '2024 문화예술 공모' 지원사업 접수
+-  [‘용인중앙시장’ 문화관광형시장으로 키운다
+-  [임진원, 수목진료전문가 자격증 디자인 개선
+-  [임성재 ‘칼날 아이언 빛났다’…개막전 첫날 8언더 몰아치며 공동 2위
+-  臨時教師(官立小學)招聘｜起薪$35,915 附政府工入職條件+申請方法
+-  Delhi Mohalla clinics irregularities: ‘Fake’ tests on ‘ghost’ patients, says vigilance report
+-  국내 피부과 닥터손유나의원 런칭 뷰티 브랜드 ‘캐치바이손유나’, 비지티와 손잡고 일본 진출
+-  사회적협동조합 더행복나눔-헤리티지실버케어 요양원, 중증장애인 일자리 창출 위해 협력
+-  한국TOEIC위원회, ‘2024년도 5급 공무원 및 외교관후보자 시험’ 지원 가능한 토익 일정 안내
+-  왕홍 강리즈, 글로벌 인플루언서 라이브대전 브랜드상 수상
+-  소원을 이루어주는 가게 1호점 '소라랜드', 난치병 어린이 정기 후원
+-  첨단메탈코팅, 한국환경공단 ‘스마트 생태공장 구축사업’ 구축 완료
+-  김후성(HHTEAM) 작가 첫 번째 전시 ‘감정들의 운명 같은 만남’, 파주 갤러리 끼에서 개최
+-  박성준 프로, ‘2023KPGA 시상식’ 37세 역대 최고령 신인상 수상
+-  웨어밸리, 고용노동부 주관 ‘2024년 청년친화강소기업’ 선정
+-  윤대통령 '김건희, 50억클럽' 특검 거부권 행사
+-  Enttäuschung in Paris: Wie Olaf Scholz die deutsch-französischen Beziehungen ruinierte
+-  Assam: Crash investigation begins after fatal accident on NH-37 near Dergaon
+-  Woman poses as customer, steals Rs 12 lakh gold in Hyderabad, arrested
+-  Неделчо Стойчев: Единици са полицаите, които прекрачват границите
+-  민주, "쌍특검 거부, 윤 대통령 스스로 범인 자인한 것"
+-  333만 세대 건보료 월평균 2만5000원 인하…최대 10.1만원↓
+-  Two Trains Collide in Bandung, Indonesia Set Up Investigation Team
+-  FREYR Battery: Was für ein Ding
+-  2 days of powercuts for Phnom Penh
+-  Papá en Apuros Cap. 49: Martín le propone a Julieta estar juntos, pese a su compromiso con Matías
+-  เปิดตลาดราคาทองคำเช้าวันนี้ รูปพรรณขายออก 34,000
+-  ระทึกกลางดึก!หนุ่มชัยภูมิคลั่งจุดไฟเผาบ้านตัวเองลามไหม้บ้านใกล้เคียงวอด3หลัง
+-  "새 리더십 필요한 때" 에지오, 토드 힌더스 신임 CEO 임명
