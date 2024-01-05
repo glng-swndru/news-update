@@ -1,51 +1,51 @@
 # Latest News
--  L'inflation rebondit dans la zone euro et conforte la prudence de la BCE
--  Charly García, León Gieco y La Renga firman en contra del desfinanciamiento del Inamu
--  أماني الطويل بين المخابرات والنخب السودانية .. بقلم: زين العابدين صالح عبد الرحمن
--  Cantanhede exibe filme histórico na sessão mensal das “4ª Clássicas”
--  United Cup: Zverev führt Deutschland ins Halbfinale
--  Umfrage: Apps von Lebensmittelhändlern weit verbreitet
--  Warum der BSV Sachsen Zwickau kreativer sein muss und will
--  "Geh lieber arbeiten": Haseloff in der Kritik
--  Vom Chemnitzer FC bis zum FSV Zwickau: Der Teamcheck vor dem Hallenmasters
--  Rechte Schmierereien in Flöha und Freiberg entdeckt
--  Bauern machen dicht: Verkehrsblockaden in Sachsen geplant
--  Lisa Frankenstein: Release date, trailer, cast, plot & more
--  Ege Denizi'nde fırtına uyarısı
--  Bankacılık sektörünün mevduatı 15 trilyon 231,7 milyar liraya yükseldi
--  Reisi'den intikam çıkışı: Yeri ve zamanı silahlı kuvvetlerimiz belirleyecek
--  TMSF Cenevre'deki davayı da kazandı
--  Yusuf Güney'den Kenan Işık iddiası! Duyanlar kulaklarına inanamadı
--  DWS : Barclays n'est pas inspiré par le dossier
--  ثلاثي جديد لمعسكر السعودية بقرار من مانشيني
--  Prodaja nekretnina pala 30 odsto, ali cene ne padaju
--  Soccerladuma | Wydad Boss 'Loses' Temper After Derby Loss To Zinnbauer
--  الكتابة في زمن الحرب (12)
--  PGN Gandeng Patra Jasa Perluas Jaringan Gas Bumi
--  Insider Intelligence Appoints Matthias Braun Chief Executive Officer, Henry Blodget becomes Board Chair
--  Florida's Largest, Long-Standing Community Oncology Practice Establishes Management Services Organization
--  Maersk meidet das Rote Meer auf unbestimmte Zeit
--  Chrome for Android making it easier to Clear browsing data
--  Omicidio Mattarella, Aurelio Grimaldi: "Basta passerelle e lacrime di coccodrillo"
--  Şarkıcı Yusuf Güney beyinleri yakacak Kenan Işık iddiasında bulundu
--  Der Protest und die Ampel: Wenn die dicksten Trecker den größten Einfluss haben
--  Aydın'da "yeşil reçeteli ilaç" operasyonu!
--  Ο Μηνάς Λυσάνδρου νέος πρόεδρος της Σούπερ Λίγκας!
--  Nieuwjaarsreceptie bij Hattem Petanque
--  بالرغم من… بالرغم عن… شعر: د. أحمد جمعة صديق
--  의성소방서, 겨울철 화재 예방 강화 기간 운영
--  대구도시철도 1호선 '영천 연장' 예타 통과
--  [인사] 포항시
--  영양군, 초middot;중middot;고 13개 학교 무상 우유급식 전면 시행
--  신한울 1호기 제1차 계획 예방 정비 착수
--  [인사] 경북 울릉군
--  포항 형산강 하천환경정비사업, 예타대상사업 선정
--  포항해경, 방파제에서 낚시하던 70대 추락자 구조
--  손병복 울진군수, 올해 1호 사랑의열매 나눔 리더 가입
--  포항시, lsquo;미국 방문rsquo; 세계로 도약하는 신산업 혁신역량 강화 나서
--  이강덕 시장, ldquo;포항이 주도하는 지방시대 열어 갈 것rdquo;
--  경북교육청, 장애 학생 개별화 교육 지원 강화
--  영덕군 , 故 강미옥 씨에게 lsquo;자랑스러운 군민패rsquo; 전달
--  김해시 2024년 상반기 팀장급 인사
--  Lâm Tâm Như mang thai nhóc tì thứ 2 ở tuổi 48 sau 7 năm kết hôn?
--  Dạ Hương và hành trình bền bỉ 15 năm nâng bước tương lai cho hàng ngàn nữ sinh khoác áo blouse
+-  Hamarosan indul az Apáczai Ösztöndíjprogram, akár havi 34 ezer forintot is kaphattok
+-  Riveer kondigt wijzigingen in nieuwe dienstregeling aan na feedback van passagiers
+-  Brynäs sparkar stjärnmålvakt – mörkar orsaken
+-  'Drie van vier explosies in Capelle binnen crimineel circuit'
+-  Lezing Abdelkader Benali in Concordia
+-  Zone euro: Une inflation constatée conforte la prudence de la BCE
+-  Biljartkampioenen treffen elkaar in De Koog
+-  أمن المنافذ يضبط 4 قضايا تهريب بضائع وأقراص مخدرة في يوم واحد
+-  ارتفاع عدد النازحين من جنوب لبنان إلى أكثر من 76 ألف شخص
+-  "تعليم الأقصر" تستعد لامتحانات المرحلتين الإعدادية والثانوية
+-  الصحة الفلسطينية: ارتفاع عدد ضحايا العدوان الإسرائيلي إلى 22.600 شهيد و57.910 مصابين
+-  "آمل خروجهما من المجموعات".. كلوب يتحدث عن مشاركة صلاح وإندو في كأس أمم إفريقيا وآسيا
+-  الأرصاد تكشف توقعات طقس ليلة عيد الميلاد المجيد
+-  معاكسات وتحذيرات لـ 4 أبراج فلكية اليوم.. من بينها العقرب
+-  بعد تراجعه صباحا.. سعر الذهب اليوم الجمعة بحلول منتصف التعاملات
+-  فيضانات وانقطاع الكهرباء ووفاة.. موجة الطقس السيئ تجتاح الدول الأوروبية وسط تحذيرات الحكومات
+-  اتهام وتحدي من أسطورة كوت ديفوار.. هل جوارديولا لا يحب اللاعبين الأفارقة؟
+-  مصرع سيدة مُسنة في حريق شقة في مصر القديمة
+-  المقاومة: فجرنا حقل ألغام في قوة صهيونية وإيقاعها بين قتيل وجريح بخان يونس جنوب غزة
+-  270 دقيقة كلمة السر.. مفاجأة وراء عودة ياسر إبراهيم لقائمة منتخب مصر
+-  الاحتلال ينقل 150 فلسطينيًا لإحدى ثكناته العسكرية ويعتقل 20 آخرين بالضفة
+-  "خد بالك".. رادار السرعة يتلقط 14 ألف مخالفة مرورية في 24 ساعة
+-  Netflix fans so shaken by ‘harrowing’ cannibalism movie they’re ‘forced to keep hitting pause to take a break’
+-  Former litigant in Ayodhya land dispute case receives invitation to Ram Temple consecration ceremony
+-  Quedan cortos candidatos independientes a la Presidencia
+-  Llega Lenia Batres 'sentenciando' a la Corte
+-  Pide Xóchitl en Oaxaca no temer a amenazas de oficialismo
+-  Recomendaciones para mejorar tu metabolismo
+-  Provoca ola de asaltos pánico en Villahermosa
+-  Falleció la actriz de 'Mary Poppins', Glynis Johns
+-  ¿Cómo competirle al campeón América?
+-  Prevén siga déficit de vivienda nueva
+-  Aumentan temores de una guerra más amplia en Medio Oriente
+-  Sensación térmica de -3 grados la mañana de este viernes
+-  Invitan a compartir tradición de la rosca
+-  El déficit público de Brasil se elevó en noviembre hasta el 7,82 % del PIB
+-  Las comunidades Howard Hughes entre las cinco MPC más vendidas
+-  El Gobierno invertirá 96 millones de euros en la digitalización de los destinos turísticos
+-  Pro Research: Wall Street se asoma al horizonte de Boeing
+-  Maersk desviará barcos lejos del mar Rojo durante "el futuro predecible"
+-  Detienen en Jujuy al docente e investigador de la UNSa Nahuel Morandini
+-  U Istanbulu otvorena izložba "Neprobojni snovi: Izložba slika djece iz Gaze"
+-  Dragan Šojić oslobođen optužbi za zloupotrebu položaja
+-  Lendo uputio čestitku povodom pravoslavnog Božića
+-  Komšić: 9. januar simbol neuspjelog pokušaja secesije i priključenja Bosne i Hercegovine 'Velikoj Srbiji'
+-  Krišto: Neka Božić kod svakog čovjeka dobre volje ojača istinske ljudske vrijednosti
+-  Hrvatska: Pokrenuta procedura za izbor glavnog državnog odvjetnika
+-  Inflacija u eurozoni raste prvi put nakon nekoliko mjeseci, Belgija daleko ispod prosjeka
+-  Značajan udar na poslovanje McDonald'sa zbog sukoba u Palestini
+-  Lagos warns against patronage of unlicensed popular housing company
