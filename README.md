@@ -1,51 +1,51 @@
 # Latest News
--  وزير الصحة: تنمية قدرات العاملين من أولوياتنا لتحسين الخدمات المقدمة للمواطنين
--  "حكم عليه في جلسة صلح مع مراته".. شاب يقتل عمدة قريته بعد صلاة الجمعة بالدقهلية
--  موسم الخير.. شاهد رحلة القصب من الأرض لمصنع السكر في أسوان- فيديو وصور
--  جوارديولا يكشف موعد مشاركة هالاند مع السيتي
--  30.3 % انخفاضا بصافي الاستثمار الأجنبي المباشر بمصر بالربع الأول من 2023-2024
--  سيدة تكتشف إصابة طفلتها بالخرف المبكر بهذه الطريقة
--  هل يفعلها مجددًا؟.. لافيينا يضم الويشي في رحلة الصعود للممتاز
--  نفاد تذاكر يناير لمعرض "رمسيس وذهب الفراعنة" بأستراليا
--  برشلونة يعلن إصابة كانسيلو في الركبة وغيابه عن الفريق
--  لم تلتزم بقرار الغلق.. الداخلية تحرر 200 مخالفة للمحلات خلال 24 ساعة
--  وزير المالية: 50.9% زيادة في الإنفاق الفعلي على الدعم بنهاية يونيو 2023
--  ارتفاع أسعار الحديد والأسمنت بالأسواق اليوم الجمعة (موقع رسمي)
--  نصر الله: اغتيال العاروري لن يمر دون عقاب والرد سيكون في الميدان
--  رئيس "الإنجيلية": مشاركة المصريين في الانتخابات الرئاسية عكس اهتمامهم ببناء وطنهم
--  Niebezpieczny przeciwnik koszykarek Polskiego Cukru AZS UMCS Lublin
--  İSKİ’nin Ataköy tesislerinde esrarengiz ceset
--  CT firefighters battling blaze in Glencairn
--  EFF expects to see growth in KZN in 2024 elections
--  Klopp not wishing Salah too much luck at AFCON
--  Google Chrome restricts cookies in first step towards elimination
--  Concerns raised over impact of budget cuts at Khayelitsha District Hospital
--  Iran lays to rest victims of IS twin bombings
--  Mitchel en Martin van den Brink openen Dakar Rally volgens plan
--  ASELSAN'dan 21,4 milyon dolarlık sözleşme
--  Van der Tak: 'Geef onze boeren meer regie, ze zijn een voorbeeld voor het land'
--  Miguel Antonio Bernal fue electo presidente de la FEDAP para el periodo 2024 - 2025
--  Saint-Jean-de-Luz : Pourquoi les animations extérieures de ce week-end sont annulées ?
--  Morbihan : armé d'une hache, il attaque très violemment un restaurateur
--  FAKTA: Her er de seneste ti års modtagere af Cavlingprisen
--  FAKTA: Her er de seneste ti års modtagere af Cavlingprisen
--  "Món" này giá chỉ hơn 5 ngàn đồng nhưng có tác dụng ngừa ung thư, trị "3 cao", người Nhật cực thích
--  Comentário à liturgia do Domingo da Epifania
--  Террористы ИГИЛ массово прибывают в ФРГ
--  Глава МИД Германии посетит Израиль и Палестину
--  Белгород могут эвакуировать
--  Naša stranka: SDA je i na primjeru RTVBiH prećutno pristala na podjelu države
--  Premijer Nikšić čestita Božić svim pravoslavcima
--  Iran uhapsio više osumnjičenih za napade u Kermanu
--  Dopredsjednik RS-a: Blagdan Kristova rođenja budi nadu za bolje i vedrije sutra
--  La Mojonera demanda un nuevo rumbo en el centro de salud
--  Blinken Returns to Middle East as Tensions Grow With Israel
--  Convention de partenariat pour renforcer l’autonomisation économique des femmes dans l’agriculture
--  شؤون وشجون ايزيدية : عزيز شمو الياس
--  ‘The Brothers Sun’ Star Sam Song Li on Playing Michelle Yeoh’s Favorite Son and His ‘Better Call Saul’ Physics Lesson
--  Cade nell’oceano e viene salvato dopo un giorno alla deriva grazie al riflesso del suo orologio: “Uno squalo mi ha annusato, vivo per miracolo”
--  Сенсацией закончился матч Рафаэля Надаля на турнире в Австралии
--  Жителя Актау оштрафовали за оставленный в подъезде строительный мусор
--  Bric-à-brac, concerts : 10 sorties à faire au Mans ce week-end
--  "Izrael mora da učini više na zaštiti civila u Pojasu Gaze"
--  Sosyal ve Ekonomik Destek ödemleri zamlandı! Çocuklu ailelere her ay ne kadar ödenecek!
+-  চট্টগ্রামে নৌকার প্রার্থী মহিউদ্দিনের বিরুদ্ধে মামলার নির্দেশ ইসির
+-  Oscar Pistorius sale de la cárcel casi once años después de matar a su novia
+-  Denunciado por causar daños en una cueva protegida con restos arqueológicos en Tenerife
+-  Soccerladuma | Egypt Boss Told He's 'Very Disrespectful' By Ex-Coach Ahead Of AFCON
+-  – شركة ميرسك لنقل الحاويات تؤكد أنها غيرت مسار سفنها نحو رأس الرجاء الصالح لتجنب هجمات الحوثيين
+-  Soutěž o novinku Samsung. Vyhrajte 3x nový Galaxy S, který se představí už za dva týdny!
+-  Triq il-Kbira fil-Mosta terġa’ tinqala’ u jerġa’ jsir xi xogħol mill-ġdid għax “sar xogħol ħażin”
+-  Jetzt auch bei Sky! Preis-Hammer sorgt für Kundenfrust
+-  Rodríguez: El Parlamento de Venezuela fue rescatado por el pueblo
+-  Canada's Nature Agreement underscores the need for true reconciliation with Indigenous nations
+-  Orry-Nysa Photos: फिर अजय देवगन की लाडली संग पार्टी करते नजर आए ओरी, मल्टीकलर ड्रेस में खूब जचीं निसा
+-  Emanuel revoga exonerações pela intervenção e garante retomada dos atendimentos odontológicos
+-  Ireland hits record of 4,000 homeless children
+-  Woman canoes across carpark as floods hit London
+-  Coupe Davis: la première liste de Paul-Henri Mathieu à la tête des Bleus
+-  Narendra Modi takes a dip in the Arabian Sea
+-  Спецоперация на ГРУ в Белгородска област: Ударен е руски взвод
+-  (VIDEO) Zrinjski sjajnim videom predstavio svoje prvo pojačanje
+-  Muswada sheria ya uchaguzi wagusa wadau
+-  Britanski novinar razkril metodo, ki pospešuje izgorevanje maščob in izgubo do 17 kg v enem mesecu!
+-  Bauernproteste in Schleswig-Holstein: Weg mit der Mistgabel
+-  Asfaltohen 5 rrugë në Tiranë| Veliaj: Fillimi i mbarë, gjysma e punës
+-  Rafael Nadal, eliminat de la Brisbane după ce a ratat trei mingi de meci
+-  California housing costs at 7-year low, relatively speaking
+-  Egész napos igazolást kaptok, ha részt vesztek az Educatio Kiállításon
+-  „Az életem minden része tönkrement” – Ivancsics Ilona elárulta, hogy sikerült egyenesbe jönnie
+-  Biden kickstarts 2024 bid with speech targeting Trump
+-  What do teachers do in the school holidays? They work, plan, and rest
+-  CFP championship game participants Michigan, Washington each have 2 players on AP’s all-bowl team
+-  Study: Genetics Could Be Used to Inform Precision Medicine for Hypertension
+-  ¿Cómo aprovechar cualquier tipo de apuestas deportivas?
+-  Ex-Pentagon Analyst: Mideast Crisis May Spiral Out of Control After Beirut and Kerman Blasts
+-  Boko Haram kills pastor, church treasurer, 12 others in Yobe
+-  DRV: Türkiye ve Yunanistan Alman pazarında büyümenin lokomotifi
+-  TUI Londra borsasındaki işlemlerini Frankfurt’a taşıyacak
+-  Indian Navy : समुद्री चाच्यांना नौदलाने शिकवला धडा, 15 भारतीयांची सुखरुप सुटका; पाहा व्हिडीओ
+-  Group calls for fair treatment for former Minister Sadiya Umar-Farouq, frowns at media trial
+-  Hamburg: Ungewöhnlichen Gürtel dabei – Bundespolizei nimmt Mann fest
+-  Polish president’s weird tweet sparks security concerns
+-  Selon un nouveau classement, trois kebabs de Bordeaux figurent parmi les meilleurs en France
+-  CBI moves Karnataka High Court challenging state Congress govt’s decision to withdraw case against Deputy CM DK Shivakumar
+-  Назван простой способ избавиться от чувства тяжести в желудке
+-  Warzone players divided over best mode to level up guns
+-  Denuncia Canciller falta de compromiso ante el cambio climático
+-  “Búp bê sống” của Hoa hậu Việt Nam khoe sắc với áo dài xuân
+-  Thời trang của mỹ nhân 40 tuổi Sandara Park: Luôn trẻ trung và ngọt ngào, chị em mọi độ tuổi đều có thể học hỏi
+-  Đang lưu thông trên cầu Thanh Trì, nhiều xe ô tô bị nổ lốp
+-  Liệu "em gái Jennie" có thể quay lại cứu YG?
+-  Hai bệnh viện hội chẩn khẩn, cứu được bào thai bị dị tật tim bẩm sinh
+-  NSƯT Trần Lực không làm đạo diễn Táo Quân 2024
