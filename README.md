@@ -1,51 +1,51 @@
 # Latest News
--  Chinas Tourismus rechnet nach Krisenjahren mit Aufschwung
--  브루클린, 주전 대거 제외했다가 10만 달러 벌금 징계
--  Será juzgado por robo y secuestro exprés
--  Reciben a decenas de personas en refugio de Juárez
--  Hamas'tan Aruri suikastı ile ilgili çok konuşulacak açıklama: Saldırı çemberini genişletmek istiyorlar
--  Usta sanatçı Ayla Algan'dan acı haber! Hayatını kaybetti
--  Pendik'te korkutan kaza: 2'si ağır 4 yaralı
--  Başakşehir'de korkunç cinayet: İş insanına silahlı saldırı
--  Pendik'te facianın eşiğinden dönüldü
--  Vefatı sanat dünyasını yasa boğdu! Ünlü isimlerden Ayla Algan paylaşımları
--  Ağızda eriyen fırında patates tarifi! Kahvaltılık lezzet bombası, 10 dakikada hazır
--  Rohamtempóban adósítják el a magyarokat, kell a pénz repülőtérre és a lyukak betömésére
--  „Fejleszteni kellene, nem tönkretenni” – Jövő héten egyeztet Budapest a Lázár-féle minisztériummal az új tömegközlekedési tarifarendszerről
--  Meteorolojiden sis, kar ve yağış uyarısı! 5 Ocak hava durumu: Bugün hava nasıl olacak?
--  Uyuyan faylar harekete geçti!
--  Altın fiyatlarında neler oluyor? İşte son durum
--  Bio-Agriculture Market Size To Grow At A CAGR Of 12.1% In The Forecast Period Of 2024-2032
--  Algae Products Market Potential Analysis, Key Drivers, Emerging Growth, Trends And Forecast To 2033
--  Ai có quyền chọn sách giáo khoa cũng đừng để học sinh nhận hậu quả
--  Bãi rác tự phát 'thấy mà kinh' trước khu ký túc xá sinh viên
--  Chủ xe liên tục bị va quệt, chán tới mức không muốn sửa nữa
--  Loay hoay xử lý giấy phép sai của huyện Bình Chánh, thiệt hại tiền tỉ
--  Mỹ giúp Nhật Bản mổ xẻ các bản ghi âm từ máy bay gặp nạn
--  Nhật Bản động đất nhiều nhất thế giới, 1.500 trận mỗi năm
--  Việt Nam thuộc nhóm tăng trưởng cao, quy mô kinh tế 430 tỉ USD, tín nhiệm quốc gia mức BB+
--  В Киевской области звучат сирены воздушной тревоги
--  티라유텍, 22일 임시주총 소집
--  जान्हवी कपूर ने ब्लैक ड्रेस में शेयर किया अपना सिजलिंग लुक
--  "Ovo je bolje nego što smo očekivali": Toni Nadal prezadovoljan Rafinim povratničkim izdanjima
--  Tippfieber auch in Hückeswagen: Spiel um den Eurolotto-Jackpot
--  부안군, 지속 가능한 '부안형 푸드플랜' 기반 조성
--  Snow White and the Huntsman Streaming: Watch & Stream Online via Peacock
--  "5세대 대통합"…성한빈·명재현·소희, '엠카' 3MC 완성
--  Utilizó Trump temor y favores para ganar el apoyo republicano
--  Valsts policija meklē bezvēsts pazudušo nepilngadīgo Eduardu Pikturnu
--  Steve Smith and Marnus Labuschagne under fire for ugly on-field acts against Pakistan
--  What is the oldest animal alive right now?
--  “마취상태女 10여명을”…‘롤스로이스男’에 마약 처방한 의사가 한 짓
--  IS group claims responsibility for Iran suicide bombings killing at least 84
--  US claims Russia used North Korean ballistic missile in strikes on Ukraine
--  Punjab Schools Winter Vacations Extended? Decision Awaiting on Possible Extension
--  검찰 낙하산 천국? KT새노조 “내부 혁신이 먼저” 김영섭 대표 인사 비판
--  5·18 단체 "국민의힘, 5·18 왜곡 시의원 즉각 제명하라"(종합)
--  Bruce Almighty Streaming: Watch & Stream Online via HBO Max
--  서울시, 올해 첫 초미세먼지 주의보 발령
--  Ägypten: EU will neuen Flüchtlingsdeal – trotz scharfer Kritik
--  Airport Security Market Regional Segments, Emerging Growth Rate, Navigating Top Trends And Forecast To 2033
--  "세계 속에 전주를 알린다"…국제교류에 힘쓰는 전주시
--  政府宣布本季住宅、商業地不會推出 甯漢豪指平常心應對發展商出手太低
--  KBL 올스타, 13일 고양 대형 카페서 팬들과 특별한 시간 보낸다
+-  [사진] 네 번째 중동 순방 떠나는 美국무장관
+-  เปลือยชีวิต 'แอ๊ว อำภา'รับมีกรรมเรื่องความรัก เล่านาทีโดนทำของใส่จนปางตาย!
+-  ‘เพื่อไทย’ลั่นประชาชนได้ใช้แน่‘เงินหมื่นดิจิทัล’ ปัดกู้มาแจก
+-  T-POP อย่างวง RedSpin จากค่าย WYNN Entertainment ได้รับเลือกให้เป็น “Thailand EQUAL Ambassador“ ประจำเดือนธันวาคม 2023
+-  เช้านี้ฝุ่น PM 2.5 หลายจังหวัดยังแดง กทม.เกินเกณฑ์มาตรฐาน 3 เขต
+-  Anne sütünden sonra en faydalı besinler! Saatlerce tok tutuyor mideniz bana mısın demiyor
+-  Meteoroloji'den kar alarmı! Sibirya soğukları Türkiye'yi etkisi altına alacak
+-  Göksel'den değişimiyle ilgili itiraf: Evrime kafa attım
+-  Cem Karaca'nın hayatının anlatıldığı “Cem Karaca'nın Gözyaşları”nda 59 yıl önceki düğün yeniden canlandı
+-  진안군, 공립등산학교 유치 위한 본격 행보 나서
+-  전주병원middot;호성전주병원 직원들, 전주 유공시민 표창 수상
+-  Congresso Nacional do PS começa com intervenção de António Costa
+-  IVA começa a ser cobrado num cabaz de 46 categorias de alimentos
+-  Allroundtalent Ulrich Tukur vor Konzerten in Zwickau und Chemnitz im Interview: "Diese Scheißzeit ist unsere große Chance"
+-  Ein Vierteljahrhundert Umdenkarbeit in Freiberg
+-  Reichenbacher Zahnarztpraxis wieder komplett - doch die Gerüchte reißen nicht ab
+-  Fiddler's-Green-Sänger Albi im Interview: "ich würde gern mal im Ampitheater spielen"
+-  Medizinstudent aus Hartha kommt in der Praxis an
+-  Nach Diebstahl des Ortseingangsschildes in Waldenburg: Warum die Töpferstadt kein Geld für Ersatz ausgibt
+-  Drucksituation: Biathlet Strelow versucht, ruhig zu bleiben
+-  Dramatische Einsätze und große Pläne der Feuerwehr Hohenstein-Ernstthal
+-  Виждон, маънавият халққа, Ватанга чин юракдан хизмат қилиш деганидир
+-  Тошкент шаҳрининг айрим ҳудудларида табиий газ етказиб бериш вақтинча тўхтатилади
+-  Magtfuldt Christiansborg-udvalg afgør et hav af menneskeskæbner. Men medlemmerne er slet ikke kvalificeret til opgaven, mener næstformand
+-  ब्रिगेड रैली के समर्थन में नंदीग्राम में जुलुस
+-  Hidrógeno verde: Marruecos capaz de responder al 4 % de la demanda mundial en 2030
+-  Đã tìm ra danh tính hacker tống tiền Lee Sun Kyun và nhân tình hơn 9 tỷ
+-  Rok 2024 priniesol nečakaný zvrat, medzi cenami palív vzniká priepastný rozdiel: Analytik varuje, na TOTO sa pripravte!
+-  L’oasi da salvare. Specie rare e “invasori“: "C’è in gioco il pianeta"
+-  Namaz sırasında kalp krizi geçiren imam secdede vefat etti
+-  Banjir Johor: Calon SPM 2023 tidak patah semangat
+-  Nordkorea liefert Raketen nach Moskau
+-  [SBS Star] '41-Year-Old' Kim Ah-joong Shares How Much She Wants to Get Married
+-  고양특례시 메디치넷 선언, '교육발전특구' 지정 박차
+-  [르포] 한파·폭설에 금값된 농산물..."장보기 겁나, 떨이 과일로 대체"
+-  Doliu uriaș în lumea filmului - A murit actrița din Mary Poppins
+-  NK fires some 200 artillery shells off western coast: S. Korean military
+-  불혹의 나이에... 최형우, 1+1년 22억원 다년 계약
+-  مايكروسوفت تقترب من لقب "أكبر شركة أميركية بالقيمة السوقية"
+-  UKRAINE-BLOG/Deutschland liefert neues Luftverteidigungssystem
+-  Nella calza della Befana impegno e solidarietà
+-  Italijanom kar milijarda evrov za nove avtomobile?
+-  Gollings eyes overseas talents for Olympic three-peat
+-  مشاريع الزواج.. تأجيل تحت ضغط التكاليف وتراجع في حجوزات الصالات بعد ارتفاع أجورها
+-  General gives ‘unwavering commitment’ to ceasefire as Sudanese war rumbles on
+-  देशको मूल्य मान्यतालाई ध्यानमा राखी पर्यटन प्रवर्द्धनको काम गर्नुपर्छः ढकाल
+-  Prabowo soal Program Bagi-bagi Susu dan Makan Siang Gratis: Bukan Menggiurkan, Ini Necessity
+-  메이크샵, 송은이 회사와 '느닷없는 콘텐츠 커머스' 제휴
+-  Soykırımcı İsrail için hesap zamanı! Güney Afrika'nın başvurusuna Türkiye'den destek
+-  Лион-Вильорбан прекъсна отчайваща серия в Евролигата
