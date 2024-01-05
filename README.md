@@ -1,11 +1,51 @@
 # Latest News
--  וראש הממשלה שותק: צעקות שרי הימין על הרמטכ"ל משרתות את מטרת העל של נתניהו
--  יאניס ומילווקי נדהמו מוומבניאמה: "מעולם לא ראינו דבר כזה"
--  בורחה למה: "מכבי נתניה חזקה, נצטרך לתקן את הטעויות מסכנין"
--  그럼에도 고우석의 ML행이 아쉬운 이유 [단상들]
--  যুব দলের ক্রিকেটারদের স্বপ্ন পূরণ করলেন তামিম ইকবাল
--  ডামি নির্বাচনের মধ্যদিয়ে সরকার প্রকাশ্যে জনগণের বিরুদ্ধে অবস্থান নিচ্ছে: সমমনা জোট
--  বরগুনায় নৌকার ৩ নির্বাচনি ক্যাম্পে দুর্বৃত্তের আগুন
--  ৭ জানুয়ারি স্বেচ্ছায় প্রতিবাদী লক ডাউন কর্মসূচি পালন করুন : এবি পার্টি
--  Optimising Agricultural Prosperity: Embracing The Theory Of Change Framework
--  Companies Innovate To Aid Customer Long-term Financial Goals: Bajaj Allianz Life's Dheeraj Sehgal
+-  באיזו מניה להשקיע? מומחה מסביר: אלו שלוש החברות המנצחות
+-  3 לאחר הסכמי הנורמליזציה: זו המדינה ממנה הישראלים בורחים מפחד
+-  בשורה איומה לרוכשי הדירות, בארי עובר מקום והקלה לשוכרי הדירות
+-  [게임소식] 웹젠, '뮤 온라인' 갑진년 새해 맞이 이벤트 진행 외
+-  Jokićevu efikasnost nadmašuje samo Čemberlen
+-  이계철 의원, 대한민국사회발전대상 '지방자치의정 부문 대상' 수상
+-  삼천포중앙시장상인회, 이웃돕기 성금 기탁
+-  사천축협, 희망 2024 나눔캠페인 이웃돕기 성금 700만 원 기탁
+-  이재명, 한동훈·문재인 문병 의사 잇따라 거절… "당분간 안정 필요"
+-  이베스트투자증권, LS네트웍스 대주주되나…이르면 이달 중 변경
+-  사천 문선초교 박승찬 어린이, 이웃돕기 성금 기탁
+-  Τα απόβλητα από την πράσινη ενέργεια παραβλέπονται στην ατζέντα για το κλίμα
+-  Saga Furs: Tulos paranee selvästi edellisestä tilikaudesta
+-  #Mali : Forces armées maliennes : Le vecteur aérien renforcé par des drones
+-  Ferrari-kaksikko joutuu odottamaan - talli ei kiirehdi jatkosopimuksen kanssa
+-  Coupe du Sénégal-Hand-ball: Les Finales programmées ce samedi
+-  Leading Future Development of Energy Storage - BatteroTech 314Ah Cell Empowers SNEC ES+ International Energy Storage Conference & Exhibition
+-  Çaykur Rizespor, Hatayspor'u konuk edecek
+-  Merih Demiral ikinci kez baba olacağının müjdesini verdi
+-  Giovanni van Bronckhorst bombayı patlatıyor! İlk transferi Fenerbahçe'den...
+-  Fatih Altaylı, nöbetçi hakimliğe sevk edildi
+-  Çayı bu şekilde içmek kanser riskini 8 kat artırıyor! Uzmanlar o şehirlere dikkat çekti
+-  Guatemala'da eski Devlet Başkanı Molina kefaletle serbest kaldı
+-  Ayla Algan'ın son videosu yürek burktu... 2024 için güzel dileklerde bulunmuş
+-  평택시, 2023년 보조금 관리 효율화 기관 표창 수상
+-  구리시, 제5기 마을세무사 위촉… "재능 기부로 무료 상담해드려요"
+-  오영주 중기부 장관, 중소기업 애로사항 청취 위한 현장 방문
+-  한동훈 비대위원장 "'메가시티 서울' 구체적인 정책으로 추진"
+-  가천길재단, 2024년도 신년하례회 개최
+-  한동훈 비대위원장, 김건희 업무전담 '제2부속실 설치'…"공감"
+-  신재경 국민의힘 인천 남동을 예비후보, 출판기념회 개최
+-  경기도민 58% "김동연 지사, 잘하고 있다"
+-  3기 신도시 창릉지구 광역교통개선대책 ‘고양은평선 기본계획’(안) 공청회 개최
+-  Alexander Dubček. Komunista, který měl svatbu v kostele a jehož unesli do Kremlu
+-  북한 해안포 사격으로 주민들 긴급 대피... 오후 3시45분께 해산
+-  Ağırdan Almak Deyiminin Anlamı Nedir? Kısaca Açıklaması ve Örnek Cümle…
+-  5 Ocak 2024 Cuma gününün son dakika önemli gelişmeleri! (CNN TÜRK 11.30 bülteni)
+-  CHP'de yerel seçim tartışmaları: 'İmamoğlu İstanbul için liste yolladı' iddiası
+-  Japonya'daki depremde can kaybı 94'e yükseldi
+-  Seda Bakan kaçak kedi krizini takipçileriyle paylaştı
+-  MSB: 2 PKK'lı terörist etkisiz hale getirildi
+-  Cumhuriyet'in 100. yılında otomotivde rekor kırıldı
+-  Селекторот делумно задоволен од играта против Грција
+-  24 Verletzte bei Kollision zweier U-Bahnen in New York
+-  Realizan la primera operación percutánea renal a una embarazada en Galicia
+-  Sabaha olan hava proqnozu
+-  Azərbaycan neftinə tələbat artır: İtaliya və İsraillə yanaşı, Hindistan da… – FOTO
+-  1.5 milyon haneye yerli doğal gaz
+-  Kıvanç Talu Beril Talu yakalandı! Fenomen çift 150 milyon TL ile kaçmıştı!
+-  Cesedi uçak motorunda bulundu
