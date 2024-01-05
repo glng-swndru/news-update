@@ -1,51 +1,11 @@
 # Latest News
--  Hamarosan indul az Apáczai Ösztöndíjprogram, akár havi 34 ezer forintot is kaphattok
--  Riveer kondigt wijzigingen in nieuwe dienstregeling aan na feedback van passagiers
--  Brynäs sparkar stjärnmålvakt – mörkar orsaken
--  'Drie van vier explosies in Capelle binnen crimineel circuit'
--  Lezing Abdelkader Benali in Concordia
--  Zone euro: Une inflation constatée conforte la prudence de la BCE
--  Biljartkampioenen treffen elkaar in De Koog
--  أمن المنافذ يضبط 4 قضايا تهريب بضائع وأقراص مخدرة في يوم واحد
--  ارتفاع عدد النازحين من جنوب لبنان إلى أكثر من 76 ألف شخص
--  "تعليم الأقصر" تستعد لامتحانات المرحلتين الإعدادية والثانوية
--  الصحة الفلسطينية: ارتفاع عدد ضحايا العدوان الإسرائيلي إلى 22.600 شهيد و57.910 مصابين
--  "آمل خروجهما من المجموعات".. كلوب يتحدث عن مشاركة صلاح وإندو في كأس أمم إفريقيا وآسيا
--  الأرصاد تكشف توقعات طقس ليلة عيد الميلاد المجيد
--  معاكسات وتحذيرات لـ 4 أبراج فلكية اليوم.. من بينها العقرب
--  بعد تراجعه صباحا.. سعر الذهب اليوم الجمعة بحلول منتصف التعاملات
--  فيضانات وانقطاع الكهرباء ووفاة.. موجة الطقس السيئ تجتاح الدول الأوروبية وسط تحذيرات الحكومات
--  اتهام وتحدي من أسطورة كوت ديفوار.. هل جوارديولا لا يحب اللاعبين الأفارقة؟
--  مصرع سيدة مُسنة في حريق شقة في مصر القديمة
--  المقاومة: فجرنا حقل ألغام في قوة صهيونية وإيقاعها بين قتيل وجريح بخان يونس جنوب غزة
--  270 دقيقة كلمة السر.. مفاجأة وراء عودة ياسر إبراهيم لقائمة منتخب مصر
--  الاحتلال ينقل 150 فلسطينيًا لإحدى ثكناته العسكرية ويعتقل 20 آخرين بالضفة
--  "خد بالك".. رادار السرعة يتلقط 14 ألف مخالفة مرورية في 24 ساعة
--  Netflix fans so shaken by ‘harrowing’ cannibalism movie they’re ‘forced to keep hitting pause to take a break’
--  Former litigant in Ayodhya land dispute case receives invitation to Ram Temple consecration ceremony
--  Quedan cortos candidatos independientes a la Presidencia
--  Llega Lenia Batres 'sentenciando' a la Corte
--  Pide Xóchitl en Oaxaca no temer a amenazas de oficialismo
--  Recomendaciones para mejorar tu metabolismo
--  Provoca ola de asaltos pánico en Villahermosa
--  Falleció la actriz de 'Mary Poppins', Glynis Johns
--  ¿Cómo competirle al campeón América?
--  Prevén siga déficit de vivienda nueva
--  Aumentan temores de una guerra más amplia en Medio Oriente
--  Sensación térmica de -3 grados la mañana de este viernes
--  Invitan a compartir tradición de la rosca
--  El déficit público de Brasil se elevó en noviembre hasta el 7,82 % del PIB
--  Las comunidades Howard Hughes entre las cinco MPC más vendidas
--  El Gobierno invertirá 96 millones de euros en la digitalización de los destinos turísticos
--  Pro Research: Wall Street se asoma al horizonte de Boeing
--  Maersk desviará barcos lejos del mar Rojo durante "el futuro predecible"
--  Detienen en Jujuy al docente e investigador de la UNSa Nahuel Morandini
--  U Istanbulu otvorena izložba "Neprobojni snovi: Izložba slika djece iz Gaze"
--  Dragan Šojić oslobođen optužbi za zloupotrebu položaja
--  Lendo uputio čestitku povodom pravoslavnog Božića
--  Komšić: 9. januar simbol neuspjelog pokušaja secesije i priključenja Bosne i Hercegovine 'Velikoj Srbiji'
--  Krišto: Neka Božić kod svakog čovjeka dobre volje ojača istinske ljudske vrijednosti
--  Hrvatska: Pokrenuta procedura za izbor glavnog državnog odvjetnika
--  Inflacija u eurozoni raste prvi put nakon nekoliko mjeseci, Belgija daleko ispod prosjeka
--  Značajan udar na poslovanje McDonald'sa zbog sukoba u Palestini
--  Lagos warns against patronage of unlicensed popular housing company
+-  İlk atandığı okuldan 44 yıl sonra emekli oldu
+-  Bingöl'de 1 yılda 38 milyon 818 bin kök kenevir ele geçirildi
+-  Sakarya'da içme suyu kalitesini artıracak çalışmalar tamamlandı
+-  Trabzonspor, Ankara'ya gitti
+-  Sosyal belediyecilikte öncü şehir Sakarya
+-  Zafer Partisi Bursa'dan BUSKİ iddialarına dair açıklama!
+-  Sevgilisini öldüren sporcuya 11 yıl sonra şartlı tahliye
+-  كأس إفريقيا 2023/ الجزائر- تحضيرات: "المدرب الوطني يطلب تغيير توقيت مباراة الجزائر-بوروندي الودية"
+-  Pourquoi la carte d'identité biométrique fait-elle peur ?
+-  Palmeiras anuncia contratação de Caio Paulista, ex-São Paulo, como reforço para 2024
