@@ -1,11 +1,51 @@
 # Latest News
--  Son dakika. Fenomen Talu çifti tutuklandı
--  Chelsea trio could leave in January transfer window to satisfy Financial Fair Play and it could infuriate fanbase
--  FGR iniciará procesos judiciales en contra cabecillas de la MS
--  هنية يوجه رسالة لبلينكن - فيديو
--  جندي إسرائيلي سابق: جيشنا يستخدم الفوسفور الأبيض في غزة ولبنان - فيديو
--  भगवान राम पर विवादित टिप्पणी करने वाले NCP नेता पर FIR, गिरफ्तारी की आशंका
--  Hizbullah lideri Nasrallah: Bir fırsat ile karşı karşıyayız
--  Pega al turismo el súper peso
--  Asesinatos, maltrato y arrestos, abusos de la GN
--  Alertan por pavimento congelado en Cuauhtémoc
+-  Subsidiepotje voor vergroening ook in 2024 beschikbaar
+-  बर्खामा थप बिजुली लैजान भारत सकारात्मक, क्रस बोर्डर प्रसारणलाइन अघि बढाउने निर्णय
+-  João Félix quis bater penálti do Barcelona em Las Palmas, mas... desistiu
+-  Salió en libertad a 11 años del crimen su novia: la historia detrás de la condena que recibió Oscar Pistorius
+-  "이란, 중국에 원유 수출 가격 올려 거래 감소"
+-  Aucas: Suma dos refuerzos extranjeros y espera anunciar uno más
+-  هنية يوجه رسالة لبلينكن
+-  San Marcos abre centro preuniversitario en provincia limeña de Oyón
+-  السر في الأمتعة.. هكذا نجا ركاب الطائرة اليابانية المشتعلة
+-  MSI Claw is latest Steam Deck portable rival according to new leak
+-  Caso Reconstrucción de Manabí: Fiscal pide prisión preventiva para Jorge Glas
+-  Spineway : lancement d'un regroupement d'actions
+-  Car sales in Mexico reached highest level since 2018
+-  JUNAJTED KUP: Nemačka bolja od Grčku za polufinale
+-  Phoenix stay upbeat despite demolition job by Illawarra
+-  Portugal recuerda al 'rey' Eusébio a los diez años de su fallecimiento
+-  高敏人如何擺脫「耿耿於懷」的情緒？「不理解」也是一種選擇
+-  半途而廢就是失敗？懂得「適時投降」才是生存的智慧
+-  「業力」不是「惡有惡報」：做決定的心態會得到相應後果
+-  AI PC助攻，華碩股價衝25年新高，施崇棠如何展望2024？
+-  虛擬貨幣圈風波不斷！台灣前三大「ACE王牌交易所」創辦人涉詐
+-  年前跳槽太虧了？總將目光放在年終獎金上，小心損失更大
+-  愛情沒有正果，只有自食其果：自己種的，自己收；自己作的，自己受
+-  2024春節高鐵、台鐵訂票》疏運、搶票時間最新攻略
+-  北港武德宮瘋AI：宮廟砸百萬買主機，能讀神明指示？
+-  《壞男孩》最殘酷的人情冷暖！巫建和體悟最底層的邊緣人生
+-  Copilot如何使用？它結合Windows 開會摘要超級快！
+-  獨家對話吳敏求，旺宏五大你不知道絕學
+-  2024總統選舉行情能期待？分析師：觀察指標聚焦「這件事」
+-  Napali su, ponovo
+-  NYT 평론가, 오스카 남우조연상 후보로 유태오 추천
+-  NAJPOPULARNIJA VIRALNA FRIZURA KOJU ĆETE OBOŽAVATI U samo dva koraka do savršeno stilizovane kose
+-  Vor dem letzten Springen: Kobayashi fliegt Wellinger in der Qualifikation davon
+-  Навошта беларусам выбары ў Расеі. Вынікі тыдня ад Валера Карбалевіча
+-  Massa comió con la CGT: cree que "la gente no visibilizó” sus anticipos y el paro "es apresurado"
+-  മണ്മറഞ്ഞ കൊല്ലത്തിന്റെ മഹാ പ്രതിഭകളെ ഒരുമിച്ചു കൂട്ടി ആർട്ടിസ്റ്റ് സന്തോഷ്
+-  “Por gente como esta”: Mujer arremete contra hombre que acaparó las roscas de Reyes en el Costco
+-  JUST IN: Akeredolu’s corpse arrives Nigeria from Germany
+-  Politiet: Trusselsituasjon i Fana
+-  Año bisiesto 2024: ¿cómo se calcula el día extra y qué tan necesario es?
+-  ایم ایس دھونی کے ساتھ 15کروڑ روپے کا فراڈ
+-  Uelzen: Zahlreiche Patienten der Helios-Klinik müssen nach dem Feuer verlegt werden, das bringt Probleme mit sich
+-  Turci nastavili da grade u Budvi, inspekcija nedorečena
+-  TEŠKA NESREĆA NA BATAJNIČKOM PUTU: automobil se zakucao u traktor, plug prošao kroz šoferšajbnu! VIDEO
+-  Indian women crush Australia by nine wickets to go 1-0 up in T20I series
+-  Ρωσία: Απαγόρευσαν σε ιερέα να λειτουργεί επειδή τάχθηκε κατά του πολέμου
+-  La Romareda recibe la llegada de los Reyes Magos de Oriente en helicóptero
+-  Watchdog lays assault charge against Halifax police officer
+-  Elliott Readies Next Legislative Steps Toward Freedom
+-  La famosa cantante eurovisiva con la que Xuso Jones estaría pasando la noche de Reyes: "Está espectacular"
