@@ -1,51 +1,51 @@
 # Latest News
--  بلینکن غزې ته د بشري مرستو او د کړکیچ د پراخیدو د مخنیوي لپاره سیمې ته بیا سفر وکړ
--  Reuters: wywiad USA potwierdza, że zamach w irańskim mieście Kerman zorganizowało Państwo Islamskie
--  Ville Peltosta otti pattiin: ”Kaivettiin verta nenästä”
--  Internautas prestam solidariedade ao ministro Alexandre de Moraes
--  La película basada en una tragedia real que es un éxito en Netflix y conmueve a todos de principio a fin
--  تعيين الوزير والإطار السامي المهندس سيدي محمد ولد الطالب أعمر مديرا عاما للصندوق الوطني للضمان الاجتماعي
--  Kuzey Avrupa'da aşırı soğuklar etkili oluyor
--  Μιχάλης Ρέππας: Ανακαλύψαμε την πολιτική ορθότητα μαζί με τον Θανάση Παπαθανασίου πριν εφευρεθεί από μόνη της
--  Буданов прокомментировал слухи о смерти Герасимова
--  Vrouw die moeder liet doden na lang leed is nu een ‘heldin’ met 6,5 miljoen volgers: ‘Dubbel gevoel’
--  Real Housewives of Orange County’s Tamra wants Sonja to move on from RHUGT “shtick”
--  Roupão do líder no BBB 24 será fornecido por empresa centenária de SC
--  لبيد: لم يقترح أحد تسليم غزة للسلطة الفلسطينية
--  Ässien vuoro jäädä huippuvireisen Kärppien jalkoihin jääkiekkoliigassa, voittoputki venyi jo viiden ottelun mittaiseksi
--  Das „absolute Blutbad“ – Russland verliert vier gepanzerte Fahrzeuge
--  تنبيه مهم من "قوى" حول التصرف المطلوب عند تأخر تحديث حالة رخصة العمل
--  الخارجية الأمريكية: العاروري أحد المسئولين عن 7 أكتوبر.. ومن حق إسرائيل الدفاع عن نفسها‏
--  عاجل.. "الأرصاد" يُحذر من ضباب وشبورة على هذه المحافظات بالرياض لـ 8 صباحًا
--  Jhansi News: आज छह फीडरों की बत्ती रहेगी गुल, 10 हजार लोग रहेंगे परेशान
--  Gorakhpur News: मेस में भोजन की गुणवत्ता खराब मिलने पर जताई नाराजगी
--  Noida News: अलाव से लगी तीन झुग्गियों में आग, एक मजदूर की मौत
--  هاغاري: سيكون قتالنا أكثر كفاءة في العام الجاري
--  الأمم المتحدة : غزة أصبحت مكانا للموت واليأس
--  الاحتلال يعترف بإصابة 15 جنديا خلال 24 ساعة
--  لبيد: لم يقترح أحد تسليم غزة للسلطة الفلسطينية
--  رفع درجة الاستعدادات القصوى بقنا تزامنا مع الاحتفال بعيد الميلاد المجيد
--  UŽASNA VEST ZA RUSOFOBE Najavljuje se snažan udarac?
--  Rohtak News: सुनारिया में दुकानदार को घर में घुसकर पीटा
--  Беса бара ДУИ да го исфрли Беким Незири од партијата
--  Serie A, in campo Bologna-Genoa 0-1 LIVE
--  Четворица од насилниците кои упаднаа во М-НАВ вечерва се изнесени пред Кривичниот суд
--  Der CSU-Stadtrat plant einen spektakulären Turm im Norden Münchens
--  What kind of underwear do you have on? Experts reveal the best styles to stay healthy down there
--  শূন্য থেকে চূড়ায় ওঠার কাহিনী ‘টুয়েলভথ ফেল’
--  News24 | Sudan's Burhan lashes out at leaders 'laughing with' RSF leader – as Ramaphosa did this week
--  Wissen - Womit beschäftigt sich die Gen Z in ihrer Freizeit?
--  Σκωτία: Καταζητούμενος για βιασμό σκηνοθέτησε τον θάνατό του - Πώς μπήκε τέλος στην περιπετειώδη καταδίωξή του
--  ¿Cuál era la isla de Jeffrey Epstein, dónde está y qué pasaba ahí?
--  Noida News: रवि काना की भाभी के घर दबिश, पांच वाहन व कंपनी के कागजात जब्त
--  Capturan a presuntos mareros con armamento de grueso calibre
--  Karleuša dobila ulogu fatalne razbojnice u Netfliksovoj seriji, dio će se snimati u Kotoru
--  WFP plans food relief for 270,000 Zimbabweans, poor harvest expected
--  Şəhidimizin tabutunu həyat yoldaşı apardı
--  Lagos Assembly passes N2.267trn as 2024 budget
--  Ander Lorente refuerza la zaga del Portugalete
--  OnePlus Ace 3: Großer Akku und superhelles Display
--  Mass funeral held for blast victims in Iran
--  Gorakhpur News: आरपी वर्मा की पुण्यतिथि पर शास्त्रीय संगीत का आयोजन
--  В Германии расследуют дело о попытке фермеров блокировать Хабека на пароме
--  Federico Pereira está listo para su aventura con el Toluca: “Estoy muy contento”
+-  قوة من الحشد تصل إلى مضافات داعش في عمق صحراء الأنبار
+-  L’hommage d’Emmanuel Macron à Jacques Delors, figure de la « deuxième gauche » et de l’Europe
+-  Pedro Nuno Santos: "Não comento casos judiciais", "estamos focados em ganhar eleições"
+-  “Direita inventou caso dos CTT para denegrir a imagem de Pedro Nuno Santos” diz ministro das Finanças
+-  NCAA Livestream: How to Watch the CFP National Championship Game Online
+-  Lucknow News: नहर में मिला लापता किसान का शव, हत्या का आरोप
+-  Holiday Inn Express & Suites in Alpharetta Sold
+-  Panipat News: निगम के पालिका बाजार दफ्तर में लगेगा 100 केवीए का जेनरेटर
+-  Lucknow News: 25 लाख के गहने व 10 लाख रुपये चोरी
+-  ¡Los dos afuera! Gomes expulsado por patadón y Norgaard lesionado en Brentford vs. Wolves
+-  Ο Κιμ Γιονγκ Ουν ετοιμάζει από τώρα την κόρη του για να τον διαδεχτεί, εκτιμά η Νότια Κορέα
+-  Armed police raid property in relation to Chch death
+-  Mean Girls Music Video Has Megan Thee Stallion & Reneé Rapp Teaming Up
+-  Зеленский: «Выдержать этот год - значит выдержать войну»
+-  Lucknow News: किशोरी को ब्लैकमेल कर 50 हजार ऐंठे, धर्म परिवर्तन का दबाव
+-  Panipat News: अब बरसत रोड पर 12 लाख से तिरंगा लाइटें लगाएगा निगम
+-  Lucknow News: सड़क हादसों में तीन की मौत
+-  New Contract for Dominican airports Siglo XXI (Aerodom) to be published in Special Gazette
+-  Former Mayo Clinic doctor accused of poisoning his wife now facing first-degree murder charge
+-  В Словакии заявили о росте числа фур, направляющихся к границе с Украиной
+-  Cena złota w dół
+-  قائمة جديدة تقدّم ترشحها لرئاسة النادي الصفاقسي
+-  پیپلز پارٹی، ن لیگ اور پی ٹی آئی نے الیکشن التوا مسترد کردیا
+-  ¿Viene una depreciación del peso mexicano en 2024? 5 razones para este pronóstico
+-  Constellation Brands obtiene mayores beneficios en el tercer trimestre y eleva sus perspectivas de beneficios por acción para todo el año
+-  A fayece: Manuel Hyacintho Ortela
+-  La cifra de empleos formales en México sube un 3 % con la creación de más de 650.000
+-  Fernando Diniz é demitido e não é mais técnico da seleção brasileira
+-  "Salvaram os nossos empregos": Meryl Streep coloca Barbie em um pedestal após filme ter sido um dos maiores sucessos de 2023
+-  "Estávamos cientes do que estavam fazendo: "Após 6 anos, um dos maiores mistérios da Marvel finalmente é resolvido
+-  Manu Soro: Thoroughbred parliamentarian with a difference
+-  Jhansi News: निजी नलकूपों पर न लगाए जाएं बिजली के मीटर
+-  صفاقس كاتب عام الاتحاد الجهوي للشغل يعود الصحفي محمد أمين بن هلال الذي تعرض لحادث مرور خطير
+-  BBB 24 | Veja quem são os participantes da edição
+-  Καταζητούμενος για βιασμό έκανε τον… άρρωστο και τον νεκρό για να γλιτώσει
+-  Fico si koupil luxusní byt až za milion eur. Kde na něj vzal, neřekl
+-  Rampur News: चेंबर में घुसकर अधिवक्ता को पीटा, पिता-पुत्र समेत चार पर मुकदमा
+-  Panipat News: परिजनों को घर में बंद कर आग लगाने में एक काबू
+-  Jhansi News: कल पदभार संभालेंगे नवनियुक्त डीआईजी नैथानी
+-  Jhansi News: देश का संविधान बनाने में आचार्य धुलेकर ने दिया था योगदान
+-  Five-year-old boy dies following Hampstead fire
+-  "Ça fait mal" : Julien (Star Academy) dépité après un appel avec sa chérie, il affiche une mine très triste
+-  Fernando Diniz é demitido do cargo de técnico da seleção brasileira por Ednaldo Rodrigues
+-  דייויד סול, כוכב "סטארסקי והאץ'", הלך לעולמו בגיל 80
+-  Baghpat News: मंदिरों में मनाया जाएगा रामोत्सव, सांस्कृतिक कार्यक्रम होंगे
+-  Rampur News: पत्नी को बंगलूरू में छोड़ आया पति, कोतवाली पहुंचकर किया हंगामा
+-  Einige Highlights vom Lichterspektakel im Kronprinzengarten des Schlosses Schönbrunn
+-  Gilmar pede à PGR que avalie se Bolsonaro foi omisso na pandemia
+-  టెస్టుల్లో నెంబర్‌1 ఆసీస్‌
+-  Quebec Man Sought by US After Pregnant Mexican Migrant Dies Crossing Border
