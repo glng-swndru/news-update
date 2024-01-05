@@ -1,51 +1,11 @@
 # Latest News
--  “He doesn’t go cold, a mighty guy”: Aakash Chopra praises Bumrah following win over South Africa
--  박진효 SK브로드밴드 사장 "일회용품 제로 함께해요"
--  라온시큐어, '라온 메타데미 2.0 공개'…실습 효율성 높였다
--  [IT진맥] 게임위 넋 나갔나...다크앤다커 심의가 '이용자 피해' 때문이라니
--  दुई हाइड्रोपावर कम्पनीको शेयर मूल्य समायोजन
--  “Valuable lessons”: Yashasvi Jaiswal on India’s win over South Africa in 2nd Test
--  Stephanie Lose vil være folketingskandidat på hjemmebanen
--  Stephanie Lose vil være folketingskandidat på hjemmebanen
--  EPL: Seaman defends struggling Arsenal star, names Arteta’s real problem this season
--  Nga Lindja e Mesme tek SHBA, Kutia e Pandorës për 2024-ën
--  Izabel Goulart: Heißer Auftritt unter Palmen! Ihr Shirt ist plötzlich durchsichtig
--  DEBATT: Ordet kärring kommer ursprungligen från käring
--  Zamların ardından indirim geldi! Akaryakıtta bir devir sona erdi! (5 ocak 2024 motorin-benzin-LPG güncel fiyatları)
--  Άρης: Σε πρώτο πλάνο ο Γάλλος Πιέρ Κορνούντ για το αριστερό άκρο της άμυνας
--  Vico Therapeutics maakt een Serie B-financiering van $60 miljoen (€54 miljoen) bekend om het VO659 klinische-fase programma voor zeldzame neurologische ziekten te bevorderen en nieuwe mogelijkheden uit te breiden
--  Vico Therapeutics Announces $60 million (€54 million) Series B Financing to Advance VO659 Clinical-Stage Program for Rare Neurological Diseases and Expand Pipeline
--  Mental health services 'at breaking point' as psychosis calls double
--  Ukraina Lancarkan Serangan Udara dari Krimea sampai Belgorod, Hasilnya?
--  더존비즈온, 온라인 대출모집법인 라이선스 획득
--  রাজধানীর প্রবেশমুখে র‌্যাবের চেকপোস্ট
--  কোথায় শৈত্যপ্রবাহ, কোথায় বৃষ্টির আভাস জানুন
--  যুক্তরাষ্ট্রে স্কুলে বন্দুকধারীর গুলিতে সহপাঠী নিহত, আহত ৫
--  টি-টোয়েন্টি বিশ্বকাপে সবচেয়ে ‘কঠিন’ গ্রুপে বাংলাদেশ, প্রতিপক্ষ যারা
--  এক ব্যক্তির ইচ্ছায় নির্বাচন হচ্ছে, ফলাফলও এক ব্যক্তির ইচ্ছায় নির্ধারিত: মঈন খান
--  Drug gangs clash
--  Putin offers faster citizenship to foreigners who fight for Russia
--  নির্বাচনের দুই দিন আগে ভোটকেন্দ্রে আগুন
--  নির্বাচনের দুই দিন আগে ভোটকেন্দ্রে আগুন
--  Арестован тренер суперзвезды бокса. Выдвинуты серьёзные обвинения
--  «Актобе» подпишет футболиста сборной Беларуси
--  Inflatie gedaald tot bijna een procent
--  Əməkdar artist xəstəxanaya yerləşdirildi – FOTO
--  Sanwo-Olu and one-way riders
--  South African athlete Oscar Pistorius to be released on parole after nearly 9 years in prison
--  Najave događaja za 5.1.2024. godine (petak)
--  BIHAMK - Pojačan promet na graničnim prijelazima na izlazu iz BiH
--  Sjeverma Koreja ispalila artiljerijske granate u blizini južnokorejskih otoka
--  고대의대, 미토콘드리아 유전질환 동물 모델 개발
--  HD한국조선해양, 초대형 LPG운반선 2척 3032억 원에 수주
--  PMI Siagakan Tiga Unit Ambulans Bantu Evakuasi Tabrakan Kereta di Cicalengka Bandung
--  Liječnica otkriva kako prepoznati koji ste virus pobrali i kako se liječiti: 'Sezona je respiratornih infekcija'
--  AS Gagalkan Serangan ke Pangkalannya di Suriah
--  2024 대한민국을 이끄는 외식 트렌드 [신간]
--  Australia Just Recorded The 5th Hottest Year And 4th Hottest December On Record
--  Megdőlt a melegrekord, Bátán 16,4 fokot mértek csütörtökön
--  Aracı Olanlar Dikkat: ÖTV Zammı Sonrası Akaryakıta İndirim!
--  Elazığ’da sokak satıcılarına operasyon: 4 gözaltı
--  سیکیورٹی فورسز کا ٹانک میں آپریشن، 2 دہشت گرد جہنم واصل
--  Lice Stefa Karija posle trojke Jokića sa pola terena sve govori - karma ošamarila i Stiva Kera /VIDEO/
--  Sirimiri: Bolsas con heces de perro de Manteo
+-  Kickoff | OFFICIAL: Pitso's replacement at last club confirmed
+-  간 큰 대전시 고위 공무원…이틀 간격으로 ‘음주운전’ 했다
+-  6 январь куни мамлакатимиз жанубида 15-20 даража илиқ бўлади
+-  Инфляция юқорилиги бўйича дунёда қайси мамлакат етакчи?
+-  Паралимпия ўйинларига йўлланмамиз сони 33 тага етди
+-  17 ёшли мактаб ўқувчиси отишма содир этди
+-  Сенат: ер усти метроси бекатларидаги айрим эскалаторлар ишдан чиққани аниқланди ва назоратга олинди
+-  Immediate Reopro Review, UK, South Africa Detailed Report 2024
+-  Немис фермерлари ҳукуматдан нега норози?
+-  Edese stadsdichter Larissa Verhoeff presenteert bundel: 'Een bloemlezing van mijn meest dierbare gedichten'
