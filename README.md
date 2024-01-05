@@ -1,11 +1,11 @@
 # Latest News
--  Rare Element Resources Announces Plans for Management Change
--  US Supreme Court To Hear Trump Appeal Of Ballot Ban
--  Djalo Juve, sorpasso sull’Inter: il difensore dice si ai bianconeri
--  Alienígenas estão nos observando? Entenda o que é a Hipótese do Zoológico
--  Rick and Kathy Hilton’s $25 Million Bel Air Mansion Sells to a Chinese Billionaire
--  Bolu'da 4,2 büyüklüğünde deprem
--  Muere Carlos Bremer, empresario y juez estrella de «Shark Tank México»
--  Fortuna de Carlos Bremer: ¿a cuánto ascendía su riqueza?
--  ANA discorda da maioria das conclusões do Tribunal de Contas sobre privatização
--  Marcelo vê partidos clássicos "à defesa" e sem desmontar argumentos da direita radical
+-  الشهادات المنتهية كلمة السر.. خروج 500 مليار جنيه من البنوك خلال يناير الحالي
+-  US Supreme Court to rule on Trump ballot issue
+-  US Supreme Court to rule on Trump ballot issue
+-  중고차수출복합단지 대체사업 추진…전북도 "미래차 육성"
+-  與 공관위원장에 '판사 출신' 정영환…한동훈표 '물갈이론' 탄력
+-  Sydney Test LIVE: Australia chase cheap wickets before emotional Warner farewell
+-  Sydney Test LIVE: Australia chase cheap wickets before emotional Warner farewell
+-  La Bolsa mexicana gana 1,42 % y rompe racha negativa, pero pierde un 2,08 % en la semana
+-  Baldur’s Gate 3 player finds genius way to avoid Counting House vault puzzle
+-  aspekte vom 26. Januar 2024
