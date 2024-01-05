@@ -1,51 +1,51 @@
 # Latest News
--  Eindhoven Diving Cup organises banner contest
--  Korea’s Hancom buys document software firm Clipsoft
--  Cab service Bolt launches platform also in Eindhoven
--  기업의 블록체인 사업 진출 돕는 '쟁글'...'ERP'로 회계-유통량-공시 한번에 잡는다
--  More sinkholes in Eindhoven after heavy rainfall
--  Британия разгневана действиями КНДР и усиливает украинскую ПВО
--  Большой переполох в бакинской чайхане
--  Украина заменяет снаряды дронами
--  Германия слезам азербайджанцев не верит
--  Глава МИД Латвии: Путин не остановится
--  Республиканцы выразили поддержку Трампу
--  בגיל 43: יעל בר זוהר עושה את זה לראשונה בחייה
--  בכיר בעיריית ירושלים איחל מוות ליהודים: "לא ידענו"
--  FN: Ingen humanitär hjälp till norra Gaza
--  Samsun'da hemşire, 7 sağlık çalışanını dolandırdı!
--  Požar stana u povijesnoj jezgri Dubrovnika. Smrtno stradao 66-godišnji muškarac
--  Antalya Gazipaşa'da acı olay: Çıkan yangında yaşamını yitirdi
--  La Comunidad Valenciana establece el uso obligatorio de la mascarilla en hospitales y centros de salud
--  الولايات المتحدة تجدد دعمها القوي للتصديق على انضمام السويد إلى حلف الناتو
--  United Cup: Συνέτριψε την Κέρμπερ η Σάκκαρη
--  MSB duyurdu: Etkisiz hale getirildiler
--  34 Mossad ajanı adliyeye sevk edildi
--  Uzmanlardan dikkat çeken açıklama: Belirti göstermeden bulaşıyor!
--  الأسهم اليابانية تغلق على ارتفاع اليوم
--  Davutoğlu'ndan Kılıçdaroğlu açıklaması: Hayal kırıklığına uğrattı
--  "الغطاء النباتي": زيادة 600% في المساحات الخضراء بمكة المكرمة خلال أشهر
--  أمانة الطائف تجهز 150 حديقة عامة لاستقبال الزوار خلال الإجازة
--  الأخضر تحت23 يدشن تدريباته ضمن معسكره الإعدادي في الإمارات
--  الأخضر يبحث عن استعادة أمجاده في العرس الآسيوي
--  "ZATO SMO GA DOVELI U ZVEZDU!" Iks faktor koji je zakucao Partizan - Sferopulos MORAO da kaže ovo o njemu!
--  Новите бизнеси стимулират активността в японския сектор на услугите
--  Jokić servirao Kariju njegov specijalitet: Trojka sa pola terena za pobjedu
--  "Zakrpite rupe na Martinićkom putu ili uplatite novac pa ćemo ih mi zakrpiti"
--  Blagi dani da nas podsjećaju na vrijednosti koje ujedinjuju
--  Teretni brod udario u most na Dunavu: Zatvoren granični prelaz između Srbije i Hrvatske
--  Iz otvorene garaže nekretnine u izgradnji na Podmurvicama ukradena dva hidromasažna bazena vrijedna oko 6.000 eura
--  치질 원인과 증상 그리고 치료 방법
--  أرقام قياسية.. اقتصادي يزف بشرى سارة بشأن «البورصة» المصرية خلال 2024الأمس الخميس، 4 يناير 2024 04:53 مـ
--  بنكا الأهلي ومصر يطرحان شهادات ادخار بعائد يصل إلى 27 %اليوم الجمعة، 5 يناير 2024 08:53 صـ
--  حملات مكبرة لإزالة التعديات ومخالفات البناء بالعبور والشيخ زايد.. «صور»اليوم الجمعة، 5 يناير 2024 09:27 صـ
--  بعد طرح شهادات الـ 27%.. تعرف على سعر جرام الذهب اليوماليوم الجمعة، 5 يناير 2024 09:01 صـ
--  موعد تسليم قطع أراضي الإسكان المتميز بمدينة ملوي الجديدةاليوم الجمعة، 5 يناير 2024 08:57 صـ
--  Atlantic: ВСУ не используют польские танки на фронте из-за российской артиллерии
--  Ramos: “He visto oportuno parar una falta de respeto porque el sevillismo está muy por encima de las faltas de educación”
--  小米澎湃OS打造家庭运动互联，手表和电视也能成为一对
--  All-Ireland contenders CAN withstand absence of former Hurler of the Year, insists young star
--  Chuyển động Nhà nông 5/1: Đầu tư 430 tỷ đồng cho vùng nguyên liệu mía
--  Officielt: Freyr Alexandersson på plads i belgisk klub
--  Muškarci rođeni u ova 4 znaka najbolji su izbor za bračnog partnera u 2024.
--  Biarritz: ivre, il finit en garde à vue avec sa chèvre domestique
+-  Čestitke povodom Badnjeg dana i Božića
+-  Priscilla Presley le cambió la vida a Cailee Spaeny
+-  Evacúan islas en Corea del Sur ante lanzamiento de misiles norcoreanos
+-  FACTBOX-With explosions in Iran, Islamic State attempts a comeback
+-  Tesla 1.6 milyon aracını geri çağırdı
+-  Bakan Uraloğlu İzmir'e hızlı trenin geleceği tarihi açıkladı
+-  How Does a Residential Roofer Differ From a Commercial Roofer
+-  جيش الاحتلال يتحدث عن استهداف مواقع لحزب الله
+-  Uskoro novi režim: Najveći Hrvatski plinari će morati transakcije unaprijed prijavljivati Europskoj komisiji...
+-  북한 해안포 사격에도 서해5도 주민들 의연해
+-  유정복 인천시장, 北 도발 긴급회의 소집...주민안전 철저 지시
+-  북한 포 사격 도발, 연평도·백령도 대피령 3시간 30분만 해제
+-  الجمعية العامة للأمم المتحدة تعقد جلسة بشأن الوضع في غزة الثلاثاء القادم
+-  Frauenanteil in Topetagen der Wirtschaft steigt - wirkt die Frauenquote?
+-  Frauenanteil in Topetagen der Wirtschaft steigt - wirkt die Frauenquote?
+-  Torino, torna Passador dal Rimini: è UFFICIALE
+-  Móðir bað um hjálp við að leysa skólaverkefni 6 ára dóttur sinnar – Aðrir jafn forviða og hún yfir spurningunni
+-  Rynek redukuje oczekiwania dotyczące cięcia stóp przez EBC
+-  New Year, new Europe: Defence strategy, capabilities and technology
+-  Əsgər analarına şad xəbər
+-  Producent dronów Bayraktar został liderem tureckiego eksportu
+-  Nurgül Yeşilçay'dan 'Şampiyonlar Ligi' paylaşımı
+-  הפרת סדר: מכבי תל אביב שוב נפלה להתפרקות התקופתית
+-  Komşunun canına tak etti! ABD'yi ülkeden kovmak için hazırlıklara başladılar
+-  Tam 624 kilometrelik dev proje! Seyahat süresi 14 saatten 3,5 saate düşecek
+-  İstanbul-Edirne arası 4 saatten 1 saat 35 dakikaya düşecek! Yeni gelişme
+-  לא שה תמים: עברה של נשיאת הרווארד שהתפטרה כולל רגעים אפלים
+-  Navigasyon tır sürücüsünü mağdur etti
+-  מפעל העופות המוכר נופל קורבן לסחיטה: "העוף יהפוך לסלט"
+-  חגיגת "משטובות" ביהודה ושומרון: המבצע החריג של המשטרה נחשף
+-  "המחסל של העולם התחתון" מקים מפלגה חדשה: יתחרה בבן גביר?
+-  האמת על הפיצויים נחשפת: כך תדעו למי לפנות
+-  Reacția mamei Reevei după ce Oscar Pistorius, ucigașul fiicei sale, a fost eliberat condiționat
+-  İran: Saldırıları üstlenen DEAŞ, ABD ve İsrail tarafından yönetiliyor
+-  המקצוע הגרוע בישראל נחשף: איפה תרוויחו בחודש 5,369 שקל?
+-  Insider Look: CES 2024’s Most Awaited AI Announcements You Can’t Miss
+-  ලෝ ලෙවල් මාර්ගයේ කොටසක් හෙට වසයි
+-  2024'te borsada ne alınırsa gider?
+-  يحتل المركز السادس.. «عصابة عظيمة» يحقق 208 آلاف جنيه في أول أيام عرضه بالسينما
+-  Nedim Şener yazdı: 445 aktif emniyet mensubu açığa alındı
+-  İnşaat Malzeme Üretimi Önceki Yıla Göre Artış Gösterdi
+-  الاستعلام عن صحة شاب خليجي أصيب في حادث سير بالمهندسين
+-  So reagiert Minister Robert Habeck auf den Angriff der Bauern in Dagebüll
+-  So reagiert Minister Robert Habeck auf den Angriff der Bauern in Dagebüll
+-  Sony Alpha A7R V full review
+-  Wetterdienst hebt Unwetterwarnungen auf
+-  Griekspoor zegt toernooi af in aanloop naar Australian Open: ‘Voelt niet alsof ik er helemaal klaar voor ben’
+-  “Alarmante”. Espanha teme ser ultrapassada por Portugal no PIB per capita nas próximas décadas
+-  GNR realizou 315 transportes de órgãos em 2023
+-  La primera jornada de huelga en Iberia deja 11 vuelos cancelados entre los tres aeropuertos gallegos y Madrid
