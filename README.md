@@ -1,51 +1,11 @@
 # Latest News
--  Saç beyazlamasına karşı 3 pratik yöntem! Oysa çözümü bu kadar basitmiş
--  Atama ve görevden alma kararları Resmi Gazete'de
--  Beşiktaş'tan Necip Uysal açıklaması! Sağlık durumu...
--  Beşiktaş'tan Lucescu hamlesi! Kritik görüşme ortaya çıktı
--  Fans say ‘this feels illegal’ as they lose their minds over Jeremy Allen White’s new Calvin Klein shoot
--  José Roberto Burnier recebe alta e confirma data para retorno ao SP2
--  Weatherford programa una teleconferencia sobre los resultados del cuarto trimestre y del ejercicio completo
--  Cadence presentará los resultados del cuarto trimestre y del año fiscal 2023 el 12 de febrero
--  La Bolsa de Buenos Aires cierra con una subida del 3,91 %
--  Barkin, de la Reserva Federal de Richmond, insinúa posibles recortes de tipos este año
--  Ventas de coches eléctricos e híbridos en Brasil crecerá un 60% en 2024: grupo industrial
--  El Consejero Delegado de Rare Element Resources, Brent Berg, dimitirá en abril
--  Breaking: Hillary Clinton's Name Mentioned in Newest Batch of Epstein Documents
--  AlpsHL: Die Zwischenrunde auf einem Blick
--  ‘Jrue’s been the ultimate teammate’: Derrick White credits Jrue Holiday for career-year on offensive end
--  With restaurant prices likely to drop in 2024, here’s why Yum’s stock may be a better buy than McDonald’s
--  Brazilia și-a demis selecționerul. Cine este favorit să o preia pe ”Selecao”
--  Supreme Court agrees to hear Colorado case over Trump's 2024 ballot eligibility
--  Diyarbakır için kar yağışı uyarısı
--  Tottenham and Fulham have advanced to the fourth round of football's FA Cup
--  Alien Invasion? Internet Theory Catches Fire After Massive Police Presence Spotted at Miami Mall
--  Iskusni konobar otvorio dušu, kaže kako je bakšiš zlo, najveću napojnicu dobio je od bivšeg hrvatskog nogometaša...
--  Dominican judge orders conditional release of Tampa Bay Rays shortstop Wander Franco while probe continues
--  At least three killed in insurgent attacks in Mozambique as IS declares global offensive
--  연기 마시고, 뛰어내리고…성동구 상가 화재로 2명 부상
--  Diese Filme und Serien sind auf Netflix derzeit sehr beliebt
--  Manhattan BP Mark Levine worried about ‘hole’ in city’s snow removal plan as weekend storm looms
--  Drone nearly smashes into DJ legend Fatboy Slim as he performed in front of thousands at beach dgig
--  Frankie Musonda optimiste malgré la difficulté du Groupe F de la CAN 2023
--  "J'ai ripé" : cette énorme bourde de Karima Charni liée à la Star Academy face à Brigitte Macron
--  صحيفة إسبانية: موريتانيا لاعب جديد في قطاع الغاز؟
--  Aksidentohet vetura e Qeverisë – brenda saj ka qenë ministrja për Punë dhe Politikë Sociale
--  Kohler’s Vision for the Future of Bathroom Technology
--  Courteney Cox's Must Haves, From a $300 Cream to a $9 Mascara
--  Adana'da hurda deposunda çıkan yangın korkuttu
--  Nagyobb forgalmat és bevételt hozhat a kisboltoknak a visszaváltási rendszer
--  Tri-cities likely to lose $15 million after not meeting housing targets for 2023
--  Petróleo registra avance semanal por riesgos de suministro
--  Trágico accidente aéreo en el Caribe: Fallece el actor de Indiana Jones, Christian Oliver y sus Hijas
--  Supreme Court agrees to review Trump’s Colorado ballot ban in historic case
--  Bomba: Erik Lamela podría volver al fútbol argentino
--  Graban a policías de Cancún robando fajo de billetes en cateo VÍDEO
--  L.A. Lakers mystique was alive and well in ’23 on DraftKings’ sportsbook in Ontario.
--  L.A. Lakers mystique was alive and well in ’23 on DraftKings’ sportsbook in Ontario.
--  Expert: Kluci byli jak Kanaďani, pro výhru by si urvali hlavu. Kulich má na NHL
--  L.A. Lakers mystique was alive and well in '23 on DraftKings' sportsbook in Ontario.
--  MÚSICA (Amazon/MGM Studios
--  Medien: Brasilianischer Verband trennt sich von Coach Diniz
--  Nach toller Aufholjagd: Für die Eispiraten Crimmitschau gibt es im Heimspiel gegen Kaufbeuren nur einen Punkt
--  بتضخم مفرط وأزمة غذاء... كوبا تحيي ذكرى 65 عاماً على ثورة كاسترو
+-  Rare Element Resources Announces Plans for Management Change
+-  US Supreme Court To Hear Trump Appeal Of Ballot Ban
+-  Djalo Juve, sorpasso sull’Inter: il difensore dice si ai bianconeri
+-  Alienígenas estão nos observando? Entenda o que é a Hipótese do Zoológico
+-  Rick and Kathy Hilton’s $25 Million Bel Air Mansion Sells to a Chinese Billionaire
+-  Bolu'da 4,2 büyüklüğünde deprem
+-  Muere Carlos Bremer, empresario y juez estrella de «Shark Tank México»
+-  Fortuna de Carlos Bremer: ¿a cuánto ascendía su riqueza?
+-  ANA discorda da maioria das conclusões do Tribunal de Contas sobre privatização
+-  Marcelo vê partidos clássicos "à defesa" e sem desmontar argumentos da direita radical
