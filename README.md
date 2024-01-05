@@ -1,11 +1,11 @@
 # Latest News
--  مركز الملك سلمان للإغاثة: 5 آلاف طن مساعدات إنسانية إلى غزة (فيديو)
--  عاجل.. 4 شروط لاستخدام اسم "السعودية" تجاريًا
--  Markedskommentar december 2023 – Formuepleje
--  Markedskommentar december 2023 – Jyske Neminvestering
--  Rana Gruber ASA annonce ses résultats de production pour le quatrième trimestre et l'année 2023
--  Webstep ASA annonce la nomination de Kjell Magne Leirgulen en tant que nouveau président du conseil d'administration
--  Arribatec Group ASA remporte un contrat de 43 millions de couronnes norvégiennes
--  Uớc tính khoảng 2 triệu tỉ đồng sẽ được đưa vào nền kinh tế năm 2024
--  Quận 1 'đương đầu' với nạn chặt chém giá giữ xe ở phố đi bộ Nguyễn Huệ
--  Tìm ra tài xế lái Mercedes 'phóng' 210km/h trên cao tốc Mỹ Thuận - Cần Thơ
+-  Golden Globes 2024 predictions: Who will and should win?
+-  Écoutez votre musique gratuitement avec Apple Music (offre ultra limitée)
+-  Congress slams BRS, BJP for politicizing Pharma City issue
+-  Юные вологжане поделятся своим видением охраны труда
+-  Bauernprotest: Das ist in Hessen und Rheinland-Pfalz geplant
+-  Entinen F1-kuski sai sydänpysähdyksen juhla-aterialla
+-  Rafael Nadal sufre primer gran tropiezo tras su regreso: eliminado en Brisbane
+-  Serkan Çayoğlu'ndan Fatih Sultan Mehmet itirafı!
+-  Iraklı polisler Yunus Emre Enstitüsü işbirliğinde Türkçe öğreniyor
+-  Almanya'da hastane yangını: Ölüler var
