@@ -1,51 +1,11 @@
 # Latest News
--  قوة من الحشد تصل إلى مضافات داعش في عمق صحراء الأنبار
--  L’hommage d’Emmanuel Macron à Jacques Delors, figure de la « deuxième gauche » et de l’Europe
--  Pedro Nuno Santos: "Não comento casos judiciais", "estamos focados em ganhar eleições"
--  “Direita inventou caso dos CTT para denegrir a imagem de Pedro Nuno Santos” diz ministro das Finanças
--  NCAA Livestream: How to Watch the CFP National Championship Game Online
--  Lucknow News: नहर में मिला लापता किसान का शव, हत्या का आरोप
--  Holiday Inn Express & Suites in Alpharetta Sold
--  Panipat News: निगम के पालिका बाजार दफ्तर में लगेगा 100 केवीए का जेनरेटर
--  Lucknow News: 25 लाख के गहने व 10 लाख रुपये चोरी
--  ¡Los dos afuera! Gomes expulsado por patadón y Norgaard lesionado en Brentford vs. Wolves
--  Ο Κιμ Γιονγκ Ουν ετοιμάζει από τώρα την κόρη του για να τον διαδεχτεί, εκτιμά η Νότια Κορέα
--  Armed police raid property in relation to Chch death
--  Mean Girls Music Video Has Megan Thee Stallion & Reneé Rapp Teaming Up
--  Зеленский: «Выдержать этот год - значит выдержать войну»
--  Lucknow News: किशोरी को ब्लैकमेल कर 50 हजार ऐंठे, धर्म परिवर्तन का दबाव
--  Panipat News: अब बरसत रोड पर 12 लाख से तिरंगा लाइटें लगाएगा निगम
--  Lucknow News: सड़क हादसों में तीन की मौत
--  New Contract for Dominican airports Siglo XXI (Aerodom) to be published in Special Gazette
--  Former Mayo Clinic doctor accused of poisoning his wife now facing first-degree murder charge
--  В Словакии заявили о росте числа фур, направляющихся к границе с Украиной
--  Cena złota w dół
--  قائمة جديدة تقدّم ترشحها لرئاسة النادي الصفاقسي
--  پیپلز پارٹی، ن لیگ اور پی ٹی آئی نے الیکشن التوا مسترد کردیا
--  ¿Viene una depreciación del peso mexicano en 2024? 5 razones para este pronóstico
--  Constellation Brands obtiene mayores beneficios en el tercer trimestre y eleva sus perspectivas de beneficios por acción para todo el año
--  A fayece: Manuel Hyacintho Ortela
--  La cifra de empleos formales en México sube un 3 % con la creación de más de 650.000
--  Fernando Diniz é demitido e não é mais técnico da seleção brasileira
--  "Salvaram os nossos empregos": Meryl Streep coloca Barbie em um pedestal após filme ter sido um dos maiores sucessos de 2023
--  "Estávamos cientes do que estavam fazendo: "Após 6 anos, um dos maiores mistérios da Marvel finalmente é resolvido
--  Manu Soro: Thoroughbred parliamentarian with a difference
--  Jhansi News: निजी नलकूपों पर न लगाए जाएं बिजली के मीटर
--  صفاقس كاتب عام الاتحاد الجهوي للشغل يعود الصحفي محمد أمين بن هلال الذي تعرض لحادث مرور خطير
--  BBB 24 | Veja quem são os participantes da edição
--  Καταζητούμενος για βιασμό έκανε τον… άρρωστο και τον νεκρό για να γλιτώσει
--  Fico si koupil luxusní byt až za milion eur. Kde na něj vzal, neřekl
--  Rampur News: चेंबर में घुसकर अधिवक्ता को पीटा, पिता-पुत्र समेत चार पर मुकदमा
--  Panipat News: परिजनों को घर में बंद कर आग लगाने में एक काबू
--  Jhansi News: कल पदभार संभालेंगे नवनियुक्त डीआईजी नैथानी
--  Jhansi News: देश का संविधान बनाने में आचार्य धुलेकर ने दिया था योगदान
--  Five-year-old boy dies following Hampstead fire
--  "Ça fait mal" : Julien (Star Academy) dépité après un appel avec sa chérie, il affiche une mine très triste
--  Fernando Diniz é demitido do cargo de técnico da seleção brasileira por Ednaldo Rodrigues
--  דייויד סול, כוכב "סטארסקי והאץ'", הלך לעולמו בגיל 80
--  Baghpat News: मंदिरों में मनाया जाएगा रामोत्सव, सांस्कृतिक कार्यक्रम होंगे
--  Rampur News: पत्नी को बंगलूरू में छोड़ आया पति, कोतवाली पहुंचकर किया हंगामा
--  Einige Highlights vom Lichterspektakel im Kronprinzengarten des Schlosses Schönbrunn
--  Gilmar pede à PGR que avalie se Bolsonaro foi omisso na pandemia
--  టెస్టుల్లో నెంబర్‌1 ఆసీస్‌
--  Quebec Man Sought by US After Pregnant Mexican Migrant Dies Crossing Border
+-  דיווח בברזיל: דיניז סיים את דרכו בנבחרת, ויש מועמד להחליפו
+-  Los tres Reyes Magos aterrizan en el barrio latino de Harlem en Nueva York
+-  Iraq prepares to close down US-led coalition’s mission – PM
+-  Petro dice a Panam Sports que Colombia está en capacidad de organizar los Panamericanos
+-  La ONU nombra a la excanciller María Ángela Holguín nueva enviada para Chipre
+-  Junior aún no ejerce la opción de compra por Peña
+-  Especialista en finanzas estima hasta tres ajustes de salario este año
+-  Kate Garraway takes leave following the tragic death of husband Derek Draper
+-  Ace Frehley: My New Album Will Make KISS Seem Like Imbeciles
+-  – رئيس مجلس الإدارة لبيوت الشباب الليبية يتابع تنفيذ المشاريع الجاري تنفيذها ببيت شباب الخمس .
