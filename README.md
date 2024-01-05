@@ -1,51 +1,11 @@
 # Latest News
--  الفوز الأول للنشامى تحت قيادة عموته
--  Pariz naziva ulicu po Davidu Bowieju
--  Otvorene prijave za 'Blidinje BIKE Festival'
--  Produžen pritvor ocu dječaka koji je počinio masovno ubojstvo u školi 'Vladislav Ribnikar'
--  Najave događaja za 6.1.2024. godine (subota)
--  Veliki broj oboljeli od hripavca u Srbiji, u Beogradu prijavljena epidemija
--  News24 | Kenya says first 'visa-free' tourists arrive in the country
--  Il programma per accessori “Designed for Samsung Gaming Hub” in arrivo al CES 2024
--  Son dakika: Cumhurbaşkanı Erdoğan, Zelenskiy ile görüştü
--  ING Kadınlar Türkiye Kupası'nda şampiyon Fenerbahçe Alagöz Holding!
--  יש בסיס לאיומים: כך הפך נסראללה את דרום לבנון לבסיס צבאי גדול
--  Raskin: Trump has fulfilled 'worst fears and nightmares' of founders with foreign spending at businesses
--  Soccerladuma | Firmino Linked With Surprise EPL Return
--  Saturday Party w Black Pub Klubie
--  ‘NATO Lake’: Western Military Bloc Tries to Make It Look Like It 'Owns' Baltic Sea
--  Cumhurbaşkanı Erdoğan, Zelenskiy ile görüştü! Tahıl koridoru mesajı
--  Oliver Pocher mit krasser Ansage: „Dann höre ich auf“
--  BİLDEF Kurucu Başkanı Mustafa Dursun 10. Yıl programında fenalaştı
--  Afrobarometer lance les enquêtes du Round 10 et vise à accroître son empreinte dans environ 42 pays d'ici 2025
--  Bitcoin Spot ETF Bugün Onaylanacak Diyen Gazeteci Yeniden Konuştu: Bu Kez Fikir Değiştirdi
--  Duže, skuplje, ali sigurnije putovanje: Danski div preusmerava brodove iz Crvenog mora
--  Yeni Şafak'ın sevilen serisi Hafıza'nın yeni bölümü yayında: ABD'den korkan ülkeler İsrail'e ses çıkaramıyor
--  Cumhurbaşkanı Erdoğan Ukrayna Cumhurbaşkanı Zelenskiy ile görüştü: Ukrayna ve Filistin'de barış için gayret gösteriyoruz
--  Warner Bros. Discovery Corporate Communications Chief Nathaniel Brown to Exit
--  SpaceX因不公平勞工行為指控對NLRB提起訴訟
--  WEATHER ALERT: Mangaung Metro road closures due to heavy rains
--  My Brother’s Keeper: Friday’s episode, 5 January 2024 [VIDEO]
--  Detienen en muro fronterizo a traficante de mariguana
--  Inicia proceso para despenalizar aborto a nivel federal
--  Reconoce SSPC extorsiones en Edomex y Guerrero
--  'Violencia en Tabasco, por reacomodo de bandas'
--  All Solutions Known to Buy Coffee for Every Business Owner in Minnesota and Wisconsin
--  Lleva Juan Manuel desaparecido desde el 19 de diciembre en Allende
--  傑弗裡·愛斯坦案新文件揭露：數十名女孩被招募參與性交易
--  “Texel staat er goed voor"
--  Video: Golpiza de municipales a hombre fue el 31 de diciembre
--  Wirecard: Wird Olaf Scholz von Wladimir Putin erpresst?
--  BUA Speaks On EFCC Raiding Its Head Office In Lagos
--  Ukraiński dyplomata mówi o Polsce. Padły gorzkie słowa
--  Video: Schalke-Trainingslager in Portugal 4. Tag: Tillmann und Wilmots eingetroffen
--  Protest-Treckerfahrt durch Recklinghausen: Verkehrschaos rund um die Innenstadt erwartet
--  Suma jenant de mică pe care a plătit-o Tzancă Uraganu pentru concertul de manele de la Sala Sporturilor din Constanța
--  SCANDAL: Friday’s episode, 5 January 2024 [VIDEO]
--  PDT vai formalizar na terça-feira apoio à candidatura de Boulos
--  South Galway’s Teresa Roche elected Chair of IFA Farm Family & Social Affairs Committee
--  美國勞工關係委員會指控Lucid解僱支持工會的員工
--  BYD najavljuje svoju prvu europsku tvornicu automobila u Mađarskoj
--  Stellantis, matriz de Chrysler, no se anunciará en la Super Bowl
--  Chrysler-Muttergesellschaft Stellantis wird nicht im Super Bowl werben
--  La società Stellantis, genitrice di Chrysler, non farà pubblicità al Super Bowl
+-  بعد وفاته.. المحكمة العليا الإيطالية تبرئ مارادونا من تهمة التهرب الضريبي
+-  شاهد تدفق سيول مرتفعات حرة بني رشيد بين حائل والمدينة
+-  تفوقت على تسلا.. أكثر سيارات "بي واي دي" مبيعا
+-  إجازة منتصف الفصل الدراسي.. 170 حديقة جاهزة في تبوك و150 بالطائف
+-  عاجل.. مختص بالشأن الاجتماعي يُحذر من هذا الخطر للشعوذة واتباع الدجالين (فيديو)
+-  أطعمة لا يصح تناولها مع فاكهة اليوسفي
+-  السودان.. البرهان: لا صلح ولا اتفاق مع الدعم السريع وسنقاتلهم حتى الموت
+-  التجشؤ المفرط علامة على مرض مميت
+-  Gaia capta passageiros a sul do Douro mas Estarreja continua contra o TGV
+-  Schalke-Rückkehrer Wilmots: Winter-Transfers fraglich
