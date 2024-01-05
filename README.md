@@ -1,51 +1,51 @@
 # Latest News
--  באיזו מניה להשקיע? מומחה מסביר: אלו שלוש החברות המנצחות
--  3 לאחר הסכמי הנורמליזציה: זו המדינה ממנה הישראלים בורחים מפחד
--  בשורה איומה לרוכשי הדירות, בארי עובר מקום והקלה לשוכרי הדירות
--  [게임소식] 웹젠, '뮤 온라인' 갑진년 새해 맞이 이벤트 진행 외
--  Jokićevu efikasnost nadmašuje samo Čemberlen
--  이계철 의원, 대한민국사회발전대상 '지방자치의정 부문 대상' 수상
--  삼천포중앙시장상인회, 이웃돕기 성금 기탁
--  사천축협, 희망 2024 나눔캠페인 이웃돕기 성금 700만 원 기탁
--  이재명, 한동훈·문재인 문병 의사 잇따라 거절… "당분간 안정 필요"
--  이베스트투자증권, LS네트웍스 대주주되나…이르면 이달 중 변경
--  사천 문선초교 박승찬 어린이, 이웃돕기 성금 기탁
--  Τα απόβλητα από την πράσινη ενέργεια παραβλέπονται στην ατζέντα για το κλίμα
--  Saga Furs: Tulos paranee selvästi edellisestä tilikaudesta
--  #Mali : Forces armées maliennes : Le vecteur aérien renforcé par des drones
--  Ferrari-kaksikko joutuu odottamaan - talli ei kiirehdi jatkosopimuksen kanssa
--  Coupe du Sénégal-Hand-ball: Les Finales programmées ce samedi
--  Leading Future Development of Energy Storage - BatteroTech 314Ah Cell Empowers SNEC ES+ International Energy Storage Conference & Exhibition
--  Çaykur Rizespor, Hatayspor'u konuk edecek
--  Merih Demiral ikinci kez baba olacağının müjdesini verdi
--  Giovanni van Bronckhorst bombayı patlatıyor! İlk transferi Fenerbahçe'den...
--  Fatih Altaylı, nöbetçi hakimliğe sevk edildi
--  Çayı bu şekilde içmek kanser riskini 8 kat artırıyor! Uzmanlar o şehirlere dikkat çekti
--  Guatemala'da eski Devlet Başkanı Molina kefaletle serbest kaldı
--  Ayla Algan'ın son videosu yürek burktu... 2024 için güzel dileklerde bulunmuş
--  평택시, 2023년 보조금 관리 효율화 기관 표창 수상
--  구리시, 제5기 마을세무사 위촉… "재능 기부로 무료 상담해드려요"
--  오영주 중기부 장관, 중소기업 애로사항 청취 위한 현장 방문
--  한동훈 비대위원장 "'메가시티 서울' 구체적인 정책으로 추진"
--  가천길재단, 2024년도 신년하례회 개최
--  한동훈 비대위원장, 김건희 업무전담 '제2부속실 설치'…"공감"
--  신재경 국민의힘 인천 남동을 예비후보, 출판기념회 개최
--  경기도민 58% "김동연 지사, 잘하고 있다"
--  3기 신도시 창릉지구 광역교통개선대책 ‘고양은평선 기본계획’(안) 공청회 개최
--  Alexander Dubček. Komunista, který měl svatbu v kostele a jehož unesli do Kremlu
--  북한 해안포 사격으로 주민들 긴급 대피... 오후 3시45분께 해산
--  Ağırdan Almak Deyiminin Anlamı Nedir? Kısaca Açıklaması ve Örnek Cümle…
--  5 Ocak 2024 Cuma gününün son dakika önemli gelişmeleri! (CNN TÜRK 11.30 bülteni)
--  CHP'de yerel seçim tartışmaları: 'İmamoğlu İstanbul için liste yolladı' iddiası
--  Japonya'daki depremde can kaybı 94'e yükseldi
--  Seda Bakan kaçak kedi krizini takipçileriyle paylaştı
--  MSB: 2 PKK'lı terörist etkisiz hale getirildi
--  Cumhuriyet'in 100. yılında otomotivde rekor kırıldı
--  Селекторот делумно задоволен од играта против Грција
--  24 Verletzte bei Kollision zweier U-Bahnen in New York
--  Realizan la primera operación percutánea renal a una embarazada en Galicia
--  Sabaha olan hava proqnozu
--  Azərbaycan neftinə tələbat artır: İtaliya və İsraillə yanaşı, Hindistan da… – FOTO
--  1.5 milyon haneye yerli doğal gaz
--  Kıvanç Talu Beril Talu yakalandı! Fenomen çift 150 milyon TL ile kaçmıştı!
--  Cesedi uçak motorunda bulundu
+-  Iran mourns those slain in Islamic State-claimed suicide blasts as death toll rises to 89
+-  [112 상황실에 “이재명 대구오면 작업할 것” 전화…경찰 수사
+-  [▶▶ 24년부터 전국민 카카오톡 추천주 무료.!
+-  [▶▶ 24년부터 전국민 카카오톡 추천주 무료.!
+-  Hem adı hem tadı farklı! 11 bin ton üretiliyor 7 ay boyunca bozulmadan duruyor! Irak, İran, Suriye kasa kasa götürüyor
+-  강원특별자치도 김진태 지사, 강릉산불피해 이재민 임시조립주택 현장점검
+-  [금요극장] 빅 피쉬-팀 버튼 감독 판타지 영화
+-  [한국기행] 새해엔 바라는 대로 5부-잘나가는 언니들
+-  [스페이스 공감] 스페이스 곳간 - ‘시가 된 노래, 노래가 된 시’
+-  EBS '명의' 신년 특집, 고위험 임신 질환...'임신중독증' ‘자궁 내 태아 발육 지연’
+-  [세상에 나쁜 개는 없다] 오토바이에 끌려가던 개, 뉴스 속 '한티'는 어떻게 지내고 있을까?
+-  [생방송투데이 맛집] ‘소곱창전골’ 맛집
+-  임영웅, 콘서트 스태프에 도시락 대신 밥차 대접 … 알바생, 미담 후기 남겨
+-  쿠팡, 한국경제 비판 기사에 ‘전면전’ 선언
+-  SDA: The functioning of BHRT and FTV must not be called into question
+-  Couple fleeced of more than $5000 in rental scam
+-  Couple fleeced of more than $5000 in rental scam
+-  สับเละ​‘งบฯศธ.​’ ​‘วิโรจน์​’เหน็บยุครมว.ชื่อ‘เพิ่มพูน’ แต่การศึกษาไทยถดถอย
+-  'เบียร์ เดอะวอยซ์'โดนปลดฟ้าผ่าซีรีส์ดัง นักแสดงร่วมรับไม่ได้หลังมีปมฉาว
+-  ชาวบ้านวังจันทร์ จ.ระยอง ร้องขอสร้างสระเก็บน้ำ หลังภัยแล้งรุนแรง
+-  เปิดแชทเต็มๆ! 'หนุ่ม กรรชัย'ทักDMคุยกับ'เบียร์ เดอะวอยซ์'
+-  '세기말의 사랑' 이유영·임선우·노재원, 각양각색 매력 넘치는 포스터 공개
+-  #Mali : Mariage mixte islamo-chrétien : Des hauts et des bas
+-  Boda boda riders sue Ruto’s UDA for misusing them during 2022 campaigns
+-  Felipe Anderson Juve, super offerta dall’Arabia! I dettagli
+-  Bankalar 2024 promosyonlarını güncelledi! Herkes kaşıkla o banka kepçeyle veriyor: Ziraat, İNG, İş Bankası, BBVA...
+-  Bygglov för digital skylt upphävs efter protester
+-  Бивш затворник прави купон за освобождаването си, няколко души са в болница
+-  KPI Sanksi Program Brownis Tampilkan Lelaki Berpakaian dan Riasan Wanita
+-  Бивш затворник прави купон за освобождаването си, няколко души са в болница
+-  Бивш затворник прави купон за освобождаването си, няколко души са в болница
+-  Para que serve um sonho?
+-  Казахстанские борцы выступят на турнире в Хорватии
+-  'Kal Raat Sapna Aaya?' Manoj Bajpayee Slams Reports About Him Joining Politics Soon
+-  Koncert Petra Graša 9. januara na Dvorskom trgu na Cetinju
+-  "Ukloniti sve objekte za privrednu djelatnost iz korita i sa obala rijeke Morače"
+-  Michael Malone avait confiance en Nikola Jokic : “Tous les coachs, nous savions que ça allait rentrer”
+-  We Might Get An Electric Nissan GT-R By 2030
+-  Δανός ρεφ στο ντέρμπι κορυφής! (ΟΙ ΟΡΙΣΜΟΙ)
+-  Нормализиран сообраќајот на патот Гостивар-Кичево
+-  Reality Star Phyna Reignites Feud with Neo Akpofure, Labels Him a ‘Brostitute’
+-  المسطحات الخضراء والزرقاء تقلل عبء الشيخوخة
+-  (صيفا أم شتاء؟).. ماسك يتحدث عن فكرة غزو روسيا
+-  حسناء تخدع أغنياء ومشاهير من نجوم كرة القدم
+-  الاحتلال يستولي على جرار زراعي بالأغوار الشمالية
+-  ‘환승연애 3’ 베스티 다혜-동진, 연애 기간 도합 13년… 장기연애 사실이었다
+-  Trabzonspor'dan stoper hamlesi! Scott McKenna...
+-  Mimecast reduces human risk with acquisition of Elevate Security
+-  Grundwasser drückt in Keller von Familie aus Dorsten: „Ich habe geheult“
+-  Yaralı atmacaya jandarma ekipleri sahip çıktı
