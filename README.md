@@ -1,51 +1,11 @@
 # Latest News
--  Câmara de Sinop devolve R$ 3,7 milhões para prefeitura
--  Sondazhi/ Shumica e shqiptarëve nuk i çojnë fëmijët në aktivitete kulturore
--  وزير إسرائيلي يدعو لإيجاد طرق أكثر إيلاما من الموت للفلسطينيين
--  وفد من عائلات الأسرى الاسرائيليين يصل لقطر
--  Biden acusa a Trump de sacrificar la democracia de EEUU por poder
--  Ubjedljiv poraz bh. rukometaša protiv Švicarske
--  Außerirdische in einem Einkaufszentrum in Miami? Polizei sagt „lol“
--  The Latest Gems: Top Picture Books and Novels for Kids and Teens
--  Cultura de Córdoba: a casi un mes del cambio de gobierno, no han designado autoridades
--  Sweet revenge: U.S. beats hosts Sweden for world junior gold
--  ŠA UPUTIO JAVNE PRETNJE "ZVEZDI GRANDA" Nakon što je Miona otkrila da ju pevač muvao, on se oglasio i obratio se reperu: "ČEKAM TE DA TI OBJASNIM SVE ŠTO TREBA"
--  NACHBÖRSE/XDAX -0,0% auf 16.590 Punkte
--  Odluka o stikerima: Kramon – korak ka de fakto priznanju, Beograd – samo ispunjavamo preuzete obaveze
--  Mets claim infielder Diego Castillo off waivers from Diamondbacks
--  How to buy bonds
--  Bh. rukometaši poraženi od Švicarske sa 39:21
--  Dışişleri Bakanlığı'ndan BM'nin Kıbrıs atamasına ilişkin açıklama
--  Christian Cueva denuncia que no puede operarse aún por culpa de Alianza Alianza Lima
--  Federal Circuit Affirms Sweet Win for SweeGen in Patent Invalidity Battle
--  Tu objetivo es encontrar el valor que falta en la imagen en solo 8 segundos
--  Las ventas de coches eléctricos e híbridos en Brasil crecerán un 60% en 2024, según un grupo industrial
--  Braziliaanse verkoop elektrische en hybride auto's groeit met 60% in 2024, zegt industriegroep
--  Laut Branchenverband soll der Absatz von Elektro- und Hybridautos in Brasilien bis 2024 um 60% steigen
--  Le vendite di auto elettriche e ibride in Brasile cresceranno del 60% nel 2024, dice il gruppo industriale
--  You’d never think my crispy chicken & mac ‘n cheese recipe could’ve helped me lose 100 lbs – a week’s worth cost $27.33
--  La soia crolla per la terza settimana a causa delle piogge in Brasile; il mais tocca il minimo contrattuale
--  La soja cae por tercera semana por las lluvias de Brasil; el maíz alcanza el mínimo del contrato
--  Soja zakt voor derde week door regen in Brazilië; maïs raakt dieptepunt contract
--  Soja sinkt in der dritten Woche wegen Regens in Brasilien; Mais erreicht Vertragstief
--  17-year-old girl reported missing, possibly in crisis in Lakewood
--  Berliner Möbelhaus hat die Preise kurzfristig massiv gesenkt
--  Kinder der „Block House“-Erbin sind zurück bei ihrem Vater | NDR.de – Nachrichten
--  Kommunikationsdaten liefern neue, bittere Details
--  Orlen dla Elżbiety Bieńkowskiej?
--  AFP 2024: CONSULTE en qué fondo de pensiones tienes tu dinero y cuánto es el monto acumulado
--  Nick Carter: la dolorosa carta del vocalista de los Backstreet Boys a su hermana fallecida Bobbie Jean Carter
--  مدينة طبرقة وجهة فرق أوروبية خلال التوقف الشتوي
--  The best beard trimmers in 2024
--  Kathua to get largest hatchery to increase chicken production
--  Mushuc Runa busca el regreso de Jonatan Bauman tras su irregular paso por Barcelona SC
--  Fans baffled as referee dishes out very rare punishment to Wolves star after horror tackle in FA Cup game with Brentford
--  ¿Se extiende el período de Sesiones Extraordinarias? (video)
--  Aktien New York Schluss: Anleger nach Wirtschaftsdaten verunsichert
--  Feyyaz Uçar'dan teknik direktör mesajı: Yeni hocayla çıkmak istiyoruz
--  Kirli emelleri ortaya çıktı: Terör devleti İsrail Gazzelileri Ruanda ve Çad'a göndermeyi planlıyor
--  Infecciones por gripe y COVID empeoraron durante las fiestas de fin de año en EEUU
--  Hajduk pred dogovorom s velikim talentom: Iz kluba bi trebao otići igrač koji je tek stigao
--  Franţa şi Iordania au paraşutat 7 tone de ajutoare umanitare în Fâşia Gaza, anunţă Macron
--  ‘르브론‧김연경‧오타니’로 본 샐러리캡과 페이컷 [스한 위클리]
--  Digital transformation: What it is, why it matters and how to take part, with Sushil Kumar
+-  Inside Love Island star Chloe Burrows’ incredible £300 a night villa in Bali – and she got it all for free
+-  Los dólares financieros cruzaron los 1.100 pesos y llegaron a niveles récord
+-  El millonario negocio inhumano del tráfico de migrantes en México del crimen organizado
+-  Движение автомобилей по Крымскому мосту перекрыли
+-  Artvin'de şiddetli yağış, birçok noktada heyelana neden oldu
+-  Festa de Reis encerra celebração de Natal com desfile de ternos e missas no Largo da Lapinha
+-  Το βίντεο στο σημείο που η Bullock άφησε τις στάχτες του συντρόφου της
+-  Die Berliner Opposition wirft Wegner Interessenkonflikte vor
+-  Die Berliner Opposition wirft Wegner Interessenkonflikte vor
+-  Officer Fanone: „Amerikaner müssen jeden Tag an den Aufstand vom 6. Januar erinnert werden“ – MSNBC
