@@ -1,11 +1,11 @@
 # Latest News
--  Operación 'Apolo': 166 detenidos y decomiso de 8 armas
--  Nuevas rebajas en el precio de los combustibles a partir de este lunes
--  The third cricket test between Australia and Pakistan's flipped back the way of the hosts after 11 wickets fell after tea on day three at the Sydney Cricket Ground
--  "تطور جديد" بقضية داني ألفيس.. فيديو يسبب أزمة
--  Марек с декларация след скандала със залата в Дупница
--  Ella Dvornik otkrila koliko je zaradila od razvoda s Charlesom i koliko često ide psihologu: ‘Dobro je...‘
--  Actor Christian Oliver, 2 daughters die in plane crash
--  Yellen: US Economy Has Achieved a ‘Soft Landing’
--  Beşiktaş sahasında yine kayıp!
--  Tahkim'den Fenerbahçe'ye müjde! Fred...
+-  الذهب يتجه نحو أول انخفاض أسبوعي
+-  Preço do diesel sobe com volta de impostos e apesar de corte nas refinarias
+-  Savunma sanayide 2023'te 10,240 milyar doları aşan sözleşmeler imzalandı
+-  HIFK suli KooKoon vieraana – "Kaivoimme verta nenästämme"
+-  Sjutra promjenljivo sa čestom kišom
+-  Beşiktaş, Kasımpaşa'dan evinde büyük darbe yedi!
+-  Hajdukova euforija članstva: Skok od 12.000 učlanjenih u samo nekoliko dana
+-  Sportfotografe Mathilde zat in jury Sportfoto van het jaar: 'In vier uur tijd 213 foto's beoordeeld'
+-  Sportfotografe Mathilde zat in jury Sportfoto van het jaar: 'In vier uur tijd 213 foto's beoordeeld'
+-  Caracas definió a sus porteros para la nueva temporada
