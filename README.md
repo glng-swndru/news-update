@@ -1,11 +1,51 @@
 # Latest News
--  דיווח בברזיל: דיניז סיים את דרכו בנבחרת, ויש מועמד להחליפו
--  Los tres Reyes Magos aterrizan en el barrio latino de Harlem en Nueva York
--  Iraq prepares to close down US-led coalition’s mission – PM
--  Petro dice a Panam Sports que Colombia está en capacidad de organizar los Panamericanos
--  La ONU nombra a la excanciller María Ángela Holguín nueva enviada para Chipre
--  Junior aún no ejerce la opción de compra por Peña
--  Especialista en finanzas estima hasta tres ajustes de salario este año
--  Kate Garraway takes leave following the tragic death of husband Derek Draper
--  Ace Frehley: My New Album Will Make KISS Seem Like Imbeciles
--  – رئيس مجلس الإدارة لبيوت الشباب الليبية يتابع تنفيذ المشاريع الجاري تنفيذها ببيت شباب الخمس .
+-  Bursa'da kavgada 1 kişi bıçaklanarak yaralandı
+-  Dışişleri'nden BM'nin Kıbrıs atamasına ilişkin açıklama
+-  లావు, గుమ్మనూరు అవుట్‌!
+-  Video: Golpiza de municipales a hombre fue el 31 de diciembre
+-  Cae avioneta en Ramos Arizpe; mueren al menos 4
+-  'I had to do something': Turkish volunteer feeds Japan earthquake victims
+-  Hezbollah leader says his group must retaliate for suspected Israeli strike in Beirut
+-  నిందేసి వెళ్లే ఎత్తుగడ!
+-  'Starsky and Hutch' star David Soul dies at 80
+-  [주명건 세종대 명예이사장, ‘방조제 활용’ 가덕도 신공항 프로젝트 수정안 제안
+-  [국민대 학부생, 제60회 세무사 시험 수석합격
+-  స్వల్ప అస్వస్థతతో ఆస్పత్రిలో చేరిన తమ్మినేని
+-  Creator blows final whistle on 'Captain Tsubasa' soccer comic
+-  Cher denied immediate conservatorship over son’s money, but the issue isn’t done
+-  Ο Μπαπέ ανακοινώνει την απόφαση για το μέλλον του
+-  Akşener, İYİ Parti Bursa Büyükşehir Belediye başkan adayını açıkladı
+-  Ticaret Bakanlığı’ndan ‘İsrail'e ihracat’ açıklaması
+-  3 stars listed on invite as guests at RFK Jr. birthday gala aren't attending
+-  భగ్గుమన్న ఎస్‌ఎ్‌సఏ ఉద్యోగులు
+-  Samsung entra al mundo automotriz sin tener autos: hace equipo con Tesla y Hyundai para sumar sus coches eléctricos a su ecosistema
+-  Neuer Fan-Ansturm! HSV setzt tausende Karten für dieses Auswärtsspiel ab
+-  ‘The Color Purple’ Star Colman Domingo Remembers His ‘Sweet’ First On-Screen Kiss With, You Guessed It, Paul Rudd
+-  US equities eek out a gain but fall on the week for the first time since October
+-  CFR Cluj a oficializat cel mai răsunător transfer al iernii: „Bun venit în familia noastră!”
+-  Former Arkansas teacher accused of sex with student
+-  Don’t be caught off guard by mild temperatures, make garden resolutions for 2024
+-  La Casa Blanca busca espacios federales para albergar a migrantes en medio de la presión de las ciudades
+-  NRA chief, one of the most powerful figures in U.S. gun policy, says he's resigning days before trial
+-  David Soul, Starsky and Hutch star, dies at 80
+-  David Soul, Starsky and Hutch star, dies at 80
+-  David Soul, Starsky and Hutch star, dies at 80
+-  David Soul, Starsky and Hutch star, dies at 80
+-  Iraq prepares to close down U.S.-led coalition's mission
+-  Massachusetts voters become latest to try and keep Trump off ballot over Jan. 6 attack
+-  Sverige förlorade JVM-finalen mot USA
+-  Iran arrests 11 suspects over bomb blasts; mourners demand revenge
+-  سفينة هندية تعلن عن عملية عسكرية معقدة أجرتها لانقاذ طاقم سفينة تجارية ..تفاصيل
+-  Los chihuahuenses sabemos que ir con Corral no es buena señal: Dirigente del PRD
+-  Notowania ropy zaliczyły wzrost
+-  Criciúma acerta contratação de lateral com passagens pelo Flamengo e Copa do Mundo
+-  Los científicos han invitado formalmente a extraterrestres a visitar Kentucky
+-  Lo mejor y lo peor de la serie de Netflix The Crown: la última temporada llegó a su fin y esto dice la crítica
+-  10 jogos clássicos que completam 20 anos em 2024 e você não sabia
+-  Verizon提出1億美元和解方案，客戶可申請退款
+-  Pri havárii lietadla v Karibiku zahynul herec známy z Kobry 11
+-  Sask. Pride groups say MLAs not responding well to constituents on pronoun law concerns
+-  Wonderful Athy three-bed home has been meticulously refurbished
+-  Epstein davasında yeni dosyalar paylaşıldı
+-  Brasil suma problemas: Fernando Diniz dejó de ser el entrenador de la selección
+-  David Soul married five women, including a Louisiana beauty queen at 21, three American actresses, and a British PR girl 30 years younger
