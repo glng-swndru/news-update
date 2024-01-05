@@ -1,11 +1,51 @@
 # Latest News
--  Golden Globes 2024 predictions: Who will and should win?
--  Écoutez votre musique gratuitement avec Apple Music (offre ultra limitée)
--  Congress slams BRS, BJP for politicizing Pharma City issue
--  Юные вологжане поделятся своим видением охраны труда
--  Bauernprotest: Das ist in Hessen und Rheinland-Pfalz geplant
--  Entinen F1-kuski sai sydänpysähdyksen juhla-aterialla
--  Rafael Nadal sufre primer gran tropiezo tras su regreso: eliminado en Brisbane
--  Serkan Çayoğlu'ndan Fatih Sultan Mehmet itirafı!
--  Iraklı polisler Yunus Emre Enstitüsü işbirliğinde Türkçe öğreniyor
--  Almanya'da hastane yangını: Ölüler var
+-  Demolition work begins on Aberystwyth town centre shop
+-  Hatay'da heyelan: 3 yayla evi kullanılamaz hale geldi
+-  Diyanet "Kadının çalışması eşinin iznine tabidir" dedi
+-  Bursa'da inanılmaz kaza! Tır önüne kattığı otomobili 30 metre sürükledi
+-  Kahramanmaraş sallandı!
+-  Şeyma Subaşı Dominik'te
+-  Германия — Кабельное телевидение дорожает: о чем следует знать
+-  CBI nabs man for seeking bribe from firm over report submission for govt subsidy
+-  Spesifikasi Huawei Nova 12 dan 12 Pro, Mulai Rilis Hari Ini dengan Chipset Kirin 8000
+-  BMKG Prediksi Hujan Intensitas Sedang hingga Lebat Kembali Guyur Jabodetabek Malam Ini
+-  House fire kills 2 people in Rawdon, Que.
+-  Großbritannien: Premier Sunak will über Termin für Parlamentswahl entscheiden
+-  В Казахстане объявили в розыск украинского миллионера
+-  Kadırovdan ABŞ-a təklif: Sanksiyaları götürün, əvəzində…
+-  Leicester City goalkeeper Daniel Iversen prepares to join Stoke City on loan until the end of the season as the out of favour Foxes stopper undergoes a medical with the Potters
+-  حماد يلتقي عمداء أكثر من 20 بلدية من بلديات الساحل والجبل الغربي بمناطق غرب ليبيا.
+-  مديرية أمن بنغازي تعلن ضبط أسلحة نارية وقنابل يدوية خلال إستيقافات أمنية.
+-  Starsky & Hutch star David Soul dies, aged 80: Actor who won cult status for 1970s TV series and topped the charts with hit 'Don't Give Up On Us' passes away after 'valiant battle for life' - as his heartbroken wife leads tributes
+-  تعطل أنظمة النقل مع اتجاه الصقيع في شمال أوروبا جنوبا .
+-  البحرية الهندية ترسل سفينة إلى ناقلة استولى عليها قراصنة قبالة الصومال .
+-  Musa: U sezoni gripe najvažnija je imunizacija i mjere opće higijene
+-  বিএনপি-জামায়াতের হরতাল: ভোটার উপস্থিতি নিয়ে শঙ্কিত নন সাতক্ষীরার প্রার্থীরা
+-  নারায়ণগঞ্জের ফতুল্লায় পিকআপ ভ্যানে আগুন
+-  মাদারীপুরে মোটরসাইকেল নিয়ন্ত্রণ হারিয়ে গাছের সঙ্গে ধাক্কায় যুবক নিহত
+-  Ministarstvo zdravlja Hamasa: U Pojasu Gaze poginulo 22.600 ljudi od početka rata
+-  নির্বাচন বর্জনে জবি ছাত্রদলের গণসংযোগ
+-  Pogledajte kakve su nekretnine ljudi spremni kupiti: Zapanjujuće koliko košta ovaj stan u Zagrebu
+-  3 Berita Liga 1: Borneo FC, Persija Jakarta dan PSM Makassar
+-  Дипломатический скандал между Беларусью и Швецией
+-  Son dakika haberi: Emekli maaş zammı artacak mı ve en düşük emekli maaşı ne kadar olacak
+-  China’s Digital Data Trafficking
+-  You couldn't even get your big toe in it!' Parkgoers mock council's 'no swimming' signs next to ponds with water just six inches deep
+-  ABD'de işsizlik rakamları açıklandı
+-  Nach vierjähriger Zwangspause: Diese Züchter im Erzgebirge dürfen wieder edles Rassegeflügel zeigen
+-  Rotorblatt für Mittelsachsens höchstes Windrad: 90-Meter-Riese durch das Nadelöhr gelenkt
+-  Neue Elsterbrücke in Plauen ab Montag für Verkehr komplett gesperrt
+-  Ďalšia tragédia v Bratislave: V Národnom onkologickom ústave vyskočil z okna pacient
+-  Tötung von Hamas-Anführer: Vergeltung erneut angekündigt
+-  Suspect arrested for hitting dog with umbrella at Saratoga park
+-  Баскетболисты "Пари НН" сыграют на выезде в Саратове
+-  ΑΕΚ: Ανοίγει το πάνω διάζωμα στα Άνω Λιόσια για τον Ολυμπιακό
+-  Storm Henk chaos deepens: Now -6C deep freeze is on way after cows drowned, 1,000 homes were evacuated and rail lines and roads became rivers in flood crisis
+-  EastEnders legend reveals surprise friendship with Traitors ‘villain’ Paul
+-  İstanbul'da 361 cinayet aydınlatıldı
+-  Ebu Ubeyde'yi anlamak
+-  Eğitim uçağı tarlaya zorunlu iniş yaptı! 1 kişi yaralandı
+-  Eljif Elmas'tan transfer itirafı: RB Leipzig benim için iyi bir seçenekti
+-  Eminönü-Üsküdar feribotu arıza yaptı! Yolcular mahsur kaldı
+-  Bakan Ersoy, Side Antik Kenti'ni ziyaret etti
+-  Borrell: Almanya, İsrail'e yaptırım uygulanmasını kabul etmez
