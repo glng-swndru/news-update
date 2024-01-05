@@ -1,51 +1,11 @@
 # Latest News
--  চট্টগ্রামে নৌকার প্রার্থী মহিউদ্দিনের বিরুদ্ধে মামলার নির্দেশ ইসির
--  Oscar Pistorius sale de la cárcel casi once años después de matar a su novia
--  Denunciado por causar daños en una cueva protegida con restos arqueológicos en Tenerife
--  Soccerladuma | Egypt Boss Told He's 'Very Disrespectful' By Ex-Coach Ahead Of AFCON
--  – شركة ميرسك لنقل الحاويات تؤكد أنها غيرت مسار سفنها نحو رأس الرجاء الصالح لتجنب هجمات الحوثيين
--  Soutěž o novinku Samsung. Vyhrajte 3x nový Galaxy S, který se představí už za dva týdny!
--  Triq il-Kbira fil-Mosta terġa’ tinqala’ u jerġa’ jsir xi xogħol mill-ġdid għax “sar xogħol ħażin”
--  Jetzt auch bei Sky! Preis-Hammer sorgt für Kundenfrust
--  Rodríguez: El Parlamento de Venezuela fue rescatado por el pueblo
--  Canada's Nature Agreement underscores the need for true reconciliation with Indigenous nations
--  Orry-Nysa Photos: फिर अजय देवगन की लाडली संग पार्टी करते नजर आए ओरी, मल्टीकलर ड्रेस में खूब जचीं निसा
--  Emanuel revoga exonerações pela intervenção e garante retomada dos atendimentos odontológicos
--  Ireland hits record of 4,000 homeless children
--  Woman canoes across carpark as floods hit London
--  Coupe Davis: la première liste de Paul-Henri Mathieu à la tête des Bleus
--  Narendra Modi takes a dip in the Arabian Sea
--  Спецоперация на ГРУ в Белгородска област: Ударен е руски взвод
--  (VIDEO) Zrinjski sjajnim videom predstavio svoje prvo pojačanje
--  Muswada sheria ya uchaguzi wagusa wadau
--  Britanski novinar razkril metodo, ki pospešuje izgorevanje maščob in izgubo do 17 kg v enem mesecu!
--  Bauernproteste in Schleswig-Holstein: Weg mit der Mistgabel
--  Asfaltohen 5 rrugë në Tiranë| Veliaj: Fillimi i mbarë, gjysma e punës
--  Rafael Nadal, eliminat de la Brisbane după ce a ratat trei mingi de meci
--  California housing costs at 7-year low, relatively speaking
--  Egész napos igazolást kaptok, ha részt vesztek az Educatio Kiállításon
--  „Az életem minden része tönkrement” – Ivancsics Ilona elárulta, hogy sikerült egyenesbe jönnie
--  Biden kickstarts 2024 bid with speech targeting Trump
--  What do teachers do in the school holidays? They work, plan, and rest
--  CFP championship game participants Michigan, Washington each have 2 players on AP’s all-bowl team
--  Study: Genetics Could Be Used to Inform Precision Medicine for Hypertension
--  ¿Cómo aprovechar cualquier tipo de apuestas deportivas?
--  Ex-Pentagon Analyst: Mideast Crisis May Spiral Out of Control After Beirut and Kerman Blasts
--  Boko Haram kills pastor, church treasurer, 12 others in Yobe
--  DRV: Türkiye ve Yunanistan Alman pazarında büyümenin lokomotifi
--  TUI Londra borsasındaki işlemlerini Frankfurt’a taşıyacak
--  Indian Navy : समुद्री चाच्यांना नौदलाने शिकवला धडा, 15 भारतीयांची सुखरुप सुटका; पाहा व्हिडीओ
--  Group calls for fair treatment for former Minister Sadiya Umar-Farouq, frowns at media trial
--  Hamburg: Ungewöhnlichen Gürtel dabei – Bundespolizei nimmt Mann fest
--  Polish president’s weird tweet sparks security concerns
--  Selon un nouveau classement, trois kebabs de Bordeaux figurent parmi les meilleurs en France
--  CBI moves Karnataka High Court challenging state Congress govt’s decision to withdraw case against Deputy CM DK Shivakumar
--  Назван простой способ избавиться от чувства тяжести в желудке
--  Warzone players divided over best mode to level up guns
--  Denuncia Canciller falta de compromiso ante el cambio climático
--  “Búp bê sống” của Hoa hậu Việt Nam khoe sắc với áo dài xuân
--  Thời trang của mỹ nhân 40 tuổi Sandara Park: Luôn trẻ trung và ngọt ngào, chị em mọi độ tuổi đều có thể học hỏi
--  Đang lưu thông trên cầu Thanh Trì, nhiều xe ô tô bị nổ lốp
--  Liệu "em gái Jennie" có thể quay lại cứu YG?
--  Hai bệnh viện hội chẩn khẩn, cứu được bào thai bị dị tật tim bẩm sinh
--  NSƯT Trần Lực không làm đạo diễn Táo Quân 2024
+-  Actor David Soul, one half of 'Starsky and Hutch,' dies at 80
+-  Mossad ajanı oldukları iddia edilmişti! 26 kişiye tutuklama talebi
+-  La valeur du jour à Wall Street - Costco bien orienté : ses ventes progressent de 10% en décembre
+-  Kelly Clarkson Jokes About Wearing ‘Tight Sh-t’ Amid Weight Loss Journey
+-  Mobileye : Canaccord Genuity abaisse son objectif
+-  FDNY responds to synagogue fire in Queens
+-  Fatal crash in Sturgeon County claims life of Beaumont man
+-  Weerstand tegen plan voor 'greenport' met 15 windmolens tussen Nieuwendijk en Werkendam
+-  Billy Joel Announces 2024 Stadium Dates With Stevie Nicks and Sting
+-  Il-prezzijiet ikomplu jiżdiedu – il-Gvern ta’ Abela għadu mingħajr soluzzjoni
