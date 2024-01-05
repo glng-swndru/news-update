@@ -1,11 +1,11 @@
 # Latest News
--  الذهب يتجه نحو أول انخفاض أسبوعي
--  Preço do diesel sobe com volta de impostos e apesar de corte nas refinarias
--  Savunma sanayide 2023'te 10,240 milyar doları aşan sözleşmeler imzalandı
--  HIFK suli KooKoon vieraana – "Kaivoimme verta nenästämme"
--  Sjutra promjenljivo sa čestom kišom
--  Beşiktaş, Kasımpaşa'dan evinde büyük darbe yedi!
--  Hajdukova euforija članstva: Skok od 12.000 učlanjenih u samo nekoliko dana
--  Sportfotografe Mathilde zat in jury Sportfoto van het jaar: 'In vier uur tijd 213 foto's beoordeeld'
--  Sportfotografe Mathilde zat in jury Sportfoto van het jaar: 'In vier uur tijd 213 foto's beoordeeld'
--  Caracas definió a sus porteros para la nueva temporada
+-  6 تفاصيل عليك بإدراجها في سيرتك الذاتية للفوز بوظيفة الأحلام
+-  دراسة حديثة تكشف سر علاقة الطماطم بارتفاع ضغط الدم
+-  أسعار العملات في السعودية اليوم الجمعة 5 يناير.. اليورو يسجل 4.11 ريال
+-  أسعار الذهب في السعودية اليوم الجمعة 5 يناير.. عيار 24 يسجل 246.25 ريالًا
+-  Hacienda inicia el año sin dar estímulos al IEPS
+-  Plucky mole’s great escape from flooded nature reserve melts hearts
+-  Özgür Özel'den 'Gülistan Doku' mesajı
+-  These three Vancouver tech companies are hiring in 2024
+-  ¡Protesta en Juchitán por cierre de Centro de Movilidad!
+-  Big Thief’s Buck Meek Shared Two Delightful Singles That Barely Missed The Cut For His ‘Haunted Mountain’ Album
