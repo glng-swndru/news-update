@@ -1,51 +1,51 @@
 # Latest News
--  Vitor Roque hé lộ thông điệp của HLV Xavi
--  Bayern Munich nhắm trụ cột Fulham, không phải Joao Pahinha
--  Arsenal chia tay một loạt ba cầu thủ
--  NÓNG! Gallagher chốt tương lai tại Chelsea
--  Alvaro Valles - Manuel Neuer của La Liga
--  Carlo Ancelotti "chốt" thời điểm Eduardo Camavinga trở lại
--  Luxemburg / Nach Überschwemmungen: Wasserstände gehen zurück – an der Alzette schneller als an der Sauer
--  Nintendo fans can grab this three game bundle including two 90+ rated titles at 80% off
--  Raspored dežurnih apoteka „Montefarm“ tokom praznika
--  В Иране арестовали подозреваемых в причастности к теракту
--  Defilovao s Noćnim vukovima: Nema kazene za vojnika OS
--  Multiple new features to be in development for the Google Bard chatbot
--  Христо Иванов: Въпрос на преговори е с чий мандат ще бъде съставено правителство след ротацията
--  إيرادات قناة السويس تزيد بنسبة 19.4% خلال الربع الأول من العام المالي الجاري
--  رمضان 2024.. موعد استطلاع هلال شهر رجب 1445
--  إيرادات السياحة ترتفع باكثر من 9% بالربع الأول من 2023-2024
--  141 milyar dolarlık iflas! Finans devi mahkemeye başvurdu
--  زيادة جديدة في أسعار الدواجن في الأسواق اليوم الجمعة (موقع رسمي)
--  Galaxy A22 and Galaxy A32 get December 2023 security update
--  Will This Solana Rival Pump Like SOL, or Will It Outperform It?
--  "الفاو": انخفاض أسعار المواد الغذائية بنسبة 13,7% في العام 2023
--  Has North Korea Attacked South Korea? What We Know
--  Haneda Airport’s Runway C Expected to Resume Operation Monday, Says Transport Minister
--  Brat Angeline Jolie progovorio o njihovom odnosu u rijetkom intervjuu
--  Orion ja MSD aloittavat kaksi Faasi 3 -tutkimusta
--  Στα κατεχόμενα ο Βαν Νταμ για προώθηση νέων παράνομων ξενοδοχείων!
--  Radarfalle: Mehr als 4000 Fahrzeuge in den Landkreisen Regensburg und Neumarkt kontrolliert
--  Rozmawialiśmy z protestującymi przed TVP. "To był bandycki chwyt", "W Polakach rośnie opór"
--  Казакевич: «Думаю, Лукашенко понимает, что это ничего ему не гарантирует, но что ему остается?»
--  이스라엘 "가자전쟁 새로운 단계"…저강도 전환 공식화
--  حجام کی خاموش دکان اور انتخابی اتحاد کی گونج – تحریر: قادر خان یوسف زئی
--  Crystal Palace, Wolves and Brentford in transfer fight for non-league teen star Ben Krauhaus
--  Crystal Palace, Wolves and Brentford in transfer fight for non-league teen star Ben Krauhaus
--  일라와라 116점 폭발, S.E. 멜버른 38점차 대파, 이현중 3점슛 3개 포함 15점, 개인 한 경기 최다득점
--  KB 6년만에 퓨처스리그 우승, 통산 5번째 정상, 하나원큐 제압, MVP 이혜주
--  I ditched my chav look for an epic glow up – now people say I’m one of the prettiest girls they’ve ever seen
--  대한럭비협회, 일본에서 ‘우수심판 및 우수지도자 해외 연수’ 실시
--  '워니 23득점 폭격' SK, '이정현 복귀한' 소노 제압...시즌 '최초' 두 자릿수 연승 행진 [MD잠실]
--  I ditched my chav look for an epic glow up – now people say I’m one of the prettiest girls they’ve ever seen
--  Artesanos piden no dejar morir el juguete tradicional
--  "마음이 확 무너져…♥민혜연이 큰 힘" 주진모, 5년 공백기 심경 고백 [백반기행](종합)
--  สุดโรแมนติก! 'เมย์ พิชญ์นาฏ'เฉลยเหตุผลสามีพาไปฮันนีมูนที่อินเดีย
--  ขอ4ปีชีวิตจะดีขึ้น! ‘เศรษฐา’โต้ไม่เคยกีดกัน-แบ่งแยกคนภาคใต้
--  Gracze wskrzesili zapomnianą grę o superbohaterach. Potrzeba było ponad 10 lat
--  Prabowo Mau Impor 1,5 Juta Ekor Sapi, Hary Tanoe: Ada Uangnya Nggak?
--  САЩ: Русия не ни пречи в усилията за мирен процес между Армения и Азербайджан
--  Environment Agency: More than 1,000 properties flooded across England
--  تداول إيجابي في تداولات بورصة الدار البيضاء
--  "البام" يثني على انطلاق الدعم الاجتماعي ويتشبث بقرينة البراءة للناصري وبعيوي
--  جوزيف زينباور: "الفوز بالديربي أكثر من مجرد فوز في مباراة إنه إشارة قوية في بداية عام 2024"
+-  Во Грција зголемен бројот на заразени со Ковид-19
+-  سنی علما کونسل پاکستان کے علامہ مسعود الرحمان عثمانی قاتلانہ حملے میں جاں بحق
+-  Комітет Ради з питань нацбезпеки рекомендував відсторонити нардепку Безуглу від посади замголови
+-  De knaken van Gert Verhulst: de man met meer vennootschappen dan programma’s
+-  Rabrenović: Za gorivo uštedjeli skoro 36.000 eura
+-  Da Renato Sanches a Dybala: i top e flop di Tiago Pinto
+-  이열음 '가녀린 파이팅'
+-  김지연, 예쁨 가득
+-  류현경 '반가워요'
+-  유희관, 유니크한 헤어스타일
+-  김준한, 젠틀한 미소
+-  김옥빈, 우아한 아우라
+-  Wisła Płock finalizuje pierwszy zimowy transfer. Obrońca z reprezentacyjną przeszłością
+-  Karatay Kent Konseyi Kadın Meclisi'nin yürüttüğü 'Atölye Karatay'da çeşit çeşit lavanta ürünleri üretiliyor
+-  MHP: Gazetecilere Yeşil Pasaport Meclis'e sunuldu
+-  Park halindeki 200 aracın lastikleri patlatıldı!
+-  Antalya’da eş zamanlı elektrikli scooter denetimi: 210 sürücüye ceza, 155 scooter trafikten men
+-  Keleş’in İstanbul karnesi nasıl?
+-  KONYASPOR, ZORLU VİRAJDA
+-  Galatasaray, Konyaspor maçı hazırlıklarını sürdürdü
+-  İndirimli kombineler pazartesi satışa çıkıyor
+-  Konyaspor’un konuğu Bornova
+-  Стоилковски: ДУИ делеше „европски„ тупаници од име на т.н. европска коалиција, со скриена поддршка од СДС
+-  MNE pede que próximo Governo mantenha cooperação como pilar estratégico
+-  गाजियाबाद के पीड़ित युवक को लगाया डॉक्टर ने गलत इंजेक्शन; मृत्यु होने पर डॉक्टर फरार
+-  Gozo Regional Council objects to proposed development at Ggantija
+-  Euro bölgesinde enflasyon yükseldi
+-  Döviz mevduatlarında düşüş
+-  Yabancılar hisse almaya devam etti
+-  A partir de março, médicos do privado já vão poder passar baixas
+-  Cumhurbaşkanı Erdoğan: Uluslararası sermaye girişi hızlandı, kur hareketleri azaldı
+-  Ατάκα για ΑΠΟΕΛ στο «Total Green»: «Είδαμε και κάτι εικονικές γραμμές που άλλαξαν...»
+-  СМИ: Сын Абрамовича обновил литовский паспорт, когда его отец уже был под санкциями
+-  Jovana Jeremić ZAKOPČANA DO GRALA, a izrezi na haljini sa svih strana: Voditeljka u crvenom od glave do pete vodi Jutarnji
+-  V Gameljnah moški oropal pošto
+-  7 اکتوبر سے اب تک 3,400 اسرائیلی فوجی معذور ہو چکے :رپورٹ
+-  "Campionii joacă într-o altă ligă". Anamaria Prodan, în culmea fericirii alături de iubitul cu 14 ani mai tânăr
+-  Ученые разгадали тайну легендарного Великана из Серн-Эббас
+-  بابر کا برا وقت چل رہا ہے، انہیں اسپورٹ کرنا چائیے: اظہر علی
+-  Bahn unterbreitet GDL neues Angebot: 35-Stundenwoche als Wahlmodell
+-  Baldur’s Gate 3 player discovers “hilarious” Shadowheart interaction if Astarion wakes her
+-  Visita Iquitos y disfruta de sus seductores atractivos turísticos en su 160 aniversario
+-  10 Different Ways to Revitalize Your Business with Shipping Containers
+-  Heinz scraps nostalgic childhood favourite with ‘no plans to bring it back’
+-  Terracciano Milan: svolta nella trattativa. La decisione del difensore del Verona
+-  Festejan a Lolita
+-  «Festival del Verano»: comienzo de año con diferentes opciones para disfrutar el verano en la provincia.
+-  Fortnite players demand nerfs to OP Ballistic Shield that’s “impossible” to beat
+-  From History to Heart: ‘Mission Raniganj’ has become a cultural phenomenon
+-  اليابان تخصص 33 مليون دولار من الاحتياطي لاحتواء آثار الزلزال
