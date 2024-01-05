@@ -1,51 +1,51 @@
 # Latest News
--  [ŽT] „Laivo įgula apimta panikos.“ Neįtikėtini įvykiai. Skelbiama, kas nutiko Rusijos flagmanui „Admiral Makarov“
--  ถกงบฯปี67วันที่3เริ่มแล้ว! ขณะที่2วันแรกใช้เวลา 30 ชม. คาดลงมติวาระแรกช่วง 3 ทุ่ม
--  Sara Duterte is ‘my president,’ says retired soldier. His Matikas ‘mistahs’ are annoyed.
--  ลงดาบ! ปิดผับสุขสันต์ 5 ปีปมจงใจเด็ก 17 ปีใช้บริการ
--  Motor workers’ association of Assam calls 48-hour strike from today
--  Vuelven Jorge Ramos y Keven Lamas a los Coqueros de Tuxpan
--  Día de los Reyes Magos 2024: ¿Qué día llegan?
--  홍준표 "'총리급 의전서열' 이재명…'서울 이송' 특혜 시비 자체가 유치"
--  한동훈 비대위원장, "극단적 혐오 언행하는 분, 우리 당에 있을 자격 없다"
--  "김건희 여사 보좌 제2부속실 설치, 국민이 대다수 좋다면 검토"
--  '대구도시철도 1호선 영천 연장' 예타 통과…2029년까지 2천341억 투입
--  갤러리청애, 청년작가 기획전…박한별 개인전 ‘나의 정원’
--  Hội nghị Chính phủ với địa phương: Gỡ điểm nghẽn cho sản xuất, kinh doanh
--  Tạm đình chỉ công tác giám đốc lên mạng chửi cấp trên
--  조아제약 2024년 정기·특별 승진 인사
--  복지부, 건강보험 재정 내 '혁신계정' 신설 필수의료 지원
--  Shirley Arica le revela sus sentimientos a Arturo Longton: “Te he extrañado un montón” | Tierra Brava
--  Maui’s mayor says Lahaina debris site will be used temporarily until a permanent spot is found
--  Berechnungen: Treibhausgasemissionen in Deutschland so niedrig wie in den 1950er Jahren – Politik
--  القاهرة 26 مليون والغردقة 8 ملايين.. أعداد الركاب بالمطارات خلال 2023
--  В Ярославле пожаловались на нечищеный автовокзал
--  [용인문화재단 '2024 문화예술 공모' 지원사업 접수
--  [‘용인중앙시장’ 문화관광형시장으로 키운다
--  [임진원, 수목진료전문가 자격증 디자인 개선
--  [임성재 ‘칼날 아이언 빛났다’…개막전 첫날 8언더 몰아치며 공동 2위
--  臨時教師(官立小學)招聘｜起薪$35,915 附政府工入職條件+申請方法
--  Delhi Mohalla clinics irregularities: ‘Fake’ tests on ‘ghost’ patients, says vigilance report
--  국내 피부과 닥터손유나의원 런칭 뷰티 브랜드 ‘캐치바이손유나’, 비지티와 손잡고 일본 진출
--  사회적협동조합 더행복나눔-헤리티지실버케어 요양원, 중증장애인 일자리 창출 위해 협력
--  한국TOEIC위원회, ‘2024년도 5급 공무원 및 외교관후보자 시험’ 지원 가능한 토익 일정 안내
--  왕홍 강리즈, 글로벌 인플루언서 라이브대전 브랜드상 수상
--  소원을 이루어주는 가게 1호점 '소라랜드', 난치병 어린이 정기 후원
--  첨단메탈코팅, 한국환경공단 ‘스마트 생태공장 구축사업’ 구축 완료
--  김후성(HHTEAM) 작가 첫 번째 전시 ‘감정들의 운명 같은 만남’, 파주 갤러리 끼에서 개최
--  박성준 프로, ‘2023KPGA 시상식’ 37세 역대 최고령 신인상 수상
--  웨어밸리, 고용노동부 주관 ‘2024년 청년친화강소기업’ 선정
--  윤대통령 '김건희, 50억클럽' 특검 거부권 행사
--  Enttäuschung in Paris: Wie Olaf Scholz die deutsch-französischen Beziehungen ruinierte
--  Assam: Crash investigation begins after fatal accident on NH-37 near Dergaon
--  Woman poses as customer, steals Rs 12 lakh gold in Hyderabad, arrested
--  Неделчо Стойчев: Единици са полицаите, които прекрачват границите
--  민주, "쌍특검 거부, 윤 대통령 스스로 범인 자인한 것"
--  333만 세대 건보료 월평균 2만5000원 인하…최대 10.1만원↓
--  Two Trains Collide in Bandung, Indonesia Set Up Investigation Team
--  FREYR Battery: Was für ein Ding
--  2 days of powercuts for Phnom Penh
--  Papá en Apuros Cap. 49: Martín le propone a Julieta estar juntos, pese a su compromiso con Matías
--  เปิดตลาดราคาทองคำเช้าวันนี้ รูปพรรณขายออก 34,000
--  ระทึกกลางดึก!หนุ่มชัยภูมิคลั่งจุดไฟเผาบ้านตัวเองลามไหม้บ้านใกล้เคียงวอด3หลัง
--  "새 리더십 필요한 때" 에지오, 토드 힌더스 신임 CEO 임명
+-  ارتفاع حصيلة زلزال اليابان إلى 92 قتيلاً و242 مفقوداً
+-  Раскритиковавшего Мирзияева в интернете мужчину приговорили к 5 годам тюрьмы
+-  Ein Topfavorit und viele Lauernde in Adelboden
+-  고양시 지하다방서 점주 살해한 용의자 공개수배 전환
+-  달서아트센터 초대전 ‘현대미술가협회 3+3’
+-  이재명 습격범 "나라 경제 파탄났는데…민주당 이재명 살리기 올인"
+-  부산 명물 광안대교, 10년 만에 새단장
+-  김천시, 자두꽃 작은 도서관 새단장
+-  성주군 청진이엔씨 별고을장학금 1천만원 기탁
+-  지역가입자 자동차 부과 건보료 폐지…333만가구 건보료 연간 30만원 인하
+-  18명의 '휴먼 북' "지식·경험 대화 소통한다"
+-  의성군, FTA대응 대체과수 명품화사업 신청 접수
+-  의성 권상훈 추대감남원추어탕 대표, 성금 기탁
+-  [포토뉴스] 대구 신당중학교 마지막 졸업식
+-  Blake Snell prefiere a los Yankees (en privado, por lo pronto)
+-  Mùa các ông lớn vung trăm, nghìn tỷ đồng đi săn đất
+-  Encounter Breaks Out Between Security Forces, Terrorists In J&K’s Shopian
+-  Для переславцев новый год начался с более чем неприятного события
+-  Cumple Comisión de Búsqueda meta en aprovechamiento de recursos
+-  Afirma Tamaulipas que los 32 migrantes sí fueron rescatados
+-  Detik-Detik Al Ghazali Peluk dan Cium Mulan Jameela, Adabnya Jadi Omongan
+-  동국제약, 지난해 임직원 379명 사회공헌활동 동참
+-  В ДТП с двумя иномарками в Приморье погибли три человека
+-  वरदान से कम नहीं यह फल, स्किन-बालों के लिए रामबाण; पाचन तंत्र को करे मजबूत
+-  SK바이오사이언스, MSCI ESG 평가 한 단계 상승… "경쟁력 입증"
+-  KRA Denies Plan to Inspect Home Appliances and Mandatory TV Operating Licenses
+-  '제주발 비행기 테러' 예고글 작성 30대 재판행
+-  해병대 연평부대, 해상사격 훈련 개시
+-  춘천시, 국제스케이트장 유치 도전 본격화
+-  Ibra Azhari Ditangkap Polisi Gara-gara Sabu Bareng Artis Lawas, Ini Inisialnya
+-  Thường Tín: Cưỡng chế 65 hộ dân thực hiện Dự án Duyên Thái 1
+-  Penthouse được Hà Linh Nghiện nhà đầu tư 8 tỷ: Bộ đèn phòng khách nhập từ Đức giá nửa tỷ, phiền khi sửa bếp 200 triệu nhưng thấy đáng
+-  बॉयफ्रेंड संग अजय की साली ने दिए थे जमकर इंटीमेट सीन,काजोल हुई थीं शर्मिंदा
+-  Why Court Released Wife of Ex-KVDA Boss Sylvanus Tubei as Detectives Find Remains After 12 Years
+-  ¡Conciertos en 2024!
+-  Кого мы потеряли в 2023 году
+-  "Mỏ vàng biển" 6 tỷ tấn ở Nam Cực, nhiều đến mức có thể nhìn thấy từ không gian: Không ai lấy?
+-  'This Is Us': Justin Hartley wants to revive Milo Ventimiglia on new show
+-  Xét xử vụ Việt Á: Ông Chu Ngọc Anh làm mất vali chứa 200.000 USD nhận từ Phan Quốc Việt?
+-  Meinungsforscher erklärt - So gefährlich wird Maaßen-Partei für die AfD
+-  Este Renault eléctrico es un chollo: rebaja de 7.000 euros
+-  Qantas flight attendant that made a 'divisive' pro-Palestine change to uniform breaks silence
+-  Cybersecurity Threat Predictions for 2024
+-  Berlins süße Politik-Liebe - Sind Wegner und die Senatorin schon lange ein Paar?
+-  Vinod Upadhyay Encounter: गोरखपुर में इस कांड के बाद चर्चा में आया माफिया, दिनदहाड़े इस नेता को मारी थी गोली
+-  Everything Trending in Nairobi This Friday
+-  One in 6 Elite Athletes Show Reduced Heart Function Linked to Genes: Study
+-  *** BILDplus Inhalt *** Drama um die Block-Kinder - Anwalt der Steakhaus-Erbin geht auf Dänen-Justiz los
+-  인벤티지랩·유한양행 "비만 치료 주사제 공동개발 계약"
+-  यूके में आइस स्केटिंग करते दिखें अनन्या पांडे, आदित्य रॉय कपूर
