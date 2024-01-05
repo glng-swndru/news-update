@@ -1,51 +1,11 @@
 # Latest News
--  İntikam bayrağı: Dört yıl sonra bir ilk gerçekleşti, kırmızı bayrak kubbeye asıldı
--  Beşiktaş - Kasımpaşa | canlı skor - canlı sonuç
--  TARIFAS DIGITEL CON AUMENTO ENERO 2024 + MONTOS OFICIALES
--  পরাজয়ের ভয়ে নানান অভিযোগ করছেন সালমা ইসলাম: সালমান এফ রহমান
--  রংপুরে আওয়ামী লীগ নেত্রী লাঞ্ছিত, থানায় অভিযোগ
--  [Shutterstock, 2024년 선댄스 영화제의 공식 기관 포토그래퍼 및 리더십 스폰서를 지명되다
--  오산시하나울복지센터, 사)에너지와여성 오산시지회와 ‘떡국 나눔’ 행사
--  ㈜라인건설, 새해 맞아 오산시에 백미 1천700kg 기탁
--  화성시의회 이계철 의원, 대한민국사회발전대상 ‘지방자치의정 부문 대상’ 수상 영예
--  화성시, 커피찌꺼기 재활용 시범사업 참여카페 모집
--  100만 인구 특례시로 도약하는 화성시, 2023년 고향사랑기부금 모금액 도내 1위
--  Otkrivene kazne za Hajdukove igrače: Livaja za jednu mora odmah platiti 1000 eura
--  Wall St inches up on megacap boost, jobs data weighs
--  Ανάβυσσος: Καρέ – καρέ η κινηματογραφική αρπαγή και ληστεία – Φωτογραφίες ντοκουμέντο με δεμένο τον 29χρονο
--  Over 1 million student-loan borrowers were put at risk of making 'significantly higher payments than they can afford' because their servicers were too swamped to help, a federal consumer watchdog says
--  Alarm w teamie Rafaela Nadala. Problemy zdrowotne i porażka w ćwierćfinale w Brisbane
--  غانتس يوجه تحذيرا جديدا لنتنياهو
--  CIBC Bank Review 2024: A Reliable FDIC-Insured Bank
--  القسام : استهدفنا 9 آليات وقتلنا جنودا في التفاح
--  Domaća pjevačica uskočila u kupaći i zaplivala u moru na 12 stupnjeva
--  Det ventes sjeldent dårlig luftkvalitet i Sør-Norge de neste dagene
--  Чемпион UFC предложил спор топовому бойцу на сто тысяч долларов
--  Pand beschoten in Vlaardingen | Inbraak bij speeltuinvereniging: 2.000 euro schade
--  TÜİK raporlarında dikkat çeken detay: Türkiye’den İsrail’e silah da gitmiş
--  Niemiecka gazeta pisze o TV Republika. "Żarty z Auschwitz"
--  Les 'morceaux de nouvelle voiture' relancent la motivation chez Mercedes F1
--  Giovanni van Bronckhorst'un ilk transferi Fenerbahçe'den...
--  El Real Madrid no quiere carbón ante la Arandina
--  Βόλεϊ: Στην ΑΕΚ η Ζαντ Σολέ
--  Přestupová horečka v Edenu! Slavia hlásí další posilu
--  Pese a estar prófugo de la justicia, Omar Candia, exalcalde de Arequipa, es absuelto de su sentencia por corrupción
--  Землетрясение магнитудой 4,7 произошло в Афганистане
--  "انتهت مبررات وجوده".. رئيس وزراء العراق: نعمل على إنهاء تواجد التحالف الدولي
--  ЗСУ вдарили по складах з боєприпасами окупантів у Криму
--  Hollywood Actor Christian Oliver, Daughters Perish in Horrific Caribbean Aircraft Tragedy
--  5 ميزات مخفية في واتساب.. رسائل فيديو قصيرة بينها
--  IZNENAĐENJE ILI NE? Crvena zvezda izabrala fudbalera godine
--  Tampico continuará consolidándose como ciudad limpia, moderna y segura
--  Стали известны подробности смерти режиссера Елены Демидовой
--  حسن الخاتمة.. وفاة إمام مسجد أثناء الصلاة في إندونيسيا
--  عاجل.. إنذار أحمر من أمطار غزيرة وصواعق رعدية على مكة وهذه المناطق لـ 11 مساءً
--  Nikki Haley y Ron DeSantis confían en ser competencia de Trump en las primarias republicanas
--  لتفادي سرقة بياناتك.. احذر الإجابة على هذه التساؤلات في إنستجرام
--  Propozim i ri për Mbappe-n, Real Madridi i ofron një kontratë dy-vjeçare
--  Nächste Wiener Baufirma ist insolvent
--  Los precios mundiales de los alimentos cayeron un 13,7% en 2023, según la FAO
--  Władysław Kosiniak-Kamysz rozmawiał z minister obrony Ukrainy. Ujawniono tematy
--  Władysław Kosiniak-Kamysz rozmawiał z minister obrony Ukrainy. Ujawniono tematy
--  Władysław Kosiniak-Kamysz rozmawiał z minister obrony Ukrainy. Ujawniono tematy
--  Хет-трик Мэйсека принес «Автомобилисту» победу над «Сочи»
+-  بعد 11 عاما من قتله حبيبته.. الحرية لأول عداء مبتور الساقين
+-  كواليس أول فيلم مصري بالعبرية
+-  أبوسليم يفوز على ضيفه الاولمبي بهدف نضيف
+-  ارتفاع معدل التضخم في منطقة اليورو مجددا .
+-  المنتخب الوطني لكرة القدم يفوز ودياً على اندونيسيا بهدفين مقابل هدف.
+-  Hátrányos helyzetű diákok jelentkezését várja a Milestone Intézet ösztöndíjprogramja
+-  League of Legends fügt 2024 einen neuen Champion von Arcane hinzu
+-  Турецкий топ-менеджер аэропорта Алматы задержан КНБ по делу о наркотиках – источник
+-  Siracusa, l’Archimede “festeggia” l’autonomia mantenuta: “grazie a tutti coloro che si sono schierati a sostegno dell’istituto”
+-  Bauernproteste – Wirtschaftsminister Habeck erhält handfeste Drohungen: „Robert, wir sehen uns wieder!“
