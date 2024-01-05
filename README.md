@@ -1,51 +1,51 @@
 # Latest News
--  Во Грција зголемен бројот на заразени со Ковид-19
--  سنی علما کونسل پاکستان کے علامہ مسعود الرحمان عثمانی قاتلانہ حملے میں جاں بحق
--  Комітет Ради з питань нацбезпеки рекомендував відсторонити нардепку Безуглу від посади замголови
--  De knaken van Gert Verhulst: de man met meer vennootschappen dan programma’s
--  Rabrenović: Za gorivo uštedjeli skoro 36.000 eura
--  Da Renato Sanches a Dybala: i top e flop di Tiago Pinto
--  이열음 '가녀린 파이팅'
--  김지연, 예쁨 가득
--  류현경 '반가워요'
--  유희관, 유니크한 헤어스타일
--  김준한, 젠틀한 미소
--  김옥빈, 우아한 아우라
--  Wisła Płock finalizuje pierwszy zimowy transfer. Obrońca z reprezentacyjną przeszłością
--  Karatay Kent Konseyi Kadın Meclisi'nin yürüttüğü 'Atölye Karatay'da çeşit çeşit lavanta ürünleri üretiliyor
--  MHP: Gazetecilere Yeşil Pasaport Meclis'e sunuldu
--  Park halindeki 200 aracın lastikleri patlatıldı!
--  Antalya’da eş zamanlı elektrikli scooter denetimi: 210 sürücüye ceza, 155 scooter trafikten men
--  Keleş’in İstanbul karnesi nasıl?
--  KONYASPOR, ZORLU VİRAJDA
--  Galatasaray, Konyaspor maçı hazırlıklarını sürdürdü
--  İndirimli kombineler pazartesi satışa çıkıyor
--  Konyaspor’un konuğu Bornova
--  Стоилковски: ДУИ делеше „европски„ тупаници од име на т.н. европска коалиција, со скриена поддршка од СДС
--  MNE pede que próximo Governo mantenha cooperação como pilar estratégico
--  गाजियाबाद के पीड़ित युवक को लगाया डॉक्टर ने गलत इंजेक्शन; मृत्यु होने पर डॉक्टर फरार
--  Gozo Regional Council objects to proposed development at Ggantija
--  Euro bölgesinde enflasyon yükseldi
--  Döviz mevduatlarında düşüş
--  Yabancılar hisse almaya devam etti
--  A partir de março, médicos do privado já vão poder passar baixas
--  Cumhurbaşkanı Erdoğan: Uluslararası sermaye girişi hızlandı, kur hareketleri azaldı
--  Ατάκα για ΑΠΟΕΛ στο «Total Green»: «Είδαμε και κάτι εικονικές γραμμές που άλλαξαν...»
--  СМИ: Сын Абрамовича обновил литовский паспорт, когда его отец уже был под санкциями
--  Jovana Jeremić ZAKOPČANA DO GRALA, a izrezi na haljini sa svih strana: Voditeljka u crvenom od glave do pete vodi Jutarnji
--  V Gameljnah moški oropal pošto
--  7 اکتوبر سے اب تک 3,400 اسرائیلی فوجی معذور ہو چکے :رپورٹ
--  "Campionii joacă într-o altă ligă". Anamaria Prodan, în culmea fericirii alături de iubitul cu 14 ani mai tânăr
--  Ученые разгадали тайну легендарного Великана из Серн-Эббас
--  بابر کا برا وقت چل رہا ہے، انہیں اسپورٹ کرنا چائیے: اظہر علی
--  Bahn unterbreitet GDL neues Angebot: 35-Stundenwoche als Wahlmodell
--  Baldur’s Gate 3 player discovers “hilarious” Shadowheart interaction if Astarion wakes her
--  Visita Iquitos y disfruta de sus seductores atractivos turísticos en su 160 aniversario
--  10 Different Ways to Revitalize Your Business with Shipping Containers
--  Heinz scraps nostalgic childhood favourite with ‘no plans to bring it back’
--  Terracciano Milan: svolta nella trattativa. La decisione del difensore del Verona
--  Festejan a Lolita
--  «Festival del Verano»: comienzo de año con diferentes opciones para disfrutar el verano en la provincia.
--  Fortnite players demand nerfs to OP Ballistic Shield that’s “impossible” to beat
--  From History to Heart: ‘Mission Raniganj’ has become a cultural phenomenon
--  اليابان تخصص 33 مليون دولار من الاحتياطي لاحتواء آثار الزلزال
+-  L'inflation rebondit dans la zone euro et conforte la prudence de la BCE
+-  Charly García, León Gieco y La Renga firman en contra del desfinanciamiento del Inamu
+-  أماني الطويل بين المخابرات والنخب السودانية .. بقلم: زين العابدين صالح عبد الرحمن
+-  Cantanhede exibe filme histórico na sessão mensal das “4ª Clássicas”
+-  United Cup: Zverev führt Deutschland ins Halbfinale
+-  Umfrage: Apps von Lebensmittelhändlern weit verbreitet
+-  Warum der BSV Sachsen Zwickau kreativer sein muss und will
+-  "Geh lieber arbeiten": Haseloff in der Kritik
+-  Vom Chemnitzer FC bis zum FSV Zwickau: Der Teamcheck vor dem Hallenmasters
+-  Rechte Schmierereien in Flöha und Freiberg entdeckt
+-  Bauern machen dicht: Verkehrsblockaden in Sachsen geplant
+-  Lisa Frankenstein: Release date, trailer, cast, plot & more
+-  Ege Denizi'nde fırtına uyarısı
+-  Bankacılık sektörünün mevduatı 15 trilyon 231,7 milyar liraya yükseldi
+-  Reisi'den intikam çıkışı: Yeri ve zamanı silahlı kuvvetlerimiz belirleyecek
+-  TMSF Cenevre'deki davayı da kazandı
+-  Yusuf Güney'den Kenan Işık iddiası! Duyanlar kulaklarına inanamadı
+-  DWS : Barclays n'est pas inspiré par le dossier
+-  ثلاثي جديد لمعسكر السعودية بقرار من مانشيني
+-  Prodaja nekretnina pala 30 odsto, ali cene ne padaju
+-  Soccerladuma | Wydad Boss 'Loses' Temper After Derby Loss To Zinnbauer
+-  الكتابة في زمن الحرب (12)
+-  PGN Gandeng Patra Jasa Perluas Jaringan Gas Bumi
+-  Insider Intelligence Appoints Matthias Braun Chief Executive Officer, Henry Blodget becomes Board Chair
+-  Florida's Largest, Long-Standing Community Oncology Practice Establishes Management Services Organization
+-  Maersk meidet das Rote Meer auf unbestimmte Zeit
+-  Chrome for Android making it easier to Clear browsing data
+-  Omicidio Mattarella, Aurelio Grimaldi: "Basta passerelle e lacrime di coccodrillo"
+-  Şarkıcı Yusuf Güney beyinleri yakacak Kenan Işık iddiasında bulundu
+-  Der Protest und die Ampel: Wenn die dicksten Trecker den größten Einfluss haben
+-  Aydın'da "yeşil reçeteli ilaç" operasyonu!
+-  Ο Μηνάς Λυσάνδρου νέος πρόεδρος της Σούπερ Λίγκας!
+-  Nieuwjaarsreceptie bij Hattem Petanque
+-  بالرغم من… بالرغم عن… شعر: د. أحمد جمعة صديق
+-  의성소방서, 겨울철 화재 예방 강화 기간 운영
+-  대구도시철도 1호선 '영천 연장' 예타 통과
+-  [인사] 포항시
+-  영양군, 초middot;중middot;고 13개 학교 무상 우유급식 전면 시행
+-  신한울 1호기 제1차 계획 예방 정비 착수
+-  [인사] 경북 울릉군
+-  포항 형산강 하천환경정비사업, 예타대상사업 선정
+-  포항해경, 방파제에서 낚시하던 70대 추락자 구조
+-  손병복 울진군수, 올해 1호 사랑의열매 나눔 리더 가입
+-  포항시, lsquo;미국 방문rsquo; 세계로 도약하는 신산업 혁신역량 강화 나서
+-  이강덕 시장, ldquo;포항이 주도하는 지방시대 열어 갈 것rdquo;
+-  경북교육청, 장애 학생 개별화 교육 지원 강화
+-  영덕군 , 故 강미옥 씨에게 lsquo;자랑스러운 군민패rsquo; 전달
+-  김해시 2024년 상반기 팀장급 인사
+-  Lâm Tâm Như mang thai nhóc tì thứ 2 ở tuổi 48 sau 7 năm kết hôn?
+-  Dạ Hương và hành trình bền bỉ 15 năm nâng bước tương lai cho hàng ngàn nữ sinh khoác áo blouse
