@@ -1,51 +1,51 @@
 # Latest News
--  [사진] 네 번째 중동 순방 떠나는 美국무장관
--  เปลือยชีวิต 'แอ๊ว อำภา'รับมีกรรมเรื่องความรัก เล่านาทีโดนทำของใส่จนปางตาย!
--  ‘เพื่อไทย’ลั่นประชาชนได้ใช้แน่‘เงินหมื่นดิจิทัล’ ปัดกู้มาแจก
--  T-POP อย่างวง RedSpin จากค่าย WYNN Entertainment ได้รับเลือกให้เป็น “Thailand EQUAL Ambassador“ ประจำเดือนธันวาคม 2023
--  เช้านี้ฝุ่น PM 2.5 หลายจังหวัดยังแดง กทม.เกินเกณฑ์มาตรฐาน 3 เขต
--  Anne sütünden sonra en faydalı besinler! Saatlerce tok tutuyor mideniz bana mısın demiyor
--  Meteoroloji'den kar alarmı! Sibirya soğukları Türkiye'yi etkisi altına alacak
--  Göksel'den değişimiyle ilgili itiraf: Evrime kafa attım
--  Cem Karaca'nın hayatının anlatıldığı “Cem Karaca'nın Gözyaşları”nda 59 yıl önceki düğün yeniden canlandı
--  진안군, 공립등산학교 유치 위한 본격 행보 나서
--  전주병원middot;호성전주병원 직원들, 전주 유공시민 표창 수상
--  Congresso Nacional do PS começa com intervenção de António Costa
--  IVA começa a ser cobrado num cabaz de 46 categorias de alimentos
--  Allroundtalent Ulrich Tukur vor Konzerten in Zwickau und Chemnitz im Interview: "Diese Scheißzeit ist unsere große Chance"
--  Ein Vierteljahrhundert Umdenkarbeit in Freiberg
--  Reichenbacher Zahnarztpraxis wieder komplett - doch die Gerüchte reißen nicht ab
--  Fiddler's-Green-Sänger Albi im Interview: "ich würde gern mal im Ampitheater spielen"
--  Medizinstudent aus Hartha kommt in der Praxis an
--  Nach Diebstahl des Ortseingangsschildes in Waldenburg: Warum die Töpferstadt kein Geld für Ersatz ausgibt
--  Drucksituation: Biathlet Strelow versucht, ruhig zu bleiben
--  Dramatische Einsätze und große Pläne der Feuerwehr Hohenstein-Ernstthal
--  Виждон, маънавият халққа, Ватанга чин юракдан хизмат қилиш деганидир
--  Тошкент шаҳрининг айрим ҳудудларида табиий газ етказиб бериш вақтинча тўхтатилади
--  Magtfuldt Christiansborg-udvalg afgør et hav af menneskeskæbner. Men medlemmerne er slet ikke kvalificeret til opgaven, mener næstformand
--  ब्रिगेड रैली के समर्थन में नंदीग्राम में जुलुस
--  Hidrógeno verde: Marruecos capaz de responder al 4 % de la demanda mundial en 2030
--  Đã tìm ra danh tính hacker tống tiền Lee Sun Kyun và nhân tình hơn 9 tỷ
--  Rok 2024 priniesol nečakaný zvrat, medzi cenami palív vzniká priepastný rozdiel: Analytik varuje, na TOTO sa pripravte!
--  L’oasi da salvare. Specie rare e “invasori“: "C’è in gioco il pianeta"
--  Namaz sırasında kalp krizi geçiren imam secdede vefat etti
--  Banjir Johor: Calon SPM 2023 tidak patah semangat
--  Nordkorea liefert Raketen nach Moskau
--  [SBS Star] '41-Year-Old' Kim Ah-joong Shares How Much She Wants to Get Married
--  고양특례시 메디치넷 선언, '교육발전특구' 지정 박차
--  [르포] 한파·폭설에 금값된 농산물..."장보기 겁나, 떨이 과일로 대체"
--  Doliu uriaș în lumea filmului - A murit actrița din Mary Poppins
--  NK fires some 200 artillery shells off western coast: S. Korean military
--  불혹의 나이에... 최형우, 1+1년 22억원 다년 계약
--  مايكروسوفت تقترب من لقب "أكبر شركة أميركية بالقيمة السوقية"
--  UKRAINE-BLOG/Deutschland liefert neues Luftverteidigungssystem
--  Nella calza della Befana impegno e solidarietà
--  Italijanom kar milijarda evrov za nove avtomobile?
--  Gollings eyes overseas talents for Olympic three-peat
--  مشاريع الزواج.. تأجيل تحت ضغط التكاليف وتراجع في حجوزات الصالات بعد ارتفاع أجورها
--  General gives ‘unwavering commitment’ to ceasefire as Sudanese war rumbles on
--  देशको मूल्य मान्यतालाई ध्यानमा राखी पर्यटन प्रवर्द्धनको काम गर्नुपर्छः ढकाल
--  Prabowo soal Program Bagi-bagi Susu dan Makan Siang Gratis: Bukan Menggiurkan, Ini Necessity
--  메이크샵, 송은이 회사와 '느닷없는 콘텐츠 커머스' 제휴
--  Soykırımcı İsrail için hesap zamanı! Güney Afrika'nın başvurusuna Türkiye'den destek
--  Лион-Вильорбан прекъсна отчайваща серия в Евролигата
+-  ضعف السمع .. المعينات السمعية تطيل العمر
+-  طقس 6 أيام.. الأرصاد تتوقع تكوّن شبورة وسقوط أمطار على هذه المناطق
+-  Trainer Streich hofft auf Freiburger Winter-Transfers
+-  BVB-Kapitän würde sich über Sancho-Rückkehr extrem freuen
+-  Nordkorea feuert Granaten nahe Seegrenze mit Südkorea ab
+-  "ים מדר צריך זמן וסבלנות, רק תופעות טבע שולטות במשחק בגיל 23"
+-  2023'ün en çok satan otomobil markası belli oldu
+-  2024년 공정선거지원단(2차) 8일부터 총 34951명 모집
+-  누구나 의회 정보 한눈에
+-  중랑구의회, 제265회 정례회 폐회
+-  금천구의회, 2024년도 적십자 특별회비 전달
+-  안동시, 일자리 창출·창업도시 조성 실적 ‘껑충’
+-  2024년 1월의 경북도 독립운동가, 울진 윤대규·이두연·장영준·전병찬·주영석
+-  인천교통공사, IoT 기반 공조설비 예지보전 시스템 구축 완료
+-  경북도교육청, 생명 존중 우수 동아리 공모전 교육부 장관상 수상
+-  청송군, 2024년 청년 농업인·후계 농업경영인 지원 신청 접수
+-  영덕군, 2024년 소규모 주민 숙원사업 합동 설계반 운영
+-  성주군 선남면, 자원관리도우미 발대식
+-  의성군, 1월 자동차세 연납 신청 접수
+-  경주 황남동 카페 아덴, 후원물품 기탁
+-  Meteorologul ANM anunță când începe să ningă - Prognoza pentru săptămâna viitoare
+-  New Cluster General Manager appointed for three Minor Hotels in Maldives
+-  Tauron: jest ryzyko sporu z AMGH
+-  Powiat. Ida mrozy. W przelotne opady śniegu i temperatura od -1°C do -7°C w ciągu dnia
+-  แฟนโอ๋ ภัคจีรา เผยเอกสารจดทะเบียน บ. SAP ชื่อย่อมาจากคำนี้? คือคนคลั่งรักสุด ๆ
+-  Kiracılar dikkat! Tahliye riskini gördü, 6 ay peşin ödedi
+-  İstanbulda korkunç cinayet: Site otoparkına pusu kurdu, iş adamını vurdu
+-  ABD'de okula silahlı saldırı!
+-  Bitlis'te eğitime kar engeli!
+-  İstanbul Sancaktepe'de araç takla attı
+-  Dolar-Euro kuru bugün ne kadar? (Serbest piyasada döviz fiyatları)
+-  Pocas esperanzas de hallar supervivientes
+-  17 mil pacientes tratados con hidroxicloroquina murieron
+-  Posturas de yoga te ayudarán
+-  Con el 28% gana el PRD
+-  Verano
+-  Paradoja
+-  El ‘West’ está de moda
+-  La cosa está fea
+-  Entregan escuela de alto nivel en La Chorrera
+-  Interponen proceso millonario a promotoras
+-  La UP conmemorará los 60 años de la Gesta Patriótica del 9 de enero
+-  JN.1 o ‘Pirola’ es contagiosa, más no agresiva
+-  Suntracs arremete contra GESE y dos de sus reporteros gráficos
+-  Azuero se prepara para gritar los goles de Rolando Blackburn
+-  Estaba fría en un canal en Changuinola
+-  Lo mataron en su casa, hay uno preso
+-  Amenazó a su pareja con quemarle rostro con frijoles calientes
+-  352 personas dejaron sus vidas en las carreteras en 2023
+-  Familiares ubican a Roy en la morgue
