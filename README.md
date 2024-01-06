@@ -1,51 +1,51 @@
 # Latest News
--  Beveiliger en brandweer voorkomen grote schoolbrand in Harskamp
--  MasterChef Tahsin kimdir, Tahsin kaçıncı oldu? MasterChef Tahsin nereli?
--  MasterChef Mehmet kimdir? Mehmet Şef'in kaç yaşında, eline ne oldu? Mehmet Yalçınkaya'nın parmaklarını nasıl kesti, neden saklıyor?
--  MasterChef Danilo kimdir? Danilo Şef evli mi, eski eşi Tuğçe Demirbilek kaç yaşında? Danilo Şef'in kaç çocuğu var?
--  Blinken Türkiye'den Yunanistan'a geçti
--  الحاج عبدالكريم مصطفى مسامح في ذمة الله
--  غياب رونالدو عن التشكيل المثالي لعام 2023
--  مطالب بالتحقيق مع مذيعة بريطانية بعد مقابلة (عنصرية) مع البرغوثي - فيديو
--  استجابة واسعة مع عريضة لطرد سفيرة إسرائيل في بريطانيا
--  ما قصة أميرة الذهب التي أثارت تفاعلاً كبيراً في مصر؟
--  حكومة غزة: جيش الاحتلال سرق أموالاً وذهباً من الفلسطينيين
--  AK Parti'nin İstanbul adayı belli oldu! İşte Ekrem İmamoğlu'nun rakibi...
--  AK Parti İBB Başkan Adayı Murat Kurum'dan ilk açıklama!
--  الأردن يوسع معركته مع مهربي المخدرات ويضرب مواقع داخل سوريا
--  مجلس الضمان الصحي بالرياض يعلن عن حاجته لشغل هذه الوظائف
--  "واتساب" يدخل تعديلا جديدا لأصحاب الـ"آيفون": ماذا حدث لألوان التطبيق؟
--  البرهان يدعو لتسليح الشعب السوداني
--  Топовый боец UFC признал силу Шавката Рахмонова и собрался его уничтожить
--  A válság és a választások éve lesz 2024 Lengyelországban
--  Orbán Viktorral az élen felvonult a NER színe-java Bogányi Gergely gálakoncertjén
--  '십자인대-발목 부상 모두 극복 → 임시 주장 선임' 벤탄쿠르, '인간 승리의 아이콘'을 넘어 팀의 리더로 인정받다
--  Chelsea produce second-half goal blitz against Preston to progress in FA Cup
--  أمهات المختطفين ينددن بعرقلة مفاوضات الأسرى
--  אגם גולדשטיין אלמוג בנאום בכיכר החטופים: "הרבה בנות חוו פגיעות מיניות קשות ופציעות מורכבות"
--  Presidente del Congreso desmiente información sobre entrega de nuevos bonos
--  Dilek Demirci kimdir? Dilek Demirci kaç yaşında, nereli, ne iş yapıyor?
--  "Šta ako sam u drugom stanju?" Miljana ne može da dođe sebi, potpuno rastrojena nakon Zoline diskvalifikacije: "Razne misli mi prolaze kroz glavu!"
--  Capturan en Santiago dos presuntos delincuentes con armas y evidencias
--  VIDEO: Israel abate al comandante de un batallón de Hamás que perpetró el ataque contra el kibutz de Be'eri
--  İzmir’de Yunanistan’ın geri ittiği 95 göçmen kurtarıldı
--  Paulistão: Com Dorival sorridente e reforços, São Paulo inicia preparação para a temporada
--  Kassam, "dost ateşiyle" öldürülen İsrail askerlerinin sayısının 4 olduğunu açıkladı
--  Blinken, Yunan Başbakan Miçotakis ile Girit'te görüştü
--  Arda Güler, Real Madrid formasıyla ilk kez sahaya çıkıyor! Madrid ekibi, Arandina deplasmanında
--  Gazze'deki çatışmalarda bir İsrail askeri daha öldü
--  ABD, Kızıldeniz'de insansız hava aracı düşürdüğünü duyurdu
--  Colonna ve Al Sani görüştü: Gündem Gazze
--  ABD, "Boeing 737 MAX 9" tipi uçakların uçuşlarını durdurma kararı aldı
--  Ertuğrul Sağlam'dan Beşiktaş cevabı!
--  Erol Bulutlu Cardiff City'ye soğuk duş!
--  AK Parti Grup Başkanvekili Ala: Eksikleri giderecek olanlar, onun tamamını yapacak olanlardır
--  Midnight Suns Is Marvel Messiness Worth Coming Back To
--  Slot: 'Dat is een argument dat ik zal inbrengen, als er een club in winter komt'
--  PNL Gorj în conflict cu ANPC: Funcționari aduși din alte județe hărțuiesc antreprenorii gorjeni. Apelul către Ministerul Economiei
--  الإمارات تدفع برائد فضاء للوزارة للمرة الأولى
--  Хабиб Нурмагомедов «лишил» Шавката Рахмонова боя за титул чемпиона UFC
--  The man who flung himself at a Nevada judge and attacked her during a sentencing hearing told police he was having a bad day
--  Illegal Aliens Covered for Sex Change Surgeries, Hormone Therapy Under 'Free' Health Care Law in Deep Blue State
--  శారదా పీఠానికి వైభవ వెంకటేశ్వరుని ఆలయం!?
--  Charlize Theron Defends Trans Community Again On ‘RuPaul’s Drag Race’
+-  L-Theanin bei ADHS: Wirkung unbewiesen
+-  Ronaldo publica texto emocionante em despedida a Zagallo: 'Significado enorme na minha vida e carreira'
+-  80-year-old flown to hospital after alleged road rage incident: Alberta RCMP
+-  للاستدامة البيئية.. إطلاق كائنات فطرية نادرة في محمية الإمام تركي
+-  Arteta segir mögulegt að Arsenal nýti sér ekki janúargluggann
+-  بيان من إدارة ترخيص السواقين والمركبات
+-  عريضة بريطانية لطرد السفيرة الإسرائيلية تكتسب زخما
+-  السيسي: مصر ستجتاز أي ظروف صعبة
+-  تقرير حالة البلاد: تحلية المياه خيار الأردن الإستراتيجي للمستقبل
+-  Ehemaliger hochrangiger NRA-Beamter gibt Fehlverhalten im New Yorker Korruptionsfall zu: NPR
+-  Abonados de otra categoría: la Deportiva bate su propio récord histórico
+-  'No nos afectan redadas porque trabajamos en la calle", trabajadora sexual de Cartagena
+-  وزيرة خارجية فرنسا: ملتزمون بإيصال المساعدات إلى غزة بالتنسيق مع مصر والأردن
+-  رسائل الرئيس السيسي خلال تهنئة الأقباط بعيد الميلاد المجيد.. إنفوجراف
+-  البابا تواضروس: زيارة الرئيس كل عام لتهنئة المصريين بالعيد تمثل قيمة عالية
+-  متحدث جيش الاحتلال: القتال في غزة صعب ومعقد ونتعلم باستمرار من مجريات الحرب
+-  برلمانية: كلمة الرئيس السيسى بالكاتدرائية تكشف مواقف البابا تواضروس الوطنية
+-  حبس متهمين في الشروق 4 أيام بعد ضبطهما بحوزتهما 10 كيلو حشيش
+-  نجاح فى استضافة البطولات الرياضية.. اعرف جهود مصر فى تطوير الملف الرياضى
+-  حزب الاتحاد: الرئيس السيسي أرسى قواعد المواطنة بوجدان الشعب المصرى
+-  الحرية المصري: مشاركة الرئيس السيسي باحتفال عيد الميلاد رسالة بأننا نسيج واحد
+-  حصاد الرياضة المصرية اليوم السبت 6 / 1 / 2024
+-  James Rodríguez da buenas noticias en Sao Paulo
+-  Futebol / 1ª Divisão Sub 19: BM deixa-se apanhar pelo Ac. de Viseu (2-4) e falha 3º lugar
+-  Transferhammer soll unterwegs sein
+-  Dhunimi i tre shqiptarëve në Mal të Zi, Policia e Shtetit sqaron kronologjinë e ngjarjes
+-  ილია II საშობაო ეპისტოლეში ხელოვნურ ინტელექტზე საუბრობს
+-  Man arrested after skinny dipping in a Bass Pro Shop display
+-  Μητσοτάκης: Θα υπάρξουν περαιτέρω θετικά βήματα με τις ΗΠΑ στον τομέα της αμυντικής συνεργασίας
+-  Ghislaine Maxwell: The life of the Jeffrey Epstein associate found guilty of sex trafficking
+-  VIDEO U Vlasenici vrijeđaju bošnjačke povratnike: 'Ustajte balije'
+-  Kurioser Unfall in Saas-Fee: Ärztin lässt zwei Verletzte liegen, die von ihrem Hund angefahren wurden
+-  Crisis migratoria: Detenidos seis cubanos y ecuatorianos en México tras ser abandonados en un hotel
+-  CAN 2023 : La liste des 27 Gambiens enfin connue
+-  BILDER | Die volle Ladung Derby-Emotionen
+-  Familie schildert Angst auf Habecks Fähre: „Die hatten nichts Besseres zu tun, als auf die Kinder einzubrüllen“
+-  Familie schildert Angst auf Habecks Fähre: „Die hatten nichts Besseres zu tun, als auf die Kinder einzubrüllen“
+-  Oberhof: Preuß fehlen die letzten „Körner“ zum nächsten Podium
+-  Say hello to 'MoJo'! Boris Johnson and family joins Oxford Morris dancing festival where people dress up as elves and pour cider on tree roots
+-  "Je souffre pour lui" : Veronika Loubry dévoile pourquoi son compagnon, déjà atteint d'un cancer, est hospitalisé depuis une quinzaine de jours
+-  [더사주 오늘의 띠별 운세]
+-  Jung-Nationalrätinnen der SVP und SP: «Hier ziehen wir am selben Strick» – «Ähm, nein!»
+-  ONESVEŠĆENOG GA VUKLI PO BETONU: Jezivo vršnjačko nasilje u Bijelom Polju, brutano pretučen dečak (14)
+-  Az amerikai külügyminiszter próbálja csillapítani a kedélyeket a Közel-Keleten
+-  MasterChef star Gregg Wallace in battle to better fund education for autistic children: TV judge, whose four-year-old son Sid has condition, says it's 'not easy' to find schooling support
+-  İstanbul'da trafik kazası! Ölü ve yaralılar var
+-  Bursa'da motosiklet zabıta aracı ile çarpıştı! 2 yaralı
+-  Niğde'de 2 otomobil kafa kafaya çarpıştı: Karı- koca hayatını kaybetti
+-  ABD Dışişleri Bakanı Blinken, Yunanistan Başbakanı ile görüştü
+-  Ankara'da bir otelde skandal: Su yerine çamaşır suyu servis edildi!
