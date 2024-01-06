@@ -1,11 +1,11 @@
 # Latest News
--  Sturm "Zoltan" sorgte für große Schäden
--  [“괌은 최고 경계, 지금이 안전” vs “범인 잡혀야 안심”
--  [여야, ‘DJ 탄생 100주년’ 집결…“국민통합 이뤄내자”
--  Keeper Horn unterschreibt bei Red Bull Salzburg
--  Schiunfall mit Verletzungsfolge in Telfes im Stubaital
--  Vážna choroba pľúc prichádza po špičkách, postupne strácate dych: Ohrozené sú tieto skupiny
--  VIDEOROZHOVOR Andrej Danko priznáva veľký hnev voči Pellegrinimu: Správa sa povýšenecky, nebudem tolerovať jeho maniere
--  Slávny spevák zvádza BOJ S RAKOVINOU: Nádor na mozgu a okamžitá operácia!
--  Traktor mit Anhänger fängt Feuer: 300.000 Euro Schaden
--  Ишанов Жавлон Хамидуллаевичнинг техника фанлари бўйича фалсафа доктори (PhD) диссертацияси иши ҳимояси тўғрисида
+-  شركة أمن بحري: تلقينا تقريرا عن حدث أمني في باب المندب
+-  فيديو .. انفجار نافذة طائرة ركاب يجبرها على الهبوط اضطرارياً في أمريكا
+-  22 شهيدا في خانيونس منذ فجر اليوم
+-  حزب الله: استهدفنا موقع المطلة وثكنة هونين
+-  Cooler Master novim vrhunskim napajanjima ne trebaju ventilatori
+-  Mohammad Hafeez addresses concerns about Babar Azam, Shaheen Afridi
+-  Jöttek a „törvényi változások”, nevet és vezetőséget változtatott az egykori Honvédszakszervezet
+-  Veganuary turns 10: How plant-based foods took over Europe
+-  Heavy fire from Lebanon targets northern Israel amid concern over Gaza spillover
+-  Gumbo: soul food from the bayou
