@@ -1,51 +1,11 @@
 # Latest News
--  [60계치킨 ‘닭똥집 이물질’ 논란 사과…“판매 중단”
--  [與 “쌍특검 거부권 권한쟁의 청구, 악의적 총선 전략”
--  [‘볼 때마다 반감’ 지역민 불법 현수막 불편 호소
--  กล้าล้วงคองูเห่าบุกลักทรัพย์ที่ว่าการอำเภอบ้านนาจับตัวได้ค้นพบยาบ้า20เม็ด
--  Pentagon keeps Austin's hospitalization under wraps for days
--  20 student activists nabbed after attempting to enter presidential office
--  용산 대통령실 진입 시도한 대학생 20명 체포…'김건희 특검' 요구
--  Budha Venkanna: టీడీపీలో పదవులతో పాటు గుర్తింపు ఉంటుంది
--  ‘Veysel Abi' vurgununa 479 yıl hapis
--  Gözler Kenan Yıldız'ın üstünde! Astronomik teklif bekleniyor
--  İsrail ajanlarının sorgusu tamamlandı! Casuslar Dahlan'ın adamı çıktı
--  Galatasaray evinde Konyaspor ile karşılaşacak
--  Union Road Ministry Plans Ambitious Expansion Of High-Speed Corridors
--  Titan Achieves 22% YoY Revenue Growth, Adds 90 Stores
--  Sebi Regulates Short-selling Trades, Prohibits Naked Short Selling
--  Gunmen kill 3 sons of former local police commander
--  Plusz egy év ovi: hány napon belül bírálják el a kérelmet?
--  Befogadta a legfelsőbb bíróság Donald Trump fellebbezését a az elnökválasztásból való kizárása ügyében
--  Lelőtték az ámokfutót, aki bozótvágóval támadt rendőrre Ausztriában
--  KTR calls cancellation of E-Prix a ‘regressive decision’ by Telangana Govt
--  Fenerbahçe'de Becao'nun ardından Zajc da dönüyor
--  Ăștia ne-au furat șervețelele de masă
--  Cooking Oil and Ghee Prices Reduced by Rs. 10 in Pakistan
--  Crues et inondations dans le nord-est du pays
--  Porro Stunner Sees Spurs Go Past Burnley Into FA Cup 4th Round
--  Do you think 2024will be better for kenyans than 2023?
--  Qeyri-sabit hava bu tarixədək
--  Police may have lied, as Gov Sani confirms bandits’ attack on Kaduna communities
--  İnsanlar zehirlenmesin diye işçiler günlerce mesai yapıyor
--  Depremin merkezi Kahramanmaraş 11 ay sonra havadan görüntülendi
--  AUZEF bitirme (final) sınavları saat kaçta başlayacak, kaç dakika sürecek?
--  Zeventig Nederlandse bedrijven op techbeurs CES in Las Vegas
--  İsrail, Gazze konusunda ABD'yi yatıştırmaya çalışıyor
--  Kerala Government ignoring medicine shortage in govt. hospitals, alleges Opposition Leader V.D. Satheesan
--  Over 150 eye injuries during New Year's; Ophthalmologists want fireworks ban
--  Harnessing the potential of social media in hospitality education
--  Insecurity: It Is No Longer Time To Play Politics, Let’s Give Tinubu A Chance – Bode George
--  ABD'de 6 Ocak Kongre Baskını Tartışmaları Başkanlık Seçimlerini Etkiliyor
--  "이준석이 '젊은 정치' 위한 해법? 문제는 결국…"
--  '패스트 라이브즈' 유태오, 美 뉴욕타임스 선택 받았다
--  용산 대통령실에 대진연 회원 20명 진입시도…경찰, 체포·연행
--  “പ്രശാന്ത് നീലിനു കറുപ്പിനോടുള്ള അഭിനിവേശം OCD ആയിരുന്നു എങ്കിൽ കറുപ്പിനെ കുറിച്ചുള്ള അസഹ്യമായ ചിന്തകൾ മാറ്റാൻ വെളുപ്പ് നിറങ്ങൾ ഉള്ള ഒരിടത്തേക്ക് ഓടി ഒളിച്ചേനെ” , ഫേസ്ബുക് കുറിപ്പ്
--  Soccerladuma | Mourinho Responds To Brazil Links After Ancelotti Snub
--  US Olympian Richard Thornton dead at 65 after collapsing on beach in California
--  «Brich aus dem Hamsterrad aus»: Dieser junge Mann schart Teenager um sich, die vom Luxus träumen ­– und macht auf ihre Kosten ein Vermögen
--  US-Institut hält russischen Angriff auf Kupjansk für möglich: Doch Experte gibt Entwarnung für Charkiw
--  US-Institut hält russischen Angriff auf Kupjansk für möglich: Doch Experte gibt Entwarnung für Charkiw
--  Paul Michael Glaser pays tribute to Starsky & Hutch co-star David Soul following his death at 80: 'He was a brother, a friend, a caring man'
--  Importance of emotional intelligence in higher education
--  Rajasthan: 72 IAS and 121 RAS officers transferred in Bhajanlal's first major administrative reshuffle. Details here
+-  WHO Partners with Sindh Government: 55 Female Vaccinators to Receive E-Bikes
+-  Tapa Edición 6 de Enero de 2024
+-  Rinnovo Rabiot, volontà chiara del giocatore: ecco cosa farà la Juve
+-  Kenan Yıldız için astronomik teklif bekleniyor
+-  Bakanlıktan 58 firmaya ceza
+-  Ahmet Hakan yazdı: AK Parti’nin İstanbul adayı spekülasyonları
+-  Training des 1. FC Köln: Was die Fans über den neuen Trainer Timo Schultz denken
+-  육지 넓어지고 바닷물 없어지고…일본 강진에 175m 확장한 해안선
+-  [한동훈 “호남·영남서도 더 열심히…김대중 대통령도 바라셨을 것”
+-  [[속보] 경찰, 다방업주 연쇄살해범 오늘 중 구속영장 신청
