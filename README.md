@@ -1,51 +1,51 @@
 # Latest News
--  ملګري ملتونه د افغانستان په اړه دویمه مشورتي غونډه جوړوي
--  Magyar rendszámú autó sofőrje okozott súlyos balesetet Horvátországban, hárman meghaltak
--  Λονδίνο και Ευρωπαίοι αξιωματούχοι χαιρετίζουν τον διορισμό προσωπικής απεσταλμένης στο Κυπριακό
--  ارتفاع حصيلة شهداء غزة إلى 22722
--  Volunteers work to bring pet care to rural areas with veterinary shortages
--  University of Wisconsin Chancellor Fired After Creating Online Porn with Wife
--  Defensa antiaérea rusa derriba en una jornada un helicóptero, 29 drones y 4 misiles ucranianos
--  Nanno Wilholt sluit per direct aan bij hoofdmacht ZVV Ede
--  Timo Werner left out of RB Leipzig squad ahead of Premier League return
--  Serie A: Frosinone-Monza 0-0 DIRETTA
--  ალილოს მსვლელობასთან დაკავშირებით, თბილისში, ტრანსპორტის მოძრაობა შეიზღუდება – მერია
--  Cilat janë 49 profesionet e veçanta që kërkon tregu i punës?
--  Leihe geplant: Werner vor Wechsel zu Tottenham
--  Plauener Vogtlandbibliothek fühlt sich nach Jahren der Unterfinanzierung jetzt gut aufgestellt
--  Chemnitzer Wintervögel werden gezählt: Warum Naturfreunde nie wissen, was sie erwartet
--  Над 100 загинати во серијата земјотреси во Јапонија
--  Çin'de yeni yıl hareketliliği 10 Şubat'ta başlıyor
--  Ależ seria Polaka. Zdemolował kolejnego rywala. Zagra o tytuł
--  Nordkorea: Kim Jong-un schürt Kriegsangst und schafft Feindbilder – wachsende Konfrontation
--  Dakar2024. Joaquim Rodrigues Jr. desiste na primeira etapa devido a queda
--  Pjesma "Za život Srpske" - simbol očuvanja Republike
--  Пјесма "За живот Српске" - симбол очувања Републике
--  Fahnder entdecken Rekordmenge Kokain in Bolivien
--  Coup d’envoi à Rabat du 1er “Combine” de la Basketball Africa League en Afrique
--  Biathlet Doll nach Verfolger beim Heim-Weltcup: „Es war maximale Dummheit“
--  Advancements in Space Research: Revolutionizing Drug Development and Computing
--  Αγριεύει ο καιρός τις επόμενες ώρες: Προειδοποίηση για ανεμοστρόβιλους, βροχές και χιόνια
--  Mixed fortunes for Africa in 2024
--  Zomrela hádzanárska majsterka sveta Veronika Ilavská-Schmidtová
--  News24 | North Korea fires 60 rounds of artillery near South Korean border island
--  Sambut Tahun Baru, BAZNAS Bertekad Memaksimalkan Potensi Zakat
--  اعلام اميركي: إسرائيل تقف وراء اغتيال العاروري
--  صلاح يقدم للسيسي قميص المنتخب ووعدا - فيديو
--  الإمارات..إحالة 84 متهما من (الإخوان) لأمن الدولة
--  أخطاء يرتكبها الوالدين تحفز غضب الطفل
--  “แบงค็อก” จ๋อย โดน VAR ริบประตู เปิดบ้านแพ้ “บุรีรัมย์” ศึกไทยลีก นัดตกค้าง
--  بقضية احتيال.. ترامب مهدد بغرامة تصل إلى 370 مليون دولار
--  جمعية المستقبل تنظم مخيما تربويا خاصا بالسباب
--  Motorri i ekonomisë kërkon naftën
--  Municipalidad Provincial de Trujillo clausura el centro comercial APIAT
--  Český biznis už prešiel na euro, úvery v korunách podnikateľov prestali lákať
--  DeSantis Campaign Has Allegedly Hit the 'Make the Patient Comfortable' Stage: Report
--  PlatinumGames vai encerrar World of Demons
--  Arequipa: Médicos mueven el útero y ovarios de adolescente para tratamiento del cáncer
--  Суд в Италии посмертно оправдал Марадону по делу о неуплате налогов
--  北, 연평도 북방서 60여발 포사격…이틀 연속 도발
--  Koalisi Masyarakat Sipil Menduga Prabowo Menyalahgunakan Kekuasaan untuk Pemilu 2024
--  Bereits im Februar 2023: 23-Jähriger aus Dillenburg soll Frau getötet und Leiche verbrannt haben
--  نادرا نے شناختی کارڈ اور فارم ب بنوانے کا آسان طریقہ متعارف کرادیا
--  Marina de Guerra: Oleaje anómalo continuará hasta este domingo
+-  Aumentan 10 mil por ciento solicitudes de refugio
+-  Urge Coparmex regresar con bien a Luis Alejandro
+-  TBMM’de bisiklet şenliği düzenlendi
+-  TV host admits to asking husband bizarre request right after sex
+-  İlhan Palut: Değerli bir galibiyet aldık
+-  Çin, Tienmu-1'i uzaya yolladı
+-  Volkan Demirel: Biz artık aşağılarda mücadele edeceğimizi gösterdik
+-  В штабе Путина стартовала проверка собранных в его поддержку на выборах подписей — видео
+-  Billionaire Brain Wave Reviews - (DONT BUY! Until You Read This Honest Review)
+-  ED summons Jharkhand CM`s press advisor & Sahibganj DC in money laundering probe
+-  Dharma`s creative head calls 12th fail director Vidhu Vinod Chopra `chindi`
+-  La philosophie "friluftsliv": comment les Norvégiens continuent à vivre dehors malgré le froid
+-  문재인 “김대중 대통령님 앞에서 부끄럽다…세상이 거꾸로 가고 있다”
+-  Vientos con velocidad de 32 km/h sacudirían Lima y otras regiones de la costa
+-  پاکستان کیلئےخوش آئند خبر ، 2023 میں سیاحت کیلئے بہترین ملک قرار
+-  Muere Mario » Zagallo», leyenda de Brasil y único ganador de 4 Copas del Mundo
+-  Umro je Slavko Govorčin, pjesnik čakavšine i dugogodišnji suradnik naše redakcije...
+-  سمندر کی تہہ میں غوطہ خوروں پر زلزلہ آ گیا، دل دہلا دینے والی ویڈیو
+-  Miastowi są bezczelni. Znowu się śmieją. Zobacz najgłupsze memy o rolnikach 2024
+-  “Mad Men” yıldızı January Jones’tan 46. yaşa özel poz
+-  'Such a downfall for MS Dhoni': Fans react after CSK skipper collaborates with this popular celebrity
+-  Eintracht kassiert Test-Pleite, Kalajdzic-Leihe rückt näher
+-  „Winterstubb“: „Die Wiesbadener probieren gern etwas aus“
+-  MHP lideri Bahçeli: " Yargıtay 3.Ceza Dairesi'nin şerefli hakimlerini yürekten kutluyor ve aldıkları kararı destekliyoruz"
+-  Liga Uruguaya de Básquetbol. Volvieron al aro y Aguada liderando
+-  Stefano Pioli'den Rade Krunic itirafı: Fenerbahçe'nin transfer teklifi ortaya çıktı
+-  Josef maçı tribünden izledi
+-  박대출, lsquo;大진주의시대rsquo; 의정보고 열려
+-  يسرا تشوق جمهورها لـ ليلة العيد وتُعلن موعد عرضه
+-  بوريل يبحث مع ميقاتي وبري الأوضاع في غزة وجنوب لبنان
+-  وفاة البرازيلي زاغالو أوّل بطل للعالم كلاعب ومدرب
+-  إصابة لاعب ووريرز بكسر في اليد
+-  اختبار طبي يحدد مصير البليهي والمولد
+-  صفارات الإنذار تدوي في عدة بلدات شمال فلسطين المحتلة
+-  ريال مدريد ينعى أسطورة الكرة العالمية
+-  سامسونج توسّع تشكيلة شاشات Odyssey بطرح طرازات OLED الجديدة في معرض الإلكترونيات الاستهلاكيّة 2024
+-  বাবাকে কবরে রেখে ঢাকা ফেরা হলো না এলিনার
+-  DRAGAN NA BADNJE VEČE UBIO TATJANU, PA HTEO I SEBE! Rođak zatekao horor u kući: "Pre toga je snimao i ljubio joj ruku!"
+-  যশোরে ভোট গ্রহণে প্রস্তুত প্রশাসন, ছয় আসনে লড়ছেন ২৭ প্রার্থী
+-  Sretni Inter: zabili su u sudačkoj nadoknadi, a onda je Verona promašila penal za izjednačenje
+-  Adil Öksüz'ün görev yaptığı o bina tamamen yıkıldı
+-  Jurnalist və iki övladı dəm qazından zəhərləndi
+-  İran'daki terör saldırılarında ölenlerin sayısı 91'e yükseldi
+-  Neugeborenes auf Schulgelände gefunden - Lebensgefahr
+-  Τουρκία: Έρχεται Χανιά ο Μπλίνκεν μετά τη συνάντηση με Ερντογάν - Τι θα συζητήσουν με Μητσοτάκη
+-  HKD Napredak podružnica Busovača izabrala novo vodstvo
+-  СМИ: глава Евросовета Шарль Мишель будет баллотироваться в Европарламент
+-  Polis: Trece debit card si ta bay parada awe pa bebe y bringa
+-  Söke'de Tarımsal Üretim Planlaması hakkında bilgiler verildi
+-  Bakan Ersoy: 100 milyar dolarlık turizm geliri hedefine emin adımlarla yürüyoruz
