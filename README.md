@@ -1,11 +1,51 @@
 # Latest News
--  ১২৭ বিদেশি পর্যবেক্ষক, ৭৩ সাংবাদিক পেয়েছে ইসির নিবন্ধন
--  Nyugdíjreform: már ki kellett volna adni a fenntarthatósági jelentést, az Orbán-kormány inkább mindent titkol
--  Elkészült a felmérés, nem tetszik a többségnek, hogy szűkült a CSOK-ra jogosultak köre
--  Domantas Sabonis records another triple-double as Kings hold off Raptors 135-130
--  Two girls swept away by floods found dead
--  جرمن ہالی ووڈ اداکار کرسٹیان اولیور اپنی دو بیٹیوں سمیت طیارہ حادثے میں چل بسے.
--  "לעולם לא נראה דבר כזה מחוץ ליורוליג": ריאל ואפס לא נרגעות
--  Πέλικανς - Κλίπερς 95-111: «Αφεντικά» στη Νέα Ορλεάνη (vid)
--  Bí mật những cuộc chiến đẫm máu từ lòng đất - Kỳ cuối: Chuẩn bị tác chiến dưới lòng đất nguy hiểm
--  Mưa nhỏ cũng có thể gây lở đất sau động đất ở Nhật Bản
+-  Syömishäiriö vei Karla Könöseltä, 20, nuoruusvuodet, mutta nyt hän on palannut intohimonsa pariin
+-  Aditya L1: நான்கு மாத பயணம்.. இன்று லெக்ராஞ்சியன் புள்ளியில் நிலைநிறுத்தப்படும் ஆதித்யா எல்.1 விண்கலம்..
+-  Wohnungsbau-Krise wird sich 2024 wohl verschärfen – das sind die Ursachen
+-  Tanzanit Taşı Nedir, Ne İşe Yarar? Tanzanit Taşının Özellikleri Nelerdir?
+-  Druk op Scholz neemt toe voor levering kruisraketten aan Oekraïne
+-  Dodental aardbeving Japan boven de 100
+-  La Asamblea Nacional de Venezuela ratifica a Jorge Rodríguez como presidente del Congreso
+-  Horoscope Today : ਜਾਣੋ ਅੱਜ ਦਾ ਰਾਸ਼ੀਫਲ
+-  Hochwasser und Kälte - Welche Folgen hat der Frost nun?
+-  U KCCG više posla nego ljekara, Vlada najavila gradnju gradske bolnice
+-  Beranski lučonoša osvojio akademske visine u Njemačkoj
+-  Danas je Badnji dan
+-  Μαρίνα Βουλιαγμένης: Μετά τη Louis Vuitton, τη Gucci, τη Dior και οι Rolex, Zegna δημιουργούν σημεία πώλησης
+-  عاجل.. توقعات الطقس: أمطار رعدية وضباب على 8 مناطق.. وإنذار أحمر على مكة المكرمة
+-  تطايرت كأنها لعبة.. هذا ما فعله مطب صناعي بعدد من المركبات في جازان (فيديو متداول)
+-  Health: આ ફળોને ખાવાની સાથે તેની છાલનો સ્કિન પર આ રીતે કરો ઉપયોગ, લાજવાબ મળશે ઇન્સ્ટન્ટ રિઝલ્ટ
+-  WARBIXIN: Rice, Palmer, Szoboszlai & 10-ka Saxiix Ee Ugu Fiicnaa Ee Premier League Oo La Soo Saaray
+-  متحور "JN.1" يمثل 62٪ من إصابات كورونا بأمريكا.. هل يعد أكثر خطورة؟
+-  أمطار رعدية وضباب.. طقس المملكة اليوم
+-  ارتفاع عدد ضحايا زلزال اليابان إلى 100 شخص
+-  Indonesia AirAsia Buka Rute Bali - Bandar Lampung, Terbang Perdana 17 Januari 2024
+-  H+1 Tabrakan Kereta di Cicalengka, 4 Kereta Api Menuju Wilayah Madiun Terlambat Sejam
+-  «Бессовестно попирал традиционные ценности». ФСБ арестовала математика, изучающего прогрессию. (Пендуза)
+-  Prabowo Hadiri Rapat Konsolidasi Partai Golkar, Ikut Masak Nasi Goreng
+-  NHL: Nächste Niederlage für Reichel und Chicago
+-  SSK ve Bağkur emeklilerine ilave artış yapılacak mı? İşte masadaki 3 ek zam seçeneği
+-  Hochwasser und Kälte - Welche Folgen hat der Frost nun?
+-  إسرائيليون يطالبون بالتحقيق في مقتل أبنائهم بنيران “الجيش” في 7 أكتوبر
+-  Odisha BJP : 21 सीटें, हर सीट पर अलग अलग केंद्रीय नेता संभालेंगे मोर्चा ... मिशन ओडिशा के लिए बीजेपी ने बनाई ये खास रणनीति
+-  2024 Big Budget Movies : அதிரப்போகும் பாக்ஸ் ஆஃபிஸ்... இந்த ஆண்டு வெளியாகும் பெரிய பட்ஜெட் திரைப்படங்கள்...
+-  Flera trafikolyckor i kyliga vädret
+-  Odgovor na astrološko pitanje za datum 18.10.
+-  DYP müraciət ünvanladı - Yollarda sıxlıq və hərəkətin intensivliyi artacaq
+-  Jumlah Wisman ke Batam Terus Meningkat, Paling Banyak Turis Singapura
+-  C'est le moment d'essayer Apple Music : 3 mois d'abonnement sont offerts
+-  Guillermo Martínez tras su llegada a Pumas: 'Sé la responsabilidad de defender este escudo'
+-  Мъжкото хоро в Калофер нагази във водите на Тунджа
+-  민주 "'이재명 테러 사건' 공범 여부 엄정 수사해야"
+-  Nigerians React As Video Of Police Questioning Suspects Running Gistlover Blog Emerges
+-  Nasa will neuen Überschalljet „X-59“ vorstellen
+-  Tüketiciyi mağdur edenler cezadan kaçamadı! Ticaret Bakanlığı 58 firmaya 86 milyon liralık ceza kesti
+-  مسؤولون إسرائيليون يتوقعون حربا محدودة مع حزب الله
+-  Wolff adelt DHB-Torwart Späth: Irgendwann einer der Besten
+-  Uddhav Thackeray : 22 जानेवारीला नाशकातील काळाराम मंदिरात जाऊन रामाचे दर्शन घेणार : उद्धव ठाकरे
+-  Un nou studiu dezvăluie beneficiile uimitoare ale servirii micului dejun la o oră cât mai matinală
+-  "Il y a un combat entre ma sœur, mon frère et moi": Anthony Delon témoigne du déchirement de la famille Delon
+-  대만 총통 선거 D-7…'미중 대리전' 고조
+-  ‘Manusia paling jahat pernah saya jumpa’
+-  Abgeordneter Andy Kim: Republikaner, die Trump nach dem 6. Januar umarmen, sind „Feiglinge“ – MSNBC
+-  日노토강진 사망자 100명 육박…"재산피해 7.5조원"
