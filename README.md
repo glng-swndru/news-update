@@ -1,51 +1,51 @@
 # Latest News
--  Vierschanzentournee: Kobayashi gewinnt, Wellinger verpasst Triumph
--  اللجنة الاولمبية والبارالمبية تعلن نتائج التقييم الفني الثاني لعام 2023
--  Miért likvidálták a Hamász második számú vezetőjét?
--  Minsa entregará cupos para la venta de comida en el Desfile de las Mil Polleras
--  Прямая трансляция матча Рыбакина — Соболенко в финале турнира в Брисбене
--  Rusya, Ukrayna'ya füzeyle saldırdı... 11 kişi hayatını kaybetti
--  Donmuş et çözmenin pratik yöntemi! Meğer bu kadar basitmiş
--  Samsunspor, sahasında Fatih Karagümrük'ü devirdi
--  Sjajna Hrvatska slomila Slovence i podigla trofej uoči Eura! U neobičnoj postavi pokazali smo ‘ono nešto‘
--  CTA, Metra to offer free rides late New Year’s Eve
--  CTA, Metra to offer free rides late New Year’s Eve
--  Roermond neemt afscheid van geliefde 'bisschop Harrie'. 'Ik vraag Onze Lieve Heer: waar slaat dit op?'
--  Британија мора да деактивира два воени брода за да ги прераспредели морнарите на нови фрегати
--  Kipakka pakkanen jatkuu vielä sunnuntaina, mutta lännestä on saapumassa varsin lämmintä säätä
--  Empoli Milan, turnover in difesa? La coppia centrale sarà questa
--  Мають зняти блокаду: уряд Польщі уклав угоду з фермерами
--  #PulsoEmpresarial ¿Tienes un dispositivo nuevo? Consejos para protegerlo y desechar el viejo con seguridad
--  How to Train Your Dragon Remake Adds Series Alum Gerard Butler
--  "אני תומכת בחמאס, יהודיות מז****": משחק תיכונים בארה"ב פוצץ בגלל אנטישמיות
--  Elizabeth Ann Shuttleworth
--  Μεσανατολικό: Η Γαλλία καλεί το Ιράν "και τους συνεργάτες του" να σταματήσουν αμέσως τις αποσταθεροποιητικές ενέργειές τους
--  „Alarm für Cobra 11“-Star verunglückt: Christian Oliver stirbt bei Flugzeugabsturz
--  „Alarm für Cobra 11“-Star verunglückt: Christian Oliver stirbt bei Flugzeugabsturz
--  Karnataka govt seeks to amend property tax payment rules
--  VÍDEO: o resumo da vitória do Farense sobre o Gil Vicente nos descontos
--  BBB | Valentina Bandeira desabafa após ser cortada por falar demais: "Tristeza"
--  „Zeitplan überschritten“: Tuchel schlägt Transfer-Alarm nach Bayern-Rückschlag
--  Ar surasite tris širdis, kurios pasislėpė tarp drugelių?
--  Japanac za povijest: Kobayashi osvojio Četiri skakaonice bez ijedne pobjede
--  Berichte: Werner-Wechsel zu Tottenham fix – Rose wünscht schon „alles Gute“
--  Число военных Израиля, погибших с начала наземной операции в Газе, достигло 176
--  Ivan Toney bags hat-trick in Brentford return as Arsenal and Chelsea links intensify
--  Gesundheit: Brain Fog: Wann Sie zum Arzt sollten und was hilft
--  La befana sceglie il tendone di San Martino per incontrare i bimbi
--  Schreck im EM-Test: Groetzki verletzt ausgewechselt
--  BVB-Leistung beim 2:2 gegen Alkmaar wirkt Fragen auf: Erste Elf ohne Konzept und Biss
--  BVB-Leistung beim 2:2 gegen Alkmaar wirkt Fragen auf: Erste Elf ohne Konzept und Biss
--  A96 near Keith closed in both directions due to overturned HGV
--  Unesp expulsa 4 universitários por trote violento que fez com que aluna fosse internada na UTI
--  Possibility that surprise Tottenham star who has been injured all season could move to Man United in January
--  Barbie’s Greta Gerwig Reveals Why She And Longtime Partner Noah Baumbach Decided To Get Married After Being Together For 12 Years
--  Violento arranque de año 2024 en México; reportan 308 asesinatos
--  RPSC परीक्षा की वजह से शहरी और ग्रामीण क्षेत्रों में आज 5 घंटे तक बंद रहेगा इंटरनेट
--  DNT: Trenger flere frivillige
--  Καιρός: Πού θα χτυπήσουν επικίνδυνα καιρικά φαινόμενα – Χαλάζι και ανεμοστρόβιλοι τις επόμενες ώρες
--  Spektakularne hale čekaju "orlove" u Nemačkoj! (VIDEO)
--  Almgrens soloprestation förlängde ESK:s segersvit
--  Central do Cidadão não fará atendimento para isenção de IPTU nos próximos dias
--  Paul Michael Glaser Remembers ‘Starsky & Hutch’ Castmate And Friend David Soul
--  Bóka EU-ügyi miniszter most egy finn lapnak magyarázgatta, hogy „az országgyűlés egyes tagjainak kétségei és aggodalmai” miatt blokkoljuk a svéd NATO-csatlakozást
+-  Több mint 26 ezer magyar beteg neve szerepel a kórházi várólistákon, van olyan műtét, amelyre csaknem másfél évet kell várni
+-  توضيح هام صادر عن الجامعة الأردنية
+-  بلدية معان تنفذ مشاريع خدمية وتنموية
+-  Dan mantenimiento a la Tecnológico en ambos sentidos
+-  Entregan en Pachuca más de 1,500 juguetes a niñas y niños
+-  Egipat planira da milijardama udvostruči glavni grad Kairo
+-  Preminuo frontmen benda Alisa Miroslav Živanović – Pile
+-  Киев: Русија користи проектили произведени во Северна Кореја
+-  Incidente lungo la Tangenziale di Catania, coinvolti quattro veicoli
+-  انقسام «سوشيالي» حول دعوات «مقاطعة محلات السوريين» في مصر
+-  Requisitos para acceder a las Becas Progresar 2024
+-  Excise Policy case: AAP Rajya Sabha MP Sanjay Singh moves Delhi High Court seeking bail in money laundering case
+-  China hands over 160 electric buses to Pakistan
+-  Der Glöcklerlauf 2024 ein Traumtag für die TRAUNSTOANA Glöcklerpass!
+-  قصف عنيف جنوب لبنان
+-  Jhon Arias, en la mira de clubes europeos
+-  توقيت مباراة ريال مدريد و أراندينا من عواصم العالم
+-  Crest. La couve, la défarde et le picodon à l’honneur dans les rues crestoises
+-  Z lecącego samolotu Alaska Airlines wypadło okno . Linia uziemiła swoje Boeingi 737 Max 9 [VIDEO]
+-  Ardèche. Pêche : des infractions en hausse de 142 % en 2023
+-  Situaciją „7bet-Lietkabelyje“ nušvietęs Maldūnas: „Šis sezonas kaip užburtas ratas“
+-  The Kalen DeBoer hire: Could Jen Cohen’s brilliant move resonate across the industry and create opportunities for women?
+-  SQU to hold forum for GCC female students on Sunday
+-  Ataques en el mar Rojo suben hasta 100% el coste del transporte entre Asia y Marruecos
+-  FAA ordena mantener en tierra de forma temporal algunos aviones Boeing 737 MAX 9 tras un reventón
+-  Horse racing tips: Templegate’s 11-2 NAP can win the big one on a good card at Plumpton
+-  Dżentelmen od „Opowieści wigilijnej”. Czego możesz nie wiedzieć o Karolu Dickensie?
+-  Masif Dukung Prabowo-Gibran, Relawan Pasang Spanduk-Door to Door ke Warga
+-  LIVE | In rappelvoller Arena: Bozen trifft auf Pustertal
+-  Μέσι: Η Παρί ερευνάται για στήσιμο της 7ης Χρυσής Μπάλας του Αργεντινού!
+-  ¡Llegaron los Reyes!: Norwill Fragoso regala tres becas para su academia
+-  Montricher-Albanne. La RD 81A restera fermée pendant cinq semaines
+-  "Академик" (Пд) спечели първия си мач за годината
+-  All Star Charity Game#2 για τους Μικρούς Ήρωες! Όλα έτοιμα για την αυριανή μεγάλη γιορτή
+-  Πέθανε ανήμερα των Θεοφανείων η ιστορική εκδότρια της εφημερίδας «Πελοπόννησος» Νανά Δούκα
+-  India’s defence minister Rajnath Singh to visit UK
+-  VIDEO. Football : Andy Delort s'effondre et convulse en plein match
+-  UK Cinema Box Office Declines by 25% During Pandemic, Despite Barbenheimer Success
+-  Protest w Medyce zawieszony. Jest porozumienie z rolnikami
+-  Veliki broj vjernika prisustvovao paljenju Badnjaka u dvorištu Stare pravoslavne crkve u Sarajevu
+-  Najave događaja za 07.01. 2024. godine (nedjelja)
+-  Pápež varoval pred rozkolmi v cirkvi a vyzval ľudí, aby opustili cirkevné ideológie. Boha majú hľadať v každodennom živote
+-  FC Kemin maalivahdit torjuivat nollapelin – Rennan Cabral palasi joukkueen vahvuuteen
+-  India W vs Australia W Live Streaming, Second T20I: When and Where to watch IND W vs AUS W live telecast?
+-  Cum putem combate gândurile negative. Top 5 modalități pe care le poți pune și tu în practică
+-  Conferenza stampa Caruso pre Supercoppa: «Vogliamo portarla a casa, la sconfitta dell’anno scorso fa ancora male»
+-  Mirisne svijeće povećavaju rizik od raznih zdravstvenih problema
+-  فيديو ينشره "حزب الله".. شاهدوا كيف قصف قاعدة "ميرون" الإسرائيليّة
+-  Polisi Tangkap Pemasok Batubara Nyambi Jualan Sabu di Serang
+-  Kërcënime dhe fjalë fyese…/ Gjendet videoja në celularin e Xhemal Lokës! Nëna e 4 fëmijëve e vetëvrarë, dhunohej nga bashkëshorti
