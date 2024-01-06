@@ -1,51 +1,51 @@
 # Latest News
--  아시안컵서 ‘중동발 오심 피해’ 과연 없을까[초점]
--  Italy Investment: Residency and Beyond
--  Sieltä se tuli - SM-liigassa pitkä kakku kirvesiskusta
--  Pedro Silva Pereira na Comissão Política do PS
--  Raimundo diz que a lição que sai do congresso do PS é que é preciso reforçar o PCP
--  Schmidt. "Decidimos o jogo cedo"
--  PCP vai propor comissão parlamentar de inquérito à privatização da ANA
--  Wie lange bleibt die Weihnachtsdeko? - In Leubsdorf noch länger
--  Bu kişiler artık tapu işlemi yapamayacak! Sorunu çözmek için randevu alın, yeni uygulama 2024 yılı itibarıyla başladı
--  Tramp dobio najveću podršku do sada
--  İşgalci İsrail 5 bin 680 Filistinliyi gözaltına aldı
--  AK Parti İstanbul İl Başkanlığının yerel seçim şarkısı belli oldu
--  Orkun Kökçü yıldızlaştı, Benfica kazandı!
--  Göç İdaresi Başkanlığından "kaçak göçmen" iddiarına ilişkin açıklama
--  SC Fröndenberg-Hohenheide Stadtmeister : Klarer 4:0-Finalerfolg gegen den SV Frömern
--  El vertido de pellets de plástico se extiende a más zonas, entre ellas la ría de Arousa
--  Acusado de estuprar jovem e assassinar taxista há 25 anos, homem vai a júri popular
--  مسؤول لبناني: أمريكا منحت إسرائيل منذ اللحظة الأولى تصريحا بالتدمير والقتل
--  أختم بها يومك.. أطعمة تقضي على الكوليسترول المرتفع وتحميك من تصلب الشرايين
--  الصومال تعلن إلغاء اتفاقية بحرية بين "صوماليلاند" وإثيوبيا
--  إطلاق موقع "التربية العسكرية" بجامعة بنها
--  نص كلمة البابا تواضروس الثاني بمناسبة عيد الميلاد المجيد
--  Jubilarissen bij de vv Heerde gehuldigd
--  Triple control económico al Ademar
--  Yolculuk planları olanlar dikkat! Fırtına engeli geldi: O seferler iptal edildi
--  Favoriti prošli u četvrto kolo FA Kupa
--  모빌리티 혁신 기술의 향연
--  Ascenso diz que Marcelo "é o maior fator de instabilidade" e "fala todo o dia"
--  Perfilan que el peso pierda fuerza en 2024, ¿cuáles son las razones?
--  Holivudski glumac Shia LaBeouf i službeno postao katolik: Želi postati đakon
--  ‘El Juego Perfecto’: La historia detrás de la increíble película que Carlos Bremer produjo
--  ‘Cortan vuelo’ a 2 halcones en Texcaltitlán: presuntamente eran espías de la Familia Michoacana
--  Knownwell secures $2M in pre-seed funding
--  חג'ג' בספק, רפאלוב צפוי לחזור להרכב מכבי חיפה מול הפועל ירושלים
--  חוגי מודה: "היה משחק קשה לצפייה". עידן ורד: "מבין את הקהל"
--  נמרוד לוי קלע 13 נקודות בהפסדה הביתי של סמסונספור
--  כהן והמילטון הובילו את עירוני ר"ג ל-65:76 על הפועל חולון
--  מאזן מקסימלי: מכבי נתניה ניצחה 1:2 את הפועל תל אביב
--  גיא צרפתי: "אוהב כדורגל התקפי, העיר הזאת צמאה למשחקים כאלה"
--  סטרלינג שוב כבש בכדור חופשי, צ'לסי הביסה 0:4 את פרסטון
--  VIDEO: Avión pierde parte del fuselaje en pleno vuelo
--  חשש שאלטמן ייעדר כחודש. איינבינדר: "מצפה לנו עכשיו אתגר גדול"
--  Emmanuel Mas jugará en la Lepra mendocina, uno de los clásicos rivales de su club de origen
--  PLAYER RATINGS: Raheem Sterling produces moment of magic as Chelsea cruise past Preston to book their place in the FA Cup fourth round... while Alfie Gilchrist dazzles on his full debut
--  Podcast .. وسيلة جماهيرية تصنع نجومية الشباب
--  AK Parti'nin yeni seçim şarkısı belli oldu! Azer Bülbül'ün o şarkısı yeniden yorumlandı: Tevfik Göksu da paylaştı
--  Canadian airlines say they’re unaffected by Boeing 737-9 Max jetliner incident
--  İsias Otel sahibi Bozkurt'tan pes dedirten açıklama: Deprem 7.2 şiddetinde olsaydı otel yıkılmayacaktı
--  Jonas Svensson Beşiktaş yolunda
--  We didn’t execute Edu’s request because bulk funds shouldn’t be paid to private accounts – Accountant-general
+-  Pronašli 9 tona kokaina u drvenim građevinskim pločama: Pogledajte koliko bi vrijedio da je stigao u Europu
+-  إيريك داير يقترب من بايرن ميونخ
+-  Mann soll junge Frau getötet und verbrannt haben
+-  Nazirlik: Aygün Bəylər Ankarada vəfat edib - YENİLƏNİB-1
+-  إقالة مدرب راقصي السامبا
+-  رئيس المؤتمر يعزي بوفاة الشاعر احمد الجابري
+-  Bernardo de Irigoyen: Concejales aprobaron la emergencia económica, financiera y administrativa.
+-  Başakşehir'deki feci kazada ölü sayısı 4'de yükseldi
+-  مكة المكرمة أعلى المناطق في مخالفات النقل
+-  El Rayo fulmina al Huesca al final de la prórroga
+-  Ümraniye'de bir kadın boğazından bıçaklandı
+-  Archäologie: Forscher untersuchen riesigen Erdwall an der Grenze zur Mongolei
+-  وفاة زاجالو أسطورة كرة القدم البرازيلية
+-  La probabile formazione del Torino: torna Sanabria con Zapata
+-  Extremism in the U.S. Military
+-  "رؤية رئيس مقاطعة بني مكادة: العمل المشترك نحو تحقيق التنمية وخدمة المجتمع"
+-  البطولة: شباب المحمدية يرتقي إلى المركز التاسع عقب الانتصار على اتحاد طنجة
+-  توقيف أول شبكة متنقلة لتسويق المحروقات خارج القانون.. وزريكم لأخبارنا: هذه الشاحنات تهدد سلامة وأمن المواطنين
+-  النسخة الثالثة من الملتقيات الجهوية حول اللوجستيك بالفنيدق
+-  تاريخ العلاقات المغربية الصينية
+-  الخضراء يواصل تصدر الدوري بعد تحقيقه فوزا هاما أمام مولودية وجدة
+-  "Rekao je da igramo kao što treba za ovaj klub i navijače!" Koprivica: Imamo kvalitet, samo taj mentalni deo...
+-  التساقطات المطرية تنعش آمال الفلاحين في إقليم مكناس
+-  نقابات تستنكر لجوء وزارة التربية الوطنية لمسطرة توقيف الأساتذة المضربين
+-  وزارة الأوقاف تعفي السكنفل من منصه بسبب "فواتير بمئات الملايين"
+-  Buitenspel: Lang rekent via Instagram af met PSV-uitspraken Wieffer
+-  İsias Otel Davası'nda tutuklu sanıkların tutukluluğunun devamına karar verildi
+-  Hulu Schedule January 8-14 2024: New TV Shows & Movies Being Added
+-  ABD Dışişleri Bakanı Blinken, Orta Doğu'daki çatışmanın yayılmasını önlemek istiyor
+-  Paramount Plus Schedule January 8-14 2024: New TV Shows & Movies Being Added
+-  Спасиха 70-годишна туристка в Пирин
+-  וולוו חוגגת הישג: זו הסיבה לעליית המכירות של יצרנית המכוניות
+-  Debate on Marriage Compromise Spurred by Man’s Revealing Sacrificial Act
+-  Nederlandse sensatie nu al aanvoerder bij Bologna: 'Hij is een groot leider'
+-  Harare workers ordered to cut short their leave
+-  Borrell: Nujno je treba preprečiti eskalacijo konflikta na Bližnjem vzhodu
+-  UP: Identifikovane tri osobe osumnjičene za napad na državljane...
+-  Der Wechselkurs von Euro zu Franken auf Rekordtief – SÜDKURIER Online
+-  Famine in Gaza ‘around the corner,’ as people face ‘highest levels of food insecurity ever recorded,’ UN relief chief says
+-  الأخضر يستأنف تحضيراته... وحاجي وحامد يلتحقان بالمعسكر
+-  Piękne słowa Jakuba Błaszczykowskiego. Wzruszająca dedykacja dla zmarłej mamy (WIDEO)
+-  Peacock Schedule January 8-14 2024: New TV Shows & Movies Being Added
+-  HBO Max Schedule January 8-14 2024: New TV Shows & Movies Being Added
+-  Американский авианосец покинул Средиземное море
+-  ميندي يتخلص من أخطاء الماضي ويذود عن عرين الأهلي ببسالة
+-  My worst nightmare happened and I had a wardrobe malfunction on a night out – I had to think fast to avoid flashing
+-  Chicken Caesar becomes second celebrity unveiled on The Masked Singer
+-  الاحتلال يعلن مقتل ضابط كبير في معارك شمال غزة
+-  ময়মনসিংহের মুক্তাগাছায় বিদ্যালয়ে আগুন
+-  ফেনীতে আগুনে পুড়ল আওয়ামী লীগ কার্যালয়, ককটেল বিস্ফোরণ
