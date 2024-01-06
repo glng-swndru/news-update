@@ -1,51 +1,51 @@
 # Latest News
--  Több mint 26 ezer magyar beteg neve szerepel a kórházi várólistákon, van olyan műtét, amelyre csaknem másfél évet kell várni
--  توضيح هام صادر عن الجامعة الأردنية
--  بلدية معان تنفذ مشاريع خدمية وتنموية
--  Dan mantenimiento a la Tecnológico en ambos sentidos
--  Entregan en Pachuca más de 1,500 juguetes a niñas y niños
--  Egipat planira da milijardama udvostruči glavni grad Kairo
--  Preminuo frontmen benda Alisa Miroslav Živanović – Pile
--  Киев: Русија користи проектили произведени во Северна Кореја
--  Incidente lungo la Tangenziale di Catania, coinvolti quattro veicoli
--  انقسام «سوشيالي» حول دعوات «مقاطعة محلات السوريين» في مصر
--  Requisitos para acceder a las Becas Progresar 2024
--  Excise Policy case: AAP Rajya Sabha MP Sanjay Singh moves Delhi High Court seeking bail in money laundering case
--  China hands over 160 electric buses to Pakistan
--  Der Glöcklerlauf 2024 ein Traumtag für die TRAUNSTOANA Glöcklerpass!
--  قصف عنيف جنوب لبنان
--  Jhon Arias, en la mira de clubes europeos
--  توقيت مباراة ريال مدريد و أراندينا من عواصم العالم
--  Crest. La couve, la défarde et le picodon à l’honneur dans les rues crestoises
--  Z lecącego samolotu Alaska Airlines wypadło okno . Linia uziemiła swoje Boeingi 737 Max 9 [VIDEO]
--  Ardèche. Pêche : des infractions en hausse de 142 % en 2023
--  Situaciją „7bet-Lietkabelyje“ nušvietęs Maldūnas: „Šis sezonas kaip užburtas ratas“
--  The Kalen DeBoer hire: Could Jen Cohen’s brilliant move resonate across the industry and create opportunities for women?
--  SQU to hold forum for GCC female students on Sunday
--  Ataques en el mar Rojo suben hasta 100% el coste del transporte entre Asia y Marruecos
--  FAA ordena mantener en tierra de forma temporal algunos aviones Boeing 737 MAX 9 tras un reventón
--  Horse racing tips: Templegate’s 11-2 NAP can win the big one on a good card at Plumpton
--  Dżentelmen od „Opowieści wigilijnej”. Czego możesz nie wiedzieć o Karolu Dickensie?
--  Masif Dukung Prabowo-Gibran, Relawan Pasang Spanduk-Door to Door ke Warga
--  LIVE | In rappelvoller Arena: Bozen trifft auf Pustertal
--  Μέσι: Η Παρί ερευνάται για στήσιμο της 7ης Χρυσής Μπάλας του Αργεντινού!
--  ¡Llegaron los Reyes!: Norwill Fragoso regala tres becas para su academia
--  Montricher-Albanne. La RD 81A restera fermée pendant cinq semaines
--  "Академик" (Пд) спечели първия си мач за годината
--  All Star Charity Game#2 για τους Μικρούς Ήρωες! Όλα έτοιμα για την αυριανή μεγάλη γιορτή
--  Πέθανε ανήμερα των Θεοφανείων η ιστορική εκδότρια της εφημερίδας «Πελοπόννησος» Νανά Δούκα
--  India’s defence minister Rajnath Singh to visit UK
--  VIDEO. Football : Andy Delort s'effondre et convulse en plein match
--  UK Cinema Box Office Declines by 25% During Pandemic, Despite Barbenheimer Success
--  Protest w Medyce zawieszony. Jest porozumienie z rolnikami
--  Veliki broj vjernika prisustvovao paljenju Badnjaka u dvorištu Stare pravoslavne crkve u Sarajevu
--  Najave događaja za 07.01. 2024. godine (nedjelja)
--  Pápež varoval pred rozkolmi v cirkvi a vyzval ľudí, aby opustili cirkevné ideológie. Boha majú hľadať v každodennom živote
--  FC Kemin maalivahdit torjuivat nollapelin – Rennan Cabral palasi joukkueen vahvuuteen
--  India W vs Australia W Live Streaming, Second T20I: When and Where to watch IND W vs AUS W live telecast?
--  Cum putem combate gândurile negative. Top 5 modalități pe care le poți pune și tu în practică
--  Conferenza stampa Caruso pre Supercoppa: «Vogliamo portarla a casa, la sconfitta dell’anno scorso fa ancora male»
--  Mirisne svijeće povećavaju rizik od raznih zdravstvenih problema
--  فيديو ينشره "حزب الله".. شاهدوا كيف قصف قاعدة "ميرون" الإسرائيليّة
--  Polisi Tangkap Pemasok Batubara Nyambi Jualan Sabu di Serang
--  Kërcënime dhe fjalë fyese…/ Gjendet videoja në celularin e Xhemal Lokës! Nëna e 4 fëmijëve e vetëvrarë, dhunohej nga bashkëshorti
+-  HPK:n Maso Lehtonen ei voinut muuta kuin ihailla huimaa esitystä: ”Illan tähti”
+-  Onnistuu se näinkin - mäkiviikon voitto kakkossijoilla
+-  1839 سجلا
+-  Ukrainiečių mirties spąstai užsidaro! Rusų technika dega šimtais
+-  Tikra beprotybė! „Ukraina pripažino Putino taikius ketinimus“
+-  [ŽT] Įspūdinga. Štai kaip veikia oro gynybos sistema „Avenger“! (Video)
+-  A woman in her 90s is rescued alive 5 days after Japan's deadly earthquake
+-  Manisa’da trafik kazası. 2 ölü 1 yaralı
+-  Wojna karteli narkotykowych
+-  Handball: EM-Generalprobe geglückt: Handballer gewinnen gegen Portugal
+-  مستوى قياسي
+-  تجارة الزرقاء تناقش المشاكل التي تواجه القطاعات التجارية
+-  الجيش الأميركي يعلن إسقاط مسيّرة في البحر الأحمر
+-  الارصاد توضح حول فرص تساقط الثلوج
+-  الحياري: توجيهات بزيادة طلعات الإسناد الجوي على الحدود لضبط عمليات التسلل والتهريب
+-  الأونروا: 90 % من سكان غزة تعرضوا للنزوح القسري
+-  W nocy śnieg, gołoledź i mróz nawet do -15 st. C
+-  Oscar Pistorius parole: 5 things to know about Reeva Steenkamp
+-  Winning Lotto numbers tonight: National Lottery results with Thunderball on Saturday, January 6
+-  La plantilla cordobesista carga pilas tras la última derrota
+-  A Capitolium elleni ostrom újabb résztvevőire csapott le az FBI
+-  Ordinance proposal to require county documents receives not allowed on agenda
+-  Kiatisuk về CAHN, chất HAGL sẽ ra sao?
+-  PSD "tranquilo" com a gestão da TAP, mas critica ausência de contraditório na auditoria do TdC
+-  Gestul ”fatal” al milionarului ajuns falit ”peste noapte”! Partenera lui n-a stat pe gânduri
+-  Peugeot convierte al 2008 en un modelo más vendido que el Toyota C-HR
+-  Caesars Sportsbook Promo Code NEWSWK1000: How to Secure $1,000 NFL Bet
+-  Mardin’de defalarca takla atan otomobildeki 4 kişi yaralandı
+-  ఎస్మా ప్రయోగంపై అంగన్‌వాడీల ఆగ్రహం
+-  గంజాయి తరలిస్తున్న ఇద్దరి అరెస్టు
+-  Menace of Social Media Influencers: Avoiding the Trap of Deception
+-  القبض على شخصين قاما بالسطو في بنغازي
+-  Гонорары Кати Лель взлетели в несколько раз благодаря песне 20-летней давности
+-  Έκτακτες κυκλοφοριακές ρυθμίσεις στην εθνική οδό Πατρών – Αθηνών λόγω της επερχόμενης κακοκαιρίας
+-  София, Габрово и Кюстендил са областите с най-висока заболеваемост от респираторни вируси
+-  Simán kikapott Brestben a Debrecen
+-  Proche-Orient : la France met en garde l’Iran contre ses « actions déstabilisatrices » avec « ses affidés »
+-  עם צאת השבת הותר לפרסום: סא"ל רועי יוחאי יוסף מרדכי, בן 31 מתל אביב, נהרג בקרב בצפון רצועת עזה
+-  Rusya'dan Ukrayna'ya füze saldırı: Çok sayıda ölü var
+-  Gaza, Saudi, Iran, Venezuela and more: Some of the most significant geopolitical events of 2023
+-  Woman in her 90s rescued five days after deadly Japanese quake
+-  (SATIRA – EKSKLUZIVNO) Veleposlaništvo Nemčije protestira zaradi Dražgoš!
+-  Hezbollah fires rockets at Israel in response to killing of Hamas leader
+-  ‘రెండు నెలల్లో మా ప్రభుత్వం పోతాదంటావా..?’
+-  ביקורת חריפה במשטרה על הארכת כהונת המפכ"ל: "יישור קו עם האינטרסים שלו"
+-  الأقباط يستقبلون الرئيس السيسي بـ"الزغاريد" في كاتدرائية ميلاد المسيح
+-  حنبعل المجبري يقترب من الانتقال للدوري الإسباني على سبيل الإعارة
+-  السيسي: ما تشهده غزة يؤثر علينا جميعًا.. ونتمنى انتهاء الأزمة قريبًا
+-  أخبار سارة للجماهير.. الزمالك يكشف موعد فتح القيد وإعلان المدرب الجديد
+-  قطع التيار الكهربائي عن 14 منطقة بطور سيناء غدًا
