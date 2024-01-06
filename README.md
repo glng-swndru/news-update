@@ -1,51 +1,51 @@
 # Latest News
--  Syömishäiriö vei Karla Könöseltä, 20, nuoruusvuodet, mutta nyt hän on palannut intohimonsa pariin
--  Aditya L1: நான்கு மாத பயணம்.. இன்று லெக்ராஞ்சியன் புள்ளியில் நிலைநிறுத்தப்படும் ஆதித்யா எல்.1 விண்கலம்..
--  Wohnungsbau-Krise wird sich 2024 wohl verschärfen – das sind die Ursachen
--  Tanzanit Taşı Nedir, Ne İşe Yarar? Tanzanit Taşının Özellikleri Nelerdir?
--  Druk op Scholz neemt toe voor levering kruisraketten aan Oekraïne
--  Dodental aardbeving Japan boven de 100
--  La Asamblea Nacional de Venezuela ratifica a Jorge Rodríguez como presidente del Congreso
--  Horoscope Today : ਜਾਣੋ ਅੱਜ ਦਾ ਰਾਸ਼ੀਫਲ
--  Hochwasser und Kälte - Welche Folgen hat der Frost nun?
--  U KCCG više posla nego ljekara, Vlada najavila gradnju gradske bolnice
--  Beranski lučonoša osvojio akademske visine u Njemačkoj
--  Danas je Badnji dan
--  Μαρίνα Βουλιαγμένης: Μετά τη Louis Vuitton, τη Gucci, τη Dior και οι Rolex, Zegna δημιουργούν σημεία πώλησης
--  عاجل.. توقعات الطقس: أمطار رعدية وضباب على 8 مناطق.. وإنذار أحمر على مكة المكرمة
--  تطايرت كأنها لعبة.. هذا ما فعله مطب صناعي بعدد من المركبات في جازان (فيديو متداول)
--  Health: આ ફળોને ખાવાની સાથે તેની છાલનો સ્કિન પર આ રીતે કરો ઉપયોગ, લાજવાબ મળશે ઇન્સ્ટન્ટ રિઝલ્ટ
--  WARBIXIN: Rice, Palmer, Szoboszlai & 10-ka Saxiix Ee Ugu Fiicnaa Ee Premier League Oo La Soo Saaray
--  متحور "JN.1" يمثل 62٪ من إصابات كورونا بأمريكا.. هل يعد أكثر خطورة؟
--  أمطار رعدية وضباب.. طقس المملكة اليوم
--  ارتفاع عدد ضحايا زلزال اليابان إلى 100 شخص
--  Indonesia AirAsia Buka Rute Bali - Bandar Lampung, Terbang Perdana 17 Januari 2024
--  H+1 Tabrakan Kereta di Cicalengka, 4 Kereta Api Menuju Wilayah Madiun Terlambat Sejam
--  «Бессовестно попирал традиционные ценности». ФСБ арестовала математика, изучающего прогрессию. (Пендуза)
--  Prabowo Hadiri Rapat Konsolidasi Partai Golkar, Ikut Masak Nasi Goreng
--  NHL: Nächste Niederlage für Reichel und Chicago
--  SSK ve Bağkur emeklilerine ilave artış yapılacak mı? İşte masadaki 3 ek zam seçeneği
--  Hochwasser und Kälte - Welche Folgen hat der Frost nun?
--  إسرائيليون يطالبون بالتحقيق في مقتل أبنائهم بنيران “الجيش” في 7 أكتوبر
--  Odisha BJP : 21 सीटें, हर सीट पर अलग अलग केंद्रीय नेता संभालेंगे मोर्चा ... मिशन ओडिशा के लिए बीजेपी ने बनाई ये खास रणनीति
--  2024 Big Budget Movies : அதிரப்போகும் பாக்ஸ் ஆஃபிஸ்... இந்த ஆண்டு வெளியாகும் பெரிய பட்ஜெட் திரைப்படங்கள்...
--  Flera trafikolyckor i kyliga vädret
--  Odgovor na astrološko pitanje za datum 18.10.
--  DYP müraciət ünvanladı - Yollarda sıxlıq və hərəkətin intensivliyi artacaq
--  Jumlah Wisman ke Batam Terus Meningkat, Paling Banyak Turis Singapura
--  C'est le moment d'essayer Apple Music : 3 mois d'abonnement sont offerts
--  Guillermo Martínez tras su llegada a Pumas: 'Sé la responsabilidad de defender este escudo'
--  Мъжкото хоро в Калофер нагази във водите на Тунджа
--  민주 "'이재명 테러 사건' 공범 여부 엄정 수사해야"
--  Nigerians React As Video Of Police Questioning Suspects Running Gistlover Blog Emerges
--  Nasa will neuen Überschalljet „X-59“ vorstellen
--  Tüketiciyi mağdur edenler cezadan kaçamadı! Ticaret Bakanlığı 58 firmaya 86 milyon liralık ceza kesti
--  مسؤولون إسرائيليون يتوقعون حربا محدودة مع حزب الله
--  Wolff adelt DHB-Torwart Späth: Irgendwann einer der Besten
--  Uddhav Thackeray : 22 जानेवारीला नाशकातील काळाराम मंदिरात जाऊन रामाचे दर्शन घेणार : उद्धव ठाकरे
--  Un nou studiu dezvăluie beneficiile uimitoare ale servirii micului dejun la o oră cât mai matinală
--  "Il y a un combat entre ma sœur, mon frère et moi": Anthony Delon témoigne du déchirement de la famille Delon
--  대만 총통 선거 D-7…'미중 대리전' 고조
--  ‘Manusia paling jahat pernah saya jumpa’
--  Abgeordneter Andy Kim: Republikaner, die Trump nach dem 6. Januar umarmen, sind „Feiglinge“ – MSNBC
--  日노토강진 사망자 100명 육박…"재산피해 7.5조원"
+-  [60계치킨 ‘닭똥집 이물질’ 논란 사과…“판매 중단”
+-  [與 “쌍특검 거부권 권한쟁의 청구, 악의적 총선 전략”
+-  [‘볼 때마다 반감’ 지역민 불법 현수막 불편 호소
+-  กล้าล้วงคองูเห่าบุกลักทรัพย์ที่ว่าการอำเภอบ้านนาจับตัวได้ค้นพบยาบ้า20เม็ด
+-  Pentagon keeps Austin's hospitalization under wraps for days
+-  20 student activists nabbed after attempting to enter presidential office
+-  용산 대통령실 진입 시도한 대학생 20명 체포…'김건희 특검' 요구
+-  Budha Venkanna: టీడీపీలో పదవులతో పాటు గుర్తింపు ఉంటుంది
+-  ‘Veysel Abi' vurgununa 479 yıl hapis
+-  Gözler Kenan Yıldız'ın üstünde! Astronomik teklif bekleniyor
+-  İsrail ajanlarının sorgusu tamamlandı! Casuslar Dahlan'ın adamı çıktı
+-  Galatasaray evinde Konyaspor ile karşılaşacak
+-  Union Road Ministry Plans Ambitious Expansion Of High-Speed Corridors
+-  Titan Achieves 22% YoY Revenue Growth, Adds 90 Stores
+-  Sebi Regulates Short-selling Trades, Prohibits Naked Short Selling
+-  Gunmen kill 3 sons of former local police commander
+-  Plusz egy év ovi: hány napon belül bírálják el a kérelmet?
+-  Befogadta a legfelsőbb bíróság Donald Trump fellebbezését a az elnökválasztásból való kizárása ügyében
+-  Lelőtték az ámokfutót, aki bozótvágóval támadt rendőrre Ausztriában
+-  KTR calls cancellation of E-Prix a ‘regressive decision’ by Telangana Govt
+-  Fenerbahçe'de Becao'nun ardından Zajc da dönüyor
+-  Ăștia ne-au furat șervețelele de masă
+-  Cooking Oil and Ghee Prices Reduced by Rs. 10 in Pakistan
+-  Crues et inondations dans le nord-est du pays
+-  Porro Stunner Sees Spurs Go Past Burnley Into FA Cup 4th Round
+-  Do you think 2024will be better for kenyans than 2023?
+-  Qeyri-sabit hava bu tarixədək
+-  Police may have lied, as Gov Sani confirms bandits’ attack on Kaduna communities
+-  İnsanlar zehirlenmesin diye işçiler günlerce mesai yapıyor
+-  Depremin merkezi Kahramanmaraş 11 ay sonra havadan görüntülendi
+-  AUZEF bitirme (final) sınavları saat kaçta başlayacak, kaç dakika sürecek?
+-  Zeventig Nederlandse bedrijven op techbeurs CES in Las Vegas
+-  İsrail, Gazze konusunda ABD'yi yatıştırmaya çalışıyor
+-  Kerala Government ignoring medicine shortage in govt. hospitals, alleges Opposition Leader V.D. Satheesan
+-  Over 150 eye injuries during New Year's; Ophthalmologists want fireworks ban
+-  Harnessing the potential of social media in hospitality education
+-  Insecurity: It Is No Longer Time To Play Politics, Let’s Give Tinubu A Chance – Bode George
+-  ABD'de 6 Ocak Kongre Baskını Tartışmaları Başkanlık Seçimlerini Etkiliyor
+-  "이준석이 '젊은 정치' 위한 해법? 문제는 결국…"
+-  '패스트 라이브즈' 유태오, 美 뉴욕타임스 선택 받았다
+-  용산 대통령실에 대진연 회원 20명 진입시도…경찰, 체포·연행
+-  “പ്രശാന്ത് നീലിനു കറുപ്പിനോടുള്ള അഭിനിവേശം OCD ആയിരുന്നു എങ്കിൽ കറുപ്പിനെ കുറിച്ചുള്ള അസഹ്യമായ ചിന്തകൾ മാറ്റാൻ വെളുപ്പ് നിറങ്ങൾ ഉള്ള ഒരിടത്തേക്ക് ഓടി ഒളിച്ചേനെ” , ഫേസ്ബുക് കുറിപ്പ്
+-  Soccerladuma | Mourinho Responds To Brazil Links After Ancelotti Snub
+-  US Olympian Richard Thornton dead at 65 after collapsing on beach in California
+-  «Brich aus dem Hamsterrad aus»: Dieser junge Mann schart Teenager um sich, die vom Luxus träumen ­– und macht auf ihre Kosten ein Vermögen
+-  US-Institut hält russischen Angriff auf Kupjansk für möglich: Doch Experte gibt Entwarnung für Charkiw
+-  US-Institut hält russischen Angriff auf Kupjansk für möglich: Doch Experte gibt Entwarnung für Charkiw
+-  Paul Michael Glaser pays tribute to Starsky & Hutch co-star David Soul following his death at 80: 'He was a brother, a friend, a caring man'
+-  Importance of emotional intelligence in higher education
+-  Rajasthan: 72 IAS and 121 RAS officers transferred in Bhajanlal's first major administrative reshuffle. Details here
