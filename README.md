@@ -1,11 +1,11 @@
 # Latest News
--  Están en ‘libertad’ 2 mil 98 reos
--  Galería: Incendio en taller causa daños en al menos 4 vehículos
--  تحضيرات استثنائية للبطولة القارية
--  «الدولي الإسلامي» يطلق باقة «وورلد»
--  في عيد ميلادها الـ75.. تعرّفوا إلى ابنة شقيقة نيللي في أحدث ظهور لها… نُسخة من خالتها!
--  Šebalj odvozio prvu etapu Reli Dakara u Saudijskoj Arabiji
--  Donald Trump: "J'ai été mis en examen plus de fois qu'Al Capone"
--  Agente hormonal podría reducir la tasa de cáncer de próstata
--  సమ్మె ఆపేది లేదు: సుబ్బరావమ్మ
--  నీట్‌-పీజీ పరీక్షలు జూలై మొదటి వారంలో
+-  171 Boeing 737 Max 9-est parancsoltak a földre az amerikaiak, miután repülés közben betört az egyik járat az odala
+-  Bóka János elmondta a finneknek, hogy a párbeszéd a svéd NATO-csatlakozás kulcsa
+-  ‘Shark Tank’ Star Mark Cuban Will Give Millions In Bonuses To His Dallas Mavericks Employees
+-  بالصور.. قداس عيد الميلاد المجيد بالكاتدرائية المرقسية بالإسكندرية
+-  "صفاه والكهربا مقطوعه".. ضبط قاتل نجل عمله في "أسمنت" قنا
+-  Suspeito de ameaçar de morte e disparar contra casa de ex-mulher
+-  Cidades de MS aparecem na lista das mais quentes do Brasil neste sábado
+-  Vallefoglia fa valere il fattore campo con Bergamo
+-  EMILY PRESCOTT: Simon Cowell moves into his multi-million pound London pad with partner Lauren Silverman after Harrods kitted out the place
+-  어설픈 ‘소주값 인하’ 정책에 소비자만 ‘울상’
