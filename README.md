@@ -1,11 +1,51 @@
 # Latest News
--  Fatih Terim ilk bombayı patlattı! Galatasaray'ın eski yıldızı Panathinaikos'a imzayı atıyor...46 yıl sonra ilk kez!
--  TSC Kamen ist neuer Kamener Stadtmeister: Finalsieg gegen den Landesligisten SuS Kaiserau
--  Burun Akıntısına Ne İyi Gelir: Doğal Çözümler ve Öneriler
--  Jodie Foster says working with Gen Z can be ‘really annoying’ even as she tries to mentor them
--  İsrail polisi savaş karşıtı Yahudilerin gösterilerine müdahale etti
--  Artvin-Ardahan karayolunda heyelan
--  AFCON 2023: Super Eagles to play friendlies behind closed doors
--  Anthony Joshua tendrá otro reto para volver a la cima de los pesados
--  Malatya’da 3,1 büyüklüğünde deprem
--  Биковски, пилот на “боинг”: Упадот во контрола на летање е терористички акт
+-  Καταιγίδες «μαστιγώνουν» πολλές περιοχές της χώρας - Το «διάλειμμα» από τις... «Αλκυονίδες διαρκείας» και η πτώση της θερμοκρασίας
+-  '혁신교육의 롤모델' 인공지능사관학교 5기 교육생 모집
+-  Skydance Plans “Ranger’s Apprentice” Film
+-  Estas son las noticias más leídas este sábado en El Progreso
+-  مدرب يوفنتوس : أولوية الفريق اللعب في دوري أبطال أوروبا الموسم المقبل
+-  🎥​ | Man springt NAAKT in aquarium van hengelsportzaak
+-  محافظ الغربية يشهد قداس عيد الميلاد بكنيسة ماري جرجس في طنطا
+-  "כל האחראים למחדל היו צריכים לעוף ב-8 באוקטובר. זו המשמעות של אחריות"
+-  אחרי דרמת ענק בתוספת זמן מהסרטים: 1:2 לאינטר על ורונה
+-  "Videćemo..." Pantera pitali o Zvezdi, a kapiten Partizana imao misteriozan odgovor
+-  Šaranović: Uprava policije pokazala visok nivo profesionalizma i efikasnosti u rasvjetljavanju incidenta
+-  Brazil otpustio selektora zbog loših rezultata
+-  صحة دمياط تنظم يوما صحيا تثقيفيا لدعم اللاجئين بالتعاون مع هيئة كاريتاس مصر
+-  DP: Plenkoviću, do kada ćete tolerirati i poticati protuzakoniti ulazak ‘migranata’ u Hrvatsku?
+-  Pizarro defende que críticas da direita ao SNS visam abatê-lo
+-  0-2. El Rayo fulmina al Huesca al final de la prórroga
+-  1-0. Benavídez mete al Alavés en octavos de final de Copa
+-  Las Palmas-Juniors por el Regional: clima de clásico y partido demorado unos minutos por incidentes
+-  Niente Juve per Werner: ecco la sua nuova squadra
+-  Pellegrini: No hemos tenido ni espíritu ni exigencia
+-  Biden pronunciará el discurso del Estado de la Unión el 7 de marzo
+-  Kylian Mbappé over de keerzijde van de roem: ‘Ik ben mijn spontaniteit verloren’
+-  Håndboldherrerne er kåret til Årets Sportsnavn i 2023
+-  Håndboldherrerne er kåret til Årets Sportsnavn i 2023
+-  MN - Milan, no alla prima proposta del Fenerbahçe per Krunic: la posizione rossonera
+-  شباب النواب: الرئيس ركز على الاهتمام بالقيم الإنسانية والقدوة التي تقدمها الرياضة للمواطنين
+-  Bucurii simple. Prăjitura cu ciocolată și vanilie - Desertul cu gust de copilărie
+-  Sassuolo derrotó a Fiorentina en fútbol italiano
+-  Asesinan a hombre en el Valle de Juárez
+-  ولي العهد يستقبل وفدًا من أعضاء لجنة الاستخبارات في مجلس الشيوخ الأمريكي بالمخيم الشتوي في العلا
+-  Süß! Das schenkten Christine Browns Töchter ihr zur Hochzeit
+-  Il Sassuolo fa il colpo: Fiorentina ko, il Milan può allungare
+-  АПОЕЛ на Георги Костадинов дръпна с 5 т. в Кипър след пряк дуел за първото място
+-  جيرونا وخيتافي وأتلتيكو إلى دور الـ16
+-  Resultado da Quina 6334 de hoje, sábado – 06/01/24
+-  Una docena de cárceles de inmigración en EEUU tienen más de mil detenidos cada una de ellas
+-  Tajemnice Krzemieńca na Wołyniu
+-  Response Connor Bedard hit shows NHL has other, physical ways to generate excitement
+-  Wevza: l'Under 20 travolgono l'Olanda e vanno in finale
+-  Cameroun :: Nécrologie : Le Pr Joseph Owona, L’ancien Ministre Et Membre Du Conseil Constitutionnel Est Mort :: Cameroon
+-  Aeronave se estrelló e incendió en Paraguay, pero su piloto sobrevivió para contarlo
+-  L'attivazione di ChatGPT come Ehi Google: la novità con Android 15
+-  Sports Betting in Africa: A Thrilling Entertainment and Promising Career Path
+-  Cruz Azul golea a Querétaro en su último partido de preparación
+-  Pranzo Leggero, aprenda a fazer um delicioso almoço leve e muito nutritivo!
+-  Jaume Clotet guanya el premi Josep Pla 2024
+-  إغلاق حقلين نفطيين وسط احتجاجات في أوباري بليبيا
+-  اعرف تخصصات وظائف وزارة الطاقة بالسعودية لعام 1445
+-  رد فعل سكان بريتوريا على أنباء إطلاق سراح أوسكار بيستوريوس من السجن بجنوب أفريقيا
+-  الهند: نشر سفينة لعمليات الأمن البحري بعد تهديدات ضد سفينة ليبيريا
