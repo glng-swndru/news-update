@@ -1,51 +1,11 @@
 # Latest News
--  Pronašli 9 tona kokaina u drvenim građevinskim pločama: Pogledajte koliko bi vrijedio da je stigao u Europu
--  إيريك داير يقترب من بايرن ميونخ
--  Mann soll junge Frau getötet und verbrannt haben
--  Nazirlik: Aygün Bəylər Ankarada vəfat edib - YENİLƏNİB-1
--  إقالة مدرب راقصي السامبا
--  رئيس المؤتمر يعزي بوفاة الشاعر احمد الجابري
--  Bernardo de Irigoyen: Concejales aprobaron la emergencia económica, financiera y administrativa.
--  Başakşehir'deki feci kazada ölü sayısı 4'de yükseldi
--  مكة المكرمة أعلى المناطق في مخالفات النقل
--  El Rayo fulmina al Huesca al final de la prórroga
--  Ümraniye'de bir kadın boğazından bıçaklandı
--  Archäologie: Forscher untersuchen riesigen Erdwall an der Grenze zur Mongolei
--  وفاة زاجالو أسطورة كرة القدم البرازيلية
--  La probabile formazione del Torino: torna Sanabria con Zapata
--  Extremism in the U.S. Military
--  "رؤية رئيس مقاطعة بني مكادة: العمل المشترك نحو تحقيق التنمية وخدمة المجتمع"
--  البطولة: شباب المحمدية يرتقي إلى المركز التاسع عقب الانتصار على اتحاد طنجة
--  توقيف أول شبكة متنقلة لتسويق المحروقات خارج القانون.. وزريكم لأخبارنا: هذه الشاحنات تهدد سلامة وأمن المواطنين
--  النسخة الثالثة من الملتقيات الجهوية حول اللوجستيك بالفنيدق
--  تاريخ العلاقات المغربية الصينية
--  الخضراء يواصل تصدر الدوري بعد تحقيقه فوزا هاما أمام مولودية وجدة
--  "Rekao je da igramo kao što treba za ovaj klub i navijače!" Koprivica: Imamo kvalitet, samo taj mentalni deo...
--  التساقطات المطرية تنعش آمال الفلاحين في إقليم مكناس
--  نقابات تستنكر لجوء وزارة التربية الوطنية لمسطرة توقيف الأساتذة المضربين
--  وزارة الأوقاف تعفي السكنفل من منصه بسبب "فواتير بمئات الملايين"
--  Buitenspel: Lang rekent via Instagram af met PSV-uitspraken Wieffer
--  İsias Otel Davası'nda tutuklu sanıkların tutukluluğunun devamına karar verildi
--  Hulu Schedule January 8-14 2024: New TV Shows & Movies Being Added
--  ABD Dışişleri Bakanı Blinken, Orta Doğu'daki çatışmanın yayılmasını önlemek istiyor
--  Paramount Plus Schedule January 8-14 2024: New TV Shows & Movies Being Added
--  Спасиха 70-годишна туристка в Пирин
--  וולוו חוגגת הישג: זו הסיבה לעליית המכירות של יצרנית המכוניות
--  Debate on Marriage Compromise Spurred by Man’s Revealing Sacrificial Act
--  Nederlandse sensatie nu al aanvoerder bij Bologna: 'Hij is een groot leider'
--  Harare workers ordered to cut short their leave
--  Borrell: Nujno je treba preprečiti eskalacijo konflikta na Bližnjem vzhodu
--  UP: Identifikovane tri osobe osumnjičene za napad na državljane...
--  Der Wechselkurs von Euro zu Franken auf Rekordtief – SÜDKURIER Online
--  Famine in Gaza ‘around the corner,’ as people face ‘highest levels of food insecurity ever recorded,’ UN relief chief says
--  الأخضر يستأنف تحضيراته... وحاجي وحامد يلتحقان بالمعسكر
--  Piękne słowa Jakuba Błaszczykowskiego. Wzruszająca dedykacja dla zmarłej mamy (WIDEO)
--  Peacock Schedule January 8-14 2024: New TV Shows & Movies Being Added
--  HBO Max Schedule January 8-14 2024: New TV Shows & Movies Being Added
--  Американский авианосец покинул Средиземное море
--  ميندي يتخلص من أخطاء الماضي ويذود عن عرين الأهلي ببسالة
--  My worst nightmare happened and I had a wardrobe malfunction on a night out – I had to think fast to avoid flashing
--  Chicken Caesar becomes second celebrity unveiled on The Masked Singer
--  الاحتلال يعلن مقتل ضابط كبير في معارك شمال غزة
--  ময়মনসিংহের মুক্তাগাছায় বিদ্যালয়ে আগুন
--  ফেনীতে আগুনে পুড়ল আওয়ামী লীগ কার্যালয়, ককটেল বিস্ফোরণ
+-  Fatih Terim ilk bombayı patlattı! Galatasaray'ın eski yıldızı Panathinaikos'a imzayı atıyor...46 yıl sonra ilk kez!
+-  TSC Kamen ist neuer Kamener Stadtmeister: Finalsieg gegen den Landesligisten SuS Kaiserau
+-  Burun Akıntısına Ne İyi Gelir: Doğal Çözümler ve Öneriler
+-  Jodie Foster says working with Gen Z can be ‘really annoying’ even as she tries to mentor them
+-  İsrail polisi savaş karşıtı Yahudilerin gösterilerine müdahale etti
+-  Artvin-Ardahan karayolunda heyelan
+-  AFCON 2023: Super Eagles to play friendlies behind closed doors
+-  Anthony Joshua tendrá otro reto para volver a la cima de los pesados
+-  Malatya’da 3,1 büyüklüğünde deprem
+-  Биковски, пилот на “боинг”: Упадот во контрола на летање е терористички акт
