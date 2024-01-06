@@ -1,51 +1,51 @@
 # Latest News
--  Adana Demirspor'da bir ayrılık daha!
--  Hull City, turu zora soktu!
--  히샬리송 못믿는다... 토트넘, ‘한때 레반도프스키 다음가는 공격수’ 임대 영입 임박→“거래 거의 완료 상태”
--  Ujeli servalko, ki je tavala po Gorskem Kotarju in napadla domačo mačko
--  Aygün Bəylərin ölüm xəbəri ilə bağlı NAZİRLİKDƏN AÇIQLAMA
--  Borrell upozorio: Liban bi mogao biti uvučen u regionalni sukob
--  Već dugo nismo imali manje umrlih umirovljenika: Na drugi svijet su otišli iz siromaštva
--  Bakan Uraloğlu kritik soruyu tvnet ekranlarında cevapladı: Muhtemel depremde İstanbul'dan kaçış nasıl olacak?
--  Bakan Özhaseki depremzedelerin isteğini geri çevirmedi: Kardeşlerimizin her zaman yanında olacağız
--  Yusuf Yazıcı yıldızlaştı: Lille farka koştu
--  Skispringer Kobayashi gewinnt Vierschanzentournee
--  Haukar - Fram, staðan er 10:10
--  Kobayashi zum Dritten! Wellinger verpasst Tournee-Sieg
--  ÖSV-Adler bärenstark - Kraft holt Bischofshofen-Sieg, Kobayashi Tournee
--  Nikolaj Jacobsen om dansk EM-form: Vi er et mellemsted
--  Nikolaj Jacobsen om dansk EM-form: Vi er et mellemsted
--  من الأقرب لتدريب البرازيل بعد إقالة فرناندو دينيز؟
--  Austurríki - Ísland, staðan er 5:9
--  Moradora se assusta ao encontrar jaguatirica em pé de mamão no quintal de casa
--  ΒΙΝΤΕΟ BALLA: ΑΠΟΕΛΙΣΤΙΚΟ ΠΑΡΤΙ στο ΓΣΠ!
--  Inédito: tiene 27 años y es nuevo DT de un club del Ascenso del fútbol argentino
--  ΠΑΘΙΑΣΜΕΝΟΙ…
--  Maxaa Maanta Ka Dhacay Garoonka Tababarka Liverpool Ee Ay Ciyaartoydu Ugu Diyaar-garoobayaan Kulanka Arsenal?
--  ولي العهد يهنئ الشيخ محمد صباح السالم الصباح بمناسبة تعيينه رئيساً لمجلس وزراء الكويت
--  Antreprenorii moldoveni au dezvoltat un software de prognozare a energiei verzi cu precizie de 97%
--  RT: Следком Москвы не проводит какое-либо расследование в отношении Ивлеевой
--  Kobayashi gewinnt Vierschanzentournee - Wellinger Zweiter
--  Kobayashi gewinnt Vierschanzentournee - Wellinger Zweiter
--  Vrhovni sud SAD odlučuje može li Tramp na predsjedničke izbore
--  Dumrauf: “Más allá de que se tengan ideas, nos encontramos con una situación de emergencia en el Municipalidad”
--  So geht Iris Klein mit Hassnachrichten auf Social Media um!
--  Dreikönigstreffen: FDP kämpft ums politische Überleben
--  Старение населения Китая — острая демографическая проблема с серьёзными последствиями
--  Lille'den Fransa Kupası'nda tarihi skor: Yusuf Yazıca'dan 2 gol, 2 asist
--  جمال علام: المنظومة الرياضية شهدت طفرة كبيرة في عهد الرئيس السيسي
--  רמטכ"ל מתחמק מתשובות, חוסר כבוד הדדי ותקשורת רדודה: על 5 דקות בקבינט שמציירות תמונה קשה
--  Mrle poludio kad je vidio da se Let 3 nalazi na popisu za Doru: 'Idioti me pitaju za pjesmu Babaroga'
--  Andreas Wellinger verpasst Sieg bei Vierschanzentournee – Kobayashi triumphiert
--  FBI captura 3 suspeitos por invasão do Capitólio
--  Udinese, Cioffi: "Lautaro Giannetti innesto importante. Difensore cattivo e determinato"
--  Ersin Tatar: KKTC, Doğu Akdeniz’de bağımsız bir Türk devleti olarak gelişmeye devam ediyor
--  Vierschanzentournee in Bischofshofen: Leyhe nur Zuschauer bei Tournee-Showdown
--  Bangladesh, le dernier souffle de la résistance étudiante
--  Wintervorbereitung: Dortmund spielt 2:2 gegen Alkmaar - Sancho-Transfer stockt
--  Dortmund spielt 2:2 gegen Alkmaar - Sancho-Transfer stockt
--  הוול סטריט צונח בחסות 2024: אכזבה למשקיעים, מה צופן העתיד?
--  נשיא ארגנטינה מציג: זה המהלך שעשוי לחזק את כלכלת המדינה
--  תיעוד דרמטי: זה המקום בו ביקרו הרמטכ"ל וראש השב"כ
--  המטוס החל להתפרק באוויר - כך הנוסעים שרדו | צפו
--  יחימוביץ עוקצת את נתניהו: "האירוניה השתגעה"
+-  Ross Branch e de Mevius conquistam primeira etapa na Arábia Saudita
+-  Pelo menos 11 mortos em ataque russo no leste da Ucrânia
+-  BW Businessworld Supply Chain Competitiveness Summit & Awards 2023: Top Achievers
+-  PSG acusado de tentar subornar jornalista para dar Bola de Ouro a Messi
+-  Al Mayadeen: Израиль нанёс удары по окрестностям городов Тир и Сайда в Ливане
+-  Lenglet được Napoli săn đón
+-  Phóng viên xinh đẹp đáp trả "gắt" với antifan
+-  Depay fires Atletico past Lugo into Copa del Rey last 16
+-  BREAKING: Delhi School Holidays Extended: Winter Vacation Extended Till This Date Due To Severe Cold
+-  Łotwa jest drugim po Hiszpanii importerem rosyjskich produktów rolnych i spożywczych w UE
+-  Plataforma electoral del JNE permite conocer precandidatos a comicios internos
+-  ¿Quién será capitán de Alianza Lima? Adrián Arregui opinó sobre esa posibilidad con reflexivo mensaje
+-  Coupe de France : Clermont et Allevinah qualifiés pour les 16es
+-  Forman grupo de trabajo que emitirá propuestas para estímulos para cine y audiovisuales
+-  2-4. El Jimbeé Cartagena, primer finalista tras una remontada en el tramo final
+-  Las noticias de América hoy: Chicote Calderón, Néstor Araujo y debut de la Femenil
+-  ATU: cámaras inteligentes vigilarán corredores de Lima las 24 horas [video]
+-  Valverde: "No nos consideramos favoritos, es una eliminatoria abierta"
+-  Warum die Kleiderstube in Edingen auf mehr Zulauf hofft
+-  La fronteriza Ciudad Juárez cierra 2023 con 25 feminicidios, el mayor número en México
+-  فقوموا إلى خيلكم !
+-  لاجئ
+-  رأس الحال فى رأس العام
+-  سكك حديدية: مجمع "جيتراما" يتطلع للمساهمة في تقليص آجال إنجاز المشاريع
+-  آهِ يا وجع القلب ياغزّة..
+-  Braless Amanda Holden's cheeky six-word 'bum' outburst leaves co-star Alan Carr cringing
+-  قصر مصطفى باشا..
+-  King Charles ‘will pull funding for private security’ at Prince Andrew’s 30-room mansion in Windsor if he stays
+-  رسائل مصورة لجنود إسرائيليين اعترف جيشهم بقتلهم - فيديو
+-  آبل تسحب تحديث iOS 17.3 بعد ساعات من إطلاقه.. ما السبب؟
+-  خبير بريطاني: روسيا لم تضرب كييف حتى الآن بأقوى صواريخها
+-  الاحتلال يعترف بمصرع قائد فرقة
+-  Клуб НХЛ "Чикаго" поместил Бедарда в список травмированных
+-  تأثير اضطراب النوم على صحة الذاكرة …لا يفوتك
+-  Trois skieurs surpris par une avalanche près d'Auron, l’un d’eux en partie enseveli et légèrement blessé
+-  Пакистано-китайская ось стоит за новыми террористическими атаками в индийском регионе Кашмир
+-  لاعب مانشستر يونايتد يقترب الانضمام إلى إشبيلية على سبيل الإعارة
+-  পটুয়াখালী-৪: মামাতো-ফুফাতো ভাইয়ের ভোটযুদ্ধের আভাস
+-  Kickoff | Riveiro: To get a trophy is always something special
+-  Oekraïne: elf doden door Russische raketaanval op Pokrovsk
+-  La inquilina Novela Turca capítulo 8: Neslihan duda de Murat al verlo junto a otra mujer
+-  لكشف التهديدات.. ما هو نظام تل شميم الإسرائيلي؟
+-  సీఎం జగన్‌ అప్పుల అప్పారావు
+-  Nepalski radnik u BiH: Zadovoljan sam i imam finu platu, dovoljna je za život
+-  AK Parti beyannamesinin çerçevesi ne?
+-  ABD Dışişleri Bakanı Blinken'ın Türkiye ziyareti protesto edildi
+-  16 ülkeyi kapsayan arabuluculuk birliği kurulacak
+-  طنجة العاصمة الدبلوماسية التاريخية للمغرب، بوابة التراث العالمي وملتقى الحضارات والثقافات (الجزء الثاني)
+-  100 مسؤول إسرائيلي سابق في الجيش و"الموساد" والشرطة يكشفون عن "جبهة حرب جديدة" أمام بلادهم
+-  تظاهرات حاشدة في تل أبيب وحيفا للمطالبة برحيل نتنياهو وحكومته
