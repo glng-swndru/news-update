@@ -1,11 +1,51 @@
 # Latest News
--  EE.UU. elimina arancel para tubos de acero brasileño después de más de 30 años de vigencia
--  3 Tips Antigagal Registrasi Akun Sekolah dan Siswa SNPMB 2024
--  트레저, 서울 콘서트 '보나보나' 라이브 무대 깜짝 공개
--  효민, 붉은 비키니 속 넘치는 볼륨감
--  ‘He’s really losing the plot’ say concerned Traitors viewers as they demand producers step in to remove contestant
--  Aldi issues warning about Specialbuy delays including energy-saving must-haves – check if your favourites are affected
--  Cara Dapat Bantuan Sosial PKH bagi Peserta KIS BPJS Kesehatan
--  [IT클로즈업] 공정위발 규제 강화 기조에 부담 커진 ‘진격의 쿠팡’
--  احرص على تلقي اللقاح.. تغيرات المناخ تزيد من انتشار الأمراض التنفسية
--  尹 정부, 총선 앞두고 게임에 초점… 불공정 거래 손본다
+-  영화 ‘스피드레이서’ 배우 크리스천 올리버, 비행기 사고로 사망
+-  Resultado lotto anochi pa dia 5 di januari 2024
+-  ซดแห้วกันเพียบ เหลือแค่ 2 ทีมมีลุ้นคว้า “เอ็มบัปเป” ระเบิดตาข่าย
+-  สภาพอากาศวันนี้ "เหนือ-อีสาน" อากาศเย็นถึงหนาว ภาคใต้ตอนล่างฝนตกหนัก
+-  เปิดชื่อ 72 กมธ.วิสามัญพิจารณาร่างงบฯปี 67 "ภูมิธรรม" นั่งประธาน
+-  “The Story Of Park’s Marriage Contract” Heads Into Finale On No. 1 Ratings
+-  قيادي بالتكتل يدين "إلحاح" الأمين الدائم للحزب على رئيسه لتمرير أجنداته
+-  Bradford (Park Avenue) loan in Fleetwood Town midfielder
+-  สภาพอากาศวันนี้ ลมหนาวจากจีนพัดเสริมมาอีกระลอก ยามเช้ายังเย็นสดชื่น
+-  Pyongyang dispara cientos de obuses
+-  Sau chiến thắng Burnley, HLV Postecoglou báo hung tin
+-  Trabajo articulado del Midis facilitó la mejora en la atención a población vulnerable
+-  HLV Troussier tổ chức ''họp khẩn'' khi ĐT Việt Nam đến Qatar
+-  Vụ Lệ Quyên thất vọng show Chị đẹp, nhà sản xuất phản ứng
+-  Đây là môn học khó nhất ở Thanh Hoa, sinh viên biết trước đề vẫn trượt như ngả rạ, "học bá" cũng bó tay
+-  The Traitors contestant Aubrey Emerson reveals the one item he stole from the castle after becoming the first Faithful to be 'murdered'
+-  İsrail'i "soykırım" korkusu sardı! Dava için sayılı günler
+-  Krieg in Nahost: Bericht: Israel will Südafrikas Völkermord-Klage abwenden
+-  Bill Ackman's wife Neri Oxman is accused of PLAGARISM in 'multiple parts' of her MIT dissertation - as her billionaire husband slams 'hit job' on the designer
+-  規劃師招聘｜起薪$72,180 附政府工入職條件+申請方法
+-  MC, aún sin resultados para definir a su candidato presidencial
+-  '귀국' 고우석, ML행 비하인드 밝히다 "7분남기고…"
+-  정태우, “‘논스톱’ 때 김정화랑 사귀었나” 아내 장인희 질문에 일시 정지
+-  '손흥민 빠진' 토트넘, 포로 원더골로 번리에 1-0 FA컵 신승
+-  Moncton hockey community mourns loss of 5-year-old Tate 'Tater Tot' Hughes
+-  Filtran el MSI CLAW, dispositivo portátil para gaming; usará CPU de Intel, no AMD como su competencia
+-  Tulipalot | Suuri teollisuus­halli syttyi palamaan Alavudella
+-  Cullman Regional completes expansion and renovation project
+-  '선수끼리 아찔한 충돌' …4연승 현대캐피탈 물, 불 안 가리는 투지 [곽경훈의 현장]
+-  '한화 1선발→개막전 60구→부상 퇴출→윈터리그→TB 마이너 계약'... '유리몸' 인간 승리인가 'ML 재도전'
+-  '태계일주3' 덱스, 마다가스카르서도 여심 홀릭…기안84 "우주가 너로 통한다" 질투
+-  Trung tâm ngoại ngữ, tin học không được thu học phí dài hạn
+-  ‘Eyes of Wakanda’: Produtor explica como surgiu a ideia para a série derivada de ‘Pantera Negra’
+-  Critical Vulnerability in Ivanti’s Endpoint Protection Software: What You Need to Know
+-  助理職業環境衞生師招聘｜起薪$35,775 附政府工入職條件+申請方法
+-  Upaya Menurunkan Kemiskinan 2045, Mahfud Md Komitmen Teruskan Kerja Profesional
+-  Khloe Kardashian's first headshots! Star looks unrecognizable at 17 in never-before-seen photos before her dramatic makeover
+-  ChromeOS 120 rolling out: Virtual Desk Button, Nearby Share ‘Self Share,’ and more
+-  Income tax HRA: Why Bengaluru is not considered a metro city for taxpayers?
+-  Tras sus polémicos dichos, renunció el vicepresidente de la DAIA
+-  “Stranger Things” Final Season Begins Filming
+-  주유소 기름값 13주째 하락세…휘발유 5.5원·경유 8.0원↓
+-  Người bệnh đái tháo đường nên ăn bao nhiêu carbs mỗi ngày?
+-  'Floatel' ship arrives in B.C. to house LNG workers, but local permit still needed
+-  'Floatel' ship arrives in B.C. to house LNG workers, but local permit still needed
+-  'Floatel' ship arrives in B.C. to house LNG workers, but local permit still needed
+-  'Floatel' ship arrives in B.C. to house LNG workers, but local permit still needed
+-  'Floatel' ship arrives in B.C. to house LNG workers, but local permit still needed
+-  'Floatel' ship arrives in B.C. to house LNG workers, but local permit still needed
+-  'Floatel' ship arrives in B.C. to house LNG workers, but local permit still needed
