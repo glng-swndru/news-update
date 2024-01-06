@@ -1,51 +1,51 @@
 # Latest News
--  Gemini 7 January 2024 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  Në mbrëmje vjen cikloni/ Shi në zonat e ulëta, borë në male gjatë fundjavës, më pas ulen temperaturat deri në -9 gradë
--  Клинтон, Трамп, принц Эндрю, Билл Гейтс в секс-империи, стоимостью 600 млн долларов
--  المركز الأورومتوسطي لحقوق الإنسان يطالب قوات الإحتلال الإسرائيلي بكشف ظروف ومصير المعتقلين من غزة
--  Mâconnais. 2023, deuxième année la plus chaude jamais enregistrée dans le Mâconnais
--  Event commemorates centenary of Lerwick’s County War Memorial
--  Menarini Group und Insilico Medicine schließen exklusiven globalen Lizenzvertrag für neuen KAT6-Inhibitor für mögliche Behandlungen von Brustkrebs und andere onkologische Indikationen ab
--  आलिया और रणबीर हॉलीडे से वापस लौटे, बेटी राहा के साथ मुंबई एयरपोर्ट पर स्पॉट| Photos
--  Delitto di via Poma, i pm bocciano la pista su Vanacore figlio. E torna sotto i riflettori la figura dell’avvocato “dei misteri” Caracciolo di Sarno
--  هزة أرضية بشدة 2ر3 درجات بولاية معسكر
--  هزة أرضية بمعسكر: عدم تسجيل أية خسائر
--  سكك حديدية: مجمع "جيتراما" يتطلع للمساهمة في تقليص آجال إنجاز المشاريع
--  تمويل اقتناء السيارات: قروض إسلامية تصل إلى 90 بالمائة
--  فنلندا ستفقد أكثر من 10% من الغاز المسال إن حظرت استيراده من روسيا
--  Beşiktaş'ın parlayan yıldızı Semih Kılıçsoy
--  Çaykur Rizespor evinde hata yapmadı! 3 puanı 2 golle kaptı
--  Beşiktaş Emlakjet deplasmanda galip
--  Tüyap Fuar ve Kongre Merkezi kapılarını karavan ve doğa tutkunları için açıyor
--  Malatya da sallandı: Korkutan deprem! Büyüklüğü…
--  "ภูมิธรรม" รับปาก หาสมดุล สร้างกระเช้าไฟฟ้าขึ้นภูกระดึง
--  Trashësia ka arritur në një metër, norvegjezët gërmojnë dëborën për të hyrë në shtëpitë e tyre
--  Службениот автомобил на министерката за труд и социјална политика удрил во „пасат“ – има повредени!
--  مهاجم وست هام يحث أرسنال على ضم توني
--  Megöltek egy embert Felsőszölnökön
--  Rizespor-Hatayspor: 2-0
--  İran'ın Şiraz kentinde şiddetli patlama
--  Cumhurbaşkanı Erdoğan ABD Dışişleri Bakanı Blinken'ı kabul etti
--  Alper Gezeravcı Uzay’dan Elazığ ve Yozgat’a bağlanacak
--  Numan Kurtulmuş: Ümit ediyorum ki gazetecilerin yeşil pasaport alması mümkün olur
--  “الفاو”: انخفاض أسعار المواد الغذائية بنسبة 13,7% في العام 2023
--  Ngân hàng nào cho vay mua nhà ưu đãi nhất tháng 1/2024?
--  Ronaldo được vinh danh ở giải thưởng mà Messi chưa từng sở hữu
--  Tranh cãi vị thế sao Cbiz qua 1 bức ảnh: “Ảnh hậu” thành center, Nhiệt Ba - Dương Tử ra rìa nhưng vẫn khá hơn Na Trát
--  Bộ phim bị gỡ gấp vì chỉ có 8 người xem, nam nữ chính đều là "tiểu tam" khiến ai nấy chết lặng
--  Đằng sau đứa trẻ bạo lực thường có 3 kiểu cha mẹ này
--  Ý nghĩa hoa cưới xanh dương độc lạ của MC Thanh Vân Hugo: Đặt niềm tin không giới hạn cho "nửa kia" và còn gì nữa?
--  5 cầu thủ giá trị nhất thế giới: Haaland chỉ đứng thứ 2, Mbappe bất ngờ ngồi ngoài
--  Đám cưới Vân Hugo: Diễm My 9x - H'Hen Niê và dàn "Chị đẹp" đổ bộ, Mai Phương Thúy lộ diện gây chú ý
--  Hướng dẫn 8 bước gia hạn thẻ BHYT gia đình online đơn giản ngay tại nhà
--  Loại quả có hình thù kỳ lạ nhưng mỗi dịp Tết lại được săn lùng để trưng ban thờ: Giá lên tới cả triệu/quả
--  Diễm My 9x tinh tế phục vụ thức uống không cồn tại tiệc cưới, mở đầu xu hướng "tiệc vui êm ái"
--  Muere aplastado por su vehículo tras volcarse
--  Amanece Chihuahua capital a -1°C
--  Benzinlikte sucuk yıkayanlara gözaltı
--  Aliağa 4.2 ile sallandı
--  Ayla Algan'ın cenazesi Muhsin Ertuğrul sahnesinde düzenlenin törenin ardından uğurlandı
--  Kardeşlerim yeni bölümü bu akşam var mı? Kardeşlerim bugün yok mu? ATV 6 Ocak 2024 yayın akışı
--  Artvin'de kar ve heyelan! 40 köy yolu ulaşıma kapandı
--  Tıpkı kefir gibi bağırsak dostu besinler! 30 dakika içerisinde hareketlenmeler başlıyor
--  Trabzonspor'un hedefi Ousmane Camara
+-  "ההודעה ממעיטה מגודל המחדל": אימו של תמיר אדר טוענת כי נחטף לעזה בעודו בחיים
+-  عاجل الخارجية: الصفدي يلتقي نظيره الأميركي غدا
+-  مصادر لشبكة إن بي سي: إسرائيل تقف وراء اغتيال العاروري
+-  High water peak on the Rhine River is not as bad as predicted
+-  [오세훈 '퇴근길대란' 명동 버스정류장 점검…"보완책 조속마련"
+-  [유영, 종합선수권 쇼트 2위…부진 털고 반등하나
+-  أطعمة سحرية تخلصك من دهون البطن!
+-  حمّل تطبيق (أردني).. وتعرّف على منتجات بلدك
+-  امسكي يمّا.. شاب من غزة يسحب أمه الجريحة برصاص قناص
+-  Dan Negru, luat la mișto de un român stabilit în SUA: „Iar debitează prostii“ VIDEO
+-  Ranji Trophy | Karnataka’s Padikkal and Pandey notch up centuries to drive home the advantage
+-  אמו של תמיר אדר: "הוא נחטף חי - אם המדינה הייתה מתפקדת הוא היה ניצל"
+-  השופטת החליטה: בקשתה של שר לאפוטרופסות על בנה נדחתה זמנית
+-  מפצה על הזלזול? לא תאמינו מה ההפתעה שקיבלה סימון ביילס מבעלה
+-  FC Bayern: Daniel Peretz fällt mit Knieverletzung aus
+-  התרעת חדירת כלי טיס עוין בגליל
+-  – كلية الاقتصاد جامعة سرت تنظم محاضرة بعنوان (مخرجات محاسبية لسوق مثالية )
+-  Dự án ‘siêu cảng’ Trần Đề có gì đặc biệt?
+-  Usta sanatçı veda… Ayla Algan son yolculuğuna uğurlandı
+-  Swiss MP visits Coimbatore
+-  هذا ما يحدث للكوليسترول في جسمك عند شرب الشاي يوميا
+-  لبنان: نحن طلاب سلام لا دعاة حرب ويجب وقف الاحتلال انتهاكاته ضد سيادتنا
+-  "تعاملوا معنا كحيوانات".. المرصد الأورومتوسطي يوثق شهادات تعذيب لمعتقلين من غزة لدى الاحتلال
+-  Hawks attivi sul mercato, Trae Young e Jalen Johnson unici intoccabili
+-  أعراض تشير الي الإصابة بتصلب الشرايين.. أغربها فقدان الشهية
+-  بعد إعلان ظهور حالات بمصر.. علامات تدل على الإصابة بمتحور كورونا الجديد JN1
+-  فحص مومياء توفيت أثناء المخاض يكشف عن "سر مرعب"
+-  Grenierová vyhrála obří slalom V Kranjské Goře. Jelínkové utekl postup
+-  Ursula von der Leyen: Ratkaisu Ukrainan tukemiseksi saatava mahdollisimman pian
+-  هل تم القبض على محمد رمضان في مطار القاهرة؟
+-  За шести път Мартин Пеев "спаси" кръста в Асеновград
+-  Livermore claims the HPSL Golconda Oaks
+-  IJZ: Povećan broj djece vakcinisane MMR vakcinom
+-  News24 | Boy,16, drowns at Muizenberg beach
+-  Trei bărbaţi, reținuți pentru viol. Au fost filmaţi în timp ce întreţineau relaţii sexuale cu o femeie într-un bar
+-  Grenije pobednica veleslaloma u Kranjskoj Gori
+-  غزہ: اسرائیل نے150لاشیں چرا کر 1100 قبریں اُکھیڑ دیں
+-  Acht Tonnen Kokain: Bolivien meldet seinen größten Drogenfund aller Zeiten
+-  Московское «Динамо» разгромило «Куньлунь» в матче КХЛ, забросив семь шайб
+-  „Tai nutiks pirmą kartą per 240 metų.“ Putino laukia šokas. Rusija gavo juodą ženklą
+-  Laukiamas svečias. Kurios šalys nori priimti Putiną
+-  „Valgo konservus ir panašus į lavoną.“ Zelenskio buitis bunkeryje
+-  [ŽT] Sandėris atšaukiamas. Kas nutiko
+-  [ŽT] Rusų „Pancir“ - 0, Ukrainos žemė – 1 (Video)
+-  Baisiausias rusų košmaras – 4 metrų ilgio MGM-140 ATACMS. Iš JAV ateina geros naujienos! (Foto)
+-  Waldemar Buda: Jeden blok zbudowany przez trzy lata przez Krajowy Zasób Nieruchomości? Proces inwestycyjny trwa cztery lata, więc nikt by więcej nie wybudował
+-  विधानसभा अध्‍यक्ष देवनानी और मुख्‍यमंत्री भजन लाल शर्मा की शिष्‍टाचार मुलाकात
+-  Дания задержит на полгода передачу Украине истребителей F-16
+-  Video: Đajić i Amidžić snimljeni dok pjevaju pjesmu o Draži Mihailoviću
+-  Was Max Kruse nach seinem Karriereende plant
