@@ -1,11 +1,11 @@
 # Latest News
--  Biden ilk mitinginde Trump'ı hedef aldı: Büyük bir tehdit
--  Families in Gaza search desperately for food and water
--  Бюджетным братьям – по серьгам
--  Lê Tú Chinh rời TP.HCM: Lời chia tay của một tượng đài
--  Trần Tiến dạy Hiền Lê không từ bỏ
--  Lưu ý gì trước khi đăng ký nguyện vọng đại học năm 2024?
--  Billionaire Bill Ackman Vows to Audit MIT Professors for Plagiarism
--  Mumbai Trans Harbour Link : शिवडी न्हावा शेवा अटल सेतू बांधून पूर्ण, कसा आहे नवीन मार्ग?
--  چین یورپ تجارتی جنگ، معاملہ الیکٹرک کاروں سے شراب تک جا پہنچا
--  Adalet Bakanı Yılmaz Tunç'tan yeni Anayasa mesajı
+-  ยิปซีพยากรณ์ดวงรายวัน ประจำวันเสาร์ที่ 6 มกราคม 2567
+-  这一碗《繁花》美食不建议天天吃 尤其是胃不好的人
+-  泡饭为什么对胃不好 泡饭血糖高能吃吗
+-  快走的功效与作用是什么
+-  Türklük inşaat ihalesi değildir efendi!
+-  U23 women could have stand-alone road race at Australian Championships as soon as 2025
+-  'Gut-wrenching': Families forced to have challenging discussions after another school shooting
+-  Kretschmann zur AfD: "Geifer nicht mit Gegengeifer begegnen"
+-  Erinnerungen an Kapitol-Sturm schüren Sorge in US-Wahljahr
+-  Haßelmann ruft vor Bauernprotesten zu Deeskalation auf
