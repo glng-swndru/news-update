@@ -1,51 +1,51 @@
 # Latest News
--  الضربات الأمريكية والسيادة العراقية.. الغلبة لمن؟
--  موازنة 2024.. تمريرها مرهون بشرط وتوقعات بتعديلها
--  خطط "خفية".. هل ستتم الإطاحة بـ"الفائز الأول" في كربلاء؟
--  قصف بغداد.. ما علاقة تغيير "قواعد الاشتباك" بالولاية الثانية لبايدن؟
--  오타니와 아이들에게 1조5805억원 썼는데…다저스 투수 추가영입? A+에도 ‘만족은 없다’
--  "피츠버그와 잘 어울려" 김하성, 배지환 자리 빼앗나... 韓 선수끼리 경쟁 펼쳐질지도 모른다
--  '손은 눈보다 빠르니까' 토트넘, 'SON' 대체자 하이재킹 성공...獨 유력 언론 "6개월 임대 이적 임박"
--  폐지된 '홍김동전'에…주우재 "난 이제 희소성 생긴다" 너스레 [놀면 뭐하니]
--  S-a săturat de Turcia? Mauro Icardi și-ar dori revenirea la una dintre fostele sale echipe
--  Bauern-Demos in Hannover: Wo am Montag Verkehrsbehinderungen zu erwarten sind
--  Suomalaisilla meni vati nurin pörssisähkön hinnoista
--  ১৬ ঘণ্টায় ৮ শিক্ষাপ্রতিষ্ঠান ও ৬ যানবাহনে আগুন
--  الیکشن کمیشن کو انتخابی شیڈول فوری تبدیل کرنے کی ہدایت
--  Ambati Rayudu : अंबाती रायुडू अवघ्या 9 दिवसात राजकारणातून दूर का गेला, नेमकं घडलं तरी काय?
--  विकास योजनामा भारतीय दूतावासले सोझै रकम दिनु राष्ट्रहित विपरीत : झलनाथ खनाल
--  مقتل شخص في مشاجرة بمنطقة بولاق الدكرور
--  New Padres pitcher Go Woo-suk bracing for roster battle: 'I'm not a major leaguer yet'
--  KBO All-Star Go Woo-suk returns home as new San Diego Padres pitcher
--  Politicians call for 'unity' at centenary of late ex-President Kim Dae-jung's birth
--  Sastamalan palliatiivinen yksikkö mukana uudessa vastuualueessa
--  توتنهام يفتح الاتصالات مع لايبزج لضم فيرنر
--  Soccerladuma | 'Pirates Fail To Play As A Team'
--  Langläuferin Hennig holt Tagesrang drei bei Tour de Ski
--  Refus de Régis Mughe de rejoindre la CAN 2023 crée la controverse au Cameroun
--  Kutch News : સૌથી મોટા મીઠાના મેદાનની ઉપાધિ હાંસિલ કરનાર કચ્છનું રણ પ્રવાસીઓને કરે છે મોહિત
--  Santa Anita: 3 personas mueren acribilladas en vía pública
--  Ada Nicodemou, 46, stuns her fans as she shares Home and Away throwback clip that proves she hasn't aged a day: 'You must be a vampire'
--  Termometri zbret nën zero në Tiranë, i ftohti polar do të pushtojë vendin prej fillimit të javës: Zonat që preken
--  Máximo González: "Soy muy niñero"
--  MOVIE REVIEW: We 'choc' out sweet family flick 'Wonka'
--  Ancora nuove offerte sul Play Store: Towaga: Among Shadows e Runic Curse in sconto!
--  Migs Oczon delivers game winner as Ulsan escapes Suwon in KBL
--  Bauernproteste: Warum die Landwirte in Niedersachsen sauer sind
--  Edis'ten kendi şarkısını söyleyen Hadise'ye: 'Ah yok mu şu caziben?'
--  Fenerbahçe'den Krunic hamlesi
--  Байден перед річницею 6 січня виступив із промовою про демократію у США
--  Britain's hidden RAINFORESTS: Incredible maps reveal the beautiful ancient habitats dotted across the UK - as experts warn they're some of the most endangered areas in the world
--  Does football have an alcohol problem?
--  Los mejores países del mundo para trabajar a distancia: España ocupa una destacada posición
--  Минобороны: в новых регионах России восстановлено 16 мостов
--  تراند اليوم : "ناسا" تكشف موعد اصطدام كويكب مفقود بالأرض.. وتحدد حجمه وارتفاعه
--  تراند اليوم : شاهد.. فوز الفهد تظهر بدون فلتر أثناء التقاط صور لها في القصيم
--  تراند اليوم : "يا ويلهم من العقوبة والحوبة".. بالفيديو.. "إعلامي" يكشف عن صنفين بغيضين من الرجال والنساء
--  Vor Vierschanzentournee-Finale - Neureuther & Co. drücken Wellinger die Daumen!
--  Ukrayna'dan Saki Hava Üssü'ne saldırı
--  Tüm gribal enfeksiyonlara savaş açan zencefil shot tarifi! Tek yudumda hücreleriniz dirilecek
--  Kuzey Kore'den 60 top atışı
--  Bakan Uraloğlu duyurdu: Türk uzay yolcusu milli çağrı işaretiyle iletişim kuracak
--  تراند اليوم : بالفيديو.. "الشهري" يكشف الفرق بين لحم الإبل والأبقار.. وعلاقة الأول بفقر الدم والكوليسترول
--  Ebru Polat yapay zekalı klibiyle övündü: Türkiye'yi uzay çağına geçirdim
+-  GMR Aerocity Festivals Presents 'Aerocity Culinary Fest - Where Food Meets Fun' on January 13th & 14th, 2024 at The Square @ GMR Aerocity, New Delhi
+-  총격 현장서 몸 던져 학생 지켰다…교장 선생님 사연에 美 '영웅'으로
+-  80년 전에 보낸 편지…봉투에 번지수 없어 뒤늦게 배달
+-  서울 전 지역 대설주의보…"눈구름대 빠르게 이동"
+-  北, 이틀째 서해 포격훈련…軍 대응사격은 자제
+-  여야, DJ 100주년 기념식 총집결…"분열 아닌 통합해야"(종합)
+-  Gelecek Bursa'da "Belediye Başkan Adayı" Sürprizi!
+-  İzmir'de 4.2 büyüklüğünde deprem
+-  AK Parti'nin Bursa Büyükşehir Adayı Alinur Aktaş mı?
+-  AK Parti Bursa Milletvekili Özen hızlı tren için harekete geçti
+-  Berisha në ‘arrest shtëpie’, Rithemelimi mbledh Kryesinë në selinë e PD-së
+-  Berlingske: поставка Украине истребителей F-16 из Дании задерживается на полгода
+-  وزير خارجية مصر: يجب وقف التصريحات غير المسؤولة والتحريضية التي تصدر عن بعض المسؤولين الإسرائيليين بشأن تهجير سكان غزة
+-  PSG : Mbappé épargné face à Revel ? Luis Enrique répond
+-  امام مسجد کی نماز میں سجدے کی حالت میں موت
+-  پاکستان ٹیم پھرناکام،آسٹریلیا نے وائٹ واش کردیا
+-  Arheolozi pronašli pomalo jezive artefakte u srcu Europe: Misle da su ih koristi u kultu iz mračnog doba
+-  دعوة للمشاركة في اعتصام أمام السوق المركزي غدا
+-  ما ينوب المخلص إلا تقطيع هدومه.. مصرع شخص تدخل لفض مشاجرة بين طرفين بالسويس
+-  নৌকার প্রার্থীর গাড়ি ও বাড়িতে হামলা-ভাঙচুর
+-  هيئة البيئة – أبوظبي تتعاون مع «بيورهيلث» لإجراء دراسات بحثية حول تأثير التحديات المناخية في الصحة العامة
+-  Dodik: Američki avioni nemaju saglasnost da 8. januara nadlijeću BiH
+-  지역대 정시마감, 전년보다 경쟁률 낮아져, 상위권 학생들 상향지원 및 수도권 선호현상 가속화
+-  القبض على صاحب شركة أجهزة منزلية كبرى بعد صدور 45 حكما قضائيا ضده
+-  كاساس يكشف تشكيلة العراق لمواجهة كوريا الجنوبية
+-  أطفال المدارس بالغردقة يدعمون أطفال غزة بمساعدات غذائية
+-  Mega-Sena sorteia neste sábado prêmio de R$ 6,5 milhões
+-  Dreikönigstreffen der FDP - Aktivisten stürmen schreiend in Lindner-Rede - der setzt Klimageld-Konter
+-  Commerce mondial: Pékin a le cognac, l'armagnac et les brandys européens dans son viseur
+-  Einige Bedingungen noch nicht erfüllt - Dänemark versprach Ukraine F-16-Jets zum Jahreswechsel- daraus wird nichts
+-  القسام: حاصرنا 9 جنود وأوقعناهم بين قتيل وجريح شرق خانيونس
+-  حملة أردنية لشراء حليب للأطفال في غزة
+-  بدء تصحيح الأسئلة المقالية لمبحث اللغة العربية
+-  وزير الخارجية الأمريكي في الأردن الأحد
+-  تعديلات وزارية في حكومة الإمارات
+-  UN says $52 million needed to support migrants in Afghanistan
+-  القبض على شخصين بتهمة الاستيلاء على بيانات بطاقات الدفع الإلكتروني الخاصة بالمواطنين
+-  Study finds reason, cure for cancer in immunotherapy-induced colitis
+-  Handball, Testspiel - Deutschland gegen Portugal im Liveticker
+-  Biathlon in Oberhof - Das Verfolgungs-Rennen der Damen im Liveticker
+-  Brazil delivers record trade surplus in 2023
+-  الري: مناقشة 1506 طلبات لترخيص آبار جوفية و125 لأعمال على الشواطئ و55 على النيل
+-  Wasser 8 Grad kalt: Eisbaden in Mendener Freibad nach Notfall abgebrochen
+-  গাজা মৃত্যুপুরীতে পরিণত হয়েছে: জাতিসংঘ
+-  معتمد جمال يشرح خططه للاعبي الزمالك قبل الدورة الودية بالإمارات
+-  ACA RASPLAKAO BILJU ONA MU SE OBRATILA: Želim da nam brak traje ceo život! Otkrila i sve o jednom dočeku koji nisu proveli zajedno
+-  Outdoors sports shows, Devils Lake ice fishing tourney coming up on outdoors calendar
+-  Amazon driver 'ran off with £300 gift from doorstep' but claimed it was delivered
+-  Bharat Jodo Nyay Yatra: 'भारत जोडो न्याय यात्रा, न्याय का हक मिलने तक', काँग्रेसकडून लोगो जारी
+-  تطورات الحرب على غزة وتداعياتها في يومها الـ92
