@@ -1,51 +1,51 @@
 # Latest News
--  DGCA To Inspect Boeing 737-8 Max Planes After Window Falls Off Alaska Airlines Flight Mid Air - Watch
--  Lok Sabha elections 2024: BJP morchas hold meeting discusses polls strategy
--  Décès de Mario Zagallo: l'hommage de Didier Deschamps pour "le professeur"
--  Delhi: Fire breaks out in forest near Okhla, causes traffic snarls
--  PSG habría presionado para que Lionel Messi ganara el Balón de Oro
--  Bakan Uraloğlu'ndan tvnet'te önemli açıklamalar: Türkiye yoksa Orta Koridor olmaz
--  Edon Zhegrova në ndeshjen e Kupës së Francës – shënon het-trik dhe asiston dy herë në 45 minuta
--  Ir-Rabtin jiċċelbraw il-letteratura Maltija
--  Proche-Orient: rencontre Blinken-Erdogan à Istanbul autour de Gaza
--  César Acuña: “Me faltó liderar el tema de seguridad”
--  В Тверской области ищут мужчину, пропавшего в Москве
--  Wizja upadku Białorusi. Ekspert ostrzega przed działaniami Władimira Putina
--  صحيفة (لوموند) الفرنسية : 2024 ، عام الانتخابات القياسي بالعالم .
--  ارتفاع حصيلة العدوان الإسرائيلي على غزة إلى أكثر من 22 ألف شهيد.
--  اندية الجفرة تتفق علي تشكيل تنسيقية موحدة.
--  وزارة الداخلية تنفي وجود إزدحام بمنفذ رأس إجدير البري مع تونس.
--  انطلاق أعمال ورشة العمل السادسة لموظفي المكاتب الامامية (الشبابيك) التابعين لمنطقة الخدمات البريدية بنغازي .
--  اجتماع بكلية العلوم والتقنية سبها لبحث معالجة النقص في اعضاء هيئة التدريس .
--  مصلحة الضرائب الليبية تحقق إيرادات غير مسبوقة تجاوزت ثلاثة مليار دينار.
--  المركز الوطني لمكافحة الأمراض ينفي توصيته باستخدام أي دواء لعلاج الإنفلونزا الموسمية.
--  الجيش الأردني يعلن إنه قتل مهربي مخدرات وأسلحة من سوريا .
--  خطوط (ألاسكا الجوية) توقف تشغيل طائرات بوينغ 737 بعد انفجار جزء منها في الجو.
--  هبوط طائرة مصر للطيران بأثينا بدلا من بنينا لسوء الأحوال الجوية .
--  Spanja njeh pasaportën e Kosovës
--  President says UNSG’s report ‘could have been better’
--  Al Jazeera: Израиль нанёс удары по окрестностям ливанских городов Тир и Сайда
--  فردین خان کا اپنے والد بارے زینت امان کی پوسٹ پر ردعمل سوشل میڈیا صارفین کو بھا گیا
--  Garantizaron los puestos de trabajo de los 310 trabajadores del Tren Patagónico
--  Indonesia Airplane Server Reported Zero Accident During Year End Long Holiday
--  Analyst Gives Ambitious Shiba Inu Price Prediction As Trader Backs Sponge 100X
--  Cantal : la Maison de santé de Maurs ouvre ses portes
--  PLN: Transaksi di SPKLU Sumut 1.149 Kali Sepanjang 2023
--  Itália encontra templo procurado pelo imperador Constantino
--  Propalestínski demonštranti zablokovali Westminsterský most v Londýne
--  MP de Milão mira mais contratos para caridade de Chiara Ferragni
--  Uber Trials Flexible Pricing In Tier 2, 3 Indian Cities
--  Tko je djevojka Filipa Zubčića? Prekrasna gimnastičarka Ana ne prestaje mu pružati podršku
--  بورصة مسقط تسجل أفضل قيمة تداول في 2023
--  Jynxzi rage quits Twitch stream due to Kai Cenat’s baffling Rainbow Six Siege gameplay
--  Friday's high school basketball scores
--  '4관왕' 세븐틴·'2관왕' 뉴진스, 나란히 대상 쾌거 "거창한 상에 당당할 수 있도록" [38회 골든디스크](종합)
--  Si è costituito l'uomo che ha sparato a un 25enne ad Arcisate
--  بالفيديو.. أمطار غزيرة وتدفق الشلالات في محايل عسير
--  Булыкин верит в возвращение России на международную арену в 2024 году
--  Impusieron prisión preventiva al hombre que robó y faenó una vaca en Darwin
--  Pugilato: il 10/a a Vasto c'è il Tricolore dei superleggeri
--  Otomobiller kafa kafaya çarpıştı: 2 ölü
--  Robert Jenrick threatens to amend PM’s Rwanda Bill unless it is strengthened
--  Игрок «Интера» попал в курьезную ситуацию после победного гола на 93-й минуте
--  Rosalía y Alejandro Sanz celebran juntos el Día de Reyes
+-  Naujas Putino dekretas. „Rusijoje neliks nei vieno ukrainiečio vaiko.“ Kas vyksta (Foto)
+-  Atskleista, ką labiausiai Kremlius norėjo užkariauti Ukrainoje! Dabar tai naudoja prieš juos pačius
+-  [ŽT] „Mūsų paukšteliai jau čia, jums p&@#a!“ Beprotiška ukrainiečio reakcija (Video)
+-  [ŽT] Netikėta ataka Šiaurės Vokietijoje. Skelbiama, kas nutiko (Foto)
+-  Apokalipsė. „Žmonės tiesiog svajoja apie civilizacijos laikus.“ Donbaso realybė (Video)
+-  POZNATI AMERIČKI KOMIČARI ISMIJAVALI GAVRILA PRINCIPA: 'Kao da gledaš mladog Staljina, upropastio je cijeli svijet' (VIDEO)
+-  Edtech company Simplilearn’s losses swell 29% in FY23, revenue up 50%
+-  Má ekki bjóða sig fram til forseta
+-  Hrvatske vaterpolistice na EP-u u dvije utakmice primile nevjerojatnih 49 golova
+-  Loccum: Bauernprotest zum Epiphaniasempfang
+-  Jedna osoba poginula i tri povrijeđene u nesreći kod Donjeg Vakufa
+-  Mary Kom Critiques New Athletes’ Drive, Urges Hunger for Success Beyond One Achievement
+-  Goyal asks BIS to raise standards of goods to international level
+-  Jair Bolsonaro: ato de 8/1 só tinha "velhinhos, ambulante, criança..."
+-  وزيرا التنمية المحلية والتموين يتفقدان مخازن السلع الأساسية لسلسلة "كازيون" بدمنهور
+-  وزير الصحة يتفقد مجمع السويس الطبي: سيحقق نقلة نوعية في الخدمات والرعاية
+-  فتح باب الترشح لانتخابات التجديد النصفي بنقابة المهندسين بالإسكندرية
+-  لسوء الأحوال الجوية.. مصر للطيران: تغيير مسار رحلة بني غازي إلى اليونان
+-  تبادل الطلاب والخريجين.. تفاصيل اجتماع رئيس "الشؤون الثقافية والبعثات" بالعلماء المصريين بالخارج
+-  بالفيديو.. السيسي يتفقد مدينة مصر الدولية ويوجه رسالة للاعبي المنتخب
+-  Yfirlýsing frá Steypustöðinni vegna banaslyssins
+-  حظك هذا الأسبوع: حدث يغير حياة هذا البرج.. وفرصة رائعة لبرج العذراء
+-  "بتوصية من توخيل".. بايرن ميونخ يضغط على برشلونة للتعاقد مع مدافع الفريق
+-  Diputada, del PAN a Movimiento Ciudadano por una candidatura
+-  Tot zondag file op A73 richting Nijmegen door ondergelopen oprit
+-  Drie aanhoudingen om bestorming Capitool drie jaar na dato
+-  Ram Charan welcomes Rahman aboard ‘RC16’; wishes composer on 57th birthday
+-  'Troonrede' Amerikaanse president Joe Biden verwacht op 7 maart
+-  المجعي: منح العاملين بديوان وزارة الصحة مستحقاتهم المتأخرة عن سنوات فائتة
+-  Conferenza stampa Montemurro pre Supercoppa LIVE: parla il tecnico della Juventus Women
+-  Mulheres de soldados russos em protesto exigem regresso dos maridos
+-  يزيد حجم الكرش بدلا من إنقاصه.. تجنبوا هذا النظام الغذائي
+-  Nick Carter lamenta morte da irmã: 'Meu coração está partido'
+-  Leonai Souza amplía contrato por tres temporadas con Barcelona SC, que adquiere parte de sus derechos deportivos
+-  Reportan sismos de magnitud 4 en Michoacán y Veracruz
+-  The UN ‘breathed life back into my dreams’ — Global Issues
+-  Haukar - Fram, staðan er 3:2
+-  Brisbane International: Rybakina dominates Noskova in semis; Rune too reaches final
+-  ΑΠΟΕΛ - Ανόρθωση: Παραλίγο διακοπή στο ντέρμπι λόγω ρίψης αντικειμένων από τις κερκίδες!
+-  На некого почетокот на годината му носи сериозни промени – 3 хороскопски знаци на чиј финансиски план ќе влијае младата Месечина во Јарец од 11 јануари
+-  Netflix new releases: Fresh episodes of 2024’s first great K-drama, plus new documentaries and more
+-  Werner verður leikmaður Tottenham
+-  Атлетико се справи с третодивизионен отбор за Купата
+-  AAA-PS4- und PS5-Spiel ab 2024 für nur 1,49 $ im Angebot
+-  Stolen vehicle sales go unabated in Hyderabad
+-  Scientists find compound to fight against Covid infection
+-  Haukar - Fram, staðan er 2:3
+-  Yusuf Sarı'dan sakatlık açıklaması!
+-  Hocasından Kenan Yıldız açıklaması!
+-  Batı göç korkusundan çark etti... Avrupa, İsrail'in kirli planına karşı çıkıyor
