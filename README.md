@@ -1,51 +1,11 @@
 # Latest News
--  Ali Koç’tan Abdülkadir Selvi’ye çok sert tepki: ‘Ulan sen FETÖ için salya sümük ağlamış adamsın…’
--  MIMORIADNY ONLINE Ukrajina zverejnila snímky zostrelenej ruskej hypersonickej rakety
--  Finančný expert radí: Týchto päť krokov urobte v novom roku so svojimi peniazmi!
--  MIMORIADNY ONLINE Hlad sa šíri Gazou, pomoc humanitárnych organizácií kolabuje: Stala sa jednoducho neobývateľnou, tvrdí OSN
--  ETRI, e스포츠 AI분석 플랫폼 개발…국내 中企에 기술이전
--  Zapori pokajo po šivih, tretjina zaprtih zaradi iste stvari
--  "Ex-Bognanco, pensiamo ai ciclisti"
--  Donna investita da una vicina sempre grave
--  Bachelor Star Kelley Flanagan Receives Rolex Gift from Boyfriend Ari Raptis
--  Dopo il caso Autovelox. Due nuovi Photored ad altrettanti incroci ritenuti pericolosi
--  Sunak raised doubts over Rwanda migrants plan as chancellor – report
--  Quando la musica unisce le anime. A Sartirana il ricordo di Ezio Bosso
--  Dangote Refinery Receives Fifth One Million Barrels of Crude Oil Cargo
--  S to znano zadnjico so paparaci očitno obsedeni
--  Così la musica si (ri)prende il Forum. Tra Pausini, Club Dogo e Depeche Mode
--  Kerttu Niskanen kiinni jättisummassa
--  이순신 장군의 마지막 '노량: 죽음의 바다' 400만 돌파
--  "돈이면 다 OK? '암표' 판치는 사회에 장범준이 던진 질문"
--  Calza piena di sorprese, arriva la befana in 500
--  Zvezdi Slovenija ima talent "čudovitega fanta" druga speljala sredi plesišča
--  Finisce a carte bollate la disputa sul terrapieno
--  रामलला की प्राण प्रतिष्ठा में शिव की नगरी काशी का खास योगदान क्यों? जानिए पूरा मामला
--  Cani, gatti e Befane. Volontari in piazza per sensibilizzare e raccogliere fondi
--  Πρώτοi σκόρερ του Dakar Rally
--  Das sind aktuell die günstigsten Tankstellen in Kufstein
--  بھٹو، عمران، عجیب اتفاق
--  Milei viaja a la Antártida con el director de la OIEA para lanzar programa medioambiental
--  Dreikönigstreffen der Liberalen in Krisenzeiten
--  Bursalılar güneşli günlere 'elveda' deyin!
--  В Супсехе проходит рождественский турнир по мини-футболу
--  فرنسا تبلّغت رد "الحزب" على مسعاها: الرد آتٍ لا محالة
--  Igor Ž. Žagar: Drvimo v katastrofo, a to nikogar zares ne vznemirja
--  FDA finds high levels of chromium in applesauce traced to lead poisoning outbreak
--  La rassegna natalizia in metropolitana. Si chiude in bellezza con De Andrè
--  Angela Dugalic and Lauren Betts power No. 2 UCLA to victory over Oregon
--  Delta State Governor Appoints Harrysong As Executive Assistant
--  Αύξηση των αυθαίρετων εβραϊκών οικισμών στη Δυτική Όχθη, μετά το ξέσπασμα του πολέμου στη Γάζα
--  BEL में अप्रेंटिस के पद पर चल रही है भर्ती, ये योग्यता है तो फटाफट कर दें अप्लाई, ऐसे होगा सेलेक्शन
--  Zendaya Unfollows Everyone on Instagram After Celebrating the New Year
--  [경찰, 범행 전날 이재명 습격범 태운 차주 참고인 조사
--  50% Of Pupils In Enugu State Cannot Read, Says SSG
--  Pennsylvania ag officials search Miller Organic Farm for the source of Shiga-toxins
--  Propadajoča smučišča: Čakanje na novo ledeno dobo
--  Gogi
--  Gençler için şiir gibi etkinlik
--  Πολλοί οι σφετεριστές ε/κ περιουσιών και οι βοηθοί τους - Τι αναφέρει στον «Π» ο ΥΠΕΞ
--  [“‘할아버지차’는 옛말”…세련된 디자인에 ‘정석 세단’ 주행감 더했다 [시승기 - 캐딜락 CT5]
--  BVB plant offenbar Transfer-Coup – englischer Nationalspieler von Manchester City im Anflug?
--  Allarme topi e degrado, scattano i controlli della Polizia locale
--  Afiniti incorpora a Mike Myshrall como director financiero
+-  계약 6개월 남았는데 임대? 리버풀, 바르사의 유리몸 이적 제안 거절한다
+-  قوات الاحتلال تعتقل ثلاثة شبان وتعتدي عليهم بالضرب المبرح قرب بيت لحم
+-  المقاومة: الادارة الأمريكية شريكة بالعدوان على غزة وعليها الاعتراف بالخطأ
+-  استقرار مؤشرات الأسهم الأميركية
+-  وصول عائلات أسرى إسرائيليين إلى قطر لبحث التوصل إلى صفقة تبادل
+-  قوات الاحتلال تقتحم عدة بلدات بالقدس المحتلة
+-  Coşkun Başbuğ yazdı: Sakıncalı Atatürk
+-  Gişe bariyerine çarpan yolcu otobüsü alev aldı: 6 kişi yaralandı
+-  Terör devleti İsrail'in KKTC planı bozuldu! Ersin Tatar duyurdu! Limit getiriliyor
+-  46 ilde "Narkogüç-42" operasyonu: 364 zehir taciri ve sokak satıcısı yakalandı
