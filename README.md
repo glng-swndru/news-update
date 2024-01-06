@@ -1,51 +1,51 @@
 # Latest News
--  Ross Branch e de Mevius conquistam primeira etapa na Arábia Saudita
--  Pelo menos 11 mortos em ataque russo no leste da Ucrânia
--  BW Businessworld Supply Chain Competitiveness Summit & Awards 2023: Top Achievers
--  PSG acusado de tentar subornar jornalista para dar Bola de Ouro a Messi
--  Al Mayadeen: Израиль нанёс удары по окрестностям городов Тир и Сайда в Ливане
--  Lenglet được Napoli săn đón
--  Phóng viên xinh đẹp đáp trả "gắt" với antifan
--  Depay fires Atletico past Lugo into Copa del Rey last 16
--  BREAKING: Delhi School Holidays Extended: Winter Vacation Extended Till This Date Due To Severe Cold
--  Łotwa jest drugim po Hiszpanii importerem rosyjskich produktów rolnych i spożywczych w UE
--  Plataforma electoral del JNE permite conocer precandidatos a comicios internos
--  ¿Quién será capitán de Alianza Lima? Adrián Arregui opinó sobre esa posibilidad con reflexivo mensaje
--  Coupe de France : Clermont et Allevinah qualifiés pour les 16es
--  Forman grupo de trabajo que emitirá propuestas para estímulos para cine y audiovisuales
--  2-4. El Jimbeé Cartagena, primer finalista tras una remontada en el tramo final
--  Las noticias de América hoy: Chicote Calderón, Néstor Araujo y debut de la Femenil
--  ATU: cámaras inteligentes vigilarán corredores de Lima las 24 horas [video]
--  Valverde: "No nos consideramos favoritos, es una eliminatoria abierta"
--  Warum die Kleiderstube in Edingen auf mehr Zulauf hofft
--  La fronteriza Ciudad Juárez cierra 2023 con 25 feminicidios, el mayor número en México
--  فقوموا إلى خيلكم !
--  لاجئ
--  رأس الحال فى رأس العام
--  سكك حديدية: مجمع "جيتراما" يتطلع للمساهمة في تقليص آجال إنجاز المشاريع
--  آهِ يا وجع القلب ياغزّة..
--  Braless Amanda Holden's cheeky six-word 'bum' outburst leaves co-star Alan Carr cringing
--  قصر مصطفى باشا..
--  King Charles ‘will pull funding for private security’ at Prince Andrew’s 30-room mansion in Windsor if he stays
--  رسائل مصورة لجنود إسرائيليين اعترف جيشهم بقتلهم - فيديو
--  آبل تسحب تحديث iOS 17.3 بعد ساعات من إطلاقه.. ما السبب؟
--  خبير بريطاني: روسيا لم تضرب كييف حتى الآن بأقوى صواريخها
--  الاحتلال يعترف بمصرع قائد فرقة
--  Клуб НХЛ "Чикаго" поместил Бедарда в список травмированных
--  تأثير اضطراب النوم على صحة الذاكرة …لا يفوتك
--  Trois skieurs surpris par une avalanche près d'Auron, l’un d’eux en partie enseveli et légèrement blessé
--  Пакистано-китайская ось стоит за новыми террористическими атаками в индийском регионе Кашмир
--  لاعب مانشستر يونايتد يقترب الانضمام إلى إشبيلية على سبيل الإعارة
--  পটুয়াখালী-৪: মামাতো-ফুফাতো ভাইয়ের ভোটযুদ্ধের আভাস
--  Kickoff | Riveiro: To get a trophy is always something special
--  Oekraïne: elf doden door Russische raketaanval op Pokrovsk
--  La inquilina Novela Turca capítulo 8: Neslihan duda de Murat al verlo junto a otra mujer
--  لكشف التهديدات.. ما هو نظام تل شميم الإسرائيلي؟
--  సీఎం జగన్‌ అప్పుల అప్పారావు
--  Nepalski radnik u BiH: Zadovoljan sam i imam finu platu, dovoljna je za život
--  AK Parti beyannamesinin çerçevesi ne?
--  ABD Dışişleri Bakanı Blinken'ın Türkiye ziyareti protesto edildi
--  16 ülkeyi kapsayan arabuluculuk birliği kurulacak
--  طنجة العاصمة الدبلوماسية التاريخية للمغرب، بوابة التراث العالمي وملتقى الحضارات والثقافات (الجزء الثاني)
--  100 مسؤول إسرائيلي سابق في الجيش و"الموساد" والشرطة يكشفون عن "جبهة حرب جديدة" أمام بلادهم
--  تظاهرات حاشدة في تل أبيب وحيفا للمطالبة برحيل نتنياهو وحكومته
+-  Vierschanzentournee: Kobayashi gewinnt, Wellinger verpasst Triumph
+-  اللجنة الاولمبية والبارالمبية تعلن نتائج التقييم الفني الثاني لعام 2023
+-  Miért likvidálták a Hamász második számú vezetőjét?
+-  Minsa entregará cupos para la venta de comida en el Desfile de las Mil Polleras
+-  Прямая трансляция матча Рыбакина — Соболенко в финале турнира в Брисбене
+-  Rusya, Ukrayna'ya füzeyle saldırdı... 11 kişi hayatını kaybetti
+-  Donmuş et çözmenin pratik yöntemi! Meğer bu kadar basitmiş
+-  Samsunspor, sahasında Fatih Karagümrük'ü devirdi
+-  Sjajna Hrvatska slomila Slovence i podigla trofej uoči Eura! U neobičnoj postavi pokazali smo ‘ono nešto‘
+-  CTA, Metra to offer free rides late New Year’s Eve
+-  CTA, Metra to offer free rides late New Year’s Eve
+-  Roermond neemt afscheid van geliefde 'bisschop Harrie'. 'Ik vraag Onze Lieve Heer: waar slaat dit op?'
+-  Британија мора да деактивира два воени брода за да ги прераспредели морнарите на нови фрегати
+-  Kipakka pakkanen jatkuu vielä sunnuntaina, mutta lännestä on saapumassa varsin lämmintä säätä
+-  Empoli Milan, turnover in difesa? La coppia centrale sarà questa
+-  Мають зняти блокаду: уряд Польщі уклав угоду з фермерами
+-  #PulsoEmpresarial ¿Tienes un dispositivo nuevo? Consejos para protegerlo y desechar el viejo con seguridad
+-  How to Train Your Dragon Remake Adds Series Alum Gerard Butler
+-  "אני תומכת בחמאס, יהודיות מז****": משחק תיכונים בארה"ב פוצץ בגלל אנטישמיות
+-  Elizabeth Ann Shuttleworth
+-  Μεσανατολικό: Η Γαλλία καλεί το Ιράν "και τους συνεργάτες του" να σταματήσουν αμέσως τις αποσταθεροποιητικές ενέργειές τους
+-  „Alarm für Cobra 11“-Star verunglückt: Christian Oliver stirbt bei Flugzeugabsturz
+-  „Alarm für Cobra 11“-Star verunglückt: Christian Oliver stirbt bei Flugzeugabsturz
+-  Karnataka govt seeks to amend property tax payment rules
+-  VÍDEO: o resumo da vitória do Farense sobre o Gil Vicente nos descontos
+-  BBB | Valentina Bandeira desabafa após ser cortada por falar demais: "Tristeza"
+-  „Zeitplan überschritten“: Tuchel schlägt Transfer-Alarm nach Bayern-Rückschlag
+-  Ar surasite tris širdis, kurios pasislėpė tarp drugelių?
+-  Japanac za povijest: Kobayashi osvojio Četiri skakaonice bez ijedne pobjede
+-  Berichte: Werner-Wechsel zu Tottenham fix – Rose wünscht schon „alles Gute“
+-  Число военных Израиля, погибших с начала наземной операции в Газе, достигло 176
+-  Ivan Toney bags hat-trick in Brentford return as Arsenal and Chelsea links intensify
+-  Gesundheit: Brain Fog: Wann Sie zum Arzt sollten und was hilft
+-  La befana sceglie il tendone di San Martino per incontrare i bimbi
+-  Schreck im EM-Test: Groetzki verletzt ausgewechselt
+-  BVB-Leistung beim 2:2 gegen Alkmaar wirkt Fragen auf: Erste Elf ohne Konzept und Biss
+-  BVB-Leistung beim 2:2 gegen Alkmaar wirkt Fragen auf: Erste Elf ohne Konzept und Biss
+-  A96 near Keith closed in both directions due to overturned HGV
+-  Unesp expulsa 4 universitários por trote violento que fez com que aluna fosse internada na UTI
+-  Possibility that surprise Tottenham star who has been injured all season could move to Man United in January
+-  Barbie’s Greta Gerwig Reveals Why She And Longtime Partner Noah Baumbach Decided To Get Married After Being Together For 12 Years
+-  Violento arranque de año 2024 en México; reportan 308 asesinatos
+-  RPSC परीक्षा की वजह से शहरी और ग्रामीण क्षेत्रों में आज 5 घंटे तक बंद रहेगा इंटरनेट
+-  DNT: Trenger flere frivillige
+-  Καιρός: Πού θα χτυπήσουν επικίνδυνα καιρικά φαινόμενα – Χαλάζι και ανεμοστρόβιλοι τις επόμενες ώρες
+-  Spektakularne hale čekaju "orlove" u Nemačkoj! (VIDEO)
+-  Almgrens soloprestation förlängde ESK:s segersvit
+-  Central do Cidadão não fará atendimento para isenção de IPTU nos próximos dias
+-  Paul Michael Glaser Remembers ‘Starsky & Hutch’ Castmate And Friend David Soul
+-  Bóka EU-ügyi miniszter most egy finn lapnak magyarázgatta, hogy „az országgyűlés egyes tagjainak kétségei és aggodalmai” miatt blokkoljuk a svéd NATO-csatlakozást
