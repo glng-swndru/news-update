@@ -1,51 +1,51 @@
 # Latest News
--  "ההודעה ממעיטה מגודל המחדל": אימו של תמיר אדר טוענת כי נחטף לעזה בעודו בחיים
--  عاجل الخارجية: الصفدي يلتقي نظيره الأميركي غدا
--  مصادر لشبكة إن بي سي: إسرائيل تقف وراء اغتيال العاروري
--  High water peak on the Rhine River is not as bad as predicted
--  [오세훈 '퇴근길대란' 명동 버스정류장 점검…"보완책 조속마련"
--  [유영, 종합선수권 쇼트 2위…부진 털고 반등하나
--  أطعمة سحرية تخلصك من دهون البطن!
--  حمّل تطبيق (أردني).. وتعرّف على منتجات بلدك
--  امسكي يمّا.. شاب من غزة يسحب أمه الجريحة برصاص قناص
--  Dan Negru, luat la mișto de un român stabilit în SUA: „Iar debitează prostii“ VIDEO
--  Ranji Trophy | Karnataka’s Padikkal and Pandey notch up centuries to drive home the advantage
--  אמו של תמיר אדר: "הוא נחטף חי - אם המדינה הייתה מתפקדת הוא היה ניצל"
--  השופטת החליטה: בקשתה של שר לאפוטרופסות על בנה נדחתה זמנית
--  מפצה על הזלזול? לא תאמינו מה ההפתעה שקיבלה סימון ביילס מבעלה
--  FC Bayern: Daniel Peretz fällt mit Knieverletzung aus
--  התרעת חדירת כלי טיס עוין בגליל
--  – كلية الاقتصاد جامعة سرت تنظم محاضرة بعنوان (مخرجات محاسبية لسوق مثالية )
--  Dự án ‘siêu cảng’ Trần Đề có gì đặc biệt?
--  Usta sanatçı veda… Ayla Algan son yolculuğuna uğurlandı
--  Swiss MP visits Coimbatore
--  هذا ما يحدث للكوليسترول في جسمك عند شرب الشاي يوميا
--  لبنان: نحن طلاب سلام لا دعاة حرب ويجب وقف الاحتلال انتهاكاته ضد سيادتنا
--  "تعاملوا معنا كحيوانات".. المرصد الأورومتوسطي يوثق شهادات تعذيب لمعتقلين من غزة لدى الاحتلال
--  Hawks attivi sul mercato, Trae Young e Jalen Johnson unici intoccabili
--  أعراض تشير الي الإصابة بتصلب الشرايين.. أغربها فقدان الشهية
--  بعد إعلان ظهور حالات بمصر.. علامات تدل على الإصابة بمتحور كورونا الجديد JN1
--  فحص مومياء توفيت أثناء المخاض يكشف عن "سر مرعب"
--  Grenierová vyhrála obří slalom V Kranjské Goře. Jelínkové utekl postup
--  Ursula von der Leyen: Ratkaisu Ukrainan tukemiseksi saatava mahdollisimman pian
--  هل تم القبض على محمد رمضان في مطار القاهرة؟
--  За шести път Мартин Пеев "спаси" кръста в Асеновград
--  Livermore claims the HPSL Golconda Oaks
--  IJZ: Povećan broj djece vakcinisane MMR vakcinom
--  News24 | Boy,16, drowns at Muizenberg beach
--  Trei bărbaţi, reținuți pentru viol. Au fost filmaţi în timp ce întreţineau relaţii sexuale cu o femeie într-un bar
--  Grenije pobednica veleslaloma u Kranjskoj Gori
--  غزہ: اسرائیل نے150لاشیں چرا کر 1100 قبریں اُکھیڑ دیں
--  Acht Tonnen Kokain: Bolivien meldet seinen größten Drogenfund aller Zeiten
--  Московское «Динамо» разгромило «Куньлунь» в матче КХЛ, забросив семь шайб
--  „Tai nutiks pirmą kartą per 240 metų.“ Putino laukia šokas. Rusija gavo juodą ženklą
--  Laukiamas svečias. Kurios šalys nori priimti Putiną
--  „Valgo konservus ir panašus į lavoną.“ Zelenskio buitis bunkeryje
--  [ŽT] Sandėris atšaukiamas. Kas nutiko
--  [ŽT] Rusų „Pancir“ - 0, Ukrainos žemė – 1 (Video)
--  Baisiausias rusų košmaras – 4 metrų ilgio MGM-140 ATACMS. Iš JAV ateina geros naujienos! (Foto)
--  Waldemar Buda: Jeden blok zbudowany przez trzy lata przez Krajowy Zasób Nieruchomości? Proces inwestycyjny trwa cztery lata, więc nikt by więcej nie wybudował
--  विधानसभा अध्‍यक्ष देवनानी और मुख्‍यमंत्री भजन लाल शर्मा की शिष्‍टाचार मुलाकात
--  Дания задержит на полгода передачу Украине истребителей F-16
--  Video: Đajić i Amidžić snimljeni dok pjevaju pjesmu o Draži Mihailoviću
--  Was Max Kruse nach seinem Karriereende plant
+-  Un homme s'écroule en plein centre-ville de Metz, victime d'un malaise cardiaque
+-  A kerecsensólyom lett az év madara
+-  Soccerladuma | Ivory Coast FA Boss Names Three AFCON Favourites
+-  ราชทัณฑ์ แพร่เอกสารชี้แจงปม ‘ทักษิณนอกคุก’
+-  جمعيات الوقاية: وفاة 49 ألف بفرنسا باستهلاكهم المشروبات الكحولية .
+-  Petrović: Došao sam u Zrinjski da budem prvi
+-  Viši sud u Beogradu - Krajem januara počinje obnovljeno suđenje za zločin u Štrpcima
+-  Vulin: Sandulović priveden po mom nalogu, da je položio vijenac na...
+-  Why do glam socialites who marry aristocrats never show their husbands? Stars such as Emma Weymouth and Kitty Spencer share snaps of glamour trips around the world - but their partners are never pictured
+-  제로베이스원·피프티피프티, 신인상 "일어나게 해준 팬들 덕분"('38회 골든디스크')
+-  Kate Garraway’s Financial Struggles Amidst Husband Derek Draper’s Illness and Passing
+-  Petrović: Čim sam dobio ponudu Zrinjskog rekao sam da pristajem
+-  Grenije pobjednica veleslaloma u Kranjskoj Gori
+-  U Herceg Novom 2,84 hiljade turista
+-  Amerika: Putnički avion prinudno sleteo, ostao bez dela trupa i prozora
+-  Porastao broj djece vakcinisane MMR vakcinom
+-  Dug put Tri mudraca do Kelna
+-  Objavili brošuru o seoskim domaćinstvima
+-  Près de Toulouse. C'est quoi ces petits personnages graffés sur les murs ?
+-  L'École nationale vétérinaire d'Alfort suspend son compte Twitter : voici pourquoi
+-  Ekonomisti očekuju globalno smanjenje inflacije
+-  Félelmetes: láncfűrésszel támadt a rendőrökre egy taksonyi férfi
+-  Защитник сборной Казахстана перейдет из клуба РПЛ в "Астану" - подробности
+-  Επέστρεψε στη Χάιντουκ με… ένα ευρώ τον μήνα ο Κάλινιτς!
+-  DUŠKO TOŠIĆ SA ĆERKAMA OTIŠAO U SELO ORLOVAT! Objavio sliku s slavlja, a svi se pitaju s kim će Karleuša slaviti Božić
+-  Art Gallery for City
+-  Theatre groups point out ‘room for improvement’ in Thimeli plan
+-  Victoria Chinatown's oldest business is up for sale
+-  طلبة الثانوية العامة يواصلون تقديم امتحان التوجيهي
+-  Mom fights to have case reopened after teen dies from lethal dose of date-rape drug
+-  توشيبا تغلق واحدًا من مصانعها بسبب زلزال اليابان
+-  Idées recettes. La galette des rois vous l'aimez comment : sucrée... ou salée ?
+-  Foreign Tourist Visit to Batam Increased, Mostly from Singapore
+-  Amsterdamse advocatenorde onderzoekt beschuldigingen Kasem
+-  Village Postmistress Urges Ex-CEO Paula Vennells to Return CBE Amidst Scandal Fallout
+-  Abg Jo: HR, talent devt crucial in securing S’wak’s developed status
+-  7-9 января в Грузии ожидается неустойчивая погода
+-  Adobe Acrobat Reader DC 2023.008.20458
+-  Odermatt sorgt für nächstes Spektakel in Adelboden
+-  Brazilian World Cup-winning legend sadly passes away
+-  Wiljan Laarakkers veertig jaar actief bij IICH
+-  Survivor: Τι θα δούμε στην πρεμιέρα – Το πρώτο έπαθλο και η ασυλία
+-  River HOY: arranca la pretemporada, las bajas que va a tener Demichelis y últimas noticias
+-  BAE ile yapılan anlaşma tepki çekti
+-  Jubo Dal involved in Benapole Express fire, police say
+-  ŞOK! Məhşur müğənni bir gün içində MİLYONÇU OLDU – Görün, bu necə baş verib…
+-  Mehr Rüstungsproduktion in der Slowakei und Ungarn: Ukraine profitiert vom Boom
+-  Manila medical emergency equipment deployed for Traslacion 2024
+-  Pertemuan Presiden-Ketum Golkar, Ridwan Kamil: Bahas Dinamika Politik
+-  Реал драстично намали парите, които предлага като бонус на Мбапе при трансфер в Мадрид - Труд
