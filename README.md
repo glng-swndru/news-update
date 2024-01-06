@@ -1,51 +1,11 @@
 # Latest News
--  천당과 지옥 오간 고우석, 메이저리거 꿈 이루다[스한 위클리]
--  Системски колапс и дисфункција на администрацијата: Поранешен амбасадор посочи на проблемите со вадење пасош
--  حظك اليوم وتوقعات الأبراج 7-1: فرصة عمل مميزة.. وأموال كثيرة لهؤلاء
--  Após homem sair de facção, criminosos vão até onde ele mora, expulsam crianças e colocam fogo em casa; VÍDEO
--  Aksa Tufanı İsrail'i karıştırıyor! İstihbarat ve ordu arasında kriz
--  Malatya'da 3,1'lik deprem
--  ABD'de işlenen imam katliamına tepki sürüyor! "Katilini bulun"
--  Zonguldak'ta feci kaza! Otomobil ikiye bölündü: 1 ölü, 4 yaralı
--  U-18 Hentbol Milli Takımı farklı yenildi!
--  İsrail'de erken seçim sesleri! Netanyahu'ya tepkiler anbean yükseliyor
--  La faculté de médecine de l’UK se dote d’un laboratoire moderne
--  Fiorentina'ya Sassuolo çelmesi!
--  İsrail askeri Filistinli öğrencilerle alay etti! "Sizi bombaladık. Artık asla mühendis olamayacaksınız"
--  భారత్‌తో టీ20 సిరీ్‌సకు అఫ్ఘాన్‌ కెప్టెన్‌గా జద్రాన్‌
--  [바이오연료·전기차 윤활유 등 ‘非정유’에 힘주는 정유업계 [비즈360]
--  [증권사 목표가 ‘9만2000원’이면 삼성전자 홀로 코스피 2700선 뚫는다 [투자360]
--  [‘악마를 보았다’… 친딸 성폭행 父 선처해줬더니 또
--  [“B(바이오)·I(인터넷)·C(반도체) 주도 강세 기대…美경기후퇴는 잠재리스크” [리서치센터장에게 듣는 2024 증시①]
--  [갑진년에도 IPO 큰 장 선다…‘갑진 따따블’ 노려볼 종목은? [투자360]
--  [제니는 ‘여전히 잘 지낸다’고 했지만…YG 주가는 ‘잘 못지내는 중’ [투자360]
--  [충무공 르뽀, 전직 기자 조진태 ‘이순신의 바다..’ 출간
--  Pizarro defende que críticas da direita ao SNS visam abatê-lo
--  Neki od putnika ozlijeđenih u jutrošnjoj nesreći u životnoj opasnosti
--  "Militärstruktur demontiert": Israel meldet Zerschlagung der Hamas im Norden
--  Hasil, Top Skor, Klasemen Liga Italia Pekan Ke-19: Inter Milan Jadi Juara Paruh Musim Usai Kalahkan Verona 2-1
--  La Tarde Celeste 2024: Cómo ver EN VIVO la transmisión del partido de Sporting Cristal vía Latina Televisión
--  భారత్‌-ఎ సారథిగా అభిమన్యు
--  Citypress | Editorial | World must back SA in its call to end genocide - one of the most heinous atrocities
--  Путин встретил Рождество в храме Спаса Нерукотворного Образа
--  El mundo del fútbol lamenta la muerte de Mário «Lobo» Zagallo quien levantó la copa en 4 de los Mundiales ganados por Brasil
--  నాకు కావాల్సిందంతా కాంగ్రెస్‌ ఇచ్చింది
--  В ЛНР прихожане в Рождество молятся за бойцов на фронте и мир
--  Leser-Fotos: So schön ist der Main-Kinzig-Kreis
--  Department continues to ‘engage’ on plan to house asylum seekers in Mayo hotel
--  BVB News: Was Edin Terzic beim Testspiel gegen Alkmaar "nicht gefallen" hat
--  Una «programación contundente» para celebrar los 40 años del Festival y las ganas del público
--  ¿Te gustan las cartas astrales? Día Mundial de la Astrología. Todo lo que debes saber
--  Michael Lowry says dispute over Moriarty Tribunal costs now settled
--  Prievidza vyhrala na palubovke lídra, šancu dostal sedemnásťročný mladík
--  ముంబైతో పోరుకు రెండు జట్లుగా వచ్చి..
--  El Nadal se tiñe de negro con un 'thriller' rural de César Pérez Gellida
--  Anvisa aprova registro definitivo de pílula anti-Covid da Pfizer
--  The Masked Singer fans convinced that Hollywood actress is behind Eiffel Tower after string of ‘glaring clues’
--  Ibogaine, Found in African Rainforest Plant, Offers Hope for Veterans’ Traumatic Brain Injuries: Stanford Study
--  В Турции второй раз за сутки отбуксировали танкер, следовавший в РФ из Испании
--  wO Community Review: Evotec: „Eine große menschliche Enttäuschung“
--  Actualité : Bon plan – Le clavier Logitech MX Keys Mini Rose "5 étoiles" à 79,90 € (-16%)
--  De la calma a la tormenta: cómo se vivió el temporal de granizo en las playas de Mar del Plata
--  가자지구에 계속되는 폭발 연기
--  Shorthanded goal sinks Flames in road loss to Flyers
+-  فوائد زيت بذر الكتان للشعر وطرق استخدامه لشعر ناعم ومفرود
+-  ما هي تجربتي مع حمض الفوليك للحمل بتوأم
+-  ZA OVA ČETIRI HOROSKOPSKA ZNAKA STIŽU TEKTONSKE PROMENE U KARIJERU U 2024: Došlo je vreme da vam se vrati sve što ste radili
+-  Fallece el monseñor Pablo Varela Server
+-  맨유, 결국 '월클 CB'과 재계약 준비 중! "새로운 계약 열망하고 있다"...단, 조건이 있다?
+-  "겨울철 노로바이러스 기승"...5주 새 3배 가까이 급증
+-  레알 마드리드 득점 1위 MF, 라리가 규정 무시 '충격'→경기때마다 위반 '모른척'…13골 득점 선두 비결인 듯
+-  5 điểm nhấn Chelsea 4-0 Preston: Dấu hỏi Nkunku; Thông điệp của Gallagher
+-  Vídeo mostra perseguição de helicóptero a carro roubado em Rondônia
+-  NASA Fosters Partnership with Private Companies to Pave the Way for Commercial Space Stations
