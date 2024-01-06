@@ -1,51 +1,11 @@
 # Latest News
--  습격범 숙소로 태워준 인물 누구? “李 지지자, 처음 만난 사이”
--  김정은, 日 기시다 총리에 이례적 위로…‘각하’ 존칭도 썼다
--  "حزب الله" يستهدف 3 مواقع لجيش الاحتلال في جنوب لبنان
--  كتائب شهداء الأقصى: استهدفنا قوات الاحتلال المتوغلة في نابلس
--  Chris Paul s’est blessé à la main gauche face aux Detroit Pistons
--  Úrady zhabali rekordnú zásielku kokaínu: Pravdepodobne smerovala do Európy
--  Expolicajta odsúdili na 14 mesiacov za jeho podiel na smrti Afroameričana
--  Počet obetí ničivého zemetrasenia sa vyšplhal na 100
--  Vợ chồng Danh Cúc Welax "bật mood" háo hức nhất WeChoice Awards 2023: Đã chuẩn bị outfit để dám rực rỡ!
--  Ngôi sao đắt giá nhất Nhật Bản chấn thương, khó lòng đấu tuyển Việt Nam
--  Mladík ukradol z pumpy 2000 eur: Pred odchodom zaplatil za nápoj
--  Thị trường bất động sản khát nguồn cung, giá nhà tăng liên tục, dự báo khó giảm
--  Ticaret Bakanlığı'ndan 58 firmaya 86 milyonluk para cezası
--  Hüseyin Gülerce yazdı: AK Parti İstanbul adayı
--  Hezbollah leader says his group must retaliate for suspected Israeli strike in Beirut
--  Jelang Debat Ketiga, 125 Jenderal Anggota Timnas AMIN Beri Masukan ke Anies
--  끓는 물에 동상 손가락 넣은 '경성크리차' 731부대, 그 숫자에 '엄지 척' 아베
--  নির্বাচন উপলক্ষে ইবির ক্লাস-পরীক্ষা স্থগিত
--  अनोखा चर्च जिसमें सड़क के एक तरफ पादरी, तो दूसरी तरफ होते हैं लोग
--  용산 대통령실 진입 시도한 대학생 단체 회원 20명 연행
--  Darvin Ham says that he and the Lakers brass are 'all aligned' amid speculation that his job could be at risk... before the Lakers fall to the Grizzlies 127-113
--  എന്താണ് സ്നോർക്കെല്ലിംഗും സ്കൂബ ഡൈവിങ്ങും തമ്മിലുള്ള വ്യത്യാസം ?
--  Grizzlies coach Taylor Jenkins LOSES IT as LeBron James appears to elbow Jaren Jackson Jr while battling for a loose ball... but the Lakers star avoids punishment despite his fury
--  Пушилин предложил наградить всех героев СВО
--  Impallomeni su Pinto: "C'è un mercato in corso, questo addio alla Roma stride"
--  EU-China Einstein Probe set for launch - TWIRL #146
--  EU-China Einstein Probe set for launch - TWIRL #146
--  Rencana Jokowi dan Ma'ruf Amin Setelah Pensiun Jadi Presiden dan Wakil Presiden
--  Vườn trồng loại cây ra quả đặc sản, ông nông dân Sóc Trăng hái 10 tấn, bán hết lãi 350 triệu
--  AK Parti’nin İstanbul adayı kim olacak? Ahmet Hakan yazdı: Kurum, Bayraktar, Turan, Yerlikaya...
--  Rüyada Timsah Görmek Ne Anlama Gelir? Rüyada Timsahtan Kaçmak Neye İşarettir?
--  Cem Vakfı'nda vekalet krizi: İzzettin Doğan'ın oğlunun vasiliği kaldırıldı
--  ABD Başkanı Biden: Trump, Amerikan demokrasisine tehdit
--  ‘Mary Poppins’ actor Glynis Johns dies at 100
--  Rekrutmen Anggota KPPS di Sampang Diwarnai Kecurangan
--  중국서 '안전 문제' 162만 대 리콜하기로 한 테슬라, 원격 업데이트 예정
--  গরু চুরি করে পালানোর সময় গণপিটুনিতে ৩ জনের মৃত্যু
--  Bukan UU ITE, Kasus Aiman Witjaksono soal Polisi tidak Netral Dijerat Dua Pasal Ini
--  बिहार: मिथिलांचल के इस जिले में बनेगा दूसरा एम्स, केंद्र सरकार की लगी मुहर
--  Şeyma Subaşı Dominik'te... Paylaşım gecikmedi
--  No One Had Ever ‘beat’ Tetris. Then Came a 13-year-old Phenom.
--  Two cases of new corona variant reported in Pakistan
--  Aytən Səfərova görünüşünü dəyişdi
--  Akhil Bhartiya Marathi Natya Sammelan : शरद पवार आणि अजित पवार एकाच मंचावर? पिंपरी चिंचवडमधील नाट्य संमेलनाचं निमित्त
--  Ticaret Bakanlığı: 2023'te 58 firmaya, 86,2 milyon lira idari para cezası uygulandı
--  Nate Schmidt helps soaring Jets rally for 3-1 win over Ducks
--  راضي كرونيتش يصعب فكرة استمراره مع الميلان
--  400 parkir sementara atasi kesesakan di HSA
--  일가족 연탄가스 사망, 예행연습까지 했던 범인 잡은 단서는
--  রিজভীর নেতৃত্বে রাজধানীতে মিছিল ও পিকেটিং
+-  ১২৭ বিদেশি পর্যবেক্ষক, ৭৩ সাংবাদিক পেয়েছে ইসির নিবন্ধন
+-  Nyugdíjreform: már ki kellett volna adni a fenntarthatósági jelentést, az Orbán-kormány inkább mindent titkol
+-  Elkészült a felmérés, nem tetszik a többségnek, hogy szűkült a CSOK-ra jogosultak köre
+-  Domantas Sabonis records another triple-double as Kings hold off Raptors 135-130
+-  Two girls swept away by floods found dead
+-  جرمن ہالی ووڈ اداکار کرسٹیان اولیور اپنی دو بیٹیوں سمیت طیارہ حادثے میں چل بسے.
+-  "לעולם לא נראה דבר כזה מחוץ ליורוליג": ריאל ואפס לא נרגעות
+-  Πέλικανς - Κλίπερς 95-111: «Αφεντικά» στη Νέα Ορλεάνη (vid)
+-  Bí mật những cuộc chiến đẫm máu từ lòng đất - Kỳ cuối: Chuẩn bị tác chiến dưới lòng đất nguy hiểm
+-  Mưa nhỏ cũng có thể gây lở đất sau động đất ở Nhật Bản
