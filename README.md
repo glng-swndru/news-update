@@ -1,51 +1,51 @@
 # Latest News
--  अफगानिस्तान के खिलाफ तीन टी20 मैचों से बाहर हो सकते हैं भारत के ये दो दिग्गज क्रिकेटर, सामने आई ये बात
--  গোপীবাগে ট্রেনে অগ্নিকাণ্ড: বিশ্ববিদ্যালয় শিক্ষক ফেডারেশনের উদ্বেগ
--  হরতালের সমর্থনে মগবাজারে যুবদলের মিছিল
--  সোহেল ও জুয়েলের নেতৃত্বে রাজধানীতে হরতালের সমর্থনে মিছিল
--  ভাড়াটিয়া এমপি প্রার্থীদের ‘ভোটার কেনার’ প্রতিযোগিতা চলছে: ১২ দলীয় জোট
--  দিনাজপুরের হিলিতে ১০টি খড়ের গাদায় আগুন
--  নাটোরে দুই ট্রাকের সংঘর্ষে নিহত ২
--  ওয়ার্নারকে বিশেষ উপহার দিলো পাকিস্তান
--  বিএনপির বিরুদ্ধে ইসিতে অভিযোগ জানালো আ.লীগ
--  Socialite Wahu, 26, found brutally murdered in Airbnb
--  भारतीय नौसेना भर्ती 2024: भारतीय नौसेना की इस भर्ती के लिए आवेदन प्रक्रिया कल से शुरू होगी, ये उम्मीदवार आवेदन कर सकते
--  Flooding in Johannesburg: Vehicles submerged in CBD
--  Tres lideres sociales asesinados en Colombia en la primera semana del 2024
--  مراهق يقتل رفيقه ويصيب 5 آخرين وينتحر
--  Mercato: Sancho se rapproche de Dortmund, mais ça négocie encore avec Manchester United
--  GSSSB क्लर्क भर्ती 2024: चार हजार से ज्यादा पदों पर भर्तियां, इस तारीख तक कर सकते हैं आवेदन
--  Palo Alto turns back Los Altos as Jorell Clark scores 26 points to lead the way
--  ফেনীতে ভোটারদের মধ্যে টাকা ও খাবার বিলির অপরাধে ইউপি চেয়ারম্যানের বিরুদ্ধে মামলা
--  ഇനി ഡെബിറ്റ്, ക്രെഡിറ്റ് കാര്‍ഡുകള്‍ വഴിയും ജിഎസ്ടി അടയ്ക്കാം
--  У пассажирского самолета в полете вылетел иллюминатор
--  Умер знаменитый Марио Загалло
--  Cán bộ sai phạm nộp ngay tiền khắc phục hậu quả: Chỉ để được “miễn tử”?
--  Семьи заложников ХАМАС в Катаре: будут сами вести переговоры
--  GTA V leaving soon from Xbox Game Pass, here’s what you need to know about it
--  Hisbollah feuert Dutzende Raketen auf Israel ab: „Vergeltung“ für die Ermordung Aruris
--  Two is company, three is crowd - How did multiple Bihar teams turn up for Ranji Trophy match against Mumbai?
--  Slind står av Tour de Ski
--  নেত্রকোনার কেন্দুয়ায় চারটি ভোটকেন্দ্রে আগুন
--  Dnevni horoskop za 6. januar
--  Cộng đồng Liên Quân đang “ngất ngây” trước màn hoá thân tuyệt đẹp của nữ coser "2k5"
--  Lê Âu Ngân Anh tiết lộ thời gian ở cữ: Lo lắng mọi vấn đề của con, đỡ áp lực vì điều này
--  Cứ ngưỡng mộ Park Min Young "lão hóa ngược" ở ngưỡng U40, nào biết cô cũng nhờ vào loạt sản phẩm làm đẹp này
--  Vợ chồng quyết định chia đôi tiền nhà, đi thuê 13 triệu/tháng
--  Rừng cây ngũ sắc hot nhất đầu năm nay, nằm ngay vùng chiến trường xưa lừng lẫy của Việt Nam
--  Экс-полковник СБУ Стариков: количество ударов ВС России будет возрастать
--  NESVAKIDAŠNJA SCENA SNIMLJENA NOĆAS NA DORĆOLU Žena bacala stvari kroz prozor, a dole... komentari samo pljušte
--  Vandiperiyar rape and murder case: Victim’s father stabbed, allegedly by acquitted man’s relative
--  Elton rastet bei "Wer weiß denn sowas?" aus: "Nicht euer Ernst"
--  Borno Youths Take Fermented Human Urine, Camel Excretion, Lizard Dung, Mentholated Spirit In Soft Drinks To Get High – NDLEA
--  राजस्थान: जयपुर पहुंचकर पीएम मोदी ने पहली बार किया ये काम
--  Aussie Ajla takes the set
--  Aussie Ajla takes the set
--  Kotitalousvähennys on lisännyt työllisyyttä ja vähentänyt harmaata taloutta, arvioivat yrittäjät
--  Në zyrë apo në distancë, si duan të punojnë shqiptarët
--  Vali Demirtaş Bursa Emek-YHT Gar-Şehir Hastanesi Metro Hattı Projesini inceledi
--  Bursaspor Divan Kurulu Başkanı Galip Sakder: Hukuki mütalaaya başvurulmuştur
--  Bolu'daki 4,2'lik depremin ardından Naci Görür'den açıklama
--  İstanbulspor ile Fenerbahçe 49. kez karşılaşacak
--  Energy Storage Battery Inverter Market Analysis and Future Prospects for 2030
--  BİLDEF'in programında fenalaşan Mustafa Dursun'un sağlık durumu nasıl?
+-  Hữu Châu nhắn nhủ Thanh Sói Thanh Hoa về bên chân Phật em nghe
+-  Thiếu nợ, một cô gái đi tráo vàng giả và cướp tiệm vàng
+-  Xe tải, xe khách rủ nhau né trạm thu phí, đường dân sinh nát tan
+-  Saldanja za B92.net: Bolje da ne znate šta sam rekao Jagu VIDEO
+-  Arka cepte taşınan cüzdana dikkat! Sağlık açısından tehlike saçıyor
+-  BSI DiginoFest 2024 Pontianak Gelar Buersa Kerja dan Internship, Ini Cara Daftarnya!
+-  Parzinger: Auch künftig Rückgaben von Kulturgütern
+-  Brasilien trauert um Fußball-Ikone Mario Zagallo
+-  Đội hình U21 ấn tượng nhất Serie A năm nay: Juve thống lĩnh
+-  الأندية الرياضية في الجفرة تتفق علي تشكيل تنسيقية موحدة.
+-  الاهلي طرابلس يقابل الاتحاد والسويحلي يقابل الاتحاد المصراتي ضمن الجولة الثالثة من دوري الكرة الطائرة
+-  Bố mẹ ép con gái lấy kẻ cưỡng hiếp mình, "rể hờ" vẫn không thoát án tù
+-  Không phải Toán hay tiếng Anh, cha mẹ có tầm nhìn xa sẽ bồi dưỡng cho con 4 điều này: Sau này rất dễ thành công
+-  Will và S.T Sơn Thạch hé lộ quá khứ trong nhóm 365: Cát-xê đầu tiên là 5 nghìn, một tháng được ra ngoài 1 lần
+-  Bác sĩ kể thời khắc cân não thông tim cứu sống bào thai ngay trong bụng mẹ
+-  Bắt "nữ tặc" cướp giật tiệm vàng ở Nghệ An
+-  [‘日노토강진’ 이후 지반 융기…해안선 바다로 최대 175ｍ 확장
+-  [“이러니 다들 넷플릭스 타령” 뭇매 맞더니…결국 ‘크게’ 터졌다
+-  [차준환, 피겨 종합선수권대회 쇼트 96.51점…압도적 차이로 ‘1위’
+-  Suriyeli Mossad ajanı Hatay'da vaaz bile vermiş
+-  Συνελήφθη ο 39χρονος δράστης της δολοφονίας του 49χρονου στα Λαγκαδίκια Θεσσαλονίκης
+-  Week van de Lieve Briefjes in Montfoort en Linschoten
+-  Heidi Klum's daughter Leni, 19, reunites with father Seal and her THREE SIBLINGS as the family hit the red carpet at The Book Of Clarence premiere in LA
+-  [속보] 대구서 만난 이준석·금태섭, 합당 가능성 시사
+-  K리그 605경기 뛴 골키퍼 김영광, 선수 생활 마침표
+-  일본 노토반도 강진 사망자 100명 넘었다…구마모토 지진 이후 8년만
+-  منخفض جوي ورياح قوية.. حالة الطقس المتوقعة على ليبيا اليوم السبت 6 يناير 2024
+-  Xankəndidə silah-sursat aşkarlandı
+-  Ostinin xəstəxanada olması günlərlə gizlədilib
+-  Bayden özünü Amerikanın xilaskarı hesab edir
+-  Insecurity in Nigeria has gone beyond control – Bode George
+-  Dosent elmi dərəcəsi alanların sayı açıqlanıb
+-  Ананиев: Ротацията може да се случи и с първия, и с втория мандат
+-  За сплату податків бронюватимуть від мобілізації? Стефанчук зробив заяву
+-  Actor Christian Oliver, daughters die in a plane crash
+-  «يامن» و«آدم» توأم عبقري يحصد المركزين الأول والثالث في مسابقة عالمية لحل المسائل المُعقدة
+-  Ukraina sulmon zonat ruse me dronë dhe raketa
+-  "حرييت": روسيا أهم مورّدي الطاقة إلى تركيا
+-  دون ضحايا أو سرقات.. هجمات مسلحة تثير الخوف في ليفربول - فيديو
+-  منظمة اليونيسف تحذر: أطفال غزة عالقون في كابوس يزداد سوءًا يوميًا
+-  إسرائيل تخشى إصدار "العدل الدولية" قرارا بوقف القتال في غزة
+-  طالب يقتل زميله ويصيب 5 في مدرسة أميركية
+-  صناعة الأردن: 736 مليون دينار صادرات الصناعات العلاجية والطبية العام الماضي
+-  طائرات إسرائيلية تقصف عدة بلدات في جنوب لبنان
+-  Uçağın penceresi ve gövdesi havada patladı. Yolcular ecel terleri döktü
+-  Rajaković i Bobi "zapečatili" katastrofalno veče Srba u NBA VIDEO
+-  La catedral de La Seo protagoniza la efeméride aragonesa del 6 de enero
+-  Sudan's Burhan says 'no reconciliation' with paramilitary RSF
+-  Oyuncu Christian Oliver ve iki kızı uçak kazasında öldü
+-  Аҳолига сифатли тиббий хизматни янада яқинлаштириш йўлида
