@@ -1,11 +1,11 @@
 # Latest News
--  רפאל נדאל בספק לאליפות אוסטרליה: "לא בטוח בשום דבר כרגע"
--  WKBL 올스타 페스티벌 1일차, 아산 지역 유망주와 함께 성료
--  '오빠시대' 우승자 신공훈 "상금 3억 입금됐다" [싱어송파이터]
--  '삼달리'에 '좀녀 부대'가 떴다…해녀 삼춘들의 불꽃 튀는 신경전 [오늘밤TV]
--  '메가+지아 쌍포 폭발' 정관장, 4수 끝에 GS칼텍스 이겼다→전 구단 상대 승리
--  Voorbereiden aanleg nooddam in Maastricht nagenoeg afgerond
--  Strafrechtadvocaten: kwestie Kasem raakt kernwaarde advocatuur
--  Meeste faillissementen in Denemarken sinds 2010
--  Keine Spitzenplatzierungen für die ÖSV-Biathleten
--  I njohur me nofkën “Bebi”, ekstradohet fieraku trafikant i heroinës në disa shtete
+-  Sturm "Zoltan" sorgte für große Schäden
+-  [“괌은 최고 경계, 지금이 안전” vs “범인 잡혀야 안심”
+-  [여야, ‘DJ 탄생 100주년’ 집결…“국민통합 이뤄내자”
+-  Keeper Horn unterschreibt bei Red Bull Salzburg
+-  Schiunfall mit Verletzungsfolge in Telfes im Stubaital
+-  Vážna choroba pľúc prichádza po špičkách, postupne strácate dych: Ohrozené sú tieto skupiny
+-  VIDEOROZHOVOR Andrej Danko priznáva veľký hnev voči Pellegrinimu: Správa sa povýšenecky, nebudem tolerovať jeho maniere
+-  Slávny spevák zvádza BOJ S RAKOVINOU: Nádor na mozgu a okamžitá operácia!
+-  Traktor mit Anhänger fängt Feuer: 300.000 Euro Schaden
+-  Ишанов Жавлон Хамидуллаевичнинг техника фанлари бўйича фалсафа доктори (PhD) диссертацияси иши ҳимояси тўғрисида
