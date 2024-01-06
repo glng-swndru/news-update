@@ -1,51 +1,51 @@
 # Latest News
--  עשרות שיגורים לעבר 90 יישובים בצפון - תמיר אדר מקיבוץ ניר עוז הוכרז כנרצח לאחר שנחשב נעדר במשך 90 יום | סיכום חדשות השבת
--  החמולות בעזה: "לא נחליף את שלטון חמאס, תומכים במה שקרה ב-7 באוקטובר"
--  "התעללת בנו, אני אהרוג אותך אם לא תהרוג אותי קודם": אחותה של כוכבת הטניס פירסמה פוסט מטריד במיוחד
--  טרור בים האדום: תקרית ימית סמוך למצרי באב אל-מנדב
--  مقتل 8 جنود إسرائيليين في كمين بخان يونس
--  Jymy-yllätys lähellä Tour de Skillä - Perttu Hyvärinen paras suomalainen
--  مانشستر يونايتد يساعد الأهلي على تعويض فيرمينو
--  Fire Destroys 10 Shops In Adamawa
--  Postales de la entrada de la Caravana de la Libertad a Sancti Spíritus
--  شبكة أميركية: إسرائيل أطلقت العملية "نيلي" لاغتيال قادة حماس
--  CHÍNH THỨC! Garnacho được Man Utd vinh danh
--  5 cựu ngôi sao của Newcastle đang thi đấu xuất sắc ở mùa giải 2023/24
--  Cijene bakra će “eksplodirati”, evo šta je razlog
--  Sekretari amerikan i Shtetit zbarkon në Turqi, çfarë bisedoi me presidentin Erdogan
--  It’s my time to shine – Judd Trump relishing Masters defence at Alexandra Palace
--  Olbernhau: Linke Gewerkschaft protestiert wegen einbehaltenem Lohn
--  Madenpapst in Zwickau: Kann eine Frau einen Mann mit ihren Brüsten umbringen?
--  "Arsch gerettet": Deutsches Team im Finale des United Cups
--  Sven Regener erhält den Paul-Lincke-Ring
--  Wegen Bauernprotest: Erzgebirger decken sich mit Obst, Fleisch und Toilettenpapier ein
--  Mike Pence visita soldados israelenses: “Os americanos estão com vocês”
--  Le défi "Roule Galette", organisé par Chartràvélo, a attiré 100 cyclistes à Chartres
--  Three cheers as Glassford Beer and Gin Festival returns
--  Korábbi magyar válogatott játékos lett a Kassa sportigazgatója
--  KCN Thành Thành Công xây dựng nhà máy xử lý nước thải công suất 15.000m3
--  Direktor ODIHR pisao Brnabić: Hvala na odličnoj saradnji Vlade Srbije i izborne posmatračke misije
--  كاساس عن ودية كوريا الجنوبية: واجهنا منافساً صعباً وسنزيد الجرعات التدريبيّة
--  KfW-Chefvolkswirtin warnt vor zu großer Zinssenkungs-Euphorie
--  Venezuela comienza un año electoral lleno de incógnitas
--  Приведени двајца албански државјани при транспорт на дрога во вредност од околу 10 илјади евра
--  FOTO VIDEO Vernici paljenjem badnjaka obeležili Badnje veče
--  الاتحاد الأوروبي يدعو لوقف دائم لإطلاق النار في غزة
--  Ratifican al concejal Manuel Quijada como presidente de la Cámara Municipal de Cumaná
--  Wetteränderung nach Hochwasser: Und morgen laufen wir Schlittschuh
--  Епископ Вяземский и Гагаринский Сергий совершил Божественную литургию в Свято-Троицком кафедральном соборе
--  إنتر ميلان.. «بطل الشتاء»
--  Гастроэнтеролог рассказал об опасности горячих напитков
--  Блогер Ивлеева записала видео из Петербурга на фоне слухов об отъезде из России
--  Varga patrí k najlepším už samého začiatku. V prvej etape bol rýchlejší len jeden jazdec
--  Plenković na tradicionalnom božićnom domjenku SNV-a: “Hrvati u Srbiji trebaju imati jednaka prava kao Srbi u Hrvatskoj”
--  Посетителям библиотек Серпухова рассказали о традициях Рождества
--  Hundreds sign petitions calling for Prince Andrew to be stripped of Earl of Inverness title over Jeffrey Epstein links
--  Achter de lach van Jan Boskamp schuilt verdriet: ‘Ik wil op Varkenoord zijn, maar het gaat gewoon niet’
--  Сити може да спечели 66 млн. от Калвин Филипс - Труд
--  Phát hiện chồng cho em gái 200 triệu, vợ làm căng thì điếng người với câu nói của anh ta
--  Simon najboljša na zasledovalni tekmi v Oberhofu, Lampič 19.
--  Liga Muslim Dunia Berduka Atas Wafatnya Imam Masjid New Jersey
--  Можно ли опьянеть от белорусских конфет с алкоголем?
--  KalPa osui, kun HPK:n ajatukset olivat jo erätauolla
--  Markermeer bereikt zondag hoogwaterpiek, wind stuwt al zeer hoge waterpeil op
+-  Osturinn er ekki búinn
+-  Yerba mate: cómo maximizar sus beneficios, cuál es la dosis letal, quiénes no deberían tomar y más
+-  FC Porto. Três processos a associados após desacatos em assembleia geral
+-  Perttu Hyvärisen huumori oli koetuksella - onneksi ei ollut mikkiä…
+-  ”Îmi pare rău pentru Gigi”. Thomas Neubert a făcut anunțul pe care patronul FCSB-ului nu și-ar dori, probabil, să-l audă
+-  الجيش يعلن انتهاء الاشتباكات: مقتل 5 مهربين وضبط 15 وطرد مجموعات للداخل السوري (صور)
+-  Uważajcie! Śnieg, silny mróz i szklanka na drogach. IMGW wydaje ostrzeżenia
+-  HydrogenPro ASA appoints Jeff Spethmann as Chief Executive Officer for US Subsidiary
+-  Pickleball play for beginners starts
+-  Musa MVP 19. kola
+-  Škrinjar mora na operaciju, višenedjeljna pauza
+-  Od Mojkovačke bitke 108 godina
+-  حبا فواد کی الیکشن کیلئے نااہل قرار دینے کی تردید
+-  Iraq thua Hàn Quốc trước thềm Asian Cup 2023
+-  Indrayani River Pollution Special Report : इंद्रायणी नदीमध्ये पुन्हा फेसाळलेलं पाणी, कारण काय?
+-  Polacy mistrzami Europy. Wielki sukces. Brawo, brawo
+-  Zamyslite sa, odkázal Feneš kritikom. Štrbák nechal za sebou Nemca, Valábika i Višňovského
+-  Polacy mistrzami Europy. Wielki sukces. Brawo, brawo
+-  إنتر يعزز صدارته للدوري الإيطالي
+-  Ливан потребовал от Израиля вывода войск с оккупированных территорий
+-  Ex-LDP Secretary General Toshihiro Nikai Questioned by Prosecutors over Hidden Funds on Voluntary Basis
+-  মগবাজার ও ‍মুগদায় ককটেল বিস্ফোরণ
+-  Mary Trump Predicts What Could Bring Donald Trump to 'Brink of Ruin'
+-  Jorge Carranza deja Instituto y se suma a un club de la Primera Nacional
+-  L'acteur Shia Labeouf envisage de devenir diacre
+-  Natália comete deslize e entrega herança para Marcos em 'Elas Por Elas'
+-  E gata! Lautaro Martinez a făcut anunțul: ”Sunt aproape să semnez”
+-  عاجل.. التأمينات: المستفيد يستحق دعم ساند للمرة الثانية بهذا الشرط
+-  «Στημένη» η ρίψη του Σταυρού στη Μυτιλήνη; Το βίντεο που έγινε viral με την ύποπτη κίνηση του ιερέα στον κολυμβητή
+-  2023-й став рекордним роком за кількістю нових ігор – цифра вражає
+-  Governorship: APC ‘ll take over Anambra in 2025- Ngige
+-  ভোটের দিন বেসরকারি হাসপাতালগুলোকে সার্বক্ষণিক প্রস্তুত থাকার নির্দেশ
+-  Украинские войска выпустили по Донецку шесть ракет из РСЗО
+-  Wolves muốn mượn tiền đạo của West Ham
+-  "Thật không công bằng khi Tottenham sa thải ông ấy"
+-  Encontraron a un joven apuñalado en un barrio de Regina: investiga cómo ocurrió el hecho
+-  Brignone apre il 2024 sul podio, terza nel gigante a Kranjska Gora
+-  Božinović: Policija utvrđuje identitet ozlijeđenih u nesreći na autocesti
+-  Video: Un herido de bala en Vista Alegre, durante violento conflicto entre familias por un terreno
+-  الهند تأمر بمعايير جديدة لتصنيع الأدوية بعد وفيات أطفال في الخارج
+-  Football. L'ASPTT Caen et l'AG Caen font trembler les filets en amical
+-  যশোরে ভোটকেন্দ্রে আবারও ককটেল বিস্ফোরণ
+-  Mira en vivo el lanzamiento del módulo de aterrizaje lunar Peregrine
+-  إشاعة: حصرية اكسبوكس Hi-Fi Rush في طريقها إلى Switch
+-  نتفلكس تفكر في تسعير الألعاب وإضافة الإعلانات مستقبلًا
+-  إشاعة: حلقة Xbox Developer Direct جديدة قادمة الأسبوع المقبل
+-  Mardin'de iki aile arasında silahlı kavga: 3 yaralı
+-  Fatih Erbakan'dan Ankara, İstanbul, İzmir için iş birliği sözleri
+-  Bakan Uraloğlu, Bayrampaşa'da vatandaşlarla bir araya geldi
+-  ITV The Masked Singer's Maypole identity 'confirmed as biggest star yet'
