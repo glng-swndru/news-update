@@ -1,11 +1,51 @@
 # Latest News
--  إسرائيليون يتظاهرون للمطالبة برحيل نتنياهو
--  أوباما يوجه بايدن في حملته الانتخابية
--  اللواء الدويري: المعارك الحاسمة تدور في وسط غزة
--  Escándalo en Francia: El PSG es investigado
--  Israël: Hamas in noorden van Gaza volledig ontmanteld
--  В Турции отбуксировали второй за сутки танкер, следовавший в Россию
--  NFL: Wer hat noch eine Chance auf die Playoffs? Der große Überblick! | Sport
--  Sofía Varela: “Me voy de la institución con un sin sabor muy grande y muy dolida”
--  Primeiro-ministro alemão elogia legado de Costa e felicita eleição de Pedro Nuno Santos
--  Supervisan operativo por retorno de temporadistas tras asueto navideño
+-  아시안컵서 ‘중동발 오심 피해’ 과연 없을까[초점]
+-  Italy Investment: Residency and Beyond
+-  Sieltä se tuli - SM-liigassa pitkä kakku kirvesiskusta
+-  Pedro Silva Pereira na Comissão Política do PS
+-  Raimundo diz que a lição que sai do congresso do PS é que é preciso reforçar o PCP
+-  Schmidt. "Decidimos o jogo cedo"
+-  PCP vai propor comissão parlamentar de inquérito à privatização da ANA
+-  Wie lange bleibt die Weihnachtsdeko? - In Leubsdorf noch länger
+-  Bu kişiler artık tapu işlemi yapamayacak! Sorunu çözmek için randevu alın, yeni uygulama 2024 yılı itibarıyla başladı
+-  Tramp dobio najveću podršku do sada
+-  İşgalci İsrail 5 bin 680 Filistinliyi gözaltına aldı
+-  AK Parti İstanbul İl Başkanlığının yerel seçim şarkısı belli oldu
+-  Orkun Kökçü yıldızlaştı, Benfica kazandı!
+-  Göç İdaresi Başkanlığından "kaçak göçmen" iddiarına ilişkin açıklama
+-  SC Fröndenberg-Hohenheide Stadtmeister : Klarer 4:0-Finalerfolg gegen den SV Frömern
+-  El vertido de pellets de plástico se extiende a más zonas, entre ellas la ría de Arousa
+-  Acusado de estuprar jovem e assassinar taxista há 25 anos, homem vai a júri popular
+-  مسؤول لبناني: أمريكا منحت إسرائيل منذ اللحظة الأولى تصريحا بالتدمير والقتل
+-  أختم بها يومك.. أطعمة تقضي على الكوليسترول المرتفع وتحميك من تصلب الشرايين
+-  الصومال تعلن إلغاء اتفاقية بحرية بين "صوماليلاند" وإثيوبيا
+-  إطلاق موقع "التربية العسكرية" بجامعة بنها
+-  نص كلمة البابا تواضروس الثاني بمناسبة عيد الميلاد المجيد
+-  Jubilarissen bij de vv Heerde gehuldigd
+-  Triple control económico al Ademar
+-  Yolculuk planları olanlar dikkat! Fırtına engeli geldi: O seferler iptal edildi
+-  Favoriti prošli u četvrto kolo FA Kupa
+-  모빌리티 혁신 기술의 향연
+-  Ascenso diz que Marcelo "é o maior fator de instabilidade" e "fala todo o dia"
+-  Perfilan que el peso pierda fuerza en 2024, ¿cuáles son las razones?
+-  Holivudski glumac Shia LaBeouf i službeno postao katolik: Želi postati đakon
+-  ‘El Juego Perfecto’: La historia detrás de la increíble película que Carlos Bremer produjo
+-  ‘Cortan vuelo’ a 2 halcones en Texcaltitlán: presuntamente eran espías de la Familia Michoacana
+-  Knownwell secures $2M in pre-seed funding
+-  חג'ג' בספק, רפאלוב צפוי לחזור להרכב מכבי חיפה מול הפועל ירושלים
+-  חוגי מודה: "היה משחק קשה לצפייה". עידן ורד: "מבין את הקהל"
+-  נמרוד לוי קלע 13 נקודות בהפסדה הביתי של סמסונספור
+-  כהן והמילטון הובילו את עירוני ר"ג ל-65:76 על הפועל חולון
+-  מאזן מקסימלי: מכבי נתניה ניצחה 1:2 את הפועל תל אביב
+-  גיא צרפתי: "אוהב כדורגל התקפי, העיר הזאת צמאה למשחקים כאלה"
+-  סטרלינג שוב כבש בכדור חופשי, צ'לסי הביסה 0:4 את פרסטון
+-  VIDEO: Avión pierde parte del fuselaje en pleno vuelo
+-  חשש שאלטמן ייעדר כחודש. איינבינדר: "מצפה לנו עכשיו אתגר גדול"
+-  Emmanuel Mas jugará en la Lepra mendocina, uno de los clásicos rivales de su club de origen
+-  PLAYER RATINGS: Raheem Sterling produces moment of magic as Chelsea cruise past Preston to book their place in the FA Cup fourth round... while Alfie Gilchrist dazzles on his full debut
+-  Podcast .. وسيلة جماهيرية تصنع نجومية الشباب
+-  AK Parti'nin yeni seçim şarkısı belli oldu! Azer Bülbül'ün o şarkısı yeniden yorumlandı: Tevfik Göksu da paylaştı
+-  Canadian airlines say they’re unaffected by Boeing 737-9 Max jetliner incident
+-  İsias Otel sahibi Bozkurt'tan pes dedirten açıklama: Deprem 7.2 şiddetinde olsaydı otel yıkılmayacaktı
+-  Jonas Svensson Beşiktaş yolunda
+-  We didn’t execute Edu’s request because bulk funds shouldn’t be paid to private accounts – Accountant-general
