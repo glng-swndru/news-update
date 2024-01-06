@@ -1,51 +1,51 @@
 # Latest News
--  30 Yıllık WordPad Uygulaması, Tüm Bilgisayarlardan Kaldırılacak
--  Zełenski: wartość zamrożonych aktywów rosyjskich za granicą to 300 mld USD
--  Irak'ın kuzeyine hava harekatı
--  Христо Мутафчиев: Давам срок на министъра на културата до края на януари, след което ще се предприемат протестни действия
--  Японияда зилзила қурбонлари сони 120 дан ошди, яна юзлаб одам бедарак йўқолган
--  Save on the Apple Watch SE, Apple Watch Series 9 this weekend
--  Po 16-ročnej rekonštrukcii opäť sprístupnili ruiny rozsiahleho Aigaiského paláca
--  הרמטכ"ל וראש שב"כ נכנסו למנהרות חמאס בלב חאן יונס: "נתפשט גם מתחת לאדמה"
--  Кметът на "Изгрев" таи надежди, но отправи и благодарности към Васил Терзиев
--  Michael Bolton confirma haber sido sometido a una cirugía por un tumor cerebral
--  Jouko kuvasi suoraa lähetystä, kun joku juoksi kohti – Kolmelle tuomio
--  Kal Ka Vrishchik Rashifal: वृश्चिक राशि वालों को कारोबार में मिलेगी बड़ी उपलब्धि, सेहत में रहेगी गिरावट
--  Twins Tourism Odyssey in Uganda
--  BBB24: Por que o Surfista Gabriel Medina é pivô da treta entre Yasmin Brunet e Vanessa Lopes
--  ضجة بعد سؤال عن المثليين في امتحان بالأردنية
--  الجيش : مقتل 5 مهربين والقبض على 15 آخرين - صور
--  عائلات إسرائيليين قتلوا في كيبوتس بئيري: هل قتلت دبابة للجيش أقاربنا؟
--  سرايا القدس تقصف تجمعا عسكريا إسرائيليا وسط خان يونس
--  Anzeige – Deals & Sales: Spiele für unter 5,- Euro im Xbox Special Sale
--  169 قائدا عسكريا اسرائيليا سابقا يدعمون هاليفي
--  Italialaisseura pistää kättä taskuun - uhkaa romuttaa Tottenhamin ja Bayern Münchenin suunnitelmat
--  Globos de Oro arrancan temporada de premios con «Barbie» y «Oppenheimer»
--  „Dla Ciebie, Ojczyzno!” Kibice pielgrzymują na Jasną Górę
--  Víťazka Grenierová: Aj my lyžiarky sme šťastné, ak vyhrajú rôzne pretekárky
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Arbor Realty Trust, Inc. - ABR
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Xponential Fitness, Inc. - XPOF
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Behalf of Investors of MiMedx Group, Inc. - MDXG
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Behalf of Investors of Cummins Inc. - CMI
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Mobileye Global Inc. - MBLY
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Checkpoint Therapeutics, Inc. - CKPT
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Envoy Medical, Inc.- COCH
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Amtech Systems, Inc. - ASYS
--  Dónde ver los Globo de Oro 2024 en Estados Unidos, México y España
--  Young official from Revelstoke chosen to go to NHL game
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of BlackRock, Inc. - BLK
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Hywin Holdings Ltd. - HYW
--  Victoria Beckham is making cropped trousers 2024’s chicest tailoring trend
--  Мими Христова спечели титлата след успех над Юлияна Янева във финала на републиканското
--  Lenny Kravitz Reacted To Zoë Kravitz And Channing Tatum's Engagement
--  Dit zijn de 3 koningen van de crypto industrie
--  Pierwszy prywatny lot na Księżyc. Trzymamy kciuki
--  Malala le pidió a su novio que le lleve a un lugar de ensueños, ¡mirá dónde están!
--  Colleagues offer tribute after passing of WBZ’s Doug Cope
--  La primera ministra francesa Élisabeth Borne, en la cuerda floja
--  La primera ministra francesa Élisabeth Borne, en la cuerda floja
--  نصية: مجلس الدولة يعيد إخراج المناصب السيادية من الدرج
--  Giải bóng đá Thanh Niên Sinh viên Việt Nam có bàn thắng nhanh kỷ lục
--  «Makta» del 2: Nå kommer Kåre Willoch
--  Robert Kraft, Bill Belichick reportedly have yet to talk about a possible Patriots breakup
--  Indijska solarna sonda je uspješno stigla do Sunčeve orbite
+-  DGCA To Inspect Boeing 737-8 Max Planes After Window Falls Off Alaska Airlines Flight Mid Air - Watch
+-  Lok Sabha elections 2024: BJP morchas hold meeting discusses polls strategy
+-  Décès de Mario Zagallo: l'hommage de Didier Deschamps pour "le professeur"
+-  Delhi: Fire breaks out in forest near Okhla, causes traffic snarls
+-  PSG habría presionado para que Lionel Messi ganara el Balón de Oro
+-  Bakan Uraloğlu'ndan tvnet'te önemli açıklamalar: Türkiye yoksa Orta Koridor olmaz
+-  Edon Zhegrova në ndeshjen e Kupës së Francës – shënon het-trik dhe asiston dy herë në 45 minuta
+-  Ir-Rabtin jiċċelbraw il-letteratura Maltija
+-  Proche-Orient: rencontre Blinken-Erdogan à Istanbul autour de Gaza
+-  César Acuña: “Me faltó liderar el tema de seguridad”
+-  В Тверской области ищут мужчину, пропавшего в Москве
+-  Wizja upadku Białorusi. Ekspert ostrzega przed działaniami Władimira Putina
+-  صحيفة (لوموند) الفرنسية : 2024 ، عام الانتخابات القياسي بالعالم .
+-  ارتفاع حصيلة العدوان الإسرائيلي على غزة إلى أكثر من 22 ألف شهيد.
+-  اندية الجفرة تتفق علي تشكيل تنسيقية موحدة.
+-  وزارة الداخلية تنفي وجود إزدحام بمنفذ رأس إجدير البري مع تونس.
+-  انطلاق أعمال ورشة العمل السادسة لموظفي المكاتب الامامية (الشبابيك) التابعين لمنطقة الخدمات البريدية بنغازي .
+-  اجتماع بكلية العلوم والتقنية سبها لبحث معالجة النقص في اعضاء هيئة التدريس .
+-  مصلحة الضرائب الليبية تحقق إيرادات غير مسبوقة تجاوزت ثلاثة مليار دينار.
+-  المركز الوطني لمكافحة الأمراض ينفي توصيته باستخدام أي دواء لعلاج الإنفلونزا الموسمية.
+-  الجيش الأردني يعلن إنه قتل مهربي مخدرات وأسلحة من سوريا .
+-  خطوط (ألاسكا الجوية) توقف تشغيل طائرات بوينغ 737 بعد انفجار جزء منها في الجو.
+-  هبوط طائرة مصر للطيران بأثينا بدلا من بنينا لسوء الأحوال الجوية .
+-  Spanja njeh pasaportën e Kosovës
+-  President says UNSG’s report ‘could have been better’
+-  Al Jazeera: Израиль нанёс удары по окрестностям ливанских городов Тир и Сайда
+-  فردین خان کا اپنے والد بارے زینت امان کی پوسٹ پر ردعمل سوشل میڈیا صارفین کو بھا گیا
+-  Garantizaron los puestos de trabajo de los 310 trabajadores del Tren Patagónico
+-  Indonesia Airplane Server Reported Zero Accident During Year End Long Holiday
+-  Analyst Gives Ambitious Shiba Inu Price Prediction As Trader Backs Sponge 100X
+-  Cantal : la Maison de santé de Maurs ouvre ses portes
+-  PLN: Transaksi di SPKLU Sumut 1.149 Kali Sepanjang 2023
+-  Itália encontra templo procurado pelo imperador Constantino
+-  Propalestínski demonštranti zablokovali Westminsterský most v Londýne
+-  MP de Milão mira mais contratos para caridade de Chiara Ferragni
+-  Uber Trials Flexible Pricing In Tier 2, 3 Indian Cities
+-  Tko je djevojka Filipa Zubčića? Prekrasna gimnastičarka Ana ne prestaje mu pružati podršku
+-  بورصة مسقط تسجل أفضل قيمة تداول في 2023
+-  Jynxzi rage quits Twitch stream due to Kai Cenat’s baffling Rainbow Six Siege gameplay
+-  Friday's high school basketball scores
+-  '4관왕' 세븐틴·'2관왕' 뉴진스, 나란히 대상 쾌거 "거창한 상에 당당할 수 있도록" [38회 골든디스크](종합)
+-  Si è costituito l'uomo che ha sparato a un 25enne ad Arcisate
+-  بالفيديو.. أمطار غزيرة وتدفق الشلالات في محايل عسير
+-  Булыкин верит в возвращение России на международную арену в 2024 году
+-  Impusieron prisión preventiva al hombre que robó y faenó una vaca en Darwin
+-  Pugilato: il 10/a a Vasto c'è il Tricolore dei superleggeri
+-  Otomobiller kafa kafaya çarpıştı: 2 ölü
+-  Robert Jenrick threatens to amend PM’s Rwanda Bill unless it is strengthened
+-  Игрок «Интера» попал в курьезную ситуацию после победного гола на 93-й минуте
+-  Rosalía y Alejandro Sanz celebran juntos el Día de Reyes
