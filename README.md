@@ -1,51 +1,51 @@
 # Latest News
--  Naujas Putino dekretas. „Rusijoje neliks nei vieno ukrainiečio vaiko.“ Kas vyksta (Foto)
--  Atskleista, ką labiausiai Kremlius norėjo užkariauti Ukrainoje! Dabar tai naudoja prieš juos pačius
--  [ŽT] „Mūsų paukšteliai jau čia, jums p&@#a!“ Beprotiška ukrainiečio reakcija (Video)
--  [ŽT] Netikėta ataka Šiaurės Vokietijoje. Skelbiama, kas nutiko (Foto)
--  Apokalipsė. „Žmonės tiesiog svajoja apie civilizacijos laikus.“ Donbaso realybė (Video)
--  POZNATI AMERIČKI KOMIČARI ISMIJAVALI GAVRILA PRINCIPA: 'Kao da gledaš mladog Staljina, upropastio je cijeli svijet' (VIDEO)
--  Edtech company Simplilearn’s losses swell 29% in FY23, revenue up 50%
--  Má ekki bjóða sig fram til forseta
--  Hrvatske vaterpolistice na EP-u u dvije utakmice primile nevjerojatnih 49 golova
--  Loccum: Bauernprotest zum Epiphaniasempfang
--  Jedna osoba poginula i tri povrijeđene u nesreći kod Donjeg Vakufa
--  Mary Kom Critiques New Athletes’ Drive, Urges Hunger for Success Beyond One Achievement
--  Goyal asks BIS to raise standards of goods to international level
--  Jair Bolsonaro: ato de 8/1 só tinha "velhinhos, ambulante, criança..."
--  وزيرا التنمية المحلية والتموين يتفقدان مخازن السلع الأساسية لسلسلة "كازيون" بدمنهور
--  وزير الصحة يتفقد مجمع السويس الطبي: سيحقق نقلة نوعية في الخدمات والرعاية
--  فتح باب الترشح لانتخابات التجديد النصفي بنقابة المهندسين بالإسكندرية
--  لسوء الأحوال الجوية.. مصر للطيران: تغيير مسار رحلة بني غازي إلى اليونان
--  تبادل الطلاب والخريجين.. تفاصيل اجتماع رئيس "الشؤون الثقافية والبعثات" بالعلماء المصريين بالخارج
--  بالفيديو.. السيسي يتفقد مدينة مصر الدولية ويوجه رسالة للاعبي المنتخب
--  Yfirlýsing frá Steypustöðinni vegna banaslyssins
--  حظك هذا الأسبوع: حدث يغير حياة هذا البرج.. وفرصة رائعة لبرج العذراء
--  "بتوصية من توخيل".. بايرن ميونخ يضغط على برشلونة للتعاقد مع مدافع الفريق
--  Diputada, del PAN a Movimiento Ciudadano por una candidatura
--  Tot zondag file op A73 richting Nijmegen door ondergelopen oprit
--  Drie aanhoudingen om bestorming Capitool drie jaar na dato
--  Ram Charan welcomes Rahman aboard ‘RC16’; wishes composer on 57th birthday
--  'Troonrede' Amerikaanse president Joe Biden verwacht op 7 maart
--  المجعي: منح العاملين بديوان وزارة الصحة مستحقاتهم المتأخرة عن سنوات فائتة
--  Conferenza stampa Montemurro pre Supercoppa LIVE: parla il tecnico della Juventus Women
--  Mulheres de soldados russos em protesto exigem regresso dos maridos
--  يزيد حجم الكرش بدلا من إنقاصه.. تجنبوا هذا النظام الغذائي
--  Nick Carter lamenta morte da irmã: 'Meu coração está partido'
--  Leonai Souza amplía contrato por tres temporadas con Barcelona SC, que adquiere parte de sus derechos deportivos
--  Reportan sismos de magnitud 4 en Michoacán y Veracruz
--  The UN ‘breathed life back into my dreams’ — Global Issues
--  Haukar - Fram, staðan er 3:2
--  Brisbane International: Rybakina dominates Noskova in semis; Rune too reaches final
--  ΑΠΟΕΛ - Ανόρθωση: Παραλίγο διακοπή στο ντέρμπι λόγω ρίψης αντικειμένων από τις κερκίδες!
--  На некого почетокот на годината му носи сериозни промени – 3 хороскопски знаци на чиј финансиски план ќе влијае младата Месечина во Јарец од 11 јануари
--  Netflix new releases: Fresh episodes of 2024’s first great K-drama, plus new documentaries and more
--  Werner verður leikmaður Tottenham
--  Атлетико се справи с третодивизионен отбор за Купата
--  AAA-PS4- und PS5-Spiel ab 2024 für nur 1,49 $ im Angebot
--  Stolen vehicle sales go unabated in Hyderabad
--  Scientists find compound to fight against Covid infection
--  Haukar - Fram, staðan er 2:3
--  Yusuf Sarı'dan sakatlık açıklaması!
--  Hocasından Kenan Yıldız açıklaması!
--  Batı göç korkusundan çark etti... Avrupa, İsrail'in kirli planına karşı çıkıyor
+-  Adana Demirspor'da bir ayrılık daha!
+-  Hull City, turu zora soktu!
+-  히샬리송 못믿는다... 토트넘, ‘한때 레반도프스키 다음가는 공격수’ 임대 영입 임박→“거래 거의 완료 상태”
+-  Ujeli servalko, ki je tavala po Gorskem Kotarju in napadla domačo mačko
+-  Aygün Bəylərin ölüm xəbəri ilə bağlı NAZİRLİKDƏN AÇIQLAMA
+-  Borrell upozorio: Liban bi mogao biti uvučen u regionalni sukob
+-  Već dugo nismo imali manje umrlih umirovljenika: Na drugi svijet su otišli iz siromaštva
+-  Bakan Uraloğlu kritik soruyu tvnet ekranlarında cevapladı: Muhtemel depremde İstanbul'dan kaçış nasıl olacak?
+-  Bakan Özhaseki depremzedelerin isteğini geri çevirmedi: Kardeşlerimizin her zaman yanında olacağız
+-  Yusuf Yazıcı yıldızlaştı: Lille farka koştu
+-  Skispringer Kobayashi gewinnt Vierschanzentournee
+-  Haukar - Fram, staðan er 10:10
+-  Kobayashi zum Dritten! Wellinger verpasst Tournee-Sieg
+-  ÖSV-Adler bärenstark - Kraft holt Bischofshofen-Sieg, Kobayashi Tournee
+-  Nikolaj Jacobsen om dansk EM-form: Vi er et mellemsted
+-  Nikolaj Jacobsen om dansk EM-form: Vi er et mellemsted
+-  من الأقرب لتدريب البرازيل بعد إقالة فرناندو دينيز؟
+-  Austurríki - Ísland, staðan er 5:9
+-  Moradora se assusta ao encontrar jaguatirica em pé de mamão no quintal de casa
+-  ΒΙΝΤΕΟ BALLA: ΑΠΟΕΛΙΣΤΙΚΟ ΠΑΡΤΙ στο ΓΣΠ!
+-  Inédito: tiene 27 años y es nuevo DT de un club del Ascenso del fútbol argentino
+-  ΠΑΘΙΑΣΜΕΝΟΙ…
+-  Maxaa Maanta Ka Dhacay Garoonka Tababarka Liverpool Ee Ay Ciyaartoydu Ugu Diyaar-garoobayaan Kulanka Arsenal?
+-  ولي العهد يهنئ الشيخ محمد صباح السالم الصباح بمناسبة تعيينه رئيساً لمجلس وزراء الكويت
+-  Antreprenorii moldoveni au dezvoltat un software de prognozare a energiei verzi cu precizie de 97%
+-  RT: Следком Москвы не проводит какое-либо расследование в отношении Ивлеевой
+-  Kobayashi gewinnt Vierschanzentournee - Wellinger Zweiter
+-  Kobayashi gewinnt Vierschanzentournee - Wellinger Zweiter
+-  Vrhovni sud SAD odlučuje može li Tramp na predsjedničke izbore
+-  Dumrauf: “Más allá de que se tengan ideas, nos encontramos con una situación de emergencia en el Municipalidad”
+-  So geht Iris Klein mit Hassnachrichten auf Social Media um!
+-  Dreikönigstreffen: FDP kämpft ums politische Überleben
+-  Старение населения Китая — острая демографическая проблема с серьёзными последствиями
+-  Lille'den Fransa Kupası'nda tarihi skor: Yusuf Yazıca'dan 2 gol, 2 asist
+-  جمال علام: المنظومة الرياضية شهدت طفرة كبيرة في عهد الرئيس السيسي
+-  רמטכ"ל מתחמק מתשובות, חוסר כבוד הדדי ותקשורת רדודה: על 5 דקות בקבינט שמציירות תמונה קשה
+-  Mrle poludio kad je vidio da se Let 3 nalazi na popisu za Doru: 'Idioti me pitaju za pjesmu Babaroga'
+-  Andreas Wellinger verpasst Sieg bei Vierschanzentournee – Kobayashi triumphiert
+-  FBI captura 3 suspeitos por invasão do Capitólio
+-  Udinese, Cioffi: "Lautaro Giannetti innesto importante. Difensore cattivo e determinato"
+-  Ersin Tatar: KKTC, Doğu Akdeniz’de bağımsız bir Türk devleti olarak gelişmeye devam ediyor
+-  Vierschanzentournee in Bischofshofen: Leyhe nur Zuschauer bei Tournee-Showdown
+-  Bangladesh, le dernier souffle de la résistance étudiante
+-  Wintervorbereitung: Dortmund spielt 2:2 gegen Alkmaar - Sancho-Transfer stockt
+-  Dortmund spielt 2:2 gegen Alkmaar - Sancho-Transfer stockt
+-  הוול סטריט צונח בחסות 2024: אכזבה למשקיעים, מה צופן העתיד?
+-  נשיא ארגנטינה מציג: זה המהלך שעשוי לחזק את כלכלת המדינה
+-  תיעוד דרמטי: זה המקום בו ביקרו הרמטכ"ל וראש השב"כ
+-  המטוס החל להתפרק באוויר - כך הנוסעים שרדו | צפו
+-  יחימוביץ עוקצת את נתניהו: "האירוניה השתגעה"
