@@ -1,51 +1,51 @@
 # Latest News
--  İbre Mircea Lucescu'ya döndü! Beşiktaş'tan Romanya'ya çıkarma
--  Sivasspor, Kayserispor maçına hazır
--  Başkan Erdoğan, ABD Dışişleri Bakanı Blinken'ı kabul etti
--  MHP Genel Başkanı Bahçeli'den Kelime-i Tevhid açıklaması... "Tarafımız belli"
--  33 milyonluk vurgun yapmıştı! Dolandırıcılık şebekesi çökertildi
--  Ahmet Kural'dan hayranına sürpriz... Düğününü bastı
--  Dışişleri Bakanı Fidan'ın ABD'li mevkidaşı Blinken ile görüşmesi sona erdi
--  İsrailli uzman konuştu: UNRWA'yı yok etmeden savaşı kazanmamız mümkün değil
--  Yeni bir yıldız doğuyor: Süper Lig'in en çok gol atan üç yerliden biri oldu
--  Devlet Bahçeli'den önemli açıklamalar
--  Căng thẳng bất động sản đang gia tăng ở thị trường châu Á
--  Isias hotel owner denies wrongdoing as trial continues into fourth day
--  Hoogwaterpiek op de Rijn valt mee
--  Sobere uitvaart voor oud-bisschop Harrie Smeets
--  Turkmenistan's Turkmennebit and UAE's Dragon Oil sign memorandum of understanding
--  İstanbul için kar yağışı uyarısı
--  كتائب القسام : فجرنا عبوة ناسفة بقوة إسرائيلية شرق خان يونس
--  محلل: الفدرالي الأميركي قد يرفع الفائدة مرة إضافية بالربع الأول
--  Vor Korruptionsprozess in den USA: Chef der mächtigen Waffenlobby NRA LaPierre tritt zurück
--  Aseguran que Wander Franco no volverá a jugar en la MLB
--  MHP lideri Bahçeli konuşuyor...
--  Gazze'de can kaybı 22 bin 722’ye yükseldi
--  Nu kommer den hårde frost – gode råd til at undgå skader
--  Soccerladuma | Kwaito's Call To Fans For Carling All Star Match
--  Soccerladuma | Barca 'Ready To Listen To Offers' For Star Attacker
--  يوفنتوس يتوصل إلى اتفاق لضم نجم ليل
--  Από τον Ολυμπιακό στην Ουράβα ο Όλα Σολμπάκεν
--  مجلة (ذا بانكر) تختار البنك العربي بنك العام في الشرق الأوسط للعام 2023
--  بالفيديو.. عروسان يحتفلان بزفافهما في مدرسة بغزة
--  هل تم القبض على محمد رمضان؟
--  Јавен обвинител ќе се жали до судот, бидејќи не одреди притвор за лицата кои упаднаа во М-НАВ
--  Епіфаній освятив води Дніпра на Водохреща (фото, відео)
--  „Selten werden Spielrunden in flagranti entdeckt“: Polizei hebt Glücksspiel-Runde in Berliner Lokal aus
--  Sexual Harassment Case: Delhi Police Rests Arguments, Urges Court To Frame Ex-WFI Cheif Brij Bhushan Sharan Singh
--  Shillong Teer Result TODAY (DECLARED) 06.01.2024 First And Second Round Lottery Result
--  BREAKING: India`s First Solar Observatory Aditya L1 Reaches Its Destination `L1 Point`
--  هي يخون الريال؟.. اليونايتد يعرض فاران على برشلونة
--  A major banking executive apologized after facing sharp criticism for saying it's not that hard to save up and buy a house
--  El Sorteo del Niño deja parte del primer premio en León
--  London: Russland nach Abschuss von Jets geschwächt
--  Kickoff | 'Liverpool should be in the race for Mbappe'
--  Profesor Tehnološko-metalurškog fakulteta o potonuću 1000 tona azotnog đubriva: Za sada ne moramo da strahujemo
--  여수 거문도 남쪽 해역서 규모 2.4 지진
--  Disney+ unveils Marvel extravaganza for January 2024 with She-Hulk Season 2, X-Men, and Echo
--  Индийская станция Aditya-L1 вышла на заданную орбиту для изучения Солнца
--  ඊශ්‍රායලය ගාසා තීරය සඳහා ඊළඟ අදියරේ යුද සැලැස්ම ඉදිරිපත් කරයි
--  "Ricky Rubio es uno de los espíritus más singulares con los que he estado"
--  La OCU denuncia que los roscones de Reyes llevan “demasiados aditivos”
--  Landmark For India As First Solar Observatory Aditya-L1 Reaches Its Destination: PM Modi
--  Élections en RDC : Vital Kamerhe tourne le dos à ses poulains « malhonnêtes»
+-  الضربات الأمريكية والسيادة العراقية.. الغلبة لمن؟
+-  موازنة 2024.. تمريرها مرهون بشرط وتوقعات بتعديلها
+-  خطط "خفية".. هل ستتم الإطاحة بـ"الفائز الأول" في كربلاء؟
+-  قصف بغداد.. ما علاقة تغيير "قواعد الاشتباك" بالولاية الثانية لبايدن؟
+-  오타니와 아이들에게 1조5805억원 썼는데…다저스 투수 추가영입? A+에도 ‘만족은 없다’
+-  "피츠버그와 잘 어울려" 김하성, 배지환 자리 빼앗나... 韓 선수끼리 경쟁 펼쳐질지도 모른다
+-  '손은 눈보다 빠르니까' 토트넘, 'SON' 대체자 하이재킹 성공...獨 유력 언론 "6개월 임대 이적 임박"
+-  폐지된 '홍김동전'에…주우재 "난 이제 희소성 생긴다" 너스레 [놀면 뭐하니]
+-  S-a săturat de Turcia? Mauro Icardi și-ar dori revenirea la una dintre fostele sale echipe
+-  Bauern-Demos in Hannover: Wo am Montag Verkehrsbehinderungen zu erwarten sind
+-  Suomalaisilla meni vati nurin pörssisähkön hinnoista
+-  ১৬ ঘণ্টায় ৮ শিক্ষাপ্রতিষ্ঠান ও ৬ যানবাহনে আগুন
+-  الیکشن کمیشن کو انتخابی شیڈول فوری تبدیل کرنے کی ہدایت
+-  Ambati Rayudu : अंबाती रायुडू अवघ्या 9 दिवसात राजकारणातून दूर का गेला, नेमकं घडलं तरी काय?
+-  विकास योजनामा भारतीय दूतावासले सोझै रकम दिनु राष्ट्रहित विपरीत : झलनाथ खनाल
+-  مقتل شخص في مشاجرة بمنطقة بولاق الدكرور
+-  New Padres pitcher Go Woo-suk bracing for roster battle: 'I'm not a major leaguer yet'
+-  KBO All-Star Go Woo-suk returns home as new San Diego Padres pitcher
+-  Politicians call for 'unity' at centenary of late ex-President Kim Dae-jung's birth
+-  Sastamalan palliatiivinen yksikkö mukana uudessa vastuualueessa
+-  توتنهام يفتح الاتصالات مع لايبزج لضم فيرنر
+-  Soccerladuma | 'Pirates Fail To Play As A Team'
+-  Langläuferin Hennig holt Tagesrang drei bei Tour de Ski
+-  Refus de Régis Mughe de rejoindre la CAN 2023 crée la controverse au Cameroun
+-  Kutch News : સૌથી મોટા મીઠાના મેદાનની ઉપાધિ હાંસિલ કરનાર કચ્છનું રણ પ્રવાસીઓને કરે છે મોહિત
+-  Santa Anita: 3 personas mueren acribilladas en vía pública
+-  Ada Nicodemou, 46, stuns her fans as she shares Home and Away throwback clip that proves she hasn't aged a day: 'You must be a vampire'
+-  Termometri zbret nën zero në Tiranë, i ftohti polar do të pushtojë vendin prej fillimit të javës: Zonat që preken
+-  Máximo González: "Soy muy niñero"
+-  MOVIE REVIEW: We 'choc' out sweet family flick 'Wonka'
+-  Ancora nuove offerte sul Play Store: Towaga: Among Shadows e Runic Curse in sconto!
+-  Migs Oczon delivers game winner as Ulsan escapes Suwon in KBL
+-  Bauernproteste: Warum die Landwirte in Niedersachsen sauer sind
+-  Edis'ten kendi şarkısını söyleyen Hadise'ye: 'Ah yok mu şu caziben?'
+-  Fenerbahçe'den Krunic hamlesi
+-  Байден перед річницею 6 січня виступив із промовою про демократію у США
+-  Britain's hidden RAINFORESTS: Incredible maps reveal the beautiful ancient habitats dotted across the UK - as experts warn they're some of the most endangered areas in the world
+-  Does football have an alcohol problem?
+-  Los mejores países del mundo para trabajar a distancia: España ocupa una destacada posición
+-  Минобороны: в новых регионах России восстановлено 16 мостов
+-  تراند اليوم : "ناسا" تكشف موعد اصطدام كويكب مفقود بالأرض.. وتحدد حجمه وارتفاعه
+-  تراند اليوم : شاهد.. فوز الفهد تظهر بدون فلتر أثناء التقاط صور لها في القصيم
+-  تراند اليوم : "يا ويلهم من العقوبة والحوبة".. بالفيديو.. "إعلامي" يكشف عن صنفين بغيضين من الرجال والنساء
+-  Vor Vierschanzentournee-Finale - Neureuther & Co. drücken Wellinger die Daumen!
+-  Ukrayna'dan Saki Hava Üssü'ne saldırı
+-  Tüm gribal enfeksiyonlara savaş açan zencefil shot tarifi! Tek yudumda hücreleriniz dirilecek
+-  Kuzey Kore'den 60 top atışı
+-  Bakan Uraloğlu duyurdu: Türk uzay yolcusu milli çağrı işaretiyle iletişim kuracak
+-  تراند اليوم : بالفيديو.. "الشهري" يكشف الفرق بين لحم الإبل والأبقار.. وعلاقة الأول بفقر الدم والكوليسترول
+-  Ebru Polat yapay zekalı klibiyle övündü: Türkiye'yi uzay çağına geçirdim
