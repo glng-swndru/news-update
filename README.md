@@ -1,11 +1,11 @@
 # Latest News
--  Çiftçi destek ödeme sorgulama 2024 e-Devlet: Tarımsal destek ödemeleri sorgulama nasıl yapılır?
--  Türkiye ve İngiltere'den 26 maddelik eylem planı: Serbest ticaret anlaşmasını genişletecek müzakereler bu yıl başlayacak
--  Cảnh nóng điên cuồng nhất 2023
--  Cách tốt nhất để không phải thất vọng ở các 'điểm nóng' du lịch
--  Fenerbahçe Beko - Onvo Büyükçekmece basketbol maçı ne zaman, saat kaçta, hangi kanalda?
--  Cầu thủ tuyển nữ Việt Nam vừa dự World Cup làm đám cưới với bạn gái đồng giới
--  জাপানে ভূমিকম্পে নিহতের সংখ্যা বেড়ে ১০০, নিখোঁজ ২১১
--  ত্রিশ বছর পর ম্যারাডোনাকে নির্দোষ ঘোষণা করল আদালত
--  হরতাল-ভোটে পরিবহনের অভাবে ভোগান্তিতে যাত্রীরা
--  ВМРО-ДПМНЕ: Европските боксови во М-НАВ доказ за неевропските криминални банди на ДУИ и СДС
+-  רפאל נדאל בספק לאליפות אוסטרליה: "לא בטוח בשום דבר כרגע"
+-  WKBL 올스타 페스티벌 1일차, 아산 지역 유망주와 함께 성료
+-  '오빠시대' 우승자 신공훈 "상금 3억 입금됐다" [싱어송파이터]
+-  '삼달리'에 '좀녀 부대'가 떴다…해녀 삼춘들의 불꽃 튀는 신경전 [오늘밤TV]
+-  '메가+지아 쌍포 폭발' 정관장, 4수 끝에 GS칼텍스 이겼다→전 구단 상대 승리
+-  Voorbereiden aanleg nooddam in Maastricht nagenoeg afgerond
+-  Strafrechtadvocaten: kwestie Kasem raakt kernwaarde advocatuur
+-  Meeste faillissementen in Denemarken sinds 2010
+-  Keine Spitzenplatzierungen für die ÖSV-Biathleten
+-  I njohur me nofkën “Bebi”, ekstradohet fieraku trafikant i heroinës në disa shtete
