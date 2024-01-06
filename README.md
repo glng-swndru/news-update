@@ -1,51 +1,51 @@
 # Latest News
--  Καταιγίδες «μαστιγώνουν» πολλές περιοχές της χώρας - Το «διάλειμμα» από τις... «Αλκυονίδες διαρκείας» και η πτώση της θερμοκρασίας
--  '혁신교육의 롤모델' 인공지능사관학교 5기 교육생 모집
--  Skydance Plans “Ranger’s Apprentice” Film
--  Estas son las noticias más leídas este sábado en El Progreso
--  مدرب يوفنتوس : أولوية الفريق اللعب في دوري أبطال أوروبا الموسم المقبل
--  🎥​ | Man springt NAAKT in aquarium van hengelsportzaak
--  محافظ الغربية يشهد قداس عيد الميلاد بكنيسة ماري جرجس في طنطا
--  "כל האחראים למחדל היו צריכים לעוף ב-8 באוקטובר. זו המשמעות של אחריות"
--  אחרי דרמת ענק בתוספת זמן מהסרטים: 1:2 לאינטר על ורונה
--  "Videćemo..." Pantera pitali o Zvezdi, a kapiten Partizana imao misteriozan odgovor
--  Šaranović: Uprava policije pokazala visok nivo profesionalizma i efikasnosti u rasvjetljavanju incidenta
--  Brazil otpustio selektora zbog loših rezultata
--  صحة دمياط تنظم يوما صحيا تثقيفيا لدعم اللاجئين بالتعاون مع هيئة كاريتاس مصر
--  DP: Plenkoviću, do kada ćete tolerirati i poticati protuzakoniti ulazak ‘migranata’ u Hrvatsku?
+-  천당과 지옥 오간 고우석, 메이저리거 꿈 이루다[스한 위클리]
+-  Системски колапс и дисфункција на администрацијата: Поранешен амбасадор посочи на проблемите со вадење пасош
+-  حظك اليوم وتوقعات الأبراج 7-1: فرصة عمل مميزة.. وأموال كثيرة لهؤلاء
+-  Após homem sair de facção, criminosos vão até onde ele mora, expulsam crianças e colocam fogo em casa; VÍDEO
+-  Aksa Tufanı İsrail'i karıştırıyor! İstihbarat ve ordu arasında kriz
+-  Malatya'da 3,1'lik deprem
+-  ABD'de işlenen imam katliamına tepki sürüyor! "Katilini bulun"
+-  Zonguldak'ta feci kaza! Otomobil ikiye bölündü: 1 ölü, 4 yaralı
+-  U-18 Hentbol Milli Takımı farklı yenildi!
+-  İsrail'de erken seçim sesleri! Netanyahu'ya tepkiler anbean yükseliyor
+-  La faculté de médecine de l’UK se dote d’un laboratoire moderne
+-  Fiorentina'ya Sassuolo çelmesi!
+-  İsrail askeri Filistinli öğrencilerle alay etti! "Sizi bombaladık. Artık asla mühendis olamayacaksınız"
+-  భారత్‌తో టీ20 సిరీ్‌సకు అఫ్ఘాన్‌ కెప్టెన్‌గా జద్రాన్‌
+-  [바이오연료·전기차 윤활유 등 ‘非정유’에 힘주는 정유업계 [비즈360]
+-  [증권사 목표가 ‘9만2000원’이면 삼성전자 홀로 코스피 2700선 뚫는다 [투자360]
+-  [‘악마를 보았다’… 친딸 성폭행 父 선처해줬더니 또
+-  [“B(바이오)·I(인터넷)·C(반도체) 주도 강세 기대…美경기후퇴는 잠재리스크” [리서치센터장에게 듣는 2024 증시①]
+-  [갑진년에도 IPO 큰 장 선다…‘갑진 따따블’ 노려볼 종목은? [투자360]
+-  [제니는 ‘여전히 잘 지낸다’고 했지만…YG 주가는 ‘잘 못지내는 중’ [투자360]
+-  [충무공 르뽀, 전직 기자 조진태 ‘이순신의 바다..’ 출간
 -  Pizarro defende que críticas da direita ao SNS visam abatê-lo
--  0-2. El Rayo fulmina al Huesca al final de la prórroga
--  1-0. Benavídez mete al Alavés en octavos de final de Copa
--  Las Palmas-Juniors por el Regional: clima de clásico y partido demorado unos minutos por incidentes
--  Niente Juve per Werner: ecco la sua nuova squadra
--  Pellegrini: No hemos tenido ni espíritu ni exigencia
--  Biden pronunciará el discurso del Estado de la Unión el 7 de marzo
--  Kylian Mbappé over de keerzijde van de roem: ‘Ik ben mijn spontaniteit verloren’
--  Håndboldherrerne er kåret til Årets Sportsnavn i 2023
--  Håndboldherrerne er kåret til Årets Sportsnavn i 2023
--  MN - Milan, no alla prima proposta del Fenerbahçe per Krunic: la posizione rossonera
--  شباب النواب: الرئيس ركز على الاهتمام بالقيم الإنسانية والقدوة التي تقدمها الرياضة للمواطنين
--  Bucurii simple. Prăjitura cu ciocolată și vanilie - Desertul cu gust de copilărie
--  Sassuolo derrotó a Fiorentina en fútbol italiano
--  Asesinan a hombre en el Valle de Juárez
--  ولي العهد يستقبل وفدًا من أعضاء لجنة الاستخبارات في مجلس الشيوخ الأمريكي بالمخيم الشتوي في العلا
--  Süß! Das schenkten Christine Browns Töchter ihr zur Hochzeit
--  Il Sassuolo fa il colpo: Fiorentina ko, il Milan può allungare
--  АПОЕЛ на Георги Костадинов дръпна с 5 т. в Кипър след пряк дуел за първото място
--  جيرونا وخيتافي وأتلتيكو إلى دور الـ16
--  Resultado da Quina 6334 de hoje, sábado – 06/01/24
--  Una docena de cárceles de inmigración en EEUU tienen más de mil detenidos cada una de ellas
--  Tajemnice Krzemieńca na Wołyniu
--  Response Connor Bedard hit shows NHL has other, physical ways to generate excitement
--  Wevza: l'Under 20 travolgono l'Olanda e vanno in finale
--  Cameroun :: Nécrologie : Le Pr Joseph Owona, L’ancien Ministre Et Membre Du Conseil Constitutionnel Est Mort :: Cameroon
--  Aeronave se estrelló e incendió en Paraguay, pero su piloto sobrevivió para contarlo
--  L'attivazione di ChatGPT come Ehi Google: la novità con Android 15
--  Sports Betting in Africa: A Thrilling Entertainment and Promising Career Path
--  Cruz Azul golea a Querétaro en su último partido de preparación
--  Pranzo Leggero, aprenda a fazer um delicioso almoço leve e muito nutritivo!
--  Jaume Clotet guanya el premi Josep Pla 2024
--  إغلاق حقلين نفطيين وسط احتجاجات في أوباري بليبيا
--  اعرف تخصصات وظائف وزارة الطاقة بالسعودية لعام 1445
--  رد فعل سكان بريتوريا على أنباء إطلاق سراح أوسكار بيستوريوس من السجن بجنوب أفريقيا
--  الهند: نشر سفينة لعمليات الأمن البحري بعد تهديدات ضد سفينة ليبيريا
+-  Neki od putnika ozlijeđenih u jutrošnjoj nesreći u životnoj opasnosti
+-  "Militärstruktur demontiert": Israel meldet Zerschlagung der Hamas im Norden
+-  Hasil, Top Skor, Klasemen Liga Italia Pekan Ke-19: Inter Milan Jadi Juara Paruh Musim Usai Kalahkan Verona 2-1
+-  La Tarde Celeste 2024: Cómo ver EN VIVO la transmisión del partido de Sporting Cristal vía Latina Televisión
+-  భారత్‌-ఎ సారథిగా అభిమన్యు
+-  Citypress | Editorial | World must back SA in its call to end genocide - one of the most heinous atrocities
+-  Путин встретил Рождество в храме Спаса Нерукотворного Образа
+-  El mundo del fútbol lamenta la muerte de Mário «Lobo» Zagallo quien levantó la copa en 4 de los Mundiales ganados por Brasil
+-  నాకు కావాల్సిందంతా కాంగ్రెస్‌ ఇచ్చింది
+-  В ЛНР прихожане в Рождество молятся за бойцов на фронте и мир
+-  Leser-Fotos: So schön ist der Main-Kinzig-Kreis
+-  Department continues to ‘engage’ on plan to house asylum seekers in Mayo hotel
+-  BVB News: Was Edin Terzic beim Testspiel gegen Alkmaar "nicht gefallen" hat
+-  Una «programación contundente» para celebrar los 40 años del Festival y las ganas del público
+-  ¿Te gustan las cartas astrales? Día Mundial de la Astrología. Todo lo que debes saber
+-  Michael Lowry says dispute over Moriarty Tribunal costs now settled
+-  Prievidza vyhrala na palubovke lídra, šancu dostal sedemnásťročný mladík
+-  ముంబైతో పోరుకు రెండు జట్లుగా వచ్చి..
+-  El Nadal se tiñe de negro con un 'thriller' rural de César Pérez Gellida
+-  Anvisa aprova registro definitivo de pílula anti-Covid da Pfizer
+-  The Masked Singer fans convinced that Hollywood actress is behind Eiffel Tower after string of ‘glaring clues’
+-  Ibogaine, Found in African Rainforest Plant, Offers Hope for Veterans’ Traumatic Brain Injuries: Stanford Study
+-  В Турции второй раз за сутки отбуксировали танкер, следовавший в РФ из Испании
+-  wO Community Review: Evotec: „Eine große menschliche Enttäuschung“
+-  Actualité : Bon plan – Le clavier Logitech MX Keys Mini Rose "5 étoiles" à 79,90 € (-16%)
+-  De la calma a la tormenta: cómo se vivió el temporal de granizo en las playas de Mar del Plata
+-  가자지구에 계속되는 폭발 연기
+-  Shorthanded goal sinks Flames in road loss to Flyers
