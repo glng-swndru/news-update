@@ -1,51 +1,51 @@
 # Latest News
--  Osturinn er ekki búinn
--  Yerba mate: cómo maximizar sus beneficios, cuál es la dosis letal, quiénes no deberían tomar y más
--  FC Porto. Três processos a associados após desacatos em assembleia geral
--  Perttu Hyvärisen huumori oli koetuksella - onneksi ei ollut mikkiä…
--  ”Îmi pare rău pentru Gigi”. Thomas Neubert a făcut anunțul pe care patronul FCSB-ului nu și-ar dori, probabil, să-l audă
--  الجيش يعلن انتهاء الاشتباكات: مقتل 5 مهربين وضبط 15 وطرد مجموعات للداخل السوري (صور)
--  Uważajcie! Śnieg, silny mróz i szklanka na drogach. IMGW wydaje ostrzeżenia
--  HydrogenPro ASA appoints Jeff Spethmann as Chief Executive Officer for US Subsidiary
--  Pickleball play for beginners starts
--  Musa MVP 19. kola
--  Škrinjar mora na operaciju, višenedjeljna pauza
--  Od Mojkovačke bitke 108 godina
--  حبا فواد کی الیکشن کیلئے نااہل قرار دینے کی تردید
--  Iraq thua Hàn Quốc trước thềm Asian Cup 2023
--  Indrayani River Pollution Special Report : इंद्रायणी नदीमध्ये पुन्हा फेसाळलेलं पाणी, कारण काय?
--  Polacy mistrzami Europy. Wielki sukces. Brawo, brawo
--  Zamyslite sa, odkázal Feneš kritikom. Štrbák nechal za sebou Nemca, Valábika i Višňovského
--  Polacy mistrzami Europy. Wielki sukces. Brawo, brawo
--  إنتر يعزز صدارته للدوري الإيطالي
--  Ливан потребовал от Израиля вывода войск с оккупированных территорий
--  Ex-LDP Secretary General Toshihiro Nikai Questioned by Prosecutors over Hidden Funds on Voluntary Basis
--  মগবাজার ও ‍মুগদায় ককটেল বিস্ফোরণ
--  Mary Trump Predicts What Could Bring Donald Trump to 'Brink of Ruin'
--  Jorge Carranza deja Instituto y se suma a un club de la Primera Nacional
--  L'acteur Shia Labeouf envisage de devenir diacre
--  Natália comete deslize e entrega herança para Marcos em 'Elas Por Elas'
--  E gata! Lautaro Martinez a făcut anunțul: ”Sunt aproape să semnez”
--  عاجل.. التأمينات: المستفيد يستحق دعم ساند للمرة الثانية بهذا الشرط
--  «Στημένη» η ρίψη του Σταυρού στη Μυτιλήνη; Το βίντεο που έγινε viral με την ύποπτη κίνηση του ιερέα στον κολυμβητή
--  2023-й став рекордним роком за кількістю нових ігор – цифра вражає
--  Governorship: APC ‘ll take over Anambra in 2025- Ngige
--  ভোটের দিন বেসরকারি হাসপাতালগুলোকে সার্বক্ষণিক প্রস্তুত থাকার নির্দেশ
--  Украинские войска выпустили по Донецку шесть ракет из РСЗО
--  Wolves muốn mượn tiền đạo của West Ham
--  "Thật không công bằng khi Tottenham sa thải ông ấy"
--  Encontraron a un joven apuñalado en un barrio de Regina: investiga cómo ocurrió el hecho
--  Brignone apre il 2024 sul podio, terza nel gigante a Kranjska Gora
--  Božinović: Policija utvrđuje identitet ozlijeđenih u nesreći na autocesti
--  Video: Un herido de bala en Vista Alegre, durante violento conflicto entre familias por un terreno
--  الهند تأمر بمعايير جديدة لتصنيع الأدوية بعد وفيات أطفال في الخارج
--  Football. L'ASPTT Caen et l'AG Caen font trembler les filets en amical
--  যশোরে ভোটকেন্দ্রে আবারও ককটেল বিস্ফোরণ
--  Mira en vivo el lanzamiento del módulo de aterrizaje lunar Peregrine
--  إشاعة: حصرية اكسبوكس Hi-Fi Rush في طريقها إلى Switch
--  نتفلكس تفكر في تسعير الألعاب وإضافة الإعلانات مستقبلًا
--  إشاعة: حلقة Xbox Developer Direct جديدة قادمة الأسبوع المقبل
--  Mardin'de iki aile arasında silahlı kavga: 3 yaralı
--  Fatih Erbakan'dan Ankara, İstanbul, İzmir için iş birliği sözleri
--  Bakan Uraloğlu, Bayrampaşa'da vatandaşlarla bir araya geldi
--  ITV The Masked Singer's Maypole identity 'confirmed as biggest star yet'
+-  30 Yıllık WordPad Uygulaması, Tüm Bilgisayarlardan Kaldırılacak
+-  Zełenski: wartość zamrożonych aktywów rosyjskich za granicą to 300 mld USD
+-  Irak'ın kuzeyine hava harekatı
+-  Христо Мутафчиев: Давам срок на министъра на културата до края на януари, след което ще се предприемат протестни действия
+-  Японияда зилзила қурбонлари сони 120 дан ошди, яна юзлаб одам бедарак йўқолган
+-  Save on the Apple Watch SE, Apple Watch Series 9 this weekend
+-  Po 16-ročnej rekonštrukcii opäť sprístupnili ruiny rozsiahleho Aigaiského paláca
+-  הרמטכ"ל וראש שב"כ נכנסו למנהרות חמאס בלב חאן יונס: "נתפשט גם מתחת לאדמה"
+-  Кметът на "Изгрев" таи надежди, но отправи и благодарности към Васил Терзиев
+-  Michael Bolton confirma haber sido sometido a una cirugía por un tumor cerebral
+-  Jouko kuvasi suoraa lähetystä, kun joku juoksi kohti – Kolmelle tuomio
+-  Kal Ka Vrishchik Rashifal: वृश्चिक राशि वालों को कारोबार में मिलेगी बड़ी उपलब्धि, सेहत में रहेगी गिरावट
+-  Twins Tourism Odyssey in Uganda
+-  BBB24: Por que o Surfista Gabriel Medina é pivô da treta entre Yasmin Brunet e Vanessa Lopes
+-  ضجة بعد سؤال عن المثليين في امتحان بالأردنية
+-  الجيش : مقتل 5 مهربين والقبض على 15 آخرين - صور
+-  عائلات إسرائيليين قتلوا في كيبوتس بئيري: هل قتلت دبابة للجيش أقاربنا؟
+-  سرايا القدس تقصف تجمعا عسكريا إسرائيليا وسط خان يونس
+-  Anzeige – Deals & Sales: Spiele für unter 5,- Euro im Xbox Special Sale
+-  169 قائدا عسكريا اسرائيليا سابقا يدعمون هاليفي
+-  Italialaisseura pistää kättä taskuun - uhkaa romuttaa Tottenhamin ja Bayern Münchenin suunnitelmat
+-  Globos de Oro arrancan temporada de premios con «Barbie» y «Oppenheimer»
+-  „Dla Ciebie, Ojczyzno!” Kibice pielgrzymują na Jasną Górę
+-  Víťazka Grenierová: Aj my lyžiarky sme šťastné, ak vyhrajú rôzne pretekárky
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Arbor Realty Trust, Inc. - ABR
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Xponential Fitness, Inc. - XPOF
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Behalf of Investors of MiMedx Group, Inc. - MDXG
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Behalf of Investors of Cummins Inc. - CMI
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Mobileye Global Inc. - MBLY
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Checkpoint Therapeutics, Inc. - CKPT
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Envoy Medical, Inc.- COCH
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Amtech Systems, Inc. - ASYS
+-  Dónde ver los Globo de Oro 2024 en Estados Unidos, México y España
+-  Young official from Revelstoke chosen to go to NHL game
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of BlackRock, Inc. - BLK
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Hywin Holdings Ltd. - HYW
+-  Victoria Beckham is making cropped trousers 2024’s chicest tailoring trend
+-  Мими Христова спечели титлата след успех над Юлияна Янева във финала на републиканското
+-  Lenny Kravitz Reacted To Zoë Kravitz And Channing Tatum's Engagement
+-  Dit zijn de 3 koningen van de crypto industrie
+-  Pierwszy prywatny lot na Księżyc. Trzymamy kciuki
+-  Malala le pidió a su novio que le lleve a un lugar de ensueños, ¡mirá dónde están!
+-  Colleagues offer tribute after passing of WBZ’s Doug Cope
+-  La primera ministra francesa Élisabeth Borne, en la cuerda floja
+-  La primera ministra francesa Élisabeth Borne, en la cuerda floja
+-  نصية: مجلس الدولة يعيد إخراج المناصب السيادية من الدرج
+-  Giải bóng đá Thanh Niên Sinh viên Việt Nam có bàn thắng nhanh kỷ lục
+-  «Makta» del 2: Nå kommer Kåre Willoch
+-  Robert Kraft, Bill Belichick reportedly have yet to talk about a possible Patriots breakup
+-  Indijska solarna sonda je uspješno stigla do Sunčeve orbite
