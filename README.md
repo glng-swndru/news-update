@@ -1,51 +1,11 @@
 # Latest News
--  L-Theanin bei ADHS: Wirkung unbewiesen
--  Ronaldo publica texto emocionante em despedida a Zagallo: 'Significado enorme na minha vida e carreira'
--  80-year-old flown to hospital after alleged road rage incident: Alberta RCMP
--  للاستدامة البيئية.. إطلاق كائنات فطرية نادرة في محمية الإمام تركي
--  Arteta segir mögulegt að Arsenal nýti sér ekki janúargluggann
--  بيان من إدارة ترخيص السواقين والمركبات
--  عريضة بريطانية لطرد السفيرة الإسرائيلية تكتسب زخما
--  السيسي: مصر ستجتاز أي ظروف صعبة
--  تقرير حالة البلاد: تحلية المياه خيار الأردن الإستراتيجي للمستقبل
--  Ehemaliger hochrangiger NRA-Beamter gibt Fehlverhalten im New Yorker Korruptionsfall zu: NPR
--  Abonados de otra categoría: la Deportiva bate su propio récord histórico
--  'No nos afectan redadas porque trabajamos en la calle", trabajadora sexual de Cartagena
--  وزيرة خارجية فرنسا: ملتزمون بإيصال المساعدات إلى غزة بالتنسيق مع مصر والأردن
--  رسائل الرئيس السيسي خلال تهنئة الأقباط بعيد الميلاد المجيد.. إنفوجراف
--  البابا تواضروس: زيارة الرئيس كل عام لتهنئة المصريين بالعيد تمثل قيمة عالية
--  متحدث جيش الاحتلال: القتال في غزة صعب ومعقد ونتعلم باستمرار من مجريات الحرب
--  برلمانية: كلمة الرئيس السيسى بالكاتدرائية تكشف مواقف البابا تواضروس الوطنية
--  حبس متهمين في الشروق 4 أيام بعد ضبطهما بحوزتهما 10 كيلو حشيش
--  نجاح فى استضافة البطولات الرياضية.. اعرف جهود مصر فى تطوير الملف الرياضى
--  حزب الاتحاد: الرئيس السيسي أرسى قواعد المواطنة بوجدان الشعب المصرى
--  الحرية المصري: مشاركة الرئيس السيسي باحتفال عيد الميلاد رسالة بأننا نسيج واحد
--  حصاد الرياضة المصرية اليوم السبت 6 / 1 / 2024
--  James Rodríguez da buenas noticias en Sao Paulo
--  Futebol / 1ª Divisão Sub 19: BM deixa-se apanhar pelo Ac. de Viseu (2-4) e falha 3º lugar
--  Transferhammer soll unterwegs sein
--  Dhunimi i tre shqiptarëve në Mal të Zi, Policia e Shtetit sqaron kronologjinë e ngjarjes
--  ილია II საშობაო ეპისტოლეში ხელოვნურ ინტელექტზე საუბრობს
--  Man arrested after skinny dipping in a Bass Pro Shop display
--  Μητσοτάκης: Θα υπάρξουν περαιτέρω θετικά βήματα με τις ΗΠΑ στον τομέα της αμυντικής συνεργασίας
--  Ghislaine Maxwell: The life of the Jeffrey Epstein associate found guilty of sex trafficking
--  VIDEO U Vlasenici vrijeđaju bošnjačke povratnike: 'Ustajte balije'
--  Kurioser Unfall in Saas-Fee: Ärztin lässt zwei Verletzte liegen, die von ihrem Hund angefahren wurden
--  Crisis migratoria: Detenidos seis cubanos y ecuatorianos en México tras ser abandonados en un hotel
--  CAN 2023 : La liste des 27 Gambiens enfin connue
--  BILDER | Die volle Ladung Derby-Emotionen
--  Familie schildert Angst auf Habecks Fähre: „Die hatten nichts Besseres zu tun, als auf die Kinder einzubrüllen“
--  Familie schildert Angst auf Habecks Fähre: „Die hatten nichts Besseres zu tun, als auf die Kinder einzubrüllen“
--  Oberhof: Preuß fehlen die letzten „Körner“ zum nächsten Podium
--  Say hello to 'MoJo'! Boris Johnson and family joins Oxford Morris dancing festival where people dress up as elves and pour cider on tree roots
--  "Je souffre pour lui" : Veronika Loubry dévoile pourquoi son compagnon, déjà atteint d'un cancer, est hospitalisé depuis une quinzaine de jours
--  [더사주 오늘의 띠별 운세]
--  Jung-Nationalrätinnen der SVP und SP: «Hier ziehen wir am selben Strick» – «Ähm, nein!»
--  ONESVEŠĆENOG GA VUKLI PO BETONU: Jezivo vršnjačko nasilje u Bijelom Polju, brutano pretučen dečak (14)
--  Az amerikai külügyminiszter próbálja csillapítani a kedélyeket a Közel-Keleten
--  MasterChef star Gregg Wallace in battle to better fund education for autistic children: TV judge, whose four-year-old son Sid has condition, says it's 'not easy' to find schooling support
--  İstanbul'da trafik kazası! Ölü ve yaralılar var
--  Bursa'da motosiklet zabıta aracı ile çarpıştı! 2 yaralı
--  Niğde'de 2 otomobil kafa kafaya çarpıştı: Karı- koca hayatını kaybetti
--  ABD Dışişleri Bakanı Blinken, Yunanistan Başbakanı ile görüştü
--  Ankara'da bir otelde skandal: Su yerine çamaşır suyu servis edildi!
+-  إسرائيليون يتظاهرون للمطالبة برحيل نتنياهو
+-  أوباما يوجه بايدن في حملته الانتخابية
+-  اللواء الدويري: المعارك الحاسمة تدور في وسط غزة
+-  Escándalo en Francia: El PSG es investigado
+-  Israël: Hamas in noorden van Gaza volledig ontmanteld
+-  В Турции отбуксировали второй за сутки танкер, следовавший в Россию
+-  NFL: Wer hat noch eine Chance auf die Playoffs? Der große Überblick! | Sport
+-  Sofía Varela: “Me voy de la institución con un sin sabor muy grande y muy dolida”
+-  Primeiro-ministro alemão elogia legado de Costa e felicita eleição de Pedro Nuno Santos
+-  Supervisan operativo por retorno de temporadistas tras asueto navideño
