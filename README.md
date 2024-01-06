@@ -1,11 +1,11 @@
 # Latest News
--  شركة أمن بحري: تلقينا تقريرا عن حدث أمني في باب المندب
--  فيديو .. انفجار نافذة طائرة ركاب يجبرها على الهبوط اضطرارياً في أمريكا
--  22 شهيدا في خانيونس منذ فجر اليوم
--  حزب الله: استهدفنا موقع المطلة وثكنة هونين
--  Cooler Master novim vrhunskim napajanjima ne trebaju ventilatori
--  Mohammad Hafeez addresses concerns about Babar Azam, Shaheen Afridi
--  Jöttek a „törvényi változások”, nevet és vezetőséget változtatott az egykori Honvédszakszervezet
--  Veganuary turns 10: How plant-based foods took over Europe
--  Heavy fire from Lebanon targets northern Israel amid concern over Gaza spillover
--  Gumbo: soul food from the bayou
+-  Mandić: Božić podsjetnik da suživot i tolerancija nemaju cijenu
+-  IJZ: Epidemija Kovid-19 u Domu starih u Podgorici
+-  URA: Odakle Uljarević 400.000 za prostor u zgradi Bemaksa
+-  Dežurni objekti u Bloku pet, Tuzima i Golubovcima
+-  Raketna paljba ka sjeveru Izraela, Hezbolah preuzeo odgovornost
+-  지창욱, ♥신혜선 마음 흔든다 "나 너 좀 더 흔들면 안 되냐" [삼달리]
+-  '심상치 않다' 류현진, 메츠 영입 후보에서 빠지지 않는다 "지난해 견고했다"
+-  너희가 토트넘을 아느냐? '버럭한' 손흥민 스승 "토트넘이 운 좋다고? 절대 아니다!"
+-  Sylwester z "30-tką"
+-  Zmarł Witek Muzyk Ulicy. Publiczność go kochała
