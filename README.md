@@ -1,51 +1,11 @@
 # Latest News
--  "أزمات وحسد" لمواليد 3 أبراج في منتصف يناير.. هل أنت منهم ؟
--  음바페, 드디어 미래 결정 데드라인 공개→ “챔피언스리그 16강 시작 전에 결정한다”
--  హామీలను నెరవేర్చాలి
--  వైసీపీలో తిరుగుబాటు మొదలైంది
--  Magaya In US$3 Million Fraud
--  Trump rallies in Iowa on third anniversary of Jan. 6 attack on Capitol: Watch live
--  أم صلال يتوج بكأس دوري نجوم قطر عقب تجاوز العربي
--  Fra fjerbold til skydevåben - Spillede hver onsdag aften
--  Портников розповів про мрію Путіна, яку той зможе втілити в життя після виборів
--  9, 10 తేదీల్లో జిల్లా స్థాయి వైజ్ఞానిక, గణిత, పర్యావరణ ప్రదర్శన
--  Le questionnaire de Cécile de France
--  La Reale Mutua Fenera Chieri ’76 domina contro Roma Volley
--  Inzaghi: "Voglio una Salernitana da battaglia. Forza Juve è nota, serve..."
--  Pagelle Juventus Primavera: distratto Fuscaldo, disorientato Ngana
--  Calvarese sul 2-1 dell'Inter: “Fallo chiaro di Bastoni, gol da annullare"
--  Per Albese tre punti pesanti contro Talmassons
--  Anticipo senza storia: Chieri travolge Roma
--  కార్మికుల సమస్యల్ని వెంటనే పరిష్కరించాలి
--  بلينكن: من المهم أن يحظى الإسرائيليون بالأمن في الشمال
--  అవనిపై విరిసిన హరివిల్లు
--  Ο Απόλλωνας κέρδισε την ΑΕΛ με 3-1 μαζί όμως και τα πολλά προβλήματα – Πρωταγωνιστής ο Βαλμπουενά
--  СК возбудил уголовное дело после взрыва газа в доме в Самаре
--  Erik Adielsson ja Oskar Kylin Blom ajoivat kaksi voittoa Rommen raveissa
--  Erik Adielsson ja Oskar Kylin Blom ajoivat kaksi voittoa Rommen raveissa
--  French Politician Calls for NATO's Destruction 'For World Peace'
--  OPINION: The Recipe For True Happiness
--  Três em três. Arouca empatou o encontro, mas golo de Cristo foi anulado
--  NBA : Victor Wembanyama sera-t-il le premier basketteur à cumuler un salaire de plus d'un milliard de dollars ?
--  Dumfries pritet të largohet në janar nga Interi
--  ఎస్మా నిర్బంధానికి భయపడం
--  USA: Flugzeug von Alaska Airlines verliert Fenster im Flug – Flugverbot für bestimmte Boeing 737-9 Max
--  De Minaur 'dangerous' ahead of tilt at Australian Open
--  ధర్మవరంలో రౌడీయిజం లేకుండా చేస్తా
--  ఇలపై హరివిల్లు
--  Έκανε δικό του και αυτό το Λεμεσιανό ο Απόλλωνας και χαμόγελα ελπίδας
--  Fenómeno del Niño: envían 75 cisternas para siete regiones del país
--  Prestigao Ivana Balića: Duvnjak rekordni šesti put najbolji rukometaš Hrvatske
--  8 రోజులు..1,90,965 దరఖాస్తులు
--  الأونروا: 90 بالمئة من سكان غزة تعرضوا للنزوح القسري
--  Scotland weather: Freezing conditions expected as temperatures plunge
--  दिल्ली में ठंड और कोहरे का कहर, बढ़ गईं स्कूलों की छुट्टियां, केजरीवाल सरकार ने दे दी बच्चों को बड़ी राहत
--  Jumbo weet nu wat er komt na graaiflatie: snaaiflatie
--  Lakers, in arrivo Dylan Windler con un Two-Way Contract
--  경북대, 새로운 전계발광 소자 기술 개발
--  Tri prehry a viac ako 100 inkasovaných gólov. Slováci zakončili turnaj výpraskom od Poliakov
--  Gazan sota | Unicefin mukaan Gazan lapsia uhkaa nälänhätä – Israelin pommitukset jatkuneet
--  চাঁদপুরে লঞ্চসহ সব ধরনের নৌযান চলাচল বন্ধ
--  বিশ্বসেরা গবেষকের তালিকায় হাবিপ্রবির ১১২ শিক্ষক-শিক্ষার্থী
--  সব প্রস্তুতি সম্পন্ন, অগ্নিপরীক্ষায় ইসি
--  বরিশালে টাকার বিনিময়ে ভোট ক্রয়, আ.লীগ নেতার ১৫ দিনের কারাদণ্ড
+-  بيان صادر عن نقابة الصيادلة
+-  نتنياهو: لا حصانة لحماس وسنواصل الحرب
+-  30 شهيداً في خان يونس منذ فجر اليوم
+-  Ontario School Board Says Teacher Charged With Failing to Help Student in Medical Distress Will Not Be in Schools
+-  «العميد» يبحث عن «ارتكاز».. والعامري تحت الأنظار
+-  إبراهيم يعتذر عن عدم الاستمرار مع «الأصفر»
+-  الكويت يهدد خيطان.. والقادسية يواجه النصر
+-  الجولة الـ 13.. «الأبيض».. مهرجان تهديفي وعودة للقمة
+-  «أزرق اليد» ينهى معسكره الخارجي
+-  الفحيحيل ينتظر مصير الحنشي.. ويدرس البحث عن بديل
