@@ -1,51 +1,51 @@
 # Latest News
--  GMR Aerocity Festivals Presents 'Aerocity Culinary Fest - Where Food Meets Fun' on January 13th & 14th, 2024 at The Square @ GMR Aerocity, New Delhi
--  총격 현장서 몸 던져 학생 지켰다…교장 선생님 사연에 美 '영웅'으로
--  80년 전에 보낸 편지…봉투에 번지수 없어 뒤늦게 배달
--  서울 전 지역 대설주의보…"눈구름대 빠르게 이동"
--  北, 이틀째 서해 포격훈련…軍 대응사격은 자제
--  여야, DJ 100주년 기념식 총집결…"분열 아닌 통합해야"(종합)
--  Gelecek Bursa'da "Belediye Başkan Adayı" Sürprizi!
--  İzmir'de 4.2 büyüklüğünde deprem
--  AK Parti'nin Bursa Büyükşehir Adayı Alinur Aktaş mı?
--  AK Parti Bursa Milletvekili Özen hızlı tren için harekete geçti
--  Berisha në ‘arrest shtëpie’, Rithemelimi mbledh Kryesinë në selinë e PD-së
--  Berlingske: поставка Украине истребителей F-16 из Дании задерживается на полгода
--  وزير خارجية مصر: يجب وقف التصريحات غير المسؤولة والتحريضية التي تصدر عن بعض المسؤولين الإسرائيليين بشأن تهجير سكان غزة
--  PSG : Mbappé épargné face à Revel ? Luis Enrique répond
--  امام مسجد کی نماز میں سجدے کی حالت میں موت
--  پاکستان ٹیم پھرناکام،آسٹریلیا نے وائٹ واش کردیا
--  Arheolozi pronašli pomalo jezive artefakte u srcu Europe: Misle da su ih koristi u kultu iz mračnog doba
--  دعوة للمشاركة في اعتصام أمام السوق المركزي غدا
--  ما ينوب المخلص إلا تقطيع هدومه.. مصرع شخص تدخل لفض مشاجرة بين طرفين بالسويس
--  নৌকার প্রার্থীর গাড়ি ও বাড়িতে হামলা-ভাঙচুর
--  هيئة البيئة – أبوظبي تتعاون مع «بيورهيلث» لإجراء دراسات بحثية حول تأثير التحديات المناخية في الصحة العامة
--  Dodik: Američki avioni nemaju saglasnost da 8. januara nadlijeću BiH
--  지역대 정시마감, 전년보다 경쟁률 낮아져, 상위권 학생들 상향지원 및 수도권 선호현상 가속화
--  القبض على صاحب شركة أجهزة منزلية كبرى بعد صدور 45 حكما قضائيا ضده
--  كاساس يكشف تشكيلة العراق لمواجهة كوريا الجنوبية
--  أطفال المدارس بالغردقة يدعمون أطفال غزة بمساعدات غذائية
--  Mega-Sena sorteia neste sábado prêmio de R$ 6,5 milhões
--  Dreikönigstreffen der FDP - Aktivisten stürmen schreiend in Lindner-Rede - der setzt Klimageld-Konter
--  Commerce mondial: Pékin a le cognac, l'armagnac et les brandys européens dans son viseur
--  Einige Bedingungen noch nicht erfüllt - Dänemark versprach Ukraine F-16-Jets zum Jahreswechsel- daraus wird nichts
--  القسام: حاصرنا 9 جنود وأوقعناهم بين قتيل وجريح شرق خانيونس
--  حملة أردنية لشراء حليب للأطفال في غزة
--  بدء تصحيح الأسئلة المقالية لمبحث اللغة العربية
--  وزير الخارجية الأمريكي في الأردن الأحد
--  تعديلات وزارية في حكومة الإمارات
--  UN says $52 million needed to support migrants in Afghanistan
--  القبض على شخصين بتهمة الاستيلاء على بيانات بطاقات الدفع الإلكتروني الخاصة بالمواطنين
--  Study finds reason, cure for cancer in immunotherapy-induced colitis
--  Handball, Testspiel - Deutschland gegen Portugal im Liveticker
--  Biathlon in Oberhof - Das Verfolgungs-Rennen der Damen im Liveticker
--  Brazil delivers record trade surplus in 2023
--  الري: مناقشة 1506 طلبات لترخيص آبار جوفية و125 لأعمال على الشواطئ و55 على النيل
--  Wasser 8 Grad kalt: Eisbaden in Mendener Freibad nach Notfall abgebrochen
--  গাজা মৃত্যুপুরীতে পরিণত হয়েছে: জাতিসংঘ
--  معتمد جمال يشرح خططه للاعبي الزمالك قبل الدورة الودية بالإمارات
--  ACA RASPLAKAO BILJU ONA MU SE OBRATILA: Želim da nam brak traje ceo život! Otkrila i sve o jednom dočeku koji nisu proveli zajedno
--  Outdoors sports shows, Devils Lake ice fishing tourney coming up on outdoors calendar
--  Amazon driver 'ran off with £300 gift from doorstep' but claimed it was delivered
--  Bharat Jodo Nyay Yatra: 'भारत जोडो न्याय यात्रा, न्याय का हक मिलने तक', काँग्रेसकडून लोगो जारी
--  تطورات الحرب على غزة وتداعياتها في يومها الـ92
+-  Gemini 7 January 2024 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  Në mbrëmje vjen cikloni/ Shi në zonat e ulëta, borë në male gjatë fundjavës, më pas ulen temperaturat deri në -9 gradë
+-  Клинтон, Трамп, принц Эндрю, Билл Гейтс в секс-империи, стоимостью 600 млн долларов
+-  المركز الأورومتوسطي لحقوق الإنسان يطالب قوات الإحتلال الإسرائيلي بكشف ظروف ومصير المعتقلين من غزة
+-  Mâconnais. 2023, deuxième année la plus chaude jamais enregistrée dans le Mâconnais
+-  Event commemorates centenary of Lerwick’s County War Memorial
+-  Menarini Group und Insilico Medicine schließen exklusiven globalen Lizenzvertrag für neuen KAT6-Inhibitor für mögliche Behandlungen von Brustkrebs und andere onkologische Indikationen ab
+-  आलिया और रणबीर हॉलीडे से वापस लौटे, बेटी राहा के साथ मुंबई एयरपोर्ट पर स्पॉट| Photos
+-  Delitto di via Poma, i pm bocciano la pista su Vanacore figlio. E torna sotto i riflettori la figura dell’avvocato “dei misteri” Caracciolo di Sarno
+-  هزة أرضية بشدة 2ر3 درجات بولاية معسكر
+-  هزة أرضية بمعسكر: عدم تسجيل أية خسائر
+-  سكك حديدية: مجمع "جيتراما" يتطلع للمساهمة في تقليص آجال إنجاز المشاريع
+-  تمويل اقتناء السيارات: قروض إسلامية تصل إلى 90 بالمائة
+-  فنلندا ستفقد أكثر من 10% من الغاز المسال إن حظرت استيراده من روسيا
+-  Beşiktaş'ın parlayan yıldızı Semih Kılıçsoy
+-  Çaykur Rizespor evinde hata yapmadı! 3 puanı 2 golle kaptı
+-  Beşiktaş Emlakjet deplasmanda galip
+-  Tüyap Fuar ve Kongre Merkezi kapılarını karavan ve doğa tutkunları için açıyor
+-  Malatya da sallandı: Korkutan deprem! Büyüklüğü…
+-  "ภูมิธรรม" รับปาก หาสมดุล สร้างกระเช้าไฟฟ้าขึ้นภูกระดึง
+-  Trashësia ka arritur në një metër, norvegjezët gërmojnë dëborën për të hyrë në shtëpitë e tyre
+-  Службениот автомобил на министерката за труд и социјална политика удрил во „пасат“ – има повредени!
+-  مهاجم وست هام يحث أرسنال على ضم توني
+-  Megöltek egy embert Felsőszölnökön
+-  Rizespor-Hatayspor: 2-0
+-  İran'ın Şiraz kentinde şiddetli patlama
+-  Cumhurbaşkanı Erdoğan ABD Dışişleri Bakanı Blinken'ı kabul etti
+-  Alper Gezeravcı Uzay’dan Elazığ ve Yozgat’a bağlanacak
+-  Numan Kurtulmuş: Ümit ediyorum ki gazetecilerin yeşil pasaport alması mümkün olur
+-  “الفاو”: انخفاض أسعار المواد الغذائية بنسبة 13,7% في العام 2023
+-  Ngân hàng nào cho vay mua nhà ưu đãi nhất tháng 1/2024?
+-  Ronaldo được vinh danh ở giải thưởng mà Messi chưa từng sở hữu
+-  Tranh cãi vị thế sao Cbiz qua 1 bức ảnh: “Ảnh hậu” thành center, Nhiệt Ba - Dương Tử ra rìa nhưng vẫn khá hơn Na Trát
+-  Bộ phim bị gỡ gấp vì chỉ có 8 người xem, nam nữ chính đều là "tiểu tam" khiến ai nấy chết lặng
+-  Đằng sau đứa trẻ bạo lực thường có 3 kiểu cha mẹ này
+-  Ý nghĩa hoa cưới xanh dương độc lạ của MC Thanh Vân Hugo: Đặt niềm tin không giới hạn cho "nửa kia" và còn gì nữa?
+-  5 cầu thủ giá trị nhất thế giới: Haaland chỉ đứng thứ 2, Mbappe bất ngờ ngồi ngoài
+-  Đám cưới Vân Hugo: Diễm My 9x - H'Hen Niê và dàn "Chị đẹp" đổ bộ, Mai Phương Thúy lộ diện gây chú ý
+-  Hướng dẫn 8 bước gia hạn thẻ BHYT gia đình online đơn giản ngay tại nhà
+-  Loại quả có hình thù kỳ lạ nhưng mỗi dịp Tết lại được săn lùng để trưng ban thờ: Giá lên tới cả triệu/quả
+-  Diễm My 9x tinh tế phục vụ thức uống không cồn tại tiệc cưới, mở đầu xu hướng "tiệc vui êm ái"
+-  Muere aplastado por su vehículo tras volcarse
+-  Amanece Chihuahua capital a -1°C
+-  Benzinlikte sucuk yıkayanlara gözaltı
+-  Aliağa 4.2 ile sallandı
+-  Ayla Algan'ın cenazesi Muhsin Ertuğrul sahnesinde düzenlenin törenin ardından uğurlandı
+-  Kardeşlerim yeni bölümü bu akşam var mı? Kardeşlerim bugün yok mu? ATV 6 Ocak 2024 yayın akışı
+-  Artvin'de kar ve heyelan! 40 köy yolu ulaşıma kapandı
+-  Tıpkı kefir gibi bağırsak dostu besinler! 30 dakika içerisinde hareketlenmeler başlıyor
+-  Trabzonspor'un hedefi Ousmane Camara
