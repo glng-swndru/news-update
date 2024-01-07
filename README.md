@@ -1,51 +1,51 @@
 # Latest News
--  Ak Parti Samsun Büyükşehir Belediye Başkanı adayı kim oldu? İşte Ak Parti Samsun Belediye Başkan adayı...
--  Hem kahvaltılık hem çay tatlısı! Donut tarifi! Püf noktası maya ve süt
--  소청과의사회, '헬기 이송' 이재명 대표 고발 예정
--  Wann haben Arbeitnehmer Anspruch auf eine Abfindung?
--  이재명 기습 피의자, 당적 공개 안될 듯…경찰, 금주 수사결과 발표
--  7 يناير 2024.. نشرة أسعار الأسماك بسوق العبور للجملة خلال تعاملات اليوم
--  Mali: le Conseil de sécurité de l’Onu revient sur l’Accord d’Alger
--  조국 "나의 아저씨 누가 죽였나"…연일 故 이선균 소환
--  9일 국회 본회의…쌍특검법 등 처리 놓고 여야 대립
--  日노토강진 사망 128명·부상 560명…재해지역에 눈까지
--  Censit i popullsisë, Tabaku: Vonesat fshehin disa shifra, frikë e një qeverie që i mban njerëzit me propagandë
--  Um ano depois, mentores da tentativa de golpe de 8 de janeiro ainda não foram punidos
--  YUNZII YZ84 Pro2 75 % Dichtung, Hot-Swap-fähig, 2,4 GHz/Bluetooth 5.0/USB-C, kabellose mechanische Gaming-Tastatur, 3100 mAh Akku, RGB für Win/Mac/Gamer (Gateron Black Switch, Weiß)
--  Még Joe Biden előtt is titkolták védelmi minisztere betegségét
--  Aishwarya Rai, Abhishek, and Amitabh cheer together for Jaipur Pink Panthers
--  ‘La casa de Resa’ reparte parte del gordo en Laudio
--  Undefeated rising star calls out Tim Tszyu
--  Undefeated rising star calls out Tim Tszyu
--  Potres magnitude 3 noćas kod Varaždina
--  Stevandić za sutra zakazao sastanak stranačkih lidera o 'Izbornom zakonu RS'
--  Masleša: 'Prosvjeta' doprinosi očuvanju tradicije međusobnog razumijevanja, uvažavanja i poštovanja
--  Tenis - Coco Gauff odbranila naslov u Aucklandu
--  جاپا ن: زلزلے سے ہلاکتوں کی تعداد 126 تک پہنچ گئی
--  Staffeln am Sonntag in Oberhof
--  Llevan ante el MP a exlíder del PRI; opositores acusan presión
--  Вдова участника спецоперации рассказала о встрече с Путиным в канун Рождества
--  다방업주 연쇄살해범 영장심사…"죄송하다"
--  Ostapenko turnīru pirms "Australian Open" sāks ar maču pret Kirsteu
--  [오피셜] ‘커리어 하이’ 황희찬에게 밀려 벤치 자원 전락 ST, 프랑크푸르트 임대 이적
--  Como, auto finisce nel lago: due morti
--  Imigresen Perak tangkap 95 PATI di Ipoh, Gopeng
--  Mean Girls, Maniax and magic: Best things to do in Brisbane this week
--  BAG will Impf-Verträge weiter unter Verschluss halten
--  קונים מכשיר חדש? תתחדשו, רק יש כמה דברים שצריך לעשות עם הישן
--  เผยโฉม Samsung Galaxy S24 Ultra สีพิเศษ สีฟ้า, สีเขียว และ สีส้ม
--  BE-ja mirëpret vendimin e Kosovës dhe Serbisë për targat, Borrell: Hap pozitiv në rrugën e integrimit të Ballkanit Perëndimor
--  북한 "포사격 아닌 폭약…한국군, 기만전술에 속아"
--  غلق 9 كيانات وهمية بالفيوم تدعي منح ليسانس وبكالريوس وماجستير خلال أخر 10 أيام
--  صفاقس الإطاحة بوفاق إجرامي دولي ينشط في مجال تهريب الأشخاص عبر الحدود
--  Ο Χάμιλτον κλείνει τα 39: «Δεν είμαι σε θέση να κερδίζω, αλλά χαμογελώ ακόμα βγαίνοντας από τα πιτς»
--  Musées et monuments gratuits : les lieux à visiter ce dimanche 7 janvier 2024 à Paris
--  Les événements artistiques à Paris à ne pas manquer ces prochains jours
--  ‘Barbie’ Among Titles For Canal+ Subscribers, Following Renewal Of Warner Bros Discovery Deal
--  7 يناير 2024.. نشرة أسعار الحديد والأسمنت بالمصانع المحلية
--  Yedi kişilik aileyi zehirleyen balon balığı rota değiştirdi! İstanbul ve İzmir’e geliyor
--  Affaire Gérard Depardieu : "La voix des femmes doit être entendue", insiste la chanteuse Lio dans l'émission "C L'Hebdo"
--  ‘Why should we tolerate unprovoked hate’: Akshay Kumar calls for exploring Indian islands after racist barbs from Maldives politicians, public figures
--  „Ariel“-Star Halle Bailey ist Mutter geworden
--  ĐOKOVIĆ SAZNAO KAD DOBIJA RIVALE NA AUSTRALIJAN OPENU! Otkriveno sve o žrijebu - evo ko sve od Srba čeka!
--  Sıdıka teyze 44 yıllık ahizeli telefonundan vazgeçmiyor: Daha sağlıklısı yok
+-  Menores fueron los reyes de la ciudad; salen a estrenar sus regalos
+-  Independientes quedan fuera de la elección; a la orilla, 9 que buscaban la presidencia
+-  Luxembourg : une série d’accidents liés à l’alcool
+-  وزير الداخلية يوجه باستحداث وحدة الموظف الأقدم في الوزارة
+-  IJsbaan in Barneveld ligt klaar voor korte vorstperiode
+-  Uyuşturucu satıcısı kovalamacada yakalandı
+-  Черный лебедь действительно прилетел
+-  Nông dân lập câu lạc bộ doanh nhân doanh thu tiền tỉ để cùng nhau làm giàu
+-  Tin tức giải trí 7-1: Fan Trung Quốc lặn lội đi xem Chi Pu nhận giải Mỹ nhân của năm
+-  Câu chuyện trong cộng đồng LGBT: Hạnh phúc không viển vông nếu đủ chân thành
+-  Đất Nước Khí Lửa nhắc nhớ bản thể hình thành, để hiểu mình là ai
+-  Названы калининградские города с самыми сильными рождественскими морозами
+-  Patrijarh Porfirije služio arhijerejsku liturgiju u Pećkoj patrijaršij
+-  Božićna čestitka gradonačelnika Mostara
+-  Coreia do Norte faz disparos de artilharia pelo terceiro dia consecutivo
+-  Punimet e dorës mbeten gjithmonë në modë
+-  เช็กเงินอุดหนุนบุตร 600 บาท มกราคม 2567 เข้าวันไหน?
+-  Стали известны подробности взрыва гранаты в кальянной в Домодедово
+-  Bursa'da kadınların iş gücüne katılımı, Türkiye ortalamasının üzerinde
+-  AK Partili Kılıç'tan Rumeli derneklerine ziyaret
+-  Görme engelli milli judocu Yasin Çimciler, Paris Olimpiyatları'nda altın madalyaya odaklandı
+-  Van sallandı!
+-  स्थापनाको एक दशकपछि सशस्त्र प्रहरीबल आफ्नै भवनमा
+-  La peor noticia de todas: lesión de Rafa Nadal y adiós al Open de Australia
+-  Hafta sonu güncel altın fiyatları
+-  Türkiye’nin en kapsamlı çocuk etkinliği Şivlilik Çocuk Bayramı başlıyor
+-  Galatasaray - Konyaspor maçının VAR hakemi Alper Çetin
+-  Kazı çalışmalarında kalp şeklinde taş bulundu: Göktaşı olabilir, incelenmesi gerek
+-  চট্টগ্রামে ভোটকেন্দ্রে নৌকা ও ফুলকপির সমর্থকদের সংঘর্ষ, গুলিবিদ্ধ ২
+-  "Барселона" нацелилась на жемчужину бразильского футбола
+-  Более 1,1 тысячи участков для застройки выявлено в Нижегородской области в 2023 году
+-  Kate Garraway faced ‘ordeal’ of 12-hour flight with husband Derek Draper after heart attack
+-  Earth’s Inner Core Wobbles Every 8.5 Years, Study Finds
+-  Bećirović uputio čestitku povodom Božića
+-  Où regarder la Coupe du monde de cyclo-cross en live ? Les directs sport à la télé ce dimanche 7 janvier en Belgique
+-  Scène hallucinante dans le cœur de Bruxelles : un véhicule se retrouve… dans une station souterraine, “pas le premier malheureusement”
+-  Rafael Nadal déclare forfait pour l’Australian Open : “Mon objectif est d’être à mon meilleur niveau dans trois mois”
+-  Šejla Zonić oduševila Mariju Šerifović : Poslije moje pjesme nije morala pjevati ništa
+-  Bidenu danima nisu rekli da je ministar odbrane u bolnici
+-  Bauernpräsident: Wollen keine Rechte auf unseren Demos haben
+-  Yatta Evlilik Teklifi Etmek İçin 3 Neden
+-  Rafael Nadal withdraws from Australian Open on eve of tournament after fresh injury blow
+-  [FOTO] Spektakularna tajna degustacija kao najbolja najava WineOs-a
+-  Karriere: Junger Techniker plant in Schmallenberg Photovoltaik-Dächer
+-  Stupar: Ni najpovoljniji uslovi života ne mogu donijeti čovjeku istinsku radost bez Boga
+-  ΑΕΚ – Ολυμπιακός: Μεσημεριανό ντέρμπι για τη Basket League στα Άνω Λιόσια
+-  Как и за что изымают детей из семей
+-  On Orthodox Christmas Putin vows to back soldiers who ‘defend’ Russia
+-  Un homme de 76 ans blessé d'une balle dans la tête à Cannes, son pronostic vital engagé
+-  Kendall Cenner güzgü qarşısında qüsursuz bədənini nümayiş etdirdi – FOTOLAR
