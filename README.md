@@ -1,51 +1,51 @@
 # Latest News
--  المصرف المركزي: إجمالي الإنفاق الحكومي خلال العام 2023 بلغ 125.7 مليار دينار
--  Partido mobilizado para "ir à luta" com críticas a Marcelo e à justiça
--  רפאלוב בהרכב מכבי חיפה, גם פיינגולד פותח נגד הפועל ירושלים
--  AKP’nin adayı Murat Kurum’un 35 kişinin ölümüne neden olan firari isimle fotoğrafı çıktı
--  El motivo que le evitaría jugar a Messi con el Inter Miami
--  تحديات وترتيبات وصول الجماهير المغرببية إلى سان بيدرو لحضور كأس الأمم الإفريقية 2023
--  دفاعا عن النقابات .. دفاعا عن الوطن
--  دولي مغربي سابق ينضم رسميا إلى الدوري الروماني
--  يونس عبد الحميد يوجه رسالة للجماهير قبل انطلاق "الكان"
--  سعد لمجرد يتوج بجائزة جديدة
--  مطالب بوقف الفوضى في سوق المحروقات وانتقادات للارتفاع الصاروخي في أرباح الموزعين
--  Virgil van Dijk absence explained as defender misses FA Cup clash
--  Unai Emery wants 27-year-old striker as Jhon Duran replacement
--  Cum combat risipa alimentară studenții români la „Științele Vieții”. Resturi alimentare transformate în ingrediente
--  Московское «Динамо» в овертайме обыграло «Спартак» в матче КХЛ
--  Loquet Opens Candy Colored Flagship Boutique In London
--  Gizemli Biri, Satoshi Nakamoto'nun 14 Yıldır Hareketsiz Olan Cüzdanına 1,2 Milyon Dolar Gönderdi
--  Acaba la huelga de controladores de tierra de Barajas con poco seguimiento y futuros paros
--  ABD Dışişleri Bakanı Blinken Katar’da
--  SAD brinu da bi Netanjahu mogao da započne rat i u Libanu
--  কোম্পানি ফ্লোরে থাকলেও বড় জয় পেয়েছেন কর্তারা
--  U lavini na Alpima poginula dvojica planinara
--  Luka Romero Milan: non c’è solo il Como. Spunta il piano del Lecce
--  Säässä tapahtuu tiistaina täyskäännös, kun lämpötila nousee Oulussa plussan puolelle – Seuraava pakkasjakso hätyyttelee jo nurkan takana
--  Mladi rukometaši BiH na bolan način ispali od Izraela
--  ঢাকা-১০ আসনে জয়ী নায়ক ফেরদৌস
--  Lenia no es la ministra del pueblo, sino del dedazo: Xóchitl Gálvez
--  Le Carlotta ferme à Caen pendant plusieurs semaines : une grande surprise en préparation
--  Roy Calne, a surgeon who led Europe’s first liver transplant, has died aged 93
--  Leeds cruise past Peterborough to reach fourth round
--  Dike scores as West Brom sweep aside Aldershot
--  ME w łyżwiarstwie szybkim - brązowy medal Kani na 500 m
--  SAD Trenčín pre nedostatok vodičov autobusov redukuje spoje, zmeny sa dotknú 17 prímestských liniek
--  İzmir'de sağanak yağmur yolları göle çevirdi
--  „Wir distanzieren uns von rechter Gewalt“: Bauernproteste starten um 6 Uhr am Montag im Rhein-Sieg-Kreis
--  Mary Lou Retton, 55, opens up about devastating effects of life-threatening pneumonia battle in first interview since hospitalization
--  Just nu: Olycka med flera fordon
--  Presidential Debate: Ganjar Pranowo Offers 3 Solutions to Resolve South China Sea Disputes
--  Coupe de France : Monaco écarte Lens, Marseille, Lyon ou encore Rennes également qualifiés pour les 16es de finale
--  روسيا تتحدث عن خسائر كبيرة في صفوف القوات الأوكرانية
--  Peter Bone: Disgraced ex-Tory MP’s partner selected to stand in his seat
--  Feyi-Waboso to snub Wales for England in Six Nations
--  Galatasaraylı oyuncunun yeni imajı gündem oldu: Rio Ferdinand benzetmesi
--  Près de Toulouse. Il vole des dizaines de litres de carburant sur des camions
--  فرنسا تعتزم بناء ثماني محطات نووية تُضاف إلى ست معلن عنها
--  Japan sagt Ukraine Unterstützung bei Drohnenerkennung zu
--  ঈগলের থাবায় পরাজয় বরণ করলেন নৌকার গোলাপ
--  «Ак Барс» одержал победу над «Автомобилистом» в матче КХЛ
--  “Na goditën në kokë dhe në trup”, si u dhunuan tre shqiptarët në Malin e Zi, çfarë dihet deri tani për ngjarjen
--  «كارت شحن» يحذر من تغول التطبيقات الرقمية على الحياة المعاصرة
+-  "מופע אימים": שחקני נאפולי התנצלו בפני האוהדים, קונטה יושיע?
+-  לקראת הדיון המכריע: כל מה שצריך לדעת על ההליך בבית הדין בהאג
+-  İstanbul'a kar ne zaman gelecek? Meteoroloji uzmanı tarih verdi
+-  Süper Lig'de Galatasaray'a karşı çıktığı ilk maçta harikalar yarattı! 35 dakikada 5 kurtarış... "Türk futbolu yeni bir kaleci kazandı"
+-  By: does Puravive cause diarrhea
+-  By: Puravive weight loss legit
+-  By: Puravive review amazon
+-  Michael Irvin Drank Water Upside Down To Cure His Hiccups Live On ‘NFL Gameday Morning’
+-  Homologa Aquiles Serdán descuentos en predial con Chihuahua
+-  Hilfe von Mama? Doria Ragland soll bei Meghan Markle und Prinz Harry eingezogen sein
+-  Manchester City turladı, De Bruyne döndü
+-  Ushqimet që nuk duhet t’i ruani asnjëherë në frigorifer
+-  Charlie Hebdo, Hypercacher : neuf ans après les attentats, Paris honore les victimes
+-  সপ্তমবাবের মতো নির্বাচিত বীর বাহাদুর উশৈ শিং
+-  Isaac Lee, el bogotano que manda en la empresa más importante de K-pop, la que maneja a BTS
+-  Brasil despide a una de sus leyendas: Mario Zagallo
+-  Pakkanen lauhtuu koko maassa, tiistaina mittari kääntyy jo plussalle
+-  ХК «Сочи» потерпел третье подряд поражение в Новом Году
+-  BVB-Gerücht um kroatisches Wunderkind
+-  Ferrari, Vasseur: "Calendario a 24 gare non mi preoccupa. Ecco che faremo"
+-  Dramma Dakar: incidente terribile, in elicottero all'ospedale. "Non aveva polso"
+-  نقابات مهنيي سيارات الأجرة الصغيرة بإقليم الناظور ترفع بلاغ شديد اللهجة للجهات المسؤولة للمطالبة بحل مشاكل القطاع
+-  ليام فوكس: على المملكة المتحدة أن تعترف بمغربية الصحراء
+-  نائب بريطاني: على المملكة المتحدة أن تعترف بمغربية الصحراء
+-  بغيابات كثيرة.. البنزرتي يكشف تشكيلة الوداد أمام المغرب التطواني
+-  Španjolski izbornik odabrao 18 imena za put u Njemačku: Evo tko sve prijeti Hrvatskoj
+-  Reyes magos entregan hígado a paciente del Hospital General
+-  Diretor de Comunicação da CBF desmaia em velório de Zagallo e é socorrido por ambulância
+-  Söder fordert Neuwahl: CSU will „Ideologieprojekte“ der Ampel sofort wieder abschaffen
+-  EM-genrepet: Nytt svenskt målkalas mot Japan
+-  HSE boss intent on ‘appropriate justice’ over failures in Aoife Johnston case
+-  Acer Debuts Carbon-Neutral Aspire Vero 16 with Latest Intel Core Ultra Processors
+-  Điện thoại iPhone giảm sốc, đồ gia dụng "bay" 50% giá dịp Cận Tết Nguyên Đán 2024
+-  La vía Alóag Santo Domingo está cerrada, según Prefectura
+-  Manchester City hehkuttaa: ”Kuningas on palannut”
+-  Mamili psa koricom hljeba da bi mu u usta stavili petardu
+-  ‘양심 있나?’ 6개월 넘게 소속팀 없는데 바르셀로나에 ‘역제의’…“훌륭한 발판으로 생각”
+-  Las maletas se acumulan en los aeropuertos por la huelga de trabajadores de Iberia
+-  Şarampole devrilen otomobilin sürücüsü: Tansiyonum düştü
+-  Galatasaray- Konyaspor maçında Ahmet Çalık unutulmadı
+-  Konyaspor'un genç kalecisi ilk Süper lig maçında devleşti
+-  منتخب المغرب أول الوافدين إلى كوت ديفوار لخوض نهائيات كاس امم افريقيا
+-  Only non-kinetic approach can restore peace to South-East – Reps Deputy Speaker, Kalu
+-  Με πέναλτι «κανονίστηκε» η ισοπαλία στο Καρμιώτισσα-Εθνικός
+-  ফরিদপুর-৪ আসনে টানা তৃতীয় জয় পেলেন নিক্সন চৌধুরী
+-  Jedna od prvih mapa neba prikazuje misterioznu zvijezdu: Otkriće znanstvenika upućuje na jedno
+-  SNEG U BEOGRADU I OVIM DELOVIMA SRBIJE Samo što nije zabelelo, stižu LEDENI dani
+-  La pregunta “trampa” que le hicieron a una mujer en la entrevista para visa de Estados Unidos y cómo la respondió
+-  100 urte mendiz mendi
+-  Lucas Halter é novo reforço do Botafogo
