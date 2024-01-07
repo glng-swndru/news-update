@@ -1,51 +1,51 @@
 # Latest News
--  ‘F***ing bull****!” Falcons’ Arthur Smith hurls abuse at Dennis Allen in extraordinary post-game exchange
--  ذكرى يوم الشهيد.. الأزهر يترحم على شهداء فلسطين ويعزي وائل الدحدوح
--  قطع الكهرباء عن حي الفيروز بطور سيناء غدًا
--  أبرد شهور السنة.. تعرف على موعد شهر طوبة
--  4 مصابين في اصطدام ميكروباص بمقطورة في الأقصر
--  مجلس الصحفيين يوافق على منح الزميل وائل الدحدوح جائزة حرية الصحافة لعام 2024
--  متحدث الوزراء يفجر مفاجأة بشأن قيمة الجنيه مقابل الدولار
--  مدرب تنزانيا: "لو كنت أعرف عدد التغييرات بهذا الشكل لما لعبت أمام مصر"
--  الحوثيون: تمادي أمريكا بدعم إسرائيل سيفجر المنطقة وعليها تحمل العواقب
--  فيتوريا: البطولات التي حققتها لم تأتي بالوعود
--  إعلام عبري: 64% من الإسرائيليين غير راضين عن آداء نتنياهو في الحرب
--  زيادة الإنفاق والمخصصات.. ننشر مستهدفات خطة الحكومة بالتعليم العالي والجامعات
--  Simán verte a horvátokat a női vízilabda-válogatott, ezzel megszerezték első győzelmüket az Eb-n
--  Σεπόλια: Αρχίζει η δίκη για την υπόθεση βιασμού της 12χρονης – Στο εδώλιο 26 κατηγορούμενοι
--  VIDEO: Misil ruso impacta un hospital en Ucrania en plena cirugía
--  BE acusa Governo de ter ultrapassado a lei na concessão mineira na Argemela
--  Resgatados do mar 180 migrantes nas ilhas Canárias
--  Deutsche Bahn bereitet sich mit Notfallplan auf GDL-Streik vor
--  São Paulo confirma saída de Dorival Júnior para a Seleção
--  Governo de Gaza pede a Egito que abra passagem para saída de 6.000 feridos
--  Un Anno di Tamburello: grande Festa ad Asti
--  Elevating dreams in Takeo: ABA Bank’s impactful school renovation project
--  How to get fit without going broke
--  Rep. Lauren Boebert incident under "active investigation," police say
--  Certificate Racketeering: How Not To Treat Cancer
--  Concurso Bombeiros Pará: notas serão liberadas na terça (9)
--  '의료기기 안심책방' 서비스 시작…디지털 기반 안전수준 높이나
--  뷰노, 국내 의료 AI 기업 첫 손익분기점 넘길까
--  의약품유통협회 선거체제 돌입...내달 정기총회서 차기 회장 결정
--  휴온스, 'HUC1-394' 임상 1상 IND 승인…점안제 라인업 확보 박차
--  밀리고 밀린 비대면진료 제도화법…국회 임기 막판 행방 주목
--  특허 만료 다가오는 트라젠타, 핵심은 '미등재 특허'
--  정치화된 의대 증원, 논리 싸움 무의미…여론전 맞서야
--  영화가 아니라 현실‥대학병원에 등장한 '의료로봇'의 진화
--  0-1 | El Juvenil A gana en Lezama y sigue en Copa
--  Hezbolá perpetró 10 nuevos ataques contra posiciones militares en Israel
--  Así tumbó Bukele el enorme Monumento inaugurado por el gobierno de izquierda del FMLN
--  Premier League club slap £60m price tag on Arsenal target as manager doesn’t want to let key star leave in January
--  NFL Week 18 Game Recap: New York Jets 17, New England Patriots 3
--  Κρήτη: Βυθίστηκε ιστιοφόρο σκάφος σημαίας Ρουμανίας στη μαρίνα Αγίου Νικολάου
--  [대법원 “몰래 녹음한 통화파일, 허용한도 초과 안 했다면 증거 사용 가능”
--  NFL Week 18 Game Recap: Tennessee Titans 28, Jacksonville Jaguars 20
--  Злочевский: турнир претендентов, возможно, уже не приносит Карлсену удовольствие
--  Salary hike for govt contract workers
--  Cengiz Ünder: 'Aynı Roma'daki gibi attım'
--  „Tatort“ (ARD) aus Ludwighafen: Fans werden bitter enttäuscht – „Zweitklassiger Tatort“
--  اليابان | هل باتت هيئات عريقة كمجلس الأمن والبنك الدولي عاجزة عن لعب دور فعال في الأزمات العالمية بحيث أصبح إدخال إصلاحات عليها أمراً حتمياً
--  Tronditet Vlora, vritet me armë 23-vjeçari
--  Survivor: Προβλήματα για τους Μαχητές - Αποχώρησε υποβασταζόμενη η Χρύσα πριν το αγώνισμα
--  Seven practical tips for parenting with ADHD successfully
+-  5 điểm nhấn Arsenal 0-2 Liverpool: Arteta phải tự trách chính mình
+-  Ekzekutimi mafioz që tronditi Vlorën, 22 vjeçari u qëllua me snajper sapo doli në ballkonin e banesës
+-  IPMA prolonga aviso amarelo para ilhas das Flores e Corvo
+-  Um congresso do PS, uma nova AD e três omissões
+-  Delfini u Zagrebu deklasirali Njemačku: Hrvatice izgubile 15 razlike, igraju protiv Srpkinja za četvrtfinale
+-  Maxxine Dupri on Her Early Training at the WWE Performance Center
+-  Tinubu initiates an investigation into the Ministry led by Betta Edu and pledges to implement necessary measures
+-  Blockaden: Bauern rufen zu freier Fahrt für Retter, Pfleger und Feuerwehr auf
+-  Israel diz que ataques contra Gaza podem durar um ano e aumenta temor de guerra regional
+-  국힘 가는 이상민 "한동훈 만나보니 정치 철학과 비전 맞아"
+-  Sanwo-Olu Extols Wife, Ibijoke At 57
+-  Ρόμα - Αταλάντα 1-1: Χ-αμένοι κι οι δυο
+-  Aksidentohet ambulanca në Fier, dy të lënduar
+-  Bono Patria enero 2024 continúa su pago: Así cobras
+-  Gol de Fermín López: el 1-0 del Barcelona vs. Barbastro por la Copa del Rey
+-  Haos u Španiji: Prekinut meč Kupa kralja
+-  Τσούμπερ: «Είχαμε δουλέψει στις στατικές φάσεις, να σταματήσουμε να μιλάμε για τις αποφάσεις του κάθε διαιτητή»
+-  Police call in chopper to thwart teens in Audi during Brisbane chase
+-  "왜 3천원 더 비싸지?"…매장마다 치킨 가격 천차만별
+-  40대 가수 겸 배우, 앞서가던 차량 들이받고 음주측정 거부
+-  Vrasja në Vlorë, policia: Janë ngritur pika kontrolli në hyrje dhe dalje të qytetit
+-  "Tu as ouvert la boîte de Pandore" : Alain-Fabien Delon interpelle sa sœur Anouchka dans un long message
+-  Liga MX: América sería líder del Clausura 2024 según una proyección estadística
+-  Trevor Lawrence y los Jaguars le dijeron adiós a la temporada con la derrota ante los Titans
+-  AS Roma en Atalanta Bergamo spelen gelijk; Dean Huijsen valt direct in
+-  Visakha to face top Vietnam club Sanest Khanh Hoa
+-  «Аталанта» сыграла вничью с «Ромой», у Миранчука результативный пас
+-  Morocco become first team to arrive Cote’divore
+-  이번주 일정 ... 최태원·정의선 등 라스베이거스행, 삼성전자·LG전자 잠정실적 공개
+-  VIDEO/ Nga një gol për secilën skuadër, Roma dhe Atalanta ndajnë pikët
+-  গাজীপুরের চারটিতে নৌকা বিজয়ী, ট্রাকের কাছে হেরেছেন চুমকি
+-  Andalucía genera ya 252 hectómetros cúbicos de agua con sus obras hídricas
+-  Otieno scores 23 to lead Quinnipiac over Manhattan 76-59
+-  Watch: Bill Belichick exits Gillette Stadium for possibly final time as Patriots head coach
+-  Jaguars fuera de los 'playoffs' con derrota ante Titans, que clasifica a Steelers y Bills
+-  İsrail: Gazze’ye saldırılar tüm yıl sürecek
+-  سياسة التقييم.. مُدخلات تكشف المستوى الحقيقي للطلبة
+-  Steijn praat voor het eerst over Ajax-vertrek: 'Gevoel dat ik deel van de spelersgroep kwijtraakte'
+-  México acumula 108 millones de pasajeros aéreos de enero a noviembre de 2023
+-  Shoferi i makinës përplas 41-vjeçarin me biçikletë në Shkodër, e transporton vetë në spital
+-  Fuerza Naval intensifica búsqueda de un empresario desaparecido en el Caribe de Honduras
+-  Kerala: 24-year-old boy dies after drowning in Kannur district’s Azhikode
+-  Lázár János: 2026-ban nem indulok újabb egyéni parlamenti mandátumért
+-  Talleres gratuitos en Lima y Callao: Cursos disponibles, horarios y todo lo que debes saber
+-  Telangana: 26 injured as bus hits tree in Hanumakonda district
+-  Mum-of-22 Sue Radford announces big career move that will make them a fortune & it’ll reveal secrets about the family
+-  Japan’s foreign minister pledges more cash to Ukraine to help it fight Putin’s drones – as she is forced to dash into a Kyiv bomb shelter during air raid alert
+-  Namadi Calls For Revitilisation Of Educational Sector
+-  Vuelve a Argel el embajador maliense convocado el mes pasado en Bamako
+-  Top-Notch Thai Spot Fish Cheeks With ‘Complex’ Yet ‘Approachable’ Fare to Open in Williamsburg
