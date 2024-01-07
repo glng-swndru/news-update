@@ -1,51 +1,51 @@
 # Latest News
--  오타니 ‘기습숭배’ 받네... 다저스 동료 "GOAT와 한컷“
--  ‘답답한 경기-황당 판정’ 아시안컵 예방주사 잘맞았다
--  A la Real Sociedad se le esfuma el triunfo en el minuto 95
--  50 mil «canastas solidarias» prepara el gobierno para entregar en la campaña electoral
--  Almanya'da grev üstüne grev: Üç ay içinde üçüncü kez iş bırakacaklar
--  Srbi u Zagrebu izdominirali ispodprosječnu Njemačku, sad će se tek otkriti kolika je njihova stvarna snaga
--  Vulcan rocket set for maiden flight to send commercial lander to moon
--  In Response to Labor Misconduct Complaint, SpaceX Claims US Federal Agency Is Unconstitutional
--  Зошто централниот терен во Мелбурн не може да се вика „Новак Ѓоковиќ“?
--  북, 사흘 연속 포 사격… 김여정 "기만작전" 심리전도
--  [동정] 이상호 태백시장
--  김보현 김포갑 예비후보, 지역 교육현안 해결 위한 '광폭' 행보
--  Teža povreda Luke Vildoze, u utorak na operaciji
--  제72회 프랜차이즈 창업박람회 참가업체는 ?
--  Teža povreda Luke Vildoze, u utorak na operaciji
--  60대 여성 다방업주 살해 피의자 영장실질심사…"죄송하다"
--  [인사] 신아일보
--  강창구찹쌀진순대, 한 골목 20년 장사하는 비결은?
--  Monday morning open levels - indicative forex prices - 08 January 2024
--  Mikel Arteta makes plea to Arsenal fans after Liverpool defeat extends losing run
--  High inflation, forex challenges to slow manufacturing sector till mid-2024 – MAN
--  Congressional leaders reach agreement on government funding
--  870만 사업자가 이달에 반드시 챙겨야 할 세금은 무엇?
--  Stay tuned, stay safe as forecast is subject to change in La Salle County
--  البطولة الإحترافية: القرش يكتفي بالتعادل أمام المغرب الفاسي
--  Miočić uzvratio Aspinallu: ‘Radi mene se ništa nije odgađalo’
--  Ārkārtīgs karstums novedis Indiju līdz "izdzīvošanas robežai"
--  El presentador que le dijo adiós a Noticias Caracol para ser el director del noticiero de Telemedellín
--  إطلاق المرحلة الرابعة من «العلا للابتعاث»
--  شعراء يصدحون بقصائدهم ونقاد يناظرون السينمائيين
--  488 ألف راكب نقلتهم «عبارات فرسان»
--  زاروا معرض ومتحف السيرة النبوية.. «ضيوف خادم الحرمين» يثمنون اهتمام المملكة بالتاريخ الإسلامي
--  نائب أمير تبوك يطّلع على مشروعات الأمانة
--  محافظ جدة يطلق أعمال مكتب المصالحة
--  نائب أمير مكة يطلع على جهود «قيادة الغربية» والغرف وشرطة المنطقة
--  وصول الطائرة السعودية الـ 38.. باخرة سعودية خامسة لإغاثة الشعب الفلسطيني
--  تحت رعاية خادم الحرمين الشريفين.. نائب أمير مكة المكرمة يفتتح مؤتمر ومعرض “الحج والعمرة”
--  سموه استقبل رئيس وأعضاء لجنة الاستخبارات بمجلس الشيوخ.. ولي العهد يستعرض مع الوفد الأمريكي علاقات الصداقة والتعاون
--  Rohit returns to captain India Twenty20 side against Afghanistan
--  Израильские ПВО перехватили летательный аппарат, запущенный из Ливана
--  تمكين الكوادر السعودية في سوق العمل
--  تداول السعودية تطلق “تاسي 50”
--  300 متحدث من 85 دولة في منتدى الرياض.. الابتكار .. مستقبل العقار
--  “الغذاء والدواء” ترصد آلاف المخالفات
--  موجز اقتصادي
--  الاتحاد العربي للمراجعين يناقش خطته الجديدة
--  الأمين العام لـ “التحكيم التجاري الخليجي” : المملكة تتمتع بمناخ استثماري آمن وداعم للأعمال
--  1574 زيارة ميدانية على المنشآت الصناعية
--  مثمنا دعم القيادة لمسيرة الازدهار.. وزير الاتصالات: “إكسبو الرياض 2030” سيربط العالم بالابتكارات والثقافات
--  I Top & Flop di Salernitana-Juventus
+-  ‘F***ing bull****!” Falcons’ Arthur Smith hurls abuse at Dennis Allen in extraordinary post-game exchange
+-  ذكرى يوم الشهيد.. الأزهر يترحم على شهداء فلسطين ويعزي وائل الدحدوح
+-  قطع الكهرباء عن حي الفيروز بطور سيناء غدًا
+-  أبرد شهور السنة.. تعرف على موعد شهر طوبة
+-  4 مصابين في اصطدام ميكروباص بمقطورة في الأقصر
+-  مجلس الصحفيين يوافق على منح الزميل وائل الدحدوح جائزة حرية الصحافة لعام 2024
+-  متحدث الوزراء يفجر مفاجأة بشأن قيمة الجنيه مقابل الدولار
+-  مدرب تنزانيا: "لو كنت أعرف عدد التغييرات بهذا الشكل لما لعبت أمام مصر"
+-  الحوثيون: تمادي أمريكا بدعم إسرائيل سيفجر المنطقة وعليها تحمل العواقب
+-  فيتوريا: البطولات التي حققتها لم تأتي بالوعود
+-  إعلام عبري: 64% من الإسرائيليين غير راضين عن آداء نتنياهو في الحرب
+-  زيادة الإنفاق والمخصصات.. ننشر مستهدفات خطة الحكومة بالتعليم العالي والجامعات
+-  Simán verte a horvátokat a női vízilabda-válogatott, ezzel megszerezték első győzelmüket az Eb-n
+-  Σεπόλια: Αρχίζει η δίκη για την υπόθεση βιασμού της 12χρονης – Στο εδώλιο 26 κατηγορούμενοι
+-  VIDEO: Misil ruso impacta un hospital en Ucrania en plena cirugía
+-  BE acusa Governo de ter ultrapassado a lei na concessão mineira na Argemela
+-  Resgatados do mar 180 migrantes nas ilhas Canárias
+-  Deutsche Bahn bereitet sich mit Notfallplan auf GDL-Streik vor
+-  São Paulo confirma saída de Dorival Júnior para a Seleção
+-  Governo de Gaza pede a Egito que abra passagem para saída de 6.000 feridos
+-  Un Anno di Tamburello: grande Festa ad Asti
+-  Elevating dreams in Takeo: ABA Bank’s impactful school renovation project
+-  How to get fit without going broke
+-  Rep. Lauren Boebert incident under "active investigation," police say
+-  Certificate Racketeering: How Not To Treat Cancer
+-  Concurso Bombeiros Pará: notas serão liberadas na terça (9)
+-  '의료기기 안심책방' 서비스 시작…디지털 기반 안전수준 높이나
+-  뷰노, 국내 의료 AI 기업 첫 손익분기점 넘길까
+-  의약품유통협회 선거체제 돌입...내달 정기총회서 차기 회장 결정
+-  휴온스, 'HUC1-394' 임상 1상 IND 승인…점안제 라인업 확보 박차
+-  밀리고 밀린 비대면진료 제도화법…국회 임기 막판 행방 주목
+-  특허 만료 다가오는 트라젠타, 핵심은 '미등재 특허'
+-  정치화된 의대 증원, 논리 싸움 무의미…여론전 맞서야
+-  영화가 아니라 현실‥대학병원에 등장한 '의료로봇'의 진화
+-  0-1 | El Juvenil A gana en Lezama y sigue en Copa
+-  Hezbolá perpetró 10 nuevos ataques contra posiciones militares en Israel
+-  Así tumbó Bukele el enorme Monumento inaugurado por el gobierno de izquierda del FMLN
+-  Premier League club slap £60m price tag on Arsenal target as manager doesn’t want to let key star leave in January
+-  NFL Week 18 Game Recap: New York Jets 17, New England Patriots 3
+-  Κρήτη: Βυθίστηκε ιστιοφόρο σκάφος σημαίας Ρουμανίας στη μαρίνα Αγίου Νικολάου
+-  [대법원 “몰래 녹음한 통화파일, 허용한도 초과 안 했다면 증거 사용 가능”
+-  NFL Week 18 Game Recap: Tennessee Titans 28, Jacksonville Jaguars 20
+-  Злочевский: турнир претендентов, возможно, уже не приносит Карлсену удовольствие
+-  Salary hike for govt contract workers
+-  Cengiz Ünder: 'Aynı Roma'daki gibi attım'
+-  „Tatort“ (ARD) aus Ludwighafen: Fans werden bitter enttäuscht – „Zweitklassiger Tatort“
+-  اليابان | هل باتت هيئات عريقة كمجلس الأمن والبنك الدولي عاجزة عن لعب دور فعال في الأزمات العالمية بحيث أصبح إدخال إصلاحات عليها أمراً حتمياً
+-  Tronditet Vlora, vritet me armë 23-vjeçari
+-  Survivor: Προβλήματα για τους Μαχητές - Αποχώρησε υποβασταζόμενη η Χρύσα πριν το αγώνισμα
+-  Seven practical tips for parenting with ADHD successfully
