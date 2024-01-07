@@ -1,11 +1,11 @@
 # Latest News
--  Chinooks weer begonnen met droppen van stenen in kapotte dam
--  President called on UN to intervene over Turkish buffer zone violations
--  [“공교육 정상화” 국민의힘, 총선 인재로 교총 회장·학폭 전문 변호사 영입
--  สุดเจ๋ง! นศ.อาชีวะคว้ารางวัลชนะเลิศแกะสลักหิมะนานาชาติ
--  West Wales skiers compete in Special Olympics GB National Winter Games
--  India's Strength Lies In Its States, UTs: Piyush Goyal At Tamil Nadu Global Investors Meet
--  Sao Chelsea ở rất gần Dortmund
--  8 thương vụ tháng Giêng thảm họa của M.U.
--  "Tôi không nghĩ M.U có điều đó trong toàn bộ đội hình của họ"
--  Bournemouth đang sở hữu một "báu vật" siêu quý giá của bóng đá Anh
+-  Mẹ quỳ gối van xin con gái đi học thêm để cải thiện điểm số
+-  Lý do khiến quần áo giặt rồi vẫn bẩn
+-  H'Hen Niê lập tức "giải oan Thị Kính" khi bị cho là bỏ tiền mua seeding nhưng lại bị nhầm thành... Mỹ Linh
+-  Đêm nào đi ngủ cũng thấy cơ thể phát ra 5 "tín hiệu" bạn cần đi khám khẩn cấp để tránh suy thận
+-  Nepal sends 500 kinds of souvenirs to Ayodhya
+-  Dhunoi policin në Memaliaj, arrestohet 59-vjeçari
+-  Herat women turn to homemade products amid unemployment in Afghanistan
+-  Tội ác của đối tượng giết 6 người vượt biên 43 năm trước từng gây chấn động Quảng Ngãi
+-  Disgraced Russell Brand earns £25k a WEEK from ‘off-grid empire’ as fans pay £160 for festival run from boarded-up pub
+-  Vakalar arttı, doktorlar uyarıyor: Maskeyi hayatınıza tekrar sokun! Peki yasaklar ve kapanma tekrar gelir mi?
