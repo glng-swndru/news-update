@@ -1,51 +1,11 @@
 # Latest News
--  제주 잇뉴 “미세먼지 정보 확인하고 건강 관리해요”
--  '세계 등대공장' 목표 대구 'ABB 팩토리' 추진···엘앤에프 1호 선정
--  마포구, 구청장 함께하는 '동 소통데이' 개최
--  부안군, 작년 고향사랑기부금 6억5000만원... 목표액 5억원 넘어
--  정읍소방서, 최초 목격자 심폐소생술 활성화 총력
--  익산시, 가축분뇨 배출시설 강력 단속... 75건 행정처분
--  익산시, 경로당 한파대비 지원대책 마련
--  익산시, 신선한 지역 농산물로 초등 돌봄교실 도시락 지원
--  진안군, 농한기 '경로당마을순회 금연·절주 실천교육' 시작
--  진안군, ‘모바일 헬스케어 서비스사업’ 참여자 모집
--  정읍시, 시민안전보험 보장 항목 확대... 광범위한 보장 가능
--  GS25, 해외 진출 6년 만에 20배 커졌다…내년 1000호점 목표
--  경찰청, 후면 단속카메라 활용 '안전모 미착용' 무인단속
--  Sudoku difícil: 07 de enero de 2024
--  Sudoku medio: 07 de enero de 2024
--  Sudoku fácil: 07 de enero de 2024
--  Sudoku mini: 07 de enero de 2024
--  Crucigrama difícil: 07 de enero de 2024
--  Crucigrama medio: 07 de enero de 2024
--  Crucigrama fácil: 07 de enero de 2024
--  Crucigrama mini: 07 de enero de 2024
--  Sopa de Letras clásica: 07 de enero de 2024
--  '노량' 400만 관객 수 돌파…한국영화 1위 탈환
--  Criminoso rompe aliança com facção, vai pra facção rival e têm casa incendiada em Rio Branco
--  동작구, 새해 힘찬 출발 다짐… "주민 자부심 느끼는 가치도시 만들 것"
--  홍천 화촌여성의용소방대, 관광객 대상 심폐소생술 교육
--  홍천농고 학부모회-홍천봉사회, '사랑의 연탄나눔' 봉사
--  용산구, 2024년 겨울방학 대학생 아르바이트 간담회 개최
--  부동산發 위기에 증권주 '폭락'…일주일 새 6.3%↓
--  성동구, 관내 초등학교 '우리아이 교통안전지킴이' 배치
--  유상범 국회의원, 2024 의정보고회 개최
--  서울 초등학교 2곳 다문화 학생 70% 넘어
--  bhc그룹 아웃백, 전국 10여 개 복지단체와 사회공헌활동 펼쳐
--  [인사] KB자산운용
--  电视专题片《持续发力 纵深推进》第一集《解决独有难题》
--  【新思想引领新征程】坚持自我革命 纵深推进反腐败斗争
--  동국대 듀이카, 정시 4등급 5등급 6등급 7등급 24학번 인서울 합격 진학 컨설팅 진행
--  클코스와 유셀파마, MOU 맺고 상품 경쟁력 강화 나선다
--  На позиции ВСУ отправляют дроны, из которых звучит гимн России
--  جيروزاليم بوست : المجتمع الاسرائيلي يمر بأزمة نفسية غير مسبوقة
--  علماء صينيون يطورون إستراتيجية جديدة لعلاج سرطان الثدي شديد العدوانية
--  Olancho FC cerca de quedarse con dos tricampeones invictos
--  समाजको चित्र ‘डुङ्गा चिया घर’
--  'We Are in Dire Need': Small Town's Police Chief Begs Biden for Help After Being Overwhelmed by Migrants
--  สภาพอากาศวันนี้ อีสานอากาศเย็นถึงหนาว-ใต้ตอนล่างฝนตกหนัก
--  Giải phóng mặt bằng chưa bằng 1/10 các tỉnh, vành đai 3 TP.HCM qua Đồng Nai hiện ra sao?
--  Điểm tin 8h: Ngọc Trinh mong được khoan hồng; Được mùa cá ngừ đại dương
--  Заменят ли нейросети проектировщиков и экспертов
--  Local firefighters help relief for Queensland
--  2023 in Review: Magical week for Mitch
+-  News.de – Neues Game Brewer-Spiel lässt Sie ins Flussdelta aufbrechen
+-  Женщина и ребенок погибли при пожаре в Хабаровске
+-  Ejercerá el TEE 88 millones de presupuesto en 2024
+-  MPD: 10,000 devotees flocked to 1st night of Black Nazarene 'pahalik'
+-  [[리얼푸드] 중국에서 급부상한 즉석발열식품
+-  [[리얼푸드] ‘SNS 홍보로 인기’ 베트남 용과라면
+-  [[리얼푸드] 말레이시아 영양제 시장, 편의점 단백질 음료에 주목
+-  [[리얼푸드] 프랑스, 이국적인 패스트푸드가 뜬다
+-  [남들은 동해안 일출 보지만…나는 박물관 ‘용 보러’ 간다 [요즘 전시]
+-  [지인 나체사진 합성 제작했지만 ‘무죄’…이유가?
