@@ -1,51 +1,11 @@
 # Latest News
--  Lainers Comeback: "Es hat sich sehr gut angefühlt"
--  Awo-Großküche im vogtländischen Auerbach: Wie kommen 4200 Mittagessen am Montag in Kitas und Heime?
--  MHP Grup Başkanvekili Muhammed Levent Bülbül'den Murat Kurum açıklaması
--  Cumhurbaşkanı Erdoğan 26 ilin Belediye Başkanını açıklıyor!
--  Bursaspor salonda çalıştı
--  Bursa'da sokak ortasında ölü tilki bulundu
--  Bursa'da dükkan önünden koltuk çalan hırsızlar kamerada
--  Uludağ'da kar yağışı başladı
--  Eski milletvekili Halil Özcan, hayatını kaybetti
--  Japonya'da iktidar partisinde büyük skandal!
--  Flour power: Gluten-free flour alternatives to include in your daily diet
--  CANLI | Cumhurbaşkanı Erdoğan, AK Parti belediye başkan adaylarını açıklıyor...
--  AK Parti Bursa Büyükşehir Belediyesi Başkan adayı kim olacak? Yerel seçim 2024!
--  Historiker im Alten Rathaus: Kürtener Vereinsarchiv zieht viele Besucher an
--  Које све државе славе Божић 7. јануара
--  Tamil Nadu: Tourists barred from bathing at Old Courtallam Falls in Tenkasi due to flash flood
--  موتا يعود لقيادة تدريبات الحسين إربد
--  Guerre Israël-Hamas: quelle est la situation dans la bande de Gaza, après trois mois de conflit?
--  Council workers, officials clash
--  Soccerladuma | Nthethe: Sundowns To Benefit From Afcon
--  Osmi trijumf Metalca: Valjevci ubedljivi protiv Zdravlja
--  Ухапшен због сумње да је сјекиром усмртио младића
--  عريضة لطرد سفيرة الاحتلال في بريطانيا تجمع 86 ألف توقيع في يوم واحد
--  Mes Humeurs: Exclusions
--  Cette adaptation d'un classique de la littérature avec Jean Marais est disponible gratuitement en streaming
--  PiS zaprasza na protest i publikuje ostre spoty. Mówi o rządach „Koalicji Oszustów”
--  Chroniques de la Byrsa: « Au revoir et merci ! »
--  7 aylık hamile eşini satırla öldürdü
--  مركز اقتصادي: ندعو الحكومة العراقية لضبط وضع الأفران والمخابز
--  Jurgen (67) leent als twintiger 6000 gulden om een uit elkaar gehaalde A-Ford te kopen: nu heeft-ie 'm nog
--  استشهاد الصحفيين (حمزة الدحدوح) و(مصطفى ثريا) وإصابة ثالث في قصف لطائرات الاحتلال غرب خان يونس
--  قوات الإحتلال الإسرائيلي تنبش 1100 قبر وتقوم بسرقة 150 جثمانًا من مقبرة التفاح في غزة
--  River presentó a Nicolás Fonseca: la cláusula millonaria del nuevo refuerzo del Más Grande
--  मालदीव के बड़बोले मंत्री पर फूटा अक्षय कुमार का गुस्सा, सलमान खान और जॉन अब्राहम ने भी किया रिएक्ट
--  مركز الرقابة على الأغذية والأدوية يرفض شحنة خبز محمص بلغارية المنشأ
--  ¿El tamaño importa? El vídeo que te hará dudar para elegir tu hospital MIR
--  Accident grav cu 6 mașini pe Autostrada A1 - Trei persoane au fost rănite
--  Education programmes for nursing and science to be rolled out from September
--  Günstige Saugroboter: Diese 3 Modelle bestechen durch ihr Preis-Leistungs-Verhältnis
--  Surfing a wave of success
--  Daniel Oliveira concorrente de 'A Máscara'? César Mourão acredita que sim
--  MISTERIJA NESTOROVIĆ? Vučić o izborima u Beogradu
--  Минобороны России сообщило о перехвате шести украинских ракет «Нептун»
--  [플랫폼 노동자 쉼터 등 일터개선 사업에 정부 지원
--  [“‘부산홀대’ 정치적 공격” “‘응급헬기’ 정치적 연출” 與野 공방 격화
--  [카카오, KEP·디케이테크인 합병 추진
--  [“예금금리 3%로 내렸는데 연 7% 통장 등장”…파킹통장으로 돈 몰릴까[머니뭐니]
--  [“이재명 대구 오면 작업” 협박 전화 60대 구속 면해 (종합)
--  [당원 4만명 모은 이준석…“보수끼리 뭉치세요” 시민에 답한 말 봤더니
--  200 Demonstranten zogen durch die Innenstadt
+-  Chinooks weer begonnen met droppen van stenen in kapotte dam
+-  President called on UN to intervene over Turkish buffer zone violations
+-  [“공교육 정상화” 국민의힘, 총선 인재로 교총 회장·학폭 전문 변호사 영입
+-  สุดเจ๋ง! นศ.อาชีวะคว้ารางวัลชนะเลิศแกะสลักหิมะนานาชาติ
+-  West Wales skiers compete in Special Olympics GB National Winter Games
+-  India's Strength Lies In Its States, UTs: Piyush Goyal At Tamil Nadu Global Investors Meet
+-  Sao Chelsea ở rất gần Dortmund
+-  8 thương vụ tháng Giêng thảm họa của M.U.
+-  "Tôi không nghĩ M.U có điều đó trong toàn bộ đội hình của họ"
+-  Bournemouth đang sở hữu một "báu vật" siêu quý giá của bóng đá Anh
