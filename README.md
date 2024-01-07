@@ -1,11 +1,11 @@
 # Latest News
--  İsrail tehdit ediyor: Lübnan'da askeri seçeneğe başvururuz!
--  İç sahada Galatasaray'ın bileği bükülmüyor
--  Mersin'de dehşet! Hamile karısını satırla öldürdü
--  Man United chỉ thực hiện 3 thương vụ đúng đắn thời hậu Sir Alex
--  “미끼에 속아” 조롱 쏟은 김여정…합참 “한국軍 능력에 놀란 듯” 일축
--  News24 | Two business robbery suspects arrested following 'high-speed chase' on Western Cape's R46 route
--  Prof. Krugman: wygrywamy postmodernistyczną wojnę gospodarczą bez jednego wystrzału
--  Mersin'de fuhşa zorlanan 4 kadın kurtarıldı: 1 erkek gözaltında
--  Bursa'da sağanak yağış etkisini gösterdi
--  İstanbul'da İETT otobüsü direğe vurdu!
+-  China Sanctions 5 US Arms Manufacturers Over Taiwan Weapons Sales
+-  Reliance Committed To Making New Investments In Renewable Energy, Green Hydrogen Space In Tamil Nadu: Mukesh Ambani
+-  Znanstvenici u mračnim morskim dubinama snimili biće zastrašujuća izgleda: Pogledajte što je vuklo za sobom
+-  Todes-Drama auf A59 in Duisburg! Fußgänger von Reisebus erfasst ++ Vollsperrung
+-  Saint-Jorioz. Arbres remarquables bientôt abattus : “On ne peut pas laisser planer le danger”
+-  Wind Direction Sensor Market Analysis and Future Prospects for 2030
+-  Charles Michel kandidirat će se na EU izborima
+-  Βόρεια Κορέα: Νέα πυρά κοντά στα σύνορα με τη Νότια Κορέα - Για «δόλωμα» κάνει λόγο η αδελφή του Κιμ Γιονγκ Ουν
+-  국민의힘 정승재 예비후보 출판기념회 열려
+-  Patrijarh Porfirije služio Božićnu Liturgiju u Pećkoj patrijaršiji
