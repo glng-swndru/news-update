@@ -1,51 +1,11 @@
 # Latest News
--  Oberwiesenthaler Langlauftrio stellt Fuß in die Tür für die Nachwuchsweltmeisterschaften
--  „Freie-Presse“-Pokal: Landesklasse-Vertreter ziehen in die Endrunde ein
--  Kurioser Test: HSV protestiert gegen Rote Karte für PSV
--  Bauernproteste am Montag: Auf diese Blockaden und Aktionen müssen sich die Vogtländer einstellen
--  Adventszeit klingt mit Lichterfest in Werdau aus
--  Proteste im Erzgebirge am Montag: Wie sich der Rettungsdienst für Straßenblockaden rüstet
--  Biały Dom obawia się, że Netanjahu w celu politycznego przetrwania zaatakuje Liban
--  Ayodhya Sita Ram Bank: A special bank with no cash, no ATM, makes loan repayment in ‘Ram Naam’ only, has over 130 branches across India
--  Lacio nastavja proboj, Napoli nastavlja da tone
--  Popović: Odbrana užasna, energija loša, razočarana sam
--  CAN 2023 : Aliou Cissé craint un forfait définitif de deux joueurs blessés
--  Конър Галахър ще остане в Челси и след януари
--  "Terror muss ein Ende haben": Baerbock fordert Ende der Gewaltspirale in Nahost
--  Venezolana fue asesinada por su pareja en Colombia
--  Isomorphic inks deals with Eli Lilly and Novartis for drug discovery
--  It changes plan – Nuno Espirito Santo bemoans lack of break as Forest get replay
--  It changes plan – Nuno Espirito Santo bemoans lack of break as Forest get replay
--  Sky News Breakfast to introduce new presenter and debut earlier start time
--  Sky News Breakfast to introduce new presenter and debut earlier start time
--  ফুফাত ভাই আলমকে হারিয়ে বিপুল ভোটে জয়ী তাজউদ্দীনকন্যা রিমি
--  দেবিদ্বারে স্বতন্ত্র প্রার্থী আবুল কালাম আজাদের জয়
--  জামালপুরে ৫টি আসনে জয়ী হলেন যারা
--  বিদেশে কে কী বলল এ নিয়ে আগ্রহ নাই: পররাষ্ট্রমন্ত্রী
--  বরকলে ১৭টি ভোটকেন্দ্রে নৌকার জয়
--  ৮১ হাজার ৯৫৫ ভোটে বিজয়ী হলেন কল্যাণের ইবরাহিম
--  টানা চতুর্থবারের মতো সংসদ সদস্য নির্বাচিত নসরুল হামিদ
--  আন্তর্জাতিক গবেষকদের তালিকায় কুবির ৮৯ শিক্ষক-শিক্ষার্থী
--  ن لیگ نے بلوچستان میں جے یو آئی کی بڑی وکٹ گرا دی
--  Treinvervoer tussen Groningen en Zwolle verstoord
--  MOPO-Telefonaktion: Richtig krankenversichert? Experten stehen Rede und Antwort
--  CES 2024: Samsung’s bigger, foldier, more rollable displays
--  عوام 8فروری کو ملک لوٹنے والوں کا احتساب کریں گے‘پرویز خٹک
--  Martin Keown slams Kai Havertz's wasteful approach as Arsenal spurn several chances to score against Liverpool despite dominant first half performance... but Danny Murphy praises German for leading the Gunners' 'magnificent' build-up play
--  El Melilla BC se queda a poco de sorprender a uno de los ‘cocos’, Gipuzkoa
--  Bllokohet rinovimi i yllit të Manchester City, në Arabinë Saudite “lëvizin gurët”
--  Heidi Pratt, 37, from The Hills shares before and after photos from losing 22lbs in 12 weeks as she says she has never tried Ozempic
--  Aleksandra se rasplakala usred emisije zbog roditelja
--  "Un changement est nécessaire" : François Bayrou se dit favorable à un remaniement au gouvernement
--  NOVI NAPAD NA VOZAČA AUTOBUSA U BEOGRADU! Izudarao ga pesnicama u glavu, pa pobegao
--  Gypsy Rose Blanchard and husband Ryan Anderson recall how he snuck an engagement ring into prison to propose to her in her new docuseries
--  Netanyahu najavio nastavak napada na Gazu
--  Neujahrsempfang in Mittweida: OB fordert Kurswechsel der Bundespolitik
--  Como é um dia de verão na Praia do Pinho, berço do nudismo no Brasil; veja fotos
--  Rybakina y Dimitrov alcanzan la final de Brisbane #7Ene
--  Dječak (16) pušten iz bolnice, za njega će se sada brinuti šira obitelj: Ovako izgleda Alfa njegovih roditelja...
--  60 دقيقة.. تعادل سلبي بين أرسنال وليفربول في كأس إنجلترا
--  Buscas por helicóptero desaparecido em SP completam uma semana
--  VIDEO: Impresionante tornado toca tierra y causa destrozos en Florida
--  চাঁপাইনবাবগঞ্জ-২ আসনে বিজয়ী নৌকার জিয়াউর রহমান
--  Patrick Bamford scores stunning long-range volley during Leeds United's 3-0 FA Cup third-round win at Peterborough - as Daniel Farke insists 'the whole world will praise this world-class goal'
+-  Infinum nastavlja rast prihoda na više od 25 milijuna eura, akvizicija daje velika očekivanja u 2024.
+-  ليفربول يتقدم على أرسنال في كأس إنجلترا
+-  Обладатель Кубка Казахстана-2023 покинул клуб КПЛ
+-  Je li se nadareni mladić prerano vratio na Poljud? Evo zašto to možda nije bila najbolja odluka
+-  توتنهام يحسم مستقبل لاعبه العائد من ليدز
+-  প্রত্যাশার চেয়ে ভালো নির্বাচন হয়েছে, এতটা আশা করিনি: সিইসি
+-  GDL kündigt dreitägigen Bahnstreik an
+-  «С этого человека надо спрашивать». Хабиб Нурмагомедов высказался о трэштоке Хамзата Чимаева
+-  ‘Bana büyü yaptılar’ dedi. Kendini yerden yere attı
+-  LIVE FA Cup | Liverpool op voorsprong na eigen goal Arsenal-verdediger Kiwior, Gravenberch op het veld
