@@ -1,51 +1,51 @@
 # Latest News
--  Völler über Kroos: "Niemand ist abgeschrieben"
--  United Cup: Kerber verliert gegen Swiatek
--  العراق يشارك في بطولة آسيا لألعاب قوى الصالات واختبارات المصنفين في بغداد
--  طقس الأحد... أجواء باردة مع سماء صافية بعدد من الجهات
--  تقرير أممي يتوقع تباطؤ النمو الاقتصادي خلال 2024
--  10.68 مليار دينار دفعها أردنيون عبر اي فواتيركم خلال 11 شهرا من 2023
--  الاحتلال يغلق عدة طرق شمال رام الله
--  أمريكا.. ممرضة تستبدل مسكنات الألم بماء الصنبور
--  الدفاع المدني : وفاة سائق جرافة بحادث في الزرقاء
--  '첫 트리블더블' SK 워니 "선수들과 공격 만드는게 득점보다 더 재밌어"[기자회견]
--  '드디어 왔다' KIA, 새 외인투수 윌 크로우 영입… 총액 100만달러[오피셜]
--  “ชัยชนะ” ยัน กมธ.ตำรวจ ขอดูงานชั้น 14 รพ.ตร.ทำถูกต้อง
--  Kıraathaneden atılan kişi, silahı ile aynı yere döndü!
--  Haftanın Tarihine Bakış
--  حکومت کا شہریوں کو بڑی سہولت دینے کا فیصلہ
--  Футболист на Аякс може отново да играе във Висшата лига
--  Sound Synthesizers Market Analysis and Future Prospects for 2030
--  NBA Top 5 : savez-vous comment on dit “Rockets” en français ?
--  “경기 끝나고 유니폼 준다고!”…8년 만에 열린 더비→유니폼 잡다가 찢은 상대에게 분노
--  Тобіас дебютував за Реал
--  Google Maps Introduces 3D Buildings for Enhanced Navigation Experience
--  Lotto results: Saturday, 6 January 2024
--  STIŽU NOVI AVIONI ZA ER SRBIJU Ministar Mali najavio sjajne vesti
--  Число жертв землетрясений в Японии возросло до 128
--  Manje putnika za božićne praznike, prevoznici otkazali više linija
--  Cijene nekretnina teško da će biti niže
--  Railway Protection Force (RPF) Recruitment 2024 -Sub Inspector, Constable Vacancy, Job Openings
--  Supriya Pathak Birthday: The beloved `mother` of OTT
--  Vakanüvis'in kaleminden İstanbul’un yerel yönetim serencamı…
--  Operaciones con realidad virtual
--  Texelse wasplaatjes bij Binnenste Buiten
--  Chấn thương thể thao, điều không thể lơ là - Kỳ 1: Họ đã vượt qua chấn thương
--  Phát hiện loài nghi là cá voi Omura bí ẩn nhất thế giới tại biển Thái Lan
--  Trường Hải đề xuất siêu dự án bôxít nhôm ở Lâm Đồng, còn vướng ở thiếu điện?
--  Kehitysapu | Järjestöt: Kehitys­yhteis­työn ei pitäisi olla keino ajaa poliittisia näkö­kulmia
--  Lý do Bộ Công an đề xuất cảnh vệ cho Thường trực Ban Bí thư và 2 chức danh quan trọng
--  Uhapšen poslanik u Japanu: Sumnja se da je nezakonito skupljao novac za vladajuću stranku
--  Оккупанты готовятся к новым штурмам в Луганской области: анализ ISW
--  Bir Binen Bin Şikayetle İniyor: Taksi Sorunu Bitmek Bilmiyor!
--  Xavi a dat cărțile pe față despre criza de la Barcelona
--  أشهر 10 حوادث هبوط اضطراري للطائرات في العالم
--  أسعار العملات في السعودية اليوم الأحد 7 يناير.. الإسترليني يسجل 4.77 ريال
--  سارع بالتقديم.. مستشفى الملك فيصل التخصصي يطرح عشرات الوظائف ببدلات ورواتب تنافسية
--  مغادرة الطائرة الـ 38 لإغاثة غزة باتجاه مطار العريش
--  عبر"توكلنا".. اعتماد خدمة جديدة تُمكن الأفراد من التواصل الحكومي والخاص
--  تشريد آلاف الروهينجا.. حريق ضخم في أكبر مخيم للاجئين في العالم
--  أضرار خطيرة.. هذا ما يحدث لجسمك عند تناول أدوية منتهية الصلاحية
--  عاجل.. إنذار أحمر من أمطار غزيرة وأتربة على هذه المناطق لـ8 مساءً
--  Қашқадарёда Nexia уриб юборган пиёда вафот этди
--  60 пожара са потушени в страната през изминалото денонощие
+-  Should you baptise your child to get them into a Brisbane private school?
+-  القسام تدمر ناقلة جند صهيونية بالكامل
+-  شقيقة زعيم كوريا الشمالية تحذر من رد فوري على أي استفزاز
+-  لماذا لا يجب شرب القهوة خلال الساعة الأولى من الاستيقاظ؟
+-  عشرات المستعمرين يقتحمون المسجد الأقصى
+-  Tiranë/ Vodhën shuma të ndryshme parash, arrestohen tre persona
+-  المعتقدات الخاصة بالنيكوتين تؤثر على الدماغ
+-  Weeronline: schaatsen op opgespoten natuurijsbaan zekerheid
+-  Sestra severokórejského vodcu hrozí reakciou na provokácie proti KĽDR
+-  일본 도쿄지검, '비자금 스캔들' 아베파 의원 첫 체포
+-  韓聯社：北韓連續三日於延平島以北地區發射炮彈
+-  Werder-Legenden gewinnen das Hallenturnier in Oldenburg und verteidigen erfolgreich ihren Titel
+-  В Китае совершил испытательный полет электрический самолет AG60E
+-  U većem dijelu Bosne i Hercegovine jutros se saobraća po mokrom ili vlažnom kolovozu
+-  Jutros je u Bosni i Hercegovini oblačno vrijeme
+-  Najave događaja za 07.01. 2024. godine (nedjelja)
+-  Saopćenje za javnost SDS-a
+-  Izrael kaže da je 'demontirao' vodstvo Hamasa na sjeveru Gaze
+-  Vladimir Stupar: Ni najpovoljniji uslovi života ne mogu donijeti čovjeku istinsku radost bez Boga
+-  오늘의 운세 2024년 1월 8일 月(음력 11월 27일)
+-  大埔私家車硬撼電單車 陷火海濃煙衝天 鐵騎士及時脫困
+-  Six Palestinians, Israeli officer killed in West Bank
+-  Amadeus: “La politica stia lontana da Sanremo. Ferragni? A un certo livello la svista non è permessa”
+-  Schon gegen Stuttgart dabei? - Lainers Kampfansage nach 30-Minuten-Test!
+-  קבוצת מבנה נדל"ן במינוי מסקרן: זה סמנכ"ל התפעול החדש
+-  מטרו מוטור משיקה רכב חדש: MPV סופר פרמיום
+-  רייטינג: יובל סמו משאיר אבק לפטריוטים, חדשות 14 בירידה
+-  הפתעה בלוטו: הסיבה שבגללה המנחשים פספסו 10 מיליון שקל
+-  מהפכה בחשבונות החשמל בישראל: הדרך שלא ידעתם להוזיל עלויות
+-  מהפכה בטיפול הביתי: האפליקציה החדשה שתשנה את מעמד האחיות
+-  סלקום Enrgy במינוי מסקרן: זה המנכ"ל החדש
+-  בנק לאומי מעריך: "הריבית לא תרד בכל החלטה בשנה הקרובה"
+-  פגיעת טיל ישירה הצילה זוג פושט רגל: ביהמ"ש בהחלטה מפתיעה
+-  שוטרים עצרו צעיר ששוחרר ממילואים לאחר שמצאו מחסנית ברכבו
+-  Bloomberg: Por la corrupción en el Ejército chino algunos misiles son llenados con agua en lugar de combustible
+-  Đóng tàu Hyundai Việt Nam (Khánh Hòa): Năm 2023, bàn giao 12 tàu cho đối tác
+-  ¡Que pase el 2024!
+-  ปชป.ตั้ง “เดชอิศม์-นริศ” ติวเข้มสส.จัดหนักศึกซักฟอกรัฐบาล
+-  "교도소 들어가고 싶다"…대구지검 민원실서 흉기난동 50대 영장심사
+-  북 포격 서해 NLL 이북 7㎞까지 근접…긴장수위 높이려는 의도
+-  [김여정 “南 합참, 폭약 소리를 포성 오판…기만작전에 속았다”
+-  United Cup Women's Final Highlights: Iga Swiatek vs Angelique Kerber
+-  United Cup Women's Final Highlights: Iga Swiatek vs Angelique Kerber
+-  [[속보]옹진군 “연평도서 북한측 포성 청취…야외활동 주의당부”
+-  مهيدات ينفي وجود مافيا تتحكم بأسعار الأدوية في الأردن
+-  Blinken says Turkey committed to 'positive' role in postwar Gaza as he opens diplomatic push
+-  IAS Tina Dabi`s Sister Ria Gets Good News From Bhajan Lal Govt In Rajasthan, Read Details
+-  Tensions escalate as trapped miners’ relatives gather at Redwing Mine
+-  Teammates dominate national cycling road race
+-  Teammates dominate national cycling road race
