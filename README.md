@@ -1,11 +1,51 @@
 # Latest News
--  Goede voornemens van sporters? ‘Een koude rondrit op de platte kar in april. En dan zing ik iedereen warm’
--  האמת על התחקיר על ליאו מסי לא מנעה את תיאוריית הקונספירציה
--  פורצ'ן באסי יעמוד בפני ועדת משמעת בעקבות התנהגותו בסכנין
--  ליד שכן ישראלי: רונאלדו רכש "מגה אחוזה" באי המיליארדרים החדש
--  4 לוחמי מג"ב נפצעו בפעילות מבצעית במחנה הפליטים ג'נין, שניים מהם קשה
--  חשד לפיגוע ירי: בן 30 נורה למוות בבנימין
--  קולולו: אן זיוי מאורסת וחכו שתראו את הטבעת
--  פינוקי קורנפלקס ושוקולד שמכינים עם הילדים
--  슈, 쌍둥이 딸들과 함께 한 근황 영상…댄스 실력 심상치 않네
--  Chủ mới M.U gặp ác mộng với Casemiro
+-  Ajay Devgn, Kajol`s daughter Nysa is a `liver`, wears Orry merch for night out
+-  Congress sets up election committees for 8 states
+-  HRISTOS SE RODI, SREĆAN BOŽIĆ: Vernici danas obeležavaju najradosniji hrišćanski praznik, ove običaje morate ispoštovati
+-  শেয়ার বিক্রি করেছেন শীর্ষ ৪ কোম্পানির বিনিয়োগকারীরা
+-  ‘악의’ ‘복수’ ‘경멸’이란 괴물을 키워가고 있는 우리 사회 [배정원의 핫한 시대]
+-  خطوات.. كيفية جدولة منشور على إنستجرام
+-  تعرف على الفرق بين حج القرعة والجمعيات والسياحة.. القانون يرصد التفاصيل
+-  زى النهارده.. الأهلى يخسر من بايرن ميونخ 2 / 1 ودياً وتألق محمد بركات
+-  "يا نهار أبيض" أغنية لـ تامر حسنى بتوقيع أحمد المالكى وسامر أبو طالب
+-  منتخب اليد يختتم الدورى الذهبى بمواجهة النرويج اليوم
+-  شبورة كثيفة اليوم قد تصل للضباب والصغرى بالعاصمة 14 درجة
+-  وزيرا خارجية أمريكا والجزائر يبحثان الوضع في غزة
+-  'Doppler' y láser: Cómo funcionan los radares en España
+-  متى لا يجوز محاكمة المتهم بارتكاب جريمة السرقة.. تفاصيل
+-  تعرف على مشروعات جامعة القاهرة المستقبلية
+-  حياة كريمة.. تركيب أكبر شبكة كابلات كهرباء ومحطة رفع بقرية النمسا فى الأقصر
+-  استشهاد 6 فلسطينيين بقصف مسيرة إسرائيلية في جنين
+-  “ค้าภายใน” เชือดลานรับซื้อยาง จ.เลย โกงตาชั่ง
+-  আন্তর্জাতিক গণমাধ্যমে বাংলাদেশের নির্বাচন
+-  পাবনা-১: নিজ কেন্দ্রে ভোট দিলেন ডেপুটি স্পিকার টুকু
+-  Doudoune, tour de cou, bonnet et gants: les astuces pour bien se couvrir avant la vague de froid
+-  Nieuwjaarsvogels in Harskamp: 'Maar twintig soorten ondanks afwisselend landschap'
+-  Beli Motor Listrik di Transmart, Dapat Subsidi Plus Potongan Rp 500 Ribu
+-  ימנע חזית צפונית? בלון הריגול "טל שמיים" נכנס לפעילות מבצעית
+-  בהשקעה של 1.2 מיליון שקל: מוזס שופ משיקה סניף, זו העיר שתרוויח
+-  רשת BBB ביוזמה מרגשת: כך תנציח את נרצח הנובה
+-  Auto|Piloot. Aasta autoauhinnad, aga teistmoodi
+-  “พีรเจต สุวรรณนภาศรี” ….เคล็ด (ไม่ลับ) สร้างความมั่งคั่ง
+-  2024 trafik sigortası ücretleri
+-  गैंगस्टर शरद मोहोल हत्या मामले में बड़ी कार्रवाई; दो वकीलों सहित आठ लोग हथियारों के साथ गिरफ्तार
+-  Omiljena Bjelopoljka za "Vijesti": Pravo bogatstvo se mjeri porodom
+-  Путин: Церковь не хочет зависеть от государства. И мы это всячески поддерживаем
+-  أسعار الذهب في الإمارات اليوم الأحد 07 يناير 2024
+-  Astronomi došli do senzacionalnog saznanja o Sunčevu sustavu: Jedan od planeta uopće ne izgleda kako se mislilo
+-  SL welcomes over 25k tourists in first four days of 2024: Russian, Indian visitors lead influx
+-  오영훈 지사 “학교 몰카 사건 유감 피해 회복에 최선”
+-  윤대성 전술코치, 제주U-18 유소년팀 감독에 선임
+-  “유보통합 추진으로 양질의 유아교육 기회 확대”
+-  Goalpara: Man trampled to death by wild tuskers; several houses destroyed
+-  How Africa can benefit from its critical minerals
+-  Meteoroloji’den ‘kuvvetli yağış’ uyarısı! Sel, yıldırım, hortum, fırtına
+-  Airlangga Yakin Prabowo Menguasai Tema Debat Ketiga Pilpres 2024
+-  Минути до началото на финалният двубой с участието на Григор Димитров
+-  Τα αποτελέσματα του ΝΒΑ στο Gazzetta
+-  میڈیکل وڈینٹل کالجز نشستوں میں اضافہ ناگزیر ہے،سید ارشد حسین
+-  61 нови случаи на коронавирус у нас
+-  여준성 예비후보 '누가 싸웠는가?-코로나 전쟁을 이겨낸 소통의 힘' 출판기념회
+-  강원특별자치도, CES 2024 참가… 미래 산업 시장 확대 박차
+-  장평리 가스폭발 이재민 위한 성금 기탁 이어져
+-  정선군 중소유통 공동도매 물류센터 본격 가동
