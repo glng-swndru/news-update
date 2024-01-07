@@ -1,51 +1,51 @@
 # Latest News
--  "מופע אימים": שחקני נאפולי התנצלו בפני האוהדים, קונטה יושיע?
--  לקראת הדיון המכריע: כל מה שצריך לדעת על ההליך בבית הדין בהאג
--  İstanbul'a kar ne zaman gelecek? Meteoroloji uzmanı tarih verdi
--  Süper Lig'de Galatasaray'a karşı çıktığı ilk maçta harikalar yarattı! 35 dakikada 5 kurtarış... "Türk futbolu yeni bir kaleci kazandı"
--  By: does Puravive cause diarrhea
--  By: Puravive weight loss legit
--  By: Puravive review amazon
--  Michael Irvin Drank Water Upside Down To Cure His Hiccups Live On ‘NFL Gameday Morning’
--  Homologa Aquiles Serdán descuentos en predial con Chihuahua
--  Hilfe von Mama? Doria Ragland soll bei Meghan Markle und Prinz Harry eingezogen sein
--  Manchester City turladı, De Bruyne döndü
--  Ushqimet që nuk duhet t’i ruani asnjëherë në frigorifer
--  Charlie Hebdo, Hypercacher : neuf ans après les attentats, Paris honore les victimes
--  সপ্তমবাবের মতো নির্বাচিত বীর বাহাদুর উশৈ শিং
--  Isaac Lee, el bogotano que manda en la empresa más importante de K-pop, la que maneja a BTS
--  Brasil despide a una de sus leyendas: Mario Zagallo
--  Pakkanen lauhtuu koko maassa, tiistaina mittari kääntyy jo plussalle
--  ХК «Сочи» потерпел третье подряд поражение в Новом Году
--  BVB-Gerücht um kroatisches Wunderkind
--  Ferrari, Vasseur: "Calendario a 24 gare non mi preoccupa. Ecco che faremo"
--  Dramma Dakar: incidente terribile, in elicottero all'ospedale. "Non aveva polso"
--  نقابات مهنيي سيارات الأجرة الصغيرة بإقليم الناظور ترفع بلاغ شديد اللهجة للجهات المسؤولة للمطالبة بحل مشاكل القطاع
--  ليام فوكس: على المملكة المتحدة أن تعترف بمغربية الصحراء
--  نائب بريطاني: على المملكة المتحدة أن تعترف بمغربية الصحراء
--  بغيابات كثيرة.. البنزرتي يكشف تشكيلة الوداد أمام المغرب التطواني
--  Španjolski izbornik odabrao 18 imena za put u Njemačku: Evo tko sve prijeti Hrvatskoj
--  Reyes magos entregan hígado a paciente del Hospital General
--  Diretor de Comunicação da CBF desmaia em velório de Zagallo e é socorrido por ambulância
--  Söder fordert Neuwahl: CSU will „Ideologieprojekte“ der Ampel sofort wieder abschaffen
--  EM-genrepet: Nytt svenskt målkalas mot Japan
--  HSE boss intent on ‘appropriate justice’ over failures in Aoife Johnston case
--  Acer Debuts Carbon-Neutral Aspire Vero 16 with Latest Intel Core Ultra Processors
--  Điện thoại iPhone giảm sốc, đồ gia dụng "bay" 50% giá dịp Cận Tết Nguyên Đán 2024
--  La vía Alóag Santo Domingo está cerrada, según Prefectura
--  Manchester City hehkuttaa: ”Kuningas on palannut”
--  Mamili psa koricom hljeba da bi mu u usta stavili petardu
--  ‘양심 있나?’ 6개월 넘게 소속팀 없는데 바르셀로나에 ‘역제의’…“훌륭한 발판으로 생각”
--  Las maletas se acumulan en los aeropuertos por la huelga de trabajadores de Iberia
--  Şarampole devrilen otomobilin sürücüsü: Tansiyonum düştü
--  Galatasaray- Konyaspor maçında Ahmet Çalık unutulmadı
--  Konyaspor'un genç kalecisi ilk Süper lig maçında devleşti
--  منتخب المغرب أول الوافدين إلى كوت ديفوار لخوض نهائيات كاس امم افريقيا
--  Only non-kinetic approach can restore peace to South-East – Reps Deputy Speaker, Kalu
--  Με πέναλτι «κανονίστηκε» η ισοπαλία στο Καρμιώτισσα-Εθνικός
--  ফরিদপুর-৪ আসনে টানা তৃতীয় জয় পেলেন নিক্সন চৌধুরী
--  Jedna od prvih mapa neba prikazuje misterioznu zvijezdu: Otkriće znanstvenika upućuje na jedno
--  SNEG U BEOGRADU I OVIM DELOVIMA SRBIJE Samo što nije zabelelo, stižu LEDENI dani
--  La pregunta “trampa” que le hicieron a una mujer en la entrevista para visa de Estados Unidos y cómo la respondió
--  100 urte mendiz mendi
--  Lucas Halter é novo reforço do Botafogo
+-  Naas fixture rescheduled for next Friday 12 January
+-  Blinken: SAD se protivi raseljavanju Palestinaca
+-  Zenica City Library marks its 70th anniversary, and American Corner celebrates the 20th anniversary
+-  Obras de mejora en la calle Cordó de Vila-real
+-  «راضية» الملامح والنفس والسيرة.. قصة السيدة «المَحنية» على ضفاف النيل عبر 50 عاما
+-  Levinska Turcijas čempionātā debitē ar diviem punktiem un zaudējumu piecos setos
+-  Strikes that would have caused travel chaos in London suspended at last minute
+-  Плоггинг лойиҳаси Ўзбекистон бўйлаб кенг тарқалмоқда
+-  Stuk romp van vliegtuig dat Alaska Airlines-vlucht verloor nog steeds niet gevonden
+-  Gromy spadły na Zielińskiego. Włosi mówią jednym głosem
+-  BCCI announces Indian team squad for Afghanistan T20I
+-  Everton fan baffles Goldstein by suggesting there’s an agenda to get them relegated
+-  الارصاد : منخفض جوي قادم الى الاردن
+-  القناة 12 الإسرائيلية: تدهور الحالة النفسية لنحو نصف الإسرائيليين
+-  अयोध्या में लंगर सेवा के लिए पंजाब से निहंगों का जत्था राशन लेकर हुआ रवाना
+-  الملك ورئيس رواندا يتفقان على توسيع التعاون الثنائي
+-  Jetzt spricht Schalkes Vize-Kapitän im Exklusiv-Interview: Marcin Kaminski im Trainingslager
+-  Emekli maaşına 11-12 puanlık ek zam geliyor! En düşük emekli maaşı...
+-  VATRA IH OSTAVILA BEZ KROVA NAD GLAVOM: 7.000 ljudi ostalo bez doma u požaru u izbegličkom kampu u Bangladešu
+-  Verkehrschaos droht - Bauern-Proteste legen Deutschland lahm: Der große Blockade-Überblick
+-  「國王派之王」來自台灣！法國省級比賽冠軍，揉合東西文化勝出
+-  Satirepreis Göttinger Elch geht an Aschaffenburger Karikaturisten-Duo Greser & Lenz
+-  Neujahrsempfang in Glattbach: Kinderbetreuung, Schule, Feuerwehrhaus und 50 Jahre Roncalli-Zentrum
+-  Geld für Senioren-Tagesstätte
+-  3000 Euro für drei Institutionen
+-  2000 Euro für Weg der Hoffnung
+-  2000 Euro für Kinderhospiz
+-  Geld für wissenschaftliche, kulturelle und gemeinnützige Einrichtungen
+-  3000 Euro für Kinderhospizdienst
+-  10.000 Euro für Kinderträume
+-  Lens-Monaco: la statistique folle de Brice Samba sur les tirs au but
+-  Oswald Behl aus Rettersheim versteht noch das Korbflechteh
+-  Eisbaden, Therme, Wintersport: 11 Aktivitäten, die man im Winter in München gemacht haben sollte
+-  Asesinan a mujer en Boquerón, Chiriquí
+-  BINTEO: One… Φράγκος show!
+-  Während Andrew-Skandal: König Charles geht zum Gottesdienst!
+-  ŽENU IZVLAČILI IZ SMRSKANOG VOZILA: Žestok sudar tramvaja i auta u Bulevaru kralja Aleksandra, troje povređeno u saobračajnoj nesreći
+-  Ανατροπή μέσα σε 4 λεπτά ο ΠΑΣ Γιάννινα και βαθιά ανάσα απέναντι στον Αστέρα!
+-  Broj stanovnika Barselone premašilo 1,7 miliona
+-  Ako potpiše za Real, Mbappé će izgubiti pravo bogatstvo: Perez mu srezao moguću zaradu i postavio ultimatum?
+-  Giroud into double figures again, helps Milan beat Empoli 3-0 in Serie A
+-  Barahathawa Incident: Local administration, agitators sign 11-pt deal
+-  Dinamo vraća Josipa Brekala
+-  Wasiirkii u horeeyey ee ka tirsan Somaliland oo ka hor yimid heshiiska Muuse Biixi & Itoobiya
+-  Napoli, Meluso: “La squadra è irriconoscibile. Piena fiducia in Mazzarri”
+-  Torino, Lazaro: “Felice per l’assist, ma voglio farne di più”
+-  Aeroméxico baja su flota
+-  Magic: The Gathering artist is "done working for Wizards of the Coast" over its alleged use of AI
+-  كرتي لـ«الشرق الأوسط»: لا علاقة لي بالجيش السوداني
+-  *** BILDplus Inhalt *** Sport-Boss Hengen erklärt - Darum hakt Boyd-Abgang aus Lautern!
