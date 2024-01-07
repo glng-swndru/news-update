@@ -1,11 +1,51 @@
 # Latest News
--  التعليم تعلن جداول امتحانات الفصل الدراسي الأول للطلاب المصريين في الخارج
--  SON DAKİKA: Beşiktaş teknik direktörlük görevine Fernando Santos'un getirildiğini açıkladı!
--  תחקיר חדש חושף: מה גרם למחדל הענק ב-7.10?
--  ישראל בחרה נציג להאג: זה השופט שישפוט בתביעת 'רצח העם'
--  La Xunta exige al Gobierno más información sobre los pellets y califica el vertido de "problema nacional"
--  Rueda juega la baza de la amnistía en su campaña para presidir la Xunta de Galicia
--  Rueda juega la baza de la amnistía en su campaña para presidir la Xunta de Galicia
--  Adorable moment King Charles praises kids’ ‘very cool’ homemade toy Land Rover – but cop hands them parking ticket
--  «Сочи» уступил «Северстали» всухую и потерпел 12-е поражение подряд
--  البابا تواضروس الثاني: واثقون أننا سنعبر الأزمة ونتجه لمستقبل أكثر رخاء
+-  El Mallorca castiga al Burgos y pasa a octavos
+-  Hans-Georg Maaßen über Parteigründung: „Ich bin einer, der keine Brandmauer kennt“
+-  Belconti Resort’ün yeni Satış ve Pazarlama Direktörü Zuhal S.Kadakal oldu
+-  استشهاد رضيعة برصاص الاحتلال وإصابة فلسطيني بزعم التصدي لعملية دهس مزعومة في القدس
+-  Varar Sjálfstæðisflokk og Framsókn við klækjum Vinstri grænna
+-  ‘AAP नेता ED से नहीं डरते…’ कालकाजी में ‘मैं भी केजरीवाल जन संवाद’ में बोलीं दिल्ली की मंत्री आतिशी
+-  След изясняването на казуса с непоканените депутати за водосвета Пеевски пак негодува
+-  Kal Ka Vrishchik Rashifal: वृश्चिक राशि वालों की किसी नए कार्य की योजना होगी सफल, करें यह खास उपाय
+-  الناجحون في الامتحان التنافسي في مختلف التخصصات - اسماء
+-  بتوجيهات من رئيس هيئة الأركان قرارات لصندوق الإئتمان العسكري
+-  Michael Cieply: Party Like It’s 1988, People Clearly Want Some Laughs From The Movies (And The Globes)
+-  &quot;GOCA MOŽE DA RADI, ALI NEĆE&quot; Ovo je praznični natpis kome se smeje ceo Beograd (FOTO)
+-  Trecker-Demo im Streit um Agrardiesel: Landwirte aus Datteln und Waltrop nehmen teil
+-  Neuer Schulseelsorger in Herten: Fabian Christoph (33): „Hier fühl ich mich wohl“
+-  SWERTRES RESULT Today, Monday, January 8, 2024
+-  Sternsinger-Aktion 2024: „Menschen glücklich zu machen, erfüllt mich“
+-  Krunic Milan: la trattativa con il Fenerbahce è in una fase di stallo. Il motivo
+-  Was bringt der Babysitter auf Gemeindekosten?
+-  Was bringt der Babysitter auf Gemeindekosten?
+-  فلاهوفيتش أساسيا في تشكيل يوفنتوس لمواجهة ساليرنيتانا
+-  दिल्ली की इन जगहों से खरीदें ट्रेंडी और टिकाऊ फर्नीचर, पैसे भी लगेंगे कम
+-  Irtokoirat raatelivat Onni-terrierin henkihieveriin kotitiellä – Pelättyjen laumanvartijakoirien omistaja: ”Koskaan ei ole ollut mitään välikohtausta”
+-  Tributes paid to 'beautiful' model and rising hip hop star killed in motorbike crash
+-  Manželom zožral pes neskutočné množstvo peňazí: Nasledovala hotová nočná mora, no získali ich späť!
+-  Vikingovia boli veľkými cestovateľmi, počas výprav sa dostali až do Kanady či Bagdadu
+-  Enviropolícia zasahovala na nelegálnom autovrakovisku pri Košiciach
+-  Edese IJsvereniging zet natuurijsbaan onder water
+-  Po otrave alkoholom zomreli štyria ľudia, 40 ďalších hospitalizovali
+-  Die USA verzeichnen einen Rückgang illegaler Grenzübertritte, nachdem Mexiko die Durchsetzungsmaßnahmen verschärft hat
+-  Taylor Swift Enjoys Girls Night Out in L.A. With Brittany Mahomes & Lyndsay Bell Ahead of Golden Globes: Photos
+-  Klopp: Drauma dráttur fyrir bæði lið
+-  كأس إنكلترا: «سيتي» يستهل حملة الدفاع عن لقبه بخماسية أمام هادرسفيلد
+-  পিরোজপুরে হেরে গেলেন ৬ বারের সংসদ সদস্য
+-  Über London zur EM? Timo Werner verlässt RB Leipzig
+-  Kreditkartenskandal: Weshalb zwei französische Klasse-Biathletinnen im Clinch liegen
+-  Wie die Tischtennisspieler aus Eibenstock Nachwuchs an den Platten generieren
+-  Chelseas Star Sam Kerr erleidet Kreuzbandriss
+-  Bericht: FC Bayern gibt Angebot für Ex-Leipziger Mukiele ab
+-  Bei De Bruynes Comeback: Manchester City locker weiter
+-  Fußballer des SV Geringswalde liefern sich beim Budenzauber des HFC Colditz packende Duelle
+-  Urlaub 2024: Was Familien jetzt unbedingt beachten sollten
+-  BSV Sachsen Zwickau: Ernüchterung nach Auswärtspleite
+-  Rentner löst Einsatz von Spezialkräften der Polizei aus
+-  Polizeidirektion Zwickau schaltet Bürgertelefon
+-  Große Langlauf-Überraschung: Moch Tages- und Gesamt-Zweiter
+-  Ifo: Einsparungen treffen Landwirtschaft überproportional
+-  Le Lyaud. La municipalité souhaite étoffer l’offre de son marché du samedi
+-  Aynişan Aygün Bəylərin qızı üçün ADDIM ATDI – VİDEO
+-  Brandenburgs Verkehrsminister hebt Lkw-Fahrverbot für diesen Sonntag auf – Gericht erlaubt Blockaden
+-  Glasgow residents fume as city erased from Hollywood hit movie Poor Things
