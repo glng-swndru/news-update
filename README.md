@@ -1,11 +1,51 @@
 # Latest News
--  Juve, Boteli spiegato da chi lo conosce bene: "Estro e cinismo, ricorda Eto'o"
--  ‘맨시티 레전드’ 아구에로도 피하지 못했다!... ‘예외 없는’ 과르디올라 감독의 규칙
--  Marché parallèle des devises : l’euro repart à la hausse face au dinar
--  Forget Dry January: perhaps Damp January is what New Jersey needs
--  Tuần tới, miền Bắc khả năng đón đợt không khí lạnh
--  Ticiane Pinheiro é uma das participações do documentário das Paquitas
--  Após acordo com MPF em processo, Taurus vai doar munições à Abin
--  Dramático repunte de 32% en casos de hipertensión
--  Cek Fakta: Ganjar Pranowo Sebut Anggaran Pertahanan Indonesia Belum Mencapai 1%, Benarkah?
--  Tôi vỡ mộng khi chọn nhà chồng quyền quý
+-  Borgaryfirvöld í Bern vilja heimila sölu kókaíns – „Stríðið gegn fíkniefnum hefur ekki virkað“
+-  [인사] 대구신문
+-  ‘영부인 보좌’ 제2부속실 부활…인사 이번주 마무리
+-  대통령실 “태영건설 자구노력 없인 워크아웃 없다”
+-  [마케팅 톡톡] 영업 활성화 전략, ‘숫자’없이 달려가면 안돼…영업실적 바탕 목표 세워야
+-  경주시, 기초생활보장 분야 보건복지부 장관상
+-  건보 지역가입자 車 부과 보험료 폐지
+-  Milan, fora de casa, não toma conhecimento do Empoli
+-  Tesla wendet sich gegen Tarifbindung - Bürgervotum zur Erweiterung
+-  Stromgigant EDF treibt Pläne für Fessenheim-Projekt voran
+-  IG Metall erwartet harte Tarifrunde bei Volkswagen
+-  'Weihnachtsfrieden' endet - Streiks bei der Bahn bald wieder möglich
+-  ‘먹통’ 알뜰교통카드 34시간 만에 복구…현재 정상 작동중
+-  Elftal spelers Bennekom vastgelegd voor nieuwe seizoen
+-  Gemma Atkinson reveals real reason she'd never move to Spain with Strictly's Gorka Marquez
+-  לואיס ובוב בהרכב, דה בראונה ודוקו יעלו מהספסל מול האדרספילד?
+-  מאיפה יש מיליארד וחצי לפיצוי המילואים? הממשלה שואבת את כספי קרן הניקיון
+-  Velório de Zagallo acontece na sede da CBF com presença de público e ilustres nomes do futebol
+-  Милан започна 2024-а, както завърши 2023-а
+-  Empoli-Milan 0-3, tris rossonero e Pioli blinda terzo posto
+-  Εξελέγησαν τα νέα μέλη της Μητροπολιτικής Επιτροπής Θεσσαλονίκης
+-  Novi dan: Srbija pred iskušenjima – šta sa protestima posle praznika
+-  AK Parti'nin İstanbul adayı Murat Kurum: Uzmanlık alanı kentsel dönüşüm
+-  12 Muffin-Making Mistakes And How To Avoid Them
+-  Otkriveno: U kineskim raketama umesto goriva - voda
+-  Watford skipper Hoedt had warned team against complacency
+-  Οι επιλογές του Σατσιά κόντρα στην Καρμιώτισσα
+-  Bangladesh registers low voter turnout in polls amid boycott by Opposition BNP
+-  Prabowo Serang Balik Anies Sebut Cuma Ngomong Doang
+-  "سكاي ديو" رُصِد على طول الحدود اللبنانية... اليكم خصائصه!
+-  AO VIVO: ESPN se despede de Zagallo com SportsCenter especial agora; veja pela ESPN no Star+
+-  Feyenoord-supporters reageren negatief op transfergerucht: 'Die is zo slecht, dit moet je niet willen'
+-  "Vége a mamahotelnek" - Ennyi volt: Hernádi Judittól elköltözik a lánya
+-  Auditoria da CGU sobre refinaria pode atrapalhar Petrobras e Mubadala
+-  Japanse buitenlandminister brengt eerste bezoek aan Oekraïne
+-  بلا مجاملة
+-  Japon deprem uzmanından Marmara Bölgesi'ni rahatlatan açıklama: Büyük bir deprem beklenmiyor
+-  Yüksel Uzel hayatını kaybetti
+-  Wintereinbruch in Dortmund : Temperaturen sollen bis minus 6 Grad fallen
+-  PEVAČICA TRUDNA SA 30 GODINA STARIJIM Božić dočekala u crkvi, pa se emotivnim rečima obratila nerođenoj bebi
+-  Drogba'dan Zaha eleştirisi!
+-  Hamas: İşgalci İsrail'in gazeteci Dahduh ile Süreyya'yı öldürmesi savaş suçudur
+-  Policisté při pročesávání lesoparku v Praze něco našli. Řekli jen, že nehrozí nebezpečí
+-  Mondli Ngcobo Speaks After Baby Mama Mandy Malebo’s Death Sparks Controversy
+-  Semana começa com mais de 2200 vagas de emprego em Porto Alegre
+-  Sistema Nacional de Gestión de Riesgo garantiza retorno seguro de temporadistas
+-  Мілан розгромив Емполі: результати 19 туру Серії А
+-  Cumhurbaşkanı Erdoğan 26 ilin adayını açıkladı! İşte o isimler..
+-  Autos kollidieren an Kreuzung: Zwei Kinder bei Unfall in Berlin-Tempelhof schwer verletzt
+-  Chauffeur bebi: Nissan March a accidenta den auto di Paramedico
