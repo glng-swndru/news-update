@@ -1,11 +1,51 @@
 # Latest News
--  [이길우 변호사의 호크아이7] 당신은 음주운전 사고부담금에 대해 알고있나요?
--  Blinken diz que palestinianos devem regressar às suas casas
--  Basquetebol. Benfica derrota Oliveirense
--  Több napos sztrájkra szólított fel a német vasutasszakszervezet
--  [관풍루] 국내 업체 개발 잠수함 설계도면, 대만으로 빠져나가 대만이 잠수함 개발에 성공한 것으로 알려져 충격.
--  [사설] 계속되는 북의 도발, 철통 경계 못지않게 내부 단결 중요하다
--  [사설] 총선 여론조사·홍보 전화 남발, 국민은 피곤하다
--  [사설] 특혜 넘어 ‘법률 위반’ 비판 나오는 이재명 응급 헬기 이송
--  عاجل.. تنبيه مهم من حساب المواطن لمن يسكن في منطقة حدودية
--  مشهد مرعب لما تخرجه الأفعى من السم في العضة الواحدة
+-  Ruta desde Cumbayá se extiende hasta la Universidad Central a partir de este lunes 8
+-  Serie A: Roma-Atalanta 1-1 DIRETTA
+-  Eliminación del Arsenal, golazo de Bamford y el regreso de De Bruyne en la tercera ronda de la FA Cup
+-  Videós összefoglaló a 2024-es Dakar-rali második szakaszáról!
+-  Descuentos a mitad de precio calientan las rebajas de invierno
+-  Talijani: To je Torino iz bajke, Vlašić je mozak Jurićeve momčadi
+-  Βαθμολογία Basket League: Πρώτος και αήττητος ο Παναθηναϊκός
+-  Берлин заявил, что не будет противиться планам Лондона поставить Eurofighter Эр-Рияду
+-  Dakar 2024 : un air de "Seigneur des Anneaux" et de "Pirates des Caraïbes"
+-  Bruna Marquezine é flagrada em clima de romance com famoso; descubra quem é!
+-  Gunther Emmerlich (†79) wird hier seine letzte Ruhestätte finden
+-  Die Reaktion des Tottenham-Trainers spricht Bände
+-  Емполі - Мілан 0:3: огляд матчу ВІДЕО
+-  Feria de San Sebastián inició en el estado Táchira
+-  New Housing Trends Emerge in the Region of Murcia
+-  Labour Party In Niger Disassociates From ‘Fake’ Congress
+-  Now You See Me 3: When Is It Coming Out?
+-  Halle Bailey announces birth of first child
+-  Michel propõe-se a combater "extremistas que minam" a UE
+-  İzmir'de eğitime fırtına engeli! 3 gün ara verildi
+-  Karabük'te heyelan! Yük treni raydan çıktı
+-  Özgür Özel: İktidar unutsa da biz unutmayacağız
+-  Masterchef All Star'da şampiyon belli oluyor!
+-  Yeniden aday olan Tahir Büyükakın coşkuyla karşılandı
+-  ¿Quieres cuidar tus dientes? Sigue estos consejos
+-  Colorado woman sent to collections for tickets racked up by license plate thief
+-  الصهاينة يخرّبون القبور
+-  مزيد من الدماء في غزّة
+-  بوغالي يتضامن مع إيران
+-  معتقلو غزّة لدى الاحتلال يتعرّضون للتعذيب الممنهج
+-  الشرطة تتألق في بطولة الشطرنج
+-  سلامة: قمة الجزائر ستكون مميّزة
+-  ثلاث دول تنفي أي محادثات مع الاحتلال
+-  3 مواجهات تجمع بين أندية الرابطة المحترفة الأولى
+-  تطوُّر ملحوظ في قطاع البريد
+-  Tinubu’s Parameters For Assessing His Administration In 2024
+-  منتجات تقليديّة جزائرية تساهم في إنجاح الصّناعة السّياحية
+-  Badruddin Ajmal accuses Congress of creating D-Voters, NRC problems in Assam
+-  Murat Kurum: İlk günden işe koyulduk
+-  Fermín López abre el marcador en Barbastro
+-  النزاع على تراث أم كلثوم.. عرض مستمر
+-  Χρυσές Σφαίρες 2024: Η μεγάλη ώρα για τον Γιώργο Λάνθιμο - Τα φαβορί της βραδιάς
+-  Kakav car! Željko Mitrović se vozi rikšom, svira i peva usred Londona! Ovom pesmom je rešio da čestita svima Božić (VIDEO)
+-  Un incendie se déclare dans un pavillon à Bellechaume
+-  Soccer-Arteta frustrated as goals dry up for Arsenal
+-  وفاة وإصابتين إثر اصطدام مركبة بعامود في اربد
+-  وفاة معلم أردني وإصابة زوجته بحادث سير في السعودية
+-  الملك ورئيس رواندا يتفقان على توسيع التعاون الثنائي
+-  Die Führer des Kongresses werden am Sonntag eine Einigung über die Ausgabenhöhe bekannt geben, da den Gesetzgebern die Gefahr eines Shutdowns droht
+-  قصة قيس وليلى تتكرر في مصر
