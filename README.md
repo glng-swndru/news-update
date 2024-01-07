@@ -1,51 +1,51 @@
 # Latest News
--  Zastupnici pored plaće potrošili 1,1 milijun eura, a pogledajte tko je rekorder s potrošenih 34 tisuće
--  Ian Wright and Piers Morgan lead desperate Arsenal fans’ transfer pleas as Gunners miss huge chances in Liverpool loss
--  وزير الخارجية الأميركي عن استشهاد نجل الدحدوح: أنا آسف
--  عبدالله عوض يُفسخ عقده مع السلط ويعود للفيصلي
--  Fans in meltdown over ‘best month of the year’ after Anthony Joshua fight announcement seals epic 9 days of sport
--  مسؤولة إسرائيلية سابقة تدعو إلى تدمير الأونروا - فيديو
--  Kjo është arsyeja pse arka e kursimeve ka formën e një derrkuci
--  Una canasta de Parra da la victoria al Barça ante Monbus Obradoiro tras fallar 15 tiros libres
--  Egy öngól lett az Arsenal veszte, a Liverpool Szoboszlai nélkül is nyert Londonban
--  দুই ঈগলে কেড়ে নিলো প্রতিমন্ত্রী-এমপির নৌকা
--  Германия — Жизнь без наличных: когда в Германии исчезнут бумажные деньги?
--  בשורה רעה לנהגים בישראל: זו הסיבה שמאות רכבים יורדים מהכביש
--  מיקרוסופט ישראל החליטה לתרום - זו המכללה שזכתה
--  רשת 13 תחת מתקפה: "יא אפסים, איימו עליי ברצח"
--  המנכ"ל פותח את הפה נגד טורקיה: "ההצהרות לא חופפות למציאות"
--  בלב חיפה: לא תאמינו מה איתרו השוטרים בבית בעיר
--  שכר טרחת עורכי הדין בישראל יוגבל? זו ההצעה שעושה מהפכה
--  Soccerladuma | Man City Start FA Cup Defence With Five-Star Thrashing
--  Blinken: Palestinski civili ne smeju da budu pod pritiskom da napuste Gazu
--  N585m scandal: Stop insulting Nigerians, Falana tells Betta Edu
--  Božić: Pravoslavni hrišćani proslavljaju jedan od najznačajnijih verskih praznika
--  Sudar u Beogradu, povrijeđene tri osobe
--  Επεισοδιακή σύλληψη στην Ηλεία για κλοπές μετά από καταδίωξη και τροχαίο - Διέφυγε ο συνεργός του
--  Оккупанты упорно атакуют на Авдеевском направлении – Генштаб
--  Блинкен обвинил хуситов в нарушении почти 20% мировых морских перевозок в Красном море
--  Slaughter hace cabeza de serie de la Copa al Gran Canaria en detrimento del Valencia
--  Зеленський провів тривалу нараду, на якій було сформульовано завдання на 2024 рік
--  Cairo scatenato sui social: "Se vogliamo possiamo"
--  В Подмосковье предупредили о проблемах с транспортом из-за аномальных морозов
--  U derbiju najstarijeg nogometnog natjecanja na svijetu Liverpool je prošao dalje protiv Arsenala
--  Policia arrestoi 4 banorë të Reçicës së Kumanovës pas përplasjes së një dite më parë
--  Anses: cuándo cobro la jubilación de enero si mi DNI termina en 8
--  Arsenal - Liverpool, staðan er 0:2
--  Hasina líklega aftur forsætisráðherra
--  "ลิเวอร์พูล" โหดครึ่งหลัง บุกดับ "อาร์เซนอล" เข้ารอบ 4 เอฟเอ คัพ
--  Gazzeli Hristiyanlar kiliselerde savaşın bitmesi için dua ediyor
--  Dëbora përfshin vendin, autoritetet thirrje shoferëve të përdorin goma dimërore
--  Aos domingos, Pizza!
--  ÖVK-liberon: ”De var mer påkopplade i de avgörande lägena”
--  ÖVK-liberon: ”De var mer påkopplade i de avgörande lägena”
--  Curt Menefee Stretches Fox Duties to New York News From Sunday Sports
--  Российские полицейские стали дежурить на пункте пропуска с Польшей
--  Piden ayuda para encontrar la pieza del fuselaje del Boeing 737-9 MAX que se desprendió en pleno vuelo
--  احذر.. تغيرات في القدمين علامة على مشكلة خطيرة في الكبد - احذرها
--  زيادة الأسطول وطاقة المطارات .. الرؤية المستقبلية لقطاع الطيران المدني 2030
--  حماس: نتنياهو يريد الاستمرار في الحرب فقط للنجاة بنفسه
--  في حضور بلينكن.. قطر: لا سلام بالمنطقة دون تسوية شاملة وفق قرارات الشرعية الدولية
--  البروفة الأخيرة.. منتخب مصر يفوز على تنزانيا قبل المشاركة في أمم أفريقيا
--  Eilmeldung: GDL ruft zu mehrtägigem Streik im Bahnverkehr auf
--  Bilim adamları uyardı: Köpek sayısı kısırlaştırmayla baş edilemeyecek seviyeye geldi!
+-  ప్రతీ ఒక్కరు ‘శ్రీరామ జ్యోతి’ వెలిగించాలి
+-  పోలీసుల హత్యాకాండలో మాజీ నక్సలైట్ల అరెస్టు
+-  ఎస్‌ఐబీ మ్యూచువల్‌ ఫండ్స్‌ పక్కదారి
+-  కమనీయం..రమణీయం మల్లన్న కల్యాణం
+-  Zoo anuncia la seva retirada amb una gira que només preveu un concert a Catalunya
+-  Poliţia israeliană a ucis accidental o fetiţă palestiniană la un punct de trecere în Cisiordania
+-  కారు ఢీకొని వృద్ధుడి మృతి
+-  మందుపాతర
+-  No “Škodas” vilcienu “pirmajiem zobiņiem” cieš simtiem pasažieru
+-  చేనేతను కాపాడుకోకపోతే ధర్మవరానికి మనుగడే లేదు
+-  చంద్రబాబు సభను విజయవంతం చేయండి
+-  హెల్త్‌ సెక్రెటరీలను గ్రేడ్‌-2 ఉద్యోగులుగా గుర్తించాలి
+-  Liverpool gewinnt bei Arsenal: Jürgen Klopp feiert dank Eigentor im Pokalkracher
+-  అలరించిన రంగవల్లులు
+-  నాలుగు ఎకరాల వరి కుప్పలు దగ్గం
+-  В Египте обнаружили древнее захоронение мумий с золотыми языками
+-  Stepdad of missing teen Amy Fitzpatrick reveals shock ‘four solid suspects’ theory and issues book plea to investigators
+-  First-ever Animate Raleigh convention draws thousands of visitors, generates millions for local businesses
+-  Sujeto que perpetró ataque contra un venezolano en el AICM es vinculado a proceso
+-  الخليج اليوم .. الإمارات تنضم إلى مشروع محطة الفضاء القمرية الدولية
+-  చంద్రబాబుతోనే అభివృద్ధి సాధ్యం
+-  Evinde cansız bedeni bulunan 25 yaşındaki Gökçe’nin ölüm nedeni belli oldu
+-  SRBIJA – NEMAČKA Razlika je u klasi: Delfini demonstriraju silu
+-  Okul fırtınada hasar aldı: Eğitime üç gün ara verildi
+-  Hakan Keleş: Alternatif oyuncu sıkıntımız var
+-  هل تتجرع أوكرانيا «الاتفاق المر» ؟
+-  Abdülkerim’den abartılı sevinç!
+-  Tomasz Grodzki reaguje na działania prokuratury. "Odwrócenie uwagi od sprawy Kamińskiego i Wąsika"
+-  تین وزرا کو معطل کر دیا گیا
+-  Recensione AI Definity 1000 – Un Bot per il trading di criptovalute con intelligenza artificiale per assicurarsi un vantaggio competitivo
+-  ప్రత్యేక ఆర్టీసీ బస్సు సర్వీసులు
+-  Surrey public forum discusses safety, extortion threats
+-  Ruilbeurs historische PLUS plaatjes druk bezocht
+-  కార్మిక ద్రోహి జగన్‌రెడ్డి
+-  Cheque de estímulo de $1,500 dólares esta semana
+-  بيروت.. مسيرة حاشدة إحياء ليوم الشهيد الفلسطيني وتنديداً بجرائم العدو الصهيوني
+-  తారే జమీన్‌ పర్‌..
+-  香港仔客貨車「自炒」撞毀學校外花槽 司機幸無恙
+-  Jacques Houdek nakon dugo vremena pokazao suprugu: Glumila mu je i u spotu
+-  الخارجية الأردنية: مستمرون لوقف العدوان على غزة والتصعيد بالضفة
+-  Irak ve Suriye’deki ABD üslerine saldırı
+-  Sondaggio del Napoli per l'ex rossonero Aster Vranckx
+-  Названо место, где пройдет церемония прощания с Айгюн Бейляр
+-  Излезе прогнозата за другата седмица
+-  భువిపై చుక్కల పండుగ
+-  నేడు వెయ్యి మందితో సూర్యనమస్కారాలు
+-  DEG DEG: Wasiirkii difaaca ee Somaliland oo goor dhow shaaciyey inuu xilka iska casilay
+-  خلال لقائه عمداء بلديات الجنوب :الدبيبة يوجه شركة البريقة بضرورة معالجة ملف نقص الوقود معالجة جذرية.
+-  أرنولد بعد الإطاحة بـ آرسنال من كأس الاتحاد: تأثرنا بتغيير الخطة
+-  రాష్ట్రం బాగుపడాలంటే చంద్రబాబు సీఎం కావాలి
