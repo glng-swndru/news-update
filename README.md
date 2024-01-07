@@ -1,51 +1,51 @@
 # Latest News
--  David Mamet Slams “Wokeism” and Praises Shia LaBeouf to Bill Maher: “I’ve Never Worked with a Greater Actor in My Life”
--  ضجة كبيرة بسبب ما فعلته مُدرسة مع تلميذها بعمر 15 سنة.. تفاصيل صادمة
--  نائب نصر الله: جبهة لبنان ردة فعل ولا مجال للحديث عن إيقاف الحرب الدفاعية
--  عالجي الكحل الجاف والمتشقق… بهذه الطرق
--  12 Face Moisturizers for Eczema, All NEA-Approved
--  티모시 샬라메 '웡카' 북미 1위…매출 6200억원↑
--  La nubosidad se mantiene a la espera de la lluvia este lunes en Tenerife
--  ميلة: انطلاق ترميم المعلم التاريخي «السجن الأحمر» بفرجيوة
--  في إطار برنامج لإنجاز 90 سكنا: نشر قائمة 24 سكنا ببني موحلي في سطيف
--  وصف بالقادر على تغيير مجريات المقابلات: عمورة ضمن قائمة نجوم متوقع بروزها في "الكان"
--  الضفة الغربية: ارتفاع الاعتقالات منذ 7 أكتوبر إلى أكثر من 5680 فلسطينيا
--  منها وحدة صناعية لإنتاج أعلاف المواشي متوقفة منذ 10 سنوات: تسليم رخص استغلال نهائية لفائدة 20 مستثمرا بعنابة
--  الفريق أول شنقريحة خلال استقباله المدير السياسي بوزارة دفاع ألمانيا: الجيش عازم على تعزيز التعاون العسكري مع الشريك الألماني
--  أكد تسجيل خليط من الفيروسات المتنقلة عن طريق الهواء: البروفيسور جنوحات يؤكد بأن الوضع الصحي متحكم فيه
--  50 بالمئة من حوادث الاختناق وقعت بعلي منجلي: تسجيل أول وفاة بغاز أحادي أكسيد الكربون منذ بداية السنة
--  مقررة الأمم المتحدة إيرين خان تؤكد: الاعتداء على الصحفيين في غزة جريمة حرب
--  بصفته رئيس اتحاد مجالس الدول الأعضاء في منظمة التعاون الإسلامي: بوغالي يدين بشدة الاعتداء الإرهابي في جنوب إيران
--  بن مبارك يقدم تشكيلة مكتبه السياسي للجنة المركزية: الآفلان يشيد بما تحقق في أربع سنوات من عهدة الرئيس تبون
--  رئيس مجلس الأمة يستقبل سفير دولة قطر في الجزائر: تأكيد على مواصلة تفعيل أطر التعاون وآليات التشاور والتنسيق بين البلدين
--  Golden Globes: The Red-Carpet Arrivals (Updating)
--  Tuberculosis Burden: An Epidemic Calling For Urgent Attention
--  교촌치킨, 대만 MZ 사로잡았다
--  توقعات إيجابية للنشاط التجاري
--  «أنا بخير».. ولا أعرف ماذا حدث في النهائي !
--  Sealord owner posts loss as wild catch disappoints
--  Scientists Translate Space into Music with Unique Composition
--  DraftKings Promo Code: Bet $5 on Bills-Dolphins for $150 SNF Bonus
--  Мъри Стоилов стартира с 2:0 годината в Турция
--  ‘అభయ హస్తం’కు శివుడి పేరిట దరఖాస్తు
--  금호건설, 1569억 규모 천연가스발전소 공사 수주
--  CJ온스타일, 작년 200억 브랜드 88%↑…"원플랫폼 2.0 속도"
--  Cara Menambahkan Widget di Layar iPhone
--  Rudari slučajno izvukli ogromnu kljovu mamuta, staru bar 10.000 godina: Pogledajte kako izgleda
--  "트러플 한우부터 참치까지" 이마트, '색다른' 설 선물 선봬
--  Video.- Obliga Vialidad a abusones a respetar filas en cruces
--  Γιώργος Μασούρας: Σφυράει ακριβώς τη στιγμή που κάνω το κοντρόλ και ουσιαστικά ακυρώνει κάθε προσπάθεια να μπορεί να πάει στο VAR μετά
--  Julianne Hough Chops Off Inches Of Her Hair: See The New Look
--  ¡Feminicidio en Juchitán! Identifican a la víctima
--  عاجل.. إيجار : يمكن للمالك مطالبة المستأجر بغرامة عند تأخره في إخلاء العقار
--  التأمينات توضح إمكانية ضم سنوات خدمة حكومية إلى أخرى عسكرية
--  يتسبب في تآكل الفقرات.. تفاصيل مرض خطير بسبب استعمال الجوال (فيديو)
--  FAA to halt Boeing 737 Max 9 aircraft until it is "satisfied they are safe"
--  Se ha dado a conocer un fraude para obtener el apoyo de Mujeres con Bienestar
--  Xavi: “Hem patit més del previst per culpa nostra”
--  SAD: Milei dijo que los árabes quieren invertir 3 mil millones de dólares en el fútbol argentino
--  Promueven la recuperación de espacios públicos y la prevención del delito
--  ما هي الطريقة المثلى للعناية السليمة بالبشرة الدهنية؟
--  رغم فشلها مرارًا.. لماذا تصرّ إثيوبيا على الوصول للشواطئ البحرية؟
--  لجذب السياحة.. تعرف على خطة التطوير بالمطارات المصرية
--  Viewers slam Deal or No Deal Coronation Street special as ‘worst episode they’ve ever watched’
+-  스플래시탑, 에쓰티케이와 총판 계약…원격 액세스 솔루션 국내 공급
+-  Golden Globes 2024 LIVE: Red carpet is rolled out ahead of this year's ceremony
+-  Cobertura Bills vs Dolphins EN VIVO | Sunday Night Football, Semana 18, NFL 2023
+-  ‘Good Wife’ Who Wakes Up 4:50am To Cook For Husband Offered Multiple Gifts
+-  G마켓, ‘ESMPLUS 통계’ 서비스 오픈으로 판매 데이터 분석 강화
+-  "커피 1년간 공짜로 마시자"…스타벅스, ‘2024 럭키 드로우’ 이벤트
+-  Milett Figueroa estará presente en el reality “Los Tinelli” grabada en Uruguay
+-  Salernitana 1-2 Juventus: England U21 winger Samuel Iling-Junior lashes in equaliser before Dusan Vlahovic heads home in stoppage time to seal come from behind win
+-  Miami cops deny claims a 10ft extraterrestrial was spotted during huge city-wide police response that sparked wild conspiracy theories
+-  Aurora police investigate possible kidnapping
+-  Shh! Anti-agers no one but you need know about... Will filler fix dark circles growing beneath my eyes?
+-  «Ливерпуль» выбил лондонский «Арсенал» из Кубка Англии -ФОТО
+-  Sean Penn comes to the aid of reporter Marc Malkin after journalist suffered car trouble ahead of Golden Globes hosting gig
+-  Winds of change freshen up the Golden Globes
+-  Golden Globes 2024: Gillian Anderson cuts an elegant figure in a strapless cream gown as she graces to the star-studded red carpet
+-  M LUNA pangsapuri servis mewah mampu milik
+-  Torino vence en casa al Napoli en futbol italiano
+-  Chủ tịch VARS: Hoạt động đầu cơ, lũng loạn thị trường khó có đất sống trong giai đoạn này
+-  Bộ Tài nguyên và Môi trường lên tiếng về dự án lấn vùng đệm vịnh Hạ Long
+-  El secretario de Estado estadounidense dijo que “los civiles palestinos deben poder regresar a sus hogares y no deben ser presionados para salir de Gaza”
+-  Almirante Brown cuenta con una nueva plaza
+-  Miguel Herrera confía en el cambio futbolístico de Xolos; ¡Qué se cuide el América!
+-  Feds ask for help finding door that blew off Alaska Airlines flight, imperiling passengers: report
+-  Musical review: Miss Saigon
+-  ‘What a mess’ – Jamie Carragher in disbelief as Chelsea star Conor Gallagher linked to Tottenham transfer
+-  Golden Globes 2024: America Ferrera does a face mask while Natasha Lyonne runs on Dunkin Donuts as stars get ready for the awards show
+-  I want to buy a pet parrot for my daughters but mum-in-law says I shouldn’t
+-  Golden Globes 2024 worst dressed: Gayle King leads the fashion flops in over-the-top purple gown as stars turn out for glittering awards
+-  نشرة منتصف الليل| تطورات خطة تخفيف الأحمال.. وإجراءات لزيادة عدد المعلمين المعينين
+-  Gaziantep, Şanlıurfa, Kilis'te 'O' Banka HESAPLARINA EL KONULACAK!
+-  美의회 지도부, 1조6000억 규모 예산 총액 합의
+-  Ganjar Kecewa Prabowo dan Anies Banyak Keliru Data dalam Debat
+-  Tenerife tomba 'gigante' Las Palmas na Taça do Rei
+-  NYC man who died in tragic e-scooter crash remembered as loving family man
+-  Mayor denies music festival marred by arrests
+-  UK police launch investigation into Post Office over miscarriage of justice leading to wrongful accusations of hundreds of postmasters
+-  명동 퇴근길 대란 사라질까…광역버스 6개 노선 정류장 이동
+-  이상민 "김건희 특검? 묻지 마시지…국힘 입장 따를 것"
+-  문화예술 교육의 장…'부산문화회관 배움터' 개관
+-  태영, '워크아웃, 법정관리' 갈림길에서 '890억원 지원' 밝혀[뉴스쏙:속]
+-  A poet's echo: Alhanislam's voice contributes to record $777m pledge for NTDs
+-  Ngọc Trinh từ trại tạm giam: "Đừng bao giờ bắt chước các hành vi sai trái của tôi"
+-  Dokter Boyke Ungkap Penyebab Keperkasaan Pria Menurun saat di Ranjang
+-  El español Carles Falcón, en estado grave tras sufrir un accidente en el Dakar
+-  Giant PFS underpins Ardea share price hike
+-  Travis Kelce looks downcast arriving at Chiefs game while Taylor Swift is expected at 2024 Golden Globes
+-  SCCPSS highlights 6 pillars of character at annual Character Counts Community Celebration
+-  Why Justin Hartley & Sofia Pernas' Golden Globes Date Song Is "Lover"
+-  15° sigillo per Conegliano, Milano e Firenze battono Trento e Pinerolo
+-  I finally hooked up with childhood crush at 46 and sex is over in a flash
