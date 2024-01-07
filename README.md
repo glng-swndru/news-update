@@ -1,51 +1,11 @@
 # Latest News
--  Menores fueron los reyes de la ciudad; salen a estrenar sus regalos
--  Independientes quedan fuera de la elección; a la orilla, 9 que buscaban la presidencia
--  Luxembourg : une série d’accidents liés à l’alcool
--  وزير الداخلية يوجه باستحداث وحدة الموظف الأقدم في الوزارة
--  IJsbaan in Barneveld ligt klaar voor korte vorstperiode
--  Uyuşturucu satıcısı kovalamacada yakalandı
--  Черный лебедь действительно прилетел
--  Nông dân lập câu lạc bộ doanh nhân doanh thu tiền tỉ để cùng nhau làm giàu
--  Tin tức giải trí 7-1: Fan Trung Quốc lặn lội đi xem Chi Pu nhận giải Mỹ nhân của năm
--  Câu chuyện trong cộng đồng LGBT: Hạnh phúc không viển vông nếu đủ chân thành
--  Đất Nước Khí Lửa nhắc nhớ bản thể hình thành, để hiểu mình là ai
--  Названы калининградские города с самыми сильными рождественскими морозами
--  Patrijarh Porfirije služio arhijerejsku liturgiju u Pećkoj patrijaršij
--  Božićna čestitka gradonačelnika Mostara
--  Coreia do Norte faz disparos de artilharia pelo terceiro dia consecutivo
--  Punimet e dorës mbeten gjithmonë në modë
--  เช็กเงินอุดหนุนบุตร 600 บาท มกราคม 2567 เข้าวันไหน?
--  Стали известны подробности взрыва гранаты в кальянной в Домодедово
--  Bursa'da kadınların iş gücüne katılımı, Türkiye ortalamasının üzerinde
--  AK Partili Kılıç'tan Rumeli derneklerine ziyaret
--  Görme engelli milli judocu Yasin Çimciler, Paris Olimpiyatları'nda altın madalyaya odaklandı
--  Van sallandı!
--  स्थापनाको एक दशकपछि सशस्त्र प्रहरीबल आफ्नै भवनमा
--  La peor noticia de todas: lesión de Rafa Nadal y adiós al Open de Australia
--  Hafta sonu güncel altın fiyatları
--  Türkiye’nin en kapsamlı çocuk etkinliği Şivlilik Çocuk Bayramı başlıyor
--  Galatasaray - Konyaspor maçının VAR hakemi Alper Çetin
--  Kazı çalışmalarında kalp şeklinde taş bulundu: Göktaşı olabilir, incelenmesi gerek
--  চট্টগ্রামে ভোটকেন্দ্রে নৌকা ও ফুলকপির সমর্থকদের সংঘর্ষ, গুলিবিদ্ধ ২
--  "Барселона" нацелилась на жемчужину бразильского футбола
--  Более 1,1 тысячи участков для застройки выявлено в Нижегородской области в 2023 году
--  Kate Garraway faced ‘ordeal’ of 12-hour flight with husband Derek Draper after heart attack
--  Earth’s Inner Core Wobbles Every 8.5 Years, Study Finds
--  Bećirović uputio čestitku povodom Božića
--  Où regarder la Coupe du monde de cyclo-cross en live ? Les directs sport à la télé ce dimanche 7 janvier en Belgique
--  Scène hallucinante dans le cœur de Bruxelles : un véhicule se retrouve… dans une station souterraine, “pas le premier malheureusement”
--  Rafael Nadal déclare forfait pour l’Australian Open : “Mon objectif est d’être à mon meilleur niveau dans trois mois”
--  Šejla Zonić oduševila Mariju Šerifović : Poslije moje pjesme nije morala pjevati ništa
--  Bidenu danima nisu rekli da je ministar odbrane u bolnici
--  Bauernpräsident: Wollen keine Rechte auf unseren Demos haben
--  Yatta Evlilik Teklifi Etmek İçin 3 Neden
--  Rafael Nadal withdraws from Australian Open on eve of tournament after fresh injury blow
--  [FOTO] Spektakularna tajna degustacija kao najbolja najava WineOs-a
--  Karriere: Junger Techniker plant in Schmallenberg Photovoltaik-Dächer
--  Stupar: Ni najpovoljniji uslovi života ne mogu donijeti čovjeku istinsku radost bez Boga
--  ΑΕΚ – Ολυμπιακός: Μεσημεριανό ντέρμπι για τη Basket League στα Άνω Λιόσια
--  Как и за что изымают детей из семей
--  On Orthodox Christmas Putin vows to back soldiers who ‘defend’ Russia
--  Un homme de 76 ans blessé d'une balle dans la tête à Cannes, son pronostic vital engagé
--  Kendall Cenner güzgü qarşısında qüsursuz bədənini nümayiş etdirdi – FOTOLAR
+-  İsrail tehdit ediyor: Lübnan'da askeri seçeneğe başvururuz!
+-  İç sahada Galatasaray'ın bileği bükülmüyor
+-  Mersin'de dehşet! Hamile karısını satırla öldürdü
+-  Man United chỉ thực hiện 3 thương vụ đúng đắn thời hậu Sir Alex
+-  “미끼에 속아” 조롱 쏟은 김여정…합참 “한국軍 능력에 놀란 듯” 일축
+-  News24 | Two business robbery suspects arrested following 'high-speed chase' on Western Cape's R46 route
+-  Prof. Krugman: wygrywamy postmodernistyczną wojnę gospodarczą bez jednego wystrzału
+-  Mersin'de fuhşa zorlanan 4 kadın kurtarıldı: 1 erkek gözaltında
+-  Bursa'da sağanak yağış etkisini gösterdi
+-  İstanbul'da İETT otobüsü direğe vurdu!
