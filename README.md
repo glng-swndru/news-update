@@ -1,51 +1,11 @@
 # Latest News
--  Margot Robbie and Barry Keoghan Steal the Spotlight at W Magazine’s Best Performances Party Ahead of Golden Globes Nominations
--  AEV muss gegen Mannheim wieder in die Verlängerung
--  Inauguran sede de la Comuna Simón Rodríguez en Puerto La Cruz
--  Donald Trump spune că Războiul Civil American putea fi „soluționat prin negocieri”
--  News24 | Here are the Daily Lotto numbers
--  VIRAL: mostró el ritual de su esposa antes de subir al avión en EEUU y desató la intriga de muchos (VIDEO)
--  Vlahovic all'ultimo respiro! Juve, 2-1 alla Salernitana: l'Inter torna a -2
--  Vlahovic, urlo Juve: “Non molliamo nulla, qui mi aiutano tutti”
--  Allegri: “Juve peggiorata in una cosa. Basta dire che il Var è oggettivo”
--  Cuneo Volley inizia il 2024 con una vittoria a Ravenna
--  Club de Leones celebra los 40 años de afiliación del Dr. Carlos Lantigua
--  Anchetă la Poliția Constanța, după ce un șofer care a făcut accident nu a fost testat pentru alcool și droguri. Ce s-a aflat ulterior
--  CBN disburses $61.64m to foreign airlines through Banks
--  Buenos números para Caicedo; Noboa y Cabeza en pretemporada; Simisterra a Perú
--  Concerns Mount Over Elon Musk’s Alleged Drug Use—Executives Worried About Impact on His $1 Trillion Empire Spanning Tesla, SpaceX, and Others, WSJ Reveals
--  Fati yt/ Horoskopi 8 janar 2024
--  ট্রাকের কাছেই হোঁচট খেলেন মুরাদ
--  Kompania botërore tregon rënien drastike të Kurtit e Osmanit në rrjete sociale
--  Pioli spiega: «Jimenez al posto di Florenzi? L’ho scelto per un motivo»
--  Τόμι Γίνιγκεν: «Στο δεύτερο ημίχρονο υποφέραμε αρκετά»
--  Umfrage: 64 Prozent wollen Pistorius statt Scholz als Kanzler
--  109 journalistes tombés en martyrs à Gaza
--  איש התרבות והבמאי האהוב דן בירון הלך לעולמו
--  [Football] Coupe de France : les 388 matches de DN n’auront pas suffi contre l’OM
--  Woke-ideologi er ved at ødelægge topuniversiteter
--  Woke-ideologi er ved at ødelægge topuniversiteter
--  Speleolog i HGSS-ovac objasnio kako je pet osoba ostalo zarobljeno u špilji: “Ovdje je prvenstveno rizik za same ronioce”
--  [ŽT] „Vienas iš didžiausių tankų mūšio pralaimėjimų nuo Antrojo pasaulinio karo.“ Skelbiami išskirtiniai kadrai (Video)
--  Tai ne Suomija ar Lenkija. Buvęs CŽA vadovas skelbia sekantį Putino taikinį (Video)
--  [ŽT] Kas rusų laukia po eilinio nepavykusio šturmo (Video)
--  „Na, mes vis dar tikimės pavasarį...“ Nepaisant gandų, Danija žada pristatyti F-16 laiku
--  [ŽT] Vokietija muša pavojaus varpais. „Sukurta spec. grupė.“ Kas šnipinėja ukrainiečius?
--  [ŽT] Neįtikėtini vaizdai. Stalinas tapo šventu (Video)
--  [ŽT] Neįtiko Italija. Zacharova „grūmoja dujine kuoka“
--  Bogdanka Arka Chełm zaczęła 2024 rok od niespodziewanej porażki
--  POSLEDNJA EPIZODA "RAME UZ RAME SA DRAGANOM" Poznata pevačica poslala SNAŽNU PORUKU SVIM UČESNICIMA: Da ZAOKRUŽIMO priču!
--  16-godišnjak čiji su roditelji poginuli pušten iz bolnice, špekulira se krijumčarskoj ulozi suvozača u terencu
--  İsveç Sivil Savunma Bakanı Bohlin: İsveç'te savaş olabilir
--  La Genête. Pas de second tour pour les élections municipales partielles
--  Søren Frank: Stop den vanvittige spekulation i vin! Jeg håber, at boblen brister
--  Søren Frank: Stop den vanvittige spekulation i vin! Jeg håber, at boblen brister
--  Srbija uvjerljiva protiv Njemačke: ‘Ovo je šetnja kroz bazen’
--  Volleyball: Rhein-Sieg Volleys Much & Buisdorf bezwingen Spitzenteam
--  مقدمات نشرات الأخبار المسائية ليوم الأحد
--  Integrantes de APC se reunieron con el intendente interino de Salto, Gustavo Chiriff
--  Aeroméxico inmoviliza temporalmente aviones Boeing 737 MAX 9 tras incidente con Alaska Airlines
--  Radau gegen die Sau! - Trommler sollen Wildschweine aus Freibad vertreiben
--  На війні загинув молодий український поет
--  Allemagne: les conducteurs de trains appelés à trois jours de grève
--  A Fiorano Modenese arriva il Servizio Civile Universale
+-  [이길우 변호사의 호크아이7] 당신은 음주운전 사고부담금에 대해 알고있나요?
+-  Blinken diz que palestinianos devem regressar às suas casas
+-  Basquetebol. Benfica derrota Oliveirense
+-  Több napos sztrájkra szólított fel a német vasutasszakszervezet
+-  [관풍루] 국내 업체 개발 잠수함 설계도면, 대만으로 빠져나가 대만이 잠수함 개발에 성공한 것으로 알려져 충격.
+-  [사설] 계속되는 북의 도발, 철통 경계 못지않게 내부 단결 중요하다
+-  [사설] 총선 여론조사·홍보 전화 남발, 국민은 피곤하다
+-  [사설] 특혜 넘어 ‘법률 위반’ 비판 나오는 이재명 응급 헬기 이송
+-  عاجل.. تنبيه مهم من حساب المواطن لمن يسكن في منطقة حدودية
+-  مشهد مرعب لما تخرجه الأفعى من السم في العضة الواحدة
