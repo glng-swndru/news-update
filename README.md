@@ -1,51 +1,51 @@
 # Latest News
--  Escuela N° 199, 65 años de enseñanza y estrechos lazos con la comunidad
--  وفيات الأحد 7/ 1/ 2024
--  Pemain Turki Arda Guler Akhirnya Jalani Debut Bersama Real Madrid di Copa del Rey, Begini Komentar Carlo Ancelotti
--  La impunidad que cansa
--  Elijamos gente noble
--  李 습격범 당적, 수사 단계서 공개 안한다…검·경 ‘불가’ 결론
--  피해자만 127명, 최악의 연쇄 성폭행범 ‘대전 발바리’의 정체 [정락인의 사건 속으로]
--  Saprissa deja ver a sus refuerzos y otra vez derrota a Herediano
--  دھند نے راستے دھندلا دیے،سردی کی شدت میں اضافہ
--  [정영채 “모든 것 중심은 고객”…NH證, ‘2024년 임원 워크숍’ 개최
--  [실종신고 20일 만에…광주 영산강서 남성 숨진 채 발견
--  [中, 대만에 무기판매한 美방산업체 5곳 제재
--  [민주당, ‘이재명 조기 복귀설’ 일축…“수술한 지 얼마 안됐다”
--  [이달부터 장애인연금 2만1630원 인상…월 최대 42만원 받는다
--  ভোট দিলেন নিক্সন চৌধুরী
--  Germany and Poland set up United Cup tennis showdown
--  진실공방 논란 끝에 '이장 선출'hellip; 낙선자 지지자들 소송전 예고
--  بدون أدوية.. مٌكون سحري موجود في منزلك يخلصك من الكحة المسترة
--  Clima de hoy, domingo 7 de enero de 2024, para la ciudad de Villa La Angostura
--  Clima de hoy, domingo 7 de enero de 2024, para la ciudad de Choele Choel
--  집에서 고기구워 먹다 '일산화탄소 중독'…일가족 3명 병원 이송
--  대구FC, 수원 출신 수비수 고명석·일본인 미드필더 요시노 영입
--  EU-Ratspräsident Michel will ins Parlament einziehen
--  Clima de hoy, domingo 7 de enero de 2024, para la ciudad de Plaza Huincul
+-  [홍콩ELS 이달 손실확정 사례 발생…금감원 12개 금융사 불완전판매 검사 [투자360]
+-  [광주시내 겨울 안전 취약 도로 18곳 선정…“데이터 분석 종합지수 산출”
+-  [올해안에 소방자동차 번호판 ‘998·999’로 다 바꾼다
+-  [‘초등 입학기 10시 출근’ 지원 사업장 모집…“오는 16일부터”
+-  В Турции отбуксировали следовавший в Россию танкер второй раз за сутки
+-  Another Set Of Warnings Have Been Issued For The East Coast As Horrific Weather Predicted
+-  بدءا من الغد.. لقاءات وأمسيات أدبية ضمن أنشطة ثقافة الفيوم
+-  Kapitol-Sturm: FBI nimmt mutmaßliche Beteiligte fest
+-  Kritik an Heils Sanktionsplänen beim Bürgergeld
+-  "Weihnachtsfrieden" endet - Bahn-Streiks bald wieder möglich
+-  मकर संक्रांति के दिन स्नान के बाद ही अग्नि देव को अर्पित करें तिल, वरना पूरी नहीं होगी कामना
+-  '무리뉴의 폭탄 발언 작렬!'…독설 전문가의 분노, "루카쿠 센터백으로 쓰겠다!" 왜? 무슨 일?
+-  보험개발원 “생명보험 가입자 평균수명은 남자 86.3세, 여자 90.7세”
+-  정영채 NH투자증권 사장 “모든 것의 중심은 고객…끊임없이 소통하고 고민해야”
+-  400만 관객 돌파한 '노량', 새해 첫 주말 韓 영화 1위 탈환 [공식]
+-  870억 첼시 공격수 '또 부상' 허탈 …이적 후 무릎 수술→4개월여 결장→복귀후 3경기 후 '엉덩이'고장→한달간 또…
+-  बिहार अपडेट्स:चलती ट्रेन से कूदा कैदी...पोल से टकराने के बाद मौत, दिल्ली से दरभंगा लेकर आ रही थी पुलिस
+-  VinFast MoU with Tamil Nadu: தமிழ்நாட்டில் ரூ.16 ஆயிரம் கோடி முதலீடு, யார் இந்த வின்ஃபாஸ்ட் நிறுவனம், கிடைக்கும் பலன்கள் என்ன?
+-  रतन टाटा के सामने पानी भरती हैं दुनिया की कई कंपनियां, आज तक गूगल और माइक्रोसॉफ्ट तक नहीं कर सका ये कमाल
+-  Fenerbahçe'nin İstanbulspor maçı 11'i belli oldu. İsmail Kartal kararını verdi
+-  Cinco museos de ciencia alrededor del mundo para visitar al menos una vez en la vida
+-  Ranji Trophy: సెలక్టర్లూ ఇటు చూడండి, భారీ శతకంతో పుజారా పిలుపు
+-  [트렌D] 2월 설날 연휴 ‘혼행’ 계획 짜는 사람들, 여기 주목!
+-  "생보 가입자 평균 수명, 5년 전보다 남 '2.8세'·여 '2.2세' ↑"
+-  Estabilización 2024: ¿Cómo reducir el costo del ajuste?
+-  Нетаньяху о целях операции в секторе Газа
+-  El debilitamiento productivo argentino: los números del retroceso
+-  Почетино иска от Броя да се забавлява на терена
+-  De CEO a influencer: dejó todo para ayudar a mujeres a que sus negocios sean rentables y “hacerlas brillar con su propia luz”
+-  मोठी बातमी! आयकर विभागाने खासदार भावना गवळींचे बँक खाते गोठवले
+-  '바이아웃 1871억 지불 불사' 첼시, '나폴리 괴물 공격수' 오시멘 아직 포기 안 했다
+-  Eastern Province Police Say they did not Arrest for EFF Leader Mwenda
 -  Nylander scores twice, Leafs hand Sharks 11th loss in a row
--  Costa Rica as the Best Dental Care Destination for Foreigners
--  Clima de hoy, domingo 7 de enero de 2024, para la ciudad de San Martin de los Andes
--  Montembeault makes 46 saves, Canadiens hold off Rangers for 4-3 win in shootout
--  Britannia aikoo alkaa tuottaa kehittynyttä uraanipolttoainetta, jota on nykyisellään tarjolla vain Venäjällä
--  Britannia aikoo alkaa tuottaa kehittynyttä uraanipolttoainetta, jota on nykyisellään tarjolla vain Venäjällä
--  Ayodya: అయోధ్యలో సాధారణ విమానాల ప్రారంభం ఎప్పుడంటే...
--  Clima de hoy, domingo 7 de enero de 2024, para la ciudad de Rincón de los Sauces
--  تخوف من هزة ارتدادية مدمرة.. زلزال بقوة 4.6 ريختر يضرب باكستان
--  Clima de hoy, domingo 7 de enero de 2024, para la ciudad de Añelo
--  Tranh “Ngư tảo” nổi tiếng của hoạ sĩ Nguyễn Huyến được biến tấu bởi các nhà thiết kế trẻ
--  Ibu Gonzalo Al Ghazali Bela Fuji Imbas Pakaian saat Bertemu Ganjar Pranowo
--  Giá xe Toyota Corolla Altis lăn bánh tháng 1/2024: Đại lý "cắt máu" ưu đãi khách hàng
--  Clima de hoy, domingo 7 de enero de 2024, para la ciudad de Chos Malal
--  Clima de hoy, domingo 7 de enero de 2024, para la ciudad de Ing. Jacobacci
--  “No es un ajuste; estamos evaluando los desempeños en los hospitales”
--  Cantor Michael Bolton passou por cirurgia para remover tumor do cérebro
--  Csonttollúak a messzi északról
--  Глава МИД Японии посетит Киев и обсудит поддержку Украины
--  FAO trains 30 frontline animal health workers on zoonotic disease management
--  Old boys plant 40 oil palm seedlings to mark anniversary in Imo
--  Niger, TGI Group unite to stimulate economic growth
--  La Liga Argentina volvió con cuatro triunfos visitantes
--  وزير الرياضة: زيارة الرئيس لمعسكر المنتخب رفعت معنويات اللاعبين
--  حقيقة القبض على محمد رمضان فور عودته إلى مصر
--  Nghề sửa quần áo kín lịch dịp cuối năm vì các đơn hàng "khủng"
+-  Samuel Montembeault makes 46 saves, Cole Caulfield scores in shootout in Canadiens’ 4-3 win over Rangers
+-  ‘…if the actor has an attitude’: Vijay Sethupathi shares his first encounter with Katrina Kaif
+-  “Aborrecen a los católicos”: Lilly Téllez atacó a Citlalli Hernández y Mario Delgado por partir Rosca de Reyes
+-  8 dấu hiệu cho thấy cơ thể bạn đang rất “thèm” vận động
+-  Miller, Pettersson score twice as Canucks burn Devils 6-4
+-  Food truck in D.R.
+-  El pueblo costero que tiene 4 habitantes: playas desiertas, riquezas paleontológicas y descubrimientos científicos
+-  경기도의회, 김대중 대통령 탄생 100주년 기념식 및 기획전시회 개막식
+-  용인특례시, 경전철 개통 11년 만에 누적 승객 1억명 돌파
+-  주낙영 경주시장, 스포츠 산업 활성 전력
+-  В ВСУ заявили, что не видели заявлений Дании о сроках поставок F-16
+-  ऑल इंडिया सर्जन सोसाइटी बेसिकॉन- 2024 का होगा आयोजन:डॉक्टर आशुतोष शरण बोले- ​​​​​​​चिकित्सा के क्षेत्र में आगे बढ़ा मोतिहारी, बड़े शहरों जैसी स्वास्थ्य सुविधा
+-  Kritik an Heils Sanktionsplänen beim Bürgergeld
+-  Cuáles son las acciones de empresas en manos de la Anses que el Gobierno busca transferir al Tesoro
+-  Ranji Trophy: హైదరాబాద్‌ ఘన విజయం, రెండు రోజుల్లోనే ముగిసిన మ్యాచ్‌
+-  Julianne Moore, la niña que odiaba sus pecas y se convirtió en una actriz premiada y una esposa feliz
+-  ‘Caddyshack’ actress Cindy Morgan dead at 69; appeared in ‘The Love Boat,’ ‘Tron’ and more
