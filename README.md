@@ -1,51 +1,51 @@
 # Latest News
--  ضد اتفاقيات الذل والعار: آلاف المغاربة يوقعون على عريضة لإلغاء التطبيع
--  عقب اجتماعه بوفد عسكري ألماني، الفريق أول شنقريحة : "عازمون على تعزيز التعاون العسكري مع الشريك الألماني "
--  في حديث له ببرنامج "ضيف الدولية"، علي فيصل : زيارة بلينكن تهدف توفير المناخ للكيان كي يستفرد بالشعب الفلسطيني
--  لدى إشراف رئيس الجمهورية على اجتماع لمجلس الوزراء: تناول مشروع قانون يخص الشراكة بين القطاعين العام والخاص و عديد من العروض
--  مجلس قضاء أم البواقي: ينظم يوم تحسيسي حول عدالة- جمارك لمكافحة الجريمة الجمركية
--  Congresso correu bem a Pedro Nuno mas “imagem governativa é problema sério”
--  Face aux frappes russes, Kharkiv transforme ses stations de métro en écoles
--  최충규 대덕구청장, 물망초심으로 구민들과 소통
--  고가주택 동네, 저가주택 동네보다 의사 2배 더 많아
--  PRÁVE TERAZ Obrovská tragédia v Šuranoch! Zrazilo sa auto s vlakom, dvaja mŕtvi
--  Na obzore je smrtiace ochorenie! Stojí za ním bežný vírus: Zmutoval a napáda dôležitý orgán, vedci bijú na poplach
--  “리버풀을 위한 아름다운 세트피스”…주장 완장 차고 나와 상대 자책골 유도→평점 8점 호평
--  Abby Stonehouse leads Canada past Czechia at world women’s under-18 hockey event
--  Slováci, rúti sa na nás radikálna zmena počasia: PREDPOVEĎ, pri ktorej vás strasie! Toto čakajte v najbližších dňoch
--  El Barça también sufre ante el Barbastro
--  Skyrim mod adds Icewind Dale's starting town so you can return to the Forgotten Realms
--  '연두색 번호판'은 법인차량…올해부터 디젤트럭 퇴출 본격화
--  새해 기관 투자자 '곱버스'에 배팅 ... 연초 주가 하락 하나
--  바이오기업들, 'JP모건 헬스케어 콘퍼런스' 참석...글로벌 진출 모색
--  ¡De no creer! Jugaba en la Kings League y le hizo un ¡gol al Barcelona!
--  EP u vaterpolu: Srbija na Hrvatsku
--  Конфликт в Газе продолжится, пока заложники не вернутся домой - Минобороны Израиля
--  Tom Parker’s widow makes heartbreaking decision to take off her wedding ring 22 months after his death
--  Odluka je pala: Nogometna velesila ima novog izbornika, evo tko preuzima Brazil nakon smjene na klupi
--  "אני עובדת במקדונלד'ס - וזה מה שהם לא יספרו לכם"
--  Escándalo con Martegani en el partido de Salernitana vs. Juventus
--  Toho Approves Pink Godzilla Redesign
--  הזמרת שמבצעת אקטים מיניים על הבמה מתלוננת על השייט של ניימאר: "שכבתי רק עם 8 גברים"
--  סוף לסאגה? דיווח: קיליאן אמבפה סיכם את תנאיו בריאל מדריד
--  אין הסבר: נחשפו תיעודי העב"מים האותנטיים ביותר של 2023
--  קשה לצפייה: רופאים מצאו תולעים טפיליות מתפתלות בקיבה של מטופל
--  Una quota per il girone di ritorno? Pioli: "Ne serve uno nettamente superiore all'anno scorso. Dobbiamo..."
--  Líbano exige ante Josep Borrell retirada de Israel de todo el territorio nacional
--  One dead in helicopter crash near Revelstoke, B.C., RCMP confirms
--  Congressional deal for $1.6 trillion spending
--  One dead in helicopter crash near Revelstoke, B.C., RCMP confirms
--  Raphinha brilha, Barcelona leva susto contra o time da 4ª divisão, mas vence e avança na Copa do Rei
--  "Taking China Head-on Isn't The Best Strategy"
--  Com quatro reforços, Corinthians se reapresenta e inicia testes físicos no CT
--  Judd Apatow Thinks It’s ‘Insulting’ That ‘Barbie’ Is Being Considered For The Adapted, Not Original, Screenplay Oscar
--  São Paulo pensa em treinador português para suceder a Dorival Júnior
--  A jednak. Media ujawniają plan Manchesteru. Chodzi o transfer okna
--  Smoking burnouts, magnificent mullets and a 1968 Dodge Charger highlight Summernats car festival
--  A jednak. Media ujawniają plan Manchesteru. Chodzi o transfer okna
--  Jalen Hurts dings finger; Giants up 10-0
--  Ünlü sanatçı hayatını kaybetti!
--  Aynalı fotoğraf isyanı gündem oldu!
--  Revelações Astrológicas: cantor internacional Leandro busca orientação espiritual com o renomado tarólogo Val Couto no Paraná
--  Em 30 anos, delegacia especializada e prisões não resolvem Cracolândia
--  Emergency services at serious Sefton crash
+-  El sorteo de octavos se retrasa a las 18.30 por el apagón en Salamanca
+-  엉뚱한 원료 넣었다 ‘아차’…메디오젠, 면역 유산균 '톡톡업' 문제 없나
+-  Inicia plan de salud en el Esequibo
+-  Erik ten Hag reveals why Jadon Sancho and Donny van de Beek struggled at Manchester United
+-  La antigua Veterinaria de Zárate se dedicará a «fomentar el carnaval»
+-  Giroud into double figures again, helps Milan beat Empoli 3-0 in Serie A. Napoli loses 3-0 at Torino
+-  &quot;OVA GODINA ĆE BITI GODINA IZAZOVA&quot; Načelnik Generalštaba izraelske vojske: Borićemo se cele godine
+-  Vlahovic ancora decisivo, Allegri conferma: «C’è una cosa in cui è molto migliorato»
+-  İsrail basınından Gazze hezimeti açıklaması... 60 milyar dolarlık maliyete rağmen hedeflerine ulaşamadı
+-  복지부 “간병인 등 비의료인 가래 석션 허용 전혀 검토 안해”
+-  Deborah Edgington, miembro de la Orden del Imperio Británico
+-  El Cabildo declara de emergencia nueve obras hidráulicas más por 13 millones
+-  Celal Şengör canlı yayında gözyaşlarını tutamadı
+-  Denizli'de kayganlaşan yolda tır ile transit çarpıştı!
+-  삼성화재, 손보업계 최초 금융보안원 개인정보보호 인증 'ISMS-P' 획득
+-  119구조구급법 개정…119구급대원 응급처치 업무범위 확대한다
+-  పాక్‌లో మతగురువుఅల్లామా మసూద్‌ దారుణ హత్య
+-  Portogallo, il Rio Ave piega 2-0 la Portimonense. 2-2 tra Famalicao e Chaves
+-  Audi domina el mercado premium en Canarias y cierra 2023 con la cuota de mercado más alta de la marca en el mundo
+-  Nach Ancelotti-Absage - Neuer Brasilien-Trainer steht fest
+-  مستشفيات جامعة بنها ٢٠٢٣.. إنجاز 96% من قوائم الانتظار وافتتاح 44 غرفة فندقية
+-  مهندسة تطلب الخلع: "جوزى عايزنى ابيع ذهبي علشان يتفسح"
+-  قرار عاجل من محكمة الجنايات بشأن المتهمين بقتل "جزار" بولاق
+-  رئيس قطاع الشئون الثقافية والبعثات يزور المجلس القومي للبحوث بكندا
+-  أحمد حسام ميدو: محمد صبحي كان مهزوز في مباراة مصر وتنزانيا
+-  هل يحق لمصر الحصول على قروض ميسرة من بنك "البريكس"؟.. الغرفة التجارية تجيب
+-  ميدو: زيزو سيرحل عن الزمالك ونادي سعودي كبير يريد ضم فتوح على سبيل الإعارة
+-  ضربه بالـ"كوريك".. مقتل شاب على يد آخر في بني سويف
+-  انطلاق كأس رابطة الأندية.. مواعيد مباريات اليوم الإثنين والقنوات الناقلة
+-  حظك اليوم وتوقعات الأبراج 8-1: مفاجأة رائعة لهذا البرج.. وأزمة مالية لهؤلاء
+-  Elecciones internas: ONPE ejecutó puesta a cero de sistema de cómputo
+-  Polizei untersucht Vorfall mit Boebert, Ex-Ehemann: Berichte
+-  Murree snowfall season; wardens are directed to make best arrangements to regulate road traffic
+-  Rekap Hasil, Top Skor, Klasemen Liga Italia Pekan Ke-19: Juventus dan AC Milan Menang, AS Roma Seri, Napoli Kalah
+-  Gio Shermadini y AJ Slaughter, Jugadores de la Jornada 17
+-  CoolerMaster's new X Mighty Platinum 2800W PSU can power 4 x RTX 4090s at once
+-  PSG no tuvo piedad con el modesto US Revel en la Copa de Francia
+-  Atalanta, Gasperini: “Mourinho? Spesso espulso, difficile per Aureliano a arbitrare così”
+-  “출산크레딧, 정부가 출산을 장려하기 위한 목적 도입···국고 부담 필요”
+-  Nueva lesión de Íñigo Martínez que sólo duró diez minutos en Barbastro
+-  Want to honor Elvis Presley on his 89th birthday? Try this peanut butter, banana and bacon-flavored whiskey.
+-  Pasco: puentes a punto de colapsar en distrito de Pallanchacra por fuertes lluvias
+-  Les violences basées sur le genre en nette hausse au Congo-Brazzaville, selon un rapport de l'Unicef
+-  Los cubanos son los que más se han beneficiado de la Ley de Memoria Democrática española
+-  COPA SP: Santos, Ska Brasil e Oeste goleiam; Cruzeiro-MG decepciona com empate
+-  현대바이오 “코로나19 치료제 ‘제프티’, 탐색‧확증 임상 결합한 ‘통합 임상시험’”
+-  Egito, de Rui Vitória, vence apesar de penálti falhado de Salah
+-  Mossad.. : మనోళ్లే చంపేస్తున్నారా?
+-  광동제약 우황청심원에 ‘사향’ 이미지 삽입···‘약사법 위반’ 광고업무정지 2개월
+-  Kehl erhöht den Druck auf Terzic und spricht über Sancho
