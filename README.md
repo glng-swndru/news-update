@@ -1,51 +1,11 @@
 # Latest News
--  טסים לניו יורק? זה מה שאתם צריכים לדעת
--  ঢাকা ১৪: নৌকা ব্যতীত অন্য প্রার্থীদের এজেন্ট দেখা যাচ্ছে না
--  আমাদের হাজার হাজার ভোটকেন্দ্র, ২১টিতে আগুন খুবই ছোট ঘটনা: স্বরাষ্ট্রমন্ত্রী
--  Jelang Debat Ketiga, Relawan Peran Garda24 Yakin Prabowo Unggul
--  Atletico per l'Inter, Napoli col Barça e Lazio-Bayern: a Nyon decisi gli ottavi di Champions
--  10 Most Widely Practiced Religions in the World
--  극단 불의전차, 10주년 첫 연극 '이카이노 바이크'
--  Covid Update: దేశంలో కొత్తగా 756 కరోనా కేసులు..డబుల్ అయిన మరణాలు
--  विद्युत प्राधिकरणको कार्यालयमा भैरहवाका उद्योगी र मजदुरको धर्ना
--  "EPL 판도 뒤집힌다!"…'트레블→트리플 부상→전원 복귀 임박', 홀란드+덕배+도쿠 돌아온다! 펩의 공식 선언
--  지석진 잠시 떠난 '런닝맨', 빈 자리 채울 특급 게스트는?
--  '매디슨이 아니다'→토트넘 올 시즌 최고 영입은 비카리오…'수비진 붕괴됐지만 선방'
--  영탁, '동상이몽2' 뜬다
--  Wanderwitz sieht gute Chancen für ein AfD-Verbot
--  पेट्रोल और डीजल की कीमतों में बदलाव नहीं
--  राष्ट्रिय सभामा राप्रपालाई पनि १ सिट! हुँदैछ छलफल
--  Millionen PCs in Deutschland mit unsicherem Windows-System
--  Собянин поздравил москвичей с Рождеством
--  日 카사기, 女프로농구 올스타 페스티벌 3점슛 콘테스트 우승 [MK아산]
--  William Nylander först av svenskarna att göra det
--  На 40-й трассе задержан водитель из Хуры, разогнавший автомобиль до 205 км/ч
--  ضبط خلية إرهابية و إفشال مخطط حوثي لاغتيال قيادات عسكرية
--  Трамп назвал осужденных за штурм Капитолия заложниками и призвал их освободить
--  Dėl potvynių iškilo grėsmė dviračių takui palei Danę Klaipėdoje
--  Spor yazarlarından Trabzonspor maçı için dikkat çeken açıklamalar!
--  Mumbaikars Can Witness Mesmerizing Symphony Orchestra & Kathak Performance This Sunday For FREE; Details Inside
--  Туркияда “Фаҳш баронессаси” билан бирга яна 7 нафар халқаро қидирувдаги Ўзбекистон фуқароси қўлга олинди.
--  Сариосиё-Тошкент йўналишида илк синов парвози амалга оширилди
--  Bu günün valyuta məzənnələri
--  المسطحات الخضراء والزرقاء تحسن الصحة الجسدية لدى كبار السن
--  شركة العاصمة الإدارية: طرح أراضي جديدة و25% زيادة في الأرباح
--  Ventajas y riesgos para las carteras de concentrar las inversiones en los '7 magníficos'
--  Məşhur türk məşqçi AFFA-nın təklifini qəbul etməyib
--  ЗСУ відбили атаки РФ на кількох напрямках
--  Transfert imminent pour une star de la NBA ?
--  Italiane in Champions, chi supererà gli ottavi di finale? Vota il sondaggio di TMW
--  יוסטון עלתה לפלייאוף, פיטסבורג הותירה לעצמה סיכוי
--  רוג'רס חושף את שיחות העידוד עם עבדה: "הוא מאושר להיות כאן"
--  स्वास्थ्य क्षेत्र में निकली नौकरी, लैब टेक्नीशियनों के लिए सुनहरा मौका
--  ‘손흥민 아버지’ 손웅정 “TV·핸드폰 치우는게 가정교육 첫걸음…난 흥민이도 체벌”
--  쓰레기 둥둥 떠 다니는 센강에서...파리올림픽 개막식·수영경기 치른다고?
--  UCLA's Pac-12 free fall continues as comeback fades in loss to California
--  ব্যালট ছিনিয়ে শিল্পমন্ত্রীর ছেলের জাল ভোট, কেন্দ্রের ভোট গ্রহণ বাতিল
--  이낙연 전 대표, 광주 국립5·18민주묘지 찾아 [뉴시스Pic]
--  Inflation may be hitting WA hard but The Economist’s new ranking shows Perth is still cheaper
--  지난해 라면 수출액 9억 5천만불 돌파 '사상 최대' [뉴시스Pic]
--  बरहथवा घटनाः शव तीन दिनदेखि घटनास्थलमै
--  Saipul Jamil Tak Kunjung Dibebaskan Meski Negatif Narkoba, Ini Alasannya
--  Grupările criminale din Mexic se atacă reciproc cu drone. 30 de oameni au fost uciși
--  Spädbarnen dör plötsligt – avslöjas av monitorn
+-  Goede voornemens van sporters? ‘Een koude rondrit op de platte kar in april. En dan zing ik iedereen warm’
+-  האמת על התחקיר על ליאו מסי לא מנעה את תיאוריית הקונספירציה
+-  פורצ'ן באסי יעמוד בפני ועדת משמעת בעקבות התנהגותו בסכנין
+-  ליד שכן ישראלי: רונאלדו רכש "מגה אחוזה" באי המיליארדרים החדש
+-  4 לוחמי מג"ב נפצעו בפעילות מבצעית במחנה הפליטים ג'נין, שניים מהם קשה
+-  חשד לפיגוע ירי: בן 30 נורה למוות בבנימין
+-  קולולו: אן זיוי מאורסת וחכו שתראו את הטבעת
+-  פינוקי קורנפלקס ושוקולד שמכינים עם הילדים
+-  슈, 쌍둥이 딸들과 함께 한 근황 영상…댄스 실력 심상치 않네
+-  Chủ mới M.U gặp ác mộng với Casemiro
