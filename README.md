@@ -1,11 +1,51 @@
 # Latest News
--  Mời đăng ký gian tư vấn 3 ngày hội tư vấn tuyển sinh 2024 tại TP.HCM, Hà Nội, Cần Thơ
--  Pink and Carey Hart celebrate 18th wedding anniversary with throwback snaps and sweet tributes: 'No one else I'd rather do it with than you'
--  Аналитик Меркурис: Россия вытолкнет ВСУ на запад в ответ на теракты Киева
--  Programa Voa Brasil, que barateia passagens aéreas, deve ser lançado na segunda quinzena de janeiro
--  Still think you're a safe pair of hands, Sir Keir? The Labour leader's goalkeeping skills leave a lot to be desired after he defends his pledge to spend £28 billion a year on 'green' initiatives
--  KNKT Investigasi Kecelakaan Kereta di Cicalengka, Ini Profil Komite Nasional Keselamatan Transportasi
--  Sinéad O’Connor ‘died from a broken heart’ after suicide of teen son
--  Milei critica Congresso pelos obstáculos ao Decreto de Necessidade e Urgência
--  Empate não agrada nem a Famalicão nem a Chaves
--  Chefe da diplomacia alemã apela a mais contenção na guerra na Faixa de Gaza
+-  David Mamet Slams “Wokeism” and Praises Shia LaBeouf to Bill Maher: “I’ve Never Worked with a Greater Actor in My Life”
+-  ضجة كبيرة بسبب ما فعلته مُدرسة مع تلميذها بعمر 15 سنة.. تفاصيل صادمة
+-  نائب نصر الله: جبهة لبنان ردة فعل ولا مجال للحديث عن إيقاف الحرب الدفاعية
+-  عالجي الكحل الجاف والمتشقق… بهذه الطرق
+-  12 Face Moisturizers for Eczema, All NEA-Approved
+-  티모시 샬라메 '웡카' 북미 1위…매출 6200억원↑
+-  La nubosidad se mantiene a la espera de la lluvia este lunes en Tenerife
+-  ميلة: انطلاق ترميم المعلم التاريخي «السجن الأحمر» بفرجيوة
+-  في إطار برنامج لإنجاز 90 سكنا: نشر قائمة 24 سكنا ببني موحلي في سطيف
+-  وصف بالقادر على تغيير مجريات المقابلات: عمورة ضمن قائمة نجوم متوقع بروزها في "الكان"
+-  الضفة الغربية: ارتفاع الاعتقالات منذ 7 أكتوبر إلى أكثر من 5680 فلسطينيا
+-  منها وحدة صناعية لإنتاج أعلاف المواشي متوقفة منذ 10 سنوات: تسليم رخص استغلال نهائية لفائدة 20 مستثمرا بعنابة
+-  الفريق أول شنقريحة خلال استقباله المدير السياسي بوزارة دفاع ألمانيا: الجيش عازم على تعزيز التعاون العسكري مع الشريك الألماني
+-  أكد تسجيل خليط من الفيروسات المتنقلة عن طريق الهواء: البروفيسور جنوحات يؤكد بأن الوضع الصحي متحكم فيه
+-  50 بالمئة من حوادث الاختناق وقعت بعلي منجلي: تسجيل أول وفاة بغاز أحادي أكسيد الكربون منذ بداية السنة
+-  مقررة الأمم المتحدة إيرين خان تؤكد: الاعتداء على الصحفيين في غزة جريمة حرب
+-  بصفته رئيس اتحاد مجالس الدول الأعضاء في منظمة التعاون الإسلامي: بوغالي يدين بشدة الاعتداء الإرهابي في جنوب إيران
+-  بن مبارك يقدم تشكيلة مكتبه السياسي للجنة المركزية: الآفلان يشيد بما تحقق في أربع سنوات من عهدة الرئيس تبون
+-  رئيس مجلس الأمة يستقبل سفير دولة قطر في الجزائر: تأكيد على مواصلة تفعيل أطر التعاون وآليات التشاور والتنسيق بين البلدين
+-  Golden Globes: The Red-Carpet Arrivals (Updating)
+-  Tuberculosis Burden: An Epidemic Calling For Urgent Attention
+-  교촌치킨, 대만 MZ 사로잡았다
+-  توقعات إيجابية للنشاط التجاري
+-  «أنا بخير».. ولا أعرف ماذا حدث في النهائي !
+-  Sealord owner posts loss as wild catch disappoints
+-  Scientists Translate Space into Music with Unique Composition
+-  DraftKings Promo Code: Bet $5 on Bills-Dolphins for $150 SNF Bonus
+-  Мъри Стоилов стартира с 2:0 годината в Турция
+-  ‘అభయ హస్తం’కు శివుడి పేరిట దరఖాస్తు
+-  금호건설, 1569억 규모 천연가스발전소 공사 수주
+-  CJ온스타일, 작년 200억 브랜드 88%↑…"원플랫폼 2.0 속도"
+-  Cara Menambahkan Widget di Layar iPhone
+-  Rudari slučajno izvukli ogromnu kljovu mamuta, staru bar 10.000 godina: Pogledajte kako izgleda
+-  "트러플 한우부터 참치까지" 이마트, '색다른' 설 선물 선봬
+-  Video.- Obliga Vialidad a abusones a respetar filas en cruces
+-  Γιώργος Μασούρας: Σφυράει ακριβώς τη στιγμή που κάνω το κοντρόλ και ουσιαστικά ακυρώνει κάθε προσπάθεια να μπορεί να πάει στο VAR μετά
+-  Julianne Hough Chops Off Inches Of Her Hair: See The New Look
+-  ¡Feminicidio en Juchitán! Identifican a la víctima
+-  عاجل.. إيجار : يمكن للمالك مطالبة المستأجر بغرامة عند تأخره في إخلاء العقار
+-  التأمينات توضح إمكانية ضم سنوات خدمة حكومية إلى أخرى عسكرية
+-  يتسبب في تآكل الفقرات.. تفاصيل مرض خطير بسبب استعمال الجوال (فيديو)
+-  FAA to halt Boeing 737 Max 9 aircraft until it is "satisfied they are safe"
+-  Se ha dado a conocer un fraude para obtener el apoyo de Mujeres con Bienestar
+-  Xavi: “Hem patit més del previst per culpa nostra”
+-  SAD: Milei dijo que los árabes quieren invertir 3 mil millones de dólares en el fútbol argentino
+-  Promueven la recuperación de espacios públicos y la prevención del delito
+-  ما هي الطريقة المثلى للعناية السليمة بالبشرة الدهنية؟
+-  رغم فشلها مرارًا.. لماذا تصرّ إثيوبيا على الوصول للشواطئ البحرية؟
+-  لجذب السياحة.. تعرف على خطة التطوير بالمطارات المصرية
+-  Viewers slam Deal or No Deal Coronation Street special as ‘worst episode they’ve ever watched’
