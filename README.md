@@ -1,11 +1,51 @@
 # Latest News
--  Salía de bar y lo atacan a balazos
--  Biraya dev zam!
--  El uso de hidroxicloroquina durante la pandemia de COVID puede haber provocado 17.000 muertes, según un nuevo estudio
--  RD arriba a 139 años de su primera conversación telefónica
--  Radsport - Warum der Red-Bull-Einstieg ein "weltweiter Meilenstein" ist
--  이대성 폭발력, 17분40초간 3점슛 3개 포함 13점 3리바운드 4어어시스트, 양재민·장민국 잠잠
--  Milagro en Japón: aparece con vida una mujer de 90 años tras 5 días bajo los escombros del terremoto
--  2 gazeteci daha Gazze'de katledildi
--  المقاومة الفلسطينية تكشف تقنية تواصل ال شاباك مع عملائه في غزة
--  Abogados denuncian precariedad laboral
+-  الملكة تنشر فيديو مؤثر لوائل الدحدوح - شاهد
+-  "حزب الاتحاد الوطني الأردني يسلط الضوء على الدور الأردني في أحداث غزة خلال فعالية كبرى في مخيم الزرقاء"
+-  بيان صادر عن المركز الوطني لمكافحة الأوبئة
+-  أكاديميون أردنيون يؤكدون عبور طريق الإيلاف القرشي من العقبة
+-  إصابة لاعب أرسنال قبل مباراة ليفربول في كأس الاتحاد الإنجليزي
+-  محافظ الفيوم يفتتح معرض كساء الملابس الشتوي 2024 للأسر الأولى بالرعاية
+-  موعد وصول وسام أبو علي لإعلان انضمامه للأهلي رسميا
+-  التموين: التعاقد على 34 ألف فدان قصب لتوريد 950 ألف طن لصالح مصنع أرمنت- فيديو
+-  الحكومة تستهدف زيادة عدد أبراج المحمول في مصر إلى 45 ألف برج في 2030
+-  وزير أردني: المملكة ستتأثر باضطرابات البحر الأحمر
+-  بقيادة صبحي وفتوح.. مفاجآت في تشكيل منتخب مصر لمواجهة تنزانيا
+-  لا تناسب الطموحات.. "الشيوخ" يناقش سياسة الحكومة بشأن المدارس التكنولوجية الثلاثاء المقبل
+-  فنجان قهوة يوميا يحميك من مرض خطير يهدد دماغك
+-  شعبة المواد الغذائية: "رودس" ترفع أسعار الجبن للمرة الثانية في أسبوع
+-  نتنياهو: إسرائيل لن تتوقف عن قتال حماس حتى تتحقق جميع أهدافها
+-  كيف يؤثر نقص المغنسيوم على جسمك ودماغك؟
+-  وثيقة حكومية: مصر تسعى لتحقيق نمو في الصادرات بنسبة لا تقل عن 20% سنويا
+-  سلطة المياه الفلسطينية: الاحتلال دمّر 60% من آبار المياه بشمال غزة
+-  الحكومة تخطط لتأسيس منطقة حرة لتكنولوجيا المعلومات باقتصادية قناة السويس
+-  الحكومة بغزة: ارتفاع حصيلة ضحايا العدوان على القطاع إلى 22835 شهيدًا
+-  Белый дом не дает ответы на вопросы, на что именно идут деньги для Украины - спикер Палаты представителей
+-  Pagelle Juventus Next Gen Pescara: Hasa illumina, Guerra colpisce VOTI
+-  Allegados de Taylor Swift critican artículo del New York Times que especula sobre su sexualidad: "Invasivo, falso e inapropiado"
+-  Ιράν: Γυναίκα καταδικάστηκε σε 74 μαστιγώσεις επειδή δεν φορούσε την ισλαμική μαντίλα
+-  Igreja tem de fazer "avaliação séria da JMJ Lisboa", que não foi só "um festival"
+-  Pelo menos 113 mortos e 250 feridos em Gaza nas últimas 24 horas
+-  Rui Borges pede Moreirense "competente em todos os momentos" para vencer Casa Pia
+-  Casa Pia promete lutar por pontos frente ao Moreirense
+-  PSD. "O discurso do PS é o discurso de um país que não existe"
+-  Greve da companhia aérea Iberia com 18% de adesão
+-  Veteran actress Jodie Foster: "I have managed to survive, and survive intact, and that was no small feat"
+-  Везенков печели безапелационно и в гласуването на феновете за спортист №1 на 2023
+-  Siria y Brasil por reactivar intercambio comercial
+-  أردوغان: لن ندير ظهرنا لإخواننا المظلومين في غزة إطلاقا
+-  2024 Hajj: Oyo govt. extends payment deadline to January ending
+-  Britney Spears vừa tuyên bố từ bỏ làng nhạc liền được "tri ân" đặc biệt ở "Chị đẹp đạp gió rẽ sóng"?
+-  Người đàn ông phát bệnh sau 2 tháng bị chó cắn
+-  Tham khảo 10 cách diện trang phục màu sắc sang trọng, không lo "sến" của Hồ Ngọc Hà
+-  Có sẵn gần 6 tỉ đồng, loay hoay mãi chưa mua được căn hộ chung cư ở trung tâm Hà Nội
+-  نجل آلان ديلون: خلافات العائلة غير مرتبطة بالميراث
+-  "أوناحي" يكشف عن خطة "الأسود" من أجل الذهاب بعيدا في مشوار ال"كان"
+-  فوزي لقجع قبل اقلاع الطائرة … والاطمئنان على أحوال النخبة الوطنية
+-  بعثة المنتخب الوطني تتوجه إلى كوت ديفوار تحسبا للمشاركة في كأس إفريقيا للأمم
+-  الرياضة للجميع.. تنظيم دورة تكوينية بالرباط لفائدة المنشطين الرياضيين
+-  البكوري يجمع المكتب المسير بدون استدعاء رؤساء اللجان.. هل تم خرق النظام الداخلي لجماعة تطوان؟
+-  بعثة المنتخب المغربي تتوجه إلى الكوديفوار
+-  এক লাখ ৮১ হাজার ভোট পেয়ে নির্বাচিত ওবায়দুল কাদের
+-  نجم التنس نادال يصدم عشاقه بهذا القرار
+-  Murat Kurum'dan ilk açıklama: İstanbul'un 5 yıllık fetret dönemini bitireceğiz
+-  الانتخابات القادمة وتسليم الراية لرئيس جديد
