@@ -1,51 +1,51 @@
 # Latest News
--  Ruta desde Cumbayá se extiende hasta la Universidad Central a partir de este lunes 8
--  Serie A: Roma-Atalanta 1-1 DIRETTA
--  Eliminación del Arsenal, golazo de Bamford y el regreso de De Bruyne en la tercera ronda de la FA Cup
--  Videós összefoglaló a 2024-es Dakar-rali második szakaszáról!
--  Descuentos a mitad de precio calientan las rebajas de invierno
--  Talijani: To je Torino iz bajke, Vlašić je mozak Jurićeve momčadi
--  Βαθμολογία Basket League: Πρώτος και αήττητος ο Παναθηναϊκός
--  Берлин заявил, что не будет противиться планам Лондона поставить Eurofighter Эр-Рияду
--  Dakar 2024 : un air de "Seigneur des Anneaux" et de "Pirates des Caraïbes"
--  Bruna Marquezine é flagrada em clima de romance com famoso; descubra quem é!
--  Gunther Emmerlich (†79) wird hier seine letzte Ruhestätte finden
--  Die Reaktion des Tottenham-Trainers spricht Bände
--  Емполі - Мілан 0:3: огляд матчу ВІДЕО
--  Feria de San Sebastián inició en el estado Táchira
--  New Housing Trends Emerge in the Region of Murcia
--  Labour Party In Niger Disassociates From ‘Fake’ Congress
--  Now You See Me 3: When Is It Coming Out?
--  Halle Bailey announces birth of first child
--  Michel propõe-se a combater "extremistas que minam" a UE
--  İzmir'de eğitime fırtına engeli! 3 gün ara verildi
--  Karabük'te heyelan! Yük treni raydan çıktı
--  Özgür Özel: İktidar unutsa da biz unutmayacağız
--  Masterchef All Star'da şampiyon belli oluyor!
--  Yeniden aday olan Tahir Büyükakın coşkuyla karşılandı
--  ¿Quieres cuidar tus dientes? Sigue estos consejos
--  Colorado woman sent to collections for tickets racked up by license plate thief
--  الصهاينة يخرّبون القبور
--  مزيد من الدماء في غزّة
--  بوغالي يتضامن مع إيران
--  معتقلو غزّة لدى الاحتلال يتعرّضون للتعذيب الممنهج
--  الشرطة تتألق في بطولة الشطرنج
--  سلامة: قمة الجزائر ستكون مميّزة
--  ثلاث دول تنفي أي محادثات مع الاحتلال
--  3 مواجهات تجمع بين أندية الرابطة المحترفة الأولى
--  تطوُّر ملحوظ في قطاع البريد
--  Tinubu’s Parameters For Assessing His Administration In 2024
--  منتجات تقليديّة جزائرية تساهم في إنجاح الصّناعة السّياحية
--  Badruddin Ajmal accuses Congress of creating D-Voters, NRC problems in Assam
--  Murat Kurum: İlk günden işe koyulduk
--  Fermín López abre el marcador en Barbastro
--  النزاع على تراث أم كلثوم.. عرض مستمر
--  Χρυσές Σφαίρες 2024: Η μεγάλη ώρα για τον Γιώργο Λάνθιμο - Τα φαβορί της βραδιάς
--  Kakav car! Željko Mitrović se vozi rikšom, svira i peva usred Londona! Ovom pesmom je rešio da čestita svima Božić (VIDEO)
--  Un incendie se déclare dans un pavillon à Bellechaume
--  Soccer-Arteta frustrated as goals dry up for Arsenal
--  وفاة وإصابتين إثر اصطدام مركبة بعامود في اربد
--  وفاة معلم أردني وإصابة زوجته بحادث سير في السعودية
--  الملك ورئيس رواندا يتفقان على توسيع التعاون الثنائي
--  Die Führer des Kongresses werden am Sonntag eine Einigung über die Ausgabenhöhe bekannt geben, da den Gesetzgebern die Gefahr eines Shutdowns droht
--  قصة قيس وليلى تتكرر في مصر
+-  أزمة تراث أم كلثوم.. سجال بين محسن جابر ومستشار جمعية المؤلفين والملحنين: بلاش طريقة ولا تقربوا الصلاة
+-  يوفنتوس يفوز بصعوبة على ساليرنيتانا في الدوري الإيطالي
+-  Wer wird Charles Michels Nachfolger?
+-  Kläger erhalten 92,17 US-Dollar für unangekündigte iPhone-Drosselung
+-  Galeria: Anzeichen einer Insolvenz mehren sich – Betriebsrat: Es droht ein weiterer Stellenabbau
+-  Filistin Devlet Başkanı Kahire'de ateşkesi görüşecek
+-  Kassam Tugayları abluka altındaki Gazze'den duyurdu... İşgalci İsrail askerlerini hedef aldılar
+-  Urgent storm warning issued for Australia as flooding strikes Victoria
+-  Alleged Theft: Two Arrested For Beating Man To Death In Lagos
+-  Katie Price is 'in talks' to make film about her life with very famous BBC actress after they bonded over their ADHD diagnoses
+-  Antiques Roadshow guest astounded to discover the value of his Alexander McQueen collection after hunting for it in second hand shops
+-  Liverpool Beats Arsenal 2-0 To Secure Slot In FA Cup Fourth Round
+-  Германия — GDL объявляет трехдневную забастовку на железной дороге
+-  Tiraron cuerpos 16 veces en el Camino Real
+-  Premiado el número 12.099, serie 017, en el Sorteo Fin de Semana de la ONCE
+-  Méltatlan munkakörülményekre panaszkodnak a Budapestre vezényelt vidéki mentők
+-  „Bergdoktor“ gegen „Wer wird Millionär?“: Bittere Niederlage im Quotenduell
+-  FA Cup: Liverpool FC eliminiert Arsenal
+-  EEUU advirtió que la guerra en Gaza podría extenderse en Oriente Medio
+-  Holiday horror: Jet heading to Barbados forced to make emergency landing in Manchester as 'dense smoke fills cockpit' minutes after take-off
+-  Empresário de Gabigol nega conversas com o Corinthians: ‘Contrato com o Flamengo’
+-  일론 머스크 마약 복용 의혹 제기돼…"테슬라·스페이스X 경영진 우려"
+-  Man charged with murder after woman dies from severe burns in NSW house fire
+-  Charles Spencer shares glimpse inside lavish dinner party celebration at stunning Althorp home
+-  Η Ειρήνη Κολιδά αποκάλυψε ποια είναι η σχέση της με τον Γιώργο Αγγελόπουλο
+-  В Махачкале проходит "Уличный музыкант"
+-  Месси обогатил жителя Майами на 25 миллионов долларов
+-  Disabled pensioners' fury as bungling Jet2 staff put pair of pals on flights to the WRONG island: Travel firm blames 'human error' after women were flown to Menorca instead of Mallorca
+-  Two Top-Shot Golfers To Play in the American Express Tournament Scheduled in Late January
+-  SV Pesse verrassend winnaar van de Indoor Soccer Ladies Cup
+-  Автомобил се преобърна на изхода на София
+-  Trump inicia campaña en Iowa tres años después del asalto al Capitolio
+-  NACD urges inter-ministerial SOPs to prevent illegal drugs
+-  다방 연쇄살인 피의자 구속…신상공개도 검토
+-  Adana'da veterineri darp edip Atatürk'e hakaret eden şahıs tutuklandı!
+-  İzlanda'dan soğuk hava geliyor!
+-  İsveç Sivil Savunma Bakanı: Savaş olabilir
+-  Maskeli Onuralp bombaladı!
+-  Loose Women’s Nadia Sawalha flashes her nipples in totally see-through bra
+-  Втородивизионен опашкар измъчи Валенсия за Купата на Краля
+-  Nach Behördenangaben sind bei einer Massenkarambolage auf der Autobahn in Südkalifornien zwei Menschen ums Leben gekommen und neun verletzt worden
+-  Ethereum L2s เหนือกว่า Blockchains อื่น ๆ ทั้งหมดโดย TVL: รายละเอียดโดย U.Today
+-  "Tatort"-Folge "Avatar" aus Ludwigshafen: Kunststück mit Rentnern
+-  Baerbock: Mehr Möglichkeiten für Hilfslieferungen nach Gaza
+-  Стало известно о желании немцев сменить канцлера
+-  דגו לקראת מכבי תל אביב: "כל משחק בליגה הזו תלוי במכבי חיפה"
+-  مسئول بالفاتيكان: يجب على الكنيسة السماح للقساوسة بالزواج
+-  At least two more people fined for noise violations at weekly Palestinian protest
+-  Más de 24 millones de estudiantes regresan a clases este lunes
+-  5 Lok Sabha MPs selected for Sansad Ratna Awards
