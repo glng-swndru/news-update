@@ -1,51 +1,11 @@
 # Latest News
--  [홍콩ELS 이달 손실확정 사례 발생…금감원 12개 금융사 불완전판매 검사 [투자360]
--  [광주시내 겨울 안전 취약 도로 18곳 선정…“데이터 분석 종합지수 산출”
--  [올해안에 소방자동차 번호판 ‘998·999’로 다 바꾼다
--  [‘초등 입학기 10시 출근’ 지원 사업장 모집…“오는 16일부터”
--  В Турции отбуксировали следовавший в Россию танкер второй раз за сутки
--  Another Set Of Warnings Have Been Issued For The East Coast As Horrific Weather Predicted
--  بدءا من الغد.. لقاءات وأمسيات أدبية ضمن أنشطة ثقافة الفيوم
--  Kapitol-Sturm: FBI nimmt mutmaßliche Beteiligte fest
--  Kritik an Heils Sanktionsplänen beim Bürgergeld
--  "Weihnachtsfrieden" endet - Bahn-Streiks bald wieder möglich
--  मकर संक्रांति के दिन स्नान के बाद ही अग्नि देव को अर्पित करें तिल, वरना पूरी नहीं होगी कामना
--  '무리뉴의 폭탄 발언 작렬!'…독설 전문가의 분노, "루카쿠 센터백으로 쓰겠다!" 왜? 무슨 일?
--  보험개발원 “생명보험 가입자 평균수명은 남자 86.3세, 여자 90.7세”
--  정영채 NH투자증권 사장 “모든 것의 중심은 고객…끊임없이 소통하고 고민해야”
--  400만 관객 돌파한 '노량', 새해 첫 주말 韓 영화 1위 탈환 [공식]
--  870억 첼시 공격수 '또 부상' 허탈 …이적 후 무릎 수술→4개월여 결장→복귀후 3경기 후 '엉덩이'고장→한달간 또…
--  बिहार अपडेट्स:चलती ट्रेन से कूदा कैदी...पोल से टकराने के बाद मौत, दिल्ली से दरभंगा लेकर आ रही थी पुलिस
--  VinFast MoU with Tamil Nadu: தமிழ்நாட்டில் ரூ.16 ஆயிரம் கோடி முதலீடு, யார் இந்த வின்ஃபாஸ்ட் நிறுவனம், கிடைக்கும் பலன்கள் என்ன?
--  रतन टाटा के सामने पानी भरती हैं दुनिया की कई कंपनियां, आज तक गूगल और माइक्रोसॉफ्ट तक नहीं कर सका ये कमाल
--  Fenerbahçe'nin İstanbulspor maçı 11'i belli oldu. İsmail Kartal kararını verdi
--  Cinco museos de ciencia alrededor del mundo para visitar al menos una vez en la vida
--  Ranji Trophy: సెలక్టర్లూ ఇటు చూడండి, భారీ శతకంతో పుజారా పిలుపు
--  [트렌D] 2월 설날 연휴 ‘혼행’ 계획 짜는 사람들, 여기 주목!
--  "생보 가입자 평균 수명, 5년 전보다 남 '2.8세'·여 '2.2세' ↑"
--  Estabilización 2024: ¿Cómo reducir el costo del ajuste?
--  Нетаньяху о целях операции в секторе Газа
--  El debilitamiento productivo argentino: los números del retroceso
--  Почетино иска от Броя да се забавлява на терена
--  De CEO a influencer: dejó todo para ayudar a mujeres a que sus negocios sean rentables y “hacerlas brillar con su propia luz”
--  मोठी बातमी! आयकर विभागाने खासदार भावना गवळींचे बँक खाते गोठवले
--  '바이아웃 1871억 지불 불사' 첼시, '나폴리 괴물 공격수' 오시멘 아직 포기 안 했다
--  Eastern Province Police Say they did not Arrest for EFF Leader Mwenda
--  Nylander scores twice, Leafs hand Sharks 11th loss in a row
--  Samuel Montembeault makes 46 saves, Cole Caulfield scores in shootout in Canadiens’ 4-3 win over Rangers
--  ‘…if the actor has an attitude’: Vijay Sethupathi shares his first encounter with Katrina Kaif
--  “Aborrecen a los católicos”: Lilly Téllez atacó a Citlalli Hernández y Mario Delgado por partir Rosca de Reyes
--  8 dấu hiệu cho thấy cơ thể bạn đang rất “thèm” vận động
--  Miller, Pettersson score twice as Canucks burn Devils 6-4
--  Food truck in D.R.
--  El pueblo costero que tiene 4 habitantes: playas desiertas, riquezas paleontológicas y descubrimientos científicos
--  경기도의회, 김대중 대통령 탄생 100주년 기념식 및 기획전시회 개막식
--  용인특례시, 경전철 개통 11년 만에 누적 승객 1억명 돌파
--  주낙영 경주시장, 스포츠 산업 활성 전력
--  В ВСУ заявили, что не видели заявлений Дании о сроках поставок F-16
--  ऑल इंडिया सर्जन सोसाइटी बेसिकॉन- 2024 का होगा आयोजन:डॉक्टर आशुतोष शरण बोले- ​​​​​​​चिकित्सा के क्षेत्र में आगे बढ़ा मोतिहारी, बड़े शहरों जैसी स्वास्थ्य सुविधा
--  Kritik an Heils Sanktionsplänen beim Bürgergeld
--  Cuáles son las acciones de empresas en manos de la Anses que el Gobierno busca transferir al Tesoro
--  Ranji Trophy: హైదరాబాద్‌ ఘన విజయం, రెండు రోజుల్లోనే ముగిసిన మ్యాచ్‌
--  Julianne Moore, la niña que odiaba sus pecas y se convirtió en una actriz premiada y una esposa feliz
--  ‘Caddyshack’ actress Cindy Morgan dead at 69; appeared in ‘The Love Boat,’ ‘Tron’ and more
+-  Solicita Batres a Corte reducir su salario y entrar a ISSSTE
+-  Video: Me despido con nostalgia y tristeza de Pumas: Dinenno
+-  Hombre con disparo en la cabeza arriba al Hospital General
+-  Le va bien hasta a 'los de arriba' con 4T, dice AMLO
+-  البث المباشر لـ برنامج الوكيل
+-  شهداء بقصف طائرة إسرائيلية لمدينة جنين
+-  Man in custody after string of 'cowardly' stabbings
+-  «Сент-Луис» прервал 5-матчевую серию побед «Каролины»
+-  3점슛 던지는 핑크스타 이소희
+-  Man found with bag of knives after 'cowardly' stabbings
