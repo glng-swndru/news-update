@@ -1,51 +1,51 @@
 # Latest News
--  أزمة تراث أم كلثوم.. سجال بين محسن جابر ومستشار جمعية المؤلفين والملحنين: بلاش طريقة ولا تقربوا الصلاة
--  يوفنتوس يفوز بصعوبة على ساليرنيتانا في الدوري الإيطالي
--  Wer wird Charles Michels Nachfolger?
--  Kläger erhalten 92,17 US-Dollar für unangekündigte iPhone-Drosselung
--  Galeria: Anzeichen einer Insolvenz mehren sich – Betriebsrat: Es droht ein weiterer Stellenabbau
--  Filistin Devlet Başkanı Kahire'de ateşkesi görüşecek
--  Kassam Tugayları abluka altındaki Gazze'den duyurdu... İşgalci İsrail askerlerini hedef aldılar
--  Urgent storm warning issued for Australia as flooding strikes Victoria
--  Alleged Theft: Two Arrested For Beating Man To Death In Lagos
--  Katie Price is 'in talks' to make film about her life with very famous BBC actress after they bonded over their ADHD diagnoses
--  Antiques Roadshow guest astounded to discover the value of his Alexander McQueen collection after hunting for it in second hand shops
--  Liverpool Beats Arsenal 2-0 To Secure Slot In FA Cup Fourth Round
--  Германия — GDL объявляет трехдневную забастовку на железной дороге
--  Tiraron cuerpos 16 veces en el Camino Real
--  Premiado el número 12.099, serie 017, en el Sorteo Fin de Semana de la ONCE
--  Méltatlan munkakörülményekre panaszkodnak a Budapestre vezényelt vidéki mentők
--  „Bergdoktor“ gegen „Wer wird Millionär?“: Bittere Niederlage im Quotenduell
--  FA Cup: Liverpool FC eliminiert Arsenal
--  EEUU advirtió que la guerra en Gaza podría extenderse en Oriente Medio
--  Holiday horror: Jet heading to Barbados forced to make emergency landing in Manchester as 'dense smoke fills cockpit' minutes after take-off
--  Empresário de Gabigol nega conversas com o Corinthians: ‘Contrato com o Flamengo’
--  일론 머스크 마약 복용 의혹 제기돼…"테슬라·스페이스X 경영진 우려"
--  Man charged with murder after woman dies from severe burns in NSW house fire
--  Charles Spencer shares glimpse inside lavish dinner party celebration at stunning Althorp home
--  Η Ειρήνη Κολιδά αποκάλυψε ποια είναι η σχέση της με τον Γιώργο Αγγελόπουλο
--  В Махачкале проходит "Уличный музыкант"
--  Месси обогатил жителя Майами на 25 миллионов долларов
--  Disabled pensioners' fury as bungling Jet2 staff put pair of pals on flights to the WRONG island: Travel firm blames 'human error' after women were flown to Menorca instead of Mallorca
--  Two Top-Shot Golfers To Play in the American Express Tournament Scheduled in Late January
--  SV Pesse verrassend winnaar van de Indoor Soccer Ladies Cup
--  Автомобил се преобърна на изхода на София
--  Trump inicia campaña en Iowa tres años después del asalto al Capitolio
--  NACD urges inter-ministerial SOPs to prevent illegal drugs
--  다방 연쇄살인 피의자 구속…신상공개도 검토
--  Adana'da veterineri darp edip Atatürk'e hakaret eden şahıs tutuklandı!
--  İzlanda'dan soğuk hava geliyor!
--  İsveç Sivil Savunma Bakanı: Savaş olabilir
--  Maskeli Onuralp bombaladı!
--  Loose Women’s Nadia Sawalha flashes her nipples in totally see-through bra
--  Втородивизионен опашкар измъчи Валенсия за Купата на Краля
--  Nach Behördenangaben sind bei einer Massenkarambolage auf der Autobahn in Südkalifornien zwei Menschen ums Leben gekommen und neun verletzt worden
--  Ethereum L2s เหนือกว่า Blockchains อื่น ๆ ทั้งหมดโดย TVL: รายละเอียดโดย U.Today
--  "Tatort"-Folge "Avatar" aus Ludwigshafen: Kunststück mit Rentnern
--  Baerbock: Mehr Möglichkeiten für Hilfslieferungen nach Gaza
--  Стало известно о желании немцев сменить канцлера
--  דגו לקראת מכבי תל אביב: "כל משחק בליגה הזו תלוי במכבי חיפה"
--  مسئول بالفاتيكان: يجب على الكنيسة السماح للقساوسة بالزواج
--  At least two more people fined for noise violations at weekly Palestinian protest
--  Más de 24 millones de estudiantes regresan a clases este lunes
--  5 Lok Sabha MPs selected for Sansad Ratna Awards
+-  오타니 ‘기습숭배’ 받네... 다저스 동료 "GOAT와 한컷“
+-  ‘답답한 경기-황당 판정’ 아시안컵 예방주사 잘맞았다
+-  A la Real Sociedad se le esfuma el triunfo en el minuto 95
+-  50 mil «canastas solidarias» prepara el gobierno para entregar en la campaña electoral
+-  Almanya'da grev üstüne grev: Üç ay içinde üçüncü kez iş bırakacaklar
+-  Srbi u Zagrebu izdominirali ispodprosječnu Njemačku, sad će se tek otkriti kolika je njihova stvarna snaga
+-  Vulcan rocket set for maiden flight to send commercial lander to moon
+-  In Response to Labor Misconduct Complaint, SpaceX Claims US Federal Agency Is Unconstitutional
+-  Зошто централниот терен во Мелбурн не може да се вика „Новак Ѓоковиќ“?
+-  북, 사흘 연속 포 사격… 김여정 "기만작전" 심리전도
+-  [동정] 이상호 태백시장
+-  김보현 김포갑 예비후보, 지역 교육현안 해결 위한 '광폭' 행보
+-  Teža povreda Luke Vildoze, u utorak na operaciji
+-  제72회 프랜차이즈 창업박람회 참가업체는 ?
+-  Teža povreda Luke Vildoze, u utorak na operaciji
+-  60대 여성 다방업주 살해 피의자 영장실질심사…"죄송하다"
+-  [인사] 신아일보
+-  강창구찹쌀진순대, 한 골목 20년 장사하는 비결은?
+-  Monday morning open levels - indicative forex prices - 08 January 2024
+-  Mikel Arteta makes plea to Arsenal fans after Liverpool defeat extends losing run
+-  High inflation, forex challenges to slow manufacturing sector till mid-2024 – MAN
+-  Congressional leaders reach agreement on government funding
+-  870만 사업자가 이달에 반드시 챙겨야 할 세금은 무엇?
+-  Stay tuned, stay safe as forecast is subject to change in La Salle County
+-  البطولة الإحترافية: القرش يكتفي بالتعادل أمام المغرب الفاسي
+-  Miočić uzvratio Aspinallu: ‘Radi mene se ništa nije odgađalo’
+-  Ārkārtīgs karstums novedis Indiju līdz "izdzīvošanas robežai"
+-  El presentador que le dijo adiós a Noticias Caracol para ser el director del noticiero de Telemedellín
+-  إطلاق المرحلة الرابعة من «العلا للابتعاث»
+-  شعراء يصدحون بقصائدهم ونقاد يناظرون السينمائيين
+-  488 ألف راكب نقلتهم «عبارات فرسان»
+-  زاروا معرض ومتحف السيرة النبوية.. «ضيوف خادم الحرمين» يثمنون اهتمام المملكة بالتاريخ الإسلامي
+-  نائب أمير تبوك يطّلع على مشروعات الأمانة
+-  محافظ جدة يطلق أعمال مكتب المصالحة
+-  نائب أمير مكة يطلع على جهود «قيادة الغربية» والغرف وشرطة المنطقة
+-  وصول الطائرة السعودية الـ 38.. باخرة سعودية خامسة لإغاثة الشعب الفلسطيني
+-  تحت رعاية خادم الحرمين الشريفين.. نائب أمير مكة المكرمة يفتتح مؤتمر ومعرض “الحج والعمرة”
+-  سموه استقبل رئيس وأعضاء لجنة الاستخبارات بمجلس الشيوخ.. ولي العهد يستعرض مع الوفد الأمريكي علاقات الصداقة والتعاون
+-  Rohit returns to captain India Twenty20 side against Afghanistan
+-  Израильские ПВО перехватили летательный аппарат, запущенный из Ливана
+-  تمكين الكوادر السعودية في سوق العمل
+-  تداول السعودية تطلق “تاسي 50”
+-  300 متحدث من 85 دولة في منتدى الرياض.. الابتكار .. مستقبل العقار
+-  “الغذاء والدواء” ترصد آلاف المخالفات
+-  موجز اقتصادي
+-  الاتحاد العربي للمراجعين يناقش خطته الجديدة
+-  الأمين العام لـ “التحكيم التجاري الخليجي” : المملكة تتمتع بمناخ استثماري آمن وداعم للأعمال
+-  1574 زيارة ميدانية على المنشآت الصناعية
+-  مثمنا دعم القيادة لمسيرة الازدهار.. وزير الاتصالات: “إكسبو الرياض 2030” سيربط العالم بالابتكارات والثقافات
+-  I Top & Flop di Salernitana-Juventus
