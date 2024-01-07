@@ -1,11 +1,11 @@
 # Latest News
--  พิษน้ำท่วมปัตตานี ! “ปลากะพง” น็อคน้ำ สูญกว่า 10 ล้าน ได้ชดเชยแค่กว่าล้านบาท
--  اجتماع طارئ لنقابة ملاك المحافظ الاستتمارية ببلدية اوبارى
--  Thuê trọ phát hiện túi đựng vật lạ, hai cô gái tá hỏa mang đến đồn cảnh sát, chân tướng món đồ khiến chủ nhà cảm ơn rối rít
--  مقتل 26 عنصرا من حركة الشباب في الصومال.
--  Curfew continues at Barahathawa Municipality in Sarlahi
--  Nepal, India agree on strengthening power transmission system
--  Absuelven a Maradona por evasión fiscal en Italia
--  Ein großer Karriereschritt nach Atlanta
--  Đọc vị mãnh tướng trong 'Tam quốc diễn nghĩa', hiểu 6 cấp độ của kẻ trí: Tào Tháo mới cấp độ 2, ai là số 1?
--  Ağrı'nın geleneksel mutfağı: Bu lezzeti denediniz mi?
+-  Eski milletvekili Özcan, hayatını kaybetti
+-  İstanbulspor Fenerbahçe CANLI YAYIN
+-  西藏去年旅游接待人次创新高 自带滤镜的美景分享给你！
+-  新疆粮食大幅增产，成中国重要粮仓
+-  增量占全国三成多，让“中国碗”装更多“新疆粮”——解码新疆粮食增产量何以在全国“力拔头筹”
+-  블랙핑크 리사, YG와 개별계약 불발 후 첫 인터뷰 "가장 중요한 건 내 행복"
+-  Itt a lista: ezeket a szakmákat és szakképesítéseket fogadják el, ha szakiránynak megfelelő alapképzésre vagy osztatlan képzésre jelentkeztek
+-  تزامنا مع احتفالات عيد الميلاد.. ارتفاع أسعار اللحوم والدواجن وانخفاض أسعار الخضار والفاكهة بأسواق كفر الشيخ
+-  Real Madrid Defeat Arandina To Advance To Copa Del Rey R16
+-  Confident Rybakina demolishes Sabalenka to claim Brisbane title
