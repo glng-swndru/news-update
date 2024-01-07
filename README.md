@@ -1,51 +1,11 @@
 # Latest News
--  Should you baptise your child to get them into a Brisbane private school?
--  القسام تدمر ناقلة جند صهيونية بالكامل
--  شقيقة زعيم كوريا الشمالية تحذر من رد فوري على أي استفزاز
--  لماذا لا يجب شرب القهوة خلال الساعة الأولى من الاستيقاظ؟
--  عشرات المستعمرين يقتحمون المسجد الأقصى
--  Tiranë/ Vodhën shuma të ndryshme parash, arrestohen tre persona
--  المعتقدات الخاصة بالنيكوتين تؤثر على الدماغ
--  Weeronline: schaatsen op opgespoten natuurijsbaan zekerheid
--  Sestra severokórejského vodcu hrozí reakciou na provokácie proti KĽDR
--  일본 도쿄지검, '비자금 스캔들' 아베파 의원 첫 체포
--  韓聯社：北韓連續三日於延平島以北地區發射炮彈
--  Werder-Legenden gewinnen das Hallenturnier in Oldenburg und verteidigen erfolgreich ihren Titel
--  В Китае совершил испытательный полет электрический самолет AG60E
--  U većem dijelu Bosne i Hercegovine jutros se saobraća po mokrom ili vlažnom kolovozu
--  Jutros je u Bosni i Hercegovini oblačno vrijeme
--  Najave događaja za 07.01. 2024. godine (nedjelja)
--  Saopćenje za javnost SDS-a
--  Izrael kaže da je 'demontirao' vodstvo Hamasa na sjeveru Gaze
--  Vladimir Stupar: Ni najpovoljniji uslovi života ne mogu donijeti čovjeku istinsku radost bez Boga
--  오늘의 운세 2024년 1월 8일 月(음력 11월 27일)
--  大埔私家車硬撼電單車 陷火海濃煙衝天 鐵騎士及時脫困
--  Six Palestinians, Israeli officer killed in West Bank
--  Amadeus: “La politica stia lontana da Sanremo. Ferragni? A un certo livello la svista non è permessa”
--  Schon gegen Stuttgart dabei? - Lainers Kampfansage nach 30-Minuten-Test!
--  קבוצת מבנה נדל"ן במינוי מסקרן: זה סמנכ"ל התפעול החדש
--  מטרו מוטור משיקה רכב חדש: MPV סופר פרמיום
--  רייטינג: יובל סמו משאיר אבק לפטריוטים, חדשות 14 בירידה
--  הפתעה בלוטו: הסיבה שבגללה המנחשים פספסו 10 מיליון שקל
--  מהפכה בחשבונות החשמל בישראל: הדרך שלא ידעתם להוזיל עלויות
--  מהפכה בטיפול הביתי: האפליקציה החדשה שתשנה את מעמד האחיות
--  סלקום Enrgy במינוי מסקרן: זה המנכ"ל החדש
--  בנק לאומי מעריך: "הריבית לא תרד בכל החלטה בשנה הקרובה"
--  פגיעת טיל ישירה הצילה זוג פושט רגל: ביהמ"ש בהחלטה מפתיעה
--  שוטרים עצרו צעיר ששוחרר ממילואים לאחר שמצאו מחסנית ברכבו
--  Bloomberg: Por la corrupción en el Ejército chino algunos misiles son llenados con agua en lugar de combustible
--  Đóng tàu Hyundai Việt Nam (Khánh Hòa): Năm 2023, bàn giao 12 tàu cho đối tác
--  ¡Que pase el 2024!
--  ปชป.ตั้ง “เดชอิศม์-นริศ” ติวเข้มสส.จัดหนักศึกซักฟอกรัฐบาล
--  "교도소 들어가고 싶다"…대구지검 민원실서 흉기난동 50대 영장심사
--  북 포격 서해 NLL 이북 7㎞까지 근접…긴장수위 높이려는 의도
--  [김여정 “南 합참, 폭약 소리를 포성 오판…기만작전에 속았다”
--  United Cup Women's Final Highlights: Iga Swiatek vs Angelique Kerber
--  United Cup Women's Final Highlights: Iga Swiatek vs Angelique Kerber
--  [[속보]옹진군 “연평도서 북한측 포성 청취…야외활동 주의당부”
--  مهيدات ينفي وجود مافيا تتحكم بأسعار الأدوية في الأردن
--  Blinken says Turkey committed to 'positive' role in postwar Gaza as he opens diplomatic push
--  IAS Tina Dabi`s Sister Ria Gets Good News From Bhajan Lal Govt In Rajasthan, Read Details
--  Tensions escalate as trapped miners’ relatives gather at Redwing Mine
--  Teammates dominate national cycling road race
--  Teammates dominate national cycling road race
+-  Çember operasyonu! Bakan Yerlikaya duyurdu: Adalete teslim edeceğiz
+-  ChatGPT kullananlar dikkat! Dava açıldı
+-  Süper Lig'de Kevin Rodrigues bombası!
+-  Galatasaray için ocak ayı zor geçecek! Okan Buruk çok zorlanacak
+-  Yusuf Güney'den Kenan Işık açıklaması!
+-  Husilere ait İHA vuruldu
+-  Kickoff | Arsenal complain about Saka treatment? Arteta speaks out!
+-  Polis aracı, yol kenarındaki arsaya devrildi: 3 yaralı
+-  Kaldırım taşı ile camı kırıp 6 cep telefonu çaldı; o anlar kamerada
+-  44 yıl önce aldığı ahizeli telefonla iletişim kuruyor! 'Başka bir telefon ile konuşamam'
