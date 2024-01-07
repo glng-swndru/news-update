@@ -1,51 +1,51 @@
 # Latest News
--  Volkswagen apoyará al Vaticano en su transición hacia la movilidad sostenible
--  US intelligence believe Chinese missiles fueled with water
--  A fire in a Rohingya refugee camp in Bangladesh guts more than 1,000 shelters
--  'Ajax stuit op hevig verzet bij inspanningen om huurling terug te halen'
--  Bauernproteste in Deutschland: FDP-Mann Kubicki kritisiert Landwirtschaft-Sparpläne der Ampel
--  Oposição na RDC volta a exigir anulação das eleições de Dezembro
--  Henry Molina: “La Justicia es clave para el desarrollo de RD como garante de la seguridad jurídica
--  Alianza Vamos con todo Panamá: hay que redefinir las políticas públicas económicas
--  Ismael Barroso conquistó título interino superligero de la AMB
--  Trump calls on Biden to release those jailed in connection to Jan. 6
--  Over 100 evacuate Russia’s Belgorod while soldiers celebrate Orthodox Christmas on the front line
--  Healthy Canadian international Grosso helps Juventus women to Super Cup triumph
--  Sklonište za pse u Krakovu našlo domove za mnoge pse ugrožene velikim zahlađenjem
--  Will you need a REAL ID to fly in 2024?
--  බංග්ලාදේශයේ මහමැතිවරණය ප්‍රචණ්ඩ මුහුණුවරකට
--  Zbog vjetra i snijega brojna ograničenja na cestama, poteškoće i u pomorskom prometu
--  عاجل.. أهم 10.. غرامة مشددة على المشاة عابري الطرق واعتماد خدمة جديدة عبر "توكلنا"
--  Названа прогнозируемая численность населения Баку до 2040 года
--  Peg Mckamey Obituary: What is the Cause of Peg Mckamey’s Death?
--  5 die as boat capsizes in River Niger
--  La Junta pide a los centros educativos "agilidad" para comunicar cualquier incidencia en una primera semana de trimestre marcada por el frio
--  Antony Chamerat-Dumont et Célia Géry sacrés : les titres régionaux ont échappé aux Auvergnats, à Issoire
--  Jak Wodecki uradował duszę Kamila
--  “¡Dímelo!”: Pamela Díaz “interrogó” entre risas a Cony Capelli sobre su beso con Jean Philippe Cretton
--  Mobix Labs Awarded M-1 Abrams Tank Contract for U.S. Army
--  Stressed out? Why mindfulness and meditation help us cope with the world
--  Federal officials order grounding of some Boeing 737 Max 9 jetliners after plane suffers a blowout
--  Hrvati briljirali, Guardiola oduševljen Gvardiolom: ‘To kako su oni odigrali danas, baš to nam treba!‘
--  N44bn fraud at humanitarian affairs ministry tip of iceberg — PDP
--  Corale e autorevole, il Derthona vince contro Scafati
--  Fijian tourists help islanders adapt to climate change
--  Με 10 παίκτες ο Άρης / Αποβλήθηκε ο Σανέ
--  93χρονη Ελληνίδα στην Αυστραλία έκανε δωρεά μαστογράφο και ασθενοφόρο στο νοσοκομείο Κεφαλονιάς
--  Police investigate woman’s death in Lagos hotel
--  Save the Children: Gazze'de her gün en az 10 çocuk bacağını kaybediyor
--  Συγκροτείται οργανωτικά η Νέα Αριστερά – Διοργανώνει πανελλαδική συνεδρίαση στελεχών
--  Albergues se mantienen habilitados por temporada de frío
--  ليفربول يهزم أرسنال ويتأهل للدور الرابع بكأس الاتحاد الإنجليزي
--  Vanti leið­toga í pólitíkina með skýra fram­tíðar­sýn
--  Bangladesh PM Sheikh Hasina secures 5th straight term as her party wins two-thirds seats in polls
--  Höchst brisant: Bevölkerungsexplosion im Wunderland
--  Rõ lý do Arsenal muốn có Curtis Jones
--  Mehrheit würde sich Kanzlerwechsel Scholz/Pistorius wünschen
--  Mehrheit würde sich Kanzlerwechsel Scholz/Pistorius wünschen
--  Mbappe dolazi u Real, ali ostaje bez pravog bogatstva?
--  Rumors Swirling DeSantis Will Likely Drop Out of Race on January 15: Report
--  La jornada del día de reyes al detalle en la NBA
--  Wundervolle Stimmen verzauberten das Publikum
--  صفاقس : طريق الأفران خلع مأوى أرضي لاحدى العمارات وسرقة دراجة نارية جديدة
--  Миранчук попал в стартовый состав «Аталанты» на матч с «Ромой»
+-  مستشفى إسرائيلي: استقبلنا 8 جنود جرحى خلال 24 ساعة و2478 منذ بدء الحرب
+-  طقس الإثنين.. الأرصاد: برودة شديدة ليلا وشبورة كثيفة
+-  Kurukshetra News: पशु मेले में झंझाड़ी के सुनील की गाय और बुढा खेड़ा के नरेश की भैंस रही विजेता
+-  Sultanpur News: जनआरोग्य मेले में पहुंचे टीबी व खांसी-बुखार के मरीज
+-  Sultanpur News: नेवादा ने गोपालपुर को दो विकेट से हराया
+-  Sultanpur News: सज रहा राम वनगमन पथ, पग-पग होगा स्वागत
+-  Yamuna Nagar News: अलाव पर हाथ सेक रहे दो भाइयों व परिजनों पर किया हमला
+-  Yamuna Nagar News: अतिथि अध्यापकों ने निकाला रोष मार्च, की नारेबाजी
+-  Yamuna Nagar News: स्कूलों में अवकाश, नहीं हो पा रहे प्रतियोगिता के पंजीकरण
+-  Mirzapur News: बाइक से गिरकर देवर-भाभी घायल
+-  उतराला-होली सड़क के लिए न हो सियासत : राज
+-  Sonipat News: हवा की रफ्तार थमी तो कोहरा और प्रदूषण बढ़ा
+-  Kangra News: निजी डिपो धारकों ने मांगी राहत, मंत्री यादविंद्र गोमा को ज्ञापन
+-  Panipat: तीन युवकों से कनाडा भेजने के नाम पर धोखाधड़ी, वापस भारत लौटकर पुलिस को दी शिकायत
+-  Kanpur News: नंदपुर गोशाला हाउस फुल, प्रधान ने खड़े किए हाथ
+-  Hathras News: अयोध्या में भक्तों के माथे पर सजेगा हाथरस का चंदन
+-  Karnal News: घर, दुकान व पुलिस लाइन से लाखों का सामान चुराया
+-  Karnal News: मारपीट के आरोप में तीन युवक नामजद
+-  Maharajganj News: परफॉर्मेंस इंडिकेटर के आधार पर शिक्षक व रसोइया होंगे सम्मानित
+-  Maharajganj News: कोहरे ने बढ़ाई दुश्वारी... ट्रेनें निरस्त, भटक रहे यात्री
+-  Maharajganj News: वैध तरीके से मंगाते हैं माल, अवैध तरीके से कर देते हैं सीमा पार
+-  Maharajganj News: आपत्तिजनक स्थिति में पकड़े प्रेमी युगल, पंचायत ने कराई शादी
+-  Kushinagar News: सेमीफाइनल में पहुंची मिश्रौली की टीम
+-  Kushinagar News: मुंगेर की टीम ने 3-1 से जीता मैच
+-  Aligarh News: भाजपा में सगंठनात्मक बदलाव, चार मंडल अध्यक्ष बदले और चार पर पुरानों को दिया मौका
+-  Jhajjar-Bahadurgarh News: दानवीरों ने गौशाला कार्यक्रम में दिया दान
+-  Jhajjar-Bahadurgarh News: विकास कार्य मंजूर कराने पर विधायक का बामनोली में किया अभिनंदन
+-  Jhajjar-Bahadurgarh News: डॉ. दलबीर बने एमडीयू के पीएचडी शोध निर्देशक
+-  संसाधनों के बावजूद मानव में बढ़ता जा रहा पाप : कंवर महाराज
+-  Panchkula News: पंजाब में विशेष इंतकाल कैंप 15 को भी ः मान
+-  शिक्षा : अस्थायी मान्यता प्राप्त निजी स्कूलों पर तालाबंदी की तलवार
+-  أرتيتا يوضح موقف أرسنال من التعاقد مع مهاجم جديد في السوق الشتوي
+-  مناورات كورية شمالية بذخيرة حية قرب حدود كوريا الجنوبية
+-  María Noel Rodríguez (Presupuesto Participativo): “Culminaron con éxito los Talleres de Costura”
+-  শম্ভুকে উড়িয়ে দিলো টুকু, নাদিরার দাপুটে জয়
+-  Κακοκαιρία: Σημαντικά ύψη βροχής σε πέντε περιοχές - Πού έβρεξε περισσότερο
+-  Man injured in weapon attack
+-  Citypress | Safa dangles R7 million carrot for Bafana to win Afcon
+-  US Revel-PSG: le cadeau de Paris au club amateur avant le 32e de finale de Coupe de France
+-  Stray Dogs Injure 5 Persons in Handwara
+-  Seduc incentiva matrículas de novos alunos em escolas de tempo integral
+-  Movimentos e partidos fazem ato em Brasília em defesa da democracia
+-  Um ano após tentativa de golpe, STF mantém 66 presos
+-  Politie Israël doodt 3-jarig meisje op Westelijke Jordaanoever
+-  Ali Shariati: Rereading and Reinterpreting Islam
+-  Quebec, public sector unions reach agreement in principle on wages, working conditions
+-  Tamil Nadu must focus on chip building, says Chris Miller
+-  Kashmiri mothers – the unsung heroes of winter
+-  Tinejdžer (16) kojem su roditelji poginuli na A1 pušten iz bolnice
+-  В Испании оценили сроки признания косовских паспортов
