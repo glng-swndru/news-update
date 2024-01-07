@@ -1,51 +1,11 @@
 # Latest News
--  El sorteo de octavos se retrasa a las 18.30 por el apagón en Salamanca
--  엉뚱한 원료 넣었다 ‘아차’…메디오젠, 면역 유산균 '톡톡업' 문제 없나
--  Inicia plan de salud en el Esequibo
--  Erik ten Hag reveals why Jadon Sancho and Donny van de Beek struggled at Manchester United
--  La antigua Veterinaria de Zárate se dedicará a «fomentar el carnaval»
--  Giroud into double figures again, helps Milan beat Empoli 3-0 in Serie A. Napoli loses 3-0 at Torino
--  &quot;OVA GODINA ĆE BITI GODINA IZAZOVA&quot; Načelnik Generalštaba izraelske vojske: Borićemo se cele godine
--  Vlahovic ancora decisivo, Allegri conferma: «C’è una cosa in cui è molto migliorato»
--  İsrail basınından Gazze hezimeti açıklaması... 60 milyar dolarlık maliyete rağmen hedeflerine ulaşamadı
--  복지부 “간병인 등 비의료인 가래 석션 허용 전혀 검토 안해”
--  Deborah Edgington, miembro de la Orden del Imperio Británico
--  El Cabildo declara de emergencia nueve obras hidráulicas más por 13 millones
--  Celal Şengör canlı yayında gözyaşlarını tutamadı
--  Denizli'de kayganlaşan yolda tır ile transit çarpıştı!
--  삼성화재, 손보업계 최초 금융보안원 개인정보보호 인증 'ISMS-P' 획득
--  119구조구급법 개정…119구급대원 응급처치 업무범위 확대한다
--  పాక్‌లో మతగురువుఅల్లామా మసూద్‌ దారుణ హత్య
--  Portogallo, il Rio Ave piega 2-0 la Portimonense. 2-2 tra Famalicao e Chaves
--  Audi domina el mercado premium en Canarias y cierra 2023 con la cuota de mercado más alta de la marca en el mundo
--  Nach Ancelotti-Absage - Neuer Brasilien-Trainer steht fest
--  مستشفيات جامعة بنها ٢٠٢٣.. إنجاز 96% من قوائم الانتظار وافتتاح 44 غرفة فندقية
--  مهندسة تطلب الخلع: "جوزى عايزنى ابيع ذهبي علشان يتفسح"
--  قرار عاجل من محكمة الجنايات بشأن المتهمين بقتل "جزار" بولاق
--  رئيس قطاع الشئون الثقافية والبعثات يزور المجلس القومي للبحوث بكندا
--  أحمد حسام ميدو: محمد صبحي كان مهزوز في مباراة مصر وتنزانيا
--  هل يحق لمصر الحصول على قروض ميسرة من بنك "البريكس"؟.. الغرفة التجارية تجيب
--  ميدو: زيزو سيرحل عن الزمالك ونادي سعودي كبير يريد ضم فتوح على سبيل الإعارة
--  ضربه بالـ"كوريك".. مقتل شاب على يد آخر في بني سويف
--  انطلاق كأس رابطة الأندية.. مواعيد مباريات اليوم الإثنين والقنوات الناقلة
--  حظك اليوم وتوقعات الأبراج 8-1: مفاجأة رائعة لهذا البرج.. وأزمة مالية لهؤلاء
--  Elecciones internas: ONPE ejecutó puesta a cero de sistema de cómputo
--  Polizei untersucht Vorfall mit Boebert, Ex-Ehemann: Berichte
--  Murree snowfall season; wardens are directed to make best arrangements to regulate road traffic
--  Rekap Hasil, Top Skor, Klasemen Liga Italia Pekan Ke-19: Juventus dan AC Milan Menang, AS Roma Seri, Napoli Kalah
--  Gio Shermadini y AJ Slaughter, Jugadores de la Jornada 17
--  CoolerMaster's new X Mighty Platinum 2800W PSU can power 4 x RTX 4090s at once
--  PSG no tuvo piedad con el modesto US Revel en la Copa de Francia
--  Atalanta, Gasperini: “Mourinho? Spesso espulso, difficile per Aureliano a arbitrare così”
--  “출산크레딧, 정부가 출산을 장려하기 위한 목적 도입···국고 부담 필요”
--  Nueva lesión de Íñigo Martínez que sólo duró diez minutos en Barbastro
--  Want to honor Elvis Presley on his 89th birthday? Try this peanut butter, banana and bacon-flavored whiskey.
--  Pasco: puentes a punto de colapsar en distrito de Pallanchacra por fuertes lluvias
--  Les violences basées sur le genre en nette hausse au Congo-Brazzaville, selon un rapport de l'Unicef
--  Los cubanos son los que más se han beneficiado de la Ley de Memoria Democrática española
--  COPA SP: Santos, Ska Brasil e Oeste goleiam; Cruzeiro-MG decepciona com empate
--  현대바이오 “코로나19 치료제 ‘제프티’, 탐색‧확증 임상 결합한 ‘통합 임상시험’”
--  Egito, de Rui Vitória, vence apesar de penálti falhado de Salah
--  Mossad.. : మనోళ్లే చంపేస్తున్నారా?
--  광동제약 우황청심원에 ‘사향’ 이미지 삽입···‘약사법 위반’ 광고업무정지 2개월
--  Kehl erhöht den Druck auf Terzic und spricht über Sancho
+-  Mời đăng ký gian tư vấn 3 ngày hội tư vấn tuyển sinh 2024 tại TP.HCM, Hà Nội, Cần Thơ
+-  Pink and Carey Hart celebrate 18th wedding anniversary with throwback snaps and sweet tributes: 'No one else I'd rather do it with than you'
+-  Аналитик Меркурис: Россия вытолкнет ВСУ на запад в ответ на теракты Киева
+-  Programa Voa Brasil, que barateia passagens aéreas, deve ser lançado na segunda quinzena de janeiro
+-  Still think you're a safe pair of hands, Sir Keir? The Labour leader's goalkeeping skills leave a lot to be desired after he defends his pledge to spend £28 billion a year on 'green' initiatives
+-  KNKT Investigasi Kecelakaan Kereta di Cicalengka, Ini Profil Komite Nasional Keselamatan Transportasi
+-  Sinéad O’Connor ‘died from a broken heart’ after suicide of teen son
+-  Milei critica Congresso pelos obstáculos ao Decreto de Necessidade e Urgência
+-  Empate não agrada nem a Famalicão nem a Chaves
+-  Chefe da diplomacia alemã apela a mais contenção na guerra na Faixa de Gaza
