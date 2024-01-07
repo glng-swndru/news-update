@@ -1,11 +1,51 @@
 # Latest News
--  Çember operasyonu! Bakan Yerlikaya duyurdu: Adalete teslim edeceğiz
--  ChatGPT kullananlar dikkat! Dava açıldı
--  Süper Lig'de Kevin Rodrigues bombası!
--  Galatasaray için ocak ayı zor geçecek! Okan Buruk çok zorlanacak
--  Yusuf Güney'den Kenan Işık açıklaması!
--  Husilere ait İHA vuruldu
--  Kickoff | Arsenal complain about Saka treatment? Arteta speaks out!
--  Polis aracı, yol kenarındaki arsaya devrildi: 3 yaralı
--  Kaldırım taşı ile camı kırıp 6 cep telefonu çaldı; o anlar kamerada
--  44 yıl önce aldığı ahizeli telefonla iletişim kuruyor! 'Başka bir telefon ile konuşamam'
+-  Ak Parti Samsun Büyükşehir Belediye Başkanı adayı kim oldu? İşte Ak Parti Samsun Belediye Başkan adayı...
+-  Hem kahvaltılık hem çay tatlısı! Donut tarifi! Püf noktası maya ve süt
+-  소청과의사회, '헬기 이송' 이재명 대표 고발 예정
+-  Wann haben Arbeitnehmer Anspruch auf eine Abfindung?
+-  이재명 기습 피의자, 당적 공개 안될 듯…경찰, 금주 수사결과 발표
+-  7 يناير 2024.. نشرة أسعار الأسماك بسوق العبور للجملة خلال تعاملات اليوم
+-  Mali: le Conseil de sécurité de l’Onu revient sur l’Accord d’Alger
+-  조국 "나의 아저씨 누가 죽였나"…연일 故 이선균 소환
+-  9일 국회 본회의…쌍특검법 등 처리 놓고 여야 대립
+-  日노토강진 사망 128명·부상 560명…재해지역에 눈까지
+-  Censit i popullsisë, Tabaku: Vonesat fshehin disa shifra, frikë e një qeverie që i mban njerëzit me propagandë
+-  Um ano depois, mentores da tentativa de golpe de 8 de janeiro ainda não foram punidos
+-  YUNZII YZ84 Pro2 75 % Dichtung, Hot-Swap-fähig, 2,4 GHz/Bluetooth 5.0/USB-C, kabellose mechanische Gaming-Tastatur, 3100 mAh Akku, RGB für Win/Mac/Gamer (Gateron Black Switch, Weiß)
+-  Még Joe Biden előtt is titkolták védelmi minisztere betegségét
+-  Aishwarya Rai, Abhishek, and Amitabh cheer together for Jaipur Pink Panthers
+-  ‘La casa de Resa’ reparte parte del gordo en Laudio
+-  Undefeated rising star calls out Tim Tszyu
+-  Undefeated rising star calls out Tim Tszyu
+-  Potres magnitude 3 noćas kod Varaždina
+-  Stevandić za sutra zakazao sastanak stranačkih lidera o 'Izbornom zakonu RS'
+-  Masleša: 'Prosvjeta' doprinosi očuvanju tradicije međusobnog razumijevanja, uvažavanja i poštovanja
+-  Tenis - Coco Gauff odbranila naslov u Aucklandu
+-  جاپا ن: زلزلے سے ہلاکتوں کی تعداد 126 تک پہنچ گئی
+-  Staffeln am Sonntag in Oberhof
+-  Llevan ante el MP a exlíder del PRI; opositores acusan presión
+-  Вдова участника спецоперации рассказала о встрече с Путиным в канун Рождества
+-  다방업주 연쇄살해범 영장심사…"죄송하다"
+-  Ostapenko turnīru pirms "Australian Open" sāks ar maču pret Kirsteu
+-  [오피셜] ‘커리어 하이’ 황희찬에게 밀려 벤치 자원 전락 ST, 프랑크푸르트 임대 이적
+-  Como, auto finisce nel lago: due morti
+-  Imigresen Perak tangkap 95 PATI di Ipoh, Gopeng
+-  Mean Girls, Maniax and magic: Best things to do in Brisbane this week
+-  BAG will Impf-Verträge weiter unter Verschluss halten
+-  קונים מכשיר חדש? תתחדשו, רק יש כמה דברים שצריך לעשות עם הישן
+-  เผยโฉม Samsung Galaxy S24 Ultra สีพิเศษ สีฟ้า, สีเขียว และ สีส้ม
+-  BE-ja mirëpret vendimin e Kosovës dhe Serbisë për targat, Borrell: Hap pozitiv në rrugën e integrimit të Ballkanit Perëndimor
+-  북한 "포사격 아닌 폭약…한국군, 기만전술에 속아"
+-  غلق 9 كيانات وهمية بالفيوم تدعي منح ليسانس وبكالريوس وماجستير خلال أخر 10 أيام
+-  صفاقس الإطاحة بوفاق إجرامي دولي ينشط في مجال تهريب الأشخاص عبر الحدود
+-  Ο Χάμιλτον κλείνει τα 39: «Δεν είμαι σε θέση να κερδίζω, αλλά χαμογελώ ακόμα βγαίνοντας από τα πιτς»
+-  Musées et monuments gratuits : les lieux à visiter ce dimanche 7 janvier 2024 à Paris
+-  Les événements artistiques à Paris à ne pas manquer ces prochains jours
+-  ‘Barbie’ Among Titles For Canal+ Subscribers, Following Renewal Of Warner Bros Discovery Deal
+-  7 يناير 2024.. نشرة أسعار الحديد والأسمنت بالمصانع المحلية
+-  Yedi kişilik aileyi zehirleyen balon balığı rota değiştirdi! İstanbul ve İzmir’e geliyor
+-  Affaire Gérard Depardieu : "La voix des femmes doit être entendue", insiste la chanteuse Lio dans l'émission "C L'Hebdo"
+-  ‘Why should we tolerate unprovoked hate’: Akshay Kumar calls for exploring Indian islands after racist barbs from Maldives politicians, public figures
+-  „Ariel“-Star Halle Bailey ist Mutter geworden
+-  ĐOKOVIĆ SAZNAO KAD DOBIJA RIVALE NA AUSTRALIJAN OPENU! Otkriveno sve o žrijebu - evo ko sve od Srba čeka!
+-  Sıdıka teyze 44 yıllık ahizeli telefonundan vazgeçmiyor: Daha sağlıklısı yok
