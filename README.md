@@ -1,51 +1,11 @@
 # Latest News
--  5 điểm nhấn Arsenal 0-2 Liverpool: Arteta phải tự trách chính mình
--  Ekzekutimi mafioz që tronditi Vlorën, 22 vjeçari u qëllua me snajper sapo doli në ballkonin e banesës
--  IPMA prolonga aviso amarelo para ilhas das Flores e Corvo
--  Um congresso do PS, uma nova AD e três omissões
--  Delfini u Zagrebu deklasirali Njemačku: Hrvatice izgubile 15 razlike, igraju protiv Srpkinja za četvrtfinale
--  Maxxine Dupri on Her Early Training at the WWE Performance Center
--  Tinubu initiates an investigation into the Ministry led by Betta Edu and pledges to implement necessary measures
--  Blockaden: Bauern rufen zu freier Fahrt für Retter, Pfleger und Feuerwehr auf
--  Israel diz que ataques contra Gaza podem durar um ano e aumenta temor de guerra regional
--  국힘 가는 이상민 "한동훈 만나보니 정치 철학과 비전 맞아"
--  Sanwo-Olu Extols Wife, Ibijoke At 57
--  Ρόμα - Αταλάντα 1-1: Χ-αμένοι κι οι δυο
--  Aksidentohet ambulanca në Fier, dy të lënduar
--  Bono Patria enero 2024 continúa su pago: Así cobras
--  Gol de Fermín López: el 1-0 del Barcelona vs. Barbastro por la Copa del Rey
--  Haos u Španiji: Prekinut meč Kupa kralja
--  Τσούμπερ: «Είχαμε δουλέψει στις στατικές φάσεις, να σταματήσουμε να μιλάμε για τις αποφάσεις του κάθε διαιτητή»
--  Police call in chopper to thwart teens in Audi during Brisbane chase
--  "왜 3천원 더 비싸지?"…매장마다 치킨 가격 천차만별
--  40대 가수 겸 배우, 앞서가던 차량 들이받고 음주측정 거부
--  Vrasja në Vlorë, policia: Janë ngritur pika kontrolli në hyrje dhe dalje të qytetit
--  "Tu as ouvert la boîte de Pandore" : Alain-Fabien Delon interpelle sa sœur Anouchka dans un long message
--  Liga MX: América sería líder del Clausura 2024 según una proyección estadística
--  Trevor Lawrence y los Jaguars le dijeron adiós a la temporada con la derrota ante los Titans
--  AS Roma en Atalanta Bergamo spelen gelijk; Dean Huijsen valt direct in
--  Visakha to face top Vietnam club Sanest Khanh Hoa
--  «Аталанта» сыграла вничью с «Ромой», у Миранчука результативный пас
--  Morocco become first team to arrive Cote’divore
--  이번주 일정 ... 최태원·정의선 등 라스베이거스행, 삼성전자·LG전자 잠정실적 공개
--  VIDEO/ Nga një gol për secilën skuadër, Roma dhe Atalanta ndajnë pikët
--  গাজীপুরের চারটিতে নৌকা বিজয়ী, ট্রাকের কাছে হেরেছেন চুমকি
--  Andalucía genera ya 252 hectómetros cúbicos de agua con sus obras hídricas
--  Otieno scores 23 to lead Quinnipiac over Manhattan 76-59
--  Watch: Bill Belichick exits Gillette Stadium for possibly final time as Patriots head coach
--  Jaguars fuera de los 'playoffs' con derrota ante Titans, que clasifica a Steelers y Bills
--  İsrail: Gazze’ye saldırılar tüm yıl sürecek
--  سياسة التقييم.. مُدخلات تكشف المستوى الحقيقي للطلبة
--  Steijn praat voor het eerst over Ajax-vertrek: 'Gevoel dat ik deel van de spelersgroep kwijtraakte'
--  México acumula 108 millones de pasajeros aéreos de enero a noviembre de 2023
--  Shoferi i makinës përplas 41-vjeçarin me biçikletë në Shkodër, e transporton vetë në spital
--  Fuerza Naval intensifica búsqueda de un empresario desaparecido en el Caribe de Honduras
--  Kerala: 24-year-old boy dies after drowning in Kannur district’s Azhikode
--  Lázár János: 2026-ban nem indulok újabb egyéni parlamenti mandátumért
--  Talleres gratuitos en Lima y Callao: Cursos disponibles, horarios y todo lo que debes saber
--  Telangana: 26 injured as bus hits tree in Hanumakonda district
--  Mum-of-22 Sue Radford announces big career move that will make them a fortune & it’ll reveal secrets about the family
--  Japan’s foreign minister pledges more cash to Ukraine to help it fight Putin’s drones – as she is forced to dash into a Kyiv bomb shelter during air raid alert
--  Namadi Calls For Revitilisation Of Educational Sector
--  Vuelve a Argel el embajador maliense convocado el mes pasado en Bamako
--  Top-Notch Thai Spot Fish Cheeks With ‘Complex’ Yet ‘Approachable’ Fare to Open in Williamsburg
+-  معلومات عن العبوات الناسفة شواظ.. دمرت أسطورة ميركافا الإسرائيلية
+-  الاحتلال يقصف كلية العلوم والتكنولوجيا بخان يونس
+-  Premios Globos de Oro 2024 alfombra roja EN VIVO: horario, quiénes desfilarán, nominados y más
+-  Meryl Streep, the reigning queen of awards ceremonies, has secured her status as the Golden Globes GOAT by winning in an impressive eight out of 33 nominations
+-  명의 빌려준 ‘바지사장’이어도…법원 “세금 부과 정당”
+-  Australian-Jewish community to launch legal action against Islamic clerics
+-  Halvparten av Liverpools kamptropp var fra eget akademi
+-  Players posing with the trophy after winning final match on Sunday.
+-  Bogdanka LUK Lublin z wygraną w Plus Lidze, która daje prawo gry w ćwierćfinale Tauron Pucharu Polski
+-  Chef Fregz is Giving Away Mentorship Slots to Rising Chefs & Food Business Owners, See How Your Fave Can Win
