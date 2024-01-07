@@ -1,51 +1,51 @@
 # Latest News
--  El Mallorca castiga al Burgos y pasa a octavos
--  Hans-Georg Maaßen über Parteigründung: „Ich bin einer, der keine Brandmauer kennt“
--  Belconti Resort’ün yeni Satış ve Pazarlama Direktörü Zuhal S.Kadakal oldu
--  استشهاد رضيعة برصاص الاحتلال وإصابة فلسطيني بزعم التصدي لعملية دهس مزعومة في القدس
--  Varar Sjálfstæðisflokk og Framsókn við klækjum Vinstri grænna
--  ‘AAP नेता ED से नहीं डरते…’ कालकाजी में ‘मैं भी केजरीवाल जन संवाद’ में बोलीं दिल्ली की मंत्री आतिशी
--  След изясняването на казуса с непоканените депутати за водосвета Пеевски пак негодува
--  Kal Ka Vrishchik Rashifal: वृश्चिक राशि वालों की किसी नए कार्य की योजना होगी सफल, करें यह खास उपाय
--  الناجحون في الامتحان التنافسي في مختلف التخصصات - اسماء
--  بتوجيهات من رئيس هيئة الأركان قرارات لصندوق الإئتمان العسكري
--  Michael Cieply: Party Like It’s 1988, People Clearly Want Some Laughs From The Movies (And The Globes)
--  &quot;GOCA MOŽE DA RADI, ALI NEĆE&quot; Ovo je praznični natpis kome se smeje ceo Beograd (FOTO)
--  Trecker-Demo im Streit um Agrardiesel: Landwirte aus Datteln und Waltrop nehmen teil
--  Neuer Schulseelsorger in Herten: Fabian Christoph (33): „Hier fühl ich mich wohl“
--  SWERTRES RESULT Today, Monday, January 8, 2024
--  Sternsinger-Aktion 2024: „Menschen glücklich zu machen, erfüllt mich“
--  Krunic Milan: la trattativa con il Fenerbahce è in una fase di stallo. Il motivo
--  Was bringt der Babysitter auf Gemeindekosten?
--  Was bringt der Babysitter auf Gemeindekosten?
--  فلاهوفيتش أساسيا في تشكيل يوفنتوس لمواجهة ساليرنيتانا
--  दिल्ली की इन जगहों से खरीदें ट्रेंडी और टिकाऊ फर्नीचर, पैसे भी लगेंगे कम
--  Irtokoirat raatelivat Onni-terrierin henkihieveriin kotitiellä – Pelättyjen laumanvartijakoirien omistaja: ”Koskaan ei ole ollut mitään välikohtausta”
--  Tributes paid to 'beautiful' model and rising hip hop star killed in motorbike crash
--  Manželom zožral pes neskutočné množstvo peňazí: Nasledovala hotová nočná mora, no získali ich späť!
--  Vikingovia boli veľkými cestovateľmi, počas výprav sa dostali až do Kanady či Bagdadu
--  Enviropolícia zasahovala na nelegálnom autovrakovisku pri Košiciach
--  Edese IJsvereniging zet natuurijsbaan onder water
--  Po otrave alkoholom zomreli štyria ľudia, 40 ďalších hospitalizovali
--  Die USA verzeichnen einen Rückgang illegaler Grenzübertritte, nachdem Mexiko die Durchsetzungsmaßnahmen verschärft hat
--  Taylor Swift Enjoys Girls Night Out in L.A. With Brittany Mahomes & Lyndsay Bell Ahead of Golden Globes: Photos
--  Klopp: Drauma dráttur fyrir bæði lið
--  كأس إنكلترا: «سيتي» يستهل حملة الدفاع عن لقبه بخماسية أمام هادرسفيلد
--  পিরোজপুরে হেরে গেলেন ৬ বারের সংসদ সদস্য
--  Über London zur EM? Timo Werner verlässt RB Leipzig
--  Kreditkartenskandal: Weshalb zwei französische Klasse-Biathletinnen im Clinch liegen
--  Wie die Tischtennisspieler aus Eibenstock Nachwuchs an den Platten generieren
--  Chelseas Star Sam Kerr erleidet Kreuzbandriss
--  Bericht: FC Bayern gibt Angebot für Ex-Leipziger Mukiele ab
--  Bei De Bruynes Comeback: Manchester City locker weiter
--  Fußballer des SV Geringswalde liefern sich beim Budenzauber des HFC Colditz packende Duelle
--  Urlaub 2024: Was Familien jetzt unbedingt beachten sollten
--  BSV Sachsen Zwickau: Ernüchterung nach Auswärtspleite
--  Rentner löst Einsatz von Spezialkräften der Polizei aus
--  Polizeidirektion Zwickau schaltet Bürgertelefon
--  Große Langlauf-Überraschung: Moch Tages- und Gesamt-Zweiter
--  Ifo: Einsparungen treffen Landwirtschaft überproportional
--  Le Lyaud. La municipalité souhaite étoffer l’offre de son marché du samedi
--  Aynişan Aygün Bəylərin qızı üçün ADDIM ATDI – VİDEO
--  Brandenburgs Verkehrsminister hebt Lkw-Fahrverbot für diesen Sonntag auf – Gericht erlaubt Blockaden
--  Glasgow residents fume as city erased from Hollywood hit movie Poor Things
+-  المصرف المركزي: إجمالي الإنفاق الحكومي خلال العام 2023 بلغ 125.7 مليار دينار
+-  Partido mobilizado para "ir à luta" com críticas a Marcelo e à justiça
+-  רפאלוב בהרכב מכבי חיפה, גם פיינגולד פותח נגד הפועל ירושלים
+-  AKP’nin adayı Murat Kurum’un 35 kişinin ölümüne neden olan firari isimle fotoğrafı çıktı
+-  El motivo que le evitaría jugar a Messi con el Inter Miami
+-  تحديات وترتيبات وصول الجماهير المغرببية إلى سان بيدرو لحضور كأس الأمم الإفريقية 2023
+-  دفاعا عن النقابات .. دفاعا عن الوطن
+-  دولي مغربي سابق ينضم رسميا إلى الدوري الروماني
+-  يونس عبد الحميد يوجه رسالة للجماهير قبل انطلاق "الكان"
+-  سعد لمجرد يتوج بجائزة جديدة
+-  مطالب بوقف الفوضى في سوق المحروقات وانتقادات للارتفاع الصاروخي في أرباح الموزعين
+-  Virgil van Dijk absence explained as defender misses FA Cup clash
+-  Unai Emery wants 27-year-old striker as Jhon Duran replacement
+-  Cum combat risipa alimentară studenții români la „Științele Vieții”. Resturi alimentare transformate în ingrediente
+-  Московское «Динамо» в овертайме обыграло «Спартак» в матче КХЛ
+-  Loquet Opens Candy Colored Flagship Boutique In London
+-  Gizemli Biri, Satoshi Nakamoto'nun 14 Yıldır Hareketsiz Olan Cüzdanına 1,2 Milyon Dolar Gönderdi
+-  Acaba la huelga de controladores de tierra de Barajas con poco seguimiento y futuros paros
+-  ABD Dışişleri Bakanı Blinken Katar’da
+-  SAD brinu da bi Netanjahu mogao da započne rat i u Libanu
+-  কোম্পানি ফ্লোরে থাকলেও বড় জয় পেয়েছেন কর্তারা
+-  U lavini na Alpima poginula dvojica planinara
+-  Luka Romero Milan: non c’è solo il Como. Spunta il piano del Lecce
+-  Säässä tapahtuu tiistaina täyskäännös, kun lämpötila nousee Oulussa plussan puolelle – Seuraava pakkasjakso hätyyttelee jo nurkan takana
+-  Mladi rukometaši BiH na bolan način ispali od Izraela
+-  ঢাকা-১০ আসনে জয়ী নায়ক ফেরদৌস
+-  Lenia no es la ministra del pueblo, sino del dedazo: Xóchitl Gálvez
+-  Le Carlotta ferme à Caen pendant plusieurs semaines : une grande surprise en préparation
+-  Roy Calne, a surgeon who led Europe’s first liver transplant, has died aged 93
+-  Leeds cruise past Peterborough to reach fourth round
+-  Dike scores as West Brom sweep aside Aldershot
+-  ME w łyżwiarstwie szybkim - brązowy medal Kani na 500 m
+-  SAD Trenčín pre nedostatok vodičov autobusov redukuje spoje, zmeny sa dotknú 17 prímestských liniek
+-  İzmir'de sağanak yağmur yolları göle çevirdi
+-  „Wir distanzieren uns von rechter Gewalt“: Bauernproteste starten um 6 Uhr am Montag im Rhein-Sieg-Kreis
+-  Mary Lou Retton, 55, opens up about devastating effects of life-threatening pneumonia battle in first interview since hospitalization
+-  Just nu: Olycka med flera fordon
+-  Presidential Debate: Ganjar Pranowo Offers 3 Solutions to Resolve South China Sea Disputes
+-  Coupe de France : Monaco écarte Lens, Marseille, Lyon ou encore Rennes également qualifiés pour les 16es de finale
+-  روسيا تتحدث عن خسائر كبيرة في صفوف القوات الأوكرانية
+-  Peter Bone: Disgraced ex-Tory MP’s partner selected to stand in his seat
+-  Feyi-Waboso to snub Wales for England in Six Nations
+-  Galatasaraylı oyuncunun yeni imajı gündem oldu: Rio Ferdinand benzetmesi
+-  Près de Toulouse. Il vole des dizaines de litres de carburant sur des camions
+-  فرنسا تعتزم بناء ثماني محطات نووية تُضاف إلى ست معلن عنها
+-  Japan sagt Ukraine Unterstützung bei Drohnenerkennung zu
+-  ঈগলের থাবায় পরাজয় বরণ করলেন নৌকার গোলাপ
+-  «Ак Барс» одержал победу над «Автомобилистом» в матче КХЛ
+-  “Na goditën në kokë dhe në trup”, si u dhunuan tre shqiptarët në Malin e Zi, çfarë dihet deri tani për ngjarjen
+-  «كارت شحن» يحذر من تغول التطبيقات الرقمية على الحياة المعاصرة
