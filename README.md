@@ -1,51 +1,51 @@
 # Latest News
--  휴정기 끝난 법원…이재용·양승태 등 주요 선고 줄줄이
--  نشرة منتصف الليل| الرئيس السيسي يهنيء الأقباط بالكاتدرائية.. وتحذير من حقن البرد
--  [오피셜] '8경기 2골 2도움이 제일 잘한 공격수' 가르나초, 맨유 12월 이달의 선수상 수상
--  Las rebajas arrancan hoy en Canarias como broche de oro a una campaña navideña «buena»
--  Voorzitter Europese Raad Charles Michel wil zetel Europarlement
--  El parque urbano de Playa Honda se retrasa hasta la segunda mitad del año
--  "الأسود" يشدون الرحال إلى الكوت ديفوار
--  Mejoras en instalaciones deportivas de Tías
--  Trường được chọn sách giáo khoa: Nghe hay nhưng không dễ làm ở chỗ nào?
--  20 parados menos a la semana entre los siete municipios
--  AR Rahman comes on board for Ram Charan’s pan-India film
--  Renowned lyricist and screenwriter Javed Akhtar warns audience against films like ‘Animal’
--  Van 35 aprehendidos por microtráfico en 6 días del 2024
--  Gërvalla e ngazëllyer që Spanja pranon pasaportën: Po e mbyllim edhe një ditë me krenari
--  quot;'김건희 특검' 대신 제2부속실 설치? 얄팍한 물타기로 국민 속이는 것quot;
--  Mossad ajan ağıyla ilgili yeni detaylar ortaya çıktı: Bazı ödemeleri Bitcoin olarak almışlar
--  Los viajeros sin sus maletas, las víctimas de la huelga del 'handling' de Iberia
--  CHP eski Gençlik Kolları Başkanından İmamoğlu'na yaylım ateşi! Bomba itiraf: Talimat aldım
--  Álbuns icônicos que completam QUINZE ANOS em 2024
--  BlackRock และ Grayscale เตรียมพร้อมสำหรับการเข้าสู่ตลาด Bitcoin ETF โดย Investing.com
--  Bowen Island to consider opting in to B.C.’s new, stiffer short-term rental rules
--  Terör devleti İsrail yine okul bombaladı! En az 16 şehit, 50 yaralı
--  Kualitas Udara Jakarta Memburuk Minggu Pagi, Wilayah Ini Paling Parah
--  La primera misión de la India para estudiar el Sol alcanza su destino
--  Detienen a Armando Tonatiuh González, excoordinador de diputados del PRI
--  A hiker slid hundreds of feet off an Adirondack mountain peak and got stuck for 8 hours over a vertical cliff face
--  Hacienda verifica cumplimiento normas tributarias en comercios de Surf City
--  Ya son tres las personas internadas por posibles casos de Encefalomielitis Equina en Mendoza
--  Encuentran restos humanos en Reynosa
--  Innalillahi, Pendiri Pesantren Husnul Khotimah Kunungan KH Achidin Noor Wafat
--  Lanka secures three wins at Intl Environmental Olympiad
--  Blowing-up Air Lanka’s Tristar-36 on May 3, 1986
--  Money Lender
--  FA Cup: Chelsea đè bẹp Preston, Newcadtle vùi dập Sunderland
--  Massive film series has successful run
--  Another Time, Another Place by Anthea Senaratne
--  Ceylon Tobacco’s role in the emergence of Sri Lanka’s cut flower industry
--  Diversifying in new directions – hospitality plantations, broking and health care
--  Israel in the Pacific Islands
--  Peradeniya alumni family get-together
--  “Simply Professional”: that was what he was
--  On to the private sector – JKH, Hemas and Schaffter company
--  OIC with Dutch courage arrested and suspended
--  Ilusionante debut de Arda Güler
--  SHMA opens its second SSG program learning center in Kandy
--  Election hustling in the South & Boycott calls in the North
--  ВСУ сбросили взрывоопасный предмет с беспилотника в Донецке
--  Cricket coach’s locker discovery triggers police probe into alleged T-56 rifle-linked murders
--  Ibu tunggal OKU sakit kanser tabah jalani kehidupan demi anak-anak
--  SLT-MOBITEL Mobile introduces ‘My Super Offers’ delighting customers with tailored rewards
+-  제주 잇뉴 “미세먼지 정보 확인하고 건강 관리해요”
+-  '세계 등대공장' 목표 대구 'ABB 팩토리' 추진···엘앤에프 1호 선정
+-  마포구, 구청장 함께하는 '동 소통데이' 개최
+-  부안군, 작년 고향사랑기부금 6억5000만원... 목표액 5억원 넘어
+-  정읍소방서, 최초 목격자 심폐소생술 활성화 총력
+-  익산시, 가축분뇨 배출시설 강력 단속... 75건 행정처분
+-  익산시, 경로당 한파대비 지원대책 마련
+-  익산시, 신선한 지역 농산물로 초등 돌봄교실 도시락 지원
+-  진안군, 농한기 '경로당마을순회 금연·절주 실천교육' 시작
+-  진안군, ‘모바일 헬스케어 서비스사업’ 참여자 모집
+-  정읍시, 시민안전보험 보장 항목 확대... 광범위한 보장 가능
+-  GS25, 해외 진출 6년 만에 20배 커졌다…내년 1000호점 목표
+-  경찰청, 후면 단속카메라 활용 '안전모 미착용' 무인단속
+-  Sudoku difícil: 07 de enero de 2024
+-  Sudoku medio: 07 de enero de 2024
+-  Sudoku fácil: 07 de enero de 2024
+-  Sudoku mini: 07 de enero de 2024
+-  Crucigrama difícil: 07 de enero de 2024
+-  Crucigrama medio: 07 de enero de 2024
+-  Crucigrama fácil: 07 de enero de 2024
+-  Crucigrama mini: 07 de enero de 2024
+-  Sopa de Letras clásica: 07 de enero de 2024
+-  '노량' 400만 관객 수 돌파…한국영화 1위 탈환
+-  Criminoso rompe aliança com facção, vai pra facção rival e têm casa incendiada em Rio Branco
+-  동작구, 새해 힘찬 출발 다짐… "주민 자부심 느끼는 가치도시 만들 것"
+-  홍천 화촌여성의용소방대, 관광객 대상 심폐소생술 교육
+-  홍천농고 학부모회-홍천봉사회, '사랑의 연탄나눔' 봉사
+-  용산구, 2024년 겨울방학 대학생 아르바이트 간담회 개최
+-  부동산發 위기에 증권주 '폭락'…일주일 새 6.3%↓
+-  성동구, 관내 초등학교 '우리아이 교통안전지킴이' 배치
+-  유상범 국회의원, 2024 의정보고회 개최
+-  서울 초등학교 2곳 다문화 학생 70% 넘어
+-  bhc그룹 아웃백, 전국 10여 개 복지단체와 사회공헌활동 펼쳐
+-  [인사] KB자산운용
+-  电视专题片《持续发力 纵深推进》第一集《解决独有难题》
+-  【新思想引领新征程】坚持自我革命 纵深推进反腐败斗争
+-  동국대 듀이카, 정시 4등급 5등급 6등급 7등급 24학번 인서울 합격 진학 컨설팅 진행
+-  클코스와 유셀파마, MOU 맺고 상품 경쟁력 강화 나선다
+-  На позиции ВСУ отправляют дроны, из которых звучит гимн России
+-  جيروزاليم بوست : المجتمع الاسرائيلي يمر بأزمة نفسية غير مسبوقة
+-  علماء صينيون يطورون إستراتيجية جديدة لعلاج سرطان الثدي شديد العدوانية
+-  Olancho FC cerca de quedarse con dos tricampeones invictos
+-  समाजको चित्र ‘डुङ्गा चिया घर’
+-  'We Are in Dire Need': Small Town's Police Chief Begs Biden for Help After Being Overwhelmed by Migrants
+-  สภาพอากาศวันนี้ อีสานอากาศเย็นถึงหนาว-ใต้ตอนล่างฝนตกหนัก
+-  Giải phóng mặt bằng chưa bằng 1/10 các tỉnh, vành đai 3 TP.HCM qua Đồng Nai hiện ra sao?
+-  Điểm tin 8h: Ngọc Trinh mong được khoan hồng; Được mùa cá ngừ đại dương
+-  Заменят ли нейросети проектировщиков и экспертов
+-  Local firefighters help relief for Queensland
+-  2023 in Review: Magical week for Mitch
