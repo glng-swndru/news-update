@@ -1,51 +1,51 @@
 # Latest News
--  ప్రతీ ఒక్కరు ‘శ్రీరామ జ్యోతి’ వెలిగించాలి
--  పోలీసుల హత్యాకాండలో మాజీ నక్సలైట్ల అరెస్టు
--  ఎస్‌ఐబీ మ్యూచువల్‌ ఫండ్స్‌ పక్కదారి
--  కమనీయం..రమణీయం మల్లన్న కల్యాణం
--  Zoo anuncia la seva retirada amb una gira que només preveu un concert a Catalunya
--  Poliţia israeliană a ucis accidental o fetiţă palestiniană la un punct de trecere în Cisiordania
--  కారు ఢీకొని వృద్ధుడి మృతి
--  మందుపాతర
--  No “Škodas” vilcienu “pirmajiem zobiņiem” cieš simtiem pasažieru
--  చేనేతను కాపాడుకోకపోతే ధర్మవరానికి మనుగడే లేదు
--  చంద్రబాబు సభను విజయవంతం చేయండి
--  హెల్త్‌ సెక్రెటరీలను గ్రేడ్‌-2 ఉద్యోగులుగా గుర్తించాలి
--  Liverpool gewinnt bei Arsenal: Jürgen Klopp feiert dank Eigentor im Pokalkracher
--  అలరించిన రంగవల్లులు
--  నాలుగు ఎకరాల వరి కుప్పలు దగ్గం
--  В Египте обнаружили древнее захоронение мумий с золотыми языками
--  Stepdad of missing teen Amy Fitzpatrick reveals shock ‘four solid suspects’ theory and issues book plea to investigators
--  First-ever Animate Raleigh convention draws thousands of visitors, generates millions for local businesses
--  Sujeto que perpetró ataque contra un venezolano en el AICM es vinculado a proceso
--  الخليج اليوم .. الإمارات تنضم إلى مشروع محطة الفضاء القمرية الدولية
--  చంద్రబాబుతోనే అభివృద్ధి సాధ్యం
--  Evinde cansız bedeni bulunan 25 yaşındaki Gökçe’nin ölüm nedeni belli oldu
--  SRBIJA – NEMAČKA Razlika je u klasi: Delfini demonstriraju silu
--  Okul fırtınada hasar aldı: Eğitime üç gün ara verildi
--  Hakan Keleş: Alternatif oyuncu sıkıntımız var
--  هل تتجرع أوكرانيا «الاتفاق المر» ؟
--  Abdülkerim’den abartılı sevinç!
--  Tomasz Grodzki reaguje na działania prokuratury. "Odwrócenie uwagi od sprawy Kamińskiego i Wąsika"
--  تین وزرا کو معطل کر دیا گیا
--  Recensione AI Definity 1000 – Un Bot per il trading di criptovalute con intelligenza artificiale per assicurarsi un vantaggio competitivo
--  ప్రత్యేక ఆర్టీసీ బస్సు సర్వీసులు
--  Surrey public forum discusses safety, extortion threats
--  Ruilbeurs historische PLUS plaatjes druk bezocht
--  కార్మిక ద్రోహి జగన్‌రెడ్డి
--  Cheque de estímulo de $1,500 dólares esta semana
--  بيروت.. مسيرة حاشدة إحياء ليوم الشهيد الفلسطيني وتنديداً بجرائم العدو الصهيوني
--  తారే జమీన్‌ పర్‌..
--  香港仔客貨車「自炒」撞毀學校外花槽 司機幸無恙
--  Jacques Houdek nakon dugo vremena pokazao suprugu: Glumila mu je i u spotu
--  الخارجية الأردنية: مستمرون لوقف العدوان على غزة والتصعيد بالضفة
--  Irak ve Suriye’deki ABD üslerine saldırı
--  Sondaggio del Napoli per l'ex rossonero Aster Vranckx
--  Названо место, где пройдет церемония прощания с Айгюн Бейляр
--  Излезе прогнозата за другата седмица
--  భువిపై చుక్కల పండుగ
--  నేడు వెయ్యి మందితో సూర్యనమస్కారాలు
--  DEG DEG: Wasiirkii difaaca ee Somaliland oo goor dhow shaaciyey inuu xilka iska casilay
--  خلال لقائه عمداء بلديات الجنوب :الدبيبة يوجه شركة البريقة بضرورة معالجة ملف نقص الوقود معالجة جذرية.
--  أرنولد بعد الإطاحة بـ آرسنال من كأس الاتحاد: تأثرنا بتغيير الخطة
--  రాష్ట్రం బాగుపడాలంటే చంద్రబాబు సీఎం కావాలి
+-  Volkswagen apoyará al Vaticano en su transición hacia la movilidad sostenible
+-  US intelligence believe Chinese missiles fueled with water
+-  A fire in a Rohingya refugee camp in Bangladesh guts more than 1,000 shelters
+-  'Ajax stuit op hevig verzet bij inspanningen om huurling terug te halen'
+-  Bauernproteste in Deutschland: FDP-Mann Kubicki kritisiert Landwirtschaft-Sparpläne der Ampel
+-  Oposição na RDC volta a exigir anulação das eleições de Dezembro
+-  Henry Molina: “La Justicia es clave para el desarrollo de RD como garante de la seguridad jurídica
+-  Alianza Vamos con todo Panamá: hay que redefinir las políticas públicas económicas
+-  Ismael Barroso conquistó título interino superligero de la AMB
+-  Trump calls on Biden to release those jailed in connection to Jan. 6
+-  Over 100 evacuate Russia’s Belgorod while soldiers celebrate Orthodox Christmas on the front line
+-  Healthy Canadian international Grosso helps Juventus women to Super Cup triumph
+-  Sklonište za pse u Krakovu našlo domove za mnoge pse ugrožene velikim zahlađenjem
+-  Will you need a REAL ID to fly in 2024?
+-  බංග්ලාදේශයේ මහමැතිවරණය ප්‍රචණ්ඩ මුහුණුවරකට
+-  Zbog vjetra i snijega brojna ograničenja na cestama, poteškoće i u pomorskom prometu
+-  عاجل.. أهم 10.. غرامة مشددة على المشاة عابري الطرق واعتماد خدمة جديدة عبر "توكلنا"
+-  Названа прогнозируемая численность населения Баку до 2040 года
+-  Peg Mckamey Obituary: What is the Cause of Peg Mckamey’s Death?
+-  5 die as boat capsizes in River Niger
+-  La Junta pide a los centros educativos "agilidad" para comunicar cualquier incidencia en una primera semana de trimestre marcada por el frio
+-  Antony Chamerat-Dumont et Célia Géry sacrés : les titres régionaux ont échappé aux Auvergnats, à Issoire
+-  Jak Wodecki uradował duszę Kamila
+-  “¡Dímelo!”: Pamela Díaz “interrogó” entre risas a Cony Capelli sobre su beso con Jean Philippe Cretton
+-  Mobix Labs Awarded M-1 Abrams Tank Contract for U.S. Army
+-  Stressed out? Why mindfulness and meditation help us cope with the world
+-  Federal officials order grounding of some Boeing 737 Max 9 jetliners after plane suffers a blowout
+-  Hrvati briljirali, Guardiola oduševljen Gvardiolom: ‘To kako su oni odigrali danas, baš to nam treba!‘
+-  N44bn fraud at humanitarian affairs ministry tip of iceberg — PDP
+-  Corale e autorevole, il Derthona vince contro Scafati
+-  Fijian tourists help islanders adapt to climate change
+-  Με 10 παίκτες ο Άρης / Αποβλήθηκε ο Σανέ
+-  93χρονη Ελληνίδα στην Αυστραλία έκανε δωρεά μαστογράφο και ασθενοφόρο στο νοσοκομείο Κεφαλονιάς
+-  Police investigate woman’s death in Lagos hotel
+-  Save the Children: Gazze'de her gün en az 10 çocuk bacağını kaybediyor
+-  Συγκροτείται οργανωτικά η Νέα Αριστερά – Διοργανώνει πανελλαδική συνεδρίαση στελεχών
+-  Albergues se mantienen habilitados por temporada de frío
+-  ليفربول يهزم أرسنال ويتأهل للدور الرابع بكأس الاتحاد الإنجليزي
+-  Vanti leið­toga í pólitíkina með skýra fram­tíðar­sýn
+-  Bangladesh PM Sheikh Hasina secures 5th straight term as her party wins two-thirds seats in polls
+-  Höchst brisant: Bevölkerungsexplosion im Wunderland
+-  Rõ lý do Arsenal muốn có Curtis Jones
+-  Mehrheit würde sich Kanzlerwechsel Scholz/Pistorius wünschen
+-  Mehrheit würde sich Kanzlerwechsel Scholz/Pistorius wünschen
+-  Mbappe dolazi u Real, ali ostaje bez pravog bogatstva?
+-  Rumors Swirling DeSantis Will Likely Drop Out of Race on January 15: Report
+-  La jornada del día de reyes al detalle en la NBA
+-  Wundervolle Stimmen verzauberten das Publikum
+-  صفاقس : طريق الأفران خلع مأوى أرضي لاحدى العمارات وسرقة دراجة نارية جديدة
+-  Миранчук попал в стартовый состав «Аталанты» на матч с «Ромой»
