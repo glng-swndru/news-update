@@ -1,51 +1,51 @@
 # Latest News
--  Naas fixture rescheduled for next Friday 12 January
--  Blinken: SAD se protivi raseljavanju Palestinaca
--  Zenica City Library marks its 70th anniversary, and American Corner celebrates the 20th anniversary
--  Obras de mejora en la calle Cordó de Vila-real
--  «راضية» الملامح والنفس والسيرة.. قصة السيدة «المَحنية» على ضفاف النيل عبر 50 عاما
--  Levinska Turcijas čempionātā debitē ar diviem punktiem un zaudējumu piecos setos
--  Strikes that would have caused travel chaos in London suspended at last minute
--  Плоггинг лойиҳаси Ўзбекистон бўйлаб кенг тарқалмоқда
--  Stuk romp van vliegtuig dat Alaska Airlines-vlucht verloor nog steeds niet gevonden
--  Gromy spadły na Zielińskiego. Włosi mówią jednym głosem
--  BCCI announces Indian team squad for Afghanistan T20I
--  Everton fan baffles Goldstein by suggesting there’s an agenda to get them relegated
--  الارصاد : منخفض جوي قادم الى الاردن
--  القناة 12 الإسرائيلية: تدهور الحالة النفسية لنحو نصف الإسرائيليين
--  अयोध्या में लंगर सेवा के लिए पंजाब से निहंगों का जत्था राशन लेकर हुआ रवाना
--  الملك ورئيس رواندا يتفقان على توسيع التعاون الثنائي
--  Jetzt spricht Schalkes Vize-Kapitän im Exklusiv-Interview: Marcin Kaminski im Trainingslager
--  Emekli maaşına 11-12 puanlık ek zam geliyor! En düşük emekli maaşı...
--  VATRA IH OSTAVILA BEZ KROVA NAD GLAVOM: 7.000 ljudi ostalo bez doma u požaru u izbegličkom kampu u Bangladešu
--  Verkehrschaos droht - Bauern-Proteste legen Deutschland lahm: Der große Blockade-Überblick
--  「國王派之王」來自台灣！法國省級比賽冠軍，揉合東西文化勝出
--  Satirepreis Göttinger Elch geht an Aschaffenburger Karikaturisten-Duo Greser & Lenz
--  Neujahrsempfang in Glattbach: Kinderbetreuung, Schule, Feuerwehrhaus und 50 Jahre Roncalli-Zentrum
--  Geld für Senioren-Tagesstätte
--  3000 Euro für drei Institutionen
--  2000 Euro für Weg der Hoffnung
--  2000 Euro für Kinderhospiz
--  Geld für wissenschaftliche, kulturelle und gemeinnützige Einrichtungen
--  3000 Euro für Kinderhospizdienst
--  10.000 Euro für Kinderträume
--  Lens-Monaco: la statistique folle de Brice Samba sur les tirs au but
--  Oswald Behl aus Rettersheim versteht noch das Korbflechteh
--  Eisbaden, Therme, Wintersport: 11 Aktivitäten, die man im Winter in München gemacht haben sollte
--  Asesinan a mujer en Boquerón, Chiriquí
--  BINTEO: One… Φράγκος show!
--  Während Andrew-Skandal: König Charles geht zum Gottesdienst!
--  ŽENU IZVLAČILI IZ SMRSKANOG VOZILA: Žestok sudar tramvaja i auta u Bulevaru kralja Aleksandra, troje povređeno u saobračajnoj nesreći
--  Ανατροπή μέσα σε 4 λεπτά ο ΠΑΣ Γιάννινα και βαθιά ανάσα απέναντι στον Αστέρα!
--  Broj stanovnika Barselone premašilo 1,7 miliona
--  Ako potpiše za Real, Mbappé će izgubiti pravo bogatstvo: Perez mu srezao moguću zaradu i postavio ultimatum?
--  Giroud into double figures again, helps Milan beat Empoli 3-0 in Serie A
--  Barahathawa Incident: Local administration, agitators sign 11-pt deal
--  Dinamo vraća Josipa Brekala
--  Wasiirkii u horeeyey ee ka tirsan Somaliland oo ka hor yimid heshiiska Muuse Biixi & Itoobiya
--  Napoli, Meluso: “La squadra è irriconoscibile. Piena fiducia in Mazzarri”
--  Torino, Lazaro: “Felice per l’assist, ma voglio farne di più”
--  Aeroméxico baja su flota
--  Magic: The Gathering artist is "done working for Wizards of the Coast" over its alleged use of AI
--  كرتي لـ«الشرق الأوسط»: لا علاقة لي بالجيش السوداني
--  *** BILDplus Inhalt *** Sport-Boss Hengen erklärt - Darum hakt Boyd-Abgang aus Lautern!
+-  Oberwiesenthaler Langlauftrio stellt Fuß in die Tür für die Nachwuchsweltmeisterschaften
+-  „Freie-Presse“-Pokal: Landesklasse-Vertreter ziehen in die Endrunde ein
+-  Kurioser Test: HSV protestiert gegen Rote Karte für PSV
+-  Bauernproteste am Montag: Auf diese Blockaden und Aktionen müssen sich die Vogtländer einstellen
+-  Adventszeit klingt mit Lichterfest in Werdau aus
+-  Proteste im Erzgebirge am Montag: Wie sich der Rettungsdienst für Straßenblockaden rüstet
+-  Biały Dom obawia się, że Netanjahu w celu politycznego przetrwania zaatakuje Liban
+-  Ayodhya Sita Ram Bank: A special bank with no cash, no ATM, makes loan repayment in ‘Ram Naam’ only, has over 130 branches across India
+-  Lacio nastavja proboj, Napoli nastavlja da tone
+-  Popović: Odbrana užasna, energija loša, razočarana sam
+-  CAN 2023 : Aliou Cissé craint un forfait définitif de deux joueurs blessés
+-  Конър Галахър ще остане в Челси и след януари
+-  "Terror muss ein Ende haben": Baerbock fordert Ende der Gewaltspirale in Nahost
+-  Venezolana fue asesinada por su pareja en Colombia
+-  Isomorphic inks deals with Eli Lilly and Novartis for drug discovery
+-  It changes plan – Nuno Espirito Santo bemoans lack of break as Forest get replay
+-  It changes plan – Nuno Espirito Santo bemoans lack of break as Forest get replay
+-  Sky News Breakfast to introduce new presenter and debut earlier start time
+-  Sky News Breakfast to introduce new presenter and debut earlier start time
+-  ফুফাত ভাই আলমকে হারিয়ে বিপুল ভোটে জয়ী তাজউদ্দীনকন্যা রিমি
+-  দেবিদ্বারে স্বতন্ত্র প্রার্থী আবুল কালাম আজাদের জয়
+-  জামালপুরে ৫টি আসনে জয়ী হলেন যারা
+-  বিদেশে কে কী বলল এ নিয়ে আগ্রহ নাই: পররাষ্ট্রমন্ত্রী
+-  বরকলে ১৭টি ভোটকেন্দ্রে নৌকার জয়
+-  ৮১ হাজার ৯৫৫ ভোটে বিজয়ী হলেন কল্যাণের ইবরাহিম
+-  টানা চতুর্থবারের মতো সংসদ সদস্য নির্বাচিত নসরুল হামিদ
+-  আন্তর্জাতিক গবেষকদের তালিকায় কুবির ৮৯ শিক্ষক-শিক্ষার্থী
+-  ن لیگ نے بلوچستان میں جے یو آئی کی بڑی وکٹ گرا دی
+-  Treinvervoer tussen Groningen en Zwolle verstoord
+-  MOPO-Telefonaktion: Richtig krankenversichert? Experten stehen Rede und Antwort
+-  CES 2024: Samsung’s bigger, foldier, more rollable displays
+-  عوام 8فروری کو ملک لوٹنے والوں کا احتساب کریں گے‘پرویز خٹک
+-  Martin Keown slams Kai Havertz's wasteful approach as Arsenal spurn several chances to score against Liverpool despite dominant first half performance... but Danny Murphy praises German for leading the Gunners' 'magnificent' build-up play
+-  El Melilla BC se queda a poco de sorprender a uno de los ‘cocos’, Gipuzkoa
+-  Bllokohet rinovimi i yllit të Manchester City, në Arabinë Saudite “lëvizin gurët”
+-  Heidi Pratt, 37, from The Hills shares before and after photos from losing 22lbs in 12 weeks as she says she has never tried Ozempic
+-  Aleksandra se rasplakala usred emisije zbog roditelja
+-  "Un changement est nécessaire" : François Bayrou se dit favorable à un remaniement au gouvernement
+-  NOVI NAPAD NA VOZAČA AUTOBUSA U BEOGRADU! Izudarao ga pesnicama u glavu, pa pobegao
+-  Gypsy Rose Blanchard and husband Ryan Anderson recall how he snuck an engagement ring into prison to propose to her in her new docuseries
+-  Netanyahu najavio nastavak napada na Gazu
+-  Neujahrsempfang in Mittweida: OB fordert Kurswechsel der Bundespolitik
+-  Como é um dia de verão na Praia do Pinho, berço do nudismo no Brasil; veja fotos
+-  Rybakina y Dimitrov alcanzan la final de Brisbane #7Ene
+-  Dječak (16) pušten iz bolnice, za njega će se sada brinuti šira obitelj: Ovako izgleda Alfa njegovih roditelja...
+-  60 دقيقة.. تعادل سلبي بين أرسنال وليفربول في كأس إنجلترا
+-  Buscas por helicóptero desaparecido em SP completam uma semana
+-  VIDEO: Impresionante tornado toca tierra y causa destrozos en Florida
+-  চাঁপাইনবাবগঞ্জ-২ আসনে বিজয়ী নৌকার জিয়াউর রহমান
+-  Patrick Bamford scores stunning long-range volley during Leeds United's 3-0 FA Cup third-round win at Peterborough - as Daniel Farke insists 'the whole world will praise this world-class goal'
