@@ -1,11 +1,11 @@
 # Latest News
--  北 사흘 연속 포 사격…김여정 "기만작전"에 軍 "코미디 같은 주장"(종합)
--  السعودية تخفض سعر الخام العربي الخفيف
--  فيديو- اللحظات الأولى لاستشهاد حمزة الدحدوح في خانيونس
--  نصائح أساسية للمسافرين عند ترتيب حقيبة السفر الشتوية
--  المكتب الإعلامي بغزة: ارتفاع عدد الصحفيين الشهداء إلى 109
--  خبير مالي: الصندوق الاستثماري الجديد للبنوك سيكون له أثر في خفض الفوائد على القروض
--  مقررة الأمم المتحدة: إسرائيل تنتهك قواعد القانون الدولي في غزة
--  Murume apondera mwana (3) muriwo
--  ठाकरे ने भरी हुंकार... 'महाराष्ट्र के जनता का पूरा समर्थन, बदनाम करने वाले सपने में देखते हैं'
--  Nhân viên ngân hàng kịp thời ngăn chặn vụ lừa đảo hàng trăm triệu đồng
+-  Juve, Boteli spiegato da chi lo conosce bene: "Estro e cinismo, ricorda Eto'o"
+-  ‘맨시티 레전드’ 아구에로도 피하지 못했다!... ‘예외 없는’ 과르디올라 감독의 규칙
+-  Marché parallèle des devises : l’euro repart à la hausse face au dinar
+-  Forget Dry January: perhaps Damp January is what New Jersey needs
+-  Tuần tới, miền Bắc khả năng đón đợt không khí lạnh
+-  Ticiane Pinheiro é uma das participações do documentário das Paquitas
+-  Após acordo com MPF em processo, Taurus vai doar munições à Abin
+-  Dramático repunte de 32% en casos de hipertensión
+-  Cek Fakta: Ganjar Pranowo Sebut Anggaran Pertahanan Indonesia Belum Mencapai 1%, Benarkah?
+-  Tôi vỡ mộng khi chọn nhà chồng quyền quý
