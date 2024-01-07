@@ -1,51 +1,51 @@
 # Latest News
--  مستشفى إسرائيلي: استقبلنا 8 جنود جرحى خلال 24 ساعة و2478 منذ بدء الحرب
--  طقس الإثنين.. الأرصاد: برودة شديدة ليلا وشبورة كثيفة
--  Kurukshetra News: पशु मेले में झंझाड़ी के सुनील की गाय और बुढा खेड़ा के नरेश की भैंस रही विजेता
--  Sultanpur News: जनआरोग्य मेले में पहुंचे टीबी व खांसी-बुखार के मरीज
--  Sultanpur News: नेवादा ने गोपालपुर को दो विकेट से हराया
--  Sultanpur News: सज रहा राम वनगमन पथ, पग-पग होगा स्वागत
--  Yamuna Nagar News: अलाव पर हाथ सेक रहे दो भाइयों व परिजनों पर किया हमला
--  Yamuna Nagar News: अतिथि अध्यापकों ने निकाला रोष मार्च, की नारेबाजी
--  Yamuna Nagar News: स्कूलों में अवकाश, नहीं हो पा रहे प्रतियोगिता के पंजीकरण
--  Mirzapur News: बाइक से गिरकर देवर-भाभी घायल
--  उतराला-होली सड़क के लिए न हो सियासत : राज
--  Sonipat News: हवा की रफ्तार थमी तो कोहरा और प्रदूषण बढ़ा
--  Kangra News: निजी डिपो धारकों ने मांगी राहत, मंत्री यादविंद्र गोमा को ज्ञापन
--  Panipat: तीन युवकों से कनाडा भेजने के नाम पर धोखाधड़ी, वापस भारत लौटकर पुलिस को दी शिकायत
--  Kanpur News: नंदपुर गोशाला हाउस फुल, प्रधान ने खड़े किए हाथ
--  Hathras News: अयोध्या में भक्तों के माथे पर सजेगा हाथरस का चंदन
--  Karnal News: घर, दुकान व पुलिस लाइन से लाखों का सामान चुराया
--  Karnal News: मारपीट के आरोप में तीन युवक नामजद
--  Maharajganj News: परफॉर्मेंस इंडिकेटर के आधार पर शिक्षक व रसोइया होंगे सम्मानित
--  Maharajganj News: कोहरे ने बढ़ाई दुश्वारी... ट्रेनें निरस्त, भटक रहे यात्री
--  Maharajganj News: वैध तरीके से मंगाते हैं माल, अवैध तरीके से कर देते हैं सीमा पार
--  Maharajganj News: आपत्तिजनक स्थिति में पकड़े प्रेमी युगल, पंचायत ने कराई शादी
--  Kushinagar News: सेमीफाइनल में पहुंची मिश्रौली की टीम
--  Kushinagar News: मुंगेर की टीम ने 3-1 से जीता मैच
--  Aligarh News: भाजपा में सगंठनात्मक बदलाव, चार मंडल अध्यक्ष बदले और चार पर पुरानों को दिया मौका
--  Jhajjar-Bahadurgarh News: दानवीरों ने गौशाला कार्यक्रम में दिया दान
--  Jhajjar-Bahadurgarh News: विकास कार्य मंजूर कराने पर विधायक का बामनोली में किया अभिनंदन
--  Jhajjar-Bahadurgarh News: डॉ. दलबीर बने एमडीयू के पीएचडी शोध निर्देशक
--  संसाधनों के बावजूद मानव में बढ़ता जा रहा पाप : कंवर महाराज
--  Panchkula News: पंजाब में विशेष इंतकाल कैंप 15 को भी ः मान
--  शिक्षा : अस्थायी मान्यता प्राप्त निजी स्कूलों पर तालाबंदी की तलवार
--  أرتيتا يوضح موقف أرسنال من التعاقد مع مهاجم جديد في السوق الشتوي
--  مناورات كورية شمالية بذخيرة حية قرب حدود كوريا الجنوبية
--  María Noel Rodríguez (Presupuesto Participativo): “Culminaron con éxito los Talleres de Costura”
--  শম্ভুকে উড়িয়ে দিলো টুকু, নাদিরার দাপুটে জয়
--  Κακοκαιρία: Σημαντικά ύψη βροχής σε πέντε περιοχές - Πού έβρεξε περισσότερο
--  Man injured in weapon attack
--  Citypress | Safa dangles R7 million carrot for Bafana to win Afcon
--  US Revel-PSG: le cadeau de Paris au club amateur avant le 32e de finale de Coupe de France
--  Stray Dogs Injure 5 Persons in Handwara
--  Seduc incentiva matrículas de novos alunos em escolas de tempo integral
--  Movimentos e partidos fazem ato em Brasília em defesa da democracia
--  Um ano após tentativa de golpe, STF mantém 66 presos
--  Politie Israël doodt 3-jarig meisje op Westelijke Jordaanoever
--  Ali Shariati: Rereading and Reinterpreting Islam
--  Quebec, public sector unions reach agreement in principle on wages, working conditions
--  Tamil Nadu must focus on chip building, says Chris Miller
--  Kashmiri mothers – the unsung heroes of winter
--  Tinejdžer (16) kojem su roditelji poginuli na A1 pušten iz bolnice
--  В Испании оценили сроки признания косовских паспортов
+-  Margot Robbie and Barry Keoghan Steal the Spotlight at W Magazine’s Best Performances Party Ahead of Golden Globes Nominations
+-  AEV muss gegen Mannheim wieder in die Verlängerung
+-  Inauguran sede de la Comuna Simón Rodríguez en Puerto La Cruz
+-  Donald Trump spune că Războiul Civil American putea fi „soluționat prin negocieri”
+-  News24 | Here are the Daily Lotto numbers
+-  VIRAL: mostró el ritual de su esposa antes de subir al avión en EEUU y desató la intriga de muchos (VIDEO)
+-  Vlahovic all'ultimo respiro! Juve, 2-1 alla Salernitana: l'Inter torna a -2
+-  Vlahovic, urlo Juve: “Non molliamo nulla, qui mi aiutano tutti”
+-  Allegri: “Juve peggiorata in una cosa. Basta dire che il Var è oggettivo”
+-  Cuneo Volley inizia il 2024 con una vittoria a Ravenna
+-  Club de Leones celebra los 40 años de afiliación del Dr. Carlos Lantigua
+-  Anchetă la Poliția Constanța, după ce un șofer care a făcut accident nu a fost testat pentru alcool și droguri. Ce s-a aflat ulterior
+-  CBN disburses $61.64m to foreign airlines through Banks
+-  Buenos números para Caicedo; Noboa y Cabeza en pretemporada; Simisterra a Perú
+-  Concerns Mount Over Elon Musk’s Alleged Drug Use—Executives Worried About Impact on His $1 Trillion Empire Spanning Tesla, SpaceX, and Others, WSJ Reveals
+-  Fati yt/ Horoskopi 8 janar 2024
+-  ট্রাকের কাছেই হোঁচট খেলেন মুরাদ
+-  Kompania botërore tregon rënien drastike të Kurtit e Osmanit në rrjete sociale
+-  Pioli spiega: «Jimenez al posto di Florenzi? L’ho scelto per un motivo»
+-  Τόμι Γίνιγκεν: «Στο δεύτερο ημίχρονο υποφέραμε αρκετά»
+-  Umfrage: 64 Prozent wollen Pistorius statt Scholz als Kanzler
+-  109 journalistes tombés en martyrs à Gaza
+-  איש התרבות והבמאי האהוב דן בירון הלך לעולמו
+-  [Football] Coupe de France : les 388 matches de DN n’auront pas suffi contre l’OM
+-  Woke-ideologi er ved at ødelægge topuniversiteter
+-  Woke-ideologi er ved at ødelægge topuniversiteter
+-  Speleolog i HGSS-ovac objasnio kako je pet osoba ostalo zarobljeno u špilji: “Ovdje je prvenstveno rizik za same ronioce”
+-  [ŽT] „Vienas iš didžiausių tankų mūšio pralaimėjimų nuo Antrojo pasaulinio karo.“ Skelbiami išskirtiniai kadrai (Video)
+-  Tai ne Suomija ar Lenkija. Buvęs CŽA vadovas skelbia sekantį Putino taikinį (Video)
+-  [ŽT] Kas rusų laukia po eilinio nepavykusio šturmo (Video)
+-  „Na, mes vis dar tikimės pavasarį...“ Nepaisant gandų, Danija žada pristatyti F-16 laiku
+-  [ŽT] Vokietija muša pavojaus varpais. „Sukurta spec. grupė.“ Kas šnipinėja ukrainiečius?
+-  [ŽT] Neįtikėtini vaizdai. Stalinas tapo šventu (Video)
+-  [ŽT] Neįtiko Italija. Zacharova „grūmoja dujine kuoka“
+-  Bogdanka Arka Chełm zaczęła 2024 rok od niespodziewanej porażki
+-  POSLEDNJA EPIZODA "RAME UZ RAME SA DRAGANOM" Poznata pevačica poslala SNAŽNU PORUKU SVIM UČESNICIMA: Da ZAOKRUŽIMO priču!
+-  16-godišnjak čiji su roditelji poginuli pušten iz bolnice, špekulira se krijumčarskoj ulozi suvozača u terencu
+-  İsveç Sivil Savunma Bakanı Bohlin: İsveç'te savaş olabilir
+-  La Genête. Pas de second tour pour les élections municipales partielles
+-  Søren Frank: Stop den vanvittige spekulation i vin! Jeg håber, at boblen brister
+-  Søren Frank: Stop den vanvittige spekulation i vin! Jeg håber, at boblen brister
+-  Srbija uvjerljiva protiv Njemačke: ‘Ovo je šetnja kroz bazen’
+-  Volleyball: Rhein-Sieg Volleys Much & Buisdorf bezwingen Spitzenteam
+-  مقدمات نشرات الأخبار المسائية ليوم الأحد
+-  Integrantes de APC se reunieron con el intendente interino de Salto, Gustavo Chiriff
+-  Aeroméxico inmoviliza temporalmente aviones Boeing 737 MAX 9 tras incidente con Alaska Airlines
+-  Radau gegen die Sau! - Trommler sollen Wildschweine aus Freibad vertreiben
+-  На війні загинув молодий український поет
+-  Allemagne: les conducteurs de trains appelés à trois jours de grève
+-  A Fiorano Modenese arriva il Servizio Civile Universale
