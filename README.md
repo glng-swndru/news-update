@@ -1,51 +1,11 @@
 # Latest News
--  সহজ জয়ে কোপার শেষ ষোলোতে রিয়াল
--  Nesvakidašnja situacija: Mladi Irac ispisao istoriju Blekburna, a zabranjeno mu da na dresu nosi jedan detalj
--  সরকার আমাদের ভোট নিয়ে এসে কোরবানি দিয়ে দেয় কিনা আশঙ্কা আছে: জিএম কাদের
--  नई दुल्हनिया के साथ हनीमून से लौटे अरबाज, एयरपोर्ट पर थामा शूरा का हाथ, क्यों हुए ट्रोल?
--  Captain Hosa Okunbo: Tribute To A Philanthropic Luminary @ 66
--  Buongiorno e il 2024, l’anno dell’Europa: gli obiettivi del centrale Toro
--  Empoli-Milan, Caprile è rinato: sfida l’idolo Maignan e sogna azzurro
--  Felipe Anderson, l’Al-Shabab offre 10 milioni ma a Lotito non bastano
--  हरियाणा बोर्ड डेटशीट 2024: हरियाणा 10वीं-12वीं बोर्ड परीक्षा 27 फरवरी से शुरू होगी, यहां देखें डेटशीट
--  Κρίσιμα 18χρονος μοτοσυκλετιστής - Τραυματίστηκε μετά από σύγκρουση στην Αγία Νάπα
--  İstanbul'da deniz ulaşımına hava muhalefeti engeli
--  Speaker Among asks Parliaments to anchor peace, end global conflicts
--  Ost-Länder zahlen 2,68 Milliarden Euro für DDR-Sonderrenten
--  Bauernproteste in Mittelsachsen: An diesen Stellen kann es am Montag eng werden
--  Groetzki über EM-Aus: "Schlechtester Zeitpunkt"
--  IMD rainfall update: इन राज्यों में भारी बारिश और तूफान के साथ ओलावृष्टि का अलर्ट जारी
--  Nach mutmaßlicher Entführung - Nächste Wende im Block-Krimi - jetzt sind die Kinder wohl auch nicht mehr beim Vater
--  Mario Zagallo, Brazil’s four-time World Cup winner, dies at 92
--  Ballon d'Or Scandal: PSG Under Investigation For Allegedly Manipulating Lionel Messi's 2021 Award
--  „Postoje različiti načini da se bude žena“: Džodi Foster o snimanju “True Detective”, svojoj partnerki i odgajanju sinova koji su feministi
--  이준석 신당, 윤석열 정부와 다른 ‘언론민주화’ 정책 시동
--  डीए बढ़ोतरी: कर्मचारियों और पेंशनभोगियों के महंगाई भत्ते में 9% की बढ़ोतरी, फरवरी से खाते में बढ़ेगी सैलरी, आदेश जारी
--  دنيا بطمة تلتمس العفو الملكي وتكشف تفاصيل جديدة لأول مرة!
--  طقس الأحد.. أجواء باردة مع تكون صقيع بهذه المناطق
--  عز الدين أوناحي يوجه رسالة للمغاربة قبل السفر إلى الكوت ديفوار
--  رسالة مثيرة من "محمد الضيف": نتنياهو يحفر بيده قبور المحتجزين!
--  Саломе Зурабишвили: Сегодняшний день является символом любви и добра
--  בת 13 נתפסה נוהגת ברכב כשלצידה בן 71 - החקירה חשפה התעללות מינית בקטינות
--  גרינפלד ינהל את מכבי תל אביב-מכבי חיפה, אלי חכמון שופט ה-VAR
--  Xuân Hinh nói Hồng Vân: "Nhìn thấy tiền là phải khinh tiền, đây lúc nào cũng tiền, sức yếu còn tham"
--  Transferat pentru 60.000.000 €, a jucat 152 de minute și s-a accidentat din nou
--  OVO JE RANKO, MUŽ MINISTARKE SLAVICE! Za njegove manire mogu da zahvalim njegovoj bivšoj supruzi Slovenki! Ovo je njihovo utočište
--  La Repubblica ed. Firenze: "Fiorentina fermata sotto la pioggia. Troppi errori: il Sassuolo rinasce"
--  فيديو : موقف إنساني ذهبي لجود بيلينجهام في مواجهة اراندينا
--  Nagpur News : प्रतिबंधित नायलॉन मांजा विक्रेत्यांवर पोलिसांची करडी नजर; आणखी एका आरोपीला अटक
--  Bombardament israelian în Cisiordania. Șase palestinieni au fost uciși
--  UŽIVO VIDEO: Patrijarh Porfirije služi liturgiju u Pećkoj patrijaršiji
--  Wagner: Ton bei Schwarz-Rot zu Migration unakzeptabel
--  Hessen fördert stärkere Nutzung der Gebärdensprache
--  Nin soo dilay Sargaal katirsanaa kooxda Al Shabaab oo lacag abaal-marin ah la siiyay
--  СМИ узнали о попытках ФРГ узнать принадлежность следящих за тренировками ВСУ дронов
--  Dash NG donates N110k to internet sensation Mummy Zee
--  "Только вид делает": Собчак заподозрила Богомолова в обмане
--  Yaponiyada zəlzələdə ölənlərin sayı 128-ə çatıb
--  स्कूल बंद: नोएडा में 14 जनवरी तक 8वीं तक के सभी स्कूल बंद रहेंगे, आदेश जारी
--  “인생에서 가장 행복한 날이에요!”…인성도 빛나는 벨링엄, 추위에 떠는 볼보이에게 담요 선물
--  FA Cup osoitti jälleen taikansa - pikkuseuran tuhkimotarinalle jatkoa
--  NHL:n suomalaisvahti keräsi suitsutusta - "Uskomatonta"
--  Examen jurídico a la ley de amnistía: ¿Está blindada ante al TC? ¿Puede haber sentencias dispares? ¿Tiene puntos débiles?
--  Horoscope Today : ਸਿੰਘ , ਤੁਲਾ, ਧਨੁ ਰਾਸ਼ੀ ਵਾਲਿਆਂ ਲਈ ਬੇਹੱਦ ਖ਼ਾਸ ਰਹੇਗਾ ਅੱਜ ਦਾ ਦਿਨ, ਜਾਣੋ ਅੱਜ ਦਾ ਰਾਸ਼ੀਫਲ
+-  부부싸움 중 아내 숨지게 한 30대 남편…국민참여재판서 징역 3년
+-  "이재명 대구 오면 작업" 협박 전화 피의자에 구속영장 청구
+-  올해 장애인연금, 지난해 대비 5.4%↑…월 최고 42만4천원
+-  피겨 차준환, 종합선수권 8연패…세계선수권 출전권 획득
+-  이낙연 전 대표, 이번 주 후반 탈당 시사hellip;quot;인사드리고 용서 구할 것quot;
+-  한동훈, 10일 1박2일 부산 방문...첫 현장 비대위 개최 예정
+-  국민의힘 quot;위중했다면 부산대병원서 수술 받아야...이재명 대표 '룰' 어겨quot;
+-  이재명 피습, 이제 예고까지hellip;검찰 quot;이재명 대구 오면 작업한다quot;는 60대 구속영장
+-  Paar lockt angeblich Frau aufs Feld und verbrennt sie
+-  الأونروا : نزوح نحو 90 في المائة من سكان غزة قسرًا بسبب الحرب.
