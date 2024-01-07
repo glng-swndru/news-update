@@ -1,11 +1,11 @@
 # Latest News
--  News.de – Neues Game Brewer-Spiel lässt Sie ins Flussdelta aufbrechen
--  Женщина и ребенок погибли при пожаре в Хабаровске
--  Ejercerá el TEE 88 millones de presupuesto en 2024
--  MPD: 10,000 devotees flocked to 1st night of Black Nazarene 'pahalik'
--  [[리얼푸드] 중국에서 급부상한 즉석발열식품
--  [[리얼푸드] ‘SNS 홍보로 인기’ 베트남 용과라면
--  [[리얼푸드] 말레이시아 영양제 시장, 편의점 단백질 음료에 주목
--  [[리얼푸드] 프랑스, 이국적인 패스트푸드가 뜬다
--  [남들은 동해안 일출 보지만…나는 박물관 ‘용 보러’ 간다 [요즘 전시]
--  [지인 나체사진 합성 제작했지만 ‘무죄’…이유가?
+-  أنشطة وفعاليات متنوعة لقصور الثقافة بالغربية هذا الأسبوع
+-  علاج جديد للسكري والسمنة يزيد حساسية الأنسولين
+-  Zwaargewonde na schietpartij, politie schiet op verdachte
+-  Twee gewonden door schietpartij in Arnhem
+-  Minister VS belooft
+-  Passenger recalls horror after plane window blows out mid-air
+-  Passenger recalls horror after plane window blows out mid-air
+-  [올해부터 통학버스·택배차량 경유차 사용 못한다
+-  [[부고] 도훈(SK수펙스추구협의회 임원)씨 모친상
+-  [서울 응암·홍은동 일대 수백가구 정전…추위 속 5시간여만에 복구
