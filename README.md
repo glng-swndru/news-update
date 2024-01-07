@@ -1,11 +1,11 @@
 # Latest News
--  AKP’nin İstanbul Büyükşehir Belediye Başkan adayı Murat Kurum oldu
--  Yeni bir esir takası olacak mı? Katar Başbakanı İsrailli esirlerin yakınlarıyla görüştü
--  Arda Güler'den resital: İlk maçında mest etti
--  Katil İsrail'in Cenin'de İHA ile düzenlediği saldırıda 6 Filistinli hayatını kaybetti
--  Ticaret Bakanlığı duyurdu: Mersin Limanı'nda ele geçirildi
--  Drastično poskupjeli starački domovi, umirovljenici u šoku
--  네이버 ‘치지직’, 일부 논란 스트리머에 골머리…모니터링·필터링 강화
--  Thêm nhiều loại vắc xin Chương trình tiêm chủng mở rộng về đến TP.HCM
--  "이재명 대구 오면 작업합니다"…112 협박범에 영장 청구
--  이낙연 "이번 주 후반 용서 구할 것" 탈당 선언 예고
+-  सुनचाँदीको मूल्य आज पनि स्थिर, कतिमा हुँदैछ कारोबार ?
+-  शतप्रतिशत हकप्रद शेयर विक्री गर्न नारायणी डेभलपमेन्ट बैंकले पायो अनुमति
+-  PSG : Dilemme pour Luis Enrique, ça peut profiter au clan Mbappé
+-  ממצא ארכיאולוגי מרגש בלב שטח לחימה
+-  De Lezersfoto - Zwaaien naar de boot
+-  Happy Traveller στην εξωτική Γκόα της Ινδίας
+-  Top 14 round-up: O'Gara's La Rochelle make it two wins on the bounce
+-  국제 가상현실 컨퍼런스, 2026년 대구에서 열린다
+-  2024 화천산천어 축제 개막일 10만명 찾아·· 상경기 활성화
+-  연료 대신 '맹물' 미사일…中 시진핑 대대적인 군부 숙청 배경
