@@ -1,11 +1,11 @@
 # Latest News
--  China Sanctions 5 US Arms Manufacturers Over Taiwan Weapons Sales
--  Reliance Committed To Making New Investments In Renewable Energy, Green Hydrogen Space In Tamil Nadu: Mukesh Ambani
--  Znanstvenici u mračnim morskim dubinama snimili biće zastrašujuća izgleda: Pogledajte što je vuklo za sobom
--  Todes-Drama auf A59 in Duisburg! Fußgänger von Reisebus erfasst ++ Vollsperrung
--  Saint-Jorioz. Arbres remarquables bientôt abattus : “On ne peut pas laisser planer le danger”
--  Wind Direction Sensor Market Analysis and Future Prospects for 2030
--  Charles Michel kandidirat će se na EU izborima
--  Βόρεια Κορέα: Νέα πυρά κοντά στα σύνορα με τη Νότια Κορέα - Για «δόλωμα» κάνει λόγο η αδελφή του Κιμ Γιονγκ Ουν
--  국민의힘 정승재 예비후보 출판기념회 열려
--  Patrijarh Porfirije služio Božićnu Liturgiju u Pećkoj patrijaršiji
+-  พิษน้ำท่วมปัตตานี ! “ปลากะพง” น็อคน้ำ สูญกว่า 10 ล้าน ได้ชดเชยแค่กว่าล้านบาท
+-  اجتماع طارئ لنقابة ملاك المحافظ الاستتمارية ببلدية اوبارى
+-  Thuê trọ phát hiện túi đựng vật lạ, hai cô gái tá hỏa mang đến đồn cảnh sát, chân tướng món đồ khiến chủ nhà cảm ơn rối rít
+-  مقتل 26 عنصرا من حركة الشباب في الصومال.
+-  Curfew continues at Barahathawa Municipality in Sarlahi
+-  Nepal, India agree on strengthening power transmission system
+-  Absuelven a Maradona por evasión fiscal en Italia
+-  Ein großer Karriereschritt nach Atlanta
+-  Đọc vị mãnh tướng trong 'Tam quốc diễn nghĩa', hiểu 6 cấp độ của kẻ trí: Tào Tháo mới cấp độ 2, ai là số 1?
+-  Ağrı'nın geleneksel mutfağı: Bu lezzeti denediniz mi?
