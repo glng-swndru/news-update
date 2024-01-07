@@ -1,11 +1,11 @@
 # Latest News
--  정상혁 신한은행장 "고객 몰입 통해 더 나은 혜택과 가치 선사해야"
--  Ev sahibi olanlar yandı tam katı olacak. İşte devletin alacağı ödeme
--  İzmir'de deniz ulaşımı durduruldu
--  Mahfuz, Hatta Ramli dilantik Naib Presiden Amanah
--  I'm heartbroken! Pastor Kanyari speaks after sister's death
--  Tales from the Coffeeshop: Covid craze makes a comeback
--  Google, Meta and Tiktok’s debts removed from Russian database
--  ভোট দিলেন নসরুল হামিদ
--  এবার ভোটারের উপস্থিতি কম হবে: হিরো আলম
--  Ar reikės eiti į mokyklą žvarbų pirmadienio rytą?
+-  AKP’nin İstanbul Büyükşehir Belediye Başkan adayı Murat Kurum oldu
+-  Yeni bir esir takası olacak mı? Katar Başbakanı İsrailli esirlerin yakınlarıyla görüştü
+-  Arda Güler'den resital: İlk maçında mest etti
+-  Katil İsrail'in Cenin'de İHA ile düzenlediği saldırıda 6 Filistinli hayatını kaybetti
+-  Ticaret Bakanlığı duyurdu: Mersin Limanı'nda ele geçirildi
+-  Drastično poskupjeli starački domovi, umirovljenici u šoku
+-  네이버 ‘치지직’, 일부 논란 스트리머에 골머리…모니터링·필터링 강화
+-  Thêm nhiều loại vắc xin Chương trình tiêm chủng mở rộng về đến TP.HCM
+-  "이재명 대구 오면 작업합니다"…112 협박범에 영장 청구
+-  이낙연 "이번 주 후반 용서 구할 것" 탈당 선언 예고
