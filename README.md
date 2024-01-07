@@ -1,51 +1,11 @@
 # Latest News
--  사천IC복합유통상업단지 도시개발사업 1단계 완료
--  박용호 밀양middot;의령middot;함안middot;창녕 예비후보middot;middot;middot;총선 출마 본격화
--  밀양시, 반려동물지원센터 새해 첫 주말 놀이장 개장
--  Zahreje pohárik alkoholu v mrazoch? Jasné slová doktorky! Z jej slov mnohí nadšení nebudú
--  Hrozivé odhalenie o prezidentovi Zelenskom: Takto žil na začiatku ruskej invázie, úplne zožltol!
--  V Japonsku zadržali poslanca vládnej strany: Je podozrivý z prijatia úplatkov
--  Шампионът Наполи започна годината със загуба
--  Emergency road safety meeting after tragic accident
--  Beşiktaş'ta Fernando Santos dönemi başlıyor
--  Дрогиран полицай катастрофира, докато пътува към сигнал за инцидент
--  Eni Çobani apel Dallëndyshe Bicit: Ku qëndron ligjshmëria e ASHK-së për të anuluar lejen e legalizimit?
--  באישור היועמ"שית ונתניהו: אהרן ברק יהיה השופט מטעם ישראל בביה"ד הבינלאומי בהאג
--  "ירידה של עד 50% במחירי החופשות לתקופה הקרובה ולפסח"
--  "הפורמט החדש של היורוליג לא טוב. הוא הורס את הליגות המקומיות ואת הכדורסל האירופי"
--  הביקורת הנוקבת של ניב גלבוע והמחשבה על דוכן בדובאי: כוכב הרשת פותח הכל
--  לאחר שסחט מחמאות: נחשף אלבום התמונות המביכות של דני אבדיה
--  مولانا فضل الرحمٰن نے الیکشن ملتوی کرنے کی قرارداد کی حمایت کر دی
--  קמפינג בחסות חמאס: נשיא המדינה חשף - כך נראות קייטנות הקיץ לילדי פעילי החמאס
--  Jenning de Boo uit Groningen slaat opnieuw toe en snelt naar goud op 500 meter bij EK Afstanden
--  Virginia Beach education staff receive raises, among first to use early literacy program
--  Demonstration to be held condemning attack on NGO office in Nicosia
--  Tết đã rất gần: Một con phố Hà Nội đông nghịt khi giới trẻ đua nhau bắt trend chụp ảnh áo dài Tết
--  الجماهير البلجيكية غاضبة من كورتوا بعد إعلان عدم مشاركته في يورو 2024
--  Handball-Pokal: Der Kaller SC hält gegen den klassenhöheren TuS Zülpich lange mit
--  টাঙ্গাইল-৭ আসনে বিজয়ী খান আহমেদ শুভ
--  ৮০ হাজার ৭৬৮ ভোটের ব্যবধানে জিতলেন টিপু মুনশি
--  ঢাকা-২০ আসনে নৌকার প্রার্থী বেনজির আহমদ বিজয়ী
--  كرامي يعزّي قائد الجيش بوفاة والدته
--  Φαίη Σκορδά: «Έχουν γραφτεί πράγματα που δεν είχαν καμία βάση αλήθειας και δεν ασχολήθηκα ποτέ»
--  Un dimanche à la campagne : ce jour où la carrière de Marie-Claude Pietragalla a failli être ruinée
--  Adıyaman'da feci kaza
--  В Гърция арестуваха българин за телефонна измама, представял се за лекар
--  קייטנת הטרור: הרצוג חושף בראיון ל-NBC את מחנות הקיץ של חמאס
--  OnePlus: λανσάρει το πρώτο Snapdragon 8 Gen 2 κινητό με μπαταρία 5500 mAh
--  Harvard President’s Ouster Makes Visible the Rising Power of the Far Right
--  গণতন্ত্রকামী মানুষের বিজয় হয়েছে: বিএনপি
--  МРОТ увеличился на 18,5% в Приморье
--  Umwami wa Yorudaniya yageze mu Rwanda
--  Taraji P. Henson Fought for Drivers to Take ‘Color Purple’ Cast to Set After ‘They Gave Us Rental Cars,’ Told Oprah ‘We Gotta Fix This’ When No Food Was at Rehearsals
--  AI: Friend or Foe? How CES 2024 will show the future of humanity
--  IJzersterke De Boo imponeert ook op EK met goud op 500 meter
--  پاکستان سپر لیگ 9 کا شیڈول تیار، ایونٹ میں 34 سنسنی خیز میچز کھیلے جائیں گے
--  تشكيلة أرسنال الرسمية أمام ليفربول في كأس إنجلترا
--  "Каритас": Благодарим, Plovdiv24.bg!
--  Киров стал Новогодней столицей России
--  Ditanya Aneis, Ganjar Kasih Ponten Lima Pada Kinerja Prabowo Selama Jadi Menhan
--  Táchira sumó minutos de cara a la nueva campaña
--  Mia Khalifa tells cat 'that's your mummy' as it stares at her racy sold-out calendar
--  Arihant Hospital performs successful kidney transplant
--  चंडीगढ़ मेयर चुनाव की तत्काल घोषणा करें, क्योंकि पहले ही काफी देरी हो चुकी हैः कांग्रेस
+-  التعليم تعلن جداول امتحانات الفصل الدراسي الأول للطلاب المصريين في الخارج
+-  SON DAKİKA: Beşiktaş teknik direktörlük görevine Fernando Santos'un getirildiğini açıkladı!
+-  תחקיר חדש חושף: מה גרם למחדל הענק ב-7.10?
+-  ישראל בחרה נציג להאג: זה השופט שישפוט בתביעת 'רצח העם'
+-  La Xunta exige al Gobierno más información sobre los pellets y califica el vertido de "problema nacional"
+-  Rueda juega la baza de la amnistía en su campaña para presidir la Xunta de Galicia
+-  Rueda juega la baza de la amnistía en su campaña para presidir la Xunta de Galicia
+-  Adorable moment King Charles praises kids’ ‘very cool’ homemade toy Land Rover – but cop hands them parking ticket
+-  «Сочи» уступил «Северстали» всухую и потерпел 12-е поражение подряд
+-  البابا تواضروس الثاني: واثقون أننا سنعبر الأزمة ونتجه لمستقبل أكثر رخاء
