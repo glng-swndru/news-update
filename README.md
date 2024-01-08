@@ -1,11 +1,11 @@
 # Latest News
--  בטרם עת: הלכה לעולמה קרן פוזנר, מבכירי מעצבי הפנים למסחר בישראל
--  Vatandaşlar İnanamadı: Lodos Sonrası Sahil Kıpkırmızı!
--  Ramaphosa to deliver January 8 statement as ANC fights for survival
--  NSRI warns residents to avoid stricken fishing vessel in St Francis Bay
--  SACP slams OUTA for dragging its name in NSFAS corruption allegations
--  “Predstoji teška godina po pitanju Kosova”
--  El Gobierno, dispuesto a subir el salario mínimo aunque no haya acuerdo
--  Тошкентда Paynet шохобчаларида пластик картасига пул туширтириб, қочиб кетишни одат қилган шахс ушланди.
--  TV viewers warned another major channel will disappear TOMORROW along with BBC and ITV – check now before it’s too late
--  Perang Tabuk Buktikan Kepiawaian Rasulullah SAW Sebagai Panglima Tertinggi
+-  Egonu, schiacciata finisce in faccia a Mazzanti: web scatenato sul labiale
+-  Sinner resta numero 4, Arnaldi si avvicina ai top 40: la nuova classifica Atp
+-  Classifica WTA: cinque azzurre in top 100, Swiatek sempre al comando
+-  Rapp. Piemonte Under 19 e Under 17, si riparte: le date del primo raduno del 2024
+-  الملك يهنئ فيليكس تشيسيكيدي بمناسبة إعادة انتخابه رئيسا للكونغو الديمقراطية
+-  이경용 ldquo;서귀포시에 종합형 스포츠 스프링캠프 유치할 것quot;
+-  국민의힘 의원 최초 quot;김건희 특검, 재의결 찬성표 던지겠다quot;hellip;추가 이탈은?
+-  전현희 quot;尹 '김건희 특별법' 거부권 행사, 이해충돌 위반middot;직권남용 해당quot;
+-  คิกออฟ "เงินดิจิทัล 10,000 บาท " กฤษฎีกาไฟเขียวให้กู้ 5 แสนล้าน
+-  ผู้เสียหายร้อง ปอท.เอาผิดนายหน้าอ้างพาไปทำงานสวีเดน
