@@ -1,51 +1,51 @@
 # Latest News
--  تنمية: برمجة انجاز 326 مرفقا عموميا عبر كافة التراب الوطني في 2024
--  الإنجازات التي تجسدت لحد الآن تؤكد صواب توجه رئيس الجمهورية
--  تنمية: برمجة انجاز 326 مرفقا عموميا عبر كافة التراب الوطني في 2024
--  من هو علي بداوي المدير العام الجديد للأمن الوطني؟
--  بوغالي: آفاق التطور الاقتصادي اصبحت بادية للعيان
--  نظارات الواقع الافتراضي Vision Pro من آبل تجذب اهتمام المستخدمين
--  جبهة التحرير الوطني: اللجنة المركزية تزكي في دورتها العادية الثانية التشكيلة الجديدة للمكتب السياسي للحزب
--  إيداع 10أشخاص الحبس المؤقت على خلفية حادثة تسلل شاب إلى طائرة للخطوط الجوية الجزائرية بمطار وهران
--  التكفل الفوري بالطلبة الفلسطينيين : سفير فلسطين بالجزائر يثمن عاليا توجيهات الرئيس تبون
--  مجلة الجيش : الإنجازات التي تجسدت لحد الآن تؤكد صواب توجه رئيس الجمهورية
--  مجلس الوزراء: المقاولون الذاتيون يستفيدون من نظام ضريبي تفضيلي بموجب قانون المالية 2024
--  جيدو/جائزة البرتغال الكبرى: الجزائر حاضرة بثلاثة مصارعين بأوديفيلاس
--  كرة القدم/ سحب قرعة كأس الجزائر 2023-2024: شبيبة القبائل – شباب بلوزداد، تتصدر قمة مباريات الدور ال32
--  St Dalfour and Renowned Chef Pierre Gagnaire Join Forces to Craft Culinary Magic with St Dalfour Fruit Spreads
--  WORLD'S FIRST WIRELESS TRANSPARENT OLED TV REDEFINES THE SCREEN EXPERIENCE
--  Shell onderaan in AEX-index, ASML bij winnaars op Damrak
--  Overijssel roept nieuw kabinet op: luister naar de regio
--  عاجل.. "جاكم البرد".. توقعات بوصول هذه المناطق في المملكة لـ"صفر مئوية"
--  بالفيديو.. أمطار غزيرة وتدفق السيول في تهامة عسير
--  Out of Office Reply: Jason Boyes
--  محافظ الغربية يفتتح معرضين جديدين لبيع السلع بأسعار مخفضة
--  Cae pino sobre cableado, acuden Bomberos para retirarlo
--  Se va la jirafa ‘Benito’ de Juárez a Puebla
--  52 candidates vying for 19 NA seats
--  Chihuahua, un riesgo para la niñez
--  مونشنجلادباخ يسمح للياباني إيتاكورا بالمشاركة في أمم آسيا
--  Samsung launches raft of new displays, including the Neo QLED 8k with next-gen AI processor
--  Samsung launches raft of new displays, including the Neo QLED 8k with next-gen AI processor
--  "¿Pero por qué Nadal no se retira?"
--  కాన్ఫరెన్స్‌ హాల్‌గా రైతు వేదికలు!
--  Ice Spice goes viral with funny new song teaser, produced by RiotUSA
--  Dortmund bangt erneut um Karstadt: „Keine Ahnung, wo die Reise jetzt hingeht“ – Betriebsratschef verzweifelt
--  המטוס התפרק בהמראה, האייפון נפל מגובה 4.8 ק"מ - ושרד
--  צעיר יצר אקדח מאולתר וירה בעצמו בשוגג: "חרדות מה-7 באוקטובר גרמו לי לבנות אותו"
--  כדי לחסוך בעלויות בזמן המלחמה: דרעי הסכים להקפיא את החוק הנורבגי
--  Veracyte to buy Israeli cancer detection co C2i Genomics
--  The emergency dam in Maastricht has been closed
--  Sur smiley og bøde: Remees bar dumper kontrol
--  Remaniement : Élisabeth Borne a présenté sa démission, Emmanuel Macron l'a acceptée
--  PHOTOS. Près de Lyon : ces villages du Rhône sublimés et complètement sous la neige
--  Ipsos : rachète la société néerlandaise, I&O Research
--  タイ・ゼネコン大手ITD、社債償還延長提案 資金繰り悪化
--  विकसित भारत संकल्प यात्रा के माध्यम से सरकार आपके आंगन तक आई है : महामहिम राज्यपाल श्री पटेल
--  تقديم طلب لاحتجاز طاجيكي متهم بالتخطيط للهجوم على كاتدرائية كولونيا لحين تسليمه للنمسا
--  أبو الغيط يهنئ الرئيس السيسي بالولاية الرئاسية الجديدة
--  Minden szociális intézménynek kötelező befogadnia a hajléktalanokat a nagy hideg miatt
--  Franz Beckenbauer death latest: Gary Lineker leads tributes as family announce tragic passing of German football icon
--  Sagde du krig … her … i Sverige? Advarslen fra regeringen er tindrende klar. Blikket er stift rettet mod Rusland
--  Sagde du krig … her … i Sverige? Advarslen fra regeringen er tindrende klar. Blikket er stift rettet mod Rusland
--  Haunting pictures show scantily-clad girls and women on billionaire Jeffrey Epstein's 'pedo island' along with his madam Ghislaine Maxwell - as they're released in the latest court docs dump
+-  Der Kaiser ist jetzt für immer im Fußball-Himmel
+-  בעולם הכדורגל נפרדים מבקנבאואר: "נתגעגע, אחד הגדולים אי פעם"
+-  স্বতন্ত্র প্রার্থীর সঙ্গে বিশাল ভোটের ব্যবধানে সাঈদ খোকনের জয়
+-  বাবার পর ছেলের কাছেও ভোটে হারলেন বঙ্গবীর কাদের সিদ্দিকী
+-  স্বরাষ্ট্রমন্ত্রীকে শুভেচ্ছা জানালেন গোয়েন্দা পুলিশের কর্মকর্তারা
+-  UOL NEWS
+-  Indiana GOP lawmaker to retire from House
+-  Még menteni próbálják a barlangba rekedt turistákat
+-  Akcióba lépett az ügyészség, egy embert gyanúsítottként hallgatott ki a tiltakozásokban élen járó budapesti iskola állítólagos korrupciós ügyében
+-  Folyik a nyomozás, Gérard Depardieu-t azzal vádolják, amiért mindig is dicsérték
+-  Fransa Başbakanı istifa etti
+-  ΠΑΟΚ – Ολυμπιακός 1-3: Διπλό κορυφής για τους Πειραιώτες στη Volley League
+-  AKTUÁLNE Na železnici na Urale v blízkosti ropného skladu došlo k výbuchu
+-  V noci môže teplota niekde klesnúť na mínus 19 stupňov Celzia, upozorňuje SHMÚ
+-  Fatih Karagümrük, Trabzonspor'dan Dimitrios Kourbelis'i transfer etti
+-  Bauernproteste am Montag: So lief der Tag im Vogtland
+-  Matthäus über Beckenbauer: "Großartiger Mensch"
+-  Frankreichs Regierung tritt zurück
+-  Bauernprotest: Mehr als 550 Fahrzeuge rollen bei Sternfahrt durchs Erzgebirge
+-  BBC insists it’s taking Amanda Abbington’s Strictly complaint ‘incredibly seriously’ amid Giovanni row
+-  Lil Nas X Cosplayed Jesus’ Crucifixion To Announce His Next Single, ‘J Christ,’ Proof That His ‘Christian Era’ Is Real
+-  Cult of the Lamb recebe atualização Sins of the Flesh em 16 de janeiro; trailer e detalhes
+-  Belgian coach Broos hopes for 2017 repeat with South Africa
+-  Meghalt Franz Beckenbauer
+-  Dates, lieux, diffusion... L'agenda des grands événements de 2024, une année sportive exceptionnelle
+-  Más de 200 mil enfiesta de Mamita
+-  Топ политолог се произнесе за ротацията
+-  Franse premier Borne stapt op voor herschikking kabinet
+-  Durham Fire Department rescues man from high-rise construction site
+-  LATE BRIEFING - Unternehmen und Märkte
+-  Supreme Court rejects decade-old #twitter First Amendment case
+-  New High-Performance Docking Stations Unveiled by Kensington at CES 2024
+-  DD: TUI AG: Mathias Kiep, Kauf
+-  Барбоза уверен, что Миранчук добьется успеха в Италии
+-  Óscar Isaula regresa al Estrella Roja de Danlí
+-  Motociclista é socorrido após colisão com carro em rodovia no Nortão; motorista fugiu
+-  Padanje podpore vladi, Golobu in Svobodi se je ustavilo
+-  Frankreich: Regierung von Premierministerin Élisabeth Borne tritt zurück
+-  A do jetë pjesë e Big Brother VIP 3? Përgjigjet Adrola Dushi
+-  Ranas arborícolas caníbales están invadiendo EEUU y matando a especies nativas
+-  Citypress | ANC turns to ancestors for intervention ahead of birthday celebrations and upcoming elections
+-  Kylie Jenner is ‘insecure’ at Golden Globes but Timothee Chalamet’s ‘overkill PDA shows he’s embraced inner Kardashian’
+-  Carmine Starnino Named Editor-in-Chief
+-  Кабмін скасував мораторій на відключення комунальних послуг та нарахування пені населенню
+-  Remaniement : Élisabeth Borne, fin de mission à Matignon
+-  Baby chain with 34 stores to OPEN branches despite high street woes – is one coming near you?
+-  Baby chain with 34 stores to OPEN branches despite high street woes – is one coming near you?
+-  خيام وحقائب إيوائية سعودية لتخفيف معاناة أهالي رفح
+-  Balluku: Në qershor hapet tuneli i Llogarasë
+-  Franz Beckenbauer, regarded as one of the finest footballers, dies aged 78
