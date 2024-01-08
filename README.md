@@ -1,51 +1,51 @@
 # Latest News
--  Out of This World Nutrition: Designing the “Perfect” Meal To Feed Long-Term Space Travelers
--  Hotel gas explosion injures at least 10 in Texas in ‘major incident’
--  Fallece padre del diputado Alfredo Chávez
--  Lamenta alcalde de Juárez fallecimiento de 'Teto' Murguía
--  Lái ô tô ba tháng, bị thổi phạt gấp đôi 20 năm đi xe máy
--  10 bức ảnh hiếm hoi trong cuộc đời bóng đá của Franz Beckenbauer
--  Adams promises no migrant families will sleep on NYC streets as critics blast shelter evictions
--  City committee to consider selling parkland for Glenmore Landing redevelopment
--  Errachidia: Affluence remarquable dans les bureaux administratifs pour s’inscrire au programme d’aide sociale directe
--  [경기도, 반도체·바이오 등 미래첨단산업인력 6천 명 양성
--  ["감옥서 깡패 미화 뮤비 찍으며 공권력 조롱하더니"…탈옥한 조폭 두목
--  [며느리가 살린 ‘K-푸드 신화’…불닭볶음면, 66조 시장 흔들었다
--  [“6.43%↑ 엔비디아 사상 최고가” 美 증시, 기술주가 이끈 반등…‘8만전자’ 정복 탄력 붙나 [투자360]
--  [구내식당, 너마저…작년 식사비 증가폭 ‘역대 최대’
--  [충남도, 장애인 자립생활 체험홈 활성화 모색
--  KKTC'deki döviz bürosunu soyup, sahibini öldüren katil zanlıları yakalandı
--  Galatasaray çağırdı! Berkan Kutlu geri dönüyor
--  Вацке: Бекенбауер е най-великият германски футболист
--  Tyro adopts the Pismo platform to enhance its operations in Australia
--  Narwal Unveils World's First Most Powerful Vacuum Mops at CES 2024
--  Zonguldak'ta trafik kazası... 1 kişi yaşamını yitirdi
--  Bosna Hersek ve ABD'den ortak tatbikat
--  KKTC'deki döviz bürosunu soyup, sahibini öldürmüşlerdi... Katil zanlıları yakalandı
--  Lübnan Başbakanından Gazze için "diplomatik çözüm" mesajı
--  Galatasaray'da sürpriz gelişme! Berkan Kutlu geri dönüyor
--  “Llevar la Rosario Castellanos a todo el país”: Sheinbaum
--  Anthony Richardson, Jonathan Taylor give Colts a view into a promising future
--  Gigantische Radiokreise jenseits der Galaxie
--  Tito Nieves encabeza en Infecar el festival Viva la Salsa
--  Los centros canarios de FP podrán retomar ya las prácticas suspendidas
--  Rosell se incorpora el 19 a la Audiencia y Díaz Tejera será el titular de Violencia 3
--  The Ephemeral Geography of the Eternal City
--  FENERBAHÇE HABERİ: Martial transferinde flaş gelişme! Görüşme detayları belli oldu
--  Tinejdžerka prijavila virtuelno silovanje, policija ne zna kako da postupi
--  דג נדיר שנתפס ברשת מעורר אימה בתאילנד: "זה דג האבדון. אסון טבע בדרך אלינו"
--  Ana Guevara asegura que el presupuesto está listo para París 2024, ¿para todos los atletas?
--  Willem Dafoe enthüllt seinen Hollywood-Stern
--  Christoph Daum: 20 Chemos, aber „es wird nicht besser“ | Sport
--  Tech-Werte pushen Wall Street: Dow Jones schließt trotz Boeing-Zwischenfall im Plus
--  United Airlines finds loose bolts on key part of grounded Boeing jets
--  Embaixada dos EUA diz que 'democracia venceu' em publicação sobre um ano do 8 de Janeiro
--  Unprecedented Black Summer showed us what needs to change to keep Australians safe
--  الرئيس الجزائري: قتل الصحفيين بغزة “وصمة عار” ستلاحق إسرائيل
--  Ecuador decreta estado de excepción y toque de queda tras fuga de “Fito”, el líder de “Los Choneros”
--  AEW News: This Week’s Being The Dark Order, Executive Promoted To VP
--  العرب يبحثون عن اللقب السابع
--  티빙, 네이버 제쳤다…'유료 중계 시대' 시작?
--  В каких государствах была зарегистрирована дефляция по итогам года?
--  한동훈, 천태종 총본산 구인사 방문…덕수 스님과 차담
--  익산 황수연전통식품, 나눔곳간에 365만원 기탁
+-  Un celular que cayó del Boeing de Alaska Airlines sobrevive a una caída de 5.000 metros
+-  Tourism PG's new location caters to foot traffic in downtown Prince George
+-  CES 2024: Volkswagen’s Integration of ChatGPT into New Models
+-  Snowfall warnings issued for much of central Saskatchewan
+-  Four COVID-related deaths registered in India on Monday
+-  Moon Landing Attempt by US Company Appears Doomed After ‘Critical’ Fuel Leak
+-  [곽노정 SK하이닉스 사장 “3년내 시총 2배 키워 200조…1분기 D램 감산 축소 검토”
+-  [美 첫 민간 달 착륙선 페레그린 “심각한 연료 손실”
+-  [“곧 7000만원 찍겠는데 지금이라도?”…웅비하는 비트코인에 깊어지는 고민 [투자360]
+-  [“숨이 안 쉬어져요”, 전화 끊긴 신고자 살렸다
+-  [사장님보다 돈 많아 보이던 경리…정체 알고보니
+-  [서용주 파주갑 민주 예비후보 북콘서트…“용기있는 변화 만들 것”
+-  [美하원 “中 저사향 반도체에도 관세 부과해야”
+-  [이준석·이낙연 ‘연대 드라이브’, 양향자 출판기념회 공동 축사
+-  [[헤럴드 운세] 2024년 01월 09일 오늘의 운세로 만드는 완벽한 하루, '오운완'
+-  [11월 경상수지 40.6억달러 흑자…7개월 연속 플러스
+-  [내일부터 지하철 4호선, 출근시간엔 ‘의자 없는 열차’ 다닌다
+-  [‘삼양 3세’ 전병우 CES 참석…신유열·김동선 이어 ‘광폭행보’
+-  [나스닥 2%대 상승…오늘 국내증시도 모처럼 ‘기(氣)지개’ 펴나 [투자360]
+-  [송창현 포티투닷 대표 “미래차는 ‘AI 머신’, 스스로 학습하는 존재될 것” [CES2024]
+-  [서울시, 청년예술가 작업공간 ‘사각사각 플레이스’ 입주자 모집
+-  Avient fija la fecha para la publicación de los resultados del cuarto trimestre de 2023 y su retransmisión por Internet
+-  Bolsa mexicana cae un 0,03 % y ha perdido en cuatro de las primeras cinco sesiones de 2024
+-  Plains All American aumenta las distribuciones trimestrales
+-  MidCap Financial fija la fecha del informe de resultados de fin de año
+-  EbixCash registra un fuerte crecimiento en soluciones de pago
+-  United Community Banks publicará los resultados del cuarto trimestre el 24 de enero
+-  FIFA descarta sanciones a Brasil tras regreso de presidente de Federación Brasileña de Futból
+-  Primis Financial presentará sus resultados del cuarto trimestre el 25 de enero
+-  Caleres mantiene su previsión de beneficios para 2023 en medio de los retos del mercado
+-  Johnson&Johnson, kanser tedavisi geliştiricisi markayı satın alıyor
+-  الشيخ حمد بن خليفة بن أحمد وزيراً للرياضة والشباب
+-  نائب وزير المياه والزراعة السعودي لـ «العرب»: إكسبو الدوحة يعزز قدرات المجتمع الدولي لمكافحة التصحر
+-  The $180 Lenovo Tab M11 has a 90Hz display, updates through 2028
+-  بعد اغتيال العاروري والطويل.. هل حزب الله مخترق استخباراتياً؟
+-  Garmin Unveils Sports Bra Compatible Heart Rate Monitor
+-  Antigo internacional argentino internado em clínica de saúde mental
+-  البنتاغون: لا خطط لانسحاب أمريكي من العراق
+-  Der Verein will offenbar Assan Ouédraogo vom FC Schalke
+-  Tom Beck: Schauspieler legt Betrugsgeständnis ab
+-  Ulysses se reúne com superintendente da Suframa e pede mais incentivos às Áreas de Livre Comércio
+-  32 banks with early direct deposit
+-  Pelotero dominicano salió en libertad tras pagar fianza en un tribunal
+-  Air New Zealand flight sale announced for 2024
+-  ‘Mass casualty event’ after explosion at hotel in Fort Worth
+-  Boeing Jetliner That Suffered Inflight Blowout Was Restricted Because of Concern Over Warning Light
+-  VIDEO: Enorme explosión en el centro de esta ciudad de Texas produjo gran columna de humo y escombros
+-  China investors will be asking these 3 questions in 2024
+-  Explosion at the Sandman Signature hotel in Fort Worth leaves ‘at least 10 injured’ and is declared a ‘major incident’ by city police
+-  Startling Photos Show Fort Worth Hotel Explosion: 'Major Incident'
