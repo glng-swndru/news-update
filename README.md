@@ -1,11 +1,11 @@
 # Latest News
--  chor.netto feiert "Silberne"
--  Frosinone, ufficiale Bonifazi: i dettagli e il comunicato
--  Il pronostico di Fiorentina-Bologna, segna Zirkzee? Cosa dicono le quote
--  Juve-Djalo, l'assist mercato del Lille. E Giuntoli guarda verso Genova...
--  Il ritorno di Vlahovic, "l'uomo in più della Juve". E Allegri lo esalta così
--  سلالة كورونا المخادعة .. الأعراض الرائجة ليست في قاموسها
--  Ein Auto drohte abzustürzen
--  CES 2024 | JBL lança microfones Quantum para criadores de conteúdo
--  CES 2024 | LG mostra TV transparente que funciona quase sem fios
--  Poupança tem retirada líquida de R$ 87,82 bilhões em 2023
+-  Feestelijke start nieuwe jaar Regio'72
+-  Valioliiga-seura on aloittanut neuvottelut - tänne Englannin maajoukkuemies on matkalla
+-  Chelsea kaavailee jälleen uutta hankintaa - tämä 25 miljoonan euron mies nyt kiikarissa
+-  تراجع عدد بعائث خدمة جوازات سفر المقدسيين عبر البريد الأردني بنحو 80%
+-  फेयर प्राइस डीलर्स ने एमओ को सौंपा 8 सूत्री मांगों से संबंधित ज्ञापन
+-  Mes Copains d'abord : une comédie pleine d'humour au Grand Point Virgule à Paris
+-  تراند اليوم : كان مقربا من الهالك قاسم سليماني.. أنور مالك يعلق على مقتل القيادي في حزب الله ‎وسام الطويل
+-  Buscan bajar sobrepoblación en Cereso 3 en 6 meses
+-  Por bajas temperaturas pasan la noche 100 personas en refugios
+-  Localizan ejecutado en brecha a San Diego de Alcalá
