@@ -1,51 +1,51 @@
 # Latest News
--  سحب قرعة كأس الجزائر 2023-2024: شبيبة القبائل-شباب بلوزداد، تتصدر قمة مباريات الدور ال32
--  Kırgızistan'ın yeni bayrağı Bişkek'te göndere çekildi
--  Bakan Bayraktar 'yeni bir hareket başlatıyoruz' diyerek duyurdu: Hedef 46 milyar dolar tasarruf
--  Joseph: Vuçiq tenton të vendos kontroll të plotë mbi Serbinë, nëse përmendet Banjska mendja të shkon tek ai
--  '저 좀 영입해주세요!' 린가드, '西 최강 명문 클럽'에 역제안...현실적인 이적 가능성은?
--  [오피셜] 조현우 후계자 찾았다!...울산 HD, '차세대 GK' 문현호 영입
--  [전문] 서정희, 연하 남자친구 최초 공개 "결혼은 아직, 유방암 투병 당시 큰 힘"
--  아파트 주담대, 네·카·토에서 금리 비교하고 갈아탄다
--  "이 오빠들 청량이 근본이었지"…'13주년' B1A4, 군백기 끝 컴백 [MD현장](종합)
--  카카오 준법과신뢰위원회, 2개 소위원회 신설
--  이 또한 '이찬혁'답지 아니한가…'1조' MV 11일 오후 1시 11분 공개 [공식]
--  경기가 끝나도 퇴근하지 못하는 선수...'수원왕자' 인기는 아무도 못 말려 [유진형의 현장 1mm]
--  “강정호 스쿨, 더 빨리 가고 싶었다…벽에 부딪혔다” 공룡들 34세 포수 절치부심, 2023년 악몽 씻는다[MD창원]
--  "파격 그리고 치명적이다" 씨스타19(SISTAR19)의 화려한 귀환
--  [MD포토] B1A4 신우, '훤칠한 기럭지'
--  “한국 다녀오더니, 완전히 다른 사람” ML 코치 극찬…페디 위대한 도전, 197억원 혜자계약 ‘증명’
--  마음 떠난 손흥민 대체자→토트넘과 대화 2분 만에 이적 결심
--  [MD포토] B1A4 산들, '귀여움은 내 몫이야!'
--  [MD포토] B1A4 공찬, '나에게 빠져~'
--  [오피셜] 'GK 보강 성공' 인천, 베테랑 골키퍼 이범수 영입!..."스스로 증명해 보이고 싶다"
--  英 매체 "2부 리그로 이적할 것"→본인 등판 "거짓말 그만하지?"→"그거 오해야, 미안해" ...대체 누구?
--  [MD포토] B1A4 신우, '무대위 카리스마'
--  [MD포토] B1A4 산들, '무대에서 정말 신나!'
--  한때는 '엄친아'의 상징…UN 김정훈, 또 음주운전 이슈 '파도 파도 괴담만' [종합]
--  [MD포토] B1A4 공찬, '폭발하는 잘생김'
--  [MD포토] B1A4 공찬, '잘생김 가득'
--  [MD포토] B1A4 공찬-신우, '그게 바로 너야!'
--  [MD포토] B1A4 산들, '폭발하는 노래'
--  General Electronic Components Market Impacted By Supply Chain Disruptions And Chip Shortages Though Demand Remains Strong | Sony Corporation, Broadcom Inc., Panasonic Corporation
--  Global Homeopathy Market: Robust Growth Projected, Reaching USD 21.51 Bn by 2030
--  שלישי בגביע: שני מפגשים על טהרת הלאומית, קרית שמונה תימנע מהפתעה?
--  FMC setzen jüngste Kursschwäche fort
--  Melinda Ademi shkëlqen me një kostum provokues, në setin e ri të fotografive në Instagram
--  Extremismusforscher: Rechte unterwandern Bauernproteste
--  南方人遭歧視？︱遊哈爾濱被稱「南方小土豆」惹熱議 微博禁言79個惡意帳號
--  양운석 경기도의원, 지역 예산·특조금 749억 확보
--  오수봉 예비후보, 하남시 유·초·중·고학부모연합회 임원 간담회 가져
--  안산시 상록구 4층짜리 주상복합건물 화재
--  최영근 국힘 화성시 갑 예비후보 ‘먹고 사는 문제’ 출판기념회 개최
--  Epson מכריזה על מדפסת חדשה: "איכות תמונה יוצאת דופן"
--  קבוצת הייטקיסטים במיזם מציל חיים: "מתמודדים יחד עם המציאות החדשה"
--  הראל ויזל ותנובה במהלך מרגש: זה מה שיקרה ב-14.1
--  הדולר מזנק ב-1.4% וחוצה את רמת ה-3.7 שקל
--  Gostivar, mërgimtarët përfundojnë pushimet, nisen drejt vendeve perëndimore
--  Rolls-Royce Motor Cars läutet ein "außergewöhnliches" Jahr ein
--  Rolls-Royce Motor Cars annuncia un anno "straordinario
--  Rolls-Royce Motor Cars luidt "buitengewoon" jaar in
--  Rolls-Royce Motor Cars anuncia un año "extraordinario
--  Qiagen erholt - Morgan Stanley optimistisch, Aktienrückkauf
--  Cheese Powder Market to Reach USD 2.25 Bn by 2029, emerging at a CAGR of 6.8 percent and forecast 2023-2029
+-  Шарл Мишел Еврокенгаш раҳбари лавозимини муддатидан олдин тарк этиши мумкин.
+-  Ўзбекистонда БМТ Гиёҳванд моддаларга қарши курашиш бошқармаси лойиҳавий фаолияти кенгаяди.
+-  2023 йилда Ўзбекистоннинг олтин-валюта захиралари 1,2 млрд долларга камайди.
+-  Хитой Тайванга ёрдам берган АҚШ компанияларига қарши санкция киритди.
+-  Нукусда икки фуқаро номаълум моддадан заҳарланди. Улардан бири вафот этган.
+-  Бербок Исроилни Ғазодаги операция кўламини камайтиришга чақирди.
+-  Эркинлик, жамиятдаги парадокслар ва хавфли маҳаллалар — АҚШдаги ўзбек оилалари ҳаёти.
+-  Channel 4 Planning To Lay Off Up To 200 Staff
+-  Pankow: Frau wegen angeblicher Schulden mit Schreckschusswaffe bedroht
+-  أفضل علاج طبيعي للتمتع بصحة أفضل وعمر أطول
+-  وزير النقل اللبناني: نعالج أضرار الهجوم الإلكتروني على مطار بيروت
+-  Toney þakklátur fyrir stuðninginn: Þarf að borga mikið til baka
+-  Les 4 missions de la fusée Vulcan Centaur, qui vient de décoller vers la Lune
+-  החל מהלך להדחת ח"כ עופר כסיף מהכנסת
+-  זה קורה: הבשורות החשובות שמגיעות מנתב"ג
+-  “222.5조 부동산PF 지원 계획 수립하고도 위기…태영건설 사태, 정책 실패”
+-  [인사] KB국민은행
+-  Liz Cheney Says Trump 'Ought To Be Disqualified' As GOP Nears Iowa Caucuses
+-  المنظمون الصينيون يرفعون حظر بيع صافي الأسهم لصناديق الاستثمار المشتركة .
+-  Tutti i bonus e le agevolazioni con Isee basso che si possono richiedere nel 2024
+-  Ricky Gervais Responds To Golden Globes Win For Controversial Netflix Special: “I F***ing Won!”
+-  अयोध्या: माता सीता को मुंह दिखाई में कैसे मिला था ‘कनक भवन’?
+-  عن "أمن نصرالله".. ماذا كشف إغتيال العاروري؟
+-  ‘गुजरात सरकार को अधिकार ही नहीं था’, जानें बिलकिस बानो केस के फैसले में सुप्रीम कोर्ट ने क्या-क्या कहा?
+-  Pagelle Juve: Danilo pennella, Yildiz mai banale, Vlahovic bomber da tre
+-  Stadtberner Wahlen 2024: Mitte-Rechts-Bündnis will Rot-Grün Sitz abjagen
+-  Pakistanský Taliban zabil šesť policajtov, ktorí chránili očkujúci tím
+-  REDCARE PHARMACY : Morgan Stanley se mantiene neutral, sin recomendación.
+-  Madarász egyesben, Póta párosban búcsúzott a selejtezőben
+-  مسيرة إسرائيلية تستهدف سيارة في قرية حدودية جنوب لبنان
+-  Omicron Sub-Variant Surges in Australia, Experts Warn of Rapid Spread
+-  Biocytogen Enters into Bispecific Antibody Drug Conjugate Agreement with Radiance Biopharma
+-  PNP's Acorda files raps vs ex-soldier over fake ouster plot
+-  "Hanyatló Nyugat": Akár ötmillióval is olcsóbb egy új Volkswagen Németországban, mint itthon
+-  Trabzonspor'dan Rick Karsdorp hamlesi!
+-  İBB Başkan adayı Murat Kurum: İstanbullulara müjdelerimiz olacak
+-  Türkiye'nin en zeki şehri belli oldu!
+-  Global Electric Vehicle Market Size | Share: Surges to USD 385.78 Bn in 2023, Eyes USD 952.13 Bn by 2030
+-  Eskişehir'de 'Barbie' operasyonu
+-  Third Generation Sequencing Market Value Chain, Stakeholder Analysis and Trends and Forecast 2030| Hoffmann-La Roche AG, Illumina, Inc., Thermo Fisher Scientific Inc
+-  Bladder Hydropneumatic Tanks Market Overview: 2024-2030 Gross Revenue vs. Net Revenue Reporting
+-  Bundeswehr: Werden Truppenübungsplätze von russischen Drohnen ausspioniert?
+-  Facial Recognition Market 2024 Production, Revenue, Price, Market Share And Growth Rate Upto 2031 | Aware, Inc., Ayonix Corporation, Cognitec Systems GmbH, FacePhi, Fujitsu
+-  Circulation à Bordeaux : le pont d’Aquitaine fermera deux fois en janvier
+-  मधेशमा सत्ता गठबन्धनका ढुंगाना र चौधरीले गरे मनोनयन दर्ता
+-  Passengers Streaming: Watch & Stream Online via Starz
+-  Inter Miami pondera juntar mais um ex-Barcelona a Messi
+-  CMS: Mercedes-Benz Group AG: Veröffentlichung einer Kapitalmarktinformation
+-  LASK schlug auf Transfermarkt zu: Berisha wird ein Athletiker
+-  Global Pioneers in the Bitcoin Payment Ecosystem Market : Envisioning Business Trajectories, Essential Perspectives, Opportunity Mapping, Regional Insights, Strategic Blueprints, and Industry Sizing Projection until 2030 |CoinGate, VeriFone,lnc., BitPay,
