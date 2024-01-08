@@ -1,51 +1,11 @@
 # Latest News
--  Шарл Мишел Еврокенгаш раҳбари лавозимини муддатидан олдин тарк этиши мумкин.
--  Ўзбекистонда БМТ Гиёҳванд моддаларга қарши курашиш бошқармаси лойиҳавий фаолияти кенгаяди.
--  2023 йилда Ўзбекистоннинг олтин-валюта захиралари 1,2 млрд долларга камайди.
--  Хитой Тайванга ёрдам берган АҚШ компанияларига қарши санкция киритди.
--  Нукусда икки фуқаро номаълум моддадан заҳарланди. Улардан бири вафот этган.
--  Бербок Исроилни Ғазодаги операция кўламини камайтиришга чақирди.
--  Эркинлик, жамиятдаги парадокслар ва хавфли маҳаллалар — АҚШдаги ўзбек оилалари ҳаёти.
--  Channel 4 Planning To Lay Off Up To 200 Staff
--  Pankow: Frau wegen angeblicher Schulden mit Schreckschusswaffe bedroht
--  أفضل علاج طبيعي للتمتع بصحة أفضل وعمر أطول
--  وزير النقل اللبناني: نعالج أضرار الهجوم الإلكتروني على مطار بيروت
--  Toney þakklátur fyrir stuðninginn: Þarf að borga mikið til baka
--  Les 4 missions de la fusée Vulcan Centaur, qui vient de décoller vers la Lune
--  החל מהלך להדחת ח"כ עופר כסיף מהכנסת
--  זה קורה: הבשורות החשובות שמגיעות מנתב"ג
--  “222.5조 부동산PF 지원 계획 수립하고도 위기…태영건설 사태, 정책 실패”
--  [인사] KB국민은행
--  Liz Cheney Says Trump 'Ought To Be Disqualified' As GOP Nears Iowa Caucuses
--  المنظمون الصينيون يرفعون حظر بيع صافي الأسهم لصناديق الاستثمار المشتركة .
--  Tutti i bonus e le agevolazioni con Isee basso che si possono richiedere nel 2024
--  Ricky Gervais Responds To Golden Globes Win For Controversial Netflix Special: “I F***ing Won!”
--  अयोध्या: माता सीता को मुंह दिखाई में कैसे मिला था ‘कनक भवन’?
--  عن "أمن نصرالله".. ماذا كشف إغتيال العاروري؟
--  ‘गुजरात सरकार को अधिकार ही नहीं था’, जानें बिलकिस बानो केस के फैसले में सुप्रीम कोर्ट ने क्या-क्या कहा?
--  Pagelle Juve: Danilo pennella, Yildiz mai banale, Vlahovic bomber da tre
--  Stadtberner Wahlen 2024: Mitte-Rechts-Bündnis will Rot-Grün Sitz abjagen
--  Pakistanský Taliban zabil šesť policajtov, ktorí chránili očkujúci tím
--  REDCARE PHARMACY : Morgan Stanley se mantiene neutral, sin recomendación.
--  Madarász egyesben, Póta párosban búcsúzott a selejtezőben
--  مسيرة إسرائيلية تستهدف سيارة في قرية حدودية جنوب لبنان
--  Omicron Sub-Variant Surges in Australia, Experts Warn of Rapid Spread
--  Biocytogen Enters into Bispecific Antibody Drug Conjugate Agreement with Radiance Biopharma
--  PNP's Acorda files raps vs ex-soldier over fake ouster plot
--  "Hanyatló Nyugat": Akár ötmillióval is olcsóbb egy új Volkswagen Németországban, mint itthon
--  Trabzonspor'dan Rick Karsdorp hamlesi!
--  İBB Başkan adayı Murat Kurum: İstanbullulara müjdelerimiz olacak
--  Türkiye'nin en zeki şehri belli oldu!
--  Global Electric Vehicle Market Size | Share: Surges to USD 385.78 Bn in 2023, Eyes USD 952.13 Bn by 2030
--  Eskişehir'de 'Barbie' operasyonu
--  Third Generation Sequencing Market Value Chain, Stakeholder Analysis and Trends and Forecast 2030| Hoffmann-La Roche AG, Illumina, Inc., Thermo Fisher Scientific Inc
--  Bladder Hydropneumatic Tanks Market Overview: 2024-2030 Gross Revenue vs. Net Revenue Reporting
--  Bundeswehr: Werden Truppenübungsplätze von russischen Drohnen ausspioniert?
--  Facial Recognition Market 2024 Production, Revenue, Price, Market Share And Growth Rate Upto 2031 | Aware, Inc., Ayonix Corporation, Cognitec Systems GmbH, FacePhi, Fujitsu
--  Circulation à Bordeaux : le pont d’Aquitaine fermera deux fois en janvier
--  मधेशमा सत्ता गठबन्धनका ढुंगाना र चौधरीले गरे मनोनयन दर्ता
--  Passengers Streaming: Watch & Stream Online via Starz
--  Inter Miami pondera juntar mais um ex-Barcelona a Messi
--  CMS: Mercedes-Benz Group AG: Veröffentlichung einer Kapitalmarktinformation
--  LASK schlug auf Transfermarkt zu: Berisha wird ein Athletiker
--  Global Pioneers in the Bitcoin Payment Ecosystem Market : Envisioning Business Trajectories, Essential Perspectives, Opportunity Mapping, Regional Insights, Strategic Blueprints, and Industry Sizing Projection until 2030 |CoinGate, VeriFone,lnc., BitPay,
+-  בטרם עת: הלכה לעולמה קרן פוזנר, מבכירי מעצבי הפנים למסחר בישראל
+-  Vatandaşlar İnanamadı: Lodos Sonrası Sahil Kıpkırmızı!
+-  Ramaphosa to deliver January 8 statement as ANC fights for survival
+-  NSRI warns residents to avoid stricken fishing vessel in St Francis Bay
+-  SACP slams OUTA for dragging its name in NSFAS corruption allegations
+-  “Predstoji teška godina po pitanju Kosova”
+-  El Gobierno, dispuesto a subir el salario mínimo aunque no haya acuerdo
+-  Тошкентда Paynet шохобчаларида пластик картасига пул туширтириб, қочиб кетишни одат қилган шахс ушланди.
+-  TV viewers warned another major channel will disappear TOMORROW along with BBC and ITV – check now before it’s too late
+-  Perang Tabuk Buktikan Kepiawaian Rasulullah SAW Sebagai Panglima Tertinggi
