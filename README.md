@@ -1,11 +1,51 @@
 # Latest News
--  [노컷브이]북한 사흘 연속 포사격…김여정 "망신 주기 위한 기만 작전 진행"
--  합참 "해상완충지대 더 이상 존재 안 해"…효력상실 확인
--  與 김영우, 서울 동대문갑 출마 선언…"상식과 품격의 정치 복원"
--  5선 이상민 '국민의힘行'에 민주당 "배신, 엄중히 심판할 것"
--  署, '대통령실 진입 시도' 대진연 회원 구속영장 대거 신청
--  尹대통령 지지율 소폭 하락해 35.7%
--  '韓 테니스 동호인 최강자' 26세 청년 영예…KATA 시상식 개최
--  강형욱, 학력 오해 정면돌파 "단국대 아니라 고졸"
--  한미일 '인도-태평양 대화'에 발끈한 중국 "매우 위함한 길"
--  경찰, '이재명 습격범' 곧 송치…당적은 '공개 불가'
+-  Cierran carreteras al norte por tolvaneras
+-  Golden Globes host dragged over Barbie and Taylor Swift jokes
+-  주민투표로 제주에 기초단체 두는 특별법 '법안심사소위' 통과
+-  وفيات الاثنين 8/ 1/ 2024
+-  تفاصيل الحالة الجوية في المملكة
+-  "يديعوت أحرونوت" تكشف خسائر قياسية لإسرائيل جراء الحرب
+-  إعلام عبري: حكومة الحرب ورطت الجيش في غزة لتحقيق أهداف سياسية خاصة
+-  কুষ্টিয়ার চার আসনের তিনটিতেই স্বতন্ত্র জয়ী, একটিতে নৌকা
+-  Anwar akan terus petik ayat al-Quran, tapi rujuk Jakim dahulu
+-  Taylor Swift Loses Golden Globes Race But Trumpets ‘Eras Tour’ Passing Up Michael Jackson’s ‘This Is It’ at Global Box Office
+-  एक हप्तामा ४०० प्रतिशतले बढ्यो इस्कुसको मूल्य
+-  Nadia Mejía quiere gritar ¡Ecuador! en el Miss Universo: "Estoy más que lista"
+-  Nathalie Tedrick: La nueva novia del ex de María Teresa Guerrero
+-  Benny e Josh Safdie si dicono addio: svelati i motivi della separazione dei registi di Diamanti grezzi
+-  Marcelo Marchese
+-  Stella Maris Zaffaroni
+-  Jorge Aniceto Molinari
+-  Cisjordania en llamas, se abre un nuevo frente
+-  LigaPro: Equipos ecuatorianos contratan cracks, pero también para relleno
+-  หุ้น ITD ร่วงหนัก สะพัดขอเลื่อนจ่ายเงินต้น 2 ปี สร้างวิกฤติเชื่อมั่นตลาด “หุ้นกู้”
+-  Chimborazo: Sobrevivientes cuentan sobre doble accidente
+-  EXTRA denuncias: Esto denuncian los lectores en Guayaquil
+-  "Dur" ihtarına uymayıp silah çekti, bekçi bacağından vurdu! Olay sonrası gerginlik
+-  Police to decide whether to disclose identity of opposition lawmaker's assailant
+-  FM nominee vows to accelerate S. Korea-US-Japan cooperation amid growing NK threats
+-  SK Group to showcase carbon reduction, AI tech
+-  Netflix to unveil 2nd season of 'Gyeongseong Creature' this year
+-  LG Electronics unveils world's 1st wireless transparent OLED TV
+-  Samsung Electronics presents its vision for new AI era
+-  Carapungo: Sin rastro del causante del femicidio y apuñalamiento de un perro
+-  Samborondón: Dos hermanos murieron acribillados
+-  兼職合約醫生[毒品管理科]招聘｜起薪$426 附政府工入職條件+申請方法
+-  İsrail'den savaş itirafı: 60 milyar dolar harcandı ama...
+-  Durán: Víctimas de matanza en Los Helechos siempre estaban por la zona y una vivía allí
+-  Robegrill comparte su visión de la cocina
+-  Police complaint against BJP’s Amit Malviya for social media post on Bengal CM
+-  Brie Larson Gets Emotional Meeting Jennifer Lopez for First Time at Golden Globes: “It’s Been a Dream of Mine”
+-  Israel: Forças israelitas terminam operações no norte de Gaza
+-  Quang Hải khoe ảnh ăn hỏi nhưng không có mặt Chu Thanh Huyền, dân tình thắc mắc: "Sao không có mặt vợ thế anh?"
+-  Quan niệm chi tiêu dè sẻn không bằng đầu tư, bà mẹ trẻ ở Hà Nội chọn tích lũy tài sản "trú ẩn an toàn"
+-  Nhan sắc vợ xinh đẹp, kém 11 tuổi của NSƯT Quang Thắng
+-  Kết quả bóng đá hôm nay 8/1: Barca thắng nghẹt thở, PSG “vùi dập” đối thủ 9-0
+-  Phan Hiển tung clip 'bóc phốt' tật xấu của Khánh Thi
+-  WSJ: Elon Musk bị nghi sử dụng ma túy, hội đồng quản trị 6 công ty từ Tesla tới SpaceX hoang mang, nhà đầu tư sợ hãi
+-  Hòa Minzy chia sẻ clip cười ngặt nghẽo khi Bo "thúi" thất tình, nhưng nhìn 1 chi tiết mới thấy cô đầu tư việc học cho con thế nào!
+-  Vì sao Asian Cup 2023 diễn ra năm 2024?
+-  Tìm thấy thi thể bé trai 10 tuổi mất tích khi đạp xe đi chơi
+-  Chiếc điện thoại được ví như "phiên bản giá 5 triệu" của iPhone 15 Pro Max: Đẹp và giống đến kinh ngạc
+-  Clip: Xe tải lao vào cửa hàng gội đầu khiến 1 người tử vong
+-  Sử dụng flycam, chó nghiệp vụ xuyên đêm truy bắt kẻ giết người ở TP HCM
