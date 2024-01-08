@@ -1,11 +1,11 @@
 # Latest News
--  İstanbul'da sahte dolar çetesi çökertildi
--  Çağla Şikel, Selen Görgüzel'e dava açtı!
--  Gram altında düşüş sürüyor
--  Abdulkadir Selvi yazdı: Erdoğan muhalefeti kendi silahıyla vuracak
--  Japonya'daki depremlerde can kaybı artıyor
--  Atatürk'e hakaret eden kişi tutuklandı
--  Fatih Terim'den iddialı sözler
--  Süper Lig'de erteleme maçları yarın oynanmaya başlayacak
--  מזעזע: המסעדה הרגה אלפי חתולים – והבעלים יקבל כסף
--  הלחץ האמריקני להכרעה וההתנגדות הישראלית: בלינקן יגיע הלילה לישראל
+-  민병덕 의원 "닥사(daxa) 소속 암호화폐거래소들, 유의종목 지정 원칙없어"질타
+-  김동연 “명실상부 대한민국 최고의 바이오단지, 광교에 만들겠다”
+-  Storing bij Warmtebedrijf Ede: 'Al bijna 24 uur geen warmte'
+-  Frio põe quatro distritos sob aviso amarelo
+-  Japonya’daki 7.6’lık deprem: Can kaybı 161’e yükseldi
+-  Deputy shipping minister promoting Cyprus shipping in Japan
+-  7 Ocak 2024 Pazar reyting sonuçları! Teşkilat, Kirli Sepeti, Masterchef reyting sonucu
+-  County government partners with Sugar Company to revamp roads
+-  Eliminan plataforma digital con videos e imágenes íntimas de mujeres hidalguenses
+-  Республика бўйича бир кунлик табиий газ истеъмоли 151,1 миллион метр кубни ташкил этди
