@@ -1,51 +1,51 @@
 # Latest News
--  Babies born to women in Ter Apel asylum center 7 times more likely to die around birth
--  Russia's Belgorod Evacuates 300 Residents Over Ukrainian Strikes
--  A chaotic Golden Globes night had a bit of everything: The silly, the serious, and Taylor Swift, too
--  Bitcoin ETF Trading To Begin A Day After US SEC Approval
--  South Korea To Introduce Virtual Assets Distribution & Listing Regulation
--  Honda could soon make EVs and batteries in Canada
--  10 Longevity Practices from around the World
--  10 Terrifying Things People Found in Their Basements
--  Five easy life changes that’ll help you live longer, according to a longevity expert
--  My suburb is a wonky Tetris piece where the boundaries make no sense
--  Kickoff | Khune issues key advice to Chiefs' rising star
--  Susanna Reid consoles tearful victim of Post Office scandal after ‘disgusting’ treatment
--  Iga Świątek powiększyła przewagę nad Aryną Sabalenką w rankingu WTA. Niemal tysiąc punktów różnicy
--  Gozo has seemingly established itself as a Christmas Island, Gozo Tourism Association CEO says
--  رئيس منظمة الصحة العالمية: حمام الدم في غزة يجب أن يتوقف.
--  رابطة العالم الإسلامي تدعو القيادات الدينية والمنظمات الإنسانية إلى التوحد لوقف العدوان على غزة
--  إختتام فعاليات المؤتمر الطبي الثالث لاطباء مدينة سرت بالداخل والخارج .
--  PAKISTAN PUTS CLIMATE CHANGE ON THE MAP BY REBUILDING AND RENAMING TOWN DESTROYED BY FLOODS - CLIMATECHANGETOWN.PK SUPPORTED BY SPHF
--  Clarivate Identifies Thirteen Potential Blockbuster Drugs and Gamechangers in Annual Drugs to Watch Report
--  В Конгреса на САЩ се споразумяха за таван на федералните разходи от 1,6 трилиона долара
--  Cameroun :: Colonel Nzie Pierrot Narcisse : Enquête Majeure Sur Martinez Zogo Au Tribunal Militaire :: Cameroon
--  Prime Minister shares devotional bhajan “Ayodhya Mein Jaykara Gunjay” sung by Vikas
--  التعليم العالي: غلق الكيان الوهمي «أكاديمية لندن للصحافة والإعلام» بمحافظة القاهرة
--  Obashi strike sends Zesco to Prison
--  최상목, '금투세 폐지'에 "부자감세 아닌 투자자 감세"
--  전현희 "이재명 테러, 한동훈에 발생했다 상상해보라…수사 공정해야"
--  FPÖ-Pressekonferenz mit LPO Kunasek, LPS Hermann und GS Schnedlitz am 12.01.2024 um 10:00 betr. „Start in das politische Wahljahr 2024“
--  【先驱自媒】快收藏！新西兰最被低估的九大小镇，小众旅行隐藏宝藏，很多人都没听过......
--  ‘맘보교육그룹㈜’, 한국인기브랜드대상 4년 연속 1위 수상
--  부천FC, 골키퍼 김형근 영입
--  수원교육청, 행안부 ‘행정제도 개선 공모대회’서 우수상 수상
--  시흥시-서울대, 스누융합과학배움터 사사과정 수료식 개최
--  오산대 항공서비스과, 제주항공 객실승무원 체험교육 실시
--  평택상의 2024년도 신년인사회서 ‘기업하기 좋은 환경 만들기’ 결의
--  가평군, 오는 23일까지 농업인 1400여명 새해 영농 교육
--  평택교육청, ‘2024년 신규 공무원 직무 아카데미’ 개최
--  수원도시공사, ‘공공영역문화다양성 우수사례’ 공모전 특별상
--  'I maybe a liver, but she's my heart': Orry is all hearts for BFF Nysa as she wears his OG merch for party
--  Shell lance un avertissement sur dépréciations pour le 4e trimestre
--  วันเด็กแห่งชาติ 2567 อว.จัดงาน "เด็กช่างคิด วิทย์สร้างฝัน" 12-13 ม.ค.
--  เอเชียนคัพ ถ้วยแห่งศักดิ์ศรีเอเชีย ทีมชาติไทยใกล้แชมป์แค่ไหน
--  En Tunisie, le secteur agricole accapare 80 % de l’utilisation totale de l’eau
--  Съобщение от "Местни данъци и такси" - Търговище
--  Мокри, но напълно проходими са пътищата на територията на Сливенска област
--  Zamówienia przemysłowe w Niemczech odbiły, ale mniej niż oczekiwano
--  FH Campus Wien: Studie zeigt Veränderung des Gangs bei Smartphone-Nutzung
--  “هيئة أبوظبي للزراعة والسلامة الغذائية” تطلق خطة طموحة للتوسع في استخدام المياه المعاد تدويرها لري المزارع في إمارة أبوظبي
--  UOKiK nałożył 46,6 mln zł kary na Canal+ Polska
--  The significance of Ash-Sham including Palestine
--  وزير الدولة البريطاني لشئون الشرق الأوسط يبدأ زيارة للهند لتعزيز الشراكات بين البلدين
+-  NPFL: Lobi Stars Boss Commends Players After Win At Kwara United
+-  Soccerladuma | Reasons Henderson Wants To Quit Saudi 'Revealed'
+-  Windows Mixed Reality reaches end-of-life in 2026
+-  Michelle Keegan admits huge fear after Coronation Street exit ‘ripped away’ her security
+-  RICTOR Showcases Full Product Line at CES Leading Innovation in Two-Wheel New Energy Vehicles
+-  Police seek to arrest college students for forcing entry into presidential office grounds
+-  2027 Politics Begins As Makinde, Wike, Others Declare Support For Tinubu
+-  Aumentan detenciones de feminicidas en la CDMX; agresores tienen entre 20 y 35 años
+-  Sony lucha contra las imágenes falsas; alianza con The Associated Press
+-  Afectarán a 171 aviones, inspecciones de la FAA; a nivel global
+-  Üç aylar cuma günü başlayacak
+-  Saldırı hazırlığındaki 5 PKK'lı terörist etkisiz hale getirildi
+-  CHP Bursa Milletvekili Sarıbal 2023 gıda enflasyonunu değerlendiriyor
+-  Kucağında çocuk olan kadını bıçakla yaraladı, telefonunu gasp etti
+-  Büyük Birlik Partisi Genel Başkanı Destici'den yerel seçimde iş birliği açıklaması
+-  BUDO'ya olumsuz hava engeli
+-  臻鼎-KY12月營收月減21.2%
+-  Where was Fool Me Once filmed? From Peaky Blinders manor location to lavish mansion
+-  Giữa đống hoang tàn sau trận động đất, chàng nghệ nhân Nhật Bản tìm kiếm những chú mèo - chỗ dựa tinh thần của anh kể từ đại dịch
+-  Phát hiện thi thể cô gái trẻ tử vong bên vệ đường
+-  Rò rỉ kết quả vòng cuối, đội Lan Ngọc - Thu Phương thua trắng, 2 chị đẹp này bị loại
+-  NTK Thái Công thông báo livestream phiên bán hàng đầu tiên, khẳng định "không lùa gà, mà lùa rồng phụng’’!
+-  البنوك تعود للعمل في مواعيدها الرسمية اليوم الاثنين بعد إجازة 3 أيام
+-  بدء طرح الشهادة ذات العائد 27% للعملاء في فروع بنكي الأهلي ومصر
+-  اشتعال النيران في محل تجاري بسوهاج
+-  سعر الذهب اليوم الاثنين في مصر يتراجع 25 جنيها مع بداية التعاملات
+-  بالصور.. صرف السماد لمزارعي بورسعيد.. والفلاحون يهتفون:"تحيا مصر"
+-  إنشاء فرع دولي لجامعة بيروت العربية في برج العرب- صور
+-  تداول 12 الف طن بضائع بموانئ البحر الأحمر
+-  البورصة تصعد مع بداية تعاملات اليوم الاثنين
+-  وزير الإسكان: بدء تسليم وحدات مشروع جنة "بيت الوطن" بـ 6 أكتوبر.. الأحد
+-  يمنح الماجستير والدكتوراه.. التعليم العالي: غلق كيان وهمي بمنطقة المهندسين
+-  Buckie and Formartine game off allows Brechin to go clear at top
+-  6 năm về hưu, tôi đã làm 2 việc “vô tâm”, vợ con rất tức giận nhưng cuối cùng lại phải cảm ơn tôi
+-  Pourquoi des calendriers 1996 sont soudain vendus 50 € sur eBay
+-  Golden Globe 2024: Barbie’s Greta Gerwig lifts first-ever award for cinematic and box office achievement
+-  BNK금융, 중소기업·소상공인에 설날 특별자금 1.6조원 지원
+-  한동훈 "국민의힘은 강원도의 힘이 되겠다…8석 모두 붉은색으로"
+-  Hallan en un patio parte del fuselaje desprendido del avión accidentado en EEUU
+-  LG Display Announces Industry’s First 480 Hz QHD OLED Gaming Monitor for CES 2024
+-  Golden Globes 2024 : Jennifer Lawrence va devenir un mème avec cette séquence hilarante
+-  إذا كنت مصابًا بارتفاع ضغط الدم.. فزوجتك تعاني منه أيضًا!
+-  India's Vehicle Sales Surge 21% In December On Two-Wheeler Demand And Discounts
+-  أمانة العاصمة المقدسة تدعو هؤلاء لسرعة إصدار شهادة امتثال المباني
+-  Hundreds evacuate homes after flooding in south-east Australia
+-  From Ibrahim Ali Khan to Pashmina Roshan, 9 most awaited Bollywood debuts in 2024
+-  Tiburones de La Guaira derrotó a los Leones y se mantiene invicto
+-  Erik ten Hag explains why Donny van de Beek failed at Manchester United
+-  ISRAELE: 73 palestinesi uccisi a Gaza in ultime 24 ore - min. Sanità
+-  BLOG/Weil fordert langfristige Strategie für die Landwirtschaft
