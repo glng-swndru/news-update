@@ -1,11 +1,11 @@
 # Latest News
--  Plädoyer für Demokratie und gutes Miteinander
--  Mehr Komfort, leicht teurere Tickets - Lage der Kinos in Bayern ist stabil
--  Wenn eine Tote zur Tatverdächtigen wird - Prozess in Ingolstadt
--  9000 جندي "إسرائيلي" تلقوا علاجًا نفسيًا منذ بداية الحرب
--  Getty and #nvidia bring generative #ai to stock photos
--  BFM Bourse : 16h/17h - 08/01
--  Naomi Watts rocks 'distinctive' engagement ring and vampy beauty look for special milestone with Billy Crudup
--  El iPhone que se cayó del vuelo de Alaska Airlines a 5.000 metros de altura y siguió funcionando
--  ESPN Inks New Multi-Year Deal With ‘SportsCenter’s Kevin Negandhi
--  Muere Franz Beckenbauer
+-  Noorse terrorist Anders Breivik is volgens advocaat suïcidaal
+-  Cenk Özkaçar için sürpriz iddia!
+-  İsrailli aşırı sağcı bakandan Filistin'deki işgale alaycı tavır... Gazzelilerle dalga geçti
+-  Fatih Karagümrük, Kourbelis'i açıkladı
+-  Beckenbauer'den futbol camiasını hüzne boğan haber
+-  BAE, Gazze kasabı Netanyahu'nun maaş talebini reddetti
+-  Samet Aybaba'dan taraftara ilginç yanıt! "Hepsini nasıl gönderelim"
+-  Katil İsrail 2 gazeteciyi daha hayattan kopardı
+-  Franz Beckenbauer starb im Alter von 78 Jahren
+-  Autistic Disorder Pipeline Drugs Analysis Report, 2023: FDA Approvals, Clinical Trials, Therapies, Mechanism of Action, Route of Administration by DelveInsight | Scioto Biosciences, Hoffmann-La Roche, Yamo Pharmaceutical, Jazz Pharmaceuticals, Axial Thera
