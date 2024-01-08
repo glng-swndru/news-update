@@ -1,51 +1,11 @@
 # Latest News
--  عاجل.. التأمينات الاجتماعية توضح شروط وخطوات تسجيل مشترك جديد
--  강남구, 올해부터 층간소음 예방 및 경비원 근무환경 개선 지원
--  구로구, 2024년 주요업무계획 보고회 개최
--  경매시장 더딘 회복세 … 서울 아파트 낙찰가율 80%, 두 달 연속 하락
--  파주시, 남북평화협력 지방정부협의회‘평화&안보 기념행사’ 열어
--  홍천군, 농어촌도로 확충으로 정주여건 개선
--  의정부시, SOS 긴급 틈새 지원 서비스 시행
--  Condition of NHs to blame for frequent accidents in Assam?
--  Manden bag Oppenheimer kåres som bedste instruktør ved Golden Globe
--  Manden bag Oppenheimer kåres som bedste instruktør ved Golden Globe
--  Cách đọc tên 12 tháng trong tiếng Anh
--  Tư vấn tuyển sinh 2024: Không có ngành 'hot', chỉ có người 'hot'
--  Trải nghiệm nhịp sống học sinh, sinh viên thế hệ mới
--  Nữ sinh đất thép Củ Chi thành thủ lĩnh học sinh THPT
--  Golden Globes 2024 | Christopher Nolan and Cillian Murphy win Best Director and Actor for ‘Oppenheimer’
--  Jennifer Lopez teases new ‘meta’ music video on Golden Globes red carpet
--  Assam: Polling officials move to destinations
--  Düzce’de iki otomobil kafa kafaya çarpıştı: 1 ölü, 3 yaralı
--  Mount Carmel College move to go co-education evokes mixed response
--  Dodental aardbeving Japan loopt op naar 161, nog meer dan honderd mensen vermist
--  NCAA and ESPN ink 8-year, $920 million media rights deal
--  Cillian Murphy Jabs Christopher Nolan for ‘Lack of Seating Options’ on His Sets as He Wins Best Actor Golden Globe for ‘Oppenheimer’
--  Assam Government shuffles 15 ACS officers in state
--  Sede el Ministerio de Gobierno se muda del Casco Viejo hacia Tumba Muerto
--  Alkol aldıktan sonra denize giren adam boğuldu
--  Emma Stone ja Putoamisen anatomia päihittivät suomalaiset Golden Globe -gaalassa
--  Prominent Davao businessman Philip Dizon dies in road crash
--  Taylor Swift thu hút khi tới Quả Cầu Vàng
--  Число жертв подземных толчков в Японии превысило 160 человек
--  TV Guide: Home and Away 2024 on Seven and 7Plus
--  솔루스첨단소재, '100% 무상증자' 권리락 효과에 강세
--  ทีมช่างรฟท.เร่งซ่อมเส้นทางรถไฟเสียหาย22จุด
--  NC Hill Autonomous Council poll: 1,11,645 voters to decide fate of 87 candidates
--  Nvidia降規版AI晶片不受中資歡迎 阿里騰訊傳削訂單 轉向華為採購
--  Exclusive: Angela Bassett teases 'wet and wild' 9-1-1 season 7 opening emergency
--  WHL roundup: Buenaventura helps Hitmen drill Oil Kings 5-1
--  Assam Cabinet takes Key Decisions
--  WHL roundup: Buenaventura helps Hitmen drill Oil Kings 5-1
--  이재명 습격범 신상 공개되나…당적은 ‘비공개’ 방침
--  서울 ‘국민평형’ 아파트 분양가, 11억원 훌쩍 넘어
--  ‘이 사람’ 이적 소식에 아프리카TV 주가 불기둥…‘우왁굳’은 누구?
--  지하철 기본요금 또 오르나…서울시 “내부 검토 중”
--  우주항공청 특별법, 8부 능선 넘었다…내일 본회의 처리될듯
--  이동건 사주 "4·5번 이혼, 귀한 늦둥이 아들 보인다"('미우새')
--  [조성진의 가창신공] 빅마마 신연아 호원대 문화예술대학장
--  '노량: 죽음의 바다', 새해 첫 주말 韓영화 박스오피스 1위
--  ‘환승연애3’, 13년 역대 최장기 커플의 서사…공감 지수 UP
--  美매체도 주목한 '가족' 고우석·이정후 맞대결 "재밌는 운명의 장난"
--  Ricky Gervais’ Embarrassing Golden Globes Win Trended for Wrong Reasons
--  BJP MLAs Nitesh Rane, T. Raja Singh booked for hate speech at Solapur rally
+-  [노컷브이]북한 사흘 연속 포사격…김여정 "망신 주기 위한 기만 작전 진행"
+-  합참 "해상완충지대 더 이상 존재 안 해"…효력상실 확인
+-  與 김영우, 서울 동대문갑 출마 선언…"상식과 품격의 정치 복원"
+-  5선 이상민 '국민의힘行'에 민주당 "배신, 엄중히 심판할 것"
+-  署, '대통령실 진입 시도' 대진연 회원 구속영장 대거 신청
+-  尹대통령 지지율 소폭 하락해 35.7%
+-  '韓 테니스 동호인 최강자' 26세 청년 영예…KATA 시상식 개최
+-  강형욱, 학력 오해 정면돌파 "단국대 아니라 고졸"
+-  한미일 '인도-태평양 대화'에 발끈한 중국 "매우 위함한 길"
+-  경찰, '이재명 습격범' 곧 송치…당적은 '공개 불가'
