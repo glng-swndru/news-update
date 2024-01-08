@@ -1,51 +1,11 @@
 # Latest News
--  Masovni ubica tuži državu
--  Dan Republike Srpske: Dodik, Orban i američki F16
--  Kraj ere: Hans Joakim Vatske napušta Borusiju Dortmund
--  Traže saslušanje zbog poglavlja 27 u pregovorima sa EU
--  Italijani brane Poceka: Šta je htio Parker, da Asvel osvoji Evroligu?
--  Preminuo prosvjetni radnik Veselin Rmuš
--  Vlada će pomoći da Mojkovac dobije perspektivu koju zaslužuje
--  Kim Džong Un obećava: Proširiću nuklearni arsenal
--  שלישי ביורוליג: שאראס מול אוברדוביץ', מדר מול פרטיזן
--  לפיד: חברי המחנה הממלכתי צריכים לעזוב את הממשלה
--  בצל האסון: פסטיבל דרום אדום חוזר גם השנה
--  Ten killed in Kwara auto crash
--  Kontrakty terminowe na indeks rynku akcji w USA zniżkują
--  Peregrine uzay aracını taşıyan roket uzaya fırlatıldı
--  Suomen joukueet maailmancupiin valittu
--  SHL-seura luopuu hyökkääjästä – paluu SM-liigaan?
--  Les joueurs de Fortnite « sidérés » par le rechargement d’armes du Chapitre 5
--  Elecciones en Uruguay: unos veinte aspirantes van a comicios internos de cara a 27 de octubre
--  Bioanalistas advierten sobre déficit de insumos en laboratorios públicos de Nueva Esparta
--  Τουρκία: Πώς ένας Τούρκος δημοσιογράφος που απολύθηκε κατέκτησε το YouTube - Αλλάζει το σκηνικό της ενημέρωσης
--  Uutisanalyysi: Sierilä kaatui, koska jokiyhtiön omistajilla on rahoilleen parempaa käyttöä
--  Meghalt Orbán Gyula
--  Police arraign man over alleged theft of windows
--  Τι είπε ο πρόεδρος της Τράμπζονσπορ για τον Μπακασέτα και την πρόταση της Μπεσίκτας
--  Vox celebrará el 30 de enero la asamblea en la que renovará su cúpula
--  Convite: Escasez de medicamentos para 6 enfermedades en Venezuela fue de 26,2% en noviembre
--  المرصد الأورومتوسطي: قرار محكمة العدل المحتمل بوقف إطلاق النار في غزة ملزم لإسرائيل
--  [오피셜] 'ACL 목표' 대전, '멀티 플레이어' 김준범 품으며 중원 보강 성공!
--  "탈락하면 술 마셔야지~" 외치던 알콜러, 이번에는 정신 차릴까 [알콜지옥]
--  낙콜이 대구를 지배했다, 56점 합작, 한국가스공사 시즌 첫 3연승, 공동 8위 도약, 삼성 4연패, 레인 24점 분전
--  DB에 박인웅 있다, 3점슛 5개 포함 25점 폭발, 선두질주, KT 2연패, LG에 공동 3위 허용, 배스·하윤기 58점 합작
--  "넌 브라질 국적 아니면 '4부리그' 수준이야! 절대 토트넘급 아니다!"...저주에 가까운 맹비난
--  '아시안컵 우승 도전' 한국, 조별리그 상대 바레인·요르단·말레이시아와 상대 전적은?
--  '맨유 유망주' 조롱한 맨시티 팬 역풍 맞았다..."그 시간에 당신 일당에 3배를 벌었어!" 본인도 웃음으로 화답
--  강경준, 침묵보단 해명이 필요할 때 [MD이슈] (종합)
--  범죄로 남편 잃고, 전세사기까지…58세 만학도 사연에, 서장훈 "꿈 이뤄라” 응원 [물어보살] (종합)
--  “야구가 투수가 유리해야 하는데…스탯 안 좋아질 듯” 공룡들 35세 클로저 근심, 야구혁명을 대하는 자세[MD창원]
--  Showmax to rebrand next month with revamped local, international contents
--  Umrl dobitnik slovenskega Milijonarja, takrat je zadel 10 milijonov tolarjev
--  DESOB Proje ve Danışmanlık Birimi kursiyerlere uzman desteği sağlayacak
--  Berlin: Bündnis Sahra Wagenknecht gründet sich als Partei
--  Petrobras, TotalEnergies y Shell probarán captura de CO2 en yacimiento brasileño
--  Rente wegen Todes: Was steht Hinterbliebenen zu?
--  "Táncolni szeretnék Szoboszlaival" - Whitney Houston dalát dolgozták át a Liverpool sztárja miatt
--  NDA to conduct range for 71 Army cadets, advises close residents not to panic
--  RYANAIR HLDGS : UBS réitère son opinion positive sur le titre
--  രക്ഷ് റാം നായകനായെത്തുന്ന ഏറ്റവും പുതിയ ചിത്രമാണ് ‘ബർമ’
--  «صبرى موسى.. ساحر الكتابة».. أحدث أعمال أيمن الحكيم بمعرض الكتاب
--  Shivamogga: 18-year-old girl died due to Kyasanur Forest Disease
--  Erkiletspor: 8 - Erciyesgücü FK:0
+-  Siarczysty mróz postępuje. Alert IMGW dla całego województwa
+-  Lublin: Zbudują drogę w dzielnicy domków jednorodzinnych
+-  Beşiktaş'a müjdeli haber! Fernando Santos'un geleceği saat belli oldu
+-  İYİ Parti'den Özgür Özel'in çağrısına yanıt: Seçmenimizde kabul gördü
+-  Ender Saraç hakkında çocuğuna istismar suçlarından 22,5 yıl hapis istemi
+-  Malatya'da deprem!
+-  Gaziantep FK Teknik Direktörü Marius Sumudica hastaneye kaldırıldı
+-  ‘अयोध्या में श्रीराम मंदिर प्राण प्रतिष्ठा की थीम पर हो उत्तरायणी के कार्यक्रम’, CM पुष्कर सिंह धामी के निर्देश
+-  Fallece Chivirico, el padre del alcalde de Xove
+-  Novotel Hyderabad Airport adopts sustainable transportation
