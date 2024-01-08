@@ -1,11 +1,51 @@
 # Latest News
--  Manisa'da 1 kişinin hayatını kaybettiği vinç kazasının görüntüleri ortaya çıktı
--  Crnogorski izbornik: Bili smo pravi, skidam kapu igračima
--  Survivor: Έπαθε σκωτσέζικο ντους με την απρόσμενη υποψηφιότητά του
--  Monitori gaming 57-inç Predator Z57 i Acer mund të luajë dy lojëra në të njëjtën kohë
--  전북 출신 이성윤 검사장 사직서 제출hellip;9일 전주교대서 출판기념회
--  김철태 부군수 ldquo;도 큰 도약 더 좋은 고창 위해 힘을 다할 것rdquo;
--  Nylander contract done, Maple Leafs GM Treliving has more work to do
--  La economía mundial crecerá poco en 2024
--  United Airlines finds loose bolts, other problems on door plugs of Boeing 737 Max 9 jets
--  이낙연, 탈당 앞두고 "민주당 44%가 전과자" 직격
+-  Out of This World Nutrition: Designing the “Perfect” Meal To Feed Long-Term Space Travelers
+-  Hotel gas explosion injures at least 10 in Texas in ‘major incident’
+-  Fallece padre del diputado Alfredo Chávez
+-  Lamenta alcalde de Juárez fallecimiento de 'Teto' Murguía
+-  Lái ô tô ba tháng, bị thổi phạt gấp đôi 20 năm đi xe máy
+-  10 bức ảnh hiếm hoi trong cuộc đời bóng đá của Franz Beckenbauer
+-  Adams promises no migrant families will sleep on NYC streets as critics blast shelter evictions
+-  City committee to consider selling parkland for Glenmore Landing redevelopment
+-  Errachidia: Affluence remarquable dans les bureaux administratifs pour s’inscrire au programme d’aide sociale directe
+-  [경기도, 반도체·바이오 등 미래첨단산업인력 6천 명 양성
+-  ["감옥서 깡패 미화 뮤비 찍으며 공권력 조롱하더니"…탈옥한 조폭 두목
+-  [며느리가 살린 ‘K-푸드 신화’…불닭볶음면, 66조 시장 흔들었다
+-  [“6.43%↑ 엔비디아 사상 최고가” 美 증시, 기술주가 이끈 반등…‘8만전자’ 정복 탄력 붙나 [투자360]
+-  [구내식당, 너마저…작년 식사비 증가폭 ‘역대 최대’
+-  [충남도, 장애인 자립생활 체험홈 활성화 모색
+-  KKTC'deki döviz bürosunu soyup, sahibini öldüren katil zanlıları yakalandı
+-  Galatasaray çağırdı! Berkan Kutlu geri dönüyor
+-  Вацке: Бекенбауер е най-великият германски футболист
+-  Tyro adopts the Pismo platform to enhance its operations in Australia
+-  Narwal Unveils World's First Most Powerful Vacuum Mops at CES 2024
+-  Zonguldak'ta trafik kazası... 1 kişi yaşamını yitirdi
+-  Bosna Hersek ve ABD'den ortak tatbikat
+-  KKTC'deki döviz bürosunu soyup, sahibini öldürmüşlerdi... Katil zanlıları yakalandı
+-  Lübnan Başbakanından Gazze için "diplomatik çözüm" mesajı
+-  Galatasaray'da sürpriz gelişme! Berkan Kutlu geri dönüyor
+-  “Llevar la Rosario Castellanos a todo el país”: Sheinbaum
+-  Anthony Richardson, Jonathan Taylor give Colts a view into a promising future
+-  Gigantische Radiokreise jenseits der Galaxie
+-  Tito Nieves encabeza en Infecar el festival Viva la Salsa
+-  Los centros canarios de FP podrán retomar ya las prácticas suspendidas
+-  Rosell se incorpora el 19 a la Audiencia y Díaz Tejera será el titular de Violencia 3
+-  The Ephemeral Geography of the Eternal City
+-  FENERBAHÇE HABERİ: Martial transferinde flaş gelişme! Görüşme detayları belli oldu
+-  Tinejdžerka prijavila virtuelno silovanje, policija ne zna kako da postupi
+-  דג נדיר שנתפס ברשת מעורר אימה בתאילנד: "זה דג האבדון. אסון טבע בדרך אלינו"
+-  Ana Guevara asegura que el presupuesto está listo para París 2024, ¿para todos los atletas?
+-  Willem Dafoe enthüllt seinen Hollywood-Stern
+-  Christoph Daum: 20 Chemos, aber „es wird nicht besser“ | Sport
+-  Tech-Werte pushen Wall Street: Dow Jones schließt trotz Boeing-Zwischenfall im Plus
+-  United Airlines finds loose bolts on key part of grounded Boeing jets
+-  Embaixada dos EUA diz que 'democracia venceu' em publicação sobre um ano do 8 de Janeiro
+-  Unprecedented Black Summer showed us what needs to change to keep Australians safe
+-  الرئيس الجزائري: قتل الصحفيين بغزة “وصمة عار” ستلاحق إسرائيل
+-  Ecuador decreta estado de excepción y toque de queda tras fuga de “Fito”, el líder de “Los Choneros”
+-  AEW News: This Week’s Being The Dark Order, Executive Promoted To VP
+-  العرب يبحثون عن اللقب السابع
+-  티빙, 네이버 제쳤다…'유료 중계 시대' 시작?
+-  В каких государствах была зарегистрирована дефляция по итогам года?
+-  한동훈, 천태종 총본산 구인사 방문…덕수 스님과 차담
+-  익산 황수연전통식품, 나눔곳간에 365만원 기탁
