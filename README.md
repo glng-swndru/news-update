@@ -1,51 +1,51 @@
 # Latest News
--  Corona-Zahlen im Märkischer Kreis aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Hochsauerlandkreis aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen im Ennepe-Ruhr-Kreis aktuell: Zahlen und Fakten aus der Region
--  Μπέττυ Μαγγίρα για Super Κατερίνα: Ξέρω ότι συμβαίνει πολλά χρόνια, καιρός να σταματήσει
--  Πέθανε ο χειρουργός Roy Calne: Ποιος ήταν ο «πατέρας» της μεταμόσχευσης ήπατος στην Ευρώπη που άνοιξε τον δρόμο για να σωθούν εκατομμύρια ζωές
--  Corona-Zahlen in Herne aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Corona-Zahlen in Hamm aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen in Hagen aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Boykot sonuç verdi: İsrail destekçisi Coca Cola'nın Türkiye'de satış oranı resmen çakıldı
--  Miçotakis: Göçmen akınına 'Avrupa çözümü' gerekli
--  İstanbul'da yediemin otopark ücretlerine de zam geldi
--  Corona-Zahlen in Dortmund aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Terör devleti İsrail sivillerin bulunduğu okulu vurdu: Ölü ve yaralılar var
--  MSB'nin dikkat çeken keskin nişancı paylaşımı: İkinci atışa gerek yok
--  THY tüm zamanların en yüksek yolcu sayısına ulaştı
--  Jendouba: Augmentation significative du niveau de remplissage des barrages du nord
--  Corona-Zahlen in Bochum aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Corona-Zahlen im Kreis Paderborn aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Corona-Zahlen im Kreis Minden-Lübbecke aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Corona-Zahlen im Kreis Lippe aktuell: Zahlen und Fakten aus der Region
--  العراق يدعو الأمم المتحدة للتواصل مع الدول التي لديها أطفال لغرض استلامهم وأعادتهم الى بلدانهم
--  Corona-Zahlen im Kreis Höxter aktuell: Aktuelle Daten zum Coronavirus
--  Turf. Anotaciones para el 14 de enero en el Hipódromo de Salto.
--  Corona-Zahlen im Kreis Herford aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Взгляд из Германии — Бэби–бумеры: за что критикуют и чего удалось достичь
--  Corona-Zahlen im Kreis Gütersloh aktuell: Aktuelle Daten zum Coronavirus
--  Nejat İşler, Behzat Ç.'nin "Hayalet"ini Tanıyamayıp Yumruk Attı: İşte Fıkra Gibi Olay ve Sosyal Medyadan Gelen Tepkiler
--  Corona-Zahlen in Bielefeld aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Fresh Stormont elections or governments must find an alternative – Murphy
--  Corona-Zahlen im Kreis Warendorf aktuell: Aktuelle Daten zum Coronavirus
--  9999 طالبًا وطالبة يؤدون امتحانات دبلوم التعليم العام في شمال الباطنة.. اليوم
--  والي بركاء يبحث تعزيز التعاون مع ممثلي وسائل الإعلام
--  Corona-Zahlen im Kreis Steinfurt aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Corona-Zahlen im Kreis Recklinghausen aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Científicos descubren una proteína que podría combatir el envejecimiento y prevenir enfermedades relacionadas con la edad
--  Corona-Zahlen im Kreis Coesfeld aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  El petróleo de Texas abre con una bajada del 3,96 %, hasta 70,89 dólares el barril
--  Coinbase se dispone a adquirir una entidad con sede en Chipre y licencia de la UE
--  Argentina busca "reflotar" el acuerdo con el FMI tras su "incumplimiento sistemático"
--  Macron inicia la cuenta atrás de los 200 días hasta los Juegos Olímpicos de París
--  El auge inmobiliario europeo redujo la desigualdad: BCE
--  Las acciones de MBC Group se disparan un 30% en su debut en Tadawul
--  Parsons obtiene un pedido de 21 millones de dólares de la NNSA en LANL
--  Corona-Zahlen im Kreis Borken aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Einladung: PK der Wiener Volkspartei Startschuss für die Neugestaltung des Gürtels
--  Corona-Zahlen in Münster aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Obiluju vitaminima, eliminišu otrove iz tela, odlične protiv prehlade! Ove namirnice su obavezne tokom zimskog perioda
--  Tužna vest za srpski sport! Prerano nas je napustio sjajni sportista
--  Corona-Zahlen in Gelsenkirchen aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen in Bottrop aktuell: Inzidenz für Bottrop, Nordrhein-Westfalen und Deutschland
+-  Bố than nhà nghèo nợ nần suốt 20 năm, đến lúc tốt nghiệp ĐH chàng trai mới phát hiện mình là "phú nhị đại"
+-  Bakan Koca'dan 'MOSSAD ajanı doktor' iddialarına sert tepki: Defalarca tekrarladıkları sözlere artık inanıyor olabilirler
+-  AB Yüksek Temsilcisi Borrell işgalcilerin hedef aldığı UNRWA'ya desteğini duyurdu
+-  أمازون ومايكروسوفت وجوجل تتوسع في السعودية
+-  Em todos os municípios do Acre, número de motos é maior do que o de carros
+-  Iran Detains 32 in Connection with Deadly Terrorist Bombing: Judicial Official
+-  رئيس لجنة الإدارة والحكم المحلي بمجلس النواب يناقش مع رئيس مفوضية مؤسسات المجتمع المدني المشاكل والعراقيل التي تواجه هذه المؤسسات .
+-  '통계조작 의혹' 前국토부차관 등 2명 구속영장 기각
+-  Se viene una nueva camiseta retro de River: los detalles y cuándo saldrá a la venta
+-  Cool season will feature more comfortable temperatures and humidity
+-  "C'est que du bonheur": les premières festivités du carnaval de Dunkerque sont lancées
+-  Danica Crnogročević snimila pesmu u čast Dana Republike Srpske
+-  Ässille hirveä takaisku
+-  Monedas de América Latina caen en medio fortaleza del dólar; peso chileno golpeado por dato inflación
+-  Muğla'da 25 düzensiz göçmen yakalandı
+-  Diyabakır'da forkliftin altında can verdi!
+-  Bursa'da yorgun mermi çocuk odasına düştü
+-  Amasya'da 91 yaşındaki erkek yalnız yaşadığı evinde ölü bulundu
+-  Kızıl Goncalar dizisinin yeni bölümü bu akşam yayınlanacak mı?
+-  Bakan Koca: Haddini aşan sorumsuzlara cevap
+-  Fatih Portakal: Erdoğan bu hatayı nasıl yaptı?
+-  Kredide yeni dönem: BES detayı!
+-  Jean Onana, Marsilya'ya transfer oldu
+-  MUP: Sektor za vanredne situacije dostavio hranu stoci zarobljenoj na Krčedinskoj adi
+-  Erneut massiver russischer Luftangriff auf die Ukraine
+-  Prometna nesreća na istoku Hrvatske: Automobil sletio s ceste, jedna osoba prevezena u bolnicu
+-  Đi ăn tối tại nhà hàng sang trọng, Ronaldo đứng hình với màn "ảo thuật" với kẹo bông của bạn gái
+-  Boloș, încrezător că deficitul bugetar la finele lui 2023 este mai mic de 5,7%
+-  سيارات تطير في الهواء بالسعودية.. والسبب صادم «فيديو»
+-  قرار عاجل من اتحاد الكرة بإيقاف لاعب 8 شهور وتوصية بشطبه
+-  Neurologička Alžbeta radí, ako zvládať migrény: V prvom rade by sa mal každý migrenik vyhýbať „provokačným faktorom“
+-  Κυρ. Μητσοτάκης για Γ. Λάνθιμο: Ένας από τους πιο μεγάλους σύγχρονους σκηνοθέτες
+-  משרד התיירות מסכם את 2023: שיא במספר התיירים שנכנסו לישראל
+-  הביקור של נתניהו במפעל 'תנובה': "מאוד חרד לעסקים שייפגעו"
+-  ¿Por qué Alexis Zapata jugará en América y no en Atlético Nacional?
+-  "Vogel des Jahres 2024" bei uns: Der Kiebitz ist ein Sorgenkind
+-  "Vogel des Jahres 2024" bei uns: Der Kiebitz ist ein Sorgenkind
+-  BFM Bourse : 15h/16h - 08/01
+-  بوليفيا تلتحق بجنوب أفريقيا في مقاضاة العدو الصهيوني على الإبادة الجماعية في غزة
+-  Paris names street after David Bowie in celebration of music star’s legacy
+-  Tartışmalara son noktayı koydu, Aziz Yıldırım'dan başkanlık açıklaması! İddiaları bir bir yanıtladı
+-  Ambiente en los exteriores de la cárcel de El Inca
+-  DHL vyzvala klientov, aby upravili plány zásob pre problémy v Červenom mori
+-  Берлин отстъпи! Германия вече няма възражения срещу продажбата на още изтребители на Саудитска Арабия
+-  Consulta popular 2024: la extradición podría incluirse entre los temas
+-  السوداني في ذي قار.. فهل سيحقق مطالب المتظاهرين؟
+-  أزمة الدولار تشتت جهود البنك المركزي.. وناشطون يعزون الأمر لـ"التوترات السياسية"
+-  تعليق من الصحة بشأن متحور كورونا الجديد: لقاحات الوزارة اثبتت فعاليتها العالية
+-  السوداني يترأس اجتماعاً للقيادات الأمنية والعسكرية في ذي قار
+-  Impfungen in Berliner Apotheken: Nicht jede Krankenkasse macht mit, Apotheker sind genervt
