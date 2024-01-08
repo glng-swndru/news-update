@@ -1,11 +1,11 @@
 # Latest News
--  Sikeresen kimentették a szlovéniai barlangban rekedt öt embert
--  Co piąta firma pożyczkowa jest z zagranicy
--  Savills w Polsce ma nowego szefa
--  Akár 18 százalékkal is nőhet idén a bankolás díja
--  Italský ministr zahraničí vyzývá k vytvoření ozbrojených sil EU
--  نبذة عن الشهيد القائد وسام حسن طويل "الحاج جواد"
--  Kayseri Pınarbaşı, Talas, Sarıoğlan ilçe belediye başkan adayları kim oldu? 31 Mart AK Parti- MHP Cumhur İttifakı, CHP, İYİ Parti ilçe belediye başkan adayları listesi
--  За сутки в Туле произошло 18 ДТП
--  RayNeo Demos Ultralight X2 Lite AR Glasses for the First Time, Announcing Crowdfund Campaign for the RayNeo X2 AR Glasses at CES 2024
--  TCL Celebrates Winning CES 2024 Innovation Award for TCL NXTPAPER Device and Introduces Advanced TCL NXTPAPER 3.0 Technology
+-  Ahırda Çıkan Yangında 115 Hayvan Telef Oldu
+-  Fransa Başbakanı İstifa Etti!
+-  Mircea Lucescu, devastat după moartea lui Franz Beckenbauer: „Nu pot uita acel număr”
+-  Did YOU spot Harlan Coben's Fool Me Once cameo? Author behind Netflix thriller reveals his VERY fleeting appearance in the mega-hit series
+-  vivo, Günlük İhtiyaçlarınız İçin Birebir Olan Uygun Fiyatlı Telefonu "V28 5G"yi Duyurdu
+-  Reinaldo Astudillo y Duvianny Mata presidirán el CLSEM 2024-2025
+-  Snowstorm causes chaos for candidates in Iowa: Republicans cancel events and brace for coldest caucus in decades with lows of MINUS ELEVEN degrees set for votes on Monday
+-  Daylight robbery! Househunters' fury after tiny 'prison cell' London flat with just 93 square foot of space hits the market for a massive £250,000
+-  How to watch Fox News' town hall with Nikki Haley
+-  Helicóptero da PRF faz pouso forçado em avenida de Belo Horizonte; veja vídeo
