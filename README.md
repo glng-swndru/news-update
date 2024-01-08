@@ -1,11 +1,11 @@
 # Latest News
--  Siarczysty mróz postępuje. Alert IMGW dla całego województwa
--  Lublin: Zbudują drogę w dzielnicy domków jednorodzinnych
--  Beşiktaş'a müjdeli haber! Fernando Santos'un geleceği saat belli oldu
--  İYİ Parti'den Özgür Özel'in çağrısına yanıt: Seçmenimizde kabul gördü
--  Ender Saraç hakkında çocuğuna istismar suçlarından 22,5 yıl hapis istemi
--  Malatya'da deprem!
--  Gaziantep FK Teknik Direktörü Marius Sumudica hastaneye kaldırıldı
--  ‘अयोध्या में श्रीराम मंदिर प्राण प्रतिष्ठा की थीम पर हो उत्तरायणी के कार्यक्रम’, CM पुष्कर सिंह धामी के निर्देश
--  Fallece Chivirico, el padre del alcalde de Xove
--  Novotel Hyderabad Airport adopts sustainable transportation
+-  Évi 1,4 milliárdot költ a minisztériumok politikai tanácsadóira az Orbán-kormány
+-  Izraeli légicsapás végzett Libanonban a Hezbollah egyik parancsnokával
+-  Szennyezés miatt vontak ki a forgalomból egy népszerű lázcsillapítót
+-  غموض حول يوم ميلاده... زعيم كوريا الشمالية ربما بلغ عامه الأربعين
+-  بكين تُجري تدريبات بالذخيرة الحية في بحر الصين الشرقي
+-  شاهد ظهور حوت الأوركا في مياه محمية جزر فرسان بجازان
+-  استطلاع: نصف الأميركيين يتوقعون أعمال عنف خلال الانتخابات المقبلة
+-  سامسونج تسلّط الضوء على أكبر عدد من مشاريع مختبر C-Lab على الإطلاق خلال معرض الإلكترونيّات الاستهلاكيّة 2024
+-  استقالة رئيس أكبر لوبي لحمل السلاح في أميركا
+-  فصل مبرمج للتيار الكهربائي عن مناطق بالشونة الجنوبية غداً
