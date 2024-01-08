@@ -1,11 +1,11 @@
 # Latest News
--  ABD'nin kararı sonrası Boeing hisseleri düştü
--  국정원 "해외체류 국민 대상 테러 가능성 커져…주의 당부"
--  이준석 신당·친이낙연계, 광주서 '통합 맞장구'
--  이준석 "KBS·EBS 수신료 폐지…공영방송 사장 임명동의제"
--  민주, 친명 원외 비명 현역에 도전장…'자객 출마' 논란 재점화
--  민주, 與입당 이상민 맹비난…"철새 정치인" "배신의 정치"
--  항공료, 올해 수요 감소에 안정화 전망
--  홍익표 "법무부, 대통령 부인 범죄 의혹 덮으려는 하수인 전락"
--  관세청, 가상자산 불법 외환거래 방지 협의회 발족
--  25일까지 부가세 신고…영세사업자 128만명 납부 두달 연장
+-  Vestager će se sastati s izvršnim direktorima američkih tehnoloških tvrtki
+-  "المسند" يطالب المساحة الجيولوجية بوضع لوحات إرشادية على هضبة الصلب والصمان
+-  طريقة إصدار رخصة عربة متنقلة عبر بوابة أمانة جدة
+-  7.4 مليون خدمة لـ حساب المواطن في عام 2023
+-  مزايا تنافسية.. طريقة التقديم في تدريب منتهي بالتوظيف بهيئة تطوير بوابة الدرعية
+-  Mauro Icardi sahalara ne zaman dönecek? Icardi Trabzonspor maçında oynayacak mı?
+-  NASA 50 yıl sonra bir ilk: Uzay aracı Ay'da tur atan ilk ABD robotu olacak
+-  AKTUÁLNE: Na cestu v okrese Žilina sa zosunula pôda. Úsek je neprejazdný
+-  Kitchen Hacks: ఇంట్లో చికెన్ వండుతున్నారా? అయితే, ఇవి తెలుసుకోవాల్సిందే..!
+-  Infoabend zum Jungjägerkurs
