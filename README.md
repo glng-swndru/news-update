@@ -1,11 +1,51 @@
 # Latest News
--  Сёмин назвал Беккенбауэра лучшим футболистом своего времени
--  Mobielverbod op school. Hoe verloopt de eerste dag? 'Ik denk dat zo'n verbod mensen wel socialer maakt'
--  Bouterse vraagt via nieuwe advocaten schorsing vonnis van 20 jaar
--  Bigg Boss 17: Abhishek Kumar and Munawar Faruqui`s friendship hits rock bottom
--  Hochwasser-Lage am Montagabend: Fast überall sinken die Pegel, aber nur in Zeitlupe
--  JLaw mouthing `If I don`t win I`m leaving` is Kareena Kapoor`s forever mood
--  Van den Brink terug aan het front na 'echte sloopdag'
--  Crush Ne Demek? - Türkçe'de Anlamı ve Kullanımı
--  Aéronautique, Boeing, Airbus : le poinçonneur d'Arlington
--  Democrats Baffled by Lloyd Austin's Disappearance
+-  Da Xrism un nuovo sguardo a raggi X sul cosmo
+-  Marko Repecki: Problem nije Fortenova, problem je kako su ona i Agrokor nastali
+-  Sunak y Starmer, atados a una economía triste en su campaña
+-  We Are Go For Launch: What to Know About ESPN’s CFP National Championship Presentation from Houston
+-  [CES 2024] Hisense unveils 2024 ULED and ULED X TV lineup
+-  NVIDIA RTX Remix open beta starts Jan. 22 to help mod makers remaster older games
+-  NVIDIA RTX Remix open beta starts Jan. 22 to help mod makers remaster older games
+-  FC Barcelona może sięgnąć po wielką kasę. Ależ okazja na podratowanie budżetu
+-  عاجل.. أهم 10.. وفاة 13 في حادث مروع بالمزاحمية وسبب ارتفاع أسعار قطع غيار السيارات
+-  عشرات الوظائف بـ المركز الوطني للأرصاد لكافة المؤهلات
+-  IGK - Bosna i Hercegovina treba mnogo više od nadlijetanja američkih aviona
+-  Bruno Akrapović novi trener FK Željezničar
+-  Amor: estos son los signos del zodiaco que se divorciarán en 2024, según la astrología
+-  Letizia de España en la cuerda floja, revelarán secretos de la reina
+-  Is CA Willing to Spend Billions of Extra Dollars to Lift up Children?
+-  Un alto cargo de Defensa de EEUU visita Guyana en medio de la disputa con Venezuela
+-  الشارف يطلع على المصروفات والإيرادات المالية للعام 2023
+-  Corte Suprema revocó libertad condicional de Celestino Córdova
+-  Pair of decades-old cold cases — including 1 often connected to Colonial Parkway killings — resolved, authorities say
+-  Депутат Верховной рады Костенко заявил о «политической смерти» Зеленского
+-  Turma thërret në kor “Kosova ëshë Serbi”, tifozët e Crvena Zvezdës shpalosin banerin me “mallkimin e Kosovës”
+-  EFCC Invites Suspended Humanitarian Minister Betta Edu
+-  هيئة طبية إسرائيلية تكشف عدد الجنود المصابين بأمراض نفسية نتيجة حرب غزة
+-  جثة ومصاب على الطريق بـ"صحراوي الصف"
+-  مصرف أبو ظبي الإسلامي يخفض تعاملات الشراء من الـ"كريدت كارد" إلى 50 دولار
+-  بالصور| الاحتلال يستهدف منزلًا في ريف القنيطرة السوري بطائرة مسيرة
+-  قرار من القضاء ضد 4 متهمين بارتكاب "مذبحة المعصرة"
+-  "أرقد في سلام".. ليونيل ميسي ينعي فرانز بيكنباور (صورة)
+-  Legal process migrants in Denver must go through to obtain a work permit
+-  Surrey RCMP search for 14-year-old who went missing on Sunday
+-  WTA w Adelajdzie: Claire Liu - Daria Kasatkina. Relacja i wynik na żywo
+-  ¡Se fue! Ernestina Godoy no seguirá al frente de la FGJ CDMX ¿Quién asumirá el cargo?
+-  ЕС има нужда от 1 милион легални мигранти на година за работа
+-  Why did Tiger Woods leave Nike? Looking At Our Three Possible Reasons
+-  Biden’s Speech Interrupted by Pro-Palestinian Protesters Chanting ‘Ceasefire Now’: President, 81, Says He Is Working to Get Israel ‘Out’ of Gaza After Demonstrator Interrupted to Ask If He ‘Cares’ About Civilian Deaths
+-  Espanhol: Conheça a história do derby basco entre Real Sociedad e Athletic Club
+-  "بلا عنوان" لمروى المناعي: تشريح مسرحي نفسي لاضطراب ثنائي القطب
+-  Jo Koy Laughs Off Taylor Swift’s Look to His Golden Globes Joke: ‘It Was Cute’
+-  Poznati svećenik komentirao Penavinu izjavu: Očekivano, populističke stranke vide u migrantima politički kapital
+-  ¿Por qué se tapa la nariz sin tener gripa?
+-  Colapsada estuvo Central de Citas del Humnt
+-  רן בן שמעון עם ניצחון חמישי בשבעה משחקים בא.א.ק לרנקה
+-  Sólo 22 minutos duró la primera sesión de este año de la SCJN
+-  Biden spune că lucrează pentru ca Israelul să-și reducă semnificativ prezența în Gaza
+-  NASA 50 yıl sonra Ay'a iniş için fırlatmıştı: 'Peregrine' teknik sorun yaşadı
+-  Dünya futbolunu yasa boğan ölüm: Franz Beckenbauer hayatını kaybetti
+-  جنائي البيضاء يداهم وكرًا لتصنيع الخمور ويضبط الشخص الذي يديره
+-  Voetbalwereld reageert op overlijden legende Franz Beckenbauer: ‘De mooiste voetballer van allemaal’
+-  Marlaska se lleva al jefe superior de la Policía Nacional en Cataluña para mandar la policía judicial
+-  Eintracht Frankfurt: Stürmerproblem gelöst?!
