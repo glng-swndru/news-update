@@ -1,51 +1,51 @@
 # Latest News
--  청도군수, 세계 최초 평생학습도시 일본 가케가와시 방문
--  평택시, 저소득 가정 집수리 G-하우징 사업 완료
--  Pääseekö Venäjä olympialaisiin? – jääkiekkopomon lausunto kuohuttaa
--  ‘충격’ 음바페, 레알 사전 계약 거절했다…높아진 리버풀행 가능성
--  Viettel Cyber Security (VCS) Applauded by Frost & Sullivan for Its Excellent Solutions, Top-notch Technologies, and Market-leading Position
--  Wonderers, New Title from Smilegate, to Launch on January 8th in 4 Asia-Pacific Countries
--  Fostering Kinship and Spreading Joy in Ternate, Pizza Hut volunteers at the Mosque and Shares Delicious Pizza Delights
--  XING Mobility Debuts Next Generation Immersion Cooling Battery
--  가평군, 문화·체육시설 확충에 317억 투입
--  시흥시의회, 2024년 첫 회기 10일부터 10일간 개회
--  오수봉 예비후보, 출판기념회 성료
--  인천경제청, 영종국제도시 국제학교 설립 ‘관련자 의견 수렴 후’ 추진
--  인천시교육청, 종이 없는 연말정산 시행... 학교 업무 경감
--  여주시 보전산지 해제, 용도 불부합지 용도지역 변경 등 공약사항 이행 등 추진 박차
--  [광고주-인플루언서간 광고 직접 거래 서비스 'i-MATCH' 업데이트
--  [제10회 나무의사 자격시험 원서접수
--  인천지방중소벤처기업청, 11일 유관기관 합동 중소벤처기업 지원사업 종합설명회 개최
--  [한국판 NASA ‘우주항공청’ 설립 확정…우주강국 도약 첫발 내딛는다
--  Seis mortos em acidentes com minas no Cuando Cubango em 2023
--  Man dies at Wattamolla Beach in NSW's Royal National Park, near Sydney after medical episode
--  Werden die Aktienmärkte im Jahr 2024 den Weg der größten Schmerzen beschreiten?
--  هذا ما يحدث عند شرب القهوة خلال الساعة الأولى من الاستيقاظ
--  Ακίνητα: Νέες διευκολύνσεις για τους ιδιοκτήτες – Δεν θα χρειάζεται επίσκεψη στην Εφορία για τροποποιητικές δηλώσεις μεταβίβασης
--  Pubs have only a quarter of pokies in NSW. But they pocket almost half the profits
--  Intel spins out AI software firm with backing from DigitalBridge
--  Golden Globes 2024: Sarah Snook in shock as she wins Best Female Actor for her role in Succession
--  Golden Globes 2024: Jeremy Allen White puts his clothes back on! The Bear star looks dapper after that steamy Calvin Klein commercial - as he takes home acting prize
--  다크비, “우린 탄탄한 군무 + 팀워크 강점”
--  „Peregrine“ fliegt zum Mond: US-Unternehmen versucht erste private Landung – Handelsblatt
--  소상공인·자영업자 채무조정 '새출발기금' 코로나 피해 요건 폐지
--  중소기업, 외국인력 20만명 필요…한달 인건비 306만원
--  도성훈 인천교육감 "서해5도 학생·교직원 안전매뉴얼 보강" 당부
--  '제16회 제천 의림지 삼한초록길 알몸마라톤 대회' 개최
--  영주시, ‘선비글판’ 문안 전국민 대상 공모
--  하나은행, 청년 운전면허 취득 지원 위한 MOU
--  9~10일 전국 '많은 눈'…수도권 10~15cm 이상
--  강릉장칼, 프랜차이즈 창업박람회 참가 … 창업특전 제공
--  Jokowi to Visit Vietnam, Brunei, Philippines in Series of Bilateral Meetings
--  UPSIFS के निदेशक ने विश्व में रौशन किया प्रदेश का नाम
--  Two men stole items that were on sale. They wanted a discount on the charges
--  Two men stole items that were on sale. They wanted a discount on the charges
--  Jugendensemble der Alten Post in Neuss: “Alle haben ihren Rampenlichtmoment“
--  Musik made in Neuss: The Tips planen ein neues Album
--  Fahrrad-Club in Grevenbroich: ADFC orientiert sich nach dem Tod von Wolfgang Pleschka neu
--  Landwirtschaft in Jüchen: Wie der viele Regen die Landwirte trifft
--  Erlebnistag im Dormagen: Falken hautnah erleben im Wildpark Tannenbusch
--  Kleine Demo der Partei in Neuss: „Den Finger in die Wunde legen“
--  Befragung in Neuss: Bürger sollen ihre Lieblings-Verkehrsmittel mitteilen
--  Anmeldungen bis 10. Januar möglich: Winterkegler in Gustorf/Gindorf starten Turnier mit fast 400 Teilnehmern
--  Handel in Neuss: Intersport im Rheinpark-Center schließt
+-  195cm 88kg의 거구가 사람을 잡고 흔든다! 괴물 ST, 동료 득점에 흥분
+-  [오피셜] 대전, 검증된 미드필더 김준범 영입
+-  Юрист перечислил способы защиты пожилых людей от мошенников
+-  FPIs Drive Record Inflows, Boost Indian Equities In Early 2024
+-  ["p형은 무슨 성격일까?"…中서 p형 새로운 유전 서열 발견
+-  [1억+1억 아닌 1억+2.5억을 드립니다.
+-  [국세청, 영세사업자 128만명 부가세 납부 두달 연장
+-  [부산 기장 산불 발생…산림청, 1시간 41분만에 진화완료
+-  [▶▶ 24년부터 전국민 카카오톡 추천주 무료.!
+-  [이낙연 이번주 탈당선언…비명계 4인도 결단 임박
+-  [尹 ‘민생 살리기’ 설날 신용사면 검토
+-  [김은혜, 국힘 복당 신청...총선 채비 본격화
+-  [與 공관위長에 판사출신 정영환...이상민 전격 입당
+-  [日 90대 여성, 강진 124시간만 ‘기적의 생환’…“잔해 속 빗물로 연명”
+-  [청소 없이 그냥 가…제주 오름에 소품 방치하고 간 촬여팀
+-  [조폐공사, 세계 예술형 기념주화 특별 기획전 개최
+-  '중동붐' 플랜트 수주 지난해 목표 300억달러 돌파…8년만에 최대
+-  [화요초대석] 포스트 바이든 시대를 대비한 플랜B가 필요하다
+-  국제라이온스협회356-A(대구)지구, 2024년 꿈나무와 함께하는 신년교례회 실시
+-  IN PHOTOS: The Golden Globes 2024 red carpet looks
+-  순천시, 2023년 시정 운영 성과 ‘가시’
+-  강진군 ‘푸소’ 생활인구 증대사업 대표 사례 선정
+-  양평군, 2024년 갑진년 통합 신년인사회
+-  담양군, 농촌 진흥 신 기술 보급 시범사업
+-  목포시 ‘시장 경영 패키지 지원’ 선정
+-  여수시, 2023년 시민 참여로 3967여톤 온실가스 감축
+-  나주시, 대한민국 지역경제대상 ‘종합대상’
+-  보성군, 문화·예술단체 대상 공모사업
+-  신안군, 암태면 도창마을 아트빌리지 조성 나서
+-  Lily Gladstone Makes Golden Globes History With ‘Killers of the Flower Moon’ Best Actress Win
+-  Ukraine-Krieg: Schwere Gefechte in Region Cherson
+-  45 साल के एक्टर के रणबीर कपूर ने छूए पैर, नीतू सिंह भी हुईं मुरीद, 'अबरार'...
+-  Президент Украины Зеленский призвал Европу преподать урок России
+-  Broncos’ flat finale brings one note of clarity: The offensive offseason to-do list is as critical as it is long
+-  Kamu işçisinin ücret zammı eridi
+-  울진을 위한 노래... 딱 한 곡?
+-  Where to Watch All the 2024 Golden Globe Winners [Updated]
+-  ২৩ দলের কেউই পাস করেনি
+-  ഗവേഷണ വിദ്യാർഥികൾക്ക് രാജ്യാന്തര ഗവേഷണങ്ങളിൽ പങ്കാളികളാകാൻ 10 കോടിയുടെ സ്കോളർഷിപ്പുകൾ: മന്ത്രി ഡോ. ആർ ബിന്ദു
+-  Drivers strike called off in Odisha, transport returns to normalcy
+-  Plan to Bury Human Remains on Moon Draws Fire From Native Americans
+-  Large police presence, crime scene tape up at Raleigh apartment complex near Lake Lynn
+-  Ekonomi ve siyaset gündemi - 8 Ocak 2024
+-  ‘Jerung dadah’ Sabah: Pegawai penguatkuasa pula ditahan
+-  Çeşme'de eğlence mekanında silahlı kavga: Bir ağır yaralı
+-  Succession, The Bear and Beef take Best TV show Golden Globes
+-  Sarah Snook 'intimidated' as she accepts Golden Globe Award
+-  Paul Giamatti dedicates Golden Globes win to teachers
+-  This website will help you find the best driving roads
+-  สื่อตีข่าว ‘อีลอน มัสก์’ ใช้ยาเสพติด ทำบอร์ดบริหาร ‘เทสลา-สเปซเอ็กซ์’ กังวลหนัก
