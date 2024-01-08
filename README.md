@@ -1,11 +1,11 @@
 # Latest News
--  ترند اليوم| وائل الدحدوح وكتاب الخروج عن النص
--  الثلاثاء.. أمسية قصصية بمنتدى المستقبل للفكر والإبداع
--  65세 이상 실업급여 수급자 재취업수당 지급 6개월로 절반 완화
--  Килиан Мбаппе достиг соглашения с новым клубом
--  Mehdi Hasan Exits MSNBC After Cancelation of His Sunday Show
--  All 24 death notices and funeral announcements from the Huddersfield Examiner this week
--  [SBS Star] Kim Woo Bin Cutely Complains, "Jun Yeol Keeps Saying We Never Met Before 'Alienoid', but..."
--  [서울우리소리박물관, ‘내일의 소리를 찾아서Ⅱ’ 그림책 발간…음원 3곡 제작
--  [‘아깝다 3R’ 임성재 PGA 버디新 세우고 개막전 공동 5위
--  ["OOO 때문에"…이선균 5000만원 뜯어낸 그녀, 이유는?
+-  제주시 부시장 변영근·서귀포시 부시장 현창훈 발령
+-  오아, 퓨어필워터 휴대용 무선 구강세정기 신제품 출시
+-  가평군, 올해 인구 활력 사업에 공무원 톡톡 아이디어 9건 반영
+-  가평군 상면 임초1· 2지구, 덕현1지구 76만7440.9㎡ 지적재조사 완료
+-  안산소방서, 오는 12일까지 낡은 공동주택 합동 점검
+-  안산시 상권활성화재단 창립 발기인 총회… 올 상반기 중 출범 예정
+-  תסריט האימים של "עוטף קלקיליה"
+-  'ปชป.' อัด 'รบ.เศรษฐา' โยนบาปรัฐบาลเก่า จัดสรรงบฯ 67 ไม่เหมาะ ชี้เป็นข้ออ้างที่ฟังไม่ขึ้น
+-  Con trai của Zidane sắp rời Real
+-  4 điều M.U cần làm để tránh thất bại trước Wigan ở FA Cup
