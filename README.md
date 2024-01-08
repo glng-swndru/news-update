@@ -1,11 +1,11 @@
 # Latest News
--  XR wil op 3 februari A12 weer blokkeren tegen fossiele steun
--  Een week na Oudejaarstrekking wacht 30 miljoen euro nog op winnaar
--  Amazon en Microsoft openen Saudische kantoren na druk van Riyad
--  Nederlandse chef-kok rijdt eigen stagiair aan, man in levensgevaar
--  Steden in noordoosten Duitsland onbereikbaar door boerenprotest
--  بدء القبول والتسجيل في الفصل الدارسي الثاني بالجامعة العربية المفتوحة
--  "صحة المدينة: ضبط وافد عربي يمارس مهنة الطب بدون ترخيص
--  عاجل.. "الدارة" تحذر من قصيدة "وهمية" حول نسب الأسرة المالكة
--  تنبيه من هيئة العقار حول نظام بيع وتأجير مشروعات على الخارطة
--  عاجل.. توضيح من "الغذاء والدواء"حول منتجات الجبن السائل وعلاقتها بالسرطان
+-  5 People Are Trapped in Cave in Slovenia After Heavy Rainfall Causes Water Levels to Rise
+-  Nước tăng lực làm giảm hoạt động trí não | Sức khỏe
+-  Arctech Enables Grid Connection of 400MW for CEEC's Solar Flagship in Uzbekistan's Renewables Breakthrough
+-  Medison Pharma Announces Agreement with Regeneron Pharmaceuticals to Commercialize Libtayo® (cemiplimab) in Multiple Countries
+-  İstanbul'da toplu ulaşıma yine zam geldi: İşte yeni fiyatlar
+-  Koç Üniversitesi'ndeki ırkçı işkence infiale neden olmuştu! Faşist saldırgana Ali koç resmen avukat yollamış
+-  İYİ Parti'den Özgür Özel'in 'ittifak' çağrısına cevap: İstanbul ve Ankara adayları için tarih verildi
+-  Campanha para tratar filho de indigenista assassinado atinge R$ 2 milhões; menino tem câncer
+-  Разследват надрусан самокатастрофирал полицай
+-  En pésimas condiciones, áreas de juegos de la Deportiva Sur
