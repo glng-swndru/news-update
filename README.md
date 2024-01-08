@@ -1,11 +1,51 @@
 # Latest News
--  Vestager će se sastati s izvršnim direktorima američkih tehnoloških tvrtki
--  "المسند" يطالب المساحة الجيولوجية بوضع لوحات إرشادية على هضبة الصلب والصمان
--  طريقة إصدار رخصة عربة متنقلة عبر بوابة أمانة جدة
--  7.4 مليون خدمة لـ حساب المواطن في عام 2023
--  مزايا تنافسية.. طريقة التقديم في تدريب منتهي بالتوظيف بهيئة تطوير بوابة الدرعية
--  Mauro Icardi sahalara ne zaman dönecek? Icardi Trabzonspor maçında oynayacak mı?
--  NASA 50 yıl sonra bir ilk: Uzay aracı Ay'da tur atan ilk ABD robotu olacak
--  AKTUÁLNE: Na cestu v okrese Žilina sa zosunula pôda. Úsek je neprejazdný
--  Kitchen Hacks: ఇంట్లో చికెన్ వండుతున్నారా? అయితే, ఇవి తెలుసుకోవాల్సిందే..!
--  Infoabend zum Jungjägerkurs
+-  Урганчда ўтказилаётган “ХХI аср алгоритми” халқаро анжуманида дунёнинг етакчи олимлари иштирок этмоқда
+-  Ҳудудий инвестицион лойиҳалар – барқарор иқтисодий ўсиш омили
+-  High water levels, flooding issues to persist until winters' end, experts say
+-  Giám đốc Bệnh viện Bạch Mai: 'Mua được thiết bị đầu tiên phải không vướng tham nhũng'
+-  Đèn cảnh báo áp suất trên máy bay Boeing 737 MAX từng bật sáng nhiều lần
+-  Bán kết Hoa hậu Toàn cầu 2023 tổ chức tại Phú Quốc sẽ tạm hoãn
+-  ولي العهد.. الشخصية القيادية العربية الأكثر تأثيراً لعام 2023
+-  Taarak Mehta Ka Ooltah Chashmah: Monika Bhadoriya reveals Tanmay Vekaria aka Bagha is not a good costar; says 'Unka bahut kharab...'
+-  سائفر کیس میں عمران خان کی رہائی کا روبکار جاری
+-  Salkić: The system has failed, extremists are motivated to sow fear and hatred towards Bosniaks
+-  Oppenheimeru i Poor Things Zlatni globusi za najbolje filmove, Succession najbolja dramska serija
+-  Bosna i Hercegovina domaćin američkim lovcima F-16 i obuci JTAC timova
+-  Blinken u novim razgovorima s arapskim čelnicima oko okončanja rata u Gazi
+-  Bosnia and Herzegovina host U.S. F-16s and JTAC training
+-  Metsolle yli 30 miljoonan euron tilaus
+-  Strip Post Office of prosecution powers over Horizon scandal – Starmer
+-  Manisa’da vinç devrildi: Faciayı önleyen işçi yaşamını yitirdi
+-  Instituciones del Estado deben priorizar ciberseguridad, dicen desde el Mitic
+-  Ke Huy Quan lands first lead role since Oscar win
+-  Mangsa banjir Johor, Pahang hampir 9,000 orang
+-  의사단체, 헬기이송 규탄 확산…성명서 이어 검찰 고발
+-  Babacan torpil görüntülerine böyle tepki gösterdi: Adalet bu mu?
+-  Μητσοτάκης: Απαιτείται ευρωπαϊκή λύση για τη μείωση των μεταναστευτικών ροών – Καλύτερη η συνεργασία με την Τουρκία
+-  'Sempre Paris', de Rosa Freire d'Aguiar, confirma que a história se repete
+-  Bendungan Karian dengan Biaya Rp2,2 Triliun Diresmikan Jokowi, Bisa Tampung 315 Juta Meter Kubik Air
+-  Las ventas minoristas cayeron 13,7% anual en diciembre y cerraron 2023 con una baja de 3,4%
+-  Grünes Licht für Northvolt-Batteriefabrik in Schleswig-Holstein
+-  Lorraine Kelly refutes Masked Singer rumors and gives her guess for the Owl while sharing two ‘clues’
+-  La Aemet cambia la fecha en la que podría nevar en Zaragoza
+-  Scaffolders get revenge on 'rude' motorist who refused to move car by barricading him in
+-  La OMS pide uso de mascarillas y volver a vacunarse contra el Covid-19
+-  Tăng trưởng GRDP ngành nông nghiệp Thừa Thiên Huế cao nhất từ trước đến nay
+-  Seyhan Avşar’a yurt dışına çıkış yasağı ve adli kontrol şartı
+-  אלמוג בוקר מפרסם: "המלחמה הסתיימה, אין סיכוי שנחזור הביתה"
+-  אופירה אסייג קמה לבוקר מחריד: "מת במהלך השינה, התינוק שלנו"
+-  משרד החוץ בהקרנת ענק: שגרירים מהעולם יצפו בסרט "נובה"
+-  זוכה מאסטר שף נכנס לתחום האירועים: זה הפרויקט החדש שלו
+-  מרכזי ביג יושבתו ל-100 דקות: זה מה שיקרה ב-14.1
+-  סטודנטים במילואים? המלגות הנדיבות שחולקו באוניברסיטת בר אילן
+-  פרטנר במיזם מיוחד: ישדרו סרטים נבחרים של סטודנטים
+-  לראשונה: הפלוגות החרדיות נלחמות בתוך רצועת עזה
+-  כלל ביטוח השלימה עסקת 'החלף' של 500 מיליון שקל
+-  Habeck führt diese Woche Gespräche im Nahen Osten
+-  Oczekiwania wobec zysków z S&P500 są przesadzone
+-  Wskaźnik oczekiwań inflacyjnych w Polsce w grudniu spadł do 24,7 pkt
+-  Sytuacja na rynkach 8 stycznia - rynek się zastanawia?
+-  Wilson: zwyżki na giełdach USA uzależnione od przyspieszenia w gospodarce
+-  ‘เศรษฐา’ เซ็นแต่งตั้งคณะอนุกรรมการ ก.ตร.เกี่ยวกับกฎหมายและระเบียบ
+-  Mapa GPW: Pure Biologics, GPW, Auto Partner, XTB i Orlen w centrum uwagi
+-  رشمیکا مندانا اور وجے دیورکونڈا کی منگنی کی خبر زیرِ گردش
