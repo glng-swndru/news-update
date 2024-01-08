@@ -1,11 +1,11 @@
 # Latest News
--  Feestelijke start nieuwe jaar Regio'72
--  Valioliiga-seura on aloittanut neuvottelut - tänne Englannin maajoukkuemies on matkalla
--  Chelsea kaavailee jälleen uutta hankintaa - tämä 25 miljoonan euron mies nyt kiikarissa
--  تراجع عدد بعائث خدمة جوازات سفر المقدسيين عبر البريد الأردني بنحو 80%
--  फेयर प्राइस डीलर्स ने एमओ को सौंपा 8 सूत्री मांगों से संबंधित ज्ञापन
--  Mes Copains d'abord : une comédie pleine d'humour au Grand Point Virgule à Paris
--  تراند اليوم : كان مقربا من الهالك قاسم سليماني.. أنور مالك يعلق على مقتل القيادي في حزب الله ‎وسام الطويل
--  Buscan bajar sobrepoblación en Cereso 3 en 6 meses
--  Por bajas temperaturas pasan la noche 100 personas en refugios
--  Localizan ejecutado en brecha a San Diego de Alcalá
+-  Plädoyer für Demokratie und gutes Miteinander
+-  Mehr Komfort, leicht teurere Tickets - Lage der Kinos in Bayern ist stabil
+-  Wenn eine Tote zur Tatverdächtigen wird - Prozess in Ingolstadt
+-  9000 جندي "إسرائيلي" تلقوا علاجًا نفسيًا منذ بداية الحرب
+-  Getty and #nvidia bring generative #ai to stock photos
+-  BFM Bourse : 16h/17h - 08/01
+-  Naomi Watts rocks 'distinctive' engagement ring and vampy beauty look for special milestone with Billy Crudup
+-  El iPhone que se cayó del vuelo de Alaska Airlines a 5.000 metros de altura y siguió funcionando
+-  ESPN Inks New Multi-Year Deal With ‘SportsCenter’s Kevin Negandhi
+-  Muere Franz Beckenbauer
