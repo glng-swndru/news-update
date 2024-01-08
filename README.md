@@ -1,51 +1,11 @@
 # Latest News
--  Der Kaiser ist jetzt für immer im Fußball-Himmel
--  בעולם הכדורגל נפרדים מבקנבאואר: "נתגעגע, אחד הגדולים אי פעם"
--  স্বতন্ত্র প্রার্থীর সঙ্গে বিশাল ভোটের ব্যবধানে সাঈদ খোকনের জয়
--  বাবার পর ছেলের কাছেও ভোটে হারলেন বঙ্গবীর কাদের সিদ্দিকী
--  স্বরাষ্ট্রমন্ত্রীকে শুভেচ্ছা জানালেন গোয়েন্দা পুলিশের কর্মকর্তারা
--  UOL NEWS
--  Indiana GOP lawmaker to retire from House
--  Még menteni próbálják a barlangba rekedt turistákat
--  Akcióba lépett az ügyészség, egy embert gyanúsítottként hallgatott ki a tiltakozásokban élen járó budapesti iskola állítólagos korrupciós ügyében
--  Folyik a nyomozás, Gérard Depardieu-t azzal vádolják, amiért mindig is dicsérték
--  Fransa Başbakanı istifa etti
--  ΠΑΟΚ – Ολυμπιακός 1-3: Διπλό κορυφής για τους Πειραιώτες στη Volley League
--  AKTUÁLNE Na železnici na Urale v blízkosti ropného skladu došlo k výbuchu
--  V noci môže teplota niekde klesnúť na mínus 19 stupňov Celzia, upozorňuje SHMÚ
--  Fatih Karagümrük, Trabzonspor'dan Dimitrios Kourbelis'i transfer etti
--  Bauernproteste am Montag: So lief der Tag im Vogtland
--  Matthäus über Beckenbauer: "Großartiger Mensch"
--  Frankreichs Regierung tritt zurück
--  Bauernprotest: Mehr als 550 Fahrzeuge rollen bei Sternfahrt durchs Erzgebirge
--  BBC insists it’s taking Amanda Abbington’s Strictly complaint ‘incredibly seriously’ amid Giovanni row
--  Lil Nas X Cosplayed Jesus’ Crucifixion To Announce His Next Single, ‘J Christ,’ Proof That His ‘Christian Era’ Is Real
--  Cult of the Lamb recebe atualização Sins of the Flesh em 16 de janeiro; trailer e detalhes
--  Belgian coach Broos hopes for 2017 repeat with South Africa
--  Meghalt Franz Beckenbauer
--  Dates, lieux, diffusion... L'agenda des grands événements de 2024, une année sportive exceptionnelle
--  Más de 200 mil enfiesta de Mamita
--  Топ политолог се произнесе за ротацията
--  Franse premier Borne stapt op voor herschikking kabinet
--  Durham Fire Department rescues man from high-rise construction site
--  LATE BRIEFING - Unternehmen und Märkte
--  Supreme Court rejects decade-old #twitter First Amendment case
--  New High-Performance Docking Stations Unveiled by Kensington at CES 2024
--  DD: TUI AG: Mathias Kiep, Kauf
--  Барбоза уверен, что Миранчук добьется успеха в Италии
--  Óscar Isaula regresa al Estrella Roja de Danlí
--  Motociclista é socorrido após colisão com carro em rodovia no Nortão; motorista fugiu
--  Padanje podpore vladi, Golobu in Svobodi se je ustavilo
--  Frankreich: Regierung von Premierministerin Élisabeth Borne tritt zurück
--  A do jetë pjesë e Big Brother VIP 3? Përgjigjet Adrola Dushi
--  Ranas arborícolas caníbales están invadiendo EEUU y matando a especies nativas
--  Citypress | ANC turns to ancestors for intervention ahead of birthday celebrations and upcoming elections
--  Kylie Jenner is ‘insecure’ at Golden Globes but Timothee Chalamet’s ‘overkill PDA shows he’s embraced inner Kardashian’
--  Carmine Starnino Named Editor-in-Chief
--  Кабмін скасував мораторій на відключення комунальних послуг та нарахування пені населенню
--  Remaniement : Élisabeth Borne, fin de mission à Matignon
--  Baby chain with 34 stores to OPEN branches despite high street woes – is one coming near you?
--  Baby chain with 34 stores to OPEN branches despite high street woes – is one coming near you?
--  خيام وحقائب إيوائية سعودية لتخفيف معاناة أهالي رفح
--  Balluku: Në qershor hapet tuneli i Llogarasë
--  Franz Beckenbauer, regarded as one of the finest footballers, dies aged 78
+-  ‘We get down where we get mad at’: Bill Haney gets into confrontation with Bernard Hopkins
+-  İstanbul'da Fatih Camii imamı bıçaklı saldırıda yaralandı!
+-  Za sedmicu više od 83.000 putnika na prištinskom aerodromu
+-  Atentat na Pukanića i Franjića zvanično okarakterisan kao terorizam
+-  Mračna strana znamenitog mosta: Dvije hiljade samoubistava na Golden Gejtu
+-  Crna Gora-Hrvatska: Prenos na Drugom kanalu i portalu RTCG
+-  Fehlt Geld für die Feier?: Nordkorea schweigt über Kims 40. Geburtstag
+-  Gizem Karaca Safir'de! Safir Güneş kimdir? Safir dizisinde Güneş'i oynayan Gizem Karaca nereli, kaç yaşında?
+-  Safir Şermin kimdir? Safir dizisinde Şermin'i oynayan Ayçin İnci nereli, kaç yaşında?
+-  Safir Bade kimdir? Safir dizisinde Bade'yi oynayan Selin Işık nereli, kaç yaşında?
