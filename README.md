@@ -1,51 +1,51 @@
 # Latest News
--  NPFL: Lobi Stars Boss Commends Players After Win At Kwara United
--  Soccerladuma | Reasons Henderson Wants To Quit Saudi 'Revealed'
--  Windows Mixed Reality reaches end-of-life in 2026
--  Michelle Keegan admits huge fear after Coronation Street exit ‘ripped away’ her security
--  RICTOR Showcases Full Product Line at CES Leading Innovation in Two-Wheel New Energy Vehicles
--  Police seek to arrest college students for forcing entry into presidential office grounds
--  2027 Politics Begins As Makinde, Wike, Others Declare Support For Tinubu
--  Aumentan detenciones de feminicidas en la CDMX; agresores tienen entre 20 y 35 años
--  Sony lucha contra las imágenes falsas; alianza con The Associated Press
--  Afectarán a 171 aviones, inspecciones de la FAA; a nivel global
--  Üç aylar cuma günü başlayacak
--  Saldırı hazırlığındaki 5 PKK'lı terörist etkisiz hale getirildi
--  CHP Bursa Milletvekili Sarıbal 2023 gıda enflasyonunu değerlendiriyor
--  Kucağında çocuk olan kadını bıçakla yaraladı, telefonunu gasp etti
--  Büyük Birlik Partisi Genel Başkanı Destici'den yerel seçimde iş birliği açıklaması
--  BUDO'ya olumsuz hava engeli
--  臻鼎-KY12月營收月減21.2%
--  Where was Fool Me Once filmed? From Peaky Blinders manor location to lavish mansion
--  Giữa đống hoang tàn sau trận động đất, chàng nghệ nhân Nhật Bản tìm kiếm những chú mèo - chỗ dựa tinh thần của anh kể từ đại dịch
--  Phát hiện thi thể cô gái trẻ tử vong bên vệ đường
--  Rò rỉ kết quả vòng cuối, đội Lan Ngọc - Thu Phương thua trắng, 2 chị đẹp này bị loại
--  NTK Thái Công thông báo livestream phiên bán hàng đầu tiên, khẳng định "không lùa gà, mà lùa rồng phụng’’!
--  البنوك تعود للعمل في مواعيدها الرسمية اليوم الاثنين بعد إجازة 3 أيام
--  بدء طرح الشهادة ذات العائد 27% للعملاء في فروع بنكي الأهلي ومصر
--  اشتعال النيران في محل تجاري بسوهاج
--  سعر الذهب اليوم الاثنين في مصر يتراجع 25 جنيها مع بداية التعاملات
--  بالصور.. صرف السماد لمزارعي بورسعيد.. والفلاحون يهتفون:"تحيا مصر"
--  إنشاء فرع دولي لجامعة بيروت العربية في برج العرب- صور
--  تداول 12 الف طن بضائع بموانئ البحر الأحمر
--  البورصة تصعد مع بداية تعاملات اليوم الاثنين
--  وزير الإسكان: بدء تسليم وحدات مشروع جنة "بيت الوطن" بـ 6 أكتوبر.. الأحد
--  يمنح الماجستير والدكتوراه.. التعليم العالي: غلق كيان وهمي بمنطقة المهندسين
--  Buckie and Formartine game off allows Brechin to go clear at top
--  6 năm về hưu, tôi đã làm 2 việc “vô tâm”, vợ con rất tức giận nhưng cuối cùng lại phải cảm ơn tôi
--  Pourquoi des calendriers 1996 sont soudain vendus 50 € sur eBay
--  Golden Globe 2024: Barbie’s Greta Gerwig lifts first-ever award for cinematic and box office achievement
--  BNK금융, 중소기업·소상공인에 설날 특별자금 1.6조원 지원
--  한동훈 "국민의힘은 강원도의 힘이 되겠다…8석 모두 붉은색으로"
--  Hallan en un patio parte del fuselaje desprendido del avión accidentado en EEUU
--  LG Display Announces Industry’s First 480 Hz QHD OLED Gaming Monitor for CES 2024
--  Golden Globes 2024 : Jennifer Lawrence va devenir un mème avec cette séquence hilarante
--  إذا كنت مصابًا بارتفاع ضغط الدم.. فزوجتك تعاني منه أيضًا!
--  India's Vehicle Sales Surge 21% In December On Two-Wheeler Demand And Discounts
--  أمانة العاصمة المقدسة تدعو هؤلاء لسرعة إصدار شهادة امتثال المباني
--  Hundreds evacuate homes after flooding in south-east Australia
--  From Ibrahim Ali Khan to Pashmina Roshan, 9 most awaited Bollywood debuts in 2024
--  Tiburones de La Guaira derrotó a los Leones y se mantiene invicto
--  Erik ten Hag explains why Donny van de Beek failed at Manchester United
--  ISRAELE: 73 palestinesi uccisi a Gaza in ultime 24 ore - min. Sanità
--  BLOG/Weil fordert langfristige Strategie für die Landwirtschaft
+-  سحب قرعة كأس الجزائر 2023-2024: شبيبة القبائل-شباب بلوزداد، تتصدر قمة مباريات الدور ال32
+-  Kırgızistan'ın yeni bayrağı Bişkek'te göndere çekildi
+-  Bakan Bayraktar 'yeni bir hareket başlatıyoruz' diyerek duyurdu: Hedef 46 milyar dolar tasarruf
+-  Joseph: Vuçiq tenton të vendos kontroll të plotë mbi Serbinë, nëse përmendet Banjska mendja të shkon tek ai
+-  '저 좀 영입해주세요!' 린가드, '西 최강 명문 클럽'에 역제안...현실적인 이적 가능성은?
+-  [오피셜] 조현우 후계자 찾았다!...울산 HD, '차세대 GK' 문현호 영입
+-  [전문] 서정희, 연하 남자친구 최초 공개 "결혼은 아직, 유방암 투병 당시 큰 힘"
+-  아파트 주담대, 네·카·토에서 금리 비교하고 갈아탄다
+-  "이 오빠들 청량이 근본이었지"…'13주년' B1A4, 군백기 끝 컴백 [MD현장](종합)
+-  카카오 준법과신뢰위원회, 2개 소위원회 신설
+-  이 또한 '이찬혁'답지 아니한가…'1조' MV 11일 오후 1시 11분 공개 [공식]
+-  경기가 끝나도 퇴근하지 못하는 선수...'수원왕자' 인기는 아무도 못 말려 [유진형의 현장 1mm]
+-  “강정호 스쿨, 더 빨리 가고 싶었다…벽에 부딪혔다” 공룡들 34세 포수 절치부심, 2023년 악몽 씻는다[MD창원]
+-  "파격 그리고 치명적이다" 씨스타19(SISTAR19)의 화려한 귀환
+-  [MD포토] B1A4 신우, '훤칠한 기럭지'
+-  “한국 다녀오더니, 완전히 다른 사람” ML 코치 극찬…페디 위대한 도전, 197억원 혜자계약 ‘증명’
+-  마음 떠난 손흥민 대체자→토트넘과 대화 2분 만에 이적 결심
+-  [MD포토] B1A4 산들, '귀여움은 내 몫이야!'
+-  [MD포토] B1A4 공찬, '나에게 빠져~'
+-  [오피셜] 'GK 보강 성공' 인천, 베테랑 골키퍼 이범수 영입!..."스스로 증명해 보이고 싶다"
+-  英 매체 "2부 리그로 이적할 것"→본인 등판 "거짓말 그만하지?"→"그거 오해야, 미안해" ...대체 누구?
+-  [MD포토] B1A4 신우, '무대위 카리스마'
+-  [MD포토] B1A4 산들, '무대에서 정말 신나!'
+-  한때는 '엄친아'의 상징…UN 김정훈, 또 음주운전 이슈 '파도 파도 괴담만' [종합]
+-  [MD포토] B1A4 공찬, '폭발하는 잘생김'
+-  [MD포토] B1A4 공찬, '잘생김 가득'
+-  [MD포토] B1A4 공찬-신우, '그게 바로 너야!'
+-  [MD포토] B1A4 산들, '폭발하는 노래'
+-  General Electronic Components Market Impacted By Supply Chain Disruptions And Chip Shortages Though Demand Remains Strong | Sony Corporation, Broadcom Inc., Panasonic Corporation
+-  Global Homeopathy Market: Robust Growth Projected, Reaching USD 21.51 Bn by 2030
+-  שלישי בגביע: שני מפגשים על טהרת הלאומית, קרית שמונה תימנע מהפתעה?
+-  FMC setzen jüngste Kursschwäche fort
+-  Melinda Ademi shkëlqen me një kostum provokues, në setin e ri të fotografive në Instagram
+-  Extremismusforscher: Rechte unterwandern Bauernproteste
+-  南方人遭歧視？︱遊哈爾濱被稱「南方小土豆」惹熱議 微博禁言79個惡意帳號
+-  양운석 경기도의원, 지역 예산·특조금 749억 확보
+-  오수봉 예비후보, 하남시 유·초·중·고학부모연합회 임원 간담회 가져
+-  안산시 상록구 4층짜리 주상복합건물 화재
+-  최영근 국힘 화성시 갑 예비후보 ‘먹고 사는 문제’ 출판기념회 개최
+-  Epson מכריזה על מדפסת חדשה: "איכות תמונה יוצאת דופן"
+-  קבוצת הייטקיסטים במיזם מציל חיים: "מתמודדים יחד עם המציאות החדשה"
+-  הראל ויזל ותנובה במהלך מרגש: זה מה שיקרה ב-14.1
+-  הדולר מזנק ב-1.4% וחוצה את רמת ה-3.7 שקל
+-  Gostivar, mërgimtarët përfundojnë pushimet, nisen drejt vendeve perëndimore
+-  Rolls-Royce Motor Cars läutet ein "außergewöhnliches" Jahr ein
+-  Rolls-Royce Motor Cars annuncia un anno "straordinario
+-  Rolls-Royce Motor Cars luidt "buitengewoon" jaar in
+-  Rolls-Royce Motor Cars anuncia un año "extraordinario
+-  Qiagen erholt - Morgan Stanley optimistisch, Aktienrückkauf
+-  Cheese Powder Market to Reach USD 2.25 Bn by 2029, emerging at a CAGR of 6.8 percent and forecast 2023-2029
