@@ -1,11 +1,11 @@
 # Latest News
--  충북도 양성평등가족정책관에 오경숙 전 새일본부장 임용
--  한파 … 중무장한 출근길
--  0.3㎝ 눈에 소금 388톤 살포 … 제설 과잉대응 논란
--  재산신고 누락 이상조 청주시의원 벌금 300만원 구형
--  충북자치경찰위, 자치경찰 사무 공무원에 맞춤형 복지포인트 지원
--  음주운전 충북도 공무원 정직 2개월 중징계 처분
--  2024 강원 동계청소년올림픽 19일 개막
--  PSG 프랑스컵서 골잔치 6부 르벨에 9대 0 완승
--  브라질 축구 국가대표 감독 도리바우 주니오르 선임
--  임성재 PGA투어 ‘72홀 최다 버디’ 新
+-  Orbán Viktor lehet Charles Michel utóda? Havasi Bertalan: Stratégiai nyugalom
+-  Meghalt Vízkelety Mariann
+-  Meghalt Ferdinandy György
+-  ہم انتخابات میں حصہ لیں گے، ہمارے پاس ایک متبادل پلان موجود ہے:لطیف کھوسہ
+-  Nova poruka Amerike Dodiku: F-16 danas lete nad BiH, vježbaju gađanje ciljeva na zemlji
+-  الجيش الإسرائيلي يعلن مسؤوليته عن الغارة التي استهدفت سيارة حمزة الدحدوح ومصطفى ثريا
+-  Energiateollisuus: Sähkön korkeat hinnat yllättivät myös energia-alan
+-  E para që nga “Apollo”, niset me sukses drejt Hënës raketa “Vulcan”
+-  Donegal Deputy hopes 2024 will be the year of a General Election
+-  Sameer Suleman leaves Nankhumwa’s DPP rebel group
