@@ -1,11 +1,51 @@
 # Latest News
--  Noorse terrorist Anders Breivik is volgens advocaat suïcidaal
--  Cenk Özkaçar için sürpriz iddia!
--  İsrailli aşırı sağcı bakandan Filistin'deki işgale alaycı tavır... Gazzelilerle dalga geçti
--  Fatih Karagümrük, Kourbelis'i açıkladı
--  Beckenbauer'den futbol camiasını hüzne boğan haber
--  BAE, Gazze kasabı Netanyahu'nun maaş talebini reddetti
--  Samet Aybaba'dan taraftara ilginç yanıt! "Hepsini nasıl gönderelim"
--  Katil İsrail 2 gazeteciyi daha hayattan kopardı
--  Franz Beckenbauer starb im Alter von 78 Jahren
--  Autistic Disorder Pipeline Drugs Analysis Report, 2023: FDA Approvals, Clinical Trials, Therapies, Mechanism of Action, Route of Administration by DelveInsight | Scioto Biosciences, Hoffmann-La Roche, Yamo Pharmaceutical, Jazz Pharmaceuticals, Axial Thera
+-  تنمية: برمجة انجاز 326 مرفقا عموميا عبر كافة التراب الوطني في 2024
+-  الإنجازات التي تجسدت لحد الآن تؤكد صواب توجه رئيس الجمهورية
+-  تنمية: برمجة انجاز 326 مرفقا عموميا عبر كافة التراب الوطني في 2024
+-  من هو علي بداوي المدير العام الجديد للأمن الوطني؟
+-  بوغالي: آفاق التطور الاقتصادي اصبحت بادية للعيان
+-  نظارات الواقع الافتراضي Vision Pro من آبل تجذب اهتمام المستخدمين
+-  جبهة التحرير الوطني: اللجنة المركزية تزكي في دورتها العادية الثانية التشكيلة الجديدة للمكتب السياسي للحزب
+-  إيداع 10أشخاص الحبس المؤقت على خلفية حادثة تسلل شاب إلى طائرة للخطوط الجوية الجزائرية بمطار وهران
+-  التكفل الفوري بالطلبة الفلسطينيين : سفير فلسطين بالجزائر يثمن عاليا توجيهات الرئيس تبون
+-  مجلة الجيش : الإنجازات التي تجسدت لحد الآن تؤكد صواب توجه رئيس الجمهورية
+-  مجلس الوزراء: المقاولون الذاتيون يستفيدون من نظام ضريبي تفضيلي بموجب قانون المالية 2024
+-  جيدو/جائزة البرتغال الكبرى: الجزائر حاضرة بثلاثة مصارعين بأوديفيلاس
+-  كرة القدم/ سحب قرعة كأس الجزائر 2023-2024: شبيبة القبائل – شباب بلوزداد، تتصدر قمة مباريات الدور ال32
+-  St Dalfour and Renowned Chef Pierre Gagnaire Join Forces to Craft Culinary Magic with St Dalfour Fruit Spreads
+-  WORLD'S FIRST WIRELESS TRANSPARENT OLED TV REDEFINES THE SCREEN EXPERIENCE
+-  Shell onderaan in AEX-index, ASML bij winnaars op Damrak
+-  Overijssel roept nieuw kabinet op: luister naar de regio
+-  عاجل.. "جاكم البرد".. توقعات بوصول هذه المناطق في المملكة لـ"صفر مئوية"
+-  بالفيديو.. أمطار غزيرة وتدفق السيول في تهامة عسير
+-  Out of Office Reply: Jason Boyes
+-  محافظ الغربية يفتتح معرضين جديدين لبيع السلع بأسعار مخفضة
+-  Cae pino sobre cableado, acuden Bomberos para retirarlo
+-  Se va la jirafa ‘Benito’ de Juárez a Puebla
+-  52 candidates vying for 19 NA seats
+-  Chihuahua, un riesgo para la niñez
+-  مونشنجلادباخ يسمح للياباني إيتاكورا بالمشاركة في أمم آسيا
+-  Samsung launches raft of new displays, including the Neo QLED 8k with next-gen AI processor
+-  Samsung launches raft of new displays, including the Neo QLED 8k with next-gen AI processor
+-  "¿Pero por qué Nadal no se retira?"
+-  కాన్ఫరెన్స్‌ హాల్‌గా రైతు వేదికలు!
+-  Ice Spice goes viral with funny new song teaser, produced by RiotUSA
+-  Dortmund bangt erneut um Karstadt: „Keine Ahnung, wo die Reise jetzt hingeht“ – Betriebsratschef verzweifelt
+-  המטוס התפרק בהמראה, האייפון נפל מגובה 4.8 ק"מ - ושרד
+-  צעיר יצר אקדח מאולתר וירה בעצמו בשוגג: "חרדות מה-7 באוקטובר גרמו לי לבנות אותו"
+-  כדי לחסוך בעלויות בזמן המלחמה: דרעי הסכים להקפיא את החוק הנורבגי
+-  Veracyte to buy Israeli cancer detection co C2i Genomics
+-  The emergency dam in Maastricht has been closed
+-  Sur smiley og bøde: Remees bar dumper kontrol
+-  Remaniement : Élisabeth Borne a présenté sa démission, Emmanuel Macron l'a acceptée
+-  PHOTOS. Près de Lyon : ces villages du Rhône sublimés et complètement sous la neige
+-  Ipsos : rachète la société néerlandaise, I&O Research
+-  タイ・ゼネコン大手ITD、社債償還延長提案 資金繰り悪化
+-  विकसित भारत संकल्प यात्रा के माध्यम से सरकार आपके आंगन तक आई है : महामहिम राज्यपाल श्री पटेल
+-  تقديم طلب لاحتجاز طاجيكي متهم بالتخطيط للهجوم على كاتدرائية كولونيا لحين تسليمه للنمسا
+-  أبو الغيط يهنئ الرئيس السيسي بالولاية الرئاسية الجديدة
+-  Minden szociális intézménynek kötelező befogadnia a hajléktalanokat a nagy hideg miatt
+-  Franz Beckenbauer death latest: Gary Lineker leads tributes as family announce tragic passing of German football icon
+-  Sagde du krig … her … i Sverige? Advarslen fra regeringen er tindrende klar. Blikket er stift rettet mod Rusland
+-  Sagde du krig … her … i Sverige? Advarslen fra regeringen er tindrende klar. Blikket er stift rettet mod Rusland
+-  Haunting pictures show scantily-clad girls and women on billionaire Jeffrey Epstein's 'pedo island' along with his madam Ghislaine Maxwell - as they're released in the latest court docs dump
