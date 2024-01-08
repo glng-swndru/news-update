@@ -1,51 +1,51 @@
 # Latest News
--  195cm 88kg의 거구가 사람을 잡고 흔든다! 괴물 ST, 동료 득점에 흥분
--  [오피셜] 대전, 검증된 미드필더 김준범 영입
--  Юрист перечислил способы защиты пожилых людей от мошенников
--  FPIs Drive Record Inflows, Boost Indian Equities In Early 2024
--  ["p형은 무슨 성격일까?"…中서 p형 새로운 유전 서열 발견
--  [1억+1억 아닌 1억+2.5억을 드립니다.
--  [국세청, 영세사업자 128만명 부가세 납부 두달 연장
--  [부산 기장 산불 발생…산림청, 1시간 41분만에 진화완료
--  [▶▶ 24년부터 전국민 카카오톡 추천주 무료.!
--  [이낙연 이번주 탈당선언…비명계 4인도 결단 임박
--  [尹 ‘민생 살리기’ 설날 신용사면 검토
--  [김은혜, 국힘 복당 신청...총선 채비 본격화
--  [與 공관위長에 판사출신 정영환...이상민 전격 입당
--  [日 90대 여성, 강진 124시간만 ‘기적의 생환’…“잔해 속 빗물로 연명”
--  [청소 없이 그냥 가…제주 오름에 소품 방치하고 간 촬여팀
--  [조폐공사, 세계 예술형 기념주화 특별 기획전 개최
--  '중동붐' 플랜트 수주 지난해 목표 300억달러 돌파…8년만에 최대
--  [화요초대석] 포스트 바이든 시대를 대비한 플랜B가 필요하다
--  국제라이온스협회356-A(대구)지구, 2024년 꿈나무와 함께하는 신년교례회 실시
--  IN PHOTOS: The Golden Globes 2024 red carpet looks
--  순천시, 2023년 시정 운영 성과 ‘가시’
--  강진군 ‘푸소’ 생활인구 증대사업 대표 사례 선정
--  양평군, 2024년 갑진년 통합 신년인사회
--  담양군, 농촌 진흥 신 기술 보급 시범사업
--  목포시 ‘시장 경영 패키지 지원’ 선정
--  여수시, 2023년 시민 참여로 3967여톤 온실가스 감축
--  나주시, 대한민국 지역경제대상 ‘종합대상’
--  보성군, 문화·예술단체 대상 공모사업
--  신안군, 암태면 도창마을 아트빌리지 조성 나서
--  Lily Gladstone Makes Golden Globes History With ‘Killers of the Flower Moon’ Best Actress Win
--  Ukraine-Krieg: Schwere Gefechte in Region Cherson
--  45 साल के एक्टर के रणबीर कपूर ने छूए पैर, नीतू सिंह भी हुईं मुरीद, 'अबरार'...
--  Президент Украины Зеленский призвал Европу преподать урок России
--  Broncos’ flat finale brings one note of clarity: The offensive offseason to-do list is as critical as it is long
--  Kamu işçisinin ücret zammı eridi
--  울진을 위한 노래... 딱 한 곡?
--  Where to Watch All the 2024 Golden Globe Winners [Updated]
--  ২৩ দলের কেউই পাস করেনি
--  ഗവേഷണ വിദ്യാർഥികൾക്ക് രാജ്യാന്തര ഗവേഷണങ്ങളിൽ പങ്കാളികളാകാൻ 10 കോടിയുടെ സ്കോളർഷിപ്പുകൾ: മന്ത്രി ഡോ. ആർ ബിന്ദു
--  Drivers strike called off in Odisha, transport returns to normalcy
--  Plan to Bury Human Remains on Moon Draws Fire From Native Americans
--  Large police presence, crime scene tape up at Raleigh apartment complex near Lake Lynn
--  Ekonomi ve siyaset gündemi - 8 Ocak 2024
--  ‘Jerung dadah’ Sabah: Pegawai penguatkuasa pula ditahan
--  Çeşme'de eğlence mekanında silahlı kavga: Bir ağır yaralı
--  Succession, The Bear and Beef take Best TV show Golden Globes
--  Sarah Snook 'intimidated' as she accepts Golden Globe Award
--  Paul Giamatti dedicates Golden Globes win to teachers
--  This website will help you find the best driving roads
--  สื่อตีข่าว ‘อีลอน มัสก์’ ใช้ยาเสพติด ทำบอร์ดบริหาร ‘เทสลา-สเปซเอ็กซ์’ กังวลหนัก
+-  [엑소 첸백시 뭉쳤다…독립 레이블 ‘아이앤비100’으로 개별·유닛 활동
+-  [황의조 형수 “전혀 모르는 일” 첫 재판서 혐의 부인
+-  [해남군, 계약 심사로 45억 4천만원 예산 절감
+-  ['무서운 전 남친'…중고거래하자며 옛 연인 기절시키고 감금
+-  [슬리밍고그룹, 척추측만교정 바른자세만들기 캠페인 실시
+-  [전남 무안 어린이집 원아 학대 고소장…“경찰 아동학대 수사”
+-  [신안군 전국 최초, 최대 4천만 원 목돈 마련 ‘햇빛아동 장학 적금’ 출시
+-  [원·달러시장 선도은행, 산업·국민·신한·우리 등 7곳 선정
+-  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
+-  ‘1000억→1400억’ 이적료 상향 조정…바르사 철벽, 뮌헨행 가까워진다
+-  מכבי תל אביב מבהירה: לא זלזלנו, "צריכים עוד שחקנים"
+-  אנשים כבר חשבו שהעונה גמורה? דור פרץ: "אצלנו לא היה שיח כזה"
+-  Plakalar tek tek sökülecek. Artık araç plakaları böyle olacak. Arabası olanlar dikkat
+-  Lily Gladstone se convierte en la primera actriz con raíces nativas americanas en ganar un Globo de Oro
+-  توقعات "الأرصاد": أمطار رعدية على 3 مناطق ورياح متربة بمكة والمدينة
+-  I’ve no regret supporting a southerner as president
+-  공매도에 이어 또?…금투세 폐지에 “포퓰리즘” 냉랭한 언론
+-  이준석, 尹정부 방송장악 질문에 “박민 KBS 사장, 전문성 안 보여”
+-  Operation Yukthiya Nabs Over 29,000 Suspects
+-  The university degree saga: Changing the Nigeria academic narrative
+-  ”Förstatliga universitetssjukhusen – låt sex regioner sköta all övrig vård”
+-  America’s hell: A tyrannical Trump who can’t be conquered
+-  El desastre de la sequía en Cádiz, donde están los embalses más vacíos del país
+-  Voluntarios con colador: cientos de personas se lanzan a las playas gallegas para luchar contra la marea de ‘pellets’ plásticos
+-  Britansko-ruska dokumentarna oddaja Na suhem – ponedeljek, 8. 1., ob 21.15 na TV SLO 1
+-  Давлат боғчаларида айрим тарбияланувчилар учун озиқ-овқат харажати тўлиқ давлат бюджетидан қопланади.
+-  Wie groß wird der Bauernprotest? Landwirte planen Blockaden
+-  Erstes Stollberger Winterdorf mit positiver Resonanz
+-  Mehr als doppelt so viele Frauen in Vorständen als noch 2020
+-  Bauernproteste: „Freie Presse“ berichtet über die Situation in Mittelsachsen
+-  USA sehen "erhebliche Spannungen" in Nahost
+-  Liveticker zu Bauernprotesten in Sachsen: Verwaltungsgericht kippt Demoverbot in Erzgebirgsort
+-  Bauernproteste am Montag: So ist die Lage im Vogtland
+-  Winterfütterung für Vögel ja oder nein? Das sagen Experten aus dem Erzgebirge
+-  Sahra Wagenknecht präsentiert ihre Partei und ihr Programm
+-  Krieg gegen die Ukraine: So ist die Lage
+-  Links-Rechts-Politik für die Mitte: Das BSW startet
+-  “Oppenheimer” dominates Golden Globes, “Poor Things” upsets “Barbie” in comedy
+-  Bursa'da bugün hava nasıl olacak?
+-  Bolu'da iki otomobil çarpıştı: 6 yaralı
+-  Evde ölü bulunmuştu: Üniversiteli Gökçe'nin ölümündeki sır perdesi aralandı
+-  İsrail polisi 3 yaşındaki Filistinli kızı öldürdü: "Yanlışlıkla vurduk"
+-  Atatürk'e hakaret eden kişi tutuklandı
+-  NC, 2024시즌 캐치프레이즈 'THE ROAD TO GREATNESS' 공개
+-  Архангай аймак примет один из крупнейших зимних фестивалей на соломенном стадионе
+-  สหรัฐฯ ห้ามใช้ "โบอิ้ง 737 แม็กซ์ 9" หลังชิ้นส่วนเครื่องบินหลุด
+-  ปภ.ยัน "ทุ่นสึนามิ" ทะเลอันดามันไม่ส่งสัญญาณ ไม่กระทบแจ้งเตือน
+-  เช้านี้ PM 2.5 กทม.ส้มทุกเขต 3 จังหวัดระดับสีแดง
+-  นายกฯ ย้ำไม่เห็นด้วย "แบงก์ชาติ" ขึ้นดอกเบี้ยสวนทางเงินเฟ้อ
+-  Plateau: Yilwatda urges Supreme Court to dismiss Mutfwang’s position on Appeal Court verdict
