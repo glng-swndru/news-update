@@ -1,11 +1,11 @@
 # Latest News
--  Évi 1,4 milliárdot költ a minisztériumok politikai tanácsadóira az Orbán-kormány
--  Izraeli légicsapás végzett Libanonban a Hezbollah egyik parancsnokával
--  Szennyezés miatt vontak ki a forgalomból egy népszerű lázcsillapítót
--  غموض حول يوم ميلاده... زعيم كوريا الشمالية ربما بلغ عامه الأربعين
--  بكين تُجري تدريبات بالذخيرة الحية في بحر الصين الشرقي
--  شاهد ظهور حوت الأوركا في مياه محمية جزر فرسان بجازان
--  استطلاع: نصف الأميركيين يتوقعون أعمال عنف خلال الانتخابات المقبلة
--  سامسونج تسلّط الضوء على أكبر عدد من مشاريع مختبر C-Lab على الإطلاق خلال معرض الإلكترونيّات الاستهلاكيّة 2024
--  استقالة رئيس أكبر لوبي لحمل السلاح في أميركا
--  فصل مبرمج للتيار الكهربائي عن مناطق بالشونة الجنوبية غداً
+-  GKN Kargo, Galatasaray'a Sponsor Olduğu İçin(!) Konkordato Başvurusu Yaptı
+-  Görünce “Nereden Gelmiş Akıllarına ya?” Diyeceğiniz, Parlak Zekâların Ürünü 12 Yaratıcı Reklam
+-  Kickoff | Mfundo Vilakazi reveals Riveiro's advice
+-  Kickoff | Super Eagles' money issues take 'new turn' ahead of AFCON
+-  Suspect in Christmas season mall shooing has been arrested
+-  Mercato - OM : Longoria fait une offre, la réponse est terrible
+-  More LifeColor paint sets in stock now!
+-  Has your child got the sniffles? Must-read guide for every parent on when kids SHOULD go to school and when they be kept at home
+-  Art culinaire/Guinness : une cheffe ghanéenne bat le record mondial du marathon culinaire
+-  Live-Podcast in der Kölner Wohngemeinschaft: Wie haben wir alle besseren Sex, Volker Wittkamp?
