@@ -1,11 +1,11 @@
 # Latest News
--  To su naše "Ajkule": Protiv Hrvatske, publike, sudija pobjeda nakon peteraca
--  Hundreds of Pro-Palestinian protesters arrested after blocking NYC bridges, tunnel
--  Украина готовит инфраструктуру аэродромов для приема F-16
--  Denver International Airport baggage system breakdown forced scramble, drove delays
--  DROHNENBEDROHUNG: Truppenübungsplätze der Bundeswehr in Sicht! – Russische Einmischung? – WELT-Nachrichtensender
--  RASMI: Atlético Madrid vs Real Madrid, Girona vs Rayo vs Barca vs … Isku-aadka Wareegga 16ka Copa del Rey Oo Lagu Dhawaaqay
--  Suspect out of Boulder arrested after shelter-in-place order issued in Nederland
--  Momentet e fundit të Bedrie Lokës, bashkëshorti pretendon se 41-vjeçarja i kërkoi falje për vetëvrasjen në spital
--  Air Sénégal international annonce son premier vol, le 15 janvier, à l’aéroport de Saint- Louis
--  Alaska Airlines Boeing 737 Max: Ermittlungen schreiten nach Entdeckung voran
+-  Türksat 6A'da süreç nasıl işliyor?
+-  Son dakika: Survivor'da eleme adayı kim oldu? 8 Ocak 2024 Survivor'da potaya giden isim!
+-  Şehit ve gazi yakınlarına istihdam
+-  الاحتلال يـقتحم بلدات وقرى بجنين
+-  United finds multiple panels with problems on Boeing 737 MAX planes
+-  Nejlepší střelec Leverkusenu Boniface se před mistrovstvím Afriky zranil
+-  Müge ile Gülşen neden ayrıldı? 2. Sayfa programı bitti mi?
+-  الشوط الأول.. مانشستر يونايتد يتقدم على ويجان في كأس إنجلترا
+-  After three decades, 15 majors and $750 million, Woods announces Nike split
+-  After three decades, 15 majors and $750 million, Woods announces Nike split
