@@ -1,11 +1,11 @@
 # Latest News
--  선물세트 사전 예약 판매 '역대 최대' ... 소비자 구매 트렌드 변화 영향
--  Los mallorquines de 'La isla de las tentaciones' se sinceran sobre su paso por el programa
--  Las noticias que no te puedes perder hoy, contadas en un minuto
--  Christians organise walk, special prayers against killings in Plateau
--  فريق مغمور يخرج فياريال من مسابقة كأس إسبانيا
--  زلزال بقوة 6.7 درجات يضرب الفلبين
--  بلينكن: التطبيع الإسرائيلي العربي يتطلب إنهاء الصراع بغزة
--  إصابة إمام مسجد الفاتح بإسطنبول جراء هجوم بالسكين
--  المنتخب الوطني يخوض أول حصة تدريبية في ساحل العاج
--  विश्व कप विजेता फ्रांज बेकनबाउर नहीं रहे, ग्रेट जर्मन फुटबॉलरों में थे शुमार
+-  Manisa'da 1 kişinin hayatını kaybettiği vinç kazasının görüntüleri ortaya çıktı
+-  Crnogorski izbornik: Bili smo pravi, skidam kapu igračima
+-  Survivor: Έπαθε σκωτσέζικο ντους με την απρόσμενη υποψηφιότητά του
+-  Monitori gaming 57-inç Predator Z57 i Acer mund të luajë dy lojëra në të njëjtën kohë
+-  전북 출신 이성윤 검사장 사직서 제출hellip;9일 전주교대서 출판기념회
+-  김철태 부군수 ldquo;도 큰 도약 더 좋은 고창 위해 힘을 다할 것rdquo;
+-  Nylander contract done, Maple Leafs GM Treliving has more work to do
+-  La economía mundial crecerá poco en 2024
+-  United Airlines finds loose bolts, other problems on door plugs of Boeing 737 Max 9 jets
+-  이낙연, 탈당 앞두고 "민주당 44%가 전과자" 직격
