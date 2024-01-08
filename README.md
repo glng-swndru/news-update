@@ -1,51 +1,11 @@
 # Latest News
--  "해외 투자 어려월 질 것"vs"국가기술 보호" …산업기술보호법 개정안 두고 '갑론을박'
--  동남아 전진기지 만드는 이커머스·플랫폼 기업들…왜?
--  공든 탑 무너진 넥슨, 3년 만에 신뢰 회복 과제로
--  [CES 2024] ‘모두를 위한 AI’ 선언… 삼성전자, AI 기반 신제품·기술 대거 선봬
--  27 ilde 'Kalkan-7' operasyonu: 2 bin 155 düzensiz göçmen yakalandı
--  Invité vun der Redaktioun (8. Januar): Xavier Bettel, Ausseminister
--  সাংবাদিক-পর্যবেক্ষকদের সঙ্গে প্রধানমন্ত্রীর সৌজন্য বিনিময় আজ
--  RJ Barrett a cartonné les Warriors : 37 points et la win, les Raptors aux anges, “that’s why they got him here”
--  Atrae tu suerte en la playa
--  DGI se prepara para cobrar impuestos por lucro en las plataformas
--  Comisión de Presupuesto de la Asamblea concentra más poder
--  Más de 39 mil permisos de residencias fueron aprobados
--  Recibirán arbolitos hasta el 10 de enero
--  Aquel olvidado sentimiento llamado patriotismo
--  Planificación en las RRPP
--  Democracia en peligro
--  Sub-15 de Panamá: Talento en bruto
--  Águilas doblegan a los Federales
--  Iverson Molinar confía en ser el sexto panameño en llegar a la NBA
--  ‘Xtina’ se llevó el Clásico Año Nuevo
--  Estados Unidos se prepara para la primera tormenta del año
--  Familias de desaparecidos en frontera de México denuncian el abandono oficial
--  Honduras: Confirman 220 muertes en 48 masacres dentro de estado de excepción
--  Libaban aguardiente y lo acabó a puñaladas en casa
--  Condena por estafa agravada alcanza al exgobernador Richard Fifer
--  Delincuentes roban arma y disparan contra un policía
--  Sacan de la calle AK-47, pistolas, revólver y rifles
--  María José, la Cuerpo de Paz, que inspiró a Chalino Nieto
--  “무선 AV송수신으로 선 없앴다”…LG전자, 무선 투명 올레드TV 공개
--  Emmanuel Macron prêt à appuyer sur le bouton du remaniement, suspense pour Matignon
--  [속보]우주항공청, 과기부 소속으로…항우연·천문연 편입 확정
--  Hàn Quốc tạm gỡ dừng tuyển lao động ở 8 địa phương Việt Nam
--  여수시, 시민참여로 3967여톤 온실가스 감축
--  BÖRSEN-FEIERTAGSKALENDER 2024/Kein Handel in Tokio und Russland
--  Jedna se priča već duže vrijeme provlači u hrvatskoj reprezentaciji, bojim se da smo postali - robovi akcije
--  Amid Speculation Of Contesting LS Polls From Cuttack, Vaishnaw Says He Will Follow BJP Decision As Disciplined Worker
--  Police crack down on dangerous TikTok trains trend
--  Match made in heaven: How to pair fresh fruits with decadent chocolates
--  Ropa tanieje po obniżeniu cen przez Arabię Saudyjską
--  Le journal de 6h du 08/01/2024
--  بعد مسيرة ناجحة وأدوار لامعة..دينزل واشنطن يعلن عن أفضل وأنجح دور قدمه في فيلم
--  Samsung TV lineup 2024: All the new QLED and OLED TVs announced at CES
--  Obitelj i vodiči dva dana zarobljeni u spilji u Sloveniji. Danas pokušaj izvlačenja
--  Seoul Music Awards 2024 Menyisakan Kritik dari Penggemar dan BamBam GOT7
--  Emelkedik a nyelvvizsga-támogatás, de tovább drágul az érettségi vizsgadíj - így változnak 2024-ben a támogatások az oktatásügyben
--  하남 주민 대변 각 단체장·입주자 대표, 이용 국회의원에 ‘서울 편입 법안 발의’ 건의서 전달
--  하남시, ‘2024년 상반기 지역일자리사업’ 15일부터 신청 접수
--  최주리 와인비즈니스컨설턴트, 2023 도전 한국 자랑스러운 종로 33인 선정
--  아이돌 그룹 (여자)아이들, 수제버거 브랜드 프랭크버거 제4대 전속모델로 발탁
--  GS건설, '영통역자이 프라시엘' 견본주택 열고 분양 시작
+-  مدعوون للمقابلات الشخصية والتعيين - أسماء
+-  8 شهداء وعشرات الإصابات والمفقودين بقصف الاحتلال لمنزل في دير البلح
+-  الجيش: إصابة أحد مرتبات المستشفى الميداني الأردني جنوبي غزة بعيار ناري مجهول المصدر
+-  الإعلام الحكومي بغزة يدعو لعلاج 6 آلاف جريح في الخارج
+-  천안시 ‘STAGE 천안 2024’로 지역경제 발전시킨다
+-  이태성 교수, 충주시 예비후보 등록
+-  홍성군, 후계·청년농업인사업 지원 접수
+-  리텍, 군수사업부문 '리텍디티에스'로 인적분할
+-  이웃나눔으로 따뜻한 공주시 우성면
+-  박정현 부여군수“민간단체 보조금 관리·감독 철저히”
