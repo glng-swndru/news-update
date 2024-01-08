@@ -1,11 +1,11 @@
 # Latest News
--  Soccerladuma | Haaland Wants To Join New Club 'Tomorrow'
--  Oduzete dvije puške i municija u Nikšiću
--  Лотар Матеус: Франц беше изключителна, велика личност
--  Zaccharie Risacher élu meilleur joueur du mois de décembre en LNB !
--  Halifax police urge residents to stay off lakes, ponds
--  Cameroun :: Le Dr Paul César Njikam Annonce La Tenue Dune Mission D'études Et D'informations En France. :: Cameroon
--  Pope Francis calls for global ban on surrogacy
--  ITV This Morning viewers divided as Sam Thompson lands role on daytime show
--  تكنولوجيا: جهاز Spectre x360 14 من HP يضم شاشة OLED بمعدل تحديث 120 Hz وينطلق بسعر 1500 دولار #CES2024
--  Voices: There’s only one thing we need to know about Taylor Swift’s sexuality
+-  Сёмин назвал Беккенбауэра лучшим футболистом своего времени
+-  Mobielverbod op school. Hoe verloopt de eerste dag? 'Ik denk dat zo'n verbod mensen wel socialer maakt'
+-  Bouterse vraagt via nieuwe advocaten schorsing vonnis van 20 jaar
+-  Bigg Boss 17: Abhishek Kumar and Munawar Faruqui`s friendship hits rock bottom
+-  Hochwasser-Lage am Montagabend: Fast überall sinken die Pegel, aber nur in Zeitlupe
+-  JLaw mouthing `If I don`t win I`m leaving` is Kareena Kapoor`s forever mood
+-  Van den Brink terug aan het front na 'echte sloopdag'
+-  Crush Ne Demek? - Türkçe'de Anlamı ve Kullanımı
+-  Aéronautique, Boeing, Airbus : le poinçonneur d'Arlington
+-  Democrats Baffled by Lloyd Austin's Disappearance
