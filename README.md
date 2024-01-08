@@ -1,51 +1,11 @@
 # Latest News
--  Bố than nhà nghèo nợ nần suốt 20 năm, đến lúc tốt nghiệp ĐH chàng trai mới phát hiện mình là "phú nhị đại"
--  Bakan Koca'dan 'MOSSAD ajanı doktor' iddialarına sert tepki: Defalarca tekrarladıkları sözlere artık inanıyor olabilirler
--  AB Yüksek Temsilcisi Borrell işgalcilerin hedef aldığı UNRWA'ya desteğini duyurdu
--  أمازون ومايكروسوفت وجوجل تتوسع في السعودية
--  Em todos os municípios do Acre, número de motos é maior do que o de carros
--  Iran Detains 32 in Connection with Deadly Terrorist Bombing: Judicial Official
--  رئيس لجنة الإدارة والحكم المحلي بمجلس النواب يناقش مع رئيس مفوضية مؤسسات المجتمع المدني المشاكل والعراقيل التي تواجه هذه المؤسسات .
--  '통계조작 의혹' 前국토부차관 등 2명 구속영장 기각
--  Se viene una nueva camiseta retro de River: los detalles y cuándo saldrá a la venta
--  Cool season will feature more comfortable temperatures and humidity
--  "C'est que du bonheur": les premières festivités du carnaval de Dunkerque sont lancées
--  Danica Crnogročević snimila pesmu u čast Dana Republike Srpske
--  Ässille hirveä takaisku
--  Monedas de América Latina caen en medio fortaleza del dólar; peso chileno golpeado por dato inflación
--  Muğla'da 25 düzensiz göçmen yakalandı
--  Diyabakır'da forkliftin altında can verdi!
--  Bursa'da yorgun mermi çocuk odasına düştü
--  Amasya'da 91 yaşındaki erkek yalnız yaşadığı evinde ölü bulundu
--  Kızıl Goncalar dizisinin yeni bölümü bu akşam yayınlanacak mı?
--  Bakan Koca: Haddini aşan sorumsuzlara cevap
--  Fatih Portakal: Erdoğan bu hatayı nasıl yaptı?
--  Kredide yeni dönem: BES detayı!
--  Jean Onana, Marsilya'ya transfer oldu
--  MUP: Sektor za vanredne situacije dostavio hranu stoci zarobljenoj na Krčedinskoj adi
--  Erneut massiver russischer Luftangriff auf die Ukraine
--  Prometna nesreća na istoku Hrvatske: Automobil sletio s ceste, jedna osoba prevezena u bolnicu
--  Đi ăn tối tại nhà hàng sang trọng, Ronaldo đứng hình với màn "ảo thuật" với kẹo bông của bạn gái
--  Boloș, încrezător că deficitul bugetar la finele lui 2023 este mai mic de 5,7%
--  سيارات تطير في الهواء بالسعودية.. والسبب صادم «فيديو»
--  قرار عاجل من اتحاد الكرة بإيقاف لاعب 8 شهور وتوصية بشطبه
--  Neurologička Alžbeta radí, ako zvládať migrény: V prvom rade by sa mal každý migrenik vyhýbať „provokačným faktorom“
--  Κυρ. Μητσοτάκης για Γ. Λάνθιμο: Ένας από τους πιο μεγάλους σύγχρονους σκηνοθέτες
--  משרד התיירות מסכם את 2023: שיא במספר התיירים שנכנסו לישראל
--  הביקור של נתניהו במפעל 'תנובה': "מאוד חרד לעסקים שייפגעו"
--  ¿Por qué Alexis Zapata jugará en América y no en Atlético Nacional?
--  "Vogel des Jahres 2024" bei uns: Der Kiebitz ist ein Sorgenkind
--  "Vogel des Jahres 2024" bei uns: Der Kiebitz ist ein Sorgenkind
--  BFM Bourse : 15h/16h - 08/01
--  بوليفيا تلتحق بجنوب أفريقيا في مقاضاة العدو الصهيوني على الإبادة الجماعية في غزة
--  Paris names street after David Bowie in celebration of music star’s legacy
--  Tartışmalara son noktayı koydu, Aziz Yıldırım'dan başkanlık açıklaması! İddiaları bir bir yanıtladı
--  Ambiente en los exteriores de la cárcel de El Inca
--  DHL vyzvala klientov, aby upravili plány zásob pre problémy v Červenom mori
--  Берлин отстъпи! Германия вече няма възражения срещу продажбата на още изтребители на Саудитска Арабия
--  Consulta popular 2024: la extradición podría incluirse entre los temas
--  السوداني في ذي قار.. فهل سيحقق مطالب المتظاهرين؟
--  أزمة الدولار تشتت جهود البنك المركزي.. وناشطون يعزون الأمر لـ"التوترات السياسية"
--  تعليق من الصحة بشأن متحور كورونا الجديد: لقاحات الوزارة اثبتت فعاليتها العالية
--  السوداني يترأس اجتماعاً للقيادات الأمنية والعسكرية في ذي قار
--  Impfungen in Berliner Apotheken: Nicht jede Krankenkasse macht mit, Apotheker sind genervt
+-  chor.netto feiert "Silberne"
+-  Frosinone, ufficiale Bonifazi: i dettagli e il comunicato
+-  Il pronostico di Fiorentina-Bologna, segna Zirkzee? Cosa dicono le quote
+-  Juve-Djalo, l'assist mercato del Lille. E Giuntoli guarda verso Genova...
+-  Il ritorno di Vlahovic, "l'uomo in più della Juve". E Allegri lo esalta così
+-  سلالة كورونا المخادعة .. الأعراض الرائجة ليست في قاموسها
+-  Ein Auto drohte abzustürzen
+-  CES 2024 | JBL lança microfones Quantum para criadores de conteúdo
+-  CES 2024 | LG mostra TV transparente que funciona quase sem fios
+-  Poupança tem retirada líquida de R$ 87,82 bilhões em 2023
