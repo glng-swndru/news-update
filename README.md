@@ -1,11 +1,11 @@
 # Latest News
--  AIRPORTELs Revolutionizes Travel With Seamless Delivery And Storage Solutions
--  An Event By Burnett Homeopathy Pvt Ltd: Dr. Dinesh Sharma Illuminates `Homeo Revolution 2023`
--  BREAKING: Bilkis Bano Rape Convicts` Remission Quashed By Supreme Court
--  Барқ қимат шуд. Сокинон дар истифодаи барқ аллакай сарфакорӣ мекунанд?
--  행정체제 주민투표 담은 제주특별법 개정안 법사위 통과
--  Łuczkowski z Banku Pekao: RPP w styczniu nie zmieni stóp procentowych
--  Ticaret Bakanlığı fahiş fiyat ve stokçuluğa geçit vermiyor: 602 milyon lira para cezası kesildi
--  Hamas'tan katil İsrail'e ağır darbe
--  במחיר מבצע? "ריאל תוכל לרכוש את הולאנד תמורת כ-100 מיליון יורו"
--  MasterChef'in şampiyonu belli oldu!
+-  오영훈 “공공기관 성희롱·성폭력 무관용 원칙 일벌백계”
+-  다쏘시스템, CES2024서 버추얼 트윈 이용한 헬스케어 미래 선봬
+-  2024년 주목해야 할 농업·농촌 10대 이슈는?… 농협경제연구소, 선정
+-  حتى لا يصبح اتكاليًا.. 5 طرق تجعل طفلك يعتمد على نفسه
+-  Hastanelerde salgın alarmı
+-  Groupe Casino : Point sur les conditions suspensives de la restructuration financière ; Autorisation par la Commission Européenne au titre du contrôle des concentrations
+-  Golden Globes 2024: Jennifer Lopez is asked VERY awkward question about marriage as husband Ben Affleck skips the red carpet
+-  윤이나, KLPGA 징계 감면…2024시즌 국내 개막전부터 출전 가능
+-  샌프란시스코, 이정후 환영 영상 공개…감독 "내가 찾던 선수"
+-  與 정영환 공관위원장 선임 의결…한동훈 "균형감각 있는 분"
