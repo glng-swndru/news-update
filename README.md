@@ -1,51 +1,11 @@
 # Latest News
--  Da Xrism un nuovo sguardo a raggi X sul cosmo
--  Marko Repecki: Problem nije Fortenova, problem je kako su ona i Agrokor nastali
--  Sunak y Starmer, atados a una economía triste en su campaña
--  We Are Go For Launch: What to Know About ESPN’s CFP National Championship Presentation from Houston
--  [CES 2024] Hisense unveils 2024 ULED and ULED X TV lineup
--  NVIDIA RTX Remix open beta starts Jan. 22 to help mod makers remaster older games
--  NVIDIA RTX Remix open beta starts Jan. 22 to help mod makers remaster older games
--  FC Barcelona może sięgnąć po wielką kasę. Ależ okazja na podratowanie budżetu
--  عاجل.. أهم 10.. وفاة 13 في حادث مروع بالمزاحمية وسبب ارتفاع أسعار قطع غيار السيارات
--  عشرات الوظائف بـ المركز الوطني للأرصاد لكافة المؤهلات
--  IGK - Bosna i Hercegovina treba mnogo više od nadlijetanja američkih aviona
--  Bruno Akrapović novi trener FK Željezničar
--  Amor: estos son los signos del zodiaco que se divorciarán en 2024, según la astrología
--  Letizia de España en la cuerda floja, revelarán secretos de la reina
--  Is CA Willing to Spend Billions of Extra Dollars to Lift up Children?
--  Un alto cargo de Defensa de EEUU visita Guyana en medio de la disputa con Venezuela
--  الشارف يطلع على المصروفات والإيرادات المالية للعام 2023
--  Corte Suprema revocó libertad condicional de Celestino Córdova
--  Pair of decades-old cold cases — including 1 often connected to Colonial Parkway killings — resolved, authorities say
--  Депутат Верховной рады Костенко заявил о «политической смерти» Зеленского
--  Turma thërret në kor “Kosova ëshë Serbi”, tifozët e Crvena Zvezdës shpalosin banerin me “mallkimin e Kosovës”
--  EFCC Invites Suspended Humanitarian Minister Betta Edu
--  هيئة طبية إسرائيلية تكشف عدد الجنود المصابين بأمراض نفسية نتيجة حرب غزة
--  جثة ومصاب على الطريق بـ"صحراوي الصف"
--  مصرف أبو ظبي الإسلامي يخفض تعاملات الشراء من الـ"كريدت كارد" إلى 50 دولار
--  بالصور| الاحتلال يستهدف منزلًا في ريف القنيطرة السوري بطائرة مسيرة
--  قرار من القضاء ضد 4 متهمين بارتكاب "مذبحة المعصرة"
--  "أرقد في سلام".. ليونيل ميسي ينعي فرانز بيكنباور (صورة)
--  Legal process migrants in Denver must go through to obtain a work permit
--  Surrey RCMP search for 14-year-old who went missing on Sunday
--  WTA w Adelajdzie: Claire Liu - Daria Kasatkina. Relacja i wynik na żywo
--  ¡Se fue! Ernestina Godoy no seguirá al frente de la FGJ CDMX ¿Quién asumirá el cargo?
--  ЕС има нужда от 1 милион легални мигранти на година за работа
--  Why did Tiger Woods leave Nike? Looking At Our Three Possible Reasons
--  Biden’s Speech Interrupted by Pro-Palestinian Protesters Chanting ‘Ceasefire Now’: President, 81, Says He Is Working to Get Israel ‘Out’ of Gaza After Demonstrator Interrupted to Ask If He ‘Cares’ About Civilian Deaths
--  Espanhol: Conheça a história do derby basco entre Real Sociedad e Athletic Club
--  "بلا عنوان" لمروى المناعي: تشريح مسرحي نفسي لاضطراب ثنائي القطب
--  Jo Koy Laughs Off Taylor Swift’s Look to His Golden Globes Joke: ‘It Was Cute’
--  Poznati svećenik komentirao Penavinu izjavu: Očekivano, populističke stranke vide u migrantima politički kapital
--  ¿Por qué se tapa la nariz sin tener gripa?
--  Colapsada estuvo Central de Citas del Humnt
--  רן בן שמעון עם ניצחון חמישי בשבעה משחקים בא.א.ק לרנקה
--  Sólo 22 minutos duró la primera sesión de este año de la SCJN
--  Biden spune că lucrează pentru ca Israelul să-și reducă semnificativ prezența în Gaza
--  NASA 50 yıl sonra Ay'a iniş için fırlatmıştı: 'Peregrine' teknik sorun yaşadı
--  Dünya futbolunu yasa boğan ölüm: Franz Beckenbauer hayatını kaybetti
--  جنائي البيضاء يداهم وكرًا لتصنيع الخمور ويضبط الشخص الذي يديره
--  Voetbalwereld reageert op overlijden legende Franz Beckenbauer: ‘De mooiste voetballer van allemaal’
--  Marlaska se lleva al jefe superior de la Policía Nacional en Cataluña para mandar la policía judicial
--  Eintracht Frankfurt: Stürmerproblem gelöst?!
+-  Sikeresen kimentették a szlovéniai barlangban rekedt öt embert
+-  Co piąta firma pożyczkowa jest z zagranicy
+-  Savills w Polsce ma nowego szefa
+-  Akár 18 százalékkal is nőhet idén a bankolás díja
+-  Italský ministr zahraničí vyzývá k vytvoření ozbrojených sil EU
+-  نبذة عن الشهيد القائد وسام حسن طويل "الحاج جواد"
+-  Kayseri Pınarbaşı, Talas, Sarıoğlan ilçe belediye başkan adayları kim oldu? 31 Mart AK Parti- MHP Cumhur İttifakı, CHP, İYİ Parti ilçe belediye başkan adayları listesi
+-  За сутки в Туле произошло 18 ДТП
+-  RayNeo Demos Ultralight X2 Lite AR Glasses for the First Time, Announcing Crowdfund Campaign for the RayNeo X2 AR Glasses at CES 2024
+-  TCL Celebrates Winning CES 2024 Innovation Award for TCL NXTPAPER Device and Introduces Advanced TCL NXTPAPER 3.0 Technology
