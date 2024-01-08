@@ -1,11 +1,11 @@
 # Latest News
--  Egonu, schiacciata finisce in faccia a Mazzanti: web scatenato sul labiale
--  Sinner resta numero 4, Arnaldi si avvicina ai top 40: la nuova classifica Atp
--  Classifica WTA: cinque azzurre in top 100, Swiatek sempre al comando
--  Rapp. Piemonte Under 19 e Under 17, si riparte: le date del primo raduno del 2024
--  الملك يهنئ فيليكس تشيسيكيدي بمناسبة إعادة انتخابه رئيسا للكونغو الديمقراطية
--  이경용 ldquo;서귀포시에 종합형 스포츠 스프링캠프 유치할 것quot;
--  국민의힘 의원 최초 quot;김건희 특검, 재의결 찬성표 던지겠다quot;hellip;추가 이탈은?
--  전현희 quot;尹 '김건희 특별법' 거부권 행사, 이해충돌 위반middot;직권남용 해당quot;
--  คิกออฟ "เงินดิจิทัล 10,000 บาท " กฤษฎีกาไฟเขียวให้กู้ 5 แสนล้าน
--  ผู้เสียหายร้อง ปอท.เอาผิดนายหน้าอ้างพาไปทำงานสวีเดน
+-  ABD'nin kararı sonrası Boeing hisseleri düştü
+-  국정원 "해외체류 국민 대상 테러 가능성 커져…주의 당부"
+-  이준석 신당·친이낙연계, 광주서 '통합 맞장구'
+-  이준석 "KBS·EBS 수신료 폐지…공영방송 사장 임명동의제"
+-  민주, 친명 원외 비명 현역에 도전장…'자객 출마' 논란 재점화
+-  민주, 與입당 이상민 맹비난…"철새 정치인" "배신의 정치"
+-  항공료, 올해 수요 감소에 안정화 전망
+-  홍익표 "법무부, 대통령 부인 범죄 의혹 덮으려는 하수인 전락"
+-  관세청, 가상자산 불법 외환거래 방지 협의회 발족
+-  25일까지 부가세 신고…영세사업자 128만명 납부 두달 연장
