@@ -1,51 +1,51 @@
 # Latest News
--  Стратегияга қараб хорижлик ҳамкорлар, потенциал инвесторлар мамлакатимиз билан ҳамкорлик кўлами бўйича қарор қабул қилади
--  Профессионал боксчиларимиз қачон рингга кўтарилади?
--  Ўзбекистонда прокуратура органлари ходимлари куни нишонланмоқда
--  Shafee wants Netflix to remove 1MDB documentary 'Man on the Run'; claims contemptuous, subjudice
--  임윤찬 & 츠베덴 서울시향이 그리는 미학은?
--  서울·수도권 가까운 중부권 '세레니티 골프 앤 리조트' 분양
--  بھارتیوں نے مالدیپ کا بائیکاٹ کردیا،سیاحت کو بڑا دھچکا
--  국민의힘 前화성시장 최영근, 화성 시민들과 함께한 출판기념회 개최
--  화성시인재육성재단, 2024년 진로강사 모집
--  화성시, 24년도 군공항 소음피해 보상금 신청 접수
--  함경우 광주갑 예비후보, 제100회 졸업식 맞이한 분원초 방문
--  화성오산지역건축사회, 오산 특기생 인재육성위해 5백만원 지정기탁
--  오산시, 탄소중립 녹색성장 기본계획 수립 용역 착수보고회
--  경주시, 국내 동계 훈련지 ‘인기몰이’
--  안동시, 지방 공공요금 인상 최소화 등 지역물가 안정 ‘총력’
--  성주군, 겨울철 산불방지대책본부 본격 가동
--  2024 경북 여성 신년 교례회 개최
--  باجوڑ: پولیس ٹرک کے قریب دھماکا، 5 اہلکار شہید
--  청송경찰서, 신임 경찰 환영 간담회
--  «Общественное»: в Днепропетровске слышны взрывы
--  Heavy rain hits normal life in Puducherry, holiday declared for schools
--  Passenger captures aftermath on Alaska Airlines as window blows out mid-flight
--  트와이스 '예스 오어 예스'도 넘겼다…열한 번째 4억뷰 뮤비
--  PSD și PNL au început competiția electorală
--  [교육소식]건양사이버대 김재형 부처장, 안전우수 교육부장관 표창 등
--  Target employee catches coworker hiding exclusive Stanley Cup for themselves
--  للأردنيين .. وظائف شاغرة
--  فاقدون لوظائفهم في الصحة - أسماء
--  Dumpster diver goes viral after mall security calls cops on her
--  군 "북 포사격으로 적대행위 중지구역 더 존재치 않아"(종합)
--  민주당대전시당 "이상민은 배반과 배신의 아이콘"
--  קלופ: "ארסנל היתה יכולה לנצח". ארטטה: "מתחנן לקהל שיהיה מאחורינו"
--  Atatürk'e hakaret veterinere dayak!
--  İzmir'de evinde ölü bulunmuştu... Sır perdesi aralandı
--  Diyetsiz yağ yaktırma formülü! Açlık yüzü görmeden 36 bedene düşeceksiniz
--  Tahliye sonrası yine cinayet! Hamile eşini satırla katletti
--  Yazlık lastik ölüme götürdü
--  Bereketli kış sezonu bekleniyor! Yeni yılda balıkçıların umudu hamsi ve istavrit
--  경기도, 9일 대설 예보 관련 '비상 1단계' 가동 선제적 대응
--  한파 녹이는 훈훈한 미담hellip;완주 소양면에 '동전 천사' 깜짝 기부
--  남원시의회 lsquo;환경부의 일회용품 관리방안 철회 촉구rsquo; 건의
--  고양시, 버스 준공영제 본격 시행hellip;9개 노선 128대 적용
--  이민근 안산시장 경제사절단 꾸려 미국행
--  안양시, 중middot;고교 신입생 교복middot;체육복 구입비 최대 40만원 지원
--  인천시, 전동보장구 보험 가입 지원hellip;사고당 최대 5000만원 보장
--  경동대 정시입시 경쟁률 6.41대 1 기록
--  농협 강원검사국 lsquo;검사역 업무연구 발표회rsquo;
--  동해시, 관광지 예약시스템 통합 운영
--  동해시, 농업기계 119 긴급출동 적기영농 지원
--  동해시, 갑진년 희망 품은 lsquo;새해둥이 탄생rsquo;화제
+-  "해외 투자 어려월 질 것"vs"국가기술 보호" …산업기술보호법 개정안 두고 '갑론을박'
+-  동남아 전진기지 만드는 이커머스·플랫폼 기업들…왜?
+-  공든 탑 무너진 넥슨, 3년 만에 신뢰 회복 과제로
+-  [CES 2024] ‘모두를 위한 AI’ 선언… 삼성전자, AI 기반 신제품·기술 대거 선봬
+-  27 ilde 'Kalkan-7' operasyonu: 2 bin 155 düzensiz göçmen yakalandı
+-  Invité vun der Redaktioun (8. Januar): Xavier Bettel, Ausseminister
+-  সাংবাদিক-পর্যবেক্ষকদের সঙ্গে প্রধানমন্ত্রীর সৌজন্য বিনিময় আজ
+-  RJ Barrett a cartonné les Warriors : 37 points et la win, les Raptors aux anges, “that’s why they got him here”
+-  Atrae tu suerte en la playa
+-  DGI se prepara para cobrar impuestos por lucro en las plataformas
+-  Comisión de Presupuesto de la Asamblea concentra más poder
+-  Más de 39 mil permisos de residencias fueron aprobados
+-  Recibirán arbolitos hasta el 10 de enero
+-  Aquel olvidado sentimiento llamado patriotismo
+-  Planificación en las RRPP
+-  Democracia en peligro
+-  Sub-15 de Panamá: Talento en bruto
+-  Águilas doblegan a los Federales
+-  Iverson Molinar confía en ser el sexto panameño en llegar a la NBA
+-  ‘Xtina’ se llevó el Clásico Año Nuevo
+-  Estados Unidos se prepara para la primera tormenta del año
+-  Familias de desaparecidos en frontera de México denuncian el abandono oficial
+-  Honduras: Confirman 220 muertes en 48 masacres dentro de estado de excepción
+-  Libaban aguardiente y lo acabó a puñaladas en casa
+-  Condena por estafa agravada alcanza al exgobernador Richard Fifer
+-  Delincuentes roban arma y disparan contra un policía
+-  Sacan de la calle AK-47, pistolas, revólver y rifles
+-  María José, la Cuerpo de Paz, que inspiró a Chalino Nieto
+-  “무선 AV송수신으로 선 없앴다”…LG전자, 무선 투명 올레드TV 공개
+-  Emmanuel Macron prêt à appuyer sur le bouton du remaniement, suspense pour Matignon
+-  [속보]우주항공청, 과기부 소속으로…항우연·천문연 편입 확정
+-  Hàn Quốc tạm gỡ dừng tuyển lao động ở 8 địa phương Việt Nam
+-  여수시, 시민참여로 3967여톤 온실가스 감축
+-  BÖRSEN-FEIERTAGSKALENDER 2024/Kein Handel in Tokio und Russland
+-  Jedna se priča već duže vrijeme provlači u hrvatskoj reprezentaciji, bojim se da smo postali - robovi akcije
+-  Amid Speculation Of Contesting LS Polls From Cuttack, Vaishnaw Says He Will Follow BJP Decision As Disciplined Worker
+-  Police crack down on dangerous TikTok trains trend
+-  Match made in heaven: How to pair fresh fruits with decadent chocolates
+-  Ropa tanieje po obniżeniu cen przez Arabię Saudyjską
+-  Le journal de 6h du 08/01/2024
+-  بعد مسيرة ناجحة وأدوار لامعة..دينزل واشنطن يعلن عن أفضل وأنجح دور قدمه في فيلم
+-  Samsung TV lineup 2024: All the new QLED and OLED TVs announced at CES
+-  Obitelj i vodiči dva dana zarobljeni u spilji u Sloveniji. Danas pokušaj izvlačenja
+-  Seoul Music Awards 2024 Menyisakan Kritik dari Penggemar dan BamBam GOT7
+-  Emelkedik a nyelvvizsga-támogatás, de tovább drágul az érettségi vizsgadíj - így változnak 2024-ben a támogatások az oktatásügyben
+-  하남 주민 대변 각 단체장·입주자 대표, 이용 국회의원에 ‘서울 편입 법안 발의’ 건의서 전달
+-  하남시, ‘2024년 상반기 지역일자리사업’ 15일부터 신청 접수
+-  최주리 와인비즈니스컨설턴트, 2023 도전 한국 자랑스러운 종로 33인 선정
+-  아이돌 그룹 (여자)아이들, 수제버거 브랜드 프랭크버거 제4대 전속모델로 발탁
+-  GS건설, '영통역자이 프라시엘' 견본주택 열고 분양 시작
