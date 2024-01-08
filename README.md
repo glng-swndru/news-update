@@ -1,11 +1,11 @@
 # Latest News
--  Atlético recibirá al Real Madrid en los octavos de final de la Copa del Rey
--  La actividad industrial de Argentina retrocede un 0,6 % en noviembre
--  Crown Holdings hablará de los beneficios del cuarto trimestre en una llamada telefónica en febrero
--  Calliditas registra un fuerte crecimiento en el cuarto trimestre y prevé una futura expansión
--  “Europa e Lirë”: Të pasigurt në internet, rriten rastet e keqpërdorimit të fëmijëve në po*nografi
--  The Path Forward for AI Must Be a Responsible One (Guest Column)
--  Mayra García será la número tres del PSdG para las elecciones autonómicas
--  "Novi Vidić" na meti Totenhema
--  شهداء ومصابون جراء إطلاق نار من مسيرات إسرائيلية على مخيم النصيرات وسط قطاع غزة
--  MAJA MARINKOVIĆ JE TADA BILA NAJVIŠE PONIŽENA! "Prenela si mi bakteriju intimnim odnosom"
+-  To su naše "Ajkule": Protiv Hrvatske, publike, sudija pobjeda nakon peteraca
+-  Hundreds of Pro-Palestinian protesters arrested after blocking NYC bridges, tunnel
+-  Украина готовит инфраструктуру аэродромов для приема F-16
+-  Denver International Airport baggage system breakdown forced scramble, drove delays
+-  DROHNENBEDROHUNG: Truppenübungsplätze der Bundeswehr in Sicht! – Russische Einmischung? – WELT-Nachrichtensender
+-  RASMI: Atlético Madrid vs Real Madrid, Girona vs Rayo vs Barca vs … Isku-aadka Wareegga 16ka Copa del Rey Oo Lagu Dhawaaqay
+-  Suspect out of Boulder arrested after shelter-in-place order issued in Nederland
+-  Momentet e fundit të Bedrie Lokës, bashkëshorti pretendon se 41-vjeçarja i kërkoi falje për vetëvrasjen në spital
+-  Air Sénégal international annonce son premier vol, le 15 janvier, à l’aéroport de Saint- Louis
+-  Alaska Airlines Boeing 737 Max: Ermittlungen schreiten nach Entdeckung voran
