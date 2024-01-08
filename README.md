@@ -1,51 +1,51 @@
 # Latest News
--  Cierran carreteras al norte por tolvaneras
--  Golden Globes host dragged over Barbie and Taylor Swift jokes
--  주민투표로 제주에 기초단체 두는 특별법 '법안심사소위' 통과
--  وفيات الاثنين 8/ 1/ 2024
--  تفاصيل الحالة الجوية في المملكة
--  "يديعوت أحرونوت" تكشف خسائر قياسية لإسرائيل جراء الحرب
--  إعلام عبري: حكومة الحرب ورطت الجيش في غزة لتحقيق أهداف سياسية خاصة
--  কুষ্টিয়ার চার আসনের তিনটিতেই স্বতন্ত্র জয়ী, একটিতে নৌকা
--  Anwar akan terus petik ayat al-Quran, tapi rujuk Jakim dahulu
--  Taylor Swift Loses Golden Globes Race But Trumpets ‘Eras Tour’ Passing Up Michael Jackson’s ‘This Is It’ at Global Box Office
--  एक हप्तामा ४०० प्रतिशतले बढ्यो इस्कुसको मूल्य
--  Nadia Mejía quiere gritar ¡Ecuador! en el Miss Universo: "Estoy más que lista"
--  Nathalie Tedrick: La nueva novia del ex de María Teresa Guerrero
--  Benny e Josh Safdie si dicono addio: svelati i motivi della separazione dei registi di Diamanti grezzi
--  Marcelo Marchese
--  Stella Maris Zaffaroni
--  Jorge Aniceto Molinari
--  Cisjordania en llamas, se abre un nuevo frente
--  LigaPro: Equipos ecuatorianos contratan cracks, pero también para relleno
--  หุ้น ITD ร่วงหนัก สะพัดขอเลื่อนจ่ายเงินต้น 2 ปี สร้างวิกฤติเชื่อมั่นตลาด “หุ้นกู้”
--  Chimborazo: Sobrevivientes cuentan sobre doble accidente
--  EXTRA denuncias: Esto denuncian los lectores en Guayaquil
--  "Dur" ihtarına uymayıp silah çekti, bekçi bacağından vurdu! Olay sonrası gerginlik
--  Police to decide whether to disclose identity of opposition lawmaker's assailant
--  FM nominee vows to accelerate S. Korea-US-Japan cooperation amid growing NK threats
--  SK Group to showcase carbon reduction, AI tech
--  Netflix to unveil 2nd season of 'Gyeongseong Creature' this year
--  LG Electronics unveils world's 1st wireless transparent OLED TV
--  Samsung Electronics presents its vision for new AI era
--  Carapungo: Sin rastro del causante del femicidio y apuñalamiento de un perro
--  Samborondón: Dos hermanos murieron acribillados
--  兼職合約醫生[毒品管理科]招聘｜起薪$426 附政府工入職條件+申請方法
--  İsrail'den savaş itirafı: 60 milyar dolar harcandı ama...
--  Durán: Víctimas de matanza en Los Helechos siempre estaban por la zona y una vivía allí
--  Robegrill comparte su visión de la cocina
--  Police complaint against BJP’s Amit Malviya for social media post on Bengal CM
--  Brie Larson Gets Emotional Meeting Jennifer Lopez for First Time at Golden Globes: “It’s Been a Dream of Mine”
--  Israel: Forças israelitas terminam operações no norte de Gaza
--  Quang Hải khoe ảnh ăn hỏi nhưng không có mặt Chu Thanh Huyền, dân tình thắc mắc: "Sao không có mặt vợ thế anh?"
--  Quan niệm chi tiêu dè sẻn không bằng đầu tư, bà mẹ trẻ ở Hà Nội chọn tích lũy tài sản "trú ẩn an toàn"
--  Nhan sắc vợ xinh đẹp, kém 11 tuổi của NSƯT Quang Thắng
--  Kết quả bóng đá hôm nay 8/1: Barca thắng nghẹt thở, PSG “vùi dập” đối thủ 9-0
--  Phan Hiển tung clip 'bóc phốt' tật xấu của Khánh Thi
--  WSJ: Elon Musk bị nghi sử dụng ma túy, hội đồng quản trị 6 công ty từ Tesla tới SpaceX hoang mang, nhà đầu tư sợ hãi
--  Hòa Minzy chia sẻ clip cười ngặt nghẽo khi Bo "thúi" thất tình, nhưng nhìn 1 chi tiết mới thấy cô đầu tư việc học cho con thế nào!
--  Vì sao Asian Cup 2023 diễn ra năm 2024?
--  Tìm thấy thi thể bé trai 10 tuổi mất tích khi đạp xe đi chơi
--  Chiếc điện thoại được ví như "phiên bản giá 5 triệu" của iPhone 15 Pro Max: Đẹp và giống đến kinh ngạc
--  Clip: Xe tải lao vào cửa hàng gội đầu khiến 1 người tử vong
--  Sử dụng flycam, chó nghiệp vụ xuyên đêm truy bắt kẻ giết người ở TP HCM
+-  청도군수, 세계 최초 평생학습도시 일본 가케가와시 방문
+-  평택시, 저소득 가정 집수리 G-하우징 사업 완료
+-  Pääseekö Venäjä olympialaisiin? – jääkiekkopomon lausunto kuohuttaa
+-  ‘충격’ 음바페, 레알 사전 계약 거절했다…높아진 리버풀행 가능성
+-  Viettel Cyber Security (VCS) Applauded by Frost & Sullivan for Its Excellent Solutions, Top-notch Technologies, and Market-leading Position
+-  Wonderers, New Title from Smilegate, to Launch on January 8th in 4 Asia-Pacific Countries
+-  Fostering Kinship and Spreading Joy in Ternate, Pizza Hut volunteers at the Mosque and Shares Delicious Pizza Delights
+-  XING Mobility Debuts Next Generation Immersion Cooling Battery
+-  가평군, 문화·체육시설 확충에 317억 투입
+-  시흥시의회, 2024년 첫 회기 10일부터 10일간 개회
+-  오수봉 예비후보, 출판기념회 성료
+-  인천경제청, 영종국제도시 국제학교 설립 ‘관련자 의견 수렴 후’ 추진
+-  인천시교육청, 종이 없는 연말정산 시행... 학교 업무 경감
+-  여주시 보전산지 해제, 용도 불부합지 용도지역 변경 등 공약사항 이행 등 추진 박차
+-  [광고주-인플루언서간 광고 직접 거래 서비스 'i-MATCH' 업데이트
+-  [제10회 나무의사 자격시험 원서접수
+-  인천지방중소벤처기업청, 11일 유관기관 합동 중소벤처기업 지원사업 종합설명회 개최
+-  [한국판 NASA ‘우주항공청’ 설립 확정…우주강국 도약 첫발 내딛는다
+-  Seis mortos em acidentes com minas no Cuando Cubango em 2023
+-  Man dies at Wattamolla Beach in NSW's Royal National Park, near Sydney after medical episode
+-  Werden die Aktienmärkte im Jahr 2024 den Weg der größten Schmerzen beschreiten?
+-  هذا ما يحدث عند شرب القهوة خلال الساعة الأولى من الاستيقاظ
+-  Ακίνητα: Νέες διευκολύνσεις για τους ιδιοκτήτες – Δεν θα χρειάζεται επίσκεψη στην Εφορία για τροποποιητικές δηλώσεις μεταβίβασης
+-  Pubs have only a quarter of pokies in NSW. But they pocket almost half the profits
+-  Intel spins out AI software firm with backing from DigitalBridge
+-  Golden Globes 2024: Sarah Snook in shock as she wins Best Female Actor for her role in Succession
+-  Golden Globes 2024: Jeremy Allen White puts his clothes back on! The Bear star looks dapper after that steamy Calvin Klein commercial - as he takes home acting prize
+-  다크비, “우린 탄탄한 군무 + 팀워크 강점”
+-  „Peregrine“ fliegt zum Mond: US-Unternehmen versucht erste private Landung – Handelsblatt
+-  소상공인·자영업자 채무조정 '새출발기금' 코로나 피해 요건 폐지
+-  중소기업, 외국인력 20만명 필요…한달 인건비 306만원
+-  도성훈 인천교육감 "서해5도 학생·교직원 안전매뉴얼 보강" 당부
+-  '제16회 제천 의림지 삼한초록길 알몸마라톤 대회' 개최
+-  영주시, ‘선비글판’ 문안 전국민 대상 공모
+-  하나은행, 청년 운전면허 취득 지원 위한 MOU
+-  9~10일 전국 '많은 눈'…수도권 10~15cm 이상
+-  강릉장칼, 프랜차이즈 창업박람회 참가 … 창업특전 제공
+-  Jokowi to Visit Vietnam, Brunei, Philippines in Series of Bilateral Meetings
+-  UPSIFS के निदेशक ने विश्व में रौशन किया प्रदेश का नाम
+-  Two men stole items that were on sale. They wanted a discount on the charges
+-  Two men stole items that were on sale. They wanted a discount on the charges
+-  Jugendensemble der Alten Post in Neuss: “Alle haben ihren Rampenlichtmoment“
+-  Musik made in Neuss: The Tips planen ein neues Album
+-  Fahrrad-Club in Grevenbroich: ADFC orientiert sich nach dem Tod von Wolfgang Pleschka neu
+-  Landwirtschaft in Jüchen: Wie der viele Regen die Landwirte trifft
+-  Erlebnistag im Dormagen: Falken hautnah erleben im Wildpark Tannenbusch
+-  Kleine Demo der Partei in Neuss: „Den Finger in die Wunde legen“
+-  Befragung in Neuss: Bürger sollen ihre Lieblings-Verkehrsmittel mitteilen
+-  Anmeldungen bis 10. Januar möglich: Winterkegler in Gustorf/Gindorf starten Turnier mit fast 400 Teilnehmern
+-  Handel in Neuss: Intersport im Rheinpark-Center schließt
