@@ -1,11 +1,11 @@
 # Latest News
--  Ascienden a más de 23.000 los asesinados por Israel en Gaza
--  Nuevos modelos de gestión: cabeza, corazón y manos
--  Cuando nació la inteligencia artificial, la filosofía en español tuvo mucho que decir
--  President López Obrador pledges further minimum wage and pension reform
--  Bajden "diskretno radi" na tome
--  Lo que implica el actual aumento de las infecciones respiratorias agudas en España
--  "ضربتني فدافعت عن نفسي".. كواليس خناقة لاعب كرة شهير وزوجته بأكتوبر
--  الدحدوح: الاحتلال يتعمد استهدافي ونجوت من الموت بأعجوبة
--  وزيرة الثقافة تنعي الدكتورة سيزا قاسم: "أخلصت لعلمها"
--  متحدث الوزراء يكشف مفاجأة بشأن صادرات مصر من النباتات الطبية
+-  [오락·문화활동 물가지수 3.7% 상승 '27년 만' 최고...태블릿PC 18% ↑
+-  [증권사 작년 ‘1조클럽’ 실종…‘PF 직격탄’ 4분기 영업익, 전분기比 40% ‘뚝’ [투자360]
+-  [SK하이닉스 “고객 맞춤형 메모리 플랫폼 승부”…삼성 ‘맞춤형 HBM’과 맞불
+-  [“수소·SDV로 삶의 편안함 더하다”…현대차, 정의선式 ‘미래기술 전환’ 닻 올리다 [CES2024]
+-  항공사들 '찜(JJIM)특가' 진행 ... 일본 4만8천원, 대양주 10만6천원
+-  "바이든, 오스틴 국방장관 해임 고려하지 않아...전적으로 신뢰"
+-  국제유가 3% 급락…사우디 가격 인하에 수요 의구심 커져
+-  Ankara'da lokantaya silahlı saldırı düzenlendi!
+-  רופא מזהיר: זו הדרך הנכונה לנקות אוזניים מבלי לפגוע בהן
+-  El Concello de Sarria abre un período de regularización de los vados permanentes
