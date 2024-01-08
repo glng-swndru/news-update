@@ -1,51 +1,51 @@
 # Latest News
--  Two persons arrested for shooting a gun from a convoy of vehicles in Srebrenica
--  সাকিবের বিজয়ে শিশিরের আবেগঘন পোস্ট
--  নির্বাচনে জাপার ভরাডুবির জন্য জিএম কাদেরকে দায়ী করছেন নেতারা
--  IJsbaan Ammerstol maandag open voor leden
--  Nieuwe exposities door leden van de vereniging Goed Gezien - Goed Bekeken
--  Neefjes en nichtjes uit Noordeloos zamelen 154 kerstbomen in
--  The establishment are trying to force me out of the UK by closing my bank accounts - Nigel_Farage
--  İzmir'de korkunç kaza! Kamyonet yayalara çarpıp iş yerine daldı
--  Ortak yazılı sonuçları açıklandı mı? Gözler MEB ortak yazılı sınav sonuçlarında
--  Sağlık Bakanı Koca'dan nezle uyarısı
--  Anadolu Efes, Panathinaikos deplasmanında parkeye çıkıyor
--  AK Parti Isparta Belediye Başkan adayı kim oldu? AK Parti Isparta Belediye Başkan adayı Şükrü Başdeğirmen kimdir, kaç yaşında?
--  Gazze'de Aksa Şehitleri Hastanesi'ne onlarca ölü ve yaralı getirildi
--  Esra Erol eşi Ali Özbir'i yere göğe sığdıramadı!
--  Yay güzelleşiyor, Boğa ve Akrep'in maddiyatı artıyor! Aşk, iş ve para fırsatları çok yakın
--  Konut kredisi hesaplama 0.69 (15 yıl ve 10 yıl) Ziraat Bankası, Vakıfbank ev kredisi... Yeni Evim orta gelirliye konut kredisi hesaplama!
--  Borsa haftaya yüzde 0,51 yükselişle başladı
--  İngiltere'de Lascelles için Beşiktaş iddiası
--  Aralık'ın en çok kazandıran yatırım aracı belli oldu
--  Sabır Taşı Nedir, Ne İşe Yarar? Sabır Taşı Nasıl Kullanılır?
--  Madeni 5 TL çıktı mı? Demir para 5 lira tedavüle girdi mi? İşte detaylar
--  Awak Kuierin mainio kausi sai jatkoa
--  10 मीटर एयर पिस्टल में वरुण तोमर ने जीता गोल्ड
--  محاكم الأردن تعاملت مع أكثر من نصف مليون دعوى خلال العام الماضي
--  Unikomova "pauk služba" u prva četiri mjeseca rada imala pune ruke posla
--  Ískalt augnaráð Taylor Swift eftir „neðanbeltisbrandara“ á Golden Globes
--  „Let’s Dance“-Fans wegen neuen Kandidaten auf 180 – plötzlich schaltet sich Motsi Mabuse ein
--  Kim Jong-un's daughter on track to assume power as aunt fades from spotlight: analysts
--  Seoul gov't to raise subway fare by 150 won as early as July
--  NK likely to continue provocations for greater leverage before elections
--  Ex-DPK leader to announce departure from DPK on Thursday
--  CES 2024 coming soon
--  1st US lunar lander in more than 50 yrs rockets toward moon with commercial deliveries
--  Gov't urges Taeyoung to bolster self-rescue plan to keep debt rescheduling offer afloat
--  Up to 10 cm of snow forecast for Seoul
--  Anna Ermakova möchte keinen Vorteil durch Papa Boris Becker
--  Ανακοίνωσε ανασχηματισμό ο ΠτΔ – Τα νέα πρόσωπα
--  Ярославцы продолжают жаловаться на холодные батареи и промерзшие окна
--  Soompi’s K-Pop Music Chart 2024, January Week 1
--  الكونغرس الأميركي يتوصل إلى اتفاق بشأن الإنفاق الإجمالي الإتحادي
--  منظمة الصحة العالمية تحذر من الأدوية الرديئة والمغشوشة.
--  كوريا الجنوبية تعتزم إطلاق قمرين اصطناعيين للتجسس العسكري
--  I Reviewed Nine Moisturisers Last Year: The £6 Boots One Beat the £80 Posh One
--  Growth of Polyester Carpets Market, Revenue, Manufacturers Income, Sales, Market Trend Report Archives in 2024
--  Российские военные уничтожили под Купянском шведские БМП и американский БТР
--  Biogas Manufacturing Plant Setup | Detailed Project Report 2024 Edition By IMARC Group
--  שי קקון מתקרבת להבטחת הכרטיס לאולימפיאדת פריז 2024
--  الصّحة العالميّة تحذّر: مصير مئات المرضى بغـ.ز.ة مجهول
--  Mid-air blowout jetliner had been restricted over warning light concerns
--  توقعات أحوال الطقس ليوم الاثنين
+-  Babies born to women in Ter Apel asylum center 7 times more likely to die around birth
+-  Russia's Belgorod Evacuates 300 Residents Over Ukrainian Strikes
+-  A chaotic Golden Globes night had a bit of everything: The silly, the serious, and Taylor Swift, too
+-  Bitcoin ETF Trading To Begin A Day After US SEC Approval
+-  South Korea To Introduce Virtual Assets Distribution & Listing Regulation
+-  Honda could soon make EVs and batteries in Canada
+-  10 Longevity Practices from around the World
+-  10 Terrifying Things People Found in Their Basements
+-  Five easy life changes that’ll help you live longer, according to a longevity expert
+-  My suburb is a wonky Tetris piece where the boundaries make no sense
+-  Kickoff | Khune issues key advice to Chiefs' rising star
+-  Susanna Reid consoles tearful victim of Post Office scandal after ‘disgusting’ treatment
+-  Iga Świątek powiększyła przewagę nad Aryną Sabalenką w rankingu WTA. Niemal tysiąc punktów różnicy
+-  Gozo has seemingly established itself as a Christmas Island, Gozo Tourism Association CEO says
+-  رئيس منظمة الصحة العالمية: حمام الدم في غزة يجب أن يتوقف.
+-  رابطة العالم الإسلامي تدعو القيادات الدينية والمنظمات الإنسانية إلى التوحد لوقف العدوان على غزة
+-  إختتام فعاليات المؤتمر الطبي الثالث لاطباء مدينة سرت بالداخل والخارج .
+-  PAKISTAN PUTS CLIMATE CHANGE ON THE MAP BY REBUILDING AND RENAMING TOWN DESTROYED BY FLOODS - CLIMATECHANGETOWN.PK SUPPORTED BY SPHF
+-  Clarivate Identifies Thirteen Potential Blockbuster Drugs and Gamechangers in Annual Drugs to Watch Report
+-  В Конгреса на САЩ се споразумяха за таван на федералните разходи от 1,6 трилиона долара
+-  Cameroun :: Colonel Nzie Pierrot Narcisse : Enquête Majeure Sur Martinez Zogo Au Tribunal Militaire :: Cameroon
+-  Prime Minister shares devotional bhajan “Ayodhya Mein Jaykara Gunjay” sung by Vikas
+-  التعليم العالي: غلق الكيان الوهمي «أكاديمية لندن للصحافة والإعلام» بمحافظة القاهرة
+-  Obashi strike sends Zesco to Prison
+-  최상목, '금투세 폐지'에 "부자감세 아닌 투자자 감세"
+-  전현희 "이재명 테러, 한동훈에 발생했다 상상해보라…수사 공정해야"
+-  FPÖ-Pressekonferenz mit LPO Kunasek, LPS Hermann und GS Schnedlitz am 12.01.2024 um 10:00 betr. „Start in das politische Wahljahr 2024“
+-  【先驱自媒】快收藏！新西兰最被低估的九大小镇，小众旅行隐藏宝藏，很多人都没听过......
+-  ‘맘보교육그룹㈜’, 한국인기브랜드대상 4년 연속 1위 수상
+-  부천FC, 골키퍼 김형근 영입
+-  수원교육청, 행안부 ‘행정제도 개선 공모대회’서 우수상 수상
+-  시흥시-서울대, 스누융합과학배움터 사사과정 수료식 개최
+-  오산대 항공서비스과, 제주항공 객실승무원 체험교육 실시
+-  평택상의 2024년도 신년인사회서 ‘기업하기 좋은 환경 만들기’ 결의
+-  가평군, 오는 23일까지 농업인 1400여명 새해 영농 교육
+-  평택교육청, ‘2024년 신규 공무원 직무 아카데미’ 개최
+-  수원도시공사, ‘공공영역문화다양성 우수사례’ 공모전 특별상
+-  'I maybe a liver, but she's my heart': Orry is all hearts for BFF Nysa as she wears his OG merch for party
+-  Shell lance un avertissement sur dépréciations pour le 4e trimestre
+-  วันเด็กแห่งชาติ 2567 อว.จัดงาน "เด็กช่างคิด วิทย์สร้างฝัน" 12-13 ม.ค.
+-  เอเชียนคัพ ถ้วยแห่งศักดิ์ศรีเอเชีย ทีมชาติไทยใกล้แชมป์แค่ไหน
+-  En Tunisie, le secteur agricole accapare 80 % de l’utilisation totale de l’eau
+-  Съобщение от "Местни данъци и такси" - Търговище
+-  Мокри, но напълно проходими са пътищата на територията на Сливенска област
+-  Zamówienia przemysłowe w Niemczech odbiły, ale mniej niż oczekiwano
+-  FH Campus Wien: Studie zeigt Veränderung des Gangs bei Smartphone-Nutzung
+-  “هيئة أبوظبي للزراعة والسلامة الغذائية” تطلق خطة طموحة للتوسع في استخدام المياه المعاد تدويرها لري المزارع في إمارة أبوظبي
+-  UOKiK nałożył 46,6 mln zł kary na Canal+ Polska
+-  The significance of Ash-Sham including Palestine
+-  وزير الدولة البريطاني لشئون الشرق الأوسط يبدأ زيارة للهند لتعزيز الشراكات بين البلدين
