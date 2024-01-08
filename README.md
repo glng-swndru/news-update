@@ -1,51 +1,11 @@
 # Latest News
--  미래 기술로 성장동력 찾아라…대기업 총수 총출동
--  한동훈의 '구심력' vs 이준석의 '원심력'…여권 주도권 싸움 '시작'
--  한국판 NASA 5월 출범한다…파이널 카운트다운 돌입
--  타이거 우즈와 나이키가 '27년' 만에 헤어졌다
--  '특검정국' 결국 '설밥상'에 오르나…野, 권한쟁의 청구 '강행'
--  ملک کی ترقی کیلئےبہترین انفراسٹرکچرکلیدی حیثیت رکھتا ہے،نگراں وزیراعظم
--  מיה לנדסמן משחקת אותה שוב: זו הסדרה החדשה בה תככב
--  שלושה חדרים בבת ים מול 4 בנתניה: איפה יקר יותר לשכור?
--  الحكومة: قواعد محددة لتقنين أوضاع ضيوف مصر من اللاجئين ستصدرها وزارة الداخلية
--  ‘다이어는 미끼였다’... 뮌헨, 갑자기 드라구신으로 선회→토트넘 초비상!
--  Leonel insta a Abinader a que pregunte a la gente en las calles cómo está la situación
--  Franz Beckenbauer já foi companheiro de Pelé no New York Cosmos, nos EUA; relembre
--  Jeff Bezos apuesta a que esta startup de IA destronará a Google en las búsquedas
--  Tip je sanjao zlato ispod kuće pa iskopao rupu u kuhinji: Potraga na kraju završila katastrofalno
--  أكلة لا يفضلها الكثيرون تزيد الخصوبة.. واحذر من تناول هذة الأطعمة تسبب العقم
--  Manchester United could face non-league trip as Tottenham face Man City in FA Cup draw
--  Pochettino'dan Nkunku sözleri!
--  حماة الوطن يدشن وحدة حزبية جديدة بالمدامود قبلي في الأقصر
--  غزة : قتل 9 ضباط وجنود صهاينة وأصابة آخرين في هجومين منفصلين
--  265 of 321 Oscar-Qualifying Films Are Best Picture Eligible
--  شولتس: بيكنباور «مُلهم» للاعبي كرة القدم في ألمانيا
--  Zwickau: Startschuss am Robert-Schumann-Konservatorium fällt mit neuem Format
--  Italien verneigt sich vor Beckenbauer: "Addio al Kaiser"
--  Ватцке: Боруссія хоче взяти Санчо в оренду
--  Lokführergewerkschaft GDL darf bei der Bahn streiken
--  Verbraucherpreise in Luxemburg / Die Inflationsrate ist 2023 spürbar gesunken, bleibt aber immer noch zu hoch
--  12-year-old Texas Boy Possibly Abducted from San Antonio Area – Crime Online
--  Senamhi estima que Lima llegará a temperaturas cercanas a los 31 grados este verano
--  Wall Street avanza, Dj sale dello 0,32%, Nasdaq +1,89%
--  Malatya’da boş arazide kopmuş ayak bulundu
--  Byrådslederen ber staten om hjelp til å stoppe munnen på bergenserne
--  Ahırda çıkan yangında onlarca hayvan telef oldu
--  Dünya Müslüman Alimler Birliğinin yeni başkanı Ali Muhyiddin el-Karadaği oldu
--  BOEING CO : JP Morgan nog altijd een koopadvies
--  BOEING CO: JP Morgan ancora positivo
--  Timothée Chalamet and Kylie Jenner’s rumoured relationship timeline
--  BOEING CO : JP Morgan mantiene su recomendación de compra
--  Otrovanim kakaom i milkshakeom pokušala ubiti vlastitu baku: 'Htjela sam samo da malo odspava'
--  JPMorgan belässt Boeing auf 'Overweight' - Ziel 270 Dollar
--  توقيع مذكرات تفاهم لتأهيل عدد ثلاثة ألف مستهدف لسوق العمل بمأرب
--  Copinha: Desportivo Brasil segue 100% e pode garantir vaga com apenas um empate
--  Primer dato de la inflación para Milei: el IPC en CABA trepó al 21,1% en diciembre
--  В Astrobotic сообщили, что лунный модуль Peregrine теряет топливо
--  Blinken asegura que hay un "claro interés" entre árabes para normalizar lazos con Israel
--  Rögle tog tung seger mot Timrå – avgjorde sent
--  EM-Hype und große Ziele: Ein junges Genie schultert Deutschlands Hoffnung
--  Blinken asegura que hay un "claro interés" entre árabes para normalizar lazos con Israel
--  전국에 많은 눈…수도권 최대 15cm 이상
--  Grave: el gobernador Pullaro sacó su familia de Rosario ante las graves amenazas narco
--  Стоимость биткоина впервые с апреля 2022 года превысила $46 тыс.
+-  Atlético recibirá al Real Madrid en los octavos de final de la Copa del Rey
+-  La actividad industrial de Argentina retrocede un 0,6 % en noviembre
+-  Crown Holdings hablará de los beneficios del cuarto trimestre en una llamada telefónica en febrero
+-  Calliditas registra un fuerte crecimiento en el cuarto trimestre y prevé una futura expansión
+-  “Europa e Lirë”: Të pasigurt në internet, rriten rastet e keqpërdorimit të fëmijëve në po*nografi
+-  The Path Forward for AI Must Be a Responsible One (Guest Column)
+-  Mayra García será la número tres del PSdG para las elecciones autonómicas
+-  "Novi Vidić" na meti Totenhema
+-  شهداء ومصابون جراء إطلاق نار من مسيرات إسرائيلية على مخيم النصيرات وسط قطاع غزة
+-  MAJA MARINKOVIĆ JE TADA BILA NAJVIŠE PONIŽENA! "Prenela si mi bakteriju intimnim odnosom"
