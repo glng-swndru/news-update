@@ -1,11 +1,11 @@
 # Latest News
--  GKN Kargo, Galatasaray'a Sponsor Olduğu İçin(!) Konkordato Başvurusu Yaptı
--  Görünce “Nereden Gelmiş Akıllarına ya?” Diyeceğiniz, Parlak Zekâların Ürünü 12 Yaratıcı Reklam
--  Kickoff | Mfundo Vilakazi reveals Riveiro's advice
--  Kickoff | Super Eagles' money issues take 'new turn' ahead of AFCON
--  Suspect in Christmas season mall shooing has been arrested
--  Mercato - OM : Longoria fait une offre, la réponse est terrible
--  More LifeColor paint sets in stock now!
--  Has your child got the sniffles? Must-read guide for every parent on when kids SHOULD go to school and when they be kept at home
--  Art culinaire/Guinness : une cheffe ghanéenne bat le record mondial du marathon culinaire
--  Live-Podcast in der Kölner Wohngemeinschaft: Wie haben wir alle besseren Sex, Volker Wittkamp?
+-  Ngôi nhà tối giản của mẹ 1 con: Chất lượng sống đến từ sự gọn gàng, ngăn nắp chứ không phải nội thất đắt tiền
+-  KENZO: “Long Chầu - Hổ Phục” trên bộ sưu tập chào đón năm của rồng
+-  Người đàn ông qua đời vì nhồi máu não vào sáng sớm, bác sĩ cảnh báo 5 việc không làm ngay khi thức dậy
+-  Nhà ở dưới 2,5 tỉ đồng sẽ tạo sức hút năm 2024?
+-  Vụ thanh niên tự thiêu tại chốt đo nồng độ cồn: Thông tin chính thức từ Công an TPHCM
+-  Life | Cassper Nyovest hits personal 'reset' button as he kicks off 2024 sharing his 'encounter with God'
+-  PTC Therapeutics registra un crecimiento de los ingresos del 35% en 2023
+-  Citypress | Eskom's IPP programme faces hurdles as budget quotes expire amid load shedding uncertainty
+-  Nokia će ubrzati poslovanje dronova kao usluge u Sjevernoj Americi
+-  Un mitin fascista en Roma provoca la indignación de la oposición italiana
