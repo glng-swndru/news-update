@@ -1,51 +1,11 @@
 # Latest News
--  تراجع أسعار النفط بأكثر من 1 بالمائة متأثرا بزيادة في إنتاج أوبك.
--  رئيسة وزراء بنجلادش الشيخة حسينة تفوز بولاية رابعة.
--  الأزهر يدعو شرفاء العالم للإتحاد لمواجهة جرائم الاحتلال ووقف القتل ‏‏والإرهاب في غزة.
--  Sprendimas dėl SND akcizo galėjo būti labiau subalansuotas, sako A. Armonaitė
--  Лидерите на Конгреса сключиха сделка за федерален бюджет за 2024 г. от 1,6 трлн. долара
--  Early risers at risk of developing eating disorder: Study
--  करामाती पौधा... दिल की बीमारियों को रखेगा दूर, खांसी-जुकाम से मिलेगा छुटकारा
--  EaseMyTrip Suspends All Maldives Flight Bookings Amid India-Maldives Row
--  Innovations For Defence Excellence Gears Up For Vibrant Gujarat Summit 2024
--  Provide Greater Credit Access To MSME To Boost Capability In Advance Manufacturing: Deloitte
--  La lista completa de los ganadores de los Globos de Oro 2024
--  खाना हो बेहद नरम शुद्ध खोये की गुझिया, तो इस दुकान पर आना ना भूलें
--  أجواء باردة وسقوط أمطار.. درجات الحرارة في ليبيا وأهم معالم الاحوال الجوية اليوم
--  В Москва са категорични: Русия никога повече няма да се обърне към Запада, бъдещето на човечеството е на Изток
--  India reports 756 new Covid cases, five deaths
--  Avionics Market Report 2024-2033: Market Size, Share, Analysis And Growth Report | Safran SA, Honeywell International Inc., Thales Group, L-3 Avionics Systems, Raytheon Technologies Ltd
--  Brezilya Milli Takımı'nda Dorival Junior dönemi başladı
--  Ticaret Bakanlığı'ndan fahiş fiyat ve stokçuluğa ceza!
--  Netanyahu'ya büyük öfke! İsrailliler erken seçim için sokakta
--  İsrail basını duyurdu! Aksa Tufanı öncesi hükümet 4 kez uyarılmış
--  Küresel piyasalar karışık seyrediyor
--  Bölgede kriz dinmiyor: Ülkenin bölünmesine ortam hazırlıyorlar
--  MasterChef Esra şampiyon oldu, Tahsin'in geçirdiği baygınlık yürekleri ağza getirdi!
--  Fatih Terim: Kupa varsa kupaya talibiz
--  Japonya'daki depremlerde can kaybı 161'e çıktı
--  Türkiye, Sarıkamış'ta toplandı! Ecdadın izinde 109 yıllık gururla
--  İstanbul'da haftanın ilk iş gününde trafikte yoğunluk
--  7 Ocak reyting sonuçları açıklandı mı? MasterChef, Yıldızlar Bana Uzak, Ne Gemiler Yaktım, Kirli Sepeti reyting sıralaması nasıl?
--  Mum gibi eriten baharat! Göbek yağları bu baharatla yok oluyor
--  Van'da terör operasyonu
--  Zerrin Tekindor'la seyircisi arasında 'Toz' krizi! Oyunu bölünce olanlar oldu
--  1 numaralı şikayet konusu: Taksiciler yolcu seçiyor
--  Tedirgin eden açıklama: Halkımız hazır olsun, savaş çıkabilir
--  Ermenistan polisi sınıfta kaldı!
--  FETÖ'nün hain darbe girişimine katılan eski astsubay yakalandı
--  אלקין: בחירות בזק יעצרו את המלחמה, המשמעות היא שסינוואר יחגוג
--  אחד מ-39: היו"ר המיתולוגי של סוזוקי נכנס להיכל התהילה המוטורי
--  כמבקר אני אמור לשנוא את "שנות ה-90", אבל באמת שקשה לעמוד בפניה
--  דוריבל ג'וניור יאמן את נבחרת ברזיל: "זו הגשמת חלום"
--  "Хебър" ще се готви в България за пролетния дял от шампионата - Труд
--  தருமபுரி அருகே பட்டா மாற்றம் செய்ய ரூ.20 ஆயிரம் லஞ்சம் - விஏஓ கையும் களவுமாக சிக்கியது எப்படி?
--  Samos’ta bulunan ceset için DNA örnekleri alındı
--  8 in 10 users report combining weed with exercise boosts motivation, mood: Study
--  김동완, 서윤아 마음에 들었나…스키 데이트 중 '손 덥석' [신랑수업]
--  '불륜 의혹 강경준, 소속사·방송계 선 그으니…SNS 닫았다 [MD이슈]
--  '한국 아시안컵 2차전 상대' 요르단 경계령! 카타르 꺾은 복병, 일본 상대로는 어떨까?
--  손흥민 절친→맨시티 5년 만의 재영입 결정…토트넘 출신 윙백 세대 교체
--  Snijeg i minusi su se vratili: Narednih dana jutarnja i do minus devet
--  Supreme Court quashes remission for convicts in Bilkis Bano gangrape case: Key points of verdict
--  Azerbaijan's income from Shah Deniz disclosed
+-  İstanbul'da sahte dolar çetesi çökertildi
+-  Çağla Şikel, Selen Görgüzel'e dava açtı!
+-  Gram altında düşüş sürüyor
+-  Abdulkadir Selvi yazdı: Erdoğan muhalefeti kendi silahıyla vuracak
+-  Japonya'daki depremlerde can kaybı artıyor
+-  Atatürk'e hakaret eden kişi tutuklandı
+-  Fatih Terim'den iddialı sözler
+-  Süper Lig'de erteleme maçları yarın oynanmaya başlayacak
+-  מזעזע: המסעדה הרגה אלפי חתולים – והבעלים יקבל כסף
+-  הלחץ האמריקני להכרעה וההתנגדות הישראלית: בלינקן יגיע הלילה לישראל
