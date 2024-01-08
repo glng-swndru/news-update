@@ -1,11 +1,11 @@
 # Latest News
--  ‘We get down where we get mad at’: Bill Haney gets into confrontation with Bernard Hopkins
--  İstanbul'da Fatih Camii imamı bıçaklı saldırıda yaralandı!
--  Za sedmicu više od 83.000 putnika na prištinskom aerodromu
--  Atentat na Pukanića i Franjića zvanično okarakterisan kao terorizam
--  Mračna strana znamenitog mosta: Dvije hiljade samoubistava na Golden Gejtu
--  Crna Gora-Hrvatska: Prenos na Drugom kanalu i portalu RTCG
--  Fehlt Geld für die Feier?: Nordkorea schweigt über Kims 40. Geburtstag
--  Gizem Karaca Safir'de! Safir Güneş kimdir? Safir dizisinde Güneş'i oynayan Gizem Karaca nereli, kaç yaşında?
--  Safir Şermin kimdir? Safir dizisinde Şermin'i oynayan Ayçin İnci nereli, kaç yaşında?
--  Safir Bade kimdir? Safir dizisinde Bade'yi oynayan Selin Işık nereli, kaç yaşında?
+-  القسام تُفشل محاولة لتحرير أحد أسرى الاحتلال
+-  "القسام": فجرنا عبوة في قوة صهيونية واشتبكنا معها بخانيونس
+-  PLI launches New Brand Campaign”This is My Climb”
+-  Online Club Regent gaming app a scam, MLL says
+-  Chelsea-floppi tekee paluuta Lontooseen - nyt tuli uutta tietoa
+-  Liyanage’s 95 trumps Ngarva’s five-fer as Sri Lanka edge Zimbabwe
+-  Maďarské úrady aktivovali opatrenie na ochranu bezdomovcov pred mrazivým počasím
+-  Recept na dnes: Upečte si parmezánové sušienky s bylinkami - hotové sú za pár minút!
+-  DNA Exclusive: Analysis Of Anti-India Sentiments In Maldives
+-  Illuminating Lives: J&K’s pioneering strides towards last-mile welfare
