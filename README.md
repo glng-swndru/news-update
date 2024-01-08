@@ -1,11 +1,11 @@
 # Latest News
--  القسام تُفشل محاولة لتحرير أحد أسرى الاحتلال
--  "القسام": فجرنا عبوة في قوة صهيونية واشتبكنا معها بخانيونس
--  PLI launches New Brand Campaign”This is My Climb”
--  Online Club Regent gaming app a scam, MLL says
--  Chelsea-floppi tekee paluuta Lontooseen - nyt tuli uutta tietoa
--  Liyanage’s 95 trumps Ngarva’s five-fer as Sri Lanka edge Zimbabwe
--  Maďarské úrady aktivovali opatrenie na ochranu bezdomovcov pred mrazivým počasím
--  Recept na dnes: Upečte si parmezánové sušienky s bylinkami - hotové sú za pár minút!
--  DNA Exclusive: Analysis Of Anti-India Sentiments In Maldives
--  Illuminating Lives: J&K’s pioneering strides towards last-mile welfare
+-  Soccerladuma | Haaland Wants To Join New Club 'Tomorrow'
+-  Oduzete dvije puške i municija u Nikšiću
+-  Лотар Матеус: Франц беше изключителна, велика личност
+-  Zaccharie Risacher élu meilleur joueur du mois de décembre en LNB !
+-  Halifax police urge residents to stay off lakes, ponds
+-  Cameroun :: Le Dr Paul César Njikam Annonce La Tenue Dune Mission D'études Et D'informations En France. :: Cameroon
+-  Pope Francis calls for global ban on surrogacy
+-  ITV This Morning viewers divided as Sam Thompson lands role on daytime show
+-  تكنولوجيا: جهاز Spectre x360 14 من HP يضم شاشة OLED بمعدل تحديث 120 Hz وينطلق بسعر 1500 دولار #CES2024
+-  Voices: There’s only one thing we need to know about Taylor Swift’s sexuality
