@@ -1,11 +1,51 @@
 # Latest News
--  Ngôi nhà tối giản của mẹ 1 con: Chất lượng sống đến từ sự gọn gàng, ngăn nắp chứ không phải nội thất đắt tiền
--  KENZO: “Long Chầu - Hổ Phục” trên bộ sưu tập chào đón năm của rồng
--  Người đàn ông qua đời vì nhồi máu não vào sáng sớm, bác sĩ cảnh báo 5 việc không làm ngay khi thức dậy
--  Nhà ở dưới 2,5 tỉ đồng sẽ tạo sức hút năm 2024?
--  Vụ thanh niên tự thiêu tại chốt đo nồng độ cồn: Thông tin chính thức từ Công an TPHCM
--  Life | Cassper Nyovest hits personal 'reset' button as he kicks off 2024 sharing his 'encounter with God'
--  PTC Therapeutics registra un crecimiento de los ingresos del 35% en 2023
--  Citypress | Eskom's IPP programme faces hurdles as budget quotes expire amid load shedding uncertainty
--  Nokia će ubrzati poslovanje dronova kao usluge u Sjevernoj Americi
--  Un mitin fascista en Roma provoca la indignación de la oposición italiana
+-  Corona-Zahlen im Märkischer Kreis aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Hochsauerlandkreis aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen im Ennepe-Ruhr-Kreis aktuell: Zahlen und Fakten aus der Region
+-  Μπέττυ Μαγγίρα για Super Κατερίνα: Ξέρω ότι συμβαίνει πολλά χρόνια, καιρός να σταματήσει
+-  Πέθανε ο χειρουργός Roy Calne: Ποιος ήταν ο «πατέρας» της μεταμόσχευσης ήπατος στην Ευρώπη που άνοιξε τον δρόμο για να σωθούν εκατομμύρια ζωές
+-  Corona-Zahlen in Herne aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen in Hamm aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen in Hagen aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Boykot sonuç verdi: İsrail destekçisi Coca Cola'nın Türkiye'de satış oranı resmen çakıldı
+-  Miçotakis: Göçmen akınına 'Avrupa çözümü' gerekli
+-  İstanbul'da yediemin otopark ücretlerine de zam geldi
+-  Corona-Zahlen in Dortmund aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Terör devleti İsrail sivillerin bulunduğu okulu vurdu: Ölü ve yaralılar var
+-  MSB'nin dikkat çeken keskin nişancı paylaşımı: İkinci atışa gerek yok
+-  THY tüm zamanların en yüksek yolcu sayısına ulaştı
+-  Jendouba: Augmentation significative du niveau de remplissage des barrages du nord
+-  Corona-Zahlen in Bochum aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Corona-Zahlen im Kreis Paderborn aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Kreis Minden-Lübbecke aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Kreis Lippe aktuell: Zahlen und Fakten aus der Region
+-  العراق يدعو الأمم المتحدة للتواصل مع الدول التي لديها أطفال لغرض استلامهم وأعادتهم الى بلدانهم
+-  Corona-Zahlen im Kreis Höxter aktuell: Aktuelle Daten zum Coronavirus
+-  Turf. Anotaciones para el 14 de enero en el Hipódromo de Salto.
+-  Corona-Zahlen im Kreis Herford aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Взгляд из Германии — Бэби–бумеры: за что критикуют и чего удалось достичь
+-  Corona-Zahlen im Kreis Gütersloh aktuell: Aktuelle Daten zum Coronavirus
+-  Nejat İşler, Behzat Ç.'nin "Hayalet"ini Tanıyamayıp Yumruk Attı: İşte Fıkra Gibi Olay ve Sosyal Medyadan Gelen Tepkiler
+-  Corona-Zahlen in Bielefeld aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Fresh Stormont elections or governments must find an alternative – Murphy
+-  Corona-Zahlen im Kreis Warendorf aktuell: Aktuelle Daten zum Coronavirus
+-  9999 طالبًا وطالبة يؤدون امتحانات دبلوم التعليم العام في شمال الباطنة.. اليوم
+-  والي بركاء يبحث تعزيز التعاون مع ممثلي وسائل الإعلام
+-  Corona-Zahlen im Kreis Steinfurt aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Kreis Recklinghausen aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Científicos descubren una proteína que podría combatir el envejecimiento y prevenir enfermedades relacionadas con la edad
+-  Corona-Zahlen im Kreis Coesfeld aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  El petróleo de Texas abre con una bajada del 3,96 %, hasta 70,89 dólares el barril
+-  Coinbase se dispone a adquirir una entidad con sede en Chipre y licencia de la UE
+-  Argentina busca "reflotar" el acuerdo con el FMI tras su "incumplimiento sistemático"
+-  Macron inicia la cuenta atrás de los 200 días hasta los Juegos Olímpicos de París
+-  El auge inmobiliario europeo redujo la desigualdad: BCE
+-  Las acciones de MBC Group se disparan un 30% en su debut en Tadawul
+-  Parsons obtiene un pedido de 21 millones de dólares de la NNSA en LANL
+-  Corona-Zahlen im Kreis Borken aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Einladung: PK der Wiener Volkspartei Startschuss für die Neugestaltung des Gürtels
+-  Corona-Zahlen in Münster aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Obiluju vitaminima, eliminišu otrove iz tela, odlične protiv prehlade! Ove namirnice su obavezne tokom zimskog perioda
+-  Tužna vest za srpski sport! Prerano nas je napustio sjajni sportista
+-  Corona-Zahlen in Gelsenkirchen aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen in Bottrop aktuell: Inzidenz für Bottrop, Nordrhein-Westfalen und Deutschland
