@@ -1,11 +1,11 @@
 # Latest News
--  Orbán Viktor lehet Charles Michel utóda? Havasi Bertalan: Stratégiai nyugalom
--  Meghalt Vízkelety Mariann
--  Meghalt Ferdinandy György
--  ہم انتخابات میں حصہ لیں گے، ہمارے پاس ایک متبادل پلان موجود ہے:لطیف کھوسہ
--  Nova poruka Amerike Dodiku: F-16 danas lete nad BiH, vježbaju gađanje ciljeva na zemlji
--  الجيش الإسرائيلي يعلن مسؤوليته عن الغارة التي استهدفت سيارة حمزة الدحدوح ومصطفى ثريا
--  Energiateollisuus: Sähkön korkeat hinnat yllättivät myös energia-alan
--  E para që nga “Apollo”, niset me sukses drejt Hënës raketa “Vulcan”
--  Donegal Deputy hopes 2024 will be the year of a General Election
--  Sameer Suleman leaves Nankhumwa’s DPP rebel group
+-  XR wil op 3 februari A12 weer blokkeren tegen fossiele steun
+-  Een week na Oudejaarstrekking wacht 30 miljoen euro nog op winnaar
+-  Amazon en Microsoft openen Saudische kantoren na druk van Riyad
+-  Nederlandse chef-kok rijdt eigen stagiair aan, man in levensgevaar
+-  Steden in noordoosten Duitsland onbereikbaar door boerenprotest
+-  بدء القبول والتسجيل في الفصل الدارسي الثاني بالجامعة العربية المفتوحة
+-  "صحة المدينة: ضبط وافد عربي يمارس مهنة الطب بدون ترخيص
+-  عاجل.. "الدارة" تحذر من قصيدة "وهمية" حول نسب الأسرة المالكة
+-  تنبيه من هيئة العقار حول نظام بيع وتأجير مشروعات على الخارطة
+-  عاجل.. توضيح من "الغذاء والدواء"حول منتجات الجبن السائل وعلاقتها بالسرطان
