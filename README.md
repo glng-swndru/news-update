@@ -1,11 +1,11 @@
 # Latest News
--  Türksat 6A'da süreç nasıl işliyor?
--  Son dakika: Survivor'da eleme adayı kim oldu? 8 Ocak 2024 Survivor'da potaya giden isim!
--  Şehit ve gazi yakınlarına istihdam
--  الاحتلال يـقتحم بلدات وقرى بجنين
--  United finds multiple panels with problems on Boeing 737 MAX planes
--  Nejlepší střelec Leverkusenu Boniface se před mistrovstvím Afriky zranil
--  Müge ile Gülşen neden ayrıldı? 2. Sayfa programı bitti mi?
--  الشوط الأول.. مانشستر يونايتد يتقدم على ويجان في كأس إنجلترا
--  After three decades, 15 majors and $750 million, Woods announces Nike split
--  After three decades, 15 majors and $750 million, Woods announces Nike split
+-  Ascienden a más de 23.000 los asesinados por Israel en Gaza
+-  Nuevos modelos de gestión: cabeza, corazón y manos
+-  Cuando nació la inteligencia artificial, la filosofía en español tuvo mucho que decir
+-  President López Obrador pledges further minimum wage and pension reform
+-  Bajden "diskretno radi" na tome
+-  Lo que implica el actual aumento de las infecciones respiratorias agudas en España
+-  "ضربتني فدافعت عن نفسي".. كواليس خناقة لاعب كرة شهير وزوجته بأكتوبر
+-  الدحدوح: الاحتلال يتعمد استهدافي ونجوت من الموت بأعجوبة
+-  وزيرة الثقافة تنعي الدكتورة سيزا قاسم: "أخلصت لعلمها"
+-  متحدث الوزراء يكشف مفاجأة بشأن صادرات مصر من النباتات الطبية
