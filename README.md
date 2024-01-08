@@ -1,11 +1,51 @@
 # Latest News
--  제주시 부시장 변영근·서귀포시 부시장 현창훈 발령
--  오아, 퓨어필워터 휴대용 무선 구강세정기 신제품 출시
--  가평군, 올해 인구 활력 사업에 공무원 톡톡 아이디어 9건 반영
--  가평군 상면 임초1· 2지구, 덕현1지구 76만7440.9㎡ 지적재조사 완료
--  안산소방서, 오는 12일까지 낡은 공동주택 합동 점검
--  안산시 상권활성화재단 창립 발기인 총회… 올 상반기 중 출범 예정
--  תסריט האימים של "עוטף קלקיליה"
--  'ปชป.' อัด 'รบ.เศรษฐา' โยนบาปรัฐบาลเก่า จัดสรรงบฯ 67 ไม่เหมาะ ชี้เป็นข้ออ้างที่ฟังไม่ขึ้น
--  Con trai của Zidane sắp rời Real
--  4 điều M.U cần làm để tránh thất bại trước Wigan ở FA Cup
+-  عاجل.. التأمينات الاجتماعية توضح شروط وخطوات تسجيل مشترك جديد
+-  강남구, 올해부터 층간소음 예방 및 경비원 근무환경 개선 지원
+-  구로구, 2024년 주요업무계획 보고회 개최
+-  경매시장 더딘 회복세 … 서울 아파트 낙찰가율 80%, 두 달 연속 하락
+-  파주시, 남북평화협력 지방정부협의회‘평화&안보 기념행사’ 열어
+-  홍천군, 농어촌도로 확충으로 정주여건 개선
+-  의정부시, SOS 긴급 틈새 지원 서비스 시행
+-  Condition of NHs to blame for frequent accidents in Assam?
+-  Manden bag Oppenheimer kåres som bedste instruktør ved Golden Globe
+-  Manden bag Oppenheimer kåres som bedste instruktør ved Golden Globe
+-  Cách đọc tên 12 tháng trong tiếng Anh
+-  Tư vấn tuyển sinh 2024: Không có ngành 'hot', chỉ có người 'hot'
+-  Trải nghiệm nhịp sống học sinh, sinh viên thế hệ mới
+-  Nữ sinh đất thép Củ Chi thành thủ lĩnh học sinh THPT
+-  Golden Globes 2024 | Christopher Nolan and Cillian Murphy win Best Director and Actor for ‘Oppenheimer’
+-  Jennifer Lopez teases new ‘meta’ music video on Golden Globes red carpet
+-  Assam: Polling officials move to destinations
+-  Düzce’de iki otomobil kafa kafaya çarpıştı: 1 ölü, 3 yaralı
+-  Mount Carmel College move to go co-education evokes mixed response
+-  Dodental aardbeving Japan loopt op naar 161, nog meer dan honderd mensen vermist
+-  NCAA and ESPN ink 8-year, $920 million media rights deal
+-  Cillian Murphy Jabs Christopher Nolan for ‘Lack of Seating Options’ on His Sets as He Wins Best Actor Golden Globe for ‘Oppenheimer’
+-  Assam Government shuffles 15 ACS officers in state
+-  Sede el Ministerio de Gobierno se muda del Casco Viejo hacia Tumba Muerto
+-  Alkol aldıktan sonra denize giren adam boğuldu
+-  Emma Stone ja Putoamisen anatomia päihittivät suomalaiset Golden Globe -gaalassa
+-  Prominent Davao businessman Philip Dizon dies in road crash
+-  Taylor Swift thu hút khi tới Quả Cầu Vàng
+-  Число жертв подземных толчков в Японии превысило 160 человек
+-  TV Guide: Home and Away 2024 on Seven and 7Plus
+-  솔루스첨단소재, '100% 무상증자' 권리락 효과에 강세
+-  ทีมช่างรฟท.เร่งซ่อมเส้นทางรถไฟเสียหาย22จุด
+-  NC Hill Autonomous Council poll: 1,11,645 voters to decide fate of 87 candidates
+-  Nvidia降規版AI晶片不受中資歡迎 阿里騰訊傳削訂單 轉向華為採購
+-  Exclusive: Angela Bassett teases 'wet and wild' 9-1-1 season 7 opening emergency
+-  WHL roundup: Buenaventura helps Hitmen drill Oil Kings 5-1
+-  Assam Cabinet takes Key Decisions
+-  WHL roundup: Buenaventura helps Hitmen drill Oil Kings 5-1
+-  이재명 습격범 신상 공개되나…당적은 ‘비공개’ 방침
+-  서울 ‘국민평형’ 아파트 분양가, 11억원 훌쩍 넘어
+-  ‘이 사람’ 이적 소식에 아프리카TV 주가 불기둥…‘우왁굳’은 누구?
+-  지하철 기본요금 또 오르나…서울시 “내부 검토 중”
+-  우주항공청 특별법, 8부 능선 넘었다…내일 본회의 처리될듯
+-  이동건 사주 "4·5번 이혼, 귀한 늦둥이 아들 보인다"('미우새')
+-  [조성진의 가창신공] 빅마마 신연아 호원대 문화예술대학장
+-  '노량: 죽음의 바다', 새해 첫 주말 韓영화 박스오피스 1위
+-  ‘환승연애3’, 13년 역대 최장기 커플의 서사…공감 지수 UP
+-  美매체도 주목한 '가족' 고우석·이정후 맞대결 "재밌는 운명의 장난"
+-  Ricky Gervais’ Embarrassing Golden Globes Win Trended for Wrong Reasons
+-  BJP MLAs Nitesh Rane, T. Raja Singh booked for hate speech at Solapur rally
