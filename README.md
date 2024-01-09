@@ -1,51 +1,51 @@
 # Latest News
--  依靠科技和改革双轮驱动加快推进农业现代化
--  激发消费持续增长潜能
--  充分发挥国有企业带动民营企业共同发展的重要作用
--  找准扩大内需关键点
--  深入领会习近平文化思想，勇担大学使命
--  不断夯实铸牢中华民族共同体意识的基础
--  “营造激励企业家干事创业的浓厚氛围”
--  大力弘扬教育家精神 培养造就新时代大国良师
--  海底捞创新食安机制：“双安全”认证+大食安模式，共护食品安全
--  为建设人与自然和谐共生的现代化提供坚强法治保障 推进生态文明法治建设
--  电视专题片《持续发力纵深推进》第四集《一体推进“三不腐”》今晚开播
--  人民日报和音：坚持共商共建共享的全球治理观
--  China’s top diplomat says ties with US ‘stabilised’ last year
--  Учитель физкультуры изнасиловал ученицу 8 класса
--  “Knight Flower” Cast Shares Key Points To Look Forward To Ahead Of Premiere
--  키움증권 엄주성號, 첫 조직개편…위기관리 능력 강화
--  2 học sinh lớp 9 tại Lâm Đồng nguy kịch vì tự chế tạo pháo
--  Bất ngờ với nhân thân nữ giám đốc chuyên ''bảo kê'' xe tải thu tiền tỉ
--  Nhạc sĩ Lý Khôn Thành qua đời, người vợ kém 40 tuổi cầu cứu
--  10 sự kiện nổi bật ngành Y tế năm 2023
--  Cậu bé liên tục ho sốt, bác sĩ chụp CT phổi thấy thứ không ai ngờ tới
--  Phở Việt Nam là một trong những món ăn có nước ngon nhất thế giới
--  Lý do đình chỉ chức vụ trụ trì chùa Từ Đức, Đồng Nai
--  Bắt được nghi phạm giết người cướp của ở TP.HCM lẩn trốn xuống Long An
--  "Cơn ác mộng" Hollywood của Harry và Meghan vẫn tiếp tục, mới đầu năm đã bị mang ra làm trò đùa
--  Lộ clip Jisoo (BLACKPINK) có dự án solo đầu tiên sau khi bị YG "xoá sổ", được khen cưng xỉu chỉ vì một hành động
--  "Bố hỏi: Lớp có đứa nào điểm 10 không? 'Có' là ăn đòn", câu chuyện của thầy Hiệu trưởng ở Hà Nội khiến nhiều cha mẹ giật mình
--  Bùng nổ sự kiện game đầu năm của làng game Việt: Màn tụ hội ấn tượng của hơn 4000 game thủ
--  5 món đồ họa tiết sang xịn mịn nên sắm để mặc đẹp dịp Tết
--  Chồng cũ Diệp Lâm Anh lộ ảnh hôn đắm đuối gái lạ trong bar, Quỳnh Thư phản ứng ra sao?
--  В соцсетях появилась информация о смерти «Дженго» в СИЗО
--  Tuğba Ekinci'ye "Hiç arabada seviştin mi?" sorusu soruldu
--  Площадь японского полуострова Ното из-за землетрясения выросла на 4,4 кв. км
--  SSK, Bağ-Kur emeklilerine ek zam olacak mı? İşte kök maaş hesaplaması
--  New COVID-19 ‘Wave on Wave’ Variant Hits Australia’s 2 Most Populous States
--  삼성패션연구소의 선택, '주목 올해의 컬러는? 블루·그린'
--  능력·성과 위주 인사 단행한 구미시…적재적소 인사 호평
--  "설 앞두고 임금 체불 원천 차단"…대구시, 건설현장 집중 점검 나선다
--  दवा लेकर घर लौट रहे ट्रैकमैन ट्रेन की चपेट में आने से जख्मी, पटना रेफर
--  Stellaris Sells 1% Stake In Mamaearth Parent For INR 141 Cr Via Bulk Deal
--  News24 | Israel says Gaza fighting to continue through 2024, as Blinken works to avert regional escalation
--  First a transparent OLED TV comes to CES, and now there's a see-through Micro LED
--  Samsung Galaxy S23 series Gets Hefty price cut in India Ahead of Galaxy S24 Launch, Check Revised Rates
--  Vincitori e idonei dal mondo
--  Selenskyj droht Russland: Terrorstaat wird definitiv unsere Antwort spüren
--  ตร.ออกกวาดล้าง ร้านขายน้ำกระท่อม หลังพบเป็นอีกปัจจัยทำวัยรุ่นหึกเหิม
--  Police Detain Executive at China Evergrande’s EV Unit; Property Sector Shows Fresh Signs of Distress
--  Coach sacked for misconduct after boxer’s defeat
--  Decision to acquire modern jeepneys lies on coops, not gov’t — LTFRB
--  Rennfahrertalent Goethe will in Vettels "Fußstapfen treten"
+-  Full text of President Xi Jinping's 2024 New Year message
+-  World must work together to strengthen AI governance
+-  China, Middle Eastern countries strive to expand business cooperation
+-  China's Blue Circle environmental initiative gives new solution to marine plastic waste
+-  '행선지는 레알이 아니다'→'음바페 합류' 리버풀 예상 베스트11
+-  OPPO Find X7 Ultra双潜望+大师四摄 打造多摄终极形态
+-  OPPO Find X7系列超光影图像引擎：三大算法 旗舰影像
+-  ROG幻14的既视感 ROG游戏手机8 Pro开箱体验
+-  晚江松影叙墨韵 OPPO Find X7 Ultra松影墨韵开箱
+-  哈苏人像加持 OPPO Find X7系列超自然虚化 媲美单反
+-  全球唯二 OPPO Find X7 Ultra带来全焦段杜比视频录制
+-  Keke Rosbergin syrjäyttämä entinen F1-kuski menehtyi
+-  윤세영 회장 "필요하다면 티와이홀딩스·SBS 주식도 담보로"…'태영건설 포기설'도 일축
+-  애플, '애국소비' 화웨이에 밀렸다… 中서 '아이폰' 판매량 30% 급감
+-  마산대 의료관광중국어과, '전문대 글로벌 현장학습 UCC 공모전' 장려상
+-  성낙인 창녕군수 ldquo;올해 새로운 변화, lsquo;창창한 창녕rsquo; 건설의 원년 만들 것rdquo;
+-  순천향대 김정은 교수 lsquo;K-Medi 융합인재지원 사업rsquo; 선정
+-  신현성 법무법인 HS 대표변호사 제22대 국회의원 선거 출마 공식 선언
+-  미트박스 “고물가 시대, ‘갓성비’ 고기 선물세트로 설 연휴 준비하세요”
+-  Irrumpen en casa para matar a hombre
+-  Al Nahyan'dan Netanyahu'nun talebine ret! Alay etti: Zelenski'den iste
+-  وظائف شاغرة ومدعوون للمقابلات الشخصية - أسماء
+-  "مالية النواب" تناقش اليوم موازنة وزارة العدل والمجلس القضائي
+-  Trinidad y Tobago despide al fallecido exlíder Basdeo Panday
+-  法国总理博尔内辞职，总统马克龙发声明对其表示感谢
+-  German great Beckenbauer dies aged 78
+-  Σία Κοσιώνη: «Το ζούληγμα της Ελληνίδας μάνας»
+-  Estado de excepción en Ecuador, misma medida con nuevo presidente
+-  HUVUDLEDARE: Tyska bondestrejken blir ett verktyg för AfD.
+-  Avtomobilske luči: v Nemčiji bijejo plat zvona, pri nas menda ni panike
+-  Lokführer und Bahn bereiten sich auf nächsten Streik vor
+-  GH, 2024년 공사 용역 총 4223억원 발주
+-  В Турции начали подготовку к встрече Путина и Эрдогана
+-  إهدار للمال العام والخاص.. برلمانية تقدم طلب إحاطة بشأن تدني طريق دمياط- دمياط الجديدة
+-  Brittisk detaljhandelsförsäljning steg i december
+-  Mandag aften lå programmet for en historisk søndag i København klar
+-  Jimmy Kimmel Slams “Ignorant” Aaron Rodgers During Seven-Minute On-Air Rant After Epstein Flap
+-  ASUS intros ROG Maximus Z790 Hero BTF motherboard with hidden power connectors
+-  मौसम अपडेट: शीतलहर और घने कोहरे का अलर्ट, बारिश की संभावना, जानिए मौसम विभाग का पूर्वानुमान
+-  Người Mỹ sắp được nhận những tấm chi phiếu an sinh xã hội đầu tiên với mức tăng COLA của năm 2024
+-  경남선관위 선거법 단속 강화…허위사실·비방 특별대응팀 운영
+-  박형룡 달성군 출마 선언 "윤석열 검사 정권 심판하겠다"
+-  강원소방, 2024강원동계청소년올림픽 대회시설 현장점검
+-  교사가 장애아동 학대…경찰 신고 접수, 전북교육청 "사실관계 확인"
+-  "동료 교수에 성폭행 당했다" 명예훼손 혐의 교수 집행유예
+-  국회, 조태열 외교부 장관 후보 인사청문보고서 채택
+-  민주당 대학생위원회 "국힘 입당 이상민, 총선 불출마하라"
+-  대통령실, 국가안보실에 3차장 신설…경제안보 담당
+-  中企 탈 쓴 글로벌 면세점, '국내 면세시장서 퇴출'
+-  “애호박 990원에 판매”…홈플러스, 서울시와 물가안정 나선다
