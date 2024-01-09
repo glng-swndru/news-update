@@ -1,11 +1,11 @@
 # Latest News
--  Ryan Kent'e Suudi Arabistan'dan talip çıktı!
--  Blinken, Gazze'de sivillerin korunmasının önemine değindi
--  Hrvati se pitaju: Zašto Srbin ne igra za njih?
--  UŽIVO Vrelo u Istanbulu - Partizan izaziva Fener
--  ما صلاحيات محكمة العدل بشأن اتهام إسرائيل بالإبادة؟
--  الحكومة: الواقع المائي الأردني يعني العطش
--  فيديو .. شلال ياجالا الأكبر في إستونيا يتجمد بفعل الصقيع
--  نحو 500 رحلة سفر لأعضاء حكومة الخصاونة خلال 3 أعوام
--  شركة Volkswagen تدخل نظام ChatGPT إلى سياراتها للتحدث مع السائقين
--  الملك يعود من رواندا
+-  'Barış yanlısı' hahamlardan, BMGK'da Gazze için ateşkes eylemi... "Biden, dünya ateşkes istiyor"
+-  Muğla'da şiddetli sağanak hayatı olumsuz etkiliyor
+-  Almanya Dışişleri Bakanı Gazze'de çöken sağlık sistemine işaret etti... "Hastaneler işlevlerini yerine getirebilmeli"
+-  Citroen'den 2024'ün en çılgın kampanyası! 10 bin TL taksitle sıfır otomobil fırsatı
+-  Karaborsacıların konser fırsatçılığı... Scorpions ve Megadeth konser biletlerini tükettiler
+-  BM, Gazze'de yaşanan insani drama dikkat çekti: "Yaşama uygun olmayan bir yere dönüşüyor"
+-  Gazze'de saatte 11 kişi katlediliyor
+-  ধানের দুটি ও গমের একটি নতুন জাতের ছাড়পত্র
+-  নওগাঁয় সড়ক দুর্ঘটনায় প্রাণ গেল ৩ জনের
+-  পর্তুগালে নবনিযুক্ত বাংলাদেশ রাষ্ট্রদূতের পরিচয়পত্র পেশ
