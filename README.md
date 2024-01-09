@@ -1,51 +1,51 @@
 # Latest News
--  لأول مرة بالمنطقة الشرقية .. نجاح جراحة معقدة بالقلب لطفلة عمرها 3 سنوات
--  برنامج ريف يوضح القطاعات المشمولة بالدعم في منطقة حائل
--  أول دولة تمنح جنسيتها للفلسطينيين الفارين من الحرب على غزة
--  Nišić s predstavnicima Međureligijskog vijeća u BiH dogovorio intenziviranje suradnje
--  Lucian Grainge Says UMG Is ‘Creating the Blueprint For Labels of the Future’ in New Year’s Memo to Staff
--  Tatar calls ‘critical meeting’ over Turkish Cypriot lawyer
--  Geriatric clinic forced to close doors
--  Quand sort Echo, la nouvelle série Marvel ?
--  הדרישה של ראש העיר קריית גת: הכשירו את תלמידי בתי הספר להשתמש בנשק
--  Budenzauber für den Nachwuchs: Junge Bernsbacher legen alte Wismut-Tugenden an den Tag
--  Neujahrsturnier der „Freien Presse“: Beste Bowler dürfen zum Bohlen
--  Knieverletzung: Alexander-Arnold fehlt Liverpool wochenlang
--  Mittelsachsens Fußballer trauern um langjährigen Mitstreiter
--  53.000 Fans: Handballer ohne Bammel vor Rekord-Kulisse
--  Einbrecher machen Beute in einem Kulturtreff in Burgstädt
--  Citybahn und Erzgebirgsbahn nennen Details: Diese Züge sollen trotz des Streiks im Erzgebirge fahren
--  Weltwirtschaftsforum in Davos mit Selenskyj
--  Bauernproteste im Erzgebirge: Essen auf den Rädern – wie rollt es?
--  ماذا قدّم "أوفا وشكري" بعد إعلانهما تفاوض الزمالك معهما؟
--  سهم "إم بي سي" يكرر قفزته بنسبة 30% في ثاني أيام تداوله بالبورصة السعودية
--  موعد انضمام وسام أبو علي لتدريبات الأهلي
--  لماذا تجاوز سعر بيتكوين 47 ألف دولار لأول مرة في 21 شهرا؟
--  هيئة البث العبرية: تصفية مسؤول وحدة المسيرات في حزب الله بلبنان
--  سعر الذهب اليوم الثلاثاء في مصر يهبط 50 جنيها بحلول تعاملات المساء
--  ارتفاع جديد في سعر الفول.. كيف تعامل الباعة وربات البيوت مع قفزة طبق الغلابة؟
--  سيدة تكتشف خيانة زوجها بطريقة لن تخطر على بالك .. إليك ما حدث
--  5 فوائد غير متوقعة لتناول طاجن البامية باللحمة الضاني.. و 3 فئات ممنوعة منها
--  Echtpaar Van Wijk - De Jong uit Vianen 60 jaar getrouwd
--  Spaccio di droga nel Catanese: due pusher in manette
--  تشييع جثمان المحامي الذي عثر عليه مشنوقا داخل مكتبه في الإسكندرية
--  EPCG Solar gradnja: Izjava ministra Mujovića je neadekvatna, broj radnika je smanjen za preko 150!
--  শেখ হাসিনাকে ঢাবি উপাচার্যের অভিনন্দন
--  Discovering the role of think tanks as catalysts in democracy
--  Fudbaler napustio Zvezdu - ostaće upamćen po golu u derbiju
--  KURZMELDUNGEN - Kultur: Gerichtsmediziner enthüllt Todesursache von Sinead O’Connor
--  Πινκ: Η δημόσια ερωτική εξομολόγηση στον άντρα της - Είσαι ο πεισματάρης, όμορφος, αμετακίνητος βράχος μου
--  “Deputetët janë vemje”/ Murrizi: Nuk jam leckë këpuce që të pres për një karrige të qelbur në Kuvend
--  নাঙ্গলকোটে বিএনপির ১৯ নেতাকর্মীর বিরুদ্ধে বিস্ফোরক মামলা
--  আলাদা আলাদা বৈঠকে সমমনাদের যে বার্তা দিল বিএনপি
--  Jadon Sancho loan agreement between Man United and Dortmund close to being confirmed
--  إحالة المتهم بالشروع في قتل سائق بسبب خلاف على ثمن الأجرة بالجيزة للجنايات
--  Jovana Jeremić HOĆE DA JOJ STOJA PEVA na svadbi sa milionerom: Pevačica se oglasila i evo šta je poručila
--  에스파 닝닝, 가슴만 가린 '아찔' 시스루 드레스로 뽐낸 S라인
--  Piesi na pasach w Rykach muszą mieć się na baczności! Dwa wypadki w jeden dzień (FILM)
--  Pekao S.A. Puchar Polski kobiet rozlosowany. Z kim zagra Polski Cukier AZS UMCS Lublin?
--  ANWB: nog steeds topdrukte, wachttijd langer dan normaal
--  Wall St slips as treasury yields drag on big tech firms
--  Crypte Lebuinuskerk in Deventer ondergelopen door hoogwater. Veel mensen nemen kijkje
--  Bebê que se afogou em piscina morre no hospital em Mato Grosso
--  Με τη βούλα και με το 13 στον Απόλλωνα ο Σάντος
+-  Šéf liberálov v europarlamente varuje pred dôsledkami vzostupu krajnej pravice
+-  V prvom štvrťroku chceme začať proces zonácie TANAP-u, povedal Taraba
+-  Pri dopravných nehodách v Trenčianskeho kraja zomrelo v minulom roku 21 ľudí
+-  Kráľovský palác zverejnil program nedeľňajšej výmeny panovníka v Dánsku
+-  Z hrebeňa Nízkych Tatier spadol turista: Do nemocnice ho viezol vrtuľník
+-  Exposlancov mali previezť do väzenia: Miesto toho ich prijal prezident Duda
+-  Pri pohľade na FOTO známej Slovenky vám bude nevoľno: Fuj! Nechutný návrat do školy
+-  Slávny chirurg John Hunter bol poriadnym čudákom: Ochutnal múmiu a pitval obra?
+-  Regras de solicitação da revisão dos valores no FGTS
+-  "Stanje u Željezari teško, neću se oglašavati dok ne organizujem jedinice"
+-  Solar gradnja: Već smo smanjili broj radnika, popravlja se saradnja sa EPCG
+-  Aleksander-Arnold zbog povrede nekoliko nedjelja van terena
+-  Bhutan&#039;s People&#039;s Democratic Party wins election in Himalayan kingdom and returns to power
+-  The US and UK say Bangladesh&#039;s elections extending Hasina&#039;s rule were not credible
+-  Relembre trajetória de Marta na prefeitura de SP
+-  Man United beats 3rd-tier Wigan 2-0 to ease through to 4th round of FA Cup
+-  Gradonačelnik Nišić sa suradnicima obišao izgorjelu kuću u naselju Prutače
+-  Pix pode passar por alterações
+-  Agrarexperte erklärt, was Landwirte und Politiker zusammenbringen könnte
+-  Hrithik Roshan Birthday 2024: 5 best movies of the Bollywood`s Greek God
+-  Tiger & Jackie receive invite for attending the Ram Mandir consecration ceremony
+-  Juhu`s Sun-n-Sand Hotel to host Izumi for a pop-up by the sea from Jan 12 - 14
+-  Royaume-Uni :: Bataille D’angleterre : Manchester United Et Tottenham Hotspur Ont Rendez-Vous En Premier League :: United Kingdom
+-  Ampel-Koalition: Grüne wollen beim Thema Gerechtigkeit wieder Vertrauen zurückgewinnen
+-  Gondola se srušila u Tirolu: Teško ozlijeđene četiri osobe
+-  Patlamada 3 asker şehit olmuştu... Havai fişek fabrikası davasında karar
+-  Antalyaspor kazandı! Sergen Yalçın siftah yaptı
+-  Beşiktaş için Ricardo Quaresma iddiası!
+-  XIII Noc Biologów już w piątek. Uwaga! Na wykłady, warsztaty i laboratoria obowiązują zapisy
+-  Alanyaspor ile MKE Ankaragücü yenişemedi!
+-  Trận thua ĐT Kyrgyzstan chỉ ra vấn đề đáng lo của ĐT Việt Nam
+-  Клуб РПЛ объявил об уходе футболиста сборной Казахстана
+-  Nhóm nữ nhà JYP ra album, chạy tour thế giới dù thiếu giọng ca chính, netizen: Đội hình như "ăn theo" BLACKPINK đến cùng?
+-  Tốt nghiệp rồi mới phát hiện trong túi áo đồng phục cấp 3 có giấu một mảnh giấy chứa "bí mật nhỏ", nữ sinh hối hận không thôi
+-  Grifols se escuda en que sus cuentas "están totalmente refrendadas" por su auditor KPMG
+-  Grifols se escuda en que sus cuentas "están totalmente refrendadas" por su auditor KPMG
+-  Grifols se escuda en que sus cuentas "están totalmente refrendadas" por su auditor KPMG
+-  Grifols se escuda en que sus cuentas "están totalmente refrendadas" por su auditor KPMG
+-  Z RTVS odišiel Pavlík, bol riaditeľom Sekcie online služieb
+-  Der Stettnerweg in Korneuburg
+-  Russian to be extradited over false Chernobyl claims
+-  Berisha kthehet në kartë të djegur, Boçi: Synohet bashkimi, Basha të reflektojë
+-  İstanbulluların çilesi! Trafik durma noktasına geldi
+-  Selena Gomez rompió el silencio sobre el “chisme” que se hizo viral en los Globos de Oro
+-  Emma Stone Hits Red Carpet with Husband Dave McCary, 24 Hours After Golden Globes Win!
+-  Sunovrat Zvezdinog vunderkinda: Još uvek ima 19 godina, umesto Mitrogol 2.0 postao je drugoligaški igrač, a to sebi ne sme da dozvoli
+-  Ислам Махачев отказался от боя в UFC
+-  More than 1,000 Ukrainian towns lose power due to extreme winter weather
+-  Israel News: ++ Baerbock fordert Öffnung der Grenze zu Rafah für 24 Stunden ++
+-  Galeria Karstadt Kaufhof zum dritten Mal in drei Jahren zahlungsunfähig – Tagesschau
