@@ -1,11 +1,51 @@
 # Latest News
--  İşgalci İsrail askeri katlettiği Filistinlinin üzerinden araçla geçmişti... Filistin tepki gösterdi
--  İsrail işgali Filistinlileri Refah'a sıkıştırdı... Nüfus 280 binden 1 milyona çıktı
--  Bakan Güler, Ukrayna'nın Ankara Büyükelçisi'ni kabul etti
--  Gelişkin X-ışını donanımlarına sahip... Çin, "Einstein" astronomi gözlem uydusunu fırlattı
--  Andreas Wutte amüsiert mit "Rote Ohren" im Fuchspalast
--  ריאל מחכה לאתלטיקו: "הם פגעו בנו בדרבי הקודם, הסקנו מסקנות"
--  [김해시, 주민숙원사업 북부우회도로 전 구간 개통 완료
--  Helicóptero desaparecido em SP: Quais as pistas sobre o paradeiro das vítimas?
--  Afganistan'da bombalı saldırı! En az 3 kişi öldü
--  Fatih Camii imamına bıçakla saldırmıştı! Olayda yeni gelişme
+-  لأول مرة بالمنطقة الشرقية .. نجاح جراحة معقدة بالقلب لطفلة عمرها 3 سنوات
+-  برنامج ريف يوضح القطاعات المشمولة بالدعم في منطقة حائل
+-  أول دولة تمنح جنسيتها للفلسطينيين الفارين من الحرب على غزة
+-  Nišić s predstavnicima Međureligijskog vijeća u BiH dogovorio intenziviranje suradnje
+-  Lucian Grainge Says UMG Is ‘Creating the Blueprint For Labels of the Future’ in New Year’s Memo to Staff
+-  Tatar calls ‘critical meeting’ over Turkish Cypriot lawyer
+-  Geriatric clinic forced to close doors
+-  Quand sort Echo, la nouvelle série Marvel ?
+-  הדרישה של ראש העיר קריית גת: הכשירו את תלמידי בתי הספר להשתמש בנשק
+-  Budenzauber für den Nachwuchs: Junge Bernsbacher legen alte Wismut-Tugenden an den Tag
+-  Neujahrsturnier der „Freien Presse“: Beste Bowler dürfen zum Bohlen
+-  Knieverletzung: Alexander-Arnold fehlt Liverpool wochenlang
+-  Mittelsachsens Fußballer trauern um langjährigen Mitstreiter
+-  53.000 Fans: Handballer ohne Bammel vor Rekord-Kulisse
+-  Einbrecher machen Beute in einem Kulturtreff in Burgstädt
+-  Citybahn und Erzgebirgsbahn nennen Details: Diese Züge sollen trotz des Streiks im Erzgebirge fahren
+-  Weltwirtschaftsforum in Davos mit Selenskyj
+-  Bauernproteste im Erzgebirge: Essen auf den Rädern – wie rollt es?
+-  ماذا قدّم "أوفا وشكري" بعد إعلانهما تفاوض الزمالك معهما؟
+-  سهم "إم بي سي" يكرر قفزته بنسبة 30% في ثاني أيام تداوله بالبورصة السعودية
+-  موعد انضمام وسام أبو علي لتدريبات الأهلي
+-  لماذا تجاوز سعر بيتكوين 47 ألف دولار لأول مرة في 21 شهرا؟
+-  هيئة البث العبرية: تصفية مسؤول وحدة المسيرات في حزب الله بلبنان
+-  سعر الذهب اليوم الثلاثاء في مصر يهبط 50 جنيها بحلول تعاملات المساء
+-  ارتفاع جديد في سعر الفول.. كيف تعامل الباعة وربات البيوت مع قفزة طبق الغلابة؟
+-  سيدة تكتشف خيانة زوجها بطريقة لن تخطر على بالك .. إليك ما حدث
+-  5 فوائد غير متوقعة لتناول طاجن البامية باللحمة الضاني.. و 3 فئات ممنوعة منها
+-  Echtpaar Van Wijk - De Jong uit Vianen 60 jaar getrouwd
+-  Spaccio di droga nel Catanese: due pusher in manette
+-  تشييع جثمان المحامي الذي عثر عليه مشنوقا داخل مكتبه في الإسكندرية
+-  EPCG Solar gradnja: Izjava ministra Mujovića je neadekvatna, broj radnika je smanjen za preko 150!
+-  শেখ হাসিনাকে ঢাবি উপাচার্যের অভিনন্দন
+-  Discovering the role of think tanks as catalysts in democracy
+-  Fudbaler napustio Zvezdu - ostaće upamćen po golu u derbiju
+-  KURZMELDUNGEN - Kultur: Gerichtsmediziner enthüllt Todesursache von Sinead O’Connor
+-  Πινκ: Η δημόσια ερωτική εξομολόγηση στον άντρα της - Είσαι ο πεισματάρης, όμορφος, αμετακίνητος βράχος μου
+-  “Deputetët janë vemje”/ Murrizi: Nuk jam leckë këpuce që të pres për një karrige të qelbur në Kuvend
+-  নাঙ্গলকোটে বিএনপির ১৯ নেতাকর্মীর বিরুদ্ধে বিস্ফোরক মামলা
+-  আলাদা আলাদা বৈঠকে সমমনাদের যে বার্তা দিল বিএনপি
+-  Jadon Sancho loan agreement between Man United and Dortmund close to being confirmed
+-  إحالة المتهم بالشروع في قتل سائق بسبب خلاف على ثمن الأجرة بالجيزة للجنايات
+-  Jovana Jeremić HOĆE DA JOJ STOJA PEVA na svadbi sa milionerom: Pevačica se oglasila i evo šta je poručila
+-  에스파 닝닝, 가슴만 가린 '아찔' 시스루 드레스로 뽐낸 S라인
+-  Piesi na pasach w Rykach muszą mieć się na baczności! Dwa wypadki w jeden dzień (FILM)
+-  Pekao S.A. Puchar Polski kobiet rozlosowany. Z kim zagra Polski Cukier AZS UMCS Lublin?
+-  ANWB: nog steeds topdrukte, wachttijd langer dan normaal
+-  Wall St slips as treasury yields drag on big tech firms
+-  Crypte Lebuinuskerk in Deventer ondergelopen door hoogwater. Veel mensen nemen kijkje
+-  Bebê que se afogou em piscina morre no hospital em Mato Grosso
+-  Με τη βούλα και με το 13 στον Απόλλωνα ο Σάντος
