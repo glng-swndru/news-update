@@ -1,51 +1,51 @@
 # Latest News
--  الجمعية العامة تناقش خطورة استخدام الفيتو بشأن غزة
--  قوات الاحتلال تقتحم مدينة جنين
--  PRI-Coahuila insiste: PAN incumplió compromiso de obtener 20% de votos; ponen en riesgo triunfo de Xóchitl
--  بطلة Spider-Man ضاقت ذرعا من تصرفات اللاعبين الذين "تجاوزوا الحدود"
--  الكشف عن المقدمة الرسمية لمسلسل 3 Body Problem
--  Petro aprovechará visita a Chile en enero para reunirse con el presidente de Panam Sports
--  Kate Middleton and Princess Mary of Denmark are queens-in-waiting with much more in common than style. Take a look.
--  الجوف ..نمو ملحوظ في السجلات التجارية خلال 2023
--  بيكيه يعلن عودته للملاعب كمدرب
--  نمو في تسجيل قاعات الأفراح بمكة.. أسباب انتعاش القطاع والأسعار
--  الحدود الشمالية.. القبض على شخصين لترويجهما الإمفيتامين المخدر
--  Vukovarska policija traži još dvojicu zbog premlaćivanja mladića: Uhićeni već imaju podeblji dosje
--  Napisao hit kojeg Hrvati obožavaju, a onda nestao: Evo što danas radi Zoran Jelenković
--  Aumentan medidas de bioseguridad en el Hospital de Maturín por aumento de casos Covid
--  Jovem atropelado por motorista embriagado em SP acorda de coma
--  Pentagon-Chef gibt Krebsdiagnose bekannt
--  As Widodo visits PH, Migrante Philippines urge: Listen to the Veloso family’s plea, #FreeMaryJaneVeloso
--  Adalet Bakanlığı'ndan Dilan Polat açıklaması: İddialar gerçek dışı
--  La Bolsa de Buenos Aires cierra con una caída del 2,90 %
--  نائب رئيس جامعة السادات يتابع سير الامتحانات بكلية التجارةاليوم الثلاثاء، 9 يناير 2024 08:25 مـ
--  ضبط مصنع لتعبئة ملح الطعام دون ترخيص ببرج العرباليوم الثلاثاء، 9 يناير 2024 08:29 مـ
--  «الأرصاد» تحذر من انخفاض في درجات الحرارة غدًا الأربعاءاليوم الثلاثاء، 9 يناير 2024 08:08 مـ
--  عمرو القماطي: مصر متصدرة الصف العربي الداعم لـ ثوابت القضية الفلسطينيةاليوم الثلاثاء، 9 يناير 2024 08:32 مـ
--  Hot Mic: Journos Caught Giggling Up a Storm About Trump Being Assassinated
--  В Белом доме продолжают выступать против прекращения огня в Газе
--  Britons Opt to Sit in the Cold as Worries About Bills Persist
--  Fortrea Establishes Industry Partnership with Veeva and Advarra to Streamline Patient and Site Clinical Trial Experience
--  Silahlı saldırganlar canlı yayını bastı: Çok sayıda gazeteci ve çalışan rehin alındı
--  Encapuchados asaltan canal de TV en Ecuador – VIDEO
--  Miunchene – užtikrinta „Real“ pergalė
--  Arrestan 34 por robos, asaltos, estafas y tráfico de mercancías
--  ChatGPT-maker braces for fight with New York Times and authors on ‘fair use’ of copyrighted works
--  [1보] 국제유가 상승…WTI 2.1%↑
--  Major winter storm hits much of southern, central Ontario
--  Champions League: Civitanova inciampa in Romania
--  Supercoppa di Spagna, Real Madrid-Atletico: l'analisi del match
--  ¿Cuál es la capacidad del Estadio Azul? América, Cruz Azul y Atlante se disputarán allí el Clausura 2024
--  Γλίτωσε την γκέλα και συνεχίζει να ελπίζει για 10άδα η Αρμάνι! (ΒΑΘΜΟΛΟΓΙΑ)
--  Suspenden clases en Ecuador ante grave crisis de seguridad
--  San Rafael de Laya, un pueblo secuestrado por el Tren del Llano (como muchos otros) en Guárico
--  'Nepo baby' Ivanka Trump is mocked after praising husband Jared Kushner for telling people nothing is too 'hard' to achieve - as critics point out success is always easy 'when you're born into a family worth billions'
--  رئيس الإكوادور: البلاد في حال «نزاع مسلح داخلي»
--  Men armed with grenades and bombs seize state TV news studio in Ecuador and hold journalists hostage as cameras keep rolling broadcasting the scene to shocked nation
--  Ilda Zhulali: Një nga kongresmenët në SHBA i ka kërkuar DASH, faktet për Berishën
--  Минута мълчание в Бундеслигата в памет на Бекенбауер
--  Министерот за одбрана на САД бил хоспитализитан поради рак, не кажувал дека е болен, а не знаел ниту Бајден
--  مجلس الوزراء يعتمد قانون تجريم السـحر .. تعرف على العقوبات !
--  Persona të armatosur sulmojnë studion televizive të Ekuadorit gjatë transmetimit të drejtpërdrejtë
--  إنقاذ حياة شاب يعاني تضيق الصمام الأبهري
--  Lunárny model Peregrine pre stratu paliva nemá šancu pristáť na Mesiaci
+-  Handball-EM 2024: Warum das Schweiz-Spiel für Deutschland extrem wichtig ist
+-  "شاملاً الدعم الإضافي".. حساب المواطن: إيداع الدعم المخصص لشهر يناير
+-  وزير الإعلام يُدشّن باب التسجيل في المنتدى السعودي للإعلام بنسخته الثالثة
+-  واشنطن.. إطلاق نار بالقرب من البيت الأبيض ومقتل شخص
+-  الدوريات البرية لحرس الحدود تحبط تهريب كمية كبيرة من الأقراص المخدرة بجازان
+-  "دعوات بالخير والبركة".. ردود فعل واسعة بعد إيداع دفعة يناير في حساب المواطن
+-  بعد إيداع دفعة يناير .. تنبيه مهم من حساب المواطن بشأن تحديث البيانات
+-  بعد إيداع دفعة يناير .. حساب المواطن : الدعم مستمر حتى هذا الموعد
+-  '日 구원왕들과 험난한 경쟁' 고우석, SD 주전 마무리 꿰찰까
+-  '고맙다, 디펜딩 챔프' 꼴찌 KB손해보험, 그래도 대한항공에는 강하네
+-  K리그 이적 시장 '폭풍의 눈'…전북·대전의 광폭 행보
+-  회사 파일 4천개 '순삭'…어느 쇼핑몰 직원의 수상한 퇴사
+-  태영건설 위기 부른 '빚의 네트워크', 어디서 터질지 모른다
+-  Missies met bemanning naar maan uitgesteld
+-  President: Ecuador in staat van intern gewapend conflict
+-  Vliegtuigbouwer Boeing opnieuw in de min op beurzen New York
+-  Toezichthouder VS akkoord met beursgenoteerde bitcoinfondsen
+-  Mininter da 24 horas para detener a autores de robo a agentes de seguridad del Estado
+-  Quedan cargas varadas por nieve en carreteras
+-  Urgen a que arranque aeropuerto de Creel
+-  Übersicht: Anzahl der Episoden des Winter-Anime 2024
+-  مجلس النواب يوافق على دعوة محافظ المصرف المركزي لتقديم إحاطة عن السياسة النقدية
+-  Bakıda həbs olunan casus Fransa gündəmində
+-  Son dakika... Çorum'da deprem: AFAD verileri duyurdu
+-  Produce suscribe convenio con ANGR para promover desarrollo de mypes en el país
+-  Espanja | Maskipakko astuu jälleen voimaan sairaaloissa
+-  الفريق الرويشان: تصريحات وزير الخارجية الأمريكي محاولة لحرف الرأي العالمي عن غزة
+-  21 Savage’s New Album ‘American Dream’: Everything To Know Including The Release Date, Tracklist & More
+-  Adan Canto, 'Designated Survivor' and 'The Cleaning Lady' Star, Dead at 42
+-  Was there a sprite called a Cornish Knocker? What creatures from folklore have we forgotten?
+-  Moment brazen couple take over local Indiana coffee shop to host impromptu WEDDING - as furious owners say bridal party blocked other customers from entering, left them to clean up the mess and only bought six lattes
+-  Cole Palmer MISSES A SITTER from five yards out as Chelsea trail Middlesbrough in the Carabao Cup
+-  Gemaskerden kapen tv-uitzending in Ecuador, president spreekt van burgeroorlog
+-  Kochie issues a brutal message to boomers as he reveals why many young Aussies are struggling
+-  الوكالة الفلسطينية: قوات إسرائيلية تقتحم مدينتي جنين وطولكرم في الضفة الغربية
+-  REAL PROTUTNJAO MINHENOM: Bajern ubedljivo poražen na svom terenu,
+-  Velikodušna gesta giganata: Real, Barça i Atletico odrekli se novca da bi pomogli klubu užarenog Vatrenog
+-  MSI’s Claw gaming handheld just makes me want a portable Xbox
+-  Alerta roja en La Guajira: casi todos los municipios están bajo la amenaza de incendios
+-  Ekipet me kërcënuese të Superiores
+-  Megyn Kelly thinks Michelle Obama may be launching 2024 run after former first lady appeared on popular podcast with nothing to promote: Says race would be 'a whole new ballgame' if she declared
+-  Tiger Woods becoming the face of Nike, Michael Jordan's gargantuan £1.1bn contract and Cristiano Ronaldo's lifetime £785m deal... the top ten biggest ever partnerships signed by sports stars
+-  ΑΤΑΜΑΝ: «Παίξαμε τέλεια»!
+-  Metropolitan Opera Announces Another Cast Change for ‘Carmen’
+-  منى سامي | حلقة خاصة مع رئيس الأكاديمية العسكرية الفريق الركن ناصر الغنام
+-  SAD odlažu odlazak astronauta na Mesec do 2026. godine
+-  Chicago shooting today: Off-duty CPD officer involved in Marquette Park shooting near 7200 block of South Spaulding Avenue
+-  Le dollar se raffermit, mais le marché navigue toujours à vue
+-  Χρηματιστήριο: Στο κόκκινο έκλεισαν Dow Jones και S&P – Οριακή άνοδος για Nasdaq – Το σκωτσέζικο ντουζ με το πετρέλαιο συνεχίζεται
+-  Violencia narco en Ecuador: el presidente declaró al país en estado de "conflicto armado interno"
