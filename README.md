@@ -1,51 +1,51 @@
 # Latest News
--  Corte niega la petición de Lenia Batres de disminuir su sueldo: permite reintegrar a la Tesorería los recursos que ella considere
--  تفاصيل المنخفض الجوي القادم إلى المملكة
--  A un año de las acciones golpistas en Brasil, Lula intenta reconstruir el régimen
--  고창군, 친환경 농업을 선도하는 유용미생물 공급 확대 추진
--  강진군, 토종쌀 막걸리 시음 선호도 첫 평가회 ‘호평’
--  홍천군, 농가의 부담을 덜고 큰 힘을 보태드립니다! 2024년 홍천군, 반값농자재 지원사업 신청
--  보성군, ‘2024년 찾아가는 군민과의 대화’ 호응 속 시작
--  연천군, 영농부산물 안전처리 지원사업 추진
--  장동혁 "한동훈 아동학대 허위 사실 유포 … 가짜뉴스 근절 본보기 삼겠다"
--  순천시, 더 두텁게 더 섬세하게 시민의 기본생활보장 강화
--  장흥군, ‘2024년 지적재조사사업’ 주민설명회 성료
--  청송군, 아이스클라이밍 월드컵 준비 체제 본격 돌입!
--  Julio César Chávez confirma que su hijo está detenido en EEUU: “No pierdo la fe”
--  कट ऑफ से ज्यादा नंबर लाने के बाद भी अभ्यर्थी नियुक्ति के लिए तरस रहे हैं, विधायक को दिया ज्ञापन
--  দ্বাদশ জাতীয় সংসদ নির্বাচনে জয়ী হলেন ৫ কৃষিবিদ
--  শীতের সকালে এক চামচ মধু রোগ প্রতিরোধে যেন মহৌষধ
--  तेलंगाना की 17 लोकसभा सीटों में से 12 पर है कांग्रेस की नजर
--  নির্বাচনে সহযোগিতা না পেয়ে শ্রীপুর জাতীয় পার্টির সভাপতির পদত্যাগ
--  An Overview of Continuous Die Market 2024-2030: Markets & Forecasts, Strategy based, Explore additional
--  Mengenal Gummy Smile yang Dimiliki Jennie BLACKPINK, Apakah Berbahaya?
--  Willem Dafoe Terima Bintang Hollywood Walk of Fame Pertama di 2024
--  India-Maldives Row: Minority leader Azim Calls For No Confidence Against Maldivian President Muizzu
--  Australia’s answer to a Vegas show
--  Australia’s answer to a Vegas show
--  Australia’s answer to a Vegas show
--  133-131. La lesión de Haliburton eclipsa el triunfo ‘in extremis’ de Indiana ante Boston
--  How Technology Facilitates Addiction Among Adolescents
--  "900여㎏ 무허가 불법 조업"…제주해경, 중국어선 나포
--  반도체 부진의 골 깊었다…삼성전자, 15년 만에 영업이익 10조↓
--  규모의 경제 달성하려면 원전 해외 진출 확대해야
--  어렵기만한 소식·저염식…식사 습관으로 해결한다?
--  ‘워크아웃’ 기로 선 태영 “지주사‧SBS 지분도 내놓겠다”
--  Timnas soal Anies Dapat Sentimen Positif Tertinggi: Olah Kontrol Emosi yang Baik
--  النفط يرتفع مع استمرار الصراع في الشرق الأوسط
--  Fosun's S&P Global CSA ESG score jumped significantly, its MSCI ESG rating stood at AA for three consecutive years
--  Realty Income Prices $1.25 Billion Dual-tranche Offering of Senior Unsecured Notes
--  Der nächste Lokführer-Streik - Was auf Fahrgäste zukommt
--  US Secret Service: Driver arrested after crashing into White House gate
--  An Overview of Lime Maturing Equipment Market 2024-2030: Markets & Forecasts, Strategy based, Explore additional
--  Vídeo | Alisson Mejía captada junto a presentador de HCH
--  Papá en Apuros Cap. 50: Stephanie le aseguró a Cristóbal que se alejará de Pedro, pero falta a clases con él
--  Dramatic moment a hot-air balloon is forced to make an unexpected landing in a city park
--  Российские военные уничтожили немецкие кассетные мины
--  मणिपुर के मोरेह में म्यांमार सीमा पर उग्रवादियों और सुरक्षा बलों के बीच मुठभेड़
--  Meluncur Pertengahan 2024, DJP Uji Core Tax Integrasikan NIK Jadi NPWP
--  ‘Excellent’ exercise bike is discounted by more than $100 for New Year fitness goals: ‘It’s fabulous’
--  Vecinos presentarían amparo ante cierre de retorno en libramiento de Morelia
--  Jacksonville residents, business owners make preparations as impending storm expected to bring heavy winds, rains
--  Prediksi Timnas Indonesia vs Iran Malam Ini: Jadwal, Kondisi Tim, H2H, Perkiraan Susunan Pemain
--  삼성전자 지난해 영업이익 6.5조 원…15년 만에 최저
+-  스크린골프 더스윙제트, 정예광 프로와 파이널 테스트 진행
+-  “WFA, ‘와이파이 인증 7’ 도입…‘와이파이 7’ 확산 견인”
+-  델테크놀로지스, CES 2024서 ‘에일리언웨어’ 게이밍 노트북 2종 공개
+-  메가존클라우드, 클라우드 관리 플랫폼 스페이스원에 ‘CSPM’ 추가
+-  에퀴닉스, 프라이빗 AI 인프라로 기업의 경쟁력 강화 지원
+-  이파피루스, ‘글로벌 문서 인프라’ 의지 담은 새 CI 발표
+-  Myanmar will Tourismus wiederbeleben - trotz Bürgerkriegs
+-  Lauterbach will Ärzten helfen - Mediziner fordern Wendepunkt
+-  HARMAN Expands Road-Ready Product Portfolio at CES 2024
+-  걸스인텍-AWS, 생성형 AI 기초 체험 교육 제공
+-  국민연금 수급자 649만명, 올해부터 3.6% 더 받는다
+-  김현준, 전정일, 원경희.. 총선 출격 앞둔 '세무인'들 분주
+-  'ฝรั่งไส้แดง' หวานกรอบ อมเปรี้ยว ปลอดสารเด็ดกินที่ต้นได้เลย
+-  'วราวุธ' เชื่อพรรคร่วมไร้ปัญหา หาก พ.ร.บ.กู้เงิน ตรงเงื่อนไข
+-  อ่วมทุกเขต! กรุงเทพฯจมฝุ่น 'ธนบุรี-บางคอแหลม'หนักสุด กระทบสุขภาพ
+-  ‘ทวี’แจงเหตุล่าช้า เผยอธิบดีราชทัณฑ์ส่งเรื่อง‘นช.ทักษิณ’รักษาตัวเกิน 120 วัน สัปดาห์นี้
+-  여주도시관리공단 ‘여주도시공사’로 새롭게 출범
+-  양평군립미술관, 하계훈 명예관장 취임
+-  "자활기업이 연말 성금 5백만원 접수"
+-  자동차세 연세 일시납... 5% 삭감 혜택
+-  울진군 '교육발전특구' 지정 신청작업 들어가
+-  '친환경활력센터' 연말까지 준공
+-  대구 참여연대 "징계의원 의정비 감액·미지급 조례 필요"
+-  [날씨] 내일까지 많은 눈…강원 산지 20cm 이상
+-  Adani Green Secures $750 Mn In Repayment For Early Bond Redemption
+-  Tuesday At Market: Gillette Glides Smoothly, EaseMyTrip, MMTC On A Bull Ride
+-  UN experts demand accountability for sexual violence during Hamas assault
+-  수원시, 주민참여예산 위원 공개 모집…"26일까지 신청"
+-  Israel Shifts to Deadlier Strikes on Iran-linked Targets in Syria
+-  Rural club cricket still has huge significance in SA cricket — Nqolo
+-  Perinatal Mərkəzdəki yanğınla bağlı Baş Prokurorluğun İstintaq idarəsi əraziyə gəlib
+-  Filmklassieker Purple Rain terug als theatervoorstelling
+-  बांग्लादेश में शेख हसीना की जीत पर भारत खुश लेकिन अमेरिका क्यों टेंशन में?
+-  “虚拟绑架”诈骗频发 海外中国留学生如何防范？
+-  Inapam 2024: Cuáles son los descuentos a los adultos mayores con la tarjeta
+-  新西兰航空今起国际机票大促销！飞中国大特价！
+-  লেবাননে ’ইসরায়েলি হামলায়’ হিজবুল্লাহর সিনিয়র কমান্ডার নিহত
+-  জামালপুরে পরিত্যক্ত জায়গায় মিললো মর্টার শেল
+-  শীতের হিমে বাঙালির ঐতিহ্যবাহী স্বাদের পিঠা
+-  총선 90일 앞으로…충북선관위, 선거법 위반 단속 강화
+-  GÓC CHUYÊN GIA: Cần chuẩn bị gì trước khi nuôi cá tầm trong môi trường nước lợ
+-  조선시대 후기 능행 활발…최대 6400명까지 행차
+-  Guru SD di Yogya Diduga Lakukan Kekerasan Seksual Telah Dinonaktifkan
+-  넷마블문화재단, 게임아카데미 8기 수료식 성료...창문프로젝트 작품 전시회 개최
+-  Park halindeyken alev alev yandı
+-  펄어비스, 'CES' 삼성디스플레이 부스서 '검은사막·붉은사막' 영상 시연
+-  España - Primera División: Sevilla vs Alavés Fecha 20
+-  이강화 세종대 교수, 45번째 개인전 '청연' 개최
+-  '독일 축구 전설' 베켄바워 별세…향년 78세
+-  제주도, '월 5만원' 아동건강체험활동비 10일부터 접수
