@@ -1,51 +1,51 @@
 # Latest News
--  Prabowo Janji Tingkatkan SDM Pertahanan Siber, Pakar: Bisa Diberi Pangkat Seperti Deddy Corbuzier
--  Saison terminée pour Ja Morant, blessé à l’épaule
--  Без(крайните) закъснения: достатъчно локомотиви за влаковете ще има, но по-нататък
--  EFCC Summons Suspended Minister Of Humanitarian Affairs
--  Sabah namazı nasıl kılınır? Sabah namazı kaç rekat? Diyanet'e göre sabah namazı kılınışı!
--  07.07 Saat Anlamı Nedir? 07.07 Çift Saatlerin Anlamı Nasıl Yorumlanır?
--  Sabah namazı saat kaça kadar kılınır? Güneş doğduktan sonra sabah namazı kılınır mı?
--  농심, 먹태깡큰사발면ㆍ포테토칩 먹태청양마요맛 선보여
--  태영그룹 "필요하다면 SBS 주식 내놓을 각오 ... PF 부실 사업장 정리하겠다"
--  국민연금·기초연금 3.6% 인상 … 노령연금 평균 '월 62만원→ 64만2320원'
--  10 Kiat Bersepeda untuk Pemula
--  Genève-Servette greift nach Europa
--  하림 피플러스, 새해맞이 특별 기획전
--  아모레퍼시픽미술관, 로렌스 위너 '갤러리 토크' 15일 개최
--  현대카드, 1월 할인 및 캐시백 이벤트 진행
--  한화 건설부문, 고위험 통합관제시스템 활용 안전보건 모니터링 강화
--  부산은행, 주택담보대출 모바일뱅킹 대출이동서비스 실시
--  쌍용건설, 아이티 태양광사업 수주 중남미 첫 진출
--  롯데건설, 현장 중심 안전경영 본격화
--  F5 Labs Publishes Digital Privacy and Security Threat Trends
--  Samsung's AI for All vision at CES 2024: Transforming Daily Life
--  SPC 던킨, ‘던킨 콤보’ 인기에 프로모션 1월 말까지 연장
--  విశాఖ జిల్లాలో వైసీపీ నేతల వలసబాట
--  SKT, CES 2024서 일상 바꾸는 AI기술 선보인다
--  Assam: ISRO Chairman to visit Guwahati on January 17
--  Omari Forson - Cầu thủ mới nhất được Ten Hag cho ra mắt là ai?
--  Keane: “Ten Hag sẽ bị sa thải trong vài tháng tới”
--  Dalot: Chiến thắng này không hoàn hảo
--  Nelson gửi thông điệp đến Arteta
--  Ten Hag: "Mục tiêu đó là quá xa vời"
--  Dominik polisinden Survivor ekibine operasyon! Acun duyurdu...
--  After Animal Javed Akhtar slams Shah Rukh Khan's Jab Tak Hai Jaan due to THIS strong reason
--  Liiga­joukkueella tajuton tahti: 72 tuntiin peli Sveitsissä, Tampereella ja Raumalla
--  “العابد” و”الباعور” ينسقان تنظيم سوق العمل
--  United und Alaska Airlines finden lose Teile an Boeing 737 Max 9 Jets
--  North Western railway recruitment 2024: Vacancy out for 1646 apprentice posts, apply online
--  이낙연 신당, 광주전남 합류할 정치인은?
--  장애계 신년인사회에서 만난 윤재옥-홍익표
--  인사하는 윤재옥-홍익표
--  檢, 유아인에게 마약류 처방한 의사 6명 무더기 기소
--  대화하는 윤재옥-홍익표
--  9개 교육청, 해외 한국교육원과 함께 유학생 직접 유치
--  2024 장애계 신년인사회 참석한 윤재옥-홍익표
--  충남 입학예정자 없는 초등학교 17개…"학교 통폐합"
--  윤세영 "TY홀딩스·SBS 주식, 언제든 담보로 제공"
--  Krieg gegen die Ukraine: So ist die Lage
--  애플, 첫 MR헤드셋 ‘비전 프로’ 내달 2일 정식 출시
--  Kannada actor Bharat Bopanna to debut in Tamil with Arun Vijay's Mission: Chapter 1
--  Strawberries, pansies, fruit trees across Kyrgyzstan started blooming earlier
--  Vì sao nhà đầu tư Mỹ lạc quan về việc Fed hạ lãi suất?
+-  [“개발 전 저렴할 때 받아두자” 양주역세권개발사업 내 용지 입찰 ‘눈길’
+-  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
+-  Djokovic must defy wrist injury, Alcaraz threat at Australian Open
+-  الجيش الإسرائيلي يعلن مقتل 4 من جنوده في غزة
+-  সরকারের ‘সুনজরে’ থাকা শমসের মুবিন কেন জিততে পারলেন না
+-  Diabetes : मधुमेह असलेल्या लोकांनी 'या' पदार्थांचा आहारात समावेश करा, रक्तातील साखर नियंत्रणात राहील..
+-  검찰, 유아인에 수면제 불법처방 의사들 불구속 기소
+-  F5, 디지털 개인정보 및 보안 위협 트렌드 발표
+-  에퀴닉스, 프라이빗 AI 인프라로 기업 경쟁력 강화 지원
+-  Phishing-Mails: Vorsicht bei diesen E-Mails und SMS
+-  Steam-Rabattaktion: Valve feiert den Kapitalismus mit Angeboten [Notiz]
+-  Mercato : Le PSG au coeur d’une supercherie pour un transfert ?
+-  ভালো আর্থিক প্রতিষ্ঠানেও খেলাপি বেড়েছে
+-  ”Tillgång till fysioterapi riskerar att bli en klassfråga”
+-  СКОПЈАНИ СИНОЌА СЕ ИЗРАДУВАА НА ПРВИОТ СНЕГ: Еве какво време не очекува во следните денови, температурите ќе паднат и до -15 степени
+-  Afg Lifts Sanctions Imposed on Players After They Accept Central Contracts
+-  Harbaugh delivers national title as Michigan whips Washington 34-13
+-  인천서 세차 마친 SUV, 골프용품점 돌진…2명 부상
+-  Justine Baltazar rejoins Strong Group for Dubai tilt
+-  Beckenbauer remembered as FIFA World Cup great who 'inspired generations'
+-  삼성전자 작년 영업이익 6.5조원…15년 만에 최저
+-  اسرائیلی حملے میں حزب اللہ کا سینئر کمانڈر جاں بحق ہوگیا
+-  Jim Harbaugh Sidestepped A Gatorade Bath After Michigan Won A National Title
+-  세종문화회관 2024년 사업계획 발표하는 안호상 세종문화회관 사장
+-  Synechron Announces the Opening of Its Sydney, Australia Office
+-  «Все вместе мы преследуем одну цель». Хоккеист «Барыса» намерен исправить ситуацию в КХЛ
+-  Shin Tae-yong Akui Pemain Naturalisasi Jadi Tumpuan Timnas Indonesia di Piala Asia 2023
+-  Jokowi Pimpin Sidang Kabinet: Bansos Harus Diteruskan
+-  İstanbul toplu ulaşım ücret tarifesi 2024! Öğrenci, tam aylık akbil ücreti ne kadar? İETT, metro, metrobüs kaç TL basıyor?
+-  Prabowo Sebut Rasio Utang Boleh 50 Persen dari PDB, Ekonom: Seharusnya Hati-hati, Bukan Semangat Tambah Utang
+-  Taiwan ruling party candidate says will maintain status quo, engage with China
+-  김지철 충남교육감 “학생인권조례 존치해야, 대법원 제소는 논의 후 결정”
+-  Sandakan ratepayers in the dark over assessment rate hike
+-  '태영건설 워크아웃' 관련 태영그룹 기자회견
+-  국가안보실, 경제 안보 전담 3차장 신설…왕윤종 내정
+-  পানি উন্নয়ন বোর্ডে চাকরি, পদ ২৮
+-  مجموعة إماراتية تُعلن عن انتهاء أعمال المرحلة الأولى في أضخم مشروع تجاري وسياحي في الرباط
+-  कैसे बढ़ेगा टूरिज्म? मालदीव के लिए एक हफ्ते में 325 डिपार्चर, लक्षद्वीप के लिए सिर्फ एक एयरलाइन
+-  Matatu with crazy Hitler and swastika graffiti leaves netizens divided
+-  הונאת הענק נחשפת: כך עבד 'עוקץ השכפ"צים' שגלגל סכומי עתק
+-  Coffee Creamer Market Size To Grow At A CAGR Of 4.5% In The Forecast Period Of 2024-2032
+-  Guwahati Municipal Corporation announces disruption in water supply
+-  Vinç kazasında faciayı böyle önlemiş
+-  LAA→NYY→MIL→TB→PIT→SD '8시즌 6팀' 최지만, 美 현지 전망 나왔다 "마이너 계약 후보"
+-  Realty Income fija el precio de 1.250 millones de dólares en pagarés senior
+-  La puntuación ASG de Fosun supera la media del sector
+-  Alcoa cerrará la refinería de Kwinana debido a las pérdidas y al envejecimiento de sus activos
+-  Tata Motors registra un aumento del 27% en las ventas de Jaguar Land Rover en el cuarto trimestre
+-  7 Global Futuristic Tech Trends
+-  Michael Bolton anuncia retiro tras descubrir que tiene tumor cerebral
