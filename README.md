@@ -1,51 +1,51 @@
 # Latest News
--  [“개발 전 저렴할 때 받아두자” 양주역세권개발사업 내 용지 입찰 ‘눈길’
--  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
--  Djokovic must defy wrist injury, Alcaraz threat at Australian Open
--  الجيش الإسرائيلي يعلن مقتل 4 من جنوده في غزة
--  সরকারের ‘সুনজরে’ থাকা শমসের মুবিন কেন জিততে পারলেন না
--  Diabetes : मधुमेह असलेल्या लोकांनी 'या' पदार्थांचा आहारात समावेश करा, रक्तातील साखर नियंत्रणात राहील..
--  검찰, 유아인에 수면제 불법처방 의사들 불구속 기소
--  F5, 디지털 개인정보 및 보안 위협 트렌드 발표
--  에퀴닉스, 프라이빗 AI 인프라로 기업 경쟁력 강화 지원
--  Phishing-Mails: Vorsicht bei diesen E-Mails und SMS
--  Steam-Rabattaktion: Valve feiert den Kapitalismus mit Angeboten [Notiz]
--  Mercato : Le PSG au coeur d’une supercherie pour un transfert ?
--  ভালো আর্থিক প্রতিষ্ঠানেও খেলাপি বেড়েছে
--  ”Tillgång till fysioterapi riskerar att bli en klassfråga”
--  СКОПЈАНИ СИНОЌА СЕ ИЗРАДУВАА НА ПРВИОТ СНЕГ: Еве какво време не очекува во следните денови, температурите ќе паднат и до -15 степени
--  Afg Lifts Sanctions Imposed on Players After They Accept Central Contracts
--  Harbaugh delivers national title as Michigan whips Washington 34-13
--  인천서 세차 마친 SUV, 골프용품점 돌진…2명 부상
--  Justine Baltazar rejoins Strong Group for Dubai tilt
--  Beckenbauer remembered as FIFA World Cup great who 'inspired generations'
--  삼성전자 작년 영업이익 6.5조원…15년 만에 최저
--  اسرائیلی حملے میں حزب اللہ کا سینئر کمانڈر جاں بحق ہوگیا
--  Jim Harbaugh Sidestepped A Gatorade Bath After Michigan Won A National Title
--  세종문화회관 2024년 사업계획 발표하는 안호상 세종문화회관 사장
--  Synechron Announces the Opening of Its Sydney, Australia Office
--  «Все вместе мы преследуем одну цель». Хоккеист «Барыса» намерен исправить ситуацию в КХЛ
--  Shin Tae-yong Akui Pemain Naturalisasi Jadi Tumpuan Timnas Indonesia di Piala Asia 2023
--  Jokowi Pimpin Sidang Kabinet: Bansos Harus Diteruskan
--  İstanbul toplu ulaşım ücret tarifesi 2024! Öğrenci, tam aylık akbil ücreti ne kadar? İETT, metro, metrobüs kaç TL basıyor?
--  Prabowo Sebut Rasio Utang Boleh 50 Persen dari PDB, Ekonom: Seharusnya Hati-hati, Bukan Semangat Tambah Utang
--  Taiwan ruling party candidate says will maintain status quo, engage with China
--  김지철 충남교육감 “학생인권조례 존치해야, 대법원 제소는 논의 후 결정”
--  Sandakan ratepayers in the dark over assessment rate hike
--  '태영건설 워크아웃' 관련 태영그룹 기자회견
--  국가안보실, 경제 안보 전담 3차장 신설…왕윤종 내정
--  পানি উন্নয়ন বোর্ডে চাকরি, পদ ২৮
--  مجموعة إماراتية تُعلن عن انتهاء أعمال المرحلة الأولى في أضخم مشروع تجاري وسياحي في الرباط
--  कैसे बढ़ेगा टूरिज्म? मालदीव के लिए एक हफ्ते में 325 डिपार्चर, लक्षद्वीप के लिए सिर्फ एक एयरलाइन
--  Matatu with crazy Hitler and swastika graffiti leaves netizens divided
--  הונאת הענק נחשפת: כך עבד 'עוקץ השכפ"צים' שגלגל סכומי עתק
--  Coffee Creamer Market Size To Grow At A CAGR Of 4.5% In The Forecast Period Of 2024-2032
--  Guwahati Municipal Corporation announces disruption in water supply
--  Vinç kazasında faciayı böyle önlemiş
--  LAA→NYY→MIL→TB→PIT→SD '8시즌 6팀' 최지만, 美 현지 전망 나왔다 "마이너 계약 후보"
--  Realty Income fija el precio de 1.250 millones de dólares en pagarés senior
--  La puntuación ASG de Fosun supera la media del sector
--  Alcoa cerrará la refinería de Kwinana debido a las pérdidas y al envejecimiento de sus activos
--  Tata Motors registra un aumento del 27% en las ventas de Jaguar Land Rover en el cuarto trimestre
--  7 Global Futuristic Tech Trends
--  Michael Bolton anuncia retiro tras descubrir que tiene tumor cerebral
+-  依靠科技和改革双轮驱动加快推进农业现代化
+-  激发消费持续增长潜能
+-  充分发挥国有企业带动民营企业共同发展的重要作用
+-  找准扩大内需关键点
+-  深入领会习近平文化思想，勇担大学使命
+-  不断夯实铸牢中华民族共同体意识的基础
+-  “营造激励企业家干事创业的浓厚氛围”
+-  大力弘扬教育家精神 培养造就新时代大国良师
+-  海底捞创新食安机制：“双安全”认证+大食安模式，共护食品安全
+-  为建设人与自然和谐共生的现代化提供坚强法治保障 推进生态文明法治建设
+-  电视专题片《持续发力纵深推进》第四集《一体推进“三不腐”》今晚开播
+-  人民日报和音：坚持共商共建共享的全球治理观
+-  China’s top diplomat says ties with US ‘stabilised’ last year
+-  Учитель физкультуры изнасиловал ученицу 8 класса
+-  “Knight Flower” Cast Shares Key Points To Look Forward To Ahead Of Premiere
+-  키움증권 엄주성號, 첫 조직개편…위기관리 능력 강화
+-  2 học sinh lớp 9 tại Lâm Đồng nguy kịch vì tự chế tạo pháo
+-  Bất ngờ với nhân thân nữ giám đốc chuyên ''bảo kê'' xe tải thu tiền tỉ
+-  Nhạc sĩ Lý Khôn Thành qua đời, người vợ kém 40 tuổi cầu cứu
+-  10 sự kiện nổi bật ngành Y tế năm 2023
+-  Cậu bé liên tục ho sốt, bác sĩ chụp CT phổi thấy thứ không ai ngờ tới
+-  Phở Việt Nam là một trong những món ăn có nước ngon nhất thế giới
+-  Lý do đình chỉ chức vụ trụ trì chùa Từ Đức, Đồng Nai
+-  Bắt được nghi phạm giết người cướp của ở TP.HCM lẩn trốn xuống Long An
+-  "Cơn ác mộng" Hollywood của Harry và Meghan vẫn tiếp tục, mới đầu năm đã bị mang ra làm trò đùa
+-  Lộ clip Jisoo (BLACKPINK) có dự án solo đầu tiên sau khi bị YG "xoá sổ", được khen cưng xỉu chỉ vì một hành động
+-  "Bố hỏi: Lớp có đứa nào điểm 10 không? 'Có' là ăn đòn", câu chuyện của thầy Hiệu trưởng ở Hà Nội khiến nhiều cha mẹ giật mình
+-  Bùng nổ sự kiện game đầu năm của làng game Việt: Màn tụ hội ấn tượng của hơn 4000 game thủ
+-  5 món đồ họa tiết sang xịn mịn nên sắm để mặc đẹp dịp Tết
+-  Chồng cũ Diệp Lâm Anh lộ ảnh hôn đắm đuối gái lạ trong bar, Quỳnh Thư phản ứng ra sao?
+-  В соцсетях появилась информация о смерти «Дженго» в СИЗО
+-  Tuğba Ekinci'ye "Hiç arabada seviştin mi?" sorusu soruldu
+-  Площадь японского полуострова Ното из-за землетрясения выросла на 4,4 кв. км
+-  SSK, Bağ-Kur emeklilerine ek zam olacak mı? İşte kök maaş hesaplaması
+-  New COVID-19 ‘Wave on Wave’ Variant Hits Australia’s 2 Most Populous States
+-  삼성패션연구소의 선택, '주목 올해의 컬러는? 블루·그린'
+-  능력·성과 위주 인사 단행한 구미시…적재적소 인사 호평
+-  "설 앞두고 임금 체불 원천 차단"…대구시, 건설현장 집중 점검 나선다
+-  दवा लेकर घर लौट रहे ट्रैकमैन ट्रेन की चपेट में आने से जख्मी, पटना रेफर
+-  Stellaris Sells 1% Stake In Mamaearth Parent For INR 141 Cr Via Bulk Deal
+-  News24 | Israel says Gaza fighting to continue through 2024, as Blinken works to avert regional escalation
+-  First a transparent OLED TV comes to CES, and now there's a see-through Micro LED
+-  Samsung Galaxy S23 series Gets Hefty price cut in India Ahead of Galaxy S24 Launch, Check Revised Rates
+-  Vincitori e idonei dal mondo
+-  Selenskyj droht Russland: Terrorstaat wird definitiv unsere Antwort spüren
+-  ตร.ออกกวาดล้าง ร้านขายน้ำกระท่อม หลังพบเป็นอีกปัจจัยทำวัยรุ่นหึกเหิม
+-  Police Detain Executive at China Evergrande’s EV Unit; Property Sector Shows Fresh Signs of Distress
+-  Coach sacked for misconduct after boxer’s defeat
+-  Decision to acquire modern jeepneys lies on coops, not gov’t — LTFRB
+-  Rennfahrertalent Goethe will in Vettels "Fußstapfen treten"
