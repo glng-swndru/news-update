@@ -1,11 +1,51 @@
 # Latest News
--  Borsa yükselişle açıldı
--  NEA introduces five-year installment plan for dedicated, trunk line power dues
--  CHÍNH THỨC! Nice ký hợp đồng với tiền đạo Mohamed-Ali Cho
--  TEM'de dehşet! Yolunu kesti, camları yumrukladı
--  케이랩스-베바스토코리아, 3D프린팅 기술 적용 ‘일체형 이류체 노즐’ 개발
--  "Carry Fighting Championship" kicks off in 2024 with Manny Pacquiao as the honorary president of the CFC League
--  오케스트로, 클라우드 네이티브 전환 서비스 본격화
--  המאבק על איהאב גנאים מתחמם: התכנית של סכנין להחזירו הביתה
--  כלי התקשורת בעולם מדווחים בהרחבה על "כוכב פאודה שנפצע קשה בעזה"
--  הטופ 16 במרחק נגיעה: הפועל חולון תשלים את המשימה באוסטנד?
+-  Имомов Инъомиддин Aбдулхамидовичнинг педагогика фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Абдураҳимова Моҳигул Ойбек қизининг техника фанлари бўйича фаласафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Боротов Жамшид Зокиржоновичнинг техника фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  AҚШда тўлиқ роботлаштирилган ресторан очилади
+-  Fed yetkilisi Bowman: Enflasyon hedefi devam ederse faiz indirme süreci başlayacak
+-  V utorok ráno treba počítať s nízkymi teplotami aj povodňami, varujú meteorológovia
+-  Unikátny nález archeológov: Česko-slovenský tím objavil v Guatemale jedno z najstarších mayských miest
+-  SLOVÁCI, POZOR Nenaleťte na TIETO lákavé PONUKY: Tomáš je nehorázny PODVODNÍK, žiadne PENIAZE vám nevyplatí! Vieme viac
+-  AKTUÁLNE Veľký POZOR na to, čo kupujete: TIETO produkty môžu spôsobiť RAKOVINU! Nemáte ich doma?
+-  Arsenal kysyi järkäleen hintaa - sai tyrmistyttävän vastauksen
+-  Španija dobila Francusku i otklonila dilemu: Crna Gora ne može sa Srbijom
+-  W stodole narkotykowe laboratorium. Woreczki były gotowe do dystrybucji
+-  한화 건설부문, 고위험 통합관제시스템 활용 안전보건 모니터링 강화
+-  펄어비스, CES 삼성D 부스서 '검은사막·붉은사막' 영상 시연
+-  '뮤' IP 건재 입증한 웹젠, 잇단 투자로 유망 IP 확보 총력
+-  "미래 먹거리 찾자"…유통업계, 'CES 2024' 집결
+-  이정하, 세상 무해한 미소
+-  이정하, 슬림해진 봉석이
+-  임지연, 차분한 올블랙
+-  임지연 '하트 장인'
+-  템페스트, 눈부신 비주얼
+-  삼성전자 15년만에 최저 영업이익…반도체서 14조원 적자
+-  Is Gunna Dropping New Music In 2024?
+-  نشرة التوك شو.. حملات ضد المقيمين في مصر وإجراء حكومي مرتقب لتقنين أوضاعهم
+-  برلماني: تعديلات قانون حماية المستهلك تستهدف ضبط الأسعار
+-  أمطار ورياح.. "الأرصاد" تُحدد موعد انخفاض درجات الحرارة
+-  Najveći rizici po svet u 2024. godini: Dominiraće tri rata, jedan se tek očekuje
+-  ‘24시간 파업’ 벌였던 워싱턴포스트 기자들, 임금 인상 쟁취
+-  Španielsko eviduje nárast prípadov covidu: Zavádza povinné nosenie rúšok v nemocniciach
+-  “신학 전공 안 했어도 환영”…평신도에 교회 맡길 준비 됐나
+-  Grigoryan: Azerbaycan'ın teklifini cevapladık
+-  سعرٌ جديد لـ"طن الترابة"
+-  고민하는 이재현…CJ 인사 방향성, '쇄신'에 맞추나
+-  ডিএসইতে ২ বছর মেয়াদী ট্রেজারি বন্ডের লেনদেন শুরু
+-  Landwirte blockieren Zufahrten zur Autobahn 45 mit Traktoren
+-  המשבר בשוק האופנה: הראל ויזל סוגר את רשת הספורט
+-  ההרוגים ברצועה נפלו בשתי תקריות שונות | פרטים חדשים מיום הקרבות
+-  דאעש מגנה את חמאס: "מקריבים את הפלשתינים למען איראן"
+-  "لعدم قدرته على تحمل ما رآه"... وفاة رقيب بالجيش الاسرائيلي!
+-  Grand froid : comment éviter les déperditions de chaleur chez soi ?
+-  혼잡도 완화 위해 서울 지하철 4호선 내 ‘입석’ 시범 도입
+-  동해시, 19억원 규모 지방보조금 공모사업 지원
+-  Ministar civilne odbrane: Građani Švedske da budu spremni za potencijalni rat
+-  Ngarava shines as Chevrons lose tight match
+-  "수도권 다자 구도 만들건가" "스윙중도 2030 잡아야"
+-  대전시, 마약류중독자 치료보호기관 1개 더 늘리고 치료비도 4배 증액
+-  홍천군여성단체협, 희망 2024년 나눔 캠페인 성금 기탁
+-  남하면, 새해 맞아 따뜻한 기부 잇따라
+-  북상면, 새해에도 익명의 기부천사 공유냉장고에 사랑 전달
+-  인제군 남면 새마을부녀회, 인제장학회에 장학금 기탁
