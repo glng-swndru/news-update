@@ -1,51 +1,11 @@
 # Latest News
--  CES 2024 | Arrow Lake serão 1ª CPUs gamer da Intel com acelerador de IA
--  Kickoff | Wasteful Chelsea fall to Championship side in Caraboa Cup
--  بدر المطيري: 5 اتفاقيات لخدمة ضيوف الرحمن وتقديم أفضل سبل الرعاية لحجاج الكويت
--  Uyuşturucu için 'Amca' şifresini kullandıkları ortaya çıktı
--  Çankırı'da sunta yüklü tırın dorsesinde yangın çıktı!
--  TOFAŞ Başantrenörü Orhun Ene: Mücadelemiz bitmedi
--  İstanbul'da film platosunda yangın!
--  Cruzan migrantes el Bravo pese a clima ‘congelante’
--  سموتريتش لبلينكن : سنعمل على تمكين الهجرة الطوعية من غزة
--  يديعوت أحرونوت : التصريحات عن هزيمة حماس لا تعكس الواقع
--  МО: противотанковый расчёт ВС РФ остановил продвижение бронегруппы ВСУ
--  Why Is Mullen Automotive (MULN) Stock Up 10% Today?
--  RCMP to start collecting race-based data for new pilot project
--  Teemu Pulkkisen peliaika puhuttaa
--  Tyttöleijonille kammottava selkäsauna MM-kisoissa
--  Reetta Hurskeelta vahva ulostulo – "Pitääkö sitä oikeasti kestää"
--  De La Cruz chega ao Rio e quer fazer história no Fla: "Novo projeto de vida no Brasil"
--  Редица домакински победи в Евролигата
--  Cutting carbon tax from home heating likely to impact carbon tax rebate
--  Hombre muere tras ser arrollado por un tren en el centro de Aguascalientes
--  U of M urged to ease ‘financial disincentive’, subsidize staff bus passes
--  Middlesbrough pegó primero en su duelo de semis contra Chelsea
--  [CES 2024] 정의선·정기선, 미래자원 '수소' 대화…사촌간 협업 가능성에 눈길
--  #VIDEO Comandante de la policía de Ecuador: Secuestradores que entraron al canal fueron detenidos #9Ene
--  ‘Lost in Translation’: ASD Launches Awareness Campaign Focused on Health Care and Education Communities
--  Exklusiv: Was Jörg Meuthen und Frauke Petry über die Maaßen-Partei sagen – JUNGE FREIHEIT Die unabhängige Wochenzeitung zum Diskutieren
--  Τζέιμς Κόττακ: Πέθανε σε ηλικία 61 ετών ο πρώην ντράμερ των Scorpions,
--  Τζέιμς Κόττακ: Πέθανε σε ηλικία 61 ετών ο πρώην ντράμερ των Scorpions,
--  „Bauer sucht Frau“-Moderatorin Inka Bause: Wir müssen Landwirte mehr wertschätzen
--  State Department And Nearly 50 Other Nations Say Russia Must 'Cease' Accepting Weapons From North Korea
--  Alertan sobre intención de imponer Estado de excepción en Argentina
--  Argentina designó a su nuevo embajador en Uruguay
--  The SEC says its X account was hacked to falsely say that bitcoin ETFs were approved
--  El regreso triunfal de Tom Cruise a Warner Bros. Discovery
--  "Chelsea trông như đội bóng không được tổ chức"
--  Nortão: criminosos invadem residência de professora e levam eletrônicos
--  [오늘의 정치일정] 1월 10일(수)
--  Wie eine fleißige Maus in Wales Schlagzeilen macht – Panorama
--  Possible tornado causes home damage in Nicholls, Ga.
--  Driedaagse staking van machinisten Duitse spoorwegen begonnen
--  Jessica Alba Talks Therapy Sessions with Daughter Honor, Explains Why They Started Going Together
--  West Fraser to close one sawmill, curtail another due to high costs and soft markets
--  السفير الجزائري يقدم التهاني للخليفة العام للطريقة القادرية الفاضلية في غرب أفريقيا الشيخ عبد العزيز ولد الشيخ آياه
--  Former UK opposition leader Corbyn to join South Africa’s delegation accusing Israel of genocide
--  Former UK opposition leader Corbyn to join South Africa’s delegation accusing Israel of genocide
--  У министра обороны США нашли рак - ОФИЦИАЛЬНО
--  Muere Adán Canto, actor mexicano de 'Narcos'
--  Parents of U of M student fatally shot by police push for reform
--  Selwyn orders shutdown of Electric City Sports’ outbuildings due to zoning, safety concerns
--  Saskatchewan sees increase in ticks that can carry Lyme disease
+-  Présidentielle 2024 : les candidats de Saint-Louis recalés sauf Déthié FALL
+-  Prévention de la violence électorale : à l’UGB, un conclave de Goethe Institute pour sensibiliser sur "la consolidation de la paix"
+-  Chelsea thua trận, Cole Palmer bị chỉ trích thậm tệ
+-  औद्योगिक वातावरण विपरीतका कानून
+-  धान उत्पादन वृद्धिको संकेत
+-  १० वर्षअघिको आर्थिक अभियानबाट: चमेलियाको सुरुङ निर्माण कार्य अन्तिम चरणमा
+-  '무법천지' 에콰도르…TV 생방송 중 괴한들 난입·진행자에 총구
+-  [뉴스딱] 떨어뜨린 커피 마셨다 '켁켁'…"고춧가루 넘어가는 줄"
+-  Fenerbahçe'ye piyango! Michy Batshuayi ile Jorge Jesus tekrar buluşuyor
+-  Supervivencia de Ucrania depende de ayuda de 50 mil millones de la UE
