@@ -1,11 +1,51 @@
 # Latest News
--  '철인군주AI'로 정치를 대체하자?
--  자동차산업 '창'으로 들여다본 세계 경제전망은? '혼돈'과 '위기'
--  고민정 quot;김건희, '영부인 특권' 이용하는 걸 국민이 못 받아들여quot;
--  quot;공장의 주인은 우리다!quot;
--  ANÁLISE DA NOTÍCIA
--  Duşakabin temizlemenin en pratik yöntemi! Oysa bu kadar basitmiş
--  Güney Afrikalı heyete Adalet Bakanı başkanlık edecek... İsrail Adalet Divanı'nda yargılancak
--  Silahlı Grup Canlı Yayında Stüdyoyu Bastı: Sunucunun Ceketine Bomba Yerleştirdiler
--  Intenso debate legal sobre la inmunidad de Trump
--  Dortmund bekommt seine erste muslimische Kita: Was ist der Unterschied?
+-  Ma ünnepli a 103. születésnapját Keleti Ágnes
+-  Nem értenek egyet a szakértők, korábbi kezelőorvosai szerint meg lehetne szüntetni az újbudai rendőrgyilkos kényszergyógykezelését
+-  Zomrel Dezider Moncman, spoluzakladateľ poľovníckeho združenia v Pavliciach
+-  الجيش الإسرائيلي "يزعم" اغتيال قائد في الوحدة الجوية لحزب الله! (فيديو)
+-  Blinken: Izrael musi zaprzestać działań, które podważają autonomię Palestyńczyków
+-  Шеф Пентагона лечится от рака простаты, у него возникли осложнения
+-  Poskupljuju naknade za smještaj u Parizu, a i karte za Luvr
+-  Preminuo čuveni dječji psihijatar Svetomir Bojanin
+-  Fenerbahče nadoknadio 17 poena zaostatka, pa rutinski slavio protiv Partizana
+-  Bănescu îl ceartă pe ÎPS Teodosie, care spune că fumătorii nu pot bea agheasmă: „Cel luptat de o patimă are și el nevoie de Hristos”
+-  Vëlo bei Aansebuerg fonnt: 34 Joer ale Franz Fritsch gëtt zanter e Méindeg vermësst
+-  "מודה על הזכות": שגיא מוקי פגש את מייה שם והעניק לה מתנה מרגשת
+-  תושבי מודיעין עילית מתלוננים על רעשי חפירה
+-  כאוס באקוואדור: חמושים השתלטו על שידורי טלוויזיה, ברקע מתקפת כנופיות ברחבי המדינה
+-  Ecuador declara conflicto armado interno; ordena operaciones militares
+-  Attaque en Équateur: Des hommes armés font irruption en direct sur un plateau TV
+-  Hanfzigaretten-Firma Koch & Gsell aus Steinach SG ist insolvent
+-  Naučnici otkrili ključnu stvar koja će pomoći zdravlju vašeg psa
+-  Travel agent sold bogus Mecca pilgrimage travel packages to Muslim customers who lost thousands of pounds after he cancelled the trips at the last minute, court hears
+-  ఎస్వీయూకు నైలెట్‌ కేంద్రం మంజూరు
+-  Nadine Morano (députée européenne LR) sur Gabriel Attal: "La fulgurance de son parcours va lui imposer des résultats aussi rapides que sa progression"
+-  Следствие предъявило обвинение двум полковникам ФСБ во взятке в 20 млн рублей
+-  Zmarł zasłużony dla Hetmana Zamość piłkarz i trener
+-  بلدية أبوظبي تعزز المظهر الجمالي بـ 5 ملايين زهرة
+-  Ancelotti: «Hemos arreglado los daños que nos hizo el Atlético»
+-  Iranski pjevač osuđen na zatvor i bičevanje zbog pjesme o skidanju...
+-  SNIMLJEN TRENUTAK KAD SU OTMIČARI UPALI U STUDIO Nose marame i kapuljače, sve su ih pobacali na patos
+-  Bolu'da kar yağışı etkili oluyor
+-  Calum Best told Brit tourist 'I've got something for you, close your eyes' as he 'put her hand down his shorts' during Wayne Lineker's 60th birthday party at Ibiza beach club, she tells Spanish court
+-  Travis Scott furious over ex Kylie Jenner's relationship with Timothée Chalamet
+-  The Traitors UK Series 2 contestant Paul Gorton has surprising gameshow experience
+-  ¡Nunca antes visto! Raúl Vega sorprendió con el «Pira caldo de pollo» en LMU
+-  "Un retour aux sources": comment la macronie défend l'arrivée de Gabriel Attal à Matignon
+-  Razer announces new Blade laptops, with one including an OLED 240Hz display
+-  Razer announces new Blade laptops, with one including an OLED 240Hz display
+-  Momento exacto en que hombres armados toman una televisora en vivo en Ecuador
+-  Aaron Rodgers blasts Dr. Fauci as 'one of the biggest spreaders of misinformation' as he reignites feud with Jimmy Kimmel during rambling 10-minute attack on 'woke establishment' on Pat McAfee Show
+-  Grupa naoružanih muškaraca upala u televiziju, prekunula program i pretila zaposlenima
+-  Канадский фигурист Сёренсен отверг обвинения в сексуальном насилии
+-  Blinken afirmă că acuzaţia de genocid formulată de Africa de Sud la adresa Israelului este "lipsită de valoare"
+-  Un studio de televiziune din Ecuador, luat cu asalt în direct de bărbați ÎNARMAȚI!
+-  ¿Cuál es el estado de ejecución de las viviendas municipales de Villa del Rosario?
+-  Saltburn star Barry Keoghan confirms split from longterm girlfriend Alyson Kierans as he 'prepares to go public with Sabrina Carpenter'
+-  Welcome to the world Prince Balthasar! Prince Felix and Princess Claire of Luxembourg announce the birth of their third child as they pose for adorable family photos
+-  Adan Canto dead at 42: Designated Survivor actor passes away after appendiceal cancer battle
+-  Inondations et boue : l’état de catastrophe naturelle reconnu pour 11 communes
+-  İlhan Palut "Hak ettiğimiz bir mağlubiyet aldık"
+-  Drama u Istanbulu! Deca popadala sa tribine posle poraza Partizana! (FOTO)
+-  Maja i Ceca ušle u trending! Pesma izazvala lavinu reakcija, komentari se samo nižu
+-  Slavný Nizozemec přišel o další práci. Kolegyním posílal nevhodné zprávy a fotky
