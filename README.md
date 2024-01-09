@@ -1,51 +1,11 @@
 # Latest News
--  Ramokgopa: MOU doesn't come with procurement powers for renewable energy
--  With more rain expected, KZN residents urged to heed weather warnings
--  2 suspects arrested for shooting woman in Strand
--  Mbalula defends comments about ANC lying about Nkandla scandal to protect Zuma
--  Competition Commission to prosecute schools over uniforms prices
--  Kwezanamuhla: I-OUTA ithi uNzimande uyasabisa, kushubile eLadysmith yizikhukhula
--  Cheat sheet to get the most out of your annual leave in 2024
--  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 10 января 2024 года
--  «Ιδιαίτερο για μένα το ντέρμπι με τον Παναθηναϊκό…»
--  DNA Exclusive: Analysis Of Modi Govt`s Master Plan To Develop Lakshadweep Islands
--  Patch note Baldur’s Gate 3 – Hotfix 16 : Nouveaux dialogues, objets de quête, et plus encore
--  I recently graduated from college, and I'm incredibly lonely. I'm struggling to adjust to my post-graduate life.
--  Transporter les colis par le fleuve, solution décarbonée pour livrer en centre-ville ?
--  Akaryakıt istasyonunda patlama! 2 yaralı
--  Bolu Dağı'nda kar yağışı başladı: Kar kalınlığı 5 santimetre
--  فضيحة تطال نائبة... ما فعلته غير عاديّ أبداً
--  Helldivers 2: PC-Features und -Spezifikationen enthüllt
--  حجز مواد مهربة مختلفة
--  Tunisie – La loi de Lutte contre l’exclusion financière objet d’un conseil ministériel
--  Amazon réduit le prix des AirPods 3 pour votre plus grand plaisir
--  Pasaron la noche 138 personas en refugios temporales
--  Logran exportaciones de México a EU mayor aumento en 9 meses
--  Otro secuestro en San Agustín, ahora una mujer de 19 años
--  Registra Ecuador ola de violencia tras estado de excepción
--  Realiza Municipio recorridos para entrega de apoyo
--  هل قدم ريال مدريد عرضه النهائي لـ مبابي؟
--  Boxare och tidigare NHL-stjärna får ryskt medborgarskap
--  Capitania do Funchal cancelou aviso de agitação marítima forte
--  ఆ రెండు చోట్ల.. ఎవరికో?
--  Best headphones and earbuds of CES 2024 so far
--  2024 NFL head coach tracker: Six jobs open after Mike Vrabel, Ron Rivera, Arthur Smith firings
--  Loder1899 möbelt den Ford Transit Custom auf
--  CAN 2023 : Macky Sall aux Lions : « Nous n’attendons pas moyen qu’une deuxième étoile »
--  दुश्मनों के होश उड़ाने आ रही उग्रम राइफल, 100 दिनों में बनाकर DRDO ने किया कमाल, जानें खासियत
--  Edrick Menjivar obtiene una respuesta por parte del Peñarol
--  Mortegliano: Duomo ancora danneggiato
--  Procès du « Madoff de Maine-et-Loire » : l'étonnant témoignage des victimes
--  Bauernproteste im Vogtland: Wo am Mittwoch in Plauen erhebliche Verkehrsbehinderungen drohen
--  Proteste im Erzgebirge: Wer hinter der Blockade der B 169 in Schneeberg steht
--  Benfica informa que Kika Nazareth irá enfrentar longa paragem por lesão
--  తగ్గేదే లేదు..
--  Champions League: trasferta a Plovdiv per Scandicci
--  Защо Навални пише за "горещ слон, пържен" от новия затвор в Сибир
--  Arlanda Express-tåg ställs in
--  Apple releases iOS 17.3 beta 3 after pulling beta 2
--  Морской аквариум по индивидуальному проекту
--  “Do të të bëj të vrasësh veten”/ Dëshmitë rrëqethëse të 4 fëmijëve të Bedrie Lokës për të atin!
--  Governo da Madeira apresenta Orçamento para 2024 "equilibrado"
--  दिल्ली मेट्रो के अंदर चोरी,CISF ने 8 महिलाओं को ऐसे पकड़ा, आप भी हो जाइए अलर्ट
--  African Country Deserves To Win The World Cup –Eto’o
+-  Togg Sedan geliyor! CES 2024 canlı yayını!
+-  Grifols celebra mañana una conferencia con inversores para refutar las tesis de Gotham City Research
+-  NFL offers buyouts to more than 200 employees
+-  Meryl Streep and Martin Short are ‘just very good friends’ despite dating speculation
+-  Aaron Rodgers fires back at ‘ridiculous’ Jimmy Kimmel in Jeffrey Epstein list feud
+-  Lähes uusia sähköautoja romutetaan – Pienestäkin akkuvauriosta ”suoraan jätemyllyyn”
+-  İstanbul Havalimanı 2024'e zirvede başladı
+-  İtalyan gazetesi, Togg'un CES 2024'te başrolde olduğunu yazdı
+-  Hrvatsku ove godine očekuju parlamentarni, predsjednički i europski izbori
+-  Storage Units Capital Opens New 766-Unit Self-Storage Facility Near Orlando
