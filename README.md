@@ -1,11 +1,51 @@
 # Latest News
--  "ประเสริฐ" ไขก๊อก สส.อ้างเปิดทางคนรุ่นใหม่เข้าสภา
--  "เศรษฐา" มอบคำขวัญวันครู “ครูวางฐานคิด ส่งเสริมศิษย์สร้างสรรค์”
--  ‘고딩엄빠4’ 청소년 엄마 정채언, SNS 14시간+사진 1000장…인플루언서의 리얼 라이프
--  신은수, 러블리 그 자체
--  이금희, 'TV는 사랑을 싣고' 관련 해명 "사실 각본 있었다"('라디오스타')
--  Super Junior’s Yesung impresses Pinoy fans at first solo concert in Manila
--  Milyarder pedofil şahzadə Endryu və Bill Klintonun azyaşlılarla intim münasibətlərini lentə alıb
--  ‘วิทิตนันท์’เล่าย้อนโมเมนต์ประวัติศาสตร์ กว่าจะเป็นชาวไทยคนแรกผู้พิชิต‘เอเวอเรสต์’
--  China to keep scaling new heights with self-reliance in new year
--  China, U.S. should implement consensus between heads of state and promote healthy, stable, sustainable development of bilateral ties
+-  Seatless subway cars to debut in Seoul Wednesday
+-  [검찰, 유아인에 수면제·프로포폴 과다처방 의사 불구속 기소
+-  [28일간의 눈꽃 동행축제…1조856억 매출실적 올렸다
+-  [소비자원 “일부 글루타치온 식품, 광고보다 함량 50% 적어”
+-  [국민연금·기초연금 작년보다 3.6% 더 받는다
+-  [억지로 밥 먹이다 ‘장애인 질식사’…사회복지사·사회복무요원, 유죄 확정
+-  [보험사 약관대출 가산금리 ‘들쑥날쑥’…금감원, 모범규준 개정
+-  [민간·가정 어린이집 영아반 인센티브, 월 최대 69.6만원 지원
+-  [중기 10곳 중 6곳 “환경규제 부담…자율관리형 전환을”
+-  [▶▶ 폭탄 선언! 전국민 카카오톡 추천주 무료.!
+-  Massenmörder Breivik fordert ein Ende der Einzelhaft
+-  '이게 가능한 기록인가?' 즐라탄, 1분부터 90분까지 모든 분 단위 골 기록
+-  WBC서 이정후에 2루타 맞았던 이마나가, SF서 한솥밥?...MLB.com "모든 정황이 자이언츠를 가리키고 있다"
+-  İsrail askerleri vurduğu Filistinlinin üzerinden araçla geçti
+-  Chinas Hersteller drängt Tesla mit Elektroautos ins Abseits
+-  Asian Markets Enjoy Healthy Bounce After Wall St Rally
+-  उत्तर रेलवे के महाप्रबंधक ने रेल हादसों पर डीआरएम से मांगी रिपोर्ट
+-  अयोध्या : रामपथ व धर्मपथ पर 15 जनवरी से शुरू होगी 100 इलेक्ट्रिक बसें
+-  두 번째 도전… 민주당 박형룡, 대구 달성군 총선 출마
+-  포항 철강공단서 50대 남성 기계에 끼어 사망
+-  AMD stellt auf der CES 2024 vier neue Gaming-CPUs vor
+-  슈나이더 ‘인도 하이데라바드 공장’, WEF 지속가능성 등대공장 인정
+-  Benjamín Gil y su toque para levantar a los Charros hasta convertirse en Manager del Año
+-  삼성전자 작년 영업이익 6.5조원…15년 만에 최저
+-  रीवाः कमिश्नर सुचारी को राजस्व और पुलिस अधिकारियों ने दी भावभीनी विदाई
+-  हिस्ट्रीशीटर ललित कौशिक समेत पांच पर अधिवक्ता से रंगदारी मांगने और धमकी देने का आरोप, केस दर्ज
+-  Bonucci vor seinem Umzug nach Istanbul
+-  Fort Hare accused Plaatjies still chasing bail after losing appeal
+-  자폐장애인 김밥 먹다 질식사…대법 “학대치사는 아냐”
+-  OPPO Find X7 Ultra：新年放大招，带镜头群的手机你怕不怕？
+-  OPPO Find X7系列带来超级天线技术 拒绝信号死角
+-  OPPO Find X7 Ultra全新QBC技术 突破传感器解析力极限
+-  OPPO Find X7系列端侧部署70亿参数大模型 全功能体验提升
+-  OPPO Find X7 Ultra国密级安全芯片 超可靠隐私守护
+-  Nestlé baut in der Schweiz einen Schokoladen-Themenpark
+-  Beckenbauer qua đời: Nhìn lại sự nghiệp vĩ đại của 'Hoàng đế' bóng đá
+-  Kính thực tế ảo "giá ngang SH" của Apple chính thức ấn định ngày mở bán
+-  Boeing đối mặt thách thức mới
+-  Phía Selena Gomez lên tiếng về thông tin bị “chính thất” Kylie Jenner dằn mặt khi xin chụp ảnh với Timothée Chalamet
+-  Sao Việt "flex" bữa trưa tại trường quốc tế của con: Có xứng đáng với học phí trăm triệu bỏ ra mỗi năm?
+-  United Airlines löysi Boeing 737 MAX 9 -mallin lentokoneistaan löysiä pultteja
+-  李家超稱須檢視醫療服務防濫用急症 回應陸路離境稅：政府鼓勵兩地融合及人員往來
+-  Cô giáo gặp sự cố trên đường, "lời nhờ vả" tạo nên khoảnh khắc đáng nhớ trên mạng xã hội
+-  بلينكن في تل أبيب بخامس زيارة منذ العدوان على غزة (شاهد)
+-  Ethiopia-Somaliland deal makes waves in Horn of Africa
+-  Anies Panen Singkong di Gorontalo: Berhasil, Tanpa Perlu Program Food Estate
+-  도봉구 “시공간 제약없이 메타버스에서 중독 상담받으세요”
+-  광주시문화재단, 라포엠 X 신문희와 함께하는 2024 신년음악회
+-  수원문화재단, 제9대 대표이사 공개 모집
+-  군포시, 취약계층 아동지원 디딤씨앗통장(CDA) 가입 기준 확대
