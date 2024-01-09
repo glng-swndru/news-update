@@ -1,11 +1,51 @@
 # Latest News
--  Togg Sedan geliyor! CES 2024 canlı yayını!
--  Grifols celebra mañana una conferencia con inversores para refutar las tesis de Gotham City Research
--  NFL offers buyouts to more than 200 employees
--  Meryl Streep and Martin Short are ‘just very good friends’ despite dating speculation
--  Aaron Rodgers fires back at ‘ridiculous’ Jimmy Kimmel in Jeffrey Epstein list feud
--  Lähes uusia sähköautoja romutetaan – Pienestäkin akkuvauriosta ”suoraan jätemyllyyn”
--  İstanbul Havalimanı 2024'e zirvede başladı
--  İtalyan gazetesi, Togg'un CES 2024'te başrolde olduğunu yazdı
--  Hrvatsku ove godine očekuju parlamentarni, predsjednički i europski izbori
--  Storage Units Capital Opens New 766-Unit Self-Storage Facility Near Orlando
+-  Francúzskych policajtov súdia za útok na mladíka tmavej pleti z roku 2017
+-  Agresión de Israel a Gaza sin precedentes en historia moderna
+-  Alunos vão treinar provas digitais antes dos exames
+-  Costa: não pode haver hesitação na exploração do lítio
+-  India-UAE Ties Soar To New Heights As Modi- Al Nahyan Ink Four MoUs, Showcase Friendship With Roadshow
+-  트럼프, '출석 의무' 없는데도 법정에 나가는 까닭은?
+-  Teacher says she has to remove inappropriate images from Amazon student sticker packs
+-  Announcement of events Wednesday, 10 January 2024
+-  Nezaposlenost u eurozoni pada na rekordno nizak nivo, ali postoji zabrinutosti zbog pada stanovništva
+-  Fiscalía investiga atentado contra unidad policial en Ecuador
+-  Driver killed by falling tree in Birmingham
+-  Nigerian govt inaugurates inter-ministerial committee to tackle substandard degrees
+-  Hijo de expresidente de Perú es culpable pero evita la cárcel
+-  ¿Qué aporta ChatGPT al deporte y a la Educación Física?
+-  ‘We’ll end up eating solar panels’
+-  UK’s Cameron worried Israel may have breached international law in Gaza
+-  Milyonların konuştuğu Hazar Ergüçlü'nün dansının kamera arkasında neler yaşandı?
+-  Cinayeti itiraf eden sanıkların savunmaları şoke etti!
+-  Dilan Polat tekrar cezaevine götürüldü
+-  14 NJ counties recorded fewer traffic deaths in 2023
+-  Antalya'da liseli kız öğrenciler saç saça baş başa kavgaya tutuştu
+-  OŠTRO SAOPĆENJE IZ FEDERALNE TELEVEZIJE, DOTAKLI SE I FORTE: 'Ne zavlačite ruku u naš džep, mi nismo dužni...'
+-  الأمم المتحدة تؤكد على ضرورة ألا تصل الحرب إلى جنوب قطاع غزة
+-  Apple promociona sus Vision Pro con la esencia de su primer anuncio de iPhone
+-  H M Sultan Haitham meets German Vice-Chancellor
+-  المجر تعتزم إنفاق ملياري دولار لتحديث البنية التحتية لصناعة السيارات بمدينة ديبريسين
+-  مندوباً عن جلالة الملك وسمو الامير الحسين بن عبدالله الثاني العيسوي يعزي عشائر بني عباد عامة وعشيرة الشبلي خاصة
+-  Rabies is an ancient, unpredictable and potentially fatal disease—two rabies researchers explain how to protect yourself
+-  Сърбин от фронта за руските командири: Викат ни цигани и ни бият
+-  Ternuringa: Graban en secreto a un ratón y descubren que limpiaba el cobertizo de un señor
+-  Es una carrera contra el tiempo para recuperar partes de la misión de alunizaje condenada
+-  Vabbandet fortfarande på historiskt hög nivå
+-  Love scrambles the brain and scientists can now tell us why
+-  Gillian Anderson otkriva zašto je njezina haljina na Zlatnim globusima bila ukrašena vaginama
+-  „GZSZ“-Vorschau: So geht es ab Mittwoch, 10.1.2024 weiter
+-  More delays for NASA's astronaut moonshots, with crew landing off for another few years
+-  2 squatters injured in fire at vacant lumber yard in Lakewood
+-  إحياء أربعينية فقيد الوطن اللواء محمد محرم بصنعاء
+-  شيرين عبدالوهاب تتوعد "أدعياء الشهرة"
+-  Aaron Rodgers DENIES suggesting Jimmy Kimmel is on Jeffrey Epstein list in rambling 10-minute monologue - as he insists he 'isn't stupid enough' to accuse TV host of being a pedophile, but refuses to apologize
+-  Минфин может ограничить вывоз золота из России физлицами
+-  وضع كارثي.. كيف تبرز الأرقام حجم الدمار في غزة؟
+-  Nasser al-Khelaïfi esce allo scoperto: "Voglio che Mbappé rimanga, abbiamo un accordo"
+-  Saudijska Arabija protiv raseljevanja stanovništva Gaze
+-  Šolc pozvao članice EU da povećaju isporuke oružja Ukrajini
+-  Njemačka pobijedila Izrael i potvrdila duel sa Crnom Gorom
+-  Cuatro árbitros almerienses en la final del campeonato nacional de selecciones autonómicas de balonmano
+-  Cameroun Et Zambie Se Neutralisent En Préparation De La Can 2023 :: Cameroon
+-  Don Lemon to launch new ‘freer’ show on X ‘without the hall monitors’ after CNN firing
+-  Зеленский позвонил президенту Польши Дуде
