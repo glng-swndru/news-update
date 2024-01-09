@@ -1,51 +1,51 @@
 # Latest News
--  Na Žabljaku u devet sati izmjereno -8,6 stepeni
--  Izraelske snage ubile tri Palestinca u raciji na Zapadnoj obali
--  Tešanović: Savladali smo evropskog šampiona, možemo po medalju
--  해양경찰청, 경비함정 118척 위성통신망 설치
--  해양경찰청, 조직문화 개선 등 4개 분야 우수기관 선정
--  [기호일보 만평] 호랭이 굴
--  Hiện trường vụ máy bay rơi ở Quảng Nam
--  Khách thuê nhà 'nhặt' được 380 triệu đồng, chủ ngơ ngác không biết tiền ở đâu ra
--  Màn trình diễn thảm họa đầu năm 2024
--  Tham khảo Tăng Thanh Hà 10 cách diện váy liền sang xịn mịn cho phụ nữ U40
--  Nam MC cuối cùng cũng lên tiếng về màn "cà khịa" kém duyên nhắm vào Taylor Swift tại Quả Cầu Vàng 2024
--  Geelong superstar Jeremy Cameron proposes to longtime partner Indiana Putra
--  Programmable Logic Controllers Market Analysis and Future Prospects for 2030
--  Mentoring Software Market Revenue, Insights, Overview, Outlook, Analysis | Valuates Reports
--  Seoul in talks with Beijing on remark opposing Korea-US-Japan joint statement: official
--  Eximbank supports expansion of Korean exporters in US
--  Chelsea ‘open talks’ with Mykhailo Mudryk’s friend whose record this season is better than Erling Haaland and Mo Salah
--  عمران خان اور بشریٰ بی بی پر توشہ خانہ کیس میں فرد جرم عائد
--  Mobile mortgage refinancing services debuts today
--  Global Basketball Shooting Training Machine Market Research Report 2024-2030
--  Why is Amanda Abbington demanding backstage Strictly footage? Everything we know about Giovanni 'feud'
--  Generationsübergreifendes Sternsingen in Weitersfelden
--  FOTO/ “Miti i fundit, mbrojtësi më i madh në histori”, mediat botërore homazhe për Beckenbauer
--  Unlocking Precision Medicine: Parp Inhibitor Biomarkers Market Insights 2023-2030 Growth Opportunities with the World's Top Players | Antibodies Inc., Networks LLC, Beckman Coulter, Inc., Euro Diagnostica AB, F. Hoffmann-La Roche Ltd
--  Thaina Fields dead – Porn star, 24, who revealed sexual abuse in adult industry found dead at her home
--  В избирательный штаб Путина поступили подписи еще из 19 регионов
--  Industrial Safety Systems Market Analysis and Future Prospects for 2030
--  Il robot cuoco è un successo, ecco come lavora in un video
--  Sternsinger der Pfarre St. Andrä am Zicksee zu Gast
--  Акции «Татнефти» подешевели после дивидендной отсечки
--  Nabeul: Un taux d’avancement de 70% de la récolte des pommes de terre
--  Rani rakes in up to N$8m a day during festive season
--  Tata Starbucks Unveils Plans For Expansion In Indian Market
--  $10 Billion ZEEL-Sony Deal: Committed To Merger, Says ZEEL
--  ‘Where was I’: Trevor Noah loses Golden Globe to Ricky Gervais
--  Kastina Hisbah Confiscate 850 Bottles Of Alcohol
--  Residents of Wajima are dealing with the aftermath of Japan's New Year's Day earthquake
--  Portland school teacher surprised to discover Boeing jet door plug in backyard
--  Masnawati Masud Siapa? Ungkit Dugaan Perselingkuhan Melly Goeslaw dengan Oknum Perwira Polisi
--  [조응천 “민주당…돈 뺏고 ‘우린 친구, 친하게 지내자’는 일진 같아”
--  [강수현 양주시장 “교육은 지역 발전을 이끄는 핵심 동력”
--  [무역보험公·美수은, ‘한미 라운드테이블’…"수출기업 지원"
--  [최태원 회장, CES 첫 일정으로 ‘지멘스’ 기조연설 찾은 까닭은? [비즈360]
--  [‘공급망 3법’ 완성…국가자원안보특별법 국회 통과
--  [與 불참 속 ‘이태원 참사 특별법’ 국회 통과…또 尹 거부권?
--  [박성민 의원, 국회, 개 식용 금지·기부문화 활성화 위한 법률안 통과
--  [‘개 식용 금지법’ 통과에 “기념비적 역사” vs “헌법소원 낼 것”
--  [중처법 50인 미만 확대 적용 유예 결국 '불발'...25일 '마지막 기회'
--  BMW verkauft 2,55 Millionen Autos - Rekord
--  Initiativkomitee für 13. AHV-Rente startet Abstimmungskampagne
+-  Gericht sucht weiter nach Motiv für Tötungsdelikt von Jestetten (D)
+-  Bis Sommer 2026: Fabrizio Cavegn verlängert Vertrag bei Vaduz
+-  Nagły zwrot w Sejmie. Posiedzenia odwołane?
+-  שופט העבר אברהם קליין היה אורח הכבוד בטקס בחירת ספורטאים מצטיינים בהונגריה
+-  יו"ר איגוד הכדורסל הודיע: "שתי עולות מהלאומית לליגת העל"
+-  Muž z Krivian šoféroval pod zákazom, skončil v cele
+-  BlueROV2 R4 Raspberry Pi 4 underwater ROV
+-  Epstein dosyalarında yeni detaylar ortaya çıktı... Ucu Mossad'a uzanan skandallar!
+-  Hizbullah'tan İsrail'e karşı saldırı
+-  Ve sonunda! Fred resmen geri dönüyor
+-  Fatih Camisindeki saldırı! Murat Kurum'dan geçmiş olsun ziyareti
+-  Serbest bölgelerde ihracat arttı
+-  Yarın okullar tatil mi? Son dakika 10 Ocak kar tatili olan iller hangileri?
+-  Galatasaray Ekmas son 16 için parkede!
+-  Japonya'daki 7.6'lık depremde can kaybı yükseliyor
+-  İstanbul'da beklenen kar yağışı başladı
+-  Kuru kayısıda 408 milyon 74 bin dolarlık ihracat
+-  15 yılı geride bırakıp mutlu evliliğin sırrını çözen 6 ünlü çift
+-  Diş fırçasını sakın ıslatmayın! Nedenini diş hekimleri açıklıyor
+-  İsrail güçleri 9 Filistinliyi daha yaraladı
+-  Yabani'nin Rüya'sı Simay Barlas estetiksiz hali ile şoke etti! İyi ki yaptırmış
+-  Gazze'deki Sağlık Bakanlığı: Aksa Şehitleri Hastanesi'ne son 24 saatte 57 ölü getirildi
+-  Ağız kokusuna macun etkisinde meyve! Sizden kaçmayacaklar
+-  Galatasaray'a sürpriz gurbetçi: Efe Bayrak
+-  Ukrayna'da cephe hattındaki siviller tahliye ediliyor
+-  Yabani 17. bölüm izle tek parça! Yabani son bölüm izle kesintisiz, full!
+-  İşgalci İsrail Han Yunus'ta kara saldırılarını genişletti
+-  Школьники Запорожской области примут участие во всероссийской олимпиаде
+-  La confianza del consumidor tuvo año récord; acumuló 12 meses de incrementos
+-  Protesto da PSP com concentrações e carros parados mantém-se hoje
+-  [오피셜] ‘또 리얼 블루’ 수원, ‘강등 못 막은’ 염기훈 감독대행에서 감독 승격… 계약기간 2년
+-  키움 재계약 불발→윈터리그 폭격 '악동' 푸이그, 5년만에 빅리그 복귀하나..."탬파베이 관심"
+-  Kako poboljšati mentalno zdravlje u 2024.
+-  Pucnjava u Minesoti, stradale tri osobe
+-  "Rekonstrukcija definisana porazumom, neće biti promjena u dva resora"
+-  Elhunyt Benedek Miklós
+-  Более 30 водителей в Петрозаводске будут искать свои авто на штрафстоянке
+-  CM Jagan: కం టు తాడేపల్లి.. జొన్నలగడ్డ పద్మావతిపై జగన్ ఆగ్రహం
+-  เที่ยวทำบุญ 9 วัด ศิลปะพม่า เมืองลำปาง พร้อมกิจกรรมสร้างบุญกุศล รับต้นปี 2567
+-  Bahnpoststempel der Region: "Seltener als eine Mauritius"
+-  Polizeibericht zu den Versammlungen der Landwirte
+-  Beim Verkehrsunfall in Arnstein überschlagen und verletzt
+-  Пекин заявил о непринятии чьей-либо стороны в конфликте на Украине
+-  Hàn Quốc chính thức cấm thịt chó, người vi phạm có thể ngồi tù hoặc lĩnh án phạt gần 600 triệu đồng
+-  Fälle von Dengue-Fieber haben sich innert zwei Jahren verzehnfacht
+-  Shabu sa saging na planong ipuslit sa piliitan, nabuking sa Minglanilla, Cebu
+-  Oito institutos e o CEIP de Barcelos súmanse á iniciativa dos Clubs de Lectura
+-  И ТИЕ ЌЕ ВОЈУВААТ: Украина купува 50.000 женски воени униформи
+-  Woman arrested after extorting €430,000
+-  Popüler Analist il Capo, Bitcoin Spot ETF Onayı Ufukta Görünürken Solana (SOL) ve BNB’nin Durumunu Değerlendirdi
