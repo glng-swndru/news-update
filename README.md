@@ -1,11 +1,11 @@
 # Latest News
--  Fox News and Trump Go Live Wednesday for First Time in 2 Years
--  [ŽT] Tai genialu! Baigiasi 155 mm sviediniai. Ką daro Ukraina
--  „FSB susprogdino Maskvą. Žuvo 307 žmonės, daugiau nei 1700 sužeistų.“ Generolas skelbia, ką padarė Putinas (Video)
--  [ŽT] Maskva nusikėlė į akmens amžių. Gyventojai pakraupę (Video)
--  [ŽT] Karą užbaigti galima per kelias valandas. „Visa Rusijos ekonomika sustingtų kaip ištikta insulto“
--  Geriausia pasaulyje! Rusams tokia technika net nesisapnavo
--  Lenovo'nun yeni dizüstü bilgisayarı Windows ve Android'i tek cihazda birleştiriyor
--  هيئة البث الإسرائيلية: رفع درجة التأهب بالمستشفيات تحسبًا لاستقبال مصابين بالآلاف
--  "حسد وعقبات وأخبار سيئة" تلاحق مواليد هذه الأبراج في أول 3 أشهر من 2024
--  رئيس الموساد السابق: نتنياهو فشل في إخضاع حماس وعليه أن يرحل الآن
+-  '철인군주AI'로 정치를 대체하자?
+-  자동차산업 '창'으로 들여다본 세계 경제전망은? '혼돈'과 '위기'
+-  고민정 quot;김건희, '영부인 특권' 이용하는 걸 국민이 못 받아들여quot;
+-  quot;공장의 주인은 우리다!quot;
+-  ANÁLISE DA NOTÍCIA
+-  Duşakabin temizlemenin en pratik yöntemi! Oysa bu kadar basitmiş
+-  Güney Afrikalı heyete Adalet Bakanı başkanlık edecek... İsrail Adalet Divanı'nda yargılancak
+-  Silahlı Grup Canlı Yayında Stüdyoyu Bastı: Sunucunun Ceketine Bomba Yerleştirdiler
+-  Intenso debate legal sobre la inmunidad de Trump
+-  Dortmund bekommt seine erste muslimische Kita: Was ist der Unterschied?
