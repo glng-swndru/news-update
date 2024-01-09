@@ -1,51 +1,51 @@
 # Latest News
--  עוגיות, מסטיקים, ו-25 ק"ג קנאביס: צעיר נעצר לאחר שכמות גדולה של סמים נמצאה בביתו
--  Real Madrid meint es ernst mit dem Bayern-Star – dringende Bitte der Königlichen! | Sport
--  Kick fires back at Elon Musk’s plans for live streaming on X/Twitter
--  Người duy nhất được chôn cất trên Mặt trăng là ai?
--  Tổng giám đốc Việt Á tự bào chữa về 'công chống dịch'
--  Khó rút giấy phép công ty đầu mối xăng dầu vi phạm vì 2 bộ chưa thống nhất
--  Trung Quốc cân nhắc áp thêm thuế quan lên hàng hóa Đài Loan
--  Ümit Özdağ emniyetten kendisine gelen suikast bilgisini paylaştı
--  Liebesbeziehung: Wegner schlägt neue Regeln im Senat vor
--  Noch keine Klarheit über Verletzung von VfB-Stürmer Guirassy
--  WHO: Unnötige Amputationen wegen Notlage im Gazastreifen
--  Protest im Erzgebirge am Dienstag: Erneut mehrere Bundesstraßen gesperrt - Fahrzeugkonvoi am Landratsamt unterwegs
--  Popsänger im Iran nach Lied über Kopftuchpflicht verurteilt
--  Vogtland erlebt die kälteste Nacht seit Mitte Dezember 2022
--  Staatliche Studienakademie in Breitenbrunn lädt ein zum Tag der offenen Hochschultür
--  Tatverdächtiger nach Auseinandersetzung in U-Haft
--  Sachsen will sich für Waldbrände besser rüsten
--  Cómo crear un altavoz Bluetooth… ¿con cocos?
--  مع اغلاق السوق.. ارتفاع جديد بأسعار الصرف في العراق
--  Aksaray'da öğretmenin çocuğu darp etti iddiası
--  Konyaspor'dan Şivlilik Çocuk Bayramı’na davet
--  DÜŞMANININ MERHAMETİ İLE ZULÜMDEN KURTULAN YOK
--  Palast gratuliert mit einem Bild der Krönung
--  Evinde bıçaklanarak öldürülen kadının eşi tutuklandı
--  Valorant players baffled as bizarre bug makes their skins disappear
--  Управата за финансиска полиција врши проверки во М-НАВ
--  Rencard : où emmener son date à Paris ? Les idées sorties dans la capitale
--  Furto de fios volta a deixar Corpo de Bombeiros sem comunicação na fronteira
--  PE Investments Registered Decline Of 26% In 9M FY24: Report
--  Maldives Faces Backlash With #BoycottMaldives Trend, Over 8,000 Hotel Cancellations
--  مجلس الوزراء يجدد رفض المملكة القاطع لتصريحات الاحتلال حول تهجير سكان غزة
--  5 دورس تعلمها من فشل الشركات الناشئة
--  مجلس الوزراء يوافق على الهيكل والدليل التنظيمي لوزارة المالية
--  A99: Schwerverletzer bei Unfall mit drei Lastwagen - Erhebliche Verkehrsbeinträchtigungen
--  Este miércoles habrá cacerolazo contra el apagón cultural y por la libertad de Nahuel Morandini
--  Gynecologist Reveals the Best Way To Sleep for a Healthy Vagina
--  Российское авторское общество предъявило иск к Киркорову
--  Abnehmen: Karotten-Ingwer-Shake hilft bei der Fettverbrennung
--  Halla-aho roimi Yleä IS:n tentissä: Syytti vasemmistolaisuudesta ja kannatti leikkaamista ankaralla kädellä
--  Magic-skaperen tatt for å bruke AI-kunst
--  Son 24 saatte 27 İsrail askeri yaralandı
--  Japon sinemasının usta yönetmeni Yönetmen Shinya Kawatsura İstanbul'da
--  Süper Lig'den 6 kulüp PFDK'ye sevk edildi
--  AİLE 27. bölüm izle full! Show Tv Aile son bölüm izle kesintisiz! (Devin'in bebeği düştü mü?)
--  Mısır Gazze için net mesaj: Ateşkes olmadan gelecekten söz edilemez
--  Bursa'da 250'yi aşkın tarihi eserin ele geçirildi: 2 gözaltı
--  Pallaksen lumivyöryn uhrien kuolin­ilmoitus julkaistiin – mukana kaunis runo
--  Viti 2023 u mbyll me 10.1 milion turistë të huaj
--  العيسوي يلتقي شيوخ ووجهاء عشائر الزبيد والبشابشة وفعاليات شبابية
--  Las obras de urbanización de la avenida de Europa de Colloto estarán listas en dos semanas
+-  בשורה משמחת: שיפור במצבו הרפואי של עידן עמדי
+-  נגיד בנק ישראל מובך: לא משתתף בישיבת תקציב 2024
+-  הראל ביטוח ופיננסים: "שכר המינימום יעלה ב-6%"
+-  מחפשים דירה בצפון? זו העיר שתתחדש במאות דירות
+-  נועה קירל חוטפת מרון נשר: "אנה זק טובה פי 4"
+-  רמי לוי שובר את השוק: אלו המוצרים שימכור ב-50% הנחה
+-  הפרויקט החדש של ניב סולטן ומאור שוויצר: זה הסרט בו ישחקו יחד
+-  חברת רשתות הלוויין חוגגת הישג: "הזכייה הזו תוביל לעסקאות נוספות"
+-  Volkswagen legt bei Auslieferungen 2023 zu
+-  Ruim half miljoen mensen bezochten Hoge Veluwe in 2023
+-  Z BGK o odbudowie i modernizacji Ukrainy
+-  Tauron: ponad połowa naszych mocy pracuje obecnie dla systemu elektroenergetycznego
+-  Prabowo Bilang Dia Pintar atau Goblok, Waketum NasDem: Penilai Terbaik Ucapan itu adalah Rakyat
+-  Ефимова: лучше буду без флага и гимна, но знаю, что я — за Россию
+-  Activistas denuncian expulsión y arresto de inmigrantes en Túnez
+-  Despite Denials, Pakistan Deported Afghan Refugees Waiting for US Resettlement.
+-  DRDO Launches Indigenous Assault Rifle 'Ugram' For Armed Forces
+-  EU Investigates Microsoft Investment In OpenAI
+-  Relux Electric Signs Rs 330 Cr MoU With Tamil Nadu
+-  السوبر الإسباني: برشلونة يضم المصابين كانسيلو وبيدري وإنييغو
+-  I'm the 28-year-old mayor of my town and I had to live at home until I could buy a house
+-  تحذيرات من الإصابة بـ«عضة البرد».. 7 طرق لمواجهتها في موجة الطقس القارس
+-  شجرة عائلة الصحفي وائل الدحدوح.. تمتد جذورها إلى 4 دول منها مصر
+-  الجيش الإسرائيلي يقتل فلسطينياً بزعم محاولته تنفيذ عملية طعن قرب رام الله
+-  Semiembolsados aparecen dos cadáveres el segundo anillo de SPS
+-  Russia to do ‘everything’ to halt Ukrainian shelling of Belgorod
+-  France policemen on trial over 2017 assault of black man
+-  31 People Trapped in Mount Lewotobi's Eruption Successfully Evacuated
+-  KontraS Nilai Kasasi Jaksa atas Vonis Bebas Haris Azhar - Fatia Tak Ksatria
+-  Tormenta en Córdoba: se abrió un nuevo socavón en la Ciudad y ya son seis en lo que va del 2024
+-  Industry-Leading Franchise Consulting and Digital Marketing Firms Announce Strategic Investment
+-  Study Shows Some Good News Out of an Increasingly Divided US
+-  Lisboa ativa plano de contingência por causa do frio
+-  NOW® Consumer Survey Unlocks Top Wellness and Health Priorities For 2024
+-  В РФ утверждена трехлетняя программа госгарантий бесплатной медицинской помощи
+-  Психолог Полина рассказала, как настроиться на трудовые будни
+-  إصابة 59167.. ارتفاع عدد ضحايا العدوان على غزة لـ 23210 شهداء
+-  Selenski kommt ans WEF +++ Russland inhaftiert weiteren US-Bürger
+-  ضربة لتجار السموم.. الأمن يُفاجئ مهربي المخدرات بهذه المناطق
+-  Francisco Rodríguez reitera que Nicolás Maduro y Juan Guaidó son culpables del embargo de Citgo
+-  Reisende müssen mit Zugausfällen rechnen
+-  Evo gdje gledati prve dvije utakmice Europskog prvenstva u Njemačkoj
+-  Kornelia ze "Ślubu od pierwszego wejrzenia" zdradza, jakie ma relacje z teściową
+-  Aerospace Additive Manufacturing Market May See Big Move | Major Giants Stratasys, EOS, 3D Systems, GE Aviation
+-  ActionSA Queries eThekwini City Manager on Durban Metro Police leading MK Motorcade.
+-  Nvidia ofron plane ditore për shërbimin cloud gaming GeForce Now
+-  Água em garrafa de plástico pode conter cerca de 240 mil nanoplásticos
+-  Paul George dans le Top 100 des meilleurs scoreurs de l’histoire : 17 151 points de smoothitude, ça se fête
+-  Sparťany ve středu čeká první trénink, zatím i s Daňkem
+-  RTX 4080 e RTX 4070 Ti não serão mais vendidas, confirma NVIDIA
