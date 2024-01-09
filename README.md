@@ -1,51 +1,51 @@
 # Latest News
--  Президентът на ФИФА: Никога няма да те забравим, Франц
--  جديد فضيحة جيفري إبستين.. أشرطة جنسية مع قاصرات للأمير أندرو وبيل كلينتون
--  ‘유아인에 수면제·프로포폴 과다 처방’ 의사 6명 불구속 기소
--  כל אחד ממשיך בשלו: וושינגטון הפסידה גם לאוקלהומה סיטי, 17 נקודות לדני אבדיה
--  אגדת ההתעמלות היהודיה, אגנס קלטי, חוגגת את יום הולדתה ה-103
--  Sport | 'Job done' as Man Utd avoid FA Cup upset at Wigan, build momentum for Spurs
--  온라인 판매 글루타치온 식품 59%가 '부당광고' … 일부는 실제 함량 '절반'
--  총선 후보자 출판기념회 초대장에 '속앓이' ... 책값 이외 축하금 명목 후원 횡행
--  Tecno Spark 20C Price In Philippines
--  الأردن: لا يمكن السماح لنتنياهو بجر المنطقة لحرب أوسع
--  SKT, ‘CES 2024’서 핵심 AI 기술 선봬
--  KT, 20대 전용 Y브랜드 ‘대한민국 퍼스트브랜드 대상’ 수상
--  롯데정보통신, 국립부산과학관 특별 기획전 참여
--  잭커리, CES 2024서 ‘솔라 마즈봇’ 공개… “태양광 발전 새 시대 개막”
--  LGU+, 키즈폰 출식이2 출시…갤A24 기반·39만6천원
--  ফের মঞ্জুলিকা হয়ে ফিরছেন বিদ্যা!
--  What caused the hole on the Alaska Airlines flight, and what does it mean for Australia?
--  What caused the hole on the Alaska Airlines flight, and what does it mean for Australia?
--  Infidencias y confidencias del martes 9 de enero de 2024
--  Efraín Quintero: “Llueva o truene, El Siglo siempre llega a sus lectores”
--  수은, 우리 기업 美 투자 프로젝트 지원
--  الكشف عن تفاصيل جديدة .. 3 مصريين ضمن خلية الموساد في تركيا و4 من دول عربية آخرى
--  Danes dve opozorilni stavki: najprej Fidesa, nato še pacientov
--  انتخابات میں جیت کیلئے مودی نے رام مندر کو بھی دائو پر لگادیا
--  „Megmutatjuk, hogy az EU-ban nem lehet zsarolni” – Aláírásgyűjtés indult Orbán Viktor ellen
--  Les tarifs bancaires repartent à la hausse cette année (association de consommateurs)
--  „Kifáradás” jelei a kisföldalattin: repedezhetnek az M1-es vonal szerelvényei
--  "Des méthodes de crapules": Alain-Fabien Delon porte plainte contre sa sœur Anouchka
--  Congress to turn ‘Samaragni’ into poll campaign meets
--  В Новосибирской области более 6,6 тыс. человек остались без света из-за непогоды
--  ‘경찰 못 믿겠다’는 민주당, ‘이재명 피습 사건’ 특검·국조 가능성도
--  Суд оштрафовал соратника Лукашенко, но диктатор разрешил ему не платить
--  Nuorten aikuisten päässä muhii ristiriita: yhteiskuntaan haluttaisiin vaikuttaa, mutta omaan osaamiseen ei uskota
--  فارس سعيد: فَقَدَ حزب الله سبب وجوده وبدّل السلاح بالتفاوض
--  상승세 이어가는 아프리카TV…10만원대 재진입
--  Weerbericht | Het is vandaag zonnig en voelt heel erg koud
--  [영상]"제시카, 저녁먹기 전 TV?"…AI 반려로봇 선보인 삼성·LG[CES 2024]
--  В Подмосковье задержан начальник котельной и замглавы Подольска после отключения отопления
--  Édito. La couleur du caleçon de Poutine
--  Ngành Hải quan bắt 2,8 tấn ma túy qua đường hàng không, cửa khẩu và đường biển
--  Jižní Morava se chlubí vysokou kvalitou života, žebříček však budí i pochyby
--  A lifeline for silent struggles
--  미 민간 달 착륙선, 실패위기…"심각한 연료 손실 발생"
--  宣傳好陽春…惡女凱莎拿破紙箱給狗仔拍 「新歌要來了」笑翻網友
--  Shooter kills two people at Minnesota motel, found dead
--  Pospremate krevet na pogrešan način? Stručnjak objašnjava kako biste to zapravo trebali učiniti
--  Izgradnja ciglane u Beranama 16 godina u planovima i obećanjima
--  Τζέισον Στέιθαμ: Μεταμορφώνεται σε προστάτης των αδυνάτων στη νέα ταινία «Ο Μελισσοκόμος»
--  प्राण प्रतिष्ठा से पहले मूर्ति की आंखों पर क्यों बांधते हैं पट्टी? जानें- क्या है मान्यता
--  AP: Venäjä pudotti vahingossa pommin miehittämäänsä Luhanskiin
+-  Tutuklu Dilan Polat'tan yeni şube!
+-  İsrail'den bir tehdit daha: Gazze'ye yaptığımızın aynısını yaparız
+-  Suyu çorbalara demir katıyor! Kendisi kemikleri kırılmaz yapıyor, işte tarifi...
+-  Ender Saraç'a 22.5 yıl hapis talebi
+-  Memurların 2024 yemek bedelleri belirlendi
+-  Ulviye teyzenin katili komşusu çıktı! Bilezikler için boğazını kesmiş
+-  Ezgi Mola ile Enis Arıkan küslüğü hakkında bomba iddia! 'Saçmalamayın' yorumu yapıldı
+-  „Astrobotic“: Störung nach Start von privater US-Mondmission
+-  Khổ hơn cả Lan, nhân vật này phải đi bộ 2.700km đến trường: Báo thức lúc mấy giờ mới không đi muộn?
+-  Máy bay quân sự rơi ở Quảng Nam gây tiếng nổ lớn
+-  Hậu tranh cãi vì tự nhận đẹp như Song Hye Kyo, Phương Linh gây sốt với visual "lão hoá ngược" ở tuổi 40
+-  Áo dài cổ yếm: 10 thiết kế điệu đà, trẻ trung giá chỉ từ 350k cho nàng khoe dáng xinh dịp Tết
+-  Người dân vây bắt cô gái nghi cướp cửa hàng F88 ở TPHCM
+-  Nhà vô địch thế giới hẹn hò cùng bạn gái có chiều cao vượt trội, danh tính người mai mối gây chú ý
+-  Ngày Hà Tăng thành dâu hào môn: An ninh thắt chặt, lễ cưới khủng 1000 khách, 7 năm sau hé lộ chi tiết bất ngờ
+-  Phát hiện gây sốc về loạt máy bay Boeing sau vụ máy bay chở 177 người bung mảng lớn giữa không trung
+-  Người đàn ông chuyển khoản xong 58 tỷ đồng mua 3 căn nhà mới phát hiện bị lừa, công an cảnh báo trò lừa đảo mới
+-  Bưởi đỏ tiến vua hút khách trước dịp Tết Nguyên đán Giáp Thìn
+-  COVID-19 infections spike after festive celebrations
+-  “제주 미분양 주택 위험수위 치닫고 있다”
+-  Армения согласилась на встречу с Азербайджаном в США в трехстороннем формате
+-  Bowl season winners and losers: It’s Michigan’s championship, but it’s the Big Ten’s world
+-  Мостовой считает, что Семак смог бы работать в АПЛ
+-  Trump'tan Macron taklidi! Fransız liderin aksanıyla dalga geçti
+-  Elon Musk'ın uyuşturucuyla başı dertte
+-  SON DAKİKA: 20 ilde dolandırıcılara SİBERGÖZ-12 darbesi
+-  Quedará en libertad Tomás Yarrington en noviembre
+-  Balean a 'DiDi' y pasajeros piden ayuda en domicilio
+-  สว.ชี้รัฐบาลรู้ “เงินกู้ 5 แสนล้าน” ทำดิจิทัลวอลเล็ต ไปต่อไม่ได้ แค่อยากลงให้สวย
+-  Taiwan poll frontrunner hits out at Beijing ‘interference’
+-  Top US diplomat to meet Israeli PM as fears of escalation rise
+-  행정망 장애 해법으로 지목되는 'SW 제값받기'는 언제?
+-  গণতন্ত্র ফিরিয়ে আনার পদক্ষেপ নিতে হবে: জাতিসংঘ মানবাধিকারবিষয়ক হাইকমিশনার
+-  الهيئة الإتهامية ترفض إخلاء سبيل شعبان... والتحقيق إلى المربع الأول؟
+-  Samsung verwacht verdere daling kwartaalwinst
+-  कोशीमा राप्रपाका अम्बरबहादुरले सत्ता गठबन्धनबाट सभामुखमा उम्मेदवारी दिने
+-  김호중, 3월 KBS 교향악단과 클래식 단독쇼 진행
+-  Intra-day update: rupee continues to gain against US dollar
+-  Argentines ask folk cowboy saint Gauchito Gil to help cope with galloping inflation
+-  Concert, frites gratuites... Une grande soirée prévue à Liévin pour les vœux du maire
+-  Open d'Australie : Les favoris du tournoi (hommes + femmes + doubles)
+-  "Nous avons déjà des beaux taux de réservation sur 2024", analyse le président de Var Tourisme
+-  ГЕРМАНИЈА Е САМО ПОЧЕТОКОТ: На цела Европа и се закануваат протести годинава, еве што велат аналитичарите
+-  Uttarakhand Weather: आज से बढ़ेगी ठंड, इन पांच जिलों में बारिश और ऊंचाई वाले इलाकों में बर्फबारी की चेतावनी
+-  Iranian analyst says JCPOA - 'yesterday's news' for Western countries
+-  Starul „Fauda” Idan Amedi a fost grav rănit în luptele din Fâșia Gaza. Mesajul transmis de familia actorului
+-  East Japan Has High Ratio of Unmarried Men-to-Women as Young Women Move to Tokyo; Fueling Depopulation Trend in Rural Areas
+-  ניצני חזרה לשגרה: 34 אלף חזרו למעגל העבודה בדצמבר
+-  셀럽들의 한겨울 긴 생머리 연출법, 1월 둘째 주의 뷰티 인스타그램
+-  "동부이촌동·도곡동선 더 비싸다고?" 아티제, '동네별 차등' 메뉴가 논란
