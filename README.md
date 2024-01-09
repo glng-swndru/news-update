@@ -1,11 +1,11 @@
 # Latest News
--  זה מתחיל - קיצוץ רוחבי במשרדי הממשלה
--  יממה אחרי חיסול מפקד כוח רדואן: 3 הרוגים בתקיפת כלי רכב בדרום לבנון
--  בישראל שמרו על שתיקה - אבל השר כץ קיבל אחריות על חיסול מפקד כוח רדואן
--  האם רוסיה יכולה לסייע לישראל להגן על גבול הצפון?
--  בוריס אנו האריך את חוזהו במכבי נתניה עד 2026
--  Barış Pınarı bölgesine saldırı hazırlığındaki 3 PKK/YPG'li terörist etkisiz hâle getirildi
--  Togg dijital bilgi ve eğlence ekranı sayesinde yolcuya kolaylık sağlıyor
--  TBMM Başkanı Kurtulmuş'tan Fatih imamına bıçaklı saldırıya sert tepki: Bu organize bir saldırıysa Türkiye buna geçit vermez
--  Türkiye'yi de ilgilendiriyor! Kardeş ülke Azerbaycan'dan Zengezur Koridoru hamlesi
--  Club bouncers to pay tax, be licensed
+-  Турагентлик фаолияти билан лицензиясиз шуғулланиш мумкин бўлади(ми)?
+-  "Чиқинди пули"дан қарздорлар уй ёки машина харид қилолмайди
+-  السعودية تستحوذ على أكثر من نصف الاستثمار الجريء بالشرق الأوسط وشمال إفريقيا في 2023
+-  الجزائر تسطو على برنامج حكومي مغربي بالفوطوكوبي؟؟
+-  كيف تأثر الاقتصاد الأردني بالحرب بين إسرائيل وحماس؟
+-  ملف إسكوبار الصحراء.. كيف يعزّز صورة القضاء والمؤسسة الأمنية للمملكة؟
+-  Befana solidale: doni e calze ai più piccoli per regalare un momento di gioia e spensieratezza
+-  Detidos falsos agentes do SERNIC em Gurué
+-  2023 u mbyll me 10.1 mln turistë, Rama: Vit fantastik, theu parashikimet
+-  Пассажиров застрявших в Забайкалье поездов перевезут самолетами «Авроры»
