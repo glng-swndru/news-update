@@ -1,11 +1,11 @@
 # Latest News
--  This CEO Allegedly Killed Her Four-Year-Old Son, Left Hotel With Body In Bag; Read Horrific Crime Story
--  NEET Success Story: Rajasthan Village Youth, Father Of 6-Month-Girl, Cracks Exam In 5th Attempt
--  Final Fantasy e Apex Legends è polemica: troppe lootbox secondo i fan
--  Antonella Clerici da Diletta Leotta: "Mia figlia vittima di bullismo"
--  RBI Assistant Mains Result 2024, Expected Date, Cut Off, Merit List
--  단국대, 경기도 최초 첨단비즈니스 최고경영자과정 신설
--  인천 남동구립도서관, 2024년 생애주기별 프로그램 강사 모집
--  인천시교육청 북구도서관, 도서 택배발송 서비스 운영
--  한신대, 2024학년도 정시 경쟁률 6.08대 1 기록
--  [구례 화엄사 경제적 브랜드 가치 82억원 돌파
+-  זה מתחיל - קיצוץ רוחבי במשרדי הממשלה
+-  יממה אחרי חיסול מפקד כוח רדואן: 3 הרוגים בתקיפת כלי רכב בדרום לבנון
+-  בישראל שמרו על שתיקה - אבל השר כץ קיבל אחריות על חיסול מפקד כוח רדואן
+-  האם רוסיה יכולה לסייע לישראל להגן על גבול הצפון?
+-  בוריס אנו האריך את חוזהו במכבי נתניה עד 2026
+-  Barış Pınarı bölgesine saldırı hazırlığındaki 3 PKK/YPG'li terörist etkisiz hâle getirildi
+-  Togg dijital bilgi ve eğlence ekranı sayesinde yolcuya kolaylık sağlıyor
+-  TBMM Başkanı Kurtulmuş'tan Fatih imamına bıçaklı saldırıya sert tepki: Bu organize bir saldırıysa Türkiye buna geçit vermez
+-  Türkiye'yi de ilgilendiriyor! Kardeş ülke Azerbaycan'dan Zengezur Koridoru hamlesi
+-  Club bouncers to pay tax, be licensed
