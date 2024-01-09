@@ -1,51 +1,51 @@
 # Latest News
--  Имомов Инъомиддин Aбдулхамидовичнинг педагогика фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Абдураҳимова Моҳигул Ойбек қизининг техника фанлари бўйича фаласафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Боротов Жамшид Зокиржоновичнинг техника фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  AҚШда тўлиқ роботлаштирилган ресторан очилади
--  Fed yetkilisi Bowman: Enflasyon hedefi devam ederse faiz indirme süreci başlayacak
--  V utorok ráno treba počítať s nízkymi teplotami aj povodňami, varujú meteorológovia
--  Unikátny nález archeológov: Česko-slovenský tím objavil v Guatemale jedno z najstarších mayských miest
--  SLOVÁCI, POZOR Nenaleťte na TIETO lákavé PONUKY: Tomáš je nehorázny PODVODNÍK, žiadne PENIAZE vám nevyplatí! Vieme viac
--  AKTUÁLNE Veľký POZOR na to, čo kupujete: TIETO produkty môžu spôsobiť RAKOVINU! Nemáte ich doma?
--  Arsenal kysyi järkäleen hintaa - sai tyrmistyttävän vastauksen
--  Španija dobila Francusku i otklonila dilemu: Crna Gora ne može sa Srbijom
--  W stodole narkotykowe laboratorium. Woreczki były gotowe do dystrybucji
--  한화 건설부문, 고위험 통합관제시스템 활용 안전보건 모니터링 강화
--  펄어비스, CES 삼성D 부스서 '검은사막·붉은사막' 영상 시연
--  '뮤' IP 건재 입증한 웹젠, 잇단 투자로 유망 IP 확보 총력
--  "미래 먹거리 찾자"…유통업계, 'CES 2024' 집결
--  이정하, 세상 무해한 미소
--  이정하, 슬림해진 봉석이
--  임지연, 차분한 올블랙
--  임지연 '하트 장인'
--  템페스트, 눈부신 비주얼
--  삼성전자 15년만에 최저 영업이익…반도체서 14조원 적자
--  Is Gunna Dropping New Music In 2024?
--  نشرة التوك شو.. حملات ضد المقيمين في مصر وإجراء حكومي مرتقب لتقنين أوضاعهم
--  برلماني: تعديلات قانون حماية المستهلك تستهدف ضبط الأسعار
--  أمطار ورياح.. "الأرصاد" تُحدد موعد انخفاض درجات الحرارة
--  Najveći rizici po svet u 2024. godini: Dominiraće tri rata, jedan se tek očekuje
--  ‘24시간 파업’ 벌였던 워싱턴포스트 기자들, 임금 인상 쟁취
--  Španielsko eviduje nárast prípadov covidu: Zavádza povinné nosenie rúšok v nemocniciach
--  “신학 전공 안 했어도 환영”…평신도에 교회 맡길 준비 됐나
--  Grigoryan: Azerbaycan'ın teklifini cevapladık
--  سعرٌ جديد لـ"طن الترابة"
--  고민하는 이재현…CJ 인사 방향성, '쇄신'에 맞추나
--  ডিএসইতে ২ বছর মেয়াদী ট্রেজারি বন্ডের লেনদেন শুরু
--  Landwirte blockieren Zufahrten zur Autobahn 45 mit Traktoren
--  המשבר בשוק האופנה: הראל ויזל סוגר את רשת הספורט
--  ההרוגים ברצועה נפלו בשתי תקריות שונות | פרטים חדשים מיום הקרבות
--  דאעש מגנה את חמאס: "מקריבים את הפלשתינים למען איראן"
--  "لعدم قدرته على تحمل ما رآه"... وفاة رقيب بالجيش الاسرائيلي!
--  Grand froid : comment éviter les déperditions de chaleur chez soi ?
--  혼잡도 완화 위해 서울 지하철 4호선 내 ‘입석’ 시범 도입
--  동해시, 19억원 규모 지방보조금 공모사업 지원
--  Ministar civilne odbrane: Građani Švedske da budu spremni za potencijalni rat
--  Ngarava shines as Chevrons lose tight match
--  "수도권 다자 구도 만들건가" "스윙중도 2030 잡아야"
--  대전시, 마약류중독자 치료보호기관 1개 더 늘리고 치료비도 4배 증액
--  홍천군여성단체협, 희망 2024년 나눔 캠페인 성금 기탁
--  남하면, 새해 맞아 따뜻한 기부 잇따라
--  북상면, 새해에도 익명의 기부천사 공유냉장고에 사랑 전달
--  인제군 남면 새마을부녀회, 인제장학회에 장학금 기탁
+-  الخيرية الهاشمية: فتح معبر كرم أبو سالم تم بضغط سياسي أردني لإدخال المساعدات لغزة
+-  الذهب عالميا يتعافى من أدنى مستوى في 3 أسابيع
+-  عشرات المستعمرين يقتحمون المسجد "الأقصى"
+-  الصحة العالمية: ربع سكان اليمن يعانون من الصدمات النفسية
+-  ارتفاع عدد قتلى زلزال اليابان إلى 180 شخصا
+-  6 إصابات خلال مواجهات مع الاحتلال في نابلس
+-  الحكومة: ارتفاع البنزين بنوعيه وانخفاض الكاز والديزل عالمياً
+-  الأمانة: نقل تخمين مرج الحمام لمجمع الدوائر بالعبدلي الأربعاء
+-  "สมศักดิ์" เปิดใจลาออก สส. เปิดทางคนรุ่นใหม่ ไร้การันตีนั่ง รมต. 4 ปี
+-  "ดอกเบี้ยแพง-กำไรแบงก์พุ่ง " กกร.นัดถกปมร้อน พรุ่งนี้
+-  ตร.มหาสารคามรวบหนุ่มนักค้ายาบ้า 8 ครั้งไม่เคยเข็ดยึดได้อีกเกือบ 7 หมื่นเม็ด
+-  ฮาไม่ไหว! เมื่อแม่ขอกระดาษ 'แคทชู่' หรือเราเรียกผิดตั้งแต่แรก!? (มีคลิป)
+-  แล้วแต่คนมอง‘รมต.ขาลอย’ ‘สมศักดิ์’เปิดใจหลัง​ลาออก ส.ส.บัญชี​รายชื่อ‘​เพื่อไทย​’
+-  'อุเทนถวาย'ประกาศสั่งงดเรียน-งดสอบทุกชั้น 3 วัน เซ่นปม 2 สถาบันยกพวกทะเลาะวิวาท
+-  'ปิยบุตร'ไม่รอด!! ตร.ส่งสำนวนความเห็นฟ้อง 2 ข้อหาปมจัดรายการคลัปเฮาส์
+-  'ศุภมาส'สั่ง'อุเทนถวาย-ปทุมวัน'หามาตรการป้องกัน เหตุยกพวกตีกันบนสกายวอล์กแยกปทุมวัน
+-  해외 게임유저, K-게임 월평균 지출액 42달러…선호 장르는 ‘퍼즐’
+-  ভোটারের চেয়ে ভোট বেশি দেখানো নকল ফলাফলের চিত্র সামাজিক যোগাযোগমাধ্যমে
+-  ইতিহাসের এই দিনে: প্রথম আইফোনের মডেল উপস্থাপন
+-  বেকেনবাওয়ারের মৃত্যুতে যেভাবে শোক জানালেন মেসি
+-  На Алтае нашли мертвым 16-летнего подростка
+-  Énième rebondissement dans l’affaire Delon : Alain-Fabien attaque sa sœur Anouchka
+-  אפל הכריזה: משקפי ה-Vision Pro יגיעו לחנויות בחודש הבא
+-  רייטינג: עידו רוזנבלום ומונית הכסף פתחו עונה, הפטריוטים נותרו מאחור
+-  תנועת האיחוד החקלאי בדרישה מהממשלה: "החזירו את הפועלים הפלסטינים"
+-  海關港珠澳大橋口岸檢1000萬元走私黃金 拘澳門男司機
+-  Bitcoin достигна $47 000
+-  10 Largest Airports in the World; One Almost Half the Size of Jakarta
+-  Schaatsbaan Voorthuizen gaat vandaag om 12.00 uur open
+-  This is our Cyprus
+-  Onlinesuper Picnic haalt honderden miljoenen op bij investeerders
+-  FNV en NS bereiken 'redelijk' cao-resultaat, leden nu aan zet
+-  Parlement Zuid-Korea verbiedt handel in hondenvlees
+-  Dodental aardbeving Japan loopt op tot boven de 200
+-  Aandacht voor chipbedrijven op Damrak na cijfers Samsung
+-  Saudi Arabia tries to thread the needle between crude output, prices: Russell
+-  Saint-Louis : 500 autorisations de pêche mauritaniennes remises aux pêcheurs
+-  오비고, CES 2024서 ‘오비고 데일리 브리핑 포털’ 공개
+-  위세아이텍-이안프론티어, STO 맞손…“AI 기술력으로 시장 선점할 것”
+-  엑스잇비트, BTC ETF 최종 승인 기한 앞두고 기조 연설 진행
+-  레노버, CES 2024서 AI 기반 디바이스·솔루션 공개
+-  МВФ очаква световната икономика да нарасне с 3% през тази година
+-  – Selv synes jeg det gikk veldig bra mot ham, så jeg er fornøyd!
+-  টুয়েলভথ ফেল
+-  শেখ হাসিনাকে আওয়ামী লীগ নেতাদের ফুলেল শুভেচ্ছা
+-  ফেনীতে জামানত হারালেন পরাজিত সব প্রার্থী
+-  শীতে কাঁপছে চুয়াডাঙ্গা
+-  আয়ানের চিকিৎসায় ‘গাফিলতি’: স্বাস্থ্য অধিদপ্তরের তদন্ত কমিটি
+-  গণতন্ত্রের কফিনে শেষ পেরেক এই নির্বাচন, আন্দোলন চলবে: গণতন্ত্র মঞ্চ
+-  শাকিবের ‘দরদ’ এবং রাজের ‘কাজলরেখা’র মুক্তি পেছাল, কারণ…
