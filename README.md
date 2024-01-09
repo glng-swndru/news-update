@@ -1,51 +1,51 @@
 # Latest News
--  Gericht sucht weiter nach Motiv für Tötungsdelikt von Jestetten (D)
--  Bis Sommer 2026: Fabrizio Cavegn verlängert Vertrag bei Vaduz
--  Nagły zwrot w Sejmie. Posiedzenia odwołane?
--  שופט העבר אברהם קליין היה אורח הכבוד בטקס בחירת ספורטאים מצטיינים בהונגריה
--  יו"ר איגוד הכדורסל הודיע: "שתי עולות מהלאומית לליגת העל"
--  Muž z Krivian šoféroval pod zákazom, skončil v cele
--  BlueROV2 R4 Raspberry Pi 4 underwater ROV
--  Epstein dosyalarında yeni detaylar ortaya çıktı... Ucu Mossad'a uzanan skandallar!
--  Hizbullah'tan İsrail'e karşı saldırı
--  Ve sonunda! Fred resmen geri dönüyor
--  Fatih Camisindeki saldırı! Murat Kurum'dan geçmiş olsun ziyareti
--  Serbest bölgelerde ihracat arttı
--  Yarın okullar tatil mi? Son dakika 10 Ocak kar tatili olan iller hangileri?
--  Galatasaray Ekmas son 16 için parkede!
--  Japonya'daki 7.6'lık depremde can kaybı yükseliyor
--  İstanbul'da beklenen kar yağışı başladı
--  Kuru kayısıda 408 milyon 74 bin dolarlık ihracat
--  15 yılı geride bırakıp mutlu evliliğin sırrını çözen 6 ünlü çift
--  Diş fırçasını sakın ıslatmayın! Nedenini diş hekimleri açıklıyor
--  İsrail güçleri 9 Filistinliyi daha yaraladı
--  Yabani'nin Rüya'sı Simay Barlas estetiksiz hali ile şoke etti! İyi ki yaptırmış
--  Gazze'deki Sağlık Bakanlığı: Aksa Şehitleri Hastanesi'ne son 24 saatte 57 ölü getirildi
--  Ağız kokusuna macun etkisinde meyve! Sizden kaçmayacaklar
--  Galatasaray'a sürpriz gurbetçi: Efe Bayrak
--  Ukrayna'da cephe hattındaki siviller tahliye ediliyor
--  Yabani 17. bölüm izle tek parça! Yabani son bölüm izle kesintisiz, full!
--  İşgalci İsrail Han Yunus'ta kara saldırılarını genişletti
--  Школьники Запорожской области примут участие во всероссийской олимпиаде
--  La confianza del consumidor tuvo año récord; acumuló 12 meses de incrementos
--  Protesto da PSP com concentrações e carros parados mantém-se hoje
--  [오피셜] ‘또 리얼 블루’ 수원, ‘강등 못 막은’ 염기훈 감독대행에서 감독 승격… 계약기간 2년
--  키움 재계약 불발→윈터리그 폭격 '악동' 푸이그, 5년만에 빅리그 복귀하나..."탬파베이 관심"
--  Kako poboljšati mentalno zdravlje u 2024.
--  Pucnjava u Minesoti, stradale tri osobe
--  "Rekonstrukcija definisana porazumom, neće biti promjena u dva resora"
--  Elhunyt Benedek Miklós
--  Более 30 водителей в Петрозаводске будут искать свои авто на штрафстоянке
--  CM Jagan: కం టు తాడేపల్లి.. జొన్నలగడ్డ పద్మావతిపై జగన్ ఆగ్రహం
--  เที่ยวทำบุญ 9 วัด ศิลปะพม่า เมืองลำปาง พร้อมกิจกรรมสร้างบุญกุศล รับต้นปี 2567
--  Bahnpoststempel der Region: "Seltener als eine Mauritius"
--  Polizeibericht zu den Versammlungen der Landwirte
--  Beim Verkehrsunfall in Arnstein überschlagen und verletzt
--  Пекин заявил о непринятии чьей-либо стороны в конфликте на Украине
--  Hàn Quốc chính thức cấm thịt chó, người vi phạm có thể ngồi tù hoặc lĩnh án phạt gần 600 triệu đồng
--  Fälle von Dengue-Fieber haben sich innert zwei Jahren verzehnfacht
--  Shabu sa saging na planong ipuslit sa piliitan, nabuking sa Minglanilla, Cebu
--  Oito institutos e o CEIP de Barcelos súmanse á iniciativa dos Clubs de Lectura
--  И ТИЕ ЌЕ ВОЈУВААТ: Украина купува 50.000 женски воени униформи
--  Woman arrested after extorting €430,000
--  Popüler Analist il Capo, Bitcoin Spot ETF Onayı Ufukta Görünürken Solana (SOL) ve BNB’nin Durumunu Değerlendirdi
+-  ด่วนที่สุด! เปิดความเห็น‘กฤษฎีกา’ เตือนชัดๆ‘กู้มาแจก’เงินหมื่นดิจิทัล
+-  لهذا السبب.. أبل تدفع تعويضات بقيمة 500 مليون دولار لعملاء آيفون
+-  [속보] 토트넘 메디컬 '최종 단계' 돌입!→겨울 '1호 영입' 확정...데뷔전 '맨유 OT 원정' 유력
+-  사강, 오늘(9일) 남편상…"슬픔 속 빈소 지키는 중" [공식입장]
+-  B12, Omega 3 ve demirden zengin vegan beslenme önerileri
+-  'Antalya'ya 1 kişi lütfen!' İşte turizm şehrine en az turist gönderen ülkeler
+-  SGB ve SGC 10 Ocak Çalışan Gazeteciler Gününü Kutladı
+-  Jonathan Majors Breaks Silence on His Domestic Violence Conviction
+-  Mick McCarthy tried selling me to Shrewsbury and made me train alone – three years later I was playing for England
+-  DA lays criminal charges against Nzimande after wasted chance to clear the air
+-  SAA spreads its wings with direct flights to Perth
+-  Yargıtay'ın meramı ne?
+-  Türkgözü'nde araç çıkışı arttı
+-  Beşiktaş'ta imzalar atılıyor! Fernando Santos dönemi başlıyor
+-  Cumhurbaşkanı Erdoğan'dan bıçaklı saldırıya uğrayan imama "geçmiş olsun" telefonu
+-  Hizbullah'tan Aruri misillemesi! İsrail'e kamikaze İHA'larla saldırı düzenlendi
+-  Eczacıbaşı Dynavit deplasmanda Vasas Obuda ile karşılaşacak
+-  Heniyye: İsrail, Gazze'de hiçbir hedefini gerçekleştiremedi
+-  Trabzon'da aşırı hız ve dikkatsizlik sonucu meydana gelen kazada 2 kişi öldü, 2 kişi de yaralandı
+-  Tin tức giải trí 9-1: Phát ngôn của hoa hậu Lương Thùy Linh bị phản ứng
+-  Bị tố xài dữ liệu trái phép, OpenAI kiện ngược báo New York Times
+-  Bengaluru CEO murders son, arrested while attempting to flee with body in suitcase
+-  AFCON 2023: Iheanacho ready to play, says Peseiro
+-  Dr. Ferhat Damkacı Gazetecilerle Buluştu
+-  Θεσσαλονίκη: Η στιγμή που ο πρώην σύντροφος της 41χρονης εγκύου μαθαίνει για τη δολοφονία της
+-  Başkan Zeydan Karalar, Atatürk’e hakaret edilen veteriner kliniğini ziyaret ederek, “yalnız değilsiniz” mesajı verdi
+-  Kovač: Dodik je dobio jasnu poruku. Ako krene odcjepljenje, intervenirat će svijet
+-  Jaime Jaquez Jr. devrait participer au Slam Dunk Contest !
+-  Κακοκαιρία: Κατολισθήσεις στη Χαλκιδική – Πλημμύρισαν δρόμοι και σπίτια
+-  Lázár János: minden bérlet megszűnik a vármegye- és az országbérleten kívül, 14 év alatt ingyenes lesz az utazás
+-  PM Modi, Micron CEO Discuss India's Semiconductor Manufacturing Ecosystem
+-  বাংলাদেশে যা ঘটছে, তার প্রতি নজর রাখছেন জাতিসংঘ মহাসচিব
+-  Diego Ulissi voert ‘heel sterk’ UAE Emirates aan in Tour Down Under, twee toptalenten maken debuut
+-  Bandırma'da Uyuşturucu Operasyonu: 4 Zanlı Yakalandı
+-  بالفيديو.. اكتشاف أنفاق سرية أسفل كنيس بنيويورك
+-  RP-Sanjiv Goenka Group's CESC Projects Gets 10,500 MT Green Hydrogen Plant Contract
+-  Bhubaneshwar To Organise Krushi Odisha-2024 From January 12-14
+-  ครม.เคาะร่างกม.อากาศสะอาด โทษผิดทางแพ่ง-ปรับพินัย
+-  หอการค้าชี้ Easy E-Receipt เงินสะพัด 6 หมื่นล้าน ดันจีดีพีโต 3 %
+-  Akcie zabrzdily, když se výnosy vracejí nahoru
+-  Νέος ισχυρός σεισμός μεγέθους 6 ρίχτερ «ταρακούνησε» την Ιαπωνία
+-  Bodrogi Gyula megtört hangon szólalt meg a tragédiáról: Benedek Miklós élete természetes volt, de a halála természetellenes
+-  Afsel Gugat Israel ke Mahkamah Internasional, RI Dukung Secara Moral
+-  Экс тренер немецкой сборной предложил присвоить Кубку Германии имя Беккенбауэра
+-  Israel Akan Hadapi Tuduhan Genosida Gaza di Mahkamah Internasional
+-  Hoopvol nieuws over Mohamed Ihattaren: ‘Hij is kilo's afgevallen en heeft spiermassa gewonnen’
+-  Δολοφονία στη Θεσσαλονίκη: Την έσφαξαν με κουζινομάχαιρο και πέθανε από ακατάσχετη αιμορραγία
+-  Grupo Valverde começa a gerir Palácio de Seteais
+-  Jokowi Bicara Saling Serang di Debat Ketiga, Mahfud: Tak Serang Personal
+-  ‘Worst thing I’ve ever seen!’ fume 24 Hours in Police Custody viewers after ‘hideous’ CCTV of man running over victim
