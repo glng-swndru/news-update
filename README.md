@@ -1,51 +1,51 @@
 # Latest News
--  عمالة الناظور تواصل ايوائها للمشردين والأشخاص في وضعية الشارع
--  WSJ сообщила, что США не одобрили план Залужного по наступлению в 2022-м
--  The Hidden Links Between The Beatles And Jimmy Page
--  Bajo índice de vacunados y más de 2 mil casos de Covid-19
--  O longo jejum que Middlesbrough e Chelsea tentam dar fim na Copa da Liga Inglesa e o que você precisa assistir pela ESPN no Star+
--  Mineirão fica perto de ser confirmado como sede da Supercopa do Brasil entre Palmeiras e São Paulo
--  Klopp me dhimbje koke, dëmtohet Alexander Arnold
--  Лавров выразил соболезнования главе МИД Ирана после теракта в Кермане
--  "Nećemo oklijevati da proglasimo nezavisnost RS, podržaće nas narod"
--  "Mandićeva čestitka za Dan RS je antievropska poruka"
--  Lista de juegos de Pokémon para Nintendo Switch (2024)
--  Natalie Portman says method acting is a ‘luxury that women can’t afford’
--  В секторе Газа убили один процент населения, заявил дипломат от Палестины
--  Солисту "Щенков" вручили повестку в военкомат
--  Mette Frederiksen bringes i spil til international toppost. Flere med indgående kendskab kalder hende for et oplagt bud
--  Mette Frederiksen bringes i spil til international toppost. Flere med indgående kendskab kalder hende for et oplagt bud
--  Umicore onderuit in rode Bel20
--  Keeping up with Nvidia, AMD announces the RX 7600 XT
--  Aktien Frankfurt Schluss: Dax stabilisiert sich vor US-Inflationsdaten
--  Commentaire vum Roy Grotz: D'Firma Lëtzebuerg an der Confortzon halen
--  ¿Sufres problemas de los riñones? Estos jugos te beneficiarán en tu salud
--  Einige Schulbezirke in Maryland werden wegen eines schweren Sturms am frühen Dienstag entlassen
--  Banco Atlântico inaugura espaço modular de auto-atendimento
--  Así es la casa que le regaló Ricardo Salinas a una de sus seguidoras
--  В ЕС не стали комментировать иск ЮАР в Международный суд ООН против Израиля
--  رئيس الدولة ورئيس الوزراء الهندي يشهدان تبادل عدد من مذكرات التفاهم بين البلدين
--  بعد دراسة مدتها 10 أعوام .. تطوير لقاح ضد حب الشباب
--  Überschwemmungen in Niedersachsen: Ticker vom 9. Januar zum Nachlesen | NDR.de – Nachrichten
--  Borsa svizzera: chiude in lieve rialzo, SMI +0,16%
--  Νέα πλάνα στη δημοσιότητα από μάχες Ισραηλινών στρατιωτών με άνδρες της Χαμάς στη Χαν Γιουνίς
--  Viral: un español quedó boquiabierto ante productos que no existen en su país
--  Villaescusa inaugurará este mes su primer Centro de Juventud
--  Inquilinos de Mendoza: "Seguimos en la lucha entre pagar alquiler o comer"
--  Закон про мобілізацію: названо дату голосування
--  Netflix sta pensando di rimangiarsi la parola un'altra volta, perché le cose belle non durano mai
--  Инвестициялар вазирига янги ўринбосар тайинланди.
--  Самарқандда икки нафар солиқчи қамалди.
--  Габриэл Аттал Франциянинг янги бош вазири бўлди .
--  Ғазога ҳужумни сусайтираётган Исроил, Россиянинг пулидан умид қилаётган Украина ва ит ейишга қарши курашаётган Корея — кун дайжести.
--  Air France hervat vluchten naar Israël, KLM nog niet
--  Ontario Gas Prices Are Set To Drop Tomorrow & It'll Be The Cheapest You've Seen In A While
--  Alan Wake is joining Dead by Daylight
--  Chinese online gaming billionaire is second-biggest foreign owner of US land
--  Расследование ЦАХАЛа: причиной гибели шести военнослужащих в Газе стала оперативная ошибка
--  Лидер оппозиции ФРГ призвал Шольца не тянуть с передачей ВСУ ракет Taurus
--  Occupazione in crescita: i numeri dell’Istat e l’effetto sui consumi
--  Auto, Roller oder E‑Bike bei Kälte: Worauf muss man achten?
--  Als Saboteur zum Brennerpass von Hans-Joachim Löwer
--  Nach Angaben des Gerichtsmediziners starb Sinead O’Connor eines natürlichen Todes
--  Don Lemon To Launch New Show On X
+-  Uluslararası Çocuk Savunma Örgütü: 2023 İsrail'in Filistinli çocuklara yönelik soykırım yılı oldu
+-  JN.1, the newest variant of COVID-19, is highly transmissible, says MoHP
+-  Himalayan Airlines receives IOSA certificate
+-  Ram Bahadur Bamjon arrested: CIB
+-  Govt. forms panel to probe power tariff dues
+-  RPP&#039;s Bista takes oath as Speaker of Koshi Province
+-  بلے کا نشان واپس نہ ملا تو ہمارے پاس پلان بی موجود ہے، بیرسٹر گوہر
+-  Siracusa, salta la commissione sul nuovo ospedale, pronta una mozione di censura al sindaco dopo la risposta tardiva all’interpellanza sui rifiuti
+-  Il massacro in Palestina (e il troppo silenzio)
+-  Navalnyj se sarkasmem vylíčil mrazivé poměry ve věznici za polárním kruhem
+-  Mercato - PSG : Luis Enrique en rêve, une star lâche sa réponse
+-  Judge Judy endorses Nikki Haley: 'I truly think she can restore America'
+-  2023 volt az eddigi legmelegebb a világon
+-  پی ٹی آئی انٹرا پارٹی انتخابات سے متعلق کیس کی سماعت کل 9نو بجے تک ملتوی
+-  Курс долара встановив новий рекорд в Україні
+-  Catriel y un nuevo equipo de recolección de residuos compuesto solo por mujeres
+-  «Η Ανόρθωση θέλει τον Τέρσιους Μαλέπε»
+-  “Vivere di Sorrisi” a Siracusa, calze della Befana, dolci e giocattoli donate in ospedale e nelle case di cura
+-  Mainoo và Garnacho đang thiết lập tiêu chuẩn mới tại Man Utd
+-  Alan Shearer ấn tượng với phong độ ghi bàn của Jarrod Bowen
+-  Mane tổ chức đám cưới với bạn gái lâu năm
+-  Le mariage de Sadio Mané crée une grosse polémique sur les réseaux sociaux (Photos)
+-  Rummenigge ist "schockiert": Angela Merkel bestürzt über Franz Beckenbauers Tod
+-  باريس: حجز ولد داداه في المستشفى من أجل الخضوع “لعلاج تكميلي”
+-  Kate Middleton, il regalo di compleanno di Re Carlo è senza fiocco: più potere a corte
+-  Corte de agua para el 10 de enero: ¿qué distritos serán afectados y desde qué hora?
+-  Inoue vs Nery reportedly agreed for May in Tokyo
+-  Ataque à Lei de Cotas ou o BBB?
+-  فيديو | المصري يهزم المقاولون العرب في كأس الرابطة
+-  LA Knight Believed He Was Getting Released From WWE in 2022, Delay for His Merchandise
+-  מחזור 13 בליגת העל: הפועל ירושלים - בני הרצליה 13:16 (רבע 1)
+-  Cultura otorga a El Hematocrítico la Medalla de Oro al Mérito en las Bellas Artes
+-  Pro Infirmis will Bussen für ÖV-Unternehmen
+-  Helsetilsynet: Flere barn på mottak får ikke forsvarlig omsorg
+-  Yle: Kolmatta varusmiestä epäillään turvallisuussalaisuuden paljastamisesta
+-  Final Fantasy XIV: Beta do MMO já tem data para chegar ao Xbox
+-  Presos desafían a presidente ecuatoriano y privan de libertad a custodios
+-  Anti-Corruption: ICPC, EFCC meet to strengthen working relationship
+-  Gazze'de kana doymuyorlar! İsrail'den ABD'ye skandal çağrı
+-  Blinken, Netanyahu ile görüştü
+-  Nijerya'da 11,2 milyon dolar değerinde fildişi imha edildi
+-  NASA Expected To Push Back Moon Missions
+-  Uluslararası Çocuk Savunma Örgütü: 2023 İsrail'in Filistinli çocuklara yönelik soykırım yılı oldu
+-  Một bài thơ cũ: Nhà thơ Lữ Kiều
+-  בעשרות מיליוני דולרים: דלינאה רוכשת את הסטארט-אפ אוטומייז
+-  הבינה המלאכותית בדרך לצה"ל: המערכת שתסייע לישראל בהמשך הלחימה?
+-  Star de la série "Fauda", l’acteur et chanteur Idan Amedi grièvement blessé à Gaza
+-  مخبر "لاباس": انطلاق برنامج مرافقة لـ15 من صاحبات أفكار المشاريع المجددة
+-  NASA expected to push back Moon missions
+-  Még az előkelők is a bokorban guggolva végezték a dolgukat - Ilyen volt a higiénia a versailles-i palotában
