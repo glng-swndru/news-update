@@ -1,51 +1,51 @@
 # Latest News
--  "سدايا" تدشن مشروع "عيناي" للكشف عن مرض السكري عن طريق الذكاء الاصطناعي
--  تحذير مهم من هيئة النقل: هذه قائمة المواد البريدية المحظورة
--  대통령실 "이태원 특별법, 여야 합의없이 또… 유감"
--  민주 "이재명, '성희롱 발언 논란' 현근택 윤리감찰 지시"
--  قائمة برشلونة للسوبر الإسباني
--  Ubezpieczenie od utraty zysku – dlaczego warto zabezpieczyć swoją firmę?
--  হোয়াটসঅ্যাপে সহজে কল রেকর্ড করবেন যেভাবে
--  El complicado panorama que deja la recaudación en Mendoza para las paritarias
--  Policja ma już nakaz doprowadzenia Wąsika i Kamińskiego. Nie wiadomo jednak, gdzie byli posłowie są
--  আইএমএফের লক্ষ্যমাত্রা পূরণ করা সম্ভব নয়: অর্থমন্ত্রী
--  Gold price per tola gains Rs300 in Pakistan
--  Južná Kórea reaguje na provokácie, plánuje obnoviť cvičenia v nárazníkovej zóne
--  มหาสารคาม "ปัดกวาดบ้านตัวเอง" จับพ่อค้ายาบ้า ซื้อเม็ดละ 12 ขาย 18 บาท
--  737 MAX : Boeing rattrapé par les failles de son contrôle qualité
--  Bahnstreik News 2024: Aktuelle Nachrichten im Newsticker
--  Robert Habeck News 2024: Aktuelle Nachrichten im Newsticker
--  Caring for Marbella’s environment
--  أنصار فلسطين يستعدون لـ "يوم التحرك العالمي" للمطالبة بوقف الحرب ضد غزة
--  Legendärer Baumeister Valentin Ceconi prägte ganz Salzburg
--  Encuentran en un patio la puerta de un Boeing que se desprendió en pleno vuelo en los Estados Unidos
--  Warszawskie indeksy próbują odbicia
--  Florian Silbereisen News 2024: Aktuelle Nachrichten im Newsticker
--  Αστυνομικός ήρωας σώζει ένα μικρό αγόρι από πνιγμό - Έμεινε ένα κομμάτι κέικ στον λαιμό
--  Meeks: S nákupy technologických akcií není kam spěchat
--  "Ti nikad nisi platila porez, a napravila si milione" Pevač udario na Nadu Topčagić, ona pocrvenela: "SRAM TE BILO!"
--  Unity inicia 2024 demitindo 1,8 mil funcionários
--  Verstorbene Stars News 2024: Aktuelle Nachrichten im Newsticker
--  Golf legend Tiger Woods says Nike partnership ending
--  Galaxy Tab S6 Lite (2022 model) gets One UI 6 update in India
--  Placas-mãe AMD AM5 recebem atualização com suporte aos CPUs Ryzen 8000
--  كأس أمم إفريقيا 2023: المنتخب المغربي يخوض أول حصة تدريبية بكوت ديفوار
--  Notaires : ONB limite la casse grâce à sa diversification
--  Ascott, C-WELL acquire lodging property, to relaunch under lyf brand with equal stake
--  Katalin hercegnéről sosem látott fotót tett közzé a palota: 42. szülinapja alkalmából így köszöntötte Károly király
--  Φέρντιναντ: «Ο Σομποσλάι είναι υπερεκτιμημένος»!
--  STI rises 0.3% amid hopes of slowing US inflation, rate cuts
--  Bayern zainteresovan za Kevina Dansa iz Lensa
--  Πρόσκληση στην Ετήσια Τακτική Απολογιστική Γενική Συνέλευση των μελών του Αθλητικού Σωματείου ΑμεΑ Ν. Ημαθίας «ΑΙΓΕΣ ΒΕΡΓΙΝΑ»
--  Cha mẹ đừng kìm hãm sự phát triển của con vì những điều nhỏ nhặt
--  Trấn Thành: Để bán vé tôi hoàn toàn có thể mời Mono, HIEUTHUHAI thay vì Tuấn Trần
--  Thủ môn Kim Thanh đón Tết lớn, cổ vũ tuyển Việt Nam tại Asian Cup qua TV 98 inch
--  Cận Tết đi tiêm tai tài lộc để đổi vận giàu sang trong năm mới: BS thẩm mỹ khuyên làm 3 việc trước khi tiêm
--  Vừa mở bình chọn, WeChoice Awards 2023 đã chứng kiến cuộc “đại chiến” của các rapper, nghệ sĩ Gen Z tại hạng mục Giải trí
--  Cảnh báo chiêu thức mới giúp hacker "xâm nhập" tài khoản Google và đánh cắp dữ liệu mà không cần mật khẩu
--  Une bonne fois pour toutes, on a dépassé la Borne
--  Guinée : Dr Makalé Traoré et son équipe se retirent de la gestion du cadre de dialogue…
--  Fernando Santos'un imza töreninde gergin anlar yaşandı
--  İstanbul'a yılın ilk karı düştü! Trafik kilitlendi
--  Nazlı Sabancı elbisesiyle alay konusu oldu!
--  Israel. Borrell anuncia compromisso para solução de dois estados
+-  Google-backed MathGPT sets record, beats ChatGPT and Microsoft AI models
+-  Se van Funcionarios
+-  Börse Frankfurt-News: "2024 startet bemerkenswert, aber Vorsicht" (pfp Advisory)
+-  Post muss sparen und baut Stellen ab
+-  Ankara'ya kuvvetli yağış geliyor
+-  Murat Kurum, bıçaklanan Fatih Camisi imamı Usta'yı hastanede ziyaret etti
+-  AK Parti İBB başkan adayı Kurum'dan İSTOÇ'a ziyaret
+-  Gazze'de can kaybı 23 bin 210'a yükseldi
+-  Emekli Memur-Sen'den emekliler için seyyanen zam talebi
+-  CHP Bursa'dan BUSKİ iddialarına dair açıklama
+-  Havalimanları acil durumlara karşı hazır
+-  Bursa'da kamu hastaneleri 2023'te 15 milyon 879 bin 243 muayene hizmeti verdi
+-  Pet şişedeki su insan sağlığı için tehlikeli binlerce nanoplastik içeriyor
+-  Bariyere çarpan otomobil parçalandı: 2 ölü
+-  Zonguldak'ta otomobilin çarpması sonucu felç kalan köpek yürüteçle hayata tutunuyor
+-  İzmir'de bir kadın, tartıştığı eşini bıçakla öldürdü
+-  Bluntautal und Tauglgries sind EU-Schutzgebiete
+-  الصفدي يدعو مجلس النواب للانعقاد غدا الأربعاء
+-  تراجع المؤشر الأردني لثقة المستثمر 5.6% خلال الربع الثالث من 2023
+-  بريطانيا تستعد لمزيد من الثلوج... وتحذيرات من فيضانات
+-  Vertrouwen Amerikaanse kleine ondernemers stijgt
+-  Haas F1 'ne serait plus là' sans le plafond budgétaire
+-  Секирово (Раковски) започва утре вечер
+-  Eliminan obstáculos en calles de Tlaxiaco
+-  Tuesday's analyst calls: Netflix downgraded by Citi, Deutsche sees more upside for JPMorgan Chase
+-  Ўзбекистонда энг кўп оилавий корхоналар қайси ҳудудда ишлаётган маълум бўлди.
+-  Амрилло Иноятов янги лавозимда иш бошлади.
+-  التيار يطعن في التمديد لقائد الجيش
+-  Grondstoffen uitgelicht: olie nog steeds in mineur
+-  Österreich verliert EM-Generalprobe gegen Island
+-  Kodiak Copper Corp.: Kodiak Copper - Jährlicher Investorenbrief
+-  LCK 17일 개막… 우승 후보 1순위 꼽힌 팀은 T1
+-  Lewis Hamiltonista sensaatiomainen väite - pelkkää bluffia?
+-  Les actions en mouvement : du bon chez Trigano et Nexans tandis que Grifols s'écroule
+-  ‘Only five in SA ‘ – BMW Alpina B3 limited edition spotted in Pietermaritzburg [photos]
+-  Biden regering vaardigt regel uit die "gig" werk, contracting aan banden kan leggen
+-  L'amministrazione Biden emette una norma che potrebbe limitare il lavoro 'gig', il contracting
+-  El gobierno de Biden publica una norma que podría frenar el trabajo 'gig' y la contratación
+-  Biden-Regierung erlässt Regel, die "Gig"-Arbeit und Auftragsvergabe einschränken könnte
+-  Calzaleón aprovecha errores de la escuadra de Ocotlán
+-  لجنة المال غيّرت مشروع الموزانة... من كارثي الى اكثر انصافًا
+-  Un articol despre orientarea sexuală a cântăreţei Taylor Swift a stârnit furie printre fanii vedetei: „Este intruziv şi deplasat”
+-  Lolos ke Babak Kedua Malaysia Open 2024, Fajar / Rian Hadapi Ganda Taiwan yang Dua Kali Kalahkan Mereka
+-  Litauische Firma wird Betreiber von vier deutschen LNG-Terminals
+-  Aktien Europa: Schwäche setzt sich fort
+-  Trabzon'da feci trafik kazası: 2 ölü!
+-  Apgavo sukčiai – nenuvežė siuntinio, apgavo dėl buto nuomos, įsigijo telefoną
+-  REL: Mësuesit shfrytëzojnë pushimet pa pagesë
+-  Manoj Bajpayee Reveals He Was Mocked For His Broken English; 'They Used To Fall Down Laughing'
+-  China aprende de la sanidad de Castilla-La Mancha
