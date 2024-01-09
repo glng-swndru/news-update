@@ -1,51 +1,51 @@
 # Latest News
--  [오피셜] 토트넘, 티모 베르너 임대 영입 완료… ‘등번호 16번+완전 이적 조항 포함’
--  Pete Davidson Transcends His Tabloid Persona in New Netflix Special
--  More homes under threat as Victoria’s flood focus shifts to Goulburn River and Shepparton
--  España se compromete a reasentar hasta 1,200 refugiados en 2024
--  Polícia prende irmãos condenados por tráfico internacional de drogas em Mato Grosso
--  Salernitana, Fimmanò: "Palomino sembra Passerella, sarebbe una grandissima intuizione"
--  "ميتا" تفرض قيودا جديدا على المحتوى المخصص لهذه الفئة بتطبيقي فيسبوك وإنستجرام
--  خطوات الاستعلام عن تأمين مركبة بالهوية والرقم التسلسلي عبر "أبشر وتوكلنا ونجم"
--  عاجل.. حساب المواطن: إيداع الدعم المخصص لشهر يناير "شاملاً الدعم الإضافي"
--  Obradovic'ten Fenerbahçe sözleri!
--  El Palencia CF firma a Javier Álvarez de los Mozos
--  Bent Winther om pludseligt brud på årelang tradition: »Kun Gud mangler, for at partiet har fuld plade«
--  Bent Winther om pludseligt brud på årelang tradition: »Kun Gud mangler, for at partiet har fuld plade«
--  La “sanadora” Leda Bergonzi fue repudiada en Chile por una polémica frase sobre el cáncer
--  Baldur’s Gate 3 players compile list of Hotfix 16’s bugged quest items
--  [노컷 리뷰]전편보다 나은 속편도 있다…'외계+인' 2부의 증명
--  [단독]2014년판 軍 정신교재도 "독도 영토분쟁"…10년째 깜깜
--  [르포] '밤의 도시' 라스베이거스의 아침을 깨운 CES
--  퇴원 앞당긴 이재명…이낙연 '탈당러시' 외면할 수 없었나
--  韓총리, '출산돌봄 문제' 최우선 해결 나선다…"저출산 각별히 챙겨야"
--  Anna Popek o planach na przyszłość. "Żal obciąża serce"
--  Mbape prevazišao i najbolje sapunice... Ništa od odlaska u Real!
--  Local flights not affected by grounding of Max 9s
--  Bayern veranstaltet Gedenkfeier für Beckenbauer +++ Leverkusens Boniface lange out
--  Dramatične razmere na Infekcijski kliniki: bolniki kar na hodnikih
--  Carlos Alcaraz: "Representar a España en los Juegos de París es mi sueño"
--  Forget lasagna, this creamy manicotti is your new favorite baked pasta
--  Western Australia divided over ‘shocking’ call to snub Cameron Bancroft in favour of Steve Smith and Cameron Green
--  భారత్‌ వికసిస్తోందా... ఏదీ, ఎక్కడ?
--  Democrat Rep. Dean Phillips draws zero supporters to outdoor New Hampshire event as challenge to Biden falters
--  Festival Emergencia Cultural contra el DNU: “Es un apagón en la producción de sentido”
--  Vídeo | Así fue la elección de Los Tukanes para abrir el desfile de comparsas de Badajoz
--  Nouveau cas de dengue autochtone à Tahiti : l’île toujours en alerte de niveau 2
--  9 Haircut Ideas to Add to Your 2024 Mood Board
--  معرض تشكيلي في مهرجان شتاء جازان 2024
--  «هدد الطير» من طرق تدريب الصقور
--  عيادات سعود الطبية تسجل 400 ألف موعد
--  المكتبة الوطنية.. تعزيز وجود المجلات السعودية عالمياً
--  استخدام ماء البصل للفشل الكلوي كذبة.. مختصون لـ«البلاد»: «رسائل التواصل».. علاج وهمي
--  الخريف: المملكة محط أنظار العالم في مشاريع التعدين
--  منشآت: تطبيق الذكاء الاصطناعي بقطاع العمرة
--  السعودية تتصدر الاستثمار الجريء
--  Catalyst Pharmaceuticals, Inc. Announces Closing of Public Offering
--  “التجارة” تدعو لتعديل عقد تأسيس الشركات
--  “انطلق نحو المستقبل”.. ملتقى برعاية الراجحي.. دور فعال ومؤثر لبنك التنمية الاجتماعية في مسيرة التنمية
--  12 مليار دولار قيمة سندات الإصدار الدولي للمملكة
--  تعزيز الطاقة الكهربائية للمشاريع الصناعية الحديثة
--  Myriad Genetics Applauds New Germline Testing Guideline for Patients with Breast Cancer from ASCO-SSO
--  خدمة مسافر بلا حقيبة.. السلامة والراحة وانسيابية الحركة
--  أمير المدينة المنورة يطلع على مشاريع خدمة الزوار
+-  الجمعية العامة تناقش خطورة استخدام الفيتو بشأن غزة
+-  قوات الاحتلال تقتحم مدينة جنين
+-  PRI-Coahuila insiste: PAN incumplió compromiso de obtener 20% de votos; ponen en riesgo triunfo de Xóchitl
+-  بطلة Spider-Man ضاقت ذرعا من تصرفات اللاعبين الذين "تجاوزوا الحدود"
+-  الكشف عن المقدمة الرسمية لمسلسل 3 Body Problem
+-  Petro aprovechará visita a Chile en enero para reunirse con el presidente de Panam Sports
+-  Kate Middleton and Princess Mary of Denmark are queens-in-waiting with much more in common than style. Take a look.
+-  الجوف ..نمو ملحوظ في السجلات التجارية خلال 2023
+-  بيكيه يعلن عودته للملاعب كمدرب
+-  نمو في تسجيل قاعات الأفراح بمكة.. أسباب انتعاش القطاع والأسعار
+-  الحدود الشمالية.. القبض على شخصين لترويجهما الإمفيتامين المخدر
+-  Vukovarska policija traži još dvojicu zbog premlaćivanja mladića: Uhićeni već imaju podeblji dosje
+-  Napisao hit kojeg Hrvati obožavaju, a onda nestao: Evo što danas radi Zoran Jelenković
+-  Aumentan medidas de bioseguridad en el Hospital de Maturín por aumento de casos Covid
+-  Jovem atropelado por motorista embriagado em SP acorda de coma
+-  Pentagon-Chef gibt Krebsdiagnose bekannt
+-  As Widodo visits PH, Migrante Philippines urge: Listen to the Veloso family’s plea, #FreeMaryJaneVeloso
+-  Adalet Bakanlığı'ndan Dilan Polat açıklaması: İddialar gerçek dışı
+-  La Bolsa de Buenos Aires cierra con una caída del 2,90 %
+-  نائب رئيس جامعة السادات يتابع سير الامتحانات بكلية التجارةاليوم الثلاثاء، 9 يناير 2024 08:25 مـ
+-  ضبط مصنع لتعبئة ملح الطعام دون ترخيص ببرج العرباليوم الثلاثاء، 9 يناير 2024 08:29 مـ
+-  «الأرصاد» تحذر من انخفاض في درجات الحرارة غدًا الأربعاءاليوم الثلاثاء، 9 يناير 2024 08:08 مـ
+-  عمرو القماطي: مصر متصدرة الصف العربي الداعم لـ ثوابت القضية الفلسطينيةاليوم الثلاثاء، 9 يناير 2024 08:32 مـ
+-  Hot Mic: Journos Caught Giggling Up a Storm About Trump Being Assassinated
+-  В Белом доме продолжают выступать против прекращения огня в Газе
+-  Britons Opt to Sit in the Cold as Worries About Bills Persist
+-  Fortrea Establishes Industry Partnership with Veeva and Advarra to Streamline Patient and Site Clinical Trial Experience
+-  Silahlı saldırganlar canlı yayını bastı: Çok sayıda gazeteci ve çalışan rehin alındı
+-  Encapuchados asaltan canal de TV en Ecuador – VIDEO
+-  Miunchene – užtikrinta „Real“ pergalė
+-  Arrestan 34 por robos, asaltos, estafas y tráfico de mercancías
+-  ChatGPT-maker braces for fight with New York Times and authors on ‘fair use’ of copyrighted works
+-  [1보] 국제유가 상승…WTI 2.1%↑
+-  Major winter storm hits much of southern, central Ontario
+-  Champions League: Civitanova inciampa in Romania
+-  Supercoppa di Spagna, Real Madrid-Atletico: l'analisi del match
+-  ¿Cuál es la capacidad del Estadio Azul? América, Cruz Azul y Atlante se disputarán allí el Clausura 2024
+-  Γλίτωσε την γκέλα και συνεχίζει να ελπίζει για 10άδα η Αρμάνι! (ΒΑΘΜΟΛΟΓΙΑ)
+-  Suspenden clases en Ecuador ante grave crisis de seguridad
+-  San Rafael de Laya, un pueblo secuestrado por el Tren del Llano (como muchos otros) en Guárico
+-  'Nepo baby' Ivanka Trump is mocked after praising husband Jared Kushner for telling people nothing is too 'hard' to achieve - as critics point out success is always easy 'when you're born into a family worth billions'
+-  رئيس الإكوادور: البلاد في حال «نزاع مسلح داخلي»
+-  Men armed with grenades and bombs seize state TV news studio in Ecuador and hold journalists hostage as cameras keep rolling broadcasting the scene to shocked nation
+-  Ilda Zhulali: Një nga kongresmenët në SHBA i ka kërkuar DASH, faktet për Berishën
+-  Минута мълчание в Бундеслигата в памет на Бекенбауер
+-  Министерот за одбрана на САД бил хоспитализитан поради рак, не кажувал дека е болен, а не знаел ниту Бајден
+-  مجلس الوزراء يعتمد قانون تجريم السـحر .. تعرف على العقوبات !
+-  Persona të armatosur sulmojnë studion televizive të Ekuadorit gjatë transmetimit të drejtpërdrejtë
+-  إنقاذ حياة شاب يعاني تضيق الصمام الأبهري
+-  Lunárny model Peregrine pre stratu paliva nemá šancu pristáť na Mesiaci
