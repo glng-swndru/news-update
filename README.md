@@ -1,51 +1,51 @@
 # Latest News
--  NASA expected to push back Moon missions
--  Pokemon VGC player reaches top 128 with “adorable” tiny Pokemon
--  Soccerladuma | Broos Reveals Major Injury Concern For Bafana
--  Soccerladuma | Official: Chippa Confirm New Coaches After Mammila Decision
--  Soccerladuma | Henry: I Was Crying Every Day
--  Soccerladuma | Salah To Reunite With Mane In Saudi Arabia?
--  Trump Lawyer Claims Presidential Immunity Covers Having Rivals Assassinated
--  90 Day: The Single Life fans defend Tyray after being stood up on date with Tiffany
--  Journées Économiques Maroc-France : la 6ème étape, du 23 au 25 janvier à Nantes
--  مجلس النواب يقر عددا من القوانين خلال جلسته التي عقدها بمدينة بنغازي.
--  انتشال مخلفات حرب من مزرعة جنوب طرابلس .
--  نادي ابوسليم يتعاقد مع لاعبين مغربيين لتعزيز الفريق الاول لكرة القدم .
--  جوازات حي الأندلس بطرابلس تصدر جوازات سفر للنازحين من المنطقة الشرقية بسبب الفيضانات..
--  Yüzünüze Bakıp Sağlık Sorunlarınızı Anlayacak "Sihirli Ayna" Tanıtıldı
--  TECNO, Oyun Odaklı Fiyat/Performans Telefonları POVA 5 Serisini Türkiye'de Satışa Sundu
--  Getting the most from social and labour plans
--  Beşiktaş'ta Serdar Topraktepe konuştu! "Kulüpte kısmetsizlik var"
--  Bufete español acusa a José Brito y otros exdiputados de desfalcar €1.100 millones #9Ene
--  JUHTKIRI | Kui streigiteravik tabab valitsuse asemel lapsi, on asjad halvasti. Ka õpetajad peavad seda oma pühas vihas mõistma
--  Sanwo-Olu Reiterates Continued Residents’ Improvement Through Empowerment, Education
--  Want to build a startup off OpenAI? Start here
--  Perú Libre pide al presidente del Congreso que exhorte a bancadas que acrediten miembros de comisión que investigará muertes en las protestas
--  Ganjar Pranowo Vows Nickel Smelter Moratorium If Elected President
--  Scorsese anunció que este año filmará una película sobre Jesús
--  Stockholmsbörsen backade – Nibe i botten
--  KPRM: urlop dla przedsiębiorców jeszcze w 2024 r.
--  Prognoza Banku Światowego: wzrost gospodarczy w 2024 r. spowolni
--  Deficyt handlowy USA nieoczekiwanie się zmniejszył
--  Litwa inwestuje w rozwój infrastruktury wojskowej
--  Konfederacja Lewiatan: nie ma obecnie większej przestrzeni do dalszych obniżek stóp
--  Tineco's two-in-one vacuum mop is a social media star. And it's $100 off at Amazon today
--  Bronnen melden: het gaat om meer dan alleen de rechtsstaat tijdens formatie driedaagse in Hilversum
--  মাদারীপুর-২: নৌকার কাছে পরাজিত ৩ জনই জামানত হারিয়েছেন
--  কারচুপির ভোটে হেরেছি: ইনু
--  ঝালকাঠিতে স্বেচ্ছাসেবক লীগ নেতাকে হত্যার ঘটনায় মামলা
--  Schaatsbaan van Edese IJsvereniging gaat om 19.00 uur open voor leden en introducees
--  Megvan, ki játssza a női főszerepet a Farkasember legújabb változatában, ami az olcsó, de nagyon sikeres horrorfilmek műhelyében készül
--  ঝিনাইদহে নৌকার সমর্থককে কুপিয়ে হত্যা
--  Starfield modders insist they haven’t given up on the game but need better tools
--  NPUs are officially useless — for now
--  Venatorx Pharmaceuticals and Menarini Group Enter Commercial Agreement for Cefepime-Taniborbactam in 96 Countries
--  PABLO AIR Unveils Innovative Versatile Drone 'FB04' at CES 2024
--  LG SHOWCASES LATEST INNOVATIONS AT CES 2024
--  Chieri in campo per l’andata dei play-off della Coppa Cev: al Pala Gianni Asti arriva il Police
--  Bonucci, niente ritorno in Italia...per ritrovare l'Italia: sarà Fenerbahce
--  Seconda giornata di Coppa Europa a Sestriere
--  Con Acqua Lete l'amore per il calcio diventa un inno
--  Linker Vision Leverages AWS, Together with Taiwan's Ministry of Digital Affairs, Kaohsiung City Government, to Showcase New Technology and Release of VisionAI Platform at CES 2024
--  World espies Azerbaijan as considered one of most tolerant international locations – veteran, honorary officer
--  Barella e Calhanoglu diffidati: le tre chances per non saltare Inter-Juve
+-  عمالة الناظور تواصل ايوائها للمشردين والأشخاص في وضعية الشارع
+-  WSJ сообщила, что США не одобрили план Залужного по наступлению в 2022-м
+-  The Hidden Links Between The Beatles And Jimmy Page
+-  Bajo índice de vacunados y más de 2 mil casos de Covid-19
+-  O longo jejum que Middlesbrough e Chelsea tentam dar fim na Copa da Liga Inglesa e o que você precisa assistir pela ESPN no Star+
+-  Mineirão fica perto de ser confirmado como sede da Supercopa do Brasil entre Palmeiras e São Paulo
+-  Klopp me dhimbje koke, dëmtohet Alexander Arnold
+-  Лавров выразил соболезнования главе МИД Ирана после теракта в Кермане
+-  "Nećemo oklijevati da proglasimo nezavisnost RS, podržaće nas narod"
+-  "Mandićeva čestitka za Dan RS je antievropska poruka"
+-  Lista de juegos de Pokémon para Nintendo Switch (2024)
+-  Natalie Portman says method acting is a ‘luxury that women can’t afford’
+-  В секторе Газа убили один процент населения, заявил дипломат от Палестины
+-  Солисту "Щенков" вручили повестку в военкомат
+-  Mette Frederiksen bringes i spil til international toppost. Flere med indgående kendskab kalder hende for et oplagt bud
+-  Mette Frederiksen bringes i spil til international toppost. Flere med indgående kendskab kalder hende for et oplagt bud
+-  Umicore onderuit in rode Bel20
+-  Keeping up with Nvidia, AMD announces the RX 7600 XT
+-  Aktien Frankfurt Schluss: Dax stabilisiert sich vor US-Inflationsdaten
+-  Commentaire vum Roy Grotz: D'Firma Lëtzebuerg an der Confortzon halen
+-  ¿Sufres problemas de los riñones? Estos jugos te beneficiarán en tu salud
+-  Einige Schulbezirke in Maryland werden wegen eines schweren Sturms am frühen Dienstag entlassen
+-  Banco Atlântico inaugura espaço modular de auto-atendimento
+-  Así es la casa que le regaló Ricardo Salinas a una de sus seguidoras
+-  В ЕС не стали комментировать иск ЮАР в Международный суд ООН против Израиля
+-  رئيس الدولة ورئيس الوزراء الهندي يشهدان تبادل عدد من مذكرات التفاهم بين البلدين
+-  بعد دراسة مدتها 10 أعوام .. تطوير لقاح ضد حب الشباب
+-  Überschwemmungen in Niedersachsen: Ticker vom 9. Januar zum Nachlesen | NDR.de – Nachrichten
+-  Borsa svizzera: chiude in lieve rialzo, SMI +0,16%
+-  Νέα πλάνα στη δημοσιότητα από μάχες Ισραηλινών στρατιωτών με άνδρες της Χαμάς στη Χαν Γιουνίς
+-  Viral: un español quedó boquiabierto ante productos que no existen en su país
+-  Villaescusa inaugurará este mes su primer Centro de Juventud
+-  Inquilinos de Mendoza: "Seguimos en la lucha entre pagar alquiler o comer"
+-  Закон про мобілізацію: названо дату голосування
+-  Netflix sta pensando di rimangiarsi la parola un'altra volta, perché le cose belle non durano mai
+-  Инвестициялар вазирига янги ўринбосар тайинланди.
+-  Самарқандда икки нафар солиқчи қамалди.
+-  Габриэл Аттал Франциянинг янги бош вазири бўлди .
+-  Ғазога ҳужумни сусайтираётган Исроил, Россиянинг пулидан умид қилаётган Украина ва ит ейишга қарши курашаётган Корея — кун дайжести.
+-  Air France hervat vluchten naar Israël, KLM nog niet
+-  Ontario Gas Prices Are Set To Drop Tomorrow & It'll Be The Cheapest You've Seen In A While
+-  Alan Wake is joining Dead by Daylight
+-  Chinese online gaming billionaire is second-biggest foreign owner of US land
+-  Расследование ЦАХАЛа: причиной гибели шести военнослужащих в Газе стала оперативная ошибка
+-  Лидер оппозиции ФРГ призвал Шольца не тянуть с передачей ВСУ ракет Taurus
+-  Occupazione in crescita: i numeri dell’Istat e l’effetto sui consumi
+-  Auto, Roller oder E‑Bike bei Kälte: Worauf muss man achten?
+-  Als Saboteur zum Brennerpass von Hans-Joachim Löwer
+-  Nach Angaben des Gerichtsmediziners starb Sinead O’Connor eines natürlichen Todes
+-  Don Lemon To Launch New Show On X
