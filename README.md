@@ -1,51 +1,11 @@
 # Latest News
--  In januari gratis racket bij Silver Shuttle
--  "لن ندفع ثمن مشكلة قرار إسرائيلي".. أكسيوس: الرئيس الإماراتي يرفض طلب نتنياهو
--  الاحتلال ينشر أسماء 5 جنود قتلوا في تفجير عبوة ناسفة وسط غزة
--  3 علامات تظهر في الفم تكشف نقص فيتامين ب 12.. احذرها
--  بعد تشغيلها بدون ركاب.. موعد افتتاح 5 محطات مترو جديدة بالخط الثالث
--  UPSC Success Story: Blind School Teacher Bagged AIR 48, Know All About Her Inspiring Journey
--  فريق بالأغلبية: حرمان اللجنة المؤقتة لصحافيين من البطائق المهنية وضع خطير ومقلق
--  الاتحاد العام لمقاولات المغرب يمنح "البريد بنك" علامة المسؤولية الاجتماعية
--  ابتدائية مراكش تؤجل النظر في شكاية دنيا بطما ضد سعيدة شرف و"ولد الشينوية"
--  زلزال بقوة 7,1 درجة يضرب جنوب الفلبين
--  توقيف الأساتذة يطغى على اجتماع الوزارة بالنقابات.. وهذه أبرز التعديلات الجديدة على القانون الأساسي
--  إيض يناير واحتفالية تيفلوين بتيزنيت من شغف الاحتفال إلى التطلع لصناعة ثقافية واعدة
--  Cameroun :: Crise Au Circb : Dg Ndjolo Alexis Accusé D'incurie Et De Privilèges :: Cameroon
--  민주, 비명계 현역에 친명 속속 도전장…자객 출마 논란 재점화
--  Весела Бабинова и Владимир Зомбори стават двойка и на сцената
--  Motif bunuh Zayn Rayyan diperinci bagi kesan pelaku
--  (VIDEO) Duvnjak: Kao kapetan reprezentacije obećajem da ćemo se bacati za svakom loptom
--  المهنيون يُحذرون من اشتعال أسعار الخضار في المغرب بعد توقف زراعتها بعدة مناطق بسبب الجفاف
--  Pemandu kejang kaki, Myvi rempuh stesen minyak
--  Police appeal to find missing mid Wales man
--  Merlin Rose: Neuer Workflow durch Streaming-Dienste
--  Why I Don’t Care About Peoples Opinions – IK Ogbonna
--  Dichter und Lenker: Goethe will in die Formel 1
--  Schiedsrichterinnen: Keine zweite Steinhaus und VAR in Sicht
--  Snapchat Bitmoji Avatar Feature: How To Create and Edit Bitmoji; Check the Steps
--  Поляк Романовский отреагировал на присвоение российского гражданства
--  Karner: Personaloffensive Bundespolizei – 2.500 Polizeischülerinnen und -schüler werden 2024 aufgenommen
--  OpenAI, la Commissione Ue mette sotto esame l’investimento di Microsoft
--  Nigeria welcomes release of Bazoum’s wife, son
--  Hakan Yağar kimdir, kaç yaşında? Hakan Yağar nereli?
--  Son dakika... İsrail, Hizbullah’a ait araca saldırdı: 3 ölü
--  "구인사, 잼버리 때 선한 영향력"…한동훈 '불심 잡기'
--  “Alexsandro, piomba la Roma! L’ultima idea per risolvere l’emergenza difesa”
--  Djokovic, il tennis trema. Ipotesi ritiro: “Ne vale davvero la pena?”
--  Rosalia da Champions: tra Immobile, Osimhen e Lautaro non ne sbaglia una
--  В Беларуси на фоне морозов побит рекорд потребления электроэнергии
--  시속 130km 토네이도 · 폭설…미, 연초부터 '피해 속출'
--  Calciomercato Torino, Radonjic verso il Monza: accordo vicino
--  تدريبات تأهيلية للمثلوثي في مران الفريق
--  Άκης όπως Μπάμπης: Η ανατομία δυο «τέλειων εγκλημάτων» - Οι ανατριχιαστικές ομοιότητες
--  IKANOS: How to put “Weight Loss” the last time on Resolution’s List. How 3 women managed to lose between 10 and 25 kg and maintain their weight
--  Na stanici Červený Kláštor namerali najnižšiu teplotu tejto zimy
--  Aké budú 13. dôchodky a koľko to všetko bude stáť? Ministerstvo práce zverejnilo svoje odhady!
--  Korupčnú kauzu exšéfa SNS vrátili späť na Špecializovaný súd
--  SLEDEĆA STANICA JE ISTANBUL: Crno-beli su u prvom delu srušili turskog velikana!
--  ΣΥΡΙΖΑ: Οι πολιτικές πρωτοβουλίες στα χέρια των στελεχών – Αμηχανία στην ηγεσία
--  Grundlægger overtager direktørposten i Astralis
--  Grundlægger overtager direktørposten i Astralis
--  Vorst genadeslag voor verdronken piepers, maar ‘Nederland springt er relatief goed uit’
--  Vorst genadeslag voor verdronken piepers, maar ‘Nederland springt er relatief goed uit’
+-  Λίλι Γκλάντστοουν: Είναι η πρώτη ιθαγενής Αμερικανίδα που βραβεύεται με Χρυσή Σφαίρα
+-  Cuba subirá más del 500 % la gasolina y el diésel
+-  Daños de siete millones contra fauna protegida en Pontevedra
+-  القسام: دمرنا دبابة ميركافا والنيران اشتعلت بها
+-  Судски совет по упадот во М-НАВ: Судовите се независни во одлучувањето
+-  إخلاء جثمان متوفى إثر سقوطه داخل حفرة بالزرقاء
+-  Минобороны рассказало о потерях ВСУ на двух направлениях
+-  Nachruf: Walter Streb ist gestorben
+-  Gemeinderat Heinrichsthal in Kürze
+-  Eifrige Blutspender in Dertingen ausgezeichnet
