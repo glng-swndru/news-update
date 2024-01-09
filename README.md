@@ -1,11 +1,11 @@
 # Latest News
--  Гоцевски: Нашиот пат кон ЕУ е најтажното но и најважното прашање за сите нас како општество
--  Morreu J.P.R. Williams, antigo jogador galês de râguebi, aos 74 anos
--  Juízes mostram ceticismo sobre imunidade de Trump na invasão do Capitólio
--  Imputaron en Viedma a uno de los adolescentes que robó y chocó un taxi, tras amenazar al chofer con un cuchillo
--  Rede Sinodal em Portugal. "Senti que fazia falta um espaço assim" na internet
--  Dakar: en la cuarta etapa Manuel Andújar, el argentino ganó en quads y pasó al frente en la general
--  بيانٌ عـاجـل لأبو عبيدة... هذه تفاصيله
--  Singer for The Feelers appears in court
--  Corrientes: evacuaron a 120 personas por los anegamientos en la ciudad de Mercedes
--  La cotizada moneda que alcanza el valor de hasta 4 MILLONES en el mercado
+-  Fox News and Trump Go Live Wednesday for First Time in 2 Years
+-  [ŽT] Tai genialu! Baigiasi 155 mm sviediniai. Ką daro Ukraina
+-  „FSB susprogdino Maskvą. Žuvo 307 žmonės, daugiau nei 1700 sužeistų.“ Generolas skelbia, ką padarė Putinas (Video)
+-  [ŽT] Maskva nusikėlė į akmens amžių. Gyventojai pakraupę (Video)
+-  [ŽT] Karą užbaigti galima per kelias valandas. „Visa Rusijos ekonomika sustingtų kaip ištikta insulto“
+-  Geriausia pasaulyje! Rusams tokia technika net nesisapnavo
+-  Lenovo'nun yeni dizüstü bilgisayarı Windows ve Android'i tek cihazda birleştiriyor
+-  هيئة البث الإسرائيلية: رفع درجة التأهب بالمستشفيات تحسبًا لاستقبال مصابين بالآلاف
+-  "حسد وعقبات وأخبار سيئة" تلاحق مواليد هذه الأبراج في أول 3 أشهر من 2024
+-  رئيس الموساد السابق: نتنياهو فشل في إخضاع حماس وعليه أن يرحل الآن
