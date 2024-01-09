@@ -1,51 +1,51 @@
 # Latest News
--  בשורה משמחת: שיפור במצבו הרפואי של עידן עמדי
--  נגיד בנק ישראל מובך: לא משתתף בישיבת תקציב 2024
--  הראל ביטוח ופיננסים: "שכר המינימום יעלה ב-6%"
--  מחפשים דירה בצפון? זו העיר שתתחדש במאות דירות
--  נועה קירל חוטפת מרון נשר: "אנה זק טובה פי 4"
--  רמי לוי שובר את השוק: אלו המוצרים שימכור ב-50% הנחה
--  הפרויקט החדש של ניב סולטן ומאור שוויצר: זה הסרט בו ישחקו יחד
--  חברת רשתות הלוויין חוגגת הישג: "הזכייה הזו תוביל לעסקאות נוספות"
--  Volkswagen legt bei Auslieferungen 2023 zu
--  Ruim half miljoen mensen bezochten Hoge Veluwe in 2023
--  Z BGK o odbudowie i modernizacji Ukrainy
--  Tauron: ponad połowa naszych mocy pracuje obecnie dla systemu elektroenergetycznego
--  Prabowo Bilang Dia Pintar atau Goblok, Waketum NasDem: Penilai Terbaik Ucapan itu adalah Rakyat
--  Ефимова: лучше буду без флага и гимна, но знаю, что я — за Россию
--  Activistas denuncian expulsión y arresto de inmigrantes en Túnez
--  Despite Denials, Pakistan Deported Afghan Refugees Waiting for US Resettlement.
--  DRDO Launches Indigenous Assault Rifle 'Ugram' For Armed Forces
--  EU Investigates Microsoft Investment In OpenAI
--  Relux Electric Signs Rs 330 Cr MoU With Tamil Nadu
--  السوبر الإسباني: برشلونة يضم المصابين كانسيلو وبيدري وإنييغو
--  I'm the 28-year-old mayor of my town and I had to live at home until I could buy a house
--  تحذيرات من الإصابة بـ«عضة البرد».. 7 طرق لمواجهتها في موجة الطقس القارس
--  شجرة عائلة الصحفي وائل الدحدوح.. تمتد جذورها إلى 4 دول منها مصر
--  الجيش الإسرائيلي يقتل فلسطينياً بزعم محاولته تنفيذ عملية طعن قرب رام الله
--  Semiembolsados aparecen dos cadáveres el segundo anillo de SPS
--  Russia to do ‘everything’ to halt Ukrainian shelling of Belgorod
--  France policemen on trial over 2017 assault of black man
--  31 People Trapped in Mount Lewotobi's Eruption Successfully Evacuated
--  KontraS Nilai Kasasi Jaksa atas Vonis Bebas Haris Azhar - Fatia Tak Ksatria
--  Tormenta en Córdoba: se abrió un nuevo socavón en la Ciudad y ya son seis en lo que va del 2024
--  Industry-Leading Franchise Consulting and Digital Marketing Firms Announce Strategic Investment
--  Study Shows Some Good News Out of an Increasingly Divided US
--  Lisboa ativa plano de contingência por causa do frio
--  NOW® Consumer Survey Unlocks Top Wellness and Health Priorities For 2024
--  В РФ утверждена трехлетняя программа госгарантий бесплатной медицинской помощи
--  Психолог Полина рассказала, как настроиться на трудовые будни
--  إصابة 59167.. ارتفاع عدد ضحايا العدوان على غزة لـ 23210 شهداء
--  Selenski kommt ans WEF +++ Russland inhaftiert weiteren US-Bürger
--  ضربة لتجار السموم.. الأمن يُفاجئ مهربي المخدرات بهذه المناطق
--  Francisco Rodríguez reitera que Nicolás Maduro y Juan Guaidó son culpables del embargo de Citgo
--  Reisende müssen mit Zugausfällen rechnen
--  Evo gdje gledati prve dvije utakmice Europskog prvenstva u Njemačkoj
--  Kornelia ze "Ślubu od pierwszego wejrzenia" zdradza, jakie ma relacje z teściową
--  Aerospace Additive Manufacturing Market May See Big Move | Major Giants Stratasys, EOS, 3D Systems, GE Aviation
--  ActionSA Queries eThekwini City Manager on Durban Metro Police leading MK Motorcade.
--  Nvidia ofron plane ditore për shërbimin cloud gaming GeForce Now
--  Água em garrafa de plástico pode conter cerca de 240 mil nanoplásticos
--  Paul George dans le Top 100 des meilleurs scoreurs de l’histoire : 17 151 points de smoothitude, ça se fête
--  Sparťany ve středu čeká první trénink, zatím i s Daňkem
--  RTX 4080 e RTX 4070 Ti não serão mais vendidas, confirma NVIDIA
+-  Nấu bàn tiệc Âu cho Shark Bình, Phương Oanh bị dân tình soi chi tiết "nhà giàu": tưởng mua ở Thái Công nhưng còn xịn hơn thế?
+-  Nỗi sợ của Công nương Kate
+-  „Sturm der Liebe“: So geht es ab Mittwoch, 10.1.2024 weiter – 5-Tage-Vorschau
+-  Političarka sa sindromom Down ušla u španjolski parlament: 'Želim da me ljudi vide kao osobu, a ne samo moj invaliditet'
+-  Bio Heal CBD Gummies Reviews (Amazon Customer Alert) Is Bioheal Blood CBD
+-  Rauva revela principais tendências que irão moldar o mercado das fintech este ano
+-  Podgorica: Uhapšen Bjelopoljac kod kojeg je nađeno skoro 1.500...
+-  [美뒤흔든 女가수에 “숨은 성소수자” 추측한 NYT 칼럼…근거 뭔가했더니
+-  [‘문화 대통령’ 서태지 ‘시대유감’, 2024 에스파 버전으로 나온다
+-  [뉴진스·아이브·(여자)아이들…걸그룹 전성시대였다
+-  Palmeiras define meia de criação como prioridade no mercado
+-  Com novidades, Vasco anuncia jogadores que viajam para o Uruguai
+-  Prođe i Božić, a pisma još nema: Kad će Srbija poslati pismo svim zemljama sveta o umešanosti jedne zemlje u izbore?
+-  صنعاء تتجه لمحاكمة إسرائيل دولياً
+-  La Financière de l’Échiquier: il Medio Oriente potrebbe agitare le acque dei mercati
+-  Bursaspor alt sıralardan kurtulamıyor
+-  Bursaspor'dan sürpriz ayrılık!
+-  Yunanistan ve ABD'den ortak askeri eğitim
+-  Uludağ'da beklenen kar yağışı başladı
+-  Sakarya'da yaşlı kadın, yangın çıkan evde ölü bulundu
+-  Kütahya - Bursa yolu geçici olarak kapatıldı
+-  Bingöl Karlıova'da biriken kar ilçe dışına taşınıyor
+-  دبي تستضيف أول قمة لصناديق التحوط بالمنطقة خلال 2024
+-  HLV Kiatisuk Senamuang nói chuyện với bầu Đức, nhận lời CAHN
+-  Ronaldo khoe 6 múi rõ mồn một, "dây điện" nổi đáng nể
+-  37 yaşındaki adam balkonda kanlar içerisinde ölü bulundu
+-  NÓNG! Chelsea ký mới hợp đồng với sao trẻ
+-  Douglas Luiz và bạn gái nóng bỏng "đốt mắt" dư luận
+-  Hủy diệt Jordan, Nhật Bản khiến Việt Nam run rẩy trước thềm Asian Cup
+-  Salah chơi ở vị trí tiền vệ trên tuyển Ai Cập
+-  Konya Büyükşehir 'Engelsiz Kent Konya Erişilebilirlik Master Planı Projesi'ni tanıttı
+-  Satus Gunung Marapi Naik Menjadi Siaga, Dilarang Berada dalam Radius 4,5 Kilometer dari Puncak
+-  Biletler saatler içinde tükenmişti... Scorpions, İstanbul'da bir konser daha verecek!
+-  За 40 млн тенге продал минфин Казахстана подаренный ему Bentley
+-  Ag. Bennacer: "Sta bene al Milan, ma l'infortunio ha condizionato il suo mercato"
+-  [CES 2024]최주선 삼성D사장 "올해 사업 'I AM Fine Q!'"...접히고, 돌리는 고화질 패널 공개
+-  Samardzic-Napoli, manca l'ultimo dettaglio. Da stabilire le commissioni per il padre: c'è ottimismo
+-  Karti Chidambaram served Congress' notice for praising PM Modi over Rahul Gandhi
+-  Fitch Ratings Unveils Global Corporate Macro and Sector Forecasts for January 2024
+-  «Не жалел для меня ничего». Казахстанский футболист растрогал своего отца дорогим подарком. Видео
+-  Sirene azzurre per Grant Basile
+-  Anderssons kritik mot Kristersson: ”Splittrande”
+-  Persaingan Grup F Piala Asia 2023: Arab Saudi dan Roberto Mancini Siap Dihadang Thailand, Kirgistan, Oman
+-  Ozempic: Die Zeit der Abnehm-Spritze ist vorbei
+-  Pronóstico del tiempo para este martes 9 de enero
+-  Scottish Government funds youth music to the tune of £1.5m
+-  Court denies bail to Mtarfa couple accused of abusing underage daughters
+-  स्वायत्त शासन विभाग के पूर्व मंत्री और विभाग में लगे सेवानिवृत्त कर्मचारियों को हटाया
+-  Kenya likely to borrow more as taxes fall behind target
+-  Yle: Ässä-ikoni Jesse Joensuu päättää pelaajauransa
