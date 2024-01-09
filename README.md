@@ -1,11 +1,51 @@
 # Latest News
--  Λίλι Γκλάντστοουν: Είναι η πρώτη ιθαγενής Αμερικανίδα που βραβεύεται με Χρυσή Σφαίρα
--  Cuba subirá más del 500 % la gasolina y el diésel
--  Daños de siete millones contra fauna protegida en Pontevedra
--  القسام: دمرنا دبابة ميركافا والنيران اشتعلت بها
--  Судски совет по упадот во М-НАВ: Судовите се независни во одлучувањето
--  إخلاء جثمان متوفى إثر سقوطه داخل حفرة بالزرقاء
--  Минобороны рассказало о потерях ВСУ на двух направлениях
--  Nachruf: Walter Streb ist gestorben
--  Gemeinderat Heinrichsthal in Kürze
--  Eifrige Blutspender in Dertingen ausgezeichnet
+-  עוגיות, מסטיקים, ו-25 ק"ג קנאביס: צעיר נעצר לאחר שכמות גדולה של סמים נמצאה בביתו
+-  Real Madrid meint es ernst mit dem Bayern-Star – dringende Bitte der Königlichen! | Sport
+-  Kick fires back at Elon Musk’s plans for live streaming on X/Twitter
+-  Người duy nhất được chôn cất trên Mặt trăng là ai?
+-  Tổng giám đốc Việt Á tự bào chữa về 'công chống dịch'
+-  Khó rút giấy phép công ty đầu mối xăng dầu vi phạm vì 2 bộ chưa thống nhất
+-  Trung Quốc cân nhắc áp thêm thuế quan lên hàng hóa Đài Loan
+-  Ümit Özdağ emniyetten kendisine gelen suikast bilgisini paylaştı
+-  Liebesbeziehung: Wegner schlägt neue Regeln im Senat vor
+-  Noch keine Klarheit über Verletzung von VfB-Stürmer Guirassy
+-  WHO: Unnötige Amputationen wegen Notlage im Gazastreifen
+-  Protest im Erzgebirge am Dienstag: Erneut mehrere Bundesstraßen gesperrt - Fahrzeugkonvoi am Landratsamt unterwegs
+-  Popsänger im Iran nach Lied über Kopftuchpflicht verurteilt
+-  Vogtland erlebt die kälteste Nacht seit Mitte Dezember 2022
+-  Staatliche Studienakademie in Breitenbrunn lädt ein zum Tag der offenen Hochschultür
+-  Tatverdächtiger nach Auseinandersetzung in U-Haft
+-  Sachsen will sich für Waldbrände besser rüsten
+-  Cómo crear un altavoz Bluetooth… ¿con cocos?
+-  مع اغلاق السوق.. ارتفاع جديد بأسعار الصرف في العراق
+-  Aksaray'da öğretmenin çocuğu darp etti iddiası
+-  Konyaspor'dan Şivlilik Çocuk Bayramı’na davet
+-  DÜŞMANININ MERHAMETİ İLE ZULÜMDEN KURTULAN YOK
+-  Palast gratuliert mit einem Bild der Krönung
+-  Evinde bıçaklanarak öldürülen kadının eşi tutuklandı
+-  Valorant players baffled as bizarre bug makes their skins disappear
+-  Управата за финансиска полиција врши проверки во М-НАВ
+-  Rencard : où emmener son date à Paris ? Les idées sorties dans la capitale
+-  Furto de fios volta a deixar Corpo de Bombeiros sem comunicação na fronteira
+-  PE Investments Registered Decline Of 26% In 9M FY24: Report
+-  Maldives Faces Backlash With #BoycottMaldives Trend, Over 8,000 Hotel Cancellations
+-  مجلس الوزراء يجدد رفض المملكة القاطع لتصريحات الاحتلال حول تهجير سكان غزة
+-  5 دورس تعلمها من فشل الشركات الناشئة
+-  مجلس الوزراء يوافق على الهيكل والدليل التنظيمي لوزارة المالية
+-  A99: Schwerverletzer bei Unfall mit drei Lastwagen - Erhebliche Verkehrsbeinträchtigungen
+-  Este miércoles habrá cacerolazo contra el apagón cultural y por la libertad de Nahuel Morandini
+-  Gynecologist Reveals the Best Way To Sleep for a Healthy Vagina
+-  Российское авторское общество предъявило иск к Киркорову
+-  Abnehmen: Karotten-Ingwer-Shake hilft bei der Fettverbrennung
+-  Halla-aho roimi Yleä IS:n tentissä: Syytti vasemmistolaisuudesta ja kannatti leikkaamista ankaralla kädellä
+-  Magic-skaperen tatt for å bruke AI-kunst
+-  Son 24 saatte 27 İsrail askeri yaralandı
+-  Japon sinemasının usta yönetmeni Yönetmen Shinya Kawatsura İstanbul'da
+-  Süper Lig'den 6 kulüp PFDK'ye sevk edildi
+-  AİLE 27. bölüm izle full! Show Tv Aile son bölüm izle kesintisiz! (Devin'in bebeği düştü mü?)
+-  Mısır Gazze için net mesaj: Ateşkes olmadan gelecekten söz edilemez
+-  Bursa'da 250'yi aşkın tarihi eserin ele geçirildi: 2 gözaltı
+-  Pallaksen lumivyöryn uhrien kuolin­ilmoitus julkaistiin – mukana kaunis runo
+-  Viti 2023 u mbyll me 10.1 milion turistë të huaj
+-  العيسوي يلتقي شيوخ ووجهاء عشائر الزبيد والبشابشة وفعاليات شبابية
+-  Las obras de urbanización de la avenida de Europa de Colloto estarán listas en dos semanas
