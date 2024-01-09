@@ -1,51 +1,51 @@
 # Latest News
--  스크린골프 더스윙제트, 정예광 프로와 파이널 테스트 진행
--  “WFA, ‘와이파이 인증 7’ 도입…‘와이파이 7’ 확산 견인”
--  델테크놀로지스, CES 2024서 ‘에일리언웨어’ 게이밍 노트북 2종 공개
--  메가존클라우드, 클라우드 관리 플랫폼 스페이스원에 ‘CSPM’ 추가
--  에퀴닉스, 프라이빗 AI 인프라로 기업의 경쟁력 강화 지원
--  이파피루스, ‘글로벌 문서 인프라’ 의지 담은 새 CI 발표
--  Myanmar will Tourismus wiederbeleben - trotz Bürgerkriegs
--  Lauterbach will Ärzten helfen - Mediziner fordern Wendepunkt
--  HARMAN Expands Road-Ready Product Portfolio at CES 2024
--  걸스인텍-AWS, 생성형 AI 기초 체험 교육 제공
--  국민연금 수급자 649만명, 올해부터 3.6% 더 받는다
--  김현준, 전정일, 원경희.. 총선 출격 앞둔 '세무인'들 분주
--  'ฝรั่งไส้แดง' หวานกรอบ อมเปรี้ยว ปลอดสารเด็ดกินที่ต้นได้เลย
--  'วราวุธ' เชื่อพรรคร่วมไร้ปัญหา หาก พ.ร.บ.กู้เงิน ตรงเงื่อนไข
--  อ่วมทุกเขต! กรุงเทพฯจมฝุ่น 'ธนบุรี-บางคอแหลม'หนักสุด กระทบสุขภาพ
--  ‘ทวี’แจงเหตุล่าช้า เผยอธิบดีราชทัณฑ์ส่งเรื่อง‘นช.ทักษิณ’รักษาตัวเกิน 120 วัน สัปดาห์นี้
--  여주도시관리공단 ‘여주도시공사’로 새롭게 출범
--  양평군립미술관, 하계훈 명예관장 취임
--  "자활기업이 연말 성금 5백만원 접수"
--  자동차세 연세 일시납... 5% 삭감 혜택
--  울진군 '교육발전특구' 지정 신청작업 들어가
--  '친환경활력센터' 연말까지 준공
--  대구 참여연대 "징계의원 의정비 감액·미지급 조례 필요"
--  [날씨] 내일까지 많은 눈…강원 산지 20cm 이상
--  Adani Green Secures $750 Mn In Repayment For Early Bond Redemption
--  Tuesday At Market: Gillette Glides Smoothly, EaseMyTrip, MMTC On A Bull Ride
--  UN experts demand accountability for sexual violence during Hamas assault
--  수원시, 주민참여예산 위원 공개 모집…"26일까지 신청"
--  Israel Shifts to Deadlier Strikes on Iran-linked Targets in Syria
--  Rural club cricket still has huge significance in SA cricket — Nqolo
--  Perinatal Mərkəzdəki yanğınla bağlı Baş Prokurorluğun İstintaq idarəsi əraziyə gəlib
--  Filmklassieker Purple Rain terug als theatervoorstelling
--  बांग्लादेश में शेख हसीना की जीत पर भारत खुश लेकिन अमेरिका क्यों टेंशन में?
--  “虚拟绑架”诈骗频发 海外中国留学生如何防范？
--  Inapam 2024: Cuáles son los descuentos a los adultos mayores con la tarjeta
--  新西兰航空今起国际机票大促销！飞中国大特价！
--  লেবাননে ’ইসরায়েলি হামলায়’ হিজবুল্লাহর সিনিয়র কমান্ডার নিহত
--  জামালপুরে পরিত্যক্ত জায়গায় মিললো মর্টার শেল
--  শীতের হিমে বাঙালির ঐতিহ্যবাহী স্বাদের পিঠা
--  총선 90일 앞으로…충북선관위, 선거법 위반 단속 강화
--  GÓC CHUYÊN GIA: Cần chuẩn bị gì trước khi nuôi cá tầm trong môi trường nước lợ
--  조선시대 후기 능행 활발…최대 6400명까지 행차
--  Guru SD di Yogya Diduga Lakukan Kekerasan Seksual Telah Dinonaktifkan
--  넷마블문화재단, 게임아카데미 8기 수료식 성료...창문프로젝트 작품 전시회 개최
--  Park halindeyken alev alev yandı
--  펄어비스, 'CES' 삼성디스플레이 부스서 '검은사막·붉은사막' 영상 시연
--  España - Primera División: Sevilla vs Alavés Fecha 20
--  이강화 세종대 교수, 45번째 개인전 '청연' 개최
--  '독일 축구 전설' 베켄바워 별세…향년 78세
--  제주도, '월 5만원' 아동건강체험활동비 10일부터 접수
+-  Prabowo Janji Tingkatkan SDM Pertahanan Siber, Pakar: Bisa Diberi Pangkat Seperti Deddy Corbuzier
+-  Saison terminée pour Ja Morant, blessé à l’épaule
+-  Без(крайните) закъснения: достатъчно локомотиви за влаковете ще има, но по-нататък
+-  EFCC Summons Suspended Minister Of Humanitarian Affairs
+-  Sabah namazı nasıl kılınır? Sabah namazı kaç rekat? Diyanet'e göre sabah namazı kılınışı!
+-  07.07 Saat Anlamı Nedir? 07.07 Çift Saatlerin Anlamı Nasıl Yorumlanır?
+-  Sabah namazı saat kaça kadar kılınır? Güneş doğduktan sonra sabah namazı kılınır mı?
+-  농심, 먹태깡큰사발면ㆍ포테토칩 먹태청양마요맛 선보여
+-  태영그룹 "필요하다면 SBS 주식 내놓을 각오 ... PF 부실 사업장 정리하겠다"
+-  국민연금·기초연금 3.6% 인상 … 노령연금 평균 '월 62만원→ 64만2320원'
+-  10 Kiat Bersepeda untuk Pemula
+-  Genève-Servette greift nach Europa
+-  하림 피플러스, 새해맞이 특별 기획전
+-  아모레퍼시픽미술관, 로렌스 위너 '갤러리 토크' 15일 개최
+-  현대카드, 1월 할인 및 캐시백 이벤트 진행
+-  한화 건설부문, 고위험 통합관제시스템 활용 안전보건 모니터링 강화
+-  부산은행, 주택담보대출 모바일뱅킹 대출이동서비스 실시
+-  쌍용건설, 아이티 태양광사업 수주 중남미 첫 진출
+-  롯데건설, 현장 중심 안전경영 본격화
+-  F5 Labs Publishes Digital Privacy and Security Threat Trends
+-  Samsung's AI for All vision at CES 2024: Transforming Daily Life
+-  SPC 던킨, ‘던킨 콤보’ 인기에 프로모션 1월 말까지 연장
+-  విశాఖ జిల్లాలో వైసీపీ నేతల వలసబాట
+-  SKT, CES 2024서 일상 바꾸는 AI기술 선보인다
+-  Assam: ISRO Chairman to visit Guwahati on January 17
+-  Omari Forson - Cầu thủ mới nhất được Ten Hag cho ra mắt là ai?
+-  Keane: “Ten Hag sẽ bị sa thải trong vài tháng tới”
+-  Dalot: Chiến thắng này không hoàn hảo
+-  Nelson gửi thông điệp đến Arteta
+-  Ten Hag: "Mục tiêu đó là quá xa vời"
+-  Dominik polisinden Survivor ekibine operasyon! Acun duyurdu...
+-  After Animal Javed Akhtar slams Shah Rukh Khan's Jab Tak Hai Jaan due to THIS strong reason
+-  Liiga­joukkueella tajuton tahti: 72 tuntiin peli Sveitsissä, Tampereella ja Raumalla
+-  “العابد” و”الباعور” ينسقان تنظيم سوق العمل
+-  United und Alaska Airlines finden lose Teile an Boeing 737 Max 9 Jets
+-  North Western railway recruitment 2024: Vacancy out for 1646 apprentice posts, apply online
+-  이낙연 신당, 광주전남 합류할 정치인은?
+-  장애계 신년인사회에서 만난 윤재옥-홍익표
+-  인사하는 윤재옥-홍익표
+-  檢, 유아인에게 마약류 처방한 의사 6명 무더기 기소
+-  대화하는 윤재옥-홍익표
+-  9개 교육청, 해외 한국교육원과 함께 유학생 직접 유치
+-  2024 장애계 신년인사회 참석한 윤재옥-홍익표
+-  충남 입학예정자 없는 초등학교 17개…"학교 통폐합"
+-  윤세영 "TY홀딩스·SBS 주식, 언제든 담보로 제공"
+-  Krieg gegen die Ukraine: So ist die Lage
+-  애플, 첫 MR헤드셋 ‘비전 프로’ 내달 2일 정식 출시
+-  Kannada actor Bharat Bopanna to debut in Tamil with Arun Vijay's Mission: Chapter 1
+-  Strawberries, pansies, fruit trees across Kyrgyzstan started blooming earlier
+-  Vì sao nhà đầu tư Mỹ lạc quan về việc Fed hạ lãi suất?
