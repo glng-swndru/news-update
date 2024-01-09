@@ -1,11 +1,11 @@
 # Latest News
--  أخبار السعودية.. 17 قرارًا مهمًا لمجلس الوزراء وبشرى حول قيمة الثروات المعدنية بالمملكة
--  أهم 10 منتزهات في عسير.. أيقونة الطبيعة والتاريخ تنتظر زوارها (صور)
--  3 نصائح للوقاية من أمراض القلب
--  عاجل.. وقت نزول حساب المواطن لشهر يناير وشروط الاستحقاق
--  حريق هائل يلتهم مصنعاً كبيراً في إيران وسقوط عدد من المصابين
--  19 متنزها وحديقة بعرعر لقضاء إجازة منتصف الفصل الدراسي الثاني.. تعرف على أفضل 7 منها
--  أغرب حادث سيارة في عمان (فيديو)
--  عاجل.. توجيه مهم من حساب المواطن لحاملي بطاقات التنقل
--  أكاديمية الطاقة والمياه تعلن عن فرص تدريب وتوظيف
--  الإطاحة بمواطن في الجوف لترويجه أقراصا مخدرة
+-  İşgalci İsrail askeri katlettiği Filistinlinin üzerinden araçla geçmişti... Filistin tepki gösterdi
+-  İsrail işgali Filistinlileri Refah'a sıkıştırdı... Nüfus 280 binden 1 milyona çıktı
+-  Bakan Güler, Ukrayna'nın Ankara Büyükelçisi'ni kabul etti
+-  Gelişkin X-ışını donanımlarına sahip... Çin, "Einstein" astronomi gözlem uydusunu fırlattı
+-  Andreas Wutte amüsiert mit "Rote Ohren" im Fuchspalast
+-  ריאל מחכה לאתלטיקו: "הם פגעו בנו בדרבי הקודם, הסקנו מסקנות"
+-  [김해시, 주민숙원사업 북부우회도로 전 구간 개통 완료
+-  Helicóptero desaparecido em SP: Quais as pistas sobre o paradeiro das vítimas?
+-  Afganistan'da bombalı saldırı! En az 3 kişi öldü
+-  Fatih Camii imamına bıçakla saldırmıştı! Olayda yeni gelişme
