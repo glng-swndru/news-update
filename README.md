@@ -1,51 +1,11 @@
 # Latest News
--  Handball-EM 2024: Warum das Schweiz-Spiel für Deutschland extrem wichtig ist
--  "شاملاً الدعم الإضافي".. حساب المواطن: إيداع الدعم المخصص لشهر يناير
--  وزير الإعلام يُدشّن باب التسجيل في المنتدى السعودي للإعلام بنسخته الثالثة
--  واشنطن.. إطلاق نار بالقرب من البيت الأبيض ومقتل شخص
--  الدوريات البرية لحرس الحدود تحبط تهريب كمية كبيرة من الأقراص المخدرة بجازان
--  "دعوات بالخير والبركة".. ردود فعل واسعة بعد إيداع دفعة يناير في حساب المواطن
--  بعد إيداع دفعة يناير .. تنبيه مهم من حساب المواطن بشأن تحديث البيانات
--  بعد إيداع دفعة يناير .. حساب المواطن : الدعم مستمر حتى هذا الموعد
--  '日 구원왕들과 험난한 경쟁' 고우석, SD 주전 마무리 꿰찰까
--  '고맙다, 디펜딩 챔프' 꼴찌 KB손해보험, 그래도 대한항공에는 강하네
--  K리그 이적 시장 '폭풍의 눈'…전북·대전의 광폭 행보
--  회사 파일 4천개 '순삭'…어느 쇼핑몰 직원의 수상한 퇴사
--  태영건설 위기 부른 '빚의 네트워크', 어디서 터질지 모른다
--  Missies met bemanning naar maan uitgesteld
--  President: Ecuador in staat van intern gewapend conflict
--  Vliegtuigbouwer Boeing opnieuw in de min op beurzen New York
--  Toezichthouder VS akkoord met beursgenoteerde bitcoinfondsen
--  Mininter da 24 horas para detener a autores de robo a agentes de seguridad del Estado
--  Quedan cargas varadas por nieve en carreteras
--  Urgen a que arranque aeropuerto de Creel
--  Übersicht: Anzahl der Episoden des Winter-Anime 2024
--  مجلس النواب يوافق على دعوة محافظ المصرف المركزي لتقديم إحاطة عن السياسة النقدية
--  Bakıda həbs olunan casus Fransa gündəmində
--  Son dakika... Çorum'da deprem: AFAD verileri duyurdu
--  Produce suscribe convenio con ANGR para promover desarrollo de mypes en el país
--  Espanja | Maskipakko astuu jälleen voimaan sairaaloissa
--  الفريق الرويشان: تصريحات وزير الخارجية الأمريكي محاولة لحرف الرأي العالمي عن غزة
--  21 Savage’s New Album ‘American Dream’: Everything To Know Including The Release Date, Tracklist & More
--  Adan Canto, 'Designated Survivor' and 'The Cleaning Lady' Star, Dead at 42
--  Was there a sprite called a Cornish Knocker? What creatures from folklore have we forgotten?
--  Moment brazen couple take over local Indiana coffee shop to host impromptu WEDDING - as furious owners say bridal party blocked other customers from entering, left them to clean up the mess and only bought six lattes
--  Cole Palmer MISSES A SITTER from five yards out as Chelsea trail Middlesbrough in the Carabao Cup
--  Gemaskerden kapen tv-uitzending in Ecuador, president spreekt van burgeroorlog
--  Kochie issues a brutal message to boomers as he reveals why many young Aussies are struggling
--  الوكالة الفلسطينية: قوات إسرائيلية تقتحم مدينتي جنين وطولكرم في الضفة الغربية
--  REAL PROTUTNJAO MINHENOM: Bajern ubedljivo poražen na svom terenu,
--  Velikodušna gesta giganata: Real, Barça i Atletico odrekli se novca da bi pomogli klubu užarenog Vatrenog
--  MSI’s Claw gaming handheld just makes me want a portable Xbox
--  Alerta roja en La Guajira: casi todos los municipios están bajo la amenaza de incendios
--  Ekipet me kërcënuese të Superiores
--  Megyn Kelly thinks Michelle Obama may be launching 2024 run after former first lady appeared on popular podcast with nothing to promote: Says race would be 'a whole new ballgame' if she declared
--  Tiger Woods becoming the face of Nike, Michael Jordan's gargantuan £1.1bn contract and Cristiano Ronaldo's lifetime £785m deal... the top ten biggest ever partnerships signed by sports stars
--  ΑΤΑΜΑΝ: «Παίξαμε τέλεια»!
--  Metropolitan Opera Announces Another Cast Change for ‘Carmen’
--  منى سامي | حلقة خاصة مع رئيس الأكاديمية العسكرية الفريق الركن ناصر الغنام
--  SAD odlažu odlazak astronauta na Mesec do 2026. godine
--  Chicago shooting today: Off-duty CPD officer involved in Marquette Park shooting near 7200 block of South Spaulding Avenue
--  Le dollar se raffermit, mais le marché navigue toujours à vue
--  Χρηματιστήριο: Στο κόκκινο έκλεισαν Dow Jones και S&P – Οριακή άνοδος για Nasdaq – Το σκωτσέζικο ντουζ με το πετρέλαιο συνεχίζεται
--  Violencia narco en Ecuador: el presidente declaró al país en estado de "conflicto armado interno"
+-  세계은행, 올해 세계성장률 2.4% 전망…3년 연속 하락
+-  Названа ймовірна причина пожежі в готелі в Польщі, де мешкають українці
+-  Yasmin Brunet chama Wanessa de mãe e cantora repreende: '5 anos a menos que eu'
+-  Elimde sihirli değnek yok!
+-  İngiltere'de Gölge Dışişleri Bakanı'ndan Gazze için 'sürdürülebilir ateşkes' mesajı
+-  5 saat görüştüm reddettim
+-  Transações via DOC terminam na próxima segunda-feira
+-  Mejorar la conectividad y comunicación, el objetivo de Google con sus nuevos desarrollos y avances
+-  Round Robin de la LVBP 2024: el llamativo video de Ronald Acuña Jr. que ilusiona a Tiburones de La Guaira
+-  [AM-PM] 더불어민주당 이재명 대표 피습 8일 만에 퇴원 外
