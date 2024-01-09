@@ -1,51 +1,11 @@
 # Latest News
--  Uluslararası Çocuk Savunma Örgütü: 2023 İsrail'in Filistinli çocuklara yönelik soykırım yılı oldu
--  JN.1, the newest variant of COVID-19, is highly transmissible, says MoHP
--  Himalayan Airlines receives IOSA certificate
--  Ram Bahadur Bamjon arrested: CIB
--  Govt. forms panel to probe power tariff dues
--  RPP&#039;s Bista takes oath as Speaker of Koshi Province
--  بلے کا نشان واپس نہ ملا تو ہمارے پاس پلان بی موجود ہے، بیرسٹر گوہر
--  Siracusa, salta la commissione sul nuovo ospedale, pronta una mozione di censura al sindaco dopo la risposta tardiva all’interpellanza sui rifiuti
--  Il massacro in Palestina (e il troppo silenzio)
--  Navalnyj se sarkasmem vylíčil mrazivé poměry ve věznici za polárním kruhem
--  Mercato - PSG : Luis Enrique en rêve, une star lâche sa réponse
--  Judge Judy endorses Nikki Haley: 'I truly think she can restore America'
--  2023 volt az eddigi legmelegebb a világon
--  پی ٹی آئی انٹرا پارٹی انتخابات سے متعلق کیس کی سماعت کل 9نو بجے تک ملتوی
--  Курс долара встановив новий рекорд в Україні
--  Catriel y un nuevo equipo de recolección de residuos compuesto solo por mujeres
--  «Η Ανόρθωση θέλει τον Τέρσιους Μαλέπε»
--  “Vivere di Sorrisi” a Siracusa, calze della Befana, dolci e giocattoli donate in ospedale e nelle case di cura
--  Mainoo và Garnacho đang thiết lập tiêu chuẩn mới tại Man Utd
--  Alan Shearer ấn tượng với phong độ ghi bàn của Jarrod Bowen
--  Mane tổ chức đám cưới với bạn gái lâu năm
--  Le mariage de Sadio Mané crée une grosse polémique sur les réseaux sociaux (Photos)
--  Rummenigge ist "schockiert": Angela Merkel bestürzt über Franz Beckenbauers Tod
--  باريس: حجز ولد داداه في المستشفى من أجل الخضوع “لعلاج تكميلي”
--  Kate Middleton, il regalo di compleanno di Re Carlo è senza fiocco: più potere a corte
--  Corte de agua para el 10 de enero: ¿qué distritos serán afectados y desde qué hora?
--  Inoue vs Nery reportedly agreed for May in Tokyo
--  Ataque à Lei de Cotas ou o BBB?
--  فيديو | المصري يهزم المقاولون العرب في كأس الرابطة
--  LA Knight Believed He Was Getting Released From WWE in 2022, Delay for His Merchandise
--  מחזור 13 בליגת העל: הפועל ירושלים - בני הרצליה 13:16 (רבע 1)
--  Cultura otorga a El Hematocrítico la Medalla de Oro al Mérito en las Bellas Artes
--  Pro Infirmis will Bussen für ÖV-Unternehmen
--  Helsetilsynet: Flere barn på mottak får ikke forsvarlig omsorg
--  Yle: Kolmatta varusmiestä epäillään turvallisuussalaisuuden paljastamisesta
--  Final Fantasy XIV: Beta do MMO já tem data para chegar ao Xbox
--  Presos desafían a presidente ecuatoriano y privan de libertad a custodios
--  Anti-Corruption: ICPC, EFCC meet to strengthen working relationship
--  Gazze'de kana doymuyorlar! İsrail'den ABD'ye skandal çağrı
--  Blinken, Netanyahu ile görüştü
--  Nijerya'da 11,2 milyon dolar değerinde fildişi imha edildi
--  NASA Expected To Push Back Moon Missions
--  Uluslararası Çocuk Savunma Örgütü: 2023 İsrail'in Filistinli çocuklara yönelik soykırım yılı oldu
--  Một bài thơ cũ: Nhà thơ Lữ Kiều
--  בעשרות מיליוני דולרים: דלינאה רוכשת את הסטארט-אפ אוטומייז
--  הבינה המלאכותית בדרך לצה"ל: המערכת שתסייע לישראל בהמשך הלחימה?
--  Star de la série "Fauda", l’acteur et chanteur Idan Amedi grièvement blessé à Gaza
--  مخبر "لاباس": انطلاق برنامج مرافقة لـ15 من صاحبات أفكار المشاريع المجددة
--  NASA expected to push back Moon missions
--  Még az előkelők is a bokorban guggolva végezték a dolgukat - Ilyen volt a higiénia a versailles-i palotában
+-  Ryan Kent'e Suudi Arabistan'dan talip çıktı!
+-  Blinken, Gazze'de sivillerin korunmasının önemine değindi
+-  Hrvati se pitaju: Zašto Srbin ne igra za njih?
+-  UŽIVO Vrelo u Istanbulu - Partizan izaziva Fener
+-  ما صلاحيات محكمة العدل بشأن اتهام إسرائيل بالإبادة؟
+-  الحكومة: الواقع المائي الأردني يعني العطش
+-  فيديو .. شلال ياجالا الأكبر في إستونيا يتجمد بفعل الصقيع
+-  نحو 500 رحلة سفر لأعضاء حكومة الخصاونة خلال 3 أعوام
+-  شركة Volkswagen تدخل نظام ChatGPT إلى سياراتها للتحدث مع السائقين
+-  الملك يعود من رواندا
