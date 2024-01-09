@@ -1,51 +1,51 @@
 # Latest News
--  Resmi açıklama geldi! Dubois Galatasaray'a geri dönecek mi?
--  Manisa ve İzmir'de terör örgütü PKK'ya yönelik eş zamanlı operasyon... 6 gözaltı
--  Başakşehir, Kasımpaşa engelini 3 golle geçti
--  Sucre: no habrá suspensión de actividades a causa de incremento de casos covid-19
--  Basketball Champions League: Διά περιπάτου στους «16» ο Προμηθέας, 91-78 τη Λε Μαν
--  Notice Of Absence Of Judges | FULL TEXT |
--  Ceny ropy w górę o 2 proc.
--  Ex-jogador Cleiton Xavier é preso por dívida de R$ 31 mil em pensão alimentícia
--  ¿Qué se dijo en la audiencia de apelación de Trump sobre su reclamo de inmunidad presidencial?
--  కదం తొక్కిన అంగన్వాడీలు
--  השחקן אדן קנטו, כוכב "השורד המיועד" ו"אקס מן", הלך לעולמו בגיל 42
--  פרנקו: "בוטח בשחקנים, אמרתי שלא אתלה אותם על העץ גם אם ארצה"
--  SK머터리얼즈 인수 '8리버스', 텍사스에 10억달러 암모니아 공장 설립 예정
--  Gremio industrial y empresarial plantean el impulso de la ruta aérea Puerto Ordaz – Boavista
--  '입원 보고 누락'논란 美국방, "전립선암 수술 후유증 치료차 입원"
--  Irrumpen criminales en noticiero en vivo en Ecuador
--  Envían a 300 de Sedena y GN a San Juan del Río
--  Reforzarán vigilancia con agentes ‘Beta’
--  ‘No hay condiciones para trasladar a Benito a Puebla’
--  Video: Por amenaza de bomba, desalojan oficinas estatales en Juárez
--  Video: Cierran accesos a Ciudad Judicial por amenazas
--  A fayece: Tirso Fortunato Felix
--  Parrainage : Bassirou Diomaye FAYE décroche son ticket pour la présidentielle
--  Kildare death notices and funeral arrangements
--  EN VIVO Ecuador bajo ataque de grupos del crimen organizado
--  Tiesa Vašingtonā uzklausa pušu argumentus Donalda Trampa imunitātes lietā
--  Advierten que estafadores venden vasos Stanley falsos
--  Guyana inicia licitación para montar refinería petrolera con capacidad de 30.000 barriles diarios
--  జిల్లా అధికారులపై ఈసీ సీరియస్‌
--  Sporting goleia Tondela e apura-se para os quartos de final da Taça de Portugal
--  Contiene agua embotellada pedazos de plástico, según estudio
--  Pese a que Procuraduría pidió inhabilitarla, vía ilegal sigue destruyendo la Amazonia
--  Fibra óptica rompe e deixa Roraima sem internet
--  Estruturas dos camarotes para o Carnaval começam a ser montadas nos circuitos em Salvador
--  ‘Our Flag Means Death’ Canceled By Max After Two Season
--  BBC EastEnders fans 'rumble' Nish's fake memory loss plan as he wakes from coma
--  "البنتاجون" يخرج عن صمته ويكشف الغموض: هذا سر دخول "أوستن" المستشفى
--  هطول أمطار على محافظة طريف بمنطقة الحدود الشمالية
--  5 خطوات لإخفاء الفيديوهات الخادشة للحياء على منصة "إكس"
--  السعودية: نرفض مخطّط تهجير سكان غزة
--  Silahlı çete Ekvador’da canlı yayını basıp gazetecileri rehin aldı!
--  شاهد.. لحظة اقتحام قناة تليفزيونية خلال بث مباشر واختطاف موظفيها
--  Andrej Danko si už vyhliadol štátnych tajomníkov nového ministerstva
--  ‘Foe’ ending explained: what happens to Hen and Junior?
--  Elections en RDC : la Belgique félicite Félix Tshisekedi pour son second mandat en dépit des «irrégularités»
--  Директора Александринки Сергея Емельянова наградили орденом Республики Сербской
--  Kjo është arsyeja pse ne kemi grupe të ndryshme gjaku
--  Tenismenul Marius Copil s-a calificat în optimi la Oeiras
--  Yli viiden miljoonan Eurojackpot-voitto Suomeen! Tähän kuntaan se tärähti
--  총선철 '핫이슈' 공천…여야 공천 시스템 차이는
+-  [오피셜] 토트넘, 티모 베르너 임대 영입 완료… ‘등번호 16번+완전 이적 조항 포함’
+-  Pete Davidson Transcends His Tabloid Persona in New Netflix Special
+-  More homes under threat as Victoria’s flood focus shifts to Goulburn River and Shepparton
+-  España se compromete a reasentar hasta 1,200 refugiados en 2024
+-  Polícia prende irmãos condenados por tráfico internacional de drogas em Mato Grosso
+-  Salernitana, Fimmanò: "Palomino sembra Passerella, sarebbe una grandissima intuizione"
+-  "ميتا" تفرض قيودا جديدا على المحتوى المخصص لهذه الفئة بتطبيقي فيسبوك وإنستجرام
+-  خطوات الاستعلام عن تأمين مركبة بالهوية والرقم التسلسلي عبر "أبشر وتوكلنا ونجم"
+-  عاجل.. حساب المواطن: إيداع الدعم المخصص لشهر يناير "شاملاً الدعم الإضافي"
+-  Obradovic'ten Fenerbahçe sözleri!
+-  El Palencia CF firma a Javier Álvarez de los Mozos
+-  Bent Winther om pludseligt brud på årelang tradition: »Kun Gud mangler, for at partiet har fuld plade«
+-  Bent Winther om pludseligt brud på årelang tradition: »Kun Gud mangler, for at partiet har fuld plade«
+-  La “sanadora” Leda Bergonzi fue repudiada en Chile por una polémica frase sobre el cáncer
+-  Baldur’s Gate 3 players compile list of Hotfix 16’s bugged quest items
+-  [노컷 리뷰]전편보다 나은 속편도 있다…'외계+인' 2부의 증명
+-  [단독]2014년판 軍 정신교재도 "독도 영토분쟁"…10년째 깜깜
+-  [르포] '밤의 도시' 라스베이거스의 아침을 깨운 CES
+-  퇴원 앞당긴 이재명…이낙연 '탈당러시' 외면할 수 없었나
+-  韓총리, '출산돌봄 문제' 최우선 해결 나선다…"저출산 각별히 챙겨야"
+-  Anna Popek o planach na przyszłość. "Żal obciąża serce"
+-  Mbape prevazišao i najbolje sapunice... Ništa od odlaska u Real!
+-  Local flights not affected by grounding of Max 9s
+-  Bayern veranstaltet Gedenkfeier für Beckenbauer +++ Leverkusens Boniface lange out
+-  Dramatične razmere na Infekcijski kliniki: bolniki kar na hodnikih
+-  Carlos Alcaraz: "Representar a España en los Juegos de París es mi sueño"
+-  Forget lasagna, this creamy manicotti is your new favorite baked pasta
+-  Western Australia divided over ‘shocking’ call to snub Cameron Bancroft in favour of Steve Smith and Cameron Green
+-  భారత్‌ వికసిస్తోందా... ఏదీ, ఎక్కడ?
+-  Democrat Rep. Dean Phillips draws zero supporters to outdoor New Hampshire event as challenge to Biden falters
+-  Festival Emergencia Cultural contra el DNU: “Es un apagón en la producción de sentido”
+-  Vídeo | Así fue la elección de Los Tukanes para abrir el desfile de comparsas de Badajoz
+-  Nouveau cas de dengue autochtone à Tahiti : l’île toujours en alerte de niveau 2
+-  9 Haircut Ideas to Add to Your 2024 Mood Board
+-  معرض تشكيلي في مهرجان شتاء جازان 2024
+-  «هدد الطير» من طرق تدريب الصقور
+-  عيادات سعود الطبية تسجل 400 ألف موعد
+-  المكتبة الوطنية.. تعزيز وجود المجلات السعودية عالمياً
+-  استخدام ماء البصل للفشل الكلوي كذبة.. مختصون لـ«البلاد»: «رسائل التواصل».. علاج وهمي
+-  الخريف: المملكة محط أنظار العالم في مشاريع التعدين
+-  منشآت: تطبيق الذكاء الاصطناعي بقطاع العمرة
+-  السعودية تتصدر الاستثمار الجريء
+-  Catalyst Pharmaceuticals, Inc. Announces Closing of Public Offering
+-  “التجارة” تدعو لتعديل عقد تأسيس الشركات
+-  “انطلق نحو المستقبل”.. ملتقى برعاية الراجحي.. دور فعال ومؤثر لبنك التنمية الاجتماعية في مسيرة التنمية
+-  12 مليار دولار قيمة سندات الإصدار الدولي للمملكة
+-  تعزيز الطاقة الكهربائية للمشاريع الصناعية الحديثة
+-  Myriad Genetics Applauds New Germline Testing Guideline for Patients with Breast Cancer from ASCO-SSO
+-  خدمة مسافر بلا حقيبة.. السلامة والراحة وانسيابية الحركة
+-  أمير المدينة المنورة يطلع على مشاريع خدمة الزوار
