@@ -1,11 +1,11 @@
 # Latest News
--  Berufungsgericht befasst sich mit Immunität Trumps
--  Kinderärzte: Grippeimpfung ab Kleinkindalter wäre sinnvoll
--  구로구, "더 좋아진 꿈나무장난감나라에서 장난감 빌리세요"
--  삼척시, ‘2024년 주민 열린 대화마당’ 운영
--  동해시, 19억원 규모 지방보조금 공모사업 지원
--  국립군산대‘G-SEED 진로탐색학점제'세계로 파견
--  군산시, 저소득층 주거이전 비용 지원
--  日지진 피난소서 첫 사망… 폭설·강추위에 '2차 피해' 우려
--  군산시, 농식품부‘2024년 농촌인력중개센터’공모 선정
--  인천시교육청, '인천학생성공버스' 규제 샌드박스 승인
+-  "ประเสริฐ" ไขก๊อก สส.อ้างเปิดทางคนรุ่นใหม่เข้าสภา
+-  "เศรษฐา" มอบคำขวัญวันครู “ครูวางฐานคิด ส่งเสริมศิษย์สร้างสรรค์”
+-  ‘고딩엄빠4’ 청소년 엄마 정채언, SNS 14시간+사진 1000장…인플루언서의 리얼 라이프
+-  신은수, 러블리 그 자체
+-  이금희, 'TV는 사랑을 싣고' 관련 해명 "사실 각본 있었다"('라디오스타')
+-  Super Junior’s Yesung impresses Pinoy fans at first solo concert in Manila
+-  Milyarder pedofil şahzadə Endryu və Bill Klintonun azyaşlılarla intim münasibətlərini lentə alıb
+-  ‘วิทิตนันท์’เล่าย้อนโมเมนต์ประวัติศาสตร์ กว่าจะเป็นชาวไทยคนแรกผู้พิชิต‘เอเวอเรสต์’
+-  China to keep scaling new heights with self-reliance in new year
+-  China, U.S. should implement consensus between heads of state and promote healthy, stable, sustainable development of bilateral ties
