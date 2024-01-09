@@ -1,51 +1,11 @@
 # Latest News
--  Google-backed MathGPT sets record, beats ChatGPT and Microsoft AI models
--  Se van Funcionarios
--  Börse Frankfurt-News: "2024 startet bemerkenswert, aber Vorsicht" (pfp Advisory)
--  Post muss sparen und baut Stellen ab
--  Ankara'ya kuvvetli yağış geliyor
--  Murat Kurum, bıçaklanan Fatih Camisi imamı Usta'yı hastanede ziyaret etti
--  AK Parti İBB başkan adayı Kurum'dan İSTOÇ'a ziyaret
--  Gazze'de can kaybı 23 bin 210'a yükseldi
--  Emekli Memur-Sen'den emekliler için seyyanen zam talebi
--  CHP Bursa'dan BUSKİ iddialarına dair açıklama
--  Havalimanları acil durumlara karşı hazır
--  Bursa'da kamu hastaneleri 2023'te 15 milyon 879 bin 243 muayene hizmeti verdi
--  Pet şişedeki su insan sağlığı için tehlikeli binlerce nanoplastik içeriyor
--  Bariyere çarpan otomobil parçalandı: 2 ölü
--  Zonguldak'ta otomobilin çarpması sonucu felç kalan köpek yürüteçle hayata tutunuyor
--  İzmir'de bir kadın, tartıştığı eşini bıçakla öldürdü
--  Bluntautal und Tauglgries sind EU-Schutzgebiete
--  الصفدي يدعو مجلس النواب للانعقاد غدا الأربعاء
--  تراجع المؤشر الأردني لثقة المستثمر 5.6% خلال الربع الثالث من 2023
--  بريطانيا تستعد لمزيد من الثلوج... وتحذيرات من فيضانات
--  Vertrouwen Amerikaanse kleine ondernemers stijgt
--  Haas F1 'ne serait plus là' sans le plafond budgétaire
--  Секирово (Раковски) започва утре вечер
--  Eliminan obstáculos en calles de Tlaxiaco
--  Tuesday's analyst calls: Netflix downgraded by Citi, Deutsche sees more upside for JPMorgan Chase
--  Ўзбекистонда энг кўп оилавий корхоналар қайси ҳудудда ишлаётган маълум бўлди.
--  Амрилло Иноятов янги лавозимда иш бошлади.
--  التيار يطعن في التمديد لقائد الجيش
--  Grondstoffen uitgelicht: olie nog steeds in mineur
--  Österreich verliert EM-Generalprobe gegen Island
--  Kodiak Copper Corp.: Kodiak Copper - Jährlicher Investorenbrief
--  LCK 17일 개막… 우승 후보 1순위 꼽힌 팀은 T1
--  Lewis Hamiltonista sensaatiomainen väite - pelkkää bluffia?
--  Les actions en mouvement : du bon chez Trigano et Nexans tandis que Grifols s'écroule
--  ‘Only five in SA ‘ – BMW Alpina B3 limited edition spotted in Pietermaritzburg [photos]
--  Biden regering vaardigt regel uit die "gig" werk, contracting aan banden kan leggen
--  L'amministrazione Biden emette una norma che potrebbe limitare il lavoro 'gig', il contracting
--  El gobierno de Biden publica una norma que podría frenar el trabajo 'gig' y la contratación
--  Biden-Regierung erlässt Regel, die "Gig"-Arbeit und Auftragsvergabe einschränken könnte
--  Calzaleón aprovecha errores de la escuadra de Ocotlán
--  لجنة المال غيّرت مشروع الموزانة... من كارثي الى اكثر انصافًا
--  Un articol despre orientarea sexuală a cântăreţei Taylor Swift a stârnit furie printre fanii vedetei: „Este intruziv şi deplasat”
--  Lolos ke Babak Kedua Malaysia Open 2024, Fajar / Rian Hadapi Ganda Taiwan yang Dua Kali Kalahkan Mereka
--  Litauische Firma wird Betreiber von vier deutschen LNG-Terminals
--  Aktien Europa: Schwäche setzt sich fort
--  Trabzon'da feci trafik kazası: 2 ölü!
--  Apgavo sukčiai – nenuvežė siuntinio, apgavo dėl buto nuomos, įsigijo telefoną
--  REL: Mësuesit shfrytëzojnë pushimet pa pagesë
--  Manoj Bajpayee Reveals He Was Mocked For His Broken English; 'They Used To Fall Down Laughing'
--  China aprende de la sanidad de Castilla-La Mancha
+-  מורמת מעם: מייגן מרקל הבריזה מאיחוד של כוכבי Suits
+-  La siccità è molto più dannosa del previsto, studio internazionale
+-  Kooth celebra il lancio dell'app per la salute mentale in California
+-  Kooth feiert den Start einer App für psychische Gesundheit in Kalifornien
+-  Posta: programma di risparmio; taglio di 110 posti a tempo pieno
+-  The Top 10 Causes of Death in The US
+-  Triệt phá đường dây mua bán gần 400kg pháo từ Lào Cai về Phú Thọ
+-  Bakanlık Kaçak Yapıyı Savundu: Mahkeme İBB'yi Haklı Buldu
+-  Γαλλία: Ο Γκαμπριέλ Ατάλ είναι επίσημα ο νέος πρωθυπουργός της χώρας
+-  Crudo sube 2% por preocupaciones sobre crisis en Oriente Medio e inflación
