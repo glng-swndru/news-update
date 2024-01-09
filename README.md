@@ -1,11 +1,51 @@
 # Latest News
--  عقيلة صالح يطلع على سير العمل في الهيئة الوطنية لمكافحة الفساد
--  Bahnhof Gelnhausen: Fußgängerunterführung gesperrt, Busverkehr betroffen
--  Mega-Sena sorteia nesta terça-feira prêmio estimado em R$ 3 milhões
--  Près de 21 000 foyers bénéficient de l’aide sociale à Oujda-Angad
--  Timnas AMIN Jawab Potensi Bentuk Koalisi di Putaran Kedua
--  César Vallejo enfrentará a Unión de Santa Fe y Defensor Sporting en Uruguay
--  Ostvarila se noćna mora svakog skijaša: Srušila se gondola na stazi, četvero ozlijeđenih
--  Anzeige – Taxi24 Bottrop : Elektrisch, nachhaltig und sportlich unterwegs: Das erste Tesla Taxi in Bottrop und Kirchhellen
--  VÍDEO: padre surpreende fiéis ao entrar em igreja pilotando uma moto; confira
--  Peregrine Lander Anomaly on Mission Bringing Washington, JFK, and Star Trek Cast DNA to Moon
+-  Znanstvenici došli do zastrašujućeg otkrića o plastičnim bocama: Pogledajte što rade vašem organizmu
+-  Humble Bundle squeezes 9 movie themed TTRPGs into one package
+-  Hrvatski grad izgubio sudski spor: Gradonačelnik nelegalno zabranio koncert narodnjaka iz Srbije
+-  Meiden B van volleybalvereniging Langhenkel HEC Winterkampioen
+-  Jujutsu Kaisen foreshadowed Gojo’s death 4 years ago
+-  Magic: The Gathering player baffled by seller’s bizarre delivery method for card
+-  Atendieron Mantenimiento Urbano y DSPM 16 accidentes causados por fuertes vientos
+-  ZEDE Prospera adopta bitcoin como unidad de cuenta para entidades residentes
+-  Pigo Nigeria, Boniface nje Afcon
+-  Marlabs Acquires Onebridge
+-  Rafael Nadal's 2007 French Open Final Winning Racket Over Federer Up For Auction
+-  Atlinks Acquires 5Gen Care and Chillax in Revolutionary Shift Toward Advanced AI and IoVT Technology Development
+-  নেত্রকোনা-৩ আসনে জামানত হারাচ্ছেন ৪ প্রার্থী
+-  দেশের মানুষ উন্নয়নের পক্ষেই ভোট দিয়েছে: পরিকল্পনামন্ত্রী
+-  Gabriel Attal: Who is France's dashing new PM - and the youngest ever?
+-  Samsung Galaxy S24: Technische Daten der neuen Top-Smartphones – WinFuture
+-  Babatunde rejoins Bullets
+-  Turquie: l'ancien président d’Ankaragücü, qui a frappé un arbitre, exprime ses regrets devant un tribunal
+-  Epson passe à une électricité 100 % renouvelable dans tous ses sites à travers le monde
+-  Former Post Office Boss Hands Back CBE and Says ‘Sorry’ to Horizon Scandal Sub-postmasters
+-  Is Vicky Kaushal's brother Sunny Kaushal hosting MTV Splitsvilla X5 with Sunny Leone?
+-  INSS: Quer saber quanto tempo falta para aposentar e as regras de transição?
+-  Inteligjenca artificiale zëvendëson 10 përqind të fuqisë punëtore të Duolingo
+-  Леверкузен потвърди за контузията на Бонифейс и обяви колко ще отсъства нигериецът
+-  Real Madrid gibt den Star des FC Bayern bekannt
+-  Tekel bayi 10 dakika arayla 2 kez soyuldu! Dinlene dinlene çaldılar
+-  Znani iranski pevec pristal v zaporu iz povsem bizarnega razloga! Dobil bo tudi udarce z bičem!
+-  ‘Over 11,000 Start-Up Businesses Received Sanwo-Olu’s Empowerment Grants In Four Years’
+-  Crowds shouted 'get them out' at asylum seeker hotel as rocks and fireworks thrown, court hears
+-  পূর্ণতা দিয়েছিল স্বাধীনতাকে
+-  Fichajes Liga MX: André Jardine TUMBA NEGOCIACIONES entre América y Necaxa ¡Esto pasará con Salvador Reyes y Leo Suárez! | Clausura 2024
+-  Kapolsek Mampang Cek Distribusi Logistik Pemilu, Pastikan Keamanan Maksimal
+-  Amid promises of cheaper cement, new report projects price of commodity to remain high in 2024
+-  Μπαρτζώκας: «Αν παίζουμε καλά μπορούμε να κερδίσουμε παντού»
+-  חצי שנה אחרי מותה: נחשפה סיבת המוות של שינייד אוקונור
+-  MTG’s latest Secret Lair Commander deck is already packed with value
+-  Valores do Pis podem ser consultados por app
+-  Pretplate na CCaaS do 2028. donijet će prihod od 18 milijardi dolara
+-  Hila, ikja me konsensus nga Tirana e firma me Elbasanin: Ahmataj vazhdon përpara me dy lojtarë më pak
+-  Es gibt bereits 5 Staffeln und der Beginn eines ganzen Serienuniversums
+-  বোনাস ডিভিডেন্ড পেলেন জেমিনি সী ফুডের বিনিয়োগকারীরা
+-  Primorec, ki se ne sme pritoževati
+-  L'enseigne Chaussexpo placée en liquidation judiciaire
+-  Làm con cả hiếu thuận hơn nửa đời nhưng U60 cắt đứt quan hệ với gia đình vì nỗi khổ khó nói
+-  Autoridad de Salud define como exitoso Plan de Contingencia Navidad 2023
+-  Locals Rescue Swamp Deer Trapped In Barbed Wires Near India-Pakistan Border In Jammu
+-  Survey finds many US health care workers face harassment, burnout
+-  ¿Quiénes serán los presentadores de 'La Voz kids'?
+-  قطاع التزلج يعاني هذا العام بسبب تأخر تساقط الثلوج وتداعيات الحرب
+-  Abdo recortó G. 30.000 millones para la lucha contra la desnutrición infantil
