@@ -1,51 +1,11 @@
 # Latest News
--  Nấu bàn tiệc Âu cho Shark Bình, Phương Oanh bị dân tình soi chi tiết "nhà giàu": tưởng mua ở Thái Công nhưng còn xịn hơn thế?
--  Nỗi sợ của Công nương Kate
--  „Sturm der Liebe“: So geht es ab Mittwoch, 10.1.2024 weiter – 5-Tage-Vorschau
--  Političarka sa sindromom Down ušla u španjolski parlament: 'Želim da me ljudi vide kao osobu, a ne samo moj invaliditet'
--  Bio Heal CBD Gummies Reviews (Amazon Customer Alert) Is Bioheal Blood CBD
--  Rauva revela principais tendências que irão moldar o mercado das fintech este ano
--  Podgorica: Uhapšen Bjelopoljac kod kojeg je nađeno skoro 1.500...
--  [美뒤흔든 女가수에 “숨은 성소수자” 추측한 NYT 칼럼…근거 뭔가했더니
--  [‘문화 대통령’ 서태지 ‘시대유감’, 2024 에스파 버전으로 나온다
--  [뉴진스·아이브·(여자)아이들…걸그룹 전성시대였다
--  Palmeiras define meia de criação como prioridade no mercado
--  Com novidades, Vasco anuncia jogadores que viajam para o Uruguai
--  Prođe i Božić, a pisma još nema: Kad će Srbija poslati pismo svim zemljama sveta o umešanosti jedne zemlje u izbore?
--  صنعاء تتجه لمحاكمة إسرائيل دولياً
--  La Financière de l’Échiquier: il Medio Oriente potrebbe agitare le acque dei mercati
--  Bursaspor alt sıralardan kurtulamıyor
--  Bursaspor'dan sürpriz ayrılık!
--  Yunanistan ve ABD'den ortak askeri eğitim
--  Uludağ'da beklenen kar yağışı başladı
--  Sakarya'da yaşlı kadın, yangın çıkan evde ölü bulundu
--  Kütahya - Bursa yolu geçici olarak kapatıldı
--  Bingöl Karlıova'da biriken kar ilçe dışına taşınıyor
--  دبي تستضيف أول قمة لصناديق التحوط بالمنطقة خلال 2024
--  HLV Kiatisuk Senamuang nói chuyện với bầu Đức, nhận lời CAHN
--  Ronaldo khoe 6 múi rõ mồn một, "dây điện" nổi đáng nể
--  37 yaşındaki adam balkonda kanlar içerisinde ölü bulundu
--  NÓNG! Chelsea ký mới hợp đồng với sao trẻ
--  Douglas Luiz và bạn gái nóng bỏng "đốt mắt" dư luận
--  Hủy diệt Jordan, Nhật Bản khiến Việt Nam run rẩy trước thềm Asian Cup
--  Salah chơi ở vị trí tiền vệ trên tuyển Ai Cập
--  Konya Büyükşehir 'Engelsiz Kent Konya Erişilebilirlik Master Planı Projesi'ni tanıttı
--  Satus Gunung Marapi Naik Menjadi Siaga, Dilarang Berada dalam Radius 4,5 Kilometer dari Puncak
--  Biletler saatler içinde tükenmişti... Scorpions, İstanbul'da bir konser daha verecek!
--  За 40 млн тенге продал минфин Казахстана подаренный ему Bentley
--  Ag. Bennacer: "Sta bene al Milan, ma l'infortunio ha condizionato il suo mercato"
--  [CES 2024]최주선 삼성D사장 "올해 사업 'I AM Fine Q!'"...접히고, 돌리는 고화질 패널 공개
--  Samardzic-Napoli, manca l'ultimo dettaglio. Da stabilire le commissioni per il padre: c'è ottimismo
--  Karti Chidambaram served Congress' notice for praising PM Modi over Rahul Gandhi
--  Fitch Ratings Unveils Global Corporate Macro and Sector Forecasts for January 2024
--  «Не жалел для меня ничего». Казахстанский футболист растрогал своего отца дорогим подарком. Видео
--  Sirene azzurre per Grant Basile
--  Anderssons kritik mot Kristersson: ”Splittrande”
--  Persaingan Grup F Piala Asia 2023: Arab Saudi dan Roberto Mancini Siap Dihadang Thailand, Kirgistan, Oman
--  Ozempic: Die Zeit der Abnehm-Spritze ist vorbei
--  Pronóstico del tiempo para este martes 9 de enero
--  Scottish Government funds youth music to the tune of £1.5m
--  Court denies bail to Mtarfa couple accused of abusing underage daughters
--  स्वायत्त शासन विभाग के पूर्व मंत्री और विभाग में लगे सेवानिवृत्त कर्मचारियों को हटाया
--  Kenya likely to borrow more as taxes fall behind target
--  Yle: Ässä-ikoni Jesse Joensuu päättää pelaajauransa
+-  عقيلة صالح يطلع على سير العمل في الهيئة الوطنية لمكافحة الفساد
+-  Bahnhof Gelnhausen: Fußgängerunterführung gesperrt, Busverkehr betroffen
+-  Mega-Sena sorteia nesta terça-feira prêmio estimado em R$ 3 milhões
+-  Près de 21 000 foyers bénéficient de l’aide sociale à Oujda-Angad
+-  Timnas AMIN Jawab Potensi Bentuk Koalisi di Putaran Kedua
+-  César Vallejo enfrentará a Unión de Santa Fe y Defensor Sporting en Uruguay
+-  Ostvarila se noćna mora svakog skijaša: Srušila se gondola na stazi, četvero ozlijeđenih
+-  Anzeige – Taxi24 Bottrop : Elektrisch, nachhaltig und sportlich unterwegs: Das erste Tesla Taxi in Bottrop und Kirchhellen
+-  VÍDEO: padre surpreende fiéis ao entrar em igreja pilotando uma moto; confira
+-  Peregrine Lander Anomaly on Mission Bringing Washington, JFK, and Star Trek Cast DNA to Moon
