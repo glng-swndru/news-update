@@ -1,11 +1,51 @@
 # Latest News
--  Турагентлик фаолияти билан лицензиясиз шуғулланиш мумкин бўлади(ми)?
--  "Чиқинди пули"дан қарздорлар уй ёки машина харид қилолмайди
--  السعودية تستحوذ على أكثر من نصف الاستثمار الجريء بالشرق الأوسط وشمال إفريقيا في 2023
--  الجزائر تسطو على برنامج حكومي مغربي بالفوطوكوبي؟؟
--  كيف تأثر الاقتصاد الأردني بالحرب بين إسرائيل وحماس؟
--  ملف إسكوبار الصحراء.. كيف يعزّز صورة القضاء والمؤسسة الأمنية للمملكة؟
--  Befana solidale: doni e calze ai più piccoli per regalare un momento di gioia e spensieratezza
--  Detidos falsos agentes do SERNIC em Gurué
--  2023 u mbyll me 10.1 mln turistë, Rama: Vit fantastik, theu parashikimet
--  Пассажиров застрявших в Забайкалье поездов перевезут самолетами «Авроры»
+-  Na Žabljaku u devet sati izmjereno -8,6 stepeni
+-  Izraelske snage ubile tri Palestinca u raciji na Zapadnoj obali
+-  Tešanović: Savladali smo evropskog šampiona, možemo po medalju
+-  해양경찰청, 경비함정 118척 위성통신망 설치
+-  해양경찰청, 조직문화 개선 등 4개 분야 우수기관 선정
+-  [기호일보 만평] 호랭이 굴
+-  Hiện trường vụ máy bay rơi ở Quảng Nam
+-  Khách thuê nhà 'nhặt' được 380 triệu đồng, chủ ngơ ngác không biết tiền ở đâu ra
+-  Màn trình diễn thảm họa đầu năm 2024
+-  Tham khảo Tăng Thanh Hà 10 cách diện váy liền sang xịn mịn cho phụ nữ U40
+-  Nam MC cuối cùng cũng lên tiếng về màn "cà khịa" kém duyên nhắm vào Taylor Swift tại Quả Cầu Vàng 2024
+-  Geelong superstar Jeremy Cameron proposes to longtime partner Indiana Putra
+-  Programmable Logic Controllers Market Analysis and Future Prospects for 2030
+-  Mentoring Software Market Revenue, Insights, Overview, Outlook, Analysis | Valuates Reports
+-  Seoul in talks with Beijing on remark opposing Korea-US-Japan joint statement: official
+-  Eximbank supports expansion of Korean exporters in US
+-  Chelsea ‘open talks’ with Mykhailo Mudryk’s friend whose record this season is better than Erling Haaland and Mo Salah
+-  عمران خان اور بشریٰ بی بی پر توشہ خانہ کیس میں فرد جرم عائد
+-  Mobile mortgage refinancing services debuts today
+-  Global Basketball Shooting Training Machine Market Research Report 2024-2030
+-  Why is Amanda Abbington demanding backstage Strictly footage? Everything we know about Giovanni 'feud'
+-  Generationsübergreifendes Sternsingen in Weitersfelden
+-  FOTO/ “Miti i fundit, mbrojtësi më i madh në histori”, mediat botërore homazhe për Beckenbauer
+-  Unlocking Precision Medicine: Parp Inhibitor Biomarkers Market Insights 2023-2030 Growth Opportunities with the World's Top Players | Antibodies Inc., Networks LLC, Beckman Coulter, Inc., Euro Diagnostica AB, F. Hoffmann-La Roche Ltd
+-  Thaina Fields dead – Porn star, 24, who revealed sexual abuse in adult industry found dead at her home
+-  В избирательный штаб Путина поступили подписи еще из 19 регионов
+-  Industrial Safety Systems Market Analysis and Future Prospects for 2030
+-  Il robot cuoco è un successo, ecco come lavora in un video
+-  Sternsinger der Pfarre St. Andrä am Zicksee zu Gast
+-  Акции «Татнефти» подешевели после дивидендной отсечки
+-  Nabeul: Un taux d’avancement de 70% de la récolte des pommes de terre
+-  Rani rakes in up to N$8m a day during festive season
+-  Tata Starbucks Unveils Plans For Expansion In Indian Market
+-  $10 Billion ZEEL-Sony Deal: Committed To Merger, Says ZEEL
+-  ‘Where was I’: Trevor Noah loses Golden Globe to Ricky Gervais
+-  Kastina Hisbah Confiscate 850 Bottles Of Alcohol
+-  Residents of Wajima are dealing with the aftermath of Japan's New Year's Day earthquake
+-  Portland school teacher surprised to discover Boeing jet door plug in backyard
+-  Masnawati Masud Siapa? Ungkit Dugaan Perselingkuhan Melly Goeslaw dengan Oknum Perwira Polisi
+-  [조응천 “민주당…돈 뺏고 ‘우린 친구, 친하게 지내자’는 일진 같아”
+-  [강수현 양주시장 “교육은 지역 발전을 이끄는 핵심 동력”
+-  [무역보험公·美수은, ‘한미 라운드테이블’…"수출기업 지원"
+-  [최태원 회장, CES 첫 일정으로 ‘지멘스’ 기조연설 찾은 까닭은? [비즈360]
+-  [‘공급망 3법’ 완성…국가자원안보특별법 국회 통과
+-  [與 불참 속 ‘이태원 참사 특별법’ 국회 통과…또 尹 거부권?
+-  [박성민 의원, 국회, 개 식용 금지·기부문화 활성화 위한 법률안 통과
+-  [‘개 식용 금지법’ 통과에 “기념비적 역사” vs “헌법소원 낼 것”
+-  [중처법 50인 미만 확대 적용 유예 결국 '불발'...25일 '마지막 기회'
+-  BMW verkauft 2,55 Millionen Autos - Rekord
+-  Initiativkomitee für 13. AHV-Rente startet Abstimmungskampagne
