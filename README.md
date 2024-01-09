@@ -1,51 +1,51 @@
 # Latest News
--  ‘사실상 거저 주는 수준’... 무리뉴 황태자, 바이아웃 186억 공개→첼시 군침
--  끝이 없는 이적설…음바페, 레알 마드리드행 합의→논의도 없었다?
--  “한동안 축구를 보지 않았다, 스스로 벌을 준 셈”…’불법 도박 232건’ 공격수의 고백
--  7월 영입→드디어 데뷔... 튀르키예 메시를 향한 동료들의 칭찬, “그는 마치 다이아몬드 같다”
--  日 레전드 엔도, 26년 만에 축구화 벗는다… 감바에서 코치로 새출발
--  대전, 권찬수 GK 코치·신수진 코치 선임... 2024시즌 이민성호 출항
--  대한당구연맹, 2023 체육단체 혁신평가 'S등급' 선정... 82개 종목단체 중 '최고점'
--  Pensione 2024: aumento trattamento minimo. Di quanto? (aggiornamento 9 GENNAIO)
--  Servisne informacije: [9. siječnja 2024.]
--  에이수스 ‘BTF 솔루션’ 채택한 메인보드·PC 케이스·그래픽카드 공개
--  한국레노버, 게이밍 노트북 리전·로크 신제품 국내 출시
--  인텔, CES 2024서 고성능 컴퓨팅 신제품 공개
--  엔비디아, 새로운 지포스 시리즈 발표…생성형 AI 활용 확대
--  F5 “인증 트래픽 20%, 크리덴셜 스터핑”
--  Bugünkü maçlar 9 Ocak 2024... Bu akşam hangi maçlar var, hangi kanalda?
--  Fenerbahçe Beko - Partizan basketbol maçı hangi kanalda, ne zaman, saat kaçta?
--  ช้างป่าภูหลวง! บุกบ้านหาของกินยามค่ำคืน ทรัพย์สินเสียหาย
--  'ประเสริฐ'ลาออกพ้น สส.บัญชีรายชื่อ 'เพื่อไทย' บอกเปิดทางให้คนรุ่นใหม่
--  Белорусы держат рубли и доллары «ближе к телу»
--  โมเมนต์สุดซาบซึ้ง! 'พล.ต.อ.ต่อศักดิ์' เช็คเท้า-ขอพร'คุณแม่สมนึก'วันปีใหม่
--  El cuidado de pelucas y la colocación de pañuelos abren los Encontros EnRede de 2024
--  Top 10 stories from across Nigerian Newspapers, Tuesday, January 9, 2024
--  Irish private secondary schools, pros and cons
--  Successione 2024: quante tasse si pagano? I beni esclusi (aggiornamento 9 GENNAIO)
--  조진웅 '데드맨', 예고편부터 강렬…"이름 팔고 인생도 팔았다"
--  "الحاج جواد" شهيدًا على طريق القدس.. والعدو يُجبر على بدء المرحلة الثالثة بغزة
--  E-domicile facility introduced in KP
--  손흥민, 토트넘 선정 '12월의 골' 선정
--  [단독]경산시의회 상임위원장, 사임서 자진 철회로 구설
--  중소기업 10곳 중 6곳, 환경규제 '자율관리'에 맡겨야
--  [영상] 민주당 부대표, 한동훈 향해 “동료 시민은 대체 누구인가”
--  대구상의, 오는 25일 2024 외부감사제도 설명회 개최
--  Không đồng tình mở rộng loại đất được thỏa thuận làm dự án nhà ở thương mại
--  Ống luồn dây điện BS 4568 của Vietconduit tự tin cạnh tranh với hàng ngoại
--  Bonus bollette 2024: confermato. Importo, requisiti, come funziona (aggiornamento 9 GENNAIO)
--  Brezilya'da feci kaza: 25 ölü
--  Možda je Marko Polo imao bujnu maštu – Izmišljao?
--  Hitna: Četiri saobraćajne nesreće, pet osoba lakše povređeno
--  Meryem Uzerli'den küçük kızına doğum günü partisi
--  Scadenze fiscali 2024: approvato nuovo calendario. Cosa cambia? (aggiornamento 9 GENNAIO)
--  Magath über Beckenbauer: "Auf einer anderen Ebene als wir"
--  Ovaj psihološki triler ima odličnu ocenu, a nije ga puno ljudi pogledalo
--  Taiwan poll frontrunner hits out at Beijing 'interference'
--  Mapping the Unseen: How AI and Satellite Technology Reveal Offshore Activities
--  Azerbaijan names ex-oil executive to head climate talks
--  LG Display Unveils OLED TV with META Technology 2.0 at CES 2024, Boasting 42% Brightness Boost
--  Ayrılık sebepleri belli oldu!
--  Doların Yükselişi Durdurulamıyor: Artık Neredeyse 30 TL'ye Dayandı
--  Lüks evini gösterdi!
--  윤대통령 "'충TV' 같은 혁신 필요"… '충주시 홍보맨' 언급 화제
+-  Alaska Airlines diz ter detetado equipamento "mal fixado" nos Boeing 737 MAX
+-  Seda Sayan'ın estetikleri olay oldu!
+-  Babacan'dan dikkat çeken mesaj: İmamoğlu'na DEVA!
+-  Uzmanından dikkat çeken açıklama: Kahvaltıyı öğle saatlerine yakın yapmakta fayda var
+-  İstatistiklerle cevap veriyor! Zaha kendini buldu
+-  Park Halindeki Kamyonette Yangın Çıktı
+-  “Dünyanın En Hafif 14 İnç Oyun Dizüstü Bilgisayarı”: HP OMEN Transcend 14
+-  बॉयकॉट मालदीव के बीच ईज माय ट्रिप ने निकाला सस्ता लक्षद्वीप टूर पैकेज, ये रही डिटेल्स
+-  고양시통합일자리센터 통해 6451명 취업 성공
+-  चलती ट्रेन से गिर जाए पर्स या बैग तो न हों परेशान, ऐसे मिलेगा वापस
+-  Previsión del tiempo en Melilla: martes 9 de enero de 2024
+-  Warner Bros. Games: Mehrere Spiele zum neuen DC Universe in Arbeit
+-  Mercato - PSG : Luis Enrique rêve d’une star, «c’est possible»
+-  "זו הסדרה הכי אלימה של מארוול, והיא מסמנת את הכיוון שנמשיך ללכת בו"
+-  Höjd lön för Lemlands kommundirektör
+-  Çanakkale İçin Kuvvetli Yağış Uyarısı Yapıldı
+-  동두천시의회 "미군 공여지 당장 반환, 개발비용도 책임져야"
+-  女人梦见找衣服是什么意思
+-  女人梦见自己被打劫了是什么意思
+-  来月经能吃巧克力吗
+-  Mersen : des changements au conseil d'administration
+-  Trigano : les ventes ont bondi de 20% au premier trimestre grâce aux camping-cars
+-  ডেসকোর ক্রেডিট রেটিং নির্ণয়
+-  ‘‘초연결’과 ‘공감지능’…삼성·LG, ”미래 AI 비전 내놨다“ [CES 2024]
+-  Prozess: Geld verdient hat der Burscheider mit den Kinderpornos wohl nicht
+-  석유사업법 개정안 통과…"친환경 연료 활성화 기반 마련"
+-  Minusgrade halten an: Nächste Schnee- und Eisfront in Köln – mehr als 20 Zentimeter Neuschnee in der Region
+-  VIDEO Ivica Zubac 24 sata nakon sjajne partije protiv Lakersa ponovo je briljirao
+-  জন্মদিনে ৩ ভক্তের মৃত্যু, পরিবারের কাছে ছুটে গেলেন ‘কেজিএফ’ তারকা
+-  Учёные из Тулы выяснили, как очистить сточные воды с помощью микробов
+-  شكر وتقدير من من ذوي المرحومة عتوس شمو غانم لجميع المعزين
+-  Ataşehir’deki Trafik Kazası
+-  Point marchés-Les Bourses européennes attendues en hausse dans un contexte d'attentisme
+-  Баня сгорела под Приозерском утром 9 января
+-  SNB schreibt 2023 Verlust von rund 3 Milliarden Franken
+-  LECTRA : Lectra annonce l'acquisition de la majorité du capital de Launchmetrics
+-  글로벌 에너지위기 대응 '자원안보법' 통과…'공급망 3법' 완성
+-  한화 리턴? MLB 잔류?…‘몬스터’ 류현진 메이저 잔류 가능성은
+-  선불식 상조·크루즈 여행 상품 가입자, 계약 정보 매년 안내받는다
+-  الرواشدة: هجمات نوعية يشنها المهربون على حدود الأردن الشمالية
+-  अर्जुन अवॉर्ड से नवाजे गए मोहम्मद शमी, 25 और खिलाड़ियों को मिला ये सम्मान
+-  Snipes und vielleicht ein Hyperscaler: In Bedburg wird an der A61 ein Gewerbegebiet geschaffen
+-  На Дону восстановлено движение на трех трассах
+-  Bauern-Demo: Bauern legen mit ihren Traktor-Protestzügen Straßen in Köln und Umgebung lahm
+-  อาม ชุติมา เผยหมดทำสวยตรงไหนบ้าง รับรักการทำศัลยกรรมจนคนรอบข้างต้องเตือน
+-  Navracsics: megrekedtek a tárgyalások az Erasmus-ügyben
+-  İstanbul'da yağışlı havanın etkisiyle trafik yoğunluğu yaşanıyor
+-  Malatya'da seyir halindeki servis otobüsünde yangın
+-  Prošle godine usvojeno samo dvoje djece
+-  ثيو هيرنانديز يواصل التألق في مركزه الجديد
