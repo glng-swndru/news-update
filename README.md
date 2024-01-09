@@ -1,51 +1,51 @@
 # Latest News
--  Tutuklu Dilan Polat'tan yeni şube!
--  İsrail'den bir tehdit daha: Gazze'ye yaptığımızın aynısını yaparız
--  Suyu çorbalara demir katıyor! Kendisi kemikleri kırılmaz yapıyor, işte tarifi...
--  Ender Saraç'a 22.5 yıl hapis talebi
--  Memurların 2024 yemek bedelleri belirlendi
--  Ulviye teyzenin katili komşusu çıktı! Bilezikler için boğazını kesmiş
--  Ezgi Mola ile Enis Arıkan küslüğü hakkında bomba iddia! 'Saçmalamayın' yorumu yapıldı
--  „Astrobotic“: Störung nach Start von privater US-Mondmission
--  Khổ hơn cả Lan, nhân vật này phải đi bộ 2.700km đến trường: Báo thức lúc mấy giờ mới không đi muộn?
--  Máy bay quân sự rơi ở Quảng Nam gây tiếng nổ lớn
--  Hậu tranh cãi vì tự nhận đẹp như Song Hye Kyo, Phương Linh gây sốt với visual "lão hoá ngược" ở tuổi 40
--  Áo dài cổ yếm: 10 thiết kế điệu đà, trẻ trung giá chỉ từ 350k cho nàng khoe dáng xinh dịp Tết
--  Người dân vây bắt cô gái nghi cướp cửa hàng F88 ở TPHCM
--  Nhà vô địch thế giới hẹn hò cùng bạn gái có chiều cao vượt trội, danh tính người mai mối gây chú ý
--  Ngày Hà Tăng thành dâu hào môn: An ninh thắt chặt, lễ cưới khủng 1000 khách, 7 năm sau hé lộ chi tiết bất ngờ
--  Phát hiện gây sốc về loạt máy bay Boeing sau vụ máy bay chở 177 người bung mảng lớn giữa không trung
--  Người đàn ông chuyển khoản xong 58 tỷ đồng mua 3 căn nhà mới phát hiện bị lừa, công an cảnh báo trò lừa đảo mới
--  Bưởi đỏ tiến vua hút khách trước dịp Tết Nguyên đán Giáp Thìn
--  COVID-19 infections spike after festive celebrations
--  “제주 미분양 주택 위험수위 치닫고 있다”
--  Армения согласилась на встречу с Азербайджаном в США в трехстороннем формате
--  Bowl season winners and losers: It’s Michigan’s championship, but it’s the Big Ten’s world
--  Мостовой считает, что Семак смог бы работать в АПЛ
--  Trump'tan Macron taklidi! Fransız liderin aksanıyla dalga geçti
--  Elon Musk'ın uyuşturucuyla başı dertte
--  SON DAKİKA: 20 ilde dolandırıcılara SİBERGÖZ-12 darbesi
--  Quedará en libertad Tomás Yarrington en noviembre
--  Balean a 'DiDi' y pasajeros piden ayuda en domicilio
--  สว.ชี้รัฐบาลรู้ “เงินกู้ 5 แสนล้าน” ทำดิจิทัลวอลเล็ต ไปต่อไม่ได้ แค่อยากลงให้สวย
--  Taiwan poll frontrunner hits out at Beijing ‘interference’
--  Top US diplomat to meet Israeli PM as fears of escalation rise
--  행정망 장애 해법으로 지목되는 'SW 제값받기'는 언제?
--  গণতন্ত্র ফিরিয়ে আনার পদক্ষেপ নিতে হবে: জাতিসংঘ মানবাধিকারবিষয়ক হাইকমিশনার
--  الهيئة الإتهامية ترفض إخلاء سبيل شعبان... والتحقيق إلى المربع الأول؟
--  Samsung verwacht verdere daling kwartaalwinst
--  कोशीमा राप्रपाका अम्बरबहादुरले सत्ता गठबन्धनबाट सभामुखमा उम्मेदवारी दिने
--  김호중, 3월 KBS 교향악단과 클래식 단독쇼 진행
--  Intra-day update: rupee continues to gain against US dollar
--  Argentines ask folk cowboy saint Gauchito Gil to help cope with galloping inflation
--  Concert, frites gratuites... Une grande soirée prévue à Liévin pour les vœux du maire
--  Open d'Australie : Les favoris du tournoi (hommes + femmes + doubles)
--  "Nous avons déjà des beaux taux de réservation sur 2024", analyse le président de Var Tourisme
--  ГЕРМАНИЈА Е САМО ПОЧЕТОКОТ: На цела Европа и се закануваат протести годинава, еве што велат аналитичарите
--  Uttarakhand Weather: आज से बढ़ेगी ठंड, इन पांच जिलों में बारिश और ऊंचाई वाले इलाकों में बर्फबारी की चेतावनी
--  Iranian analyst says JCPOA - 'yesterday's news' for Western countries
--  Starul „Fauda” Idan Amedi a fost grav rănit în luptele din Fâșia Gaza. Mesajul transmis de familia actorului
--  East Japan Has High Ratio of Unmarried Men-to-Women as Young Women Move to Tokyo; Fueling Depopulation Trend in Rural Areas
--  ניצני חזרה לשגרה: 34 אלף חזרו למעגל העבודה בדצמבר
--  셀럽들의 한겨울 긴 생머리 연출법, 1월 둘째 주의 뷰티 인스타그램
--  "동부이촌동·도곡동선 더 비싸다고?" 아티제, '동네별 차등' 메뉴가 논란
+-  ‘사실상 거저 주는 수준’... 무리뉴 황태자, 바이아웃 186억 공개→첼시 군침
+-  끝이 없는 이적설…음바페, 레알 마드리드행 합의→논의도 없었다?
+-  “한동안 축구를 보지 않았다, 스스로 벌을 준 셈”…’불법 도박 232건’ 공격수의 고백
+-  7월 영입→드디어 데뷔... 튀르키예 메시를 향한 동료들의 칭찬, “그는 마치 다이아몬드 같다”
+-  日 레전드 엔도, 26년 만에 축구화 벗는다… 감바에서 코치로 새출발
+-  대전, 권찬수 GK 코치·신수진 코치 선임... 2024시즌 이민성호 출항
+-  대한당구연맹, 2023 체육단체 혁신평가 'S등급' 선정... 82개 종목단체 중 '최고점'
+-  Pensione 2024: aumento trattamento minimo. Di quanto? (aggiornamento 9 GENNAIO)
+-  Servisne informacije: [9. siječnja 2024.]
+-  에이수스 ‘BTF 솔루션’ 채택한 메인보드·PC 케이스·그래픽카드 공개
+-  한국레노버, 게이밍 노트북 리전·로크 신제품 국내 출시
+-  인텔, CES 2024서 고성능 컴퓨팅 신제품 공개
+-  엔비디아, 새로운 지포스 시리즈 발표…생성형 AI 활용 확대
+-  F5 “인증 트래픽 20%, 크리덴셜 스터핑”
+-  Bugünkü maçlar 9 Ocak 2024... Bu akşam hangi maçlar var, hangi kanalda?
+-  Fenerbahçe Beko - Partizan basketbol maçı hangi kanalda, ne zaman, saat kaçta?
+-  ช้างป่าภูหลวง! บุกบ้านหาของกินยามค่ำคืน ทรัพย์สินเสียหาย
+-  'ประเสริฐ'ลาออกพ้น สส.บัญชีรายชื่อ 'เพื่อไทย' บอกเปิดทางให้คนรุ่นใหม่
+-  Белорусы держат рубли и доллары «ближе к телу»
+-  โมเมนต์สุดซาบซึ้ง! 'พล.ต.อ.ต่อศักดิ์' เช็คเท้า-ขอพร'คุณแม่สมนึก'วันปีใหม่
+-  El cuidado de pelucas y la colocación de pañuelos abren los Encontros EnRede de 2024
+-  Top 10 stories from across Nigerian Newspapers, Tuesday, January 9, 2024
+-  Irish private secondary schools, pros and cons
+-  Successione 2024: quante tasse si pagano? I beni esclusi (aggiornamento 9 GENNAIO)
+-  조진웅 '데드맨', 예고편부터 강렬…"이름 팔고 인생도 팔았다"
+-  "الحاج جواد" شهيدًا على طريق القدس.. والعدو يُجبر على بدء المرحلة الثالثة بغزة
+-  E-domicile facility introduced in KP
+-  손흥민, 토트넘 선정 '12월의 골' 선정
+-  [단독]경산시의회 상임위원장, 사임서 자진 철회로 구설
+-  중소기업 10곳 중 6곳, 환경규제 '자율관리'에 맡겨야
+-  [영상] 민주당 부대표, 한동훈 향해 “동료 시민은 대체 누구인가”
+-  대구상의, 오는 25일 2024 외부감사제도 설명회 개최
+-  Không đồng tình mở rộng loại đất được thỏa thuận làm dự án nhà ở thương mại
+-  Ống luồn dây điện BS 4568 của Vietconduit tự tin cạnh tranh với hàng ngoại
+-  Bonus bollette 2024: confermato. Importo, requisiti, come funziona (aggiornamento 9 GENNAIO)
+-  Brezilya'da feci kaza: 25 ölü
+-  Možda je Marko Polo imao bujnu maštu – Izmišljao?
+-  Hitna: Četiri saobraćajne nesreće, pet osoba lakše povređeno
+-  Meryem Uzerli'den küçük kızına doğum günü partisi
+-  Scadenze fiscali 2024: approvato nuovo calendario. Cosa cambia? (aggiornamento 9 GENNAIO)
+-  Magath über Beckenbauer: "Auf einer anderen Ebene als wir"
+-  Ovaj psihološki triler ima odličnu ocenu, a nije ga puno ljudi pogledalo
+-  Taiwan poll frontrunner hits out at Beijing 'interference'
+-  Mapping the Unseen: How AI and Satellite Technology Reveal Offshore Activities
+-  Azerbaijan names ex-oil executive to head climate talks
+-  LG Display Unveils OLED TV with META Technology 2.0 at CES 2024, Boasting 42% Brightness Boost
+-  Ayrılık sebepleri belli oldu!
+-  Doların Yükselişi Durdurulamıyor: Artık Neredeyse 30 TL'ye Dayandı
+-  Lüks evini gösterdi!
+-  윤대통령 "'충TV' 같은 혁신 필요"… '충주시 홍보맨' 언급 화제
