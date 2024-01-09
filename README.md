@@ -1,51 +1,51 @@
 # Latest News
--  Alaska Airlines diz ter detetado equipamento "mal fixado" nos Boeing 737 MAX
--  Seda Sayan'ın estetikleri olay oldu!
--  Babacan'dan dikkat çeken mesaj: İmamoğlu'na DEVA!
--  Uzmanından dikkat çeken açıklama: Kahvaltıyı öğle saatlerine yakın yapmakta fayda var
--  İstatistiklerle cevap veriyor! Zaha kendini buldu
--  Park Halindeki Kamyonette Yangın Çıktı
--  “Dünyanın En Hafif 14 İnç Oyun Dizüstü Bilgisayarı”: HP OMEN Transcend 14
--  बॉयकॉट मालदीव के बीच ईज माय ट्रिप ने निकाला सस्ता लक्षद्वीप टूर पैकेज, ये रही डिटेल्स
--  고양시통합일자리센터 통해 6451명 취업 성공
--  चलती ट्रेन से गिर जाए पर्स या बैग तो न हों परेशान, ऐसे मिलेगा वापस
--  Previsión del tiempo en Melilla: martes 9 de enero de 2024
--  Warner Bros. Games: Mehrere Spiele zum neuen DC Universe in Arbeit
--  Mercato - PSG : Luis Enrique rêve d’une star, «c’est possible»
--  "זו הסדרה הכי אלימה של מארוול, והיא מסמנת את הכיוון שנמשיך ללכת בו"
--  Höjd lön för Lemlands kommundirektör
--  Çanakkale İçin Kuvvetli Yağış Uyarısı Yapıldı
--  동두천시의회 "미군 공여지 당장 반환, 개발비용도 책임져야"
--  女人梦见找衣服是什么意思
--  女人梦见自己被打劫了是什么意思
--  来月经能吃巧克力吗
--  Mersen : des changements au conseil d'administration
--  Trigano : les ventes ont bondi de 20% au premier trimestre grâce aux camping-cars
--  ডেসকোর ক্রেডিট রেটিং নির্ণয়
--  ‘‘초연결’과 ‘공감지능’…삼성·LG, ”미래 AI 비전 내놨다“ [CES 2024]
--  Prozess: Geld verdient hat der Burscheider mit den Kinderpornos wohl nicht
--  석유사업법 개정안 통과…"친환경 연료 활성화 기반 마련"
--  Minusgrade halten an: Nächste Schnee- und Eisfront in Köln – mehr als 20 Zentimeter Neuschnee in der Region
--  VIDEO Ivica Zubac 24 sata nakon sjajne partije protiv Lakersa ponovo je briljirao
--  জন্মদিনে ৩ ভক্তের মৃত্যু, পরিবারের কাছে ছুটে গেলেন ‘কেজিএফ’ তারকা
--  Учёные из Тулы выяснили, как очистить сточные воды с помощью микробов
--  شكر وتقدير من من ذوي المرحومة عتوس شمو غانم لجميع المعزين
--  Ataşehir’deki Trafik Kazası
--  Point marchés-Les Bourses européennes attendues en hausse dans un contexte d'attentisme
--  Баня сгорела под Приозерском утром 9 января
--  SNB schreibt 2023 Verlust von rund 3 Milliarden Franken
--  LECTRA : Lectra annonce l'acquisition de la majorité du capital de Launchmetrics
+-  Xóchitl Gálvez afirma que viene elección de Estado
+-  Reconexión México, roadtrip para reenamorarse
+-  Proyecto Colmena de la UNAM, hacia la Luna: Histórica misión mexicana
+-  Vincent D’Onofrio, kingpin, mafioso y muy inclusivo
+-  Indonesia deja en tierra 3 aviones Boeing 737 Max 9 tras el incidente en EE.UU.
+-  Las acciones de Bandhan Bank se recuperan tras la aclaración sobre las preocupaciones de auditoría
+-  NRAC y Braiin Limited presentan una propuesta de combinación empresarial
+-  Michael Carrick thận trọng trước trận đấu với Chelsea
+-  Người đại diện Salah khiến các CĐV Liverpool đứng ngồi không yên
+-  Dalot và Ten Hag nêu bật tác động của Sir Ratcliffe đến sân tập M.U
+-  3 cái tên có thể cứu vãn M.U: Thủ quân trẻ tuổi nhất Premier League
+-  Ten Hag thừa nhận kế hoạch chuyển nhượng của M.U
+-  Đội hình cực mạnh của Real Madrid khi có Mbappe
+-  Người em trai quyền lực ít ai biết của Pep Guardiola
+-  Marcelo nhận định sức mạnh của Real Madrid hiện tại
 -  글로벌 에너지위기 대응 '자원안보법' 통과…'공급망 3법' 완성
--  한화 리턴? MLB 잔류?…‘몬스터’ 류현진 메이저 잔류 가능성은
--  선불식 상조·크루즈 여행 상품 가입자, 계약 정보 매년 안내받는다
--  الرواشدة: هجمات نوعية يشنها المهربون على حدود الأردن الشمالية
--  अर्जुन अवॉर्ड से नवाजे गए मोहम्मद शमी, 25 और खिलाड़ियों को मिला ये सम्मान
--  Snipes und vielleicht ein Hyperscaler: In Bedburg wird an der A61 ein Gewerbegebiet geschaffen
--  На Дону восстановлено движение на трех трассах
--  Bauern-Demo: Bauern legen mit ihren Traktor-Protestzügen Straßen in Köln und Umgebung lahm
--  อาม ชุติมา เผยหมดทำสวยตรงไหนบ้าง รับรักการทำศัลยกรรมจนคนรอบข้างต้องเตือน
--  Navracsics: megrekedtek a tárgyalások az Erasmus-ügyben
--  İstanbul'da yağışlı havanın etkisiyle trafik yoğunluğu yaşanıyor
--  Malatya'da seyir halindeki servis otobüsünde yangın
--  Prošle godine usvojeno samo dvoje djece
--  ثيو هيرنانديز يواصل التألق في مركزه الجديد
+-  태영 워크아웃 개시 초읽기…TY·SBS 담보 약속에 채권단도 '만족'
+-  개고기 보신탕집 없어진다…'개 식용 금지법' 국회 통과
+-  군, 올해 육·공군에 전문특기병 신설…입대자 적성·취미 살려
+-  '한국판 나사' 우주항공청 설립…혁신기술 확보·산업육성 총괄
+-  초전도체株 `롤러코스터'…기대 우려 교차
+-  외교부, 한미일 인태대화 中 반발에 "韓입장 분명히 전달"
+-  우리 군, DMZ 내 임시초소 구축…GP 복원 나서
+-  군, 적대행위 중지구역 무효화에 "필요한 훈련계획 수립·시행"
+-  군, 올해 4·11월에 고해상도 정찰위성 2기 더 쏜다
+-  21 millions d'euros de travaux de démarrent à Monza
+-  IAS Success Story: Bollywood to Bureaucracy, Unveiling the Unlikely Journey of IAS Officer`s Daughter
+-  Odun ateşinde 3 günde hazırlanıyor, kışın vücudu sıcak tutuyor
+-  Çakmak gazı çeken 18 yaşındaki genç öldü
+-  দিনাজপুরে জনপ্রিয় হয়েও যে কারণে নৌকার পাল তুলতে পারেননি মনোরঞ্জনশীল
+-  ارتفاع عدد قتلى زلزال اليابان إلى 180 شخصاً
+-  来月经能吃山楂吗
+-  Olubunmi Tunji-Ojo sets March 8 deadline for full contactless passport application, delivery process
+-  네이버 치지직 vs 아프리카TV, 트위치 이용자 쟁탈전
+-  가짜뉴스센터 신속심의 9건 중 4건이 MBC ‘뉴스하이킥’
+-  Белгородских бюджетников обучат оказанию первой помощи
+-  «ألاسكا إيرلاينز» تكتشف «قِطعاً غير مثبتة جيّداً» في طائرات «737 ماكس»
+-  Another fan who suffered head injury after colliding with Yash’s convoy dies
+-  Dünya basınında gündeme oturdu! Cengiz Ünder konuşulmaya devam ediyor
+-  Organ bağışında acı tesadüf! Tek bedende İki Muhammed
+-  Bakan Göktaş duyurdu! Yaşlı ve engelli aylıkları hesaplara yatırıldı
+-  Bölgede petrol heyecanı! TPAO 18 sahada daha arayacak
+-  Liseli gençler geliştirdi! Anahtarlık şeklinde deprem kiti
+-  ABD'nin çözülemeyen kritik sorunu... Silahlı saldırılarda 43 bin kişi öldürüldü
+-  Murat Prosçiler'den şoke eden hareket! Her gören "ne alaka" dedi
+-  VİOP'ta endeks kontratı güne 8.953,25 puanla başladı
+-  Baba cinnet getirdi: Eşini ve bebeğini odaya kilitleyip evi yaktı
+-  Mersin'de silah kaçakçılığı operasyonu: 2 tutuklama
+-  Gaziantep'te terör örgütlerine operasyon: 123 şüpheli yakalandı.
+-  Jodie Foster Z kuşağına yüklendi: Çok sinir bozucular
