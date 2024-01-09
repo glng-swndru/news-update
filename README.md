@@ -1,51 +1,51 @@
 # Latest News
--  Full text of President Xi Jinping's 2024 New Year message
--  World must work together to strengthen AI governance
--  China, Middle Eastern countries strive to expand business cooperation
--  China's Blue Circle environmental initiative gives new solution to marine plastic waste
--  '행선지는 레알이 아니다'→'음바페 합류' 리버풀 예상 베스트11
--  OPPO Find X7 Ultra双潜望+大师四摄 打造多摄终极形态
--  OPPO Find X7系列超光影图像引擎：三大算法 旗舰影像
--  ROG幻14的既视感 ROG游戏手机8 Pro开箱体验
--  晚江松影叙墨韵 OPPO Find X7 Ultra松影墨韵开箱
--  哈苏人像加持 OPPO Find X7系列超自然虚化 媲美单反
--  全球唯二 OPPO Find X7 Ultra带来全焦段杜比视频录制
--  Keke Rosbergin syrjäyttämä entinen F1-kuski menehtyi
--  윤세영 회장 "필요하다면 티와이홀딩스·SBS 주식도 담보로"…'태영건설 포기설'도 일축
--  애플, '애국소비' 화웨이에 밀렸다… 中서 '아이폰' 판매량 30% 급감
--  마산대 의료관광중국어과, '전문대 글로벌 현장학습 UCC 공모전' 장려상
--  성낙인 창녕군수 ldquo;올해 새로운 변화, lsquo;창창한 창녕rsquo; 건설의 원년 만들 것rdquo;
--  순천향대 김정은 교수 lsquo;K-Medi 융합인재지원 사업rsquo; 선정
--  신현성 법무법인 HS 대표변호사 제22대 국회의원 선거 출마 공식 선언
--  미트박스 “고물가 시대, ‘갓성비’ 고기 선물세트로 설 연휴 준비하세요”
--  Irrumpen en casa para matar a hombre
--  Al Nahyan'dan Netanyahu'nun talebine ret! Alay etti: Zelenski'den iste
--  وظائف شاغرة ومدعوون للمقابلات الشخصية - أسماء
--  "مالية النواب" تناقش اليوم موازنة وزارة العدل والمجلس القضائي
--  Trinidad y Tobago despide al fallecido exlíder Basdeo Panday
--  法国总理博尔内辞职，总统马克龙发声明对其表示感谢
--  German great Beckenbauer dies aged 78
--  Σία Κοσιώνη: «Το ζούληγμα της Ελληνίδας μάνας»
--  Estado de excepción en Ecuador, misma medida con nuevo presidente
--  HUVUDLEDARE: Tyska bondestrejken blir ett verktyg för AfD.
--  Avtomobilske luči: v Nemčiji bijejo plat zvona, pri nas menda ni panike
--  Lokführer und Bahn bereiten sich auf nächsten Streik vor
--  GH, 2024년 공사 용역 총 4223억원 발주
--  В Турции начали подготовку к встрече Путина и Эрдогана
--  إهدار للمال العام والخاص.. برلمانية تقدم طلب إحاطة بشأن تدني طريق دمياط- دمياط الجديدة
--  Brittisk detaljhandelsförsäljning steg i december
--  Mandag aften lå programmet for en historisk søndag i København klar
--  Jimmy Kimmel Slams “Ignorant” Aaron Rodgers During Seven-Minute On-Air Rant After Epstein Flap
--  ASUS intros ROG Maximus Z790 Hero BTF motherboard with hidden power connectors
--  मौसम अपडेट: शीतलहर और घने कोहरे का अलर्ट, बारिश की संभावना, जानिए मौसम विभाग का पूर्वानुमान
--  Người Mỹ sắp được nhận những tấm chi phiếu an sinh xã hội đầu tiên với mức tăng COLA của năm 2024
--  경남선관위 선거법 단속 강화…허위사실·비방 특별대응팀 운영
--  박형룡 달성군 출마 선언 "윤석열 검사 정권 심판하겠다"
--  강원소방, 2024강원동계청소년올림픽 대회시설 현장점검
--  교사가 장애아동 학대…경찰 신고 접수, 전북교육청 "사실관계 확인"
--  "동료 교수에 성폭행 당했다" 명예훼손 혐의 교수 집행유예
--  국회, 조태열 외교부 장관 후보 인사청문보고서 채택
--  민주당 대학생위원회 "국힘 입당 이상민, 총선 불출마하라"
--  대통령실, 국가안보실에 3차장 신설…경제안보 담당
--  中企 탈 쓴 글로벌 면세점, '국내 면세시장서 퇴출'
--  “애호박 990원에 판매”…홈플러스, 서울시와 물가안정 나선다
+-  Президентът на ФИФА: Никога няма да те забравим, Франц
+-  جديد فضيحة جيفري إبستين.. أشرطة جنسية مع قاصرات للأمير أندرو وبيل كلينتون
+-  ‘유아인에 수면제·프로포폴 과다 처방’ 의사 6명 불구속 기소
+-  כל אחד ממשיך בשלו: וושינגטון הפסידה גם לאוקלהומה סיטי, 17 נקודות לדני אבדיה
+-  אגדת ההתעמלות היהודיה, אגנס קלטי, חוגגת את יום הולדתה ה-103
+-  Sport | 'Job done' as Man Utd avoid FA Cup upset at Wigan, build momentum for Spurs
+-  온라인 판매 글루타치온 식품 59%가 '부당광고' … 일부는 실제 함량 '절반'
+-  총선 후보자 출판기념회 초대장에 '속앓이' ... 책값 이외 축하금 명목 후원 횡행
+-  Tecno Spark 20C Price In Philippines
+-  الأردن: لا يمكن السماح لنتنياهو بجر المنطقة لحرب أوسع
+-  SKT, ‘CES 2024’서 핵심 AI 기술 선봬
+-  KT, 20대 전용 Y브랜드 ‘대한민국 퍼스트브랜드 대상’ 수상
+-  롯데정보통신, 국립부산과학관 특별 기획전 참여
+-  잭커리, CES 2024서 ‘솔라 마즈봇’ 공개… “태양광 발전 새 시대 개막”
+-  LGU+, 키즈폰 출식이2 출시…갤A24 기반·39만6천원
+-  ফের মঞ্জুলিকা হয়ে ফিরছেন বিদ্যা!
+-  What caused the hole on the Alaska Airlines flight, and what does it mean for Australia?
+-  What caused the hole on the Alaska Airlines flight, and what does it mean for Australia?
+-  Infidencias y confidencias del martes 9 de enero de 2024
+-  Efraín Quintero: “Llueva o truene, El Siglo siempre llega a sus lectores”
+-  수은, 우리 기업 美 투자 프로젝트 지원
+-  الكشف عن تفاصيل جديدة .. 3 مصريين ضمن خلية الموساد في تركيا و4 من دول عربية آخرى
+-  Danes dve opozorilni stavki: najprej Fidesa, nato še pacientov
+-  انتخابات میں جیت کیلئے مودی نے رام مندر کو بھی دائو پر لگادیا
+-  „Megmutatjuk, hogy az EU-ban nem lehet zsarolni” – Aláírásgyűjtés indult Orbán Viktor ellen
+-  Les tarifs bancaires repartent à la hausse cette année (association de consommateurs)
+-  „Kifáradás” jelei a kisföldalattin: repedezhetnek az M1-es vonal szerelvényei
+-  "Des méthodes de crapules": Alain-Fabien Delon porte plainte contre sa sœur Anouchka
+-  Congress to turn ‘Samaragni’ into poll campaign meets
+-  В Новосибирской области более 6,6 тыс. человек остались без света из-за непогоды
+-  ‘경찰 못 믿겠다’는 민주당, ‘이재명 피습 사건’ 특검·국조 가능성도
+-  Суд оштрафовал соратника Лукашенко, но диктатор разрешил ему не платить
+-  Nuorten aikuisten päässä muhii ristiriita: yhteiskuntaan haluttaisiin vaikuttaa, mutta omaan osaamiseen ei uskota
+-  فارس سعيد: فَقَدَ حزب الله سبب وجوده وبدّل السلاح بالتفاوض
+-  상승세 이어가는 아프리카TV…10만원대 재진입
+-  Weerbericht | Het is vandaag zonnig en voelt heel erg koud
+-  [영상]"제시카, 저녁먹기 전 TV?"…AI 반려로봇 선보인 삼성·LG[CES 2024]
+-  В Подмосковье задержан начальник котельной и замглавы Подольска после отключения отопления
+-  Édito. La couleur du caleçon de Poutine
+-  Ngành Hải quan bắt 2,8 tấn ma túy qua đường hàng không, cửa khẩu và đường biển
+-  Jižní Morava se chlubí vysokou kvalitou života, žebříček však budí i pochyby
+-  A lifeline for silent struggles
+-  미 민간 달 착륙선, 실패위기…"심각한 연료 손실 발생"
+-  宣傳好陽春…惡女凱莎拿破紙箱給狗仔拍 「新歌要來了」笑翻網友
+-  Shooter kills two people at Minnesota motel, found dead
+-  Pospremate krevet na pogrešan način? Stručnjak objašnjava kako biste to zapravo trebali učiniti
+-  Izgradnja ciglane u Beranama 16 godina u planovima i obećanjima
+-  Τζέισον Στέιθαμ: Μεταμορφώνεται σε προστάτης των αδυνάτων στη νέα ταινία «Ο Μελισσοκόμος»
+-  प्राण प्रतिष्ठा से पहले मूर्ति की आंखों पर क्यों बांधते हैं पट्टी? जानें- क्या है मान्यता
+-  AP: Venäjä pudotti vahingossa pommin miehittämäänsä Luhanskiin
