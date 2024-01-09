@@ -1,11 +1,51 @@
 # Latest News
--  الدبيبة يؤكد على ضرورة تقديم بدائل الدعم وتوضيحها للمواطنين
--  Digital Scent Technology Market Size 2023: Global Share, Industry And Report Analysis By 2030 | Unilever, Procter & Gamble, Reckitt Benckiser
--  KPU: Laporan Awal Dana Kampanye 18 Parpol Peserta Pemilu Belum Lengkap dan Tidak Sesuai
--  Next Generation Complement Therapeutics Market Latest Report with Forecast to 2031
--  Fernando Santos'un imza töreninde gerginlik
--  Joseph: Njohja e pasaportës nga Spanja, hapë perspektivë për Kosovën
--  Brain Health Devices Market Is Booming Worldwide 2023-2030 | BrainScope Company, Inc., Bio-Signal Group Corp., Cadwell Industries, Inc. Advanced Brain Monitoring, Inc.
--  BJP doesn`t have lease of Ram Mandir, it belongs to entire nation: Kamal Nath
--  UP: 7 and 8 year old kids die of asphyxia due to coal fire in Lakhimpur Kheri
--  Volvió el teléfono a GH: Zoe quedó nominada y “Furia” ganó la inmunidad
+-  "سدايا" تدشن مشروع "عيناي" للكشف عن مرض السكري عن طريق الذكاء الاصطناعي
+-  تحذير مهم من هيئة النقل: هذه قائمة المواد البريدية المحظورة
+-  대통령실 "이태원 특별법, 여야 합의없이 또… 유감"
+-  민주 "이재명, '성희롱 발언 논란' 현근택 윤리감찰 지시"
+-  قائمة برشلونة للسوبر الإسباني
+-  Ubezpieczenie od utraty zysku – dlaczego warto zabezpieczyć swoją firmę?
+-  হোয়াটসঅ্যাপে সহজে কল রেকর্ড করবেন যেভাবে
+-  El complicado panorama que deja la recaudación en Mendoza para las paritarias
+-  Policja ma już nakaz doprowadzenia Wąsika i Kamińskiego. Nie wiadomo jednak, gdzie byli posłowie są
+-  আইএমএফের লক্ষ্যমাত্রা পূরণ করা সম্ভব নয়: অর্থমন্ত্রী
+-  Gold price per tola gains Rs300 in Pakistan
+-  Južná Kórea reaguje na provokácie, plánuje obnoviť cvičenia v nárazníkovej zóne
+-  มหาสารคาม "ปัดกวาดบ้านตัวเอง" จับพ่อค้ายาบ้า ซื้อเม็ดละ 12 ขาย 18 บาท
+-  737 MAX : Boeing rattrapé par les failles de son contrôle qualité
+-  Bahnstreik News 2024: Aktuelle Nachrichten im Newsticker
+-  Robert Habeck News 2024: Aktuelle Nachrichten im Newsticker
+-  Caring for Marbella’s environment
+-  أنصار فلسطين يستعدون لـ "يوم التحرك العالمي" للمطالبة بوقف الحرب ضد غزة
+-  Legendärer Baumeister Valentin Ceconi prägte ganz Salzburg
+-  Encuentran en un patio la puerta de un Boeing que se desprendió en pleno vuelo en los Estados Unidos
+-  Warszawskie indeksy próbują odbicia
+-  Florian Silbereisen News 2024: Aktuelle Nachrichten im Newsticker
+-  Αστυνομικός ήρωας σώζει ένα μικρό αγόρι από πνιγμό - Έμεινε ένα κομμάτι κέικ στον λαιμό
+-  Meeks: S nákupy technologických akcií není kam spěchat
+-  "Ti nikad nisi platila porez, a napravila si milione" Pevač udario na Nadu Topčagić, ona pocrvenela: "SRAM TE BILO!"
+-  Unity inicia 2024 demitindo 1,8 mil funcionários
+-  Verstorbene Stars News 2024: Aktuelle Nachrichten im Newsticker
+-  Golf legend Tiger Woods says Nike partnership ending
+-  Galaxy Tab S6 Lite (2022 model) gets One UI 6 update in India
+-  Placas-mãe AMD AM5 recebem atualização com suporte aos CPUs Ryzen 8000
+-  كأس أمم إفريقيا 2023: المنتخب المغربي يخوض أول حصة تدريبية بكوت ديفوار
+-  Notaires : ONB limite la casse grâce à sa diversification
+-  Ascott, C-WELL acquire lodging property, to relaunch under lyf brand with equal stake
+-  Katalin hercegnéről sosem látott fotót tett közzé a palota: 42. szülinapja alkalmából így köszöntötte Károly király
+-  Φέρντιναντ: «Ο Σομποσλάι είναι υπερεκτιμημένος»!
+-  STI rises 0.3% amid hopes of slowing US inflation, rate cuts
+-  Bayern zainteresovan za Kevina Dansa iz Lensa
+-  Πρόσκληση στην Ετήσια Τακτική Απολογιστική Γενική Συνέλευση των μελών του Αθλητικού Σωματείου ΑμεΑ Ν. Ημαθίας «ΑΙΓΕΣ ΒΕΡΓΙΝΑ»
+-  Cha mẹ đừng kìm hãm sự phát triển của con vì những điều nhỏ nhặt
+-  Trấn Thành: Để bán vé tôi hoàn toàn có thể mời Mono, HIEUTHUHAI thay vì Tuấn Trần
+-  Thủ môn Kim Thanh đón Tết lớn, cổ vũ tuyển Việt Nam tại Asian Cup qua TV 98 inch
+-  Cận Tết đi tiêm tai tài lộc để đổi vận giàu sang trong năm mới: BS thẩm mỹ khuyên làm 3 việc trước khi tiêm
+-  Vừa mở bình chọn, WeChoice Awards 2023 đã chứng kiến cuộc “đại chiến” của các rapper, nghệ sĩ Gen Z tại hạng mục Giải trí
+-  Cảnh báo chiêu thức mới giúp hacker "xâm nhập" tài khoản Google và đánh cắp dữ liệu mà không cần mật khẩu
+-  Une bonne fois pour toutes, on a dépassé la Borne
+-  Guinée : Dr Makalé Traoré et son équipe se retirent de la gestion du cadre de dialogue…
+-  Fernando Santos'un imza töreninde gergin anlar yaşandı
+-  İstanbul'a yılın ilk karı düştü! Trafik kilitlendi
+-  Nazlı Sabancı elbisesiyle alay konusu oldu!
+-  Israel. Borrell anuncia compromisso para solução de dois estados
