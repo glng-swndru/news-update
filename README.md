@@ -1,51 +1,51 @@
 # Latest News
--  Šéf liberálov v europarlamente varuje pred dôsledkami vzostupu krajnej pravice
--  V prvom štvrťroku chceme začať proces zonácie TANAP-u, povedal Taraba
--  Pri dopravných nehodách v Trenčianskeho kraja zomrelo v minulom roku 21 ľudí
--  Kráľovský palác zverejnil program nedeľňajšej výmeny panovníka v Dánsku
--  Z hrebeňa Nízkych Tatier spadol turista: Do nemocnice ho viezol vrtuľník
--  Exposlancov mali previezť do väzenia: Miesto toho ich prijal prezident Duda
--  Pri pohľade na FOTO známej Slovenky vám bude nevoľno: Fuj! Nechutný návrat do školy
--  Slávny chirurg John Hunter bol poriadnym čudákom: Ochutnal múmiu a pitval obra?
--  Regras de solicitação da revisão dos valores no FGTS
--  "Stanje u Željezari teško, neću se oglašavati dok ne organizujem jedinice"
--  Solar gradnja: Već smo smanjili broj radnika, popravlja se saradnja sa EPCG
--  Aleksander-Arnold zbog povrede nekoliko nedjelja van terena
--  Bhutan&#039;s People&#039;s Democratic Party wins election in Himalayan kingdom and returns to power
--  The US and UK say Bangladesh&#039;s elections extending Hasina&#039;s rule were not credible
--  Relembre trajetória de Marta na prefeitura de SP
--  Man United beats 3rd-tier Wigan 2-0 to ease through to 4th round of FA Cup
--  Gradonačelnik Nišić sa suradnicima obišao izgorjelu kuću u naselju Prutače
--  Pix pode passar por alterações
--  Agrarexperte erklärt, was Landwirte und Politiker zusammenbringen könnte
--  Hrithik Roshan Birthday 2024: 5 best movies of the Bollywood`s Greek God
--  Tiger & Jackie receive invite for attending the Ram Mandir consecration ceremony
--  Juhu`s Sun-n-Sand Hotel to host Izumi for a pop-up by the sea from Jan 12 - 14
--  Royaume-Uni :: Bataille D’angleterre : Manchester United Et Tottenham Hotspur Ont Rendez-Vous En Premier League :: United Kingdom
--  Ampel-Koalition: Grüne wollen beim Thema Gerechtigkeit wieder Vertrauen zurückgewinnen
--  Gondola se srušila u Tirolu: Teško ozlijeđene četiri osobe
--  Patlamada 3 asker şehit olmuştu... Havai fişek fabrikası davasında karar
--  Antalyaspor kazandı! Sergen Yalçın siftah yaptı
--  Beşiktaş için Ricardo Quaresma iddiası!
--  XIII Noc Biologów już w piątek. Uwaga! Na wykłady, warsztaty i laboratoria obowiązują zapisy
--  Alanyaspor ile MKE Ankaragücü yenişemedi!
--  Trận thua ĐT Kyrgyzstan chỉ ra vấn đề đáng lo của ĐT Việt Nam
--  Клуб РПЛ объявил об уходе футболиста сборной Казахстана
--  Nhóm nữ nhà JYP ra album, chạy tour thế giới dù thiếu giọng ca chính, netizen: Đội hình như "ăn theo" BLACKPINK đến cùng?
--  Tốt nghiệp rồi mới phát hiện trong túi áo đồng phục cấp 3 có giấu một mảnh giấy chứa "bí mật nhỏ", nữ sinh hối hận không thôi
--  Grifols se escuda en que sus cuentas "están totalmente refrendadas" por su auditor KPMG
--  Grifols se escuda en que sus cuentas "están totalmente refrendadas" por su auditor KPMG
--  Grifols se escuda en que sus cuentas "están totalmente refrendadas" por su auditor KPMG
--  Grifols se escuda en que sus cuentas "están totalmente refrendadas" por su auditor KPMG
--  Z RTVS odišiel Pavlík, bol riaditeľom Sekcie online služieb
--  Der Stettnerweg in Korneuburg
--  Russian to be extradited over false Chernobyl claims
--  Berisha kthehet në kartë të djegur, Boçi: Synohet bashkimi, Basha të reflektojë
--  İstanbulluların çilesi! Trafik durma noktasına geldi
--  Selena Gomez rompió el silencio sobre el “chisme” que se hizo viral en los Globos de Oro
--  Emma Stone Hits Red Carpet with Husband Dave McCary, 24 Hours After Golden Globes Win!
--  Sunovrat Zvezdinog vunderkinda: Još uvek ima 19 godina, umesto Mitrogol 2.0 postao je drugoligaški igrač, a to sebi ne sme da dozvoli
--  Ислам Махачев отказался от боя в UFC
--  More than 1,000 Ukrainian towns lose power due to extreme winter weather
--  Israel News: ++ Baerbock fordert Öffnung der Grenze zu Rafah für 24 Stunden ++
--  Galeria Karstadt Kaufhof zum dritten Mal in drei Jahren zahlungsunfähig – Tagesschau
+-  NASA expected to push back Moon missions
+-  Pokemon VGC player reaches top 128 with “adorable” tiny Pokemon
+-  Soccerladuma | Broos Reveals Major Injury Concern For Bafana
+-  Soccerladuma | Official: Chippa Confirm New Coaches After Mammila Decision
+-  Soccerladuma | Henry: I Was Crying Every Day
+-  Soccerladuma | Salah To Reunite With Mane In Saudi Arabia?
+-  Trump Lawyer Claims Presidential Immunity Covers Having Rivals Assassinated
+-  90 Day: The Single Life fans defend Tyray after being stood up on date with Tiffany
+-  Journées Économiques Maroc-France : la 6ème étape, du 23 au 25 janvier à Nantes
+-  مجلس النواب يقر عددا من القوانين خلال جلسته التي عقدها بمدينة بنغازي.
+-  انتشال مخلفات حرب من مزرعة جنوب طرابلس .
+-  نادي ابوسليم يتعاقد مع لاعبين مغربيين لتعزيز الفريق الاول لكرة القدم .
+-  جوازات حي الأندلس بطرابلس تصدر جوازات سفر للنازحين من المنطقة الشرقية بسبب الفيضانات..
+-  Yüzünüze Bakıp Sağlık Sorunlarınızı Anlayacak "Sihirli Ayna" Tanıtıldı
+-  TECNO, Oyun Odaklı Fiyat/Performans Telefonları POVA 5 Serisini Türkiye'de Satışa Sundu
+-  Getting the most from social and labour plans
+-  Beşiktaş'ta Serdar Topraktepe konuştu! "Kulüpte kısmetsizlik var"
+-  Bufete español acusa a José Brito y otros exdiputados de desfalcar €1.100 millones #9Ene
+-  JUHTKIRI | Kui streigiteravik tabab valitsuse asemel lapsi, on asjad halvasti. Ka õpetajad peavad seda oma pühas vihas mõistma
+-  Sanwo-Olu Reiterates Continued Residents’ Improvement Through Empowerment, Education
+-  Want to build a startup off OpenAI? Start here
+-  Perú Libre pide al presidente del Congreso que exhorte a bancadas que acrediten miembros de comisión que investigará muertes en las protestas
+-  Ganjar Pranowo Vows Nickel Smelter Moratorium If Elected President
+-  Scorsese anunció que este año filmará una película sobre Jesús
+-  Stockholmsbörsen backade – Nibe i botten
+-  KPRM: urlop dla przedsiębiorców jeszcze w 2024 r.
+-  Prognoza Banku Światowego: wzrost gospodarczy w 2024 r. spowolni
+-  Deficyt handlowy USA nieoczekiwanie się zmniejszył
+-  Litwa inwestuje w rozwój infrastruktury wojskowej
+-  Konfederacja Lewiatan: nie ma obecnie większej przestrzeni do dalszych obniżek stóp
+-  Tineco's two-in-one vacuum mop is a social media star. And it's $100 off at Amazon today
+-  Bronnen melden: het gaat om meer dan alleen de rechtsstaat tijdens formatie driedaagse in Hilversum
+-  মাদারীপুর-২: নৌকার কাছে পরাজিত ৩ জনই জামানত হারিয়েছেন
+-  কারচুপির ভোটে হেরেছি: ইনু
+-  ঝালকাঠিতে স্বেচ্ছাসেবক লীগ নেতাকে হত্যার ঘটনায় মামলা
+-  Schaatsbaan van Edese IJsvereniging gaat om 19.00 uur open voor leden en introducees
+-  Megvan, ki játssza a női főszerepet a Farkasember legújabb változatában, ami az olcsó, de nagyon sikeres horrorfilmek műhelyében készül
+-  ঝিনাইদহে নৌকার সমর্থককে কুপিয়ে হত্যা
+-  Starfield modders insist they haven’t given up on the game but need better tools
+-  NPUs are officially useless — for now
+-  Venatorx Pharmaceuticals and Menarini Group Enter Commercial Agreement for Cefepime-Taniborbactam in 96 Countries
+-  PABLO AIR Unveils Innovative Versatile Drone 'FB04' at CES 2024
+-  LG SHOWCASES LATEST INNOVATIONS AT CES 2024
+-  Chieri in campo per l’andata dei play-off della Coppa Cev: al Pala Gianni Asti arriva il Police
+-  Bonucci, niente ritorno in Italia...per ritrovare l'Italia: sarà Fenerbahce
+-  Seconda giornata di Coppa Europa a Sestriere
+-  Con Acqua Lete l'amore per il calcio diventa un inno
+-  Linker Vision Leverages AWS, Together with Taiwan's Ministry of Digital Affairs, Kaohsiung City Government, to Showcase New Technology and Release of VisionAI Platform at CES 2024
+-  World espies Azerbaijan as considered one of most tolerant international locations – veteran, honorary officer
+-  Barella e Calhanoglu diffidati: le tre chances per non saltare Inter-Juve
