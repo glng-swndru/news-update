@@ -1,51 +1,11 @@
 # Latest News
--  الخيرية الهاشمية: فتح معبر كرم أبو سالم تم بضغط سياسي أردني لإدخال المساعدات لغزة
--  الذهب عالميا يتعافى من أدنى مستوى في 3 أسابيع
--  عشرات المستعمرين يقتحمون المسجد "الأقصى"
--  الصحة العالمية: ربع سكان اليمن يعانون من الصدمات النفسية
--  ارتفاع عدد قتلى زلزال اليابان إلى 180 شخصا
--  6 إصابات خلال مواجهات مع الاحتلال في نابلس
--  الحكومة: ارتفاع البنزين بنوعيه وانخفاض الكاز والديزل عالمياً
--  الأمانة: نقل تخمين مرج الحمام لمجمع الدوائر بالعبدلي الأربعاء
--  "สมศักดิ์" เปิดใจลาออก สส. เปิดทางคนรุ่นใหม่ ไร้การันตีนั่ง รมต. 4 ปี
--  "ดอกเบี้ยแพง-กำไรแบงก์พุ่ง " กกร.นัดถกปมร้อน พรุ่งนี้
--  ตร.มหาสารคามรวบหนุ่มนักค้ายาบ้า 8 ครั้งไม่เคยเข็ดยึดได้อีกเกือบ 7 หมื่นเม็ด
--  ฮาไม่ไหว! เมื่อแม่ขอกระดาษ 'แคทชู่' หรือเราเรียกผิดตั้งแต่แรก!? (มีคลิป)
--  แล้วแต่คนมอง‘รมต.ขาลอย’ ‘สมศักดิ์’เปิดใจหลัง​ลาออก ส.ส.บัญชี​รายชื่อ‘​เพื่อไทย​’
--  'อุเทนถวาย'ประกาศสั่งงดเรียน-งดสอบทุกชั้น 3 วัน เซ่นปม 2 สถาบันยกพวกทะเลาะวิวาท
--  'ปิยบุตร'ไม่รอด!! ตร.ส่งสำนวนความเห็นฟ้อง 2 ข้อหาปมจัดรายการคลัปเฮาส์
--  'ศุภมาส'สั่ง'อุเทนถวาย-ปทุมวัน'หามาตรการป้องกัน เหตุยกพวกตีกันบนสกายวอล์กแยกปทุมวัน
--  해외 게임유저, K-게임 월평균 지출액 42달러…선호 장르는 ‘퍼즐’
--  ভোটারের চেয়ে ভোট বেশি দেখানো নকল ফলাফলের চিত্র সামাজিক যোগাযোগমাধ্যমে
--  ইতিহাসের এই দিনে: প্রথম আইফোনের মডেল উপস্থাপন
--  বেকেনবাওয়ারের মৃত্যুতে যেভাবে শোক জানালেন মেসি
--  На Алтае нашли мертвым 16-летнего подростка
--  Énième rebondissement dans l’affaire Delon : Alain-Fabien attaque sa sœur Anouchka
--  אפל הכריזה: משקפי ה-Vision Pro יגיעו לחנויות בחודש הבא
--  רייטינג: עידו רוזנבלום ומונית הכסף פתחו עונה, הפטריוטים נותרו מאחור
--  תנועת האיחוד החקלאי בדרישה מהממשלה: "החזירו את הפועלים הפלסטינים"
--  海關港珠澳大橋口岸檢1000萬元走私黃金 拘澳門男司機
--  Bitcoin достигна $47 000
--  10 Largest Airports in the World; One Almost Half the Size of Jakarta
--  Schaatsbaan Voorthuizen gaat vandaag om 12.00 uur open
--  This is our Cyprus
--  Onlinesuper Picnic haalt honderden miljoenen op bij investeerders
--  FNV en NS bereiken 'redelijk' cao-resultaat, leden nu aan zet
--  Parlement Zuid-Korea verbiedt handel in hondenvlees
--  Dodental aardbeving Japan loopt op tot boven de 200
--  Aandacht voor chipbedrijven op Damrak na cijfers Samsung
--  Saudi Arabia tries to thread the needle between crude output, prices: Russell
--  Saint-Louis : 500 autorisations de pêche mauritaniennes remises aux pêcheurs
--  오비고, CES 2024서 ‘오비고 데일리 브리핑 포털’ 공개
--  위세아이텍-이안프론티어, STO 맞손…“AI 기술력으로 시장 선점할 것”
--  엑스잇비트, BTC ETF 최종 승인 기한 앞두고 기조 연설 진행
--  레노버, CES 2024서 AI 기반 디바이스·솔루션 공개
--  МВФ очаква световната икономика да нарасне с 3% през тази година
--  – Selv synes jeg det gikk veldig bra mot ham, så jeg er fornøyd!
--  টুয়েলভথ ফেল
--  শেখ হাসিনাকে আওয়ামী লীগ নেতাদের ফুলেল শুভেচ্ছা
--  ফেনীতে জামানত হারালেন পরাজিত সব প্রার্থী
--  শীতে কাঁপছে চুয়াডাঙ্গা
--  আয়ানের চিকিৎসায় ‘গাফিলতি’: স্বাস্থ্য অধিদপ্তরের তদন্ত কমিটি
--  গণতন্ত্রের কফিনে শেষ পেরেক এই নির্বাচন, আন্দোলন চলবে: গণতন্ত্র মঞ্চ
--  শাকিবের ‘দরদ’ এবং রাজের ‘কাজলরেখা’র মুক্তি পেছাল, কারণ…
+-  This CEO Allegedly Killed Her Four-Year-Old Son, Left Hotel With Body In Bag; Read Horrific Crime Story
+-  NEET Success Story: Rajasthan Village Youth, Father Of 6-Month-Girl, Cracks Exam In 5th Attempt
+-  Final Fantasy e Apex Legends è polemica: troppe lootbox secondo i fan
+-  Antonella Clerici da Diletta Leotta: "Mia figlia vittima di bullismo"
+-  RBI Assistant Mains Result 2024, Expected Date, Cut Off, Merit List
+-  단국대, 경기도 최초 첨단비즈니스 최고경영자과정 신설
+-  인천 남동구립도서관, 2024년 생애주기별 프로그램 강사 모집
+-  인천시교육청 북구도서관, 도서 택배발송 서비스 운영
+-  한신대, 2024학년도 정시 경쟁률 6.08대 1 기록
+-  [구례 화엄사 경제적 브랜드 가치 82억원 돌파
