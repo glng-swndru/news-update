@@ -1,51 +1,11 @@
 # Latest News
--  Arrendamento acessível atinge apenas 0,1% do mercado e fica longe da meta do Governo
--  Travel chaos in Germany as railway train drivers begin three-day strike
--  National Cybersecurity Certification Authority established in Cyprus
--  [영상] 한동훈 인사 논란에 “尹정부 인사 참사 장본인의 안목”
--  बॉलीवुड की मशहूर एक्ट्रेस तमन्ना भाटिया को लगी जुए की लत!
--  Era de Charles Michel ao leme do Conselho Europeu não deixa saudades em Bruxelas
--  Tidal Flooding on Java's North Coast May Cause Rp10tn in State Losses Annually
--  Avenue International (Cook Islands) Limited Stands with Earthquake Victims in Japan
--  Microland, Great Workplace 재수상 영예 차지
--  New Chinese medicine drug developed by HKBU for myofibrillar myopathy granted orphan drug designation by FDA
--  বাংলাদেশে উচ্চ মূল্যস্ফীতি বহাল থাকতে পারে: বিশ্বব্যাংক
--  Safe2Tell sees rise in reports during first semester of the 2023-24 school year
--  Voici la PS5 Slim avec ses nouvelles couleurs
--  한 끗 차이
--  어린이들이 직접 그리고 쓴 제주 생태환경 동시집
--  오민숙 수필집 ‘풍경을 훔치다’
--  미분양 주택 위험수위 선제적 대응 시급하다
--  평화대공원 조성, 법적 조치 완료…조속 추진 기대
--  제주-서귀포서 갑진년 신년음악회
--  천만 반려견 시대, 보신탕 사라진다
--  제주서 다양하고 풍성한 예술 무대 마련 전망
--  김희현 제주도 부지사 “왜곡된 부분 적지 않아…인격 모독 말라”
--  고소·고발 사건 무단으로 반려...경찰관 재판행
--  "제주도민 건강 지키고 제주의료가치 실현 총력"
--  "제주도민이 믿고 선택하는 병원 비전 달성 노력"
--  애월읍 폐기물 처리장서 화재...6시간 만에 불길 잡아
--  제주형 행정체제 개편 탄력…11일 용역 최종보고회 개최
--  겨울 낭만 즐기기
--  겨울 속 제주의 봄
--  한가로이 노닐고 있는 노루들
--  “제주 인재 함께 키운다” AI 글로벌 인재양성 교육 발대식 개최
--  정부, 지방 준공 후 미분양 주택 사면 '주택 수 제외'
--  100년 전 제주의 모습은?
--  Quyết định gây choáng của Andre Onana
--  OceanSound-Backed Lynx Buys Thompson Software Solutions; Tim Reed Quoted
--  Bernd Wehmeyer über Beckenbauer beim HSV: „Weltstar, aber ohne Sonderrolle“
--  농축협 직영 온라인몰 판매상품, "이젠 'NH콕뱅크'에서 구매하세요!"
--  Gondelabsturz in Tirol: Vater weiter in kritischem Zustand
--  충주시, 뇌병변장애인 위생용품 구입비 지원사업 시행
--  2차전지주 하락 여파, '삼성SDI' 52주 신저가'
--  [세계테마기행] 거침없이 멕시코 3부-맵다 매워, 삐까삐까, 오아하카
--  DOE Seeks Proposals for $2.7B Uranium Enrichment Services Procurement Contract
--  與 이재명에 '뼈있는' 쾌유기원 "측근 아닌 국민 위한 정치 부탁"
--  산림청, 여의도 면적 15배 사유림 매수…579억 투입
--  황보승희, 재판서 억대 자금 수수 혐의 "전면 부인"
--  '흉기 난동 살인' 조선 사형 구형…"죄송하다"면서도 정신장애 주장(종합)
--  강기정 시장 "광주, 국내 유일 인공지능(AI) 실증도시로"
--  경남형 농업 경쟁력 강화…농기계 공급 확대·청년 아이디어 지원 '팍팍'
--  ubc울산방송, 보도특집 '미래 열 열쇠 H' 방영
--  "교육부 고위공무원이 사교육업체로" 사교육카르텔 '의혹'
+-  Familie Yoran Krol organiseert gecoördineerde zoekactie: 'Help ons onze zoon te vinden'
+-  Таджикистан готовится к переходу на 10-балльную систему оценок в школах
+-  Drejtoria doganore: Janë sekuestruar 248 gramë ari që dy udhëtarë janë përpjekur ilegalisht ta nxjerrin nga shteti
+-  수원시, 재미한인과학자협회와 ‘바이오산업 발전’ 맞손
+-  [기호일보 만평] 뒤끝 작렬
+-  경기 사랑의열매, 시흥 거모사회복지관에 성금 2천600여만 원 전달
+-  국민의힘 인천시당, 경인전철 지하화 특별법 통과 환영
+-  נקמת האקסית: הגרושה של טראוויס ברקר נכנסת בו ובמשפחת קרדשיאן
+-  인하대병원, 긴급구조지원기관 능력평가 ‘우수’
+-  Patrick Doyle Applauds Former Classmate for Culinary Prowess, Equates Her Cooking to His Sweetheart’s
