@@ -1,11 +1,51 @@
 # Latest News
--  استشهاد الصحفية هبة العبادلة وابنتها
--  لا شيء مستحيل
--  الأردن يسيّر طائرة مساعدات جديدة إلى غزة
--  ماسك يرد على مزاعم تعاطيه المخدرات!
--  그루비룸, 7년만 새 앨범 컴백…17일 선공개곡 발매 [공식]
--  '황희찬, 이런 급이 됐다!'…"울버햄튼 득점왕에 대한 의존도 줄여라!"→울버햄튼이 겨울에 FW 영입하는 이유! 유력 후보는 웨스트햄 FW
--  10개국→ 64개국 亞 쿼터 늘어나도 문제 없다? "이 소식 듣고 잘했으면 좋겠네요" [MD수원]
--  Snažna oluja u SAD, gotovo 700.000 ljudi bez struje
--  Nurdağı ve İslahiye'de tarım arazileri devlet desteğiyle yeşilleniyor
--  Sıkışan fermuarı düzeltmenin kolay yöntemi: Kalem! Fermuar hemen açılıyor
+-  Fenerbahçe-Konyaspor maçının VAR hakemi belli oldu
+-  Acı olay! İki kardeş 2 yıl arayla trafik kazası kurbanı oldu
+-  Semih Kılıçsoy, performansıyla göz kamaştırdı
+-  İsrail'e karşı açılan "soykırım davası"na ilişkin Blınken'ın küçümseyici sözlerine Hamas'tan tepki
+-  Škaljarac brutalno ubijen
+-  [경남도 "경영위기 소상공인 돕는다"…소상공인 정책자금 2000억 지원
+-  [백복인 KT&G 사장 ‘4연임’ 포기…"새로운 리더십 필요"
+-  Grifols anuncia acciones legales contra el fondo Gotham City por el "daño financiero y reputacional causado"
+-  Ovo su najskuplji gradovi za kupovinu stana u Hrvatskoj
+-  Podemos mantiene el 'no' al decreto de Yolanda Díaz: "Nos piden los votos gratis"
+-  Cement-Gryf Chełm w 2023 roku wywalczył 89 medali
+-  Air Arabia begins flights to Kabul International Airport
+-  Bakan Fidan Kırgızistan’da görüşmeler gerçekleştirerek anlaşma imzaladı
+-  Trafikte ünlü futbolcu ve eşine saldırmışlardı, hakim karşısına çıktılar
+-  Άγριο έγκλημα στον Βόλο: Αλβανός πατέρας θόλωσε όταν έμαθε ότι ο κουνιάδος του βίαζε την κόρη του από τα 9 της χρόνια, άρπαξε την καραμπίνα του και την άδειασε πάνω του
+-  Cosa succede quest'anno col bonus di 100 euro al mese in busta paga
+-  Gasa chooses PDP
+-  بلاغ مرصد رقابة اخلالات وتجاوزات كبيرة شابت المناظرة الخارجيةلانتداب أعوان بالشركة الجهوية للنقل بمدنين
+-  BSW: Was unterscheidet Wagenknecht-Truppe eigentlich von der AfD?
+-  Ecrouée pour une 2e fois, Coline Fay risque d’être expulser du Sénégal
+-  Late bid for communal living in tower approved for Valley site
+-  Boeing-Chef gibt „unseren Fehler“ nach Panne an der Türverkleidung der 737 Max zu
+-  Montalegre mais próximo do topo da tabela
+-  Явор Бахаров и Рая Пеева: Предстои ли сватба?
+-  2 milyon kazanmak için hangi meslek grubu kaç ay çalışmalı?
+-  Staus in Berlin, Hamburg, München: Wo Autofahrer schlecht und besonders gut vorankommen
+-  Ajay Bisaria's New Book Explores Heightened India-Pakistan Tensions Over Pulwama
+-  FOTO Vyrobil si PRÚSER! Dovolenka sa zmenila na PEKLO! Raper Separ skončil v indonézskej base
+-  Skreće li se pozornost s nečeg drugog? Evo što se zna o tučnjavi u Vukovaru…
+-  برلماني يستفسر عن جدوى إحداث وزارة النقل فيما عدد من موظفيها تابعين لوزارة التجهيز
+-  Telatyn: Gmina ma nowy sprzęt warty 800 tysięcy złotych
+-  Apple ha ottenuto oltre 2.000 brevetti US nel 2023
+-  Začenja se v velikem slogu
+-  Ιωάννα Λίλη: Φωτογραφίζεται με την κούκλα 17χρονη κόρη της
+-  Arsene Wenger flew me to Paris to tell me to leave Arsenal – I had absolutely no idea it was coming
+-  Vučić razočaran izjavom Kamerona: Nismo „proksi“ Rusije
+-  Путин пообещал обсудить с Мурашко перинатальные центры на Чукотке
+-  HISENSE EXHIBITS NEW ULED X TV, SMART REFRIGERATOR AND DISHWASHER AT CES 2024
+-  Ultimea Poseidon D60: 5.1 Dolby Atmos Soundbar for an Immersive Cinema Experience
+-  Mastering Nugget Ice Maker Maintenance: VIVIDMOO® Launched Comprehensive Guide to Cleaning and Care for Sonic and Chewable Ice Machines
+-  Путин назвал самодостаточность России главным результатом 2023 года
+-  Бейн блести за “гризлитата” при победа над Маверикс
+-  Экс-барабанщик группы Scorpions Джеймс Коттак умер в возрасте 61 года
+-  My river, my love: The tidal pull of the Brown Snake
+-  NTA To Transmit All 52 AFCON Matches Live (Photo)
+-  Ясен Петров стана №1 в китайския елит още преди да започне сезонът
+-  Anton Hofreiter klagt bei Markus Lanz gegen Kanzler Scholz – Medien
+-  पौष्टिक तत्त्व स्तरोन्नति गरिएको चामल बिक्री सुरु
+-  여 '영입1호' 박상수 "60년대생 이상 꿀빨러들, 청년에 뭘 해줬나"
+-  Tampang Sopir Taksi Pemeras WNA yang Viral di Bali
