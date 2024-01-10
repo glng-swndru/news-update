@@ -1,51 +1,11 @@
 # Latest News
--  Da se smrzneš: Srbija u minusu
--  Gemlik Romanlar Dernek Başkanı ve Ferhat Işık kucaklaştı
--  İzmir'de FETÖ şüphelilerine yönelik operasyon: 14 gözaltı
--  Voleybolda AXA Sigorta Efeler Ligi'nin 15. hafta mücadelesi yarın başlayacak
--  Hazar Ergüçlü gündem olan dansını bakın nasıl öğrenmiş
--  Karacabey Belediye Başkanının mutlu günü
--  İstanbul'da saldırganlar, otomatik silahla ateş açtı
--  Πέθανε στα 42 του ηθοποιός των «X-Men»
--  5,000 Dash For Luck at Shrine in Hyogo; 19-Year-Old Winner Hopes to Bring Cheer to Earthquake Victims
--  შეიარაღებული პირები ტელეკომპანიაში შეიჭრნენ (უცხოეთი)
--  एआई स्टार्टअप के सीईओ नोटिश सेठ ने गोवा में अपने चार साल के बेटे की हत्या कर दी
--  [PLAY IT] “가방 열쇠고리 아닙니다”…시놀로지, 개인 백업 ‘비드라이브’
--  תמורת סכום שיא בספורט האמריקאי: ספולסטרה האריך חוזה במיאמי
--  US, China conclude two days of military talks in Washington8d
--  Dünya bazarlarında gələn il neftin qiyməti azalacaq - PROQNOZ
--  Πού θα δείτε Παναθηναϊκός – Ολυμπιακός και ΑΕΚ – Άρης για το Κύπελλο
--  Match Group promotes Faye Iosotaluno to Tinder CEO
--  Ostasien: China schließt jeglichen Kompromiss in der Taiwan-Frage aus
--  देश के 100 से ज्यादा शीर्ष उद्योगपतियों के विमान अयोध्या में उतरेंगे
--  Joseph Zephries, pedestrian hit by car, killed in Huntley, Illinois at Main and Coyne Station, remembered as ‘full of life’
--  New batch of aid delivered to Kabul, says Moscow
--  طقس بارد في العديد من مناطق المملكة اليوم الأربعاء
--  Şok markette bugün büyük teknoloji indirimi var! Dikey süpürge, çamaşır makinesi, bulaşık makinesi... İşte Şok 10 Ocak kataloğu
--  군포시 15일부터 '어르신 교통비' 지원...2만7000명 대상
--  رومان سايس يرفع الضغط عن "الأسود" قبل انطلاق "الكان"
--  Ναυάγιο με νεκρούς μετανάστες στη Λέσβο – Σε εξέλιξη επιχείρηση του Λιμενικού
--  Thua Middlesbrough, Pochettino tán dương 1 cầu thủ
--  10 huyền thoại thành công ở cả vai trò cầu thủ và HLV
--  NYMEX əmtəə birjasında təbii qazın qiyməti azalıb
--  भारत के समुद्री डकैती विरोधी अभियान में अरब सागर में 10 से अधिक युद्धपोत तैनात
--  Fenerbahçe Konyaspor maçı CANLI | Fenerbahçe - Konyaspor maçı hangi kanalda ve saat kaçta?
--  VIDEO Ispovijest ekvadorskog voditelja kojem su prijetili u TV studiju: 'Izrazito nasilan napad'
--  Kripto para piyasası karıştı! Bitcoin fiyatı geriledi
--  Osimhen Will Join Saudi League Club Next Summer — Kvaratskhelia’s Agent
--  “Azerspace-1” peykinin sığorta dəyəri açıqlanıb
--  Hirmuisia nippuja! NHL-toimittajat suunnittelivat Leijonien World Cup -joukkueen
--  La Bolsa de Tokio sube más de un 2 % y marca su máximo en casi 34 años
--  El índice Ibovespa baja con la caída de las acciones de Vale y el avance del dólar frente al real
--  Atentos a los banqueros centrales: 5 claves este miércoles en Bolsa
--  Ekvador nerede? Ekvador'da ne oluyor?
--  تحذير عاجل من أمطار ورياح وأتربة على الرياض وهذه المناطق لـ9 مساءً
--  القوات الأمريكية تصد الهجوم الكبير.. ماذا يحدث جنوب البحر الأحمر؟
--  النظام الغذائي "السيئ "يزيد من خطر إصابة الأطفال بالأزمات القلبية والسكتات الدماغية
--  THY Avrupa Ligi | Fenerbahçe Beko, Bayern Münih'i konuk edecek
--  تحذير.. إدمان الهاتف وسماعات الأذن وراء فقدان السمع و7 مشاكل صحية أخرى
--  China tells US it will ‘never compromise’ on Taiwan
--  American Couple Holds “Pop-Up Wedding” At Coffee Shop Without Booking It, Owners React
--  Утрото студено, преку ден сончево со умерена облачност
--  Ankara ve Bursa'da yağış nedeniyle yol çöktü
--  Asya borsaları karışık seyretti
+-  Chakwera goes all MEGA as Govt introduces fish mega farms
+-  한국산업단지공단, 2024년 새해 조직 개편…'어떻게 바뀌나?'
+-  [TV] 15년 지기 친구와 결혼하는 예비부부의 의뢰
+-  후티 반군, 홍해 상선 겨냥 또 드론·미사일 세례…"피해 없어"
+-  반도체 계약학과 신설 영향?…올해 정시서 과학기술원 경쟁 치열
+-  Elhunyt a székelyudvarhelyi diákotthon összeomlásakor megsérült 17 éves diáklány
+-  Transfery - Relacja na żywo [10/01/2024]
+-  ‘가짜 결혼식’ 수억 뜯어낸 30대 유부녀…부모·친구도 ‘대행 알바’
+-  신원식 “김정은, ‘한국 초토화’ 공개 협박…한·미·일 안보협력 더 공고”
+-  ‘비트코인 ETF 승인’ 해킹 소동에 선 그은 X…“시스템 문제 아냐”
