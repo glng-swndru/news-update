@@ -1,11 +1,11 @@
 # Latest News
--  Stockstädter nehmen neuen Wochenmarkt gut an
--  La OMS alerta sobre el incremento de casos de Covid desde diciembre y pide prevención
--  Fast menschenleere Bahnhöfe
--  श्रमिक उत्पीड़न मामले में पालघर में एक गन्ना मजदूर सुरक्षित घर पहुंचा... चार लोगों के खिलाफ मामला दर्ज
--  Emeklilere müjde! AK Partili Güler açıkladı: Aylıklar oransal artışla iyileştirilecek
--  ArcelorMittal Unveils Ambitious Plan to Build World’s Largest Steel Plant
--  Cómo construir un muro de piedra, alternativa natural al hormigón
--  Samsung i Google łączą siły. W końcu wszyscy skorzystają z jednej aplikacji
--  Prezydent Duda ułaskawił Ogórek i Ziemkiewicza
--  Groningen woedend over hervatting gaswinning: 'Bizar na twee dagen vorst'
+-  The 10 airports where TSA found the most firearms in 2023
+-  Soccerladuma | Sundowns' Replacement For Onyango Discovered?
+-  Grønne nyheder fra USA: Mængden af solenergi stiger markant på få år
+-  Grønne nyheder fra USA: Mængden af solenergi stiger markant på få år
+-  Srpski mediji: Hrvat uhićen zbog sudjelovanja u ubojstvu škaljarca u Brazilu
+-  ליטל פרוש דוד מונתה ל-VP HR בחברת ההייטק פאפאיה
+-  עם שלשלאות ואגרופנים: עשרות אוהדי מכבי חיפה נעצרו בת"א
+-  הפרזנטור החדש של לקוסט: גריגור דימיטרוב
+-  “La guerrilla” sigue viva en el recuerdo tiburón
+-  টেকনোক্রেট কোটায় মন্ত্রী হচ্ছেন ইয়াসেফ ওসমান ও সামন্ত লাল
