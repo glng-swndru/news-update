@@ -1,11 +1,11 @@
 # Latest News
--  김동완, 서윤아 "우리 썸 타는 건가?" 돌직구 질문에 "우린 약간…" [신랑수업](종합)
--  "이럴줄 알았어! 달랐다니까~" '외계+인'2부, 개봉 첫날 박스오피스 1위[공식]
--  우리은행, 신규 급여이체 고객 대상 ‘새해에는 월급 받아용’ 이벤트 실시
--  مندوب روسيا بمجلس الأمن: التصعيد بغزة هو السبب الرئيسي للوضع بالبحر الأحمر
--  Samsung Opens Galaxy Experience Spaces, Inviting Fans Into the New Era of Galaxy AI
--  비 · 김태희 집 찾아간 40대 여성…'스토킹 혐의' 실형
--  '62억 원 횡령 의혹' 박수홍 친형 7년형 구형hellip;quot;자식같은 아이인데, 너무 억울해quot;
--  與박상수 quot;신도시 맘, 기획이혼으로 목돈 굴리며 새인생quot;hellip;野 quot;구역질 나는 여성 혐오quot;
--  Recibe Ecuador oferta de ayuda de EU ante violencia
--  Detienen a hombre tras agredir a su hermana
+-  La CENI publie ce vendredi matin les résultats provisoires pour les législatives ainsi que l'élection municipale
+-  박시동 "尹, 안전진단 없이 재건축? 건설사 살리기 대책"[한판승부]
+-  ‘It would be fair for everyone!’ David Ayer wants ‘funeral screening’ of his Suicide Squad cut
+-  VRUĆE KESTENjE U MILANU: Zvezda traži iskupljenje za težak šamar u Lionu
+-  Alabama coach Nick Saban retiring after winning 7 national titles, sources say
+-  ONU preocupada com situação no Mar Vermelho (e com risco de escalada)
+-  ¿Cuándo comenzará a pagar el bono de guerra? Esto es lo que se sabe
+-  Colombia no reconoce torneo de béisbol con equipo cubano independiente
+-  Toto sú vraj NAJŠKAREDŠIE autá na svete! Nie je tu aj VAŠE?
+-  Spillutviklere avslører hvem som er nominert til Årets spill i 2023
