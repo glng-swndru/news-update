@@ -1,11 +1,11 @@
 # Latest News
--  المغرب لن يفوز بكأس إفريقيا – عميد المنتخب
--  فتح الناظور الى الهاوية وعامل الإقليم مطالب بالتدخل
--  الحكومة تصادق على تعيينات في مناصب عليا
--  الرياضة المغربية تتألق في جائزة محمد بن راشد آل مكتوم للإبداع الرياضي
--  عاجل.. متابعة محمد زيان وأمين المال السابق للحزب الليبرالي في حالة اعتقال بتهمة تبديد واختلاس أموال عمومية
--  الشركة الوطنية للإذاعة والتلفزة تتوج أفضل رياضيي سنة 2023
--  ديرها غا زوينة.. فين غا ياخذنا هادشي ديال المخدرات.. شكون كايحمي هاد الناس؟؟ (فيديو)
--  ريتشاردسون ضمن أفضل خمس مواهب واعدة بالنهائيات القارية
--  بيان هام للجامعة الوطنية لموظفي وأعوان الشبيبة والرياضة موجه للرأي العام الوطني والقطاعي
--  المغرب يتوقع نموا ب3.2 في المائة خلال سنة 2024
+-  Świdniczanka sprawdza trzech młodych zawodników
+-  Zima nie odpuszcza. Sypią sią awarie
+-  Belgicko na čele Európskej únie zapojí svojich občanov do diskusií o umelej inteligencii
+-  Tvrdý odkaz premiéra Roberta Fica: Je šokujúce, ako sa Západ zmýlil! Stratégia na Ukrajine nezaberá
+-  Tragická nehoda pripravila o život slovenského hudobníka (†25): V čase nárazu s ním v rádiu vysielali rozhovor
+-  ’No way’: Celtic told Brendan Rodgers didn’t agree to 23-year-old's signing, he could now leave
+-  عاجل.. الإقامة المميزة.. رابط وشروط التقديم على إقامة موهبة
+-  Surgeon who blew whistle on secret trans procedures on Texas kids comes forward, seeking $500,000 to cover legal costs in 'political intimidation' case launched by Biden's health team
+-  Republicans rip Hunter Biden for 'ridiculous publicity stunt' trying to 'distract' from his corruption after circus in Congress
+-  לא פדופיל, לא ברשימה של אפשטיין: הקרב בין ג'ימי קימל לארון רוג'רס
