@@ -1,51 +1,51 @@
 # Latest News
--  Colombia en alerta por incendios forestales agravados por el fenómeno de El Niño
--  Informe señala a 3 grupos responsables de ataques contra periodistas mexicanos en Veracruz
--  Se registra Álvarez Máynez como precandidato de MC
--  Empleada mata a su compañera por un chisme
--  Despojan a familia de su camioneta en la corta a Chihuahua
--  Anisha Rosnah attends a powdering ceremony ahead of her marriage to Prince Mateen of Brunei
--  Anisha Rosnah attends a powdering ceremony ahead of her marriage to Prince Mateen of Brunei
--  Prime Minister Anthony Albanese expected to speak from Frankston
--  Prime Minister Anthony Albanese expected to speak from Frankston
--  Asus Tianxuan Mini igrački miš sa do 100 miliona klikova premijerno u Kini za 42$
--  ASRock najavljuje nove monitore za igre od 520Hz i 400Hz osvežavanja
--  FSP predstavlja CUT593 Premium Ultra Tower liniju šasija
--  Xgimi predstavlja svoja nova dva projektora za US tržište
--  Μιλουτίνοφ: «Θα έπρεπε να είχαμε ξεκινήσει καλύτερα το δεύτερο ημίχρονο»
--  Jedina Hrvatica s Forbesove liste: Nisam mogla vjerovati, zateklo me...
--  Ceny ropy w dół o niemal dolara
--  Dominic West resists revealing Prince Harry’s ‘eye-wateringly rude jokes’ he made on their trip to the South Pole
--  تأخرت ست ساعات.. طائرة تشعل غضبا واحتجاحا بمطار العروي الدولي
--  Kadıköy'de Konyaspor yerine Galatasaray'ın logosu yer aldı
--  Ege'de 4.3 büyüklüğünde deprem!
--  Fatih Terim'in ilk derbisi 1-1 sona erdi
--  Kazada ölen gencin sosyal medya paylaşımı dikkat çekti: Helallik almadan ölmeyin
--  Derbide 8 gol atıldı, Arda Güler uzatmada oyuna girdi
--  Ministro Torres: venimos trabajando para garantizar la paz y seguridad en nuestro país
--  نونيز الأعلى تقييمًا في مباراة ليفربول وفولهام
--  منظمة “الفاو” تتوقع انخفاض إنتاج الحبوب في ليبيا خلال 2024 بسبب تداعيات دانيال
--  Old stars may be the best places to search for life
--  Torfestival in Riad: Real im Finale des spanischen Supercups
--  Meçaj ironizon militantët poshtë ballkonit të Berishës: E kanë lënë të flasë me vete, ja pse të gjithë e mbajnë kokën ulur
--  Datça açıklarında 4.3 büyüklüğünde deprem
--  Presidential candidate and former New Jersey Gov. Chris Christie expected to end his 2024 campaign: Sources
--  'Los Choneros': la peligrosa organización delictiva de Ecuador que se asoció con el Cártel de Sinaloa
--  Kyle Turner joins Raith Rovers on loan from Ross County
--  Bill Ackman, taking a page from his Wall Street playbook, backs rebel candidates to join Harvard's board
--  Καρβάλιο: «Παίξαμε το 50% της πρόκρισης και πάμε στο γήπεδό μας για να περάσουμε»
--  Neue Klasse: Münchner BMW-Werk baut ab 2027 nur noch Elektroautos
--  El Madrid se lleva un festín ante el Atlético
--  Nova Mutum instala ecobarreiras para coletar resíduos irregulares em lagos
--  หุ้นดอกเบี้ยขาลง!!
--  UGB : un chercheur appelle à densifier les échanges commerciaux au sein de la ZLECAF
--  غولر: هذا هو ريال مدريد
--  تقييم جاكبو مع ليفربول أمام فولهام
--  Venkaiah Naidu’s “Don’t Change Parties” Advice For Young Politicians
--  Revealed: Fresh pictures of Sadio Mane's wedding to his teenage bride as it emerges their love blossomed after her construction manager father met with his agent
--  Time: Ovo je 10 najvećih rizika za svijet u 2024.
--  El Real Madrid bate al Atlético en un partido loco y jugará la final de la Supercopa
--  Real Madrid 5-3 Atletico Madrid (AET): Carlo Ancelotti's men score twice late on to edge eight-goal thriller and book their place in Sunday's Spanish Super Cup final
--  İspanya'da hastanelerde maske takma zorunluluğu
--  Governo apresenta ao Congresso projeto para mudar Lei de Falências
--  Dio navijača u Saudijskoj Arabiji zviždao tijekom minute šutnje za Beckenbauera
+-  Rượt đuổi tỷ số ngoạn mục, Real vào chung kết Siêu cúp Tây Ban Nha
+-  Bị loại khỏi Coppa Italia, Jose Mourinho mỉa mai VAR
+-  Cầu thủ làm khổ Konate và Van Dijk
+-  다이어트 중 아닌데 ‘살 빠졌다’?…비결 3가지
+-  [날씨] 서쪽 미세먼지 말썽…출근길 내륙 짙은 안개
+-  المجلس الأعلى للدولة يناقش مشروع قانون الأمن الداخلي
+-  "맞춤형 PBV 개발 협력"…기아, 우버와 파트너십 구축
+-  연학비 8천만원인데…英귀족학교, 화장실 막혀 온라인 수업
+-  김한규 "이재명, 퇴원 메시지 최고였다… 당내에도 내주시길"[한판승부]
+-  Gasperini a Mediaset: «Rigore De Roon Gabbia? Mi sembra evidente, Di Bello è un gran maleducato»
+-  Alabama coach Nick Saban retiring in college football stunner
+-  Matthew Perry was allegedly abusive to ex-fiancée Molly Hurwitz, ‘threw a coffee table at her’ when she dumped him
+-  Байден провёл встречу с сестрой осуждённого в России Пола Уилана
+-  Horse trainer faces assault charge
+-  ‘Dunnes Stores are absolutely killing it,’ raves Irish fashion fan as she snaps up gorgeous patterned skirt for €25
+-  Shari Redstone launches auction of Paramount Global’s holding company: sources
+-  FKA Twigs’ Calvin Klein ad banned for making her a ‘sexual object’ — Kendall Jenner’s deemed acceptable
+-  ‘Poor Things’ Star Ramy Youssef on the ‘Tightrope’ of His First Film Role and Whether Max and Bella Have Real Love
+-  Kremlin foe Alexei Navalny jokes in court via video link from Arctic prison
+-  NASA, 달착륙 계획 연기…"안전 위해 시간 필요"
+-  快收藏！新西兰皇后镇必须打卡的brunch，都在这里了！
+-  德国火车司机开始罢工三天：全国铁路停运 交通陷入混乱
+-  Honda’dan o modele 175 bin lira indirim! Duyanlar bayileri akın ediyor, görülmemiş kampanya
+-  Uvjerljiv poraz Virtusa kod Maccabija, Ante Žižić svojoj bivšoj momčadi ubacio osam poena
+-  El Real Madrid sobrevive a un derbi inolvidable
+-  «Просверливать» броню и укрепления противника»: как совершенствуются российские планирующие авиабомбы
+-  뉴욕 유대교 회당 지하에 비밀터널…폐쇄 나선 경찰, 교인과 충돌
+-  ‘She’s gonna get smoked’: Chris Christie disses Nikki Haley on hot mic before announcing he’s leaving the 2024 race
+-  ADAM elements Unveils Next-Gen Magnetic Hub and Qi2 Charging Innovations at CES 2024.
+-  WEKA Achieves NVIDIA DGX BasePOD Certification
+-  Arda Güler'den Ancelotti sözleri! "Bana güvendiğini söylüyor"
+-  'İşkence gören Türk çocuk' iddiaları asılsız çıktı... Türkçe değil, Portekizce konuşuyor
+-  Carlo Ancelotti'den Arda Güler açıklaması!
+-  Ekvador'dan çetelerle savaşa ilişkin açıklama... "Bu teröristlere teslim olamayız"
+-  Varredura encontra câmeras e microfones escondidos na sala da presidência do Corinthians
+-  Varredura encontra câmeras e microfones escondidos na sala da presidência do Corinthians
+-  البطولة الأفريقية لدراجة المضمار بمصر
+-  جرت بجامعة "صالح بوبنيدر" بقسنطينة: تتويج لخلف سارة و تريفي بلال بالبطولة الوطنية الجامعية للشطرنج
+-  رابطة باتنة تغرم أمل الزوي
+-  جهوي عنابة الثاني: اتحاد سيدي عمار يتسلم مشعل القيادة
+-  البطولة الجهوية
+-  30 ألف منصب عمل جديد في تندوف
+-  الضفة تشتعل..
+-  معاقبة رئيس الوازي بستة أشهر نافذة
+-  المسيلة: منصة رقمية توفر 702 هكتار من العقار الصناعي أمام المستثمرين
+-  تعرّضنا للتنكيل ولظروف احتجاز مروعة
+-  بن صالح مدربا لشباب عين فكرون
+-  حمولتها 80 طنا مقسمة على 3 دفعات: تصدير أول شحنة للبصل الأحمر من خنشلة نحو موريتانيا
+-  قطاع غزّة يتحول إلى مكان غير صالح للعيش
+-  يفتقد لخدمات ثلاثي مهم: مدرب مولودية باتنة يحذر من منافس جريح
