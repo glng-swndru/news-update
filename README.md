@@ -1,51 +1,51 @@
 # Latest News
--  '이천 인플루언서' 정채언, 남편에 속옷 착용 인증샷 요구 "미친건가?"('고딩엄빠4')
--  강순아 예비후보 quot;오영훈 도정 마을돌봄 조례안 재의요구 유감quot;
--  ‘5500공격득점 금자탑’ 현대건설 양효진 "10000득점 하려면 20세로 돌아가야"
--  안철수 quot;경기도 제일 어려워hellip;이대로 가면 10석 정도 가능quot;
--  창원시, 올해 농업구조 대 전환 추진에 총력
--  BioHeal CBD Gummies Diabetes Reviews (CBD Gummies BioHeal Blood Sugar) Certified
--  Klaudena Seat Cushion Reviews (2024 Updated) – Is This Memory Foam Seat Cushion
--  Screenplay of ‘Joram’ added to the prestigious Academy Library’
--  Akshay and Tiger look hunky in new swaggy poster of Bade Miyan Chote Miyan
--  AI-powered cooking assistants? Discover top 6 kitchen trends dominating 2024
--  수차례 성관계하고 강간당했다는 여성, 무고죄로 집행유예
--  기장 '철마도시농업공원 조성공사' 순항
--  나경원, 김건희 여사 특검 여론에 "국민들 왜 찬성하는지 우리도 반성해야"
--  שותפות לפשע: למה קנדל ג'נר והיילי ביבר נעצרו על ידי המשטרה?
--  수액맞는데 병원 사람들 다 퇴근…"피 역류하더라"
--  "החובש האגדי" שסייע תמיד לכל חבריו: אלקנה נפל בקרב בעזה
--  SPAR Group Sells Interest in Australia and NMS Joint Ventures
--  화성산업
--  대구 남산1동 적십자봉사회 신규 결성
--  내서면 노류생태마을·상주장터 영농법인, 떡국떡 기탁
--  달성산림조합, 안전사고 예방 교육
--  네비게이션으로 대퇴부 절제술 정확도 높여
--  안동시장 ‘바이바이 플라스틱’ 챌린지
--  ㈜바디온발레핏, 동구청에 전기장판 기탁
--  김정은 “기회 오면 대한민국 초토화”
--  한중엔시에스, 영천자원봉사센터에 4천만원 기탁
--  尹 대통령, 영양 출신 조태열 외교부 장관 임명
--  영천시장학회, 인재 육성 장학금 기탁 줄이어
--  구미시, 新성장동력 로봇산업 육성 박차
--  박복조 씨, 모교 대가대에 발전기금 1억 기부
--  A brit tinédzserek közel fele úgy gondolja, hogy közösségimédia-függő
--  권익위원장에 유철환·외교부 2차관 강인선
--  대구신문 손님
--  포항기업 글로벌 역량 CES서 통했다
--  Farès Ferjani vise à améliorer son classement mondial au Grand Prix de Tunis
--  Devojka preminula samo nekoliko dana nakon operacije podizanja zadnjice u Turskoj
--  Reports on Trikomo properties on Greek Cypriot land gather steam
--  De Minor ne staje – posle Đokovića pobedio i Alkarasa VIDEO
--  „Bares für Rares“: Bittere Entscheidung! ZDF-Zuschauer müssen jetzt stark sein
--  Polizei sucht Zeugen einer Unfallflucht in Königswalde
--  Polster mit Einblick nach OP: Hätte die Nacht nicht überlebt
--  Drei auf einen Streich im Helios-Klinikum: Mädchentrio hält Hebammen in Aue auf Trab
--  Gomez: Die letzten Jahre in einen Negativ-Strudel gekommen
--  Grünhain: Zusammenstoß mit hohem Schaden zu früher Stunde
--  Bundesregierung genehmigt Waffenlieferungen an Saudi-Arabien
--  Neuer "Erzgebirgskrimi" kommt bereits im Januar
--  Tourismus im Erzgebirge: Was Carlsfeld auch ohne Schnee zu bieten hat
--  Cem Özdemir spricht mit Bauern in Ellwangen
--  Huthis reklamieren Großangriff auf Schiffe für sich
--  Warum die Besucher der Oelsnitzer „Kohlewelt“ dieses Museumsexponat anfassen sollen
+-  Cold & dry weekend before rain, hail and sleet returns
+-  Harekete Geçtiler! 700 Bin Kamu İşçisi Ek Zam İstiyor
+-  Китай изпревари Япония и вече е номер едно в света по износ на автомобили
+-  Петър Пиронков, художник: В добри времена сме - който сътвори дух, получава признание
+-  India, UAE ink pact for possible energy grid connectivity between two countries
+-  السرقة والتهديد بالخطف يقود أربعة أشخاص إلى التوقيف بالبيضاء
+-  تتويج مفتش الشرطة ممتاز بشرى كربوبي بجائزة محمد بن راشد آل مكتوم للإبداع الرياضي
+-  المغرب يفوز برئاسة مجلس حقوق الإنسان الدولي
+-  أخنوش يؤكد صرف الحكومة ل 524 مليون درهم في إطار الدفعة الأولى من الدعم الاجتماعي المباشر
+-  الاشتراكي الموحد بأزيلال يدين توقيف الأساتذة ويعلن استعداده للمؤازرة
+-  بيدرو سانشيز : العلاقات مع المغرب بلغت مستوى عاليا من المتانة والثقة
+-  فتح تحقيق في أخبار زائفة تتعض لشخصيات ومؤسسات وطنية
+-  Полуфинал за Магомед Рамазанов на турнир по борба в Загреб
+-  GemCore Combines Bullet Hell Strategy with Corporate Rebellion
+-  Podemos pacta con el PSOE su apoyo a las medidas anticrisis y votará no al decreto del desempleo
+-  Ook op De Zanding in Otterlo kunnen de schaatsen ondergebonden worden
+-  Rus Turist Doğa Yürüyüşünde Kayboldu: Arama Çalışması Başlatıldı
+-  Tory Deputy Chairman Lee Anderson Calls for Liberal Democrat Leader’s Resignation Amid Post Office Scandal, Stirring Political Turbulence
+-  Rekordowe zamówienia na hiszpańskie obligacje o wartości ponad 130 mld EUR
+-  Tower Investments szuka pomysłu na sukces
+-  Murat Kurum Gazeteciler Günü'nü Kutladı! Bazen Aşağılanıyorsunuz Ama...
+-  Why Is Roma Green Finance (ROMA) Stock Down 19% Today?
+-  DERBI VEČITIH NEPRIJATELjA: Grčka je na nogama, prošli duel završen je neslavno već u 55. minutu
+-  Marnus Labuschagne recalls interesting incident regarding Steve Smith slot
+-  Белорусы съездили в новогодний тур в Россию и теперь хотят вернуть деньги
+-  Авария оставя един район във Варна без вода
+-  최태원ㆍ정의선 등 재계 총수, AI 공부하며 미래 청사진 [CES 2024]
+-  Microsoft ile OpenAI ortaklığı mercek altında! AB soruşturma başlatabilir
+-  İstanbul'da 69 bin TL ama Sivas'ta tamamen ücretsiz
+-  Konya'da yapılan operasyonda 2 milyon lira olan 1 ton 306 kilogram kimyasal madde ele geçirildi.
+-  Almanya'da makinistler grevde: Tren seferleri yapılamıyor
+-  Flamengo concretiza venda de Santos ao Fortaleza, mas tenta manter goleiro até o fim de janeiro
+-  Unveiling the Enigma: Decoding the Mystery Behind 02045996870
+-  Yol Verme Kavgasında Cam Yumruklayıp Dehşet Saçmıştı!
+-  "Geil und super": Rangnick riet Kalajdzic zu SGE-Wechsel
+-  Transfermarkt: „Geil und super“: Rangnick riet Kalajdzic zu SGE-Wechsel
+-  تفسير حلم سجادة الزرقاء للمتزوجة
+-  وكالة النهوض بالصناعة توقع اتفاقية شراكة مع الإدارة العامّة للدراسات التكنولوجية دعما لحاملي أفكار المشاريع
+-  Government Appoints BDOs As Administrator(s) for Running Affairs of Panchayat Halqas
+-  ما معنى لبس الفرو للمتزوجة في المنام ؟
+-  تفسير رؤية البطاطس في المنام للمتزوجه
+-  تفسير حلم السباحة للمتزوجة
+-  ĆERKA JOVANA MEMEDOVIĆA OBJASNILA KUPOVINOM U SEKND HENDU! "Srušila" mreže kad je pokazala JAKNU koju nosi Kejt Midlton!
+-  Gove denies knowing of Government ‘interference’ with independent Teesworks probe
+-  Ireland unveils national TREASURE: the world’s LARGEST potato
+-  У Херсоні затримали чиновницю окупаційної "адміністрації" РФ
+-  André Villas-Boas apresenta candidatura no dia 17 de janeiro
+-  IMAO MILIONE U RUKAMA, A UMRO U IZNAJMLJENOM STANU: Muž Anice Dobre branio Džeja u školskom dvorištu - Mangupi ga voleli
+-  BigBox Permudah BPOM Awasi Obat dan Makanan melalui Media Sosial
+-  Junior doctors in rural hospitals unimpressed by 'filthy, broken' accommodation
