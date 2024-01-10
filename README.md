@@ -1,51 +1,51 @@
 # Latest News
--  California Takes Key Step To Ban Tackle Football For Kids Under 12: What To Know
--  枪手闯入电视台！厄瓜多尔进入“国内武装冲突”状态
--  VIDEO: Ladrón quiso salirse con las suyas en Nueva York, pero un civil lo atrapó cuando intentaba huir de la policía
--  Wheel the World launches program to accelerate, promote accessibility
--  Giovanni Pernice supported by fans as he shares sultry photo amid feud reports
--  Paraliza actividades amenaza de bomba en Ciudad Judicial en Juárez
--  Asesinan a gobernadora de etnia Cucapah en Sonora
--  Faltan 7 mil pesos para igualar salario con canasta básica
--  Tarahumaras, quinta etnia con mayor presencia en cárceles
--  유엔대사 "우크라에 사용된 北미사일, 원산~부산 사거리...심각한 위협"
--  "Vjerujem da možemo vratiti DPS na poziciju vlasti"
--  Nestao Aleksandar Vukomanović
--  U Srbiji razbijena kriminalna grupa
--  SAD osudile napade naoružanih grupa u Ekvadoru
--  Crna Gora pobijedila Njemačku za četvrtfinale
--  Budućnost nakon preokreta savladala Burg
--  Lenard produžio ugovor sa Klipersima
--  Gojković: Ostvarili smo zacrtano, okrećemo se Italiji
--  Brguljan: Zaslužena pobjeda, ostvaren cilj
--  Дешифрирање на загатката: Интеграција на уреди за читање отпечатоци за двојните избори во Македонија
--  Почему сроки лунной миссии НАСА сдвинули на год
--  Dopo Acca Larentia, l'appello: "Casa Mussolini sia dedicata alle vittime dell'odio politico"
--  ¡No guardes la cobija! Lluvias y frío viene para México el próximo trimestre
--  ¡Serán de 2 tipos! Alista gobierno municipal nueva compra; ahora serán 15 mil luminarias
--  Hunter Biden sorgt mit einem überraschenden Auftritt für Aufruhr im Repräsentantenhaus
--  В Волынской области раскольники ПЦУ захватили храм канонической УПЦ
--  Αγωνία για Σιντιμπέ ενόψει Παναθηναϊκού…
--  Раскольники захватили храм УПЦ в Волынской области Украины
--  Болезнь министра обороны США может ударить по президенту в преддверии выборов
--  Σάντσο: Έφτασε στη Βεστφαλία για να τελειώσει το δανεισμό του στη Ντόρτμουντ (vid)
--  Γυναίκα τρομοκρατήθηκε με την βαλίτσα που βρήκε στο σπίτι της: «Σαν ταινία θρίλερ» (vid)
--  موعد مباريات اليوم الخميس 11-1-2024
--  Le couronnement d'Antoine Griezmann, roi des goleador de l'Atlético Madrid
--  Дальневосточная рабочая поездка Путина продолжится в Хабаровске
--  В Петербурге откроется музыкальный фестиваль "Приношение Елене Образцовой"
--  Stromschlag oder Überhitzung möglich: Ikea ruft USB-Ladegerät zurück
--  Doctor Haroldo López nuevo director del Instituto Nacional Cardiopulmonar
--  '충격! PSG 회장의 메시 공개 저격'…메시의 부정적 언급에 맞대응, PSG 회장 "뒤에서 이야기하는 메시, 싫다!"
--  "법인카드 사용? 복리후생"…박수홍 친형, 법정서 눈물→檢 7년 구형 [MD이슈](종합)
--  Mincetur: exportaciones peruanas continúan fortaleciéndose
--  Ministra de Seguridad argentina pide endurecer penas contra piqueteros
--  Aasia Bibi, Victim of Pakistan’s Blasphemy Law, Struggles To Make Ends Meet
--  ONU urgió la pronta liberación de dos venezolanos secuestrados en Colombia
--  US approves first spot bitcoin ETF applications for 11 issuers
--  Tesla-Aktie dennoch schwächer: Rekordabsatz von E-Autos in USA - Marktanteil gesteigert
--  México condena los actos de violencia cometidos por el crimen organizado en Ecuador
--  В суде ООН начинается рассмотрение дела о возможном геноциде в секторе Газа
--  الهلال الأحمر بشمال سيناء: ملتزمون بخدمات الدعم النفسي للمصابين الفلسطينيين ومرافقيهم
--  Escritora bolivarense Esmeralda Torres ganó premio de poesía en México
--  «Me dolió más de vos»: sorpresa en América TV por el fuerte reclamo que le hicieron a Ángel de Brito
+-  Warum Frauen beim Blutdruck stärker gefährdet sind als Männer
+-  Dorrit og Michael Caine hress í Lundúnum
+-  Revelan nuevo tráiler de “The Ones Who Live”, la nueva serie de “The Walking Dead”
+-  Rettungskräfte reagieren auf eine Lawine im Palisades Tahoe Resort in Kalifornien
+-  Spartak v úvode Tisport Malta Cup-u podľahol Olomoucu
+-  Cognizant Impact Study Predicts Generative AI Could Inject $1 Trillion Into U.S. Economy Over 10 Years
+-  WEKA, NVIDIA DGX BasePOD 인증을 취득하다
+-  Pemeriksaan awal penting untuk kenal pasti risiko NCD
+-  카르바할 후계자로 ‘17골 관여 풀백’ 열망…‘레알 미래 2명까지 내준다’
+-  ‘맨유 최악의 윙어’... 모두가 고개 절레절레, “경기 방식이 너무 뻔하네”
+-  [CES2024-포토] 글로벌 무대서 만난 정의선-정기선
+-  [CES2024-포토] 혁신기술 찾는 SK 최태원
+-  [CES2024-포토] 정의선 만난 최재원, 에너지·배터리 논의
+-  [CES2024] GS 허태수, 혁신기술 살피고 신사업 모색
+-  [오늘날씨] 내륙 중심 짙은 안개… 수도권 미세먼지 '나쁨'
+-  [송창범의 모닝데스크] 11일, 정신아 달린다…카카오 사명 지켜낼까, 1000명 접촉 시작
+-  이낙연, 오늘 국회서 탈당·신당 창당 선언
+-  Rabbit R1: características y cómo funciona el dispositivo presentado en CES 2024
+-  (S+) Herausgerissene Flugzeugtür: Wie das radikale Profitstreben Boeing in die Krise führte – DER SPIEGEL
+-  Frankreichs neuer Premier Attal - „Mini-Macron“ soll Siegeszug der Rechten stoppen
+-  VIDEO/ Momenti kur anëtari i klanit serb ekzekutohet me armë para syve të gruas dhe fëmijës në Brazil
+-  Why are there massive clown heads stuck between two buildings in downtown Boston?
+-  (S+) Terrorserie in Ecuador: Im Krieg gegen die Drogenkartelle – DER SPIEGEL
+-  سحب 4 أنواع من أجهزة التدفئة و4 أنواع لكواشف الغاز من السوق الوطنية لعدم مطابقة المعايير
+-  "Zemlja je u ratu"
+-  Alaska Airlines cancels all flights on 737 Max 9 jets through Saturday
+-  Missouri lawsuit accusing China of hoarding pandemic gear can proceed, appeals panel says
+-  Casas ficam sem energia após raio atingir rede elétrica de Paraíso do Tocantins
+-  "أحسن ما أمد إيدي لحد".. قصة كفاح "أم رحمة" على سيارة أجرة - فيديو وصور
+-  الاستخبارات التركية: نعمل ليلًا ونهارًا لوقف الهجمات على غزة
+-  أحمد موسى يكشف تفاصيل حل أزمة المستحقات المالية المتأخرة على المؤسسات الصحفية
+-  "لا نطلب إلا الدعم والمساندة ".. الشناوي يناشد الجماهير تشجيع منتخب مصر في أمم أفريقيا
+-  مفاجأة.. هذا أفضل وقت لتناول الفاكهة للحصول على فوائد غير متوقعة
+-  محامي قاتل شقيقته في بورسعيد: المرافعة ستتضمن مفاجآت الجلسة المقبلة - فيديو
+-  مصرع 5 أشخاص وإصابة 5 في انقلاب ميكروباص بالبحيرة
+-  مستشار نتنياهو: مقترح تهجير الفلسطينيين ليس جديا
+-  "مكنتش عارفة اللي في بطني ابن مين فيهم".. قاتلة زوجها في دهشور تدلي باعترافات صادمة (نص تحقيقات)
+-  Alberto Longo espera que el México City e-Prix vuelva a brillar
+-  تحقيقات بشأن الحرب على غزة تشعل أزمة دبلوماسية بين إسرائيل وبريطانيا
+-  57 pain darah berjaya dikumpul
+-  Cô gái nguy kịch sau đặt túi ngực, gọt hàm
+-  Flames prospects Coronato, Wolf selected to AHL all-star game
+-  Celal Şengör Açıkladı! O 3 Kitabı Mutlaka Okuyun...
+-  Finska produžila zatvaranje granice sa Rusijom
+-  "Iranu stavljeno do znanja da podrška Hutima mora da prestane"
+-  Bečić: Čestitam pobjedu našim ajkulama
+-  The Achilles' heel of artificial intelligence: Why discrimination remains an unresolved problem
+-  İsmail Kartal’dan 'transfer' açıklaması
+-  Сокіл - Дніпро 3:1: огляд матчу
+-  Rückstand nach Bauernprotesten: LKW-Fahrer stirbt bei Auffahrunfall auf A66 | hessenschau.de
