@@ -1,11 +1,11 @@
 # Latest News
--  القبض على وزير داخلية بولندا السابق أثناء حضوره حفلا بدعوة من الرئيس
--  Episode 09: West Philadelphia Rabbi Alissa Wise Continues to Speak Out Against Israel
--  Championing a Synergistic Energy Future: Autel Energy's 640 kW MaxiCharger DC HiPower Redefines Standards in High Power EV Charging at CES 2024
--  LBB Specialties Appoints Senior Vice President for LBBS Canada
--  Concurso Nacional Unificado: blocos de vagas do CNU divulgados; confira detalhes!
--  Jordan i Egipat traže jači pritisak na Izreael
--  Stradala četiri radnika Crvenog polumjeseca
--  Uživo: Crna Gora - Njemačka 8:3
--  Lacio bolji od Rome, zakazao polufinale sa Juventusom
--  Atleta de Florianópolis vai disputar Copa América de Futsal
+-  Berliner Newcomer haben EM-Gold im Visier
+-  Ever considered being a B.C. sheriff?
+-  7-1'lik Fenerbahçe hezimeti istifayı getirdi! Konyaspor teknik direktörü Hakan Keleş: Yakışmadı!
+-  أرقام ميندي في الشوط الأول من مباراة أتليتكو
+-  La FIFA y la fuerte infracción que le aplicó a la selección peruana
+-  Ever considered being a B.C. sheriff?
+-  Fenerbahçe'den 7 gol yiyen Konyaspor'da Hakan Keleş'ten istifa sinyali
+-  ANÁLISE DA NOTÍCIA
+-  Policía resguarda frontera con Ecuador en 31 puestos de vigilancia que limitan con Piura
+-  Ookla reconoce a Airtek como la red fija de internet más rápida de toda Venezuela
