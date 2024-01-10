@@ -1,51 +1,51 @@
 # Latest News
--  DA, ACDP not supporting SA's genocide case against Israel at ICJ
--  Mokonyane pleads with Hazyview community to remain loyal to ANC ahead of polls
--  Disaster prevention measures in Ladysmith to cost over R1bn - KZN COGTA
--  Mokonyane says Jacob Zuma's right to freedom of association must be respected
--  Corinthians dá ultimato ao PSG sobre Moscardo e não descarta retorno do jogador
--  Luis Petri instó a darle más poder a las Fuerzas Armadas que fueron "injustamente demonizadas"
--  من يقدر على محاسبة جمعية الهلال الأحمر التونسي بعد ما اصطفاها الرئيس؟
--  العراقيون يزدادون مليون نسمة سنويا.. والخدمات وفرص العمل تتضاءل
--  جلسة السبت.. هل تنقذ "كرسي" رئيس البرلمان أم مصيرها "الفشل"؟
--  التضارب في تصريحات السوداني تثير غضب الناشطين: إخراج الأمريكان "مجرد ضحك على الذقون"
--  Emmanuel Macron már 2027-re készül, de kockázatos lépés volt kinevezni Franciaország történetének legfiatalabb kormányfőjét
--  Kompensacijoms už sunaikintą taršų automobilį ir įsigytas mažiau taršias judumo priemones – 13 mln. eurų
--  „Atimti iš Vengrijos balsavimo teisę.“ Netikėta žinia. Ko pareikalavo Orbanas iš ES
--  [ŽT] „Greitai bus sprendimai.“ Skelbiama, kur apsilankė Zalužnas, Umerovas ir Syrskis (Foto)
--  [ŽT] „Rusai keičia taktiką“ (Video)
--  [ŽT] „Tarsi „kaulas gerklėje“. Tvirtiname naujas pozicijas.“ Prie Krynkų dideli pokyčiai
--  Patvirtino ir Vakarai. Už 40 km nuo Lietuvos – Rusijos branduoliniai ginklai
--  [ŽT] Ukrainiečiai – verslininkai? Skelbiama, kiek per metus atidarė individualių įmonių (Infografikas)
--  Israel, South Africa trade barbs on eve of genocide case
--  Los casos de gripe baten récords en Euskadi en medio del debate sobre la mascarilla obligatoria
--  Arizona Ave. Property To Be Converted Into Mixed-Use Space
--  Majority of Proline bettors had Wolverines winning U.S. college football title
--  MN - Bonetti: "Giovani lanciato con coraggio: non tutti avrebbero fatto lo stesso al posto di Pioli"
--  Acertijo visual: ni los más genios ven la palabra 'FUEGO'
--  Hearing the voices of Indigenous people with neurodevelopmental disabilities
--  Copa Airlines mantiene la suspensión de sus aviones: cancelaciones y atrasos en sus vuelo
--  Ключовите правила за подмладяване на проф. Милена Георгиева и рецептите й за здраве
--  Average of 18 people a day died trying to reach Spain in 2023
--  Катастрофа между автомобил и трамвай в София
--  Entregan en Trinidad premios del Concurso Internacional de Arquitectura Oscar Hagerman (+fotos)
--  Ex galán de Salserín se casa en ceremonia poco tradicional
--  Government is introducing mega fish farms where fish farmers will be learning modern fish farming techniques. Minister of Natural Resources and Climate Change, Michael Usi said the country’s model fish mega farm will be at Kasinthula in Chikwawa where fish farmers will be visiting to learn various fish farming skills. Usi said this on Tuesday at Domasi Aquaculture Center in Zomba saying, economically, the farms will help the country export more fish to other countries which in turn will attract foreign currency. The minister said since the farms will lead to the production of fish in large quantities, the other harvested fish will be used for food. “It’s sad that some people in the country have never tasted chambo fish because of it’s low production which makes it expensive on marketplaces,” he said. Domasi Aquaculture Center station manager Titus Phiri challenged that the center has the capacity to produce and supply enough fingerings across the country. “Fish farming is an ideal business,” he said.
--  SAWS: Weather warnings for these SA provinces this week
--  Експресно премахнаха първите спящи полицаи на велоалеи в Пловдив
--  Man who shot himself in the hand sought by Alexandria Police
--  Majority of Proline bettors had Wolverines winning U.S. college football title
--  Bošnjački političar: Naoružavajmo se i mi dok je vrijeme
--  Pope confirms new leader of India’s Syro-Malabar Church, divided for decades over liturgy dispute
--  Selena Gomez anuncia pausa das redes sociais após polêmica no Globo de Ouro
--  Kandidaten messen sich bei Talkrunde
--  Kulislerden bomba iddia: Kabine değişiyor! O bakan aday gösterilecek...
--  Türkiye'nin gündemindeki 3 soruşturmaya 3 ayrı savcı atandı
--  Leonardo Bonucci, İstanbul’a geldi!
--  İBB Meclis toplantısında Beltur’un borçları gündem oldu
--  Cephanelik gibi ev: Samanların içine gizlemişler
--  Renegociação da dívida ativa pode ser feita até 30 de abril com 70% de desconto
--  Руски тим обяви контрола с Арда
--  1974 géintenee gespillt: De Carlo Weis erënnert sech un de Franz Beckenbauer
--  Жительница столицы Эквадора рассказала RT о мародёрах в городе
--  בישראל מאשרים: ישנן תזוזות במגעים לעסקת חטופים
+-  "סעודיה רוצה להיפתח לעולם? בינתיים הם נועלים אותי בתא קטן כי אישה לא יכולה להתאמן עם גברים"
+-  "להימנע מפגיעה בחיי אדם": קריאה לעירוב משרד הרווחה והביטוח הלאומי בהליך מתן רישיון לנשיאת נשק
+-  מקלות ברזל, סכינים יפניות ואבוקות: עשרות אוהדי מכבי חיפה נעצרו לפני המשחק מול מכבי ת"א | צפו בתמונות
+-  «Не хочу обидеть». Испанский тренер высказался о сборной Казахстана по футболу
+-  Združenie miest a obcí Slovenska žiada riešenie problému s odpadmi po kamiónoch na východnej hranici
+-  Duda je šokovaný zadržaním dvoch exposlancov, ktorým udelil milosť
+-  Pred schválením kompetenčného zákona musí byť známe stanovisko Rady pre rozpočtovú zodpovednosť, tvrdí Šipoš
+-  Stavebná legislatíva mala podľa ministra Ráža výrazné nedostatky: Hrozil kolaps v povoľovaní!
+-  Neuveriteľný príbeh Kolumbijčanky (73): Vychovali ju opice v džungli! Potom ju odvliekli do nevestinca
+-  Maďarská prezidentka vymenovala šéfa Úradu na ochranu suverenity
+-  O kompetenčnom zákone vrátenom prezidentkou budú poslanci rokovať v piatok
+-  LIDL sťahuje z trhu jeden zo svojich výrobkov: Zákazníci ho nemajú používať! Obchod apeluje na ich ochranu
+-  Adela Vinczeová po roku v kine: Prišla bez manžela, ale nie sama!
+-  Zažite jedinečný Valentín na koncerte José Carrerasa v Košiciach!
+-  AKTUÁLNE Tragická nehoda pred Úradom pre ochranu ústavných činiteľov: Jeden z funkcionárov zrazil 69-ročnú ženu
+-  Milagro en Suiza: una mujer sobrevivió después de que un tren le pasara por encima
+-  Blé tendre : L’ONICL met en place un système de restitution à l’importation
+-  Recep Uçar: Taraftardan özür dilerim
+-  Cumhurbaşkanı Erdoğan "Ciddi zaafiyet oluşturuyor" diyerek çağrı yaptı: Türkiye menşeli aplikasyonlar kullanmalıyız
+-  “NATO ka vdekur”, zyrtari i BE zbulon bisedën me Trump: Më tha se nëse BE sulmohet, SHBA nuk do të ndërhyjë
+-  Путин назвал успех Гуниной значимой страницей победной летописи шахматной школы в РФ
+-  Daniel Maldini vazhdon me “shtegtimet”, huazohet te skuadra e Serie A
+-  Top 10 addresses holding XRP control 40% of all tokens
+-  Forza Motorsport promises massive improvements for 2024 in three key areas
+-  Why Haas said farewell to its founding father - and 'DTS darling' - Steiner | News Focus
+-  The laws around remission policy | Explained
+-  Η παρουσία στη Ρόσενμποργκ, η μεταγραφές του και η κορυφαία πώληση
+-  Un docu-série NBA en préparation chez Netflix, avec LeBron James, Jayson Tatum et Anthony Edwards
+-  These massive Lego Fortnite builds are breathtaking – and one even flies!
+-  В Марий Эл произошел пожар в санатории
+-  Big Boys Season 2: from Jon Pointing to Katy Wix, who’s playing who?
+-  Trump u velikoj prednosti u utrci za republikansku predsjedničku nominaciju
+-  Vučević: Mi nismo ničiji lutak na konopčićima, mi smo slobodna država i sedimo na našoj stolici
+-  عاملان يمنعان الحرب الشاملة في لبنان!
+-  Wat doe je tegen al die rotzooi in de berm? Waalwijk kiest voor ‘beschermde status’
+-  Proteste im Erzgebirge: Landkreis zieht erste Bilanz - „Abriegelung von Städten verhindert“
+-  Proteste im Erzgebirge: Wie der Mittwoch lief und mit welchen Sperrungen am Donnerstag zu rechnen ist
+-  Neues Gewerbegebiet in Zschopau: Baustart im Herbst?
+-  Wegen Bauernprotesten: Am Freitag sollen A-72-Auffahrten im Vogtland wieder zeitweise dicht sein
+-  Winterlinden ersetzen morsche Birken in Geringswalde
+-  Dax kommt vor US-Inflationsdaten nicht weiter
+-  Margot Robbie und Cillian Murphy für SAG-Awards nominiert
+-  Erzgebirger bei Neujahrsempfang des Bundespräsidenten: Oliver Titzmann spricht von hoher Ehre
+-  Restaurant „Schnitzelparadies“ in Zwickau schließt: Wie die Aussichten auf einen Nachfolger sind
+-  Sie hat bei den Bauernprotesten im Vogtland den Hut auf
+-  Erzgebirge: Dieser König beißt sich niemals Zähne aus
+-  Langenbernsdorf: Bürgermeister-Brief sorgt für Wirbel im Ort
+-  "روشن" و "eviq" توقعان مذكرة تفاهم لتسريع استخدام المركبات الكهربائية في المملكة
+-  عاجل.. تفاصيل تعديل نظام الإقامة المميزة.. "كل ما تريد معرفته"
+-  Psi lajajo, karavana gre dalje: odbor za kmetijstvo potrdil kandidaturo Mateje Čalušić, potrditev DZ naj bi bila le še formalnost
