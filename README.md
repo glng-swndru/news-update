@@ -1,51 +1,51 @@
 # Latest News
--  قتلى وجرحى في مواجهات بالإكوادور.. ودولة حدودية تُعلن الطوارئ
--  المملكة تعلن عن ارتفاع قيمة ثرواتها المعدنية من 1.3 إلى 2.5 تريليون دولار
--  بيان مهم لأمانة القصيم بشأن الحفاظ على الممتلكات العامة
--  سعر الذهب اليوم الأربعاء في مصر يهبط 15 جنيها للجرام مع بداية التعاملات
--  البورصة ترتفع مع بداية تعاملات اليوم الأربعاء
--  В пресс-центре МИЦ «Известия» МЧС России расскажет об итогах новогодних праздников
--  증권사 임원, 부동산PF 비공개 정보로 500억 챙겨…금감원 검사서 적발
--  "지고 싶은 생각은 없다"…2002년생 포수의 굳은 결의, 2차 드래프트 입단 포수들과의 선의의 경쟁
--  By [2031], Rubber Tire Market (New Research) Report Explores the Growing Market for Revealing Key Industry Trends and Future Growth Prospects
--  Discovery of primary body temperature regulator
--  Handball-EM im Liveticker: Deutschland trifft zum Turnierauftakt auf die Schweiz
--  Sỉ nhục nam shipper là "dưới đáy xã hội", nữ y tá nhận sự trừng phạt thích đáng, dân mạng: "Vẫn chưa hài lòng với kết quả này"
--  Người phụ nữ đến hủy hợp đồng bảo hiểm rút tiền về, nhân viên lẳng lặng báo ngân hàng trì hoãn việc chuyển tiền sang tài khoản khác và lập tức báo cảnh sát
--  4 sai lầm thường gặp khiến style luộm thuộm, kém sang khi lên đồ ngày mưa lạnh
--  Tết này tặng gì để “cha mẹ sướng như Tiên"?
--  Minėsime Sausio 13-ąją – Laisvės gynėjų dieną
--  Erdoğan’ın memleketi Rize’de ekmeğe dev zam
--  Cahors : Franck Wolf et Mieko Miyazaki en concert à l’auditorium le 19 janvier
--  Kickoff | PSG chief hits out at 'disrespectful' Messi
--  Plasma Expander Market to Analysis Development Insights, Huge Growth Rate, Business Trends, Share and Opportunities by 2031 | Baxter International Inc., Fresenius SE & Co. KGaA, CSL Limited, Grifols, S.A., B. Braun Melsungen AG
--  CME Group registra un volumen internacional récord en 2023
--  EEUU dictamina que el museo de Madrid puede conservar el cuadro de Pissarro expoliado por los nazis
--  Las bolsas europeas caen lastradas por los valores vinculados a las materias primas
--  Los maquinistas alemanes inician una huelga de tres días que casi paraliza el transporte ferroviario
--  Future of Global Titanium Cylinders Market During Geopolitical Unrest and Inflation 2024 to 2030
--  «ميتا» تشدد القيود على استخدام المراهقين «فيسبوك» و«إنستغرام»
--  U Ekvadoru naoružani ljudi upali u televizijski studio državnog emitera tokom programa uživo
--  Saopćenje za javnost SDA
--  FBiH - Za decembarske dječije dodatke izdvojeno nešto više od 7.2 miliona KM,isplate od 15. januara
--  Izraelska vojska napala 150 Hamasovih lokacija u Pojasu Gaze u protekla 24 sata
--  SDA - Stari most u Mostaru nije 'hrvatsko kulturno naslijeđe'
--  100 Yıllık Şirket El Değiştirdi! 14 Milyar Dolarlık Dev Satın Alma
--  बमजनको घरबाट बरामद ३ करोड रुपैयाँ र विदेशी मुद्रा सार्वजनिक
--  Τάσος Ιορδανίδης για Γη της Ελιάς: «Θα τον δει ο τηλεθεατής όπως δεν τον έχει ξαναδεί»
--  M.U hỏi mượn ngôi sao Dortmund
--  Sự hồi sinh của Aubameyang
--  Chủ tịch VFF tâm sự 1 điều về Beckenbauer
--  부산 찾은 한동훈 quot;4월 총선 승리해 산업은행법 통과시키겠다quot;
--  김보미 강진군의회 의장 불신임 결의안 발의hellip;통과 여부 관심
--  IJsbanen in Barneveld en Kootwijkerbroek ook woensdag nog dicht
--  Τελικά η μεγάλη μάσκα της BMW αρέσει
--  Queen Rania’s Floral Dress is a Weekend Must-Have
--  الكشف عن فساد بسحب مبلغ 600 مليون دينار من حساب المجلس الوطني المنحل
--  Sicherheitstechnik aufgerüstet: Stadtbad zieht Konsequenz nach Einbrüchen
--  Trabzonspor'da hedef Cenk Özkacar!
--  İstanbul'da su kullanım rekoru kırıldı
--  Rize'de ekmeğe büyük zam
--  إجراء ضد شاعر فلسطيني بعد رثائه جنديا إسرائيليا
--  طريقة تسمح باختراق حسابات غوغل دون كلمة مرور
--  الأمن يحقق بوفاة عامل وافد في الأغوار الشمالية
+-  Arrendamento acessível atinge apenas 0,1% do mercado e fica longe da meta do Governo
+-  Travel chaos in Germany as railway train drivers begin three-day strike
+-  National Cybersecurity Certification Authority established in Cyprus
+-  [영상] 한동훈 인사 논란에 “尹정부 인사 참사 장본인의 안목”
+-  बॉलीवुड की मशहूर एक्ट्रेस तमन्ना भाटिया को लगी जुए की लत!
+-  Era de Charles Michel ao leme do Conselho Europeu não deixa saudades em Bruxelas
+-  Tidal Flooding on Java's North Coast May Cause Rp10tn in State Losses Annually
+-  Avenue International (Cook Islands) Limited Stands with Earthquake Victims in Japan
+-  Microland, Great Workplace 재수상 영예 차지
+-  New Chinese medicine drug developed by HKBU for myofibrillar myopathy granted orphan drug designation by FDA
+-  বাংলাদেশে উচ্চ মূল্যস্ফীতি বহাল থাকতে পারে: বিশ্বব্যাংক
+-  Safe2Tell sees rise in reports during first semester of the 2023-24 school year
+-  Voici la PS5 Slim avec ses nouvelles couleurs
+-  한 끗 차이
+-  어린이들이 직접 그리고 쓴 제주 생태환경 동시집
+-  오민숙 수필집 ‘풍경을 훔치다’
+-  미분양 주택 위험수위 선제적 대응 시급하다
+-  평화대공원 조성, 법적 조치 완료…조속 추진 기대
+-  제주-서귀포서 갑진년 신년음악회
+-  천만 반려견 시대, 보신탕 사라진다
+-  제주서 다양하고 풍성한 예술 무대 마련 전망
+-  김희현 제주도 부지사 “왜곡된 부분 적지 않아…인격 모독 말라”
+-  고소·고발 사건 무단으로 반려...경찰관 재판행
+-  "제주도민 건강 지키고 제주의료가치 실현 총력"
+-  "제주도민이 믿고 선택하는 병원 비전 달성 노력"
+-  애월읍 폐기물 처리장서 화재...6시간 만에 불길 잡아
+-  제주형 행정체제 개편 탄력…11일 용역 최종보고회 개최
+-  겨울 낭만 즐기기
+-  겨울 속 제주의 봄
+-  한가로이 노닐고 있는 노루들
+-  “제주 인재 함께 키운다” AI 글로벌 인재양성 교육 발대식 개최
+-  정부, 지방 준공 후 미분양 주택 사면 '주택 수 제외'
+-  100년 전 제주의 모습은?
+-  Quyết định gây choáng của Andre Onana
+-  OceanSound-Backed Lynx Buys Thompson Software Solutions; Tim Reed Quoted
+-  Bernd Wehmeyer über Beckenbauer beim HSV: „Weltstar, aber ohne Sonderrolle“
+-  농축협 직영 온라인몰 판매상품, "이젠 'NH콕뱅크'에서 구매하세요!"
+-  Gondelabsturz in Tirol: Vater weiter in kritischem Zustand
+-  충주시, 뇌병변장애인 위생용품 구입비 지원사업 시행
+-  2차전지주 하락 여파, '삼성SDI' 52주 신저가'
+-  [세계테마기행] 거침없이 멕시코 3부-맵다 매워, 삐까삐까, 오아하카
+-  DOE Seeks Proposals for $2.7B Uranium Enrichment Services Procurement Contract
+-  與 이재명에 '뼈있는' 쾌유기원 "측근 아닌 국민 위한 정치 부탁"
+-  산림청, 여의도 면적 15배 사유림 매수…579억 투입
+-  황보승희, 재판서 억대 자금 수수 혐의 "전면 부인"
+-  '흉기 난동 살인' 조선 사형 구형…"죄송하다"면서도 정신장애 주장(종합)
+-  강기정 시장 "광주, 국내 유일 인공지능(AI) 실증도시로"
+-  경남형 농업 경쟁력 강화…농기계 공급 확대·청년 아이디어 지원 '팍팍'
+-  ubc울산방송, 보도특집 '미래 열 열쇠 H' 방영
+-  "교육부 고위공무원이 사교육업체로" 사교육카르텔 '의혹'
