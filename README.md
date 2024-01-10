@@ -1,11 +1,11 @@
 # Latest News
--  Chakwera goes all MEGA as Govt introduces fish mega farms
--  한국산업단지공단, 2024년 새해 조직 개편…'어떻게 바뀌나?'
--  [TV] 15년 지기 친구와 결혼하는 예비부부의 의뢰
--  후티 반군, 홍해 상선 겨냥 또 드론·미사일 세례…"피해 없어"
--  반도체 계약학과 신설 영향?…올해 정시서 과학기술원 경쟁 치열
--  Elhunyt a székelyudvarhelyi diákotthon összeomlásakor megsérült 17 éves diáklány
--  Transfery - Relacja na żywo [10/01/2024]
--  ‘가짜 결혼식’ 수억 뜯어낸 30대 유부녀…부모·친구도 ‘대행 알바’
--  신원식 “김정은, ‘한국 초토화’ 공개 협박…한·미·일 안보협력 더 공고”
--  ‘비트코인 ETF 승인’ 해킹 소동에 선 그은 X…“시스템 문제 아냐”
+-  Japan earthquake survivors struggle to rebuild lives
+-  נועה קירל הייתה הכוכבת הכי גדולה בישראל. לאן נעלם הפאסון שלה?
+-  חשש במכבי ת"א: "הפסד יכול להוביל לכדור שלג בזמן הכי לא נכון"
+-  שנת 2024 נפתחה עם ירידה משמעותית בהוצאות
+-  Army reviews curriculum in training schools to end banditry, insurgency
+-  ‘Gracias a Dios por estar vivos’, dice periodista de la cadena TC Televisión, de Ecuador
+-  Por la inseguridad, crece 8% el blindaje automotriz en 2023
+-  Consumidores mexicanos buscan moda, pese a la cuesta de enero
+-  Darán a criminales trato de terroristas en Ecuador
+-  Égési sérüléseket és áramütést okozhat, visszahívja egyik USB-töltőjét az IKEA
