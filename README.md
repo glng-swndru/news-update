@@ -1,11 +1,11 @@
 # Latest News
--  كان الكوت ديفوار.. لاعبو هذا المنتخب يعلنون الإضراب قبل أيام من انطلاق البطولة
--  حزب "الأحرار" يَتفاعل مع انتخاب المغرب لرئاسة مجلس حقوق الإنسان التابع للأمم المتحدة
--  الحكومة تلوح بالزيادة في سعر الماء عوض استهداف المبذرين الحقيقيين
--  عفو ملكي عن 1381 محكوما ومتابعا بمناسبة ذكرى 11 يناير
--  الكشف عن تصميم اكبر مصنع صيني للتوربينات بأفريقيا ينجز بالناظور
--  شائعات حول تورط شخصيات ومؤسسات كبرى تستنفر الوكيل العام للملك
--  رأس السنة الأمازيغية...
--  Bay Area arts, 9 shows to see this weekend
--  الأعلى للدولة يبحث مع رابطة الأحزاب الليبية إيجاد مبادرة وطنية للخروج من الانسداد السياسي في البلاد.
--  Ayaneo Next Lite è il primo PC console portatile non di Valve con installato SteamOS
+-  MSB ve MEB arasındaki protokol ile 9'uncu sınıf öğrencilerine burs imkanı
+-  Maç sonunda olay yaratan görüntü! Fenerbahçe'den Galatasaray'a gönderme
+-  סגן או סגנית? בארה"ב תוהים מי ירוץ לצד טראמפ - בהנחה שיזכה במועמדות הרפובליקנית
+-  אין דו־קיום בקמפוסים
+-  שלושה נעצרו בחשד שאיימו על ראש עיריית רמת גן, כרמל שאמה הכהן
+-  Sarri replica a Mourinho: “Roma, 0 palle gol. È una bestemmia che…"
+-  Norfolk Southern fija la teleconferencia de resultados del cuarto trimestre para el 26 de enero
+-  Biden y Trump, en empate al iniciar el año electoral en EEUU: Reuters/Ipsos
+-  Kupa e Italisë/ Lazio kualifikohet në gjysmëfinale
+-  이준석 "영부인의 역할과 의무, 법조문으로 명문화해야"
