@@ -1,51 +1,11 @@
 # Latest News
--  Warum Frauen beim Blutdruck stärker gefährdet sind als Männer
--  Dorrit og Michael Caine hress í Lundúnum
--  Revelan nuevo tráiler de “The Ones Who Live”, la nueva serie de “The Walking Dead”
--  Rettungskräfte reagieren auf eine Lawine im Palisades Tahoe Resort in Kalifornien
--  Spartak v úvode Tisport Malta Cup-u podľahol Olomoucu
--  Cognizant Impact Study Predicts Generative AI Could Inject $1 Trillion Into U.S. Economy Over 10 Years
--  WEKA, NVIDIA DGX BasePOD 인증을 취득하다
--  Pemeriksaan awal penting untuk kenal pasti risiko NCD
--  카르바할 후계자로 ‘17골 관여 풀백’ 열망…‘레알 미래 2명까지 내준다’
--  ‘맨유 최악의 윙어’... 모두가 고개 절레절레, “경기 방식이 너무 뻔하네”
--  [CES2024-포토] 글로벌 무대서 만난 정의선-정기선
--  [CES2024-포토] 혁신기술 찾는 SK 최태원
--  [CES2024-포토] 정의선 만난 최재원, 에너지·배터리 논의
--  [CES2024] GS 허태수, 혁신기술 살피고 신사업 모색
--  [오늘날씨] 내륙 중심 짙은 안개… 수도권 미세먼지 '나쁨'
--  [송창범의 모닝데스크] 11일, 정신아 달린다…카카오 사명 지켜낼까, 1000명 접촉 시작
--  이낙연, 오늘 국회서 탈당·신당 창당 선언
--  Rabbit R1: características y cómo funciona el dispositivo presentado en CES 2024
--  (S+) Herausgerissene Flugzeugtür: Wie das radikale Profitstreben Boeing in die Krise führte – DER SPIEGEL
--  Frankreichs neuer Premier Attal - „Mini-Macron“ soll Siegeszug der Rechten stoppen
--  VIDEO/ Momenti kur anëtari i klanit serb ekzekutohet me armë para syve të gruas dhe fëmijës në Brazil
--  Why are there massive clown heads stuck between two buildings in downtown Boston?
--  (S+) Terrorserie in Ecuador: Im Krieg gegen die Drogenkartelle – DER SPIEGEL
--  سحب 4 أنواع من أجهزة التدفئة و4 أنواع لكواشف الغاز من السوق الوطنية لعدم مطابقة المعايير
--  "Zemlja je u ratu"
--  Alaska Airlines cancels all flights on 737 Max 9 jets through Saturday
--  Missouri lawsuit accusing China of hoarding pandemic gear can proceed, appeals panel says
--  Casas ficam sem energia após raio atingir rede elétrica de Paraíso do Tocantins
--  "أحسن ما أمد إيدي لحد".. قصة كفاح "أم رحمة" على سيارة أجرة - فيديو وصور
--  الاستخبارات التركية: نعمل ليلًا ونهارًا لوقف الهجمات على غزة
--  أحمد موسى يكشف تفاصيل حل أزمة المستحقات المالية المتأخرة على المؤسسات الصحفية
--  "لا نطلب إلا الدعم والمساندة ".. الشناوي يناشد الجماهير تشجيع منتخب مصر في أمم أفريقيا
--  مفاجأة.. هذا أفضل وقت لتناول الفاكهة للحصول على فوائد غير متوقعة
--  محامي قاتل شقيقته في بورسعيد: المرافعة ستتضمن مفاجآت الجلسة المقبلة - فيديو
--  مصرع 5 أشخاص وإصابة 5 في انقلاب ميكروباص بالبحيرة
--  مستشار نتنياهو: مقترح تهجير الفلسطينيين ليس جديا
--  "مكنتش عارفة اللي في بطني ابن مين فيهم".. قاتلة زوجها في دهشور تدلي باعترافات صادمة (نص تحقيقات)
--  Alberto Longo espera que el México City e-Prix vuelva a brillar
--  تحقيقات بشأن الحرب على غزة تشعل أزمة دبلوماسية بين إسرائيل وبريطانيا
--  57 pain darah berjaya dikumpul
--  Cô gái nguy kịch sau đặt túi ngực, gọt hàm
--  Flames prospects Coronato, Wolf selected to AHL all-star game
--  Celal Şengör Açıkladı! O 3 Kitabı Mutlaka Okuyun...
--  Finska produžila zatvaranje granice sa Rusijom
--  "Iranu stavljeno do znanja da podrška Hutima mora da prestane"
--  Bečić: Čestitam pobjedu našim ajkulama
--  The Achilles' heel of artificial intelligence: Why discrimination remains an unresolved problem
--  İsmail Kartal’dan 'transfer' açıklaması
--  Сокіл - Дніпро 3:1: огляд матчу
--  Rückstand nach Bauernprotesten: LKW-Fahrer stirbt bei Auffahrunfall auf A66 | hessenschau.de
+-  Λίβερπουλ - Φούλαμ 2-1: Ανατροπή - εξπρές και φούλαρε για τελικό!
+-  Sir Keir Starmer was in charge of the CPS when subpostmasters were taken to court
+-  «Ливерпуль» победил «Фулхэм» в первом матче 1/2 финала Кубка Английской лиги
+-  H βαθμολογία της Euroleague: Έχασε την επαφή με την τετράδα ο Ολυμπιακός
+-  Liverpool 2 Fulham 1: Jones and Gakpo give Reds slender Carabao Cup semi-final lead after major scare against Cottagers
+-  Major TV channel appears to call for huge Carabao Cup change to be brought forward… in order to knock Chelsea out
+-  Es complicado que se extradite presunto responsable de muerte de tres jóvenes en Roatán, dice Dogu
+-  האח הודה ברצח אחותו - ואז הסיפור קיבל טוויסט מפתיע
+-  בכיר בפנטגון קרא 200 אלף דוחות וקבע: "לממשלה יש עב"מים"
+-  داروين نونيز يهدر هدف محقق لـ ليفربول أمام فولهام
