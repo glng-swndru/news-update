@@ -1,51 +1,51 @@
 # Latest News
--  לוסי אהריש מבקשת עזרה בתרומות: "חלתה בסרטן, כל סכום יעזור"
--  מגישת חדשות 12 מקבלת ג'וב חדש: זה המינוי היוקרתי שקיבלה
--  O stopach procentowych przesądzi polityka rządu
--  Kal Ka Dhanu Rashifal: धनु राशि वालों को मिलेगा रुका हुआ धन वापस, इस उपाय से बदल सकती है किस्मत
--  Treffen von AfD und Rechtsextremisten in Potsdam: Burgerkette zieht Konsequenzen
--  Garmin türünün tek örneği olan nabız sensörünü duyurdu
--  Ukrajna – 5,1 százalékon áll az éves infláció
--  Samsung Galaxy XCover 7 má 5G, vyměnitelnou baterku a koupíte ho i u nás
--  RSS Chief Mohan Bhagwat Gets Invite For Ayodhya Ram Temple Event
--  Simi’s Unfiltered Declaration on Predatory Backers Triggers Social Media Debate
--  Itt vannak a TV2 legújabb sztárjai, hamarosan indul a Kincsvadászok - galéria
--  Toni Vingut sufre un grave accidente en la quinta etapa del Rally Dakar
--  Toni Vingut sufre un grave accidente en la quinta etapa del Rally Dakar
--  BSP: Double-digit dips hit October, 10-month FDI flow
--  DigiLab in bibliotheek
--  Now is the time to get in shape for Spring Break
--  Bauernproteste: Warum ist der Einfluss der Landwirte auf die Politik so groß?
--  Viitorul președinte al României ar putea fi ales din luna septembrie. Coaliția pregătește terenul la începutul sesiunii parlamentare
--  Mexicana comienza con una meta de 448 vuelos mensuales
--  Mariska Hargitay reveals she was raped by a friend in her 30s: ‘I checked out of my body’
--  Handball-EM: So läuft es für die Spieler des THW Kiel
--  Schaatsen en sleeën op het ijs
--  Conflicto armado interno en Ecuador obliga a Ministerio del Deporte suspender actividades
--  RSS Chief Mohan Bhagwat Gets Invite For Ayodhya Ram Temple Event
--  World Bank downgrades 2024, 2025 GDP outlook for PHL
--  PHL, Indon deal on RE to bank on private sector
--  PHL eyes 10% export growth in 2024, but PEDP warrants 40%
--  NBA player gives back to hometown of London, Ont. with free drop-in program
--  Kogi govt arrests six for harassing NASS members
--  Twitter users call out Mummy Zee for using derogatory term to describe daughter’s school
--  Uppgift: Örebroare misstänks för mord i Bagdad
--  Neues Cinematic zu „League of Legends“ zu Beginn der 14. Staffel veröffentlicht
--  İBB'de borç tartışması!
--  Çanakkale'de eğitime 1 gün ara!
--  WEF report: Climate, energy gap, inflation top PHL risks
--  Döbbenetes beismerést tett a német kiképzőparancsnok a meghalt ukrán katonák számáról
--  "Има такъв народ" и "Възраждане" отново се заканиха да сезират съда за промените в Конституцията
--  Polonia se opone a la prórroga del comercio libre de impuestos con Ucrania
--  Liverpool talentovanog fudbalera poslao na pozajmicu u Hull
--  Widodo seeks PBBM support for purchase of anti-submarine aircraft from Indonesia
--  Der Honor Magic V2 könnte ALLES verändern! – ANMACHEN
--  Chick-fil-A’s bid to build 6,000-foot ‘mega’ restaurant in small Tenn. town dealt crushing blow
--  Zelenski: Ortaklarımızdan hiçbir baskı yok
--  Fatih Karagümrük'ten 4 gollü moral!
--  Bundesbeteiligungen: Bund erwartet Milliarden aus Veräußerungen
--  Oficina de la Administración Tributaria en Yaguajay consolida su desempeño
--  La soeur de Julien (Star Academy) monte au créneau après des rumeurs sur le comportement de l'élève
--  Police arrest 3 suspects over alleged baby theft in Nasarawa
--  V Grécku sprístupnili ruiny najväčšieho paláca, bol v ňom korunovaný Alexander Veľký
--  Insändare. Noterat av DN:s läsare den 10 januari
+-  HTC VIVE发布全新VIVE全脸识别追踪器
+-  CES 2024现场：雷鸟X2 Lite首发骁龙AR1 支持大模型语音助手
+-  Schmidt se sastao sa predstavnicama majki enklava Srebrenica i Žepa
+-  Inspekcija kontroliše smještaje na Bjelašnici, pronađeno pet apartmana bez dozvole za rad
+-  By: Dane Hansen
+-  Vila Real: Abusos sexuais na Igreja marcaram encontro de professores de EMRC da diocese
+-  Guarda che tariffe in Francia
+-  Pirola: las recomendaciones de Julio Castro sobre la nueva cepa de covid-19
+-  EU-Kommission schickt neue Gesetze zum „Jugendcheck“
+-  „Rośnie temperatura wojny o praworządność”. Zagranica o aresztowaniu Kamińskiego i Wąsika
+-  Novi detalji o stanju Šumahera: Nakon deset godina konačno je stigla pozitivna vijest
+-  Kanzlerpartei droht historischer Niedergang: Hör gut zu, SPD!
+-  Burkina/Éducation : L'excellence en milieu scolaire célébrée à l'arrondissement 7 de Ouagadougou
+-  Argentina: la produzione del litio sale del 68,5% in un anno
+-  Arsenal tekemässä jättimäistä kaappausta toisesta Valioliiga-seurasta - hintaa jopa 70 miljoonaa euroa?
+-  Viaplayn kohtalo nyt selvillä - pienomistajille karu kohtalo ja miljoonien tappiot: "Käytännössä pyyhkäistiin pöydältä"
+-  Jon Jones: Za svoju ostavštinu želim samo meč protiv Miočića
+-  افتتاح فندق "رويال بلازا" في المنطقة الاقتصادية بالدقم
+-  افتتاح محطة وقود المها بفلج الشام في بوشر
+-  578 أسرة في ولاية مطرح تستفيد من مصارف الزكاة بإجمالي 306.3 ألف ريال
+-  Bakan Fidan, Tacikistan'da Türk iş insanları ile görüştü
+-  Endonezya'da yanardağ patladı!
+-  Cumhurbaşkanı Erdoğan açıklamalarda bulunuyor
+-  Rendimientos en EEUU bajan antes de la subasta de letras a 10 años y datos de inflación
+-  İstanbul'da trafik yoğunluğu yüzde 81'e yükseldi
+-  بلغاريا تشيد بجهود المغرب لتسوية نزاع الصحراء
+-  Bei Heim-EM: DHB will fast 1000 Jugendtrainer ausbilden
+-  নতুন মন্ত্রিসভায় ‘বাদ পড়লেন’ যারা
+-  Denegado un parque eólico entre Guntín, Monterroso y Portomarín tras no superar el trámite ambiental
+-  Challenge Your Perception: Demystifying Plastic Surgery’s Most Controversial Procedure and Dispelling Myths About Recovery
+-  Chega diz que é preciso assegurar direitos dos trabalhadores da Global Media e dos acionistas
+-  Paramore regresará para un disco tributo a los Talking Heads junto a A24
+-  Am Bauch verbundene Zwillinge erfolgreich getrennt
+-  Burkina / Digitalisation du timbre : Des usagers entre satisfaction et questionnements à Ouagadougou
+-  Cicpc de Barcelona capturó a sujeto por robo
+-  झांसी में 613 गांव के सापेक्ष 473 गांव में सड़क पुनर्गठन के कार्यलंबित
+-  Forscher analysieren DNA von Menschen vor 34'000 Jahren
+-  Čuva nam zdravlje i probavu od pamtivijeka: pravi je trenutak za iznimno zdravi napitak koji možete lako napraviti sami
+-  استعراض الفرص الاستثمارية الواعدة في ختام أعمال "مؤتمر الشرق الأوسط للفضاء" بمسقط
+-  2.6 مليون ريال قيمة التسويات بـ"كريدت عمان" بنهاية 2023
+-  सूरत से साइकिल से अयोध्या जा रहे हिन्दू जागरण मंच के कार्यकर्ताओं का झांसी में स्वागत
+-  Harvey Cooper Art Award Winners Announced
+-  Israelul, în fața Curții Penale Internaționale pentru acuzațiile de genocid formulate de Africa de Sud
+-  SAG Awards 2024 SNUBS: Leonardo DiCaprio, Natalie Portman, and Zac Efron lead big names ignored by their peers - while May December is also overlooked
+-  Poslastica za navijače: Tri meča Reala i Atletika u 25 dana
+-  Maricá: Prefeitura alerta para golpes em comerciantes
+-  Travessia Salvador-Mar Grande faz operacaespecial no dia da Lavagem do Bonfim
+-  His sister works for Apple. Brace for jealousy. [Setups]
+-  HybizTV Realty Awards 2024 Trophy poster unveiled
+-  DSÖ'den işgalci İsrail'e 'Gazze'ye güvenli geçişi sağlayın' çağrısı
