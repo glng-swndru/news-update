@@ -1,51 +1,51 @@
 # Latest News
--  Hawaiki Offers 400GbE Services Enabled by Ciena
--  Szef MSZ rozmawiał z ministrem spraw zagranicznych Izraela
--  Zrównoważone rozwiązania będą rządziły na rynku luksusowych nieruchomości w 2024 r.
--  Glapiński: inflacja w najbliższych miesiącach może się obniżyć poniżej 3 proc.
--  Stralend schaatsplezier In Haastrecht
--  Arrestan a venezolano por quitarle la vida a salvadoreño en Texas, tras pelea por celos
--  Antena 3 ficha a Javier Silvestre, director de 'Código 10' en Cuatro, para ponerlo al frente de 'Y ahora, Sonsoles'
--  FG to hand over sites in March, inaugurates 3 committees on highways’ concession
--  Kölner Kulturpreis: Was war das Kulturereignis des Jahres 2023?
--  Imam ne razumije optužnicu koja ga tereti da je Srpsku nazvao genocidnom
--  Les ventes de motos se sont maintenues à niveau l'an dernier
--  KRASNYSTAW: Noworoczne spotkanie samorządowe
--  منظمة الصحة تلغي سادس مهمة مساعدات لغزة
--  El senador Iván Cepeda advierte "impunidad" en el caso contra el expresidente Uribe
--  Les meilleures actions de Zaccharie Risacher en décembre : voici pourquoi il a été élu joueur du mois
--  Deutsche Biathletinnen mit der Staffel auf Rang drei
--  Gary Neville: Ma Ahayn In Ay Man United La Soo Saxiixato Casemiro
--  Croix rouge sénégalaise : Le départ de la présidente Bafou Ba exigé par les volontaires
--  Finneas says working with sister Billie Eilish requires "total vulnerability"
--  Kickoff | Ex-Man Utd star: Sancho is one of the club's biggest flops
--  L’UE compte sur… Taylor Swift pour mobiliser les jeunes électeurs
--  Afghan Women Detained Over Improper Hijab: Taliban Official
--  French Actor Delon's Youngest Son Steps Into Escalating Family Feud
--  क्या अब सुक्खू सरकार के मंत्री विक्रमादित्य सिंह कांग्रेस छोड़ देंगे
--  Reactions As Davido Likes Tweet Mocking Tacha Over Alleged Odour
--  SON DAKİKA: TFF açıkladı! İşte Süper Lig ekiplerinin harcama limitleri belli oldu
--  Demarcation board rejects proposal to merge DA-led uMngeni with neighbouring municipalities
--  남양주시, 상·하수도 사용료 현실화 방안 모색
--  남양주시, '신중년 경력형 일자리사업' 추진...1월 18일부터 25일까지 참여자 모집
--  남양주시, 지역 고용 활성화 위해 연초부터 잰걸음
--  구리시의회, 시각장애인을 위한 조례 제정 앞두고 시민의견 청취
--  주광덕 시장, “지역경제 활성화 견인 위해 최선 다할 것”
--  남양주시, '제7기 SNS 서포터즈' 발족
--  Candriam : "la dette émergente offre des rendements attractifs en dollars"
--  Bauern-Proteste in Düsseldorf: „Wir wollen gerecht bezahlt werden.“ –Demo-Aufruf der AfD fand kaum Resonanz
--  प्रदेश को अपराध मुक्त बनाकर विकास पथ पर लाने में आरएसी की महत्ती भूमिका: बेढ़म
--  "HTELI SMO DA NAPRAVIMO FORU" Tina Ivanović šokirala sve snimkom na kojem puca sa terase, oglasio se njen muž Zvezdan
--  There won’t be increase in sugar price ahead Ramadan – FG assures
--  ถ่ายรูปคึกคัก! นายกฯ'เศรษฐา'ถึงเชียงใหม่ ควง'บัวขาว'เดินสตรีทฟู้ดตลาดช้างเผือก
--  Haching-Stammkeeper René Vollath im Live-Interview – Was sind die Torhüter-Pläne für nächste Saison?
--  Bittencourt kritisiert Werders Transferpolitik: „Wünsche mir Spieler, die uns sofort helfen können“
--  Mokonyane warns ANC supporters not to be confused by Zuma's MK party
--  Само три от банковите договорни фондове завърши със загуба 2023 година
--  Օրացոյցներ՝ գրպանի եւ սեղանի
--  Grippeimpfung für alle: Ist das sinnvoll?
--  Пловдивчанин: Висша некадърност! Нямат право да слагат скоба на такава кола!
--  Vasco fica com percentual e conclui venda de Gabriel Pec ao LA Galaxy
--  Zahnpasta gegen Pickel – hilft das Hausmittel bei unreiner Haut?
--  Activan protocolos en Dominicana por presencia mosca del Mediterráneo
--  Les fonds s'orientent vers les valeurs pétrolières et bancaires
+-  Stellantis, tempi di sviluppo ridotti grazie al virtual cockpit
+-  Patino, blitz Juve in Galles: gol sotto gli occhi degli scout e ultimi sviluppi
+-  Lokoli immobilizzato dai crampi, gesto di Gaio da applausi: cosa è successo
+-  Beckenbauer, la Germania si stringe attorno al suo mito
+-  '3관왕' NCT 드림, 디지털 앨범상→'4관왕' 뉴진스, 최다 트로피 [써클차트 어워즈](종합)
+-  Felvételi 2024: hány helyet lehet ingyen megjelölni?
+-  [오늘의 운세] 1월 11일 오늘의 띠별 운세
+-  Nieuw appartementencomplex voor senioren bij Proosdijpark in Ede
+-  Arrestimi i ish-zyrtarëve të qeverisë thellon krizën politike në Poloni
+-  Hurry! This HP 17-inch laptop is discounted from $500 to $290
+-  Graf Chodywańce po znakomitej rundzie jesiennej liczy na równie udaną wiosnę
+-  Duże ognisko ptasiej grypy. Tysiące indyków do utylizacji
+-  Czy szkoła stanęłaby na głowie?
+-  Health officials warn of measles outbreak in Philadelphia
+-  Qué ocurrió con el rating de la tira turca Mujer
+-  Harassment of NASS members: Kogi arrests six, calls for immediate prosecution
+-  Eat Club: Geröstetes Blumenkohlsüppchen mit Harissa-Kichererbsen
+-  Eat Club: Schnelles und einfaches Low-Carb-Kräuterbaguette
+-  Eat Club: Gefüllte Zareneier für eine schmucke Figur
+-  More on digital transformation in the NHS
+-  Doğu'daki dev değişim… Hakkari festivaller şehri oldu
+-  Leonardo Bonucci İstanbul'a geldi
+-  Reçeteleri çöpe attıran kür tarifi! Balgamı yumuşatıyor, öksürüğü kurutuyor: Deneyen eşine dostuna da öğretecek
+-  Sainz qualifica Pedro Sánchez de «gilipolles» quan els pilots del Dakar pregunten per Catalunya
+-  محافظ صندوق الاستثمارات العامة: الطلب العالمي على المعادن سيرتفع 6 مرات في هذا الموعد
+-  إحباط هجوم بمسيرات مفخخة على مطار أربيل
+-  شاهد.. سحب المزن الركامي تزين الأفق في ينبع
+-  Suudi Arabsitan açıkladı: 2,5 trilyon dolarlık işlenmemiş madenimiz var
+-  عاجل.. 7 خطوات للاستعلام عن صلاحية الإقامة عبر "أبشر" .. شروط التجديد والفئات المستثناة
+-  المرور: 4 خطوات للاستعلام عن المركبة المحجوزة عبر أبشر
+-  مشهد مذهل لصقر يهاجم عاملة منزلية.. ماذا حدث؟
+-  Музыкант из Узбекистана прославился в Латвии, работая курьером
+-  Soldes : achats en ligne ou en magasin… Quel est le plus intéressant ?
+-  Arctic blast barrelling toward the Lower Mainland
+-  पार्टी अध्यक्ष बन्ने रेशम चौधरीको चाहना, भन्छन्– निर्वाचन आयोगलाई भनेको छु
+-  Former NASCAR Driver's Congressional Run Endorsed by Speaker Mike Johnson
+-  Taco Bell says it will spill secrets at a fan event before the Super Bowl
+-  Fachkräftemangel ist für viele Betriebe existenzbedrohend
+-  Gimenez over liefde voor Rotterdam: 'Voelen ons thuis sinds de eerste stap'
+-  Rahasia Terkabulnya Doa di Salat Subuh
+-  Esra Erol'da film gibi olay! Baba oğul birbirlerini öldü biliyorlarmış: Esra Erol 26 sene sonra baba ve oğlu kavuşturdu
+-  MAGA Turns on Speaker Mike Johnson
+-  Rendas acessíveis só chegam a 0,1% do mercado privado
+-  Hereu destaca que España es una de las economías más dinámicas y atractivas para la inversión extranjera
+-  DIRECT. Remaniement : Gabriel Attal et Gérald Darmanin visitent un commissariat du Val-d'Oise
+-  Draghi, exjefe del BCE, se reúne con empresas para impulsar la competitividad de la UE
+-  El socio de Capella cumple las condiciones clave del proyecto de litio
+-  Amazon planea despedir a numerosos empleados de las divisiones Prime Video y MGM - según fuentes
+-  أكثر من 23 ألف شهيد جراء العدوان على غزة
+-  صفارات الإنذار تدوي في منطقة بالجليل الأعلى
