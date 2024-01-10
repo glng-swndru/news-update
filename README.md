@@ -1,11 +1,11 @@
 # Latest News
--  La CENI publie ce vendredi matin les résultats provisoires pour les législatives ainsi que l'élection municipale
--  박시동 "尹, 안전진단 없이 재건축? 건설사 살리기 대책"[한판승부]
--  ‘It would be fair for everyone!’ David Ayer wants ‘funeral screening’ of his Suicide Squad cut
--  VRUĆE KESTENjE U MILANU: Zvezda traži iskupljenje za težak šamar u Lionu
--  Alabama coach Nick Saban retiring after winning 7 national titles, sources say
--  ONU preocupada com situação no Mar Vermelho (e com risco de escalada)
--  ¿Cuándo comenzará a pagar el bono de guerra? Esto es lo que se sabe
--  Colombia no reconoce torneo de béisbol con equipo cubano independiente
--  Toto sú vraj NAJŠKAREDŠIE autá na svete! Nie je tu aj VAŠE?
--  Spillutviklere avslører hvem som er nominert til Årets spill i 2023
+-  [스한:BOX] '외계+인' 2부, 개봉 첫날 박스오피스 1위 출발…9만 명 동원
+-  화사, '써클차트 뮤직 어워즈'서 올해의 뉴 아이콘상 수상 "무무들 너무 감사"
+-  U.K. bans FKA twigs’ Calvin Klein ad for portraying her as a ‘stereotypical sexual object’
+-  U Srbiji ujutro mraz, tokom dana sunčano, ali hladno
+-  Proposed ban on youth tackle football clears first hurdle in California legislature
+-  SAP bribed officials for public sector contracts, say SEC, DoJ
+-  Bears retienen a Eberflus como entrenador, destituyen a Getsy como coordinador ofensivo
+-  [분양소식] '제일풍경채 검단 3차' 393가구 대상 본청약…22일 특별공급
+-  [인사] 중소벤처기업진흥공단
+-  벤처기업 총 고용 81만명…4대 그룹보다 6만명 많아
