@@ -1,11 +1,11 @@
 # Latest News
--  BUDO'nun bugünkü seferlerine olumsuz hava engeli
--  Ankara'da yağmur nedeniyle yol çöktü, çöp kamyonu askıda kaldı
--  İsrail'den Refah kentine saldırı! En az 15 Filistinli öldü
--  Türkiye'nin Interpol aracılığıyla aradığı iki kişi Kosova'da yakalandı
--  Diyarbakır'da 7'nci kattaki evlerinin balkonundan düşen Ravzanur öldü
--  Matan a comerciante por presunta deuda
--  Eğitime kar engeli: 10 Ocak'ta hangi illerde okullar tatil?
--  Dünden bugüne Survivor All Star 2024 yarışmacılarının değişimi... Nagihan, Turabi ve Sahra bambaşka biri oldu
--  경기도 신임 경제부지사에 김현곤 임명 quot;민선8기 성공위해 노력quot;
--  겨울철 남원 광한루원에 lsquo;천연기념물 원앙rsquo; 이색볼거리 주목
+-  Prozess: Euskirchener Dieseldieb fuhr mit Fahrrad und Anhänger zur Tankstelle
+-  האוהדים זועמים על פוצ'טינו: "יכול להבין את האכזבה שלהם"
+-  "אוסימן יעבור בקיץ לליגה הסעודית. קברצחליה? לאחת הגדולות באירופה"
+-  מאיפה זה בא? ממפיס המשיכה במסע המרשים ללא מוראנט והכוכבים
+-  העברות בעולם, 10.1: חלוץ פ.ס.ז' בדרך החוצה מהקבוצה, יורנטה יצטרף?
+-  PUBG 3.0 Update: How to Download PUBG Mobile 3.0 update on iOS and Android Smartphone
+-  मिटरब्याज प्रताडना (कथा)
+-  Фарғонада давлат хизматчилари тиббий кўрикдан ўтказилмоқда
+-  Ўзбекистонда COVID-19 вакцинаси яратилди (+видео)
+-  ДХМ хизматлари тури уч юздан ошди
