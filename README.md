@@ -1,51 +1,11 @@
 # Latest News
--  Rượt đuổi tỷ số ngoạn mục, Real vào chung kết Siêu cúp Tây Ban Nha
--  Bị loại khỏi Coppa Italia, Jose Mourinho mỉa mai VAR
--  Cầu thủ làm khổ Konate và Van Dijk
--  다이어트 중 아닌데 ‘살 빠졌다’?…비결 3가지
--  [날씨] 서쪽 미세먼지 말썽…출근길 내륙 짙은 안개
--  المجلس الأعلى للدولة يناقش مشروع قانون الأمن الداخلي
--  "맞춤형 PBV 개발 협력"…기아, 우버와 파트너십 구축
--  연학비 8천만원인데…英귀족학교, 화장실 막혀 온라인 수업
--  김한규 "이재명, 퇴원 메시지 최고였다… 당내에도 내주시길"[한판승부]
--  Gasperini a Mediaset: «Rigore De Roon Gabbia? Mi sembra evidente, Di Bello è un gran maleducato»
--  Alabama coach Nick Saban retiring in college football stunner
--  Matthew Perry was allegedly abusive to ex-fiancée Molly Hurwitz, ‘threw a coffee table at her’ when she dumped him
--  Байден провёл встречу с сестрой осуждённого в России Пола Уилана
--  Horse trainer faces assault charge
--  ‘Dunnes Stores are absolutely killing it,’ raves Irish fashion fan as she snaps up gorgeous patterned skirt for €25
--  Shari Redstone launches auction of Paramount Global’s holding company: sources
--  FKA Twigs’ Calvin Klein ad banned for making her a ‘sexual object’ — Kendall Jenner’s deemed acceptable
--  ‘Poor Things’ Star Ramy Youssef on the ‘Tightrope’ of His First Film Role and Whether Max and Bella Have Real Love
--  Kremlin foe Alexei Navalny jokes in court via video link from Arctic prison
--  NASA, 달착륙 계획 연기…"안전 위해 시간 필요"
--  快收藏！新西兰皇后镇必须打卡的brunch，都在这里了！
--  德国火车司机开始罢工三天：全国铁路停运 交通陷入混乱
--  Honda’dan o modele 175 bin lira indirim! Duyanlar bayileri akın ediyor, görülmemiş kampanya
--  Uvjerljiv poraz Virtusa kod Maccabija, Ante Žižić svojoj bivšoj momčadi ubacio osam poena
--  El Real Madrid sobrevive a un derbi inolvidable
--  «Просверливать» броню и укрепления противника»: как совершенствуются российские планирующие авиабомбы
--  뉴욕 유대교 회당 지하에 비밀터널…폐쇄 나선 경찰, 교인과 충돌
--  ‘She’s gonna get smoked’: Chris Christie disses Nikki Haley on hot mic before announcing he’s leaving the 2024 race
--  ADAM elements Unveils Next-Gen Magnetic Hub and Qi2 Charging Innovations at CES 2024.
--  WEKA Achieves NVIDIA DGX BasePOD Certification
--  Arda Güler'den Ancelotti sözleri! "Bana güvendiğini söylüyor"
--  'İşkence gören Türk çocuk' iddiaları asılsız çıktı... Türkçe değil, Portekizce konuşuyor
--  Carlo Ancelotti'den Arda Güler açıklaması!
--  Ekvador'dan çetelerle savaşa ilişkin açıklama... "Bu teröristlere teslim olamayız"
--  Varredura encontra câmeras e microfones escondidos na sala da presidência do Corinthians
--  Varredura encontra câmeras e microfones escondidos na sala da presidência do Corinthians
--  البطولة الأفريقية لدراجة المضمار بمصر
--  جرت بجامعة "صالح بوبنيدر" بقسنطينة: تتويج لخلف سارة و تريفي بلال بالبطولة الوطنية الجامعية للشطرنج
--  رابطة باتنة تغرم أمل الزوي
--  جهوي عنابة الثاني: اتحاد سيدي عمار يتسلم مشعل القيادة
--  البطولة الجهوية
--  30 ألف منصب عمل جديد في تندوف
--  الضفة تشتعل..
--  معاقبة رئيس الوازي بستة أشهر نافذة
--  المسيلة: منصة رقمية توفر 702 هكتار من العقار الصناعي أمام المستثمرين
--  تعرّضنا للتنكيل ولظروف احتجاز مروعة
--  بن صالح مدربا لشباب عين فكرون
--  حمولتها 80 طنا مقسمة على 3 دفعات: تصدير أول شحنة للبصل الأحمر من خنشلة نحو موريتانيا
--  قطاع غزّة يتحول إلى مكان غير صالح للعيش
--  يفتقد لخدمات ثلاثي مهم: مدرب مولودية باتنة يحذر من منافس جريح
+-  Schwere Kindheit: Barry Keoghan war in 13 Pflegefamilien
+-  Prédio evacuado após incêndio que causou dois feridos na Maia
+-  مجلس الأمن الدولي يدين هجمات الحوثيين على السفن في البحر الأحمر
+-  당정, 서민·소상공인 200여만명 '신용대사면' 논의
+-  Benfica segue para os ‘quartos’ da Taça de Portugal ao vencer Sporting de Braga
+-  Владимир Путин впервые посетил Чукотку
+-  Murder Charges: Milwaukee man killed amid St. Paul wedding celebrations
+-  오토바이 절도 미수범, 화풀이 방화…경찰 추적
+-  Päivi Alafrantti syrjäytti Jari Kurrin
+-  '국정원이 불법사찰' 조국 2심도 일부 승소…위자료는 줄어
