@@ -1,11 +1,51 @@
 # Latest News
--  Mobile Turns The Tide in 2023, Driven by The Creator Economy and Subscriptions
--  Aaron Rodgers Dubs Jimmy Kimmel’s Reaction To His Comment ‘Ridiculous’
--  Le Nooba, ce café qui passe crème
--  كان الكوت ديفوار: نجم الأسود أشرف حكيمي يستقطب أنظار عشاق كرة القدم
--  Blinken seeks Palestinian governance reform as he tries to rally region behind postwar vision
--  Deadly storms buffet US, leave hundreds of thousands without power
--  Netflix’s ‘The Trust’ Is a Psychological ‘Squid Game’
--  志超12月營收13.01 億元
--  10 Unusual and Unique Ways People Celebrate Love
--  10 Ancient Places That Still Reveal Surprises
+-  قتلى وجرحى في مواجهات بالإكوادور.. ودولة حدودية تُعلن الطوارئ
+-  المملكة تعلن عن ارتفاع قيمة ثرواتها المعدنية من 1.3 إلى 2.5 تريليون دولار
+-  بيان مهم لأمانة القصيم بشأن الحفاظ على الممتلكات العامة
+-  سعر الذهب اليوم الأربعاء في مصر يهبط 15 جنيها للجرام مع بداية التعاملات
+-  البورصة ترتفع مع بداية تعاملات اليوم الأربعاء
+-  В пресс-центре МИЦ «Известия» МЧС России расскажет об итогах новогодних праздников
+-  증권사 임원, 부동산PF 비공개 정보로 500억 챙겨…금감원 검사서 적발
+-  "지고 싶은 생각은 없다"…2002년생 포수의 굳은 결의, 2차 드래프트 입단 포수들과의 선의의 경쟁
+-  By [2031], Rubber Tire Market (New Research) Report Explores the Growing Market for Revealing Key Industry Trends and Future Growth Prospects
+-  Discovery of primary body temperature regulator
+-  Handball-EM im Liveticker: Deutschland trifft zum Turnierauftakt auf die Schweiz
+-  Sỉ nhục nam shipper là "dưới đáy xã hội", nữ y tá nhận sự trừng phạt thích đáng, dân mạng: "Vẫn chưa hài lòng với kết quả này"
+-  Người phụ nữ đến hủy hợp đồng bảo hiểm rút tiền về, nhân viên lẳng lặng báo ngân hàng trì hoãn việc chuyển tiền sang tài khoản khác và lập tức báo cảnh sát
+-  4 sai lầm thường gặp khiến style luộm thuộm, kém sang khi lên đồ ngày mưa lạnh
+-  Tết này tặng gì để “cha mẹ sướng như Tiên"?
+-  Minėsime Sausio 13-ąją – Laisvės gynėjų dieną
+-  Erdoğan’ın memleketi Rize’de ekmeğe dev zam
+-  Cahors : Franck Wolf et Mieko Miyazaki en concert à l’auditorium le 19 janvier
+-  Kickoff | PSG chief hits out at 'disrespectful' Messi
+-  Plasma Expander Market to Analysis Development Insights, Huge Growth Rate, Business Trends, Share and Opportunities by 2031 | Baxter International Inc., Fresenius SE & Co. KGaA, CSL Limited, Grifols, S.A., B. Braun Melsungen AG
+-  CME Group registra un volumen internacional récord en 2023
+-  EEUU dictamina que el museo de Madrid puede conservar el cuadro de Pissarro expoliado por los nazis
+-  Las bolsas europeas caen lastradas por los valores vinculados a las materias primas
+-  Los maquinistas alemanes inician una huelga de tres días que casi paraliza el transporte ferroviario
+-  Future of Global Titanium Cylinders Market During Geopolitical Unrest and Inflation 2024 to 2030
+-  «ميتا» تشدد القيود على استخدام المراهقين «فيسبوك» و«إنستغرام»
+-  U Ekvadoru naoružani ljudi upali u televizijski studio državnog emitera tokom programa uživo
+-  Saopćenje za javnost SDA
+-  FBiH - Za decembarske dječije dodatke izdvojeno nešto više od 7.2 miliona KM,isplate od 15. januara
+-  Izraelska vojska napala 150 Hamasovih lokacija u Pojasu Gaze u protekla 24 sata
+-  SDA - Stari most u Mostaru nije 'hrvatsko kulturno naslijeđe'
+-  100 Yıllık Şirket El Değiştirdi! 14 Milyar Dolarlık Dev Satın Alma
+-  बमजनको घरबाट बरामद ३ करोड रुपैयाँ र विदेशी मुद्रा सार्वजनिक
+-  Τάσος Ιορδανίδης για Γη της Ελιάς: «Θα τον δει ο τηλεθεατής όπως δεν τον έχει ξαναδεί»
+-  M.U hỏi mượn ngôi sao Dortmund
+-  Sự hồi sinh của Aubameyang
+-  Chủ tịch VFF tâm sự 1 điều về Beckenbauer
+-  부산 찾은 한동훈 quot;4월 총선 승리해 산업은행법 통과시키겠다quot;
+-  김보미 강진군의회 의장 불신임 결의안 발의hellip;통과 여부 관심
+-  IJsbanen in Barneveld en Kootwijkerbroek ook woensdag nog dicht
+-  Τελικά η μεγάλη μάσκα της BMW αρέσει
+-  Queen Rania’s Floral Dress is a Weekend Must-Have
+-  الكشف عن فساد بسحب مبلغ 600 مليون دينار من حساب المجلس الوطني المنحل
+-  Sicherheitstechnik aufgerüstet: Stadtbad zieht Konsequenz nach Einbrüchen
+-  Trabzonspor'da hedef Cenk Özkacar!
+-  İstanbul'da su kullanım rekoru kırıldı
+-  Rize'de ekmeğe büyük zam
+-  إجراء ضد شاعر فلسطيني بعد رثائه جنديا إسرائيليا
+-  طريقة تسمح باختراق حسابات غوغل دون كلمة مرور
+-  الأمن يحقق بوفاة عامل وافد في الأغوار الشمالية
