@@ -1,11 +1,11 @@
 # Latest News
--  Prozess: Euskirchener Dieseldieb fuhr mit Fahrrad und Anhänger zur Tankstelle
--  האוהדים זועמים על פוצ'טינו: "יכול להבין את האכזבה שלהם"
--  "אוסימן יעבור בקיץ לליגה הסעודית. קברצחליה? לאחת הגדולות באירופה"
--  מאיפה זה בא? ממפיס המשיכה במסע המרשים ללא מוראנט והכוכבים
--  העברות בעולם, 10.1: חלוץ פ.ס.ז' בדרך החוצה מהקבוצה, יורנטה יצטרף?
--  PUBG 3.0 Update: How to Download PUBG Mobile 3.0 update on iOS and Android Smartphone
--  मिटरब्याज प्रताडना (कथा)
--  Фарғонада давлат хизматчилари тиббий кўрикдан ўтказилмоқда
--  Ўзбекистонда COVID-19 вакцинаси яратилди (+видео)
--  ДХМ хизматлари тури уч юздан ошди
+-  Job vacancies fall in November quarter but slight rise in WA bosses reporting they have jobs going begging
+-  กทม.แดง 34 เขต! เช้านี้พบค่าฝุ่น PM 2.5 มีผลต่อสุขภาพกว่า 25 จังหวัด
+-  'ภูมิธรรม' ไล่ไปตลาดถามชาวบ้านว่าวิกฤตหรือไม่ ลั่นไม่กังวลใจ สว.เปิดอภิปรายทั่วไป
+-  Woman with stage-four breast cancer duped out of entire life savings in heartless scam
+-  이름걸고 LPGA 대회 개최하는 박세리
+-  Bu günə olan valyuta məzənnəsi açıqlanıb
+-  Котельные в Карелии обследуют за полтора миллиона рублей
+-  [속보] 尹대통령, 국민권익위원장에 유철환 전 서울중앙지법 판사
+-  태극마크·건곤감리 모티브… 동계 청소년 국가대표 선수단복 공개
+-  В Волгограде показали находку из захоронения «Дулаг-205»
