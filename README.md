@@ -1,11 +1,11 @@
 # Latest News
--  Job vacancies fall in November quarter but slight rise in WA bosses reporting they have jobs going begging
--  กทม.แดง 34 เขต! เช้านี้พบค่าฝุ่น PM 2.5 มีผลต่อสุขภาพกว่า 25 จังหวัด
--  'ภูมิธรรม' ไล่ไปตลาดถามชาวบ้านว่าวิกฤตหรือไม่ ลั่นไม่กังวลใจ สว.เปิดอภิปรายทั่วไป
--  Woman with stage-four breast cancer duped out of entire life savings in heartless scam
--  이름걸고 LPGA 대회 개최하는 박세리
--  Bu günə olan valyuta məzənnəsi açıqlanıb
--  Котельные в Карелии обследуют за полтора миллиона рублей
--  [속보] 尹대통령, 국민권익위원장에 유철환 전 서울중앙지법 판사
--  태극마크·건곤감리 모티브… 동계 청소년 국가대표 선수단복 공개
--  В Волгограде показали находку из захоронения «Дулаг-205»
+-  PWD Invites Tender for Construction Of Institute Of Paramedical And Nursing Sciences At Udalguri District Under Sdp To Be Funded By Govt. Of Assam- 2024_BTC_35263_1
+-  PWD Invites Tender for Construction Of Bir Chilagang Basumatary Memorial Mini Stadium At Kokilabari, District Baksa- 2024_BTC_35267_1
+-  PWD Invites Tender for Construction Of Bir Chilagang Basumatary Memorial Mini Stadium At Dwarkuchi, District Tamulpur- 2024_BTC_35268_1
+-  PWD Invites Tender for Construction Of Bir Chilagang Basumatary Memorial Mini Stadium At Ramfalbil, District Kokrajhar- 2024_BTC_35265_1
+-  PWD Invites Tender for Construction Of Gorkha Bhawan And Cultural Research Centre At Chirang District Under Sdp To Be Funded By Govt. Of Assam- 2024_BTC_35261_1
+-  PWD Invites Tender for Construction Of Bir Chilagang Basumatary Memorial Mini Stadium At Barghuli, District Tamulpur- 2024_BTC_35266_1
+-  PWD Invites Tender for Tgr-92 Construction Of Model Secondary Schools In The Tea Garden Areas, Assam At Mijika High School.Dist Sonitpur- 2024_PWBNH_35230_1
+-  PWD Invites Tender for Construction Of (Gplus2), Jt. Director Office Building Under Health And Family Welfare Department in Chirang- 2024_BTC_35290_1
+-  PWD Invites Tender for Construction Of Polytechnic And Vocational Training Institute At Parbatjhora, District Kokrajhar, Assam- 2024_BTC_35262_1
+-  PWD Invites Tender for Construction Of Institute Of Paramedical And Nursing Sciences At Tamulpur, Baksa District Under Sdp To Be Funded By Govt. Of Assam- 2024_BTC_35264_1
