@@ -1,11 +1,11 @@
 # Latest News
--  Pełczyńska-Nałęcz: w tym roku chcemy złożyć cztery kolejne wnioski o płatność z KPO, do 23 mld EUR
--  Analityk z Trigona dołączył do wehikułu Juroszków
--  Nevolja u Čabru: Jedan vrtić zatvoren, drugima rad ugrožen. Razlog je potpuno bizaran
--  Švicarka pokušala u putnim torbama i u prtljažnom prostoru prokrijumčariti 8.400 komada cigareta Camel yellow
--  अवैध इलेक्ट्रिक रिक्सा नष्ट
--  Komentarz surowcowy DM BOŚ - ropa naftowa, miedź
--  तपस्वी बम्जनबाट तीन करोडभन्दा बढी नगद बरामद
--  Rita Ora: Nackt in der Sauna! Diese Aussichten sind besonders heiß
--  Η νέα χρονιά έφερε νέα αλλαγή στα μαλλιά της Ηλιάνας Παπαγεωργίου - Το νέο κούρεμα
--  SVEŠTENIK KRSTIO ĐOKOVIĆEVOG SINA: On mi je mnogo pomogao u životu, bio je tu kad mi je bio najpotrebniji
+-  Mobile Turns The Tide in 2023, Driven by The Creator Economy and Subscriptions
+-  Aaron Rodgers Dubs Jimmy Kimmel’s Reaction To His Comment ‘Ridiculous’
+-  Le Nooba, ce café qui passe crème
+-  كان الكوت ديفوار: نجم الأسود أشرف حكيمي يستقطب أنظار عشاق كرة القدم
+-  Blinken seeks Palestinian governance reform as he tries to rally region behind postwar vision
+-  Deadly storms buffet US, leave hundreds of thousands without power
+-  Netflix’s ‘The Trust’ Is a Psychological ‘Squid Game’
+-  志超12月營收13.01 億元
+-  10 Unusual and Unique Ways People Celebrate Love
+-  10 Ancient Places That Still Reveal Surprises
