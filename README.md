@@ -1,51 +1,51 @@
 # Latest News
--  Liverpool tan hoang, Klopp chơi với 'lửa'
--  Arsene Wenger đã nêu lý do vì sao Arsenal nên chiêu mộ Benzema
--  Victor Osimhen "chửi thẳng mặt" người đại diện của đồng đội
--  Sau 8 năm, Benzema có thể thay đổi thái độ nếu Arsenal tiếp cận
--  김혜수, 카리스마 폭발한 비주얼 근황…글래머러스한 몸매까지 '완벽'
--  La OSCyL Joven convoca 19 plazas de violín y tres de viola
--  Arriva Trnava nasadila na linky prímestskej dopravy 74 nových autobusov
--  “No estoy de acuerdo con el aumento de los derechos de exportación de nuestras economías regionales”
--  العاملون بالشركة العامةللورق والطباعة يطالبون بتصحيح الوضع القانوني للشركة.
+-  Michaelidou mulls English language undergrad degrees at public unis
+-  هل يمثل كتمان أوستن نبأ مرضه انتهاكاً للقانون الأمريكي؟
+-  الحالة الجوية حتى السبت وتحذيرات من الأرصاد
+-  شكران مرتجى: أعيش قصة حب لن تنتهي بالزواج
+-  مركز أرض السلام يؤيد موقف الأردن بدعمه دعوى جنوب افريقيا
+-  To będzie najdłuższy most w mieście. Na razie będą utrudnienia
+-  Elkezdett befagyni a Balaton
+-  A következő két évben 135 millióért utazna az Integritás Hatóság
+-  SON DAKİKA: Bahçeli'den 'Fatih Camii saldırısı' açıklaması
+-  Modi’nin fotoğrafı Maldivler ile arayı nasıl açtı? Hindistan’da boykot çağrıları yükseldi…
+-  ‘Taş, Kağıt, Makas’ın hazırlıkları devam ediyor
+-  Kızıldeniz'de kriz: Lojistik fiyatları arttıkça artıyor
+-  ABD'de fırtına: 3 ölü
+-  Tarlós István szerint a paródia határát súrolja a főváros kommunikációja a Budapest-bérlet ügyében
+-  Çocuk yatakları ve kan izleri var! Sinagogda bulunan tünel hesaplaşma sonucu mu?
+-  Raad gunt burgemeester Beenakker tijd in vinden nieuwe woonruimte
+-  Christelijk Gemengd Koor “Con Amore" uit Sleeuwijk zoekt (gast)leden
+-  Ook ijsclub Nooit Gedacht hakt knoop door: ijsbaan Wijngaarden gaat woensdagmiddag open
+-  Angelique van Vark en Paul Grol clubkampioen GZC DONK
 -  Selkirk Rex, l’adorabile e affettuoso gatto dallo splendido pelo riccio
--  فيسبوك يعلن أنه لن يدعم البريد الإلكتروني المشفّر إعتبارا من بداية شهر فبراير المقبل
--  Chciał przemycić hormony w bagażach. Został zatrzymany w Krościenku
--  Detienen en Salamanca a una ladrona especialista en 'hurtos cariñosos'
--  BBC se desculpa por errar contra Israel. De novo.
--  KLM blijft van en naar Ecuador vliegen tijdens noodtoestand
--  Argentinië biedt militairen als hulp aan Ecuador aan
--  Winters weer zorgt voor problemen op het spoor
--  [‘현금 2조’ 부른 노소영…최태원과 서로 “재판부 쇼핑” 손가락질
--  [“벌건 대낮에 딱 걸렸다”…현직 판사, 출장 중 성매매
--  [김성제 의왕시장 “임산부들이 체감하는 우수한 정책 지속적으로 펼치겠다”
--  [“틱톡 챌린지, 제발 지워주세요” 흑역사 지우고픈 사람 1만명 몰렸다
--  Après la découverte macabre, une autre tragédie frappe Keur Mbaye Fall
--  Παρίσι 2024: Η Ολυμπιακή Φλόγα θα ταξιδέψει με ποδήλατο, σκάφη και… αναρρίχηση
--  DHB-Keeper im Interview - Handball-Star Wolff vor Heim-EM: „Deutschland? Unfassbar attraktiv!“
--  Energetska kriza: Gorivo na Kubi petostruko skuplje usled borbe sa nestašicom
--  Monstat traži operatere za unos podataka o popisu, rezultati za 15 dana
--  Radović: Prvo da damo sve od sebe da reprezentujemo Crnu Goru na pravi način
--  Miloš Popović imenovan za novog stečajnog upravnika “Vektra Jakić”
--  News24 Business | Independent Media CEO steps down as Iqbal Survé returns as executive chair
--  Betrügerische Anrufe und Geldwäsche: 27-Jähriger in Berlin angeklagt
--  Lenovo Tab M1 poderá surpreender com o preço e qualidade
--  قناص بغداد الأسطوري يخاطب جورج بوش الابن: لدي 9 رصاصات.. من هو ؟
--  Localizada en Foz en perfecto estado la menor desaparecida en Ponferrada
--  Ako imate ovakve prste, moguće da imate SRČANO OBOLJENJE! Lekar je sada pokazao brzi test kako da to proverite: Ukoliko se pojavi ovo, ne morate da brinete
--  Torsten Sträter in Köln: Tickets für die Comedy-Show von Torsten Sträter gewinnen
 -  Selkirk Rex, l’adorabile e affettuoso gatto dallo splendido pelo riccio
--  Road mishap claims one life in Karachi
--  „Pelerin” inedit la Mănăstirea Neamț. Un zimbru a uimit pe toți cu îndrăzneala lui. „Simbolul măreţiei Moldovei” VIDEO
--  10 и 11 января «Академия Михайлова» из Тулы сыграет против «Динамо СПб»
--  „DINK“-Phänomen - Gen-Z-Paare wollen finanzielle Unabhängigkeit durch kinderfreien Lebensstil
--  Affaire Legay: le procès du commissaire Souchi "pour complicité de violence" à Nice s’ouvre ce jeudi
--  Auswirkung des Insektensterbens: Weniger Bienen, winzige Blüten
--  Kuuntele Aitiopaikalla-podcast: MM-kisoista palannut Joensuun Kiekko-Poikien maalivahti Eemil Vinni, 18, odottaa mielenkiinnolla ulkoilmaotteluja
--  Dólar hoy, dólar blue hoy: a cuánto cotiza este miércoles 10 de enero
--  National Guard solider charged in murder-for-hire plot to avenge mom’s death 8 years after she was killed by driver
--  La Junta y la Cámara de Comercio hablan sobre medidas para mantener la "pujanza" de Málaga
--  “We’ll be a strong opposition”
--  Cheese Sauce Market Size, Share, Landscape, Industry Analysis, Business Outlook, Current and Future Growth by 2031 | Gehl Foods LLC, Conagra Brands, Inc.
--  Prabowo Cawe-cawe soal Tanggul Laut, Ekonom: Jangan Terlalu Melenceng dari Tugas Utama
--  Đuričković traži da Ministarstvo spoljnih poslova osudi prisustvo poslanika i funkcionera Crne Gore proslavi Dana RS
+-  Apex Legends expert urges players to avoid FF7 Buster Sword Heirloom: “Save your money”
+-  小米14 Ultra设计曝光 新增玻璃材质背部不再隆起
+-  In Blasbach brennen Bäume
+-  Ubijen državljanin Srbije u Brazilu, blizak škaljarskom klanu
+-  Nabi Daud: Mengapa Allah Menciptakan Ulat? Begini Jawaban Ulat dalam Penjelasan Al Ghazali
+-  Chelsea’s forgotten man Trevoh Chalobah ‘thrown Premier League transfer lifeline’ after playing ZERO minutes all season
+-  전국 최대 대구 '악성 미분양 주택' 해소 신호탄…구입시 세 부담 경감
+-  윤 대통령 "재개발·재건축 규제 아주 확 풀어버리겠다"…지역 부동산 시장 관심↑
+-  오는 4월 10주기…세월호 유가족·시민단체 '진상 규명·책임자 처벌' 촉구
+-  [매일희평] 네 이 노~~~옴 닥치지 못할까!!
+-  [야고부] 환상 속의 그대
+-  Kim Jong Un señala a Corea del Sur como su principal enemigo: "no dudaremos en aniquilar"
+-  Como Atlético de Madrid virou 'pedra no sapato' do Real Madrid em Supercopa da Espanha e o que você precisa assistir pela ESPN no Star+
+-  Дело возбудили после отравления ребенка в Новый год под Брянском
+-  فرصة ذهبية أمام نجم برشلونة في السوبر
+-  ارتفاع أسعار البسلة والخيار وانخفاض الطماطم بسوق العبور اليوم الأربعاء
+-  ارتفاع أسعار السمك البلطي والجمبري وانخفاض البوري بسوق العبور اليوم
+-  "الرقابة الصحية": اعتماد 8 وحدات طب أسرة بأسوان والأقصر
+-  انخفاض أسعار الفول والجبن وزيادة المكرونة بالأسواق اليوم (موقع رسمي)
+-  الأحد.. مؤتمر صحفي للإعلان عن تفاصيل معرض الكتاب
+-  قطاع غزة وجهود وقف إطلاق النار.. مدبولي يبدأ اجتماع الحكومة الأسبوعي- تفاصيل
+-  The Next Front in the U.S.-China Battle Over Chips
+-  NEPSE gains 0.45%, records Rs 5.134 Billion turnover on Wednesday
+-  AI-powered misinformation is the world&#039;s biggest short-term threat, Davos report says
+-  Meet ‘Gqeberha: The Empire’ season two new cast
+-  Документите на убития Кирил Русев намерени в колата на заподозрените
+-  ‘I’m so stressed!’ scream Silent Witness fans as legendary character faces brutal death just two eps into new series
+-  อบจ.อุบลฯ จัดงานชมดอกทานตะวัน ที่สนามกีฬาทุ่งบูรพา หวังดันเป็นแหล่งท่องเที่ยว
+-  Rangers target Michy Batshuayi told he MUST get transfer this month as Euro 2024 spot hangs in balance
