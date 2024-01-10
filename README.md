@@ -1,11 +1,51 @@
 # Latest News
--  PWD Invites Tender for Construction Of Institute Of Paramedical And Nursing Sciences At Udalguri District Under Sdp To Be Funded By Govt. Of Assam- 2024_BTC_35263_1
--  PWD Invites Tender for Construction Of Bir Chilagang Basumatary Memorial Mini Stadium At Kokilabari, District Baksa- 2024_BTC_35267_1
--  PWD Invites Tender for Construction Of Bir Chilagang Basumatary Memorial Mini Stadium At Dwarkuchi, District Tamulpur- 2024_BTC_35268_1
--  PWD Invites Tender for Construction Of Bir Chilagang Basumatary Memorial Mini Stadium At Ramfalbil, District Kokrajhar- 2024_BTC_35265_1
--  PWD Invites Tender for Construction Of Gorkha Bhawan And Cultural Research Centre At Chirang District Under Sdp To Be Funded By Govt. Of Assam- 2024_BTC_35261_1
--  PWD Invites Tender for Construction Of Bir Chilagang Basumatary Memorial Mini Stadium At Barghuli, District Tamulpur- 2024_BTC_35266_1
--  PWD Invites Tender for Tgr-92 Construction Of Model Secondary Schools In The Tea Garden Areas, Assam At Mijika High School.Dist Sonitpur- 2024_PWBNH_35230_1
--  PWD Invites Tender for Construction Of (Gplus2), Jt. Director Office Building Under Health And Family Welfare Department in Chirang- 2024_BTC_35290_1
--  PWD Invites Tender for Construction Of Polytechnic And Vocational Training Institute At Parbatjhora, District Kokrajhar, Assam- 2024_BTC_35262_1
--  PWD Invites Tender for Construction Of Institute Of Paramedical And Nursing Sciences At Tamulpur, Baksa District Under Sdp To Be Funded By Govt. Of Assam- 2024_BTC_35264_1
+-  Gefälschte Mitteilung der Börsenaufsicht sorgt für Aufruhr
+-  अनजान को लिफ्ट देने के लिए बैंक कर्मी ने हाईवे पर रोकी कार, फिर जो हुआ...
+-  Güney Amerika ülkesi karıştı! Devlet Başkanı Noboa: Çetelerin etkisiz hale getirilmesi için talimat verdim
+-  Türkiye ilk adımı atıyor! Yerli olarak geliştirilip üretilecek
+-  İETT'ye bağlı özel halk otobüsü dehşet saçtı
+-  Bakan Blinken'dan dikkat çeken Türkiye açıklaması
+-  이민근 안산시장, 美 부에나파크서 ‘안산 세일즈’ 나서
+-  경기도의회 의장, 경기도 시내버스 공공관리제 출범식 참석
+-  백경현 구리시장, 2024년 신년 기자회견
+-  김철민 의원 대표발의 '한국교직원공제회법' 국회 본회의 통과
+-  과천시 “2024년 시민 생활 이렇게 달라집니다!”
+-  이천시, 1월은 정기분 등록면허세 납부의 달
+-  Na sjeveru hladno, sunčano na primorju
+-  Ramaphosa unfazed by ActionSA's bid to probe ANC settlement of Ezulweni debt
+-  ICC ने रोहित शर्मा और विराट कोहली को दी खुशखबरी, पंत को हुआ नुकसान
+-  Altında önemli bekleyiş! Yarın belli olacak
+-  'Here We Go' 로마노 확인! 첼시 유스 출신 DF, 도르트문트 임대 이적 근접...이미 독일 도착
+-  BJP leader Shivraj Singh Chouhan confident of BJP winning 10 Lok Sabha seats in Telangana
+-  Asian markets drop again as traders prepare for CPI, earnings
+-  15 रुपये में 4 समोसे... स्वाद ऐसा कि खाने वालों की लगती है भीड़, जानें लोकेशन
+-  आ रहे हैं राम: मंदिर संघर्ष में शामिल थे हरियाणा विस अध्यक्ष ज्ञानचंद गुप्ता, कहा-550 साल का इंतजार खत्म
+-  उमरान को लेकर पूर्व भारतीय क्रिकेटर आकाश चोपड़ा ने उठाए सवाल
+-  BFM Crypto: Nuit de confusion autour des ETF Bitcoin - 10/01
+-  "Ha tentato di uccidere il figlio di Pino Cuttaia con tre coltellate alla milza": una perizia per accertare se era capace di intendere
+-  Tennis : Vers une domination totale du top 4 féminin ?
+-  Paramount y Warner Bros, la fusión que crearía un gigante del entretenimiento en EEUU
+-  ДО КРАЈОТ НА ОВАА НЕДЕЛА СУВ СТУД ВО МАКЕДОНИЈА: Наутро, температурите ќе паднат и под -10 степени!
+-  Open d'Australie : Le plus grand match de l'histoire du tournoi
+-  Telangana Drugs Control Administration cracks down on spurious ‘Mehendi’ cones in Hyderabad
+-  क्या पार्टी करने की सजा भुगत रहे ईशान किशन? BCCI अपना रहा सख्त रुख
+-  फैंस के लिए खुशखबरी, भारत के विस्फोटक बल्लेबाज श्रेयस अय्यर को टीम में जगह मिली
+-  街口日本跨境支付夯 加碼首季旅日消費最高20％回饋
+-  Pending processes are likely to delay panchayat elections in J&K
+-  בדרך לעסקת חטופים חדשה? יועצו הבכיר של ביידן ביקר בקטר בחשאי
+-  Christina Block: Kinder nach Entführung wieder beim Vater
+-  Bucher ernennt Frank Mühlon zum neuen Leiter Hydraulics
+-  BRS working president KT Rama Rao reminds BRS cadre of KCR’s fighting spirit
+-  솔데스크 K-디지털 AWS Train-To-Hire 아마존 클라우드 취업 프로젝트 발표회
+-  포천시, 오는 26일까지 2024년 농업인 실용교육 추진
+-  부천시, 올 정기분 등록면허세 9만 1000건 30억 원 부과
+-  포천 신북면 이장협, 새해 첫 이웃돕기 후원금 400만 원 기탁
+-  고양·양주 다방 연쇄 살인 피의자 이영복 신상 공개
+-  El libro de ruta de Terreros: limpiar la imagen de la CELAD y dimitir
+-  Echo Review: Marvel Show Ups Its Game, But Is It Enough?
+-  [CES 2024] 한종희 부회장 'AI 발전 속도 상상 이상'…"5년 후 사용자 편해질 것"
+-  ऑस्ट्रेलिया टीम ने तय किया टेस्ट ओपनर, जानें किसे सौंपी गई है ये जिम्मेदारी
+-  ¿Un jugador del Real Madrid en La Isla de las Tentaciones? Confusión en las redes por un parecido razonable
+-  Junts exige a Sánchez frenar las investigaciones sobre el dinero en Andorra y pide el "fin del asedio" al paraíso fiscal
+-  Drishti 10 Starliner: समुद्र में दुश्मनों के छक्के छुड़ाएगा अडाणी का ड्रोन, नेवी चीफ ने किया उद्घाटन
+-  무주군, 2024년 농업 신기술보급 시범사업 주목
