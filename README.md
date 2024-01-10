@@ -1,11 +1,11 @@
 # Latest News
--  ولي العهد يبدأ الخميس زيارة عمل إلى سنغافورة
--  Gặp Atletico 3 lần trong 1 tháng, sao Real lên tiếng
--  Chủ tịch PSG giải thích lý do không vinh danh Messi
--  Arsenal thực sự cần một tiền đạo mới?
--  Jason Cundy phẫn nộ khi xem Chelsea thi đấu
--  Pochettino: "Đó là mục tiêu của Chelsea"
--  กลุ่มหัตถกรรมราชบุรีเร่งผลิตตุ๊กตาส่งลูกค้าหลังมียอดสั่งจองจากทั่วประเทศจัดงานวันเด็กแห่งชาติ
--  ทุจริตฟันไม่เลี้ยง!มท.1จับตาเปลี่ยนผู้จัดสอบ‘ข้าราชการท้องถิ่น’ โกงแม้จุดเดียวโทษหนัก
--  라파엘 나달의 2007년 프랑스 오픈 결승에서 페더러를 상대로 우승한 라켓, 경매에 나오다
--  “폐배터리, U+매장에서 처리합니다”…LGU+, 보조배터리 수거 캠페인
+-  Police nab break-in crew targeting luxury homes in Selangor, Johor
+-  Violenza sessuale a scuola su bimba di 6 anni: arrestato un bidello
+-  Không phải tập thể dục, “nằm” cũng giúp tuổi thọ con người tăng cao nhưng chớ quên 1 điểm cốt lõi
+-  معروف پاکستانی فلمساز پرمیش اڈیوال نے اسلام قبول کرلیا
+-  New COE category for private hire car fleets not ruled out, must be 'studied carefully': Chee Hong Tat
+-  American man, 54, fined S$5,500 for verbally abusing & pushing Shashlik Restaurant staff
+-  MPs concerned of 'disamenities' caused by occupancy increase, HDB says it revokes rentals if too serious
+-  Amount deposited as pre-deposit u/s 35 of the Central Excise Act subject to refund along with interest: CESTAT [Read Order]
+-  Ryan Kamp trekt aan de alarmbel na moeizame zoektocht: “Het gaat niet goed met de cross”
+-  La Sega Genesis revient en version portable, les joueurs rétro sont aux anges
