@@ -1,11 +1,11 @@
 # Latest News
--  Pogledajte što prodaju u možda najpopularnijem hrvatskom dućanu: 'Ni nakon upozorenja nisu prestali'
--  Bruxelas diz que bolas de plástico que estão a dar à costa em Espanha ameaçam ambiente e pesca
--  Municípios da Madeira vão cobrar taxa turística de 2 euros a partir do segundo semestre
--  MHP 2'si büyükşehir 12'si il olmak üzere toplam 55 belediye başkan adayını açıkladı
--  Kazakistan'da yoğum kar yağışı nedeniyle ulaşımda aksaklıklar yaşanıyor
--  Real Madrid - Atletico Madrid maçı hangi kanalda, saat kaçta?
--  Global unemployment to rise despite unexpected rebound in 2023
--  Подруга Зеленского Песчанская возглавила Счётную палату
--  Самый сильный подросток России погиб в ДТП в Башкирии в возрасте 16 лет
--  ΠΑΟΚ: Ενδεκάδα με Ζ. Ζίβκοβιτς και Μάρκος Αντόνιο κόντρα στον Βόλο
+-  The 14th Launch of Forecasting & Prospects Research Reports on Energy Economy
+-  Судьям в РФ разрешили вести свои Telegram-каналы и публиковаться в чужих
+-  창원시, 투자유치 기반 강화로 경제 재도약 발판 만든다
+-  창원시, 중소기업 경쟁력 키운다…지원정책 역점 추진
+-  밀양시, 여성친화도시 조성 위해 경남 여성가족재단과 협약
+-  Пет рекорди соборени во 2023-та година: Најголема брзина, најголема тежина, најстар предмет …
+-  В РАО объяснили, с чем связан иск к Киркорову на 2 млн рублей
+-  Netzwelt: Nicht ohne mein Handy – oder lieber doch?
+-  Rangnick riet Kalajdzic zu Eintracht-Wechsel
+-  New pair Metelkina and Berulava lead European figure skating championships after short program
