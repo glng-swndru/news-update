@@ -1,11 +1,51 @@
 # Latest News
--  Λίβερπουλ - Φούλαμ 2-1: Ανατροπή - εξπρές και φούλαρε για τελικό!
--  Sir Keir Starmer was in charge of the CPS when subpostmasters were taken to court
--  «Ливерпуль» победил «Фулхэм» в первом матче 1/2 финала Кубка Английской лиги
--  H βαθμολογία της Euroleague: Έχασε την επαφή με την τετράδα ο Ολυμπιακός
--  Liverpool 2 Fulham 1: Jones and Gakpo give Reds slender Carabao Cup semi-final lead after major scare against Cottagers
--  Major TV channel appears to call for huge Carabao Cup change to be brought forward… in order to knock Chelsea out
--  Es complicado que se extradite presunto responsable de muerte de tres jóvenes en Roatán, dice Dogu
--  האח הודה ברצח אחותו - ואז הסיפור קיבל טוויסט מפתיע
--  בכיר בפנטגון קרא 200 אלף דוחות וקבע: "לממשלה יש עב"מים"
--  داروين نونيز يهدر هدف محقق لـ ليفربول أمام فولهام
+-  Colombia en alerta por incendios forestales agravados por el fenómeno de El Niño
+-  Informe señala a 3 grupos responsables de ataques contra periodistas mexicanos en Veracruz
+-  Se registra Álvarez Máynez como precandidato de MC
+-  Empleada mata a su compañera por un chisme
+-  Despojan a familia de su camioneta en la corta a Chihuahua
+-  Anisha Rosnah attends a powdering ceremony ahead of her marriage to Prince Mateen of Brunei
+-  Anisha Rosnah attends a powdering ceremony ahead of her marriage to Prince Mateen of Brunei
+-  Prime Minister Anthony Albanese expected to speak from Frankston
+-  Prime Minister Anthony Albanese expected to speak from Frankston
+-  Asus Tianxuan Mini igrački miš sa do 100 miliona klikova premijerno u Kini za 42$
+-  ASRock najavljuje nove monitore za igre od 520Hz i 400Hz osvežavanja
+-  FSP predstavlja CUT593 Premium Ultra Tower liniju šasija
+-  Xgimi predstavlja svoja nova dva projektora za US tržište
+-  Μιλουτίνοφ: «Θα έπρεπε να είχαμε ξεκινήσει καλύτερα το δεύτερο ημίχρονο»
+-  Jedina Hrvatica s Forbesove liste: Nisam mogla vjerovati, zateklo me...
+-  Ceny ropy w dół o niemal dolara
+-  Dominic West resists revealing Prince Harry’s ‘eye-wateringly rude jokes’ he made on their trip to the South Pole
+-  تأخرت ست ساعات.. طائرة تشعل غضبا واحتجاحا بمطار العروي الدولي
+-  Kadıköy'de Konyaspor yerine Galatasaray'ın logosu yer aldı
+-  Ege'de 4.3 büyüklüğünde deprem!
+-  Fatih Terim'in ilk derbisi 1-1 sona erdi
+-  Kazada ölen gencin sosyal medya paylaşımı dikkat çekti: Helallik almadan ölmeyin
+-  Derbide 8 gol atıldı, Arda Güler uzatmada oyuna girdi
+-  Ministro Torres: venimos trabajando para garantizar la paz y seguridad en nuestro país
+-  نونيز الأعلى تقييمًا في مباراة ليفربول وفولهام
+-  منظمة “الفاو” تتوقع انخفاض إنتاج الحبوب في ليبيا خلال 2024 بسبب تداعيات دانيال
+-  Old stars may be the best places to search for life
+-  Torfestival in Riad: Real im Finale des spanischen Supercups
+-  Meçaj ironizon militantët poshtë ballkonit të Berishës: E kanë lënë të flasë me vete, ja pse të gjithë e mbajnë kokën ulur
+-  Datça açıklarında 4.3 büyüklüğünde deprem
+-  Presidential candidate and former New Jersey Gov. Chris Christie expected to end his 2024 campaign: Sources
+-  'Los Choneros': la peligrosa organización delictiva de Ecuador que se asoció con el Cártel de Sinaloa
+-  Kyle Turner joins Raith Rovers on loan from Ross County
+-  Bill Ackman, taking a page from his Wall Street playbook, backs rebel candidates to join Harvard's board
+-  Καρβάλιο: «Παίξαμε το 50% της πρόκρισης και πάμε στο γήπεδό μας για να περάσουμε»
+-  Neue Klasse: Münchner BMW-Werk baut ab 2027 nur noch Elektroautos
+-  El Madrid se lleva un festín ante el Atlético
+-  Nova Mutum instala ecobarreiras para coletar resíduos irregulares em lagos
+-  หุ้นดอกเบี้ยขาลง!!
+-  UGB : un chercheur appelle à densifier les échanges commerciaux au sein de la ZLECAF
+-  غولر: هذا هو ريال مدريد
+-  تقييم جاكبو مع ليفربول أمام فولهام
+-  Venkaiah Naidu’s “Don’t Change Parties” Advice For Young Politicians
+-  Revealed: Fresh pictures of Sadio Mane's wedding to his teenage bride as it emerges their love blossomed after her construction manager father met with his agent
+-  Time: Ovo je 10 najvećih rizika za svijet u 2024.
+-  El Real Madrid bate al Atlético en un partido loco y jugará la final de la Supercopa
+-  Real Madrid 5-3 Atletico Madrid (AET): Carlo Ancelotti's men score twice late on to edge eight-goal thriller and book their place in Sunday's Spanish Super Cup final
+-  İspanya'da hastanelerde maske takma zorunluluğu
+-  Governo apresenta ao Congresso projeto para mudar Lei de Falências
+-  Dio navijača u Saudijskoj Arabiji zviždao tijekom minute šutnje za Beckenbauera
