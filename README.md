@@ -1,11 +1,11 @@
 # Latest News
--  A Guide to Minimum Wages in China (Last Updated on January 10, 2024)
--  윤채나, 러블리 그 자체
--  영화 '도그데이즈' 김덕민 감독
--  황의조, 노리치 시티 떠나 노팅엄 조기 복귀
--  2024 modeller bayilere gelmeye başladı! İşte en ucuz sıfır otomobiller
--  이재명 습격범 검찰 송치...단독범행 주장하며 quot;걱정끼쳐 미안하다quot;
--  [경기도의회 소식] 청소년 노동인권 발전 유공자 표창 수여
--  사천 KAI, 미래사업 신사업 가속화hellip;CES 2024에 참관단 구성
--  ОССЕ съжаление за отказа на Беларус да допусне наблюдатели на изборите
--  PH, Indonesia agree to expedite revision of joint border patrol, crossing agreements
+-  استقرار أسعار السيارات المستعملة في 2024
+-  호반산업, 대한전선 유상증자에 120% 청약 확정
+-  Pollution levels in Angul of Odisha above danger mark, details here
+-  Retroscena: la vera ragione per cui il "prezzemolino" Conte attacca Giorgia Meloni
+-  Tienen vencido su INE más de 82 mil ciudadanos
+-  박민영, '전남친 논란' 딛고 성공적 복귀…'흥행퀸'의 귀환 [MD픽]
+-  OIL India Recruitment 2024: Apply online for 102 Senior Officer and other posts
+-  Derrame de aguas servidas causa problemas en Colón
+-  Maharashtra Political Crisis: Fate Of 16 Rebel Sena MLAs To Be Decided Today
+-  Minstens tien doden bij bendegeweld in Ecuador
