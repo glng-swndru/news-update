@@ -1,51 +1,11 @@
 # Latest News
--  Cold & dry weekend before rain, hail and sleet returns
--  Harekete Geçtiler! 700 Bin Kamu İşçisi Ek Zam İstiyor
--  Китай изпревари Япония и вече е номер едно в света по износ на автомобили
--  Петър Пиронков, художник: В добри времена сме - който сътвори дух, получава признание
--  India, UAE ink pact for possible energy grid connectivity between two countries
--  السرقة والتهديد بالخطف يقود أربعة أشخاص إلى التوقيف بالبيضاء
--  تتويج مفتش الشرطة ممتاز بشرى كربوبي بجائزة محمد بن راشد آل مكتوم للإبداع الرياضي
--  المغرب يفوز برئاسة مجلس حقوق الإنسان الدولي
--  أخنوش يؤكد صرف الحكومة ل 524 مليون درهم في إطار الدفعة الأولى من الدعم الاجتماعي المباشر
--  الاشتراكي الموحد بأزيلال يدين توقيف الأساتذة ويعلن استعداده للمؤازرة
--  بيدرو سانشيز : العلاقات مع المغرب بلغت مستوى عاليا من المتانة والثقة
--  فتح تحقيق في أخبار زائفة تتعض لشخصيات ومؤسسات وطنية
--  Полуфинал за Магомед Рамазанов на турнир по борба в Загреб
--  GemCore Combines Bullet Hell Strategy with Corporate Rebellion
--  Podemos pacta con el PSOE su apoyo a las medidas anticrisis y votará no al decreto del desempleo
--  Ook op De Zanding in Otterlo kunnen de schaatsen ondergebonden worden
--  Rus Turist Doğa Yürüyüşünde Kayboldu: Arama Çalışması Başlatıldı
--  Tory Deputy Chairman Lee Anderson Calls for Liberal Democrat Leader’s Resignation Amid Post Office Scandal, Stirring Political Turbulence
--  Rekordowe zamówienia na hiszpańskie obligacje o wartości ponad 130 mld EUR
--  Tower Investments szuka pomysłu na sukces
--  Murat Kurum Gazeteciler Günü'nü Kutladı! Bazen Aşağılanıyorsunuz Ama...
--  Why Is Roma Green Finance (ROMA) Stock Down 19% Today?
--  DERBI VEČITIH NEPRIJATELjA: Grčka je na nogama, prošli duel završen je neslavno već u 55. minutu
--  Marnus Labuschagne recalls interesting incident regarding Steve Smith slot
--  Белорусы съездили в новогодний тур в Россию и теперь хотят вернуть деньги
--  Авария оставя един район във Варна без вода
--  최태원ㆍ정의선 등 재계 총수, AI 공부하며 미래 청사진 [CES 2024]
--  Microsoft ile OpenAI ortaklığı mercek altında! AB soruşturma başlatabilir
--  İstanbul'da 69 bin TL ama Sivas'ta tamamen ücretsiz
--  Konya'da yapılan operasyonda 2 milyon lira olan 1 ton 306 kilogram kimyasal madde ele geçirildi.
--  Almanya'da makinistler grevde: Tren seferleri yapılamıyor
--  Flamengo concretiza venda de Santos ao Fortaleza, mas tenta manter goleiro até o fim de janeiro
--  Unveiling the Enigma: Decoding the Mystery Behind 02045996870
--  Yol Verme Kavgasında Cam Yumruklayıp Dehşet Saçmıştı!
--  "Geil und super": Rangnick riet Kalajdzic zu SGE-Wechsel
--  Transfermarkt: „Geil und super“: Rangnick riet Kalajdzic zu SGE-Wechsel
--  تفسير حلم سجادة الزرقاء للمتزوجة
--  وكالة النهوض بالصناعة توقع اتفاقية شراكة مع الإدارة العامّة للدراسات التكنولوجية دعما لحاملي أفكار المشاريع
--  Government Appoints BDOs As Administrator(s) for Running Affairs of Panchayat Halqas
--  ما معنى لبس الفرو للمتزوجة في المنام ؟
--  تفسير رؤية البطاطس في المنام للمتزوجه
--  تفسير حلم السباحة للمتزوجة
--  ĆERKA JOVANA MEMEDOVIĆA OBJASNILA KUPOVINOM U SEKND HENDU! "Srušila" mreže kad je pokazala JAKNU koju nosi Kejt Midlton!
--  Gove denies knowing of Government ‘interference’ with independent Teesworks probe
--  Ireland unveils national TREASURE: the world’s LARGEST potato
--  У Херсоні затримали чиновницю окупаційної "адміністрації" РФ
--  André Villas-Boas apresenta candidatura no dia 17 de janeiro
--  IMAO MILIONE U RUKAMA, A UMRO U IZNAJMLJENOM STANU: Muž Anice Dobre branio Džeja u školskom dvorištu - Mangupi ga voleli
--  BigBox Permudah BPOM Awasi Obat dan Makanan melalui Media Sosial
--  Junior doctors in rural hospitals unimpressed by 'filthy, broken' accommodation
+-  Pogledajte što prodaju u možda najpopularnijem hrvatskom dućanu: 'Ni nakon upozorenja nisu prestali'
+-  Bruxelas diz que bolas de plástico que estão a dar à costa em Espanha ameaçam ambiente e pesca
+-  Municípios da Madeira vão cobrar taxa turística de 2 euros a partir do segundo semestre
+-  MHP 2'si büyükşehir 12'si il olmak üzere toplam 55 belediye başkan adayını açıkladı
+-  Kazakistan'da yoğum kar yağışı nedeniyle ulaşımda aksaklıklar yaşanıyor
+-  Real Madrid - Atletico Madrid maçı hangi kanalda, saat kaçta?
+-  Global unemployment to rise despite unexpected rebound in 2023
+-  Подруга Зеленского Песчанская возглавила Счётную палату
+-  Самый сильный подросток России погиб в ДТП в Башкирии в возрасте 16 лет
+-  ΠΑΟΚ: Ενδεκάδα με Ζ. Ζίβκοβιτς και Μάρκος Αντόνιο κόντρα στον Βόλο
