@@ -1,11 +1,51 @@
 # Latest News
--  Dev Halder assumes the role of DOSM at Holiday Inn, Aerocity
--  Trakya Birlik Başkanı Kırbiç: Ayçiçeğinde fiyat ve ithalat baskısı üreticiyi zorluyor
--  Ayvalık Belediye Başkanı Ergin, gazetecilerle buluştu
--  AKSUNGUR'dan yeni görüntüler! "41 kere maşallah"
--  عباس لبلينكن: لن نسمح بتهجير الفلسطينيين من الضفة وغزة
--  البطاينة: جيشنا يدافع عن العرب ضد حلمي فارس وصهيون والمقاومة الفلسطينية تعيد للأمة كرامتها - فيديو وصور
--  سيدات الميثاق الوطني تزور جمعية الشابات المسيحية
--  Nasce Alpeggiani Avvocati Associati
--  Ночной рейд министра: глава минздрава посетил медучреждения Худжанда
--  პირველი გამოხმაურება სტალინის გამოსახულებიან ხატზე – პოლონეთის საელჩო განცხადებას ავრცელებს
+-  Joana Marques tenta avaliar a extensão das lesões de Numeiro, a nível cerebral
+-  Taxa Euribor sobe a três, seis e 12 meses
+-  Schuster äußert sich über erstes Beckenbauer-Treffen
+-  LTV warnt vor dem Betreten von Eisflächen in Sachsen
+-  'Verbeterde mens hoeft geen beter leven te hebben'
+-  Honorov Magic6 Lite ima bateriju koja traje do dva dana
+-  كأس إفريقيا-2023: المنتخب الجزائري يغادر لومي في اتجاه مدينة بواكي الايفوارية
+-  الولايات المتحدة: دعوات إلى مظاهرة مليونية في واشنطن السبت المقبل للمطالبة بوقف العدوان الصهيوني على غزة
+-  رشيد علواش: أولى تحركات الجزائر بمجلس الأمن تؤكد مركزية القضية الفلسطينية لدى القيادة الجزائرية
+-  رأس السنة الأمازيغية: يوم الجمعة المقبل عطلة مدفوعة الأجر
+-  رأس السنة الأمازيغية: يوم الجمعة المقبل عطلة مدفوعة الأجر
+-  Selkirk Rex, l’adorabile e affettuoso gatto dallo splendido pelo riccio
+-  প্রীতি ম্যাচে ইন্দোনেশিয়ার বিরুদ্ধে ইরানের জয়
+-  Burgemeester tevreden over jaarwisseling
+-  غزة.. مقتل 23357 فلسطينيا بالهجمات الإسرائيلية منذ 7 أكتوبر
+-  NEW: Saruchera appointed Black Rhinos coach
+-  검찰 ‘가짜 녹취록’ 수사 관련, 최재경 전 민정수석 참고인 조사
+-  Radulović: "Spajićevim putevima u ambis"
+-  Mihailović MVP 15. kola ABA lige
+-  Gespräche gescheitert: Weiterhin keine konkrete Zukunftsperspektive für bedrohtes ZF-Werk
+-  Un amplio dispositivo busca a un vecino de Torrelavega que desapareció el sábado
+-  Indian Army’s might to be displayed at Mahakumbh ’25
+-  Modrić dugo ne pamti takav udarac, rano je morao iz igre: ‘Zna da bi novi poraz vratio stare sumnje’
+-  Iron Ore Exports & Coking Coal Imports push Port Traffic 5%
+-  Winkelleegstand? Geen vuiltje aan de lucht in Groningen. 'Stad doet het gewoon heel erg goed'
+-  كيف ترسل اسمك إلى القمر؟.. يطير في مهمة مدتها 100 يوم
+-  ماذا قال زاهي حواس عن علاقة مرضه بـ«لعنة الفراعنة»؟.. أجرى جراحة في ألمانيا
+-  FETÖ'nün firari ilçe imamı yakalandı!
+-  Steven van Weyenberg (D66) volgt Sigrid Kaag op als minister van Financiën
+-  משרד הבריאות בעזה: 147 הרוגים ביממה האחרונה
+-  Yolanda Díaz al PP: "Ustedes van a anteponer sus siglas a los derechos de la ciudadanía"
+-  Yolanda Díaz al PP: "Ustedes van a anteponer sus siglas a los derechos de la ciudadanía"
+-  Albares pide a los embajadores españoles que defiendan «como prioridad» el catalán, gallego y euskera
+-  From Demi Rose to Justin Bieber’s unknown ex – meet the influencers who made their names from high-profile romances
+-  From Demi Rose to Justin Bieber’s unknown ex – meet the influencers who made their names from high-profile romances
+-  Fracasan en el 2023; se esperaba más de ellos
+-  Порвавший портрет Путина певец Шарлот в суде попросил у президента прощения
+-  Campaña de descuento en avalúos catastrales
+-  Policjanci dbają o potrzebujących
+-  ONGC Videsh incorporates wholly owned subsidiary in GIFT City
+-  Virat Kohli to miss 1st T20I against Afghanistan due to personal reasons, confirms Rahul Dravid
+-  Orosz Barbara végzet asszonya volt a flitteres estélyiben: tündökölt Az Év Sportolója Gálán
+-  28.900 Asthmaerkrankte im Kreis Recklinghausen: Vorsicht in der kalten Jahreszeit
+-  Intels 14. generasjons CPU har gjort sitt inntog på markedet for bærbare datamaskiner.
+-  Popovic Milan: il gesto dell’attaccante non è piaciuto ai rossoneri, trattativa in salita
+-  MOĆNIKA SA ESTRADE CEO ŽIVOT PRATI ZLA KOB Sahranio je celu porodicu, pa ostao potpuno sam
+-  Không tốn đồng nào mà lại được học tại 1 trong những nước đẹp nhất châu Âu: Nữ sinh Ams hé lộ hết bí quyết
+-  Un delantero y nada más: la postura que tomó River en el mercado de pases
+-  Peru reforça vigilância na fronteira com o Equador e declara estado de emergência
+-  Ecco quali sono stati i brand più popolari e gli smartphone più venduti del 2023
