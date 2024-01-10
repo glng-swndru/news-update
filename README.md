@@ -1,51 +1,11 @@
 # Latest News
--  Michaelidou mulls English language undergrad degrees at public unis
--  هل يمثل كتمان أوستن نبأ مرضه انتهاكاً للقانون الأمريكي؟
--  الحالة الجوية حتى السبت وتحذيرات من الأرصاد
--  شكران مرتجى: أعيش قصة حب لن تنتهي بالزواج
--  مركز أرض السلام يؤيد موقف الأردن بدعمه دعوى جنوب افريقيا
--  To będzie najdłuższy most w mieście. Na razie będą utrudnienia
--  Elkezdett befagyni a Balaton
--  A következő két évben 135 millióért utazna az Integritás Hatóság
--  SON DAKİKA: Bahçeli'den 'Fatih Camii saldırısı' açıklaması
--  Modi’nin fotoğrafı Maldivler ile arayı nasıl açtı? Hindistan’da boykot çağrıları yükseldi…
--  ‘Taş, Kağıt, Makas’ın hazırlıkları devam ediyor
--  Kızıldeniz'de kriz: Lojistik fiyatları arttıkça artıyor
--  ABD'de fırtına: 3 ölü
--  Tarlós István szerint a paródia határát súrolja a főváros kommunikációja a Budapest-bérlet ügyében
--  Çocuk yatakları ve kan izleri var! Sinagogda bulunan tünel hesaplaşma sonucu mu?
--  Raad gunt burgemeester Beenakker tijd in vinden nieuwe woonruimte
--  Christelijk Gemengd Koor “Con Amore" uit Sleeuwijk zoekt (gast)leden
--  Ook ijsclub Nooit Gedacht hakt knoop door: ijsbaan Wijngaarden gaat woensdagmiddag open
--  Angelique van Vark en Paul Grol clubkampioen GZC DONK
--  Selkirk Rex, l’adorabile e affettuoso gatto dallo splendido pelo riccio
--  Selkirk Rex, l’adorabile e affettuoso gatto dallo splendido pelo riccio
--  Apex Legends expert urges players to avoid FF7 Buster Sword Heirloom: “Save your money”
--  小米14 Ultra设计曝光 新增玻璃材质背部不再隆起
--  In Blasbach brennen Bäume
--  Ubijen državljanin Srbije u Brazilu, blizak škaljarskom klanu
--  Nabi Daud: Mengapa Allah Menciptakan Ulat? Begini Jawaban Ulat dalam Penjelasan Al Ghazali
--  Chelsea’s forgotten man Trevoh Chalobah ‘thrown Premier League transfer lifeline’ after playing ZERO minutes all season
--  전국 최대 대구 '악성 미분양 주택' 해소 신호탄…구입시 세 부담 경감
--  윤 대통령 "재개발·재건축 규제 아주 확 풀어버리겠다"…지역 부동산 시장 관심↑
--  오는 4월 10주기…세월호 유가족·시민단체 '진상 규명·책임자 처벌' 촉구
--  [매일희평] 네 이 노~~~옴 닥치지 못할까!!
--  [야고부] 환상 속의 그대
--  Kim Jong Un señala a Corea del Sur como su principal enemigo: "no dudaremos en aniquilar"
--  Como Atlético de Madrid virou 'pedra no sapato' do Real Madrid em Supercopa da Espanha e o que você precisa assistir pela ESPN no Star+
--  Дело возбудили после отравления ребенка в Новый год под Брянском
--  فرصة ذهبية أمام نجم برشلونة في السوبر
--  ارتفاع أسعار البسلة والخيار وانخفاض الطماطم بسوق العبور اليوم الأربعاء
--  ارتفاع أسعار السمك البلطي والجمبري وانخفاض البوري بسوق العبور اليوم
--  "الرقابة الصحية": اعتماد 8 وحدات طب أسرة بأسوان والأقصر
--  انخفاض أسعار الفول والجبن وزيادة المكرونة بالأسواق اليوم (موقع رسمي)
--  الأحد.. مؤتمر صحفي للإعلان عن تفاصيل معرض الكتاب
--  قطاع غزة وجهود وقف إطلاق النار.. مدبولي يبدأ اجتماع الحكومة الأسبوعي- تفاصيل
--  The Next Front in the U.S.-China Battle Over Chips
--  NEPSE gains 0.45%, records Rs 5.134 Billion turnover on Wednesday
--  AI-powered misinformation is the world&#039;s biggest short-term threat, Davos report says
--  Meet ‘Gqeberha: The Empire’ season two new cast
--  Документите на убития Кирил Русев намерени в колата на заподозрените
--  ‘I’m so stressed!’ scream Silent Witness fans as legendary character faces brutal death just two eps into new series
--  อบจ.อุบลฯ จัดงานชมดอกทานตะวัน ที่สนามกีฬาทุ่งบูรพา หวังดันเป็นแหล่งท่องเที่ยว
--  Rangers target Michy Batshuayi told he MUST get transfer this month as Euro 2024 spot hangs in balance
+-  Dev Halder assumes the role of DOSM at Holiday Inn, Aerocity
+-  Trakya Birlik Başkanı Kırbiç: Ayçiçeğinde fiyat ve ithalat baskısı üreticiyi zorluyor
+-  Ayvalık Belediye Başkanı Ergin, gazetecilerle buluştu
+-  AKSUNGUR'dan yeni görüntüler! "41 kere maşallah"
+-  عباس لبلينكن: لن نسمح بتهجير الفلسطينيين من الضفة وغزة
+-  البطاينة: جيشنا يدافع عن العرب ضد حلمي فارس وصهيون والمقاومة الفلسطينية تعيد للأمة كرامتها - فيديو وصور
+-  سيدات الميثاق الوطني تزور جمعية الشابات المسيحية
+-  Nasce Alpeggiani Avvocati Associati
+-  Ночной рейд министра: глава минздрава посетил медучреждения Худжанда
+-  პირველი გამოხმაურება სტალინის გამოსახულებიან ხატზე – პოლონეთის საელჩო განცხადებას ავრცელებს
