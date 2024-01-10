@@ -1,11 +1,11 @@
 # Latest News
--  استقرار أسعار السيارات المستعملة في 2024
--  호반산업, 대한전선 유상증자에 120% 청약 확정
--  Pollution levels in Angul of Odisha above danger mark, details here
--  Retroscena: la vera ragione per cui il "prezzemolino" Conte attacca Giorgia Meloni
--  Tienen vencido su INE más de 82 mil ciudadanos
--  박민영, '전남친 논란' 딛고 성공적 복귀…'흥행퀸'의 귀환 [MD픽]
--  OIL India Recruitment 2024: Apply online for 102 Senior Officer and other posts
--  Derrame de aguas servidas causa problemas en Colón
--  Maharashtra Political Crisis: Fate Of 16 Rebel Sena MLAs To Be Decided Today
--  Minstens tien doden bij bendegeweld in Ecuador
+-  BUDO'nun bugünkü seferlerine olumsuz hava engeli
+-  Ankara'da yağmur nedeniyle yol çöktü, çöp kamyonu askıda kaldı
+-  İsrail'den Refah kentine saldırı! En az 15 Filistinli öldü
+-  Türkiye'nin Interpol aracılığıyla aradığı iki kişi Kosova'da yakalandı
+-  Diyarbakır'da 7'nci kattaki evlerinin balkonundan düşen Ravzanur öldü
+-  Matan a comerciante por presunta deuda
+-  Eğitime kar engeli: 10 Ocak'ta hangi illerde okullar tatil?
+-  Dünden bugüne Survivor All Star 2024 yarışmacılarının değişimi... Nagihan, Turabi ve Sahra bambaşka biri oldu
+-  경기도 신임 경제부지사에 김현곤 임명 quot;민선8기 성공위해 노력quot;
+-  겨울철 남원 광한루원에 lsquo;천연기념물 원앙rsquo; 이색볼거리 주목
