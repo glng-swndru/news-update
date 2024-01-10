@@ -1,11 +1,51 @@
 # Latest News
--  TOGG, teknoloji ve doğayı birleştirdi... Karbon nötr deneyimin merkezi
--  Terör örgütü Eş-Şebab BM helikopterini ele geçirdi
--  Gaziantep FK: "Fenerbahçe maçından puan alırız"
--  Fenerbahçe'de son 4 maçta 3 hat-trick!
--  Edin Dzeko, Süper Lig'e damga vuruyor!
--  Sabah tüketmeyen pişman oluyor! Limonlu su aç karnına bir bardak içilirse…
--  ABD basını kirli tedarik zincirini ortaya çıkardı... Starbucks'ın 'çocuk işçi' skandalı
--  İşgalci İsrail'in vurduğu ambulanstaki 4 kişi hayatını kaybetti
--  Zelenski'den Batılı ortaklarına serzeniş... 'Rus saldırganlığına karşı yalnızız' çıkışı
--  Yüzyılın transferi Kylian Mbappe! Ödenecek rakamlar dudak uçuklatıyor
+-  Fmr. Suriname President Desi Bouterse ordered to report to prison on Friday
+-  MIMORIADNE Bez stopy ZMIZLI 4 ŠKOLÁCI! Zúfalé rodiny prosia ľudí o POMOC, nevideli ste ich?
+-  Lekár prezradil, prečo by ste nikdy nemali zaspať pred televízorom: Hrozivý dôvod, o ktorom ste netušili
+-  Rebríček 20 najdlhších zjazdoviek na svete: Tipneš si, koľko kilometrov má víťazná trať?
+-  VIDEOROZHOVOR Sulík prezradil, čo je za burcovaním ľudí na ulicu: Plán zablokovania zrušenia Lipšicového UŠP
+-  V niektorých okresoch Slovenska treba rátať s nízkymi teplotami, upozorňuje SHMÚ
+-  Продават частния самолет на Васил Божков
+-  Minecraft Legends tem desenvolvimento de conteúdo encerrado após 9 meses
+-  Kickoff | 'He is going to be one of the best' - Doctor Khumalo on Chiefs' rising star
+-  Jandric osui naamallaan ja mailallaan, Repo laittoi jo ennätykset uusiksi
+-  Gobernador de Jalisco se deslinda del destape del candidato de su partido a la presidencia
+-  الزمالك يحتفل بعيد ميلاد زيزو: تسجيل الأهداف وصناعتها هوايته المفضلة
+-  منتخب رواندا يخوض أولى تدريباته بالقاهرة استعدادا لأمم أفريقيا لليد
+-  بتروجت يقسو على حرس الحدود برباعية ويبتعد بصدارة دوري المحترفين
+-  عرض قمصان منتخب مصر فى الاجتماع التعريفى مع الكاف
+-  فاركو يتقدم على بيراميدز بهدف في الشوط الأول بكأس الرابطة .. فيديو
+-  7 أخبار رياضية لا تفوتك اليوم
+-  سيراميكا يتقدم على إنبى بهدف نظيف فى الشوط الأول بكأس الرابطة
+-  لاكاى ويوسف أسامة والكرتى يقودون هجوم بيراميدز أمام فاركو بكأس الرابطة
+-  البنك الأهلي يتقدم على الجونة بهدف "بامبو" في الشوط الأول
+-  أمم أفريقيا.. شاهد لحظة استقبال حافل لمنتخب مصر فى كوت ديفوار
+-  الدويري يعلق على فيديوهات المقاومة.. إليك ما تعنيه !
+-  الاحتلال يعلن إصابة 17 عسكريا خلال الـ 24 ساعة الماضية
+-  الإدارة المحلية تعلن حالة الطوارئ المتوسطة
+-  San Anton jaiak egitarau oparoa izango dute herritar ororentzat ekimenekin
+-  «El resultado no es positivo desde que solo uno fue condenado»
+-  Más de un millar de socios, 13 salidas y doble aniversario en un redondo 2024
+-  El Ayuntamiento se reunirá con los barrios desde la próxima semana y hasta marzo
+-  Bigg Boss 17: Ayesha Khan spills dark secrets about Munawar Faruqui
+-  Nowi policjanci złożyli ślubowanie. Wiemy, gdzie będą pracować
+-  Benko-Beben in München treibt Galeria in die Pleite – doch nun kommt es zum „Befreiungsstreik“
+-  Win-Win mindset crucial for effective climate change negotiations
+-  Nach dem Bonifatius-Schock: So denkt Leverkusen JETZT über einen Nottransfer nach | Sport
+-  Reaktion auf drohenden Verkaufsstopp: AVM verteilt jetzt neue FritzBox-Updates – CHIP Online Deutschland
+-  Nach dem Bonifatius-Schock: So denkt Leverkusen JETZT über einen Nottransfer nach | Sport
+-  Fenerbahçe 15 yıl sonra bir ilki başardı, Sarı-Lacivertliler Konyaspor'u rekorları kırarak 7-1 mağlup etti! Bonucci'nin tribünde olduğu maçta, Edin Dzeko hat-trick yaptı
+-  Hrvat uhićen zbog sumnje da je sudjelovao u likvidaciji škaljarca ubijenog pred ženom i djetetom, sve je snimljeno
+-  Fenerbahçe 7 golle esti gürledi! Edin Dzeko'dan 29 dakikada hat-trickc
+-  كاتب أردني يدعو إلى تسمية “الدحدوح” ناطقا باسم الجامعة العربية
+-  Liverpool-Fulham: Diogo Jota contra João Palhinha
+-  Volkan Demirel: Çalışmaya devam edeceğiz
+-  Οι απαντήσεις της ΚΕΔ για τον διαιτητή του Ολυμπιακός-ΑΕΚ
+-  Young driver killed in Melbourne after his car struck a pole
+-  ¡Se fue el Palermo Ortiz! Pumas dio las gracias al defensa mexicano
+-  Valber Huerta destacó el trabajo de Renato Paiva: “Han sido semanas muy exigentes”
+-  كاساس والعرق الدساس
+-  En déplacement dans un commissariat, Attal veut mettre l'accent sur l'autorité et arrondir les angles avec Darmanin
+-  Metro Vancouver's wildlife cameras capture crafty bear and lone grey wolf
+-  Veliko slavlje Srbije u Zagrebu: Srbi tek u završnici slomili Francuze i plasirali se u četvrtfinalu
+-  La metro 1 viaggia con un anno di ritardo, i treni a Cascine Vica soltanto nel 2025
