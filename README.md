@@ -1,51 +1,11 @@
 # Latest News
--  Stellantis, tempi di sviluppo ridotti grazie al virtual cockpit
--  Patino, blitz Juve in Galles: gol sotto gli occhi degli scout e ultimi sviluppi
--  Lokoli immobilizzato dai crampi, gesto di Gaio da applausi: cosa è successo
--  Beckenbauer, la Germania si stringe attorno al suo mito
--  '3관왕' NCT 드림, 디지털 앨범상→'4관왕' 뉴진스, 최다 트로피 [써클차트 어워즈](종합)
--  Felvételi 2024: hány helyet lehet ingyen megjelölni?
--  [오늘의 운세] 1월 11일 오늘의 띠별 운세
--  Nieuw appartementencomplex voor senioren bij Proosdijpark in Ede
--  Arrestimi i ish-zyrtarëve të qeverisë thellon krizën politike në Poloni
--  Hurry! This HP 17-inch laptop is discounted from $500 to $290
--  Graf Chodywańce po znakomitej rundzie jesiennej liczy na równie udaną wiosnę
--  Duże ognisko ptasiej grypy. Tysiące indyków do utylizacji
--  Czy szkoła stanęłaby na głowie?
--  Health officials warn of measles outbreak in Philadelphia
--  Qué ocurrió con el rating de la tira turca Mujer
--  Harassment of NASS members: Kogi arrests six, calls for immediate prosecution
--  Eat Club: Geröstetes Blumenkohlsüppchen mit Harissa-Kichererbsen
--  Eat Club: Schnelles und einfaches Low-Carb-Kräuterbaguette
--  Eat Club: Gefüllte Zareneier für eine schmucke Figur
--  More on digital transformation in the NHS
--  Doğu'daki dev değişim… Hakkari festivaller şehri oldu
--  Leonardo Bonucci İstanbul'a geldi
--  Reçeteleri çöpe attıran kür tarifi! Balgamı yumuşatıyor, öksürüğü kurutuyor: Deneyen eşine dostuna da öğretecek
--  Sainz qualifica Pedro Sánchez de «gilipolles» quan els pilots del Dakar pregunten per Catalunya
--  محافظ صندوق الاستثمارات العامة: الطلب العالمي على المعادن سيرتفع 6 مرات في هذا الموعد
--  إحباط هجوم بمسيرات مفخخة على مطار أربيل
--  شاهد.. سحب المزن الركامي تزين الأفق في ينبع
--  Suudi Arabsitan açıkladı: 2,5 trilyon dolarlık işlenmemiş madenimiz var
--  عاجل.. 7 خطوات للاستعلام عن صلاحية الإقامة عبر "أبشر" .. شروط التجديد والفئات المستثناة
--  المرور: 4 خطوات للاستعلام عن المركبة المحجوزة عبر أبشر
--  مشهد مذهل لصقر يهاجم عاملة منزلية.. ماذا حدث؟
--  Музыкант из Узбекистана прославился в Латвии, работая курьером
--  Soldes : achats en ligne ou en magasin… Quel est le plus intéressant ?
--  Arctic blast barrelling toward the Lower Mainland
--  पार्टी अध्यक्ष बन्ने रेशम चौधरीको चाहना, भन्छन्– निर्वाचन आयोगलाई भनेको छु
--  Former NASCAR Driver's Congressional Run Endorsed by Speaker Mike Johnson
--  Taco Bell says it will spill secrets at a fan event before the Super Bowl
--  Fachkräftemangel ist für viele Betriebe existenzbedrohend
--  Gimenez over liefde voor Rotterdam: 'Voelen ons thuis sinds de eerste stap'
--  Rahasia Terkabulnya Doa di Salat Subuh
--  Esra Erol'da film gibi olay! Baba oğul birbirlerini öldü biliyorlarmış: Esra Erol 26 sene sonra baba ve oğlu kavuşturdu
--  MAGA Turns on Speaker Mike Johnson
--  Rendas acessíveis só chegam a 0,1% do mercado privado
--  Hereu destaca que España es una de las economías más dinámicas y atractivas para la inversión extranjera
--  DIRECT. Remaniement : Gabriel Attal et Gérald Darmanin visitent un commissariat du Val-d'Oise
--  Draghi, exjefe del BCE, se reúne con empresas para impulsar la competitividad de la UE
--  El socio de Capella cumple las condiciones clave del proyecto de litio
--  Amazon planea despedir a numerosos empleados de las divisiones Prime Video y MGM - según fuentes
--  أكثر من 23 ألف شهيد جراء العدوان على غزة
--  صفارات الإنذار تدوي في منطقة بالجليل الأعلى
+-  Stockstädter nehmen neuen Wochenmarkt gut an
+-  La OMS alerta sobre el incremento de casos de Covid desde diciembre y pide prevención
+-  Fast menschenleere Bahnhöfe
+-  श्रमिक उत्पीड़न मामले में पालघर में एक गन्ना मजदूर सुरक्षित घर पहुंचा... चार लोगों के खिलाफ मामला दर्ज
+-  Emeklilere müjde! AK Partili Güler açıkladı: Aylıklar oransal artışla iyileştirilecek
+-  ArcelorMittal Unveils Ambitious Plan to Build World’s Largest Steel Plant
+-  Cómo construir un muro de piedra, alternativa natural al hormigón
+-  Samsung i Google łączą siły. W końcu wszyscy skorzystają z jednej aplikacji
+-  Prezydent Duda ułaskawił Ogórek i Ziemkiewicza
+-  Groningen woedend over hervatting gaswinning: 'Bizar na twee dagen vorst'
