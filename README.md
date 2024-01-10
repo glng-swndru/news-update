@@ -1,11 +1,11 @@
 # Latest News
--  Berliner Newcomer haben EM-Gold im Visier
--  Ever considered being a B.C. sheriff?
--  7-1'lik Fenerbahçe hezimeti istifayı getirdi! Konyaspor teknik direktörü Hakan Keleş: Yakışmadı!
--  أرقام ميندي في الشوط الأول من مباراة أتليتكو
--  La FIFA y la fuerte infracción que le aplicó a la selección peruana
--  Ever considered being a B.C. sheriff?
--  Fenerbahçe'den 7 gol yiyen Konyaspor'da Hakan Keleş'ten istifa sinyali
--  ANÁLISE DA NOTÍCIA
--  Policía resguarda frontera con Ecuador en 31 puestos de vigilancia que limitan con Piura
--  Ookla reconoce a Airtek como la red fija de internet más rápida de toda Venezuela
+-  كان الكوت ديفوار.. لاعبو هذا المنتخب يعلنون الإضراب قبل أيام من انطلاق البطولة
+-  حزب "الأحرار" يَتفاعل مع انتخاب المغرب لرئاسة مجلس حقوق الإنسان التابع للأمم المتحدة
+-  الحكومة تلوح بالزيادة في سعر الماء عوض استهداف المبذرين الحقيقيين
+-  عفو ملكي عن 1381 محكوما ومتابعا بمناسبة ذكرى 11 يناير
+-  الكشف عن تصميم اكبر مصنع صيني للتوربينات بأفريقيا ينجز بالناظور
+-  شائعات حول تورط شخصيات ومؤسسات كبرى تستنفر الوكيل العام للملك
+-  رأس السنة الأمازيغية...
+-  Bay Area arts, 9 shows to see this weekend
+-  الأعلى للدولة يبحث مع رابطة الأحزاب الليبية إيجاد مبادرة وطنية للخروج من الانسداد السياسي في البلاد.
+-  Ayaneo Next Lite è il primo PC console portatile non di Valve con installato SteamOS
