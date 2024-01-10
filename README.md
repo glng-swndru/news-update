@@ -1,11 +1,51 @@
 # Latest News
--  MSB ve MEB arasındaki protokol ile 9'uncu sınıf öğrencilerine burs imkanı
--  Maç sonunda olay yaratan görüntü! Fenerbahçe'den Galatasaray'a gönderme
--  סגן או סגנית? בארה"ב תוהים מי ירוץ לצד טראמפ - בהנחה שיזכה במועמדות הרפובליקנית
--  אין דו־קיום בקמפוסים
--  שלושה נעצרו בחשד שאיימו על ראש עיריית רמת גן, כרמל שאמה הכהן
--  Sarri replica a Mourinho: “Roma, 0 palle gol. È una bestemmia che…"
--  Norfolk Southern fija la teleconferencia de resultados del cuarto trimestre para el 26 de enero
--  Biden y Trump, en empate al iniciar el año electoral en EEUU: Reuters/Ipsos
--  Kupa e Italisë/ Lazio kualifikohet në gjysmëfinale
--  이준석 "영부인의 역할과 의무, 법조문으로 명문화해야"
+-  California Takes Key Step To Ban Tackle Football For Kids Under 12: What To Know
+-  枪手闯入电视台！厄瓜多尔进入“国内武装冲突”状态
+-  VIDEO: Ladrón quiso salirse con las suyas en Nueva York, pero un civil lo atrapó cuando intentaba huir de la policía
+-  Wheel the World launches program to accelerate, promote accessibility
+-  Giovanni Pernice supported by fans as he shares sultry photo amid feud reports
+-  Paraliza actividades amenaza de bomba en Ciudad Judicial en Juárez
+-  Asesinan a gobernadora de etnia Cucapah en Sonora
+-  Faltan 7 mil pesos para igualar salario con canasta básica
+-  Tarahumaras, quinta etnia con mayor presencia en cárceles
+-  유엔대사 "우크라에 사용된 北미사일, 원산~부산 사거리...심각한 위협"
+-  "Vjerujem da možemo vratiti DPS na poziciju vlasti"
+-  Nestao Aleksandar Vukomanović
+-  U Srbiji razbijena kriminalna grupa
+-  SAD osudile napade naoružanih grupa u Ekvadoru
+-  Crna Gora pobijedila Njemačku za četvrtfinale
+-  Budućnost nakon preokreta savladala Burg
+-  Lenard produžio ugovor sa Klipersima
+-  Gojković: Ostvarili smo zacrtano, okrećemo se Italiji
+-  Brguljan: Zaslužena pobjeda, ostvaren cilj
+-  Дешифрирање на загатката: Интеграција на уреди за читање отпечатоци за двојните избори во Македонија
+-  Почему сроки лунной миссии НАСА сдвинули на год
+-  Dopo Acca Larentia, l'appello: "Casa Mussolini sia dedicata alle vittime dell'odio politico"
+-  ¡No guardes la cobija! Lluvias y frío viene para México el próximo trimestre
+-  ¡Serán de 2 tipos! Alista gobierno municipal nueva compra; ahora serán 15 mil luminarias
+-  Hunter Biden sorgt mit einem überraschenden Auftritt für Aufruhr im Repräsentantenhaus
+-  В Волынской области раскольники ПЦУ захватили храм канонической УПЦ
+-  Αγωνία για Σιντιμπέ ενόψει Παναθηναϊκού…
+-  Раскольники захватили храм УПЦ в Волынской области Украины
+-  Болезнь министра обороны США может ударить по президенту в преддверии выборов
+-  Σάντσο: Έφτασε στη Βεστφαλία για να τελειώσει το δανεισμό του στη Ντόρτμουντ (vid)
+-  Γυναίκα τρομοκρατήθηκε με την βαλίτσα που βρήκε στο σπίτι της: «Σαν ταινία θρίλερ» (vid)
+-  موعد مباريات اليوم الخميس 11-1-2024
+-  Le couronnement d'Antoine Griezmann, roi des goleador de l'Atlético Madrid
+-  Дальневосточная рабочая поездка Путина продолжится в Хабаровске
+-  В Петербурге откроется музыкальный фестиваль "Приношение Елене Образцовой"
+-  Stromschlag oder Überhitzung möglich: Ikea ruft USB-Ladegerät zurück
+-  Doctor Haroldo López nuevo director del Instituto Nacional Cardiopulmonar
+-  '충격! PSG 회장의 메시 공개 저격'…메시의 부정적 언급에 맞대응, PSG 회장 "뒤에서 이야기하는 메시, 싫다!"
+-  "법인카드 사용? 복리후생"…박수홍 친형, 법정서 눈물→檢 7년 구형 [MD이슈](종합)
+-  Mincetur: exportaciones peruanas continúan fortaleciéndose
+-  Ministra de Seguridad argentina pide endurecer penas contra piqueteros
+-  Aasia Bibi, Victim of Pakistan’s Blasphemy Law, Struggles To Make Ends Meet
+-  ONU urgió la pronta liberación de dos venezolanos secuestrados en Colombia
+-  US approves first spot bitcoin ETF applications for 11 issuers
+-  Tesla-Aktie dennoch schwächer: Rekordabsatz von E-Autos in USA - Marktanteil gesteigert
+-  México condena los actos de violencia cometidos por el crimen organizado en Ecuador
+-  В суде ООН начинается рассмотрение дела о возможном геноциде в секторе Газа
+-  الهلال الأحمر بشمال سيناء: ملتزمون بخدمات الدعم النفسي للمصابين الفلسطينيين ومرافقيهم
+-  Escritora bolivarense Esmeralda Torres ganó premio de poesía en México
+-  «Me dolió más de vos»: sorpresa en América TV por el fuerte reclamo que le hicieron a Ángel de Brito
