@@ -1,51 +1,51 @@
 # Latest News
--  HTC VIVE发布全新VIVE全脸识别追踪器
--  CES 2024现场：雷鸟X2 Lite首发骁龙AR1 支持大模型语音助手
--  Schmidt se sastao sa predstavnicama majki enklava Srebrenica i Žepa
--  Inspekcija kontroliše smještaje na Bjelašnici, pronađeno pet apartmana bez dozvole za rad
--  By: Dane Hansen
--  Vila Real: Abusos sexuais na Igreja marcaram encontro de professores de EMRC da diocese
--  Guarda che tariffe in Francia
--  Pirola: las recomendaciones de Julio Castro sobre la nueva cepa de covid-19
--  EU-Kommission schickt neue Gesetze zum „Jugendcheck“
--  „Rośnie temperatura wojny o praworządność”. Zagranica o aresztowaniu Kamińskiego i Wąsika
--  Novi detalji o stanju Šumahera: Nakon deset godina konačno je stigla pozitivna vijest
--  Kanzlerpartei droht historischer Niedergang: Hör gut zu, SPD!
--  Burkina/Éducation : L'excellence en milieu scolaire célébrée à l'arrondissement 7 de Ouagadougou
--  Argentina: la produzione del litio sale del 68,5% in un anno
--  Arsenal tekemässä jättimäistä kaappausta toisesta Valioliiga-seurasta - hintaa jopa 70 miljoonaa euroa?
--  Viaplayn kohtalo nyt selvillä - pienomistajille karu kohtalo ja miljoonien tappiot: "Käytännössä pyyhkäistiin pöydältä"
--  Jon Jones: Za svoju ostavštinu želim samo meč protiv Miočića
--  افتتاح فندق "رويال بلازا" في المنطقة الاقتصادية بالدقم
--  افتتاح محطة وقود المها بفلج الشام في بوشر
--  578 أسرة في ولاية مطرح تستفيد من مصارف الزكاة بإجمالي 306.3 ألف ريال
--  Bakan Fidan, Tacikistan'da Türk iş insanları ile görüştü
--  Endonezya'da yanardağ patladı!
--  Cumhurbaşkanı Erdoğan açıklamalarda bulunuyor
--  Rendimientos en EEUU bajan antes de la subasta de letras a 10 años y datos de inflación
--  İstanbul'da trafik yoğunluğu yüzde 81'e yükseldi
--  بلغاريا تشيد بجهود المغرب لتسوية نزاع الصحراء
--  Bei Heim-EM: DHB will fast 1000 Jugendtrainer ausbilden
--  নতুন মন্ত্রিসভায় ‘বাদ পড়লেন’ যারা
--  Denegado un parque eólico entre Guntín, Monterroso y Portomarín tras no superar el trámite ambiental
--  Challenge Your Perception: Demystifying Plastic Surgery’s Most Controversial Procedure and Dispelling Myths About Recovery
--  Chega diz que é preciso assegurar direitos dos trabalhadores da Global Media e dos acionistas
--  Paramore regresará para un disco tributo a los Talking Heads junto a A24
--  Am Bauch verbundene Zwillinge erfolgreich getrennt
--  Burkina / Digitalisation du timbre : Des usagers entre satisfaction et questionnements à Ouagadougou
--  Cicpc de Barcelona capturó a sujeto por robo
--  झांसी में 613 गांव के सापेक्ष 473 गांव में सड़क पुनर्गठन के कार्यलंबित
--  Forscher analysieren DNA von Menschen vor 34'000 Jahren
--  Čuva nam zdravlje i probavu od pamtivijeka: pravi je trenutak za iznimno zdravi napitak koji možete lako napraviti sami
--  استعراض الفرص الاستثمارية الواعدة في ختام أعمال "مؤتمر الشرق الأوسط للفضاء" بمسقط
--  2.6 مليون ريال قيمة التسويات بـ"كريدت عمان" بنهاية 2023
--  सूरत से साइकिल से अयोध्या जा रहे हिन्दू जागरण मंच के कार्यकर्ताओं का झांसी में स्वागत
--  Harvey Cooper Art Award Winners Announced
--  Israelul, în fața Curții Penale Internaționale pentru acuzațiile de genocid formulate de Africa de Sud
--  SAG Awards 2024 SNUBS: Leonardo DiCaprio, Natalie Portman, and Zac Efron lead big names ignored by their peers - while May December is also overlooked
--  Poslastica za navijače: Tri meča Reala i Atletika u 25 dana
--  Maricá: Prefeitura alerta para golpes em comerciantes
--  Travessia Salvador-Mar Grande faz operacaespecial no dia da Lavagem do Bonfim
--  His sister works for Apple. Brace for jealousy. [Setups]
--  HybizTV Realty Awards 2024 Trophy poster unveiled
--  DSÖ'den işgalci İsrail'e 'Gazze'ye güvenli geçişi sağlayın' çağrısı
+-  DA, ACDP not supporting SA's genocide case against Israel at ICJ
+-  Mokonyane pleads with Hazyview community to remain loyal to ANC ahead of polls
+-  Disaster prevention measures in Ladysmith to cost over R1bn - KZN COGTA
+-  Mokonyane says Jacob Zuma's right to freedom of association must be respected
+-  Corinthians dá ultimato ao PSG sobre Moscardo e não descarta retorno do jogador
+-  Luis Petri instó a darle más poder a las Fuerzas Armadas que fueron "injustamente demonizadas"
+-  من يقدر على محاسبة جمعية الهلال الأحمر التونسي بعد ما اصطفاها الرئيس؟
+-  العراقيون يزدادون مليون نسمة سنويا.. والخدمات وفرص العمل تتضاءل
+-  جلسة السبت.. هل تنقذ "كرسي" رئيس البرلمان أم مصيرها "الفشل"؟
+-  التضارب في تصريحات السوداني تثير غضب الناشطين: إخراج الأمريكان "مجرد ضحك على الذقون"
+-  Emmanuel Macron már 2027-re készül, de kockázatos lépés volt kinevezni Franciaország történetének legfiatalabb kormányfőjét
+-  Kompensacijoms už sunaikintą taršų automobilį ir įsigytas mažiau taršias judumo priemones – 13 mln. eurų
+-  „Atimti iš Vengrijos balsavimo teisę.“ Netikėta žinia. Ko pareikalavo Orbanas iš ES
+-  [ŽT] „Greitai bus sprendimai.“ Skelbiama, kur apsilankė Zalužnas, Umerovas ir Syrskis (Foto)
+-  [ŽT] „Rusai keičia taktiką“ (Video)
+-  [ŽT] „Tarsi „kaulas gerklėje“. Tvirtiname naujas pozicijas.“ Prie Krynkų dideli pokyčiai
+-  Patvirtino ir Vakarai. Už 40 km nuo Lietuvos – Rusijos branduoliniai ginklai
+-  [ŽT] Ukrainiečiai – verslininkai? Skelbiama, kiek per metus atidarė individualių įmonių (Infografikas)
+-  Israel, South Africa trade barbs on eve of genocide case
+-  Los casos de gripe baten récords en Euskadi en medio del debate sobre la mascarilla obligatoria
+-  Arizona Ave. Property To Be Converted Into Mixed-Use Space
+-  Majority of Proline bettors had Wolverines winning U.S. college football title
+-  MN - Bonetti: "Giovani lanciato con coraggio: non tutti avrebbero fatto lo stesso al posto di Pioli"
+-  Acertijo visual: ni los más genios ven la palabra 'FUEGO'
+-  Hearing the voices of Indigenous people with neurodevelopmental disabilities
+-  Copa Airlines mantiene la suspensión de sus aviones: cancelaciones y atrasos en sus vuelo
+-  Ключовите правила за подмладяване на проф. Милена Георгиева и рецептите й за здраве
+-  Average of 18 people a day died trying to reach Spain in 2023
+-  Катастрофа между автомобил и трамвай в София
+-  Entregan en Trinidad premios del Concurso Internacional de Arquitectura Oscar Hagerman (+fotos)
+-  Ex galán de Salserín se casa en ceremonia poco tradicional
+-  Government is introducing mega fish farms where fish farmers will be learning modern fish farming techniques. Minister of Natural Resources and Climate Change, Michael Usi said the country’s model fish mega farm will be at Kasinthula in Chikwawa where fish farmers will be visiting to learn various fish farming skills. Usi said this on Tuesday at Domasi Aquaculture Center in Zomba saying, economically, the farms will help the country export more fish to other countries which in turn will attract foreign currency. The minister said since the farms will lead to the production of fish in large quantities, the other harvested fish will be used for food. “It’s sad that some people in the country have never tasted chambo fish because of it’s low production which makes it expensive on marketplaces,” he said. Domasi Aquaculture Center station manager Titus Phiri challenged that the center has the capacity to produce and supply enough fingerings across the country. “Fish farming is an ideal business,” he said.
+-  SAWS: Weather warnings for these SA provinces this week
+-  Експресно премахнаха първите спящи полицаи на велоалеи в Пловдив
+-  Man who shot himself in the hand sought by Alexandria Police
+-  Majority of Proline bettors had Wolverines winning U.S. college football title
+-  Bošnjački političar: Naoružavajmo se i mi dok je vrijeme
+-  Pope confirms new leader of India’s Syro-Malabar Church, divided for decades over liturgy dispute
+-  Selena Gomez anuncia pausa das redes sociais após polêmica no Globo de Ouro
+-  Kandidaten messen sich bei Talkrunde
+-  Kulislerden bomba iddia: Kabine değişiyor! O bakan aday gösterilecek...
+-  Türkiye'nin gündemindeki 3 soruşturmaya 3 ayrı savcı atandı
+-  Leonardo Bonucci, İstanbul’a geldi!
+-  İBB Meclis toplantısında Beltur’un borçları gündem oldu
+-  Cephanelik gibi ev: Samanların içine gizlemişler
+-  Renegociação da dívida ativa pode ser feita até 30 de abril com 70% de desconto
+-  Руски тим обяви контрола с Арда
+-  1974 géintenee gespillt: De Carlo Weis erënnert sech un de Franz Beckenbauer
+-  Жительница столицы Эквадора рассказала RT о мародёрах в городе
+-  בישראל מאשרים: ישנן תזוזות במגעים לעסקת חטופים
