@@ -1,51 +1,51 @@
 # Latest News
--  Fenerbahçe-Konyaspor maçının VAR hakemi belli oldu
--  Acı olay! İki kardeş 2 yıl arayla trafik kazası kurbanı oldu
--  Semih Kılıçsoy, performansıyla göz kamaştırdı
--  İsrail'e karşı açılan "soykırım davası"na ilişkin Blınken'ın küçümseyici sözlerine Hamas'tan tepki
--  Škaljarac brutalno ubijen
--  [경남도 "경영위기 소상공인 돕는다"…소상공인 정책자금 2000억 지원
--  [백복인 KT&G 사장 ‘4연임’ 포기…"새로운 리더십 필요"
--  Grifols anuncia acciones legales contra el fondo Gotham City por el "daño financiero y reputacional causado"
--  Ovo su najskuplji gradovi za kupovinu stana u Hrvatskoj
--  Podemos mantiene el 'no' al decreto de Yolanda Díaz: "Nos piden los votos gratis"
--  Cement-Gryf Chełm w 2023 roku wywalczył 89 medali
--  Air Arabia begins flights to Kabul International Airport
--  Bakan Fidan Kırgızistan’da görüşmeler gerçekleştirerek anlaşma imzaladı
--  Trafikte ünlü futbolcu ve eşine saldırmışlardı, hakim karşısına çıktılar
--  Άγριο έγκλημα στον Βόλο: Αλβανός πατέρας θόλωσε όταν έμαθε ότι ο κουνιάδος του βίαζε την κόρη του από τα 9 της χρόνια, άρπαξε την καραμπίνα του και την άδειασε πάνω του
--  Cosa succede quest'anno col bonus di 100 euro al mese in busta paga
--  Gasa chooses PDP
--  بلاغ مرصد رقابة اخلالات وتجاوزات كبيرة شابت المناظرة الخارجيةلانتداب أعوان بالشركة الجهوية للنقل بمدنين
--  BSW: Was unterscheidet Wagenknecht-Truppe eigentlich von der AfD?
--  Ecrouée pour une 2e fois, Coline Fay risque d’être expulser du Sénégal
--  Late bid for communal living in tower approved for Valley site
--  Boeing-Chef gibt „unseren Fehler“ nach Panne an der Türverkleidung der 737 Max zu
--  Montalegre mais próximo do topo da tabela
--  Явор Бахаров и Рая Пеева: Предстои ли сватба?
--  2 milyon kazanmak için hangi meslek grubu kaç ay çalışmalı?
--  Staus in Berlin, Hamburg, München: Wo Autofahrer schlecht und besonders gut vorankommen
--  Ajay Bisaria's New Book Explores Heightened India-Pakistan Tensions Over Pulwama
--  FOTO Vyrobil si PRÚSER! Dovolenka sa zmenila na PEKLO! Raper Separ skončil v indonézskej base
--  Skreće li se pozornost s nečeg drugog? Evo što se zna o tučnjavi u Vukovaru…
--  برلماني يستفسر عن جدوى إحداث وزارة النقل فيما عدد من موظفيها تابعين لوزارة التجهيز
--  Telatyn: Gmina ma nowy sprzęt warty 800 tysięcy złotych
--  Apple ha ottenuto oltre 2.000 brevetti US nel 2023
--  Začenja se v velikem slogu
--  Ιωάννα Λίλη: Φωτογραφίζεται με την κούκλα 17χρονη κόρη της
--  Arsene Wenger flew me to Paris to tell me to leave Arsenal – I had absolutely no idea it was coming
--  Vučić razočaran izjavom Kamerona: Nismo „proksi“ Rusije
--  Путин пообещал обсудить с Мурашко перинатальные центры на Чукотке
--  HISENSE EXHIBITS NEW ULED X TV, SMART REFRIGERATOR AND DISHWASHER AT CES 2024
--  Ultimea Poseidon D60: 5.1 Dolby Atmos Soundbar for an Immersive Cinema Experience
--  Mastering Nugget Ice Maker Maintenance: VIVIDMOO® Launched Comprehensive Guide to Cleaning and Care for Sonic and Chewable Ice Machines
--  Путин назвал самодостаточность России главным результатом 2023 года
--  Бейн блести за “гризлитата” при победа над Маверикс
--  Экс-барабанщик группы Scorpions Джеймс Коттак умер в возрасте 61 года
--  My river, my love: The tidal pull of the Brown Snake
--  NTA To Transmit All 52 AFCON Matches Live (Photo)
--  Ясен Петров стана №1 в китайския елит още преди да започне сезонът
--  Anton Hofreiter klagt bei Markus Lanz gegen Kanzler Scholz – Medien
--  पौष्टिक तत्त्व स्तरोन्नति गरिएको चामल बिक्री सुरु
--  여 '영입1호' 박상수 "60년대생 이상 꿀빨러들, 청년에 뭘 해줬나"
--  Tampang Sopir Taksi Pemeras WNA yang Viral di Bali
+-  Liverpool tan hoang, Klopp chơi với 'lửa'
+-  Arsene Wenger đã nêu lý do vì sao Arsenal nên chiêu mộ Benzema
+-  Victor Osimhen "chửi thẳng mặt" người đại diện của đồng đội
+-  Sau 8 năm, Benzema có thể thay đổi thái độ nếu Arsenal tiếp cận
+-  김혜수, 카리스마 폭발한 비주얼 근황…글래머러스한 몸매까지 '완벽'
+-  La OSCyL Joven convoca 19 plazas de violín y tres de viola
+-  Arriva Trnava nasadila na linky prímestskej dopravy 74 nových autobusov
+-  “No estoy de acuerdo con el aumento de los derechos de exportación de nuestras economías regionales”
+-  العاملون بالشركة العامةللورق والطباعة يطالبون بتصحيح الوضع القانوني للشركة.
+-  Selkirk Rex, l’adorabile e affettuoso gatto dallo splendido pelo riccio
+-  فيسبوك يعلن أنه لن يدعم البريد الإلكتروني المشفّر إعتبارا من بداية شهر فبراير المقبل
+-  Chciał przemycić hormony w bagażach. Został zatrzymany w Krościenku
+-  Detienen en Salamanca a una ladrona especialista en 'hurtos cariñosos'
+-  BBC se desculpa por errar contra Israel. De novo.
+-  KLM blijft van en naar Ecuador vliegen tijdens noodtoestand
+-  Argentinië biedt militairen als hulp aan Ecuador aan
+-  Winters weer zorgt voor problemen op het spoor
+-  [‘현금 2조’ 부른 노소영…최태원과 서로 “재판부 쇼핑” 손가락질
+-  [“벌건 대낮에 딱 걸렸다”…현직 판사, 출장 중 성매매
+-  [김성제 의왕시장 “임산부들이 체감하는 우수한 정책 지속적으로 펼치겠다”
+-  [“틱톡 챌린지, 제발 지워주세요” 흑역사 지우고픈 사람 1만명 몰렸다
+-  Après la découverte macabre, une autre tragédie frappe Keur Mbaye Fall
+-  Παρίσι 2024: Η Ολυμπιακή Φλόγα θα ταξιδέψει με ποδήλατο, σκάφη και… αναρρίχηση
+-  DHB-Keeper im Interview - Handball-Star Wolff vor Heim-EM: „Deutschland? Unfassbar attraktiv!“
+-  Energetska kriza: Gorivo na Kubi petostruko skuplje usled borbe sa nestašicom
+-  Monstat traži operatere za unos podataka o popisu, rezultati za 15 dana
+-  Radović: Prvo da damo sve od sebe da reprezentujemo Crnu Goru na pravi način
+-  Miloš Popović imenovan za novog stečajnog upravnika “Vektra Jakić”
+-  News24 Business | Independent Media CEO steps down as Iqbal Survé returns as executive chair
+-  Betrügerische Anrufe und Geldwäsche: 27-Jähriger in Berlin angeklagt
+-  Lenovo Tab M1 poderá surpreender com o preço e qualidade
+-  قناص بغداد الأسطوري يخاطب جورج بوش الابن: لدي 9 رصاصات.. من هو ؟
+-  Localizada en Foz en perfecto estado la menor desaparecida en Ponferrada
+-  Ako imate ovakve prste, moguće da imate SRČANO OBOLJENJE! Lekar je sada pokazao brzi test kako da to proverite: Ukoliko se pojavi ovo, ne morate da brinete
+-  Torsten Sträter in Köln: Tickets für die Comedy-Show von Torsten Sträter gewinnen
+-  Selkirk Rex, l’adorabile e affettuoso gatto dallo splendido pelo riccio
+-  Road mishap claims one life in Karachi
+-  „Pelerin” inedit la Mănăstirea Neamț. Un zimbru a uimit pe toți cu îndrăzneala lui. „Simbolul măreţiei Moldovei” VIDEO
+-  10 и 11 января «Академия Михайлова» из Тулы сыграет против «Динамо СПб»
+-  „DINK“-Phänomen - Gen-Z-Paare wollen finanzielle Unabhängigkeit durch kinderfreien Lebensstil
+-  Affaire Legay: le procès du commissaire Souchi "pour complicité de violence" à Nice s’ouvre ce jeudi
+-  Auswirkung des Insektensterbens: Weniger Bienen, winzige Blüten
+-  Kuuntele Aitiopaikalla-podcast: MM-kisoista palannut Joensuun Kiekko-Poikien maalivahti Eemil Vinni, 18, odottaa mielenkiinnolla ulkoilmaotteluja
+-  Dólar hoy, dólar blue hoy: a cuánto cotiza este miércoles 10 de enero
+-  National Guard solider charged in murder-for-hire plot to avenge mom’s death 8 years after she was killed by driver
+-  La Junta y la Cámara de Comercio hablan sobre medidas para mantener la "pujanza" de Málaga
+-  “We’ll be a strong opposition”
+-  Cheese Sauce Market Size, Share, Landscape, Industry Analysis, Business Outlook, Current and Future Growth by 2031 | Gehl Foods LLC, Conagra Brands, Inc.
+-  Prabowo Cawe-cawe soal Tanggul Laut, Ekonom: Jangan Terlalu Melenceng dari Tugas Utama
+-  Đuričković traži da Ministarstvo spoljnih poslova osudi prisustvo poslanika i funkcionera Crne Gore proslavi Dana RS
