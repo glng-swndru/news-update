@@ -1,11 +1,51 @@
 # Latest News
--  The 10 airports where TSA found the most firearms in 2023
--  Soccerladuma | Sundowns' Replacement For Onyango Discovered?
--  Grønne nyheder fra USA: Mængden af solenergi stiger markant på få år
--  Grønne nyheder fra USA: Mængden af solenergi stiger markant på få år
--  Srpski mediji: Hrvat uhićen zbog sudjelovanja u ubojstvu škaljarca u Brazilu
--  ליטל פרוש דוד מונתה ל-VP HR בחברת ההייטק פאפאיה
--  עם שלשלאות ואגרופנים: עשרות אוהדי מכבי חיפה נעצרו בת"א
--  הפרזנטור החדש של לקוסט: גריגור דימיטרוב
--  “La guerrilla” sigue viva en el recuerdo tiburón
--  টেকনোক্রেট কোটায় মন্ত্রী হচ্ছেন ইয়াসেফ ওসমান ও সামন্ত লাল
+-  לוסי אהריש מבקשת עזרה בתרומות: "חלתה בסרטן, כל סכום יעזור"
+-  מגישת חדשות 12 מקבלת ג'וב חדש: זה המינוי היוקרתי שקיבלה
+-  O stopach procentowych przesądzi polityka rządu
+-  Kal Ka Dhanu Rashifal: धनु राशि वालों को मिलेगा रुका हुआ धन वापस, इस उपाय से बदल सकती है किस्मत
+-  Treffen von AfD und Rechtsextremisten in Potsdam: Burgerkette zieht Konsequenzen
+-  Garmin türünün tek örneği olan nabız sensörünü duyurdu
+-  Ukrajna – 5,1 százalékon áll az éves infláció
+-  Samsung Galaxy XCover 7 má 5G, vyměnitelnou baterku a koupíte ho i u nás
+-  RSS Chief Mohan Bhagwat Gets Invite For Ayodhya Ram Temple Event
+-  Simi’s Unfiltered Declaration on Predatory Backers Triggers Social Media Debate
+-  Itt vannak a TV2 legújabb sztárjai, hamarosan indul a Kincsvadászok - galéria
+-  Toni Vingut sufre un grave accidente en la quinta etapa del Rally Dakar
+-  Toni Vingut sufre un grave accidente en la quinta etapa del Rally Dakar
+-  BSP: Double-digit dips hit October, 10-month FDI flow
+-  DigiLab in bibliotheek
+-  Now is the time to get in shape for Spring Break
+-  Bauernproteste: Warum ist der Einfluss der Landwirte auf die Politik so groß?
+-  Viitorul președinte al României ar putea fi ales din luna septembrie. Coaliția pregătește terenul la începutul sesiunii parlamentare
+-  Mexicana comienza con una meta de 448 vuelos mensuales
+-  Mariska Hargitay reveals she was raped by a friend in her 30s: ‘I checked out of my body’
+-  Handball-EM: So läuft es für die Spieler des THW Kiel
+-  Schaatsen en sleeën op het ijs
+-  Conflicto armado interno en Ecuador obliga a Ministerio del Deporte suspender actividades
+-  RSS Chief Mohan Bhagwat Gets Invite For Ayodhya Ram Temple Event
+-  World Bank downgrades 2024, 2025 GDP outlook for PHL
+-  PHL, Indon deal on RE to bank on private sector
+-  PHL eyes 10% export growth in 2024, but PEDP warrants 40%
+-  NBA player gives back to hometown of London, Ont. with free drop-in program
+-  Kogi govt arrests six for harassing NASS members
+-  Twitter users call out Mummy Zee for using derogatory term to describe daughter’s school
+-  Uppgift: Örebroare misstänks för mord i Bagdad
+-  Neues Cinematic zu „League of Legends“ zu Beginn der 14. Staffel veröffentlicht
+-  İBB'de borç tartışması!
+-  Çanakkale'de eğitime 1 gün ara!
+-  WEF report: Climate, energy gap, inflation top PHL risks
+-  Döbbenetes beismerést tett a német kiképzőparancsnok a meghalt ukrán katonák számáról
+-  "Има такъв народ" и "Възраждане" отново се заканиха да сезират съда за промените в Конституцията
+-  Polonia se opone a la prórroga del comercio libre de impuestos con Ucrania
+-  Liverpool talentovanog fudbalera poslao na pozajmicu u Hull
+-  Widodo seeks PBBM support for purchase of anti-submarine aircraft from Indonesia
+-  Der Honor Magic V2 könnte ALLES verändern! – ANMACHEN
+-  Chick-fil-A’s bid to build 6,000-foot ‘mega’ restaurant in small Tenn. town dealt crushing blow
+-  Zelenski: Ortaklarımızdan hiçbir baskı yok
+-  Fatih Karagümrük'ten 4 gollü moral!
+-  Bundesbeteiligungen: Bund erwartet Milliarden aus Veräußerungen
+-  Oficina de la Administración Tributaria en Yaguajay consolida su desempeño
+-  La soeur de Julien (Star Academy) monte au créneau après des rumeurs sur le comportement de l'élève
+-  Police arrest 3 suspects over alleged baby theft in Nasarawa
+-  V Grécku sprístupnili ruiny najväčšieho paláca, bol v ňom korunovaný Alexander Veľký
+-  Insändare. Noterat av DN:s läsare den 10 januari
