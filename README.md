@@ -1,51 +1,51 @@
 # Latest News
--  Al menos 10 personas muertas en la ola de violencia en Ecuador
--  [여친 머리 삭발·폭행·얼굴에 소변까지…바리캉男에 ‘징역 10년’ 구형
--  „Menschenfreude“: Alfterer Verein und Ärzte-Team wollen Verbrennungsopfern in Äthiopien helfen
--  [탕웨이 “김태용과 이혼? 절대 불가능” 직접 입 열었다…‘가짜뉴스’ 정면반박
--  PANKOBİRLİK 51. Olağan Mali Genel Kurulu yapıldı
--  10 maddede TOGG'un yeni modeli: T10F
--  Şüpheli-mağdur arasında 'Ben erkek miyim' tartışması
--  Barista kadının kahvesine gülücük çizdi! Sevgiliden feci darp!
--  إتلاف كميات كبيرة من المواد المخدرة ضبطت في (33) قضية
--  Honda ima novi "retro" logo
--  Kvar na provodniku zapalio objekat drvne industrije
--  1874 деца, спасени след труса от 7.8 в Турция, са върнати в семействата си
--  Tata Group producentem czipów. Zapowiada nowe fabryki
--  Spokojne wyczekiwanie kontraktów na dane o inflacji
--  Co czwarty deweloper deklaruje, że w 2024 r. zainteresuje się innym obszarem działalności
--  Jennifer Lawrence flet për dasmën me Cooke Maroney, për momentin epik gjatë ceremonisë
--  Apple, telefonları yavaşlattığı gerekçesiyle tazminat ödeyecek!
--  Biedronka chwali się kolejnym rekordem. Mowa o ogromnej liczbie
--  Tentativa për bashkimin e opozitës/ Zbardhet takimi informal mes Bardhit-Nokës dhe aleatëve. Basha pjesë e federatës?
--  Златомир Загорчич: Ще има нови играчи, но не на всяка цена
--  भारत ने संयुक्त राष्ट्र महासभा से इजराइल-हमास युद्ध रोकने के लिए बातचीत का रास्ता अपनाने की अपील की
--  Višković: Ružne poruke iz FBiH na Dan Republike Srpske
--  Esportiva.bet cadastro: passo a passo para ganhar nas apostas online
--  “El niño y la garza” marca el regreso triunfal de Hayao Miyazaki en el ocaso de su carrera en Ghibli | RESEÑA
--  Германия — Galeria Karstadt Kaufhof: третье банкротство менее чем за четыре года
--  Inside two of the chicest hotels in Barbados: The House & Colony Club
--  King Constantine II died on this day last year. Prince William's godfather was the final monarch to rule the Greece before being forced into exile
--  Supercoppa, Barcellona e Real Madrid hanno già vinto: ecco perché
--  Takhle budou vypadat nové tramvaje v Praze. Do ulic vyjedou v prosinci 2025
--  Dakar 2024 en vivo, etapa 5 (Al-Hofuf - Shubaytah) EN VIVO: resultados
--  Lennix Hughes: Three men charged with drugs offences after Dundee teen’s death
--  Aposentadoria: Aos 60 anos de idade, como fazer um pedido pelo INSS?
--  Amazon prova a rivoluzionare il settore dello streaming con una novità
--  Yutong Bus Reflects on Landmark Year, Cumulative Global Sales of New Energy Buses Exceeded 175,000 Units
--  Irina Shayk and Thierry Henry star in celebratory campaign for DJWE's 20th edition
--  Tom Cruise firma acuerdo con Warner para hacer nuevas partes de sus películas
--  VIDEO/ Qëlloi me armë 11-vjeçarin e paarmatosur, dalin pamjet e kameras së trupit të efektivit në SHBA
--  NHOA.TCC's Fireproof and Fire Extinguishing EnergyArk Passed the Strictest UL 9540 Safety Test Showcased at the CES 2024, Integrated Charging and Storage to be Deployed in Italy in 2024
--  Ministro del Interior viaja a Tumbes para fortalecer seguridad en frontera con el Ecuador
--  GBP/USD se pohybuje mezi trendovými čárami
--  무죄 판결 눈썹문신, 현장선 여전히 과태료
--  늙어가는 대한민국…70대 이상 인구 20대 첫 추월
--  케이메디허브, 행동분석 모션캡쳐시스템 구축
--  대구·경북서도 ‘소방헬기 국가 통합출동’
--  도공 대경본부, 졸음운전·차량 고장 2차사고 주의 당부
--  [1월 11일] 동방정사의 오늘의 운세
--  이마트, 신선 선물세트 강화 명절 소비자 부담 확 낮춘다
--  보타랩, 쑥·병풀 발효성분 함유 여성 청결제 출시
--  홈플러스 “金귤된 감귤, 저렴하게 맛보세요”
--  쿠팡, 14일까지 겨울 패션템 최대 80% 할인
+-  '이천 인플루언서' 정채언, 남편에 속옷 착용 인증샷 요구 "미친건가?"('고딩엄빠4')
+-  강순아 예비후보 quot;오영훈 도정 마을돌봄 조례안 재의요구 유감quot;
+-  ‘5500공격득점 금자탑’ 현대건설 양효진 "10000득점 하려면 20세로 돌아가야"
+-  안철수 quot;경기도 제일 어려워hellip;이대로 가면 10석 정도 가능quot;
+-  창원시, 올해 농업구조 대 전환 추진에 총력
+-  BioHeal CBD Gummies Diabetes Reviews (CBD Gummies BioHeal Blood Sugar) Certified
+-  Klaudena Seat Cushion Reviews (2024 Updated) – Is This Memory Foam Seat Cushion
+-  Screenplay of ‘Joram’ added to the prestigious Academy Library’
+-  Akshay and Tiger look hunky in new swaggy poster of Bade Miyan Chote Miyan
+-  AI-powered cooking assistants? Discover top 6 kitchen trends dominating 2024
+-  수차례 성관계하고 강간당했다는 여성, 무고죄로 집행유예
+-  기장 '철마도시농업공원 조성공사' 순항
+-  나경원, 김건희 여사 특검 여론에 "국민들 왜 찬성하는지 우리도 반성해야"
+-  שותפות לפשע: למה קנדל ג'נר והיילי ביבר נעצרו על ידי המשטרה?
+-  수액맞는데 병원 사람들 다 퇴근…"피 역류하더라"
+-  "החובש האגדי" שסייע תמיד לכל חבריו: אלקנה נפל בקרב בעזה
+-  SPAR Group Sells Interest in Australia and NMS Joint Ventures
+-  화성산업
+-  대구 남산1동 적십자봉사회 신규 결성
+-  내서면 노류생태마을·상주장터 영농법인, 떡국떡 기탁
+-  달성산림조합, 안전사고 예방 교육
+-  네비게이션으로 대퇴부 절제술 정확도 높여
+-  안동시장 ‘바이바이 플라스틱’ 챌린지
+-  ㈜바디온발레핏, 동구청에 전기장판 기탁
+-  김정은 “기회 오면 대한민국 초토화”
+-  한중엔시에스, 영천자원봉사센터에 4천만원 기탁
+-  尹 대통령, 영양 출신 조태열 외교부 장관 임명
+-  영천시장학회, 인재 육성 장학금 기탁 줄이어
+-  구미시, 新성장동력 로봇산업 육성 박차
+-  박복조 씨, 모교 대가대에 발전기금 1억 기부
+-  A brit tinédzserek közel fele úgy gondolja, hogy közösségimédia-függő
+-  권익위원장에 유철환·외교부 2차관 강인선
+-  대구신문 손님
+-  포항기업 글로벌 역량 CES서 통했다
+-  Farès Ferjani vise à améliorer son classement mondial au Grand Prix de Tunis
+-  Devojka preminula samo nekoliko dana nakon operacije podizanja zadnjice u Turskoj
+-  Reports on Trikomo properties on Greek Cypriot land gather steam
+-  De Minor ne staje – posle Đokovića pobedio i Alkarasa VIDEO
+-  „Bares für Rares“: Bittere Entscheidung! ZDF-Zuschauer müssen jetzt stark sein
+-  Polizei sucht Zeugen einer Unfallflucht in Königswalde
+-  Polster mit Einblick nach OP: Hätte die Nacht nicht überlebt
+-  Drei auf einen Streich im Helios-Klinikum: Mädchentrio hält Hebammen in Aue auf Trab
+-  Gomez: Die letzten Jahre in einen Negativ-Strudel gekommen
+-  Grünhain: Zusammenstoß mit hohem Schaden zu früher Stunde
+-  Bundesregierung genehmigt Waffenlieferungen an Saudi-Arabien
+-  Neuer "Erzgebirgskrimi" kommt bereits im Januar
+-  Tourismus im Erzgebirge: Was Carlsfeld auch ohne Schnee zu bieten hat
+-  Cem Özdemir spricht mit Bauern in Ellwangen
+-  Huthis reklamieren Großangriff auf Schiffe für sich
+-  Warum die Besucher der Oelsnitzer „Kohlewelt“ dieses Museumsexponat anfassen sollen
