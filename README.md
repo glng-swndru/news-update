@@ -1,11 +1,51 @@
 # Latest News
--  Familie Yoran Krol organiseert gecoördineerde zoekactie: 'Help ons onze zoon te vinden'
--  Таджикистан готовится к переходу на 10-балльную систему оценок в школах
--  Drejtoria doganore: Janë sekuestruar 248 gramë ari që dy udhëtarë janë përpjekur ilegalisht ta nxjerrin nga shteti
--  수원시, 재미한인과학자협회와 ‘바이오산업 발전’ 맞손
--  [기호일보 만평] 뒤끝 작렬
--  경기 사랑의열매, 시흥 거모사회복지관에 성금 2천600여만 원 전달
--  국민의힘 인천시당, 경인전철 지하화 특별법 통과 환영
--  נקמת האקסית: הגרושה של טראוויס ברקר נכנסת בו ובמשפחת קרדשיאן
--  인하대병원, 긴급구조지원기관 능력평가 ‘우수’
--  Patrick Doyle Applauds Former Classmate for Culinary Prowess, Equates Her Cooking to His Sweetheart’s
+-  [강기정 시장 “광주를 AI 실증 선도도시로 만들 것”
+-  [“‘찌질男'’ 임시완이 효자” 소년시대 잭팟 터뜨렸다…‘쿠팡플레이’ 무섭게 성장
+-  [“개고기 찬성 집회에 끌려간 후 버려졌다” 사진 속 이 개…뒤바뀐 운명 [지구, 뭐래?]
+-  No pact harming national interest has been reached with India: PM Dahal
+-  দরপতনের শীর্ষে স্ট্যান্ডার্ড সিরামিক
+-  SA Policy Uncertainty Index eases for 2nd consecutive time: NWU Business School
+-  Ladysmith floods: KZN COGTA MEC's visit expected to yield solution
+-  Taremi, scatto Inter: incontro con il mediatore, la situazione aggiornata
+-  Cannavaro: "Scudetto Inter? Decide Chiesa! Vittorie Juve nel finale non casuali..."
+-  Justice Mazahir Ali Naqvi resigns as Supreme Court judge amid misconduct allegations
+-  Rural: réalisation de 1.627 douars pour 688.000 personnes
+-  Lauhtuminen voi paljastaa suomalaiskotien vauriot – Toimi näin, jos putkesi jäätyivät pakkasilla
+-  Nagy Márton 450 milliárddal tovább nyújtózkodhat, mint ameddig a takarója ér
+-  Maharashtra: School ‘dropout’ Shoaib Shaikh kills Sikh girlfriend, who was manager at a private bank, after 3 months of relationship
+-  Golf, Antalya'da turizmin 12 aya yayılmasına katkı sağladı
+-  تظاهرة حاشدة في وسط رام الله احتجاجاً على زيارة وزير الخارجية الأميركي
+-  Αδ. Γεωργιάδης: Διαγράφονται τα πρόστιμα σε ηλικιωμένους που επιβλήθηκαν κατά την πανδημία
+-  태영건설 채권단, 워크아웃 개시에 ‘긍정적’
+-  Chili Bowl Legend Explains Story Behind Kyle Larson’s Shocking Return
+-  ทำบุญครบ10ปี'หลวงพ่อไข'อดีตเจ้าอาวาสวัดโพธินายกมรณภาพ'สังขารไม่เน่าเปี่อย'
+-  ออกหมายจับ‘ผัวโหด’ฆ่าฝังดินเมียสาวกู้ชีพ อบต. พ่อวอนลูกชายมอบตัว
+-  'เด็จพี่'ซัดกลับ'คปท.-นิพิฏฐ์' อ้างเรื่องทักษิณบังหน้า ปลุกม็อบลงถนนหวังล้ม รบ.
+-  'หมอลักษณ์ ฟันธง' ฉะเดือด ปม 'ปีชงมีไว้หลอกคนโง่' ซัดหิวแสง สร้างคอนเทนต์แบบไม่มีสติ ใช้ปัญญาอันต่ำทราม
+-  Pete Davidson admits he was high on ketamine at Aretha Franklin’s funeral
+-  Lazer Z1 Kineticore helmet review: A new lightweight king
+-  Szwedzka gospodarka zaskoczyła pozytywnie
+-  Spowolnienie inflacji w Norwegii. Obniżki stóp procentowych na horyzoncie
+-  ‘노량’ 김한민 감독, “이순신 장군 없었다면 한반도 두 동강 났을 것”[MD인터뷰]
+-  인교진 "♥소이현, 서양인 몸매…어쩔 수 없어" 꿀 뚝뚝 [마데핫리뷰]
+-  [오피셜] 'FC서울→서울E'...K리그 레전드 오스마르, "이곳에서 새로운 역사 쓰겠다"
+-  불법정치자금법 위반 황보승희 의원...첫 공판서 혐의 전면 부인
+-  김희현, 예산 정국 부산행 quot;법정 공휴일, 왜곡 많고 사실도 다르다quot;
+-  quot;작은 불편 사항도 직접 챙기겠습니다quot;...울릉군수, 주민들과 적극 소통 나서
+-  한국산업단지공단, 2024년 디지털 혁신 박차
+-  대구시, 청년 전문 상담사 공개 모집
+-  졸업식 날 선발 출격! 차상현 감독 신뢰 "경험 쌓으면 더 좋은 기량 나올 것" [MD수원]
+-  What has caused criminal violence to surge in Ecuador?
+-  BBB | Maycon fica inconsolável após ser emparedado
+-  Motorists urged to be aware of new Four Lane crossings
+-  "Nossa Bandeira É a Morte" é cancelada após duas temporadas
+-  La mitad de las personas paradas en Cantabria lleva más de doce meses en esa situación
+-  ალტ-ინფო სამებაში ხატის შეურაცხყოფის ფაქტზე აქციას იწყებს
+-  삼성바이오 “압도적 생산력으로 글로벌 톱티어 도약”
+-  Son dakika... Jonas Svensson resmen Beşiktaş'ta!
+-  Kübra Ünlü yazdı! ‘Üç Kız Kardeş’te Yeşilçam Nostaljisi
+-  Boynundan bıçaklanan Güney Koreli muhalif lider taburcu edildi
+-  Fenomen Gizem Bağdaçiçek'e hapis istemi
+-  Grip, özellikle kronik hastaları tehdit ediyor
+-  ABD topraklarının en büyük yabancı yatırımcılarından biri, bir Çinli
+-  דיאן שוורץ חושפת: מדוע לא תלבש בגדים עם אבטיח?
