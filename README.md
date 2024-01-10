@@ -1,11 +1,51 @@
 # Latest News
--  SPD-Fraktion will Tempo bei Ärzte-Gesetz
--  Bandengewalt in Ecuador: Militär soll Gangs ausschalten
--  김서형, 우아한 미소
--  김서형 "19살 반려견 키우는 중…'댕댕이' 좋아해 출연 결정"('도그데이즈')
--  '항공사 모델 출신' 유하나, 사랑받는 며느리 꿀팁 "시부모님 집 비밀번호도 알아"
--  동아ST, 이스라엘 기업과 RNA 기반 유전자 치료제 공동 개발 추진
--  เริ่มแล้ว!!! รัฐบาลเตรียมเปลี่ยน สปก.เป็นโฉนดเพื่อการเกษตร
--  ฮั้วเอกชนหรือไม่?! ‘ศรีสุวรรณ’จ่อร้องตรวจสอบเช่ากำไล EM สมัย‘รมว.สมศักดิ์’
--  Liukkaus­varoitus annettu – Säähän pian uusi käänne
--  Lazio x Roma: onde assistir, escalações e arbitragem
+-  요즘 드라마, 40대 여주인공의 자아 찾기
+-  सुपर फूड है यह बीज, दिल और हड्डियों को करता है मजबूत, कैंसर के लिए भी रामबाण!
+-  Preview Real Madrid vs Atletico Madrid: Siap-siap Kerja Keras
+-  Lazy blokes given hope as experts say you can reuse boxer shorts
+-  ‘이상민 의원 따라 민주 탈당’ 시·구의원들 국힘 입당
+-  Dapat Jeda Sehari, Anthony Sinisuka Ginting Bakal Lakukan Evaluasi Sebelum Berlaga di Babak 16 Besar
+-  İsrail Lübnan'la savaşa mı girecek? Hastanelere "binlerce yaralıya hazırlanın" talimatı
+-  NASA'da erteleme kararı! Astronotların Ay'a inişi 2026'ya kaldı
+-  5 công việc “khát nhân lực” trong thời đại mới, không yêu cầu ngồi văn phòng, lương tối thiểu 3 tỷ đồng/năm
+-  Son dakika: Türkiye kırmızı bültenle arıyordu! Ülke duyurdu: Yakaladık!
+-  Diduga Langgar SOP, Polisi yang Tangkap Saipul Jamil Dibebastugaskan
+-  영주시, 산림·조경 관련 7개 분야 근로자 115명 모집
+-  영주시, 올해도 ‘월요 야간민원실’ 지속 운영…시민 편의 제공
+-  영주시, 원격협진으로 의료 사각지대 해소 ‘앞장’
+-  경북·대구, 지난해 고용률 소폭 상승…서비스·판매 종사자 늘어
+-  의성군 국가지질공원 신규 해설사 4명 현장 접수 모집
+-  구미교육지원청, 초등 예비소집 결과 4명 소재 미확인…경찰 수사 의뢰
+-  의성 산란계 농장서 고병원성 AI 항원 검출…경북도, 이동제한·정밀 검사
+-  보험회사 직원에 시너 뿌린 50대 징역 1년 6월→2년 6월
+-  김태오 DGB 회장 등 4명 ‘캄보디아 공무원에 뇌물 혐의’ 무죄
+-  بلا واپسی کیس:چیف جسٹس فائزعیسیٰ کی سربراہی میں 3 رکنی بینچ آج سماعت کرے گا
+-  보령시, 스마트원예분야 187억 원 예산 확보, 본격적 사업 추진
+-  충남도, 올해 첫 이웃돕기 성금 전달받아
+-  전남 광양middot;나주서 교통사고 발생hellip;1명 사망middot;승용차 1대 전소
+-  함평군, 청년부부 지역 정착 위해 2년간 600만원 지원
+-  보성군, 자동차세 연납으로 4.58% 할인 받으세요
+-  강진군, 출생아 증가 인구 '길조'hellip;5일 만에 7명 태어나
+-  녹색당 quot;김희현 부지사, 여성과 팔짱끼고 남포동 밤거리 돌아다닌 것 적절한가quot;
+-  김승남 quot;가족 등 1인 선거운동 허용하는 '위탁선거법 개정안' 국회 본회의 통과quot;
+-  신안군, '적극행정 공무원의 면책 및 지원제도' 도입
+-  Cacerolazo cultural este miércoles en Neuquén contra el DNU de Milei: los detalles del reclamo
+-  Bitcoin Halving 2024 and Emerging Market Impact
+-  [포토] 정성화 '여러분 반가워요!'
+-  इधर हिमाचल में हो रहा था विधान सभा चुनाव, उधर अमिताभ की फिल्म लग गया रोक
+-  Jazmín Pinedo y su contundente respuesta sobre casarse y tener hijos con Pedro Araujo: “Me da terror”
+-  Michigan Wolverines return home to screaming fans after victory over Washington Huskies
+-  한·미 안보수장, 첫 통화…백악관 "북러 군사협력, 강력 규탄(종합)
+-  Faaone : l’accès à la plage de la Vai’iha est fermé
+-  TXOne Networks Recognized by TSMC for Technical Cooperation in OT Cybersecurity for Semiconductor Foundry Global Leader
+-  홍익표 "참사 438일 지나 이태원 특별법 통과… 尹, 수용해야"
+-  정비사업 문턱 낮춘다…안전진단 없이도 재건축 착수
+-  Society seeks Constitutional amendment to enable flexibility in maritime
+-  [이시각헤드라인] 1월 10일 뉴스센터12
+-  แอมมี่ สภาพจิตใจยังแย่ ผจก.เผยเคลียร์จบหลังบ้านแล้ว รอแค่ เมรี ทำข้อเสนอกลับมา
+-  Clima de hoy, miércoles 10 de enero de 2024, para la ciudad de Villa La Angostura
+-  Clima de hoy, miércoles 10 de enero de 2024, para la ciudad de Choele Choel
+-  Benzema Mendadak Dikaitkan dengan Arsenal
+-  Raja Malaysia Pertimbangkan Pengampunan terhadap Mantan PM Najib Razak
+-  [속보] 한동훈 “공천 신청 시 ‘금고형 이상 형 확정 시 세비 전액 반납’ 서약 받을 것”
+-  Clima de hoy, miércoles 10 de enero de 2024, para la ciudad de Plaza Huincul
