@@ -1,51 +1,11 @@
 # Latest News
--  "סעודיה רוצה להיפתח לעולם? בינתיים הם נועלים אותי בתא קטן כי אישה לא יכולה להתאמן עם גברים"
--  "להימנע מפגיעה בחיי אדם": קריאה לעירוב משרד הרווחה והביטוח הלאומי בהליך מתן רישיון לנשיאת נשק
--  מקלות ברזל, סכינים יפניות ואבוקות: עשרות אוהדי מכבי חיפה נעצרו לפני המשחק מול מכבי ת"א | צפו בתמונות
--  «Не хочу обидеть». Испанский тренер высказался о сборной Казахстана по футболу
--  Združenie miest a obcí Slovenska žiada riešenie problému s odpadmi po kamiónoch na východnej hranici
--  Duda je šokovaný zadržaním dvoch exposlancov, ktorým udelil milosť
--  Pred schválením kompetenčného zákona musí byť známe stanovisko Rady pre rozpočtovú zodpovednosť, tvrdí Šipoš
--  Stavebná legislatíva mala podľa ministra Ráža výrazné nedostatky: Hrozil kolaps v povoľovaní!
--  Neuveriteľný príbeh Kolumbijčanky (73): Vychovali ju opice v džungli! Potom ju odvliekli do nevestinca
--  Maďarská prezidentka vymenovala šéfa Úradu na ochranu suverenity
--  O kompetenčnom zákone vrátenom prezidentkou budú poslanci rokovať v piatok
--  LIDL sťahuje z trhu jeden zo svojich výrobkov: Zákazníci ho nemajú používať! Obchod apeluje na ich ochranu
--  Adela Vinczeová po roku v kine: Prišla bez manžela, ale nie sama!
--  Zažite jedinečný Valentín na koncerte José Carrerasa v Košiciach!
--  AKTUÁLNE Tragická nehoda pred Úradom pre ochranu ústavných činiteľov: Jeden z funkcionárov zrazil 69-ročnú ženu
--  Milagro en Suiza: una mujer sobrevivió después de que un tren le pasara por encima
--  Blé tendre : L’ONICL met en place un système de restitution à l’importation
--  Recep Uçar: Taraftardan özür dilerim
--  Cumhurbaşkanı Erdoğan "Ciddi zaafiyet oluşturuyor" diyerek çağrı yaptı: Türkiye menşeli aplikasyonlar kullanmalıyız
--  “NATO ka vdekur”, zyrtari i BE zbulon bisedën me Trump: Më tha se nëse BE sulmohet, SHBA nuk do të ndërhyjë
--  Путин назвал успех Гуниной значимой страницей победной летописи шахматной школы в РФ
--  Daniel Maldini vazhdon me “shtegtimet”, huazohet te skuadra e Serie A
--  Top 10 addresses holding XRP control 40% of all tokens
--  Forza Motorsport promises massive improvements for 2024 in three key areas
--  Why Haas said farewell to its founding father - and 'DTS darling' - Steiner | News Focus
--  The laws around remission policy | Explained
--  Η παρουσία στη Ρόσενμποργκ, η μεταγραφές του και η κορυφαία πώληση
--  Un docu-série NBA en préparation chez Netflix, avec LeBron James, Jayson Tatum et Anthony Edwards
--  These massive Lego Fortnite builds are breathtaking – and one even flies!
--  В Марий Эл произошел пожар в санатории
--  Big Boys Season 2: from Jon Pointing to Katy Wix, who’s playing who?
--  Trump u velikoj prednosti u utrci za republikansku predsjedničku nominaciju
--  Vučević: Mi nismo ničiji lutak na konopčićima, mi smo slobodna država i sedimo na našoj stolici
--  عاملان يمنعان الحرب الشاملة في لبنان!
--  Wat doe je tegen al die rotzooi in de berm? Waalwijk kiest voor ‘beschermde status’
--  Proteste im Erzgebirge: Landkreis zieht erste Bilanz - „Abriegelung von Städten verhindert“
--  Proteste im Erzgebirge: Wie der Mittwoch lief und mit welchen Sperrungen am Donnerstag zu rechnen ist
--  Neues Gewerbegebiet in Zschopau: Baustart im Herbst?
--  Wegen Bauernprotesten: Am Freitag sollen A-72-Auffahrten im Vogtland wieder zeitweise dicht sein
--  Winterlinden ersetzen morsche Birken in Geringswalde
--  Dax kommt vor US-Inflationsdaten nicht weiter
--  Margot Robbie und Cillian Murphy für SAG-Awards nominiert
--  Erzgebirger bei Neujahrsempfang des Bundespräsidenten: Oliver Titzmann spricht von hoher Ehre
--  Restaurant „Schnitzelparadies“ in Zwickau schließt: Wie die Aussichten auf einen Nachfolger sind
--  Sie hat bei den Bauernprotesten im Vogtland den Hut auf
--  Erzgebirge: Dieser König beißt sich niemals Zähne aus
--  Langenbernsdorf: Bürgermeister-Brief sorgt für Wirbel im Ort
--  "روشن" و "eviq" توقعان مذكرة تفاهم لتسريع استخدام المركبات الكهربائية في المملكة
--  عاجل.. تفاصيل تعديل نظام الإقامة المميزة.. "كل ما تريد معرفته"
--  Psi lajajo, karavana gre dalje: odbor za kmetijstvo potrdil kandidaturo Mateje Čalušić, potrditev DZ naj bi bila le še formalnost
+-  Galatasaray'a sakatlık şoku! Takımın en iyilerinden Sacha Boey de yapılan son dakika açıklamasıyla kadrodan çıkarıldı
+-  Erik Spoelstra peut-il devenir le coach NBA à la plus grande longévité ?
+-  La NBA va diffuser un match de Championnat de France par semaine sur le League Pass
+-  اسرائیلی فوج کی غزہ میں الاقصیٰ ہسپتال کے اطراف شدید بمباری، 40 سے زائد فلسطینی شہید
+-  Qantas Airways Digital Transformation Strategy Analysis Report 2023: Accelerators, Incubators, Partnership, Investments, Acquisition Network Map and Other Innovation Programs - ResearchAndMarkets.com
+-  Metcash Digital Transformation Strategy Analysis Report 2023: Technology Focus, Initiatives, Partnership Network Map, ICT Budget, and Contracts - ResearchAndMarkets.com
+-  ویرات کوہلی نے افغانستان کیخلاف ٹی ٹوینٹی میچ کھیلنے سےکیوں انکار کردیا؟
+-  Pastoral Juvenil: Diocese do Algarve dinamizou reflexão sobre o Natal, com vertente solidária
+-  Copinha: Marília atua nos bastidores para garantir Abreuzão com rodada dupla
+-  The best luxury sales happening now, from Net-a-Porter to Cettire
