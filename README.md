@@ -1,51 +1,51 @@
 # Latest News
--  [反트럼프 후보사퇴에 판세 출렁…헤일리, 뉴햄프셔서 이변 만들까
--  [테니스 시즌 첫 메이저 호주오픈 14일 개막…tvn 스포츠·TVING 생중계
--  Potkut saanut F1-pomo vihjaili paluusta rallikuvioihin
--  Tshekkivahvistus iski hattutempun - turkulaisseura 12 ottelun tappioputkessa
--  [유명 아이돌, '이 커피' 마셨다가 악플 세례받고 사과…"그 쪽 편이지?"
--  سعيد يكشف عن عملية "فساد" بديوان التجارة.. واخفاء صك لصفقة القهوة
--  CHP'de istifa depremi! Bozdoğan Özel'e ateş püskürdü
--  Zuliani gode: «Juve Frosinone, bella vittoria per Samardzic»
--  Extreme cold weather warnings issued for mountain highways in B.C.
--  Cierran por tolvaneras carretera Janos-Ascensión
--  '맥도날드 대굴욕'…"동네 분위기 해친다" 입점 거부당해
--  4천여마리 '들개천국'된 이 곳…관광객 물려 숨지기도
--  조원진 "與 검사 출신 총선 후보들, 정청래·안민석과 붙어라"[한판승부]
--  유대인 출신 하버드생 "하버드, 反유대주의 보루" 소송
--  박효신 전입신고한 한남더힐 아파트, 강제경매…실제 거주 여부 몰라
--  Perin a Mediaset: «Vogliamo toglierci soddisfazioni. Scudetto? Sta a noi dimostrare di non essere inferiori all’Inter»
--  بعد طرده في مباراة المغرب الفاسي: أنباء عن استقالة البنزرتي من تدريب الوداد
--  سعيد في زيارة إلى حي التضامن والانطلاقة ودوار هيشر
--  [포커스On] 민주당 분열 가속화되나…이낙연 전 대표, 이원욱·김종민·조응천 탈당
--  193국 무비자 입국…한국, 여권 파워 세계 2위로 올라
--  Netflix: el encuentro entre un superviviente del accidente aéreo de Los Andes y un actor de La sociedad de la nieve
--  Juventus silovito do polufinala Kupa Italije
--  Wyndham Confirms Receipt of Expansive FTC Second Request Under HSR Act for Choice's Unsolicited Hostile Offer to Acquire Wyndham
--  Object Computing Announces Initiatives to Encourage Women in Technology
--  „Elitedenken hat nachgelassen“: Boris Becker schlägt Alarm
--  Ivan elogia concorrência pelo gol do Inter em apresentação e avisa: "Estarei sempre preparado"
--  Gulfstream Park: Your Premier Year-Round Destination
--  Traffic Nuts
--  MONSTA X’s I.M Drops 1st Teasers For New Solo Single
--  Tikoitoga laid to rest today
--  Srušio se helikopter u Francuskoj, ima poginulih
--  En Quito arranca Circuito del ITF World Masters Tennis Tour
--  Info-Tech Research Group Appoints Tom Zehren as Chief Executive Officer
--  이란 "美유조선 나포"…중동 원유 항로 '호르무즈 해협' 봉쇄 위기
--  예상치 웃돈 美CPI 상승률에도 연준 3월 금리인하 가능성 커져
--  네타냐후, ICJ 제노사이드 재판 맹비난
--  ⑨다자녀 부모가 애국자.. '자녀세액공제'로 혜택 팍팍
--  푸틴 측근 "우크라가 미사일 발사대 공격하면 핵대응" 경고
--  Tinubu Receives Brief On $10bn Investment Prospects In Nigeria’s Steel Sector
--  Congress moves closer to government shutdown
--  Comienzan fiscalizaciones a empresas que no pagaron aguinaldo
--  N.B. Medical Society says alternative primary care program contributing to family doctor shortage
--  Video: “Doesn’t want to go in” – Liverpool fans will love what the cameras caught Darwin Nunez saying after Fulham win
--  “Son rumores”: Feliciano Castro sobre ser posible sucesor de Inzunza; pero tampoco lo ha invitado Rocha
--  ‘Disrupt the status quo’: B.C. opens 5 new urban Indigenous Justice Centres
--  U studentskom domu Nedžarići pojavili se insekti: Sumnja se na stjenice
--  Vão ser pais pela segunda vez!
--  Bandits Kill Village Head, Eight Others In Fresh Katsina Attack
--  CHP'de istifa çatlağı derinleşiyor... Bozdoğan'dan Özel'e zehir zemberek sözler
--  Kenan Yıldız'dan muhteşem bir son vuruş! İşte attığı müthiş gol...
+-  Selena Gómez protagonizará película sobre la vida de Linda Ronstadt
+-  ארצות הברית ובריטניה נערכות לתקוף הלילה את החות'ים
+-  נחשפה עיר ששקעה באגם והשתמרה באופן מושלם והביקוש לביקור בה גובר
+-  מיליק הבקיע שלושער ב-0:4 של יובנטוס בדרך לחצי הגמר באיטליה
+-  CZI won through with sound arguments
+-  Zafere yalın ayak koşan atlet şimdi sporcu yetiştiriyor
+-  奥克兰北岸大超市清晨被抢：警方出动直升机和警犬队追捕，4人被拘
+-  Villanueva asegura que un “pez grande” se oculta en caso por muerte de la agente de la ATIC
+-  Recalé, Hadjibou Soumaré exhorte à la création d’une coalition dénommée « SAUVER LE SÉNÉGAL »
+-  Sheikh Hasina sworn in as PM for 5th term
+-  “شكرا جنوب أفريقيا”.. دولة لا هي عربية ولا مسلمة عرّت أنظمة سايكس بيكو
+-  Crvena zvezda uspešna v Milanu, Real ugnal Valencio po podaljšku
+-  Detoks Suyu Tarifleri: Vücudunuzu Temizlemek İçin En İyi Yollar
+-  Designan y juramentan a nuevo Síndico Procurador en El Tigre
+-  Determinist Ne Demek: Kader ve Özgürlük Arasındaki İnce Çizgi
+-  Destina Ne Demek: Türkçede Yeni Bir Kelime Hakkında Bilgi
+-  Govt, Industry in win-win chicken game
+-  Prima reacție a lui Radu Drăgușin, după ce a semnat cu Tottenham
+-  En febrero iniciará exportación de gas desde el puerto de Altamira
+-  Houthi rebels threaten significant return strikes if US hits Yemen
+-  VWN wird im Jahr 2023 290,7 % mehr Elektroautos verkaufen
+-  Λευκός Οίκος: «Η αμερικανική βοήθεια στην Ουκρανία έχει σταματήσει»
+-  WWE News: Travis & Jason Kelce’s Mom Visits WWE Performance Center, NHL Mascot Gritty Gets Golden Title
+-  Niat Makan Malam di Angkringan Palembang, Istri Ganjar Mendadak Diserbu Warga
+-  Derviş Ne Demek? Türk Dilindeki Anlamı ve Tarihi Kökeni
+-  Hasil Coppa Italia: Juventus Bantai Frosinone 4-0, Hattrick Arkadiusz Milik Muluskan Jalan ke Semifinal
+-  Dragusin e kompletoi kalimin te Tottenhami, por agjenti i tij thotë se në tri vitet e ardhshme rumunin e sheh te Real Madridi
+-  إحصائيات دي يونغ أمام أوساسونا
+-  Devotees of Pamban Swami want ward at GH named after him
+-  Dundee United hit with Declan Gallagher surgery blow as Ollie Denham exit strategy mooted
+-  What did Mark Pope say about his viral water bottle explosion
+-  LG stellt neues transparentes OLED T vor
+-  Iran’s navy seizes oil tanker in Gulf of Oman that was at the center of a major US-Iran crisis
+-  Juan Emilio Posada se despidió de la presidencia de ISA con premio mayor: la Carretera Panamericana Este
+-  Deride Kaşıntısız Kırmızı Lekeler: Nedenleri ve Tedavi Yöntemleri
+-  С 4:0 "Юве" нахлу в 1/2-финалите на турнира за купата на Италия
+-  Las Fuerzas Armadas de Ecuador capturan a uno de los cabecillas del grupo criminal Los Tiguerones
+-  Meta offers Canadian Facebook users $51M to settle lawsuit in 4 provinces
+-  РСПП предлагает создать отдельный нацпроект по предпринимательству
+-  Dereotlu Poğaça Tarifi: Lezzetli ve Pratik Bir Tarif
+-  กันไฟป่า
+-  CAN TOTALENERGIES – CÔTE D’IVOIRE 2023 : DÉBAUCHE D’ÉNERGIE À L’ENTRAINEMENT
+-  Post Payments Bank, Hindustan Zinc Sign To Offer Financial Inclusion Services To Its CSR Beneficiaries
+-  Barcelona se cita con Real Madrid en la final de la Supercopa de España
+-  Meet West Indies’ new names
+-  So verändert Sasa Kalajdzic das Spiel der Eintracht I. Im Herzen Europas vor Leipzig – Eintracht Frankfurt
+-  Treguesit paralajmërues të një ataku në zemër, mos i neglizhoni këto këshilla
+-  차 밟고 여성 집 훔쳐본 男 ‘소름’…스토킹 죄 성립 안된다는데
+-  Napastnik Chelsea odchodzi na wypożyczenie. Szansa w Premier League
+-  FIM DE PAPO
