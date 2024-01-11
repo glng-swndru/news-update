@@ -1,51 +1,51 @@
 # Latest News
--  Επανάληψη εκλογών στον Δήμο Αλεξάνδρειας Ημαθίας με απόφαση του Τριμελούς Διοικητικού Πρωτοδικείου Βέροιας
--  Great year for museums; Many still have financial troubles
--  Inflatable Toys Market to Develop New Growth Story
--  Energy Storage Lithium-ion Battery Market to See Huge Growth by 2024 | Tesla, Inc, Blue Energy
--  Extruded Plastics Market Set for Strong Growth, Projected to Reach $315.92 Billion by 2028 with a CAGR of 6.4%. Key Players: Apogee Enterprises Inc., Olsen Doors and Windows Limited, Fletcher Building Limited
--  State aid commissioner approves €240m for RESTART
--  Μητσοτάκης: Ο αθλητισμός ενώνει και δεν διχάζει
--  بحث إمكانية إنشاء خط غاز بين نيجريا وأوروبا مرورا بليبيا
--  Telecom Service Assurance Market Types and Applications, Drivers, Ongoing Trends, Future Demand, Challenges, Top Companies & Forecast 2023-2030 |Broadcom, Ericsson, NEC Corporation
--  17 yaşındaki Meleknur'u vurarak öldürmüştü... Zanlı cezaevine gönderildi
--  16 ilde “KAHRAMANLAR-40” operasyonu: 70 şüpheli şahıs yakalandı
--  İran'da bombalı saldırı şüphelisi 35 kişi gözaltına alındı
--  Resmen duyurdular! PSG, Sacha Boey'i doğruladı!
--  Vizyona 7 yeni film giriyor
--  Mandera scales-up bursary allocation
--  Businesses in Kikuyu struggling as festivities end
--  Finlandiya-Rusya sınırı 1 ay daha kapalı kalacak
--  Preživjela silovanje i smrt bebe, Oprah sad 'teži' milijarde dolara
--  NA INSTAGRAMU SVE DELUJE SAVRŠENO Fitnes instruktorka pokazala moć društvenih mreža i poručila ženama samo jedno
--  Insights on the Vascular Patches Market to 2023 | Industry Statistics, Emerging Demands, Forecast to 2030 | Nintendo, Sony PlayStation Portable (PSP), Xbox Cloud Gaming
--  'Şivlilik' diye gelen çocuklara etliekmek ikram ettiler
--  Backup Power Market to Develop New Growth Story
--  Trendyol 1. Lig'de yabancı sayısı gelecek sezondan itibaren düşürülecek
--  Immunzellen gegen Alzheimer – Experten sehen „wichtige Entwicklung“
--  The World’s Top 10 Most Turbulent Flight Routes in 2023
--  Digital Printing Outsourcing Service Market Company Share, Major Competitors, Regional Segments, Strategies, and Forecast until 2030 |Minuteman Press, Pixartprinting, DigitalPrinting
--  Quantexa Partners with the Anti-Human Trafficking Intelligence Initiative (ATII) to Intensify the Fight Against Human Trafficking
--  Seltener Wal vor der Küste von South Carolina wird voraussichtlich an Verletzungen sterben
--  El TEDH valida que los partidos puedan supervisar sus cuentas de correo corporativas y no sanciona el espionaje en UPYD
--  [“영하 10도에도 덜덜 떨며 킥보드 왜 타나 했더니” 20대 ‘짠내’ 이 정도?
--  [설현 “167㎝인데 체중 48㎏로 정해줬다”…‘어린’ 아이돌 연습생, 이런 일 없어진다?
--  [[박정규의 작살] 허문도 예언 적중했나
--  BOJ reportedly considers lowering price outlook for fiscal year 2024 to middle 2% range
--  Novo lice velesile: Bio je maskota i pobijedio rak, prezire Formulu 1, a razmaženi Neymar mu je ‘sredio‘ otkaz
--  Digital Devices Technologies Market Size, Share Growth Status, Emerging Technology, Key Players, Industry Challenges, and Forecast till 2030 |Bose, Cisco, Dolby, Hitachi, LG, Motorola
--  'He's criticised as overhyped player just on his IPL performances': Ashwin launches strong defence of star youngster
--  Gaat Oranje stunten? Dit moet je weten over het EK in handbalmaf Duitsland
--  নতুন মন্ত্রী-প্রতিমন্ত্রীরা বঙ্গভবনে, শপথ সন্ধ্যায়
--  সিনেমা নির্মাণে নিয়মিত হবে অন্তর শোবিজ
--  যশোরের কেশবপুরে তুচ্ছ ঘটনায় নারীকে পিটিয়ে হত্যা
--  মার্সিডিজ-হ্যারিয়ারের লোগো চুরি করত তারা!
--  Afganistan'ın kuzeydoğusunda 6.4'lük deprem!
--  Life | 'It's like something from a movie': Brunei's 'hot royal' ties the knot in 10-day extravaganza
--  Ice Cream Market to Develop New Growth Story
--  Llega la reventa de entradas de la final de murgas: 200 euros por dos bolis... y bonos de regalo
--  INEC Seeks Election Observers For Upcoming By-Election
--  Commercial Vehicle Leasing Services Market Recent Trends, In-depth Analysis, Size and Forecast 2023 to 2030 |ACE Rent A Car, Advantage Opco, ALD International SA
--  Scholz llama a la unión de los demócratas ante los planes de la ultraderecha alemana para deportar a millones de inmigrantes
--  Semiconductor Demand Boosts Extreme Ultraviolet Lithography Market with Key Players: ASML Holding N.V., Nikon Corporation, Canon Inc
--  Istituto “Marco Polo” di Palermo al “freddo”, scatta l’occupazione degli studenti
+-  חברת הלן דורון משיקה: משחקי און ליין וחוברות ללימודי אנגלית לילדים ללא תשלום
+-  [지방시대 게임체인저] 이병환 "전국 최고 부농 실현…군민중심·행복 성주로"
+-  경북도, 장애인 복지서비스 확대에 3800억원 투입
+-  [지방시대 게임체인저] 김광열 "지역경제 활력 역점…3대 전통시장 명품화"
+-  ‘ZA 문학 공모전’ 다섯 번째 수상 작품집 ‘좀비 낭군가’ 출간
+-  갓생을 위한 똑똑하고 건강한 체력 단련법…'HIIT의 과학' 출간
+-  타이완 젊은 거장 천쓰홍 장편 소설 '귀신들의 땅' 출간
+-  정영환 국힘 공관위원장 "윤심 공천은 없다"
+-  與 공관위 출범…한동훈 "이기는 공천할 것"
+-  포항시 "수소연료전지 클러스터 성공적 조성 공동 협력"
+-  כפיר אדרי: "הכי קשה שיש". איציק עובדיה: "הניצחון ייתן דחיפה"
+-  חצי שעה ממוות טרגי: הטיסה המבהילה של נבחרת גמביה לאליפות אפריקה
+-  בג"ץ דחה את העתירה בגין הפרת הסדר ניגוד העניינים של נתניהו
+-  סטודנטים תובעים את הרווארד בטענה להפליית יהודים
+-  국방부-대구시-비대위, 군 공항 활주로 방향 두고 팽팽한 입장차
+-  האין זאת מכורתי? המכתב שקיבל ברקת על התייקרויות מוצרי צריכה בסיסיים
+-  עם עזרה מהחות'ים: נמל חיפה עקף את המתחרה הדרומי
+-  Top UN Court Opens Hearings on South Africa's Gaza Genocide Claims Against Israel
+-  Bilčik: Nadamo se da će Beograd i Priština u ovoj godini naći volje za normalizaciju odnosa
+-  Čovjeka izboden nožem u napadu navijača Lacija na bar u blizini stadiona
+-  Društvo hrvatskih novinara pruža potporu rukovodstvu i djelatnicima BHRT-a
+-  Skakač s motkom Arian Milicija u Padovi postavio novi bh. rekord od 4.95 m
+-  Zbornik 'Rukopisi ' objavio konkurs za mlade književnike regiona
+-  Zrak u Evropi nikada nije bio suhlji
+-  Američki regulatori odobrili prva bitcoin sredstva u očekivanom poticaju kriptovalute
+-  Ujedinjeni Arapski Emirati ukinuli vize za Kosovare
+-  Wielka Brytania: rząd przedstawił plany czterokrotnego zwiększenia produkcji energii jądrowej
+-  Analiza poranna – Inflacja narzuci rytm
+-  Inflacja Argentyny może przekroczyć 200 proc. To gorzej niż w Wenezueli
+-  Raport: w grudniu o 27 proc. mniej nowych ogłoszeń o pracę
+-  Family of woman kidnapped and murdered after being mistaken for Murdoch’s wife hope to search farm for body
+-  Soccerladuma | FIFA Punish World Champs Argentina & Brazil!
+-  Soccerladuma | ‘Bold Partnership’ For Pirates & Chiefs Announced
+-  Soccerladuma | Sundowns' R46m Star Expected In South Africa This Week
+-  “앱 쓸 줄 몰라”… 울며 겨자먹기 설 승차권 현장구매 나선 노인들
+-  전국서 주택가격 변동률 가장 높은 세종
+-  이평구 지질硏 원장 “핵심광물 생산국 될 것”
+-  대전 중앙로지하상가 상인들, 市 일방적 입찰통보 반발
+-  ‘유류피해기금 정상화 염원’ 담은 서명지 대통령실에 전달
+-  늙어가는 대한민국 늘어나는 고령운전… 면허 반납제도 개선 절실
+-  “칭찬하면 충주가 행복해집니다”
+-  충북 기초단체 절반 이상 ‘민간위탁 조례 위법’
+-  박용석 충북보과대 총장 “유학생·지역사회 동반성장 모델 만들 것”
+-  김태흠 지사 “역동적인 ‘힘쎈충남’ 증명… 성화약진 원년 삼을 것”
+-  [4·10 총선 누가 뛰나-청주 흥덕구] 민주 도종환 4선 도전 vs 국힘 공천 혈투 예고
+-  노영민 前 비서실장 총선 불출마 촉구에 ‘계파 정치 공세’ 비판
+-  대전 고령운전자 교육장 가보니… 문제 못 풀거나 한 쪽으로만 찍기도
+-  충북·충남 농가소득, 전국 평균 보다 적었다
+-  “면허 반납 인센티브 다양화·자격평가 강화 필요” 전문가 제언
+-  이게 다 ‘먼지’
