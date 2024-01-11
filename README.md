@@ -1,51 +1,51 @@
 # Latest News
--  Los grupos armados son solo una cara de este conflicto por ser los operadores de la economía criminal, dice Bertha García, experta en temas de seguridad y militares
--  W 2023 r. deweloperzy oddali do użytku 447 000 m2 powierzchni handlowych
--  AKTUÁLNE Premávka na Námestí SNP v Bratislave je pre protest dočasne uzavretá
--  Mladší syn (17) Britney Spears prichytený na rande: Už to nie je malý chlapec… Aha, ako vyzerá!
--  Sivasspor'da ayrılık: Veda maçıydı
--  Bülent Uygun: Takımdan ayrılmak isteyenler oldu
--  Trump hakim karşısında: 'Anayasaya aykırı bir cadı avı'
--  Reli Dakar: Al Rajhi doživio nesreću i ispao iz borbe za naslov
--  Gouvernement de Gabriel Attal: Darmanin et Le Maire restent, nomination surprise de Dati à la Culture
--  Severina završila na infuziji, objasnila o čemu je riječ
--  CCPJ. Ataque na Global é "aterradora incursão na liberdade de expressão"
--  MP deduz acusação contra ativistas do Climáximo
--  Portugal entra no Euro de andebol com vitória sobre a Grécia
--  Aluna morre após chocar com porta de vidro em escola de Seia
--  Apple expands MLS partnership with ‘first-ever, all-access’ documentary series about the 2024 season
--  Vuelcan 2 tractocamiones en carretera a Juárez
--  Roce de árbol y cables de alta tensión moviliza a Bomberos
--  Google despide a cientos de trabajadores; se intensifica por la IA
--  Indian Navy Discusses Naval Cooperation With Royal Saudi Naval Forces
--  پی ٹی آئی نے خیبرپختونخوا سے قومی اور صوبائی اسمبلی کیلئے ٹکٹ جاری کردیئے
--  Remaniement : Gabriel Attal remplacé par Amélie Oudéa-Castéra à l’Éducation nationale, 3e ministre en 8 mois
--  Der FC Bayern wird für Eric Dier keine Ablösesumme zahlen
--  Тотален срив! Турската лира падна на дъното, какво се случва в южната ни съседка
--  RAMO ISAK PODIGAO BURU: 'Zastave RS-a provokacija, neće se vijoriti u Federaciji BiH'
--  Puchar Narodów Afryki. Pasażerom samolotu zabrakło tlenu
--  Silvinei Vasques apela à Justiça Eleitoral para se salvar
--  2024 metų horoskopas Skorpionams: laukia daug įdomių dalykų
--  This is how BlackRock’s Bitcoin spot ETF is trading on its first day
--  Aanrijding tussen fietser en tram in IJsselstein; fietser slechts lichtgewond
--  Kuasa Hukum Syahrul Yasin Limpo Bilang Penyidik Konfrontir 6 Saksi di Kasus Firli Bahuri
--  Fears simmer in Essequibo region as Venezuela eyes the disputed territory
--  HRT-ova ekipa na terenu s čuvarima Schengena na Savi
--  Kombinierer Nick Schönfeld aus Klingenthal: Das sagt er vor seinem ersten Weltcup-Start
--  Behinderungen auf der B 92 bei Oelsnitz ab Montag
--  Milei vuelve a prometer que cerrará el banco central de Argentina “tarde o temprano”
--  Der Tag: Frank Zander wird nach einer Gehirnoperation aus dem Krankenhaus entlassen
--  Texans lean on postseason veterans to prepare for playoff opener: 'It definitely was earned'
--  Kracherei zu Silvester & Neujahr
--  Auckland JP allegedly linked to investment scam
--  Gaza-Krieg: Robert Habeck besucht Sderot - zu Gast in einer Geisterstadt
--  Ilskan hos Oskarshamn: ”Domaren bad om ursäkt”
--  Eksotični Ferci pošteno prestrašili Slovenci, tako se je končalo
--  Estrazione Superenalotto oggi 11 gennaio 2024: i numeri vincenti
--  Barça-Osasuna, en directo
--  Morbus Dupuytren: Symptome der Viking-Krankheit
--  Örebros sågas efter mardrömsperiod: ”Vilse i pannkakan”
--  Sunass multa con más de S/ 13 millones a empresas de agua potable en el Perú
--  Toronto police ban demonstrations on Avenue Road bridge: ‘Expect to be arrested’
--  Sudáfrica acusa a Israel de «incitar al genocidio» en Gaza ante la Justicia
--  Νετανιάχου: «Σφάγιασαν, βίασαν, έκαψαν, διαμέλισαν, αποκεφάλισαν, παιδιά, γυναίκες και ηλικιωμένους»
+-  Son dakika! Trabzonspor evinde hata yapmadı
+-  Defensa del hijo del presidente Petro pide anular imputación por enriquecimiento ilícito
+-  سيريل رامافوزا.. من هو الرجل الذي سيذكره التاريخ بأنه انتصر لغزة حين باعها حكام العرب؟
+-  Bakan Bayraktar'dan Doğalgaz zammı açıklaması
+-  Elvira Czech über die ersten 100 Tage als Geschäftsführerin
+-  Franz Welser-Möst to retire as Cleveland Orchestra music director in June 2027
+-  El Banco Agrario reportó una cartera cercana a los $21 billones como logro de 2023
+-  [공식발표] 토트넘, 마침내 새 센터백 구했다...'루마니아 철벽' 드라구신 영입 확정
+-  Taitoluistelu | Pariluistelija Milania Väänänen menee seuraavaksi lääkäriin – Filippo Clerici tuskailee suomen kielen kanssa
+-  ¡Último momento! Se definió el futuro de Valentín Barco
+-  Fußballer des BSC Freiberg sind zurück auf dem Rasen
+-  Landrat stellt sich wütenden Landwirten
+-  Glatteisgefahr in Teilen des Südostens Deutschlands
+-  Leonardo Bonucci resmen Fenerbahçe'de
+-  Charges laid after 7 puppies dumped along Ontario parkway: police
+-  National Downtown Vacancy Rate Rises to Record High
+-  Hospitality workers’ wages are rising faster than high earners’ in most states
+-  Toronto synagogues reportedly turned down for federal security dollars
+-  Guyana rejects quest for US military base as territorial dispute with Venezuela deepens
+-  Mountain View: Four arrested in Christmas shooting that wounded boy
+-  Archeologists map lost cities in Ecuadorian Amazon, settlements that lasted 1,000 years
+-  ‘Oppenheimer,’ ‘Maestro,’ ‘Killers of the Flower Moon’ Among Nominees for American Society of Cinematographers Awards
+-  ‘Oppenheimer,’ ‘Maestro,’ ‘Killers of the Flower Moon’ Among Nominees for American Society of Cinematographers Awards
+-  Hamirpur (Himachal) News: उद्यान विभाग के विक्रय केंद्रों से लें सर्दियों में लगाए जाने वाले फलदार पौधे
+-  Hamirpur (Himachal) News: लोहड़ी पर्व के लिए सज गए बाजार, अलसी की रेवडियां बनीं पहली पसंद
+-  Hamirpur (Himachal) News: बुंबलू में जून तक तैयार हो जाएगा हेलीपैड
+-  Hamirpur (Himachal) News: मजदूरों ने मांगों को लेकर किया प्रदर्शन, कंपनी प्रबंधन के खिलाफ नारेबाजी
+-  Hamirpur (Himachal) News: स्वच्छता सर्वेक्षण में टॉप थ्री से नौवें पायदान पर पहुंची नगर परिषद हमीरपुर
+-  Hamirpur (Himachal) News: हमीरपुर मेडिकल ऑफिसर एसोसिएशन ने किया डिमांड चार्टर तैयार
+-  Hamirpur (Himachal) News: अंशकालीन कर्मचारियों को तीन माह से नहीं मिला वेतन
+-  Hamirpur (Himachal) News: सरकारी लैबों में लंबी कतारें, चार-चार घंटे बाद आ रहा नंबर
+-  Hamirpur (Himachal) News: सांस्कृतिक प्रस्तुतियों से बच्चों ने बढ़ाई सालाना समारोह की शोभा
+-  Aligarh News: अलीगढ़ में 12 जनवरी 2024 के कार्यक्रम
+-  Aligarh News: जिला स्वास्थ्य समिति की हुई बैठक, संविदा कर्मी की सेवाएं समाप्त
+-  Udhampur News: फिल्ट्रेशन प्लांट की मशीनें खराब अंदाजे से पानी शुद्ध कर रहे कर्मी
+-  Aligarh News: मंदिर में वृक्ष काटने से मना करने पर पुजारी को पीटा, रिपोर्ट दर्ज
+-  Udhampur News: विकास की जद में आए गरीबों के आशियाने उजड़े
+-  Aligarh News: अज्ञात वाहन की टक्कर से सब्जी विक्रेता की मौत
+-  Udhampur News: मोबाइल ने युवाओं को किया लोहड़ी की परंपराओं से दूर
+-  Aligarh News: सड़क हादसे में सिपाही की मौत, शव गांव पहुंचने पर मातम
+-  Udhampur News: इसरो में च्रदंयान निर्माण से लांचिंग तक की प्रक्रिया से रूबरू हुए छात्र
+-  बेटे के बलिदान पर गर्व, शव नहीं मिलने का अफसोस : शीश कौर
+-  Sultanpur News: 63 रन से पखरौली ने जीती ट्रॉफी
+-  Udhampur News: निसार पहलवान ने छोटे भाई नदीम को हराकर जीती कुश्ती प्रतियोगिता
+-  Aligarh News: महिला को बाथरूम में रखा तेजाब पीने के लिए उकसाया, मुकदमा दर्ज
+-  Sultanpur News: ग्रामीणों को योजनाओं के बारे में जानकारी दी
+-  Aligarh News: चैंडौली बुजुर्ग में सांड़ के हमले से किसान की मौत
+-  Sultanpur News: विद्यार्थियों को कल से मिलेगा स्मार्टफोन
+-  Sultanpur News: नरायनपुर से पयागीपुर तक हटाया अतिक्रमण
+-  Sultanpur News: विकवाजीतपुर व भपटा ने जीते क्रिकेट मैच
