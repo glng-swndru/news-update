@@ -1,11 +1,51 @@
 # Latest News
--  Caso Pativilca: Fujimori seguirá siendo juzgado por los delitos de homicidio calificado y asesinato
--  Tumbes: lluvia intensa inunda el área de emergencia del Hospital Regional JAMO
--  Los hoteles canarios espantan la sombra de la ralentización con llenos del 90%
--  ホームページ・ビルダー19パーフェクトマスター (Perfect Master) - thenewsunlimited.com
--  これからはじめるHTML CSSの本 - thenewsunlimited.com
--  ダイナミックHTML入門?例題で学ぶ次世代HTMLの世界 (INTERNET BOOKS) - thenewsunlimited.com
--  EFFECTIVE JAVA 第2版 - thenewsunlimited.com
--  ＨＴＭＬ＆ＪａｖａＳｃｒｉｐｔ上級テクニック集／Ｃ＆Ｒ研究所 - thenewsunlimited.com
--  XQuery XMLデータベース入門 DB2 9無償版で実感するXML DB用標準クエリー言語の基本 - thenewsunlimited.com
--  CSS 2スタイルシート大辞典 - thenewsunlimited.com
+-  Protest im Erzgebirge: Mit diesen Sperrungen ist am Freitag zu rechnen - So lief der Donnerstag
+-  Bigg Boss 17: Vicky Jain`s mother`s `therapy` with Ankita leaves her in tears
+-  Gaziantep FK'da Fenerbahçe maçı çalışmaları start aldı
+-  Пентагон: Проблем со воената помош на САД за Украина вредна над милијарда долари, оружјето веројатно е украденo!
+-  Bronnen: OpenAI praat met media voor licentie op nieuwsberichten
+-  In Rusland verdwijnen de gedenktekens die herinneren aan de misdaden van Stalin
+-  Groot ongeluk A1 bij Amersfoort, minstens vier gewonden
+-  Chemiebedrijf Chemours doet nieuwe poging om boete te ontlopen
+-  Recordaantal vliegtuigen besteld bij Airbus in 2023
+-  Partij Bouterse vraagt aanhangers om naar zijn huis te komen
+-  Waar draait de 'genocidezaak' van Zuid-Afrika tegen Israël om? En haalt een rechtszaak iets uit?
+-  Waakhond Pentagon onderzoekt ziekenhuisopname minister
+-  Rechter vernietigt besluit Kuipers: concentratie kinderhartchirurgie in twee ziekenhuizen van de baan
+-  Militares y policías ecuatorianos realizan redadas, mientras presos retienen a personal de prisiones
+-  Xilam Animation completa una ampliación de capital de 3,68 millones de euros
+-  Hess publicará sus resultados del cuarto trimestre, pero se salta la convocatoria en medio del acuerdo con Chevron
+-  CFRA rebaja el rating de Lucid por ventas insuficientes
+-  Rumania seguirá siendo mayor ruta de exportación alternativa para granos ucranianos: funcionario EEUU
+-  Microsoft supera durante unas horas a Apple como la empresa con mayor valor bursátil
+-  Mester de la Fed dice que marzo es "probablemente" muy pronto para un recorte de tasas
+-  El bitcóin se desinfla después de tocar los 49.000 dólares tras autorizar la SEC los ETF
+-  La CNMV abre expediente sancionador a Deutsche Bank por la venta de productos complejos
+-  Temas del día de EFE Economía del jueves 11 de enero de 2024 (19:00 horas)
+-  Petrobras descarta invertir en proyectos solares y eólicos fuera de Brasil
+-  El valor de las acciones de WW International, Inc. experimenta una fuerte caída tras los comentarios de los analistas de Craig-Hallum
+-  রিজভীর বক্তব্য ও চাবি ফেরত চাওয়ার পত্র যথাযথ নয়: ডিএমপি
+-  Uhapšen bivši ministar policije Gvatemale
+-  כוכבת 'האח הגדול' תוקפת: "מיואשת, כמה טיפשים יש במדינה"
+-  סערת דובר איכילוב: זאת המחליפה של איש התקשורת שפוטר מתפקידו
+-  الجيش الإسرائيلي: سنواصل التحرك ضد حزب الله في جنوب لبنان
+-  רני רהב מברך על החלטת בג"ץ: "מזל שהוא לא מפחד מבן גביר"
+-  Fox's Doocy: House GOP in 'disarray,' Johnson 'hanging' by a thread
+-  Tysk höger avundas svensk kärnkraft
+-  Ramaswamy backs Trump before Supreme Court in 14th Amendment case
+-  “مؤسسة حمدان للعلوم الطبية” تُعلن عن نتائج الدورة الـ26 لجوائزها المحلية والدولية للموهوبين
+-  Poništena odluka o eksproprijaciji; "Ovo je nasilna otimačina privatne svojine" VIDEO
+-  Duljaj vratio Marka Jovanovića u Partizan
+-  UŽIVO Crvena zvezda na teškom gostovanju u Forumu
+-  قطر تكشف حقيقة ما تداولته إسرائيل عن طرد قادة حماس من غزة مقابل وقف الحرب
+-  أمريكا تطالب إيران بالإفراج الفوري عن ناقلة النفط التابعة لها في بحر عمان
+-  على عكس الدموع.. لماذا المخاط لزج؟
+-  إطلالة الأميرة رجوة الحسين في أول زيارة رسمية خارجية رفقة زوجها.. لن تصدق سعر فستانها؟
+-  Где Россия готовит провокацию?
+-  Ερόλ Μπουλούτ: «Θα ήθελα τον Τάσο Μπακασέτα αλλά έχει καλύτερες προτάσεις από Παναθηναϊκό και Μπεσίκτας»
+-  Har du sett den här bilen kring Ekenäs och Tenala? Polisen ber om tips efter biljakt
+-  Un Subsaharien enterré illégalement : Mandat de dépôt contre le directeur de l'hôpital Abderrahmane Mami
+-  Запад передал ВСУ ракеты для Stinger времен войны в Афганистане
+-  – Planen har vært at de skal se på kontraktene nå på nyåret
+-  Referees course concludes on a high note
+-  Nya ägare till villa i Malmslätt, Linköping - 3 800 000 kronor blev priset
