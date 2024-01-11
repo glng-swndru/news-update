@@ -1,51 +1,11 @@
 # Latest News
--  Wayne Rooney, cerut antrenor la Manchester United!
--  U sudaru u Splitu sudjelovao dostavljač hrane: ‘Udrili smo Indijca na motoru‘
--  আজ জাতীয় স্মৃতিসৌধে নতুন মন্ত্রিসভার শ্রদ্ধা নিবেদন
--  Božo Lasić: Uz komasaciju Konavoskog polja i gradnju nove škole i tri vrtića, ove godine završit ćemo cestu prema Debelom brijegu
--  Goeroptics unveils its latest optical solutions at CES 2024, driving technological innovation in VR/AR displays
--  Riding the AI wave: GIGABYTE Unleashes AI Gaming Laptops at CES 2024
--  하드락인터내셔널, 아테네 하드락호텔 착공
--  Pimax Unveils Groundbreaking VR Innovations at CES 2024
--  If struggling with car hire, try another route | Letter
--  Judge reverses decision to centralize children's heart surgeries
--  وليد الركراكي لعب بضغط عالي وبفكر هجومي ضد سيراليون
--  Continuă problemele la Dinamo: al doilea fotbalist care refuză rezilierea contractului
--  Ispočetka se činilo da je servalka možda ona iz Slovenije, za kojom se traga, no sve je daleko kompliciranije
--  Пенсійний фонд Росії вигадав, як приховати втрати серед окупантів
--  Borussia Dortmund unterläuft bitterer Fehler – große Maatsen-Überraschung geplatzt
--  Presenta Bonilla los 83 proyectos ganadores del Presupuesto Participativo 2024
--  “El amor de marero es firme y sincero”, decía un pandillero en redes sociales: ya fue capturado
--  «ΑΠΟΕΛ, Άρης, Ανόρθωση και ΑΕΚ υπερτερούν έναντι των άλλων»! (ΒΙΝΤΕΟ)
--  France: Attal fait face à « une vague de haine antisémite et homophobe » dénoncent des ONG
--  Crni rekord na početku nove godine: samo u prvom tjednu siječnja od covida umrlo čak 50 ljudi
--  LIVE: Följ LHC i matchen mot Malmö – vi rapporterar
--  Komm mit zum Tanzabend
--  El Kazajoz abre el calendario extremeño en Quintana de la Serena
--  Povedzme si pravdu o starých eurofondoch
--  Work begins to build 278 apartments in 31-story tower on Liverpool waterfront
--  11 Spot Bitcoin ETFs Received SEC Approval. Here’s the Complete List.
--  MNOGO KASNIJE NEGO ŠTO MISLITE Kada dete treba da dobije mobilni telefon i pristup društvenim mrežama?
--  Thêm một sao La Liga bị Trung Đông thu hút
--  Sancho mang sự phấn khích ở Dortmund, lựa chọn xong cạ cứng
--  Palace ra đề xuất mới, quyết kéo Nketiah khỏi Arsenal
--  Vận xui đeo bám Rashford bên ngoài sân cỏ
--  Benzema âu yếm vợ cũ khi bạn gái vừa sinh con
--  7 kỷ lục phi thường Messi có thể phá vỡ trong năm 2024
--  3 cầu thủ Liverpool nên theo dõi tại Asian Cup
--  Timo Werner và điều hiếm thấy với Man Utd
--  Man Utd được gì khi đẩy Sancho đi?
--  CLB bãi biển choáng ngợp của David Silva
--  అడుగంటుతున్న..ఆశలు
--  Habère-Poche. Le Petit Casino ferme ses portes en attendant un commerçant franchisé
--  Helyesírás teszt: ezzel gyakorolhattok a középiskolai felvételire
--  Osmer Morales coronó temporada de Regreso del Año
--  Diese Schätze gibt es im Bezirksmuseum zu bestaunen
--  Anhörung zu Völkermord-Klage gegen Israel
--  Velikom rođendanskom proslavom obilježeno 10 godina RTL Kockice! Na okupljanju bila poznata voditeljska lica
--  توقيف "تيكتوكر" متورط في استغلال أطفال قاصرين بطنجة
--  الركراكي يعزز تشكيلة الأسود بأسماء جديدة لخوض منافسات ال"الكان"
--  مدرب مارسيليا يوضح حقيقة بيع عقد أوناحي
--  استطلاع: أكثر من نصف الفرنسيين لا يثقون في رئيس الوزراء الجديد
--  تشكيلة الوداد الرياضي أمام المغرب الفاسي
--  ارتفاع أسعار النفط ب1% وخام برنت يتجاوز 77 دولارا
+-  Caso Pativilca: Fujimori seguirá siendo juzgado por los delitos de homicidio calificado y asesinato
+-  Tumbes: lluvia intensa inunda el área de emergencia del Hospital Regional JAMO
+-  Los hoteles canarios espantan la sombra de la ralentización con llenos del 90%
+-  ホームページ・ビルダー19パーフェクトマスター (Perfect Master) - thenewsunlimited.com
+-  これからはじめるHTML CSSの本 - thenewsunlimited.com
+-  ダイナミックHTML入門?例題で学ぶ次世代HTMLの世界 (INTERNET BOOKS) - thenewsunlimited.com
+-  EFFECTIVE JAVA 第2版 - thenewsunlimited.com
+-  ＨＴＭＬ＆ＪａｖａＳｃｒｉｐｔ上級テクニック集／Ｃ＆Ｒ研究所 - thenewsunlimited.com
+-  XQuery XMLデータベース入門 DB2 9無償版で実感するXML DB用標準クエリー言語の基本 - thenewsunlimited.com
+-  CSS 2スタイルシート大辞典 - thenewsunlimited.com
