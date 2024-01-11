@@ -1,51 +1,51 @@
 # Latest News
--  Quận 12 đón nhận Huân chương Lao động hạng ba
--  Cựu HLV tuyển Anh Sven-Goran Eriksson mắc ung thư nguy kịch
--  Bệnh viện nói gì về vụ cô gái 26 tuổi bị xuất huyết não sau phẫu thuật thẩm mỹ?
--  Hướng Hóa chấn chỉnh tour đi thuyền ngắm phong hương thay lá như trời Âu
--  Bắt tạm giam giám đốc dùng 80 tờ hóa đơn 'dỏm', trốn thuế hơn 10 tỉ đồng
--  EVNSPC đảm bảo cung cấp điện cho 21 tỉnh thành phía Nam
--  Hàn Quốc: Nuôi chó dữ phải xin phép chính quyền địa phương
--  Người trong cuộc nói gì về mô hình Sở hữu kỳ nghỉ?
--  Thót tim cảnh người dân đốt pháo hoa ở ban công chung cư cao tầng
--  Hàng nghìn tỉ quỹ bình ổn xăng dầu khó được thu hồi
--  Bom tấn Hollywood nào sẽ công phá phòng vé rạp Việt đầu năm?
--  Cứu 2 thiếu niên bị chấn thương nặng do tự làm pháo bằng máy xay sinh tố
--  Ứng viên tổng thống Đảng Cộng hòa 'đấu tố' nhau nhưng né chỉ trích ông Trump
--  Tổng thống Indonesia Joko Widodo bắt đầu thăm Việt Nam
--  Nước mặn xâm nhập sâu vào đất liền hơn 50km
--  Cả năm có một cái Tết, sao không cho học sinh nghỉ nhiều hơn, sớm hơn?
--  Prodaja električnih automobila porasla 31 posto na globalnom nivou u 2023. godini
--  Opera 'Madama Butterfly' u režiji Tadije Miletića 13. januara na sceni NPS
--  Rusija uhapsila ljevičarskog proratnog aktivistu Sergeja Udalcova
--  In 11 months of 2023, BiH with more than 1.6 million tourists and over 3.4 million overnight stays
--  اشكال واعتداء على الأهالي.. هذا ما حصل في فوج اطفاء بيروت
--  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 12 января 2024 года
--  Taza : Arrestation de deux mineurs soupçonnés d’atteinte à la sécurité de la circulation sur les chemins de fer (source sécuritaire)
--  'แพรรี่ ไพรวัลย์'เปิดตำราจีน เผยข้อมูลที่เป็นความรู้ 8 ข้อ หลังมีดราม่าปีชง
--  สาวโคราชใจรักศิลปะ! ทุ่มเวลาหัดสร้างโมเดลจากเส้นลวดกว่า 20 ปี ล่าสุดออเดอร์เพียบ
--  คนร้ายยิงถล่มตำรวจ ตชด. อ.รือเสาะ จ.นราธิวาส 'ร.ต.ท.'เสียชีวิต 1 นาย
--  Arresto cardiaco sul volo Catania-Milano Malpensa: giovane medico gli salva la vita
--  ACHADOS DA BOLSA
--  GUIA DE COMPRAS
--  ‘We could all have been dead’ – Wrexham star involved in terrifying Africa Cup of Nations plane scare
--  UOL NO VERÃO
--  द्रविड़ ने किया खुलासा- मोहाली में यह युवा होगा रोहित का जोड़ीदार
--  Uhapšen bivši poslanik NSRS
--  IJspret naast de Pikse Boogert in Culemborg
--  Grof Geschud naar Beusichems Theater Heerenlogement
--  Minnesotan ruotsalaisvahdilla painajaismainen NHL-debyytti - "Tuntui etten saanut mitään kiinni"
--  Uusien sähköautojen suosio kasvoi viime vuonna – asiantuntija kiirehtisi bensa-autojen saamista pois liikenteestä kannustimien avulla
--  김도균 속초·인제·고성·양양 예비후보, "동해 남북완충구역 지켜야"
--  신림농협 원로조합원, 경로당 등 운영비 전달
--  횡성소방서 대형화재대비 화재안전지도
--  내고향마트 성금 기탁
--  "마스크 꼭 착용하세요"… 12일 대체로 맑고 미세먼지 ‘나쁨’
--  검찰, 직권남용 혐의 전 춘천시보건소장 징역 1년 6개월 구형
--  여에스더 운영 온라인 쇼핑몰, 결국 영업정지 2개월 행정처분
--  İki tırın çarpışması sonucu çıkan yangında şoför hayatını kaybetti
--  Konya Otogarı, hizmet kalitesiyle Türkiye’ye örnek oluyor
--  Konya'da şivlilik geleneği sürüyor! Çikolataları kapıya astılar
--  Eskişehir'de 25 yıllık Büyükerşen dönemi bitti: CHP'nin yeni adayı Ayşe Ünlüce
--  Tesisat ustasına otomobilde pusu!
--  Minibüsün markete daldığı kaza kamerada: 5'i ağır, 6 öğrenci yaralı
+-  Ertuğrul Doğan: "Sürdürülebilir finansal yapı modelini başarmak zorundayız"
+-  Bir parti seçime katılmayacak: Seçime katılan parti sayısı 36'dan 35'e düştü
+-  Gazze kasapları adalet önünde: İsrail'in Lahey'de yargılanmasına başlandı
+-  CAC40 : en légère hausse avant l'inflation américaine
+-  Ulaştırma Bakanı'ndan Tel Aviv ile ticaret açıklaması: Türkiye’den İsrail’e günde 8 gemi gidiyor
+-  Live updates | UN top court hears genocide allegation as Israel focuses fighting in central Gaza
+-  '2023 was absoluut topjaar voor Schaffelaartheater; zaalbezetting bovengemiddeld in Nederland'
+-  شاہین شاہ آفریدی نیوزی لینڈ کیخلاف سیریز میں پہلی بار قیادت کیلئے تیار
+-  Artenvielfalt-Doku „Die 2050er“: Botschaft aus der Zukunft
+-  AB ülkeleri Ukrayna ile ticaretin serbestleştirilmesinin uzatılması için fikir alışverişinde bulunuyor
+-  Berkan Kutlu, Galatasaray'a geri dönüyor
+-  Antoine Griezmann'dan tarihi başarı! Atletico Madrid'in en golcü futbolcusu
+-  Cumhurbaşkanı Erdoğan, Bahçeli ile görüşecek
+-  İstanbul, Kocaeli ve Bursa rekor ihracatın yüzde 51'ini oluşturdu
+-  Bakan Fidan'dan "Afganistan" sorusuna cevap
+-  Kahramanmaraş'ta depremden etkilenen tarihi yapılar yeniden ayağa kaldırılıyor
+-  "Tarihi bir karar olacak" demişti... Özgür Özel Hatay sözlerinden çark etti
+-  Afganistan'da 6,3 büyüklüğünde deprem
+-  Zeytinburnu'nda Regaip Kandili'ne özel camiler gül suyuyla yıkandı
+-  Organizan una segunda sesión de 'Go!azen 10.0' y las entradas se ponen a la venta este sábado
+-  „Tropfen, der das Fass zum Überlaufen bringt“: Brandenburgs Ministerpräsident Woidke kritisiert erneut geplante Kürzungen für Bauern
+-  Bitcoin ETF onayının ardından ABD'de gözler Ethereum ETF'de
+-  "래시포드가 하는 일은 산책, 공을 향해 걸어가는 것!"…맨유 선배의 '맹비난', "게으른가? 오만한가? 자신감 부족인가?"
+-  "이렇게까지 해 준다고? 미쳤다!"…임영웅, 콘서트 새 지평 연 미담 史 [MD이슈](종합)
+-  공룡들이 꿈에 그리던 ML 54홈런 거포…나성범·양의지 떠난 한을 풀까 ‘34.3%가 걸리네’
+-  유재석→제니, 뭘 봤길래…화들짝 놀랐다 [아파트 404]
+-  [오피셜] '중원 보강 성공' 수원FC, '만능 자원' 이재원 품었다..."새로운 도전 시작하게 돼 영광"
+-  «„Загоны“ на тему национальной идеи». В России упрекнули «Барыс» за отношение к КХЛ
+-  "이마나가 원하지 않았다" 131억 류현진에게 시선 돌리나, SF행 가능성 제기됐다
+-  «Бум — и полетели»: Путин назвал неожиданную причину космических цен на яйца в России
+-  Славниот шведски тренер обелодени дека му останува уште „најмногу“ една година живот
+-  Avrupa Borsalarında Yükseliş Görüldü
+-  Boğazları yumuşacık yapan Çeşm-i Nigar çorbası! Osmanlı'nın favori çorba tarifi: Evdekiler her gün bundan isteyecek
+-  Mary beliebter als Frederik? Die Dänen nennen sie „König Mary“
+-  U masakrua me thikë nga partneri dhe shoku i tij, sot i jepet lamtumira e fundit 41-vjeçares shqiptare
+-  Eemi Tervaportille parhaan lentopalloilijan tunnustus
+-  Çobanı da ithal ettik! Yerli çoban bulamayınca İran'dan çoban getirdi: İnterneti ve televizyonu da var, maaşı ise...
+-  Les entreprises tunisiennes à l’assaut du CES 2024 aux USA
+-  Gardaí issue appeal after man with machete causes panic at Waterford shopping centre
+-  Тошкентда Lacetti билан тўқнашган Lada Vesta ағдарилиб кетди.
+-  Қозоғистон Ўзбекистонга ёғ ва қора металлургия маҳсулотларини етказиб беради.
+-  Еврокомиссар Бретон: ЕИ баҳорда Киевга 1 млн снаряд етказиб беради.
+-  Ўзбекистонда материаллари тарқатилиши тақиқланган саҳифаларнинг янги рўйхати эълон қилинди.
+-  Тошкент – Истанбул рейси Анқарага қўнишга мажбур бўлди .
+-  Малайзия Ўзбекистонда озиқ-овқат ишлаб чиқариш бўйича лойиҳани амалга оширмоқчи.
+-  Тадбиркорлик соҳасида айрим мажбурий талаблар бекор қилинмоқда .
+-  Видео: Тошкентда йўловчилар чангга тўла ифлос автобусда ташилмоқда.
+-  Исроил Ғазо секторидаги геноцид бўйича айбловларни рад этиб чиқди.
+-  Фарғонада 200 тупдан ортиқ дарахти бўлган ҳудуд қурилиш фирмаси томонидан ўраб олинди.
+-  Навалний биринчи марта Ямалдаги колониядан видео-алоқа орқали чиқиш қилди.
