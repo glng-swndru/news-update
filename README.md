@@ -1,11 +1,51 @@
 # Latest News
--  Pelaku Bajing Loncat yang Viral di Makassar Telah Mendekam di Hotel Prodeo, Satu Masih Dikejar
--  Asesinan con arma blanca a indigente en Cuauhtémoc
--  Buscan a Gobernador Infantil 2024 por un día
--  আঙুলের থেকেও ছোট এই ফোন
--  할리우드 진출한 김윤지, 강렬한 레드 드레스…몸매까지 할리우드st
--  Galatasaray'da Okan Buruk kendisine gelen topa şık bir vuruş yaptı! Tüm stat onu alkışladı, akıllara Fatih Terim geldi
--  La emotiva fiesta de cumpleaños del Rey Juan Carlos en su casa de Abu Dabi (Fotos)
--  Minister Kodwa cheers Bafana Bafana for AFCON amid injury worries
--  La Policía de Ecuador capturó terroristas y liberó a tres oficiales secuestrados: siguen los ataques y las cárceles tomadas
--  Mauaji Njombe yaacha maswali, Polisi wajitosa
+-  Trans Nzoia: Mogoiywet primary closed indefinitely after rotting body of grade 6 pupil is found
+-  Gladson determina que gestores passem por formação sobre raça, gênero e diversidade
+-  Imster PfadfinderInnen verteilten Friedenslicht aus Bethlehem
+-  Semagric anuncia que ponte na Linha 22 será interditada para manutenção
+-  תחרות ריצה, אתגר טיקטוק, ומחווה ללברון ג'יימס: צפו במופע הקורע של נובאק ג'וקוביץ' לפני אליפות אוסטרליה
+-  Daniel Ortega Cumple 17 años en el poder con la mirada puesta en una «dinastía familiar»
+-  Here’s the inflation breakdown for December 2023 — in one chart
+-  Hrvatska spremna za start, Duvnjak ne zaboravlja bolan poraz: ‘Nadam se da ćemo im za to vratiti’
+-  Odlazak poslednjeg heroja prošle epohe novinarstva
+-  Избират място за новата варненска библиотека след обществено обсъждане - Труд
+-  Consumidores devem ficar atentos a lista de material escolar, alerta Procon Rondônia
+-  Reports: Sam Altman set to meet with US House Speaker Mike Johnson
+-  ابتداء من اليوم.. توزيع ألفيْ طن من السكر في الأسواق
+-  Mujović sjutra u Pljevljima: Obilazi Rudnik uglja, kop Šumane...
+-  Milatović: Stabilan Zapadni Balkan zajednički interes
+-  Brasilianer berichten von Einigung, aber… - Werder-Klartext über Borré-Gerüchte
+-  Zvanično: Sančo na pozajmici u Borusiji Dortmund
+-  FlyNamibia cancels flights due to safety issues
+-  Kanton investiert in diesem Jahr 159 Millionen in die Aargauer Strassen – das sind die grössten Baustellen
+-  Lendo: Svečanost povodom 9. januara kulminacija je Dodikove antidejtonske politike
+-  BiH CoM supports the amendments to the Law on Civil Service, one of the priorities on EU path
+-  Utakmicom Katar-Liban sutra počinje Azijski kup
+-  Počela isplata novčanih naknada civilnim žrtvama rata u Kantonu Sarajevo
+-  Delegacija Ministarstva pravde SAD u posjeti Federalnoj upravi policije
+-  Paulista A3: União São João marca amistoso contra o Corinthians para sexta-feira
+-  U.S. Inflation Accelerates, Tempering Case For Fed To Cut Rates
+-  "Славия" объявила о подписании Чижа, также в клуб перейдет Соловей
+-  Кубок Италии. "Ювентус" - "Фрозиноне". На что поставить?
+-  Виталий Лисакович отправится в аренду в "Балтику"
+-  Медведь проведет вторую часть сезона в аренде в пловдивском "Локомотиве"
+-  Максим Скавыш: "Звали в Борисов, но тогда уже договорился с Жодино"
+-  Вадим Курлович вернулся в "Слуцк"
+-  Максим Скавыш подписал контракт с "Торпедо-БелАЗом"
+-  Опытный защитник продлил контракт с брестским "Динамо"
+-  БАТЭ проведет предсезонные сборы в Минске и Витебске
+-  "Слуцк" усилился голкипером
+-  Prezydent wszczyna postępowanie ułaskawieniowe
+-  Frankfurt - Kellerbrand macht Haus unbewohnbar
+-  Над Калужской областью сбит беспилотник
+-  Hunting the Essex Lorry Killers: Single fingerprint exposed killing of 39 Vietnamese migrants
+-  Mercato Milan, in chiusura Krunic al Fenerbahce: cosa manca per la fumata bianca
+-  Vysoká hladina cukru v krvi? Pro mnoho ptačích druhů žádný problém
+-  Leader ruft zu Projekteinreichungen auf
+-  Ola de violencia en Guayaquil obliga a habitantes a tomar medidas drásticas para sobrevivir
+-  Austrian privacy activist group intensifies grievance against Meta- Republic World
+-  На извънреден събор БЛС обсъжда условията на анекса към новия рамков договор
+-  Dünyanın gözü önünde büyük kıyım! Gazze'de can kaybı 23 bin 357'ye yükseldi
+-  Medwedew droht wieder mit Atomwaffen
+-  After 14 years of Tory misrule, voters will crave a fresh start. That may be a blessing for Starmer – or a curse | Andy Beckett
+-  Евгений Герасимов назвал Юрия Соломина человеком удивительной теплоты и порядочности
