@@ -1,11 +1,51 @@
 # Latest News
--  ‘Greek Cypriots using lawyer case to disrupt UN envoy’s work’
--  PC Shipments Show Signs Of Recovery In Q4 CY23
--  FCI To Construct 3.4 MT Wheat Silos Under PPP Model
--  Apple’s Appeal Seeking Stay In Its Smartwatches Dispute Rejected By US ITC
--  Ministry Of Steel Has No Plans To Increase Import Taxes: Govt Sources
--  Cheshire West & Chester Council Approves UK’s Largest Hydrogen Production Hub
--  Union Railway Minister Unveils 'Indian Railways Construction Manual 2023'
--  Delhi: 24 Trains Running Late Due To Dense Fog
--  Robust Security And Traffic Measures Implemented Ahead of Ayodhya's 'Pran Pratishta' Ceremony
--  Amidst AI Risks US Lawmakers May Regulate Federal Agencies & AI Vendors
+-  Quận 12 đón nhận Huân chương Lao động hạng ba
+-  Cựu HLV tuyển Anh Sven-Goran Eriksson mắc ung thư nguy kịch
+-  Bệnh viện nói gì về vụ cô gái 26 tuổi bị xuất huyết não sau phẫu thuật thẩm mỹ?
+-  Hướng Hóa chấn chỉnh tour đi thuyền ngắm phong hương thay lá như trời Âu
+-  Bắt tạm giam giám đốc dùng 80 tờ hóa đơn 'dỏm', trốn thuế hơn 10 tỉ đồng
+-  EVNSPC đảm bảo cung cấp điện cho 21 tỉnh thành phía Nam
+-  Hàn Quốc: Nuôi chó dữ phải xin phép chính quyền địa phương
+-  Người trong cuộc nói gì về mô hình Sở hữu kỳ nghỉ?
+-  Thót tim cảnh người dân đốt pháo hoa ở ban công chung cư cao tầng
+-  Hàng nghìn tỉ quỹ bình ổn xăng dầu khó được thu hồi
+-  Bom tấn Hollywood nào sẽ công phá phòng vé rạp Việt đầu năm?
+-  Cứu 2 thiếu niên bị chấn thương nặng do tự làm pháo bằng máy xay sinh tố
+-  Ứng viên tổng thống Đảng Cộng hòa 'đấu tố' nhau nhưng né chỉ trích ông Trump
+-  Tổng thống Indonesia Joko Widodo bắt đầu thăm Việt Nam
+-  Nước mặn xâm nhập sâu vào đất liền hơn 50km
+-  Cả năm có một cái Tết, sao không cho học sinh nghỉ nhiều hơn, sớm hơn?
+-  Prodaja električnih automobila porasla 31 posto na globalnom nivou u 2023. godini
+-  Opera 'Madama Butterfly' u režiji Tadije Miletića 13. januara na sceni NPS
+-  Rusija uhapsila ljevičarskog proratnog aktivistu Sergeja Udalcova
+-  In 11 months of 2023, BiH with more than 1.6 million tourists and over 3.4 million overnight stays
+-  اشكال واعتداء على الأهالي.. هذا ما حصل في فوج اطفاء بيروت
+-  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 12 января 2024 года
+-  Taza : Arrestation de deux mineurs soupçonnés d’atteinte à la sécurité de la circulation sur les chemins de fer (source sécuritaire)
+-  'แพรรี่ ไพรวัลย์'เปิดตำราจีน เผยข้อมูลที่เป็นความรู้ 8 ข้อ หลังมีดราม่าปีชง
+-  สาวโคราชใจรักศิลปะ! ทุ่มเวลาหัดสร้างโมเดลจากเส้นลวดกว่า 20 ปี ล่าสุดออเดอร์เพียบ
+-  คนร้ายยิงถล่มตำรวจ ตชด. อ.รือเสาะ จ.นราธิวาส 'ร.ต.ท.'เสียชีวิต 1 นาย
+-  Arresto cardiaco sul volo Catania-Milano Malpensa: giovane medico gli salva la vita
+-  ACHADOS DA BOLSA
+-  GUIA DE COMPRAS
+-  ‘We could all have been dead’ – Wrexham star involved in terrifying Africa Cup of Nations plane scare
+-  UOL NO VERÃO
+-  द्रविड़ ने किया खुलासा- मोहाली में यह युवा होगा रोहित का जोड़ीदार
+-  Uhapšen bivši poslanik NSRS
+-  IJspret naast de Pikse Boogert in Culemborg
+-  Grof Geschud naar Beusichems Theater Heerenlogement
+-  Minnesotan ruotsalaisvahdilla painajaismainen NHL-debyytti - "Tuntui etten saanut mitään kiinni"
+-  Uusien sähköautojen suosio kasvoi viime vuonna – asiantuntija kiirehtisi bensa-autojen saamista pois liikenteestä kannustimien avulla
+-  김도균 속초·인제·고성·양양 예비후보, "동해 남북완충구역 지켜야"
+-  신림농협 원로조합원, 경로당 등 운영비 전달
+-  횡성소방서 대형화재대비 화재안전지도
+-  내고향마트 성금 기탁
+-  "마스크 꼭 착용하세요"… 12일 대체로 맑고 미세먼지 ‘나쁨’
+-  검찰, 직권남용 혐의 전 춘천시보건소장 징역 1년 6개월 구형
+-  여에스더 운영 온라인 쇼핑몰, 결국 영업정지 2개월 행정처분
+-  İki tırın çarpışması sonucu çıkan yangında şoför hayatını kaybetti
+-  Konya Otogarı, hizmet kalitesiyle Türkiye’ye örnek oluyor
+-  Konya'da şivlilik geleneği sürüyor! Çikolataları kapıya astılar
+-  Eskişehir'de 25 yıllık Büyükerşen dönemi bitti: CHP'nin yeni adayı Ayşe Ünlüce
+-  Tesisat ustasına otomobilde pusu!
+-  Minibüsün markete daldığı kaza kamerada: 5'i ağır, 6 öğrenci yaralı
