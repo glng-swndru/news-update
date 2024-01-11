@@ -1,11 +1,51 @@
 # Latest News
--  Enerji Bakanı Bayraktar'dan doğalgaz zammı açıklaması: Bu kış zam yok
--  Fenerbahçe Bonucci'yi açıkladı. Çubukluyu giydi anlaşmanın detayları duyuruldu
--  Lawyer claims that AZ steward lied about his injuries suffered by Legia Warsaw player
--  Bülent Uygun'dan Galatasaray'a 'ofsaytımsı' göndermesi: Penaltımsı mı?
--  «Сражаться будем до конца, мы не отступим» Брат Салтанат Нукеновой
--  Schock bei Bieler Regional-TV: TeleBielingue verliert die Konzession
--  Ramil Şeydayevin maaşı açıqlandı
--  Atacan terminal y suspenden transporte en zonas de Acapulco
--  Terrorveszély miatt megállítottak egy Brüsszelbe tartó buszt a belga rendőrök
--  Chery'den iki oda bir salon SUV! Chrey'nin rekabetçi fiyatıyla öne çıkan devasa elektriklisi satışta
+-  Franco Armani eligió su mejor atajada en River
+-  Susjedi o ubijenom pripadniku škaljarskog klana u Brazilu: ‘Živjeli su mirno i povučeno, a on je bio stolar‘
+-  Sorgen efter mamman och dottern – dog av förgiftning
+-  האינפלציה בארה"ב תמשיך לטפס? "האיום החות'י מגביר את החשש"
+-  סקר מנדטים חדש: הליכוד בקריסה, וכמה קיבל סמוטריץ'?
+-  דובר צה"ל מפסיק את ההצהרות היומיות: "שלב ג' כבר איתנו"
+-  חברות התעופה חוזרות לישראל: הרשימה המלאה נחשפת
+-  דידי הררי מככב בעזה: זו הבקשה המרגשת של הלוחמים ברצועה
+-  המוצר המזויף נחשף: הבטיחו "ירידה במשקל" - משרד הבריאות מזהיר
+-  New ZBC board appointed amid Lobengula sugar gaffe controversy
+-  Jessica Simpson pokes fun at her viral ‘Newlyweds’ Chicken of the Sea blunder in hilarious new ad
+-  Suspensión temporal de traslado de calderas en sur de Tamaulipas
+-  "Historische Vier" bleiben: Klostermann verlängert Vertrag bei RB Leipzig
+-  Macron hält an Schwergewichten im Kabinett fest
+-  US-Luftfahrbehörde ermittelt gegen Boeing
+-  Von 0 auf 100: Wird die FDP in Sachsen zum Retter für Kretschmer?
+-  Hoffen auf Millionen für Zwickau: Forschungszentrum als Herzstück für neues Quartier in Eckersbach
+-  EA FC 24: How to complete End of an Era Hugo Lloris SBC
+-  Inundaciones en Corrientes: Esquina y Santa Lucía se declararon en emergencia hídrica
+-  Fenerbahce ‘reject English Premier League offer’ for Ryan Kent after shock ex-Rangers boss reunion mooted
+-  La Juventus celebra la Supercoppa vinta dalle Women, GAMA: "Siamo orgogliose, abbiamo vinto 12 titoli"
+-  Baerbock: a világnak nincs szüksége még egy válságra
+-  Remaniement. Les défis qui attendent Catherine Vautrin, propulsée à la Santé et au Travail
+-  క్లీన్‌ వైజాగ్‌
+-  Καστελάνι: «Εχουμε βελτιωθεί, αλλά δεν περίμενα να κερδίσουμε με 3-0»
+-  Latvijas handbola izlase EČ priekškvalifikācijas pirmajā mačā izcīna uzvaru pār Luksemburgu
+-  Süper Lig'de ilk yarı fikstürü tamamlandı
+-  ABD bütçesi Aralık 2023'te 129 milyar dolar açık verdi
+-  Gazze kasabı Netanyahu'dan alçak savunma: Suçlamalar yalan
+-  Fenerbahçe yıldız orta sahasına kavuşuyor! Rade Krunic'in geliş tarihi netleşti
+-  Paul Onuachu: Zor maç olacağını biliyorduk
+-  Abdullah Avcı: Yabancı kuralı sürekli değişiyor
+-  İnsan Hakları İzleme Örgütü: İsrail'in Filistinlere yönelik baskısı, insanlığa karşı suçtur
+-  «القوى العاملة»: تطوير عملية استقدام العمالة الماهرة
+-  إيقاف 24 مكتباً لاستقدام العمالة المنزلية في الفروانية والجليب
+-  وزير الداخلية يخاطب وزير الخارجية: تسهيل إجراءات «الدرة» في الدول المصدِّرة للعمالة لسدّ حاجة السوق منها
+-  «الكهرباء»: إنشاء 3 خزانات في «المطلاع» بقيمة 29.294 مليون دينار
+-  الكويت تبحث التعاون العسكري مع باكستان
+-  تسليم المركز الصحي بـ N11 في «المطلاع» إلى «الصحة»
+-  شبكة المرأة العربية: نطالب بتحرك عربي وندعم شكوى جنوب أفريقيا ضد إسرائيل
+-  فيصل الحمود: كل التقدير لشبابنا المتميز وكوادرنا الوطنية الأكاديمية
+-  معهد سعود الناصر يقدم 40 برنامجاً تدريبياً لمنتسبي «الخارجية» والجهات الحكومية خلال 2024
+-  نائب وزير الخارجية ترأس اجتماع مجلس السلكين الديبلوماسي والقنصلي
+-  وزير الأشغال: توسعة «أم الهيمان» من أهم مشاريع خطة التنمية
+-  “Tesla” vadītājs uz gājēju pārejas notriec bērnu
+-  Banda do Boulevard 2024 vai ocorrer no dia 4 de fevereiro com homenagem a Maneca
+-  Космонавт показал ночной снимок Минска с высоты МКС
+-  It's not just you — the TikTok Shop will show you literally anything
+-  Ganancias de bancos en México apuntan a máximos históricos en 2023; estos son los que tienen las mayores
+-  Comuneros de Atécuaro toman Ayuntamiento de Morelia; ya se les atendió: Secretaría
