@@ -1,51 +1,51 @@
 # Latest News
--  카카오헬스케어, JP모건 '헬스케어 콘퍼런스'서 '파스타·프로젝트 델타' 알렸다
--  다방 "지난해 10명 중 4명 원룸 찾아"...신림·수원역 검색 多·12월 매물 조회 활발
--  عاجل.. حساب المواطن يوضح لماذا نزل لأسرة مكونة من 6 أفراد 875 ريالاً فقط؟
--  Polizei entlarvt „Mönch“ aus Lützerath
--  Thắng Fulham, Klopp tung sao trẻ lên mây
--  Día Internacional del Agradecimiento: por qué se celebra cada 11 de enero
--  Mario Draghi treedt weer op de voorgrond
--  1946-2024
--  Vakantiebeurs rekent dit jaar op meer bezoekers dan in 2023
--  DSWD, DILG chiefs deny cha-cha signature drive participation
--  ترند اليوم| خطوبة ليلى أحمد زاهر وأزمة الإكوادور
--  Επίδομα παιδιού: Ανοικτή για αιτήσεις η πλατφόρμα Α21 - Πότε θα πληρωθούν οι δικαιούχοι
--  Mit 71 Jahren hält sich Wladimir Putin immer noch für voll handlungsfähig
--  سجل أبطال كأس آسيا عبر التاريخ.. السعودية الأكثر تتويجا بين المنتخبات العربية
--  Guatemala firma adhesión al TLC Centroamérica – Corea del Sur
--  Former All-Star reliever Shane Greene among 3 more RHPs that Rangers sign to minor deals
--  Los costos del transporte marítimo se disparan por la crisis del mar Rojo
--  Así puedes cambiar el color de las letras de WhatsApp a rojo
--  Study: 90% MSMEs Confident About India’s Economy In 2024
--  Ozzy Osbourne says T-Pain’s ‘War Pigs’ cover is the “best ever”
--  UHF 에너지 이용하는 피팅 리프팅 원리와 체크포인트는?
--  Σύσκεψη Κικίλια με τον περιφερειάρχη Αττικής και νεοεκλεγέντες δημάρχους
--  Con khoe bữa trưa ở trường mẫu giáo rất ngon, ngày nào cũng hết 2 bát lớn, mẹ sốc nặng khi nhìn ảnh thực tế
--  2023年中小企业创新能力明显增强 各项支持政策广受欢迎
--  新华时评丨冬天里的一把火，照出别样的东北
--  提升耕地质量筑牢粮食安全根基 我国高标准农田建设扎实推进
--  文旅新探|哈尔滨：2024的北国情书
--  呼吸道感染期间 饮食四宜四忌
--  2023年国家铁路客货运输均创历史新高
--  新华全媒+丨世界最长海底高铁隧道首台盾构机成功下线
--  警界楷模 以榜样光辉照亮庄严警徽
--  挑大梁、勇担当 长沙奋力打造全球研发中心城市
--  坚定弘扬全人类共同价值——推动世界走向和平、安全、繁荣、进步的光明前景③
--  像空气一样无处不在、无时不有
--  深刻领会习近平文化思想的丰富内涵
--  拨款法案悬而待决 美国联邦政府仍难走出“停摆”危机
--  到2025年底 5G将通达边疆地区县城乡镇驻地
--  新疆开行首趟乡村振兴图定班列
--  通讯｜美国从未停止干涉拉美国家——巴拿马“护旗运动”亲历者的控诉
--  以大党独有优势破解大党独有难题
--  深入学习贯彻习近平总书记关于党的自我革命的重要思想
--  坚决打赢反腐败斗争攻坚战持久战——论学习贯彻习近平总书记在二十届中央纪委三次全会上的重要讲话
--  中国减降关税惠及世界
--  “长大后做孟中友谊的使者”
--  吉首市旅游市场持续升温
--  岳阳首本农村土地经营权不动产权证书发放
--  지평, 美 로펌 Steptoe(스텝토)와 '글로벌 M&A와 기업결합규제 동향' 세미나 개최
--  박찬대 "이재명, 당무 복귀 곧 가능…이재명-정성호 문자, 극히 상식적"
--  신세계푸드 ‘베러푸즈, 美 ‘클리브랜드 애비뉴’ 투자 유치
--  천하람 "개혁신당, 실질적 준비 끝나…오영환·김웅에 합류 제안"
+-  YanGuFang nombra CEO y CFO interinos en medio de la detención de ejecutivos
+-  LO ÚLTIMO: Diosdado Cabello revela quién sustituirá a María Corina Machado
+-  Chris Christie, người chỉ trích ông Trump, bỏ cuộc đua vào Nhà Trắng
+-  Hai học sinh lớp 3 chết đuối thương tâm ở tràn hồ Tàu Voi
+-  Báo nước ngoài ấn tượng trước VinFast VF 3, VF Wild
+-  산과 바다, 호수가 어우러진 변산에 가다…직소폭포에 반한 나그네
+-  หนุ่ม กรรชัย เคลียร์ปม เมย์ เฟื่องอารมย์ ฟาดเดือด! แจงสัมพันธ์ ยังปกติเหมือนเดิม
+-  Трамп отметил ум и коварство Путина и Си Цзиньпина
+-  Golpean a Pao, de Las Perdidas, tras propuesta de matrimonio
+-  Pierde en incendio Jeep que acababa de comprar
+-  DSI กล่าวหา "2 อดีต รมต.-2 ขรก.แรงงาน" หักหัวคิวส่ง "แรงงานไทย" ไปฟินแลนด์
+-  '레코미드서방정' 특허 회피 제약사 또 늘었다…6개사 추가
+-  '기준' 벗어나면 항암제 요양급여 '불인정'‥"규칙은 규칙"
+-  알콘, 안구건조증 치료물질 3상 임상결과 양호
+-  政, 의료기관 EMR 개인정보 취약 확인…인증기준 강화 추진
+-  민주당서도 의료사고특례법 긍정 신호…"큰 틀에는 공감"
+-  Amazon eliminará cientos de empleos en Twitch, Prime Video y Amazon MGM Studios
+-  В Астане самый низкий уровень доступности школ
+-  Dia scores 17, Belmont knocks off Illinois State 67-60
+-  East-leading Celtics hold off West’s best Timberwolves in OT, improve to 18-0 at home
+-  Stavian Group Sets the Stage for Sustainable Industrial Growth at Vibrant Gujarat Global Summit 2024
+-  한국오므론헬스케어 가정용 혈압계, 13일 롯데홈쇼핑 ‘최유라 쇼’에 방송
+-  ASENSING Unveils LiDAR at CES 2024
+-  바이젠셀 “제대혈 유래 골수성 억제세포 활용 아토피 피부염 치료효과 입증”
+-  最新报告显示，12月是新上市房产数量 “有记录以来最低的一个月”
+-  上學年流失逾6700教師 按年增25% 幼稚園成重災區 校長促審視架構待遇
+-  익산 중앙시장 주차장 94면 확장...하반기 완공
+-  Россияне в новогодние праздники делали покупки с доставкой почти в 1,5 раза чаще
+-  محاكمة تاريخية لإسرائيل بتهمة الإبادة بغزة تبدأ اليوم أمام العدل الدولية في دعوى رفعتها جنوب أفريقيا
+-  융기원, 경기도 초·중학생 대상 '디지털 새싹캠프' 참가자 모집
+-  В ДНР планируют до конца года завершить переход на электронный документооборот
+-  Shahid Kapoor, Kriti Sanon starrer romantic film gets title
+-  إنجوت بروكرز تُبرم تعاوناً مع جامعة الأميرة سمية للتكنولوجيا
+-  國家移民管理局推5項新措施 方便外籍人員來華經商、學習、旅遊
+-  Anuncia Monterrey reparación en Puente Gonzalitos
+-  সকালেই পড়ুন আলোচিত ৫ খবর
+-  Quimsa jugó a lo campeón y no dejó dudas ante Obras
+-  Banyak BUMN Kolaps di Era Jokowi, Mahfud Md: Marak Korupsi, Harus Diperbaiki
+-  Əgər Şuşa işğaldan azad olunmasaydı...
+-  Nets hoping a win in Paris can reignite their season
+-  Don't get dragged into a higher tax band: How to protect your income at every level
+-  Uttarakhand: इस बार राष्ट्रीय स्तर पर श्रेष्ठ ग्रामीण होम स्टे को भी मिलेगा पुरस्कार, 31 जनवरी तक आवेदन तिथि
+-  남양주시 퇴계원읍 지역사회보장협의체, 헌옷 판매 수익금 기부
+-  United Airlines jet is forced to make EMERGENCY LANDING after door light started flashing
+-  網民誤信Google入假網站訂Pizza 被盜用信用卡險失2.5萬元 結局超反轉
+-  Baerbock will in Südostasien Kooperationen stärken
+-  Manipur: Director General of Assam Rifles PC Nair visits Moreh
+-  Pasukan AS dan Inggris Jatuhkan 21 Drone Houthi, Kapal Masih Hindari Laut Merah
+-  Street Outlaws Season 2 Streaming: Watch & Stream Online via Hulu & HBO Max
+-  NYPD detective assigned to Commissioner Edward Caban’s office nabbed for shoplifting on Long Island
