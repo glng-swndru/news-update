@@ -1,51 +1,51 @@
 # Latest News
--  Güney Afrika Cumhurbaşkanı: Hiçbir zaman bu kadar gururlu hissetmemiştim
--  Katar'dan Gazze'ye 18 ton insani yardım
--  ¿Piensas comprar una autocaravana? Llega el mejor momento: La feria caravaning con ofertas de 60 expositores
--  Deset nepříznivých daňových změn pro OSVČ v roce 2024
--  Traumatized passenger wants drug OD-reversing medication aboard buses after frightening incident
--  Reconocen exjugador Alexis Peña en softbol de Leyendas
--  Why the grounding of the Boeing 737 Max 9 won't impact the majority of travelers at Minneapolis-St. Paul
--  Iran seizes oil tanker off Oman in dispute with US
--  AOA 출신 유나, ♥작곡가와 결혼 발표 "빈자리 채워준 사람" [전문]
--  에이핑크 박초롱 "윤보미 따라 투자했다가 펀드사기 제대로 당해"[노빠꾸탁재훈]
--  "저 복귀시켜 주세요!" 맨유 출신 베테랑 MF의 '황당한' 역제안...돌아온 대답은?
--  '3년만 안방 복귀' 이하늬, '밤에 피는 꽃'으로 다시 한번 꽃 피울까 [MD포커스]
--  박한별, 초호화 도쿄 라운딩에 대만족 "호텔처럼 생겼어" [마데핫리뷰]
--  "마이너 가면 말짱 도루묵"…이정후·고우석 맞대결 기대하는 배지환 "난 루키라는 변명 안 통해"
--  브브걸 이후 13년만…용감한형제, 4인조 걸그룹 '캔디샵' 론칭 [공식]
--  “10년 지난 것 같다…왜 이렇게 안 오냐고” 이정후·안우진 없는 영웅들…‘다이어트 조’ 화려한 귀환
--  故이선균 사망 16일…봉준호·윤종신→장항준 등, 오늘(12일) 성명서 발표 [MD이슈]
--  '시민덕희', 아는 맛이라도 맛있는걸 [마데핫리뷰]
--  SK증권, 공식봉사단 ‘함께행복’ 출범
--  Jesus quer reforçar defesa e pode 'roubar' um português para o Al Hilal
--  해상풍력, 특별법 논의 지지부진한데 예산도 '뚝'…힘 빠지나
--  Parents Supporting Their Adult Children Is Causing a Retirement Crisis
--  상주시 농특산물 쇼핑몰 설맞이 30% 할인
--  Montreal Man Ordered to Appear on Charge of Inciting Hatred: RCMP Probe
--  En una carta, Milei invita al papa Francisco a visitar Argentina para superar las divisiones #11Ene
--  Gophers’ triple threat going for it
--  Trey Lance sells South Bay home for $2.7 million
--  América: se retrasa el regreso de Néstor Araujo y estaría listo para esta fecha del Clausura 2024
--  Combaten voraz incendio en colonia Las Ánimas cerca a la Unión Ganadera
--  Novo exame de sangue detecta 18 tipos de câncer em fase inicial
--  Innocence Canada lawyer seeks new trial, new evidence allowed in 2019 murder case
--  비트코인 현물 ETF 국내 거래 제동…금융위 “자본시장법 위배 소지”
--  한동훈 "금고형 이상 세비 반납"…김남국 "이재명 퇴원 날까지 그래야 했나"
--  美 비트코인 현물 ETF 거래 개시…첫날 거래액 6조원
--  อี ซอน คยุน ความโศกเศร้าที่สะท้อนมาตรฐานกฎหมายและจริยธรรม
--  Recalé par le parrainage / Bougane Guèye Dany révèle : « Ce que j'ai dit à mes collaborateurs... et que Macky Sall n'a pas compris »
--  من بينهم رشيدة داتي.. هذه تشكيلة الحكومة الفرنسية الجديدة برئاسة غابرييل أتال
--  الوزير الأول السنغالي: المغرب شريك مميز
--  يتهم المغرب بخرق قوانين الكاف.. الإعلام الجزائري يروج لأكاذيب حول مباراة المغرب الودية
--  تعيين مغربية وزيرة للثقافة في الحكومة الفرنسية الجديدة
--  برشلونة يقصي أوساسونا من كأس السوبر ويواجه الريال في النهائي
--  تزامنا مع إيض يناير.. الحكومة تعزز استخدام اللغة الأمازيغية بعدد من الوزارات
--  Gustavo Bolívar solicitó disminución de las tasas de interés del Banco de La República
--  Hunter Biden Trial Gets New Timeline
--  Xavi Hernández habla tras el triunfo del Barcelona en la Supercopa de España
--  Province warns of invasive infections hike
--  [스한:시청률] '미스트롯3' 오유진·나영·정서주, 2라운드 진선미…14.9% 기록
--  "내가 아빠이자 형" 지적장애 직원 가스라이팅 해 살인 지시
--  "Fisco não afasta possibilidade de cobrar IMI das barragens de 2019"
--  ضاحي خلفان: يجب وضع نتنياهو بمصحة عقلية
+-  大立光法說有驚喜！毛利率重回五成，林恩平：淡季還是淡
+-  擴大金融力量 國泰金COP28籲四大淨零關鍵: 混合金融、生物多樣性、創新金融商品、青年培力
+-  رويترز: الولايات المتحدة وبريطانيا بدأتا شن ضربات ضد أهداف للحوثيين في اليمن
+-  Matan a comisionada LGBTTTI+ de MC en Michoacán
+-  Rinde presidente de la CMIC informe de actividades
+-  Faltará Princesa Marie a ceremonia de coronación de Federico
+-  Cancelan vuelos en aeropuerto de Juárez
+-  부산middot;울산 종일 맑은 날씨...모레부터 찬공기 남하해 다시 추위
+-  '7억 초호화 해외 이사회' 의혹 최정우 포스코 회장 등 16명 입건
+-  Highlights from CES: Talking heads, airlifts and checkpoints for pets
+-  Mik Japan Co., Ltd. Launches Sakura Base, a Subscription Service Featuring Snacks Made in Japan for the US Market!
+-  2024 Volkswagen Amarok Style TDI500 review
+-  وفاة رجل بسبب "بق الفراش" في فرنسا .. ماذا عن انتشاره بين العائلات؟
+-  متى يتم الرد على الاعتراضات في حساب المواطن؟ .. وخطوات مهمة لتجنب وقف الدعم مستقبلا
+-  أمريكا تستهدف أكثر من 10 مواقع حوثية في اليمن
+-  США объявили о дополнительных санкциях против физических и юридических лиц РФ
+-  Amerikanen en Britten voeren luchtaanvallen uit op Houthi-rebellen in Jemen
+-  สภาพอากาศวันนี้ เหนือ - อีสาน อากาศเย็น เตือน 13-16 ม.ค. มีพายุฝนฟ้าคะนอง
+-  Tesla muss wegen Lage im Roten Meer Produktion in Grünheide stoppen
+-  푸틴의 정적 “한국 컵라면 여유롭게 먹고 싶다”…교도소에서 소송 제기
+-  Milagro Flores ofrece noticias con respecto a HCH
+-  Mar Galcerán is Spain’s first parliamentarian with Down syndrome
+-  Warm up for Winter with RED GOLD FROM EUROPE. EXCELLENCE IN EU PRESERVED TOMATOES
+-  Automation Anywhere Launches New Benchmarking Services to Help Companies Maximize the Business Value of AI-Powered Process Automation
+-  – رئيس لجنة الطاقة بمجلس النواب : رفع الدعم عن المحروقات تقرره الميزانية العامة للدولة التي يقرها مجلس النواب .
+-  Yemen LIVE: Explosions reported in cities including Sana’a after US Air Force recon jets spotted in the Middle East
+-  Austins Klinikaufenthalt - Pentagon will Abläufe prüfen
+-  CVS to close some pharmacies in Target stores
+-  ¡Más de cien indigentes deambulan en el Centro de Los Mochis! Buscan reencontrarlos con sus familias
+-  Vaughn Palmer: Eby ditches B.C. political tradition by inviting his wife to news conference
+-  Peter Dutton disguises his hatred with arguments of unity. It’s time he gives up the charade.
+-  توقيف متورطين في محاولة سرقة معصرة للزيتون باستعمال الرصاص الحي
+-  Be guided by Ayyappan
+-  Record recontrata repórter seis meses após demissão para Campeonato Paulista
+-  Wevza: l'Italia terza vittoria con la Germania e primo posto nella Pool B
+-  Champions League: Conegliano batte l'Asterix e rafforza il primato
+-  블레이드 ENT, AI 앱 ‘핑크버스’ GPT 스토어 출시
+-  ‘Barbie,’ ‘Oppenheimer’ lead nominations in prelude to Oscars
+-  Prince Harry is slammed by retired Colonel who says he has been named as a ‘Living Legend of Aviation’ because of his ‘celebrity status’ as a Royal
+-  تنظيف البشرة بالزيت.. طريقة طبيعية لتنظيف البشرة
+-  SK슈가글라이더즈, 경남개발공사 꺾고 4연승으로 1위 독주 [여자핸드볼]
+-  Miriam Ríos Ríos, comisionada de Movimiento Ciudadano, es asesinada en Michoacán
+-  Al Hadath: США и Великобритания наносят удары по позициям хуситов у города Ходейда
+-  «Барселона» сыграет с «Реалом» в финале Суперкубка Испании
+-  Afsel Paparkan Bukti Genosida Israel di Gaza dalam Sidang ICJ
+-  翌日発送・中央大学高等学校 ２０２４年度 - thenewsunlimited.com
+-  [本 雑誌] 令2 京都府 合格できる 数学・計算編 (高校入試) 熊本ネット - thenewsunlimited.com
+-  愛知県公立高校とことん入試対策2020年春受験用 - thenewsunlimited.com
+-  令6 愛知県合格できる5問集 数学・英語 熊本ネット - thenewsunlimited.com
+-  翌日発送・札幌光星高等学校 ２０２４年春受験用 - thenewsunlimited.com
