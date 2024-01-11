@@ -1,11 +1,51 @@
 # Latest News
--  Former Premier League star is reportedly facing jail time for match fixing
--  Bülent Uygun: Penaltımsı mı?
--  Hakkari'de yarın için eğitime ara verildi
--  Beşiktaş'ta Fatih Karagümrük mesaisi devam ediyor
--  Radu Draguşin resmen Tottenham'da!
--  Abdullah Avcı'dan yabancı kuralı sözleri!
--  Netanyahu'dan yüzsüz Lahey açıklaması... İsrail'in soykırımla mücadele ettiğini iddia etti
--  Üstün zeka testi: Resimdeki gizli baykuşu gördün mü? Zekiler bile 7 saniyede bulamadı
--  Fenerbahçe Beko, Bayern Münih'i uzatmalarda geçti
--  Fransa'da yeni kabine açıklandı
+-  Cumhur İttifakı'nda çatlak: Murat Kurum'un ismi bizimle paylaşılmadı
+-  Cámara de Comercio analizó el tema del agua y sostenibilidad
+-  Gurbetçinin gündem olan sözleri: "Biz Arap kökenli değiliz, biz Türk kökenliyiz!"
+-  Zehra Güneş koyu Fenerbahçeli çıktı. Halini görenler şaştı kaldı
+-  Premier Curaçao: situatie rond corona is onder controle
+-  Tesla schort productie in fabriek Berlijn op om situatie Rode Zee
+-  Le Camp de Habib Sy accuse Ismaila Madior Fall : « Il a délibérément bloqué la… »
+-  ABD bütçesi açık verdi
+-  Κοντά σε συμφωνία με τον Παλομίνο είναι ο Ολυμπιακός σύμφωνα με τον Φαμπρίτσιο Ρομάνο
+-  Overtime Megan is Back To Social Media After Her Leaked Private Photos Controversy
+-  Başkan Erdoğan "En büyük tehlike" diyerek uyarmıştı... 'Dezenformasyon' küresel risk raporunda!
+-  Meğer yıllardır yanlış biliyormuşuz: İşte lezzetli çayın sırrı!
+-  El cáncer terminal que padece el entrenador Sven-Göran Eriksson
+-  Nuevo seleccionador aseguró que Brasil tiene que aprender a jugar sin Neymar
+-  Tanabi-SP x Athletico: Prováveis escalações, desfalques, retrospecto, onde assistir, arbitragem e palpite
+-  Le subieron el alquiler al Ministerio Público en Bariloche y pagará un canon millonario
+-  Europi prijete novi problemi u opskrbi: ''Ekonomske posljedice mogle bi biti ozbiljne''
+-  Wat klimaatalarmisten niet begrijpen
+-  Θρυλικός Γιουλ: Έγινε ο παίκτης με τα περισσότερα παιχνίδια στην ιστορία της Ρεάλ Μαδρίτης!
+-  The newest episode of Leinster Rugby's One Club TV mini-series has dropped
+-  이성윤 quot;윤석열, 내게 전화해 '니가 눈에 뵈는 게 없냐' 막말한 사람quot;
+-  고민정 quot;극단적 혐오는 자리 없다던 한동훈, '여혐' 박은식, 박상수는?quot;
+-  윤 정부의 경제정책, 결국 혈세로 업자 배불려주겠다는 노골적 '퍼주기'
+-  The newest episode of Leinster Rugby's One Club TV mini-series has dropped
+-  하이브 방시혁의 K-팝에서 'K 떼기', BTS팬과는 전혀 다르다
+-  Allegri insaziabile: molto arrabbiato con i suoi prima del raddoppio di Milik. Il motivo
+-  Irish Taoiseach Varadkar meets EULEX mission chief Barbano
+-  Bill Belichick, legendario entrenador de los New England Patriots, confirma que deja el equipo después de 24 temporadas y seis títulos de Super Bowl
+-  Ruszają prace zespołu ds. zmian w Funduszu Kościelnym. Znamy członków i pierwsze konkrety
+-  Quanto guadagnerà in 1 anno chi ha spostato i soldi liquidi sul BOT di Stato emesso ieri?
+-  'Back to Black' Biopic Trailer - Watch Marisa Abela Become Amy Winehouse
+-  Pençe Kilit operasyonu bölgesinden acı haber: Bir Mehmetçik şehit oldu
+-  Fenerbahçe Beko uzatmalarda Bayern Münih'i 98-91 mağlup etti |ÖZET
+-  Παναθηναϊκός: Φίλαθλος σκόραρε από το κέντρο και κέρδισε 3.000 ευρώ!
+-  ΠΑΟΚ: Επισημοποιήθηκε ο δανεισμός του Φιλίπε Σοάρες στη Φαμαλικάο (vid)
+-  Tässä on Vuoden urheilija-äänestyksen top10
+-  تناول الشاي والقهوة في منتصف العمر يجعلك أقوى أثناء الشيخوخة
+-  ”Italian Kimin” F1-kuviot puhuttavat - Mercedeksen tallipomo vastasi kuumaan kysymykseen
+-  Ashley Judd Shares The Last Words She Said To Her Mom, Naomi Judd, As She Was Dying
+-  El mensaje de Nyck de Vries, que vuelve a correr tras su abrupto paso por la Fórmula 1
+-  Grêmio x Mirassol: Prováveis escalações, desfalques, retrospecto, onde assistir, arbitragem e palpite
+-  Milwaukee Bucks x Boston Celtics: AO VIVO - Onde assistir? - NBA 2023/24
+-  Larissa Manoela usa biquíni fininho para curtir dia de sol e impressiona fãs: 'Maravilhosa'
+-  Tesla bei Berlin: Großteil der Produktion offenbar gestoppt
+-  تحضيرات أميركية بريطانية لشن ضربة محتملة في اليمن
+-  The Hawks Are Very Open To Trading Dejounte Murray, With At Least Five Teams In The Mix
+-  Conheça as atrizes cotadas para viver a nova Supergirl no cinema
+-  Vinculan a cuatro detenidos en deshuesadero de motos robadas
+-  Restablece operaciones Duraplay luego de incendio
+-  Estará Maru en inauguración de túnel de la Nueva España
