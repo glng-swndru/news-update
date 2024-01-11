@@ -1,51 +1,11 @@
 # Latest News
--  Proteinkomplex als Kontrollinstanz der DNA-Reparatur entdeckt
--  13 wounded in Russian strike on hotel in Ukraine
--  [총선] 문대림 "송재호 의원 대정부 질문 4년간 0회… 책무 태만"
--  尹 "국민경제자문회의, 정부에 냉정한 조언 해주길 바란다"
--  포항시, 수소연료전지 산업 활성화 업무협약
--  '미분양 무덤' 포항·경주 규제 완화해야…"정책적 배려 필요"
--  포항시, 엄마참손단 320명 모집 '경력 이음'
--  포항시, 2024년 후계농업경영인·청년농업인 신청 접수
--  정부, 강제동원 피해자 '제3자 변제' 재확인…재원은 어떡하고?
--  농진청 차장, 과수화상병 예방 현장 점검
--  정부, 中 상대 유엔 '인권검토' 서면질의 제출…'탈북민' 관련
--  '훈훈' 칼국수 값 내준 남성…뛰어가 목례한 장병[이슈시개]
--  충북교육청, 학생 체인지 플랫폼 구축 착수
--  비행기 비상문 열어 추락한 男…"비교적 가벼운 부상"
--  GDIT Wins $171M Air Force Task Order to Secure Industrial Control System Deployments
--  EQS-News: Lenzing again receives top sustainability ratings from MSCI and SAC Higgs FEM
--  EQS-News: Lenzing erhält erneut Top-Nachhaltigkeits-Bewertungen durch MSCI und SAC Higgs FEM
--  KPGA 김원섭 회장, 제6대 한국프로스포츠협회 회장 선출
--  Ascolti tv del 10 gennaio: Mamma ho perso l’aereo, il Milan o la Rai
--  Scandale foncier à Pambal : Le maire et le sous-préfet en difficulté…
--  Levelet küldött Maruzsa Zoltán a nem állami iskoláknak, hogyan szedjenek úgy pénzt, hogy ne kapjanak büntetést
--  Nhan sắc siêu mẫu thế giới của thủ môn Hà Lan sắp nhập tịch Indonesia
--  A Step towards Green world: An Analysis of Green Tax
--  코스피 7일 연속 하락…비트코인 현물 ETF 승인에 관련주 ‘초강세’ [이종화의 장보GO]
--  News24 | SuperSport backtracks, confirms broadcast of all 52 Afcon matches
--  페이퍼리스 솔루션 기업 제이씨원, 여가부 '가족친화기업' 인증 획득
--  셀트리온 서정진, 서진석 부자, 글로벌 경쟁력 확보로 성장 기대
--  KT&G, 새 선장 인선 돌입…사장 후보군 24명
--  농협금융, 2024년 리스크관리 大토론회 개최
--  금감원, 가상자산 이용자 보호·시장 질서 확립 나선다
--  효자2동주민자치회 등 춘천 국제스케이트장 유치 염원 동참
--  홍천 내고향마트, (사)이웃에 성금 기탁
--  신동원 시의원, ‘30년된 아파트 안전진단 없이 재건축’ 대환영
--  '과포장 없앤다' CJ대한통운, 박스 추천 시스템 '로이스 오팩' 확산
--  노영민 전 비서실장 청주 상당구 출마… "정권 심판해야"
--  계명대 동산병원 손대구 교수, 대한성형외과학회 '최우수논문상' 수상
--  '유해 가습기 살균제' SK케미칼·애경 前대표 '2심 유죄'
--  野 이수진(비), 서대문갑 출마 선언… "새로운 행복 만들 것"
--  «القوى العاملة»: جهود مستمرة لتطوير عملية استقدام العمالة الماهرة بما يخدم مصالح الكويت التنموية والاقتصادية
--  Rally Dakar 2024: etapas, clasificaciones y recorrido
--  Mitarbeiter spenden Teil ihres Weihnachtgsbonus für Nora Edlinger
--  Stavebná produkcia sa v novembri 2023 medziročne zvýšila o 6,9 percenta
--  Novembrová návštevnosť bola najlepšia od pandémie: Takto sa darilo cestovnému ruchu
--  BlueSG users complain about ongoing problems since Dec. 2023, platform offers subscription waiver for Jan. 2024
--  S'pore supports COP28 deal, including goal to transition away from fossil fuels: Grace Fu
--  SMU stall has fish-shaped mochi waffles with fillings like Korean fried chicken & ube soft serve
--  IKEA recalls USB charger over risks of thermal burns & electric shock
--  JB-S'pore RTS Link about 65% completed, ready by Dec. 2026
--  국민의힘, ‘갤럭시 신화’ 고동진 전 삼성 사장 영입 추진
--  נסרין בשיחה מרגשת עם יעל שלביה: "הפחד והחרדה מתגברים עליי"
+-  Leaders support Affordable Housing programme
+-  Persons living with disability in Narok agree to bury their differences
+-  Youth cautioned on drug abuse, betting
+-  Пенсионерка сбежала из дома под давлением телефонных аферистов в Петрозаводске
+-  Students from Oruba Boys in Migori questions their KCSE results
+-  Rado negyvą
+-  Tauragės rajone sprogęs dujinis degiklis sužalojo vyrą
+-  ЕКВАДОР И КРИМИНАЛОТ: Три клучни точки што го објаснуваат „внатрешниот вооружен конфликт“
+-  Ўтган йили аниқланган рақобатга зид ҳолатлар учун тегишли жазо чоралари қўлланилган
+-  Блинкен Исроилга қарши Халқаро судга даъво қўзғатилишини қоралади
