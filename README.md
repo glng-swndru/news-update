@@ -1,11 +1,51 @@
 # Latest News
--  Trump: The United States would never help Europe if it came under attack
--  127 هجوما على قواعد واشنطن منذ 7 أكتوبر
--  حتى المساء.. "الأرصاد" يُحذر من أمطار على عدة محافظات بالمدينة
--  اكتشاف مذهل.. لقاح كورونا يحمي من فيروس نيباه المميت
--  عاجل.. طقس إجازة نهاية هذا الأسبوع.. تحذير من كتلة باردة وأمطار على هذه المناطق
--  العتيبي: تقنية تبريد الطرق في المشاعر المقدسة تخفف درجة الحرارة بنحو 12 مئوية
--  Naujos „Gmail“ ir „Yahoo“ taisyklės: Didesni rinkodaros el. paštu reikalavimai siuntėjams
--  Jo nori Ukraina. Legendinis „Saab JAS 39 Gripen“. Geriausias naikintuvas pasaulyje? (Video)
--  [ŽT] „Slavai žudo slavus.“ Solovjovas keičia retoriką. Kas nutiko (Video)
--  „Pats keliauk į „SVO“. O mes kovosime čia.“ Rusų karių žmonos užpuola deputatą (Video)
+-  Welspun World's Rs 40,000 Cr Investment To Fuel Gujarat's Green Energy Transition
+-  SBI Successfully Raises $600 Mn Through 5-Year Dollar Bond Sale
+-  Citypress | Thandiswa Mazwai to give New Yorkers a taste of Mzansi-style jazz and Afro-soul this weekend
+-  토트넘이 '첼시 실패자'를 영입한 '3가지' 이유
+-  '폭풍 영입 예감' 토트넘→베르너-드라구신에 이어 첼시 MF 영입 추진
+-  김정은, 역대 두 번째 개인 통산 8000득점까지 '-34'…휴식기 마친 WKBL 대기록 쏟아질까
+-  British Post Office scandal | U.K. Government plans to try to right those wrongs
+-  Zbigniew Juroszek ma 6,79 proc. akcji Uniotu
+-  “아무도 그의 역할을 대체할 수 없다”... 더 브라위너 복귀→맨시티 선수들 환호
+-  “부상당한 선수 데려올 수는 없어”...이강인 파트너 될 뻔했는데 PSG가 영입 철회
+-  지난 여름 케인 놓쳤던 맨유...'케인 백업' 34세 베테랑 FW 노린다
+-  قرابة 7 مليارات دينار حجم التداول العقاري الأردني
+-  ضبط حفارة مخالفة في سحاب
+-  منتجات غذائية لتحسين عمل الدماغ
+-  هل هناك مقاعد أكثر أماناً على متن الطائرة؟
+-  احذر.. هذه البكتيريا قد تؤدي إلى الوفاة
+-  كاتب إسرائيلي: حدودنا ستمتد وسنأخذ مكة والمدينة وجبل سيناء
+-  LDA to become an exemplary institution in terms of service delivery, says CS
+-  完成低軌衛星地面接收設備雛形！明泰攜手鐳洋共同爭取國際訂單
+-  Da li kriza s Boingom utiče i na evropske avio-kompanije?
+-  Južnoafrička tužba za genocid protiv Izraela
+-  Istoričari od zanata treba da zastupaju stavove struke
+-  Se va Lorena del Instituto de Educación
+-  CHP belediye başkan adayları 2024 kimler oldu? CHP belediye başkan adayları il il tam liste!
+-  Bakasetas Kartal olacak mı? İşte Beşiktaş'ın planı...
+-  Fed üyesinden kısıtlayıcı politikaya devam mesajı
+-  Trabzonspor'da Masouras yeniden gündemde!
+-  EPDK'dan 41 şirkete lisans
+-  Wilfried Zaha Premier Lig'e dönebilir!
+-  AVM'ler neden teker teker batıyor?
+-  Chris Christie odstúpil zo súboja o nomináciu Republikánskej strany v prezidentských voľbách
+-  Čína varovala Taiwan: Víťazstvo Laj Čching-tchea v prezidentských voľbách by predstavovalo nebezpečenstvo
+-  Krajský súd v Košiciach rozhodne v prípade vraždy ženy v Michalovciach
+-  Francúzsky súd poslal do väzenia dvoch bratov: Okrádali dôchodcov o peniaze bizarným spôsobom
+-  İşte Bonucci'nin Fenerbahçe'deki maaşı!
+-  Poľský exminister vnútra by nemal držať hladovku vo väzbe: Porušuje tým zákon
+-  Bursa'da kahreden olay: Okuldan evine giden 13 yaşındaki öğrenci hayatını kaybetti
+-  वीर अस्पतालमा आउने बिरामीले गुनासो गर्ने अवस्था आउनु हुन्न: प्रधानमन्त्री
+-  Lentoyhtiöt | Turkka Kuusiston on Finnairin uusi toimitus­johtaja
+-  Tonto Dikeh Takes Legal Action Against VeryDarkMan for Criticizing Involvement in Mohbad’s Case
+-  Budowlani giganci z największymi szansami na budowę ekspresówki
+-  В Сочи загорелась квартира в четырехэтажке
+-  ৮ গোলের রোমাঞ্চকর ম্যাচে শেষ হাসি রিয়ালের
+-  Irã alerta sobre conspiração israelense para aumentar tensão no Oriente Médio
+-  Gleisi vê Netanyahu isolado após posição brasileira contra o genocídio em Gaza
+-  ടൊവിനോ ചിത്രം ‘അന്വേഷിപ്പിൻ കണ്ടെത്തും’ ! ടീസർ നാളെ വൈകീട്ട് 6 മണിക്ക്
+-  As subcontinent Muslims outrage about Smriti Irani’s visit to Madinah, Saudis push back, say they don’t care about opinions of ‘converted Muslims’
+-  শরীয়তপুরে ব্যবসায়ীকে পিটিয়ে পা ভেঙে দেওয়ার ঘটনায় মামলা, গ্রেপ্তার ২
+-  В Тверской области могут построить обход Конаково
+-  Ra’isul Wasaare Xamse iyo Masuuliyiin kale oo ka qeyb galaya Banaan-baxa Muqdisho
