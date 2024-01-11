@@ -1,51 +1,51 @@
 # Latest News
--  Amerikkalaisessa jalkapallossa musta päivä - kolmelle valmentajalegendalle lähtö 24 tunnin sisään
--  Veikkausliigajoukkue hankki entisen Tottenham-vahdin
--  Näin kuskit reagoivat F1-sarjan uutispommiin
--  ओडिशा में काला जादू करने के संदेह में व्यक्ति की हत्या
--  Festnahme: Zeugin ertappt Fahrraddieb in Bergheim auf frischer Tat
--  "لتصرفاتها العدائية ضدها".. الجزائر تستنكر إجراءات اتخذها بلد عربي
--  ضبط 10 أشخاص لاتهامهم بالتنقيب عن الآثار في الإسكندرية وسوهاج
--  برعاية رئيس الوزراء.. "العمل" تُطلق مشروع "مهني 2030" الاثنين المُقبل
--  البنك الأفريقي للتنمية: مصر حصلت على 677 مليون دولار تمويلات في 2023
--  أشهر إسلامه ودفن بترابها.. حكاية "إنجو" الذي ترك ألمانيا ليعيش في دهب
--  جنوب أفريقيا تُقدم أدلة تُظهر "نمطًا من سلوك الإبادة الجماعية" من جانب إسرائيل
--  المبعوث الأمريكي هوكشتاين يؤكد ضرورة تهدئة الوضع في جنوب لبنان
--  "فض اعتصام رابعة".. براءة متهم والمشدد 15 سنة لـ 14 آخرين
--  اكتشاف مثير.. مجرة منذ بداية الزمن لا تحتوي نجوما
--  رسميا.. بوروسيا دورتموند يعلن التعاقد مع سانشو على سبيل الإعارة
--  خريطة الأسعار: ارتفاع الحديد والذهب وتراجع اللحوم
--  Joanna Opozda spotkała się z byłą swojego męża. Do sieci trafiło zdjęcie
--  Grippe- und Coronawelle: In Spanien kehrt die Maskenpflicht teilweise zurück
--  Kickoff | Mvala receives backing from Chiefs legend
--  البحرية الإيرانية تحتجز ناقلة نفط أميركية في بحر عمان
--  Big Chill Rolls In Starting this Weekend
--  وزيرا خارجية السعودية وإيران يبحثان هاتفياً تطورات الأوضاع بغزة
--  פפואה גינאה החדשה: המשטרה שבתה – מהומות וביזה פרצו בבירה
--  האיש שהיה שם: ארי הרו, יועצו הקרוב של נתניהו, מדבר לראשונה
--  צפו: נחשף הטריילר הראשון לסרט המדובר על איימי ויינהאוס
--  "הוא במצב בלתי אפשרי": מה יהיה עם ליאל עבדה?
--  רוצים לצאת לקרוז בספינה הגדולה בעולם? זה מה שאסור לכם לעשות
--  CANAM : Les médecins bien outillés pour relever le défi de la normalisation des prestations de l’AMO
--  Potvrđena optužnica u predmetu Mustafa Vrabac zbog krivotvorenja isprave i primanje dara
--  Obustavljen disciplinski postupak protiv sudije Branka Perića
--  Evropski poslanici zalažu se za jačanje zakona o zagađenju mikroplastikom
--  Formel 1: Haas zerfällt in seine Einzelteile – bittere Folgen für Hülkenberg?
--  BILDEXTRA: Folkfest när Coop öppnade i Vemdalen
--  Lotto-Hammer in NRW – Chico schaut ganz genau hin
--  Körfez Turu sonrası Türkiye'nin Suudi Arabistan ve BAE'ye ihracatında büyük artış
--  Juventus - Frosinone Canlı Skor
--  Russlands Kampfjets bombardieren falsches Gebiet – Geheimdienst sieht Putins Piloten „müde“
--  The AMA Wants a Medicare Cut Reversed – And Lawmakers To Stay Out of Care
--  幽如秘境 青如玉带 荣耀Magic6 Pro海湖青图赏
--  Calculadora para saber no INSS o valor do salário-maternidade
--  Iran’s navy seizes oil tanker in Gulf of Oman at centre of major US-Iran crisis
--  Lagos Embrace Eco-Friendly Mass Transit System
--  Colombia entre Ecuador y Haití
--  PM Modi Drives Fintech Innovation At GIFT City, Invites Global Investment
--  SpiceJet Board Approves Rs 2,250 Crore Capital Injection Along With Allotment Of Shares
--  Delhi HC Defers Maran And SpiceJet Hearing To February
--  EaseMyTrip Breaks Into Insurance Sector With New Subsidiary
--  Zomato Stock Trades 2-yr High As HSBC Upgrades The Target Price
--  Aim To Bridge Skill Gap By Training 10,000 Youth This Year: Shekhar Bajaj
--  HDFC AMC Stock Rewards With 2.5% Gain As Investors Cheer Q3 Result
+-  Crowell Names Mark Fenoughty as CFO
+-  Kazım Albayrak'ın yazdığı okunası kitap: İslami Hareketin Temelleri
+-  AB'den "zorunlu göç" tepkisi: Kesinlikle kabul edilemez
+-  Tuzlanmış bulaşık süngeri kullanın! 1 kaşık tuzun etkisine şok olacaksınız
+-  Afganistan'da el bombalı saldırı: 2 kişi hayatını kaybetti
+-  Pakistan'da 36 çocuk zatürreden öldü
+-  Hudutsuz Sevda fragmanı: Halil İbrahim tutuklanacak mı? Hudutsuz Sevda 16. Bölüm fragmanı yayınlandı mı?
+-  Chelsea, Fofana'yı geri çağırdı
+-  Kara'nın yıldızı İlker Kaleli'nin bu halini belki de ilk kez göreceksiniz!
+-  Yapay zeka dersleri üniversite müfredatına eklenecek
+-  MHP 55 Belediye Başkanı adayını daha açıkladı
+-  Çaykur Rizespor'da Adana Demirspor mesaisi sürüyor
+-  MHP 55 belediye başkan adayını daha açıkladı
+-  Türk jetleri NATO ülkesinin hava sahasında ilk defa silah kontrol görevi yaptı
+-  Çaykur Rizespor, Adana Demirspor mesaisini sürdürüyor
+-  Aşka Düşman 2. bölüm izle! Tv8 Aşka Düşman son bölüm izle kesintisiz!
+-  SON DAKİKA HABERİ: MHP 8 il ve 47 ilçe başkan adayını daha açıkladı
+-  Hrozivé odhalenie o tom, ako Ukrajinci miznú v ruských väzniciach: Bez obvinenia, vyšetrovania, súdu
+-  Zbohom, sovietska minulosť: Tadžická metropola Dušanbe zažíva obrovské zmeny
+-  Slávny herec sa rozvádza: Teraz priznal, že býva na ulici!
+-  تسجيل 10 آلاف حالة وفاة ب COVID-19: تحذير من تجدد التهديد
+-  AKTUÁLNE Pri požiari autodielne v Poprade sa zranil jeden človek, na mieste sú hasiči
+-  The Rock Promises To Do Things Never Before Done in WWE
+-  Emil Ruusuvuorelle villi vastustaja Australian avoimissa
+-  Jesse Puljujärven tilanne puhuttaa - Ismo Lehkonen painaa jarrua Ylellä
+-  İYİ Parti İzmir İl Başkanı görevden alındı!
+-  Francis Ngannou launches stinging attack on Tyson Fury over next fight and fumes ‘I don’t give a s***’
+-  United Imaging Intelligence Highlights Dedications to Advancing Intelligent Healthcare at RSNA Conference 2023
+-  DREO EXPANDS PRODUCT LINES WITH A NEW 2-IN-1 PURIFIER TOWER FAN AND MILK FROTHER
+-  Norcod AS annonce un nouveau contrat rentable en Chine
+-  Gamers could be missing out on thousands depending on their subscription – see where you get the best value
+-  Unaprijedite svoje gaming iskustvo na sasvim novu razinu!
+-  Fiasko i JVM – Modo-stjärnan sänkte lagkamraterna
+-  בשורה לצרכני האשראי בישראל: "עידן חדש בשוק התשלומים"
+-  אופירה אסייג משתוללת: "בושה! זכותה להגן על עצמה"
+-  Дуда решил начать новый процесс помилования экс-главы МВД Польши и его зама
+-  Lunds ras i tabellen: ”Kan nog sitta mentalt”
+-  LETTER: Proposed parking rates make sense
+-  Mijailović: Platili smo obeštećenje, Kaboklo ostaje naš igrač
+-  Gerçekten çok ilginç; dil ile kontrol edilebilen mouse tanıtıldı
+-  U Iranu uhapšeno 35 osoba u vezi sa napadima u Kermanu
+-  우주항공청, 5월말 개청 목표…"우수 인재 스카우트"
+-  Innenraum zerstört: Jäger setzt Hochsitz in Mechernich mit Gasofen in Brand
+-  В Минске десятиклассница совершила суицид. Перед этим она раздала свои вещи знакомым
+-  Monagas distribuyó más de 2 mil 141 toneladas de proteínas en el año 2023
+-  Мишустин вручил премии правительства РФ в области СМИ
+-  Ajax vrijwel rond met Excelsior over terugkeer van Kian Fitz-Jim
+-  'ครูสาวถังแตก'ทำแม่เสียหน้า รีบหาเงินไถ่'โน๊ตบุ๊ค-มือถือ'คืนนักศึกษา
+-  V referendových komisiách bude zapojených dovedna 130 ľudí
+-  Enjoy Photography Exhibition ‘Glimpse’ by Tom Watson in Javea
