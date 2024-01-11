@@ -1,11 +1,51 @@
 # Latest News
--  Proteste im Erzgebirge: Fahrzeugkorso rollt durch Region - Polizei veröffentlicht Liste mit möglichen Staupunkten
--  Meeraner Galerie „Art In“ wechselt Ausstellungen
--  Y'a que la vérité qui compte : un homme veut retrouver sa fille... mais elle n'est pas sure qu'il s'agisse de son père ! (VIDEO)
--  Ја тепал со раце и нозе: Две годишното девојче имало скршен череп, крварење во мозокот и скршени ребра
--  Một địa phương cấp huyện thu ngân sách hơn 4 tỉnh cộng lại
--  13 วันยังไม่ฟื้น! 'วิรดา วงศ์เทวัญ'ป่วยไข้เลือดออก-คุณแม่บวชชีหวังปาฏิหาริย์
--  'เอก ระยอง'เผยวินาทีเฉียดตาย ชี้่มือปืนตั้งใจมาฆ่า เชื่อพุทธคุณ'หลวงตาบัว'คุ้มครอง
--  الفريق القانوني لجنوب أفريقيا : إفلات كامل لإسرائيل من جرائم الإبادة
--  حماس: لن نسمح بفرض الوصاية على غزة
--  مشرعون أميركيون: إسرائيل تؤخر إدخال المساعدات إلى غزة
+-  Amerikkalaisessa jalkapallossa musta päivä - kolmelle valmentajalegendalle lähtö 24 tunnin sisään
+-  Veikkausliigajoukkue hankki entisen Tottenham-vahdin
+-  Näin kuskit reagoivat F1-sarjan uutispommiin
+-  ओडिशा में काला जादू करने के संदेह में व्यक्ति की हत्या
+-  Festnahme: Zeugin ertappt Fahrraddieb in Bergheim auf frischer Tat
+-  "لتصرفاتها العدائية ضدها".. الجزائر تستنكر إجراءات اتخذها بلد عربي
+-  ضبط 10 أشخاص لاتهامهم بالتنقيب عن الآثار في الإسكندرية وسوهاج
+-  برعاية رئيس الوزراء.. "العمل" تُطلق مشروع "مهني 2030" الاثنين المُقبل
+-  البنك الأفريقي للتنمية: مصر حصلت على 677 مليون دولار تمويلات في 2023
+-  أشهر إسلامه ودفن بترابها.. حكاية "إنجو" الذي ترك ألمانيا ليعيش في دهب
+-  جنوب أفريقيا تُقدم أدلة تُظهر "نمطًا من سلوك الإبادة الجماعية" من جانب إسرائيل
+-  المبعوث الأمريكي هوكشتاين يؤكد ضرورة تهدئة الوضع في جنوب لبنان
+-  "فض اعتصام رابعة".. براءة متهم والمشدد 15 سنة لـ 14 آخرين
+-  اكتشاف مثير.. مجرة منذ بداية الزمن لا تحتوي نجوما
+-  رسميا.. بوروسيا دورتموند يعلن التعاقد مع سانشو على سبيل الإعارة
+-  خريطة الأسعار: ارتفاع الحديد والذهب وتراجع اللحوم
+-  Joanna Opozda spotkała się z byłą swojego męża. Do sieci trafiło zdjęcie
+-  Grippe- und Coronawelle: In Spanien kehrt die Maskenpflicht teilweise zurück
+-  Kickoff | Mvala receives backing from Chiefs legend
+-  البحرية الإيرانية تحتجز ناقلة نفط أميركية في بحر عمان
+-  Big Chill Rolls In Starting this Weekend
+-  وزيرا خارجية السعودية وإيران يبحثان هاتفياً تطورات الأوضاع بغزة
+-  פפואה גינאה החדשה: המשטרה שבתה – מהומות וביזה פרצו בבירה
+-  האיש שהיה שם: ארי הרו, יועצו הקרוב של נתניהו, מדבר לראשונה
+-  צפו: נחשף הטריילר הראשון לסרט המדובר על איימי ויינהאוס
+-  "הוא במצב בלתי אפשרי": מה יהיה עם ליאל עבדה?
+-  רוצים לצאת לקרוז בספינה הגדולה בעולם? זה מה שאסור לכם לעשות
+-  CANAM : Les médecins bien outillés pour relever le défi de la normalisation des prestations de l’AMO
+-  Potvrđena optužnica u predmetu Mustafa Vrabac zbog krivotvorenja isprave i primanje dara
+-  Obustavljen disciplinski postupak protiv sudije Branka Perića
+-  Evropski poslanici zalažu se za jačanje zakona o zagađenju mikroplastikom
+-  Formel 1: Haas zerfällt in seine Einzelteile – bittere Folgen für Hülkenberg?
+-  BILDEXTRA: Folkfest när Coop öppnade i Vemdalen
+-  Lotto-Hammer in NRW – Chico schaut ganz genau hin
+-  Körfez Turu sonrası Türkiye'nin Suudi Arabistan ve BAE'ye ihracatında büyük artış
+-  Juventus - Frosinone Canlı Skor
+-  Russlands Kampfjets bombardieren falsches Gebiet – Geheimdienst sieht Putins Piloten „müde“
+-  The AMA Wants a Medicare Cut Reversed – And Lawmakers To Stay Out of Care
+-  幽如秘境 青如玉带 荣耀Magic6 Pro海湖青图赏
+-  Calculadora para saber no INSS o valor do salário-maternidade
+-  Iran’s navy seizes oil tanker in Gulf of Oman at centre of major US-Iran crisis
+-  Lagos Embrace Eco-Friendly Mass Transit System
+-  Colombia entre Ecuador y Haití
+-  PM Modi Drives Fintech Innovation At GIFT City, Invites Global Investment
+-  SpiceJet Board Approves Rs 2,250 Crore Capital Injection Along With Allotment Of Shares
+-  Delhi HC Defers Maran And SpiceJet Hearing To February
+-  EaseMyTrip Breaks Into Insurance Sector With New Subsidiary
+-  Zomato Stock Trades 2-yr High As HSBC Upgrades The Target Price
+-  Aim To Bridge Skill Gap By Training 10,000 Youth This Year: Shekhar Bajaj
+-  HDFC AMC Stock Rewards With 2.5% Gain As Investors Cheer Q3 Result
