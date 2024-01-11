@@ -1,11 +1,11 @@
 # Latest News
--  Kickoff | FUSA issue latest on Gallants case
--  Kickoff | Swallows fined for Downs & Arrows no-shows!
--  Tymueset në Parlament/ Basha: I shërbyen Edi Ramës, buxheti më i madh i Shqipërisë kaloi për 4 minuta
--  Albert Heijn to start selling self-tests for Gonorrhea and Chlamydia
--  Katholische Kirche in Viersen: Das Ende der Gemeinschaft der Gemeinden
--  Kein Geld mehr für Homöopathie: Karl Lauterbach geht’s ums Prinzip
--  Situata në PD/ Basha: Fajin më të madh nuk ia vë Berishës, por atyre që bënë sikur shkuan tek ai
--  Финляндия об открытии границы с Россией
--  শিক্ষামন্ত্রী হলেন মহিবুল হাসান চৌধুরী নওফেল
--  কুষ্টিয়ায় আ.লীগের দুই গ্রুপের একাধিক সংঘর্ষ, ৩ মামলায় আটক ৪
+-  محكمة باب الوادي: فتح تحقيق في ادعاء أشخاص بأنهم أعضاء في الهيئة الوطنية لمكافحة الفساد بغرض النصب
+-  Арестован призер чемпионата мира по боксу в Алматы
+-  Beşiktaş’tan eski futbolcusu Victor Ruiz’e ödeme
+-  „Medyk” oficjalnie we współpracy z amerykańską firmą
+-  Grues, camions, avions-cargos... Voici comment les orques de Marineland seraient transférées au Japon
+-  Ligde ilk 11'de yabancı sınırı kalktı
+-  Chile: Concejal pide que se cancele presentación de Peso Pluma en Viña del Mar
+-  Americans Rush to Refinance Homes as Mortgage Rates Drop
+-  Akshay Kumar takes the Mumbai metro instead of luxury car
+-  Pan-Asian restaurant Foo opens new outlet in Mumbai in Thane`s Viviana Mall
