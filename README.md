@@ -1,11 +1,51 @@
 # Latest News
--  일본 좌완 이마나가, 시카고 컵스와 4년 5300만달러 계약
--  한국프로스포츠협회, 회장으로 김원섭 KPGA 회장 선출
--  Ten food cravings and what they mean
--  Lampedusa, nuovi sbarchi e arresto di tre stranieri per la morte di un connazionale
--  Одилнинг суперголидан 0:6гача. Осиё кубоги тарихидаги энг яхши иштирок ва Австралиядан учралган «нокаут».
--  Оқ уй Россиянинг музлатилган активларини мусодара қилиш ғоясини қўллаб-қувватлади.
--  Хўжалик юритувчи субъектлар учун углерод нейтраллиги бўйича мақсадли кўрсаткичлар белгиланади.
--  Với Griezmann, đi là để trở về
--  Thất bại của Sancho là do Ronaldo và Cavani?
--  'Quyền lực tối thượng của Mikel Arteta ở Arsenal'
+-  Four rhino horn smugglers arrested
+-  Ncell, DHM sign MoU strengthening Early Warning Systems to cover 13 hazards
+-  Obžalovanú Renátu D. prepustili z väzby: Rozhodnutie potvrdil Najvyšší súd SR
+-  Poľského kňaza vzali do vyšetrovacej väzby: Je obvinený zo sexuálnych a drogových trestných činov
+-  Vláda v Papue-Novej Guinei vyhlásila výnimočný stav: Nepokoje si vyžiadali najmenej 15 obetí
+-  Petra Vlhová hlási problémy, zrušila oficiálny tréning na zjazdovke v Jasnej
+-  CES 2024: AI lên ngôi trong lĩnh vực làm đẹp
+-  Tin tức giải trí 11-1: Táo quân chính thức trở lại, concert Hà Anh Tuấn cháy vé
+-  Năm qua tạm giữ trên 150.000 xe, công an TP.HCM giảm giữ xe vi phạm
+-  Các tỉnh, thành phố đăng ký hoàn thành 108 dự án nhà ở xã hội trong năm 2024
+-  "المسند" يكشف أسباب دفء مكة المكرمة في الشتاء
+-  الإسعاف الجوي يباشر حادث تصادم وإصابات على طريق "درة العروس" بجدة
+-  Schadl György mosolyogva, maszk nélkül sétált be a bíróságra, volt bizalmasa szerint lehet, hogy találkoztak Völner Pállal
+-  ‘PTI bat symbol’: ECP challenges PHC decision in Supreme Court
+-  South Africa tells the UN top court Israel is committing genocide in Gaza
+-  Антифриз идишларидаги "Тропикамид" фош бўлди
+-  Ёшлар тадбиркорлиги ва таълимини ривожлантиришга эътибор кучайтирилди
+-  Сайёрамизнинг энг бой аёли ким?
+-  Samsung представила «неубиваемый» смартфон
+-  Zu weit weg: Das nächste Restaurant will das Burgquartier verlassen
+-  Swiatek could face 2 past champs in Australia; Djokovic-Tsitsipas rematch would be quarterfinal
+-  TCS Q3FY24 results: Adjusted net profit at Rs 12,016 cr, revenue up 4%
+-  ‘टाटा मोटर्स फन कार्निभल’ आयोजना गर्दै सिप्रदी, पुरानो गाडीसँगै नयाँ साट्न सकिने
+-  DRC – Re-election of Mr Felix Tshisekedi as President of the Democratic Republic of Congo (10 Jan. 2024)
+-  Josh Hutcherson’s brother and his boyfriend had to explain viral ‘Whistle’ meme to him
+-  الفريق القانوني لجنوب إفريقيا: غزة أصبحت مكانا للموت واليأس بسبب سياسات إسرائيل
+-  بسبب دعم فلسطين.. يوسف عطال يستأنف على الحكم بحبسه في فرنسا
+-  برلمانيون من 28 دولة يطالبون بوقف فوري لإطلاق النار في غزة
+-  نسختين متتاليتين بركلات الترجيح.. منتخب الأسود غير المروضة يبحث عن إنجاز في كأس الأمم الإفريقية
+-  الخارجية الفلسطينية: آن أوان الانتصار للعدالة الدولية
+-  "3 بطاقات حمراء وزجاجة كحول تصيب رأس لاعب روما"... ما القصة؟
+-  Bir haftada 45 terörist etkisiz hale getirildi
+-  Bursa'da sinyalsiz yola atlayan sürücü kazaya sebep oldu!
+-  Borsa günün ilk yarısında yükseldi
+-  ABD, Nisan 2022'den bu yana ilk defa Rusya'dan petrol aldı
+-  Fenerbahçe'den Crespo'nun sağlık durumuyla ilgili açıklama:
+-  McIlroy raises idea of players signing contracts to give sponsors value
+-  इमेज सहकारीका बचतकर्ताको योजना : अध्यक्षको सम्पत्ति बेचेर पैसा फिर्ता
+-  ECP Launches Easy Voter Info SMS Service
+-  Gemeinde investiert in Abwasserleitungen
+-  নতুন সরকার কোন পথে স্বাস্থ্যসেবায় দ্রুত উন্নয়ন আনতে পারে
+-  Mickelson says he is too divisive to be a Ryder Cup captain
+-  Казахстанского застройщика обязали выплатить миллионы за вырубку деревьев
+-  [VIDEO] Así se filmó la escena del grave accidente que Sole y Benjamín sufrieron en ‘Como la vida misma’
+-  Ka kryer marrëdhënie seksuale me një të mitur, arrestohet 35-vjeçari në Fier, procedohet edhe një 17-vjeçar
+-  المؤسسة الليبية للاستثمار تنظم أول ملتقى لإدارات المخاطر والمراجعة والامتثال
+-  Icra Expects Revenue Expenditure To Increase By 4% In FY25
+-  Implementation Lag Continues: Only 8 Mn Smart Meters Installed in India Under RDSS, Says Icra
+-  Manish Prabhat Named As Next Ambassador Of India To Denmark
+-  Earthquake Tremors Felt In Delhi, NCR
