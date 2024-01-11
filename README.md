@@ -1,51 +1,51 @@
 # Latest News
--  Welspun World's Rs 40,000 Cr Investment To Fuel Gujarat's Green Energy Transition
--  SBI Successfully Raises $600 Mn Through 5-Year Dollar Bond Sale
--  Citypress | Thandiswa Mazwai to give New Yorkers a taste of Mzansi-style jazz and Afro-soul this weekend
--  토트넘이 '첼시 실패자'를 영입한 '3가지' 이유
--  '폭풍 영입 예감' 토트넘→베르너-드라구신에 이어 첼시 MF 영입 추진
--  김정은, 역대 두 번째 개인 통산 8000득점까지 '-34'…휴식기 마친 WKBL 대기록 쏟아질까
--  British Post Office scandal | U.K. Government plans to try to right those wrongs
--  Zbigniew Juroszek ma 6,79 proc. akcji Uniotu
--  “아무도 그의 역할을 대체할 수 없다”... 더 브라위너 복귀→맨시티 선수들 환호
--  “부상당한 선수 데려올 수는 없어”...이강인 파트너 될 뻔했는데 PSG가 영입 철회
--  지난 여름 케인 놓쳤던 맨유...'케인 백업' 34세 베테랑 FW 노린다
--  قرابة 7 مليارات دينار حجم التداول العقاري الأردني
--  ضبط حفارة مخالفة في سحاب
--  منتجات غذائية لتحسين عمل الدماغ
--  هل هناك مقاعد أكثر أماناً على متن الطائرة؟
--  احذر.. هذه البكتيريا قد تؤدي إلى الوفاة
--  كاتب إسرائيلي: حدودنا ستمتد وسنأخذ مكة والمدينة وجبل سيناء
--  LDA to become an exemplary institution in terms of service delivery, says CS
--  完成低軌衛星地面接收設備雛形！明泰攜手鐳洋共同爭取國際訂單
--  Da li kriza s Boingom utiče i na evropske avio-kompanije?
--  Južnoafrička tužba za genocid protiv Izraela
--  Istoričari od zanata treba da zastupaju stavove struke
--  Se va Lorena del Instituto de Educación
--  CHP belediye başkan adayları 2024 kimler oldu? CHP belediye başkan adayları il il tam liste!
--  Bakasetas Kartal olacak mı? İşte Beşiktaş'ın planı...
--  Fed üyesinden kısıtlayıcı politikaya devam mesajı
--  Trabzonspor'da Masouras yeniden gündemde!
--  EPDK'dan 41 şirkete lisans
--  Wilfried Zaha Premier Lig'e dönebilir!
--  AVM'ler neden teker teker batıyor?
--  Chris Christie odstúpil zo súboja o nomináciu Republikánskej strany v prezidentských voľbách
--  Čína varovala Taiwan: Víťazstvo Laj Čching-tchea v prezidentských voľbách by predstavovalo nebezpečenstvo
--  Krajský súd v Košiciach rozhodne v prípade vraždy ženy v Michalovciach
--  Francúzsky súd poslal do väzenia dvoch bratov: Okrádali dôchodcov o peniaze bizarným spôsobom
--  İşte Bonucci'nin Fenerbahçe'deki maaşı!
--  Poľský exminister vnútra by nemal držať hladovku vo väzbe: Porušuje tým zákon
--  Bursa'da kahreden olay: Okuldan evine giden 13 yaşındaki öğrenci hayatını kaybetti
--  वीर अस्पतालमा आउने बिरामीले गुनासो गर्ने अवस्था आउनु हुन्न: प्रधानमन्त्री
--  Lentoyhtiöt | Turkka Kuusiston on Finnairin uusi toimitus­johtaja
--  Tonto Dikeh Takes Legal Action Against VeryDarkMan for Criticizing Involvement in Mohbad’s Case
--  Budowlani giganci z największymi szansami na budowę ekspresówki
--  В Сочи загорелась квартира в четырехэтажке
--  ৮ গোলের রোমাঞ্চকর ম্যাচে শেষ হাসি রিয়ালের
--  Irã alerta sobre conspiração israelense para aumentar tensão no Oriente Médio
--  Gleisi vê Netanyahu isolado após posição brasileira contra o genocídio em Gaza
--  ടൊവിനോ ചിത്രം ‘അന്വേഷിപ്പിൻ കണ്ടെത്തും’ ! ടീസർ നാളെ വൈകീട്ട് 6 മണിക്ക്
--  As subcontinent Muslims outrage about Smriti Irani’s visit to Madinah, Saudis push back, say they don’t care about opinions of ‘converted Muslims’
--  শরীয়তপুরে ব্যবসায়ীকে পিটিয়ে পা ভেঙে দেওয়ার ঘটনায় মামলা, গ্রেপ্তার ২
--  В Тверской области могут построить обход Конаково
--  Ra’isul Wasaare Xamse iyo Masuuliyiin kale oo ka qeyb galaya Banaan-baxa Muqdisho
+-  "Claus richtet das schon" - Weselskys letzter Kampf
+-  Nach Hochwasser in Chemnitz: Rathaus lässt Wehr im Stadtzentrum in Ordnung bringen
+-  Rusijai šokas. Likviduotas pulkininkas. Vadovavo Krymo oro gynybos „akims ir ausims“ (Foto)
+-  女人肝火旺能吃桂圆吗
+-  女人肝火旺能吃阿胶吗
+-  女人肝火旺能吃榴莲吗
+-  肝火旺能吃枸杞吗
+-  肝火旺能吃红枣吗
+-  男性肾虚调理食谱：滋阴补肾，养生防虚
+-  怀孕月经和正常月经的区别
+-  Anies dan Ganjar Berpeluang Koalisi, Nusron Wahid: Pilpres Kan Satu Putaran
+-  На Попова Шапка -12, во Берово -10
+-  12 январь куни кутилаётган об-ҳаво маълумоти
+-  Дунёни коррупциядан ҳалол қўллар қутқаради
+-  Otkazuju se rezervacije, svi čekaju snijeg na skijalištu u Kolašinu
+-  5 Aktor yang Perankan Sad Boy dalam Drama Korea Populer
+-  Warga Palestina Berterima Kasih pada Afsel Bawa Kasus Dugaan Genosida Israel ke ICJ
+-  पाँच पाकेट नुन लिन दुई दिनको यात्रा
+-  Tekirdağ'da Soğuk Hava Etkili Oluyor
+-  Ovo su najmoćnije putovnice na svijetu, evo kako stoji Hrvatska
+-  La Bolsa de Tokio sube un 1,7 % y supera los 35.000 puntos después de más de tres décadas
+-  Malasia y Singapur acuerdan desarrollar una zona económica especial conjunta
+-  La Bolsa de Tokio sube un 1,77 % y supera los 35.000 puntos tras más de tres décadas
+-  Leqembi, el fármaco de Eisai contra el Alzheimer, a examen en la UE
+-  Las especulaciones sobre la sucesora de Switch impulsan récord bursátil para Nintendo
+-  Atentos a la inflación en Estados Unidos: 5 claves este jueves en Bolsa
+-  Las campeonas Tigres, con el posible debut de Jenni Hermoso, visitan a las Pumas
+-  Marmara'da başlayan kar yağışı ve fırtına balık fiyatlarına yükseliş olarak yansıdı
+-  중기중앙회, 가업승계 요건 완화 요구
+-  Deripaskini milioni su poslovna tajna
+-  중기부, 소상공인 지원 정책 최우선적 추진키로
+-  이재현 CJ 회장 "협력업체 손해 강요 안 돼" 5년 만에 계열사 방문
+-  '韓 프로야구 새 살림꾼' 박근찬 KBO 신임 사무총장 선임
+-  고령자도 북한산 등반 가뿐…KIST, 고성능 '웨어러블 로봇' 개발
+-  '국민 10명 중 3명 체육 활동 NO' 10대 가장 심각
+-  스타트업 코리아 펀드 출자자 본격 모집
+-  수원 염기훈 신임 감독 "김병수 감독 시절 쿠데타? 나는 떳떳하다"
+-  현대엘리베이터, 충주 지역 장애인 합창단 창단
+-  與공관위원장 정영환 "尹心 공천 없다, 믿어달라"
+-  'MLB 54홈런' NC, 새 외인 타자 100만 달러에 계약
+-  檢, '장애인 권리 선전물 부착' 전장연 박경석 대표 기소
+-  오염수 유입으로 평택 하천 7km 파란 물…방제작업 중
+-  '가습기살균제' SK케미칼·애경 1심 뒤집고 '유죄'
+-  '新 빙속 여제 출격' 韓 스피드 스케이팅 최강자 가리자
+-  검찰, '영등포 건물주 살인교사' 모텔업주 구속 기소
+-  한국 '여권 파워' 세계 2위…1위는 어디?
+-  산업부, 중국산 이차전지‧양극재 특허권 침해 조사 개시
+-  AOA 출신 유나, 2월 결혼
+-  이낙연 "민주당 1인 정당 변질…새 세력 만들겠다"
+-  '700억대 횡령' 우리은행 형제, 항소심서 형량 추가…2심, 중형 선고
