@@ -1,11 +1,11 @@
 # Latest News
--  Nawi Island starts to take shape as hub of activity
--  Gözler konut kredisi kampanyasında! Vatandaşın avantajı ne olacak?
--  Sydney’s overcharged approach the end of their tether
--  Gwen Stefani and Blake Shelton are 'going through tough times romantically' after spending time apart
--  한숨과 탄식
--  제주 온 ‘멸종위기종’ 반달가슴곰, 13일부터 민간에 공개
--  وظائف شاغرة ومدعوون للتعيين - أسماء
--  تونس تطلب تقديم مرافعات شفهية بالدعوى ضد إسرائيل
--  Ngộ nghĩnh, nghĩa tình thú cưng - Kỳ 5: Từ chú chó hoang thành 'con chung' của cả xóm
--  '문맹' 사실혼 남편 명의 이용해 수억원 빼돌린 60대 여성
+-  Peso Pluma desata polémica por el Festival de Viña
+-  La cantante Yael Danon alcanza la mayoría de edad
+-  Calle Abajo de Las Tablas realizará tradicional matanza
+-  Bala perdida mata a cantante en Ecuador
+-  Celulares, un arma de doble filo
+-  Es tres veces más grande que el monte Everest y se acercaa la tierra
+-  Tragedia en Gualaca,un muerto y 14 heridos
+-  Odebrecht incumplió pago de la multa acumulada
+-  Entró al país 7 mil toneladas de cerdo en lo que va de enero
+-  Ciudad de la Salud será entregada el 17 de enero
