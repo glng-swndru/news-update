@@ -1,51 +1,11 @@
 # Latest News
--  V Trnave bude vo štvrtok protest proti vládnemu návrhu Trestného zákona
--  Iron Prices Skyrocket by 7,000 Rupees Per Ton in Pakistan
--  ABD aralık ayı TÜFE rakamları belli oluyor! ABD enflasyon verisi 2024 ne zaman, saat kaçta açıklanacak?
--  Fatih Terim, Fenerbahçeli yıldızı açıkladı!
--  Beşiktaş'ta Quaresma sürprizi! Feyyaz Uçar açıkladı
--  התפוצ'יפס האהוב עלינו חזר למדפים. לא להרבה זמן
--  סנטי, תל אביב: בועה חמה של חיים נורמליים, בתוך כל הטירוף
--  Dəhşətli hadisə: Qadın vanna alarkən yanaraq ÖLDÜ
--  Bị stylist của dàn chị đẹp đồng loạt tố "nhận vơ", Denis Đặng nhanh chóng giải thích và có 1 động thái!
--  Không diện áo dài Tết, chị em sắm thử set áo yếm điệu đà, chuẩn vibe "nàng thơ" này thử xem
--  공직선거법 위반 김보라 안성시장 항소심도 무죄hellip;시장직 유지
--  김동연, 경기북부상의 신년인사회서 quot;경기북부특자도 설치 협력quot; 당부
--  Air Travel Hits 99% Of 2019 Levels As Recovery Continues In Nov — IATA
--  Family of six attempts suicide in front of Vidhana Soudha in Bengaluru
--  Иран разработи нови дронове с далекобойност 1500 км за нуждите на Русия в Украйна
--  Psikiyatri hastası, hastanede kaldığı odayı ateşe verdi
--  News24 | At least 15 killed in Papua New Guinea riots, Prime Minister vows crackdown on 'lawlessness'
--  Kırmızı bültenle aranıyorlardı; 10'u da İstanbul'da yakalandı
--  Doznajemo zašto USKOK ne može uzeti mito koje je Bandiću dao “kralj Adventa”
--  Meta въвежда нови ограничения за тийнейджъри във Facebook и Instagram
--  Помещение бывшего магазина «Бородинский» в Петрозаводске выставлено на торги
--  Κορονοϊός: Οι χορτοφάγοι έχουν… 39% λιγότερες πιθανότητες λοίμωξης – Τι έδειξε έρευνα
--  Владимир Путин на встрече с предпринимателями ДФО назвал российскую экономику первой в Европе
--  Popis najzagađenijeg voća i povrća na tržnicama
--  Top South African DJ Hospitalised
--  Atiku’s campaign spokesperson visits Tinubu, says he has no apologies
--  ECUADOR: El Ejército detiene a 329 «terroristas» en 24 horas
--  "الأشغال" قدّمت إجاباتها عن "طوفان المطار": لسنا المسؤولين
--  Борислава Христова и Сепси загубиха в женската Евролига
--  Amini Rencana Prabowo Soal Percepatan Tanggul Laut Raksasa, Ganjar: Kita Satu Guru
--  Global economy faces slowest growth in 30 years, WB warns
--  3 Milliarden Umsatz vor Weihnachten: Wer sich jetzt die Taschen mit Gutscheinen füllt | Leben & Wissen
--  Frontalzusammenstoß: 22-Jähriger in Lebensgefahr
--  Kırmızı bültenle aranıyorlardı; 10'u da İstanbul'da yakalandı
--  विधानसभा स्पीकर के फैसले पर क्यों भड़की शिवसेना ?
--  Daniyal Aziz to contest elections against PML-N as independent candidate
--  China Polycarbonate Market | [2028] Exploring Growth, Potential and Future, Trends
--  ช้าง บอดี้การ์ดคู่ใจ แม่แตงโม ยอมรับเมาจุ๊บแก้ม แจงสัมพันธ์-เคลียร์ปมแม๊ให้หย่าเมีย
--  Ekvador'da çete terörü!
--  Ekmek bandırarak tüketin! Zeytinyağlı karışım bağışıklığı güçlendiriyor
--  İbn Haldun Üniversitesi dünyaya açılıyor
--  Kızgın boğalar ‘Zilli Öküz'e yenildi
--  Meteoroloji il il uyardı... Yoğun kar geliyor! İstanbullular dikkat!
--  Erdal Beşikçioğlu aday gösterilince Mansur Yavaş masayı terk etti! CHP'de Behzat Ç. krizi
--  Kapadokya'da sıcak hava balon turuna rüzgar engeli
--  Verdiği kilolarla dikkat çeken Zara'dan çok konuşulacak gala tarzı
--  İBB Başkan adayı Murat Kurum: Rakibimiz söz verip sözünde durmayanlar
--  Sözde "Hicret" yapılanması... FETÖ'cülerin ihanet yemini ortaya çıktı
--  Berdan Mardini, genç sevgilisi Dilara Talay ile galaya katıldı
--  Covid, Oms: "Virus continua a mutare e uccidere, fare test e vaccini"
+-  Supermarkt: dm und Alnatura in großer Sorge wegen neuer Regel
+-  KB국민은행, “주택담보대출 갈아타면 첫 달 이자 지원금 50만원”
+-  하나은행, 소상공인‧자영업자 30만명에 3557억원 민생금융 지원
+-  NH농협은행, 신규직원 대상 금융사기 피해 예방 교육 실시
+-  Prof. Uścińska: obecnie ZUS stał się w znacznym stopniu e-urzędem
+-  KIB: wprowadzenie benzyny E10 zwiększy produkcję bioetanolu o co najmniej 200 tys. ton rocznie
+-  여성가족부, 전국 80개 새일센터에서 ‘경력단절예방’ 지원
+-  FKA Twigs SLAMS decision to ban her Calvin Klein poster for presenting singer as a 'stereotypical sexual object' and claims 'there are double standards' at play
+-  النمل ينتج مضادات حيوية تعالج جروحا قاتلة
+-  رئيس الجمهورية يدعو أذربيجان إلى تسهيل آلية منح الفيزا للعراقيين
