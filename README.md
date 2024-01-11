@@ -1,51 +1,51 @@
 # Latest News
--  Zaufanie konsumentów na Węgrzech najwyższe od prawie 2 lat
--  Ceny materiałów budowlanych w grudniu spadły o 2,6 proc.
--  To warto wiedzieć przed sesją na GPW 11 I 2024
--  JP Morgan obniżył rekomendację dla PZU
--  Raiffeisen wydał rekomendacje dla CD Projektu i 11 bit studios
--  Zełenski przybył do Tallina; będzie rozmawiał o współpracy obronnej
--  «المالية»: 2.8 مليار درهم مزاد صكوك الخزينة الإسلامية
--  قرض جديد للأردن بـ1.2 مليار دولار مدته 4 سنوات
--  «البترول الكويتية» تطرح بيع زيت وقود عالي الكبريت لـ3 أشهر
--  الإمارات تضبط بوصلتها التنموية على «الرقم 1» عالمياً
--  سلطان يصدر مرسومين بإنشاء «الشارقة الرقمية» وتعيين مديراً عاماً للدائرة
--  سلطان يعين خالد بن أحمد القاسمي رئيساً لدار الوثائق بالشارقة
--  لماذا استقبلت الجماهير السعودية نجم ريال مدريد بصافرات الاستهجان؟
--  «أسود الرافدين» يختتم تدريباته في أبوظبي ويتوجه إلى قطر
--  صالح راضي مدرباً لسيدات العراق
--  أرسنال يشتري مهاجم خيتافي مايورال
--  Soccerladuma | Ex-Portugal Boss Lifts Lid On Benching Ronaldo At Qatar WC
--  Soccerladuma | Pirates Close To Beating Sundowns To Foreign Striker?
--  Dressed to Impress: Fringed Sequin Dresses or Black Sequin Dresses
--  Deutschland bei EM: „Dann wird es für jeden Gegner schwierig bis unmöglich“
--  โฆษก ตร. ย้ำห้ามขึ้นชั้น 14 แจง กมธ.ตำรวจ หวั่นละเมิดสิทธิคนไข้
--  "Ovo ne prolazi. Pa nismo mi banana-republika"
--  सुनको मूल्य घट्दा चाँदीको मूल्य स्थिर
--  आगमन घट्दा बढ्यो काउलीको मूल्य
--  Gestreifter Einsatz - Polizei fängt entlaufenes Zebra ein
--  42-летний туляк осужден за незаконное хранение наркотиков
--  WP: Путин чувствует скорую победу на Украине
--  AT: Военнослужащий ВСУ пытался продать террористам ракеты для ПЗРК Stinger
--  Japan PM Kishida launches reform panel in bid to restore support
--  หนุ่มดวงซวยออกหาปลา ถูกช้างป่าเหยียบตายสยอง บริเวณลำคลองเขาสมิง
--  "Cậu ấy vô dụng hoàn toàn trước Fulham"
--  Xác nhận! Chelsea ký hợp đồng với "Cole Palmer mới"
--  Сибирскую региональную авиацию будут развивать совместно со странами БРИКС
--  Goncalo Ramos chìm sâu trong áp lực ở PSG
--  Vampire singer Olivia Rodrigo looks angelic in white polka dot mini dress at Hunger Games event in LA
--  Former leader of main opposition Democratic Party leaves from party
--  นายกฯ เปิดปฏิบัติการฝนหลวงแก้ปัญหาหมอกควัน ฝุ่น PM 2.5 ปี 2567 ที่เชียงใหม่
--  مأساة الخيام.. شتاء جديد يقسو على النازحين بإدلب
--  ایمل ولی خان نے توہین عدالت کیس میں معافی مانگ لی
--  Gary Gensler bestätigt: Bitcoin-Spot-ETF ist zugelassen – BTC-ECHO | Bitcoin & Blockchain seit 2014
--  Nominacije za Elector: tko je obilježio 2023. na elektroničkoj sceni?
--  M&S dépasse les attentes et affiche une hausse de 8,1% de ses ventes de Noël
--  Brexit is a Failure, but who will tell the British?
--  Selena Gomez shrugs off Golden Globes drama for a red carpet appearance... after quitting Instagram for 24 hours
--  Time to move out? Living with these cheeky flatmates would make you want to look for a new home
--  허리디스크, 비수술 치료와 수술 치료 중 어느 것이 더 효과적일까?
--  Getlink : recul du trafic en décembre
--  "Nije poziv na rat, ali odustati nećemo"; Sad je pitanje hoće li mladići u Srbiji 100 ili 120 dana u vojsku?
--  กุ้ง สุธิราช ไม่หมดหวัง! วิรดา น้องสาวยังวิกฤต สมองบวมอยู่ ดูอาการวันต่อวัน
--  육군부사관학교, ‘학록장학금’ 수여
+-  تقليص عدد الشركات الفرعية في سونلغاز إلى 11 شركة
+-  라인게임즈 레그스튜디오, ‘창세기전’ 콘솔판 개발팀 해체
+-  농협금융, 리스크관리 토론회 개최…부동산PF 영향 등 논의
+-  울진군, '교육발전특구' 지정 행정력 집중
+-  영암군, 2023년 고향사랑기부금 12억3600만원hellip;'전국 2위' 달성
+-  영양군, '단열 에어 캡 설치' 사업 큰 호응
+-  울진군, quot;농어업발전기금 신청 하세요quot;
+-  이낙연 전 총리 민주당 탈당hellip;전북정치권에 미칠 영향은?
+-  보성군, 올해 보성사랑상품권 10% 할인 판매 개시
+-  quot;전통시장은 주차장이 경쟁력quot;hellip;익산시 중앙시장 주차장 확충 팔걷어
+-  quot;국내 첫 차단벽 사격장 아십니까?quot; hellip; 익산 천마부대 소음 줄여 주민과 상생
+-  정읍시, 농산물 잔류농약 '선제적 차단'으로 신뢰도 향상
+-  게임 흥행도 '가치 소비' 영향 받는다...게임사 '도덕성'이 게이머 선택 기준 된다
+-  '전독시' 컬래버 '세븐나이츠 키우기' 2차 업데이트...유중혁·유상아 등장
+-  Συγκλονίζει ο Σβεν-Γκόραν Έρικσον: «Έχω ένα χρόνο ζωής»
+-  [신년특집 게임코인TV] 3N 자존심 넷마블의 '마브렉스'...새 수장 맞아 다시 뛸 준비 마쳤다
+-  "바다 배경 이색 사진 찍자" 위메이드커넥트, 포토이즘 매장에 '어비스리움' 화면 제공
+-  [카드뉴스] 니어스랩이 CES서 최초 공개한 자율주행 'AI 드론'
+-  غربت کے انڈیکیٹرز
+-  قابل تشویش امر
+-  Aktien Frankfurt Eröffnung: Dax gewinnt vor US-Inflationsdaten - Gute Vorgaben
+-  China tells US to 'refrain from intervening' in Taiwan election, slams official visits
+-  New Collective Agreement at Gofore Comes Into Effect: Here's How Salaries Will Rise
+-  Google licenzia centinaia di persone in team Assistant, hardware e ingegneria
+-  Ira Khan and Nupur Shikhare Wedding: लेकीच्या लग्नात भावूक झाला आमिर खान; आयराही इमोशनल झाली, पाहा लग्न सोहळ्यातील इनसाइड व्हिडीओ
+-  ΑΕΚ: Η θέση για Γκαλιόλο και τα αγωνιστικά δεδομένα για Νέα Σαλαμίνα
+-  A Guide to Financial Planning for Couples
+-  KPK Tangkap Bupati Labuhanbatu Sumatera Utara Erik Atrada Ritonga
+-  '시민덕희' 라미란 "평범한 캐릭터라 살 찌운 건 아냐…다이어트 실패" [MD현장]
+-  “류현진에게 1000만달러↑기회 온다” 美확신, 보스턴? 메츠? ML 78승 시계 돌아간다
+-  대명아임레디, 일본 ‘북해도 풀패키지’ 여행상품 출시
+-  '美日 경험 풍부' NC 새 외인 데이비슨 "한국 문화 배우고파, 우승 위해 노력하겠다"
+-  '앙리 후계자'는 무슨...아르테타도 포기했다!→'500억'에 매각 결단
+-  TFF yeni yabancı kuralını açıkladı
+-  'The Beekeeper' movie review: Jason Statham has more than a bee in his bonnet
+-  Οι αντίπαλοι Σάκκαρη και Τσιτσιπά στη Μελβούρνη
+-  Thomson Reuters, offerta da 627 million $ per acquisto società svedese Pagero
+-  BOLEST SE ŠIRI U BiH: U entitetu RS potvrđeno 57 slučajeva velikog kašlja, među oboljelima najčešće tinejdžeri
+-  X: Über tausend Mitarbeiter für Moderation und Sicherheit entlassen
+-  MS Dhoni: ప్రాక్టీస్‌ మొదలెట్టేసిన తలైవా, సంబరాలు చేసుకుంటున్న ఫ్యాన్స్‌
+-  Nano One Materials Corp.: Nano One meldet Verpflichtung von Carlo Valente als Finanzvorstand
+-  Amazon anuncia centenas de demissões de áreas de streaming e estúdio
+-  Avrupa'nın doğal gaz arzında sıkıntı yaşaması beklenmiyor
+-  Anadolu Efes'in THY Avrupa Ligi'nde rakibi Bologna
+-  Тунчев взима Витанов в Арда?
+-  Σαν σήμερα έφυγε από τη ζωή ο Μπάμπης Γκολές
+-  [동서남북] 소풍 왔다가 돌아가는 사람들
+-  [유천의 세상이야기] 누가 ‘김건희 특검’ 매듭 풀까
+-  [본사손님] 이영석 경상북도 환동해지역본부장
+-  [김영인의 동행] 우리의 정치 그리고 야누스의 두 얼굴
