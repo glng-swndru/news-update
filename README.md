@@ -1,51 +1,11 @@
 # Latest News
--  Shilpa Shetty gets a special gift from her inspiration Karan Bedi
--  Khelo India Youth Games 2024: Date, time, venue, live streaming, and more
--  FitSpresso Reddit Reviews: What Real Users Are Saying (Weight Loss Supplement)
--  Geekran Glucose Watch Reviews (Consumer Reports and Amazon): Don’t Buy Till You
--  '신장식의 뉴스하이킥'에 '관계자 징계'...추가 중징계 수순
--  NS&I to slash Premium Bonds prize fund rate from March draw
--  เมรี คำภีร์ เคลียร์ชัดพ่อของลูก ไม่ต้องเลี้ยง ไม่ต้องส่งเสีย ไม่ต้องเซ็นรับรองบุตร!
--  MLee lộ chuyện ẩn ý chê bai Trang Pháp, drama chị em từ mặt mà Lệ Quyên nói tới là đây?
--  Hà Hồ được khen khi nhắc con làm 1 việc: Cách dạy con quyết định trẻ lớn lên hiếu thảo với ông bà hay không
--  ĐT Việt Nam sắp ra quân, HLV Park Hang Seo gửi thông điệp tới Hoàng Đức
--  Cuộc sống khác biệt trước và sau làm dâu gia tộc nghìn tỷ của Linh Rin, giữ nguyên tắc hào môn giống hệt Hà Tăng
--  16 kentte DEAŞ'a eş zamanlı operasyon!
--  Yerel seçime katılacak parti sayısında düşüş! Bir parti seçime katılmayacak
--  Türkiye Kupası'nda format değişti
--  ÖFKENİN TARİHİ
--  İzmir ve ilçeleri için 'zirai don' uyarısı
--  Milli İstihbarat Akademisi, güz döneminde öğrenci almaya başlayacak
--  16 ilde 70 DEAŞ şüphelisi yakalandı
--  Yüksekova- Şemdinli kara yolunda kara saplanan araçtakiler kurtarıldı
--  Başkan Altay, çocukların şivlilik coşkusuna ortak oldu
--  TFF açıkladı! Türkiye Kupası'nın formatı değişti
--  Emekli maaşı promosyon yarışı kızıştı! Bankalar promosyonlarında güncelleme yapmaya başladı
--  CHP'de değişim lafta kaldı... Özgür Özel sözünü tutmadı
--  Tevbe Suresi 36. ayet Arapça ve Türkçe okunuşu: Diyanet Tevbe Suresi 36. ayet meali ne?
--  Filistin'den çarpıcı İsrail yorumu: Adalet Divanında yargılanması tarihi bir olay
--  Devrim Özkan da hastalandı: Salgından nasibimizi aldık
--  Fenerbahçe Beko'nun evinde rakibi Bayern Münih
--  Bakan Göktaş: Depremzede bin 912 çocuktan bir tanesi bile kayıp değil
--  Türkiye'nin desteğine dikkat çekti... KKTC'den "iki devletli" çözüm vurgusu
--  Mersin'de 17,4 milyon liralık elektronik eşya ele geçirildi
--  "Yunan balıkçılar tehdit edildi" iddiası yalanlandı... "Gerilim söz konusu değil"
--  Hande Erçel "çok yoruldum, beni bir salın" deyip sonunda isyan etti!
--  Fenerbahçe'de Gaziantep FK maçı mesaisi başladı
--  Bankacılıkta kredi hacmi 11,6 trilyon liraya yükseldi
--  Murat Kurum'dan Ispartakule'ye metro müjdesi: Biz başladık mı bitiririz
--  Gelinim Mutfakta Karakuş Tatlısı Tarifi ve malzemeleri! Karakuş Tatlısı nasıl yapılır?
--  Hizbullah İsrail'e ait noktalara saldırdı
--  Andy Farrell is CONFIRMED as head coach for the British and Irish Lions tour of Australia in 2025
--  Moment prolific burglar parades his fleet of stolen cars in gloating TikTok video before he's caught by cops - as he's jailed for nicking 12 vehicles and breaking into a woman's home
--  MLS star Aaron Boupendza risks up to five years in prison and a £13,000 fine in his native Gabon after allegedly appearing in a leaked sex tape
--  Moment prolific burglar parades his fleet of stolen cars in gloating TikTok video before he's caught by cops - as he's jailed for nicking 12 vehicles and breaking into a woman's home
--  New images reveal how Aberdeen’s Wallace Tower interior could be turned into one-of-a-kind cafe
--  Kandász Andreát fel sem ismerték a Mokkában: barna, rövid hajjal lepett meg mindenkit
--  'Persoon in rivier bij Hardinxveld' blijkt boomstronk te zijn
--  Average price of petrol has dropped below 140p a litre for the first time in over TWO YEARS
--  Average price of petrol has dropped below 140p a litre for the first time in over TWO YEARS
--  Ngày đầu cao điểm của CSGT toàn quốc: Hơn 2.300 tài xế có nồng độ cồn bị xử lý
--  Australia thử nghiệm robot siêu âm tim từ xa đầu tiên trên thế giới
--  Điểm tin 18h: TP.HCM cấm đào đường dịp Tết; Phát hiện người nhập cư lậu trong container đông lạnh
--  Người đi xe máy cấp cứu sau va chạm với xe cảnh sát giao thông
+-  부산항만공사, ‘대·중소기업 안전보건 상생협력사업’ 우수기업 선정
+-  이낙연 민주당 전 대표, 탈당·창당 선언
+-  남해 시금치 ‘보물초’ 서울서 특판
+-  허대양 함안부군수, 읍면 현안 청취·군민과의 대화
+-  김명수 국립원예특작과학원장 함양 딸기농장 방문
+-  이곤정 형평운동기념사업회 이사장 “형평정신 확산 힘쓰겠다”
+-  [제3기 경남일보 경제포럼]11강 김홍신 작가
+-  경남도 “의대 정원 확대 시 지역 의료 수요 적극 반영해야”
+-  quot;여성들은 곳곳에서 차별과 모욕을 당하며 억울하게 살아가고 있습니다quot;
+-  국정원장 후보자가 외국 자본에 거액 주택임대료 로비 의혹?
