@@ -1,11 +1,51 @@
 # Latest News
--  Social Democrats - too small to survive?
--  IT Q3 FY24 Results: TCS, Infosys Navigate Challenges
--  Gross Direct Tax Collections Up 16.8% So Far In 2023-24
--  Biomaterials contribute greatly to reduction of greenhouse gas emissions but are not yet climate neutral, finds study
--  Black Taurus Says Now A Free Agent After Leaving AAA
--  IND vs AFG, 1st T20I: Rohit Sharma Furious With Shubman Gill After Being Run Out For Duck; Watch Viral Video
--  3000 عنصر.. شبكة واسعة تستغل "الضباب" لإدخال السموم إلى دولة عربية (تفاصيل)
--  عاجل.. السجن وغرامة موجعة.. النيابة العامة: 3 عقوبات لمن يتعمد ارتكاب هذه المخالفة
--  وزير الطاقة ونظيره الأردني يوقعان اتفاقية تعاون في مختلف المجالات
--  شاهد.. حالة مطرية جنوب المدينة المنورة
+-  Dworzec Lublin przywita podróżnych. W piątek wielkie otwarcie
+-  גל פיטורים נוסף בדרך: ענקית ההימורים הישראלית ממשיכה בצמצום
+-  הקריפטו היומי: השוק בעלייה, איזה מטבע עולה ב-21%?
+-  זוכת 'האח הגדול' בתביעת ענק: דורשת רבע מיליון שקל
+-  Key Decisions by Dhami Cabinet in Uttarakhand : नजूल नीति विस्तार, छावनी क्षेत्रों से नागरिक बहिष्कार, और बहुत कुछ.
+-  אסוס משיקה: מחשב הנייד הראשון בעולם המורכב משני מסכי מגע
+-  Video | Uusi Stalinia kuvaava ikoni turmeltiin Georgian pää­kirkossa
+-  تنسيق مصري - قطري لمزيد من الدعم للجرحى الفلسطينيين
+-  بمعدل نمو 57%.. بنك QNB الأهلي يربح 16.2 مليار جنيه في 2023
+-  رئيس الـ"فيفا" يشيد بالنادي الأهلي عبر خطاب رسمي
+-  بروتوكول تعاون بين الهجرة وبنك مصر لتقديم الخدمات المصرفية للمصريين بالخارج
+-  الأزهر يعلن تأييده جنوب إفريقيا في دعواها القضائية ضد جرائم الإبادة الجماعية بغزة
+-  الإفتاء تعلن موعد أول أيام شهر رجب 1445 هجرية
+-  البنك الأهلي يجمع 135مليار جنيه في الشهادة 23.5% و27% في أول أسبوع
+-  Übertrieben oder gerechtfertigt? Frau regt sich über „ganz schlimmen“ Zustand Ihrer Ferienwohnung auf
+-  Uran i Neptun mają niemal identyczne kolory, ale na zdjęciach się różnią. Dlaczego?
+-  Kinezi zavirili u središte Zemlje i otkrili čudo
+-  غياب وزير الدفاع الأميركي يحرج بايدن قبيل الانتخابات
+-  George Carlin’s Daughter Blasts Dudesy AI-Generated Comedy Special Impersonating Her Dad: “No Machine Will Ever Replace His Genius”
+-  Đerona: Naša grupa najujednačenija
+-  زيلينسكي يحذر من «سحق» أوكرانيا في حال «توقف» الحرب وإعادة تسلّح موسكو
+-  Edital IBGE publicado; 895 vagas no CNU; veja os detalhes!
+-  السوداني يناقش خطة "آرنست و يونغ" لهيكلة مصرف الرافدين
+-  Saskatoon morning news rewind: Thursday, Jan. 11
+-  דגו: "איבדנו מספיק נקודות ואנחנו במקום השני, אין סיבה לחגוג"
+-  לא ידע שובע: תושב ירושלים מואשם שהונה עשרות אלפי שקלים - והזמין לעצמו ארוחות סושי
+-  Charnay-lès-Mâcon. Demandeurs d’emploi et recruteurs bientôt réunis sur le parquet du Cosec
+-  Nigeria Army ready to flush out bandits, kidnappers from Taraba
+-  Kažnjeni Brazil i Argentina
+-  VIDEO/ E vranë barbarisht dhe e futën në një sënduk, ja momenti ku dy autorët largojnë trupin e 41 vjeçares shqiptare nga banesa
+-  Hertz: domanda debole e costi alti, vende 20'000 auto elettriche
+-  Klimaatminister Rob Jetten heeft 19 miljard over en kan heel veel zonnepanelen uitdelen
+-  Man die gezin doodreed op A59 in beroep tegen straf
+-  Boete voor bedrijf tv-presentator Mens om laks witwasonderzoek
+-  Afrikaanse bisschoppen wijzen Vaticaanse homozegen af. 'In strijd met de wil van God'
+-  11 Ocak piyasalarda gün sonu I Borsa yüzleri güldürdü! İşte döviz, altın ve BIST 100'de son durum...
+-  Microsoft even voorbij Apple als waardevolste bedrijf ter wereld
+-  Ángel Víctor Torres impulsará la accesibilidad total para las personas con discapacidad en edificios y servicios públicos de la Administración General
+-  Koyun Otlatmaya Gitmişti: Cansız Bedeni Bulundu!
+-  Luis Planas: "Mantener la reducción del IVA de los alimentos va en beneficio del conjunto de los ciudadanos"
+-  Yolanda Díaz reclama una "Europa a favor" de nuevas directivas que aseguren los derechos y la formación de las personas trabajadoras
+-  Inter Milan, AC Milan & Napoli All Keeping Tabs On Out-Of-Contract Fulham Defender
+-  Former MP Maganti Babu meets JSP leader Pawan Kalyan
+-  Universal’s Spring Radio Silence Monster Thriller Gets Title
+-  Diese zehn Festivals finden in Baden-Württemberg statt
+-  Diese zehn Festivals finden in Baden-Württemberg statt
+-  Diese zehn Festivals finden in Baden-Württemberg statt
+-  Diese zehn Festivals finden in Baden-Württemberg statt
+-  Resimli Regaip Kandil Mesajları YENİ! 2024 Dualı, Hadisli, Yazılı, Regaip Kandili mesajları ve sözleri
+-  Borsa Usa, indici in calo, dati inflazione smorzano speranze taglio tassi
