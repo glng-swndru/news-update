@@ -1,11 +1,11 @@
 # Latest News
--  הצ'ק המפתיע שזק"א קיבלו מצוקרברג: "הוא יהודי שראה את הזוועות"
--  חשד לחיסול: בן 30 נהרג בעקבות פיצוץ רכב בטירה
--  סוהר שב"ס חשוד בעבירות טוהר מידות - ונחקר בלהב 433
--  Randers forlænger med Odey med håb om lukrativt salg
--  Румънски фермери блокираха Дунав мост 2 - Труд
--  "Para tener éxito en algo tienes que fracasar muchas veces", Tony Vergara
--  سعر خيالي.. بيع شقة في دبي بـ136 مليون دولار قبل بنائها
--  6 إشارات خفية في الليل تنذر بمشاكل في القلب- انتبه إليها
--  مقتل عنصرين من الدفاع المدني اللبناني في قصف إسرائيلي لمركز إسعاف
--  وزير العمل: حريصون على سرعة إصدار قانون يشجع على الاستثمار ويعالج القصور
+-  Social Democrats - too small to survive?
+-  IT Q3 FY24 Results: TCS, Infosys Navigate Challenges
+-  Gross Direct Tax Collections Up 16.8% So Far In 2023-24
+-  Biomaterials contribute greatly to reduction of greenhouse gas emissions but are not yet climate neutral, finds study
+-  Black Taurus Says Now A Free Agent After Leaving AAA
+-  IND vs AFG, 1st T20I: Rohit Sharma Furious With Shubman Gill After Being Run Out For Duck; Watch Viral Video
+-  3000 عنصر.. شبكة واسعة تستغل "الضباب" لإدخال السموم إلى دولة عربية (تفاصيل)
+-  عاجل.. السجن وغرامة موجعة.. النيابة العامة: 3 عقوبات لمن يتعمد ارتكاب هذه المخالفة
+-  وزير الطاقة ونظيره الأردني يوقعان اتفاقية تعاون في مختلف المجالات
+-  شاهد.. حالة مطرية جنوب المدينة المنورة
