@@ -1,11 +1,11 @@
 # Latest News
--  Supermarkt: dm und Alnatura in großer Sorge wegen neuer Regel
--  KB국민은행, “주택담보대출 갈아타면 첫 달 이자 지원금 50만원”
--  하나은행, 소상공인‧자영업자 30만명에 3557억원 민생금융 지원
--  NH농협은행, 신규직원 대상 금융사기 피해 예방 교육 실시
--  Prof. Uścińska: obecnie ZUS stał się w znacznym stopniu e-urzędem
--  KIB: wprowadzenie benzyny E10 zwiększy produkcję bioetanolu o co najmniej 200 tys. ton rocznie
--  여성가족부, 전국 80개 새일센터에서 ‘경력단절예방’ 지원
--  FKA Twigs SLAMS decision to ban her Calvin Klein poster for presenting singer as a 'stereotypical sexual object' and claims 'there are double standards' at play
--  النمل ينتج مضادات حيوية تعالج جروحا قاتلة
--  رئيس الجمهورية يدعو أذربيجان إلى تسهيل آلية منح الفيزا للعراقيين
+-  Trump: The United States would never help Europe if it came under attack
+-  127 هجوما على قواعد واشنطن منذ 7 أكتوبر
+-  حتى المساء.. "الأرصاد" يُحذر من أمطار على عدة محافظات بالمدينة
+-  اكتشاف مذهل.. لقاح كورونا يحمي من فيروس نيباه المميت
+-  عاجل.. طقس إجازة نهاية هذا الأسبوع.. تحذير من كتلة باردة وأمطار على هذه المناطق
+-  العتيبي: تقنية تبريد الطرق في المشاعر المقدسة تخفف درجة الحرارة بنحو 12 مئوية
+-  Naujos „Gmail“ ir „Yahoo“ taisyklės: Didesni rinkodaros el. paštu reikalavimai siuntėjams
+-  Jo nori Ukraina. Legendinis „Saab JAS 39 Gripen“. Geriausias naikintuvas pasaulyje? (Video)
+-  [ŽT] „Slavai žudo slavus.“ Solovjovas keičia retoriką. Kas nutiko (Video)
+-  „Pats keliauk į „SVO“. O mes kovosime čia.“ Rusų karių žmonos užpuola deputatą (Video)
