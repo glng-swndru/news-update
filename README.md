@@ -1,51 +1,51 @@
 # Latest News
--  Four rhino horn smugglers arrested
--  Ncell, DHM sign MoU strengthening Early Warning Systems to cover 13 hazards
--  Obžalovanú Renátu D. prepustili z väzby: Rozhodnutie potvrdil Najvyšší súd SR
--  Poľského kňaza vzali do vyšetrovacej väzby: Je obvinený zo sexuálnych a drogových trestných činov
--  Vláda v Papue-Novej Guinei vyhlásila výnimočný stav: Nepokoje si vyžiadali najmenej 15 obetí
--  Petra Vlhová hlási problémy, zrušila oficiálny tréning na zjazdovke v Jasnej
--  CES 2024: AI lên ngôi trong lĩnh vực làm đẹp
--  Tin tức giải trí 11-1: Táo quân chính thức trở lại, concert Hà Anh Tuấn cháy vé
--  Năm qua tạm giữ trên 150.000 xe, công an TP.HCM giảm giữ xe vi phạm
--  Các tỉnh, thành phố đăng ký hoàn thành 108 dự án nhà ở xã hội trong năm 2024
--  "المسند" يكشف أسباب دفء مكة المكرمة في الشتاء
--  الإسعاف الجوي يباشر حادث تصادم وإصابات على طريق "درة العروس" بجدة
--  Schadl György mosolyogva, maszk nélkül sétált be a bíróságra, volt bizalmasa szerint lehet, hogy találkoztak Völner Pállal
--  ‘PTI bat symbol’: ECP challenges PHC decision in Supreme Court
--  South Africa tells the UN top court Israel is committing genocide in Gaza
--  Антифриз идишларидаги "Тропикамид" фош бўлди
--  Ёшлар тадбиркорлиги ва таълимини ривожлантиришга эътибор кучайтирилди
--  Сайёрамизнинг энг бой аёли ким?
--  Samsung представила «неубиваемый» смартфон
--  Zu weit weg: Das nächste Restaurant will das Burgquartier verlassen
--  Swiatek could face 2 past champs in Australia; Djokovic-Tsitsipas rematch would be quarterfinal
--  TCS Q3FY24 results: Adjusted net profit at Rs 12,016 cr, revenue up 4%
--  ‘टाटा मोटर्स फन कार्निभल’ आयोजना गर्दै सिप्रदी, पुरानो गाडीसँगै नयाँ साट्न सकिने
--  DRC – Re-election of Mr Felix Tshisekedi as President of the Democratic Republic of Congo (10 Jan. 2024)
--  Josh Hutcherson’s brother and his boyfriend had to explain viral ‘Whistle’ meme to him
--  الفريق القانوني لجنوب إفريقيا: غزة أصبحت مكانا للموت واليأس بسبب سياسات إسرائيل
--  بسبب دعم فلسطين.. يوسف عطال يستأنف على الحكم بحبسه في فرنسا
--  برلمانيون من 28 دولة يطالبون بوقف فوري لإطلاق النار في غزة
--  نسختين متتاليتين بركلات الترجيح.. منتخب الأسود غير المروضة يبحث عن إنجاز في كأس الأمم الإفريقية
--  الخارجية الفلسطينية: آن أوان الانتصار للعدالة الدولية
--  "3 بطاقات حمراء وزجاجة كحول تصيب رأس لاعب روما"... ما القصة؟
--  Bir haftada 45 terörist etkisiz hale getirildi
--  Bursa'da sinyalsiz yola atlayan sürücü kazaya sebep oldu!
--  Borsa günün ilk yarısında yükseldi
--  ABD, Nisan 2022'den bu yana ilk defa Rusya'dan petrol aldı
--  Fenerbahçe'den Crespo'nun sağlık durumuyla ilgili açıklama:
--  McIlroy raises idea of players signing contracts to give sponsors value
--  इमेज सहकारीका बचतकर्ताको योजना : अध्यक्षको सम्पत्ति बेचेर पैसा फिर्ता
--  ECP Launches Easy Voter Info SMS Service
--  Gemeinde investiert in Abwasserleitungen
--  নতুন সরকার কোন পথে স্বাস্থ্যসেবায় দ্রুত উন্নয়ন আনতে পারে
--  Mickelson says he is too divisive to be a Ryder Cup captain
--  Казахстанского застройщика обязали выплатить миллионы за вырубку деревьев
--  [VIDEO] Así se filmó la escena del grave accidente que Sole y Benjamín sufrieron en ‘Como la vida misma’
--  Ka kryer marrëdhënie seksuale me një të mitur, arrestohet 35-vjeçari në Fier, procedohet edhe një 17-vjeçar
--  المؤسسة الليبية للاستثمار تنظم أول ملتقى لإدارات المخاطر والمراجعة والامتثال
--  Icra Expects Revenue Expenditure To Increase By 4% In FY25
--  Implementation Lag Continues: Only 8 Mn Smart Meters Installed in India Under RDSS, Says Icra
--  Manish Prabhat Named As Next Ambassador Of India To Denmark
--  Earthquake Tremors Felt In Delhi, NCR
+-  Επανάληψη εκλογών στον Δήμο Αλεξάνδρειας Ημαθίας με απόφαση του Τριμελούς Διοικητικού Πρωτοδικείου Βέροιας
+-  Great year for museums; Many still have financial troubles
+-  Inflatable Toys Market to Develop New Growth Story
+-  Energy Storage Lithium-ion Battery Market to See Huge Growth by 2024 | Tesla, Inc, Blue Energy
+-  Extruded Plastics Market Set for Strong Growth, Projected to Reach $315.92 Billion by 2028 with a CAGR of 6.4%. Key Players: Apogee Enterprises Inc., Olsen Doors and Windows Limited, Fletcher Building Limited
+-  State aid commissioner approves €240m for RESTART
+-  Μητσοτάκης: Ο αθλητισμός ενώνει και δεν διχάζει
+-  بحث إمكانية إنشاء خط غاز بين نيجريا وأوروبا مرورا بليبيا
+-  Telecom Service Assurance Market Types and Applications, Drivers, Ongoing Trends, Future Demand, Challenges, Top Companies & Forecast 2023-2030 |Broadcom, Ericsson, NEC Corporation
+-  17 yaşındaki Meleknur'u vurarak öldürmüştü... Zanlı cezaevine gönderildi
+-  16 ilde “KAHRAMANLAR-40” operasyonu: 70 şüpheli şahıs yakalandı
+-  İran'da bombalı saldırı şüphelisi 35 kişi gözaltına alındı
+-  Resmen duyurdular! PSG, Sacha Boey'i doğruladı!
+-  Vizyona 7 yeni film giriyor
+-  Mandera scales-up bursary allocation
+-  Businesses in Kikuyu struggling as festivities end
+-  Finlandiya-Rusya sınırı 1 ay daha kapalı kalacak
+-  Preživjela silovanje i smrt bebe, Oprah sad 'teži' milijarde dolara
+-  NA INSTAGRAMU SVE DELUJE SAVRŠENO Fitnes instruktorka pokazala moć društvenih mreža i poručila ženama samo jedno
+-  Insights on the Vascular Patches Market to 2023 | Industry Statistics, Emerging Demands, Forecast to 2030 | Nintendo, Sony PlayStation Portable (PSP), Xbox Cloud Gaming
+-  'Şivlilik' diye gelen çocuklara etliekmek ikram ettiler
+-  Backup Power Market to Develop New Growth Story
+-  Trendyol 1. Lig'de yabancı sayısı gelecek sezondan itibaren düşürülecek
+-  Immunzellen gegen Alzheimer – Experten sehen „wichtige Entwicklung“
+-  The World’s Top 10 Most Turbulent Flight Routes in 2023
+-  Digital Printing Outsourcing Service Market Company Share, Major Competitors, Regional Segments, Strategies, and Forecast until 2030 |Minuteman Press, Pixartprinting, DigitalPrinting
+-  Quantexa Partners with the Anti-Human Trafficking Intelligence Initiative (ATII) to Intensify the Fight Against Human Trafficking
+-  Seltener Wal vor der Küste von South Carolina wird voraussichtlich an Verletzungen sterben
+-  El TEDH valida que los partidos puedan supervisar sus cuentas de correo corporativas y no sanciona el espionaje en UPYD
+-  [“영하 10도에도 덜덜 떨며 킥보드 왜 타나 했더니” 20대 ‘짠내’ 이 정도?
+-  [설현 “167㎝인데 체중 48㎏로 정해줬다”…‘어린’ 아이돌 연습생, 이런 일 없어진다?
+-  [[박정규의 작살] 허문도 예언 적중했나
+-  BOJ reportedly considers lowering price outlook for fiscal year 2024 to middle 2% range
+-  Novo lice velesile: Bio je maskota i pobijedio rak, prezire Formulu 1, a razmaženi Neymar mu je ‘sredio‘ otkaz
+-  Digital Devices Technologies Market Size, Share Growth Status, Emerging Technology, Key Players, Industry Challenges, and Forecast till 2030 |Bose, Cisco, Dolby, Hitachi, LG, Motorola
+-  'He's criticised as overhyped player just on his IPL performances': Ashwin launches strong defence of star youngster
+-  Gaat Oranje stunten? Dit moet je weten over het EK in handbalmaf Duitsland
+-  নতুন মন্ত্রী-প্রতিমন্ত্রীরা বঙ্গভবনে, শপথ সন্ধ্যায়
+-  সিনেমা নির্মাণে নিয়মিত হবে অন্তর শোবিজ
+-  যশোরের কেশবপুরে তুচ্ছ ঘটনায় নারীকে পিটিয়ে হত্যা
+-  মার্সিডিজ-হ্যারিয়ারের লোগো চুরি করত তারা!
+-  Afganistan'ın kuzeydoğusunda 6.4'lük deprem!
+-  Life | 'It's like something from a movie': Brunei's 'hot royal' ties the knot in 10-day extravaganza
+-  Ice Cream Market to Develop New Growth Story
+-  Llega la reventa de entradas de la final de murgas: 200 euros por dos bolis... y bonos de regalo
+-  INEC Seeks Election Observers For Upcoming By-Election
+-  Commercial Vehicle Leasing Services Market Recent Trends, In-depth Analysis, Size and Forecast 2023 to 2030 |ACE Rent A Car, Advantage Opco, ALD International SA
+-  Scholz llama a la unión de los demócratas ante los planes de la ultraderecha alemana para deportar a millones de inmigrantes
+-  Semiconductor Demand Boosts Extreme Ultraviolet Lithography Market with Key Players: ASML Holding N.V., Nikon Corporation, Canon Inc
+-  Istituto “Marco Polo” di Palermo al “freddo”, scatta l’occupazione degli studenti
