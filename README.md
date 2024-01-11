@@ -1,11 +1,51 @@
 # Latest News
--  عاجل.. الخطوات اللازمة للتسجيل كمحتاج في منصة إحسان .. والشروط التي يجب توافرها
--  الجمعة 30 جمادى الآخرة.. مواقيت الصلاة في مكة والمدينة وجميع مناطق المملكة
--  [[헤럴드 운세] 2024년 01월 12일 오늘의 운세로 만드는 완벽한 하루, '오운완'
--  [최태원 회장, 인테리어 스타트업 베트남 진출 계획에 “최대 기업 소개시켜주겠다” [CES2024]
--  [HD현대사이트솔루션, 글로벌 농기계 기업과 ‘북미공동연구센터’ 설립 추진
--  [“만져봐도 될까요?”…‘팝의 거장’ 스티비 원더, 현대차·기아 부스 찾았다 [CES2024]
--  Donovan Mitchell : “je veux absolument être à Paris avec Team USA pour les Jeux Olympiques dans six mois”
--  NBA Paris Game 2024 : victoire des Cavs face aux Nets (111-102) !
--  Buli trend biasa kalangan remaja?
--  «أسود الأطلس» يطمئنون جماهيرهم بثلاثية قبل «الأمم الأفريقية»
+-  Güney Afrika Cumhurbaşkanı: Hiçbir zaman bu kadar gururlu hissetmemiştim
+-  Katar'dan Gazze'ye 18 ton insani yardım
+-  ¿Piensas comprar una autocaravana? Llega el mejor momento: La feria caravaning con ofertas de 60 expositores
+-  Deset nepříznivých daňových změn pro OSVČ v roce 2024
+-  Traumatized passenger wants drug OD-reversing medication aboard buses after frightening incident
+-  Reconocen exjugador Alexis Peña en softbol de Leyendas
+-  Why the grounding of the Boeing 737 Max 9 won't impact the majority of travelers at Minneapolis-St. Paul
+-  Iran seizes oil tanker off Oman in dispute with US
+-  AOA 출신 유나, ♥작곡가와 결혼 발표 "빈자리 채워준 사람" [전문]
+-  에이핑크 박초롱 "윤보미 따라 투자했다가 펀드사기 제대로 당해"[노빠꾸탁재훈]
+-  "저 복귀시켜 주세요!" 맨유 출신 베테랑 MF의 '황당한' 역제안...돌아온 대답은?
+-  '3년만 안방 복귀' 이하늬, '밤에 피는 꽃'으로 다시 한번 꽃 피울까 [MD포커스]
+-  박한별, 초호화 도쿄 라운딩에 대만족 "호텔처럼 생겼어" [마데핫리뷰]
+-  "마이너 가면 말짱 도루묵"…이정후·고우석 맞대결 기대하는 배지환 "난 루키라는 변명 안 통해"
+-  브브걸 이후 13년만…용감한형제, 4인조 걸그룹 '캔디샵' 론칭 [공식]
+-  “10년 지난 것 같다…왜 이렇게 안 오냐고” 이정후·안우진 없는 영웅들…‘다이어트 조’ 화려한 귀환
+-  故이선균 사망 16일…봉준호·윤종신→장항준 등, 오늘(12일) 성명서 발표 [MD이슈]
+-  '시민덕희', 아는 맛이라도 맛있는걸 [마데핫리뷰]
+-  SK증권, 공식봉사단 ‘함께행복’ 출범
+-  Jesus quer reforçar defesa e pode 'roubar' um português para o Al Hilal
+-  해상풍력, 특별법 논의 지지부진한데 예산도 '뚝'…힘 빠지나
+-  Parents Supporting Their Adult Children Is Causing a Retirement Crisis
+-  상주시 농특산물 쇼핑몰 설맞이 30% 할인
+-  Montreal Man Ordered to Appear on Charge of Inciting Hatred: RCMP Probe
+-  En una carta, Milei invita al papa Francisco a visitar Argentina para superar las divisiones #11Ene
+-  Gophers’ triple threat going for it
+-  Trey Lance sells South Bay home for $2.7 million
+-  América: se retrasa el regreso de Néstor Araujo y estaría listo para esta fecha del Clausura 2024
+-  Combaten voraz incendio en colonia Las Ánimas cerca a la Unión Ganadera
+-  Novo exame de sangue detecta 18 tipos de câncer em fase inicial
+-  Innocence Canada lawyer seeks new trial, new evidence allowed in 2019 murder case
+-  비트코인 현물 ETF 국내 거래 제동…금융위 “자본시장법 위배 소지”
+-  한동훈 "금고형 이상 세비 반납"…김남국 "이재명 퇴원 날까지 그래야 했나"
+-  美 비트코인 현물 ETF 거래 개시…첫날 거래액 6조원
+-  อี ซอน คยุน ความโศกเศร้าที่สะท้อนมาตรฐานกฎหมายและจริยธรรม
+-  Recalé par le parrainage / Bougane Guèye Dany révèle : « Ce que j'ai dit à mes collaborateurs... et que Macky Sall n'a pas compris »
+-  من بينهم رشيدة داتي.. هذه تشكيلة الحكومة الفرنسية الجديدة برئاسة غابرييل أتال
+-  الوزير الأول السنغالي: المغرب شريك مميز
+-  يتهم المغرب بخرق قوانين الكاف.. الإعلام الجزائري يروج لأكاذيب حول مباراة المغرب الودية
+-  تعيين مغربية وزيرة للثقافة في الحكومة الفرنسية الجديدة
+-  برشلونة يقصي أوساسونا من كأس السوبر ويواجه الريال في النهائي
+-  تزامنا مع إيض يناير.. الحكومة تعزز استخدام اللغة الأمازيغية بعدد من الوزارات
+-  Gustavo Bolívar solicitó disminución de las tasas de interés del Banco de La República
+-  Hunter Biden Trial Gets New Timeline
+-  Xavi Hernández habla tras el triunfo del Barcelona en la Supercopa de España
+-  Province warns of invasive infections hike
+-  [스한:시청률] '미스트롯3' 오유진·나영·정서주, 2라운드 진선미…14.9% 기록
+-  "내가 아빠이자 형" 지적장애 직원 가스라이팅 해 살인 지시
+-  "Fisco não afasta possibilidade de cobrar IMI das barragens de 2019"
+-  ضاحي خلفان: يجب وضع نتنياهو بمصحة عقلية
