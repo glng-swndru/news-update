@@ -1,11 +1,11 @@
 # Latest News
--  محكمة باب الوادي: فتح تحقيق في ادعاء أشخاص بأنهم أعضاء في الهيئة الوطنية لمكافحة الفساد بغرض النصب
--  Арестован призер чемпионата мира по боксу в Алматы
--  Beşiktaş’tan eski futbolcusu Victor Ruiz’e ödeme
--  „Medyk” oficjalnie we współpracy z amerykańską firmą
--  Grues, camions, avions-cargos... Voici comment les orques de Marineland seraient transférées au Japon
--  Ligde ilk 11'de yabancı sınırı kalktı
--  Chile: Concejal pide que se cancele presentación de Peso Pluma en Viña del Mar
--  Americans Rush to Refinance Homes as Mortgage Rates Drop
--  Akshay Kumar takes the Mumbai metro instead of luxury car
--  Pan-Asian restaurant Foo opens new outlet in Mumbai in Thane`s Viviana Mall
+-  גלנט לאחר הדיון בהאג: "אין מלחמה צודקת יותר - ואין צבא מוסרי יותר"
+-  ​Procuradora alvo de processo disciplinar mantém críticas ao Ministério Público
+-  Suuri F1-persoona sai lähtöpassit - ”Fanit rakastivat häntä”
+-  Cumhurbaşkanı Erdoğan'dan Regaib Kandili mesajı
+-  Cẩn thận “bom” trong đầu khi nhiệt độ thay đổi, 4 triệu chứng phình mạch máu não dễ bị bỏ qua
+-  23 tuổi chốt lời đậm sau lần đầu bán nhà, cô gái khuyên bạn: 3 tiêu chí cần nắm vững nếu muốn thử sức đầu tư BĐS
+-  Rộ nghi vấn Seulgi (Red Velvet) bị fan cuồng rình rập, nhắn tin với nội dung quấy rối
+-  Ái nữ nhà "Thái tử Samsung" góp mặt trong bữa tiệc quy tụ giới tài phiệt, nhan sắc sang chảnh chuẩn tiểu thư gia tộc giàu nhất Hàn Quốc
+-  Mỹ nam "nằm không vẫn giàu cả đời" nhờ cảnh phim 5 phút, tan nát sự nghiệp vì bạn gái kém 24 tuổi
+-  Tú Vi lên tiếng bênh vực khán giả trường quay Đạp gió, nói gì khi được hỏi có thất vọng về show như Lệ Quyên?
