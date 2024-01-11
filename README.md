@@ -1,51 +1,51 @@
 # Latest News
--  '전설의 시작을 알렸던 그 경기' 비카리오, 이번에도 '빛카리오' 모드 재현해 승리 선물할까
--  Inwoners roeren zich: 'Windturbines in polder weerzinwekkend'; raad Molenlanden houdt vast aan shortlist
--  חגיגה על המגרש וביציעים: כשפריז מארחת משחק NBA
--  日本能登地区地震已致213人遇难，震区灾民怒斥：大部分救援物资是垃圾
--  奥克兰高温来袭！气象部门警告：保持水分充足，寻找阴凉处……
--  杀妻自尽！不该发生的华人血案！沈阳夫妻买新房庆祝，酿人间惨剧...
--  Ювентус розгромив Фрозіноне у Кубку Італії
--  Pentagon defends Taylor Swift after bizarre conspiracy theory
--  The Finals dev explains why aim assist was nerfed in latest patch
--  [최태호의 우리말 바로 알기] lsquo;반증(反證)rsquo;과 lsquo;방증(傍證)rsquo;
--  [문상윤 식품전문기자의 커피 이야기] ① 커피음용의 시작: 기능성에서 기호성을 거쳐 다시 기능성으로
--  [남친 흉기 위협해 수감된 여고생, 유치장서 "철심 먹었다"
--  La debacle de Bill Belichick y los Pats tras la salida de Tom Brady
--  '이혼 8년차' 오윤아 "子 생각 많이 나서 힘들었다" [한 번쯤 이혼할 결심]
--  "맨유, 우승하고 싶다면 손흥민을 영입하라!"…맨유 '트레블 영웅'의 촉구, 래시포드 3골+회이룬 1골+마르시알 1골+안토니 0골! "맨유에 무엇이 필요한지 몰라?"
--  조인성, 박보영x박인비 등장에 "손흥민x김민재 가진 구단주 느낌" 든든[어쩌다사장3]
--  Weinig beweging op Wall Street na nieuwe inflatiegegevens
--  Britse media: VK en VS overwegen aanval op Jemenitische Houthi's
--  NYC Mayor Adams reverses NYPD budget cuts planned due to city’s spiralling migrant crisis
--  Akşener çifti 42. yıldönümlerini kutladı
--  Sujeto que agredió a gestor de tránsito se arrepiente: «Es feo estar preso, no les recomiendo»
--  El régimen de excepción impulsa la posible reelección de Bukele en El Salvador, según críticos
--  ‘Waardeloze’ koppelkoers Van Schip en Havik op EK: ‘Michael Jordan heeft ook meer gemist dan geraakt’
--  İngiltere Başbakanı Sunak’tan acil kabine toplantısı
--  Kahve Kilo Aldırır Mı? Kahve Kilo Yapar Mı?
--  Hombre condenado por violación fue aprehendido en Colón
--  Israel asegura que Hamás usó más de 6.000 toneladas de hormigón para su red de túneles
--  Euractiv o izborima u Srbiji: Čini se da institucije EU ne žele da preduzmu konkretne korake
--  Trump discute con juez mientras proceso por fraude civil en Nueva York se acerca a su fin
--  غادة عبدالرازق: تعرّضت للاستغلال
--  خبراء ومحللون: إسرائيل متخوفة وفقدت أعصابها
--  على خلفية إخفاء الوضع الصحي لاوستن.. البنتاغون يبدأ مراجعة شاملة
--  محكم أردني: بحال إدانة إسرائيل تستطيع المحكمة ملاحقة مجرمي الحرب
--  برشلونة يصل لنهائي السوبر الإسباني بالفوز على أوساسونا
--  [인사이드 스토리]'갈수록 흥미진진' 포스코 차기 수장 찾기
--  Equipe de France : Lucas Digne en passe de rejoindre Neymar en Arabie saoudite ?
--  Barcelona supera o Osasuna e faz final da Supercopa da Espanha com o Real Madrid
--  Baliho AMIN Diturunkan Lagi di Kampung Susun Akuarium, Bagaimana Situasi di Rusun Lain?
--  غارديان: دعم حرب غزة يدر الأموال على مؤيدي إسرائيل بالكونغرس
--  In Revensdorf gebissen: Mann erleidet 17 Operationen nach Hundeattacke
--  OMEN creó la laptop gamer de 14 pulgadas "más fresca del mundo", con procesadores Intel Core Ultra y GPU RTX serie 40
--  Ciudad Juárez critica las políticas “antimexicanas” y “absurdas” del gobernador de Texas
--  Аналитики ожидают роста бурения нефтегазовых скважин на 11% в 2025 году
--  Perú y cámaras de comercio Sudamericanas se reúnen para tomar medidas frente al contrabando
--  Luta dos polícias não tem data para terminar: sindicatos reuniram-se com direção nacional da PSP
--  Preview: Fortuna Sittard vs. Sparta Rotterdam - prediction, team news, lineups
--  La Fiscalía colombiana acusa formalmente al hijo de Petro y lo llama a juicio
--  Hunter Biden pleads not guilty to tax evasion charges
--  Demonstrationen in Polen: Polen: PiS-Anhänger demonstrieren gegen die Regierung von Tusk
--  Demonstrationen in Polen: PiS-Anhänger demonstrieren gegen die Regierung von Tusk
+-  [反트럼프 후보사퇴에 판세 출렁…헤일리, 뉴햄프셔서 이변 만들까
+-  [테니스 시즌 첫 메이저 호주오픈 14일 개막…tvn 스포츠·TVING 생중계
+-  Potkut saanut F1-pomo vihjaili paluusta rallikuvioihin
+-  Tshekkivahvistus iski hattutempun - turkulaisseura 12 ottelun tappioputkessa
+-  [유명 아이돌, '이 커피' 마셨다가 악플 세례받고 사과…"그 쪽 편이지?"
+-  سعيد يكشف عن عملية "فساد" بديوان التجارة.. واخفاء صك لصفقة القهوة
+-  CHP'de istifa depremi! Bozdoğan Özel'e ateş püskürdü
+-  Zuliani gode: «Juve Frosinone, bella vittoria per Samardzic»
+-  Extreme cold weather warnings issued for mountain highways in B.C.
+-  Cierran por tolvaneras carretera Janos-Ascensión
+-  '맥도날드 대굴욕'…"동네 분위기 해친다" 입점 거부당해
+-  4천여마리 '들개천국'된 이 곳…관광객 물려 숨지기도
+-  조원진 "與 검사 출신 총선 후보들, 정청래·안민석과 붙어라"[한판승부]
+-  유대인 출신 하버드생 "하버드, 反유대주의 보루" 소송
+-  박효신 전입신고한 한남더힐 아파트, 강제경매…실제 거주 여부 몰라
+-  Perin a Mediaset: «Vogliamo toglierci soddisfazioni. Scudetto? Sta a noi dimostrare di non essere inferiori all’Inter»
+-  بعد طرده في مباراة المغرب الفاسي: أنباء عن استقالة البنزرتي من تدريب الوداد
+-  سعيد في زيارة إلى حي التضامن والانطلاقة ودوار هيشر
+-  [포커스On] 민주당 분열 가속화되나…이낙연 전 대표, 이원욱·김종민·조응천 탈당
+-  193국 무비자 입국…한국, 여권 파워 세계 2위로 올라
+-  Netflix: el encuentro entre un superviviente del accidente aéreo de Los Andes y un actor de La sociedad de la nieve
+-  Juventus silovito do polufinala Kupa Italije
+-  Wyndham Confirms Receipt of Expansive FTC Second Request Under HSR Act for Choice's Unsolicited Hostile Offer to Acquire Wyndham
+-  Object Computing Announces Initiatives to Encourage Women in Technology
+-  „Elitedenken hat nachgelassen“: Boris Becker schlägt Alarm
+-  Ivan elogia concorrência pelo gol do Inter em apresentação e avisa: "Estarei sempre preparado"
+-  Gulfstream Park: Your Premier Year-Round Destination
+-  Traffic Nuts
+-  MONSTA X’s I.M Drops 1st Teasers For New Solo Single
+-  Tikoitoga laid to rest today
+-  Srušio se helikopter u Francuskoj, ima poginulih
+-  En Quito arranca Circuito del ITF World Masters Tennis Tour
+-  Info-Tech Research Group Appoints Tom Zehren as Chief Executive Officer
+-  이란 "美유조선 나포"…중동 원유 항로 '호르무즈 해협' 봉쇄 위기
+-  예상치 웃돈 美CPI 상승률에도 연준 3월 금리인하 가능성 커져
+-  네타냐후, ICJ 제노사이드 재판 맹비난
+-  ⑨다자녀 부모가 애국자.. '자녀세액공제'로 혜택 팍팍
+-  푸틴 측근 "우크라가 미사일 발사대 공격하면 핵대응" 경고
+-  Tinubu Receives Brief On $10bn Investment Prospects In Nigeria’s Steel Sector
+-  Congress moves closer to government shutdown
+-  Comienzan fiscalizaciones a empresas que no pagaron aguinaldo
+-  N.B. Medical Society says alternative primary care program contributing to family doctor shortage
+-  Video: “Doesn’t want to go in” – Liverpool fans will love what the cameras caught Darwin Nunez saying after Fulham win
+-  “Son rumores”: Feliciano Castro sobre ser posible sucesor de Inzunza; pero tampoco lo ha invitado Rocha
+-  ‘Disrupt the status quo’: B.C. opens 5 new urban Indigenous Justice Centres
+-  U studentskom domu Nedžarići pojavili se insekti: Sumnja se na stjenice
+-  Vão ser pais pela segunda vez!
+-  Bandits Kill Village Head, Eight Others In Fresh Katsina Attack
+-  CHP'de istifa çatlağı derinleşiyor... Bozdoğan'dan Özel'e zehir zemberek sözler
+-  Kenan Yıldız'dan muhteşem bir son vuruş! İşte attığı müthiş gol...
