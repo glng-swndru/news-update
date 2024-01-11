@@ -1,51 +1,11 @@
 # Latest News
--  Crowell Names Mark Fenoughty as CFO
--  Kazım Albayrak'ın yazdığı okunası kitap: İslami Hareketin Temelleri
--  AB'den "zorunlu göç" tepkisi: Kesinlikle kabul edilemez
--  Tuzlanmış bulaşık süngeri kullanın! 1 kaşık tuzun etkisine şok olacaksınız
--  Afganistan'da el bombalı saldırı: 2 kişi hayatını kaybetti
--  Pakistan'da 36 çocuk zatürreden öldü
--  Hudutsuz Sevda fragmanı: Halil İbrahim tutuklanacak mı? Hudutsuz Sevda 16. Bölüm fragmanı yayınlandı mı?
--  Chelsea, Fofana'yı geri çağırdı
--  Kara'nın yıldızı İlker Kaleli'nin bu halini belki de ilk kez göreceksiniz!
--  Yapay zeka dersleri üniversite müfredatına eklenecek
--  MHP 55 Belediye Başkanı adayını daha açıkladı
--  Çaykur Rizespor'da Adana Demirspor mesaisi sürüyor
--  MHP 55 belediye başkan adayını daha açıkladı
--  Türk jetleri NATO ülkesinin hava sahasında ilk defa silah kontrol görevi yaptı
--  Çaykur Rizespor, Adana Demirspor mesaisini sürdürüyor
--  Aşka Düşman 2. bölüm izle! Tv8 Aşka Düşman son bölüm izle kesintisiz!
--  SON DAKİKA HABERİ: MHP 8 il ve 47 ilçe başkan adayını daha açıkladı
--  Hrozivé odhalenie o tom, ako Ukrajinci miznú v ruských väzniciach: Bez obvinenia, vyšetrovania, súdu
--  Zbohom, sovietska minulosť: Tadžická metropola Dušanbe zažíva obrovské zmeny
--  Slávny herec sa rozvádza: Teraz priznal, že býva na ulici!
--  تسجيل 10 آلاف حالة وفاة ب COVID-19: تحذير من تجدد التهديد
--  AKTUÁLNE Pri požiari autodielne v Poprade sa zranil jeden človek, na mieste sú hasiči
--  The Rock Promises To Do Things Never Before Done in WWE
--  Emil Ruusuvuorelle villi vastustaja Australian avoimissa
--  Jesse Puljujärven tilanne puhuttaa - Ismo Lehkonen painaa jarrua Ylellä
--  İYİ Parti İzmir İl Başkanı görevden alındı!
--  Francis Ngannou launches stinging attack on Tyson Fury over next fight and fumes ‘I don’t give a s***’
--  United Imaging Intelligence Highlights Dedications to Advancing Intelligent Healthcare at RSNA Conference 2023
--  DREO EXPANDS PRODUCT LINES WITH A NEW 2-IN-1 PURIFIER TOWER FAN AND MILK FROTHER
--  Norcod AS annonce un nouveau contrat rentable en Chine
--  Gamers could be missing out on thousands depending on their subscription – see where you get the best value
--  Unaprijedite svoje gaming iskustvo na sasvim novu razinu!
--  Fiasko i JVM – Modo-stjärnan sänkte lagkamraterna
--  בשורה לצרכני האשראי בישראל: "עידן חדש בשוק התשלומים"
--  אופירה אסייג משתוללת: "בושה! זכותה להגן על עצמה"
--  Дуда решил начать новый процесс помилования экс-главы МВД Польши и его зама
--  Lunds ras i tabellen: ”Kan nog sitta mentalt”
--  LETTER: Proposed parking rates make sense
--  Mijailović: Platili smo obeštećenje, Kaboklo ostaje naš igrač
--  Gerçekten çok ilginç; dil ile kontrol edilebilen mouse tanıtıldı
--  U Iranu uhapšeno 35 osoba u vezi sa napadima u Kermanu
--  우주항공청, 5월말 개청 목표…"우수 인재 스카우트"
--  Innenraum zerstört: Jäger setzt Hochsitz in Mechernich mit Gasofen in Brand
--  В Минске десятиклассница совершила суицид. Перед этим она раздала свои вещи знакомым
--  Monagas distribuyó más de 2 mil 141 toneladas de proteínas en el año 2023
--  Мишустин вручил премии правительства РФ в области СМИ
--  Ajax vrijwel rond met Excelsior over terugkeer van Kian Fitz-Jim
--  'ครูสาวถังแตก'ทำแม่เสียหน้า รีบหาเงินไถ่'โน๊ตบุ๊ค-มือถือ'คืนนักศึกษา
--  V referendových komisiách bude zapojených dovedna 130 ľudí
--  Enjoy Photography Exhibition ‘Glimpse’ by Tom Watson in Javea
+-  Pelaku Bajing Loncat yang Viral di Makassar Telah Mendekam di Hotel Prodeo, Satu Masih Dikejar
+-  Asesinan con arma blanca a indigente en Cuauhtémoc
+-  Buscan a Gobernador Infantil 2024 por un día
+-  আঙুলের থেকেও ছোট এই ফোন
+-  할리우드 진출한 김윤지, 강렬한 레드 드레스…몸매까지 할리우드st
+-  Galatasaray'da Okan Buruk kendisine gelen topa şık bir vuruş yaptı! Tüm stat onu alkışladı, akıllara Fatih Terim geldi
+-  La emotiva fiesta de cumpleaños del Rey Juan Carlos en su casa de Abu Dabi (Fotos)
+-  Minister Kodwa cheers Bafana Bafana for AFCON amid injury worries
+-  La Policía de Ecuador capturó terroristas y liberó a tres oficiales secuestrados: siguen los ataques y las cárceles tomadas
+-  Mauaji Njombe yaacha maswali, Polisi wajitosa
