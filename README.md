@@ -1,51 +1,51 @@
 # Latest News
--  KG Mobility Unveils Torres EVX, a Game-Changing Wireless Charging Platform at CES 2024
--  İsrail'den Gazze Şeridi'ne ağır bombardıman: Çok sayıda Filistinli hayatını kaybetti, onlarca kişi yaralandı
--  Company running WebMD uses bizarre and cringe video mocking working from home and threatening employees who continue to avoid the office
--  Plantea MC no registrar candidatos en Guerrero por violencia
--  Asesinan a supuesta empleada municipal fuera de presidencia
--  Kerala: Congress to take guarded approach over seat-sharing for LS elections
--  이찬원, 맞대결 상대 안성훈에 "미안하다" 전격 사과 [미스트롯3]
--  Hanni und Nanni 2
--  Clippers star Kawhi Leonard signs three-year, $152million extension... keeping him in LA for next season's relocation to new Intuit Dome
--  '글루타치온 과장광고' 여에스더 쇼핑몰, 영업정지 2개월 처분
--  Real Madrid 5-3 Atletico Madrid: Bản lĩnh nhà vô địch
--  Fan Ả Rập không im lặng để tưởng nhớ Beckenbauer
--  Chấm điểm Real Madrid: Carvajal 'gánh' Kepa
--  When Curtly Ambrose took 7-1 from 32 balls
--  When Curtly Ambrose took 7-1 from 32 balls
--  Klopp nêu lý do cho chiến thắng ngược dòng của Liverpool
--  Trent Alexander-Arnold chưa già, Liverpool đã có sẵn người thay thế
--  คุณแม๊ภนิดา โต้กลับโซเชียลเลิกด่าแม่หน้าเงิน “โปรดเข้าใจทำไปเพื่อลูก”
--  বাংলাদেশের জনগণের আকাঙ্ক্ষা পূরণে যুক্তরাষ্ট্রের ইচ্ছার পরিবর্তন হয়নি: জন কিরবি
--  নাটোরে নছিমন উল্টে স্বামী-স্ত্রীর মৃত্যু
--  Stone laid for 2nd Indo-Israel Project in Palnadu
--  [▶▶ 24년부터 전국민 카카오톡 추천주 무료.!
--  [[헤럴드pic] 비트코인 현물 ETF 상장 승인
--  [[헤럴드pic] 상승흐름 보이는 비트코인
--  賴清德竹北旋風式掃街催票 支持者高呼「美德贏台灣」
--  [[헤럴드pic] 기대감 넘치는 비트코인
--  Dự kiến khoảng 75.000 tấn hàng về chợ đầu mối nông sản Hóc Môn dịp cận Tết Giáp Thìn
--  قرض کی اگلی قسط، آئی ایم ایف ایگزیکٹو بورڈ اجلاس آج ہوگا
--  Naira Depreciation: Cadbury Seeks $7.7m Foreign Debt Conversion To Equity
--  Bengaluru Metro’s Green Line extension likely to open by July
--  APSRTC launches doorstep cargo pickup service in Vijayawada
--  임금체불 현장단속 확대…태영건설 사업장 전수조사
--  El 88% de los salvadoreños no utilizó bitcóin durante 2023
--  23歲職軍正妹美翻！「超仙臉蛋」曝光 被長官秀配偶欄求愛
--  Trump reveals he has already PICKED his running mate but refuses to name them in Fox News town hall
--  Atalanta past Milan and into Italian Cup semis, Lazio triumph in derby
--  واٹس ایپ صارفین کیلئےویڈیوکال کے فیچرمیں اضافہ کرنےکوتیار
--  Who is in charge of Europe?
--  Jyoti CNC Automation IPO Day 3: GMP, subscription status, other details. Apply or not?
--  Največji ledeni park gradilo 10.000 ljudi
--  ‘Biocon Hebbagodi’ station name to remain same: BMRCL MD
--  5 trận đáng xem nhất vòng bảng Asian Cup 2024: ĐT Việt Nam có tên
--  Price Analysis 10/02: BTC, ETH, DOGE, and ETH BETA COINS!
--  吃不起中國「豆漿油條界愛馬仕」 40家倒36家
--  БАБХ иска кметовете да приберат животните от пътищата и нивите
--  Nahost: Israel weist Völkermord-Vorwurf zurück
--  Nahost: Israel weist Völkermord-Vorwurf zurück
--  Nga có thể sắp phát động một cuộc tấn công lớn
--  태영건설 '운명의 날'…워크아웃 개시 여부 결정
--  娘娘怎麼了？《後宮甄嬛傳》41歲孫儷腫了一圈 老態超明顯
+-  الحوارات: مثول إسرائيل أمام محكمة العدل الدولية اليوم صفعة لتل أبيب والسياسة الأمريكية
+-  ارتفاع أسعار النفط عالميا اليوم
+-  جماعة "أنصار الله" تعليقا على قرار مجلس الأمن: لعبة سياسية
+-  حاخامات يهود يعتصمون في مجلس الأمن مطالبين بوقف الحرب على غزة
+-  ​‘ก้าวไกล’ดักคอ‘รัฐบาล’ ออกพันธบัตรเดินหน้า‘ดิจิทัลวอลเล็ต’ซ้ำเติมปัญหาหุ้นกู้
+-  เด็กชาย 5 ขวบเหยื่อลุงคลั่งยามีดฟันหัวสาหัส พ้นขีดอันตรายแล้ว ตร.รวบตัวแจ้งข้อหาอ่วม
+-  'อ่างทอง'ค่าฝุ่นละอองสีแดง เตือนหลีกเลี่ยงกิจกรรมกลางแจ้ง
+-  เพิ่งยอมรับ! สึนามิสูง3เมตรซัดโรงไฟฟ้านิวเคลียร์ในญี่ปุ่น หลังแผ่นดินไหว 7.6
+-  영화 '소풍' 시니어벤져스의 따뜻한 포스터 공개...임영웅의 자작곡 까지 기대 ↑
+-  “이 친구는 터지면 무서운데…” 김경문도 주목했던 재능, 공룡들 24세 왼손 1루수 ‘퇴로는 없다’
+-  아이유(IU) '깜짝 금발 변신, 팬 반응은 최고'
+-  원주문화재단, 사진작가 윤재진 초청 기획사진전 개최
+-  아동학대 의심돼 아이 가방에 숨겨둔 ‘녹음기’… 대법 “증거능력 없다”
+-  양양 수산항 어촌신활력증진사업 선정, 새로운 도약 발판 마련
+-  Alleluia les Spurs ont gagné un match, c’est contre les Pistons mais ça compte quand même
+-  Jalen Johnson, l’explosion continue : 25 points, 16 rebonds, 7 passes, et le shoot de la gagne face aux Sixers
+-  Ba bí quyết giúp mối quan hệ giữa cha mẹ và con cái càng thêm bền chặt
+-  [부고] 임채수 서울지방세무사회장(전 잠실세무서장) 장모상
+-  베베쿡, 교원 빨간펜과 MOU…"건강·교육 니즈 충족"
+-  비트코인, 단기보유자 물량 거래소 대량 이동에 '상승 멈칫'
+-  ΤΑΙΠΕΔ: Οι ξεχασμένες επενδύσεις και η πρώτη νίκη στον Ταύρο
+-  CBN dissolves Union, Keystone, Polaris Banks’ board, management
+-  VN: hulptransporten kunnen noorden van Gaza amper bereiken
+-  Veiligheidsraad eist dat Houthi's aanvallen op schepen stoppen
+-  PC-Spiele für unterwegs: MSI zeigt Gaming-Handheld Claw
+-  Záhadná maľba zo 16. storočia má dokazovať cestovanie v čase: Tu je vysvetlenie
+-  สกิน A-Train และ Firecracker จาก The Boys เตรียมบุกเข้าเกม Call of Duty: Modern Warfare III
+-  再追鍾易仲假學歷 許智傑「給鳳山的一封信」向選民溫情喊話
+-  馬英九籲「兩岸關係信任習近平」 游盈隆：是信賴台灣與相信習近平的選擇
+-  Ceny energií stahují některé firmy. Přežijeme, ale bude to těžké, vzkazují
+-  The DeSantis vs. Haley Debate Didn’t Give Us a Single Human Moment
+-  Derriban drones ucranianos sobre tres provincias rusas
+-  Israel weist Völkermord-Vorwurf zurück
+-  Krieg gegen die Ukraine: So ist die Lage
+-  Pflege im Heim wird teurer - auch mit Kostenbremsen
+-  Coconut to dates til laddu: Relish the scrumptious dish with innovative recipes
+-  Kodi 20.3
+-  MC Arthur offers ABU $15m grant for research, development
+-  Fitbit cofounders depart Google as part of a major hardware shift that includes layoffs
+-  Fitbit cofounders depart Google as part of a major hardware shift that includes layoffs
+-  FPT cung cấp mạng di động ảo với đầu số 0775
+-  Phạt chủ đầu tư tòa nhà không phép trong Đồi Cù Đà Lạt
+-  Dập tắt đám cháy trên núi Cô Tiên Nha Trang
+-  Lãi toàn vài chục nghìn tỉ, Big4 ngân hàng bơm tiền ra nền kinh tế nhiều thế nào?
+-  Khơi thông nguồn lực đất đai
+-  Cả Premier League chào thua Guardiola
+-  Các cuộc thi tài năng nhí: Phụ huynh bị lừa vì giải thưởng quá hớp
+-  Trường đại học cấm tặng quà Tết cấp trên, không cấm tặng ngược lại, sinh viên vui nhộn
+-  Thầy Phú đặc biệt của học trò lớp giáo dục thường xuyên
+-  Cho chơi đến 4h sáng, doanh thu du lịch Thái Lan tăng gần 50% trong tháng 12
