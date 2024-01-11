@@ -1,51 +1,11 @@
 # Latest News
--  Ertuğrul Doğan: "Sürdürülebilir finansal yapı modelini başarmak zorundayız"
--  Bir parti seçime katılmayacak: Seçime katılan parti sayısı 36'dan 35'e düştü
--  Gazze kasapları adalet önünde: İsrail'in Lahey'de yargılanmasına başlandı
--  CAC40 : en légère hausse avant l'inflation américaine
--  Ulaştırma Bakanı'ndan Tel Aviv ile ticaret açıklaması: Türkiye’den İsrail’e günde 8 gemi gidiyor
--  Live updates | UN top court hears genocide allegation as Israel focuses fighting in central Gaza
--  '2023 was absoluut topjaar voor Schaffelaartheater; zaalbezetting bovengemiddeld in Nederland'
--  شاہین شاہ آفریدی نیوزی لینڈ کیخلاف سیریز میں پہلی بار قیادت کیلئے تیار
--  Artenvielfalt-Doku „Die 2050er“: Botschaft aus der Zukunft
--  AB ülkeleri Ukrayna ile ticaretin serbestleştirilmesinin uzatılması için fikir alışverişinde bulunuyor
--  Berkan Kutlu, Galatasaray'a geri dönüyor
--  Antoine Griezmann'dan tarihi başarı! Atletico Madrid'in en golcü futbolcusu
--  Cumhurbaşkanı Erdoğan, Bahçeli ile görüşecek
--  İstanbul, Kocaeli ve Bursa rekor ihracatın yüzde 51'ini oluşturdu
--  Bakan Fidan'dan "Afganistan" sorusuna cevap
--  Kahramanmaraş'ta depremden etkilenen tarihi yapılar yeniden ayağa kaldırılıyor
--  "Tarihi bir karar olacak" demişti... Özgür Özel Hatay sözlerinden çark etti
--  Afganistan'da 6,3 büyüklüğünde deprem
--  Zeytinburnu'nda Regaip Kandili'ne özel camiler gül suyuyla yıkandı
--  Organizan una segunda sesión de 'Go!azen 10.0' y las entradas se ponen a la venta este sábado
--  „Tropfen, der das Fass zum Überlaufen bringt“: Brandenburgs Ministerpräsident Woidke kritisiert erneut geplante Kürzungen für Bauern
--  Bitcoin ETF onayının ardından ABD'de gözler Ethereum ETF'de
--  "래시포드가 하는 일은 산책, 공을 향해 걸어가는 것!"…맨유 선배의 '맹비난', "게으른가? 오만한가? 자신감 부족인가?"
--  "이렇게까지 해 준다고? 미쳤다!"…임영웅, 콘서트 새 지평 연 미담 史 [MD이슈](종합)
--  공룡들이 꿈에 그리던 ML 54홈런 거포…나성범·양의지 떠난 한을 풀까 ‘34.3%가 걸리네’
--  유재석→제니, 뭘 봤길래…화들짝 놀랐다 [아파트 404]
--  [오피셜] '중원 보강 성공' 수원FC, '만능 자원' 이재원 품었다..."새로운 도전 시작하게 돼 영광"
--  «„Загоны“ на тему национальной идеи». В России упрекнули «Барыс» за отношение к КХЛ
--  "이마나가 원하지 않았다" 131억 류현진에게 시선 돌리나, SF행 가능성 제기됐다
--  «Бум — и полетели»: Путин назвал неожиданную причину космических цен на яйца в России
--  Славниот шведски тренер обелодени дека му останува уште „најмногу“ една година живот
--  Avrupa Borsalarında Yükseliş Görüldü
--  Boğazları yumuşacık yapan Çeşm-i Nigar çorbası! Osmanlı'nın favori çorba tarifi: Evdekiler her gün bundan isteyecek
--  Mary beliebter als Frederik? Die Dänen nennen sie „König Mary“
--  U masakrua me thikë nga partneri dhe shoku i tij, sot i jepet lamtumira e fundit 41-vjeçares shqiptare
--  Eemi Tervaportille parhaan lentopalloilijan tunnustus
--  Çobanı da ithal ettik! Yerli çoban bulamayınca İran'dan çoban getirdi: İnterneti ve televizyonu da var, maaşı ise...
--  Les entreprises tunisiennes à l’assaut du CES 2024 aux USA
--  Gardaí issue appeal after man with machete causes panic at Waterford shopping centre
--  Тошкентда Lacetti билан тўқнашган Lada Vesta ағдарилиб кетди.
--  Қозоғистон Ўзбекистонга ёғ ва қора металлургия маҳсулотларини етказиб беради.
--  Еврокомиссар Бретон: ЕИ баҳорда Киевга 1 млн снаряд етказиб беради.
--  Ўзбекистонда материаллари тарқатилиши тақиқланган саҳифаларнинг янги рўйхати эълон қилинди.
--  Тошкент – Истанбул рейси Анқарага қўнишга мажбур бўлди .
--  Малайзия Ўзбекистонда озиқ-овқат ишлаб чиқариш бўйича лойиҳани амалга оширмоқчи.
--  Тадбиркорлик соҳасида айрим мажбурий талаблар бекор қилинмоқда .
--  Видео: Тошкентда йўловчилар чангга тўла ифлос автобусда ташилмоқда.
--  Исроил Ғазо секторидаги геноцид бўйича айбловларни рад этиб чиқди.
--  Фарғонада 200 тупдан ортиқ дарахти бўлган ҳудуд қурилиш фирмаси томонидан ўраб олинди.
--  Навалний биринчи марта Ямалдаги колониядан видео-алоқа орқали чиқиш қилди.
+-  Natternbacher Leichtathleten feiern Jubiläum
+-  Maison Marques à Asnières-sur-Seine, brunch gourmand à volonté près de la gare de Bois-Colombes (92)
+-  “이정후 ML 낙관적, WAR 3.2” 샌프란시스코 뉴페이스 파워 13위…오타니의 다저스 ‘넘사벽’
+-  '김국진♥' 강수지, 전성기 노출 사진에 깜짝 "나 아니라 그래!" [마데핫리뷰]
+-  "충격! 홀란드 몸값이 절반으로 떨어진다!"…2885억→1442억, 왜? 외국 클럽 '바이아웃 조항' 공개, '이것이 레알 마드리드가 영입 추진하는 이유'
+-  [오피셜] '새로운 활력소' 전북, 신인선수 7명 영입..."B팀의 K3 승격 견인할 것"
+-  MSB'den bedelli askerlik ücreti açıklaması
+-  Auch "Oppenheimer" nominiert: Weitere Filmpreise für "Barbie" winken
+-  Eriksson: Former England Head Coach Confirms He Has One Year To Live
+-  'Drie fietsen gestolen uit schuur Barneveld'
