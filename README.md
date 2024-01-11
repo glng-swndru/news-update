@@ -1,11 +1,11 @@
 # Latest News
--  بذريعة "العمال الكردستاني".. هل تسعى أنقرة للسيطرة على المنطقة الكردية؟
--  بعد إرتفاع منسوب نهر دجلة.. وعود حكومية بإحداث نقلة في ملف مياه العراق
--  Adıyaman'da terör örgütü PKK/KCK operasyonu
--  Yatırım dolandırıcılarına operasyon! Bakan Yerlikaya duyurdu: 73 kişi yakalandı
--  Gazze'ye sağlık köprüsü... Bakan Koca: Gazzeli 85 hasta ve yaralı Türkiye'ye getiriliyor
--  Ve Mame Thiam Kayserispor'a veda etti! Yeni kulübü belli oldu
--  Beşiktaş, Fernando Santos yönetiminde ilk maçına hazırlanıyor
--  Acı haberi MSB duyurdu: 1 askerimiz şehit oldu
--  CHP Tarsus Belediye Başkanı Haluk Bozdoğan istifa etti
--  Bakan Yerlikaya: Sibergöz-13 operasyonunda 73 şüpheli yakalandı
+-  Kickoff | FUSA issue latest on Gallants case
+-  Kickoff | Swallows fined for Downs & Arrows no-shows!
+-  Tymueset në Parlament/ Basha: I shërbyen Edi Ramës, buxheti më i madh i Shqipërisë kaloi për 4 minuta
+-  Albert Heijn to start selling self-tests for Gonorrhea and Chlamydia
+-  Katholische Kirche in Viersen: Das Ende der Gemeinschaft der Gemeinden
+-  Kein Geld mehr für Homöopathie: Karl Lauterbach geht’s ums Prinzip
+-  Situata në PD/ Basha: Fajin më të madh nuk ia vë Berishës, por atyre që bënë sikur shkuan tek ai
+-  Финляндия об открытии границы с Россией
+-  শিক্ষামন্ত্রী হলেন মহিবুল হাসান চৌধুরী নওফেল
+-  কুষ্টিয়ায় আ.লীগের দুই গ্রুপের একাধিক সংঘর্ষ, ৩ মামলায় আটক ৪
