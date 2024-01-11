@@ -1,51 +1,51 @@
 # Latest News
--  Protest im Erzgebirge: Mit diesen Sperrungen ist am Freitag zu rechnen - So lief der Donnerstag
--  Bigg Boss 17: Vicky Jain`s mother`s `therapy` with Ankita leaves her in tears
--  Gaziantep FK'da Fenerbahçe maçı çalışmaları start aldı
--  Пентагон: Проблем со воената помош на САД за Украина вредна над милијарда долари, оружјето веројатно е украденo!
--  Bronnen: OpenAI praat met media voor licentie op nieuwsberichten
--  In Rusland verdwijnen de gedenktekens die herinneren aan de misdaden van Stalin
--  Groot ongeluk A1 bij Amersfoort, minstens vier gewonden
--  Chemiebedrijf Chemours doet nieuwe poging om boete te ontlopen
--  Recordaantal vliegtuigen besteld bij Airbus in 2023
--  Partij Bouterse vraagt aanhangers om naar zijn huis te komen
--  Waar draait de 'genocidezaak' van Zuid-Afrika tegen Israël om? En haalt een rechtszaak iets uit?
--  Waakhond Pentagon onderzoekt ziekenhuisopname minister
--  Rechter vernietigt besluit Kuipers: concentratie kinderhartchirurgie in twee ziekenhuizen van de baan
--  Militares y policías ecuatorianos realizan redadas, mientras presos retienen a personal de prisiones
--  Xilam Animation completa una ampliación de capital de 3,68 millones de euros
--  Hess publicará sus resultados del cuarto trimestre, pero se salta la convocatoria en medio del acuerdo con Chevron
--  CFRA rebaja el rating de Lucid por ventas insuficientes
--  Rumania seguirá siendo mayor ruta de exportación alternativa para granos ucranianos: funcionario EEUU
--  Microsoft supera durante unas horas a Apple como la empresa con mayor valor bursátil
--  Mester de la Fed dice que marzo es "probablemente" muy pronto para un recorte de tasas
--  El bitcóin se desinfla después de tocar los 49.000 dólares tras autorizar la SEC los ETF
--  La CNMV abre expediente sancionador a Deutsche Bank por la venta de productos complejos
--  Temas del día de EFE Economía del jueves 11 de enero de 2024 (19:00 horas)
--  Petrobras descarta invertir en proyectos solares y eólicos fuera de Brasil
--  El valor de las acciones de WW International, Inc. experimenta una fuerte caída tras los comentarios de los analistas de Craig-Hallum
--  রিজভীর বক্তব্য ও চাবি ফেরত চাওয়ার পত্র যথাযথ নয়: ডিএমপি
--  Uhapšen bivši ministar policije Gvatemale
--  כוכבת 'האח הגדול' תוקפת: "מיואשת, כמה טיפשים יש במדינה"
--  סערת דובר איכילוב: זאת המחליפה של איש התקשורת שפוטר מתפקידו
--  الجيش الإسرائيلي: سنواصل التحرك ضد حزب الله في جنوب لبنان
--  רני רהב מברך על החלטת בג"ץ: "מזל שהוא לא מפחד מבן גביר"
--  Fox's Doocy: House GOP in 'disarray,' Johnson 'hanging' by a thread
--  Tysk höger avundas svensk kärnkraft
--  Ramaswamy backs Trump before Supreme Court in 14th Amendment case
--  “مؤسسة حمدان للعلوم الطبية” تُعلن عن نتائج الدورة الـ26 لجوائزها المحلية والدولية للموهوبين
--  Poništena odluka o eksproprijaciji; "Ovo je nasilna otimačina privatne svojine" VIDEO
--  Duljaj vratio Marka Jovanovića u Partizan
--  UŽIVO Crvena zvezda na teškom gostovanju u Forumu
--  قطر تكشف حقيقة ما تداولته إسرائيل عن طرد قادة حماس من غزة مقابل وقف الحرب
--  أمريكا تطالب إيران بالإفراج الفوري عن ناقلة النفط التابعة لها في بحر عمان
--  على عكس الدموع.. لماذا المخاط لزج؟
--  إطلالة الأميرة رجوة الحسين في أول زيارة رسمية خارجية رفقة زوجها.. لن تصدق سعر فستانها؟
--  Где Россия готовит провокацию?
--  Ερόλ Μπουλούτ: «Θα ήθελα τον Τάσο Μπακασέτα αλλά έχει καλύτερες προτάσεις από Παναθηναϊκό και Μπεσίκτας»
--  Har du sett den här bilen kring Ekenäs och Tenala? Polisen ber om tips efter biljakt
--  Un Subsaharien enterré illégalement : Mandat de dépôt contre le directeur de l'hôpital Abderrahmane Mami
--  Запад передал ВСУ ракеты для Stinger времен войны в Афганистане
--  – Planen har vært at de skal se på kontraktene nå på nyåret
--  Referees course concludes on a high note
--  Nya ägare till villa i Malmslätt, Linköping - 3 800 000 kronor blev priset
+-  Los grupos armados son solo una cara de este conflicto por ser los operadores de la economía criminal, dice Bertha García, experta en temas de seguridad y militares
+-  W 2023 r. deweloperzy oddali do użytku 447 000 m2 powierzchni handlowych
+-  AKTUÁLNE Premávka na Námestí SNP v Bratislave je pre protest dočasne uzavretá
+-  Mladší syn (17) Britney Spears prichytený na rande: Už to nie je malý chlapec… Aha, ako vyzerá!
+-  Sivasspor'da ayrılık: Veda maçıydı
+-  Bülent Uygun: Takımdan ayrılmak isteyenler oldu
+-  Trump hakim karşısında: 'Anayasaya aykırı bir cadı avı'
+-  Reli Dakar: Al Rajhi doživio nesreću i ispao iz borbe za naslov
+-  Gouvernement de Gabriel Attal: Darmanin et Le Maire restent, nomination surprise de Dati à la Culture
+-  Severina završila na infuziji, objasnila o čemu je riječ
+-  CCPJ. Ataque na Global é "aterradora incursão na liberdade de expressão"
+-  MP deduz acusação contra ativistas do Climáximo
+-  Portugal entra no Euro de andebol com vitória sobre a Grécia
+-  Aluna morre após chocar com porta de vidro em escola de Seia
+-  Apple expands MLS partnership with ‘first-ever, all-access’ documentary series about the 2024 season
+-  Vuelcan 2 tractocamiones en carretera a Juárez
+-  Roce de árbol y cables de alta tensión moviliza a Bomberos
+-  Google despide a cientos de trabajadores; se intensifica por la IA
+-  Indian Navy Discusses Naval Cooperation With Royal Saudi Naval Forces
+-  پی ٹی آئی نے خیبرپختونخوا سے قومی اور صوبائی اسمبلی کیلئے ٹکٹ جاری کردیئے
+-  Remaniement : Gabriel Attal remplacé par Amélie Oudéa-Castéra à l’Éducation nationale, 3e ministre en 8 mois
+-  Der FC Bayern wird für Eric Dier keine Ablösesumme zahlen
+-  Тотален срив! Турската лира падна на дъното, какво се случва в южната ни съседка
+-  RAMO ISAK PODIGAO BURU: 'Zastave RS-a provokacija, neće se vijoriti u Federaciji BiH'
+-  Puchar Narodów Afryki. Pasażerom samolotu zabrakło tlenu
+-  Silvinei Vasques apela à Justiça Eleitoral para se salvar
+-  2024 metų horoskopas Skorpionams: laukia daug įdomių dalykų
+-  This is how BlackRock’s Bitcoin spot ETF is trading on its first day
+-  Aanrijding tussen fietser en tram in IJsselstein; fietser slechts lichtgewond
+-  Kuasa Hukum Syahrul Yasin Limpo Bilang Penyidik Konfrontir 6 Saksi di Kasus Firli Bahuri
+-  Fears simmer in Essequibo region as Venezuela eyes the disputed territory
+-  HRT-ova ekipa na terenu s čuvarima Schengena na Savi
+-  Kombinierer Nick Schönfeld aus Klingenthal: Das sagt er vor seinem ersten Weltcup-Start
+-  Behinderungen auf der B 92 bei Oelsnitz ab Montag
+-  Milei vuelve a prometer que cerrará el banco central de Argentina “tarde o temprano”
+-  Der Tag: Frank Zander wird nach einer Gehirnoperation aus dem Krankenhaus entlassen
+-  Texans lean on postseason veterans to prepare for playoff opener: 'It definitely was earned'
+-  Kracherei zu Silvester & Neujahr
+-  Auckland JP allegedly linked to investment scam
+-  Gaza-Krieg: Robert Habeck besucht Sderot - zu Gast in einer Geisterstadt
+-  Ilskan hos Oskarshamn: ”Domaren bad om ursäkt”
+-  Eksotični Ferci pošteno prestrašili Slovenci, tako se je končalo
+-  Estrazione Superenalotto oggi 11 gennaio 2024: i numeri vincenti
+-  Barça-Osasuna, en directo
+-  Morbus Dupuytren: Symptome der Viking-Krankheit
+-  Örebros sågas efter mardrömsperiod: ”Vilse i pannkakan”
+-  Sunass multa con más de S/ 13 millones a empresas de agua potable en el Perú
+-  Toronto police ban demonstrations on Avenue Road bridge: ‘Expect to be arrested’
+-  Sudáfrica acusa a Israel de «incitar al genocidio» en Gaza ante la Justicia
+-  Νετανιάχου: «Σφάγιασαν, βίασαν, έκαψαν, διαμέλισαν, αποκεφάλισαν, παιδιά, γυναίκες και ηλικιωμένους»
