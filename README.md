@@ -1,51 +1,51 @@
 # Latest News
--  تقليص عدد الشركات الفرعية في سونلغاز إلى 11 شركة
--  라인게임즈 레그스튜디오, ‘창세기전’ 콘솔판 개발팀 해체
--  농협금융, 리스크관리 토론회 개최…부동산PF 영향 등 논의
--  울진군, '교육발전특구' 지정 행정력 집중
--  영암군, 2023년 고향사랑기부금 12억3600만원hellip;'전국 2위' 달성
--  영양군, '단열 에어 캡 설치' 사업 큰 호응
--  울진군, quot;농어업발전기금 신청 하세요quot;
--  이낙연 전 총리 민주당 탈당hellip;전북정치권에 미칠 영향은?
--  보성군, 올해 보성사랑상품권 10% 할인 판매 개시
--  quot;전통시장은 주차장이 경쟁력quot;hellip;익산시 중앙시장 주차장 확충 팔걷어
--  quot;국내 첫 차단벽 사격장 아십니까?quot; hellip; 익산 천마부대 소음 줄여 주민과 상생
--  정읍시, 농산물 잔류농약 '선제적 차단'으로 신뢰도 향상
--  게임 흥행도 '가치 소비' 영향 받는다...게임사 '도덕성'이 게이머 선택 기준 된다
--  '전독시' 컬래버 '세븐나이츠 키우기' 2차 업데이트...유중혁·유상아 등장
--  Συγκλονίζει ο Σβεν-Γκόραν Έρικσον: «Έχω ένα χρόνο ζωής»
--  [신년특집 게임코인TV] 3N 자존심 넷마블의 '마브렉스'...새 수장 맞아 다시 뛸 준비 마쳤다
--  "바다 배경 이색 사진 찍자" 위메이드커넥트, 포토이즘 매장에 '어비스리움' 화면 제공
--  [카드뉴스] 니어스랩이 CES서 최초 공개한 자율주행 'AI 드론'
--  غربت کے انڈیکیٹرز
--  قابل تشویش امر
--  Aktien Frankfurt Eröffnung: Dax gewinnt vor US-Inflationsdaten - Gute Vorgaben
--  China tells US to 'refrain from intervening' in Taiwan election, slams official visits
--  New Collective Agreement at Gofore Comes Into Effect: Here's How Salaries Will Rise
--  Google licenzia centinaia di persone in team Assistant, hardware e ingegneria
--  Ira Khan and Nupur Shikhare Wedding: लेकीच्या लग्नात भावूक झाला आमिर खान; आयराही इमोशनल झाली, पाहा लग्न सोहळ्यातील इनसाइड व्हिडीओ
--  ΑΕΚ: Η θέση για Γκαλιόλο και τα αγωνιστικά δεδομένα για Νέα Σαλαμίνα
--  A Guide to Financial Planning for Couples
--  KPK Tangkap Bupati Labuhanbatu Sumatera Utara Erik Atrada Ritonga
--  '시민덕희' 라미란 "평범한 캐릭터라 살 찌운 건 아냐…다이어트 실패" [MD현장]
--  “류현진에게 1000만달러↑기회 온다” 美확신, 보스턴? 메츠? ML 78승 시계 돌아간다
--  대명아임레디, 일본 ‘북해도 풀패키지’ 여행상품 출시
--  '美日 경험 풍부' NC 새 외인 데이비슨 "한국 문화 배우고파, 우승 위해 노력하겠다"
--  '앙리 후계자'는 무슨...아르테타도 포기했다!→'500억'에 매각 결단
--  TFF yeni yabancı kuralını açıkladı
--  'The Beekeeper' movie review: Jason Statham has more than a bee in his bonnet
--  Οι αντίπαλοι Σάκκαρη και Τσιτσιπά στη Μελβούρνη
--  Thomson Reuters, offerta da 627 million $ per acquisto società svedese Pagero
--  BOLEST SE ŠIRI U BiH: U entitetu RS potvrđeno 57 slučajeva velikog kašlja, među oboljelima najčešće tinejdžeri
--  X: Über tausend Mitarbeiter für Moderation und Sicherheit entlassen
--  MS Dhoni: ప్రాక్టీస్‌ మొదలెట్టేసిన తలైవా, సంబరాలు చేసుకుంటున్న ఫ్యాన్స్‌
--  Nano One Materials Corp.: Nano One meldet Verpflichtung von Carlo Valente als Finanzvorstand
--  Amazon anuncia centenas de demissões de áreas de streaming e estúdio
--  Avrupa'nın doğal gaz arzında sıkıntı yaşaması beklenmiyor
--  Anadolu Efes'in THY Avrupa Ligi'nde rakibi Bologna
--  Тунчев взима Витанов в Арда?
--  Σαν σήμερα έφυγε από τη ζωή ο Μπάμπης Γκολές
--  [동서남북] 소풍 왔다가 돌아가는 사람들
--  [유천의 세상이야기] 누가 ‘김건희 특검’ 매듭 풀까
--  [본사손님] 이영석 경상북도 환동해지역본부장
--  [김영인의 동행] 우리의 정치 그리고 야누스의 두 얼굴
+-  Proteinkomplex als Kontrollinstanz der DNA-Reparatur entdeckt
+-  13 wounded in Russian strike on hotel in Ukraine
+-  [총선] 문대림 "송재호 의원 대정부 질문 4년간 0회… 책무 태만"
+-  尹 "국민경제자문회의, 정부에 냉정한 조언 해주길 바란다"
+-  포항시, 수소연료전지 산업 활성화 업무협약
+-  '미분양 무덤' 포항·경주 규제 완화해야…"정책적 배려 필요"
+-  포항시, 엄마참손단 320명 모집 '경력 이음'
+-  포항시, 2024년 후계농업경영인·청년농업인 신청 접수
+-  정부, 강제동원 피해자 '제3자 변제' 재확인…재원은 어떡하고?
+-  농진청 차장, 과수화상병 예방 현장 점검
+-  정부, 中 상대 유엔 '인권검토' 서면질의 제출…'탈북민' 관련
+-  '훈훈' 칼국수 값 내준 남성…뛰어가 목례한 장병[이슈시개]
+-  충북교육청, 학생 체인지 플랫폼 구축 착수
+-  비행기 비상문 열어 추락한 男…"비교적 가벼운 부상"
+-  GDIT Wins $171M Air Force Task Order to Secure Industrial Control System Deployments
+-  EQS-News: Lenzing again receives top sustainability ratings from MSCI and SAC Higgs FEM
+-  EQS-News: Lenzing erhält erneut Top-Nachhaltigkeits-Bewertungen durch MSCI und SAC Higgs FEM
+-  KPGA 김원섭 회장, 제6대 한국프로스포츠협회 회장 선출
+-  Ascolti tv del 10 gennaio: Mamma ho perso l’aereo, il Milan o la Rai
+-  Scandale foncier à Pambal : Le maire et le sous-préfet en difficulté…
+-  Levelet küldött Maruzsa Zoltán a nem állami iskoláknak, hogyan szedjenek úgy pénzt, hogy ne kapjanak büntetést
+-  Nhan sắc siêu mẫu thế giới của thủ môn Hà Lan sắp nhập tịch Indonesia
+-  A Step towards Green world: An Analysis of Green Tax
+-  코스피 7일 연속 하락…비트코인 현물 ETF 승인에 관련주 ‘초강세’ [이종화의 장보GO]
+-  News24 | SuperSport backtracks, confirms broadcast of all 52 Afcon matches
+-  페이퍼리스 솔루션 기업 제이씨원, 여가부 '가족친화기업' 인증 획득
+-  셀트리온 서정진, 서진석 부자, 글로벌 경쟁력 확보로 성장 기대
+-  KT&G, 새 선장 인선 돌입…사장 후보군 24명
+-  농협금융, 2024년 리스크관리 大토론회 개최
+-  금감원, 가상자산 이용자 보호·시장 질서 확립 나선다
+-  효자2동주민자치회 등 춘천 국제스케이트장 유치 염원 동참
+-  홍천 내고향마트, (사)이웃에 성금 기탁
+-  신동원 시의원, ‘30년된 아파트 안전진단 없이 재건축’ 대환영
+-  '과포장 없앤다' CJ대한통운, 박스 추천 시스템 '로이스 오팩' 확산
+-  노영민 전 비서실장 청주 상당구 출마… "정권 심판해야"
+-  계명대 동산병원 손대구 교수, 대한성형외과학회 '최우수논문상' 수상
+-  '유해 가습기 살균제' SK케미칼·애경 前대표 '2심 유죄'
+-  野 이수진(비), 서대문갑 출마 선언… "새로운 행복 만들 것"
+-  «القوى العاملة»: جهود مستمرة لتطوير عملية استقدام العمالة الماهرة بما يخدم مصالح الكويت التنموية والاقتصادية
+-  Rally Dakar 2024: etapas, clasificaciones y recorrido
+-  Mitarbeiter spenden Teil ihres Weihnachtgsbonus für Nora Edlinger
+-  Stavebná produkcia sa v novembri 2023 medziročne zvýšila o 6,9 percenta
+-  Novembrová návštevnosť bola najlepšia od pandémie: Takto sa darilo cestovnému ruchu
+-  BlueSG users complain about ongoing problems since Dec. 2023, platform offers subscription waiver for Jan. 2024
+-  S'pore supports COP28 deal, including goal to transition away from fossil fuels: Grace Fu
+-  SMU stall has fish-shaped mochi waffles with fillings like Korean fried chicken & ube soft serve
+-  IKEA recalls USB charger over risks of thermal burns & electric shock
+-  JB-S'pore RTS Link about 65% completed, ready by Dec. 2026
+-  국민의힘, ‘갤럭시 신화’ 고동진 전 삼성 사장 영입 추진
+-  נסרין בשיחה מרגשת עם יעל שלביה: "הפחד והחרדה מתגברים עליי"
