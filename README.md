@@ -1,51 +1,51 @@
 # Latest News
--  חברת הלן דורון משיקה: משחקי און ליין וחוברות ללימודי אנגלית לילדים ללא תשלום
--  [지방시대 게임체인저] 이병환 "전국 최고 부농 실현…군민중심·행복 성주로"
--  경북도, 장애인 복지서비스 확대에 3800억원 투입
--  [지방시대 게임체인저] 김광열 "지역경제 활력 역점…3대 전통시장 명품화"
--  ‘ZA 문학 공모전’ 다섯 번째 수상 작품집 ‘좀비 낭군가’ 출간
--  갓생을 위한 똑똑하고 건강한 체력 단련법…'HIIT의 과학' 출간
--  타이완 젊은 거장 천쓰홍 장편 소설 '귀신들의 땅' 출간
--  정영환 국힘 공관위원장 "윤심 공천은 없다"
--  與 공관위 출범…한동훈 "이기는 공천할 것"
--  포항시 "수소연료전지 클러스터 성공적 조성 공동 협력"
--  כפיר אדרי: "הכי קשה שיש". איציק עובדיה: "הניצחון ייתן דחיפה"
--  חצי שעה ממוות טרגי: הטיסה המבהילה של נבחרת גמביה לאליפות אפריקה
--  בג"ץ דחה את העתירה בגין הפרת הסדר ניגוד העניינים של נתניהו
--  סטודנטים תובעים את הרווארד בטענה להפליית יהודים
--  국방부-대구시-비대위, 군 공항 활주로 방향 두고 팽팽한 입장차
--  האין זאת מכורתי? המכתב שקיבל ברקת על התייקרויות מוצרי צריכה בסיסיים
--  עם עזרה מהחות'ים: נמל חיפה עקף את המתחרה הדרומי
--  Top UN Court Opens Hearings on South Africa's Gaza Genocide Claims Against Israel
--  Bilčik: Nadamo se da će Beograd i Priština u ovoj godini naći volje za normalizaciju odnosa
--  Čovjeka izboden nožem u napadu navijača Lacija na bar u blizini stadiona
--  Društvo hrvatskih novinara pruža potporu rukovodstvu i djelatnicima BHRT-a
--  Skakač s motkom Arian Milicija u Padovi postavio novi bh. rekord od 4.95 m
--  Zbornik 'Rukopisi ' objavio konkurs za mlade književnike regiona
--  Zrak u Evropi nikada nije bio suhlji
--  Američki regulatori odobrili prva bitcoin sredstva u očekivanom poticaju kriptovalute
--  Ujedinjeni Arapski Emirati ukinuli vize za Kosovare
--  Wielka Brytania: rząd przedstawił plany czterokrotnego zwiększenia produkcji energii jądrowej
--  Analiza poranna – Inflacja narzuci rytm
--  Inflacja Argentyny może przekroczyć 200 proc. To gorzej niż w Wenezueli
--  Raport: w grudniu o 27 proc. mniej nowych ogłoszeń o pracę
--  Family of woman kidnapped and murdered after being mistaken for Murdoch’s wife hope to search farm for body
--  Soccerladuma | FIFA Punish World Champs Argentina & Brazil!
--  Soccerladuma | ‘Bold Partnership’ For Pirates & Chiefs Announced
--  Soccerladuma | Sundowns' R46m Star Expected In South Africa This Week
--  “앱 쓸 줄 몰라”… 울며 겨자먹기 설 승차권 현장구매 나선 노인들
--  전국서 주택가격 변동률 가장 높은 세종
--  이평구 지질硏 원장 “핵심광물 생산국 될 것”
--  대전 중앙로지하상가 상인들, 市 일방적 입찰통보 반발
--  ‘유류피해기금 정상화 염원’ 담은 서명지 대통령실에 전달
--  늙어가는 대한민국 늘어나는 고령운전… 면허 반납제도 개선 절실
--  “칭찬하면 충주가 행복해집니다”
--  충북 기초단체 절반 이상 ‘민간위탁 조례 위법’
--  박용석 충북보과대 총장 “유학생·지역사회 동반성장 모델 만들 것”
--  김태흠 지사 “역동적인 ‘힘쎈충남’ 증명… 성화약진 원년 삼을 것”
--  [4·10 총선 누가 뛰나-청주 흥덕구] 민주 도종환 4선 도전 vs 국힘 공천 혈투 예고
--  노영민 前 비서실장 총선 불출마 촉구에 ‘계파 정치 공세’ 비판
--  대전 고령운전자 교육장 가보니… 문제 못 풀거나 한 쪽으로만 찍기도
--  충북·충남 농가소득, 전국 평균 보다 적었다
--  “면허 반납 인센티브 다양화·자격평가 강화 필요” 전문가 제언
--  이게 다 ‘먼지’
+-  Shilpa Shetty gets a special gift from her inspiration Karan Bedi
+-  Khelo India Youth Games 2024: Date, time, venue, live streaming, and more
+-  FitSpresso Reddit Reviews: What Real Users Are Saying (Weight Loss Supplement)
+-  Geekran Glucose Watch Reviews (Consumer Reports and Amazon): Don’t Buy Till You
+-  '신장식의 뉴스하이킥'에 '관계자 징계'...추가 중징계 수순
+-  NS&I to slash Premium Bonds prize fund rate from March draw
+-  เมรี คำภีร์ เคลียร์ชัดพ่อของลูก ไม่ต้องเลี้ยง ไม่ต้องส่งเสีย ไม่ต้องเซ็นรับรองบุตร!
+-  MLee lộ chuyện ẩn ý chê bai Trang Pháp, drama chị em từ mặt mà Lệ Quyên nói tới là đây?
+-  Hà Hồ được khen khi nhắc con làm 1 việc: Cách dạy con quyết định trẻ lớn lên hiếu thảo với ông bà hay không
+-  ĐT Việt Nam sắp ra quân, HLV Park Hang Seo gửi thông điệp tới Hoàng Đức
+-  Cuộc sống khác biệt trước và sau làm dâu gia tộc nghìn tỷ của Linh Rin, giữ nguyên tắc hào môn giống hệt Hà Tăng
+-  16 kentte DEAŞ'a eş zamanlı operasyon!
+-  Yerel seçime katılacak parti sayısında düşüş! Bir parti seçime katılmayacak
+-  Türkiye Kupası'nda format değişti
+-  ÖFKENİN TARİHİ
+-  İzmir ve ilçeleri için 'zirai don' uyarısı
+-  Milli İstihbarat Akademisi, güz döneminde öğrenci almaya başlayacak
+-  16 ilde 70 DEAŞ şüphelisi yakalandı
+-  Yüksekova- Şemdinli kara yolunda kara saplanan araçtakiler kurtarıldı
+-  Başkan Altay, çocukların şivlilik coşkusuna ortak oldu
+-  TFF açıkladı! Türkiye Kupası'nın formatı değişti
+-  Emekli maaşı promosyon yarışı kızıştı! Bankalar promosyonlarında güncelleme yapmaya başladı
+-  CHP'de değişim lafta kaldı... Özgür Özel sözünü tutmadı
+-  Tevbe Suresi 36. ayet Arapça ve Türkçe okunuşu: Diyanet Tevbe Suresi 36. ayet meali ne?
+-  Filistin'den çarpıcı İsrail yorumu: Adalet Divanında yargılanması tarihi bir olay
+-  Devrim Özkan da hastalandı: Salgından nasibimizi aldık
+-  Fenerbahçe Beko'nun evinde rakibi Bayern Münih
+-  Bakan Göktaş: Depremzede bin 912 çocuktan bir tanesi bile kayıp değil
+-  Türkiye'nin desteğine dikkat çekti... KKTC'den "iki devletli" çözüm vurgusu
+-  Mersin'de 17,4 milyon liralık elektronik eşya ele geçirildi
+-  "Yunan balıkçılar tehdit edildi" iddiası yalanlandı... "Gerilim söz konusu değil"
+-  Hande Erçel "çok yoruldum, beni bir salın" deyip sonunda isyan etti!
+-  Fenerbahçe'de Gaziantep FK maçı mesaisi başladı
+-  Bankacılıkta kredi hacmi 11,6 trilyon liraya yükseldi
+-  Murat Kurum'dan Ispartakule'ye metro müjdesi: Biz başladık mı bitiririz
+-  Gelinim Mutfakta Karakuş Tatlısı Tarifi ve malzemeleri! Karakuş Tatlısı nasıl yapılır?
+-  Hizbullah İsrail'e ait noktalara saldırdı
+-  Andy Farrell is CONFIRMED as head coach for the British and Irish Lions tour of Australia in 2025
+-  Moment prolific burglar parades his fleet of stolen cars in gloating TikTok video before he's caught by cops - as he's jailed for nicking 12 vehicles and breaking into a woman's home
+-  MLS star Aaron Boupendza risks up to five years in prison and a £13,000 fine in his native Gabon after allegedly appearing in a leaked sex tape
+-  Moment prolific burglar parades his fleet of stolen cars in gloating TikTok video before he's caught by cops - as he's jailed for nicking 12 vehicles and breaking into a woman's home
+-  New images reveal how Aberdeen’s Wallace Tower interior could be turned into one-of-a-kind cafe
+-  Kandász Andreát fel sem ismerték a Mokkában: barna, rövid hajjal lepett meg mindenkit
+-  'Persoon in rivier bij Hardinxveld' blijkt boomstronk te zijn
+-  Average price of petrol has dropped below 140p a litre for the first time in over TWO YEARS
+-  Average price of petrol has dropped below 140p a litre for the first time in over TWO YEARS
+-  Ngày đầu cao điểm của CSGT toàn quốc: Hơn 2.300 tài xế có nồng độ cồn bị xử lý
+-  Australia thử nghiệm robot siêu âm tim từ xa đầu tiên trên thế giới
+-  Điểm tin 18h: TP.HCM cấm đào đường dịp Tết; Phát hiện người nhập cư lậu trong container đông lạnh
+-  Người đi xe máy cấp cứu sau va chạm với xe cảnh sát giao thông
