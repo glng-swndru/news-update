@@ -1,11 +1,51 @@
 # Latest News
--  Cyberpunk 2077 Sequel's Development Is Officially Underway
--  Kupada El Clasico finali
--  Kebbi warns civil servants against laxity, truancy
--  heute 19:00 Uhr vom 11.01.2024 Bauernproteste, Prozess gegen Israel, Rechtsextremistentreffen – ZDFheute Nachrichten
--  The best cheap phones in 2024
--  Husiler: Hiçbir ABD saldırısı cevapsız kalmayacak
--  Uyuşturucu örgütü liderliğiyle suçlanan sanık: Hurdacılık torbacılığa daha ağır basar
--  Tko je Hrvatica kojoj je Putin dao državljanstvo? 'U Donjecku liječi ruske vojnike ranjene na bojištu'
--  Parking Sensors Market - Industry Developments and Future Scope forecast 2030
--  The best gaming monitors in 2024
+-  '전설의 시작을 알렸던 그 경기' 비카리오, 이번에도 '빛카리오' 모드 재현해 승리 선물할까
+-  Inwoners roeren zich: 'Windturbines in polder weerzinwekkend'; raad Molenlanden houdt vast aan shortlist
+-  חגיגה על המגרש וביציעים: כשפריז מארחת משחק NBA
+-  日本能登地区地震已致213人遇难，震区灾民怒斥：大部分救援物资是垃圾
+-  奥克兰高温来袭！气象部门警告：保持水分充足，寻找阴凉处……
+-  杀妻自尽！不该发生的华人血案！沈阳夫妻买新房庆祝，酿人间惨剧...
+-  Ювентус розгромив Фрозіноне у Кубку Італії
+-  Pentagon defends Taylor Swift after bizarre conspiracy theory
+-  The Finals dev explains why aim assist was nerfed in latest patch
+-  [최태호의 우리말 바로 알기] lsquo;반증(反證)rsquo;과 lsquo;방증(傍證)rsquo;
+-  [문상윤 식품전문기자의 커피 이야기] ① 커피음용의 시작: 기능성에서 기호성을 거쳐 다시 기능성으로
+-  [남친 흉기 위협해 수감된 여고생, 유치장서 "철심 먹었다"
+-  La debacle de Bill Belichick y los Pats tras la salida de Tom Brady
+-  '이혼 8년차' 오윤아 "子 생각 많이 나서 힘들었다" [한 번쯤 이혼할 결심]
+-  "맨유, 우승하고 싶다면 손흥민을 영입하라!"…맨유 '트레블 영웅'의 촉구, 래시포드 3골+회이룬 1골+마르시알 1골+안토니 0골! "맨유에 무엇이 필요한지 몰라?"
+-  조인성, 박보영x박인비 등장에 "손흥민x김민재 가진 구단주 느낌" 든든[어쩌다사장3]
+-  Weinig beweging op Wall Street na nieuwe inflatiegegevens
+-  Britse media: VK en VS overwegen aanval op Jemenitische Houthi's
+-  NYC Mayor Adams reverses NYPD budget cuts planned due to city’s spiralling migrant crisis
+-  Akşener çifti 42. yıldönümlerini kutladı
+-  Sujeto que agredió a gestor de tránsito se arrepiente: «Es feo estar preso, no les recomiendo»
+-  El régimen de excepción impulsa la posible reelección de Bukele en El Salvador, según críticos
+-  ‘Waardeloze’ koppelkoers Van Schip en Havik op EK: ‘Michael Jordan heeft ook meer gemist dan geraakt’
+-  İngiltere Başbakanı Sunak’tan acil kabine toplantısı
+-  Kahve Kilo Aldırır Mı? Kahve Kilo Yapar Mı?
+-  Hombre condenado por violación fue aprehendido en Colón
+-  Israel asegura que Hamás usó más de 6.000 toneladas de hormigón para su red de túneles
+-  Euractiv o izborima u Srbiji: Čini se da institucije EU ne žele da preduzmu konkretne korake
+-  Trump discute con juez mientras proceso por fraude civil en Nueva York se acerca a su fin
+-  غادة عبدالرازق: تعرّضت للاستغلال
+-  خبراء ومحللون: إسرائيل متخوفة وفقدت أعصابها
+-  على خلفية إخفاء الوضع الصحي لاوستن.. البنتاغون يبدأ مراجعة شاملة
+-  محكم أردني: بحال إدانة إسرائيل تستطيع المحكمة ملاحقة مجرمي الحرب
+-  برشلونة يصل لنهائي السوبر الإسباني بالفوز على أوساسونا
+-  [인사이드 스토리]'갈수록 흥미진진' 포스코 차기 수장 찾기
+-  Equipe de France : Lucas Digne en passe de rejoindre Neymar en Arabie saoudite ?
+-  Barcelona supera o Osasuna e faz final da Supercopa da Espanha com o Real Madrid
+-  Baliho AMIN Diturunkan Lagi di Kampung Susun Akuarium, Bagaimana Situasi di Rusun Lain?
+-  غارديان: دعم حرب غزة يدر الأموال على مؤيدي إسرائيل بالكونغرس
+-  In Revensdorf gebissen: Mann erleidet 17 Operationen nach Hundeattacke
+-  OMEN creó la laptop gamer de 14 pulgadas "más fresca del mundo", con procesadores Intel Core Ultra y GPU RTX serie 40
+-  Ciudad Juárez critica las políticas “antimexicanas” y “absurdas” del gobernador de Texas
+-  Аналитики ожидают роста бурения нефтегазовых скважин на 11% в 2025 году
+-  Perú y cámaras de comercio Sudamericanas se reúnen para tomar medidas frente al contrabando
+-  Luta dos polícias não tem data para terminar: sindicatos reuniram-se com direção nacional da PSP
+-  Preview: Fortuna Sittard vs. Sparta Rotterdam - prediction, team news, lineups
+-  La Fiscalía colombiana acusa formalmente al hijo de Petro y lo llama a juicio
+-  Hunter Biden pleads not guilty to tax evasion charges
+-  Demonstrationen in Polen: Polen: PiS-Anhänger demonstrieren gegen die Regierung von Tusk
+-  Demonstrationen in Polen: PiS-Anhänger demonstrieren gegen die Regierung von Tusk
