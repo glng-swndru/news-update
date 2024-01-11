@@ -1,51 +1,11 @@
 # Latest News
--  الحوارات: مثول إسرائيل أمام محكمة العدل الدولية اليوم صفعة لتل أبيب والسياسة الأمريكية
--  ارتفاع أسعار النفط عالميا اليوم
--  جماعة "أنصار الله" تعليقا على قرار مجلس الأمن: لعبة سياسية
--  حاخامات يهود يعتصمون في مجلس الأمن مطالبين بوقف الحرب على غزة
--  ​‘ก้าวไกล’ดักคอ‘รัฐบาล’ ออกพันธบัตรเดินหน้า‘ดิจิทัลวอลเล็ต’ซ้ำเติมปัญหาหุ้นกู้
--  เด็กชาย 5 ขวบเหยื่อลุงคลั่งยามีดฟันหัวสาหัส พ้นขีดอันตรายแล้ว ตร.รวบตัวแจ้งข้อหาอ่วม
--  'อ่างทอง'ค่าฝุ่นละอองสีแดง เตือนหลีกเลี่ยงกิจกรรมกลางแจ้ง
--  เพิ่งยอมรับ! สึนามิสูง3เมตรซัดโรงไฟฟ้านิวเคลียร์ในญี่ปุ่น หลังแผ่นดินไหว 7.6
--  영화 '소풍' 시니어벤져스의 따뜻한 포스터 공개...임영웅의 자작곡 까지 기대 ↑
--  “이 친구는 터지면 무서운데…” 김경문도 주목했던 재능, 공룡들 24세 왼손 1루수 ‘퇴로는 없다’
--  아이유(IU) '깜짝 금발 변신, 팬 반응은 최고'
--  원주문화재단, 사진작가 윤재진 초청 기획사진전 개최
--  아동학대 의심돼 아이 가방에 숨겨둔 ‘녹음기’… 대법 “증거능력 없다”
--  양양 수산항 어촌신활력증진사업 선정, 새로운 도약 발판 마련
--  Alleluia les Spurs ont gagné un match, c’est contre les Pistons mais ça compte quand même
--  Jalen Johnson, l’explosion continue : 25 points, 16 rebonds, 7 passes, et le shoot de la gagne face aux Sixers
--  Ba bí quyết giúp mối quan hệ giữa cha mẹ và con cái càng thêm bền chặt
--  [부고] 임채수 서울지방세무사회장(전 잠실세무서장) 장모상
--  베베쿡, 교원 빨간펜과 MOU…"건강·교육 니즈 충족"
--  비트코인, 단기보유자 물량 거래소 대량 이동에 '상승 멈칫'
--  ΤΑΙΠΕΔ: Οι ξεχασμένες επενδύσεις και η πρώτη νίκη στον Ταύρο
--  CBN dissolves Union, Keystone, Polaris Banks’ board, management
--  VN: hulptransporten kunnen noorden van Gaza amper bereiken
--  Veiligheidsraad eist dat Houthi's aanvallen op schepen stoppen
--  PC-Spiele für unterwegs: MSI zeigt Gaming-Handheld Claw
--  Záhadná maľba zo 16. storočia má dokazovať cestovanie v čase: Tu je vysvetlenie
--  สกิน A-Train และ Firecracker จาก The Boys เตรียมบุกเข้าเกม Call of Duty: Modern Warfare III
--  再追鍾易仲假學歷 許智傑「給鳳山的一封信」向選民溫情喊話
--  馬英九籲「兩岸關係信任習近平」 游盈隆：是信賴台灣與相信習近平的選擇
--  Ceny energií stahují některé firmy. Přežijeme, ale bude to těžké, vzkazují
--  The DeSantis vs. Haley Debate Didn’t Give Us a Single Human Moment
--  Derriban drones ucranianos sobre tres provincias rusas
--  Israel weist Völkermord-Vorwurf zurück
--  Krieg gegen die Ukraine: So ist die Lage
--  Pflege im Heim wird teurer - auch mit Kostenbremsen
--  Coconut to dates til laddu: Relish the scrumptious dish with innovative recipes
--  Kodi 20.3
--  MC Arthur offers ABU $15m grant for research, development
--  Fitbit cofounders depart Google as part of a major hardware shift that includes layoffs
--  Fitbit cofounders depart Google as part of a major hardware shift that includes layoffs
--  FPT cung cấp mạng di động ảo với đầu số 0775
--  Phạt chủ đầu tư tòa nhà không phép trong Đồi Cù Đà Lạt
--  Dập tắt đám cháy trên núi Cô Tiên Nha Trang
--  Lãi toàn vài chục nghìn tỉ, Big4 ngân hàng bơm tiền ra nền kinh tế nhiều thế nào?
--  Khơi thông nguồn lực đất đai
--  Cả Premier League chào thua Guardiola
--  Các cuộc thi tài năng nhí: Phụ huynh bị lừa vì giải thưởng quá hớp
--  Trường đại học cấm tặng quà Tết cấp trên, không cấm tặng ngược lại, sinh viên vui nhộn
--  Thầy Phú đặc biệt của học trò lớp giáo dục thường xuyên
--  Cho chơi đến 4h sáng, doanh thu du lịch Thái Lan tăng gần 50% trong tháng 12
+-  Nawi Island starts to take shape as hub of activity
+-  Gözler konut kredisi kampanyasında! Vatandaşın avantajı ne olacak?
+-  Sydney’s overcharged approach the end of their tether
+-  Gwen Stefani and Blake Shelton are 'going through tough times romantically' after spending time apart
+-  한숨과 탄식
+-  제주 온 ‘멸종위기종’ 반달가슴곰, 13일부터 민간에 공개
+-  وظائف شاغرة ومدعوون للتعيين - أسماء
+-  تونس تطلب تقديم مرافعات شفهية بالدعوى ضد إسرائيل
+-  Ngộ nghĩnh, nghĩa tình thú cưng - Kỳ 5: Từ chú chó hoang thành 'con chung' của cả xóm
+-  '문맹' 사실혼 남편 명의 이용해 수억원 빼돌린 60대 여성
