@@ -1,51 +1,11 @@
 # Latest News
--  Selena Gómez protagonizará película sobre la vida de Linda Ronstadt
--  ארצות הברית ובריטניה נערכות לתקוף הלילה את החות'ים
--  נחשפה עיר ששקעה באגם והשתמרה באופן מושלם והביקוש לביקור בה גובר
--  מיליק הבקיע שלושער ב-0:4 של יובנטוס בדרך לחצי הגמר באיטליה
--  CZI won through with sound arguments
--  Zafere yalın ayak koşan atlet şimdi sporcu yetiştiriyor
--  奥克兰北岸大超市清晨被抢：警方出动直升机和警犬队追捕，4人被拘
--  Villanueva asegura que un “pez grande” se oculta en caso por muerte de la agente de la ATIC
--  Recalé, Hadjibou Soumaré exhorte à la création d’une coalition dénommée « SAUVER LE SÉNÉGAL »
--  Sheikh Hasina sworn in as PM for 5th term
--  “شكرا جنوب أفريقيا”.. دولة لا هي عربية ولا مسلمة عرّت أنظمة سايكس بيكو
--  Crvena zvezda uspešna v Milanu, Real ugnal Valencio po podaljšku
--  Detoks Suyu Tarifleri: Vücudunuzu Temizlemek İçin En İyi Yollar
--  Designan y juramentan a nuevo Síndico Procurador en El Tigre
--  Determinist Ne Demek: Kader ve Özgürlük Arasındaki İnce Çizgi
--  Destina Ne Demek: Türkçede Yeni Bir Kelime Hakkında Bilgi
--  Govt, Industry in win-win chicken game
--  Prima reacție a lui Radu Drăgușin, după ce a semnat cu Tottenham
--  En febrero iniciará exportación de gas desde el puerto de Altamira
--  Houthi rebels threaten significant return strikes if US hits Yemen
--  VWN wird im Jahr 2023 290,7 % mehr Elektroautos verkaufen
--  Λευκός Οίκος: «Η αμερικανική βοήθεια στην Ουκρανία έχει σταματήσει»
--  WWE News: Travis & Jason Kelce’s Mom Visits WWE Performance Center, NHL Mascot Gritty Gets Golden Title
--  Niat Makan Malam di Angkringan Palembang, Istri Ganjar Mendadak Diserbu Warga
--  Derviş Ne Demek? Türk Dilindeki Anlamı ve Tarihi Kökeni
--  Hasil Coppa Italia: Juventus Bantai Frosinone 4-0, Hattrick Arkadiusz Milik Muluskan Jalan ke Semifinal
--  Dragusin e kompletoi kalimin te Tottenhami, por agjenti i tij thotë se në tri vitet e ardhshme rumunin e sheh te Real Madridi
--  إحصائيات دي يونغ أمام أوساسونا
--  Devotees of Pamban Swami want ward at GH named after him
--  Dundee United hit with Declan Gallagher surgery blow as Ollie Denham exit strategy mooted
--  What did Mark Pope say about his viral water bottle explosion
--  LG stellt neues transparentes OLED T vor
--  Iran’s navy seizes oil tanker in Gulf of Oman that was at the center of a major US-Iran crisis
--  Juan Emilio Posada se despidió de la presidencia de ISA con premio mayor: la Carretera Panamericana Este
--  Deride Kaşıntısız Kırmızı Lekeler: Nedenleri ve Tedavi Yöntemleri
--  С 4:0 "Юве" нахлу в 1/2-финалите на турнира за купата на Италия
--  Las Fuerzas Armadas de Ecuador capturan a uno de los cabecillas del grupo criminal Los Tiguerones
--  Meta offers Canadian Facebook users $51M to settle lawsuit in 4 provinces
--  РСПП предлагает создать отдельный нацпроект по предпринимательству
--  Dereotlu Poğaça Tarifi: Lezzetli ve Pratik Bir Tarif
--  กันไฟป่า
--  CAN TOTALENERGIES – CÔTE D’IVOIRE 2023 : DÉBAUCHE D’ÉNERGIE À L’ENTRAINEMENT
--  Post Payments Bank, Hindustan Zinc Sign To Offer Financial Inclusion Services To Its CSR Beneficiaries
--  Barcelona se cita con Real Madrid en la final de la Supercopa de España
--  Meet West Indies’ new names
--  So verändert Sasa Kalajdzic das Spiel der Eintracht I. Im Herzen Europas vor Leipzig – Eintracht Frankfurt
--  Treguesit paralajmërues të një ataku në zemër, mos i neglizhoni këto këshilla
--  차 밟고 여성 집 훔쳐본 男 ‘소름’…스토킹 죄 성립 안된다는데
--  Napastnik Chelsea odchodzi na wypożyczenie. Szansa w Premier League
--  FIM DE PAPO
+-  아르헨, 1년 만에 모든 물건가격 3배로…33년만에 최고치
+-  이란 유조선 나포에 국제유가 1%↑..美CPI 지표, 상승폭 제한
+-  포탄 부족한 美 "동맹과 협력 확대하라"…한국 방산업계에 기회?
+-  태영건설, 채권단 동의율 96.1%로 워크아웃 개시
+-  대만선거 D-1...중국, 美 대표단 파견에 "내정 간섭 말라"
+-  英언론 "미 주도 다국적함대, 예멘 후티반군 거점 폭격 임박"
+-  이낙연 "이준석과 협력? 여론이 방법 알려줄 것"
+-  윤희숙 "한동훈, 영부인과 특별감찰관 이슈 더 적극 나서야"[한판승부]
+-  태영건설 워크아웃 개시…채권단 96.1% 동의
+-  Caso contra Israel. Líderes acusados de planearem destruição de Gaza
