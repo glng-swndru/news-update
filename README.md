@@ -1,11 +1,51 @@
 # Latest News
--  [MD포토] 아이유 '금발의 아름다움'
--  [MD포토] 아이유 '금발로 눈부시게'
--  [현장] 이창용 한은 총재 “기준금리 인상 필요성 ↓…인하는 시기상조”
--  강화소방서, 아파트 관계인과 소방안전 간담회
--  대전시, 봄철 산불 대비 시·구 대책회의 개최
--  포스코이앤씨, 부산 시민촉진 개발에 파격 조건 제안
--  해남쌀·해남김 미국 냉동김밥 시장 공략한다
--  한국해양진흥공사, '희망 2024 나눔 캠페인' 참여로 새해 첫 사회공헌활동
--  경남·부산 낙동강협의회 신년 공동 기자간담회
--  홍천군의회, 홍천군체육회와 간담회 실시
+-  KG Mobility Unveils Torres EVX, a Game-Changing Wireless Charging Platform at CES 2024
+-  İsrail'den Gazze Şeridi'ne ağır bombardıman: Çok sayıda Filistinli hayatını kaybetti, onlarca kişi yaralandı
+-  Company running WebMD uses bizarre and cringe video mocking working from home and threatening employees who continue to avoid the office
+-  Plantea MC no registrar candidatos en Guerrero por violencia
+-  Asesinan a supuesta empleada municipal fuera de presidencia
+-  Kerala: Congress to take guarded approach over seat-sharing for LS elections
+-  이찬원, 맞대결 상대 안성훈에 "미안하다" 전격 사과 [미스트롯3]
+-  Hanni und Nanni 2
+-  Clippers star Kawhi Leonard signs three-year, $152million extension... keeping him in LA for next season's relocation to new Intuit Dome
+-  '글루타치온 과장광고' 여에스더 쇼핑몰, 영업정지 2개월 처분
+-  Real Madrid 5-3 Atletico Madrid: Bản lĩnh nhà vô địch
+-  Fan Ả Rập không im lặng để tưởng nhớ Beckenbauer
+-  Chấm điểm Real Madrid: Carvajal 'gánh' Kepa
+-  When Curtly Ambrose took 7-1 from 32 balls
+-  When Curtly Ambrose took 7-1 from 32 balls
+-  Klopp nêu lý do cho chiến thắng ngược dòng của Liverpool
+-  Trent Alexander-Arnold chưa già, Liverpool đã có sẵn người thay thế
+-  คุณแม๊ภนิดา โต้กลับโซเชียลเลิกด่าแม่หน้าเงิน “โปรดเข้าใจทำไปเพื่อลูก”
+-  বাংলাদেশের জনগণের আকাঙ্ক্ষা পূরণে যুক্তরাষ্ট্রের ইচ্ছার পরিবর্তন হয়নি: জন কিরবি
+-  নাটোরে নছিমন উল্টে স্বামী-স্ত্রীর মৃত্যু
+-  Stone laid for 2nd Indo-Israel Project in Palnadu
+-  [▶▶ 24년부터 전국민 카카오톡 추천주 무료.!
+-  [[헤럴드pic] 비트코인 현물 ETF 상장 승인
+-  [[헤럴드pic] 상승흐름 보이는 비트코인
+-  賴清德竹北旋風式掃街催票 支持者高呼「美德贏台灣」
+-  [[헤럴드pic] 기대감 넘치는 비트코인
+-  Dự kiến khoảng 75.000 tấn hàng về chợ đầu mối nông sản Hóc Môn dịp cận Tết Giáp Thìn
+-  قرض کی اگلی قسط، آئی ایم ایف ایگزیکٹو بورڈ اجلاس آج ہوگا
+-  Naira Depreciation: Cadbury Seeks $7.7m Foreign Debt Conversion To Equity
+-  Bengaluru Metro’s Green Line extension likely to open by July
+-  APSRTC launches doorstep cargo pickup service in Vijayawada
+-  임금체불 현장단속 확대…태영건설 사업장 전수조사
+-  El 88% de los salvadoreños no utilizó bitcóin durante 2023
+-  23歲職軍正妹美翻！「超仙臉蛋」曝光 被長官秀配偶欄求愛
+-  Trump reveals he has already PICKED his running mate but refuses to name them in Fox News town hall
+-  Atalanta past Milan and into Italian Cup semis, Lazio triumph in derby
+-  واٹس ایپ صارفین کیلئےویڈیوکال کے فیچرمیں اضافہ کرنےکوتیار
+-  Who is in charge of Europe?
+-  Jyoti CNC Automation IPO Day 3: GMP, subscription status, other details. Apply or not?
+-  Največji ledeni park gradilo 10.000 ljudi
+-  ‘Biocon Hebbagodi’ station name to remain same: BMRCL MD
+-  5 trận đáng xem nhất vòng bảng Asian Cup 2024: ĐT Việt Nam có tên
+-  Price Analysis 10/02: BTC, ETH, DOGE, and ETH BETA COINS!
+-  吃不起中國「豆漿油條界愛馬仕」 40家倒36家
+-  БАБХ иска кметовете да приберат животните от пътищата и нивите
+-  Nahost: Israel weist Völkermord-Vorwurf zurück
+-  Nahost: Israel weist Völkermord-Vorwurf zurück
+-  Nga có thể sắp phát động một cuộc tấn công lớn
+-  태영건설 '운명의 날'…워크아웃 개시 여부 결정
+-  娘娘怎麼了？《後宮甄嬛傳》41歲孫儷腫了一圈 老態超明顯
