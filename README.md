@@ -1,11 +1,51 @@
 # Latest News
--  FCC chair asks automakers about plans to stop abusers from using car electronics to stalk partners
--  'Devastating' - Paul Merson predicts result of Everton showdown v Aston Villa
--  Dubai First takes the lead as the first issuer in the region to leverage Mastercard Token Connect services
--  San Carlos diocese opposes copper mining project in Negros Occidental
--  Vehicle emissions are polluting Malaysia's cities — Siti Haslina Mohd Shafie
--  Ayodhya to set world record with longest solar light line installation ahead of Ram Mandir Pran Pratishtha ceremony
--  [CES 2024] Together Toward Tomorrow: Samsung Showcases Eco-Conscious Efforts at the Sustainability Zone
--  Oppo Reno11 series arrives in India, starting at INR 29,999
--  Advanced Economies Must Let the IMF Play a Productive Role on Climate
--  Admyt makes parking simpler and swifter
+-  6ft 4in £50m-rated striker with eight goals in 22 games is on Arsenal’s radar
+-  Journalist David Ornstein has intriguing update about Arsenal’s new signing
+-  Akhilesh Yadav In Dilemma Over How Many Seats To Give Up For I.N.D.I.A. Allies In UP
+-  US Greenhouse Gas Emissions Dropped By 1.9% In 2023: Rhodium Group
+-  The Irish legend of the Pooka
+-  Grandmother slams Irish baby name, vows to call baby “Sushi”
+-  How to make the perfect Irish soda bread
+-  Arsenal keen on for 21-year-old attacker with 16 goal contributions this season
+-  Sky News presenter bids farewell to fans as she films last show before she’s replaced by Kay Burley’s Breakfast
+-  Sources: Brighton complete £7.8 million deal to sign star Barcelona were keen on
+-  Supermarket accepts smaller vegetables in bid to help flood-hit farmers
+-  JUST IN: Supreme Court upholds Gov. Sanwo-Olu’s election victory
+-  Soccerladuma | Lawyer: Spurs' Letter For Swallows Relegation Was 'Embarrassing'
+-  Video: Week Long National Road Safety Commences In Srinagar
+-  Outa wants people jailed over SAP corruption
+-  Cambs learner driver crashed dad's car into pylon and left the scene
+-  Holcim closes three bolt-on acquisitions in Europe for green growth
+-  What Tottenham signing Radu Dragusin first told Bayern before committing to London
+-  Cowboys Legends Roger Staubach and Troy Aikman’s NASCAR Team: History of Hall of Fame Racing
+-  Tech innovations that caught our eye at CES 2024
+-  5-tier security cover deployed in Puri ahead of Shree Mandira Parikrama Prakalpa inauguration
+-  NZ vs PAK 1st T20I: Saim Ayub Hits 3 Sixes, 2 Fours In Short Stay To Kickstart T20I Career In Style; Watch
+-  Navigating Tomorrow: Becoming an Enterprise of the Future
+-  Try This Centuries-Old Highlighter Trick for an Instant Facelift without Botox
+-  Mumbai: Actress’ deepfake nude pictures circulated among family and friends; Case registered
+-  Vinted buyer stunned after spotting secondhand Primark jumper for £50 – more than it sold for in the SHOP
+-  Subaru: All wheel drive, all the time
+-  Watch Matthew McConaughey, Jimmy Fallon Celebrate Fashion With ‘Tight Pants’ Performance
+-  In the news today: U.S and U.K. attack Houthi sites in Yemen with Canadian support
+-  Kano judiciary disposed 71,914 cases in 2023 legal year, says CJ
+-  Boy in coma for 6 yrs dies in K'taka, parents demand action against doctor
+-  In the news today: U.S and U.K. attack Houthi sites in Yemen with Canadian support
+-  Demostat: EPP prevents debate on Serbian elections
+-  66 Brutally Honest Truths People Avoid Facing, Revealed Online
+-  Celebrating a decade of service: Anne Amadi exits office
+-  [SBS Star] Bae In-hyuk Laughs as He Speaks About His Dating Rumors with Lee Se Young
+-  Top buyer India's Dec palm oil imports jump to 4-month high
+-  Revolutionizing renewable energy: the promise of water splitting
+-  World reacts to US, UK attacks on Houthi targets in Yemen
+-  Martin Luther King’s Daughter Criticizes Jonathan Majors’ Comment about Her Mother
+-  I rented in London’s ‘best place to live’ but it was so overrated – it stunk of weed & don’t get me started on the pubs
+-  ‘The only thing I can say…’: 24-year-old La Liga star responds to Man Utd transfer links
+-  5 of the Best Prince of Persia Games That You Need to Play Before the Lost Crown
+-  Hyderabad: Fake cop faces one-month sentence for threatening people
+-  Boy, 5, tried to kill himself after taking asthma medication linked to depression and ‘red-eyed demon’ hallucinations
+-  Delhi Police intitates crackdown on gangsters imprisoned in jail
+-  Man, his two kids found dead in Kollam
+-  Now You Can Get Your CNIC or FRC Online Through NADRA PAK ID App
+-  'It’s not the NBA': Rules blunder busts the Breakers in 82-81 loss to Melbourne United
+-  SuperSport to broadcast AFCON games, after MultiChoice secured broadcasting rights
