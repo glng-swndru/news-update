@@ -1,51 +1,51 @@
 # Latest News
--  Free film nights in Larnaca
--  From a Continent to an Island in Limassol
--  동국대 듀이카, 매주 토요일 진학설명회 개최
--  로드컴플릿, 앱퀀텀과 ‘레전드 오브 슬라임’ 퍼블리싱 계약
--  DDI·데이터이쿠, CES 2024서 ‘AI 혁신’ 주제로 패널토의
--  ‘나는 바이든으로 들렸는데…’ MBC 정정보도 판결 배경은
--  ‘워크아웃 태영’에 담보대출 걸린 SBS미디어넷 “대주주 돈줄로만...”
--  Авиацията и ракетните войски на ВСУ поразиха концентрации на руска жива сила
--  Frenkie de Jong raakt in vorm voor EK: middenvelder uitgeroepen tot MVP bij Barcelona
--  تهديدات متبادلة بين الجزائر و الإمارات؟
--  MIMORIADNE Koalícia USA a Británie spustili útok na húsíjským teroristom v Jemene
--  Β’ ΚΑΤΗΓΟΡΙΑ: Η τελευταία αγωνιστική της πρώτης φάσης και η συνέχεια! (ΒΑΘΜΟΛΟΓΙΑ)
--  De Croo neemt afstand van uitspraken Gennez over Duitsland
--  Who is Cassandra Mae Spittmann? German Singer garnering praises from PM Modi for singing “Ram Ayenge” bhajan in enchanting voice
--  ชาวไร่มันเฮ! “ภูมิธรรม” พาผู้ซื้อ6ประเทศ ซื้อล่วงหน้า
--  Zašto se jutarnji seks smatra najboljim
--  Yenilik Partisi yerel seçimlerden çekildi
--  Bos BRI Beberkan Alasan Punya Program Holding Ultra Mikro
--  Demet Akalın'ın iddiası Seda Sayan'ı kızdıracak: "Programı bizim elimizden aldı"
--  IT Index Booms 5% As Infosys, TCS Rally On Q3 Numbers
--  YouTube’s Official To Face Legal Interrogation Over Failure To Curb Indecent Content
--  PM Modi To Observe Fast For 11-day Ahead Of Pran-pratishtha Of Ayodhya Ram Temple
--  Global PC Shipments Up By 0.3% In Q4CY23, Declines 14.8% For Year
--  Inter-ministerial Meeting Convened To Address Trade Impact Of Red Sea Crisis
--  Gujarat's GeM Gross Merchandise Value Up By 16% In FY23-24 To Rs 9,206 Cr
--  Engie, Gujarat Join Hands To Drive Decarbonisation, Renewable Energy Initiatives
--  Globo insulta Lula, diz que presidente faz "agressão injusta a Israel" e ainda aponta antissemitismo em suas ações
--  Le candidat Thierno Cissé dit être mandaté par Dieu pour devenir Président…
--  Ежедневно из-за гаджетов в России происходит до десяти пожаров
--  Ukrajinski parlament odbacio prijedlog zakona o regrutaciji
--  Nigerian Judiciary Should Reprogramme Own Mechanism – Prof Cyprian
--  SC ‘won’t take over’ ECP’s job, CJP Isa tells PTI lawyer
--  AKTUÁLNE Desivá nehoda na strednom Slovensku: Zakliesnených ľudí museli vyslobodzovať z auta!
--  Celebrity food critic Keith Lee cuts Bay Area trip short
--  여주시, ‘비대면 진료 서비스’ 관내 4개 의료기관서 운영
--  광명시, 시민력에 힘 더할 주민자치위원 164명 위촉
--  경기도공익활동지원센터, 日 요코하마시 시민협동추진센터와 간담회 개최
--  오산시, 비상소화장치·우체통 등 6종 153개에 사물주소 부여
--  안성시 농특산물 브랜드 안성마춤, ‘대한민국 퍼스트브랜드 대상’ 18년 연속 수상
--  이상일 용인시장, 조규홍 보건복지부 장관에게 ‘장기요양요원’ 처우 개선 요청
--  안산시립국악단, 18일 안산문화예술의전당서 ‘2024 신년음악회’ 개최
--  ‘구민이 안전한 도시’ 조성… 인천 동구, 중대재해예방 기본계획 마련
--  여주시, 시내버스 8개 노선 운행중단에 반발… 운행 재개 요청 등 대응책 마련
--  양평군, 생활 속 사진 수집전 진행… 디지털트윈 공간정보 통합플랫폼에 전시
--  "피해확산 막을 것"… 화성시,하천 유해물질 유입 긴급 방제작업 실시
--  안성시, ‘2024년 상반기 읍·면·동 정책공감토크’ 개최
--  오산시, 어린이보호구역 LED 바닥 신호등 설치로 보행자 안전 강화
--  '상인·고객 더욱 편리하게'… 안양시, 평촌역 상가 고객지원센터 문 열어
--  인천, 21세기 후반 최고기온 42℃… 이대로면 열대지방 된다
--  과천시, 자동차 환경개선부담금 일시납부하면 10% 감면
+-  Kültür ve Turizm Bakanlığı 1.629 Sözleşmeli Personel alacak!
+-  Perakende satışlar yüzde 12,8 arttı
+-  Galatasaray'da Berkan Kutlu'nun lisansı çıkarıldı
+-  Depremlerde ağır hasarlı binaların yıkımı yüzde 85'e ulaştı
+-  Ankara Çankaya'da icradan satılık çatı katlı mesken!
+-  Behzat Uygur ile eşi Çiğdem Uygur Maldivler'de aşk tazeledi
+-  Kuzey Kore, ABD'nin füze iddialarını yalanladı
+-  Taha Duymaz'ın annesinin sözleri yürekleri dağladı... "Başka yerde uyuyamıyorum"
+-  Komşu basını Türkiye eksenini yazdı! Başkan Erdoğan'ın sözlerine dikkat çektiler
+-  Kastamonu'da icradan satılık arsa!
+-  ABD'den Rusya'ya yaptırım hazırlığı... Kuzey Kore'den balistik füze almışlardı
+-  Altının gramı yükselişte
+-  Umut Evirgen ile Alina Boz'dan gecikmeli balayı tatili
+-  Büşra Pekin kilo verme sırrını açıkladı: Birinci kural iyi beslenmek
+-  Türkiye'nin fiber altyapı uzunluğu genişleyecek
+-  TRT ortak yapımı "Tay 2: Ebabil Takımı" filmiyle kutsal topraklara yolculuk
+-  '앤디 아내' 이은주 아나, KBS에 5년 만 최종 승소 "정규직 복직" [MD이슈](종합)
+-  이하늬(LeeHaNee) '깊고 깊은 보조개 미소'
+-  손흥민, 2024 파리올림픽 ‘팀 삼성 갤럭시’ 선수단에 동참
+-  서울신라호텔, 얼리 체크인·레이트 체크아웃 패키지 출시
+-  [속보]파라마운트, “톰 크루즈 ‘탑건3’ 제작”[해외이슈]
+-  1시즌 동안 'CIN→방출→SEA→방출→NYY'…1R 출신 우완 선발 '1년 26억' 양키스와 재결합
+-  Park halindeki tıra çarpan otomobil hurdaya döndü: 2 yaralı
+-  В белгородском поселке Разумное построят дендропарк в 2024 году
+-  Industria modera ritmo de crecimiento en noviembre de 2023
+-  국민의힘 의원들 “김희현 제주도 정무부지사 사퇴하라”
+-  Rapport: Discord er det siste selskapet som rammes av store oppsigelser
+-  Azerbaijan maintains positive experience regarding electoral rights - ombudsman
+-  Sodnik svet kritičen do vladne garniture, pozitivno o predsednici države
+-  Beekeeper en The Old Oak in Cinema Texel
+-  Soccerladuma | 5 Reasons Why Pasuwa Can Be Chiefs' Alternative To Pitso
+-  Soccerladuma | Onana Slammed For AFCON Decision
+-  VIDEO, FOTO // „Suntem MÂNDRI să reprezentăm R. Moldova!”: Tinerii biatloniști vor să scrie ISTORIE la Jocurile Olimpice de Tineret. Președintele Federației de Biatlon le-a pregătit CADOURI atleților
+-  삼겹살 1인분에 2만원 육박…2년 새 2500원 올랐다
+-  [시론] 아버지는 LG 팬이었다
+-  강진군의회, 의장 불신임안 발의 ‘뒷말’…“하필 이때” 총선 암투설
+-  ORDI’s market murmurs overshadowed by NuggetRush’s impressive $1.6 million milestone
+-  VIDEO Borbeni zrakoplovi u akciji usred noći: Objavljena snimka početka napada na Jemen. 'To je bila naša dužnost'
+-  העברות בעולם: מנצ'סטר יונייטד, ארסנל וליברפול בעקבות אוון פרגוסון
+-  "ריאל מדריד משחקת בליגה שהיא בדיחה ואפילו לא זכתה באליפות"
+-  The Hajj Conference And Exhibition 2024
+-  “Yaxşı azərbaycanlıları pis ermənilər öldürür” deyən Raşida nazir oldu: Ermənilər şokda
+-  Epstein'ın kurbanı Sarah Ransome anlattı! "Günde 3 kez tecavüze uğruyordum"
+-  За последние 20 лет реальный объем ВВП Азербайджана увеличился более чем в 3,6 раза
+-  La Real es el segundo equipo que más faltas y de los que menos juega
+-  Eletopia Revolutionizes Energy Storage Solutions in the US
+-  AAC's Smart Car Super-Sensing Solutions Unveiled at CES 2024, Accelerating Multimodal Interaction in Smart Cockpits
+-  AAC Showcases Seven Integrated Solutions at CES 2024, Accelerating AI for a Digital World
+-  SK네트웍스, AI스타트업 ‘업스테이지’에 250억원 투자
+-  В Туле расторгли контракт с разработчиком транспортной схемы города
