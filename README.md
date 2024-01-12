@@ -1,51 +1,51 @@
 # Latest News
--  분노 삼킨 봉준호 감독 “이선균 KBS 단독보도 경위 밝혀라”
--  ‘바이든-날리면’ 패소 MBC “국민 대다수, 대통령실 ‘날리면’에 부동의”
--  바이든 기소 우크라이나 검사 "암살 위험 처했다" 폭로
--  '신생아 매매'로 200만원 챙긴 20대 여성 징역 3년 구형
--  다시 고개 든 '단기납 종신보험' 경쟁...환급률 130% 넘겼다
--  핌코코리아, 이상근 한국 지역 대표 선임
--  ผวาปะทะ คปท.!‘เสื้อแดง’หวั่นถูกลากสู่ขัดแย้ง งดให้กำลังใจ‘ทักษิณ’
--  ยกก้น‘นักโทษเทวดา’โดนเผด็จการกลั่นแกล้ง ทำทุกอย่างตามระเบียบราชทัณฑ์
--  พร้อมเข้า‘สภาฯ’ ‘นายกฯ’ยันตอบกระทู้ทุกวันพฤหัส หากไม่ติดภารกิจ
--  ‘นายกฯ’ไหว้หลวงพ่อทันใจ วัดพระธาตุดอยคำ ขอพรให้บ้านเมืองเจริญรุ่งเรือง
--  Nie widać końca zmian w prawie pracy [PODCAST]
--  ทีมงานยืนยัน Vampire Survivors จะมี Cross-Saves ในเร็ว ๆ นี้ และโหมด CO-OP กำลังอยู่ในการพัฒนา
--  Tres valores del Ibex 35 limpios de deuda para evitar sustos como el de Grifols
--  ¿Efectivo o acciones? Sacyr ofrece dividendo flexible a sus accionistas
--  'Merry Christmas' Review: The Devil's In the Details In Sriram Raghavan's Latest
--  Vorverkauf für Caspar David Friedrich in Berlin
--  Sachsens Justiz steht vor einem personellen Umbruch
--  Tuchel zum Hitzfeld-Geburtstag: "Gentleman mit eigener Aura"
--  Кошка Тейлор Свифт богаче её бойфренда
--  민주당 '출마 적격' 판정 김의겸, 전북 군산 예비후보 등록
--  전주시-LA한인회 교류협력 협약…'투자 유치 활성화'
--  캠코, 국유부동산 81건 공개 대부·매각
--  이재명 피습 당시 입었던 셔츠, 폐기 직전 경찰이 수거
--  [MD포토] 이하늬 '한복 만큼 예쁜 투피스 자태'
--  [MD포토] 이하늬 '보조개 미소가 예쁜 배우'
--  [MD포토] 장태유 'SBS아닌 MBC에서 사극을'
--  [MD포토] 이하늬 '매력 만큼 깊은 움푹 보조개'
--  네이버, 카타르 아시안컵 ‘AI리포트·오픈톡’ 서비스 제공
--  [MD포토] 이하늬 '미소 드리는 연기를'
--  디마이너스원, '서울영상광고제' 금상 포함 6관왕 쾌거
--  [MD포토] 이종원 '종사관으로 열연'
--  [MD포토] 이하늬 '보조개 미소'
--  [[리얼푸드] ‘킷캣 녹차’ 구입 쉬워진다…네슬레코리아, 국내 채널 확장
--  [[박정규의 작살] 용인서 벌어진 가짜뉴스 생태계…중앙지 기자의 오보→정치권 이용
--  Код за опасно време е обявен в части от страната днес, температурите падат много
--  Dorival Junior promises to turn Brazil’s plight around
--  เตือน "วันเด็ก" ฝุ่น PM2.5 ยังสูง แนะเช็กค่าฝุ่น-สวมแมสก์
--  Is Barry Gibb Gay? The Truth About His S*xual Orientation
--  กมธ.ตำรวจ​ ลั่นแค่ไหนแค่นั้น รพ.ตำรวจ ให้สุดชั้น 6 ไม่ถึง "ทักษิณ"
--  قافلے دل کے چلے
--  3 şehirde eğitime kar engeli
--  Lil Nas X Makes A Divine, Miraculous Comeback In His New Video For ‘J Christ’
--  Tre menn siktet for drapsforsøk etter voldshendelse på Nesodden
--  Aumento en el canon de arrendamiento impacta a inquilinos en Risaralda
--  Case registered against actor Nayanthara, seven others over film Annapoorani in Thane district
--  Iraq pushes for early release of 2024 budget
--  ISW: Студовете създават благоприятна почва за механизирани маневрени бойни действия в Украйна
--  Глава Пентагона Остин контролировал удары по объектам в Йемене из госпиталя
--  "رأس الأفوكادو" يرفع طموحات المغرب في كأس إفريقيا بعد إنجاز مونديال 2022
--  Autoinjector Market Size, Share, Trends, Report and Forecast 2024-2032
+-  Houthi's beloven terug te slaan na aanval VS en VK
+-  Rusland eist spoedbijeenkomst Veiligheidsraad na operatie Jemen
+-  Frühere VW-Bosse im Zeugenstand - Neues zur Dieselaffäre?
+-  Unfall auf der A 72 bei Zwickau: BMW knallt bei Winterwetter in die Mittelplanke
+-  ২৪ ঘণ্টার ব্যবধানে ফের ভূমিকম্পে কেঁপে উঠল আফগানিস্তান
+-  ভোট হলো, সরকার গঠন হয়ে গেল, এখন যা করবে বিএনপি
+-  ZVISION EZ6 Unveiled at CES 2024: Pioneering the Future of SPAD LiDAR Technology
+-  DHOST AND MAPXUS FORGE LANDMARK PARTNERSHIP TO REDEFINE THE SMART BUILDING LANDSCAPE IN ASIA
+-  עובר לבירה: זוהר זסנו צפוי לחתום היום בבית"ר ירושלים
+-  САЩ и Великобритания нанесоха удари по Йемен
+-  Slogan, Mascots, emblem of Asian Winter Games unveiled
+-  Ben Shelton beats Roberto Carballes Baena, reaches Auckland semifinal
+-  Jennifer Lawrence sent Robert De Niro home from her wedding rehearsal dinner
+-  Want to skip til laddus? Make gooseberry millet laddus, dates and almond laddu
+-  Imran Khan dances to `Pappu Can`t Dance Saala` at cousin Ira`s wedding
+-  How I knew I was going through perimenopause: The 12 debilitating signs
+-  Local Spotlight: Surf Club Is A Pastel Paean To Early 2000s Queensland
+-  Jelena Ostapenko reaches Adelaide International semis, beats Marta Kostyuk
+-  จัดหน่วยแพทย์อาสา ตรวจสุขภาพพระ 400 รูป ถวายพระกุศล แด่ "พระสังฆราชฯ"
+-  Aussie star’s ‘terrifying’ Gold Coast holiday
+-  Shimron Hetmyer left out on West Indies white-ball squads for Australia tour
+-  Momen Prabowo Dihampiri Emak-emak Sambil Nangis Saat Kampanye di Bengkulu, Tangannya Dipegang Erat
+-  Σεισμός 4,3 Ρίχτερ ανοιχτά της Κρήτης
+-  Mark Selby, Allen set up quarterfinal clash At Snooker Masters
+-  Israeli Premier League: Maccabi Haifa beat Maccabi Tel Aviv in Israeli classico
+-  국민의힘 "생명 관련 필수의료 수가 대폭 인상 · 민간도 공공 수가 적용"
+-  יו"ר הפרלמנט הלבנוני: הוכשטיין לא דיבר על נסיגת חיזבאללה מדרום לליטני
+-  Chappell advises Australia not to compromise No 3 and 4 position with Smith batting up the order
+-  Widows of military officers killed in 1992 plane crash demand compensation
+-  Thành phố Westminster chưa chọn được ngày treo cờ vàng
+-  Эксперт назвал возможные последствия победы правящей партии на Тайване
+-  Malaysia Open: Satwik-Chirag, Ashwini-Tanisha move into quarters, Srikanth loses
+-  Current Ram idol to be relocated to new temple on January 19; no ‘darshan’ for 3 days
+-  İmam Kazım’ın meşhur akıl risâlesi -5-
+-  Matevž Luzar: Sreča v filmu ni generator zgodbe, ampak je prej katarza
+-  Matevž Luzar: Sreča v filmu ni generator zgodbe, ampak je prej katarza
+-  Ranji Trophy: Assam to face Kerala in foggy condition at ACA Stadium, Barsapara
+-  강기윤 경남 창원성산구 의원 발의 quot;영유아보육법 통과quot;
+-  박종훈 교육감 “모든 정책을 학교 중심으로”
+-  2024년 경남교육청 공공도서관, 이렇게 나아갑니다
+-  차기 정치지도자 선호, 이재명 23% 한동훈 22%
+-  헤일리, 트럼프 잡는 대항마? 최근 여론조사 지지세 주춤
+-  США и Британия пытаются отвлечь внимание от геноцида в Газе, заявили хуситы
+-  Ariana Grande Channels Madonna, Smacks Haters on Deceptively Cheerful New Single, ‘Yes, And?’
+-  Wetterdienst warnt heute vor Glatteis in Berlin
+-  پی ٹی آئی نے خیبرپختونخوا میں ٹکٹ جاری کردیے
+-  ŞAD XƏBƏR! Pensiya kapitalı ilə bağlı MÜHÜM YENİLİK: Qərar bu tarixdə TƏSDİQLƏNƏCƏK
+-  Tata Consultancy Services discusses India's IT sector outlook
+-  Assam Premier Club Cricket championship: Avinav Chowdhury guides Gauhati Town Club to victory
+-  "Je veux garder papa encore quelques temps": les SMS de la fratrie Delon avant le début du conflit familial
