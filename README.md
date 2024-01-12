@@ -1,51 +1,11 @@
 # Latest News
--  Canadian teacher eager to showcase integrity of arm wrestling in online broadcast
--  Rusia ante la ONU: "EE.UU. y sus aliados contribuyen a la expansión del conflicto a toda la región al atacar a Yemen"
--  Θεσσαλονίκη: Οδοκαθαρίστρια βρήκε και παρέδωσε πορτοφόλι με 490 ευρώ
--  Manhattan neighbors blast plan to build casino alongside U.N. building
--  TFF'den şehitlerimiz için saygı duruşu kararı!
--  "Şehit olan askerlerimizin isimleri" iddiasına yalanlama
--  Erdem Can: Her maçımız final havasında geçecek
--  «El socialismo es una basura», dijo Milei sobre Cuba
--  韓축구 ‘64년 恨’ 풀까, ‘황금세대’ 출격하는 아시안컵 온다[스한 위클리]
--  이기긴 했는데… 외인답지 않은 옐레나, 8점-공격성공률 20%[초점]
--  2:6 in Straubing: Eisbären verlieren drittes Spiel in Folge
--  A Long-Lost ‘Friends’ Script Found In A Bin Was Just Auctioned Off For An Absurd Amount Of Money
--  Correísmo anuncia que no apoyará elevación del IVA
--  Huthit jatkoivat iskujaan merelle ainakin yhdellä ohjuksella – presidentti Biden vihjasi uusien vastaiskujen mahdollisuudesta
--  Buscan a familiares de Juan Manuel Longoria
--  SNAŽNA OLUJA PROUZROKOVALA HAOS U SADČak 12 država ostalo bez struje! Letovi se MASOVNO otkazuju
--  Israel e Hamas concordam com entrada de medicamentos em Gaza, inclusive para reféns
--  Driver takes a chance and hits another car
--  Former Fox News Host Blasts Florida for Removing His Books: 'Absurd'
--  Arqueólogos hallan evidencia de síndrome de Turner de hace 2.500 años
--  A Bright Future Ahead for Local Ethiopian American Photographer Redeat Wondemu
--  "Ça fait quinze ans que je me retiens" : Laurent Delahousse révèle pourquoi il ne donne pas son opinion à l’antenne
--  Acepta AMLO reunirse con la diputada trans Salma Luévano
--  8 مباريات في دوري الأولى اليوم
--  مسيرة التشييع
--  «الزرانيق».. استراحة الطيور المهاجرة على شواطئ العريش
--  لا تقل ما لا تفعل
--  تدوين الأهداف السنوية.. تقويم الطموحين
--  العلاج الذاتي.. نهاية المشاعر السلبية
--  4 خطوات لاستبدال جواز السفر للمواطنين إلكترونياً
--  150 مليار يورو.. سوق السياحة الميسرة العالمية سنوياً
--  232 مليوناً مستحقات للعمال خلال 5 سنوات
--  إيغول جاباروفا تطلع على إنجازات الإمارات في تمكين المرأة
--  Sjajni hrvatski rukometaši ponizili Španjolsku u Mannheimu
--  Bài toán nan giải của tuyển Việt Nam
--  "On peut arrêter la musique ?" : Lara Fabian obligée d'interrompre sa surprise à Vitaa dans La Boîte à secrets
--  Prosecutors in Peru seek 34-year sentence for ex-President Castillo
--  With Snow in the Sierra Forecast, Check Out These CHP Driving Tips
--  Riley Gaines Hand-Delivers Giant Petition to NCAA Reps - Keep Women's Sports for Women - 70K Signatures
--  TransCode Therapeutics Reports Further Restructuring to Reduce Expenses and Increased Focus on Planned Phase 1 Clinical Trial, Retirement of CEO
--  Bu kuru fasulyeye rağbet yüksek
--  Селяк загази! Колко му искат за прибраното Порше
--  Smíšený start výsledkové sezóny
--  Jenelle Evans' Husband David Eason Facing Upgraded Felony Child Abuse Charge
--  الجزائر تبدي موقفا من الغارات الامريكية البريطانية على اليمن
--  Terrifying new video shows Alaska Airlines plane in mid-flight after door plug blows off
--  Γερμανία: Μουσουλμάνοι μαθητές απαιτούν την εφαρμογή της Σαρία στο σχολείο τους
--  واشنطن تدرس إعادة الحوثيين الى قائمة الارهاب
--  Turistas y locales toman calle de Cusco exigiendo venta de boletos para Machu Picchu (VIDEO)
--  نائبة تنفي توقيعها على طلب لحزب تقدم بشأن منصب رئيس البرلمان
+-  This one common device is destroying sperm count, doctors warn
+-  Meduca ofrece cursos de ciencia y tecnología
+-  Rebeldes hutíes de Yemen prometen responder ataques
+-  Addictively Melodramatic Review of ‘Marry My Husband’: A Delightful Must-Read
+-  Nigerian Woman Celebrates Completion of Family Mansion Built by Husband
+-  Lánczi Tamás nem félős, de a biztonság kedvéért törölte korábbi Facebook-posztjait
+-  Kemény év vár az orosz ellenzékre
+-  Έξι Τούρκοι στρατιώτες σκοτώθηκαν σε συγκρούσεις στο βόρειο Ιράκ
+-  Të paktën gjashtë ushtarë turq u vranë gjatë sulmeve në Irakun verior
+-  Caribe Eficiente, una apuesta por la eficiencia energética en la Región Caribe
