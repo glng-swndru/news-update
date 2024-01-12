@@ -1,11 +1,51 @@
 # Latest News
--  This Morning in chaos as Alison Hammond’s phone goes off live on air – after she leaves it on set
--  Biden Admin Announces $623 Million for EV Charging Network
--  Tough debate — Lyle Foster mental health matter more complicated than pundits and naysayers proclaim
--  Historic English market town that’s home to the UK’s best pub – and a top theme park
--  Kartik Aaryan extends birthday wish to his co-star Gajraj Rao
--  'If nothing goes wrong, Tadej is boss’ - Adam Yates on the Tour de France and life with Pogacar
--  Why is Australian Open 2024 starting on a Sunday for the first time in its history?
--  Retired Engineer Whose Home Was Flooded 11 Times Builds Defense Wall to Keep It Safe and Dry
--  Pella Christian Eighth Grader Holds Bracelet Fundraiser for Families in Perry
--  CJP says ECP was ‘overtly generous’ with PTI during its govt, gave party 2 years to hold internal polls
+-  PM Modi Inaugurates India's Longest Sea Bridge 'Atal Setu' In Mumbai
+-  Wipro Headcount Drops By 4,470 In Q3 Even As Attrition Stabilises
+-  Nifty, Sensex Escalate To New-highs As IT Earnings Cheer Stock Market
+-  Concert by Candlelight with Philip Lange
+-  Honor X9b's India launch teased
+-  The UK Prime Minister Visits Kyiv to Announce More Support for Ukraine in Its War with Russia
+-  RemeGen's RC88 Obtained FDA Fast Track Designation, Heralds New Hope for Ovarian Cancer Patients
+-  Tuniu Announces Receipt of Minimum Bid Price Notice from Nasdaq
+-  The Next Golden Decade of Pagoda: Dominating the Global Fruit Market by Seizing Four Opportunities in the Industry
+-  European Parliament expected to adopt resolution on the EU strategy for Central Asia next week
+-  European Parliament expected to adopt resolution on the EU strategy for Central Asia next week
+-  New York iGaming Market Forecasted to Generate $1 Billion, Say Lobbyists
+-  Joelinton faces six weeks out with thigh injury
+-  He really hurt her – that ship’s sailed, says Love Island’s Abi Rawlings as pal Liberty and ex Jake reunite on All Stars
+-  One killed in Migori funeral chaos as youths clash
+-  Foul-mouthed lottery winner who scooped millions lands in court over furious farm bust-up with two women
+-  MV Caledonian Isles at Dales Marine Greenock for overhaul
+-  Meghan Markle, Prince Harry 'tarnished for life' after earning one 'title'
+-  Gogglebox star finds love after heartbreak and famous mum approves of new romance
+-  Machynlleth reclamation yard announces closure as "massive blow" to business after four "difficult years"
+-  I’m a former Premier League striker… now I’m playing in front of 400 fans after seventh tier transfer aged 39
+-  Why do tennis players underarm serve, is it legal and what did they say? Nick Kyrgios and Andy Murray explain shot
+-  CMA clears Sycamore Capital for commercial roll out
+-  Amy Dickinson claims she was banned from a friend’s wedding after posting a photo from the Hen’s night
+-  SPO requests disciplinary action against prosecutor for declaring election bid
+-  Opposition leader unable to attend trial over health concerns after stabbing attack: lawyer
+-  Seoul shares down for 8th day on faster than expected US inflation, weak earnings
+-  Some court awards against the government
+-  Wallander Season 1 Streaming: Watch & Stream Online via Peacock
+-  New Zealand beats Pakistan by 46 runs in 1st T20; leads five-match series 1-0
+-  Major Democratic group to spend $140M targeting women voters in 2024
+-  Carlos Alcaraz earned first sponsor at 10, is tipped to take over Djokovic’s mantle and modelled for Calvin Klein
+-  The 15 Major Factors That Can Increase Your Early Onset Dementia Risk
+-  Russia may launch naval base in Georgian breakaway region in 2024
+-  ‘Great bargain’ as Sainsbury’s shoppers rush to nab GIANT bags of Quality Street scanning at just £2.50
+-  Meet the Black Kingmakers Left Behind after Democrats Killed Their Iowa Caucus
+-  Analysis: Love him or hate him, Bill Belichick is one of the greatest coaches in sports history
+-  Analysis: Love him or hate him, Bill Belichick is one of the greatest coaches in sports history
+-  Christine Lampard issues apology live on Lorraine after awkward name blunder
+-  Mukesh Ambani rejoins $100 billion club as Reliance stock surges record 2.6%
+-  Wild vs. Flyers game preview: Broadcast info and analysis
+-  5 Low-Impact Exercises to Combat Painful Fibromyalgia
+-  A rising star at celebrity trials like O.J. Simpson's. Then a quiet, mysterious death
+-  Who Is Keri Blair? Moms of Liberty School Board Member Resigns after Being Arrested for Theft of Goods Worth $728 from Tennessee Target
+-  How to watch the Emmys and everything else to know, from the red carpet to the nominees
+-  The musical gift Los Angeles offers public school kids
+-  Why Therapy in Retirement Is So Important
+-  Failure to uphold the 14th Amendment has scarred the U.S. Will we do it again?
+-  L.A. Times poll: Younger, older Californians take starkly different views of Israel-Hamas war
+-  Schiff takes narrow lead in Senate race; tight contest for second, new poll shows
