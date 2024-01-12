@@ -1,11 +1,11 @@
 # Latest News
--  Bu hafta hangi yatırım aracı ne kadar kazandırdı?
--  Rwandan University appoints Nigerian female professor as Deputy Vice-Chancellor
--  Seven UND hockey recruits land on NHL Central Scouting's midterm draft rankings
--  JPMorgan: Impresionantes resultados de 4T, tal como ProPicks predijo
--  Italia bloquea la extradición de sacerdote acusado de crímenes durante dictadura en Argentina
--  Tesla y Volvo Car interrumpen producción por crisis del transporte marítimo en el mar Rojo
--  La banca de EE.UU. se resiente en el cuarto trimestre por las caídas de los regionales
--  Orange Bank rechaza la oferta de Ripplewood y sigue negociando con BNP Paribas
--  La Bolsa de Milán sube un 0,73 % impulsada por las energéticas
--  Electrolux registra pérdidas operativas en el cuarto trimestre, con dificultades en Norteamérica
+-  Espanha sobe salário mínimo em 5% para 1.134 euros
+-  Ativistas pelo clima condenados a penas de multa por impedir circulação automóvel em Lisboa
+-  Portugal regista mais de 5.500 mortes nas duas primeiras semanas do ano
+-  Arrestohet shqiptari në Athinë, kishte të fshehur në banesë 45 kg kokainë
+-  Давлат хариди қонунчилигини бузган 500 га яқин мансабдор шахс жавобгарликка тортилди.
+-  Украина ва Буюк Британия хавфсизлик кафолатлари тўғрисида битим тузди.
+-  Яманга ракета ҳужуми, Исроил устидан суд ва Зеленскийнинг баёнотлари — кун дайжести .
+-  הפעם זה היה קל: קטאר הביסה את לבנון במשחק הפתיחה של גביע אסיה
+-  אשכול מזור ועומר שוורץ זכו באליפות ישראל בשחייה ל-5 ק"מ
+-  بسبب العدوان الصهيوني المستمر.. انقطاع التيار الكهربائي عن مستشفى شهداء الأقصى وخدمات الاتصالات والإنترنت عن القطاع
