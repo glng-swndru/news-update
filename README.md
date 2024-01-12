@@ -1,11 +1,51 @@
 # Latest News
--  Niantic apologies to Pokemon Go players for “broken” Bewear Fast Attack error
--  Kickoff | Score Big With BoyleSports: Stand to win Season Tickets & Weekly Betting Prizes!
--  NIA files charge sheet against eight LeT cadres in Karnataka in ‘fidayeen’ attack conspiracy case
--  Genshin Impact players call for Paimon’s Bargains changes amidst 4-star banner woes
--  Travis Barker’s Tattoo Tapestry: A Statement of Uniqueness from the Kardashians and Their Excessive Plastic Surgery
--  Edtech Startup Veranda To Acquire Tapasya Educational Institutions For INR 362 Cr
--  PM नरेंद्र मोदी ने मुंबई में देश के सबसे लंबे सी-ब्रिज अटल सेतु का उद्घाटन किया।
--  Closures, cancellations in McHenry County as winter storm bears down; plus warming centers
--  1. FC Köln - 1. FC Heidenheim im Live-Stream und TV: Kellerkind Köln am 13.01.2024 gegen die Heidenheimer
--  FSV Mainz 05 - VfL Wolfsburg im Live-Stream und TV: Die Nullfünfer wollen gegen Wolfsburg die Punkte zu Hause behalten
+-  Bertram Derthona: grande sfida al Forum con Milano
+-  Reale Mutua Torino ’81 Iren ospita Como Nuoto dopo la pausa natalizia
+-  Derby Piemontese per la Reale Mutua Torino ospite di Monferrato Basket
+-  La Reale Mutua Fenera Chieri ’76 affronta la capolista Conegliano
+-  YouGov preuzima CPS GfK
+-  مصرع سيدة دهسها ميني باص داخل موقف فى الدقهلية
+-  أبرزها الليزر".. "كاف" يعلن المواد المحظورة في كأس الأمم الإفريقية 2023
+-  3 حالات تجعلك تتوقف عن شرب القهوة.. وهذا هو الحد الآمن منها
+-  Bienvenue au monastère (C8) : c'est quoi le concept de cette émission avec des célébrités lancée ce soir ?
+-  İskoçya Başbakanı'nın eşi: Gazze'deki ailem Türkiye'nin yardımıyla kurtarıldı
+-  Bülent Uygun: 5 transfer yapacağız 2'si yerli olacak
+-  Taslak hazırlandı! 81 ilde uygulanacak
+-  Dursun Özbek'ten Leo Dubois transferi için açıklama
+-  Basın toplantısıyla duyurdular! Ermenistan'dan "Türkiye" açıklaması
+-  Nieuwjaarstoespraak burgemeester Sjors Fröhlich: 'Ik zie meer dan alleen maar tegenstellingen'
+-  Nieuwjaarstoespraak burgemeester Sjors Fröhlich (Vijfheerenlanden): 'Ik zie meer dan alleen maar tegenstellingen'
+-  Rivero, OTB en Kruiswijk Groep bij genomineerden Ondernemersprijs Midden-Holland
+-  На выставке «Россия» на ВДНХ состоится свадьба воронежских учителей
+-  Mental Health: Der lange Weg zur Therapie
+-  Objav v bruchu ženy (73) vyrazil lekárom dych: Pozrite sa, čo v nej našli po 35 rokoch
+-  Archeológovia v Španielsku objavili 2000-ročný náboj praku, nesie Cézarovo meno
+-  Opozícia iniciuje mimoriadny výbor k prípadu riaditeľa TANAP-u, informuje poslankyňa Stohlová
+-  Prezidentka Čaputová vyzvala riaditeľov škôl, aby neprehliadali šikanu
+-  Za lúpež v Prievidzi hrozí 30-ročnému mužovi osemročné väzenie
+-  Mróz pokonał elektryki. Paraliż komunikacji miejskiej i kilkadziesiąt odwołanych połączeń
+-  Врачи сообщили тулякам, что кофе защищает от болезни Альцгеймера и Паркинсона
+-  Yozgat'ta şap riski nedeniyle geçici tedbir
+-  A Don-kanyarban haltak hősi halált
+-  В Пензе росгвардейцы проверили пункты размещения детей из Белгородской области
+-  „Hart und konsequent“: CDU will gegen Teilnehmer bei AfD-Geheimtreffen vorgehen
+-  Media Tenor Zitate-Ranking: Tagesspiegel ist meistzitierte Regionalzeitung
+-  В Британии признали виновным педофила, изнасиловавшего двух молодых девушек
+-  В Минобороны Китая заявили, что не допустят независимости Тайваня
+-  Сотрудники пожарной части колонии-поселения №10 УФСИН России по Ивановской области приняли участие в тушении пожара жилого дома
+-  13 Ocak imsak ve iftar vakti 2024: 13 Ocak sahur ve iftar saat kaçta?
+-  Hatayspor'da Pendikspor mesaisi sona erdi
+-  İskoçya Başbakanı'nın eşinden Gazze mesajı: Türkiye'nin yardımıyla kurtarıldı
+-  Kızılcık Şerbeti Görkem kimdir, gerçek adı ne? Özge Özacar hangi dizilerde oynadı?
+-  Kişilik testi: Senden nasıl bir elti olur? Kızılcık Şerbeti'nde Nilay mısın Doğa mı?
+-  Güney Afrika'dan İsrail'e soykırım tepkisi
+-  13 Ocak 2024 ŞOK aktüel ürünleri belli oldu! ŞOK'a cumartesi günü neler geliyor?
+-  Pakistan'da bombalı saldırı hazırlığındaki teröristler yakalandı
+-  Irak, ABD ve İngiltere'nin Yemen saldırısını kınadı
+-  Peygamberimiz üç aylarda nasıl oruç tutardı? Peygamber efendimiz Hz. Muhammed hangi günlerde oruç tutardı?
+-  Ne yaptın Arda Güler! Tüm dünya onu konuşuyor
+-  12 Ocak reyting sonuçları açıklandı mı? Yalı Çapkını, Kızılcık Şerbeti, Arka Sokaklar reyting sıralaması nasıl?
+-  Amadou Ba est catégorique : « Je ne serai pas un président de la République pour faire ça »
+-  DPS: Na primjeru Agencije za projektovanje i planiranje prikazano neznanje i neprofesionalizam lokalne vlasti u Nikšiću
+-  "בשל הסיכון הנובע ממנו": בית המשפט העליון דחה את הערעור של אלישע ירד
+-  BlackRock com lucros de 5 mil milhões em 2023 com ativos sob gestão a ultrapassarem os 10 biliões
