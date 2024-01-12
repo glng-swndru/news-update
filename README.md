@@ -1,51 +1,51 @@
 # Latest News
--  Hathras News: राशन के चावल की कालाबाजी की शिकायत पर मारा छापा
--  "Excecional complexidade" adia decisão instrutória do caso das golas antifumo para dia 25
--  ASAE apreende 4,5 toneladas de moluscos bivalves vivos no concelho de Palmela
--  FIFA'dan 7 Süper Lig ekibine transfer yasağı
--  Ömer Çelik duyurdu: Erdoğan'ın talimatıyla aday tanıtım toplantısı ertelendi
--  Moana’s Auli’i Cravalho Explains Why It’s ‘Really Important’ That Another Actress Plays The Character In Live-Action
--  Muzaffarnagar News: मुजफ्फरनगर - सुप्रीम कोर्ट ने कहा, राज्य को जो करना चाहिए था, वह नहीं किया
--  Biden, the reluctant escalationist, seeks calm after Yemen strikes
--  بـ «مكافأة خاصة».. ريال مدريد يُحفز لاعبيه للثأر من برشلونة
--  Docentes de Venezuela convocan a protesta nacional el lunes para exigir aumento salarial
--  Anadolu Efes kötü gidişata son verdi!
--  İletişim Başkanlığı manipülatif paylaşımlara karşı uyardı: İtibar etmeyiniz...
--  Premier Lig devleri transfer yarışında!
--  Wekelijks beursoverzicht : De markt boekt weer vooruitgang
--  AK Parti aday tanıtım toplantısı ertelendi
--  Microsoft supera a Apple como la empresa más valiosa del mundo
--  Між Іраном та саудами. Хто такі хусіти
--  10 Classic Sci-Fi Performances Snubbed by the Oscars
--  La Caroline du Nord approuve la hausse des tarifs de Duke Energy
--  Medios aéreos del Gobierno ven "prácticamente imposible" localizar pellets en el mar
--  Medios aéreos del Gobierno ven "prácticamente imposible" localizar pellets en el mar
--  Amethi News: कांग्रेसियों ने प्रियंका के जन्मदिन पर बांटे कंबल
--  Electric buses temporarily withdrawn after Wimbledon double decker blaze
--  "عبدالغفار": حملة 100 يوم صحة قدمت أكثر من 60 مليون خدمة مجانية خلال 200 يوم
--  نيويورك تايمز: المخابرات الأمريكية جمعت معلومات عن موقع الأسرى في غزة
--  احذر هذا اللون للبلغم.. قد يسد رئتيك وأمعاءك ويصيبك بهذه الأمراض
--  بالفيديو.. الاحتلال يستهدف منزلًا بمحيط معبر رفح وسقوط عدد كبير من الشهداء
--  عائلة عائشة تمنع ساديو ماني من قضاء "شهر العسل" لهذا السبب
--  اختراق علمي.. تقنية لإطالة العمر عن طريق التلاعب بالدماغ
--  اكتشاف غير مسبوق في مومياء مراهقة مصرية عاشت قبل 2000 عام
--  Ermənistanda şəhər meri qəbula gələn vətəndaşı bıçaqlayıb
--  Ranbir y Konkona repiten sus papeles de Wake Up Sid para un nuevo anuncio, los fanáticos reaccionan. Ver | bollywood
--  Tinubu appoints Executive Director, Governing Council for Gas Infrastructure Fund
--  قصف اليمن.. ديفيد هيرست يتنبأ بكارثة إقليمية: “الطلقات الأولى لحرب أكبر”
--  Marcelo sugere criar comissão estatal para investigar abusos na Igreja
--  Shahjahanpur News: रोडवेज की बसें खटारा, कौन करे यात्रा
--  Rishikesh News: नायब तहसीलदार के कार्यालय पर लटका है ताला
--  Rechaza México comentarios del gobernador de Texas sobre disparos a migrantes
--  Jussi Halla-ahon leikkauspuheet Ylestä nostivat somemyrskyn – Näin hän perustelee kritiikkinsä
--  İletişim Başkanı Altun, Pençe-Kilit Harekâtı bölgesinde şehit olan askerler için taziye mesajı yayımladı
--  Vecinos en Maracaibo se quedaron sin luz tras incendiarse un transformador (VIDEO)
--  Kryediplomati turk i kërkon homologut britanik të ulë tensionet në Gjirin e Adenit
--  Pete Davidson’s stalker spent three hours watching TV with his mom
--  Carolina López celebra la vida con sus 102 años
--  كأس آسيا.. قطر تستهل حملة الدفاع عن لقبها بالفوز على لبنان
--  الشاعر التونسي عبد العزيز الهمامي يُتوّج بجائزة القوافي مهرجان الشارقة للشعر العربي
--  Council sees rise in homeless applications amid ‘significant’ pressures in Renfrewshire
--  Artista crea el dibujo más largo del mundo en la cima de la Gran Muralla China | Tendencia
--  Muzaffarnagar News: मुजफ्फरनगर - दुष्कर्म के दोषी को 20 साल का कारावास
--  Rishikesh News: छत्तीसगढ़ की तरह मूल निवास और हिमाचल की तर्ज पर चाहिए भू-कानून
+-  Canadian teacher eager to showcase integrity of arm wrestling in online broadcast
+-  Rusia ante la ONU: "EE.UU. y sus aliados contribuyen a la expansión del conflicto a toda la región al atacar a Yemen"
+-  Θεσσαλονίκη: Οδοκαθαρίστρια βρήκε και παρέδωσε πορτοφόλι με 490 ευρώ
+-  Manhattan neighbors blast plan to build casino alongside U.N. building
+-  TFF'den şehitlerimiz için saygı duruşu kararı!
+-  "Şehit olan askerlerimizin isimleri" iddiasına yalanlama
+-  Erdem Can: Her maçımız final havasında geçecek
+-  «El socialismo es una basura», dijo Milei sobre Cuba
+-  韓축구 ‘64년 恨’ 풀까, ‘황금세대’ 출격하는 아시안컵 온다[스한 위클리]
+-  이기긴 했는데… 외인답지 않은 옐레나, 8점-공격성공률 20%[초점]
+-  2:6 in Straubing: Eisbären verlieren drittes Spiel in Folge
+-  A Long-Lost ‘Friends’ Script Found In A Bin Was Just Auctioned Off For An Absurd Amount Of Money
+-  Correísmo anuncia que no apoyará elevación del IVA
+-  Huthit jatkoivat iskujaan merelle ainakin yhdellä ohjuksella – presidentti Biden vihjasi uusien vastaiskujen mahdollisuudesta
+-  Buscan a familiares de Juan Manuel Longoria
+-  SNAŽNA OLUJA PROUZROKOVALA HAOS U SADČak 12 država ostalo bez struje! Letovi se MASOVNO otkazuju
+-  Israel e Hamas concordam com entrada de medicamentos em Gaza, inclusive para reféns
+-  Driver takes a chance and hits another car
+-  Former Fox News Host Blasts Florida for Removing His Books: 'Absurd'
+-  Arqueólogos hallan evidencia de síndrome de Turner de hace 2.500 años
+-  A Bright Future Ahead for Local Ethiopian American Photographer Redeat Wondemu
+-  "Ça fait quinze ans que je me retiens" : Laurent Delahousse révèle pourquoi il ne donne pas son opinion à l’antenne
+-  Acepta AMLO reunirse con la diputada trans Salma Luévano
+-  8 مباريات في دوري الأولى اليوم
+-  مسيرة التشييع
+-  «الزرانيق».. استراحة الطيور المهاجرة على شواطئ العريش
+-  لا تقل ما لا تفعل
+-  تدوين الأهداف السنوية.. تقويم الطموحين
+-  العلاج الذاتي.. نهاية المشاعر السلبية
+-  4 خطوات لاستبدال جواز السفر للمواطنين إلكترونياً
+-  150 مليار يورو.. سوق السياحة الميسرة العالمية سنوياً
+-  232 مليوناً مستحقات للعمال خلال 5 سنوات
+-  إيغول جاباروفا تطلع على إنجازات الإمارات في تمكين المرأة
+-  Sjajni hrvatski rukometaši ponizili Španjolsku u Mannheimu
+-  Bài toán nan giải của tuyển Việt Nam
+-  "On peut arrêter la musique ?" : Lara Fabian obligée d'interrompre sa surprise à Vitaa dans La Boîte à secrets
+-  Prosecutors in Peru seek 34-year sentence for ex-President Castillo
+-  With Snow in the Sierra Forecast, Check Out These CHP Driving Tips
+-  Riley Gaines Hand-Delivers Giant Petition to NCAA Reps - Keep Women's Sports for Women - 70K Signatures
+-  TransCode Therapeutics Reports Further Restructuring to Reduce Expenses and Increased Focus on Planned Phase 1 Clinical Trial, Retirement of CEO
+-  Bu kuru fasulyeye rağbet yüksek
+-  Селяк загази! Колко му искат за прибраното Порше
+-  Smíšený start výsledkové sezóny
+-  Jenelle Evans' Husband David Eason Facing Upgraded Felony Child Abuse Charge
+-  الجزائر تبدي موقفا من الغارات الامريكية البريطانية على اليمن
+-  Terrifying new video shows Alaska Airlines plane in mid-flight after door plug blows off
+-  Γερμανία: Μουσουλμάνοι μαθητές απαιτούν την εφαρμογή της Σαρία στο σχολείο τους
+-  واشنطن تدرس إعادة الحوثيين الى قائمة الارهاب
+-  Turistas y locales toman calle de Cusco exigiendo venta de boletos para Machu Picchu (VIDEO)
+-  نائبة تنفي توقيعها على طلب لحزب تقدم بشأن منصب رئيس البرلمان
