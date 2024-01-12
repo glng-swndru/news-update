@@ -1,51 +1,11 @@
 # Latest News
--  Kültür ve Turizm Bakanlığı 1.629 Sözleşmeli Personel alacak!
--  Perakende satışlar yüzde 12,8 arttı
--  Galatasaray'da Berkan Kutlu'nun lisansı çıkarıldı
--  Depremlerde ağır hasarlı binaların yıkımı yüzde 85'e ulaştı
--  Ankara Çankaya'da icradan satılık çatı katlı mesken!
--  Behzat Uygur ile eşi Çiğdem Uygur Maldivler'de aşk tazeledi
--  Kuzey Kore, ABD'nin füze iddialarını yalanladı
--  Taha Duymaz'ın annesinin sözleri yürekleri dağladı... "Başka yerde uyuyamıyorum"
--  Komşu basını Türkiye eksenini yazdı! Başkan Erdoğan'ın sözlerine dikkat çektiler
--  Kastamonu'da icradan satılık arsa!
--  ABD'den Rusya'ya yaptırım hazırlığı... Kuzey Kore'den balistik füze almışlardı
--  Altının gramı yükselişte
--  Umut Evirgen ile Alina Boz'dan gecikmeli balayı tatili
--  Büşra Pekin kilo verme sırrını açıkladı: Birinci kural iyi beslenmek
--  Türkiye'nin fiber altyapı uzunluğu genişleyecek
--  TRT ortak yapımı "Tay 2: Ebabil Takımı" filmiyle kutsal topraklara yolculuk
--  '앤디 아내' 이은주 아나, KBS에 5년 만 최종 승소 "정규직 복직" [MD이슈](종합)
--  이하늬(LeeHaNee) '깊고 깊은 보조개 미소'
--  손흥민, 2024 파리올림픽 ‘팀 삼성 갤럭시’ 선수단에 동참
--  서울신라호텔, 얼리 체크인·레이트 체크아웃 패키지 출시
--  [속보]파라마운트, “톰 크루즈 ‘탑건3’ 제작”[해외이슈]
--  1시즌 동안 'CIN→방출→SEA→방출→NYY'…1R 출신 우완 선발 '1년 26억' 양키스와 재결합
--  Park halindeki tıra çarpan otomobil hurdaya döndü: 2 yaralı
--  В белгородском поселке Разумное построят дендропарк в 2024 году
--  Industria modera ritmo de crecimiento en noviembre de 2023
--  국민의힘 의원들 “김희현 제주도 정무부지사 사퇴하라”
--  Rapport: Discord er det siste selskapet som rammes av store oppsigelser
--  Azerbaijan maintains positive experience regarding electoral rights - ombudsman
--  Sodnik svet kritičen do vladne garniture, pozitivno o predsednici države
--  Beekeeper en The Old Oak in Cinema Texel
--  Soccerladuma | 5 Reasons Why Pasuwa Can Be Chiefs' Alternative To Pitso
--  Soccerladuma | Onana Slammed For AFCON Decision
--  VIDEO, FOTO // „Suntem MÂNDRI să reprezentăm R. Moldova!”: Tinerii biatloniști vor să scrie ISTORIE la Jocurile Olimpice de Tineret. Președintele Federației de Biatlon le-a pregătit CADOURI atleților
--  삼겹살 1인분에 2만원 육박…2년 새 2500원 올랐다
--  [시론] 아버지는 LG 팬이었다
--  강진군의회, 의장 불신임안 발의 ‘뒷말’…“하필 이때” 총선 암투설
--  ORDI’s market murmurs overshadowed by NuggetRush’s impressive $1.6 million milestone
--  VIDEO Borbeni zrakoplovi u akciji usred noći: Objavljena snimka početka napada na Jemen. 'To je bila naša dužnost'
--  העברות בעולם: מנצ'סטר יונייטד, ארסנל וליברפול בעקבות אוון פרגוסון
--  "ריאל מדריד משחקת בליגה שהיא בדיחה ואפילו לא זכתה באליפות"
--  The Hajj Conference And Exhibition 2024
--  “Yaxşı azərbaycanlıları pis ermənilər öldürür” deyən Raşida nazir oldu: Ermənilər şokda
--  Epstein'ın kurbanı Sarah Ransome anlattı! "Günde 3 kez tecavüze uğruyordum"
--  За последние 20 лет реальный объем ВВП Азербайджана увеличился более чем в 3,6 раза
--  La Real es el segundo equipo que más faltas y de los que menos juega
--  Eletopia Revolutionizes Energy Storage Solutions in the US
--  AAC's Smart Car Super-Sensing Solutions Unveiled at CES 2024, Accelerating Multimodal Interaction in Smart Cockpits
--  AAC Showcases Seven Integrated Solutions at CES 2024, Accelerating AI for a Digital World
--  SK네트웍스, AI스타트업 ‘업스테이지’에 250억원 투자
--  В Туле расторгли контракт с разработчиком транспортной схемы города
+-  Azerbaijan's entrepreneurial activity growing at tremendous pace
+-  Australian Open, Cobolli e Zeppieri qualificati. Out Napolitano e Vavassori
+-  MasterChef 'on fire', il gioco delle coppie: "Mi strizza il capezzolo"
+-  İstanbul'da en çok tüketilen meyve ve sebze belli oldu
+-  Attouda Antik Kentine ilk kazma vuruluyor
+-  Türk futbolunda devrim! TFF yeni sistemi duyurdu
+-  BM: İsrail yardım sevkiyatlarını engelliyor
+-  Grip vakaları için uzmanlardan tedbir çağrısı
+-  Glisemik indeksi çikolatadan yüksek! Bu besini bırakan anında 2 kilo veriyor
+-  Emekliye ek zam düzenlemesi! Çalışma Başkan Erdoğan'a sunulacak
