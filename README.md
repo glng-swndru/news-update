@@ -1,51 +1,11 @@
 # Latest News
--  Мъж уби кучето си от ревност - сближило се с приятелката му
--  จับไรเดอร์โจร คาผ้าเหลือง หนีคดีขโมย บวชเป็นพระ
--  Olivia Flowers wears version of fellow scorned Bravolebrity Ariana Madix’s revenge dress for ‘Southern Charm’ reunion
--  Biden heckled repeatedly during Pennsylvania trip: ‘Go home, Joe!’
--  Bird dies after being abandoned in cold weather alongside two cats and another bird in Glasgow
--  Republicans want details of Fani Willis squeeze Nathan Wade’s talks with White House, Jan. 6 committee
--  เรื่องดีๆก็มีในคุก (2)
--  Mohbad’s Father Cheap Blackmailer, Only After Late Son’s Estate – Femi Falana
--  예멘 후티반군, 미·영에 "합법적 표적" 보복 위협...중동 확전 우려
--  母에게 받은 집 팔았는데, 수년치 '가산세' 내라니
--  담배 2갑에 여중생과 유사성행위…수사도 회피한 男, 결국
--  TSPSC : టీఎస్‌పీఎస్సీ బోర్డుకు వేళాయె!
--  Australia pledges conservation gift to Mary
--  Homem tenta desviar de bezerro, perde o controle do quadriciclo e morre ao quebrar o pescoço
--  EPA publica reglas para "tarifa de metano" a empresas de petróleo y gas
--  แอดมินหื่น
--  ปล่อยของ "ไมค์-พิรัชต์" ถอดเสื้อโชว์หุ่นซิกแพค ยืนท้าลมหนาวที่ดอยช้าง
--  ¿Cómo solicitar un crédito en Coppel y cuáles son los requisitos en 2024?
--  ספיגה בדקה ה-90 והפסד בית שני בהיסטוריה: סביליה נכנעה לאלאבס
--  Popular Nollywood actor Ali Nuhu becomes MD Film Corporation
--  Lawmakers react to strikes in Yemen
--  Parteien: Wagenknecht-Partei will bei Wahlen in Ostdeutschland punkten
--  Transportistas extienden suspensión de servicio en Acapulco por violencia
--  Parteien: Wagenknecht-Partei will bei Wahlen in Ostdeutschland punkten
--  Veliki preokret Partizana protiv Makabija, Baskonija srušila Olimpijakos
--  Passenger numbers climb in 2023 for Kamloops Airport, nearing pre-COVID levels
--  He always keeps his balance.
--  Can 2024 : Le Sénégal vaincra-t-il la malédiction du champion en titre ?
--  Higgs refuses to answer questions about comments made about gender-affirming care
--  Barcelona děkuje Čechům za další výhru
--  En imágenes: otra vez el granizo castigó a San Rafael
--  Bill Belichick refused to bench Mac Jones as ‘f–k you’ to Robert Kraft: confidant
--  Jadon Sancho yang Sempat 'Diasingkan' 4 Bulan Akhirnya Dipinjamkan MU ke Dortmund, Apa Kata Erik ten Hag?
--  Ogun lawmaker moves to reduce food shortage in Nigeria
--  Biden Speeds Up Timeline for Student Loan Cancellation
--  Photos: Hugh Boyd basketball tournament honours late Richmond coach
--  TFF, Futbol Disiplin Talimatı'nda değişiklik yaptı
--  ทิศทางปราบยานรก
--  Jenni Hermoso revela prácticas de Jorge Vilda: "Teníamos que dejar la puerta abierta y esperar a que pasara"
--  Кличко: рядом с Киевом произошли взрывы
--  Municipalidad de Barranco en la mira de la Contraloría
--  Знаков политик : Доган усеща пулса на ДПС
--  Najveći preokret u istoriji Evrolige!
--  Tinubu Appoints Governing Council Of MDGIF
--  MPE consegue recuperar R$ 700 milhões para os cofres públicos de Mato Grosso
--  Fiscalía peruana pide 34 años de prisión para Pedro Castillo "por fallido Golpe de Estado"
--  Bank of America: Caída en bolsa tras reporte de ganancias del 4T
--  Visszaélnek Csertői Aurél nevével, a Honvéd fontos kéréssel fordult a szurkolók felé
--  รวบแอดมินหื่น กลุ่มไลน์ลับ "สื่อลามกเด็ก" แลกค่าสมาชิก
--  ¿Qué es 'Sana tu Deuda' de Coppel? El programa de recuperación para pagar saldo vencido
+-  Meksiko vraća borbe s bikovima
+-  Citigroup to cut 20,000 jobs by 2026 after $1.8 billion loss
+-  What's next in the Warren vs. DeSantis case
+-  Comisión Permanente declara independientes a diputados de Semilla y bloquea aspiración de integrar Junta Directiva del Congreso
+-  El lamento de Francescoli por la negativa de Borré, su charla con Borja y el elogio a una joya de River Plate: “No me gusta, pero lo tengo que decir”
+-  Flybondi aseguró que por no poder hacer pagos en dólares al exterior más de 1.300 pasajeros por día podría quedarse sin volar
+-  "Hakkari'nin Çukurca ilçesinde çatışma sesleri yükseliyor" iddiasına yalanlama
+-  Brasil discute criar adidância da PF no Equador
+-  Karla Tarazona elogia talento de su hijo Valentino y lo compara con el de Christian Domínguez: “Él sí canta”
+-  Beşiktaş'a kötü haber! Vincent Aboubakar sakatlandı!
