@@ -1,11 +1,51 @@
 # Latest News
--  Kurs dolara w dół po zaskakującym spadku cen producentów w USA
--  2024 bedelli askerlik sevk tarihleri ne zaman?
--  Rize'de köpekler cemaatin arasını daldı!
--  Artvin'de çatıda dengesini kaybetti, son anda tutundu!
--  PSOE e BNG unen forzas para acadar un pacto de gobernabilidade en Vilagarcía
--  לראשונה מתחילת המלחמה: תתאפשר הכנסת תרופות לחטופים בעזה
--  העדויות נחשפות: "ברצלונה שכרה חבר באיגוד השופטים כדי לזכות בהטבות ספורטיביות"
--  ময়লার ড্রামে কাঁদছিল নবজাতক
--  No promise of visa, residence permits for Afghan migrants: Turkish FM
--  Хитойда 50 йил ишлайдиган ядро батареяси ихтиро қилинди .
+-  Čestitka iz Brčkog povodom Pravoslavne nove godine
+-  Smite 2 Is the Sequel to the Super Popular MOBA, and It's Coming to PS5
+-  Si u bë pjesë e filmit? “Shoku Ynë Tili” flet në Vizioni i Pasdites: Ky është kujtimi më i bukur që kam
+-  Постпред Израиля назвал ООН соучастницей террористических организаций в Газе
+-  Ampelkritik: Linken-Chef Schirdewan fordert Neuwahlen noch in diesem Jahr
+-  Ελλάδα – Κροατία: Live streaming ο προημιτελικός της Εθνικής πόλο των ανδρών στο Ευρωπαϊκό του Ζάγκρεμπ
+-  45 kg kokainë të pastër, armë dhe fishekë në shtëpi, arrestohet 45-vjeçari shqiptar në qendër të Athinës
+-  Heru Budi Lantik 103 Pejabat Administrator dan Pengawas Baru di Jakarta
+-  Liga quer programa especial de vacinação contra gripe para os bombeiros
+-  Removidas cerca de 400 partículas de plástico de praias entre Caminha e Aveiro
+-  Χρηματιστήριο Αθηνών: Το 7 στα 7 έκανε ο Γενικός Δείκτης – Εβδομαδιαία άνοδος 3,1% με άλμα 7,17% για τις τράπεζες
+-  Kayseri'de zincirleme kaza: 1'i ağır 5 yaralı
+-  講談社 過保護な若旦那様の甘やかし婚 こだち - thenewsunlimited.com
+-  경북 칠곡 북삼라이온스클럽, 불우이웃돕기 성금 100만원 기탁
+-  김성태 IBK기업은행장 취임 1주년...지난해 중기에 65조원 유동성 지원
+-  군위군, 2024년 착한가격업소 지정…서민 물가 안정화와 민생경제 집중
+-  "고령농가 영농부산물 파쇄 대행해 드립니다"
+-  기장군, 올해 기장군민 건강증진사업 대상자 모집
+-  성주도서관 메이커 특강 수강생 선착순 모집
+-  '정성 요건으로 국내기업만 때려잡는 플랫폼법 우려'…공정위 권한만 커지고 국내 기업 죽는다
+-  [CES현장] 현대차도 반한 기술 '지비소프트' 박기범 대표 "헬스케어 보편화 앞장 서겠다"
+-  한동훈·홍익표, 양산 통도사서 불심잡기…조계종 종정 잇단 예방
+-  文 "당 하나 된 모습으로 총선 승리…대한민국 바로 세워달라"
+-  이앵규 예비후보 선거사무소 개소 "대구 중구남구 옛 명성 재현"
+-  당정, 14일 한동훈 첫 참석 고위 협의회 개최
+-  [포토뉴스] 이월드에서 만나는 뮤지컬 특별전시 '라라의 꿈의 극장'
+-  부산항만공사, 부산항 신항 현장 안전실태 점검
+-  "주저한 흔적 없어 의아"…한강 30대 여성 시신 미스터리
+-  부산도시공사, 시 산하기관 중 지난해 하반기 재정집행률 '1위'
+-  3살 원생 박치기 시킨 어린이집 교사…원장은 CCTV 삭제
+-  KBS "이선균 사건 보도 최대한 절제…사망과 연결 무리"
+-  '세계 2위 석유 소비국' 중국서 유전 터졌다…1억t 규모
+-  "교도소 인기남 됐다" 칼부림 예고글 올린 20대의 구속 후기…항소심서 형량 늘었다
+-  이랜드뮤지엄, '도로시 드레스'·'BTS 의상' 전시 뮤지컬 특별전
+-  DRDO conducts successful flight-test of New Generation AKASH missile off Odisha coast
+-  Florida safety Miguel Mitchell inks with Razorbacks
+-  Двегодишно дете от Кичево почина след нанесен от баща му побой
+-  Is Regina George gay in the Mean Girls musical remake?
+-  “Arrestimi i liderit të opozitës, i pafalshëm”, Ndoka: Berisha ia prishi planet dhe gjumin Lulit e Ramës
+-  SHBA: Nuk duam konflikt me Iranin
+-  JSO corrections officer arrested following domestic dispute
+-  Ötméteresekkel legyőzte a szerbeket Zágrábban, Eb-elődöntős a magyar férfi vízilabda-válogatott
+-  Nem kicsik a színpadhoz: nem lehet sokat keresni vele, de életre szóló befektetés a gyerekek színházi foglalkoztatása
+-  „ME EI TAHA OLLA JÄRGMINE UKRAINA!“ Hiina hirmutab Taiwani rahvast juttudega mürgitatud lihast ja valitsuse verekogumisest
+-  Sabiq prezidentə 34 il həbs cəzası istənildi
+-  Mit dem Thema »Flucht aus der DDR« den ersten Platz erreicht
+-  Nasarawa Speaker drums support for Governor Sule
+-  Реконструкцию одной из дорог на Сахалине завершили на три года раньше срока
+-  Жители Новгородской области предложили «сильные идеи для нового времени»
+-  В Алпин запалиха мотора на колата за 2024
