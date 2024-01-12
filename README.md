@@ -1,51 +1,11 @@
 # Latest News
--  Video: Árboles del camellón de la Universidad muestran fuerza del viento
--  Video: Ventarrones derribaron barda de un predio
--  Escándalo lo de Coahuila, responde Sheinbaum
--  El IPC chino continúa su tendencia deflacionaria al caer un 0,3 % en diciembre
--  Birks Group anuncia un aumento de las ventas navideñas del 8,1
--  Estas son las mejores películas de 2023
--  Huthi: USA und Großbritannien werden hohen Preis zahlen
--  Boryung and Axiom Space Launch Brax Space, a Joint Venture for Commercial Space Station
--  ‘더현대 서울’의 향기마케팅, MZ들에게 좋은 반응 얻어
--  '센터백 샀으니 다음은 라이트백' 뮌헨, 이강인 동료 DF 노린다...구매 옵션 포함된 임대 추진
--  ‘음바페 영입 위해 비니시우스 내보낸다’…PSG-맨유-맨시티 쟁탈전 본격화
--  사이냅소프트, 실시간 동시 편집 기능 추가한 ‘사이냅 에디터 3.0’ 출시
--  롯데정보통신-칼리버스, 메타버스 전자음악 페스티벌 선보인다
--  구글, 클라우드 전환 수수료 폐지…아마존·MS도 따라갈까
--  GS네오텍-와이즈에이아이, AI 컨택센터 사업 협력
--  KOSA, 기업멤버십SW캠프사업 우수 컨소시엄 선정
--  삼성전자, 파리 올림픽·패럴림픽 홍보대사 '팀 삼성 갤럭시' 공개…손흥민·신유빈·안세영 참여
--  팅크웨어, ‘2024 도쿄오토살롱’ 참가…블랙박스·액션캠 선봬
--  한국후지필름BI, 업무공간 DX 갖춘 ‘라이브오피스’ 부산서 첫선
--  네이버클라우드-365mc, ‘비만치료특화 스마트병원’ 구축 협력
--  NHN페이코, 캠퍼스 특화 재학생 식권 예약 서비스 도입
--  굿리치, 베베더오리와 인스타그램 콜라보 이벤트…"MZ세대 공략"
--  [CES 2024] 두산디지털이노베이션, 데이터이쿠와 ‘AI 혁신사례’ 공유
--  KIST, 고성능 웨어러블 로봇 ‘문워크-옴니’ 성능 검증
--  웨이센, 중앙대병원과 의료AI 기술 고도화·연구사업 ‘맞손’
--  메타, 페이스북 캐나다 회원 정보 무단 이용…5,100만 달러 합의금 제시
--  МО РФ сообщило об отражении четырех контратак ВСУ на купянском направлении
--  Madden NFL 24 veröffentlicht das letzte Roster-Update zum Saisonende
--  CNN: США запустили по Йемену ракеты "Томагавк" с АПЛ "Флорида"
--  ВС России отразили четыре контратаки ВСУ на Купянском направлении
--  ‘미래에셋코어테크 펀드’ 설정액 8000억원 돌파
--  전국 민언련 “KBS ‘윤땡뉴스’ 모자라 지역뉴스 축소…공적 서비스 포기”
--  희대의 ‘바이든-날리면’ 소송, 외교부 이기고 MBC 졌다
--  조태열 외교장관 “기술 자강과 한미 동맹이 韓 생존전략”
--  김태오 DGB금융 회장, 3연임 포기하고 용퇴…“새로운 리더십 필요”
--  SK TNS, 시흥유통상가 도시첨단물류단지 개발사업 참가
--  "와퍼 먹으면서 전기차 충전하세요"...워터, 버거킹 매장에 급속 충전소 열었다
--  카카오페이증권, 국내외 타사 주식 입고 이벤트 진행
--  네이버, '하이퍼클로바X'로 카타르 아시안컵 응원한다
--  [CES 2024] HBM 굴기 나선 삼성전자...차세대 메모리 '선도'
--  런드리고, 여러밤배송 서비스 출시…"세탁비 최대 20% 싸게"
--  NHN링크, '사카모토 류이치 트리뷰트 콘서트' 티켓 예매 오픈
--  카카오게임즈 '크루아이템 기부 캠페인' 실시
--  한샘 "아이방 가구 '조이S 2' 판매 2배 이상 늘었다"
--  [테크M 리포트] 다시 뛰는 카카오게임즈...증권가 목표가 'UP'
--  SSS Disability Benefit Requirements 2024 Member Must Submit to File Claim
--  NVVB, The Bheemili Resort welcomes Sahil Anand as Cluster Revenue Manager
--  Airbnb signs MoU with Uttarakhand Tourism Development Board
--  Houthi strikes LIVE updates: US, UK launch missile attacks against Iranian-backed rebeals in Yemen
--  Houthi strikes LIVE updates: US, UK launch missile attacks against Iranian-backed rebeals in Yemen
+-  Program Keberpihakan Penerimaan Mahasiswa Baru Unpad 2024, 4 Kalangan Siswa Jadi Target
+-  กรมการค้าภายในเชื่อมโยงผู้ประกอบการ รับซื้อหอมแดงศรีสะเกษ 6,875 ตัน
+-  'ปาปัวนิวกินี'ประกาศภาวะฉุกเฉิน หลังเกิดจลาจล เสียชีวิต15ศพ
+-  Juventus 'tranh hàng' với Napoli để có được tiền vệ đang lên ở Serie A
+-  'Sancho sẽ tồn tại ở Man Utd lâu hơn Ten Hag'
+-  Radu Dragusin: "Giấc mơ của tôi đã trở thành hiện thực"
+-  Govt Decided Not to Raise Maximum Retail Price for Rice despite Climbing Market Prices
+-  滙豐面臨10億美元訴訟 遭指控挖角SVB員工及商業機密
+-  아워홈 '구씨반가', 전복 소갈비탕, 싱카이 탕수육 출시
+-  하나은행, 스타트업 지원 ‘하나원큐 애자일랩 15기’ 선발
