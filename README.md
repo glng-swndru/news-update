@@ -1,51 +1,51 @@
 # Latest News
--  Nigéria, de José Peseiro, com baixa de última hora para o CAN
--  O IMI das barragens que está por cobrar ainda poderá vir a ser liquidado. Porquê?
--  Benfica fecha contratação de ​Álvaro Fernández
--  Presença de Cabo Verde no CAN abalada por pagamentos em atraso
--  Cabo Verde lamenta pressão do Portimonense para que Hélio Varela falhasse o CAN
--  Sale a licitación de nuevo la atención temprana en 407.000 euros para dos años
--  Sinapsis cerebral puede ser útil contra la esclerosis y el cáncer
--  Iris Virtanen keräili punaisia mökkejä punaiseen mökkiinsä – kokoelma on nyt nähtävillä Koriston tallilla
--  مئات الأردنيين يتظاهرون دعما لفلسطين
--  Telekom: Mega-Störung in ganz Deutschland – Kunden sind auf 180
--  El jugador argentino que quiere Marcelo Gallardo para Al Ittihad
--  ABD'de ilk bilançolar beklentileri karşılamadı
--  Events tomorrow – Jan. 13: Sri Lakshminarasimha Swamy Temple, Sri Yadugiri Yathiraja Mutt
--  [VIDEO] Lelaki cedera kereta terbabas langgar paip air di Kepala Batas
--  6. Etnospor Forumu Antalya'da gerçekleşecek
--  İsrail ile mücadele sorumluluğu kime ait?
--  Gençlerden dünya liderlerine mektup: Filistin'de soykırımı durdurun
--  Dursun Özbek'ten Ali Koç'a sert cevap! "Samimiysen açıkla"
--  Cinayetten yargılanan 3 sanığa müebbet hapis cezası verildi
--  Cadbury announces huge change to Dairy Milk as milestone reached
--  Genoa, Gilardino: “Out Ekuban e Thorsby. Problema per Malinovskyi”
--  Açık Kulak Seste Yeni Trend: HUAWEI FreeClip C-köprülü Tasarım
--  उद्यमों द्वारा जेनरेटिव AI का उपयोग बढ़ रहा है- नेटस्कोप
--  Calciomercato Torino, anche il Verona frena per Doig: prima il sostituto
--  Bids under PM e-Bus Sewa likely by Jan-end or Feb first week: Puri
--  Girl Scout Cookie season kicks off Saturday — but a box will cost you more
+-  HPE potvrđuje preuzimanje Juniper Networks za 14 milijardi dolara
+-  Ericsson Nikola Tesla u 2023. nastavio s novim zapošljavanjima, istraživanje i razvojem novi proizvoda
+-  Liga MX: ¡BLINDADOS! Revelan la ÚLTIMA CLÁUSULA de Chivas que está DETENIENDO el fichaje de Chicharito Hernández | FICHAJES 2024
+-  ময়মনসিংহে রেললাইন থেকে ক্লিপ খুলে নেওয়ার সময় যুবক আটক
+-  তীব্র শীতে জবুথবু দেশ
+-  גבר נפצע בינוני באירוע אלימות בכפר סבא
+-  বিষখালী নদী থেকে উদ্ধার হওয়া হরিণ অবমুক্ত
+-  Bolsa Família 2024: Veja o calendário de pagamentos do programa social
+-  Conduce ebria en la N-232, en dirección contraria y acaba colisionando
+-  Chiara Ferragni, zyrtarisht nën hetim për mashtrim
+-  Comissão Europeia lança desafio a Taylor Swift para apelar ao voto dos jovens
+-  Politique. Premier gouvernement de Gabriel Attal : mais où sont les femmes?
+-  [1월 13일] 동방정사의 오늘의 운세
+-  Sanwo-Olu sends message to Rhodes-Vivour, Jandor after Supreme Court victory
+-  Canmlwyddiant Plaid Cymru: Leanne Wood yn “freintiedig iawn” o fod wedi cael chwarae rhan
+-  ΚΟΑ: Συνάντηση με τον ΓΣΟ για το Τσίρειο
+-  EaseMyTrip ने मालदीव की बुकिंग अनिश्चितकाल के लिए कैंसिल की, कहा- देश पहले, बिजनेस बाद में
+-  Impopnen 18 meses de prisión preventiva para imputados en Operación Nido
+-  Wirtualna Polska przejęła Wirtualne Media
+-  Amca ile yeğen kavgası faciayla bitti
+-  코레일, "중부내륙선 KTX-이음 ‘판교역’ 연장 후 이용객 3배 증가"
+-  롯데칠성음료, '청하' '백화수복' '레몬진' 등 출고가 17일부터 인하
+-  Renfe se reorganiza para transformar la compañía en el marco del plan estratégico 2028
+-  "HMR 라인업 확대" 아워홈, 프리미엄 간편식 2종 출시
+-  Tubos Reunidos amortiza 107 millones de deuda convertible con una subasta de recompra
+-  Noah Holdings informa de las últimas novedades en los procedimientos judiciales sobre fondos de crédito
+-  국민연금공단, 4대 사회보험 전자증명서 발급 서비스 개시
+-  Los márgenes de las fundiciones de cobre chinas se reducen por la escasez de materia prima
+-  Los ingresos del sector gasista se reducen un 11 % de octubre de 2022 a septiembre de 2023
+-  JP Morgan gana 49.552 millones en 2023, un 32 % más, tras comprar First Republic
+-  Qilian obtiene una prórroga hasta julio para cumplir los requisitos del Nasdaq
+-  La CNMC multa con 80.000 euros a Cemesa Amarres Barcelona y Mooring & Port Services
+-  Los senadores estadounidenses tienen "profundas preocupaciones" por planes de JBS de cotizar en Nueva York
+-  ¿Puede la IA mejorar la investigación forense al encontrar similitudes en las huellas dactilares? Un nuevo estudio desata el debate
+-  Belden amplía sus instalaciones en India con una inversión de 40 millones de dólares
+-  El Papa interrumpe un discurso diciendo que tiene "un poco de bronquitis"
+-  Miles de personas participan en mítines preelectorales en Taiwán; China lanza advertencias
+-  Sainz lidera el Dakar, Loeb gana la sexta etapa y al-Attiyah acaba con sus esperanzas
 -  Jordania culpa a Israel de las tensiones regionales y respalda a Sudáfrica en el caso de "genocidio"
--  सुधा सोसाइटी फ़ाउंडेशन की ओपन स्कूल ने मनाया राष्ट्रीय युवा दिवस
--  Mercato - OM : Un transfert surprise est quasiment bouclé !
--  Six Manchester United players set to return from injury vs Tottenham
--  Küresel ısınma, böcek popülasyonunda artışa sebep oluyor
--  Babacan'ın Diyarbakır programında gazeteciye saldırı
--  Bursa İnegöl'de Yokuşlar Camii'si ibadete açıldı
--  Trendyol Süper Lig'de 21, 22 ve 23'üncü haftanın programı belli oldu
--  Beşevler Mahallesi Muhtarı Erol Yılmazer: En yoğun şikayet trafik ve otopark
--  Bursa'da eşini öldürmüştü! Nedeni belli oldu
--  CHP'nin çağrısını yaptığı mitinge Arzu Çerkezoğlu ve Remzi Çalışkan'da katılıyor
--  Pençe-Kilit şehidi Samet Aslan için tören
--  CHP Genel Başkanı Özgür Özel açıklamalarda bulunuyor
--  Vdes njeriu me fytyrë të deformuar që përqafoi Papa në 2013
--  A pályakezdők 32 százalékos, a mesterpedagógusok csak 21 százalékos béremelésre számíthatnak
--  Muž z ghetta versus jednička proti apartheidu. Dvě právnická esa před soudem v Haagu
--  BREAKING: Supreme Court affirms Francis Nwifuru as Ebonyi State Governor
--  Zahlungen an US-Einlagensicherung schmälern den Gewinn von JPMorgan
--  ARCELORMITTAL : Barclays herhaalt Neutraal advies
--  ARCELORMITTAL: per Barclays il titolo è Neutral
--  ARCELORMITTAL : El Barclays se mantiene neutral
--  COVID-19: नए वैरिएंट JN.1 के मामलों की बढ़ी संख्या, 1,000 के पार पहुंची
--  Sinop’ta korkutan heyelan
--  Malatya'da 6 Şubat depremine ilişkin yeni görüntü ortaya çıktı
+-  5वीं गारंटी के शुभारंभ पर सिद्दारमैया बोले- युवा निधि युवाओं को कौशल, आर्थिक और सामाजिक शक्ति देगी
+-  Cillian Murphy was nervous about riding a horse in 'Oppenheimer: 'I left him in the dust,' says Emily Blunt
+-  Una mujer enferma de cáncer devuelve piedras robadas de Pompeya ante el temor a ser víctima de una "maldición"
+-  Grave accidente en Ibagué: camioneta se estrelló contra 2 casas al salirse de la vía
+-  Meine Wochenschau: Brust oder Hosennaht?
+-  Беларускі Чырвоны Крыж пасьля міжнародных санкцый скарачае дапамогу мігрантам
+-  Aclaran en Cuba sobre normativa para pensionados y jubilados
+-  CES 2024 proves Samsung and LG's best OLED tech isn’t going down in price anytime soon
+-  MEDIA ALERT: Equinix Sets Conference Call for Fourth-Quarter and Full- Year Results
+-  Kommentar: Ist MP Kretschmer jetzt auch Wirtschaftswissenschaftler?
+-  Mar Vermelho. Rota Vasco da Gama está a aumentar preços das exportações nacionais
