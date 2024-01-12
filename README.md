@@ -1,51 +1,11 @@
 # Latest News
--  투르크 인문학 집대성한 '투르크학 인문 대사전' 발간
--  안양시, 국・도비 확보해 전통시장・상점가 활성화 ‘총력’
--  ‘미래에셋코어테크 펀드’, 설정액 8,000억원 돌파
--  2024년 청년 디딤돌 2배 적금 지원사업 대상자 모집
--  현대차, 도쿄서 아이오닉5 N 퍼포먼스 콘셉트 모델 첫 공개
--  아워홈, 프리미엄 간편식 신제품 2종 출시…"HMR 라인업 지속 확대"
--  Firari FETÖ hükümlüsü yakalandı
--  Tekirdağ'da çukura düşen otomobil sürücüsü tepki gösterdi: 4 aydır çukur hep aynı
--  Tek rakibi Bayern Münih! Fenerbahçe Avrupa'da da zirvede
--  Abartı egzozlu araç kullanan kişiye para cezası
--  Vergi kaybını önlemek için elektronik ödemeler yakın takibe alındı
--  Fernando Santos'un ilk rakibi Fatih Karagümrük
--  Candan kardeşler soruşturmasında yeni gelişme
--  Fernando Santos'un ilk rakibi Fatih Karagümrük
--  Türk sivil toplumundan Japonya'daki depremzedelere yardım eli
--  Hatayspor'un rakibi Pendikspor
--  SA cites urgency in shielding Gazans from Israel: 'Genocide is never the answer'
--  SACP regrets supporting Zuma, lambasts him as 'counter-revolutionary'
--  CoCT Health Dept raises concerns about drop in number of child vaccinations
--  Israel to respond to SA's arguments in ICJ genocide case
--  Treasury weighing options on calls for Transnet cash injection - Godongwana
--  Bundan böyle kadroda 12 sahada serbest...
--  Trabzonspor'a Paul Onuachu şoku!
--  İran'dan savaş açıklaması
--  Serenay Sarıkaya'nın ödül sevinci!
--  Ehliyetsiz sürücü kaza yaptı
--  3,9 milyar liralık uyuşmazlık karara bağlandı!
--  Uzman doktor uyardı: Aşırı sıcak içecekler gırtlak kanserine yol açıyor
--  Bülent Uygun: Penaltımsı mı?
--  이재명 측 “당분간 대장동 재판 출석 어렵다”…法 “그럼 끝이 없다”
--  Live Updates: Supreme Court Rules On Governorship Election Disputes In Seven States
--  윤재옥 “홍콩 ELS 판매한 은행들, 윤리적 책임 다했나”
--  В Верховной Раде опровергли мобилизацию инвалидов
--  Sport | Striking Swallows hit with beefy R1m fine for PSL no-shows, but avoid nastier sanctions
--  Realizarán este domingo torneo de ciclismo IX Vuelta al Lago
--  Anggota Dewan Duga Pemasangan Stiker Pj Heru di Halte Transjakarta Terkait Pilkada
--  부산도시공사, 부산시 산하기관 중 하반기 재정집행률 1위
--  El Supremo valida el ERE de Duro Felguera porque concurría causa económica y se negoció "de buena fe"
--  Bu halini ilk kez göreceksiniz...
--  Melis Sandal'dan romantik kutlama
--  기업은행, 2024년 상반기 ‘IBK창공’ 혁신기업 육성 킥오프
--  서지연 부산시의원, 가덕도신공항 글로벌 물류부문 비전 제시·현안 논의
--  Hunter Biden plädiert auf nicht schuldig
--  Matthäus zu Sancho-Wechsel: BVB-Ruck möglich
--  Chinas Exporte erholen sich nach schwierigem Jahr
--  Iran says US-Britain attack on Houthis will fuel instability in region
--  To što su propale Kreumove tvrtke, ne znači da je propao i on. Pogledajte što sada radi njegova samozatajna sestra...
--  Lead, toxic chemicals and more asbestos: What’s under Rozelle Parklands
--  Lead, toxic chemicals and more asbestos: What’s under Rozelle Parklands
--  로드컴플릿, '레전드 오브 슬라임' 글로벌 유통권 확보
+-  Irã condena ataques dos EUA e do Reino Unido contra o Iêmen
+-  Conselho de Segurança da ONU debate sobre paz e segurança na Colômbia
+-  Eurostoxx futures +0.8% in early European trading
+-  자격증 취득교육 40만원까지 지원
+-  Makinde appoints Salawu Poly Ibadan’s new Deputy Rector
+-  Smrk zachránil život Američance, která se zřítila ze svahu. V mrazu se ho držela osm hodin
+-  F1: Γνωρίζουμε τον Pierre Gasly
+-  G.B. : +0,3% m/m produzione industriale novembre (-0,1% a/a)
+-  G.B. : produzione manifatturiera ottobre rivista a -1,2% m/m, +0,2% a/a
+-  Nuk ndalen rebelët Houthi: Do të vazhdojmë të godasim anijet e lidhura me Izraelin në Detin e Kuq
