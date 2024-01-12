@@ -1,51 +1,51 @@
 # Latest News
--  Borges de Oliveira reforça participação na Greenvolt em 3% e supera fasquia dos 10%
--  Taas tuli turpaan - SM-liigan kriisiseuran konttaaminen jatkui karmealla tavalla
--  Two London Knights in CHL midterm NHL scouting rankings
--  JPMorgan Announces Likelihood of Ethereum Spot ETF Approval in May
--  ‘The Wiz’ reborn: New take on classic musical stops in SF en route to Broadway
--  Newcastle - Man City: Sức mạnh nhà vô địch
--  كيف علق جمهور الأهلي على صفقة عمر كمال؟
--  جولة تفقدية لمنتخب مصر في استاد مباريات المجموعة الثانية
--  غدا.. على طاولة "الموقف" ماذا تحمل زيارة وزير الخارجية الأمريكي للسعودية والمنطقة؟
--  Rotes Meer / Huthi-Miliz droht nach Angriffen mit Vergeltung
--  Sant Kabir Nagar News: नहीं सुलझा विवाद, बैरंग लौटे एसडीएम और सीओ
--  Mandi News: ग्राफ्टिंग के बाद फिर फल देंगे आम के 60 साल पुराने पेड़
--  Mandi News: प्राकृतिक स्रोतों में 50 फीसदी घटा जल, सप्लाई में कटौती शुरू
--  Haryana: पूर्व विधायक के फार्म हाउस पर मिले पांच विदेशी असलहों में दो ही दिलबाग के नाम
--  Pilibhit News: पूरनपुर में माघी पर्व के उपलक्ष्य में निकला गया नगर कीर्तन
--  Taiwan / China warnt vor Sieg von Kandidat der Regierungspartei
--  Hardoi News: धूप भी नहीं दे पा रही ठंड से राहत
--  Éditorial : Macron, Attal et le Salon vert
--  Sultanpur News: शहर में अब फुटपाथ पर नहीं लगने पाएंगी दुकानें
--  ملخص الأحداث في الفاو .. الاستعدادت كبيرة والمعنويات تعانق السماء
--  Dan uživo (12.01.2024)
--  I’ve taken on the new Gladiators games – just lifting the battle sticks wiped me out – it’s SAVAGE, says Sun TV Expert
--  UOL NEWS
--  Moradores se arriscam para atravessar rio após problema em balsa no Juruá
--  Insecurity: Gani Adams, security experts, harp on collaboration amongst security agencies
--  Requisitos para o benefício Auxílio-Doença concedido pelo INSS
--  Франция интегрира ракети Storm Shadow в украинските Су-24
--  «ΒΟΜΒΑ» στο Δασάκι… Θρίαμβος του Εθνικού απέναντι στο ΑΠΟΕΛ
--  Oeiras vai disponibilizar casas para médicos e professores com rendas de 150 euros
--  KI überführt Lenker - SP-Frau fordert Handy-Blitzer in der Schweiz
--  Atacan vehículo de exgobernador venezolano que iba a acto de apoyo a María Corina Machado
--  Controlan uno de los motines carcelarios en Ecuador, quedan seis activos con 170 rehenes
--  Las pillan con droga en La Chorrera
--  ANC banking on gala dinner to help help replenish coffers
--  “다치기 어려운 곳, 괴상한 부상이야” 뉴캐슬 MF, 공 차다가 균형 잃어 최소 6주간 이탈
--  Robots con IA, televisiones transparentes o gafas para oír mejor, novedades de CES 2024
--  مبابي يطالب براتب فلكي من ليفربول وريال مدريد
--  Monsinjur Hector Scerri jinħatar membru tal-Kummissjoni Internazzjonali Konġunta għad-Djalogu Teoloġiku
--  Remaniement. Les anciens tacles de Rachida Dati envers la Macronie vont-ils lui jouer des tours ?
--  Star Trek Is Quite Different in the World of For All Mankind
--  Nem érettségizhetnek pedagógiából a pedagógia szakos diákok
--  Stotine hiljada ljudi na protestu u Jemenu: „Čekamo dan kada ćemo voditi rat sa Amerikom“
--  Hightown Season 3 Trailer Sets Starz Release Date for Final Installment
--  إسرائيل تتوصل إلى اتفاق مع قطر للسماح بإيصال أدوية للرهائن المحتجزين لدى حماس في غزة
--  Elfrink: 'PSV'er is vastberaden om na Exelsior-thuis te vertrekken uit Eindhoven'
--  N.C. quietly stripped protections for Jockey’s Ridge State Park. Coastal residents are fighting back.
--  ‘People were calling like crazy’: Metro Van towing companies in overdrive amid cold snap
--  Christian Ringnes har blitt hacket
--  Relawan Anies dan Ganjar Kompak Pindah Dukungan ke Prabowo-Gibran
--  Lewandowski escolhe chefe de gabinete e começa a montar equipe de ministério
+-  Dezenformasyonla Mücadele Merkezi: Manipülatif paylaşımlarına itibar etmeyiniz
+-  عباس للسفير السديري : الملك سلمان هو الرئيس الفعلي لفلسطين - فيديو
+-  تبادل إطلاق نار بين الاحتلال وفلسطيني بمحيط مستوطنة أدورا
+-  جيش الاحتلال : استشهاد 3 فلسطينيين في مستوطنة أدورا
+-  Vast network of lost ancient cities discovered in the Amazon
+-  Im Bulldog auf die Arbeit
+-  Parkplätze bei früherem Impfzentrum sind derzeit eine »Grauzone«
+-  Biosphärenregion: Wie geht es weiter?
+-  Faschingsdeko per Traktor angeliefert
+-  Verkehr in Köln: KVB-Bahn bleibt auf Schiene liegen – mehrere Linien umgeleitet
+-  Warnung vor Glatteis in Aschaffenburg und Umgebung
+-  En riesgo partido de Rayados por Alerta Ambiental
+-  El turismo ruso a Cuba impone un récord: ¿por qué no es una buena noticia para La Habana?
+-  Συνελήφθη ο YouTuber των Βρυξελλών που πετούσε περιττώματα σκύλων στα κεφάλια επιβατών του μετρό (video)
+-  Pençe-Kilit Harekatı bölgesinde 5 asker şehit oldu, 8 asker yaralandı
+-  إنذار 479 مدرسا بالفصل من الوظيفة العمومية
+-  NRW: Satte Preiserhöhung in Restaurant – „Sowas von lächerlich“
+-  Breivik je stále nebezpečný, mal by zostať na samotke, tvrdí nórska vláda
+-  قراءة أولية للضربات الأمريكية ضد مواقع حوثية
+-  The original sentence is not provided, so I cannot rewrite it as a SEO friendly short heading. Can you please provide the original sentence?
+-  Festejan Día del Periodista en Reynosa
+-  Sulmet ndaj grupimit Huth në Lindjen e Mesme, Kosova i del në krah SHBA-së
+-  Razzia sur les billets, changement de stade… c’est toujours la folie Messi en MLS
+-  FG says Abuja-Kano dual carriageway will be delivered in 2026
+-  Smite 2: A New Era of Battle
+-  Marinić-Kragić: Osmi ili četvrti je isto, a Bijač je s 33 još mladić
+-  Tinubu appoints Ali Nuhu, 10 others to head FG agencies
+-  Sudionik Eurokupa poražen u Splitu, “double-double” hrvatskog reprezentativca
+-  VIDEO: Kakav kiks golmana, nije znao što ga je snašlo!
+-  Aposentadoria do INSS pode ser possível ser antecipada
+-  Tesla muss Produktion in deutscher „Gigafactory“ stoppen
+-  Uncovering the link to combating muscle atrophy caused by aging and immobility
+-  Digjet shtëpia në Pogradec, familja me 5 anëtarë mbetet në “qiell të hapur”
+-  Jack Grealish driven to training by Sasha Attwood in new Aston Martin DBX as Man City ace adds to incredible collection
+-  Εθνικός Αχνας 2-1 ΑΠΟΕΛ (ΣΤΙΓΜΙΟΤΥΠΑ)
+-  MSB'den acı haber: Pençe-Kilit bölgesinde 5 askerimiz şehit oldu
+-  FED faiz kararı ne zaman, saat kaçta açıklanacak? FED toplantısı hangi tarihte?
+-  Britanski premijer u posjeti Kijevu, obećao tri milijarde za vojsku
+-  “Juan Escobar pidió su salida”, Martín Anselmi confirmó que el paraguayo tomó la decisión
+-  Okugawa im Anflug, Jatta und Dompé stark – doch ein HSV-Problem bleibt
+-  Abortion rights across the US: we track where laws stand in every state
+-  Cármen Lúcia suspende concursos da PM de Santa Catarina
+-  Министърът на иновациите и растежа Милена Стойчева: Визията е инвестицията в хората, за да имаме устрем
+-  Michalovce otočili zápas a zvíťazili doma nad Banskou Bystricou 6:4
+-  Αυτός είναι ο νέος Πρόεδρος του ΚΟΑ: Οι «τηλεκατευθυνόμενες λούλλες του ΑΚΕΛ» και ότι «φοβάστε θα το πάθετε» (pics)
+-  Prokuratura Krajowa nie zgadza się z decyzją Bodnara. „Bezprawne działanie”
+-  Colaboración estratégica entre la Secretaría de Turismo y la UAT
+-  Israel, Hamas in talks to deliver medicine to hostages
+-  Γιώργος Χριστοδούλου: «Δεν βλέπω τα φύλα, δεν ξεχωρίζω το ανδρικό από το γυναικείο παιχνίδι»
+-  المانيا: مصنع تيسلا يعلق الإنتاج بسبب نقص المكونات جراء تعثر الملاحة في البحر الأحمر
