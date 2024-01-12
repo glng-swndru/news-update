@@ -1,51 +1,11 @@
 # Latest News
--  NAMTECH Partners With Cisco To Advance Cybersecurity Education, Training For Manufacturing Sector In India
--  Ukraine, Britain Sign Security Agreement In Kyiv
--  Cobre sube, pero ganancias se ven frenadas por los datos de préstamos chinos
--  BlackRock aumenta su beneficio un 6 % en 2023, hasta los 5.020 millones de euros
--  1 milhão de pessoas esperando por benefícios no INSS
--  NFL Wild-Card Picks Against the Spread
--  De vendedora ambulante a dueña de seis floristerías en EEUU: la inspiradora historia de la hondureña Julie Blanco
--  Darío Barassi y Wanda Nara serán la pareja del año
--  Are YOU team hot or cold? Survey reveals the right way to enjoy Weetabix
--  Alle 30 Kandidaten! Diese Damen wollen bei Sebastian und Dennis landen
--  ‘ডামি’ সংসদ ভেঙে নতুন নির্বাচনের দাবি গণ অধিকার পরিষদের
--  12 Best Low-Sugar Desserts on Grocery Shelves
--  Bauern blockieren Brücke – Ärzte kommen nicht ins Krankenhaus
--  स्वामी विवेकानंद का जीवन चरित्र युवाओं के लिए प्रेरणा : श्रीकांत
--  Por las inundaciones, aparecen codiciados peces en las acequias correntinas
--  How to get a ‘gorgeous’ £86 Jo Malone perfume for £18 that’ll last all day
--  Zaskakujący spadek cen producentów w USA
--  Resort klimatu ogłosił nabory na szefów GIOŚ i GDOŚ
--  Bodnar: powołałem pełnomocnika szefa MS ds. ochrony praw konsumenta; zajmie się kredytami frankowymi
--  Rekordowe wyniki roczne JP Morgan. Największe przychody w historii banku
--  OTKRIVANjE SPOMEN PLOČE: Tetovskim mučenicima u Vladičinom Hanu
--  MFiPR: Konrad Wojnarowski powołany na stanowisko podsekretarza stanu w ministerstwie funduszy
--  เหตุผลสำคัญว่าทำไมแฮชเรตของ Bitcoin (BTC) ถึงจุดสูงสุดอย่างที่ไม่เคยมีมาก่อน โดย U.Today
--  Brunei's Prince Abdul Mateen weds fiancee in lavish 10-day ceremony
--  Vukanović ekskluzivno objavio kako bi trebao izgledati famozni Izborni zakon RS
--  Stock market today: Stocks drift near records after a cooler update on inflation, as oil prices jump
--  Recipe: Mary Berry’s banana bread has added ‘crunch and nuttiness’
--  Citi plans to cut about 20,000 jobs as part of global overhaul
--  Pakistan, saldırı hazırlığındaki teröristleri yakalamayı başardı! İki bombacı kıskıvrak yakalandı
--  Wie viel die Landwirte im Landkreis Rotenburg verdienen
--  الدبيبة: الاهتمام بالمواطن هو هدف الحكومة وليس رفع الدعم عنه
--  Yalı Çapkını yeni bölüm TEK PARÇA FULL HD İZLE, Yalı Çapkını 53. bölüm izleme linki
--  Raketen und Drohnen für die Ukraine verschollen: Pentagon vermisst Waffen mit Milliarden-Wert
--  "Rotondità sospette": Andrea Delogu, una replica secca | Guarda
--  EMERI POBEDIO KONKURENCIJU: Trener Aston Vile najbolji u decembru
--  OD PONEDELjKA U KLUPAMA: Završava se zimski raspust za školarce u Vojvodini
--  Marocchi: «Allegri su Dragusin ha sbagliato, gli ha preferito Alex Sandro»
--  Fiesta de la Confluencia 2024 en Neuquén: hoy es el último día de inscripción para las bandas locales
--  भारी भरकम लैपटॉप स्टैंड कैरी करने की नहीं जरूरत, ये गैजेट करेगा काम
--  Mohamed Ali Fenira révèle l’avancement des travaux de la route périphérique à Grombalia (Vidéo)
--  Sicht einer Betroffenen Seit Jahren leidet Rosemarie unter den schmerzhaften Folgen ihrer Gürtelrose
--  Nakon liberalizacije viza 28 odsto građana Kosova će emigrirati, najviše u Nemačku
--  이효리, 라이즈 원빈 비주얼에 감탄 "공항 사진 찾아봐…원빈이란 이름은 다 잘생겼나 보다" [레드카펫]
--  [마흔엔튜닝] 기타 치는 나의 얼굴
--  Transition au Gabon:Barro Chambrier entend apporter sa pierre à l’édifice
--  Disneyland Paris kicks off Symphony of Colours programme
--  Кошмарът за BLEED е факт
--  Drama na ledenom Lodašu! Prevnula se amfibija s 5 osoba
--  Без финали за борците ни в днешния ден на рейтинговия турнир в Загреб
--  राजन विशाल ने किया अल्पसंख्यक मामलात विभाग के शासन सचिव पद का कार्यभार ग्रहण
+-  김필 "슬픈 곡이 잘 어울리는 이유? 어렸을 때부터 슬픈 톤이었다" [레드카펫]
+-  New biography tells ‘uncommon love story’ of Infosys co-founder
+-  Miloš Biković u trećoj sezoni „Belog lotosa“, snimanje na Tajlandu
+-  Monza, Palladino e l'idea Kean: "Non chiedetemi di mercato, lo fa Galliani"
+-  Derthona Basket: nominato il nuovo Consiglio di Amministrazione
+-  Valentino Rossi e la 100 km al ranch di Tavullia: "Ci aspetta un gran 2024"
+-  אקס הפועל ת"א הלהיט את פולין: "לא מקצוען, טיפוס בעייתי"
+-  מנכ"ל ניוקאסל: "נמכור שחקני מפתח". גימראייש יגיע לפ.ס.ז'?
+-  Rappresentative Sperimentali: mercoledì prossimo amichevole fra U16 e U16
+-  Een Huis Vol-kijkers onder indruk van hardlopende Gerdien
