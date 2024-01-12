@@ -1,11 +1,11 @@
 # Latest News
--  Meksiko vraća borbe s bikovima
--  Citigroup to cut 20,000 jobs by 2026 after $1.8 billion loss
--  What's next in the Warren vs. DeSantis case
--  Comisión Permanente declara independientes a diputados de Semilla y bloquea aspiración de integrar Junta Directiva del Congreso
--  El lamento de Francescoli por la negativa de Borré, su charla con Borja y el elogio a una joya de River Plate: “No me gusta, pero lo tengo que decir”
--  Flybondi aseguró que por no poder hacer pagos en dólares al exterior más de 1.300 pasajeros por día podría quedarse sin volar
--  "Hakkari'nin Çukurca ilçesinde çatışma sesleri yükseliyor" iddiasına yalanlama
--  Brasil discute criar adidância da PF no Equador
--  Karla Tarazona elogia talento de su hijo Valentino y lo compara con el de Christian Domínguez: “Él sí canta”
--  Beşiktaş'a kötü haber! Vincent Aboubakar sakatlandı!
+-  İngiltere’nin üç büyük tur operatörü 2024 program ve hedefleri
+-  Son dakika On Numara çekilişi sonuçları belli oldu! 12 Ocak 2024 On Numara bilet sonucu sorgulama ekranı!
+-  قوات الاحـتلال تطلق قنابل مضيئة في سماء مخيم #المغازي وسط قطاع غزة
+-  الصور يناقش نتائج تقييم عدالة وكفاءة إجراءات هيئة النيابة العامة خلال سنة 2023
+-  What is an assumable mortgage? How to assume a mortgage
+-  Holivudski glumac prošetao u šlapama, pa urinirao na ulici: 'Što se to njemu dogodilo...?'
+-  لجنة الأهلة تعلن السبت فاتح شهر رجب 1445
+-  Valencia usará la tecnología de Bitcoin para “asegurar transparencia” en los trámites públicos
+-  スクリブナー思想史大事典 きんし~こつそ - thenewsunlimited.com
+-  スクリブナー思想史大事典 いめじ~ぎれい - thenewsunlimited.com
