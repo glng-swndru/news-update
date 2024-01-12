@@ -1,51 +1,11 @@
 # Latest News
--  Husiler: ABD ve İngiltere'nin tüm çıkarları güçlerimiz için meşru hedeflerdir
--  Cumhurbaşkanı Erdoğan'dan şehit ailelerine başsağlığı mesajı
--  Ali Erbaş, bıçaklı saldırıda yaralanan Fatih Camisi imamı Galip Usta'yı ziyaret etti
--  MEB duyurdu! Son hafta ders işlenmeyecek
--  Neemias Queta consegue quatro pontos na derrota dos Celtics com os Bucks
--  Not all carbon-capture projects pay off for the climate – we mapped the pros and cons of each and found clear winners and losers
--  افتتاح الطبعة الثالثة للمعرض الدولي للترقية العقارية والبناء العصري والديكور بالجزائر العاصمة
--  Bauern-Protest in NRW: Die Demos gehen weiter ++ Wütende Landwirte blockieren Verkehr ++ HIER musst du mit Stau rechnen
--  Sinopsis Knight Flower, Drakor Comeback Honey Lee yang Tayang 13 Januari 2024
--  Seloroh Kepala SKK Migas soal Blok Masela: Namanya Proyek Abadi, Nggak Selesai-selesai
--  Merr flakë automjeti i parkuar në Pogradec, dyshimet e para
--  Tesla, Almanya'daki Fabrikasında Üretimi Durdurdu: Türkiye'deki Model Y Siparişleri Gecikebilir!
--  Ini Oleh-oleh yang Dibawa Jokowi saat Bertemu Marcos Jr
--  Bitcoin ETF'lerine Açılır Açılmaz Kaç Para Yatırıldığı Belli Oldu: İşte Dudak Uçuklatan Meblağ!
--  Blitzeis im Kreis Paderborn: Mehr als 70 Unfälle im gesamten Kreis
--  Broadcaster Annie Nightingale dies aged 83: BBC Radio 1’s first female DJ passes away at her home ‘after a short illness’ as family pay tribute to ‘pioneer, trailblazer and inspiration to many’
--  El CEO de Ryanair informa a Sánchez de su plan para invertir 5.000 millones en España
--  Jodie Foster regressa à TV 49 anos depois
--  "Teste do pezinho" permitiu identificar 150 casos de doenças raras em 2023
--  Citypress | WATCH: Israel accuses SA of ‘vilifying and demonising’ its right to self-defence
--  BE propõe reduzir IVA da eletricidade para 6% em todas as faturas
--  China pronta para destruir qualquer tentativa de independência de Taiwan
--  Defesa israelita nega em tribunal intenção de destruir povo palestiniano
--  Demand for commodities, raw materials and components at its softest in nearly a year, signaling persistent weakness in the global economy: GEP Global Supply Chain Volatility Index
--  Procura nos transportes coletivos urbanos aumentou 21% em 2023
--  Personel taşıyan midibüs ile kamyonetin çarpıştığı feci kazada 9 kişi yaralandı
--  Oyuncu Erdal Beşikçioğlu, CHP Ankara İl Başkanlığını ziyaret etti
--  Avrupa'ya kaçmaya hazırlanan terörist yakalandı!
--  Başkan Ramazan Erkoyuncu: Basın, toplumun gözü, kulağı ve sesi konumundadır
--  Konyaspor Basket'e göğüs sponsoru
--  Yabancı turistlerin Ayasofya'ya girişi ücreti 25 euro olacak
--  UN deplores Israel's refusal to grant access to Gaza
--  Affirmation as governor victory for rule of law, Lagosians – Sanwo-Olu
--  Natalie Portman says method acting is a 'luxury women can't afford' – but my research shows how it can empower them
--  Ketua MPR RI Bamsoet Dorong Peningkatan Kualitas Pendidikan Tinggi Indonesia
--  Prince Harry’s Living Legends of Aviation Awards comes across as ‘needy’ and ‘slightly pathetic’, royal expert tells PALACE CONFIDENTIAL
--  Newcastle apresenta déficit financeiro e pode negociar Bruno Guimarães
--  TOKS autobusų parke Vilniuje žuvo žmogus
--  Annalena Baerbock: Bundesregierung unterstützt „politisch“ Militäreinsatz gegen Houthis
--  В Таиланде отменили два концерта иноагента Руслана Белого
--  12 ألفا فلسطينيا يؤدون صلاة الجمعة في المسجد الأقصى
--  अपराधलाई आड
--  Media: Miarka się przebrała. Ultimatum dla Jose Mourinho
--  Media: Miarka się przebrała. Ultimatum dla Jose Mourinho
--  India's IIP Grows By 2.4% In November 2023
--  Value Of Assets Deplete When There Is Delay In IBC Proceeding: RBI Guv
--  HCLTech Posts Healthy Q3 FY24 Results With 6% Rise In Net Profit
--  Retail Inflation Rises 4-month High At 5.69% In December
--  Continúan las condiciones secas en la mayor parte del territorio hondureño
--  Gazze'de can kaybı 23 bin 708'e yükseldi
+-  Kínai elektromos autógyártókat vizsgál az Európai Bizottság, köztük van a Szegedre készülő BYD is
+-  A minute with Nicos Georgiou Professional Singer
+-  Commissioner praises sustainable tourism initiative
+-  Cumhurbaşkanı Yardımcısı Cevdet Yılmaz'dan emekli maaşlarına zam açıklaması
+-  Togg KKTC yollarında
+-  Marquez: "Non vinco una gara da due anni...". Il 20 presentazione al Cocoricò
+-  Instan al uso de mascarilla y a vacunarse
+-  IGNOU introduces MA in Population and Family Health Studies; Apply at ignou.ac.in
+-  Папуашвили об отчете Human Rights Watch: «Основан на оценках НПО»
+-  В Шахтах нашли мертвым 17-летнего юношу
