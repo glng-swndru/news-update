@@ -1,51 +1,51 @@
 # Latest News
--  Corte Suprema EEUU revisará leyes antiacampada que afectan a personas sin hogar
--  Demandan a Repsol por 900 millones de euros en Países Bajos por el derrame en Perú
--  Las acciones de PNC Financial caen por segundo día consecutivo, con una capitalización bursátil de 61.810 millones de dólares
--  DBS y Westpac mejoran la banca digital con IA y alianzas tecnológicas
--  [여성과 법] 새해에 시행되는 '보호출산제'
--  가평군 '가평 복지톡' 운영 “우리동네 어려운 이웃, 함께 찾아주세요!”
--  Bom petrol: Jangan kaitkan Pas, PN
--  In photos: Saskatoon flour mill blaze under control as firefighters brave extreme cold
--  You Can Now Report LA Hate Incidents Online
--  Argentina: Sindicatos multados por organizar manifestaciones
--  Škandál v škole! Vydatá učiteľka sexuálne zneužila žiaka: Ostatné deti zatiaľ strážili, či niekto nejde
--  Najsexi chlap sveta ukázal rodinu: Sexi manželka a... Deti by sa v modelingu nestratili!
--  “Deben hasta despedirlo” – El Universo WWE reacciona a posibilidad de Omos siendo quien destrone a Roman Reigns en su regreso
--  Hôm nay, Tuổi Trẻ tổ chức 3 chương trình tư vấn tuyển sinh - hướng nghiệp
--  Thời tiết hôm nay 13-1: Nam Bộ nắng nóng, nhiều nơi oi bức
--  Tin tức sáng 13-1: Nhiều tỉnh đề nghị cấp gạo cứu đói giáp hạt; Giá thuê mặt bằng 'đất vàng' tăng
--  ¿Quieres aumentar tu masa muscular? Esta es la mejor hora para realizar tus entrenamientos y ganar fuerza
--  Son Dakika... MSB duyurdu: 29 hedef imha edildi
--  Auto derribó un poste y dejó sin energía eléctrica a varias urbanizaciones de Puno
--  ¿Puede una app salvar tu relación de pareja?
--  طرح أغنية "أنا وإبني" .. من فيلم "الإسكندراني " غناء عبد الباسط حمودة
--  The Supreme Court will decide what cities can do about tent encampments
--  Homicide squad probe Doncaster death
--  Homicide squad probe Doncaster death
--  Глава минобороны Британии призвал Иран заставить хуситов "уняться"
--  Syarat Pecah KK dan Prosedur Cetak Kartu Keluarga Baru
--  L'équipage de la troisième Ferrari 499P confirmé
--  ¿Cuáles son las zonas libres de droga en Valledupar y cómo se sancionará su incumplimiento?
--  NEW GUIDE: Adafruit 3.5″ Capacitive Touch TFT FeatherWing #AdafruitLearningSystem #Adafruit @adafruit
--  Sambutan PDIP Usai Anies dan Prabowo Puji Megawati
--  I tried on beautiful pastel knit material dress from Dunnes Stores for €40 – it’s so warm & perfect for spring time
--  Catanzaro, Vivarini: "Bisogna fare una statua a questi giocatori. Vittoria determinante"
--  דיווח ב"ניו יורק טיימס": ה-CIA מספק לישראל מידע מודיעיני על בכירי חמאס
--  Thể thao TP HCM - thời oanh liệt nay còn đâu! (*): Bài học định hướng của thể thao
--  PM Dr Hun Manet sacks Kep mayor over alleged corruption
--  Running a Pi Under Water #piday #raspberrypi @Raspberry_Pi
--  Last-minute winner gives Alaves 3-2 win over Sevilla
--  Woman robbed at gunpoint in front of her young children in Oakland
--  Woman robbed at gunpoint in front of her young children in Oakland
--  Локо продаде и Алфа Конте в Азърбайджан
--  NBA Picks January 15: Dallas hosts New Orleans in Western Conference battle
--  Ana Clara Lima exibe marquinha de sol ao usar fio-dental para iniciar o fim de semana
--  España se jugará el pase a la final con Italia
--  مصدر مطلع ولد داداه خرج من مستشفى في باريس اليوم
--  DraftKings Promo Code: How to Turn $5 NFL Bet Into $200 Instant Bonus
--  Remo: pelotense Piedro Tuchtenhagen se classifica para Pré-Olímpico
--  Jelang Laga Timnas Indonesia vs Irak di Piala Asia 2023, Begini Kabar Terkini Pratama Arhan
--  عمال مستشفى كيهيدي يدخلون في إضراب مفتوح عن العمل
--  Sand Land Video Game US Release Date Set
--  Was geschah am 13. Januar?
+-  Pide Xóchitl investigar si en Tren Maya hubo 'moches'
+-  Uruguay ocupa el séptimo puesto en la región en el ranking de inflación
+-  Extirpan del abdomen de una mujer un tumor de más de 50 kilos
+-  Joelinton sofre lesão e deve desfalcar Newcastle por seis semanas
+-  Irak ve Suriye'nin kuzeyine hava harekatı: 29 hedef imha edildi
+-  AXA League an der RTL Live Arena: De Spëtzematch Käerjeng géint Diddeleng um 18 Auer am Livestream
+-  고백 거절하자 성폭행한 30대男…데이트폭력 상습범이었다
+-  Más de 14 mil toneladas de asfalto serán aplicadas en vías de Táchira
+-  Preview: Vitesse vs. FC Utrecht - prediction, team news, lineups
+-  [대통령실, 이태원특별법 거부권 가닥…‘쌍특검’과 온도차 이유는[용산실록]
+-  [‘미래’로 수렴되는 야권발 신당…‘제3지대’ 움직임 빨라진다
+-  [철수한 휴대폰 사업이 복덩이? LG전자 3년째 매출 신기록 비결은 [비즈360]
+-  [커다란 눈망울에 짧은 다리…‘파란 두꺼비’ 비율의 비밀 [어디서 왔니?]
+-  [유리를 40번 깎았다? ‘시원한 청량감’ 카리나도 반한 이 맥주 [나는 술로]
+-  [유리를 40번 깎았다? ‘시원한 청량감’ 카리나도 반한 이 맥주 [나는 술로]
+-  [[헤럴드 운세] 2024년 01월 13일 오늘의 운세로 만드는 완벽한 하루, '오운완'
+-  ['보복 여행' 러시에 에어버스 '활짝'…항공기 수주 사상 최대
+-  [문화예술계, 이선균 수사 진상규명 촉구했지만…추가조사는 ‘글쎄’
+-  [“한국 사고방식 변했다”…개 식용 금지에 시민·외신 ‘환영’
+-  [거대양당보다 빠르게…‘선 공약-후 창당’ 나선 개혁신당[이런정치]
+-  [AI 패권 두고 ‘으르렁’대던 美中, 두 차례 ‘비밀회담’ 가져
+-  Iran kutuk serangan AS, UK di Yaman
+-  Rachel Sheherazade diz que jornalismo do SBT é 'fraco e pequeno' e que canal não apostou nela
+-  Milli Savunma Bakanlığı acı haberi duyurdu: 9 askerimiz şehit oldu, 4 askerimiz yaralandı
+-  Цветан Соколов с нова победа в Русия, втори национал при Пламен Константинов
+-  Linda Halimi përfundon aventurën në Big Brother Vip Kosova
+-  投票就在今天！電視台主播全力備戰 張雅琴進棚前只喝「這一味」
+-  Minnesota is a top destination for migrants accepting free tickets to leave New York
+-  Klamath River begins to flow again with dam removal project
+-  For the first time, an NFL playoff game will stream exclusively on Peacock
+-  Amnesty international sokong perbicaraan ICJ terhadap Israel
+-  ارتفاع عجز الموازنة الأمريكية 52% في ديسمبر
+-  Portimonense volta às vitórias frente ao Farense e foge à zona vermelha
+-  أسعار العملات.. تراجع الإسترليني مقابل الدولار بنسبة 0.24%
+-  جنوب أفريقيا تكشف أحدث تطورات محاكمة الاحتلال بجرائم الإبادة
+-  "تحلية المياه" وجامعة "المؤسس" توقعان اتفاقية تعاون.. اعرف أهدافها
+-  Somalyje kovotojai užgrobė JT sraigtasparnį su ukrainiečiais. Kas žinoma
+-  [ŽT] „Amžinai įžūlūs Rusijos priešai.“ Medvedevas britams grasina karu (Foto)
+-  Exército israelita "neutraliza" três atacantes de patrulha na Cisjordânia
+-  'White gold' on ice as mine faces major project expiry
+-  Turkiye pindahkan 85 lagi pesakit
+-  Nanaimo man found not criminally responsible for woman's murder
+-  Tras dato de inflación, Economía sale a ofrecer al mercado tres bonos que ajustan por CER
+-  Cape Verde kini bebas malaria
+-  Leonel critica a Abinader por ”presentar proyecto sin sentido de racionalidad”
+-  Homem mata gerente de loja por não conseguir vaga de emprego no Brasil
+-  Vẫn khóc khi nhớ lại 20 năm trước bị bắt cóc bên kia biên giới
+-  JCE inicia impresión de más de 17 millones boletas para elecciones municipales
+-  Η Ουάσινγκτον επιβάλλει κυρώσεις σε δύο εταιρείες θαλασσίων μεταφορών για την οικονομική τους στήριξη στους Χούθι
+-  Şehit olan askerlerimizin isimleri ve memleketleri
