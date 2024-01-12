@@ -1,51 +1,51 @@
 # Latest News
--  Fati yt/ Horoskopi 13 janar 2024
--  තෛපොං­ගල් දා හින්දු රැඳ­වූ­වන් බලන්න අව­සර
--  Анадолу Ефес размаза един от лидерите в Евролигата по баскетбол
--  Late Queen ‘wouldn’t have been aware of anything during final moments’
--  AK Parti'den şehitler için başsağlığı mesajı
--  KKTC'den Türkiye'ye taziye mesajı: Milletimizin başı sağ olsun
--  Altun'dan terörle mücadelede kararlılık mesajı: "Kanlarını yerde bırakmayacağız"
--  Sırrı çözüldü: Bulaşık makinesindeki kötü koku yok oluyor!
--  Türk futbolundan başsağlığı mesajları! "Milletimizin başı sağ olsun"
--  Canada’s chief of the defence staff Gen. Wayne Eyre plans to retire this summer
--  විභා­ග­යට පෙර එළි­යට ආ උ/පෙළ කෘෂි 2 වැනි ප්‍රශ්න පත්‍රය අව­ලං­ගුයි
--  නයන වාස­ල­ති­ලක දිවුරුම් දෙයි
--  Bayern Munchen - Hoffenheim 1-0, ACUM, Digi Sport 1. Jamal Musiala a deschis scorul pentru bavarezi
--  ‘අව­ලෝ­කි­තේ­ශ්වර බෝධි­ස­ත්ත්ව­යාට’ රටින් පිට වීම තහ­නම්
--  දකුණු අප්‍රි­කාවේ සුපිරි වෙළෙ­ඳ­ස­ල­කදී බ්‍රිතාන්‍ය ගුවන් නිය­මුවා පැහැ­ර­ගෙන
--  Late Queen ‘wouldn’t have been aware of anything during final moments’
--  Comando Militar de Colombia no tiene información de que alias Fito esté en su país
--  НАТО предупреди: Войната в Украйна няма да приключи дори през 2025 г
--  Wegovy y Ozempic parecen ser menos peligrosos de lo que se temía, dice la FDA
--  News24 | Ecuador seeks tax hike to fund security
--  الأولى بالشرق الأوسط.. شاهد سيارة الهلال الأحمر الإسعافية البرمائية السعودية
--  قناة السويس: لا صحة لتعليق الملاحة بسبب أحداث البحر الأحمر
--  Z. Vaišvila. Kodėl slepiami svarbūs dokumentai apie Lietuvos nepriklausomybės atkūrimą ir 1991 m. sausio įvykius?
--  "طمية" و"رفيدة" تخطفان أنظار زوار معرض خدمات الحج والعمرة
--  „Forsthaus Rampensau“: Die Büchner-Töchter bringen alle gegen sich auf
--  Annie Potts es finalmente una cazafantasmas en toda regla en las nuevas imágenes de Frozen Empire
--  එජාප විශේෂ දිසා සමු­ළුව අද ගාල්ලේදී
--  චීනයේ වීඩියෝ ක්‍රීඩා ව්‍යාප්තිය පාල­න­යට යෝජනා ඉදි­රි­පත් කළ නිල­ධා­රියා සේව­යෙන් ඉව­තට
--  Panamá reforzará la vigilancia en la frontera con Colombia en medio de crisis migratoria
--  හෙරිටන්ස් හොටෙල්ස් ඇන්ඩ් රිසෝට්ස්, ගාලු සාහිත්‍ය උලෙළ සමඟ අත්වැල් බැඳගනියි
--  Humble’s $10 bundle includes several AGDQ 2024 speedrunning favorites
--  سوناك وزيلينسكي يعلنان في كييف عن اتفاق أمني ثنائي "غير مسبوق"
--  Baba Alhassan, prima impresie după antrenamentele de la FCSB: ”E normal să fiu obosit”
--  අපේ යුගයේ පත්‍ර කලා කව් සිළුමිණ තිලකරත්න කුරුවිට බණ්ඩාර
--  В Добрич започна общинският етап на Конкурса за детска рисунка "С очите си видях бедата"
--  Canadian offensive lineman Adams taking the long path to potential NFL career
--  NBA subiría el valor por los derechos de televisión
--  Emrat/ Si e ngritën perandorinë e drogës grupi i shqiptarëve në bashkëpunim me britanikun: Morën grande nga shteti për të izoluar fermat e kanabisit
--  California Expands Medi-Cal Coverage To All Undocumented And Low-Income Adults
--  Drei Monate altes Baby mit Kokainvergiftung im Krankenhaus – Zustand kritisch
--  Il petrolio chiude in rialzo a New York a 72,68 dollari
--  සෙබ­ස්ති­ය­න­යිට්ස්-බදු­ර­ලිය අද අව­සන් පූර්ව ගැටුමේ
--  La Haute autorité alerte les ministres sur la prévention des conflits d'intérêt
--  విమ్స్‌కు అధునాతన పరికరాలు
--  Neun Verletzte! - Bus kracht frontal gegen Baum
--  Kinder von Auto erfasst - Autofahrer übersieht Fußgängergruppe
--  Mesaj în direct pentru Gigi Becali: ”Eu n-aș renunța la el! E jucător exploziv, de viteză!”
--  Ziehung am 12. Januar 2024 - Haben Sie den Eurojackpot geknackt?
--  La Gran Migración del Serengueti, una fuente de historias dignas de Hollywood
--  La Liga: Siga em direto os resultados e marcadores da 20.ª jornada
+-  SM-liigan kriisijoukkueen valmentaja teki todella kovan ratkaisun
+-  انقطاع الاتصالات والإنترنت في غزة وعشرات القتلى في ضربات إسرائيلية على وسط القطاع وجنوبه
+-  مجموعات فندقية إسبانية كبرى تعزز حضورها في المغرب للاستفادة من الطفرة السياحية
+-  المغاربة يحتفلون لأول مرة برأس السنة الأمازيغية وهم في عطلة رسمية
+-  الأمثال العامية بتطوان... (500)
+-  الركراكي متفائل بالتتويج بكأس إفريقيا ويراهن على دعم الجمهور المغربي "لتقديم الأفضل"
+-  حزب الاستقلال يستحضر إسهامات الحركة الوطنية ويستعرض منجزات المغرب الحديث في ذكرى 11 يناير
+-  إدارة السجن المحلي عين السبع 1 تنفي استفادة سجناء من معاملة تفضيلية
+-  جمعية قدماء الوداد: "نادينا مستهدف وهناك مخطط لإضعافه"
+-  هيئات سياسية ومدنية تشيد بانتخاب المغرب لرئاسة مجلس حقوق الإنسان
+-  بلجيكا.. طيارو خطوط بروكسيل الجوية يخوضون إضرابا لمدة 24 ساعة يوم السبت
+-  منظمة تدعو لإصدار عفو شامل عن كافة معتقلي حراك الريف والصحفيين والمدونين
+-  Frank Zander bedankt sich beim Krankenhaus mit gemaltem Bild
+-  "سرق معلومات سرية للغاية".. إسرائيلي ينتحل صفة ضابط بجيش الاحتلال في 7 أكتوبر
+-  وسيم السيسي: هناك كائنات فضائية أكثر تطورًا من البشر
+-  كيفية ضبط تردد القنوات المجانية الناقلة لكأس أمم أفريقيا على جهاز الريسيفر؟
+-  بالذكاء الاصطناعي.. أول مرآة سحرية حقيقية في العالم
+-  Líder del partido Perú Libre afirma desde la clandestinidad que no se entregará a la Justicia
+-  주말 대체로 맑고 쾌청…낮 최고 3~10도
+-  Homem é diagnosticado com leptospirose após comer manga do chão
+-  ZAKAZAN SASTANAK Eduardo Da Silva preuzima klub iz Prve lige Federacije BiH?
+-  Australian Open 2024 Livestream: How to Watch the Grand Slam Tennis Tournament Online for Free
+-  ‘Não tem comparação com Bolsonaro’, diz Valdemar Costa Neto ao elogiar Lula
+-  Bahnen fahren wieder: Doch GDL-Chef Claus Weselsky droht mit neuem Streik
+-  Od „dajte joj so i vodu“ do „more, bre nosi se“: Pokušaji porodice da baka dobije zdravstvenu pomoć
+-  Obras do metrobus do Porto entre Boavista e Marechal vão durar até ao verão
+-  Небензя: резолюция СБ ООН по Красному морю нарушена при ударах США
+-  ¿Cuánto le costaría Cabecita a Cruz Azul? Todo lo que tendría que pasar para su regreso
+-  Local bans on homeless people sleeping in public earn Supreme Court review
+-  Plebiscyt Sportowiec Roku Województwa Lubelskiego rozstrzygnięty. Pierwsze miejsce dla mistrza świata
+-  Plantel de Cruz Azul: Liga MX confirmó los registros para el Clausura 2024
+-  Requisitos para ter direito ao Salário-maternidade liberado através do INSS
+-  Bakan duyurdu: Provokatif amaçlı paylaşım yapan hesaplar hakkında yasal işlem yapılacak
+-  Supreme Court guber judgment: FPS bemoans police harassment of journalists
+-  Devisen: Dollar erholt sich zu Franken und Euro
+-  Pençe Kilit operasyonundan acı haber: 5 şehit, 8 yaralı
+-  Alabama is close to hiring Kalen DeBoer from Washington to replace Nick Saban, AP source says
+-  Главврач белгородской больницы рассказала о работе хирургов в день атаки
+-  Silver: ”Torneo In-Season volverá la próxima temporada”
+-  Pagamento mensal do INSS pode ficar maior?
+-  Canada helped plan but didn’t have ‘assets’ to participate in U.S.-U.K. strikes against Houthis
+-  Suara ghaib minta pulangkan batu
+-  Expropiación de YPF: Argentina podría terminar pagando casi el triple de lo que vale actualmente la compañía
+-  What’s at stake in Taiwan’s elections? China says it could be a choice between peace and war
+-  Polícia Civil de Rondônia busca por traficante foragido
+-  Junge Menschen wollen die Scharia in der Schule durchsetzen
+-  Panamá ocupa el lugar 20 a nivel mundial en expectativas de empleo
+-  Aprehenden presunto violador en un balneario de Chepo
+-  IOT in E-Commerce Market Demand Will Increase to 2030 Evaluated By Global Top Players Like Dell, Hewlett Packard Enterprise, Hitachi
+-  Pedofíliával vádolják világhírű brit karmestert
