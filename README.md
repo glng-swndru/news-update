@@ -1,51 +1,51 @@
 # Latest News
--  6ft 4in £50m-rated striker with eight goals in 22 games is on Arsenal’s radar
--  Journalist David Ornstein has intriguing update about Arsenal’s new signing
--  Akhilesh Yadav In Dilemma Over How Many Seats To Give Up For I.N.D.I.A. Allies In UP
--  US Greenhouse Gas Emissions Dropped By 1.9% In 2023: Rhodium Group
--  The Irish legend of the Pooka
--  Grandmother slams Irish baby name, vows to call baby “Sushi”
--  How to make the perfect Irish soda bread
--  Arsenal keen on for 21-year-old attacker with 16 goal contributions this season
--  Sky News presenter bids farewell to fans as she films last show before she’s replaced by Kay Burley’s Breakfast
--  Sources: Brighton complete £7.8 million deal to sign star Barcelona were keen on
--  Supermarket accepts smaller vegetables in bid to help flood-hit farmers
--  JUST IN: Supreme Court upholds Gov. Sanwo-Olu’s election victory
--  Soccerladuma | Lawyer: Spurs' Letter For Swallows Relegation Was 'Embarrassing'
--  Video: Week Long National Road Safety Commences In Srinagar
--  Outa wants people jailed over SAP corruption
--  Cambs learner driver crashed dad's car into pylon and left the scene
--  Holcim closes three bolt-on acquisitions in Europe for green growth
--  What Tottenham signing Radu Dragusin first told Bayern before committing to London
--  Cowboys Legends Roger Staubach and Troy Aikman’s NASCAR Team: History of Hall of Fame Racing
--  Tech innovations that caught our eye at CES 2024
--  5-tier security cover deployed in Puri ahead of Shree Mandira Parikrama Prakalpa inauguration
--  NZ vs PAK 1st T20I: Saim Ayub Hits 3 Sixes, 2 Fours In Short Stay To Kickstart T20I Career In Style; Watch
--  Navigating Tomorrow: Becoming an Enterprise of the Future
--  Try This Centuries-Old Highlighter Trick for an Instant Facelift without Botox
--  Mumbai: Actress’ deepfake nude pictures circulated among family and friends; Case registered
--  Vinted buyer stunned after spotting secondhand Primark jumper for £50 – more than it sold for in the SHOP
--  Subaru: All wheel drive, all the time
--  Watch Matthew McConaughey, Jimmy Fallon Celebrate Fashion With ‘Tight Pants’ Performance
--  In the news today: U.S and U.K. attack Houthi sites in Yemen with Canadian support
--  Kano judiciary disposed 71,914 cases in 2023 legal year, says CJ
--  Boy in coma for 6 yrs dies in K'taka, parents demand action against doctor
--  In the news today: U.S and U.K. attack Houthi sites in Yemen with Canadian support
--  Demostat: EPP prevents debate on Serbian elections
--  66 Brutally Honest Truths People Avoid Facing, Revealed Online
--  Celebrating a decade of service: Anne Amadi exits office
--  [SBS Star] Bae In-hyuk Laughs as He Speaks About His Dating Rumors with Lee Se Young
--  Top buyer India's Dec palm oil imports jump to 4-month high
--  Revolutionizing renewable energy: the promise of water splitting
--  World reacts to US, UK attacks on Houthi targets in Yemen
--  Martin Luther King’s Daughter Criticizes Jonathan Majors’ Comment about Her Mother
--  I rented in London’s ‘best place to live’ but it was so overrated – it stunk of weed & don’t get me started on the pubs
--  ‘The only thing I can say…’: 24-year-old La Liga star responds to Man Utd transfer links
--  5 of the Best Prince of Persia Games That You Need to Play Before the Lost Crown
--  Hyderabad: Fake cop faces one-month sentence for threatening people
--  Boy, 5, tried to kill himself after taking asthma medication linked to depression and ‘red-eyed demon’ hallucinations
--  Delhi Police intitates crackdown on gangsters imprisoned in jail
--  Man, his two kids found dead in Kollam
--  Now You Can Get Your CNIC or FRC Online Through NADRA PAK ID App
--  'It’s not the NBA': Rules blunder busts the Breakers in 82-81 loss to Melbourne United
--  SuperSport to broadcast AFCON games, after MultiChoice secured broadcasting rights
+-  Rain likely as cold wave sweeps over parts of Bangladesh
+-  News24 | Cape Verde becomes the third African country to eliminate malaria
+-  Shoppers declare the 90s are back after ‘banging’ Heinz pizza flavour spotted on Iceland shelves
+-  About 75% Intercity Bus Travel Between 6 PM & Midnight In 2023: Report
+-  Google Cloud Removes Data Transfer Fees, Allows Clients Migration Without Payment
+-  UK To Mandate Tech Giants To Provide Rivals With Data Access Under New Plans
+-  Oil Prices Rise 2% After US, Britain Strike Houthi Targets
+-  Ayodhya Administration Sets World Record With Longest Solar Light Line Installation
+-  Young boy killed over resisting robbery bid in Karachi
+-  Dancing on Ice legend in ‘advanced talks’ for Celebrity Big Brother after quitting show in shock move that broke fans’
+-  Married At First Sight’s Jay Howard drives fans wild with fully nude bath selfie
+-  ‘It isn’t good…’: Eddie Howe confirms ‘big blow’ for Newcastle United
+-  Kieron Dyer has settled the Gerrard vs Lampard vs Scholes debate
+-  Jim McGuinness free to return to Donegal touchline as eight-week ban overturned
+-  IAS Success Sory: The Inspiring Story Of India’s Youngest IAS Officer Ansar Ahmed Sheikh
+-  Cloud exit from Google Cloud now free, but only for premium customers
+-  Gypsy Rose Shares ‘Innocent’ Baby Photo Prior To Mom’s Abuse
+-  Hear Zayn Join Pakistani Trio Aur on Hindi-Language Single ‘Tu Hai Kahan’
+-  Electronics & Pharma Sectors Lead India's Exports Amid Global Slowdown: April-Nov 2023
+-  Ram Mandir Inauguration: Ex-Litigant Iqbal Ansari Gifts Ram Temple Miniature To Gunner
+-  Met Office weather map forecasts snow in Yorkshire and shows exactly when and where it will hit
+-  Benidorm Clubs Forge Fan Alliance as CF Benidorm and TM Benidorm Unite
+-  Court sentences man to 10 years in prison for ATM fraud in Kaduna
+-  Mambo Dhuterere Reveals His Police Encounter Over Suspicions Of Dealing Drugs
+-  Dana White set to add huge clash of former champions to UFC 300 as mega Las Vegas card takes shape
+-  Police investigate blast at Strovolos bakery
+-  Parasite director wants thorough investigation into death of star Lee Sun-kyun
+-  Three stars who returned to Dortmund and failed, warning for Man Utd's Jadon Sancho
+-  Taapsee Pannu on getting to act in Dunki, “I was very much aware I may not get this kind of opportunity again”
+-  Manoj Bajpayee on Killer Soup director Abhishek Choubey, “He is the best contemporary director of this country”
+-  Sharvari Wagh is kicking off the weekend in style in blue outfit
+-  Mouni Roy is raising the temperature in sage green shirt and ripped denim jeans
+-  Love is Blind: Sweden Season 1: How Many Episodes & When Do New Episodes Come Out?
+-  Rohit Sharma Said This To Shubman Gill After His Run-Out; Commentator Says India Skipper’s Statement Was ‘Not Very Nice’
+-  JUST IN: Supreme Court affirms Sanwo-Olu as Lagos governor
+-  Betway Payment Guide – How to Deposit and Withdraw
+-  Bangladesh: Election with a Foregone Conclusion
+-  1 man believed dead, 2 others found alive after Idaho avalanche
+-  China December M2 money supply +9.7% vs +10.1% y/y expected
+-  Kai Wagner ends Rangers transfer talk with new Philadelphia Union deal despite 'exciting options' in Europe
+-  2 users of weight loss products suffer adverse effects
+-  Is There a Ted Series Episode 8 Release Date and Time or Part 2?
+-  Charge of ‘Impaired Operation Cause Death’ for crash north of Guelph at infamous intersection
+-  Sharath, Sathiyan star attractions at WTT Star Contender Goa 2024
+-  Woah! Medha Shankr fame of '12th Fail' experiences a 238% surge in Instagram followers; Have look at a lesser-known facts about the actress
+-  'I had to find £44k out my own pocket, it's now time Post Office bosses face justice'
+-  Muted Response Observed To Pre-Packaged Insolvency Process For MSMEs: RBI Governor
+-  Innovative Recycling Technologies for a Greener Automotive Industry
+-  Katie Price's cosmetic procedures eye-watering cost revealed despite health risks
+-  Liverpool lead Man Utd in the race to sign 24-year-old Ligue 1 star
