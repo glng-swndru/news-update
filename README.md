@@ -1,51 +1,51 @@
 # Latest News
--  ยิปซีพยากรณ์ดวงรายวัน ประจำวันศุกร์ 12 มกราคม 2567
--  ผอ.กกท. ภาค 5 ลุยเมืองงาช้างดำ ตรวจงานเยี่ยมศูนย์วิทยฯ กกท.จ.น่าน
--  Foreign Investors Remain Net Buyers of S. Korean Stocks in December
--  Astrologer arrested for duping woman of lakhs, rape bid in Bhubaneswar
--  대전시 서구, 내 집 주차장 갖기 사업 보조금 지속 지원
--  민경원 순천향대 교수 교육부 장관 표창hellip;lsquo;영화의 이해rsquo; 인기
--  YCP: ఎమ్మెల్యే సిద్ధారెడ్డి అనుచరులను టార్గెట్ చేసిన వైసీపీ
--  Playa, torneo de tejo y una tarde de fútbol en familia: las vacaciones de Guillermo Andino y Caro Prat en Punta del Este
--  تفسير حلم الحلق الذهب في المنام.. دلالة خير أم شر؟
--  دولة لا تغيب عنها الشمس لمدة 3 أشهر.. «الليل زي النهار»
--  Cementerio de submarinos nucleares de la Armada de EE. UU.
--  Ikuti Del Piero, Hattrick di Coppa, Milik tak Merasa Jadi Pemain Cadangan di Juventus
--  Over 100,000 Indonesians in Kuala Lumpur Missing from Final Voters List, KIPP Says
--  NSW Farmers calls for ACCC inquiry into big supermarkets’ ‘excessive profits’ in wake of Food and Grocery Code inquiry
--  Das WEF von A bis Z
--  Prabowo Subianto Sebut Bahasa Elite Omon-Omon Kosong
--  Middle East CEOs the Most Forward-Looking | AlixPartners Disruption Index 2024
--  Las noticias más importantes del 11 de enero en México
--  2024 New Year's greetings to scientists and information and broadcasters
--  Múltiples protestas en Estados Unidos a favor de Palestina y en contra del conflicto Israel-Gaza
--  Tramitará credencial de elector Consulado de México en El Paso
--  원칙과상식, 신당 계획 발표
--  원칙과 상식 '미래대연합' 창당 선언
--  원칙과상식, '미래대연합' 창당 본격화
--  원칙과상식, '미래대연합' 창당 본격화…박원석·정태근 합류
--  홍준표 "예타 면제 안되면 달빛철도법 의미없어…그럴바엔 다음 국회때 다시 추진"
--  국민의힘, '과학·법조' 영입 인재 발표…"현장 밀착형"
--  반중 vs 친중 vs 중립…대선 D-1, 3갈래로 쪼개진 대만
--  تأهب إسرائيلي وتوقع أميركي برد الحوثيين على الضربات
--  সাধন চন্দ্র দ্বিতীয়বার মন্ত্রী হওয়ায় নওগাঁয় আনন্দমিছিল
--  Tata Power Inks Rs 70,000 Cr MoU For Hybrid Renewable Projects In Gujarat
--  ABD ve İngiltere'den Yemen'e ortak saldırı
--  Don’t Let Anyone Derail Your Dreams of Home Ownership, Ruto Urges Kenyans
--  Прем'єр Британії Сунак підтвердив обстріл Ємену
--  Ngả mũ Brahim Diaz
--  Una doble eliminación en ‘Masterchef Celebrity Ecuador’ deja fuera de la competencia a ‘Paty’ Terán y a Raúl
--  กรมพลศึกษา ส่งตัวแทนร่วมประชุมที่อาเซี่ยน ณ กรุงฮานอย เวียดนาม
--  Anies Baswedan Hitung Biaya Hidupkan Jalur Kereta Sumatera: Lebih Murah dari Jalan Tol
--  El tiempo en Priego de Córdoba: previsión meteorológica para hoy, viernes 12 de enero
--  जसपाको राजनीतिक प्रतिवेदन: सत्ता टिकाउनमै सरकारको बढी ध्यान गयो
--  แวดวงคนกีฬา วันที่ 12 มกราคม 2567
--  El tiempo en Pozoblanco: previsión meteorológica para hoy, viernes 12 de enero
--  5 pasos para conseguir un aumento en Nobank
--  All The Trending Memes This Furahiday
--  El tiempo en Palma del Río: previsión meteorológica para hoy, viernes 12 de enero
--  আন্তর্জাতিক আদালতে আত্মপক্ষ সমর্থনে বক্তব্য দেবে ইসরায়েল
--  El tiempo en Montilla: previsión meteorológica para hoy, viernes 12 de enero
--  Tietjens to be inducted in Walk of Fame
--  El tiempo en Lucena: previsión meteorológica para hoy, viernes 12 de enero
--  El tiempo en Córdoba: previsión meteorológica para hoy, viernes 12 de enero
+-  Siêng đưa con trai tới nơi này khi đi du lịch nước ngoài, Á hậu Tú Anh được khen ngợi hết lời
+-  Hướng dẫn cách tự động điền mã xác minh trên điện thoại Android
+-  Cha đẻ ChatGPT bí mật kết hôn với bạn trai
+-  Màn kết hợp gây sốt giữa danh ca Bằng Kiều với dòng game Võ Lâm Truyền Kỳ, loạt ảnh hậu trường tiết lộ điều gì?
+-  Han So Hee: Mỹ nhân may mắn sở hữu gia tài "khủng" trước tuổi 30
+-  Khởi tố nam sinh chế tạo 201 quả pháo nổ
+-  National Youth Day 2024 : युवाओं को प्रेरणा देने वाली फिल्में एवं वेब सीरीज।
+-  Microsoft overtakes Apple to become world’s most valuable company
+-  راولپنڈی: مبینہ پولیس مقابلے میں 4 ڈاکو ہلاک
+-  CISLAC faults Enitan’s appointment as Obi insists no sacred cows
+-  National Unity Day being marked today
+-  Setikhola hydropower project begins power production
+-  เด็กหญิง 4 ขวบ พลัดตกตึกย่านอ่อนนุชเสียชีวิต
+-  ทบ. จัดงานวันเด็กแห่งชาติ 67 โชว์รถยานเกราะ 3 สัญชาติ
+-  Parikrama to open for public after 3 pm on January 17
+-  민주당 탈당 3인방 창당 돌입… 당명 '미래대연합' 14일 발기인대회
+-  시민단체, '5·18 폄훼' 신문 돌린 허식 인천시의장 고발
+-  최태원·노소영 이혼소송 2심 재판부 판사 돌연 사망
+-  흉기난동 예고글 20대 선처 받은 뒤 "교도소 인기남" 자랑… 항소심서 형량 늘어
+-  [속보] 봉준호 "경찰 이선균 수사 적법했나"… 문화예술인, 진상규명 촉구
+-  도어스테핑 중단 부른 MBC 자막 공방 정부 판정승
+-  ¡Al fin volvieron! Los jugadores que regresaron a América para ser bicampeones de la Liga MX
+-  Danmark bakker op om vestligt angreb mod Houthi-bevægelsen
+-  LG 투명 올레드 TV, CES 2024 최고 제품 선정[CES 2024]
+-  Man kills five-year-old boy in front of father, chops off limbs in Odisha
+-  Teemu Selänteen hehkuttama pikkupoika muuttui Putinin propagandavälineeksi
+-  Los 10 mandamientos que debe seguir el América para lograr el Bicampeonato en el Clausura 2024
+-  สปน. ชวนเด็กๆ เที่ยวงาน “วันเด็กแห่งชาติ”
+-  Meksika'da 61 göçmen kurtarıldı
+-  İsrail'den Gazze'ye hava ve kara saldırıları: Çok sayıda ölü ve yaralı var
+-  TCMB Başkanı Erkan: Dezenflasyona ulaşma konusunda kararlıyız
+-  ABD ve İngiltere Yemen'i vurdu! Suudi Arabistan'dan ilk açıklama
+-  Οι πέντε άξονες του ν/σ για τις ακτές – Πώς διαμορφώνονται οι κυρώσεις και ποια τα χρονοδιαγράμματα για τους διαγωνισμούς
+-  Telangana: 25K acres of red chilli crop lost to pests in Mahabubabad and Warangal
+-  U. Católica llegó a Lima para enfrentar a Sporting Cristal este domingo 14 | Tarde Celeste 2024
+-  Rangers fall to Blues after late Mika Zibanejad scratch as skid hits three
+-  현대차, 도쿄서 아이오닉5 N퍼포먼스 콘셉트 모델 최초 공개
+-  IMF "디리스킹 정책 강화에 세계 GDP 4.5% 하락 가능"
+-  삼성화재, 리스크관리 경진대회 수상자 선진 보험시장 연수 진행
+-  [특징주]세코닉스, 삼성 XR헤드셋 애플 비전프로 우위 가능성...핵심기술 부각 ‘강세’
+-  Bauernproteste in Mittelsachsen - Das Geschehen am Freitag im Überblick
+-  Health sector trade unions call off token strike
+-  Четверть населения Земли надеется на более мирный 2024 год, показал опрос
+-  Limpian laterales el Bulevar Juan Pablo II
+-  “금융위 판단 틀렸다”…비트코인 ETF 금지에 논쟁 격화
+-  Late Indonesian president Suharto appears as a deepfake
+-  기업은행, 올 상반기 'IBK창공' 74개 기업 선발
+-  Activan operativo por clima extremo en Juárez
+-  Bahnstreik-Ende in Sicht - Auswirkungen auch nach 18.00 Uhr
+-  More multinationals may exit Nigeria in 2024 – Report
