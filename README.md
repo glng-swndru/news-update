@@ -1,51 +1,51 @@
 # Latest News
--  大立光法說有驚喜！毛利率重回五成，林恩平：淡季還是淡
--  擴大金融力量 國泰金COP28籲四大淨零關鍵: 混合金融、生物多樣性、創新金融商品、青年培力
--  رويترز: الولايات المتحدة وبريطانيا بدأتا شن ضربات ضد أهداف للحوثيين في اليمن
--  Matan a comisionada LGBTTTI+ de MC en Michoacán
--  Rinde presidente de la CMIC informe de actividades
--  Faltará Princesa Marie a ceremonia de coronación de Federico
--  Cancelan vuelos en aeropuerto de Juárez
--  부산middot;울산 종일 맑은 날씨...모레부터 찬공기 남하해 다시 추위
--  '7억 초호화 해외 이사회' 의혹 최정우 포스코 회장 등 16명 입건
--  Highlights from CES: Talking heads, airlifts and checkpoints for pets
--  Mik Japan Co., Ltd. Launches Sakura Base, a Subscription Service Featuring Snacks Made in Japan for the US Market!
--  2024 Volkswagen Amarok Style TDI500 review
--  وفاة رجل بسبب "بق الفراش" في فرنسا .. ماذا عن انتشاره بين العائلات؟
--  متى يتم الرد على الاعتراضات في حساب المواطن؟ .. وخطوات مهمة لتجنب وقف الدعم مستقبلا
--  أمريكا تستهدف أكثر من 10 مواقع حوثية في اليمن
--  США объявили о дополнительных санкциях против физических и юридических лиц РФ
--  Amerikanen en Britten voeren luchtaanvallen uit op Houthi-rebellen in Jemen
--  สภาพอากาศวันนี้ เหนือ - อีสาน อากาศเย็น เตือน 13-16 ม.ค. มีพายุฝนฟ้าคะนอง
--  Tesla muss wegen Lage im Roten Meer Produktion in Grünheide stoppen
--  푸틴의 정적 “한국 컵라면 여유롭게 먹고 싶다”…교도소에서 소송 제기
--  Milagro Flores ofrece noticias con respecto a HCH
--  Mar Galcerán is Spain’s first parliamentarian with Down syndrome
--  Warm up for Winter with RED GOLD FROM EUROPE. EXCELLENCE IN EU PRESERVED TOMATOES
--  Automation Anywhere Launches New Benchmarking Services to Help Companies Maximize the Business Value of AI-Powered Process Automation
--  – رئيس لجنة الطاقة بمجلس النواب : رفع الدعم عن المحروقات تقرره الميزانية العامة للدولة التي يقرها مجلس النواب .
--  Yemen LIVE: Explosions reported in cities including Sana’a after US Air Force recon jets spotted in the Middle East
--  Austins Klinikaufenthalt - Pentagon will Abläufe prüfen
--  CVS to close some pharmacies in Target stores
--  ¡Más de cien indigentes deambulan en el Centro de Los Mochis! Buscan reencontrarlos con sus familias
--  Vaughn Palmer: Eby ditches B.C. political tradition by inviting his wife to news conference
--  Peter Dutton disguises his hatred with arguments of unity. It’s time he gives up the charade.
--  توقيف متورطين في محاولة سرقة معصرة للزيتون باستعمال الرصاص الحي
--  Be guided by Ayyappan
--  Record recontrata repórter seis meses após demissão para Campeonato Paulista
--  Wevza: l'Italia terza vittoria con la Germania e primo posto nella Pool B
--  Champions League: Conegliano batte l'Asterix e rafforza il primato
--  블레이드 ENT, AI 앱 ‘핑크버스’ GPT 스토어 출시
--  ‘Barbie,’ ‘Oppenheimer’ lead nominations in prelude to Oscars
--  Prince Harry is slammed by retired Colonel who says he has been named as a ‘Living Legend of Aviation’ because of his ‘celebrity status’ as a Royal
--  تنظيف البشرة بالزيت.. طريقة طبيعية لتنظيف البشرة
--  SK슈가글라이더즈, 경남개발공사 꺾고 4연승으로 1위 독주 [여자핸드볼]
--  Miriam Ríos Ríos, comisionada de Movimiento Ciudadano, es asesinada en Michoacán
--  Al Hadath: США и Великобритания наносят удары по позициям хуситов у города Ходейда
--  «Барселона» сыграет с «Реалом» в финале Суперкубка Испании
--  Afsel Paparkan Bukti Genosida Israel di Gaza dalam Sidang ICJ
--  翌日発送・中央大学高等学校 ２０２４年度 - thenewsunlimited.com
--  [本 雑誌] 令2 京都府 合格できる 数学・計算編 (高校入試) 熊本ネット - thenewsunlimited.com
--  愛知県公立高校とことん入試対策2020年春受験用 - thenewsunlimited.com
--  令6 愛知県合格できる5問集 数学・英語 熊本ネット - thenewsunlimited.com
--  翌日発送・札幌光星高等学校 ２０２４年春受験用 - thenewsunlimited.com
+-  Tarrafal de Santiago passa a ter posto de carregamento para veículos elétricos
+-  Berbahayakah Catnip untuk Kucing? Berikut 6 Efeknya, Salah Satunya Menyebabkan Euforia
+-  Ramai Soal Nilai Anies Baswedan Terhadap Kinerja Kemenhan, Ini Penjelasan Timnas AMIN dan Balasan Prabowo
+-  ESTRELLAS: La tórtola que bailó rumba
+-  Cora Schumacher handelt gegen Ex-Ralf Schumacher
+-  OpenAI-backed 1X raises another $100M for the race to humanoid robots
+-  In partial reversal, Texas Medicaid greenlights first step in gene therapy for Afghan refugees’ infant son
+-  نازحو شمال غزة: نحن ضحايا للحرب والجوع والبرد القارس
+-  Времето днес, прогноза за петък, 12 януари: Слънчево, ветровито, дневните температурите падат
+-  Mnangagwa DJ Back In Class
+-  YG股價全靠BLACKPINK在撐！全員「不續個人約」後一個月內暴跌27%，刷新最低價紀錄
+-  Volkswagen Bakal Hadirkan ChatGPT di Mobilnya untuk Komunikasi Pengemudi
+-  Ramalan Zodiak Hari Ini, Jumat, 12 Januari 2024: Aries-Pisces
+-  TAG Heuer Porsche Formula E Team Incar Podium di Mexico City E-Prix
+-  Profil Gabriel Attal, Perdana Menteri Prancis Termuda yang Mengaku Gay
+-  Most akkor mennyi a gáz ára 2024-ben? Amit a gázóra mutat, az nem jó?
+-  ‘Ém’ loạt báo cáo về tài chính, trái phiếu, Bất động sản An Gia bị phạt
+-  Dự án cao tốc Biên Hòa - Vũng Tàu qua Đồng Nai: Không kịp giao mặt bằng theo hạn tháng 7
+-  경기도, 고액체납자 예금 조회 772억원 압류 28억원 징수
+-  대전시, 취약계층 대상 무료 '법률홈닥터' 운영
+-  Nigeria becoming dumping ground for imported furniture – Operator
+-  Manevi hasat vakti
+-  Eller Filistin için açıldı
+-  Kıbrıs'ın en büyük camisi açıldı
+-  Tek hayalimiz Özgür Filistin
+-  Külliye’de strateji zirvesi
+-  CHP Hatay’ı gözden çıkardı
+-  Emekli zammı haftaya Meclis’te
+-  Avcılar’a metro müjdesi
+-  Kimya ihracatında hedef 35 milyar dolar
+-  Bir şey sorabilir miyim diyerek saldırdı
+-  Derinin kilogram değeri 11 doları aştı
+-  Türkiye’nin arabuluculuğunda El-Fetih ve Hamas müzakereleri
+-  Önce doğal gaz sonra hidrojenle üretim
+-  2023’ten 2024’e Doğu Akdeniz denklemi
+-  Mavi Vatan provası
+-  Askere akıllı telefon yasak
+-  Anketler yarın Erdoğan’ın masasında
+-  MHP’de 55 isim daha kesinleşti
+-  CHP'de sol korkusu
+-  Der Kongress nähert sich einer 70-Milliarden-Dollar-Einigung über Steuergutschriften für Kinder und Steuererleichterungen für Unternehmen
+-  Hunter Biden Pleads Not Guilty to Federal Tax Charges After Plea Deal Collapses
+-  US, British militaries launch massive retaliatory strike against Iranian-backed Houthis in Yemen
+-  [CES 2024] Dive Into Samsung Electronics’ C-Lab Program at CES: A Showcase of Revolutionary AI Technologies
+-  US, British militaries launch massive retaliatory strike against Iranian-backed Houthis in Yemen
+-  Gesundheitsminister Lauterbach will die Homöopathie als Krankenkassenleistung streichen
+-  Xavi nói cứng khi Barca đụng Real ở chung kết
+-  Saha gọi tên bản hợp đồng thất bại nặng nề của Man United
+-  'Thất vọng quá! Bạn phải dạy cho Onana một bài học'
+-  Cú hích Gabriel Jesus đến với Arsenal
