@@ -1,11 +1,11 @@
 # Latest News
--  Irã condena ataques dos EUA e do Reino Unido contra o Iêmen
--  Conselho de Segurança da ONU debate sobre paz e segurança na Colômbia
--  Eurostoxx futures +0.8% in early European trading
--  자격증 취득교육 40만원까지 지원
--  Makinde appoints Salawu Poly Ibadan’s new Deputy Rector
--  Smrk zachránil život Američance, která se zřítila ze svahu. V mrazu se ho držela osm hodin
--  F1: Γνωρίζουμε τον Pierre Gasly
--  G.B. : +0,3% m/m produzione industriale novembre (-0,1% a/a)
--  G.B. : produzione manifatturiera ottobre rivista a -1,2% m/m, +0,2% a/a
--  Nuk ndalen rebelët Houthi: Do të vazhdojmë të godasim anijet e lidhura me Izraelin në Detin e Kuq
+-  웹툰 협·단체 "문화산업공정유통법, 전면 재검토 필요…업계 목소리 들어달라"
+-  "'바이든 보도'는 허위"…법원, MBC에 정정보도 판결
+-  로드컴플릿, 앱퀀텀과 퍼블리싱 계약… ‘레전드오브슬라임’ 서비스 이관
+-  삼정KPMG가 꼽은 ‘CES 2024’ 키워드 6가지는?
+-  “클릭 한 번으로 진위 확인”… 딥브레인AI, 딥페이크 영상 탐지 서비스 출시
+-  [다시 뛰는 이커머스] ③ ‘흑자 기업’ 오아시스, 신년도 내실 다지기 ‘집중 또 집중’
+-  لحظة بلحظة.. 98 يوما على الحرب في غزة والهجوم على الحوثيين باليمن ينذر بتوسيع دائرة الحرب بالمنطقة
+-  'ACL 8강·K리그 3연패' 정조준!...울산, 전지훈련 위해 '日' 이시가키로 출국
+-  Rumah mampu milik fokus industri hartanah
+-  Swallows slapped with R1 million fine, docked SIX log points
