@@ -1,11 +1,51 @@
 # Latest News
--  웹툰 협·단체 "문화산업공정유통법, 전면 재검토 필요…업계 목소리 들어달라"
--  "'바이든 보도'는 허위"…법원, MBC에 정정보도 판결
--  로드컴플릿, 앱퀀텀과 퍼블리싱 계약… ‘레전드오브슬라임’ 서비스 이관
--  삼정KPMG가 꼽은 ‘CES 2024’ 키워드 6가지는?
--  “클릭 한 번으로 진위 확인”… 딥브레인AI, 딥페이크 영상 탐지 서비스 출시
--  [다시 뛰는 이커머스] ③ ‘흑자 기업’ 오아시스, 신년도 내실 다지기 ‘집중 또 집중’
--  لحظة بلحظة.. 98 يوما على الحرب في غزة والهجوم على الحوثيين باليمن ينذر بتوسيع دائرة الحرب بالمنطقة
--  'ACL 8강·K리그 3연패' 정조준!...울산, 전지훈련 위해 '日' 이시가키로 출국
--  Rumah mampu milik fokus industri hartanah
--  Swallows slapped with R1 million fine, docked SIX log points
+-  Free film nights in Larnaca
+-  From a Continent to an Island in Limassol
+-  동국대 듀이카, 매주 토요일 진학설명회 개최
+-  로드컴플릿, 앱퀀텀과 ‘레전드 오브 슬라임’ 퍼블리싱 계약
+-  DDI·데이터이쿠, CES 2024서 ‘AI 혁신’ 주제로 패널토의
+-  ‘나는 바이든으로 들렸는데…’ MBC 정정보도 판결 배경은
+-  ‘워크아웃 태영’에 담보대출 걸린 SBS미디어넷 “대주주 돈줄로만...”
+-  Авиацията и ракетните войски на ВСУ поразиха концентрации на руска жива сила
+-  Frenkie de Jong raakt in vorm voor EK: middenvelder uitgeroepen tot MVP bij Barcelona
+-  تهديدات متبادلة بين الجزائر و الإمارات؟
+-  MIMORIADNE Koalícia USA a Británie spustili útok na húsíjským teroristom v Jemene
+-  Β’ ΚΑΤΗΓΟΡΙΑ: Η τελευταία αγωνιστική της πρώτης φάσης και η συνέχεια! (ΒΑΘΜΟΛΟΓΙΑ)
+-  De Croo neemt afstand van uitspraken Gennez over Duitsland
+-  Who is Cassandra Mae Spittmann? German Singer garnering praises from PM Modi for singing “Ram Ayenge” bhajan in enchanting voice
+-  ชาวไร่มันเฮ! “ภูมิธรรม” พาผู้ซื้อ6ประเทศ ซื้อล่วงหน้า
+-  Zašto se jutarnji seks smatra najboljim
+-  Yenilik Partisi yerel seçimlerden çekildi
+-  Bos BRI Beberkan Alasan Punya Program Holding Ultra Mikro
+-  Demet Akalın'ın iddiası Seda Sayan'ı kızdıracak: "Programı bizim elimizden aldı"
+-  IT Index Booms 5% As Infosys, TCS Rally On Q3 Numbers
+-  YouTube’s Official To Face Legal Interrogation Over Failure To Curb Indecent Content
+-  PM Modi To Observe Fast For 11-day Ahead Of Pran-pratishtha Of Ayodhya Ram Temple
+-  Global PC Shipments Up By 0.3% In Q4CY23, Declines 14.8% For Year
+-  Inter-ministerial Meeting Convened To Address Trade Impact Of Red Sea Crisis
+-  Gujarat's GeM Gross Merchandise Value Up By 16% In FY23-24 To Rs 9,206 Cr
+-  Engie, Gujarat Join Hands To Drive Decarbonisation, Renewable Energy Initiatives
+-  Globo insulta Lula, diz que presidente faz "agressão injusta a Israel" e ainda aponta antissemitismo em suas ações
+-  Le candidat Thierno Cissé dit être mandaté par Dieu pour devenir Président…
+-  Ежедневно из-за гаджетов в России происходит до десяти пожаров
+-  Ukrajinski parlament odbacio prijedlog zakona o regrutaciji
+-  Nigerian Judiciary Should Reprogramme Own Mechanism – Prof Cyprian
+-  SC ‘won’t take over’ ECP’s job, CJP Isa tells PTI lawyer
+-  AKTUÁLNE Desivá nehoda na strednom Slovensku: Zakliesnených ľudí museli vyslobodzovať z auta!
+-  Celebrity food critic Keith Lee cuts Bay Area trip short
+-  여주시, ‘비대면 진료 서비스’ 관내 4개 의료기관서 운영
+-  광명시, 시민력에 힘 더할 주민자치위원 164명 위촉
+-  경기도공익활동지원센터, 日 요코하마시 시민협동추진센터와 간담회 개최
+-  오산시, 비상소화장치·우체통 등 6종 153개에 사물주소 부여
+-  안성시 농특산물 브랜드 안성마춤, ‘대한민국 퍼스트브랜드 대상’ 18년 연속 수상
+-  이상일 용인시장, 조규홍 보건복지부 장관에게 ‘장기요양요원’ 처우 개선 요청
+-  안산시립국악단, 18일 안산문화예술의전당서 ‘2024 신년음악회’ 개최
+-  ‘구민이 안전한 도시’ 조성… 인천 동구, 중대재해예방 기본계획 마련
+-  여주시, 시내버스 8개 노선 운행중단에 반발… 운행 재개 요청 등 대응책 마련
+-  양평군, 생활 속 사진 수집전 진행… 디지털트윈 공간정보 통합플랫폼에 전시
+-  "피해확산 막을 것"… 화성시,하천 유해물질 유입 긴급 방제작업 실시
+-  안성시, ‘2024년 상반기 읍·면·동 정책공감토크’ 개최
+-  오산시, 어린이보호구역 LED 바닥 신호등 설치로 보행자 안전 강화
+-  '상인·고객 더욱 편리하게'… 안양시, 평촌역 상가 고객지원센터 문 열어
+-  인천, 21세기 후반 최고기온 42℃… 이대로면 열대지방 된다
+-  과천시, 자동차 환경개선부담금 일시납부하면 10% 감면
