@@ -1,51 +1,51 @@
 # Latest News
--  Dezenformasyonla Mücadele Merkezi: Manipülatif paylaşımlarına itibar etmeyiniz
--  عباس للسفير السديري : الملك سلمان هو الرئيس الفعلي لفلسطين - فيديو
--  تبادل إطلاق نار بين الاحتلال وفلسطيني بمحيط مستوطنة أدورا
--  جيش الاحتلال : استشهاد 3 فلسطينيين في مستوطنة أدورا
--  Vast network of lost ancient cities discovered in the Amazon
--  Im Bulldog auf die Arbeit
--  Parkplätze bei früherem Impfzentrum sind derzeit eine »Grauzone«
--  Biosphärenregion: Wie geht es weiter?
--  Faschingsdeko per Traktor angeliefert
--  Verkehr in Köln: KVB-Bahn bleibt auf Schiene liegen – mehrere Linien umgeleitet
--  Warnung vor Glatteis in Aschaffenburg und Umgebung
--  En riesgo partido de Rayados por Alerta Ambiental
--  El turismo ruso a Cuba impone un récord: ¿por qué no es una buena noticia para La Habana?
--  Συνελήφθη ο YouTuber των Βρυξελλών που πετούσε περιττώματα σκύλων στα κεφάλια επιβατών του μετρό (video)
--  Pençe-Kilit Harekatı bölgesinde 5 asker şehit oldu, 8 asker yaralandı
--  إنذار 479 مدرسا بالفصل من الوظيفة العمومية
--  NRW: Satte Preiserhöhung in Restaurant – „Sowas von lächerlich“
--  Breivik je stále nebezpečný, mal by zostať na samotke, tvrdí nórska vláda
--  قراءة أولية للضربات الأمريكية ضد مواقع حوثية
--  The original sentence is not provided, so I cannot rewrite it as a SEO friendly short heading. Can you please provide the original sentence?
--  Festejan Día del Periodista en Reynosa
--  Sulmet ndaj grupimit Huth në Lindjen e Mesme, Kosova i del në krah SHBA-së
--  Razzia sur les billets, changement de stade… c’est toujours la folie Messi en MLS
--  FG says Abuja-Kano dual carriageway will be delivered in 2026
--  Smite 2: A New Era of Battle
--  Marinić-Kragić: Osmi ili četvrti je isto, a Bijač je s 33 još mladić
--  Tinubu appoints Ali Nuhu, 10 others to head FG agencies
--  Sudionik Eurokupa poražen u Splitu, “double-double” hrvatskog reprezentativca
--  VIDEO: Kakav kiks golmana, nije znao što ga je snašlo!
--  Aposentadoria do INSS pode ser possível ser antecipada
--  Tesla muss Produktion in deutscher „Gigafactory“ stoppen
--  Uncovering the link to combating muscle atrophy caused by aging and immobility
--  Digjet shtëpia në Pogradec, familja me 5 anëtarë mbetet në “qiell të hapur”
--  Jack Grealish driven to training by Sasha Attwood in new Aston Martin DBX as Man City ace adds to incredible collection
--  Εθνικός Αχνας 2-1 ΑΠΟΕΛ (ΣΤΙΓΜΙΟΤΥΠΑ)
--  MSB'den acı haber: Pençe-Kilit bölgesinde 5 askerimiz şehit oldu
--  FED faiz kararı ne zaman, saat kaçta açıklanacak? FED toplantısı hangi tarihte?
--  Britanski premijer u posjeti Kijevu, obećao tri milijarde za vojsku
--  “Juan Escobar pidió su salida”, Martín Anselmi confirmó que el paraguayo tomó la decisión
--  Okugawa im Anflug, Jatta und Dompé stark – doch ein HSV-Problem bleibt
--  Abortion rights across the US: we track where laws stand in every state
--  Cármen Lúcia suspende concursos da PM de Santa Catarina
--  Министърът на иновациите и растежа Милена Стойчева: Визията е инвестицията в хората, за да имаме устрем
--  Michalovce otočili zápas a zvíťazili doma nad Banskou Bystricou 6:4
--  Αυτός είναι ο νέος Πρόεδρος του ΚΟΑ: Οι «τηλεκατευθυνόμενες λούλλες του ΑΚΕΛ» και ότι «φοβάστε θα το πάθετε» (pics)
--  Prokuratura Krajowa nie zgadza się z decyzją Bodnara. „Bezprawne działanie”
--  Colaboración estratégica entre la Secretaría de Turismo y la UAT
--  Israel, Hamas in talks to deliver medicine to hostages
--  Γιώργος Χριστοδούλου: «Δεν βλέπω τα φύλα, δεν ξεχωρίζω το ανδρικό από το γυναικείο παιχνίδι»
--  المانيا: مصنع تيسلا يعلق الإنتاج بسبب نقص المكونات جراء تعثر الملاحة في البحر الأحمر
+-  Fati yt/ Horoskopi 13 janar 2024
+-  තෛපොං­ගල් දා හින්දු රැඳ­වූ­වන් බලන්න අව­සර
+-  Анадолу Ефес размаза един от лидерите в Евролигата по баскетбол
+-  Late Queen ‘wouldn’t have been aware of anything during final moments’
+-  AK Parti'den şehitler için başsağlığı mesajı
+-  KKTC'den Türkiye'ye taziye mesajı: Milletimizin başı sağ olsun
+-  Altun'dan terörle mücadelede kararlılık mesajı: "Kanlarını yerde bırakmayacağız"
+-  Sırrı çözüldü: Bulaşık makinesindeki kötü koku yok oluyor!
+-  Türk futbolundan başsağlığı mesajları! "Milletimizin başı sağ olsun"
+-  Canada’s chief of the defence staff Gen. Wayne Eyre plans to retire this summer
+-  විභා­ග­යට පෙර එළි­යට ආ උ/පෙළ කෘෂි 2 වැනි ප්‍රශ්න පත්‍රය අව­ලං­ගුයි
+-  නයන වාස­ල­ති­ලක දිවුරුම් දෙයි
+-  Bayern Munchen - Hoffenheim 1-0, ACUM, Digi Sport 1. Jamal Musiala a deschis scorul pentru bavarezi
+-  ‘අව­ලෝ­කි­තේ­ශ්වර බෝධි­ස­ත්ත්ව­යාට’ රටින් පිට වීම තහ­නම්
+-  දකුණු අප්‍රි­කාවේ සුපිරි වෙළෙ­ඳ­ස­ල­කදී බ්‍රිතාන්‍ය ගුවන් නිය­මුවා පැහැ­ර­ගෙන
+-  Late Queen ‘wouldn’t have been aware of anything during final moments’
+-  Comando Militar de Colombia no tiene información de que alias Fito esté en su país
+-  НАТО предупреди: Войната в Украйна няма да приключи дори през 2025 г
+-  Wegovy y Ozempic parecen ser menos peligrosos de lo que se temía, dice la FDA
+-  News24 | Ecuador seeks tax hike to fund security
+-  الأولى بالشرق الأوسط.. شاهد سيارة الهلال الأحمر الإسعافية البرمائية السعودية
+-  قناة السويس: لا صحة لتعليق الملاحة بسبب أحداث البحر الأحمر
+-  Z. Vaišvila. Kodėl slepiami svarbūs dokumentai apie Lietuvos nepriklausomybės atkūrimą ir 1991 m. sausio įvykius?
+-  "طمية" و"رفيدة" تخطفان أنظار زوار معرض خدمات الحج والعمرة
+-  „Forsthaus Rampensau“: Die Büchner-Töchter bringen alle gegen sich auf
+-  Annie Potts es finalmente una cazafantasmas en toda regla en las nuevas imágenes de Frozen Empire
+-  එජාප විශේෂ දිසා සමු­ළුව අද ගාල්ලේදී
+-  චීනයේ වීඩියෝ ක්‍රීඩා ව්‍යාප්තිය පාල­න­යට යෝජනා ඉදි­රි­පත් කළ නිල­ධා­රියා සේව­යෙන් ඉව­තට
+-  Panamá reforzará la vigilancia en la frontera con Colombia en medio de crisis migratoria
+-  හෙරිටන්ස් හොටෙල්ස් ඇන්ඩ් රිසෝට්ස්, ගාලු සාහිත්‍ය උලෙළ සමඟ අත්වැල් බැඳගනියි
+-  Humble’s $10 bundle includes several AGDQ 2024 speedrunning favorites
+-  سوناك وزيلينسكي يعلنان في كييف عن اتفاق أمني ثنائي "غير مسبوق"
+-  Baba Alhassan, prima impresie după antrenamentele de la FCSB: ”E normal să fiu obosit”
+-  අපේ යුගයේ පත්‍ර කලා කව් සිළුමිණ තිලකරත්න කුරුවිට බණ්ඩාර
+-  В Добрич започна общинският етап на Конкурса за детска рисунка "С очите си видях бедата"
+-  Canadian offensive lineman Adams taking the long path to potential NFL career
+-  NBA subiría el valor por los derechos de televisión
+-  Emrat/ Si e ngritën perandorinë e drogës grupi i shqiptarëve në bashkëpunim me britanikun: Morën grande nga shteti për të izoluar fermat e kanabisit
+-  California Expands Medi-Cal Coverage To All Undocumented And Low-Income Adults
+-  Drei Monate altes Baby mit Kokainvergiftung im Krankenhaus – Zustand kritisch
+-  Il petrolio chiude in rialzo a New York a 72,68 dollari
+-  සෙබ­ස්ති­ය­න­යිට්ස්-බදු­ර­ලිය අද අව­සන් පූර්ව ගැටුමේ
+-  La Haute autorité alerte les ministres sur la prévention des conflits d'intérêt
+-  విమ్స్‌కు అధునాతన పరికరాలు
+-  Neun Verletzte! - Bus kracht frontal gegen Baum
+-  Kinder von Auto erfasst - Autofahrer übersieht Fußgängergruppe
+-  Mesaj în direct pentru Gigi Becali: ”Eu n-aș renunța la el! E jucător exploziv, de viteză!”
+-  Ziehung am 12. Januar 2024 - Haben Sie den Eurojackpot geknackt?
+-  La Gran Migración del Serengueti, una fuente de historias dignas de Hollywood
+-  La Liga: Siga em direto os resultados e marcadores da 20.ª jornada
