@@ -1,11 +1,51 @@
 # Latest News
--  Premiér je pripravený predniesť v Národnej rade správu o dianí na Slovensku od roku 2020
--  Peking je ochotný posilniť vzťahy s EÚ, tvrdí Si Ťin-pching
--  Voľbu kandidátov na sudcu Ústavného súdu vyhlási v pondelok Pellegrini
--  Legendárny Alain Delon (88) je vo VÁŽNOM STAVE: Už nehovorí a... Drsné spory v rodine!
--  Polícia obvinila za jazdu pod vplyvom alkoholu 55-ročnú Bardejovčanku
--  NEŠŤASTIE RODINY Otec ZOMREL, zúfalá žena KRADLA jedlo pre bábätko! Kde to žijeme? Ľudia sú POBÚRENÍ, ona nemôže ísť do basy
--  Zong 4G and ASA Pakistan (MFB) Limited Sign Corporate Partnership Agreement for Communication and Data Connectivity Solutions
--  School uniform bought in September no longer f**king fits
--  Mum and ex-boyfriend jailed for murdering toddler ‘violently’ in caravan
--  An Essential Token to Include in Your Portfolio In 2024
+-  Nigéria, de José Peseiro, com baixa de última hora para o CAN
+-  O IMI das barragens que está por cobrar ainda poderá vir a ser liquidado. Porquê?
+-  Benfica fecha contratação de ​Álvaro Fernández
+-  Presença de Cabo Verde no CAN abalada por pagamentos em atraso
+-  Cabo Verde lamenta pressão do Portimonense para que Hélio Varela falhasse o CAN
+-  Sale a licitación de nuevo la atención temprana en 407.000 euros para dos años
+-  Sinapsis cerebral puede ser útil contra la esclerosis y el cáncer
+-  Iris Virtanen keräili punaisia mökkejä punaiseen mökkiinsä – kokoelma on nyt nähtävillä Koriston tallilla
+-  مئات الأردنيين يتظاهرون دعما لفلسطين
+-  Telekom: Mega-Störung in ganz Deutschland – Kunden sind auf 180
+-  El jugador argentino que quiere Marcelo Gallardo para Al Ittihad
+-  ABD'de ilk bilançolar beklentileri karşılamadı
+-  Events tomorrow – Jan. 13: Sri Lakshminarasimha Swamy Temple, Sri Yadugiri Yathiraja Mutt
+-  [VIDEO] Lelaki cedera kereta terbabas langgar paip air di Kepala Batas
+-  6. Etnospor Forumu Antalya'da gerçekleşecek
+-  İsrail ile mücadele sorumluluğu kime ait?
+-  Gençlerden dünya liderlerine mektup: Filistin'de soykırımı durdurun
+-  Dursun Özbek'ten Ali Koç'a sert cevap! "Samimiysen açıkla"
+-  Cinayetten yargılanan 3 sanığa müebbet hapis cezası verildi
+-  Cadbury announces huge change to Dairy Milk as milestone reached
+-  Genoa, Gilardino: “Out Ekuban e Thorsby. Problema per Malinovskyi”
+-  Açık Kulak Seste Yeni Trend: HUAWEI FreeClip C-köprülü Tasarım
+-  उद्यमों द्वारा जेनरेटिव AI का उपयोग बढ़ रहा है- नेटस्कोप
+-  Calciomercato Torino, anche il Verona frena per Doig: prima il sostituto
+-  Bids under PM e-Bus Sewa likely by Jan-end or Feb first week: Puri
+-  Girl Scout Cookie season kicks off Saturday — but a box will cost you more
+-  Jordania culpa a Israel de las tensiones regionales y respalda a Sudáfrica en el caso de "genocidio"
+-  सुधा सोसाइटी फ़ाउंडेशन की ओपन स्कूल ने मनाया राष्ट्रीय युवा दिवस
+-  Mercato - OM : Un transfert surprise est quasiment bouclé !
+-  Six Manchester United players set to return from injury vs Tottenham
+-  Küresel ısınma, böcek popülasyonunda artışa sebep oluyor
+-  Babacan'ın Diyarbakır programında gazeteciye saldırı
+-  Bursa İnegöl'de Yokuşlar Camii'si ibadete açıldı
+-  Trendyol Süper Lig'de 21, 22 ve 23'üncü haftanın programı belli oldu
+-  Beşevler Mahallesi Muhtarı Erol Yılmazer: En yoğun şikayet trafik ve otopark
+-  Bursa'da eşini öldürmüştü! Nedeni belli oldu
+-  CHP'nin çağrısını yaptığı mitinge Arzu Çerkezoğlu ve Remzi Çalışkan'da katılıyor
+-  Pençe-Kilit şehidi Samet Aslan için tören
+-  CHP Genel Başkanı Özgür Özel açıklamalarda bulunuyor
+-  Vdes njeriu me fytyrë të deformuar që përqafoi Papa në 2013
+-  A pályakezdők 32 százalékos, a mesterpedagógusok csak 21 százalékos béremelésre számíthatnak
+-  Muž z ghetta versus jednička proti apartheidu. Dvě právnická esa před soudem v Haagu
+-  BREAKING: Supreme Court affirms Francis Nwifuru as Ebonyi State Governor
+-  Zahlungen an US-Einlagensicherung schmälern den Gewinn von JPMorgan
+-  ARCELORMITTAL : Barclays herhaalt Neutraal advies
+-  ARCELORMITTAL: per Barclays il titolo è Neutral
+-  ARCELORMITTAL : El Barclays se mantiene neutral
+-  COVID-19: नए वैरिएंट JN.1 के मामलों की बढ़ी संख्या, 1,000 के पार पहुंची
+-  Sinop’ta korkutan heyelan
+-  Malatya'da 6 Şubat depremine ilişkin yeni görüntü ortaya çıktı
