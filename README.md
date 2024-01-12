@@ -1,51 +1,51 @@
 # Latest News
--  경북도, 토양 오염 실태 조사 완료
--  경주페이, 2024 캐시백 혜택 7~10%
--  안동시, 2024년 주요 업무 계획 보고회
--  임종식 경북도교육감 “세계교육 표준 K-EDU 원년”
--  성주군사회단체협의회, 2024 신년 인사회
--  의성군, 2024년 관광두레사업 선정
--  “이해충돌 위반” 방심위 직원 149명이 위원장을 신고했다
--  Aprovecháran 80% de residuos en Planta Tratadora
--  오유경 식약처장, 강원 동계청소년올림픽 대회 선수촌 식당 점검
--  박수진 실장, 설 성수품 농축산물 지원 현장 점검
--  DSS Denies Arresting Ex-CBN Deputy Gov, Aisha Ahmad
--  Ce mâncare vor primi elevii din 1000 de unități de învățământ prin programul „Masa sănătoasă” în școli
--  Россиянка назвала шокирующее иностранцев блюдо на русском новогоднем столе
--  Carsten Linnemann (CDU): Wovon sein politisches Schicksal abhängt
--  Wahlen in Taiwan: Im Schatten eines übermächtigen Nachbarn
--  Angkor Wat, Maya, Osterinseln: Warum sind Zivilisationen gescheitert?
--  Angkor Wat, Maya, Osterinseln: Warum sind Zivilisationen gescheitert?
--  Vào siêu thị Aeon không bao giờ phải gửi hay niêm phong túi: Tư duy kinh doanh khác biệt của người Nhật khiến thế giới cúi mình
--  My retail job got me AC/DC tickets, chutzpah got me backstage
--  My retail job got me AC/DC tickets, chutzpah got me backstage
--  7 tỷ phú giàu hàng đầu thế giới nhưng sống ẩn dật: Đều là những "tai to mặt lớn" đứng sau các thương hiệu nổi tiếng thế giới
--  My retail job got me AC/DC tickets, chutzpah got me backstage
--  My retail job got me AC/DC tickets, chutzpah got me backstage
--  Enjoy £4 films at UK cinemas this weekend - here's how to claim
--  Hello Kitty Island Adventure introduces a plethora of content in the version 1.4 update
--  Ligue 1 : quelle chaîne diffuse OM - Strasbourg
--  Krieg gegen die Ukraine: So ist die Lage
--  Warum die Erzgebirger jetzt die Männeln rausholen
--  Stadionname, Denkmal: Wie wird Beckenbauer gedacht?
--  Auto und Ampel bei Unfall durch Glatteis beschädigt
--  Russlands Krieg: Lettland kündigt neue Hilfe für Ukraine an
--  Russlands Krieg: Lettland kündigt neue Hilfe für Ukraine an
--  কনকনে শীত উপেক্ষা করে ইজতেমা ময়দান প্রস্তুতির কাজে মুসল্লিরা
--  Everyone can see the animal on the roof – you may have a high IQ if you can work out whether it’s a cat or a dog
--  راولپنڈی میں مبینہ پولیس مقابلہ، 4 ڈاکو ہلاک
--  В США исключили передачу истребителей F-35 Украине
--  US Air Force announces end of search and recovery operations for Osprey that crashed off Japan
--  High school girls basketball: Copper Hills swats and swishes its way to 14-0 with blowout win over Bingham
--  السعال الحاد والمزمن.. كيف تفرق بينهما؟
--  "أحد أكبر إنجازاتي".. أنس النجار يكشف كواليس تقديمه صفقة الفلسطيني وسام أبو علي
--  NTK Thái Công mở bán túi xách 99 nghìn đồng tại showroom xa xỉ: Được ký tặng, chụp hình thoải mái nhưng lưu ý 7 ĐIỀU
--  Kauņas meitenes nolaupītāju atpazinušas Lietuvas īpašo bērnu māmiņas - viņš uzdevies par "autisma ārstu"
--  الغرامة والحبس.. تعرف على عقوبة استخراج خامات المناجم دون ترخيص
--  Стана ясно кой е новият бразилец в Левски
--  Fuel spills from power station affect village streams in Manipur
--  Law enforcement searching for missing man last seen in Carbondale on Jan. 4
--  Bungling jury foreman clears alleged killers in £1million trial by mistake in UK
--  Ayalaan Twitter Review: காத்திருப்புக்கு கிடைத்ததா வெற்றி? சிவகார்த்திகேயனின் “அயலான்” ட்விட்டர் விமர்சனம் இதோ!
--  Electricity Act: NERC Sets New Rules for Mini-grids Operations, Pegs Technical Losses at 4%
--  Rite Foods partners Eniola Badmus on ‘Feed the Needy’ initiative
+-  Prince Harry and Meghan Markle spend Christmas at their mansion in Montecito with Archie and Lilibet after last joining royal family for festive celebrations in 2018
+-  Kazik odwołuje koncerty ze względu na chorobę. Jest oświadczenie artysty
+-  Näkökulma | Sexmanen UMK-kappale Mania tuo lisää rockvaikutteita hänen musiikkiinsa, mutta samalla katoaa aavistus omaperäisyyttä – kuuntele kappale täältä
+-  Русия поиска заседание на Съвета за сигурност на ООН заради ударите на САЩ и Великобритания в Йемен
+-  കല്യാണ്‍ ജൂവലേഴ്സിന്‍റെ 250-‌ാം ഷോറൂം അയോധ്യയില്‍ തുറക്കും; ഉദ്ഘാടനം ചെയ്യുന്നത് അമിതാഭ് ബച്ചന്‍
+-  광명시, 올해 일자리 1만4101개 창출 목표
+-  Статус столицы ДФО останется у Владивостока
+-  남양주시, 주소정보시설 활용 지역안전관리체계 구축
+-  [MD포토] 김대호 '출연자 보다 열정적인 진행자'
+-  [MD포토] 김대호 아나운서 '사극 느낌 살린 그윽한 시선'
+-  [MD포토] 김대호 '24시간이 모자른 아나운서 인사드려요'
+-  스크린골프 더스윙제트 ‘제72회 프랜차이즈 창업 박람회’ 참가
+-  [MD포토] 김대호 '패션만 봐도 24시간이 모자라'
+-  “이제 보직 바꾸고 싶지 않습니다” 공룡들 36세 트랜스포머 클로저 ‘3년 전 결심’…15승 이용찬은 없다
+-  아임비타, 프리미엄 비타민 구미형 젤리 출시
+-  [MD포토] 이기우 '사극으로 만나요'
+-  [MD포토] 이하늬 '내가 밤에 피는 꽃'
+-  빅크, ‘2023 MBC 가요대제전’ 글로벌 생중계 성료
+-  "앞으로 어떻게 할 거냐"는 질문에, 심상정의 답은
+-  Car stolen from Joliet, used in drive-by shooting crashes near 73rd, Aberdeen in Englewood; 3 arrested: police
+-  Handel zwischen China und Russland 2023 auf Rekordwert angestiegen
+-  Новым главой МИД Франции стал супруг премьер-министра
+-  Депутат Бессараб назвала уровень зарплаты для получения пенсии в 50 тысяч рублей
+-  제주해녀 항일운동 정신 계승… 92주년 기념식 거행
+-  Çocukların asla hayır diyemediği kahvaltılık tarif! 3 malzemeli çikolatalı çıtır
+-  İşgalci İsrail gece boyunca saldırdı: Çok sayıda can kaybı var
+-  Tayvan açıkladı: Çin'e ait yüksek irtifa balonu tespit ettik
+-  İsrail Batı Şeria'yı hapishaneye dönüştürüyor: 3 ayda 140 kontrol noktası
+-  IMF “세계 경제 성장세, 작년보다 둔화…코로나 이전 수준 못 미처”
+-  המחוזי בת"א בדיון בתביעת חרדיות שרצו להשתלב באגודת ישראל: "נשים לוקחות פיקוד, רואים זאת בעת הנוכחית"
+-  לראשונה מזה שנים: בצה"ל מתכננים הקמת מוצבים ביישובי יו"ש
+-  Importance, Significance, And Historical Background
+-  National Youth Day: सामूहिक योग कार्यक्रम में मुख्यमंत्री बोले- स्वस्थ शरीर में स्वस्थ मन का वास होता है
+-  [포항 2024 총선] 국민의힘 포항남middot;울릉 예비후보자 lsquo;금고형 이상 세비 반납rsquo; 서약 이어져
+-  정선군, 스마트한 비대면 지방세 신고middot;납부 서비스 시행
+-  동해시, 불법유동광고물 시민수거보상제 운영
+-  동해시, 올해 청년정책에 448억 투입
+-  강원랜드,nbsp;태백시와nbsp;lsquo;시니어헬스케어센터rsquo;원형지 공급 계약 체결
+-  김원이 quot;오직 목포만 생각하며 선거에 임하겠다quot;hellip;22대 총선 예비후보 등록
+-  농진청 감사서 재확인된 대학 '연구사업비 부적정 집행' 백태
+-  전주병원, 혈액수급 헌혈 실천hellip;베트남 학생들 나눔 동참
+-  국민연금공단, 4대사회보험 증명서 발급 개시
+-  우리나라 1972개 섬에 자생하는 무척추동물 1992종 '한눈에'
+-  진안군, 꿈나무 유도 대표팀 전지훈련 참가로 지역경제 활짝
+-  정희균 후보 quot;정치는 의리가 있어야quot; hellip;이낙연 전 대표 탈당 규탄
+-  출생아middot;어린이 급감 속에 hellip; 익산시 출산정책 등 대대적 홍보
+-  열린 행정 '푯대' 익산시 hellip; 정보공개 종합평가 5년 연속 전국 '최우수'
+-  ให้คำมั่น‘เด็กไทย’ ‘เศรษฐา’ลั่น!อนาคตประเทศจะไปในทิศทางที่ดีแน่นอน (ชมคลิป)
+-  พาสปอร์ตไทยติดอันดับ 63 ทรงอิทธิพลของโลกปี 2567
+-  ครั้งแรกของโลก! 'สหรัฐฯ'เตรียมประหารนักโทษด้วยก๊าซไนโตรเจน
