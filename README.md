@@ -1,51 +1,11 @@
 # Latest News
--  リンパ浮腫の退院時セルフケア指導 - thenewsunlimited.com
--  外来診療コミュニケーションが劇的に上手くなる方法 クレームから学ぶ患者満足度を高める接し方・話し方 岸本暢将 篠浦丞 - thenewsunlimited.com
--  現代スポーツのマネジメント論 経営学 としてのスポーツマネジメント序説 - thenewsunlimited.com
--  翌日発送・ｐ値とは何か アンドリュー・ヴィッ - thenewsunlimited.com
--  ツボ刺激療法でなおす 腰痛 (大活字 よく効くツボシリーズ) - thenewsunlimited.com
--  毒物及び劇物取締法解説 第42版 - thenewsunlimited.com
--  COPDのことがよくわかる本 長引くせき、たん、息切れで悩む人に (健康ライブラリーイラスト版) - thenewsunlimited.com
--  腎尿路疾患・神経疾患・物理的化学的因子による障害 (内科学書) - thenewsunlimited.com
--  Ｅｙｅ ｓｕｒｇｅｒｙバトルロイヤル(１)／バトルロイヤル編集委員会(著者) - thenewsunlimited.com
--  薬学生のための実践英語 上鶴重美 - thenewsunlimited.com
--  血管診療技師(CVT)テキスト: 脈管診療にかかわるすべてのスタッフのために - thenewsunlimited.com
--  ど素人でもわかる経営学の本 - thenewsunlimited.com
--  名医のわかりやすい膵臓の病気 第二版 同文名医シリーズ - thenewsunlimited.com
--  腎臓病学エッセンス - thenewsunlimited.com
--  発達障害医学の進歩〈16〉 - thenewsunlimited.com
--  地方の病院は 医師の働き方改革 で勝ち抜ける - thenewsunlimited.com
--  わかりやすい感覚器疾患 日本医師会生涯教育シリーズ 小川郁 〔本〕 - thenewsunlimited.com
--  患者が選ぶ歯科医院とその経営 ポイントはここだ - thenewsunlimited.com
--  そうだったのか 絶対読めるCAG~シェーマでわかる冠動脈造影の読み方 - thenewsunlimited.com
--  頭痛診療のコツと落とし穴 (Pitfalls knack) - thenewsunlimited.com
--  MRSA消毒・除菌と治療―チーム医療で退治できるMRSA(中古品) - thenewsunlimited.com
--  臨床病態学 2巻 - thenewsunlimited.com
--  必携!外来での腎臓病診療アプローチ 富野康日己 〔本〕 - thenewsunlimited.com
--  最新・医療事務用語2600?医療事務に必要な医事・医学用語事典 - thenewsunlimited.com
--  多職種でコロナの危機と向き合う (Nursing Todayブックレット) - thenewsunlimited.com
--  急性膵炎診療ガイドライン 2021第5版 - thenewsunlimited.com
--  注目のエピジェネティクスがわかる?ゲノムの修飾・構造変換と生命の多様性、疾患との関わり (わかる実験医学シリーズ?基本トピックス) - thenewsunlimited.com
--  スポーツ医学ってなんだ - thenewsunlimited.com
--  月刊地域医学 Vol.27-No.10 - thenewsunlimited.com
--  翌日発送・メディカルストレッチング 第２版 丹羽滋郎 - thenewsunlimited.com
--  快適工学 (現代工業経営学全書) - thenewsunlimited.com
--  発達障害 食事・栄養・キレーション療法をご存じですか? 樋田毅 〔本〕 - thenewsunlimited.com
--  医師のアイデンティティー／川田彰得(著者) - thenewsunlimited.com
--  だれでもわかる医療現場のための 病院経営のしくみ２ - thenewsunlimited.com
--  Investigadores põem hipótese de Camões ter nascido em dia de eclipse solar
--  NFL Breakdown: Wild Card round picks
--  Kickoff | Despite Bafana snub, Lakay continues to shine
--  Bangaram Island Lakshadweep: A Must-visit Traveler’s Escapade
--  Odborník varuje: Po lete si nikdy nedávajte horúcu sprchu! Hrozia tieto riziká
--  Týchto 10 emoji väčšina z nás používa v nesprávnych situáciách. Ich význam je iný, ako si myslíte!
--  قصف مدفعي إسرائيلي يستهدف شرق خان يونس
--  Atrapan a “narco” en Jalisco; traía 14 kilos de droga y armas
--  হালখাতার আয়োজন করেও ধারের অর্ধেক টাকা উত্তোলন করা গেল না
--  Turistler Ayasofya’ya 25 Avro ödeyerek girebilecek
--  „Masterplan“ Vertreibung: Trat AfD-Chef Chrupalla vor rechtsextremem Netzwerk auf?
--  Thousands of restaurants and pubs closing across UK blame soaring bills among pressures they face
--  Hatay'da heyelan! Sahil yolu ulaşıma kapandı
--  Bingöl'de doğalgaz zehirlenmesi! 16 kişi, hastaneye kaldırıldı
--  Manisa'da üç gün önce kiraladıkları evden cenazeleri çıktı!
--  Льоб разказва за стратегическата битка с Ауди
+-  Kurs dolara w dół po zaskakującym spadku cen producentów w USA
+-  2024 bedelli askerlik sevk tarihleri ne zaman?
+-  Rize'de köpekler cemaatin arasını daldı!
+-  Artvin'de çatıda dengesini kaybetti, son anda tutundu!
+-  PSOE e BNG unen forzas para acadar un pacto de gobernabilidade en Vilagarcía
+-  לראשונה מתחילת המלחמה: תתאפשר הכנסת תרופות לחטופים בעזה
+-  העדויות נחשפות: "ברצלונה שכרה חבר באיגוד השופטים כדי לזכות בהטבות ספורטיביות"
+-  ময়লার ড্রামে কাঁদছিল নবজাতক
+-  No promise of visa, residence permits for Afghan migrants: Turkish FM
+-  Хитойда 50 йил ишлайдиган ядро батареяси ихтиро қилинди .
