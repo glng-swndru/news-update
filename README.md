@@ -1,51 +1,51 @@
 # Latest News
--  HPE potvrđuje preuzimanje Juniper Networks za 14 milijardi dolara
--  Ericsson Nikola Tesla u 2023. nastavio s novim zapošljavanjima, istraživanje i razvojem novi proizvoda
--  Liga MX: ¡BLINDADOS! Revelan la ÚLTIMA CLÁUSULA de Chivas que está DETENIENDO el fichaje de Chicharito Hernández | FICHAJES 2024
--  ময়মনসিংহে রেললাইন থেকে ক্লিপ খুলে নেওয়ার সময় যুবক আটক
--  তীব্র শীতে জবুথবু দেশ
--  גבר נפצע בינוני באירוע אלימות בכפר סבא
--  বিষখালী নদী থেকে উদ্ধার হওয়া হরিণ অবমুক্ত
--  Bolsa Família 2024: Veja o calendário de pagamentos do programa social
--  Conduce ebria en la N-232, en dirección contraria y acaba colisionando
--  Chiara Ferragni, zyrtarisht nën hetim për mashtrim
--  Comissão Europeia lança desafio a Taylor Swift para apelar ao voto dos jovens
--  Politique. Premier gouvernement de Gabriel Attal : mais où sont les femmes?
--  [1월 13일] 동방정사의 오늘의 운세
--  Sanwo-Olu sends message to Rhodes-Vivour, Jandor after Supreme Court victory
--  Canmlwyddiant Plaid Cymru: Leanne Wood yn “freintiedig iawn” o fod wedi cael chwarae rhan
--  ΚΟΑ: Συνάντηση με τον ΓΣΟ για το Τσίρειο
--  EaseMyTrip ने मालदीव की बुकिंग अनिश्चितकाल के लिए कैंसिल की, कहा- देश पहले, बिजनेस बाद में
--  Impopnen 18 meses de prisión preventiva para imputados en Operación Nido
--  Wirtualna Polska przejęła Wirtualne Media
--  Amca ile yeğen kavgası faciayla bitti
--  코레일, "중부내륙선 KTX-이음 ‘판교역’ 연장 후 이용객 3배 증가"
--  롯데칠성음료, '청하' '백화수복' '레몬진' 등 출고가 17일부터 인하
--  Renfe se reorganiza para transformar la compañía en el marco del plan estratégico 2028
--  "HMR 라인업 확대" 아워홈, 프리미엄 간편식 2종 출시
--  Tubos Reunidos amortiza 107 millones de deuda convertible con una subasta de recompra
--  Noah Holdings informa de las últimas novedades en los procedimientos judiciales sobre fondos de crédito
--  국민연금공단, 4대 사회보험 전자증명서 발급 서비스 개시
--  Los márgenes de las fundiciones de cobre chinas se reducen por la escasez de materia prima
--  Los ingresos del sector gasista se reducen un 11 % de octubre de 2022 a septiembre de 2023
--  JP Morgan gana 49.552 millones en 2023, un 32 % más, tras comprar First Republic
--  Qilian obtiene una prórroga hasta julio para cumplir los requisitos del Nasdaq
--  La CNMC multa con 80.000 euros a Cemesa Amarres Barcelona y Mooring & Port Services
--  Los senadores estadounidenses tienen "profundas preocupaciones" por planes de JBS de cotizar en Nueva York
--  ¿Puede la IA mejorar la investigación forense al encontrar similitudes en las huellas dactilares? Un nuevo estudio desata el debate
--  Belden amplía sus instalaciones en India con una inversión de 40 millones de dólares
--  El Papa interrumpe un discurso diciendo que tiene "un poco de bronquitis"
--  Miles de personas participan en mítines preelectorales en Taiwán; China lanza advertencias
--  Sainz lidera el Dakar, Loeb gana la sexta etapa y al-Attiyah acaba con sus esperanzas
--  Jordania culpa a Israel de las tensiones regionales y respalda a Sudáfrica en el caso de "genocidio"
--  5वीं गारंटी के शुभारंभ पर सिद्दारमैया बोले- युवा निधि युवाओं को कौशल, आर्थिक और सामाजिक शक्ति देगी
--  Cillian Murphy was nervous about riding a horse in 'Oppenheimer: 'I left him in the dust,' says Emily Blunt
--  Una mujer enferma de cáncer devuelve piedras robadas de Pompeya ante el temor a ser víctima de una "maldición"
--  Grave accidente en Ibagué: camioneta se estrelló contra 2 casas al salirse de la vía
--  Meine Wochenschau: Brust oder Hosennaht?
--  Беларускі Чырвоны Крыж пасьля міжнародных санкцый скарачае дапамогу мігрантам
--  Aclaran en Cuba sobre normativa para pensionados y jubilados
--  CES 2024 proves Samsung and LG's best OLED tech isn’t going down in price anytime soon
--  MEDIA ALERT: Equinix Sets Conference Call for Fourth-Quarter and Full- Year Results
--  Kommentar: Ist MP Kretschmer jetzt auch Wirtschaftswissenschaftler?
--  Mar Vermelho. Rota Vasco da Gama está a aumentar preços das exportações nacionais
+-  Husiler: ABD ve İngiltere'nin tüm çıkarları güçlerimiz için meşru hedeflerdir
+-  Cumhurbaşkanı Erdoğan'dan şehit ailelerine başsağlığı mesajı
+-  Ali Erbaş, bıçaklı saldırıda yaralanan Fatih Camisi imamı Galip Usta'yı ziyaret etti
+-  MEB duyurdu! Son hafta ders işlenmeyecek
+-  Neemias Queta consegue quatro pontos na derrota dos Celtics com os Bucks
+-  Not all carbon-capture projects pay off for the climate – we mapped the pros and cons of each and found clear winners and losers
+-  افتتاح الطبعة الثالثة للمعرض الدولي للترقية العقارية والبناء العصري والديكور بالجزائر العاصمة
+-  Bauern-Protest in NRW: Die Demos gehen weiter ++ Wütende Landwirte blockieren Verkehr ++ HIER musst du mit Stau rechnen
+-  Sinopsis Knight Flower, Drakor Comeback Honey Lee yang Tayang 13 Januari 2024
+-  Seloroh Kepala SKK Migas soal Blok Masela: Namanya Proyek Abadi, Nggak Selesai-selesai
+-  Merr flakë automjeti i parkuar në Pogradec, dyshimet e para
+-  Tesla, Almanya'daki Fabrikasında Üretimi Durdurdu: Türkiye'deki Model Y Siparişleri Gecikebilir!
+-  Ini Oleh-oleh yang Dibawa Jokowi saat Bertemu Marcos Jr
+-  Bitcoin ETF'lerine Açılır Açılmaz Kaç Para Yatırıldığı Belli Oldu: İşte Dudak Uçuklatan Meblağ!
+-  Blitzeis im Kreis Paderborn: Mehr als 70 Unfälle im gesamten Kreis
+-  Broadcaster Annie Nightingale dies aged 83: BBC Radio 1’s first female DJ passes away at her home ‘after a short illness’ as family pay tribute to ‘pioneer, trailblazer and inspiration to many’
+-  El CEO de Ryanair informa a Sánchez de su plan para invertir 5.000 millones en España
+-  Jodie Foster regressa à TV 49 anos depois
+-  "Teste do pezinho" permitiu identificar 150 casos de doenças raras em 2023
+-  Citypress | WATCH: Israel accuses SA of ‘vilifying and demonising’ its right to self-defence
+-  BE propõe reduzir IVA da eletricidade para 6% em todas as faturas
+-  China pronta para destruir qualquer tentativa de independência de Taiwan
+-  Defesa israelita nega em tribunal intenção de destruir povo palestiniano
+-  Demand for commodities, raw materials and components at its softest in nearly a year, signaling persistent weakness in the global economy: GEP Global Supply Chain Volatility Index
+-  Procura nos transportes coletivos urbanos aumentou 21% em 2023
+-  Personel taşıyan midibüs ile kamyonetin çarpıştığı feci kazada 9 kişi yaralandı
+-  Oyuncu Erdal Beşikçioğlu, CHP Ankara İl Başkanlığını ziyaret etti
+-  Avrupa'ya kaçmaya hazırlanan terörist yakalandı!
+-  Başkan Ramazan Erkoyuncu: Basın, toplumun gözü, kulağı ve sesi konumundadır
+-  Konyaspor Basket'e göğüs sponsoru
+-  Yabancı turistlerin Ayasofya'ya girişi ücreti 25 euro olacak
+-  UN deplores Israel's refusal to grant access to Gaza
+-  Affirmation as governor victory for rule of law, Lagosians – Sanwo-Olu
+-  Natalie Portman says method acting is a 'luxury women can't afford' – but my research shows how it can empower them
+-  Ketua MPR RI Bamsoet Dorong Peningkatan Kualitas Pendidikan Tinggi Indonesia
+-  Prince Harry’s Living Legends of Aviation Awards comes across as ‘needy’ and ‘slightly pathetic’, royal expert tells PALACE CONFIDENTIAL
+-  Newcastle apresenta déficit financeiro e pode negociar Bruno Guimarães
+-  TOKS autobusų parke Vilniuje žuvo žmogus
+-  Annalena Baerbock: Bundesregierung unterstützt „politisch“ Militäreinsatz gegen Houthis
+-  В Таиланде отменили два концерта иноагента Руслана Белого
+-  12 ألفا فلسطينيا يؤدون صلاة الجمعة في المسجد الأقصى
+-  अपराधलाई आड
+-  Media: Miarka się przebrała. Ultimatum dla Jose Mourinho
+-  Media: Miarka się przebrała. Ultimatum dla Jose Mourinho
+-  India's IIP Grows By 2.4% In November 2023
+-  Value Of Assets Deplete When There Is Delay In IBC Proceeding: RBI Guv
+-  HCLTech Posts Healthy Q3 FY24 Results With 6% Rise In Net Profit
+-  Retail Inflation Rises 4-month High At 5.69% In December
+-  Continúan las condiciones secas en la mayor parte del territorio hondureño
+-  Gazze'de can kaybı 23 bin 708'e yükseldi
