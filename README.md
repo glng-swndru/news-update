@@ -1,51 +1,11 @@
 # Latest News
--  Najave događaja za 12.01.2024. godine (petak)
--  Child bitten in latest dingo attack at popular Queensland island
--  BiHAMK - Oprez zbog poledice
--  MBC ‘바이든-날리면’ 정정보도 판결에...“항소할 것”
--  Artık dışarıda yemek yemiyoruz! Kişi başı yemek fiyatı 300 liraya çıktı
--  Bursa dahil 45 ilde "Narkogüç-43" operasyonu!
--  Mersin'de denize giren 2 çocuk hayatını kaybetti
--  16 ilde eş zamanlı "SİBERGÖZ-14" Operasyonu!
--  Bursa Emniyeti'nden suçtan kaynaklanan mal varlığı değerlerini aklama suçu operasyonu!
--  Fransa'nın yeni Başbakanı Gabriel Attal sevgilisini bakan yaptı!
--  Karayolları uyardı! Yol bakım çalışması var
--  Tüketici Hakem Heyetleri, 707 bin 814 başvuruda 3,9 milyar liralık uyuşmazlığı karara bağladı
--  İran, ABD ve İngiltere'nin Yemen'e saldırısını kınadı
--  Afra Saraçoğlu pembeler içinde!
--  Beren Saat, ödül törenine damga vuran stilini konuşturdu!
--  4 ilde eğitime kar engeli
--  Kocaeli'nde 7 milyonluk vurgun yapan dolandırıcılık şebekesi çökertildi
--  Seçil Erzan bugün 2. kez hâkim karşında
--  3 ex-DPK lawmakers launch new party ahead of April elections
--  Ankara'da 3 bin 759 adet tarihi obje ve 63 sikke ele geçirildi
--  ABD ve İngiliz savaş uçakları Yemen'e hava saldırısı düzenledi
--  Husiler: Yemen'e karşı hiçbir ABD saldırısı cevapsız kalmayacak
--  Pençe-Kilit Operasyonu bölgesinde 1 asker şehit oldu, 1 asker yaralandı
--  'Narkogüç-43' operasyonlarında 305 şüpheli yakalandı
--  Hitna reakcija Rusije: Započeli su novi rat?
--  Luftqualität heute in Heilbronn: Feinstaub-Warnung! Wie schlecht ist die Luftqualität aktuell?
--  Năm 2024, Ngân hàng CSXH tập trung chuyển đổi số, nâng chất lượng tín dụng chính sách
--  Fernando Santos, o ismi ekibine istedi!
--  Juventus'ta Kenan Yıldız gollerine devam ediyor
--  Yaptırımları bir kenara bıraktı: ABD Rus petrolüne geri döndü
--  Galatasaray'a Boey'den bir kötü haber daha!
--  Beşiktaş'ta Aboubakar ve Rosier gelişmesi!
--  Nhận diện những động lực tăng trưởng mới của kinh tế Việt Nam
--  İzmir'de firari çocuk istismarcısı kıskıvrak yakalandı
--  게임한 후 뇌파 검사해보니… [Health]
--  네이버, ‘하이퍼클로바X’ 기반 카타르 아시안컵 스카우트 리포트 선봬
--  두산디지털이노베이션, CES 2024서 데이터이쿠와 패널토의 진행
--  KSTEC, 진양오일씰과 생산계획 및 스케줄링 프로젝트 계약 체결
--  네이버, 개인정보보호 연구 결과 담은 ‘2023 프라이버시 백서’ 발간
--  롯데정보통신-칼리버스, 투모로우랜드와 독점 파트너십 계약 체결
--  [인사] NIA, AI 전문기관 도약 위해 대규모 조직개편 단행
--  에이아이트릭스-중앙대병원, 의료 AI 솔루션 활용 공동연구 ‘맞손’
--  ‘日 아시안컵 우승 발리골’ 이충성 "결승 한일전 보고파, 우승은 일본이 하길"
--  15 снарядов HIMARS уничтожено: расчёт ЗРК «Бук-М1» отработал по воздушным целям в зоне СВО
--  Luftqualität für Ingolstadt heute: Feinstaub-Grenzwert überschritten! Aktuelle Luftqualität in Ingolstadt
--  “컵 들고 있을 뿐인데”…악플 쏟아진 블랙핑크 지수, 무슨일이
--  Dünya əhalisinin 40 faizi 2024-dən SÜLH GÖZLƏMİR
--  На тюменской трассе ограничили движение из-за ДТП с одним погибшим
--  Кристин Лагард: Преизбирането на Тръмп би било заплаха за Европа
--  Οι αστρολογικές προβλέψεις της ημέρας για την Παρασκευή 12 Ιανουαρίου
+-  Today’s weather: Snow in Troodos again
+-  Piratų sostinė ir knibždėlynas. Nušluotas nuo žemės paviršiaus. Kur dingo legendinis Port Rojalis (Video)
+-  Glatteis-Wahnsinn in NRW: Unfälle auf Autobahnen ++ Straßen gesperrt ++ HIER musst du besonders aufpassen
+-  Cameroun :: Affaire Martinez Zogo :Enquête Sur Le Second Commando - Mystères Politiques Et Complexité Judiciaire :: Cameroon
+-  Mali :: La Présence Militaire Française Critiquée, L'alliance Des États Du Sahel Affiche Des Succès
+-  Cameroun :: Voici Les Performances Des Lions Indomptables En 20 Participations À La Can :: Cameroon
+-  Cameroun :: Exclusion De Marlène Emvoutou : Clash Avec Chantal Biya Entraîne Une Rupture Au Mouvement Franckiste :: Cameroon
+-  Cameroun :: Les Tentatives De Faire « Disparaître » Olivier Bibou Nissack Dévoilées :: Cameroon
+-  אילון מאסק מפטר עשרות עובדים: מהפך ברשת החברתית X
+-  W Gminie Niemce szukają imienia dla maskotki. Ogłosili konkurs
