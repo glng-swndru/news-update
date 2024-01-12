@@ -1,51 +1,51 @@
 # Latest News
--  Bertram Derthona: grande sfida al Forum con Milano
--  Reale Mutua Torino ’81 Iren ospita Como Nuoto dopo la pausa natalizia
--  Derby Piemontese per la Reale Mutua Torino ospite di Monferrato Basket
--  La Reale Mutua Fenera Chieri ’76 affronta la capolista Conegliano
--  YouGov preuzima CPS GfK
--  مصرع سيدة دهسها ميني باص داخل موقف فى الدقهلية
--  أبرزها الليزر".. "كاف" يعلن المواد المحظورة في كأس الأمم الإفريقية 2023
--  3 حالات تجعلك تتوقف عن شرب القهوة.. وهذا هو الحد الآمن منها
--  Bienvenue au monastère (C8) : c'est quoi le concept de cette émission avec des célébrités lancée ce soir ?
--  İskoçya Başbakanı'nın eşi: Gazze'deki ailem Türkiye'nin yardımıyla kurtarıldı
--  Bülent Uygun: 5 transfer yapacağız 2'si yerli olacak
--  Taslak hazırlandı! 81 ilde uygulanacak
--  Dursun Özbek'ten Leo Dubois transferi için açıklama
--  Basın toplantısıyla duyurdular! Ermenistan'dan "Türkiye" açıklaması
--  Nieuwjaarstoespraak burgemeester Sjors Fröhlich: 'Ik zie meer dan alleen maar tegenstellingen'
--  Nieuwjaarstoespraak burgemeester Sjors Fröhlich (Vijfheerenlanden): 'Ik zie meer dan alleen maar tegenstellingen'
--  Rivero, OTB en Kruiswijk Groep bij genomineerden Ondernemersprijs Midden-Holland
--  На выставке «Россия» на ВДНХ состоится свадьба воронежских учителей
--  Mental Health: Der lange Weg zur Therapie
--  Objav v bruchu ženy (73) vyrazil lekárom dych: Pozrite sa, čo v nej našli po 35 rokoch
--  Archeológovia v Španielsku objavili 2000-ročný náboj praku, nesie Cézarovo meno
--  Opozícia iniciuje mimoriadny výbor k prípadu riaditeľa TANAP-u, informuje poslankyňa Stohlová
--  Prezidentka Čaputová vyzvala riaditeľov škôl, aby neprehliadali šikanu
--  Za lúpež v Prievidzi hrozí 30-ročnému mužovi osemročné väzenie
--  Mróz pokonał elektryki. Paraliż komunikacji miejskiej i kilkadziesiąt odwołanych połączeń
--  Врачи сообщили тулякам, что кофе защищает от болезни Альцгеймера и Паркинсона
--  Yozgat'ta şap riski nedeniyle geçici tedbir
--  A Don-kanyarban haltak hősi halált
--  В Пензе росгвардейцы проверили пункты размещения детей из Белгородской области
--  „Hart und konsequent“: CDU will gegen Teilnehmer bei AfD-Geheimtreffen vorgehen
--  Media Tenor Zitate-Ranking: Tagesspiegel ist meistzitierte Regionalzeitung
--  В Британии признали виновным педофила, изнасиловавшего двух молодых девушек
--  В Минобороны Китая заявили, что не допустят независимости Тайваня
--  Сотрудники пожарной части колонии-поселения №10 УФСИН России по Ивановской области приняли участие в тушении пожара жилого дома
--  13 Ocak imsak ve iftar vakti 2024: 13 Ocak sahur ve iftar saat kaçta?
--  Hatayspor'da Pendikspor mesaisi sona erdi
--  İskoçya Başbakanı'nın eşinden Gazze mesajı: Türkiye'nin yardımıyla kurtarıldı
--  Kızılcık Şerbeti Görkem kimdir, gerçek adı ne? Özge Özacar hangi dizilerde oynadı?
--  Kişilik testi: Senden nasıl bir elti olur? Kızılcık Şerbeti'nde Nilay mısın Doğa mı?
--  Güney Afrika'dan İsrail'e soykırım tepkisi
--  13 Ocak 2024 ŞOK aktüel ürünleri belli oldu! ŞOK'a cumartesi günü neler geliyor?
--  Pakistan'da bombalı saldırı hazırlığındaki teröristler yakalandı
--  Irak, ABD ve İngiltere'nin Yemen saldırısını kınadı
--  Peygamberimiz üç aylarda nasıl oruç tutardı? Peygamber efendimiz Hz. Muhammed hangi günlerde oruç tutardı?
--  Ne yaptın Arda Güler! Tüm dünya onu konuşuyor
--  12 Ocak reyting sonuçları açıklandı mı? Yalı Çapkını, Kızılcık Şerbeti, Arka Sokaklar reyting sıralaması nasıl?
--  Amadou Ba est catégorique : « Je ne serai pas un président de la République pour faire ça »
--  DPS: Na primjeru Agencije za projektovanje i planiranje prikazano neznanje i neprofesionalizam lokalne vlasti u Nikšiću
--  "בשל הסיכון הנובע ממנו": בית המשפט העליון דחה את הערעור של אלישע ירד
--  BlackRock com lucros de 5 mil milhões em 2023 com ativos sob gestão a ultrapassarem os 10 biliões
+-  Inter-Verona, Bastoni su Duda e Nasca: "Fischia, porca tr...!": l'audio VAR
+-  EA Sports Fc 24: partenza sprint per gli italiani in eLigue 1
+-  Az EP-képviselők 17 százaléka elvenné Orbán-kormány szavazati jogát az EU Tanácsban
+-  اتهام أممي للكيان الصهيوني بعدم احترام القانون الانساني الدولي
+-  حشد مليوني بصنعاء استنفاراً واستعداداً لمواجهة المعتدين
+-  طقس العرب : استمرار فرص الأمطار وهذا موعد انحسار المنخفض
+-  الأمراض المعدية تجتاح غزة وسط نقص حاد في الأدوية
+-  الميثاق الوطني يعقد لقاء استقطابيا في لواء الحسينية بمحافظة معان
+-  الأميرة رجوة تلتقي عقيلة رئيس الوزراء السنغافوري
+-  الاعلام العبري : إصابة 42 جنديا خلال 24 ساعة
+-  Ram Mandir Consecration Sparks Predictions Of Surge In Gold Price
+-  Tata Consumer Products Eyes Organic India Acquisition To Boost Wellness Portfolio
+-  Adrae abre la convocatoria de ayudas Leader
+-  La vieja publicidad de juegos basados en películas (Galería)
+-  Bakan Şimşek'ten cari işlemler açıklaması
+-  El ejército chino dice que «aplastará» cualquier intento de independencia de Taiwán
+-  How To Use A HELOC To Pay For College
+-  Američani z vojaško akcijo odločno nad hutije – stališča Tanje Fajon pa v slogu preklanega jezika!
+-  Los alcaldes optan por la carga mixta de contenedores
+-  NFL Super Wild Card Weekend Preview: Betting tips, highest-graded players and matchups to watch
+-  ממשלת תימן: החות'ים אחראיים לגרירת המדינה לעימות צבאי
+-  דיווח באיטליה: פיולי יסיים את תפקידו במילאן בקיץ, קונטה יחליפו?
+-  Venezuela ya está prepara para recibir el Preolípico Sub-23
+-  Mystery Surrounding Missing IAF Plane Ends, Debris Of An-32 Aircraft Traced After 7 Years
+-  Над 27.5 млн. лв. инвестиции се очакват в Бургаско през 2024 година
+-  منچن آباد میں آزاد گروپ نے پینل کا اعلان کردیا
+-  632.000 euros para construir una planta de compostaje
+-  الكرك: فاعليات شبابية تدعو للتوسع بعمل برامج تدريبية للشباب
+-  انقطاع شبكة الاتصالات والإنترنت عن قطاع غزة
+-  Bartosz Slisz odchodzi z Legii Warszawa. Czas na testy medyczne
+-  Las nuevas medidas gubernamentales de Grecia buscan hacer frente a los precios elevados
+-  El mal uso de la tecnología es la razón por la que odias tu oficina
+-  Presidente López Obrador espera que economía mexicana crezca un 3.5% este año
+-  Israel rechaza acusaciones de genocidio y dice a Corte Internacional que debe defenderse
+-  “얘는 맨유 선수야, 바로 영입해” 퍼거슨 경의 선수 추천→무리뉴 감독은 거절...이 선수는 바로 ‘델레 알리’
+-  Los ataques contra Yemen tuvieron "buenos efectos", la vigilancia continuará: Pentágono
+-  New Dutch gov't advised to bundle all paid leave in one, simplified law
+-  Los conservadores que demandan a Trump en Colorado ven una amenaza a la democracia
+-  Citigroup pierde en el último trimestre de 2023 más de 1.800 millones de dólares
+-  Presidente México presentará en febrero paquete de reformas a Constitución
+-  Precios de contenedores se disparan ante preocupación de que se prolonguen perturbaciones en mar Rojo
+-  Fiscalía Perú pide 34 años de prisión para expresidente Castillo por "delito de rebelión"
+-  La Comunidad Valenciana aumentará las inspecciones contra la vivienda turística ilegal
+-  Presidente Ecuador busca subir impuesto para financiar la seguridad, tres rehenes liberados
+-  Costa lanza concurso para la alta velocidad Lisboa-Oporto y pide no fijarse en España
+-  Turquía entregará documentos para las audiencias del caso sobre genocidio contra Israel: Erdogan
+-  সম্পত্তির জন্য বাবার লাশ দাফন করছে না ৪ সন্তান
+-  El comercio global asume que la ruta del Mar Rojo puede quedar restringida durante meses
+-  চিকিৎসক দৃষ্টির সামাজিক ট্যাবু ভাঙার এক বছর
+-  নোয়াখালীতে গাড়ি চোর চক্রের তিন সদস্য গ্রেপ্তার
