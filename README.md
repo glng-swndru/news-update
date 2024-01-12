@@ -1,11 +1,11 @@
 # Latest News
--  Lundu paedophile caught by international investigation gets 40 years’ jail, 21 lashes for child porn using boy from age 10
--  Microsoft fixed 49 security vulnerabilities including two critical vulnerabilities in the first patch Tuesday for this year
--  A9 restricted at Kessock Bridge due to vehicle breakdown
--  Yemen’s Houthi rebels: US-led strikes killed five people and wounded six
--  Polish General Election 2023
--  Colombia issues warning over soaring forest fire risk
--  Empowering Financial Landscape: The Rise of Account Aggregators
--  ‘What are you 100% sure is true even though you can’t prove it?’ 21 personal conspiracy theories
--  Live updates | Israel will defend itself on Day 2 of the UN top court's genocide hearings
--  Love Island star Tom Clare shares before and after snaps of teeth after surgery to get a new smile
+-  FCC chair asks automakers about plans to stop abusers from using car electronics to stalk partners
+-  'Devastating' - Paul Merson predicts result of Everton showdown v Aston Villa
+-  Dubai First takes the lead as the first issuer in the region to leverage Mastercard Token Connect services
+-  San Carlos diocese opposes copper mining project in Negros Occidental
+-  Vehicle emissions are polluting Malaysia's cities — Siti Haslina Mohd Shafie
+-  Ayodhya to set world record with longest solar light line installation ahead of Ram Mandir Pran Pratishtha ceremony
+-  [CES 2024] Together Toward Tomorrow: Samsung Showcases Eco-Conscious Efforts at the Sustainability Zone
+-  Oppo Reno11 series arrives in India, starting at INR 29,999
+-  Advanced Economies Must Let the IMF Play a Productive Role on Climate
+-  Admyt makes parking simpler and swifter
