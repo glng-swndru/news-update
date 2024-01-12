@@ -1,51 +1,51 @@
 # Latest News
--  Houthi's beloven terug te slaan na aanval VS en VK
--  Rusland eist spoedbijeenkomst Veiligheidsraad na operatie Jemen
--  Frühere VW-Bosse im Zeugenstand - Neues zur Dieselaffäre?
--  Unfall auf der A 72 bei Zwickau: BMW knallt bei Winterwetter in die Mittelplanke
--  ২৪ ঘণ্টার ব্যবধানে ফের ভূমিকম্পে কেঁপে উঠল আফগানিস্তান
--  ভোট হলো, সরকার গঠন হয়ে গেল, এখন যা করবে বিএনপি
--  ZVISION EZ6 Unveiled at CES 2024: Pioneering the Future of SPAD LiDAR Technology
--  DHOST AND MAPXUS FORGE LANDMARK PARTNERSHIP TO REDEFINE THE SMART BUILDING LANDSCAPE IN ASIA
--  עובר לבירה: זוהר זסנו צפוי לחתום היום בבית"ר ירושלים
--  САЩ и Великобритания нанесоха удари по Йемен
--  Slogan, Mascots, emblem of Asian Winter Games unveiled
--  Ben Shelton beats Roberto Carballes Baena, reaches Auckland semifinal
--  Jennifer Lawrence sent Robert De Niro home from her wedding rehearsal dinner
--  Want to skip til laddus? Make gooseberry millet laddus, dates and almond laddu
--  Imran Khan dances to `Pappu Can`t Dance Saala` at cousin Ira`s wedding
--  How I knew I was going through perimenopause: The 12 debilitating signs
--  Local Spotlight: Surf Club Is A Pastel Paean To Early 2000s Queensland
--  Jelena Ostapenko reaches Adelaide International semis, beats Marta Kostyuk
--  จัดหน่วยแพทย์อาสา ตรวจสุขภาพพระ 400 รูป ถวายพระกุศล แด่ "พระสังฆราชฯ"
--  Aussie star’s ‘terrifying’ Gold Coast holiday
--  Shimron Hetmyer left out on West Indies white-ball squads for Australia tour
--  Momen Prabowo Dihampiri Emak-emak Sambil Nangis Saat Kampanye di Bengkulu, Tangannya Dipegang Erat
--  Σεισμός 4,3 Ρίχτερ ανοιχτά της Κρήτης
--  Mark Selby, Allen set up quarterfinal clash At Snooker Masters
--  Israeli Premier League: Maccabi Haifa beat Maccabi Tel Aviv in Israeli classico
--  국민의힘 "생명 관련 필수의료 수가 대폭 인상 · 민간도 공공 수가 적용"
--  יו"ר הפרלמנט הלבנוני: הוכשטיין לא דיבר על נסיגת חיזבאללה מדרום לליטני
--  Chappell advises Australia not to compromise No 3 and 4 position with Smith batting up the order
--  Widows of military officers killed in 1992 plane crash demand compensation
--  Thành phố Westminster chưa chọn được ngày treo cờ vàng
--  Эксперт назвал возможные последствия победы правящей партии на Тайване
--  Malaysia Open: Satwik-Chirag, Ashwini-Tanisha move into quarters, Srikanth loses
--  Current Ram idol to be relocated to new temple on January 19; no ‘darshan’ for 3 days
--  İmam Kazım’ın meşhur akıl risâlesi -5-
--  Matevž Luzar: Sreča v filmu ni generator zgodbe, ampak je prej katarza
--  Matevž Luzar: Sreča v filmu ni generator zgodbe, ampak je prej katarza
--  Ranji Trophy: Assam to face Kerala in foggy condition at ACA Stadium, Barsapara
--  강기윤 경남 창원성산구 의원 발의 quot;영유아보육법 통과quot;
--  박종훈 교육감 “모든 정책을 학교 중심으로”
--  2024년 경남교육청 공공도서관, 이렇게 나아갑니다
--  차기 정치지도자 선호, 이재명 23% 한동훈 22%
--  헤일리, 트럼프 잡는 대항마? 최근 여론조사 지지세 주춤
--  США и Британия пытаются отвлечь внимание от геноцида в Газе, заявили хуситы
--  Ariana Grande Channels Madonna, Smacks Haters on Deceptively Cheerful New Single, ‘Yes, And?’
--  Wetterdienst warnt heute vor Glatteis in Berlin
--  پی ٹی آئی نے خیبرپختونخوا میں ٹکٹ جاری کردیے
--  ŞAD XƏBƏR! Pensiya kapitalı ilə bağlı MÜHÜM YENİLİK: Qərar bu tarixdə TƏSDİQLƏNƏCƏK
--  Tata Consultancy Services discusses India's IT sector outlook
--  Assam Premier Club Cricket championship: Avinav Chowdhury guides Gauhati Town Club to victory
--  "Je veux garder papa encore quelques temps": les SMS de la fratrie Delon avant le début du conflit familial
+-  이번주 상품받으실분들
+-  최상목 "역동성 저하로 잠재성장률 지속 하락…올해 경제재도약 중요한 시기"
+-  경북지역 자동차노동조합 제 13대 위원장에 김종현씨 당선
+-  [부음] 김홍현 LUL코리아 대표 모친상
+-  [속보] 이란, 미·영 후티 공습 규탄 "예멘 주권 침해"…'중동전쟁' 확산 우려도
+-  Міноборони Британії розкрило деталі ударів по єменських хуситах
+-  أبرز أجهزة الصحة الغريبة!
+-  الإقلاع عن الكحول يقلل خطر عدة أنواع من السرطان
+-  دراسة: الصيام المتقطع يبطئ شيخوخة الدماغ
+-  الذكاء الاصطناعي يكشف "المرأة الأكثر جاذبية" في كل قارة
+-  Big win for indigenous languages! Gwanda High to introduce Sesotho subject
+-  เผยวินาทีทอร์นาโดพัดถล่ม อาคารพังทั้งแถบหวิดทับรถในสหรัฐฯ (คลิป)
+-  Mijo zaveo duplo mlađu, evo čime se sada pohvalio: ‘Tko je rekao da nećemo dugo’
+-  구리시, “자동차세 연납하고 4.6% 공제혜택 받으세요”
+-  우리은행, 실시간 비대면 기업 외환거래 ‘우리WON FX’ 출시
+-  하나로 의료재단, '2024 고객감동경영대상' 8년 연속 수상
+-  SCL 서울의과학연구소, '고객감동경영대상' 5년 연속 수상
+-  강동성심병원, '전립선암 극복하기' 건강강좌 개최
+-  용인세브란스병원, 2023 응급의료기관 평가 A등급 획득
+-  에이치플러스 양지병원, '체외진단의료기기 임상적 성능시험기관' 지정
+-  Die Hisbollah verbreitet Terror in Israel – mit unkonventionellem Waffeneinsatz
+-  Açıklanan belgelerden güzellik kraliçesi çıktı! Epstein dosyasında Banu K. detayı
+-  ABD ve İngiltere Yemen'i vurdu! İran'dan kınama
+-  Yakup Köse yazdı: Terör devletine katılanların dönüşü olmamalı
+-  Kefir Global Market Report 2024 - By Size, Share, Trends, Demand, Forecast By 2033
+-  کراچی میں زبردست ٹاکرا، کس کی جیت ہو گی؟اہم خبر
+-  Hot Tub Market Poised for a $5.38 Billion Growth by 2028, Projected CAGR Exceeds 3.46%
+-  ChatGPT之父阿特曼傳婚訊 與工程師男友共諧連理
+-  Azərbaycan dünya insan haqları hesabatında: ‘Narahatedici pozuntular davam edir’
+-  Bezdomni o pomoc proszą rzadko. Nie bądźmy obojętni
+-  2024 bedelli askerlik yerleri ne zaman açıklanacak? Bedelli askerlik yerleri sorgulama e-Devlet!
+-  AÖL sınav sonuçları 2024 ne zaman açıklanacak? Açık Öğretim Lisesi 1. dönem sonuçları bekleniyor!
+-  ABD ve İngiltere neden Yemen'i vurdu?
+-  Son dakika... 16 ilde 'Sibergöz' operasyonu: 120 şüpheli yakalandı
+-  Bazı okullarda zam oranı yüzde 100! Özel okullarda zam ve yemek açmazı
+-  Anadolu Efes - Virtus Segafredo Bologna maçı hangi kanada, ne zaman, saat kaçta?
+-  Piyasalar bir kez daha Moody's'e odaklandı! Türkiye raporu için geri sayım
+-  Çalışanın yemeğinin 170 tl'si devletten... Kalem kalem vergi ve harçlar
+-  Cellulose Nanocrystals Market Trends: Sustainable Practices and Market Impact
+-  Deepfakes, fighter jets and a ‘brutal fight’: As China watches, Taiwan’s presidential campaign goes down to the wire
+-  Hardware Giant Says Stores Free to Celebrate ‘Australia Day’ How They Wish
+-  Gigantische Bauernblockade am Freitag? Das steckt hinter den WhatsApp-Nachrichten – Tageblatt-online
+-  오타니 깜짝선물 받았다…'반려견' 데코핀, 주일미국대사로부터 美 비자 획득
+-  문화예술인 연대회의 "故 이선균, 가혹한 인격살인 당해…진상규명 촉구" 성명서 발표 [전문]
+-  "목표 시청률 15%"…'밤에 피는 꽃' 이하늬, MBC 사극 '연인'→'열녀박씨' 명성 이을까 [MD현장](종합)
+-  শিগগিরই কয়েক লাখ কর্মী নেবে ইতালি
+-  В окупованому Маріуполі прогриміли потужні вибухи
+-  最年輕中風個案僅3歲？醫生揭10大成因 久坐風險高 頭痛恐是先兆
+-  Jio Recharge Plan: Get Free Data And Many Other Benefits With These Packs
+-  Rescataron a un hombre que cayó 6 metros por un barranco en Neuquén
