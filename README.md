@@ -1,11 +1,11 @@
 # Latest News
--  This one common device is destroying sperm count, doctors warn
--  Meduca ofrece cursos de ciencia y tecnología
--  Rebeldes hutíes de Yemen prometen responder ataques
--  Addictively Melodramatic Review of ‘Marry My Husband’: A Delightful Must-Read
--  Nigerian Woman Celebrates Completion of Family Mansion Built by Husband
--  Lánczi Tamás nem félős, de a biztonság kedvéért törölte korábbi Facebook-posztjait
--  Kemény év vár az orosz ellenzékre
--  Έξι Τούρκοι στρατιώτες σκοτώθηκαν σε συγκρούσεις στο βόρειο Ιράκ
--  Të paktën gjashtë ushtarë turq u vranë gjatë sulmeve në Irakun verior
--  Caribe Eficiente, una apuesta por la eficiencia energética en la Región Caribe
+-  Studniówki 2024. Tak bawili się maturzyści z "dziewiątki"
+-  رئيس الفاف يصل أبيدجان لحضور حفل افتتاح كان كوت ديفوار
+-  Sambhal News: एक्सप्रेस ट्रेन प्रभावित, सूबेदारगंज हुई दस घंटे लेट
+-  Tolstoys vydávajú singel Real, pieseň plnú nádeje na nové začiatky
+-  Ariana Grande vniesla svoj obdiv k Madonne do nového singla Yes, and?
+-  طرح إعلان الحلقة الأخيرة من مسلسل "شخص آخر"
+-  أول ظهور لشيماء سيف وزوجها بعد شائعات طلاقهما
+-  후티 반군 때린 美…바이든 “또 공격하면 확실히 대응”
+-  [인터뷰] 김태리 "'외계+인' 2부는 사랑…꽉 찬 미장센 놀랍죠"
+-  Moradabad News: अवैध संबंधों के शक में पति ने छूरी से गला रेतकर की थी महिला की हत्या
