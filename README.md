@@ -1,51 +1,11 @@
 # Latest News
--  St Philip Welfare Office closed
--  Sand Land is releasing on PC and consoles this April, Bandai Namco confirms
--  Warzone players furious as MTZ Interceptor still “broken” despite nerf
--  TETA: Nigerian govt releases new maize variety developed by ABU Zaria, approves cultivation
--  Here’s What We Know About Rolex Smartphone So Far
--  'I'd have $5 at the end of the week': Some home daycares face closure as costs rise
--  ‘My Job Is To Give 100%...’: Axar Eyes T20 World Cup Spot With Good Show In IPL
--  New Toyota GR Yaris debuts at 2024 Tokyo Auto Salon
--  Azerbaijan-based clerics slam US State Department's recent 'special watchlist' decision
--  Twisted ringbots navigate and map unknown environments
--  Perak’s first female Syariah Appeal Court judge describes appointment as tribute to women
--  Covid-19: what to know about UK's new Juno and Pirola variants
--  SUNEXPRESS WAS AWARDED THE 'FASTEST GROWING AIRLINE BRAND' IN GERMANY AND TURKEY AT GLOBAL BRANDS MAGAZINE AWARDS
--  Discounted beach holidays to Spain from £202pp that come with free airport lounges and security fast track
--  Man in Erode gets 20-year jail term for sexual assault of minor girl
--  Rupinder’s mantra for Indian women’s team drag-flickers: ‘Beat first rusher’
--  The small Scottish town that has a hidden sci-fi attraction and a chippy owned by a famous singer
--  Anupam Kher shares BTS pics as he wraps shoot for `Chhota Bheem` film
--  Bioheal CBD Gummies Reviews (Cost and Ingredients) 70 percent Off On Instant
--  Immediate Apex Reviews Analysis By Traders 2024 (AI version)
--  Bharat Jodo Nyay Yatra to begin from a private ground in Manipur`s Thoubal
--  Mahesh Babu watches `Guntur Kaaram` with fans, netizens call it a `hit`
--  India successfully flight tests Akash-NG missile
--  `An Inappropriate decision,` says Digvijaya Singh`s brother on Congress` decline
--  Jesus Revolution movie review: Interesting but not entirely engaging
--  Role Play movie review: A regular, rather uninteresting regurgitated thriller
--  IMF announces immediate disbursement of $700 mn to Pakistan
--  DeeOne mocks Phyna for calling him gay
--  Children’s hospital remains 95 per cent full
--  Pharmacists’ new powers to treat 7 new conditions WITHOUT prescription kick in this month – are you affected?
--  Sven-Göran Eriksson opens up on ‘devastating’ cancer diagnosis and looks back on England joy and tells talkSPORT his hope to see Wembley again
--  Unlocking #HerAmbitions : Second edition of TikTok Creator Hub to empower women in business
--  Calum Best faces tense wait of up THREE MONTHS to find out if he’ll spend years in jail over ‘sex assault’ at Ibiza club
--  PSC partners with PRISAA on grassroots sports
--  Sensex, Nifty surge to lifetime highs; powered by rally in IT stocks
--  Yemen: Sunak urged to recall Parliament to discuss Red Sea strikes
--  Assam’s Kaziranga National Park records 27% increase in waterbirds
--  Azerbaijan conducts practical seminar on media's role, responsibilities at presidential election (PHOTO)
--  Newcastle United in contact to sign 24-year-old Brazilian midfielder
--  Britain’s Got Talent star shares desperate appeal to find cousin who vanished 7 days ago as cops search river
--  C-DoT commits to developing security solutions as per needs of Indian Armed Forces
--  Scottish Rugby chief executive Dodson set to step down this summer
--  Jason Momoa’s ‘On the Road’ Lifestyle Since Lisa Bonet Divorce
--  Top 15 best games like Clash of Clans
--  Key 10-year Treasury yield hovers below 4% ahead of PPI, bank earnings
--  Israel rejects genocide accusations at World Court
--  Michael Jackson biopic, starring late singer’s nephew, to release in 2025
--  Palaye Royale Release ‘umakemenotwannadie’ & Announce New EP
--  Philippines Dismisses Grave-Threats Case Against Duterte
--  Government taking steps to boost FDI: President Alvi
+-  This Morning in chaos as Alison Hammond’s phone goes off live on air – after she leaves it on set
+-  Biden Admin Announces $623 Million for EV Charging Network
+-  Tough debate — Lyle Foster mental health matter more complicated than pundits and naysayers proclaim
+-  Historic English market town that’s home to the UK’s best pub – and a top theme park
+-  Kartik Aaryan extends birthday wish to his co-star Gajraj Rao
+-  'If nothing goes wrong, Tadej is boss’ - Adam Yates on the Tour de France and life with Pogacar
+-  Why is Australian Open 2024 starting on a Sunday for the first time in its history?
+-  Retired Engineer Whose Home Was Flooded 11 Times Builds Defense Wall to Keep It Safe and Dry
+-  Pella Christian Eighth Grader Holds Bracelet Fundraiser for Families in Perry
+-  CJP says ECP was ‘overtly generous’ with PTI during its govt, gave party 2 years to hold internal polls
