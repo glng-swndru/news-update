@@ -1,11 +1,11 @@
 # Latest News
--  ECP extends time for election candidates to withdraw nominations
--  Bare-handed snake wranglers catch deadly king cobra hiding in man’s house
--  BREAKING: President Tinubu holds emergency meeting with APC governors in Aso Rock
--  SEC Notifies Revision Schedule For Updation Of Panchayat Electoral Roll-2024
--  Like father like son: Springboks star’s son gets his first haircut [pictures]
--  Alina Habba, Donald Trump Court Sketches Spark Avalanche of Jokes
--  Holly Willoughby breaks silence for the first time since This Morning departure
--  Soccerladuma | 3 Massive Issues Pitso May Have To Tackle
--  Why APC built church in national secretariat – Ganduje reveals
--  Omar Condemns Shooting Of TV Show Inside J&K Assembly Complex
+-  Premiér je pripravený predniesť v Národnej rade správu o dianí na Slovensku od roku 2020
+-  Peking je ochotný posilniť vzťahy s EÚ, tvrdí Si Ťin-pching
+-  Voľbu kandidátov na sudcu Ústavného súdu vyhlási v pondelok Pellegrini
+-  Legendárny Alain Delon (88) je vo VÁŽNOM STAVE: Už nehovorí a... Drsné spory v rodine!
+-  Polícia obvinila za jazdu pod vplyvom alkoholu 55-ročnú Bardejovčanku
+-  NEŠŤASTIE RODINY Otec ZOMREL, zúfalá žena KRADLA jedlo pre bábätko! Kde to žijeme? Ľudia sú POBÚRENÍ, ona nemôže ísť do basy
+-  Zong 4G and ASA Pakistan (MFB) Limited Sign Corporate Partnership Agreement for Communication and Data Connectivity Solutions
+-  School uniform bought in September no longer f**king fits
+-  Mum and ex-boyfriend jailed for murdering toddler ‘violently’ in caravan
+-  An Essential Token to Include in Your Portfolio In 2024
