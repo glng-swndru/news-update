@@ -1,51 +1,11 @@
 # Latest News
--  كيربي: أمريكا تدرس إعادة الحوثيين إلى قائمة الإرهاب
--  برلماني: جهود السيسي لوقف إطلاق النار في غزة محل اهتمام وتقدير العالم
--  بلاغ كيدي وعلاقة آثمة.. تفاصيل ضبط والدة رضيع ألقي في الشارع بالدقهلية
--  "العدل الدولية" تعلن انتهاء جلسات الاستماع بقضية جنوب أفريقيا ضد إسرائيل
--  أنشطة "التنمية المحلية" في أسبوع: افتتاح المرحلة الأولى من مشروعات المنطقة اللوجستية بدمنهور
--  الحوثيون: سوف نخوض المعركة وننتصر وسنهزم بوارجهم وغواصاتهم
--  فيديو وصور.. المئات يتظاهرون أمام البيت الأبيض تنديدًا بهجمات أمريكا على اليمن
--  البيت الأبيض: بايدن لن يتردد في اتخاذ مزيد من التحركات بالبحر الأحمر
--  A KSH transzparens módon tevékenykedik
--  FK Velež poslao golmana na posudbu u NK Neretva iz Metkovića
--  The Cadillac CT5-V With Super Cruise Is a Future I Can Support
--  سر ارتداء جنود الاحتلال خوذة غريبة الشكل خلال الحرب على غزة
--  Světoznámý britský dirigent čelí obvinění ze sexuálního deliktu s dítětem, zadrželi ho na nádraží
--  İYİ Parti'de bir istifa daha!
--  Bursaspor'a transfer yasağı!
--  Bolu geçişinde kar kalınlığı 10 santimetreye ulaştı
--  Centene completa la venta de Circle Health a Pure Health
--  La bolsa pierde el 0,69 % en su peor semana desde mediados de diciembre
--  Ciena se considera un activo de alto valor a un precio reducido - Evercore ISI
--  Lavreysen en Hoogland plaatsen zich voor halve finales EK sprint
--  À Kinshasa, le fleuve Congo déborde
--  Taylor Swift travaillerait-elle pour le ministère de la Défense des États-Unis? Le Pentagone réagit !
--  Abatidos cinco terroristas y 329 detenidos por las Fuerzas Armadas en Ecuador
--  Nach Schlägen gegen Huthi fordert UN-Chef: Resolution einhalten
--  في الرياض.. حدث تاريخي في كلاسيكو ريال مدريد وبرشلونة
--  The Summer I Turned Pretty Season 3 Filming Start Date Revealed for Hit Amazon Series
--  “Bunun nəticəsində bütün planet alovlana bilər”
--  Grève surprise des pilotes de Brussels Airlines, 70% à 80% des vols annulés samedi
--  Demandarán al presidente de la ALD por desacato al TCP
--  Катар обыграл Ливан в матче открытия Кубка Азии-2024
--  Marmara Denizi'nde panik anları: Dalgalar Adalar vapurunu neredeyse batıracaktı!
--  Jest oświadczenie Prokuratury Krajowej po decyzji Bodnara
--  Trudeau: Kanada nije dala sredstva, ali podržavamo američke napade
--  Najave događaja za 13.01.2024. godine (subota)
--  Masovni protesti u Sani nakon napada SAD-a i Velike Britanije na jemenske pobunjenike
--  Bill Ackman Forming Think Tank to Continue Higher Ed Crusade
--  Announcement of events for Saturday, 13 January 2024
--  Ελλάδα: Χαμός στις πωλήσεις καινούργιων αυτοκινήτων!
--  Ešteže sa nestal hokejistom. Slovenský animátor Dávid Štumpf sa presadil v Amerike a získal EMMY
--  'Dijital Dergicilik Okulu' yeni editör adaylarını arıyor: Başvurular başladı
--  Yeni Şafak'ın sevilen serisi Hafıza'nın yeni bölümü yayında: Büyük İsrail'in kuruluşu için neler yapılıyor?
--  O Poio Pescamar procura a sorpresa contra o Pescados Rubén Burela
--  مجيديع يواسي بوفاة العميد عبدالله زمام
--  الأمين العام يواسي آل البعداني
--  مجلس النواب ينتقد عنصرية مجلس الأمن وإزدواجية معاييره
--  Военный рассказал об основном типе применяемых ВСУ беспилотников
--  Ancient Greek palace where Alexander the Great was proclaimed king reopens
--  Jodie Foster Reveals Robert De Niro and Martin Scorsese’s Fear During ‘Taxi Driver’ Set
--  Bakı Dövlət Sirkinin fəaliyyəti nə vaxt bərpa ediləcək? - VİDEO
--  Yaxın Şərqdə münaqişə Bakıya şans tanıdı: cəmi 11 günə…
+-  דובר צה"ל בראיון לתקשורת הערבית: "חיסלנו בכירים בחמאס באמצעות מודיעין ותחמושת מדויקים"
+-  Apple’s Usher Super Bowl Trailer Features LeBron James, J Balvin And Jung Kook; Halftime Show Billed As “30 Years In The Making”
+-  „És aki a mi boldog, fényes jövőnkben nem bízik, az áruló” – Virág elvtárs szavaival üzentek Lánczi Tamásnak
+-  The ‘Mean Girls’ Original Cast Cameo That Audiences Are Screaming Over
+-  'Ülkemizin gözü önünde konuşmaya davet ediyoruz'
+-  Dünya yıldızı Bonucci, ilk antrenmanına çıktı
+-  قطر يفتتح كأس اسيا بالفوز على لبنان
+-  Trump Scores Rare Legal Win With Pyramid Scheme Lawsuit
+-  انتقادات أميركية لتأخر إدارة بايدن في الرد على تهديدات الملاحة
+-  চার পাশে সিসি ক্যামেরা, তবু উদ্ধার হয়নি শত ভরি স্বর্ণ
