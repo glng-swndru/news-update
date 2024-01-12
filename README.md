@@ -1,11 +1,51 @@
 # Latest News
--  Persecución de ‘troopers’ deja 3 heridos
--  'อิสราเอล'ขึ้นศาลโลก แก้ต่างคดีฆ่าล้างเผ่าพันธุ์ชาวปาเลสไตน์
--  Επίδομα θέρμανσης με ρεύμα: Λίγες ημέρες ακόμα για την αίτηση - Πού θα την κάνετε
--  男性的“缩短”寿命行为：揭秘危害健康的因素
--  哪些食物会影响人的寿命？千万管住嘴
--  Porsche Readies Self For Hydrogen Fuel Cell Car…Maybe!
--  [문화예술계 “고(故) 이선균에 가해진 ‘인격살인’…‘이선균 방지법’ 추진”
--  [차단숲 조성하니, 미세먼지 1.7배 빨리 감소
--  [주식카톡방 완전무료 선언” 파격결정
--  Women's Tour Down Under: Ally Wollaston sprints to stage 1 victory
+-  ยิปซีพยากรณ์ดวงรายวัน ประจำวันศุกร์ 12 มกราคม 2567
+-  ผอ.กกท. ภาค 5 ลุยเมืองงาช้างดำ ตรวจงานเยี่ยมศูนย์วิทยฯ กกท.จ.น่าน
+-  Foreign Investors Remain Net Buyers of S. Korean Stocks in December
+-  Astrologer arrested for duping woman of lakhs, rape bid in Bhubaneswar
+-  대전시 서구, 내 집 주차장 갖기 사업 보조금 지속 지원
+-  민경원 순천향대 교수 교육부 장관 표창hellip;lsquo;영화의 이해rsquo; 인기
+-  YCP: ఎమ్మెల్యే సిద్ధారెడ్డి అనుచరులను టార్గెట్ చేసిన వైసీపీ
+-  Playa, torneo de tejo y una tarde de fútbol en familia: las vacaciones de Guillermo Andino y Caro Prat en Punta del Este
+-  تفسير حلم الحلق الذهب في المنام.. دلالة خير أم شر؟
+-  دولة لا تغيب عنها الشمس لمدة 3 أشهر.. «الليل زي النهار»
+-  Cementerio de submarinos nucleares de la Armada de EE. UU.
+-  Ikuti Del Piero, Hattrick di Coppa, Milik tak Merasa Jadi Pemain Cadangan di Juventus
+-  Over 100,000 Indonesians in Kuala Lumpur Missing from Final Voters List, KIPP Says
+-  NSW Farmers calls for ACCC inquiry into big supermarkets’ ‘excessive profits’ in wake of Food and Grocery Code inquiry
+-  Das WEF von A bis Z
+-  Prabowo Subianto Sebut Bahasa Elite Omon-Omon Kosong
+-  Middle East CEOs the Most Forward-Looking | AlixPartners Disruption Index 2024
+-  Las noticias más importantes del 11 de enero en México
+-  2024 New Year's greetings to scientists and information and broadcasters
+-  Múltiples protestas en Estados Unidos a favor de Palestina y en contra del conflicto Israel-Gaza
+-  Tramitará credencial de elector Consulado de México en El Paso
+-  원칙과상식, 신당 계획 발표
+-  원칙과 상식 '미래대연합' 창당 선언
+-  원칙과상식, '미래대연합' 창당 본격화
+-  원칙과상식, '미래대연합' 창당 본격화…박원석·정태근 합류
+-  홍준표 "예타 면제 안되면 달빛철도법 의미없어…그럴바엔 다음 국회때 다시 추진"
+-  국민의힘, '과학·법조' 영입 인재 발표…"현장 밀착형"
+-  반중 vs 친중 vs 중립…대선 D-1, 3갈래로 쪼개진 대만
+-  تأهب إسرائيلي وتوقع أميركي برد الحوثيين على الضربات
+-  সাধন চন্দ্র দ্বিতীয়বার মন্ত্রী হওয়ায় নওগাঁয় আনন্দমিছিল
+-  Tata Power Inks Rs 70,000 Cr MoU For Hybrid Renewable Projects In Gujarat
+-  ABD ve İngiltere'den Yemen'e ortak saldırı
+-  Don’t Let Anyone Derail Your Dreams of Home Ownership, Ruto Urges Kenyans
+-  Прем'єр Британії Сунак підтвердив обстріл Ємену
+-  Ngả mũ Brahim Diaz
+-  Una doble eliminación en ‘Masterchef Celebrity Ecuador’ deja fuera de la competencia a ‘Paty’ Terán y a Raúl
+-  กรมพลศึกษา ส่งตัวแทนร่วมประชุมที่อาเซี่ยน ณ กรุงฮานอย เวียดนาม
+-  Anies Baswedan Hitung Biaya Hidupkan Jalur Kereta Sumatera: Lebih Murah dari Jalan Tol
+-  El tiempo en Priego de Córdoba: previsión meteorológica para hoy, viernes 12 de enero
+-  जसपाको राजनीतिक प्रतिवेदन: सत्ता टिकाउनमै सरकारको बढी ध्यान गयो
+-  แวดวงคนกีฬา วันที่ 12 มกราคม 2567
+-  El tiempo en Pozoblanco: previsión meteorológica para hoy, viernes 12 de enero
+-  5 pasos para conseguir un aumento en Nobank
+-  All The Trending Memes This Furahiday
+-  El tiempo en Palma del Río: previsión meteorológica para hoy, viernes 12 de enero
+-  আন্তর্জাতিক আদালতে আত্মপক্ষ সমর্থনে বক্তব্য দেবে ইসরায়েল
+-  El tiempo en Montilla: previsión meteorológica para hoy, viernes 12 de enero
+-  Tietjens to be inducted in Walk of Fame
+-  El tiempo en Lucena: previsión meteorológica para hoy, viernes 12 de enero
+-  El tiempo en Córdoba: previsión meteorológica para hoy, viernes 12 de enero
