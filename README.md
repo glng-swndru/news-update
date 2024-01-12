@@ -1,51 +1,51 @@
 # Latest News
--  Prince Harry and Meghan Markle spend Christmas at their mansion in Montecito with Archie and Lilibet after last joining royal family for festive celebrations in 2018
--  Kazik odwołuje koncerty ze względu na chorobę. Jest oświadczenie artysty
--  Näkökulma | Sexmanen UMK-kappale Mania tuo lisää rockvaikutteita hänen musiikkiinsa, mutta samalla katoaa aavistus omaperäisyyttä – kuuntele kappale täältä
--  Русия поиска заседание на Съвета за сигурност на ООН заради ударите на САЩ и Великобритания в Йемен
--  കല്യാണ്‍ ജൂവലേഴ്സിന്‍റെ 250-‌ാം ഷോറൂം അയോധ്യയില്‍ തുറക്കും; ഉദ്ഘാടനം ചെയ്യുന്നത് അമിതാഭ് ബച്ചന്‍
--  광명시, 올해 일자리 1만4101개 창출 목표
--  Статус столицы ДФО останется у Владивостока
--  남양주시, 주소정보시설 활용 지역안전관리체계 구축
--  [MD포토] 김대호 '출연자 보다 열정적인 진행자'
--  [MD포토] 김대호 아나운서 '사극 느낌 살린 그윽한 시선'
--  [MD포토] 김대호 '24시간이 모자른 아나운서 인사드려요'
--  스크린골프 더스윙제트 ‘제72회 프랜차이즈 창업 박람회’ 참가
--  [MD포토] 김대호 '패션만 봐도 24시간이 모자라'
--  “이제 보직 바꾸고 싶지 않습니다” 공룡들 36세 트랜스포머 클로저 ‘3년 전 결심’…15승 이용찬은 없다
--  아임비타, 프리미엄 비타민 구미형 젤리 출시
--  [MD포토] 이기우 '사극으로 만나요'
--  [MD포토] 이하늬 '내가 밤에 피는 꽃'
--  빅크, ‘2023 MBC 가요대제전’ 글로벌 생중계 성료
--  "앞으로 어떻게 할 거냐"는 질문에, 심상정의 답은
--  Car stolen from Joliet, used in drive-by shooting crashes near 73rd, Aberdeen in Englewood; 3 arrested: police
--  Handel zwischen China und Russland 2023 auf Rekordwert angestiegen
--  Новым главой МИД Франции стал супруг премьер-министра
--  Депутат Бессараб назвала уровень зарплаты для получения пенсии в 50 тысяч рублей
--  제주해녀 항일운동 정신 계승… 92주년 기념식 거행
--  Çocukların asla hayır diyemediği kahvaltılık tarif! 3 malzemeli çikolatalı çıtır
--  İşgalci İsrail gece boyunca saldırdı: Çok sayıda can kaybı var
--  Tayvan açıkladı: Çin'e ait yüksek irtifa balonu tespit ettik
--  İsrail Batı Şeria'yı hapishaneye dönüştürüyor: 3 ayda 140 kontrol noktası
--  IMF “세계 경제 성장세, 작년보다 둔화…코로나 이전 수준 못 미처”
--  המחוזי בת"א בדיון בתביעת חרדיות שרצו להשתלב באגודת ישראל: "נשים לוקחות פיקוד, רואים זאת בעת הנוכחית"
--  לראשונה מזה שנים: בצה"ל מתכננים הקמת מוצבים ביישובי יו"ש
--  Importance, Significance, And Historical Background
--  National Youth Day: सामूहिक योग कार्यक्रम में मुख्यमंत्री बोले- स्वस्थ शरीर में स्वस्थ मन का वास होता है
--  [포항 2024 총선] 국민의힘 포항남middot;울릉 예비후보자 lsquo;금고형 이상 세비 반납rsquo; 서약 이어져
--  정선군, 스마트한 비대면 지방세 신고middot;납부 서비스 시행
--  동해시, 불법유동광고물 시민수거보상제 운영
--  동해시, 올해 청년정책에 448억 투입
--  강원랜드,nbsp;태백시와nbsp;lsquo;시니어헬스케어센터rsquo;원형지 공급 계약 체결
--  김원이 quot;오직 목포만 생각하며 선거에 임하겠다quot;hellip;22대 총선 예비후보 등록
--  농진청 감사서 재확인된 대학 '연구사업비 부적정 집행' 백태
--  전주병원, 혈액수급 헌혈 실천hellip;베트남 학생들 나눔 동참
--  국민연금공단, 4대사회보험 증명서 발급 개시
--  우리나라 1972개 섬에 자생하는 무척추동물 1992종 '한눈에'
--  진안군, 꿈나무 유도 대표팀 전지훈련 참가로 지역경제 활짝
--  정희균 후보 quot;정치는 의리가 있어야quot; hellip;이낙연 전 대표 탈당 규탄
--  출생아middot;어린이 급감 속에 hellip; 익산시 출산정책 등 대대적 홍보
--  열린 행정 '푯대' 익산시 hellip; 정보공개 종합평가 5년 연속 전국 '최우수'
--  ให้คำมั่น‘เด็กไทย’ ‘เศรษฐา’ลั่น!อนาคตประเทศจะไปในทิศทางที่ดีแน่นอน (ชมคลิป)
--  พาสปอร์ตไทยติดอันดับ 63 ทรงอิทธิพลของโลกปี 2567
--  ครั้งแรกของโลก! 'สหรัฐฯ'เตรียมประหารนักโทษด้วยก๊าซไนโตรเจน
+-  분노 삼킨 봉준호 감독 “이선균 KBS 단독보도 경위 밝혀라”
+-  ‘바이든-날리면’ 패소 MBC “국민 대다수, 대통령실 ‘날리면’에 부동의”
+-  바이든 기소 우크라이나 검사 "암살 위험 처했다" 폭로
+-  '신생아 매매'로 200만원 챙긴 20대 여성 징역 3년 구형
+-  다시 고개 든 '단기납 종신보험' 경쟁...환급률 130% 넘겼다
+-  핌코코리아, 이상근 한국 지역 대표 선임
+-  ผวาปะทะ คปท.!‘เสื้อแดง’หวั่นถูกลากสู่ขัดแย้ง งดให้กำลังใจ‘ทักษิณ’
+-  ยกก้น‘นักโทษเทวดา’โดนเผด็จการกลั่นแกล้ง ทำทุกอย่างตามระเบียบราชทัณฑ์
+-  พร้อมเข้า‘สภาฯ’ ‘นายกฯ’ยันตอบกระทู้ทุกวันพฤหัส หากไม่ติดภารกิจ
+-  ‘นายกฯ’ไหว้หลวงพ่อทันใจ วัดพระธาตุดอยคำ ขอพรให้บ้านเมืองเจริญรุ่งเรือง
+-  Nie widać końca zmian w prawie pracy [PODCAST]
+-  ทีมงานยืนยัน Vampire Survivors จะมี Cross-Saves ในเร็ว ๆ นี้ และโหมด CO-OP กำลังอยู่ในการพัฒนา
+-  Tres valores del Ibex 35 limpios de deuda para evitar sustos como el de Grifols
+-  ¿Efectivo o acciones? Sacyr ofrece dividendo flexible a sus accionistas
+-  'Merry Christmas' Review: The Devil's In the Details In Sriram Raghavan's Latest
+-  Vorverkauf für Caspar David Friedrich in Berlin
+-  Sachsens Justiz steht vor einem personellen Umbruch
+-  Tuchel zum Hitzfeld-Geburtstag: "Gentleman mit eigener Aura"
+-  Кошка Тейлор Свифт богаче её бойфренда
+-  민주당 '출마 적격' 판정 김의겸, 전북 군산 예비후보 등록
+-  전주시-LA한인회 교류협력 협약…'투자 유치 활성화'
+-  캠코, 국유부동산 81건 공개 대부·매각
+-  이재명 피습 당시 입었던 셔츠, 폐기 직전 경찰이 수거
+-  [MD포토] 이하늬 '한복 만큼 예쁜 투피스 자태'
+-  [MD포토] 이하늬 '보조개 미소가 예쁜 배우'
+-  [MD포토] 장태유 'SBS아닌 MBC에서 사극을'
+-  [MD포토] 이하늬 '매력 만큼 깊은 움푹 보조개'
+-  네이버, 카타르 아시안컵 ‘AI리포트·오픈톡’ 서비스 제공
+-  [MD포토] 이하늬 '미소 드리는 연기를'
+-  디마이너스원, '서울영상광고제' 금상 포함 6관왕 쾌거
+-  [MD포토] 이종원 '종사관으로 열연'
+-  [MD포토] 이하늬 '보조개 미소'
+-  [[리얼푸드] ‘킷캣 녹차’ 구입 쉬워진다…네슬레코리아, 국내 채널 확장
+-  [[박정규의 작살] 용인서 벌어진 가짜뉴스 생태계…중앙지 기자의 오보→정치권 이용
+-  Код за опасно време е обявен в части от страната днес, температурите падат много
+-  Dorival Junior promises to turn Brazil’s plight around
+-  เตือน "วันเด็ก" ฝุ่น PM2.5 ยังสูง แนะเช็กค่าฝุ่น-สวมแมสก์
+-  Is Barry Gibb Gay? The Truth About His S*xual Orientation
+-  กมธ.ตำรวจ​ ลั่นแค่ไหนแค่นั้น รพ.ตำรวจ ให้สุดชั้น 6 ไม่ถึง "ทักษิณ"
+-  قافلے دل کے چلے
+-  3 şehirde eğitime kar engeli
+-  Lil Nas X Makes A Divine, Miraculous Comeback In His New Video For ‘J Christ’
+-  Tre menn siktet for drapsforsøk etter voldshendelse på Nesodden
+-  Aumento en el canon de arrendamiento impacta a inquilinos en Risaralda
+-  Case registered against actor Nayanthara, seven others over film Annapoorani in Thane district
+-  Iraq pushes for early release of 2024 budget
+-  ISW: Студовете създават благоприятна почва за механизирани маневрени бойни действия в Украйна
+-  Глава Пентагона Остин контролировал удары по объектам в Йемене из госпиталя
+-  "رأس الأفوكادو" يرفع طموحات المغرب في كأس إفريقيا بعد إنجاز مونديال 2022
+-  Autoinjector Market Size, Share, Trends, Report and Forecast 2024-2032
