@@ -1,11 +1,11 @@
 # Latest News
--  Azerbaijan's entrepreneurial activity growing at tremendous pace
--  Australian Open, Cobolli e Zeppieri qualificati. Out Napolitano e Vavassori
--  MasterChef 'on fire', il gioco delle coppie: "Mi strizza il capezzolo"
--  İstanbul'da en çok tüketilen meyve ve sebze belli oldu
--  Attouda Antik Kentine ilk kazma vuruluyor
--  Türk futbolunda devrim! TFF yeni sistemi duyurdu
--  BM: İsrail yardım sevkiyatlarını engelliyor
--  Grip vakaları için uzmanlardan tedbir çağrısı
--  Glisemik indeksi çikolatadan yüksek! Bu besini bırakan anında 2 kilo veriyor
--  Emekliye ek zam düzenlemesi! Çalışma Başkan Erdoğan'a sunulacak
+-  Lundu paedophile caught by international investigation gets 40 years’ jail, 21 lashes for child porn using boy from age 10
+-  Microsoft fixed 49 security vulnerabilities including two critical vulnerabilities in the first patch Tuesday for this year
+-  A9 restricted at Kessock Bridge due to vehicle breakdown
+-  Yemen’s Houthi rebels: US-led strikes killed five people and wounded six
+-  Polish General Election 2023
+-  Colombia issues warning over soaring forest fire risk
+-  Empowering Financial Landscape: The Rise of Account Aggregators
+-  ‘What are you 100% sure is true even though you can’t prove it?’ 21 personal conspiracy theories
+-  Live updates | Israel will defend itself on Day 2 of the UN top court's genocide hearings
+-  Love Island star Tom Clare shares before and after snaps of teeth after surgery to get a new smile
