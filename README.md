@@ -1,51 +1,51 @@
 # Latest News
--  이번주 상품받으실분들
--  최상목 "역동성 저하로 잠재성장률 지속 하락…올해 경제재도약 중요한 시기"
--  경북지역 자동차노동조합 제 13대 위원장에 김종현씨 당선
--  [부음] 김홍현 LUL코리아 대표 모친상
--  [속보] 이란, 미·영 후티 공습 규탄 "예멘 주권 침해"…'중동전쟁' 확산 우려도
--  Міноборони Британії розкрило деталі ударів по єменських хуситах
--  أبرز أجهزة الصحة الغريبة!
--  الإقلاع عن الكحول يقلل خطر عدة أنواع من السرطان
--  دراسة: الصيام المتقطع يبطئ شيخوخة الدماغ
--  الذكاء الاصطناعي يكشف "المرأة الأكثر جاذبية" في كل قارة
--  Big win for indigenous languages! Gwanda High to introduce Sesotho subject
--  เผยวินาทีทอร์นาโดพัดถล่ม อาคารพังทั้งแถบหวิดทับรถในสหรัฐฯ (คลิป)
--  Mijo zaveo duplo mlađu, evo čime se sada pohvalio: ‘Tko je rekao da nećemo dugo’
--  구리시, “자동차세 연납하고 4.6% 공제혜택 받으세요”
--  우리은행, 실시간 비대면 기업 외환거래 ‘우리WON FX’ 출시
--  하나로 의료재단, '2024 고객감동경영대상' 8년 연속 수상
--  SCL 서울의과학연구소, '고객감동경영대상' 5년 연속 수상
--  강동성심병원, '전립선암 극복하기' 건강강좌 개최
--  용인세브란스병원, 2023 응급의료기관 평가 A등급 획득
--  에이치플러스 양지병원, '체외진단의료기기 임상적 성능시험기관' 지정
--  Die Hisbollah verbreitet Terror in Israel – mit unkonventionellem Waffeneinsatz
--  Açıklanan belgelerden güzellik kraliçesi çıktı! Epstein dosyasında Banu K. detayı
--  ABD ve İngiltere Yemen'i vurdu! İran'dan kınama
--  Yakup Köse yazdı: Terör devletine katılanların dönüşü olmamalı
--  Kefir Global Market Report 2024 - By Size, Share, Trends, Demand, Forecast By 2033
--  کراچی میں زبردست ٹاکرا، کس کی جیت ہو گی؟اہم خبر
--  Hot Tub Market Poised for a $5.38 Billion Growth by 2028, Projected CAGR Exceeds 3.46%
--  ChatGPT之父阿特曼傳婚訊 與工程師男友共諧連理
--  Azərbaycan dünya insan haqları hesabatında: ‘Narahatedici pozuntular davam edir’
--  Bezdomni o pomoc proszą rzadko. Nie bądźmy obojętni
--  2024 bedelli askerlik yerleri ne zaman açıklanacak? Bedelli askerlik yerleri sorgulama e-Devlet!
--  AÖL sınav sonuçları 2024 ne zaman açıklanacak? Açık Öğretim Lisesi 1. dönem sonuçları bekleniyor!
--  ABD ve İngiltere neden Yemen'i vurdu?
--  Son dakika... 16 ilde 'Sibergöz' operasyonu: 120 şüpheli yakalandı
--  Bazı okullarda zam oranı yüzde 100! Özel okullarda zam ve yemek açmazı
--  Anadolu Efes - Virtus Segafredo Bologna maçı hangi kanada, ne zaman, saat kaçta?
--  Piyasalar bir kez daha Moody's'e odaklandı! Türkiye raporu için geri sayım
--  Çalışanın yemeğinin 170 tl'si devletten... Kalem kalem vergi ve harçlar
--  Cellulose Nanocrystals Market Trends: Sustainable Practices and Market Impact
--  Deepfakes, fighter jets and a ‘brutal fight’: As China watches, Taiwan’s presidential campaign goes down to the wire
--  Hardware Giant Says Stores Free to Celebrate ‘Australia Day’ How They Wish
--  Gigantische Bauernblockade am Freitag? Das steckt hinter den WhatsApp-Nachrichten – Tageblatt-online
--  오타니 깜짝선물 받았다…'반려견' 데코핀, 주일미국대사로부터 美 비자 획득
--  문화예술인 연대회의 "故 이선균, 가혹한 인격살인 당해…진상규명 촉구" 성명서 발표 [전문]
--  "목표 시청률 15%"…'밤에 피는 꽃' 이하늬, MBC 사극 '연인'→'열녀박씨' 명성 이을까 [MD현장](종합)
--  শিগগিরই কয়েক লাখ কর্মী নেবে ইতালি
--  В окупованому Маріуполі прогриміли потужні вибухи
--  最年輕中風個案僅3歲？醫生揭10大成因 久坐風險高 頭痛恐是先兆
--  Jio Recharge Plan: Get Free Data And Many Other Benefits With These Packs
--  Rescataron a un hombre que cayó 6 metros por un barranco en Neuquén
+-  Najave događaja za 12.01.2024. godine (petak)
+-  Child bitten in latest dingo attack at popular Queensland island
+-  BiHAMK - Oprez zbog poledice
+-  MBC ‘바이든-날리면’ 정정보도 판결에...“항소할 것”
+-  Artık dışarıda yemek yemiyoruz! Kişi başı yemek fiyatı 300 liraya çıktı
+-  Bursa dahil 45 ilde "Narkogüç-43" operasyonu!
+-  Mersin'de denize giren 2 çocuk hayatını kaybetti
+-  16 ilde eş zamanlı "SİBERGÖZ-14" Operasyonu!
+-  Bursa Emniyeti'nden suçtan kaynaklanan mal varlığı değerlerini aklama suçu operasyonu!
+-  Fransa'nın yeni Başbakanı Gabriel Attal sevgilisini bakan yaptı!
+-  Karayolları uyardı! Yol bakım çalışması var
+-  Tüketici Hakem Heyetleri, 707 bin 814 başvuruda 3,9 milyar liralık uyuşmazlığı karara bağladı
+-  İran, ABD ve İngiltere'nin Yemen'e saldırısını kınadı
+-  Afra Saraçoğlu pembeler içinde!
+-  Beren Saat, ödül törenine damga vuran stilini konuşturdu!
+-  4 ilde eğitime kar engeli
+-  Kocaeli'nde 7 milyonluk vurgun yapan dolandırıcılık şebekesi çökertildi
+-  Seçil Erzan bugün 2. kez hâkim karşında
+-  3 ex-DPK lawmakers launch new party ahead of April elections
+-  Ankara'da 3 bin 759 adet tarihi obje ve 63 sikke ele geçirildi
+-  ABD ve İngiliz savaş uçakları Yemen'e hava saldırısı düzenledi
+-  Husiler: Yemen'e karşı hiçbir ABD saldırısı cevapsız kalmayacak
+-  Pençe-Kilit Operasyonu bölgesinde 1 asker şehit oldu, 1 asker yaralandı
+-  'Narkogüç-43' operasyonlarında 305 şüpheli yakalandı
+-  Hitna reakcija Rusije: Započeli su novi rat?
+-  Luftqualität heute in Heilbronn: Feinstaub-Warnung! Wie schlecht ist die Luftqualität aktuell?
+-  Năm 2024, Ngân hàng CSXH tập trung chuyển đổi số, nâng chất lượng tín dụng chính sách
+-  Fernando Santos, o ismi ekibine istedi!
+-  Juventus'ta Kenan Yıldız gollerine devam ediyor
+-  Yaptırımları bir kenara bıraktı: ABD Rus petrolüne geri döndü
+-  Galatasaray'a Boey'den bir kötü haber daha!
+-  Beşiktaş'ta Aboubakar ve Rosier gelişmesi!
+-  Nhận diện những động lực tăng trưởng mới của kinh tế Việt Nam
+-  İzmir'de firari çocuk istismarcısı kıskıvrak yakalandı
+-  게임한 후 뇌파 검사해보니… [Health]
+-  네이버, ‘하이퍼클로바X’ 기반 카타르 아시안컵 스카우트 리포트 선봬
+-  두산디지털이노베이션, CES 2024서 데이터이쿠와 패널토의 진행
+-  KSTEC, 진양오일씰과 생산계획 및 스케줄링 프로젝트 계약 체결
+-  네이버, 개인정보보호 연구 결과 담은 ‘2023 프라이버시 백서’ 발간
+-  롯데정보통신-칼리버스, 투모로우랜드와 독점 파트너십 계약 체결
+-  [인사] NIA, AI 전문기관 도약 위해 대규모 조직개편 단행
+-  에이아이트릭스-중앙대병원, 의료 AI 솔루션 활용 공동연구 ‘맞손’
+-  ‘日 아시안컵 우승 발리골’ 이충성 "결승 한일전 보고파, 우승은 일본이 하길"
+-  15 снарядов HIMARS уничтожено: расчёт ЗРК «Бук-М1» отработал по воздушным целям в зоне СВО
+-  Luftqualität für Ingolstadt heute: Feinstaub-Grenzwert überschritten! Aktuelle Luftqualität in Ingolstadt
+-  “컵 들고 있을 뿐인데”…악플 쏟아진 블랙핑크 지수, 무슨일이
+-  Dünya əhalisinin 40 faizi 2024-dən SÜLH GÖZLƏMİR
+-  На тюменской трассе ограничили движение из-за ДТП с одним погибшим
+-  Кристин Лагард: Преизбирането на Тръмп би било заплаха за Европа
+-  Οι αστρολογικές προβλέψεις της ημέρας για την Παρασκευή 12 Ιανουαρίου
