@@ -1,11 +1,51 @@
 # Latest News
--  Idén már Bulgária is lehagyhatja Magyarországot
--  Kubatov Gábort nem érdekli a fideszes propaganda, multikulturális egyesületté változtatta az FTC-t
--  홍천강 꽁꽁축제 서면여성의용소방대 ‘119 심폐소생술 안전체험
--  국민의힘 정필재 당협위원장,시흥시의회, 갑지역 시의원 시위 돌입
--  KFC, 입안 가득 '뉴 트위스터'의 맛을 느껴보세요!
--  교촌치킨, ‘점보윙 시리즈’ 이벤트 실시
--  與 "민주당 검증위는 '친명 감정위'… 개딸 횡포 극 달할 듯"
--  1인피자 전문점 피자먹다, PLQ몰 싱가폴1호점 오픈
--  CAN 2024: contre la Guinée-Bissau, la Côte d'Ivoire face aux attentes de tout un pays
--  Blinken Discusses Human Rights, Taiwan Strait With Chinese Official
+-  [“쫄깃고소” 무안군 겨울숭어축제 개최
+-  [미 당국, 기체 뜯긴 보잉 737 맥스9 무기한 운항중단
+-  [2023 아시안컵 축구 개막…디펜딩챔피언 카타르, 레바논에 3-0 완승
+-  Гашек предостерёг российских хоккеистов от фотографирования с Путиным
+-  Azerbaijan's Defense Minister conveys condolences to Türkiye
+-  Şehitlerimizin kanı yerde kalmadı! Metina Bölgesi neden önemli?
+-  Resmi Gazete'de bugün! 13 Ocak 2024 tarihli Resmi Gazete kararlarında neler var?
+-  Hunter Biden acepta declarar
+-  Osnabrück: Viele Lungenentzündungsfälle durch Mykoplasmen bei Kindern
+-  Botoks değil doğal yağ, ince çizgiler ütüleniyor! Gençlik ışıltısı cildi aydınlatıyor
+-  Eşi ile ayrılık kararı alan Jason Momoa: Şu anda bir evim yok
+-  İşgalci İsrail'den soykırıma pişkin savunma: Gazze'de sivilleri koruyoruz
+-  "أوتوسترادات" تحت الأرض ونصيحة للبنان
+-  Arctic air moves into Colorado
+-  ГАИ отчиталась о скрытых рейдах и объявила новые на выходные. Где пообещали «взаимный обмен нарядами»? — Видео
+-  Trump is ordered to pay New York Times and its reporters nearly $400,000 in legal fees
+-  CAN 2023 : le Congolais Dadju attendu à la cérémonie d’ouverture à Abidjan
+-  Trump obligado a pagar al NY Times
+-  Katherine Heigl’s Husband Josh Kelley: All About Their Romance & Family Together
+-  Biden sagt, er habe mit den Angriffen im Jemen eine Botschaft an den Iran gesendet und nennt die Houthis eine Terrororganisation
+-  Филаделфия наказа тежко Сакраменто при завръщането на Везенков (видео)
+-  Delhi excise policy case: ED issues fourth summons to CM Arvind Kejriwal
+-  Greenplyunveils Soulful Song by Udit Narayan “Humein Aage Badhna Aata Hai”
+-  فرنجية يلبّي دعوة جنبلاط ويَرُدّ الزيارة الى كليمنصو الأسبوع المقبل
+-  Kerala Aims To Develop Itself As AVGC-XR Hub
+-  [만평] 쓸모없어진 내 귀
+-  Jeremy Allen White y Rosalía confirman su relación con apasionado beso en Los Ángeles
+-  Bienes patrimoniales de Santa Marta están en riesgo de ruina
+-  Por primera vez se unen los carnavales de los barrios en Santa Marta
+-  Concejo Distrital convoca a Atesa y Essmar para abordar crisis ambiental
+-  Jhon Arias busca jugar en un equipo que dispute Champions
+-  Ventas informales hacen su ‘agosto’ sin control en sectores turísticos
+-  MinHacienda niega solicitud de fondos para Juegos Panamericanos por parte de MinDeporte
+-  Dos vicepresidentes más se van de EPM, culminando la reorganización.
+-  Del sí de Borré al Inter a las dudas de Vidal con América
+-  Petro dirigió crítica a Barbosa: "Que la Fiscalía no sea instrumentalizada por el crimen"
+-  Defensoría logró escenarios de diálogo entre comunidades indígenas y campesinas en Guaviare
+-  הלם בצהוב: "לא נתפס שקטש מחכה לפסק זמן טלוויזיה באווירה כזאת"
+-  Banişevskinin çempionluğuna imkan verməyən, Bəhramovun əngəl olduğu ƏFSANƏ
+-  Кубок Азии-2023: сегодня Национальная сборная Таджикистана сыграет со сборной Китая
+-  La probabile formazione del Genoa: Gudmundsson e Retegui in attacco
+-  Juric esalta il nuovo Milinkovic-Savic: “Era grezzo, ora sta crescendo”
+-  Milli Savunma Bakanlığı şehit askerlerimizin isimlerini açıkladı
+-  Tayvan sandık başında
+-  Japon devinden 339 milyon dolarlık satın alma
+-  Türkiye'nin ilk uzay yolcusu astronot Alper Gezeravcı'dan misyon mesajı
+-  Şehit haberi sonrası sosyal medyada provokatif paylaşımlar! Bakan Yerlikaya: Tespit çalışmaları başladı
+-  İşgalci İsrail'den Lahey'de soykırıma pişkin savunma
+-  CHP'li Subaşı'dan tepki çeken paylaşım! Şehitlerimizin acısı tazeyken adaylık reklamını yaptı
+-  Lütfü Savaş'ın yeniden adaylığına tepkiler büyüyor: Dönüşümü engelledi 2 bin canımız gitti
