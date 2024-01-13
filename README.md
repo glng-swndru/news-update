@@ -1,51 +1,11 @@
 # Latest News
--  Германия — Рост стоимости ухода в домах престарелых: хватит ли обитателям средств?
--  Burnley, Fofana'yı sezon sonuna kadar kiraladı
--  Türk şirketlerinin yeteneklerinin birleştirilmesiyle 14 şirket ihracat yaptı
--  Fenerbahçe, Gaziantep FK maçına hazır!
--  Rusya'da depoda çıkan yangın 50 bin metrekarelik alana yayıldı! Toplam hasar 126 milyon dolar
--  Beşiktaş Emlakjet 12. galibiyetini aldı
--  Bakan Tunç duyurdu: Şehitlerimize yönelik provokatif paylaşım yapan 3 kişi yakalandı
--  Ceyhun Kazancı transfer yasaklarını değerlendirdi
--  Şehitler için sabah namazında tüm camilerde dua edilecek
--  MKE Ankaragücü galibiyeti hatırladı
--  Hatayspor ile Pendikspor yenişemedi
--  الكيلاني وشكشك يجتمعان لمتابعة منحة الزوجة والأولاد وتوطين علاج التوحد
--  بيان هام من وكالة عدل بخصوص بيع المحلات
--  Unerwartete Wende für Bestenheider Anwohner: Doch keine Lärmschutzwand an der Landesstraße 2310
--  Acreanos fazem 108 milhões de transações no Pix e movimento das transferências cresce 74%
--  Cameroun :: Révélations Explosives Sur Le Contrôle De La Prison De Kondengui Par Amougou Belinga :: Cameroon
--  El DNU de Milei sufrió otro golpe por el amparo de los productores de yerba
--  Dupla tenta furtar moto de posto de combustíveis
--  Chelsea, David Datro Fofana'yı Burnley'ye kiraladı
--  MSB: Barış Pınarı bölgesine sızma girişimi önlendi
--  Bursa BUSADER yeni üyelerle güçlendi
--  Batan gemideki kayıp 7 kişi 56 gündür aranıyor
--  Diyanet İşleri Başkanı Ali Erbaş'tan Şehit Muhammed Tunahan Evcin'in ailesine ziyaret
--  Simge'den Bursalılara unutulmaz anlar
--  Şehit Samet Aslan'ın annesinin feryadı yürekleri dağladı!
--  Kilis'te Mehmetçik'ten PKK'ya operasyon! 2 kişi yakalandı
--  Altınordu'nun hedefi 3 puan
--  Fenerbahçe'de Gaziantep FK maçı hazırlıkları tamamlandı
--  Bursa'da 1 milyon TL değerinde kaçak likit ele geçirildi
--  Şehitler için tüm camilerde dua edilecek
--  Ulusal Süt Konseyi duyurdu! Çiğ süte zam
--  Bakan Tunç'tan terör örgütünü öven hesaplar hakkında açıklama
--  Şehit Aslan, Amasya'da son yolculuğuna uğurlandı
--  El oficialista William Lai gana las elecciones de Taiwán
--  بحضور 82,490 مشجع .. قطر تفتتح كأس آسيا 2023 بحفل مذهل يحتفي بتقارب الثقافات والتقاء الشعوب
--  Soccerladuma | Ghana Coach Gives Advance To Bafana For Namibia Clash
--  Marido é denunciado por atacar esposa com pneu é após discussão em Lucas do Rio Verde
--  No Differences Between 4 `Shankaracharyas`: Puri Seer Clears Air On Ram Temple Row
--  Chelsea, forvet oyuncusu Fofana'yı Burnley'ye kiraladı
--  Burası Türkiye'nin küçük İsviçre'si! Fotoğraf çekinmeyi sevenler buraya akın edecek… Hem İstanbul hem Ankara'ya yakın
--  Xavi: ‘«Barcelona está a jogar melhor do que na época passada»
--  Johanna Matintalo täysin omaa luokkaansa Otepäässä
--  Wladimir Putin entsetzt: Heli-Horror! "Wunderwaffe" zerstört 26 Putin-Hubschrauber an einem Tag
--  Manchester United juonii kovan luokan hankintaa
--  '친미' 성향 타이완 민진당…'12년 연속집권' 역사
--  Omgevingsbewuste ontwerpen studenten enthousiast ontvangen
--  Моуриньо: Ако има перфектен пример за професионализъм, то това съм аз
--  ISB's DLabs, RBI Innovation Hub & Union Bank Launch 'Build for Billions' Programme
--  Dier über seinen Bayern-Wechsel: “Ich habe die Größe des Clubs direkt gespürt”
--  Indian's Income: ਤੇਜ਼ੀ ਨਾਲ ਵਧ ਰਹੀ ਭਾਰਤੀਆਂ ਦੀ ਕਮਾਈ, 10 ਕਰੋੜ ਲੋਕਾਂ ਦੀ ਸਾਲਾਨਾ ਇਨਕਮ ਹੋਵੇਗੀ 8-8 ਲੱਖ ਦੇ ਪਾਰ
+-  Ergofobia: ¿Sabe cómo superar el miedo de enero al trabajo?
+-  अमेरिकी हमले पर हूती का पलटवार, रेड सी में बैलिस्टिक मिसाइल से हमला
+-  Columbus Blue Jacketsissa kuohuu – Jarmo Kekäläinen ei halunnut kommentoida yhtä asiaa
+-  V Trnave prebieha prvé miestne referendum, jeho priebeh je bezproblémový
+-  Jovens entre 9 e 27 anos podem fazer aulas gratuitas de futsal em Rio Branco
+-  Dünya futbolunda en çok büyüyen 10 takım açıklandı! Listede Türkiye'den de takım var...
+-  Seçil Erzan davasında Buse Terim'i sinirlendiren soru! ''Candaş Gürol’a buraya geldiğinde şu soruyu sorun...''
+-  Ray Parlour giục Arsenal mua tiền vệ 50 triệu bảng thay Partey
+-  ''Chúng tôi sắp giành được danh hiệu đầu tiên ở mùa giải''
+-  Mùa này, trận derby xứ Basque sẽ hấp dẫn nhất trong nhiều năm
