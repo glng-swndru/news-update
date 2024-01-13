@@ -1,51 +1,51 @@
 # Latest News
--  Đồng Nai: Phê duyệt Khu đô thị gần phà Cát Lái
--  Farmaceutski div prijavio nestašicu čak četiri poznata lijeka u Hrvatskoj: dva su razloga, a imaju savjet i za pacijente
--  3 thời điểm bố mẹ nào cũng cần nâng đỡ, ủng hộ con cái, nếu mắc sai lầm tương lai con dễ tụt dốc
--  Ban thờ Thần Tài hút hơn 10.000 like, dân mạng xuýt xoa: Khéo bày biện thế này, bảo đảm gia chủ "đắc sai tài lộc"
--  Bạn có "nợ kỳ nghỉ" không? Đừng để sự so sánh và bốc đồng biến những chuyến du lịch thành sự căng thẳng kéo dài
--  Quá gay cấn: Chi Pu chính thức vượt mặt Team Hỏa Lò, dẫn đầu "cuộc chiến" vote tại WeChoice Awards 2023
--  Giá nhà ở vượt quá khả năng tài chính của đại đa số người dân
--  ЕУ со суфицит во трговската размена од 85,4 милијарди евра во третиот лански квартал
--  Mexicanos harán historia con Claudia Sheinbaum, dice Velasco
--  Obustavljen saobraćaj kod mjesta Kosova na MP Maglaj-Doboj
--  Tausende Fans machen sich auf nach Wengen - 20 Minuten ist dabei
--  Aron è morto, il pitbull bruciato vivo dal suo padrone: ennesima sconfitta della società
--  SKANDAL U NBA LIGI: O'Nil žestoko isprozivao Jusufa Nurkića, ovaj mu nije ostao dužan (VIDEO)
--  Новый глава МИД Франции в Киеве
--  Counting of votes starts in crucial Taiwan presidential polls closely watched by China
--  Is Ali Zafar Planning to Sing PSL 9 Anthem?
--  Лю Хуацинь: Мустаҳкам савдо-иқтисодий алоқалар Ўзбекистон-Хитой муносабатларининг муваффақиятли ривожланиши гарови
--  “Мурожаатим асоссиз рад этилди” – фуқаро мурожаати Омбудсман назоратига олинди
--  වෙඩි තබා ගත් SIගේ මරණය ගැන සැකයක් ඇති බව පවුලේ ඥාතිහු පවසති
--  বছরের শুরুতেই কয়েক শ কর্মী ছাঁটাই করল গুগল
--  Спадът в имотния сектор в Китай може да продължи още две години
--  “Xeħet anzjan fl-art biex ħadlu l-kartiera; Arrestat wara 4 serqiet fi ftit ħin
--  Lingeriefoto valt verkeerd: Bredase Melina moet na vier maanden weg als commercieel manager bij MVV
--  Taşerona kadro çıkacak mı?
--  Berliner Junge-Union-Chef teilte offenbar Merkel-Hitler-Fotomontage
--  Неудачи с головой накроют эти знаки Зодиака: кому будет несладко уже на днях
--  L-topparnas kärnkraftskänga till S: ”Sluta vela”
--  Sir Alex Ferguson only told Jose Mourinho to sign one player for Man United but he ignored him because he thought he was a 'bad trainer'
--  Kina: U nesreći u rudniku 10 poginulih, šestoro ljudi nestalo
--  Hain terör örgütüne tepki! Sosyal medyadan lanet yağdı...
--  DEP Parti ile CHP arasında danışlı dövüş: 7 ile 'çöp aday' mı geliyor!
--  Toke Makinwa reveals favourite body part
--  ঘরের ছেলেদের ঘরে ফিরিয়ে নেওয়া হোক
--  دوسرا ٹی20؛ کیویز کو سینٹنر کے بعد ایک اور دھچکا لگ گیا
--  Ivory Coast Battle Guinea-Bissau As AFCON 2023 Kicks Off Today
--  Timnas AMIN Apresiasi Polri Tangkap Pengancam Tembak Anies: Hukum Ditegakkan
--  Realme 12 Pro+: hands on βίντεο μας αποκαλύπτει τη συσκευή
--  Shanna Moakler’s daughter Alabama reacts to podcast claims
--  Advanced Renamer 3.93 Pre-release
--  কলম্বিয়ার হাইওয়েতে ভূমিধসে নিহত ১৮, মাটির নিচে আটকা বহু
--  Bride and sister leave pensioner scarred for life after wedding dress 'tussle'
--  Sanat dünyasından mesaj yağdı: Kahrolsun siyonist emperyalistlerin kuklaları
--  Смагин считает, что Непомнящему нужно вернуть радость от игры в шахматы
--  The One Show is thrown into chaos as Bradley Walsh BREAKS the sofa during a hilarious on-air blunder
--  سونے کی قیمت میں 950 روپے فی تولہ اضافہ
--  Os Houthis vêm escalar a tensão na guerra Israel-Hamas
--  China coal mine accident kills at least 10, prompts safety checks
--  بليحق: المستشار صالح قرر تخصيص 500 مليون دينار لإعادة الإعمار في الغرب
--  تصل سرعتها إلى 25 عقدة.. تحذير من رياح نشطة على الساحل من الخمس إلى بنغازي
--  Lagos Guber: ‘I’m Disappointed But We’ll Let Sanwo-Olu Govern With His Vision’ – Jandor Reacts To Supreme Court Ruling
+-  На улице Зубковой в Рязани дорогу затопило кипятком
+-  মন্ত্রিসভায় চট্টগ্রাম বিশ্ববিদ্যালয়ের সাবেক ৩ শিক্ষার্থী
+-  Смоленские журналисты отмечают профессиональный праздник
+-  Down Sendromlu Futsal Milli Takımı'nın başarısının sırrı "birliktelik"
+-  Denizlispor'dan transfer yasağı açıklaması
+-  2 kız kardeş sızıntı nedeniyle hayatını kaybetmişti! Doğalgaz faciasıyla ilgili yetkili firmadan açıklama
+-  CHP'nin Tandoğan Mitingi iptal!
+-  DEM Parti İstanbul'daki Filistin mitingini erteledi
+-  Sivasspor deplasmanda Samsunspor'un konuğu olacak
+-  نشر المئات من الشرطة في لندن قبل مظاهرات مؤيدة لفلسطين
+-  Mercato - PSG : Le «nouveau Messi» affole l’Europe !
+-  Um morto e três feridos em acidente na EN125 em Portimão
+-  Тулякам рассказали, как наладить питание детей после каникул
+-  Raportti varoitti väärästä tiedosta – ”Kannattaa huomioida Suomessakin”
+-  Қурилиш материалларининг экспорт географияси 43 давлатдан 53 тага ошди
+-  Pogledajte kako Tucak ljubi Grka kojeg je izbacio iz borbe za medalju
+-  "المقاومة الإسلامية": استهداف موقع العاصي بالأسلحة المناسبة
+-  Scope Ratings, Türkiye'nin Kredi Notu Görünümünü Değiştirdi
+-  سپریم کورٹ میں دوران سماعت چیئرمین پی ٹی آئی بیرسٹر گوہر کااپنے گھر پر مبینہ حملے کا دعویٰ، چیف جسٹس نے کیا کہا ؟ جانئے
+-  Селезнев назвал конфискацию российских активов в числе главных рисков года
+-  Kitu Haringtonu dijagnosticiran ADHD dok je bio na rehabilitaciji: ‘Shvatio sam da moj život ovisi o ovome’
+-  Detenido un empresario agrario que explotaba a extranjeros 'sin papeles' en una finca de Belmez
+-  Remaniement : les dessous du retour surprise de Rachida Dati au gouvernement
+-  Remaniement : les dessous du retour surprise de Rachida Dati au gouvernement
+-  Boeing 737 MAX 9 : le régulateur de l'aviation civile américain annonce le maintien de ces appareils au sol
+-  Auto-Kennzeichen: Wer das tut, zahlt 65 Euro Strafe
+-  توقيف سوري يروج المخدرات في مناطق الكفاءات والحدت والمريجة وحي السّلّم
+-  الدفاع المدني: جرف أتربة وصخور على اوتوستراد المتن السريع
+-  صادق: تحرك جنوب افريقيا يكشف عن مدى البُعد الإنساني للقضية الفلسطينية
+-  النشرة: قصف اسرائيلي بأكثر من 25 قذيفة فوسفورية و دخانية إستهدفت منطقة "طوفا" و "الجدار" في بلدة ميس الجبل
+-  وفد من تجمع مالكي الأبنية المؤجرة زار سلام للاعتراض على رد قانون الإيجارات
+-  كتيّب لـ "جمعيّة عدل ورحمة" حول بناء جسور نحو غد أفضل للشباب خالٍ من المخدّرات
+-  حزب الله: استهدفنا موقع ‏العاصي بالأسلحة المناسبة وتم إصابته بشكل مباشر
+-  Babo u zbulon ministrave sekretin e çelësit të gjumit! Pyetjet e ambasadorëve për Lulin
+-  В поселке Уйма отремонтируют школу
+-  Uvoz meda u BiH deset puta veći od izvoza
+-  Đoković odradio poslednji trening pred napad na AO
+-  Usred dana ga zaustavili na traktoru, a kad tamo “napuhao” 3,15 promila
+-  POKS: Aleksandar Vučić je idejni tvorac izborne prevare i moraće da odgovara
+-  Sven-Goran Eriksson admits he 'always wished to be the manager of Liverpool'... as terminally-ill former England boss, 75, reveals he still supports the Premier League giants
+-  أمانة الجوف تنهي تهيئة 108 آلاف م2 من المسطحات الخضراء في القريات
+-  لا تُنْسَى قبل الحمل.. 5 فحوصات مهمة ينصح بها الأطباء
+-  "تجميد الخبز بالفريزر يؤدي إلى الإصابة بالسرطان".. "الخضيري" يفنّد "المتداول"
+-  PKO BP: Polska wykazuje jedną z najbardziej optymalnych relacji między siłą wzrostu PKB a stabilnością gospodarczą wśród państw regionu
+-  ISW: Separatystyczne władze Naddniestrza prowadzą operację informacyjną w celu możliwej destabilizacji Mołdawii
+-  I played in non-league getting elbowed every week, now I’m looking to star at Afcon under ex-Premier League manager
+-  IGRTC to address ECDE row
+-  Noc Biologów na UMCS
+-  Megtámadták az FIA elnökét, ő csak nevetett rajta
+-  Identificados los presuntos asesinos de dos hermanos acribillados en un coche en Casarrubios del Monte
