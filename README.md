@@ -1,51 +1,11 @@
 # Latest News
--  BHEL gets EPC contract for NLC India’s 2400 MW Green field power project
--  EEUU quiere potenciar capacidades de las Fuerza de Defensa de Guyana
--  Scientists explain why the record-shattering 2023 heat has them on edge. Warming may be worsening
--  إنريكي: لن أشتكي من غياب حكيمي!
--  ΑΝΟΡΘΩΣΗ 1-0 ΑΕΛ: Με Γκασάμα κοιτάζει κορυφή! (ΦΩΤΟΣ-BINTEO)
--  Preconception Care- A window of opportunity
--  صادرات مصرية 2023.. تطور ملموس للقطاعات الهندسية والملابس والأغذية
--  من هم الـ 3 قضاة العرب بمحكمة العدل الدولية وما جنسياتهم؟
--  ایلون ٹوفلر کا تہذیبی تصادم کا نظریہ
--  ¡Qué triunfo! Mazatlán FC jugaba con 10 hombres y logra vencer a León en las fuerzas básicas
--  Исматуллаев Илёс Нарбековичнинг техника фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Ҳамитов Aли Aбдуҳакимовичнинг техника фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Маликова Дилрабо Муминовнанинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Талабаларни ҳарбий тиббиётга йўналтириш бўйича тадбир
--  Йил якунлари ва янги режалар муҳокама қилинди
--  How to lose weight without going to the gym, according to a personal trainer
--  Cómo conducirá tu hijo: un test virtual revela el riesgo de futuros accidentes
--  نیتن یاہو۔ حال اور مستقبل
--  Luis Suárez: "Messi, Alba, Busquets y yo soñábamos con retirarnos en el Barcelona"
--  Musk says hopes SpaceX will land spacecraft on Mars
--  „Extrem schlecht“: Wolfsburg beschwert sich über Rasenzustand in Mainz
--  Sandviken tog ännu en seger – 5–3 mot KAIS Mora UIF
--  Sandviken tog ännu en seger – 5–3 mot KAIS Mora UIF
--  Martin Luther King não reconheceria os Estados Unidos de hoje
--  Families in Gaza face “triple threat” of war, disease, hunger: UN
--  Rising sudden death cases among newly arrived diasporans – medical expert speaks
--  Што и колку ја чини разделбата на Велика Британија со ЕУ?
--  Maradona Junior: "Mataron a mi padre y tengo una idea de quién es el culpable"
--  Yusuf Erdoğan'dan maç sonu isyan! 'Hesabını kim verecek!'
--  Who Owns X Formerly Known as Twitter? History and future
--  نتنياهو: محكمة العدل الدولية لن تمنع إسرائيل من القتال في غزة
--  بدء نقل الأدوية إلى المحتجزين بغزة
--  ’’قبر کا پتا بتا دو‘‘
--  Día de rescates en Alicante: Monte Ponoig y Barranc de l’Infern
--  Mangala, oltre Kone altra sfida mercato tra Juve e Napoli: le ultime
--  مديحة كامل.. تنبأت لنفسها بالنجومية و"صدفة" سمير غانم في الشارع منحتها الانطلاقة
--  Zelenskis: Ukraina un Francija apspriež kopīgu bezpilota lidaparātu un artilērijas ražošanu
--  Backstage Notes on WWE SmackDown, Post-Show Dark Match Change
--  Tamra Judge Discusses Tough Fallout With Vicki Gunvalson and Shannon Beador
--  La imagen del Inter Miami que emociona a Luis Suárez: “Trae lindos recuerdos”
--  Elena Lasconi, demisie cu scandal de la șefia USR: "Mi-e scârbă!" - SURSE
--  تیسری دنیا اور جمہوریت
--  הנשיא מקרון במסר מצולם למשפחות החטופים: "יכולים לסמוך עליי כדי להחזיר את כולם הביתה"
--  Widespread rain arrives in Bay Area, snow forecast for Lake Tahoe
--  Widespread rain arrives in Bay Area, snow forecast for Lake Tahoe
--  Daule: Policía frustra un secuestro, rescatan la víctima e incautan $2.000
--  Faeser: Eishockey-Ausschluss Israels zurücknehmen
--  Santos, Süper Lig'de siftah yaptı! Beşiktaş'tan 3 gollü galibiyet
--  جهاز Asus TUF Gaming F16 بمعالجات Raptor Lake HX ومعدل تحديث 165 Hz
--  Cumhurbaşkanı Erdoğan'dan şehit askerin babasına telefon
+-  IIT Delhi students residing in hostels might need to pay extra for a non-vegetarian meal?
+-  Podgorička Služba zaštite između dva komandira
+-  Nem volt ötös a lottón, a jövő héten már több mint ötmilliárd forintot lehet nyerni
+-  “이래서 우리가 레알한테 진거였네”... 클롭과 EPL 심판 사이의 싸움 일화 공개
+-  التحقيق مع 3 متهمين بالاتجار في الألعاب النارية بالإسكندرية
+-  «Με την ήττα του ΑΠΟΕΛ τα πράγματα έγιναν πιο δύσκολα»!
+-  Nella Pelkosen päivä lähti käyntiin väärällä jalalla ja päättyi pettymykseen
+-  Nella Pelkosen päivä lähti käyntiin väärällä jalalla ja päättyi pettymykseen
+-  Ex-Sharks forward, now in Russia, garners interest from NHL teams
+-  Zatrzymanie choroby Alzheimera, terapie genowe, leczenie po urazie rdzenia: pomysły polskich neurologów zmieniają medycynę
