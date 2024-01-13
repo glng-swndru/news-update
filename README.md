@@ -1,11 +1,11 @@
 # Latest News
--  PM de Colíder apreende entorpecentes em residência abandonada
--  Papa propõe "trégua olímpica" em 2024 para "favorecer a paz"
--  Forças armadas russas lançaram ataque contra alvos da indústria militar ucraniana
--  GNR deteve 63 pessoas pelo crime de incêndio e registou 3.292 contraordenações em 2023
--  Samet Akaydin'ın havalimanında söylediği sözler taraftarın tepkisini çekti! Fenerbahçe'den Fatih Terim için ayrılmış
--  اشتباكات عنيفة بخان يونس والقسام تعلن استهداف 4 دبابات وناقلة جند
--  رقم تاريخي لـ ستيرلينغ في الدوري الانجليزي
--  Kuka tähän F1-tiimiin enää edes haluaa? Entiseltä pomolta lohduton lausunto
--  Chelsea jo voittoputkessa - lähes 50 miljoonan euron kesähankinta osui jälleen
--  Nella Pelkonen murtui kyyneliin Ylen lähetyksessä
+-  Công an điều tra vụ trọng tài VFF bị đánh ở nhà thi đấu Phú Thọ
+-  Xem xét giao cơ quan chủ quản dự án cầu Cổ Chiên 2
+-  Германия — Май заставит задуматься: летать или не летать
+-  Израиль уведомил Каир о военной операции в Газе вдоль границы с Египтом - WSJ
+-  Sheikh Salman Al-Hamoud leads Asian Shooting Federation meeting
+-  Tim en Astrid doen mee aan Dry January: 'over alcohol wordt vaak te licht gedacht'
+-  Başakşehir sahasında Alanyaspor'u 3-2 mağlup etti |ÖZET
+-  Indien - Fußball ist in Kolkata Tradition
+-  Un joven de 20 años fue acuchillado en una discusión
+-  Beloved ‘Seinfeld’ actor Peter Crombie dies at 71
