@@ -1,51 +1,11 @@
 # Latest News
--  العراق يحتاج لـ 37 ألف ميكا واط لإنهاء أزمة الكهرباء
--  Komet zastrašujućeg imena juri prema Zemlji: Veći je od Mount Everesta, NASA poslala poruku
--  Alias Satanás sigue extorsionando desde la cárcel: “Las indicaciones son que haya derramamiento de sangre todos los días”
--  Ricardo Monreal reacciona a próximas iniciativas de AMLO: “Requerirán mucho trabajo para lograr mayoría”
--  From Teen Beauty Queen To Entourage Appearance On HBO To Heading An NGO, Magazine Honors Brooks Koepka’s Wife Jena Sims
--  Skrytý klenot v pražskej knižnici vás uchváti: Pozrite na to, také niečo ste ešte nevideli
--  Zjednotenie Číny a Taiwanu je naďalej nevyhnutné, reaguje Peking na výsledky volieb
--  Austrália entra a ganhar
--  "מאז שירדן שועה עצבן אותי - הוא עשה שינוי גדול"
--  הותר לפרסום: רס״ר (במיל׳) דן ווידנבאום, נפל כתוצאה מפגיעת טיל נ"ט במרכז הרצועה
--  ישראל חושפת: כך תכנן חמאס להוציא לפועל פיגועים ברחבי אירופה
--  Ouça o relato em direto. D. Chaves - Sporting
--  בונזי קולסון לא יחזור עם מכבי תל אביב לישראל, לורנזו בראון צפוי לנוח מול הפועל עפולה
--  A Lostban minden nő odavolt a szőke rosszfiúért: Josh Holloway 54 évesen büszke édesapa
--  Rosa-Luxemburg-Konferenz : Für die Auflösung Israels – und den Schießbefehl
--  Besteiro apela a la movilización para sacar "por la puerta de atrás" al gobierno "mentiroso" del PP
--  Soldados de Marina de EEUU desaparecidos frente a costas de Somalia
--  Víctimas que denunciaron a Hollman Morris han sido amenazadas luego de romper su silencio
--  Cámaras captaron el rostro del asesino de la empleada municipal
--  Estrada (CUP) señala a Junts por enquistarse en un "discurso racista para arañar cuatro votos"
--  Rueda apela a plantear una campaña que escape de la "crispación" y la "confrontación estéril que buscan algunos"
--  Jetzt im Livestream: Die Bundesliga-Sportschau
--  La Policía Nacional celebra sus 200 años renovando su compromiso con la seguridad de España en "tiempos vertiginosos"
--  Leverkusen, il sogno continua: Palacios al 94' regala il +4 sul Bayern!
--  L'argentina Ailén Vega rinforza Padova
--  Juric: "Toro, la strada è giusta". Su Zapata e corsa all'Europa...
--  Sumar Galicia propone garantizar una unidad de salud mental en todos los centros de salud y un plan juvenil
--  MARIJA ŠERIFOVIĆ UPUTILA JOVANI PAJIĆ NEŽNE REČI: Ti si moja pretkomora
--  ‘El Gran Chef Famosos’ y ‘Súper Ada’ se enfrentan desde este 15 de enero: cuáles son sus propuestas para conquistar al público
--  Пожар горя в завода за боклук в София
--  El 99,5% del Consell Nacional de Junts aprueba hacer una convención sobre migración
--  Pontón defiende el "caudal de experiencia" en unas listas continuistas: "Lo que funciona no se cambia"
--  Police investigating shooting incident in Hochelaga-Maisonneuve
--  Carlos Alcaraz: "Físicamente me encuentro muy muy bien"
--  Niecy Nash-Betts Talks ‘The Holdovers’ and ‘Scandal’ Auditions, Becoming a Queer Role Model and Why She Thinks ‘Origin’ Deserves More Awards Recognition
--  Niecy Nash-Betts Talks ‘The Holdovers’ and ‘Scandal’ Auditions, Becoming a Queer Role Model and Why She Thinks ‘Origin’ Deserves More Awards Recognition
--  Niecy Nash-Betts Talks ‘The Holdovers’ and ‘Scandal’ Auditions, Becoming a Queer Role Model and Why She Thinks ‘Origin’ Deserves More Awards Recognition
--  Republicans try to block Biden administration plan to cut money for anti-abortion counseling centers
--  The Best Persona Games You Should Play Before Persona 3 Reload Comes Out
--  Scholz llama a la calma ante las grandes protestas de agricultores por el fin de los subsidios al diésel
--  Beşiktaş'ta şok üstüne şok! Sadece 15 dakika oynayabildi... Hem Hadziahmetovic hem de Aboubakar'dan kötü haber
--  SON DAKİKA: Fenerbahçe ara transfer döneminde durdurulamıyor! Bonucci'den sonra bir transfer daha... Sarı-Lacivertliler Krunic transferi için KAP'a bildirimde bulundu!
--  Hoy también es Día Mundial del Chicle
--  Krapović o otkazanju sastanka sa Anušićem
--  EEUU felicita a William Lai por su victoria en las presidenciales de Taiwán
--  “เด็ก” และ “ผู้ใหญ่” ในห้วง “กลียุค”
--  Palghar : पालघर लोकसभा मतदारसंघात भाजपचाच खासदार निवडून येणार; सेनेच्या दाव्यानंतर नारायण राणेंचं मोठं वक्तव्य
--  La Chapelle-au-Mans. La traversée du bourg va être en travaux une bonne partie de l’année
--  El Ejército iraní refuerza la frontera con nuevas plataformas de misiles y aviones no tripulados
--  หลงใหลอะไรกันนักหนา
+-  Mallorca y Celta empatan y siguen jugando con fuego
+-  IZVORI IZ BRISELA OTKRIVAJU: Evropska narodna stranka stala u obranu Vučića...
+-  Kansere Kalkan Olan Doğal Mucize! Her Yaşta Kullanılması Öneriliyor
+-  Bayer Leverkusen, zirvede hata yapmadı
+-  Valentin Rosier'e teklif geldi! İşte o rakam...
+-  שני גברים נפצעו באורח קל-בינוני באירוע אלימות בירושלים
+-  על רקע המלחמה: אלפים צפויים להשתתף בהילולת הבאבא סאלי בנתיבות
+-  מדליית ארד לנבחרת ישראל עד גיל 18 במוקדמות אליפות אירופה בכדורעף
+-  המשטרה חוקרת דיווח על כתובות תמיכה בחמאס שרוססו בג'לג'וליה
+-  Calcio: Rrahmani "Oggi c'era tensione, è stato duro vincere"
