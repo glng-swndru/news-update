@@ -1,51 +1,51 @@
 # Latest News
--  Как посмя?! Милица Гладнишка показва срамотии в ефир, операторите са в шок СНИМКИ
--  Trung Quốc, Mỹ, Nga lên tiếng sau khi Đài Loan có lãnh đạo mới
--  ‘Koning der Kermiskoersen’ Richard Bukacki (77) overleden
--  Denise aan start NK veldrijden
--  남양주시, 별내선(8호선) 개통 준비단(TF) 운영
--  주광덕 남양주시장, 오남천 수질오염사고 방제작업 현장 점검
--  구리시, 스마트 버스정류장 설치 경기도 특조금 4억 확보
--  수원시 ‘중장년1인가구 수다살롱’ 동아리 참여자 모집
--  기업도시 안산 이민근 시장, 美 테네시주 네슈빌서 투자유치 설명회
--  의왕시, 백운밸리 레이크포레4단지 경로당 개소식
--  안양시, 국·도비 확보해 전통시장·상점가 활성화 총력
--  군포시 어린이도서관 실감형체험관 운영 시작
--  연천군가족센터, 경기포천아동보호전문기관·연천군육아종합지원센터와 MOU
--  성남시의회 의회운영위원회, 종이 없는 의회운영을 위한 벤치마킹 실시
--  고양특례시, 냉동 난자 사용 시술비 1인당 최대 200만원 지원
--  파주시, 지방세법 개정 요청 국회에서 화답
--  Drôme. Le Vercors, zone à risques : « Un travail d’anticipation, entre chutes et éboulements »
--  Matan a dos policías en Chihuahua
--  Китай и Таджикистан не се победиха, халф на ЦСКА 1948 с цял мач
--  “I admire his career, achievement”: Novak Djokovic opens up about his bond with Virat Kohli
--  3 sci-fi movies on Peacock you need to watch in January
--  Đội hình cầu thủ châu Phi xuất sắc nhất lịch sử Premier League
--  Joe Cole khuyên Chelsea nên giữ Gallagher ở lại
--  Maggie Gyllenhaal's Bride of Frankenstein Movie is Aliiiiiiive! With a Stacked Cast
--  Umatilla man dies after crash with tree in Lake County, FHP says
--  Slowing inflation suggests that Biden's policies are helping, but American voters are still hurting
--  Large US corporations eye enlargement alternatives in Turkmenistan
--  Pocatello woman involved in Friday’s I-86 crash that injured 2 ISP troopers charged
--  Doomed US lunar lander's space odyssey continues... for now
--  The fate of novel ideas: Scholar investigates factors that thwart potential innovations from gaining acceptance
--  Are bugs bugging humans or the other way around? Study reveals a few surprises
--  You Can Play Super Nintendo and Other Classic Games on Bitcoin—Here’s How
--  Houthis Vow ‘Strong and Effective’ Response to Latest U.S. Strike
--  60-vuotias | ”Ihme, että mä olen hengissä”, sanoo entinen pornotähti Henry Saari
--  “We are ready for the opposition”: Ramaphosa
--  JANJUŠ RAZNEŽIO ČITAVU NACIJU: Nakupovao poklone Urošu pa ga pozvao kako bi mu sve to dao! Stanić počeo da plače, baš EMOTVINO...
--  الحرس الوطني: القبض على 5 عناصر تكفيرية مفتّش عنها
--  Samsung predstavil odolný mobil s vymeniteľnou batériou. Zaujme aj prívetivou cenou
--  La economía de Guyana será la de mayor crecimiento del mundo en 2024, según FMI y CEPAL
--  Marye Law Firm, P.C. Represents Plaintiff Who Suffered Serious Injuries In The Sandman Signature Hotel Explosion
--  Kelompok Tani Kabupaten Subang Dukung Ganjar-Mahfud
--  In Iowa, GOP candidates concerned about freezing weather's impact on caucuses
--  شیر افضل مروت کی بانی پی ٹی آئی سے ملاقات ،عمران خان نے متنازع ٹکٹوں سے متعلق کیا ہدایت کی؟
--  Süt fiyatlarına zam! Bu tarihten itibaren geçerli olacak
--  Ce s-a întâmplat la primul meci jucat de Genoa fără Radu Drăgușin
--  Košarac: Helez krivične prijave može okačiti mačku o rep
--  The Sunk Cost Fallacy: Stanford Scientists Reveal Why We Value Things More When They Cost Us More
--  Dodik: Ako EU prihvati nametanje, evropski put BiH je završen
--  روبيرتو: آمل أن أتمكن من الاستمرار في مساعدة الفريق
--  Чем полезна диета «Чебурашки» ─ диетолог
+-  Video: Intenta robar cafetería, empleada lo golpea y derriba
+-  عملية عسكرية مرتقبة للاحتلال على محور فيلادلفيا
+-  تهنئة لـ عائشة خالد الوثيري
+-  Death toll rises to 23 after mudslide in northwest Colombia
+-  Duizenden burgers zoeken samen naar de vermiste Yoran: 'Ik kon niet anders dan mee helpen zoeken'
+-  이천시 청년 취업면접 올케어 사업 개시
+-  2024년 시흥시 행정제도, 이렇게 달라집니다
+-  하남시의회 박진희 부의장, 하남-강동 지하철 9호선 연장… “함께 힘 모아”
+-  양평군, 노후 공동주택 화재예방 합동점검
+-  여주시, 2024년 노동상담소 무료 운영
+-  광명시, 시민력에 힘 더할 주민자치위원 164명 위촉
+-  과천시, 자동차 환경개선부담금 일시납부하면 10% 감면
+-  김포시 복지국장, 민원콜센터 현장행정
+-  Ondanks massale zoekactie is vermiste Yoran niet gevonden
+-  광주시, 2026~27년 경기도 종합체육대회 유치 위한 홍보에 전력 질주
+-  مقترحات برلمانية عراقية لإخراج القوات الأجنبية
+-  Les Lakers et les Hawks ont discuté d’un transfert de Dejounte Murray
+-  Le programme de la nuit en NBA : 8 matchs dont Thunder – Magic (2h) et Mavs – Pelicans (2h30)
+-  NBA – Le récap du jour : Jerry Krause sifflé par des fans des Bulls, les Français assurent
+-  Bundesliga kompakt: Bayer Leverkusen mit Last-Minute-Sieg in Augsburg
+-  Loena Hendrickx a enfin décroché l'or : “J’ai apprécié de bout en bout !”
+-  عام انتخابات کی تیاریوں کے حوالے سے چیف سیکریٹری کے زیرصدارت اجلاس، برفانی اضلاع میں بلاتعطل انتخابات کے عمل کو یقینی بنانے اور الیکشن ضابطہ اخلاق پر مکمل عمل درآمد کی ہدایت
+-  Sabotage in Russland: Was treibt die Brandstifter an?
+-  انطلق من لبنان.. صاروخٌ يستهدف مستعمرة إسرائيلية!
+-  Cómo le fue a Godoy Cruz Antonio Tomba en el primer amistoso del 2024
+-  Emma Stone is Selling Her Charming L.A. Home for $4M – Inside the Property
+-  AK Parti Muğla Büyükşehir Belediye Başkan Adayı Ayaydın, yaralı üsteğmenin Köyceğiz'deki ailesini ziyaret etti
+-  Türkevi'nde iş ve ticaret zirvesi! ASKON USA Başkanı Özmekik: Türkiye'nin gelişmesine katkı sunmak için heyecanlıyız
+-  Fenerbahçe yeni transferini açıkladı!
+-  5 điều cần làm trước Tết nếu muốn có làn da đẹp
+-  Nemački kancelar zabrinut zbog porasta ekstremizma: „Toksična mešavina koja treba da nas brine“
+-  Denne yoghurten er merket helnorsk. Nå inneholder den tysk melkepulver.
+-  Doi adulți s-au luat la bătaie cu doi copii, în Petroșani. Un băiat de 14 ani a fost mușcat de cot de o femeie
+-  WTA Hobart: après sa finale, Mertens est "confiante de signer un bon résultat" à l'Open d'Australie
+-  Police arrests 15 suspected bandits, kidnappers, others in Niger
+-  Acertijo visual: los novatos no logran encontrar el error en la imagen llena de uvas
+-  VIDEO: Kovač i Majer prosuli pobjedu, veliki trijumf Eintrachta kod Leipziga
+-  Баєр обіграв Аугсбург, Лейпциг поступився Айнтрахту: результати матчів Бундесліги
+-  Anders Breivik brød sammen i retten, men medierne måtte ikke vise det. Nu skaber det stor debat
+-  Động thái của cựu cầu thủ MU khi trong cảnh thất nghiệp
+-  Chấm điểm Chelsea: Suýt lĩnh thẻ đỏ; Điểm 8 duy nhất
+-  قصف أمريكي يستهدف قاعدة بحرية حوثية في الحديدة
+-  Yoran Krol (16) uit Sleeuwijk niet gevonden tijdens grote zoekactie met 2500 vrijwilligers
+-  Guillermo Almada iba a ser el DT de la Selección Mexicana; ¿por qué cambiaron de opinión?
+-  Sergi Roberto: "La mejor manera de defender ante el Real Madrid es tener la pelota"
+-  Incendio colapsó un área de 70 000 metros cuadrados en San Petersburgo (+ Video)
+-  जयपुरिया अस्पताल में होगा सुविधाओं का विस्तार : जिला कलेक्टर प्रकाश राजपुरोहित ने दी विकास कार्यों को मंजूरी
+-  Milatariga Itoobiya oo lagu eedeeyay Xasuuq Wadareed ka dhan qowmiyadaha Dalkaasi
+-  مخاوف يمنية من اشتداد بطش الحوثيين وتصاعد أزمات المعيشة
+-  Canadian women beaten 2-0 by Britain in Olympic field hockey qualifier
