@@ -1,51 +1,11 @@
 # Latest News
--  Vali Gül'den ev ve iş yerlerine bayrak asılması çağrısı
--  Fariolili Nice, Rennes'i geçemedi!
--  عاجل.. الأحد 2 رجب.. مواقيت الصلاة في جميع مناطق المملكة
--  جون كيري يترك منصبه في إدارة "بايدن".. لهذا السبب
--  Thousands of Protesters March in D.C. to Demand Gaza Ceasefire
--  Nigel Farage's Reform UK draws up hit list of ten Conservative MPs who may defect before the General Election
--  גברים לא מכבסים את מגבת האמבטיה שלהם ןזה יעלה להם בבריאות
--  רוכב אופניים החליק בתל אביב; מצבו בינוני
--  הפועל גליל מטה אשר עכו מושלמת גם בתום המחזור השמיני בליגת הכדורעף
--  Secret summits over making Charles regent in Queen's last years: The then-prince was very reluctant to dwell on detailed talk about a regency and aides knew he was determined not to tempt fate or seem impatient
--  المجلس العلمي ومدرسة أنس بن مالك يكرمان الأطفال حفظة القرآن ومحفظيهم بإقليم الدريوش
--  Heiress Nicola Peltz Beckham, 29, is hit by backlash for making a film about poverty-stricken 19-year-old
--  Fresh for the playoffs! Travis Kelce's barber shares picture of the Chiefs star's new haircut ahead of Kansas City's wild-card game against the Miami Dolphins
--  Arguiñano carga contra 'Masterchef': "Parece una guerra y se busca la lágrima"
--  Alejandro Giammattei aprueba que sus ministros tengan carros y seguridad antes de dejar el poder en Guatemala
--  Saiba como é o golpe do FGTS e como se proteger
--  PETER HITCHENS: Another foreign brawl? Oh, grow up... we can't even fix our pothole-peppered roads
--  Post Office minister demands jail for those to blame for the Horizon scandal that has left the country outraged
--  Ach, co za bal! Uczniowie Staszica na razie bawią się na studniówce
--  وزارة التعليم العالي: الكشف عن رزنامة سير المسابقات والامتحانات المهنية
--  يتكفل بالعملية مفتشو المقاطعات: برنامج لتكوين مديري المدارس حول امتحان تقييم المكتسبات
--  لإنهاء التعتيم وسيطرة الجيش على تغطية الحرب: الكيان الصهيوني مطالب برفع الحظر عن دخول الصحافة إلى غزة
--  وسيط الجمهورية يدعو إلى تكريس الأخلاقيات المهنية في الإدارة ويؤكد: يجب تفادي المعالجة الفوقية لعرائض المواطنين
--  المنطقة مكتظة بالنازحين: الكيان الصهيوني يكثف من استهداف جنوب غزة
--  تعليق ملفات 10 آلاف مستفيد واسترداد خمسة ملايير سنتيم: استفادة 54 ألف بطال من المنحة في 2023 بجيجل
--  المفتش العام بوزارة الداخلية يؤكد تخصيص 35 ألف مليار للمشاريع ويصرح: برامج مناطق الظل تكفّل مسبق بانشغالات المواطنين
--  خبراء يؤكدون أن التدخلات العسكرية تؤدي إلى نتائج كارثية دائما
--  بن قرينة يؤكد: التقرير الأمريكي حول الحرية الدينية تضمن مزاعم ومغالطات
--  برنامج لانجاز سدود وحواجز مائية: إنشاء أول منطقة نشاطات لتربية المائيات بالطارف
--  رئيسة السلطة العليا للشفافية والوقاية من الفساد ومكافحته: على الإدارات تجاوز الأساليب التقليدية البعيدة عن الإبداع والابتكار
--  Na rukometnom Euru večeras se dogodila najveća senzacija svih vremena
--  Outrage as Samantha Cameron's VIP connections secure her first permanent fashion store at the expense of a much-loved Belgravia hair salon, writes EMILY PRESCOTT
--  Confira os novos valores para Teto do INSS e salário-família
--  6 of the Best Webcams for Streaming
--  대만 총통선거 친미 라이칭더 당선…셈법 복잡해진 K반도체
--  Lauryn Goodman reveals she 'showed Kyle Walker's wife Annie Kilner a DNA test' to prove the footballer had fathered her daughter and claims he was 'living a double life'
--  Queen's funeral rehearsal was a comedy of errors as even the band went AWOL... it was a minor miracle there were no major glitches on the day itself
--  El consejero delegado de JPMorgan critica la seguridad pública de San Francisco
--  Arévalo mantendrá relaciones con Taiwán y expandirá la cooperación comercial con China
--  ХАМАС будет лечить заложников теми лекарствами, что поступают палестинцам
--  Greg Daniels Inching Closer to New Take on ‘The Office’
--  Acordo fechado. Italianos revelam detalhes do negócio de Álvaro Fernández
--  Más de 30 fallecidos por derrumbes en una carretera
--  Elvis Handanagić iz Cazina opljačkao zlataru u Bihaću, policija ga lišila slobode
--  Rush to Queen's funeral: Brigadier who helped carry Her Majesty's coffin was toasting his daughter at a wedding in Corfu when he was ordered back for the funeral
--  البرلمان العراقي يخفق في انتخاب رئيسه الجديد
--  Liga de Quito apuesta por el boliviano Gabriel Villamil para la actual temporada
--  تجدد النقاش حول رفع الدعم على المحروقات وخاصة البنزين
--  Royal aides drew up secret plans to make Charles the first regent since 1820 and step in during the final years of the Queen's reign
--  Alejandra Guzmán confunde a imitador de Christian Nodal con el verdadero y lo abraza, durante presentación en Aguascalientes
+-  PSV beat Excelsior to win their first game back and equal record from 1988
+-  Moreirense ganha na Amoreira
+-  Страшно: Околу 4,3 милиони луѓе побегнале од Украина во Европската Унија
+-  الخارجية المصرية: لم نمنع أو نعطل دخول أية شاحنات لقطاع غزة
+-  نتنياهو يؤجل مناقشة اليوم التالي للحرب على غزة
+-  [오피셜] '첼시-독일에서 모두 실패' 21세 유망주 ST, EPL 번리 임대 이적
+-  Suárez reencontra Messi e faz primeiro treino pelo Inter Miami; veja possíveis datas de estreia
+-  Suomalaislentopalloilija upeaan saavutukseen
+-  Ministro investigado por mandar servidores para pré-carnaval faz reuniões semanais em Sergipe
+-  10 أفكار لقضاء وقت الفراغ للأطفال بعيدا عن الهواتف والشاشات
