@@ -1,11 +1,11 @@
 # Latest News
--  Mallorca y Celta empatan y siguen jugando con fuego
--  IZVORI IZ BRISELA OTKRIVAJU: Evropska narodna stranka stala u obranu Vučića...
--  Kansere Kalkan Olan Doğal Mucize! Her Yaşta Kullanılması Öneriliyor
--  Bayer Leverkusen, zirvede hata yapmadı
--  Valentin Rosier'e teklif geldi! İşte o rakam...
--  שני גברים נפצעו באורח קל-בינוני באירוע אלימות בירושלים
--  על רקע המלחמה: אלפים צפויים להשתתף בהילולת הבאבא סאלי בנתיבות
--  מדליית ארד לנבחרת ישראל עד גיל 18 במוקדמות אליפות אירופה בכדורעף
--  המשטרה חוקרת דיווח על כתובות תמיכה בחמאס שרוססו בג'לג'וליה
--  Calcio: Rrahmani "Oggi c'era tensione, è stato duro vincere"
+-  Pochettino: “Đó nên là một tấm thẻ đỏ”
+-  נתניהו על ההליך בהאג: "תומכי הנאצים החדשים מעיזים להאשים אותנו ברצח עם"
+-  Najave događaja za 14.01.2024. godine (nedjelja)
+-  Ronnie O’Sullivan beats Shaun 6-2 to close on eighth title
+-  Shoppers race to Sainsbury's to grab huge bags of Quality Streets for £2.50
+-  अल्पना रावत का राष्ट्रीय स्तर पर अंडर 19 राजस्थान टीम में हुआ चयन
+-  Work on Dexcom plant in County Galway to start this month
+-  Tomini apelon: Mos i çoni fëmijët në kopshte e çerdhe nëse kanë grip
+-  İsveç Rusiyadan qorunmaq üçün öz sualtı qayıqlarını hazırlayır
+-  Boro come from behind to round off a good week with win at Millwall
