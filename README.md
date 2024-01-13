@@ -1,11 +1,11 @@
 # Latest News
--  Pochettino: "Thật tuyệt vời"
--  Tüketmeyen pişman oluyor: Şişkinlikten mide ağrısına kadar faydalı!
--  Umut Nayir, Süper Lig ekibine transfer oluyor!
--  TEST: Cupra Leon TDI - Temná duša rodiny
--  Trung Quốc mất bàn vì VAR ở trận ra quân Asian Cup 2023
--  İsrail Başbakanı Netanyahu: Gazze'de saldırılara devam edeceğiz
--  Bursa'da, asansör boşluğuna düşen apartman yöneticisi hayatını kaybetti!
--  Esther Guerrero bate el récord de España de 1.000 metros
--  شركة البريقة تعلن عن مبادرة استثنائية لتوفير وقود الديزل لسائقي الشاحنات
--  Нападающий "Рейнджерс" Панарин прервал результативную серию из девяти матчей в НХЛ
+-  בשל חשש לסלמונלה: שטראוס מורידה את דגני הבוקר מהמדפים
+-  בת ה-13 שנחטפה לעזה ושוחררה הגיעה לחנוך את שעון החול שהוצב בניו-יורק
+-  ראש העיר בקריית שמונה: "לא נחזור לעיר כל עוד לא תשתנה המציאות שהייתה בעיר"
+-  تفاصيل أزمة مصنع أبو قرصاص بعد قرار وقف إنتاج السكر للمرة الأولى منذ 155 عاما
+-  مقرر لجنة الاستثمار بالحوار الوطني: رفع الحد الأدنى للأجور متوقع قبل شهر رمضان
+-  Triunfo Panza Verde en Tecpán
+-  PepsiCo запретила упоминать ВСУ и поддержку Киева в своей рекламе
+-  Бастрыкин поручил возбудить дело после пожара на складе Wildberries под Петербургом
+-  Cerca de 600 quilos de pescado ilegal são apreendidos na feira da Panair em Manaus
+-  Καιρός - Τσατραφύλλιας: Μετά την κακοκαιρία εξπρές έρχεται άνοδος της θερμοκρασίας έως 8°C
