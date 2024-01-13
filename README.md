@@ -1,51 +1,11 @@
 # Latest News
--  Missä on Leo Komarov? Tämä on tilanne nyt
--  CP reviews functioning of various wings at Hyderabad Police headquarters
--  Nein zu Einspar-Forderungen: SPD-Senatoren stellen sich weiter gegen Finanzsenator Evers
--  Следующий соперник «Барыса» победил после пяти подряд поражений в КХЛ
--  בגלל תמיכתה בישראל: התפרק ארגון האוהדים הבינ"ל של סט. פאולי
--  Former Aston Villa boss set for turbulent time as he faces further blow
--  ثورة الذكاء الاصطناعي تدخل عالم التجميل
--  توقعات أحوال الطقس غدا الأحد
--  أطباء يحذرون من الخمول وقت الفراغ
--  ضربات جوية أمريكية جديدة على شمال صنعاء اليمنية والحوثيون يتوعدون ب "رد قوي"
--  تناول الطماطم يومياً قد يساعد في إدارة ارتفاع ضغط الدم
--  في عز الأزمة..دنيا باطمة تفاجئ جمهورها
--  أخلاقيات النضال الجمعوي عموما والنضال المناخي خصوصا
--  مواعيد مباريات "أسود الأطلس" في كأس إفريقيا للأمم
--  بتعليمات من حموشي.. ولاية أمن طنجة تستقبل 21 طفلا للإطلاع على مرافقها
--  هل تتأثر صادرات وسفن المغرب من ضربات التحالف على الحوثيين؟
--  منظمة الأرصاد الجوية الدولية: عام 2023 كان الأكثر حرا على الإطلاق منذ بدء تسجيل درجات الحرارة
--  أخنوش: مكالمة الملك حول "إيض يناير" أسعد أيامي.. وسوس علمتني السياسة
--  Foto mit Bulldogge direkt am Baby-Kopf: BVB-Star Reus erneut Vater geworden
--  Призерка Олимпиады из Казахстана по борьбе проиграла с унизительным счетом
--  Самолетите Boeing 737 MAX 9 остават на земята за още проверки
--  Yarı Otomatik Ofsayt Sistemi Süper Lig'de ilk kez devreye girdi!
--  Şehitlere yönelik provakatif paylaşım yapan 6 şüpheli yakalandı
--  Tottenham Ndombele'yi geri çağırabilir!
--  Erce Kardeşler: Kendime zarar vermeye başlayacağım
--  Psychose à Kayar : Les élèves Thierno Ba et Tidiane portés disparus (Photo)
--  Laurys Diva he`i que la plata no le cambió
--  Lőw Zsolt: Szinte újravirágzását éli a magyar labdarúgás
--  Motociclista é socorrido com fraturas expostas após colisão com carro em Lucas do Rio Verde
--  Meghan Markle conveys powerful message to Princess Kate amid rift
--  मेयर चुनाव : कांग्रेस के तीनों उम्मीदवारों ने दाखिल किए नामांकन, वोटिंग 18 को
--  Kai Häfner: DHB-Spieler im Babyglück - Geburt von Sohn Matti während EM
--  Kai Häfner: DHB-Spieler im Babyglück - Geburt von Sohn Matti während EM
--  Тръгна измама с Енджи Касабие
--  Sabotean una ambulancia mientras atendía en Vizcaya a una mujer, que ha fallecido
--  «Кайрат» держал победу над «Атырау» в матче чемпионата Казахстана
--  Pedro Coimbra como adjunto no Secretariado do PS de Pedro Nuno Santos
--  India Supreme Court refuses stay on law regulating election commissioners
--  Encuentran el cadáver de un hombre tras el incendio de su casa en Mallorca
--  Çay Ocağını Birbirine Kattılar, Masa, Sandalye ve Okey Istakalarıyla Saldırdılar
--  ارتفاع عدد الشهداء الفلسطينيين في العدوان المستمر على قطاع غزة إلى 23843 شهيدًا
--  "المرور" يطرح لوحات إلكترونية عبر "أبشر" غدا.. و4 خطوات للتسجيل
--  Đerona miran pred Mađare: "Sve je i dalje u našim rukama"
--  'Caner'le gurur duyuyorum'
--  भरतपुर में परचून की दुकान से उधर का सामान नहीं मिलने पर एक युवक ने की फायरिंग
--  Cómo lograr que un baño sea más relajante: diez formas inteligentes para tener tu spa en casa
--  Deca i srpska Nova godina - treba li im dopustiti da ostanu budni do ponoći?
--  Burkina Faso : Un important lot de matériel reçu par l’Armée
--  Şehitlere yönelik provakatif paylaşım yapan 6 şüpheli yakalandı
--  Xi feared to launch all-out war on Taiwan as new ‘troublemaker’ president set to snub ‘reunification’ talks with Beijing
+-  Marco Odermatt überlegen - Stefan Rogentin in der Top 15
+-  Süper Lig'de bir ilk! Yarı otomatik ofsayt sistemi kullanıldı
+-  Emine Erdoğan şehit düşen askerler için başsağlığı mesajı yayımladı
+-  Provokatif paylaşımlara geçit yok! Bakan Tunç: Haklarında gözaltı ve tutuklama kararı verildi
+-  Emre Belözoğlu transfer için konuştu! "Fenerbahçe'den bazı isimler var"
+-  Filistin'den hesap veren İsrail hakkında açıklama: UAD'deki davayı hafife alıyor
+-  Sudan IGAD'ın düzenleyeceği olağanüstü zirveye katılmayı reddetti
+-  Sanayi ve Teknoloji Bakanı Kacır: Kahramanlarımızın kanı yerde kalmadı, kalmayacak
+-  Cezayir BM Güvenlik Konseyi üyelerine, Filistinlilerin göçe zorlanmasını durdurma çağrısında bulundu
+-  Bakan Özhaseki'den, şehit Özdemir'in ailesine ev sözü: Emanetlerine sahip çıkmaya devam edeceğiz
