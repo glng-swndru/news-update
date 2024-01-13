@@ -1,11 +1,51 @@
 # Latest News
--  Pochettino: “Đó nên là một tấm thẻ đỏ”
--  נתניהו על ההליך בהאג: "תומכי הנאצים החדשים מעיזים להאשים אותנו ברצח עם"
--  Najave događaja za 14.01.2024. godine (nedjelja)
--  Ronnie O’Sullivan beats Shaun 6-2 to close on eighth title
--  Shoppers race to Sainsbury's to grab huge bags of Quality Streets for £2.50
--  अल्पना रावत का राष्ट्रीय स्तर पर अंडर 19 राजस्थान टीम में हुआ चयन
--  Work on Dexcom plant in County Galway to start this month
--  Tomini apelon: Mos i çoni fëmijët në kopshte e çerdhe nëse kanë grip
--  İsveç Rusiyadan qorunmaq üçün öz sualtı qayıqlarını hazırlayır
--  Boro come from behind to round off a good week with win at Millwall
+-  İşgalci İsrail'in Gazze'de bir subayı öldürüldü
+-  Çaykur Rizespor, Adana Demirspor'u tek golle geçti
+-  Tığ gibi oldu: 1 haftada tam 5 kilo verdi! İşte Hande Erçel'in zayıflama sırrı
+-  Eyüpspor sahasında hata yapmadı!
+-  Son 24 saatte 57 terörist öldürüldü
+-  Semih Kılıçsoy, 16 yıl sonra bir ilgi başardı!
+-  İsrail'in kara propagandası çökertildi! DMM: İddialar gerçeği yansıtmamaktadır
+-  Berisha: Edi Rama, kreu suprem i vjedhjes së shekullit
+-  Турсунқулов Ином Абдухалиловичнинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Чотқол давлат биосфера қўриқхонасига пресс-тур
+-  అధికారులు సమర్థవంతంగా విధులు నిర్వహించాలి
+-  స్వామి చెరువు మునగడ ప్రాంతం ఆక్రమణ
+-  ¿Dónde ver el juego de hoy?
+-  ভালুকায় সাবেক এমপি কাজিম উদ্দিন আহমেদ ধনুর সংবাদ সম্মেলন
+-  আমেরিকায় সড়ক দুর্ঘটনায় বাংলাদেশি নিহত
+-  البرلمان يلجأ لجولة ثانية لاستئناف جلسة انتخاب الرئيس
+-  JEDNA OSOBA IZGORELA U POŽARU Tragedija kod Šapca: Vatra buknula u štali
+-  إيفاد وفد من خبراء الشركة العامة للكهرباء لدولة النيجر
+-  Fernando Santos Süper Lig kariyerine 3 puanla başladı! Beşiktaş Semih Kılıçsoy'un yıldızlaştığı maçta Karagümrük'ü 3-0 mağlup etti
+-  Izrael otkrio kada će civili iz severne Gaze moći će da se vrate
+-  పూర్వ విద్యార్థుల ఆత్మీయ సమ్మేళనం
+-  Wetter in NRW: Experte schlägt Alarm – das große Chaos kommt erst noch
+-  Dezenformasyonla Mücadele Merkezi “Cizre Devlet Hastanesi” iddiasını yalanladı
+-  RIP: Garda search for missing man (41) stood down after body found in tragic update
+-  مظاهرات في مختلف القارّات للمطالبة بوقف العدوان
+-  عنابة: افتتاح الصالون الوطني للصناعات الغذائية والتغليف
+-  "اليونيسيف" تستعجل إنقاذ أرواح الأطفال في القطاع
+-  رفض أممي لتغيير التّركيبة الدّيموغرافية في غزّة
+-  هذا جديد أحياء عدل
+-  أمريكا تشن غارات جديدة على اليمن
+-  القرار . . فكرة الدولة
+-  Δύο τελικές (Τα στατιστικά)
+-  Sinop: colisão entre carro e moto em cruzamento deixa um ferido
+-  Croatian defence minister cancels meeting with Montenegrin counterpart
+-  Изгоре кров и втор кат од куќа во скопското село Студеничани
+-  దేశ ఖ్యాతిని విస్తృతం చేసేందుకు యాత్ర
+-  Nu Arie Boomsma zelf de grote vijf-nul bereikt, heeft hij zijn sportlessen veranderd naar 60+
+-  జగనకు ఓటేసి తప్పు చేశాం..మమ్మల్ని మన్నించు తండ్రి
+-  Nizozemci su razbili BiH, a među strijelce se upisao i njihov golman
+-  Jacinda Ardern heiratet zwei Jahre später als geplant
+-  Ακανόνιστος ύπνος: Οι επιπτώσεις στο έντερο
+-  „Uhr ist nicht so ausgeprägt“: BVB-Boss Watzke über Jadon Sanchos Disziplin
+-  Gewaagde crypto strategie leverde Steve 600% winst op
+-  Na štandu u Zagrebu osvanuo grafit vulgarnog sadržaja upućen Dalmatincima i Torcidi, čeka se reakcija na ovaj skandal
+-  Vice de Boulos: Eduardo Suplicy lança Luna Zarattini para disputar prévia com Marta
+-  Florian Silbereisen: Unfassbare Bilder vor „Schlagerchampions“-Start in Berlin
+-  «Удивили». Главный тренер клуба КПЛ оценил матч с титулованной узбекистанской командой
+-  Αυτό είναι το σήμα για τα 100 χρόνια της ΑΕΚ! (vid)
+-  الأمطار تغرق مناطق وطرق رئيسية في بلد عربي
+-  ‘We love life’: Gaza couple celebrate wartime wedding
