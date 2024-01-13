@@ -1,51 +1,51 @@
 # Latest News
--  İşgalci İsrail'in Gazze'de bir subayı öldürüldü
--  Çaykur Rizespor, Adana Demirspor'u tek golle geçti
--  Tığ gibi oldu: 1 haftada tam 5 kilo verdi! İşte Hande Erçel'in zayıflama sırrı
--  Eyüpspor sahasında hata yapmadı!
+-  Ha helyén van a szívünk – Szerethetően lírai és szellemes előadás lett a vígszínházi Pinokkió
+-  Néhány száz diák tüntetett szombaton a Belügyminisztériumnál a jobb oktatásért
+-  Südtirol: Nach Familienurlaub vermisst – 16-jähriger Deutscher tot aufgefunden
+-  ارتباط بسيط بين الحمل بتوائم وزيادة الوزن
+-  آل عازر والريحاني ينعون فقيدتهم يُسرى سليمان سالم
+-  مروحية مسيّرة للعمل على كوكب الزهرة
+-  Indian Overseas Bank and Indian Institute of Banking and Finance sign MoU for employee certification programme
+-  Miley Cyrus’ Stalker Was Reportedly Arrested Outside Of The Singer’s Home
+-  Krebskranke Shannen Doherty: Mit Fünf-Jahres-Plan zum Überleben
+-  SSK BAĞ-KUR Emekli Sandığı emeklisine 12 ayda üç maaş avantajı! Başvurmayan dizlerini dövüyor
+-  Beginn einer neuen Ära: Dänemarks Langzeit-Kronprinz Frederik wird König
+-  Mbreti i Spanjës mbërrin në Guatemala për inaugurimin e presidentit të ri Arevalo
+-  Termosunu alan İzmirliler oraya koşacak! Şehrin içinde portakal ağaçlarıyla dolu cennet: Açılış için geri sayım başladı
+-  The Telegraph: Британский Королевский флот не в состоянии развернуть эскадру в Красном море
+-  Biden Blames the Media for the Fact That Most Americans Think 'Bidenomics' Sucks
+-  Megmagyarázhatatlan dolgot találtak a világűrben a tudósok
+-  Woman’s hair freezes in -30°c weather, Watch the Incredible Moment (Watch)
+-  Bauantrag für neues Autohaus ist abgeschlossen: Pläne für das Porsche-Zentrum in Minden nehmen Gestalt an – Mindener Tageblatt
+-  Periyanaickenpalayam flyover in Coimbatore should be opened to public only after completion of all works, say road users
+-  3 banques vont fermer et BoursoBank sort un bonus gratuit FOU pour séduire
+-  Ukraine Video Shows HIMARS in Action Against Russia: 'Minutes to Load'
+-  Jokerit voitti sakeassa lumisateessa
+-  Jääkiekon MM-kisoissa nähtiin historiallinen sensaatio
+-  Heartbreak for Telugu Yoddhas: Odisha Juggernauts Triumph in Thrilling Clash, Yoddhas Secure 4th Spot in Ultimate Kho-Kho Championship
+-  Alexander Isak and Anthony Gordon score 'identical' wonder goals as Newcastle stun Man City
+-  Fernando Santos kendinden geçti. Sahaya girdi öyle bir hareket yaptı ki taraftarlar da kendinden geçti
+-  Dan Burn confronts celebrating Man City players after 'foul' before Bernardo Silva strike
+-  Erman Toroğlu Beşiktaş Karagümrük maçından sonra küplere bindi: Görmemek için aptal olmak lazım
+-  Premier League, pronostico e quote di Manchester United-Tottenham
+-  Juve-Sassuolo con uno spettatore speciale in più: chiuso il colpo mercato
+-  Tecnoengineering Moncalieri di scena a Empoli
+-  WhatsApp plant zwei neue Features – blaue Häkchen eingeführt
+-  Françoise Hardy, el adiós de la parisina exquisita
+-  By: Puravive Review
+-  PepsiCo запретила Украине упоминать в рекламе ВСУ и боевые действия
+-  تحليل إسرائيلي: الاتهام بالإبادة الجماعية "مجرد بداية"
+-  Zayn Malik teams up with Pakistani trio AUR
+-  Autotransporter bleibt an Tankstellendach hängen
+-  Betrunkener Autofahrer liefert sich Verfolgungsjagd mit Polizei
+-  Former fire chief officially wins Virginia Beach special election
+-  AfD-Parteitag fordert Halemba zum Niederlegen seines Mandats auf
+-  Golaços atrás de golaços. Gordon 'tramou' Manchester City neste lance
 -  Son 24 saatte 57 terörist öldürüldü
--  Semih Kılıçsoy, 16 yıl sonra bir ilgi başardı!
--  İsrail'in kara propagandası çökertildi! DMM: İddialar gerçeği yansıtmamaktadır
--  Berisha: Edi Rama, kreu suprem i vjedhjes së shekullit
--  Турсунқулов Ином Абдухалиловичнинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Чотқол давлат биосфера қўриқхонасига пресс-тур
--  అధికారులు సమర్థవంతంగా విధులు నిర్వహించాలి
--  స్వామి చెరువు మునగడ ప్రాంతం ఆక్రమణ
--  ¿Dónde ver el juego de hoy?
--  ভালুকায় সাবেক এমপি কাজিম উদ্দিন আহমেদ ধনুর সংবাদ সম্মেলন
--  আমেরিকায় সড়ক দুর্ঘটনায় বাংলাদেশি নিহত
--  البرلمان يلجأ لجولة ثانية لاستئناف جلسة انتخاب الرئيس
--  JEDNA OSOBA IZGORELA U POŽARU Tragedija kod Šapca: Vatra buknula u štali
--  إيفاد وفد من خبراء الشركة العامة للكهرباء لدولة النيجر
--  Fernando Santos Süper Lig kariyerine 3 puanla başladı! Beşiktaş Semih Kılıçsoy'un yıldızlaştığı maçta Karagümrük'ü 3-0 mağlup etti
--  Izrael otkrio kada će civili iz severne Gaze moći će da se vrate
--  పూర్వ విద్యార్థుల ఆత్మీయ సమ్మేళనం
--  Wetter in NRW: Experte schlägt Alarm – das große Chaos kommt erst noch
--  Dezenformasyonla Mücadele Merkezi “Cizre Devlet Hastanesi” iddiasını yalanladı
--  RIP: Garda search for missing man (41) stood down after body found in tragic update
--  مظاهرات في مختلف القارّات للمطالبة بوقف العدوان
--  عنابة: افتتاح الصالون الوطني للصناعات الغذائية والتغليف
--  "اليونيسيف" تستعجل إنقاذ أرواح الأطفال في القطاع
--  رفض أممي لتغيير التّركيبة الدّيموغرافية في غزّة
--  هذا جديد أحياء عدل
--  أمريكا تشن غارات جديدة على اليمن
--  القرار . . فكرة الدولة
--  Δύο τελικές (Τα στατιστικά)
--  Sinop: colisão entre carro e moto em cruzamento deixa um ferido
--  Croatian defence minister cancels meeting with Montenegrin counterpart
--  Изгоре кров и втор кат од куќа во скопското село Студеничани
--  దేశ ఖ్యాతిని విస్తృతం చేసేందుకు యాత్ర
--  Nu Arie Boomsma zelf de grote vijf-nul bereikt, heeft hij zijn sportlessen veranderd naar 60+
--  జగనకు ఓటేసి తప్పు చేశాం..మమ్మల్ని మన్నించు తండ్రి
--  Nizozemci su razbili BiH, a među strijelce se upisao i njihov golman
--  Jacinda Ardern heiratet zwei Jahre später als geplant
--  Ακανόνιστος ύπνος: Οι επιπτώσεις στο έντερο
--  „Uhr ist nicht so ausgeprägt“: BVB-Boss Watzke über Jadon Sanchos Disziplin
--  Gewaagde crypto strategie leverde Steve 600% winst op
--  Na štandu u Zagrebu osvanuo grafit vulgarnog sadržaja upućen Dalmatincima i Torcidi, čeka se reakcija na ovaj skandal
--  Vice de Boulos: Eduardo Suplicy lança Luna Zarattini para disputar prévia com Marta
--  Florian Silbereisen: Unfassbare Bilder vor „Schlagerchampions“-Start in Berlin
--  «Удивили». Главный тренер клуба КПЛ оценил матч с титулованной узбекистанской командой
--  Αυτό είναι το σήμα για τα 100 χρόνια της ΑΕΚ! (vid)
--  الأمطار تغرق مناطق وطرق رئيسية في بلد عربي
--  ‘We love life’: Gaza couple celebrate wartime wedding
+-  Provokatörler şimdi de '46 ambulans Cizre Devlet Hastanesi morguna giriş yaptı' yalanını yaydı
+-  Çaykur Rizespor sahasında Adana Demirspor'u 1-0 mağlup etti |ÖZET
+-  IJskoude poollucht doet Verenigde Staten en Canada rillen: temperaturen tot -50 graden
+-  Kochi slips its position in Swachh Survekshan cleanliness survey
+-  El buque escuela Juan Sebastián de Elcano parte el sábado de Cádiz y llegará el 12 de julio a Marín
+-  Olympic Qualifier | Loss to USA makes India’s road to Olympics tougher
+-  Bernardo Silva is lauded as a 'ridiculous footballer' after his 'incredible' backheel finish against Newcastle… but some say Man City's opener shouldn't have stood after claiming Anthony Gordon was fouled
