@@ -1,11 +1,11 @@
 # Latest News
--  [Anzeige] Kaberett im Schloss
--  PSG : La date de ce grand retour est annoncée !
--  Nitish Kumar Rejects INDIA Bloc Convenor Post, Bats For Congress
--  السديري: عباس وصف الملك سلمان بـ "الرئيس الفعلي" لفلسطين
--  Lelaki tetak tangan anggota tentera, cuba samun di mesin ATM
--  Nền kinh tế sẽ hồi phục trong năm 2024
--  대만 총통 선거 투표 종료… 저녁 9시쯤 당선 윤곽
--  GS더프레시, 국내산 수산물 최대 50% 할인
--  박희조 동구청장, CES에서 대전역 미래형 환승센터 가능성 보다
--  이디야커피, 생딸기 음료 5종 … 20일 만에 40만잔 판매 돌파
+-  State in alleged insurance killer's case accused of sensationalising facts
+-  Israel: Risk of harm to Israelis if ICJ would order a stop in Gaza military ops
+-  Tutu statue with Palestinian-African scarf to be on display until Gaza ceasefire
+-  WATCH LIVE: ANC's 112th anniversary celebrations in Mbombela
+-  PKK inleri böyle vuruldu: 29 hedefin imha edildiği operasyondan yeni görüntüler
+-  Ticaret Bakanlığı üst sınırdan ceza kesmişti: Al-sat yapan fenomene Vergi Dairesi'nden 700 bin lira ceza
+-  Afrika Uluslar Kupası heyecanı başlıyor: İlk maçta Fildişi Sahili ve Gine Bissau karşı karşıya geliyor
+-  Taiwanese brush off China threats with ‘freely expressed’ votes
+-  FOTO / Prosvjed roditelja u Vukovaru: “Huligani nisu istukli samo djecu, nego i nas roditelje, istukli su Vukovar”
+-  Azərbaycan Ordusunun kadr işləri üzrə heyəti ilə təlim-metodiki toplanış keçirilib
