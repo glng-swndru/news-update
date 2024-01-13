@@ -1,51 +1,11 @@
 # Latest News
--  Nuevo presidente de Guatemala será investido este domingo con grandes expectativas
--  17χρονη κερδίζει 360.000 ευρώ το χρόνο και μοιράζεται το μυστικό της επιτυχίας: «Ο καθένας μπορεί να το κάνει»
--  বাংলা নাটকের দিকপাল নাট্যাচার্য সেলিম আল দীন
--  Κάλυψε το αυτοκίνητο της με κρυστάλλους και έγινε viral: «Κίνδυνος - θάνατος για τους οδηγούς» (vid)
--  I hate underwear lines and cracked the code for going commando in light leggings – follow my 2 steps, nothing shows
--  Guardiola hyller Bobb: – Å ha en slik spiller er fantastisk
--  בצל המתיחות עם נתניהו: גלנט נטש את דיון קבינט המלחמה
--  Οι 100 ημέρες πολέμου στη Γάζα «μια κηλίδα στην ανθρωπότητα», λέει ο ΟΗΕ
--  Κύκλωμα μαστροπείας: Στο μικροσκόπιο ο ρόλος της 25χρονης «Έλενας»
--  Revista produzida por produtores culturais de Rondônia vence o Prêmio Rodrigo 2023
--  Com 80 mil visitantes, Parque Estadual do Ibitipoca foi o 2º mais visitado de MG em 2023
--  Odebrecht pede ao STF suspensão de multa com Lava Jato
--  Murrell, Flanigan lead Ole Miss past Vanderbilt 69-56
--  Hauptbahnhof nach Verdacht auf Bedrohungslage wieder geöffnet
--  Izraeli vazhdon ofensivën në Gazë
--  Bomberos y personal de salud trabajan en el incendio de un centro de jubilados en Roca
--  Demonstrant avbrøt delfinalen i Melodi Grand Prix
--  Kerem Aktürkoğlu'nun Zorbay Küçük'e söylediği sözler ortaya çıktı
--  De Bruyne und Youngster sorgen für Sieg von Manchester City
--  Gelungenes Sancho-Comeback: Dortmund siegt in Darmstadt
--  Hallenpokal der "Freien Presse": VFC Plauen und Reichenbacher FC ziehen in die Endrunde ein
--  Protest im Erzgebirge: Mit diesen Sperrungen und Aktionen ist am Montag zu rechnen - So lief der Freitag
--  Weihnachtsgruß der Stadt Aue-Bad Schlema sorgt für Verwirrung: Werbeflyer für Ball als Ticket missverstanden
--  „Dann wäre es eklig geworden für Borussia Dortmund“
--  „SOKO“ Leipzig im ZDF: Fan-Liebling spricht über Serientod
--  Atatürk'ün etrafını çocukların sardığı ve gülümsediği anlar yeniden gündem oldu
--  Renato Paiva se zafa de las críticas en el Toluca: ‘Es una pena que tengan sacado de contexto y realidad una frase. Sí vamos a pelear por los títulos’
--  Suárez’s training alongside Messi, Busquets and Alba with Inter Miami officially underway
--  No-one can halt Israel’s war to crush Hamas, says Netanyahu
--  Atriz Mia Goth é acusada de agredir figurante durante filmagem
--  Taiwan just had an election, and the outcome is everything Beijing was dreading
--  Amancio Ortega elevado a “senhorio” da Primark com compra de novo armazém logístico nos Países Baixos.
--  The Masked Singer shock as Rat is finally revealed as HUGE Strictly star
--  Nordischer Aktionstag im Kaunertal war ein voller Erfolg
--  휴일, 전국 대부분 비·눈…빙판길 주의
--  في عسير وجدة .. الإطاحة بمروجي السموم قبل توزيعها
--  Royals | Margrethe II.: So sah die Königin vor 60 Jahren aus
--  «Palestina libera» e «No alle armi di Rwm a Israele»: sit-in pacifista a Domusnovas
--  Oahu Musings: The debate over full fields and signature events. Cink can speak from experience
--  Más de 40 hombres y 3 mujeres aprehendidos en operativo policial
--  Políticos acuden al desfile de las Mil Polleras
--  Bekannter Modehändler Wormland meldet Insolvenz an: Mehrere Städte betroffen
--  Délmagyar podcast: Orosz Diánával, ruhatervezővel beszélgettünk
--  Roma mendon për të ardhmen, sulmuesi shqiptar firmos në kryeqytet
--  Premier League, Νιούκαστλ - Μάντσεστερ Σίτι 2-3: Φοβερή ανατροπή με κορυφαίο τον Ντε Μπρόινε - Δείτε τα γκολ
--  Εθνική Πόλο Γυναικών: Ο πρωθυπουργός συνεχάρη την ομάδα για την τεράστια επιτυχία της
--  „Tai tik pradžia“. Budanovas pažadėjo krachą Krymui. Kas vyksta
--  „To nėra padariusi jokia kita valstybė.“ Tai ne JAV ir ne Vokietija. Ukraina bus užversta ginklais
--  [ŽT] Neprilygstamas tankų medžiotojas. „M2 Bradley“ įveikia naujausią rusų supertanką (Video)
--  „Mažiausiai 90 %.“ Atskleidžiama, kiek prieš karą turėtų tankų prarado Rusija
+-  Pochettino: "Thật tuyệt vời"
+-  Tüketmeyen pişman oluyor: Şişkinlikten mide ağrısına kadar faydalı!
+-  Umut Nayir, Süper Lig ekibine transfer oluyor!
+-  TEST: Cupra Leon TDI - Temná duša rodiny
+-  Trung Quốc mất bàn vì VAR ở trận ra quân Asian Cup 2023
+-  İsrail Başbakanı Netanyahu: Gazze'de saldırılara devam edeceğiz
+-  Bursa'da, asansör boşluğuna düşen apartman yöneticisi hayatını kaybetti!
+-  Esther Guerrero bate el récord de España de 1.000 metros
+-  شركة البريقة تعلن عن مبادرة استثنائية لتوفير وقود الديزل لسائقي الشاحنات
+-  Нападающий "Рейнджерс" Панарин прервал результативную серию из девяти матчей в НХЛ
