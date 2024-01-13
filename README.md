@@ -1,51 +1,51 @@
 # Latest News
--  На улице Зубковой в Рязани дорогу затопило кипятком
--  মন্ত্রিসভায় চট্টগ্রাম বিশ্ববিদ্যালয়ের সাবেক ৩ শিক্ষার্থী
--  Смоленские журналисты отмечают профессиональный праздник
--  Down Sendromlu Futsal Milli Takımı'nın başarısının sırrı "birliktelik"
--  Denizlispor'dan transfer yasağı açıklaması
--  2 kız kardeş sızıntı nedeniyle hayatını kaybetmişti! Doğalgaz faciasıyla ilgili yetkili firmadan açıklama
--  CHP'nin Tandoğan Mitingi iptal!
--  DEM Parti İstanbul'daki Filistin mitingini erteledi
--  Sivasspor deplasmanda Samsunspor'un konuğu olacak
--  نشر المئات من الشرطة في لندن قبل مظاهرات مؤيدة لفلسطين
--  Mercato - PSG : Le «nouveau Messi» affole l’Europe !
--  Um morto e três feridos em acidente na EN125 em Portimão
--  Тулякам рассказали, как наладить питание детей после каникул
--  Raportti varoitti väärästä tiedosta – ”Kannattaa huomioida Suomessakin”
--  Қурилиш материалларининг экспорт географияси 43 давлатдан 53 тага ошди
--  Pogledajte kako Tucak ljubi Grka kojeg je izbacio iz borbe za medalju
--  "المقاومة الإسلامية": استهداف موقع العاصي بالأسلحة المناسبة
--  Scope Ratings, Türkiye'nin Kredi Notu Görünümünü Değiştirdi
--  سپریم کورٹ میں دوران سماعت چیئرمین پی ٹی آئی بیرسٹر گوہر کااپنے گھر پر مبینہ حملے کا دعویٰ، چیف جسٹس نے کیا کہا ؟ جانئے
--  Селезнев назвал конфискацию российских активов в числе главных рисков года
--  Kitu Haringtonu dijagnosticiran ADHD dok je bio na rehabilitaciji: ‘Shvatio sam da moj život ovisi o ovome’
--  Detenido un empresario agrario que explotaba a extranjeros 'sin papeles' en una finca de Belmez
--  Remaniement : les dessous du retour surprise de Rachida Dati au gouvernement
--  Remaniement : les dessous du retour surprise de Rachida Dati au gouvernement
--  Boeing 737 MAX 9 : le régulateur de l'aviation civile américain annonce le maintien de ces appareils au sol
--  Auto-Kennzeichen: Wer das tut, zahlt 65 Euro Strafe
--  توقيف سوري يروج المخدرات في مناطق الكفاءات والحدت والمريجة وحي السّلّم
--  الدفاع المدني: جرف أتربة وصخور على اوتوستراد المتن السريع
--  صادق: تحرك جنوب افريقيا يكشف عن مدى البُعد الإنساني للقضية الفلسطينية
--  النشرة: قصف اسرائيلي بأكثر من 25 قذيفة فوسفورية و دخانية إستهدفت منطقة "طوفا" و "الجدار" في بلدة ميس الجبل
--  وفد من تجمع مالكي الأبنية المؤجرة زار سلام للاعتراض على رد قانون الإيجارات
--  كتيّب لـ "جمعيّة عدل ورحمة" حول بناء جسور نحو غد أفضل للشباب خالٍ من المخدّرات
--  حزب الله: استهدفنا موقع ‏العاصي بالأسلحة المناسبة وتم إصابته بشكل مباشر
--  Babo u zbulon ministrave sekretin e çelësit të gjumit! Pyetjet e ambasadorëve për Lulin
--  В поселке Уйма отремонтируют школу
--  Uvoz meda u BiH deset puta veći od izvoza
--  Đoković odradio poslednji trening pred napad na AO
--  Usred dana ga zaustavili na traktoru, a kad tamo “napuhao” 3,15 promila
--  POKS: Aleksandar Vučić je idejni tvorac izborne prevare i moraće da odgovara
--  Sven-Goran Eriksson admits he 'always wished to be the manager of Liverpool'... as terminally-ill former England boss, 75, reveals he still supports the Premier League giants
--  أمانة الجوف تنهي تهيئة 108 آلاف م2 من المسطحات الخضراء في القريات
--  لا تُنْسَى قبل الحمل.. 5 فحوصات مهمة ينصح بها الأطباء
--  "تجميد الخبز بالفريزر يؤدي إلى الإصابة بالسرطان".. "الخضيري" يفنّد "المتداول"
--  PKO BP: Polska wykazuje jedną z najbardziej optymalnych relacji między siłą wzrostu PKB a stabilnością gospodarczą wśród państw regionu
--  ISW: Separatystyczne władze Naddniestrza prowadzą operację informacyjną w celu możliwej destabilizacji Mołdawii
--  I played in non-league getting elbowed every week, now I’m looking to star at Afcon under ex-Premier League manager
--  IGRTC to address ECDE row
--  Noc Biologów na UMCS
--  Megtámadták az FIA elnökét, ő csak nevetett rajta
--  Identificados los presuntos asesinos de dos hermanos acribillados en un coche en Casarrubios del Monte
+-  '서울의 봄' 1270만…'범죄도시2' 넘고 역대 韓영화 톱9
+-  Cine este șeful rebelilor houthi din Yemen, care atacă navele din Marea Roșie
+-  وزير النقل: استلام سفينة "وادي العريش" من ترسانة هانتونج الصينية
+-  وزير التنمية المحلية: 62 مليار جنيه تكلفة مشروعات الشرقية في عهد الرئيس السيسي
+-  دراسة تكشف .. الصيام المتقطع يحارب شيخوخة الدماغ
+-  وزيرة الهجرة: تلبية احتياجات المصريين بالخارج أولوية.. ومحفزات جديدة الفترة المقبلة
+-  انقسامات حادة في اجتماع مجلس الأمن بشأن الضربات الجوية الأمريكية- البريطانية ضد اليمن
+-  عمالقة التكنولوجيا يبدأون 2024 بطرد الموظفين
+-  الاحتكار والأسعار ورغيف الخبز.. وزير التموين في مرمى نيران النواب الثلاثاء المقبل
+-  موظفو الحكومة الأمريكية يخططون للإضراب بسبب سياسات بايدن
+-  6 गुना बढ़ने वाली हैं अयोध्या के लिए फ्लाइट्स, जानिये क्या होंगे प्राइस
+-  Mirel Mërtiri, shantazh prokurorit të SPAK. Denoncon Këlliçi
+-  Sources: Manchester United set to agree exit, opens door for potential Rangers transfer
+-  Aç Karnına Ceviz Badem Yiyenler Yaşadı! Yaşlanmaya Meydan Okuyor
+-  Emekli Maaşına Ek Zam Ne Zaman? Ocak Maaşlarına Yetişecek Mi? Zam Maaşları Ne Kadar Etkileyecek?
+-  'Rodgers needs': Chris Sutton reacts as Celtic close in on £3m transfer deal
+-  Houd het Nederlandse klimaatbeleid stevig op koers. De politieke waan van de dag moet er minder toe doen
+-  Panic as huge fire destroys vast online shopping warehouse in Russia used as location for recruiting migrant workers for Putin's war in Ukraine amid suspicions of arson
+-  “أبويا وأمي مالهم بإمام عاشور؟”.. إبراهيم سعيد يفتح النار على مصطفى يونس
+-  [수갑 차고 도주한 마약범죄 용의자…편의점서 시민 신고로 체포
+-  Ljudi rođeni u ova tri horoskopska znaka misle da su uvek u pravu
+-  ¡Narco terrorismo!
+-  Khabib Nurmagomedov could make stunning return at UFC 300 and battle Leon Edwards for the welterweight title... after his former coach revealed the Russian 'is back training' three years after retiring
+-  Detenido un matrimonio por matar en Ávila a un anciano de 90 años para apropiarse de su patrimonio
+-  تشكيلة فولهام المتوقعة أمام تشيلسي
+-  Amazon Great Republic Day Sale: लैपटॉप, मोबाइल सहित इन गैजेट्स पर मिलेगी छूट, जानें ऑफर्स की डिटेल
+-  Турција изврши воздушни напади, ескалира конфликтот на Блискиот Исток
+-  Uhićen srpski folk pjevač Aca Lukas: Doznalo se da nema ni vozačku
+-  Nuestros derechos humanos
+-  Diyarbakır'da tefecilere geçit verilmedi! 10 kişi gözaltına alındı
+-  LG Electronics Inaugurates First International Electric Vehicle Charger Plant in the United States
+-  نیوزی لینڈ کی سابق وزیراعظم جیسنڈا آرڈرن نے دیرینہ دوست سے شادی کرلی
+-  "Un parcours migratoire traumatique": au procès de la traite de mineurs isolés à Paris, la "misère" des prévenus et victimes
+-  Onfortuinlijke 'frozen' hermelijn vastgelegd
+-  Talloze vrijwilligers helpen in zoektocht naar Yoran Krol: 'Er staat een enorm lange rij'
+-  Politie stuit bij inval in loods Woerden op grote hoeveelheid iPhones en iPads; waarde 19,3 miljoen euro
+-  I ate my dead friends to stay alive after Andes plane crash - I'm proud of what I did and I'd be happy if they'd done the same to me
+-  I ate my dead friends to stay alive after Andes plane crash - I'm proud of what I did and I'd be happy if they'd done the same to me
+-  Американский блогер Гонсало Лира умер в украинском СИЗО
+-  GRIP HARA SRBIJOM Batut: U prvoj nedelji januara prijavljeno 8.506 slučajeva
+-  El misterio del papel higiénico
+-  Nakon pauze ponovno će biti održan Međunarodni sajam ekologije 'EKOBIS'
+-  VIDÉO - Jusqu'à 20.000 euros de bénéfice par mois : le trafic ultra-rentable des cigarettes de contrebande
+-  Madende patlama: 10 ölü
+-  Bahçeli'den operasyon mesajı: Bütün terör kampları ateş altına alınmalıdır
+-  Cong President Mallikarjun Kharge to be appointment as chairperson INDIA bloc
+-  BJP trying to stop Delhi CM from campaigning for 2024 Lok Sabha polls
+-  Imran Khan: Revisiting his journey from debut to social media infused comeback
+-  Egle gewinnt bei Heim-EM in Igls Goldmedaille
+-  Πέτρος Τατσόπουλος: «Ο Στέφανος Κασσελάκης έκανε κακό στην ιδέα του θεσμού της παρένθετης μητέρας»
