@@ -1,11 +1,51 @@
 # Latest News
--  Marco Odermatt überlegen - Stefan Rogentin in der Top 15
--  Süper Lig'de bir ilk! Yarı otomatik ofsayt sistemi kullanıldı
--  Emine Erdoğan şehit düşen askerler için başsağlığı mesajı yayımladı
--  Provokatif paylaşımlara geçit yok! Bakan Tunç: Haklarında gözaltı ve tutuklama kararı verildi
--  Emre Belözoğlu transfer için konuştu! "Fenerbahçe'den bazı isimler var"
--  Filistin'den hesap veren İsrail hakkında açıklama: UAD'deki davayı hafife alıyor
--  Sudan IGAD'ın düzenleyeceği olağanüstü zirveye katılmayı reddetti
--  Sanayi ve Teknoloji Bakanı Kacır: Kahramanlarımızın kanı yerde kalmadı, kalmayacak
--  Cezayir BM Güvenlik Konseyi üyelerine, Filistinlilerin göçe zorlanmasını durdurma çağrısında bulundu
--  Bakan Özhaseki'den, şehit Özdemir'in ailesine ev sözü: Emanetlerine sahip çıkmaya devam edeceğiz
+-  Phạm Tuấn Hải bị đau gối, có thể lỡ trận Nhật Bản - Việt Nam
+-  अमित शाह, नड्डा और राजनाथ को VHP ने दिया निमंत्रण, 22 जनवरी को अयोध्या में रामलला की प्राण प्रतिष्ठा समारोह
+-  Ova 2024. nudi malo nade za tržište potrošačke tehnologije i trajnih dobara
+-  Scholz preocupado com aumento do extremismo nas manifestações na Alemanha
+-  Entrevista a Carlos Abade
+-  افتتاح اليوم العلمي في الأمن السيبراني في جامعة الأميرة سمية
+-  Perfil | Lai Ching-te, un timón suave para pilotar Taiwan en las tormentas de Formosa
+-  Tiger 3 star Emraan Hashmi remembers the day his son was diagnosed with cancer; pens down a heartfelt note for him
+-  Истории на колела: Десет реновирани локомотива „Шкода“ потеглят с имената на Пловдив
+-  Предизвика сърцебиене! Малина блесна в топ форма, изуми феновете СНИМКА
+-  Ченчев: Решението за Шенген блокира 97% от икономиката ни
+-  الدبيبة يؤكد أن الحكومة دعمت قطاع النفط والطاقة وأطلقت الاستراتيجية الوطنية للطاقات المتجددة.
+-  جهاز مكافحة المخدرات والمؤثرات العقلية فرع زليتن يضبط عدد من المتهمين ببيع و ترويج المخدرات في زليتن .
+-  Ova tri začina tope kilograme kao ludi! Dodajte ih u jutarnju kavu i ubrzajte svoj metabolizam
+-  Qaxda qanunsuz ağac emal edən sexlər aşkarlanıb
+-  Van timmerman naar houtkunstenaar
+-  La CAF met Nourreddine Naybet parmi les légendes du football Africain !
+-  Paketići za decu sa onkologije
+-  Cinco millones por un exoviedista: el sorprendente objetivo del Sporting de Portugal
+-  Merz kündigt Unvereinbarkeitsbeschluss zu „Werteunion“ an
+-  การกีฬาแห่งประเทศไทย จัดเต็ม’วันเด็กแห่งชาติ2567′ เด็กแห่ร่วมงานแน่น
+-  अरब सागर के ऊपर मुंबई का आसमान… जब गरजे वायुसेना के लड़ाकू विमान
+-  Cumhurbaşkanı Erdoğan başkanlığında düzenlenen güvenlik toplantısı sona erdi: 'Teröristan' kurulmasına kesinlikle izin vermeyeceğiz
+-  Cumhurbaşkanı Erdoğan yaralı üsteğmenin ailesiyle telefonda görüştü
+-  Bayrampaşa'nın İşkent Sanayi Sitesi'nde kokutan yangın: Ekipler sevk edildi
+-  Love Island star takes huge swipe at Jake Cornish after he’s revealed for All Stars
+-  Des dindes prêtes à cuire, vendues sous plusieurs marques, rappelées dans toute la France
+-  Marco Odermatt auch in der zweiten Lauberhorn-Abfahrt überlegen
+-  20 triệu người vào xem 5 chàng trai rưng rưng nước mắt tiễn cô dâu đi lấy chồng, biết danh tính thêm bất ngờ
+-  Đây rồi chân dung iPhone 16: Thiết kế “lạ” đến bất ngờ, bỡ ngỡ nhất là camera
+-  Sao nữ kiếm 17 tỷ chỉ nhờ 5 phút cameo góp vui, là "thiên tài" diễn xuất cân đẹp mọi loại vai
+-  Top Gun 3: Script in the Works for Highly Anticipated Sequel
+-  Cú nổ collab đầu năm: Diva Mỹ Linh kết hợp Liu Grace - Pháp Kiều và phiên bản Tóc Ngắn Ngắn 2023 quá chất!
+-  35 Stars Who Regret Their Movies & TV Roles - Find Out the Reasons Why
+-  Koji je naš rukometaš najzgodniji? Neke vidimo po prvi put, a neke ljepotane već jako dobro znamo!
+-  Cardinale a San Siro per Milan Roma, Pioli svela: «Non l’ho sentito ma voglio dire questa cosa»
+-  Candidates aspiring for assistant professors’ posts write K-SET in Mysuru
+-  Zeman, clamoroso attacco alla Next Gen: «Due gol in fuorigioco. So che si deve salvare»
+-  'Merry Christmas' BO Day 1: विजय सेतुपति, कैटरीना की फिल्म ने पहले दिन ₹2.30 करोड़ कमाए
+-  Αγγελική Ηλιάδη για Γκέντσογλου: «Πιστεύω ότι θα είναι νικητής του φετινού Survivor»
+-  Denuncian un "intento de homicidio voluntario" de los hijos de Alain Delon contra su padre
+-  रोहित-विराट की वापसी पर युवराज सिंह ने क्यों कहा- ‘कुछ तो लोग कहेंगे’
+-  Daniel Noboa: "Yo sí buscaría la reelección. Lo estoy evaluando"
+-  Dr Mahathir's slight against ethnic Indians bound to be exploited by extremists, Muda warns
+-  Konyaspor, Ömer Erdoğan ile görüşecek
+-  Chiara Ferragni in fuga dalle polemiche: “Ventiquattro ore via con la famiglia”
+-  [ВИДЕО] Постар господин заспал во кафуле, а потоа се случила „измама“ на годината: Цел локал плачел од смеа поради она што му го направиле
+-  Britannia | Vaali­vuosi alkoi – labour on ennakko­suosikki, mutta konservatiivit toivovat yhä ihmettä
+-  FG to revamp national commodity exchange for agricultural growth
+-  Depresija – najčešće sumnje na ovaj poremećaj u Nišu
