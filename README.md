@@ -1,51 +1,51 @@
 # Latest News
--  '서울의 봄' 1270만…'범죄도시2' 넘고 역대 韓영화 톱9
--  Cine este șeful rebelilor houthi din Yemen, care atacă navele din Marea Roșie
--  وزير النقل: استلام سفينة "وادي العريش" من ترسانة هانتونج الصينية
--  وزير التنمية المحلية: 62 مليار جنيه تكلفة مشروعات الشرقية في عهد الرئيس السيسي
--  دراسة تكشف .. الصيام المتقطع يحارب شيخوخة الدماغ
--  وزيرة الهجرة: تلبية احتياجات المصريين بالخارج أولوية.. ومحفزات جديدة الفترة المقبلة
--  انقسامات حادة في اجتماع مجلس الأمن بشأن الضربات الجوية الأمريكية- البريطانية ضد اليمن
--  عمالقة التكنولوجيا يبدأون 2024 بطرد الموظفين
--  الاحتكار والأسعار ورغيف الخبز.. وزير التموين في مرمى نيران النواب الثلاثاء المقبل
--  موظفو الحكومة الأمريكية يخططون للإضراب بسبب سياسات بايدن
--  6 गुना बढ़ने वाली हैं अयोध्या के लिए फ्लाइट्स, जानिये क्या होंगे प्राइस
--  Mirel Mërtiri, shantazh prokurorit të SPAK. Denoncon Këlliçi
--  Sources: Manchester United set to agree exit, opens door for potential Rangers transfer
--  Aç Karnına Ceviz Badem Yiyenler Yaşadı! Yaşlanmaya Meydan Okuyor
--  Emekli Maaşına Ek Zam Ne Zaman? Ocak Maaşlarına Yetişecek Mi? Zam Maaşları Ne Kadar Etkileyecek?
--  'Rodgers needs': Chris Sutton reacts as Celtic close in on £3m transfer deal
--  Houd het Nederlandse klimaatbeleid stevig op koers. De politieke waan van de dag moet er minder toe doen
--  Panic as huge fire destroys vast online shopping warehouse in Russia used as location for recruiting migrant workers for Putin's war in Ukraine amid suspicions of arson
--  “أبويا وأمي مالهم بإمام عاشور؟”.. إبراهيم سعيد يفتح النار على مصطفى يونس
--  [수갑 차고 도주한 마약범죄 용의자…편의점서 시민 신고로 체포
--  Ljudi rođeni u ova tri horoskopska znaka misle da su uvek u pravu
--  ¡Narco terrorismo!
--  Khabib Nurmagomedov could make stunning return at UFC 300 and battle Leon Edwards for the welterweight title... after his former coach revealed the Russian 'is back training' three years after retiring
--  Detenido un matrimonio por matar en Ávila a un anciano de 90 años para apropiarse de su patrimonio
--  تشكيلة فولهام المتوقعة أمام تشيلسي
--  Amazon Great Republic Day Sale: लैपटॉप, मोबाइल सहित इन गैजेट्स पर मिलेगी छूट, जानें ऑफर्स की डिटेल
--  Турција изврши воздушни напади, ескалира конфликтот на Блискиот Исток
--  Uhićen srpski folk pjevač Aca Lukas: Doznalo se da nema ni vozačku
--  Nuestros derechos humanos
--  Diyarbakır'da tefecilere geçit verilmedi! 10 kişi gözaltına alındı
--  LG Electronics Inaugurates First International Electric Vehicle Charger Plant in the United States
--  نیوزی لینڈ کی سابق وزیراعظم جیسنڈا آرڈرن نے دیرینہ دوست سے شادی کرلی
--  "Un parcours migratoire traumatique": au procès de la traite de mineurs isolés à Paris, la "misère" des prévenus et victimes
--  Onfortuinlijke 'frozen' hermelijn vastgelegd
--  Talloze vrijwilligers helpen in zoektocht naar Yoran Krol: 'Er staat een enorm lange rij'
--  Politie stuit bij inval in loods Woerden op grote hoeveelheid iPhones en iPads; waarde 19,3 miljoen euro
--  I ate my dead friends to stay alive after Andes plane crash - I'm proud of what I did and I'd be happy if they'd done the same to me
--  I ate my dead friends to stay alive after Andes plane crash - I'm proud of what I did and I'd be happy if they'd done the same to me
--  Американский блогер Гонсало Лира умер в украинском СИЗО
--  GRIP HARA SRBIJOM Batut: U prvoj nedelji januara prijavljeno 8.506 slučajeva
--  El misterio del papel higiénico
--  Nakon pauze ponovno će biti održan Međunarodni sajam ekologije 'EKOBIS'
--  VIDÉO - Jusqu'à 20.000 euros de bénéfice par mois : le trafic ultra-rentable des cigarettes de contrebande
--  Madende patlama: 10 ölü
--  Bahçeli'den operasyon mesajı: Bütün terör kampları ateş altına alınmalıdır
--  Cong President Mallikarjun Kharge to be appointment as chairperson INDIA bloc
--  BJP trying to stop Delhi CM from campaigning for 2024 Lok Sabha polls
--  Imran Khan: Revisiting his journey from debut to social media infused comeback
--  Egle gewinnt bei Heim-EM in Igls Goldmedaille
--  Πέτρος Τατσόπουλος: «Ο Στέφανος Κασσελάκης έκανε κακό στην ιδέα του θεσμού της παρένθετης μητέρας»
+-  Германия — Лаутербах выступает за изгнание гомеопатии из списка услуг обязательного страхования
+-  Kickoff | Dybala linked with move surprise EPL switch
+-  Sivasspor deplasmanda Samsunspor ile karşılaşacak
+-  İlk Türk astronotu taşıyacak kapsül Florida'da
+-  İşgalci İsrail Batı Şeria'da 15 Filistinliyi gözaltına aldı
+-  Diyarbakır anneleri evlat nöbetini sürdürüyor
+-  La CNMC abrió en 2023 un centenar de investigaciones tras soplos anónimos
+-  В Калининградскую область не пустили 20 тонн зараженных томатов
+-  Иностранцев разозлил новый пакет военной помощи Британии Киеву
+-  West Ham could sell trio to fund a move for 20-goal January target
+-  Cameroun : Vincent Aboubakar forfait pour la #CAN2023 !
+-  Oliebollentoernooi SV Vaassen
+-  Ny vært erkender: Måske ikke kendt nok
+-  Musiikki | Spotify poisti ruotsalaisten suosikkiartistien musiikkia manipulointiepäilyjen takia
+-  “เศรษฐา” สวมเสื้อ Liverpool เซ็นลูกบอล-ถ่ายรูปเด็กๆ บอกเป็นลูกนายกฯ เหนื่อยนะ
+-  ১ লাখ ৩৩ হাজার টাকা বেতনে ব্রিটিশ হাইকমিশনে চাকরি, যেসব যোগ্যতা লাগবে
+-  Kristen Stjuart otkrila šta misli o “Sumraku”: To je tako gej film
+-  La verità sulle mafie nigeriane? E' un romanzo d'avventura
+-  Petardi fanno esplodere il cassonetto del vetro. Atto vandalico nella notte
+-  `Unacceptable`: India Strongly Objects To British High Commissioner`s Visit To PoK
+-  Siracusa, trasferimento del Comando dei Vigili del fuoco. I sindacati: “chiediamo chiarezza e trasloco solo a consegna definitiva”
+-  Spanien erhält im Handballduell gegen Kroatien eine Ohrfeige
+-  Naldo debütiert: Werder-Traditionsmannschaft wird beim Hallenturnier in Frankfurt Vierter
+-  e-Lectures: Virtual tutorial platform launched for students pursuing higher education in Odisha
+-  Nächstes NFL-Spiel angekündigt: Stadt euphorisch – sogar eigene Tram fährt durch München
+-  Metzger wandert mit der schwangeren Verlobten seines Freundes aus
+-  Bayern-speler zet zelf streep door sensationele winterdeal: 'Niet aan de orde nu'
+-  В Ступино мужчина до смерти забил сожительницу
+-  I served a famous actor & had no idea – his wife gave me death stares after I said ‘Christian’, I was so embarrassed
+-  बंगाल में गंगासागर मेले में जा रहे साधुओं पर हमला करने के आरोप में 12 गिरफ्तार
+-  প্রধানমন্ত্রী, মন্ত্রী-এমপিরা যেসব সুবিধা পাবেন
+-  Χούθι: Τα αμερικανικά πλήγματα στην Υεμένη δεν έχουν αντίκτυπο στις επιθέσεις μας
+-  Запорожская область имеет равный с другими регионами РФ доступ к лекарствам
+-  “Yellow Submarine”: La revolución psicodélica de Los Beatles
+-  Warsteiner Masters Vorrunde Unna: Samstag ab 12 Uhr
+-  Frohlinder Neuzugang Conor O’Reilly sammelt erste Eindrücke: Abstieg kann er sich nur schwer vorstellen
+-  İsraildən şok etiraf: Bu qədər əsgər əlil olub
+-  Тысячи россиян находятся в разрываемом беспорядками Эквадоре: ситуацию взяли под особый контроль
+-  В выходные дни на погоду в Поморье будет влиять циклон с Баренцева моря
+-  Жительница Вожеги раскаялась за то, что сбила на машине своего супруга
+-  Veszélyes a magyarországi vizeket borító jég, aki rájuk lép, az életével játszik
+-  Virtus Verona, riecco Ceter: "Quanto sono mancato? Le alternative davanti sono poche"
+-  Amravati News : मोठी बातमी! स्वामी राम राजेश्वराचार्य महाराजांना जीवे मारण्याची धमकी; अमरावतीत खळबळ
+-  In einer Zeit, in der der Ruf nach Tierschutz lauter als je zuvor erklingt, ist es entscheidend, die Absicht hinter den Aktionen zu hinterfragen.
+-  En Acı Fotoğraf!
+-  36 метров трубопровода заменили на улице Байкова в Пскове
+-  Russia Launched 40 Missiles, Drones Overnight – Ukraine
+-  Кандидатът на управляващата партия в Тайван води на изборите за президент
+-  Суд арестовал собиравшего данные для спецслужб Польши россиянина
+-  Betrüger betrügen Wohnungssuchende mit gefälschten Angeboten | hessenschau.de
