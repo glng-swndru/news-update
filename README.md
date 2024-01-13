@@ -1,51 +1,51 @@
 # Latest News
--  SDS morst dure punten in Nunspeet
--  Hoće li farmer uskoro postati otac? Mijo iz 'Ljubavi na selu' pohvalio se novom djevojkom, ali i - testom za trudnoću
--  Raju kaatuminen varjosti syöksylaskua
--  سيارة تصدم متظاهرين مؤيدين لفلسطين في إدنبره
--  외국인 간병인 둔 요양병원, 원천징수는 어떻게?
--  ⑪차곡차곡 쌓아온 선행, 톡톡히 돌려받는다
--  Vídeo | Dereck Moncada se estrena en Olimpia con 16 años
--  Ο Ίσκο λύτρωσε την Μπέτις! (ΒΑΘΜΟΛΟΓΙΑ)
--  MEŠTANI DUBOKO VERUJU U &quot;LEKOVITA SVOJSTVA&quot; OVOG IZVORA Velika svetinja skrivena je u gustoj šumi u Srbiji (FOTO)
--  Pobegla je i udala se za čoveka kojeg je poznavala 13 dana: &quot;Ne bih to nikome preporučila&quot;
--  Pep "ngả mũ" với 1 cầu thủ Man City
--  "Chúng tôi đã hy vọng De Bruyne hơi yếu đuối khi vào sân"
--  Ηττήθηκε η Γουινέα Μπισάου, τι έκαναν Κασάμα-Ντάλσιο…
--  Дагестан привлекает инвестиции: Керимова передает акции компании
--  Drama u Čabru, prijeti zatvaranje vrtića: Ravnateljica koja može potpisati ugovore odgojiteljima je na bolovanju
--  Alba Casillas responde a las críticas tras 'La Isla de las Tentaciones': "Que la conocida sea yo no significa que haya obligado a nadie"
--  Dancing On Ice’s Amber Davies opens up about her romantic feelings for stage co-star Ben
--  Atenção, Peseiro. Colega de Cristiano Ronaldo ajuda Costa do Marfim
--  유재석→김석훈, YG 구내식당 스케일에 '깜짝'…"우리가 알던 YG가 아니야" [놀뭐](종합)
--  한소희 "프랑스 학교 합격했지만…6천만 원 없어서 데뷔" [마데핫리뷰]
--  Donald Trump Ally Accuses Mike Johnson of Making 'Deals With the Devil'
--  Félix da Costa abandona corrida no México
--  Sindicatos das forças de segurança contestam afirmações de Pedro Nuno Santos
--  Bernardo Silva marca na vitória do City em Newcastle
--  Klar til 3F Superliga igen? Her er seneste nyt om ALLE klubber
--  جنگ در غزه وارد صدمین روز شد
--  تمنراست: العثور على جثة شخص بعد 37 سنة من فقدانه
--  İsraillilerden Netanyahu'ya tepki: İstifası ve erken seçim istendi
--  '도르트문트 돌아온 후 행복 축구' 산초, 복귀 첫 경기부터 어시스트 적립...팀은 3-0 대승
--  &quot;KAKVA JE OVO LAMPICA U OBLIKU TANGI ŠTO MI SVETLI&quot; Srpkinja biserom iz auta &quot;zapalila&quot; internet, odgovori samo pljušte, ovo je ŠOU
--  Mikel blasts Oliseh, says former captain was a terrible manager
--  Wink Martindale to interview with Jaguars in search for new suitor after Giants fallout
--  ‘가성비’ 미식 즐겨볼까…SSG닷컴, 호주산 와규 특수부위 사전 예약 시작
--  В Баку осудили тайваньские выборы
--  NYT объявила нетронутой большую часть наступательных сил хуситов после атак на Йемен
--  한채양 이마트 대표의 신년 첫 성장 미션, ‘신가격 정책’ 通했다
--  Возросли обороты розничной торговли в Ивановской области
--  Côte d’Ivoire-Guinée Bissau: avec un Fofana en grande forme, les Éléphants réussissent leurs débuts à la CAN
--  Inversores minoristas y fondos aumentan sus participaciones en Paytm en medio del crecimiento de los ingresos
--  PETARDA &quot;NEROAZURA&quot; Inter gazi ka tituli
--  كأس أفريقيا.. منتخب كوت ديفوار يفوز على غينيا بيساو في مباراة الافتتاح
--  Hakan Çalhanoğlu coştu, Inter farklı kazandı!
--  Fransa'da camiye alçak saldırı
--  Barbar İsrail'in kirli nüfus politikası... Hamile kadınların doğumları engelleniyor
--  Ya Martial ya Saldanha
--  Genç kuğu Edin Dzeko
--  Wilster: 19-Jähriger soll seine Ex-Freundin getötet haben
--  Советник Байдена по климату покинет свой пост, чтобы помочь ему с выборами
--  كوت ديفوار يعبر غينيا بيساو بثنائية في افتتاح كأس الأمم الأفريقية
--  VIDEO: tienda de ropa recrea las eras musicales de Taylor Swift con un lindo conjunto de vestidos
+-  Vali Gül'den ev ve iş yerlerine bayrak asılması çağrısı
+-  Fariolili Nice, Rennes'i geçemedi!
+-  عاجل.. الأحد 2 رجب.. مواقيت الصلاة في جميع مناطق المملكة
+-  جون كيري يترك منصبه في إدارة "بايدن".. لهذا السبب
+-  Thousands of Protesters March in D.C. to Demand Gaza Ceasefire
+-  Nigel Farage's Reform UK draws up hit list of ten Conservative MPs who may defect before the General Election
+-  גברים לא מכבסים את מגבת האמבטיה שלהם ןזה יעלה להם בבריאות
+-  רוכב אופניים החליק בתל אביב; מצבו בינוני
+-  הפועל גליל מטה אשר עכו מושלמת גם בתום המחזור השמיני בליגת הכדורעף
+-  Secret summits over making Charles regent in Queen's last years: The then-prince was very reluctant to dwell on detailed talk about a regency and aides knew he was determined not to tempt fate or seem impatient
+-  المجلس العلمي ومدرسة أنس بن مالك يكرمان الأطفال حفظة القرآن ومحفظيهم بإقليم الدريوش
+-  Heiress Nicola Peltz Beckham, 29, is hit by backlash for making a film about poverty-stricken 19-year-old
+-  Fresh for the playoffs! Travis Kelce's barber shares picture of the Chiefs star's new haircut ahead of Kansas City's wild-card game against the Miami Dolphins
+-  Arguiñano carga contra 'Masterchef': "Parece una guerra y se busca la lágrima"
+-  Alejandro Giammattei aprueba que sus ministros tengan carros y seguridad antes de dejar el poder en Guatemala
+-  Saiba como é o golpe do FGTS e como se proteger
+-  PETER HITCHENS: Another foreign brawl? Oh, grow up... we can't even fix our pothole-peppered roads
+-  Post Office minister demands jail for those to blame for the Horizon scandal that has left the country outraged
+-  Ach, co za bal! Uczniowie Staszica na razie bawią się na studniówce
+-  وزارة التعليم العالي: الكشف عن رزنامة سير المسابقات والامتحانات المهنية
+-  يتكفل بالعملية مفتشو المقاطعات: برنامج لتكوين مديري المدارس حول امتحان تقييم المكتسبات
+-  لإنهاء التعتيم وسيطرة الجيش على تغطية الحرب: الكيان الصهيوني مطالب برفع الحظر عن دخول الصحافة إلى غزة
+-  وسيط الجمهورية يدعو إلى تكريس الأخلاقيات المهنية في الإدارة ويؤكد: يجب تفادي المعالجة الفوقية لعرائض المواطنين
+-  المنطقة مكتظة بالنازحين: الكيان الصهيوني يكثف من استهداف جنوب غزة
+-  تعليق ملفات 10 آلاف مستفيد واسترداد خمسة ملايير سنتيم: استفادة 54 ألف بطال من المنحة في 2023 بجيجل
+-  المفتش العام بوزارة الداخلية يؤكد تخصيص 35 ألف مليار للمشاريع ويصرح: برامج مناطق الظل تكفّل مسبق بانشغالات المواطنين
+-  خبراء يؤكدون أن التدخلات العسكرية تؤدي إلى نتائج كارثية دائما
+-  بن قرينة يؤكد: التقرير الأمريكي حول الحرية الدينية تضمن مزاعم ومغالطات
+-  برنامج لانجاز سدود وحواجز مائية: إنشاء أول منطقة نشاطات لتربية المائيات بالطارف
+-  رئيسة السلطة العليا للشفافية والوقاية من الفساد ومكافحته: على الإدارات تجاوز الأساليب التقليدية البعيدة عن الإبداع والابتكار
+-  Na rukometnom Euru večeras se dogodila najveća senzacija svih vremena
+-  Outrage as Samantha Cameron's VIP connections secure her first permanent fashion store at the expense of a much-loved Belgravia hair salon, writes EMILY PRESCOTT
+-  Confira os novos valores para Teto do INSS e salário-família
+-  6 of the Best Webcams for Streaming
+-  대만 총통선거 친미 라이칭더 당선…셈법 복잡해진 K반도체
+-  Lauryn Goodman reveals she 'showed Kyle Walker's wife Annie Kilner a DNA test' to prove the footballer had fathered her daughter and claims he was 'living a double life'
+-  Queen's funeral rehearsal was a comedy of errors as even the band went AWOL... it was a minor miracle there were no major glitches on the day itself
+-  El consejero delegado de JPMorgan critica la seguridad pública de San Francisco
+-  Arévalo mantendrá relaciones con Taiwán y expandirá la cooperación comercial con China
+-  ХАМАС будет лечить заложников теми лекарствами, что поступают палестинцам
+-  Greg Daniels Inching Closer to New Take on ‘The Office’
+-  Acordo fechado. Italianos revelam detalhes do negócio de Álvaro Fernández
+-  Más de 30 fallecidos por derrumbes en una carretera
+-  Elvis Handanagić iz Cazina opljačkao zlataru u Bihaću, policija ga lišila slobode
+-  Rush to Queen's funeral: Brigadier who helped carry Her Majesty's coffin was toasting his daughter at a wedding in Corfu when he was ordered back for the funeral
+-  البرلمان العراقي يخفق في انتخاب رئيسه الجديد
+-  Liga de Quito apuesta por el boliviano Gabriel Villamil para la actual temporada
+-  تجدد النقاش حول رفع الدعم على المحروقات وخاصة البنزين
+-  Royal aides drew up secret plans to make Charles the first regent since 1820 and step in during the final years of the Queen's reign
+-  Alejandra Guzmán confunde a imitador de Christian Nodal con el verdadero y lo abraza, durante presentación en Aguascalientes
