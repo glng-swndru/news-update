@@ -1,11 +1,11 @@
 # Latest News
--  ‘The Book Of Clarence’ Star LaKeith Stanfield & How ‘The Lion King’ Helped Him Find His Roar: The Film That Lit My Fuse
--  Patru cetățeni ucraineni au fost capturați de islamiști în Somalia
--  إدارة الطيران الاتحادية الأمريكية: فحوصات جديدة على طائرات «بوينغ 737 ماكس 9» قبل السماح بتحليقها
--  [개발팀 테스트
--  [개발팀 테스트2
--  [“얘 결혼 전에 돼지였잖아” 여교사 모욕한 교장 ‘벌금형’…얼마길래
--  [‘24년 외길’ 매출 250억 쌍교숯불갈비 해외시장 도전장
--  [고양특례시, 「고양교육브랜딩 선포식」 개최
--  [다시 들썩이는 유가에 바이든, “후티, 공격 이어가면 추가대응”
--  Журналист Рубинштейн: умерший на Украине блогер Лира жаловался на врачей
+-  China supports Somalia’s ‘integrity’ amid deal row
+-  Trailblazing non-Muslim woman vies for provincial assembly seat in Pakistan
+-  Israel to blame for escalating regional tensions, says Jordan’s FM
+-  Militants ‘neutralized’ after West Bank settlement attack: Israel army
+-  Somali leader’s son freed in fatal car accident trial in Turkiye
+-  Daesh under pressure after Hamas attack on Israel
+-  Los funcionarios de la Reserva Federal se muestran cautos sobre los recortes de los tipos de interés
+-  Empresas colombianas se comprometen a invertir en "áreas olvidadas" tras reunión con Petro
+-  فوائد مذهلة للبشرة عند تنظيفها بالزيت
+-  رئيس هيئة قناة السويس: البحر الأحمر أصبح منطقة حرب
