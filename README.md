@@ -1,51 +1,51 @@
 # Latest News
--  Video: Intenta robar cafetería, empleada lo golpea y derriba
--  عملية عسكرية مرتقبة للاحتلال على محور فيلادلفيا
--  تهنئة لـ عائشة خالد الوثيري
--  Death toll rises to 23 after mudslide in northwest Colombia
--  Duizenden burgers zoeken samen naar de vermiste Yoran: 'Ik kon niet anders dan mee helpen zoeken'
--  이천시 청년 취업면접 올케어 사업 개시
--  2024년 시흥시 행정제도, 이렇게 달라집니다
--  하남시의회 박진희 부의장, 하남-강동 지하철 9호선 연장… “함께 힘 모아”
--  양평군, 노후 공동주택 화재예방 합동점검
--  여주시, 2024년 노동상담소 무료 운영
--  광명시, 시민력에 힘 더할 주민자치위원 164명 위촉
--  과천시, 자동차 환경개선부담금 일시납부하면 10% 감면
--  김포시 복지국장, 민원콜센터 현장행정
--  Ondanks massale zoekactie is vermiste Yoran niet gevonden
--  광주시, 2026~27년 경기도 종합체육대회 유치 위한 홍보에 전력 질주
--  مقترحات برلمانية عراقية لإخراج القوات الأجنبية
--  Les Lakers et les Hawks ont discuté d’un transfert de Dejounte Murray
--  Le programme de la nuit en NBA : 8 matchs dont Thunder – Magic (2h) et Mavs – Pelicans (2h30)
--  NBA – Le récap du jour : Jerry Krause sifflé par des fans des Bulls, les Français assurent
--  Bundesliga kompakt: Bayer Leverkusen mit Last-Minute-Sieg in Augsburg
--  Loena Hendrickx a enfin décroché l'or : “J’ai apprécié de bout en bout !”
--  عام انتخابات کی تیاریوں کے حوالے سے چیف سیکریٹری کے زیرصدارت اجلاس، برفانی اضلاع میں بلاتعطل انتخابات کے عمل کو یقینی بنانے اور الیکشن ضابطہ اخلاق پر مکمل عمل درآمد کی ہدایت
--  Sabotage in Russland: Was treibt die Brandstifter an?
--  انطلق من لبنان.. صاروخٌ يستهدف مستعمرة إسرائيلية!
--  Cómo le fue a Godoy Cruz Antonio Tomba en el primer amistoso del 2024
--  Emma Stone is Selling Her Charming L.A. Home for $4M – Inside the Property
--  AK Parti Muğla Büyükşehir Belediye Başkan Adayı Ayaydın, yaralı üsteğmenin Köyceğiz'deki ailesini ziyaret etti
--  Türkevi'nde iş ve ticaret zirvesi! ASKON USA Başkanı Özmekik: Türkiye'nin gelişmesine katkı sunmak için heyecanlıyız
--  Fenerbahçe yeni transferini açıkladı!
--  5 điều cần làm trước Tết nếu muốn có làn da đẹp
--  Nemački kancelar zabrinut zbog porasta ekstremizma: „Toksična mešavina koja treba da nas brine“
--  Denne yoghurten er merket helnorsk. Nå inneholder den tysk melkepulver.
--  Doi adulți s-au luat la bătaie cu doi copii, în Petroșani. Un băiat de 14 ani a fost mușcat de cot de o femeie
--  WTA Hobart: après sa finale, Mertens est "confiante de signer un bon résultat" à l'Open d'Australie
--  Police arrests 15 suspected bandits, kidnappers, others in Niger
--  Acertijo visual: los novatos no logran encontrar el error en la imagen llena de uvas
--  VIDEO: Kovač i Majer prosuli pobjedu, veliki trijumf Eintrachta kod Leipziga
--  Баєр обіграв Аугсбург, Лейпциг поступився Айнтрахту: результати матчів Бундесліги
--  Anders Breivik brød sammen i retten, men medierne måtte ikke vise det. Nu skaber det stor debat
--  Động thái của cựu cầu thủ MU khi trong cảnh thất nghiệp
--  Chấm điểm Chelsea: Suýt lĩnh thẻ đỏ; Điểm 8 duy nhất
--  قصف أمريكي يستهدف قاعدة بحرية حوثية في الحديدة
--  Yoran Krol (16) uit Sleeuwijk niet gevonden tijdens grote zoekactie met 2500 vrijwilligers
--  Guillermo Almada iba a ser el DT de la Selección Mexicana; ¿por qué cambiaron de opinión?
--  Sergi Roberto: "La mejor manera de defender ante el Real Madrid es tener la pelota"
--  Incendio colapsó un área de 70 000 metros cuadrados en San Petersburgo (+ Video)
--  जयपुरिया अस्पताल में होगा सुविधाओं का विस्तार : जिला कलेक्टर प्रकाश राजपुरोहित ने दी विकास कार्यों को मंजूरी
--  Milatariga Itoobiya oo lagu eedeeyay Xasuuq Wadareed ka dhan qowmiyadaha Dalkaasi
--  مخاوف يمنية من اشتداد بطش الحوثيين وتصاعد أزمات المعيشة
--  Canadian women beaten 2-0 by Britain in Olympic field hockey qualifier
+-  العراق يحتاج لـ 37 ألف ميكا واط لإنهاء أزمة الكهرباء
+-  Komet zastrašujućeg imena juri prema Zemlji: Veći je od Mount Everesta, NASA poslala poruku
+-  Alias Satanás sigue extorsionando desde la cárcel: “Las indicaciones son que haya derramamiento de sangre todos los días”
+-  Ricardo Monreal reacciona a próximas iniciativas de AMLO: “Requerirán mucho trabajo para lograr mayoría”
+-  From Teen Beauty Queen To Entourage Appearance On HBO To Heading An NGO, Magazine Honors Brooks Koepka’s Wife Jena Sims
+-  Skrytý klenot v pražskej knižnici vás uchváti: Pozrite na to, také niečo ste ešte nevideli
+-  Zjednotenie Číny a Taiwanu je naďalej nevyhnutné, reaguje Peking na výsledky volieb
+-  Austrália entra a ganhar
+-  "מאז שירדן שועה עצבן אותי - הוא עשה שינוי גדול"
+-  הותר לפרסום: רס״ר (במיל׳) דן ווידנבאום, נפל כתוצאה מפגיעת טיל נ"ט במרכז הרצועה
+-  ישראל חושפת: כך תכנן חמאס להוציא לפועל פיגועים ברחבי אירופה
+-  Ouça o relato em direto. D. Chaves - Sporting
+-  בונזי קולסון לא יחזור עם מכבי תל אביב לישראל, לורנזו בראון צפוי לנוח מול הפועל עפולה
+-  A Lostban minden nő odavolt a szőke rosszfiúért: Josh Holloway 54 évesen büszke édesapa
+-  Rosa-Luxemburg-Konferenz : Für die Auflösung Israels – und den Schießbefehl
+-  Besteiro apela a la movilización para sacar "por la puerta de atrás" al gobierno "mentiroso" del PP
+-  Soldados de Marina de EEUU desaparecidos frente a costas de Somalia
+-  Víctimas que denunciaron a Hollman Morris han sido amenazadas luego de romper su silencio
+-  Cámaras captaron el rostro del asesino de la empleada municipal
+-  Estrada (CUP) señala a Junts por enquistarse en un "discurso racista para arañar cuatro votos"
+-  Rueda apela a plantear una campaña que escape de la "crispación" y la "confrontación estéril que buscan algunos"
+-  Jetzt im Livestream: Die Bundesliga-Sportschau
+-  La Policía Nacional celebra sus 200 años renovando su compromiso con la seguridad de España en "tiempos vertiginosos"
+-  Leverkusen, il sogno continua: Palacios al 94' regala il +4 sul Bayern!
+-  L'argentina Ailén Vega rinforza Padova
+-  Juric: "Toro, la strada è giusta". Su Zapata e corsa all'Europa...
+-  Sumar Galicia propone garantizar una unidad de salud mental en todos los centros de salud y un plan juvenil
+-  MARIJA ŠERIFOVIĆ UPUTILA JOVANI PAJIĆ NEŽNE REČI: Ti si moja pretkomora
+-  ‘El Gran Chef Famosos’ y ‘Súper Ada’ se enfrentan desde este 15 de enero: cuáles son sus propuestas para conquistar al público
+-  Пожар горя в завода за боклук в София
+-  El 99,5% del Consell Nacional de Junts aprueba hacer una convención sobre migración
+-  Pontón defiende el "caudal de experiencia" en unas listas continuistas: "Lo que funciona no se cambia"
+-  Police investigating shooting incident in Hochelaga-Maisonneuve
+-  Carlos Alcaraz: "Físicamente me encuentro muy muy bien"
+-  Niecy Nash-Betts Talks ‘The Holdovers’ and ‘Scandal’ Auditions, Becoming a Queer Role Model and Why She Thinks ‘Origin’ Deserves More Awards Recognition
+-  Niecy Nash-Betts Talks ‘The Holdovers’ and ‘Scandal’ Auditions, Becoming a Queer Role Model and Why She Thinks ‘Origin’ Deserves More Awards Recognition
+-  Niecy Nash-Betts Talks ‘The Holdovers’ and ‘Scandal’ Auditions, Becoming a Queer Role Model and Why She Thinks ‘Origin’ Deserves More Awards Recognition
+-  Republicans try to block Biden administration plan to cut money for anti-abortion counseling centers
+-  The Best Persona Games You Should Play Before Persona 3 Reload Comes Out
+-  Scholz llama a la calma ante las grandes protestas de agricultores por el fin de los subsidios al diésel
+-  Beşiktaş'ta şok üstüne şok! Sadece 15 dakika oynayabildi... Hem Hadziahmetovic hem de Aboubakar'dan kötü haber
+-  SON DAKİKA: Fenerbahçe ara transfer döneminde durdurulamıyor! Bonucci'den sonra bir transfer daha... Sarı-Lacivertliler Krunic transferi için KAP'a bildirimde bulundu!
+-  Hoy también es Día Mundial del Chicle
+-  Krapović o otkazanju sastanka sa Anušićem
+-  EEUU felicita a William Lai por su victoria en las presidenciales de Taiwán
+-  “เด็ก” และ “ผู้ใหญ่” ในห้วง “กลียุค”
+-  Palghar : पालघर लोकसभा मतदारसंघात भाजपचाच खासदार निवडून येणार; सेनेच्या दाव्यानंतर नारायण राणेंचं मोठं वक्तव्य
+-  La Chapelle-au-Mans. La traversée du bourg va être en travaux une bonne partie de l’année
+-  El Ejército iraní refuerza la frontera con nuevas plataformas de misiles y aviones no tripulados
+-  หลงใหลอะไรกันนักหนา
