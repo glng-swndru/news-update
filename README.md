@@ -1,11 +1,51 @@
 # Latest News
--  15 Temmuz Şehitler Köprüsü'nde zincirleme kaza: 10 araç birbirine girdi
--  Lakabı kral meyvesi, portakaldan vitaminli! Yüzde 70'inde C vitamini var, zeytinyağı gibi zengin besin değeri
--  Lynn Yamada Davis, social media star, passes away at 67
--  Kỷ lục mới: Biển số 30K-999.99 trúng đấu giá 75,3 tỷ đồng
--  Kanaltunnel: Mehr Züge aus Deutschland nach London geplant
--  منح الجنسية السعودية وتصحيح الوضع لـ 5 أشخاص
--  Azərbaycanda ŞOK: ana yeniyetmə qızını 500 manata sataraq təcavüzə göz yumdu
--  Lelaki dikesan disyaki sewa 40 motosikal kepada warga asing
--  Ключови избори в Тайван
--  চাঁদপুরেও শীতে জবুথবু মানুষ
+-  강민경, 호주 밝히는 압도적 청순 비주얼
+-  마마무 솔라, '솔라감성' 콘셉트 포토 공개…더욱 깊어진 감성
+-  اميركا تنفذ ضربة جديدة على اليمن
+-  انسحاب النجوم يهدد دراما رمضان 2024
+-  10 قطع ملابس تشكل خطراً على صحتك
+-  Gabriel Attal à Matignon. Yonathan Arfi déplore « une vague de commentaires homophobes et antisémites ».
+-  मैदान पर अपने खास दोस्त को स्लेजिंग करते डेविड वॉर्नर, वीडियो वायरल
+-  Северный морской музей в Архангельске посетил поэт и композитор Юлий Ким
+-  Insecurity: Tinubu mulls marine, solid mineral police
+-  [방탄소년단 정국, 英 오피셜 싱글 차트 73위…굳건한 인기
+-  [경찰, 황의조 비공개 소환…‘불법촬영 혐의’ 부인
+-  [“달걀 깼더니 노른자 4개 나왔다” 로또 맞은 ‘달걀’…과연 먹어도 되나
+-  अफगानिस्तान के खिलाड़ी ने फ्लाइट में रिंकू सिंह से की मजाक, वीडियो वायरल
+-  Biển số xe ngũ quý 9 quý lập kỷ lục với giá hơn 75 tỉ đồng
+-  لحظة بلحظة.. صنعاء تتعرض للقصف مجددا.. تطورات الهجوم الأمريكي البريطاني على مواقع في اليمن
+-  MP news: भाजपा ने चार जिलों अध्यक्षों की नियुक्ति की, मऊगंज का अध्यक्ष राजेंद्र मिश्रा को बनाया
+-  ابنة الشهيد في حرس بلدية بيروت تكشف: هكذا قتلوا والدي!
+-  ก.ล.ต. สั่งซิปเม็กซ์แก้ไขเงินทุนและโครงสร้างการจัดการแล้วเสร็จภายในปี 15
+-  दोहरा शतक लगाने के बाद भी चेतेश्वर पुजारा को क्यों नजरअंदाज किया गया?
+-  Homicide squad probes death of man in Doncaster
+-  Homicide squad probes death of man in Doncaster
+-  [CES현장] 최고혁신상 2개 배출 '경북도·포스코' 공동관 "글로벌 시장으로"
+-  НАСА представило экспериментальный сверхзвуковой самолет X-59
+-  L-Istati Uniti u r-Renju Unit iwissu li l-attakki fil-Jemen se jiħraxu
+-  Rajasthan News: पार्टी की बैठकों से नदारद वसुंधरा, नाराजगी है या फिर रिटायरमेंट के बारे में सोच रही हैं?
+-  Fowler woman raising money to send rescued dog to forever home in Montana
+-  Στο Κίεβο ο νέος υπουργός Εξωτερικών της Γαλλίας, Στεφάν Σεζουρνέ
+-  Our Big TRAVEL 2024 Guide
+-  Сяо Хим Фа признался, что сделал сальто для развития фигурного катания
+-  कोरोना से भी ज्यादा बीमार बनाता है स्वाइन फ्लू का वायरस, जानें बचने के उपाय
+-  Kırıkkale'de 3 farklı araç zincirleme çarpıştı: 4 yaralı!
+-  SRBI MASOVNO KORISTE REČ "MAŠALA", A POJMA NEMAJU ŠTA ZNAČI: Nije baš u duhu pravoslavlja, a ovo je razlog koji će vas ZAPANJITI
+-  Canda Masinton Sebut Prabowo Bakal Coblos Ganjar: Banyak Setujunya di Debat
+-  Supreme Court Judgement: Close ranks with govt to develop Ebonyi – APC to opposition
+-  “Lift”: Kevin Hart y Úrsula Corberó en una enésima mezcla de los ingredientes de siempre
+-  11-year-old dies flying kite of electrocution in Hyderabad
+-  Şehit ateşi Ordu'ya düştü: Şehadete eren Murat Atar'ın acı haberi annesine verildi
+-  Bakan Yerlikaya duyurdu: Sosyal medya provokasyonuna geçit yok
+-  «СТРАНА.ua» пишет о взрывах в Чернигове
+-  جوني القرم يتعاقد مع "إريكسون": شبهات بالجملة على طاولة مجلس الشورى
+-  Le club fermé des licornes israéliennes à New York. Une short list…
+-  सावधान रहें कि कहीं लपेटने या काटने में आपका उत्तरायण खराब न हो जाए
+-  ألد أعداء روسيا بدأ يلعب مع أوكرانيا ضد أميركا
+-  USA-Des milliers de foyers privés d'électricité après le passage d'une tempête hivernale
+-  Gaji Tim Cook Turun Puluhan Juta Dollar di Tahun 2023
+-  Blizzard Threatens Iowa Caucus and US Under Weather Alerts: US News Update
+-  15 Temmuz Şehitler Köprüsü'nde 10 araç birbirine girdi
+-  Polri: Pelaku Ancam Tembak Anies Tak Terfiliasi dengan Paslon Lain
+-  Citigroup To Cut 20,000 Jobs In The Next Two Years Following Disappointing Q4 Performance
+-  India's Industrial Output Slows To 2.4% YoY In November, Marking Eight-Month Low
