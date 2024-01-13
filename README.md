@@ -1,51 +1,51 @@
 # Latest News
--  CIMB Niaga akan Terbitkan Saham Baru 10 Juta Lembar Saham
--  “스트라이크·볼 판정 엉망…심판들 영원히 성장 못해” 김성근 감독, ABS 도입 ‘쓴소리’
--  마침내 '드림팀' 바르셀로나 간다...이적료 '1억 파운드' 미만!
--  صافرة مصرية لإدارة المباراة الافتتاحية لكأس إفريقيا
--  3177 طناً من الخضار والفواكه والورقيات ترد للسوق المركزي اليوم
--  محافظ جرش: ضبط 3 آبار زراعية مخالفة
--  هل يصبح العسل ساما بعد التسخين؟
--  ‘Terim’in haberi yoktu!’ Seçil Erzan’ın cevapları dikkat çekti… Mahkemede Buse Terim’den sert çıkış
--  Fenerbahçe'nin maç kafilesi açıklandı! Bonucci sürprizi
--  Hatayspor'da yenilen son dakika golü sonrası sinirler gerildi! ''Artık kendime zarar vermeye başlayacağım''
--  Tecrübeli teknik adam İrfan Buz'dan gelen haberle herkes şaşkına döndü! Ünlü hocanın antrenmanda aşil tendonu koptu
--  Авион со 59 патници полетал, па се вратил на аеродромот оти пукнал прозорецот во пилотската кабина
--  Wegen Hochwassergefahr - Weihnachtszirkus soll auf Galopp-Rennbahn
--  NIA का PFI पर बड़ा एक्शन! 2 आरोपियों के खिलाफ दायर की चार्जशीट
--  Eight hurt in Queens house fire overnight, FDNY says
--  "美트럼프, 재집권시 법인세율 추가 인하 검토…측근에 깊은 관심 언급"
--  Socceroos squeeze past India to get Asian Cup off to winning start
--  رئيس الوزراء يتفقد مشروعات للإنتاج الزراعي والحيواني بمحافظتي الإسكندرية والبحيرة
--  Спартак започна контролите с победа
--  VIDEO: Primeros instantes del enorme incendio que arrasó un almacén en San Petersburgo
--  Israel presses on with Gaza offensive approaching 100 days of war
--  ﻿مانشيني يضم 3 لاعبين لقائمة المنتخب السعودي في كأس آسيا 2023
--  Bikin Geleng Kepala, Fortuner Menerobos Banjir Hingga Mogok di Dayeuhkolot
--  Μήνυμα Κασσελάκη σε Πολάκη: «Δεν θα ανεχτώ διαφοροποιήσεις στην ψήφο για τα ομόφυλα ζευγάρια»
--  Централизованного повышения цен на обучение в госвузах не планируется
--  Depois do duplo ataque, EUA volta à carga contra Houthis
--  Výbuch plynu v Kamenném Újezdu připravil rodinu o dům, pochybil řemeslník
--  Nəhəng qədim şəhər tapıldı
--  Cifra de niños palestinos asesinados por genocidio israelí supera los diez mil
--  दक्षिण कोरिया में इमरजेंसी जैसे हालात, बड़े हमले की फिराक में किम जोंग
--  İzmir'de naylon fatura operasyonu: 5 gözaltı
--  Spektakulärer Antrieb - Airbus will „Schornstein-Segler“ bauen
--  Museveni cautions against Divisionism in the EAC
--  पोंगल से पहले सब्जी, गन्ने की कीमतों में तेजी देखी गई
--  U kundërshtua nga Prishtina zyrtare! Komisioni Evropian insiston që pakicat e Kosovës me pasaporta serbe të udhëtojnë pa viza
--  After five days, Isabella del Milagro, the premature baby born in Nicoya, dies
--  ECP bars ROs from allotting ‘alternative symbol’ to candidates
--  Las dos caras de los niños de Arabia Saudí que sueñan con el Mundial 2034: de los campos de tierra a lujosas academias
--  تشريعية النواب توافق نهائيا على تعديلات قانون الإجراءات الجنائية.. وتوقعات بمناقشته في جلسة الاثنين
--  Where is the original Mean Girls cast now? Exploring the whereabouts of the OG stars
--  Verletzungs-Drama kurz vor der EM - Handball-Star: Rekordspiel „hat richtig wehgetan!“
--  2024 Aile destek ödemesi ne zaman yatacak?
--  उत्तराखंड से है भगवान श्रीराम का अटूट नाता-मुख्यमंत्री
--  Không ngờ ốc móng tay có dinh dưỡng gấp 22 lần thịt lợn, ăn đơn giản cũng ngon, giá lại rất rẻ
--  BJP politicizing consecration ceremony of Ram Temple: Srinivas Rao
--  Governadora do RN veta projeto de lei que impedia participação de mulheres trans na categoria feminina em competições esportivas
--  Земетресение разтърси Румъния
--  «Пры выездзе з краiны беларусы застаюцца гэткай жа часткай нацыі, як і тыя, хто жыве на радзіме»
--  Três pessoas morrem após caminhão frigorífico bater contra poste na ERS-405, em Passo do Sobrado
--  BRS में पुराने नाम पर लौटने की इच्छा पनप रही
+-  Missä on Leo Komarov? Tämä on tilanne nyt
+-  CP reviews functioning of various wings at Hyderabad Police headquarters
+-  Nein zu Einspar-Forderungen: SPD-Senatoren stellen sich weiter gegen Finanzsenator Evers
+-  Следующий соперник «Барыса» победил после пяти подряд поражений в КХЛ
+-  בגלל תמיכתה בישראל: התפרק ארגון האוהדים הבינ"ל של סט. פאולי
+-  Former Aston Villa boss set for turbulent time as he faces further blow
+-  ثورة الذكاء الاصطناعي تدخل عالم التجميل
+-  توقعات أحوال الطقس غدا الأحد
+-  أطباء يحذرون من الخمول وقت الفراغ
+-  ضربات جوية أمريكية جديدة على شمال صنعاء اليمنية والحوثيون يتوعدون ب "رد قوي"
+-  تناول الطماطم يومياً قد يساعد في إدارة ارتفاع ضغط الدم
+-  في عز الأزمة..دنيا باطمة تفاجئ جمهورها
+-  أخلاقيات النضال الجمعوي عموما والنضال المناخي خصوصا
+-  مواعيد مباريات "أسود الأطلس" في كأس إفريقيا للأمم
+-  بتعليمات من حموشي.. ولاية أمن طنجة تستقبل 21 طفلا للإطلاع على مرافقها
+-  هل تتأثر صادرات وسفن المغرب من ضربات التحالف على الحوثيين؟
+-  منظمة الأرصاد الجوية الدولية: عام 2023 كان الأكثر حرا على الإطلاق منذ بدء تسجيل درجات الحرارة
+-  أخنوش: مكالمة الملك حول "إيض يناير" أسعد أيامي.. وسوس علمتني السياسة
+-  Foto mit Bulldogge direkt am Baby-Kopf: BVB-Star Reus erneut Vater geworden
+-  Призерка Олимпиады из Казахстана по борьбе проиграла с унизительным счетом
+-  Самолетите Boeing 737 MAX 9 остават на земята за още проверки
+-  Yarı Otomatik Ofsayt Sistemi Süper Lig'de ilk kez devreye girdi!
+-  Şehitlere yönelik provakatif paylaşım yapan 6 şüpheli yakalandı
+-  Tottenham Ndombele'yi geri çağırabilir!
+-  Erce Kardeşler: Kendime zarar vermeye başlayacağım
+-  Psychose à Kayar : Les élèves Thierno Ba et Tidiane portés disparus (Photo)
+-  Laurys Diva he`i que la plata no le cambió
+-  Lőw Zsolt: Szinte újravirágzását éli a magyar labdarúgás
+-  Motociclista é socorrido com fraturas expostas após colisão com carro em Lucas do Rio Verde
+-  Meghan Markle conveys powerful message to Princess Kate amid rift
+-  मेयर चुनाव : कांग्रेस के तीनों उम्मीदवारों ने दाखिल किए नामांकन, वोटिंग 18 को
+-  Kai Häfner: DHB-Spieler im Babyglück - Geburt von Sohn Matti während EM
+-  Kai Häfner: DHB-Spieler im Babyglück - Geburt von Sohn Matti während EM
+-  Тръгна измама с Енджи Касабие
+-  Sabotean una ambulancia mientras atendía en Vizcaya a una mujer, que ha fallecido
+-  «Кайрат» держал победу над «Атырау» в матче чемпионата Казахстана
+-  Pedro Coimbra como adjunto no Secretariado do PS de Pedro Nuno Santos
+-  India Supreme Court refuses stay on law regulating election commissioners
+-  Encuentran el cadáver de un hombre tras el incendio de su casa en Mallorca
+-  Çay Ocağını Birbirine Kattılar, Masa, Sandalye ve Okey Istakalarıyla Saldırdılar
+-  ارتفاع عدد الشهداء الفلسطينيين في العدوان المستمر على قطاع غزة إلى 23843 شهيدًا
+-  "المرور" يطرح لوحات إلكترونية عبر "أبشر" غدا.. و4 خطوات للتسجيل
+-  Đerona miran pred Mađare: "Sve je i dalje u našim rukama"
+-  'Caner'le gurur duyuyorum'
+-  भरतपुर में परचून की दुकान से उधर का सामान नहीं मिलने पर एक युवक ने की फायरिंग
+-  Cómo lograr que un baño sea más relajante: diez formas inteligentes para tener tu spa en casa
+-  Deca i srpska Nova godina - treba li im dopustiti da ostanu budni do ponoći?
+-  Burkina Faso : Un important lot de matériel reçu par l’Armée
+-  Şehitlere yönelik provakatif paylaşım yapan 6 şüpheli yakalandı
+-  Xi feared to launch all-out war on Taiwan as new ‘troublemaker’ president set to snub ‘reunification’ talks with Beijing
