@@ -1,51 +1,51 @@
 # Latest News
--  [‘불후의 명곡’ 김호중, 리베란테와 협업…천상의 하모니로 완성한 레전드 무대
--  Fenerbahçe, Gaziantep'e ulaştı
--  Kuvvet Komutanlarından yaralanan askerlere ziyaret
--  Sürpriz gelişme! Vedat Muriqi geri dönüyor: Tarihi bile açıkladılar
--  Fernando Santos: Takımın sorumlusu benim
--  "Depremden sonra cesetler torbalarla taşındı" iddiasına yalanlama
--  İran'dan Türkiye açıklaması
--  Çin'i kızdıracak sonuç... Tayvan'ın yeni lideri belli oldu!
--  Erzincanspor teknik direktöründen skandal sözler! Önce öfkelendi sonra sil bunu dedi, ama canlı yayında olduğunu unuttu
--  Beşiktaş'ın yeni hocası Fernando Santos'tan Türk halkına başsağlığı!
--  Khánh Hòa: Truy bắt nghi phạm giết người sau 18 giờ gây án
--  Nam sinh 12 tuổi bị chẩn đoán ung thư, bác sĩ kết luận lý do khiến nhiều phụ huynh giật mình về cách dạy con hàng ngày
--  Zeman vede i fantasmi: "Juve, due gol in fuorigioco". Smentito dalle immagini
--  Platinum Credit Heathens are off to the Uganda Cup Finals
--  Regras para entrar no BPC/Loas e aposentadoria
--  [인터뷰] "올 시즌 목표는 우승"…DRX '라스칼' 김광희-'테디' 박진성
--  Tunisie: 2024, élection politique et pressions économiques
--  Veja o aumento mensal do INSS por benefício
--  "يد" العراق تتعادل مع اليابان في بطولة آسيا
--  تظاهرة كبيرة في إيرلندا للمطالبة بوقف إطلاق النار في غزة (شاهد)
--  Inveniukselle ja Laitiselle onnistumiset Ruhpoldingin sprintissä
--  Seguro-desemprego para 2024: variações e novas parcelas
--  4 Ukrainian citizens were among those captured when a helicopter went down in Somalia this week
--  Почти полностью сгоревший склад Wildberries в Санкт-Петербурге сняли с коптера
--  Νέος πρόεδρος Ταιβάν ο Λάι Τσινγκ-τε: «Θα είμαστε με την πλευρά της δημοκρατίας»
--  Ανακοινώθηκαν τα τελικά αποτελέσματα των εκλογών στη Σερβία – Πώς διαμορφώνεται η Βουλή
--  Tohtiiko siihen edes koskea? Oulun antiikki- ja keräilymessujen harvinaisuus on yli 18 000 euroa maksava suomalainen lasimaljakko
--  3 Wasit Piala Asia 2023 yang Pernah Pimpin Laga BRI Liga 1, Siapa Saja?
--  Bradley Walsh's wife starred in iconic music video and was a member of original Gladiators series
--  Бородатая шутка стала реальностью — появился унитаз для геймеров
--  تريزيجيه يحذر منافسي مصر في كأس أمم إفريقيا: لدينا هدف واحد
--  Méretes frissítés érkezik a Starfieldhez, ami a hibák mellett a látványon is javít
--  На Ставрополье два человека погибли в лобовом столкновении автомобилей
--  Confira todos os aumentos sobre Teto do INSS, salário-família e auxílio-reclusão para 2024
--  НАЗ постави 5 искания, сред които участие в украинската помощ, в декларация
--  Administration pénitentiaire : un homme du sérail nommé par colonel Mamadi Doumbouya
--  Άρρωστος ο Κα και εκτός αποστολής
--  Australian Open: Ξημερώματα Δευτέρας η μάχη Τσιτσιπά - Μπερετίνι
--  Terry G Announces Retirement From Music (Video)
--  Bu ekmeği yedikten sonra dışarıdan ekmek almayacaksınız! İşte elinizi hiç kirletmeden evde yapabileceğiniz nefis ekmek tarifi
--  Παρασκήνιο: Η προειδοποίηση Κασσελάκη σε Πολάκη μέσω τρίτου το βράδυ της Παρασκευής
--  Samsun'da jandarma 2 bin 872 adet sentetik ecza ele geçirdi
--  Anušić otkazao sastanak s crnogorskim kolegom: Susret otpao zbog dva sporna pitanja?
--  Rassistische Verleumdung: Trump attackiert Haley vor Vorwahlen
--  Bolsa Família 2024 com as datas a partir de 18 de janeiro até dezembro
--  عقيلة يناقش مع العريبي خطة عمل لجنة الإعمار والاستقرار بمختلف البلديات
--  Viel los bei Werder: Malatini-Transfer vor Abschluss und Unruhe vor wichtigem Spiel in Bochum
--  أصغر رئيس حكومة في تاريخ فرنسا.. من هو غابرييل أتال؟
--  На върха на щастието! Мис България 2023 хвана милионер с огромна къща в Пловдив СНИМКА
--  Естествен пилинг за сияйна красота: Съживете кожата си със скраб от кафе
+-  ¿Qué es la CIJ, la corte que juzga a Israel por 'genocidio'?
+-  Rutte says that his ministers leaving is "explainable"
+-  Doãn Hải My lộ mặt mộc mà vẫn xinh đẹp, phản ứng ra sao trước thông tin bịt kín mít đi khám thai cùng Văn Hậu?
+-  Hai anh em hiếu thảo chi 900 triệu để cải tạo nhà cho bố mẹ: Căn hộ 30 tuổi thay đổi khiến chủ nhân cũng không thể nhận ra
+-  3 tầng cảnh giới sống, hiểu thấu để đi tới chân trời góc bể vẫn ung dung, không lo bị đào thải!
+-  Nhất Diva Mỹ Linh: Ông xã Anh Quân bay vào hỗ trợ vợ "đạp gió rẽ sóng" và được trả mức cát-xê rất tượng trưng
+-  Los signos del horóscopo chino que son un desastre en las relaciones
+-  NASA predstavila X-59 avion: Vratit će nadzvučne letove, bez zvuka probijanja zvučnog zida
+-  Den zona turistico: A detene ilegal maniak band’i beach
+-  قمة الطاقة.. آمال عريضة ليبيّة ورغبة خارجية في الاستثمار
+-  Κολωνός: Ακόμη έξι κατηγορούμενοι στη δικογραφία για την υπόθεση μαστροπείας ανηλίκων
+-  Lumi pöllyää maan keskiosien teillä niin, että ajokeli on erittäin huono
+-  Lumi pöllyää maan keskiosien teillä niin, että ajokeli on erittäin huono
+-  BREAKING Bolton game abandoned after 'medical emergency' in crowd versus Cheltenham
+-  Luiza Gegës nuk i jepet shpërblimi, reagon PD: Akt i neveritshëm i qeverisë
+-  Un Bruckner sin pélets
+-  Kongen er tonedøv: Ikke en krone værd
+-  राजस्थान में बिजली कटौती के कारण ऑक्सीजन की आपूर्ति बंद होने से कैंसर रोगी की मौत
+-  SVI NA OKUPU! BIKOVIĆ VERENICU I SINA IZVEO IZ PORODILIŠTA! Izašli kroz garažu i uputili se ka toplom domu na Dorćolu
+-  Leipzig: Sexueller Übergriff bei der Linken – Partei ringt mit der Aufklärung des Falls
+-  Estatuto do Profissional de Arte e Cultura deve entrar em vigor até final do primeiro semestre de 2024
+-  Eigennutz und Nazi-Keule – Ansage
+-  Reading fans invade pitch to protest against owner
+-  عاجل.. سكني يكشف عن الالتزامات المنطبقة على مستفيدي منتج الأرض المجانية
+-  Κίκο βασικός με ΑΕΛ
+-  الدويري يعلق على معركة دير البلح
+-  ندوة في إربد بعنوان توظيف الخطاب الديني لتبرير العدوان على غزة
+-  البرلمان العربي: الاحتلال يتهرب من جرائمه البشعة بادعاءات كاذبة على مصر
+-  النجار: وزارة الثقافة تعتزم طباعة مختارات من أشعار المرحوم محمود فضيل التل
+-  VIDEO: Najvatreniji BiH navijači okupirali Mannheim!
+-  Milhares marcham em Londres em solidariedade com palestinianos
+-  El mini paro de 500 euros que puedes cobrar de forma indefinida si cumples este requisito
+-  LIVE: ΟΜΟΝΟΙΑ-ΔΟΞΑ 10
+-  بعد احتجازها من قبل إيران... تحديد موقع ناقلة النفط "سانت نيكولاس"
+-  Assam CM Confident Of BJP Coming To Power In Odisha Assembly Polls
+-  Milorad Pupovac gost Točke na tjedan
+-  Shkollë futbolli e Manchester City-t në Shqipëri, Rama: Projekti gati, brenda pranverës hapim kantierin
+-  Isabel Pantojaren kontzertura joateko zerbitzu berezia eskainiko du Bilbobusek
+-  Румынские фермеры заблокировали границу с Украиной
+-  Man missing after plunging into giant crack caused by Iceland volcano
+-  Scotland braced for winter blast with temperatures as low as -15C
+-  SAD i Britanija nastavile napade: Raketama na vojno-mornaričku bazu, Huti obećali snažan odgovor
+-  عدد ساعات لعب Fortnite تجاوز Call of Duty و FC 24 و GTA 5 و Roblox مجتمعين
+-  Bharat Jodo Nyay Yatra: ఆదివారం నుంచి రాహుల్ గాంధీ 'భారత్ జోడో న్యాయ్ యాత్ర'
+-  Dulipalla Narendra: చంద్రబాబుపై సీఐడీ అధికారులు ఇంకా కక్షపూరితంగా వ్యవహరిస్తున్నారు
+-  Wearable tech aiming to level up life: CES highlights
+-  मशहूर शास्त्रीय गायिका प्रभा अत्रे का निधन, राष्ट्रपति और पीएम मोदी ने जताया शोक
+-  قابس: احياء الذكرى 13 ليوم الشهيد بالحامة
+-  Le pagelle di Genoa-Torino: difesa solida, Sanabria e Vlasic spenti
+-  حظر استخدام أجهزة “الليزر” في بطولة كأس أفريقيا
