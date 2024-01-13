@@ -1,51 +1,11 @@
 # Latest News
--  Германия — Лаутербах выступает за изгнание гомеопатии из списка услуг обязательного страхования
--  Kickoff | Dybala linked with move surprise EPL switch
--  Sivasspor deplasmanda Samsunspor ile karşılaşacak
--  İlk Türk astronotu taşıyacak kapsül Florida'da
--  İşgalci İsrail Batı Şeria'da 15 Filistinliyi gözaltına aldı
--  Diyarbakır anneleri evlat nöbetini sürdürüyor
--  La CNMC abrió en 2023 un centenar de investigaciones tras soplos anónimos
--  В Калининградскую область не пустили 20 тонн зараженных томатов
--  Иностранцев разозлил новый пакет военной помощи Британии Киеву
--  West Ham could sell trio to fund a move for 20-goal January target
--  Cameroun : Vincent Aboubakar forfait pour la #CAN2023 !
--  Oliebollentoernooi SV Vaassen
--  Ny vært erkender: Måske ikke kendt nok
--  Musiikki | Spotify poisti ruotsalaisten suosikkiartistien musiikkia manipulointiepäilyjen takia
--  “เศรษฐา” สวมเสื้อ Liverpool เซ็นลูกบอล-ถ่ายรูปเด็กๆ บอกเป็นลูกนายกฯ เหนื่อยนะ
--  ১ লাখ ৩৩ হাজার টাকা বেতনে ব্রিটিশ হাইকমিশনে চাকরি, যেসব যোগ্যতা লাগবে
--  Kristen Stjuart otkrila šta misli o “Sumraku”: To je tako gej film
--  La verità sulle mafie nigeriane? E' un romanzo d'avventura
--  Petardi fanno esplodere il cassonetto del vetro. Atto vandalico nella notte
--  `Unacceptable`: India Strongly Objects To British High Commissioner`s Visit To PoK
--  Siracusa, trasferimento del Comando dei Vigili del fuoco. I sindacati: “chiediamo chiarezza e trasloco solo a consegna definitiva”
--  Spanien erhält im Handballduell gegen Kroatien eine Ohrfeige
--  Naldo debütiert: Werder-Traditionsmannschaft wird beim Hallenturnier in Frankfurt Vierter
--  e-Lectures: Virtual tutorial platform launched for students pursuing higher education in Odisha
--  Nächstes NFL-Spiel angekündigt: Stadt euphorisch – sogar eigene Tram fährt durch München
--  Metzger wandert mit der schwangeren Verlobten seines Freundes aus
--  Bayern-speler zet zelf streep door sensationele winterdeal: 'Niet aan de orde nu'
--  В Ступино мужчина до смерти забил сожительницу
--  I served a famous actor & had no idea – his wife gave me death stares after I said ‘Christian’, I was so embarrassed
--  बंगाल में गंगासागर मेले में जा रहे साधुओं पर हमला करने के आरोप में 12 गिरफ्तार
--  প্রধানমন্ত্রী, মন্ত্রী-এমপিরা যেসব সুবিধা পাবেন
--  Χούθι: Τα αμερικανικά πλήγματα στην Υεμένη δεν έχουν αντίκτυπο στις επιθέσεις μας
--  Запорожская область имеет равный с другими регионами РФ доступ к лекарствам
--  “Yellow Submarine”: La revolución psicodélica de Los Beatles
--  Warsteiner Masters Vorrunde Unna: Samstag ab 12 Uhr
--  Frohlinder Neuzugang Conor O’Reilly sammelt erste Eindrücke: Abstieg kann er sich nur schwer vorstellen
--  İsraildən şok etiraf: Bu qədər əsgər əlil olub
--  Тысячи россиян находятся в разрываемом беспорядками Эквадоре: ситуацию взяли под особый контроль
--  В выходные дни на погоду в Поморье будет влиять циклон с Баренцева моря
--  Жительница Вожеги раскаялась за то, что сбила на машине своего супруга
--  Veszélyes a magyarországi vizeket borító jég, aki rájuk lép, az életével játszik
--  Virtus Verona, riecco Ceter: "Quanto sono mancato? Le alternative davanti sono poche"
--  Amravati News : मोठी बातमी! स्वामी राम राजेश्वराचार्य महाराजांना जीवे मारण्याची धमकी; अमरावतीत खळबळ
--  In einer Zeit, in der der Ruf nach Tierschutz lauter als je zuvor erklingt, ist es entscheidend, die Absicht hinter den Aktionen zu hinterfragen.
--  En Acı Fotoğraf!
--  36 метров трубопровода заменили на улице Байкова в Пскове
--  Russia Launched 40 Missiles, Drones Overnight – Ukraine
--  Кандидатът на управляващата партия в Тайван води на изборите за президент
--  Суд арестовал собиравшего данные для спецслужб Польши россиянина
--  Betrüger betrügen Wohnungssuchende mit gefälschten Angeboten | hessenschau.de
+-  CNN TÜRK Ekibi Irak sınırında! Bakan Güler ve komutanlar harekata ilişkin ne görüşüyor?
+-  Best Model Turkey'de birinci oldu! İstanbul'a yerleşti
+-  Cumhurbaşkanı Erdoğan'dan Dolmabahçe'de toplantı kararı
+-  পাঁচবার ক্ষমতায় এসেছি এটা অনেক দেশের পছন্দ না: প্রধানমন্ত্রী
+-  Giáo sư Harvard: Một kỹ năng giúp bạn dễ thăng tiến và giàu lên nhưng rất ít người biết
+-  كأس أمم أفريقيا.. «الرقصة الأخيرة» تنتظر ثلاثي منتخب الجزائر
+-  [현직 경찰관, 충남 근무지서 총기로 극단적 선택
+-  ["지구종말 대비해 소 키울래"…저커버그의 깜짝 계획 무슨일?
+-  [전국 대부분 흐리고 비·눈…‘빙판길’ 조심하세요
+-  ¿Qué hacer hoy en A Coruña? Agenda del sábado 13 de enero
