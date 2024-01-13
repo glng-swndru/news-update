@@ -1,51 +1,51 @@
 # Latest News
--  उद्धव ठाकरेंची तोफ श्रीकांत शिंदेंच्या मतदारसंघात धडकणार, झंझावाती दौऱ्यात कार्यकर्त्यांशी साधणार संवाद
--  IVAN MARINKOVIĆ NIJE DOBAR OTAC Jelena priznala pravu istinu o odnosu sa malim Željkom, pa se umešala Miljana
--  32 ilde terör örgütüne operasyon: 113 şüpheli gözaltında
--  Antibiyotik işe yaramıyor! Virüs kokteyline maske uyarısı
--  Na Slovensku rapídne rastie ponuka benzínových aj dieselových jazdených áut, stúpa záujem aj o elektromobily
--  Warriors rally to beat Bulls; Spurs rout Hornets
--  'นพดล'แจงระเบียบราชทัณฑ์เป็นมาตรฐานสากล ไม่เลือกปฏิบัติ มุ่งหลักนิติธรรม สมานฉันท์
--  टोखामा चाकु दिवस मनाइँदै
--  MLB 샌프란시스코, 강속구 불펜 힉스 영입…이정후와 한솥밥
--  친낙계 행사서 '이재명 목에 칼빵' 막말…이낙연 직접 사과
--  Luftqualität heute in Ulm: Luftverschmutzung angestiegen! Diese Qualität hat die Luft in Ulm aktuell
--  Omosessualità e matrimonio, visioni a confronto: intervista doppia De Martino - Venturi I VIDEO
--  Ирландския премиер беше на еднодневно официално посещение в Северна Македония
--  Recruitment: Police conduct screening for intending constables in Enugu
--  NK refugee NGO expresses appreciation for South Korean staff
--  LG Electronics opens 1st overseas EV charger plant in US
--  China's Weibo blocks trending Taiwan election hashtag
--  Thực hiện thử thách trên mạng, nam sinh lớp 12 nhét đoạn dây điện 26cm vào "của quý"
--  Азербайджанская армия уничтожила цели "противника" с места и в движении
--  आप भी करने वाले हैं अरेंज मैरिज? लाइफ पार्टनर चुनते समय ना करें ये गलतियां
--  Amerikaanse luchtvaartautoriteit wil herinspectie 40 Boeings
--  Лудогорец не го иска! Трансферна война за заместника на Десподов в Разград
--  เปิดสูตรคำนวณ รีไฟแนนซ์บ้านอย่างไรให้คุ้มค่า ช่วงดอกเบี้ยแพง
--  Pellegrini mohol byť kandidátom koalície, odmietol to a riskuje prehru, tvrdí Danko
--  [“푸바오, 긴장해라” 제주 반달곰 오늘 첫 공개…귤·사과·배 좋아해
--  Horoskopi 13 janar 2024: Çfarë kanë parashikuar yjet për secilën shenjë
--  Ehdotus sairaaloiden karsimisesta kerää kritiikkiä – Päivi Räsänen sättii selvityksen tekijöitä: ”Täydellinen romutus”
--  MOĆNI TRIPL-DABL Jokić razbio litvanski zid, &quot;tukao&quot; se sa Valačijunasom, a onda ga stavio na mesto (VIDEO)
--  HUTI IMAJU RAZORAN ARSENAL: Deluju kao da su naoružani samo lakim oružjem ali to ne može biti dalje od stvarnosti (VIDEO)
--  Caricature : invalidation, la crainte des candidats députés
--  Παλιές άσχημες εποχές θύμισε το δημοτικό συμβούλιο
--  '이재, 곧 죽습니다' 최우진, 데뷔작 출연 소감…"겸손하고 따뜻한 배우 될 것"
--  Report: North Korea halts radio broadcasts, curbs exchanges with South
--  غارات أمريكية بريطانية تستهدف للمرة الثانية أهدافا للحوثيين في اليمن
--  Motorway Fog Update: M-1, M-3, M-5 among several motorways closed amid dense fog
--  Explainer | Xi Jinping aast op Taiwan: zo bemoeit China zich met de verkiezingen
--  Uttrup Ludwig triumferer og tager førertrøje i Australien
--  مسؤول أممي: مشاهد من "الرعب المطلق" في شمال غزة.. الجثث في الشوارع والناس يتضورون جوعا
--  Uttrup Ludwig triumferer og tager førertrøje i Australien
--  Saturday's League One predictions including Portsmouth vs. Leyton Orient
--  Siedzisz przy dziurze w samolocie, co się dzieje potem? Historia i nauka pokazują, co się z tobą stanie
--  Təbrizdə Ermənistan konsulluğunun açılması gərginlik yaradacaq
--  OVAKO BI PROŠAO ĆUTA U ŠPANIJI Lažni ekolozi blokirali ulice, sada su u zatvoru, izjednačili ih sa narko dilerima
--  КХЛ: «Амур» — «Авангард», «Динамо» Москва — «Торпедо». Расписание матчей 13 января
--  Top 10 kỷ lục đáng nể trong lịch sử Asian Cup
--  NTV's Dr King'ori announces massive career move
--  AFCON 2023: ‘No Gree For Anybody’, Sanwo-Olu Charges Super Eagles To Win Trophy
--  Xavi thực sự đã tìm ra công thức chiến thắng cho Barca?
--  Luton Town muốn bổ sung thêm 2 hậu vệ trong tháng 1
--  Los Naranjeros ya están dos juegos por cero arriba de los Águilas
+-  اشتباكات ضارية وسط قطاع غزة
+-  كم بلغت أسعار الخضار والفاكهة بالسوق المركزي اليوم ؟
+-  أسعار شحن الحاويات عالمياً تواصل الارتفاع بسبب اضطرابات البحر الأحمر
+-  مُفاجأة 'مرعبة'.. ثعبان داخل خزانة ملابس في أستراليا
+-  ضربوه بأدوات معدنية وأحرقوه بأعقاب السجائر... تعذيب طفل سوري في تركيا!
+-  وفاة ملازم جمارك أسامة محمد الربيحات
+-  عاصفة تجتاح الغرب الأوسط الأميركي و250 ألف بلا كهرباء
+-  الاحتلال يعتقل طفلا وأربعة أشقاء من بيت لحم
+-  Ram Mandir Ayodhya : सरयू किनारे विशाल महायज्ञ, नेपाल से आए 21000 श्रद्धालु
+-  Uso de vías cortas al paso de carga, enfocan a Nuevo Laredo
+-  Dem Bericht zufolge ist der Sparhaushalt der Ampel „rechtswidrig“ – weil er in die Sozialversicherung greift
+-  Rompen maquilas límites de edad y logran aliviar vacantes
+-  Crvena buržoaziјa
+-  Meet actor who was a superstar, worked with many star actresses, one mistake ruined his career, he is now..
+-  Watch: Ishan Kishan's daily routine unveiled amid disciplinary action rumors
+-  حكومة اليمن تهاجم الحوثي وتحمله مسؤولية العدوان الأمريكي
+-  اے این پی کو ’’لالٹین‘‘ کا نشان مل گیا، جرمانہ اور4 ماہ میں پارٹی الیکشن کروانے کا حکم
+-  Emily Blunt, Selena Gomez unite to poke fun at Golden Globes viral lip reading-gate
+-  الجمعيات الفلاحية في كربلاء تجري كشف موقعي ومتابعة ميدانية لشبكة المبازل للإطلاع على أعمال التنظيف وفتح الاختناقات
+-  تركيا تعلن مقتل وإصابة 13 من جنودها شمال العراق
+-  هل حرب غزة...حرب دينية؟ / 3
+-  “History Once Again”: Khabib Nurmagomedov Projected to Return to UFC to Uphold Islam Makhachev’s Legacy
+-  Facilitan UAT, ITABEC y el ITJUVE acceso a Becas Futuro Tamaulipas
+-  Milli Savunma Bakanı Güler'den şehit askerler için taziye mesajı
+-  خسائر "حزب الله" العسكرية وتضاؤل نَمَط الردع
+-  Conflit israélo-palestinien : vers un 100e jour de guerre entre Israël et le Hamas
+-  Geheimcodes des Kabinenpersonals im Flugzeug: „Bob“, „Cheerio“, „Philip“ – DER SPIEGEL – DER SPIEGEL
+-  Instagram kurucularının büyük umutla açtığı uygulama kapanıyor! Son tarih verildi
+-  Auch dieses Mal dreht sich alles um KI
+-  誰贏都一樣！美國2024大選後恐更分歧，政治風險全球第一
+-  Citigroup Announces Plan To Trim 20,000 Jobs Over Next Two Years
+-  Futbol maçlarında şehitler için saygı duruşunda bulunulacak
+-  Musialas Traumstart ins EM-Jahr: «Zocken» mit Sané
+-  171 Flieger dürfen nicht abheben: Unbefristetes Flugverbot für Pannen-Boeing
+-  ESG週報》「碳中和」太沉重？美消費者提告Evian高檔礦泉水
+-  Newcastle United gegen Manchester City live im TV und Online-Stream sehen
+-  Newcastle United gegen Manchester City live im TV und Online-Stream sehen
+-  Ариқларни бетонлаштириш ишлари тўғри бажариляптими? (+ видео)
+-  Netflix wird seinen Dienst bald für zahlreiche Geräte einstellen
+-  Gyventojų siūlymu Neringoje bus įrengtas sveikatingumo takas
+-  ‘쌍둥이 사건’ 제주4·3-여순10·19 민간 연구 교류 활발
+-  धनश्री को सपोर्ट करने पहुंचे युजवेंद्र चहल, डांस रियलिटी शो में की जमकर मस्ती
+-  عاجل.. توقعات طقس اليوم: غبار وأتربة وأمطار على 6 مناطق بالمملكة
+-  Carros americanos 2018 ya pueden regularizarse
+-  'Munawar uses and throws girls': Karan Johar blasts at Isha for exposing Munawar's personal life; reminds her of her past dating exp
+-  В окупованому Бердянську пролунали вибухи: що відомо
+-  Kasperczak był krok od śmierci. "Poszliśmy do naszej ulubionej restauracji"
+-  Epic Showdown at Acer Predator League 2024 Grand Finals – Who Will Reign Supreme?
+-  Turkmenistan exchanges mining knowledge with nations overseas
+-  Saturday's Serie A predictions including Monza vs. Inter Milan
