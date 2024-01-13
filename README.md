@@ -1,11 +1,51 @@
 # Latest News
--  בשל חשש לסלמונלה: שטראוס מורידה את דגני הבוקר מהמדפים
--  בת ה-13 שנחטפה לעזה ושוחררה הגיעה לחנוך את שעון החול שהוצב בניו-יורק
--  ראש העיר בקריית שמונה: "לא נחזור לעיר כל עוד לא תשתנה המציאות שהייתה בעיר"
--  تفاصيل أزمة مصنع أبو قرصاص بعد قرار وقف إنتاج السكر للمرة الأولى منذ 155 عاما
--  مقرر لجنة الاستثمار بالحوار الوطني: رفع الحد الأدنى للأجور متوقع قبل شهر رمضان
--  Triunfo Panza Verde en Tecpán
--  PepsiCo запретила упоминать ВСУ и поддержку Киева в своей рекламе
--  Бастрыкин поручил возбудить дело после пожара на складе Wildberries под Петербургом
--  Cerca de 600 quilos de pescado ilegal são apreendidos na feira da Panair em Manaus
--  Καιρός - Τσατραφύλλιας: Μετά την κακοκαιρία εξπρές έρχεται άνοδος της θερμοκρασίας έως 8°C
+-  Biden'dan Tayvan açıklaması
+-  Λέσβος: Επίθεση αγνώστων σε δομή αλληλεγγύης της Ερεσού - Προκάλεσαν καταστροφές
+-  Ausstrahlung im Free-TV und Live-Stream
+-  Sporting vence em Chaves e assegura liderança no fecho da primeira volta
+-  'They finally have a community': Volt Hockey giving kids living with disabilities a chance to enjoy sport
+-  San Jose: Police searching for woman kidnapped during carjacking Saturday
+-  Požar kod Šapca, poginuo muškarac
+-  Anna Ermakova beeindruckt bei ihrem ersten Live-Auftritt als Sängerin
+-  Bald Nachwuchs? Larsa Pippen lässt sich Eizellen einfrieren
+-  قوات إسرائيلية تقتحم جنين في الضفة.. وفيديوهات للتصدي لها
+-  Cody Bellinger casts shadow over Cubs convention as he mulls his options as a free agent
+-  Tayyip Talha Sanuç: 9 aydır bugünlerin hayalini kuruyorum
+-  Batı Kudüs'teki ABD Konsolosluğu önünde İsrail protestosu
+-  Galatasaray'da Leo Dubois harekatı! Temaslar başladı
+-  Fransa'da skandal: Camiyi hedef aldılar
+-  Tuerie de Bastia : l'un des suspects reconnaît avoir commis le quadruple meurtre
+-  Украінцы імкліва скарачаюць выкарыстанне расейскай мовы ў сацсетках — даследаванне
+-  كربلاء: كمين محكم يطيح بتاجر مخدرات
+-  سوريا تتعادل مع أوزبكستان في كاس اسيا
+-  FOTO U prometnoj nesreći kraj Siska ozlijeđene tri osobe, automobili su potpuno uništeni
+-  Fepal detona Demétrio Magnoli, da Globo: 'é pago para mentir' (vídeo)
+-  England teammates knew about Kyle Walker’s secret family, claims Lauryn Goodman
+-  في غزة... قصة حب تتكلّل بالزواج تحت القصف
+-  وزير الدفاع الإسرائيلي يغادر جلسة مجلس الحرب
+-  جيش الاحتلال يقتحم بلدة سلواد شرق رام الله
+-  Estas son las cifras de muertos por gripe en España al año
+-  Afyonkarahisar'da deprem!
+-  Reaparece De Bruyne y empuja al City a la remontada en Newcastle
+-  Heiliges Schiff! Was ist mit den Huthi-Rebellen und dem Roten Meer los? – MSNBC
+-  Chaves ficou a pedir penálti de Coates neste lance. Árbitro mandou seguir
+-  La FAA intensifica la supervisión de Boeing tras el incidente de Alaska Airlines
+-  Más de 2.000 pymes y emprendedores apoyan reforma laboral de Milei por mejorar competencia
+-  Amorim: «Não sofremos golos, mas principalmente não sofremos oportunidades»
+-  How Lauryn Goodman grew close to Kyle Walker during secret visits to Manchester with son Kairo
+-  Media: John Kerry treedt terug uit regering voor campagne Biden
+-  Algonquin Police Department starts snowman competition, encourages ‘community togetherness’
+-  Survivor 2024: Οριστικό – Αυτός ο παίκτης είναι η νέα προσθήκη
+-  Kyle Walker was living secret double life – he was too weak to tell Annie, so I showed her DNA test, says Lauryn Goodman
+-  Der DWD warnt dieses Wochenende vor Schnee und Frost
+-  Nairo Quintana y Egan Bernal, entre los 10 mejores ciclistas del siglo XXI
+-  Venezuela condena los bombardeos de EE.UU. y sus aliados contra Yemen
+-  A step in right direction for Afghanistan: Trott on first-ever bilateral series against India
+-  Луд мач в Англия! Сити пак се измъкна
+-  University Scholar Calls For Paradigm Shift In Teaching Of Mathematics
+-  John Kerry to step down as Biden admin climate czar: report
+-  Бенямин Нетаняху: Международният съд в Хага няма да ни спре да победим
+-  На върха на щастието! Генчо от Игри на волята предприе огромна стъпка...
+-  Вдигнаха пенсиите в Италия: Колко ще получават най-възрастните в страната?
+-  Yüksekova’da kar kalınlığı 40 santimetreyi buldu, araçlar kara gömüldü
+-  Dramatic scenes at Sydney Airport as man is arrested after disturbing find in his luggage
