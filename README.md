@@ -1,11 +1,51 @@
 # Latest News
--  Ô tô có thay đổi nhưng vẫn đạt đăng kiểm trong những trường hợp nào?
--  Người K’Ho xuống phố Đà Lạt diễn thời trang
--  Udhëtimi i fundit, shqiptari kapet “mat” teksa po hipte në traget në Itali
--  DMart Q3 Profit Jumps 17% To Rs 691 Cr, Adds 5 Stores
--  Wine bar, bistro set to open in Princeton, in former Flour House
--  4 شهداء و20 مفقودا باستهداف منزل في غزة
--  طوقان: سنستغل الطاقة النووية لتوليد الطاقة الكهربائية وتحلية المياه
--  নোয়াখালীতে সবজি ক্ষেত থেকে নবজাতকের মরদেহ উদ্ধার
--  তেজগাঁওয়ে আগুনের ঘটনায় ফায়ার সার্ভিসের তদন্ত কমিটি
--  Goggia gewinnt Zauchensee-Abfahrt - Gut-Behrami Sechste
+-  Soccerladuma | Match Preview: Ivory Coast Dealt Huge AFCON Blow
+-  Soccerladuma | Magents: Bucs Need Bite, Not Bootings
+-  Soccerladuma | Price Tag To Determine Which Way Basadien Goes?
+-  Soccerladuma | Egypt Star Sends Clear Warning To AFCON Rivals
+-  Soccerladuma | Man City Senior Stars Call 'Crunch' Meeting
+-  Đerona: Sve je i dalje u našim rukama
+-  (АНАЛИЗА) Дали Хутите можат да возвратат на нападите на САД и Велика Британија?
+-  Mejoras en el campo Javier Marquina del Grao de Castellón
+-  [ŽT] HIMARS + dronas = „Tornado-G“ + „Msta-S“ nebėra (Video)
+-  „O jeigu kas nors atsitiks – vėliau jus išlaisvinsime.“ Tai apie Baltijos šalis. Kas vyksta
+-  [ŽT] „Nepraleidžiame nei vienos progos.“ HIMARS įgula vyksta į kovinę poziciją (Video)
+-  Okupantai paaugliai. Skelbiama kiek rusų iki 20 metų žuvo Ukrainoje
+-  Тошкент халқаро аэропортида яширинча олиб ўтилаётган 1,8 млрд сўмлик олмослар тўхтатиб қолинди.
+-  José Dirceu pede a Gilmar Mendes suspeição de Moro
+-  Рекорден брой участници на кукерския фестивал в Симитли СНИМКИ
+-  Probe deeper into allegations of corruption against Halima, Edu – Delta PDP chieftain urges EFCC
+-  'ไต้หวัน'เริ่มนับคะแนนเลือกตั้ง 'ไล่ชิงเต๋อ'จากพรรค DPP คะแนนนำเหนือคู่แข่ง
+-  واشنطن تطالب بطرد وزيرين متطرفين من حكومة الاحتلال
+-  حقيقة استهلاك العيش الحساوي للمياه؟.. خبراء يكشفون مفاجأة
+-  مشاجرة جماعية في أحد شوارع تبوك.. وبيان عاجل من الشرطة (فيديو)
+-  شؤون الحرمين تهيئ البث الرقمي للدروس والمحاضرات من المسجد الحرام
+-  L'Inter piazza un grande colpo in mezzo al campo: dal Bayern arriva Lina Magull
+-  Rat u Pojasu Gaze traje skoro 100 dana. Izrael nastavlja s bombardiranjem
+-  Astrant Ede en de ´laat ze maar bungelen mentaliteit´
+-  Peter is slachtoffer Praagse schietpartij, nu start zijn familie crowdfunding voor revalidatie
+-  Leeds United looking to raid West Ham for 23-year-old utility man
+-  Szóba került a Szomszédok folytatása, de az Orbán-kormány beleegyezése kellene hozzá
+-  Bagaimana Ketentuan Pas Foto untuk Registrasi Akun SNPMB 2024?
+-  8 Petenis Peserta Australian Open 2024 yang Berstatus sebagai Ibu
+-  Bank Deposits Double In Over 7 Years, Suggests Data
+-  Andhra Pradesh: చంద్రబాబుతో బేటీ కానున్న పవన్.. డిన్నర్‌మీట్‌లో కీలక చర్చలు!
+-  الخارجية العمانية: الغرب لم يتحرك لإبادة 20 ألف فلسطيني وأرسل صواريخه بعد إصابة بعض السفن بالبحر الأحمر
+-  केवल BJP को रोकना नहीं, राहुल गांधी की दूसरी यात्रा का ये भी है मकसद
+-  जाम में फंसी थीं गाड़ियां, अचानक हुआ लैंडस्लाइड, दिखा दिल दहला देने वाला नजारा-VIDEO
+-  Le chiffre du ministre, terrible : 200 millions de m3 de moins dans les barrages…
+-  Fillojnë xhirimet për filmin biografik të Michael Jackson, zbulohet se kush do të interpretojë Mbretin e Popit
+-  Евгени Минчев: На 15 г. да си в униформа, да държиш "Калашников", да ринеш сняг - това изгражда
+-  Challenger Series quarterfinal line-up complete
+-  Trots låga straffen – Sverige har snart flest fängslade i EU
+-  תורג'מן החולה החמיץ אימון: "חייבים את הנקודות, לא משנה הדרך"
+-  “Missão árdua”, avalia Dilmar sobre governador escolher candidato a prefeitura de Cuiabá
+-  Opening of “Utharayana Vasal” on Monday
+-  Isa Scherer refaz cliques digno de poster com gêmeos e o marido: ‘The Pequenos’
+-  JBS anuncia investimento de R$ 135 milhões em Rolândia, no Paraná
+-  INDIA Bloc: ఎన్నికల తర్వాతే లీడర్ ఎన్నిక.. పవార్ నిశ్చితాభిప్రాయం
+-  “Ako se ovako nastavi, dobit ćemo liste čekanja u obiteljskoj medicini koje dosad nisu zapamćene u Hrvatskoj”
+-  Matan a karai en ronda de tragos
+-  MTA goes off the rails and more: Letters to the Editor — Jan. 14, 2024
+-  Rover bedreigt supermarktbezorger met mes, spullen uit bus meegenomen
+-  Declan Rice sends message to 23-year-old as he seals West Ham exit
