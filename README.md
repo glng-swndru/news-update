@@ -1,51 +1,11 @@
 # Latest News
--  من هم القضاة العرب الثلاثة في محكمة العدل الدولية؟
--  '최강야구' 신재영, 단국대 후배들 앞 '맵도리' 모드…"왜 이렇게 잘 던지는 거야?"
--  '살라 스타일' 카타르 FW 아피프, '살라 빙의' 쐐기포 작렬[2023아시안컵]
--  شاهد المصباح طلحة قائد لواء البراء بن مالك يهنئ زوجته برسالة رقيقة ويخطف قلوب المتابعين
--  Bangalore: బెంగళూరులో మరోసారి గుర్రాలతో పోలీసు గస్తీ
--  «Минсктранс» предупредил о перебоях с общественным транспортом в выходные. Что случилось?
--  Nachrichten für NRW am Morgen – Nachrichten – WDR – Nachrichten
--  Tüm oyuncuları sınırlarını zorlamaya çağırıyor
--  Peri masalı efsanelerinin çarpıştığı destansı bir yolculuğa hazır olun
--  Azerbaycan'dan şehit olan askerler için Türkiye'ye taziye mesajı
--  Kadir Çermik: Artık sağlıklı besleniyorum!
--  Taro Emir Tekin'in AVM stili beğeni topladı
--  مؤشرات الأسهم الأميركية ترتفع بشكل جماعي في أسبوع
--  أوقفت حفلها فجأة إليكم ما فعلته نانسي عجرم على المسرح - فيديو
--  مخطط أميركي للإضراب بعد مرور 100 يوم على الحرب
--  الإعلاميّة ديانا فاخوري تُرزق بمولودها الأول - صورة
--  استشهاد 3 فلسطينيين بقصف إسرائيلي شمال غزة
--  الموت يفجع الفنانة نادين الراسي
--  Afscheid bij jeugdbrandweer Ede met grote oefening
--  Femi Otedola Reclaims Spot Among Nigerian Billionaires on Forbes List with $1.1 Billion Net Worth, Boosting Total Wealth of Top Four to $29.10 Billion
--  Trka za Bijelu kuću počinje u Ajovi: Šta su kokusi i kako...
--  PREMINUO POZNATI GLUMAC: Zvezda popularnog sitkoma nije izdržala. opaka bolest je bila jača
--  ["이선균 협박녀, 과거 수천만원대 사기로 옥살이"
--  [“日노토강진 최대 피해 지자체 2곳, 주민 40%가 피난민”
--  Makar Sankranti 2024 : मकर संक्रांतीला शनि होणार प्रसन्न; सर्व अडचणी होणार दूर, फक्त 'हे' एक काम नक्की करा
--  Le best of de Gaspard Proust face à François-Xavier Bellamy
--  Dua Lipa mund t’ju bind të heqni dorë nga duhani
--  Chicago’s Governor Urges Texas to Show Mercy by Pausing Migrant Transports Before Storm Hits
--  Superstar Salman Khan Is Struggling In TRP Game On Small Screen Due To This TV Serial
--  Britain's Sunak, in Ukraine, announces increase in military aid
--  Tripla doppia di Jokic, Denver supera New Orleans
--  Oho: Ökyseura Newcastle valmis myymään tähtipelaajansa
--  Uludağ'ın yamaçlarındaki kıvrımlı yollar karlı ormanlarla bütünleşti
--  Irak ve Suriye'nin kuzeyindeki terör hedefleri havadan ve karadan vuruldu
--  Trabzonspor, Antalyaspor'un konuğu olacak
--  Azerbaycan'dan şehitler için taziye mesajı! Zakir Hasanov: Kardeş Türk Silahlı Kuvvetleri'nin yanındayız
--  2024'ün ilk siyasi partisi kuruldu
--  Denizli'de koku gelen evde yaşlı adamın cansız bedeni bulundu
--  نهاية تفوق الصوف.. مسنة وقعت بكرسيها المتحرك تحت عجلات قطار بهذه الدولة
--  قدرة المقاومة على الاستمرار
--  El mexicano Arozarena firmó contrato millonario en Grandes Ligas
--  Người được miễn trách nhiệm hình sự nhưng đã bị giam thì có được bồi thường không?
--  TP.HCM thiếu 10.000m² kho bãi, hàng ngàn xe tang vật dãi nắng dầm mưa
--  HLV Troussier hứa hẹn gây bất ngờ
--  Xe máy tông vào ô tô tải, 2 người chết có nồng độ cồn rất cao
--  2 nhà ga cổ Nha Trang và Phú Vinh, 2 tương lai trái ngược
--  Libros con Marco: 'Soldados'. La anomalía patológica respecto a "lo militar" en España, de la ignorancia a la animadversión
--  Remaniement : «Même quand on tente de renouveler le casting, c'est du recyclage et de la tambouille politicienne»
--  ВМРО-ДПМНЕ: Пукањето во тетовската болница покажа само колку власта нема контрола над ништо
--  Cận cảnh mẫu xe siêu sang Rolls-Royce Spectre mới về Việt Nam
+-  নেসকোতে চাকরি, সর্বোচ্চ বেতন ১ লাখ ২২ হাজার, আবেদন করুন দ্রুত
+-  Eski MİT'çi Mehmet Eymür hayatını kaybetti
+-  Moody's Türkiye'nin kredi notunu yükseltti!
+-  Fahrettin Altun'dan şehitler için başsağlığı mesajı
+-  263 yerleşim yeri ulaşıma kapandı
+-  İstanbul'da zamlı tarife başladı
+-  PKK'nın petrol üretim tesisleri vuruldu
+-  Ex-Fußballer des VfB Auerbach trifft beim Afrika-Cup auf Liverpool-Star Mo Salah
+-  Auto fährt in Zwickau Radfahrer an: Radler schwer verletzt
+-  Lleva Francisco Chavira alegría y esperanza a familias de Victoria
