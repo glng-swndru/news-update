@@ -1,51 +1,51 @@
 # Latest News
--  रोडवेज की वित्तीय स्थिति सुधारने और बसों के कुशल संचालन के लिए बनाया जाए एक्शन प्लान
--  "Palmer tham gia vào hầu hết những khoảnh khắc đẹp nhất của Chelsea"
--  Thót tim cho Chelsea
--  Man City cần sự trở lại của De Bruyne để bảo vệ ngôi vương
--  Buổi tập của Arsenal; Odegaard và Arteta suy tư
--  #OPINIÓN Año Nuevo #13Ene
--  Neuseelands Ex-Premier Jacinda Ardern heiratet in Weinregion
--  ¿Perú ingresa a sexta ola de la Covid-19? El Colegio Médico responde
--  Cobra Milei a manifestantes los gastos por protestas
--  Usain Bolt 'vuela' sobre un auto en el Hermanos Rodríguez
--  Absuelven a único acusado por caso Pegasus
--  Recauda 100 mdd startup de androides
--  Bloquean expediente a familias de asesinados
--  Alcaraz công khai muốn ‘hạ bệ’ Djokovic
--  Muhanga: Imirimo yo gusana gare iramara ibyumweru bibiri
--  Aposentadoria no INSS aos 55 anos de idade: Novos critérios
--  Editorial: Martinez voters should take politics out of city clerk job
--  Rakul Preet Singh and Jackky Bhagnani offer prayers at Ram Mandir replica in Mum
--  Gluconite Reviews (Real Users Warning!) Is It A Legit Supplement For Controlling
--  Vinder af Taiwans valg lover ny æra med demokrati
--  Giám đốc công ty kế toán: Shen Yun rất ý nghĩa và ‘thế giới cần chứng kiến’
--  #bitcoin ETFs could open floodgates to $30 trillion wealth management market
--  Wasserleitung eingefroren: Tipps und Tricks, wenn kein Wasser mehr kommt
--  Los mejores stands de CES 2024 fueron secretos, masivos y totalmente extraños
--  مظاهرات حاشدة في 18 ولاية إندونيسية دعما لغزة وتنديدا بالعدوان (شاهد)
--  Ontario universities facing huge funding shortfalls this year, amid tuition freezes
--  Cumhurbaşkanı Erdoğan MHP lideri Bahçeli ve İYİ Parti lideri Akşener'le görüştü
--  What do Business Executives and Talented Artists have in common? | HUAWEI MatePad Pro 13.2”
--  NBA Paris Game 2024, deux gagnants et TrashTalk : histoire d’une journée ultime
--  Day arrives for Frederik and Mary to become King and Queen
--  الآلاف يخرجون في أستراليا للتظاهر دعما لغزة وللمطالبة بوقف الحرب (شاهد)
--  Θεσσαλονίκη: Συλλαλητήριο διαμαρτυρίας και πορεία πραγματοποίησαν μέλη της ΕΔΥΕΘ
--  A Bayern München másodedzője szerint újravirágzását éli a magyar futball
--  السيسي يتابع مشروعات التعليم العالي.. ويصدر توجيهًا بشأن القاهرة التاريخية
--  وزير التنمية المحلية ومحافظ الشرقية يتفقدان طريق "أبو حاكم - بني صالح" بالزقازيق
--  وزير الصحة يوجه بمراجعة نسب الإشغال بقسم القساطر القلبية في مستشفى كفر الشيخ العام
--  محافظ القاهرة يتفقد تطوير منطقة الألف مسكن وإزالة تعارضات محور الخصوص
--  "ไล่ ชิง-เต๋อ" คว้าชัยว่าที่ประธานาธิบดีไต้หวัน
--  "تشريعية البرلمان" توافق تعديل قانون الإجراءات الجنائية لتفعيل استئناف الجنايات
--  Ortsvorsteher Bernhard Feifel aus Weiler tritt nicht mehr an
--  Bolu’nun doğal güzelliklerine ziyaretçi akını!
--  KURTIJEVA POLICIJA PRAVI HAOS PO KOSOVSKOJ MITROVICI: Hapšenje završilo pucnjavom, projektile "zaustavili" zidovi i fasade (VIDEO)
--  لماذا تراجعت بيتكوين بأكثر من 7% رغم تداول صناديقها بالبورصة الأمريكية؟
--  "حرقوا لسانه".. تفاصيل الاعتداء على طفل سوري بغازي عنتاب في تركيا
--  بعد حادث طائرة ألاسكا.. الوكالة الأمريكية تستمر في منع تحليق طائرات بوينج 737
--  علامة تظهر على القدمين تكشف الإصابة بارتفاع الكوليسترول في الدم
--  "บุญสิงห์" เปิดเสวนาสหกรณ์ออมทรัพย์ฯ หวังปรับปรุงเพื่อเดินหน้าเข้มแข็ง
--  "مش نزلة برد".. متحورات كورونا الجديدة تسبب هذه الأعراض الخطيرة
--  أصالة وصابر الرباعي يهنئان إليسا على اختيارها أكثر النساء تأثيرا في الشرق الأوسط
--  Watch: આ ખેલાડીએ પકડ્યો ક્રિકેટ ઈતિહાસનો સૌથી શાનદાર કેસ, બેટ્સમેનનો તો વિશ્વાસ જ ન આવ્યો, જુઓ વીડિયો
+-  Избранный глава Тайваня Лай Циндэ заявил, что настроен на диалог с Пекином
+-  ارتفاع عدد الشهداء في غزة إلى 23843
+-  روسيا توجه تحذيرا شديد اللهجة لبريطانيا
+-  Ex-model Divya Pahuja’s body who was shot dead in a hotel recovered from Canal in Haryana
+-  Llegan a la CSJ los extraditables capturados en Honduras por trasiego de fentanilo
+-  Марица с безпроблемно 2:0 срещу Саяна в Хасково
+-  В Турция обявяват утре избора си за кмет на Анкара
+-  Infoveranstaltung: Gladbacher Bürger sind besorgt wegen Ausbau des Schulzentrums Im Kleefeld
+-  Chloe Goodman looks downcast after sister Lauryn fumes over Kyle Walker’s sorry note to wife amid cheating claims
+-  Edo revamps learning, distributes educational tablets to secondary schools
+-  تنبيه عاجل من سفارة أمريكا بالرياض وقنصلياتها في جدة والظهران
+-  폭행당한 할아버지 경비원, 학생 용서…“처벌 원치않아”
+-  Altstadtsanierung: Bürger in Königswinter klagen erfolgreich gegen Ausgleichsbeiträge
+-  En interdisant le transit par les ports Marocains, l’Algérie commet une décision absurde, douteuse et lourde de conséquences pour son économie !
+-  Патриархия Грузии предупредила о возможных беспорядках в Тбилиси
+-  `Everyone Wants Mallikarjun Kharge To Lead INDIA Bloc`: NCP Supremo Sharad Pawar After Consensus On Congress Chief`s Name
+-  Cyprus ‘vigilant’ over Yemen bombing retaliation fears
+-  कल्याण लोकसभा क्षेत्र में ठाकरे के आने से पहले ही CM शिंदे का तंज, देर आये, दुरुस्त आये...
+-  Everyone spots the first animal hidden in the wild – but if you can spot the other four you have the eyes of a hawk
+-  Negyven rakétát és drónt lőttek ki az oroszok Ukrajnára, de húsz célt tévesztett, nyolcat pedig az ukránok leszedtek
+-  Bekerültek az árfigyelőbe a laktóz-, tejfehérje- és gluténmentes termékek
+-  Tijana Bošković izaziva "potres" u Turskoj?
+-  How do the Chiefs defend Tyreek Hill and the Dolphins' speed?
+-  Patrick Mahomes isn't afraid of the grind
+-  Aquarius 14 January 2024 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  Челси с минимален аванс срещу Фулъм на почивката
+-  Mia Goth er saksøkt for angivelig å ha sparket en statist i hodet under innspillingen av MaXXXine.
+-  Zbog krize na Crvenom moru cijene bi mogle odletjeti u nebo: ‘Spremite se za ono što slijedi do 10. veljače...‘
+-  Mantan Pelatih PSM yang Sempat Bantu Finansial Tim, Kembali Tunjukkan Keramahannya di Ajang Piala Asia 2023
+-  ANC 112: A full Mbombela stadium a sign of ANC still being loved, says Mantashe
+-  Четири досъдебни производства са заведени във видинската прокуратура за незаконен трафик на мигранти
+-  Joburg EMS searching for woman swept away by flash floods in Sunninghill
+-  Evaluado plan de producción en complejo industrial de CVG
+-  LDII dan Polda Jatim Komitmen Wujudkan Pemilu Damai
+-  Rund 1800 Narren feiern die 13. Auflage des Nachtumzugs in Kösingen
+-  Rund 1800 Narren feiern die 13. Auflage des Nachtumzugs in Kösingen
+-  Zaštitni modni znak Keri Bredšo se prodaje na aukciji FOTO
+-  Марица удари Саяна в контрола
+-  Aitor Esteban: “El PNV ha cumplido su palabra con Usansolo”
+-  Nei, det var ikke bare en vits. Flybilletten for et vitne i retten kostet 122.000 kroner.
+-  Fernando Pozo se alista para nuevos en tiro olímpico
+-  Bertuğ Yıldırım'dan transfer itirafı: Teklif aldığı kulübü açıkladı!
+-  Атлетик тръгна с победа
+-  Bebé diagnosticado com sarampo. Autoridades admitem que podem surgir mais casos
+-  전북특별자치도 출범 기념 한국화가 홍성모 화백 기획초대전
+-  Phl in talks with NZ firms to absorb Filipino workers from ELE group
+-  Après un rapprochement entre Moscou et Pyongyang, des touristes russes attendus en Corée du Nord
+-  [오피셜] ‘첼시와 독일에서 완전히 망했다’... 다트로 포파나, 번리로 임대 이적
+-  Police recover €19.3 million in stolen Apple devices during Woerden raid
+-  Proradio sistem Inteza Banke: "Uklonjene sve smetnje, plaćanje neometano"
