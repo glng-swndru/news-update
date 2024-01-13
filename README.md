@@ -1,51 +1,51 @@
 # Latest News
--  강민경, 호주 밝히는 압도적 청순 비주얼
--  마마무 솔라, '솔라감성' 콘셉트 포토 공개…더욱 깊어진 감성
--  اميركا تنفذ ضربة جديدة على اليمن
--  انسحاب النجوم يهدد دراما رمضان 2024
--  10 قطع ملابس تشكل خطراً على صحتك
--  Gabriel Attal à Matignon. Yonathan Arfi déplore « une vague de commentaires homophobes et antisémites ».
--  मैदान पर अपने खास दोस्त को स्लेजिंग करते डेविड वॉर्नर, वीडियो वायरल
--  Северный морской музей в Архангельске посетил поэт и композитор Юлий Ким
--  Insecurity: Tinubu mulls marine, solid mineral police
--  [방탄소년단 정국, 英 오피셜 싱글 차트 73위…굳건한 인기
--  [경찰, 황의조 비공개 소환…‘불법촬영 혐의’ 부인
--  [“달걀 깼더니 노른자 4개 나왔다” 로또 맞은 ‘달걀’…과연 먹어도 되나
--  अफगानिस्तान के खिलाड़ी ने फ्लाइट में रिंकू सिंह से की मजाक, वीडियो वायरल
--  Biển số xe ngũ quý 9 quý lập kỷ lục với giá hơn 75 tỉ đồng
--  لحظة بلحظة.. صنعاء تتعرض للقصف مجددا.. تطورات الهجوم الأمريكي البريطاني على مواقع في اليمن
--  MP news: भाजपा ने चार जिलों अध्यक्षों की नियुक्ति की, मऊगंज का अध्यक्ष राजेंद्र मिश्रा को बनाया
--  ابنة الشهيد في حرس بلدية بيروت تكشف: هكذا قتلوا والدي!
--  ก.ล.ต. สั่งซิปเม็กซ์แก้ไขเงินทุนและโครงสร้างการจัดการแล้วเสร็จภายในปี 15
--  दोहरा शतक लगाने के बाद भी चेतेश्वर पुजारा को क्यों नजरअंदाज किया गया?
--  Homicide squad probes death of man in Doncaster
--  Homicide squad probes death of man in Doncaster
--  [CES현장] 최고혁신상 2개 배출 '경북도·포스코' 공동관 "글로벌 시장으로"
--  НАСА представило экспериментальный сверхзвуковой самолет X-59
--  L-Istati Uniti u r-Renju Unit iwissu li l-attakki fil-Jemen se jiħraxu
--  Rajasthan News: पार्टी की बैठकों से नदारद वसुंधरा, नाराजगी है या फिर रिटायरमेंट के बारे में सोच रही हैं?
--  Fowler woman raising money to send rescued dog to forever home in Montana
--  Στο Κίεβο ο νέος υπουργός Εξωτερικών της Γαλλίας, Στεφάν Σεζουρνέ
--  Our Big TRAVEL 2024 Guide
--  Сяо Хим Фа признался, что сделал сальто для развития фигурного катания
--  कोरोना से भी ज्यादा बीमार बनाता है स्वाइन फ्लू का वायरस, जानें बचने के उपाय
--  Kırıkkale'de 3 farklı araç zincirleme çarpıştı: 4 yaralı!
--  SRBI MASOVNO KORISTE REČ "MAŠALA", A POJMA NEMAJU ŠTA ZNAČI: Nije baš u duhu pravoslavlja, a ovo je razlog koji će vas ZAPANJITI
--  Canda Masinton Sebut Prabowo Bakal Coblos Ganjar: Banyak Setujunya di Debat
--  Supreme Court Judgement: Close ranks with govt to develop Ebonyi – APC to opposition
--  “Lift”: Kevin Hart y Úrsula Corberó en una enésima mezcla de los ingredientes de siempre
--  11-year-old dies flying kite of electrocution in Hyderabad
--  Şehit ateşi Ordu'ya düştü: Şehadete eren Murat Atar'ın acı haberi annesine verildi
--  Bakan Yerlikaya duyurdu: Sosyal medya provokasyonuna geçit yok
--  «СТРАНА.ua» пишет о взрывах в Чернигове
--  جوني القرم يتعاقد مع "إريكسون": شبهات بالجملة على طاولة مجلس الشورى
--  Le club fermé des licornes israéliennes à New York. Une short list…
--  सावधान रहें कि कहीं लपेटने या काटने में आपका उत्तरायण खराब न हो जाए
--  ألد أعداء روسيا بدأ يلعب مع أوكرانيا ضد أميركا
--  USA-Des milliers de foyers privés d'électricité après le passage d'une tempête hivernale
--  Gaji Tim Cook Turun Puluhan Juta Dollar di Tahun 2023
--  Blizzard Threatens Iowa Caucus and US Under Weather Alerts: US News Update
--  15 Temmuz Şehitler Köprüsü'nde 10 araç birbirine girdi
--  Polri: Pelaku Ancam Tembak Anies Tak Terfiliasi dengan Paslon Lain
--  Citigroup To Cut 20,000 Jobs In The Next Two Years Following Disappointing Q4 Performance
--  India's Industrial Output Slows To 2.4% YoY In November, Marking Eight-Month Low
+-  उद्धव ठाकरेंची तोफ श्रीकांत शिंदेंच्या मतदारसंघात धडकणार, झंझावाती दौऱ्यात कार्यकर्त्यांशी साधणार संवाद
+-  IVAN MARINKOVIĆ NIJE DOBAR OTAC Jelena priznala pravu istinu o odnosu sa malim Željkom, pa se umešala Miljana
+-  32 ilde terör örgütüne operasyon: 113 şüpheli gözaltında
+-  Antibiyotik işe yaramıyor! Virüs kokteyline maske uyarısı
+-  Na Slovensku rapídne rastie ponuka benzínových aj dieselových jazdených áut, stúpa záujem aj o elektromobily
+-  Warriors rally to beat Bulls; Spurs rout Hornets
+-  'นพดล'แจงระเบียบราชทัณฑ์เป็นมาตรฐานสากล ไม่เลือกปฏิบัติ มุ่งหลักนิติธรรม สมานฉันท์
+-  टोखामा चाकु दिवस मनाइँदै
+-  MLB 샌프란시스코, 강속구 불펜 힉스 영입…이정후와 한솥밥
+-  친낙계 행사서 '이재명 목에 칼빵' 막말…이낙연 직접 사과
+-  Luftqualität heute in Ulm: Luftverschmutzung angestiegen! Diese Qualität hat die Luft in Ulm aktuell
+-  Omosessualità e matrimonio, visioni a confronto: intervista doppia De Martino - Venturi I VIDEO
+-  Ирландския премиер беше на еднодневно официално посещение в Северна Македония
+-  Recruitment: Police conduct screening for intending constables in Enugu
+-  NK refugee NGO expresses appreciation for South Korean staff
+-  LG Electronics opens 1st overseas EV charger plant in US
+-  China's Weibo blocks trending Taiwan election hashtag
+-  Thực hiện thử thách trên mạng, nam sinh lớp 12 nhét đoạn dây điện 26cm vào "của quý"
+-  Азербайджанская армия уничтожила цели "противника" с места и в движении
+-  आप भी करने वाले हैं अरेंज मैरिज? लाइफ पार्टनर चुनते समय ना करें ये गलतियां
+-  Amerikaanse luchtvaartautoriteit wil herinspectie 40 Boeings
+-  Лудогорец не го иска! Трансферна война за заместника на Десподов в Разград
+-  เปิดสูตรคำนวณ รีไฟแนนซ์บ้านอย่างไรให้คุ้มค่า ช่วงดอกเบี้ยแพง
+-  Pellegrini mohol byť kandidátom koalície, odmietol to a riskuje prehru, tvrdí Danko
+-  [“푸바오, 긴장해라” 제주 반달곰 오늘 첫 공개…귤·사과·배 좋아해
+-  Horoskopi 13 janar 2024: Çfarë kanë parashikuar yjet për secilën shenjë
+-  Ehdotus sairaaloiden karsimisesta kerää kritiikkiä – Päivi Räsänen sättii selvityksen tekijöitä: ”Täydellinen romutus”
+-  MOĆNI TRIPL-DABL Jokić razbio litvanski zid, &quot;tukao&quot; se sa Valačijunasom, a onda ga stavio na mesto (VIDEO)
+-  HUTI IMAJU RAZORAN ARSENAL: Deluju kao da su naoružani samo lakim oružjem ali to ne može biti dalje od stvarnosti (VIDEO)
+-  Caricature : invalidation, la crainte des candidats députés
+-  Παλιές άσχημες εποχές θύμισε το δημοτικό συμβούλιο
+-  '이재, 곧 죽습니다' 최우진, 데뷔작 출연 소감…"겸손하고 따뜻한 배우 될 것"
+-  Report: North Korea halts radio broadcasts, curbs exchanges with South
+-  غارات أمريكية بريطانية تستهدف للمرة الثانية أهدافا للحوثيين في اليمن
+-  Motorway Fog Update: M-1, M-3, M-5 among several motorways closed amid dense fog
+-  Explainer | Xi Jinping aast op Taiwan: zo bemoeit China zich met de verkiezingen
+-  Uttrup Ludwig triumferer og tager førertrøje i Australien
+-  مسؤول أممي: مشاهد من "الرعب المطلق" في شمال غزة.. الجثث في الشوارع والناس يتضورون جوعا
+-  Uttrup Ludwig triumferer og tager førertrøje i Australien
+-  Saturday's League One predictions including Portsmouth vs. Leyton Orient
+-  Siedzisz przy dziurze w samolocie, co się dzieje potem? Historia i nauka pokazują, co się z tobą stanie
+-  Təbrizdə Ermənistan konsulluğunun açılması gərginlik yaradacaq
+-  OVAKO BI PROŠAO ĆUTA U ŠPANIJI Lažni ekolozi blokirali ulice, sada su u zatvoru, izjednačili ih sa narko dilerima
+-  КХЛ: «Амур» — «Авангард», «Динамо» Москва — «Торпедо». Расписание матчей 13 января
+-  Top 10 kỷ lục đáng nể trong lịch sử Asian Cup
+-  NTV's Dr King'ori announces massive career move
+-  AFCON 2023: ‘No Gree For Anybody’, Sanwo-Olu Charges Super Eagles To Win Trophy
+-  Xavi thực sự đã tìm ra công thức chiến thắng cho Barca?
+-  Luton Town muốn bổ sung thêm 2 hậu vệ trong tháng 1
+-  Los Naranjeros ya están dos juegos por cero arriba de los Águilas
