@@ -1,11 +1,51 @@
 # Latest News
--  State in alleged insurance killer's case accused of sensationalising facts
--  Israel: Risk of harm to Israelis if ICJ would order a stop in Gaza military ops
--  Tutu statue with Palestinian-African scarf to be on display until Gaza ceasefire
--  WATCH LIVE: ANC's 112th anniversary celebrations in Mbombela
--  PKK inleri böyle vuruldu: 29 hedefin imha edildiği operasyondan yeni görüntüler
--  Ticaret Bakanlığı üst sınırdan ceza kesmişti: Al-sat yapan fenomene Vergi Dairesi'nden 700 bin lira ceza
--  Afrika Uluslar Kupası heyecanı başlıyor: İlk maçta Fildişi Sahili ve Gine Bissau karşı karşıya geliyor
--  Taiwanese brush off China threats with ‘freely expressed’ votes
--  FOTO / Prosvjed roditelja u Vukovaru: “Huligani nisu istukli samo djecu, nego i nas roditelje, istukli su Vukovar”
--  Azərbaycan Ordusunun kadr işləri üzrə heyəti ilə təlim-metodiki toplanış keçirilib
+-  Đồng Nai: Phê duyệt Khu đô thị gần phà Cát Lái
+-  Farmaceutski div prijavio nestašicu čak četiri poznata lijeka u Hrvatskoj: dva su razloga, a imaju savjet i za pacijente
+-  3 thời điểm bố mẹ nào cũng cần nâng đỡ, ủng hộ con cái, nếu mắc sai lầm tương lai con dễ tụt dốc
+-  Ban thờ Thần Tài hút hơn 10.000 like, dân mạng xuýt xoa: Khéo bày biện thế này, bảo đảm gia chủ "đắc sai tài lộc"
+-  Bạn có "nợ kỳ nghỉ" không? Đừng để sự so sánh và bốc đồng biến những chuyến du lịch thành sự căng thẳng kéo dài
+-  Quá gay cấn: Chi Pu chính thức vượt mặt Team Hỏa Lò, dẫn đầu "cuộc chiến" vote tại WeChoice Awards 2023
+-  Giá nhà ở vượt quá khả năng tài chính của đại đa số người dân
+-  ЕУ со суфицит во трговската размена од 85,4 милијарди евра во третиот лански квартал
+-  Mexicanos harán historia con Claudia Sheinbaum, dice Velasco
+-  Obustavljen saobraćaj kod mjesta Kosova na MP Maglaj-Doboj
+-  Tausende Fans machen sich auf nach Wengen - 20 Minuten ist dabei
+-  Aron è morto, il pitbull bruciato vivo dal suo padrone: ennesima sconfitta della società
+-  SKANDAL U NBA LIGI: O'Nil žestoko isprozivao Jusufa Nurkića, ovaj mu nije ostao dužan (VIDEO)
+-  Новый глава МИД Франции в Киеве
+-  Counting of votes starts in crucial Taiwan presidential polls closely watched by China
+-  Is Ali Zafar Planning to Sing PSL 9 Anthem?
+-  Лю Хуацинь: Мустаҳкам савдо-иқтисодий алоқалар Ўзбекистон-Хитой муносабатларининг муваффақиятли ривожланиши гарови
+-  “Мурожаатим асоссиз рад этилди” – фуқаро мурожаати Омбудсман назоратига олинди
+-  වෙඩි තබා ගත් SIගේ මරණය ගැන සැකයක් ඇති බව පවුලේ ඥාතිහු පවසති
+-  বছরের শুরুতেই কয়েক শ কর্মী ছাঁটাই করল গুগল
+-  Спадът в имотния сектор в Китай може да продължи още две години
+-  “Xeħet anzjan fl-art biex ħadlu l-kartiera; Arrestat wara 4 serqiet fi ftit ħin
+-  Lingeriefoto valt verkeerd: Bredase Melina moet na vier maanden weg als commercieel manager bij MVV
+-  Taşerona kadro çıkacak mı?
+-  Berliner Junge-Union-Chef teilte offenbar Merkel-Hitler-Fotomontage
+-  Неудачи с головой накроют эти знаки Зодиака: кому будет несладко уже на днях
+-  L-topparnas kärnkraftskänga till S: ”Sluta vela”
+-  Sir Alex Ferguson only told Jose Mourinho to sign one player for Man United but he ignored him because he thought he was a 'bad trainer'
+-  Kina: U nesreći u rudniku 10 poginulih, šestoro ljudi nestalo
+-  Hain terör örgütüne tepki! Sosyal medyadan lanet yağdı...
+-  DEP Parti ile CHP arasında danışlı dövüş: 7 ile 'çöp aday' mı geliyor!
+-  Toke Makinwa reveals favourite body part
+-  ঘরের ছেলেদের ঘরে ফিরিয়ে নেওয়া হোক
+-  دوسرا ٹی20؛ کیویز کو سینٹنر کے بعد ایک اور دھچکا لگ گیا
+-  Ivory Coast Battle Guinea-Bissau As AFCON 2023 Kicks Off Today
+-  Timnas AMIN Apresiasi Polri Tangkap Pengancam Tembak Anies: Hukum Ditegakkan
+-  Realme 12 Pro+: hands on βίντεο μας αποκαλύπτει τη συσκευή
+-  Shanna Moakler’s daughter Alabama reacts to podcast claims
+-  Advanced Renamer 3.93 Pre-release
+-  কলম্বিয়ার হাইওয়েতে ভূমিধসে নিহত ১৮, মাটির নিচে আটকা বহু
+-  Bride and sister leave pensioner scarred for life after wedding dress 'tussle'
+-  Sanat dünyasından mesaj yağdı: Kahrolsun siyonist emperyalistlerin kuklaları
+-  Смагин считает, что Непомнящему нужно вернуть радость от игры в шахматы
+-  The One Show is thrown into chaos as Bradley Walsh BREAKS the sofa during a hilarious on-air blunder
+-  سونے کی قیمت میں 950 روپے فی تولہ اضافہ
+-  Os Houthis vêm escalar a tensão na guerra Israel-Hamas
+-  China coal mine accident kills at least 10, prompts safety checks
+-  بليحق: المستشار صالح قرر تخصيص 500 مليون دينار لإعادة الإعمار في الغرب
+-  تصل سرعتها إلى 25 عقدة.. تحذير من رياح نشطة على الساحل من الخمس إلى بنغازي
+-  Lagos Guber: ‘I’m Disappointed But We’ll Let Sanwo-Olu Govern With His Vision’ – Jandor Reacts To Supreme Court Ruling
