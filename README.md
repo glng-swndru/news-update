@@ -1,11 +1,51 @@
 # Latest News
--  TKN Prabowo-Gibran Sebut Pernyataan Kapolri soal Estafet Kepemimpinan Normatif
--  Cik bagāti var būt slavenākie mājas mīluļi? Vairums pašmāju miljonāru par to var tikai sapņot
--  Bisnis Startup Edutech Semakin Menantang usai Pandemi
--  '밤에 피는 꽃' 이종원, 갓벽남 박수호로 완벽 변신…화려한 액션 연기는 덤
--  박군, '생SHOW' 스페셜 게스트 낙점…♥한영 든든한 외조
--  Día Internacional de la Lucha Contra la Depresión: por qué se celebra cada 13 de enero
--  "도합 경력 150년"…'신인' 메탈밴드 체인지 데뷔 무대
--  노인이 쓰러질 때까지 무차별 폭행한 10대…공분 확산
--  [속보] 황의조, 10시간 비공개 경찰 조사…"불법촬영 아니다"
--  राष्ट्रपति द्रौपदी मुर्मू को अयोध्या में राम मंदिर के प्राण प्रतिष्ठा समारोह के लिए निमंत्रण दिया गया
+-  [트렌D] ‘2023 AFC 카타르 아시안컵’ 한국 E조 예선전, 100배로 재밌게 즐기는 법
+-  [CES 2024] 처음부터 끝까지 부각된 AI…반도체 전쟁 서막 엿보인 축제
+-  Fuerte choque en Tijuana deja ocho lesionados, dos de gravedad
+-  민주노총 제주본부 "한화건설, 노동자 생명안전 무시" 강력 처벌 촉구
+-  微軟收盤價超越蘋果，睽違 2 年重新成為全球市值最高公司
+-  "치킨집 창업에 몰리는 이유"…창업비용 1억에 회수기간 2.6년
+-  Plans for new memorial building underway for Fargo National Cemetery
+-  2023's record heat partly driven by 'mystery' process: NASA scientist
+-  Women's health on show, a little, at CES
+-  Green tech pumps water from air at CES
+-  Scientists discover dopamine at the heart of desire
+-  El Nino could make 2024 hotter than record 2023
+-  'Intense' US blizzard blows Iowa caucus campaigning off course
+-  My easy method for hanging sweaters won’t stretch them out or leave marks – people say I changed their lives
+-  EKEDC Seeks Tariff Reset To Avert Energy Sector Illiquidity
+-  蘋果沒參展，但某種程度上贏得了 CES 2024 頭戴式顯示器競賽
+-  Winfree’s WWE Smackdown Review 1.12.24
+-  LG Wins 2023 Most Electronics Supporting Partner In Gaming
+-  Akron takes down Buffalo 76-59
+-  Hastings hits3-pointer at the buzzer as Robert Morris beats Purdue Fort Wayne 91-88 in OT
+-  해외 도박사들 "中, 타지키스탄에 유리하지만 필승 보장은 못해"[아시안컵]
+-  Kalen DeBoer, Washington football coach, to replace legendary Nick Saban at Alabama
+-  Con unidad, la 4T avanza hacia un mejor futuro: López Casarín
+-  Mauritius Grants Special Break To Officials for Ram Mandir Inauguration Celebrations
+-  «مكافحة التستر»: تصحيح بيانات أكثر من 450 ألف سجل تجاري 2023
+-  Fanáticos de Bulls abuchean a ex gerente general fallecido, durante ceremonia
+-  El frío provoca cancelación de actos de campaña en Iowa antes de los caucus más fríos de la historia
+-  Gophers top Robert Morris as Nathan Airey wins his regular-season debut
+-  Tăng 70.000 học sinh trong năm tới, Hà Nội giải quyết bài toán quá tải thế nào?
+-  Quán bún riêu cua Hà Nội nhất định phải thử
+-  Tin nhắn lúc tối muộn của cô giáo khiến phụ huynh cười chảy nước mắt, học sinh thì run cầm cập: Tết sắp đến rồi, hoan hỉ người lớn ơi!
+-  Trời trở nồm, nguyên tắc "3 KHÔNG" giúp nhà hạn chế đổ mồ hôi: Điều cuối cùng rất nhiều người hiểu nhầm
+-  Xuất hiện ông chồng khiến nhiều chị em "xin vía", thêm mẹ chồng "bá đạo" Tết năm đầu đã làm con dâu thích mê
+-  'Cháy' vé gần 2.300 chuyến bay Tết
+-  Giá vàng vọt tăng mạnh ngày cuối tuần
+-  Hàng loạt kịch bản lừa đảo mới nở rộ trên không gian mạng dịp cuối năm: Nhận biết để bảo vệ mình
+-  Lịch thi đấu và trực tiếp Asian Cup 2023 hôm nay 13/1
+-  Sao Marvel thừa nhận lo lắng khi trở lại làm việc sau tai nạn thảm khốc
+-  Bom tấn cổ trang chưa lên sóng đã bị chê thậm tệ, dàn nam thần bị dìm nhan sắc vì trang điểm quá lòe loẹt
+-  [동행] ‘붕어 할아버지의 작은 꿈’
+-  Ministerio de Salud demandó a varias EPS: estas son las razones
+-  LEDARE: Vad ser våra unga på Tiktok?
+-  Persiapan PON XXI/2024, Ratusan Atlet DIY Masuk Puslatda
+-  LEDARE: Vad ser våra unga på Tiktok?
+-  James’ 25 help North Florida knock off Jacksonville 82-74
+-  "คิดส์เดย์-สนุกสดใส" วันเด็กแห่งชาติ 2567 ทั่วไทยคึกคัก
+-  Китайская социальная сеть Weibo заблокировала хэштэг «выборы на Тайване»
+-  Premier League: Η Λούτον πήρε το βαθμό στις καθυστερήσεις, 1-1 με τη Μπερνλί στο «Turf Moor» - Δείτε τα γκολ
+-  Dangote Refinery begins production
+-  Khám phá vận may ngày 13/1: Tý tìm yên bình, Ngọ hứng trọn niềm vui
