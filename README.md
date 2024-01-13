@@ -1,51 +1,51 @@
 # Latest News
--  Избранный глава Тайваня Лай Циндэ заявил, что настроен на диалог с Пекином
--  ارتفاع عدد الشهداء في غزة إلى 23843
--  روسيا توجه تحذيرا شديد اللهجة لبريطانيا
--  Ex-model Divya Pahuja’s body who was shot dead in a hotel recovered from Canal in Haryana
--  Llegan a la CSJ los extraditables capturados en Honduras por trasiego de fentanilo
--  Марица с безпроблемно 2:0 срещу Саяна в Хасково
--  В Турция обявяват утре избора си за кмет на Анкара
--  Infoveranstaltung: Gladbacher Bürger sind besorgt wegen Ausbau des Schulzentrums Im Kleefeld
--  Chloe Goodman looks downcast after sister Lauryn fumes over Kyle Walker’s sorry note to wife amid cheating claims
--  Edo revamps learning, distributes educational tablets to secondary schools
--  تنبيه عاجل من سفارة أمريكا بالرياض وقنصلياتها في جدة والظهران
--  폭행당한 할아버지 경비원, 학생 용서…“처벌 원치않아”
--  Altstadtsanierung: Bürger in Königswinter klagen erfolgreich gegen Ausgleichsbeiträge
--  En interdisant le transit par les ports Marocains, l’Algérie commet une décision absurde, douteuse et lourde de conséquences pour son économie !
--  Патриархия Грузии предупредила о возможных беспорядках в Тбилиси
--  `Everyone Wants Mallikarjun Kharge To Lead INDIA Bloc`: NCP Supremo Sharad Pawar After Consensus On Congress Chief`s Name
--  Cyprus ‘vigilant’ over Yemen bombing retaliation fears
--  कल्याण लोकसभा क्षेत्र में ठाकरे के आने से पहले ही CM शिंदे का तंज, देर आये, दुरुस्त आये...
--  Everyone spots the first animal hidden in the wild – but if you can spot the other four you have the eyes of a hawk
--  Negyven rakétát és drónt lőttek ki az oroszok Ukrajnára, de húsz célt tévesztett, nyolcat pedig az ukránok leszedtek
--  Bekerültek az árfigyelőbe a laktóz-, tejfehérje- és gluténmentes termékek
--  Tijana Bošković izaziva "potres" u Turskoj?
--  How do the Chiefs defend Tyreek Hill and the Dolphins' speed?
--  Patrick Mahomes isn't afraid of the grind
--  Aquarius 14 January 2024 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  Челси с минимален аванс срещу Фулъм на почивката
--  Mia Goth er saksøkt for angivelig å ha sparket en statist i hodet under innspillingen av MaXXXine.
--  Zbog krize na Crvenom moru cijene bi mogle odletjeti u nebo: ‘Spremite se za ono što slijedi do 10. veljače...‘
--  Mantan Pelatih PSM yang Sempat Bantu Finansial Tim, Kembali Tunjukkan Keramahannya di Ajang Piala Asia 2023
--  ANC 112: A full Mbombela stadium a sign of ANC still being loved, says Mantashe
--  Четири досъдебни производства са заведени във видинската прокуратура за незаконен трафик на мигранти
--  Joburg EMS searching for woman swept away by flash floods in Sunninghill
--  Evaluado plan de producción en complejo industrial de CVG
--  LDII dan Polda Jatim Komitmen Wujudkan Pemilu Damai
--  Rund 1800 Narren feiern die 13. Auflage des Nachtumzugs in Kösingen
--  Rund 1800 Narren feiern die 13. Auflage des Nachtumzugs in Kösingen
--  Zaštitni modni znak Keri Bredšo se prodaje na aukciji FOTO
--  Марица удари Саяна в контрола
--  Aitor Esteban: “El PNV ha cumplido su palabra con Usansolo”
--  Nei, det var ikke bare en vits. Flybilletten for et vitne i retten kostet 122.000 kroner.
--  Fernando Pozo se alista para nuevos en tiro olímpico
--  Bertuğ Yıldırım'dan transfer itirafı: Teklif aldığı kulübü açıkladı!
--  Атлетик тръгна с победа
--  Bebé diagnosticado com sarampo. Autoridades admitem que podem surgir mais casos
--  전북특별자치도 출범 기념 한국화가 홍성모 화백 기획초대전
--  Phl in talks with NZ firms to absorb Filipino workers from ELE group
--  Après un rapprochement entre Moscou et Pyongyang, des touristes russes attendus en Corée du Nord
--  [오피셜] ‘첼시와 독일에서 완전히 망했다’... 다트로 포파나, 번리로 임대 이적
--  Police recover €19.3 million in stolen Apple devices during Woerden raid
--  Proradio sistem Inteza Banke: "Uklonjene sve smetnje, plaćanje neometano"
+-  CIMB Niaga akan Terbitkan Saham Baru 10 Juta Lembar Saham
+-  “스트라이크·볼 판정 엉망…심판들 영원히 성장 못해” 김성근 감독, ABS 도입 ‘쓴소리’
+-  마침내 '드림팀' 바르셀로나 간다...이적료 '1억 파운드' 미만!
+-  صافرة مصرية لإدارة المباراة الافتتاحية لكأس إفريقيا
+-  3177 طناً من الخضار والفواكه والورقيات ترد للسوق المركزي اليوم
+-  محافظ جرش: ضبط 3 آبار زراعية مخالفة
+-  هل يصبح العسل ساما بعد التسخين؟
+-  ‘Terim’in haberi yoktu!’ Seçil Erzan’ın cevapları dikkat çekti… Mahkemede Buse Terim’den sert çıkış
+-  Fenerbahçe'nin maç kafilesi açıklandı! Bonucci sürprizi
+-  Hatayspor'da yenilen son dakika golü sonrası sinirler gerildi! ''Artık kendime zarar vermeye başlayacağım''
+-  Tecrübeli teknik adam İrfan Buz'dan gelen haberle herkes şaşkına döndü! Ünlü hocanın antrenmanda aşil tendonu koptu
+-  Авион со 59 патници полетал, па се вратил на аеродромот оти пукнал прозорецот во пилотската кабина
+-  Wegen Hochwassergefahr - Weihnachtszirkus soll auf Galopp-Rennbahn
+-  NIA का PFI पर बड़ा एक्शन! 2 आरोपियों के खिलाफ दायर की चार्जशीट
+-  Eight hurt in Queens house fire overnight, FDNY says
+-  "美트럼프, 재집권시 법인세율 추가 인하 검토…측근에 깊은 관심 언급"
+-  Socceroos squeeze past India to get Asian Cup off to winning start
+-  رئيس الوزراء يتفقد مشروعات للإنتاج الزراعي والحيواني بمحافظتي الإسكندرية والبحيرة
+-  Спартак започна контролите с победа
+-  VIDEO: Primeros instantes del enorme incendio que arrasó un almacén en San Petersburgo
+-  Israel presses on with Gaza offensive approaching 100 days of war
+-  ﻿مانشيني يضم 3 لاعبين لقائمة المنتخب السعودي في كأس آسيا 2023
+-  Bikin Geleng Kepala, Fortuner Menerobos Banjir Hingga Mogok di Dayeuhkolot
+-  Μήνυμα Κασσελάκη σε Πολάκη: «Δεν θα ανεχτώ διαφοροποιήσεις στην ψήφο για τα ομόφυλα ζευγάρια»
+-  Централизованного повышения цен на обучение в госвузах не планируется
+-  Depois do duplo ataque, EUA volta à carga contra Houthis
+-  Výbuch plynu v Kamenném Újezdu připravil rodinu o dům, pochybil řemeslník
+-  Nəhəng qədim şəhər tapıldı
+-  Cifra de niños palestinos asesinados por genocidio israelí supera los diez mil
+-  दक्षिण कोरिया में इमरजेंसी जैसे हालात, बड़े हमले की फिराक में किम जोंग
+-  İzmir'de naylon fatura operasyonu: 5 gözaltı
+-  Spektakulärer Antrieb - Airbus will „Schornstein-Segler“ bauen
+-  Museveni cautions against Divisionism in the EAC
+-  पोंगल से पहले सब्जी, गन्ने की कीमतों में तेजी देखी गई
+-  U kundërshtua nga Prishtina zyrtare! Komisioni Evropian insiston që pakicat e Kosovës me pasaporta serbe të udhëtojnë pa viza
+-  After five days, Isabella del Milagro, the premature baby born in Nicoya, dies
+-  ECP bars ROs from allotting ‘alternative symbol’ to candidates
+-  Las dos caras de los niños de Arabia Saudí que sueñan con el Mundial 2034: de los campos de tierra a lujosas academias
+-  تشريعية النواب توافق نهائيا على تعديلات قانون الإجراءات الجنائية.. وتوقعات بمناقشته في جلسة الاثنين
+-  Where is the original Mean Girls cast now? Exploring the whereabouts of the OG stars
+-  Verletzungs-Drama kurz vor der EM - Handball-Star: Rekordspiel „hat richtig wehgetan!“
+-  2024 Aile destek ödemesi ne zaman yatacak?
+-  उत्तराखंड से है भगवान श्रीराम का अटूट नाता-मुख्यमंत्री
+-  Không ngờ ốc móng tay có dinh dưỡng gấp 22 lần thịt lợn, ăn đơn giản cũng ngon, giá lại rất rẻ
+-  BJP politicizing consecration ceremony of Ram Temple: Srinivas Rao
+-  Governadora do RN veta projeto de lei que impedia participação de mulheres trans na categoria feminina em competições esportivas
+-  Земетресение разтърси Румъния
+-  «Пры выездзе з краiны беларусы застаюцца гэткай жа часткай нацыі, як і тыя, хто жыве на радзіме»
+-  Três pessoas morrem após caminhão frigorífico bater contra poste na ERS-405, em Passo do Sobrado
+-  BRS में पुराने नाम पर लौटने की इच्छा पनप रही
