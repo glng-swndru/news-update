@@ -1,11 +1,11 @@
 # Latest News
--  IIT Delhi students residing in hostels might need to pay extra for a non-vegetarian meal?
--  Podgorička Služba zaštite između dva komandira
--  Nem volt ötös a lottón, a jövő héten már több mint ötmilliárd forintot lehet nyerni
--  “이래서 우리가 레알한테 진거였네”... 클롭과 EPL 심판 사이의 싸움 일화 공개
--  التحقيق مع 3 متهمين بالاتجار في الألعاب النارية بالإسكندرية
--  «Με την ήττα του ΑΠΟΕΛ τα πράγματα έγιναν πιο δύσκολα»!
--  Nella Pelkosen päivä lähti käyntiin väärällä jalalla ja päättyi pettymykseen
--  Nella Pelkosen päivä lähti käyntiin väärällä jalalla ja päättyi pettymykseen
--  Ex-Sharks forward, now in Russia, garners interest from NHL teams
--  Zatrzymanie choroby Alzheimera, terapie genowe, leczenie po urazie rdzenia: pomysły polskich neurologów zmieniają medycynę
+-  הפגנת ענק מול בית הנשיא: "רוצים ממשלת הסכמות רחבה"
+-  מרגי משתף: "לא יכול שלא להיות לחוץ"
+-  אזרח ישראלי ששהה בגאורגיה מת ממחלת המלריה
+-  ואלנס ואינטל ישתפו פעולה בייצור שבבי תקשורת לרכב
+-  ברדה: "כל קבוצה עוברת משברים, החוכמה היא לדעת להתמודד"
+-  נמרוד לוי להט בניצחון סמסונספור, 9 נק', 7 אס' והפסד ליפתח זיו
+-  توضيح من منصة قوى بشأن السعودة وزيادة الرصيد
+-  شرطة الجوف تضبط مواطنًا أطلق النار في الهواء
+-  El Tenerife acusa la resaca copera y cede ante el Elche
+-  Rangers-daft Scottish darts star Willie Borland left speechless as he WINS Tour Card back
