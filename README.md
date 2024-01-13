@@ -1,11 +1,51 @@
 # Latest News
--  Công an điều tra vụ trọng tài VFF bị đánh ở nhà thi đấu Phú Thọ
--  Xem xét giao cơ quan chủ quản dự án cầu Cổ Chiên 2
--  Германия — Май заставит задуматься: летать или не летать
--  Израиль уведомил Каир о военной операции в Газе вдоль границы с Египтом - WSJ
--  Sheikh Salman Al-Hamoud leads Asian Shooting Federation meeting
--  Tim en Astrid doen mee aan Dry January: 'over alcohol wordt vaak te licht gedacht'
--  Başakşehir sahasında Alanyaspor'u 3-2 mağlup etti |ÖZET
--  Indien - Fußball ist in Kolkata Tradition
--  Un joven de 20 años fue acuchillado en una discusión
--  Beloved ‘Seinfeld’ actor Peter Crombie dies at 71
+-  [‘불후의 명곡’ 김호중, 리베란테와 협업…천상의 하모니로 완성한 레전드 무대
+-  Fenerbahçe, Gaziantep'e ulaştı
+-  Kuvvet Komutanlarından yaralanan askerlere ziyaret
+-  Sürpriz gelişme! Vedat Muriqi geri dönüyor: Tarihi bile açıkladılar
+-  Fernando Santos: Takımın sorumlusu benim
+-  "Depremden sonra cesetler torbalarla taşındı" iddiasına yalanlama
+-  İran'dan Türkiye açıklaması
+-  Çin'i kızdıracak sonuç... Tayvan'ın yeni lideri belli oldu!
+-  Erzincanspor teknik direktöründen skandal sözler! Önce öfkelendi sonra sil bunu dedi, ama canlı yayında olduğunu unuttu
+-  Beşiktaş'ın yeni hocası Fernando Santos'tan Türk halkına başsağlığı!
+-  Khánh Hòa: Truy bắt nghi phạm giết người sau 18 giờ gây án
+-  Nam sinh 12 tuổi bị chẩn đoán ung thư, bác sĩ kết luận lý do khiến nhiều phụ huynh giật mình về cách dạy con hàng ngày
+-  Zeman vede i fantasmi: "Juve, due gol in fuorigioco". Smentito dalle immagini
+-  Platinum Credit Heathens are off to the Uganda Cup Finals
+-  Regras para entrar no BPC/Loas e aposentadoria
+-  [인터뷰] "올 시즌 목표는 우승"…DRX '라스칼' 김광희-'테디' 박진성
+-  Tunisie: 2024, élection politique et pressions économiques
+-  Veja o aumento mensal do INSS por benefício
+-  "يد" العراق تتعادل مع اليابان في بطولة آسيا
+-  تظاهرة كبيرة في إيرلندا للمطالبة بوقف إطلاق النار في غزة (شاهد)
+-  Inveniukselle ja Laitiselle onnistumiset Ruhpoldingin sprintissä
+-  Seguro-desemprego para 2024: variações e novas parcelas
+-  4 Ukrainian citizens were among those captured when a helicopter went down in Somalia this week
+-  Почти полностью сгоревший склад Wildberries в Санкт-Петербурге сняли с коптера
+-  Νέος πρόεδρος Ταιβάν ο Λάι Τσινγκ-τε: «Θα είμαστε με την πλευρά της δημοκρατίας»
+-  Ανακοινώθηκαν τα τελικά αποτελέσματα των εκλογών στη Σερβία – Πώς διαμορφώνεται η Βουλή
+-  Tohtiiko siihen edes koskea? Oulun antiikki- ja keräilymessujen harvinaisuus on yli 18 000 euroa maksava suomalainen lasimaljakko
+-  3 Wasit Piala Asia 2023 yang Pernah Pimpin Laga BRI Liga 1, Siapa Saja?
+-  Bradley Walsh's wife starred in iconic music video and was a member of original Gladiators series
+-  Бородатая шутка стала реальностью — появился унитаз для геймеров
+-  تريزيجيه يحذر منافسي مصر في كأس أمم إفريقيا: لدينا هدف واحد
+-  Méretes frissítés érkezik a Starfieldhez, ami a hibák mellett a látványon is javít
+-  На Ставрополье два человека погибли в лобовом столкновении автомобилей
+-  Confira todos os aumentos sobre Teto do INSS, salário-família e auxílio-reclusão para 2024
+-  НАЗ постави 5 искания, сред които участие в украинската помощ, в декларация
+-  Administration pénitentiaire : un homme du sérail nommé par colonel Mamadi Doumbouya
+-  Άρρωστος ο Κα και εκτός αποστολής
+-  Australian Open: Ξημερώματα Δευτέρας η μάχη Τσιτσιπά - Μπερετίνι
+-  Terry G Announces Retirement From Music (Video)
+-  Bu ekmeği yedikten sonra dışarıdan ekmek almayacaksınız! İşte elinizi hiç kirletmeden evde yapabileceğiniz nefis ekmek tarifi
+-  Παρασκήνιο: Η προειδοποίηση Κασσελάκη σε Πολάκη μέσω τρίτου το βράδυ της Παρασκευής
+-  Samsun'da jandarma 2 bin 872 adet sentetik ecza ele geçirdi
+-  Anušić otkazao sastanak s crnogorskim kolegom: Susret otpao zbog dva sporna pitanja?
+-  Rassistische Verleumdung: Trump attackiert Haley vor Vorwahlen
+-  Bolsa Família 2024 com as datas a partir de 18 de janeiro até dezembro
+-  عقيلة يناقش مع العريبي خطة عمل لجنة الإعمار والاستقرار بمختلف البلديات
+-  Viel los bei Werder: Malatini-Transfer vor Abschluss und Unruhe vor wichtigem Spiel in Bochum
+-  أصغر رئيس حكومة في تاريخ فرنسا.. من هو غابرييل أتال؟
+-  На върха на щастието! Мис България 2023 хвана милионер с огромна къща в Пловдив СНИМКА
+-  Естествен пилинг за сияйна красота: Съживете кожата си със скраб от кафе
