@@ -1,11 +1,11 @@
 # Latest News
--  নেসকোতে চাকরি, সর্বোচ্চ বেতন ১ লাখ ২২ হাজার, আবেদন করুন দ্রুত
--  Eski MİT'çi Mehmet Eymür hayatını kaybetti
--  Moody's Türkiye'nin kredi notunu yükseltti!
--  Fahrettin Altun'dan şehitler için başsağlığı mesajı
--  263 yerleşim yeri ulaşıma kapandı
--  İstanbul'da zamlı tarife başladı
--  PKK'nın petrol üretim tesisleri vuruldu
--  Ex-Fußballer des VfB Auerbach trifft beim Afrika-Cup auf Liverpool-Star Mo Salah
--  Auto fährt in Zwickau Radfahrer an: Radler schwer verletzt
--  Lleva Francisco Chavira alegría y esperanza a familias de Victoria
+-  Filmavond Vrijzinnige Kerkje
+-  Son dakika... Milli Savunma Bakanı Güler sınır hattında
+-  Serenay Sarıkaya'dan Mert Demir açıklaması
+-  Първо в "Марица": Ето какво ще се строи на острова на Адата
+-  Премиерът на Полша също ще посети Киев
+-  37-годишен с изгаряния след пожар в дома му в Хасково
+-  Kültür ve Turizm Bakanlığı sözleşmeli personel alımı kadro-kontenjan dağılımı, tarihleri ve şartları!
+-  Вили Лилков: Трябва да има председател на СОС до приемането на бюджета
+-  परिवार पर हिंसा का प्रकोप : जब एक लड़की ने गुस्से में आकर बहनों की हत्या कर दी
+-  Sauvegarde de la cohésion sociale : la jeunesse invitée à porter le "discours de la paix".
