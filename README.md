@@ -1,51 +1,11 @@
 # Latest News
--  Tajvanon megkezdődött az elnökválasztás
--  3 đặc điểm của kiểu phụ nữ càng sống càng nghèo, thiếu tiền bạc, thiếu luôn sự phong phú trong tâm hồn
--  HLV Nhật Bản thích Pep Guardiola, muốn CLB Hà Nội chơi tấn công, áp đảo
--  KingSport gửi gắm thông điệp cuối năm đến những người con: “Thành công lớn nhất là sức khỏe và hạnh phúc của mẹ cha”
--  کیسے بوائے فرینڈ تھے؟اداکارہ نیتو کپور کا اپنے آنجہانی شوہر رشی کپور کے حوالے سے حیران کن انکشاف
--  Zhang ha il paracadute: perché non perderebbe l'Inter a zero
--  Da Osimhen a Mané e Salah: la Coppa d'Africa cerca il suo totem
--  Torino, il mercato del futuro e la strategia di Cairo, Vagnati e Pecini
--  Mago McKennie ora incanta la Juve: la rivincita, il rinnovo e lo Scudetto
--  Palermo, che esame a Cittadella
--  Diretta Monza-Inter ore 20.45: dove vederla in tv, in streaming e probabili formazioni
--  Son nuestras las pesadillas de Kafka
--  حبس طبيب شهير كاد يتسبب في قتل المذيعة إيمان الحصري
--  التصويت ينطلق لانتخاب رئيس إدارة تايوان
--  Gaziantepliler A101'lere Koşacak! A101'de Ocak Rüzgarı: İndirim Fırtınası Başladı!
--  وفاة طالبة جامعيّة... سقطت من نافذة غرفتها في مصر
--  3560 ميجاواط الحمل الكهربائي المسجل أمس في الأردن
--  Şehitlerimizin kanı yerde kalmayacak: Kahramanlar-41 operasyonlarında 113 şüpheli gözaltına alındı
--  ABD'nin petrol sondaj kulesi sayısı azaldı
--  MİT 160 kilometre derinlikte etkisiz hale getirdi: PKK/KCK'ya Avrupa'dan eleman temin ediyordu
--  Krajskí policajti zostali bez riaditeľa, Jozef Kubala sa vrátil na kriminálku
--  Göztepe Sakarya deplasmanından 3 puanla döndü
--  EPL: Guardiola reveals when Haaland will return from injury
--  Did the US just get lured into war with the Houthis?
--  Грожан коментира раздялата между Хаас и Щайнер
--  IIT JEE Main Exam dates revised: NTA revises session 2 dates following clash with CBSE Class 12 exams
--  Nestala dva mornara američke mornarice
--  عاصفة تجتاح الغرب الأوسط الأميركي... وتقطع الكهرباء عن الآلاف (صور)
--  Ангел Кунчев прогнозира: Първите области ще обявят грипна епидемия много скоро
--  SUA au efectuat noi lovituri asupra rebelilor houthi din Yemen, potrivit armatei
--  ब्रिटिश राजनीति में उतरे 2 भारतीय कारोबारी, लड़ेंगे लंदन मेयर का चुनाव
--  Yamoussoukro : Quand l’équipe de Dakaractu tombe sur un petit-fils de Serigne Fallou Mbacké…
--  Düzce’de 26 köy yolu kar nedeniyle kapalı
--  Immersion au cœur du marché de Yamoussoukro : La ferveur de la CAN s’empare des populations !
--  ’امریکی ایجنٹوں کو جواب دیں‘، شیخ رشید کا ویڈیو پیغام میں شکوہ
--  यूपी में इस दिन शराब की दुकानें रहेंगी बंद; जानिए कब और कैसे
--  غزہ :اسرائیلی حملوں میں مزید 151 فلسطینی شہید
--  Việt Nam - Indonesia có tầm nhìn chung là phấn đấu trở thành nước có thu nhập cao vào năm 2045
--  बर्ड फ्लू पहली बार अंटार्कटिका के पास देखा गया; ब्रिटिश वैज्ञानिकों ने ढूंढा वायरस
--  सेक्स रैकेट चलाने वाली सब युवतियों समेत संचालक पुलिस की पकड़ में
--  [與 “野, 공천에 친명 여부만 따져…국민 뜻 안중에 없어”
--  Los beneficios del magnesio en la salud
--  Bursa’da çıktığı cezaevine 24 saat sonra tekrardan girdi
--  CAN 2024 : Vers un forfait de Vincent Aboubakar pour le tournoi ?
--  राप्रपाका थापाद्वारा उम्मेदवारी फिर्ता, ६ जनाको उम्मेदवारी कायमै
--  Tottenham holding regular talks to sign £45-50 million-rated target this month
--  ہانیہ عامر کی نئی ڈانس ویڈیو نے دھوم مچادی
--  Gov Radda Mourns 7 Who Died In Bus Accident
--  Depresión crónica: ¿Cómo influye en la calidad de vida de las personas?
--  Cine ar putea fi primul samurai canonizat de Vatican. A fost exilat pentru că a refuzat să renunțe la creștinism
+-  แพทริเซีย เผยภาพ น้องเอลิเซีย ส่งยิ้มหวานรับวันเด็ก 2567 แก้มน่าฟัดมาก
+-  ดีเดย์ 14 ม.ค.เปิดตลาดนัดแก้หนี้ทั่วประเทศ
+-  ADO troeft eredivisieclubs af: ‘Bomber van Breda’ Alex Schalk tekent tot 2025 in Den Haag
+-  Alle schermen opvouwbaar en technische snufjes liefst voorzien van AI
+-  आयात में गिरावट के बावजूद चीन का निर्यात 2.3 प्रतिशत बढ़ा
+-  Azərbaycan neftinin qiyməti azaldı
+-  आईबीसी के तहत मामलों के निपटान में अनावश्यक देरी के परिणामस्वरूप परिसंपत्तियों का अवमूल्यन
+-  PM Dahal directs for effective treatment of those injured in Bhalubang bus accident
+-  Twelve killed as bus plunges into Rapti River
+-  Backlash over Sabina Chege, Karungo Thang'wa visit to late 'Firirinda' hitmaker's family
