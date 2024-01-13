@@ -1,51 +1,51 @@
 # Latest News
--  ¿Qué es la CIJ, la corte que juzga a Israel por 'genocidio'?
--  Rutte says that his ministers leaving is "explainable"
--  Doãn Hải My lộ mặt mộc mà vẫn xinh đẹp, phản ứng ra sao trước thông tin bịt kín mít đi khám thai cùng Văn Hậu?
--  Hai anh em hiếu thảo chi 900 triệu để cải tạo nhà cho bố mẹ: Căn hộ 30 tuổi thay đổi khiến chủ nhân cũng không thể nhận ra
--  3 tầng cảnh giới sống, hiểu thấu để đi tới chân trời góc bể vẫn ung dung, không lo bị đào thải!
--  Nhất Diva Mỹ Linh: Ông xã Anh Quân bay vào hỗ trợ vợ "đạp gió rẽ sóng" và được trả mức cát-xê rất tượng trưng
--  Los signos del horóscopo chino que son un desastre en las relaciones
--  NASA predstavila X-59 avion: Vratit će nadzvučne letove, bez zvuka probijanja zvučnog zida
--  Den zona turistico: A detene ilegal maniak band’i beach
--  قمة الطاقة.. آمال عريضة ليبيّة ورغبة خارجية في الاستثمار
--  Κολωνός: Ακόμη έξι κατηγορούμενοι στη δικογραφία για την υπόθεση μαστροπείας ανηλίκων
--  Lumi pöllyää maan keskiosien teillä niin, että ajokeli on erittäin huono
--  Lumi pöllyää maan keskiosien teillä niin, että ajokeli on erittäin huono
--  BREAKING Bolton game abandoned after 'medical emergency' in crowd versus Cheltenham
--  Luiza Gegës nuk i jepet shpërblimi, reagon PD: Akt i neveritshëm i qeverisë
--  Un Bruckner sin pélets
--  Kongen er tonedøv: Ikke en krone værd
--  राजस्थान में बिजली कटौती के कारण ऑक्सीजन की आपूर्ति बंद होने से कैंसर रोगी की मौत
--  SVI NA OKUPU! BIKOVIĆ VERENICU I SINA IZVEO IZ PORODILIŠTA! Izašli kroz garažu i uputili se ka toplom domu na Dorćolu
--  Leipzig: Sexueller Übergriff bei der Linken – Partei ringt mit der Aufklärung des Falls
--  Estatuto do Profissional de Arte e Cultura deve entrar em vigor até final do primeiro semestre de 2024
--  Eigennutz und Nazi-Keule – Ansage
--  Reading fans invade pitch to protest against owner
--  عاجل.. سكني يكشف عن الالتزامات المنطبقة على مستفيدي منتج الأرض المجانية
--  Κίκο βασικός με ΑΕΛ
--  الدويري يعلق على معركة دير البلح
--  ندوة في إربد بعنوان توظيف الخطاب الديني لتبرير العدوان على غزة
--  البرلمان العربي: الاحتلال يتهرب من جرائمه البشعة بادعاءات كاذبة على مصر
--  النجار: وزارة الثقافة تعتزم طباعة مختارات من أشعار المرحوم محمود فضيل التل
--  VIDEO: Najvatreniji BiH navijači okupirali Mannheim!
--  Milhares marcham em Londres em solidariedade com palestinianos
--  El mini paro de 500 euros que puedes cobrar de forma indefinida si cumples este requisito
--  LIVE: ΟΜΟΝΟΙΑ-ΔΟΞΑ 10
--  بعد احتجازها من قبل إيران... تحديد موقع ناقلة النفط "سانت نيكولاس"
--  Assam CM Confident Of BJP Coming To Power In Odisha Assembly Polls
--  Milorad Pupovac gost Točke na tjedan
--  Shkollë futbolli e Manchester City-t në Shqipëri, Rama: Projekti gati, brenda pranverës hapim kantierin
--  Isabel Pantojaren kontzertura joateko zerbitzu berezia eskainiko du Bilbobusek
--  Румынские фермеры заблокировали границу с Украиной
--  Man missing after plunging into giant crack caused by Iceland volcano
--  Scotland braced for winter blast with temperatures as low as -15C
--  SAD i Britanija nastavile napade: Raketama na vojno-mornaričku bazu, Huti obećali snažan odgovor
--  عدد ساعات لعب Fortnite تجاوز Call of Duty و FC 24 و GTA 5 و Roblox مجتمعين
--  Bharat Jodo Nyay Yatra: ఆదివారం నుంచి రాహుల్ గాంధీ 'భారత్ జోడో న్యాయ్ యాత్ర'
--  Dulipalla Narendra: చంద్రబాబుపై సీఐడీ అధికారులు ఇంకా కక్షపూరితంగా వ్యవహరిస్తున్నారు
--  Wearable tech aiming to level up life: CES highlights
--  मशहूर शास्त्रीय गायिका प्रभा अत्रे का निधन, राष्ट्रपति और पीएम मोदी ने जताया शोक
--  قابس: احياء الذكرى 13 ليوم الشهيد بالحامة
--  Le pagelle di Genoa-Torino: difesa solida, Sanabria e Vlasic spenti
--  حظر استخدام أجهزة “الليزر” في بطولة كأس أفريقيا
+-  Как посмя?! Милица Гладнишка показва срамотии в ефир, операторите са в шок СНИМКИ
+-  Trung Quốc, Mỹ, Nga lên tiếng sau khi Đài Loan có lãnh đạo mới
+-  ‘Koning der Kermiskoersen’ Richard Bukacki (77) overleden
+-  Denise aan start NK veldrijden
+-  남양주시, 별내선(8호선) 개통 준비단(TF) 운영
+-  주광덕 남양주시장, 오남천 수질오염사고 방제작업 현장 점검
+-  구리시, 스마트 버스정류장 설치 경기도 특조금 4억 확보
+-  수원시 ‘중장년1인가구 수다살롱’ 동아리 참여자 모집
+-  기업도시 안산 이민근 시장, 美 테네시주 네슈빌서 투자유치 설명회
+-  의왕시, 백운밸리 레이크포레4단지 경로당 개소식
+-  안양시, 국·도비 확보해 전통시장·상점가 활성화 총력
+-  군포시 어린이도서관 실감형체험관 운영 시작
+-  연천군가족센터, 경기포천아동보호전문기관·연천군육아종합지원센터와 MOU
+-  성남시의회 의회운영위원회, 종이 없는 의회운영을 위한 벤치마킹 실시
+-  고양특례시, 냉동 난자 사용 시술비 1인당 최대 200만원 지원
+-  파주시, 지방세법 개정 요청 국회에서 화답
+-  Drôme. Le Vercors, zone à risques : « Un travail d’anticipation, entre chutes et éboulements »
+-  Matan a dos policías en Chihuahua
+-  Китай и Таджикистан не се победиха, халф на ЦСКА 1948 с цял мач
+-  “I admire his career, achievement”: Novak Djokovic opens up about his bond with Virat Kohli
+-  3 sci-fi movies on Peacock you need to watch in January
+-  Đội hình cầu thủ châu Phi xuất sắc nhất lịch sử Premier League
+-  Joe Cole khuyên Chelsea nên giữ Gallagher ở lại
+-  Maggie Gyllenhaal's Bride of Frankenstein Movie is Aliiiiiiive! With a Stacked Cast
+-  Umatilla man dies after crash with tree in Lake County, FHP says
+-  Slowing inflation suggests that Biden's policies are helping, but American voters are still hurting
+-  Large US corporations eye enlargement alternatives in Turkmenistan
+-  Pocatello woman involved in Friday’s I-86 crash that injured 2 ISP troopers charged
+-  Doomed US lunar lander's space odyssey continues... for now
+-  The fate of novel ideas: Scholar investigates factors that thwart potential innovations from gaining acceptance
+-  Are bugs bugging humans or the other way around? Study reveals a few surprises
+-  You Can Play Super Nintendo and Other Classic Games on Bitcoin—Here’s How
+-  Houthis Vow ‘Strong and Effective’ Response to Latest U.S. Strike
+-  60-vuotias | ”Ihme, että mä olen hengissä”, sanoo entinen pornotähti Henry Saari
+-  “We are ready for the opposition”: Ramaphosa
+-  JANJUŠ RAZNEŽIO ČITAVU NACIJU: Nakupovao poklone Urošu pa ga pozvao kako bi mu sve to dao! Stanić počeo da plače, baš EMOTVINO...
+-  الحرس الوطني: القبض على 5 عناصر تكفيرية مفتّش عنها
+-  Samsung predstavil odolný mobil s vymeniteľnou batériou. Zaujme aj prívetivou cenou
+-  La economía de Guyana será la de mayor crecimiento del mundo en 2024, según FMI y CEPAL
+-  Marye Law Firm, P.C. Represents Plaintiff Who Suffered Serious Injuries In The Sandman Signature Hotel Explosion
+-  Kelompok Tani Kabupaten Subang Dukung Ganjar-Mahfud
+-  In Iowa, GOP candidates concerned about freezing weather's impact on caucuses
+-  شیر افضل مروت کی بانی پی ٹی آئی سے ملاقات ،عمران خان نے متنازع ٹکٹوں سے متعلق کیا ہدایت کی؟
+-  Süt fiyatlarına zam! Bu tarihten itibaren geçerli olacak
+-  Ce s-a întâmplat la primul meci jucat de Genoa fără Radu Drăgușin
+-  Košarac: Helez krivične prijave može okačiti mačku o rep
+-  The Sunk Cost Fallacy: Stanford Scientists Reveal Why We Value Things More When They Cost Us More
+-  Dodik: Ako EU prihvati nametanje, evropski put BiH je završen
+-  روبيرتو: آمل أن أتمكن من الاستمرار في مساعدة الفريق
+-  Чем полезна диета «Чебурашки» ─ диетолог
