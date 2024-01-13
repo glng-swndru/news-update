@@ -1,51 +1,11 @@
 # Latest News
--  이하이, 뭉클한 신곡 음원 일부 최초 공개…기대감 고조
--  ‘런닝맨’ 조세호 VS 규현, 신입 깡깡이 타이틀을 가져갈 명승부 대결
--  realme 12 Pro ถูกปล่อยภาพหลุดเครื่องจริงออกมาแล้ว เผยดีไซน์สุดพรีเมียม
--  Biển số ngũ quý 9 ở Hà Nội lập kỷ lục với mức giá hơn 75 tỉ đồng
--  Bắt phó giám đốc Sở Tài nguyên và Môi trường tỉnh Lào Cai
--  Bí thư Nguyễn Văn Nên: Vụ CDC Bình Dương rất mới, sự động viên để cán bộ dám nghĩ, dám làm
--  Cần thêm Táo quân
--  Evacuations dans l'ouest de l'Australie en raison d'un incendie
--  No llegan más médicos ni un nuevo centro de salud a Abrantes (Carabanchel): “No es no que haya cita para este mes. Es que no hay citas”
--  Nhật Bản lại bị một cường quốc ở châu Á soán ngôi thị trường ô tô lớn thứ ba thế giới
--  Giải ngân đầu tư công được 45.866 tỷ đồng, TP.HCM hoàn thành 67% chỉ tiêu
--  Buscan a Marta Patricia, desaparecida el 4 de enero
--  Dan a conocer los 83 proyectos ganadores
--  Trabajan para regularizar fraccionamientos
--  'เด็จพี่' อัด 'คปท.' ทำวันเด็กกร่อย ทำลายบรรยากาศ แซะออกมาเคลื่อนไหวมีใครอยู่เบื้องหลังเปล่า
--  ‘ภาคประชาชน’ชง 11 ประเด็นปรับปรุง‘ร่าง พ.ร.บ.กัญชา’ ตัดวงจรกลับไปเป็นยาเสพติด
--  ยิปซีพยากรณ์ดวงรายวัน ประจำวันเสาร์ที่ 13 มกราคม 2567
--  GWM ประกาศราคา New GWM ORA Good Cat รุ่นผลิตในไทยครั้งแรกของประเทศ มาพร้อม 3 รุ่นย่อย เริ่มต้น 799,000 บาท
--  박일호 총선 예비후보, lsquo;불체포 특권 포기middot;금고형 이상 세비 반납rsquo; 동참 선언
--  Overlooked Daniss Jenkins has been key to success for St. John’s, Rick Pitino
--  Bắt đối tượng điều khiển gàu xe múc đè chết người ở Ninh Thuận
--  กรมอนามัย หวั่น ค่าฝุ่นวันเด็กสูงกระทบสุขภาพ แนะ ผู้ปกครองให้เด็กสวมหน้ากาก
--  George Washington Bridge rehab project reaches halfway point
--  Что делать, если тигр зашел в населенный пункт
--  정해용, 동구갑 선거사무소 개소 "동대구 시대 열겠다"
--  EMEET's Latest AirFlow Open-Ear Earbuds Offer Exceptional Audio Experience for Both Music and Calls.
--  Все кандидаты на пост главы администрации Тайваня проголосовали на выборах
--  Agri expert dies after collapsing on live Doordarshan show in Kerala
--  ฮ้องขวัญเสริมพลังเกลาจริยธรรมความเป็นครู
--  김의겸 의원, 군산시 선거구 민주당 예비후보 등록
--  أبرزها تسهيل التأشيرات.. كيف تعمل السياحة على جذب السوق الهندي؟
--  لأول مرة.. "الزراعة": حققنا الاكتفاء الذاتي من تقاوي القمح ونسعى للريادة العالمية
--  Choáng váng biển số 30K-999.99 trúng đấu giá kỷ lục
--  Προειδοποίηση ΠΟΥ: Τα χαμηλά ποσοστά εμβολιασμού πιέζουν τα συστήματα υγείας - Η γρίπη στο επίκεντρο
--  Nintendo Continues to Dominate Japanese Sales Market for the 19th Consecutive Time
--  Milieugroep naar rechter om verbouwing Binnenhof stil te leggen
--  SC denies stay on new law for CEC, ECs appointment
--  Note in bag suggests Seth was frustrated: Goa police
--  Delhi transport minister takes metro ride to reach office
--  Myanmar military, ethnic guerrilla groups agree to ceasefire
--  Rishi Sunak visits Kyiv to announce fresh aid package
--  Japan launches satellite to track North Korean missiles
--  CEC raises $200m for mega solar project
--  Anurag Kashyap hangs out with Sandeep Reddy Vanga
--  Elderly man declared 'dead' comes back to life after ambulance hits pothole
--  ED summons Delhi CM Arvind Kejriwal for fourth time in excise policy case
--  Meet family, who built Rs 17,223 crore company, owns India's first...
--  คลั่งรักสุด ชิปปี้ อวดความหวานพาแฟนเที่ยว แมท ภีรนีย์ ถึงกับโผล่คอมเมนต์
--  Difference Between Old Vs New Tax Regime: Which Is Better?
--  Президент Yara Холзетер заявил о зависимости Европы от российских удобрений
+-  Idén már Bulgária is lehagyhatja Magyarországot
+-  Kubatov Gábort nem érdekli a fideszes propaganda, multikulturális egyesületté változtatta az FTC-t
+-  홍천강 꽁꽁축제 서면여성의용소방대 ‘119 심폐소생술 안전체험
+-  국민의힘 정필재 당협위원장,시흥시의회, 갑지역 시의원 시위 돌입
+-  KFC, 입안 가득 '뉴 트위스터'의 맛을 느껴보세요!
+-  교촌치킨, ‘점보윙 시리즈’ 이벤트 실시
+-  與 "민주당 검증위는 '친명 감정위'… 개딸 횡포 극 달할 듯"
+-  1인피자 전문점 피자먹다, PLQ몰 싱가폴1호점 오픈
+-  CAN 2024: contre la Guinée-Bissau, la Côte d'Ivoire face aux attentes de tout un pays
+-  Blinken Discusses Human Rights, Taiwan Strait With Chinese Official
