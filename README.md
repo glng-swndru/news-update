@@ -1,11 +1,51 @@
 # Latest News
--  Filmavond Vrijzinnige Kerkje
--  Son dakika... Milli Savunma Bakanı Güler sınır hattında
--  Serenay Sarıkaya'dan Mert Demir açıklaması
--  Първо в "Марица": Ето какво ще се строи на острова на Адата
--  Премиерът на Полша също ще посети Киев
--  37-годишен с изгаряния след пожар в дома му в Хасково
--  Kültür ve Turizm Bakanlığı sözleşmeli personel alımı kadro-kontenjan dağılımı, tarihleri ve şartları!
--  Вили Лилков: Трябва да има председател на СОС до приемането на бюджета
--  परिवार पर हिंसा का प्रकोप : जब एक लड़की ने गुस्से में आकर बहनों की हत्या कर दी
--  Sauvegarde de la cohésion sociale : la jeunesse invitée à porter le "discours de la paix".
+-  Starbucks'ın Nasıl Kurulduğu Sizi Şaşırtabilir: Meğer Keçi İnatlı Bir Adam Sayesinde Tüm Dünyaya Yayılmış!
+-  ভারতের দীর্ঘতম ব্রিজ ‘অটল সেতু’ উদ্বোধন, প্রতি কিলোমিটার যেতে টোল ১৮ রুপি
+-  העברות בעולם, 13.1: יובנטוס שוחחה עם הנדרסון, סולישאר יאמן נבחרת?
+-  বেরোরিতে কুয়াশাচ্ছন্ন সকালে স্বাধীনতা স্মারক মুখর রাখে ‘সম্প্রীতি’
+-  Spy : une voiture incendiée rue des Golettes
+-  UPSC IFS 203 Main exam result declared; Direct link
+-  بعد ارتفاع كبير أمس.. سعر الذهب في مصر اليوم السبت مع بداية التعاملات
+-  متوسط أسعار الدواجن يرتفع في الأسواق اليوم السبت (موقع رسمي)
+-  Goldberg Launches ‘Game On’ Campaign, Set To Elevate Consumers’ Experience As AFCON 2024 Kicks-Off
+-  MESS yeni teklifini yaptı, Türk Metal yine masadan kalktı!
+-  Samsunspor'un konuğu Sivasspor
+-  Glifozat nesir, glifozatın vücudumuza zararları nelerdir?
+-  MHP lideri Bahçeli: Son terörist ele geçirilinceye kadar geri adım yoktur
+-  Lokantalarda fiyat oyunlarına son!
+-  Asgari ücret desteğiyle ilgili kanun teklifi Meclis'e gidiyor
+-  Госкомитет о регулировании плотности застройки в Баку
+-  Jas van vermiste Yoran gevonden, grote zoekactie begint
+-  Devlet Bahçeli'den hain saldırıya tepki...
+-  پشاور ہائیکورٹ نے تحریک انصاف انٹر پارٹی انتخابات اور انتخابی نشان کیس کا تحریری فیصلہ جاری کر دیا
+-  Zamfara: We will not negotiate with bandits – Gov Lawal insists
+-  EE UU ataca objetivos hutíes en Yemen por segundo día consecutivo
+-  Bakı-Sumqayıt yolunda “Prius” qəza törətdi, tıxac yarandı
+-  Jeronimo Martins e lo spleen del consumatore polacco
+-  Affluent Indians: 100 million citizens to earn more than $10,000 by 2027, says Goldman Sachs | Here’s how
+-  هنا يُروّج المخدّرات... "كوكايين مشكّل"
+-  9 vatan evladı şehit oldu! Ünlü isimlerden taziye mesajları
+-  Katar ve İsrail arasında anlaşma sağlandı!
+-  MSB duyurdu: Şehitlerimizin kanı yerde kalmadı
+-  TFF'den disiplin talimatına yeni fıkra
+-  Bakan Güler ve komutanlar sınırda
+-  Uvoz meda u BiH deset puta veći od izvoza
+-  South Africa Stand Down U19 Captain For World Cup Over Protest Fears
+-  کمسن بچوں پر پستول تان کر ڈاکوؤں کی گھروں میں وارداتیں، 100 تولے سونا لے اڑے
+-  Nguyễn Ngọc Hạnh thương thời thơ trẻ, nhớ nắng dậy thì
+-  تفاصيل جديدة تكشف للمرة الأولى.. هذا جديد وفاة الملكة إليزابيث الثانية
+-  Shein busca autorização da China para realizar IPO nos Estados Unidos
+-  Иво Илиев срещу олимпийски медалист на старта в Загреб
+-  Stars bat first in Melbourne Big Bash League derby
+-  Find out how long your gadgets and smart appliances will work without vital upgrades from big brands
+-  So rüstet sich Taiwan für den Ernstfall
+-  Il destino della Millenium Brescia si decide domani in trasferta a Bologna
+-  Odborníci: Počas mrazov je najohrozenejšie zdravie detí či starších
+-  VIDEO: Geger! Anies Dapat Ancaman Penembakan, Ini Tanggapan Ganjar dan Sandiaga Uno
+-  Produce concluye temporada de anchoveta al 70% de la cuota
+-  Back to School in Namibia in 2024
+-  Lotto am Samstag: Wie hoch ist der heutige Jackpot? Alle Gewinnzahlen am 13.1.2024
+-  Ekvador Devlet Başkanı Noboa ülkesinin uyuşturucu devletine dönüşmemesi için mücadele ettiğini belirtti
+-  İstanbulspor'un 20. hafta rakibi Konyaspor
+-  29 terör hedefi böyle vuruldu! MSB yeni görüntüleri paylaştı
+-  النمل يٌنتج مضادات حيوية لعلاج جروحه.. كيف يحدث ذلك؟
