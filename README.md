@@ -1,51 +1,51 @@
 # Latest News
--  '이재명 애원·개딸 막아도 간다'…이낙연 지지자들, 탈당기념 행사
--  Mercato : Le PSG a trouvé son terrain de jeu
--  Milli Savunma Bakanı Güler'den şehit askerler için taziye mesajı
--  15 Temmuz Şehitler Köprüsü'nde çift yönlü zincirleme kaza
--  Şehit Piyade Uzman Çavuş Ahmet Köroğlu'nun ailesine şehadet haberi verildi
--  25 cách tích lũy tài sản giúp bạn ngày càng giàu có hơn
--  UrBox: giải pháp tích điểm đổi quà hướng tới trải nghiệm tiêu dùng thông minh
--  Thí sinh Miss Earth khám phá khách sạn tiên phong đạt tiêu chuẩn quốc tế về kiến trúc xanh
--  Ban thờ nên đặt đèn dầu hay thắp đèn điện sẽ TỐT hơn: Câu trả lời nằm ở đây!
--  Vì sao các hãng điện thoại luôn ra mẫu mới mỗi năm?
--  So kè body "cực nóng" của Quỳnh Thư và Á hậu vướng nghi vấn hẹn hò chồng cũ Diệp Lâm Anh
--  Gặp chàng trai “lừa” bố đi 20km để làm chuyện không tưởng, 22 tuổi đã mua được nhà báo hiếu
--  Trường CĐ Y tế Quảng Nam nợ lương giảng viên: Kiểm điểm tập thể, cá nhân vi phạm
--  Nữ TikToker chia sẻ căn bệnh bị "4 bệnh viện trả về", mất thị lực, nằm liệt giường: Cảm ơn cái nắm tay của Trường Giang giúp vượt qua bệnh
--  Bắt nghi phạm đâm vợ tử vong ở Hưng Yên
--  Dân dã món bánh bèo xứ Huế
--  Cảnh giác với "dịch vụ lấy lại tiền bị lừa đảo" trên MXH để không bị lừa tiếp lần 2!
--  3 loại cây "sinh vượng khí", hấp thu độc tố, 2/3 cây có thể làm thuốc: Ngày Tết nhà nào cũng nên có 1 cây
--  Xảy ra động đất 2.8 độ richter ở Hòa Bình
--  Trước khoảnh khắc lịch sử Thái tử phi Đan Mạch lên ngôi Vương hậu, bà nhận tin không vui về sự vắng mặt của một nhân vật quan trọng
--  Nghiên cứu chỉ ra: 5 hành vi độc hại của cha mẹ có thể gây ra "vết thương chí mạng" cho con cái
--  Asian Cup 2023: Việt Nam chuẩn bị phải đối đầu với đội tuyển có phong độ cao nhất thế giới
--  Insurance fraud allegation against FSC board in 2016
--  Уикендът започва със слънце и студ, вижте градусите
--  แม่ค้าขายผักป้าขับสามล้อแดงแต่งชุด นร.ย้อนวัยเด็กสร้างสีสันในตลาดเกษตรสุวพันธุ์คึกคัก
--  Azizah Salsha Pamer Lekuk Tubuh, Warganet Soroti Respons Pratama Arhan
--  Блинкен се срещна с ръководител на китайските комунисти и с японския външен министър
--  Vivah Muhurt 2024: इस साल 19 दिन ही बजेगी शहनाई, विवाह के लिए सबसे ज्यादा फरवरी में मुहूर्त; देखें- पूरी लिस्ट
--  Rewa News: अयोध्या में बन रहे राममंदिर के उपलक्ष्य में डिप्टी सीएम राजेंद्र शुक्ल ने कराया विशाल भंडारा
--  Amid Oppn claims of top seers boycotting Jan 22 event, Shankaracharya of TN mutt announces 40-day worship
--  Rabuka unaware of scandal posted online
--  Zambian Kwacha Optimism: Economist Forecasts Currency’s Rebound
--  "미국, 예멘 후티 반군 겨냥 추가 공격"
--  Голевая передача Гурьянова помогла «Нэшвиллу» обыграть «Даллас» в матче НХЛ
--  امریکا بار دیگر مواضع حوثی‌ها را در یمن هدف قرار داد
--  '친미-친중' 갈림길…대만 총통선거, 전 세계가 주시
--  正向教育︳孩子開朗性格可後天培養！家長教出樂觀孩子先要做到一點
--  DMW, AMLC team up to help victims of illegal recruiters
--  Пентагон подтвердил удар США по Йемену и назвал его цель
--  제주 종합병원서 항생제 내성 ‘슈퍼 박테리아’ 집단 감염…총 23명
--  Krieg gegen die Ukraine: So ist die Lage
--  경찰, 황의조 2차 소환 조사 실시hellip;황씨, 몰카 혐의 부인
--  ریاستی ڈھانچے کی مکمل تبدیلی
--  بنگلہ دیش الیکشن؛ جمہوری سانچے میں آمرانہ خوانچہ
--  Fijian center Blake signs with St Helens
--  Fernando Santos'tan flaş karar. Beşiktaş'ta bir ilk yaşanacak. Karagümrük maçının 11'i belli oldu
--  Σίξερς - Κινγκς 112-93: Κυρίαρχοι με 37αρη Χάρις, χαμηλά ο Βεζένκοβ (vid)
--  ผบ.ตร.ยันมีแผนดูแลม็อบเน้นเจรจาเป็นหลัก
--  ফেসবুকে ‘বিদায় পৃথিবী’ লিখে শিক্ষার্থীর আত্মহত্যা
--  Присъда: Тръмп трябва да плати на The New York Times близо 400 000 долара
+-  이하이, 뭉클한 신곡 음원 일부 최초 공개…기대감 고조
+-  ‘런닝맨’ 조세호 VS 규현, 신입 깡깡이 타이틀을 가져갈 명승부 대결
+-  realme 12 Pro ถูกปล่อยภาพหลุดเครื่องจริงออกมาแล้ว เผยดีไซน์สุดพรีเมียม
+-  Biển số ngũ quý 9 ở Hà Nội lập kỷ lục với mức giá hơn 75 tỉ đồng
+-  Bắt phó giám đốc Sở Tài nguyên và Môi trường tỉnh Lào Cai
+-  Bí thư Nguyễn Văn Nên: Vụ CDC Bình Dương rất mới, sự động viên để cán bộ dám nghĩ, dám làm
+-  Cần thêm Táo quân
+-  Evacuations dans l'ouest de l'Australie en raison d'un incendie
+-  No llegan más médicos ni un nuevo centro de salud a Abrantes (Carabanchel): “No es no que haya cita para este mes. Es que no hay citas”
+-  Nhật Bản lại bị một cường quốc ở châu Á soán ngôi thị trường ô tô lớn thứ ba thế giới
+-  Giải ngân đầu tư công được 45.866 tỷ đồng, TP.HCM hoàn thành 67% chỉ tiêu
+-  Buscan a Marta Patricia, desaparecida el 4 de enero
+-  Dan a conocer los 83 proyectos ganadores
+-  Trabajan para regularizar fraccionamientos
+-  'เด็จพี่' อัด 'คปท.' ทำวันเด็กกร่อย ทำลายบรรยากาศ แซะออกมาเคลื่อนไหวมีใครอยู่เบื้องหลังเปล่า
+-  ‘ภาคประชาชน’ชง 11 ประเด็นปรับปรุง‘ร่าง พ.ร.บ.กัญชา’ ตัดวงจรกลับไปเป็นยาเสพติด
+-  ยิปซีพยากรณ์ดวงรายวัน ประจำวันเสาร์ที่ 13 มกราคม 2567
+-  GWM ประกาศราคา New GWM ORA Good Cat รุ่นผลิตในไทยครั้งแรกของประเทศ มาพร้อม 3 รุ่นย่อย เริ่มต้น 799,000 บาท
+-  박일호 총선 예비후보, lsquo;불체포 특권 포기middot;금고형 이상 세비 반납rsquo; 동참 선언
+-  Overlooked Daniss Jenkins has been key to success for St. John’s, Rick Pitino
+-  Bắt đối tượng điều khiển gàu xe múc đè chết người ở Ninh Thuận
+-  กรมอนามัย หวั่น ค่าฝุ่นวันเด็กสูงกระทบสุขภาพ แนะ ผู้ปกครองให้เด็กสวมหน้ากาก
+-  George Washington Bridge rehab project reaches halfway point
+-  Что делать, если тигр зашел в населенный пункт
+-  정해용, 동구갑 선거사무소 개소 "동대구 시대 열겠다"
+-  EMEET's Latest AirFlow Open-Ear Earbuds Offer Exceptional Audio Experience for Both Music and Calls.
+-  Все кандидаты на пост главы администрации Тайваня проголосовали на выборах
+-  Agri expert dies after collapsing on live Doordarshan show in Kerala
+-  ฮ้องขวัญเสริมพลังเกลาจริยธรรมความเป็นครู
+-  김의겸 의원, 군산시 선거구 민주당 예비후보 등록
+-  أبرزها تسهيل التأشيرات.. كيف تعمل السياحة على جذب السوق الهندي؟
+-  لأول مرة.. "الزراعة": حققنا الاكتفاء الذاتي من تقاوي القمح ونسعى للريادة العالمية
+-  Choáng váng biển số 30K-999.99 trúng đấu giá kỷ lục
+-  Προειδοποίηση ΠΟΥ: Τα χαμηλά ποσοστά εμβολιασμού πιέζουν τα συστήματα υγείας - Η γρίπη στο επίκεντρο
+-  Nintendo Continues to Dominate Japanese Sales Market for the 19th Consecutive Time
+-  Milieugroep naar rechter om verbouwing Binnenhof stil te leggen
+-  SC denies stay on new law for CEC, ECs appointment
+-  Note in bag suggests Seth was frustrated: Goa police
+-  Delhi transport minister takes metro ride to reach office
+-  Myanmar military, ethnic guerrilla groups agree to ceasefire
+-  Rishi Sunak visits Kyiv to announce fresh aid package
+-  Japan launches satellite to track North Korean missiles
+-  CEC raises $200m for mega solar project
+-  Anurag Kashyap hangs out with Sandeep Reddy Vanga
+-  Elderly man declared 'dead' comes back to life after ambulance hits pothole
+-  ED summons Delhi CM Arvind Kejriwal for fourth time in excise policy case
+-  Meet family, who built Rs 17,223 crore company, owns India's first...
+-  คลั่งรักสุด ชิปปี้ อวดความหวานพาแฟนเที่ยว แมท ภีรนีย์ ถึงกับโผล่คอมเมนต์
+-  Difference Between Old Vs New Tax Regime: Which Is Better?
+-  Президент Yara Холзетер заявил о зависимости Европы от российских удобрений
