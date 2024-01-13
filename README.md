@@ -1,51 +1,51 @@
 # Latest News
--  [트렌D] ‘2023 AFC 카타르 아시안컵’ 한국 E조 예선전, 100배로 재밌게 즐기는 법
--  [CES 2024] 처음부터 끝까지 부각된 AI…반도체 전쟁 서막 엿보인 축제
--  Fuerte choque en Tijuana deja ocho lesionados, dos de gravedad
--  민주노총 제주본부 "한화건설, 노동자 생명안전 무시" 강력 처벌 촉구
--  微軟收盤價超越蘋果，睽違 2 年重新成為全球市值最高公司
--  "치킨집 창업에 몰리는 이유"…창업비용 1억에 회수기간 2.6년
--  Plans for new memorial building underway for Fargo National Cemetery
--  2023's record heat partly driven by 'mystery' process: NASA scientist
--  Women's health on show, a little, at CES
--  Green tech pumps water from air at CES
--  Scientists discover dopamine at the heart of desire
--  El Nino could make 2024 hotter than record 2023
--  'Intense' US blizzard blows Iowa caucus campaigning off course
--  My easy method for hanging sweaters won’t stretch them out or leave marks – people say I changed their lives
--  EKEDC Seeks Tariff Reset To Avert Energy Sector Illiquidity
--  蘋果沒參展，但某種程度上贏得了 CES 2024 頭戴式顯示器競賽
--  Winfree’s WWE Smackdown Review 1.12.24
--  LG Wins 2023 Most Electronics Supporting Partner In Gaming
--  Akron takes down Buffalo 76-59
--  Hastings hits3-pointer at the buzzer as Robert Morris beats Purdue Fort Wayne 91-88 in OT
--  해외 도박사들 "中, 타지키스탄에 유리하지만 필승 보장은 못해"[아시안컵]
--  Kalen DeBoer, Washington football coach, to replace legendary Nick Saban at Alabama
--  Con unidad, la 4T avanza hacia un mejor futuro: López Casarín
--  Mauritius Grants Special Break To Officials for Ram Mandir Inauguration Celebrations
--  «مكافحة التستر»: تصحيح بيانات أكثر من 450 ألف سجل تجاري 2023
--  Fanáticos de Bulls abuchean a ex gerente general fallecido, durante ceremonia
--  El frío provoca cancelación de actos de campaña en Iowa antes de los caucus más fríos de la historia
--  Gophers top Robert Morris as Nathan Airey wins his regular-season debut
--  Tăng 70.000 học sinh trong năm tới, Hà Nội giải quyết bài toán quá tải thế nào?
--  Quán bún riêu cua Hà Nội nhất định phải thử
--  Tin nhắn lúc tối muộn của cô giáo khiến phụ huynh cười chảy nước mắt, học sinh thì run cầm cập: Tết sắp đến rồi, hoan hỉ người lớn ơi!
--  Trời trở nồm, nguyên tắc "3 KHÔNG" giúp nhà hạn chế đổ mồ hôi: Điều cuối cùng rất nhiều người hiểu nhầm
--  Xuất hiện ông chồng khiến nhiều chị em "xin vía", thêm mẹ chồng "bá đạo" Tết năm đầu đã làm con dâu thích mê
--  'Cháy' vé gần 2.300 chuyến bay Tết
--  Giá vàng vọt tăng mạnh ngày cuối tuần
--  Hàng loạt kịch bản lừa đảo mới nở rộ trên không gian mạng dịp cuối năm: Nhận biết để bảo vệ mình
--  Lịch thi đấu và trực tiếp Asian Cup 2023 hôm nay 13/1
--  Sao Marvel thừa nhận lo lắng khi trở lại làm việc sau tai nạn thảm khốc
--  Bom tấn cổ trang chưa lên sóng đã bị chê thậm tệ, dàn nam thần bị dìm nhan sắc vì trang điểm quá lòe loẹt
--  [동행] ‘붕어 할아버지의 작은 꿈’
--  Ministerio de Salud demandó a varias EPS: estas son las razones
--  LEDARE: Vad ser våra unga på Tiktok?
--  Persiapan PON XXI/2024, Ratusan Atlet DIY Masuk Puslatda
--  LEDARE: Vad ser våra unga på Tiktok?
--  James’ 25 help North Florida knock off Jacksonville 82-74
--  "คิดส์เดย์-สนุกสดใส" วันเด็กแห่งชาติ 2567 ทั่วไทยคึกคัก
--  Китайская социальная сеть Weibo заблокировала хэштэг «выборы на Тайване»
--  Premier League: Η Λούτον πήρε το βαθμό στις καθυστερήσεις, 1-1 με τη Μπερνλί στο «Turf Moor» - Δείτε τα γκολ
--  Dangote Refinery begins production
--  Khám phá vận may ngày 13/1: Tý tìm yên bình, Ngọ hứng trọn niềm vui
+-  Joan Collins’ Husband Percy Gibson: All About Their Romance, Plus Her 4 Previous Marriages
+-  Gói 120.000 tỉ đồng bị kêu khó tiếp cận, giải ngân chậm: Bộ Xây dựng nói gì?
+-  Six people arrested over involvement with “Harak Kata”
+-  Giá trị Mason Mount giảm mạnh
+-  Carragher: “Số phận Ten Hag nằm trong tay Ineos”
+-  Mục tiêu của Man Utd đến Man City?
+-  Đằng sau sự đổ vỡ của Martinelli
+-  Palmer tiết lộ quyết định tàn khốc của Guardiola
+-  "Ten Hag là HLV tạm quyền của M.U dưới thời Ineos"
+-  Cựu sao Spurs sẽ tiếp tục ở lại Everton
+-  Carvajal xoa dịu nỗi lo chấn thương cho Real
+-  Woman researched killing kids before poisoning toddler: Cops
+-  EU lanza este viernes otro ataque contra los hutíes en Yemen
+-  젊은 스쿼드 원하는 첼시의 타깃은 19세 공격수…‘이적료 1,675억 필요’
+-  Trump muss "New York Times" Anwaltskosten erstatten
+-  দুদিনের সফরে গোপালগঞ্জের পথে প্রধানমন্ত্রী
+-  পরিকল্পনাহীন উন্নয়নের ফলে জাহাঙ্গীরনগরে পাখি আসা বন্ধ হয়েছে
+-  느그 아버지 뭐하시노? 호날두인데요, 프리킥 한 번 차보자!
+-  ก.ล.ต. แจง Zipmex แก้ไขการดำเนินการของบริษัทตามประกาศและหลักเกณฑ์ให้แล้วเสร็จภายใน 15 วัน
+-  ‘นายกฯนิด’ เปิดงานวันเด็ก มุ่งให้เด็กเรียนรู้ยอมรับความแตกต่าง
+-  My take: When in Karnataka, learn to speak Kannada
+-  Giammattei presenta último informe y Presidencia no confirma ni descarta su participación en toma de posesión de Arévalo
+-  Nuevo DT de Pumas habla de la posible salida del 'Chino' Huerta
+-  Чудно вкусна и лесна: Топ баница с газирана вода РЕЦЕПТА
+-  Τι λένε τα ζώδια για σήμερα Σάββατο 13 Ιανουαρίου 2023
+-  Harris scores 37 points as 76ers, minus Embiid, rout Kings 112-93 to stop 3-game slide
+-  뮌헨, '베켄바워 추모' 경기 승리…케인 22호 골
+-  राप्ति बस दुर्घटना, मृतकको सङ्ख्या १२ पुग्यो
+-  Delhi shivers as mercury hits season’s lowest at 3.6°C; dense fog engulfs parts of North India
+-  У Дніпрі пролунали вибухи під час тривоги
+-  Бегона шахсларни уйдан рўйхатдан чиқариш учун уларнинг розилиги талаб этилмаслиги белгиланди.
+-  카타르, 아시안컵 개막전서 레바논에 3-0 승리
+-  Indigo's Guwahati-bound flight lands in Dhaka due to dense fog
+-  Двое американских военных пропали без вести у берегов Сомали
+-  Enamórate con Bancamiga en estos Carnavales
+-  Cherry Thing-a-Ling season already? You can start ordering the popular Schmidt Bakery treat now
+-  ই-কমার্সে আটকে থাকা টাকা ফেরতের গতি কমে গেছে
+-  Walked the talk, says CM after Yuva Nidhi launch
+-  ดาวโจนส์ปิดลบ 118 จุด ผิดหวังผลประกอบการ
+-  Ally Sentor of North Carolina is top pick in NWSL draft. Teammate Savy King chosen second
+-  Gaz de Tahiti : préavis suspendu et négociations – Hydrocarbures au point mort
+-  울릉도·독도 대설특보 발효…시간당 1~2cm 눈 내려
+-  गोलभेँडा यात्रा र प्रयोग
+-  [갑옷도 만드는 1000년 ‘한지’ 파리를 주름잡다 [함영훈의 멋·맛·쉼]
+-  [중국, 총통 선거 의식했나…대학생 대만 연수 중단
+-  [[김병진의 세상보기]"오른손이 한 일을 왼손이 모르게 하라"
+-  [“한국처럼 개고기 불법으로” 금지법 목소리 커지는 ‘이 나라’
+-  [“나 가지고 논거냐” 20대 女에 차이자 성폭행…30대男, 녹음파일에 덜미
+-  [[부고] 양오봉(전북대학교 총장)씨 부친상
+-  [軍 간부숙소 2026년까지 1인 1실 확보…LH임차, 모듈러 숙소 보급
