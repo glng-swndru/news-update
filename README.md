@@ -1,11 +1,51 @@
 # Latest News
--  Palermo, in meno di un mese due ragazzi uccisi in discoteca. Il prefetto: “Evidente disagio giovanile, serve dialogo con i gestori”
--  Joelinton received security alert that home was being raided while in attendance at Newcastle v Man City
--  למי שייכת השרשרת שנמצאה בחאן יונס?
--  «أندية الهواة» يطوي دورته الأولى بإظهار قدرات المبدعين في المسرح السعودي
--  Renato Sanches Milan: un problema schivato dai rossoneri. Il portoghese si è rivelato un flop
--  Izložba slika 'Ruke pune buke'
--  مجلس الأمن يقرّ بالإجماع مقترح الجزائر لوقف التهجير القسري للشعب الفلسطيني
--  المرصد الأورومتوسطي لحقوق الإنسان: نحو مئة ألف فلسطيني بغزة في عداد الشهداء والجرحى والمفقودين
--  أديب السيد: قمة الغاز ستعزّز مكانة الجزائر وتموقعها عالمياً وجيو سياسياً
--  العدوان الصهيوني على غزة : 100 يوم من القتل والتهجير تخلق أزمة صحية و إنسانية غير مسبوقة
+-  «الأحمر» بحر للعرب لا بحيرة لليهود
+-  המשכן הואר בצהוב: בכנסת ציינו 100 ימים להחזקתם של 136 חטופים בשבי
+-  שני באליפות אפריקה: סק ימתין, מילסון ושואו צפויים לפתוח באנגולה
+-  قائدات وفتيات مفوضية كشاف ومرشدات بنغازي يقمن بزيارة مقر وكالة الأنباء الليبية.
+-  كوريا الشمالية تطلق صاروخا ومع تصاعد التوترات ووزيرة خارجيتها تزور موسكو غدا .
+-  المرصد الأورومتوسطي: 100 ألف ضحية في 100 يوم من الحرب على غزة
+-  ملكة الدنمارك توقع المرسوم التاريخي.. وتتنحى رسميا
+-  جامعة ألمانية تطمس رسما يدعو لوقف الإبادة بغزة بدعوى معاداة السامية
+-  القسام تقصف تجمعات جيش الاحتلال وسط غزة بقذائف الهاون
+-  نجل مارادونا: والدي مات مقتولاً
+-  اليكم البريد الالكتروني لقضاة العدل الدولي لإبلاغهم بجرائم الاحتلال
+-  إيمانويل تود: الغرب وصل مرحلة الصفر الديني ونحن نشهد سقوطه النهائي
+-  حزب إرادة يثمن موقف مصر برفض خطة الكيان بمحور صلاح الدين فيلادلفيا
+-  Ajuste para jubilados y pensionados del IPS será del 3,7% anual
+-  ঠাকুরগাঁওয়ে আইনজীবীদের কালো পতাকা মিছিল
+-  Afghanistan set India 171-run target in 2nd T20I
+-  Ajax begint 2024 met krappe en moeizame zege op Go Ahead Eagles
+-  কিডনি প্রতিস্থাপন বাড়াতে দরকার ‘পজিটিভ প্রচারণা’
+-  Yargı Çınar kimdir? Arda Anarat canlandırıyor! Arda Anarat kaç yaşında?
+-  Yargı Yekta kimdir? Yargı dizisinde Yekta'yı oynayan Uğur Polat kaç yaşında?
+-  Yargı Ceylin kimdir? Pınar Deniz nereli? Pınar Deniz kaç yaşında, sevgilisi var mı?
+-  Yargı Eren kimdir, öldü mü? Yargı dizisinde Komiseri oynayan Uğur Aslan kaç yaşında?
+-  Yargı Parla kimdir? Yargı dizisindeki Parla'yı kim oynuyor? Zeynep Atılgan kaç yaşında?
+-  Yargı Ilgaz kimdir? Kaan Urgancıoğlu canlandırıyor! Kaan Urgancıoğlu diziden ayrılıyor mu?
+-  Son dakika: Yargı Efe kimdir? Yargı dizisi Savcı Efe’yi kim oynuyor? Ulvi Kahyaoğlu hangi dizilerde oynadı?
+-  Yargı Nadide kimdir? Yargı dizisinde Başsavcıyı kim oynuyor? Ayşen Sezerel hangi dizilerde oynadı?
+-  SSK ve Bağ-Kur emeklisine çalışma var mı?
+-  Yargı Kadir kimdir, yakalandı mı? Yargı Kadir’i oynayan Arif Pişkin hangi dizilerde oynadı?
+-  Rabbit R1 AI kompanjon definiše nove kategorije uređaja - AI gadget
+-  Antalyaspor-Trabzonspor maçı berabere bitti
+-  Predstavljeni Asus ROG Aura Light bar i ROG Ergo monitor sa rukom
+-  “God Will Grant Tinubu Good Health, Long Life To Turn Nigeria Around” – Sunday Igboho
+-  Trabzonspor deplasmanda Antalyaspor ile 1-1 berabere kaldı | ÖZET
+-  Gaziantep FK - Fenerbahçe | Canlı skor - canlı skor
+-  Antalyaspor'un İsrailli futbolcusunun gol sevinci tepki çekti
+-  İşgalci İsrail askerleri biri çocuk üç Filistinliyi şehit etti
+-  Bakan Tunç eniştesinin cenazesine katıldı: Taziye dileklerinde bulundu
+-  Trabzon'da taşımalı eğitime kar engeli
+-  Cómo jugar The Last of Us con Gustavo Santaolalla, el compositor de su icónica banda sonora
+-  الأمير فريدريك يعتلي عرش الدنمارك بعد تنحي والدته مارغريتي الثانية
+-  Úrsula Boza, pareja de Christopher Gianotti, se pronuncia luego de polémica frase sobre la “igualdad de oportunidades”
+-  Arcelor et l'Etat français investiront EUR1,8 md pour réduire les émissions
+-  Jose Mourinho saa maanantaina potkut?
+-  ManU-luotsi avasi suunsa hylkiön kohtalosta
+-  Spurs để mắt đến trung vệ Lloyd Kelly của Bournemouth
+-  Clara Brugada y Taboada retroceden; Salomón Chertorivski avanza en las preferencias para la Jefatura en CDMX
+-  رقم قياسي يحفز توتنهام لتخطي عقبة مانشستر يونايتد في الدوري الإنجليزي
+-  "Газпром" обновил суточный рекорд по поставкам газа потребителям в России
+-  Fırtına, Akdeniz'de dindi!
+-  ما الذي تحقق عسكريا بعد 100 يوم من حرب غزة؟
