@@ -1,11 +1,11 @@
 # Latest News
--  Deepika Padukone and Ranveer Singh enjoy as paparazzi dances to Sher Khul Gaye
--  İsrail, İHA saldırısıyla öldürdüğü Aruri'nin iki kız kardeşini Batı Şeria'da gözaltına aldı
--  İYİ Parti'de Meclis'e giren 44 vekilden 1'i ihraç edilirken 5'i istifa etti
--  TSK'nın hava harekatı dünyada geniş yankı buldu! Alman basınından skandal harita
--  '런닝맨' 양세찬, 송지효에 "나랑 베스트 커플상 받자"…새 러브라인 시작?
--  ‘혼혈 GK 선발-쿠보 벤치’ 일본, 베트남전 선발 발표
--  В Петербурге завели уголовное дело в связи с пожаром на складе Wildberries
--  Maçı yarıda bırakmıştı! Beşiktaş'tan Amir Hadziahmetovic açıklaması
--  Kara harekatı sinyali: Bu coğrafyayı düz edeceğiz... Uzman isim tarih verdi
--  Auto total-loss op rotonde N216 bij Groot-Ammers
+-  Hakem Halil Umut Meler'e çiçekli karşılama!
+-  الأمم المتحدة تحذر من تدهور الأوضاع باليمن وتدعو لتجنب التصعيد في البحر الأحمر
+-  Funkel: Bayer stärkerer Bayern-Konkurrent als BVB im Vorjahr
+-  ডলার বন্ডের সুদহার বাড়ানো হয়েছে
+-  Drug, child labour blamed for poor performance in Mwea
+-  239 needy students secure scholarships
+-  Norjalta hurjaa ylivoimaa – Eveliina Piippo hiihti neljänneksi
+-  SM-liigaseura kertoi – näin joukkueen otteluun pääse ilmaiseksi
+-  İsrail'den Refah'ta 4 saatlik ateşkes
+-  Sinop’ta şehitlerimiz için dua edildi
