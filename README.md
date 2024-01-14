@@ -1,51 +1,51 @@
 # Latest News
--  Srpski mediji nakon trijumfa Hrvatske: ‘Ma ovo je bilo domaćinsko suđenje’
--  Gurugram News: स्मॉग और कोहरे की मार, सुबह-शाम दृश्यता शून्य, सां लेने में दिक्कत
--  Gurugram News: होटल में पकड़ी बिजली चोरी, 1. 23 करोड़ का जुर्माना
--  Bhadohi News: सीतामढ़ी में लवकुश ने बांधा अश्वमेघ का घोड़ा
--  Bez iznenađenja - Srbija saznala rivala u borbi za 7. mesto
--  Лидер на хусите: Българските пленници са добре, живеят в лукс
--  Blue Monday, czyli "najbardziej depresyjny dzień w roku". Prawda czy wymysł?
--  Erfitt að lýsa hvernig er að sjá sam­fé­lagið brotna hægt og ró­lega
--  Erik ten Hag SLAMS decision not to award a penalty after Alejandro Garnacho was brought down in Man United's 2-2 draw with Tottenham... as Red Devils boss insists Sir Jim Ratcliffe saw 'a team fighting for each other'
--  Boavista goleia Vizela
--  Montenegro vai ser cabeça de lista da AD por Lisboa e Miguel Guimarães pelo Porto
--  موٹروے پر دھند کا راج، کہاں کہاں سے بند کر دی گئی؟ سفر سے پہلے جان لیں
--  Európsky týždeň | Únia má len jednu fabriku na výrobu trhaviny TNT a päť na výrobu pušného prachu
--  Η ρωσική Εκκλησία αποπέμπει ιερέα που αρνήθηκε να διαβάσει προσευχή υπέρ του πολέμου στην Ουκρανία
--  Τζόκερ έπαιξες; Δείτε τους τυχερούς αριθμούς για τα 5,7 εκ. ευρώ
--  WATCH: Lost walker is found in the Cairngorms in 10 hours call-out
--  Lauren Sanchez Wears Sheer Look While Out with Jeff Bezos in Milan
--  Fubara pledges continuous support for Armed Forces
--  Agra News: लिक्विड मेडिकल ऑक्सीजन प्लांट के टैंक पहुंचे, प्लेटफार्मों पर किए गए स्थापित
--  אחרי התקרית בביה"ס של בנו: סאבלימינל נחקר באזהרה במשטרה
--  Ange hrósaði leik­mönnum sínum í há­stert
--  دراسة لـ”تريندز” تقرأ الاستراتيجية الصينية خلال عقدين
--  Meatworker transforming river trail
--  MATT BARLOW: They are not always in fashion - but there will always be a place for the big man up front
--  Pilibhit News: रामलला प्राण प्रतिष्ठा को लेकर गाए भजन, 101 दीप जलाए
--  Chandigarh News: हरियाणा में छाया घना कोहरा, 48 घंटे बाद राहत के आसार, नौ जिलों में रेड अलर्ट
--  탈당 없다던 류호정, 결국 15일에 기자회견 열고 탈당 의사 밝힐듯
--  Seis detenidos por un supuesto complot para detener la apertura de la Bolsa de Londres
--  Am I just greedy or is the 'Fatso Gene' to blame? Sick of January diets, CLAUDIA CONNELL tries a revolutionary new approach to weight loss - and can't believe the result
--  NNL: WIkki Tourists FC beat ABS FC 3-0
--  Dancing On Ice viewers distracted by the same thing as Stephen Mulhern makes his hosting debut: 'Why does he look like an elf?'
--  В Шушарах, где горел склад Wildberries, вспыхнул еще один пожар
--  찬바람에 기온 뚝↓…아침 최저 -13~0도
--  하마스 "인질 다수, 이스라엘 공격으로 생사 불명"
--  Sant Kabir Nagar News: कार सेवकों पर हुआ था अत्याचार चली थी गोली
--  Firozabad News: हक नहीं मिला तो चुनाव में नहीं डालेंगे वोट
--  Holly Willoughby makes her grand return to TV alongside new co-host Stephen Mulhern after leaving This Morning and retreating from the limelight following kidnap threat
--  Kushinagar News: खुले में रात गुुजार रहे लोगों से रैन बसेरा में जाने की अपील
--  Holly Willoughby makes her grand return to TV alongside new co-host Stephen Mulhern after leaving This Morning and retreating from the limelight following kidnap threat
--  Siddharthnagar News: किशोर को पीटने का वीडियो वायरल
--  Pilibhit News: मकर संक्रांति पर खिचड़ी भोज, दान कर पुण्य कमाया
--  محمد بن راشد يعتمد أولى المشاريع التحولية ضمن “أجندة دبي الاجتماعية 33”
--  Kirbi poručuje Izraelcima: Vreme je da smanjite operacije u Gazi
--  Gerüchten zufolge verfügt Apple Vision Pro über einen High-End-M2-Chipsatz mit mehr GPU-Kernen
--  APEL: Sead ima tumor na mozgu, pomozimo mu
--  KDH vyzýva ministerstvo vnútra, aby zverejnilo, či sa Danko podrobil dychovej skúške na alkohol
--  Chiusi batte Oriznuovi: due punti pesanti nella lotta salvezza
--  Ricky Hatton faces the skate off with his partner Robin Johnstone as judges score them 12.5 during Dancing On Ice launch show
--  الشورى العُماني يدين العدوان على اليمن
--  عبدالسلام: تحليق مكثف للطيران الأمريكي في الأجواء اليمنية
+-  "Ich war so drauf!": Pete Davidson war auf Beerdigung high
+-  Dos aparatosos accidentes tipo salida de camino dejan daños materiales en Guasave
+-  Supercopa de España: Real Madrid es campeón al golear 4-1 al Barcelona (VIDEOS)
+-  Yoğun kar yağışı yolları kapadı: Artvin'de eğitime kar engeli
+-  Antalya Cumhuriyet Başsavcılığı Jehezkel hakkında soruşturma başlattı
+-  Fatih Terim'in çalıştırdığı Panathiniakos AEK deplasmanında son dakikada yıkıldı
+-  İspanya Süper Kupa Şampiyonu Real Madrid
+-  Preisgekrönte iranische Journalistinnen auf Kaution frei
+-  Projekti në Danimarkë, fut në shkolla Inteligjencën Artificiale
+-  El Clasico dla Realu. Barcelona pogrążona. Vinicius przyćmił Lewandowskiego
+-  Iran releases journalists jailed for covering Mahsa Amini death after 17 months
+-  Real Madrid deklasirao Barcelonu i osvojio 13. trofej pobjednika španskog Superkupa
+-  «Реал» победил «Барселону» и в 13-й раз выиграл Суперкубок Испании по футболу
+-  Real Madrid maakt gehakt van FC Barcelona en dankt waanzinnige Vinícius Júnior
+-  Preisgekrönte iranische Journalistinnen auf Kaution frei
+-  Preview: Woking vs. Gateshead - prediction, team news, lineups
+-  Congreso: Ética realizará mañana audiencia para ver expedientes de Juan Carlos Lizarzaburu
+-  Türkiye'nin ilk uzay yolcusu Gezeravcı, son hazırlıklarını yapıyor
+-  24 terör hedefi imha edildi!
+-  Van'da kalp krizi geçiren muhtar köy yolu açılarak hastaneye kaldırıldı
+-  Şırnak'ta Habur Çayı'na düşen otomobil vinç yardımıyla çıkartıldı
+-  Erzincan'da mobilya yüklü tır alev alev yandı
+-  Gaziantep Futbol Kulübü, Fenerbahçe'ye 1-0 mağlup oldu
+-  Antalyaspor'un İsrailli oyuncusundan skandal gol sevinci
+-  Artvin'de yarın okullar var mı?
+-  Adalet Bakanı Tunç'tan İsrailli futbolcu hakkında açıklama
+-  В Шушарах загорелся ангар на площади 150 квадратных метров
+-  Türk Telekom farka koştu!
+-  Tanzanya'da madende göçük: 22 ölü
+-  İşgalci İsrail'den Doğu Kudüs'te yaşayan 200 Filistinliye alçak tebligat
+-  Anadolu Efes hata yapmadı!
+-  Fainting at grocery store, woman grateful for couple’s assistance
+-  Fatih Terimli Panathinaikos, son dakikada yıkıldı!
+-  Güngör fordert Verbotsverfahren gegen AfD
+-  Current increased heating getting more furious
+-  Puente cree que "lo único" que tiene que ver el vertido de pélets con el Prestige es "la gestión" de la Xunta
+-  Erdrutsch mit tödlichen Folgen: 22 Bergleute sterben in Tansania
+-  Cañas (Cs) ve un error dar competencias de inmigración a "quien tiene un componente xenófobo"
+-  Demonstrowali przed więzieniem. Maciej Wąsik pojawił się w oknie
+-  Políticos, periodistas y empresarios asisten a la capilla ardiente de Miguel Barroso
+-  Costa norte del Perú tendrá temperaturas extremas hasta fines de enero: Lima, Piura, Tumbes y La Libertad superarán los 30 ºC
+-  Preisgekrönte iranische Journalistinnen auf Kaution frei
+-  La ministra de Exteriores norcoreana comienza el lunes una visita de dos días a Rusia
+-  Захарова призвала прекратить снабжение Украины оружием
+-  Jorge Prado gana su primera manga del AMA Supercross en San Francisco
+-  Gigantyczna sensacja na ME piłkarzy ręcznych. Zimny prysznic dla mistrzów olimpijskich
+-  Would Sinn Fein's Democratic Socialism mean heavy handed, meddlesome interventions in the Irish private sector, scaring off multinationals?
+-  Kavun Kilo Aldırır Mı? Kavun Kilo Yapar Mı?
+-  BSW: Umfrage sieht Wagenknecht-Partei bei 14 Prozent im Bund
+-  Fatih Terim'i 90+6'da penaltıdan üzen gol
