@@ -1,11 +1,51 @@
 # Latest News
--  Teamkwis Texel 2024 op 10 februari
--  Lider Girona'dan sürpriz puan kaybı
--  5 gollü maçta kazanan Ajax
--  İsmail Kartal: Krunic ve Bonucci...
--  Bakan Fidan ve Güler TBMM'yi bilgilendirecek
--  Murat Kurum, eski AK Parti İstanbul il başkanlarıyla bir araya geldi
--  TBMM terör gündemiyle toplanıyor: Bakanlar Güler ve Fidan Genel Kurul'u bilgilendirecek
--  בג"ץ קבע: נשים יוכלו להתמנות להרכב האסיפה הבוחרת את חברי מועצת הרבנות הראשית ואת הרבנים הראשיים
--  נתניהו בישיבת תקציב המדינה: "כלכלה חזקה צריכה צבא עוצמתי"
--  מעצרי פעילים, ירי לאוויר וגז מדמיע: אבו מאזן מאבד שליטה על החמושים ביו"ש
+-  Antalyaspor'un İsrailli futbolcusu Jehezkel ceza alacak mı?
+-  MİT'ten Suriye'de terör operasyonu
+-  Selectie vv Heerde schenkt een bedrag aan de jeugdafdeling van de vv Heerde
+-  "من المخلفات".. لاعب المنتخب النيجيري يرتدي حذاء الأول من نوعه في كأس الأمم الإفريقية.. ما القصة؟ (
+-  عقب ثوران بركاني.. اشتعال النيران في تجمعات سكنية جنوب غربي آيسلندا
+-  مسيحيون ورهبان يقدمون العزاء لأسرة المستشار عزيز عيساوي (صور)
+-  احتياطي منتخب مصر لمواجهة موزمبيق في كأس الأمم الإفريقية
+-  من جاور السعيد يسعد.. أبراج "وشها حلو" على من حولها
+-  هدف فوفانا يقتحم قائمة أسرع 10 أهداف في تاريخ افتتاحيات كأس الأمم الأفريقية
+-  بإمكانيات غير مسبوقة.. "realme 11 pro plus" أفضل هاتف ذكي مبتكر في 2023 - إعلان تحريري
+-  "المدرب فوقني وزعق في وشي".. طارق يحيى يكشف كواليس كأس الأمم الإفريقية 1986 (فيديو)
+-  كنز داخل الملعب وخارجه.. كيف يحل الزمالك أزماته بـ "مواهب زامورا"
+-  韓国で働く 笹部佳子 著 - thenewsunlimited.com
+-  月刊事業構想 (2016年2月号 大特集「地方・中小企業にチャンス 交通・物流革命」) - thenewsunlimited.com
+-  ワンオペ完全マニュアル バル・ビストロ・レストラン 20店が実践する一人で店をまわすための仕事術 柴田書店 - thenewsunlimited.com
+-  仕事で必要な「本当のコミュニケーション能力」はどう身につければいいのか? 安達裕哉 - thenewsunlimited.com
+-  図解＆事例で学ぶ会議・打ち合わせの教科書 会議・打ち合わせ研究会 著 - thenewsunlimited.com
+-  日本銀行のプルーデンス政策と金融機関経営 金融機関のリスク管理と日銀考査 熊倉修一 - thenewsunlimited.com
+-  決定版Web3 城田真琴 - thenewsunlimited.com
+-  投資経済 2016年 02 月号 雑誌 - thenewsunlimited.com
+-  週刊 ダイヤモンド(２０２３ ７／８) 週刊誌／ダイヤモンド社 - thenewsunlimited.com
+-  月刊 食堂 2010年 12月号 雑誌 - thenewsunlimited.com
+-  銀行員のための相続ビジネスと相続税法 相続ビジネスに税法はどのように使われているか 田中耕司 長嶋隆 豊田美樹 - thenewsunlimited.com
+-  月刊 総務(２ ２０１７ ＦＥＢＲＵＡＲＹ) 月刊誌／ウィズワークス - thenewsunlimited.com
+-  成果を上げるライブコマースの教科書 双方向のやりとりで顧客の欲しいを引き出す新しいEC戦略 武者慶佑 池田好伸 川田麻由佳 - thenewsunlimited.com
+-  日経ビジネス Associe (アソシエ) 2010年 6号 雑誌 - thenewsunlimited.com
+-  週刊東洋経済 (2015年6／20号) - thenewsunlimited.com
+-  日経マネー 2018年 12 月号 - thenewsunlimited.com
+-  決算書の見方・読み方 〈融資力〉トレーニングブック 酒井啓二 - thenewsunlimited.com
+-  日本におけるビジネス支援企業ダイレクトリー Directory for setting up enterprises in Ja - thenewsunlimited.com
+-  近代食堂 2010年 11月号 雑誌 - thenewsunlimited.com
+-  入門日本金融史 落合功 著 - thenewsunlimited.com
+-  定量的リスク管理の実務 流動性リスク管理、FTP、リスク統合、ストレステストの実践的手法 ジミー・スコグランド ウェイ・チェン - thenewsunlimited.com
+-  金融経済〈200〉 1983年6月 創刊200号記念号 - thenewsunlimited.com
+-  高勝率トレード学のススメ 小さく張って着実に儲ける マーセル・リンク 山下恵美子 - thenewsunlimited.com
+-  週刊 ダイヤモンド 2011年 17号 雑誌 - thenewsunlimited.com
+-  ネットワークビジネス 2011年 03月号 雑誌 - thenewsunlimited.com
+-  おっさんず六法 松沢直樹 山岸純 - thenewsunlimited.com
+-  雑談力が上がる話し方 30秒でうちとける会話のルール 齋藤孝 著 - thenewsunlimited.com
+-  週刊 ダイヤモンド(２０２２ ３／１２) 週刊誌／ダイヤモンド社 - thenewsunlimited.com
+-  感性イノベーション 感性をビジネスに活かす 長町三生 - thenewsunlimited.com
+-  週刊ダイヤモンド 2012年12月15日号 電子書籍版 週刊ダイヤモンド編集部 - thenewsunlimited.com
+-  宣伝会議編集部 宣伝会議 2024年 1月 号 - thenewsunlimited.com
+-  信託ビジネスのニュートレンド 新井誠 - thenewsunlimited.com
+-  ＴＨＥ ２１(１２ ２０１６) 月刊誌／ＰＨＰ研究所 - thenewsunlimited.com
+-  エコノミスト 2016年12月13日号 電子書籍版 エコノミスト編集部 - thenewsunlimited.com
+-  池上彰のニュースそうだったのか!! 池上彰 「池上彰のニュースそうだったのか！！」スタッフ - thenewsunlimited.com
+-  週刊東洋経済 2020年2 22号 雑誌(ニッポンの生命線が危ない 船・港 海の経済学) - thenewsunlimited.com
+-  軍事研究(２０１９年８月号) 月刊誌／ジャパン・ミリタリー - thenewsunlimited.com
+-  週刊ダイヤモンド 2023年12月9日号 - thenewsunlimited.com
