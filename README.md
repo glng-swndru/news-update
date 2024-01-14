@@ -1,51 +1,51 @@
 # Latest News
--  Karščiausias pasaulio taškas. Fronte – net T-34. Kokius ginklus turi Jemenas (Video)
--  Sunku patikėti, kad tai tęsiasi toliau. Skelbiami nauji duomenys
--  [ŽT] Dvigubai daugiau rusų. Ką sumanė Latvija
--  ВСУ из ПТРК «Стугна-П» уничтожили группы пехоты и бронетехнику оккупантов в Запорожской области
--  Ukraine-Konferenz: Rund 80 Staaten treffen sich in Davos
--  Feller siegt auch in Wengen vor McGrath
--  انخفاض طفيف بأسعار الدولار في بغداد وأربيل مع الإغلاق
--  Solidarität mit Geiseln: Israel streikt für 100 Minuten
--  Asesinaron a 256 mujeres en el 2023
--  Deben firmas mexicanas pagar nuevo impuesto en otros países
--  Buscan a implicado en desaparición de colombianas en Tabasco
--  ¿Cómo ayudar a una persona alterada?
--  London: Ukraine-Krieg hat Folgen für russisches Gesundheitswesen
--  Steinmeier: Regierung muss Entscheidungen besser kommunizieren
--  Menjelang Kampanye Terbuka, 15 Instansi di Solo Deklarasi Jateng Zero Knalpot Brong
--  Un día antes de asambleas electorales de Iowa, Trump sigue delante
--  De Bruyne inspires Man City comeback in Premier League return to show he can swing title race
--  Defending champion Djokovic fends off first-timer Prizmic in 4 hours to advance in Australia
--  Limassol theatre’s thrilling performances continue
--  Ľudia sú ochotní robiť bizarné veci, aby dostali vysnívanú prácu: Ktorým sa to prekvapivo vyplatilo?
--  Parádna OSLAVA narodenín TWiiNSkinej dcérky: Z bábätka je už krásna princezná!
--  Separ po 4 dňoch v indonézkej base: SOM VONKU... Nebola to žiadna sranda!
--  Granada oficializa saída de Alvaro Fernandez
--  Напаѓачите дошле со црн џип: Газда на бензинска пумпа во Атина изрешетан со 80 куршуми
--  Дания се разделя с най-дълго управлявалия монарх - Маргрете II (На живо)
--  Comisión electoral de RDC anunció sanciones a implicados en fraude
--  KPU Tegaskan Tidak Ada Perubahan dalam Format Debat Keempat
--  Mit Waffe gedroht - Wiener Polizei sucht Mann mit Heli
--  Nooralotta Neziri avasi hallikautensa – myönsi rehellisesti: "Tehoa siitä vielä puuttuu"
--  Manchester United haluaa hyökkääjän – tätä miestä on verrattu Zlatan Ibrahimoviciin
--  Balazo mortal: acusan a quinceañero de matar a joven a la salida de un cumple
--  Australian avointen mestaripelaaja Novak Djokovic vaikuttui 18-vuotiaan Dino Prizmicin asenteesta – "Hän laittoi minut juoksemaan"
--  Ndalohet në Petrovec një shoferi me 3.7 promil alkool në gjak
--  Νομιμοποίηση της ευθανασίας:Μετά και την Κούβα, η Κύπρος;
--  Tesla pierde más de 94.000 millones de dólares de valor de mercado
--  Rundfunkbeitrag: CDU-Vorstand schließt Erhöhung nicht kategorisch aus
--  Novak Djokovic survives scare in opposition to 18-year-old qualifier in Australian Open opener
--  সাভারে তিন আবাসন কোম্পানির সব কার্যক্রমে নিষেধাজ্ঞা
--  Tapë në makinë dhe me armë me vete, arrestohet 45 vjeçari nga Lushnja
--  Lawyer for E. Jean Carroll suggests Trump misrepresented need to adjourn trial
--  Mercato - RC Lens : Star à Lens, il se lâche sur son avenir
--  Карягин официално при Пламен Константинов в Новосибирск
--  David Cameron a jemeni bombázásról: A brit kormánynak nem volt választása
--  Европе предрекли многолетний период высоких цен на газ
--  Aslı Murat: Sahile vuran cansız bedenler kim ve niye bu şekilde ölüyorlar?
--  „Einer der größten Justizirrtümer der britischen Geschichte“: Hunderte Poststellenleiter in den Ruin getrieben
--  «Ланс» — «ПСЖ»: прогноз на матч лиги 1 14 января 2024 года
--  Islandia, drones y el transporte, temas interesantes
--  Herzschlagfinale: Vittozzi sprintet zum Sieg
--  Netanyahu: "Nadie nos detendrá de destruir a Hamás"
+-  ใกล้จุดเดือด!?!เปิดจุดยืนการเมืองของประชาชน ถ้าวันนี้เลือกตั้ง‘ใครหนุนใคร’เป็นรัฐบาล
+-  El Tesoro celebra esta semana las dos últimas pujas de enero
+-  El IPC de la eurozona, el PIB alemán y la encuesta ZEW, marcan la agenda bursátil
+-  „Nem leszel büszkén bunkó, nem leszel egy utolsó suttyó” – Hipnózissal próbálkoztak Pintér Sándornál a tüntető diákok – Videó!
+-  Pakistan refuses to participate in US operation in Red Sea against Houthis
+-  VI meldt groot nieuws: Ajax nadert persoonlijk akkoord met toptarget Henderson
+-  84550 شهيد وجريح في العدوان على غزة
+-  Lukket for nye tilskuere: Nu skal du længere væk for at se Danmarks nye konge
+-  PP siatkarzy - Jastrzębski z Treflem, Resovia z LUK
+-  Κοντογεώργης για ομόφυλα ζευγάρια: Στα θέματα των παιδιών πρέπει να υπάρχουν συναινέσεις
+-  Niedersachsen: Tarifabschluss für Landesbeschäftigte soll auch für Beamte gelten
+-  Президент ОАЭ выразил соболезнования Эрдогану
+-  AK Parti'nin tanıtım toplantısının tarihi bu hafta netleşecek
+-  Kırmızı elma mı yeşil elma mı daha faydalı? Günde 1 elma yenirse ne olur?
+-  Ariana Grande'nin takıntılı hayranına hapis cezası
+-  Samet Akaydin: Her Türk, Fatih Terim'le çalışmak ister
+-  TSK saldırıya misliyle karşılık verdi
+-  Hizbullah, İsrail'in askeri noktalarına saldırı
+-  Γάζα: 100η ημέρα πολέμου με την ανθρωπιστική κατάσταση να επιδεινώνεται και το Ισραήλ ανυποχώρητο
+-  Эксперт: Азии нужно поучиться у России противостоять однополярному миру
+-  Ljubitelj videoigara tražio oprost navijača pa ušao u legendu, no i dalje ne prihvaća Modrićev uspjeh karijere
+-  Tanska sai kuninkaan, kuningatar luopui kruunusta
+-  Tod von Franz Beckenbauer: Manager Marcus Höfl lobt Gedenk-Aktionen des FC Bayern
+-  Izbornik hrvatskih rukometaša uoči Austrije: “Čeka nas utakmica u kojoj moramo postaviti svoja pravila”
+-  Δολοφονία στο Νέο Κόσμο: Σοκαριστικό στιγμιότυπο από την εκτέλεση του Βαγγέλη Ζαμπούνη
+-  Viral news: సముద్రపు నీటితో పాస్తా వంటకం వీడియో చుశారా
+-  ¡Alex Valera se queda en Universitario! Cremas igualaron oferta de club japonés y renovarán su vínculo
+-  14 False Facts About Canned Beans You Thought Were True
+-  "맨유 떠나니까 집에 돌아온 것 같아!"...'1200억 금쪽이' FW, 복귀전 22분 만에 어시스트
+-  “너 밥을 왜 먹냐?” 83세 할아버지가 1004G 레전드 불펜을 깨웠다…그렇게 197SV·145홀드 ‘금자탑’
+-  بعد 100 يوم على حرب غزة.. الفرق بين نكبة 48 و2023 «جودة الصورة فقط»
+-  Βασιλική Μιλλούση και Λευτέρης Πετρούνιας στα χιόνια με τα παιδιά τους
+-  Ranji Trophy 2023-24: Kerala in control despite Riyan Parag’s dazzling century
+-  Dålig start sänkte Brynäs mot Skellefteå AIK J20
+-  Dålig start sänkte Brynäs mot Skellefteå AIK J20
+-  Kong Frederik X er Danmarks nye regent
+-  Aquarius 15 January 2024 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  Európska únia chce k voľbám prilákať mladých, osloví hviezdy ako Stromae či Maneskin
+-  Popović na sastanku Svjetskog ekonomskog foruma u Davosu
+-  Check rampant use of mobile phones while riding
+-  Alisson fez 'ponte' para Ferreirinha acertar com o São Paulo
+-  Lajčak će u Davosu imati odvojene sastanke sa Vučićem i Kurtijem
+-  Novorođena beba nađena u kanti za smeće: ‘Išao sam baciti otpad, a zaustavio me plač. Pomislio sam da je mačka...‘
+-  Draymond Green’s return is imminent, and the Warriors desperately need his voice
+-  پلان ’اے‘ اور پلان ’بی‘ کی ناکامی کے بعد تحریک انصاف نے پلان’سی‘ پر عملدرآمد شروع کردیا
+-  Im vierten Rennen - Manuel Feller rast in Wengen zu drittem Saisonsieg
+-  Demat Accounts: Good News! Demat account can be blocked online like debit card, SEBI made new rule
+-  하지원, 로즈메리 라면→올리브유에 밥 말아 먹기 '괴식'…"배우 되길 다행"('미우새')
+-  Rize'de 'Kış Yüzme Şenliği'nde buzla kaplı gölde yüzdüler
+-  Chiêm ngưỡng lễ cưới hoành tráng của Hoàng tử Brunei
