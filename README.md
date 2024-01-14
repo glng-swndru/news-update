@@ -1,11 +1,51 @@
 # Latest News
--  La Torino '81 vince contro il Como Nuoto
--  FISI-AOC - Skeleton a Sankt Moritz e Trofeo Asf Gara “Piedi Veloci” a Limone
--  강남구-고용노동부, 배달 이륜차 무상점검 실시
--  은평구, '출산용품교환권' 둘째 자녀 이상 출산 가정에 확대 지원
--  강북구, 장애인 전동보장구 수리비‧보험가입 지원
--  영등포구, 기후 변화 대응 앞장…민관 함께 '희망의 숲' 조성
--  마포구 햇빛센터, 임산부‧영유아 대상 '영양플러스 사업' 운영
--  도봉구, 예비부모 '임신‧출산' 건강검진 지원
--  2023 원주 만두축제 평가 용역 결과 및 발전방안 보고회 개최
--  김진태 강원도지사, 美 캘리포니아주 방문…'바이오 특화단지' 유치 노력
+-  Deal: Garmin Fenix ​​7S Solar Smartwatch jetzt zum Tiefpreis mit 100 Euro Rabatt
+-  Man svårt skadad efter vådaskott
+-  Sudoku difícil: 14 de enero de 2024
+-  Sudoku medio: 14 de enero de 2024
+-  Sudoku fácil: 14 de enero de 2024
+-  Sudoku mini: 14 de enero de 2024
+-  Crucigrama difícil: 14 de enero de 2024
+-  Crucigrama medio: 14 de enero de 2024
+-  Crucigrama fácil: 14 de enero de 2024
+-  Crucigrama mini: 14 de enero de 2024
+-  Sopa de Letras clásica: 14 de enero de 2024
+-  '졸혼' 백일섭 "딸과 연락 안한 기간이 7년, 난 나쁜 아빠다"
+-  Im Live-TV – BVB-Boss Watzke verteidigt Sancho
+-  '이런 외인 동료 없습니다'…'생일맞은 수훈선수' 꽃단장까지 완벽하게 [곽경훈의 현장]
+-  ยิปซี 12 นักษัตร พยากรณ์ : ระหว่างวันที่ 14-20 มกราคม พ.ศ.2567
+-  กรมอุตุฯประกาศฉบับที่ 6 เตือน‘อากาศแปรปรวนบริเวณประเทศไทยตอนบน’
+-  10 best ever video game openings – Reader’s Feature
+-  Sir Tony Blair had close links with Fujitsu BEFORE he became Prime Minister and signed off on the £900m Post Office contract with the firm in 1999 despite being warned that the Horizon accounting software looked 'increasingly flawed'
+-  Alec Musser dead at 50: All My Children soap star and fitness model passes away at his home in Del Mar
+-  ¡Se lleva el mérito! Elkin Alcalá es el Relevista del Año en la LMP
+-  Việc Trung Quốc rơi vào bất ổn kinh tế khiến Đài Loan có nguy cơ bị xâm lược cao hơn
+-  Will Hugh Jackman seine Deborra zurück?
+-  Christine McGuinness 'devastated' as she finds out ex husband Paddy is making a 'mockumentary about their divorce'
+-  Generational war erupts over Australia Day: Baby boomer issues scathing message to Aussies who oppose January 26 - as Gen Z woman pushes 'change the date' and cuts off her mates who voted No to the Voice
+-  Harry Styles Was Considered for This ‘Mean Girls’ Role
+-  On The Red Carpet celebrates awards season 2024
+-  Sudoku difícil: 14 de enero de 2024
+-  Sudoku medio: 14 de enero de 2024
+-  Sudoku fácil: 14 de enero de 2024
+-  군위군 우보면, 희망2024 나눔캠페인 열기 '후끈'
+-  Hãng thiết kế cho VinFast tung xe nhà kéo biến hình đầy sáng tạo
+-  10 kiến trúc mới sẽ định hình thế giới năm 2024
+-  Điểm tin 8h: Miền Bắc sắp đón không khí lạnh mạnh; Bão mùa đông tấn công nước Mỹ
+-  Texas congressman says migrants drowned near area where US Border Patrol had access restricted
+-  TIMELINE: Major events during 100 days of war between Israel and Hamas
+-  कर्मचारी कटौतीमा प्रधानमन्त्रीकै लोकरिझ्याईँ
+-  Tarasenko gives Ottawa its first win of 2024 with game winning goal
+-  Tarasenko gives Ottawa its first win of 2024 with game winning goal
+-  US Supreme Court Declines to Hear Case Opposing Cash Bail in Dallas County
+-  ‘Pran Pratishtha’: Celebrations to be held at Hyderabad’s SitaRam Bagh Mandir ahead of Jan 22 event
+-  Líderes del Congreso de EEUU acuerdan proyecto de ley para evitar el cierre, según medios
+-  الإيقاد كانت تعلم أن حميدتي سيغيب من لقاء البرهان
+-  John Kerry tritt als US-Klimabeauftragter zurück
+-  VICSWIM 2024 in full swing
+-  CFA supports flood affected communities
+-  International guests in Hume
+-  Tình tiết bất ngờ: Cựu giám đốc tình báo FBI điều tra vụ thông đồng Trump-Nga nhận 4 năm tù
+-  오늘 전국 대부분 비·눈…'빙판길·살얼음' 등 주의
+-  Safety program reaches thousands
+-  Rekorder Straud i paklena odbrana: Teksansi razbili Braunse
