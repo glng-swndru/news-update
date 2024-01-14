@@ -1,51 +1,11 @@
 # Latest News
--  الترجمة الصحفية ورشة تدريبية لطلبة جامعة عمان العربية
--  ارتفاع ودائع البنوك 2.8% نهاية تشرين الماضي
--  شكر على تعازٍ من عشائر الحباشنة
--  الرزاز يلتقي مبادرات شبابية تنموية في مادبا
--  Bu avtomobillər yola çıxmasın!
--  Another tobacco shop targeted in Melbourne
--  Pemkab Gelontorkan Rp19 Miliar untuk Modernisasi Pertanian di Sleman
--  על הראש שלנו: הקשר בין מייבש שיער לטכנולוגיית איפרא אדום ורחפנים
--  Tributes to 'compassionate' doctor stabbed after home invasion
--  Muhammad Adham hilang selepas solat Jumaat
--  Fenerbahçe'de Ryan Kent ayrılığı çok yakın
--  İbrahim Güneş yazdı: Sen sus bari!
--  Onun kalitesinde bulmak çok zor! Fenerbahçe'den Michy Batshuayi kararı
--  Tamam mı devam mı? Kerem Aktürkoğlu kararını verdi
--  Yunan Bakan Gerapetritis: Türkiye ile yeni bir aşamaya girmeye çalışıyoruz
--  İsrail'in 100 günlük Gazze fiyaskosu!
--  Mauro Icardi'nin kötü haber! Sahalara dönüş tarihi ertelendi
--  Yemenli analistler: ABD'nin Husilerle kapsamlı çatışmaya girmesi uzak ihtimal
--  Milot Rashica'dan harika istatistik!
--  Fernando Santos'tan Beşiktaş'ta ilk değişiklik
--  The Telegraph: EE.UU. está "frustrado" con el Reino Unido por la filtración de los planes de atacar a Yemen
--  A África do Sul tem boas chances na Corte Internacional de Justiça
--  Cine este noul rege al Danemarcei. Printul Frederik urcă pe tron dupa abdicarea mamei sale. Prinţesa Mary devine Regina Consoartă
--  Tìm người chạy xe ngược chiều trên cao tốc Mỹ Thuận - Cần Thơ
--  Giành Quả cầu vàng nhưng Robert Downey Jr. vẫn thấy bất công với phim siêu anh hùng
--  Factory Output Hits Low In November, Food Prices Drive December Inflation Surge
--  Съдбата на лимузините на Тодор Живков и други комунистически величия
--  Manufacturing workers over 60 exceed under 20s for first time
--  Australia outmuscles India with 2-0 win in Asian Cup
--  Female solo artists to steal limelight in January
--  Falling birthrate forces companies scale back baby product business
--  Bibigo features in Harvard Business School case study
--  Dita e sotme do të jetë me kthjellime dhe vranësira mesatare
--  Turek si nechal prodloužit přirození. Po operaci si stěžuje, že nastal pravý opak
--  «Кембриж бешлиги» – СССР ташқи разведка хизмати учун ишлаган британиялик жосуслар кимлар эди?.
--  15 январ куни айрим ҳудудларда қор ёғиши кутилмоқда.
--  Tallinna keskerakondlane püüdis Moskva-meelse sotsiaalpostitusega Lasnamäe valijate armastust
--  Malta Chamber of Commerce says price fixing is not a viable solution to the issue of inflation
--  „Here we go!”. Z Manchesteru United do Benfiki
--  Gender mechanism still being evaluated five months before local council elections
--  North Korea tests ballistic missile, Japan says
--  Niewypał transferowy Śląska Wrocław zostanie w Ekstraklasie?! Dwa scenariusze
--  ऊंट महोत्सव-2024 : रेतीले धोरों में ऊंट और घुड़ दौड़ देखने उमड़ा सैलानियों का हुजूम, ऊंटों ने दिखाए करतब
--  Жалбите на отхвърлените собственици на сгради за саниране, да се разглеждат в цялост, предложи омбудсманът
--  What Can We Expect from GTA 6?
--  20대 취업자 제조업보다 숙박·음식점업이 더 많아
--  한동훈, 당 지지도 정체에 "서서히 알아봐 줄 것" 자신
--  차례주 가격 싸진다…경주법주, “약주·청주 제품 출고가 4~5% 인하”
--  국민의힘 공관위 16일 컷오프 기준 등 첫 회의…'20%+α' 현역 물갈이 촉각
--  대구시, 소아응급 전담 전문의 늘린다…칠곡경북대병원에 6억원 지원
+-  울진 죽변 해안스카이레일 전동차 화재…배터리 과열 추정
+-  اسعارها تصل الى (70) الف دولار : كسبة يبيعون بيوتا ليشتروا بسطات في الاسواق
+-  كربلاء:اختتام دورة (الإشاعة والحرب النفسية)
+-  Vozač iz BiH skrivio udes u Njemačkoj, šteta veća od 60.000 eura
+-  Лев Рубинштейн скончался в 76 лет: последние фото поэта
+-  Država u regionu prva uvodi sedmosatno radno vreme?
+-  PKP SA zakończyły inwestycje dworcowe o wartości ponad 1,4 mld zł
+-  선거 80여일 남았는데 '선거구 미획정'… 수백킬로 이동 예비후보들 '불안'
+-  Осиё кубоги: Гуруҳларда вазият қандай?
+-  14 январь – Ватан ҳимоячилари куни
