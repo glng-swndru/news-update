@@ -1,11 +1,51 @@
 # Latest News
--  المغرب يواصل انتهاك حقوق الاسرى المدنيين الصحراويين ومصادرة حقهم في العلاج
--  Rusza miejska stacja paliw. Ma być taniej niż na innych
--  От началото на учебната година: 57 деца и ученици са върнати в образователната система в Русенско
--  Борис Бонев: На общинските съветници много им се услади в последните два месеца да не работят
--  200 años al servicio de los ciudadanos
--  UN: Kämpfe im Sudan jetzt auch in wichtiger Ernte-Region
--  Wadenbein angebrochen: Waldschmidt fehlt Köln mehrere Wochen
--  Nach Beckenbauer-Frage: Effenberg verlässt weinend TV-Set
--  Rund 150.000 Euro Sachschaden bei Scheunenbrand in Laußnitz
--  A-72-Anschlussstelle Hartenstein: Unbekannte versuchen Audi auf Pendlerparkplatz aufzubrechen
+-  Onde pára Benzema?
+-  Papa reafirma que "a guerra é um crime contra a humanidade"
+-  Son dakika... Cumhurbaşkanı Erdoğan, BAE Devlet Başkanı ile görüştü
+-  İstanbulspor-Konyaspor maçında devreye giren ofsayt sistemi tartışmalara neden oldu
+-  Kickoff | Roma give Mourinho 'ultimatum' amid poor form
+-  جيش الاحتلال الإسرائيلي يطلب من سكان غزة الانتقال من شمال القطاع لجنوبه
+-  مجلس النواب يوافق نهائيا على قانون الأموال المستردة
+-  بالصور والأسعار.. شاومي تضرب سامسونج بسلسلة بوكو X6 برو قاتل الهواتف الرائدة
+-  Christine McGuinness 'deeply' hurt by ex husband Paddy
+-  Giresun'da tartıştığı türkü evi işletmecisi kadını kablo ile boğdu
+-  Şehit babası hayatını kaybetti!
+-  CHP'li Engin Altay'ın babası, son yolculuğuna uğurlandı
+-  Bursa'da şehitlerimiz anılıyor!
+-  Bursa'da bir kişi evinde yaşamını yitirdi
+-  Cumhurbaşkanı Erdoğan, BAE Devlet Başkanı ile görüştü
+-  Antalyaspor - Trabzonspor maçı CANLI İZLE (Antalyaspor - Trabzonspor maçı canlı anlatım)
+-  İstanbulspor ve Konyaspor, Yarı Otomatik Ofsayt Sistemi'ne takıldı
+-  V roku 2024 by Slováci mohli triediť odpad zodpovednejšie a poctivejšie
+-  Cameron obhajoval americko-britské nálety na húsíov v Jemene
+-  Djokovic survives scare as young contender announces himself on big stage
+-  Cimbom, Sacha Boey'in bonservisini belirledi
+-  34 killed after mudslide hits busy road in Colombia
+-  Disfurta de una exquisita mousse de durazno en simples pasos
+-  Gala Gölü Milli Parkında kara avcılığı denetimi!
+-  פסגות: "תהליך הפחתות הריבית בישראל עשוי להיות איטי מאוד"
+-  במקום אוכל לתינוקות - רכישת נשק: השיטה הכלכלית של חמאס נחשפת
+-  בן כספית נגד יאיר נתניהו: "אין לתאר, עוד יש לו טענות"
+-  שרית פולק חושפת את גבר החלומות שלה - וזה ממש לא אורי נגר
+-  5 جنيهات ثمن تذكرة دخول معرض القاهرة للكتاب
+-  סופה של תקופה? האם טום הולנד וזנדאיה נפרדו אחרי שנתיים ביחד?
+-  ऐसी जगहों पर बनाएं आश‍ियाना, बच्‍चों की हड्ड‍ियां होंगी ज्‍यादा मजबूत
+-  وكيل تعليم دمياط يشدد على عدم السماح بدخول الكنترول إلا للعاملين
+-  Con carros de juguete en el pecho: hallan a hombre sin vida bajo el puente Geovanny Zamudio en Culiacán
+-  الیکشن میں لیول پلیئنگ فیلڈ ہوتی ہے، کسی کا میڈیا ٹرائل نہیں ہونا چاہیے، جہانگیر ترین
+-  Məşhur aktyor 6 milyon manatlıq malikanəsini satışa çıxardı
+-  Kasus Remaja Disekap dan Dijual di Bekasi, 1 Tersangka Berperan Mencari Anak Perempuan
+-  The Queen's third cousin Princess Olga Romanoff 'is in talks to star in Celebrity Big Brother' - after Sarah Ferguson denied show involvement
+-  قناة dmc تحتفل اليوم بمرور 7 سنوات على انطلاقها
+-  Αννίτα για ευρωεκλογές: Έχουμε καταλήξει στο 90% των επιλογών μας
+-  Milyonlarca emeklinin beklediği haber geldi! En düşük emekli maaşına verilen 2 bin lirada değişim yok
+-  DTS Ede legt elf spelers vast voor het nieuwe seizoen
+-  [한미약품 장남 임종윤, OCI와 통합 반발…경영권 분쟁 가나
+-  [20대 딸뻘 민원인에게 “밥 먹자”…사적 연락한 현직 경찰관의 최후
+-  Ayodhya: राम मंदिर में पत्थरों की नक्काशी और स्थापना की कहानी पढ़ें
+-  IND vs AFG 2nd T20, Live Score: विराट कोहली की वापसी के साथ टीम इंडिया की नजरें सीरीज पर
+-  La Fiscalía investiga al PP de Valencia por "incitar al odio" contra los diputados que invistieron a Sánchez
+-  Dünya Ekonomik Forumu'nun şaşaalı partileri gündeme oturdu
+-  Pörssisähkön hinta pysyy huomenna maltillisena kiristyvästä pakkasesta huolimatta
+-  Pörssisähkön hinta pysyy huomenna maltillisena kiristyvästä pakkasesta huolimatta
+-  Delhi NCR : हवा फिर से बिगड़ी, ग्रैप तीन के प्रतिबंध किए गए लागू
