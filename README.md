@@ -1,51 +1,51 @@
 # Latest News
--  Onde pára Benzema?
--  Papa reafirma que "a guerra é um crime contra a humanidade"
--  Son dakika... Cumhurbaşkanı Erdoğan, BAE Devlet Başkanı ile görüştü
--  İstanbulspor-Konyaspor maçında devreye giren ofsayt sistemi tartışmalara neden oldu
--  Kickoff | Roma give Mourinho 'ultimatum' amid poor form
--  جيش الاحتلال الإسرائيلي يطلب من سكان غزة الانتقال من شمال القطاع لجنوبه
--  مجلس النواب يوافق نهائيا على قانون الأموال المستردة
--  بالصور والأسعار.. شاومي تضرب سامسونج بسلسلة بوكو X6 برو قاتل الهواتف الرائدة
--  Christine McGuinness 'deeply' hurt by ex husband Paddy
--  Giresun'da tartıştığı türkü evi işletmecisi kadını kablo ile boğdu
--  Şehit babası hayatını kaybetti!
--  CHP'li Engin Altay'ın babası, son yolculuğuna uğurlandı
--  Bursa'da şehitlerimiz anılıyor!
--  Bursa'da bir kişi evinde yaşamını yitirdi
--  Cumhurbaşkanı Erdoğan, BAE Devlet Başkanı ile görüştü
--  Antalyaspor - Trabzonspor maçı CANLI İZLE (Antalyaspor - Trabzonspor maçı canlı anlatım)
--  İstanbulspor ve Konyaspor, Yarı Otomatik Ofsayt Sistemi'ne takıldı
--  V roku 2024 by Slováci mohli triediť odpad zodpovednejšie a poctivejšie
--  Cameron obhajoval americko-britské nálety na húsíov v Jemene
--  Djokovic survives scare as young contender announces himself on big stage
--  Cimbom, Sacha Boey'in bonservisini belirledi
--  34 killed after mudslide hits busy road in Colombia
--  Disfurta de una exquisita mousse de durazno en simples pasos
--  Gala Gölü Milli Parkında kara avcılığı denetimi!
--  פסגות: "תהליך הפחתות הריבית בישראל עשוי להיות איטי מאוד"
--  במקום אוכל לתינוקות - רכישת נשק: השיטה הכלכלית של חמאס נחשפת
--  בן כספית נגד יאיר נתניהו: "אין לתאר, עוד יש לו טענות"
--  שרית פולק חושפת את גבר החלומות שלה - וזה ממש לא אורי נגר
--  5 جنيهات ثمن تذكرة دخول معرض القاهرة للكتاب
--  סופה של תקופה? האם טום הולנד וזנדאיה נפרדו אחרי שנתיים ביחד?
--  ऐसी जगहों पर बनाएं आश‍ियाना, बच्‍चों की हड्ड‍ियां होंगी ज्‍यादा मजबूत
--  وكيل تعليم دمياط يشدد على عدم السماح بدخول الكنترول إلا للعاملين
--  Con carros de juguete en el pecho: hallan a hombre sin vida bajo el puente Geovanny Zamudio en Culiacán
--  الیکشن میں لیول پلیئنگ فیلڈ ہوتی ہے، کسی کا میڈیا ٹرائل نہیں ہونا چاہیے، جہانگیر ترین
--  Məşhur aktyor 6 milyon manatlıq malikanəsini satışa çıxardı
--  Kasus Remaja Disekap dan Dijual di Bekasi, 1 Tersangka Berperan Mencari Anak Perempuan
--  The Queen's third cousin Princess Olga Romanoff 'is in talks to star in Celebrity Big Brother' - after Sarah Ferguson denied show involvement
--  قناة dmc تحتفل اليوم بمرور 7 سنوات على انطلاقها
--  Αννίτα για ευρωεκλογές: Έχουμε καταλήξει στο 90% των επιλογών μας
--  Milyonlarca emeklinin beklediği haber geldi! En düşük emekli maaşına verilen 2 bin lirada değişim yok
--  DTS Ede legt elf spelers vast voor het nieuwe seizoen
--  [한미약품 장남 임종윤, OCI와 통합 반발…경영권 분쟁 가나
--  [20대 딸뻘 민원인에게 “밥 먹자”…사적 연락한 현직 경찰관의 최후
--  Ayodhya: राम मंदिर में पत्थरों की नक्काशी और स्थापना की कहानी पढ़ें
--  IND vs AFG 2nd T20, Live Score: विराट कोहली की वापसी के साथ टीम इंडिया की नजरें सीरीज पर
--  La Fiscalía investiga al PP de Valencia por "incitar al odio" contra los diputados que invistieron a Sánchez
--  Dünya Ekonomik Forumu'nun şaşaalı partileri gündeme oturdu
--  Pörssisähkön hinta pysyy huomenna maltillisena kiristyvästä pakkasesta huolimatta
--  Pörssisähkön hinta pysyy huomenna maltillisena kiristyvästä pakkasesta huolimatta
--  Delhi NCR : हवा फिर से बिगड़ी, ग्रैप तीन के प्रतिबंध किए गए लागू
+-  Karščiausias pasaulio taškas. Fronte – net T-34. Kokius ginklus turi Jemenas (Video)
+-  Sunku patikėti, kad tai tęsiasi toliau. Skelbiami nauji duomenys
+-  [ŽT] Dvigubai daugiau rusų. Ką sumanė Latvija
+-  ВСУ из ПТРК «Стугна-П» уничтожили группы пехоты и бронетехнику оккупантов в Запорожской области
+-  Ukraine-Konferenz: Rund 80 Staaten treffen sich in Davos
+-  Feller siegt auch in Wengen vor McGrath
+-  انخفاض طفيف بأسعار الدولار في بغداد وأربيل مع الإغلاق
+-  Solidarität mit Geiseln: Israel streikt für 100 Minuten
+-  Asesinaron a 256 mujeres en el 2023
+-  Deben firmas mexicanas pagar nuevo impuesto en otros países
+-  Buscan a implicado en desaparición de colombianas en Tabasco
+-  ¿Cómo ayudar a una persona alterada?
+-  London: Ukraine-Krieg hat Folgen für russisches Gesundheitswesen
+-  Steinmeier: Regierung muss Entscheidungen besser kommunizieren
+-  Menjelang Kampanye Terbuka, 15 Instansi di Solo Deklarasi Jateng Zero Knalpot Brong
+-  Un día antes de asambleas electorales de Iowa, Trump sigue delante
+-  De Bruyne inspires Man City comeback in Premier League return to show he can swing title race
+-  Defending champion Djokovic fends off first-timer Prizmic in 4 hours to advance in Australia
+-  Limassol theatre’s thrilling performances continue
+-  Ľudia sú ochotní robiť bizarné veci, aby dostali vysnívanú prácu: Ktorým sa to prekvapivo vyplatilo?
+-  Parádna OSLAVA narodenín TWiiNSkinej dcérky: Z bábätka je už krásna princezná!
+-  Separ po 4 dňoch v indonézkej base: SOM VONKU... Nebola to žiadna sranda!
+-  Granada oficializa saída de Alvaro Fernandez
+-  Напаѓачите дошле со црн џип: Газда на бензинска пумпа во Атина изрешетан со 80 куршуми
+-  Дания се разделя с най-дълго управлявалия монарх - Маргрете II (На живо)
+-  Comisión electoral de RDC anunció sanciones a implicados en fraude
+-  KPU Tegaskan Tidak Ada Perubahan dalam Format Debat Keempat
+-  Mit Waffe gedroht - Wiener Polizei sucht Mann mit Heli
+-  Nooralotta Neziri avasi hallikautensa – myönsi rehellisesti: "Tehoa siitä vielä puuttuu"
+-  Manchester United haluaa hyökkääjän – tätä miestä on verrattu Zlatan Ibrahimoviciin
+-  Balazo mortal: acusan a quinceañero de matar a joven a la salida de un cumple
+-  Australian avointen mestaripelaaja Novak Djokovic vaikuttui 18-vuotiaan Dino Prizmicin asenteesta – "Hän laittoi minut juoksemaan"
+-  Ndalohet në Petrovec një shoferi me 3.7 promil alkool në gjak
+-  Νομιμοποίηση της ευθανασίας:Μετά και την Κούβα, η Κύπρος;
+-  Tesla pierde más de 94.000 millones de dólares de valor de mercado
+-  Rundfunkbeitrag: CDU-Vorstand schließt Erhöhung nicht kategorisch aus
+-  Novak Djokovic survives scare in opposition to 18-year-old qualifier in Australian Open opener
+-  সাভারে তিন আবাসন কোম্পানির সব কার্যক্রমে নিষেধাজ্ঞা
+-  Tapë në makinë dhe me armë me vete, arrestohet 45 vjeçari nga Lushnja
+-  Lawyer for E. Jean Carroll suggests Trump misrepresented need to adjourn trial
+-  Mercato - RC Lens : Star à Lens, il se lâche sur son avenir
+-  Карягин официално при Пламен Константинов в Новосибирск
+-  David Cameron a jemeni bombázásról: A brit kormánynak nem volt választása
+-  Европе предрекли многолетний период высоких цен на газ
+-  Aslı Murat: Sahile vuran cansız bedenler kim ve niye bu şekilde ölüyorlar?
+-  „Einer der größten Justizirrtümer der britischen Geschichte“: Hunderte Poststellenleiter in den Ruin getrieben
+-  «Ланс» — «ПСЖ»: прогноз на матч лиги 1 14 января 2024 года
+-  Islandia, drones y el transporte, temas interesantes
+-  Herzschlagfinale: Vittozzi sprintet zum Sieg
+-  Netanyahu: "Nadie nos detendrá de destruir a Hamás"
