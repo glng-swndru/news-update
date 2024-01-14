@@ -1,11 +1,11 @@
 # Latest News
--  Hakem Halil Umut Meler'e çiçekli karşılama!
--  الأمم المتحدة تحذر من تدهور الأوضاع باليمن وتدعو لتجنب التصعيد في البحر الأحمر
--  Funkel: Bayer stärkerer Bayern-Konkurrent als BVB im Vorjahr
--  ডলার বন্ডের সুদহার বাড়ানো হয়েছে
--  Drug, child labour blamed for poor performance in Mwea
--  239 needy students secure scholarships
--  Norjalta hurjaa ylivoimaa – Eveliina Piippo hiihti neljänneksi
--  SM-liigaseura kertoi – näin joukkueen otteluun pääse ilmaiseksi
--  İsrail'den Refah'ta 4 saatlik ateşkes
--  Sinop’ta şehitlerimiz için dua edildi
+-  Police in The Hague caught 126 fugitives in 2023
+-  My First Cigarette at 8: Unexpectedly Harming My Health
+-  Meteoropatima se neće svidjeti početak novog tjedna, sinoptičari upozoravaju: ‘Oprez u ponedjeljak ujutro...‘
+-  레알 안첼로티 감독의 선택은 카르바할이 아니다? “그는 세계 최고의 풀백”...주인공은 “멘디”
+-  ليلى الحداد لـ"الصباح نيوز": تشتت التواريخ شتت احياء ذكرى الثورة...
+-  CAN 2023 : Un Sénégalais désigné pour arbiter leur match, les Algériens se lâchent
+-  TV-Experte Stefan Effenberg verlässt Sport1-"Doppelpass" nach Frage zu Franz Beckenbauer
+-  Izabela Janachowska znika z "Tańca z Gwiazdami". Jest oświadczenie
+-  „Ich kenne den HSV“: Das sagt Okugawa über seinen Wechsel
+-  현물 ETF 승인에도… 비트코인 투기자산 논쟁 여전
