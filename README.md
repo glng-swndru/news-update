@@ -1,11 +1,11 @@
 # Latest News
--  Muzej grada Zenica prošle godine posjetilo 12.000 ljudi, realizovano 135 promocija i radionica
--  Oko 180 žena u Gazi porodi se svaki dan u nehumanim uslovima
--  北, 요격 힘든 '극초음속 미사일' 쐈나…군 분석 중
--  "이렇게 어리고 예쁜 주무관 처음" 육군 중령의 노래방 성추행
--  클린스만 감독 "어느 한 팀 쉽지 않다. 지금은 오직 바레인전만 생각"
--  [매일칼럼] 트럼프 위협, 결코 만만치 않다
--  İlk Türk astronotu taşıyacak kapsül Florida'ya ulaştı
--  Naci Görür'den korkutan Bolu depremi açıklaması!
--  AK Parti Ankara adayları ne zaman açıklanacak? AK Parti aday tanıtım toplantısı ne zamana ertelendi?
--  Prof. Dr. Faruk Beşer, vefat etti
+-  مدرب ماليزيا: منتخب الأردن ليس التعمري فقط
+-  جت الناقل الوطني لموقع تلفريك عجلون
+-  الحمض النووي للأبطال الخارقين قد يحمل مفتاح علاج مرض السكري
+-  ให้พระช่วยกล่อม! จนท.เรือนจำ‘เอกวาดอร์’ถูกนักโทษจับเป็นตัวประกันได้รับอิสรภาพ
+-  'จ๊ะ นงผณี'สวยแซ่บใจบุญ แจกจักรยานเกือบ60คัน แจกวันเด็กแห่งชาติ
+-  Германия — Раскошелиться или поесть дома: рестораны утрачивают свою привлекательность
+-  Восемь спасателей тушили горящие постройки в деревне Капустино
+-  «Вытащил человека из беды на свою голову…»
+-  Peking snažno osuđuje američku izjavu o izborima na Tajvanu
+-  PPP raises reservations on allotment of electoral symbols
