@@ -1,51 +1,51 @@
 # Latest News
--  Dólar hoy y dólar blue hoy, EN VIVO: cuál es la cotización del domingo 14 de enero minuto a minuto
--  Spektakuläre Kehrtwende für Busbetriebe im Vogtland: Krise abgehakt, 20 Prozent Lohnplus und weitere Pläne
--  Bald Klarheit über Preis des Deutschlandtickets möglich
--  „Die ganze Region wird kopfstehen“: Countdown für Eishockey-Spektakel Hockey Outdoor Triple in Klingenthal läuft
--  [美 FDA "다이어트약, 자살 유발 증거 없어"
--  [‘내남편과~’ 생글생글 웃으며 친구 삶 망가뜨리는 송하윤, 이쯤되면 무섭다
--  Ифлос ҳаво бўйича таклифлар, имтиёзлар гулдастаси ва қисқарадиган бюрократия — ҳафта дайжести.
--  Gazze'de soykırıma girişen İsrail'in Savaş Kabinesi'nde kriz! Toplantıyı terk etti
--  Shocking CCTV captures moment teen pulls what appears to be a gun on family outside Brisbane home
--  В Костромском аэропорту установлено спецоборудование «слепой посадки»
--  Again, Sultan Urges Nigerians To Unite, Ensure Peaceful Coexistence
--  Zulum’s Spokesman Isa Gusau For Burial In Abuja Today
--  মায়ের দেওয়া যৌনশিক্ষার বই পড়ে যা শিখেছিলেন আমির-কন্যা
--  Ashok Gajapati Raju, Ex-Aviation Min Who Hails From Royal Family Goes Viral For Waiting For Train Like A Commoner
--  «Будете мучиться и не слезете с унитаза». Этот продукт под запретом для пожилых
--  Syrian farmers abandon the land for steadier jobs
--  We Also Make Policy: An Insider's Account Of How Finance Ministry Functions
--  В Ярославской области хозяева готовы заплатить 200 тысяч за возвращение любимого пса
--  Γλυπτά από πάγο, σόου και σταρ του σινεμά: 5 φεστιβάλ που αξίζει να πας μια φορά στη ζωή σου
--  Punjab: प्रिंसिपल के बेटे के अपहरण की कोशिश, बंबीहा गैंग के नाम पर मांगी तीन करोड़ की रंगदारी, दो आरोपी काबू
--  «Ήταν σαν αδερφή μου» - Θύμα του κυκλώματος μαστροπείας «σπάει» τη σιωπή του
--  Previo a la toma de posesión, Arévalo habla de recuperar las instituciones cooptadas y buscar la unidad nacional
--  Nam sinh 12 tuổi bị chẩn đoán ung thư, bác sĩ kết luận lý do khiến nhiều phụ huynh giật mình về cách dạy con hàng ngày
--  Scrap Humanitarian Ministry Now
--  Des arbres et une place des Droits-de-l’Enfant
--  BJP jabs Rahul Gandhi as Milind Deora quits Congress: ‘First do nyay to party leaders’
--  포항시, 美 시애틀서 '디지털 혁신생태계 구축' 해법 찾는다
--  कोहरे की वजह से ट्रेनों की रफ्तार पर ब्रेक:तेजस राजधानी 16 घंटे लेट तो सम्पूर्ण क्रांति 13 घंटे, मगध और पूर्वा भी है डिले
--  आगरा में जमीन कब्जा मामला: आबकारी निरीक्षक निलंबित, गारद के छह सिपाहियों पर भी गिरेगी गाज
--  ”Hatar oss för ljudet – och ringer polisen”
--  Điều tra vụ một giám đốc đánh trọng tài nằm gục trên sân bóng ở TPHCM
--  गजब है देसी लड्डू...सर्दियों में जुकाम-खांसी होगी छूमंतर, जानें फायदे
--  Пентагонът се ядоса на Лондон заради теч на информация за ударите в Йемен
--  Костромская автопомощь: сотрудники ДПС «оживили» грузовик, застрявший на трассе Р-243
--  दो बदमाश हथियार और कारतूस के साथ गिरफ्तार:वाहन जांच के दौरान पकड़े गए बाइक सवार, जैकेट में कट्टा छिपाकर घूम रहे थे दोनों
--  '미래대연합' 창당준비위원회 출범
--  Sources: Gilgo Beach suspect expected to be charged in 4th murder
--  Василий Ломаченко официально получил дату и соперника для чемпионского боя
--  Australian Open Highlights: Jannik Sinner v Botic van de Zandschulp
--  Australian Open Highlights: Jannik Sinner v Botic van de Zandschulp
--  Woman in JB loses over RM500,000 to non-existent investment scheme advertised on Facebook
--  Rajasthan News: मुख्यमंत्री ने पंजाबी समाज के साथ मनाई लोहड़ी, प्रदेश की समृद्धि एवं उन्नति की कामना की
--  8 sai lầm chết người mà gần như ai cũng mắc phải khi sử dụng ổ cắm điện nối dài
--  대구FC, 2024 시즌 대비 신인 6명 추가 영입
--  '미래대연합' 창준위 출범 "양당 기득권 정치 타파"…제3지대 연대 강조
--  Muere niña de un año en choque entre autos
--  Internal CCC Power Struggle Threatens Upcoming By-elections
--  ‘My goal is to fight Canelo’: Christian Mbilli makes the big challenge after dominant win
--  В США заявили, что атаки на Йемен снизили наступательный потенциал хуситов
--  Gigante wins women's Tour with storming Willunga ride
+-  Gặp gỡ người đầu tiên đi vòng quanh thế giới mà không sử dụng phi cơ
+-  마이코플라스마 폐렴균 감염증에 주의
+-  용천동굴에 미치는 영향 사전예방
+-  오 지사, 새해엔 도민 기대에 더욱 분발해야
+-  فيديو مرعب - لحظة سقوط فتاة من الطابق 26 في مصر
+-  آلاف المتظاهرين في واشنطن ولندن من أجل غزة
+-  वरिष्ठ नागरिक एफडी दरें: अच्छी खबर! वरिष्ठ नागरिकों को मिलेगा 26000 रुपये का ब्याज, चेक करें इन बैंकों के ऑफर
+-  Орнитологи предлагают жителям Костромы принять участие в акции «Серая шейка»
+-  दिशा पटानी ने बाथरूम से शेयर की अपनी प्राइवेट तस्वीरें, बिकिनी में फिगर दिखाकर इंटरनेट पर लगाई आग
+-  Планът на ООН да контролира онлайн словото
+-  וולמארט תואשם בגזענות? התביעה שמסעירה את ארה"ב
+-  מפתיע: המועמד המוביל למנכ"ל איגוד חברות הביטוח פורש
+-  Điều động Chủ tịch Hội Nông dân TP.HCM làm Bí thư quận 3
+-  Trần Tinh Húc: Từ học sinh đứng top trở thành mỹ nam vạn người mê
+-  Giá vàng SJC lập đỉnh của năm, có nên mua vào lúc này?
+-  Cô dâu hot MXH tiết lộ "bí mật" khi hưởng trăng mật ở khách sạn: Một điều tưởng lãng mạn hoá ra vừa dọn vừa... khóc!
+-  Hoa hậu Hà Kiều Anh đưa con đi 1 nơi, cảnh báo: Chơi thì thích nhưng nguy hiểm, một ngày vài lần xe cứu thương đến mang người đi
+-  Chủ quyết không “bán” khách sạn 20.000m2 dù được đền bù hơn 413 tỷ đồng: Đấu tranh để tăng giá lên gấp 2 nhưng thất bại
+-  AFC cảnh báo ĐT Nhật Bản khi gặp ĐT Việt Nam
+-  '역시 지단의 후계자' 벨링엄, 2024 발롱도르 예상 순위 1위 등극...2위 케인-3위 음바페
+-  평택시의회 유승영 의장, 관리천 유해물질 유출사고 현장 방문
+-  평택시 “관리천 오염수 방제에 인력·자원 총동원"
+-  عاجل.. طقس الصباح الباكر اليوم الأحد للطلاب بعد العودة للدراسة.. أمطار على 8 مناطق
+-  حفاظًا على خصوصية الطلاب.. ارتياح لقرار منع التصوير في المدارس
+-  توقعات "الأرصاد": أمطار خفيفة ورياح سطحية على مكة والرياض و6 مناطق
+-  الجيش الإسرائيلي: قتلنا 4 مسلحين تسللوا من لبنان
+-  [부고] 배광수(NH투자증권 프리미어 블루 본부 대표)씨 장인상
+-  [부고] 이지훈(한국투자증권 홍보실 팀장)씨 부친상
+-  Bradley tied in front as Davis slides at Sony Open
+-  [부고] 조성훈(유한양행 투자관리팀 팀장)씨 부친상
+-  Siemens anuncia en CES 2024 innovaciones en ingeniería inmersiva e IA para el metaverso industrial
+-  Lantik PW Muslimat NU Sulsel, Khofifah Indar Parawangsa Ajak Jaga Persatuan
+-  View: China drops all diplomatic pretences on Taiwan, Maldives
+-  Third man charged with murder in shooting of Oakland undercover Officer Tuan Le
+-  गुहेश्वरी मर्चेन्टको वार्षिक साधारणसभा
+-  नाडेपको साधारणसभाबाट दुई सञ्चालक निर्वाचित
+-  सुपर मादी हाइड्रोको तेह्रौं र चौधौं संयुक्त साधारणसभा
+-  बिगमार्टको ‘बिगमार्ट कार उपहार’ उत्सव
+-  शिवम् सिमेन्ट्स लिमिटेडको १५ प्रतिशत लाभांश पारित
+-  कमला कार्की प्रतिष्ठानद्वारा ५ व्यक्ति र १ संस्था सम्मानित
+-  एनएमबि बैंकको अध्यक्षमा मनोजकुमार गोयल
+-  ยิปซีพยากรณ์ดวงรายวัน ประจำวันอาทิตย์ที่ 14 มกราคม 2567
+-  광주 자원봉사센터, 2024 세계관악컨퍼런스 봉사자 모집
+-  김동근 의정부시장, 청소년재단서 현장시장실 열어 조직 운영 방향성 점검
+-  이천시, 2월 29일까지 화장시설 설치후보지 공모
+-  구리시, 특교금 4억 원 확보 시민 편의 증진 스마트 버스정류장 설치
+-  화성시, 양강면 화재로 오염수 유출 관리하천 방제 총력
+-  성남시, ‘취약층 주민 고충 풀어주기’ 무료 마을 세무사 제도 운영
+-  동두천시, 2024년 사회복지기금 지원 사업 오는 22일부터 공모접수
+-  부천시, 2월부터 심폐소생술 교육 추진
