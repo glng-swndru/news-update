@@ -1,11 +1,11 @@
 # Latest News
--  Burcu Esmersoy Havana'dan dönemedi!
--  القرض الشعبي الجزائري يودع طلبه لدخول بورصة الجزائر
--  ارتفاع حصيلة قتلى الجيش الإسرائيلي إلى 522 منذ 7 أكتوبر
--  ההודעה הדרמטית של הפנטגון על טיילור סוויפט
--  B2W Indonesia Akan Gugat Heru Budi ke PTUN nkarena Pangkas Anggaran Jalur Sepeda
--  Yhdysvaltojen delegaatio vierailee tänään Taiwanissa vaalien jälkeen
--  국민의힘, 총선 앞두고 '텃밭'은 뒷전…공관위원 인선 배제 '지역 전달통로 막혀'
--  경북도청공무원노조 제11기 박소영 위원장 당선…"역대 첫 여성 위원장"
--  10조원 규모 영덕 해상풍력발전사업…어민들의 지지에 급물살 탔지만 국방부 반대로 제동
--  천원의 아침밥 예산 2배 늘었지만…치솟는 물가에 지역 대학 고심
+-  Abang Johari says PBB will play its role to ensure Malaysia’s political stability
+-  الخارجية الصينية: تقدمنا باحتجاج رسمي للجانب الأميركي ضد بيان بلينكن حول انتخابات تايوان
+-  WaveBL Raises $37 Million for Electronic Billing
+-  Оставете звездите да изберат ваканцията вместо вас
+-  Hitna pomoć: Tokom noći veliki broj pijanih, najmlađi imao 13 godina
+-  Ash Gordon: Brave final act of young doctor stabbed to death by callous thieves in terrifying Doncaster home invasion
+-  Airlangga tak Khawatirkan Wacana Koalisi Kubu Paslon 01 dan 03
+-  طقس : مناطق شمال البلاد تتأثر يوم الغد بأمتداد منخفض جوي يؤدي إلى رياح جنوبية غربية نشطة السرعة.
+-  Уловиха огромна риба в плитки води, което предвещава бедствия
+-  Pongal 2024: Here`s how the harvest festival is celebrated in Tamil Nadu
