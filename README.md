@@ -1,51 +1,51 @@
 # Latest News
--  Faltas al control de precios y productos vencidos, principales anomalías de enero
--  Eenjarige bestaan van steunpunt BuurSaam: minder eenzaamheid en meer gemeenschapsgevoel
--  Ajax Amsterdam potwierdza zainteresowanie Jordanem Hendersonem
--  Prezidentka udeľuje štátne vyznamenania. Píšete príbeh Slovenska, odkazuje oceneným
--  Fati yt/ Horoskopi 15 janar 2024
--  Unentschieden gegen Topfavorit Frankreich: Schweiz rehabilitiert sich und schnuppert an der Sensation
--  Bayern Monachium dopina DRUGI transfer. Prosto z PSG
--  Dobre vijesti za građane: Od utorka jeftinije gorivo
--  Marius Sumudica: Bugün büyük bir maç çıkardık
--  Çanakkale'nin Ayvacık ilçesi açıklarında 39 kaçak göçmen yakalandı
--  Tresla se Mladost, Hrvatska proslavila pjesmom koja bi mogla jako iznervirati ‘komšije’
--  مقارنة بين حاسوبي Dell XPS 14 و HP Spectre x360 14
--  LA Times endorses Adam Schiff in competitive California Senate race
--  Frío extremo deja muertes, apagones y varias emergencias en Canadá
--  نتنيا.هو: الحرب على غز.ة ستستمر أشهراً إضافية عديدة
--  Tunisie – Nejib Chebbi reprend sa course à la poursuite de son « rêve » !
--  UK weather - live: Snow warning today as temperatures could drop to -10C on coldest night of year
--  Ukraine-Treffen: Ukraine sieht wachsende Unterstützung für Friedensplan
--  Nearly twice as many young people died on Irish road last year – the reckless driving behaviours contributing to crashes
--  COVID-19 | Anuncian seguimiento por nueva variante
--  WATCH: Arkansas Football Recruiting Report with Otis Kirk (1-14-24)
--  Panevėžio rajone nuo kelio nulėkusi „Mazda“ tapo niekam nereikalinga
--  FC Barcelona obrała kurs na zakończenie wieloletniego związku. Kosmiczna oferta na stole
--  Fußball - Premier-League-Hit ManUnited - Tottenham endet 2:2
--  ACB lygoje Sedekerskis džiaugėsi pergale prieš Gebeno ekipą
--  Orteku godet pesë alpinistët në Abruzzo, ndërron jetë 45-vjeçari, vijon puna për shpëtimin e të tjerëve
--  Bæjar­búar ekki bognir heldur brotnir
--  RTE Dancing With The Stars viewers all say Rosanna Davison is ‘sensational’ as she receives glowing reviews
--  応力集中の考え方 村上敬宜 〔本〕 - thenewsunlimited.com
--  人工知能と法律 - thenewsunlimited.com
--  岩波講座 現代工学の基礎(１４) 人工物の構造と特性 ，無機材料 岩波講座 現代工学の基礎設計系１・材料系５／吉川弘之(著者) - thenewsunlimited.com
--  Korhonens uzvar Somijas ziemas rallijā, Gronholms izstājas pēdējā ātrumposmā
--  グラフ理論の基礎と応用 - thenewsunlimited.com
--  岩波講座 現代工学の基礎〈2〉材料特性と材料選択 《材料系III》・デザイン論 《技術関連系VI》 - thenewsunlimited.com
--  つなげてつくる工学入門 理工学への扉を開くワークブック／東京電機大学(編者) - thenewsunlimited.com
--  きちんと知りたい においと臭気対策の基礎知識 - thenewsunlimited.com
--  コンタクトレンズと眼鏡の科学 - thenewsunlimited.com
--  システム工学 - thenewsunlimited.com
--  TRONWARE TRON IoT技術情報マガジン VOL.185 - thenewsunlimited.com
--  匂いの応用工学 - thenewsunlimited.com
--  印刷トラブル防止のツボ オフセット現場の改善実録 - thenewsunlimited.com
--  TRONWARE TRON IoT技術情報マガジン VOL.190 - thenewsunlimited.com
--  ロハス工学 日本大学工学部・ロハス工学編集委員会 日経BP社 - thenewsunlimited.com
--  理工系大学でどう学ぶ 工学への招待 - thenewsunlimited.com
--  Tronware Vol.89 - thenewsunlimited.com
--  暮らしに役立つ技術と工学の基礎知識 - thenewsunlimited.com
--  Serafini: "Terracciano crescerà bene nel Milan, è importante che sia un jolly"
--  بوستيكوجلو: مانشستر يونايتد فريق جيد جدا
--  カナ引き工業用語辞典 滝川 立夫 - thenewsunlimited.com
--  Constatan en Cuba potencialidades científicas del CEAC
+-  Fred varsa Fenerbahçe'nin bileği bükülmüyor
+-  News24 | Here are the Daily Lotto numbers
+-  В Пентагоне опровергли нанесение ударов 14 января по хуситам в Йемене
+-  How Mary and Frederik’s fairytale kiss provided an antidote to our times
+-  How Mary and Frederik’s fairytale kiss provided an antidote to our times
+-  How Mary and Frederik’s fairytale kiss provided an antidote to our times
+-  عاجل : نتائج قرعة البطولة المصغرة لتفادي النزول إلى الرابطة الثانية لكرة القدم
+-  Simptomat e Covid-19 kanë ndryshuar, ja si mund ta dalloni nga gripi i zakonshëm
+-  Una tarea titánica es conducir la calle Uchire de Unare II
+-  رئيس الجمهورية: القادم أفضل بكثير (فيديو)
+-  Akpabio honours fallen heroes, hails Nigerians’ resilience despite challenges
+-  Wong bound for Israel
+-  Deep Brass Konzert
+-  اختتام فعاليات البطولة الوطنية الشتوية للسباحة بالزعانف..
+-  Preocupación en Boca por la lesión de Marcos Rojo en Salta: cuándo le harán estudios
+-  Seb Mellia, accusé de violences sexuelles, chahuté à Bruxelles lors d’un spectacle
+-  Daniel Regha Speaks On Being Single Despite His Handsomeness
+-  هل الرطوبة أثرت على أداء منتخب مصر أمام موزمبيق؟.. طبيب يوضح
+-  Grupi i PD, kërkesë në Kushtetuese për “emigrantët”
+-  В Минском районе во время движения загорелась электричка «Минск-Пуховичи»
+-  Revizori upozorili na rastrošnost u Zavodu zdravstvenog osiguranja
+-  "גאים בך", "זאת הרוח הישראלית": אביגדור ליברמן ושחקנים בליגת העל תמכו בשגיב יחזקאל
+-  איתי רגב תועד עם כוכבת ריאליטי בעצרת החטופים בת"א
+-  Jacob Davey
+-  일본 칼럼 “첫경기라 어려워? 변명… 미토마 없으니 왼쪽 안돼”[아시안컵]
+-  AFCON 2023: Salah’s Late Penalty Helps Egypt Secure 2-2 Draw Vs Mozambique
+-  Bitcoin crasht en sentiment slaat helemaal om in de crypto markt
+-  КОД: М-НАВ е семејна фирма на ДУИ, сестрата на Бујар Османи, снаата на Груби, внукот на Буши и многу други вработени во Македонската навигација
+-  "Ma come si fa?". Affari Tuoi sotto accusa: i numeri che scatenano i telespettatori
+-  Kickoff | Salah helps Egypt avoid shock AFCON loss
+-  Erste Wahl des Jahres - Fast 50 Prozent für die AfD
+-  Lo que sabemos de la muerte de Alec Musser, actor de ‘Son como niños’
+-  Malden Park closed as police search for missing man continues
+-  COPA SP: Veja os duelos das oitavas de final!
+-  Demi Jones: My cancer scar will raise awareness on Love Island: All Stars
+-  Demi Jones: My cancer scar will raise awareness on Love Island: All Stars
+-  Pri požiari karavanu v Česku utrpeli popáleniny dvaja ľudia: Zranenia nie sú vážne
+-  [관풍루] 한동훈 국민의힘 비상대책위원장, 더불어민주당에 ‘불체포특권 포기’ 거듭 압박
+-  [사설] 속속 윤곽 ‘제3지대 정당들’ 의원 배지 이상의 비전 보여야
+-  [사설] 정부 민생 정책 쏟아내지만, 야당 동의 없으면 실행 어렵다
+-  [사설] 차기 회장 선임 앞둔 포스코그룹, CEO후추위 이대로 괜찮나
+-  Dos nuevos planes municipales ayudarán a implantar los ODS en Montilla
+-  SGK Yeni Listeyi Paylaştı: Bu Şartları Sağlayanlar Erken Emekli Olabilecek
+-  Eläimet tietävät ensin? Filippiineillä miljoonat sardiinit hyppivät rannalle 48 tuntia ennen maanjäristystä
+-  Impactante choque y vuelco sobre la Ruta 22 en Cipolletti: uno de los conductores estaba alcoholizado
+-  Zum Glück gab es Augenzeugen - Zu dünn! Zwei Kinder brechen ins Eis ein
+-  Detuvieron a Gonzalo Fabián Coña en Santa Cruz, mano derecha de Jones Huala que tenía pedido de captura
+-  40 по-малко загинаха в катастрофи, но расте броят на осакатените
+-  Грипът удря светкавично - започва с температура и тежка отпадналост
+-  Κρυπτονομίσματα: Η πορεία τους από το περιθώριο προς τη «νομιμοποίηση»
