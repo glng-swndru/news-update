@@ -1,11 +1,51 @@
 # Latest News
--  Sérgio Conceição. "Estamos aqui para dar luta"
--  سر الرقم 7 في ليلة فينيسيوس التاريخية بهاتريك أمام برشلونة.. ما علاقة رونالدو؟
--  El Papa analiza viajar a Argentina “en la segunda parte del año”
--  금감원 "글로벌 IB 2개사 500억대 불법공매도 추가 적발"
--  '외계+인 2부' 첫 주 63만명…1부보다 적다니
--  ‘엘 클라시코 결승전 1-4 대패’ 바르셀로나 사비 감독 “용납할 수 없는 일…팬들에게 사과하고 싶다”
--  อุตุฯ เตือนอากาศเย็นตอนเช้า อุณหภูมิลด เหนือเจอพายุฝน ลมแรง ลูกเห็บตก
--  Palestine lose to Iran at Asian Cup as Japan survive scare
--  Millones de estadounidenses enfrentan temperaturas bajo cero
--  'Cubo' Torres da positivo a doping en Costa Rica; esta sería su sanción
+-  Stark-Watzinger: Hochschulen halbherzig gegen Antisemitismus
+-  Gouverneur: Russland wehrt ukrainische Raketen über Kursk ab
+-  Salário-Família: dicas necessárias para pedir o novo pagamento
+-  Penempatan haram bukan amanah kerajaan negeri semata-mata
+-  غالانت: وجود سلطة فلسطينية قوية مصلحة أمنية إسرائيلية
+-  اختتام امتحانات تكميلية التوجيهي اليوم
+-  لابيد: المحتجزون بالبيت أولا أما السنوار فسنقتله لاحقا
+-  Barca và cuộc ly hôn trị giá tỉ euro
+-  Cuál es la señal inequívoca de que debes cambiar de trabajo
+-  Wujud kekeliruan gambar Sultan Ahmad 1, Tun Mutahir
+-  สภาพอากาศวันนี้ อากาศเย็นตอนเช้า อุณหภูมิลด - ภาคเหนือมีพายุฝนฟ้าคะนอง ลมแรง
+-  Российский боец увернулся от атакующего дрона ВСУ и попал на видео
+-  Las tecnológicas destruyen 250.000 empleos en su 'annus horribilis'
+-  삼성전자, '2024 강원 동계청소년올림픽' 공식 파트너 참여
+-  Antony là thất bại lớn nhất của Erik ten Hag tại MU
+-  플래티어, 3년 연속 '국내 AI 100대 유망 기업' 선정
+-  Japan Money Supply M2+CD (YoY) unchanged at 2.3% in December
+-  최선희 北외무상, 북·러 외무장관회담 위해 평양 출발
+-  Warga pendidik bersyukur Utusan Malaysia kembali ke sekolah
+-  Un callejero tallado en mármol
+-  Apartmen, kondo dijangka dapat permintaan tinggi 2024
+-  The biggest tech questions of 2024
+-  La mala salud de los dignatarios, el secreto de Estado peor guardado
+-  [총선톡톡] 김대남 “금고형 이상 시 세비반납” - 이우일 “검찰독재 심판할 것”
+-  [아하 그렇군요] 스웨이드 얼룩 지우려면
+-  [총선 톡톡] 안철수 “이재명, 불출석 근거 밝혀야” - 권칠승 “김건희, 주식거래 이익 얻어”
+-  [최경락 꼬투리] 세종대왕으로 보여…
+-  [최경락 만평] 이미 머리 위에?
+-  [오늘의 별자리 운세] 2024년 1월 15일 월요일
+-  [오늘의 운세] 2024년 1월 15일 월요일(음력 12월 5일/일진:무인(戊寅)/띠별·생년월일 운세)
+-  삼성전자, 차세대 사이니지 통합 운영 플랫폼 '삼성 VXT' 출시
+-  Rashford - Hojlund tỏa sáng, Man United chia điểm nghẹt thở Tottenham
+-  تعادل مصر مع موزمبيق
+-  متحف الشيخ فيصل يتألق في مهرجان سوق واقف للفروسية
+-  The Holdovers يفوز بجائزتين مرموقتين في «جولدن جلوب»
+-  «أريدُ»: توفير تجربة اتصالات استثنائية في افتتاح كأس آسيا
+-  في البطولة العربية للألعاب المائية.. ميداليتان قطريتان في منافسات المياه المفتوحة
+-  نحو 21 % من التعداد السكاني لكوريا الجنوبية يحملون الاسم.. مُنتخب عائلة «كيم» تضم 11 لاعبا !
+-  نسخة قطر تحطم كافة الأرقام.. «60» شبكة تبث البطولة في «160» منطقة
+-  ¡Rugen en CU! Pumas se le pone ‘bravo’ a Ciudad Juárez en el inicio de la Liga Mx
+-  Cara Menghapus Halaman di PDF dengan Mudah
+-  Los alumnos de EBAU podrán examinarse de Historia o Filosofía para subir nota
+-  Roxy Jacenko’s son Hunter Curtis ‘asks’ for $863,000 Audemars Piguet watch
+-  หวั่นเกมร้อนผสมโรง !
+-  신학철 LG화학 부회장, 세계 경제 리더 100인 선정…"다보스포럼서 미래 준비 전방위 협력"
+-  Air pasang besar landa Kg. Pendas Laut
+-  Asian Cup holds moment of silence for Israel-Hamas war victims before Palestinian team's game
+-  Inter và 'Tam giác quỷ' của Simone Inzaghi
+-  양천구, 장애인전용 주차구역 스마트 센서로 불법 주차 97% 방지
+-  금천구, "내가 제안한 평생학습으로 배운다"
