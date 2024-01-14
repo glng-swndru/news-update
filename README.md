@@ -1,51 +1,51 @@
 # Latest News
--  «الأحمر» بحر للعرب لا بحيرة لليهود
--  המשכן הואר בצהוב: בכנסת ציינו 100 ימים להחזקתם של 136 חטופים בשבי
--  שני באליפות אפריקה: סק ימתין, מילסון ושואו צפויים לפתוח באנגולה
--  قائدات وفتيات مفوضية كشاف ومرشدات بنغازي يقمن بزيارة مقر وكالة الأنباء الليبية.
--  كوريا الشمالية تطلق صاروخا ومع تصاعد التوترات ووزيرة خارجيتها تزور موسكو غدا .
--  المرصد الأورومتوسطي: 100 ألف ضحية في 100 يوم من الحرب على غزة
--  ملكة الدنمارك توقع المرسوم التاريخي.. وتتنحى رسميا
--  جامعة ألمانية تطمس رسما يدعو لوقف الإبادة بغزة بدعوى معاداة السامية
--  القسام تقصف تجمعات جيش الاحتلال وسط غزة بقذائف الهاون
--  نجل مارادونا: والدي مات مقتولاً
--  اليكم البريد الالكتروني لقضاة العدل الدولي لإبلاغهم بجرائم الاحتلال
--  إيمانويل تود: الغرب وصل مرحلة الصفر الديني ونحن نشهد سقوطه النهائي
--  حزب إرادة يثمن موقف مصر برفض خطة الكيان بمحور صلاح الدين فيلادلفيا
--  Ajuste para jubilados y pensionados del IPS será del 3,7% anual
--  ঠাকুরগাঁওয়ে আইনজীবীদের কালো পতাকা মিছিল
--  Afghanistan set India 171-run target in 2nd T20I
--  Ajax begint 2024 met krappe en moeizame zege op Go Ahead Eagles
--  কিডনি প্রতিস্থাপন বাড়াতে দরকার ‘পজিটিভ প্রচারণা’
--  Yargı Çınar kimdir? Arda Anarat canlandırıyor! Arda Anarat kaç yaşında?
--  Yargı Yekta kimdir? Yargı dizisinde Yekta'yı oynayan Uğur Polat kaç yaşında?
--  Yargı Ceylin kimdir? Pınar Deniz nereli? Pınar Deniz kaç yaşında, sevgilisi var mı?
--  Yargı Eren kimdir, öldü mü? Yargı dizisinde Komiseri oynayan Uğur Aslan kaç yaşında?
--  Yargı Parla kimdir? Yargı dizisindeki Parla'yı kim oynuyor? Zeynep Atılgan kaç yaşında?
--  Yargı Ilgaz kimdir? Kaan Urgancıoğlu canlandırıyor! Kaan Urgancıoğlu diziden ayrılıyor mu?
--  Son dakika: Yargı Efe kimdir? Yargı dizisi Savcı Efe’yi kim oynuyor? Ulvi Kahyaoğlu hangi dizilerde oynadı?
--  Yargı Nadide kimdir? Yargı dizisinde Başsavcıyı kim oynuyor? Ayşen Sezerel hangi dizilerde oynadı?
--  SSK ve Bağ-Kur emeklisine çalışma var mı?
--  Yargı Kadir kimdir, yakalandı mı? Yargı Kadir’i oynayan Arif Pişkin hangi dizilerde oynadı?
--  Rabbit R1 AI kompanjon definiše nove kategorije uređaja - AI gadget
--  Antalyaspor-Trabzonspor maçı berabere bitti
--  Predstavljeni Asus ROG Aura Light bar i ROG Ergo monitor sa rukom
--  “God Will Grant Tinubu Good Health, Long Life To Turn Nigeria Around” – Sunday Igboho
--  Trabzonspor deplasmanda Antalyaspor ile 1-1 berabere kaldı | ÖZET
--  Gaziantep FK - Fenerbahçe | Canlı skor - canlı skor
--  Antalyaspor'un İsrailli futbolcusunun gol sevinci tepki çekti
--  İşgalci İsrail askerleri biri çocuk üç Filistinliyi şehit etti
--  Bakan Tunç eniştesinin cenazesine katıldı: Taziye dileklerinde bulundu
--  Trabzon'da taşımalı eğitime kar engeli
--  Cómo jugar The Last of Us con Gustavo Santaolalla, el compositor de su icónica banda sonora
--  الأمير فريدريك يعتلي عرش الدنمارك بعد تنحي والدته مارغريتي الثانية
--  Úrsula Boza, pareja de Christopher Gianotti, se pronuncia luego de polémica frase sobre la “igualdad de oportunidades”
--  Arcelor et l'Etat français investiront EUR1,8 md pour réduire les émissions
--  Jose Mourinho saa maanantaina potkut?
--  ManU-luotsi avasi suunsa hylkiön kohtalosta
--  Spurs để mắt đến trung vệ Lloyd Kelly của Bournemouth
--  Clara Brugada y Taboada retroceden; Salomón Chertorivski avanza en las preferencias para la Jefatura en CDMX
--  رقم قياسي يحفز توتنهام لتخطي عقبة مانشستر يونايتد في الدوري الإنجليزي
--  "Газпром" обновил суточный рекорд по поставкам газа потребителям в России
--  Fırtına, Akdeniz'de dindi!
--  ما الذي تحقق عسكريا بعد 100 يوم من حرب غزة؟
+-  Bellingham qua lại với ca sĩ R&B quyến rũ
+-  Ola de frío que azota a Estados Unidos obliga a cancelar vuelos y eventos deportivos
+-  Tatiana Pinto bisa e Brighton está nos "oitavos" da Taça
+-  Pedro Nuno acusa Chega de mentir aos portugueses e apresentar propostas impossíveis
+-  BE propõe aumento de salário mínimo de 900 euros para 2024
+-  Mariana Machado e Isaac Nader campeões de estrada
+-  Entinen Liverpoolin kapteeni on jättämässä Saudi-Arabian - seurapomolta suoraa puhetta
+-  Bakasetas'tan maç günü sinirleri hoplatan hareket! Beşiktaş ve Galatasaray...
+-  64 ألف مستفيد من الدورات الإسعافية للهلال الأحمر بمكة المكرمة
+-  الوطنية للنفط و سوناطراك الجزائرية يوقعان على تمديد اتفاقيات(الإبسا).
+-  Нетаньяху заявил, что Израиль будет вести войну против ХАМАС "еще много месяцев"
+-  مياه الفيضانات تغمر أكثر من 100 قرية في إندونيسيا .
+-  Hafiz Naeemur Rehman hails South Africa for raising voice for Palestine
+-  Call for sack of service premature, not solution to insecurity – Northern diaspora group
+-  China provides RBM100 million humanitarian assistances to Afghanistan
+-  Sir Jim Ratcliffe attends first Man Utd match at Old Trafford since completing 25 per cent takeover
+-  Stubb ja Essayah haluavat kitkeä vastakkainasettelua Suomesta
+-  Antalyaspor'un İsrailli oyuncusundan skandal gol sevinci! Türkiye'den İsrail'e selam gönderdi! ''Bebek katillerinin propagandası...''
+-  Альмерія - Жирона 0:0: огляд матчу Ла-Ліги ВІДЕО
+-  Lagos taskforce strategises, impounds 170 motorcycles
+-  משרד החוץ מציין 100 ימים ל-7 באוקטובר
+-  בגלל הימורים לא חוקיים: ארבעה חשודים שחטפו, תקפו וסחטו באיומים
+-  החברים החדשים של אבדיה: באגלי וליברס עברו בטרייד לוושינגטון
+-  זעם בטורקיה על יחזקאל: "צריך לבטל לו את החוזה ולהגלות אותו מכאן"
+-  Freund über Kimmich-Gerücht: „Total an Haaren herbeigezogen“
+-  Rukometna euforija zavladala je Hrvatskom: 'Način na koji igramo, brz rukomet, tako se dolazi do medalje'
+-  فيرنر يقود هجوم توتنهام لمواجهة مانشستر يونايتد في البريميرليج
+-  И ничего от Месси. Ришарлисон собрал идеального футболиста
+-  Meclis terör gündemiyle toplanacak
+-  पार्ट टाइम वर्कर्स और डिलीवरी बॉय को EPF समेत कई लाभ देगी सरकार, आ रहा नया नियम
+-  Masovni protesti: Kontroverzni zakon diže Francuze na noge
+-  В украинском Кривом Роге прогремели взрывы
+-  La mejor receta de huevos rancheros para hacer en el desayuno
+-  Beşiktaş farklı kazandı
+-  Poljoprivrednici dobili nova obećanja Brnabić i ministarke Tanasković: Evo šta je dogovoreno
+-  'AGAIN 2019?' 벤투호, 150위 홍콩에 전반전 간신히 리드...아딜 PK 선취골 [2023 아시안컵]
+-  [공식발표] 맨유·토트넘 21라운드 맞대결 라인업 공개...주전 선수 복귀·이적생 데뷔 임박
+-  Water Level In Jhelum Hits Lowest As Dry Spell Continues In Kashmir
+-  Trabzon'da okullar tatil mi edildi (15 Ocak) Trabzon bugün okul var mı, kaç gün tatil sürecek?
+-  İslandiyada vulkan püskürdü
+-  Safety improvements are needed on York's Acomb Road, says councillor
+-  El Cacereño cumple un doble objetivo con un trabajado triunfo
+-  Eknath Shinde: ఇది ట్రైలరే..ముందుంది సినిమా
+-  Друг терориста Гіркіна розповів про його роль у розпалюванні війни на Донбасі
+-  Enis bolji od Kampaca - bivši plej Zvezde srušio Real
+-  Bologna in emergenza, out Saelemakers per un problema muscolare
+-  Samsunspor ilk yarıda fişi çekti!
+-  2024 Dakar Rallisi'nde 7. etap sona erdi
+-  Südkorea: Nordkorea feuert ballistische Rakete ab
+-  ब्रॉडबैंड प्लान: एक बिल में 100Mbps ब्रॉडबैंड 27 महीने तक चलेगा, साथ में अनलिमिटेड कॉलिंग और हॉटस्टार भी
