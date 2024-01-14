@@ -1,51 +1,11 @@
 # Latest News
--  Bellingham qua lại với ca sĩ R&B quyến rũ
--  Ola de frío que azota a Estados Unidos obliga a cancelar vuelos y eventos deportivos
--  Tatiana Pinto bisa e Brighton está nos "oitavos" da Taça
--  Pedro Nuno acusa Chega de mentir aos portugueses e apresentar propostas impossíveis
--  BE propõe aumento de salário mínimo de 900 euros para 2024
--  Mariana Machado e Isaac Nader campeões de estrada
--  Entinen Liverpoolin kapteeni on jättämässä Saudi-Arabian - seurapomolta suoraa puhetta
--  Bakasetas'tan maç günü sinirleri hoplatan hareket! Beşiktaş ve Galatasaray...
--  64 ألف مستفيد من الدورات الإسعافية للهلال الأحمر بمكة المكرمة
--  الوطنية للنفط و سوناطراك الجزائرية يوقعان على تمديد اتفاقيات(الإبسا).
--  Нетаньяху заявил, что Израиль будет вести войну против ХАМАС "еще много месяцев"
--  مياه الفيضانات تغمر أكثر من 100 قرية في إندونيسيا .
--  Hafiz Naeemur Rehman hails South Africa for raising voice for Palestine
--  Call for sack of service premature, not solution to insecurity – Northern diaspora group
--  China provides RBM100 million humanitarian assistances to Afghanistan
--  Sir Jim Ratcliffe attends first Man Utd match at Old Trafford since completing 25 per cent takeover
--  Stubb ja Essayah haluavat kitkeä vastakkainasettelua Suomesta
--  Antalyaspor'un İsrailli oyuncusundan skandal gol sevinci! Türkiye'den İsrail'e selam gönderdi! ''Bebek katillerinin propagandası...''
--  Альмерія - Жирона 0:0: огляд матчу Ла-Ліги ВІДЕО
--  Lagos taskforce strategises, impounds 170 motorcycles
--  משרד החוץ מציין 100 ימים ל-7 באוקטובר
--  בגלל הימורים לא חוקיים: ארבעה חשודים שחטפו, תקפו וסחטו באיומים
--  החברים החדשים של אבדיה: באגלי וליברס עברו בטרייד לוושינגטון
--  זעם בטורקיה על יחזקאל: "צריך לבטל לו את החוזה ולהגלות אותו מכאן"
--  Freund über Kimmich-Gerücht: „Total an Haaren herbeigezogen“
--  Rukometna euforija zavladala je Hrvatskom: 'Način na koji igramo, brz rukomet, tako se dolazi do medalje'
--  فيرنر يقود هجوم توتنهام لمواجهة مانشستر يونايتد في البريميرليج
--  И ничего от Месси. Ришарлисон собрал идеального футболиста
--  Meclis terör gündemiyle toplanacak
--  पार्ट टाइम वर्कर्स और डिलीवरी बॉय को EPF समेत कई लाभ देगी सरकार, आ रहा नया नियम
--  Masovni protesti: Kontroverzni zakon diže Francuze na noge
--  В украинском Кривом Роге прогремели взрывы
--  La mejor receta de huevos rancheros para hacer en el desayuno
--  Beşiktaş farklı kazandı
--  Poljoprivrednici dobili nova obećanja Brnabić i ministarke Tanasković: Evo šta je dogovoreno
--  'AGAIN 2019?' 벤투호, 150위 홍콩에 전반전 간신히 리드...아딜 PK 선취골 [2023 아시안컵]
--  [공식발표] 맨유·토트넘 21라운드 맞대결 라인업 공개...주전 선수 복귀·이적생 데뷔 임박
--  Water Level In Jhelum Hits Lowest As Dry Spell Continues In Kashmir
--  Trabzon'da okullar tatil mi edildi (15 Ocak) Trabzon bugün okul var mı, kaç gün tatil sürecek?
--  İslandiyada vulkan püskürdü
--  Safety improvements are needed on York's Acomb Road, says councillor
--  El Cacereño cumple un doble objetivo con un trabajado triunfo
--  Eknath Shinde: ఇది ట్రైలరే..ముందుంది సినిమా
--  Друг терориста Гіркіна розповів про його роль у розпалюванні війни на Донбасі
--  Enis bolji od Kampaca - bivši plej Zvezde srušio Real
--  Bologna in emergenza, out Saelemakers per un problema muscolare
--  Samsunspor ilk yarıda fişi çekti!
--  2024 Dakar Rallisi'nde 7. etap sona erdi
--  Südkorea: Nordkorea feuert ballistische Rakete ab
--  ब्रॉडबैंड प्लान: एक बिल में 100Mbps ब्रॉडबैंड 27 महीने तक चलेगा, साथ में अनलिमिटेड कॉलिंग और हॉटस्टार भी
+-  Teamkwis Texel 2024 op 10 februari
+-  Lider Girona'dan sürpriz puan kaybı
+-  5 gollü maçta kazanan Ajax
+-  İsmail Kartal: Krunic ve Bonucci...
+-  Bakan Fidan ve Güler TBMM'yi bilgilendirecek
+-  Murat Kurum, eski AK Parti İstanbul il başkanlarıyla bir araya geldi
+-  TBMM terör gündemiyle toplanıyor: Bakanlar Güler ve Fidan Genel Kurul'u bilgilendirecek
+-  בג"ץ קבע: נשים יוכלו להתמנות להרכב האסיפה הבוחרת את חברי מועצת הרבנות הראשית ואת הרבנים הראשיים
+-  נתניהו בישיבת תקציב המדינה: "כלכלה חזקה צריכה צבא עוצמתי"
+-  מעצרי פעילים, ירי לאוויר וגז מדמיע: אבו מאזן מאבד שליטה על החמושים ביו"ש
