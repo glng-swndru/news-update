@@ -1,51 +1,11 @@
 # Latest News
--  Rising milk powder prices heighten economic concerns for SL consumers
--  독도 지킨 출향 제주해녀들의 업적 기린다
--  그린스타트업타운 등 신규사업으로 안정적인 재원 확보
--  지난해 제주농촌 외국인근로자가 일 다했다
--  Foggy Start For Bharat Jodo Nyaya Yatra, Plane Carrying Congress Leaders Finally Departs For Manipur
--  또다시 메아리치는 “대한독립 만세”
--  청년사업가들 도 차원의 관광이미지 제고 방안 주문
--  생육 단계별 당도데이터 등 감귤산업에 311억 원 투입
--  환자를 위한 건강한 식품 만들기 제주가 앞장선다
--  학습공동체 개발 매뉴얼 업무현장에 활용한다
--  섬에서 만끽하는 겨울여행…눈 속에서도 피어나는 제주의 꽃과 나무
--  제주도립무용단원 전국 공개모집
--  제주아트플랫폼 문화예술행사 무료대관 신청받는다
--  제주음악창작소 ‘제뮤’ 지원 뮤지션 음원 1월 발매
--  Mini-PC Desktop-Computer PC Windows 10 8 GB RAM 256 GB SSD Intel Celeron J4205 Unterstützung 2,4 G/5 G WiFi Gigabit Ethernet HDMI USB 3.0 BT4.0 Automatisches Einschalten
--  Ιωάννης Μεταξάς - Παναγής Τσαλδάρης: Η άγνωστη αντιβενιζελική σύγκρουση (1924-1928)
--  NFL: Houston Texans besiegen Cleveland Browns dank Flacco-Katastrophe – RAN
--  Electricity rate freeze for 3.65 mil. households to be extended
--  2 banks to face fines for illegal short stock selling: FSS
--  설 계란값 치솟을라…정부, 공급 늘리고 단가 낮춘다
--  Alle gidselholdte fængselsansatte i Ecuador er blevet løsladt
--  יוקר המחיה בשיאו: מחירי המזון זינקו בעשרות אחוזים - וזה לא הסוף
--  פעילת המחאה טוענת: "השוטרים פעלו באלימות כלפי משפחות החטופים"
--  דני אבדיה בהישג מדהים: המשחק הטוב ביותר בקריירה
--  Emily Pellegrini: Το «πιο καυτό μοντέλο στον κόσμο» είναι προϊόν τεχνητής νοημοσύνης
--  Авионите Боинг 737 Макс 9 останаа приземјени по инцидентот во САД
--  Son Dakika... Bolu'da deprem
--  I dag får Danmark en ny konge. Følg med her
--  I dag får Danmark en ny konge. Følg med her
--  Albergaria-A-Velha: Empreitada para reabilitar casas municipais
--  Enero, entre flores, ferias y campañas políticas
--  RBSE ने जारी की 10वीं और 12वीं बोर्ड परीक्षा की डेटशीट, एग्जाम देने से पहले स्टूडेंट्स जरूर जानें ये नियम
--  Man to be extradited, charged with murder over death of Yiel Gatluak
--  В Ашхабаде состоится концерт «Симфония при свечах»
--  Ihr Mantra des Tages für Montag: 15. Januar 2024
--  “무례한 행동에 실망…비극적인 사건 조롱했다” 레스터 시티, ‘구단주 헬리콥터 사고사’ 조롱에 대해 성명 발표
--  Keep Your Home Warm While the Heating is Off with £1 Essential, Expert Tips
--  Mercato - PSG : La presse italienne annonce une terrible nouvelle
--  Bulgaria înlocuieşte petrolul rusesc cu ţiţei din Kazahstan, Irak şi Tunisia
--  Украинцев призвали собирать беспилотники для ВСУ на дому
--  Sinner, esordio vincente agli Australian Open. Chi sfida al secondo turno
--  Pellegri, la Nord impazzisce e il mercato chiama: l'ovazione dei tifosi Genoa
--  Milan, Leao da 113 in Serie A: un'astinenza che dura da settembre
--  [속보] 합참 "북한, 동해상으로 탄도미사일 발사"
--  КНДР провела пуск баллистической ракеты, заявили в Японии
--  Navy seizes three Indian trawlers in anti-poaching operation near Kovilan Lighthouse: 12 fishermen apprehended
--  Rapport fra to møter med dronning Margrethe: – I Norge er det ikke like vilt som i Sverige.
--  PSPCL Assistant Lineman Recruitment 2023: Registration for 2500 posts ends tomorrow, link here
--  Мартин Атанасов, Пламен Константинов и Локомотив с победа №15 в Русия
--  취약계층 전기료 인상 유예…소상공인 이자 최대 150만원 경감
+-  '동남아 MZ을 잡아라' 강원도, 말레이시아 인플루언서 관광 팸투어 실시
+-  [속보] 합참 "북한, 동해상으로 탄도미사일 발사"… 올들어 첫 미사일 도발
+-  노인맞춤돌봄서비스 이용 가정 점검
+-  삼척소방서, 도계 사택마을 대상 화재 안전대책 추진
+-  산마루산악회 시산제 개최
+-  강원대, 학부모와 자녀가 함께하는 진로진학 콘서트 개최
+-  Handball-EM 2024 in TV und Live-Stream: Alle Ergebnisse im Überblick - DHB-Team muss heute gegen Nordmazedonien ran
+-  فيديو مرعب.. لحظة سقوط فتاة من الطابق 26 في مصر
+-  (بزنس النوم).. تجارة مربحة تزدهر
+-  زخات مطر خفيفة ومتقطعة في أجزاء مختلفة من الأردن
