@@ -1,51 +1,11 @@
 # Latest News
--  القسام تعلن استهداف دبابة ميركافا بخان يونس
--  مقتل 5 جنود باكستانيين بانفجار في إقليم بلوشستان
--  وزير المالية يصدر الأمر المالي رقم 1 لشهر كانون الثاني للوزارات والدوائر الحكومية
--  سفير إيران بالأمم المتحدة يحذر من العدوان على اليمن
--  إجراءات قانونية بحق المعتدين على الغابات بهدف التحطيب
--  إعلام إسرائيلي: انفجار قوي في خليج حيفا
--  فنان مصري يستشهد بوائل الدحدوح بعد اعتزاله الفن للمرة الثانية
--  Grgo na tržnici prodaje gotovo 30 godina, ustaje u dva ujutro i nije mu teško
--  Google Removes Binance, Kraken, Others From Play Store In India
--  Çoban, yanında işe girdiği sürü sahibinin 70’e yakın hayvanını çaldı
--  USK, çiğ süt tavsiye fiyatını üreticinin eline 13,5 lira geçecek şekilde belirledi
--  İYİ Parti 8 ayda 6 milletvekili kaybetti
--  Başkentte elektronik yedek parça üretim fabrikasında yangın çıktı
--  Başkentte zincirleme trafik kazası
--  56 yaşında üniversite kazandı, şimdi hemşire olmak için dirsek çürütüyor
--  Kaza yapan aracı sallaya sallaya çekiciye yüklemeye çalıştılar
--  Öğrenciler için tatil vakti! Cuma günü son ders zili çalacak
--  Konya’da uyuşturucu ticaretinden aranan şahıs yakalandı
--  แก๊งโจ๋ห้าว! ปาระเบิด-ไล่ฟันกลางถนน เด็ก13ขาหัก หลังก่อเหตุโพสต์เย้ยคู่อริ
--  Konya Büyükşehir'in 'Şehir Konferanslarında' şehitler için dua edildi
--  チェンマイのミャンマー国境で1人射殺、アヘン75キロ押収
--  Fulya Öztürk’ün canlı yayında sınır hattında söylediği sözlere tepki yağdı: 'Haberci değil şovmen!'
--  20대 여성에게 고백을 거절당하자 성폭행한 30대 징역형 선고
--  ‘교도소 인기남’ 수감후기 올려 다시 법정 선 칼부림 예고 20대, 원심보다 형량 늘어
--  월요일 출근길 기온 ‘뚝’... 최저 영하 13도 ‘맹추위’
--  16-летняя Корнеева выиграла первый матч в основной сетке турнира «Большого шлема»
--  هذه هي قائمة مباريات اليوم الثاني من كأس أمم إفريقيا
--  Stop attacks on UDA, officials tell ODM leaders
--  Александр Корнев победил в масс-старте на чемпионате России в Чайковском
--  AKP'den İBB'ye Yeni Kumpas: Otobüs Bozuldu
--  格調不是生活的全部｜生活普通話
--  Adana'da otobüs şoförü, kalp krizi geçiren yolcuyu hastaneye yetiştirdi
--  Bursa'nın usturlap ustası Cebrail Çukurkaya'nın tarihi sanatı!
--  İstanbul'da sokak ortasında husumetlisini vurdu
--  Cedi Osman'dan 3 üçlük!
--  Alperen Şengün Houston'u sürüklemeye devam ediyor
--  Kastamonu'da yangın! Ev küle döndü
--  Nagłe ocieplenie okaże się chwilowe. Wiemy, kiedy znów uderzy siarczysty mróz
--  Синоптик Цыганков рассказал об аномально холодной погоде в России
--  סמוטריץ הנחה על מימוש עיקולים של 3.1 מלש״ח מכספי הרשות הפלסטינית והעברתם למשפחות נפגעי טרור
--  Najviše stranaca u hrvatskim zatvorima iz BiH i Srbije
--  17 जनवरी 2024 का राशिफल: मेष से मीन तक, जानिए किस राशि के लिए कैसा रहेगा दिन
--  Kort: Áætluð staðsetning gossprungunnar
--  HEP koristi Buško jezero, a ne plaća: Dug prema BiH višemilionski
--  Корнев выиграл масс-старт на чемпионате России по биатлону в Чайковском
--  AK Parti'de 31 Mart hazırlıkları tam gaz: Yerel seçimde 2 milyon 300 bin görevlisiyle sahada olacak
--  Синоптики о снегопаде в Азербайджане
--  Kickoff | Eto'o baffled by Bafana poor AFCON showing
--  Над 100 наши граѓани годишно собираат пари за лекување, на клиниките редовно нема лекови
--  Κέβιν Ντε Μπρόινε: Βγάζοντας ξανά το μοιρογνωμόνιο στο γήπεδο… (ΒΙΝΤΕΟ)
+-  Muzej grada Zenica prošle godine posjetilo 12.000 ljudi, realizovano 135 promocija i radionica
+-  Oko 180 žena u Gazi porodi se svaki dan u nehumanim uslovima
+-  北, 요격 힘든 '극초음속 미사일' 쐈나…군 분석 중
+-  "이렇게 어리고 예쁜 주무관 처음" 육군 중령의 노래방 성추행
+-  클린스만 감독 "어느 한 팀 쉽지 않다. 지금은 오직 바레인전만 생각"
+-  [매일칼럼] 트럼프 위협, 결코 만만치 않다
+-  İlk Türk astronotu taşıyacak kapsül Florida'ya ulaştı
+-  Naci Görür'den korkutan Bolu depremi açıklaması!
+-  AK Parti Ankara adayları ne zaman açıklanacak? AK Parti aday tanıtım toplantısı ne zamana ertelendi?
+-  Prof. Dr. Faruk Beşer, vefat etti
