@@ -1,51 +1,11 @@
 # Latest News
--  Hasan Dağı’nda düşerek yaralanan dağcı helikopterle kurtarıldı
--  U diagnostikua me kancer, Shtëpia e Bardhë: Sekretari i Mbrojtjes Austin ka nevojë për kujdes të mëtejshëm mjekësor
--  [숏폼뉴스] 김보성, 두 아들과 연 끊었다는데…차남이 밝힌 근황
--  Ei vieläkään kotivoittoa – Lukko vetäytyi pelin jälkeen pukukoppiin
--  Marcus Rashford ends home drought but Spurs fight back twice at Man Utd - 5 talking points
--  «Манчестер Юнайтед» сыграл вничью с «Тоттенхэмом»
--  "אנחנו משקרים לעצמנו ולא בכיוון": הוויכוח בין איזנקוט לנתניהו על השבת החטופים
--  Gólzáporos rangadót játszott a United és a Tottenham
--  קבוצת הראל ביטוח ופיננסים ארגנה מפגן תמיכה לזכר הנופלים ולמען השבת החטופים והחטופות
--  Intensifikohen zërat për rikthimin e Benzemas në Europë, tre gjigantët vihen pas francezit
--  12 Ways To Upgrade Corn Dogs
--  Kinderzuschlag erhöht: Wer einen Anspruch hat und was in den Antrag gehört
--  Újabb amerikai légicsapás a húszik ellen
--  Kína ellen voksoltak Tajvanon, tovább nőhet a feszültség a térségben
--  Még hónapokig tarthat a gázai háború
--  Három Tolsztoj-nagyregényt fordította újra négy év alatt Gy. Horváth László
--  Učenici u ZHŽ-u skloniji strukovnim školama, učenice biraju gimnaziju
--  IAS officer slams British Airways for discriminatory policies, airline responds
--  Kocaeli'de uyuşturucu operasyonu
--  «Περίπατος» της Βαλένθια στο «Νουέβο Μιραντίγια»
--  Кола отнесе светофар в центъра в Габрово
--  Theo torna a casa: dopo quattro partite Hernandez giocherà da terzino
--  «Устроили бардак». На представителей клуба КПЛ подали письма в ФИФА и УЕФА
--  Çarşıya diye evden çıkan adamdan 1 aydır haber alınamıyordu. Cesedi boş arazide çuvalın içinde bulundu!
--  Vainajaa ei voitu Tampereella laskea hautaan, koska sinne oli jo laskettu väärä vainaja
--  Букмекеры определили победителей матчей чемпионата Казахстана
--  تعادل نيجيريا أمام غينيا الإستوائية يبشرها بلقب أمم إفريقيا
--  Media Jemen: Houthi-gebied voor derde dag op rij aangevallen
--  China-scepticus William Lai wint Taiwanese verkiezingen: 'Overwinning voor de democratie'
--  Habiba više ne plače, u frižider ne može stati ni šibica: Pogledajte šta im je narod sve donio
--  Suella Braverman joins thousands at pro-Israel rally
--  Suella Braverman joins thousands at London rally ‘in solidarity with Israel’
--  הכבישים המרכזיים בתל אביב חסומים לתנועה: המחאה עולה שלב
--  אלפי פיטורים מתחילת 2024: האם הבינה המלאכותית מאיימת על כולנו?
--  בעלי כלבים? לעמותה הזו יש בשורה מדהימה עבורכם
--  סלקום ופרטנר ישלמו פיצויים בכ-13.5 מיליון שקל: גם אתם זכאים?
--  EMPOSSADO NOVO LÍDER DA IURD
--  פלאנט במחווה ללהקת קווין: זו ההופעה האייקונית שתוקרן לצופים
--  Norjan alppitähti Kilde poissa rinteiltä loppukauden – tyttöystävä Shiffrin sairaalassa tukena
--  Catania, la Polizia di Stato presente con la campagna “Questo non è amore”
--  وزارة المالية : 3 ,126 مليار دينار إيرادات والنفقات 125.7 مليارخلال العام الماضي.
--  Presidente angolano diz que há liberdade de imprensa em Angola
--  خطاب ناري لـ ابو عبيدة بعد 100 يوم من بدء الحرب
--  Dómarar og VAR fá virðingu Emery - „Þetta er afar mikilvægt fyrir dómara leiksins“
--  Erciş'te kardan kapanan yollarda çalışmalar devam ediyor
--  UŽIVO: Barakude u ludoj atmosferi vode veliku bitku za finale protiv Mađara, Hrvatska u minimalnoj prednosti
--  IND vs AFG: Have confidence to bowl at any phase of a T20 match now, says Axar Patel
--  В Дагестане умер участник финской и Великой Отечественной войн
--  El Girona B cau al camp del cuer (1-0)
--  Iowa principal who risked his life to protect students during a high school shooting has died
+-  Четете в "Марица": Пловдив иска Одеона от държавата
+-  Þýskaland: Flottur sigur hjá Gladbach
+-  ووٹ کا بند کمروں میں سودا کرنیوالا لیڈر نہیں گیدڑ، شہلارضا
+-  Sumudica: Fenerbahçe, Şampiyonlar Ligi kazanmış gibi sevindi
+-  Arazide bulunan çuvaldan vahşet çıktı
+-  En RD aprobaron 1236 proyectos de inversión pública en año 2023
+-  `The Honeymooners’ actress Joyce Randolph has died at 99; played Ed Norton’s wife, Trixie
+-  Los niños palestinos de Gaza suplican por un "sorbo de agua y un poco de pan"
+-  İsmail Kartal'dan çarpıcı açıklama! "Daha farklı kazanabilirdik"
+-  Marius Sumudica'dan hakem tepkisi!
