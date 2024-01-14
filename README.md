@@ -1,11 +1,51 @@
 # Latest News
--  "De Bruyne hẳn hay chơi bi-a lúc rảnh"
--  यूपी का मौसम: कोहरे की घनी चादर में लिपटा प्रदेश, ये शहर रहा सबसे ठंडा, इन जिलों के लिए जारी किया गया अलर्ट
--  ROH Spoilers From Before Tonight’s AEW Collision
--  PSM Kembali Siapkan Tim Usai Jeda Kompetisi, Pengamat Minta Lakukan Hal Ini Agar Bersaing di Papan Atas
--  한소희 프랑스 대학 못간 이유 “비자 발급 못해서…”
--  When GoI goes on Instagram
--  Thane: When crime is family business
--  กองทุนพัฒนาการกีฬาแห่งชาติ ส่งมอบอุปกรณ์กีฬาฯ สนับสนุนนักเรียนและเยาวชน
--  Trabajo de baja calidad en el portón de una casa
--  Анкалаев: «Дайте мне бой за пояс!»
+-  Olam Agri reiterates commitment to human, economic development
+-  베르너, 드라구신 이어 갤러거까지?…EPL 토트넘, 겨울 이적 시장서 광폭 행보
+-  Власти Мексики расследуют сообщение об исчезновении девяти колумбийских женщин
+-  বিদেশি শিক্ষার্থী কমানোর পরিকল্পনা কানাডার
+-  Ayodhya:రామ్‌లల్లాకు కుటుంబంతో వస్తా, ప్రాణ ప్రతిష్ట రోజు మాత్రం కాదు..!
+-  وفيات الاحد 14/ 1/ 2024
+-  هذه المدينة ستصبح روسية. الجيش الأوكراني يحصّن خاركوف لكنه سيغادرها دون قتال
+-  전문가들 "대만 대선, 한국에도 영향 불가피…한중 외교 시험대"
+-  राजीव कुमार झा की कविता : रविवार के दिन
+-  지효, 거울 셀카 속 청순 비주얼 "덮죠 어땡"
+-  La Policía Nacional reivindica la bandera y el "amor a España" en su bicentenario
+-  La Universidad de Oviedo, guardiana de un expolio, identifica 19 obras incautadas por el franquismo, la mayoría retratos
+-  Mascarillas, bolinas y las cosas sencillas
+-  "Si hay salud y el partido quiere volveré a presentarme, estoy feliz trabajando"
+-  Gijón pone el freno a las viviendas de uso turístico al decidir no dar nuevas licencias
+-  Cult groups write Ogun monarch, beg for forgiveness, plead for mercy
+-  উখিয়ায় মিনিবাস-অটোরিকশা সংঘর্ষে যুবক নিহত, আহত ৫
+-  ‘ఇండియా’ చైర్మన్‌గా ఖర్గే.. కూటమి ఏకగ్రీవ ఆమోదం..
+-  هل ستحدث الضربات على الحوثيين أي فرق؟
+-  Me arrependo, diz Gypsy Rose Blanchard, pop star nos EUA por mandar matar a mãe abusiva
+-  Cô giáo mầm non nhận chạy án ma túy với giá tiền tỷ
+-  God will do a new thing in your life
+-  Mangsa banjir Johor makin kurang
+-  Former Dana Brooke Debuts in TNA Wrestling, Has New Ring Name
+-  ‘আগুনে হামার সংসারডা পুইড়া গ্যাছে’
+-  পাখি নাকি মানুষ
+-  No need for Dhannipur mosque, says Ram Mandir case litigant Iqbal Ansari
+-  জাপার নির্বাচনি ফান্ড নিয়ে প্রশ্ন, বহিষ্কারের মু‌খেও অনঢ় বিক্ষুব্ধরা
+-  Трамп заявил, что мир как никогда близок к началу третьей мировой войны
+-  ทม.แม่เหียะ ส่งมอบความสุขให้น้อง ๆ ในงานวันเด็กแห่งชาติ
+-  Pemuda Ancam Tembak Anies Ditangkap, TKN Fanta Apresiasi Polri Gercep
+-  A lo Claudia Berninzon: Armando Machuca terminó con el termómetro en el aceite caliente | El Gran Chef Famosos
+-  Mauricio Mesones llegó al rescate de Junior Silva para ayudarlo a trozar su cuy | El Gran Chef Famosos
+-  National conference on aerospace quality held
+-  Lai’s victory in Taiwan is an embarrassment for Beijing
+-  Lai’s victory in Taiwan is an embarrassment for Beijing
+-  Lai’s victory in Taiwan is an embarrassment for Beijing
+-  K-Talk: Spesial SIKcret Time Bareng Park Hyung Sik
+-  Therapy for total healing
+-  Dựa vào đâu để chọn ngành học, trường nào đào tạo ngành công nghiệp bán dẫn?
+-  Nhiều học sinh chơi pháo tự chế gây nổ nát bàn tay
+-  Mỹ gặp khó trước 'mồi lửa' Houthi
+-  Đón Tết, phố phường thêm nghẹt xe
+-  홍정민, 유럽여자골프투어가 주목할 '신인'에 선정
+-  ¿Qué ves primero? Este sencillo test te dirá si eres alguien inquieto
+-  Estos son los números de la suerte para hoy domingo 14 de enero
+-  Ganjar: Jangan Takut Diintimidasi
+-  Minna Nikkanen Hall of Fameen – Wilma Murto palkittiin
+-  Занимались «подставами»: задержан член банды Дженго
+-  "كلاشينكوف" تجهّز الجيش الروسي بدروع ومعدات عسكرية جديدة
