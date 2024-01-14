@@ -1,51 +1,51 @@
 # Latest News
--  אביבה ששוחררה מהשבי נאמה בכיכר החטופים: "הייתי עדה לאלימות פיזית, מילולית ומינית"
--  נעצר תושב תל אביב ששייך לארגון פשיעה, אמל"ח רב נמצא בביתו
--  Türkiye'nin notu şimdi pozitif! Enflasyonda hissedilir düşüş ne zaman?
--  Проблемите в икономиката на ЕС свиха с 8.2% българския износ за общността
--  Three die in Ogun auto crash
--  No water and electricity in KwaZulu-Natal following heavy rains
--  United's two sirs! Alex Ferguson and Jim Ratcliffe are all smiles at Old Trafford as the pair share a warm conversation in British billionaire's first game since club investment was confirmed
--  Like mother, like son! How Queen Margrethe II commenced her reign exactly 52 years ago... And today, she passed the crown to her son, King Frederik X
--  Laura Dern, 56, gushes about 'deep friendship' with 'superpower' Taylor Swift, 34, after starring in her Bejeweled music video
--  ברקת: "השר גלנט חי בקונספציה שגויה"
--  Büchner-Schwestern: „Mama meinte, wir sollten uns nicht provozieren lassen“
--  Iz petnih žila: Koje je mečeve Đoković igrao najduže u prvom kolu na grend slemu, a koje uopšte na Australijan openu
--  Lauryn Goodman leaves Britain behind as she jets off on holiday with son Kairo, three, and her five-month old daughter - after Kyle Walker was confirmed as father of BOTH children
--  Man United 2-1 Tottenham - Premier League: Marcus Rashford slots Red Devils back in front to end his home drought
--  Joel Pohjanpalo hurjasteli hattutempun Italiassa
--  Joel Pohjanpalo hurjasteli hattutempun Italiassa
--  JOH y el CNA
--  مفاجأة مذهلة عن صغارها.. مواطن يحوّل مزرعته إلى "محمية ضبان" بالقصيم
--  Valencia goleia Cádiz e sobe na tabela do Espanhol
--  Турската лира достигна ново дъно - 16,88 за левче
--  VIDEO: Madre usa a su hija para contrabandear drogas en prisión
--  Detenido taxista acusado de violar pasajeras en SPS
--  México registra aumento de ocupación hospitalaria por infecciones respiratorias
--  Ancelotti l-a făcut pe Florentino Perez să se răzgândească! Fotbalistul care rămâne până la urmă la Real Madrid
--  The Abundance Challenge & Chance At Equality
--  CES 2024: Intel Goes Big With New Gaming Laptop CPUs
--  Hà Giang: Triệt phá đường dây lô đề liên tỉnh hơn 180 tỷ đồng
--  Người chồng tiết lộ thói quen ăn uống của vợ, dân mạng bỗng chia thành hai phe
--  Tuyển thủ Việt Nam bất ngờ đạt thông số xấp xỉ 100%, vượt qua hàng loạt ngôi sao Nhật Bản
--  Sếp LĐBĐ châu Á khen ngợi tuyển Việt Nam, gửi lời chúc tới chủ tịch VFF sau trận gặp Nhật Bản
--  Quỳnh Kool mặc áo sơ mi trẻ trung và thanh lịch từ trong phim ra ngoài đời
--  Không cần đi xa để săn mây, ngay Hà Nội cũng có 1 điểm lý tưởng, cũng chính là nơi cao nhất thủ đô
--  Diva Mỹ Linh: Tóc Ngắn ảnh hưởng rất lớn, đánh dấu lần tôi dám thay đổi. Tham gia Chị Đẹp rất vui, rực rỡ hay không phải hỏi khán giả!
--  Các trường xét học bạ trong tháng 1, TB 6 điểm/môn cũng có thể ứng tuyển: Sĩ tử 2k7 nắm ngay cơ hội đỗ ĐH sớm!
--  Loạt ảnh đám cưới Hoàng tử Brunei: Cặp đôi hoàng gia trao ánh mắt ngọt ngào trước sự chứng kiến của hàng nghìn người dân
--  Tiêu xài hoang phí không thể kiểm soát? Rất có thể do tuổi thơ bạn đã gặp vết thương tâm lý này
--  Người đàn ông ngộ độc suýt mất mạng khi ăn loại rau nhiều người thích, rất quen thuộc trên mâm cơm Việt
--  Rộ nghi vấn dàn Táo Quân quen thuộc đồng loạt rời show, chỉ còn "Ngọc Hoàng" Quốc Khánh góp mặt?
--  Nam thần Gia Đình Là Số 1 kể về tai nạn kinh hoàng khi đi cùng Lee Min Ho: “Bị mất trí nhớ, bạn bè giúp tôi tắm”
--  Sao nữ "bị cấm đóng vai đẹp" vẫn đổi đời nhờ xấu lạ, rời showbiz cưới đại gia 34.000 tỷ
--  Ce a spus Florin Tănase când a fost întrebat despre transferul lui Radu Drăgușin la Tottenham
--  Aniversario de Lima: programación de conciertos gratuitos y pasacalles que comenzaron este sábado 13
--  Rusijos armija turi didelių problemų. Paralyžiuotos „Kalibr“ raketos
--  Kariuomenė liepė žmonėms „ruoštis karui“! Visa šalis panikuoja. Kas vyksta
--  Didžiulė problema. „Jei jos neišspręsime, pralaimėsime karą“
--  [ŽT] „Dar vienas guli. Galva nutraukta. Sudėtinga likti gyvu“ (N-18 Video)
--  [ŽT] Rusija suplanavo „didžiausią ekologinę katastrofą Ukrainoje!“ Jau pradėjo jos įgyvendinimą
--  Kodėl Vakarų šalių koalicija apšaudo Jemeną? Ir kaip tai veikia pasaulio ekonomiką
--  Paaiškėjo, kad profesionalūs futbolo vartininkai pasižymi išskirtiniais gebėjimais
--  [ŽT] „40 000 pėstininkų apkasuose.“ Generolas apie pagrindinio puolimo kryptį
+-  مصر للطيران تدشن خط جوي بين القاهرة ومصراتة
+-  Iran oslobodio novinarke zatvorene zbog izvještavanja o smrti Mahse Amini
+-  Balzaretti e il mercato: "Samardzic e Perez? L'Udinese non regala niente"
+-  الإعلام الحكومي: ذي قار تشهد انطلاق ثورة عمرانية
+-  AK Parti Gençlik Kolları Başkanı İnan İsrailli oyuncunun soykırım sevincine tepki gösterdi: Soykırımcıların yeri uluslararası mahkemelerdir
+-  Bangladeş terör devleti İsrail'e karşı açılan soykırım davasına desteğini duyurdu
+-  تعرف على القرارات الكاملة لمجلس الوزراء بجلسة اليوم
+-  مقتل 3 جنود سوريين باستهداف جوي تركي
+-  العراق.. 88 نائباً يقدمون مقترح قانون لإخراج القوات الأجنبية
+-  بايدن الرئيس الاميركي الأدنى شعبية منذ 15 عاما
+-  چوہدری نثار کا الیکشن سے پہلے بڑا اعلان
+-  رضوى الشربيني تحتفل بعيد ميلاد شقيقها .. وسامته تخطف الأنظار
+-  وسط أجواء عائلية .. نانسي عجرم تحتفل بعيد ميلاد ابنتها ليا
+-  صوتكِ بيدفي.. أصالة تتفاجأ برد فعل معجب في حفلها
+-  "بقوله دمي خفيف"..ما لا تعرفه عن إليسا تكشفه في لقاء مع بيلبورد عربية
+-  VIDEO/ As 24 orë në shtëpi, nisin flirtimet e para në Big Brother Vip
+-  नशेड़ी ने 3 लोगों पर चलाया चाकू, देखें वायरल वीडियो
+-  ABD basını yazdı: Çıkmaza girmiş durumdayız! Biden'ın İsrail'e karşı 'sabrı tükeniyor' iddiası
+-  ČUVENA GLUMICA PREMINULA U 99. GODINI: Proslavila se u seriji "The Honeymooners" - sin saopštio tužnu vijest
+-  Poll shows 72 percent of Republicans would be satisfied with Trump as nominee
+-  عروض بيم اليوم الاثنين 15 يناير 2024 بجميع فروع بيم ماركت
+-  عروض كازيون اليوم الاثنين 15 يناير 2024 افضل عروض اليوم
+-  غالانت: على إسرائيل تقوية «السلطة» في مواجهة «حماس» بالضفة
+-  Φίλιππος Πλιάτσικας: «Όταν συνεργαστήκαμε με τον Βασίλη Καρρά ήμασταν δακτυλοδεικτούμενοι»
+-  Pacifica: Two teens robbed at gunpoint in shopping center
+-  پی ٹی آئی چھوڑنے کیلئے کیا آفرز ہوئیں؟ اسد قیصر کا پہلی بار حیران کن انکشاف
+-  MWM: уничтожение объектов ВПК усилит дефицит боеприпасов ВСУ
+-  El boliviano Esteban Mayer logró ingresar al Top-20 de la Copa del Mundo de Esgrima en España
+-  چاچاکہنے پر افتخار سیخ پا۔۔ مداح کو خامو ش کروا دیا، ویڈیو وائرل
+-  Conflicto en Ecuador: Militares buscan controlar cárceles tras liberación de rehenes
+-  Trump's campaign banks on its loyal supporters to turn out and caucus in Iowa despite frigid weather
+-  My boyfriend says he will end relationship if I don’t have phone sex
+-  Δαρμουσλή: Από τη νευρική ανορεξία στην ευτυχία με τα 2 παιδιά της
+-  Brooke is impatient and really wants to have a baby
+-  School mums are gossiping my husband had sex with another woman
+-  Tennis : Garcia-Osaka, feu d'artifice à venir ?
+-  Big family picture plan involves my husband’s ex and I am not happy
+-  My girlfriend won’t block her fragile ex because she says he won’t cope
+-  كيف أقفل دولار السوق السوداء مساء اليوم؟
+-  ‘I want to share this as part of who I am’ Cabinet minister Jack Chambers announces he is gay
+-  FMLN conmemora los Acuerdos de Paz
+-  Умер поэт и публицист Лев Рубинштейн
+-  Casa Systems Named “Global IoT Innovation Vendor of the
+-  फर्जी बैंक कर्मचारी ने NRI दंपत्ति से 1.2 करोड़ ठगे
+-  భోగి మంటల్లో వైసీపీ చీకటి జీవోలు
+-  Feyenoord speelt gelijk tegen NEC en raakt verder achterop bij PSV
+-  Valencia proudžila niz pobjeda u španjolskom prvesntvu
+-  هدف مبكر يحسم تقدم المنتخب على موزمبيق في الشوط الأول
+-  وزير دفاع إسرائيل يحذر من "اشتعال الأوضاع في الضفة الغربية"
+-  المؤتمر بقيادة المناضل صادق أبو راس
