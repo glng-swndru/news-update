@@ -1,51 +1,11 @@
 # Latest News
--  اسطوره الفلكلور اليزيدي #سترهان_شنكالي#خضر_فقير
--  Everton make emotional gesture to Seamus Coleman as Ireland legend shatters all-time club record in Premier League clash
--  Bakasetas'ın neden kadroda olmadığını Abdullah Avcı bu sözlerle açıkladı
--  Devojčica (10) teško povređena u eksploziji plinske boce, voze je u Švedsku
--  Michael Mosley shares warning on four foods that 'do more harm than good'
--  Otti To Aba Residents: Now That Storm Is Over, You’ll See For Yourself
--  শীতে জবুথবু বরিশালের জনজীবন
--  Ministro diz não existir suspeita de contágio do caso de sarampo
--  Djokovic na segunda ronda do Open da Austrália após bater "qualifier" Prizmic
--  İkinci kez Türkiye’ye geliyor
--  Rüyada Siyah Köpek Görmek Ne Anlama Gelir? Rüyada Siyah Köpek Sevmek Nasıl Yorumlanır?
--  إعلام العدو: انفجار بمفاعل كرمل أوليفنز الصهيوني في حيفا
--  Koçiu dhe Beci vizitojnë pacientët pas zjarrit në spitalin e Shkodrës: Situata është normalizuar
--  Huge Hollyoaks star makes return to soap permanent after Hollywood stint as bosses give her big storyline
--  Pflichtsieg nach Schreck: Japan bezwingt Vietnam
--  Frauenstein verkauft Garagenstandorte
--  Chemnitzer Brückenstraße am Montag erneut wegen Korso gesperrt – Montagsdemonstration mit Zwischenkundgebung
--  Bitteres Grand-Slam-Debüt für Seidel - Djokovic mit Kraftakt
--  Unfallfahrerin in Penig mit knapp drei Promille
--  Großdemo gegen Rechts in Potsdam - Scholz und Baerbock dabei
--  Texas mother Kate Cox on the outcome of her legal fight for an abortion: "It was crushing"
--  Mladi košarkaš iz Konjica preminuo u 23. godini života
--  UBWFAN Empowers 2,500 Anambra Women
--  Desplegada en Anzoátegui Consulta Pública de la Ley para el control de las ONGs
--  Daima ilgi isteyen 4 burç
--  Lugnande besked från Robin Dahse - efter otäcka olyckan: "Änglavakt
--  Elvana im Ampere: Es klingt nach Gotteslästerung, ist aber herrliche Rockabilly-Grunge-Party
--  Karleuša u mikro miniću "Po*no star" zapalila klub, htela da prekine nastup: "Devojke su padale u nesvest"
--  Srbija – Grčka: Delfini konstantno u prednosti, rival ima priključak
--  Perkuat Kerja Tim Pemenangan, Simpatisan Pendukung AMIN se-Kabupaten Takalar Gelar Silaturrahim Awal Tahun
--  Hrvatski ministar: Brod Jadran smatramo otuđenim, uključiti međunarodne sudove
--  Kastamonu'da 118 köye ulaşım sağlanamıyor
--  Aamulehti: Ilveksen pelaaja uhattiin tappaa - Ilves teki rikosilmoituksen
--  Roomalaisseura on löytänyt upean vireen Italian Serie A:ssa
--  DIRECT. Cyclone Belal à La Réunion: l'île placée en alerte rouge, des vents "dévastateurs" attendus
--  Modi releases first instalment of PM-JANMAN scheme for pucca homes to one lakh beneficiaries
--  Xavi Hernández sobre la Final de la Súpercopa: No hay favorito
--  Ünlü Rus şair Lev Rubinstein hayatını kaybetti
--  Tamil Nadu’s power deficit may vary depending on availability of 800-MW North Chennai unit
--  Češka z revoluční ligy: Podmínky jako v NHL! Přišlo na nás 13 tisíc lidí
--  İBB Hataylı üreticilerden satın aldığı narenciyeleri İstanbullulara ulaştırdı
--  Đám tang ca sĩ Huỳnh Vũ Thạch: Không khí đau thương bao trùm, gia đình khóc nghẹn gây xót xa
--  Đình Bắc đánh đầu như sấm sét vào lưới đội tuyển Nhật Bản, gỡ hòa cho Việt Nam
--  Bắt giam cô gái trẻ lái ô tô tông chết người sau tiệc sinh nhật
--  Cách kích hoạt đầy đủ camera 48 MP trên iPhone 15 đơn giản
--  Khu vườn dưa hấu mini trên ban công ''gây bão'' MXH xứ Trung: Có đến 10 giống khác nhau, chủ nhân quanh năm tha hồ thu hoạch
--  Đám cưới "chấn động" miền Tây: Vàng không đếm xuể, nhà, xe tiền mặt kim cương vẫn không bằng thân thế của cô dâu chú rể
--  Bé gái 8 tuổi đã mắc ung thư thận giai đoạn cuối bởi một món ngon nhiều người yêu thích
--  Thiên Đàn Bắc Kinh có một cánh cửa "thần bí", Càn Long viết 3 chữ, suốt trăm năm chỉ 1 người đi qua
--  HOT: "Thiên thần lai" Danielle (NewJeans) đến Hội An, lộ diện với visual đỉnh "chấp" cả cam thường
+-  مجلس النواب يوافق على مادة التعريفات بقانون الأموال المستردة
+-  الرئيس السيسي يوفد مندوبا للتعزية
+-  بينها "المنشآت الطبية".. مصدر يكشف عن 4 قوانين تعدها وزارة الصحة
+-  محافظ جنوب سيناء يبحث مع الـ"جايكا" إنشاء محطات للطاقة الشمسية والرياح
+-  ضبط 4 عيادات طبية غير مرخصة في بني سويف
+-  مدير معهد المحاصيل السكرية يكشف أسباب توقف مصنع أبو قرقاص للسكر
+-  وقفة احتجاجية.. تفاصيل اليوم التضامني مع فلسطين بـ"الصحفيين"
+-  "كفاية التاريخ".. مدرب المنتخب السابق يوجه رسالة نارية لـ أوناحي
+-  "في هذه الأماكن".. قرار من وزير الرياضة لمشاهدة مباراة مصر وموزمبيق مجانا
+-  صلاح يبحت عن كسر عقدة المباريات الافتتاحية في كأس الأمم الإفريقية
