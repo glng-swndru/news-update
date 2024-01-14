@@ -1,51 +1,51 @@
 # Latest News
--  En 10 días de 2024 realiza FGE 178 detenciones
--  Qəzzada ölənlərin sayı 24 minə çatır
--  Chesapeake artist mixes vibrant watercolors to illustrate new children’s book written by MLK’s only grandchild
--  طلاب مدرسة شهيد القرآن بحجة يسيرون قافلة للجرحى
--  ‘벤투호’ UAE, 홍콩에 3-1 완승…전반전 부진 후반에 지워냈다! [2023 아시안컵]
--  Super Eagles Wasteful In Opening Draw Against Equatorial Guinea
--  Rachel and John Fuda celebrate ‘special’ anniversary, share tips for marriage success: ‘Prioritize sex’
--  Kaapo Kakko palaa peleihin pitkän tauon jälkeen
--  Niña de 4 años muere atropellada por conductor de la tercera edad ebrio en Monterrey
--  Key observations from Iowa before GOP go-time — as apocalyptic winter sets in
--  APC Calls For Implementation Of El-Rufai C’ttee’s Report On True Federalism
--  Andrea Carnevale: “Papà uccise mamma quando avevo 13 anni. Paola Perego mi ha tradito e lasciato”
--  VÍDEO: Carro pega fogo em praia famosa de Florianópolis
--  Da braut sich was zusammen
--  Affaire des Enfants du Trocadéro : Quand Paris Cache ses Ténèbres
--  Dois postos de saúde de Joinville passarão por obras e mudam locais de atendimento
--  Elton John quer ganhar R$ 50 milhões com leilão de itens pessoais
--  Obdachloser Randalierer (21) steht vor Gericht: „Sein Verhalten war ein einziger Aufschrei“
--  Экс-премьер Канады заявил, что Трюдо должен сам принять решение о возможной отставке
--  La respuesta de Benzema a Gallardo tras su ausencia en Al-Ittihad
--  Sierro schiesst Toulouse zum Sieg + Bremen punktet spät in Bochum + Bologna unterliegt
--  Herido tras caer a aliviaderos de Macagua
--  Missing Athy boy (14) located
--  কোহলির ফেরার দিনে ভারতের নায়ক অক্ষর-দুবে-জয়সোয়াল
--  Friedlicher Protest in Tirschenreuth für den vollständigen Erhalt der Krankenhäuser
--  В Вологодской области в ДТП с автобусом и скорой помощью пострадал человек
--  6,713 KM In 67 Days: Rahul Gandhi Embarks On Nyay Yatra To Present New Vision For India Devoid Of Violence, Hate
--  Tesla informiert über Erweiterungspläne - Einwohnerbefragung startet
--  Tras derrumbe, Petro visitó Chocó y aseguró que destinará $500.000 millones a Invias
--  Většina penzijních fondů loni překonala inflaci
--  APPlife Digital Solutions, Inc. Completes Asset and
--  Yasiin Bey Had A Very Specific Way Of Describing Drake’s ‘Pop’ Music, And Users Online Are Having A Field Day
--  Kimmich Reacts To Barcelona’s Link
--  عون: الإنتاج الحالي من النفط يبلغ 950 ألف برميل يومياً
--  Girona Fail To Capitalise On Real Madrid’s Absence With Goalless Draw At Almeria
--  Antalyaspor'da İsrailli futbolcu Jehezkel kadro dışı bırakıldı
--  VIDEO Danska kraljica zaplakala tijekom abdikacije i na izlazu jedva izustila tri važne riječi
--  Adiós al moho en las juntas de la ducha: el truco de la mopa para combatir la humedad en el baño
--  لأول مرة منذ بدء الحرب.. إسرائيل تقصف منطقة جديدة في لبنان
--  Man fled prison and was found in pub two years later with only a toothbrush and £6
--  Ex-Minister Pantami Mobilises N50m Ransom For Father Of Abuja Kidnapped Girls
--  Ngoại trưởng Thụy Sĩ: Sẽ không có hòa bình ở Ukraine nếu Nga không lên tiếng
--  Schwarz-rotes Kabinett stellt sich vor
--  Kardeşlerim’in sevilen yengesi Şengül’ün diziden neden ayrıldığı belli oldu
--  FC Bayern meistert Pokal-Generalprobe gegen Bamberg
--  Novak Djokovic sufre para vencer a debutante croata Dino Prizmic en Abierto de Australia
--  Redwood City PD arrest three men for alleged attempted auto theft
--  How to Watch the Los Angeles Rams vs. Detroit Lions Game Online Today: Start Time and Live Stream
--  10 yılda inşa edilen DİTİB Essen Merkez Camisi dualarla ibadete açıldı
--  Kampanye Anies di Lampung, Temui Simpatisan hingga Petani
+-  Alianza País proclama a Luis Abinader candidato presidencial de esa organización política
+-  Съдената от АЕЦ "Козлодуй" медицинска сестра: Искат да ослепея и онемея
+-  إدحلي من أكادير: "الأحرار" وضع الشباب والنساء في قلب العمل السياسي والحزبي
+-  البيجيدي يلتمس العفو على صحفيين ومدونين
+-  لويس إنريكي يعلق على غياب حكيمي للمشاركة في "الكان"
+-  إلغاء رحلة جوية بين بروكسيل والحسيمة بسبب الإضراب
+-  حربائية الديمقراطيات الغربية.. بقلم // عبده حقي
+-  رضوان جيد حكما لمباراة السنغال وغامبيا
+-  كأس إفريقيا.. غينيا الاستوائية تفرض التعادل على نيجيريا
+-  فريق الميلان يقابل فريق روما مساء الاحد.
+-  مدير مستشفى الرازي لـ (وال) : إعصار درنة زاد من حالات الإصابة بالأمراض النفسية في ليبيا .
+-  Λάμπρος Φισφής: «Η Αντιγόνη Ψυχράμη νόμιζε για χρόνια ότι είμαστε ζευγάρι με τον Δημήτρη»
+-  De 2019 a 2023, Sedema recolectó más de 383 toneladas de pilas y baterías
+-  In - Kimmich fehlt bei Bayern-Trainingslager in Portugal - der Grund ist wunderschön
+-  Fluorescerende verf redt lopers in de Enclavecross van ijsplaat, dode bomen en ‘onzichtbare’ modder
+-  Valve shuts down a cool looking N64 Portal demake, but its dev doesn't want you to be mad at anyone
+-  تشمل رفع الضرائب.. نتنياهو يقر ميزانية تسمح باستمرار الحرب على غزة خلال 2024
+-  بإمكانيات غير مسبوقة.. "realme 11 pro plus" هاتف ذكي مبتكر في 2023
+-  الحكومة الفلسطينية ترد على تصريحات نتنياهو بشأن الحرب على غزة
+-  تخفض الكوليسترول وتقي من السرطان.. نوع من الطعام يقوي مناعتك
+-  استعجال تقرير اللجنة الهندسية لمعرفة أسباب انهيار عقار السيدة زينب
+-  التعادل يحسم مباراة نيجيريا وغينيا الاستوائية في كأس الأمم الإفريقية
+-  صدمات كهربائية.. شركة تستدعي شاحن يسبب حريق من الأسواق
+-  ليه يا زمان مسبتناش أبرياء؟!
+-  من حارة إلى ميدان
+-  l’OM : Jaouen Hadjam, la Pépite Algérienne Qui Secoue Marseille !
+-  مشهد مذهل للبطريق وتغلبه على درجة حرارة 40 تحت الصفر
+-  برج يتمايل من شدة الرياح في أمريكا.. ما القصة؟ (فيديو)
+-  بدء تحديث القائمة المبدئية لمستثمري النشاطات البيئية.. وموعد الانتهاء منه
+-  عاجل.. توضيح مهم من منصة مساند بشأن استقدام العمالة من الهند
+-  Cuándo y dónde llevar a los niños a los parques acuáticos de La Florida
+-  Birthday boy Jonathan David among scorers as Lille beats Lorient 3-0 in French league
+-  Peregrine lunar lander on Earth reentry trajectory
+-  Kalidou Koulibaly : « On va prendre ce match contre la Gambie comme une finale ! »
+-  ‘แลนด์บริดจ์’ คุ้มหรือ?
+-  Video: Tottenham star makes it six goals in six with lovely header vs Man United
+-  Ucraina a început negocierile de garantare a securității cu România
+-  Κορωπί: Συνελήφθη 62χρονος με κλεμμένα αυτοκίνητα, ναρκωτικά και σπαθί κατάνα
+-  مركبة تقتحم باحة منزل في مرج الحمام
+-  Các loại hạt ngày Tết là “thuốc bổ” sức khỏe nhưng dễ tăng cân “vùn vụt”: Bác sĩ chuyên khoa mách 4 cách ăn thông minh
+-  เมื่อคนที่ปักกิ่งเรียก ‘ตัวแสบ’ ได้ รับเลือกเป็นผู้นำไต้หวันคนใหม่!
+-  2013میں دانیال عزیز کو پورٹی ٹکٹ کس نے دلوایا؟ احسن اقبال کا اہم انکشاف
+-  Семилетний мальчик поджог торговый центр в Киеве
+-  Kommentar: Die Meisterchance für Bayer 04 ist groß wie nie
+-  الأمطار تغمر خيم النازحين شمالي سوريا
+-  الجيش السوداني يستهدف مواقعا للدعم السريع في ولاية الجزيرة
+-  وزير مالية الاحتلال يقترح زيادة الضرائب على أرباح البنوك
+-  باكستان ترسل طائرة مساعدات لقطاع غزة إلى مطار ماركا العسكري
+-  كأس أفريقيا.. نيجيريا تتعثر بالتعادل أمام غينيا الاستوائية
+-  مانشستر يونايتد يُخطط لضم كريم بنزيما
