@@ -1,51 +1,51 @@
 # Latest News
--  Antalyaspor'un İsrailli futbolcusu Jehezkel ceza alacak mı?
--  MİT'ten Suriye'de terör operasyonu
--  Selectie vv Heerde schenkt een bedrag aan de jeugdafdeling van de vv Heerde
--  "من المخلفات".. لاعب المنتخب النيجيري يرتدي حذاء الأول من نوعه في كأس الأمم الإفريقية.. ما القصة؟ (
--  عقب ثوران بركاني.. اشتعال النيران في تجمعات سكنية جنوب غربي آيسلندا
--  مسيحيون ورهبان يقدمون العزاء لأسرة المستشار عزيز عيساوي (صور)
--  احتياطي منتخب مصر لمواجهة موزمبيق في كأس الأمم الإفريقية
--  من جاور السعيد يسعد.. أبراج "وشها حلو" على من حولها
--  هدف فوفانا يقتحم قائمة أسرع 10 أهداف في تاريخ افتتاحيات كأس الأمم الأفريقية
--  بإمكانيات غير مسبوقة.. "realme 11 pro plus" أفضل هاتف ذكي مبتكر في 2023 - إعلان تحريري
--  "المدرب فوقني وزعق في وشي".. طارق يحيى يكشف كواليس كأس الأمم الإفريقية 1986 (فيديو)
--  كنز داخل الملعب وخارجه.. كيف يحل الزمالك أزماته بـ "مواهب زامورا"
--  韓国で働く 笹部佳子 著 - thenewsunlimited.com
--  月刊事業構想 (2016年2月号 大特集「地方・中小企業にチャンス 交通・物流革命」) - thenewsunlimited.com
--  ワンオペ完全マニュアル バル・ビストロ・レストラン 20店が実践する一人で店をまわすための仕事術 柴田書店 - thenewsunlimited.com
--  仕事で必要な「本当のコミュニケーション能力」はどう身につければいいのか? 安達裕哉 - thenewsunlimited.com
--  図解＆事例で学ぶ会議・打ち合わせの教科書 会議・打ち合わせ研究会 著 - thenewsunlimited.com
--  日本銀行のプルーデンス政策と金融機関経営 金融機関のリスク管理と日銀考査 熊倉修一 - thenewsunlimited.com
--  決定版Web3 城田真琴 - thenewsunlimited.com
--  投資経済 2016年 02 月号 雑誌 - thenewsunlimited.com
--  週刊 ダイヤモンド(２０２３ ７／８) 週刊誌／ダイヤモンド社 - thenewsunlimited.com
--  月刊 食堂 2010年 12月号 雑誌 - thenewsunlimited.com
--  銀行員のための相続ビジネスと相続税法 相続ビジネスに税法はどのように使われているか 田中耕司 長嶋隆 豊田美樹 - thenewsunlimited.com
--  月刊 総務(２ ２０１７ ＦＥＢＲＵＡＲＹ) 月刊誌／ウィズワークス - thenewsunlimited.com
--  成果を上げるライブコマースの教科書 双方向のやりとりで顧客の欲しいを引き出す新しいEC戦略 武者慶佑 池田好伸 川田麻由佳 - thenewsunlimited.com
--  日経ビジネス Associe (アソシエ) 2010年 6号 雑誌 - thenewsunlimited.com
--  週刊東洋経済 (2015年6／20号) - thenewsunlimited.com
--  日経マネー 2018年 12 月号 - thenewsunlimited.com
--  決算書の見方・読み方 〈融資力〉トレーニングブック 酒井啓二 - thenewsunlimited.com
--  日本におけるビジネス支援企業ダイレクトリー Directory for setting up enterprises in Ja - thenewsunlimited.com
--  近代食堂 2010年 11月号 雑誌 - thenewsunlimited.com
--  入門日本金融史 落合功 著 - thenewsunlimited.com
--  定量的リスク管理の実務 流動性リスク管理、FTP、リスク統合、ストレステストの実践的手法 ジミー・スコグランド ウェイ・チェン - thenewsunlimited.com
--  金融経済〈200〉 1983年6月 創刊200号記念号 - thenewsunlimited.com
--  高勝率トレード学のススメ 小さく張って着実に儲ける マーセル・リンク 山下恵美子 - thenewsunlimited.com
--  週刊 ダイヤモンド 2011年 17号 雑誌 - thenewsunlimited.com
--  ネットワークビジネス 2011年 03月号 雑誌 - thenewsunlimited.com
--  おっさんず六法 松沢直樹 山岸純 - thenewsunlimited.com
--  雑談力が上がる話し方 30秒でうちとける会話のルール 齋藤孝 著 - thenewsunlimited.com
--  週刊 ダイヤモンド(２０２２ ３／１２) 週刊誌／ダイヤモンド社 - thenewsunlimited.com
--  感性イノベーション 感性をビジネスに活かす 長町三生 - thenewsunlimited.com
--  週刊ダイヤモンド 2012年12月15日号 電子書籍版 週刊ダイヤモンド編集部 - thenewsunlimited.com
--  宣伝会議編集部 宣伝会議 2024年 1月 号 - thenewsunlimited.com
--  信託ビジネスのニュートレンド 新井誠 - thenewsunlimited.com
--  ＴＨＥ ２１(１２ ２０１６) 月刊誌／ＰＨＰ研究所 - thenewsunlimited.com
--  エコノミスト 2016年12月13日号 電子書籍版 エコノミスト編集部 - thenewsunlimited.com
--  池上彰のニュースそうだったのか!! 池上彰 「池上彰のニュースそうだったのか！！」スタッフ - thenewsunlimited.com
--  週刊東洋経済 2020年2 22号 雑誌(ニッポンの生命線が危ない 船・港 海の経済学) - thenewsunlimited.com
--  軍事研究(２０１９年８月号) 月刊誌／ジャパン・ミリタリー - thenewsunlimited.com
--  週刊ダイヤモンド 2023年12月9日号 - thenewsunlimited.com
+-  En 10 días de 2024 realiza FGE 178 detenciones
+-  Qəzzada ölənlərin sayı 24 minə çatır
+-  Chesapeake artist mixes vibrant watercolors to illustrate new children’s book written by MLK’s only grandchild
+-  طلاب مدرسة شهيد القرآن بحجة يسيرون قافلة للجرحى
+-  ‘벤투호’ UAE, 홍콩에 3-1 완승…전반전 부진 후반에 지워냈다! [2023 아시안컵]
+-  Super Eagles Wasteful In Opening Draw Against Equatorial Guinea
+-  Rachel and John Fuda celebrate ‘special’ anniversary, share tips for marriage success: ‘Prioritize sex’
+-  Kaapo Kakko palaa peleihin pitkän tauon jälkeen
+-  Niña de 4 años muere atropellada por conductor de la tercera edad ebrio en Monterrey
+-  Key observations from Iowa before GOP go-time — as apocalyptic winter sets in
+-  APC Calls For Implementation Of El-Rufai C’ttee’s Report On True Federalism
+-  Andrea Carnevale: “Papà uccise mamma quando avevo 13 anni. Paola Perego mi ha tradito e lasciato”
+-  VÍDEO: Carro pega fogo em praia famosa de Florianópolis
+-  Da braut sich was zusammen
+-  Affaire des Enfants du Trocadéro : Quand Paris Cache ses Ténèbres
+-  Dois postos de saúde de Joinville passarão por obras e mudam locais de atendimento
+-  Elton John quer ganhar R$ 50 milhões com leilão de itens pessoais
+-  Obdachloser Randalierer (21) steht vor Gericht: „Sein Verhalten war ein einziger Aufschrei“
+-  Экс-премьер Канады заявил, что Трюдо должен сам принять решение о возможной отставке
+-  La respuesta de Benzema a Gallardo tras su ausencia en Al-Ittihad
+-  Sierro schiesst Toulouse zum Sieg + Bremen punktet spät in Bochum + Bologna unterliegt
+-  Herido tras caer a aliviaderos de Macagua
+-  Missing Athy boy (14) located
+-  কোহলির ফেরার দিনে ভারতের নায়ক অক্ষর-দুবে-জয়সোয়াল
+-  Friedlicher Protest in Tirschenreuth für den vollständigen Erhalt der Krankenhäuser
+-  В Вологодской области в ДТП с автобусом и скорой помощью пострадал человек
+-  6,713 KM In 67 Days: Rahul Gandhi Embarks On Nyay Yatra To Present New Vision For India Devoid Of Violence, Hate
+-  Tesla informiert über Erweiterungspläne - Einwohnerbefragung startet
+-  Tras derrumbe, Petro visitó Chocó y aseguró que destinará $500.000 millones a Invias
+-  Většina penzijních fondů loni překonala inflaci
+-  APPlife Digital Solutions, Inc. Completes Asset and
+-  Yasiin Bey Had A Very Specific Way Of Describing Drake’s ‘Pop’ Music, And Users Online Are Having A Field Day
+-  Kimmich Reacts To Barcelona’s Link
+-  عون: الإنتاج الحالي من النفط يبلغ 950 ألف برميل يومياً
+-  Girona Fail To Capitalise On Real Madrid’s Absence With Goalless Draw At Almeria
+-  Antalyaspor'da İsrailli futbolcu Jehezkel kadro dışı bırakıldı
+-  VIDEO Danska kraljica zaplakala tijekom abdikacije i na izlazu jedva izustila tri važne riječi
+-  Adiós al moho en las juntas de la ducha: el truco de la mopa para combatir la humedad en el baño
+-  لأول مرة منذ بدء الحرب.. إسرائيل تقصف منطقة جديدة في لبنان
+-  Man fled prison and was found in pub two years later with only a toothbrush and £6
+-  Ex-Minister Pantami Mobilises N50m Ransom For Father Of Abuja Kidnapped Girls
+-  Ngoại trưởng Thụy Sĩ: Sẽ không có hòa bình ở Ukraine nếu Nga không lên tiếng
+-  Schwarz-rotes Kabinett stellt sich vor
+-  Kardeşlerim’in sevilen yengesi Şengül’ün diziden neden ayrıldığı belli oldu
+-  FC Bayern meistert Pokal-Generalprobe gegen Bamberg
+-  Novak Djokovic sufre para vencer a debutante croata Dino Prizmic en Abierto de Australia
+-  Redwood City PD arrest three men for alleged attempted auto theft
+-  How to Watch the Los Angeles Rams vs. Detroit Lions Game Online Today: Start Time and Live Stream
+-  10 yılda inşa edilen DİTİB Essen Merkez Camisi dualarla ibadete açıldı
+-  Kampanye Anies di Lampung, Temui Simpatisan hingga Petani
