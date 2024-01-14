@@ -1,51 +1,51 @@
 # Latest News
--  هزة أرضية بغليزان: عدم تسجيل أي خسائر مادية أو بشرية
--  وحدات جيش التحرير الشعبي الصحراوي تستهدف تخندقات قوات الاحتلال المغربي بقطاع الكلتة
--  سكك حديدية: إطلاق سبعة مشاريع لربط صوامع تخزين الحبوب بالشبكة، ثلاثة منها ستستلم قريبا
--  Milli Eğitim Bakanı Çavuşoğlu Dr. Küçük’ü andı
--  "No sabía que era protituta" y estaba "celosa de Lara", dice Conde Pumpido de su denunciante
--  Who are the most competent public speakers? Politicians, news anchors, TV hosts, journalists?
--  FPÖ-Vilimsky: „Irrwitziger Linkskurs wird durch Europäische Volkspartei und Weber fortgesetzt“
--  Ministerio Público aún no entrega cuerpo de joven pisqueño calcinado en trágico accidente
--  Deslizamientos de tierra bloquean vías de acceso a caseríos de Arancay - Huamalíes
--  Frederik von Dänemark: Thronwechsel am Sonntag - erste Fans vor Schloss Christianborg
--  Sánchez recuerda el "criterio y compromiso" de Miguel Barroso: "Siempre la palabra justa en el momento oportuno"
--  اختتام منافسات بطولة الفجيرة الدولية للتنس
--  Yarıyıl tatili için son ders zili cuma günü çalacak
--  Laure Vega (CUP) augura que el partido sobrevivirá pese a la pérdida de apoyo electoral
--  Subirats, Rita Maestre, Guillermo Zapata y excargos de Podemos como Jesús Santos, en el grupo promotor de Sumar
--  Umbau beim Detailhändler: Migros-Lieferanten zweifeln an Preissenkungen
--  Halálra gázolták Moszkvában a Kreml-kritikus orosz költőt
--  Waste recycling firm Brewster Brothers opens new plant in Cumbernauld
--  Esteban reitera que el PNV quiere "dar una oportunidad al Gobierno" pero duda que la legislatura "se vaya a completar"
--  Photos From Yemi Alade’s Performance At The AFCON Opening Ceremony
--  Javier Sánchez Serna será el único candidato a dirigir Podemos en la Región de Murcia
--  “Uno no debería salir de su país por situaciones difíciles, sino porque quieres evolucionar como persona” (VIDEO)
--  Havada korku dolu anlar: Kokpit camı çatlayan uçak geri döndü
--  Adecco chief says AI will create new jobs
--  Almanya'nın Holokost sorumluluğu: 'Gazze'de soykırımı durdurun' grafitisi antisemitik olduğu gerekçesiyle yasaklandı
--  Los senadores gastaron en un mes y medio más de 400.000 euros en viajes desde la constitución de las Cortes
--  Dayana Cristina Duzoglou: La nanotecnología como herramienta para reducir la pobreza y la desigualdad
--  Robot baristas and AI chefs caused a stir at CES 2024 as casino union workers fear for their jobs
--  Reino Unido estima que la guerra en Ucrania está poniendo contra las cuerdas al sistema sanitario de Rusia
--  ΠΑΟΚ – ΠΑΣ Γιάννινα: Για το τρίποντο κορυφής οι «ασπρόμαυροι»
--  Sánchez subraya que la competencia para "expulsar a migrantes compete a la Administración central"
--  Koniec rolniczej blokady granicy Rumunii z Ukrainą
--  Donald Trump criticises Vivek Ramaswamy publicly ahead of Iowa caucus
--  Eskilsminne förlänger med Ellen Pigg
--  Volleybalvereniging Langhenkel HEC neemt afscheid van voorzitter tijdens jaarlijkse hutspottoernooi
--  Hattemse acro teams in België
--  Renfe cierra su segunda inversión en startups con la entrada en el capital de Visualfy
--  Lekkerkerk verslaat (reserveteam) SSS en heeft weer uitzicht op veilige zone
--  Frieda Wooning uitgeroepen tot Schoonhovenaar van het Jaar
--  Survivor: Η ασυλία κρύβει μια έκπληξη - Τι θα δούμε απόψε
--  Intervienen en aguas cercanas a Canarias una embarcación neumática con unos 520 kilos de cocaína
--  وزارة الصحة في غزة تعلن حصيلة 100 يوم من العدوان الإسرائيلي
--  Zajednička izložba 24 umjetnika u Podgorici
--  عشرات المستعمرين يقتحمون المسجد الأقصى.
--  إدارة الخدمات الطبية بوزارة الصحة،تتفقد مستشفى علاج أمراض السكر والغدد الصماء بطرابلس.
--  Hamarosan már nemcsak a telefonunk, hanem az autónk is mindent fog rólunk tudni
--  Udruženje penzionera: Gospodo sindikalci, niјe vam Spaјić i PES kriv
--  Valioliiga-sensaatiota huhuillaan Chelsean – näin päävalmentaja kommentoi
--  Knallhartes Bootcamp: Austin Butler spielt nun Kriegshelden
--  Patriarhul Chiril, acuzat de uzurparea puterii. Cazul Uminski, preotul care refuză să se roage pentru victoria Rusiei
+-  ”Îți e dor de vreun coleg?”. Răspunsul lui Florin Tănase a stârnit hohote de râs
+-  Transferul anunțat de FC Botoșani
+-  Kingdom Season 5: Release date, time, episodes, where to watch and more
+-  Ученици пишат хартиени писма до своите родители
+-  Марадона Джуниър пред Marca: Убиха баща ми, имам идея кой
+-  Четири зимни супи държат грипа далече
+-  Zemanová si vyjela na mistrovství republiky v cyklokrosu třetí zlato za sebou
+-  Liverpool spurðist fyrir um kólumbískan miðvörð
+-  Karnataka government should not delay pensions for the old and needy: H.D. Kumaraswamy
+-  Pellegriniho Žiga je stíhaný v horšej kauze ako zrolovanie semaforu, ja taká hyena nie som, ohradil sa Danko
+-  My business partner ended our relationship via email and outlined everything wrong with me. She still wanted to be friends.
+-  Preotul care a oficiat funeraliile lui Gorbaciov a fost dat afară din Biserică, după ce a refuzat să se roage pentru victoria Rusiei
+-  ایک شخص کو چوتھی بار پاکستان پر مسلط کرنیکی کوشش ہورہی ہے، بلاول
+-  Volcano erupts in southwestern Iceland, sending lava flowing toward nearby settlement
+-  Crimen de Fernando Báez Sosa: entre la limpieza y el ajedrez, así es el día a día de los rugbiers
+-  Emekli Astsubaylar Derneği, Dr. Küçük’ü andı
+-  Volcano erupts in southwestern Iceland, sending lava flowing toward nearby settlement
+-  Volcano erupts in southwestern Iceland, sending lava flowing toward nearby settlement
+-  Ay’ın 15 Katı Büyüklüğünde Dev Bir Halka Keşfedildi: Evreni Anlayışımızı Kökünden Değiştirebilir
+-  Φίλοι του ΠΑΣΠ, προσπαθήστε εσείς, γιατί όλοι οι άλλοι δυστυχώς δεν…
+-  Найдено еще одно полезное свойство кофе
+-  ‘여기 바르셀로나 아니야?’ 메시·수아레스·부스케츠·알바, 미국 인터 마이애미서 재회→첫 훈련 돌입
+-  Engelli arkadaşının otomobilini çaldı
+-  Doğuda kar esareti, Antalya'da 20 derecede deniz keyfi
+-  Sulama kanalında ceset bulundu
+-  Şehit Evcin, son yolculuğuna uğurlandı; 3 gün sonra doğum günüydü
+-  Şehit Emrullah Gülmez, son yolculuğuna uğurlandı
+-  বহুনির্বাচনি প্রশ্ন (২১-৩০) : অধ্যায় ১ | ভূগোল ও পরিবেশ - দশম শ্রেণি
+-  O time da NFL que vale R$ 44 bilhões e o que você precisa assistir pela ESPN no Star+
+-  Daily Horoscope for January 15: Here’s how the universe wants your day to be like
+-  Ako imate čudan okus u ustima to može biti vrlo loš znak: Evo što sve može biti uzročnik neugodne pojave
+-  Der Haken am Fisch: Immer mehr Meerestiere sind mit Quecksilber belastet
+-  دراسة: السرطان أصبح يصيب الشباب في جميع أنحاء العالم
+-  هل يعمل محمد رمضان على تقديم فيلم عن محمد صلاح؟
+-  China faz protesto formal contra EUA por reação de Blinken a Taiwan
+-  هل تأكل استجابة لعواطفك؟ سيطر على هذه العادة بهذه النصائح
+-  "Luna" the most popular dog name in 2023; "Maurice de Hond" among funniest
+-  Stefan Bengtzén efter sparkningen: "Ett par spelare in vore bra”
+-  Phát hiện nhiều “góc khuất” trong beer club ở TP Biên Hòa
+-  Raadiohommikus: eetris on kliimaminister
+-  100. günde Gazze’de ne oluyor?
+-  Kolombiya’daki toprak kaymasında can kaybı artıyor
+-  Efforts afoot to provide basic facilities to journalists: Solangi
+-  Gabriel Attal : "Vous êtes jeune, dynamique et pas trop bête..." le Premier ministre interpellé par des passants sur un marché
+-  Pätnásťročný talent z juniorky Trenčína sa približuje k Filipovi Mešárovi
+-  Wederzijdse ergernis China en Taiwan na uitslag, maar geen olie op het vuur
+-  반발 나선 임종윤 사장에 한미그룹 "통합 차질 없이 진행 노력할 것"
+-  Petition gegen AfD-Politiker: Ist eine Aberkennung der Grundrechte für Björn Höcke juristisch möglich?
+-  Repatriation of illegal foreign nationals continuing
+-  Roban al atlético Ángel Correa en su casa, a punta de pistola y ante su familia
