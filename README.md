@@ -1,11 +1,11 @@
 # Latest News
--  Νέες επιχειρήσεις του τουρκικού στρατού στο βόρειο Ιράκ και τη Συρία - Κατέστρεψε 24 στόχους Κούρδων μαχητών
--  Mercato - Real Madrid : Avant Mbappé, un gros transfert va tomber à l’eau ?
--  ManU-luotsi pettyi - tähän hän ei ollut lainkaan tyytyväinen
--  Real Madrid nöyryytti Barcelonaa - Vinicius Junior teki hattutempun jo avausjaksolla
--  CE de polo masculin: Înfrângere pentru România, în primul meci pentru clasarea pe locurile 5-8
--  رئيس حزب أبناء مصر: إسرائيل تسعى لإخفاء جرائمها باتهام مصر
--  هذا ما يحدث لجسم الرجل عند التوقف عن ممارسة العلاقة الحميمة
--  إعلاميون يستمعون إلى كلمة "أبوعبيدة" في مدرجات مباراة كأس آسيا (صورة)
--  Nächster Sieg bei Handball-EM: Deutschland erreicht vorzeitig die Hauptrunde
--  Adalet Bakanı Tunç açıkladı: 'Sagiv Jehezkel hakkında soruşturma başlatıldı'
+-  لماذا تتجمع قرود البابون في بعض مناطق المملكة؟ (فيديو)
+-  Nicaragua exilia al obispo Rolando Álvarez y 18 religiosos católicos al Vaticano
+-  Αραούχο: «Μας έλειψε λίγο η τύχη»
+-  Gemeindeturnier des ESV Greith
+-  פרנקו: "מוריד את הכובע בפני השחקנים הישראלים. רחוקים ממיטבנו"
+-  Kickoff | Vinicius hat-trick fires Real to Super Cup glory
+-  Kanzler Scholz jubelt: Handballer stehen in der Hauptrunde
+-  Μπάρκας: Ξανά MVP ο Έλληνας τερματοφύλακας, κατέβασε... ρολά στην ισοπαλία με τη Φίτεσε
+-  Rio Ferdinand claims Manchester City’s ‘jewel in the crown’ will launch them forward
+-  A Pennsylvania cop charged with sexual assault told his accuser he didn't 'intentionally rape' her, police say
