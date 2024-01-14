@@ -1,51 +1,51 @@
 # Latest News
--  Fred varsa Fenerbahçe'nin bileği bükülmüyor
--  News24 | Here are the Daily Lotto numbers
--  В Пентагоне опровергли нанесение ударов 14 января по хуситам в Йемене
--  How Mary and Frederik’s fairytale kiss provided an antidote to our times
--  How Mary and Frederik’s fairytale kiss provided an antidote to our times
--  How Mary and Frederik’s fairytale kiss provided an antidote to our times
--  عاجل : نتائج قرعة البطولة المصغرة لتفادي النزول إلى الرابطة الثانية لكرة القدم
--  Simptomat e Covid-19 kanë ndryshuar, ja si mund ta dalloni nga gripi i zakonshëm
--  Una tarea titánica es conducir la calle Uchire de Unare II
--  رئيس الجمهورية: القادم أفضل بكثير (فيديو)
--  Akpabio honours fallen heroes, hails Nigerians’ resilience despite challenges
--  Wong bound for Israel
--  Deep Brass Konzert
--  اختتام فعاليات البطولة الوطنية الشتوية للسباحة بالزعانف..
--  Preocupación en Boca por la lesión de Marcos Rojo en Salta: cuándo le harán estudios
--  Seb Mellia, accusé de violences sexuelles, chahuté à Bruxelles lors d’un spectacle
--  Daniel Regha Speaks On Being Single Despite His Handsomeness
--  هل الرطوبة أثرت على أداء منتخب مصر أمام موزمبيق؟.. طبيب يوضح
--  Grupi i PD, kërkesë në Kushtetuese për “emigrantët”
--  В Минском районе во время движения загорелась электричка «Минск-Пуховичи»
--  Revizori upozorili na rastrošnost u Zavodu zdravstvenog osiguranja
--  "גאים בך", "זאת הרוח הישראלית": אביגדור ליברמן ושחקנים בליגת העל תמכו בשגיב יחזקאל
--  איתי רגב תועד עם כוכבת ריאליטי בעצרת החטופים בת"א
--  Jacob Davey
--  일본 칼럼 “첫경기라 어려워? 변명… 미토마 없으니 왼쪽 안돼”[아시안컵]
--  AFCON 2023: Salah’s Late Penalty Helps Egypt Secure 2-2 Draw Vs Mozambique
--  Bitcoin crasht en sentiment slaat helemaal om in de crypto markt
--  КОД: М-НАВ е семејна фирма на ДУИ, сестрата на Бујар Османи, снаата на Груби, внукот на Буши и многу други вработени во Македонската навигација
--  "Ma come si fa?". Affari Tuoi sotto accusa: i numeri che scatenano i telespettatori
--  Kickoff | Salah helps Egypt avoid shock AFCON loss
--  Erste Wahl des Jahres - Fast 50 Prozent für die AfD
--  Lo que sabemos de la muerte de Alec Musser, actor de ‘Son como niños’
--  Malden Park closed as police search for missing man continues
--  COPA SP: Veja os duelos das oitavas de final!
--  Demi Jones: My cancer scar will raise awareness on Love Island: All Stars
--  Demi Jones: My cancer scar will raise awareness on Love Island: All Stars
--  Pri požiari karavanu v Česku utrpeli popáleniny dvaja ľudia: Zranenia nie sú vážne
--  [관풍루] 한동훈 국민의힘 비상대책위원장, 더불어민주당에 ‘불체포특권 포기’ 거듭 압박
--  [사설] 속속 윤곽 ‘제3지대 정당들’ 의원 배지 이상의 비전 보여야
--  [사설] 정부 민생 정책 쏟아내지만, 야당 동의 없으면 실행 어렵다
--  [사설] 차기 회장 선임 앞둔 포스코그룹, CEO후추위 이대로 괜찮나
--  Dos nuevos planes municipales ayudarán a implantar los ODS en Montilla
--  SGK Yeni Listeyi Paylaştı: Bu Şartları Sağlayanlar Erken Emekli Olabilecek
--  Eläimet tietävät ensin? Filippiineillä miljoonat sardiinit hyppivät rannalle 48 tuntia ennen maanjäristystä
--  Impactante choque y vuelco sobre la Ruta 22 en Cipolletti: uno de los conductores estaba alcoholizado
--  Zum Glück gab es Augenzeugen - Zu dünn! Zwei Kinder brechen ins Eis ein
--  Detuvieron a Gonzalo Fabián Coña en Santa Cruz, mano derecha de Jones Huala que tenía pedido de captura
--  40 по-малко загинаха в катастрофи, но расте броят на осакатените
--  Грипът удря светкавично - започва с температура и тежка отпадналост
--  Κρυπτονομίσματα: Η πορεία τους από το περιθώριο προς τη «νομιμοποίηση»
+-  Srpski mediji nakon trijumfa Hrvatske: ‘Ma ovo je bilo domaćinsko suđenje’
+-  Gurugram News: स्मॉग और कोहरे की मार, सुबह-शाम दृश्यता शून्य, सां लेने में दिक्कत
+-  Gurugram News: होटल में पकड़ी बिजली चोरी, 1. 23 करोड़ का जुर्माना
+-  Bhadohi News: सीतामढ़ी में लवकुश ने बांधा अश्वमेघ का घोड़ा
+-  Bez iznenađenja - Srbija saznala rivala u borbi za 7. mesto
+-  Лидер на хусите: Българските пленници са добре, живеят в лукс
+-  Blue Monday, czyli "najbardziej depresyjny dzień w roku". Prawda czy wymysł?
+-  Erfitt að lýsa hvernig er að sjá sam­fé­lagið brotna hægt og ró­lega
+-  Erik ten Hag SLAMS decision not to award a penalty after Alejandro Garnacho was brought down in Man United's 2-2 draw with Tottenham... as Red Devils boss insists Sir Jim Ratcliffe saw 'a team fighting for each other'
+-  Boavista goleia Vizela
+-  Montenegro vai ser cabeça de lista da AD por Lisboa e Miguel Guimarães pelo Porto
+-  موٹروے پر دھند کا راج، کہاں کہاں سے بند کر دی گئی؟ سفر سے پہلے جان لیں
+-  Európsky týždeň | Únia má len jednu fabriku na výrobu trhaviny TNT a päť na výrobu pušného prachu
+-  Η ρωσική Εκκλησία αποπέμπει ιερέα που αρνήθηκε να διαβάσει προσευχή υπέρ του πολέμου στην Ουκρανία
+-  Τζόκερ έπαιξες; Δείτε τους τυχερούς αριθμούς για τα 5,7 εκ. ευρώ
+-  WATCH: Lost walker is found in the Cairngorms in 10 hours call-out
+-  Lauren Sanchez Wears Sheer Look While Out with Jeff Bezos in Milan
+-  Fubara pledges continuous support for Armed Forces
+-  Agra News: लिक्विड मेडिकल ऑक्सीजन प्लांट के टैंक पहुंचे, प्लेटफार्मों पर किए गए स्थापित
+-  אחרי התקרית בביה"ס של בנו: סאבלימינל נחקר באזהרה במשטרה
+-  Ange hrósaði leik­mönnum sínum í há­stert
+-  دراسة لـ”تريندز” تقرأ الاستراتيجية الصينية خلال عقدين
+-  Meatworker transforming river trail
+-  MATT BARLOW: They are not always in fashion - but there will always be a place for the big man up front
+-  Pilibhit News: रामलला प्राण प्रतिष्ठा को लेकर गाए भजन, 101 दीप जलाए
+-  Chandigarh News: हरियाणा में छाया घना कोहरा, 48 घंटे बाद राहत के आसार, नौ जिलों में रेड अलर्ट
+-  탈당 없다던 류호정, 결국 15일에 기자회견 열고 탈당 의사 밝힐듯
+-  Seis detenidos por un supuesto complot para detener la apertura de la Bolsa de Londres
+-  Am I just greedy or is the 'Fatso Gene' to blame? Sick of January diets, CLAUDIA CONNELL tries a revolutionary new approach to weight loss - and can't believe the result
+-  NNL: WIkki Tourists FC beat ABS FC 3-0
+-  Dancing On Ice viewers distracted by the same thing as Stephen Mulhern makes his hosting debut: 'Why does he look like an elf?'
+-  В Шушарах, где горел склад Wildberries, вспыхнул еще один пожар
+-  찬바람에 기온 뚝↓…아침 최저 -13~0도
+-  하마스 "인질 다수, 이스라엘 공격으로 생사 불명"
+-  Sant Kabir Nagar News: कार सेवकों पर हुआ था अत्याचार चली थी गोली
+-  Firozabad News: हक नहीं मिला तो चुनाव में नहीं डालेंगे वोट
+-  Holly Willoughby makes her grand return to TV alongside new co-host Stephen Mulhern after leaving This Morning and retreating from the limelight following kidnap threat
+-  Kushinagar News: खुले में रात गुुजार रहे लोगों से रैन बसेरा में जाने की अपील
+-  Holly Willoughby makes her grand return to TV alongside new co-host Stephen Mulhern after leaving This Morning and retreating from the limelight following kidnap threat
+-  Siddharthnagar News: किशोर को पीटने का वीडियो वायरल
+-  Pilibhit News: मकर संक्रांति पर खिचड़ी भोज, दान कर पुण्य कमाया
+-  محمد بن راشد يعتمد أولى المشاريع التحولية ضمن “أجندة دبي الاجتماعية 33”
+-  Kirbi poručuje Izraelcima: Vreme je da smanjite operacije u Gazi
+-  Gerüchten zufolge verfügt Apple Vision Pro über einen High-End-M2-Chipsatz mit mehr GPU-Kernen
+-  APEL: Sead ima tumor na mozgu, pomozimo mu
+-  KDH vyzýva ministerstvo vnútra, aby zverejnilo, či sa Danko podrobil dychovej skúške na alkohol
+-  Chiusi batte Oriznuovi: due punti pesanti nella lotta salvezza
+-  Ricky Hatton faces the skate off with his partner Robin Johnstone as judges score them 12.5 during Dancing On Ice launch show
+-  الشورى العُماني يدين العدوان على اليمن
+-  عبدالسلام: تحليق مكثف للطيران الأمريكي في الأجواء اليمنية
