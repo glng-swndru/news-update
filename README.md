@@ -1,11 +1,11 @@
 # Latest News
--  אבו פאני: "המלחמה תרמה ליכולת החלשה שלי, משפחתי היתה בסכנה"
--  חבר הנהלה בדינמו מוסקבה: "50% שעסקת לסובוי למכבי חיפה תושלם"
--  המגעים עם בורגוס פוצצו, שון וייסמן יצטרף בהשאלה לאלצ'ה?
--  100 Tage Hölle: Wie geht es nach dem Gaza-Krieg weiter?
--  אילון מאסק הפסיד לעובדי טסלה: זה מה שהם יקבלו החל מהחודש
--  Milind Deora quits Congress, may join ruling Shiv Sena
--  Alle gegijzelde gevangenismedewerkers vrijgelaten in Ecuador
--  Frederik ingehuldigd als koning van Denemarken
--  Dodelijk ongeval op N57 bij Brielle
--  WhatsApp führt neue blaue Häkchen ein – und plant zwei weitere Funktionen
+-  Meteoroloji uyardı: Plan yapanlar dikkat! Yoğun kar yağışı bekleniyor
+-  Deutsche Gasspeicher:
+-  [부음] 홍희흠(전 DGB대구은행장)씨 본인상
+-  수아레스, 메시와 마이애미 첫 훈련…"4개 대회 우승 가자!"
+-  Temel kazısı iki binaya zarar verdi, arbede çıktı
+-  Ahmad Maslan backs proposed ‘fixed term’ Bill, says will let govt do its job without distraction
+-  בנק אוף אמריקה בדרך למשבר? הרווח הנקי ירד ב-56%
+-  Nazi-Hinterlassenschaften im Striegistaler Wald entdeckt
+-  Krieg gegen die Ukraine: So ist die Lage
+-  Porphyr in Rochlitz schickt Familien auf Entdeckertour
