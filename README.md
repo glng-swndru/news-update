@@ -1,51 +1,11 @@
 # Latest News
--  Camiye kundaklama girişimi
--  Hakkari'de kar yağışı 4 gündür sürüyor
--  যে কারণে ব্যাট প্রতীক পাচ্ছে না ইমরান খানের দল
--  Виц на деня: Иванчо се обръща към баща си...
--  İsrail karıştı: Savaş Kabinesi toplantısını terk etti
--  Meteoroloji hava durumu raporu yayımlandı! Türkiye buz kesecek
--  Ekvador'da rehine krizi bitti: 178 kişi serbest kaldı
--  Cudi, Gabar Dağı, Beytüşşebap ve Bestler Dereler'de terör operasyonu!
--  Louisiana's special session kicks off Monday. Here's a look at what may be discussed
--  India urges US to restore Generalized System of Preferences (GSP) status for duty-free exports
--  Bjorkstrand fortsætter stærk sæson med scoring mod Columbus
--  Bjorkstrand fortsætter stærk sæson med scoring mod Columbus
--  ‘Airtel, Jio may soon withdraw unlimited 5G data plan, charge up to 10% more’
--  Dangote Refinery awaits Nigerian Govt’s approval to hit market with diesel, aviation fuel
--  Commerce and Industry Minister Piyush Goyal rules out lifting export curbs on wheat, rice & sugar
--  Nigerian Govt unveils internship schemes for entrepreneurs
--  ये गुण ही बता सकते हैं कि व्यक्ति भावनात्मक रूप से परिपक्व नहीं
--  Air taxis to grocery-delivering drones: Sky isn’t the limit anymore
--  المبادرات الفردية تنتظر عودة التسليفات المالية في لبنان
--  DU Invites Tender for Vertical Extension in the Building in Dibrugarh University - 2024_DU_35403_1
--  Værtsnationen åbner afrikansk fodboldfest med sikker sejr
--  Manchester City’s Erling Haaland out until end of January, says Pep Guardiola
--  문대림 “‘제주미래농업복합센터’ 설립 추진” 약속
--  문윤택 “제주 오일시장 외면은 서민 경제 방치하는 것”
--  김영진 “문대림 예비후보 정치적 입장 명확히 해야”
--  제주 드림타워에 K뷰티 매장 ‘드림 뷰티’ 오픈
--  목을 다치면 왜 위험한가요?
--  섬에서 만끽하는 겨울여행…제주의 꽃과 나무
--  제주음악창작소 월간 제뮤, 1월 앨범은 ‘디웨일’의 ‘잔향’
--  Artur Beterbiev stays unbeaten with VICIOUS knockout of Callum Smith to retain light heavyweight titles and set up a likely matchup with Dmitry Bivol
--  केसीआर अपनी पार्टी का नाम फिर बदलेंगे
--  MAFS star Hayley Vernon's brutal response to Woolworths refusing to sell Australia Day merchandise as she slams woke 'madness'
--  В Калининградской области объемы промпроизводства вырастут в 2024 году
--  Jiri Lehecka rallies past Jack Draper to lift Adelaide International trophy
--  Trọng tài bắt trận Việt Nam vs Nhật Bản là 'người quen' ở V-League
--  De Jong và Dest giúp PSV bay cao
--  Former South African batter Dean Elgar joins Essex on 3-year deal
--  Студено, но без валежи в неделя
--  Jadon Sancho rejoins Borussia Dortmund from Manchester United on loan
--  تايمز أوف إسرائيل: إرتفاع عدد قتلى الجيش الإسرائيلي المعلن منذ 7 أكتوبر إلى 522
--  किडनी स्टोन से कैसे बचें,ये है डॉक्टर ने बताया फॉर्मूला..!
--  Adelaide International: Jelena Ostapenko seals seventh WTA title over Daria Kasatkina
--  Chiefs shut down Dolphins in frigid AFC wild-card game
--  Jessica Gomes stuns in a black swimsuit as she soaks up the sun at a Sydney beach with actor Thomas Cocquerel
--  French tennis player Leny Mitjana gets 10-year ban for match-fixing case
--  أمل جديد لمرضى سرطان الجلد
--  لحظة بلحظة.. 100 يوم على الحرب في غزة
--  Australia aiming to use white-ball tour of Bangladesh as preparation for Women’s T20 World Cup
--  राष्ट्रपति द्रौपदी मुर्मू जाएंगी अयोध्या!
--  Husiler açık açık duyurdu: İsrail bağlantılı gemilere saldırmaya devam edeceğiz
+-  תחילת שבוע חורפי, הגשם ייפסק בהדרגה מחר
+-  एनएलजी इन्स्योरेन्सको लाभांश घोषणा
+-  변대근, 농협자산관리회사 대표이사 내정
+-  강택상 前 제주시장 별세...향년 73세
+-  엔데믹·고금리에 작년 5만원권 환수율 67.1%…"2018년 이후 최대"
+-  Оккупанты под Степным бросили умирать своего раненого товарища, даже не пытаясь ему помочь
+-  SON DAKİKA: İçişleri Bakanı Yerlikaya'dan terörle mücadele paylaşımı
+-  Bất ngờ với 3 điều khiến các cặp đôi cảm thấy tuyệt vọng hơn cả sự phản bội
+-  3 chị đại "lén" tụ tập, lập luôn nhóm nhạc không cần chờ đến Chung kết "Chị đẹp đạp gió rẽ sóng"?
+-  121 ca mắc, 6 người tử vong do bệnh đậu mùa khỉ
