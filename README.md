@@ -1,11 +1,11 @@
 # Latest News
--  Gold jumps Rs 600 per tola on Sunday
--  Türkiye'de gece en düşük hava sıcaklığı eksi 22,5 derece olarak ölçüldü
--  Horoz dövüştürülen çadırlara polis baskını!
--  Galatasaray ile Kayserispor 56. randevuda kozlarını paylaşacak
--  مغردون فرنسيون يقصفون جبهة وزير خارجيتهم الجديد مثلي الجنس بعد زيارته إلى كييف
--  Cựu thành viên nhóm Ve sầu Huỳnh Vũ Thạch đột ngột qua đời ở tuổi 35
--  Báo cáo Quốc hội việc cho thôi làm nhiệm vụ đại biểu của ông Nguyễn Văn Thạnh
--  Người biểu tình ủng hộ Palestine và Yemen phá hàng rào Nhà Trắng, hành hung cảnh sát
--  Trao 200 suất học bổng Gieo mầm tri thức cho học sinh Nam Định
--  Anh em ruột chuyển 20kg nghi ma túy để nhận 60 triệu tiền công
+-  Burcu Esmersoy Havana'dan dönemedi!
+-  القرض الشعبي الجزائري يودع طلبه لدخول بورصة الجزائر
+-  ارتفاع حصيلة قتلى الجيش الإسرائيلي إلى 522 منذ 7 أكتوبر
+-  ההודעה הדרמטית של הפנטגון על טיילור סוויפט
+-  B2W Indonesia Akan Gugat Heru Budi ke PTUN nkarena Pangkas Anggaran Jalur Sepeda
+-  Yhdysvaltojen delegaatio vierailee tänään Taiwanissa vaalien jälkeen
+-  국민의힘, 총선 앞두고 '텃밭'은 뒷전…공관위원 인선 배제 '지역 전달통로 막혀'
+-  경북도청공무원노조 제11기 박소영 위원장 당선…"역대 첫 여성 위원장"
+-  10조원 규모 영덕 해상풍력발전사업…어민들의 지지에 급물살 탔지만 국방부 반대로 제동
+-  천원의 아침밥 예산 2배 늘었지만…치솟는 물가에 지역 대학 고심
