@@ -1,51 +1,51 @@
 # Latest News
--  Karacabey Belediyespor evinde kötü başladı
--  Bursaspor Mersin'de yine hüsran!
--  Bursa'da patronun oğlu çalışanını bıçaklayarak öldürdü
--  İstanbul'da D-100'de zincirleme kaza: Yaralılar var
--  Bursa'da hafta sonu pazar fiyatları ne durumda?
--  Bursa'da çimento yüklü tır devrildi!
--  Samsunspor - Sivasspor maçında şehitler unutulmadı
--  Erdoğan ve Çalımbay’dan Konyaspor'a ret
--  Konyaspor deplasmanda yine kazanamadık
--  Konyaspor’la anlaşamadı Pendik’e gitti
--  AWCC signs memorandum of cooperation with Ariana Airlines
--  ECUADOR: Liberan funcionarios cárceles habían sido secuestrados
--  دعوة للمشاركة في المؤتمر الدولي الاول للتنمية المستدامة من التكوين إلى التمكين
--  استشهاد طفل في مخيم عين السلطان بأريحا
--  انتشار التهاب الكبد الوبائي بغزة بسبب الاكتظاظ
--  استشهاد فلسطيني وإصابة آخر قرب الخليل
--  مصرع إسرائيلي في هجوم صاروخي من لبنان
--  براتب 2400 دولار .. وظائف لمعلمين ومعلمات أردنيين في الرياض
--  أكسيوس: بايدن ومسؤولون كبار محبطون من نتنياهو
--  نصر الله: مئة يوم وغزّة تقاوم وصامدة بشعبها بشكلٍ أسطوري
--  ترامب: نحن على حافة حرب عالمية ثالثة
--  Az ember nem élhet egyszerre tíz életet
--  Elhúzódik a háború, az oroszok most már az ukránok kimerítésére játszanak
--  Königin Margrethe hat abgedankt – Frederik ist der neue König
--  'BBB 24': Nizan e Rodriguinho debocham de Alane após sister desmaiar: 'Que maturidade é essa?'
--  Unos 24.000 palestinos han muerto por ataques israelíes en 100 días de ofensiva en Gaza: ministerio
--  El papa Francisco dice que la guerra es en sí misma un crimen contra la humanidad
--  Medi Assist, Maxposure, New Swan y Australian Premium Solar preparadas para salir a bolsa
--  Bostic, de la Fed, advierte de que es probable que avances de EEUU en inflación se ralenticen: FT
--  Cheaper rice? Centre may slash rates; unlikely to lift wheat and sugar export curbs | Details
--  "SPS se razlikuje od SNS-a, ali sa Vučićem usko sarađujemo"
--  Kiderült, miről tárgyal kedden a magyar kormány Robert Ficoval
--  President Jokowi Returns to Indonesia After Attending Wedding of Brunei's Prince
--  1954 yılında dükkan kiraları tepkiye neden olmuş!
--  Elections 2024: Another PML-N leader parts ways over ‘unfair’ ticket distribution
--  İBB depremzede Hataylı üreticilerden aldı, İstanbullulara dağıttı
--  Эксперт Меркурис раскрыл печальные для Киева обстоятельства субботнего удара России
--  Παναιτωλικός - Άρης: Οι ευκαιρίες με Μενέντες και Φετφατζίδη (vid)
--  CHP'li Özgür Çelik'ten Süleyman Soylu'ya: 'Şimdi yan çiziyor'
--  Risultati Serie A LIVE: Lazio – Lecce 1-0
--  Sigue estado en sequía de severa a excepcional
--  (FOTO) OVO JE JEDINA ĆERKA ESME REDŽEPOVE Pevačica usvojila 47 sinova, a njena naslednica je danas PRAVA LEPOTICA
--  Governo vai estudar objeções de Marcelo à Procriação Medicamente Assistida
--  Ski alpin: Manuel Feller remporte le slalom de Wengen, Clément Noël 4e
--  König Frederik von Dänemark: Traurige Nachricht überschattet Thronwechsel
--  Otomobil yayaya çarptı: Yaya olay yerinde hayatını kaybetti
--  5 Jenis Cedera yang Rentan Dialami Saat Berlari
--  Fotoğrafıyla Hafızalara Kazınan Şehit Babasından Acı Haber!
--  साफ यू-१६ महिला च्याम्पियनसिप मार्चमा नेपालमा हुने
--  Nach Spaltung der Grünen im Kreistag Unna: Emanuel Wiggerich schwört zwei Nachrückerinnen ein
+-  Radu Dragusin and Timo Werner in Tottenham squad to face Manchester United
+-  Възстановено е движението по пътя София - Перник в района на Владая след тежката катастрофа
+-  Man whose deportation was stopped by plane mutiny had been jailed over street shootout
+-  Szykuje się ciężka noc na drogach regionu. Będzie ślisko
+-  [政治칼럼] 의정부시갑 출마가 예상되는 전희경 전) 정무1비서관의 작금 행보는 지역주민들에 대한 도리가 아니다.
+-  Dvojica Sirijaca uhvaćena u Kaštel Žegarskom, prevozili su više imigranata
+-  Volcano erupts in Iceland, fishing town evacuated
+-  القطاع النسائي بقطاع وصندوق النظافة في الأمانة ينظم فعالية خطابية بذكرى ميلاد الزهراء
+-  הראל ויזל מסתער על השוק האוסטרלי: במה ישקיע 46 מיליון דולר?
+-  אחמד טיבי מקבל תגובות קשות: "בקרוב אצלך"
+-  יאיר נתניהו תומך בינון מגל: "תקשורת תבוסתנית, מרעלה בארות"
+-  ניקול ראידמן בדרך לפוליטיקה? "רוצה להיות בכנסת"
+-  ינון מגל בביקורת מהגולשים: "לא יכול לתרום בעצמך 760 שקל? חרפה!"
+-  Названы вызывающие «туман в голове» продукты
+-  הקריפטו היומי: מגמה מעורבת במטבעות הגדולים, הביטקוין מתייצב
+-  Desenrola Brasil: Chances para se livrar de dívidas
+-  Vua Đan Mạch Frederik X lên ngôi
+-  Uzmanlardan ailelere ‘mevsimsel grip’ uyarısı! Soğuk hava çocuklarda influenza ve RSV vakalarını artırıyor
+-  Hakan Ünal: Birkaç transferimiz olacak
+-  Kış aylarında su içmenin önemi
+-  Şans Topu 14 Ocak 2024 sonuçları! 5+1 Şans Topu çekilişi sonucu ve bilet sorgulama
+-  Real Madrid Barcelona maçı hangi kanalda? Arda ilk El Clasico maçına çıkacak mı?
+-  Gaziantep FK Fenerbahçe CANLI YAYIN
+-  Court rules that former Martinair pilots are not covered by KLM labor agreement
+-  INSS: Situação possível para acumular duas aposentadorias
+-  Blaževičius neryškiai pranoko Kairį, bet pergale džiaugėsi pastarasis
+-  Esenyurt'ta aidatlara yapılan yüksek zamlar site sakinlerini isyan ettirdi
+-  Ο Ταξιάρχης Φούντας πέτυχε το πρώτο του γκολ στο πρωτάθλημα Τουρκίας
+-  De ‘Tatán’ al ‘Maldito Cris’
+-  Inside Prince Frederik's wild past and 'affair' that left wife Mary heartbroken
+-  Tesla’s Advanced Full Self-Driving Beta Rolled Out to Employees for Testing
+-  চশমা পড়েই ক্রিকেট খেলবেন সাকিব!
+-  يوسف النصيري .. أسد الأطلس الذي يحلق عاليا بآمال عشاق كرة القدم
+-  Монтана с 12-и успех през сезона
+-  В Севастополе за ночь выпала половина месячной нормы снега
+-  Gen Z’s Bold Fashion Statement: Style Trends To Take Over In 2024, Survey Suggests
+-  Tesla Joins Automakers in U.S. Wage Hike Response to Union Push
+-  Словесная трескотня и мизерная помощь. Как Зеленский съездил в Прибалтику
+-  Bharat Jodo Nyay Yatra: అన్యాయ కాలంలో ఉన్నందునే న్యాయ్ యాత్ర: రాహుల్
+-  Histórico: Daniel Galán supera a Kubler y avanza en el Abierto de Australia
+-  نجله يفتح باب الشكوك.. هل مات مارادونا مقتولا؟
+-  Electric Endurance: Tesla Cybertruck’s Durability Showcased in Recent Test
+-  تعرف على مركز طرابلس للخصوبة
+-  "Столипиново" и родата из Европа: На една маса за Василица - само че по Вайбър
+-  Трагедия! Мъж легна на релсите, влак го прегази край Две могили
+-  Времето пощурява: Студ, слънце, дъжд и сняг на ротация през следващите дни
+-  Катерачът на Боянския водопад е открит в безсъзнание, но ще оцелее
+-  „Булгаргаз“ предлага с 6% по-евтин природен газ от февруари
+-  Напусна ни поетът Росен Друмев
+-  Скандал! Руският патриарх пренебрегна патриарх Неофит
