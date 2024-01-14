@@ -1,11 +1,11 @@
 # Latest News
--  مدرب ماليزيا: منتخب الأردن ليس التعمري فقط
--  جت الناقل الوطني لموقع تلفريك عجلون
--  الحمض النووي للأبطال الخارقين قد يحمل مفتاح علاج مرض السكري
--  ให้พระช่วยกล่อม! จนท.เรือนจำ‘เอกวาดอร์’ถูกนักโทษจับเป็นตัวประกันได้รับอิสรภาพ
--  'จ๊ะ นงผณี'สวยแซ่บใจบุญ แจกจักรยานเกือบ60คัน แจกวันเด็กแห่งชาติ
--  Германия — Раскошелиться или поесть дома: рестораны утрачивают свою привлекательность
--  Восемь спасателей тушили горящие постройки в деревне Капустино
--  «Вытащил человека из беды на свою голову…»
--  Peking snažno osuđuje američku izjavu o izborima na Tajvanu
--  PPP raises reservations on allotment of electoral symbols
+-  가수 이승환, '고 이선균 죽음 진상 규명 성명서' 올리며 quot;늦었지만 명복 빕니다quot;
+-  안철수, 피습 당한 이재명에 quot;재판 출석 못해? 의학적 근거 밝혀야quot;
+-  quot;제1야당 대표 정치테러 사건에 조롱 섞인 반인륜적 막말 나오다니hellip;quot;
+-  Corona-Zahlen in Coburg aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen in Bayreuth aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen in Bamberg aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Schwandorf aktuell: Zahlen und Fakten aus der Region
+-  لماذا تشعر المرأة بالبرد أكثر من الرجل؟
+-  عاجل.. حشيش وإطلاق نار.. "الداخلية" تنفذ حكم الشرع بجان أنهى حياة مقيمين بطريقة بشعة
+-  تصل إلى السجن 20 عامًا.. عقوبة نشر الوثائق أو إفشاء المعلومات السرية
