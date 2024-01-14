@@ -1,51 +1,51 @@
 # Latest News
--  ใกล้จุดเดือด!?!เปิดจุดยืนการเมืองของประชาชน ถ้าวันนี้เลือกตั้ง‘ใครหนุนใคร’เป็นรัฐบาล
--  El Tesoro celebra esta semana las dos últimas pujas de enero
--  El IPC de la eurozona, el PIB alemán y la encuesta ZEW, marcan la agenda bursátil
--  „Nem leszel büszkén bunkó, nem leszel egy utolsó suttyó” – Hipnózissal próbálkoztak Pintér Sándornál a tüntető diákok – Videó!
--  Pakistan refuses to participate in US operation in Red Sea against Houthis
--  VI meldt groot nieuws: Ajax nadert persoonlijk akkoord met toptarget Henderson
--  84550 شهيد وجريح في العدوان على غزة
--  Lukket for nye tilskuere: Nu skal du længere væk for at se Danmarks nye konge
--  PP siatkarzy - Jastrzębski z Treflem, Resovia z LUK
--  Κοντογεώργης για ομόφυλα ζευγάρια: Στα θέματα των παιδιών πρέπει να υπάρχουν συναινέσεις
--  Niedersachsen: Tarifabschluss für Landesbeschäftigte soll auch für Beamte gelten
--  Президент ОАЭ выразил соболезнования Эрдогану
--  AK Parti'nin tanıtım toplantısının tarihi bu hafta netleşecek
--  Kırmızı elma mı yeşil elma mı daha faydalı? Günde 1 elma yenirse ne olur?
--  Ariana Grande'nin takıntılı hayranına hapis cezası
--  Samet Akaydin: Her Türk, Fatih Terim'le çalışmak ister
--  TSK saldırıya misliyle karşılık verdi
--  Hizbullah, İsrail'in askeri noktalarına saldırı
--  Γάζα: 100η ημέρα πολέμου με την ανθρωπιστική κατάσταση να επιδεινώνεται και το Ισραήλ ανυποχώρητο
--  Эксперт: Азии нужно поучиться у России противостоять однополярному миру
--  Ljubitelj videoigara tražio oprost navijača pa ušao u legendu, no i dalje ne prihvaća Modrićev uspjeh karijere
--  Tanska sai kuninkaan, kuningatar luopui kruunusta
--  Tod von Franz Beckenbauer: Manager Marcus Höfl lobt Gedenk-Aktionen des FC Bayern
--  Izbornik hrvatskih rukometaša uoči Austrije: “Čeka nas utakmica u kojoj moramo postaviti svoja pravila”
--  Δολοφονία στο Νέο Κόσμο: Σοκαριστικό στιγμιότυπο από την εκτέλεση του Βαγγέλη Ζαμπούνη
--  Viral news: సముద్రపు నీటితో పాస్తా వంటకం వీడియో చుశారా
--  ¡Alex Valera se queda en Universitario! Cremas igualaron oferta de club japonés y renovarán su vínculo
--  14 False Facts About Canned Beans You Thought Were True
--  "맨유 떠나니까 집에 돌아온 것 같아!"...'1200억 금쪽이' FW, 복귀전 22분 만에 어시스트
--  “너 밥을 왜 먹냐?” 83세 할아버지가 1004G 레전드 불펜을 깨웠다…그렇게 197SV·145홀드 ‘금자탑’
--  بعد 100 يوم على حرب غزة.. الفرق بين نكبة 48 و2023 «جودة الصورة فقط»
--  Βασιλική Μιλλούση και Λευτέρης Πετρούνιας στα χιόνια με τα παιδιά τους
--  Ranji Trophy 2023-24: Kerala in control despite Riyan Parag’s dazzling century
--  Dålig start sänkte Brynäs mot Skellefteå AIK J20
--  Dålig start sänkte Brynäs mot Skellefteå AIK J20
--  Kong Frederik X er Danmarks nye regent
--  Aquarius 15 January 2024 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  Európska únia chce k voľbám prilákať mladých, osloví hviezdy ako Stromae či Maneskin
--  Popović na sastanku Svjetskog ekonomskog foruma u Davosu
--  Check rampant use of mobile phones while riding
--  Alisson fez 'ponte' para Ferreirinha acertar com o São Paulo
--  Lajčak će u Davosu imati odvojene sastanke sa Vučićem i Kurtijem
--  Novorođena beba nađena u kanti za smeće: ‘Išao sam baciti otpad, a zaustavio me plač. Pomislio sam da je mačka...‘
--  Draymond Green’s return is imminent, and the Warriors desperately need his voice
--  پلان ’اے‘ اور پلان ’بی‘ کی ناکامی کے بعد تحریک انصاف نے پلان’سی‘ پر عملدرآمد شروع کردیا
--  Im vierten Rennen - Manuel Feller rast in Wengen zu drittem Saisonsieg
--  Demat Accounts: Good News! Demat account can be blocked online like debit card, SEBI made new rule
--  하지원, 로즈메리 라면→올리브유에 밥 말아 먹기 '괴식'…"배우 되길 다행"('미우새')
--  Rize'de 'Kış Yüzme Şenliği'nde buzla kaplı gölde yüzdüler
--  Chiêm ngưỡng lễ cưới hoành tráng của Hoàng tử Brunei
+-  Karacabey Belediyespor evinde kötü başladı
+-  Bursaspor Mersin'de yine hüsran!
+-  Bursa'da patronun oğlu çalışanını bıçaklayarak öldürdü
+-  İstanbul'da D-100'de zincirleme kaza: Yaralılar var
+-  Bursa'da hafta sonu pazar fiyatları ne durumda?
+-  Bursa'da çimento yüklü tır devrildi!
+-  Samsunspor - Sivasspor maçında şehitler unutulmadı
+-  Erdoğan ve Çalımbay’dan Konyaspor'a ret
+-  Konyaspor deplasmanda yine kazanamadık
+-  Konyaspor’la anlaşamadı Pendik’e gitti
+-  AWCC signs memorandum of cooperation with Ariana Airlines
+-  ECUADOR: Liberan funcionarios cárceles habían sido secuestrados
+-  دعوة للمشاركة في المؤتمر الدولي الاول للتنمية المستدامة من التكوين إلى التمكين
+-  استشهاد طفل في مخيم عين السلطان بأريحا
+-  انتشار التهاب الكبد الوبائي بغزة بسبب الاكتظاظ
+-  استشهاد فلسطيني وإصابة آخر قرب الخليل
+-  مصرع إسرائيلي في هجوم صاروخي من لبنان
+-  براتب 2400 دولار .. وظائف لمعلمين ومعلمات أردنيين في الرياض
+-  أكسيوس: بايدن ومسؤولون كبار محبطون من نتنياهو
+-  نصر الله: مئة يوم وغزّة تقاوم وصامدة بشعبها بشكلٍ أسطوري
+-  ترامب: نحن على حافة حرب عالمية ثالثة
+-  Az ember nem élhet egyszerre tíz életet
+-  Elhúzódik a háború, az oroszok most már az ukránok kimerítésére játszanak
+-  Königin Margrethe hat abgedankt – Frederik ist der neue König
+-  'BBB 24': Nizan e Rodriguinho debocham de Alane após sister desmaiar: 'Que maturidade é essa?'
+-  Unos 24.000 palestinos han muerto por ataques israelíes en 100 días de ofensiva en Gaza: ministerio
+-  El papa Francisco dice que la guerra es en sí misma un crimen contra la humanidad
+-  Medi Assist, Maxposure, New Swan y Australian Premium Solar preparadas para salir a bolsa
+-  Bostic, de la Fed, advierte de que es probable que avances de EEUU en inflación se ralenticen: FT
+-  Cheaper rice? Centre may slash rates; unlikely to lift wheat and sugar export curbs | Details
+-  "SPS se razlikuje od SNS-a, ali sa Vučićem usko sarađujemo"
+-  Kiderült, miről tárgyal kedden a magyar kormány Robert Ficoval
+-  President Jokowi Returns to Indonesia After Attending Wedding of Brunei's Prince
+-  1954 yılında dükkan kiraları tepkiye neden olmuş!
+-  Elections 2024: Another PML-N leader parts ways over ‘unfair’ ticket distribution
+-  İBB depremzede Hataylı üreticilerden aldı, İstanbullulara dağıttı
+-  Эксперт Меркурис раскрыл печальные для Киева обстоятельства субботнего удара России
+-  Παναιτωλικός - Άρης: Οι ευκαιρίες με Μενέντες και Φετφατζίδη (vid)
+-  CHP'li Özgür Çelik'ten Süleyman Soylu'ya: 'Şimdi yan çiziyor'
+-  Risultati Serie A LIVE: Lazio – Lecce 1-0
+-  Sigue estado en sequía de severa a excepcional
+-  (FOTO) OVO JE JEDINA ĆERKA ESME REDŽEPOVE Pevačica usvojila 47 sinova, a njena naslednica je danas PRAVA LEPOTICA
+-  Governo vai estudar objeções de Marcelo à Procriação Medicamente Assistida
+-  Ski alpin: Manuel Feller remporte le slalom de Wengen, Clément Noël 4e
+-  König Frederik von Dänemark: Traurige Nachricht überschattet Thronwechsel
+-  Otomobil yayaya çarptı: Yaya olay yerinde hayatını kaybetti
+-  5 Jenis Cedera yang Rentan Dialami Saat Berlari
+-  Fotoğrafıyla Hafızalara Kazınan Şehit Babasından Acı Haber!
+-  साफ यू-१६ महिला च्याम्पियनसिप मार्चमा नेपालमा हुने
+-  Nach Spaltung der Grünen im Kreistag Unna: Emanuel Wiggerich schwört zwei Nachrückerinnen ein
