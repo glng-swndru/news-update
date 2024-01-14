@@ -1,51 +1,11 @@
 # Latest News
--  Nušlavė iki 100 procentų Britanijos gyventojų. Siaubinga niokojanti galia. Kas nutiko
--  أسعار الذهب في السعودية اليوم الأحد 14 يناير.. عيار 21 يسجل 216 ريالًا
--  أسعار العملات في السعودية اليوم الأحد 14 يناير.. اليورو يسجل 4.11 ريال
--  Kórejská ľudovodemokratická republika odpálila ďalšiu balistickú raketu
--  ישראל מתחמשת - סוף־סוף
--  “맥주 4캔 9800원”…이마트24, ‘카타르 아시안컵’ 직관족 공략
--  Real Betis'e Granada karşısında tek gol yetti!
--  İngiltere Dışişleri Bakanı Cameron: Gemilere saldıranlara karşı harekete geçmekte haklıyız
--  Galatasaray'a sürpriz golcü
--  조상현 감독 ‘너무 오랜만이라...꽈당 굴욕’ [MK포토]
--  Miguel Herrera mostró inconformidad con el VAR tras la derrota ante América
--  'Chicote' Calderón, 'impresionado' tras debutar con América: 'Me tengo que matar por estos colores'
--  مكتب النائب العام : إدانة القائم السابق بأعمال بعثة دولة ليبيا لدى جمهورية الأرجنتين .
--  التعرف على المفقودين : استخراج ( 66 ) جثة مجهولة الهوية من مقبرة مرتوبة بمدينة درنة .
--  Korpatsch kämpft sich in Melbourne durch
--  TV yayın akışı 14 Ocak Pazar! Hangi kanalda ne var, günün filmleri ve dizileri neler?
--  Bandi Sanjay: బండి సంజయ్ సంచలన వ్యాఖ్యలు
--  Dutch Queen Máxima, PM Rutte to attend World Economic Forum in Davos
--  김주성 ‘옛날 생각나네’ [MK포토]
--  Husiler: 'ABD ve İngiltere'nin saldırıları bizi durdurmayacak'
--  എഫ്‌സിയുടെ ചരിത്രത്തിൽ ആദ്യമായി പുരുഷ ഏഷ്യൻ കപ്പ് മത്സരം നിയന്ത്രിച്ച വനിതാ റഫറിയായി ജപ്പാന്റെ യംഷിത
--  OSTIN I DALJE U BOLNICI Prati operacije vojske sad širom sveta
--  Z kňazov sexuálni predátori. Švajčiarske noviny odhalili zneužívanie v odštiepeneckej katolíckej skupine
--  [포토] 고위당정협의회 인사말하는 한동훈 비대위원장
--  বিয়ে করেছেন অর্ষা ও ইমরান
--  Van saxofoniste bij De Harmonie in Barneveld tot zangeres
--  Kim Dy, Dwight Ramos on same page as athlete couple
--  Deliberations on bills gain pace in Gandaki Province
--  Thronwechsel in Dänemark: Kronprinz Frederik wird am Sonntag König
--  Taiwan tells China to 'face reality', respect election results
--  دبلوماسي روسي: زيلينسكي تجاهل سابقا مذكرات الاستدعاء إلى شعبة التجنيد
--  الكونجرس: اتفاق للحفاظ على تمويل الميزانية الاتحادية
--  بسبب الأمطار الغزيرة .. غرق عشرات مراكز الإيواء في قطاع غزة
--  Thói quen này đang "bót nghẹt", gây tổn thương hai quả thận của người Việt
--  Shake Up As President Tinubu Approves Redeployment, Posting Of 24 Permanent Secretaries (Full List)
--  Pazartesi günü tüm okullarda şehitler için saygı duruşu yapılacak
--  The narcissism of small differences
--  Cyprus Business Now: weekly wrap-up
--  Sold out: Rabbit sells 10,000 pocket AI companions on launch day
--  На Украине заявили о поврежденной инфраструктуре в подконтрольной Киеву части Херсонской области
--  북, 동해 상으로 탄도미사일 발사…지난달 이후 27일 만
--  "국내는 막혔다"…불붙은 허용 찬반 논쟁
--  "태영 워크아웃 개시"…건설株 하락 터널 벗어나나
--  금융당국 "비트코인 선물 ETF는 그대로 거래…규율 계획 없어"
--  美·英 예멘 후티 공습에…산업부, 석유·가스 수급 긴급 점검
--  작년 외항선 5만7008척 검역…코로나 이후 첫 반등
--  공정위, 서흥·영원아웃도어·롯데지에프알에 과징금 1.2억
--  아파트 주담대 갈아타기, 나흘 동안 1조원 규모 신청
--  아파트 주담대 갈아타기, 나흘 동안 1조원 규모 신청
--  정부, 대만 총통 선거 결과에 "양안관계 평화적 발전 기대"
+-  Gold jumps Rs 600 per tola on Sunday
+-  Türkiye'de gece en düşük hava sıcaklığı eksi 22,5 derece olarak ölçüldü
+-  Horoz dövüştürülen çadırlara polis baskını!
+-  Galatasaray ile Kayserispor 56. randevuda kozlarını paylaşacak
+-  مغردون فرنسيون يقصفون جبهة وزير خارجيتهم الجديد مثلي الجنس بعد زيارته إلى كييف
+-  Cựu thành viên nhóm Ve sầu Huỳnh Vũ Thạch đột ngột qua đời ở tuổi 35
+-  Báo cáo Quốc hội việc cho thôi làm nhiệm vụ đại biểu của ông Nguyễn Văn Thạnh
+-  Người biểu tình ủng hộ Palestine và Yemen phá hàng rào Nhà Trắng, hành hung cảnh sát
+-  Trao 200 suất học bổng Gieo mầm tri thức cho học sinh Nam Định
+-  Anh em ruột chuyển 20kg nghi ma túy để nhận 60 triệu tiền công
