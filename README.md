@@ -1,51 +1,11 @@
 # Latest News
--  ريال مدريد بطلاً لكأس السوبر الإسباني
--  استشهاد فلسطينيين برصاص الاحتلال شمال البيرة
--  إحياء حفل كبير بالرباط احتفاء برأس السنة الأمازيغية الجديدة 2974
--  طردوه من العمل في المغرب فأحرق الشركة؟
--  ريال مدريد يكتسح برشلونة برباعية ويحرز لقب السوبر الإسباني
--  محاكمة رئيس جماعة دمنات تعيد ملف جمعية وهمية مولها "مجاهد" للواجهة
--  برئاسة المملكة المغربية .. اجتماع وزاري طارئ للجامعة العربية
--  الدورة المقبلة لمهرجان الأقصر للسينما الافريقية تكرم الناقد والكاتب المغربي الراحل نور الدين الصايل
--  كرة القدم الشاطئية.. المنتخب الوطني يحتل المركز الثاني في الدوري الدولي "مورناهو" بالبرازيل
--  Selenski kommt am Montag in die Schweiz – und trifft Bundesräte
--  홍천군 북방·내면여성의용소방대 ‘우리는 119 안전지킴이’
--  충남교육청, ‘2024 충남 유아교육 배움자리’ 운영
--  YC청년회의-국힘 한동훈 위원장 총선 승리 일심
--  충남안전체험관 방문객 2년 연속 증가
--  정선군, 농업기계 임대료 50% 감면 사업 추진
--  정선군, 군민과 소통하는 민원서비스 제공
--  인제군, 올해도 소상공인 연이율 1% 대출 지원사업 추진
--  밀양시, '2024년 SNS 알리미' 발대식 개최
--  밀양시, '중대재해 없는 안전문화 정착'에 총력
--  '초격차 스타트업 IR' 행사 개최…글로벌 시장 도전장
--  인제군농업기술센터, 2024년 농업인실용교육 추진
--  창녕군, '지역생산 제철 과일 어린이집 간식 공급' 사업 시행
--  창녕군 최영호 부군수, '화재피해 예방 현장점검' 실시
--  함안군, '2024년도 상반기 공공근로사업' 시행…4개 분야, 41개 사업 60명 선발
--  함안군, '역사문화관광도시 도약' 위한 '조직개편' 단행
--  함안군, '제13회 함안 곶감축제 성황리' 개최
--  [오늘날씨] '수도권 아침 영하 10도…'빙판길' 주의
--  "건전성 악황 우려"...저축은행 파킹통장까지 판매 중단
--  Kaufoption? So sieht der HSV-Deal mit Leihgabe Okugawa aus
--  BBB24: Nizam revela que infartou aos 28 anos e que nasceu com problema cardíaco
--  Araç şarampole devrildi: Ölü ve yaralılar var
--  Македонија загуби и од Германија, втор пораз за ракометарите на ЕП 2024
--  В Краснодарском крае вандалы сожгли в Вечном огне мемориальный венок
--  POGINULA CELA POSADA Tragedija u SAD: Srušio se avion, istražitelji i spasilačke ekipe na terenu
--  Löwenpokal des SSV Leutzsch eV
--  Regency quiz – week two
--  News24 | Q&A: Africa's place at this year's World Economic Forum
--  Zwei Kinder brechen im Eis ein und von Passanten gerettet
--  Jača desnica u Francuskoj, Makron se obraća naciji
--  South Surrey’s Lauren Kim headed to play iconic golf course this April
--  Prefeitura de Rodrigues Alves atende cerca de 2 mil pessoas com o serviço itinerante de Saúde
--  من قلب السعودية... الكتيبة المدريدية تحلق بـ«السوبر الإسبانية»
--  Захарова: Западу для начала переговоров следует прекратить вооружать Украину
--  "لأول مرة في التاريخ" منتخب موزمبيق يكسر عقدة مدتها 38 عاما أمام مصر
--  الجمهوريون بالكونجرس: سنعاقب أي موظف حكومي يحتج على دعمنا لإسرائيل
--  Inauguration du BRT: 121 Bus pour desservir Dakar et sa banlieue
--  NA AUTOMOBILU TOTALNA ŠTETA Teška saobraćajna nesreća kod Obrenovca (VIDEO)
--  Trojka Milana: Rosoneri rutinski rešili Vučicu, a Srbinu se smučio derbi
--  Gustavo Lema, satisfecho con la victoria y con el accionar del arbitraje
--  Il Milan stabilisce le gerarchie con la Roma: 3-1 (anche convincente) a San Siro
+-  [“사흘 굶었어요. 국밥 한 그릇만”…40대男 글에 온정 쏟아졌다
+-  [한미일 “올해 첫 北 탄도미사일 발사, 한반도 평화·안전 위협” 규탄
+-  [위장거래 의혹에 3억 세금 맞은 회사…법원 “일부 처분 취소”
+-  [반도체, 너만 믿는다?…‘2차전지·車·IT’ 시총상위 20위 중 70% 영업익 추정치 ‘뚝’ [투자360]
+-  [하마스 “이스라엘 폭격으로 인질 다수 사망 가능성”
+-  [경찰대 치안연구소, 미국 CES서 최첨단 ‘DNA 형광 감지기’ 공개
+-  [KB證 김동원 “전 세계서 日만 경기 개선 꾸준…‘긴축→円高’ 가능성 주목해야” [리서치수장에게 듣는 2024증시②]
+-  שפים חושפים אילו מנות הם לעולם לא יזמינו במסעדות
+-  Trading places in NBA as Pistons send pair to Wizards
+-  احتفال فعاليات أمازيغية في الناظور بالسنة الأمازيغية الجديدة 2974
