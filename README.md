@@ -1,51 +1,11 @@
 # Latest News
--  مصر للطيران تدشن خط جوي بين القاهرة ومصراتة
--  Iran oslobodio novinarke zatvorene zbog izvještavanja o smrti Mahse Amini
--  Balzaretti e il mercato: "Samardzic e Perez? L'Udinese non regala niente"
--  الإعلام الحكومي: ذي قار تشهد انطلاق ثورة عمرانية
--  AK Parti Gençlik Kolları Başkanı İnan İsrailli oyuncunun soykırım sevincine tepki gösterdi: Soykırımcıların yeri uluslararası mahkemelerdir
--  Bangladeş terör devleti İsrail'e karşı açılan soykırım davasına desteğini duyurdu
--  تعرف على القرارات الكاملة لمجلس الوزراء بجلسة اليوم
--  مقتل 3 جنود سوريين باستهداف جوي تركي
--  العراق.. 88 نائباً يقدمون مقترح قانون لإخراج القوات الأجنبية
--  بايدن الرئيس الاميركي الأدنى شعبية منذ 15 عاما
--  چوہدری نثار کا الیکشن سے پہلے بڑا اعلان
--  رضوى الشربيني تحتفل بعيد ميلاد شقيقها .. وسامته تخطف الأنظار
--  وسط أجواء عائلية .. نانسي عجرم تحتفل بعيد ميلاد ابنتها ليا
--  صوتكِ بيدفي.. أصالة تتفاجأ برد فعل معجب في حفلها
--  "بقوله دمي خفيف"..ما لا تعرفه عن إليسا تكشفه في لقاء مع بيلبورد عربية
--  VIDEO/ As 24 orë në shtëpi, nisin flirtimet e para në Big Brother Vip
--  नशेड़ी ने 3 लोगों पर चलाया चाकू, देखें वायरल वीडियो
--  ABD basını yazdı: Çıkmaza girmiş durumdayız! Biden'ın İsrail'e karşı 'sabrı tükeniyor' iddiası
--  ČUVENA GLUMICA PREMINULA U 99. GODINI: Proslavila se u seriji "The Honeymooners" - sin saopštio tužnu vijest
--  Poll shows 72 percent of Republicans would be satisfied with Trump as nominee
--  عروض بيم اليوم الاثنين 15 يناير 2024 بجميع فروع بيم ماركت
--  عروض كازيون اليوم الاثنين 15 يناير 2024 افضل عروض اليوم
--  غالانت: على إسرائيل تقوية «السلطة» في مواجهة «حماس» بالضفة
--  Φίλιππος Πλιάτσικας: «Όταν συνεργαστήκαμε με τον Βασίλη Καρρά ήμασταν δακτυλοδεικτούμενοι»
--  Pacifica: Two teens robbed at gunpoint in shopping center
--  پی ٹی آئی چھوڑنے کیلئے کیا آفرز ہوئیں؟ اسد قیصر کا پہلی بار حیران کن انکشاف
--  MWM: уничтожение объектов ВПК усилит дефицит боеприпасов ВСУ
--  El boliviano Esteban Mayer logró ingresar al Top-20 de la Copa del Mundo de Esgrima en España
--  چاچاکہنے پر افتخار سیخ پا۔۔ مداح کو خامو ش کروا دیا، ویڈیو وائرل
--  Conflicto en Ecuador: Militares buscan controlar cárceles tras liberación de rehenes
--  Trump's campaign banks on its loyal supporters to turn out and caucus in Iowa despite frigid weather
--  My boyfriend says he will end relationship if I don’t have phone sex
--  Δαρμουσλή: Από τη νευρική ανορεξία στην ευτυχία με τα 2 παιδιά της
--  Brooke is impatient and really wants to have a baby
--  School mums are gossiping my husband had sex with another woman
--  Tennis : Garcia-Osaka, feu d'artifice à venir ?
--  Big family picture plan involves my husband’s ex and I am not happy
--  My girlfriend won’t block her fragile ex because she says he won’t cope
--  كيف أقفل دولار السوق السوداء مساء اليوم؟
--  ‘I want to share this as part of who I am’ Cabinet minister Jack Chambers announces he is gay
--  FMLN conmemora los Acuerdos de Paz
--  Умер поэт и публицист Лев Рубинштейн
--  Casa Systems Named “Global IoT Innovation Vendor of the
--  फर्जी बैंक कर्मचारी ने NRI दंपत्ति से 1.2 करोड़ ठगे
--  భోగి మంటల్లో వైసీపీ చీకటి జీవోలు
--  Feyenoord speelt gelijk tegen NEC en raakt verder achterop bij PSV
--  Valencia proudžila niz pobjeda u španjolskom prvesntvu
--  هدف مبكر يحسم تقدم المنتخب على موزمبيق في الشوط الأول
--  وزير دفاع إسرائيل يحذر من "اشتعال الأوضاع في الضفة الغربية"
--  المؤتمر بقيادة المناضل صادق أبو راس
+-  2024選後分析》國民黨指「她」為敗選戰犯，「國會藍白合」還有戲唱？
+-  外媒看台灣大選：賴清德無蜜月期，一上任就有嚴峻挑戰
+-  想到巴黎看奧運？開幕夜住宿飆漲，一晚要價3萬台幣
+-  Príjmy z predaja ropy a plynu klesajú! Moskva dopláca na sankcie: Pokles priznali ruské úrady
+-  Dcéra (24) Pravej blondínky vyráža dych: Wau, pozrite na tú PODOBU!
+-  ŠOKUJÚCA TRAGÉDIA Mladé DIEVČA skočilo pod VLAK! Bola za tým nešťastná LÁSKA? Zo SVEDECTIEV behá mráz po chrbte
+-  PTI says workers arrested in Karachi ahead of convention, police deny claim
+-  Ущерб от пожара на складе Wildberries оценивается в 10 млрд руб., компания обещает возмещение клиентам
+-  Hakkari Yüksekova'da faciadan dönüldü
+-  Türk Telekom, deplasmanda Bursaspor İnfo Yatırım'ı yendi
