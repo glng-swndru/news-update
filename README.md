@@ -1,51 +1,51 @@
 # Latest News
--  Alianza País proclama a Luis Abinader candidato presidencial de esa organización política
--  Съдената от АЕЦ "Козлодуй" медицинска сестра: Искат да ослепея и онемея
--  إدحلي من أكادير: "الأحرار" وضع الشباب والنساء في قلب العمل السياسي والحزبي
--  البيجيدي يلتمس العفو على صحفيين ومدونين
--  لويس إنريكي يعلق على غياب حكيمي للمشاركة في "الكان"
--  إلغاء رحلة جوية بين بروكسيل والحسيمة بسبب الإضراب
--  حربائية الديمقراطيات الغربية.. بقلم // عبده حقي
--  رضوان جيد حكما لمباراة السنغال وغامبيا
--  كأس إفريقيا.. غينيا الاستوائية تفرض التعادل على نيجيريا
--  فريق الميلان يقابل فريق روما مساء الاحد.
--  مدير مستشفى الرازي لـ (وال) : إعصار درنة زاد من حالات الإصابة بالأمراض النفسية في ليبيا .
--  Λάμπρος Φισφής: «Η Αντιγόνη Ψυχράμη νόμιζε για χρόνια ότι είμαστε ζευγάρι με τον Δημήτρη»
--  De 2019 a 2023, Sedema recolectó más de 383 toneladas de pilas y baterías
--  In - Kimmich fehlt bei Bayern-Trainingslager in Portugal - der Grund ist wunderschön
--  Fluorescerende verf redt lopers in de Enclavecross van ijsplaat, dode bomen en ‘onzichtbare’ modder
--  Valve shuts down a cool looking N64 Portal demake, but its dev doesn't want you to be mad at anyone
--  تشمل رفع الضرائب.. نتنياهو يقر ميزانية تسمح باستمرار الحرب على غزة خلال 2024
--  بإمكانيات غير مسبوقة.. "realme 11 pro plus" هاتف ذكي مبتكر في 2023
--  الحكومة الفلسطينية ترد على تصريحات نتنياهو بشأن الحرب على غزة
--  تخفض الكوليسترول وتقي من السرطان.. نوع من الطعام يقوي مناعتك
--  استعجال تقرير اللجنة الهندسية لمعرفة أسباب انهيار عقار السيدة زينب
--  التعادل يحسم مباراة نيجيريا وغينيا الاستوائية في كأس الأمم الإفريقية
--  صدمات كهربائية.. شركة تستدعي شاحن يسبب حريق من الأسواق
--  ليه يا زمان مسبتناش أبرياء؟!
--  من حارة إلى ميدان
--  l’OM : Jaouen Hadjam, la Pépite Algérienne Qui Secoue Marseille !
--  مشهد مذهل للبطريق وتغلبه على درجة حرارة 40 تحت الصفر
--  برج يتمايل من شدة الرياح في أمريكا.. ما القصة؟ (فيديو)
--  بدء تحديث القائمة المبدئية لمستثمري النشاطات البيئية.. وموعد الانتهاء منه
--  عاجل.. توضيح مهم من منصة مساند بشأن استقدام العمالة من الهند
--  Cuándo y dónde llevar a los niños a los parques acuáticos de La Florida
--  Birthday boy Jonathan David among scorers as Lille beats Lorient 3-0 in French league
--  Peregrine lunar lander on Earth reentry trajectory
--  Kalidou Koulibaly : « On va prendre ce match contre la Gambie comme une finale ! »
--  ‘แลนด์บริดจ์’ คุ้มหรือ?
--  Video: Tottenham star makes it six goals in six with lovely header vs Man United
--  Ucraina a început negocierile de garantare a securității cu România
--  Κορωπί: Συνελήφθη 62χρονος με κλεμμένα αυτοκίνητα, ναρκωτικά και σπαθί κατάνα
--  مركبة تقتحم باحة منزل في مرج الحمام
--  Các loại hạt ngày Tết là “thuốc bổ” sức khỏe nhưng dễ tăng cân “vùn vụt”: Bác sĩ chuyên khoa mách 4 cách ăn thông minh
--  เมื่อคนที่ปักกิ่งเรียก ‘ตัวแสบ’ ได้ รับเลือกเป็นผู้นำไต้หวันคนใหม่!
--  2013میں دانیال عزیز کو پورٹی ٹکٹ کس نے دلوایا؟ احسن اقبال کا اہم انکشاف
--  Семилетний мальчик поджог торговый центр в Киеве
--  Kommentar: Die Meisterchance für Bayer 04 ist groß wie nie
--  الأمطار تغمر خيم النازحين شمالي سوريا
--  الجيش السوداني يستهدف مواقعا للدعم السريع في ولاية الجزيرة
--  وزير مالية الاحتلال يقترح زيادة الضرائب على أرباح البنوك
--  باكستان ترسل طائرة مساعدات لقطاع غزة إلى مطار ماركا العسكري
--  كأس أفريقيا.. نيجيريا تتعثر بالتعادل أمام غينيا الاستوائية
--  مانشستر يونايتد يُخطط لضم كريم بنزيما
+-  אביבה ששוחררה מהשבי נאמה בכיכר החטופים: "הייתי עדה לאלימות פיזית, מילולית ומינית"
+-  נעצר תושב תל אביב ששייך לארגון פשיעה, אמל"ח רב נמצא בביתו
+-  Türkiye'nin notu şimdi pozitif! Enflasyonda hissedilir düşüş ne zaman?
+-  Проблемите в икономиката на ЕС свиха с 8.2% българския износ за общността
+-  Three die in Ogun auto crash
+-  No water and electricity in KwaZulu-Natal following heavy rains
+-  United's two sirs! Alex Ferguson and Jim Ratcliffe are all smiles at Old Trafford as the pair share a warm conversation in British billionaire's first game since club investment was confirmed
+-  Like mother, like son! How Queen Margrethe II commenced her reign exactly 52 years ago... And today, she passed the crown to her son, King Frederik X
+-  Laura Dern, 56, gushes about 'deep friendship' with 'superpower' Taylor Swift, 34, after starring in her Bejeweled music video
+-  ברקת: "השר גלנט חי בקונספציה שגויה"
+-  Büchner-Schwestern: „Mama meinte, wir sollten uns nicht provozieren lassen“
+-  Iz petnih žila: Koje je mečeve Đoković igrao najduže u prvom kolu na grend slemu, a koje uopšte na Australijan openu
+-  Lauryn Goodman leaves Britain behind as she jets off on holiday with son Kairo, three, and her five-month old daughter - after Kyle Walker was confirmed as father of BOTH children
+-  Man United 2-1 Tottenham - Premier League: Marcus Rashford slots Red Devils back in front to end his home drought
+-  Joel Pohjanpalo hurjasteli hattutempun Italiassa
+-  Joel Pohjanpalo hurjasteli hattutempun Italiassa
+-  JOH y el CNA
+-  مفاجأة مذهلة عن صغارها.. مواطن يحوّل مزرعته إلى "محمية ضبان" بالقصيم
+-  Valencia goleia Cádiz e sobe na tabela do Espanhol
+-  Турската лира достигна ново дъно - 16,88 за левче
+-  VIDEO: Madre usa a su hija para contrabandear drogas en prisión
+-  Detenido taxista acusado de violar pasajeras en SPS
+-  México registra aumento de ocupación hospitalaria por infecciones respiratorias
+-  Ancelotti l-a făcut pe Florentino Perez să se răzgândească! Fotbalistul care rămâne până la urmă la Real Madrid
+-  The Abundance Challenge & Chance At Equality
+-  CES 2024: Intel Goes Big With New Gaming Laptop CPUs
+-  Hà Giang: Triệt phá đường dây lô đề liên tỉnh hơn 180 tỷ đồng
+-  Người chồng tiết lộ thói quen ăn uống của vợ, dân mạng bỗng chia thành hai phe
+-  Tuyển thủ Việt Nam bất ngờ đạt thông số xấp xỉ 100%, vượt qua hàng loạt ngôi sao Nhật Bản
+-  Sếp LĐBĐ châu Á khen ngợi tuyển Việt Nam, gửi lời chúc tới chủ tịch VFF sau trận gặp Nhật Bản
+-  Quỳnh Kool mặc áo sơ mi trẻ trung và thanh lịch từ trong phim ra ngoài đời
+-  Không cần đi xa để săn mây, ngay Hà Nội cũng có 1 điểm lý tưởng, cũng chính là nơi cao nhất thủ đô
+-  Diva Mỹ Linh: Tóc Ngắn ảnh hưởng rất lớn, đánh dấu lần tôi dám thay đổi. Tham gia Chị Đẹp rất vui, rực rỡ hay không phải hỏi khán giả!
+-  Các trường xét học bạ trong tháng 1, TB 6 điểm/môn cũng có thể ứng tuyển: Sĩ tử 2k7 nắm ngay cơ hội đỗ ĐH sớm!
+-  Loạt ảnh đám cưới Hoàng tử Brunei: Cặp đôi hoàng gia trao ánh mắt ngọt ngào trước sự chứng kiến của hàng nghìn người dân
+-  Tiêu xài hoang phí không thể kiểm soát? Rất có thể do tuổi thơ bạn đã gặp vết thương tâm lý này
+-  Người đàn ông ngộ độc suýt mất mạng khi ăn loại rau nhiều người thích, rất quen thuộc trên mâm cơm Việt
+-  Rộ nghi vấn dàn Táo Quân quen thuộc đồng loạt rời show, chỉ còn "Ngọc Hoàng" Quốc Khánh góp mặt?
+-  Nam thần Gia Đình Là Số 1 kể về tai nạn kinh hoàng khi đi cùng Lee Min Ho: “Bị mất trí nhớ, bạn bè giúp tôi tắm”
+-  Sao nữ "bị cấm đóng vai đẹp" vẫn đổi đời nhờ xấu lạ, rời showbiz cưới đại gia 34.000 tỷ
+-  Ce a spus Florin Tănase când a fost întrebat despre transferul lui Radu Drăgușin la Tottenham
+-  Aniversario de Lima: programación de conciertos gratuitos y pasacalles que comenzaron este sábado 13
+-  Rusijos armija turi didelių problemų. Paralyžiuotos „Kalibr“ raketos
+-  Kariuomenė liepė žmonėms „ruoštis karui“! Visa šalis panikuoja. Kas vyksta
+-  Didžiulė problema. „Jei jos neišspręsime, pralaimėsime karą“
+-  [ŽT] „Dar vienas guli. Galva nutraukta. Sudėtinga likti gyvu“ (N-18 Video)
+-  [ŽT] Rusija suplanavo „didžiausią ekologinę katastrofą Ukrainoje!“ Jau pradėjo jos įgyvendinimą
+-  Kodėl Vakarų šalių koalicija apšaudo Jemeną? Ir kaip tai veikia pasaulio ekonomiką
+-  Paaiškėjo, kad profesionalūs futbolo vartininkai pasižymi išskirtiniais gebėjimais
+-  [ŽT] „40 000 pėstininkų apkasuose.“ Generolas apie pagrindinio puolimo kryptį
