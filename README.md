@@ -1,11 +1,11 @@
 # Latest News
--  Fatih'te metruk bina yandı
--  İsrail'den Filistinlilere insanlık dışı mektup: Evlerinizi yıkın
--  43 ayrı dava açtılar! İstanbul'da dönüşüme CHP engeli
--  Ankara'da altyapı çilesi vatandaşı bezdirdi: Mansur Yavaş bizi mahvetti
--  Türkiye geliştirdi, dünya modelledi! 10 ülkede kurup yönetiyoruz
--  "Mercek-9" operasyonlarında 2036 şüpheli gözaltına alındı
--  Şehitlerimize yönelik provokatif paylaşımda bulunan 18 kişi yakalandı
--  MİT ve TSK'dan intikam vuruşları! Hain saldırıların cevabı ağır olacak
--  Palestine supporters slam Cape Town graffiti clampdown
--  지난해 아파트 청약자 59% 수도권 선택…10개 지역 집중
+-  אחרי סערת יחזקאל: מכבי חיפה תבדוק אופציה לצרף את עדן קארצב
+-  "זה סקנדל, יחזקאל גינה את החמאס על טבח": בגרמניה יצאו נגד טורקיה
+-  ‘지켜달라’ 아이도, 부모도 눈물의 호소…“1형 당뇨는 중증난치질환”
+-  김무성, 부산 중·영도 출마 선언…“타락한 정치 바로잡아야”
+-  ‘주호민子’ 특수교사 “애정하던 학생” 혐의 부인…檢, 징역 10개월 구형
+-  Legyőzte a szerbeket, középdöntőbe jutott a magyar férfi kézilabda-válogatott a kvalifikációs Európa-bajnokságon
+-  Kendini anneannesine benzetti!
+-  Ajda Pekkan'dan samimi itiraf
+-  Armağan Çağlayan'dan döner fiyatlarına gelen zamma tepki: 'İnsanın bütün iştahı kaçıyor!'
+-  [北최선희 외무상 방러·대외 활동 시작…정부 “예의주시”
