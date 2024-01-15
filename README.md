@@ -1,51 +1,51 @@
 # Latest News
--  Njemačka je u recesiji. Što to znači za Hrvatsku?
--  푸틴, 가까운 시일 내 북한 방문한다…"고립된 러에 北 혜택"
--  [구글, 새해 또 구조조정 단행…직원들 “극도로 비인격적” 반발
--  [다보스포럼, 냉정한 진단…"올해 세계 성장력 약화"
--  [자존심 굽힌 애플…中서 아이폰 이례적 할인 판매
--  محافظ الأقصر يبحث استعدادات تنفيذ أعمال إزالات الموجة 22
--  [트럼프의 ‘성추문 입막음 돈’ 사건 변호사 변호인단 떠나
--  CCB invites Tunji-Ojo over alleged N438m contract
--  Relationship Coach Reveals ‘Zeigarnik Effect’ and the Psychology Behind the No-Contact Rule for Exes
--  Luciana Sandoval debuta en nuevo programa de televisión
--  Got the winter blues? Experts say ‘micro-joys’ can help tackle seasonal slumps
--  خاص (وال) - كان - كوت ديفوار 2023: حفل الافتتاح بين الأصالة والحداثة
--  Paulista A2: Comercial anuncia volante conhecido na Europa
--  Экс-советник Кучмы Соскин: приезд Зеленского в Швейцарию породит конфликт
--  El Gobierno prepara una ley para limitar el acceso de los menores a contenido sexual en internet
--  Alemania esperaría una guerra entre la OTAN y Rusia tras la derrota definitiva de Ucrania
--  Fifa The Best 2024: nominata la Top 11 e l’allenatore dell’anno
--  تعرف على أهم أسباب تساقط الشعر
--  הילדה היחידה שנותרה לי היתה בפיגוע ברעננה. טור של אמא מבוהלת
--  Treffen radikaler Rechter in Potsdam: AfD-Chefin Alice Weidel trennt sich von engem Berater
--  ユニフレーム キャニスター メタルケース3 - thenewsunlimited.com
--  トランギア ストームクッカー用 ロールトップバッグ trangia - thenewsunlimited.com
--  ゴースタック GoStak スターターキット ホワイト 53013 - thenewsunlimited.com
--  UNIFLAME ユニフレーム キャニスターメタルケース3 662830 - thenewsunlimited.com
--  ゴースタック GoStak 3パック 100cc ブラック 53037 - thenewsunlimited.com
--  サーモスアウトドア真空断熱ケータイマグ JOO-500 IBLインディゴブルー - thenewsunlimited.com
--  サーモスアウトドア真空断熱ケータイマグ JOO-500 MGミント - thenewsunlimited.com
--  トランギア ラージメスティン trangia - thenewsunlimited.com
--  トランギア スモールメスティン trangia - thenewsunlimited.com
--  Генпрокуратура через суд попросила отдать государству все акции «Рольфа»
--  President Bola Tinubu and Former President Obasanjo Mend Fences in Owerri Encounter, Signaling New Chapter in Nigerian Politics
--  El calentón de Ferran en el banquillo con Vinicius: "Yo a este le meto una h*st** como me diga algo, te lo juro"
--  «Известия»: Росавиация попросила перевозчиков не летать в Египет на 27 самолётах
--  لاعبا الجزائر يدعمان فلسطين أمام أنجولا بأمم إفريقيا
--  Bullrich: «trabajaremos incansablemente para proteger las fronteras y garantizar que rija la ley»
--  Corrientes: realizarán una nueva visita guiada en el ex Centro Clandestino de Detención
--  Concamin niega problemas de importación de gas por nevadas en EU
--  На Украине хотят создать группы по розыску военнообязанных
--  Papa Francisco defiende autorización para bendecir a parejas homosexuales
--  ‘Amerikanci su povukli riskantan potez. Huti ne blefiraju, imaju mogućnost za razoran odgovor!‘
--  تعريض مجموعة من مواقع التجارة الإلكترونية للنصب يقود قاصرا مغربيا للتوقيف.
--  النيابة العامة تدخل على خط انتهاك حرمة مسجد من طرف سيدة مسنة
--  الكاميرون وغينيا يتعادلان في بداية مشوارهما في كأس أمم إفريقيا
--  Lev Rubinstein, Russian poet and political figure, dies at 76
--  Zirve takibi sürüyor: Galatasaray, evinde hata yapmadı
--  '김용 재판 위증교사' 관계자들 구속…"증거인멸 염려"
--  검찰 "송영길, 기업인 민원 해결해 주고 수억원 수수"
--  경찰 수사심의위, 서울경찰청장 기소 권고…용산소방서장은 불기소
--  Body of Kelowna man found in wooded area
--  خوض في كتاب: [ الشخصية العراقية من السومرية الى الطائفية]/12 : عبد الرضا حمد جاسم
+-  37 venäläistä jääkiekkoilijaa kärähti dopingista - seuran tiedote on kuin suoraan Putinin pelikirjasta
+-  Suomalaiselle NHL-maalivahdille upea nollapeli
+-  Aitana Bonmatí ganó el The Best como la mejor jugadora del 2023
+-  “SpaceX” orbitə yeni peyklər buraxıb
+-  מי יסיים אחרי טראמפ? הפריימריז הרפובליקניים יתחילו הלילה באיווה
+-  הפיח בהן תקווה: גלעד שליט נפגש עם משפחות החטופים
+-  "J’ai pensé au pire" : Mickaël (L’amour est dans le pré 2024) se confie sur le décès de sa femme
+-  Хусите се заканиха да стрелят по всеки американски кораб
+-  Тъжна вест: Почина бившият кмет на Кърджали
+-  Асеновград чества годишнината от освобождението си ПРОГРАМА
+-  Boeing plans additional inspections: 'Not where we need to be'
+-  В США пенсионер ограбил отделение банка - ПОДРОБНОСТИ
+-  Sukuelin­herpeksen seksi­kumppaniinsa tartuttaneen tuomio pysyi hovi­oikeudessa – uhrille yli 15 000 euron korvaukset
+-  SAT recauda 4.5 billones en la actual administración
+-  Eventual regresso Republicano à Casa Branca preocupa imigrantes no Iowa
+-  На Украине предлагают мобилизовать 100 депутатов
+-  ФИФА объявила символическую сборную 2023 года
+-  Messi named FIFA player of 2023
+-  Progresívne Slovensko považuje deľbu vládnych dotácií v Trenčianskom kraji za nespravodlivú: Vláda to odmieta
+-  Zelená transformácia má Európsku úniu ekonomicky posilniť, nie ju zničiť, tvrdí Taraba
+-  Masové protesty v Nemecku pokračujú! V Berlíne sa zišli nespokojní farmári na svojich traktoroch
+-  USA po misii v Somálsku hlásia dvoch nezvestných príslušníkov US Navy SEALs
+-  Švédsko oznámilo, že iránske úrady zadržali jeho občana
+-  Nenechaj si ujsť: Frayer Flexking a Tina uvarili na zimu parádny letný hit
+-  Najbohatší a najžiadanejší sexi mladík už je v chomúte! Honosná svadba trvala 10 dní, pozrite sa na ten luxus
+-  Herečka po schudnutí 36 kíl: Opäť PRIBRALA... Cítim sa kvôli tomu ZLE!
+-  How Lalong, 22 other lawmakers benefitted from Appeal Court’s ‘wrong’ judgements
+-  بمشاركة 40 عارضا من بينهم 5 شركات أجنبية: افتتاح الصالون الدولي للرياضة والصحة والتغذية بوهران
+-  علامة السيارة التي ستركب لم يعلن عنها بعد،وزير الصناعة من باتنة : عمال مصنع كيا وهيونداي سيعودون لمناصبهم بعد شهر ونصف
+-  إلى قيام دولة فلسطين قريبا..؟!
+-  تقديم 16 ألف طن من الأسمدة الفلاحية لكينيا،حمزة حسام: هو تأكيد لمبدأ التضامن وجدية خطاب الجزائر نحو أفريقيا
+-  الصندوق الوطني للتأمينات الاجتماعية للعمال الأجراء: ضرورة التصريح بالأجراء إلكترونيا قبل 31 جانفي الجاري
+-  佛매체 "이선균 사건, 한국 사회와 유명인에 대한 의문 제기"
+-  Normandie: de nouvelles chutes de neige attendues mercredi
+-  "Je suis déchirée" : très émue, Agnès Jaoui évoque ses proches disparus après les attaques du Hamas en Israël
+-  Leverkusener Xhaka Schweizer Nationalspieler des Jahres
+-  Messi wieder Weltfußballer des Jahres
+-  AfD trennt sich von Weidels Referent
+-  ولي العهد: مبارك الفوز لنشامى منتخبنا
+-  AfD trennt sich von Weidels Referent Hartwig: Nach Rechtsradikalen-Treffen in Potsdam
+-  Manitoba government spends over $1.6 million on heritage initiatives
+-  Число погибших после теракта в сельсовете на западе Украины возросло до двух
+-  Gżira mal-aħħar sittax b’rebħa fuq Fgura
+-  Лавров и глава МИД КНДР обсудят обострение ситуации на Корейском полуострове
+-  Alice Weidel trennt sich von ihrem Referenten Roland Hartwig
+-  Alice Weidel trennt sich von ihrem Referenten Roland Hartwig
+-  Messi fatura o The Best da Fifa e é eleito o melhor jogador do mundo pela 8ª vez
+-  Es geht um Enkelin Lillibet - Queen war stinksauer auf Harry und Meghan
+-  Europee, Tajani “Per Forza Italia l'obiettivo è la doppia cifra”
+-  Nach Trennung: Busy Philipps nutzt keine Online-Dating-Apps
