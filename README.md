@@ -1,11 +1,11 @@
 # Latest News
--  ندوة بالأغوار الشمالية تناقش دور البرامج الخيرية في الحد من العنف الأسري
--  السير تتعامل مع حادث في عمان وتهيب بالسائقين
--  مصطفى الفقي يكتب: عناق الموت
--  مصدر يمني: الحوثيون استهدفوا سفينة متجهة إلى إسرائيل
--  EU heeft 3000 Oekraïense zieken en gewonden opgevangen
--  أبطال الإسكندراني يتحدثون لـ الشروق عن كواليس الفيلم
--  MPs complain about tardiness of semi-government budgets
--  Fourth arrest for shooting outside prison
--  מדד המחירים לצרכן עלה ב-3% ב-2023
--  Boeing to add quality inspections to 737 MAX door plugs after Alaska jet disaster: ‘Complete confidence’
+-  Kết quả Asian Cup 2023: Son Heung Min im tiếng, Hàn Quốc vẫn thắng thuyết phục
+-  Huấn luyện viên bị học trò tố ăn chặn tiền thưởng, Cục TDTT yêu cầu giải trình
+-  Báo quốc tế ca ngợi đảo Phú Quốc là điểm đến mơ ước của nhiều du khách
+-  Skandal na KAN - Alžirci primetili dron na treningu, policija odmah reagovala
+-  Netanyahu'ya sert tepki: Kariyeri uğruna esirlerin canını tehlikeye atıyor
+-  İsmail Kartal kararını verdi! Mert Müldür'e piyango
+-  TFF'den Jehezkel ve Karzev için sevk kararı!
+-  Geri sayım başladı! Bakan Kacır: Türk gençlerine ilham kaynağı olacak
+-  İngiltere: Kızıldeniz'in kalıcı olarak kapatılmasını kabul etmeyeceğiz
+-  Nijerya'da internet kullananların sayısı 160,1 milyonu geçti
