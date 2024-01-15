@@ -1,51 +1,11 @@
 # Latest News
--  Columbus Blue Jackets teki melkoisen yllätyksen NHL:ssä
--  Italian Serie A:ssa nähtiin murskalukemat
--  Melvin Vlot gekroond tot nieuwe stadsdichter van Ede
--  Police put spit hood on ‘aggressive’ airline passenger at Vancouver’s airport
--  Tercera lista de principales temas del día de Prensa Latina
--  "للمرة الثالثة".. ليونيل ميسي يحصد جائزة أفضل لاعب في العالم لعام 2023
--  موعد مباراة مالي وجنوب أفريقيا في كأس الأمم الأفريقية
--  موعد مباراة تونس وناميبيا في أمم أفريقيا
--  شعبة المخابز تكشف ملامح مقترح إعادة تكلفة رغيف الخبز المدعم
--  Kiwibank大幅降息，但本质上还是遵循了澳洲四大行的模式
--  Oranje-international Cody Gakpo wordt voor eerste keer vader
--  Tři góly za čtvrt hodiny a pak pohoda. Bergamo jasně přehrálo Frosinone
--  Eslovenia, Suecia y Dinamarca pasan juntos a la fase principal con dos puntos
--  '풍향계' 미국 아이오와 코커스…헤일리, 돌풍 일으킬까
--  Siskaeee Ajukan Praperadilan Karena Dijadikan Tersangka dalam Kasus Film Porno
--  Secretário primo de prefeito no interior do Acre é alvo de operação da PF
--  “Gjiknuri dhe Alibeaj u takuan në dhjetor pa e ditur askush”, Arion Sulo: Dokumentin për nisjen e reformës zgjedhore e publikuan sot dhe kjo nuk është konspiracion
--  Ongeval op de Graaf Reinaldweg in Vuren
--  일본, 이강인이 두렵나… 야후 재팬, 메인화면 이강인으로 도배[아시안컵]
--  Serie A | Atalanta 5-0 Frosinone – La Dea run riot
--  Konya'da silah kaçakçılığı operasyonu: 4 tutuklu
--  100'süzlükten sınır dışı
--  Erbil'de balistik füzeli saldırı... Devrim Muhafızları Ordusu üslendi
--  Konu para değil fitne!
--  Çağlar'la iki kez görüşüldü
--  Şiddetli kar Kütahya'da ulaşımı felç etti
--  İBB sahnesinde terör tiyatrosu
--  Indianapolis Airport adds full-size basketball court for NBA All-Star weekend
--  Lethbridge second most affordable city for rent in national ranking
--  Bonmati ist Weltfußballer des Jahres
--  MAD Lions KOI se lleva la primera batalla ante KCorp en la LEC
--  Deben funcionar elevadores en el Guízar para mudar dependencias
--  Pierde la vida por sobredosis en la Campesina
--  ["나체 영상 뿌린다"…여대생 협박해 돈 뜯어낸 범인, 알고 보니
--  Ships and aircraft search for 2 Navy SEALs missing after mission to confiscate Iranian missile parts
--  PagSeguro, Mercado Pago, Stone e PicPay terão que explicar por cobrança de juros
--  Classifica aggiornata Serie A: come cambia dopo Atalanta Frosinone
--  Guatemala's liberal new leader faces huge obstacles to anti-graft drive
--  Me Taravarin apo Selën – me kë i zhvillon bisedimet BDI?
--  Eskalation: Iran soll US-Basen im Irak angegriffen haben!
--  FMI alerta que la inteligencia artificial afectará al 40% de los empleos en el mundo
--  Fueled by unprecedented border crossings, a record 3 million cases clog U.S. immigration courts
--  Margot Robbie gibt seltene Einblicke in die Ehe
--  وزير التعليم العالي يترأس اجتماع المجلس الوطني للتعليم العالي والبحث العلمي
--  Latina, idea Borra dell'Arezzo per la porta: si cerca di superare lo scoglio ingaggio
--  'We will fight,' Harris says in MLK Day speech, warning of threats to U.S. freedom
--  Drugsgebruikende bestuurder veroorzaakt bijna een ongeval in Den Bosch en heeft wapens bij zich
--  EKSUTH workers declare strike over hoodlums’ attack on facility, colleagues
--  BBB | Davi é segundo Pipoca com 1 milhão de seguidores
--  Francuski ministar o tripartitnoj suradnji s Poljskom i Njemačkom
+-  Dampier Salt agrees to sale of Lake Macleod operation to Leichhardt
+-  لأول مرة.. جوارديولا ينال جائزة الأفضل
+-  अमेरिका में विमान हादसा, पायलट समेत तीन लोगों की मौत
+-  ‘손없이왕’이라니?, 이젠 손흥민 있어도 ‘이강인 왕’이다[스한 이슈人]
+-  비트코인 전일 급락세 끊고 1.16% 상승 ... 4만3000 달러 회복
+-  삼성 세 모녀, 여성 주식부호 '1~3위' ... LG·신세계·한미약품 모녀들 10위 내 포진
+-  애플, 中서 아이폰 가격 5% 인하 ... 주가 약세로 MS에 시총 추월당해
+-  Разрешувањето на Беса Адеми в среда пред Судскиот совет
+-  BRUTALNO SUOČAVANJE JANJUŠA I ANELI! Zauvek je otpisao pred celom Elitom i ponizio: "Ti si takvo..."
+-  北 김정은 "헌법에 '대한민국 제1적대국·불변의 주적' 명기해야"
