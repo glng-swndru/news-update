@@ -1,11 +1,51 @@
 # Latest News
--  Risen Energy Release White Paper "Development and Industrial Application of Ultra-Thin Silicon Wafers"
--  Putin Şimali Koreyaya səfər edəcək
--  Start leesclub in Apeldoorn
--  ACTIVE OUTDOORS: Explore the forest trails where Strathpuffer bikers have a blast
--  UGT amenaza con una huelga indefinida en Iberia si no da solución al "handling"
--  Yle: Tähtipuolustaja Sami Niku havittelee lähtöä JYPistä
--  Anita Rewinkels Großeltern waren im KZ: Das prägte auch ihr eigenes Leben bis heute
--  Der Wegfall einer wichtigen Funktion hat Konsequenzen
--  Спират хремата за часове: Стари рецепти от Ванга
--  Комиссия правительства одобрила проект о конфискации имущества за фейки об ВС РФ
+-  Başkan Erdoğan'dan AK Parti Konferans Salonu'na ziyaret
+-  Beşiktaş'ta Eyüpspor mesaisi tamamlandı
+-  Şırnak'ta terör operasyonlarında gözaltına alınan 6 şüpheliden 1'i tutuklandı
+-  Çanakkale'de motokuryelerin trafiğe çıkması yasaklandı
+-  Gizli fon davasında ara karar... Erzan'ın tutukluluk halinin devamına karar verildi
+-  1 trilyon 7 milyar lira ödenek tahsis edildi
+-  CHP'li adaylardan Özel'e sert tepki: Toplantıda tansiyon yükseldi
+-  İsmail Yüksek'e Fransız kancası! Teklif resmen yapıldı
+-  Şırnak'ta asayiş ve kaçakçılık operasyonu: 43 gözaltı
+-  İşgalci İsrail yine esirleri vurdu
+-  Caparov'dan provokasyonlara sert tepki... "İzin vermeyeceğiz"
+-  İşgalci İsrail'den Gazze katliamı için ek bütçe... 15 milyar dolarlık savaş bütçesi onaylandı
+-  BM, Filistinlilerin 1948'den bu yana maruz kaldığı işgale dikkat çekti
+-  Umut Nayir Fenerbahçe'ye veda etti!
+-  Kabine yarın toplanıyor... İşte gündemdeki konular
+-  BM, işgalci İsrail ile ilişkilerinin "karmaşık ve zorlayıcı" olduğunu vurguladı
+-  Montella'dan Beşiktaş'a ziyaret
+-  Filistin Başbakanı Iştiyye'den UAD'ye çağrı... Gazze'deki savaşı durdurmak için acil karar alınmalı
+-  La Tinka: conoce el resultado y ganadores del 14/01/24
+-  F1-kuljettaja teki karun paljastuksen ensi kauden autostaan
+-  Berisha: Luani i shqiptarëve po zgjohet
+-  Poraz BiH, Češka ubedljiva protiv Grčke
+-  Welhottarien hieno nousu toi vain yhden pisteen
+-  El secretario de Defensa de EEUU es dado de alta del hospital
+-  Encuentran en Ladrilleras Norte cuerpo putrefacto
+-  Arévalo promete rescatar a Guatemala de la corrupción
+-  Capturan en Sonora a hombre buscado por homicidio
+-  SAT incumple meta de recaudación en 2023
+-  Irã diz que não controla forças de resistência no Oriente Médio
+-  Ubisoft+ Premium e Classics, l'abbonamento raddoppia su PC: ecco prezzo e giochi
+-  Hamas appears to show dead bodies of two hostages after warning Israel
+-  Kaboklo izveo Partizan do pobede protiv Cibone u Zagrebu
+-  Κωνσταντίνος Βασάλος για Ντούα Λίπα: «Την κυνηγάω, χωρίζει και τα βρίσκει με άλλον»
+-  Best 2-in-1 laptop deals: Turn your laptop into a tablet for $290
+-  Begaj nuk lejohet të mbajë fjalën në Parlament
+-  Дали Германија се подготвува за војна со Русија? Ги разгледуваме сите сценарија, па дури и оние кои се малку веројатни
+-  Begaj: Kuvendi, jo arenë lufte! Duhet bashkëpunim mes palëve
+-  Fewer car park spaces and smaller gardens under new house building rules issued to local authorities
+-  Eprocomunicazione gérera le service de presse de l'Université européenne de Rome
+-  Scots BBC star gives health update following 'devastating' brain cancer diagnosis
+-  PARTIZAN UTIŠAO KRCAT &quot;DRAŽENOV DOM&quot; Crno-beli na pogon sjajnog Bruna Kabokla ostvarili trijumf u Zagrebu
+-  Meran: Hier prügeln sich 2 Busfahrer
+-  Όταν πούμε ΚΑΙ «το αγόρι της τάδε» ίσως μπούμε σε καλό δρόμο
+-  Un 44,1% de hombres y 32,5% de mujeres creen que las políticas de igualdad discriminan a los varones
+-  Kılıçdaroğlu'nun Paylaşımına Dikkat Çeken Yanıt!
+-  ¿Cómo se elige al candidato presidencial republicano?
+-  “¡Inmenso!”: Tapia fue elegido el mejor jugador de diciembre en Celta de Vigo
+-  First Presbyterian Church of Wheaton to present program on race and racism
+-  संस्कृति मंत्री बृजमोहन अग्रवाल ने किया ओम लिपि का विमोचन
+-  HAMAS UBIO DVA IZRAELSKA TAOCA Treći zarobljenik saopštio vesti putem potresnog snimka
