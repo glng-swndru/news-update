@@ -1,51 +1,11 @@
 # Latest News
--  Életbe lépett az áremelés, mától 21 forinttal kell többet fizetni az üzemanyagokért
--  Univerzitní študenti sa v Trnave pobili s mestskými drábmi
--  NX China Takes Part in 9th Annual Medical Device Supply Chain Conference
--  Kemin Industries Introduces New Global Tagline: Compelled by Curiosity™
--  SKB, “AI DCIM 기반 데이터센터 시장 리더십 확대”
--  Prívalové dažde v Brazílii majú na svedomí minimálne 11 obetí, ulice sa zmenili na rieky
--  大学生感染“全家桶” 咳到肌肉拉伤 甲流乙流会重复感染吗
--  女人梦见好多新衣服什么意思
--  女人梦见谷子是什么意思
--  女人梦到地震预示什么意思
--  کراچی سے لاہور جانیوالی شالیمار ایکسپریس حادثے کا شکار
--  Jharkhand : अवैध खनन मामले में ईडी आज आर्किटेक्ट विनोद सिंह से पूछताछ करेगी
--  A kirúgott F1-es csapatfőnök sok embertől el sem köszönhetett
--  LF 보리보리, 새해 첫 유아동복 '패션위크' 진행
--  산업부 권한만 강화? 국회 계류중 '산업기술보호법'…업계 의견 반영될까?
--  76주 연속 역사 베스트셀러 ‘벌거벗은 한국사’, 윌라 오디오북으로 만난다
--  "대출이자 한푼이라도 줄이려"… '주담대 갈아타기' 뜨거운 관심 , 평균 금리인하폭 1.5%p
--  블라인드 “네이버 재직자 행복지수 1위…카카오 재직자는 한국 평균 미달”
--  악사손보, 한부모가정 지원사업 '온(溫)맘 나눔' 행사 실시
--  ‘냉동 디저트 1위 붕어빵’…홈플러스, 온라인 겨울 간식 인기
--  यूरिक एसिड घटाने में मददगार हैं ये फूड्स
--  „Die Züge steuern sich gegenseitig“: Berliner Verkehrsbetriebe planen automatisierte U-Bahn
--  Cổng nhà bất ngờ bị sập, bé gái 7 tuổi đang chơi đùa tử vong
--  Không bao giờ chi tiêu quá 300 ngàn đồng cho một buổi tụ tập là hoàn toàn chính xác: Người ta bảo tôi keo kiệt tôi mặc kệ!
--  4 mẫu giày được phụ nữ Pháp diện mỗi dịp đặc biệt, bạn nên sắm theo để outfit Tết trông sang hơn
--  Chỉ có ở Dubai: Siêu penthouse 7.100 m2, giá đắt hơn cả biệt thự nhà đất, có cả sân bóng trong nhà và phòng "đông lạnh" giúp trẻ mãi không già
--  Xác minh thông tin TikToker bị đuổi khỏi quán phở vì ngồi xe lăn
--  Hiện trường vụ cháy thương tâm khiến 4 người tử vong
--  Chủ quán phở ở Hà Nội nói về nam TikToker ngồi xe lăn: "Không có như trên mạng đâu, chú ấy ăn xong vẫn tươi cười đi ra"
--  Nam ca sĩ Vbiz "chốt đơn" ngày lên xe hoa với bạn gái diễn viên
--  Tham khảo 10 cách mặc chân váy ngắn sang xịn mịn của mỹ nhân Việt
--  CLIP: Cận cảnh nổ súng, khống chế kẻ cướp táo tợn ở TP HCM
--  Đăng clip hậu trường tập luyện đu vòng, Quỳnh Nga gặp sự cố ngã nguy hiểm từ trên cao
--  Vì sao con ngoan, trò giỏi ít đột phá còn trẻ "gây rối" dễ thành doanh nhân thành đạt? Nữ Tiến sĩ chỉ ra 1 điểm khác biệt mấu chốt
--  New Discovery Reveals Early Universe Quasars and Black Hole Relationships
--  Спорт по телевизията днес
--  Израелският военен министър: "Хамас" иска да пренесе войната на Западния бряг
--  Подросткам предложат снять учебные фильмы в рамках выставки «Россия»
--  Supreme Court Stays Delhi HC’s Ruling on Capital Gains Tax Exemption under Income Tax for Blackstone
--  Seçmen listelerinde adı olmayanlar ne yapmalı?
--  Çok çocuklu ailelerdeki kardeşlerin ruh sağlığı sorunu riski daha fazla
--  Bursa'da bir vatandaş pazar tezgahındaki tüm ürünleri satın aldı
--  15 Ocak Dünya Çilekli Dondurma Günü nedir?
--  Zonguldaklı öğrencilerden şehitler için saygı duruşu
--  Ayasofya Camii'nin turist kapısına kepenk takıldı
--  Bursa'da yol verme kavgasında tekme ve yumruklar konuştu
--  Bursa Gemlik'te içme suyu arıtma tesisi performans testleri yapıldı
--  Bursa'da Tophane surlarına "Şehitler ölmez vatan bölünmez" yazılı pankart asıldı
--  15 Ocak günlük burç yorumları nasıl?
--  Bursa'da 52 gün önce hayatını kaybeden sahibinin mezarından ayrılmıyor
+-  ตร.เร่งสืบหาตัวกลุ่มชายฉกรรจ์ อ้างเป็นตร.กองปราบ อุ้มรีดเงินพ่อค้าตลาดนัด 2 หมื่นบาท
+-  경북도 올해 첨단농업 확산, 고품질 농산물 생산에 5,662억원 투입
+-  청송군, 주민숙원사업 조기발주로 지역경기 활성화
+-  김천시, 2024년도 공동주택 관리 비용 지원사업 추진한다
+-  으라차차 경로당'근력강화교실 운영
+-  울진군 봄철 산불조심기간 대비 산불대응 태세 강화
+-  개혁연합신당, 민주당 등 범야권 '비례연합정당' 제안
+-  권아름·문정환 원주시의원, 임업·산촌 진흥 간담회
+-  경포환경참여연대 올림픽 맞이 환경정화 활동
+-  '13월의 월급' 받을 수 있을까… 연말정산 간소화 서비스 개통
