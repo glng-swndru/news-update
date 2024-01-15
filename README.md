@@ -1,11 +1,51 @@
 # Latest News
--  US Air Force pilot Madison Marsh makes history as Miss America
--  Costa del Sol: News in brief
--  Xiaomi introduces Redmi 13 phones
--  Fun88 Celebrates Dabang Delhi's Remarkable Performance as Proud Sponsor
--  Kalaburagi: School principal booked for forcing students to clean toilets
--  Morning Report — Iowa expectations: Trump should win big today
--  90% of Jobs at Risk Due to Generative AI Adoption: Cognizant and Oxford Economics Report
--  Scindia on flyer assaulting Indigo pilot: 'Incidences of unruly behaviour are unacceptable, will be dealt with strongly in line with existing legal provisions'
--  Pritzker begs Abbott to stop sending migrants to Chicago
--  Zubiri, sinabing inatasan ni Pres. Marcos ang Senado na manguna sa pagrepaso sa economic provisions ng Saligang Batas
+-  Kickoff | AFCON giants 'suspicious' of being spied on by rivals
+-  Kickoff | Broos hints at future should Bafana suffer early AFCON exit
+-  Kickoff | BREAKING: AmaZulu sign Sundowns defender
+-  The season finally underway on Mount Vlašić, installation of new vertical transport in the plans
+-  Nauru cuts diplomatic ties with Taiwan, 2 days after 2024 presidential election
+-  Turtle Beach Stealth Ultra Controller Review – The Furture is Here
+-  OpenAI Permits Its Usage For Military Applications: Report
+-  IMF Chief Recognises AI Job Risks While Emphasising 'Tremendous Opportunity'
+-  Russia To Launch Its Version Of Wikipedia Called ‘Ruwiki’: Reports
+-  Chief Economists Outlook: Global Economic Prospects Remain Subdued & Fraught With Uncertainty
+-  Mapped - exact locations in England and Wales where Met Office says snow could fall this week
+-  Napoli may freeze out Zielinski ahead of Inter switch
+-  Kuryeyi 500 metre sürükledi 'görmedim' dedi
+-  Sarah Beeny's answer to washing problem of parents of thousands of teenagers
+-  Thaler und Wirtschaftskammer fordern mehr Maßnahmen
+-  Ayasofya'da yeni dönem başladı
+-  Men who say they were abused by a Japanese boy band producer criticize the company's response
+-  Biden and the Democrats raise $97 million to close out 2023 after a December fundraising blitz
+-  오리온, 레고켐바이오에 5500억원 규모 투자…"최적의 전략적 파트너 확신"
+-  Kard. Ryś: Antysemityzm jest grzechem i basta. „Izrael jest narodem wybranym”
+-  Shaibu Campaign Organisation Condemns Violent Assault On Campaign Vehicle
+-  Gran Hermano: el desconsolado llanto de Furia cuando Cata abandonó la casa
+-  4 เครือข่ายสหกรณ์ ยอมถอยปรับราคา “ไข่ไก่” ลงแผงละ 6 บาท
+-  ปชป.ยังไม่หารือพรรคร่วมฝ่ายค้าน ปมยื่นซักฟอกรัฐบาล
+-  ALERT: Water turned off in Kilkenny parish
+-  Изтече секретна информация! НАТО се готви за голяма руска атака, вижте къде...
+-  Мощно земетресение с магнитуд 4,3 по Рихтер удари на 250 км от България
+-  Кметицата на село Забърдо подаде оставка, ще има нови избори
+-  Σηµαντικές αποστολές µε ελληνικό ‘‘χρώµα’’
+-  Tras confirmar su intención de viajar a la Argentina este año, el papa Francisco recibió a Alberto Fernández
+-  Turull (Junts) asegura que el pacto con el PSOE es para la "gestión integral" de la inmigración
+-  Novi kralj i kraljica jednim postupkom okončali su glasna šuškanja o krizi u braku, pričalo se da je on zbog afere i stigao na tron prije vremena!
+-  Enaire cerró 2023 en su máximo histórico, con casi 2,2 millones de vuelos operados
+-  ACS renovará el estadio del equipo de la NBA Charlotte Hornets por 250 millones de euros
+-  Itt a Blue Monday: ezért a mai az év legszomorúbb napja
+-  La Bolsa española sube el 0,12 % a mediodía y mantiene los 10.100 puntos
+-  Ernstfall eines russischen Nato-Angriffs: Pistorius lässt wohl Worst-Case-Szenario erstellen
+-  Israëlische voetballer gearresteerd na steunbetuiging aan thuisland
+-  Government trying to violate separation of powers, PN claims in court
+-  [이코노 브리핑] ‘목재펠릿 담합’ LS네트웍스 등 제재
+-  La Autoridad Palestina apremia a la CIJ a tomar una decisión "urgente" para detener los ataques sobre Gaza
+-  Sarah Snook Being Snapped on by Producer for Eating A Tiny bit of Cake
+-  Bruselas permite a TotalEnergies comprar el operador virtual de renovables Quadra Energy
+-  Cuánto sale el boleto de tren y colectivo en enero 2024 tras el aumento
+-  Clima en Costa Rica: temperatura y probabilidad de lluvia para Heredia este 15 de enero
+-  Pensiya alanlara ŞAD XƏBƏR – Gələn aydan hamının pulu…
+-  Varhassa tehdään pian isoja ratkaisuja palveluverkosta, mutta kuuluuko kuntalaisten ääni? Iso osa valtuutettuja saattaa olla esteellisiä
+-  What channel is Glenavon vs Portadown on? TV and live stream info for BetMcLean Cup semi-final
+-  포항의료원, 4주기 의료기관 인증 획득
+-  이재원 포항북 예비후보, 청년행복도시 포항 건설 천명
