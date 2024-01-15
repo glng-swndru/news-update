@@ -1,51 +1,51 @@
 # Latest News
--  محافظ جرش يؤكد أهمية النهوض بالواقع التعليمي بالمحافظة
--  وقفة تضامنية بمخيم إربد نصرة لغزة
--  محاضرة في الكورة تحث على إسناد الفتوى لأهلها
--  الرصيفة: أمسية شعرية تصور مشاهد القتل والدمار في غزة
--  Siirt'te polise bıçakla saldıran şahıs tutuklandı
--  Bruselas da margen a España para cerrar las reformas del cuarto pago de fondos europeos
--  Comunidade de Cities: Skylines 2 está ficando tóxica, afirma Colossal Order
--  USA: Was bedeutet die Iowa-Vorwahl für Trump und das Präsidentschaftsrennen der Republikaner?
--  Economic optimism doubles, yet almost half of CEOs do not believe their businesses will be viable in a decade as tech and climate pressures accelerate: PwC Global CEO Survey
--  Revasum Inc and Asahi Diamond America, Inc Join Forces to Revolutionize Silicon Carbide Wafer Grinding
--  Bodnar: Absolutnie nie zamierzam się wycofać. Uważam, że mam rację ws. Barskiego
--  Cyril Hanouna fait une grosse révélation sur son lien avec les membres de la famille Kretz (L'Agence sur TMC)
--  Former Witcher 3 and Cyberpunk 2077 devs officially reveal their first game, and yeah it sure looks like vampires
--  Jameel Khan recalls working with Shah Rukh Khan in Chalte Chalte; reveals he agreed for a retake after 8th AD suggested few changes
--  Bericht: Reyna plant BVB-Abgang – Interesse aus Spanien und Frankreich
--  Premios The Best, EN VIVO: Pep Guardiola es elegido el mejor técnico del año
--  Analyse: Wo bleibt die Aufbruchstimmung beim FSV Mainz 05?
--  바레인에 ‘전반 졸전-동점 허용’ 이강인 없었으면 어쩔뻔했나[아시안컵]
--  Selección de Honduras pacta un nuevo amistoso para marzo
--  Gewonde bij ongeval met drie auto's in Stroe
--  Una patrulla que perseguía a delincuentes en Las Heras chocó contra un delivery y lo mató
--  20 ألف حريق بمناطق أوكرانيا الطبيعية و5.2 مليون طن انبعاثات
--  Spanier Guardiola Welttrainer des Jahres
--  Olimpia manda uno de sus jugadores cedidos rumbo al Vida
--  „Už nikdy fašizmus“. V Nemecku protestovali tisíce ľudí proti pravicovo populistickej strane AfD
--  Grałeś na Atari? Z nową wersją będziesz mógł grać wszędzie
--  News24 | Here are the Daily Lotto numbers
--  Villeda: “Pronto tocará sentarnos a hablar con Pedro Troglio”
--  Статистика жертв террористической атаки ХАМАСа 7 октября и Войны "Железных мечей"
--  Kickoff | Onana arrives late as Cameroon drop points
--  Vi må bestemme over fostre, egne organer og valg af køn, men ikke vores egen død
--  Vi må bestemme over fostre, egne organer og valg af køn, men ikke vores egen død
--  Ako volite gorko možda spadate u opasnu populaciju ljudi: Istraživanja pokazala šokantne rezultate
--  بأسعار مخفضة.. افتتاح معرض "أهلًا رمضان" 15 فبراير في بورسعيد
--  المؤبد لمُدان بقتل مزارع وإصابة امرأتين في أسيوط
--  بكاء وتهديد واعتداء متكرر.. كواليس سقوط مُدرِّس تحرّش بتلميذاته في أسيوط
--  اكشف بـ3 جنيهات.. وكيل صحة أسيوط: تقديم الخدمات الطبية بالإدارات متاحًا للجميع ( فيديو وصور)
--  جيش الاحتلال: لم نقتل الأسيرين في غزة لكن نفذنا عمليات بالقرب منهم
--  بـ10 جنيه بس.. مشروب سحري يخلصك من الوزن الزائد والكرش
--  رياض محرز يقود هجوم منتخب الجزائر لمواجهة أنجولا بكأس الأمم الإفريقية
--  Pulisic ringrazia il Milan: «Mi è stata data una grande opportunità»
--  "السن طاقة مش رقم في البطاقة".. عصام الحضري يحتفل بعيد ميلاده والجمهور يعلق (صورة)
--  Bošković prokomentarisala špekulacije povodom prelaska u Vakifbank
--  Aviation civile : une liste des aéronefs opérant au Gabon transmise à la CNLCEI par l’ANAC
--  Bayley Comments On Possibility Of Facing Rhea Ripley at Wrestlemania 40
--  مقاتل روسي يسقط خصمه بضربة قاضية رهيبة (فيديو)
--  شبكة مهربين تشبه النمل.. تهريب 125 مليون دولار خلال 83 رحلة من لندن لمدينة خليجية (تفاصيل)
--  واتسآب يبدأ في طرح ميزة الاستطلاع للمستخدمين.. تعرف عليها
--  "الطيران المدني" تنذر 40 شركة لتعديل أوضاعها.. ماذا يحدث بالكويت؟
--  Wie Bauern und Naturschützer um Agro-Sprit zanken
+-  Gazze kasapları Netanyahu ve Savunma Bakanı Gallant birbiriyle konuşmuyor
+-  Okan Buruk hakeme yüklendi: 'VAR'ı sorgulamak lazım'
+-  İletişim Başkanlığı Ayasofya iddialarını yalanladı: Müzeye dönüştürülmesi söz konusu değildir
+-  Irak ve Suriye'nin kuzeyinde yeni hava harekatları: 23 hedef yerle bir edildi
+-  Ukko-Pekka Luukkonen pysäytti Sharksin – kauden toinen nollapeli
+-  Vocera del Enfen pide no descuidar prevención a pesar de anuncios de El Niño costero débil
+-  النشامى يتخطى ماليزيا برباعية
+-  14 صاروخا أطلقت من غزة باتجاه سديروت
+-  مستشفى سوروكا: استقبلنا 15 جنديا مصابا من غزة
+-  Tagadta bűnösségét a Viking Sigyn testvérhajójának kapitánya
+-  (المقاومة الوطنية) تستهدف زورقا إسرائيليا في بحر مدينة غزة
+-  Új főszerkesztő irányítja az atv.hu-t
+-  Pep Guardiola y Sarina Wiegmann ganan los 'The Best' a los mejores entrenadores del año
+-  Team Dimensione Nuoto: segnali importanti dalla della Coppa “Fulvio Albanese”
+-  Dorinel Munteanu a auzit ce a spus Adrian Mutu și a dat un mesaj în direct
+-  حقيقة سيخ الشاورما الاردني المسروق ! - فيديو
+-  Estas son las noticias más leídas este lunes en Diario de Pontevedra
+-  Pet članica EU zatražilo sankcije za Ukrajinu
+-  Sumqayıtda partlayış necə baş verib?
+-  Ecdad Ne Demek: Türk Tarihindeki Önemi ve Anlamı
+-  Ολυμπιακός – Κολοσσός 71-52: Πιέστηκε για τρεις περιόδους πριν από τους «τελικούς» (ΒΑΘΜΟΛΟΓΙΑ)
+-  Bay Area man among victims in Arizona hot air balloon crash
+-  Liveticker: Ukraine-Krieg aktuell – alle News (Montag, 15.01.2024)
+-  Täter soll Kassiererin erschossen haben - Schüsse bei Aldi: Zwei Tote!
+-  التعديل الحكومي المرتقب.. أسامة كمال: الاحتمالات الأكبر ترجح بقاء مدبولي في منصبه
+-  Onbinlerce çiftçi traktörleriyle Berlin’i kuşattı: Direne direne kazanacağız
+-  Islanđani u očaju: Ovaj grad je gotov
+-  Fly-tipping fine more than doubles in ‘important step’ by Scottish Government
+-  Von Cramon in Kosovo: Serbs complain of discrimination
+-  Baby’tje had negen gebroken ribben en gebroken sleutelbeen: ‘Er is fors hard geknepen’
+-  Okan Buruk'tan hakem eleştirisi! "Her yerde farklı kararlar veriliyor"
+-  Gazze'de bir gazeteci daha katledildi
+-  Muslera: En büyük favoriyiz
+-  Ürdün'den dünyaya 'İsrail'e baskı yapın' çağrısı
+-  Irak ve Suriye'nin kuzeyine operasyon... Hedefler bir bir imha edildi
+-  Local clinic bridging gaps in specialized dental care
+-  Kayserispor'dan hakem tepkisi! "Endişeye mahal yok endişeye"
+-  F1 - Ανακοίνωσε και η Red Bull Racing ημερομηνία αποκαλυπτηρίων (vid)
+-  الإعلام ودعم الفعاليات الثقافية.. مائدة مستديرة بالمجلس الأعلى للثقافة الأربعاء المقبل
+-  الموت يغيّب الفنان التشكيلي هشام بنجابي
+-  Serdar Ortaç'tan üzen haber: Bacağımı kesecekler! Meğer o hastalığın pençesindeymiş
+-  لوفتهانزا تستهدف توظيف 13 ألف موظف خلال العام الحالي
+-  Rusi su raketirali selo New York u Ukrajini: Troje je ozlijeđenih, petero ljudi je pod ruševinama
+-  Staða eldgossins: Eitt virkt gosop
+-  Etibar Mirzəyev yenidən hadisə yerinə getdi
+-  Masaya Okugawa wird für Schalke fit: „Ich möchte dem HSV sofort helfen“ | Sport
+-  Fiji Business Briefs: Fiji Airways, FNPF, Pleass
+-  Mejora la salud del maestro Egidio Cuadrado: clínica emitió un comunicado
+-  Priča o nepoznatom Zadru: ‘Beetlejuice‘ iz Sv. Frane, zazidani Donat, Gospa od Fritula i crkva u kojoj se toči vino
+-  Fake 911 report of White House fire triggers emergency
