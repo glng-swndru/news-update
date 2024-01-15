@@ -1,51 +1,11 @@
 # Latest News
--  President Tharman, Josephine Teo & Tan See Leng will speak at Davos World Economic Forum
--  Over 50 critical infrastructure projects destroyed by ongoing rains in Narok
--  Alpine announce 2024 motorsport season launch date
--  Kickoff | PSL Big Three’s AFCON interest
--  Kickoff | Motsepe makes big African football claim
--  Coco Gauff advances to Australian Open second round in bid for consecutive Slam titles
--  Mukesh Ambani Eyes For Share In Sri Lanka Telecom Company
--  Bank Valuations Likely To Rise By $7 Tn In 5 Years: Report
--  Boeing Opens Its First India-focused Distribution Centre In Uttar Pradesh
--  DoT May Halt Starlink's Satcom Plans In India, Seeks Clarity On Ownership Disclosure
--  HCLTech, SAP Forge Strategic Partnership To Leverage Generative AI
--  Go First Lender's Set 31 January As Late Date For Bids From Investors
--  Jyoti CNC IPO Set For Debut Amid Listing Optimism On 16 January
--  Avalon Technologies Signs Partnership With C-DAC; Stock Jump 4%
--  About 47% Female Earners In Metros Take Independent Financial Decisions: Report
--  Wealth Of 5 Richest Men Doubled Since 2020 As 5 Bn People Fallen Into Poverty: Oxfam
--  Alperen'in maçı 21:00'de S Sport'ta
--  Bursaspor, Ahmet Hakan Atış ve Ahmet Berke Ay'la profesyonel sözleşme imzaladı
--  Hande Erçel "hedef gösteriliyorum" diyerek isyan etti
--  Bursa Valisi Mahmut Demirtaş "Yılın Kareleri" oylamasına katıldı
--  15 yaşında katil oldu, şaka yapan arkadaşını bıçaklayarak öldürdü
--  On a Mission in Crafting a Creative Legacy in Premium Stationery Segment
--  UK to ‘consider’ whether further Red Sea action needed, says Defence Secretary
--  جزيرة ناورو تقطع علاقاتها مع تايوان وتتحول إلى بكين
--  اليابان وأمريكا وكوريا الجنوبية تدين إطلاق كوريا الشمالية لصاروخ باليستي
--  رئيس البرلمان يحيل اتفاقيتين للجنة الطاقة والبيئة
--  Dietmar Bartsch (Linke) warnt vor Fixierung auf AfD und Höcke
--  Inhoudelijk proces moord 9-jarige Gino na de zomer verwacht
--  9-jarig meisje overleden na ongeval met quad in Landgraaf
--  Duitse economie krimpt in 2023 voor het eerst sinds corona
--  Senator BBB vreest aantasting lokale autonomie door spreidingswet
--  Mogelijke opdrachtgever explosies Rotterdam en Vlaardingen opgepakt
--  Zeer zware avondspits op maandag en dinsdag door winters weer
--  Marcouch: verbranden van koran valt onder demonstratierecht
--  Eline de Zeeuw nieuwe presentator NOS Sport
--  United Nations seeks $4.2 billion to help people in Ukraine and refugees this year
--  UWV ziet af van 5000 'onterechte' boetes
--  Salvaje mata a golpes a una bebé en Emboscada
--  Congress-AAP Join Hands For Chandigarh Mayor Polls, Eye 2024 Lok Sabha Alliance
--  LISTEN | 28-million people rely on social grants’: Ramaphosa boasts about ANC’s efforts to prevent poverty
--  TCL Wins EcoVadis 2024 Gold Award for Sustainable Practices
--  Nicolas Cage skjønner ikke hvorfor Disney aldri ville lage National Treasure 3
--  Inside True Detective season 4 with Jodie Foster's protege Finn Bennett
--  Weavers ihaleye çıkıyor!
--  Bakan Bolat, cari işlemler hesabında kalıcı iyileşme sağlamak için çalıştıklarını belirtti
--  Boş bulunan 1 HSK üyeliği için 6 başvuru
--  Taxiarchis Fountas, Trabzonspor'da siftahını yaptı
--  İYİ Parti'de bir istifa daha
--  Yeni teklif yolda! Fenerbahçe'den Anthony Martial atağı
--  95 öğrenci gıda zehirlenmesinden etkilendi
+-  Microsoft Tests To Automatically Launch Copilot AI In Windows 11
+-  Gujarat Government Inks Deal With Avaada Group For 6 GW Hybrid Wind-Solar Projects
+-  Sven-Goran Eriksson would accept “dream” chance to manage Liverpool in charity game
+-  EXPLAINER-Why the Maldives wants Indian troops out
+-  İsrail'e destek vermişti! Sagiv Jehezkel için sınır dışı kararı verildi
+-  Fransızlara ait yerleşkeye bomba yağdırıldı! PKK/YPG'nin sözde karargahı yerle bir edildi
+-  Cumhurbaşkanı Erdoğan, Kahramanmaraşlı şehit Müslüm Öztürk'ün babasıyla telefonda görüştü
+-  Dancing on Ice fans react as Stephen Mulhern gets 'punched'
+-  Россиялик блогер Тошкент телеминорасининг тақиқланган энг юқори қисмига чиқди.
+-  Afar Kooxood Oo Premier League Ah Oo Isku Haysta Guirassy, Laacibka Afka Isku Geliyey Liverpool, PSG Iyo Real Madrid, Difaaca Isku-diray Arsenal & Chelsea Iyo Wararka Suuqa Ee Maanta
