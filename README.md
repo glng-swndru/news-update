@@ -1,51 +1,51 @@
 # Latest News
--  Kickoff | AFCON giants 'suspicious' of being spied on by rivals
--  Kickoff | Broos hints at future should Bafana suffer early AFCON exit
--  Kickoff | BREAKING: AmaZulu sign Sundowns defender
--  The season finally underway on Mount Vlašić, installation of new vertical transport in the plans
--  Nauru cuts diplomatic ties with Taiwan, 2 days after 2024 presidential election
--  Turtle Beach Stealth Ultra Controller Review – The Furture is Here
--  OpenAI Permits Its Usage For Military Applications: Report
--  IMF Chief Recognises AI Job Risks While Emphasising 'Tremendous Opportunity'
--  Russia To Launch Its Version Of Wikipedia Called ‘Ruwiki’: Reports
--  Chief Economists Outlook: Global Economic Prospects Remain Subdued & Fraught With Uncertainty
--  Mapped - exact locations in England and Wales where Met Office says snow could fall this week
--  Napoli may freeze out Zielinski ahead of Inter switch
--  Kuryeyi 500 metre sürükledi 'görmedim' dedi
--  Sarah Beeny's answer to washing problem of parents of thousands of teenagers
--  Thaler und Wirtschaftskammer fordern mehr Maßnahmen
--  Ayasofya'da yeni dönem başladı
--  Men who say they were abused by a Japanese boy band producer criticize the company's response
--  Biden and the Democrats raise $97 million to close out 2023 after a December fundraising blitz
--  오리온, 레고켐바이오에 5500억원 규모 투자…"최적의 전략적 파트너 확신"
--  Kard. Ryś: Antysemityzm jest grzechem i basta. „Izrael jest narodem wybranym”
--  Shaibu Campaign Organisation Condemns Violent Assault On Campaign Vehicle
--  Gran Hermano: el desconsolado llanto de Furia cuando Cata abandonó la casa
--  4 เครือข่ายสหกรณ์ ยอมถอยปรับราคา “ไข่ไก่” ลงแผงละ 6 บาท
--  ปชป.ยังไม่หารือพรรคร่วมฝ่ายค้าน ปมยื่นซักฟอกรัฐบาล
--  ALERT: Water turned off in Kilkenny parish
--  Изтече секретна информация! НАТО се готви за голяма руска атака, вижте къде...
--  Мощно земетресение с магнитуд 4,3 по Рихтер удари на 250 км от България
--  Кметицата на село Забърдо подаде оставка, ще има нови избори
--  Σηµαντικές αποστολές µε ελληνικό ‘‘χρώµα’’
--  Tras confirmar su intención de viajar a la Argentina este año, el papa Francisco recibió a Alberto Fernández
--  Turull (Junts) asegura que el pacto con el PSOE es para la "gestión integral" de la inmigración
--  Novi kralj i kraljica jednim postupkom okončali su glasna šuškanja o krizi u braku, pričalo se da je on zbog afere i stigao na tron prije vremena!
--  Enaire cerró 2023 en su máximo histórico, con casi 2,2 millones de vuelos operados
--  ACS renovará el estadio del equipo de la NBA Charlotte Hornets por 250 millones de euros
--  Itt a Blue Monday: ezért a mai az év legszomorúbb napja
--  La Bolsa española sube el 0,12 % a mediodía y mantiene los 10.100 puntos
--  Ernstfall eines russischen Nato-Angriffs: Pistorius lässt wohl Worst-Case-Szenario erstellen
--  Israëlische voetballer gearresteerd na steunbetuiging aan thuisland
--  Government trying to violate separation of powers, PN claims in court
--  [이코노 브리핑] ‘목재펠릿 담합’ LS네트웍스 등 제재
--  La Autoridad Palestina apremia a la CIJ a tomar una decisión "urgente" para detener los ataques sobre Gaza
--  Sarah Snook Being Snapped on by Producer for Eating A Tiny bit of Cake
--  Bruselas permite a TotalEnergies comprar el operador virtual de renovables Quadra Energy
--  Cuánto sale el boleto de tren y colectivo en enero 2024 tras el aumento
--  Clima en Costa Rica: temperatura y probabilidad de lluvia para Heredia este 15 de enero
--  Pensiya alanlara ŞAD XƏBƏR – Gələn aydan hamının pulu…
--  Varhassa tehdään pian isoja ratkaisuja palveluverkosta, mutta kuuluuko kuntalaisten ääni? Iso osa valtuutettuja saattaa olla esteellisiä
--  What channel is Glenavon vs Portadown on? TV and live stream info for BetMcLean Cup semi-final
--  포항의료원, 4주기 의료기관 인증 획득
--  이재원 포항북 예비후보, 청년행복도시 포항 건설 천명
+-  Stormers star Dayimani advancing Springbok prospects
+-  “Pran Pratishtha' is PM Modi's event...” UP Cong President during Ayodhya visit
+-  GAA star hailed for "legendary" Croke Park performance as he inspires club to All-Ireland glory
+-  Two Zimbabweans test positive for cholera in SA
+-  Gazan patients in dire need of medical care as conflict reaches grim milestone
+-  EUR/USD getting closer to a technical breakout?
+-  A Native woman launched a forensics nonprofit to address missing and murdered Indigenous people after her relative went missing and was never found
+-  A closer look at fast-finishing Man City’s formidable season run-in record
+-  Death toll from Israeli attacks on Gaza since Oct. 7 rises to 24,100
+-  Oil price up with ongoing Middle East tension
+-  AI Gains To Disproportionately Benefit Higher-income Earners In India: IMF Report
+-  Tackling the tick dilemma: a guide on how to deal with dog ticks
+-  FASTags With Incomplete KYC To Be Deactivated Post Jan 31
+-  Doherty Enterprises-owned Applebee’s® on Long Island Launch 8th Annual Above and ‘BEE’yond Teacher Essay Contest
+-  حنان بركة تصدر أغنية جديدة بعنوان "Four"
+-  الكاف تلزم الركراكي باستبعاد أربعة لاعبين قبل مواجهة تانزانيا
+-  فتيان المغرب ينهون مشاركتهم بالبطولة العربية للسباحة بحصد 20 ميدالية
+-  توقعات بانخفاض درجات الحرارة في المغرب مع هطول أمطار متفرقة
+-  مطارات المغرب تسجل رقما قياسيا
+-  "الكاف" يحذّر من استخدام أجهزة الليزر في مباريات أمم إفريقيا
+-  المنظمة الديمقراطية للشغل تعلن إضرابا وطنيا لثلاثة أيام (صور)
+-  تسجيل رقم قياسي جديد في حركة المسافرين بالمطارات المغربية.. والناظور-العروي يسجل نمو ب 22%
+-  مطار محمد الخامس بالدار البيضاء.. استقبال ما يناهز 8 ر9 مليون مسافر سنة 2023 بزيادة 28% مقارنة ب2022
+-  كأس أمم أفريقيا.. "الكاف" يعين المغربي جلال جيد لقيادة مباراة بوركينا فاسو وموريتانيا
+-  ادريس لشكر يمثل غدا الثلاثاء أمام القضاء
+-  الطالبي العلمي يمثل الملك في حفل تنصيب رئيس غواتيمالا الجديد
+-  اختيار الفجيرة لمنح جائزة "زرياب المهارات" كل سنة
+-  عن مهرجان المسرح العربي…
+-  بورصة الدار البيضاء تستهل التداولات على وقع ارتفاع طفيف
+-  Slow uptake on overseas voter registration
+-  ‘Circumcision & FGM Are Primitive And Irrelevant To Leadership’-Raila Odinga
+-  Missing Belfast woman Sarah Gibson sparks renewed appeal from PSNI
+-  Here’s Why SOFI Stock Could Be a Big Winner in 2024
+-  Ремонтират гребната база във Варна със 100 хиляди лева
+-  Over 24 crore Indians moved out of multidimensional poverty in last nine years: NITI Aayog
+-  Shocking Repeat: Second Airbnb Murder Raises Urgent Calls for Action
+-  HINWEIS: Kein Handel am US-Anleihemarkt
+-  Deutsche Anleihen: Zur Kasse gefallen - Umlaufrendite 2,19 Prozent
+-  America Ferrera wins hearts with meaningful speech at Critics Choice Awards
+-  Inflácia v tomto roku výrazne spomalí na 3 až 4 %, tvrdia analytici
+-  بلوچستان کےاہم علاقےمیں افسران کی ٹریننگ سیشن کےدوران خوفناک دھماکہ
+-  Dollar pressures copper while zinc jumps on smelter shutdown
+-  DJ Fantan builds a new house for his mom
+-  Tubino joins Choco Mucho
+-  BMW CFO says sales growth is mostly electric as combustion engine ‘tipping point’ passes
+-  Nadia Podoroska debutó con victoria en el Abierto de Australia
+-  LANXESS AG : Deutsche Bank herhaalt koopadvies
+-  LANXESS AG : El Deutsche Bank continua con su recomendación de compra
+-  РИОСВ-Русе провери 44 обекта през декември
+-  Deutsche Bank Research hebt Ziel für Lanxess auf 29 Euro - 'Buy'
