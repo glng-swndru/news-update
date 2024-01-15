@@ -1,51 +1,11 @@
 # Latest News
--  Meta pooštrava pravila za tinejdžere
--  BIŁGORAJ: Potrącenie na przejściu
--  SZCZEBRZESZYN: Pożar samochodu
--  GM. BIŁGORAJ: Sprzedawali ciasta, żeby pomóc dzieciom
--  比亚迪成为2024欧洲杯官方出行合作伙伴，助力全球绿色发展
--  '버닝썬 게이트' 최종훈, 5년 만에 복귀?..."뻔뻔해" 누리꾼 공분
--  На рынок вышел защищенный смартфон с самой большой батареей
--  সুনামগঞ্জে ব্রিজের নিচ থেকে নৌ শ্রমিকের লাশ উদ্ধার
--  ব্রাহ্মণবাড়িয়ায় প্রতিবন্ধীদের মাঝে শীতবস্ত্র বিতরণ
--  Soykırımcı İsrail, Gazze'de 100 günde 30 bin noktaya saldırı düzenledi
--  Bu sefer attırdı! Sebastian Szymanski hiçbir maçı boş geçmiyor
--  Darüşşafaka Lassa son 16 turu bileti için parkede olacak
--  e-Devlet şifre alma işlemleri Türksat kablo abone merkezlerine taşındı
--  Bıçaklı saldırıya uğrayan Fatih Camii imamı Galip Usta taburcu oldu
--  Fatih Karagümrük'ün Ziraat Türkiye Kupası'nda rakibi Kırklarelispor
--  Develi Belediyespor üst üste ikinci galibiyetini aldı
--  CHP içinden DEM Parti ile işbirliğine yeşil ışık: Açık seçik ittifak yapmalıyız
--  Beşiktaş'ın Ziraat Türkiye Kupası'nda rakibi Eyüpspor
--  Медведев — об отношениях со зрителями: хочу дарить любовь публике и получать её взамен
--  Тройка в продължението попари Везенков и Сакраменто
--  Затварят за седмица кръстовище на бул. „Хаджи Димитър“
--  Osam medalja za AK Slavonija-Žito na Prvenstvu Hrvatske za mlađe seniorke i seniore
--  धनुषाधाममा एक महिने मकर मेला सुरु
--  Gráfica del día: Los aeropuertos y aerolíneas más puntuales
--  Σχέδιο νόμου αποτροπής του shutdown στις ΗΠΑ από Δημοκρατικούς και Ρεμπουμπλικάνους
--  Neige et verglas au nord-est ce lundi matin
--  एमबाप्पे र ब्राइलीको गोलमा पीएसजी विजयी
--  „Pericol iminent”. Alertă maximă în insula franceză Reunion, din cauza ciclonului Belal. Nici măcar salvatorii nu au voie să iasă afară
--  Åklagarna ska presentera ny bevisning i gängmålet
--  СК назвал число уголовных дел за фейки и дискредитацию армии
--  Hafa tvö­faldað auð sinn á fjórum árum
--  Wall Street : sans tendance mais score bien positif en hebdo
--  Chủ quán phở lên tiếng vụ hot TikToker tố bị phân biệt đối xử: "Tôi có nói thông cảm vì đông khách, mà người ta dựng chuyện""
--  Bus und Bahn zusammengestoßen: Mehrere Verletzte
--  Neue Woche bringt Schnee und Glätte
--  Ve duyuru geldi! Banka hesabı olan herkesi ilgilendiriyor en az 7.829,04 TL ödeme yapılacak
--  민주평통 강릉시협의회 신년인사회
--  UN피스코 꽁꽁축제 방문
--  홍천희망로타리클럽 필리핀 봉사
--  디자인 씽킹뮤지엄 창립총회
--  [속보] 검찰, '尹정부 들어 4회 기소' 이재명 변협 징계 신청
--  케이투앤 천사운동 후원금 전달
--  소초농협 경로당 운영지원금 810만원 전달
--  둔내면 영랑자율방범대 초소 준공 및 이취임식
--  기아, 우버와 맞춤형 차량호출 PBV 만든다
--  퇴계동 12개 자생단체장 국제스케이트장 춘천 유치 지지
--  춘천시 아이스하키 동호회 국제스케이트장 춘천 유치 촉구
--  국토부, 대전시에 ‘북부권 화물차 휴게소’ 조성
--  자유총연맹 춘천시지회 양곡 전달
--  현대차·기아, 지난해 美서 질적성장
+-  News24 Business | Metair appoints former Eskom exec Paul O'Flaherty as its new CEO
+-  Stern crackdown key to ending dog meat industry once and for all: experts
+-  Arctic cold envelops US during holiday weekend, disrupting Iowa campaigning
+-  Conflict, climate change and AI get top billing as leaders converge for elite meeting in Davos
+-  الجيش الأمريكي: أسقطنا صاروخًا أطلق من منطقة خاضعة لسيطرة الحوثيين نحو مدمرة
+-  تعاون مصري خليجي لإنشاء ممر رقمي يربط بحر العرب بالمتوسط
+-  Gram altın 2 bin TL'ye dayandı! İşte 15 Ocak Pazartesi altın fiyatları
+-  Erzurum eksi 25 dereceyi gördü!
+-  Konya'da otomobilin çarptığı liseli Zeynep, yaşamını yitirdi
+-  '3 kişi beni gece boyunca depoya kapattı' dedi! Vali gerçeği açıkladı
