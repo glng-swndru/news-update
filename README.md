@@ -1,51 +1,11 @@
 # Latest News
--  ‘We invest in our workforce and their development’
--  광명시, 5년 연속 ‘2024년 장애인 평생학습도시’ 뽑혀
--  강병덕 민주당 예비후보, 지지자 1500여명 참석 선거 사무소 개소식 가져
--  그림판매·경매·구매 플랫폼 ‘큐알아트’, 중견작가 이인재 작가의 ‘들꽃 여인’ 2점 소개
--  A decade of hospitality elegance
--  경동대, 네오바이오텍과 지방대학활성화사업 일환 가족기업 협약
--  구리청소년재단-나청메이커앤드론, 특화사업 활성화 업무협약 체결
--  부천 ‘주님의 벗 교회’, 심곡3동 취약계층 생필품 꾸러미 후원
--  포천 관인면 자율방범대, 신규 순찰차량 무사고 안전 기원제 가져
--  가평문화의집, 청소년동아리 프로그램 참여자 모집
--  가평 청평면 새마을부녀회, 화재피해·어려운 이웃돕기 성금·품 기탁
--  포천 영북면 황동영 군, 고사리손 저금통 2년째 기부
--  [오피셜] 천안시티, 베테랑 미드필더 이광진 영입… 중원 강화 성공
--  잊힌 토트넘 수비수, 뭐하고 있나 했더니 또 다쳤다… “몇 주 후 복귀”
--  [오피셜] 중원 강화한 광주, 독일 분데스리가2 출신 최경록 영입
--  ‘유리몸인데 괜찮아?’...첼시, 새로운 레프트백으로 루크 쇼 낙점
--  Đại diện Đặng Văn Lâm bình luận gây sốc, công khai chê Nguyễn Filip
--  Thay cơm bằng 5 loại thực phẩm này, bụng no căng mà mỡ giảm đều
--  Cầu thủ đắt giá nhất Nhật Bản: Không hiểu ĐT Việt Nam tập luyện thế nào mà cầm bóng hay thế
--  Giả mạo nhân viên ngân hàng lừa đảo: Thủ đoạn cũ nhưng cách thức ngày càng tinh vi
--  Vàng SJC sáng đầu tuần rời khỏi mốc 77 triệu đồng/lượng
--  Bị cho là "thua oan" trước MLee ở "Chị đẹp đạp gió rẽ sóng", Hương Ly nói gì?
--  Mở tiệc khai Xuân, Pizza Hut “lì xì” loạt deal giảm 50% độc quyền trên ShopeeFood
--  5 kiểu tóc ngang vai trẻ trung, đáng tham khảo cho dịp Tết 2024
--  Có gì trong đám cưới kéo dài 10 ngày của Hoàng tử Brunei
--  Danh tính 4 người tử vong trong vụ cháy nhà tại phố Hàng Lược
--  Critics Choice Awards 2024: Taraji P. Henson wows in white gown with thigh-high slit as she dazzles on the red carpet
--  US-Militär wehrt erneut Rakete der Huthi-Rebellen ab
--  Kongress verzögert Vereidigung des Präsidenten in Guatemala
--  Terduga Pengancaman Penembakan Anies Baswedan di Kaltim Menyerahkan Diri ke Polisi
--  'Rat-infested, graffiti-infested sh**hole!' Trump rants about 'horribly run' Washington DC 'where people are being killed' - and threatens to 'take it away' from Mayor Muriel Bowser
--  Así fue la reacción de la casa tras quedar Catalina eliminada de Gran Hermano
--  Apa Itu APN Telkomsel dan Cara Settingnya Agar Koneksi Tidak Lemot
--  ISW: Росія, ймовірно, готує новий наступ, однак не матиме масштабного прориву
--  كأس آسيا: فوز كبير لإيران على فلسطين
--  Philippoussis ‘blown away’ by Tsitsipas’ concerning change
--  Philippoussis ‘blown away’ by Tsitsipas’ concerning change
--  Australian Open Highlights: Roberto Carballes Baena v Hugo Gaston
--  Australian Open Highlights: Roberto Carballes Baena v Hugo Gaston
--  পাওয়া যাচ্ছে না ৯৫০ গাড়ির নথি
--  JA Nigeria, KPMG empower students
--  A record 420,000 patients wait more than 12 hours in A&E: The number facing huge delays rises 50-fold since 2019
--  A record 420,000 patients wait more than 12 hours in A&E: The number facing huge delays rises 50-fold since 2019
--  Gauff inledde med kross: "Mår bra"
--  Miss Colorado makes history as she becomes first serving US soldier EVER to be crowned Miss America: Air Force pilot, 22, training to be Top Gun fighter pilot after graduating from Harvard
--  Σουδάν: Τουλάχιστον 7 άμαχοι νεκροί σε βομβαρδισμούς με στόχο χωριό στον Λευκό Νείλο
--  Rachel Brosnahan takes the plunge in VERY low-cut black dress at the star-studded 2024 Annual Critics Choice Awards in Los Angeles
--  انطلاق سيرك الديموقراطية: الأميركيون لا يختارون رئيسهم!
--  Viceministro de la Juventud visita Valledupar y se compromete con la margen derecha del río Guatapurí
--  中금리동결에 위안화 강세…환율, 1320원 터치 후 하회[외환분석]
+-  [성직자, 학원강사도 마약밀수 단속에 적발
+-  [BPA, 건설현장 36곳 하도급 대금·임금 지급실태 점검
+-  Bursa'da ahırda çıkan yangında 10 büyükbaş hayvan telef oldu
+-  Fuel Companies to Impose Oil Price Hike for 2nd Straight Week
+-  Atatürk. Nuri Conker’i neden kardeşi gibi severdi
+-  "사전투표 위헌심판" 청구소 제기
+-  'जॉब चाहिए तो एक रात गुजारनी होगी...,' अफसर की डिमांड पर डर गईं लड़कियां
+-  Nữ sinh Hà Nội giành ngôi hoa khôi Đại học Ngoại thương
+-  SECO STRENGTHENS ITS PRODUCTION CAPACITY IN ASIA WITH THE INAUGURATION OF A NEW FACILITY IN CHINA
+-  2023 was the hottest year ever recorded globally. How is 2024 shaping up?
