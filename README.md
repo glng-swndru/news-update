@@ -1,11 +1,51 @@
 # Latest News
--  Connecticut Casinos Witness Decline in Fiscal 2023 Revenues
--  Kotabommali P.S. | Song - Lingi Lingi Lingidi
--  Cardinal Mario Grech favourite ‘European’ to become pope – Irish Times
--  Foxconn očekuje nastavak slabe potražnje
--  «Довольно крепкий клуб». Эксперт взвесил шансы на победу в матче «Барыса» и «Лады» в КХЛ
--  I Don’t Want To Be Remembered For Negative Things – Fubara
--  Ukraine-Krieg aktuell: Angriff steht kurz bevor! Hier plant Putin die nächste Großoffensive
--  Hoàng tử tỷ đô Brunei thu hút 7 triệu người chỉ qua một ánh mắt nhìn vợ, đám cưới xa hoa tựa cổ tích lọt top tìm kiếm
--  "Mỹ nhân đẹp nhất Trung Quốc" lần đầu được khen diễn hay, nhờ cảnh khóc 1 phút mà rating tăng chạm đỉnh
--  Thủng lưới 4 bàn trước Nhật Bản, Nguyễn Filip thừa nhận thiếu sót
+-  İstanbul'da otomobil hırsızları tutuklandı
+-  Edirne Valisi sınır hattında görevli güvenlik güçlerini ziyaret etti
+-  Gazze Şeridi'ne düzenlenen saldırılarda en az 33 Filistinli hayatını kaybetti
+-  İşçi servislerinin çarpıştığı kazada yaralı sayısı 11 oldu
+-  İstanbul İhracatçı Birliklerinin ihracatı 2023'te önceki yıla göre artış gösterdi
+-  Sinoplu kadın esnaf dükkanında ölü bulundu
+-  Hindistan'da pilot, yolcunun saldırısına uğradı
+-  Kök maaş nedir, nasıl hesaplanır?
+-  Bursa Yıldırım Mimar Sinan'da yol yarılandı
+-  Ankara Keçiörengücü, Mikail Okyar'ı kadrosuna kattı
+-  MEB ve ASELSAN'dan "Yeşil Geleceğim" temalı resim yarışması
+-  Tekirdağ'da hayvan kulübelerinde yangın! 1 at ve 1 köpek telef oldu
+-  Mehmet Şimşek: Bütçe açığı beklentilerin altında kaldı
+-  Kickoff | Ghana coach addresses Ofori's lack of playing time at Pirates
+-  Nomofobi nedir ?
+-  농촌진흥청 정보공개 '최우수' hellip; 중앙행정기관 평균 10점 상회 '왕중왕'
+-  새만금개발청, 산단 내 '토(土)-수(水)-전(電) 대응' 올인 하는 까닭은?
+-  민변 출신 이덕춘 예비후보, 경찰 발표 맹탕인 4가지 이유 '재수사 촉구'
+-  대만과 국교 유지하던 남태평양 섬나라 나우루, 돌연 단교 선언, 왜?
+-  באמצעות בינה מלאכותית: כך מציינים את יום השואה הבינלאומי
+-  מפתיע: זה מה שקרה להונם של עשירי העולם מאז 2020
+-  Sala Lifestyle launches Cocktail Masterclass
+-  Президентът на Барса продължава да има доверие на Шави
+-  سر البطة المحنطة في الأقصر.. عمرها 100 عام وتبهر السياح
+-  규현, 데뷔 첫 솔로 아시아 투어 '리스타트' 서울서 포문
+-  Britaniya husilərə yeni hava zərbələri endirmək barədə qərar verməyib
+-  Soccerladuma | Is Broos Dropping A Hint On His Bafana Future?
+-  مندوبا عن الملك... العيسوي يرعى الاحتفال بيوم الشجرة بالقطرانة
+-  الخارجية الصينية: نسعى لحل مشكلة أوكرانيا بالتعاون مع المجتمع الدولي
+-  هل توقف الحلوى الحامضة نوبات الهلع؟
+-  "طالبان" تنفي السعي لامتلاك سلاح نووي
+-  Przegląd mistrzów krajowych w kolarstwie przełajowym
+-  Míňame menej pitnej vody, budeme za ňu platiť viac
+-  Wer verbraucht am meisten Strom? 480 Grafikkarten im Vergleich (Video) – PC Games Hardware
+-  [한국기행] 내가 꿈꾸던 고립 1부-저 바다에 누워
+-  [세계테마기행] 나는 전설이다 에티오피아 1부-아프리카의 전설, 아디스아바바
+-  [생방송 투데이 맛집] ‘닭볶음탕’ 맛집
+-  Black Coffee breaks his silence after ex Enhle Mbali spills the tea
+-  Vinicius Junior admits imperfections after stunning hat-trick
+-  "Gaziantep Spinal Günleri" toplantısı
+-  Песков назвал встречу в Давосе по «формуле мира» Киева пустыми разговорами
+-  “E-Şikayət” sisteminə müraciətlər artır
+-  La Guardia Civil de Valencia evita el atraco a una sucursal bancaria de Villanueva de Gállego
+-  Sagiv Jehezkel’in skandal gol sevinci sonrasında kamuoyu tek ses: “Antalyaspor hükmen mağlup edilmeli”
+-  Bıçaklı saldırıya uğrayan Fatih Camii imamı Galip Usta taburcu edildi: İlk sözleri 'En kısa zamanda camiye geçeceğim' oldu
+-  Türk hava sahasında 2023 yılında 15 saniyede bir uçak geçti
+-  Bütçe açığında sürpriz gelişme: Beklentilerin 258 milyar lira altında kaldı
+-  Bütçe 2023'te 1 trilyon 375 milyar lira açık verdi
+-  Песков не стал комментировать «секретный план» бундесвера по столкновению с РФ
+-  정기현 "국회 '과학기술인' 없어...밑바닥부터 인지도 확장"
