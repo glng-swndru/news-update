@@ -1,51 +1,51 @@
 # Latest News
--  Five Docked For Illegal Possession Of Firearms
--  Land Rover first delivered to King Charles is heading to auction
--  Phone Snatcher Knocked Down By Car In Kano
--  PSZ: a pedagógus szakma megmaradásához a béreket a duplájára kellene emelni
--  İçişleri Bakanı Ali Yerlikaya duyurdu! İsrail propagandası yapan Sagiv Jehezkel, ülkemizden ayrıldı
--  Akoesticum Ede ging langs de rand van de afgrond, maar heeft weer toekomstperspectief
--  Harskamper slaat 'eindelijk' toe in Dakar Rally
--  Tanzania bans KQ flights between Nairobi and Dar es Salaam
--  Inside the Vietnamese IT Industry: Current Trends and Future Strategies(2)
--  Tesla owner builds his own deployable solar roof for Model Y
--  Research reveals fission-independent compartmentalization of mitochondria during budding yeast division
--  Spotkanie Andrzeja Dudy z Donaldem Tuskiem. Premier: Przywracamy rządy prawa
--  Netanyahu apresenta “orçamento de guerra” para continuar ofensiva em Gaza
--  Borsa günü artıda tamamladı
--  [ŽT] Čia jau nebe „selfius“ į „Tik Toką“ kelti. Mūšio lauke kadyroviečiams ateina tikras košmaras (Video)
--  Gruodį – naujas žiūrimiausias „YouTube“ kanalas Lietuvoje: tarp lyderių – jau ketverius metus
--  A101'de bu hafta yine dev indirim kampanyası! A101'de yağ fiyatları 102 TL birden düştü...
--  Embarrassment befalls Cowboys with historic Wild Card exit
--  جنايات الحلة تحكم بالمؤبد على شقيقين قتلا أختهما بسبب الميراث
--  ارتفاع عدد شهداء غزة إلی 24100 شهيد في اليوم الـ101 للعدوان
--  Group Defends Tunji-Ojo, Denounces Allegations as Baseless
--  Ryan Gosling Had A Funny Reaction When Barbie’s ‘I’m Just Ken’ Scored An Award Win, And The Internet Is Loving It
--  ചരിത്ര നേട്ടവുമായി ഹത്ത അതിർത്തി
--  Mijëra fermerë e bllokojnë Berlinin, ministri i Financave u thotë se s’ka më para
--  Dva mjeseca nakon evakuacije iz Gaze: Porodica stigla u BIH
--  مجموعة إعمار للضيافة تعلن عن تغيير العلامة التجارية لفندق العنوان فاونتن فيوز لتصبح فندق العنوان دبي مول
--  Ankit Saxena murder: Delhi court convicts Muslim girlfriend’s parents and uncle, adjourns hearing on sentence till January 31
--  Félix Auger-Aliassime verslaat Dominic Thiem in nachtelijke vijfsetter op Australian Open
--  جوزي قالي مابتهتميش بنفسك دبسته في 86 ألف جنيه عملية تجميل
--  Rusza kwalifikacja wojskowa. "Nie mówimy o mobilizacji". Kto otrzyma wezwanie?
--  Brussel vreest gevolgen aanvallen Rode Zee in 'komende weken'
--  Wil je als medische wereld postcovid-patiënten echt helpen? Kijk dan verder dan de richtlijnen
--  820 ألف موقع تشتري منهم تذاكر السكة الحديد
--  إيلون ماسك يمكنه أن ينفق مليون دولار يومياً لمدة 673 سنة ‎
--  Kabinet positief over advies voor een gematigde bevolkingsgroei
--  Researchers turn up the heat on flexible temperature sensor development using microwaves
--  النجمان العالميان إيرينا شايك وتيري هنري يتألّقان في الحملة الترويجية لإطلاق النسخة العشرين من معرض الدوحة للمجوهرات والساعات
--  Are the Houthi Red Sea interceptions going to bring about a regional war?
--  French ski star Pinturault to undergo knee surgery next week after Wengen crash
--  Kreatin für mehr Muskelvolumen - was bringt es wirklich?
--  Un navire touché par un missile au large du Yémen
--  Kreatin für mehr Muskelvolumen - was bringt es wirklich?
--  [Fun88, 다방델리의 자랑스러운 후원사로서 팀의 훌륭한 성적을 축하
--  SNAŽAN ZEMLJOTRES POGODIO RUSIJU: Treslo se sve kod Bajkalskog jezera
--  Edin Džeko završio u modricama nakon jučerašnje utakmice
--  AMLO afirma que gobierno asumirá parte del pago de pensiones para “tranquilidad de los empresarios”
--  Ariana DeBose Reacts to That Critics Choice Joke About Her Singing
--  Mauro confirma que ICMS não aumenta em Mato Grosso; ‘ninguém aguenta mais’
--  Armed Forces Day: Akin Alabi pays tribute to fallen heroes
--  العقبة الخاصة ماضية في إزالة الإعتداءات التنظيمية بالمدينة
+-  Soccerladuma | Latest On Swallows Player Standoff
+-  Alzheimer's Breakthrough as Five New Subgroups Identified
+-  Apple’s Vision Pro Preorders Signal a New Era in Mobile Computing
+-  Sri Lanka vs Zimbabwe Live Streaming, Second T20I: When, Where and How to watch Live Score on TV and Online
+-  Namfisa GM appointed to global insurance oversight forum
+-  Family Screams for Hilarious Reason While Watching Murder Show
+-  ADNH and Kempinski forge alliance for Dubai hotel rebranding
+-  India Open 2024 Live Streaming: When, Where and How to Watch Live Score on TV and Online
+-  Lt Gen Hidayat ur Rehman (retd) appointed chief of AJKPSC
+-  A99 closed in both directions after to two-car crash in Wick
+-  مصلحة الضرائب تكرم نجوم التحصيل الالكتروني
+-  ‘RHOP’ star Mia Thornton breaks down after revealing she was sexually assaulted when she was younger: ‘I couldn’t get out’
+-  Apple iPhone 15 offered at rare discount
+-  Donald Trump Loses Vote of His Former Lawyer on Eve of Iowa Caucus
+-  Asda and Tesco join Iceland in cutting cost of Aptamil baby formula
+-  Understanding cold and flu: Causes and prevention
+-  It’s official, Mint’s new film camera is the Rollei 35AF
+-  Delegado confirma prisão de dois suspeitos de assassinarem jovem em Sorriso; corpo ainda não localizado
+-  تتويج بطاقة "لولو تيتانيوم ماستركارد الائتمانية" من بنك مسقط بجائزة عالمية
+-  VIDEO: Captan enfrentamiento con armas de alto poder entre bandas del crimen organizado
+-  10 lieux secrets à Paris : découvrez les bonnes idées de sorties insolites
+-  Diese 8 Reiseziel in Europa sind noch wild und und unberührt
+-  София обича фитнеса
+-  "حساب الشباب" من البنك الوطني العماني يفتح آفاقًا جديدة لجيل المستقبل
+-  Mor el pilot Carles Falcón després del seu accident en el Dakar
+-  Νέο υψηλό δεκαετίας στο Χρηματιστήριο - Στο φίνις κρίθηκε το πρόσημο
+-  BBC's The Traitors causes worldwide searches for flights to Scotland to soar by 55%, with visitors keen to enjoy the show's stunning Highland setting
+-  Përformanca në kampionat, Zhegrova përkrah Mbappe në formacionin e javës
+-  Franz Beckenbauer: So kann man die Trauerfeier live im TV und Livestream sehen
+-  «Оппенгеймер» стал лидером на премии «Выбор критиков-2024»
+-  Remi Tinubu laments death of Nabeeha
+-  אחרי הסיוט בטורקיה: שגיב יחזקאל נחת בישראל
+-  Πιτσαδόρος γέμισε με… περιττώματα την πολυκατοικία - Δείτε βίντεο
+-  Residents in 'shock' after Welsh river turns from dull grey to bright orange - but reason why might surprise you
+-  Winter haircare: maintaining your style with expert tips
+-  Дўстлик саноат шаҳарчасига айланмоқда
+-  NYC Deli sold amid high demand for cafes in Glasgow
+-  جيش الاحتلال ينقل وحدة قتالية من غزة للضفة الغربية
+-  Romania: Protests continue over taxes, subsidies and Ukraine competition
+-  UNICEF ontvangt cheque van bijna 20.000 euro tijdens nieuwjaarsreceptie Oerlemans Plastics
+-  Oti Mabuse fans say 'we gasped' after she's hit with 'illegal' warning
+-  Νέος Κόσμος: Τα κρίσιμα δευτερόλεπτα και τα αναπάντητα ερωτήματα της δολοφονίας Ζαμπούνη
+-  SOUTĚŽ: ‚Literární detektivka.‘ Vyhrajte Hellu, román na stopě české Židovky odsouzené do lágru
+-  Dr. Jessica Leigh Levin Releases Third Book, "BEing When You Grow Up"
+-  북 "고체연료 극초음속"…사드 소용없나
+-  Inició en La Habana venta de entradas para la Feria del Libro
+-  Super League 1: Ξεκινούν οι έλεγχοι στα γήπεδα για κάμερες και ηλεκτρονικό εισιτήριο
+-  Американски брод погоден со проектил во Црвеното Море
+-  Halle: Autofahrer umgeht Straßenblockade von Klimaaktivisten und verletzt Grünen-Politiker und Reporter
+-  Snow and ice covers UK towns as cold blast continues to disrupt travel
