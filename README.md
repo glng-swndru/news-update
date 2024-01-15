@@ -1,11 +1,51 @@
 # Latest News
--  [한화사이언스챌린지 수상자, 덴마크·독일 탐방
--  [與 ‘도덕성’ 차별화 vs 野 ‘계파 안배’
--  [제주개발공사·카카오, 초록우산 어린이재단 기부
--  [한경협, 고교교사 50명 日 파견...경제현장 체험한다
--  [독립파 라이칭더 승리...양안관계·북중밀착 韓외교 시험대
--  [주철현, 김회재·이용주 캠프 관계자 4명 고발
--  [美, 대표단 대만 파견...中 “분리 조장”
--  [“민진당 3연속 집권 성공, 글로벌 자본시장에 호재”
--  [회만 '쏘옥~'…거의 먹고 초밥 차갑다 환불 요구한 손님, 사장은 분통
--  [이영애도 지휘한 ‘신년음악회’ 단골인 ‘이 곡’, 이탈리아에서 연주하면 몰매 맞는다?! [세모금]
+-  ‘We invest in our workforce and their development’
+-  광명시, 5년 연속 ‘2024년 장애인 평생학습도시’ 뽑혀
+-  강병덕 민주당 예비후보, 지지자 1500여명 참석 선거 사무소 개소식 가져
+-  그림판매·경매·구매 플랫폼 ‘큐알아트’, 중견작가 이인재 작가의 ‘들꽃 여인’ 2점 소개
+-  A decade of hospitality elegance
+-  경동대, 네오바이오텍과 지방대학활성화사업 일환 가족기업 협약
+-  구리청소년재단-나청메이커앤드론, 특화사업 활성화 업무협약 체결
+-  부천 ‘주님의 벗 교회’, 심곡3동 취약계층 생필품 꾸러미 후원
+-  포천 관인면 자율방범대, 신규 순찰차량 무사고 안전 기원제 가져
+-  가평문화의집, 청소년동아리 프로그램 참여자 모집
+-  가평 청평면 새마을부녀회, 화재피해·어려운 이웃돕기 성금·품 기탁
+-  포천 영북면 황동영 군, 고사리손 저금통 2년째 기부
+-  [오피셜] 천안시티, 베테랑 미드필더 이광진 영입… 중원 강화 성공
+-  잊힌 토트넘 수비수, 뭐하고 있나 했더니 또 다쳤다… “몇 주 후 복귀”
+-  [오피셜] 중원 강화한 광주, 독일 분데스리가2 출신 최경록 영입
+-  ‘유리몸인데 괜찮아?’...첼시, 새로운 레프트백으로 루크 쇼 낙점
+-  Đại diện Đặng Văn Lâm bình luận gây sốc, công khai chê Nguyễn Filip
+-  Thay cơm bằng 5 loại thực phẩm này, bụng no căng mà mỡ giảm đều
+-  Cầu thủ đắt giá nhất Nhật Bản: Không hiểu ĐT Việt Nam tập luyện thế nào mà cầm bóng hay thế
+-  Giả mạo nhân viên ngân hàng lừa đảo: Thủ đoạn cũ nhưng cách thức ngày càng tinh vi
+-  Vàng SJC sáng đầu tuần rời khỏi mốc 77 triệu đồng/lượng
+-  Bị cho là "thua oan" trước MLee ở "Chị đẹp đạp gió rẽ sóng", Hương Ly nói gì?
+-  Mở tiệc khai Xuân, Pizza Hut “lì xì” loạt deal giảm 50% độc quyền trên ShopeeFood
+-  5 kiểu tóc ngang vai trẻ trung, đáng tham khảo cho dịp Tết 2024
+-  Có gì trong đám cưới kéo dài 10 ngày của Hoàng tử Brunei
+-  Danh tính 4 người tử vong trong vụ cháy nhà tại phố Hàng Lược
+-  Critics Choice Awards 2024: Taraji P. Henson wows in white gown with thigh-high slit as she dazzles on the red carpet
+-  US-Militär wehrt erneut Rakete der Huthi-Rebellen ab
+-  Kongress verzögert Vereidigung des Präsidenten in Guatemala
+-  Terduga Pengancaman Penembakan Anies Baswedan di Kaltim Menyerahkan Diri ke Polisi
+-  'Rat-infested, graffiti-infested sh**hole!' Trump rants about 'horribly run' Washington DC 'where people are being killed' - and threatens to 'take it away' from Mayor Muriel Bowser
+-  Así fue la reacción de la casa tras quedar Catalina eliminada de Gran Hermano
+-  Apa Itu APN Telkomsel dan Cara Settingnya Agar Koneksi Tidak Lemot
+-  ISW: Росія, ймовірно, готує новий наступ, однак не матиме масштабного прориву
+-  كأس آسيا: فوز كبير لإيران على فلسطين
+-  Philippoussis ‘blown away’ by Tsitsipas’ concerning change
+-  Philippoussis ‘blown away’ by Tsitsipas’ concerning change
+-  Australian Open Highlights: Roberto Carballes Baena v Hugo Gaston
+-  Australian Open Highlights: Roberto Carballes Baena v Hugo Gaston
+-  পাওয়া যাচ্ছে না ৯৫০ গাড়ির নথি
+-  JA Nigeria, KPMG empower students
+-  A record 420,000 patients wait more than 12 hours in A&E: The number facing huge delays rises 50-fold since 2019
+-  A record 420,000 patients wait more than 12 hours in A&E: The number facing huge delays rises 50-fold since 2019
+-  Gauff inledde med kross: "Mår bra"
+-  Miss Colorado makes history as she becomes first serving US soldier EVER to be crowned Miss America: Air Force pilot, 22, training to be Top Gun fighter pilot after graduating from Harvard
+-  Σουδάν: Τουλάχιστον 7 άμαχοι νεκροί σε βομβαρδισμούς με στόχο χωριό στον Λευκό Νείλο
+-  Rachel Brosnahan takes the plunge in VERY low-cut black dress at the star-studded 2024 Annual Critics Choice Awards in Los Angeles
+-  انطلاق سيرك الديموقراطية: الأميركيون لا يختارون رئيسهم!
+-  Viceministro de la Juventud visita Valledupar y se compromete con la margen derecha del río Guatapurí
+-  中금리동결에 위안화 강세…환율, 1320원 터치 후 하회[외환분석]
