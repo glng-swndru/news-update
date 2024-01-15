@@ -1,51 +1,11 @@
 # Latest News
--  Andrea Santangelo, rinforzo di spessore per Pineto
--  Nicola nuovo allenatore dell'Empoli, Andreazzoli esonerato: è ufficiale
--  Under 16 Regionali: Collegno Paradiso-Sisport 3-4
--  Calligaris dal Psg alla Juve Women: ufficiale il prestito fino a giugno 2024
--  Ortona ingaggia l'opposto Trifon Lapkov
--  Drogenfund in Diskothek - Ermittlungen gegen ein Drittel der Feiernden
--  Schwarz-Rot präsentiert Kabinett
--  Feldmann zieht vor Verfassungsgericht
--  Lohn im Gefängnis auf dem Prüfstand
--  Schwarz-Rot präsentiert Kabinett
--  ‘Odia’ gets first priority at Ayodhya Dham Junction
--  Security guard found shot at Ondangwa
--  Osmani: Histeri e paparë për avancimin e shqiptarëve në diplomaci
--  It was meant to be the happiest day of my life – but I knew something was wrong the minute my happy boy was born
--  Jesse Lingard’s new agents make immediate move as midfielder ‘offered to Portland Timbers on free transfer’
--  8 फरवरी का चुनाव स्थगित नहीं किया जा सकता- पाक चुनाव आयोग
--  Ukrajinac (44) pao u Hrvatskoj: ‘Probušio sam gumu, pa slomio ključ... Za sve je kriv Roma Roma!‘
--  Президент Швейцарии: Зеленский просит организовать мирный саммит по Украине
--  Det mener analytikerne om novo-konkurrenten
--  Det mener analytikerne om novo-konkurrenten
--  Bioheal CBD Gummies [Side Effects Exposed] Bioheal Blood CBD Gummies Today’s
--  Nagano Lean Body Tonic Reviews 2024 ALERT! (Shocking Customer Reviews Exposed)
--  Taller mecánico se incendió la noche de este domingo en Caracas
--  Ministra propone abrir la puerta a farmacéuticas cuando demanden la nulidad de patentes de otras empresas
--  Los rodajes audiovisuales generan 103 millones en Tenerife en 2023
--  Daix. La maire a détaillé les travaux du périscolaire et les projets pour 2024
--  Ilan Chester se ve obligado a interrumpir una presentación debido a una baja de tensión.
--  Nisja e sesionit të ri parlamentar, OSBE: Presim një Kuvend funksional. Koha deri në zgjedhjet e 2025 është afër
--  कैश कलेक्शन एजेंट से लाखों की लूट, आरोपी गिरफ्तार
--  "Democracia mostra sua força", diz Alckmin após posse conturbada de Arévalo na Guatemala
--  VeloBank coraz bliżej sprzedaży
--  Wiceszef KE: będziemy w dalszym ciągu wspierać gospodarkę Ukrainy, pamiętając jednocześnie o obawach polskich rolników
--  Minister rolnictwa rozmawiał z wiceszefem KE. Wyraził obawy polskich rolników wz. z ukraińskim importem
--  Anthony Joshua V Francis Ngannou Date Confirmed
--  Šebalj i Vidaković nakon osmog mjesta u osmoj etapi zauzeli 12. poziciju ukupnog poretka u kategoriji Classic
--  Ojos en Alerta: detienen a tres ladrones y recuperan lo robado
--  Eddy Gordo será el primer personaje DLC de Tekken 8
--  Seeing red! As celebs and street style stars step out in the vivid shade, six fresh ways to wear one of the season's leading color trends
--  Isa P. y Asraf Beno podrían estar esperando un bebé
--  Cresc prețurile în capitala Franței înainte de Jocurile Olimpice 2024. La Muzeul Luvru turiștii dau cu 5 euro mai mult pe bilet
--  حزب العمال البريطاني: نتجنب التصعيد في الشرق الأوسط ويجب ضبط النفس
--  السيادة السوداني: نتوقع من الدول الأفريقية التي استقبلت حميدتي احترام سيادة السودان
--  تحقيق لموقع إنترسبت يكشف تعمد الاحتلال استهداف الصحفي وائل الدحدوح وزميله سامر أبو دقة
--  فتاة تكتشف أمرا كارثيا يوم زفافها.. عريسها كسر فرحتها
--  "تسلل إلى غزة".. جيش الاحتلال يقتل بالخطأ إسرائيليا ظنوه فلسطينيًا
--  الجزائر تبحث عن فوزها الأول على أنجولا بكأس الأمم الإفريقية (إحصائيات)
--  3 أبراج مكتوب عليها الشقى.. لا تنتظر ثروة أو تحسنا ماديا
--  البنتاجون: وزير الدفاع الأمريكي يغادر المستشفى بعد العلاج من السرطان
--  بعد نشر فيديو أمس.. المقاومة تعلن مصير اثنين من الأسرى لديها في غزة
--  قرار جديد من القضاء بشأن الراقصة سما المصري
+-  Ceny ropy naftowej w dół
+-  حكومة الوحدة الوطنية تحدد الجهات الأمنية المخولة بالتواجد في المنافذ الحدودية .
+-  911 caller falsely claims White House fire after series of swatting incidents
+-  FIFA The Best Awards: Latest news and updates as Lionel Messi, Erling Haaland and Kylian Mbappe battle it out for the men's award while Spain's Jenni Hermoso is nominated for women's award
+-  Sz. Bíró Zoltán: Az orbáni retorika arra épül, hogy Oroszország nem veszíthet
+-  Maduro paró su discurso tras atragantarse con un buche de “manzanilla piche”… que hasta “lo mareó” (VIDEO)
+-  Rosalia and her pal Hunter Schafer of Euphoria fame grab smoothies before furniture shopping in Los Angeles
+-  PD lindi te studentët, shkruan ‘epitafin’ te dritarja e Berishës
+-  Pokemon Scarlet & Violet players devise “genius” Smeargle trick
+-  Best Holger 556 Warzone loadout: Class setup, Attachments, Perks, & more
