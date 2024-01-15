@@ -1,11 +1,51 @@
 # Latest News
--  Tracking molecules at turbo speed
--  The new Abarth 600e will have a serious sting in its tail
--  US company's lunar lander will burn up in Earth's atmosphere after failed moonshot
--  Porsche is finally unveiling the all-electric Macan EV this month – Here’s what to expect
--  EU debates 2040 milestone towards carbon-neutral future
--  UPDATE: Walker got lost in Cairngorms in sub-zero conditions after dropping compass
--  Kickoff | Rising star opens up on pressure at Chiefs
--  Dogwifhat Up 350% in a Week, Which Meme Coins Could 100x Next?
--  Minimum wage hike on July 1 will be higher than inflation; Minister wants to do more
--  Mercedes chief Wolff signs new contract
+-  Five Docked For Illegal Possession Of Firearms
+-  Land Rover first delivered to King Charles is heading to auction
+-  Phone Snatcher Knocked Down By Car In Kano
+-  PSZ: a pedagógus szakma megmaradásához a béreket a duplájára kellene emelni
+-  İçişleri Bakanı Ali Yerlikaya duyurdu! İsrail propagandası yapan Sagiv Jehezkel, ülkemizden ayrıldı
+-  Akoesticum Ede ging langs de rand van de afgrond, maar heeft weer toekomstperspectief
+-  Harskamper slaat 'eindelijk' toe in Dakar Rally
+-  Tanzania bans KQ flights between Nairobi and Dar es Salaam
+-  Inside the Vietnamese IT Industry: Current Trends and Future Strategies(2)
+-  Tesla owner builds his own deployable solar roof for Model Y
+-  Research reveals fission-independent compartmentalization of mitochondria during budding yeast division
+-  Spotkanie Andrzeja Dudy z Donaldem Tuskiem. Premier: Przywracamy rządy prawa
+-  Netanyahu apresenta “orçamento de guerra” para continuar ofensiva em Gaza
+-  Borsa günü artıda tamamladı
+-  [ŽT] Čia jau nebe „selfius“ į „Tik Toką“ kelti. Mūšio lauke kadyroviečiams ateina tikras košmaras (Video)
+-  Gruodį – naujas žiūrimiausias „YouTube“ kanalas Lietuvoje: tarp lyderių – jau ketverius metus
+-  A101'de bu hafta yine dev indirim kampanyası! A101'de yağ fiyatları 102 TL birden düştü...
+-  Embarrassment befalls Cowboys with historic Wild Card exit
+-  جنايات الحلة تحكم بالمؤبد على شقيقين قتلا أختهما بسبب الميراث
+-  ارتفاع عدد شهداء غزة إلی 24100 شهيد في اليوم الـ101 للعدوان
+-  Group Defends Tunji-Ojo, Denounces Allegations as Baseless
+-  Ryan Gosling Had A Funny Reaction When Barbie’s ‘I’m Just Ken’ Scored An Award Win, And The Internet Is Loving It
+-  ചരിത്ര നേട്ടവുമായി ഹത്ത അതിർത്തി
+-  Mijëra fermerë e bllokojnë Berlinin, ministri i Financave u thotë se s’ka më para
+-  Dva mjeseca nakon evakuacije iz Gaze: Porodica stigla u BIH
+-  مجموعة إعمار للضيافة تعلن عن تغيير العلامة التجارية لفندق العنوان فاونتن فيوز لتصبح فندق العنوان دبي مول
+-  Ankit Saxena murder: Delhi court convicts Muslim girlfriend’s parents and uncle, adjourns hearing on sentence till January 31
+-  Félix Auger-Aliassime verslaat Dominic Thiem in nachtelijke vijfsetter op Australian Open
+-  جوزي قالي مابتهتميش بنفسك دبسته في 86 ألف جنيه عملية تجميل
+-  Rusza kwalifikacja wojskowa. "Nie mówimy o mobilizacji". Kto otrzyma wezwanie?
+-  Brussel vreest gevolgen aanvallen Rode Zee in 'komende weken'
+-  Wil je als medische wereld postcovid-patiënten echt helpen? Kijk dan verder dan de richtlijnen
+-  820 ألف موقع تشتري منهم تذاكر السكة الحديد
+-  إيلون ماسك يمكنه أن ينفق مليون دولار يومياً لمدة 673 سنة ‎
+-  Kabinet positief over advies voor een gematigde bevolkingsgroei
+-  Researchers turn up the heat on flexible temperature sensor development using microwaves
+-  النجمان العالميان إيرينا شايك وتيري هنري يتألّقان في الحملة الترويجية لإطلاق النسخة العشرين من معرض الدوحة للمجوهرات والساعات
+-  Are the Houthi Red Sea interceptions going to bring about a regional war?
+-  French ski star Pinturault to undergo knee surgery next week after Wengen crash
+-  Kreatin für mehr Muskelvolumen - was bringt es wirklich?
+-  Un navire touché par un missile au large du Yémen
+-  Kreatin für mehr Muskelvolumen - was bringt es wirklich?
+-  [Fun88, 다방델리의 자랑스러운 후원사로서 팀의 훌륭한 성적을 축하
+-  SNAŽAN ZEMLJOTRES POGODIO RUSIJU: Treslo se sve kod Bajkalskog jezera
+-  Edin Džeko završio u modricama nakon jučerašnje utakmice
+-  AMLO afirma que gobierno asumirá parte del pago de pensiones para “tranquilidad de los empresarios”
+-  Ariana DeBose Reacts to That Critics Choice Joke About Her Singing
+-  Mauro confirma que ICMS não aumenta em Mato Grosso; ‘ninguém aguenta mais’
+-  Armed Forces Day: Akin Alabi pays tribute to fallen heroes
+-  العقبة الخاصة ماضية في إزالة الإعتداءات التنظيمية بالمدينة
