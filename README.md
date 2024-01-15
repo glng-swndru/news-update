@@ -1,51 +1,51 @@
 # Latest News
--  لماذا طرحت المملكة منتجات الإقامة المميزة؟
--  الكشف عن سر رفض الأطفال تناول الخضراوات!
--  تشحن في 10 دقائق.. تعرف على مميزات بطارية الحالة الصلبة الجديدة
--  IMF: Yapay zeka işlerin yüzde 40'ını etkileyecek
--  MHP 55 adayını daha açıkladı
--  MHP, 3 il ve 52 ilçenin daha belediye başkan adaylarını açıkladı
--  Eerste Kamer in debat over Spreidingswet – kan de VVD-fractie zich doof houden voor hartenkreten uit eigen kring?
--  ILT: drinkwatertekort dreigt, provincies moeten in actie komen
--  Vorige week duizend asielaanvragen, meer dan een jaar geleden
--  وكلاء ومواطنون: تمن الحصة يباع علف للحيوانات وباعة حبوب ..هناك عمليات تلاعب(فيديو)
--  [Watch] Prannoy Roy Returns With New Venture deKoder
--  „Það er að verða til stór hópur af fullorðnu fólki í samfélaginu sem er orðið nær ósjálfbjarga og kann ekki að takast á við lífið“
--  Batmanlı Yunus Emre Konak'ın İngiltere Premier Lig'e uzanan başarı hikayesi
--  Tötungsdelikt in Reichenbach: Opfer wird obduziert
--  Zu wenig Pflegekräfte - Problem in Kliniken soll zunehmen
--  Plauener Tourist-Information lädt zur Entdeckung des Schlosshanges ein
--  Deutsche Wirtschaft im vergangenen Jahr geschrumpft
--  My daughter was bullied for not having the right water bottle – so I splashed out and got her $35 Stanley
--  Sky: Eberl soll neuer Sportvorstand beim FC Bayern werden
--  Erstrunden-Aus für deutsches Herren-Trio in Melbourne
--  [전남대 조경아·이준행교수, 면역 자극 통해 노화 방지 증명
--  [“우리집 어쩐지 안팔리더라” 전국 집값 반 년 만에 꺾였다 [부동산360]
--  [이한준 LH사장, 인천계양·인천검단 현장 점검
--  [포스코이앤씨 “촉진2-1구역에 부산 최초 ‘오티에르’ 적용”
--  [고지혈증 막으려면 밥에 ‘OO’ 넣으세요 [식탐]
--  [교보증권, 지난해 영업익 830억…전년비 60.7% ↑
--  [韓日, 北 미사일 경보정보 공유 불구 사거리 분석 차이 왜?
--  [이상일 용인시장, “반도체 경쟁력 강화 위해선 경강선 연장 등 교통 인프라 확충돼야”
--  [“보복운전 억울” 호소한 이경, 경찰 2명 고소…“허위사실 보고해”
--  [‘으리으리 사옥’ YG, 진짜 누구 때문에 돈 벌었나 봤더니…[투자360]
--  [故이예람 중사 사망 은폐 혐의 대대장 1심 무죄…유가족 분노에 아수라장
--  [‘한국의 지방대통령’ 이상일 용인시장의 영웅기(英雄记) 외전
--  [우진엔텍 '상단 초과' 5300원 확정…24일 코스닥 상장 [투자360]
--  [韓 증시 ‘9일 만 반등’할 때 日 증시 ‘34년 만 최고’…닛케이, 한때 3만6000 돌파 [투자360]
--  [“박수홍만 법인카드 못 쓰게 했다…가족들이 더 써야 하니까”
--  [<신제품·신기술>코웨이, 스스로케어 비데 ‘리모트·프라임’ 2종
--  [<신제품·신기술>보령컨슈머, 복용편의 ‘겔포스엠 스틱형’ 출시
--  [여수시, 남해안 거점 국제해양관광휴양도시 본격화
--  [이병선 속초시장의 7가지 약속…미래 100년 웅대한 로드맵 제시
--  [속초시, 로컬형 도시매체 ‘문화나름집’ 추진
--  [경기도 초·중등학교 교육과정 총론 개정 고시
--  [“지배구조 개편에 딜 기회…PEF 세컨더리도 활발”[M&A 2024①]
--  [최대호 안양시장 “청년 주거비 부담 덜고 안정적 주거환경 조성”
--  [서갑원 전 의원, 총선 1호 공약 발표 기자회견
--  [[단독]“올해보다 더 크게”…정기선 HD현대 부회장, 내년 CES 벌써 ‘찜’했다
--  [광주교대 ‘자기표절’ 의혹 교수…“연구윤리위 임용취소 의견”
--  [순천검찰, 총선 선거사범 전담수사반 편성
--  ["이재용도 탐냈는데…" 700만원 넘는 카메라, 결국 '몸값' 낮췄다
--  [민주당, ‘광주 서구을’ 등 탈당·현역 불출마지역…“전략선거구 지정”
--  [한미그룹, “OCI그룹과 통합, 무산 없이 추진”
+-  A mother and daughter die in the fire in Pale, father saves two children
+-  Robert Irwin breakdances in campy all-singing all-dancing first-look trailer for the new season of I'm a Celebrity… Get Me Out of Here!
+-  Fighter Trailer: Hrithik Roshan, Deepika Padukone, Anil Kapoor and the team of Air Force officers showcase bravery, thrill in glorious cinematic glimpse, watch
+-  Katrina Kaif charms us all in regal Sabyasachi lehenga for Ira Khan and Nupur Shikhare's wedding reception
+-  Nupur Shikhare shares heart-warming pictures with bride Ira Khan after wedding reception; see post
+-  Fighter Promo: 5 Dialogues which will evoke the Indian within you
+-  Adhyayan Suman to share screen with Miss Universe Diva, Divita Rai in a film set in 90's era
+-  Fighter trailer launch: Siddharth Anand ADMITS Hrithik Roshan-Deepika Padukone film was "Not easy"; says "It's a team effort, not a one-man show"
+-  Sonam Kapoor is imparting a sense of spring even in winters by wearing her red floral Anarkali
+-  Ayushmann Khurrana receives special invitation for historic Ram Mandir Pran Pratishtha event in Ayodhya
+-  Kurtley Beale arrives at court for sexual assault trial as troubled Wallabies star faces hearing over alleged incident at Bondi Beach hotel
+-  One in five now say goodbye to their loved ones without a service as funeral costs more than double over 20 years - while map reveals the areas where they are most expensive
+-  New Lease on Life at 49: Kiran Kumar’s Journey to Recovery with a Complex Heart Transplant at BGS Gleneagles
+-  Critics Choice Awards viewers left in hysterics by 'confused' Cillian Murphy as excitable Robert Downey Jr plants kisses on him after Best Supporting Actor win
+-  Romantic art to Football frenzy: What's in store for travellers in Germany in 2024
+-  Delays to NorthLink ferries
+-  Preise für Agrarprodukte wie Milch und Getreide gesunken
+-  Healthcare students can receive $12k subsidy
+-  김천 개령면 삼흥플랜트 희망나눔 캠페인 성금 300만원 기탁
+-  경북 영천보현산별빛축제, 6년 연속 경북도 우수 축제 선정
+-  남자는 군인, 여자는 카페서 논다? 'AI가 그린 한국남녀'
+-  영주시, 미취업·미창업 청년 어학·자격시험 응시료 최대 20만원 지원
+-  [속보]크렘린궁 "푸틴 방북 조만간 이뤄지길 희망…北최선희 만남 배제 안해"
+-  북, 고체연료 사용한 극초음속미사일 개발 주장…긴장 수위 높아진 한반도
+-  정부, 북한의 미사일 도발에 '즉각, 강력히, 끝까지' 대응 원칙 천명
+-  반도체 수도권 투자 쏠림 가속화… "지역 위한 특단의 대책 내놔야"
+-  故이예람 중사 '2차 가해' 혐의 중대장 실형…대대장은 무죄
+-  전청조 "범행에 큰 역할 한 사람 '경호실장 역할' 이모씨와 남현희"
+-  MagicCube Partners with Shift4 to Offer Android Tap-to-Pay Solution
+-  Manoj Jarange to launch indefinite fast in Mumbai from Jan 26
+-  Punjab court grants bail to Congress MLA Sukhpal Khaira in criminal case
+-  'We Have Our Own Voice': BBC Presenter Skewers Minister Over UK's Lack Of Action In Gaza
+-  India is a $10 trillion economy in making, says WEF president Borge Brende
+-  Newly appointed president Arevalo promises to rescue Guatemala from corruption, impunity
+-  Abarth y Stellantis Motorsport crean su bestia eléctrica
+-  شاداب خان کی 3 دن میں طے پانے والی شادی کا دلچسپ قصہ
+-  Пловдивско семейство вдигна кърджалийската пожарна на крак
+-  Fubara: I Want To Be Remembered For Good Governance
+-  Saltburn’s Rosamund Pike shares new details of ‘messed up face’ after skiing accident
+-  Залужны пацвердзіў збіццё расійскага звышкаштоўнага самалёта над Азоўскім морам
+-  Flavours On Fire: Unveiling The Best 6 Ikan Bakar Spots In KL
+-  Bakan Şimşek'ten kararlılık mesajı
+-  Dara Antik Kenti'nde içme suyu kanalı bulundu!
+-  [오리온, 6000억 투입해 레고켐바이오 최대주주 된다
+-  [임윤아, ‘느낌 아니까’ 주얼리 모델로 저스트 매칭
+-  ['정준영 단톡방' 최종훈, 복귀 움직임…日 커뮤니티에 '인사'
+-  [롯데케미칼, 파키스탄 법인 매각 무산…“사업 포트폴리오 고도화 계속 추진”
+-  [“‘몸값 700억’ 손흥민 보다 긴장했다” 그라운드 밖 수호신…누군가 했더니
+-  '집단성폭행' 최종훈, 연예계 복귀?…日 팬 커뮤니티에 "5년 만에 인사드린다"
+-  Brit woman, 76, drowns after disappearing under a rogue wave while swimming off Costa Rica beach
