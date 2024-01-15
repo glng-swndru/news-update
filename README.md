@@ -1,11 +1,51 @@
 # Latest News
--  Dampier Salt agrees to sale of Lake Macleod operation to Leichhardt
--  لأول مرة.. جوارديولا ينال جائزة الأفضل
--  अमेरिका में विमान हादसा, पायलट समेत तीन लोगों की मौत
--  ‘손없이왕’이라니?, 이젠 손흥민 있어도 ‘이강인 왕’이다[스한 이슈人]
--  비트코인 전일 급락세 끊고 1.16% 상승 ... 4만3000 달러 회복
--  삼성 세 모녀, 여성 주식부호 '1~3위' ... LG·신세계·한미약품 모녀들 10위 내 포진
--  애플, 中서 아이폰 가격 5% 인하 ... 주가 약세로 MS에 시총 추월당해
--  Разрешувањето на Беса Адеми в среда пред Судскиот совет
--  BRUTALNO SUOČAVANJE JANJUŠA I ANELI! Zauvek je otpisao pred celom Elitom i ponizio: "Ti si takvo..."
--  北 김정은 "헌법에 '대한민국 제1적대국·불변의 주적' 명기해야"
+-  Arsenal legend Thierry Henry aims dig at Tottenham at FIFA Best Awards
+-  Thời tiết hôm nay 16-1: Bắc Bộ mưa ẩm, Nam Bộ nắng hanh
+-  Hajduk je poseban, jedinstven, a to se najbolje vidi po jednom detalju na pripremama u Umagu
+-  Moneda salvadoreña pierde valor
+-  "الخضر" يتعادلون أمام أنغولا في أول لقاء بـالـ"كان"
+-  احتفاء واسع بكشف أثري.. هل ينبش الإسرائيليون عن إثباتات لحق مزعوم في بلاد الحرمين؟
+-  קשה לצפייה: תלמידת תיכון מכה מורה בהתקף פסיכוטי ושולחת אותה לאשפוז
+-  הסלעים הכדוריים שסגדו להם במשך דורות התגלו כמשהו אחר לגמרי
+-  ארוסי ואני עשינו שלישייה עם חברה לפני החתונה - ואז קרה הנורא מכל
+-  "المقاومة الوطنية" تعلن استهداف زورق للاحتلال في بحر مدينة غزة
+-  الحرس الثوري الإيراني يتبنى قصف أربيل بصواريخ باليستية
+-  اشتباكات على الحدود المصرية الفلسطينية
+-  Kidnappers of Abuja estate residents reportedly kill 2 more victims, raise ransom to N700m
+-  Kickoff | Algeria denied victory in AFCON opener by Angola
+-  Chaïbi regrette après le nul de l’Algérie face à l’Angola
+-  [태권도 검은띠…현역 공군장교, ‘미스 아메리카’ 첫 우승
+-  [[속보] 김정은 “‘전쟁시 대한민국 완전 점령해 공화국 편입’ 헌법 반영”
+-  [롯데百, 소믈리에가 선정한 ‘4색 와인’ 추천
+-  [경기도, ‘수원 정씨일가’ 등 전세사기 특별점검…35명 수사의뢰
+-  [경기도, 지방세 사후관리 조사원 제도…355억 징수
+-  [부산경찰청 “이재명 피습현장 물청소? 증거인멸 시도 아냐”
+-  [커피 사러 편의점 들어갔다가…13억 ‘잭팟’, 그 ‘비결’ 들어보니
+-  [분당신도시 정비 어떻게 진행되나
+-  [이낙연 추진 ‘새로운 미래’ 창당 발기인대회…제3지대 빅텐트 급물살
+-  [‘끝까지 간다’…성남시, 전문세원관리반 현장 투입
+-  [[속보] 이란 "이라크내 모사드 첩보본부 미사일로 파괴"
+-  Presidente de Venezuela denunció intentos golpistas y de asesinatos
+-  СМИ: при ударах по иракскому Эбилю граждане и объекты США не пострадали
+-  Duplican los más ricos su fortuna mientras la pobreza crece
+-  “나만 돈 없나, 벤츠·BMW도 싫다네”…한국서도 이車 사야 폼난다? [최기성의 허브車]
+-  V. Guimarães-Arouca, 2-1 (destaques)
+-  كأس أمم إفريقيا-2023: الجزائر تتعادل أمام أنغولا (1-1)
+-  ملف جمعية الخروب وشباب باتنة: اعتماد خسارة الفريقين ولقاءان دون جمهور
+-  «نسور قرطاج» يطمحون لتحقيق انطلاقة قوية من بوابة ناميبيا
+-  الجوية الجزائرية تستئجر ثلاث طائرات
+-  كل المنتخبات المشاركة تبحث عن الذهاب بعيدا في الدورة
+-  الفريق أول شنقريحة يؤكد وفاء الجزائر لمبادئها تجاه القضايا العادلة ويؤكد: على الوطنيين الالتفاف حول مشروع الجزائر الجديدة
+-  فضاء جديد لوزارة البريد
+-  بواكي مدينة هادئة تعشق الساحرة المستديرة
+-  أصداء من بواكي
+-  Messi gana su tercer premio The Best
+-  Gonxhja tregon pse dha dorëheqjen si nënkryetar bashkie i Tiranës në 2002-in
+-  Presidente do ABC diz que insolvência da SAD não afeta atividade do clube
+-  RADIO U PROSVETI, ŽELEO DA PROMENI POSAO Evo ko je bio Aleksandar Ivković iz "Potere" koji je umro u 48. godini
+-  ABC: восемь объектов у консульства США в Эрбиле подверглись атакам ВС Ирана
+-  Chargers complete interview with Michigan's Jim Harbaugh for head coach opening
+-  [날씨] 아침 출근길 반짝 추위 이어져…낮부터 차츰 풀려
+-  Amppareille hopeat kaulaan jumbofinaalista
+-  Karsai Dániel jó híreket ígér: Novák Katalinnál járt, és még viccelődni is volt kedve
+-  Javier Milei se reunirá con la directora del FMI en el Foro de Davos
