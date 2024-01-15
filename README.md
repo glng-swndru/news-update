@@ -1,51 +1,51 @@
 # Latest News
--  Gazze kasapları Netanyahu ve Savunma Bakanı Gallant birbiriyle konuşmuyor
--  Okan Buruk hakeme yüklendi: 'VAR'ı sorgulamak lazım'
--  İletişim Başkanlığı Ayasofya iddialarını yalanladı: Müzeye dönüştürülmesi söz konusu değildir
--  Irak ve Suriye'nin kuzeyinde yeni hava harekatları: 23 hedef yerle bir edildi
--  Ukko-Pekka Luukkonen pysäytti Sharksin – kauden toinen nollapeli
--  Vocera del Enfen pide no descuidar prevención a pesar de anuncios de El Niño costero débil
--  النشامى يتخطى ماليزيا برباعية
--  14 صاروخا أطلقت من غزة باتجاه سديروت
--  مستشفى سوروكا: استقبلنا 15 جنديا مصابا من غزة
--  Tagadta bűnösségét a Viking Sigyn testvérhajójának kapitánya
--  (المقاومة الوطنية) تستهدف زورقا إسرائيليا في بحر مدينة غزة
--  Új főszerkesztő irányítja az atv.hu-t
--  Pep Guardiola y Sarina Wiegmann ganan los 'The Best' a los mejores entrenadores del año
--  Team Dimensione Nuoto: segnali importanti dalla della Coppa “Fulvio Albanese”
--  Dorinel Munteanu a auzit ce a spus Adrian Mutu și a dat un mesaj în direct
--  حقيقة سيخ الشاورما الاردني المسروق ! - فيديو
--  Estas son las noticias más leídas este lunes en Diario de Pontevedra
--  Pet članica EU zatražilo sankcije za Ukrajinu
--  Sumqayıtda partlayış necə baş verib?
--  Ecdad Ne Demek: Türk Tarihindeki Önemi ve Anlamı
--  Ολυμπιακός – Κολοσσός 71-52: Πιέστηκε για τρεις περιόδους πριν από τους «τελικούς» (ΒΑΘΜΟΛΟΓΙΑ)
--  Bay Area man among victims in Arizona hot air balloon crash
--  Liveticker: Ukraine-Krieg aktuell – alle News (Montag, 15.01.2024)
--  Täter soll Kassiererin erschossen haben - Schüsse bei Aldi: Zwei Tote!
--  التعديل الحكومي المرتقب.. أسامة كمال: الاحتمالات الأكبر ترجح بقاء مدبولي في منصبه
--  Onbinlerce çiftçi traktörleriyle Berlin’i kuşattı: Direne direne kazanacağız
--  Islanđani u očaju: Ovaj grad je gotov
--  Fly-tipping fine more than doubles in ‘important step’ by Scottish Government
--  Von Cramon in Kosovo: Serbs complain of discrimination
--  Baby’tje had negen gebroken ribben en gebroken sleutelbeen: ‘Er is fors hard geknepen’
--  Okan Buruk'tan hakem eleştirisi! "Her yerde farklı kararlar veriliyor"
--  Gazze'de bir gazeteci daha katledildi
--  Muslera: En büyük favoriyiz
--  Ürdün'den dünyaya 'İsrail'e baskı yapın' çağrısı
--  Irak ve Suriye'nin kuzeyine operasyon... Hedefler bir bir imha edildi
--  Local clinic bridging gaps in specialized dental care
--  Kayserispor'dan hakem tepkisi! "Endişeye mahal yok endişeye"
--  F1 - Ανακοίνωσε και η Red Bull Racing ημερομηνία αποκαλυπτηρίων (vid)
--  الإعلام ودعم الفعاليات الثقافية.. مائدة مستديرة بالمجلس الأعلى للثقافة الأربعاء المقبل
--  الموت يغيّب الفنان التشكيلي هشام بنجابي
--  Serdar Ortaç'tan üzen haber: Bacağımı kesecekler! Meğer o hastalığın pençesindeymiş
--  لوفتهانزا تستهدف توظيف 13 ألف موظف خلال العام الحالي
--  Rusi su raketirali selo New York u Ukrajini: Troje je ozlijeđenih, petero ljudi je pod ruševinama
--  Staða eldgossins: Eitt virkt gosop
--  Etibar Mirzəyev yenidən hadisə yerinə getdi
--  Masaya Okugawa wird für Schalke fit: „Ich möchte dem HSV sofort helfen“ | Sport
--  Fiji Business Briefs: Fiji Airways, FNPF, Pleass
--  Mejora la salud del maestro Egidio Cuadrado: clínica emitió un comunicado
--  Priča o nepoznatom Zadru: ‘Beetlejuice‘ iz Sv. Frane, zazidani Donat, Gospa od Fritula i crkva u kojoj se toči vino
--  Fake 911 report of White House fire triggers emergency
+-  Tuchel: Größere Wertschätzung in England
+-  Guardiola und Wiegmann bei FIFA-Wahl ausgezeichnet
+-  Ana Castela e Gustavo Mioto anunciam término de namoro novamente
+-  Motociclista murió tras quedar en medio de una persecución policial en Las Heras
+-  Biella Rugby: tutti i risultati del weekend gialloverde
+-  Guardiola miglior allenatore 2023, battuto Inzaghi: “Solo io so quanto..."
+-  News24 | Man allegedly stabs grandfather to death, injures dad during altercation
+-  Oro per Martina Banchi alla 63ª edizione dei Campionati Nazionali Universitari Invernali
+-  Für Dienstag wurden Schulschließungen in Colorado inmitten einer gefährlichen arktischen Kaltfront gemeldet
+-  A ausência de Lula e Haddad no Fórum Econômico Mundial
+-  كلمة الرئيس المنتدب للمجلس الأعلى للسلطة القضائية بمناسبة افتتاح السنة القضائية لسنة 2024
+-  الأوقاف تحدد تكلفة مصاريف الحج لموسم 1445ه
+-  عموتة يقود الأردن لانتصار ساحق على ماليزيا في كأس آسيا
+-  أسعار اللحوم الحمراء تلهب جيوب المغاربة بعد تعليق الحكومة دعم استيراد الأبقار والأغنام
+-  الأمثال العامية بتطوان... (502)
+-  بسبب التلاعب في التذاكر.. المنظمون يعلنون عن "إجراءات" بعد انخفاض الحضور الجماهير في كأس إفريقيا
+-  إحداث خلية تنسيق لاحتواء أزمة الأمتعة بمطار الدار البيضاء
+-  الأمن يوقف مُغتصِب صاحبة محل للحلاقة تحت التهديد بالسلاح
+-  الموسم الفلاحي.. معدل التساقطات المطرية بلغ لحد الآن 77 مليمترا مسجلا تراجعا ب44 بالمائة مقارنة مع نفس الفترة من السنة الماضية
+-  الركراكي يعقد غدا ندوة صحافية بحضور هذا اللاعب
+-  غينيا تحرج الكاميرون في كأس إفريقيا
+-  انتصار جنيف و... التزاماته
+-  الملك يهنئ الملك فريدريك العاشر بمناسبة تتويجه عاهلا لمملكة الدنمارك
+-  Irak ve Suriye'nin kuzeyine hava harekatı: 23 hedef imha edildi
+-  Your pet can be part of custody battles in B.C. following law reforms
+-  Стражът на английския женски национален отбор е номер 1 в света на своя пост
+-  تتويج وحيد.. إحصائيات منتخب السنغال خلال مشاركاته في كأس الأمم الأفريقية
+-  "ذا بيست".. بيب جوارديولا يفوز بجائزة أفضل مدرب في العام
+-  أوصت بإعادة تسعير الأراضي.. "زراعة النواب" تشن هجومًا حادًا على "الأوقاف"
+-  هذا ما يحدث لجسم ودماغ المرأة عند ممارسة العلاقة الحميمية
+-  "بينهم ميسي وهالاند".. أفضل 11 لاعبا خلال موسم 2023
+-  أرباح بالملايين من "الزيت والسكر" المُدعم.. نص تحقيقات قضية "فساد التموين" - (مستند)
+-  مستشفى سوروكا: استقبال 15 جنديا إسرائيليا جراء المعارك في قطاع غزة اليوم
+-  "القومى للمرأة" يهنئ الدكتورة عبلة الألفي لحصولها على الزمالة الفخرية ببريطانيا
+-  أمريكا تُطالب سفنها التجارية بعدم المرور بالقرب من مناطق الحوثيين
+-  مستوطنون يشعلون النار في مركبات بالضفة الغربية ويحاولون إحراق منازل برام الله
+-  بعد إعلان السيطرة عليها.. المقاومة تقصف إسرائيل بوابل صواريخ من بيت حانون
+-  וושינגטון - דטרויט 14:8 (רבע 1)
+-  Terör devleti İsrail çark etti: Gazze Filistinliler tarafından yönetilecek
+-  Papst Franziskus: „Gott segnet jeden, jeden, jeden“
+-  Así va la tabla de goleo tras el arranque del Clausura 2024
+-  Wetter in Hessen wird „explosiv“: Glättewarnung für Mitte der Woche | hessenschau.de
+-  Todesschüsse bei Aldi in Mörfelden-Walldorf : Kassiererin in Kopf geschossen! Täter erschießt sich selbst
+-  [관풍루] 대학생들에게 인기 있는 ‘천원의 아침밥’이 부실 위기
+-  [사설] 文정부 ‘GP 불능화’ 발표, 철저한 진상 조사를
+-  [사설] 반도체 투자 세액 공제, ‘대기업 퍼주기’ 아니다
+-  [사설] 이재명 ‘사천’(私薦) 기정사실화한 민주당 예비후보 ‘막장’ 검증
+-  "Билд": Войната между НАТО и Русия е неизбежна, започва през 2025 г.
+-  Fitues i çmimit trajneri i vitit në “FIFA THE BEST”, Guardiola: Dua ta ndaj këtë çmimi me pronarët e City-t
+-  Украинские СМИ сообщили о взрывах в Харьковской области
