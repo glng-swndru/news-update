@@ -1,11 +1,11 @@
 # Latest News
--  Bankpozitif’ten Moody’s değerlendirmesi: Uluslararası yatırımlar doğrudan artacak
--  Marcha de la UACh genera caos vial
--  Video: Llega manifestación de sindicalizados UACh a Rectoría
--  Dejan a orilla del Libramiento Oriente un ejecutado
--  Abre Parisina sucursal en Residencial Paseos de Chihuahua
--  Incrementa uso de autos eléctricos
--  Golea Savage a domicilio
--  Edo 2024: PDP Coalition dumps Ighodalo, backs Ogbeide-Ihama
--  Va AMLO por Plan E, aunque reconoce no tener mayoría
--  الخميس المقبل: أول استحقاق للشهادة 25% في بنك القاهرة
+-  ندوة بالأغوار الشمالية تناقش دور البرامج الخيرية في الحد من العنف الأسري
+-  السير تتعامل مع حادث في عمان وتهيب بالسائقين
+-  مصطفى الفقي يكتب: عناق الموت
+-  مصدر يمني: الحوثيون استهدفوا سفينة متجهة إلى إسرائيل
+-  EU heeft 3000 Oekraïense zieken en gewonden opgevangen
+-  أبطال الإسكندراني يتحدثون لـ الشروق عن كواليس الفيلم
+-  MPs complain about tardiness of semi-government budgets
+-  Fourth arrest for shooting outside prison
+-  מדד המחירים לצרכן עלה ב-3% ב-2023
+-  Boeing to add quality inspections to 737 MAX door plugs after Alaska jet disaster: ‘Complete confidence’
