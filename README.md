@@ -1,11 +1,11 @@
 # Latest News
--  [성직자, 학원강사도 마약밀수 단속에 적발
--  [BPA, 건설현장 36곳 하도급 대금·임금 지급실태 점검
--  Bursa'da ahırda çıkan yangında 10 büyükbaş hayvan telef oldu
--  Fuel Companies to Impose Oil Price Hike for 2nd Straight Week
--  Atatürk. Nuri Conker’i neden kardeşi gibi severdi
--  "사전투표 위헌심판" 청구소 제기
--  'जॉब चाहिए तो एक रात गुजारनी होगी...,' अफसर की डिमांड पर डर गईं लड़कियां
--  Nữ sinh Hà Nội giành ngôi hoa khôi Đại học Ngoại thương
--  SECO STRENGTHENS ITS PRODUCTION CAPACITY IN ASIA WITH THE INAUGURATION OF A NEW FACILITY IN CHINA
--  2023 was the hottest year ever recorded globally. How is 2024 shaping up?
+-  במכבי תל אביב מבינים: הסגל הזה לא יספיק לאליפות
+-  מכבי חיפה רוצה המשכיות: "הפער עלול לגדול בחזרה אם נהיה יהירים"
+-  תקדים יוסף עטאל? בטורקיה קוראים להחמיר עם עונשו של שגיב יחזקאל
+-  Sancaktepe'de beş araç birbirine girdi: Zincirleme kazada iki kişi yaralandı
+-  규제 대신 보상...‘제주 생태계서비스지불제’ 시간당 1만5000원
+-  Chystáte sa predať svoje auto? Odborníci radia, urobte tak v tomto mesiaci
+-  Televisioarvio | Mikä helpotus: True Detective palaa uusissa hienoissa jaksoissa juurilleen
+-  "مرفق الكهرباء" يوضح..أيهما أكثر توفيرا الدفاية الكهربائية أم التكييف؟
+-  [현장컷] '폭설에도 산천어축제장 이상무' 눈 걱정 말고 오세요
+-  ‘불법 촬영 혐의’ 황의조, 피해자 신상정보 특정 ‘2차 가해’로 추가 입건
