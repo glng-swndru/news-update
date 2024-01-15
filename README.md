@@ -1,51 +1,51 @@
 # Latest News
--  İstanbul'da otomobil hırsızları tutuklandı
--  Edirne Valisi sınır hattında görevli güvenlik güçlerini ziyaret etti
--  Gazze Şeridi'ne düzenlenen saldırılarda en az 33 Filistinli hayatını kaybetti
--  İşçi servislerinin çarpıştığı kazada yaralı sayısı 11 oldu
--  İstanbul İhracatçı Birliklerinin ihracatı 2023'te önceki yıla göre artış gösterdi
--  Sinoplu kadın esnaf dükkanında ölü bulundu
--  Hindistan'da pilot, yolcunun saldırısına uğradı
--  Kök maaş nedir, nasıl hesaplanır?
--  Bursa Yıldırım Mimar Sinan'da yol yarılandı
--  Ankara Keçiörengücü, Mikail Okyar'ı kadrosuna kattı
--  MEB ve ASELSAN'dan "Yeşil Geleceğim" temalı resim yarışması
--  Tekirdağ'da hayvan kulübelerinde yangın! 1 at ve 1 köpek telef oldu
--  Mehmet Şimşek: Bütçe açığı beklentilerin altında kaldı
--  Kickoff | Ghana coach addresses Ofori's lack of playing time at Pirates
--  Nomofobi nedir ?
--  농촌진흥청 정보공개 '최우수' hellip; 중앙행정기관 평균 10점 상회 '왕중왕'
--  새만금개발청, 산단 내 '토(土)-수(水)-전(電) 대응' 올인 하는 까닭은?
--  민변 출신 이덕춘 예비후보, 경찰 발표 맹탕인 4가지 이유 '재수사 촉구'
--  대만과 국교 유지하던 남태평양 섬나라 나우루, 돌연 단교 선언, 왜?
--  באמצעות בינה מלאכותית: כך מציינים את יום השואה הבינלאומי
--  מפתיע: זה מה שקרה להונם של עשירי העולם מאז 2020
--  Sala Lifestyle launches Cocktail Masterclass
--  Президентът на Барса продължава да има доверие на Шави
--  سر البطة المحنطة في الأقصر.. عمرها 100 عام وتبهر السياح
--  규현, 데뷔 첫 솔로 아시아 투어 '리스타트' 서울서 포문
--  Britaniya husilərə yeni hava zərbələri endirmək barədə qərar verməyib
--  Soccerladuma | Is Broos Dropping A Hint On His Bafana Future?
--  مندوبا عن الملك... العيسوي يرعى الاحتفال بيوم الشجرة بالقطرانة
--  الخارجية الصينية: نسعى لحل مشكلة أوكرانيا بالتعاون مع المجتمع الدولي
--  هل توقف الحلوى الحامضة نوبات الهلع؟
--  "طالبان" تنفي السعي لامتلاك سلاح نووي
--  Przegląd mistrzów krajowych w kolarstwie przełajowym
--  Míňame menej pitnej vody, budeme za ňu platiť viac
--  Wer verbraucht am meisten Strom? 480 Grafikkarten im Vergleich (Video) – PC Games Hardware
--  [한국기행] 내가 꿈꾸던 고립 1부-저 바다에 누워
--  [세계테마기행] 나는 전설이다 에티오피아 1부-아프리카의 전설, 아디스아바바
--  [생방송 투데이 맛집] ‘닭볶음탕’ 맛집
--  Black Coffee breaks his silence after ex Enhle Mbali spills the tea
--  Vinicius Junior admits imperfections after stunning hat-trick
--  "Gaziantep Spinal Günleri" toplantısı
--  Песков назвал встречу в Давосе по «формуле мира» Киева пустыми разговорами
--  “E-Şikayət” sisteminə müraciətlər artır
--  La Guardia Civil de Valencia evita el atraco a una sucursal bancaria de Villanueva de Gállego
--  Sagiv Jehezkel’in skandal gol sevinci sonrasında kamuoyu tek ses: “Antalyaspor hükmen mağlup edilmeli”
--  Bıçaklı saldırıya uğrayan Fatih Camii imamı Galip Usta taburcu edildi: İlk sözleri 'En kısa zamanda camiye geçeceğim' oldu
--  Türk hava sahasında 2023 yılında 15 saniyede bir uçak geçti
--  Bütçe açığında sürpriz gelişme: Beklentilerin 258 milyar lira altında kaldı
--  Bütçe 2023'te 1 trilyon 375 milyar lira açık verdi
--  Песков не стал комментировать «секретный план» бундесвера по столкновению с РФ
--  정기현 "국회 '과학기술인' 없어...밑바닥부터 인지도 확장"
+-  لماذا طرحت المملكة منتجات الإقامة المميزة؟
+-  الكشف عن سر رفض الأطفال تناول الخضراوات!
+-  تشحن في 10 دقائق.. تعرف على مميزات بطارية الحالة الصلبة الجديدة
+-  IMF: Yapay zeka işlerin yüzde 40'ını etkileyecek
+-  MHP 55 adayını daha açıkladı
+-  MHP, 3 il ve 52 ilçenin daha belediye başkan adaylarını açıkladı
+-  Eerste Kamer in debat over Spreidingswet – kan de VVD-fractie zich doof houden voor hartenkreten uit eigen kring?
+-  ILT: drinkwatertekort dreigt, provincies moeten in actie komen
+-  Vorige week duizend asielaanvragen, meer dan een jaar geleden
+-  وكلاء ومواطنون: تمن الحصة يباع علف للحيوانات وباعة حبوب ..هناك عمليات تلاعب(فيديو)
+-  [Watch] Prannoy Roy Returns With New Venture deKoder
+-  „Það er að verða til stór hópur af fullorðnu fólki í samfélaginu sem er orðið nær ósjálfbjarga og kann ekki að takast á við lífið“
+-  Batmanlı Yunus Emre Konak'ın İngiltere Premier Lig'e uzanan başarı hikayesi
+-  Tötungsdelikt in Reichenbach: Opfer wird obduziert
+-  Zu wenig Pflegekräfte - Problem in Kliniken soll zunehmen
+-  Plauener Tourist-Information lädt zur Entdeckung des Schlosshanges ein
+-  Deutsche Wirtschaft im vergangenen Jahr geschrumpft
+-  My daughter was bullied for not having the right water bottle – so I splashed out and got her $35 Stanley
+-  Sky: Eberl soll neuer Sportvorstand beim FC Bayern werden
+-  Erstrunden-Aus für deutsches Herren-Trio in Melbourne
+-  [전남대 조경아·이준행교수, 면역 자극 통해 노화 방지 증명
+-  [“우리집 어쩐지 안팔리더라” 전국 집값 반 년 만에 꺾였다 [부동산360]
+-  [이한준 LH사장, 인천계양·인천검단 현장 점검
+-  [포스코이앤씨 “촉진2-1구역에 부산 최초 ‘오티에르’ 적용”
+-  [고지혈증 막으려면 밥에 ‘OO’ 넣으세요 [식탐]
+-  [교보증권, 지난해 영업익 830억…전년비 60.7% ↑
+-  [韓日, 北 미사일 경보정보 공유 불구 사거리 분석 차이 왜?
+-  [이상일 용인시장, “반도체 경쟁력 강화 위해선 경강선 연장 등 교통 인프라 확충돼야”
+-  [“보복운전 억울” 호소한 이경, 경찰 2명 고소…“허위사실 보고해”
+-  [‘으리으리 사옥’ YG, 진짜 누구 때문에 돈 벌었나 봤더니…[투자360]
+-  [故이예람 중사 사망 은폐 혐의 대대장 1심 무죄…유가족 분노에 아수라장
+-  [‘한국의 지방대통령’ 이상일 용인시장의 영웅기(英雄记) 외전
+-  [우진엔텍 '상단 초과' 5300원 확정…24일 코스닥 상장 [투자360]
+-  [韓 증시 ‘9일 만 반등’할 때 日 증시 ‘34년 만 최고’…닛케이, 한때 3만6000 돌파 [투자360]
+-  [“박수홍만 법인카드 못 쓰게 했다…가족들이 더 써야 하니까”
+-  [<신제품·신기술>코웨이, 스스로케어 비데 ‘리모트·프라임’ 2종
+-  [<신제품·신기술>보령컨슈머, 복용편의 ‘겔포스엠 스틱형’ 출시
+-  [여수시, 남해안 거점 국제해양관광휴양도시 본격화
+-  [이병선 속초시장의 7가지 약속…미래 100년 웅대한 로드맵 제시
+-  [속초시, 로컬형 도시매체 ‘문화나름집’ 추진
+-  [경기도 초·중등학교 교육과정 총론 개정 고시
+-  [“지배구조 개편에 딜 기회…PEF 세컨더리도 활발”[M&A 2024①]
+-  [최대호 안양시장 “청년 주거비 부담 덜고 안정적 주거환경 조성”
+-  [서갑원 전 의원, 총선 1호 공약 발표 기자회견
+-  [[단독]“올해보다 더 크게”…정기선 HD현대 부회장, 내년 CES 벌써 ‘찜’했다
+-  [광주교대 ‘자기표절’ 의혹 교수…“연구윤리위 임용취소 의견”
+-  [순천검찰, 총선 선거사범 전담수사반 편성
+-  ["이재용도 탐냈는데…" 700만원 넘는 카메라, 결국 '몸값' 낮췄다
+-  [민주당, ‘광주 서구을’ 등 탈당·현역 불출마지역…“전략선거구 지정”
+-  [한미그룹, “OCI그룹과 통합, 무산 없이 추진”
