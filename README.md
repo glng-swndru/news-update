@@ -1,51 +1,51 @@
 # Latest News
--  Tuchel: Größere Wertschätzung in England
--  Guardiola und Wiegmann bei FIFA-Wahl ausgezeichnet
--  Ana Castela e Gustavo Mioto anunciam término de namoro novamente
--  Motociclista murió tras quedar en medio de una persecución policial en Las Heras
--  Biella Rugby: tutti i risultati del weekend gialloverde
--  Guardiola miglior allenatore 2023, battuto Inzaghi: “Solo io so quanto..."
--  News24 | Man allegedly stabs grandfather to death, injures dad during altercation
--  Oro per Martina Banchi alla 63ª edizione dei Campionati Nazionali Universitari Invernali
--  Für Dienstag wurden Schulschließungen in Colorado inmitten einer gefährlichen arktischen Kaltfront gemeldet
--  A ausência de Lula e Haddad no Fórum Econômico Mundial
--  كلمة الرئيس المنتدب للمجلس الأعلى للسلطة القضائية بمناسبة افتتاح السنة القضائية لسنة 2024
--  الأوقاف تحدد تكلفة مصاريف الحج لموسم 1445ه
--  عموتة يقود الأردن لانتصار ساحق على ماليزيا في كأس آسيا
--  أسعار اللحوم الحمراء تلهب جيوب المغاربة بعد تعليق الحكومة دعم استيراد الأبقار والأغنام
--  الأمثال العامية بتطوان... (502)
--  بسبب التلاعب في التذاكر.. المنظمون يعلنون عن "إجراءات" بعد انخفاض الحضور الجماهير في كأس إفريقيا
--  إحداث خلية تنسيق لاحتواء أزمة الأمتعة بمطار الدار البيضاء
--  الأمن يوقف مُغتصِب صاحبة محل للحلاقة تحت التهديد بالسلاح
--  الموسم الفلاحي.. معدل التساقطات المطرية بلغ لحد الآن 77 مليمترا مسجلا تراجعا ب44 بالمائة مقارنة مع نفس الفترة من السنة الماضية
--  الركراكي يعقد غدا ندوة صحافية بحضور هذا اللاعب
--  غينيا تحرج الكاميرون في كأس إفريقيا
--  انتصار جنيف و... التزاماته
--  الملك يهنئ الملك فريدريك العاشر بمناسبة تتويجه عاهلا لمملكة الدنمارك
--  Irak ve Suriye'nin kuzeyine hava harekatı: 23 hedef imha edildi
--  Your pet can be part of custody battles in B.C. following law reforms
--  Стражът на английския женски национален отбор е номер 1 в света на своя пост
--  تتويج وحيد.. إحصائيات منتخب السنغال خلال مشاركاته في كأس الأمم الأفريقية
--  "ذا بيست".. بيب جوارديولا يفوز بجائزة أفضل مدرب في العام
--  أوصت بإعادة تسعير الأراضي.. "زراعة النواب" تشن هجومًا حادًا على "الأوقاف"
--  هذا ما يحدث لجسم ودماغ المرأة عند ممارسة العلاقة الحميمية
--  "بينهم ميسي وهالاند".. أفضل 11 لاعبا خلال موسم 2023
--  أرباح بالملايين من "الزيت والسكر" المُدعم.. نص تحقيقات قضية "فساد التموين" - (مستند)
--  مستشفى سوروكا: استقبال 15 جنديا إسرائيليا جراء المعارك في قطاع غزة اليوم
--  "القومى للمرأة" يهنئ الدكتورة عبلة الألفي لحصولها على الزمالة الفخرية ببريطانيا
--  أمريكا تُطالب سفنها التجارية بعدم المرور بالقرب من مناطق الحوثيين
--  مستوطنون يشعلون النار في مركبات بالضفة الغربية ويحاولون إحراق منازل برام الله
--  بعد إعلان السيطرة عليها.. المقاومة تقصف إسرائيل بوابل صواريخ من بيت حانون
--  וושינגטון - דטרויט 14:8 (רבע 1)
--  Terör devleti İsrail çark etti: Gazze Filistinliler tarafından yönetilecek
--  Papst Franziskus: „Gott segnet jeden, jeden, jeden“
--  Así va la tabla de goleo tras el arranque del Clausura 2024
--  Wetter in Hessen wird „explosiv“: Glättewarnung für Mitte der Woche | hessenschau.de
--  Todesschüsse bei Aldi in Mörfelden-Walldorf : Kassiererin in Kopf geschossen! Täter erschießt sich selbst
--  [관풍루] 대학생들에게 인기 있는 ‘천원의 아침밥’이 부실 위기
--  [사설] 文정부 ‘GP 불능화’ 발표, 철저한 진상 조사를
--  [사설] 반도체 투자 세액 공제, ‘대기업 퍼주기’ 아니다
--  [사설] 이재명 ‘사천’(私薦) 기정사실화한 민주당 예비후보 ‘막장’ 검증
--  "Билд": Войната между НАТО и Русия е неизбежна, започва през 2025 г.
--  Fitues i çmimit trajneri i vitit në “FIFA THE BEST”, Guardiola: Dua ta ndaj këtë çmimi me pronarët e City-t
--  Украинские СМИ сообщили о взрывах в Харьковской области
+-  Njemačka je u recesiji. Što to znači za Hrvatsku?
+-  푸틴, 가까운 시일 내 북한 방문한다…"고립된 러에 北 혜택"
+-  [구글, 새해 또 구조조정 단행…직원들 “극도로 비인격적” 반발
+-  [다보스포럼, 냉정한 진단…"올해 세계 성장력 약화"
+-  [자존심 굽힌 애플…中서 아이폰 이례적 할인 판매
+-  محافظ الأقصر يبحث استعدادات تنفيذ أعمال إزالات الموجة 22
+-  [트럼프의 ‘성추문 입막음 돈’ 사건 변호사 변호인단 떠나
+-  CCB invites Tunji-Ojo over alleged N438m contract
+-  Relationship Coach Reveals ‘Zeigarnik Effect’ and the Psychology Behind the No-Contact Rule for Exes
+-  Luciana Sandoval debuta en nuevo programa de televisión
+-  Got the winter blues? Experts say ‘micro-joys’ can help tackle seasonal slumps
+-  خاص (وال) - كان - كوت ديفوار 2023: حفل الافتتاح بين الأصالة والحداثة
+-  Paulista A2: Comercial anuncia volante conhecido na Europa
+-  Экс-советник Кучмы Соскин: приезд Зеленского в Швейцарию породит конфликт
+-  El Gobierno prepara una ley para limitar el acceso de los menores a contenido sexual en internet
+-  Alemania esperaría una guerra entre la OTAN y Rusia tras la derrota definitiva de Ucrania
+-  Fifa The Best 2024: nominata la Top 11 e l’allenatore dell’anno
+-  تعرف على أهم أسباب تساقط الشعر
+-  הילדה היחידה שנותרה לי היתה בפיגוע ברעננה. טור של אמא מבוהלת
+-  Treffen radikaler Rechter in Potsdam: AfD-Chefin Alice Weidel trennt sich von engem Berater
+-  ユニフレーム キャニスター メタルケース3 - thenewsunlimited.com
+-  トランギア ストームクッカー用 ロールトップバッグ trangia - thenewsunlimited.com
+-  ゴースタック GoStak スターターキット ホワイト 53013 - thenewsunlimited.com
+-  UNIFLAME ユニフレーム キャニスターメタルケース3 662830 - thenewsunlimited.com
+-  ゴースタック GoStak 3パック 100cc ブラック 53037 - thenewsunlimited.com
+-  サーモスアウトドア真空断熱ケータイマグ JOO-500 IBLインディゴブルー - thenewsunlimited.com
+-  サーモスアウトドア真空断熱ケータイマグ JOO-500 MGミント - thenewsunlimited.com
+-  トランギア ラージメスティン trangia - thenewsunlimited.com
+-  トランギア スモールメスティン trangia - thenewsunlimited.com
+-  Генпрокуратура через суд попросила отдать государству все акции «Рольфа»
+-  President Bola Tinubu and Former President Obasanjo Mend Fences in Owerri Encounter, Signaling New Chapter in Nigerian Politics
+-  El calentón de Ferran en el banquillo con Vinicius: "Yo a este le meto una h*st** como me diga algo, te lo juro"
+-  «Известия»: Росавиация попросила перевозчиков не летать в Египет на 27 самолётах
+-  لاعبا الجزائر يدعمان فلسطين أمام أنجولا بأمم إفريقيا
+-  Bullrich: «trabajaremos incansablemente para proteger las fronteras y garantizar que rija la ley»
+-  Corrientes: realizarán una nueva visita guiada en el ex Centro Clandestino de Detención
+-  Concamin niega problemas de importación de gas por nevadas en EU
+-  На Украине хотят создать группы по розыску военнообязанных
+-  Papa Francisco defiende autorización para bendecir a parejas homosexuales
+-  ‘Amerikanci su povukli riskantan potez. Huti ne blefiraju, imaju mogućnost za razoran odgovor!‘
+-  تعريض مجموعة من مواقع التجارة الإلكترونية للنصب يقود قاصرا مغربيا للتوقيف.
+-  النيابة العامة تدخل على خط انتهاك حرمة مسجد من طرف سيدة مسنة
+-  الكاميرون وغينيا يتعادلان في بداية مشوارهما في كأس أمم إفريقيا
+-  Lev Rubinstein, Russian poet and political figure, dies at 76
+-  Zirve takibi sürüyor: Galatasaray, evinde hata yapmadı
+-  '김용 재판 위증교사' 관계자들 구속…"증거인멸 염려"
+-  검찰 "송영길, 기업인 민원 해결해 주고 수억원 수수"
+-  경찰 수사심의위, 서울경찰청장 기소 권고…용산소방서장은 불기소
+-  Body of Kelowna man found in wooded area
+-  خوض في كتاب: [ الشخصية العراقية من السومرية الى الطائفية]/12 : عبد الرضا حمد جاسم
