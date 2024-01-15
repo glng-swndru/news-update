@@ -1,11 +1,11 @@
 # Latest News
--  Ceny ropy naftowej w dół
--  حكومة الوحدة الوطنية تحدد الجهات الأمنية المخولة بالتواجد في المنافذ الحدودية .
--  911 caller falsely claims White House fire after series of swatting incidents
--  FIFA The Best Awards: Latest news and updates as Lionel Messi, Erling Haaland and Kylian Mbappe battle it out for the men's award while Spain's Jenni Hermoso is nominated for women's award
--  Sz. Bíró Zoltán: Az orbáni retorika arra épül, hogy Oroszország nem veszíthet
--  Maduro paró su discurso tras atragantarse con un buche de “manzanilla piche”… que hasta “lo mareó” (VIDEO)
--  Rosalia and her pal Hunter Schafer of Euphoria fame grab smoothies before furniture shopping in Los Angeles
--  PD lindi te studentët, shkruan ‘epitafin’ te dritarja e Berishës
--  Pokemon Scarlet & Violet players devise “genius” Smeargle trick
--  Best Holger 556 Warzone loadout: Class setup, Attachments, Perks, & more
+-  Risen Energy Release White Paper "Development and Industrial Application of Ultra-Thin Silicon Wafers"
+-  Putin Şimali Koreyaya səfər edəcək
+-  Start leesclub in Apeldoorn
+-  ACTIVE OUTDOORS: Explore the forest trails where Strathpuffer bikers have a blast
+-  UGT amenaza con una huelga indefinida en Iberia si no da solución al "handling"
+-  Yle: Tähtipuolustaja Sami Niku havittelee lähtöä JYPistä
+-  Anita Rewinkels Großeltern waren im KZ: Das prägte auch ihr eigenes Leben bis heute
+-  Der Wegfall einer wichtigen Funktion hat Konsequenzen
+-  Спират хремата за часове: Стари рецепти от Ванга
+-  Комиссия правительства одобрила проект о конфискации имущества за фейки об ВС РФ
