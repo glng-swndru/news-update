@@ -1,51 +1,51 @@
 # Latest News
--  Politika sa mieša so športom od pradávna. Ako majitelia klubov máme byť apolitickí, vraví Rapáč. Čo vraví na Hudáčka a koniec Radosu?
--  المرسلي وفتاح علوي ضمن قائمة "فوربس"
--  بنك المغرب يطرح للتداول ورقة بنكية جديدة من فئة 200 درهم
--  إحداث نظام للتعويض عند استيراد القمح اللين لكمية أقصاها 25 مليون قنطار
--  انتفاضة "الصغار"…
--  الملك محمد السادس يراسل عاهل الدنمارك
--  العربية المغرب تضيف رحلات جديدة انطلاقا من تطوان
--  كأس إفريقيا للأمم.. المنتخب السنغالي يفوز على نظيره الغامبي (3-0)
--  زيان في قلب قضية جديدة تتعلق ب"تبديد أموال عمومية" وشارية يكشف أسباب ودواعي المتابعة
--  طنجة يتعاقد مع الطاير خلفا لنجحي
--  إضراب واحتجاجات بقطاع التكوين المهني ومطالب بزيادة 2000 درهم في الأجور
--  المغرب من أجل "زئير قاري" في مجموعة سهلة نظريا
--  صلاح ينقذ مصر من لدغة "أفاعي" موزامبيق
--  المغرب يرأس اجتماعا طارئا لمجلس وزراء الخارجية العرب لبحث تداعيات الاتفاق بين إثيوبيا وإقليم أرض الصومال
--  بالفيديو.. المقاومة تنشر تفاصيل مقتل أسيرين إسرائيليين في قصف على غزة
--  اللواء سمير فرج: العالم كله يتأثر سلبًا بتزايد التوترات في البحر الأحمر
--  شعبة الذهب: التجار لا يتحكمون في الأسعار وليس لدينا أمبراطوريات في السوق
--  المقاومة تعلن استهداف قوة إسرائيلية من مسافة صفر شرق خان يونس
--  الحوثيون: استهدفنا سفينة أمريكية بالصواريخ في البحر الأحمر
--  ماذا قدم منتخب المغرب طوال مشاركتها في كأس الأمم الإفريقية؟
--  BM Genel Sekreteri Guterres'ten Kızıldeniz uyarısı: Ateşle oynamaktan vazgeçin!
--  Pide Profeco revisar comisiones en envío de remesas
--  Neznáma osoba nahlásila na tiesňovú linku požiar v Bielom dome: Išlo o falošnú informáciu
--  Británia verí, že po útokoch zameraných proti húsíom v Jemene boli zasiahnuté všetky plánované ciele
--  Učitelia z Pásma Gazy oslavujú masakru zo začiatku októbra: Synovia judaizmu, ešte sme neskončili!
--  Ako sa v starobe vyhnúť demencii? Začať s prevenciou by ste mali už teraz
--  FOTO učiteľa v nemocnici obletela svet: Len ťažko uveríte, čo robil iba pár hodín pred smrťou
--  AKTUÁLNE zábery z tragickej dopravnej nehody! Auto vpálilo do rodinného domu: Dvaja chlapci nemali šancu prežiť
--  Recopa SC tem cobertura especial na CBN
--  Mi van köztük? Kucsera Gábor az Ázsia expresszes Varsányi Réka otthonából jelentkezett be - videón a páros
--  Bakan Işıkhan'dan kısa çalışma ödeneği açıklaması... 450 güne indirildi
--  Rishi Sunak, Yemen'deki saldırılarına ilişkin "orantılı ve zorunluydu" ifadelerine yer verdi
--  Izveštaj Oksfama: Svet bi mogao da dobije prvog bilionera, ostatak planete biće siromašniji
--  Fechas importantes de la convocatoria para el examen de Licenciatura de la UNAM 2024
--  All you need to know about this year’s Emmy Awards
--  Brutális időjárás változás lesz a héten: megdőlhetnek a melegrekordok
--  أيقونة التنس العالمية” رافا نادال” سفيرًا لاتحاد التنس السعودي
--  Weight loss influencer Mila De Jesus dies at 35, leaving 4 children and newlywed husband
--  V hotelovej izbe v Paríži našli mŕtvu ženu: Polícia zatkla dve osoby, ktoré s ňou boli v kontakte
--  Minister Geoffrey Wever: Proyecto di “Orange Economy” ta pa yuda empresario
--  Nirvana Super is Harris Teeter’s Newest Product
--  Ministério da Justiça e governo da Bahia assinam acordo sobre câmeras em fardas de policiais
--  Palestinians will govern Gaza after war: Israel defence minister
--  Daniela Büchner: Neffe von Reality-TV-Star bei Autounfall gestorben
--  It will be explosive – Anthony Joshua to take on Francis Ngannou on March 8
--  Short-term social care funding ‘not having desired effect’, report suggests
--  Zvezda upalila motore na Pafosu: Milojević gurnuo igrače u mašinu
--  Armed Forces Day: Gov Fubara releases N130m to veterans
--  Φιλοθέη Μωβ στον Γιάννη Βαρδή για τον γάμο με τον πατέρα του: Άμα θέλει η νύφη κι ο γαμπρός, δεν ρωτούν τους κουμπάρους
--  Königin Mary von Dänemark: So clever wählt sie ihr Krönungskleid aus
+-  İsrail Savunma Bakanı: "Gazze Filistinliler tarafından yönetilecek"
+-  Guterres: Hiçbir şey Filistin halkının toplu olarak cezalandırılmasını haklı gösteremez
+-  Fernando Muslera penaltı kurtardı
+-  Bakan Bolat, İMKON Genel Başkanı Tellioğlu ile bir araya geldi
+-  Após votação, população escolhe os nomes das duas novas cadelinhas da Polícia Civil
+-  Valverde se guarda cartas y sólo deja a Dani García fuera de la convocatoria
+-  בית ההשקעות IBI: "ההתאמות בתקציב 2024 לא רציניות"
+-  דרמה בכפר השעשועים: מנכ"ל הרשת פורש לאחר 9 שנים
+-  Die besorgniserregende neue Norm, die mit der Fernarbeit einhergeht
+-  Vuoden 1995 kultaleijona sai komean kunnianosoituksen
+-  Hot air balloon crashes and kills four including nurse
+-  تقودها صاحبة حضانة.. السجن 5 سنوات لتشكيل عصابي للهجرة غير الشرعية بالإسكندرية
+-  رئيس جامعة الأقصر يستقبل مدير مشروع مراكز التطوير المهني بالجامعة الأمريكية
+-  محافظ القاهرة يقود حملة لرفع إشغالات منطقتي روكسي والكوربة
+-  106 آلاف طالب بـ 384 لجنة.. الإسكندرية تستعد لامتحانات الشهادة الإعدادية (صور)
+-  استمرار المفاجآت.. بـ10 لاعبين غينيا تتعادل مع الكاميرون في كأس الافريقية
+-  Stolen vehicle found in Belgiestraat
+-  ضبط تشكيل عصابي باكستاني في بنغازي يمتهن الخطف وتهريب البشر.
+-  الهلال يقسو على التعاون برباعية في مبارة مؤجلة
+-  Čelnik Pentagona pušten iz bolnice nakon tajne hospitalizacije
+-  Países do euro continuam sem “apoio comum” para fundo de resolução único, diz Eurogrupo
+-  Kyle Walker brushes off his split from wife Annie Kilner to attend the FIFA Awards after Lauryn Goodman revealed he was the father of BOTH of her children
+-  Acre recebe novo medicamento para o tratamento contra HIV
+-  Γκάλαντ: Οι Παλαιστίνιοι θα αναλάβουν τη διακυβέρνηση της Γάζας όταν η Χαμάς δεν θα αποτελεί πλέον απειλή
+-  تعليق جوارديولا قبل انطلاق حفل ذا بيست
+-  SPOJ KOJI NIKO NIJE OČEKIVAO! Darko Lazić na iznenađenje svih napravio ZAOKRET, pa sa mlađom koleginicom snimio DUET!
+-  Informatieavond in Ameide over reis naar Patmos
+-  Informatieavond in Ameide over reis naar Patmos
+-  Elon Musk'ın Tesla robotu bu kez tişört katladı
+-  Kome i zbog čega smeta pesma “Za život Srpske”? Za kratko vreme doživela bum, a onda nestali pregledi na Jutjubu! (VIDEO)
+-  Three Athletes from Pampore shine in National Arnis Championship
+-  Camila Morrone Explains Her 2024 Critics Choice Awards’ Chanel Look: “Delicate and Sophisticated”
+-  Germán Arauz y Jimmy Isita optan por irse a San Antonio
+-  Ισόπαλο το ματς ανάμεσα σε Καμερούν και Γουινέα – Εμφατική πρεμιέρα για τη Σενεγάλη
+-  Emily Ratajkowski bundles up in pink puffy jacket over a hoodie as she braves the freezing NYC weather to treat her dog to a walk
+-  États-Unis: une tempête dans le Maine provoque des inondations record
+-  Jerry Schilling "never thought" he would have to deal with the death of Lisa Marie Presley
+-  Mýtne sadzby v Česku sa od marca rozšíria o poplatok za emisie CO2
+-  Varga Judit szerint az EP feszültséget próbál kelteni Magyarország körül
+-  Ударите в Йемен закопават Байдън - Труд
+-  Fofura: antas são filmadas às margens de rio no interior do Acre; VEJA O VÍDEO
+-  Galatasaray 86'da Kayserispor'u yendi
+-  Son dakika: Çılgın Sayısal Loto çekilişi sonuçları belli oldu! 15 Ocak 2024 Sayısal Loto bilet sonucu sorgulama ekranı!
+-  ABD'li Senatörden Biden'a uyarı: “İsrail’e yardımı kesmeliyiz”
+-  Bakan Işıkhan duyurdu! Çalışma hayatında yeni düzenlemeler
+-  Vona Gábor Orbán Viktornak: „400 millió forint nincs magyar gyermekek megmentésére?”
+-  Após pente-fino, governo bloqueia 8,4 milhões do Bolsa Família
+-  Kyle Richards keeps it casual in sporty attire as she steps out in LA after her birthday trip to Mexico
+-  Mertens: "Kendimize odaklanmalıyız hakeme değil"
+-  McGraths Hill crash: Two teenagers killed and driver injured after car strikes power pole on Windsor Road
