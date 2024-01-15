@@ -1,51 +1,51 @@
 # Latest News
--  Mooie cheques bij elkaar gereden door teams Aurora Roadtrip
--  Eindelijk op de schop, de fietsoversteek aan de Middegaal in Veghel: ‘Situatie te gevaarlijk nu’
--  ختام فعاليات ورشة العمل التدريبية للحرف اليدوية لمبادرة قادرون ومتحدون بالعمل بمطروح
--  Japa: UK Releases List Of Companies Eligible To Sponsor Nigerians’ Work Visa In 2024
--  Adiós a las correas negras de la persiana: así debes limpiarla para eliminar toda la mugre
--  أليجري: أعمل من أجل يوفنتوس ولا ألتفت للمنتقدين
--  Marc Doyer détaille l’expertise reconnaissant les liens entre vaccin Covid et maladie de Creutzfeldt-Jakob
--  Rusya lisanslı 5 kilo altın! 2 kişi gözaltına alındı
--  RPP: nie przewiduje się wpłaty z zysku NBP do budżetu w 2024 r.
--  Nowe perspektywy dla Grupy Klepsydra. Zawarła porozumienie z hiszpańskim inwestorem
--  Porozmawiajmy o 35-godzinnym tygodniu pracy
--  Prezydent Duda przybył do Szwajcarii na Światowe Forum Ekonomiczne
--  Holandia utrzyma zapasy gazu powyżej celu UE
--  مخزونات وفيرة تكفي 7 أشهر.. دولة عربية تستغني عن استيراد القمح
--  خبير تقني يحذر من أمر خطير: لا تضع كاميرات المراقبة في هذا المكان (فيديو)
--  عاجل.. مساند يكشف عن راتب العمالة المنزلية القادمة من تايلاند
--  «Такой результат неприемлем». Алекс Грант о своем возвращении, поражении от «Лады» и борьбе «Барыса» за плей-офф КХЛ
--  Audi F1 sera 'en bien meilleure forme' en 2026 mais il reste 'beaucoup à faire'
--  "عيب يا أخي.. دي أمك".. ليلة الدم في بيت العيلة بالحي الشعبي
--  260 عمود إنارة.. تجميل شوارع رأس سدر بجنوب سيناء (صور)
--  سر العثور على جثة أفريقية أسفل عقار بأرض اللواء
--  خبير في الشأن الإسرائيلي: عملية شمال تل أبيب امتداد لما حدث منذ 7 أكتوبر
--  سمعوا بكائها فجرًا.. العثور على طفلة حديثة الولادة ملقاة أمام مسجد بالمنوفية
--  25 جنيها زيادة بسعر الذهب اليوم الاثنين في مصر بحلول تعاملات المساء
--  7 علامات تكشف أنك محسود ومصاب بالعين
--  "بسبب الطائرة".. أونانا يصل إلى معسكر منتخب الكاميرون قبل دقائق من مواجهة غينيا
--  بعثة المنتخب الأوليمبي تغادر إلى الإمارات (صور)
--  طرد لم يُذع.. لاعب جامبيا يتلقى أول بطاقة حمراء في أمم أفريقيا 2023
--  بريطانيا: إيران هي التي أمدت الحوثيين بالصواريخ والمسيرات التي تستخدمها في استهداف السفن
--  V nábytkárskej dielni došlo k výbuchu! Najmenej šesť ľudí je mŕtvych, ďalší utrpeli zranenia
--  Lekár varuje pred obľúbenou vecičkou, ktorú nosí v kabelke veľa žien: Pozor, môže spôsobiť vážne zdravotné problémy
--  V tomto meste by ste si na zem odpľuť nechceli: Hrozila by vám pokuta až do 200 eur!
--  V utorok má Fico pricestovať na návštevu Budapešti: Predseda vlády nepodporuje Orbána vo všetkých otázkach
--  Adela sa nad skúšobnou dobou adopcie nezamýšľa: TOTO ma STRESUJE oveľa viac!
--  Svadba ako zo zlého sna: Pod hosťami sa prepadla podlaha, v nemocnici skončili aj mladomanželia!
--  من بينها بميناء طنجة المتوسط.. إطلاق "دراسة الجدوى المتعلقة بإنتاج وتخزين وإمداد وتصدير الوقود الخالي من الكربون"
--  منافسات الكان.. المنتخب السينغالي يفوز على غامبيا ب3 أهداف ل0
--  كأس أمم إفريقيا.. السنغال تبدأ حملة الدفاع عن اللقب بفوز سهل على غامبيا
--  انخفاض كمية منتجات الصيد البحري المفرغة بالموانئ المتوسطية خلال سنة 2023
--  الصيد الساحلي والتقليدي.. حوالي 10 ملايير درهم قيمة الأسماك المسوقة سنة 2023
--  عبد النباوي: محاكم المملكة سجلت خلال سنة 2023 أزيد من 4 ملايين و661 ألف قضية جديدة
--  Daily Mail passes 10million followers on TikTok with over five billion views in 12 months as it reinforces position as largest news publisher on the platform worldwide
--  "بايتاس" لقناة الأمازيغية: "جلالة الملك يولي أهمية كبيرة لملف الأمازيغية"
--  Kulüpler Birliği toplantısı sona erdi
--  Казахстан завоевал «золото» чемпионата Азии по стендовой стрельбе
--  Succession fans stump up $625,000 to live like the Roys: 'Ludicrously capacious' Burberry bag sells for $18,0000 and Roman Roy's eulogy for his father Logan goes for $24,000 as haul of props is auctioned
--  Love Island All Stars line-up revealed as familiar faces Anton Danyluk and Liberty Poole return to the villa
--  Lottie Moss breaks down in tears as she admits her teen modelling career made her rebel, succumb to addiction and want to get a face tattoo: 'I don't know who I am anymore'
--  ‘Bring it back!’ demand fuming Gladiators fans as they spot ‘missing’ part of new BBC reboot
--  Kino, das die Welt ein bisschen besser macht
+-  News24 | DA calls on Cricket SA to reveal security threats, reverse Teeger captaincy decision
+-  Komentarz po sesji: Pogłębienie spadków
+-  Elza: “Keçmiş ərimdən 1000 manat borc aldım” – VİDEO
+-  Sagiv Jehezkel ve Eden Karzev PFDK'ya sevk edildi
+-  Milyonlarca kişi bu haberi bekliyordu! Kabine Toplantısı'nın tarihi belli oldu
+-  Récord histórico: Aeropuerto Internacional de Tocumen procesa 17.8 millones de pasajeros en el año 2023
+-  Depremzedeye ‘Önceki evinde duşakabin mi vardı’ demişti! AKP’den yine aday oldu
+-  Lake Mead Water Levels Change at Rate Not Seen in Years
+-  Opozícia hovorí v prípade Dankovej nehody o jeho odvolávaní
+-  सरकार मानेगी या हम मर जाएंगे; जारांगे-पाटिल ने बताया अपना अंतिम संघर्ष, 26 जनवरी से मुंबई में भूख हड़ताल
+-  水晶 ポイント クラスター 原石 置物 浄化 インテリア 石 Point ポイント Quartz ロッククリスタル クリスタル 天然石 - thenewsunlimited.com
+-  Dánsky kráľ už pracuje vo svojej funkcii: Ako prvú vykonal návštevu parlamentu
+-  MIMORIADNE VAROVANIE Na TOMTO sídlisku majú VYKRÁDAŤ paneláky! Pozor, takto sa zlodeji PREDSTAVIA pri zvončeku, aby ste ich PUSTILI dnu
+-  Policajcu iz Bijelog Polja zbog nedozvoljenih polnih radnji nad djevojčicom određeno zadržavanje
+-  Tears as Longest-Serving Shelter Dogs Let True Selves Shine During Day Out
+-  Nigeria dangles reforms to attract investors at Davos
+-  Nederlandse bijdrage aan luchtaanval Jemen is symbolisch, maar niet onbeduidend
+-  Президент Киргизии Жапаров заявил о срыве госпереворота
+-  Hoodlums Attack Doctors At Ekiti State University Teaching Hospital, Steal Corpse
+-  Sunak rechtfertigt Luftschläge: Bedrohung von Schiffen muss aufhören
+-  Schweiz plant Friedenskonferenz im Ukraine-Konflikt
+-  Everton en Forest erkennen overtreding financiële regels en riskeren straf
+-  Winnipeg pedestrian, 18, killed in weekend crash on Notre Dame Avenue
+-  Vv Capelle strikt meerdere aanwinsten voor volgend seizoen
+-  Who are Islamist group Hizb ut-Tahrir which the Home Secretary plans to ban?
+-  FanDuel Promo Code Unlocks $150 Bonus for Bills-Steelers, Buccaneers-Eagles
+-  Éducation. Quatre jours de polémique : on vous résume l’affaire Amélie Oudéa-Castéra
+-  St. Nikolas: Καλά στην υγεία του το πλήρωμα του υπό κατάληψη ελληνόκτητου τάνκερ - Παραμένει στο αγκυροβόλιο του Μπαντάρ Αμπάς
+-  Mancini, il rifiuto di tre nazionali sauditi: "È la prima volta che mi succede"
+-  Berenguer, da un derby all'altro: il pronostico di Athletic Bilbao-Alaves
+-  Leclerc show anche sulla neve: prima gara 2024 è sullo slittino in notturna
+-  Champions League: Scandicci ad Istanbul si gioca il primo posto
+-  Juventus-Sassuolo, la probabile formazione di Allegri
+-  Mourinho, panchina che traballa? L'esonero a Roma e la quota in picchiata
+-  Camara stars as Senegal beat Gambia in first match
+-  Matekteszt: ezzel a kvízzel gyakorolhattok a központi felvételire
+-  Майже рік ухилялись від військової служби: завершено досудове розслідування щодо трьох депутатів Київради
+-  “تكالة” يشيد بدور السفير الهولندي في دعم السلام والاستقرار بليبيا
+-  Govt working to eliminate terrorists, destroy separatist ecosystem in J-K: LG Manoj Sinha
+-  PM नरेंद्र मोदी ने मनकुंवारी बाई से किया संवाद, बताया- कैसे बदल गया जीवन?
+-  Ширинова Маъмура Хикматуллаевнанинг техника фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Добри новини! Извършиха успешна операция на 5-годишното дете, пребито от пастрока му
+-  6.6 млн. лева са влезли в пловдивските хотели за месец
+-  Ученици черпиха за Банго Васил в областната управа
+-  За убийството на мъж от Костинброд: Майка и син са задържани в Сърбия
+-  بريطانيا تصنف «حزب التحرير» منظمة إرهابية
+-  فيديو صادم.. “القسام” تكشف مصير 3 أسرى لديها.. استهدفهم الاحتلال مرتين
+-  देवी को प्रसन्न करने के लिए श्रद्धालु ने रेता अपना गला, मैहर शारदा देवी मंदिर की घटना
+-  Date un gustito con estas chuletas de cerdo con clavo de olor, manzanas y cebollas
+-  'Who's Virat Kohli?': Ronaldo's Reaction To Query About India Cricketer From YouTuber Speed Goes Viral - WATCH
