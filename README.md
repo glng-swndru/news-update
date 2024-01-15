@@ -1,51 +1,11 @@
 # Latest News
--  Soccerladuma | Latest On Swallows Player Standoff
--  Alzheimer's Breakthrough as Five New Subgroups Identified
--  Apple’s Vision Pro Preorders Signal a New Era in Mobile Computing
--  Sri Lanka vs Zimbabwe Live Streaming, Second T20I: When, Where and How to watch Live Score on TV and Online
--  Namfisa GM appointed to global insurance oversight forum
--  Family Screams for Hilarious Reason While Watching Murder Show
--  ADNH and Kempinski forge alliance for Dubai hotel rebranding
--  India Open 2024 Live Streaming: When, Where and How to Watch Live Score on TV and Online
--  Lt Gen Hidayat ur Rehman (retd) appointed chief of AJKPSC
--  A99 closed in both directions after to two-car crash in Wick
--  مصلحة الضرائب تكرم نجوم التحصيل الالكتروني
--  ‘RHOP’ star Mia Thornton breaks down after revealing she was sexually assaulted when she was younger: ‘I couldn’t get out’
--  Apple iPhone 15 offered at rare discount
--  Donald Trump Loses Vote of His Former Lawyer on Eve of Iowa Caucus
--  Asda and Tesco join Iceland in cutting cost of Aptamil baby formula
--  Understanding cold and flu: Causes and prevention
--  It’s official, Mint’s new film camera is the Rollei 35AF
--  Delegado confirma prisão de dois suspeitos de assassinarem jovem em Sorriso; corpo ainda não localizado
--  تتويج بطاقة "لولو تيتانيوم ماستركارد الائتمانية" من بنك مسقط بجائزة عالمية
--  VIDEO: Captan enfrentamiento con armas de alto poder entre bandas del crimen organizado
--  10 lieux secrets à Paris : découvrez les bonnes idées de sorties insolites
--  Diese 8 Reiseziel in Europa sind noch wild und und unberührt
--  София обича фитнеса
--  "حساب الشباب" من البنك الوطني العماني يفتح آفاقًا جديدة لجيل المستقبل
--  Mor el pilot Carles Falcón després del seu accident en el Dakar
--  Νέο υψηλό δεκαετίας στο Χρηματιστήριο - Στο φίνις κρίθηκε το πρόσημο
--  BBC's The Traitors causes worldwide searches for flights to Scotland to soar by 55%, with visitors keen to enjoy the show's stunning Highland setting
--  Përformanca në kampionat, Zhegrova përkrah Mbappe në formacionin e javës
--  Franz Beckenbauer: So kann man die Trauerfeier live im TV und Livestream sehen
--  «Оппенгеймер» стал лидером на премии «Выбор критиков-2024»
--  Remi Tinubu laments death of Nabeeha
--  אחרי הסיוט בטורקיה: שגיב יחזקאל נחת בישראל
--  Πιτσαδόρος γέμισε με… περιττώματα την πολυκατοικία - Δείτε βίντεο
--  Residents in 'shock' after Welsh river turns from dull grey to bright orange - but reason why might surprise you
--  Winter haircare: maintaining your style with expert tips
--  Дўстлик саноат шаҳарчасига айланмоқда
--  NYC Deli sold amid high demand for cafes in Glasgow
--  جيش الاحتلال ينقل وحدة قتالية من غزة للضفة الغربية
--  Romania: Protests continue over taxes, subsidies and Ukraine competition
--  UNICEF ontvangt cheque van bijna 20.000 euro tijdens nieuwjaarsreceptie Oerlemans Plastics
--  Oti Mabuse fans say 'we gasped' after she's hit with 'illegal' warning
--  Νέος Κόσμος: Τα κρίσιμα δευτερόλεπτα και τα αναπάντητα ερωτήματα της δολοφονίας Ζαμπούνη
--  SOUTĚŽ: ‚Literární detektivka.‘ Vyhrajte Hellu, román na stopě české Židovky odsouzené do lágru
--  Dr. Jessica Leigh Levin Releases Third Book, "BEing When You Grow Up"
--  북 "고체연료 극초음속"…사드 소용없나
--  Inició en La Habana venta de entradas para la Feria del Libro
--  Super League 1: Ξεκινούν οι έλεγχοι στα γήπεδα για κάμερες και ηλεκτρονικό εισιτήριο
--  Американски брод погоден со проектил во Црвеното Море
--  Halle: Autofahrer umgeht Straßenblockade von Klimaaktivisten und verletzt Grünen-Politiker und Reporter
--  Snow and ice covers UK towns as cold blast continues to disrupt travel
+-  Bankpozitif’ten Moody’s değerlendirmesi: Uluslararası yatırımlar doğrudan artacak
+-  Marcha de la UACh genera caos vial
+-  Video: Llega manifestación de sindicalizados UACh a Rectoría
+-  Dejan a orilla del Libramiento Oriente un ejecutado
+-  Abre Parisina sucursal en Residencial Paseos de Chihuahua
+-  Incrementa uso de autos eléctricos
+-  Golea Savage a domicilio
+-  Edo 2024: PDP Coalition dumps Ighodalo, backs Ogbeide-Ihama
+-  Va AMLO por Plan E, aunque reconoce no tener mayoría
+-  الخميس المقبل: أول استحقاق للشهادة 25% في بنك القاهرة
