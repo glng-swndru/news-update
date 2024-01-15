@@ -1,11 +1,51 @@
 # Latest News
--  Kết quả Asian Cup 2023: Son Heung Min im tiếng, Hàn Quốc vẫn thắng thuyết phục
--  Huấn luyện viên bị học trò tố ăn chặn tiền thưởng, Cục TDTT yêu cầu giải trình
--  Báo quốc tế ca ngợi đảo Phú Quốc là điểm đến mơ ước của nhiều du khách
--  Skandal na KAN - Alžirci primetili dron na treningu, policija odmah reagovala
--  Netanyahu'ya sert tepki: Kariyeri uğruna esirlerin canını tehlikeye atıyor
--  İsmail Kartal kararını verdi! Mert Müldür'e piyango
--  TFF'den Jehezkel ve Karzev için sevk kararı!
--  Geri sayım başladı! Bakan Kacır: Türk gençlerine ilham kaynağı olacak
--  İngiltere: Kızıldeniz'in kalıcı olarak kapatılmasını kabul etmeyeceğiz
--  Nijerya'da internet kullananların sayısı 160,1 milyonu geçti
+-  Mooie cheques bij elkaar gereden door teams Aurora Roadtrip
+-  Eindelijk op de schop, de fietsoversteek aan de Middegaal in Veghel: ‘Situatie te gevaarlijk nu’
+-  ختام فعاليات ورشة العمل التدريبية للحرف اليدوية لمبادرة قادرون ومتحدون بالعمل بمطروح
+-  Japa: UK Releases List Of Companies Eligible To Sponsor Nigerians’ Work Visa In 2024
+-  Adiós a las correas negras de la persiana: así debes limpiarla para eliminar toda la mugre
+-  أليجري: أعمل من أجل يوفنتوس ولا ألتفت للمنتقدين
+-  Marc Doyer détaille l’expertise reconnaissant les liens entre vaccin Covid et maladie de Creutzfeldt-Jakob
+-  Rusya lisanslı 5 kilo altın! 2 kişi gözaltına alındı
+-  RPP: nie przewiduje się wpłaty z zysku NBP do budżetu w 2024 r.
+-  Nowe perspektywy dla Grupy Klepsydra. Zawarła porozumienie z hiszpańskim inwestorem
+-  Porozmawiajmy o 35-godzinnym tygodniu pracy
+-  Prezydent Duda przybył do Szwajcarii na Światowe Forum Ekonomiczne
+-  Holandia utrzyma zapasy gazu powyżej celu UE
+-  مخزونات وفيرة تكفي 7 أشهر.. دولة عربية تستغني عن استيراد القمح
+-  خبير تقني يحذر من أمر خطير: لا تضع كاميرات المراقبة في هذا المكان (فيديو)
+-  عاجل.. مساند يكشف عن راتب العمالة المنزلية القادمة من تايلاند
+-  «Такой результат неприемлем». Алекс Грант о своем возвращении, поражении от «Лады» и борьбе «Барыса» за плей-офф КХЛ
+-  Audi F1 sera 'en bien meilleure forme' en 2026 mais il reste 'beaucoup à faire'
+-  "عيب يا أخي.. دي أمك".. ليلة الدم في بيت العيلة بالحي الشعبي
+-  260 عمود إنارة.. تجميل شوارع رأس سدر بجنوب سيناء (صور)
+-  سر العثور على جثة أفريقية أسفل عقار بأرض اللواء
+-  خبير في الشأن الإسرائيلي: عملية شمال تل أبيب امتداد لما حدث منذ 7 أكتوبر
+-  سمعوا بكائها فجرًا.. العثور على طفلة حديثة الولادة ملقاة أمام مسجد بالمنوفية
+-  25 جنيها زيادة بسعر الذهب اليوم الاثنين في مصر بحلول تعاملات المساء
+-  7 علامات تكشف أنك محسود ومصاب بالعين
+-  "بسبب الطائرة".. أونانا يصل إلى معسكر منتخب الكاميرون قبل دقائق من مواجهة غينيا
+-  بعثة المنتخب الأوليمبي تغادر إلى الإمارات (صور)
+-  طرد لم يُذع.. لاعب جامبيا يتلقى أول بطاقة حمراء في أمم أفريقيا 2023
+-  بريطانيا: إيران هي التي أمدت الحوثيين بالصواريخ والمسيرات التي تستخدمها في استهداف السفن
+-  V nábytkárskej dielni došlo k výbuchu! Najmenej šesť ľudí je mŕtvych, ďalší utrpeli zranenia
+-  Lekár varuje pred obľúbenou vecičkou, ktorú nosí v kabelke veľa žien: Pozor, môže spôsobiť vážne zdravotné problémy
+-  V tomto meste by ste si na zem odpľuť nechceli: Hrozila by vám pokuta až do 200 eur!
+-  V utorok má Fico pricestovať na návštevu Budapešti: Predseda vlády nepodporuje Orbána vo všetkých otázkach
+-  Adela sa nad skúšobnou dobou adopcie nezamýšľa: TOTO ma STRESUJE oveľa viac!
+-  Svadba ako zo zlého sna: Pod hosťami sa prepadla podlaha, v nemocnici skončili aj mladomanželia!
+-  من بينها بميناء طنجة المتوسط.. إطلاق "دراسة الجدوى المتعلقة بإنتاج وتخزين وإمداد وتصدير الوقود الخالي من الكربون"
+-  منافسات الكان.. المنتخب السينغالي يفوز على غامبيا ب3 أهداف ل0
+-  كأس أمم إفريقيا.. السنغال تبدأ حملة الدفاع عن اللقب بفوز سهل على غامبيا
+-  انخفاض كمية منتجات الصيد البحري المفرغة بالموانئ المتوسطية خلال سنة 2023
+-  الصيد الساحلي والتقليدي.. حوالي 10 ملايير درهم قيمة الأسماك المسوقة سنة 2023
+-  عبد النباوي: محاكم المملكة سجلت خلال سنة 2023 أزيد من 4 ملايين و661 ألف قضية جديدة
+-  Daily Mail passes 10million followers on TikTok with over five billion views in 12 months as it reinforces position as largest news publisher on the platform worldwide
+-  "بايتاس" لقناة الأمازيغية: "جلالة الملك يولي أهمية كبيرة لملف الأمازيغية"
+-  Kulüpler Birliği toplantısı sona erdi
+-  Казахстан завоевал «золото» чемпионата Азии по стендовой стрельбе
+-  Succession fans stump up $625,000 to live like the Roys: 'Ludicrously capacious' Burberry bag sells for $18,0000 and Roman Roy's eulogy for his father Logan goes for $24,000 as haul of props is auctioned
+-  Love Island All Stars line-up revealed as familiar faces Anton Danyluk and Liberty Poole return to the villa
+-  Lottie Moss breaks down in tears as she admits her teen modelling career made her rebel, succumb to addiction and want to get a face tattoo: 'I don't know who I am anymore'
+-  ‘Bring it back!’ demand fuming Gladiators fans as they spot ‘missing’ part of new BBC reboot
+-  Kino, das die Welt ein bisschen besser macht
