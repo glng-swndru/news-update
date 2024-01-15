@@ -1,11 +1,11 @@
 # Latest News
--  Ra’isul Wasaare Xamse oo la kulmay safiirka Imaaraadka iyo xogta waxii ay kawada hadleen
--  (الطرابلسي) يجتمع غدا الثلاثاء مع النقابات والجمعيات الخاصة بالشاحنات وسيارات النقل
--  الطالبي العلمي يمثل صاحب الجلالة في حفل تنصيب رئيس جمهورية غواتيمالا الجديد
--  باحثون وأكاديميون يتداولون حول مظاهر تفرد الثقافة الأمازيغية
--  حنان وقاص تفوز بملكة جمال الامازيغ "2974"
--  محامون بجنوب إفريقيا يعتزمون مقاضاة واشنطن ولندن لدعمهما إسرائيل
--  صحة حماس تُعلن مقتل أكثر من 60 فلسطينيا بغارات إسرائيلية على غزة
--  كان 2023.. "أسود الأطلس" في مهمة صعبة لتأكيد مسارهم العالمي الاستثنائي
--  أسعار صرف أهم العملات الأجنبية اليوم الإثنين
--  ارتفاع الطلب وتراجع الإنتاج يرفعان الأسعار في سوق الدواجن بالمغرب
+-  US Air Force pilot Madison Marsh makes history as Miss America
+-  Costa del Sol: News in brief
+-  Xiaomi introduces Redmi 13 phones
+-  Fun88 Celebrates Dabang Delhi's Remarkable Performance as Proud Sponsor
+-  Kalaburagi: School principal booked for forcing students to clean toilets
+-  Morning Report — Iowa expectations: Trump should win big today
+-  90% of Jobs at Risk Due to Generative AI Adoption: Cognizant and Oxford Economics Report
+-  Scindia on flyer assaulting Indigo pilot: 'Incidences of unruly behaviour are unacceptable, will be dealt with strongly in line with existing legal provisions'
+-  Pritzker begs Abbott to stop sending migrants to Chicago
+-  Zubiri, sinabing inatasan ni Pres. Marcos ang Senado na manguna sa pagrepaso sa economic provisions ng Saligang Batas
