@@ -1,51 +1,51 @@
 # Latest News
--  İsrail Savunma Bakanı: "Gazze Filistinliler tarafından yönetilecek"
--  Guterres: Hiçbir şey Filistin halkının toplu olarak cezalandırılmasını haklı gösteremez
--  Fernando Muslera penaltı kurtardı
--  Bakan Bolat, İMKON Genel Başkanı Tellioğlu ile bir araya geldi
--  Após votação, população escolhe os nomes das duas novas cadelinhas da Polícia Civil
--  Valverde se guarda cartas y sólo deja a Dani García fuera de la convocatoria
--  בית ההשקעות IBI: "ההתאמות בתקציב 2024 לא רציניות"
--  דרמה בכפר השעשועים: מנכ"ל הרשת פורש לאחר 9 שנים
--  Die besorgniserregende neue Norm, die mit der Fernarbeit einhergeht
--  Vuoden 1995 kultaleijona sai komean kunnianosoituksen
--  Hot air balloon crashes and kills four including nurse
--  تقودها صاحبة حضانة.. السجن 5 سنوات لتشكيل عصابي للهجرة غير الشرعية بالإسكندرية
--  رئيس جامعة الأقصر يستقبل مدير مشروع مراكز التطوير المهني بالجامعة الأمريكية
--  محافظ القاهرة يقود حملة لرفع إشغالات منطقتي روكسي والكوربة
--  106 آلاف طالب بـ 384 لجنة.. الإسكندرية تستعد لامتحانات الشهادة الإعدادية (صور)
--  استمرار المفاجآت.. بـ10 لاعبين غينيا تتعادل مع الكاميرون في كأس الافريقية
--  Stolen vehicle found in Belgiestraat
--  ضبط تشكيل عصابي باكستاني في بنغازي يمتهن الخطف وتهريب البشر.
--  الهلال يقسو على التعاون برباعية في مبارة مؤجلة
--  Čelnik Pentagona pušten iz bolnice nakon tajne hospitalizacije
--  Países do euro continuam sem “apoio comum” para fundo de resolução único, diz Eurogrupo
--  Kyle Walker brushes off his split from wife Annie Kilner to attend the FIFA Awards after Lauryn Goodman revealed he was the father of BOTH of her children
--  Acre recebe novo medicamento para o tratamento contra HIV
--  Γκάλαντ: Οι Παλαιστίνιοι θα αναλάβουν τη διακυβέρνηση της Γάζας όταν η Χαμάς δεν θα αποτελεί πλέον απειλή
--  تعليق جوارديولا قبل انطلاق حفل ذا بيست
--  SPOJ KOJI NIKO NIJE OČEKIVAO! Darko Lazić na iznenađenje svih napravio ZAOKRET, pa sa mlađom koleginicom snimio DUET!
--  Informatieavond in Ameide over reis naar Patmos
--  Informatieavond in Ameide over reis naar Patmos
--  Elon Musk'ın Tesla robotu bu kez tişört katladı
--  Kome i zbog čega smeta pesma “Za život Srpske”? Za kratko vreme doživela bum, a onda nestali pregledi na Jutjubu! (VIDEO)
--  Three Athletes from Pampore shine in National Arnis Championship
--  Camila Morrone Explains Her 2024 Critics Choice Awards’ Chanel Look: “Delicate and Sophisticated”
--  Germán Arauz y Jimmy Isita optan por irse a San Antonio
--  Ισόπαλο το ματς ανάμεσα σε Καμερούν και Γουινέα – Εμφατική πρεμιέρα για τη Σενεγάλη
--  Emily Ratajkowski bundles up in pink puffy jacket over a hoodie as she braves the freezing NYC weather to treat her dog to a walk
--  États-Unis: une tempête dans le Maine provoque des inondations record
--  Jerry Schilling "never thought" he would have to deal with the death of Lisa Marie Presley
--  Mýtne sadzby v Česku sa od marca rozšíria o poplatok za emisie CO2
--  Varga Judit szerint az EP feszültséget próbál kelteni Magyarország körül
--  Ударите в Йемен закопават Байдън - Труд
--  Fofura: antas são filmadas às margens de rio no interior do Acre; VEJA O VÍDEO
--  Galatasaray 86'da Kayserispor'u yendi
--  Son dakika: Çılgın Sayısal Loto çekilişi sonuçları belli oldu! 15 Ocak 2024 Sayısal Loto bilet sonucu sorgulama ekranı!
--  ABD'li Senatörden Biden'a uyarı: “İsrail’e yardımı kesmeliyiz”
--  Bakan Işıkhan duyurdu! Çalışma hayatında yeni düzenlemeler
--  Vona Gábor Orbán Viktornak: „400 millió forint nincs magyar gyermekek megmentésére?”
--  Após pente-fino, governo bloqueia 8,4 milhões do Bolsa Família
--  Kyle Richards keeps it casual in sporty attire as she steps out in LA after her birthday trip to Mexico
--  Mertens: "Kendimize odaklanmalıyız hakeme değil"
--  McGraths Hill crash: Two teenagers killed and driver injured after car strikes power pole on Windsor Road
+-  محافظ جرش يؤكد أهمية النهوض بالواقع التعليمي بالمحافظة
+-  وقفة تضامنية بمخيم إربد نصرة لغزة
+-  محاضرة في الكورة تحث على إسناد الفتوى لأهلها
+-  الرصيفة: أمسية شعرية تصور مشاهد القتل والدمار في غزة
+-  Siirt'te polise bıçakla saldıran şahıs tutuklandı
+-  Bruselas da margen a España para cerrar las reformas del cuarto pago de fondos europeos
+-  Comunidade de Cities: Skylines 2 está ficando tóxica, afirma Colossal Order
+-  USA: Was bedeutet die Iowa-Vorwahl für Trump und das Präsidentschaftsrennen der Republikaner?
+-  Economic optimism doubles, yet almost half of CEOs do not believe their businesses will be viable in a decade as tech and climate pressures accelerate: PwC Global CEO Survey
+-  Revasum Inc and Asahi Diamond America, Inc Join Forces to Revolutionize Silicon Carbide Wafer Grinding
+-  Bodnar: Absolutnie nie zamierzam się wycofać. Uważam, że mam rację ws. Barskiego
+-  Cyril Hanouna fait une grosse révélation sur son lien avec les membres de la famille Kretz (L'Agence sur TMC)
+-  Former Witcher 3 and Cyberpunk 2077 devs officially reveal their first game, and yeah it sure looks like vampires
+-  Jameel Khan recalls working with Shah Rukh Khan in Chalte Chalte; reveals he agreed for a retake after 8th AD suggested few changes
+-  Bericht: Reyna plant BVB-Abgang – Interesse aus Spanien und Frankreich
+-  Premios The Best, EN VIVO: Pep Guardiola es elegido el mejor técnico del año
+-  Analyse: Wo bleibt die Aufbruchstimmung beim FSV Mainz 05?
+-  바레인에 ‘전반 졸전-동점 허용’ 이강인 없었으면 어쩔뻔했나[아시안컵]
+-  Selección de Honduras pacta un nuevo amistoso para marzo
+-  Gewonde bij ongeval met drie auto's in Stroe
+-  Una patrulla que perseguía a delincuentes en Las Heras chocó contra un delivery y lo mató
+-  20 ألف حريق بمناطق أوكرانيا الطبيعية و5.2 مليون طن انبعاثات
+-  Spanier Guardiola Welttrainer des Jahres
+-  Olimpia manda uno de sus jugadores cedidos rumbo al Vida
+-  „Už nikdy fašizmus“. V Nemecku protestovali tisíce ľudí proti pravicovo populistickej strane AfD
+-  Grałeś na Atari? Z nową wersją będziesz mógł grać wszędzie
+-  News24 | Here are the Daily Lotto numbers
+-  Villeda: “Pronto tocará sentarnos a hablar con Pedro Troglio”
+-  Статистика жертв террористической атаки ХАМАСа 7 октября и Войны "Железных мечей"
+-  Kickoff | Onana arrives late as Cameroon drop points
+-  Vi må bestemme over fostre, egne organer og valg af køn, men ikke vores egen død
+-  Vi må bestemme over fostre, egne organer og valg af køn, men ikke vores egen død
+-  Ako volite gorko možda spadate u opasnu populaciju ljudi: Istraživanja pokazala šokantne rezultate
+-  بأسعار مخفضة.. افتتاح معرض "أهلًا رمضان" 15 فبراير في بورسعيد
+-  المؤبد لمُدان بقتل مزارع وإصابة امرأتين في أسيوط
+-  بكاء وتهديد واعتداء متكرر.. كواليس سقوط مُدرِّس تحرّش بتلميذاته في أسيوط
+-  اكشف بـ3 جنيهات.. وكيل صحة أسيوط: تقديم الخدمات الطبية بالإدارات متاحًا للجميع ( فيديو وصور)
+-  جيش الاحتلال: لم نقتل الأسيرين في غزة لكن نفذنا عمليات بالقرب منهم
+-  بـ10 جنيه بس.. مشروب سحري يخلصك من الوزن الزائد والكرش
+-  رياض محرز يقود هجوم منتخب الجزائر لمواجهة أنجولا بكأس الأمم الإفريقية
+-  Pulisic ringrazia il Milan: «Mi è stata data una grande opportunità»
+-  "السن طاقة مش رقم في البطاقة".. عصام الحضري يحتفل بعيد ميلاده والجمهور يعلق (صورة)
+-  Bošković prokomentarisala špekulacije povodom prelaska u Vakifbank
+-  Aviation civile : une liste des aéronefs opérant au Gabon transmise à la CNLCEI par l’ANAC
+-  Bayley Comments On Possibility Of Facing Rhea Ripley at Wrestlemania 40
+-  مقاتل روسي يسقط خصمه بضربة قاضية رهيبة (فيديو)
+-  شبكة مهربين تشبه النمل.. تهريب 125 مليون دولار خلال 83 رحلة من لندن لمدينة خليجية (تفاصيل)
+-  واتسآب يبدأ في طرح ميزة الاستطلاع للمستخدمين.. تعرف عليها
+-  "الطيران المدني" تنذر 40 شركة لتعديل أوضاعها.. ماذا يحدث بالكويت؟
+-  Wie Bauern und Naturschützer um Agro-Sprit zanken
