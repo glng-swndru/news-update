@@ -1,51 +1,51 @@
 # Latest News
--  ‘หมอชลน่าน’ ยันรัฐบาลชูส่งเสริมการมีบุตร ดูแลตั้งแต่ในครรภ์จนเติบโตอย่างมีคุณภาพ
--  'ชัชชาติ'สั่งควบคุมบุหรี่ไฟฟ้าสถานศึกษา ชี้สภาวะน่ากลัวพบผู้ผลิตมุ่งเป้าขายเยาวชน
--  ตร.ปะคำเร่งแกะรอยล่า 2 ไอ้โม่งประกบยิงหลานนายก อบต.สาหัสคาดปมล้างแค้น
--  สถานะ‘ศักดิ์สยาม’ ‘อนุทิน’น้อมรับคำพิพากษาศาลรธน.​ ไม่ว่าออกมารูปแบบใด
--  'สภากลาโหม'ไฟเขียว บรรจุขรก.พลเรือน นำร่องสายแพทย์-การข่าว ยันไม่กระทบกำลังรบ
--  ¿Otra baja de último momento en Cruz Azul? Mazatlán busca a Alonso Escoboza
--  ¡Nuevo Rayo! Eduardo Fentanes confirma el fichaje de José Paradela
--  Footballer additionally booked on charges of secondary harm to sex video victim
--  Korea unveils plan to build $472 bil. mega chip cluster in Gyeonggi Province
--  Government desperate to approve pending economic bills before April election
--  Why are Chinese people buying calendars from 1996 in 2024?
--  Samsung's companion robot Ballie creates sensation at CES
--  Xi controlling Biden
--  중문면세점, 코리아 그랜드 세일 진행
--  구례군, 2024년 여성농어업인 행복바우처 신청 접수
--  평택시, 관리천 유해물질 '공공 하middot;폐수처리' 가능
--  곡성군, 라오스 현지 '외국인 계절근로자' 면접 실시
--  Lancement officiel des activités de développement communautaire de Djaga-Bouldhouq
--  생애 첫 집합건물 매수세 가담…제주청년 금융리스크 ‘빨간불’
--  “농어촌 출신 대학생 학비 전액 지원 추진”
--  “물어뜯는 정치는 그만하고 비전 경쟁하자”
--  민속오일시장 법령위반 수두룩 불구 행정처분 진통
--  “해병대전우회 숙원 전우회관 건립 필요”
--  의무휴무일 변경…제주시 대형마트 설 명절 임시 휴업
--  “제주영어교육도시 더 활성화 제도 정비”
--  생애 마지막 헌혈…437번째 고귀한 생명 나눔
--  제주시, 지난해 지방세 8200만원 환급
--  제주도의회 국힘, 지방자치 협력 관계 확장 ‘시동’
--  중국어선서 응급환자 발생…헬기 긴급 출동
--  NFL-Playoffs: Lions feiern emotionalen Sieg – Auch Packers weiter
--  지난해 극장가 살린 '서울의 봄'…12월 한국영화 매출 역대 2위
--  Cicipas izveo potez godine - ovo odavno nije viđeno VIDEO
--  १५ नदीमा ३०० विज्ञले गन्दै जलपन्छी
--  Почнува Форумот на кој Заев и Ципрас пружија рака да нѐ направат „северни“
--  Königsklasse: Kane zählt Bayern zu den drei Top-Favoriten
--  Ex-Weltmeister Paulo Sergio: Wirtz "ist wie ein Brasilianer"
--  Podolski über Kölns Start: "Leblos, mutlos, kein Feuer"
--  Landwirte demonstrieren weiter in Sachsen: Autokorso geplant
--  Taiwan: US-Delegation trotz Protests aus Peking empfangen
--  Privater „Jugendclub“ in Lichtenstein: Familie leistet das, was die Stadt nicht schafft
--  Naam oude boerenwoning Klashut keert terug in Barneveld
--  [부고] 이혜승(더피알커뮤니케이션 부장)씨 시부상
--  The significance of Tinubu’s first week of 2024
--  Pflacher Seniorenteam schafft den Aufstieg in die Landesliga
--  PLN Indonesia Power Berperan Aktif Dalam Tanara Clean Up di Sungai Cidurian
--  Météo de lundi
--  Presiden Jokowi Instruksikan Menteri Nadiem Tambah Anggaran Riset
--  Usia Kehamilan 7 Pekan, Kiky Saputri Mulai Kurangi Syuting
--  Wilde Weinverkostung
--  До конца недели в Узбекистане потеплеет, - синоптики
+-  Meta pooštrava pravila za tinejdžere
+-  BIŁGORAJ: Potrącenie na przejściu
+-  SZCZEBRZESZYN: Pożar samochodu
+-  GM. BIŁGORAJ: Sprzedawali ciasta, żeby pomóc dzieciom
+-  比亚迪成为2024欧洲杯官方出行合作伙伴，助力全球绿色发展
+-  '버닝썬 게이트' 최종훈, 5년 만에 복귀?..."뻔뻔해" 누리꾼 공분
+-  На рынок вышел защищенный смартфон с самой большой батареей
+-  সুনামগঞ্জে ব্রিজের নিচ থেকে নৌ শ্রমিকের লাশ উদ্ধার
+-  ব্রাহ্মণবাড়িয়ায় প্রতিবন্ধীদের মাঝে শীতবস্ত্র বিতরণ
+-  Soykırımcı İsrail, Gazze'de 100 günde 30 bin noktaya saldırı düzenledi
+-  Bu sefer attırdı! Sebastian Szymanski hiçbir maçı boş geçmiyor
+-  Darüşşafaka Lassa son 16 turu bileti için parkede olacak
+-  e-Devlet şifre alma işlemleri Türksat kablo abone merkezlerine taşındı
+-  Bıçaklı saldırıya uğrayan Fatih Camii imamı Galip Usta taburcu oldu
+-  Fatih Karagümrük'ün Ziraat Türkiye Kupası'nda rakibi Kırklarelispor
+-  Develi Belediyespor üst üste ikinci galibiyetini aldı
+-  CHP içinden DEM Parti ile işbirliğine yeşil ışık: Açık seçik ittifak yapmalıyız
+-  Beşiktaş'ın Ziraat Türkiye Kupası'nda rakibi Eyüpspor
+-  Медведев — об отношениях со зрителями: хочу дарить любовь публике и получать её взамен
+-  Тройка в продължението попари Везенков и Сакраменто
+-  Затварят за седмица кръстовище на бул. „Хаджи Димитър“
+-  Osam medalja za AK Slavonija-Žito na Prvenstvu Hrvatske za mlađe seniorke i seniore
+-  धनुषाधाममा एक महिने मकर मेला सुरु
+-  Gráfica del día: Los aeropuertos y aerolíneas más puntuales
+-  Σχέδιο νόμου αποτροπής του shutdown στις ΗΠΑ από Δημοκρατικούς και Ρεμπουμπλικάνους
+-  Neige et verglas au nord-est ce lundi matin
+-  एमबाप्पे र ब्राइलीको गोलमा पीएसजी विजयी
+-  „Pericol iminent”. Alertă maximă în insula franceză Reunion, din cauza ciclonului Belal. Nici măcar salvatorii nu au voie să iasă afară
+-  Åklagarna ska presentera ny bevisning i gängmålet
+-  СК назвал число уголовных дел за фейки и дискредитацию армии
+-  Hafa tvö­faldað auð sinn á fjórum árum
+-  Wall Street : sans tendance mais score bien positif en hebdo
+-  Chủ quán phở lên tiếng vụ hot TikToker tố bị phân biệt đối xử: "Tôi có nói thông cảm vì đông khách, mà người ta dựng chuyện""
+-  Bus und Bahn zusammengestoßen: Mehrere Verletzte
+-  Neue Woche bringt Schnee und Glätte
+-  Ve duyuru geldi! Banka hesabı olan herkesi ilgilendiriyor en az 7.829,04 TL ödeme yapılacak
+-  민주평통 강릉시협의회 신년인사회
+-  UN피스코 꽁꽁축제 방문
+-  홍천희망로타리클럽 필리핀 봉사
+-  디자인 씽킹뮤지엄 창립총회
+-  [속보] 검찰, '尹정부 들어 4회 기소' 이재명 변협 징계 신청
+-  케이투앤 천사운동 후원금 전달
+-  소초농협 경로당 운영지원금 810만원 전달
+-  둔내면 영랑자율방범대 초소 준공 및 이취임식
+-  기아, 우버와 맞춤형 차량호출 PBV 만든다
+-  퇴계동 12개 자생단체장 국제스케이트장 춘천 유치 지지
+-  춘천시 아이스하키 동호회 국제스케이트장 춘천 유치 촉구
+-  국토부, 대전시에 ‘북부권 화물차 휴게소’ 조성
+-  자유총연맹 춘천시지회 양곡 전달
+-  현대차·기아, 지난해 美서 질적성장
