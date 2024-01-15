@@ -1,51 +1,11 @@
 # Latest News
--  Top ten import-dependent countries by GDP ratio
--  Nigerian students face stiffer admission hurdles into Canadian institutions
--  US cargo ship off Yemen is hit by a missile, British military confirms after Houthi rebels attacked American destroyer in the Red Sea
--  OnlyFans porn star 'who was spying for Belarus dictator Lukashenko's KGB secret service' is arrested
--  Sharon Osbourne, 71, admits she wants to 'put on another 10lbs' after losing 42lbs on Ozempic and becoming 'too gaunt'
--  Ensure staff are well-trained to provide timely updates on flight delays: DGCA tells airlines
--  France FIFA World Cup Finalist Only Getting Better At Inter Milan
--  OG friends! Kim Kardashian, 43, models low-cut catsuit alongside BFFs from childhood to celebrate Allison Statter's birthday: 'Best conversations'
--  AFCON 2023: Goldberg, Life Continental, Zagg Fuel Fans’ Frenzy As Super Eagles Draw In Abidjan
--  Dunelm shoppers 'turning heating off' thanks to 'cosy' teddy bedding now down to £11
--  3D in vitro human atherosclerosis model for high-throughput drug screening
--  Baidu Responds to Recent Media Reports on Ernie Bot
--  Tech Roundup: Using data as currency
--  Sophie Ellis-Bextor to release ‘Murder On The Dancefloor’ on vinyl for first time after ‘Saltburn’ success
--  US cargo ship off Yemen is hit by a missile, British military confirms after Houthi rebels attacked American destroyer in the Red Sea
--  Alrededor de 20 órdenes de captura históricas de extraditables están pendientes: Gustavo Sánchez
--  Hamas fights with a patchwork of weapons built by Iran, China, Russia and North Korea
--  Romania to explore opportunities in ICT and agriculture in Migori County
--  พ่อแม่ติดยาบ้างอมแงม ขังทำร้ายลูกติดเมีย ชาวบ้านเหลือทน ร้องเพจดังเข้าช่วยเหลือ
--  Dodental beving Japan blijft oplopen, nog steeds vermisten
--  Hoe kunstmatige intelligentie onze vrije keuze bij verkiezingen manipuleert
--  Nederlandse fascisten haatten 'de Haagse knoeiboel'. Hun eerste aanslag pleegden ze hier
--  Sluizen langs Markermeer gaan weer open
--  Commissie: politiek moet langjarige afspraken over migratie maken
--  Odisha Chief Secy Reviews Arrangements For Corridor Inauguration In Puri
--  Refah payı nedir, ne demek? Refah payı ne kadar, kaç TL olacak?
--  Brezilya'yı vuran selde 11 can kaybı
--  Harborne crash live after serious collision between pedestrian and van closes road
--  Nice Valentin Rosier için anlaşma sağladı
--  Light Opera of New Jersey Announces New Director of Outreach & Community Engagement
--  Canadian home sales close out 2023 with ’surprise’ gains: CREA
--  Fans call the coverage of Senegal's AFCON opener against Gambia a 'JOKE' and a 'disgrace' after no commentary was heard for nearly 15 minutes... before the pictures cut out completely amid technical issues
--  Pakistan, Iran agree to boost bilateral trade to $5b
--  Ricky Hatton took his assignment to ‘punch’ Stephen Mulhern very seriously indeed and people can’t stop watching
--  Companies give staff time off on ‘Blue Monday’
--  Give That Carton Of Berries A Shake To Check For Quality
--  Mythos Davos: Vom Zauberberg zur heimlichen Weltregierung
--  The Young and the Restless spoilers: Phyllis and Summer both suffer setbacks in love?
--  EU Debates 2040 Milestone Towards Carbon-neutral Future
--  Turismo en Chajarí: se espera que los números mejoren en la segunda quincena
--  رياح رملية تحجب الرؤية بالطريق السيارة الصخيرة/قابس..ودعوة إلى الحذر
--  Wann kommt der nächste Bahnstreik? Aktuelle Infos für Reisende
--  Woman killed in Israel suspected ramming attack
--  Mikaela Mayer vs Natasha Jonas begin time: When are ring walks in UK and US this weekend?
--  TCG Derya teslim ediliyor: Cumhurbaşkanı Erdoğan da katılacak
--  Heat pumps not economical choice for home heating in cold climates, Prince George contractor says
--  Ukraine ground commander says his troops, now on 'active defence', can still surprise
--  Heat pumps not economical choice for home heating in cold climates, Prince George contractor says
--  Kidnappet af Hamas: Nu er der nyt
--  Katar pauzirao slanje tankera kroz Crveno more
+-  Tracking molecules at turbo speed
+-  The new Abarth 600e will have a serious sting in its tail
+-  US company's lunar lander will burn up in Earth's atmosphere after failed moonshot
+-  Porsche is finally unveiling the all-electric Macan EV this month – Here’s what to expect
+-  EU debates 2040 milestone towards carbon-neutral future
+-  UPDATE: Walker got lost in Cairngorms in sub-zero conditions after dropping compass
+-  Kickoff | Rising star opens up on pressure at Chiefs
+-  Dogwifhat Up 350% in a Week, Which Meme Coins Could 100x Next?
+-  Minimum wage hike on July 1 will be higher than inflation; Minister wants to do more
+-  Mercedes chief Wolff signs new contract
