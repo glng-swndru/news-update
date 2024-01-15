@@ -1,51 +1,51 @@
 # Latest News
--  Başkan Erdoğan'dan AK Parti Konferans Salonu'na ziyaret
--  Beşiktaş'ta Eyüpspor mesaisi tamamlandı
--  Şırnak'ta terör operasyonlarında gözaltına alınan 6 şüpheliden 1'i tutuklandı
--  Çanakkale'de motokuryelerin trafiğe çıkması yasaklandı
--  Gizli fon davasında ara karar... Erzan'ın tutukluluk halinin devamına karar verildi
--  1 trilyon 7 milyar lira ödenek tahsis edildi
--  CHP'li adaylardan Özel'e sert tepki: Toplantıda tansiyon yükseldi
--  İsmail Yüksek'e Fransız kancası! Teklif resmen yapıldı
--  Şırnak'ta asayiş ve kaçakçılık operasyonu: 43 gözaltı
--  İşgalci İsrail yine esirleri vurdu
--  Caparov'dan provokasyonlara sert tepki... "İzin vermeyeceğiz"
--  İşgalci İsrail'den Gazze katliamı için ek bütçe... 15 milyar dolarlık savaş bütçesi onaylandı
--  BM, Filistinlilerin 1948'den bu yana maruz kaldığı işgale dikkat çekti
--  Umut Nayir Fenerbahçe'ye veda etti!
--  Kabine yarın toplanıyor... İşte gündemdeki konular
--  BM, işgalci İsrail ile ilişkilerinin "karmaşık ve zorlayıcı" olduğunu vurguladı
--  Montella'dan Beşiktaş'a ziyaret
--  Filistin Başbakanı Iştiyye'den UAD'ye çağrı... Gazze'deki savaşı durdurmak için acil karar alınmalı
--  La Tinka: conoce el resultado y ganadores del 14/01/24
--  F1-kuljettaja teki karun paljastuksen ensi kauden autostaan
--  Berisha: Luani i shqiptarëve po zgjohet
--  Poraz BiH, Češka ubedljiva protiv Grčke
--  Welhottarien hieno nousu toi vain yhden pisteen
--  El secretario de Defensa de EEUU es dado de alta del hospital
--  Encuentran en Ladrilleras Norte cuerpo putrefacto
--  Arévalo promete rescatar a Guatemala de la corrupción
--  Capturan en Sonora a hombre buscado por homicidio
--  SAT incumple meta de recaudación en 2023
--  Irã diz que não controla forças de resistência no Oriente Médio
--  Ubisoft+ Premium e Classics, l'abbonamento raddoppia su PC: ecco prezzo e giochi
--  Hamas appears to show dead bodies of two hostages after warning Israel
--  Kaboklo izveo Partizan do pobede protiv Cibone u Zagrebu
--  Κωνσταντίνος Βασάλος για Ντούα Λίπα: «Την κυνηγάω, χωρίζει και τα βρίσκει με άλλον»
--  Best 2-in-1 laptop deals: Turn your laptop into a tablet for $290
--  Begaj nuk lejohet të mbajë fjalën në Parlament
--  Дали Германија се подготвува за војна со Русија? Ги разгледуваме сите сценарија, па дури и оние кои се малку веројатни
--  Begaj: Kuvendi, jo arenë lufte! Duhet bashkëpunim mes palëve
--  Fewer car park spaces and smaller gardens under new house building rules issued to local authorities
--  Eprocomunicazione gérera le service de presse de l'Université européenne de Rome
--  Scots BBC star gives health update following 'devastating' brain cancer diagnosis
--  PARTIZAN UTIŠAO KRCAT &quot;DRAŽENOV DOM&quot; Crno-beli na pogon sjajnog Bruna Kabokla ostvarili trijumf u Zagrebu
--  Meran: Hier prügeln sich 2 Busfahrer
--  Όταν πούμε ΚΑΙ «το αγόρι της τάδε» ίσως μπούμε σε καλό δρόμο
--  Un 44,1% de hombres y 32,5% de mujeres creen que las políticas de igualdad discriminan a los varones
--  Kılıçdaroğlu'nun Paylaşımına Dikkat Çeken Yanıt!
--  ¿Cómo se elige al candidato presidencial republicano?
--  “¡Inmenso!”: Tapia fue elegido el mejor jugador de diciembre en Celta de Vigo
--  First Presbyterian Church of Wheaton to present program on race and racism
--  संस्कृति मंत्री बृजमोहन अग्रवाल ने किया ओम लिपि का विमोचन
--  HAMAS UBIO DVA IZRAELSKA TAOCA Treći zarobljenik saopštio vesti putem potresnog snimka
+-  Politika sa mieša so športom od pradávna. Ako majitelia klubov máme byť apolitickí, vraví Rapáč. Čo vraví na Hudáčka a koniec Radosu?
+-  المرسلي وفتاح علوي ضمن قائمة "فوربس"
+-  بنك المغرب يطرح للتداول ورقة بنكية جديدة من فئة 200 درهم
+-  إحداث نظام للتعويض عند استيراد القمح اللين لكمية أقصاها 25 مليون قنطار
+-  انتفاضة "الصغار"…
+-  الملك محمد السادس يراسل عاهل الدنمارك
+-  العربية المغرب تضيف رحلات جديدة انطلاقا من تطوان
+-  كأس إفريقيا للأمم.. المنتخب السنغالي يفوز على نظيره الغامبي (3-0)
+-  زيان في قلب قضية جديدة تتعلق ب"تبديد أموال عمومية" وشارية يكشف أسباب ودواعي المتابعة
+-  طنجة يتعاقد مع الطاير خلفا لنجحي
+-  إضراب واحتجاجات بقطاع التكوين المهني ومطالب بزيادة 2000 درهم في الأجور
+-  المغرب من أجل "زئير قاري" في مجموعة سهلة نظريا
+-  صلاح ينقذ مصر من لدغة "أفاعي" موزامبيق
+-  المغرب يرأس اجتماعا طارئا لمجلس وزراء الخارجية العرب لبحث تداعيات الاتفاق بين إثيوبيا وإقليم أرض الصومال
+-  بالفيديو.. المقاومة تنشر تفاصيل مقتل أسيرين إسرائيليين في قصف على غزة
+-  اللواء سمير فرج: العالم كله يتأثر سلبًا بتزايد التوترات في البحر الأحمر
+-  شعبة الذهب: التجار لا يتحكمون في الأسعار وليس لدينا أمبراطوريات في السوق
+-  المقاومة تعلن استهداف قوة إسرائيلية من مسافة صفر شرق خان يونس
+-  الحوثيون: استهدفنا سفينة أمريكية بالصواريخ في البحر الأحمر
+-  ماذا قدم منتخب المغرب طوال مشاركتها في كأس الأمم الإفريقية؟
+-  BM Genel Sekreteri Guterres'ten Kızıldeniz uyarısı: Ateşle oynamaktan vazgeçin!
+-  Pide Profeco revisar comisiones en envío de remesas
+-  Neznáma osoba nahlásila na tiesňovú linku požiar v Bielom dome: Išlo o falošnú informáciu
+-  Británia verí, že po útokoch zameraných proti húsíom v Jemene boli zasiahnuté všetky plánované ciele
+-  Učitelia z Pásma Gazy oslavujú masakru zo začiatku októbra: Synovia judaizmu, ešte sme neskončili!
+-  Ako sa v starobe vyhnúť demencii? Začať s prevenciou by ste mali už teraz
+-  FOTO učiteľa v nemocnici obletela svet: Len ťažko uveríte, čo robil iba pár hodín pred smrťou
+-  AKTUÁLNE zábery z tragickej dopravnej nehody! Auto vpálilo do rodinného domu: Dvaja chlapci nemali šancu prežiť
+-  Recopa SC tem cobertura especial na CBN
+-  Mi van köztük? Kucsera Gábor az Ázsia expresszes Varsányi Réka otthonából jelentkezett be - videón a páros
+-  Bakan Işıkhan'dan kısa çalışma ödeneği açıklaması... 450 güne indirildi
+-  Rishi Sunak, Yemen'deki saldırılarına ilişkin "orantılı ve zorunluydu" ifadelerine yer verdi
+-  Izveštaj Oksfama: Svet bi mogao da dobije prvog bilionera, ostatak planete biće siromašniji
+-  Fechas importantes de la convocatoria para el examen de Licenciatura de la UNAM 2024
+-  All you need to know about this year’s Emmy Awards
+-  Brutális időjárás változás lesz a héten: megdőlhetnek a melegrekordok
+-  أيقونة التنس العالمية” رافا نادال” سفيرًا لاتحاد التنس السعودي
+-  Weight loss influencer Mila De Jesus dies at 35, leaving 4 children and newlywed husband
+-  V hotelovej izbe v Paríži našli mŕtvu ženu: Polícia zatkla dve osoby, ktoré s ňou boli v kontakte
+-  Minister Geoffrey Wever: Proyecto di “Orange Economy” ta pa yuda empresario
+-  Nirvana Super is Harris Teeter’s Newest Product
+-  Ministério da Justiça e governo da Bahia assinam acordo sobre câmeras em fardas de policiais
+-  Palestinians will govern Gaza after war: Israel defence minister
+-  Daniela Büchner: Neffe von Reality-TV-Star bei Autounfall gestorben
+-  It will be explosive – Anthony Joshua to take on Francis Ngannou on March 8
+-  Short-term social care funding ‘not having desired effect’, report suggests
+-  Zvezda upalila motore na Pafosu: Milojević gurnuo igrače u mašinu
+-  Armed Forces Day: Gov Fubara releases N130m to veterans
+-  Φιλοθέη Μωβ στον Γιάννη Βαρδή για τον γάμο με τον πατέρα του: Άμα θέλει η νύφη κι ο γαμπρός, δεν ρωτούν τους κουμπάρους
+-  Königin Mary von Dänemark: So clever wählt sie ihr Krönungskleid aus
