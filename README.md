@@ -1,51 +1,11 @@
 # Latest News
--  37 venäläistä jääkiekkoilijaa kärähti dopingista - seuran tiedote on kuin suoraan Putinin pelikirjasta
--  Suomalaiselle NHL-maalivahdille upea nollapeli
--  Aitana Bonmatí ganó el The Best como la mejor jugadora del 2023
--  “SpaceX” orbitə yeni peyklər buraxıb
--  מי יסיים אחרי טראמפ? הפריימריז הרפובליקניים יתחילו הלילה באיווה
--  הפיח בהן תקווה: גלעד שליט נפגש עם משפחות החטופים
--  "J’ai pensé au pire" : Mickaël (L’amour est dans le pré 2024) se confie sur le décès de sa femme
--  Хусите се заканиха да стрелят по всеки американски кораб
--  Тъжна вест: Почина бившият кмет на Кърджали
--  Асеновград чества годишнината от освобождението си ПРОГРАМА
--  Boeing plans additional inspections: 'Not where we need to be'
--  В США пенсионер ограбил отделение банка - ПОДРОБНОСТИ
--  Sukuelin­herpeksen seksi­kumppaniinsa tartuttaneen tuomio pysyi hovi­oikeudessa – uhrille yli 15 000 euron korvaukset
--  SAT recauda 4.5 billones en la actual administración
--  Eventual regresso Republicano à Casa Branca preocupa imigrantes no Iowa
--  На Украине предлагают мобилизовать 100 депутатов
--  ФИФА объявила символическую сборную 2023 года
--  Messi named FIFA player of 2023
--  Progresívne Slovensko považuje deľbu vládnych dotácií v Trenčianskom kraji za nespravodlivú: Vláda to odmieta
--  Zelená transformácia má Európsku úniu ekonomicky posilniť, nie ju zničiť, tvrdí Taraba
--  Masové protesty v Nemecku pokračujú! V Berlíne sa zišli nespokojní farmári na svojich traktoroch
--  USA po misii v Somálsku hlásia dvoch nezvestných príslušníkov US Navy SEALs
--  Švédsko oznámilo, že iránske úrady zadržali jeho občana
--  Nenechaj si ujsť: Frayer Flexking a Tina uvarili na zimu parádny letný hit
--  Najbohatší a najžiadanejší sexi mladík už je v chomúte! Honosná svadba trvala 10 dní, pozrite sa na ten luxus
--  Herečka po schudnutí 36 kíl: Opäť PRIBRALA... Cítim sa kvôli tomu ZLE!
--  How Lalong, 22 other lawmakers benefitted from Appeal Court’s ‘wrong’ judgements
--  بمشاركة 40 عارضا من بينهم 5 شركات أجنبية: افتتاح الصالون الدولي للرياضة والصحة والتغذية بوهران
--  علامة السيارة التي ستركب لم يعلن عنها بعد،وزير الصناعة من باتنة : عمال مصنع كيا وهيونداي سيعودون لمناصبهم بعد شهر ونصف
--  إلى قيام دولة فلسطين قريبا..؟!
--  تقديم 16 ألف طن من الأسمدة الفلاحية لكينيا،حمزة حسام: هو تأكيد لمبدأ التضامن وجدية خطاب الجزائر نحو أفريقيا
--  الصندوق الوطني للتأمينات الاجتماعية للعمال الأجراء: ضرورة التصريح بالأجراء إلكترونيا قبل 31 جانفي الجاري
--  佛매체 "이선균 사건, 한국 사회와 유명인에 대한 의문 제기"
--  Normandie: de nouvelles chutes de neige attendues mercredi
--  "Je suis déchirée" : très émue, Agnès Jaoui évoque ses proches disparus après les attaques du Hamas en Israël
--  Leverkusener Xhaka Schweizer Nationalspieler des Jahres
--  Messi wieder Weltfußballer des Jahres
--  AfD trennt sich von Weidels Referent
--  ولي العهد: مبارك الفوز لنشامى منتخبنا
--  AfD trennt sich von Weidels Referent Hartwig: Nach Rechtsradikalen-Treffen in Potsdam
--  Manitoba government spends over $1.6 million on heritage initiatives
--  Число погибших после теракта в сельсовете на западе Украины возросло до двух
--  Gżira mal-aħħar sittax b’rebħa fuq Fgura
--  Лавров и глава МИД КНДР обсудят обострение ситуации на Корейском полуострове
--  Alice Weidel trennt sich von ihrem Referenten Roland Hartwig
--  Alice Weidel trennt sich von ihrem Referenten Roland Hartwig
--  Messi fatura o The Best da Fifa e é eleito o melhor jogador do mundo pela 8ª vez
--  Es geht um Enkelin Lillibet - Queen war stinksauer auf Harry und Meghan
--  Europee, Tajani “Per Forza Italia l'obiettivo è la doppia cifra”
--  Nach Trennung: Busy Philipps nutzt keine Online-Dating-Apps
+-  InPost będzie miał CFO z Biedronki
+-  Ropa tanieje mimo eskalacji ataków na Morzu Czerwonym
+-  Baby stung by Irukandji jellyfish on K’gari now third person to suffer marine sting on Queensland island in just two days
+-  יש מי שיקבל אחריות, יש מי שיצדיע ויילך - ויש מי שייאחז בכיסא
+-  לשבור את שגרת המלחמה: "מונית הכסף" המציאה את עצמה מחדש - ובדיוק בזמן
+-  Grand Prix internazionale KATA di Judo a Leinì
+-  Lippi: “La Juve mi piace, Allegri tecnico di grande cultura sportiva”
+-  ValleBelbo Sport: ottimi spunti alla Coppa Albanese
+-  Jimmi Briceño se adueñó del liderato de la Vuelta al Táchira
+-  Josef Fritzl z szansą na zwolnienie warunkowe? Jest opinia psychiatryczna
