@@ -1,51 +1,51 @@
 # Latest News
--  A mother and daughter die in the fire in Pale, father saves two children
--  Robert Irwin breakdances in campy all-singing all-dancing first-look trailer for the new season of I'm a Celebrity… Get Me Out of Here!
--  Fighter Trailer: Hrithik Roshan, Deepika Padukone, Anil Kapoor and the team of Air Force officers showcase bravery, thrill in glorious cinematic glimpse, watch
--  Katrina Kaif charms us all in regal Sabyasachi lehenga for Ira Khan and Nupur Shikhare's wedding reception
--  Nupur Shikhare shares heart-warming pictures with bride Ira Khan after wedding reception; see post
--  Fighter Promo: 5 Dialogues which will evoke the Indian within you
--  Adhyayan Suman to share screen with Miss Universe Diva, Divita Rai in a film set in 90's era
--  Fighter trailer launch: Siddharth Anand ADMITS Hrithik Roshan-Deepika Padukone film was "Not easy"; says "It's a team effort, not a one-man show"
--  Sonam Kapoor is imparting a sense of spring even in winters by wearing her red floral Anarkali
--  Ayushmann Khurrana receives special invitation for historic Ram Mandir Pran Pratishtha event in Ayodhya
--  Kurtley Beale arrives at court for sexual assault trial as troubled Wallabies star faces hearing over alleged incident at Bondi Beach hotel
--  One in five now say goodbye to their loved ones without a service as funeral costs more than double over 20 years - while map reveals the areas where they are most expensive
--  New Lease on Life at 49: Kiran Kumar’s Journey to Recovery with a Complex Heart Transplant at BGS Gleneagles
--  Critics Choice Awards viewers left in hysterics by 'confused' Cillian Murphy as excitable Robert Downey Jr plants kisses on him after Best Supporting Actor win
--  Romantic art to Football frenzy: What's in store for travellers in Germany in 2024
--  Delays to NorthLink ferries
--  Preise für Agrarprodukte wie Milch und Getreide gesunken
--  Healthcare students can receive $12k subsidy
--  김천 개령면 삼흥플랜트 희망나눔 캠페인 성금 300만원 기탁
--  경북 영천보현산별빛축제, 6년 연속 경북도 우수 축제 선정
--  남자는 군인, 여자는 카페서 논다? 'AI가 그린 한국남녀'
--  영주시, 미취업·미창업 청년 어학·자격시험 응시료 최대 20만원 지원
--  [속보]크렘린궁 "푸틴 방북 조만간 이뤄지길 희망…北최선희 만남 배제 안해"
--  북, 고체연료 사용한 극초음속미사일 개발 주장…긴장 수위 높아진 한반도
--  정부, 북한의 미사일 도발에 '즉각, 강력히, 끝까지' 대응 원칙 천명
--  반도체 수도권 투자 쏠림 가속화… "지역 위한 특단의 대책 내놔야"
--  故이예람 중사 '2차 가해' 혐의 중대장 실형…대대장은 무죄
--  전청조 "범행에 큰 역할 한 사람 '경호실장 역할' 이모씨와 남현희"
--  MagicCube Partners with Shift4 to Offer Android Tap-to-Pay Solution
--  Manoj Jarange to launch indefinite fast in Mumbai from Jan 26
--  Punjab court grants bail to Congress MLA Sukhpal Khaira in criminal case
--  'We Have Our Own Voice': BBC Presenter Skewers Minister Over UK's Lack Of Action In Gaza
--  India is a $10 trillion economy in making, says WEF president Borge Brende
--  Newly appointed president Arevalo promises to rescue Guatemala from corruption, impunity
--  Abarth y Stellantis Motorsport crean su bestia eléctrica
--  شاداب خان کی 3 دن میں طے پانے والی شادی کا دلچسپ قصہ
--  Пловдивско семейство вдигна кърджалийската пожарна на крак
--  Fubara: I Want To Be Remembered For Good Governance
--  Saltburn’s Rosamund Pike shares new details of ‘messed up face’ after skiing accident
--  Залужны пацвердзіў збіццё расійскага звышкаштоўнага самалёта над Азоўскім морам
--  Flavours On Fire: Unveiling The Best 6 Ikan Bakar Spots In KL
--  Bakan Şimşek'ten kararlılık mesajı
--  Dara Antik Kenti'nde içme suyu kanalı bulundu!
--  [오리온, 6000억 투입해 레고켐바이오 최대주주 된다
--  [임윤아, ‘느낌 아니까’ 주얼리 모델로 저스트 매칭
--  ['정준영 단톡방' 최종훈, 복귀 움직임…日 커뮤니티에 '인사'
--  [롯데케미칼, 파키스탄 법인 매각 무산…“사업 포트폴리오 고도화 계속 추진”
--  [“‘몸값 700억’ 손흥민 보다 긴장했다” 그라운드 밖 수호신…누군가 했더니
--  '집단성폭행' 최종훈, 연예계 복귀?…日 팬 커뮤니티에 "5년 만에 인사드린다"
--  Brit woman, 76, drowns after disappearing under a rogue wave while swimming off Costa Rica beach
+-  President Tharman, Josephine Teo & Tan See Leng will speak at Davos World Economic Forum
+-  Over 50 critical infrastructure projects destroyed by ongoing rains in Narok
+-  Alpine announce 2024 motorsport season launch date
+-  Kickoff | PSL Big Three’s AFCON interest
+-  Kickoff | Motsepe makes big African football claim
+-  Coco Gauff advances to Australian Open second round in bid for consecutive Slam titles
+-  Mukesh Ambani Eyes For Share In Sri Lanka Telecom Company
+-  Bank Valuations Likely To Rise By $7 Tn In 5 Years: Report
+-  Boeing Opens Its First India-focused Distribution Centre In Uttar Pradesh
+-  DoT May Halt Starlink's Satcom Plans In India, Seeks Clarity On Ownership Disclosure
+-  HCLTech, SAP Forge Strategic Partnership To Leverage Generative AI
+-  Go First Lender's Set 31 January As Late Date For Bids From Investors
+-  Jyoti CNC IPO Set For Debut Amid Listing Optimism On 16 January
+-  Avalon Technologies Signs Partnership With C-DAC; Stock Jump 4%
+-  About 47% Female Earners In Metros Take Independent Financial Decisions: Report
+-  Wealth Of 5 Richest Men Doubled Since 2020 As 5 Bn People Fallen Into Poverty: Oxfam
+-  Alperen'in maçı 21:00'de S Sport'ta
+-  Bursaspor, Ahmet Hakan Atış ve Ahmet Berke Ay'la profesyonel sözleşme imzaladı
+-  Hande Erçel "hedef gösteriliyorum" diyerek isyan etti
+-  Bursa Valisi Mahmut Demirtaş "Yılın Kareleri" oylamasına katıldı
+-  15 yaşında katil oldu, şaka yapan arkadaşını bıçaklayarak öldürdü
+-  On a Mission in Crafting a Creative Legacy in Premium Stationery Segment
+-  UK to ‘consider’ whether further Red Sea action needed, says Defence Secretary
+-  جزيرة ناورو تقطع علاقاتها مع تايوان وتتحول إلى بكين
+-  اليابان وأمريكا وكوريا الجنوبية تدين إطلاق كوريا الشمالية لصاروخ باليستي
+-  رئيس البرلمان يحيل اتفاقيتين للجنة الطاقة والبيئة
+-  Dietmar Bartsch (Linke) warnt vor Fixierung auf AfD und Höcke
+-  Inhoudelijk proces moord 9-jarige Gino na de zomer verwacht
+-  9-jarig meisje overleden na ongeval met quad in Landgraaf
+-  Duitse economie krimpt in 2023 voor het eerst sinds corona
+-  Senator BBB vreest aantasting lokale autonomie door spreidingswet
+-  Mogelijke opdrachtgever explosies Rotterdam en Vlaardingen opgepakt
+-  Zeer zware avondspits op maandag en dinsdag door winters weer
+-  Marcouch: verbranden van koran valt onder demonstratierecht
+-  Eline de Zeeuw nieuwe presentator NOS Sport
+-  United Nations seeks $4.2 billion to help people in Ukraine and refugees this year
+-  UWV ziet af van 5000 'onterechte' boetes
+-  Salvaje mata a golpes a una bebé en Emboscada
+-  Congress-AAP Join Hands For Chandigarh Mayor Polls, Eye 2024 Lok Sabha Alliance
+-  LISTEN | 28-million people rely on social grants’: Ramaphosa boasts about ANC’s efforts to prevent poverty
+-  TCL Wins EcoVadis 2024 Gold Award for Sustainable Practices
+-  Nicolas Cage skjønner ikke hvorfor Disney aldri ville lage National Treasure 3
+-  Inside True Detective season 4 with Jodie Foster's protege Finn Bennett
+-  Weavers ihaleye çıkıyor!
+-  Bakan Bolat, cari işlemler hesabında kalıcı iyileşme sağlamak için çalıştıklarını belirtti
+-  Boş bulunan 1 HSK üyeliği için 6 başvuru
+-  Taxiarchis Fountas, Trabzonspor'da siftahını yaptı
+-  İYİ Parti'de bir istifa daha
+-  Yeni teklif yolda! Fenerbahçe'den Anthony Martial atağı
+-  95 öğrenci gıda zehirlenmesinden etkilendi
