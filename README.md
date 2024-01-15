@@ -1,11 +1,11 @@
 # Latest News
--  옥타, 이석호 신임 한국법인 대표 선임
--  캐논코리아, 'EOS R' 카메라·렌즈 가격 인하…공격적 보급 확대 나서
--  Доход главы Apple резко упал
--  Бастрыкин рассказал о расследовании дел о терроризме
--  Đỗ Mỹ Linh khoe vóc dáng quyến rũ hậu sinh nở, đọ sắc cùng "chị đẹp" Quỳnh Nga tại show của NTK Hà Duy
--  5 điểm nhấn Việt Nam gặp Nhật Bản: HLV Troussier linh hoạt, lớp trẻ tỏa sáng
--  Người thoát nạn kể lại thời khắc đau lòng trong vụ cháy khiến 4 người tử vong tại Hàng Lược
--  Thiên thần Victoria’s Secret vào gia tộc vua sòng bạc Macau: Tủi nhục vượt ải tuyển vợ, 5 năm chạy chỉ tiêu sinh con vẫn chưa chính thức làm dâu
--  Dàn sao triệu đô của tuyển Nhật Bản đồng loạt bàng hoàng khi chứng kiến tuyển Việt Nam thi đấu, tấm tắc khen hết lời
--  Hoàng hậu "vạn người mê" của Bhutan tham dự đám cưới Hoàng tử Brunei, nhan sắc hiện tại khiến ai cũng bất ngờ
+-  Fatih'te metruk bina yandı
+-  İsrail'den Filistinlilere insanlık dışı mektup: Evlerinizi yıkın
+-  43 ayrı dava açtılar! İstanbul'da dönüşüme CHP engeli
+-  Ankara'da altyapı çilesi vatandaşı bezdirdi: Mansur Yavaş bizi mahvetti
+-  Türkiye geliştirdi, dünya modelledi! 10 ülkede kurup yönetiyoruz
+-  "Mercek-9" operasyonlarında 2036 şüpheli gözaltına alındı
+-  Şehitlerimize yönelik provokatif paylaşımda bulunan 18 kişi yakalandı
+-  MİT ve TSK'dan intikam vuruşları! Hain saldırıların cevabı ağır olacak
+-  Palestine supporters slam Cape Town graffiti clampdown
+-  지난해 아파트 청약자 59% 수도권 선택…10개 지역 집중
