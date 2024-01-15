@@ -1,51 +1,11 @@
 # Latest News
--  Australian Open Highlights: Omar Jasika v Hubert Hurkacz
--  Australian Open Highlights: Omar Jasika v Hubert Hurkacz
--  بينهم سيدة وطفلان.. قوات الاحتلال تعتقل 55 فلسطينيا من الضفة
--  القرفة صيدلية متكاملة.. تحمي من السكري وتخفض الكوليسترول والضغط
--  أخبار السعودية.. أسباب ارتفاع الأسعار بالمملكة وطريقة سداد الدفعات الإيجارية للعقود السابقة
--  15 yaşında katil oldu, şaka yapan arkadaşını bıçaklayarak öldürdü
--  Бесни фермери на протест в Берлин: 3 хиляди трактора се стичат към столицата
--  Костадин Димитров: Първо да подобрим чистотата и трафика, после да мислим за “Альоша”
--  4-ма нередовни шофьори спря полицията в Хасковско през уикенда
--  Търпението му се изчерпа: Байдън е разочарован от израелския лидер, ситуацията се влошава...
--  Откриха труп на мъж, а до него - обувките му
--  Инсталираха слънчеви електроцентрали на пет турски летища
--  Честита радост! Валентин Черпоков стана дядо за втори път
--  За 9 часа в Пловдив: Над 100 шофьори изгоряха с глоби, трима минали на червено
--  3 çocuk annesini 17 yerinden bıçaklayarak katletti!
--  Отиде си университетски преподавател, обичан от студентите
--  Afghan products exhibition to be held in Ashgabat
--  Thấy gì từ trận đội tuyển Việt Nam thua Nhật Bản: Vượt bão hoài nghi, ươm mầm hy vọng
--  5 kiểu áo khoác phù hợp để mặc với quần jeans
--  “Flex SchoolRank” sương sương, học sinh Gen Z có cơ hội sở hữu tổng giải thưởng 200 triệu đồng
--  Mang Tết vào nhà với loạt món đồ decor siêu chill siêu rực rỡ, chỉ cần cầm 100.000đ là bạn sắm "tẹt ga"
--  Εντείνεται το πρόβλημα της διάβρωσης στον Ταυρωνίτη
--  Grüne Wien/Stark, Hammer: Wien profitiert von Grüner Radoffensive, lässt aber weitere Fördermillionen liegen
--  Bruna Gomes e Álvaro Maia são os reis no Carnaval de Buarcos/Figueira da Foz
--  Combine fashion and fitness with Kate Ferdinand’s first F&F collection
--  Exactly what happens days, weeks, months and years after you stop eating sugar
--  ภาวะตลาดตราสารหนี้ : วันนี้มีมูลค่าการซื้อขายรวม 74,461 | RYT9
--  Betfair free bets: Get £30 welcome bonus when you stake £10 on horse racing
--  North Lanarkshire budget 2024: Trade council hits out as survey seeks views on services and charges
--  Fiyatı uçtu litresi 435 TL oldu. Yemeklerde artık kullanamayacaksınız. Türk mutfağının vazgeçilmeziydi
--  Karmea rikosepäily: Uhri sytytettiin palamaan
--  نجم ريال مدريد يواصل إثارة الجدل في السعودية (فيديو وصور)
--  SANs, CUPP Push For Electoral Act Amendment
--  Perdonan más de medio millón de euros a un matrimonio de Bilbao que tuvo que cerrar su negocio por el covid
--  Derailment disrupts train services on Up-country Line
--  El aeropuerto de Bilbao toca el cielo y dispara su récord hasta los 6,3 millones de pasajeros
--  Gus Yahya Sindir Balik Cak Imin: Yang Meragukan Gak Pernah Jadi Pengurus NU
--  ‘I Know It’s Not Just The Music, I Will Pay Whatever Price Other Singers Paid To Be Successful’ – BNXN Vows
--  King Frederik X visits Danish parliament on his first formal work day as Denmark’s new monarch
--  Rente Auszahlung Januar: An diesen Tagen ist es soweit
--  Expectativa en Haití por orden de arresto a exfuncionarios corruptos
--  Bursa'da şampiyon olmak için kıyasıya yarıştılar
--  The Bureau Sales to showcase ‘ Animal Tales Of Christmas Magic’ at Paris Rendez-Vous (exclusive)
--  TRI GREN SLEM ŠAMPIONA ISPALA U PRVOM KOLU AUSTRALIJAN OPENA! Svi se pitaju šta se to dešava u Melburnu?!
--  Osakidetza comienza con la contratación de profesionales sanitarios extracomunitarios
--  Calls For Tinubu To Investigate Buhari Administration Intensify Amid Allegations Of SIP Fund Misappropriation
--  表演賽｜雙紅會經典再現 傑斯首度訪港 周六大球場鬥奧雲科拿
--  Borsa günün ilk yarısında yükseldi
--  新冠︱長期病患6歲女童確診肺炎 已打3針情況嚴重須留院
--  Milei off to Davos, has meeting arranged with IMF's Georgieva
+-  Ra’isul Wasaare Xamse oo la kulmay safiirka Imaaraadka iyo xogta waxii ay kawada hadleen
+-  (الطرابلسي) يجتمع غدا الثلاثاء مع النقابات والجمعيات الخاصة بالشاحنات وسيارات النقل
+-  الطالبي العلمي يمثل صاحب الجلالة في حفل تنصيب رئيس جمهورية غواتيمالا الجديد
+-  باحثون وأكاديميون يتداولون حول مظاهر تفرد الثقافة الأمازيغية
+-  حنان وقاص تفوز بملكة جمال الامازيغ "2974"
+-  محامون بجنوب إفريقيا يعتزمون مقاضاة واشنطن ولندن لدعمهما إسرائيل
+-  صحة حماس تُعلن مقتل أكثر من 60 فلسطينيا بغارات إسرائيلية على غزة
+-  كان 2023.. "أسود الأطلس" في مهمة صعبة لتأكيد مسارهم العالمي الاستثنائي
+-  أسعار صرف أهم العملات الأجنبية اليوم الإثنين
+-  ارتفاع الطلب وتراجع الإنتاج يرفعان الأسعار في سوق الدواجن بالمغرب
