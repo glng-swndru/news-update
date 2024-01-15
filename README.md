@@ -1,51 +1,11 @@
 # Latest News
--  Сенатор Пушков объяснил, почему требует жесткого наказания за треш-стримы
--  토포하우스, 국내 건축가 25명의 '드로잉전-사유'
--  윤 "반도체 없이 돌아가는 산업 없어…메가 클러스터 622조원 투자"
--  언더핀, K-뷰티산업협회와 '맞손'…베트남 진출 본격화
--  임영웅, 아이돌 차트 3년 연속 1위로 독주 체제 완성
--  كرة اليد .. ذكور اتحاد طنجة يفوزون على أهلي طنجة الرياضي والإناث يفزن على جمعية اتحاد الطلبة
--  스코넥, 메타 공동 개발 FPS ‘스트라이크러시’ 티저 영상 공개
--  [다시 뛰는 이커머스] ④ ‘매각 수순’ 11번가, 기업 가치 끌어올리는 데 집중
--  브로드컴, VM웨어 비핵심 사업 매각…사모펀드 기업들 ‘관심’
--  옥타, '30년 IT 전문가' 이석호 한국대표 선임…"성장동력 확보"
--  Malaysia is the next host of Acer Predator League, set to happen in 2025
--  김연견에 응답한 수원 배구팬….승리로 보답한 현대건설
--  HD현대중공업, 3101억 규모 가스운반선 2척 공급 계약
--  Il Tam Tam trova la vittoria all'overtime contro Asti
--  사랑의열매 목표 모금액, 작년보다 하루 일찍 초과 달성
--  넷플릭스 '비밀의 비밀' 소재된 퇴행성 뇌 질환…증상은?
--  안동시, 농업인력의 확보방안 다변화
--  우리은행, 혁신 스타트업 10개사에 100억원 규모 투자
--  서영교, '李, 의학적 근거 밝히라'는 안철수에 "참 철없는 소리"
--  본죽&비빔밥, 1천호점 오픈…‘대표 한식 브랜드 도약 원년’
--  '마약젤리' 밀수입 일당 적발…힐링센터 성직자도 가담해
--  尹 지지율, 0.6%P 오른 36.3%…국민의힘 39.6% 민주 42.4% [리얼미터]
--  신세계푸드 ‘노브랜드 버거’ 허브순살치킨런 출시
--  현대백화점그룹, 제주 당근 농가 지원키로···총 200톤 매입
--  금융권, ‘서민·소상공인 신용회복 지원’ 힘 모아…‘290만명’ 혜택
--  김주현 “연체자 재기 기회 필요, 신용회복 지원 신속 시행해야”
--  광주 북구, 건국 자연마을 숙원 '농어촌 하수도 설치' 준공
--  How Leonardo DiCaprio shaped ‘twisted’ love story in ‘Killers of the Flower Moon’
--  Gran Hermano 2023: Sabrina Cortez sigue en juego
--  '결혼 45년 차' 이혜정-고민환, 가상 이혼 합의…"지금도 반 이혼 상태"
--  "가장 외로운 왕은?"…이용식, 딸 상견례서 퀴즈쇼 왜
--  [영상] [2024 전북일보배 전국 스키·스노보드 대회] 시상식
--  '헌혈정년' 제주 김광선씨 마지막 헌혈…25년 간 437회
--  6 Fakta Film Pasutri Gaje: BCL Bakal Nyanyi Soundtrack, Reza Rahadian Bahas Chemistry Cuma 20 Persen
--  민주, '이재명 피습' 부적절 발언 김한규 의원에 "엄중 경고"
--  '네 번째 亞컵 출전' 손흥민, '약속의 땅' 카타르서 우승 도전
--  '불륜 스캔들' 김제시의원, 폭행 및 스토킹 혐의로 송치
--  대형 보험사들, 보험계약대출 가산금리 줄줄이 인하한다
--  지석진, 오늘(15일) '런닝맨' 촬영 복귀…'건강상 휴식' 한 달만
--  "설탕 줄이자 MZ에 인기" GS25, 스키니피그 '저당 바닐라 쿠키슈' 판매
--  4 Tokoh Penyandang Disabilitas yang Berjasa Membebaskan Perbudakan Dunia
--  Самолет авиакомпании "Ямал" вынуждено сел в Новосибирске из-за неисправности
--  Washington hires Jedd Fisch: Assessing the circumstances, risk factors and sample size behind the move
--  Richarlison, Bentancur score as Tottenham salvage 2-2 draw with Man United
--  본죽&비빔밥, 1000호점 오픈…"한식 브랜드로 유일"
--  게임이용자협회 출범…"게이머 목소리 전달할 것"
--  아워홈, 'K-푸드 전령사'로 나선다…"글로벌 진출 본격화"
--  [인사] 한국아이닷컴
--  하나카드 ‘5R 극장우승’-NH농협카드 ‘정규리그 1위’, PS만 남았다[PBA 팀리그]
--  '컴백' 엔믹스, 신선한 매력 품은 새 미니 앨범 'Fe3O4: BREAK' 발매
+-  Shanghai unveils measures to boost equity investment
+-  약가인하로 주춤 옵투스제약, 2024년엔 본격 성장궤도 돌입하나
+-  „Zukunftsaussichten von Landwirten verbessern“ - FDP will Aus für Agrardiesel durch Abbau von Bürokratie ausgleichen
+-  자동차보험 진료비 상승‥심평원, '첩약·약침' 집중심사 예고
+-  Arizona boy whose presents went missing after being loaded into wrong car gets his loot
+-  조응천 "설 전 '통합정당' 1차 목표…이낙연·이준석도 공감"
+-  황병우 대구은행장 "시중은행 전환 앞서 경영역량 결집하자"
+-  LG생활건강, ‘구찌 알케미스트 가든’ 신제품 출시
+-  삼성물산, 부산 촉진2-1에 래미안 역량 집중…"미래주거 새 아이콘"
+-  한미약품, '한국형 비만약’ 내국인 대상 임상 3상 순항
