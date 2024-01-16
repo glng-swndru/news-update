@@ -1,51 +1,11 @@
 # Latest News
--  US companies are complaining that US big tech is ignoring a new antitrust law
--  Tickets go on sale for Venice day trippers
--  Iceland eruption confirms faultline has reawakened: expert
--  Polish truckers suspend Ukraine border blockade
--  Eagles center Jason Kelce intends to retire after 13 NFL seasons, AP sources say
--  Canada’s December warmth made twice as likely by climate change
--  Met Office speaks out as map shows '80mph' snow storm smashing into UK
--  Festive season celebrations dampen health uptake for truckers
--  Pet Care Market: Projected Growth at a CAGR of 5.6% from 2023 to 2031
--  Ted Cruz Received An Earful After Joking About His Cancun Vacation As Texas Gears Up For The Arctic Blast
--  Rescuers in daring bid to save sheep trapped by Iceland volcano
--  Uniqlo sues rival Shein for allegedly copying popular bag
--  Ireland icon’s nephew to captain Under 20s throughout Six Nations as they bid to repeat Grand Slam heroics
--  Brilliant reason Malik Lemmy aka Govi grew out his beard
--  Ex-Llandudno subpostmaster criticises delays 'madness'
--  Footballer ‘stabbed in the chest inside nightclub in planned act of retribution’
--  Met Office snow warning as second wave set to hit UK sparking travel chaos and school closures
--  Meet Andre Onana’s little-known goalkeeper cousin who has more Cameroon caps than Man Utd star
--  57 drinking and driving arrests at Walvis and Swakop during December
--  UNT alumna wins first runner-up for Miss America pageant
--  Christina Applegate makes moving appearance at the Emmy Awards
--  Man accused of attacking gunman in restaurant where he suffered fatal injuries remanded in custody
--  Betway SA20 has its first Catch R2 million winner – WATCH
--  Snowfall warning issued for southwestern Alberta
--  Republican Asa Hutchinson ends 2024 presidential campaign
--  Younger workers need to be in the office because of AI, PwC’s U.K. boss says
--  Russia’s Dependency On China Resulting In Its Strategic Failure: EU Chief At WEF
--  Consumer Tech Brand Infinix Debuts Its 16-inch Laptop, INBOOK Y4 Max
--  Consumer Tech Brand Infinix Debuts Its 16-inch Laptop, INBOOK Y4 Max
--  Putin Embodies War: Zelenskyy Urges Western Unity In Davos To Counter Russia
--  Diddy Settles Racism Lawsuit Against Diageo Over Tequila Partnership
--  VinFast motors into US ebike space with vintage-inspired DrgnFly
--  Paris Olympic Village Hit By French Real Estate Downturn
--  'Please hurry!' | 911 calls from scene of Fort Worth hotel explosion released
--  Exclusive: Sunderland and Derby County interested in signing League Two goal machine
--  PKL 2023 Points Table: Jaipur Pink Panthers Leading the Standings With 53 Points
--  India turns to Mideast oil as sanctions keep Russian crude tankers stuck at ports, New Delhi says
--  Jollibee opens first Common Man Coffee Roasters cafe in PHL
--  Lord Farmer: Penal Populism Isn’t Really ‘Hard on Crime’
--  Vacancy: St Vincent de Paul seeks Regional Social Housing Officer
--  Treasure Hunter Falls to Death in 12-Story Pit That He Believed Held Gold - His Assistant Could Only Watch
--  Tauba Tera Jalwa | Song - Mujhe Ishq Ke Par
--  Animal | Song - Saari Duniya Jalaa Denge
--  Sidharth Malhotra celebrates his birthday by cutting a cake with fans and paparazzi
--  Rent rises for Birmingham council tenants ‘unavoidable’ amid major plans to tackle housing crisis
--  Captain Miller shooting location: Know where was Dhanush’s action adventure movie filmed in India
--  The Mahakumbh of Literature is back
--  Beeper users say Apple is now blocking their Macs from using iMessage entirely
--  Man caught after he disguised as a woman to write exam for his girlfriend
--  Exposure to AI models may improve clinical efficiency and care
+-  Kyle Edwards signs for Oxford United until end of the season
+-  JBM Brokers the Sale of Pearce at Pavilion for $66MM
+-  Global Transdermal Drug Delivery Clinical Pipeline Research Report 2023: Stages of Development, Segments, Region and Countries, Regulatory Path and Competitive Landscape
+-  Rooted School Foundation's "The $50 Study" Awarded $1 Million from the City of New Orleans Office of Economic Mobility
+-  Atlas-SSI Strengthens Water Screening Solutions Portfolio with Acquisition of Containment Barrier Leader ABASCO
+-  Roy Hodgson speaks out on Crystal Palace interest in Kalvin Phillips
+-  Despot Xi’s brutal military purge ‘ushers in gung-ho generals willing to fight Taiwan at ALL costs…even if it means WW3′
+-  Police incidents block major Vancouver intersections
+-  Wine Industry Leader Bronco Wine Co. Turns 50
+-  N.B. student absences dropped in November compared to 2022, data shows
