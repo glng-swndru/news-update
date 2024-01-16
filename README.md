@@ -1,11 +1,51 @@
 # Latest News
--  Kickoff | Cameroon boss explains Onana's absence after disappointing Guinea draw
--  Kickoff | How Foster is affected by new Chelsea striker at Burnley
--  دي روسي مدربا لروما بعد إقالة مورينيو
--  Nå er dette datoen
--  Kundens otäcka upptäckt i Skogaholms bröd
--  Neige au Havre et à Rouen : suivez les perturbations pour mercredi
--  Tiktoker nổi tiếng gây tranh cãi với tuyên bố “sinh con là ích kỷ”: Người đồng tình, người lao vào chỉ trích
--  Timor-Leste | ONG adverte para aumento do tráfico humano no país
--  Soccerladuma | Three Top Stars Linked With Man Utd
--  La Selecta afina detalles para enfrentar a Messi y su Inter Miami
+-  F1-talli McLaren kertoi odotetun uutisen
+-  Francúzsky najvyšší súd zrušil vydanie odsúdeného mafiánskeho vraha do Talianska
+-  Dankovi sa splnil sen: Nové ministerstvo má zarobiť Slovensku obrovské peniaze
+-  Večne odhalená modelka na nespoznanie: Ako v skafandri… Fúha, musela byť fakt zima!
+-  Delhi: 7-Year-Old Girl Receives 15 Injuries In Attack by Neighbhour`s American Bully Dog
+-  ‘GOAT’는 생각도 다르다...‘메시 시상식 불참→앙리 대리 수상’ 이유는? “프리시즌 제대로 소화하고 싶어서”
+-  وقفة في تل أبيب للمطالبة بوقف الحرب على غزة
+-  منح دراسية مقدمة من حكومة بروناي
+-  ڈاکٹر یاسمین راشد اور زلفی بخاری کو بڑی خوشخبری مل گئی
+-  Bursa'da tehlike saçan aydınlatma direği yenilendi
+-  誕生・性・遺伝子 人間とは何か／宗川吉汪 - thenewsunlimited.com
+-  イラスト版10歳からの性教育 子どもとマスターする51の性のしくみと命のだいじ - thenewsunlimited.com
+-  若者の性の現在地: 青少年の性行動全国調査と複合的アプローチから考える - thenewsunlimited.com
+-  性の学び と活かし方 はたらく・つながる・自分らしい性を生きる 伊藤真美子 著 杉山貴士 - thenewsunlimited.com
+-  お坊さん、「女子の煩悩」どうしたら解決できますか? 電子書籍版 著:三浦性曉 - thenewsunlimited.com
+-  ゲイカップルのワークライフバランス 同性愛者のパートナー関係・親密性・生活 - thenewsunlimited.com
+-  若者の性の現在地: 青少年の性行動全国調査と複合的アプローチから考える - thenewsunlimited.com
+-  性教育はどうして必要なんだろう 包括的性教育をすすめるための50のQ A - thenewsunlimited.com
+-  José Meza: “Llego con ganas de aportar”
+-  November lockt mehr Gäste an als im Vorjahr – bleibt aber schwächster Monat
+-  Churer Fasnachtsplakette: Bane vereint die Brambrüeschbahn und Spraydosen
+-  Milestone as Kirinyaga performs first laparoscopy surgery
+-  行為と合理性 - thenewsunlimited.com
+-  الاتحاد الأوروبي يضيف القيادي في «حماس» يحيى السنوار إلى قائمة «الإرهاب»
+-  «السكنية»: تسليم المركز التخصصي في «المطلاع»
+-  توتر ديبلوماسي بين بغداد وطهران بعد الضربات الإيرانية في كردستان
+-  إجراء قرعة الدفعة العاشرة بالضاحية الرابعة في مشروع جنوب سعد العبدالله اليوم
+-  حرب غزة تهيمن على «دافوس» وإسرائيل تسعى لإنهاء «العمليات المكثفة»
+-  بالفيديو.. الحسيني: تهيئة المجتمع لأحدث تكنولوجيا لسرعة نقل وتبادل المعلومات وخلق بيئة اتصالات ناجحة
+-  فوز ساحق لترامب في الانتخابات التمهيدية للحزب الجمهوري في أيوا ويعزز مكانته بصفته المرشح «الأوفر حظاً» للرئاسة الأميركية
+-  محافظ الأحمدي: الحركة التعاونية الكويتية رائدة
+-  DİSK: Emeklilikte insanca yaşamak haktır
+-  نقي: الأولوية التاريخية للتخصيص على قسائم «جنوب سعد العبدالله» حتى 30 يونيو 2007 وما قبل
+-  Former Alberta premier Rachel Notley stepping down as NDP leader
+-  Эроннинг Ироққа ракета ҳужуми, Британияда тақиқланган Ҳиз ут-Таҳрир ва Финландиянинг Россияга қарши ҳаракатлари — кун дайжести.
+-  «Путин — йиртқич, музлатилган овқатни ёқтирмайди» - Зеленский.
+-  Notley legacy as Alberta premier includes pipeline, higher minimum wage, deficits
+-  Crown says suspect in Quebec cold case murder tracked down by Y chromosome project
+-  Heavy snow, poor visibility on Hwy 401 in Kingston
+-  Türkiye Kupası'nda Ankaragücü uzatmada penaltılarla turladı!
+-  Nueva comunidad de viviendas para familias de bajos ingresos
+-  Brytyjski minister wprost ostrzega przed wojną. "Epoka pokoju skończyła się"
+-  Healthcare Supply Chain Market Booming at a CAGR of +15% by 2030 Top Key Players - McKesson, SAP SE, Oracle Corporation, Infor
+-  Zamlı emekli maaşları ne zaman hesaplara yatacak? Takvim belli oldu!
+-  Putin: Ukrayna devleti çok ciddi bir darbe alabilir!
+-  Hombre enfrentará la justicia por actos libidinosos contra una mujer
+-  ABD'de soğuk hava 7 can aldı
+-  Oportunidades laborales en Vila-real con el nuevo taller de empleo
+-  عطاف في أوغندا للمشاركة في الاجتماع الوزاري لحركة عدم الانحياز
+-  Da IEE a conocer lineamientos para registro de candidaturas
