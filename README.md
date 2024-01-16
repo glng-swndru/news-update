@@ -1,51 +1,51 @@
 # Latest News
--  GBP/USD to signal more downside potential towards 1.25 on a break under 1.26 – Scotiabank
--  Sarina Wiegman extends contract with England until after 2027 FIFA Women's World Cup
--  The Painted Bird
--  Heroic comeback for Tomljanovic
--  Heroic comeback for Tomljanovic
--  Over 1,000 without power in Washington County
--  Public voice for formation of new district with Pollachi as headquarters gets louder
--  US Dollar holds on to big gain ahead of US opening bell
--  Pokemon TCG fan shares first look at “perfect” new Gengar SAR
--  Paratus South Africa and Eutelsat OneWeb Launch Connectivity Services
--  NBA 2K24: How to grade players in MyTeam
--  6,600 tribals from Paderu region in Andhra Pradesh receive ₹70k each under Pradhana Mantri Awas Yojana
--  Is Lakshadweep part of India? The unspoken hidden gem of India
--  'We have planes all over the world that have issues that nobody has found' — union leader accused Boeing supplier of lack of quality control
--  'Open to all possibilities' - Egan Bernal outlines early-season race schedule
--  De-icing crews hard at work to clear Houston-area roads and overpasses, though some icy spots remain
--  NBA 2K24: How to change MyTeam name and logo
--  Tinubu urged to abort alleged moves by the NSA to compromise national security
--  Oba Akiolu installs Abisogun as Ojon of Lagos
--  Future Razorback WR Krosse Johnson enjoys OV to Arkansas
--  Naana Donkor Arthur Chilling with Nana Ama McBrown
--  PM Modi offers prayers at Lepakshi temple in Andhra Pradesh
--  N.Y. Gov. Hochul to propose $233B budget with $2B for migrants
--  This Week in Texas previews 2024 primary season
--  Hyundai is offering EV buyers up to $7,500 cash after missing out on tax credits
--  Deer run over by vehicle near Raj Bhavan
--  Neena Gupta shares throwback pic from her 'simple wedding' with Vivek Mehra, daughter Masaba Gupta also makes appearance
--  Locals Unite Against Threats to Vital Costa Rica River
--  Lily Collins surprises Emily in Paris fans with an unexpected comeback
--  Pokemon fans think this next-gen Sinistea variant is a “must have”
--  Eagles Postgame Reaction: Is Nick Sirianni a Goner?
--  Natural Gas gets hammered with biggest buyers facing more economic downturn
--  Soccerladuma | Chiefs List Players To Go Out On Loan?
--  Alex Winter On Early “Bill and Ted 4” Plans
--  The best way to clean your ears is to not clean them - doctor
--  West Indies face uphill task of ending 28-year wait for a Test win in Australia
--  Laboratory Informatics Market Growth and Status Explored in a New Research Report
--  Emmys slammed after In Memoriam segment snubs three major stars
--  LS Lowry's iconic match day painting to go on tour of North West
--  Filmfare Award noms: ‘Jawan’, ‘Pathaan’ vie for top honours
--  ZKH Group Limited Announces Partial Exercise of Over-Allotment Option in Initial Public Offering
--  Second Front Systems receives strategic investment from Booz Allen to rapidly scale emerging tech for national security
--  Wales rugby star Louis Rees-Zammit, 22, QUITS the sport on the eve of the Six Nations to become an NFL player, as his Strictly Come Dancing girlfriend Saffron Barker beams with pride
--  Incredible haul of weapons including ballistic missiles and warheads being sent form Iran to Houthi rebels is revealed after US Navy SEALs seized dhow during daring night raid off Somalia's coast as search for two seamen lost in mission continues
--  Emmerdale's Lisa Riley shows soap's poignant tribute to late 'second dad' as fans rush to support
--  Gujarat, Kerala & Karnataka ranked best performing states in startup promotion
--  Mike Tindall shares behind-the-scenes snaps of night out with Zara at premiere of Six Nations : Full Contact - as they pose with pal Natalie Pinkham and rugby player Danny Care
--  Inside Matthew Macfadyen's marriage to Keeley Hawes: From an 'awful' start to Hollywood fairytale as he dedicates Succession Emmy win to her
--  Guitar Market Is Projected to Value USD 9369.91 Million, Globally, by 2029: States Data Bridge Market Research
--  'Highest ever' number of asylum seekers with no accomodation as cold weather poses risk
+-  What Does it Mean that Donald Trump Has Won in Iowa?
+-  The 2023 Emmys Was Very Confusing and Very Nostalgic
+-  EpicQuest Education Announces New Recruiting Initiatives
+-  Southern Florida's Preeminent Longevity Medicine Provider Breaks Ground on Second Location to Meet Rising Demand
+-  Soccerladuma | 'There Wasn’t Any Explanation Needed'
+-  Government decision pending on power cable involvement
+-  Palestinian says Israeli soldiers used him as human shield
+-  Three turtles released back into sea
+-  Another high water wave expected for major Dutch rivers later this month
+-  PDO Max Instrumental in Lobbying for New Ruling Allowing Massachusetts Nurses to Include Polydioxanone (PDO) Thread Procedures in Scope of Practice
+-  BitChute Unveils New Video Series: "WTF is Going On?" - A Deep Dive into Unraveling Media Narratives
+-  Banking Consulting Leaders Jim McAveeney and Blair Wangman Join Cornerstone Advisors
+-  Dialog Health Announces the Appointment of Bo Spessard as Chief Operating Officer
+-  Chandler International Film Festival Embraces Hispanic Filmmaking and Culture
+-  We Need to Address the Deteriorating Mental Health of Men
+-  3 easy money concepts that are essential to master
+-  WYBOTICS Unveils Groundbreaking WYBOT M2 at CES 2024: World's First Cordlessly Self Docking Pool Cleaning Robot with Underwater Vision Recognition
+-  Many Kane County students will be e-learning Tuesday as wind chill warning continues
+-  Kristin Juszczyk Scores Big Win After Making Taylor Swift Jacket
+-  Three Out of Four Business Travelers Use or Plan to Use AI for Travel
+-  f7 Ventures Strengthens Team and Impact with Executive in Residence and Chief of Staff Additions
+-  Congress appoints YS Sharmila new APCC chief
+-  Quaker Oats Company Issues New Recall Notice
+-  Roma choose Daniele De Rossi as head coach after sacking Jose Mourinho
+-  Unleashing the Power of Credit Facilities for Small Tech Businesses
+-  Namibian Cheetah Shaurya Dies In Madhya Pradesh`s Kuno; 10th Death In The National Park
+-  Fujitsu Says Morally Obliged To Compensate Wronged UK Postmasters
+-  General Bipin Rawat Stadium In Baramulla: A Tribute To India`s First CDS
+-  Are wages rising and what does it mean for me and for the economy?
+-  Texas Residents Told to Boil Water Due to 'Mechanical Failure'
+-  Tshwane: Here’s the updated load shedding scheudle for Tuesday
+-  Acceligen Announces Innovative Scientific Paper on Breeding PRRSV Resistant Pigs
+-  Badminton, India Open Super 750: HS Prannoy and Priyanshu Rajawat set up second round clash in Delhi
+-  Saneg Pioneers New Generation of Base Oil Production in Uzbekistan Using Danish Company Topsoe's Decarbonization Technology
+-  Herzing University Awarded Grant for Wisconsin Youth Wellness Partnership with Milwaukee-Area Boys & Girls Clubs
+-  Schools and Students to Unite at Jan. 24 Celebration for 'Missouri School Choice Week'
+-  Northern Tool + Equipment Launches New Line of NorthStar Engines
+-  Squeezed Installs Hiperbaric 525L Machine, Unlocking New HPP Cold-Pressed Juice Production Capacity
+-  WATT Fuel Cell Appoints Danielle Ramaley as VP, Sales and Marketing to Lead Commercial Operations and Growth Strategy
+-  Manchester United have already held positive talks to help with ambitious transfer
+-  Departed Unima lecture, Yapikachi, eulogised as a ‘beautiful angel’, burial Wed at HHI
+-  FCT Killings: Nollywood Actor Slams Nigerian Youths For Continue Silence
+-  Scotland squad for 2024 Six Nations campaign announced
+-  Namibia, Germany, and Israel: The Pitfalls of Selective Remorse and Trauma
+-  AmLactin® Announces Partnership with U.S. Figure Skating Champion Amber Glenn
+-  Applied Software Announces Scholarship Contest Winners
+-  SOS Ltd. Announces Launch of Additional 1,500 mining rigs at its Super-Computing Center in Texas
+-  Spring 2024 Battle Court Season Draft Unveils Expansion Team and Fresh Realignment of Team Owners
+-  Działalność za granicą – co warto o niej wiedzieć?
+-  WinZO launches “Bharat Tech Triumph” initiative to facilitate export of Made in India for the World Technology
