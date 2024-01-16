@@ -1,11 +1,11 @@
 # Latest News
--  서울교통공사 “올해가 현장중심 안전경영의 원년”
--  서울시 등록 차량 319만여 대
--  전국 모든 지하철 에스컬레이터에 '역주행 방지장치'를
--  “120년 단절된 용산을 하나로 통합하자”
--  “택시 목적지 미표시 도입·전액관리제 개선해야”
--  김포공항 면세점 입찰 4개사 참여
--  설 연휴기간 고속도로 통행료 면제
--  “자동차 페달 잘못 밟는 사고 막자”
--  The New Hong Kong-Mainland Reciprocal Enforcement of Judgments Regime: An Overview
--  10 Indian Artists to Catch at Lollapalooza 2024
+-  Südhessen: Tödliche Schüsse in Supermarkt - Suche nach Motiv
+-  Hava sıcaklığı sıfırın altına düşen Kastamonu'da çok sayıda trafik kazası meydana geldi
+-  ABD öncülüğündeki 3 insansız hava aracı Erbil'de düşürüldü
+-  THY'den yolcularının seyahat deneyimini geliştirecek yeni adım
+-  Philadelphia 76ers evinde Houston Rockets'i yendi
+-  İran'ın Erbil kentine yönelik saldırısında bazı evlere isabet eden füzeler sonucu 4 sivil hayatını kaybetti
+-  Sneeuw! Bekijk hier winterse beelden uit de regio Barneveld
+-  Automobilist door gladheid in sloot Voorthuizen
+-  제주 지난해 소비자물가 3% 상승…전기‧가스 등 공공요금 19.1% 껑충
+-  제주은행, 업무차 50% 친환경 전기차 전환
