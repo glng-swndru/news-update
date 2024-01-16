@@ -1,51 +1,11 @@
 # Latest News
--  A man dies in an explosion in his family's house in Binježevo
--  Some people with disabilities experience financial abuse
--  Men jailed for penis, leg amputations of leader of ‘body modification’ ring
--  Roma sack manager Mourinho following poor run
--  Soccerladuma | BREAKING: AS Roma Sack Jose Mourinho
--  Oban Lorne kick 2024 off with a bang in Strathaven
--  Atiku says worsening poverty, hunger fueling Nigeria’s security crisis
--  Introducing the Iconic Women Podcast – Stories of Dreams, Perseverance, and Triumph
--  Who’s running for US president in 2024?
--  Who’s running for US president in 2024?
--  Who’s running for US president in 2024?
--  أبو علي يتحدث عن صرف الرديات الضريبية وتقديم إقرارات ضريبة الدخل والمبيعات وعقوبات التهرب الضريبي
--  حرب كلامية بين الكوريتين.. وكيم يتوعد
--  وزير الخارجية يبحث مع نظيره الأسترالي التطورات الخطيرة بغزة
--  هل يوجد سكر صحي؟
--  الجيش الإسرائيلي: القوات الخاصة شنت ضربة في لبنان
--  صندوق توفير البريد يطلق 19 خدمة إلكترونية
--  Pour Joel Embiid, arriver en forme en Playoffs est plus important que remporter un autre MVP
--  First-of-a-kind AI air fryer 'senses' cooked food, US launch this year
--  Takýto je zdravotný stav Lukáša (18), ktorý havaroval pri Domaniži. Jeho mladší brat neprežil
--  Công an vào cuộc vụ người khuyết tật tố bị 2 quán phở ở Hà Nội "đuổi"
--  OPINIONES DE LOS ANALISTAS DEL DÍA: Hellofresh, Roche, Eiffage, Swatch Group, Schibsted, Sandoz, AB Inbev, Syensqo...
--  [경북도, 안동축산물공판장에 일일 어미돼지 200마리 처리 규모 증축
--  [이준석 “한동훈, 머릿속에 여의도 문법만 가득”…의원 감축안 비판
--  [김태식 부산 북구의원 발의 ‘현수막의 친환경 소재 사용 및 재활용 활성화 조례안’ 본회의 통과
--  [대구교육청, 학교폭력 전담조사관 운영
--  [한미약품 장남 “경영도 모르는 모녀, 회사 망치는 걸 두고 못 봐” 선전포고
--  [이우현 회장 “OCI·한미 빅딜, 법률검토 끝냈다…차질없이 마무리될 것”
--  [이낙연 신당 ‘새로운 미래’ 창당 발기인대회…“국민이 행복한 나라”
--  [인뱅 자영업자 대출 120% 급증…토스뱅크 폐업률도 3% 넘었다[머니뭐니]
--  [김정은 "꼴불견"…철거 지시한 '조국통일3대헌장 기념비'는 무엇?
--  [26년 장수 프로그램 SBS '세상에 이런일이' 폐지 기로
--  [F/W 서울패션위크, 2월 1~5일 개최…6주 당긴 이유는?
--  [경북도, 성실·모범 납세자 우대 지원
--  [경북 이웃돕기 사랑의 온도탑 '100도 돌파'
--  [그룹 보이넥스트도어, 日 ‘메자마시TV 30주년 페스티벌’ 무대 선다
--  [경북도, 제22대 국회의원 선거 앞두고 공직기강 특별감찰
--  [대검, 설 앞두고 “임금체불 사업주 엄정 대응” 지시
--  Drone Strikes Injure Child, Damage Apartment Blocks in Russia’s Voronezh
--  China summons Phl ambassador over Taiwan election comments
--  Pasieniečiai sulaikė Nemune lytimis vaikščiojusį kontrabandininką ir du bendrus
--  Trimiklini illegal fish farm to have its license revoked
--  Два техногенных пожара ликвидировали в Псковской области 15 января
--  Tạp chí của Trường đại học Kinh tế quốc dân chính thức gia nhập danh mục Scopus
--  Thảo cầm viên Sài Gòn có tân giám đốc
--  Công an đang xác minh vụ TikToker 'bị đuổi khỏi quán ăn vì ngồi xe lăn'
--  Vượt 15.000 tấn/năm, VASEP kiến nghị bỏ hạn ngạch với tôm xuất khẩu vào Hàn Quốc
--  Lên mạng lừa bán xe thanh lý, nhiều nạn nhân sập bẫy
--  1.000 du khách kẹt lại Tân Cương sau lở tuyết
--  Máy dò ADN di động giúp 'điểm mặt' nhanh nghi phạm
+-  800 Tigerair Taiwan employees get 10.8 months of bonus on average
+-  Chonky python stuck in Hougang Ave 6 drainage hole rescued after 5-hour operation involving drilling & hacking
+-  Stock Market holiday: Will BSE, NSE remain closed or open on January 20 and 22? Special live session on this date
+-  Soccerladuma | Chiefs Set To Release Senior Defender?
+-  Baku’s new common plan prohibits development of buildings increased than 5 flooring in sure areas
+-  Maharashtra: 600 commandos walk 60 kilometer to set up outpost near Maoist den
+-  YS Sharmila appointed president of Andhra Pradesh Congress
+-  Maara MP lauds government’s review of delocalization of teachers
+-  Students admission to Form One in Nanyuki High School
+-  Renowned climber Txikon aborts ambitious Annapurna winter expedition due to bad weather
