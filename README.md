@@ -1,51 +1,11 @@
 # Latest News
--  IperionX Letter to Shareholders
--  Anies Ready to Continue Inspiring Program of President Jokowi
--  Communities on signature campaign on proposed Tutoh-Apoh cascading dam project
--  Experts optimistic about student loan scheme for ‘missing middle’
--  Reforms in the mining sector transform it into the new frontier for job creation for Kenyan youths
--  Nightmare neighbour called us ‘The Tart’ and ‘Peeping Tom’ after we built 6ft fence – he shouted insults through hedge
--  The four biotech stories you need to read this morning
--  General Atlantic CEO on Actis deal: The next big investment opportunity is energy transition
--  Photos | PM Modi offers prayers at Veerbhadra temple in Lepakshi, Andhra Pradesh
--  The ‘invisible mould’ to be wary of – it causes respiratory & neurological issues, and may be hiding in your leftovers
--  I was bullied for being chubby, they sent death threats – I’ve spent $200k changing my body & covering myself in tattoos
--  Sri Lanka's Colombo port sees jump in traffic amid Red Sea tensions
--  Australia vs West Indies, 1st Test: Will Steve Smith's opening gambit pay off?
--  How Specialty Pharmacies Can Increase Access Through Patient Financing
--  VP Candidate Mahfud Md's Instagram Account Is Hacked
--  Anthony Joshua refuses to explain why he only wears one earphone during face-offs
--  Arctic blast brings snow and freezing temperatures before wet and windy weekend
--  Morgan Stanley revenue beats on dealmaking rebound, takes US$535m in charges
--  Man dashes out of vehicle on west metro hwy. into extreme cold, rescues trucker from icy river below
--  Synopsys to acquire graphics software maker Ansys in $35 billion deal
--  BOMBSHELL: Louis Rees-Zammit quits rugby to chase NFL dream
--  Eagles' Jason Kelce is retiring: Reports
--  Asda is trying to take on Aldi and Lidl but we found it stills cost more
--  90s Bollywood Chronicles: Raveena Tandon says ‘We knew about who actors are having affair with, whose wife beat up whom’
--  More than 20 deaths in Delhi due to burning of ‘Angithi’ in closed spaces
--  Check Out Latest Kids Malayalam Nursery Story 'Magical Flute Thief' for Kids - Check Out Children's Nursery Stories, Baby Songs, Fairy Tales In Malayalam
--  Hamas says two Israeli hostages are dead; IDF reacts to chilling video clips of 3 hostages
--  Malaika Arora's fun banter with the paparazzi; Raveena Tandon, Saiee Manjrekar spotted in the city
--  "Rahul Gandhi lives in 'la-la' world...repeatedly keeps on spreading lies" Rajeev Chandrasekhar
--  "Rahul Gandhi lives in 'la-la' world...repeatedly keeps on spreading lies" Rajeev Chandrasekhar
--  Lord Ram himself has selected PM Modi for Ram Temple ‘Pran Pratishtha’ Meenakashi Lekhi
--  Maxkamad ku taalla Turkiga oo xukun ku riday wiilka Madaxweyne Xassan Shiikh
--  Juhi Babbar Soni performs at Rekhta
--  Sui Tops $300M in TVL, Passes Bitcoin and Joins Upper Echelon of DeFi Protocols
--  Tiny robots can eliminate cancerous bladder tumours
--  Ariana DeBose wants to be seen as more than a 'one-trick pony'
--  Port Vale sign Rhys Williams on loan from Liverpool
--  Mark Ronson says new Amy Winehouse biopic reminded him of his late friend's humour
--  OpenAI team to focus on democratic processes for artificial intelligence software
--  Kate Beckinsale mourning loss of beloved stepfather Roy Battersby
--  Sheryl Lee Ralph and husband Vincent Hughes don't know why others are shocked that they live apart
--  Dog Has Heartbreaking Reaction to Owner Taking Out Suitcase: 'She Knows'
--  Ethereum Founder Vitalik Buterin's Sharing Stimulated This Altcoin! Smart Investor Made a Big Profit!
--  ‘The Bachelorette’ Alum Clare Crawley Welcomes First Child Via Surrogate: ‘Dream Come True’
--  HR ministry lodges police report against employer in quota fraud scandal
--  Locofy.ai’s accelerates web design-to-code with AI as it pioneers Large Design Models
--  Nvidia RTX 4070 Super review: a super performance bump for $599
--  I ditched my thick eyebrows & excessive eye makeup & look like a different person – people say the glow up is “crazy”
--  I ditched my thick eyebrows & excessive eye makeup & look like a different person – people say the glow up is “crazy”
--  I ditched my thick eyebrows & excessive eye makeup & look like a different person – people say the glow up is “crazy”
+-  Indian pilgrims throng Nepal&#039;s most revered Hindu temple, Pashupatinath
+-  Smith to take his talents to the top and open Australia&#039;s innings in 1st test against West Indies
+-  `Sonia, Rahul Anti-Hindu...`:Himanta Biswa Sarma Accuses Congress of Politicising Ram Temple Ceremony
+-  `War Rooms At Six Metro Airports`: Aviation Ministry`s New Measures For Fog-Related Flight Delays
+-  Ottawa Providing $86 Million for Foreign Accreditation Plan to Tackle Healthcare Labour Shortage
+-  Paisley murder bid thug caught after a phone mix-up
+-  5 S'pore malls to have on-site system to convert food waste into substrates for aquaculture
+-  Odisha BJP Takes Up Demand For Transfer Of Officers With CEO
+-  Alleged thief found on roof after committing theft
+-  China summons Philippine ambassador over Marcos’ Taiwan greeting | The wRap
