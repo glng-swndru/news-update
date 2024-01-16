@@ -1,51 +1,51 @@
 # Latest News
--  Dólar toca máximos de un mes en medio de débiles apuestas sobre recortes de tasas
--  Ecuador busca en Davos atraer inversiones saudíes para empresas públicas y privadas
--  Ukrayna'ya mali yardım paketini veto etmişti... Slovakya Başbakanı'ndan Orban'a destek
--  مانشيني مدرب الأخضر: لا أعرف الضغط... وقصة «المستبعدين» انتهت
--  Neue Klage gegen Ex-Filmproduzenten: Weinstein und US-Milliardär wegen sexueller Angriffe verklagt
--  Ethereum imparable: 230% más en TVL, meta 3.000 USD
--  Budapestre érkező vendégeket akarnak megkopasztani egy álhonlap készítői, a főváros feljelentést tett
--  El jurado sentencia al parricida de Sueca: asesinó a su hijo «para causar el mayor dolor posible» a su exmujer
--  A speedrunning dog named Peanut Butter just beat an obscure 1985 NES game live for charity, is the day's goodest boy
--  Pregnant Annie Kilner Spotted with Estranged Husband Kyle Walker Amidst Split Fallout and Allegations
--  Cae con droga en Coclé
--  Actualización confirmada: aumento de la tarifa eléctrica para el primer semestre 2024
--  West Ham's Benrahma sent off against Bristol City
--  Ολυμπιακοί Αγώνες 2024: Αποκαλύφθηκε το... dress code των Γάλλων αθλητών στους Αγώνες
--  내달부터 119-병원 중증도 분류 '통일'…응급실 뺑뺑이 막는다
--  올 게 왔다…삼아제약 '씨투스' 생동시험 이어 특허심판까지 청구
--  JAK 억제제 아토피 급여 확대됐지만, 아직은 '듀피젠트'
--  ﻿"산업약사 포지셔닝 및 네트워킹 강화 통한 외연과 내실 확장에 주력"
--  고가의약품 적극 관리 예고‥심평원, '약제성과평가부' 신설
--  "의약품유통업계 미래 위한 소중한 한 표 행사…선거 전후 화합 중요"
--  의대 증원 규모 논의 임박…의료계 상한선은 '세 자릿수'
--  GMP 심사 적체 지속…식약처·제약업계 이견 여전
--  오리온, 레고켐 인수로 바이오 사업 본격화…시장 반응은 엇갈려
--  Два азербайджанца погибли на войне в Украине
--  Saharanpur News: लकड़ी कारोबारी के परिवार को गन प्वाइंट पर लेकर 20 लाख व जेवरात लूटे
--  Cruce entre Milei y Maduro: “Socialista empobrecedor”
--  Con operativo, autoridades de San Buenaventura ‘abrigan’ a familias vulnerables por el frío
--  Slovakya Başbakanı'ndan Orban'ın veto kararına destek! "Egemenlik savaşı cezalandırılamaz"
--  Savaş karşıtlarına polis müdahalesi! İsrail kendi halkına da acımasız
--  Erzurum'da bıçaklı kavga: 2 çocuk yaralandı
--  Afganistan'a Türk eli! TİKA desteğiyle içme suyuna kavuşuldu
--  Dok tugujemo radi vaterpolista stigao novi šok, ovo je uzdrmalo rukometaše, tome se nisu nadali, kako sad...
--  ΑΕΛ: «Συγχαρητήρια στον “άξιο” διαιτητή της σημερινής φαρσοκωμωδίας»
--  אשקלון הביסה 51:90 את גלבוע גליל, אליצור שומרון ניצחה בנתניה
--  तस्करी : साल भर में जब्त हुई 110 करोड़ की हेरोइन...ये खेल अरबों का है
--  Yamuna Nagar News: स्ट्रीट लाइटों से रोशन होगा रसूलपुर और लाहड़पुर
--  Shamli News: बिजलीघर में खराबी से 19 घंटे तक थानाभवन की बिजली आपूर्ति रही गुल
--  Kamu müteahhitleri ilave fiyat farkı düzenlemesini yetersiz buldu!
--  नशे के बढ़ते प्रभाव को लेकर उठे सवाल, मालखानों से नशे का निपटारा करने की प्रक्रिया बताए सरकार: हाईकोर्ट
--  Shahjahanpur News: सर्राफ ने ऐसे बचाया गांव की महिला को ठगी से, वीडियो कॉल कर रुपये मांग रहा था युवक
--  King Charles' plans to fit electric car points to Windsor Castle may be blocked
--  Lalitpur News: लोकसभा चुनाव की तैयारियां शुरू, अपराधियों की कुंडली खंगाल रही पुलिस
--  SC Notice On Plea For Database Of DNA Profiles To Locate Missing Persons
--  Halid Bešlić postao žrtva internetske prevare: "Reklamirao" sodu bikarbonu koja liječi dijabetes
--  Shamli News: सड़क दुर्घटना से बचाव के बताए तरीके
--  A Gaza, un accord pour faire entrer l'aide aux civils et des médicaments aux otages
--  Yamuna Nagar News: कुंडी तालाब पार्क में लगेंगे फव्वारे, दीवारें होंगी पेंट
--  Blue Jays claim catcher Brian Serven off waivers from Chicago Cubs
--  Video: De Rossi holds first Roma training session
--  Landmines Explode Amid Forest Fire in Poonch
+-  Нападнат полицаец во Чучер Сандево
+-  సర్పంచులకు పెండింగ్‌ బిల్లుల సమస్య
+-  김준호 "♥김지민과 올해 결혼 바란다. 그런데 돈이 없어"[돌싱포맨]
+-  '오타니 못 보나요' ML 개막전 티켓 오픈 D-9, 日 열도 발 동동 "앱 다운로드, 회원가입 안돼"
+-  펩이 앙리에게 "FXXX" 욕설, FIFA 시상식에서…도대체 왜? 무슨 일이 일어났길래
+-  وزير الاتصالات السعودي يناقش مع قادة مايكروسوفت وشركات عالمية توسع مشاريعها الابتكارية في المملكة
+-  신동, 아이돌 연애 위장술 비법 大공개…"여친을 스타일리스트처럼!"[돌싱포맨]
+-  Alejandro Giammattei y Guillermo Castillo son juramentados virtualmente en el Parlacén y recobran derecho de antejuicio
+-  GONZA Y RAUL CLYDE PRESENTAN EL SENCILLO «KIT KAT»: UNA NUEVA DIMENSIÓN EN LA MÚSICA URBANA
+-  case of skill : 17ఏ పై చెరోమాట!
+-  Dr. Penna Krishnaprashanthi : నవతరం ఆరోగ్యంగా లేదు
+-  Pokemon Go Shadow Ho-Oh Raid Weekend: Shiny debut, bonuses, and more
+-  91개 법정 부담금 63년 만에 대폭 개편 ... 폐지에 따른 재원 해법은?
+-  MS 0.46% 상승, 또 사상최고치 … 美 기업 두번째 시총 3조 달러 클럽 가입 눈앞
+-  Fernando Santos kaç transfer yapacaklarını açıkladı
+-  Survivor kim aday oldu? All Star'da eleme adayı kim oldu? 16 Ocak 2024 Survivor'da potaya giden isim!
+-  Perú comenzará a aplicar vacuna monovalente contra el COVID desde el sábado
+-  Juve, Super Vlahovic ti ha dato 9 punti in 3 partite
+-  سمير مرقص: مصر المتضرر الأول من أزمات المنطقة.. وتحتاج للتعبير عن نفسها بقوة
+-  Juventus deklasirao Sassuolo i stigao na minus dva od Intera, Erlić zamijenjen u poluvremenu
+-  Josh Hutcherson’s Five Nights at Freddy’s 2 idea breaks canon
+-  HLV Indonesia: "Asian Cup bị hủy hoại"; Thái Lan thắng tưng bừng trước Kyrgyzstan
+-  4 điều rút ra từ ĐT Thái Lan sau trận thắng Kyrgyzstan
+-  Maximális pontszámmal jutott az Európa-bajnokság középdöntőjébe a magyar férfi kézilabda-válogatott
+-  వెంటిలేటర్‌పై తమ్మినేని వీరభద్రం!
+-  أبو الغيط يدين قصف الحرس الثوري الإيراني لمدينة أربيل
+-  أكاديمية SaveFast تعلن عن ملتقى توظيف للمواطنين فقط بالرياض.. اليوم الأربعاء
+-  انهيارات جليدية ومحاصرة سياح في الصين.. هذا ما حدث
+-  توضيح مهم من "الجوازات" بشأن فرض غرامة تأخير على إصدار هوية مقيم
+-  السماح بدخول العمالة المنتهية تأشيراتها إلى المملكة (تفاصيل)
+-  RCMP arrest suspect on the side of a Manitoba highway
+-  Xhepa: Pas ngrohjes globale, çështjet e pabarazisë shqetësimi i dytë më i rëndësishëm i stabilitetit të shoqërisë njerëzore
+-  Kurti takim me O’Brien në Forumin Ekonomik të Davos-it, ja çfarë u diskutua
+-  NHL-supertähti Miro Heiskasesta julki hieno uutinen
+-  Juventus otti vakuuttavan murskavoiton
+-  Brunei Royal Wedding Banquet
+-  Can Ivan Toney play for Brentford tomorrow as Thomas Frank's side travel to Wolves in their FA Cup...
+-  PSG keep tabs on star Newcastle midfielder Bruno Guimaraes after the Saudi-owned club revealed they...
+-  Man United 'hold discussions over summer swap deal which would see defender Aaron Wan-Bissaka return...
+-  REVEALED: Why Cristiano Ronaldo didn't cast a vote in FIFA's The Best awards despite being Portugal...
+-  Bolton 1-2 Luton Town: Premier League side avoid potential slip-up in FA Cup Third round clash as...
+-  Man United prodigy, marked as the future of the club having already met Sir Alex Ferguson, scores...
+-  Giorgio Chiellini is STAYING with Los Angeles FC with the retired Italian defender becoming player...
+-  Bristol City score inside the opening THREE minutes of their FA Cup clash with West Ham, as Tommy...
+-  Academy star Nathan Fraser scores his second goal in three games as Wolves come from behind twice in...
+-  Jose Mourinho Bound for America? Comments from 2011 indicate that the Portuguese manager could look...
+-  Arsenal in talks with Besiktas over deal for defender Cedric Soares... as the Portuguese right-back,...
+-  Tottenham defender Sergio Reguilon set to undergo a medical at Brentford ahead of loan move to the...
+-  Sarina Wiegman given significant pay rise after signing bumper new contract with England to put her...
+-  Fans say new Adidas Predators are 'almost perfect' but some hit out at 'poxy' yellow strap along the...
