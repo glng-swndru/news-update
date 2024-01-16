@@ -1,51 +1,51 @@
 # Latest News
--  'We invited terrorists to live in Karachi': Bilawal Bhutto drops bombshell on Pak govt's decision to hold Taliban talks
--  Kako odabrati AIO Cooler i biti siguran da će ispuniti očekivanja?
--  Video: Advancing pancreatic cancer treatment with total robotic Whipple surgery
--  Мирра Андреева — Онс Жабер: смотреть трансляцию матча Australian Open онлайн
--  Tagesrückblick: 5 Meldungen in 2 Minuten
--  LÄSARTEXT: Ekonomisk dopning
--  Destination Dominican Republic: A US-DR Open Skies Agreement to strengthen cultural ties and economies
--  Tak zmieniała się Magdalena Ogórek. Była gwiazda TVP zaczynała od modelingu i epizodów w serialach (ZDJĘCIA)
--  విలువలు పాటించిన నేత జైపాల్‌రెడ్డి
--  Slavs may unite to ‘raze’ Western Europe – EU lawmaker — RT World News
--  ప్రభుత్వం నిర్లక్ష్యం వీడాలి
--  Эр-Рияд опроверг вступление в БРИКС
--  Путин предупреждает страны Балтии?
--  How To Buy Tickets For Janet Jackson’s ‘Together Again’ Tour In 2024
--  ఎన్ని‘కల’లో..!
--  Świdniczanka sprawdza kolejnego młodego zawodnika, decyzje kadrowe zapadną w tym tygodniu
--  Powrót do korzeni. Black metalowy koncert w Kultowej Klubokawiarni
--  Así le fue al arte cubano en las subastas internacionales de 2023
--  CES 2024: AMD Unleashes New 8000 Series Desktop CPU With Deciated NPU for Ryzen AI
--  Samsung's Health Monitor BP & ECG Tracking On Galaxy Watch6 Series Makes India Debut
--  Noventiq To Bolster India Operations, Plans 20% Local Workforce Growth
--  WEF 2024 Discuss Existence Of Democracy In Digital Age
--  Marut Drones, SkyDrive Join Hands To Transform Indian Air Transportation With Flying Taxis
--  Aries, Horoscope Today, January 17, 2024: Seize the day with ambition and collaboration on the work front
--  «Me gustaría ser optimista, pero en el mar tenemos un problema muy grave»
--  Tolosaldea Garatzen crea la guía digital de las empresas de la comarca
--  La Asociación Artística de Gipuzkoa vuelve al palacio de Igartza con sus obras
--  Aloñako Igoera en las 'Golden Trail' de Salomon
--  Mikel Soto gana la XVIII beca Tene Mujika con un proyecto sobre el poeta Jon Mirande
--  Un espectáculo dedicado a los y las baserritarras de Urretxu
--  पक्षी को बचाने के चक्कर में गई जान, बुरी तरह जला युवक
--  PWHL is here to stay, based on the hockey league's strong early returns
--  النيابة الإدارية تعاين العقار المنهار في أسيوط
--  رئيس قناة السويس: اضطرابات البحر الأحمر "أمر عابر"
--  تسليم عقود الوحدات السكنية لـ36 أسرة من متضرري السيول في أسوان - صور
--  عودة 2623 مصرياً من غزة.. وزيرة الهجرة تكشف كيفية إنقاذهم في حوار لـ"مصراوي" (1- 2)
--  انتقال مدافع الفريق الأول بالزمالك إلى البنك الأهلي.. رسميًا (صورة)
--  الاتحاد الأوروبي يضيف يحيى السنوار القيادي في حماس إلى قائمة "الإرهاب"
--  بوركينا فاسو تفوز على موريتانيا وتتصدر مجموعة الجزائر
--  موظف يمزق "أم العيال" بسكين في العجوزة
--  "بحضور الشناوي".. موعد المؤتمر الصحفي لمباراة مصر وغانا
--  حدث في 8 ساعات| هجوم برلماني على وزير التموين.. وتفاصيل طقس الأربعاء
--  إصابة لاعب الأهلي بشد في الخلفية خلال التدريبات الجماعية
--  مستشار الأمن القومي الأمريكي: حماس هي التي اختارت أن تشمل أرض المعركة المدنيين
--  نجم بيراميدز يحصد جائزة رجل مباراة بوركينا وموريتانيا
--  "حياتك عشان تبنيها".. تفاصيل مشروع تخرج للتوعية بمخاطر الهجرة غير الشرعية
--  عضو مجلس إدارة الاتحاد السكندري يكشف موقف النادي من بيع مابولولو في يناير
--  هشام الغزالي: دور مهم للذكاء الاصطناعي في كشف أورام الثدي
--  ثلاثي الأهلي يتبادلون الدعم في مباريات كأس الأمم الإفريقية (فيديو)
--  تنبأت بطلاق ياسمين عبد العزيز والعوضي.. توقعات ليلى عبد اللطيف لمصر والعالم في 2024
+-  Bigg Boss 17: Vicky Jain fights with Ankita, shares his side of the story
+-  Galatasaray'a kötü haber! PFDK...
+-  İstanbul'da 'huzur' uygulaması
+-  Yemen ve İngiltere görüştü: Gündem Kızıldeniz
+-  Büyük tepki topladı! Sunak'tan Müslüman milletvekiline İslamofobik sözler
+-  Tunceli'de eğitime kar engeli
+-  Tunceli'de eğitime kar engeli
+-  Resmen açıklandı! Galatasaray dünyaca ünlü yıldızı kadrosuna katıyor
+-  Bright Osayi-Samuel zehirlendi!
+-  Muş-Mutki karayolunda zorlu hava koşulları: Mahsur kalan 70 kişi kurtarıldı
+-  Kızıldeniz yeniden ısındı: Husiler İsrail'e giden gemiyi 'tam isabet' vurdu
+-  AB'den çifte standart uyarısı: Ukrayna'da uluslararası hukuka başvururken Gazze'de göz ardı edemeyiz
+-  İngiltere Başbakanı'nın Müslüman milletvekiline yönelik sözlerine tepki: Gelinen en alçak nokta
+-  Vyúčtování záloh na důchodové pojištění OSVČ už nepřijde poštou
+-  Xiaomi introduces all-new Redmi Note 13 Line-up
+-  El aula Marie-Françoise Colliére de la ULPGC, un espacio de reflexión sobre cuidados
+-  Πόλο: Αυλαία με νίκη και πέμπτη θέση για την εθνική, 15-10 το Μαυροβούνιο
+-  కొనసాగిన అంగనవాడీల నిరసన
+-  115 optužbi protiv Cityja: Uskoro ćemo saznati hoće li biti izbačen iz lige
+-  Actriz de “La Casa de Papel” genera polémica luego de participar en manifestación por presos de la ETA
+-  Judge blocks JetBlue's $3.8 billion purchase of Spirit Airlines
+-  Specijalna savjetnica UN-a: Negiranje genocida alarmantno
+-  Barrister Gohar rules out possibility of ‘ban’ on PTI
+-  అంగన్వాడీలకు జీతాలు పెంచాల్సిందే
+-  పల్లెల్లో పండగ సంబరం
+-  GOT7 celebra su décimo aniversario con ‘Ahgase’
+-  Droga do Małaszewicz jak złoto. Kto ją wybuduje?
+-  Shell, Kızıldeniz üzerinden yapılan sevkiyatları askıya aldı
+-  Bursaspor’da Jure Zdovc dönemi sona erdi
+-  Sivasspor-Gaziantep FK maçının biletleri 58 TL'den satışa sunulacak
+-  In Photos: Teachers on one-day strike across Saskatchewan
+-  Giroud sempre più maestro di record: mai così tanti assist effettuati in campionato
+-  &quot;ZAR TOLIKO PONOSA NEMAJU?&quot; Sprkinja usijala društvene mreže, otkrila šta joj koleginice svakodnevno rade (FOTO)
+-  Sattler i Plakalo razgovarali o trenutnim procesima EU integracija
+-  금리인하 기대 부채질했던 미 연준 인사 "정책 변화 서둘면 안 돼"
+-  Deutsch Tamás szerint a baloldal el akarja venni a magyar egyetemisták lehetőségeit
+-  "Falta tudo" nos hospitais em Gaza, denuncia português
+-  విజన ఉన్న నాయకుడు చంద్రబాబు: సవిత
+-  Nordische Botschafter geben Tipps für Schnee in Berlin: „Man muss den Winter so richtig umarmen!“
+-  సంక్రాంతి సంబరం
+-  ఎండీయూ వాహనంలో వైసీపీ నేత ధాన్యం తరలింపు
+-  Leeds interested in signing 26-year-old keeper to compete with Meslier
+-  В аэротакси над Германией уже в 2024 году?
+-  Il-ħaddiema tal-Università mistennija jissejħu biex jivvutaw fuq ftehim kollettiv ġdid
+-  קשרים עם "האחים המוסלמים"? בנזמה הגיש תלונה נגד שר הפנים
+-  באמצעות ימי מילואים: כך המדינה תשלם לחטופים שנמצאים בעזה | פרסום ראשון
+-  Marko Livaja dobio udarac i s treninga morao izaći ranije, stigao je i predsjednik Hajduka Lukša Jakobušić, odmah je...
+-  Fosse om tilstandene i Gaza: Behandler mange barn og tenåringer
+-  Kim Jong-un abandona la idea de una reunificación con el Sur
+-  Oregon State Beavers debut at No. 7 in college baseball preseason national rankings
