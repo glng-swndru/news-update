@@ -1,51 +1,51 @@
 # Latest News
--  Wearing this color during air travel could get you an inflight hookup — here’s how
--  Key BJP meet discusses party’s 2024 Lok Sabha election campaign strategy, stresses on first-time voters
--  WWE News: Finn Balor Says R-Truth Is Growing on Him, Samantha Irvin Reacts to The Rock & Logan Paul, Bianca Belair & Cody Rhodes Showcase Community Impact
--  Soccerladuma | Pieterse Backs Williams To Lead Bafana To AFCON Glory
--  Alleged N1bn bribe: court reserves ruling in trial-within-trial of Ex-BPE DG, Dikki
--  OLED iPad Pro might launch later than expected
--  Home for Children without Parental Care in Sarajevo marks its 124th anniversary
--  Expensive quad bikes stolen from commercial premises in Kilreekil
--  Ex Roma Midfielder Hails “Extraordinary” Ex Arsenal & Man United Veteran
--  tapouts Replaces Scrolling for Parenting Tips with Fun Mental Wellbeing Coaching for Kiddos
--  Shoppers say 'wish I'd had this sooner' as they praise feet warmer that's a 'godsend'
--  Chinese premier Li Qiang is visiting Ireland for talks on China’s relations with Europe
--  Live music can help people recover from surgery faster: study
--  Lal Salaam | Song - Ae Pulla (Lyrical)
--  Guntur Kaaram | Song - Ramana Aei (Lyrical)
--  Covid bereaved families urge Scottish ministers to 'do better' at Inquiry
--  Trump Won By a Landslide In Iowa. His Supporters Are Still Spreading Conspiracies
--  New book on Welsh football features chapters on Rhyl’s rise and fall
--  LG Sinha Inaugurates Revamped Old Habba Kadal Bridge On River Jhelum In Shehr-E-Khaas
--  KONE’s Amit Gossain explains why elevators are more complex than automobiles
--  Better-for-You Meals from Breakfast to Dinner
--  Woman passenger schooled on social media after arguing with Indigo staffer over accommodation
--  Ali Carter says Ronnie O’Sullivan is not ‘that well, mentally’ as feud continues
--  Lightyear shelves solar EV plans, hires executives to spearhead solar systems for other OEMs
--  Small-Cap Stocks Continue to Warn of a Struggling Bull Market
--  LeAnn Rimes shares heartbreaking health update as she undergoes surgery: 'I've had enough trauma'
--  Don’t give military controversy any currency – Peter Toobu to media
--  ‘No lapses found’: Barbeque Nation denies customer’s allegations of dead rat and cockroaches in vegetarian meal served by the restaurant
--  IMF Managing Director Georgieva Identifies Crypto as an Asset Class, Emphasizes Dollar’s Stability
--  Understanding the Impacts of LDL Cholesterol
--  Jinder Mahal Feels Like He Can Win the Royal Rumble Now
--  Clydebank food van owner says she missed the banter
--  Families ignore cost-of-living crisis as they flock to book Christmas at Fridays
--  NIA Files Charge Sheet Against Five In Cross-Border Arms Smuggling Case In Punjab
--  How Russia Could Emerge the Victor of Israel’s War
--  Mark Ruffalo, 56, panicked he was ‘too old’ for ‘Poor Things’ sex scenes with Emma Stone, 35
--  Farmer protests continue in Berlin over fuel subsidy cuts
--  Senior promotions made at Complete Clarity Solicitors and Simplicity Legal
--  With the latest update, Google Maps will now provide navigation even if you are driving inside a tunnel
--  Man on trial accused of murdering Emma Caldwell in 2005
--  Over 100 acres of land in South Kildare up for auction
--  Poor Ariana DeBose is the center of another unfortunate awards show moment
--  Mahama Runs From Promises –
--  Australian Open: Sabalenka, Djokovic matches are back-to-back again on Day 4
--  One-step synthesis of the most common, yet highly intricate, antibiotic molecular scaffold
--  Sean ‘Diddy’ Combs and Diageo Resolve Legal Dispute
--  UNFO Introduces Innovative Corrective Foot Brace For Newborns, Elevating Pediatric Orthopedic Care In The U.S.
--  Toronto sees snow on Tuesday as temperatures expected to feel like -25 C by evening
--  Yemeni leader claims US ignored warnings about rising Houthi threat
--  Xbox Game Pass games (January 2024): F1 23, Palworld, more
+-  US companies are complaining that US big tech is ignoring a new antitrust law
+-  Tickets go on sale for Venice day trippers
+-  Iceland eruption confirms faultline has reawakened: expert
+-  Polish truckers suspend Ukraine border blockade
+-  Eagles center Jason Kelce intends to retire after 13 NFL seasons, AP sources say
+-  Canada’s December warmth made twice as likely by climate change
+-  Met Office speaks out as map shows '80mph' snow storm smashing into UK
+-  Festive season celebrations dampen health uptake for truckers
+-  Pet Care Market: Projected Growth at a CAGR of 5.6% from 2023 to 2031
+-  Ted Cruz Received An Earful After Joking About His Cancun Vacation As Texas Gears Up For The Arctic Blast
+-  Rescuers in daring bid to save sheep trapped by Iceland volcano
+-  Uniqlo sues rival Shein for allegedly copying popular bag
+-  Ireland icon’s nephew to captain Under 20s throughout Six Nations as they bid to repeat Grand Slam heroics
+-  Brilliant reason Malik Lemmy aka Govi grew out his beard
+-  Ex-Llandudno subpostmaster criticises delays 'madness'
+-  Footballer ‘stabbed in the chest inside nightclub in planned act of retribution’
+-  Met Office snow warning as second wave set to hit UK sparking travel chaos and school closures
+-  Meet Andre Onana’s little-known goalkeeper cousin who has more Cameroon caps than Man Utd star
+-  57 drinking and driving arrests at Walvis and Swakop during December
+-  UNT alumna wins first runner-up for Miss America pageant
+-  Christina Applegate makes moving appearance at the Emmy Awards
+-  Man accused of attacking gunman in restaurant where he suffered fatal injuries remanded in custody
+-  Betway SA20 has its first Catch R2 million winner – WATCH
+-  Snowfall warning issued for southwestern Alberta
+-  Republican Asa Hutchinson ends 2024 presidential campaign
+-  Younger workers need to be in the office because of AI, PwC’s U.K. boss says
+-  Russia’s Dependency On China Resulting In Its Strategic Failure: EU Chief At WEF
+-  Consumer Tech Brand Infinix Debuts Its 16-inch Laptop, INBOOK Y4 Max
+-  Consumer Tech Brand Infinix Debuts Its 16-inch Laptop, INBOOK Y4 Max
+-  Putin Embodies War: Zelenskyy Urges Western Unity In Davos To Counter Russia
+-  Diddy Settles Racism Lawsuit Against Diageo Over Tequila Partnership
+-  VinFast motors into US ebike space with vintage-inspired DrgnFly
+-  Paris Olympic Village Hit By French Real Estate Downturn
+-  'Please hurry!' | 911 calls from scene of Fort Worth hotel explosion released
+-  Exclusive: Sunderland and Derby County interested in signing League Two goal machine
+-  PKL 2023 Points Table: Jaipur Pink Panthers Leading the Standings With 53 Points
+-  India turns to Mideast oil as sanctions keep Russian crude tankers stuck at ports, New Delhi says
+-  Jollibee opens first Common Man Coffee Roasters cafe in PHL
+-  Lord Farmer: Penal Populism Isn’t Really ‘Hard on Crime’
+-  Vacancy: St Vincent de Paul seeks Regional Social Housing Officer
+-  Treasure Hunter Falls to Death in 12-Story Pit That He Believed Held Gold - His Assistant Could Only Watch
+-  Tauba Tera Jalwa | Song - Mujhe Ishq Ke Par
+-  Animal | Song - Saari Duniya Jalaa Denge
+-  Sidharth Malhotra celebrates his birthday by cutting a cake with fans and paparazzi
+-  Rent rises for Birmingham council tenants ‘unavoidable’ amid major plans to tackle housing crisis
+-  Captain Miller shooting location: Know where was Dhanush’s action adventure movie filmed in India
+-  The Mahakumbh of Literature is back
+-  Beeper users say Apple is now blocking their Macs from using iMessage entirely
+-  Man caught after he disguised as a woman to write exam for his girlfriend
+-  Exposure to AI models may improve clinical efficiency and care
