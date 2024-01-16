@@ -1,51 +1,51 @@
 # Latest News
--  हौथी विद्रोहियों ने अदन की खाड़ी में अमेरिकी जहाज पर हमले की ली जिम्मेदारी
--  В ГД работают над возможностью уходить в декрет в первом триместре
--  สาวซื้อผัดเครื่องแกงปลาดุก กินเกือบหมด คำสุดท้ายแทบช็อก
--  CSVN xử vụ bạo động ở Đắk Lắk theo kiểu bạo quyền
--  Emmys 2024: What DID Pedro Pascal say about Kieran Culkin? Hollywood star BLEEPED on air while joking Succession actor caused his shoulder injury
--  Emmys 2024: The cast of the Martin show reunites with Martin Lawrence, Tisha Campbell, Carl Anthony Payne II and Tichina Arnold taking the stage
--  What Pedro Pascal said at the Emmys
--  Ayodhya Ram Temple: This Muslim Family To Provide Flowers For Pran Pratishta Rituals
--  Dense Fog Spurs Travel Woes In Delhi, Around 30 Flights And Trains Delayed
--  Iran says it struck 'terrorist' sites in Syria, Iraq with barrage of missiles
--  Nhiệt điện Duyên Hải hướng đến nhiều nhiệm vụ quan trọng trong năm 2024
--  Chê Suzuki Jimny quá nhỏ? Đã có 'Jimny nhân đôi' cho người đam mê
--  आरबीआई ने हाउसिंग फाइनेंस कंपनियों के लिए सख्त नियमों का प्रस्ताव रखा, यहां पढ़ें
--  แม่คนขับเก๋งอ้างลูกป่วย คิดว่าเป็นพระพุทธเจ้า
--  Iranian Ambassador calls on Sindh Governor
--  В Турции сообщили, что россиян среди пострадавших в ДТП с автобусом нет
--  Misiles balísticos iraníes impactan contra sedes terroristas en Siria
--  Мэр Воронежа: в результате ночного налета пострадали дома на Острогожской
--  Commissioner inspects ongoing lining work of Nasrat Canal
--  1st Commissioner’s Mirpurkhas Marathon on 21st
--  दिल्ली-NCR में घना कोहरा, ठंड भी प्रचंड; कब तक रहेगी ऐसी मुश्किल
--  Jessica Chastain stands out from the crowd in a mesmerizing neon green Gucci gown at the 2024 Emmy Awards
--  ‘พิมพ์ภัทรา’ อวดผลงาน 90 วัน โชว์ช่วยขับเคลื่อนอุตฯอีวี – แก้ปัญหาชาวไร่อ้อย
--  '착한기업' 현대백화점그룹, 설 전 중소협력사 결제대금 3000억 조기 지급
--  상생 나선 롯데그룹, 파트너사에 8800억원 대금 조기 지급
--  창사 5년만에 첫 흑자...에이블리가 확 달라졌다
--  넵튠, 모바일 게임사 이케이게임즈 인수…글로벌 수익성 강화
--  쿠팡, 스포츠 브랜드 할인전…최대 78% 할인
--  "8개 분기만에 흑자전환" 리스타트 넷마블, 2024년 반전 만든다
--  과기정통부, 지능형 CCTV 등 차세대 성장산업으로 '물리보안' 육성
--  Tarifa de gas: la quita de subsidios será más fuerte que el aumento a las empresas
--  Minister for equipping youth with technical, vocational skills
--  AUS vs WI: Smith to take his talents to the top and open Australia’s innings in first test against West Indies
--  Karachi commissioner bans transportation of fish without cover
--  Organisasi Profesi Kesehatan Gelar Dialog dengan Capres-Cawapres, Ini yang Disorot
--  Финал нижегородского профориентационного фестиваля состоится 16 января
--  ECP urges candidates to follow code of conduct
--  Pep bất lực đưa ra câu trả lời khi bị Thierry Henry hỏi khó, chọn Barca hay Man City?
--  US State Department issues condemnation of Iran’s attacks in Erbil
--  La Universidad de Oviedo (pionera en España) se abre a devolver a sus dueños los cuadros incautados en la Guerra
--  ¿Qué pasa si se circula con la ITV caducada por culpa de la huelga? Tráfico seguirá multando
--  El recurso para frenar la concesión de la fábrica de baterías en El Musel pilla por sorpresa a Zima, con un acuerdo con Duro para el plan eólico
--  Clima de hoy, martes 16 de enero de 2024, para la ciudad de Villa La Angostura
--  SAU set to host 12th convocation on 18th
--  पूर्वोत्तर में खेलों के विकास की हैं अपार संभावनाएं - राष्ट्रपति मुर्मू
--  Clima de hoy, martes 16 de enero de 2024, para la ciudad de Choele Choel
--  4 tuyển thủ Mỹ ở Serie A: Pulisic chưa phải sao sáng nhất
--  Từ chối gia hạn, đá tảng Atletico sắp cập bến Premier League
--  Lineker: “Messi có một sự nghiệp hoàn hảo”
--  Hesco’s crackdown continues, 260 more illegal connections identified
+-  Telangana govt. gears up for Budget 2024-25, to conduct reviews dept. wise
+-  Эрон АҚШнинг Ироқдаги консуллиги яқинидаги объектларга ҳужум қилди.
+-  Хорижий товарларнинг давлат харидларидаги иштирокига чеклов кучайтирилиши мумкин.
+-  Испания банки Ўзбекистонга 500 млн доллар ажратишга тайёрлигини маълум қилди.
+-  Сунъий интеллект иш ўринларининг 60 фоизига таъсир қилади.
+-  Уяли телефон фойдаланувчиларига касалликлар профилактикаси бўйича ҳар куни SMS юборилади.
+-  Хатирчида директор ўринбосари икки ўқувчини уриб, жароҳат етказди.
+-  Францияда Ле Пен партияси Россия билан алоқалари учун судга берилди.
+-  পিএসসি-জেএসসি পরীক্ষা পুনরায় নেওয়ার কথা গুজব: শিক্ষা মন্ত্রণালয়
+-  Fatal collision in dense fog claims two lives near Bahawalnagar
+-  Kryptofirma HashKey sichert sich $100 Mio. Finanzierung, überschreitet $1 Mrd. Bewertung
+-  Cryptofirma HashKey haalt $100 mln financiering op, overschrijdt waardering van $1 miljard
+-  La società di criptovalute HashKey si assicura un finanziamento di 100 milioni di dollari, superando la valutazione di 1 miliardo di dollari
+-  La empresa de criptomonedas HashKey consigue 100 millones de dólares de financiación y supera los 1.000 millones de valoración
+-  وفيات الثلاثاء 16/ 1/ 2024
+-  الأونروا: نحن أمام أكبر تهجير للشعب الفلسطيني منذ 1948
+-  اقتحامات إسرائيلية جديدة بالضفة الغربية
+-  لجان نيابية تناقش اليوم مشاريع قوانين وقضايا عدة
+-  창원시, 철도 중심 교통망 혁신으로 교통 안전망 확대
+-  제주자치경찰단, 명절 앞두고 원산지 표시 위반 집중 단속
+-  창원시, 의과대학 설립 숙원에 전력
+-  [인천 소식] '조상 땅 찾기'로 여의도 면적(2.9㎢) 10배 찾아줘
+-  김동연, WEF '이노베이터 커뮤니티' 간담회서 세계 스타트업 CEO 등과 협력 논의
+-  천안 북부 BIT 일반산업단지 진입도로 착공
+-  서천군 lsquo;김미선middot;김정환rsquo; 주무관 건축사 자격시험 lsquo;합격rsquo;
+-  충남도의회 lsquo;소규모 병설유치원rsquo; 지원 근거 마련
+-  '선거법 위반' 강진군 의원, 항소심도 벌금 80만원
+-  대전지역 전통과 맛 이어온 맛집 30곳은 어디?
+-  민주당 quot;사라진 대통령 부부hellip;대통령이 한동훈으로 바뀐 듯quot;
+-  尹대통령 quot;北 '적대적 두 국가' 규정, 반역사적 집단 자인quot;
+-  강남구, ‘구정 보고회’ 개최...조성명 강남구청장 경청행정 박차!
+-  구로구, 지상 철도 경인선ㆍ경부선 지하화 적극 추진
+-  파주시, 농민거점형 농산물종합가공센터 예산확보
+-  의정부시 통장협의회, 미래인재에 장학금 전달
+-  尹 "91개 국민 부담금 원점에서 재검토해야 … 중대재해법 유예 요청"
+-  고성군가족센터, ‘2024년 겨울학기 행복한 학교’ 개강
+-  연천군, “청년 창업자 인테리어 비용 500만원 지원”
+-  강진군, 군민 대상 ‘찾아가는 디지털 배움터’ 운영
+-  장흥군, ‘바이오식품산단’ 8개 기업 326억원 투자협약
+-  담양 가사문학면, 활기찬 노후생활 위한 노인일자리 사업 발대식
+-  화순팜, 설맞이 최대 30% 할인 이벤트 실시
+-  여수시, ‘맞춤형 MICE 인센티브’ 확정…국내·외 행사 유치 시동
+-  순천시, 2023년 친환경농업대상 ‘최우수상’ 수상
+-  Kementerian ESDM Siapkan Anggaran Rp 186,9 Triliun untuk Subsidi Energi Tahun Ini
+-  Myrskyluodon Maija kokee uustulkinnassa sekä suuren rakkauden että sodan
+-  दशकैपिच्छे फेरिए भारत जाने मुख्य वस्तु
+-  Proyek Strategis Nasional Memantik Konflik Agraria
+-  군산소방서, 구급지도의사 위촉식 가져
+-  '갤S24 언팩 D-1' 삼성 노태문, AI폰 시대 2막 연다
+-  사천시, 거북선 최초 승전지 순례길 조성된다
