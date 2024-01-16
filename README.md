@@ -1,11 +1,11 @@
 # Latest News
--  Indian Police Force | Song - Bairiyaa Re
--  108-ft incense stick lit up in UP’s Ayodhya ahead of ‘Pran Pratishtha’ ceremony
--  Check Out The Latest Hindi Music Video Jaane De Na Sung By Vineet Sharma
--  Aishwarya Sharma: I’m not pregnant but I want to have kids; it’s on my bucket list
--  Check Out The Latest Haryanvi Music Video Meri Maa Ne Pasand Sung By Raju Punjabi
--  Cricketer Yuvraj Singh wants ‘Animal’ star Ranbir Kapoor to play him in his biopic
--  Check Out The Latest Hindi Music Video Ye Jag Jhoota Sung By Neha Rajawat
--  HRAWI and Ingram Micro unite in strategic partnership for hospitality sector
--  Spirited debut: Moxy Hotels infuses South Asia with its energetic character
--  Five get death for 2019 rape, murder of woman in Shariyatpur
+-  BTS members RM, V complete basic military training
+-  ‘Succession’, ‘The Bear’ tie Primetime Emmy Awards with big wins
+-  Elections 2024 Pakistan: List of candidates from Karachi
+-  Sanwo-Olu hails gallant soldiers
+-  Access Holdings acquires Megatech Insurance Brokers
+-  Global Diabetes Therapeutics and Diagnostics Set to Hit $132.0 Billion in 2028- Insights from BCC Research
+-  Indonesia says 'strong indication' of safety procedure violation in nickel fire
+-  Apartment for sale in Marbella – € 349,000
+-  GLOBAL HUNGER FUNDING GAP HIT 65% FOR NEEDIEST COUNTRIES, ACCORDING TO NEW ANALYSIS FROM ACTION AGAINST HUNGER
+-  Donald Trump heads to trial, again, against E. Jean Carroll
