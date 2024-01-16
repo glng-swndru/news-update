@@ -1,51 +1,51 @@
 # Latest News
--  Ha convertido Infonavit más 59 mil créditos a pesos en Chihuahua
--  Украинские войска обстреляли Горловку и Ясиноватский район
--  Ordem dos Despachantes Oficiais reelege bastonário
--  Abascal integra a Ortega Smith en la nueva ejecutiva de Vox para taponar la crisis interna
--  Así cerró el dólar en Venezuela este 16 de enero de 2024
--  Соперник "Текстильщика" по товарищескому матчу начал сборы
--  Španielsko schválilo zákaz predaja ochutených zahrievaných tabakových výrobkov
--  Poslanci Národnej rady SR schválili štátnu podporu pre nové letecké spojenia
--  OBROVSKÁ RANA Náhle zomrel OBĽÚBENÝ slovenský SPEVÁK a blízky priateľ KAROLA DUCHOŇA!
--  Eurojackpot heute am 16.01.2024: 120 Millionen Euro aktuell im Jackpot! Das sind die Gewinnzahlen
--  ¿Gusta un yodito? En la feria del café de Frailes probará los sabores más exquisitos
--  נמלט מהמשטרה, חצה באדום - והתנגש ברכב: הרוג בתאונה קטלנית בצפון
--  קטאר: התרופות לחטופים הישראלים יוטסו מחר מדוחא לקראת העברה לעזה
--  המשפחות עודכנו: החטופים איתי סבירסקי ויוסי שרעבי נרצחו בשבי בעזה
--  Piłkarki MKS FunFloor Lublin potężnie zmęczone, ale z kolejnym kompletem punktów
--  Pogotowie przedmaturalne. Wykładowcy z UMCS pomogą „wkuć” fizykę
--  Satoshi Nakamoto Olduğunu İddia Eden Son Derece Değerli ‘Satoshi’ X Hesabının Arkasındaki İsim Belli Oldu, Gizem Çözüldü: İşte Sahte Satoshi
--  Santos Silva defende que Parlamento deve rever lei da imprensa na próxima legislatura
--  Avô é suspeito de abusar sexualmente das próprias netas no Agreste da PB
--  Britain could see coldest January night in 14 years as more heavy snow on way
--  Pé de Meia: entenda como será o programa de incentivo financeiro a alunos do ensino médio público; valor não está definido
--  Recortes en empresas agrícolas de Sinaloa, efectos de la mala racha esta temporada: César Galaviz
--  Učešće na sastanku za potpisivanje Sporazuma između EU i CG o učlanjenju u “EU4Health”
--  ‘Argylle’ director denies theory around Taylor Swift’s involvement in upcoming spy movie
--  A study’s surprise finding: Most workers want to be in the office more often
--  Moro cita Nelson Mandela para atacar Lula e apanha nas redes
--  América vs Querétaro: Precios de los boletos para el penúltimo partido en el Estadio Azteca
--  Investors who lost money with shares of Waldencast plc (NASDAQ: WALD) should contact the Shareholders Foundation
--  [新日本カレンダー] 2024年 カレンダー A2 THE・文字 NK-8163 - thenewsunlimited.com
--  電動ボールバルブ式タイマードレンバルブ15A200V 日本精器 8183423 - thenewsunlimited.com
--  エアテックス ハンザBlack用ノズルベースセット0.4mm (HZSZ0.4) - thenewsunlimited.com
--  ﾃﾞｻﾞｲﾝｷﾞﾌﾄﾊﾞｯｸﾞ 図工･工作･ｸﾗﾌﾄ･ﾎﾋﾞｰ お絵かき・ﾌﾟﾚｾﾞﾝﾄ・ｵﾘｼﾞﾅﾙ - thenewsunlimited.com
--  掛け軸 節句画 武者・兜 兜と菖蒲 山村観峰 三美会 洛彩緞子本表装 尺五サイズ幅54.5cm 桐箱畳紙収納 表装品質十年保証 端午の節句掛軸 - thenewsunlimited.com
--  骨董品 永樂年製 陶器／銅縁巻 蓋付き壺 径19cm高さ27cm - thenewsunlimited.com
--  Adobe Premiere Pro anuncia nuevas herramientas con IA: así funcionan
--  Choca con luminaria por “La Costerita”: militar queda lesionado en accidente en Culiacán
--  Thesis reveals gender gap in reactions to women's sexual assault stories
--  Gibt es schon bald Entlastungsvorschläge für Bauern?
--  Rabiot MVP della Juve di dicembre: il premio pre Sassuolo – VIDEO
--  Muş-Mutki karayolunda mahsur kalan 70 kişi kurtarıldı
--  Zona sumraka u okeanima možda kriјe izvor novog penicilina
--  У Белого дома сейчас нет средств на помощь Украине - Кирби
--  Três homens são presos suspeitos de roubarem e atirarem contra comerciante em Atibaia, SP
--  В Госдуме предложили наградить мальчика, спасшего сестру из-подо льда
--  "تاو ضد ديانج".. تشكيل جنوب أفريقيا ومالي بكأس الأمم الإفريقية
--  البيت الأبيض: نجري نقاشات مكثفة وجادة في قطر لإبرام صفقة تبادل أسرى
--  "الزراعة" تنظم يومًا حقليًا للاطلاع على نتائج أصناف الطماطم ببرنامج إنتاج تقاوي الخضر
--  Conmovedoras imágenes del sepelio de los muertos en el derrumbe en vía Quibdó-Medellín
--  EEUU confirma la muerte de 3 migrantes en medio de disputa por el control de la frontera
--  تعب مفاجئ وصدمات صحية ونفسية تلاحق مواليد 4 أبراج.. احذر
+-  Lukko-leiristä rehti tunnustus vastustajan suomalaisille
+-  Počelo suđenje Ruskinji optuženoj za ubistvo proratnog blogera
+-  Zelenski pozvao Zapad da pojača sankcije Rusiji
+-  Rwanda bill will be messy and damaging for the Tories - whatever the outcome
+-  Postcode search: Find out the new constituency you're in and how it's changed
+-  Rwanda bill rebels - full list of Tories who voted for Cash amendment
+-  Pellegriniho nominant. Šéfom štátnej volebnej komisie sa stal dekan Burda
+-  Chinese Manufacturers Unveil Sodium-Ion Electric Vehicles - The Insidexpress
+-  Why You'll Regret Not Tipping Your Pizza Delivery Driver - The Insidexpress
+-  مستوطنون في الأغوار يزعمون تعرضهم لإطلاق النار من الجانب الأردني كل ليلة
+-  بيان عاجل صادر عن وزارة الخارجية القطرية
+-  Tenía 19 años, ejecutado en el Libramiento Oriente
+-  Más de 300 formularios presentados en el primer día de inscripciones del Lugo Termal
+-  “Do të na paguash 2 mijë euro ose do të të shembim punimet”, inspektorët e IMT-së zhvasin qytetarin
+-  News24 | Here are the Daily Lotto numbers
+-  News24 | Russia and Niger agree to develop military ties, Moscow says
+-  Schneechaos in Luxemburg / Tipps vom ACL: Wie komme ich am sichersten durch den Verkehr?
+-  Bakan Işıkhan'dan tepki çeken 'emekli' paylaşımı
+-  Ренн цікавиться Бондаренком
+-  Bu karışım resmen atom! Aktarcı kaşık kaşık yedi hem de tavsiye etti: C, D, A vitaminiyle vücudu kaya gibi yapıyor
+-  MrBeast Posts First 'Test' Video on X, as Elon Musk Tries to Lure Creators to Platform
+-  MrBeast Posts First 'Test' Video on X, as Elon Musk Tries to Lure Creators to Platform
+-  Apple to Remove Blood-Oxygen Tool From Watches to Avoid Ban
+-  Designers Are Accusing Temu of Selling Copies of Their Work
+-  Emmanuel Macron exhorte les Français à reprendre le contrôle de leurs écrans
+-  Besançon. Disparition de Madjid : les plongeurs effectuent des recherches dans le Doubs
+-  Haute-Saône. La société Techniluxe, à Voray-sur-l'Ognon, victime d'une tentative de braquage à ...
+-  Nancy. Stationnement, infiltrations d'eau... Le fleuriste rue Saint-Georges excédé par le chantier du ...
+-  Lorraine. Rentrée 2024 : 174 postes d'enseignants supprimés dans l'académie Nancy-Metz
+-  Polémique. Amélie Oudéa-Castéra huée à son arrivée à l'école publique Littré
+-  Bessoncourt. Mr.Bricolage sur les rangs : la fermeture définitive de Bricorama est annulée
+-  Justice. Liens avec les Frères musulmans : Benzema porte plainte pour diffamation contre Darmanin
+-  Oristano, acqua non potabile nel centro storico
+-  Neuveriteľný chaos v Ázijskom pohári, v hlavnej roli boli rozhodcovia a systém VAR
+-  Eurojackpot geknackt: 120 Millionen gehen nach Norwegen
+-  Devisen: Eurokurs bleibt unter 1,09 US-Dollar
+-  "Succession", "The Bear", "Acharnés", où voir les séries primées aux Emmy Awards
+-  Matthew Perry: les Emmy Awards ont rendu un hommage émouvant à l'acteur de "Friends"
+-  Alexander Barboza é apresentado pelo Botafogo e destaca personalidade
+-  COLOMBIA: Asciende a 38 cifra de muertos por derrumbes en Chocó
+-  Kristalina Georgieva elogió el rumbo económico de Milei y dijo que hay avances en todos los frentes: “Hasta ahora todo va bien”
+-  Nigerian Army Sex Scandal: FG Steps Into Matter
+-  Empleo, demografía y educación con anuncios de presidente francés
+-  HRVATSKA VOJSKA STIŽE NA KOSOVO: Njihov temeljni zadatak je...
+-  سامسونج تقدم عروضًا حصرية على أجهزة التلفاز والأجهزة المحمولة لعملائها في الإمارات
+-  Abuela permitía que el abuelo abusara de su nieta de 11 años
+-  New Year's Eve line shuffle has brought out best in Flames' Huberdeau and Mangiapane
+-  Recept na dnes: Obdobie chorôb je pre ňu ako stvorené, táto famózna cesnačka vás postaví na nohy!
+-  Learn How Triangle DEI Alliance is Helping Improve the Community
+-  Kauza okolo zostreleného ruského lietadla: Na jeho palube mal byť generál! Zničili si ho sami?
