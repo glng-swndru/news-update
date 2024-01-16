@@ -1,51 +1,51 @@
 # Latest News
--  El total de turistas que visitó Cuba en 2023, poco más de la mitad que los de 2019
--  Swedish firm partners with a local company, Nyembesi, in energy projects
--  Coca-Cola in Africa …
--  Nigeria Info FM presenter, Deborah Ohamara, dies in Abuja auto crash
--  خلاف بين متحدثين عراقي وإيراني على الهواء حول قصف طهران لأربيل
--  صمت المآذن.. ماذا فعل الاحتلال الإسرائيلي بمساجد غزة؟
--  Allegri: «Conta solo vincere, serve lavorare e stare in silenzio. Ruolo di cacciatore? Vi dico…»
--  Arda Turan: Semih Kılıçsoy'u izledikçe gurur duyuyorum
--  AİHM'den düzensiz göçmenlere ateş açan Yunanistan'a maddi tazminat ödemesi kararı
--  Şampiyonluk emeklilik ikramiyesi değil
--  Next Station Pendik
--  Almanya'da "DAVA" ismiyle Türklerin öncülüğünde yeni bir siyasi oluşum kuruldu
--  Ziraat'in "Cenk"averi Kartal
--  Kayseri açık artırmada
--  Vítor Pereira lamenta "mastiga e deita fora" do futebol. "Projetos são apenas para o próximo jogo"
--  Evalúan plan estratégico de recuperación productiva en Pdvsa
--  بعد إدانة رئيسها بخيانة الأمانة.. وزارة بنموسى تقرر تعيين لجنة مؤقتة لتسيير جامعة الشطرنج
--  "كوستال" الألمانية تفتتح وحدة صناعية جديدة في طنجة المتوسط
--  Fechas para elecciones primarias y generales en Carolina del Norte
--  2024首次民调出炉！国家党大获全胜，Chris Hipkins支持率跌至历史最低
--  Öffentlicher Dienst: Beamte erhalten Sonderzahlungen
--  Gunda replaces Tsuroh at the helm of GB Holdings
--  Liri (18), aus Israel entführt: Hamas hält meine Tochter als Geisel | Nachricht
--  Özgür Özel şehit ailesini ziyaret etti
--  I’m ‘that mom’ – everyone asks how I’m so put together, I wake up at 5am to work out & totally clean my house each night
--  Dinamo a anunțat al doilea transfer al iernii: are patru titluri de campion în palmares!
--  Contag aciona STF contra lei de Goiás que determina a desocupação de margens de rodovias
--  Continúan detenciones de camiones que trasladan a migrantes por Sonora
--  Luton survive Bolton scare to reach fourth round
--  Bristol City shock 10-man West Ham in replay
--  Miyoshi grabs late winner for Blues against Hull
--  نتنياهو : نقل الأدوية للأسرى الإسرائيليين بغزة سيبدأ الاربعاء
--  البيت الأبيض: حماس ما زالت تهدد "إسرائيل"
--  VW Tayron: Siebensitzer-Ersatz für den Tiguan Allspace
--  موعد والقنوات الناقلة لمباراة لبنان والصين اليوم في كأس آسيا 2023
--  గొర్రెల పంపిణీ అవినీతి కేసు.. ఏసీబీ దూకుడు
--  Handball-EM: Das sagen Wolff und Gislason zur DHB-Niederlage gegen Frankreich
--  Clôture à Dakar des Assises Sénégalo-Marocaines de la Décentralisation
--  Hyte predstavlja THICC Q60 AIO vodeno hlađenje
--  Prve Bluetooth i MP3 kompatibilne slušalice napravljene tehnologijom koštane provodljivosti
--  Tattoos could reveal true identity of man killed by train in 1981
--  مالي تحقق فوزا ثمينا على جنوب إفريقيا بهدفين نظيفين
--  রাম মন্দিরের পাল্টা ‘সংহতি দিবস’ কর্মসূচি ঘোষণা মমতার
--  Piden al Tribunal Constitucional celeridad en el proceso que definirá permanencia de peajes de Rutas de Lima
--  El sentido adiós de Mario Sábato a ESPN después de 15 años ¿Ya tiene reemplazo?
--  Los amotinados en Cotopaxi esperaban el ingreso policial con explosivos en buses
--  Missions like the nighttime sea raid that saw 2 Navy SEALs go missing are 'dangerous' and 'complex,' former Special Forces soldier says
--  Wieder schlechte Nachrichten zum Release (Update)
--  Conférence de presse de Macron : le « réarmement démographique » du président a des airs de dystopie
--  అద్దంకి , బల్మూరి ఖరారు
+-  Spadki na Wall Street
+-  Tigres vs Santos: Cómo y dónde ver la Liga MX Femenil CL24
+-  Australians ‘strongly concerned’ about Gaza deaths, Wong tells Israel
+-  Australians ‘strongly concerned’ about Gaza deaths, Wong tells Israel
+-  América de Cali y Ricardo Gareca: viaje, cita en el Pascual y “la idea es…”
+-  Za Miloša Bikovića često govore da je umišljen, a njegovi su prijatelji konačno razbili tračeve i priznali kakav je on
+-  Rímac: denuncian que sujeto asesinó con un cuchillo a perrita de la zona | Imágenes sensibles
+-  애플 주가 183.63 달러, 1.23% 하락 ... 중국서 아이폰 가격 5% 인하 영향
+-  연초부터 골프장 그린피·부대비용 줄인상 … 요금 상한제 정부 규제안 '유명무실'
+-  UK Housing Market Set for 3% Rise in 2024 Amidst Economic Resilience
+-  Isparta'da kontrolden çıkan otomobil refüje çarptı: 1 ölü, 1 yaralı
+-  Almanya'da Türklerin öncülüğünde DAVA isimli siyasi oluşum kuruldu
+-  İsveç'te 5 Ocak'ta son 58 yılın en soğuk günü yaşandı
+-  BM raportörleri: İsrail, Gazze'nin gıda sistemini yok ediyor
+-  Pas-de-Calais: des bateliers coincés depuis plusieurs jours en raison des opérations de pompage
+-  Con Todos Menos Contigo
+-  Столтенберг: Помош за Украина не е милостина, туку инвестиција во заедничката безбедност
+-  West Ham United putosi divariseuralle
+-  苹果首次超过三星登顶智能手机年度销冠
+-  Chiellini ancora in MLS, ufficiale: scelto il nuovo ruolo
+-  Allegri, Juve-Inter guardie e ladri e retroscena Vlahovic: “Voleva spaccare tutto”
+-  ‘If he’s weak-minded, just take advantage of that’: Jamaine Ortiz convinced he’ll best Teofimo Lopez
+-  Nông dân Cần Thơ bán hoa Tết được miễn phí tiền thuê mặt bằng, điện, nước
+-  Besteiro rechaza que Sumar esté en el debate electoral de la TVG
+-  Skoro 20.000 francuskih vojnika biće mobilisano za OI u Parizu
+-  SeptiCyte RAPID® By Immunexpress Receives Regulatory Clearance from Australian Therapeutic Goods Administration (TGA)
+-  Guerre en Ukraine : Macron promet des livraisons d’armes et renouvelle son soutien
+-  Berlinale Special 2024, annunciato il programma del festival: da Supersex a Kristen Stewart, ecco tutti i titoli
+-  Will Newsom Confront California’s Structural Budget Problems or Leave Them to His Successor?
+-  Apple's App Store anti-steering rules are gone, but the replacement isn't much better
+-  GUNTER: Notley departure will end banner days for Alberta NDP
+-  Innoterra Unveils 2023 Stakeholder Impact Report, Commits to go Net Zero by 2040
+-  Climate change may make wildfires larger, more common in US southern Appalachian region
+-  Honduras, que registró 3.052 incendios forestales en 2023, lanza una campaña preventiva
+-  NHS Medicine Shortage Raises Concerns Over Patient Safety
+-  LIVE TOTO KNVB Beker | AZ en amateurclub Quick Boys gaan verlengen na knotsgek slot in Alkmaar
+-  SF Giants announce plans to induct ‘Core 4’ onto Wall of Fame
+-  Golman Crne Gore: Žao mi je što smo baš mi izbacili naše drugove i prijatelje
+-  AR1AN y Camenino lanzan su primer single y video juntos: “Nadie like U”
+-  Gocat e Big Brother zihen për moshën, Meri: Ti je 40 vjeçe mi…
+-  Boric revocará pensiones de gracia a condenados por homicidio, narcotráfico y violación
+-  “No por mucho provocar se crece en las encuestas”: Sheinbaum responde a Xóchitl Gálvez
+-  Revelan la causa de muerte del actor Alec Musser, estrella de All My Children
+-  Jason Momoa has insisted he is only "houseless" - but not "homeless" - in the wake of his divorce from Lisa Bonet
+-  Best outfits for Eras: Glassons drops ‘Front Row’ collection ahead of Taylor Swift’s Eras tours - selling out in record time
+-  Windows95manin UMK-kappale julki – tämä oli fanien ensireaktio
+-  Politique. Marie-Hélène Thoraval sur les propos du président : « On a entendu le prénom Nahël mais pas celui de Thomas »
+-  Ukrainian foreign minister Dmytro Kuleba's candid interview: I wanted to punch I wanted to punch Sergey Lavrov
+-  Bride arrested for extortion mind-wedding in Mexico, handcuffed in her wedding dress
+-  GUNTER: Alberta NDP to lose momentum with departure of Rachel Notley
