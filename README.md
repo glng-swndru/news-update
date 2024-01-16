@@ -1,51 +1,11 @@
 # Latest News
--  Bigg Boss 17: Vicky Jain fights with Ankita, shares his side of the story
--  Galatasaray'a kötü haber! PFDK...
--  İstanbul'da 'huzur' uygulaması
--  Yemen ve İngiltere görüştü: Gündem Kızıldeniz
--  Büyük tepki topladı! Sunak'tan Müslüman milletvekiline İslamofobik sözler
--  Tunceli'de eğitime kar engeli
--  Tunceli'de eğitime kar engeli
--  Resmen açıklandı! Galatasaray dünyaca ünlü yıldızı kadrosuna katıyor
--  Bright Osayi-Samuel zehirlendi!
--  Muş-Mutki karayolunda zorlu hava koşulları: Mahsur kalan 70 kişi kurtarıldı
--  Kızıldeniz yeniden ısındı: Husiler İsrail'e giden gemiyi 'tam isabet' vurdu
--  AB'den çifte standart uyarısı: Ukrayna'da uluslararası hukuka başvururken Gazze'de göz ardı edemeyiz
--  İngiltere Başbakanı'nın Müslüman milletvekiline yönelik sözlerine tepki: Gelinen en alçak nokta
--  Vyúčtování záloh na důchodové pojištění OSVČ už nepřijde poštou
--  Xiaomi introduces all-new Redmi Note 13 Line-up
--  El aula Marie-Françoise Colliére de la ULPGC, un espacio de reflexión sobre cuidados
--  Πόλο: Αυλαία με νίκη και πέμπτη θέση για την εθνική, 15-10 το Μαυροβούνιο
--  కొనసాగిన అంగనవాడీల నిరసన
--  115 optužbi protiv Cityja: Uskoro ćemo saznati hoće li biti izbačen iz lige
--  Actriz de “La Casa de Papel” genera polémica luego de participar en manifestación por presos de la ETA
--  Judge blocks JetBlue's $3.8 billion purchase of Spirit Airlines
--  Specijalna savjetnica UN-a: Negiranje genocida alarmantno
--  Barrister Gohar rules out possibility of ‘ban’ on PTI
--  అంగన్వాడీలకు జీతాలు పెంచాల్సిందే
--  పల్లెల్లో పండగ సంబరం
--  GOT7 celebra su décimo aniversario con ‘Ahgase’
--  Droga do Małaszewicz jak złoto. Kto ją wybuduje?
--  Shell, Kızıldeniz üzerinden yapılan sevkiyatları askıya aldı
--  Bursaspor’da Jure Zdovc dönemi sona erdi
--  Sivasspor-Gaziantep FK maçının biletleri 58 TL'den satışa sunulacak
--  In Photos: Teachers on one-day strike across Saskatchewan
--  Giroud sempre più maestro di record: mai così tanti assist effettuati in campionato
--  &quot;ZAR TOLIKO PONOSA NEMAJU?&quot; Sprkinja usijala društvene mreže, otkrila šta joj koleginice svakodnevno rade (FOTO)
--  Sattler i Plakalo razgovarali o trenutnim procesima EU integracija
--  금리인하 기대 부채질했던 미 연준 인사 "정책 변화 서둘면 안 돼"
--  Deutsch Tamás szerint a baloldal el akarja venni a magyar egyetemisták lehetőségeit
--  "Falta tudo" nos hospitais em Gaza, denuncia português
--  విజన ఉన్న నాయకుడు చంద్రబాబు: సవిత
--  Nordische Botschafter geben Tipps für Schnee in Berlin: „Man muss den Winter so richtig umarmen!“
--  సంక్రాంతి సంబరం
--  ఎండీయూ వాహనంలో వైసీపీ నేత ధాన్యం తరలింపు
--  Leeds interested in signing 26-year-old keeper to compete with Meslier
--  В аэротакси над Германией уже в 2024 году?
--  Il-ħaddiema tal-Università mistennija jissejħu biex jivvutaw fuq ftehim kollettiv ġdid
--  קשרים עם "האחים המוסלמים"? בנזמה הגיש תלונה נגד שר הפנים
--  באמצעות ימי מילואים: כך המדינה תשלם לחטופים שנמצאים בעזה | פרסום ראשון
--  Marko Livaja dobio udarac i s treninga morao izaći ranije, stigao je i predsjednik Hajduka Lukša Jakobušić, odmah je...
--  Fosse om tilstandene i Gaza: Behandler mange barn og tenåringer
--  Kim Jong-un abandona la idea de una reunificación con el Sur
--  Oregon State Beavers debut at No. 7 in college baseball preseason national rankings
+-  طلاق ياسمين عبدالعزيز وأحمد العوضي
+-  الاحتلال يغلق طرقا ترابية في الخليل
+-  هل يمكن لمريض السكري أكل التمر والزبيب؟
+-  Felújítás miatt fél évre bezárják a világ második legszebb McDonald'sát a Nyugati téren
+-  قصة «إيسكوبار الصحراء» امتدادات وآثار وخسائر أخرى
+-  وعي الجماهير بالنضال الديموقراطي
+-  بسبب الجفاف.. بلاغ هام من الديوان الملكي
+-  حوادث السير تتسبب في وفاة 16 شخصا وإصابة المئات في أسبوع واحد
+-  الاتحاد التنزاني يتبرأ من تصريحات المدرب الجزائري التي هاجم فيها المغرب
+-  Meghalt egy 64 éves férfi az eplényi sífelvonón
