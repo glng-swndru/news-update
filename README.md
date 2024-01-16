@@ -1,51 +1,51 @@
 # Latest News
--  Osaka's return halted as Tsitsipas, Medvedev battle through
--  I am a California restaurant operator preparing for the $20-an-hour fast food wage by trimming hours, eliminating employee vacation, and raising menu prices
--  Soccerladuma | Mofokeng Responds To Afcon Snub
--  In Perak, Domestic Trade and Cost of Living Ministry’s Ops Tiris yields RM6.2m in seizures last year, says state director
--  Tobacco use shrinking worldwide: WHO
--  Vivek Ramaswamy, an 'anti-woke' biotech millionaire and former Harvard rapper running against Trump, has dropped out of the 2024 GOP race
--  'We wanted to be thorough': Jodie Comer had to accurately portray motherhood in The End We Start From
--  'That project had issues from the beginning': Dolph Lundgren claims The Expendables 4 failed for numerous reasons
--  Emeli Sande records surprise collaboration with Headie One
--  Heathrow Airport partners challenge Spanish company’s sale
--  Why King Frederik and Queen Mary of Denmark make a 'great team' in marriage and royal life
--  GCC Bottled Water Market is Expanding Rapidly with Promising Growth Prospects
--  3.5 magnitude earthquake recorded near Kyrgyz-Chinese border in the evening of Jan 15
--  Even the Battle for Second Turned Out Well for Trump in Iowa
--  Cargo Transportation Insurance Market Forecast 2024-2030: Ensuring Security in Global Logistics
--  Global Stone Plastic Composite (SPC) Flooring Market Size to Surpass USD 7600 Million by 2031, Exhibiting a CAGR of 6.6% - Zhejiang Walrus New Material, CFL Flooring
--  RBI To Tighten Rules for Housing Finance Companies, Limit Public Deposit
--  BJP offers solidarity as playback singer KS Chithra faces cyber attack over Ram temple issue
--  Level of dollarization of credits decreases to 21.9% in Kyrgyzstan - National Bank
--  Erythromelalgia Market to Show Incremental Growth During the Forecast Period | Major players: Regeneron Pharmaceuticals, Amgen, Pfizer, Novartis, AstraZeneca, Takeda Pharmaceutical Company, Johnson & Johnson, Biogen, Grünenthal, UCB Pharma
--  Open contender Rybakina knocks out former World No.1
--  Iranian Attacks Target Erbil, Killing 4
--  Mystery over ‘world’s oldest dog’ as 31-year-old pup Bobi LOSES title & Guinness World Records launches investigation
--  Open contender Rybakina knocks out former World No.1
--  From J-Lo’s 3Bs workout to Amanda Holden’s ‘breath of fire’…how celeb mums in their 40s & 50s look SO amazing in bikinis
--  Michael Weatherly reveals plans to reprise 'unfinished' NCIS character Tony DiNozzo
--  Russia declares emergency over Ukrainian kamikaze drone blitz aimed at key airbase after Vlad’s £300m jet shot down
--  Philippine jeepney drivers protest over phase-out plan
--  Watch: Youth Congress holds protest against arrest of Rahul Mangkoottathil in Kozhikode
--  “Look at their hypocrisy…” Owaisi tears into AAP, clarifies his “RSS ka chhota recharge” remark
--  Global Electrolyzers Market Size to Surpass USD 4033 Million by 2031, Exhibiting a CAGR of 22.8% - Enapter S.r.l., NEXT Hydrogen, Plug Power Inc., Air Liquide S.A.
--  Mild Tremor Hits J&K’s Kishtwar
--  Social Employee Recognition Systems Market Offering New Industry Trends, Growing Opportunities, and Innovations by 2031 | GloboForce Ltd, BI Worldwide, SalesForce.Com
--  We live together in a Nissan 4×4 – it’s so small inside ‘we have to spoon’ at night but there’s a garden on the ROOF
--  French President Macron will hold a prime-time news conference in a bid to revitalize his presidency
--  'Merry Christmas' BO Day 4: Katrina Kaif, Vijay Sethupathi Film Earns ₹11.3Cr
--  East Coast train fares simplified in bid to boost passenger numbers
--  QuickRead: Tinubu suspends Betta Edu. Four other stories we tracked and why they matter
--  Xiaomi Redmi Note 13 Pro 5G in for review
--  Bitget Launches Spot P2P Market to Support Early Investment Before Major CEX Listing
--  BREAKING: Crash closes two lanes on Prince of Wales bridge
--  Racing at Chepstow called off as temperatures drop to minus six
--  Cafeteria in Bishkek that turned into storage facility dismantled to free municipal territory
--  Aubrey Plaza's Emmys Dress Was A Meme Waiting To Happen
--  Global Rare Earth Magnet Market Size to Surpass USD 37000 Million by 2031, Exhibiting a CAGR of 10.8% - JL MAG, ZHmag, Proterial (Hitachi Metals), Innuovo Magnetics, Shin-Etsu Chemical
--  New details in shooting of 11-year-old Aderrien Murry emerge from 911 calls
--  Steel Service Centers Market: Size, Share, Growth, Analysis, Key Players, Revenue, Growth | Valuates Reports
--  Scotland snow blast to bring more travel chaos as forecasters predict -15C freeze
--  Met Office snow forecast for each Greater Manchester borough hour-by-hour on Tuesday
--  Citypress | DA Gauteng MPL Khume Ramulifho quits to join Rise Mzansi
+-  Nigeria’s Dangote Oil Refinery has Begun Producing Diesel and Aviation Fuel
+-  Roma announces that José Mourinho is leaving the club ‘with immediate effect’
+-  Denodo gains momentum in Thailand with growing demand for next-generation logical data management
+-  LONGi leads the way in partnership with UNHCR to solarize its Logistics Hub
+-  7SF to provide life insurance to Icefall doctors, says AC Sherpa
+-  NAC&#039;s wide-body plane grounded after suffering technical glitch
+-  SPECIAL EDITION: State begins restoring heavily degraded wetlands
+-  EXCLUSIVE: “The Big Bank Juggling Act” – Mark Brant, NatWest in ‘The Fintech Magazine’
+-  Security personnel must renew licences by month-end
+-  “A Day on which We Took another Leap towards a Modern Senegal,” Macky Sall
+-  WATCH: Relentless Israeli bombardment continues in Gaza
+-  Vision Pro is already making its AI competition look silly
+-  Cultist reportedly stabs retired nurse, housemaid to death in Benue
+-  Expectation that the Largest Economies in Africa Will Slow Down the Rest of the Region
+-  BiH Veterinary Office and inspectors of EU Food and Veterinary Office on the export of poultry meat
+-  Krišto to participate in the 54th World Economic Forum in Davos
+-  Noah Schnapp Says His ‘Thoughts and Beliefs’ on Israel-Hamas War ‘Have Been So Far Misconstrued’: ‘I Stand Against Any Killing of Any Innocent People’
+-  Noah Schnapp Says His ‘Thoughts and Beliefs’ on Israel-Hamas War ‘Have Been So Far Misconstrued’: ‘I Stand Against Any Killing of Any Innocent People’
+-  Australian Open Highlights: Emma Raducanu v Shelby Rogers
+-  Summer storm tears through Perth
+-  Iowa GOP Leader Decries 'Concerning' Actions Before Caucus Voting Ended
+-  Meet the First All-women Anti-poaching Unit in Zambia
+-  Bahrain Tourism weaves heritage into MICE
+-  Moxy Hotels breaks ground in Bengaluru
+-  N5m chicken change – Phyna boasts
+-  Shoppers can snap up £230 worth of beauty products for £55 in money-saving deal
+-  Yoon presents letters of appointment to FM, spy chief
+-  BTS members RM, V complete basic military training
+-  FIDA condemns rise of femicide and victim blaming
+-  Who was the Green Goblin at the Emmys?
+-  "We're the only species capable of destroying itself (and all others) completely and, increasingly, it appears as though we're only too willing": Listen to Enter Shikari and Fever 333's Jason Aalon Butler collaborate on the furious Losing My Grip
+-  City advocate files case seeking to stop new NSSF rates
+-  Jose Mourinho bids farewell to AS Roma: Special One drops 2-word reaction after sudden sacking by Serie A giants
+-  Lavish Plymouth bridal showroom closes leaving owners 'heartbroken'
+-  Housing association transfer halted as shareholders reject plan
+-  Nature’s Candy: Exploring the Health Benefits of Medjool Dates
+-  Back to school | AfriForum wants admissions challenges addressed
+-  Brunei Darussalam Expresses Interest to Invest in Indonesia's IKN Project
+-  Is Baldur’s Gate 3 on Xbox Game Pass?
+-  Baldur’s Gate 3 PC requirements: Recommended and minimum specs
+-  Baldur’s gate 3 voice actors for all characters
+-  Francis Thoya: Mombasa’s Mr Fixit
+-  Best Necromancer build in Baldur’s Gate 3: Race, spells, weapons & more
+-  Bundespräsidentin Amherd redet WEF-Teilnehmern ins Gewissen
+-  Assam: Hailstorm Alert Issued for Multiple Districts in Assam
+-  Europe’s first LED dome to be star of Prague Planetarium
+-  Astronomers find massive ring-shaped cosmic object that defies theories
+-  Nigeria’s inflation rate hit 28.92% in December 2023, a record 20-year high
+-  A nation waits in anticipation
+-  Coroner's inquest into death of Toronto teen Sammy Yatim resumes today
