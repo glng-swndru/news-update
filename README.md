@@ -1,11 +1,51 @@
 # Latest News
--  Persona 3 Reload builds on fine foundations, but may fall just short of definitive
--  Arizona Sonoran Drills 521 ft (159 m) @ 1.78%CuT at Parks/Salyer
--  TreviPay and Mastercard Partner to Launch B2B Net Terms Financing Capabilities for Any Supplier Accepting Credit Cards
--  Arsenal Women analyst Joe Moore set to join Oxford United
--  Sarah Astin relishes Parliament Hill opportunity
--  Grand Gathering in Abuja as Former President Buhari Honored with Book Launch: Tinubu, Gowon, Osinbajo Attend
--  Kate Moss turns 50: Her most iconic looks of all time
--  Outram Secondary School moving to Sengkang in 2026, Kranji Primary School to Tengah in 2028
--  Es Devlin x 180 Studios
--  Run for Fun: How massage therapy helps muscles recovery
+-  GBP/USD to signal more downside potential towards 1.25 on a break under 1.26 – Scotiabank
+-  Sarina Wiegman extends contract with England until after 2027 FIFA Women's World Cup
+-  The Painted Bird
+-  Heroic comeback for Tomljanovic
+-  Heroic comeback for Tomljanovic
+-  Over 1,000 without power in Washington County
+-  Public voice for formation of new district with Pollachi as headquarters gets louder
+-  US Dollar holds on to big gain ahead of US opening bell
+-  Pokemon TCG fan shares first look at “perfect” new Gengar SAR
+-  Paratus South Africa and Eutelsat OneWeb Launch Connectivity Services
+-  NBA 2K24: How to grade players in MyTeam
+-  6,600 tribals from Paderu region in Andhra Pradesh receive ₹70k each under Pradhana Mantri Awas Yojana
+-  Is Lakshadweep part of India? The unspoken hidden gem of India
+-  'We have planes all over the world that have issues that nobody has found' — union leader accused Boeing supplier of lack of quality control
+-  'Open to all possibilities' - Egan Bernal outlines early-season race schedule
+-  De-icing crews hard at work to clear Houston-area roads and overpasses, though some icy spots remain
+-  NBA 2K24: How to change MyTeam name and logo
+-  Tinubu urged to abort alleged moves by the NSA to compromise national security
+-  Oba Akiolu installs Abisogun as Ojon of Lagos
+-  Future Razorback WR Krosse Johnson enjoys OV to Arkansas
+-  Naana Donkor Arthur Chilling with Nana Ama McBrown
+-  PM Modi offers prayers at Lepakshi temple in Andhra Pradesh
+-  N.Y. Gov. Hochul to propose $233B budget with $2B for migrants
+-  This Week in Texas previews 2024 primary season
+-  Hyundai is offering EV buyers up to $7,500 cash after missing out on tax credits
+-  Deer run over by vehicle near Raj Bhavan
+-  Neena Gupta shares throwback pic from her 'simple wedding' with Vivek Mehra, daughter Masaba Gupta also makes appearance
+-  Locals Unite Against Threats to Vital Costa Rica River
+-  Lily Collins surprises Emily in Paris fans with an unexpected comeback
+-  Pokemon fans think this next-gen Sinistea variant is a “must have”
+-  Eagles Postgame Reaction: Is Nick Sirianni a Goner?
+-  Natural Gas gets hammered with biggest buyers facing more economic downturn
+-  Soccerladuma | Chiefs List Players To Go Out On Loan?
+-  Alex Winter On Early “Bill and Ted 4” Plans
+-  The best way to clean your ears is to not clean them - doctor
+-  West Indies face uphill task of ending 28-year wait for a Test win in Australia
+-  Laboratory Informatics Market Growth and Status Explored in a New Research Report
+-  Emmys slammed after In Memoriam segment snubs three major stars
+-  LS Lowry's iconic match day painting to go on tour of North West
+-  Filmfare Award noms: ‘Jawan’, ‘Pathaan’ vie for top honours
+-  ZKH Group Limited Announces Partial Exercise of Over-Allotment Option in Initial Public Offering
+-  Second Front Systems receives strategic investment from Booz Allen to rapidly scale emerging tech for national security
+-  Wales rugby star Louis Rees-Zammit, 22, QUITS the sport on the eve of the Six Nations to become an NFL player, as his Strictly Come Dancing girlfriend Saffron Barker beams with pride
+-  Incredible haul of weapons including ballistic missiles and warheads being sent form Iran to Houthi rebels is revealed after US Navy SEALs seized dhow during daring night raid off Somalia's coast as search for two seamen lost in mission continues
+-  Emmerdale's Lisa Riley shows soap's poignant tribute to late 'second dad' as fans rush to support
+-  Gujarat, Kerala & Karnataka ranked best performing states in startup promotion
+-  Mike Tindall shares behind-the-scenes snaps of night out with Zara at premiere of Six Nations : Full Contact - as they pose with pal Natalie Pinkham and rugby player Danny Care
+-  Inside Matthew Macfadyen's marriage to Keeley Hawes: From an 'awful' start to Hollywood fairytale as he dedicates Succession Emmy win to her
+-  Guitar Market Is Projected to Value USD 9369.91 Million, Globally, by 2029: States Data Bridge Market Research
+-  'Highest ever' number of asylum seekers with no accomodation as cold weather poses risk
