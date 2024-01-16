@@ -1,51 +1,11 @@
 # Latest News
--  Nigeria’s Dangote Oil Refinery has Begun Producing Diesel and Aviation Fuel
--  Roma announces that José Mourinho is leaving the club ‘with immediate effect’
--  Denodo gains momentum in Thailand with growing demand for next-generation logical data management
--  LONGi leads the way in partnership with UNHCR to solarize its Logistics Hub
--  7SF to provide life insurance to Icefall doctors, says AC Sherpa
--  NAC&#039;s wide-body plane grounded after suffering technical glitch
--  SPECIAL EDITION: State begins restoring heavily degraded wetlands
--  EXCLUSIVE: “The Big Bank Juggling Act” – Mark Brant, NatWest in ‘The Fintech Magazine’
--  Security personnel must renew licences by month-end
--  “A Day on which We Took another Leap towards a Modern Senegal,” Macky Sall
--  WATCH: Relentless Israeli bombardment continues in Gaza
--  Vision Pro is already making its AI competition look silly
--  Cultist reportedly stabs retired nurse, housemaid to death in Benue
--  Expectation that the Largest Economies in Africa Will Slow Down the Rest of the Region
--  BiH Veterinary Office and inspectors of EU Food and Veterinary Office on the export of poultry meat
--  Krišto to participate in the 54th World Economic Forum in Davos
--  Noah Schnapp Says His ‘Thoughts and Beliefs’ on Israel-Hamas War ‘Have Been So Far Misconstrued’: ‘I Stand Against Any Killing of Any Innocent People’
--  Noah Schnapp Says His ‘Thoughts and Beliefs’ on Israel-Hamas War ‘Have Been So Far Misconstrued’: ‘I Stand Against Any Killing of Any Innocent People’
--  Australian Open Highlights: Emma Raducanu v Shelby Rogers
--  Summer storm tears through Perth
--  Iowa GOP Leader Decries 'Concerning' Actions Before Caucus Voting Ended
--  Meet the First All-women Anti-poaching Unit in Zambia
--  Bahrain Tourism weaves heritage into MICE
--  Moxy Hotels breaks ground in Bengaluru
--  N5m chicken change – Phyna boasts
--  Shoppers can snap up £230 worth of beauty products for £55 in money-saving deal
--  Yoon presents letters of appointment to FM, spy chief
--  BTS members RM, V complete basic military training
--  FIDA condemns rise of femicide and victim blaming
--  Who was the Green Goblin at the Emmys?
--  "We're the only species capable of destroying itself (and all others) completely and, increasingly, it appears as though we're only too willing": Listen to Enter Shikari and Fever 333's Jason Aalon Butler collaborate on the furious Losing My Grip
--  City advocate files case seeking to stop new NSSF rates
--  Jose Mourinho bids farewell to AS Roma: Special One drops 2-word reaction after sudden sacking by Serie A giants
--  Lavish Plymouth bridal showroom closes leaving owners 'heartbroken'
--  Housing association transfer halted as shareholders reject plan
--  Nature’s Candy: Exploring the Health Benefits of Medjool Dates
--  Back to school | AfriForum wants admissions challenges addressed
--  Brunei Darussalam Expresses Interest to Invest in Indonesia's IKN Project
--  Is Baldur’s Gate 3 on Xbox Game Pass?
--  Baldur’s Gate 3 PC requirements: Recommended and minimum specs
--  Baldur’s gate 3 voice actors for all characters
--  Francis Thoya: Mombasa’s Mr Fixit
--  Best Necromancer build in Baldur’s Gate 3: Race, spells, weapons & more
--  Bundespräsidentin Amherd redet WEF-Teilnehmern ins Gewissen
--  Assam: Hailstorm Alert Issued for Multiple Districts in Assam
--  Europe’s first LED dome to be star of Prague Planetarium
--  Astronomers find massive ring-shaped cosmic object that defies theories
--  Nigeria’s inflation rate hit 28.92% in December 2023, a record 20-year high
--  A nation waits in anticipation
--  Coroner's inquest into death of Toronto teen Sammy Yatim resumes today
+-  Indian Police Force | Song - Bairiyaa Re
+-  108-ft incense stick lit up in UP’s Ayodhya ahead of ‘Pran Pratishtha’ ceremony
+-  Check Out The Latest Hindi Music Video Jaane De Na Sung By Vineet Sharma
+-  Aishwarya Sharma: I’m not pregnant but I want to have kids; it’s on my bucket list
+-  Check Out The Latest Haryanvi Music Video Meri Maa Ne Pasand Sung By Raju Punjabi
+-  Cricketer Yuvraj Singh wants ‘Animal’ star Ranbir Kapoor to play him in his biopic
+-  Check Out The Latest Hindi Music Video Ye Jag Jhoota Sung By Neha Rajawat
+-  HRAWI and Ingram Micro unite in strategic partnership for hospitality sector
+-  Spirited debut: Moxy Hotels infuses South Asia with its energetic character
+-  Five get death for 2019 rape, murder of woman in Shariyatpur
