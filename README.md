@@ -1,11 +1,11 @@
 # Latest News
--  طلاق ياسمين عبدالعزيز وأحمد العوضي
--  الاحتلال يغلق طرقا ترابية في الخليل
--  هل يمكن لمريض السكري أكل التمر والزبيب؟
--  Felújítás miatt fél évre bezárják a világ második legszebb McDonald'sát a Nyugati téren
--  قصة «إيسكوبار الصحراء» امتدادات وآثار وخسائر أخرى
--  وعي الجماهير بالنضال الديموقراطي
--  بسبب الجفاف.. بلاغ هام من الديوان الملكي
--  حوادث السير تتسبب في وفاة 16 شخصا وإصابة المئات في أسبوع واحد
--  الاتحاد التنزاني يتبرأ من تصريحات المدرب الجزائري التي هاجم فيها المغرب
--  Meghalt egy 64 éves férfi az eplényi sífelvonón
+-  Die nächsten Spiele für PC und Xbox landen im Abo-Dienst
+-  وقفة في تل أبيب للمطالبة بوقف الحرب على غزة
+-  البيت الأبيض: إسرائيل انتقلت لمرحلة أقل حدة في عملياتها
+-  Can hospitalité / La crise des billets toujours sans solution – Engorgements, pannes de réseaux et rareté du ticket Côte d’Ivoire – Nigeria
+-  Ce qu’il faut savoir sur les pluies verglaçantes attendues en Suisse
+-  Apple официально представила магазин приложений Vision Pro App Store
+-  FC Schalke 04: Karel Geraerts‘ 100-Tage-Bilanz als Schalke-Trainer | Sport
+-  Iran raketirao teritorij Pakistana balističkim projektilima
+-  USKOK češlja dokumentaciju gradske uprave Makarske
+-  Kako je Orbanov zet došao do pet poslovnih parkova u Beogradu
