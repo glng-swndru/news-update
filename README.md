@@ -1,51 +1,51 @@
 # Latest News
--  F1-talli McLaren kertoi odotetun uutisen
--  Francúzsky najvyšší súd zrušil vydanie odsúdeného mafiánskeho vraha do Talianska
--  Dankovi sa splnil sen: Nové ministerstvo má zarobiť Slovensku obrovské peniaze
--  Večne odhalená modelka na nespoznanie: Ako v skafandri… Fúha, musela byť fakt zima!
--  Delhi: 7-Year-Old Girl Receives 15 Injuries In Attack by Neighbhour`s American Bully Dog
--  ‘GOAT’는 생각도 다르다...‘메시 시상식 불참→앙리 대리 수상’ 이유는? “프리시즌 제대로 소화하고 싶어서”
--  وقفة في تل أبيب للمطالبة بوقف الحرب على غزة
--  منح دراسية مقدمة من حكومة بروناي
--  ڈاکٹر یاسمین راشد اور زلفی بخاری کو بڑی خوشخبری مل گئی
--  Bursa'da tehlike saçan aydınlatma direği yenilendi
--  誕生・性・遺伝子 人間とは何か／宗川吉汪 - thenewsunlimited.com
--  イラスト版10歳からの性教育 子どもとマスターする51の性のしくみと命のだいじ - thenewsunlimited.com
--  若者の性の現在地: 青少年の性行動全国調査と複合的アプローチから考える - thenewsunlimited.com
--  性の学び と活かし方 はたらく・つながる・自分らしい性を生きる 伊藤真美子 著 杉山貴士 - thenewsunlimited.com
--  お坊さん、「女子の煩悩」どうしたら解決できますか? 電子書籍版 著:三浦性曉 - thenewsunlimited.com
--  ゲイカップルのワークライフバランス 同性愛者のパートナー関係・親密性・生活 - thenewsunlimited.com
--  若者の性の現在地: 青少年の性行動全国調査と複合的アプローチから考える - thenewsunlimited.com
--  性教育はどうして必要なんだろう 包括的性教育をすすめるための50のQ A - thenewsunlimited.com
--  José Meza: “Llego con ganas de aportar”
--  November lockt mehr Gäste an als im Vorjahr – bleibt aber schwächster Monat
--  Churer Fasnachtsplakette: Bane vereint die Brambrüeschbahn und Spraydosen
--  Milestone as Kirinyaga performs first laparoscopy surgery
--  行為と合理性 - thenewsunlimited.com
--  الاتحاد الأوروبي يضيف القيادي في «حماس» يحيى السنوار إلى قائمة «الإرهاب»
--  «السكنية»: تسليم المركز التخصصي في «المطلاع»
--  توتر ديبلوماسي بين بغداد وطهران بعد الضربات الإيرانية في كردستان
--  إجراء قرعة الدفعة العاشرة بالضاحية الرابعة في مشروع جنوب سعد العبدالله اليوم
--  حرب غزة تهيمن على «دافوس» وإسرائيل تسعى لإنهاء «العمليات المكثفة»
--  بالفيديو.. الحسيني: تهيئة المجتمع لأحدث تكنولوجيا لسرعة نقل وتبادل المعلومات وخلق بيئة اتصالات ناجحة
--  فوز ساحق لترامب في الانتخابات التمهيدية للحزب الجمهوري في أيوا ويعزز مكانته بصفته المرشح «الأوفر حظاً» للرئاسة الأميركية
--  محافظ الأحمدي: الحركة التعاونية الكويتية رائدة
--  DİSK: Emeklilikte insanca yaşamak haktır
--  نقي: الأولوية التاريخية للتخصيص على قسائم «جنوب سعد العبدالله» حتى 30 يونيو 2007 وما قبل
--  Former Alberta premier Rachel Notley stepping down as NDP leader
--  Эроннинг Ироққа ракета ҳужуми, Британияда тақиқланган Ҳиз ут-Таҳрир ва Финландиянинг Россияга қарши ҳаракатлари — кун дайжести.
--  «Путин — йиртқич, музлатилган овқатни ёқтирмайди» - Зеленский.
--  Notley legacy as Alberta premier includes pipeline, higher minimum wage, deficits
--  Crown says suspect in Quebec cold case murder tracked down by Y chromosome project
--  Heavy snow, poor visibility on Hwy 401 in Kingston
--  Türkiye Kupası'nda Ankaragücü uzatmada penaltılarla turladı!
--  Nueva comunidad de viviendas para familias de bajos ingresos
--  Brytyjski minister wprost ostrzega przed wojną. "Epoka pokoju skończyła się"
--  Healthcare Supply Chain Market Booming at a CAGR of +15% by 2030 Top Key Players - McKesson, SAP SE, Oracle Corporation, Infor
--  Zamlı emekli maaşları ne zaman hesaplara yatacak? Takvim belli oldu!
--  Putin: Ukrayna devleti çok ciddi bir darbe alabilir!
--  Hombre enfrentará la justicia por actos libidinosos contra una mujer
--  ABD'de soğuk hava 7 can aldı
--  Oportunidades laborales en Vila-real con el nuevo taller de empleo
--  عطاف في أوغندا للمشاركة في الاجتماع الوزاري لحركة عدم الانحياز
--  Da IEE a conocer lineamientos para registro de candidaturas
+-  'We invited terrorists to live in Karachi': Bilawal Bhutto drops bombshell on Pak govt's decision to hold Taliban talks
+-  Kako odabrati AIO Cooler i biti siguran da će ispuniti očekivanja?
+-  Video: Advancing pancreatic cancer treatment with total robotic Whipple surgery
+-  Мирра Андреева — Онс Жабер: смотреть трансляцию матча Australian Open онлайн
+-  Tagesrückblick: 5 Meldungen in 2 Minuten
+-  LÄSARTEXT: Ekonomisk dopning
+-  Destination Dominican Republic: A US-DR Open Skies Agreement to strengthen cultural ties and economies
+-  Tak zmieniała się Magdalena Ogórek. Była gwiazda TVP zaczynała od modelingu i epizodów w serialach (ZDJĘCIA)
+-  విలువలు పాటించిన నేత జైపాల్‌రెడ్డి
+-  Slavs may unite to ‘raze’ Western Europe – EU lawmaker — RT World News
+-  ప్రభుత్వం నిర్లక్ష్యం వీడాలి
+-  Эр-Рияд опроверг вступление в БРИКС
+-  Путин предупреждает страны Балтии?
+-  How To Buy Tickets For Janet Jackson’s ‘Together Again’ Tour In 2024
+-  ఎన్ని‘కల’లో..!
+-  Świdniczanka sprawdza kolejnego młodego zawodnika, decyzje kadrowe zapadną w tym tygodniu
+-  Powrót do korzeni. Black metalowy koncert w Kultowej Klubokawiarni
+-  Así le fue al arte cubano en las subastas internacionales de 2023
+-  CES 2024: AMD Unleashes New 8000 Series Desktop CPU With Deciated NPU for Ryzen AI
+-  Samsung's Health Monitor BP & ECG Tracking On Galaxy Watch6 Series Makes India Debut
+-  Noventiq To Bolster India Operations, Plans 20% Local Workforce Growth
+-  WEF 2024 Discuss Existence Of Democracy In Digital Age
+-  Marut Drones, SkyDrive Join Hands To Transform Indian Air Transportation With Flying Taxis
+-  Aries, Horoscope Today, January 17, 2024: Seize the day with ambition and collaboration on the work front
+-  «Me gustaría ser optimista, pero en el mar tenemos un problema muy grave»
+-  Tolosaldea Garatzen crea la guía digital de las empresas de la comarca
+-  La Asociación Artística de Gipuzkoa vuelve al palacio de Igartza con sus obras
+-  Aloñako Igoera en las 'Golden Trail' de Salomon
+-  Mikel Soto gana la XVIII beca Tene Mujika con un proyecto sobre el poeta Jon Mirande
+-  Un espectáculo dedicado a los y las baserritarras de Urretxu
+-  पक्षी को बचाने के चक्कर में गई जान, बुरी तरह जला युवक
+-  PWHL is here to stay, based on the hockey league's strong early returns
+-  النيابة الإدارية تعاين العقار المنهار في أسيوط
+-  رئيس قناة السويس: اضطرابات البحر الأحمر "أمر عابر"
+-  تسليم عقود الوحدات السكنية لـ36 أسرة من متضرري السيول في أسوان - صور
+-  عودة 2623 مصرياً من غزة.. وزيرة الهجرة تكشف كيفية إنقاذهم في حوار لـ"مصراوي" (1- 2)
+-  انتقال مدافع الفريق الأول بالزمالك إلى البنك الأهلي.. رسميًا (صورة)
+-  الاتحاد الأوروبي يضيف يحيى السنوار القيادي في حماس إلى قائمة "الإرهاب"
+-  بوركينا فاسو تفوز على موريتانيا وتتصدر مجموعة الجزائر
+-  موظف يمزق "أم العيال" بسكين في العجوزة
+-  "بحضور الشناوي".. موعد المؤتمر الصحفي لمباراة مصر وغانا
+-  حدث في 8 ساعات| هجوم برلماني على وزير التموين.. وتفاصيل طقس الأربعاء
+-  إصابة لاعب الأهلي بشد في الخلفية خلال التدريبات الجماعية
+-  مستشار الأمن القومي الأمريكي: حماس هي التي اختارت أن تشمل أرض المعركة المدنيين
+-  نجم بيراميدز يحصد جائزة رجل مباراة بوركينا وموريتانيا
+-  "حياتك عشان تبنيها".. تفاصيل مشروع تخرج للتوعية بمخاطر الهجرة غير الشرعية
+-  عضو مجلس إدارة الاتحاد السكندري يكشف موقف النادي من بيع مابولولو في يناير
+-  هشام الغزالي: دور مهم للذكاء الاصطناعي في كشف أورام الثدي
+-  ثلاثي الأهلي يتبادلون الدعم في مباريات كأس الأمم الإفريقية (فيديو)
+-  تنبأت بطلاق ياسمين عبد العزيز والعوضي.. توقعات ليلى عبد اللطيف لمصر والعالم في 2024
