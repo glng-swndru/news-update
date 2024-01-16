@@ -1,51 +1,11 @@
 # Latest News
--  Táto herečka o súkromí nehovorí: V SND ulovila manžela kolegyne... o 30 rokov staršieho!
--  Tvrdá rana pre zákazníkov: Zbohom plastové vrecká na ovocie, zeleninu aj pečivo! Chystá sa ich zákaz
--  Federal lawsuit accuses NY Knicks owner James Dolan, media mogul Harvey Weinstein of sexual assault
--  Federal lawsuit accuses NY Knicks owner James Dolan, media mogul Harvey Weinstein of sexual assault
--  Dog presumed drowned following marine search and rescue call in Brentwood Bay
--  St. John's coach Rick Pitino is sidelined by COVID-19 for game against Seton Hall
--  Two British brothers jailed for stealing Ming Dynasty artefacts
--  IsLABentura destina para canarios la mitad de sus plazas
--  Pharrell Williams’ sophomore collection at Louis Vuitton showcases Americana, Native American spirit
--  Vacunación de covid y gripe en Canarias: sin cita y para todas las edades
--  El Festival Sunbeat LPA arranca este viernes con un tributo a Otis Redding
--  Una de cada 10 obras quedaron desiertas en las islas en 2023 por unos precios de licitación «irreales»
--  Sleva na manželku za rok 2023 v praktických příkladech
--  ¿Cuáles son las ventajas de la automatización de procesos en las empresas?
--  Cetusan warna harmoni
--  봉화군 행정서비스 만족도 높이다…복합민원상담실 시범 운영 ‘눈길’
--  진천군, 농촌 빈집 정비사업 추진…진천형 해비타트(Habitat) 사업 기대
--  충주시, 2023년산 충주 사과, 미국 수출길 올라
--  대국남아 가람·인준·제이, 5인조 '어센트'로 재데뷔
--  Australia v West Indies: first Test, day one – live
--  В Подмосковье проверят данные о таксисте, не выпускавшего девушку из машины
--  VÍDEO: Sevilha e Athletic Bilbao seguem para os «quartos» da Taça do Rei
--  Túnez reabre su mercado para la carne argentina
--  'NZ is killing us': Tourists' anguish as van smashed
--  Here’s yet another reminder that Incognito Mode doesn’t protect your data
--  São Paulo confirma primeiro caso de sorotipo 3 da dengue e intensifica prevenção
--  La oposición francesa fustiga declaraciones de Emmanuel Macron
--  Нідерланди та Данія підготували для відправки в Україну два танки Leopard 2
--  Celts Check-in With Brian Robb. Plus, Ranking Possible Belichick Destinations.
--  Karya seni unik pemuda autisme KL
--  Louis Vuitton inaugura Semana de la Moda París con estilos del Oeste Americano de Pharrell Williams
--  Macron propone más autoridad, menos impuestos y más empleo para relanzar su mandato
--  Kaspi.kz, sociedad anónima, anuncia la salida a bolsa de 9 millones de acciones
--  Rusia califica de "inútiles" reuniones de paz de Ucrania
--  Brasileiro é ferido em ataque a Israel
--  Expert offers tips on how to protect your home in winter weather
--  Young man dies as car hits tree in the Hunter Valley
--  Valverde: “Los jugadores han respondido”
--  Završen protest Šetnja od RIK do Crkve Svetog Marka, upaljene sveće za Olivera Ivanovića
--  Italian Culture Minister Accused of Owning Stolen Painting
--  ‘El momento fue muy rápido’: hablan trabajadores afectados por incendio en Bogotá
--  PJ sentenció a un año de prisión suspendida a excontralor Edgar Alarcón
--  Winnipeg Blue Bombers sign tackle Stanley Bryant
--  头条：中国总理预计2023年GDP将增长5.2%
--  Nicaragua construye el hospital más grande de Centroamérica
--  You’re moisturizing wrong – a simple change gave me the softest skin, even in the dead of winter
--  الأربعاء 5 رجب.. مواقيت الصلاة في جميع مناطق المملكة
--  تحذير عاجل من الدفاع المدني.. توقعات بتقلبات جوية على معظم المناطق حتى السبت المقبل
--  House moments from the beach hits the market for just $180,000, a fifth of the cost of an average home
--  [다보스 2024] MS 나델라 "AI 개발과 부작용 예방 동시 이뤄져야"
+-  ‘몰래녹음’ 불가에 엇갈린 시선…“학대 입증 어떻게” vs “신뢰 붕괴”
+-  Thần đồng Barcelona có cơ hội 'đổi màu áo'
+-  Erik ten Hag: "Cậu ấy có thể tạo ra sự khác biệt"
+-  Daniel Salcedo, con prisión en el caso Metástasis, fue retenido en Panamá
+-  Multitud despide con llantos y lamentos a fallecidos por derrumbe
+-  กรมอุตุฯ เผยไทยเจออากาศเย็นในช่วงเช้าบางพื้นที่เจอฝนผสมด้วย
+-  지난해 경기도 화재 전년보다 4.7%↓…인명·재산피해도↓
+-  ‘So exciting’: Calgary baton twirlers host major international competition
+-  Disemprot Netizen, Cara Berpakaian Azizah Salsha Dibandingkan dengan Fuji
+-  US in deep freeze while much of the world is extra toasty? Yet again, it's climate change
