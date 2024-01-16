@@ -1,11 +1,51 @@
 # Latest News
--  영등포구의회, 적십자 특별회비 전달
--  뮤지컬 '드라큘라' 뮤직비디오 공개
--  군포시, 26일 중소·벤처기업 지원시책 설명회 개최
--  '또또또!' 텐 하흐, 아약스 시절 제자 영입 원한다...'SON 동료' 영입 때문에 'KIM' 떠날까?
--  FT아일랜드, 亞투어 '헤이 데이' 개최…7개 도시 '글로벌 팬' 만난다
--  세븐틴 승관, Mnet '빌드업' 스페셜 심사위원 출연 확정 [공식입장]
--  신세계푸드, 식물성 대안식 ‘유아왓유잇’ 신메뉴 출시
--  갤러리아, 23일부터 ‘설 선물세트’ 본 판매 개시
--  AB6IX, 신보 타이틀곡 '그랩 미' MV 티저 공개…컴백 기대감↑
--  음바페-손흥민-케인의 선택→'전 세계 축구대표팀 주장들이 인정했다'…메시, 홀란드 제치고 FIFA 올해의 선수 선정
+-  हौथी विद्रोहियों ने अदन की खाड़ी में अमेरिकी जहाज पर हमले की ली जिम्मेदारी
+-  В ГД работают над возможностью уходить в декрет в первом триместре
+-  สาวซื้อผัดเครื่องแกงปลาดุก กินเกือบหมด คำสุดท้ายแทบช็อก
+-  CSVN xử vụ bạo động ở Đắk Lắk theo kiểu bạo quyền
+-  Emmys 2024: What DID Pedro Pascal say about Kieran Culkin? Hollywood star BLEEPED on air while joking Succession actor caused his shoulder injury
+-  Emmys 2024: The cast of the Martin show reunites with Martin Lawrence, Tisha Campbell, Carl Anthony Payne II and Tichina Arnold taking the stage
+-  What Pedro Pascal said at the Emmys
+-  Ayodhya Ram Temple: This Muslim Family To Provide Flowers For Pran Pratishta Rituals
+-  Dense Fog Spurs Travel Woes In Delhi, Around 30 Flights And Trains Delayed
+-  Iran says it struck 'terrorist' sites in Syria, Iraq with barrage of missiles
+-  Nhiệt điện Duyên Hải hướng đến nhiều nhiệm vụ quan trọng trong năm 2024
+-  Chê Suzuki Jimny quá nhỏ? Đã có 'Jimny nhân đôi' cho người đam mê
+-  आरबीआई ने हाउसिंग फाइनेंस कंपनियों के लिए सख्त नियमों का प्रस्ताव रखा, यहां पढ़ें
+-  แม่คนขับเก๋งอ้างลูกป่วย คิดว่าเป็นพระพุทธเจ้า
+-  Iranian Ambassador calls on Sindh Governor
+-  В Турции сообщили, что россиян среди пострадавших в ДТП с автобусом нет
+-  Misiles balísticos iraníes impactan contra sedes terroristas en Siria
+-  Мэр Воронежа: в результате ночного налета пострадали дома на Острогожской
+-  Commissioner inspects ongoing lining work of Nasrat Canal
+-  1st Commissioner’s Mirpurkhas Marathon on 21st
+-  दिल्ली-NCR में घना कोहरा, ठंड भी प्रचंड; कब तक रहेगी ऐसी मुश्किल
+-  Jessica Chastain stands out from the crowd in a mesmerizing neon green Gucci gown at the 2024 Emmy Awards
+-  ‘พิมพ์ภัทรา’ อวดผลงาน 90 วัน โชว์ช่วยขับเคลื่อนอุตฯอีวี – แก้ปัญหาชาวไร่อ้อย
+-  '착한기업' 현대백화점그룹, 설 전 중소협력사 결제대금 3000억 조기 지급
+-  상생 나선 롯데그룹, 파트너사에 8800억원 대금 조기 지급
+-  창사 5년만에 첫 흑자...에이블리가 확 달라졌다
+-  넵튠, 모바일 게임사 이케이게임즈 인수…글로벌 수익성 강화
+-  쿠팡, 스포츠 브랜드 할인전…최대 78% 할인
+-  "8개 분기만에 흑자전환" 리스타트 넷마블, 2024년 반전 만든다
+-  과기정통부, 지능형 CCTV 등 차세대 성장산업으로 '물리보안' 육성
+-  Tarifa de gas: la quita de subsidios será más fuerte que el aumento a las empresas
+-  Minister for equipping youth with technical, vocational skills
+-  AUS vs WI: Smith to take his talents to the top and open Australia’s innings in first test against West Indies
+-  Karachi commissioner bans transportation of fish without cover
+-  Organisasi Profesi Kesehatan Gelar Dialog dengan Capres-Cawapres, Ini yang Disorot
+-  Финал нижегородского профориентационного фестиваля состоится 16 января
+-  ECP urges candidates to follow code of conduct
+-  Pep bất lực đưa ra câu trả lời khi bị Thierry Henry hỏi khó, chọn Barca hay Man City?
+-  US State Department issues condemnation of Iran’s attacks in Erbil
+-  La Universidad de Oviedo (pionera en España) se abre a devolver a sus dueños los cuadros incautados en la Guerra
+-  ¿Qué pasa si se circula con la ITV caducada por culpa de la huelga? Tráfico seguirá multando
+-  El recurso para frenar la concesión de la fábrica de baterías en El Musel pilla por sorpresa a Zima, con un acuerdo con Duro para el plan eólico
+-  Clima de hoy, martes 16 de enero de 2024, para la ciudad de Villa La Angostura
+-  SAU set to host 12th convocation on 18th
+-  पूर्वोत्तर में खेलों के विकास की हैं अपार संभावनाएं - राष्ट्रपति मुर्मू
+-  Clima de hoy, martes 16 de enero de 2024, para la ciudad de Choele Choel
+-  4 tuyển thủ Mỹ ở Serie A: Pulisic chưa phải sao sáng nhất
+-  Từ chối gia hạn, đá tảng Atletico sắp cập bến Premier League
+-  Lineker: “Messi có một sự nghiệp hoàn hảo”
+-  Hesco’s crackdown continues, 260 more illegal connections identified
