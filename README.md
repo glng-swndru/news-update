@@ -1,51 +1,11 @@
 # Latest News
--  Hava Durumu (16-01-2024)
--  25 il için alarm! Meteoroloji o illeri tek tek uyardı! Bugün (16 Ocak) hava nasıl olacak?
--  [▶▶ 24년부터 전국민 카카오톡 추천주 무료.!
--  [박형덕 동두천시장 “교통약자들이 안심·안전하게 이동할 수 있도록 市가 앞장서겠다”
--  [여수시농업기술센터·여천농협 횡령 의혹 수사
--  [감독상·작품상·남주상…'성난 사람들' 美에미상 8관왕 '쾌거'[2024 에미상]
--  [“영하 20도에 역대급 대기줄” 日 마루타 만행, 낱낱이 전시한 ‘이곳’
--  [민생 처리 당부한 尹…北 도발엔 ‘응징’, 주민들엔 ‘포용’
--  [의왕시, ‘2024년 청년 취업사진 촬영비 지원사업’ 시행
--  [시작부터 내달렸다…트럼프 첫 대결 ‘압도’[美공화 경선]
--  [TIPA, R&D 전문기관 최초 부패방지경영시스템 인증 갱신
--  [하남시, ‘아빠 육아휴직 장려금’ 최대 180만원까지 지원
--  [[속보] 美 "北 대화 거부·한국에 대한 적대적 발언 확대 실망"
--  [공수처장 “일할 수 있는 기반 마련…비판 겸허히 받겠지만 오해도 있다”
--  [국민 10명 중 7명 "동물보호법 안다"…반려동물 양육비 월평균 13만원
--  [서울시 기후동행카드, 오는 23일 사전판매…27일부터 사용
--  [정부, EU CBAM '탄소배출량 보고' 점검…“민관 공동대응”
--  ['2030년까지 100만 로봇 보급'…핵심 부품 국산화율 80%
--  [전국 산사태 예방‧대응체계 일제 점검실시
--  [서울시, 고액체납자 재산·가족 조사 완료…본격 징수 나선다
--  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
--  Berlin: Restaurant "Kreuzberger Himmel" zeigt, wie Migration funktionieren kann
--  Donald Trump gana las elecciones del partido Republicano en Iowa
--  Jokowi Ingin Anggaran dan Jumlah Penerima LPDP Ditambah hingga 5 Kali Lipat
--  MLA Disqualification: विधानसभा अध्यक्षांच्या निकालाला स्थगिती द्या, शिवसेना ठाकरे गटाच्या याचिकेत मुख्य मागणी
--  PTI withdraws contempt petition against ECP, Punjab IGP
--  Иран нанес ракетные удары по иракскому Курдистану. Там находится консульство США
--  كأس آسيا.. رباعية نشامى الأردن تسجل "الفوز العربي الأكبر"
--  Vivek Ramaswamy announces he’s suspending his presidential bid after a disappointing finish in Iowa
--  Tinubu Leads Akpabio, Abbas, Ariwoola, Others To Honour Fallen Heroes
--  11번가-쿠팡, ‘판매수수료’ 전면전…양사 입장 팽팽 (종합)
--  올해 공공SW 사업 예정치 1.1%↑…상용SW 사업예산 25%↑
--  망분리제 뜯어 고치는 범정부 TF, 찬반 논쟁 잠재울 개선안 내놓을까?
--  애플, 中서 아이폰15 할인 판매… 화웨이 때문?
--  불법스팸 전송, 처벌 무거워진다…"3년 이하 징역 또는 3000만원 이하 벌금"
--  메타넷티플랫폼, 과기정통부 '보안관제 전문기업' 신규 지정
--  Pemakzulan Jokowi dan Petisi 100: Menelisik Gerakan Petisi 100
--  Baby girl stung by extremely poisonous jellyfish at K’gari island
--  İzmir'de topladığı kedileri eve götürüp öldürdü! Gözaltına alındı
--  Denizli'de eski binada çıkan yangın paniğe neden oldu!
--  Emniyet Genel Müdürlüğü'nden 127 personele terfi
--  Albanese hits back at Coalition attacks on Australia’s Red Sea response
--  Meteoroloji'den kuvvetli sağanak ve kar uyarısı! Dondurucu soğuklara dikkat
--  Mersin'de DEAŞ'a şafak operasyonu
--  Tam ölçülü puf puf kabaran pankek tarifi! Püf noktası göz göz olunca ters çevrilmesi
--  لماذا كذب الرئيس بايدن؟
--  Govt slashes petrol price by Rs8/litre
--  СМИ: Рамасвами планирует объявить о выходе из президентской гонки в США
--  Koalisi Pejalan Kaki: Satpol PP DKI Punya Wewenang Copot Baliho Kampanye yang Tutup Trotoar
--  US Business Visa: Big Update! There will be changes in America’s business visa from April, Indians will get its benefit!
+-  Mersin'de şafak vakti DEAŞ operasyonu: Polis sokak giriş ve çıkışlarında uzun namlulu silahlarla önlem aldı
+-  IKBY Başbakanı Barzani: Füze saldırılarını durdurmak için çalışacağız
+-  İHA'lar tespit etti ekipler harekete geçti: İzmir'de 60 düzensiz göçmen yakalandı
+-  하정우 감독·박병은·차주영 '로비', 지난달 27일 크랭크업… 사전 리딩만 10차례
+-  슈퍼주니어-L.S.S., 日 첫 미니 앨범 ‘렛츠 스탠딩 쇼’ 1월 17일 발매
+-  ‘고딩엄빠4’ 청소년 엄마 서유선, “혼인신고 한 달 만에 이혼” 고백
+-  "승리의 바레인전"…편의점·치킨 매출도 '활짝'
+-  女농구서 도합 ‘78점’ 최저득점 신기록-3점슛 14개 모두 실패
+-  'หมอยง'แจง ไวรัส hMPV ก่อโรคระบบทางเดินหายใจ ไม่ใช่ไวรัสตัวใหม่ ค้นพบมาแล้วกว่า 50 ปี
+-  ldquo;올 설 선물 준비는 완주 명품곶감으로rdquo;hellip;로컬 농산물 판매장 운영
