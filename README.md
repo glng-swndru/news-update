@@ -1,11 +1,51 @@
 # Latest News
--  Painting A Rosy Picture: Q3FY24 Sets The Stage For Bumper Sales For Paint Majors
--  Cochin Shipyard Aims To Double Its Turnover To Rs 7,000 Cr By 2028: Union Minister Sonowal
--  SAP Labs India Appoints Milesh J As Head Of Strategy & Operations
--  Delhi Airport: 22 Flight Delays By Fog For More Than 3 Hrs
--  Union Minister Scindia Flags Off Key Air Routes from Gwalior
--  Merry Christmas starring Katrina Kaif, Vijay Sethupathi to have a sequel? Director spills the beans
--  Citypress | SAPS rubbishes claims that Douglasdale officers refused to recover stolen goods, arrest suspects
--  News24 | IN FULL | Christopher Staker tells the ICJ SA's Gaza measures go too far and against precedent
--  Started Yatra from Northeast to pay respect to good ideas, different culture: Rahul Gandhi
--  Dhruv Tara on-location: Maharaj Suryapratap Singh apologises to Durgavati
+-  Wearing this color during air travel could get you an inflight hookup — here’s how
+-  Key BJP meet discusses party’s 2024 Lok Sabha election campaign strategy, stresses on first-time voters
+-  WWE News: Finn Balor Says R-Truth Is Growing on Him, Samantha Irvin Reacts to The Rock & Logan Paul, Bianca Belair & Cody Rhodes Showcase Community Impact
+-  Soccerladuma | Pieterse Backs Williams To Lead Bafana To AFCON Glory
+-  Alleged N1bn bribe: court reserves ruling in trial-within-trial of Ex-BPE DG, Dikki
+-  OLED iPad Pro might launch later than expected
+-  Home for Children without Parental Care in Sarajevo marks its 124th anniversary
+-  Expensive quad bikes stolen from commercial premises in Kilreekil
+-  Ex Roma Midfielder Hails “Extraordinary” Ex Arsenal & Man United Veteran
+-  tapouts Replaces Scrolling for Parenting Tips with Fun Mental Wellbeing Coaching for Kiddos
+-  Shoppers say 'wish I'd had this sooner' as they praise feet warmer that's a 'godsend'
+-  Chinese premier Li Qiang is visiting Ireland for talks on China’s relations with Europe
+-  Live music can help people recover from surgery faster: study
+-  Lal Salaam | Song - Ae Pulla (Lyrical)
+-  Guntur Kaaram | Song - Ramana Aei (Lyrical)
+-  Covid bereaved families urge Scottish ministers to 'do better' at Inquiry
+-  Trump Won By a Landslide In Iowa. His Supporters Are Still Spreading Conspiracies
+-  New book on Welsh football features chapters on Rhyl’s rise and fall
+-  LG Sinha Inaugurates Revamped Old Habba Kadal Bridge On River Jhelum In Shehr-E-Khaas
+-  KONE’s Amit Gossain explains why elevators are more complex than automobiles
+-  Better-for-You Meals from Breakfast to Dinner
+-  Woman passenger schooled on social media after arguing with Indigo staffer over accommodation
+-  Ali Carter says Ronnie O’Sullivan is not ‘that well, mentally’ as feud continues
+-  Lightyear shelves solar EV plans, hires executives to spearhead solar systems for other OEMs
+-  Small-Cap Stocks Continue to Warn of a Struggling Bull Market
+-  LeAnn Rimes shares heartbreaking health update as she undergoes surgery: 'I've had enough trauma'
+-  Don’t give military controversy any currency – Peter Toobu to media
+-  ‘No lapses found’: Barbeque Nation denies customer’s allegations of dead rat and cockroaches in vegetarian meal served by the restaurant
+-  IMF Managing Director Georgieva Identifies Crypto as an Asset Class, Emphasizes Dollar’s Stability
+-  Understanding the Impacts of LDL Cholesterol
+-  Jinder Mahal Feels Like He Can Win the Royal Rumble Now
+-  Clydebank food van owner says she missed the banter
+-  Families ignore cost-of-living crisis as they flock to book Christmas at Fridays
+-  NIA Files Charge Sheet Against Five In Cross-Border Arms Smuggling Case In Punjab
+-  How Russia Could Emerge the Victor of Israel’s War
+-  Mark Ruffalo, 56, panicked he was ‘too old’ for ‘Poor Things’ sex scenes with Emma Stone, 35
+-  Farmer protests continue in Berlin over fuel subsidy cuts
+-  Senior promotions made at Complete Clarity Solicitors and Simplicity Legal
+-  With the latest update, Google Maps will now provide navigation even if you are driving inside a tunnel
+-  Man on trial accused of murdering Emma Caldwell in 2005
+-  Over 100 acres of land in South Kildare up for auction
+-  Poor Ariana DeBose is the center of another unfortunate awards show moment
+-  Mahama Runs From Promises –
+-  Australian Open: Sabalenka, Djokovic matches are back-to-back again on Day 4
+-  One-step synthesis of the most common, yet highly intricate, antibiotic molecular scaffold
+-  Sean ‘Diddy’ Combs and Diageo Resolve Legal Dispute
+-  UNFO Introduces Innovative Corrective Foot Brace For Newborns, Elevating Pediatric Orthopedic Care In The U.S.
+-  Toronto sees snow on Tuesday as temperatures expected to feel like -25 C by evening
+-  Yemeni leader claims US ignored warnings about rising Houthi threat
+-  Xbox Game Pass games (January 2024): F1 23, Palworld, more
