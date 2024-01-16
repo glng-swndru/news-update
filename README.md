@@ -1,11 +1,11 @@
 # Latest News
--  “정말 대단한 사람이었는데”... 독일 레전드, 베켄바워 질문에 방송 중 오열하며 이탈
--  이번 시즌 선발 2경기인데 인기 폭발…유벤투스 포함 무려 다섯 팀이 영입 관심
--  혈통볼은 계속 된다..'괴수' 게레로 또 다른 아들, 메츠 입단 '역대급 야구 가족'
--  “독일어 빨리 배워서 적응할게!”... 다이어의 당찬 포부
--  [내일날씨] 전국 흐리고 눈 또는 비…낮최고 2~12도
--  美 역대급 한파, 최소 9명 사망…북서부 몬태나주 체감온도 영하 40도 이하
--  최점옥 할머니 '빈 병모아 사랑 가득 채운 행복 나눔'
--  "더 살아서 뭐하나" '사커킥'당한 경비원, 영상 유포자 고소
--  클린스만 감독, 중국 주심 옐로카드 남발 지적
--  Воронеж атаковали беспилотники. Введен режим ЧС
+-  ABD'de seçim süreci Iowa'da başladı: Trump açık ara önde
+-  نوبات الهلع.. هل الحلوى الحامضة علاج فعال؟
+-  Arrestan a dos menores tras persecución policiaca con disparos
+-  NASA’s Hubble Telescope Captures Stunning Images of Distant Galaxies
+-  Emmy Awards 2024: Succession star dedicates her Best Actress win to her baby daughter as she dazzles in $112K diamond and emerald Cartier earrings on the red carpet
+-  বিচারপতি টি এইচ খানের দ্বিতীয় মৃত্যুবার্ষিকী আজ
+-  সিদ্ধিরগঞ্জে পাড়া-মহল্লায় জমে উঠেছে পিঠার দোকান
+-  Aussie actress Courtney Eaton attends the Emmys in the same dress Dolly Lewis wore to the Critics Choice Awards 2024
+-  عاجل.. طقس الصباح الباكر اليوم الثلاثاء للعمال.. انخفاض في درجات الحرارة
+-  10 ضوابط لـ "الزي الرسمي" في منشآت وزارة الصحة
