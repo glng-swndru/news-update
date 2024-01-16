@@ -1,51 +1,51 @@
 # Latest News
--  Spadki na Wall Street
--  Tigres vs Santos: Cómo y dónde ver la Liga MX Femenil CL24
--  Australians ‘strongly concerned’ about Gaza deaths, Wong tells Israel
--  Australians ‘strongly concerned’ about Gaza deaths, Wong tells Israel
--  América de Cali y Ricardo Gareca: viaje, cita en el Pascual y “la idea es…”
--  Za Miloša Bikovića često govore da je umišljen, a njegovi su prijatelji konačno razbili tračeve i priznali kakav je on
--  Rímac: denuncian que sujeto asesinó con un cuchillo a perrita de la zona | Imágenes sensibles
--  애플 주가 183.63 달러, 1.23% 하락 ... 중국서 아이폰 가격 5% 인하 영향
--  연초부터 골프장 그린피·부대비용 줄인상 … 요금 상한제 정부 규제안 '유명무실'
--  UK Housing Market Set for 3% Rise in 2024 Amidst Economic Resilience
--  Isparta'da kontrolden çıkan otomobil refüje çarptı: 1 ölü, 1 yaralı
--  Almanya'da Türklerin öncülüğünde DAVA isimli siyasi oluşum kuruldu
--  İsveç'te 5 Ocak'ta son 58 yılın en soğuk günü yaşandı
--  BM raportörleri: İsrail, Gazze'nin gıda sistemini yok ediyor
--  Pas-de-Calais: des bateliers coincés depuis plusieurs jours en raison des opérations de pompage
--  Con Todos Menos Contigo
--  Столтенберг: Помош за Украина не е милостина, туку инвестиција во заедничката безбедност
--  West Ham United putosi divariseuralle
--  苹果首次超过三星登顶智能手机年度销冠
--  Chiellini ancora in MLS, ufficiale: scelto il nuovo ruolo
--  Allegri, Juve-Inter guardie e ladri e retroscena Vlahovic: “Voleva spaccare tutto”
--  ‘If he’s weak-minded, just take advantage of that’: Jamaine Ortiz convinced he’ll best Teofimo Lopez
--  Nông dân Cần Thơ bán hoa Tết được miễn phí tiền thuê mặt bằng, điện, nước
--  Besteiro rechaza que Sumar esté en el debate electoral de la TVG
--  Skoro 20.000 francuskih vojnika biće mobilisano za OI u Parizu
--  SeptiCyte RAPID® By Immunexpress Receives Regulatory Clearance from Australian Therapeutic Goods Administration (TGA)
--  Guerre en Ukraine : Macron promet des livraisons d’armes et renouvelle son soutien
--  Berlinale Special 2024, annunciato il programma del festival: da Supersex a Kristen Stewart, ecco tutti i titoli
--  Will Newsom Confront California’s Structural Budget Problems or Leave Them to His Successor?
--  Apple's App Store anti-steering rules are gone, but the replacement isn't much better
--  GUNTER: Notley departure will end banner days for Alberta NDP
--  Innoterra Unveils 2023 Stakeholder Impact Report, Commits to go Net Zero by 2040
--  Climate change may make wildfires larger, more common in US southern Appalachian region
--  Honduras, que registró 3.052 incendios forestales en 2023, lanza una campaña preventiva
--  NHS Medicine Shortage Raises Concerns Over Patient Safety
--  LIVE TOTO KNVB Beker | AZ en amateurclub Quick Boys gaan verlengen na knotsgek slot in Alkmaar
--  SF Giants announce plans to induct ‘Core 4’ onto Wall of Fame
--  Golman Crne Gore: Žao mi je što smo baš mi izbacili naše drugove i prijatelje
--  AR1AN y Camenino lanzan su primer single y video juntos: “Nadie like U”
--  Gocat e Big Brother zihen për moshën, Meri: Ti je 40 vjeçe mi…
--  Boric revocará pensiones de gracia a condenados por homicidio, narcotráfico y violación
--  “No por mucho provocar se crece en las encuestas”: Sheinbaum responde a Xóchitl Gálvez
--  Revelan la causa de muerte del actor Alec Musser, estrella de All My Children
--  Jason Momoa has insisted he is only "houseless" - but not "homeless" - in the wake of his divorce from Lisa Bonet
--  Best outfits for Eras: Glassons drops ‘Front Row’ collection ahead of Taylor Swift’s Eras tours - selling out in record time
--  Windows95manin UMK-kappale julki – tämä oli fanien ensireaktio
--  Politique. Marie-Hélène Thoraval sur les propos du président : « On a entendu le prénom Nahël mais pas celui de Thomas »
--  Ukrainian foreign minister Dmytro Kuleba's candid interview: I wanted to punch I wanted to punch Sergey Lavrov
--  Bride arrested for extortion mind-wedding in Mexico, handcuffed in her wedding dress
--  GUNTER: Alberta NDP to lose momentum with departure of Rachel Notley
+-  증권가, 테마주 '빚투' 경고 … 신용거래융자 5거래일 연속 18조 상회
+-  서갑원 후보 quot;지방선거 공천 권한 내려 놓겠다quot;
+-  Dráma na palube lietadla: Rozzúrený pasažier zaútočil na pilota! VIDEO Neuveriteľné výčiny kvôli maličkosti
+-  Afterpárty po Emmy: Partnerka slávneho DJ-a šokovala… TOTO je erotická košieľka!
+-  İsmail Yüksek, teklif düşük
+-  Çağlar'da kiralık çıkmazı
+-  Tavada yanık lekesi varsa dikkat! İşte temizlemenin pratik yöntemi
+-  Hull City uzatmalarda yıkıldı!
+-  Filistin'den BM Dünya Gıda Programı'na çağrı... Yardımların doğrudan Gazze'ye girmesi için İsrail'e baskı yapılsın
+-  Juventus üç gol attı, zirve takibini sürdürdü
+-  [IT진맥] 네이버-카카오, 웹3.0 시대 '구글'을 향해...핀시아-클레이튼은 절박했다
+-  프리미엄 피트니스 클럽 '콩코드' 스타필드 수원서 26일 오픈
+-  Strictly couple provide update on health of daughter after A&E dash
+-  David Baddiel's family on 'high alert' after he loses his poo
+-  Rebel Wilson 'feels really bad' after regaining 30lbs due to stress
+-  Hulk Hogan leaps into action to save teen girl after horror car crash
+-  Kevin Costner's ex-wife 'dating their neighbour' after bitter divorce
+-  Pedro Pascal's sister Lux's career and family as she hits the Emmys
+-  Lottie Moss sobs in emotional video detailing addiction struggles
+-  Shannen Doherty reveals a lot of people aren't invited to her funeral
+-  Sir Elton John, 76, joins Hollywood's most elite club after 37 years
+-  Suki Waterhouse's Emmy's maternity dress shamefully slammed by trolls
+-  Kate Beckinsale shares heartbreaking message as step-dad dies aged 87
+-  YouTuber and reptile influencer Brian Barczyk dies aged 54
+-  Saltburn superfan has Barry Keoghan grave sex scene tattooed on leg
+-  Inside Katie Price's hectic life in the spotlight amid bailiff drama
+-  Desperate Housewives star Alec Musser's cause of death revealed
+-  Dame Joan Collins shares the secret to her incredibly youthful looks at 90 after fans are left in disbelief at her ageless appearance
+-  Uyuşmazlık Mahkemesi Başkanlığına AYM üyesi Rıdvan Güleç seçildi
+-  Cumhurbaşkanı Yardımcısı Cevdet Yılmaz'dan ek zam açıklaması
+-  Việt Nam là một trong những nước được doanh nghiệp quan tâm nhất tại WEF Davos 2024
+-  Vé máy bay Tết đắt lại khó mua, khách loay hoay tìm chuyến bay vòng
+-  Trung vệ đội tuyển Việt Nam chấn thương nhẹ
+-  Một công ty làm bậy, cả trăm hộ dân gánh hậu quả suốt 10 năm liền
+-  ¡Orgullo poblano! Alumnas Ibero crean la primera sopa instantánea saludable (VIDEO)
+-  באישור המפונים: קהילת יישוב נתיב העשרה תעבור למתחם מגורים בגן יבנה
+-  Viyadük için dinamit patlatıldı, tarihi Taşköprü'de çökme oluştu. 2. Abdulhamid döneminde yapılmıştı
+-  Hủy diệt Sassuolo, HLV Allegri vẫn không hài lòng
+-  Real giúp Man Utd sáng cửa thương vụ 130 triệu bảng
+-  Gánh Arsenal "còng lưng", Martin Odegaard vẫn bị chỉ trích thậm tệ
+-  'Lính đánh thuê' Man United gây ấn tượng mạnh
+-  Trưởng ban trọng tài "xát muối" vào nỗi đau của Liverpool
+-  Australia v West Indies LIVE updates: Can written-off tourists spring a shock in Adelaide?
+-  Australia v West Indies LIVE updates: Can written-off tourists spring a shock in Adelaide?
+-  TikTok ya compite con Google, va por YouTube
+-  Šta treba da znate ako želite smršati?
+-  Након 14 година пронађене украдене слике Пикаса и Шагала
+-  Merseyrail services disrupted as rail replacement buses requested
+-  İhsan Aktaş İstanbul anketini açıkladı: AK Parti Yüzde dört farkla kazanacak
+-  Peso se deprecia 1.98% frente al dólar tras volátil jornada geopolítica
