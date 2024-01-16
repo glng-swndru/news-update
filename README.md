@@ -1,51 +1,11 @@
 # Latest News
--  Trabzonspor'a Miha Zajc önerisi
--  Beşiktaş transferi bitiriyor! William Carvalho'da sona doğru
--  İstanbul'da etkili olan yağış trafik yoğunluğuna neden oldu
--  Najave događaja za 16.01.2024. godine (utorak)
--  Mokar kolovoz, oprez zbog učestalih odrona
--  Velika pobjeda Trumpa na republikanskim izborima u Iowi
--  Dogodilo se na današnji dan
--  Iran izveo raketne napade na 'terorističke' ciljeve u sjevernom Iraku i Siriji
--  Śmiertelny wypadek w Niemcach. Droga zablokowana
--  Президент: «Бу йил иқтисодий раҳбарлар ва корхоналар учун таннархни қисқартириш йили бўлади».
--  Навоийда аномал совуқ кузатилди.
--  2024 йилда бюджет дефицитини 4 фоиздан оширмаслик топшириғи берилди .
--  Vivek Ramaswamy exits 2024 Republican race, backs Donald Trump
--  Donald Trump wins Iowa caucuses, reinforcing strong hold over Republican Party
--  Maldives reducing its dependence on India amid diplomatic row?
--  ARBÖ: „Hahnenkamm-Rennen“ + „Häuselbauer-Messe Graz“ + “Holiday on ICE“ bringen Verkehrsstaus am Wochenende
--  Indiana Jones oyunu hakkında yeni bir detay daha ortaya çıktı
--  반려동물 양육비 월평균 13만원…보호자 18% “양육 포기 고려”
--  트럼프, 공화당 첫 대선 경선서 압승…“지금은 단결할 때”
--  시민단체, ‘검찰’에 ‘검찰’ 고발…“특활비 자료 불법폐기 직접 수사하라”
--  동서미래포럼, 영·호남 화합 위한 합동 신년 하례식 18일 개최
--  野공관위원장, ‘성희롱 논란’ 현근택 공천 배제 시사…“엄격히 대처할 것”
--  [서산24시] “도약하는 서산, 살맛나는 서산 향해 나가겠다” 이완섭 시장, 시민과 대화
--  NFT로 ‘개인 컵’ 장려하는 스타벅스…친환경 할인 혜택 살펴보니
--  “성관계해야 노래 잘한다”…50대 성악강사, 제자 상습강간 혐의 추가기소
--  임차인 77명 울린 ‘대구판 빌라왕’ 징역 6년…法 “직접 이익 적어”
--  판매 부진에 꼬리 내린 애플…중국서 아이폰15 할인
--  FH Campus Wien: Symposium zur Sicherheit von Verpackungsmaterialien bringt internationale Speaker nach Wien
--  Lagos Governor honours fallen heroes, hails gallant works
--  כאוס בעולם התעופה: 700 טיסות בוטלו, מאות נוספות נמצאות בסכנה
--  Kinesiska banker stramar åt regler för ryska kunder
--  Whiz kids share experiences
--  "Une attirance pour le grand frisson": qui sont ces femmes qui tombent amoureuses des plus grands criminels?
--  Justice. Lafarge en Syrie : les poursuites pour « complicité de crimes contre l'humanité » validées ?
--  Thông tin bất ngờ về vụ va chạm máy bay Japan Airlines khiến dư luận càng thêm khâm phục “tinh thần Nhật Bản”
--  제주 농산물 내륙거점물류센터 이용 비용 지원 상향
--  박서준, ‘악의적 비방’ 악플러 법적 대응 나서… “형사고소 중”
--  טרגדיה: המדליסטית האולימפית נפלה מהמיטה ומתה בגיל 43
--  לאחר שהצטלם בעזה עם צעיף הפועל ת"א ניצן שסלר נפל בקרב, אוהדי הקבוצה קוראים להגיע להלווייתו
--  MTV ödemeleri için son 2 hafta
--  16 Ocak 2024 Süper Loto çekiliş sonucu ve bilet sorgulama bugün ne zaman, saat kaçta?
--  Beşiktaş Salih Uçan ve Cenk Tosun ile uzatıyor!
--  Wichtigste Preise für TV und Serien: „Succession“, „The Bear“ und „Beef“ räumen bei den Emmys ab
--  Asgari prim ödeme gün sayısında yeni dönem! Milyonlara müjde! 450 güne indirildi!
--  لحظة بلحظة.. الحرب في غزة /16.01.2024/ وأبرز تداعياتها الإقليمية والعالمية
--  Opinion: A Lesson For Congress From Britain As Rishi Sunak Gets Labour Party`s Support Over Strike On Yemen`s Houthis
--  Innovative Solutions: Vyapar`s Automated GST Filing - A Boon for Business Owners
--  이규회, 따뜻한 눈빛
--  장영남, 숨멎 아우라
--  조정석-신세경, 바람직한 투샷
+-  Ekamra Utsav in Bhubaneswar to celebrate Odia language, culture
+-  포스코 차기 CEO 선발 '혼돈속으로'… '호화 해외 이사회' 경찰 수사확대, '사외이사·일부 후보' 자격 논란 후폭풍
+-  Hugo Boss mit Umsatzrekord trotz der schlechten Kauflaune
+-  หนุ่มใหญ่ซิ่งรถเก๋งคู่ใจออกจากสถานบันเทิงในตัวเมืองลพบุรีแหกโค้งชนเสาไฟฟ้าเจ็บ
+-  มัดรวมไว้ให้แล้ว! เลขเด็ดงวด 17 ม.ค. ทั้งทะเบียนรถ-เลขเครื่องบิน นายกเศรษฐา ที่เชียงใหม่
+-  'ธรรมนัส' เผยครม.สัญจร 'พะเยา' ขยับไปปลายเดือน ก.พ. ชี้มีแนวคิดจัดใน จว.ชายแดนภาคใต้
+-  วงการบันเทิงเศร้า! สูญเสีย'หญิง จุฬาลักษณ์' อดีตเซ็กซี่สตาร์ ญาติแจ้งกำหนดการ
+-  ขอความเป็นส่วนตัว! 'อนุทิน' วอนสื่ออย่าตามงานเลี้ยงพรรคร่วม 25 ม.ค.นี้
+-  Hugo Boss mit Umsatzrekord trotz der schlechten Kauflaune
+-  „Dnepr“ būstinėje karštas skandalas. Skelbiamos pikantiškos generolo gyvenimo detalės. Kas nutiko (Foto)
