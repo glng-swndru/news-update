@@ -1,51 +1,51 @@
 # Latest News
--  Clever Offsets, a New Data Analytics Company, Launches a Platform that is Set to Transform the Efficiency of Carbon Markets
--  A flurry of activities as schools receive Form 1 students
--  Why The Sopranos is the show that changed everything
--  ‘Not all about me’: Cult hero Head resets after slim returns
--  ‘Come at him as hard as possible’: West Indies to new opener Smith
--  We’ve hit peak science, and that’s not good
--  ‘Not all about me’: Cult hero Head resets after slim returns
--  Why The Sopranos is the show that changed everything
--  ‘Come at him as hard as possible’: West Indies to new opener Smith
--  6D LOTTO RESULT Today, Tuesday, January 16, 2024
--  איתי לוי במחווה יוצאת דופן: ההפתעה הגדולה בהופעה של הזמר
--  מאסק יעזוב את טסלה? "בלי שליטה, אקדם מוצרים מחוץ לחברה"
--  Naomi Osaka stuns Australian Open fans with bizarre act in first Grand Slam match since becoming a mum
--  [속보] 이낙연 "정신 나간 尹 정부·떳떳하지 못한 野…과거와 결별해야"
--  대구근대역사관, 개관 13주년 기념 문화행사 개최
--  부속동 개관으로 더 넓어지는 문화 공간…대구미술관 올해 계획은?
--  '지상전 고전' 우크라이나군 "아조우해서 러 정찰기 격추"
--  이란 "이라크 내 이스라엘 첩보시설 파괴"…확전우려 부추기나
--  '국악 트롯공주' 김다현, 경북도에 고향사랑기부금 200만원 전달
--  최상목 "상반기 중 SOC사업 등 재정 65% 신속 집행"
--  부산도시공사, BMC형 인권경영지수 평가 통한 인권경영 확대
--  '민주당 정책위 부의장' 신효철 동구갑 출마 "앞으로 4년 향후 동구 40년 결정"
--  '與목포 당협위원장 출신' 황시혁 북구을 출마 "말보다 행동, 실천하겠다"
--  유영하, 22일 대구 달서구갑 출마 선언
--  윤 대통령, 北 '적대적 두 국가'에 "반민족·반역사적 집단 자인한 것"
--  대구 최초 도심형 반려견 놀이터 다음달 1일 개장
--  "진급 선물 줘" 상사 요구에 105만원치 우럭 보낸 공무원, 유죄
--  [사건속으로]'수배 중' 마약사범의 질주, 경찰관 중상 입히고 도주한 30대의 최후
--  Wechsel im Büro der Katholischen Jungschar
--  "وين جاكيتك؟".. أصالة توقف حفلها وتتعرّض لموقف محرج على المسرح شاهدوا ماذا حصل (فيديو)
--  Berisha në arrest, Kulluri: Noka dhe Bardhi në garë për drejtimin e “Rithemelimit”, Basha nuk ishte në ‘heshtje, riorganizoi PD
--  Train Accident In Richards Bay Linked To Mass Power Outage
--  Basauri lleva a votación popular 18 proyectos
--  İdlib'de kış şartları çadırlarda yaşamlarını sürdürmeye çalışanların hayatını daha da zorlaştırdı
--  Irak ve Suriye'nin kuzeyine hava harekatı! Terör inleri böyle imha edildi
--  Balkan ülkesinde "Türkiye" şaşkınlığı! "Bu inanılmaz"
--  Top male players dodge questions on sixth seed Zverev’s domestic violence trial
--  Top male players dodge questions on sixth seed Zverev’s domestic violence trial
--  Entsetzen über Fällung eines markanten Hofbaumes
--  안성시, 2월 1일부터 2024년도 기본형 공익직불금 신청 접수
--  이동환 고양특례시장, “도시디자인, 고양시의 문화이자 경쟁력”
--  강원특별자치도, 2024 강원 D-3, 마지막 점검회의 개최
--  곡성군, 2024년 새해농업인 실용교육 실시
--  Lumagui: 26 BIR Officials Suspended
--  Kasaï-Central : le bureau de l’assemblée provinciale accuse son président de détournement et lève ses immunités
--  Юрист предупредил автомобилистов о схеме мошенничества с эвакуаторами
--  Drámai pillanatokkal teli Emmy-díjátadó, ahol a vörös szőnyegen terhespocakot is villantottak - fotók
--  Konya'da evden hırsızlık yapan 2 şüpheli yakalandı
--  Konya'da kaçakçılara operasyon!
--  정부 제주4·3 희생자·유족으로 3240명 추가 결정
+-  A man dies in an explosion in his family's house in Binježevo
+-  Some people with disabilities experience financial abuse
+-  Men jailed for penis, leg amputations of leader of ‘body modification’ ring
+-  Roma sack manager Mourinho following poor run
+-  Soccerladuma | BREAKING: AS Roma Sack Jose Mourinho
+-  Oban Lorne kick 2024 off with a bang in Strathaven
+-  Atiku says worsening poverty, hunger fueling Nigeria’s security crisis
+-  Introducing the Iconic Women Podcast – Stories of Dreams, Perseverance, and Triumph
+-  Who’s running for US president in 2024?
+-  Who’s running for US president in 2024?
+-  Who’s running for US president in 2024?
+-  أبو علي يتحدث عن صرف الرديات الضريبية وتقديم إقرارات ضريبة الدخل والمبيعات وعقوبات التهرب الضريبي
+-  حرب كلامية بين الكوريتين.. وكيم يتوعد
+-  وزير الخارجية يبحث مع نظيره الأسترالي التطورات الخطيرة بغزة
+-  هل يوجد سكر صحي؟
+-  الجيش الإسرائيلي: القوات الخاصة شنت ضربة في لبنان
+-  صندوق توفير البريد يطلق 19 خدمة إلكترونية
+-  Pour Joel Embiid, arriver en forme en Playoffs est plus important que remporter un autre MVP
+-  First-of-a-kind AI air fryer 'senses' cooked food, US launch this year
+-  Takýto je zdravotný stav Lukáša (18), ktorý havaroval pri Domaniži. Jeho mladší brat neprežil
+-  Công an vào cuộc vụ người khuyết tật tố bị 2 quán phở ở Hà Nội "đuổi"
+-  OPINIONES DE LOS ANALISTAS DEL DÍA: Hellofresh, Roche, Eiffage, Swatch Group, Schibsted, Sandoz, AB Inbev, Syensqo...
+-  [경북도, 안동축산물공판장에 일일 어미돼지 200마리 처리 규모 증축
+-  [이준석 “한동훈, 머릿속에 여의도 문법만 가득”…의원 감축안 비판
+-  [김태식 부산 북구의원 발의 ‘현수막의 친환경 소재 사용 및 재활용 활성화 조례안’ 본회의 통과
+-  [대구교육청, 학교폭력 전담조사관 운영
+-  [한미약품 장남 “경영도 모르는 모녀, 회사 망치는 걸 두고 못 봐” 선전포고
+-  [이우현 회장 “OCI·한미 빅딜, 법률검토 끝냈다…차질없이 마무리될 것”
+-  [이낙연 신당 ‘새로운 미래’ 창당 발기인대회…“국민이 행복한 나라”
+-  [인뱅 자영업자 대출 120% 급증…토스뱅크 폐업률도 3% 넘었다[머니뭐니]
+-  [김정은 "꼴불견"…철거 지시한 '조국통일3대헌장 기념비'는 무엇?
+-  [26년 장수 프로그램 SBS '세상에 이런일이' 폐지 기로
+-  [F/W 서울패션위크, 2월 1~5일 개최…6주 당긴 이유는?
+-  [경북도, 성실·모범 납세자 우대 지원
+-  [경북 이웃돕기 사랑의 온도탑 '100도 돌파'
+-  [그룹 보이넥스트도어, 日 ‘메자마시TV 30주년 페스티벌’ 무대 선다
+-  [경북도, 제22대 국회의원 선거 앞두고 공직기강 특별감찰
+-  [대검, 설 앞두고 “임금체불 사업주 엄정 대응” 지시
+-  Drone Strikes Injure Child, Damage Apartment Blocks in Russia’s Voronezh
+-  China summons Phl ambassador over Taiwan election comments
+-  Pasieniečiai sulaikė Nemune lytimis vaikščiojusį kontrabandininką ir du bendrus
+-  Trimiklini illegal fish farm to have its license revoked
+-  Два техногенных пожара ликвидировали в Псковской области 15 января
+-  Tạp chí của Trường đại học Kinh tế quốc dân chính thức gia nhập danh mục Scopus
+-  Thảo cầm viên Sài Gòn có tân giám đốc
+-  Công an đang xác minh vụ TikToker 'bị đuổi khỏi quán ăn vì ngồi xe lăn'
+-  Vượt 15.000 tấn/năm, VASEP kiến nghị bỏ hạn ngạch với tôm xuất khẩu vào Hàn Quốc
+-  Lên mạng lừa bán xe thanh lý, nhiều nạn nhân sập bẫy
+-  1.000 du khách kẹt lại Tân Cương sau lở tuyết
+-  Máy dò ADN di động giúp 'điểm mặt' nhanh nghi phạm
