@@ -1,11 +1,11 @@
 # Latest News
--  VicOne and Primax Partner on Automotive Cybersecurity Services to Improve Efficiencies in Protecting Intelligent Fleet Management and Applications Platform
--  Tonik enters SME lending
--  Kamoto.AI introduces the world's first licensed AI Clone; Bollywood's Sunny Leone unveils her AI Clone.
--  작년 3억 이상 법인차 등록 급증
--  从南北客源互送到景区免门票 中国多地文旅部门花式揽客
--  这一晚，佘诗曼是全场焦点
--  Российский вертолёт Ка-52 «Аллигатор» поразил командный пункт ВСУ
--  梅西第8次当选世界足球先生
--  ¿Cómo puedo saber si estoy asegurado en EsSalud usando mi número de DNI?
--  Άνετη νίκη του Τραμπ στην Αϊόβα στην ψηφοφορία για την ανάδειξη του υποψηφίου των Ρεπουμπλικάνων
+-  영등포구의회, 적십자 특별회비 전달
+-  뮤지컬 '드라큘라' 뮤직비디오 공개
+-  군포시, 26일 중소·벤처기업 지원시책 설명회 개최
+-  '또또또!' 텐 하흐, 아약스 시절 제자 영입 원한다...'SON 동료' 영입 때문에 'KIM' 떠날까?
+-  FT아일랜드, 亞투어 '헤이 데이' 개최…7개 도시 '글로벌 팬' 만난다
+-  세븐틴 승관, Mnet '빌드업' 스페셜 심사위원 출연 확정 [공식입장]
+-  신세계푸드, 식물성 대안식 ‘유아왓유잇’ 신메뉴 출시
+-  갤러리아, 23일부터 ‘설 선물세트’ 본 판매 개시
+-  AB6IX, 신보 타이틀곡 '그랩 미' MV 티저 공개…컴백 기대감↑
+-  음바페-손흥민-케인의 선택→'전 세계 축구대표팀 주장들이 인정했다'…메시, 홀란드 제치고 FIFA 올해의 선수 선정
