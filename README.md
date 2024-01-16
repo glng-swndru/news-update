@@ -1,11 +1,51 @@
 # Latest News
--  Südhessen: Tödliche Schüsse in Supermarkt - Suche nach Motiv
--  Hava sıcaklığı sıfırın altına düşen Kastamonu'da çok sayıda trafik kazası meydana geldi
--  ABD öncülüğündeki 3 insansız hava aracı Erbil'de düşürüldü
--  THY'den yolcularının seyahat deneyimini geliştirecek yeni adım
--  Philadelphia 76ers evinde Houston Rockets'i yendi
--  İran'ın Erbil kentine yönelik saldırısında bazı evlere isabet eden füzeler sonucu 4 sivil hayatını kaybetti
--  Sneeuw! Bekijk hier winterse beelden uit de regio Barneveld
--  Automobilist door gladheid in sloot Voorthuizen
--  제주 지난해 소비자물가 3% 상승…전기‧가스 등 공공요금 19.1% 껑충
--  제주은행, 업무차 50% 친환경 전기차 전환
+-  Clever Offsets, a New Data Analytics Company, Launches a Platform that is Set to Transform the Efficiency of Carbon Markets
+-  A flurry of activities as schools receive Form 1 students
+-  Why The Sopranos is the show that changed everything
+-  ‘Not all about me’: Cult hero Head resets after slim returns
+-  ‘Come at him as hard as possible’: West Indies to new opener Smith
+-  We’ve hit peak science, and that’s not good
+-  ‘Not all about me’: Cult hero Head resets after slim returns
+-  Why The Sopranos is the show that changed everything
+-  ‘Come at him as hard as possible’: West Indies to new opener Smith
+-  6D LOTTO RESULT Today, Tuesday, January 16, 2024
+-  איתי לוי במחווה יוצאת דופן: ההפתעה הגדולה בהופעה של הזמר
+-  מאסק יעזוב את טסלה? "בלי שליטה, אקדם מוצרים מחוץ לחברה"
+-  Naomi Osaka stuns Australian Open fans with bizarre act in first Grand Slam match since becoming a mum
+-  [속보] 이낙연 "정신 나간 尹 정부·떳떳하지 못한 野…과거와 결별해야"
+-  대구근대역사관, 개관 13주년 기념 문화행사 개최
+-  부속동 개관으로 더 넓어지는 문화 공간…대구미술관 올해 계획은?
+-  '지상전 고전' 우크라이나군 "아조우해서 러 정찰기 격추"
+-  이란 "이라크 내 이스라엘 첩보시설 파괴"…확전우려 부추기나
+-  '국악 트롯공주' 김다현, 경북도에 고향사랑기부금 200만원 전달
+-  최상목 "상반기 중 SOC사업 등 재정 65% 신속 집행"
+-  부산도시공사, BMC형 인권경영지수 평가 통한 인권경영 확대
+-  '민주당 정책위 부의장' 신효철 동구갑 출마 "앞으로 4년 향후 동구 40년 결정"
+-  '與목포 당협위원장 출신' 황시혁 북구을 출마 "말보다 행동, 실천하겠다"
+-  유영하, 22일 대구 달서구갑 출마 선언
+-  윤 대통령, 北 '적대적 두 국가'에 "반민족·반역사적 집단 자인한 것"
+-  대구 최초 도심형 반려견 놀이터 다음달 1일 개장
+-  "진급 선물 줘" 상사 요구에 105만원치 우럭 보낸 공무원, 유죄
+-  [사건속으로]'수배 중' 마약사범의 질주, 경찰관 중상 입히고 도주한 30대의 최후
+-  Wechsel im Büro der Katholischen Jungschar
+-  "وين جاكيتك؟".. أصالة توقف حفلها وتتعرّض لموقف محرج على المسرح شاهدوا ماذا حصل (فيديو)
+-  Berisha në arrest, Kulluri: Noka dhe Bardhi në garë për drejtimin e “Rithemelimit”, Basha nuk ishte në ‘heshtje, riorganizoi PD
+-  Train Accident In Richards Bay Linked To Mass Power Outage
+-  Basauri lleva a votación popular 18 proyectos
+-  İdlib'de kış şartları çadırlarda yaşamlarını sürdürmeye çalışanların hayatını daha da zorlaştırdı
+-  Irak ve Suriye'nin kuzeyine hava harekatı! Terör inleri böyle imha edildi
+-  Balkan ülkesinde "Türkiye" şaşkınlığı! "Bu inanılmaz"
+-  Top male players dodge questions on sixth seed Zverev’s domestic violence trial
+-  Top male players dodge questions on sixth seed Zverev’s domestic violence trial
+-  Entsetzen über Fällung eines markanten Hofbaumes
+-  안성시, 2월 1일부터 2024년도 기본형 공익직불금 신청 접수
+-  이동환 고양특례시장, “도시디자인, 고양시의 문화이자 경쟁력”
+-  강원특별자치도, 2024 강원 D-3, 마지막 점검회의 개최
+-  곡성군, 2024년 새해농업인 실용교육 실시
+-  Lumagui: 26 BIR Officials Suspended
+-  Kasaï-Central : le bureau de l’assemblée provinciale accuse son président de détournement et lève ses immunités
+-  Юрист предупредил автомобилистов о схеме мошенничества с эвакуаторами
+-  Drámai pillanatokkal teli Emmy-díjátadó, ahol a vörös szőnyegen terhespocakot is villantottak - fotók
+-  Konya'da evden hırsızlık yapan 2 şüpheli yakalandı
+-  Konya'da kaçakçılara operasyon!
+-  정부 제주4·3 희생자·유족으로 3240명 추가 결정
