@@ -1,11 +1,11 @@
 # Latest News
--  PHL, UK forge framework deal on defense cooperation
--  Shell to exit Nigeria’s troubled onshore oil
--  MP happy Roadchef employees will get money as tax dispute ends
--  Templegate says one of the most exciting chasers in training has to be backed at 5-1 for the Ryanair
--  The Kent town 30 minutes from London more popular with DFLs than any other
--  How this engineer made a U-turn on her career
--  Recto leads 171 appointees awaiting CA confirmation
--  Murders of three trans people in two weeks spark protests in Mexico
--  יובל שדה ואיתי בן שבת בלמים במכבי נתניה מול הפועל ירושלים
--  Josh Hutcherson: Did He Audition for Spider-Man? Will He Be In the MCU?
+-  PDI investiga supuesto femicidio con arma blanca y posterior suicidio ocurrido en Talca
+-  בסימן הוקרה לכוחות הביטחון: כך יראה השנה מרתון ירושלים
+-  חברת החשמל מותקפת: "איפה הכסף?, בור שחור!", הבכירים מיהרו להגיב
+-  Thủ tướng Phạm Minh Chính tọa đàm với các tập đoàn hàng đầu thế giới
+-  Đội tuyển bóng chuyền nữ, bắn súng thắng lớn ở Cúp chiến thắng 2023
+-  Thái Lan là đội Đông Nam Á đầu tiên thắng ở Asian Cup 2023
+-  Ropa na rynku we wtorek staniała
+-  Danau Toba Masuk Rekomendasi New York Times sebagai Destinasi Wisata Pilihan 2024
+-  Volkswagen stellt Produktion des letzten Cabrios ein
+-  Novo valor que pode ser pago pelo Teto do INSS este ano
