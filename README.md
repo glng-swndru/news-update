@@ -1,11 +1,51 @@
 # Latest News
--  Trump says 'it's time for our country to come together' after Iowa LANDSLIDE: Ex-president calls for Republicans to UNITE behind him, praises Vivek as he drops out and vows to 'take back' the U.S. from Biden in November
--  Trump lands in NYC to face another court battle TODAY: Ex-President plans to address jury deciding how much more he should pay E. Jean Carroll after he was found liable for sexually assaulting and defaming her
--  Nathan Cleary FINALLY goes Instagram official with Mary Fowler as NRL superstar posts loved-up snap with Matildas striker
--  Nuno Espirito Santo refuses to confirm whether he knew about Nottingham Forest's financial woes before December appointment - as club face looming punishment for Premier League spending breaches
--  Prezzo is set to take on Pret and Upper Crust by launching chain of takeaway pizza and pasta shops in train stations
--  EU presidency warns democracy will be put to the test in US elections in November
--  Pack your bags! Budget airline Scoot launches insane sale with overseas flights from just $195
--  Media: South Korea, US to start defence cost talks early, before US elections
--  It took a lot to push the Queen over the edge. And despite her anger at the hijack of her childhood nickname, she remained brave and dutiful to the end
--  Police ‘losing 5-0’ against underworld
+-  Osaka's return halted as Tsitsipas, Medvedev battle through
+-  I am a California restaurant operator preparing for the $20-an-hour fast food wage by trimming hours, eliminating employee vacation, and raising menu prices
+-  Soccerladuma | Mofokeng Responds To Afcon Snub
+-  In Perak, Domestic Trade and Cost of Living Ministry’s Ops Tiris yields RM6.2m in seizures last year, says state director
+-  Tobacco use shrinking worldwide: WHO
+-  Vivek Ramaswamy, an 'anti-woke' biotech millionaire and former Harvard rapper running against Trump, has dropped out of the 2024 GOP race
+-  'We wanted to be thorough': Jodie Comer had to accurately portray motherhood in The End We Start From
+-  'That project had issues from the beginning': Dolph Lundgren claims The Expendables 4 failed for numerous reasons
+-  Emeli Sande records surprise collaboration with Headie One
+-  Heathrow Airport partners challenge Spanish company’s sale
+-  Why King Frederik and Queen Mary of Denmark make a 'great team' in marriage and royal life
+-  GCC Bottled Water Market is Expanding Rapidly with Promising Growth Prospects
+-  3.5 magnitude earthquake recorded near Kyrgyz-Chinese border in the evening of Jan 15
+-  Even the Battle for Second Turned Out Well for Trump in Iowa
+-  Cargo Transportation Insurance Market Forecast 2024-2030: Ensuring Security in Global Logistics
+-  Global Stone Plastic Composite (SPC) Flooring Market Size to Surpass USD 7600 Million by 2031, Exhibiting a CAGR of 6.6% - Zhejiang Walrus New Material, CFL Flooring
+-  RBI To Tighten Rules for Housing Finance Companies, Limit Public Deposit
+-  BJP offers solidarity as playback singer KS Chithra faces cyber attack over Ram temple issue
+-  Level of dollarization of credits decreases to 21.9% in Kyrgyzstan - National Bank
+-  Erythromelalgia Market to Show Incremental Growth During the Forecast Period | Major players: Regeneron Pharmaceuticals, Amgen, Pfizer, Novartis, AstraZeneca, Takeda Pharmaceutical Company, Johnson & Johnson, Biogen, Grünenthal, UCB Pharma
+-  Open contender Rybakina knocks out former World No.1
+-  Iranian Attacks Target Erbil, Killing 4
+-  Mystery over ‘world’s oldest dog’ as 31-year-old pup Bobi LOSES title & Guinness World Records launches investigation
+-  Open contender Rybakina knocks out former World No.1
+-  From J-Lo’s 3Bs workout to Amanda Holden’s ‘breath of fire’…how celeb mums in their 40s & 50s look SO amazing in bikinis
+-  Michael Weatherly reveals plans to reprise 'unfinished' NCIS character Tony DiNozzo
+-  Russia declares emergency over Ukrainian kamikaze drone blitz aimed at key airbase after Vlad’s £300m jet shot down
+-  Philippine jeepney drivers protest over phase-out plan
+-  Watch: Youth Congress holds protest against arrest of Rahul Mangkoottathil in Kozhikode
+-  “Look at their hypocrisy…” Owaisi tears into AAP, clarifies his “RSS ka chhota recharge” remark
+-  Global Electrolyzers Market Size to Surpass USD 4033 Million by 2031, Exhibiting a CAGR of 22.8% - Enapter S.r.l., NEXT Hydrogen, Plug Power Inc., Air Liquide S.A.
+-  Mild Tremor Hits J&K’s Kishtwar
+-  Social Employee Recognition Systems Market Offering New Industry Trends, Growing Opportunities, and Innovations by 2031 | GloboForce Ltd, BI Worldwide, SalesForce.Com
+-  We live together in a Nissan 4×4 – it’s so small inside ‘we have to spoon’ at night but there’s a garden on the ROOF
+-  French President Macron will hold a prime-time news conference in a bid to revitalize his presidency
+-  'Merry Christmas' BO Day 4: Katrina Kaif, Vijay Sethupathi Film Earns ₹11.3Cr
+-  East Coast train fares simplified in bid to boost passenger numbers
+-  QuickRead: Tinubu suspends Betta Edu. Four other stories we tracked and why they matter
+-  Xiaomi Redmi Note 13 Pro 5G in for review
+-  Bitget Launches Spot P2P Market to Support Early Investment Before Major CEX Listing
+-  BREAKING: Crash closes two lanes on Prince of Wales bridge
+-  Racing at Chepstow called off as temperatures drop to minus six
+-  Cafeteria in Bishkek that turned into storage facility dismantled to free municipal territory
+-  Aubrey Plaza's Emmys Dress Was A Meme Waiting To Happen
+-  Global Rare Earth Magnet Market Size to Surpass USD 37000 Million by 2031, Exhibiting a CAGR of 10.8% - JL MAG, ZHmag, Proterial (Hitachi Metals), Innuovo Magnetics, Shin-Etsu Chemical
+-  New details in shooting of 11-year-old Aderrien Murry emerge from 911 calls
+-  Steel Service Centers Market: Size, Share, Growth, Analysis, Key Players, Revenue, Growth | Valuates Reports
+-  Scotland snow blast to bring more travel chaos as forecasters predict -15C freeze
+-  Met Office snow forecast for each Greater Manchester borough hour-by-hour on Tuesday
+-  Citypress | DA Gauteng MPL Khume Ramulifho quits to join Rise Mzansi
