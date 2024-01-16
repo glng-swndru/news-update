@@ -1,51 +1,11 @@
 # Latest News
--  First Quantum Minerals cae en bolsa tras recorte de dividendos y planes de reestructuración
--  El primer año de la PAC muestra la necesidad de las ayudas a la renta y de algunos ajustes
--  Musk condiciona el liderazgo de Tesla en IA a hacerse con el 25 % de sus derechos de voto
--  Waller de la Fed afirma que EEUU está "a escasa distancia" del objetivo de inflación
--  [숏폼뉴스] 넥슨 '메이플스토리 월드' 열풍 분다
--  '패션·보온' 둘 다 되는 올겨울 '핫패딩'은?
--  "아이돌은 극한 직업"…'뉴진스' 민지 '칼국수 발언' 사과
--  [인터뷰] FOX '헤나' 박증환 "색깔 찾겠다…3등 안에 드는 원딜이 목표"
--  겨울에 더 어울리는 연예인들 '선글라스 룩' 보니
--  축구 국대 아시안컵 F5…사복패션도 '남친짤' 장인들이네
--  "X 까세요"...물건 대신 욕설 배달한 한진택배
--  자동차에도 '표정'이 담긴다…미래형 콘셉트카 등장 임박
--  제니, 옷장 속 카디건+청바지 필승 조합 컬렉션?
--  LS, 4분기 영업이익 '선방'…올해 대대적 실적 개선 전망
--  Va AMLO por 10 reformas constitucionales; detalla la del PJ
--  Mápula, con vocación para ser un parque industrial: Baeza
--  Путин: результаты голосования в новых регионах было невозможно сфальсифицировать
--  Капелло сравнил увольнение Моуринью из «Ромы» со своим уходом из сборной России
--  Njihuni me 69-vjeçaren që do të konkurrojë për Miss Universe Filipine 2024!
--  Pep động viên đội bóng cũ
--  Τι θέλουν τα κράτη του Κόλπου από τη Γάζα
--  Взлетели акции связанных с Трампом компаний
--  Global smartphone market surges 8% in last quarter of 2023 – Canalys
--  Inter-faith couple not assaulted: Police
--  Holstein Kiel: Colin Kleine-Bekel - als Youngster zum Chef in der Abwehr
--  قرار يصدم أهالي ضحايا انفجار المرفأ... قضاة لخدمات سياسية!
--  ישראכרט נגד טורקיה? זה המהלך שישפיע על אלפי לקוחות
--  Myllymäki: Så gör du en perfekt vitvinssås
--  Обявяват грипна епидемия от четвъртък в Смолян
--  Автобус на столичния градски транспорт блъсна жена и дипломатическа кола СНИМКИ
--  South Africa add uncapped Edward Moore to squad for New Zealand tests
--  Are Better Ideas A Shower Away? 3 Best Friends Say Yes
--  Brons voor Flora bij ANWB-verkiezing
--  Культура | В Финляндии вышла книга про советские эстрадные песни
--  Transfer-News: Werder Bremen holt Julian Malatini aus Argentinien
--  Экс-губернатор Арканзаса Аса Хатчинсон выбыл из предвыборной гонки США
--  Chalon-sur-Saône. Le sort des Galeries Lafayette peut se jouer ce mercredi
--  Extreme cold warning in effect for Waterloo Region
--  No es seguro que Jaminton Campaz se quede en Gremio
--  Deutscher Verband: Gasmangel im Frühjahr 2024 unwahrscheinlich
--  Безпрецедентна опасност: Северна Корея се готви за война?
--  Rapper Diddy schikt in 'racismezaak' met drankenconcern
--  Toen ze over autisme begon te praten werd haar man boos en dreigde voor de trein te springen
--  Alper Gezeravcı: Türkiye'nin ilk insanlı uzay görevi hakkında neler biliniyor?
--  Moederbedrijf Thuisbezorgd.nl herstelt iets op Damrak na koersval
--  Tropická cyklóna Belal zúrila na francúzskom ostrove! Vyžiadala si tri obete
--  Take-Two acusa na justiça Remedy de ter novo logo similar ao da Rockstar
--  USA zasiahli obrovské mrazy: Chicago zahalil NEUVERITEĽNÝ jav! Pohľad ako z inej planéty
--  Bizarné dovolenkové zážitky Zuzany Vačkovej: TOTO sa už NEZOPAKUJE!
--  Experti varujú pred ďalšou pandémiou: Podľa WHO nás ohrozuje deväť smrtiacich vírusov
+-  Oberstes US-Gericht setzt Schlusspunkt in Streit von Apple und Epic
+-  প্লেন বানানো ক্ষুদে উদ্ভাবকে আনিসুলকে দুই লাখ টাকা দেয়ার আশ্বাস
+-  চিকিৎসক দম্পতির বাসা থেকে গৃহকর্মীর লাশ উদ্ধার, পরিবারের দাবি হত্যা
+-  গৃহকর্মী নিয়োগে বাংলাদেশসহ ৬ দেশকে সুখবর দিল সৌদি আরব
+-  Inauguran nueva planta Sofi II en Chihuahua
+-  ¿Rafa Márquez podría tomar al Barcelona?
+-  Será Córdova único orador en marcha por la democracia
+-  Publican resultados del programa de apoyos para discapacidad auditiva
+-  Rotes Meer: Griechischer Frachter vor Jemens Küste angegriffen – DER SPIEGEL
+-  FilmNation, Bleecker Street Partner on Lena Dunham and Stephen Fry Film ‘Treasure’
