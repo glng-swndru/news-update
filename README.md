@@ -1,11 +1,11 @@
 # Latest News
--  Oberstes US-Gericht setzt Schlusspunkt in Streit von Apple und Epic
--  প্লেন বানানো ক্ষুদে উদ্ভাবকে আনিসুলকে দুই লাখ টাকা দেয়ার আশ্বাস
--  চিকিৎসক দম্পতির বাসা থেকে গৃহকর্মীর লাশ উদ্ধার, পরিবারের দাবি হত্যা
--  গৃহকর্মী নিয়োগে বাংলাদেশসহ ৬ দেশকে সুখবর দিল সৌদি আরব
--  Inauguran nueva planta Sofi II en Chihuahua
--  ¿Rafa Márquez podría tomar al Barcelona?
--  Será Córdova único orador en marcha por la democracia
--  Publican resultados del programa de apoyos para discapacidad auditiva
--  Rotes Meer: Griechischer Frachter vor Jemens Küste angegriffen – DER SPIEGEL
--  FilmNation, Bleecker Street Partner on Lena Dunham and Stephen Fry Film ‘Treasure’
+-  Kickoff | Cameroon boss explains Onana's absence after disappointing Guinea draw
+-  Kickoff | How Foster is affected by new Chelsea striker at Burnley
+-  دي روسي مدربا لروما بعد إقالة مورينيو
+-  Nå er dette datoen
+-  Kundens otäcka upptäckt i Skogaholms bröd
+-  Neige au Havre et à Rouen : suivez les perturbations pour mercredi
+-  Tiktoker nổi tiếng gây tranh cãi với tuyên bố “sinh con là ích kỷ”: Người đồng tình, người lao vào chỉ trích
+-  Timor-Leste | ONG adverte para aumento do tráfico humano no país
+-  Soccerladuma | Three Top Stars Linked With Man Utd
+-  La Selecta afina detalles para enfrentar a Messi y su Inter Miami
