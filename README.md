@@ -1,51 +1,51 @@
 # Latest News
--  Нападнат полицаец во Чучер Сандево
--  సర్పంచులకు పెండింగ్‌ బిల్లుల సమస్య
--  김준호 "♥김지민과 올해 결혼 바란다. 그런데 돈이 없어"[돌싱포맨]
--  '오타니 못 보나요' ML 개막전 티켓 오픈 D-9, 日 열도 발 동동 "앱 다운로드, 회원가입 안돼"
--  펩이 앙리에게 "FXXX" 욕설, FIFA 시상식에서…도대체 왜? 무슨 일이 일어났길래
--  وزير الاتصالات السعودي يناقش مع قادة مايكروسوفت وشركات عالمية توسع مشاريعها الابتكارية في المملكة
--  신동, 아이돌 연애 위장술 비법 大공개…"여친을 스타일리스트처럼!"[돌싱포맨]
--  Alejandro Giammattei y Guillermo Castillo son juramentados virtualmente en el Parlacén y recobran derecho de antejuicio
--  GONZA Y RAUL CLYDE PRESENTAN EL SENCILLO «KIT KAT»: UNA NUEVA DIMENSIÓN EN LA MÚSICA URBANA
--  case of skill : 17ఏ పై చెరోమాట!
--  Dr. Penna Krishnaprashanthi : నవతరం ఆరోగ్యంగా లేదు
--  Pokemon Go Shadow Ho-Oh Raid Weekend: Shiny debut, bonuses, and more
--  91개 법정 부담금 63년 만에 대폭 개편 ... 폐지에 따른 재원 해법은?
--  MS 0.46% 상승, 또 사상최고치 … 美 기업 두번째 시총 3조 달러 클럽 가입 눈앞
--  Fernando Santos kaç transfer yapacaklarını açıkladı
--  Survivor kim aday oldu? All Star'da eleme adayı kim oldu? 16 Ocak 2024 Survivor'da potaya giden isim!
--  Perú comenzará a aplicar vacuna monovalente contra el COVID desde el sábado
--  Juve, Super Vlahovic ti ha dato 9 punti in 3 partite
--  سمير مرقص: مصر المتضرر الأول من أزمات المنطقة.. وتحتاج للتعبير عن نفسها بقوة
--  Juventus deklasirao Sassuolo i stigao na minus dva od Intera, Erlić zamijenjen u poluvremenu
--  Josh Hutcherson’s Five Nights at Freddy’s 2 idea breaks canon
--  HLV Indonesia: "Asian Cup bị hủy hoại"; Thái Lan thắng tưng bừng trước Kyrgyzstan
--  4 điều rút ra từ ĐT Thái Lan sau trận thắng Kyrgyzstan
--  Maximális pontszámmal jutott az Európa-bajnokság középdöntőjébe a magyar férfi kézilabda-válogatott
--  వెంటిలేటర్‌పై తమ్మినేని వీరభద్రం!
--  أبو الغيط يدين قصف الحرس الثوري الإيراني لمدينة أربيل
--  أكاديمية SaveFast تعلن عن ملتقى توظيف للمواطنين فقط بالرياض.. اليوم الأربعاء
--  انهيارات جليدية ومحاصرة سياح في الصين.. هذا ما حدث
--  توضيح مهم من "الجوازات" بشأن فرض غرامة تأخير على إصدار هوية مقيم
--  السماح بدخول العمالة المنتهية تأشيراتها إلى المملكة (تفاصيل)
--  RCMP arrest suspect on the side of a Manitoba highway
--  Xhepa: Pas ngrohjes globale, çështjet e pabarazisë shqetësimi i dytë më i rëndësishëm i stabilitetit të shoqërisë njerëzore
--  Kurti takim me O’Brien në Forumin Ekonomik të Davos-it, ja çfarë u diskutua
--  NHL-supertähti Miro Heiskasesta julki hieno uutinen
--  Juventus otti vakuuttavan murskavoiton
--  Brunei Royal Wedding Banquet
--  Can Ivan Toney play for Brentford tomorrow as Thomas Frank's side travel to Wolves in their FA Cup...
--  PSG keep tabs on star Newcastle midfielder Bruno Guimaraes after the Saudi-owned club revealed they...
--  Man United 'hold discussions over summer swap deal which would see defender Aaron Wan-Bissaka return...
--  REVEALED: Why Cristiano Ronaldo didn't cast a vote in FIFA's The Best awards despite being Portugal...
--  Bolton 1-2 Luton Town: Premier League side avoid potential slip-up in FA Cup Third round clash as...
--  Man United prodigy, marked as the future of the club having already met Sir Alex Ferguson, scores...
--  Giorgio Chiellini is STAYING with Los Angeles FC with the retired Italian defender becoming player...
--  Bristol City score inside the opening THREE minutes of their FA Cup clash with West Ham, as Tommy...
--  Academy star Nathan Fraser scores his second goal in three games as Wolves come from behind twice in...
--  Jose Mourinho Bound for America? Comments from 2011 indicate that the Portuguese manager could look...
--  Arsenal in talks with Besiktas over deal for defender Cedric Soares... as the Portuguese right-back,...
--  Tottenham defender Sergio Reguilon set to undergo a medical at Brentford ahead of loan move to the...
--  Sarina Wiegman given significant pay rise after signing bumper new contract with England to put her...
--  Fans say new Adidas Predators are 'almost perfect' but some hit out at 'poxy' yellow strap along the...
+-  El total de turistas que visitó Cuba en 2023, poco más de la mitad que los de 2019
+-  Swedish firm partners with a local company, Nyembesi, in energy projects
+-  Coca-Cola in Africa …
+-  Nigeria Info FM presenter, Deborah Ohamara, dies in Abuja auto crash
+-  خلاف بين متحدثين عراقي وإيراني على الهواء حول قصف طهران لأربيل
+-  صمت المآذن.. ماذا فعل الاحتلال الإسرائيلي بمساجد غزة؟
+-  Allegri: «Conta solo vincere, serve lavorare e stare in silenzio. Ruolo di cacciatore? Vi dico…»
+-  Arda Turan: Semih Kılıçsoy'u izledikçe gurur duyuyorum
+-  AİHM'den düzensiz göçmenlere ateş açan Yunanistan'a maddi tazminat ödemesi kararı
+-  Şampiyonluk emeklilik ikramiyesi değil
+-  Next Station Pendik
+-  Almanya'da "DAVA" ismiyle Türklerin öncülüğünde yeni bir siyasi oluşum kuruldu
+-  Ziraat'in "Cenk"averi Kartal
+-  Kayseri açık artırmada
+-  Vítor Pereira lamenta "mastiga e deita fora" do futebol. "Projetos são apenas para o próximo jogo"
+-  Evalúan plan estratégico de recuperación productiva en Pdvsa
+-  بعد إدانة رئيسها بخيانة الأمانة.. وزارة بنموسى تقرر تعيين لجنة مؤقتة لتسيير جامعة الشطرنج
+-  "كوستال" الألمانية تفتتح وحدة صناعية جديدة في طنجة المتوسط
+-  Fechas para elecciones primarias y generales en Carolina del Norte
+-  2024首次民调出炉！国家党大获全胜，Chris Hipkins支持率跌至历史最低
+-  Öffentlicher Dienst: Beamte erhalten Sonderzahlungen
+-  Gunda replaces Tsuroh at the helm of GB Holdings
+-  Liri (18), aus Israel entführt: Hamas hält meine Tochter als Geisel | Nachricht
+-  Özgür Özel şehit ailesini ziyaret etti
+-  I’m ‘that mom’ – everyone asks how I’m so put together, I wake up at 5am to work out & totally clean my house each night
+-  Dinamo a anunțat al doilea transfer al iernii: are patru titluri de campion în palmares!
+-  Contag aciona STF contra lei de Goiás que determina a desocupação de margens de rodovias
+-  Continúan detenciones de camiones que trasladan a migrantes por Sonora
+-  Luton survive Bolton scare to reach fourth round
+-  Bristol City shock 10-man West Ham in replay
+-  Miyoshi grabs late winner for Blues against Hull
+-  نتنياهو : نقل الأدوية للأسرى الإسرائيليين بغزة سيبدأ الاربعاء
+-  البيت الأبيض: حماس ما زالت تهدد "إسرائيل"
+-  VW Tayron: Siebensitzer-Ersatz für den Tiguan Allspace
+-  موعد والقنوات الناقلة لمباراة لبنان والصين اليوم في كأس آسيا 2023
+-  గొర్రెల పంపిణీ అవినీతి కేసు.. ఏసీబీ దూకుడు
+-  Handball-EM: Das sagen Wolff und Gislason zur DHB-Niederlage gegen Frankreich
+-  Clôture à Dakar des Assises Sénégalo-Marocaines de la Décentralisation
+-  Hyte predstavlja THICC Q60 AIO vodeno hlađenje
+-  Prve Bluetooth i MP3 kompatibilne slušalice napravljene tehnologijom koštane provodljivosti
+-  Tattoos could reveal true identity of man killed by train in 1981
+-  مالي تحقق فوزا ثمينا على جنوب إفريقيا بهدفين نظيفين
+-  রাম মন্দিরের পাল্টা ‘সংহতি দিবস’ কর্মসূচি ঘোষণা মমতার
+-  Piden al Tribunal Constitucional celeridad en el proceso que definirá permanencia de peajes de Rutas de Lima
+-  El sentido adiós de Mario Sábato a ESPN después de 15 años ¿Ya tiene reemplazo?
+-  Los amotinados en Cotopaxi esperaban el ingreso policial con explosivos en buses
+-  Missions like the nighttime sea raid that saw 2 Navy SEALs go missing are 'dangerous' and 'complex,' former Special Forces soldier says
+-  Wieder schlechte Nachrichten zum Release (Update)
+-  Conférence de presse de Macron : le « réarmement démographique » du président a des airs de dystopie
+-  అద్దంకి , బల్మూరి ఖరారు
