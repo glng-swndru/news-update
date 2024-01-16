@@ -1,11 +1,11 @@
 # Latest News
--  Ankara'da silahlı saldırı: 3 yaralı
--  Brezilya'da yağış felaketi! 11 can kaybı
--  Uşak'ta feci kaza! 8 yaralı
--  EGM'de 127 personel, 1. Sınıf Emniyet Müdürlüğü rütbesine terfi etti
--  Yerel seçimlere ilişkin YSK kararı Resmi Gazete'de
--  Av tüfeğiyle oynadı, kazara arkadaşını vurdu: 1 can kaybı
--  Hockey recieves $20k boost from Asco
--  4분기 전세계 PC 출하량 반등…8분기 연속 하락세 종료
--  서해선 대곡-소사선, 파주 연장 확정… "운정서 김포공항까지 30분"
--  [본사손님] 방문규 국민의힘 수원병 예비후보
+-  VicOne and Primax Partner on Automotive Cybersecurity Services to Improve Efficiencies in Protecting Intelligent Fleet Management and Applications Platform
+-  Tonik enters SME lending
+-  Kamoto.AI introduces the world's first licensed AI Clone; Bollywood's Sunny Leone unveils her AI Clone.
+-  작년 3억 이상 법인차 등록 급증
+-  从南北客源互送到景区免门票 中国多地文旅部门花式揽客
+-  这一晚，佘诗曼是全场焦点
+-  Российский вертолёт Ка-52 «Аллигатор» поразил командный пункт ВСУ
+-  梅西第8次当选世界足球先生
+-  ¿Cómo puedo saber si estoy asegurado en EsSalud usando mi número de DNI?
+-  Άνετη νίκη του Τραμπ στην Αϊόβα στην ψηφοφορία για την ανάδειξη του υποψηφίου των Ρεπουμπλικάνων
