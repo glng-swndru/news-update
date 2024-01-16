@@ -1,51 +1,51 @@
 # Latest News
--  Lukko-leiristä rehti tunnustus vastustajan suomalaisille
--  Počelo suđenje Ruskinji optuženoj za ubistvo proratnog blogera
--  Zelenski pozvao Zapad da pojača sankcije Rusiji
--  Rwanda bill will be messy and damaging for the Tories - whatever the outcome
--  Postcode search: Find out the new constituency you're in and how it's changed
--  Rwanda bill rebels - full list of Tories who voted for Cash amendment
--  Pellegriniho nominant. Šéfom štátnej volebnej komisie sa stal dekan Burda
--  Chinese Manufacturers Unveil Sodium-Ion Electric Vehicles - The Insidexpress
--  Why You'll Regret Not Tipping Your Pizza Delivery Driver - The Insidexpress
--  مستوطنون في الأغوار يزعمون تعرضهم لإطلاق النار من الجانب الأردني كل ليلة
--  بيان عاجل صادر عن وزارة الخارجية القطرية
--  Tenía 19 años, ejecutado en el Libramiento Oriente
--  Más de 300 formularios presentados en el primer día de inscripciones del Lugo Termal
--  “Do të na paguash 2 mijë euro ose do të të shembim punimet”, inspektorët e IMT-së zhvasin qytetarin
--  News24 | Here are the Daily Lotto numbers
--  News24 | Russia and Niger agree to develop military ties, Moscow says
--  Schneechaos in Luxemburg / Tipps vom ACL: Wie komme ich am sichersten durch den Verkehr?
--  Bakan Işıkhan'dan tepki çeken 'emekli' paylaşımı
--  Ренн цікавиться Бондаренком
--  Bu karışım resmen atom! Aktarcı kaşık kaşık yedi hem de tavsiye etti: C, D, A vitaminiyle vücudu kaya gibi yapıyor
--  MrBeast Posts First 'Test' Video on X, as Elon Musk Tries to Lure Creators to Platform
--  MrBeast Posts First 'Test' Video on X, as Elon Musk Tries to Lure Creators to Platform
--  Apple to Remove Blood-Oxygen Tool From Watches to Avoid Ban
--  Designers Are Accusing Temu of Selling Copies of Their Work
--  Emmanuel Macron exhorte les Français à reprendre le contrôle de leurs écrans
--  Besançon. Disparition de Madjid : les plongeurs effectuent des recherches dans le Doubs
--  Haute-Saône. La société Techniluxe, à Voray-sur-l'Ognon, victime d'une tentative de braquage à ...
--  Nancy. Stationnement, infiltrations d'eau... Le fleuriste rue Saint-Georges excédé par le chantier du ...
--  Lorraine. Rentrée 2024 : 174 postes d'enseignants supprimés dans l'académie Nancy-Metz
--  Polémique. Amélie Oudéa-Castéra huée à son arrivée à l'école publique Littré
--  Bessoncourt. Mr.Bricolage sur les rangs : la fermeture définitive de Bricorama est annulée
--  Justice. Liens avec les Frères musulmans : Benzema porte plainte pour diffamation contre Darmanin
--  Oristano, acqua non potabile nel centro storico
--  Neuveriteľný chaos v Ázijskom pohári, v hlavnej roli boli rozhodcovia a systém VAR
--  Eurojackpot geknackt: 120 Millionen gehen nach Norwegen
--  Devisen: Eurokurs bleibt unter 1,09 US-Dollar
--  "Succession", "The Bear", "Acharnés", où voir les séries primées aux Emmy Awards
--  Matthew Perry: les Emmy Awards ont rendu un hommage émouvant à l'acteur de "Friends"
--  Alexander Barboza é apresentado pelo Botafogo e destaca personalidade
--  COLOMBIA: Asciende a 38 cifra de muertos por derrumbes en Chocó
--  Kristalina Georgieva elogió el rumbo económico de Milei y dijo que hay avances en todos los frentes: “Hasta ahora todo va bien”
--  Nigerian Army Sex Scandal: FG Steps Into Matter
--  Empleo, demografía y educación con anuncios de presidente francés
--  HRVATSKA VOJSKA STIŽE NA KOSOVO: Njihov temeljni zadatak je...
--  سامسونج تقدم عروضًا حصرية على أجهزة التلفاز والأجهزة المحمولة لعملائها في الإمارات
--  Abuela permitía que el abuelo abusara de su nieta de 11 años
--  New Year's Eve line shuffle has brought out best in Flames' Huberdeau and Mangiapane
--  Recept na dnes: Obdobie chorôb je pre ňu ako stvorené, táto famózna cesnačka vás postaví na nohy!
--  Learn How Triangle DEI Alliance is Helping Improve the Community
--  Kauza okolo zostreleného ruského lietadla: Na jeho palube mal byť generál! Zničili si ho sami?
+-  Imputan cargos a exalcalde de Malambo por presunta corrupción
+-  Alsózsolcáról közfelháborodás űzte el az akkufeldolgozót, Sóskútra már ultimátumszerűen vonulhat be a szlovén cég
+-  TFF'den Galatasaray'a şok! Hem Başkan Dursun Özbek, hem Başkan Vekili Erden Timur PFDK'lık oldu
+-  Kartal seriye bağladı! Türkiye Kupası'nda Beşiktaş Arda Turan'ın ekibi Eyüpspor'u 4-0 mağlup ederek turnuva dışına itti
+-  Cenk Tosun Ziraat Türkiye Kupası'nda Eyüpspor karşısında bir ilki başardı!
+-  THY duyurdu: Seferler iptal!
+-  Bakan Işıkhan: 2024 'Emekliler Yılı' hayırlı olsun
+-  Beşiktaş kupada 4 golle turladı! Arda Turan'ın ekibi Eyüpspor elendi
+-  Charkhi Dadri News: विज्ञान प्रदर्शनी में छात्र-छात्राओं ने बनाए आकर्षक मॉडल
+-  Guayaquil: 18 ficus son podados tras el desplome de un árbol en Sauces IV
+-  Israel och Hamas överens om nödhjälp
+-  İsrail basınından önemli iddia: Tünellerin uzunluğu Tel Aviv'in beklentilerinin üzerinde
+-  Bakan Fidan: Japonya ile işbirliğimizi sürdüreceğiz
+-  Deoria News: किशोरी से दुष्कर्म करने वाले युवक को दस साल की सजा
+-  Udham Singh Nagar News: 19 हजार फॉग सेफ्टी डिवाइस से कोहरे को चीर रही ट्रेन
+-  Revocato il porto d’armi al deputato di Fdi Pozzolo: “Uso inappropriato, leggerezza e sottovalutazione”
+-  شلل في الجماعات الترابية بالناظور والدريوش بسبب إضراب الموظفين
+-  My Daughter Left The Nest And Returned An S-Rank Adventurer Season 2 Release Date, Cast, Storyline, Trailer Release, And Everything You Need To Know
+-  Vërtetohet teksti i Propozim-ligjit të ri për arsim të mesëm
+-  World yet not fully prepared for future pandemics: Gates Foundation President
+-  Заради бум на лозовата филоксера: Цар Фердинанд слага началото на растителната защита у нас
+-  Banco Popular celebra misas en acción de gracias por su 60° aniversario
+-  Next-Generation EV Batteries Could Have Something In Common With The US Army: Silicon
+-  VIDÉO - Dix opérations contre le trafic de drogue lancées chaque semaine en France, annonce Emmanuel Macron
+-  Amethi News: मदरसा बोर्ड की परीक्षा 13 फरवरी से
+-  Sant Kabir Nagar News: हाईटेक हो रही सेंट्रल लैब, एक जगह होंगी सभी प्रकार की जांचें
+-  Pronađene ukradene slike Picassa i Chagalla, bile kod Belgijanca, ukradene su u Tel Avivu još 2010. godine
+-  Nicki Minaj coming to Glasgow as rap star announces Hydro gig
+-  Fatehpur News: भाकियू की पंचायत में छाया रहा किसान समस्याओं का मुद्दा
+-  Rishikesh News: अयोध्या जाने के लिए रोडवेज को नहीं मिल पा रहे यात्री
+-  ‘Much worse than I thought’: Salisbury Beach is a mess after recent storms
+-  Bentek, LLC. Announces Strategic Partnership with Skyward to Revolutionize Benefits Solutions for Educational Organizations
+-  Hamirpur (Himachal) News: वॉलीबाल में भुक्कड़ ने टाइगर सिक्स टीम को 3-2 से हराया
+-  Beşiktaş farklı kazandı kupada üst tura yükseldi
+-  Luka Bukić, sin Perice Bukića, nesuđeni je hrvatski junak, a prije četiri godine tražio je - talijansko državljanstvo
+-  Asesinan a cinco hombres a balazos en Ceiba, en la primera masacre de 2024
+-  Suveræn første periode sikrer Herning sejr i Metal Ligaen
+-  Suveræn første periode sikrer Herning sejr i Metal Ligaen
+-  الجامعة العربية تعقد اجتماعاً غداً.. خبيرة مصرية: التدخل الإثيوبي في الصومال خطير
+-  Jorge Fossati buscará conversar con Juan Reynoso y Ricardo Gareca
+-  Sygeplejerske advarer: Medarbejdere hænges ud for fejl, som skyldes systemet
+-  Sygeplejerske advarer: Medarbejdere hænges ud for fejl, som skyldes systemet
+-  Sverige har utlämnat syrisk man till Norge
+-  Korisliigassa nähtiin melkoinen yllätys
+-  Brian Barczyk, beliebter YouTube-Reptilienexperte, stirbt im Alter von 54 Jahren
+-  Deoria News: शहर से लेकर नगर तक अवैध अल्ट्रासाउंड केंद्रों की भरमार
+-  Cenk Tosun'dan bu sezon bir ilk
+-  Basti News: 641 गांवों में पाइपलाइन पहुंचाने का दावा, सत्यापन महज 42 का
+-  ABD'den Yemen'deki Husilere yeni saldırı
+-  Зеленски: Путин е хищник, който не се задоволява със замразени продукти
