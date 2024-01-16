@@ -1,11 +1,11 @@
 # Latest News
--  Kyle Edwards signs for Oxford United until end of the season
--  JBM Brokers the Sale of Pearce at Pavilion for $66MM
--  Global Transdermal Drug Delivery Clinical Pipeline Research Report 2023: Stages of Development, Segments, Region and Countries, Regulatory Path and Competitive Landscape
--  Rooted School Foundation's "The $50 Study" Awarded $1 Million from the City of New Orleans Office of Economic Mobility
--  Atlas-SSI Strengthens Water Screening Solutions Portfolio with Acquisition of Containment Barrier Leader ABASCO
--  Roy Hodgson speaks out on Crystal Palace interest in Kalvin Phillips
--  Despot Xi’s brutal military purge ‘ushers in gung-ho generals willing to fight Taiwan at ALL costs…even if it means WW3′
--  Police incidents block major Vancouver intersections
--  Wine Industry Leader Bronco Wine Co. Turns 50
--  N.B. student absences dropped in November compared to 2022, data shows
+-  PHL, UK forge framework deal on defense cooperation
+-  Shell to exit Nigeria’s troubled onshore oil
+-  MP happy Roadchef employees will get money as tax dispute ends
+-  Templegate says one of the most exciting chasers in training has to be backed at 5-1 for the Ryanair
+-  The Kent town 30 minutes from London more popular with DFLs than any other
+-  How this engineer made a U-turn on her career
+-  Recto leads 171 appointees awaiting CA confirmation
+-  Murders of three trans people in two weeks spark protests in Mexico
+-  יובל שדה ואיתי בן שבת בלמים במכבי נתניה מול הפועל ירושלים
+-  Josh Hutcherson: Did He Audition for Spider-Man? Will He Be In the MCU?
