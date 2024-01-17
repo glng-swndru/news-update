@@ -1,11 +1,11 @@
 # Latest News
--  통합위, '포용금융특위' 출범…소상공인 정책금융채널 확대 등 정책 발굴
--  "수리 지연됐다" 차량 공업사서 흉기 휘두른 60대 검거
--  달러 가치, 한 달 새 최고 수준 상승…"금리 인하 지연 우려"
--  ดาวเทียมค้นพบดาวเคราะห์ขนาดเท่าโลกมีซีกเป็นลาวา
--  정부, 8년만에 불법 해상활동 北 선박 독자 제재
--  HLV Nhật Bản nói gì khi giúp ĐT Thái Lan giành chiến thắng mỹ mãn?
--  Джака признан лучшим футболистов года в Швейцарии
--  Hereâ€™s how ChatGPT maker OpenAI plans to deter election misinformation in 2024 (Business)
--  "บิ๊กโจ๊ก" สอบ "ลุงเปี๊ยก" สางคดี "ป้าบัวผัน" ผบช.ภ.2 ยันไม่จับแพะ
--  Today’s Lely Radio Sports Page – Indianola Girls Basketball Junior Zoey Belt – January 16th, 2024
+-  Mercato - OM : Le départ de Gattuso annoncé en direct ?
+-  Ugh: Mask Mandates Return at New Jersey National Park
+-  Warren Buffett’s Berkshire Hathaway buys remaining 20% of truck-stop operator Pilot Travel Centers
+-  Isabel dos Santos acusa Justiça portuguesa de estar "subordinada à Justiça angolana"
+-  Global Fetal Doppler Market Outlook & Forecast 2023-2028: Competitive Analysis for Contec Medical Systems, Huntleigh Healthcare, Promed Technology, The Cooper Companies & Ultrasound Technologies
+-  하마스, 이스라엘 '저강도 전환' 맞춰 대규모 로켓 공세
+-  Filme mostra história de casa de sonho paredes-meias com Auschwitz
+-  再燃きっかけはテレビドラマ…「全てを失った」元郵便局長語る苦悩 英“史上最大冤罪事件” 富士通幹部が議会証言
+-  ‘크래프톤 정글 게임랩’ 교육생 개발 6종 게임 스팀 출시
+-  Professoras grávidas não sobem de escalão
