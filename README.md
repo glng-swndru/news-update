@@ -1,11 +1,11 @@
 # Latest News
--  이솜, 티빙에서 만나요 [포토]
--  बैंक में अचानक मच गई अफरा-तफरी, पासबुक अपडेट करवाने आए थे 'जनाब'!
--  à¶¢à¶±à¶´à¶­à·’ à¶¢à·�à¶±à·Š à¶šà·™à¶»à·“ à·„à¶¸à·” à·€à·™à¶ºà·’
--  Гладков: нападения подростков в Белгороде требуют быстрой и жёсткой реакции
--  이솜, 사랑스러운 포토타임 [포토]
--  Marlon Douglas deixa o Gil Vicente
--  Protest spontan al angajaților Agențiilor pentru IMM-uri din întreaga țară. Sunt nemulțumiți de salariile mici
--  Recherche des Bayerischen Rundfunks: AfD-Abgeordnete sollen nach Parteitag rechtsextreme Parolen in Diskothek gerufen haben
--  “文, 4·3추념사로 명예훼손”…이승만사업회, 2심도 패소
--  Thừa Thiên Huế: Một người dân thị xã Hương Trà bắt được cá thể tê tê “đi lạc” trên đường
+-  3 Bentuk Intimidasi Menjelang Kampanye Anies di Bone
+-  Франция планира доставка на десетки ракети и стотици бомби за Украйна - Труд
+-  Hünnap meyvesinin faydaları ve zararları: Hünnap meyvesi nerede yetişir?
+-  국힘 4·5선 중진 만난 한동훈 "대부분 시스템 공천 잘했다 해"
+-  Türk damadı nikah masasından alıp sınır dışı ettiler
+-  Se apropie sfârșitul mașinilor electrice? Ce se ascunde în spatele deciziilor Hertz și Spark, care au dat apă la moara anti-EV
+-  Galatasaray'a Sırp golcü: Luka Jovic!
+-  Mi-8 military helicopter crashed on Bishkek outskirts
+-  Ето кои са най-страстните любовници сред зодиите
+-  Vụ đấu giá đất hơn 4 tỉ đồng/m2: Do căng thẳng nên trả giá nhầm?
