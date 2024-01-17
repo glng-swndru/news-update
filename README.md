@@ -1,11 +1,11 @@
 # Latest News
--  Home insurance costs rising at twice the rate of general inflation
--  Today’s Wordle Hints (and Answer) for Wednesday, January 17, 2024
--  HSV-Trainer: Walter im Club der 100: "Alles erlebt, was passieren kann"
--  Zweite Bundesliga: St. Paulis Umgang mit den Härtefällen. Was wird aus Vasilj?
--  Britain might think fondly of its empire but here’s why the world remembers it with anger
--  Accountancy bodies plan amalgamation to create ‘stronger voice’ for 37,000 members
--  Einzelhandel: Leerstand-Manager: Die Rettung für verödende Innenstädte?
--  墨汁浸す髪、丸見えの舞台袖 「暗い時代こそ」笑顔生む命の女将劇場
--  ‘A great steaming turd of a television programme.’ LOL: Ireland is a cringe-fest where comedy goes to die
--  검찰 "구급 · 구조 중대 방해 적극 구속수사…중형 구형할 것"
+-  Chàng trai đi khắp Việt Nam chụp 999 bức ảnh đời thường để dành tặng miễn phí: “Sống là để cho đi”
+-  Quake Releases Slave Zero X Prelude 'Episode Enyo' As A Free Add-On
+-  Прохин: «Федотов — главный тренер в моей карьере»
+-  Delhi weather: Mercury drops to 4 degrees Celsius, 53 flights cancelled amid dense fog at IGI Airport
+-  RS tem forte temporal nesta terça (16) e mais de 20 bairros ficam sem luz em Porto Alegre
+-  Gov. announces expanded universal preschool for 26 Mass. cities
+-  رد فعل مدرب عمان بعد الخسارة أمام السعودية بهذه الطريقة
+-  Videotron Anies Baswedan Diturunkan Usai Tayang Sehari Tuai Kekecewaan, Siapa yang Buat?
+-  名所や祭り・名物あしらった「観光ラッピングタクシー」お披露目 山形・鶴岡市
+-  대구 달서구 아파트서 치매 아버지와 50대 아들 숨진 채 발견
