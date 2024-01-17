@@ -1,11 +1,11 @@
 # Latest News
--  Mercato - OM : Le départ de Gattuso annoncé en direct ?
--  Ugh: Mask Mandates Return at New Jersey National Park
--  Warren Buffett’s Berkshire Hathaway buys remaining 20% of truck-stop operator Pilot Travel Centers
--  Isabel dos Santos acusa Justiça portuguesa de estar "subordinada à Justiça angolana"
--  Global Fetal Doppler Market Outlook & Forecast 2023-2028: Competitive Analysis for Contec Medical Systems, Huntleigh Healthcare, Promed Technology, The Cooper Companies & Ultrasound Technologies
--  하마스, 이스라엘 '저강도 전환' 맞춰 대규모 로켓 공세
--  Filme mostra história de casa de sonho paredes-meias com Auschwitz
--  再燃きっかけはテレビドラマ…「全てを失った」元郵便局長語る苦悩 英“史上最大冤罪事件” 富士通幹部が議会証言
--  ‘크래프톤 정글 게임랩’ 교육생 개발 6종 게임 스팀 출시
--  Professoras grávidas não sobem de escalão
+-  दिल्ली में कड़ाके की ठंड, 4 डिग्री तक पहुंचा तापमान, 120 फ्लाइट्स प्रभावित, कई ट्रेनें लेट
+-  中丸雄一は尻に敷かれそう？笹崎里菜さん、日テレ入社時に「トラブル」
+-  [Pick] "돈 받을 자격 없지?" 직원 월급 줬다 빼앗은 '갑질' 한의사
+-  Les défis de la classification des sites archéologiques en Polynésie
+-  Neviens nav pateicis, ka Ķīna ir mūsu ienaidnieks
+-  Grab triển khai loạt chương trình hỗ trợ cộng đồng, tri ân đối tác dịp Tết
+-  Đối thoại chiến lược quốc gia Việt Nam - Diễn đàn Kinh tế thế giới
+-  Эксперт Шутов: фонарик смартфона обнаружит скрытую видеокамеру
+-  이수정 교수 "김건희 여사, 선물 돌려주고 사과하면 쉽게 해결"
+-  Biệt thự báo hiếu của người con Nghệ An, đi làm xa gửi hết tiền về quê xây lại nhà bố mẹ
