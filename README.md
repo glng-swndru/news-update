@@ -1,11 +1,51 @@
 # Latest News
--  Soccerladuma | Namibia Boss Reacts To Hotto-Inspired AFCON Upset
--  Fatal accident on Durban's M7 as motorists warned to be cautious before level 5 weather warning
--  New AirAsia route connects Ahmedabad to Kuala Lumpur
--  Bengali Food Festival set to take place at Courtyard by Marriott Bengaluru Hebbal
--  Cuts to education in English equivalent to cuts to economic growth, D66 says
--  ROBLOX SHAREHOLDER ALERT: CLAIMSFILER REMINDS INVESTORS
--  Gym-locker stealing couple boast life of luxury after pinching £250k worth of goods
--  Penang water tariffs to double, no rate hike in Sabah
--  Love Island All Stars predictions – girl quits, 'naughty' display and legend returns
--  Rohan Dennis attends his wife Melissa Hoskins' funeral after being accused of running her down with his ute - before her father breaks own while delivering a heartbreaking eulogy
+-  Life | Skeem Saam moving to a new timeslot in March
+-  News24 | Recipients blocked from getting R350 grant after fraudsters change their cellphone numbers
+-  Teşekkür belgesi kaç puanla alınır? Teşekkür belgesi alma şartları nelerdir?
+-  Müge Anlı'da Ahsen'in Yeşilçam filmlerini aratmayacak hikayesi! Tam 21 yıl sonra...
+-  Hayvancılık sektöründe çeşitli yatırımlara 1,9 milyar lira destek
+-  İsrail'e boykot: Yüzde 50 ile Z kuşağı ön planda
+-  Galatasaray, kupada Ümraniyespor ile ilk kez karşı karşıya
+-  MEB'den okullarda "disiplinler arası" yaklaşımı artıracak yeni düzenleme
+-  3 defa tüketenin karaciğerinde yağ kalmıyor! Yoğun bakımdan kurtaran meyve
+-  Mehtap'ın sözleri kavga çıkarır: Seda Sayan'ı makyajsız tanıyamadım
+-  Üstün başarı belgesi nasıl alınır? 2023-2024 başarı belgesi kimlere verilir?
+-  İzmir'de hava ulaşımına sis engeli
+-  İstanbul Öğrenci Meclisleri ilk toplantısını yaptı
+-  İsrail ile çatışan Hizbullah'ta bir Hizbullah mensubu daha öldürüldü
+-  Samsunspor'un hedefinde 3 Fenerbahçeli var
+-  Süper Lig'in en genç hakemi Oğuzhan Çakır oldu
+-  Ne aşkta kazanabildi ne işte... Devrim Özkan'a kötü haber!
+-  İstanbul'da yoğun bakım doluluk oranı yüzde 83'e ulaştı
+-  Okullarda yarıyıl tatili cuma günü başlıyor
+-  Marmara ve Ege için fırtına uyarısı
+-  Yeni evlenecek gençlerin kredi başvurusu için hazırlıklar tamamlandı
+-  البورصة ترتفع لأعلى من 27 ألف نقطة لأول مرة في بداية تعاملات الأربعاء
+-  CM Yogi inaugurates Air India Express’ direct flight services between Ayodhya and Kolkata & Bengaluru through video conferencing
+-  Feed Premixes Market to Develop New Growth Story
+-  Xiaomi Redmi Note 13 Pro in for review
+-  JetBlue’s $3.8 Billion Buyout of Spirit Airlines Is Blocked by Judge Citing Threat to Competition
+-  PM Modi blesses newlyweds at Kerala's Guruvayur Temple
+-  Jyotiraditya Scindia, CM Yogi flag off first flight service between Ayodhya, Bengaluru, Kolkata
+-  Akshay Kumar's heartfelt message on Twinkle Khanna's graduation day
+-  English Kids Poem: Nursery Song in English 'Old MacDonald'
+-  Discover The New Haryanvi Music Video For 26 Inch Kamariya (Lyrical) By Pawan Pilania And Miss Teena
+-  Eviction notice pasted on expelled TMC MP Mahua Moitra’s bungalow in Delhi, proceedings ongoing
+-  Listen To The Popular Punjabi Music Audio For Bismillah By Amrit Maan
+-  Microsoft has a challenge to “ensure the integrity of elections: Satya Nadella
+-  Изминатото деноноќие 1 769 повици на 112, информираат од ЦУК
+-  Priscilla Presley ist Richard Lugners Opernball-Gast 2024
+-  Military Transport Aircraft Market 2024 Report By Key Companies, Regional Analysis And Forecast 2033
+-  Socket Protocol Suffers Security Breach Leading to Loss of $3.3 Million
+-  Макрон Россия ҳақида кескин баёнот берди
+-  “Туркистон болалари” – Германияда ўқиб, Ватанига қайтгач қатағонга учраган ёшлар ҳақида ҳикоя қилувчи спектакль
+-  Το πρόγραμμα της Τ.Ε. Ε.Ο.Κ. Δωδεκανήσου!
+-  Alfalfa Market Growth Will Be Extreme in the Next Years
+-  Oncology Nutrition Market Statistics, Size, Trends, Share, Competitive Landscape Analysis 2024-2033
+-  Schade jaarwisseling in gemeente Krimpenerwaard rond 25.000 euro
+-  Skiteam Nieuwegein wint 15 medailles in Oss
+-  De Goudse Schouwburg en Cinema Gouda schenken ruim 7000 euro aan Fietsen Alle Jaren Gouda
+-  Ablak a világra: kiknek ajánlott angol nyelvű egyetemi képzésre jelentkezni itthon?
+-  Malenica razočaran: Štrajk koji najavljuju suci je neopravdan
+-  Rising sheep prices challenge consumers as Ramadan approaches
+-  Middle East and Africa Excipients Market Growth, Strategic Analysis, Future Scenarios and Forecast by 2030
