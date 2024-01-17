@@ -1,11 +1,51 @@
 # Latest News
--  벤큐, ‘제21회 대한민국 교육박람회’에 2024년형 구글 인증 전자칠판 선봬
--  다크플래쉬, 스테디셀러 케이스 DLX21 MESH 3차 업그레이드 및 가격 인하
--  Politie stuit op explosief materiaal in auto: tankstation en parkeerplaats urenlang afgesloten
--  จับคนรวมบัญชีม้าส่งข้ามชายแดน พบเป็นแก๊งอ้างกรมที่ดิน
--  Rusya'dan Ukrayna'ya saldırı! Yine siviller hedef alındı
--  Osmaniye'de 3.2'lik deprem!
--  Mračna predviđanja znanstvenika: Svijet će uskoro izgledati potpuno drugačije, pojavit će se tisuće gradova duhova
--  Winnaars mascotte prijsvraag Winkelcentrum Walburg
--  אוניברסיטת בר אילן חושפת: זו התוכנית שתעניק קריירה בטוחה לסטודנטים
--  אייל גולן מתרגש: "זה אחד הדברים הכי חשובים בחיים שלנו"
+-  ASA movilizó a 4.1 millones de pasajeros
+-  국민의힘 공천룰 확정.. 제주 경선시 여론 80%, 당원 20% 적용
+-  جامعة الفرات الأوسط التقنية توقع مذكرة تفاهم مع جامعة العلوم USM ماليزيا
+-  الجمعيات الفلاحية في كربلاء تجري كشف موقعي ومتابعة ميدانية لشبكة مبازل الوند للإطلاع ومتابعة أعمال التطهيرات
+-  العراق يشكو إيران لمجلس الأمن
+-  رئيس الوزراء: العراق لا يمانع في التعاون مع التحالف الدولي بمجال التسليح والتدريب
+-  كربلاء تباشر بتطبيق نظام الدفع الالكتروني (POS) في محطات تعبئة الوقود
+-  Vlahović - savršen napadač: Tri gola levom nogom, tri desnom, tri glavom, slobodni udarci
+-  Temperature tokom noći -13 stepeni; Izdato upozorenje
+-  트로이아르케, 오프라인 뷰티클래스 '민낯 클래스' 오픈
+-  "국내 인슐린 펌프 치료율 낮아, 기술 속도 맞춘 정책 지원 시급"
+-  병원 전체 병동에서 간호·간병 통합서비스 가능해진다
+-  심사평가원, 문체부 주관 우수상 수상
+-  Tenojoen lohikanta "syvässä aallonpohjassa" jo viidettä vuotta peräkkäin, arvioi Luke
+-  건보공단, 요양기관 세무신고 '2023년도 연간지급내역' 제공
+-  Kilkenny parish to experience water outages today (Wednesday)
+-  US Retail Sales Preview: Forecasts from nine major banks, consumers continued spending in December
+-  Спикер: Қонунларимиз яширин иқтисодиётга йўл бермайдиган бўлиши лозим
+-  Бухорода 205 миллион долларлик 5 лойиҳа амалга оширилади
+-  Экология вазирининг ахборотини эшитиш масаласи қўллаб-қувватланди
+-  Poți circula cu o copie a permisului de conducere? Ce riști dacă nu ai actele în original
+-  [“배달로 2억 버는 데 3년” 흙수저 성공기 집중조명…中언론, 속셈 뭐길래
+-  [[속보] 外人 대량매도에 코스피 2%대 급락…2430대로 밀려
+-  [LG에너지솔루션, 지난해 영업익 2조1632억…전년비 78.2% ↑
+-  [소주 22병 마시고 수영 중 사망한 男…'이은해식 범죄'였다
+-  [하윤수 부산교육감, 부산 KCC이지스 홈경기서 시투한다
+-  [건물주가 손 꼭 잡고 "월세 깎자, 오래 장사해줘서 고마워"…호프집 사장 ‘왈칵’
+-  [무협, 美 현지 진출 기업 간담회 개최…대선 이후 통상·정책 변화 전망
+-  [진에어, 지난해 영업익 1816억…흑자전환
+-  [“오늘 점심? 양식!” 조회수·폭소 다 터졌다...광주 동구 공무원들 '제2 충주맨' 되나
+-  Зачем белорусам пить горячую воду? Узнали, как это делают в Китае и что говорит ВОЗ — Полезно
+-  İngiltere'de enflasyon yıllık bazda beklentilerin üstünde
+-  MHA Cancels FCRA Registration Of Centre For Policy Research Charging Violation Of Certain Norms
+-  Didakwa aniaya anak tiri sejak 2019
+-  Exclusive Research Report on E-health Integration Platforms Market, Size, Analytical Overview, Growth Factors, Demand and Trends Forecast to 2030 : Teladoc, Amwell, MDLIVE
+-  Code geel om gladheid en vanaf eind van de ochtend door ‘langdurige sneeuw’ in het zuidoosten
+-  LIVE | Twintig drones afgevuurd op Odesa: woonwijk geraakt en drie mensen gewond
+-  Pensionarii români din străinătate trebuie să dovedească de două ori pe an că mai trăiesc. FORMULARE
+-  AI Marketing Campaigns: Complete Guide
+-  Passenger Service System Market Anticipated to Hit US$ 13.79 Billion by 2029, Marking a Remarkable 13.24% CAGR Growth."
+-  Debt Collection Gone Awry: Father Arrested After Shooting Son Twice Over US$300 Debt
+-  Cercetătorii chinezi au creat o tulpină mutantă de coronavirus care atacă creierul. „Această nebunie trebuie oprită”, avertizează oamenii de știință occidentali
+-  Ratio of jobless middle-aged, elderly after retirement on rise amid low birthrate, aging society
+-  Main opposition head vows election victory after returning to work
+-  Chinese battery maker probed for alleged technology theft from Samsung SDI, SK On
+-  Ateez, Le Sserafim to perform at Coachella festival
+-  Türkiye'den dev petrol ve doğalgaz hamlesi! En büyük pay ayrıldı
+-  Valentin Rosier imza için Fransa'ya uçtu
+-  "Ölü seçmen, vatandaş olmayan oy kullandı" iddiasına YSK'dan açıklama
+-  Embiid'in 41 sayısı 76ers'a galibiyeti getirdi
