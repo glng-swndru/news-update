@@ -1,11 +1,11 @@
 # Latest News
--  Adres değişikliğinde 20 gün süreniz var! Bildirim yapmayana rekor para cezası
--  '외계+인' 2부, 1부 넘을 수 있을까…70만 돌파
--  Trading ideas: Kanger, Chin Hin, SCIB, MN, Ageson, Minetech, BLD and Kerjaya Prospek
--  米ボーイング機事故、製造めぐる混乱の内幕 - WSJ発
--  Detuvieron a dos acusados por la balacera que terminó con cinco muertos en González Catán
--  Warga asing ditahan bersama 20,000 biji pil yaba
--  【大行炒Ｄ乜】科技股被降目標價，大摩跟進本地電訊股
--  Diniz escolhe Messi como melhor do mundo no The Best; saiba votos de brasileiros
--  두산로지스틱스솔루션, 다이소 세종허브센터 수주
--  PGA Tour Golfer After Incredible Win: 'Jesus Christ Changed My Life,' But Today Won't
+-  통합위, '포용금융특위' 출범…소상공인 정책금융채널 확대 등 정책 발굴
+-  "수리 지연됐다" 차량 공업사서 흉기 휘두른 60대 검거
+-  달러 가치, 한 달 새 최고 수준 상승…"금리 인하 지연 우려"
+-  ดาวเทียมค้นพบดาวเคราะห์ขนาดเท่าโลกมีซีกเป็นลาวา
+-  정부, 8년만에 불법 해상활동 北 선박 독자 제재
+-  HLV Nhật Bản nói gì khi giúp ĐT Thái Lan giành chiến thắng mỹ mãn?
+-  Джака признан лучшим футболистов года в Швейцарии
+-  Hereâ€™s how ChatGPT maker OpenAI plans to deter election misinformation in 2024 (Business)
+-  "บิ๊กโจ๊ก" สอบ "ลุงเปี๊ยก" สางคดี "ป้าบัวผัน" ผบช.ภ.2 ยันไม่จับแพะ
+-  Today’s Lely Radio Sports Page – Indianola Girls Basketball Junior Zoey Belt – January 16th, 2024
