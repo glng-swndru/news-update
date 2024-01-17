@@ -1,11 +1,51 @@
 # Latest News
--  CPI(M) Leader Veerabhadram Thammineni in stable condition at AIG Hospitals
--  NNPC Exposes 83 Illegal Refineries , 15 Pipeline Connections in Niger Delta Within a Week
--  Juwai Teer result today: Jan 17, 2024 first and second round number
--  Wizz Air pays out £1.2m to passengersover disrupted flights
--  Wizz Air pays out £1.2m to passengers over disrupted flights
--  Referee appointed for Watford trip to Bristol City in Championship
--  Tallen Apologises To Judiciary, Nigerians Over ‘Kangaroo Judgement’ Comment
--  Misleading Ads For 'Prasad Home Delivery' Viral Ahead of Ram Mandir Consecration
--  Three M’sian women make Forbes’ 50 Over 50: Asia 2024 list
--  Sunak faces crunch vote on Rwanda plan after major Tory revolt
+-  Terranet provides update from CES, the world’s largest tech
+-  Up to 10 centimetres of snow forecast for Greater Victoria and eastern Island
+-  Tin Chemicals Market ndustry Future Demands, Size and Manufacturers Report By 2024-2031 | Mason Corporation, Ace Chemical Company
+-  Coronation Street fans ‘expose’ identity of Lauren’s secret boyfriend in dark theory
+-  Cellular Health Screening Test Market Growth in Future Scope 2024-2031 | Genova Diagnostics, Cell Science Systems, Life Length, Repeat Diagnostics, Titianovo
+-  Gartner Forecasts Worldwide IT Spending to Grow 6.8% In 2024
+-  High Purity 1-Chlorobutane Market: Size, Share, Growth, Analysis, Key Players, Revenue, Growth | Valuates Reports
+-  Adipic Acid Market worth US$ 9.6 Billion 2029 with a CAGR of 4.3 %
+-  Nutrition Testing In Women And Children Market Potential Growth 2024 -2031, Share, Industry Analysis, Size | DiaSorin Group, Trajan Nutrition, EKF Diagnostics Ltd., Lactation Lab
+-  Onshore Wind Energy Market to Expand Significantly by 2024 | ABB, Nordex, Suzlon Energy
+-  Stunning ‘UFO home’ for sale in the middle of the woods in New York
+-  Study by online dating app shares how couples plan on rekindling romance in 2024
+-  Invitations for Ram temple event should be socially inclusive: Jitendra Awhad
+-  Kuaishou says it achieved first yearly profitability since IPO in 2023
+-  Energy as a Service Market Is Projected to Grow At A CAGR of 11.26% Through 2029 | Enel Spa, ENGIE, Bernhard
+-  Admiral Hari R Kumar Unveils Bharat Yoga Mala: A Groundbreaking Initiative for Mental Well-being
+-  Stearyl Alcohol Market New Technologies Forecast [2024-2031] | Leading Key Players Analysis, with Forthcoming Growth and Opportunities | Kao, BASF, Godrej, KLK OLEO, Arizona Chemical
+-  Advanced Drug Delivery Systems Market to See Booming Growth 2024-2031 | Amgen Inc., Glaxosmithkline, Celgene Corporation, Boston Scientific, Baxter International
+-  Kate Moss remembers Johnny Depp ‘pulling diamonds out of his crack’ in 50th birthday post
+-  LinkedIn says 88% professionals in India considering a new job; know why people want to switch
+-  AEWIN SCB-1942 Flagship Appliance, Powered by Dual Intel 5th Gen Xeon Scalable Processors
+-  Aramco expands global venture capital program with $4bn funds injection
+-  “19 Knives”
+-  Coco Gauff and Sabalenka into 3rd round but Jabeur and Wozniacki are out of the Australian Open
+-  Winter storms live updates: Ice storms pound Pacific Northwest as death toll climbs across US
+-  Photovoltaic System Market to Develop New Growth Story | Kyocera, Schott Solar, Trina Solar
+-  Cable Management Accessories Market 2024 : Quantitative Market Analysis, Current and Future Trends | Schneider Electric SE, Chatsworth Products, Inc., Legrand SA
+-  Beating Heart Patch Market Overall Study Report 2024-2031 | BIOCARDIA, INC., Athersys, Inc., CorMatrix Cardiovascular, Inc., BD, LifeNet Health, Inc.
+-  DVD Ripping Software Market: Size, Share, Growth, Analysis, Key Players, Revenue, Growth | Valuates Reports
+-  Mahanga Double Murder Case In Odisha: HC Extends Interim Protection For BJD MLA Pratap Jena Against Coercive Action
+-  Sportowiec Roku 2023: Daria Szynkaruk, czyli podpora MKS Funfloor Lublin
+-  تسعى لانتاج (200) الف طن كربلاء تزرع (189) الف دونم من الحنطة هذا الموسم
+-  U.S. Sucralfate Market Product Size Data 2023 to 2030: Analysis of Industry Trends, Growth Opportunities, and Forecasts | Teva Pharmaceutical Industries Ltd., Allergan plc, Vertice Pharma LLC
+-  quot;지구촌 친구들과 우정 쌓길quot;hellip; 여주시청소년국제교류단 LA 출국
+-  이천소방서, 물류창고 화재예방 안전컨설팅 실시
+-  เครื่องบินเกี่ยวสายไฟฟ้าระเบิดก่อนตก นักบินดับ1ศพ เผยเพิ่งไปทำภารกิจดับไฟป่า
+-  Sắp đấu Việt Nam, tuyển Indonesia bất ngờ đón tin vui
+-  Sếp lớn Indonesia công khai suy nghĩ về sức mạnh tuyển Việt Nam
+-  MP: 2 Thieves Steal Vehicle From Police Station, Go On Joy Ride With Siren On
+-  I Inherited Buhari’s Liabilities, Assets – Tinubu
+-  "Kıskaç-4" operasyonlarının İstanbul detayı ortaya çıktı
+-  Somali, Etiyopya uçağına hava sahasını kullanma izni vermedi
+-  Samsunspor gözüne Fenerbahçe'nin 3 yıldızını kestirdi
+-  Macron, Kızıldeniz'deki ABD koalisyonuna neden katılmadıklarını açıkladı
+-  Emeklilikte 7 bin 200 prim gün sayısı! Bakan Işıkhan'dan heyecanlandıran açıklama
+-  Malezya adımı attı! Filistin'in BM'ye tam üye kabul edilmesi için kampanya başlatıldı
+-  Avustralya Açık'ta Sinner turladı, Jabeur elendi
+-  Çocuklar Üşümesin... Minik Yürekleri Deniz Feneri Isıtıyor...
+-  Kadıköy'de dehşet anları! Köpekler yaşlı kadına saldırdı
+-  MİT'in yakalayarak Türkiye'ye getirdiği "Fırat" kod adlı Serhat Bal tutuklandı
