@@ -1,51 +1,51 @@
 # Latest News
--  [조달청, ‘원자재 사용 확인 서류 제출 의무’ 폐지
--  [기계硏, 40년 기계설계 노하우 전수…기업 경쟁력 높인다
--  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
--  ['미녀 살인범 정유정?'…이젠 진짜 얼굴 못숨긴다
--  [“발 색깔 다른데?” 31살 ‘세계 최고령 개’ 허위 논란…기네스서 무슨 일
--  [중기부, AX 등 딥테크 전략기술 및 글로벌 협력 R&D 확대 추진
--  [‘1세대 조각가’ 김윤신, 아흔 앞두고 전속작가 됐다…국제갤러리·리만머핀 계약 체결
--  [영화 '내부자들' 프리퀄, OTT 시리즈로 나온다
--  [골프웨어 브랜드 챌린저, KLPGA 박주영과 의류후원 계약
--  [새해 첫 확대기관장회의 연 유인촌 장관, 갑질 근절·조직문화 개선 주문
--  [뽀뽀하고 엉덩이 때려고…‘女직원 추행’ 양산시의원, 논란일자 탈당
--  ["바이든, 제재 고마워”…中반도체장비 회사 나우라, 매출 50%
--  [겨울철 산촌 소득원…고로쇠 수액 채취 본격화
--  ['故 이선균' 협박 유흥업소 실장에 생일선물로 마약 제공.. ‘쇼닥터’ 구속 기소
--  [종가매매 종목 발굴 완료! 시초가 갭상승 종목 확인!
--  [현관문에 ‘개똥 테러’ 벌써 3번째…CCTV 확인해 보니
--  Google Undertakes Workforce Reductions In Advertising Sales Teams Now
--  Energy Breakthrough Crucial For Future AI: OpenAI CEO Sam Altman
--  أمانة عمان تنذر 20 موظف بالفصل - اسماء
--  뉴진스 '디토' 뮤비, 美 클리오 뮤직 어워드 대상 수상 후보 올라
--  Australian Open Highlights: Alex de Minaur v Matteo Arnaldi
--  Australian Open Highlights: Alex de Minaur v Matteo Arnaldi
--  शर्मिष्ठा और अभिजीत की अलग राजनीति
--  O illerde kuvvetli yağış etkili olacak! 17 Ocak hava durumu: Bugün hava nasıl olacak?
--  Nasuh tövbesi nedir, nasıl yapılır? Nasuh tövbesi duası, okunuşu ve anlamı!
--  Geri sayım başladı! Türkiye’nin ilk astronotu uzaya çıkıyor
--  TBMM'de teröre karşı bildiri
--  Elon Musk'ın robotunun yeni hüneri
--  Genç kadının yüzüne kimyasal madde dökmüştü! Yasemin'in '20 yıl' çığlığı
--  शर्मिला को अपने पिता का सपना पूरा करना है
--  NYT: Israel tardará años en destruir el sistema de túneles de Hamás
--  Sokaktan toplayıp öldürüp bahçeye atmıştı: İzmir'deki kedi katili tutuklandı
--  Almanya'dan Gazze'deki katliama yeni destek yolda: 10 bin adet tank mühimmatı yollayacaklar
--  Las 'primeras damas': una figura antidemocrática
--  Sustaining Three-Hour Vehicle Clearance Feat To Boost Ease Of Doing Business In Ports
--  Mirra Andreeva, 16, defeats Ons Jabeur in less than an hour
--  아이브 장원영, 탈덕수용소 상대 1억 손배소 승소 [공식](전문)
--  기본도 안 된 중국 축구→FIFA 랭킹 106위 상대로 패스미스 100개 넘었다…중국 감독 "도망치지 않겠다"
--  “짠하더라, 얼마나 간절했길래” 서건창 KIA행 발표 직후…‘이 사람’에게 가장 먼저 ‘감사 인사’ 매너남
--  মুদ্রানীতি ঘোষণা আজ
--  '1346억+α 전망' FA 랭킹 6위 김하성, 잭팟 계약 '꿈' 안고 20일 출국…LA 개인훈련→캠프 합류 예정
--  Prediction For The Match On January 20 Between The Teams Udinese – Milan
--  Depremde kızını kaybeden tiyatrocu Orhan Aydın CHP'nin adayına isyan etti: Lütfü Savaş'ı kabullenemiyorum
--  İmamoğlu İstanbul'u kaderine terk etti! Vahim görüntü
--  برطانیہ میں شدید برف باری، اسکول بند، لوگ گھروں تک محدود
--  Честит рожден ден на Антоанета Бонева - състезателка по спортна стрелба
--  Sanwo-Olu And Errant Soldier: No State Within A State
--  Cricket-Allen pummels Pakistan with record hundred, NZ clinch T20 series
--  Макрон пообещал Украине дальнобойные ракеты и сотни бомб
--  US, South Korea and Japan conduct naval drills as tensions deepen with North Korea
+-  ‘좌파 미디어 대응’한다는 신생 매체, 여권 곳곳 ‘연결고리’
+-  Na Charkov dopadli ruské rakety: Zasiahli obytné domy, hlásia zranených civilistov!
+-  생성형 AI로 팩트체크? 미디어 전문가들 “인간 대체 어려워”
+-  وظائف شاغرة ومدعوون للمقابلات الشخصية - أسماء
+-  الامن العام يتعامل مع حادث سير بالقرب من الجامعة الهاشمية
+-  제주 역점 추진 UAM사업에 ㈜컨텍 참여 ‘주목’
+-  Подсчитано, на сколько подорожали яйца в Карелии за год
+-  Депутат Шонус: США должны помнить, что Крым является частью ядерной державы
+-  성남산업진흥원, 31일 중소기업 지원사업 설명회 개최
+-  이천소방서, 긴급구조지원기관 능력평가 우수기관 선정
+-  오수봉 예비후보, 학부모연합회와 2차 간담회
+-  공사대금 3400만원 미지급... 공정위, 유성종합건설 법인·대표 검찰 고발
+-  여주세종문화관광재단, 가족뮤지컬 '고고다이노 - 고고킹의 귀환'
+-  경북도 ‘사랑의 온기 나눔 릴레이’
+-  ‘2023 안동관광두레 살롱’ 개최
+-  영덕소방서, 2024년 상반기 인사 발령 신고식
+-  경주시, 전국 최초 영·유아 ADHD 치료 특화도시
+-  전진선 양평군수, 홍천군수 만나 용문~홍천 철도 예타 통과 논의
+-  의성군 단촌면, 단촌역 주변 새 단장
+-  청송군, 2024년 귀농인 지원사업 신청
+-  성주군 가천면, 순회 방문·첫 이장회의
+-  जल्द ही अयोध्या धाम में 150 से 200 ई बसों को किया जा सकेगा संचालित
+-  “طب الطوارئ والدعم” يبدأ المرحلة الأولى من برنامج زيارات المناطق النائية في “الشرقية”
+-  한동훈 "김경률, '개딸 민주당 얼굴' 정청래와 마포을 대결"
+-  최강욱, '기자 명예훼손' 벌금 1천만원…1심 무죄 뒤집혀
+-  ‘신곡 발표’ 아이유, 월드투어 콘서트 개최
+-  방탄소년단 지민·정국, 17일 훈련소 수료…맏형 진과 5사단 복무
+-  영화 '내부자들' 프리퀄, OTT 시리즈로 공개…'부부의 세계' 감독 연출
+-  Чегринец раскритиковал план Бена Ходжеса по захвату Крыма
+-  충주 1호 영업사원 될 것… 이동석 후보 공약 발표
+-  Anggota polis nafi terima suapan RM2,000
+-  [과기정통부, 글로벌 R&D 1조 8167억 투입 총력전
+-  [LG화학, 두경부암 신약 임상 3상 돌입
+-  [北단체관광에 쏠린 러시아인 관심…“평양·스키장에 100명 간다”
+-  [이준석 “낙준연대는 멸칭에 가까워…‘리쌍브라더스’ 어떤가”
+-  [日노토반도 5만가구 여전히 단수 고통…“해소되려면 최소 2개월”
+-  [경실련 “현역 의원 34명 ‘자질 미달’…공천 배제하라”
+-  [신세계百 “설엔 햇 올리브유 선물하세요”
+-  [전라도 보성-경상도 하동군 차로 맺은 결연
+-  [아이브 장원영, 악성루머 유포 ‘사이버 렉카’에 1억원 손배소 승소
+-  Yolcu uçağında korku dolu anlar: Yolcu kabin görevlisinin kolunu ısırdı
+-  엘리스그룹, ‘인프라-플랫폼-콘텐츠’ 아우르는 AI 기업으로 변신
+-  पत्नी की हत्या, पति फरार, छह दिन पहले ही साथ रहने आई थी महिला
+-  Cả năm bán được 519 xe tại Việt Nam nhưng mẫu xe này bán chạy nhất Thái Lan, gấp 222 lần
+-  רס"ר (מיל') זכריה פסח הבר ורס״ם (מיל׳) יאיר כץ נפלו בקרבות בצפון הרצועה
+-  울산 초등 예비소집 불참 7명 해외 출국 "2명은 연락 안돼"
+-  '48억 횡령' 부산지법 공무원, 울산서도 8억 빼돌려
+-  تشمل الإعلام والتعدين والتعليم.. تبون يصادق على 4 مذكرات تفاهم مع تركيا
+-  كاتب: شبكات التواصل الاجتماعي أغرقتنا في بحر من السطحية والتسرع والسذاجة
+-  "الحصيني" يُحذر من حالة مطرية على هذه المناطق تستمر لعدة أيام
