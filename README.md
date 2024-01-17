@@ -1,11 +1,11 @@
 # Latest News
--  バッファロー、“置くだけ”メッシュ接続対応のWi-Fi 6Eルーター
--  BBC Breakfast unveils huge presenter shake-up as star replaced - and fans are divided
--  Kuzey Kore'den bir yılda 190 kişi kaçtı
--  Sorterar Keolis bort busschaufförer?
--  スマホを2台同時充電できるUSB Type-C充電器
--  Survivor: Συγκλονίζει η Κρίστη Καθάργια - «Κόντεψε να πεθάνει το παιδί μου»
--  W marcu zostanie utworzone Ministerstwo Przemysłu. Pojawił się projekt rozporządzenia. Czym będzie się zajmowało?
--  Cejrowski: Chcą wyeliminować Trumpa. Lisicki: Mam swoją teorię spiskową
--  Paracetamol Market to grow by USD 791.9 million from 2022 to 2027, North America accounts for 37% of market growth- Technavio
--  Premier promises change after mother allegedly stabbed to death in Adelaide
+-  VOX Solutions triumphs with quintuple awards in 2023, reinforcing its commitment to innovation and excellence
+-  "온몸이 하얀 펭귄"…남극서 돌연변이 포착(영상)
+-  Institut za jezik: Jemenski pobunjenici su hutisti
+-  ‘Jaque’ a las finanzas públicas
+-  Behind the smiling face, China has softened the language but not the stance
+-  正月1週間で最もポスト数を獲得したゲーム3傑は原神、FGO、ポケモン！
+-  Singer-designer Pharrell Williams brings Old West style to Paris
+-  بارزاني يستقبل رئيس جمهورية إستونيا في مطار أربيل
+-  LRT EPIKOJE speciali Vilniaus trumpųjų filmų programa „Europos istorijos“
+-  Behind the smiling face, China has softened the language but not the stance
