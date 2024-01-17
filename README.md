@@ -1,11 +1,11 @@
 # Latest News
--  McLaren F1 : La MCL38 sera 'une évolution innovante'
--  高さ約２０ｃｍ！昇り龍のごとく…そびえ“たつ”タレかつ丼「天にも昇るような美味しさ」【新潟・魚沼市】
--  Webb: Hefði átt að dæma víti á Ödegaard
--  British tourists heading to Spain warned of hotel swimming pool 'ban'
--  China: Ministerpräsident Li Qiang beziffert Wirtschaftswachstum mit 5,2 Prozent
--  Песков: “В переговорах о мире без участия российской стороны нет смысла”
--  Subsidio para mayores de 52 años: estos son los cambios que debes conocer
--  Воистину народный артист. К 90-летию со дня рождения Василия Ланового
--  Депутатите гласуваха промени за повече публичност на заседанията на общинските съвети
--  Cüneyt Arkın'ın miras davasında Nuri Alço tanıklık yaptı
+-  Marina Fois, son frère décédé dans un crash d'avion à 31 ans : "J'ai une image très précise en tête"
+-  Palacete tombado corre risco de desabar em SP
+-  Dükkan sahibi ile kiracı marketçi kavgası kanlı bitti! 6 kişi yaralandı
+-  Belügyminisztérium: Ha nem alkalmas rá a tanító, úgysem küldi be az igazgató a nyolcadikosokhoz
+-  Bu nazirlikdə yeni təyinatlar oldu
+-  Роспотребнадзор сообщил о росте уровня госпитализаций при COVID-19 и гриппе
+-  Is the Free World Ready for a War of Attrition Against Dictatorships?
+-  Estas son las ayudas que ofrece España a sus connacionales en Venezuela
+-  Dükkan sahibi ile kiracı marketçi kavga kanlı bitti! 6 kişi yaralandı
+-  Governo: Meloni, 'accordi di coesione strumento per superare disparità territoriali'
