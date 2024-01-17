@@ -1,11 +1,11 @@
 # Latest News
--  दिल्ली में कड़ाके की ठंड, 4 डिग्री तक पहुंचा तापमान, 120 फ्लाइट्स प्रभावित, कई ट्रेनें लेट
--  中丸雄一は尻に敷かれそう？笹崎里菜さん、日テレ入社時に「トラブル」
--  [Pick] "돈 받을 자격 없지?" 직원 월급 줬다 빼앗은 '갑질' 한의사
--  Les défis de la classification des sites archéologiques en Polynésie
--  Neviens nav pateicis, ka Ķīna ir mūsu ienaidnieks
--  Grab triển khai loạt chương trình hỗ trợ cộng đồng, tri ân đối tác dịp Tết
--  Đối thoại chiến lược quốc gia Việt Nam - Diễn đàn Kinh tế thế giới
--  Эксперт Шутов: фонарик смартфона обнаружит скрытую видеокамеру
--  이수정 교수 "김건희 여사, 선물 돌려주고 사과하면 쉽게 해결"
--  Biệt thự báo hiếu của người con Nghệ An, đi làm xa gửi hết tiền về quê xây lại nhà bố mẹ
+-  Turkmenistan's repair plant exceeds production plan
+-  뉴햄프셔주 공화 프라이머리 5가지 시나리오는?
+-  Set your spirits high at this popular gin festival in Bandra
+-  Pemkot Bukittinggi Bayar Iuran Komite, Gaji, dan THR Guru Non-PNS Tingkat SMA Sederajat
+-  Pemex aprovecha 94% del gas y reduce 18% emisiones contaminantes
+-  포경 금지 40년…우리바다에 참고래·향고래 돌아왔다
+-  조폐공사, 공공기관 채용정보 박람회 참가
+-  푸틴 "현 전황 지속되면 우크라이나 국가 지위마저 위태" 경고
+-  मुख्य द्वार से लेकर गर्भ गृह तक राम मंदिर के प्रथम दर्शन, देखिए कहां क्या स्थापित है ? | Ram Mandir | ABP News
+-  Ăn dưa, cà muối có gây ung thư?
