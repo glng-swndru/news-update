@@ -1,51 +1,11 @@
 # Latest News
--  Almanya'da beklenen olumsuz hava koşulları sonrası THY bazı seferlerini iptal etti
--  10 ilde FETÖ'cüler 'Kıskaç'a alındı: 32 şüpheli yakalandı
--  72 TİM ile 'Kahramanlar-44' operasyonu: Teröristlerin inlerini bir bir başlarına yıkıyoruz
--  Earphones – Great to Feel Comfort Listening To Music
--  В Пекине заявили о намерении продвигать процесс мирного воссоединения с Тайванем
--  'Kahramanlar' bölgede! Terör örgütü PKK'nın kış yapılanmasına ağır darbe
--  Aras Bulut İynemli'nin zor anları! Disney'e bakın neden bir şey dememiş?
--  Gold price plunges by Rs 1200 per tola on Wednesday
--  Пекин ожидает, что Вашингтон выполнит свои обещания по поводу Тайваня
--  Около 15 млн человек узнали о работе предприятий по проекту "Открой#Моспром"
--  أفضل الطرق للمساعدة على زيادة إنتاجية الموظفين
--  "الصحة": الظهور بالزي الرسمي للكادر الطبي في وسائل الإعلام "مخالف"
--  مكافأة شهرية.. رابط وطريقة التقديم في برنامج مبتدئ بالتوظيف بالصناعات العسكرية
--  Perfecting the blend of legacy and modernity
--  尹 대통령 "ISA 납입·비과세 한도 대폭 확대"
--  서울지방국세청-서울지방세무사회, 부가세 신고 간담회 개최
--  포스코그룹 회장 후보군 18명 압축…이달 말 심층면접대상 확정
--  서영교, 이재명 피습범 신상 공개 "尹 추종자 같다"
--  Australian Foreign Minister Penny Wong Provides Another $21.5 Million to Gaza
--  Check Out Popular Tamil Devotional Song 'Thai Pongal Ini Nallakalam Than' Jukebox
--  Telugu Nursery Rhymes: Kids Video Song in Telugu 'Vaccindi, Vaccindi, Sankranti Panduga Vaccindi'
--  Pakistan warns of 'serious consequences' after Iran strikes Balochi militant bases
--  Dense fog conditions affect flight services in New Delhi, multiple flights delayed
--  Did Esha Deol part ways with husband Bharat Takhtani? Viral post suggests so!
--  Krejčíková prosvištěla v Austrálii do 3. kola. Šestnáctiletá Ruska zaskočila šestku
--  "Автодор" рекомендовал отложить поездки по трассе М-12 из-за непогоды
--  Regierung ändert Schwellenwerte für Unternehmensgrößen
--  [사설] 수도권 취업 목매는 지방대졸업생 일자리정책 전면수정이 답이다
--  Niger : le PM entreprend une mission en Russie, en Serbie, en Turquie et en Iran
--  CAN 2024: le Mali maîtrise l'Afrique du Sud et remporte son premier match
--  Google to slash few hundreds’ employees from ad sales team
--  Wkrótce "mijanka"? KO tuż za PiS-em
--  Apple Vision Pro : le casque pourrait sortir en France d’ici juin 2024
--  Đây là 4 kiểu ông bố nhìn thì lười biếng nhưng thực chất lại dạy con rất tốt, mẹ cứ yên tâm, đừng vội mắng oan nhé!
--  Triệu Lộ Tư dùng gì để có da căng mướt: Toner chống oxy hóa, kem chống nắng 5 triệu vừa tốt lại thơm
--  Khởi tố gã côn đồ đâm chết phó trưởng công an phường ở TP Huế
--  Giây phút kinh hoàng: Máy bay đâm thẳng vào cột điện rồi phát nổ, phi công thiệt mạng tại chỗ
--  Ăn quá số trứng này mỗi tuần không những không có lợi mà còn gây hại thêm cho sức khỏe
--  Cuộc sống cực sang chảnh của hot girl thể dục dụng cụ Phạm Như Phương: Đeo túi hiệu, check-in du lịch nước ngoài
--  Cặp đôi "phim giả tình thật" tái hợp lần thứ 14 khiến dân tình "phát sốt", nhà gái là mỹ nhân đẹp nhất showbiz
--  Chỉ cách Sài Gòn 2-3 giờ di chuyển, 5 địa điểm này là ‘bến đỗ’ cực hút khách dịp Tết nguyên đán
--  Xưởng gỗ công nghiệp ở Hà Tĩnh bốc cháy dữ dội trong đêm
--  Mưa đá bất ngờ xuất hiện tại Lai Châu
--  Trid Minh: Mới dấn thân vào sáng tác có ngay hit 10 triệu streams, đứng sau loạt ca khúc đình đám!
--  Cao Thiên Trang trước thềm hôn lễ: Cùng chồng thử áo dài cưới, hé lộ dàn phù dâu toàn mỹ nhân Vbiz
--  한동훈의 딜레마…광폭행보 속 ‘의원정수 축소·선거법 회귀’ 선택은
--  ‘황제 노역’ 허재호 前 회장, 다시 경찰 수사선상
--  عدت میں نکاح، عمران خان اور بشریٰ بی بی کیخلاف ناجائز تعلق کا کیس ختم
--  윤석열 대통령 "증권은 국민·기업 상생의 장"
--  قانون جديد للإعلام الجديد: القديم على قِدمه
+-  ডাল অর্ডার করে পেলেন আস্ত ইঁদুর!
+-  Luka Romero, cerca de ser nuevo jugador de Boca Juniors tras no entrar en planes del Milan
+-  대구·경북 국민연금 지급액 4조 넘어…월 200만 원 이상 수급자도 964명
+-  Arsenal đón cú hích trước trận Palace
+-  Những cầu thủ được M.U cho mượn đang thể hiện ra sao?
+-  Moyes: "Các hợp đồng mới sắp được hoàn tất"
+-  ชงสรุป ป.ป.ช. “ดิจิทัลวอลเล็ต” ชี้ ไทยยังไม่วิกฤติ แนะ เลือกแจกกลุ่มเปราะบาง
+-  Italy's regulations on charities keep migrant rescue ships from the Mediterranean
+-  Гладков о нападении подростков на прохожих в Белгороде: нужно реагировать жёстко
+-  پشاور میں فائرنگ سے پولیس اہل کار جاں بحق، ایک زخمی
