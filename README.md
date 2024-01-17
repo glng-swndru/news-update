@@ -1,11 +1,11 @@
 # Latest News
--  В правительстве отметили удвоение цифровой зрелости экономики России за пять лет
--  Има опасност да бъде ампутирана и ръката на блъсната от автобус в София
--  Fantacalcio: i migliori portieri nelle ultime 5 giornate
--  Darıca’ya 27 yaşında teknik direktör geldi
--  Kronos Quartet'ten İş Sanat'ta dünya prömiyeri
--  La depuradora de Andorra será el banco de pruebas para aplicar tecnologías avanzadas en la reducción de lodos
--  그루비룸(GroovyRoom), 선공개곡 ‘Yes or No’ 발매
--  7 yaşındaki Miraç Miroğlu'nu ezen zırhlı aracın sürücüsü polis beraat etti
--  Legislativas ’24 / AD: Ângela Almeida é candidata a deputada com “orgulho e determinação”
--  Naljutite se dok igrate društvene igre? Evo kakav ste tip osobe!
+-  Previsioni Charles Schwab: cosa dicono gli analisti
+-  Scandal-hit giant of sumo Hidetoshi Tanaka leaves a complicated legacy
+-  El superalimento que te ayudará a dormir mejor mientras fortalece el corazón y el cerebro
+-  PHRI Jabar Protes Kebijakan Pemerintah Menaikan Pajak Barang dan Jasa
+-  Judith Rakers hört als „Tagesschau“-Sprecherin auf und kündigt Kinderbuch an
+-  Turnier-Termine: Handball-EM im TV und Stream – hier sehen Sie die Partien live
+-  De Ketelaere Atalanta, il riscatto è sempre più vicino: quanto può incassare il Milan
+-  Hacienda advierte: hasta 2.500 euros de multa por pagar con dinero en efectivo
+-  Non-Muscle-Invasive Bladder Cancer Market Size to Surpass US$ 5.5 billion by 2031 - Growth Plus Reports
+-  Joanna Kluzik-Rostkowska kąśliwie o Romie Wąsik i Barbarze Kamińskiej: "W więzieniach siedzi jakieś 68 tys. mężów różnych żon"
