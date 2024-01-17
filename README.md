@@ -1,11 +1,11 @@
 # Latest News
--  PT dá aval a filiação de Marta e rejeita prévias para escolha de vice de Boulos
--  Gamers could face irreversible hearing loss, study warns
--  Global Grid Equipment Market Key Growth Opportunities - Leveraging Technology and Optimizing Cost on the Factory Floor
--  Georges River Council's Australia Day Awards and picnic
--  El uruguayo Neves es el sexto refuerzo de Independiente y se sumará al plantel de Carlos Tevez
--  Jön az "X-betegség" - az új világjárvány 20-szor több halálesetet hozhat, mint a Covid
--  Gobierno ta gaba c’un surplus pa 2024 mientras pueblo ta sufri
--  Corinthians goleia o CRB e está nas quartas de final da Copa São Paulo de Juniores
--  平野紫耀、岩田剛典の姿も パリ・メンズファッションウィーク開幕
--  Notley resignation: Alberta NDP leader says 'no intention' of running for the party federally
+-  Motociclista atinge caçamba de carreta estacionada e morre na hora em Sinop
+-  Fan sorprende a Brincos Dieras con emotivo regalo; así reaccionó el comediante: "Es un arte"
+-  الكريكيت يوقع شراكة مع «نسيم الربيع الطبي»
+-  تقرير: تدخين التبغ يتراجع تدريجيًّا على مستوى العالم
+-  New Zealand firms more upbeat as signs inflation could ease
+-  شركة قطر للسيارات تتسلم جائزة «أفضل مركبة رياضية متعدد المهام متوسطة الحجم»
+-  خسارة مفاجئة لتونس.. المغرب يستهل مشواره بمواجهة تنزانيا
+-  Klage abgewiesen: EU-Politikerin droht Verlust der Immunität
+-  Klage abgewiesen: EU-Politikerin droht Verlust der Immunität
+-  කුසල් – පැතුම් – ධනංජය – කමිදු – රමේෂ්ට නායකත්වය දෙමින් එන්.එස්.එල්. ඇරැඹේ
