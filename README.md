@@ -1,11 +1,11 @@
 # Latest News
--  Explosion: Ex-AGF House Affected as Ex-Deputy Gov Oladokun, Others Displaced
--  Aircraft Interior Plastics Market to Grow 4.85% CAGR through to 2029 | TechSci Research
--  Aircraft Cabin Interior Market Analyzing Global Trends, Growth Factors, and Future Projections By 2024-2031 | Aviointeriors S.p.A., Factorydesign, B/E Aerospace
--  Foley Catheters Market - Porter's Five Forces Strategy Analysis and Forecast 2031 | Medline Industries, Inc., B. Braun Melsungen AG, Create Medic Co. Ltd
--  Retik Finance, Bonk Soar Despite Market Downturn, Seen As Must-buy Tokens For Post-Halving Gains
--  GMR Hyderabad International Airport, Lufthansa Commence Direct Flights To Frankfurt
--  Unlocking Career Potentials: Job Opportunities and Placements after Great Learning’s PG Program in Cyber Security
--  Inflation rise renews fears of ‘completely unacceptable’ broadband price hikes
--  Ministry to operationalize the Alternative Dispute Resolution Mechanism (ADR)
--  Kikuyu police station needs a facelift, Nyumba Kumi
+-  “LDF, UDF have history of scams, BJP has track record of fast-paced development”: PM Modi in Kerala
+-  “Lost in world of thesaurus”: Scindia hits back at Tharoor over criticism on Delhi airport chaos; debunks claims
+-  “NITI Aayog is the drumbeater of PM Modi…” Congress’ Jairam Ramesh after poverty report
+-  US Winter Storm: Millions face below-zero temperature, 14 dead
+-  Neerja - Ek Nahi Pehchaan: Neerja Unveils Didun and Trisha's Sinister Plan
+-  Weight loss influencer, Mila De Jesus, passes away at 35
+-  Ahead of 'Fighter' release, Deepika Padukone praises Vikrant Massey's '12th Fail': 'Congratulations to...'
+-  Israel kills Nablus terror leader Abdullah Abu Shalal
+-  State commissions training facility for women’s prison
+-  Hit your 2024 exercise goals with these VR fitness apps and games
