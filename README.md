@@ -1,51 +1,51 @@
 # Latest News
--  Kuranyi glaubt an erfolgreiche VfB-Saison
--  Unfall auf der A 72 bei Hartenstein: Autobahn am Mittwochfrüh voll gesperrt
--  Rode Kruis zoekt 1250 nieuwe vrijwilligers voor evenementen
--  جيش الاحتلال يعلن ارتفاع حصيلة قتلاه إلى 525
--  شهداء بقصف مسيرة لمركبة قرب مخيم بلاطة - فيديو
--  İçişleri Bakanı Ali Yerlikaya duyurdu: 10 ilde FETÖ'ye operasyon! 32 şüpheli yakalandı
--  Иран ударил ракетами по Пакистану. Мотив?
--  उद्धव ठाकरे ने विधानसभा स्पीकर राहुल नार्वेकर और बीजेपी पर जमकर निकाली भड़ास
--  최태원 "큰 시장 다 쪼개져…작은 시장 새로 개척해야"
--  '카지노 입장료' 8400만원 훔치고 들키자…강원랜드 직원 극단적 선택 시도
--  5 delicious ways to include fibre in your winter diet
--  Сегодня утром в 1-м микрорайоне Йошкар-Олы не будет электричества
--  "사비, 이제 상대를 축하하는 법을 배워라"…참스승 펩의 조언, 경질설에 대해서는 "바르샤는 섣부른 결정 내리지 말라!" 경고
--  '지금 생각해도 말도 안 되는 골이었다'→손흥민 번리전 원더골, 역대 푸스카스상 TOP3 선정
--  호텔업계, 팬심 겨냥 콘텐츠 총력전
--  최태원 대한상의 회장과 기념촬여하는 안덕근 산업통상자원부 장관
--  Парламентда атмосфера ҳавосини муҳофаза қилиш масаласи муҳокама қилинди
--  Фирузжа билан дурангга эришган Абдусатторов эртага хитойлик шахматчи билан куч синашади
--  Боксчи қизларимиз Сербияда ғалабали одимламоқда
--  Илмий-ижодий танловлар ғолиблари бўлган прокуратура ходимлари тақдирланди
--  دراسة تحذر من مشروبات شائعة: تزيد خطر الأفكار الانتحارية لدى الأطفال والشباب
--  Судьялар корпуси: айрим туман судларининг раислари ўзгарди
--  ศาล รธน.เริ่มแล้ว! ประชุมลงมติ ‘ศักดิ์สยาม’ ถือหุ้นบุรีเจริญ ก่อนอ่านคำวินิจฉัยบ่ายนี้
--  최태원 회장과 악수하는 안덕근 산업통상자원부 장관
--  ‘อนุทิน’ชี้ต้องฟังป.ป.ช.ปม‘ดิจิทัลวอลเล็ต’ เชื่อไม่มีใครคิดนโยบายมาเพื่อทุจริต
--  سلطة الروسية بالكالامارياليوم الأربعاء، 17 يناير 2024 06:25 صـ منذ ساعة 1 دقيقة
--  خبز بحبة البركة و السمسماليوم الأربعاء، 17 يناير 2024 06:28 صـ منذ 58 دقيقة
--  شوربة الشوفان بكريمة الذرةاليوم الأربعاء، 17 يناير 2024 06:24 صـ منذ ساعة 2 دقيقتان
--  اسرائیلی فوج کے وحشیانہ حملے،ایک ہی خاندان کے 12 افراد شہید
--  Meteoroloji açıkladı: 17 Ocak 2024 hava durumu raporu... Bugün hava nasıl olacak? İşte il il hava durumu...
--  Griezmann: "Tôi may mắn khi trở thành chân sút vĩ đại nhất Atletico"
--  최태원 대한상의 회장과 악수하는 안덕근 산업통상자원부장관
--  Sydney model’s defiant TikTok rant not to renew mandatory teaching accreditation
--  Baba Mahakal: श्री गणेश स्वरूप में सजे बाबा महाकाल; शृंगार में सिर पर पगड़ी, गले में पहनाई गई मेवों की माला
--  [ŽT] Pykčio priepuolis. „Galbūt jis turėjo eiti į kovas be taisyklių.“ Kas nutiko Zacharovai
--  Garsus ukrainietis išvyko kovoti už okupantus. „Noriu perduoti linkėjimus“ (Video)
--  Mirštanti Saulė nužudys mus visus, bet tai dar ne pabaiga. Žemė gaus antrą šansą. Kaip?
--  В Пятигорске пешеход сломал ногу в ДТП с иномаркой
--  Man’s body found after car became bogged in Outback Queensland
--  Se quedó sin frenos y se volcó
--  Great Hanshin Earthquake Victims Remembered 29 Years on; Prayers also Offered for Noto Peninsula Earthquake Victims
--  [인사]공정거래위원회
--  В уссурийской гостинице задержали мужчину с пистолетом
--  मनोज जरांगे का अल्टिमेटम; दो दिनों में 54 लाख मराठों को कुनबी जाति प्रमाण पत्र जारी करे महाराष्ट्र सरकार
--  "บดินทร์" พอใจ "ช้างศึก" คว้าชัยครั้งแรก "เอเชียนคัพ รอบสุดท้าย"
--  คดี "ป้าบัวผัน" สังคมออนไลน์จี้แก้เกณฑ์อายุเด็กรับโทษ
--  아이티센, 일본 디지털자산·STO 시장 본격 진출
--  New Zealand defeated Pakistan in the third T20I and took a decisive lead
--  구글, 계속되는 감원 칼바람…광고팀도 수백명 해고
--  위메이드, 내달 1일 '나이트 크로우' 원스토어 출시…"사전 예약 진행 중"
+-  Almanya'da beklenen olumsuz hava koşulları sonrası THY bazı seferlerini iptal etti
+-  10 ilde FETÖ'cüler 'Kıskaç'a alındı: 32 şüpheli yakalandı
+-  72 TİM ile 'Kahramanlar-44' operasyonu: Teröristlerin inlerini bir bir başlarına yıkıyoruz
+-  Earphones – Great to Feel Comfort Listening To Music
+-  В Пекине заявили о намерении продвигать процесс мирного воссоединения с Тайванем
+-  'Kahramanlar' bölgede! Terör örgütü PKK'nın kış yapılanmasına ağır darbe
+-  Aras Bulut İynemli'nin zor anları! Disney'e bakın neden bir şey dememiş?
+-  Gold price plunges by Rs 1200 per tola on Wednesday
+-  Пекин ожидает, что Вашингтон выполнит свои обещания по поводу Тайваня
+-  Около 15 млн человек узнали о работе предприятий по проекту "Открой#Моспром"
+-  أفضل الطرق للمساعدة على زيادة إنتاجية الموظفين
+-  "الصحة": الظهور بالزي الرسمي للكادر الطبي في وسائل الإعلام "مخالف"
+-  مكافأة شهرية.. رابط وطريقة التقديم في برنامج مبتدئ بالتوظيف بالصناعات العسكرية
+-  Perfecting the blend of legacy and modernity
+-  尹 대통령 "ISA 납입·비과세 한도 대폭 확대"
+-  서울지방국세청-서울지방세무사회, 부가세 신고 간담회 개최
+-  포스코그룹 회장 후보군 18명 압축…이달 말 심층면접대상 확정
+-  서영교, 이재명 피습범 신상 공개 "尹 추종자 같다"
+-  Australian Foreign Minister Penny Wong Provides Another $21.5 Million to Gaza
+-  Check Out Popular Tamil Devotional Song 'Thai Pongal Ini Nallakalam Than' Jukebox
+-  Telugu Nursery Rhymes: Kids Video Song in Telugu 'Vaccindi, Vaccindi, Sankranti Panduga Vaccindi'
+-  Pakistan warns of 'serious consequences' after Iran strikes Balochi militant bases
+-  Dense fog conditions affect flight services in New Delhi, multiple flights delayed
+-  Did Esha Deol part ways with husband Bharat Takhtani? Viral post suggests so!
+-  Krejčíková prosvištěla v Austrálii do 3. kola. Šestnáctiletá Ruska zaskočila šestku
+-  "Автодор" рекомендовал отложить поездки по трассе М-12 из-за непогоды
+-  Regierung ändert Schwellenwerte für Unternehmensgrößen
+-  [사설] 수도권 취업 목매는 지방대졸업생 일자리정책 전면수정이 답이다
+-  Niger : le PM entreprend une mission en Russie, en Serbie, en Turquie et en Iran
+-  CAN 2024: le Mali maîtrise l'Afrique du Sud et remporte son premier match
+-  Google to slash few hundreds’ employees from ad sales team
+-  Wkrótce "mijanka"? KO tuż za PiS-em
+-  Apple Vision Pro : le casque pourrait sortir en France d’ici juin 2024
+-  Đây là 4 kiểu ông bố nhìn thì lười biếng nhưng thực chất lại dạy con rất tốt, mẹ cứ yên tâm, đừng vội mắng oan nhé!
+-  Triệu Lộ Tư dùng gì để có da căng mướt: Toner chống oxy hóa, kem chống nắng 5 triệu vừa tốt lại thơm
+-  Khởi tố gã côn đồ đâm chết phó trưởng công an phường ở TP Huế
+-  Giây phút kinh hoàng: Máy bay đâm thẳng vào cột điện rồi phát nổ, phi công thiệt mạng tại chỗ
+-  Ăn quá số trứng này mỗi tuần không những không có lợi mà còn gây hại thêm cho sức khỏe
+-  Cuộc sống cực sang chảnh của hot girl thể dục dụng cụ Phạm Như Phương: Đeo túi hiệu, check-in du lịch nước ngoài
+-  Cặp đôi "phim giả tình thật" tái hợp lần thứ 14 khiến dân tình "phát sốt", nhà gái là mỹ nhân đẹp nhất showbiz
+-  Chỉ cách Sài Gòn 2-3 giờ di chuyển, 5 địa điểm này là ‘bến đỗ’ cực hút khách dịp Tết nguyên đán
+-  Xưởng gỗ công nghiệp ở Hà Tĩnh bốc cháy dữ dội trong đêm
+-  Mưa đá bất ngờ xuất hiện tại Lai Châu
+-  Trid Minh: Mới dấn thân vào sáng tác có ngay hit 10 triệu streams, đứng sau loạt ca khúc đình đám!
+-  Cao Thiên Trang trước thềm hôn lễ: Cùng chồng thử áo dài cưới, hé lộ dàn phù dâu toàn mỹ nhân Vbiz
+-  한동훈의 딜레마…광폭행보 속 ‘의원정수 축소·선거법 회귀’ 선택은
+-  ‘황제 노역’ 허재호 前 회장, 다시 경찰 수사선상
+-  عدت میں نکاح، عمران خان اور بشریٰ بی بی کیخلاف ناجائز تعلق کا کیس ختم
+-  윤석열 대통령 "증권은 국민·기업 상생의 장"
+-  قانون جديد للإعلام الجديد: القديم على قِدمه
