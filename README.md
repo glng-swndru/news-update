@@ -1,51 +1,11 @@
 # Latest News
--  [따뜻한 진료실] 요추의 최소 침습 유합술, 사측방 요추 추체간 유합술
--  [의학칼럼] 의학유전학-10
--  [삼촌설] 국회의원 정수 축소
--  [사설] 국회, '고준위 방폐물 특별법' 처리 직무유기
--  양기대 의원 “소하문화공원 조성사업, 국토부 사전심의 승인”
--  صيدلي في بريطانيا يحذر كتائب القسام من خطر استلام الأدوية القادمة الى الأسرى .. تفاصيل
--  Ocon craint que la nouvelle Alpine F1 A524 ne soit 'un peu lente'
--  Huuhkajien pelaajaa viedään Pohjois-Amerikkaan
--  6 nguyên tắc cần có để nhanh nhẹn trong chiến lược
--  Arda Turan Fenerbahçe'nin yıldızını transfer ediyor
--  '외부 영입+집토끼 단속 모두 성공' 삼성, 강한울과 '1+1년 최대 3억원' FA 계약
--  'Here We Go' 홍현석 팀 동료 FW, 빅리그 입성 근접...행선지는 리그앙 올림피크 리옹
--  [오피셜] 안양, 천안시티 미드필더 이민수 영입… “역사 있는 팀 입단 영광”
--  Trotz „wachsender Dynamik“: Habeck mahnt Länder und Kommunen zu mehr Tempo bei Windenergie-Ausbau
--  Vasile Stângă ”a desființat” prestația României la EURO de handbal masculin
--  Aksaray’da taşlı yumruklu 'yol verme' kavgası: 3 yaralı
--  İzmir’de yangın faciası: 1 ölü, 3 ağır yaralı
--  Guterres upozorio na opasnost od širenja sukoba u Gazi
--  Dodikov advokat: Odbrana zatražila odgađanje današnjeg ročišta, Lukić u bolnici
--  Preventivni pregledi u školama ZDK - Osnovci najviše problema imaju sa težinom, stopalima i kičmom
--  동아에스티, 공정거래 자율준수 강화 프로그램 선포식 개최
--  Transfery - Relacja na żywo [17/01/2024]
--  Olympique Marsylia z ofertą za błyskotliwego skrzydłowego
--  Świeżo upieczony reprezentant Włoch naciska na transfer do Milanu. Wysokie żądania w Turynie
--  Menús escolares sin fruta, ensaladas incompletas y con las monitoras del comedor sin cobrar
--  Menús escolares sin fruta, ensaladas incompletas y con las monitoras del comedor sin cobrar
--  Benfica sprowadziła następcę Álexa Grimaldo. Bogate CV [OFICJALNIE]
--  Wolverhampton Wanderers chętnie odbuduje piłkarza Chelsea. U Mauricio Pochettino wykazuje się niemocą
--  للعام الثاني.. انخفاض عدد سكان الصين يثير المخاوف
--  LX공사, 620개 사업지구 '지적재조사' 민간대행자 모집
--  Chanel: "Los que me pusieron piedras en el camino me han ayudado a sacar mi mejor versión"
--  معاناة الطفولة المبكرة.. تدفع الأطفال للتكيف مع الظروف القاسية
--  안양시, 올해도 다양한 취업지원 나서…고용률 높이기 ‘총력’
--  하나은행, ‘2023년 상생·협력 증진 우수기관’ 선정...금감원장상 수상
--  aT, 겨울무 수급안정 위해 정부수매 추진!
--  충주시, 축·수산 분야 보조사업 신청접수
--  '황야' 제작보고회에서 만난 마동석, “다양한 무기 활용한 액션을 선보일 것”
--  „Farbowany lis” zadebiutuje w reprezentacji Polski? Michał Probierz może go powołać
--  शरद पवारांचा सोलापूर दौरा, 19 जानेवारीला मंगळवेढ्यात शेतकऱ्यांना करणार मार्गदर्शन
--  Israël claimt terreurcel op Westelijke Jordaanoever te hebben uitgeschakeld
--  В Стамбуле почтят память журналиста-армянина
--  Генсек ООН о завершении кризиса в Газе
--  Здоровые сотрудники – продуктивные сотрудники
--  Президент Польши: Война в Украине не закончится, пока…
--  В Экономическом университете объявлен «Год зеленого UNEC»
--  TƏBİB о состоянии пострадавших при взрыве в Баку
--  Supermarkten draaien recordomzet dankzij hogere prijzen
--  Медведев: Существование Украины и фатально для украинцев
--  [해설] 기초자치단체 도입시 제주도의원 정원 감축 불가피
--  Ботев има нов нападател! Врачанин, вкарал три гола на Локо, ще радва феновете на "Колежа"
+-  Soccerladuma | Chiefs & Pirates Overtaken By Al Hilal For Foreign Target?
+-  Kickoff | Chiefs development product: The story behind my number
+-  Seat-Sharing Deal In INDIA Bloc Will Take Time, Says RJD Supremo Lalu Yadav
+-  IPS Success Story: Against All Odds, IPS N. Ambika`s Journey From Child Marriage To IPS Officer With Two Kids At 18
+-  원스토어, 인앱광고 수익화 플랫폼 ‘원애드맥스’ 베타 출시
+-  김준형 포스코퓨처엠 “해외 저가 음극재로 어려움 커”…강경성 차관 “지원 안 아낀다” [소부장박대리]
+-  아이티센, 일본 디지털자산·STO 시장 본격 진출
+-  교육 넘어 인프라까지… 엘리스그룹 “‘AI 컴퓨팅 제공 기업으로 확장”
+-  오에스씨, 캐노니컬과 파트너십…우분투 프로 고객지원 확대
+-  대학생 3인이 개발한 스타트업 옵티마이저AI, 미국 VC 10억원 투자 유치
