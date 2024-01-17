@@ -1,11 +1,11 @@
 # Latest News
--  Zygmunt Solorz-Żak przyszedł na świat pod INNYM NAZWISKIEM. Jak kiedyś nazywał się założyciel Polsatu?
--  Data Integration Market Statistics, Size, Trends, Share, Competitive Landscape Analysis
--  $167,000 lost to online scams through fake Facebook, Instagram ads since September 2023: Police
--  Northern Ireland weather: Disruption expected with ice warning
--  Canada Cracks Down on China, Russia, Iran Research Partnerships - Bloomberg
--  VUČIĆ DANAS SA LAJČAKOM O KiM: Sastanak na marginama svetskog skupa u Davosu
--  Découvrez si votre commune va être recensée en 2024
--  Григорова: С 30% трябва да скочат заплатите в градския транспорт
--  Açık kalp ameliyatı yerine 30 dakikalık operasyonla sağlığına kavuştu
--  Cắm 1 thứ vào đất, cả điện lẫn mạng không bao giờ tắt - "Động cơ vĩnh cửu" có thật?
+-  バッファロー、“置くだけ”メッシュ接続対応のWi-Fi 6Eルーター
+-  BBC Breakfast unveils huge presenter shake-up as star replaced - and fans are divided
+-  Kuzey Kore'den bir yılda 190 kişi kaçtı
+-  Sorterar Keolis bort busschaufförer?
+-  スマホを2台同時充電できるUSB Type-C充電器
+-  Survivor: Συγκλονίζει η Κρίστη Καθάργια - «Κόντεψε να πεθάνει το παιδί μου»
+-  W marcu zostanie utworzone Ministerstwo Przemysłu. Pojawił się projekt rozporządzenia. Czym będzie się zajmowało?
+-  Cejrowski: Chcą wyeliminować Trumpa. Lisicki: Mam swoją teorię spiskową
+-  Paracetamol Market to grow by USD 791.9 million from 2022 to 2027, North America accounts for 37% of market growth- Technavio
+-  Premier promises change after mother allegedly stabbed to death in Adelaide
