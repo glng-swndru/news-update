@@ -1,11 +1,11 @@
 # Latest News
--  กกต. แจงยิบ สั่งฟันคดีอาญา-เพิกถอนสิทธิเลือกตั้ง “เกศกานดา” ปมซื้อเสียง
--  Na D8 u Veltrus havaroval kamion převážející zvířata. Provoz obousměrně stojí
--  Bomba! Bora dogovarja prihod enega Rogličevih največjih rivalov
--  مبابي يربك إدارة ريال مدريد
--  Hilfe von Shark-Tank-Juror: Leidenschaft finden um so Karriere zu machen
--  Makron Kiyevə bu plan üçün gedir: Vəd və silah
--  French President Emmanuel Macron uses broad news conference to show his leadership hasn't faded
--  "Ce ne fut qu'un rendez-vous avec lui-même", énième et interminable bavardage"... les principales réactions à la conférence de presse d'Emmanuel Macron
--  Nhìn 4 cốc trà sữa tôi mang về, em chồng đỏ bừng mặt nhưng vẫn chê tôi bao đồng
--  Một mặt hàng của Nga được Trung Quốc nhập khẩu hơn 560 triệu tấn, phục vụ nhu cầu “cấp bách”
+-  Виетнамците живеят бързо, модерно, задружно и все по-богато
+-  ‘하늘로 굿샷’김하늘, 프레인글로벌 스포티즌과 매니지먼트 계약
+-  ASMIN PRIJAVIO ANELINE RODITELJE POLICIJI Tvrdi da dete drže bez njegove saglasnosti: "Ovo je propast, ćerka MORA DA NAPUSTI DRŽAVU"
+-  I Oslo-skolen strammer vi nå inn skjermbruken
+-  Urlop opiekuńczy. Aż 5 dodatkowych dni wolnego w ciągu roku
+-  ਹਰ ਵੇਲੇ ਕਨ੍ਹਈਆ ਗਾਉਂਦੇ ਨੇ ਇਹ ਭਜਨ
+-  Ram Katha: क्या आप जानते हैं, रावण को हराने के बाद रामजी फिर से गए थे अयोध्या और सीता जी ने भी उठाए थे शस्त्र
+-  PUJA POR LA MAÑANA EUROPA-Los datos chinos se desploman y se suman al clima de aversión al riesgo
+-  르세라핌, 美 ‘코첼라’ 출연...韓 가수 중 데뷔 후 최단기간 단독 무대 입성
+-  T-Mobile Is Going Back to $60 Per Month Pricing for Home Internet Service - CNET
