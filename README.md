@@ -1,11 +1,11 @@
 # Latest News
--  Turkmenistan's repair plant exceeds production plan
--  뉴햄프셔주 공화 프라이머리 5가지 시나리오는?
--  Set your spirits high at this popular gin festival in Bandra
--  Pemkot Bukittinggi Bayar Iuran Komite, Gaji, dan THR Guru Non-PNS Tingkat SMA Sederajat
--  Pemex aprovecha 94% del gas y reduce 18% emisiones contaminantes
--  포경 금지 40년…우리바다에 참고래·향고래 돌아왔다
--  조폐공사, 공공기관 채용정보 박람회 참가
--  푸틴 "현 전황 지속되면 우크라이나 국가 지위마저 위태" 경고
--  मुख्य द्वार से लेकर गर्भ गृह तक राम मंदिर के प्रथम दर्शन, देखिए कहां क्या स्थापित है ? | Ram Mandir | ABP News
--  Ăn dưa, cà muối có gây ung thư?
+-  Home insurance costs rising at twice the rate of general inflation
+-  Today’s Wordle Hints (and Answer) for Wednesday, January 17, 2024
+-  HSV-Trainer: Walter im Club der 100: "Alles erlebt, was passieren kann"
+-  Zweite Bundesliga: St. Paulis Umgang mit den Härtefällen. Was wird aus Vasilj?
+-  Britain might think fondly of its empire but here’s why the world remembers it with anger
+-  Accountancy bodies plan amalgamation to create ‘stronger voice’ for 37,000 members
+-  Einzelhandel: Leerstand-Manager: Die Rettung für verödende Innenstädte?
+-  墨汁浸す髪、丸見えの舞台袖 「暗い時代こそ」笑顔生む命の女将劇場
+-  ‘A great steaming turd of a television programme.’ LOL: Ireland is a cringe-fest where comedy goes to die
+-  검찰 "구급 · 구조 중대 방해 적극 구속수사…중형 구형할 것"
