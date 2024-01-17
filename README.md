@@ -1,11 +1,11 @@
 # Latest News
--  '역시 GOAT' 메시, FIFA 월드 베스트 11 최다 선정 선수로 등극
--  Servisne informacije: [17. siječnja 2024.]
--  Caner Erdeniz kızı hakkında konuştu
--  방탄소년단 지민·정국, 오늘 훈련소 수료식…진과 함께 5사단 배치
--  Assistant with Bard on Android may be simply called Bard
--  Australian Open Highlights: Pavel Kotov v Flavio Cobolli
--  Australian Open Highlights: Pavel Kotov v Flavio Cobolli
--  한국 솔가, 해외직구 플랫폼 '블루존' 론칭…새해맞이 이벤트
--  Depremde kızını kaybeden Orhan Aydın’dan ‘Lütfü Savaş’ tepkisi: Kabullenemiyorum
--  Rakshanda Khan, Chetan Hansraj join historical romantic drama `Pracchand Ashok`
+-  벤큐, ‘제21회 대한민국 교육박람회’에 2024년형 구글 인증 전자칠판 선봬
+-  다크플래쉬, 스테디셀러 케이스 DLX21 MESH 3차 업그레이드 및 가격 인하
+-  Politie stuit op explosief materiaal in auto: tankstation en parkeerplaats urenlang afgesloten
+-  จับคนรวมบัญชีม้าส่งข้ามชายแดน พบเป็นแก๊งอ้างกรมที่ดิน
+-  Rusya'dan Ukrayna'ya saldırı! Yine siviller hedef alındı
+-  Osmaniye'de 3.2'lik deprem!
+-  Mračna predviđanja znanstvenika: Svijet će uskoro izgledati potpuno drugačije, pojavit će se tisuće gradova duhova
+-  Winnaars mascotte prijsvraag Winkelcentrum Walburg
+-  אוניברסיטת בר אילן חושפת: זו התוכנית שתעניק קריירה בטוחה לסטודנטים
+-  אייל גולן מתרגש: "זה אחד הדברים הכי חשובים בחיים שלנו"
