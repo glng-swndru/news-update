@@ -1,11 +1,11 @@
 # Latest News
--  Landmaschinen von John Deere sollen per Starlink ins Internet kommen
--  Leute von heute: Basketballstar Isaiah Hartenstein bekommt ein Baby mit der ehemaligen Miss Texas
--  Velika srpska svetinja uklesena u steni: Mnoga deca progovorila nakon što bi u njoj prenoćila
--  Nhật Kim Anh cùng Laura Coffee nhận vinh danh tại Thương hiệu mạnh Quốc gia 2024
--  Landmaschinen von John Deere sollen per Starlink ins Internet kommen
--  Dàn nhạc giao hưởng SSO sẽ có chương trình hòa nhạc mùa xuân tại Nhà Hát Hồ Gươm
--  Özel sektörün yurt dışı kredi borcu arttı
--  Hrvatska seli u dvoranu o kojoj Nijemci pričaju sa sjajem u očima: "To je rukometna meka"
--  Ankara’nın çoğu bilmiyor ama her şeyin en ucuzu orada! Fiyatı gören pazardan çıkamıyor: Gitmeyen pişman olur
--  Warhammer 40,000 Warpforge codes (January 2024)
+-  Cártel farmacéutico, una batalla sexenal
+-  Romania international shares what Tottenham Hotspur new boy Radu Dragusin is like in training
+-  Djalo Juve, perchè il portoghese non è ancora arrivato? Ecco cosa succede
+-  Interview mit Frank Helmenstein: „Jetzt geht es in der Tat ans Eingemachte in Gummersbach“
+-  冷えてないのに冷たい、とは？ 温感のVRで「オーロラ観光気分も」
+-  Platz zum Bleiben - Wienerwaldtierheim: Diese Tiere suchen neues Zuhause!
+-  ¡Pisa el freno! Hoy No Circula miércoles en CDMX y Edomex
+-  Storie dimenticate: La Vigna di Leonardo da Vinci a Milano
+-  Los volúmenes de los ETFs de Bitcoin alcanzan los 10.000M$
+-  The science behind Chinese New Year's calendar
