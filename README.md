@@ -1,11 +1,11 @@
 # Latest News
--  3 Bentuk Intimidasi Menjelang Kampanye Anies di Bone
--  Франция планира доставка на десетки ракети и стотици бомби за Украйна - Труд
--  Hünnap meyvesinin faydaları ve zararları: Hünnap meyvesi nerede yetişir?
--  국힘 4·5선 중진 만난 한동훈 "대부분 시스템 공천 잘했다 해"
--  Türk damadı nikah masasından alıp sınır dışı ettiler
--  Se apropie sfârșitul mașinilor electrice? Ce se ascunde în spatele deciziilor Hertz și Spark, care au dat apă la moara anti-EV
--  Galatasaray'a Sırp golcü: Luka Jovic!
--  Mi-8 military helicopter crashed on Bishkek outskirts
--  Ето кои са най-страстните любовници сред зодиите
--  Vụ đấu giá đất hơn 4 tỉ đồng/m2: Do căng thẳng nên trả giá nhầm?
+-  楊聰財／選舉體驗人生 結交真心好友 創造健康人生
+-  Luna a intrat într-o nouă eră. Ce este Antropocenul lunar
+-  СЗО: Европа може да стане лидер в пушенето до 2030 г.
+-  "Почему я плачу за бесплатные анализы?": жители Литвы возмущены тем, что каждый второй анализ - платный
+-  英美籍船走紅海最危險傳保險公司避承保 保費漲了75倍
+-  Sprookje ten einde: Jesper de Jong uitgeschakeld op Australian Open
+-  Pläne im Strohgäu: Windräder fest im Blick
+-  Лідерка «Слуги народу» відреагувала на поведінку соратників-лобістів Московської церкви у парламенті
+-  Pläne im Strohgäu: Windräder fest im Blick
+-  Geweld tegen kerken en christelijke scholen wordt erger
