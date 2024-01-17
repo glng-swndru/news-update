@@ -1,11 +1,11 @@
 # Latest News
--  موعد نتيجة اختبار القدرات العامة الورقي.. التفاصيل ورابط الاستعلام
--  Vecinos y choferes dudan de “peaje social” que plantea Gobierno ante alza de tarifa
--  The Big Gigs: 10 best concerts to see in the Twin Cities this week
--  한동훈 “누가 죽여? 그 정도면 망상”…당정, 다시 이재명 옥죄기
--  Diablo 4 Season of the Construct Will Bring New Quests, Vaults to PS5, PS4
--  Motorcyclist, 27, dies in accident along BKE
--  Καταβολή δώρου Χριστουγέννων μετά από παρέμβαση της Επιθεώρησης Εργασίας
--  Playing The Long Game: AI’s Role In Sustainability
--  Nga hứng đòn tấn công dữ dội của 69 máy bay không người lái Ukraine, hàng chục tên lửa HIMARS
--  «Wenn wir helfen können, ist das gut»: Nun wird geprüft, ob die Feuerwehr der Stadt Solothurn künftig anderen Gemeinden unter die Arme greift
+-  Two-year-old baby starves to death in UK
+-  鹿児島市の百貨店で「大新潟展」能登半島地震被災地支援の義援金箱も
+-  몸통보다 긴 폐그물 걸린 채 '첨벙'…위태로운 돌고래
+-  Fluoropolymer Materials Market Set for Notable Growth, Expected to Reach 442.79 Kilotons by 2028, BCC Research Reports
+-  La provincia de Teruel cuenta con 464 viviendas de uso turístico registradas, que ofrecen 1.167 plazas
+-  Ica: reclaman falta de agua por dos semanas en el asentamiento humano Los Algarrobos
+-  Índice da bolsa de valores brasileira registra baixa
+-  Saudi Arabia, OECD sign MoU to enhance public policy cooperation
+-  В МТС прокомментировали коллективный иск из-за «голой вечеринки»
+-  Taylor Morrison Announces Date for Fourth Quarter 2023 Earnings Release and Webcast Conference Call
