@@ -1,51 +1,51 @@
 # Latest News
--  홍익표, 尹 중대재해법 유예 요청에 “사람보다 돈이 더 중요한가”
--  대구 서구의회, 일정·계획서 공지없이 제주도행 '빈축'
--  尹대통령 "ISA 납입 대상·비과세 한도 대폭 확대"
--  सङ्‍घीयतामा निजामती प्रशासन
--  Madaram: మేడారంలో ఇద్దరు మంత్రుల పర్యటన నేడు..
--  의정부시, 경민대학로 상권활성화를 위한 회의 개최
--  강수현 양주시장, 율정-봉양간 도로확포장공사현장에서 간부회의 개최
--  Pizane é o terceiro eliminado do Big Brother Brasil
--  11비트 스튜디오, '프로스트펑크 2' 공식 게임 플레이 영상 공개
--  더함, ‘TV+셋톱박스+사운드바+에어컨’ 통합 리모컨 출시
--  दादासाहब फाल्के अवॉर्ड से पहले उठा सीने में दर्द, ऑक्सीजन सिलेंडर के संग...
--  Bursa Malaysia extends its losses to open lower
--  นายก เศรษฐา ปลื้ม ผลบอลไทย ทีมชาติไทย ชนะ ลั่น ต่อไปมันแน่!
--  Vận chuyển băng 100.000 tuổi từ Greenland để bán ở Dubai
--  Ringgit opens lower against US dollar
--  Cuộc sống như mơ của hai mỹ nhân Vbiz tên "Baby": Người được chồng cho 24 tỷ đồng tiêu vặt, người được tặng nhà 50 tỷ
--  LG전자, 국내 '최대 용량' 건조기 탑재 세탁기 출시
--  중견기업, 1분기 살아난다…'수출·생산' 모두 3p대 UP
--  서울시약, 다음달 4일 새내기약사 교육 연다
--  닥터지·비비드로우, 제주 드림타워 '드림뷰티' 신규 입점
--  대웅제약 '에너씨슬 퍼펙트샷', 출시 8개월 200만병 돌파
--  대중교통비 최대 53% 환급 'K-패스' 5월부터 시행
--  원할머니보쌈족발, 겨울 한정 ‘어리굴젓’ 싱싱한 제철 맛으로 인기
--  안수남 동국대학교 행정대학원 생활풍수 총동문회 회장-국회 교육위원장 표창
--  국립군산대 '지자체-대학' 지역혁신사업 에너지신산업 중심대학 운영
--  윤대통령 "ISA 납입·비과세 한도 확대… 공매도 금지 지속"
--  군산소방서, 올해부터 용도별 소방계획서로 변경
--  한동훈 "김경율, 서울 마포을 출마… 정청래와 경쟁"
--  군산어린이 가족 뮤지컬 '가방 들어주는 아이'공연
--  군산시, 2024년 비장애 형제자매캠프 추진
--  MTC y Municipalidad de Lima logran acuerdos iniciales sobre Estación Central de Línea 2 del Metro
--  नड्डा और शाह ने लोकसभा चुनाव के लिए नियुक्त किए गए देशभर के क्लस्टर प्रभारियों के साथ की बैठक
--  McGraths Hill car crash: Mother's heartbreaking message for teenage son Addison Bhimjiani killed alongside his mate Matthew Simpson in horror collision while returning from the gym
--  ছক্কায় বিশ্ব রেকর্ড অ্যালেনের
--  To Bend Toward Justice, the Arc of History Has to Bend Toward Family, Too
--  Medicare announces small change to cards for 2024
--  Đề xuất cho xe chở tiền của ngân hàng được dừng, đỗ trên vỉa hè trong giờ hành chính mà không bị phạt
--  Establecen logística para traslado de ‘Benito’ a Puebla
--  토스뱅크, 고객 900만 돌파…"첫 연간 흑자 전망"
--  롯데손해보험, 5번까지 보험료 내릴 수 있는 건강보험 출시
--  '보험비교·추천 서비스' 출시 임박… 그러나 기대보다 우려가 더 큰 이유
--  "리스크 노출" 4대 금융, 그러나 크게 엇갈린 주가 전망…신한↑, KB·하나금융↓
--  보험업계, 2월부터 취약계층 보험계약대출 이자 납입유예
--  국민은행, 은행권 최대 규모 3721억원 민생금융 지원
--  SKB, B tv 고객 초청 ‘필모톡 with 이제훈’ 개최
--  나델라 MS CEO, “AI 규제 대한 글로벌 표준 필요해”
--  LG전자, 대용량 '트롬 워시타워' 출시…"건조 용량 22kg, 세탁용량 25kg"
--  ‘내부 기밀 유출 정황’ 직원 휴대전화 포렌식 논란…카카오 노조, 조사 중단 요구
--  숫자로 알아본 '이재, 곧 죽습니다'…티빙 "국내외 흥행 견인차"
--  KT "강원 동계청소년올림픽대회, 통신 서비스 구축 이상 無"
+-  Oposición venezolana tacha de "burla" el anuncio de Maduro sobre aumento de bonificación
+-  La producción industrial china de diciembre sube un 6,8% interanual
+-  El PIB de China en el cuarto trimestre crece un 5,2% interanual, bajo previsiones del mercado
+-  La producción industrial china creció un 4,6 % en 2023
+-  El PIB de China creció un 5,2 % en 2023
+-  ค่าฝุ่น PM 2.5 เช้าวันนี้! 'สมุทรสงคราม-สมุทรสาคร' หนักทะลุ 100 ไมโครกรัม
+-  咳嗽引起胸部疼痛的原因 如何缓解咳嗽引起的胸部疼痛
+-  孩子咳嗽吃什么食物好
+-  孩子咳嗽厉害 睡觉都不停地咳嗽怎么办
+-  老人味太重预示着什么
+-  抑郁症患者可能并不需要鼓励？如何和抑郁症患者相处
+-  铅球是什么运动 铅球正确投法与技巧
+-  专家称龙年或出现生育小高峰：2024年的生育率有望提升
+-  单手俯卧撑难度大吗 单手俯卧撑怎么练
+-  飞盘运动的好处有哪些 分享6个飞盘运动的好处
+-  小孩玩飞盘的好处和坏处 需要注意什么
+-  跑步机有用吗 对身体有伤害吗
+-  서울시선관위, 제22대 국선 공명선거 추진활동 협업사업 공모
+-  롯데건설, '오케롯캐' 유튜브 채널 구독자 30만명 돌파
+-  하나은행, 기재부 대외경제협력기금(EDCF) 외화금고은행 1순위 우선협상대상자 선정
+-  동아ST, 공정거래 자율준수 강화 프로그램(CP) 선포식 개최
+-  우리은행, 4대연금 계좌 신규 고객에 최대 5만원 제공
+-  이랜드 미쏘, 24년 봄 컬렉션 출시
+-  두산로지스틱스솔루션, 다이소 세종허브센터 수주
+-  臨時二級實驗室技術員招聘｜起薪$21,875 附政府工入職條件+申請方法
+-  सैकड़ों साल तक बंद थी सुरंग, हिम्मत कर अंदर घुसा शख्स, निकलते ही बदल गई किस्मत
+-  全方位多领域“昂首阔步”启新程 中国高质量发展质效稳步提升
+-  绿水青山成色更足 我国生态环境持续改善
+-  2024年政法工作密集部署，这些事被重点提及
+-  2023中国经济年报丨世界首个！我国国内有效发明专利数量突破400万件
+-  国家疾控局：强化六方面措施确保春节假期疫情形势总体平稳
+-  新华全媒+|一刻钟便民生活圈，“圈”出家门口的幸福
+-  预计将达90亿人次 春运里的中国充满生机和活力
+-  我国加快推进实施生态保护修复重大工程
+-  我国首部“银发经济”政策文件出台 多个亮点勾勒出幸福晚年生活图景
+-  天舟七号完成全区合练 各系统准备就绪
+-  焦点访谈：告别“水上漂” 开启新生活
+-  我国多地出现雨雪天气 各地采取多种措施积极应对
+-  低碳转型，阳光之路|光伏发电助力严一集团绿色低碳发展
+-  美丽中国目标如何实现？多地真抓实干切实提升居民幸福感
+-  拉窗帘、挂“笑脸”、按门铃……他们每天跟独居老人“对暗号”
+-  Nigerians resort to herbal concoctions on rising cost of drugs
+-  Rob Edwards blissful to tackle top-flight opponents after edging previous Bolton
+-  CES 2024: Timekettle Releases X1 AI Interpreter Hub, World's First AI Interpreter Hub
+-  '제일파프' 40주년 기념 레트로 패키지 출시
+-  JW바이오사이언스, 순수기술 '고감도 현장진단기기' 선보인다
+-  서울우유 올해 사업예산 2조3천억 의결
+-  서울우유협동조합 최경천 상임이사 선임
+-  Pres. Tinubu: Kidnappings in the country are disturbing, ungodly
+-  Polis kesan pengasuh patahkan kaki budak 3 tahun
