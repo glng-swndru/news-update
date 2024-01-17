@@ -1,11 +1,11 @@
 # Latest News
--  Avec le salon Smile, l'industrie auvergnate veut séduire les collégiens à Vichy
--  街もり立て次の１００年へ 小樽ＪＣが懇親会
--  Nagita Slavina Party, Penampilan Seksi hingga Joget Jongkoknya Jadi Sorotan Netizen: Panutan Wanita Indo
--  Studie: Löhne in der Hotellerie stiegen 2023 weniger als Inflation
--  24 menekülttel az utastérben borult fel az embercsempész, miközben a rendőrök elől menekült, vádat emeltek ellene
--  Fairplay und Spielabbrüche: Weshalb auch Manchester City auf Jonas Breithaupt schauen sollte
--  Криминалисти иззеха голямо количество наркотици от дома на 35-годишен мъж в Дупница - Труд
--  Little Bangkok, Wajah Baru Pasar Tanah Abang
--  'Considerable' avalanche risk on Highland mountains, as warning level raised
--  Sinan Bür’den Sönmez Medya’ya ziyaret
+-  McLaren F1 : La MCL38 sera 'une évolution innovante'
+-  高さ約２０ｃｍ！昇り龍のごとく…そびえ“たつ”タレかつ丼「天にも昇るような美味しさ」【新潟・魚沼市】
+-  Webb: Hefði átt að dæma víti á Ödegaard
+-  British tourists heading to Spain warned of hotel swimming pool 'ban'
+-  China: Ministerpräsident Li Qiang beziffert Wirtschaftswachstum mit 5,2 Prozent
+-  Песков: “В переговорах о мире без участия российской стороны нет смысла”
+-  Subsidio para mayores de 52 años: estos son los cambios que debes conocer
+-  Воистину народный артист. К 90-летию со дня рождения Василия Ланового
+-  Депутатите гласуваха промени за повече публичност на заседанията на общинските съвети
+-  Cüneyt Arkın'ın miras davasında Nuri Alço tanıklık yaptı
