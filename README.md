@@ -1,11 +1,11 @@
 # Latest News
--  Marina Fois, son frère décédé dans un crash d'avion à 31 ans : "J'ai une image très précise en tête"
--  Palacete tombado corre risco de desabar em SP
--  Dükkan sahibi ile kiracı marketçi kavgası kanlı bitti! 6 kişi yaralandı
--  Belügyminisztérium: Ha nem alkalmas rá a tanító, úgysem küldi be az igazgató a nyolcadikosokhoz
--  Bu nazirlikdə yeni təyinatlar oldu
--  Роспотребнадзор сообщил о росте уровня госпитализаций при COVID-19 и гриппе
--  Is the Free World Ready for a War of Attrition Against Dictatorships?
--  Estas son las ayudas que ofrece España a sus connacionales en Venezuela
--  Dükkan sahibi ile kiracı marketçi kavga kanlı bitti! 6 kişi yaralandı
--  Governo: Meloni, 'accordi di coesione strumento per superare disparità territoriali'
+-  Anleger an der Börse Frankfurt schalten in den Verkaufsmodus: DAX markiert neues Jahrestief
+-  Fastur inni á salerni í miðju flugi
+-  Halkalı-Kapıkule arası 4 saatten 1 saat 30 dakikaya düşecek: Bakan Uraloğlu tarih verdi
+-  Découvrez les tenues que porteront les athlètes français aux Jeux Olympiques de Paris
+-  Vizionář z malého ostrova: Fotbal tu děti nehrají, Čech jim vystřílel titul
+-  Argentina reports illex squid is back, and announces new monitoring approach along EEZ mile 201
+-  Предварительный обзор Apple Vision Pro — гарнитура поразила журналистов, но есть нюансы
+-  Argentina reports illex squid is back, and announces new monitoring approach along EEZ mile 201
+-  מאסטר שף: עם 46% מהקולות, ירדן שועה נבחר לשחקן המצטיין של המחזור ה-16
+-  Weltwirtschaftsforum: EZB-Chefin Lagarde kann sich Zinssenkung im Sommer vorstellen
