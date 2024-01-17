@@ -1,11 +1,11 @@
 # Latest News
--  Chàng trai đi khắp Việt Nam chụp 999 bức ảnh đời thường để dành tặng miễn phí: “Sống là để cho đi”
--  Quake Releases Slave Zero X Prelude 'Episode Enyo' As A Free Add-On
--  Прохин: «Федотов — главный тренер в моей карьере»
--  Delhi weather: Mercury drops to 4 degrees Celsius, 53 flights cancelled amid dense fog at IGI Airport
--  RS tem forte temporal nesta terça (16) e mais de 20 bairros ficam sem luz em Porto Alegre
--  Gov. announces expanded universal preschool for 26 Mass. cities
--  رد فعل مدرب عمان بعد الخسارة أمام السعودية بهذه الطريقة
--  Videotron Anies Baswedan Diturunkan Usai Tayang Sehari Tuai Kekecewaan, Siapa yang Buat?
--  名所や祭り・名物あしらった「観光ラッピングタクシー」お披露目 山形・鶴岡市
--  대구 달서구 아파트서 치매 아버지와 50대 아들 숨진 채 발견
+-  Награды ФИФА: как голосовал Петраков?
+-  გლობალურ ანტიკორუფციულ საკითხებში აშშ-ის სახელმწიფო დეპარტამენტის კოორდინატორმა საქართველოში ვიზიტის ფარგლებში პირველი შეხვედრა სამოქალაქო საზოგადოების წარმომადგენლებთან გამართა
+-  Džordž Kluni otkrio zašto mu je režija zabavnija od glume
+-  Interrupción legal del embarazo mantiene divididos a los diputados locales
+-  Стала известна сумма трансфера Винисиуса из «Реала» в «Манчестер Юнайтед»
+-  Израел са унищожили още един стратегически тунел на "Хамас"
+-  मधेस प्रदेश सरकारले आज स्वभिमान दिवस मनाउँदै
+-  이재명, 보름 만에 당무 복귀…"공정 · 혁신 공천 통해 희망"
+-  Δέλεαρ οι νέες μονάδες φυσικού αερίου στη Βόρεια Μακεδονία για τους ελληνικούς ομίλους
+-  15 trains delayed as low visibility disrupts services
