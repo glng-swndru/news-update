@@ -1,11 +1,51 @@
 # Latest News
--  ডাল অর্ডার করে পেলেন আস্ত ইঁদুর!
--  Luka Romero, cerca de ser nuevo jugador de Boca Juniors tras no entrar en planes del Milan
--  대구·경북 국민연금 지급액 4조 넘어…월 200만 원 이상 수급자도 964명
--  Arsenal đón cú hích trước trận Palace
--  Những cầu thủ được M.U cho mượn đang thể hiện ra sao?
--  Moyes: "Các hợp đồng mới sắp được hoàn tất"
--  ชงสรุป ป.ป.ช. “ดิจิทัลวอลเล็ต” ชี้ ไทยยังไม่วิกฤติ แนะ เลือกแจกกลุ่มเปราะบาง
--  Italy's regulations on charities keep migrant rescue ships from the Mediterranean
--  Гладков о нападении подростков на прохожих в Белгороде: нужно реагировать жёстко
--  پشاور میں فائرنگ سے پولیس اہل کار جاں بحق، ایک زخمی
+-  2023年中国人口减少208万，增长率-1.48‰
+-  全网炸了！“新西兰正在杀死我们”！美国网红来纽开房车，各种遭遇！网友不解……
+-  Ёшлар билан ишлашда Фарғона тажрибаси самара бермоқда
+-  ННТлар лойиҳалари доирасида муаммолар ҳал этилмоқда
+-  Эрон хавфсизликка таҳдид деб Ироқ ва Сурия томонга ракета зарбаларини улоқтирди
+-  Шеърлари барҳаёт шоир
+-  Буюк Британия матбуоти: “Самарқанд дунёдаги энг гўзал шаҳар”
+-  БУГУН: газеталарни варақлаганда...
+-  Sharad Kelkar shared insights on playing Ravan in `The Legend of Hanuman 3`
+-  Wacky Wednesday: When Shah Rukh and Salman Khan serenaded Anil Kapoor’s wife
+-  Izrael sprema napad na bolnicu u Khan Younusu, pacijenti traže sklonište
+-  Kim Jong-Un: Ujedinjenje sa Južnom Korejom više nije moguće
+-  الرئيس الأول لمحكمة الاستئناف بالجديدة يستقبل المكتب الجديد لهيئة المحامين
+-  華爾街最樂觀，瑞銀：標普 500 指數年底達 5,150 點
+-  "가족과 보는건 좀"…이솜X안재홍 'LTNS', 섹스리스 부부로 세 번째 호흡 [MD현장](종합)
+-  Can Government remedy rising inflation rate?
+-  We’re doing everything to address Kidnapping, banditry in FCT – Wike
+-  2024 başlayalı daha iki hafta olmuşken yüzlerce kişi işinden oldu
+-  17. siječnja 1843. rođen Bude Budisavljević – Po čemu je značajna riječka filološka škola?
+-  Da Lidl debutta il semirimorchio refrigerato elettrico
+-  Erasmus-ügy: az EP-képviselők felszólították a magyar kormányt, hogy tegyen eleget a jogállamiság elvének
+-  Mostarkić Gobbo: Ne možeš biti gay po zanimanju, sorry…
+-  Armored truck heist fails in Rotterdam; Three arrested
+-  고철용 본부장 “엄성은의 고양시장 선거개입 증거 차고 넘쳐”
+-  PM directs to conclude police adjustment within 15 days
+-  TV Republika oszczędza na prezenterach? Minął tydzień i Danuta Holecka znowu w tym samym na wizji
+-  भारत-कनाडा तनाव का असर, भारतीय छात्रों को जारी किए गए परमिट में भारी गिरावट
+-  Meyer Burger: Werden neue Solarwerke in Deutschland wieder geschlossen? ++ Januarloch und Teuerung: Spartipps ohne Verzicht!
+-  "קצב החיים": הסינגל של עומרי סבח עם החייל הפצוע
+-  Senaji extends contract at Malawi’s Nyasa as Okumu is released
+-  Dowlad hakisay wada shaqeyntii ay la laheyd IGAD iyo hal arrin oo sabab u noqday
+-  Dolar, 30 TL'nin üstündeki seyrini sürdürüyor
+-  Katil ordusuna katılmak isteyen Türk vatandaşları için karar: Hesap verecekler
+-  Alanganallur Jallikattu 2024: அமைச்சர் உதயநிதி தொடங்கி வைத்த ஜல்லிக்கட்டு! அலங்காநல்லூரில் குவிந்த திரை பிரபலங்கள்!
+-  भारत का दूसरा F-1 सर्किट गुजरात की गिफ्ट सिटी में बनने की संभावना
+-  Les 35 ans des Enfoirés
+-  Trumpseger kan skapa ökad marknadsosäkerhet
+-  Khó khăn, thất nghiệp, nghiện ma túy… khiến diễn biến tội phạm phức tạp
+-  Giám đốc Công an Hà Tĩnh nói gì khi linh động xử lý người thợ xây say ‘quên đường về’
+-  Sân khấu Hoàng Thái Thanh chịu chửi rủa nặng nề vì bị hiểu lầm làm sô cho cháu gái Vũ Linh
+-  Miền Bắc sắp đón không khí lạnh mạnh, có nơi xuống 0 độ C
+-  Bắt giám đốc Sở Giáo dục và Đào tạo Hà Giang Nguyễn Thế Bình
+-  Hơn 2,2 tỉ sản phẩm được giao thành công trên sàn Lazada, Shopee, Tiki, TikTokShop... năm 2023
+-  Nhà vệ sinh bệnh viện TP.HCM vì sao tăng lượt 'không hài lòng'?
+-  Đường nát ở TP.HCM 'lột xác' đón Tết
+-  Trung Quân tiếp tục hóa bướm, hát những lời của người đang yêu
+-  Luật Đất đai: Những điểm cần suy xét thấu đáo trước khi bấm nút
+-  Sắm Tết tiết kiệm, đủ đầy
+-  Đặt điện thoại xuống, cầm sách lên: Để thói quen đọc sách len lỏi vào mỗi nhà
+-  港島居二市場罕見「零成交」 上半月買賣減14.8% 業界：購買力轉向私樓
