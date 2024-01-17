@@ -1,11 +1,11 @@
 # Latest News
--  Indústria e vendas crescem na China em 2023, mas desafios continuam
--  Европе предрекли "одиночество" при Трампе
--  مستشار محمد بن زايد يُبشر بإنتهاء سيطرة الحوثي على صنعاء
--  元女子プロテニス選手・伊達公子さん、入籍2年の結婚記念日ショットを披露 イケメン夫との写真に「お似合いですね」
--  Singapore proposes governance framework for generative AI
--  Kanser düşmanı bir meyve
--  Mohammed Al Sultan appointed to HSBC Qatar leadership team
--  東京新景點+1！「麻布台之丘teamLab」2月開 門票、亮點曝光
--  年終獎金想投資比特幣？ 平台業者建議：可採定期定額
--  “L’Accordo con l’UE, punto di partenza per lo sviluppo del Paese”
+-  (G)I-DLE captivates fans with sexy concept photos
+-  Przedsiębiorca oszukany przez krewnego Przemysława Czarnka poprosił polityka PiS o pomoc. Dwa dni później dostał telefon z CBA
+-  영화 파묘 ‘과학과 미신 사이의 미묘한 줄타기’ [포토]
+-  영화 ‘파묘’ 화이팅 [포토]
+-  살인 계획한 의뢰인에게 피해자 정보 알려준 흥신소업자 징역형
+-  फिनको छक्काको कीर्तिमान, न्युजिल्यान्डले जित्यो पाकिस्तानविरुद्धको सिरिज
+-  Гутерeш призова да не се допуска ескалация в Ливан
+-  Hé lộ mánh khóe của 'bà trùm' đứng sau công ty khai thác cát trái phép trên sông Đồng Nai
+-  3 "chị đẹp" là đại gia kim cương của showbiz Việt: Người có 10 siêu thị, kẻ buồn lại mang tài sản ra đếm
+-  Lãi suất tiết kiệm - cho vay rơi xuống giá “bèo”
