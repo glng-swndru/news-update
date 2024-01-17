@@ -1,11 +1,11 @@
 # Latest News
--  Eyüp Aydın daha çok süre almalı
--  Handball: Bundesligaspiel in Bietigheim wetterbedingt abgesagt
--  Stravična eksplozija u tvornici vatrometa: Krhotine posvuda, velik broj poginulih
--  Por qué Epic Games dio por perdida la batalla legal contra Apple
--  Barroso propõe debate nacional para discutir política de drogas e segurança
--  Depremde 9 kişinin öldüğü binanın 2 katı kaçak yapılmış
--  Un total de 186 municipios de Guadalajara contrataron 255 actuaciones en 2023 con ayuda de la Red Cultural de la Diputación
--  Özgür Demirtaş'tan, Hülya Avşar’ın 'Fazla zenginlik insana zarar' sözlerine yanıt
--  가수 한가빈, 웹툰 ‘사랑도 없이 결혼’ OST ‘마지막처럼 사랑했었다’ 20일 발매
--  Grazie a questa tabella troverete la ROM perfetta per il vostro telefono Android
+-  موعد نتيجة اختبار القدرات العامة الورقي.. التفاصيل ورابط الاستعلام
+-  Vecinos y choferes dudan de “peaje social” que plantea Gobierno ante alza de tarifa
+-  The Big Gigs: 10 best concerts to see in the Twin Cities this week
+-  한동훈 “누가 죽여? 그 정도면 망상”…당정, 다시 이재명 옥죄기
+-  Diablo 4 Season of the Construct Will Bring New Quests, Vaults to PS5, PS4
+-  Motorcyclist, 27, dies in accident along BKE
+-  Καταβολή δώρου Χριστουγέννων μετά από παρέμβαση της Επιθεώρησης Εργασίας
+-  Playing The Long Game: AI’s Role In Sustainability
+-  Nga hứng đòn tấn công dữ dội của 69 máy bay không người lái Ukraine, hàng chục tên lửa HIMARS
+-  «Wenn wir helfen können, ist das gut»: Nun wird geprüft, ob die Feuerwehr der Stadt Solothurn künftig anderen Gemeinden unter die Arme greift
