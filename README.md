@@ -1,11 +1,11 @@
 # Latest News
--  Виетнамците живеят бързо, модерно, задружно и все по-богато
--  ‘하늘로 굿샷’김하늘, 프레인글로벌 스포티즌과 매니지먼트 계약
--  ASMIN PRIJAVIO ANELINE RODITELJE POLICIJI Tvrdi da dete drže bez njegove saglasnosti: "Ovo je propast, ćerka MORA DA NAPUSTI DRŽAVU"
--  I Oslo-skolen strammer vi nå inn skjermbruken
--  Urlop opiekuńczy. Aż 5 dodatkowych dni wolnego w ciągu roku
--  ਹਰ ਵੇਲੇ ਕਨ੍ਹਈਆ ਗਾਉਂਦੇ ਨੇ ਇਹ ਭਜਨ
--  Ram Katha: क्या आप जानते हैं, रावण को हराने के बाद रामजी फिर से गए थे अयोध्या और सीता जी ने भी उठाए थे शस्त्र
--  PUJA POR LA MAÑANA EUROPA-Los datos chinos se desploman y se suman al clima de aversión al riesgo
--  르세라핌, 美 ‘코첼라’ 출연...韓 가수 중 데뷔 후 최단기간 단독 무대 입성
--  T-Mobile Is Going Back to $60 Per Month Pricing for Home Internet Service - CNET
+-  이솜, 티빙에서 만나요 [포토]
+-  बैंक में अचानक मच गई अफरा-तफरी, पासबुक अपडेट करवाने आए थे 'जनाब'!
+-  à¶¢à¶±à¶´à¶­à·’ à¶¢à·�à¶±à·Š à¶šà·™à¶»à·“ à·„à¶¸à·” à·€à·™à¶ºà·’
+-  Гладков: нападения подростков в Белгороде требуют быстрой и жёсткой реакции
+-  이솜, 사랑스러운 포토타임 [포토]
+-  Marlon Douglas deixa o Gil Vicente
+-  Protest spontan al angajaților Agențiilor pentru IMM-uri din întreaga țară. Sunt nemulțumiți de salariile mici
+-  Recherche des Bayerischen Rundfunks: AfD-Abgeordnete sollen nach Parteitag rechtsextreme Parolen in Diskothek gerufen haben
+-  “文, 4·3추념사로 명예훼손”…이승만사업회, 2심도 패소
+-  Thừa Thiên Huế: Một người dân thị xã Hương Trà bắt được cá thể tê tê “đi lạc” trên đường
