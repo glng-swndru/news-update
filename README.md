@@ -1,51 +1,51 @@
 # Latest News
--  ASA movilizó a 4.1 millones de pasajeros
--  국민의힘 공천룰 확정.. 제주 경선시 여론 80%, 당원 20% 적용
--  جامعة الفرات الأوسط التقنية توقع مذكرة تفاهم مع جامعة العلوم USM ماليزيا
--  الجمعيات الفلاحية في كربلاء تجري كشف موقعي ومتابعة ميدانية لشبكة مبازل الوند للإطلاع ومتابعة أعمال التطهيرات
--  العراق يشكو إيران لمجلس الأمن
--  رئيس الوزراء: العراق لا يمانع في التعاون مع التحالف الدولي بمجال التسليح والتدريب
--  كربلاء تباشر بتطبيق نظام الدفع الالكتروني (POS) في محطات تعبئة الوقود
--  Vlahović - savršen napadač: Tri gola levom nogom, tri desnom, tri glavom, slobodni udarci
--  Temperature tokom noći -13 stepeni; Izdato upozorenje
--  트로이아르케, 오프라인 뷰티클래스 '민낯 클래스' 오픈
--  "국내 인슐린 펌프 치료율 낮아, 기술 속도 맞춘 정책 지원 시급"
--  병원 전체 병동에서 간호·간병 통합서비스 가능해진다
--  심사평가원, 문체부 주관 우수상 수상
--  Tenojoen lohikanta "syvässä aallonpohjassa" jo viidettä vuotta peräkkäin, arvioi Luke
--  건보공단, 요양기관 세무신고 '2023년도 연간지급내역' 제공
--  Kilkenny parish to experience water outages today (Wednesday)
--  US Retail Sales Preview: Forecasts from nine major banks, consumers continued spending in December
--  Спикер: Қонунларимиз яширин иқтисодиётга йўл бермайдиган бўлиши лозим
--  Бухорода 205 миллион долларлик 5 лойиҳа амалга оширилади
--  Экология вазирининг ахборотини эшитиш масаласи қўллаб-қувватланди
--  Poți circula cu o copie a permisului de conducere? Ce riști dacă nu ai actele în original
--  [“배달로 2억 버는 데 3년” 흙수저 성공기 집중조명…中언론, 속셈 뭐길래
--  [[속보] 外人 대량매도에 코스피 2%대 급락…2430대로 밀려
--  [LG에너지솔루션, 지난해 영업익 2조1632억…전년비 78.2% ↑
--  [소주 22병 마시고 수영 중 사망한 男…'이은해식 범죄'였다
--  [하윤수 부산교육감, 부산 KCC이지스 홈경기서 시투한다
--  [건물주가 손 꼭 잡고 "월세 깎자, 오래 장사해줘서 고마워"…호프집 사장 ‘왈칵’
--  [무협, 美 현지 진출 기업 간담회 개최…대선 이후 통상·정책 변화 전망
--  [진에어, 지난해 영업익 1816억…흑자전환
--  [“오늘 점심? 양식!” 조회수·폭소 다 터졌다...광주 동구 공무원들 '제2 충주맨' 되나
--  Зачем белорусам пить горячую воду? Узнали, как это делают в Китае и что говорит ВОЗ — Полезно
--  İngiltere'de enflasyon yıllık bazda beklentilerin üstünde
--  MHA Cancels FCRA Registration Of Centre For Policy Research Charging Violation Of Certain Norms
--  Didakwa aniaya anak tiri sejak 2019
--  Exclusive Research Report on E-health Integration Platforms Market, Size, Analytical Overview, Growth Factors, Demand and Trends Forecast to 2030 : Teladoc, Amwell, MDLIVE
--  Code geel om gladheid en vanaf eind van de ochtend door ‘langdurige sneeuw’ in het zuidoosten
--  LIVE | Twintig drones afgevuurd op Odesa: woonwijk geraakt en drie mensen gewond
--  Pensionarii români din străinătate trebuie să dovedească de două ori pe an că mai trăiesc. FORMULARE
--  AI Marketing Campaigns: Complete Guide
--  Passenger Service System Market Anticipated to Hit US$ 13.79 Billion by 2029, Marking a Remarkable 13.24% CAGR Growth."
--  Debt Collection Gone Awry: Father Arrested After Shooting Son Twice Over US$300 Debt
--  Cercetătorii chinezi au creat o tulpină mutantă de coronavirus care atacă creierul. „Această nebunie trebuie oprită”, avertizează oamenii de știință occidentali
--  Ratio of jobless middle-aged, elderly after retirement on rise amid low birthrate, aging society
--  Main opposition head vows election victory after returning to work
--  Chinese battery maker probed for alleged technology theft from Samsung SDI, SK On
--  Ateez, Le Sserafim to perform at Coachella festival
--  Türkiye'den dev petrol ve doğalgaz hamlesi! En büyük pay ayrıldı
--  Valentin Rosier imza için Fransa'ya uçtu
--  "Ölü seçmen, vatandaş olmayan oy kullandı" iddiasına YSK'dan açıklama
--  Embiid'in 41 sayısı 76ers'a galibiyeti getirdi
+-  [따뜻한 진료실] 요추의 최소 침습 유합술, 사측방 요추 추체간 유합술
+-  [의학칼럼] 의학유전학-10
+-  [삼촌설] 국회의원 정수 축소
+-  [사설] 국회, '고준위 방폐물 특별법' 처리 직무유기
+-  양기대 의원 “소하문화공원 조성사업, 국토부 사전심의 승인”
+-  صيدلي في بريطانيا يحذر كتائب القسام من خطر استلام الأدوية القادمة الى الأسرى .. تفاصيل
+-  Ocon craint que la nouvelle Alpine F1 A524 ne soit 'un peu lente'
+-  Huuhkajien pelaajaa viedään Pohjois-Amerikkaan
+-  6 nguyên tắc cần có để nhanh nhẹn trong chiến lược
+-  Arda Turan Fenerbahçe'nin yıldızını transfer ediyor
+-  '외부 영입+집토끼 단속 모두 성공' 삼성, 강한울과 '1+1년 최대 3억원' FA 계약
+-  'Here We Go' 홍현석 팀 동료 FW, 빅리그 입성 근접...행선지는 리그앙 올림피크 리옹
+-  [오피셜] 안양, 천안시티 미드필더 이민수 영입… “역사 있는 팀 입단 영광”
+-  Trotz „wachsender Dynamik“: Habeck mahnt Länder und Kommunen zu mehr Tempo bei Windenergie-Ausbau
+-  Vasile Stângă ”a desființat” prestația României la EURO de handbal masculin
+-  Aksaray’da taşlı yumruklu 'yol verme' kavgası: 3 yaralı
+-  İzmir’de yangın faciası: 1 ölü, 3 ağır yaralı
+-  Guterres upozorio na opasnost od širenja sukoba u Gazi
+-  Dodikov advokat: Odbrana zatražila odgađanje današnjeg ročišta, Lukić u bolnici
+-  Preventivni pregledi u školama ZDK - Osnovci najviše problema imaju sa težinom, stopalima i kičmom
+-  동아에스티, 공정거래 자율준수 강화 프로그램 선포식 개최
+-  Transfery - Relacja na żywo [17/01/2024]
+-  Olympique Marsylia z ofertą za błyskotliwego skrzydłowego
+-  Świeżo upieczony reprezentant Włoch naciska na transfer do Milanu. Wysokie żądania w Turynie
+-  Menús escolares sin fruta, ensaladas incompletas y con las monitoras del comedor sin cobrar
+-  Menús escolares sin fruta, ensaladas incompletas y con las monitoras del comedor sin cobrar
+-  Benfica sprowadziła następcę Álexa Grimaldo. Bogate CV [OFICJALNIE]
+-  Wolverhampton Wanderers chętnie odbuduje piłkarza Chelsea. U Mauricio Pochettino wykazuje się niemocą
+-  للعام الثاني.. انخفاض عدد سكان الصين يثير المخاوف
+-  LX공사, 620개 사업지구 '지적재조사' 민간대행자 모집
+-  Chanel: "Los que me pusieron piedras en el camino me han ayudado a sacar mi mejor versión"
+-  معاناة الطفولة المبكرة.. تدفع الأطفال للتكيف مع الظروف القاسية
+-  안양시, 올해도 다양한 취업지원 나서…고용률 높이기 ‘총력’
+-  하나은행, ‘2023년 상생·협력 증진 우수기관’ 선정...금감원장상 수상
+-  aT, 겨울무 수급안정 위해 정부수매 추진!
+-  충주시, 축·수산 분야 보조사업 신청접수
+-  '황야' 제작보고회에서 만난 마동석, “다양한 무기 활용한 액션을 선보일 것”
+-  „Farbowany lis” zadebiutuje w reprezentacji Polski? Michał Probierz może go powołać
+-  शरद पवारांचा सोलापूर दौरा, 19 जानेवारीला मंगळवेढ्यात शेतकऱ्यांना करणार मार्गदर्शन
+-  Israël claimt terreurcel op Westelijke Jordaanoever te hebben uitgeschakeld
+-  В Стамбуле почтят память журналиста-армянина
+-  Генсек ООН о завершении кризиса в Газе
+-  Здоровые сотрудники – продуктивные сотрудники
+-  Президент Польши: Война в Украине не закончится, пока…
+-  В Экономическом университете объявлен «Год зеленого UNEC»
+-  TƏBİB о состоянии пострадавших при взрыве в Баку
+-  Supermarkten draaien recordomzet dankzij hogere prijzen
+-  Медведев: Существование Украины и фатально для украинцев
+-  [해설] 기초자치단체 도입시 제주도의원 정원 감축 불가피
+-  Ботев има нов нападател! Врачанин, вкарал три гола на Локо, ще радва феновете на "Колежа"
