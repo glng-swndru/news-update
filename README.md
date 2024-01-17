@@ -1,11 +1,11 @@
 # Latest News
--  CAN 2024 : La Tunisie tombe d’entrée face à la Namibie, le Mali domine l’Afrique du Sud
--  이준석 "尹 코리아 디스카운트 언급 환영…시장교란 세력 처벌해야"
--  У школах Білорусі ввели новий предмет, де навчатимуть допиту полонених
--  주차장서 5m 음주운전한 40대 상습범 항소심서 감형
--  Problem svetskog kalibra, ne samo Srbije: Šta čeka industriju drveta, nameštaja i njihove radnike?
--  Học sinh miền núi háo hức chờ ngày có nước nóng sinh hoạt
--  CAN 2024 : La Tunisie tombe d’entrée face à la Namibie, le Mali domine l’Afrique du Sud
--  LeAnn Rimes shares she underwent surgery to remove precancerous cells in cervix
--  Woman found dead in apparent domestic attack in front of a Calgary elementary school
--  Woman found dead in apparent domestic attack in front of a Calgary elementary school
+-  PT dá aval a filiação de Marta e rejeita prévias para escolha de vice de Boulos
+-  Gamers could face irreversible hearing loss, study warns
+-  Global Grid Equipment Market Key Growth Opportunities - Leveraging Technology and Optimizing Cost on the Factory Floor
+-  Georges River Council's Australia Day Awards and picnic
+-  El uruguayo Neves es el sexto refuerzo de Independiente y se sumará al plantel de Carlos Tevez
+-  Jön az "X-betegség" - az új világjárvány 20-szor több halálesetet hozhat, mint a Covid
+-  Gobierno ta gaba c’un surplus pa 2024 mientras pueblo ta sufri
+-  Corinthians goleia o CRB e está nas quartas de final da Copa São Paulo de Juniores
+-  平野紫耀、岩田剛典の姿も パリ・メンズファッションウィーク開幕
+-  Notley resignation: Alberta NDP leader says 'no intention' of running for the party federally
