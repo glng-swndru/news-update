@@ -1,11 +1,11 @@
 # Latest News
--  '월클 명장'에게 막무가내 월권을?…만치니 감독이 사우디 선수들을 일갈한 이유
--  Türkiye'de geçen yıl üretilen araçların yarısından fazlası Bursa'da banttan indirildi
--  Preminula supruga čuvenog ruskog tenisera
--  Σοβαρή καταγγελία: «Τα επικίνδυνα αντικείμενα μπαίνουν από τους παράγοντες των ομάδων»
--  Paridi istediğini alıyor mu?
--  Dnes Samsung vstoupí do světa AI. Sledujte s námi premiéru řady Galaxy S24
--  Privés de terrains en raison de la météo, comment les clubs drouais s'organisent-ils pour jouer à domicile durant l'hiver ?
--  Zorlayıcı fark bulma mücadelesi: Çamaşır asan kadına ait iki görsel arasındaki 3 farkı 12 saniyede bulabilir misiniz?
--  Nahost-Krise: USA könnten Huthi-Miliz wieder auf Terror-Liste setzen – Deutschland verzehnfacht Waffenlieferungen nach Israel
--  법원, '태종이방원' 동물 학대 혐의 인정…"피해 말이 받았을 고통"
+-  В правительстве отметили удвоение цифровой зрелости экономики России за пять лет
+-  Има опасност да бъде ампутирана и ръката на блъсната от автобус в София
+-  Fantacalcio: i migliori portieri nelle ultime 5 giornate
+-  Darıca’ya 27 yaşında teknik direktör geldi
+-  Kronos Quartet'ten İş Sanat'ta dünya prömiyeri
+-  La depuradora de Andorra será el banco de pruebas para aplicar tecnologías avanzadas en la reducción de lodos
+-  그루비룸(GroovyRoom), 선공개곡 ‘Yes or No’ 발매
+-  7 yaşındaki Miraç Miroğlu'nu ezen zırhlı aracın sürücüsü polis beraat etti
+-  Legislativas ’24 / AD: Ângela Almeida é candidata a deputada com “orgulho e determinação”
+-  Naljutite se dok igrate društvene igre? Evo kakav ste tip osobe!
