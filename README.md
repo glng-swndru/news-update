@@ -1,11 +1,11 @@
 # Latest News
--  楊聰財／選舉體驗人生 結交真心好友 創造健康人生
--  Luna a intrat într-o nouă eră. Ce este Antropocenul lunar
--  СЗО: Европа може да стане лидер в пушенето до 2030 г.
--  "Почему я плачу за бесплатные анализы?": жители Литвы возмущены тем, что каждый второй анализ - платный
--  英美籍船走紅海最危險傳保險公司避承保 保費漲了75倍
--  Sprookje ten einde: Jesper de Jong uitgeschakeld op Australian Open
--  Pläne im Strohgäu: Windräder fest im Blick
--  Лідерка «Слуги народу» відреагувала на поведінку соратників-лобістів Московської церкви у парламенті
--  Pläne im Strohgäu: Windräder fest im Blick
--  Geweld tegen kerken en christelijke scholen wordt erger
+-  Avropa Məhkəməsi Yunanıstanı mühakimə etdi: Keçi adasında nə baş vermişdi?
+-  Andreea Tonciu a chemat medicul după prima noapte la Survivor All Stars 2024: ”Migrează veninul”
+-  Israel and Hamas reach deal on medicine for hostages, aid to Gaza, Qatar says
+-  "Ça m’a ouvert des portes" : un an après son élection, Jessica Gomes revient sur son année de Reine du muguet 2023
+-  'Dit was niet handig van verliefde Nicolette Kluijver'
+-  Prof. Dr. Coşkun: Karneler çatışma konusu yapılmamalı
+-  18. yüzyılda "Bulunmaz Bursa kumaşı" olarak tabir edilen Bursa havlusu coğrafi işaret aldı
+-  İzmirli dev firmadan konkordato kararı
+-  Esnaf odasında ‘usulsüzlük’ kavgası: Birbirlerine girdiler
+-  Trade Promotion Management Software Market Growth: Global Industry Size, Share, Emerging Trends, Top Players, Demand
