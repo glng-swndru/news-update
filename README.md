@@ -1,11 +1,11 @@
 # Latest News
--  Anleger an der Börse Frankfurt schalten in den Verkaufsmodus: DAX markiert neues Jahrestief
--  Fastur inni á salerni í miðju flugi
--  Halkalı-Kapıkule arası 4 saatten 1 saat 30 dakikaya düşecek: Bakan Uraloğlu tarih verdi
--  Découvrez les tenues que porteront les athlètes français aux Jeux Olympiques de Paris
--  Vizionář z malého ostrova: Fotbal tu děti nehrají, Čech jim vystřílel titul
--  Argentina reports illex squid is back, and announces new monitoring approach along EEZ mile 201
--  Предварительный обзор Apple Vision Pro — гарнитура поразила журналистов, но есть нюансы
--  Argentina reports illex squid is back, and announces new monitoring approach along EEZ mile 201
--  מאסטר שף: עם 46% מהקולות, ירדן שועה נבחר לשחקן המצטיין של המחזור ה-16
--  Weltwirtschaftsforum: EZB-Chefin Lagarde kann sich Zinssenkung im Sommer vorstellen
+-  Eyüp Aydın daha çok süre almalı
+-  Handball: Bundesligaspiel in Bietigheim wetterbedingt abgesagt
+-  Stravična eksplozija u tvornici vatrometa: Krhotine posvuda, velik broj poginulih
+-  Por qué Epic Games dio por perdida la batalla legal contra Apple
+-  Barroso propõe debate nacional para discutir política de drogas e segurança
+-  Depremde 9 kişinin öldüğü binanın 2 katı kaçak yapılmış
+-  Un total de 186 municipios de Guadalajara contrataron 255 actuaciones en 2023 con ayuda de la Red Cultural de la Diputación
+-  Özgür Demirtaş'tan, Hülya Avşar’ın 'Fazla zenginlik insana zarar' sözlerine yanıt
+-  가수 한가빈, 웹툰 ‘사랑도 없이 결혼’ OST ‘마지막처럼 사랑했었다’ 20일 발매
+-  Grazie a questa tabella troverete la ROM perfetta per il vostro telefono Android
