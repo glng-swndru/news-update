@@ -1,11 +1,11 @@
 # Latest News
--  Cártel farmacéutico, una batalla sexenal
--  Romania international shares what Tottenham Hotspur new boy Radu Dragusin is like in training
--  Djalo Juve, perchè il portoghese non è ancora arrivato? Ecco cosa succede
--  Interview mit Frank Helmenstein: „Jetzt geht es in der Tat ans Eingemachte in Gummersbach“
--  冷えてないのに冷たい、とは？ 温感のVRで「オーロラ観光気分も」
--  Platz zum Bleiben - Wienerwaldtierheim: Diese Tiere suchen neues Zuhause!
--  ¡Pisa el freno! Hoy No Circula miércoles en CDMX y Edomex
--  Storie dimenticate: La Vigna di Leonardo da Vinci a Milano
--  Los volúmenes de los ETFs de Bitcoin alcanzan los 10.000M$
--  The science behind Chinese New Year's calendar
+-  Zygmunt Solorz-Żak przyszedł na świat pod INNYM NAZWISKIEM. Jak kiedyś nazywał się założyciel Polsatu?
+-  Data Integration Market Statistics, Size, Trends, Share, Competitive Landscape Analysis
+-  $167,000 lost to online scams through fake Facebook, Instagram ads since September 2023: Police
+-  Northern Ireland weather: Disruption expected with ice warning
+-  Canada Cracks Down on China, Russia, Iran Research Partnerships - Bloomberg
+-  VUČIĆ DANAS SA LAJČAKOM O KiM: Sastanak na marginama svetskog skupa u Davosu
+-  Découvrez si votre commune va être recensée en 2024
+-  Григорова: С 30% трябва да скочат заплатите в градския транспорт
+-  Açık kalp ameliyatı yerine 30 dakikalık operasyonla sağlığına kavuştu
+-  Cắm 1 thứ vào đất, cả điện lẫn mạng không bao giờ tắt - "Động cơ vĩnh cửu" có thật?
