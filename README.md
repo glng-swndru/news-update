@@ -1,11 +1,11 @@
 # Latest News
--  Награды ФИФА: как голосовал Петраков?
--  გლობალურ ანტიკორუფციულ საკითხებში აშშ-ის სახელმწიფო დეპარტამენტის კოორდინატორმა საქართველოში ვიზიტის ფარგლებში პირველი შეხვედრა სამოქალაქო საზოგადოების წარმომადგენლებთან გამართა
--  Džordž Kluni otkrio zašto mu je režija zabavnija od glume
--  Interrupción legal del embarazo mantiene divididos a los diputados locales
--  Стала известна сумма трансфера Винисиуса из «Реала» в «Манчестер Юнайтед»
--  Израел са унищожили още един стратегически тунел на "Хамас"
--  मधेस प्रदेश सरकारले आज स्वभिमान दिवस मनाउँदै
--  이재명, 보름 만에 당무 복귀…"공정 · 혁신 공천 통해 희망"
--  Δέλεαρ οι νέες μονάδες φυσικού αερίου στη Βόρεια Μακεδονία για τους ελληνικούς ομίλους
--  15 trains delayed as low visibility disrupts services
+-  Indústria e vendas crescem na China em 2023, mas desafios continuam
+-  Европе предрекли "одиночество" при Трампе
+-  مستشار محمد بن زايد يُبشر بإنتهاء سيطرة الحوثي على صنعاء
+-  元女子プロテニス選手・伊達公子さん、入籍2年の結婚記念日ショットを披露 イケメン夫との写真に「お似合いですね」
+-  Singapore proposes governance framework for generative AI
+-  Kanser düşmanı bir meyve
+-  Mohammed Al Sultan appointed to HSBC Qatar leadership team
+-  東京新景點+1！「麻布台之丘teamLab」2月開 門票、亮點曝光
+-  年終獎金想投資比特幣？ 平台業者建議：可採定期定額
+-  “L’Accordo con l’UE, punto di partenza per lo sviluppo del Paese”
