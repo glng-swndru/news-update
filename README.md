@@ -1,11 +1,11 @@
 # Latest News
--  台灣在巴黎奧運體操有優勢 林育信：李智凱、唐嘉鴻奪牌所繫
--  Francia: anuncian "gran plan" contra la infertilidad para subir la tasa de natalidad
--  İran, Pakistan'da füze ve İHA saldırısı düzenledi
--  С 3:0 "Юве" запази разликата от 2 т. до върха в Италия
--  "NEĆU DA PLAČEM, ZNAM DA JE MEĐU ANĐELIMA" Ceca se prisetila druženja sa Džejem, po ovome će ga pamtiti!
--  Iskusna stjuardesa otkriva: ‘Ne krećite na put bez ove stvari! Može biti čudotvorna‘
--  「覚えていない」逮捕された男（30）は容疑否認 飲酒運転で対向車線にはみ出す…82歳女性をはね死亡させた疑い
--  Poznati harmonikaš prvi put u javnosti sa devojkom: Atraktivna plavuša izgleda brutalno, sada je jasno zašto je krije od svih
--  Kendall Jenner, Hailey Bieber cheer for Los Angeles Lakers together with gal pals
--  ¿Qué significa ver el reloj a una hora exacta? Esto es lo que dice la numerología
+-  CAN 2024 : La Tunisie tombe d’entrée face à la Namibie, le Mali domine l’Afrique du Sud
+-  이준석 "尹 코리아 디스카운트 언급 환영…시장교란 세력 처벌해야"
+-  У школах Білорусі ввели новий предмет, де навчатимуть допиту полонених
+-  주차장서 5m 음주운전한 40대 상습범 항소심서 감형
+-  Problem svetskog kalibra, ne samo Srbije: Šta čeka industriju drveta, nameštaja i njihove radnike?
+-  Học sinh miền núi háo hức chờ ngày có nước nóng sinh hoạt
+-  CAN 2024 : La Tunisie tombe d’entrée face à la Namibie, le Mali domine l’Afrique du Sud
+-  LeAnn Rimes shares she underwent surgery to remove precancerous cells in cervix
+-  Woman found dead in apparent domestic attack in front of a Calgary elementary school
+-  Woman found dead in apparent domestic attack in front of a Calgary elementary school
