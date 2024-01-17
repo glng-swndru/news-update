@@ -1,11 +1,11 @@
 # Latest News
--  VOX Solutions triumphs with quintuple awards in 2023, reinforcing its commitment to innovation and excellence
--  "온몸이 하얀 펭귄"…남극서 돌연변이 포착(영상)
--  Institut za jezik: Jemenski pobunjenici su hutisti
--  ‘Jaque’ a las finanzas públicas
--  Behind the smiling face, China has softened the language but not the stance
--  正月1週間で最もポスト数を獲得したゲーム3傑は原神、FGO、ポケモン！
--  Singer-designer Pharrell Williams brings Old West style to Paris
--  بارزاني يستقبل رئيس جمهورية إستونيا في مطار أربيل
--  LRT EPIKOJE speciali Vilniaus trumpųjų filmų programa „Europos istorijos“
--  Behind the smiling face, China has softened the language but not the stance
+-  '월클 명장'에게 막무가내 월권을?…만치니 감독이 사우디 선수들을 일갈한 이유
+-  Türkiye'de geçen yıl üretilen araçların yarısından fazlası Bursa'da banttan indirildi
+-  Preminula supruga čuvenog ruskog tenisera
+-  Σοβαρή καταγγελία: «Τα επικίνδυνα αντικείμενα μπαίνουν από τους παράγοντες των ομάδων»
+-  Paridi istediğini alıyor mu?
+-  Dnes Samsung vstoupí do světa AI. Sledujte s námi premiéru řady Galaxy S24
+-  Privés de terrains en raison de la météo, comment les clubs drouais s'organisent-ils pour jouer à domicile durant l'hiver ?
+-  Zorlayıcı fark bulma mücadelesi: Çamaşır asan kadına ait iki görsel arasındaki 3 farkı 12 saniyede bulabilir misiniz?
+-  Nahost-Krise: USA könnten Huthi-Miliz wieder auf Terror-Liste setzen – Deutschland verzehnfacht Waffenlieferungen nach Israel
+-  법원, '태종이방원' 동물 학대 혐의 인정…"피해 말이 받았을 고통"
