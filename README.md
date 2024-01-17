@@ -1,11 +1,11 @@
 # Latest News
--  “LDF, UDF have history of scams, BJP has track record of fast-paced development”: PM Modi in Kerala
--  “Lost in world of thesaurus”: Scindia hits back at Tharoor over criticism on Delhi airport chaos; debunks claims
--  “NITI Aayog is the drumbeater of PM Modi…” Congress’ Jairam Ramesh after poverty report
--  US Winter Storm: Millions face below-zero temperature, 14 dead
--  Neerja - Ek Nahi Pehchaan: Neerja Unveils Didun and Trisha's Sinister Plan
--  Weight loss influencer, Mila De Jesus, passes away at 35
--  Ahead of 'Fighter' release, Deepika Padukone praises Vikrant Massey's '12th Fail': 'Congratulations to...'
--  Israel kills Nablus terror leader Abdullah Abu Shalal
--  State commissions training facility for women’s prison
--  Hit your 2024 exercise goals with these VR fitness apps and games
+-  台灣在巴黎奧運體操有優勢 林育信：李智凱、唐嘉鴻奪牌所繫
+-  Francia: anuncian "gran plan" contra la infertilidad para subir la tasa de natalidad
+-  İran, Pakistan'da füze ve İHA saldırısı düzenledi
+-  С 3:0 "Юве" запази разликата от 2 т. до върха в Италия
+-  "NEĆU DA PLAČEM, ZNAM DA JE MEĐU ANĐELIMA" Ceca se prisetila druženja sa Džejem, po ovome će ga pamtiti!
+-  Iskusna stjuardesa otkriva: ‘Ne krećite na put bez ove stvari! Može biti čudotvorna‘
+-  「覚えていない」逮捕された男（30）は容疑否認 飲酒運転で対向車線にはみ出す…82歳女性をはね死亡させた疑い
+-  Poznati harmonikaš prvi put u javnosti sa devojkom: Atraktivna plavuša izgleda brutalno, sada je jasno zašto je krije od svih
+-  Kendall Jenner, Hailey Bieber cheer for Los Angeles Lakers together with gal pals
+-  ¿Qué significa ver el reloj a una hora exacta? Esto es lo que dice la numerología
