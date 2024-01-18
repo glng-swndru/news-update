@@ -1,11 +1,11 @@
 # Latest News
--  Владимир Путин сообщил, что проведёт встречу с доверенными лицами
--  Analiza meča Đoković - Popirin: Mentalna gromada Novak, mogao je još jednu rundu - i to van terena
--  "Plus de 1.000 formations": Studyrama organise deux salons de l’orientation ce vendredi et samedi, à Nice
--  Karneval 2024 in Recklinghausen: Die Party- und Sitzungshighlights im Überblick
--  Tayland’da havai fişek fabrikasında patlama!
--  Snowfall causes school closures across Metro Vancouver, Vancouver Island
--  Researchers capture plants' invisible airborne communication on video
--  Elektroauto Omoda 5 EV kommt nach Deutschland
--  Η UEFA θυμήθηκε τα «μαγικά» του Μέσι στο ΟΑΚΑ
--  Posez vos questions à l'attaquant auxerrois Florian Ayé, invité de notre prochain podcast Déb'AJA !
+-  2024-ben törhet le a brutális áremelkedés szarva
+-  Przyjaciel jednej z ofiar tragicznego wypadku w Wodzisławiu przerywa milczenie. Ma ważny apel
+-  ¿Quién es Isaac del Toro, el mexicano que ganó el Tour de l’Avenir?
+-  Graffiti in Frauenwald: Unbekannte verschandeln Denkmal
+-  Adelsheimer Autorin veröffentlicht neues Kinderbuch
+-  ОД 13 ФЕВРУАРИ ЌЕ РАЗМИСЛУВАМЕ КАКО ДА ИМ ПОМОГНЕМЕ НА ГРАЃАНИТЕ КОИ НЕ УСПЕАЛЕ ДА ИЗВАДАТ ПАСОШ - Османи порачува дотогаш да се стегнеме да ги исполниме обврските
+-  В Британии признали уничтожение Россией украинского ВПК
+-  Knöllchen für CMT-Besucher: Wildes Parken rund um Messe kostet 55 Euro
+-  İnsan Hakları Derneği, Akan Kürşat'ın serbest bırakılmasını istedi
+-  23 maut kilang bunga api meletup di Thailand
