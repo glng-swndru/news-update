@@ -1,11 +1,11 @@
 # Latest News
--  Barack Obama se declara a Michelle, que completa 60 anos: 'minha metade'
--  Fed Bej Kitap: Ekonomik aktivite kasımdan bu yana "çok az" değişti
--  RD Congo – Zambie : un but partout à la mi-temps !
--  Srce da prepukne! Sin Dejana Milojevića se ovim rečima oprostio od oca
--  Sprūds: Nesteigšos apgalvot, ka Latvija noteikti izstāsies no Otavas konvencijas
--  Ščotka dal kredit gólmanům: Jsou jiní. Za Holík jsme rádi, přejeme mu
--  Най-доброто от "Домът на футбола" (17.01.2024)
--  Coronation Street spoilers: Adam Barlow seals Damon Hay’s fate after another crushing blow – with help from a dark source
--  Izzivi leta za Mercedes: v Slovenijo pripeljali prvi adut #video
--  "점유율 20% 간다"…삼성 파운드리 3나노 수율 상향 '총력전'
+-  Pravosudna tempirana bomba: Suci prijete novim bijelim štrajkom, USKOK nema šefa, DORH bira novog...
+-  İngiltere Kralı Charles hastaneye yatırılacak
+-  VanEck wird seinen Bitcoin Strategy ETF auflösen
+-  Pendirlə bağlı ŞOK XƏBƏRDARLIQ
+-  Who plays Shane Oman in the 2024 Mean Girls?
+-  Турска лира - лев. Колко струва една турска лира към един български лев днес, 18 януари /валутен калкулатор/
+-  Iran observes decrease in air travels
+-  «Торонто» обменял Сиакама в «Индиану»
+-  Salernitana, Zanoli si presenta: "Sono carico, darò il massimo". Poi il messaggio ai tifosi
+-  İsrailli yetkili: HAMAS sonrasını konuşmak için erken
