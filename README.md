@@ -1,11 +1,11 @@
 # Latest News
--  2024-ben törhet le a brutális áremelkedés szarva
--  Przyjaciel jednej z ofiar tragicznego wypadku w Wodzisławiu przerywa milczenie. Ma ważny apel
--  ¿Quién es Isaac del Toro, el mexicano que ganó el Tour de l’Avenir?
--  Graffiti in Frauenwald: Unbekannte verschandeln Denkmal
--  Adelsheimer Autorin veröffentlicht neues Kinderbuch
--  ОД 13 ФЕВРУАРИ ЌЕ РАЗМИСЛУВАМЕ КАКО ДА ИМ ПОМОГНЕМЕ НА ГРАЃАНИТЕ КОИ НЕ УСПЕАЛЕ ДА ИЗВАДАТ ПАСОШ - Османи порачува дотогаш да се стегнеме да ги исполниме обврските
--  В Британии признали уничтожение Россией украинского ВПК
--  Knöllchen für CMT-Besucher: Wildes Parken rund um Messe kostet 55 Euro
--  İnsan Hakları Derneği, Akan Kürşat'ın serbest bırakılmasını istedi
--  23 maut kilang bunga api meletup di Thailand
+-  Mit der Regel „2 und dann 30“ Menschenleben retten
+-  Made A Mark With A Side Role In Ballika Vadhu 15 Years Ago; Deepika, Anushka, Politicians And Businessman Are His Fans Today...
+-  Kate, prințesa de Wales, a fost internată în spital pentru o intervenție chirurgicală
+-  Rogers family's two members to retire from telecom giant's board
+-  O predlogu zakona o elektronskim komunikacijama sljedeće sedmice
+-  Mit der Regel „2 und dann 30“ Menschenleben retten
+-  Area schools receive bomb threat Tuesday in email hoax
+-  Колата, блъсната край Трявна, пресякла релсите въпреки сигнала за идващ влак
+-  Bafög für Studierende: Unerfüllte Versprechen der Ampel
+-  Михаил Касабов внесе документи за вписването си като президент на БФС
