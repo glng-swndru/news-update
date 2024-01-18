@@ -1,11 +1,11 @@
 # Latest News
--  PSTN switch-off threatens access to adult social care services
--  Neujahrsempfang - 2023: Hilfe im eigenen Land unterstützte NÖ mit 416.000 Euro
--  Красимир Балъков подкрепи Георги Василев за почетен гражданин на Велико Търново - Труд
--  24 milli sporcu 4. Kış Gençlik Olimpiyatları'nda ter dökecek
--  Uwaga na godzinę meczu Huberta Hurkacza! Bardzo duże opóźnienie
--  Turen går till Skövde
--  मिर्चैया नगरपालिकाबाटै राहदानी सेवा
--  В МИД РФ не ожидают контактов Лаврова с Блинкеном на "полях" мероприятий в США
--  Felicita a tu amiga Prisca con el santoral católico del 18 de enero
--  Alliances over blood ties? Imee Marcos traces roots of rift with cousin Martin Romualdez
+-  Betrug in Herten: Seniorin fällt auf falschen Handwerker herein und wird bestohlen
+-  बलाड़ तीर्थ में किया पक्षीदाना का वितरण
+-  Một cái tên 'lạ hoắc' bất ngờ lọt top 5 hãng smartphone khủng nhất thế giới 2023, có gì mà cho Oppo 'ngửi khói', chiếm ngôi của vivo?
+-  Latvijas slavenākais sieviešu pāris atklāj, kāda ir dzīve pēc kāzām
+-  Neues Bistro im Rathaus: Inklusions-Betrieb bietet belegte Brötchen und warmen Mittagstisch
+-  Hochwasser-Fazit von Waltroper Feuerwehr und THW: „Wir haben viele Leute vor Schaden bewahrt“
+-  Tennis: Australian Open, Paolini al terzo turno, Trevisan ko
+-  ABD'de yoğun kar yağışı ve soğuk: 6 günde 21 kişi öldü
+-  “Sadece Samsung yapabilir”: Karşınızda giyilebilir Galaxy Ring!
+-  Rätselhaftes Loch: Auf der Suche nach der Ursache des Tagesbruchs in Datteln
