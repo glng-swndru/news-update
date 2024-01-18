@@ -1,11 +1,11 @@
 # Latest News
--  Jail for Nairn man who sexually abused girl (13) in Moray
--  Immobilier. Prêt : cinq infos qui vont donner le sourire aux emprunteurs en 2024
--  Jail for Nairn man who sexually abused girl (13) in Moray
--  I always greet a new bike with mixed emotions
--  Another Hollyoaks death twist as major character plots violent murder
--  PRETUKAO ĆERKU DO SMRTI, PA JE BACIO U ŠUMU Otac tvrdio da je nevin, a onda je sam sebi dao doživotnu: "To su lažne suze"
--  Kinder haben sieben bis acht Erkältungen pro Jahr
--  Kinder haben sieben bis acht Erkältungen pro Jahr
--  「気難しい部下」を持った上司が、絶対にやってはいけないNG行動とは？ - デキる上司の「結果を出す技術」
--  KAUA VÕIB?! ⟩ Keskkonnateenuste saamatus Ida-Saaremaa prügiveol lõi vallajuhtidel lõpuks kupli pealt
+-  EastEnders spoilers: The Six’s fate ‘sealed’ as struggling ‘killer’ spirals out of control
+-  Israel profundiza sus ataques contra Gaza, donde se esperan medicamentos para rehenes
+-  Donald Trump, mahkeme salonundan çıkarılmakla tehdit edildi
+-  Николай Денков от Давос: Трябва да се стремим да опазим мира
+-  Agata Sieramska prezentuje wyrzeźbioną sylwetkę, pozując w mikroskopijnym bikini (FOTO)
+-  When Superman and Batman Copyrights Expire in a Decade, Will It Be Kryptonite for DC?
+-  コマツ・三菱重工の年収、恵まれた世代は？勝ち組世代が異なった2社【5世代20年間の推移を初試算】 - どの世代が損をしたか？氷河期部長＆課長の憂鬱 出世・給料・役職定年
+-  Weer blessuredrama voor Ryan Thomas, Mexico ziet af van Zomerspelen 2036
+-  Emmerdale spoilers: Cathy’s heartbreaking reason over funeral request as Bob loses it
+-  Kardeşini göğsünden bıçaklamıştı, tutuklandı
