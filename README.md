@@ -1,11 +1,11 @@
 # Latest News
--  Animes, Mangas, Cosplay: AniMaCoon in der Stadtbücherei Rendsburg
--  Mercado Sporting: A percentagem de Koindredi que o leão quer
--  Snökaos i norr – flygplats stänger
--  Rektör Savaş final haftasında öğrencilere çorba ikramı
--  HLV Shin Tae-yong: 'Indonesia phải thắng Việt Nam'
--  U19 Men’s Cricket World Cup: India’s record, schedule and new format – All you need to know
--  Top Headlines at 2 pm: PM unveils postal stamp on Lord Ram, Arvind Kejriwal skips ED summons, Bilkis Bano convicts seek time to surrender
--  NTT DATA Business Solutions is recognized as a Global Top Employer 2024
--  Xankəndidəki erməni evləri kimlərə veriləcək?
--  FC Porto: Bozeník depende de Toni Martínez
+-  El Presidente se reunió con la titular del FMI: «Voy a cumplir con lo que prometí»
+-  Egy évfordulós cikk margójára
+-  임혁백 민주당 공관위원장 “50만명 국민 의견 물어서 공천 기준 정할 것”
+-  احتفالية "أوناحي" تقسم آراء المتابعين.. فمن المقصود بـ"حركته الاحتفالية"؟
+-  Първи случай на вирусен менингит в Монтанско
+-  Magdalena Filiks usłyszała w Sejmie ostre słowa od posłanki PiS. Teraz prosi o poradę Giertycha
+-  Ορίστηκαν τα μέλη του νέου Διοικητικού Συμβουλίου της ΔΕΥΑΝ, πρόεδρος ο Νίκος Δ. Κουτσογιάννης
+-  Ankara'da bıçaklı saldırıya uğrayan kişi öldü!
+-  Kiper Manchester City Ederson Moraes Menerima Penghargaan The Best FIFA Football Awards
+-  НХЛ: Монреаль здолав Нью-Джерсі, Детройт - Флориду
