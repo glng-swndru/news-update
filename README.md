@@ -1,11 +1,11 @@
 # Latest News
--  19日雲多く3月並みの気温 明け方は雨の降る所も 週末は天気崩れる【静岡・ただいま天気 1/18】
--  FOTBOLL PÅ SLÄTTEN: Hört och hänt i lokala fotbollen
--  Reuniones anuales del BID 2024 serán en República Dominicana
--  Unia Europejska bierze się za streaming muzyki. Artyści i twórcy muzyczni mają teraz zarabiać więcej pieniędzy
--  K novým obzorům: Turismo Andalucía a Huawei společně lákají čínské cestovatele
--  Při sportu zvaném ‚gólbal‘ musí být fanoušci potichu, popisuje předseda paralympijského výboru Sýkora
--  FS: Daňové subjekty po upozornení priznali dodatočne vyše 2,3 mil. eur
--  ارتفاع أسعار النفط بفضل توقعات أوبك للطلب وطقس بارد يؤثر على الإنتاج الأمريكي
--  Tullogher Rosbercon manager Michael Doyle reflects on All-Ireland Junior title triumph
--  Couple ‘sits in urine’ during 10-hour flight, co-passenger later finds kid’s underwear under seat
+-  Два человека пострадали в Саранске при пожаре в мебельном цеху
+-  Pakistani retaliatory strikes in Iran kill at least 9, raising tensions along border
+-  Kurtulus Öztürk hat neuen Verein gefunden: Es geht zu einem Top-Team der Westfalenliga 2
+-  Bajatović: Potrošnja oko praznika istorijska, snabdevanje gasom stabilno
+-  SA hefur ekki slitið viðræðum við breiðfylkinguna
+-  Na Jednotke sa bude znovu variť, RTVS predstavila novú kulinársku šou
+-  ערבי איים על רועה צאן יהודי וחיילים במכוש – ושוחרר כעבור שעות בודדות
+-  고양시 일산동구 이면도로 30m 균열…긴급 점검 뒤 통행 재개
+-  Jimmy's Jazz & Blues Club Features 5x-GRAMMY® Award Nominated & 7x-Blues Music Award-Winning ROOMFUL OF BLUES on Wednesday February 7 at 7:30 P.M.
+-  Promovisana knjiga "Dođi da mostarimo zajedno"
