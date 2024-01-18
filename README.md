@@ -1,11 +1,11 @@
 # Latest News
--  Im Reich der Götter - Reisegruppe mit Treuchtlingern und Weißenburgern in Nepal unterwegs
--  Chatbots « toxiques » : quand les compagnons virtuels se retournent contre leurs utilisateurs
--  Hansı universitetlər paytaxtdan KÖÇÜRÜLƏCƏK?
--  86세에 SNS 스타 된 '양들의 침묵' 안소니 홉킨스…"고달픈 삶에 웃음 필요해"
--  Jasmine Curtis-Smith, inilahad kung bakit matagal nawala sa TV
--  Готовность ФОКа игровых видов спорта в Пензе составляет 80%
--  Bivši snajperist HV-a dobio 20 godina zatvora. Ubio dva mladića na parkingu hotela
--  В Туапсе из-за собственной невнимательности подросток оказался под колёсами иномарки
--  이재명, 복귀 1호 공약은 ‘저출생’...“셋째, 1억 현금 지원”
--  SEDDK, Sigorta ve Reasürans Brokerleri Yönetmeliğinde değişikliğe gitti
+-  Everton buyers had tour of new Bramley-Moore Dock stadium y'day amid takeover update - report
+-  Ötən il 8 min insanın müraciətinə baxılıb
+-  Telefónica emite bono verde por 1.750 millones de euros
+-  Çağdaş'ın Perileri Konya'da vizeyi aldı
+-  Çanakkale'de tarihi mezarlık harabeye döndü
+-  6 أسباب تبرر الفوائد الصحية لتناول عصير الكرفس
+-  Media: Bodnar podjął decyzję ws. pobytu Kamińskiego i Wąsika w więzieniu
+-  La CNMV autoriza la OPA de Apollo sobre Applus+
+-  USU Sediakan 7.505 Kursi di SNPMB 2024, Ada Jalur Tambahan Prestasi Unggul
+-  Buongiorno Milan, Cairo gela i rossoneri: «A gennaio non lo vendo. E lui ha questo desiderio»
