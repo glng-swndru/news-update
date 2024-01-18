@@ -1,11 +1,11 @@
 # Latest News
--  Tallinna börs langes pea pool protsenti
--  Exosome Research Market Worth $356 Million | MarketsandMarkets™
--  Widespread snow causing havoc in many parts of southern B.C.
--  Yfirgaf herbúðir Senegals til að vera við útför föður síns
--  Israel v the ICJ: a waste of time?
--  Confirma Rui Oliveira nas manhãs mas Siopa diz que vai continuar no programa
--  De Boinville poised for return in time to ride Jonbon at Ascot
--  Widespread snow causing havoc in many parts of southern B.C.
--  Université, Santé, PME/PMI : Mamoudou Ba, porte-parole des premiers engagements de TAS et la RV
--  Changing words not solving problems
+-  Fenerbahçe - Galatasaray Süper Kupa maçı orada mı oynanacak?
+-  Wednesday morning First Alert Weather forecast
+-  Wotum nieufności wobec Bartłomieja Sienkiewicza. Posłowie zdecydowali
+-  Novi danski kralj iznenadio javnost potezom samo nekoliko dana stupanja na prijestolje: "Ja sam takav kakav sam"
+-  Wotum nieufności wobec Bartłomieja Sienkiewicza. Posłowie zdecydowali
+-  Dans les coulisses d'un accrochage à la galerie In Situ avec des élèves du lycée Rémi-Belleau de Nogent-le-Rotrou
+-  Bye Bye Brain Fog: Amazon Bestseller Offers Tips for a Revolutionary 2024
+-  Στην Αίγυπτο τα αεροσκάφη που μεταφέρουν ανθρωπιστική βοήθεια στη Γάζα
+-  Британский король Карл III проходит лечение из-за увеличенной простаты
+-  Sobre as críticas de Maria Vieira: "Fiquei todo contente"
