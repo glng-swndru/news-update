@@ -1,11 +1,11 @@
 # Latest News
--  Saadet Partisi'nin 48 bölgede adayları belli oldu
--  Παράταση ημερομηνίας υποβολής αιτήσεων για τις θέσεις Αποσπάσεων για το σχολικό έτος 2024-2025
--  Osnabrück hält ab Mitte 2024 öffentliche Parkplätze für Carsharing-Autos frei
--  Ärger in Ludwigsburg: Klinikendirektorin wirft das Handtuch
--  Περιπέτεια Μπλίνκεν σε Boeing 737 στο Νταβός: Το αεροσκάφος κρίθηκε μη ασφαλές
--  Samsung presentó sus tres nuevos modelos: Galaxy S24 Ultra, Galaxy S24+ y Galaxy S24
--  Sakarya'da iki otomobil kafa kafaya çarpıştı: 1 ölü, 2 yaralı
--  США вернули хуситам статус международной террористической организации
--  Gelinim Mutfakta’da çeyrek altını kazanan belli oldu! Haftanın üçüncü çeyreği o gelinin: İşte 17 Ocak puan durumu
--  Apakah Mi Ayam Lebih Sehat Daripada Mi Instan? Ketahui Kandungan Gizinya
+-  Ministar Dačić razgovarao sa predsednikom Vlade DR Sao Tome i Prinsipe (FOTO)
+-  (ВИДЕО) ОД УКРАИНСКОТО БОЈНО ПОЛЕ: Дали е ова најдоброто оружје на украинската пешадија?
+-  Didim Belediyesi'nden şehitler için lokma hayrı
+-  Бойко Борисов: България и Великобритания винаги са били близки партньори във сферата на сигурността - Труд
+-  „Warriors“ trenerio asistentą ištiko infarktas, atidėtos klubo rungtynės
+-  Бойко Борисов: България и Великобритания винаги са били близки партньори в сферата на сигурността - Труд
+-  DRI: Na sjednicu o rodnom budžetiranju pozvati i predstavnike UN...
+-  Tóth Andi kendőzetlen őszinteséggel mondta el véleményét Tóth Gabiról
+-  Москвич получил шесть лет колонии за обман пенсионерки на 10 миллионов рублей
+-  Tod von Mouhamed Dramé in Dortmund: Getöteter 16-Jähriger nach Schüssen mit Handschellen gefesselt?
