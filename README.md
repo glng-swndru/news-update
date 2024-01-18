@@ -1,11 +1,11 @@
 # Latest News
--  Георгиев: В бюджета на София не е предвиден скок на заплатите на шофьорите
--  Panevėžyje planuojami automobilių stovėjimo pokyčiai: atsiras zonos, keisis rinkliavos dydžiai
--  Gupse Özay, Barış Arduç ile olan aşk hikayesini anlattı
--  Vanessa Hinz und Konstantin Schad als Athletenvorbilder bei Winter Youth Olympic Games
--  ハトひき殺したとして逮捕、タクシー運転手の男性を不起訴処分
--  충북도, 중부내륙특별법 개정 본격 시동…"21대 국회 발의 목표"
--  Coppa d'Africa, oggi 8 "italiani" chiamati in causa. Costa d'Avorio-Nigeria, il big match
--  KRISTINA (18) NESTALA PRED NOVU GODINU, TELO PRONAŠLI U SNEGU: Povezla muškarca, on joj bacio pojas oko vrata i ZADAVIO JE!
--  Drame en NBA : L’entraîneur adjoint des Warriors décède tragiquement
--  Đức thừa nhận thiệt hại kinh tế khi từ chối nhập khẩu khí đốt Nga
+-  Environmental Protection Notice - Quadra Wood Products Ltd.
+-  受験生と「ライジングゼファー」応援イベント 勝利を目指して巨大絵馬にメッセージ ＪＲ博多駅
+-  Tiết lộ đầu tư 'khủng' của Samsung vào trung tâm sản xuất chip lớn nhất thế giới
+-  SA svarar yfirlýsingu breiðfylkingarinnar
+-  ট্রাম্পকে আদালত থেকে বের করে দেওয়ার হুমকি বিচারকের
+-  El regreso de las cuasimonedas: efecto en inflación, devaluación, las diferencias con el 2001 y por qué puede haber más
+-  Temperley está por cerrar dos nuevos refuerzos para la Primera Nacional
+-  Những lý do khiến Galaxy A trở thành dòng điện thoại được tin dùng hàng đầu
+-  Google CEO'su Sundar Pichai, bu sene daha fazla işten çıkarma olacağını söyledi
+-  レッドブルF1代表 RBPTエンジンプロジェクトは「うまくいくと確信」
