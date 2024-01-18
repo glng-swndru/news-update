@@ -1,11 +1,11 @@
 # Latest News
--  因應新國會 政院今提內閣總辭
--  Upgrades proposed for Seppeltsfield Road
--  US woman gets 26 years in prison for helping kill her mother in Bali and stuffing body in a suitcase
--  學者︰中國下一步恐擴大中止ECFA
--  Despacho tomado, barritas proteicas y funcionarios sin nombre: los entretelones de las negociaciones
--  OM : Réunion au sommet avec McCourt
--  Bonucci vince ancora con il Fenerbahce: 6-0 in Coppa di Turchia al debutto da titolare
--  民歌彩排曲目已定 半數歌手掛病號
--  Atico Reports 2023 Fourth Quarter and Full Year Production Results
--  4.4M uninsured Canadians won’t get federal dental coverage: report
+-  Vasa zanemeo: Dobri moj Deki...
+-  屋根をわざと壊し「工事が必要」とウソ…“リフォーム詐欺”で社長ら7人逮捕 契約めぐる「勧誘マニュアル」も押収 警視庁
+-  Barcelona zrewanżowała się Realowi za ostatnie El Clasico. Niewiarygodna seria [WIDEO]
+-  Desembargador no Pará recebeu R$ 856 mil em dezembro
+-  Barcelona zrewanżowała się Realowi za ostatnie El Clasico. Niewiarygodna seria [WIDEO]
+-  Danuta Holecka przywołuje w TV Republika prześmiewczą akcję szydzącą z Donalda Tuska. Nazwała Marka Czyża "funkcjonariuszem neo-TVP"
+-  Receita anula isenção tributária para líderes religiosos
+-  Οι Χούθι λένε ότι έπληξαν αμερικανικό φορτηγό πλοίο στον Κόλπο του Άντεν και κλιμακώνουν τις απειλές
+-  Ontario family kidnapped, robbed in South Africa | CTV News - CTV News Toronto
+-  Talijani u borbi protiv vlasnika koji ne kupe za svojim psima smislili nešto genijalno, Hrvati se tome podsmjehivali
