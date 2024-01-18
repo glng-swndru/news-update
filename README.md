@@ -1,11 +1,11 @@
 # Latest News
--  Betrug in Herten: Seniorin fällt auf falschen Handwerker herein und wird bestohlen
--  बलाड़ तीर्थ में किया पक्षीदाना का वितरण
--  Một cái tên 'lạ hoắc' bất ngờ lọt top 5 hãng smartphone khủng nhất thế giới 2023, có gì mà cho Oppo 'ngửi khói', chiếm ngôi của vivo?
--  Latvijas slavenākais sieviešu pāris atklāj, kāda ir dzīve pēc kāzām
--  Neues Bistro im Rathaus: Inklusions-Betrieb bietet belegte Brötchen und warmen Mittagstisch
--  Hochwasser-Fazit von Waltroper Feuerwehr und THW: „Wir haben viele Leute vor Schaden bewahrt“
--  Tennis: Australian Open, Paolini al terzo turno, Trevisan ko
--  ABD'de yoğun kar yağışı ve soğuk: 6 günde 21 kişi öldü
--  “Sadece Samsung yapabilir”: Karşınızda giyilebilir Galaxy Ring!
--  Rätselhaftes Loch: Auf der Suche nach der Ursache des Tagesbruchs in Datteln
+-  RDC: dans l'Est du pays, en proie à de violents affrontements, la population lasse du «tourisme armé»
+-  Dragan Popović novi stečajni upravnik u „Vektra Jakić“ DOO Pljevlja
+-  Zanders joins the Nomentia Partner Network as an Implementation Partner
+-  "Двайсет години по-късно" от Чарли Донли - динамичен трилър от едно от големите нови имена в съспенса
+-  사다리 타고 침입해 성폭행한 50대… 2심서도 ‘징역 8년’
+-  Sürpriz bozuldu: AK Parti'nin Ankara adayını Erdoğan'dan önce açıkladı
+-  世界文化遺産・三重津海軍所跡にちなんだ「かるた大会」が開催【佐賀県】
+-  All educational certificates of TU to be provided online
+-  Loạt xe gầm cao giảm giá mạnh dịp cận Tết
+-  Why I’m Not Interested In Dating Asake – Tems Reveals
