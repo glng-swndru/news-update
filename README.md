@@ -1,11 +1,11 @@
 # Latest News
--  ‘There’s an art to it’ - Pundit waxes lyrical over ‘really good’ Everton ace v Crystal Palace
--  台湾の山奥で聞いた「玉音放送」 象徴にふさわしい皇位継承とは
--  昼寝の時間に押し入れの中で犯行に及んだか…保育士の26歳男を逮捕 女の子に性的暴行加えスマホで撮影した疑い
--  “Senhor Biden, lhe responsabilizo pela morte de minha mãe”
--  Meet ReTro, the First Cloned Rhesus Monkey to Reach Adulthood
--  Sportski svet u suzama! Opraštaju se NBA zvezde i oni koji ga nisu poznavali (FOTO GALERIJA)
--  Princess of Wales has surgery, King next for hospital
--  IMF chief says China's GDP growth "good news" for world
--  Kunnen de amateurs van Hercules opnieuw stunten? Bekijk het programma en alle uitslagen in KNVB-beker
--  مستجدات استئناف متابعة متهم باختلاس 4 ملايين درهم بإحدى الشركات بمراكش
+-  Copilot With Microsoft 365 Is Finally Available to Everyone
+-  Court documents underscore Meta's "historical reluctance" to protect children on Instagram
+-  I, Too, Would Be Pissed If Pauly Shore Was Playing Me in a Biopic
+-  특허청-네이버, 온라인 지식재산 교육 협약 체결
+-  Trial begins for Flossmoor man charged in 2013 kidnapping and sexual assault of 6-year-old Homewood girl
+-  대덕구 '온실가스감축인지예산서' 세 번째 발간
+-  [사진뉴스] 코레일·KR·SR, 개인정보 보호 합동 캠페인 추진
+-  [본사손님] 이재훈(한국거래소 대전혁신성장센터장) 씨
+-  Ariana Grande: Ihr neues Album kommt bereits Anfang März
+-  U.S. stocks end lower amid higher Treasury yields
