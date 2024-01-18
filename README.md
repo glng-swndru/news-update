@@ -1,11 +1,11 @@
 # Latest News
--  Romano: Najubojitiji Hrvat ima ponude iz čak pet liga. Sigurno odlazi iz Benfice
--  Sports scoreboard for Wednesday, Jan. 17, 2024
--  Romano: Musa ima ponude iz četiri lige Petice i MLS-a. Sigurno odlazi iz Benfice
--  黃嘉千罕吐心聲「官司花太多錢」 公開被嗆：異國婚分手代價高
--  Sports scoreboard for Wednesday, Jan. 17, 2024
--  Kayseri'de deprem!
--  OPREZNO VOZITE ZBOG MAGLE I POLEDICE Snega ima najviše na ovom putu
--  Präventionssport in Oberstenfeld: Für mehr Trittsicherheit – bis ins hohe Alter
--  指派王柏融當台鋼隊長 洪總對資深球員有交代
--  Sumqayıtda yataqxanadakı yanğının miqyası
+-  सीएम से लेकर पीएम तक हर कोई इस मिठाई का दीवाना! जानें लोकेशन
+-  Pakistan podnikol útoky proti militantom v Iráne, hlásia odtiaľ sedem obetí
+-  POLL: Do you think Reform UK has a chance at the next general election? Vote here
+-  'He is thoroughly deserving of this honour' - O'Mahony the obvious choice as Ireland captain
+-  Η ΕΕ δεν θα χαρακτηρίσει τους Χούθι «τρομοκρατική» οργάνωση
+-  ‘나를 잊지 말아요’ 물망초 모티브 납북자 상징 의상, 내달 ‘서울패션위크’서 첫 공개
+-  '사운드 오브 프리덤', '미션7' 제친 화제작…제작비 대비 1700% 수익
+-  Liam Neeson dreht in Australien - Set in Nepal verwandelt
+-  Afyonkarahisar'da uyuşturucu operasyonunda 1 kişi tutuklandı
+-  Se in Veneto, sul fine vita, ha perso la pietà e ha vinto la prepotenza
