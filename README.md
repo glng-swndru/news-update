@@ -1,11 +1,11 @@
 # Latest News
--  Ministar Dačić razgovarao sa predsednikom Vlade DR Sao Tome i Prinsipe (FOTO)
--  (ВИДЕО) ОД УКРАИНСКОТО БОЈНО ПОЛЕ: Дали е ова најдоброто оружје на украинската пешадија?
--  Didim Belediyesi'nden şehitler için lokma hayrı
--  Бойко Борисов: България и Великобритания винаги са били близки партньори във сферата на сигурността - Труд
--  „Warriors“ trenerio asistentą ištiko infarktas, atidėtos klubo rungtynės
--  Бойко Борисов: България и Великобритания винаги са били близки партньори в сферата на сигурността - Труд
--  DRI: Na sjednicu o rodnom budžetiranju pozvati i predstavnike UN...
--  Tóth Andi kendőzetlen őszinteséggel mondta el véleményét Tóth Gabiról
--  Москвич получил шесть лет колонии за обман пенсионерки на 10 миллионов рублей
--  Tod von Mouhamed Dramé in Dortmund: Getöteter 16-Jähriger nach Schüssen mit Handschellen gefesselt?
+-  EU ofrece 5 mdd de recompensa por información del narcotraficante 'Chuy González'
+-  Μακρόν: Η Ρωσία δεν μπορεί και δεν πρέπει να νικήσει στην Ουκρανία,
+-  ABD Dışişleri Bakanı Blinken'ın uçağı arızalandı
+-  Apple passed Samsung as world’s top phone maker in 2023
+-  Не поверите — яйца подешевели. А еще курятина, свинина и билеты на самолет
+-  Apple passed Samsung as world’s top phone maker in 2023
+-  Langlauf-Weltcup: Schneechaos: Norweger können nicht fliegen
+-  Хави: «Когда меня приглашали, назвали целью 4-е место, а «Барса» стала 2-й. В прошлом году выиграли Ла Лигу и Суперкубок – перевыполнили задачи»
+-  الشرقية تعلن وظائف هندسية شاغرة.. الشروط وطريقة التقديم
+-  İklim krizinde son nokta... Bilim insanlarını endişelendiren araştırma ortaya çıktı
