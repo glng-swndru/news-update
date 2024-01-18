@@ -1,11 +1,11 @@
 # Latest News
--  Everton buyers had tour of new Bramley-Moore Dock stadium y'day amid takeover update - report
--  Ötən il 8 min insanın müraciətinə baxılıb
--  Telefónica emite bono verde por 1.750 millones de euros
--  Çağdaş'ın Perileri Konya'da vizeyi aldı
--  Çanakkale'de tarihi mezarlık harabeye döndü
--  6 أسباب تبرر الفوائد الصحية لتناول عصير الكرفس
--  Media: Bodnar podjął decyzję ws. pobytu Kamińskiego i Wąsika w więzieniu
--  La CNMV autoriza la OPA de Apollo sobre Applus+
--  USU Sediakan 7.505 Kursi di SNPMB 2024, Ada Jalur Tambahan Prestasi Unggul
--  Buongiorno Milan, Cairo gela i rossoneri: «A gennaio non lo vendo. E lui ha questo desiderio»
+-  PSTN switch-off threatens access to adult social care services
+-  Neujahrsempfang - 2023: Hilfe im eigenen Land unterstützte NÖ mit 416.000 Euro
+-  Красимир Балъков подкрепи Георги Василев за почетен гражданин на Велико Търново - Труд
+-  24 milli sporcu 4. Kış Gençlik Olimpiyatları'nda ter dökecek
+-  Uwaga na godzinę meczu Huberta Hurkacza! Bardzo duże opóźnienie
+-  Turen går till Skövde
+-  मिर्चैया नगरपालिकाबाटै राहदानी सेवा
+-  В МИД РФ не ожидают контактов Лаврова с Блинкеном на "полях" мероприятий в США
+-  Felicita a tu amiga Prisca con el santoral católico del 18 de enero
+-  Alliances over blood ties? Imee Marcos traces roots of rift with cousin Martin Romualdez
