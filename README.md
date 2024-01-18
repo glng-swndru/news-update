@@ -1,11 +1,11 @@
 # Latest News
--  Два человека пострадали в Саранске при пожаре в мебельном цеху
--  Pakistani retaliatory strikes in Iran kill at least 9, raising tensions along border
--  Kurtulus Öztürk hat neuen Verein gefunden: Es geht zu einem Top-Team der Westfalenliga 2
--  Bajatović: Potrošnja oko praznika istorijska, snabdevanje gasom stabilno
--  SA hefur ekki slitið viðræðum við breiðfylkinguna
--  Na Jednotke sa bude znovu variť, RTVS predstavila novú kulinársku šou
--  ערבי איים על רועה צאן יהודי וחיילים במכוש – ושוחרר כעבור שעות בודדות
--  고양시 일산동구 이면도로 30m 균열…긴급 점검 뒤 통행 재개
--  Jimmy's Jazz & Blues Club Features 5x-GRAMMY® Award Nominated & 7x-Blues Music Award-Winning ROOMFUL OF BLUES on Wednesday February 7 at 7:30 P.M.
--  Promovisana knjiga "Dođi da mostarimo zajedno"
+-  Pendarovski: Za stabilnost Zapadnog Balkana važno je veće evropsko...
+-  Samsung и Google Cloud претстација генеративна вештачка интелигенција во серијата Samsung Galaxy S24
+-  سعود بن صقر القاسمي يستقبل عضو مجلس رئاسة البوسنة والهرسك
+-  MEB AÖL sınav sonuçları açıklandı mı? 2024 Açık lise 1.Dönem AÖL sonuçları ne zaman açıklanacak, bugün mü?
+-  Emekli kök maaş hesaplama nasıl yapılır ve ne kadar oldu, kaç TL? Kök maaş nedir, nasıl öğrenilir?
+-  県産ブランド米“雪若丸”「勝てるコメ」へ・“猛暑”背景に市場で増す存在感 山形
+-  Путин внимава: Огромно число милиционери са потушили протеста в Башкирия (ВИДЕО)
+-  Пловдив: Инсталация за рециклиране на гуми в район "Южен"
+-  Who are BLA, BLF, Baloch separatist groups attacked by Pakistan in Iran?
+-  Ecuador, ucciso il procuratore che indagava sull'assalto dei narcos in tv
