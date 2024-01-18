@@ -1,11 +1,11 @@
 # Latest News
--  Otomobil stinat duvarından park halindeki otomobillerin üzerin düştü: 1 yaralı
--  2 gecekondu alev alev yandı
--  Otomobil yol kenarına bırakılan dampere çarptı: 1 ölü, 2 yaralı
--  Cipin çarptığı motosikletli genç, öldü
--  Cami avlusunda yeni doğmuş bebek cesedi bulundu
--  Kar ve tipi; karayolunda mahsur kalan 35 kişi 3 saatte kurtarıldı
--  İki otomobil kafa kafaya çarpıştı: 1 ölü, 2 yaralı
--  Toàn cầu đổ xô đến Việt Nam mua lương thực, Cục Trồng trọt lên kế hoạch gieo trồng 7,1 triệu ha lúa
--  Cháy nhà hàng chay ở quận 1 - TP HCM
--  徒步雲林11鄉鎮謝票 蘇治芬：沒守住這一席很自責
+-  Faeser verteidigt Gesetz für einfachere Abschiebungen
+-  FDA CLEARANCE OF AMPLIA'S IND FOR PANCREATIC CANCER TRIAL IN US
+-  اخر تطورات رحيل هندرسون عن الاتفاق
+-  Cận Tết, trái cây ngoại đổ bộ thị trường Việt
+-  Telcos may go easy on spectrum bidding
+-  공수처, '수사 무마 청탁' 대우산업개발 수사 전 금수대 계장 조사
+-  Load shedding on THURSDAY- Here is the updated schedule
+-  Faeser verteidigt Gesetz für einfachere Abschiebungen
+-  ‘이부진 가방’ 어디꺼야?…“매출 1000% 올라” 난리났다
+-  Fachkräftmangel: Dramatischer Pflegenotstand: So geht Pinneberg dagegen vor
