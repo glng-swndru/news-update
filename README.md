@@ -1,11 +1,11 @@
 # Latest News
--  Debat Panas Obi Mikel dan Jurnalis Usai Messi Jadi Pemain Terbaik FIFA
--  Alia Bhatt's Heart Of Stone Among Top 4 Most Watched International Films On OTT: Report
--  "A Kátia não vai trabalhar porque está morta": Ex-marido mata mulher e entrega-se
--  Warriors assistant coach Dejan Milojević dies of heart attack, Samsung's latest phone backed by AI, and more top news
--  Devs To Toxic Fans: Stop Being Awful, Please
--  TGV arrancou no dia da demissão de António Costa
--  김소영 금융위 부위원장 "청년도약계좌, 3년 유지시 비과세"
--  Constant replenishing of skills key to successful industrial policy: President Tharman at WEF
--  ‘평생 환전 수수료 무료’…토스뱅크, 신개념 외환서비스 출시
--  Stock Radar I Time to buy? KCP stock recently witnessed a buy signal in Ichimoku setup: Gaurav Bissa
+-  Valsts brīvība ir milzīga vērtība
+-  PPMW's Dr. Serina Floyd speaks at U.S. Senate briefing on the state of abortion rights
+-  Droits TV de la Can et FanZones : la RTS dézingue le député Aly Mané
+-  Gia đình 1 con thu nhập 1 tháng 30 triệu, tiết kiệm 10 triệu đồng/tháng để mua nhà thì sẽ phải chi tiêu thế nào?
+-  Lắng nghe người dân hiến kế: Thu hút đầu tư nước ngoài: Biết mình, biết người
+-  Jones: McCarthy to return to Dallas in 2024
+-  曝柯建銘、黃國昌「新仇舊恨」 黃暐瀚：鐵了心斷絕與民眾黨合作
+-  Trực tiếp bế mạc kỳ họp bất thường lần thứ 5: Quốc hội thông qua Luật Đất đai (sửa đổi) và Luật Các tổ chức tín dụng (sửa đổi)
+-  Tất bật thu hoạch lá dong, mong hốt bạc dịp Tết Nguyên đán
+-  ‘일본 떠나는 日여성’…해외이민 57만명 중 여성 62%, 왜?
