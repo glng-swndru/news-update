@@ -1,11 +1,11 @@
 # Latest News
--  Waterloo Regional Police hosts mini-conference on race and identity-based data collection
--  Chefe do FMI exorta países que transfiram subsídios a combustíveis fósseis para combate à mudança climática
--  LIVE TOTO KNVB Beker | Fortuna heeft weinig te duchten van tandenloos Almere City
--  Industriju štite niže cijene nafte, a to se kompenzira skupljim gorivom
--  Pljevlja: Više cijene vode, parkinga i smeća
--  Здание общежития в Сумгайыте взято под контроль полиции
--  Of’ta tüm okullarda şehitler için saygı duruşunda bulunuldu
--  Greek Mafia: Συλλήψεις από την ΕΛΑΣ για τις δολοφονίες του Γιάννη Σκαφτούρου και Βασίλη Ρουμπέτη
--  Минобороны сообщило об уничтожении ракет «Точка-У» и дронов ВСУ под Брянском
--  Chefe do FMI exorta países que transfiram subsídios a combustíveis fósseis para combate à mudança climática
+-  Credit cards now accepted at City Hall in Penticton (Penticton)
+-  Zöld utat adnának egyes hitelminősítők az orosz vagyon elkobzásához
+-  رواية هدمت حياتي بيديك وجاي تقول ندمت -33
+-  SANITAS, după întâlnirea cu premierul: Astăzi nu am rezolvat nimic. Suntem dispuşi să ajungem până la grevă generală
+-  NETANJAHU ZNA DATUM KRAJA RATA: Evo kada će se završiti krvavi sukob u Izraelu
+-  Six Shearing Competitions This Weekend
+-  Karnelerin verileceği tarih belli oldu mu? Karneler ne zaman, saat kaçta verilecek? Okullarda 1. dönem ne zaman sona erecek?
+-  Jeemeni lähedal tabas droon laeva
+-  Σπύρος Μπιμπίλας για Γιώργο Λαμπάτο: Δεν είχε ζητήσει βοήθεια από αξιοπρέπεια
+-  Reunión Milei-FMI: el organismo está abierto a un nuevo acuerdo si la Argentina lo pide
