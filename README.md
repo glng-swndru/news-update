@@ -1,11 +1,11 @@
 # Latest News
--  El pedido de los intendentes del MPN
--  Elásták a kis holttestet: halott kisbabát találtak egy kertben Lovászpatonán
--  국민의힘, 이태원참사특별법 '윤 대통령 거부권 행사' 건의…민주당에 재협상 제안
--  Elásták a kis holttestet: halott kisbabát találtak egy kertben Lovászpatonán
--  Cảnh sát hướng dẫn 23 người thoát khỏi vụ cháy nhà hàng 4 tầng ở trung tâm TPHCM
--  Musikproducenten Ronny: ”Musiken är ett gift”
--  Elásták a kis holttestet: halott kisbabát találtak egy kertben Lovászpatonán
--  米軍、あす19日にパラシュート訓練 嘉手納基地で 玉城デニー知事は中止求める「県民に不安を与える」 - 沖縄タイムス＋プラス ニュース
--  Elásták a kis holttestet: halott kisbabát találtak egy kertben Lovászpatonán
--  이정민과 허다빈, 한화큐셀 골프단과 재계약
+-  अमेरिकी जहाज पर मिसाइल हमले का दावा
+-  Sanierung: Beliebtes Schwimmbad schließt monatelang: Termin steht fest
+-  Bundesräte ziehen nach Minister-Treffen am WEF Bilanz
+-  Expect populist measures in Budget 2024 Varun Saboo
+-  QNAP lanza el NASbook Thunderbolt™ 4 All-Flash
+-  Egynapos tavasz a télben: 16 fokot is mérhetünk csütörtökön
+-  Bundesräte ziehen nach Minister-Treffen am WEF Bilanz
+-  Sven Ulreich content with role at Bayern Munich, hopes to get to 100 career appearances
+-  El mundo del revés
+-  Not even a cent more, CS Machogu says on calls for school fees hike
