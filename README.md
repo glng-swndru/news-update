@@ -1,11 +1,11 @@
 # Latest News
--  Valsts brīvība ir milzīga vērtība
--  PPMW's Dr. Serina Floyd speaks at U.S. Senate briefing on the state of abortion rights
--  Droits TV de la Can et FanZones : la RTS dézingue le député Aly Mané
--  Gia đình 1 con thu nhập 1 tháng 30 triệu, tiết kiệm 10 triệu đồng/tháng để mua nhà thì sẽ phải chi tiêu thế nào?
--  Lắng nghe người dân hiến kế: Thu hút đầu tư nước ngoài: Biết mình, biết người
--  Jones: McCarthy to return to Dallas in 2024
--  曝柯建銘、黃國昌「新仇舊恨」 黃暐瀚：鐵了心斷絕與民眾黨合作
--  Trực tiếp bế mạc kỳ họp bất thường lần thứ 5: Quốc hội thông qua Luật Đất đai (sửa đổi) và Luật Các tổ chức tín dụng (sửa đổi)
--  Tất bật thu hoạch lá dong, mong hốt bạc dịp Tết Nguyên đán
--  ‘일본 떠나는 日여성’…해외이민 57만명 중 여성 62%, 왜?
+-  Otomobil stinat duvarından park halindeki otomobillerin üzerin düştü: 1 yaralı
+-  2 gecekondu alev alev yandı
+-  Otomobil yol kenarına bırakılan dampere çarptı: 1 ölü, 2 yaralı
+-  Cipin çarptığı motosikletli genç, öldü
+-  Cami avlusunda yeni doğmuş bebek cesedi bulundu
+-  Kar ve tipi; karayolunda mahsur kalan 35 kişi 3 saatte kurtarıldı
+-  İki otomobil kafa kafaya çarpıştı: 1 ölü, 2 yaralı
+-  Toàn cầu đổ xô đến Việt Nam mua lương thực, Cục Trồng trọt lên kế hoạch gieo trồng 7,1 triệu ha lúa
+-  Cháy nhà hàng chay ở quận 1 - TP HCM
+-  徒步雲林11鄉鎮謝票 蘇治芬：沒守住這一席很自責
