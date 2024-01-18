@@ -1,11 +1,11 @@
 # Latest News
--  Credit cards now accepted at City Hall in Penticton (Penticton)
--  Zöld utat adnának egyes hitelminősítők az orosz vagyon elkobzásához
--  رواية هدمت حياتي بيديك وجاي تقول ندمت -33
--  SANITAS, după întâlnirea cu premierul: Astăzi nu am rezolvat nimic. Suntem dispuşi să ajungem până la grevă generală
--  NETANJAHU ZNA DATUM KRAJA RATA: Evo kada će se završiti krvavi sukob u Izraelu
--  Six Shearing Competitions This Weekend
--  Karnelerin verileceği tarih belli oldu mu? Karneler ne zaman, saat kaçta verilecek? Okullarda 1. dönem ne zaman sona erecek?
--  Jeemeni lähedal tabas droon laeva
--  Σπύρος Μπιμπίλας για Γιώργο Λαμπάτο: Δεν είχε ζητήσει βοήθεια από αξιοπρέπεια
--  Reunión Milei-FMI: el organismo está abierto a un nuevo acuerdo si la Argentina lo pide
+-  Barack Obama se declara a Michelle, que completa 60 anos: 'minha metade'
+-  Fed Bej Kitap: Ekonomik aktivite kasımdan bu yana "çok az" değişti
+-  RD Congo – Zambie : un but partout à la mi-temps !
+-  Srce da prepukne! Sin Dejana Milojevića se ovim rečima oprostio od oca
+-  Sprūds: Nesteigšos apgalvot, ka Latvija noteikti izstāsies no Otavas konvencijas
+-  Ščotka dal kredit gólmanům: Jsou jiní. Za Holík jsme rádi, přejeme mu
+-  Най-доброто от "Домът на футбола" (17.01.2024)
+-  Coronation Street spoilers: Adam Barlow seals Damon Hay’s fate after another crushing blow – with help from a dark source
+-  Izzivi leta za Mercedes: v Slovenijo pripeljali prvi adut #video
+-  "점유율 20% 간다"…삼성 파운드리 3나노 수율 상향 '총력전'
