@@ -1,11 +1,11 @@
 # Latest News
--  NBA : Trae Young voit en Wembanyama un potentiel « meilleur joueur de tous les temps »
--  Avrupa Birliği nakit ödemeleri sınırlıyor
--  "Gli spietati", l'avventura dei cacciatori di taglie
--  Karaman'da krater gibi obruk oluştu! 63 metre çapında!
--  Homeowner Attacked By Pet Boerboel In Glenwood
--  Ötən il 50 mindən çox şəxsə əlillik təyin olunub
--  Amazon ottiene certificazione 'Top Employers Italia', benessere persone al centro
--  新型コロナ8週連続増加 高齢者にも感染拡大 宮崎県
--  13 vagonů a tisíce fanoušků Dynama v Praze. Dva body jsou pro ně, říká Kaut
--  Havaların soğumasıyla kış çaylarına ilgi arttı
+-  19日雲多く3月並みの気温 明け方は雨の降る所も 週末は天気崩れる【静岡・ただいま天気 1/18】
+-  FOTBOLL PÅ SLÄTTEN: Hört och hänt i lokala fotbollen
+-  Reuniones anuales del BID 2024 serán en República Dominicana
+-  Unia Europejska bierze się za streaming muzyki. Artyści i twórcy muzyczni mają teraz zarabiać więcej pieniędzy
+-  K novým obzorům: Turismo Andalucía a Huawei společně lákají čínské cestovatele
+-  Při sportu zvaném ‚gólbal‘ musí být fanoušci potichu, popisuje předseda paralympijského výboru Sýkora
+-  FS: Daňové subjekty po upozornení priznali dodatočne vyše 2,3 mil. eur
+-  ارتفاع أسعار النفط بفضل توقعات أوبك للطلب وطقس بارد يؤثر على الإنتاج الأمريكي
+-  Tullogher Rosbercon manager Michael Doyle reflects on All-Ireland Junior title triumph
+-  Couple ‘sits in urine’ during 10-hour flight, co-passenger later finds kid’s underwear under seat
