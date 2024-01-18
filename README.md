@@ -1,11 +1,11 @@
 # Latest News
--  İlkokulda zorbalardan her gün dayak!
--  Yargıtay üyeliğine 4 yeni ismin seçilmesine ilişkin HSK kararı Resmi Gazete’de
--  Yeğen cinayeti düğün kamerasında
--  BAE'den Gazze'deki sağlık sektörüne yardım sözü
--  Köpek sahibini yoldan çıkardı
--  Eski işçiden kopya anahtarlı soygun
--  “중진 감점 지나쳐” “신인 기준 뭐냐” 국힘 의총서 ‘불만’
--  Extreme cold temperatures maxing out homeless services in Fargo-Moorhead area
--  19 milyondan fazla öğrenciyi ilgilendiren yarıyıl tatili yarın başlayacak
--  Унионистас де Саламанка - Барселона
+-  選舉期間抓到破萬「協同帳號」 人工智慧實驗室：300萬人受影響
+-  3 xu hướng của ngân hàng số tại Việt Nam trong 2024
+-  Comeback verschiebt sich erneut: Was Justin Petermann vom FC Carl Zeiss Jena sagt
+-  Corinthians goleia em último jogo-treino antes da estreia no Paulistão; gols
+-  Prévia: Tudo sobre Inter x Lazio
+-  BAZNAS Konsisten Lakukan Audit Syariah, Pengelolaan Zakat Makin Transparan
+-  Tite analisa Pedro e Gabriel jogando juntos no ataque
+-  Meteoroloji'den sağanak yağış ve kar alarmı
+-  정부, 다음주부터 국내·수입 수산물 ‘삼중수소 모니터링’
+-  Raio-X: Tudo sobre Napoli x Fiorentina
