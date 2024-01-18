@@ -1,11 +1,11 @@
 # Latest News
--  Gimnasia y Deportivo Maipú mostraron sus cartas en el primer amistoso de la pretemporada
--  People told to stay of roads as ice storm grips American Pacific Northwest
--  People told to stay of roads as ice storm grips American Pacific Northwest
--  ŠOK OBRT Teoretičar zavere koji je optuživao vladu Kanade da podmeće požare priznao da ih je sam podmetao
--  Vancouver Island's snow day in photos
--  New York Knicks - Houston Rockets, en directo | NBA
--  自分で建てた家倒壊 自ら重機で取り壊し「地震だからあきらめた」
--  Ekki til í að gefast upp
--  Республиканец Джонсон потребовал от Байдена решить вопрос миграции
--  The Last of Us Part II’s Lost Levels Are Interesting, But Not Relevatory
+-  Депутат Рады Лерос: Зеленский нагло разворовывает госбюджет
+-  Nachito Herrera rendirá homenaje a Cuba y su música
+-  Baltimore Mayor Brandon Scott’s campaign war chest is double that of chief rival Sheila Dixon
+-  ONLINE: Nosková a Lehečka usilují o postup ze druhého kola Australian Open
+-  Każdy grecki region, miasto, wyspa i miasteczko znajdzie się w smartfonie turysty
+-  UFMT confirma quatro novos cursos no campus de Sinop; inscrições começam na semana que vem
+-  Naperville councilman proposes exploring system for local residents who want to host migrant families
+-  Sao trẻ xé lưới Nhật Bản báo tin dữ; tuyển Việt Nam lo cách đối phó "đòn độc" của tuyển Indonesia
+-  رواية هدمت حياتي بيديك وجاي تقول ندمت -54
+-  SCOTUS wrestles with major challenges to the power of federal regulators
