@@ -1,11 +1,11 @@
 # Latest News
--  Sindikat negoduje zbog izmjena u modelu gazdovanja šumama
--  ЕС предвижда по-строги правила в борбата с прането на пари
--  Alman ilaç şirketi Bayer iş gücünü önemli ölçüde azaltmayı planlıyor
--  熱海富士「長かったっす…勝てて良かったす」翔猿に勝利し初白星！ 翠富士は正代に敗れ4敗目 静岡
--  PREDSEDNIK ALEKSANDAR VUČIĆ PORUČIO U subotu predstavljam veliki plan za Srbiju, od EBRD očekujem podršku
--  الاثنين المقبل.. أمير الباحة يفتتح "معرض برنامج آمن للتوعية بالأمن السيبراني"
--  KOÜ Rektörü Cantürk’ten Vali Hacıbektaşoğlu’na ziyaret
--  La Cina ha nascosto il Covid per giorni. I documenti inchiodano Pechino sul virus
--  RED COMPARTIDA | Otro obús a la 4T
--  Killer drones, rockets, loitering munitions used to hit BLA, BLF hideouts in Iran: Pak army
+-  NBA : Trae Young voit en Wembanyama un potentiel « meilleur joueur de tous les temps »
+-  Avrupa Birliği nakit ödemeleri sınırlıyor
+-  "Gli spietati", l'avventura dei cacciatori di taglie
+-  Karaman'da krater gibi obruk oluştu! 63 metre çapında!
+-  Homeowner Attacked By Pet Boerboel In Glenwood
+-  Ötən il 50 mindən çox şəxsə əlillik təyin olunub
+-  Amazon ottiene certificazione 'Top Employers Italia', benessere persone al centro
+-  新型コロナ8週連続増加 高齢者にも感染拡大 宮崎県
+-  13 vagonů a tisíce fanoušků Dynama v Praze. Dva body jsou pro ně, říká Kaut
+-  Havaların soğumasıyla kış çaylarına ilgi arttı
