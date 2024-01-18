@@ -1,11 +1,11 @@
 # Latest News
--  EastEnders spoilers: The Six’s fate ‘sealed’ as struggling ‘killer’ spirals out of control
--  Israel profundiza sus ataques contra Gaza, donde se esperan medicamentos para rehenes
--  Donald Trump, mahkeme salonundan çıkarılmakla tehdit edildi
--  Николай Денков от Давос: Трябва да се стремим да опазим мира
--  Agata Sieramska prezentuje wyrzeźbioną sylwetkę, pozując w mikroskopijnym bikini (FOTO)
--  When Superman and Batman Copyrights Expire in a Decade, Will It Be Kryptonite for DC?
--  コマツ・三菱重工の年収、恵まれた世代は？勝ち組世代が異なった2社【5世代20年間の推移を初試算】 - どの世代が損をしたか？氷河期部長＆課長の憂鬱 出世・給料・役職定年
--  Weer blessuredrama voor Ryan Thomas, Mexico ziet af van Zomerspelen 2036
--  Emmerdale spoilers: Cathy’s heartbreaking reason over funeral request as Bob loses it
--  Kardeşini göğsünden bıçaklamıştı, tutuklandı
+-  Waterloo Regional Police hosts mini-conference on race and identity-based data collection
+-  Chefe do FMI exorta países que transfiram subsídios a combustíveis fósseis para combate à mudança climática
+-  LIVE TOTO KNVB Beker | Fortuna heeft weinig te duchten van tandenloos Almere City
+-  Industriju štite niže cijene nafte, a to se kompenzira skupljim gorivom
+-  Pljevlja: Više cijene vode, parkinga i smeća
+-  Здание общежития в Сумгайыте взято под контроль полиции
+-  Of’ta tüm okullarda şehitler için saygı duruşunda bulunuldu
+-  Greek Mafia: Συλλήψεις από την ΕΛΑΣ για τις δολοφονίες του Γιάννη Σκαφτούρου και Βασίλη Ρουμπέτη
+-  Минобороны сообщило об уничтожении ракет «Точка-У» и дронов ВСУ под Брянском
+-  Chefe do FMI exorta países que transfiram subsídios a combustíveis fósseis para combate à mudança climática
