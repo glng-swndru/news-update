@@ -1,11 +1,11 @@
 # Latest News
--  현대차그룹, SW 조직 통합에 일부 직원 반발…왜?
--  Aktuelle Umfrage: Metall- und Elektroindustrie in Mittelfranken warnt vor "Deindustrialisierung"
--  توصيات بوضع هوية استثمارية موحدة في ظفار واستكمال المخططات السياحية لتعزيز النمو الاقتصادي
--  ¡El espectáculo del trial indoor de Barcelona el 4 de febrero ya tiene protagonistas!
--  Yeh Rishta Kya Kehlata Hai: Raj Anadkat shares pictures in a new look; fans feel he is 'Perfect as Abhir Birla'
--  Parkscheinautomaten in Waltrop: Bargeldloses Bezahlen jetzt möglich
--  Nightmarket, Hochzeitsmesse und Lateinamerikawoche: Diese Events steigen am Wochenende
--  HAZ Hannover-Update: Wie weiter am Südschnellweg?
--  Nach Schönheitsbehandlung in Vietnam - 17-Jährige erblindet
--  Jego ucieczka do Niemiec wywołała skandal. W Polsce był skreślony. "Poszedłbym do pracy w stoczni albo kraść samochody"
+-  Kolaborasi dengan Lyla, Aldi Taher: Itu Band Fenomenal
+-  Susurluk Mezarlığı'nda sona gelindi
+-  Пакистан нанес удар по укрытиям боевиков на территории Ирана
+-  男大生抽走椅子害女子骨折 老师竟称“又没很严重”
+-  Armata pakistaneză a deschis focul asupra rebelilor din Iran, după ce doi copii au fost uciși
+-  증권사 신용융자 이자율, CD금리로 통일된다
+-  Saudi delegation visits Hellenic Aerospace Industry
+-  FINAL DECISION NEARS
+-  كأس إفريقيا.. أول فوز عربي في ساحل العاج
+-  TP HCM: Học sinh trường tư ở địa bàn không đủ trường công được hỗ trợ học phí
