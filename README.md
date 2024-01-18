@@ -1,11 +1,11 @@
 # Latest News
--  Xuân Trường nể Quang Hải xuất ngoại, mong Việt Nam có cầu thủ như Son Heung-min
--  "ANELI JE U ORGANIZOVANOJ BANDI, RADILA JE U BUJANOVCU KAO ALEKS" Stanija se ne zaustavlja, tvrdi: "U porodici Ahmić ima psihički obolelih"
--  Donnerstag: Bitcoins als Wiener Betrugsfalle, Lieferdrohne für schwerere Lasten
--  공공의료기관 직원 42% ‘갑질 경험’…국공립대 부패 73% ‘연구비 횡령’
--  Photo – Inter Squad Lands In Saudi Arabia For Supercoppa Italiana
--  WWE superfan given 12 months to live aged 29 hopes to tick off lifelong dream
--  Proč česká ekonomika neroste? Firmy si drží i lidi, které by dávno propustily
--  PSG : Mbappé lâche une réponse pour l’été prochain
--  V Kolumbii zadržali muža podozrivého z pokusu o atentát na expolitika
--  Ruben Nicolai: ’Peter Jan Rens kreeg vergoeding aangeboden’
+-  En Equateur, le procureur chargé de l'enquête sur la prise d'otage en direct sur un plateau télévisé a été assassiné
+-  Το όνειδος των ΗΠΑ: Συνεργάστηκαν με κορυφαίους Ναζί και διεστραμμένους επιστήμονες για να χτυπήσουν την ΕΣΣΔ
+-  Έκοψαν πασσάλους της ΑΗΚ κι έκλεψαν εναέριο καλώδιο 900 μέτρων
+-  USA zakázali guatemalskému exprezidentovi vstup na svoje územie
+-  Netanyahu esir takasını reddetti
+-  CHP Bursa Milletvekili Pala'dan sert tepki! "Sizler 96 bin lira emekli maaşı alırken..."
+-  India vs Uzbekistan AFC Asian Cup 2024 Live Streaming: When, Where and How To Watch IND vs UZB Match Live Telecast On Mobile APPS, TV And Laptop?
+-  ”自傷行為も” 私立小学校でいじめか 学校が第三者委員会設置へ〈宮城・仙台市〉
+-  Trung Quốc bước vào giai đoạn quyết định để vực dậy nền kinh tế thứ hai thế giới: Quan trọng vẫn là gỡ thế khó của một ngành trụ cột
+-  МЕЃУ МОЌНИЦИТЕ ВО ДАВОС ИМА „ЛУДАК“ СО ПИЛА И НАРАЧАТЕЛ НА УБИСТВО: Дали светот треба да се плаши?
