@@ -1,11 +1,11 @@
 # Latest News
--  El Presidente se reunió con la titular del FMI: «Voy a cumplir con lo que prometí»
--  Egy évfordulós cikk margójára
--  임혁백 민주당 공관위원장 “50만명 국민 의견 물어서 공천 기준 정할 것”
--  احتفالية "أوناحي" تقسم آراء المتابعين.. فمن المقصود بـ"حركته الاحتفالية"؟
--  Първи случай на вирусен менингит в Монтанско
--  Magdalena Filiks usłyszała w Sejmie ostre słowa od posłanki PiS. Teraz prosi o poradę Giertycha
--  Ορίστηκαν τα μέλη του νέου Διοικητικού Συμβουλίου της ΔΕΥΑΝ, πρόεδρος ο Νίκος Δ. Κουτσογιάννης
--  Ankara'da bıçaklı saldırıya uğrayan kişi öldü!
--  Kiper Manchester City Ederson Moraes Menerima Penghargaan The Best FIFA Football Awards
--  НХЛ: Монреаль здолав Нью-Джерсі, Детройт - Флориду
+-  Георгиев: В бюджета на София не е предвиден скок на заплатите на шофьорите
+-  Panevėžyje planuojami automobilių stovėjimo pokyčiai: atsiras zonos, keisis rinkliavos dydžiai
+-  Gupse Özay, Barış Arduç ile olan aşk hikayesini anlattı
+-  Vanessa Hinz und Konstantin Schad als Athletenvorbilder bei Winter Youth Olympic Games
+-  ハトひき殺したとして逮捕、タクシー運転手の男性を不起訴処分
+-  충북도, 중부내륙특별법 개정 본격 시동…"21대 국회 발의 목표"
+-  Coppa d'Africa, oggi 8 "italiani" chiamati in causa. Costa d'Avorio-Nigeria, il big match
+-  KRISTINA (18) NESTALA PRED NOVU GODINU, TELO PRONAŠLI U SNEGU: Povezla muškarca, on joj bacio pojas oko vrata i ZADAVIO JE!
+-  Drame en NBA : L’entraîneur adjoint des Warriors décède tragiquement
+-  Đức thừa nhận thiệt hại kinh tế khi từ chối nhập khẩu khí đốt Nga
