@@ -1,11 +1,11 @@
 # Latest News
--  トラック車内から盗まれた財布 中身に幼少期の息子からの手紙も
--  신수지, A2Z엔터테인먼트와 전속계약…“새 도전 적극지원”
--  Lei do Pantanal passará a valer no dia 18 de fevereiro já com regulamentação
--  Kamyonetle bariyerin arasına sıkıştı
--  "Danse avec les stars m'a sauvé la vie" : Chris Marques se confie sur la maladie dont il a souffert dans l'émission Dans les yeux d'Olivier
--  [뉴스딱] "위치가 왜 하필…" 유명 유튜버 '탕후루집' 개업 논란
--  Od štvrtka sa začne pomaly otepľovať
--  【独自】「全部持って行かれた」盗まれた財布の中には息子が書いた手紙…財布も妻からの誕生日プレゼント
--  Tvö unnu rúma 20 milljarða
--  Jastrzębski Węgiel i ZAKSA znają rywali w Lidze Mistrzów! Z kim zagrają polskie kluby?
+-  Northants sign Zimbabwe's Raza for T20 Blast
+-  Indianapolis Colts owner Jim Irsay found unresponsive, blue
+-  Garbarnia Kraków na skraju bankructwa. Pojawiło się „światełko w tunelu” dla mistrz Polski z 1931 roku
+-  Lions captaincy can aid my game - Bohannon
+-  Game of Thrones: showrunners revelan la única cosa que les hubiera gustado cambiar de la serie
+-  De Springsteen a Estopa: los grandes conciertos de 2024 con todo vendido o casi
+-  Game of Thrones: showrunners revelan la única cosa que les hubiera gustado cambiar de la serie
+-  Comedy Central Plans to Unveil New Steps for ‘Daily Show’ Next Week
+-  India cricket icon flags 'disturbing' deepfake video
+-  De Springsteen a Estopa: los grandes conciertos de 2024 con todo vendido o casi
