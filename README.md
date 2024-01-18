@@ -1,11 +1,11 @@
 # Latest News
--  En Equateur, le procureur chargé de l'enquête sur la prise d'otage en direct sur un plateau télévisé a été assassiné
--  Το όνειδος των ΗΠΑ: Συνεργάστηκαν με κορυφαίους Ναζί και διεστραμμένους επιστήμονες για να χτυπήσουν την ΕΣΣΔ
--  Έκοψαν πασσάλους της ΑΗΚ κι έκλεψαν εναέριο καλώδιο 900 μέτρων
--  USA zakázali guatemalskému exprezidentovi vstup na svoje územie
--  Netanyahu esir takasını reddetti
--  CHP Bursa Milletvekili Pala'dan sert tepki! "Sizler 96 bin lira emekli maaşı alırken..."
--  India vs Uzbekistan AFC Asian Cup 2024 Live Streaming: When, Where and How To Watch IND vs UZB Match Live Telecast On Mobile APPS, TV And Laptop?
--  ”自傷行為も” 私立小学校でいじめか 学校が第三者委員会設置へ〈宮城・仙台市〉
--  Trung Quốc bước vào giai đoạn quyết định để vực dậy nền kinh tế thứ hai thế giới: Quan trọng vẫn là gỡ thế khó của một ngành trụ cột
--  МЕЃУ МОЌНИЦИТЕ ВО ДАВОС ИМА „ЛУДАК“ СО ПИЛА И НАРАЧАТЕЛ НА УБИСТВО: Дали светот треба да се плаши?
+-  Romano: Najubojitiji Hrvat ima ponude iz čak pet liga. Sigurno odlazi iz Benfice
+-  Sports scoreboard for Wednesday, Jan. 17, 2024
+-  Romano: Musa ima ponude iz četiri lige Petice i MLS-a. Sigurno odlazi iz Benfice
+-  黃嘉千罕吐心聲「官司花太多錢」 公開被嗆：異國婚分手代價高
+-  Sports scoreboard for Wednesday, Jan. 17, 2024
+-  Kayseri'de deprem!
+-  OPREZNO VOZITE ZBOG MAGLE I POLEDICE Snega ima najviše na ovom putu
+-  Präventionssport in Oberstenfeld: Für mehr Trittsicherheit – bis ins hohe Alter
+-  指派王柏融當台鋼隊長 洪總對資深球員有交代
+-  Sumqayıtda yataqxanadakı yanğının miqyası
