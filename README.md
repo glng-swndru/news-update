@@ -1,11 +1,11 @@
 # Latest News
--  Mit der Regel „2 und dann 30“ Menschenleben retten
--  Made A Mark With A Side Role In Ballika Vadhu 15 Years Ago; Deepika, Anushka, Politicians And Businessman Are His Fans Today...
--  Kate, prințesa de Wales, a fost internată în spital pentru o intervenție chirurgicală
--  Rogers family's two members to retire from telecom giant's board
--  O predlogu zakona o elektronskim komunikacijama sljedeće sedmice
--  Mit der Regel „2 und dann 30“ Menschenleben retten
--  Area schools receive bomb threat Tuesday in email hoax
--  Колата, блъсната край Трявна, пресякла релсите въпреки сигнала за идващ влак
--  Bafög für Studierende: Unerfüllte Versprechen der Ampel
--  Михаил Касабов внесе документи за вписването си като президент на БФС
+-  Tallinna börs langes pea pool protsenti
+-  Exosome Research Market Worth $356 Million | MarketsandMarkets™
+-  Widespread snow causing havoc in many parts of southern B.C.
+-  Yfirgaf herbúðir Senegals til að vera við útför föður síns
+-  Israel v the ICJ: a waste of time?
+-  Confirma Rui Oliveira nas manhãs mas Siopa diz que vai continuar no programa
+-  De Boinville poised for return in time to ride Jonbon at Ascot
+-  Widespread snow causing havoc in many parts of southern B.C.
+-  Université, Santé, PME/PMI : Mamoudou Ba, porte-parole des premiers engagements de TAS et la RV
+-  Changing words not solving problems
