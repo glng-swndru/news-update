@@ -1,11 +1,11 @@
 # Latest News
--  अमेरिकी जहाज पर मिसाइल हमले का दावा
--  Sanierung: Beliebtes Schwimmbad schließt monatelang: Termin steht fest
--  Bundesräte ziehen nach Minister-Treffen am WEF Bilanz
--  Expect populist measures in Budget 2024 Varun Saboo
--  QNAP lanza el NASbook Thunderbolt™ 4 All-Flash
--  Egynapos tavasz a télben: 16 fokot is mérhetünk csütörtökön
--  Bundesräte ziehen nach Minister-Treffen am WEF Bilanz
--  Sven Ulreich content with role at Bayern Munich, hopes to get to 100 career appearances
--  El mundo del revés
--  Not even a cent more, CS Machogu says on calls for school fees hike
+-  Stadtmeisterschaften im Kreis: Nicht in allen Hallen setzen sich die klassenhöchsten Teams durch
+-  Kalahkan Persipal, PSBS Makin Mantap Menuju Semifinal Liga 2, Begini Komentar Pelatih
+-  Отново смърт на арестуван в Стара Загора, майката подозира полицейско насилие
+-  Indian Navy set to deploy women Agniveers on warships – All you need to know
+-  Нова война? Пакистан обстреля Иран (ВИДЕО)
+-  تحليل: ما احتمالات وصول صواريخ الحوثي إلى مدينة عدن؟
+-  عام انتخابات میں حصہ لینے والے امیدواروں کی تفصیلات جاری
+-  VIDEO: Slafkovský skóroval, keď bol Nemec na ľade. Mladíci odohrali prvý vzájomný zápas
+-  300 Personen in Castrop-Rauxel zu Demo gegen Rechts erwartet: Wir werden live berichten
+-  Tagesbruch in Holzwickede: Schnee und Frost bremsen die Bohrarbeiten aus
