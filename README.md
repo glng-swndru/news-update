@@ -1,11 +1,11 @@
 # Latest News
--  Environmental Protection Notice - Quadra Wood Products Ltd.
--  受験生と「ライジングゼファー」応援イベント 勝利を目指して巨大絵馬にメッセージ ＪＲ博多駅
--  Tiết lộ đầu tư 'khủng' của Samsung vào trung tâm sản xuất chip lớn nhất thế giới
--  SA svarar yfirlýsingu breiðfylkingarinnar
--  ট্রাম্পকে আদালত থেকে বের করে দেওয়ার হুমকি বিচারকের
--  El regreso de las cuasimonedas: efecto en inflación, devaluación, las diferencias con el 2001 y por qué puede haber más
--  Temperley está por cerrar dos nuevos refuerzos para la Primera Nacional
--  Những lý do khiến Galaxy A trở thành dòng điện thoại được tin dùng hàng đầu
--  Google CEO'su Sundar Pichai, bu sene daha fazla işten çıkarma olacağını söyledi
--  レッドブルF1代表 RBPTエンジンプロジェクトは「うまくいくと確信」
+-  Sindikat negoduje zbog izmjena u modelu gazdovanja šumama
+-  ЕС предвижда по-строги правила в борбата с прането на пари
+-  Alman ilaç şirketi Bayer iş gücünü önemli ölçüde azaltmayı planlıyor
+-  熱海富士「長かったっす…勝てて良かったす」翔猿に勝利し初白星！ 翠富士は正代に敗れ4敗目 静岡
+-  PREDSEDNIK ALEKSANDAR VUČIĆ PORUČIO U subotu predstavljam veliki plan za Srbiju, od EBRD očekujem podršku
+-  الاثنين المقبل.. أمير الباحة يفتتح "معرض برنامج آمن للتوعية بالأمن السيبراني"
+-  KOÜ Rektörü Cantürk’ten Vali Hacıbektaşoğlu’na ziyaret
+-  La Cina ha nascosto il Covid per giorni. I documenti inchiodano Pechino sul virus
+-  RED COMPARTIDA | Otro obús a la 4T
+-  Killer drones, rockets, loitering munitions used to hit BLA, BLF hideouts in Iran: Pak army
