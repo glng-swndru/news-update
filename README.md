@@ -1,11 +1,11 @@
 # Latest News
--  Soccer-Hughton thankful for support after attack from fan
--  WhatsApp incrementa canais de envio de mensagem em massa com áudio e enquete
--  Офіційний курс долара почав знижуватися
--  מאמנו של קארצב: מכבד את מה שעשה, אבל הוא צריך להבין איפה הוא חי
--  Debatte über Höcke: Wie Grundrechte entzogen werden können
--  신정·신월·고척동 3.8만세대 난방 중단…복구 늦어져 밤새 꽁꽁
--  Vaateketjut | Vaatejätti Uniqlo haastoi Sheinin oikeuteen Tiktok-hittilaukun kopioimisesta
--  Pakistan'da patlama!
--  WhatsApp incrementa canais de envio de mensagem em massa com áudio e enquete
--  Νταβός - Γκουτέρες: Προειδοποιεί για καταστροφή σε περίπτωση πολέμου μεταξύ Λιβάνου και Ισραήλ
+-  Saadet Partisi'nin 48 bölgede adayları belli oldu
+-  Παράταση ημερομηνίας υποβολής αιτήσεων για τις θέσεις Αποσπάσεων για το σχολικό έτος 2024-2025
+-  Osnabrück hält ab Mitte 2024 öffentliche Parkplätze für Carsharing-Autos frei
+-  Ärger in Ludwigsburg: Klinikendirektorin wirft das Handtuch
+-  Περιπέτεια Μπλίνκεν σε Boeing 737 στο Νταβός: Το αεροσκάφος κρίθηκε μη ασφαλές
+-  Samsung presentó sus tres nuevos modelos: Galaxy S24 Ultra, Galaxy S24+ y Galaxy S24
+-  Sakarya'da iki otomobil kafa kafaya çarpıştı: 1 ölü, 2 yaralı
+-  США вернули хуситам статус международной террористической организации
+-  Gelinim Mutfakta’da çeyrek altını kazanan belli oldu! Haftanın üçüncü çeyreği o gelinin: İşte 17 Ocak puan durumu
+-  Apakah Mi Ayam Lebih Sehat Daripada Mi Instan? Ketahui Kandungan Gizinya
