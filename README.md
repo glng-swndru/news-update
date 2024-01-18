@@ -1,11 +1,11 @@
 # Latest News
--  सीएम से लेकर पीएम तक हर कोई इस मिठाई का दीवाना! जानें लोकेशन
--  Pakistan podnikol útoky proti militantom v Iráne, hlásia odtiaľ sedem obetí
--  POLL: Do you think Reform UK has a chance at the next general election? Vote here
--  'He is thoroughly deserving of this honour' - O'Mahony the obvious choice as Ireland captain
--  Η ΕΕ δεν θα χαρακτηρίσει τους Χούθι «τρομοκρατική» οργάνωση
--  ‘나를 잊지 말아요’ 물망초 모티브 납북자 상징 의상, 내달 ‘서울패션위크’서 첫 공개
--  '사운드 오브 프리덤', '미션7' 제친 화제작…제작비 대비 1700% 수익
--  Liam Neeson dreht in Australien - Set in Nepal verwandelt
--  Afyonkarahisar'da uyuşturucu operasyonunda 1 kişi tutuklandı
--  Se in Veneto, sul fine vita, ha perso la pietà e ha vinto la prepotenza
+-  Im Reich der Götter - Reisegruppe mit Treuchtlingern und Weißenburgern in Nepal unterwegs
+-  Chatbots « toxiques » : quand les compagnons virtuels se retournent contre leurs utilisateurs
+-  Hansı universitetlər paytaxtdan KÖÇÜRÜLƏCƏK?
+-  86세에 SNS 스타 된 '양들의 침묵' 안소니 홉킨스…"고달픈 삶에 웃음 필요해"
+-  Jasmine Curtis-Smith, inilahad kung bakit matagal nawala sa TV
+-  Готовность ФОКа игровых видов спорта в Пензе составляет 80%
+-  Bivši snajperist HV-a dobio 20 godina zatvora. Ubio dva mladića na parkingu hotela
+-  В Туапсе из-за собственной невнимательности подросток оказался под колёсами иномарки
+-  이재명, 복귀 1호 공약은 ‘저출생’...“셋째, 1억 현금 지원”
+-  SEDDK, Sigorta ve Reasürans Brokerleri Yönetmeliğinde değişikliğe gitti
