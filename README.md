@@ -1,11 +1,11 @@
 # Latest News
--  Pendarovski: Za stabilnost Zapadnog Balkana važno je veće evropsko...
--  Samsung и Google Cloud претстација генеративна вештачка интелигенција во серијата Samsung Galaxy S24
--  سعود بن صقر القاسمي يستقبل عضو مجلس رئاسة البوسنة والهرسك
--  MEB AÖL sınav sonuçları açıklandı mı? 2024 Açık lise 1.Dönem AÖL sonuçları ne zaman açıklanacak, bugün mü?
--  Emekli kök maaş hesaplama nasıl yapılır ve ne kadar oldu, kaç TL? Kök maaş nedir, nasıl öğrenilir?
--  県産ブランド米“雪若丸”「勝てるコメ」へ・“猛暑”背景に市場で増す存在感 山形
--  Путин внимава: Огромно число милиционери са потушили протеста в Башкирия (ВИДЕО)
--  Пловдив: Инсталация за рециклиране на гуми в район "Южен"
--  Who are BLA, BLF, Baloch separatist groups attacked by Pakistan in Iran?
--  Ecuador, ucciso il procuratore che indagava sull'assalto dei narcos in tv
+-  Kubra: suspense, drama e religião na nova série da Netflix
+-  Birmingham City transfer state of play: Alex Pritchard link and Jordan James latest
+-  [이코노 브리핑] “수수료 0원”… 토뱅, 외환서비스 출시
+-  After the snow - a Yellow warning for strong winds on Sunday
+-  Bitcoin Cash pierde el 3% ganado la semana pasada
+-  Of'ta Gazzeli savaş mağdurları için kermes düzenlendi
+-  Bukit Aman berkas duda jual video ranjang
+-  Исполнение просьбы: 370 лет назад Украина вошла в состав России
+-  Vodstvo Atlantske plovidbe želi prodati dionice Tankerskoj za 825 tisuća eura
+-  December-január között alig változott az Egyesült Államok gazdasági aktivitása
