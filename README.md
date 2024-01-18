@@ -1,11 +1,11 @@
 # Latest News
--  Депутат Рады Лерос: Зеленский нагло разворовывает госбюджет
--  Nachito Herrera rendirá homenaje a Cuba y su música
--  Baltimore Mayor Brandon Scott’s campaign war chest is double that of chief rival Sheila Dixon
--  ONLINE: Nosková a Lehečka usilují o postup ze druhého kola Australian Open
--  Każdy grecki region, miasto, wyspa i miasteczko znajdzie się w smartfonie turysty
--  UFMT confirma quatro novos cursos no campus de Sinop; inscrições começam na semana que vem
--  Naperville councilman proposes exploring system for local residents who want to host migrant families
--  Sao trẻ xé lưới Nhật Bản báo tin dữ; tuyển Việt Nam lo cách đối phó "đòn độc" của tuyển Indonesia
--  رواية هدمت حياتي بيديك وجاي تقول ندمت -54
--  SCOTUS wrestles with major challenges to the power of federal regulators
+-  Bradford (Park Avenue) having community meetings at Horsfall
+-  Labor says Greens promise to blow up the pokies 'won't address problem gambling'
+-  Why Medical Properties Trust Stock Sank by More Than 5% Today
+-  रास्वपाको केन्द्रीय समितिले गर्‍यो पाँच निर्णय
+-  Zardari urges party workers to secure Bilawal’s path to premiership
+-  中共政權內外交困下加強｢黨的領導｣大學黨政辦公室全面取代校長辦
+-  Fetrasalud critica anuncio presidencial: Salario en Venezuela sigue en mínimos históricos
+-  Gold Silver Price: सोना-चांदी की कीमतों में बदलाव, जानें UP के मुख्य शहरों में क्या हैं कीमतें
+-  América: la sarcástica respuesta de Miguel Layún sobre el arbitraje en la final del Apertura 2023
+-  이소영 "韓, '반민주' 유일한 콘텐츠…메시지 기억 잘 안나"
