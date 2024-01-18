@@ -1,11 +1,11 @@
 # Latest News
--  Two-year-old baby starves to death in UK
--  鹿児島市の百貨店で「大新潟展」能登半島地震被災地支援の義援金箱も
--  몸통보다 긴 폐그물 걸린 채 '첨벙'…위태로운 돌고래
--  Fluoropolymer Materials Market Set for Notable Growth, Expected to Reach 442.79 Kilotons by 2028, BCC Research Reports
--  La provincia de Teruel cuenta con 464 viviendas de uso turístico registradas, que ofrecen 1.167 plazas
--  Ica: reclaman falta de agua por dos semanas en el asentamiento humano Los Algarrobos
--  Índice da bolsa de valores brasileira registra baixa
--  Saudi Arabia, OECD sign MoU to enhance public policy cooperation
--  В МТС прокомментировали коллективный иск из-за «голой вечеринки»
--  Taylor Morrison Announces Date for Fourth Quarter 2023 Earnings Release and Webcast Conference Call
+-  Türk gencini evlenirken sınır dışı ettiler! Talihsiz gelin hastanelik oldu
+-  Dwuwładza? Nie ma żadnej dwuwładzy. To pucz gangsterów
+-  Gesetz vor dem Aus?: Cannabislegalisierung droht offenbar an Widerstand aus der SPD zu scheitern
+-  Mortes na Faixa de Gaza sobem para 24.448
+-  Buleleng Menggoda Turis Kapal Pesiar dengan Paket Wisata Anyar, Amazing
+-  Ärzte und Apotheker kritisieren E-Rezept-Pflicht
+-  Im Tafelladen in der Aalener Bahnhofstraße werden die Krisen deutlich
+-  Perlakuan Khusus untuk ODGJ Saat Pemungutan Suara
+-  El Tae Kwon Do se va a Costa Rica
+-  2024 Skoda Kodiaq review
