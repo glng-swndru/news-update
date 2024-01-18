@@ -1,11 +1,11 @@
 # Latest News
--  Copilot With Microsoft 365 Is Finally Available to Everyone
--  Court documents underscore Meta's "historical reluctance" to protect children on Instagram
--  I, Too, Would Be Pissed If Pauly Shore Was Playing Me in a Biopic
--  특허청-네이버, 온라인 지식재산 교육 협약 체결
--  Trial begins for Flossmoor man charged in 2013 kidnapping and sexual assault of 6-year-old Homewood girl
--  대덕구 '온실가스감축인지예산서' 세 번째 발간
--  [사진뉴스] 코레일·KR·SR, 개인정보 보호 합동 캠페인 추진
--  [본사손님] 이재훈(한국거래소 대전혁신성장센터장) 씨
--  Ariana Grande: Ihr neues Album kommt bereits Anfang März
--  U.S. stocks end lower amid higher Treasury yields
+-  トラック車内から盗まれた財布 中身に幼少期の息子からの手紙も
+-  신수지, A2Z엔터테인먼트와 전속계약…“새 도전 적극지원”
+-  Lei do Pantanal passará a valer no dia 18 de fevereiro já com regulamentação
+-  Kamyonetle bariyerin arasına sıkıştı
+-  "Danse avec les stars m'a sauvé la vie" : Chris Marques se confie sur la maladie dont il a souffert dans l'émission Dans les yeux d'Olivier
+-  [뉴스딱] "위치가 왜 하필…" 유명 유튜버 '탕후루집' 개업 논란
+-  Od štvrtka sa začne pomaly otepľovať
+-  【独自】「全部持って行かれた」盗まれた財布の中には息子が書いた手紙…財布も妻からの誕生日プレゼント
+-  Tvö unnu rúma 20 milljarða
+-  Jastrzębski Węgiel i ZAKSA znają rywali w Lidze Mistrzów! Z kim zagrają polskie kluby?
