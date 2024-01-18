@@ -1,11 +1,11 @@
 # Latest News
--  選舉期間抓到破萬「協同帳號」 人工智慧實驗室：300萬人受影響
--  3 xu hướng của ngân hàng số tại Việt Nam trong 2024
--  Comeback verschiebt sich erneut: Was Justin Petermann vom FC Carl Zeiss Jena sagt
--  Corinthians goleia em último jogo-treino antes da estreia no Paulistão; gols
--  Prévia: Tudo sobre Inter x Lazio
--  BAZNAS Konsisten Lakukan Audit Syariah, Pengelolaan Zakat Makin Transparan
--  Tite analisa Pedro e Gabriel jogando juntos no ataque
--  Meteoroloji'den sağanak yağış ve kar alarmı
--  정부, 다음주부터 국내·수입 수산물 ‘삼중수소 모니터링’
--  Raio-X: Tudo sobre Napoli x Fiorentina
+-  현대차그룹, SW 조직 통합에 일부 직원 반발…왜?
+-  Aktuelle Umfrage: Metall- und Elektroindustrie in Mittelfranken warnt vor "Deindustrialisierung"
+-  توصيات بوضع هوية استثمارية موحدة في ظفار واستكمال المخططات السياحية لتعزيز النمو الاقتصادي
+-  ¡El espectáculo del trial indoor de Barcelona el 4 de febrero ya tiene protagonistas!
+-  Yeh Rishta Kya Kehlata Hai: Raj Anadkat shares pictures in a new look; fans feel he is 'Perfect as Abhir Birla'
+-  Parkscheinautomaten in Waltrop: Bargeldloses Bezahlen jetzt möglich
+-  Nightmarket, Hochzeitsmesse und Lateinamerikawoche: Diese Events steigen am Wochenende
+-  HAZ Hannover-Update: Wie weiter am Südschnellweg?
+-  Nach Schönheitsbehandlung in Vietnam - 17-Jährige erblindet
+-  Jego ucieczka do Niemiec wywołała skandal. W Polsce był skreślony. "Poszedłbym do pracy w stoczni albo kraść samochody"
