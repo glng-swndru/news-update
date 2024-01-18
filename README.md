@@ -1,11 +1,11 @@
 # Latest News
--  Fenerbahçe - Galatasaray Süper Kupa maçı orada mı oynanacak?
--  Wednesday morning First Alert Weather forecast
--  Wotum nieufności wobec Bartłomieja Sienkiewicza. Posłowie zdecydowali
--  Novi danski kralj iznenadio javnost potezom samo nekoliko dana stupanja na prijestolje: "Ja sam takav kakav sam"
--  Wotum nieufności wobec Bartłomieja Sienkiewicza. Posłowie zdecydowali
--  Dans les coulisses d'un accrochage à la galerie In Situ avec des élèves du lycée Rémi-Belleau de Nogent-le-Rotrou
--  Bye Bye Brain Fog: Amazon Bestseller Offers Tips for a Revolutionary 2024
--  Στην Αίγυπτο τα αεροσκάφη που μεταφέρουν ανθρωπιστική βοήθεια στη Γάζα
--  Британский король Карл III проходит лечение из-за увеличенной простаты
--  Sobre as críticas de Maria Vieira: "Fiquei todo contente"
+-  Ohio child hurt in mistaken police raid, mom says as authorities deny searching the wrong house
+-  Хабек: Экономика Германии страдает из-за расходов на поддержку Украины
+-  Full jeepney modernization will take years – OTC
+-  Siirt'te uyuşturucu operasyonu! 2 kişi tutuklandı
+-  Preview: Mainz 05 vs. Union Berlin - prediction, team news, lineups
+-  Ohio child hurt in mistaken police raid, mom says as authorities deny searching the wrong house
+-  مدير الأونروا يحذر من مستقبل قاتم لسكان قطاع غزة بعد الحرب
+-  Turudić i Wagner predstavili svoje programe za šefa DORH-a. Evo što su rekli
+-  Καταγγελία ΠΑΣΟΚ για μεθοδεύσεις στην Εξεταστική: Προσπάθεια συγκάλυψης από τη ΝΔ - Πήγαν να διακόψουν την τηλεοπτική μετάδοση
+-  Astronomers detect oldest black hole ever observed - Mirage News
