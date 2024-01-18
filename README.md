@@ -1,11 +1,11 @@
 # Latest News
--  Kubra: suspense, drama e religião na nova série da Netflix
--  Birmingham City transfer state of play: Alex Pritchard link and Jordan James latest
--  [이코노 브리핑] “수수료 0원”… 토뱅, 외환서비스 출시
--  After the snow - a Yellow warning for strong winds on Sunday
--  Bitcoin Cash pierde el 3% ganado la semana pasada
--  Of'ta Gazzeli savaş mağdurları için kermes düzenlendi
--  Bukit Aman berkas duda jual video ranjang
--  Исполнение просьбы: 370 лет назад Украина вошла в состав России
--  Vodstvo Atlantske plovidbe želi prodati dionice Tankerskoj za 825 tisuća eura
--  December-január között alig változott az Egyesült Államok gazdasági aktivitása
+-  Byli agenci CBA skazani z Kamińskim i Wąsikiem wciąż na wolności. „Złożyli wnioski o wstrzymanie i odroczenie kary”
+-  2024 AK Parti Aksaray Belediye Başkan Adayı Kim Oldu?
+-  Ernstig ongeluk met jong meisje in Valkenswaard: dit zijn de regels voor wie slachtoffer hulpeloos achterlaat
+-  Jordan Henderson leaving Saudi club, having Ajax medical: source
+-  Прием заявок на IT-отсрочку от срочной службы пройдет с 22 января по 6 февраля
+-  Byli agenci CBA skazani z Kamińskim i Wąsikiem wciąż na wolności. „Złożyli wnioski o wstrzymanie i odroczenie kary”
+-  Na ernstig ongeluk met jong meisje in Valkenswaard: dit zijn de regels voor wie slachtoffer hulpeloos achterlaat
+-  Tomáš: Minimálne dôchodky nie sú zmrazené, budú opäť zvýšené
+-  盛岡市役所の新庁舎 「内丸地区に整備」を要望 大通商店街協同組合 他候補地は盛岡駅西と盛南＜岩手県＞
+-  49ers quarterback Brock Purdy’s blunt four-word response to Cam Newton’s ‘game manager’ label
