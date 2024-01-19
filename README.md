@@ -1,11 +1,11 @@
 # Latest News
--  Toronto Raptors - Chicago Bulls, en directo | NBA
--  Alianzas políticas: delegados serán comunes
--  Maple Leafs, Sheldon Keefe have a booster in former NHL coach Bruce Boudreau
--  Collapse of herring fishery near Vancouver tied to development: study
--  I knew Houthis in Yemen. Here's what Americans need to know ...
--  'Cala' seguidora que se insurge contra Rui Oliveira: "Tem formação na área?"
--  La adversidad en la niñez impacta en el cerebro y la salud mental futura
--  Päivän horoskooppi perjantaina 19.1.
--  Editorial cartoon: Dictionaries banned?
--  Should the concept of affordable housing be redefined? G Hari Babu, President, Naredco explains
+-  Motorsport: Maiden X-Kart Series Get International Backing
+-  Goldberg, Life Continental & Zagg Celebrate Eagles’ Epic Victory over Elephants
+-  Nasihat Anies Baswedan Saat Mikail Baswedan Pergi ke Korea Bikin Terenyuh, Berpesan Untuk Utamakan Hal Ini
+-  Sếp lớn Indonesia: 'Nếu không thắng Việt Nam thì về nhà đi'
+-  Woman’s death in Nanaimo last week now being investigated as a homicide
+-  Cae presunto integrante de banda señalada de desplazamientos en comuna de Medellín
+-  DeepMind AI rivals the world’s smartest high schoolers at geometry
+-  Woman’s death in Nanaimo last week now being investigated as a homicide
+-  Uruguay viaja a Venezuela para disputar el Torneo Preolímpico
+-  එංගලන්තයේ රජු හා වේල්ස්හි කුමරිය රෝගාතුර වේ
