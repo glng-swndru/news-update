@@ -1,11 +1,11 @@
 # Latest News
--  Muğla'da sahte içki ve kaçakçılık operasyonu: 2 şüpheli yakalandı
--  UŽIVO, CRVENA ZVEZDA - BASKONIJA: Duško Ivanović ponovo pred Delijama! Spektakl u Areni
--  Wer will einen Husky-Mischling?: Hundezucht läuft aus dem Ruder
--  Bangladeshi Elections Come into DDoS Crosshairs
--  Homem negro vira réu por injúria contra italiano em Alagoas
--  TIM se torna 1ª operadora a ativar 5G em todos os bairros de BH
--  Wer will einen Husky-Mischling?: Hundezucht läuft aus dem Ruder
--  "Zaradi morebitne vojne z Rusijo je potrebno ..."
--  HOROR U ODŽACIMA Auto pokosio motor, teško povbrežđen vozač!
--  Sınıf başkanları ile "Kantin Buluşmaları"
+-  Hotel Villa Caprichosa en los Emmy Awards Gift Bags 2024
+-  A nemzetközi hangulatot követte a BUX
+-  Kylian Mbappé dans "Envoyé spécial" : la mise au point d'Emma Smet, la petite fille de Johnny, sur leur relation
+-  Kjærestens reaksjon beskriver frykten vi alle kjenner på
+-  Barnstorf: Ländliche Erwachsenenbildung stellt neuen Programm-Katalog vor
+-  Shell Starts Layoffs in Search of Efficiencies
+-  PlayStation Store tira la casa por la ventana con la mejor trilogía de tu infancia con un 60% de descuento
+-  Ski alpin: Schramms Bonus für „das Größte“
+-  Köstlicher Klassiker: Einfaches Kartoffelgratin mit knuspriger Käsekruste aus dem Ofen
+-  Reforma impositiva: el Gobierno habría aceptado enmiendas en la ley ómnibus
