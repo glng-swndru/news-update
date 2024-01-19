@@ -1,11 +1,11 @@
 # Latest News
--  Holocaust-Leugnerin: Ursula Haverbeck könnte Haftstrafe in Fröndenberg absitzen
--  Jógvan að drukkna í vinabeiðnum frá „svakalega flottum dömum“
--  Atlántica: así es la dieta que siguen los gallegos y que reduce la mortalidad en personas mayores
--  Abdülkadir ve Umut kadro dışı bırakıldı
--  Former Manchester United sensation quits Poland and signs with Scottish club
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  New app matches students who need housing with seniors who have room to spare
--  Thêm 1 cặp sao gây sốc vì bằng tuổi lại trông như bố con trên phim, nhà gái U40 vẫn trẻ đẹp xuất sắc
--  Perth Festival artistic director Iain Grandage winds up five-year plan with homage to the Sun, and no regrets
--  Delhi HC directs Commissioner Trade and Taxes to Refund Rs 15 lakhs to Sight Sound Electronics [Read Order]
+-  Natalia Salmela lyttää passiiviset indeksisijoittajat ja kertoo miten itse nousi kahteen miljoonaan
+-  Prof. Dr. Tevfik Özlü: Nezledir, griptir geçer denilirse sonuç üzücü olabilir
+-  Pourquoi les températures vont considérablement remonter à partir de dimanche
+-  Higher education | A boost for missing middle students
+-  Merkez Bankası’nın yılsonu enflasyon beklentisi yüzde 42
+-  "Obcecada" com João Moura Caetano? "Quer causar dano à relação"
+-  「非常にもどかしさがあった」輪島市で捜索活動 帰着した消防隊員が報告（鳥取・米子市）
+-  Prince Harry to privately reach out to ailing Kate Middleton, King Charles?
+-  Afganistanlı gencin ortada kalan cenazesine Denizli polisi sahip çıktı!
+-  Bruno Vandelli répond pour la première fois aux accusations de Yanis Marshall (Star Academy)
