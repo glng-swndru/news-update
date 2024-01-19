@@ -1,11 +1,11 @@
 # Latest News
--  بالتفاصيل.. المملكة تعزز شراكتها مع "UpLink" التابعة لمنتدى دافوس
--  İsrailli askerin, hükümeti eleştiren mezar taşını söktüler
--  Pourquoi ce bras de la Blaise à Dreux est à sec depuis des semaines ?
--  DeSantis regrets early strategy of avoiding media
--  Vancouver samurai sword-wielding robbery suspect makes court appearance (BC)
--  Komoly plusz juttatást kapott a kormánytól a főváros
--  Meghalt a korábbi NB I-es magyar focista
--  Austrijanci nastavljaju sa senzacijama na Euru, sad su 'sredili' i Mađare
--  Meghalt egy négyéves kisfiú, miután lenyelt egy metadontablettát
--  Hayes: We have quality to replace Kerr
+-  Wójt powierzył obowiązki. Kto teraz kieruje OKiR-em i GBP w Pakosławiu?
+-  Hillwood Ellerau: US-Investor plant Großprojekt: Gemeinde zieht die Notbremse
+-  Hakem ve VAR konuşmaları canlı dinlenecek!
+-  'Renascer': José Inocêncio é alvo de Belarmino
+-  Войната не ги спира: хиляди индийци чакат за работа в Израел
+-  Transgender candidate facing disqualification now cleared to run despite omitting deadname
+-  SEEBIKAS VIIS VANGILAAGRISSE! Põhja-Korea karistab juba lapsigi
+-  Promesas de gol hacia París 2024: 10 figuras a seguir en el Preolímpico sudamericano
+-  Friseur aus Gera, der lieber in der Erde buddelte
+-  What the Hell Is THIS?! Footage of United Airlines CEO Scott Kirby 'Performing' Leaks and YIKES (Watch)
