@@ -1,11 +1,11 @@
 # Latest News
--  NOVO TROVANJE U FABRICI U ALEKSINCU Oko 50 radnika se javilo Hitnoj pomoći, neki zadržani u bolnici
--  Kuşadası'nda öğrencilere trafik eğitimi verildi
--  Longsor tutup Jalan Lencoh Boyolali, Begini Kondisi Terkini
--  O anlar kamerada: Bursa’da domuz sürüsü yola atladı
--  В Гомельской области талыми водами подтоплено 12 участков дорог
--  Siskaeee Batal Hadir Memenuhi Panggilan Polisi, Kuasa Hukum Beri Penjelasan Begini
--  Australijan open, šesti dan: Lakši treninzi za Cicipasa i Sinera na startu dana u Melburnu
--  Nawet 1 zł kaucji za plastikową butelkę? Miałoby to motywować Polaków do ich oddawania. Od kiedy system kaucyjny w Polsce?
--  Chuyển nhượng 19/1: Arsenal gây sốc với Benzema, Henderson rời Saudi Arabia
--  Olimpijske igre u Parizu bit će veliki prodajni sajam sigurnosne opreme
+-  В Подмосковье завели уголовное дело после поджога дома участника СВО
+-  Genotyping can detect Covid variants more rapidly: Lancet study
+-  Taksit | Ovela taksihuijaus rantautui nyt Tampereelle – Huomaisitko itse eron?
+-  Kırklareli'de 55 bin 120 öğrenci karne aldı
+-  Otoyolda park halindeki tırın içinde ceset bulundu
+-  "1984" oyunu rehabilite hizmeti alanlar için sergilendi
+-  Köyceğiz'de öğrenciler dönem sonu etkinliğinde ok uçurdular
+-  Blaulicht: Dachstuhl brennt in Wuppertal - eine Person verletzt
+-  Ankara'da iki sürücünün trafikte tehlikeli hareketleri korkuttu
+-  Σε ηλικία μόλις 59 ετών έφυγε από τη ζωή ο ΠΑΥΛΟΣ ΤΣΟΡΜΠΑΤΖΙΑΝ
