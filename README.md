@@ -1,11 +1,11 @@
 # Latest News
--  Course à pied : il a parcouru 24 km autour de Chartres en reproduisant les contours de la France
--  Klaudia Carlos była gwiazdą TVN, potem przeszła do TVP. Teraz ma zostać nową prowadzącą "PnŚ"
--  Accelerating development: The Indonesian experience
--  "Racjonalizacja wydatków". Sienkiewicz tworzy nową państwową instytucję
--  Wenn Helfer Hilfe brauchen
--  July Cha-cha plebiscite eyed
--  58-летняя Линда Евангелиста снялась топлес для обложки журнала
--  Θρίλερ στο Μεσολόγγι: «Δεν ομολόγησε τίποτα, είναι σκληρός» - Ξεσπά η αδερφή του Μπάμπη για τον κρεοπώλη
--  Delhi HC issues summons on suit of Cine1 studio seeking stay of ‘Animal’ movie on OTT platforms
--  Course à pied : il a parcouru 24 km autour de Chartres en reproduisant les contours de la France
+-  بالتفاصيل.. المملكة تعزز شراكتها مع "UpLink" التابعة لمنتدى دافوس
+-  İsrailli askerin, hükümeti eleştiren mezar taşını söktüler
+-  Pourquoi ce bras de la Blaise à Dreux est à sec depuis des semaines ?
+-  DeSantis regrets early strategy of avoiding media
+-  Vancouver samurai sword-wielding robbery suspect makes court appearance (BC)
+-  Komoly plusz juttatást kapott a kormánytól a főváros
+-  Meghalt a korábbi NB I-es magyar focista
+-  Austrijanci nastavljaju sa senzacijama na Euru, sad su 'sredili' i Mađare
+-  Meghalt egy négyéves kisfiú, miután lenyelt egy metadontablettát
+-  Hayes: We have quality to replace Kerr
