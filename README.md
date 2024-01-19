@@ -1,11 +1,11 @@
 # Latest News
--  Атанасова: Градила съм името си на честен, некорумпиран политик
--  4 Minuman buat Hempaskan Lemak Perut, Cocok Diminum Saat Cuaca Dingin Habis Hujan
--  Μηνύουν τη Madonna, επειδή άργησε να εμφανιστεί στη συναυλία της και έπρεπε να σηκωθούν πρωί την επόμενη ημέρα
--  Srpska mini serija "Zlatni dečko" od 24. stiže u ponudu HBO Max striming platforme
--  Αυτό είναι το πρόστιμο αν παρκάρεις σε θέση φόρτισης για ηλεκτρικά αυτοκίνητα
--  Asia-Pacific Interventional Imaging Industry Research Report 2024 Featuring Canon, Shimadzu, Terumo, Trivitron Healthcare, and FUJIFILM
--  〈受験シーズン〉【大学ランキング】サウナ付き大浴場が人気 学生寮定員1位の大学は？
--  Snima se američki film na Zlatiboru: Glumci kupuju džempere i čarape, rakija ih oduševila
--  Madonna, dată în judecată de doi fani pentru că a întârziat peste două ore la un concert din Brooklyn
--  Sakarya'da polis ailesini katletti! Karısını ve kızını öldürdü, annesini yaraladıktan sonra intihar etti
+-  Kosminė kapsulė „Peregrine“ jau pasiekė Žemę: baigė savo misiją, taip ir nepasiekusi Mėnulio
+-  Nazilli Belediyesi temizlik çalışmaları sürüyor
+-  Da li će nas roboti zameniti? Veštačka inteligencija i razvoj robotike izmeniće svet iz korena!
+-  Polonia se teme că Putin își va trimite armata să atace alte țări. „Imperialismul rusesc e lacom după noi teritorii”
+-  U Hrvatskoj je i dalje problem - kapetan, a rukometaši su jasni: Nema vremena za tugu
+-  Първият KitKat, създаден с какао по програмата на Nestlé за увеличаване на доходите на фермерите, вече e в Европа
+-  Stuttgarter Polizei sucht Zeugen: Geparktes Auto erheblich beschädigt und davon gefahren
+-  Mourinyo çempiona təklif olundu: Maaşda razılaşsalar...
+-  Mbappe'ye dudak uçuklatan teklif! Dünya tarihinde eşi benzeri görülmemiş sözleşme
+-  Australian Open ONLINE: Krejčíková na centru ztrácí s domácí deblistkou
