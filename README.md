@@ -1,11 +1,11 @@
 # Latest News
--  Gold and Silver on the backfoot as long as correction in rate cut expectations continues – Commerzbank
--  NamX HUV (2026): Wasserstoff-Futter für den V8
--  Russie-Niger : A Moscou, Lamine Zeine et Alexeï Overtchouk parlent développement de la coopération
--  Večeras promocija „Glasnika”
--  Perišić se vraća na Poljud, evo kad bi se trebao oporaviti i debitirati za Hajduk
--  Itália aprova multas de até € 60 mil contra "ecovândalos"
--  Rachid M'Barki écarté de BFMTV et accusé de "corruption passive" : le journaliste "en larmes" passe aux aveux
--  Швед: судебный процесс по преступлениям палача Катрюка будет открытым
--  Neurážím! S nedbalostí na mě nechoďte. Varaďa reaguje na šokující vyhazov
--  Aizsaulē devies LSPA asociētais profesors Igors Kīsis
+-  Vozači, oprez! Zimska vožnja može biti opasna, donosimo korisne savjete
+-  Novak Đoković nadaljuje lov na 25. naslov za grand slam
+-  Sienkiewicz zapytany o "torebkę z proszkiem": Żułem kości swoich wrogów
+-  В Якутия празнуват Богоявление: Смелчаци се къпят в ледени води на - 40 градуса (Видео)
+-  Adiós, Radio Oasis: cómo explicar el fin de esta emisora (y el playlist de sus 20 canciones imperdibles)
+-  Bologna, altro no del Velez per Santiago Castro: Martinez e Bozenik le alternative
+-  Hadir di Pernikahan Anak Gus Kautsar, Penampilan Berhijab Bella Bonita Bikin Salah Fokus: Pakai Tas Puluhan Juta
+-  Jacob Collier lanza tema junto a Camilo: así se hizo “Mi corazón”, la inesperada colaboración que debes escuchar esta semana
+-  Nicanor Boluarte denunciado: ¿Cuántas veces se le vinculó con el uso de prefectos y subprefectos para fines personales o políticos?
+-  Hohe Spendenbereitschaft: Fröndenberger Influencerin sammelt 9.000 Euro für Brunnen in Afrika
