@@ -1,11 +1,11 @@
 # Latest News
--  Mihajlo Ilic è un giocatore del Bologna. Depositato il contratto del difensore: i dettagli
--  Георги Николов подписа с "Ботев" (Пд)
--  ЕК поиска информация от 17 технологични компании включително "Епъл" и "Мета"
--  Chiudono bar e mense delle sedi Telecom: a Roma licenziati 94 lavoratori
--  Ταυτοποιήθηκαν ακόμη επτά μέλη της Greek Mafia: Τι εξετάζει η αστυνομία (vid)
--  Fitness expert shares key way to burn more calories 'even when you're relaxing'
--  Bitte keine Warn-Wut: Lieber zu viel als zu wenig Meldungen
--  Le supermarché de Gallardon a été repris par Carrefour
--  Znamy nazwisko nowej prowadzącej "Pytanie na śniadanie". Wcześniej była w TVN [PLOTEK EXCLUSIVE]
--  Леся Цуренко – Арина Соболенко. Прогноз и анонс на матч Australian Open
+-  ŠTA ĆE SE DESITI SA BRITANSKOM MOHARHIJOM UKOLIKO KRALJ ČARLS UMRE Izrađen DETALJAN PLAN u slučaju smrti engleskog monarha
+-  Wer heilt die Wunden aus der Corona-Pandemie?
+-  Appell für Waffenstillstand in Gaza: Aufstand gegen Scholz
+-  Polres Simalungun Ringkus Pengedar Narkoba, AKBP Choky Meliala Sampaikan Penegasan, Jangan Coba-coba!
+-  Noch einmal Streif, dann ist Schluss: Skirennläufer Thomas Dreßen beendet seine Karriere
+-  OBRAZEM: Sport, tradice, umění. Česká mincovna vyrobila 10 000 medailí pro 57. ročník Jizerské 50
+-  Fenerbahçe'ye 6-0 yenilen Adanaspor'da Mustafa Kaplan ile yollar ayrıldı
+-  Моуриньо побеснял при уволнението си
+-  Gerul și ninsorile abundente paralizează transporturile în mai multe regiuni din Europa. Zonele afectate de vremea rea | FOTO
+-  Polícia apreende caminhão com toras de madeira sem documentação em Mato Grosso
