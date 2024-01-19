@@ -1,11 +1,11 @@
 # Latest News
--  যে ৮ ভুলে ননস্টিক পাত্রের আয়ু কমে যায়
--  До 9 миллионов тенге предлагают за пропаганду ислама — СМИ
--  違反ないのに「下請法違反のおそれ」通知7800件 判定ロジックミスで 中小企業庁
--  Man dies down hole he dug under his floor
--  Employment Report: Oregon adds 3,900 jobs
--  Nhánh cây 2 m rơi trúng đầu người bán giỏ xách ở quận 5
--  中 쓰촨성에서 100만t 규모 리튬 매장지 발견
--  ChatGPT effect: Coursera sees signups for AI courses every minute in 2023
--  ”Läser och blir mer och mer beklämd”
--  李玉璽曝曾想拒演《我的少女時代》 楊大正遭虧總演邊緣角色
+-  Meteoroloji'den İstanbul ve Ankara dahil birçok ile uyarı: İkisi birden vuracak
+-  YG, 학대 피해 아동 음악치료 지원…세이브더칠드런에 1억 원 기부
+-  수도권 집값 ‘1·10 대책’에도 관망세 지속…재건축 ‘보합’
+-  Александрова и Калинская вышли в третий круг парного турнира Australian Open
+-  Coinbase Tells Judge That Buying Crypto Is Like Collecting 'Beanie Babies,' SEC Says It's An Investment
+-  PMAY-Urban: PM Modi to handover 15,000 houses to workers in Solapur; beneficiary list and all about the scheme
+-  Гофф разгромила обидчицу Снигур и вышла в 1/8 финала Australian Open 2024
+-  행안부, 파주 아프리카돼지열병 방역현장 긴급점검
+-  Detienen en Argentina a familia de narco ecuatoriano fugado
+-  Truy nã phạm nhân trốn khỏi Trại giam Mỹ Phước, Tiền Giang
