@@ -1,11 +1,11 @@
 # Latest News
--  Dar vieną trigubą dublį surinkęs Sabonis pavijo Jokičių
--  Георги Георгиев за проектобюджета на София за 2024 г.: Не виждаме в него амбиция и размах - Труд
--  Đang bị tước giấy phép, Thành Bưởi vẫn ngang nhiên bắt khách chạy tuyến TPHCM-Cần Thơ
--  Вандали тероризират Сливен - Труд
--  Суперсенсация от украинца. Молчанов обыграл первых ракеток на Аus Open 2024
--  Ísland um helgina - Bestu-deildarlið berjast
--  'Yerel seçim öncesi' çıkmazı: Erdoğan ve Mehmet Şimşek ters düştü
--  England um helgina - Topplið Liverpool heimsækir Bournemouth
--  Ítalía um helgina - De Rossi stýrir Roma í fyrsta sinn
--  Brookers land another two signings and welcome back premiership defender
+-  "עוד משחק גביע, עוד סבל": בספרד לא התרשמו מברצלונה
+-  Mahua Moitra, TMC Leader Who Was Expelled From Lok Sabha Last Month, Vacates Delhi Bungalow - News18
+-  Katara's Asian Cup festivities continue
+-  Galatasaray - Ümraniyespor maçını değerlendirdi: Zaha forvete geçsin
+-  Boğazını sıkıp küfür etti! Belediyedeki 'rüşvet' operasyonunda çirkin saldırı
+-  Actor, arts administrator Watson Chidzomba dies
+-  13 ilde bazı alanlar orman sınırları dışına çıkartıldı
+-  ‘후배♥’ 박지성, 조규성에 “손흥민도 나한테 얻어먹어” (맨인유럽)
+-  유연석, 심쿵하게 만드는 공항 패션
+-  Küresel piyasalarda gözler veri gündeminde
