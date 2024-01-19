@@ -1,11 +1,11 @@
 # Latest News
--  Meteoroloji'den İstanbul ve Ankara dahil birçok ile uyarı: İkisi birden vuracak
--  YG, 학대 피해 아동 음악치료 지원…세이브더칠드런에 1억 원 기부
--  수도권 집값 ‘1·10 대책’에도 관망세 지속…재건축 ‘보합’
--  Александрова и Калинская вышли в третий круг парного турнира Australian Open
--  Coinbase Tells Judge That Buying Crypto Is Like Collecting 'Beanie Babies,' SEC Says It's An Investment
--  PMAY-Urban: PM Modi to handover 15,000 houses to workers in Solapur; beneficiary list and all about the scheme
--  Гофф разгромила обидчицу Снигур и вышла в 1/8 финала Australian Open 2024
--  행안부, 파주 아프리카돼지열병 방역현장 긴급점검
--  Detienen en Argentina a familia de narco ecuatoriano fugado
--  Truy nã phạm nhân trốn khỏi Trại giam Mỹ Phước, Tiền Giang
+-  Von Zechenbräu bis Eventlocation: Konzeptideen für das Maschinenhaus in Oer-Erkenschwick
+-  Tottenham Hall of Famer, Chelsea Premier League winner, Wolves manager and Leicester Wembley hero: Portsmouth star spotter's best 16 signings - gallery
+-  Nicht alle Hertener Bauern protestierten: Philipp Schulte-Scheddings Traktor blieb im Schuppen
+-  Ορφανοτροφείο-κολαστήριο στην Σκωτία: Μοναχές κακοποιούσαν και βασάνιζαν παιδιά
+-  네타냐후 "팔레스타인 건국 반대…이란 공격하고 있다"
+-  才剛升格2寶爸！王傳一突宣布新身份 外景種菜快腰斷更惜福
+-  Nach Sprengung bei der Waltroper Sparkasse: Geldautomaten-Container geht in Betrieb
+-  Kurz mal nachgefragt – Was macht eigentlich Chantal Gary?
+-  Hãng bột giặt gần 60 năm tuổi báo lãi cao kỷ lục sau khi về tay Masan Group
+-  Grecka wyspa przyciąga turystów jak magnes. Nie każdy jednak słyszał o Czerwonej Plaży
