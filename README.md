@@ -1,11 +1,11 @@
 # Latest News
--  Cabinet to decide on targeted subsidy mechanism next week, says Rafizi
--  Galatsaray'da, Icardi sevinci! Geri döndü
--  Агенция „Митници“ отчита с 80% повече задържани стоки спрямо 2022 г.
--  '이태원법' 거부권 행사 시점 고민…민주당 "즉각 공포"
--  Būvkompāniju "Velve" turpmāk vadīs Jānis Lapiņš
--  Attesa in casa Hajduk per il ritorno di Ivan Perisic. L'ex Inter lascia subito il Tottenham
--  Bia Haddad perde para russa e dá adeus ao Australian Open
--  "Срамота": Протестите в руски Башкортостан стигнаха до регионалната столица Уфа
--  Saône-et-Loire. Le niveau 1 du plan grand froid réactivé dans le département
--  Kazada ölen polis memuru için tören düzenlendi
+-  Атанасова: Градила съм името си на честен, некорумпиран политик
+-  4 Minuman buat Hempaskan Lemak Perut, Cocok Diminum Saat Cuaca Dingin Habis Hujan
+-  Μηνύουν τη Madonna, επειδή άργησε να εμφανιστεί στη συναυλία της και έπρεπε να σηκωθούν πρωί την επόμενη ημέρα
+-  Srpska mini serija "Zlatni dečko" od 24. stiže u ponudu HBO Max striming platforme
+-  Αυτό είναι το πρόστιμο αν παρκάρεις σε θέση φόρτισης για ηλεκτρικά αυτοκίνητα
+-  Asia-Pacific Interventional Imaging Industry Research Report 2024 Featuring Canon, Shimadzu, Terumo, Trivitron Healthcare, and FUJIFILM
+-  〈受験シーズン〉【大学ランキング】サウナ付き大浴場が人気 学生寮定員1位の大学は？
+-  Snima se američki film na Zlatiboru: Glumci kupuju džempere i čarape, rakija ih oduševila
+-  Madonna, dată în judecată de doi fani pentru că a întârziat peste două ore la un concert din Brooklyn
+-  Sakarya'da polis ailesini katletti! Karısını ve kızını öldürdü, annesini yaraladıktan sonra intihar etti
