@@ -1,11 +1,11 @@
 # Latest News
--  ŠTA ĆE SE DESITI SA BRITANSKOM MOHARHIJOM UKOLIKO KRALJ ČARLS UMRE Izrađen DETALJAN PLAN u slučaju smrti engleskog monarha
--  Wer heilt die Wunden aus der Corona-Pandemie?
--  Appell für Waffenstillstand in Gaza: Aufstand gegen Scholz
--  Polres Simalungun Ringkus Pengedar Narkoba, AKBP Choky Meliala Sampaikan Penegasan, Jangan Coba-coba!
--  Noch einmal Streif, dann ist Schluss: Skirennläufer Thomas Dreßen beendet seine Karriere
--  OBRAZEM: Sport, tradice, umění. Česká mincovna vyrobila 10 000 medailí pro 57. ročník Jizerské 50
--  Fenerbahçe'ye 6-0 yenilen Adanaspor'da Mustafa Kaplan ile yollar ayrıldı
--  Моуриньо побеснял при уволнението си
--  Gerul și ninsorile abundente paralizează transporturile în mai multe regiuni din Europa. Zonele afectate de vremea rea | FOTO
--  Polícia apreende caminhão com toras de madeira sem documentação em Mato Grosso
+-  Känns orättvist, men han är en besvikelse
+-  BTC, ETH, and XRP Are OverHeated But Opportunity Remain Present
+-  "Nisam gledala `Prijatelje`!" Marija Bergam za Informer otkrila šta bi rekla čuvenoj Fibi kada bi je upoznala
+-  Leon Osman shares 'Leniency' verdict on BBC as Everton charged again
+-  Danas je rukometni El Clasico" Hrvatski rukometaši optimistični: "Spremni smo!"
+-  HŠK Posušje produžilo ugovor sa standardnim prvotimcem
+-  Гарибашвили выразил надежду на скорейшее подписание мирного договора между Азербайджаном и Арменией
+-  Objavljene karte, snijeg nestaje diljem svijeta: "To je prijetnja milijunima ljudi"
+-  Bildung in Radevormwald : Schönheitsreparaturen werden nicht reichen
+-  Why are retailers focusing on eliminating merchandise returns?
