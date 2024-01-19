@@ -1,11 +1,11 @@
 # Latest News
--  Motorsport: Maiden X-Kart Series Get International Backing
--  Goldberg, Life Continental & Zagg Celebrate Eagles’ Epic Victory over Elephants
--  Nasihat Anies Baswedan Saat Mikail Baswedan Pergi ke Korea Bikin Terenyuh, Berpesan Untuk Utamakan Hal Ini
--  Sếp lớn Indonesia: 'Nếu không thắng Việt Nam thì về nhà đi'
--  Woman’s death in Nanaimo last week now being investigated as a homicide
--  Cae presunto integrante de banda señalada de desplazamientos en comuna de Medellín
--  DeepMind AI rivals the world’s smartest high schoolers at geometry
--  Woman’s death in Nanaimo last week now being investigated as a homicide
--  Uruguay viaja a Venezuela para disputar el Torneo Preolímpico
--  එංගලන්තයේ රජු හා වේල්ස්හි කුමරිය රෝගාතුර වේ
+-  “남한보다 잘산다더니”…한국드라마 본 北10대 2명에 ‘12년 노동형’
+-  Asam Lambung Naik, Segera Turunkan dengan Mengonsumsi 5 Minuman Ini
+-  Meloun: Želeo je da zna koliko je Milojević voleo Jokića VIDEO
+-  Applebee’s date night passes for $200: What do they offer?
+-  Promoverán amparo por incumplimiento de obligaciones en Poder Judicial
+-  Alanya bakıyor onlar kazanıyor
+-  Asesinos del niño en Malvín Norte habían ido a buscar a su padre, miembro de una de las bandas de Villa Española
+-  Britannia winter trail blocked by snow clearing
+-  সাভারে অবৈধ হাসপাতাল-ক্লিনিকে সেবার নামে অপচিকিৎসা
+-  강력해진 스마트폰 ‘두뇌’의 귀환…삼성 ‘엑시노스’ 부활의 노래
