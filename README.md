@@ -1,11 +1,11 @@
 # Latest News
--  Von Zechenbräu bis Eventlocation: Konzeptideen für das Maschinenhaus in Oer-Erkenschwick
--  Tottenham Hall of Famer, Chelsea Premier League winner, Wolves manager and Leicester Wembley hero: Portsmouth star spotter's best 16 signings - gallery
--  Nicht alle Hertener Bauern protestierten: Philipp Schulte-Scheddings Traktor blieb im Schuppen
--  Ορφανοτροφείο-κολαστήριο στην Σκωτία: Μοναχές κακοποιούσαν και βασάνιζαν παιδιά
--  네타냐후 "팔레스타인 건국 반대…이란 공격하고 있다"
--  才剛升格2寶爸！王傳一突宣布新身份 外景種菜快腰斷更惜福
--  Nach Sprengung bei der Waltroper Sparkasse: Geldautomaten-Container geht in Betrieb
--  Kurz mal nachgefragt – Was macht eigentlich Chantal Gary?
--  Hãng bột giặt gần 60 năm tuổi báo lãi cao kỷ lục sau khi về tay Masan Group
--  Grecka wyspa przyciąga turystów jak magnes. Nie każdy jednak słyszał o Czerwonej Plaży
+-  Shakira Jasmine dan Arash Buana Hadirkan Lagu untuk Para Bucin
+-  Топло време днес, с температури до 19 градуса
+-  Nettihuijari voi narahtaa yhden sanan vuoksi – näin voit käyttää sitä kalastelijaa vastaan
+-  KAB ventures into Philippines with solar power collaboration
+-  Reinado de Coro| Conoce a Miss Prensa y Miss Fotogénica
+-  जया बच्चन की वजह से बिगड़ा ऐश्वर्या और अभिषेक का रिश्ता? सासुमा को बहू की चिंता क्यों
+-  Queen Elizabeth II big fan of BBC TV show and 'would do impressions' of characters
+-  Disantap Bersamaan, Duet Makanan Ini Lebih 'Nendang' Khasiatnya
+-  Deux cas autochtones de dengue II identifiés à Faa'a et Punaauia
+-  Houthi Janjikan Jalur Aman untuk Kapal Rusia-China di Laut Merah
