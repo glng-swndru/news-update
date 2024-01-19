@@ -1,11 +1,11 @@
 # Latest News
--  Wójt powierzył obowiązki. Kto teraz kieruje OKiR-em i GBP w Pakosławiu?
--  Hillwood Ellerau: US-Investor plant Großprojekt: Gemeinde zieht die Notbremse
--  Hakem ve VAR konuşmaları canlı dinlenecek!
--  'Renascer': José Inocêncio é alvo de Belarmino
--  Войната не ги спира: хиляди индийци чакат за работа в Израел
--  Transgender candidate facing disqualification now cleared to run despite omitting deadname
--  SEEBIKAS VIIS VANGILAAGRISSE! Põhja-Korea karistab juba lapsigi
--  Promesas de gol hacia París 2024: 10 figuras a seguir en el Preolímpico sudamericano
--  Friseur aus Gera, der lieber in der Erde buddelte
--  What the Hell Is THIS?! Footage of United Airlines CEO Scott Kirby 'Performing' Leaks and YIKES (Watch)
+-  Muğla'da sahte içki ve kaçakçılık operasyonu: 2 şüpheli yakalandı
+-  UŽIVO, CRVENA ZVEZDA - BASKONIJA: Duško Ivanović ponovo pred Delijama! Spektakl u Areni
+-  Wer will einen Husky-Mischling?: Hundezucht läuft aus dem Ruder
+-  Bangladeshi Elections Come into DDoS Crosshairs
+-  Homem negro vira réu por injúria contra italiano em Alagoas
+-  TIM se torna 1ª operadora a ativar 5G em todos os bairros de BH
+-  Wer will einen Husky-Mischling?: Hundezucht läuft aus dem Ruder
+-  "Zaradi morebitne vojne z Rusijo je potrebno ..."
+-  HOROR U ODŽACIMA Auto pokosio motor, teško povbrežđen vozač!
+-  Sınıf başkanları ile "Kantin Buluşmaları"
