@@ -1,11 +1,11 @@
 # Latest News
--  Supercoppa, Napoli - Fiorentina: le formazioni ufficiali
--  Le Conseil d'État se saisit du projet éolien de Santigny, refusé en raison de la présence de cigognes noires
--  Fisker has ‘arguably become a meme stock’ says StockTwits
--  Concurso: Salto do Jacuí RS retifica período de inscrição
--  GORAN PERKOVAC: Imali smo Francuze, a tužan sam zbog jedne stvari!
--  No Customary Restrictions On Republic Day in Kashmir: Div Com
--  Previsión meteorológica para este viernes en Castilla-La Mancha: lluvias y nevadas en los sistemas Central e Ibérico
--  Iğdırda alkol bağımlılığı ve halk sağlığı konulu seminer gerçekleştirildi
--  La 1 EN DIRECTO – ver Real Madrid - Atlético en vivo online por Copa del Rey
--  Povezivanje sa Azijom od ključnog značaja ne samo za Srbiju, već i Evropu
+-  Συνάντηση ΠτΔ με Πρωτοβουλία 1ΚΥΠΡΟΣ: Έκκληση για επανένωση της Κύπρου
+-  Ölen İsrailli askerin annesi, oğlunun hükümeti eleştiren mezar taşının kaldırılmasına tepki gösterdi
+-  أبين .. جمعية المستقبل التنموية الاجتماعية بالكود تقيم ندوة توعوية وإرشادية
+-  Ukrajinský dron, který útočil u Petrohradu, patrně urazil vzdálenost asi 900 km
+-  Ukrajinský dron, který útočil u Petrohradu, patrně urazil vzdálenost asi 900 km
+-  Dron, který útočil u Petrohradu, urazil 1250 kilometrů, tvrdí ministr
+-  Sonora: Se han regularizado 2 mil 98 vehículo con letra
+-  A9 Snow gates will stay closed overnight after several drivers trapped on motorway - Daily Record
+-  Bakıda avtomobil yandı
+-  Missbrauchskomplex Münster: Kein Hinweis auf gesuchte Opfer
