@@ -1,11 +1,11 @@
 # Latest News
--  Global debt rush hope for strained developing states
--  TEODOSIĆ? NAMERNO GA NISAM POMENUO! Na jedno pitanje o Zvezdi Sferopulos NEMA ODGOVOR
--  Męczarnie Barcelony w Pucharze Króla. Wszedł Lewandowski i zaczęło się strzelanie
--  برشلونة يتجاوز سالامانكا بثلاثية في كأس ملك إسبانيا
--  Ticaret Bakanlığı 930 sözleşmeli personel istihdam edecek
--  오늘의 날씨 - 오전 (2024년 01월 19일)
--  He Killed a Man. Turks Wonder Why a Well-Connected Somali Went Free
--  Ajax, Jordan Henderson'ı duyurdu
--  Cijena svinjetine u veleprodaji mjesecima u padu, a građani je i dalje u prodavnicama skupo plaćaju: Takav trend mogao bi se samo nastaviti
--  Atacaron a hachazos a un invitado en un cumpleaños de 15
+-  Удар за ударом: Филиппа Киркорова вырезали из «Сватов»
+-  Game2Give: evento beneficente de Destiny 2 tem início
+-  'Beloved by all': Family remembers victim of fatal Parkdale stabbing
+-  맥주거품 닮은 소변 무슨 신호일까?[영상]
+-  "Tu n'es pas complètement là" : Eve Von Romberg (L'Agence) fait une mise au point à son mari Martin Kretz
+-  Polícia inspeciona autoridades fiscais da França para investigar transferência de Neymar
+-  Final Oscars Predictions: Original Score – Will Robbie Robertson Become the Eighth Composer Nominated Posthumously?
+-  Räddningstjänsten ryckte ut till rykande bil
+-  ‘They’re freezing to death’: Victoria’s unhoused community battles cold weather
+-  Niño de 8 años fue asesinado al ser baleada su casa en Malvín Norte
