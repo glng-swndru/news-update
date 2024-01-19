@@ -1,11 +1,11 @@
 # Latest News
--  Everything We Know (So Far) About ‘And Just Like That’ Season 3
--  Польща продовжила дію тимчасового захисту українців до березня наступного року
--  Ministry launches health clusters across Saudi Arabia, completes first phase of transition
--  Digitisation of land records by December 2024: Minister
--  «Маккаби» Тель-Авив арендовал хавбека «Башакшехира» Карцева. Его допрашивали в Турции из-за поста в соцсетях
--  Police looking for 3 suspects after smash-and-grab robbery at Sherway Gardens
--  Bhansali Productions To Announce Their Next Big-Screen Magnum Opus In March 2024
--  Резолюция Сената Франции не имеет никакой силы
--  Komentar Shin Tae Yong Menjelang Indonesia vs Vietnam di Piala Asia 2023
--  Ege Bölgesi'nde yaş meyve sebze ihracatı arttı
+-  Ukrainas ministrs mudina risināt munīcijas deficīta problēmu
+-  Gewichtheben: Der SV Flözlingen hat’s in der Hand
+-  Петър Карабоев: Нещо трябва да принуди Украйна и Русия да седнат и да разговарят (ВИДЕО)
+-  Football-CAN 2023/G.C-J2/Sénégal-Cameroun : Aliou Cissé, « On aura en face une équipe très motivée et qui a envie de redorer le blason par rapport à sa première sortie »
+-  '탕후루 가게 논란' 진자림, 가게 오픈 취소…"'디저트' 가게로 속인 적 없어"
+-  W Biedronce dostaniesz pieniądze do ręki. Można skorzystać wielokrotnie danego dnia
+-  Kako priti jutri domov s celim avtom
+-  Объединение Руси, будущее Украины. 370 лет Переяславской рады
+-  Pavarese: "Quando esonerarono Garcia speravo arrivasse un solo allenatore"
+-  AK Parti tüm il belediye başkan adaylarını açıkladı
