@@ -1,11 +1,11 @@
 # Latest News
--  自由日日Shoot》常用手法 美女帥哥影片吸引 再私訊
--  Cheikh Tidiane Dièye, candidat à la présidentielle : « Nous assumons et revendiquons notre alliance au Pastef… »
--  르세라핌 ‘퍼펙트 나이트’…13주차에도 신드롬급 돌풍
--  知人を脅迫容疑で逮捕の自称ユーチューバー男性(41)を不起訴 さいたま地検は処分理由明らかにせず
--  涉賄選案二審改判 雲林麥寮鄉長 當選無效定讞
--  City keeping tight lid on Stanley Park logging reports
--  Microsoft abre la puerta a llevar sus juegos a PlayStation y Nintendo
--  故이선균 ‘수사 정보 유출’ 정식조사
--  Xavier Saints Green serve up another blowout win
--  農電共生 曾文生:盼翻轉找地思維
+-  TCU irá avaliar suspensão de isenção tributária a líderes religiosos
+-  立院龍頭之戰傳民眾黨將自推人選 綠營：等於保送韓國瑜
+-  No school again on Friday
+-  Bukti požar u Šapcu: Buktinja kod nadvožnjaka
+-  Eldern Scrolls Online devs answer to crossplay has “changed”
+-  Romun jih je zažgal na Goriškem
+-  Regulator adjusts rules for digital token investment
+-  The 5 best things our food writers ate in the Twin Cities area this week
+-  3 Berita Artis Terheboh: Catherine Wilson Tak Dinafkahi, Virgoun Menolak
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 19 януари /валутен калкулатор/
