@@ -1,11 +1,11 @@
 # Latest News
--  Byli agenci CBA skazani z Kamińskim i Wąsikiem wciąż na wolności. „Złożyli wnioski o wstrzymanie i odroczenie kary”
--  2024 AK Parti Aksaray Belediye Başkan Adayı Kim Oldu?
--  Ernstig ongeluk met jong meisje in Valkenswaard: dit zijn de regels voor wie slachtoffer hulpeloos achterlaat
--  Jordan Henderson leaving Saudi club, having Ajax medical: source
--  Прием заявок на IT-отсрочку от срочной службы пройдет с 22 января по 6 февраля
--  Byli agenci CBA skazani z Kamińskim i Wąsikiem wciąż na wolności. „Złożyli wnioski o wstrzymanie i odroczenie kary”
--  Na ernstig ongeluk met jong meisje in Valkenswaard: dit zijn de regels voor wie slachtoffer hulpeloos achterlaat
--  Tomáš: Minimálne dôchodky nie sú zmrazené, budú opäť zvýšené
--  盛岡市役所の新庁舎 「内丸地区に整備」を要望 大通商店街協同組合 他候補地は盛岡駅西と盛南＜岩手県＞
--  49ers quarterback Brock Purdy’s blunt four-word response to Cam Newton’s ‘game manager’ label
+-  Trump promises to block CBDC
+-  ”Större tryck på att bli mamma i dag än på 70-talet”
+-  Cumhurbaşkanı Erdoğan, Ankara adayını açıkladı! AK Parti’nin Ankara adayı Turgut Altınok oldu
+-  Energichefen: Så drar du ned på elförbrukningen
+-  Nya Skansenchefen: ”Jag går gärna med håven”
+-  Ticketkauf bei der Bahn: Verbraucherschützer sehen fehlgeleitete Digitalisierung
+-  VinFast: Lượng bàn giao xe quý 4 tăng 35% so với quý 3, sẽ công bố kết quả kinh doanh vào đầu tuần tới
+-  Pintér Sándorék elárulták a pontos számokat, amire mindenki várt
+-  Instagram ve Snapchat, Samsung ile işbirliği yapacak!
+-  Peugeot E-3008 frälser med frikostig räckvidd
