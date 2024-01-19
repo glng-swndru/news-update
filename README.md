@@ -1,11 +1,11 @@
 # Latest News
--  Bakan Kacır ilk Türk astronot Alper Gezeravcı ile konuştu
--  Feasibility study set to begin on potential protected area in northern Manitoba
--  【速報】東京・足立区で住宅の床下から2人の遺体発見 死体遺棄容疑で30代の女を逮捕
--  POHLED: Život jde dál? Pardubická rozlučka s Varaďou je nestoudná
--  На Украине назвали причину провала контрнаступления ВСУ
--  À Cogolin, les soldes ne font plus vraiment recette
--  Membro do Fed defende normalizar juros a partir do 3º tri, mas não descarta adiantar projeção
--  Mali NATO’ya ‘hayır’ dedi
--  Prognoza za sjutra: Kišovito, na sjeveru snijeg
--  El estudio científico que revela el hábito diario para tener una buena memoria toda la vida
+-  Cumhur İttifakı Yeniden Refah'a kapıları kapadı. Randevu bile vermediler
+-  이상엽, 장성규 위해 '코스 요리' 대접…83년생 동갑 '절친'
+-  Bezwaren tegen plan voor 82 woningen Vuursteeglaan Lisse. ’Het is een gemiste kans’
+-  「すぽると！」8年ぶり復活へ
+-  Horoscope Today 19 January 2024 : कर्क, सिंह, कन्या राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
+-  Sepanjang 2024, Bareskrim Polri Proses 20 Dugaan Tindak Pidana Pemilu
+-  Prostatavergrößerung: König Charles III. muss operiert werden – wie gefährlich ist eine Prostatahyperplasie?
+-  Brad Pitt spotkał KREWNYCH Angeliny Jolie na wystawie. Zrobiło się niezręcznie... (ZDJĘCIA)
+-  'Kupadaki en zor maçımız oldu'
+-  사놓은 종목 추천한 애널리스트, 징역·벌금 15억
