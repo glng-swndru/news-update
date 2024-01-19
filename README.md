@@ -1,11 +1,11 @@
 # Latest News
--  BLOG | Top marks for Class of 2023
--  Kanada luovutti vuosikymmenten odotuksen jälkeen arktisen maa-alueen hallinnan alkuperäisväestölle Nunavutissa – tunnettu arvokkaista mineraaleistaan
--  Cessione Milan, indiscrezione clamorosa: arabi in pressing su Cardinale. Cosa può succedere
--  Bejelentették a The Elder Scrolls Online: Gold Road kiegészítőt
--  Huti izveli napad na američki brod u Adenskom zalivu, Vašington...
--  Lenfödem tedavisinde yöntem: Bandajlama, masaj ve egzersiz
--  DIRECTO | Última hora de la guerra entre Israel y Hamás
--  DIRECTO | Última hora de la guerra entre Israel y Hamás
--  Πενέλοπε Κρουζ: Εξήγησε γιατί δεν έχει δώσει κινητά στα παιδιά της, 10 και 12 ετών
--  Chipsereget épít a Meta az AI-uralomhoz
+-  Tersangka BS Ternyata Bukan Pelaku Tunggal dalam Korupsi Emas Antam
+-  Netanyahu sconfessa gli Usa sui due Stati e intensifica l'attacco a Khan Younis
+-  Nikola Karabatić nekad je ljubio našu proslavljenu sportašicu, a pobjedu protiv Hrvatske proslavio je u zagrljaju supruge!
+-  Négymilliárddal tartozik 70 ezer bliccelő a MÁV-nak
+-  Lycée Fulbert à Chartres : découvrez la webradio éphémère animée par des élèves
+-  UK retail sales slump points to new risk of recession
+-  Japan set for historic attempt at 'pinpoint' moon landing - Nikkei Asia
+-  Сбер фиксирует рост кибератак на своих партнеров и применения дипфейков
+-  Ostapenko/Kičenoka atspēlē trīs mačbumbas pēc kārtas un tiek 1/8 finālā
+-  Alduk je predstavio novu kolekciju vjenčanica, novost je kompletan izostanak čipke
