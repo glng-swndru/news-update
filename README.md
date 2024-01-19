@@ -1,11 +1,11 @@
 # Latest News
--  Συνάντηση ΠτΔ με Πρωτοβουλία 1ΚΥΠΡΟΣ: Έκκληση για επανένωση της Κύπρου
--  Ölen İsrailli askerin annesi, oğlunun hükümeti eleştiren mezar taşının kaldırılmasına tepki gösterdi
--  أبين .. جمعية المستقبل التنموية الاجتماعية بالكود تقيم ندوة توعوية وإرشادية
--  Ukrajinský dron, který útočil u Petrohradu, patrně urazil vzdálenost asi 900 km
--  Ukrajinský dron, který útočil u Petrohradu, patrně urazil vzdálenost asi 900 km
--  Dron, který útočil u Petrohradu, urazil 1250 kilometrů, tvrdí ministr
--  Sonora: Se han regularizado 2 mil 98 vehículo con letra
--  A9 Snow gates will stay closed overnight after several drivers trapped on motorway - Daily Record
--  Bakıda avtomobil yandı
--  Missbrauchskomplex Münster: Kein Hinweis auf gesuchte Opfer
+-  В ООН сообщили о возможной встрече Гутерриша с Лавровым
+-  15 Prozent könnten sich Wahl einer Maaßen-Partei vorstellen
+-  Руското външно министерство привика посланика на Франция за обяснения
+-  Údery proti jemenským povstalcům budou pokračovat, řekl Biden
+-  What's Going On With Rivian Automotive Stock?
+-  Údery proti jemenským povstalcům budou pokračovat, řekl Biden
+-  First Capital Research makes its call ahead of next monetary policy review
+-  Гендиректор «Пари НН» Мелик-Гусейнов: «В футбольном клубе степень занятости такая же высокая, как и на госслужбе»
+-  Нацрада зареєструвала канал UPL.TV від ТОВ Прем'єр-ліга
+-  Rusya, Güney Kıbrıs Rum Yönetimi'nin bazı yetkililerine giriş yasağı getirdi
