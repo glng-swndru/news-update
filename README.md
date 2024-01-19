@@ -1,11 +1,11 @@
 # Latest News
--  Cheryl Hines Seems Cool With RFK Jr.'s Conspiracy Theories But Draws the Line at Alex Jones
--  Ajax rondt spectaculaire transfer Jordan Henderson af: ‘Lastige tijd geweest voor de club, maar dat geldt ook voor mij’
--  Afrika Cup 2024: Egypte speelt gelijk tegen Ghana en raakt Salah kwijt
--  У M**a будет уже 350 тыс. ускорителей NVIDIA H100 к концу 2024 года
--  DOJ calls law enforcement response to Uvalde school shooting 'a failure'
--  Khảo sát hơn 950 người trăm tuổi: Tìm ra 4 điểm chung có thể đem tới "thể chất trường thọ", ai sở hữu đủ cả thì xin chúc mừng
--  Organizatori se protive isključenju Izraela s Eurosonga
--  Nekdanji kapetan Liverpoola zapustil Savdsko Arabijo in podpisal za Ajax
--  ВИДЕО. Исправился! Лунин совершил суперсейв и спас Реал от поражения
--  1st LD: U.S. Congress passes stopgap bill to extend gov't funding until March
+-  Nevşehir'de trafik kazası: 1 ölü, 3 yaralı
+-  “巨人”2社と競えるVTuber企業の連合軍を。Brave groupトップが目指す「点と点を線にする経営」
+-  Teploty v piatok mierne klesnú, môže slabo nasnežiť
+-  Tomļanoviča: "Ostapenko bija ļoti laipna, kad paspiedām rokas"
+-  Vizela-Sporting, 2-5 (crónica)
+-  Вяльбе считает двуличными решения МОК в отношении российских спортсменов
+-  UAE lỡ vé sớm vào vòng 1/8 Asian Cup
+-  Chuyển nhượng MU 19/1: Chính thức chia tay cầu thủ thứ 7, Mourinho tái xuất Old Trafford?
+-  5 Koleksi Tas Mewah Anisha Rosnah yang Baru Jadi Istri Pangeran Mateen, Total Harganya Miliaran Rupiah?
+-  Parceria para Shein nacional é mais relação pública com governo do que chance de ganhos, diz Bradesco
