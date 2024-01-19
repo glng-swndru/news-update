@@ -1,11 +1,11 @@
 # Latest News
--  Nur ein Kandidat in Wittenberge +++ Pritzwalk investiert +++ neue Cabins in Lenzen
--  Bayaran Haji B40 tahun ini ditetapkan RM12,356 - TH
--  SILO Terapkan Strategi Siloam 5.0 demi Meningkatkan Kinerja
--  Schwantener Azubi im Glück +++ Kein Fasching für Rentner und Kinder +++ Bei Starkregen läuft der der Havelkorso voll
--  Hier plant Castrop-Rauxel den Bau eines Parkhauses: Millionen-Investition soll 2025 kommen
--  Kvůli záběru lezl i na elektrický stožár. Kniha ukazuje dílo fotografa Galgonka
--  Brand in Lietzower Künstlerwerkstatt +++ Geflüchtetenunterkunft in Falkensee soll im Juni fertig sein +++ Landwirt lässt 1.000 Legehennen verhungern
--  ЗСУ активно знищують бронетехніку РФ - ISW
--  «В позиции соучастника». Французского посла вызвали в МИД России после удара по базе наемников в Харькове
--  Scharfer Gegenwind für Neuruppins Bürgermeister +++ Protestfahrt der Logistiker führt durch OPR +++ 39-Jähriger wegen Vergewaltigung verurteilt
+-  যে ৮ ভুলে ননস্টিক পাত্রের আয়ু কমে যায়
+-  До 9 миллионов тенге предлагают за пропаганду ислама — СМИ
+-  違反ないのに「下請法違反のおそれ」通知7800件 判定ロジックミスで 中小企業庁
+-  Man dies down hole he dug under his floor
+-  Employment Report: Oregon adds 3,900 jobs
+-  Nhánh cây 2 m rơi trúng đầu người bán giỏ xách ở quận 5
+-  中 쓰촨성에서 100만t 규모 리튬 매장지 발견
+-  ChatGPT effect: Coursera sees signups for AI courses every minute in 2023
+-  ”Läser och blir mer och mer beklämd”
+-  李玉璽曝曾想拒演《我的少女時代》 楊大正遭虧總演邊緣角色
