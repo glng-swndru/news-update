@@ -1,11 +1,11 @@
 # Latest News
--  Trump promises to block CBDC
--  ”Större tryck på att bli mamma i dag än på 70-talet”
--  Cumhurbaşkanı Erdoğan, Ankara adayını açıkladı! AK Parti’nin Ankara adayı Turgut Altınok oldu
--  Energichefen: Så drar du ned på elförbrukningen
--  Nya Skansenchefen: ”Jag går gärna med håven”
--  Ticketkauf bei der Bahn: Verbraucherschützer sehen fehlgeleitete Digitalisierung
--  VinFast: Lượng bàn giao xe quý 4 tăng 35% so với quý 3, sẽ công bố kết quả kinh doanh vào đầu tuần tới
--  Pintér Sándorék elárulták a pontos számokat, amire mindenki várt
--  Instagram ve Snapchat, Samsung ile işbirliği yapacak!
--  Peugeot E-3008 frälser med frikostig räckvidd
+-  Everything We Know (So Far) About ‘And Just Like That’ Season 3
+-  Польща продовжила дію тимчасового захисту українців до березня наступного року
+-  Ministry launches health clusters across Saudi Arabia, completes first phase of transition
+-  Digitisation of land records by December 2024: Minister
+-  «Маккаби» Тель-Авив арендовал хавбека «Башакшехира» Карцева. Его допрашивали в Турции из-за поста в соцсетях
+-  Police looking for 3 suspects after smash-and-grab robbery at Sherway Gardens
+-  Bhansali Productions To Announce Their Next Big-Screen Magnum Opus In March 2024
+-  Резолюция Сената Франции не имеет никакой силы
+-  Komentar Shin Tae Yong Menjelang Indonesia vs Vietnam di Piala Asia 2023
+-  Ege Bölgesi'nde yaş meyve sebze ihracatı arttı
