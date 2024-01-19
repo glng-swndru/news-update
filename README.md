@@ -1,11 +1,11 @@
 # Latest News
--  Känns orättvist, men han är en besvikelse
--  BTC, ETH, and XRP Are OverHeated But Opportunity Remain Present
--  "Nisam gledala `Prijatelje`!" Marija Bergam za Informer otkrila šta bi rekla čuvenoj Fibi kada bi je upoznala
--  Leon Osman shares 'Leniency' verdict on BBC as Everton charged again
--  Danas je rukometni El Clasico" Hrvatski rukometaši optimistični: "Spremni smo!"
--  HŠK Posušje produžilo ugovor sa standardnim prvotimcem
--  Гарибашвили выразил надежду на скорейшее подписание мирного договора между Азербайджаном и Арменией
--  Objavljene karte, snijeg nestaje diljem svijeta: "To je prijetnja milijunima ljudi"
--  Bildung in Radevormwald : Schönheitsreparaturen werden nicht reichen
--  Why are retailers focusing on eliminating merchandise returns?
+-  Сдружение прати сигнал за санирането до Европрокуратурата - Труд
+-  Le magnifique tilleul de Lapeyrouse décroche le prix du jury au concours L'Arbre de l'année
+-  Freezing rain could close roads, bridges in B.C.'s Lower Mainland, officials say
+-  Транспортна инфраструктура, училища и детски градини - приоритет в бюджета на София за 2024 г.
+-  Banco do Brasil é considerado o mais sustentável do mundo em ranking pela 5ª vez
+-  Nubia Z60 Ultra
+-  Banco do Brasil é considerado o mais sustentável do mundo em ranking pela 5ª vez
+-  80 policiers lorientais rassemblés contre les conditions de leur mobilisation pendant les JO
+-  Boš otpušta, i to u Nemačkoj
+-  Die SVP baut ihr Machtzentrum um: Der umstrittene Henrique Schneider wird Generalsekretär, Peter Keller sein Stellvertreter
