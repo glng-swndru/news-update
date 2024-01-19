@@ -1,11 +1,11 @@
 # Latest News
--  Van olyan magyar település, ahol külföldről beköltöző is indulna a polgármesteri székért
--  Martucci: "Per il Napoli c'è l'eroe di giornata". Poi punge Italiano
--  Εγκώμια από τη Ζωή Κωνσταντοπούλου για Κ. Πιερρακάκη - Θετική στο ν/σ για την επαγγελματική εκπαίδευση
--  Στα «πράσινα» επέστρεψε η Wall Street με οδηγό τις Big Tech
--  Fiorentina, Italiano: "Complimenti al Napoli, il loro sistema di gioco ci ha sorpresi"
--  Acusado de Estafa: Recibió más de $15 mil por un carro en mal estado
--  Argentina: Record highs in parallel dollar rates as the country grapples with economic challenges
--  Argentina: Record highs in parallel dollar rates as the country grapples with economic challenges
--  Asian Cup Qatar LOC chairman Sheikh Hamad meets participating teams
--  Governador de Sergipe autoriza concurso para a carreira de EPPGG
+-  自由日日Shoot》常用手法 美女帥哥影片吸引 再私訊
+-  Cheikh Tidiane Dièye, candidat à la présidentielle : « Nous assumons et revendiquons notre alliance au Pastef… »
+-  르세라핌 ‘퍼펙트 나이트’…13주차에도 신드롬급 돌풍
+-  知人を脅迫容疑で逮捕の自称ユーチューバー男性(41)を不起訴 さいたま地検は処分理由明らかにせず
+-  涉賄選案二審改判 雲林麥寮鄉長 當選無效定讞
+-  City keeping tight lid on Stanley Park logging reports
+-  Microsoft abre la puerta a llevar sus juegos a PlayStation y Nintendo
+-  故이선균 ‘수사 정보 유출’ 정식조사
+-  Xavier Saints Green serve up another blowout win
+-  農電共生 曾文生:盼翻轉找地思維
