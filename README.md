@@ -1,11 +1,11 @@
 # Latest News
--  Сдружение прати сигнал за санирането до Европрокуратурата - Труд
--  Le magnifique tilleul de Lapeyrouse décroche le prix du jury au concours L'Arbre de l'année
--  Freezing rain could close roads, bridges in B.C.'s Lower Mainland, officials say
--  Транспортна инфраструктура, училища и детски градини - приоритет в бюджета на София за 2024 г.
--  Banco do Brasil é considerado o mais sustentável do mundo em ranking pela 5ª vez
--  Nubia Z60 Ultra
--  Banco do Brasil é considerado o mais sustentável do mundo em ranking pela 5ª vez
--  80 policiers lorientais rassemblés contre les conditions de leur mobilisation pendant les JO
--  Boš otpušta, i to u Nemačkoj
--  Die SVP baut ihr Machtzentrum um: Der umstrittene Henrique Schneider wird Generalsekretär, Peter Keller sein Stellvertreter
+-  Course à pied : il a parcouru 24 km autour de Chartres en reproduisant les contours de la France
+-  Klaudia Carlos była gwiazdą TVN, potem przeszła do TVP. Teraz ma zostać nową prowadzącą "PnŚ"
+-  Accelerating development: The Indonesian experience
+-  "Racjonalizacja wydatków". Sienkiewicz tworzy nową państwową instytucję
+-  Wenn Helfer Hilfe brauchen
+-  July Cha-cha plebiscite eyed
+-  58-летняя Линда Евангелиста снялась топлес для обложки журнала
+-  Θρίλερ στο Μεσολόγγι: «Δεν ομολόγησε τίποτα, είναι σκληρός» - Ξεσπά η αδερφή του Μπάμπη για τον κρεοπώλη
+-  Delhi HC issues summons on suit of Cine1 studio seeking stay of ‘Animal’ movie on OTT platforms
+-  Course à pied : il a parcouru 24 km autour de Chartres en reproduisant les contours de la France
