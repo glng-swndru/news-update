@@ -1,11 +1,11 @@
 # Latest News
--  [코스피] 32.70p(1.34%) 오른 2472.74(마감)
--  Ile wynosi najniższa emerytura? Wkrótce seniorów czekają zmiany
--  Sutra svečanost u Brseču i Svetoj Jeleni: Mons. Uhač dobiva spomen-obilježje
--  World Bank slashes Malawi’s growth rate
--  Kocaeli'de pompalı tüfekle vurulan kişi yaralandı
--  Kuzey Kore su altı nükleer silahını test etti
--  Aygün’den hane ziyaretleri
--  Bị hạn chế công nghệ, Trung Quốc chọn giải pháp "ngược đời" để phát triển chip cho siêu máy tính và AI
--  혁신벤처업계 신년인사회…"기술혁신과 글로벌 시장 진출 노력"
--  700 Euro steuerfrei vom Staat: Diesen einen Haken müssen Sie setzen
+-  NOVO TROVANJE U FABRICI U ALEKSINCU Oko 50 radnika se javilo Hitnoj pomoći, neki zadržani u bolnici
+-  Kuşadası'nda öğrencilere trafik eğitimi verildi
+-  Longsor tutup Jalan Lencoh Boyolali, Begini Kondisi Terkini
+-  O anlar kamerada: Bursa’da domuz sürüsü yola atladı
+-  В Гомельской области талыми водами подтоплено 12 участков дорог
+-  Siskaeee Batal Hadir Memenuhi Panggilan Polisi, Kuasa Hukum Beri Penjelasan Begini
+-  Australijan open, šesti dan: Lakši treninzi za Cicipasa i Sinera na startu dana u Melburnu
+-  Nawet 1 zł kaucji za plastikową butelkę? Miałoby to motywować Polaków do ich oddawania. Od kiedy system kaucyjny w Polsce?
+-  Chuyển nhượng 19/1: Arsenal gây sốc với Benzema, Henderson rời Saudi Arabia
+-  Olimpijske igre u Parizu bit će veliki prodajni sajam sigurnosne opreme
