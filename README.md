@@ -1,11 +1,11 @@
 # Latest News
--  4 aktier, der stjæler opmærksomheden i fredagens børsåbning
--  IMF drops Aussie interest rates bombshell
--  Trabzonspor'da taraftarı şaşırtan gelişme! İlk 11'in değişilmez ismi kadro dışı bıraktı
--  Ebie, NDDC Chairman, Sympathizes With Agbor Fire Victims
--  Bursa'daki Oylat kaplıcaları yarıyıl tatilinde öğrenciler ve aileleriyle dolacak
--  İngiltere'de perakende satışları geriledi
--  IMF drops Aussie interest rates bombshell
--  Bilkis Bano case: Supreme Court dismisses applications by convicts for extension of time to surrender
--  Trabzonspor'da Abdülkadir Ömür ve Umut Bozok kadro dışı bırakıldı!
--  Vaals plaatst ‘1K Z1E J3’-bankjes: ‘Een goed gesprek begint met iemand écht zien’
+-  ਮਨਿਨੀ ਸਿਰਫ਼ ਐਕਟਿੰਗ ਨਹੀਂ ਕਰਦੀ ਹੋਰ ਵੀ ਬਹੁਤ ਕੁਛ
+-  La Asociación de Concellos do Eume marca su hoja de ruta para impulsar la comarca
+-  Mencari Suaka di Jerman akan Kian Sulit
+-  月面着陸の成功率は40% 今なお難しい失敗の歴史、日本初なるか
+-  По два сигнала за вандализъм работи старозагорската полиция, има и задържан
+-  Forum Theatre needs urgent work on parts of building at risk of collapse
+-  Un mono clonado sobrevivió sano más de 2 años
+-  dailyAktien: ADM - Weitere Gegenbewegung
+-  Stresstest, Lennon und neue Ziele: Kirchhof beendet Hinrunde gegen Tabellenfünften Nürtingen
+-  President Ramaphosa attending summit in Uganda
