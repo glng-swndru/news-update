@@ -1,11 +1,11 @@
 # Latest News
--  都内で火事相次ぐ 工場兼住宅で夫婦とみられる2人死亡 アパート3棟焼け延焼続く
--  ＜士別＞マジックの魅力 絵本で伝える 後藤圭太さん（３２）
--  ＜南富良野＞南富良野の魅力 韓国に発信 金智娟さん（２６）
--  Cortocircuito genera incendio en casa de la colonia Asturias, en Saltillo
--  야권 "대통령 사과·경호처 문책"…국민의힘 "의도적 도발"
--  「宗教二世」の相談支援、元信者の知見活用などが柱 “統一教会”被害者支援の強化策 初会合でとりまとめ
--  「売上金を計上して補助金を…」架空の補助金制度で現金30万円だまし取る 男2人逮捕【新潟】
--  Lan Phương – Phương Oanh – Thu Quỳnh "đọ" bụng bầu!
--  Two robbers, part of gang burgling flats in city, held
--  Join the Midsumma fun
+-  Anggota Dewan Minta Warga Jogja Tetap Tenang Menjelang Pemilu 2024
+-  20 yıl yaşlandıran besinler hangileri
+-  Thornhill murder: Mark Noke stabbed after gang 'went to wrong flat'
+-  Auf zum Shopping
+-  Stadtentwicklung: Schwarzenbek: 99 neue Wohnungen in prominenter Lage
+-  Par taktiku un lēmumu pieņemšanu spēlē, ko sauc par dzīvi. Profesora Auziņa zinātnes sleja
+-  Torque Shop: Invest in quality wiper blades
+-  Katso vanhat kuvat | Tiedätkö, mistä löytyi ennen Ketterän kotikenttä? Ennen vanhaan eivät Imatran ulkokaukalot olleet tyhjinä paukkupakkasillakaan
+-  ゲーム開発者の31％がすでに生成AIを使用していることが判明
+-  ゲーム開発者の31％が生成AIを使用 3000人以上を調査した結果
