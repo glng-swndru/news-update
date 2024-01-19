@@ -1,11 +1,11 @@
 # Latest News
--  Texas AG Paxton won't contest facts of whistleblower lawsuit central to his 2023 impeachment
--  Tedd: В топ 5 на HLTV нямаше изненади, но "frozen" трябваше да е по-нагоре
--  ΗΠΑ: Υπερψηφίστηκε στη Γερουσία το νομοσχέδιο για τις βραχυπρόθεσμες δημόσιες δαπάνες
--  Kensington Asset Management Strengthens Leadership with Appointment of Steven Chang as Chief Compliance Officer
--  Descubren que virus de la hepatitis B y C son una de las causas del mieloma múltiple
--  Noida News: कारोबारियों पर भी श्रीराम मेहरबान, चमका व्यवसाय
--  474 attain 15 points, and above at A-Level
--  На Сахалине сбежавший из части в ДНР военный получил шесть лет колонии
--  House has enough votes to pass government funding bill and avoid shutdown
--  Texas AG Paxton won't contest facts of whistleblower lawsuit central to his 2023 impeachment
+-  Cheryl Hines Seems Cool With RFK Jr.'s Conspiracy Theories But Draws the Line at Alex Jones
+-  Ajax rondt spectaculaire transfer Jordan Henderson af: ‘Lastige tijd geweest voor de club, maar dat geldt ook voor mij’
+-  Afrika Cup 2024: Egypte speelt gelijk tegen Ghana en raakt Salah kwijt
+-  У M**a будет уже 350 тыс. ускорителей NVIDIA H100 к концу 2024 года
+-  DOJ calls law enforcement response to Uvalde school shooting 'a failure'
+-  Khảo sát hơn 950 người trăm tuổi: Tìm ra 4 điểm chung có thể đem tới "thể chất trường thọ", ai sở hữu đủ cả thì xin chúc mừng
+-  Organizatori se protive isključenju Izraela s Eurosonga
+-  Nekdanji kapetan Liverpoola zapustil Savdsko Arabijo in podpisal za Ajax
+-  ВИДЕО. Исправился! Лунин совершил суперсейв и спас Реал от поражения
+-  1st LD: U.S. Congress passes stopgap bill to extend gov't funding until March
