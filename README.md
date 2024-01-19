@@ -1,11 +1,11 @@
 # Latest News
--  “남한보다 잘산다더니”…한국드라마 본 北10대 2명에 ‘12년 노동형’
--  Asam Lambung Naik, Segera Turunkan dengan Mengonsumsi 5 Minuman Ini
--  Meloun: Želeo je da zna koliko je Milojević voleo Jokića VIDEO
--  Applebee’s date night passes for $200: What do they offer?
--  Promoverán amparo por incumplimiento de obligaciones en Poder Judicial
--  Alanya bakıyor onlar kazanıyor
--  Asesinos del niño en Malvín Norte habían ido a buscar a su padre, miembro de una de las bandas de Villa Española
--  Britannia winter trail blocked by snow clearing
--  সাভারে অবৈধ হাসপাতাল-ক্লিনিকে সেবার নামে অপচিকিৎসা
--  강력해진 스마트폰 ‘두뇌’의 귀환…삼성 ‘엑시노스’ 부활의 노래
+-  퍼플키스, 데뷔 첫 투어 日 공연 추가…28일 도쿄서 만나요
+-  Sering Mengalami Kesulitan dalam Setiap Urusan? Baca Doa Ini
+-  Einstimmiges Votum zum Mietspiegel: Kommunalpolitiker-Pläne machen drastische Miet-Erhöhungen in Zweibrücken möglich
+-  Los hechiceros de Waverly Place tendrá secuela con Selena Gomez y David Henrie
+-  이재명 “北 김정은, 미사일 도발 당장 멈춰야 한다”
+-  à¶¶à·�à¶§à·Šà¶§à·” à¶…à¶±à¶­à·”à¶»à·’à¶±à·Š à·ƒà·’à·ƒà·”à¶±à·Š 12 à¶šà·Š à¶¸à¶»à·”à¶§
+-  जलकुम्भीले खोस्यो टरुवा तालको सौन्दर्य
+-  බෝට්ටු අනතුරින් සිසුන් 12 ක් මරුට
+-  බෝට්ටු අනතුරින් සිසුන් 12 ක් මරුට
+-  à¶¶à·�à¶§à·Šà¶§à·” à¶…à¶±à¶­à·”à¶»à·’à¶±à·Š à·ƒà·’à·ƒà·”à¶±à·Š 12 à¶šà·Š à¶¸à¶»à·”à¶§
