@@ -1,11 +1,11 @@
 # Latest News
--  Lời giải bền vững cho thị trường trái phiếu
--  Sparnelli: "Mazzarri ha fatto il Mazzarri. Il mister stravede per Demme e Simeone"
--  Rogério Caboclo consegue liminar para recuperar direitos políticos
--  【速報】東京駅丸の内のロータリーで交通事故 タクシーが駅の壁に突っ込み大破
--  [오늘의 투자전략] 코스피, 상승 출발 전망…반등 강한 개별 종목 주목
--  Atletico mposht Realin në vazhdime dhe kualifikohet në çerekfinale të Kupës së Mbretit
--  Victim praises decision after judge blasts Sask. Christian school coach at sexual assault sentencing
--  В США заявили о мертвой украинской нации
--  أبو ردينة: لا أمن أو استقرار في المنطقة دون قيام دولة فلسطينية
--  Clark Art Institute to present gallery talk with emerging art historians
+-  Toronto Raptors - Chicago Bulls, en directo | NBA
+-  Alianzas políticas: delegados serán comunes
+-  Maple Leafs, Sheldon Keefe have a booster in former NHL coach Bruce Boudreau
+-  Collapse of herring fishery near Vancouver tied to development: study
+-  I knew Houthis in Yemen. Here's what Americans need to know ...
+-  'Cala' seguidora que se insurge contra Rui Oliveira: "Tem formação na área?"
+-  La adversidad en la niñez impacta en el cerebro y la salud mental futura
+-  Päivän horoskooppi perjantaina 19.1.
+-  Editorial cartoon: Dictionaries banned?
+-  Should the concept of affordable housing be redefined? G Hari Babu, President, Naredco explains
