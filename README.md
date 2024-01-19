@@ -1,11 +1,11 @@
 # Latest News
--  Ukrainas ministrs mudina risināt munīcijas deficīta problēmu
--  Gewichtheben: Der SV Flözlingen hat’s in der Hand
--  Петър Карабоев: Нещо трябва да принуди Украйна и Русия да седнат и да разговарят (ВИДЕО)
--  Football-CAN 2023/G.C-J2/Sénégal-Cameroun : Aliou Cissé, « On aura en face une équipe très motivée et qui a envie de redorer le blason par rapport à sa première sortie »
--  '탕후루 가게 논란' 진자림, 가게 오픈 취소…"'디저트' 가게로 속인 적 없어"
--  W Biedronce dostaniesz pieniądze do ręki. Można skorzystać wielokrotnie danego dnia
--  Kako priti jutri domov s celim avtom
--  Объединение Руси, будущее Украины. 370 лет Переяславской рады
--  Pavarese: "Quando esonerarono Garcia speravo arrivasse un solo allenatore"
--  AK Parti tüm il belediye başkan adaylarını açıkladı
+-  Mihajlo Ilic è un giocatore del Bologna. Depositato il contratto del difensore: i dettagli
+-  Георги Николов подписа с "Ботев" (Пд)
+-  ЕК поиска информация от 17 технологични компании включително "Епъл" и "Мета"
+-  Chiudono bar e mense delle sedi Telecom: a Roma licenziati 94 lavoratori
+-  Ταυτοποιήθηκαν ακόμη επτά μέλη της Greek Mafia: Τι εξετάζει η αστυνομία (vid)
+-  Fitness expert shares key way to burn more calories 'even when you're relaxing'
+-  Bitte keine Warn-Wut: Lieber zu viel als zu wenig Meldungen
+-  Le supermarché de Gallardon a été repris par Carrefour
+-  Znamy nazwisko nowej prowadzącej "Pytanie na śniadanie". Wcześniej była w TVN [PLOTEK EXCLUSIVE]
+-  Леся Цуренко – Арина Соболенко. Прогноз и анонс на матч Australian Open
