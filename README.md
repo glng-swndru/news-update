@@ -1,11 +1,11 @@
 # Latest News
--  TCU irá avaliar suspensão de isenção tributária a líderes religiosos
--  立院龍頭之戰傳民眾黨將自推人選 綠營：等於保送韓國瑜
--  No school again on Friday
--  Bukti požar u Šapcu: Buktinja kod nadvožnjaka
--  Eldern Scrolls Online devs answer to crossplay has “changed”
--  Romun jih je zažgal na Goriškem
--  Regulator adjusts rules for digital token investment
--  The 5 best things our food writers ate in the Twin Cities area this week
--  3 Berita Artis Terheboh: Catherine Wilson Tak Dinafkahi, Virgoun Menolak
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 19 януари /валутен калкулатор/
+-  Texas AG Paxton won't contest facts of whistleblower lawsuit central to his 2023 impeachment
+-  Tedd: В топ 5 на HLTV нямаше изненади, но "frozen" трябваше да е по-нагоре
+-  ΗΠΑ: Υπερψηφίστηκε στη Γερουσία το νομοσχέδιο για τις βραχυπρόθεσμες δημόσιες δαπάνες
+-  Kensington Asset Management Strengthens Leadership with Appointment of Steven Chang as Chief Compliance Officer
+-  Descubren que virus de la hepatitis B y C son una de las causas del mieloma múltiple
+-  Noida News: कारोबारियों पर भी श्रीराम मेहरबान, चमका व्यवसाय
+-  474 attain 15 points, and above at A-Level
+-  На Сахалине сбежавший из части в ДНР военный получил шесть лет колонии
+-  House has enough votes to pass government funding bill and avoid shutdown
+-  Texas AG Paxton won't contest facts of whistleblower lawsuit central to his 2023 impeachment
