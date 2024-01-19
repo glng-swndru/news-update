@@ -1,11 +1,11 @@
 # Latest News
--  В ООН сообщили о возможной встрече Гутерриша с Лавровым
--  15 Prozent könnten sich Wahl einer Maaßen-Partei vorstellen
--  Руското външно министерство привика посланика на Франция за обяснения
--  Údery proti jemenským povstalcům budou pokračovat, řekl Biden
--  What's Going On With Rivian Automotive Stock?
--  Údery proti jemenským povstalcům budou pokračovat, řekl Biden
--  First Capital Research makes its call ahead of next monetary policy review
--  Гендиректор «Пари НН» Мелик-Гусейнов: «В футбольном клубе степень занятости такая же высокая, как и на госслужбе»
--  Нацрада зареєструвала канал UPL.TV від ТОВ Прем'єр-ліга
--  Rusya, Güney Kıbrıs Rum Yönetimi'nin bazı yetkililerine giriş yasağı getirdi
+-  These already-affordable space heaters are even cheaper than usual at Amazon right now
+-  El Polideportivo Municipal del Miski Mayu se renueva para ampliar sus servicios
+-  Maybrit Illner heute (18.1.): Gäste und Thema am Donnerstag
+-  „Merlin“ und das Tierschutz-Drama: Warum der Ex-Bürgermeister vor Gericht verurteilt wurde
+-  Suudi Arabistan'ın ABD Büyükelçisi: "İsrail'le normalleşme Gazze'de ateşkes ve Filistin devletinin kurulmasına ilişkin sürecin başlatılmasına bağlı"
+-  La Corte Suprema recibió el amparo de la CGT que suspende la reforma laboral de Milei
+-  Empresas de Nova Mutum contratam 231 novos profissionais
+-  Президент Туркменистана принял министра нефти Исламской Республики Иран
+-  КПКОНПИ ще проверява Асен Василев и Даниел Лорер
+-  Nevada Supreme Court panel won't reconsider `Dances With Wolves' actor Nathan Chasing Horse case
