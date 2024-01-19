@@ -1,11 +1,11 @@
 # Latest News
--  "עוד משחק גביע, עוד סבל": בספרד לא התרשמו מברצלונה
--  Mahua Moitra, TMC Leader Who Was Expelled From Lok Sabha Last Month, Vacates Delhi Bungalow - News18
--  Katara's Asian Cup festivities continue
--  Galatasaray - Ümraniyespor maçını değerlendirdi: Zaha forvete geçsin
--  Boğazını sıkıp küfür etti! Belediyedeki 'rüşvet' operasyonunda çirkin saldırı
--  Actor, arts administrator Watson Chidzomba dies
--  13 ilde bazı alanlar orman sınırları dışına çıkartıldı
--  ‘후배♥’ 박지성, 조규성에 “손흥민도 나한테 얻어먹어” (맨인유럽)
--  유연석, 심쿵하게 만드는 공항 패션
--  Küresel piyasalarda gözler veri gündeminde
+-  [코스피] 32.70p(1.34%) 오른 2472.74(마감)
+-  Ile wynosi najniższa emerytura? Wkrótce seniorów czekają zmiany
+-  Sutra svečanost u Brseču i Svetoj Jeleni: Mons. Uhač dobiva spomen-obilježje
+-  World Bank slashes Malawi’s growth rate
+-  Kocaeli'de pompalı tüfekle vurulan kişi yaralandı
+-  Kuzey Kore su altı nükleer silahını test etti
+-  Aygün’den hane ziyaretleri
+-  Bị hạn chế công nghệ, Trung Quốc chọn giải pháp "ngược đời" để phát triển chip cho siêu máy tính và AI
+-  혁신벤처업계 신년인사회…"기술혁신과 글로벌 시장 진출 노력"
+-  700 Euro steuerfrei vom Staat: Diesen einen Haken müssen Sie setzen
