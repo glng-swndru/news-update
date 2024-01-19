@@ -1,11 +1,11 @@
 # Latest News
--  В Подмосковье завели уголовное дело после поджога дома участника СВО
--  Genotyping can detect Covid variants more rapidly: Lancet study
--  Taksit | Ovela taksihuijaus rantautui nyt Tampereelle – Huomaisitko itse eron?
--  Kırklareli'de 55 bin 120 öğrenci karne aldı
--  Otoyolda park halindeki tırın içinde ceset bulundu
--  "1984" oyunu rehabilite hizmeti alanlar için sergilendi
--  Köyceğiz'de öğrenciler dönem sonu etkinliğinde ok uçurdular
--  Blaulicht: Dachstuhl brennt in Wuppertal - eine Person verletzt
--  Ankara'da iki sürücünün trafikte tehlikeli hareketleri korkuttu
--  Σε ηλικία μόλις 59 ετών έφυγε από τη ζωή ο ΠΑΥΛΟΣ ΤΣΟΡΜΠΑΤΖΙΑΝ
+-  BLOG | Top marks for Class of 2023
+-  Kanada luovutti vuosikymmenten odotuksen jälkeen arktisen maa-alueen hallinnan alkuperäisväestölle Nunavutissa – tunnettu arvokkaista mineraaleistaan
+-  Cessione Milan, indiscrezione clamorosa: arabi in pressing su Cardinale. Cosa può succedere
+-  Bejelentették a The Elder Scrolls Online: Gold Road kiegészítőt
+-  Huti izveli napad na američki brod u Adenskom zalivu, Vašington...
+-  Lenfödem tedavisinde yöntem: Bandajlama, masaj ve egzersiz
+-  DIRECTO | Última hora de la guerra entre Israel y Hamás
+-  DIRECTO | Última hora de la guerra entre Israel y Hamás
+-  Πενέλοπε Κρουζ: Εξήγησε γιατί δεν έχει δώσει κινητά στα παιδιά της, 10 και 12 ετών
+-  Chipsereget épít a Meta az AI-uralomhoz
