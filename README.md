@@ -1,11 +1,11 @@
 # Latest News
--  These already-affordable space heaters are even cheaper than usual at Amazon right now
--  El Polideportivo Municipal del Miski Mayu se renueva para ampliar sus servicios
--  Maybrit Illner heute (18.1.): Gäste und Thema am Donnerstag
--  „Merlin“ und das Tierschutz-Drama: Warum der Ex-Bürgermeister vor Gericht verurteilt wurde
--  Suudi Arabistan'ın ABD Büyükelçisi: "İsrail'le normalleşme Gazze'de ateşkes ve Filistin devletinin kurulmasına ilişkin sürecin başlatılmasına bağlı"
--  La Corte Suprema recibió el amparo de la CGT que suspende la reforma laboral de Milei
--  Empresas de Nova Mutum contratam 231 novos profissionais
--  Президент Туркменистана принял министра нефти Исламской Республики Иран
--  КПКОНПИ ще проверява Асен Василев и Даниел Лорер
--  Nevada Supreme Court panel won't reconsider `Dances With Wolves' actor Nathan Chasing Horse case
+-  Bakan Kacır ilk Türk astronot Alper Gezeravcı ile konuştu
+-  Feasibility study set to begin on potential protected area in northern Manitoba
+-  【速報】東京・足立区で住宅の床下から2人の遺体発見 死体遺棄容疑で30代の女を逮捕
+-  POHLED: Život jde dál? Pardubická rozlučka s Varaďou je nestoudná
+-  На Украине назвали причину провала контрнаступления ВСУ
+-  À Cogolin, les soldes ne font plus vraiment recette
+-  Membro do Fed defende normalizar juros a partir do 3º tri, mas não descarta adiantar projeção
+-  Mali NATO’ya ‘hayır’ dedi
+-  Prognoza za sjutra: Kišovito, na sjeveru snijeg
+-  El estudio científico que revela el hábito diario para tener una buena memoria toda la vida
