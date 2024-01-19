@@ -1,11 +1,11 @@
 # Latest News
--  Judge denies Trump's request to hold Jack Smith in contempt in federal 2020 election case
--  V senci vojne v Gazi vse več kriznih žarišč
--  Türkiye'nin ilk uzay yolcusu Alper Gezeravcı'nın yolculuğu için geri sayım
--  A kako vaš ured izgleda? Kim Kardashian u svom ima solarij i 3D prikaz svog mozga na stolu
--  V senci vojne v Gazi vse več kriznih žarišč
--  Cybercrooks Target Docker Containers With Novel Pageview Generator
--  Criptomoedas: bitcoin e ether caem, após incerteza por juros esfriar entusiasmo com ETF nos EUA
--  ZAPALIO SE PELAT U ODVOJENOJ KOTLARNICI U KUĆI: Detalji požara u Zemunu, vatrogasci brzo reagovali (VIDEO)
--  Peinliche Panne in Köln: Island-Hymne muss vor Spiel gegen DHB-Team wiederholt werden
--  Ayudemos a esta niña dominicana
+-  Global debt rush hope for strained developing states
+-  TEODOSIĆ? NAMERNO GA NISAM POMENUO! Na jedno pitanje o Zvezdi Sferopulos NEMA ODGOVOR
+-  Męczarnie Barcelony w Pucharze Króla. Wszedł Lewandowski i zaczęło się strzelanie
+-  برشلونة يتجاوز سالامانكا بثلاثية في كأس ملك إسبانيا
+-  Ticaret Bakanlığı 930 sözleşmeli personel istihdam edecek
+-  오늘의 날씨 - 오전 (2024년 01월 19일)
+-  He Killed a Man. Turks Wonder Why a Well-Connected Somali Went Free
+-  Ajax, Jordan Henderson'ı duyurdu
+-  Cijena svinjetine u veleprodaji mjesecima u padu, a građani je i dalje u prodavnicama skupo plaćaju: Takav trend mogao bi se samo nastaviti
+-  Atacaron a hachazos a un invitado en un cumpleaños de 15
