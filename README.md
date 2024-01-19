@@ -1,11 +1,11 @@
 # Latest News
--  Uzman psikologdan velilere 'karne' uyarısı!
--  Consumo Conciencia arroja conocimiento a la ignorancia sobre las drogas en el Bajo Martín
--  Jadrová inflácia v Japonsku zrýchlila v roku 2023 na vyše 40-ročné max
--  探査機「SLIM」の挑戦まもなく JAXA公式ゲームで予習しておく？
--  L’Etat dévoile les lauréats de son Prix du social
--  Американский банк Truist уволил тысячу сотрудников
--  Folklorşünasdan Anar Vəziroğluna SƏRT CAVAB: Ata-anasına xeyri olmayanın…
--  里子経験者招き２７日に里親研修会 中富良野
--  Mardin Valisi Tuncay Akkoyun, öğrencilerin karne sevincine ortak oldu
--  Đeljošaj i Hasani: Crna Gora i Albanija moraju raditi na boljoj...
+-  Gold and Silver on the backfoot as long as correction in rate cut expectations continues – Commerzbank
+-  NamX HUV (2026): Wasserstoff-Futter für den V8
+-  Russie-Niger : A Moscou, Lamine Zeine et Alexeï Overtchouk parlent développement de la coopération
+-  Večeras promocija „Glasnika”
+-  Perišić se vraća na Poljud, evo kad bi se trebao oporaviti i debitirati za Hajduk
+-  Itália aprova multas de até € 60 mil contra "ecovândalos"
+-  Rachid M'Barki écarté de BFMTV et accusé de "corruption passive" : le journaliste "en larmes" passe aux aveux
+-  Швед: судебный процесс по преступлениям палача Катрюка будет открытым
+-  Neurážím! S nedbalostí na mě nechoďte. Varaďa reaguje na šokující vyhazov
+-  Aizsaulē devies LSPA asociētais profesors Igors Kīsis
