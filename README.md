@@ -1,11 +1,11 @@
 # Latest News
--  Hotel Villa Caprichosa en los Emmy Awards Gift Bags 2024
--  A nemzetközi hangulatot követte a BUX
--  Kylian Mbappé dans "Envoyé spécial" : la mise au point d'Emma Smet, la petite fille de Johnny, sur leur relation
--  Kjærestens reaksjon beskriver frykten vi alle kjenner på
--  Barnstorf: Ländliche Erwachsenenbildung stellt neuen Programm-Katalog vor
--  Shell Starts Layoffs in Search of Efficiencies
--  PlayStation Store tira la casa por la ventana con la mejor trilogía de tu infancia con un 60% de descuento
--  Ski alpin: Schramms Bonus für „das Größte“
--  Köstlicher Klassiker: Einfaches Kartoffelgratin mit knuspriger Käsekruste aus dem Ofen
--  Reforma impositiva: el Gobierno habría aceptado enmiendas en la ley ómnibus
+-  Supercoppa, Napoli - Fiorentina: le formazioni ufficiali
+-  Le Conseil d'État se saisit du projet éolien de Santigny, refusé en raison de la présence de cigognes noires
+-  Fisker has ‘arguably become a meme stock’ says StockTwits
+-  Concurso: Salto do Jacuí RS retifica período de inscrição
+-  GORAN PERKOVAC: Imali smo Francuze, a tužan sam zbog jedne stvari!
+-  No Customary Restrictions On Republic Day in Kashmir: Div Com
+-  Previsión meteorológica para este viernes en Castilla-La Mancha: lluvias y nevadas en los sistemas Central e Ibérico
+-  Iğdırda alkol bağımlılığı ve halk sağlığı konulu seminer gerçekleştirildi
+-  La 1 EN DIRECTO – ver Real Madrid - Atlético en vivo online por Copa del Rey
+-  Povezivanje sa Azijom od ključnog značaja ne samo za Srbiju, već i Evropu
