@@ -1,11 +1,11 @@
 # Latest News
--  Tersangka BS Ternyata Bukan Pelaku Tunggal dalam Korupsi Emas Antam
--  Netanyahu sconfessa gli Usa sui due Stati e intensifica l'attacco a Khan Younis
--  Nikola Karabatić nekad je ljubio našu proslavljenu sportašicu, a pobjedu protiv Hrvatske proslavio je u zagrljaju supruge!
--  Négymilliárddal tartozik 70 ezer bliccelő a MÁV-nak
--  Lycée Fulbert à Chartres : découvrez la webradio éphémère animée par des élèves
--  UK retail sales slump points to new risk of recession
--  Japan set for historic attempt at 'pinpoint' moon landing - Nikkei Asia
--  Сбер фиксирует рост кибератак на своих партнеров и применения дипфейков
--  Ostapenko/Kičenoka atspēlē trīs mačbumbas pēc kārtas un tiek 1/8 finālā
--  Alduk je predstavio novu kolekciju vjenčanica, novost je kompletan izostanak čipke
+-  4 aktier, der stjæler opmærksomheden i fredagens børsåbning
+-  IMF drops Aussie interest rates bombshell
+-  Trabzonspor'da taraftarı şaşırtan gelişme! İlk 11'in değişilmez ismi kadro dışı bıraktı
+-  Ebie, NDDC Chairman, Sympathizes With Agbor Fire Victims
+-  Bursa'daki Oylat kaplıcaları yarıyıl tatilinde öğrenciler ve aileleriyle dolacak
+-  İngiltere'de perakende satışları geriledi
+-  IMF drops Aussie interest rates bombshell
+-  Bilkis Bano case: Supreme Court dismisses applications by convicts for extension of time to surrender
+-  Trabzonspor'da Abdülkadir Ömür ve Umut Bozok kadro dışı bırakıldı!
+-  Vaals plaatst ‘1K Z1E J3’-bankjes: ‘Een goed gesprek begint met iemand écht zien’
