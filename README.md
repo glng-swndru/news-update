@@ -1,11 +1,11 @@
 # Latest News
--  Cumhur İttifakı Yeniden Refah'a kapıları kapadı. Randevu bile vermediler
--  이상엽, 장성규 위해 '코스 요리' 대접…83년생 동갑 '절친'
--  Bezwaren tegen plan voor 82 woningen Vuursteeglaan Lisse. ’Het is een gemiste kans’
--  「すぽると！」8年ぶり復活へ
--  Horoscope Today 19 January 2024 : कर्क, सिंह, कन्या राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
--  Sepanjang 2024, Bareskrim Polri Proses 20 Dugaan Tindak Pidana Pemilu
--  Prostatavergrößerung: König Charles III. muss operiert werden – wie gefährlich ist eine Prostatahyperplasie?
--  Brad Pitt spotkał KREWNYCH Angeliny Jolie na wystawie. Zrobiło się niezręcznie... (ZDJĘCIA)
--  'Kupadaki en zor maçımız oldu'
--  사놓은 종목 추천한 애널리스트, 징역·벌금 15억
+-  Pide México a CPI investigar crímenes de guerra en conflicto de Israel y Hamas
+-  Usvojena rezolucija kojom se poziva na trajni prekid vatre u Gazi
+-  Intercambio comercial cerró 2023 con un déficit acumulado de US$ 6.926 millones
+-  1st LD: U.S. Senate passes stopgap bill to extend gov't funding until March
+-  Höhepunkte im Saal-Karneval 2024: Das sind die größten Sitzungen und Partys in Xanten, Rheinberg, Alpen und Sonsbeck
+-  Politique. IVG dans la Constitution : premier feu vert à l'Assemblée, l'issue incertaine
+-  A history of secrecy: Why Palace's surgery announcements mark a departure for the tight-lipped UK royals - 9News
+-  Bloomberg сообщил, что Многие страны НАТО хотят видеть на посту генсека премьера Нидерландов
+-  Kompatscher im Interview: „Ich habe den Ruf, eine Mimose zu sein“
+-  ČISTA POBEDA POSLE 11 GODINA VLASTI Vučić: Ponosan sam, najpošteniji izbori u istoriji Srbije (VIDEO)
