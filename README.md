@@ -1,11 +1,11 @@
 # Latest News
--  ARMANI PAO U "FONTETI": Valensija savladala šampiona Italije
--  VIDEO U Dalmatinskoj zagori ceste je zabijelio gusti snijeg
--  An app company in Kazakhstan just had the biggest IPO since Birkenstocks
--  Novom uredbom dodatno se degradiraju visokoobrazovani djelatnici
--  1 Warren Buffett Dividend Stock Down 42% to Buy in 2024 and Hold
--  Wall Street bat son record historique de janvier 2022
--  Dur ihtarına uymayan aracı, polis ekipleri ateş ederek durdurdu
--  Corte de la racha alcista en Australia y nuevas referencias locales para la lana
--  Gedenkfeier für Franz Beckenbauer: Trauer auf dem Großbildschirm
--  BBB 24: Direção do reality fica aliviada com desistência de Vanessa Lopes
+-  Európska únia uvalila sankcie na podporovateľov Hamasu
+-  Situacija se drastično mijenja: Znate li koliko se povećava put kočenja na snijegu i ledu?
+-  Rodelunfall: Acht Zentimeter dicker Ast bohrt sich in Kind
+-  Rodelunfall: Acht Zentimeter dicker Ast bohrt sich in Kind
+-  Dogecoin: How Much DOGE Does Elon Musk Have?
+-  Abel Martínez sobre ley DNI: Es una amenaza a libertad de expresión
+-  Segunda: Rampla Juniors y Juventud de Las Piedras definirán el tercer ascenso a primera
+-  Equilibrada, afianzada y como "una potencia mundial": así se muestra Rusia al planeta
+-  Tragic details after starved 2yo found dead
+-  Artists with vision now being sought for Chilliwack Mural Festival
