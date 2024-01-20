@@ -1,11 +1,11 @@
 # Latest News
--  CUMMINS SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: Kahn Swick & Foti, LLC Reminds Investors with Losses in Excess of $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Cummins Inc. - CMI
--  Zadina o Varaďovi i nabídce: Tuhle šanci dvakrát za život nedostanete
--  AFC bất ngờ khen một cầu thủ Việt Nam sau trận thua Indonesia
--  CAN 2023: Résumé des match sur leral
--  عائلات الأسرى الإسرائيليين ينصبون خياما أمام منزل نتنياهو
--  Fakta Perjalanan Hebat Sosok Sri Mulyani, Kini Malah Diisukan Behenti Jadi Menteri Keuangan
--  CO₂-Preis für Heizöl und Gas steigt : Stadtwerke Castrop-Rauxel geben Erhöhung nicht weiter
--  Sri Lanka Targets Digital Transformation to gain US $15 Billion by 2030
--  Por el problema del Barcelona SC, la FIFA podría sancionar a la FEF
--  金塊雙星合砍69分！大破綠衫軍本季主場不敗之身
+-  輪島市の孤立集落から4人が避難へ 全焼した納屋から身元不明の遺体…避難者か
+-  Demos gegen rechts in vielen Städten
+-  Снегопады ожидаются в юго-восточных регионах Казахстана
+-  Cristiano Ronaldo Klaim Liga Pro Saudi Lebih Baik Ketimbang Ligue 1!
+-  Demos gegen rechts in vielen Städten
+-  Alenka Gotar sporočila spodbudno novico v zvezi z nesrečo
+-  Conductor embiste a joven motociclista, en Saltillo
+-  Malaika Arora and Arjun Kapoor spotted together as they step out of Amrita Arora's residence [Watch Video]
+-  Het Woord van vandaag: Raad jij het woord van de dag?
+-  Buscan a familias para abordar crisis de animales en refugios de San Diego
