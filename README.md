@@ -1,11 +1,11 @@
 # Latest News
--  Áustria: Sissi ainda mora em Bad Isclh
--  Việt Nam là nền kinh tế mạnh trong khu vực
--  В Дамаске погиб представитель КСИР
--  Умяров о своем состоянии: «Все супер! Никаких болячек нет»
--  Сирия съобщи за израелски удар по жилищен блок в Дамаск, убити са иранци
--  Tekirdağ'da bir öğretmen taciz iddiasıyla tutuklandı
--  Coupe de France: tout ce qu'il faut savoir avant le match entre Rodez-Monaco de ce samedi après-midi
--  Bade Miyan Chote Miyan: Tiger Shroff, Manushi Chhillar and others pose for the paparazzi in style [Watch Video]
--  8 Besar Elektabilitas Parpol versi Survei Terbaru Poltracking
--  à¶±à·“à¶­à·’à¶¥à·€à¶»à·’à¶º à¶´à·œà¶½à·’à·ƒà·’à¶ºà¶§ à¶´à¶œà·�à·€ à¶¯à·™à¶±à·Šà¶± à·„à¶¯à¶½à·�
+-  Un barbecue sur les pistes d’Auron signé David Faure, ça vous dit?
+-  Beyaz et ve yumurta üretimiyle önemli katkı sağlıyor
+-  Kaip Rusija laimi sankcijų karą su Vakarais
+-  Kuula! Uues mälumängusaates lähevad vastastikku kinnisvaraeksperdid ja lennujuhid
+-  ITV Coronation Street spoilers for next week: Bullying plot escalates and fire horror risks lives
+-  Tranzicijska ekonomija: Neugodni pridjev Hrvatska će nositi još neko vrijeme
+-  Možda ga i znate! Najneobičniji Sremac koji zasmejava, tera suze na oči i pogađa u dušu!
+-  Birna Jóhanns í HK (Staðfest)
+-  Стратегическият ни интерес е да станем „топла връзка“ между Егейско море и Северна Европа
+-  Cristóbal Balenciaga: sorozat az utolsó ruhakészítőről
