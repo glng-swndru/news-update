@@ -1,11 +1,11 @@
 # Latest News
--  The tragic story of this famous meteorite
--  [상보] 뉴욕증시, 기술주 강세에 상승…S&P500 사상 최고치 경신
--  Rich and satisfying, this quiche is the hero of Saturday brunch
--  Aliou Cissé : "Rien n'est fait, il faut garder notre humilité"
--  Sarah Di Lorenzo’s back to work and school lunches to get your year started right
--  ABD Başkanı Biden, İsrail'e Gazze'deki sivillere zarar verilmemesi çağrısı yaptı
--  Pour Laurent Wauquiez, l"entresoi" du gouvernement Attal crée un "risque de déconnexion"
--  The Best 'Black National Anthem' Performances in History
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 20 януари /валутен калкулатор/
--  У Білому домі заявили про три нові удари по хуситах
+-  ARMANI PAO U "FONTETI": Valensija savladala šampiona Italije
+-  VIDEO U Dalmatinskoj zagori ceste je zabijelio gusti snijeg
+-  An app company in Kazakhstan just had the biggest IPO since Birkenstocks
+-  Novom uredbom dodatno se degradiraju visokoobrazovani djelatnici
+-  1 Warren Buffett Dividend Stock Down 42% to Buy in 2024 and Hold
+-  Wall Street bat son record historique de janvier 2022
+-  Dur ihtarına uymayan aracı, polis ekipleri ateş ederek durdurdu
+-  Corte de la racha alcista en Australia y nuevas referencias locales para la lana
+-  Gedenkfeier für Franz Beckenbauer: Trauer auf dem Großbildschirm
+-  BBB 24: Direção do reality fica aliviada com desistência de Vanessa Lopes
