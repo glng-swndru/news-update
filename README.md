@@ -1,11 +1,11 @@
 # Latest News
--  Echo Comment on the closure of the UK's last blast furnaces
--  Cost estimates soar for potential new downtown Seattle streetcar
--  ¡Bienvenido, “finde”!: el lado B de Cosquín, empieza el festival
--  Trump mocks Nikki Haley's first name. It's his latest example of attacking rivals based on race
--  Rote Flecken auf der Haut: Kann Syphilis dahinterstecken?
--  ODT quiz: January 20
--  Life derailed: Long COVID still gnawing at B.C. long after pandemic fades
--  HUP: Rast investicija u istraživanje i razvoj je imperativ, predlažemo povećanje subvencija na razinu prosjeka EU
--  Sénégal : Sadio Mané entre dans l'histoire de sa sélection
--  Topturniere in Hamburg: Squash: Die Sportart wird olympisch und weiß noch nicht, wie
+-  Ralf Schumacher bot Ex Cora Geld, damit sie Nachnamen ablegt
+-  Netflix : ce film de science-fiction aux 540 millions de dollars de recettes quitte bientôt la plateforme
+-  Zalgiris 98-75 Fenerbahçe Beko (MAÇ SONUCU - ÖZET)
+-  Emmerdale spoilers: Moira reveals earth-shattering secret murder
+-  Qiwi после продажи российских активов проведет buyback до 10% акций с NASDAQ и Мосбиржи
+-  3 cuentos de Edgar Allan Poe para celebrar su vida y obra
+-  「つぶれない会社」にしたければ、社長が毎日出社してはいけない理由 - 小宮一慶の週末経営塾
+-  Криптопреступность в 2023 году: незаконная активность снижается, киберпреступники нацелены на стейблкоины
+-  Sofía Caiche: Las 'chichotas' de la Caiche están de regreso
+-  Taraji P. Henson has no beef with Oprah: "What you’re not gonna do is pit two Black women together"
