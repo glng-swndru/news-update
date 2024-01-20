@@ -1,11 +1,11 @@
 # Latest News
--  Pretoria’s historic Caledonian Stadium lies in ruin despite promised revival
--  Fareham planners approve dog park in Titchfield
--  ¡Vení, Francisco!, también desde la Patagonia
--  Southampton weather warning: Heavy wind and rain from Storm Isha
--  Marcos Castro fijó prioridades para su gestión al frente del municipio de Viedma
--  ‘The Outrun’: Sundance Review
--  今季の目標は「6位以上」 アビスパ長谷部監督が掲げた「課題」とは
--  ‘The Outrun’ Review: Saoirse Ronan Shines in a Muddled Story of Sobriety
--  Chowkidar to divine messenger: The transformation of Modi and India
--  ‘The Outrun’ Review: Saoirse Ronan Shines in a Windswept Recovery Drama Set on the Scottish Isles
+-  CUMMINS SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: Kahn Swick & Foti, LLC Reminds Investors with Losses in Excess of $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Cummins Inc. - CMI
+-  Zadina o Varaďovi i nabídce: Tuhle šanci dvakrát za život nedostanete
+-  AFC bất ngờ khen một cầu thủ Việt Nam sau trận thua Indonesia
+-  CAN 2023: Résumé des match sur leral
+-  عائلات الأسرى الإسرائيليين ينصبون خياما أمام منزل نتنياهو
+-  Fakta Perjalanan Hebat Sosok Sri Mulyani, Kini Malah Diisukan Behenti Jadi Menteri Keuangan
+-  CO₂-Preis für Heizöl und Gas steigt : Stadtwerke Castrop-Rauxel geben Erhöhung nicht weiter
+-  Sri Lanka Targets Digital Transformation to gain US $15 Billion by 2030
+-  Por el problema del Barcelona SC, la FIFA podría sancionar a la FEF
+-  金塊雙星合砍69分！大破綠衫軍本季主場不敗之身
