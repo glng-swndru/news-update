@@ -1,11 +1,11 @@
 # Latest News
--  Người đang chấp hành hình phạt tù có được lập di chúc?
--  Huawei P70 Dirumorkan Meluncur pada Akhir Maret 2024
--  Justiça manda Braskem indenizar mais 3.000 moradores em Maceió
--  ОФИЦИАЛЬНО. Наполи сообщил о трансфере форварда из Вероны
--  US President Biden speaks with Israeli PM Netanyahu after almost a month, discusses two-state solution
--  Govt moves IHC seeking to continue trial in jail
--  תאונה קטלנית בשרון: גבר בשנות ה-20 לחייו נהרג בכביש 6, צעיר נוסף נפצע קשה
--  D.C. area pasted by week’s second snowstorm. How it happened.
--  শেয়ারবাজারের গুরুত্বপূর্ণ ১৮ সংবাদ
--  ¿Por qué renunció Andrés Palencia al Caso Uribe?
+-  味噌煮込みうどん 香港で大人気
+-  2023 歐洲新車銷售 Top 10 出爐！冠軍換人當 Model Y 崛起成最大黑馬
+-  Hazbin Hotel Fans Celebrate Keith David
+-  味噌煮込みうどん 香港で大人気
+-  প্রতিকূলতার মধ্যেও ২০২৩ সালে ২৬৪টি নতুন পোশাক কারখানা নির্মাণ হয়েছে
+-  Tubarões abrem alas ao sonho
+-  Russische Gruppe hackt Microsoft
+-  Ucrania no sobrevivirá sin la ayuda de EU: Vladímir Zelenski
+-  味噌煮込みうどんが香港で大成功 手打ち体験やムスリム対応などで好評博す
+-  'Deepest condolences': Delta firefighter ID'd as victim of fatal UBC parkade crash (BC)
