@@ -1,11 +1,11 @@
 # Latest News
--  Главы МИД Азербайджана и Индии обсудили региональную ситуацию
--  Ministarstvo finansija: Plaćena rata za auto-put, država uštedjela...
--  Wordle 945 Answer Today: Hints & Clues To Guess Final Answer on 20 January 2024
--  Dularfull sár á höndum Trump vekja athygli
--  Russian Federation extends support with $ 1.5 m sunflower oil donation to Sri Lanka
--  Batı Karadeniz, Marmara ve Kuzey Ege için fırtına uyarısı
--  Cinq projets mobiliseront plus d'un million d'euros à Sens, en 2024
--  Maharashtra: Four injured after fire breaks out at godown in Pimpri Chinchwad town
--  في مهرجان الزهور.. أفكار مبتكرة صديقة للبيئة بين 500 ألف زهرة
--  NYC stabbing spree suspect expected to be arraigned Friday
+-  NESREĆA KOD JASTREBARSKOG Vozač koji je prevozio migrante udario u stablo i preminuo
+-  Actividades para el fin de semana: qué hacer en San Miguel de Tucumán
+-  Prefeitura divulga projeto do Parque Oeste em Lucas do Rio Verde
+-  Save $100 and get the DJI Osmo Action 4 camera for its cheapest price ever at Amazon
+-  fanatik.ro: Cine sunt șefii caselor de sănătate. Averi și legături politice. În ce județ instituția este condusă de președintele unei asociații a crescătorilor de animale
+-  Qué leche recomienda consumir una nutricionista a quienes intentan bajar de peso
+-  Na največji vaji po hladni vojni tudi 200 slovenskih vojakov, medtem znano, kdaj bi Putin lahko udaril po Natu
+-  Podwyżki dla nauczycieli. Oto ile zarobią [STAWKI]
+-  Cos’è il Rock’n Roar Abarth
+-  Ödemeler hesaplara aktarıldı
