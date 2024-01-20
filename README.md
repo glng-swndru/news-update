@@ -1,11 +1,11 @@
 # Latest News
--  Veja artes conceituais do primeiro projeto do Studio Flare de Toshimichi Mori
--  De är drabbade av den smittsamma hästsjukdomen
--  Intenção de consumo das famílias cai 0,5% em janeiro ante dezembro, 2ª queda seguida, diz CNC
--  Tommy Kuhse trumpft bei Rasta Vechta auf
--  13enne scappa da casa dopo una discussione, i carabinieri bloccano il treno per trovarla
--  IBES 2024: Dschungelcamp-Kandidat Mike Heiter: Er will Anführer und Verführer sein
--  Eurovision Song Contest 2024: Kann der ESC wirklich unpolitisch sein?
--  Dschungelcamp 2024: Tag 1 im Live-Blog: Der Dschungel ruft – und endlich ziehen die Promis ein!
--  Ισραήλ: Πρώτη επικοινωνία Μπάιντεν – Νετανιάχου από τις 23 Δεκεμβρίου – Τι συζήτησαν
--  Ermittlungen nach Diebstählen aus Chemieräumen
+-  Echo Comment on the closure of the UK's last blast furnaces
+-  Cost estimates soar for potential new downtown Seattle streetcar
+-  ¡Bienvenido, “finde”!: el lado B de Cosquín, empieza el festival
+-  Trump mocks Nikki Haley's first name. It's his latest example of attacking rivals based on race
+-  Rote Flecken auf der Haut: Kann Syphilis dahinterstecken?
+-  ODT quiz: January 20
+-  Life derailed: Long COVID still gnawing at B.C. long after pandemic fades
+-  HUP: Rast investicija u istraživanje i razvoj je imperativ, predlažemo povećanje subvencija na razinu prosjeka EU
+-  Sénégal : Sadio Mané entre dans l'histoire de sa sélection
+-  Topturniere in Hamburg: Squash: Die Sportart wird olympisch und weiß noch nicht, wie
