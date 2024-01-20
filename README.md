@@ -1,11 +1,11 @@
 # Latest News
--  Σπίτια καταστράφηκαν στον Λίβανο από ισραηλινούς βομβαρδισμούς: «Πολύ υψηλότερη η πιθανότητα πολέμου»
--  Bura zbog Tonija Đerone! Bivša rukometašica pobesnela: Neću da ćutim!
--  "C’est une présence affective indispensable pour certains de nos résidents": les animaux de compagnie vont pouvoir entrer en Ehpad
--  Čekala je u redu za lijek, sjela, ostala bez daha i srušila se; od smrti ju je spasio ljekarnik, odmah je napravio ovo
--  DEBATT: Matvarorna ökar i pris – men minskar i storlek
--  Prokletí bílých Afričanů. Lynčování, ponižování i rituální vraždy jsou častým osudem Albínů i ve 21. století
--  A Clermont-Ferrand, une expo sur les Justes présente ces chrétiens qui furent "des lumières dans la nuit de la Shoah"
--  Was the Post Office’s Horizon software used to wrongly convict a man of murder?
--  La panique s’empare d’Atos
--  El PP de Narón propone crear un CIM en las instalaciones del antiguo centro de salud
+-  « Mon sous-marin jaune » : des souvenirs au son des Beatles
+-  Google Asistent přijde o 17 funkcí. Hlasem už si nepošlete e-mail ani nepustíte audioknihu
+-  Паулюс Саударгас: «Литве следует как можно скорее начать производство боевых дронов»
+-  Visto para China e Brasil agora dura 10 anos; entenda
+-  Zwembad Nienoord sluit drie maanden de deuren voor verduurzaming. ‘Nu 12 weken dicht, daarna weer 12 jaar open’
+-  Shrek or Pikotaro? CNY dragon decor in Chinatown fires up social media - The Straits Times
+-  El "chollo en pleno centro de Madrid": cinco metros cuadrados a 32.000 euros
+-  Ostapenko neizmanto breikbumbas un piekāpjas "Australian Open" trešajā kārtā
+-  Majdnem 400 millióból újítanak fel három békési óvodát
+-  Mais de 17 milhões de hectares foram queimados em 2023, mostra levantamento
