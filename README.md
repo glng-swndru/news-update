@@ -1,11 +1,11 @@
 # Latest News
--  SFA Semicon to buy back P19M in shares
--  PODIGNUTA OPTUŽNICA Nogometni sudac sumnjiči se da je u Gabeli od prikrivenog istražitelja uzeo 3000 KM
--  Szijjártó Péter: Véglegessé vált a magyar-ukrán találkozó időpontja
--  Pedro Bial acusa Meta de ser cúmplice em crime de falsificação após ser vítima de deepfake
--  Kaum bekannte Krankheit: Sie müssen oft husten und sind ständig heiser? Vielleicht steckt ein stiller Reflux hinter den Beschwerden
--  Названо неожиданное преимущество России над США
--  В РПЦ рассказали о маскирующейся под нее секте
--  Les Banque populaires se lancent dans l’intéressement responsable
--  Новак поручил нефтяным компаниям контролировать цены на АЗС
--  Nakon prepirke je hladnim oružjem ubio brata: Muškarcu (46) određen jednomjesečni istražni zatvor
+-  Putin stále chce Ukrajinu. V lete chystá rozsiahlu ofenzívu, tvrdí britský denník
+-  Victoria looks to more car-free spaces to increase safety, build community
+-  Βίντεο-ντοκουμέντο από ένοπλη ληστεία στη Θεσσαλονίκη - Σημαδεύουν υπάλληλο στο κεφάλι και απαιτούν χρήματα
+-  Marbacher kandidiert in Großerlach: Aufregung um eine Rede
+-  Ahol nem muszáj drága műtárgyat venni, de lehet
+-  Victoria looks to more car-free spaces to increase safety, build community
+-  Näkökulma: Itävallassa valmentajana toimivalta Anton Mirolybovilta erinomainen ehdotus koripallon Suomen cupin kehittämiseksi
+-  Hasil Piala Asia 2023, Timnas Vietnam vs Timnas Indonesia: Skor 0-1
+-  Marbacher kandidiert in Großerlach: Aufregung um eine Rede
+-  Meral Akşener: "Bebek katillerinin övüldüğü bir TBMM, 'Gazi Meclis' olamaz"
