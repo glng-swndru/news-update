@@ -1,11 +1,11 @@
 # Latest News
--  Le tribunal judiciaire de Cusset poursuit sa lutte contre toutes les violences
--  Histórico! Nuno Borges bate Dimitrov e está nos «oitavos» do Open da Austrália
--  Gunung Semeru Erupsi Dua Kali Pada Sabtu Pagi Ini, Masyarakat Diminta Waspada
--  Egyeztetett Netanjahu és Biden, de egy alapvető dologban szakadék van köztük
--  Le tribunal judiciaire de Cusset poursuit sa lutte contre toutes les violences
--  고등학교 후배 때려 의식 불명 상태로 만든 20대 체포
--  Air Montenegro pozitivno poslovao uprkos izazovima
--  Thodex vurgununda verilen 11 bin yılın gerekçesi açıklandı
--  Gezeravcı'yı taşıyan uzay aracı, Uluslararası Uzay İstasyonu'na Yaklaşıyor
--  Lavori alla rete fognaria, si avvia il cantiere nella zona Marina
+-  Meet the Investors Trying Quantitative Trading at Home
+-  Fredrick Joseph Rennette
+-  Australian Open star's gorgeous WAG wants tournament at Playboy mansion
+-  De Laurentiis indagato per falso in bilancio, l'avvocato: "Siamo sereni, nessun vantaggio dall'operazione Osimhen"
+-  Vuoden Hääyritys tietää, miten meikki kestää vuolaatkin onnenkyyneleet – Katso Elina Kymäläisen varmat vinkit
+-  사전청약 받아놓고 '사업 취소' 부동산 침체에 잇따르나
+-  Umstyling - Kimberly Schwalm wechselt Latz- gegen stylische Stoffhose
+-  Even Elon Musk Wants More Power
+-  Nazi şifrelerini kıran 80 yıllık bilgisayarın yeni görüntüleri yayınlandı
+-  Saundersfoot news: St Issell’s WI
