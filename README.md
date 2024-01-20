@@ -1,11 +1,11 @@
 # Latest News
--  Plus belle la vie, encore plus belle : tout ce que vous n'avez pas vu à la télé dévoilé dans un documentaire inédit
--  Cựu Tổng thống Mỹ thừa nhận thân thiết với nhà lãnh đạo Nga
--  Esta es la pensión de la Seguridad Social que ya pueden pedir los amos y las amas de casa
--  Ansichtssache: Radevormwald darf nicht zu „Rechtsvormwald“ werden
--  A harcnak sosem lesz vége
--  A reportagem de uma visita anunciada
--  Beautiful European city with year-round sunshine you can visit from £25
--  Rela datang ke GBK Demi Meriahkan Harlah Muslimat NU ke-78
--  Dok se mi smrzavamo, Australci upozoreni na dolazak ekstremnog toplinskog vala
--  Srbija ide u budućnost! Predsednik Vučić završio učešće na forumu u Davosu, večeras predstavlja važan plan!
+-  Σπίτια καταστράφηκαν στον Λίβανο από ισραηλινούς βομβαρδισμούς: «Πολύ υψηλότερη η πιθανότητα πολέμου»
+-  Bura zbog Tonija Đerone! Bivša rukometašica pobesnela: Neću da ćutim!
+-  "C’est une présence affective indispensable pour certains de nos résidents": les animaux de compagnie vont pouvoir entrer en Ehpad
+-  Čekala je u redu za lijek, sjela, ostala bez daha i srušila se; od smrti ju je spasio ljekarnik, odmah je napravio ovo
+-  DEBATT: Matvarorna ökar i pris – men minskar i storlek
+-  Prokletí bílých Afričanů. Lynčování, ponižování i rituální vraždy jsou častým osudem Albínů i ve 21. století
+-  A Clermont-Ferrand, une expo sur les Justes présente ces chrétiens qui furent "des lumières dans la nuit de la Shoah"
+-  Was the Post Office’s Horizon software used to wrongly convict a man of murder?
+-  La panique s’empare d’Atos
+-  El PP de Narón propone crear un CIM en las instalaciones del antiguo centro de salud
