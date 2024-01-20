@@ -1,11 +1,11 @@
 # Latest News
--  Sports Illustrated’s publisher lays off most of its staff, the return of 'Wizards of Waverly Place' and more trending news
--  Avokokadoyu bir türlü sevmeyenler bu şekilde bayıla bayıla yiyecek! İşte hem faydasını hem lezzetini katlayan yöntem
--  5 bin TL karşılığında yarışan ve yakalanan 6 motosikletliden biri: Tekrar yarışacağız
--  이상민 장관, 동해안 지진해일 긴급대피장소 점검
--  Minister Ursell Arends: Proyecto di Agricultura a cuminsa na scol basico
--  Yunan botunun kaçak göçmenleri batırmaya çalışması kamerada; Türk Sahil Güvenlik yetişti
--  Yuk, Ikut Sayembara Desain Maskot Timnas Indonesia Berhadiah Rp 50 Juta
--  Konya'da alkollü restoranda bıçaklı kavga: 1 ağır yaralı
--  Video impactante: mató a su compañera de trabajo por un chisme sobre infidelidad que recorría su oficina
--  Cezaevinden kaçan 2 firari hükümlü operasyonla yakalandı
+-  ガンバレルーヤ 激変の姿に騒然
+-  Halle Bailey sorprende al anunciar el nacimiento de su primer hijo
+-  Descubre dónde disfrutar de los ganadores de los Emmys 2024
+-  'Terra e Paixão': Veja o final dos principais personagens da trama, que acabou hoje
+-  BEYOND LOCAL: NHL announces PWHL's three-on-three all-star rosters
+-  El bloqueo a buques venezolanos, ¿un buen negocio para Occidente?
+-  अमित शाह ने खोले सियासी पत्ते तो 'फंस' गए लालू-तेजस्वी, नीतीश का भी है प्लान रेडी?
+-  Isife solicitará 45 mdp al gobernador para instalar de 44 plantas eléctricas en escuelas de Sinaloa
+-  Ex-Wagner-Söldner entdecken Drogenskandal in Putins Armee
+-  동두천시, 건축물 해체계획서 서식·체크리스트 배포
