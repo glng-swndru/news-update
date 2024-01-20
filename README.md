@@ -1,11 +1,11 @@
 # Latest News
--  Acht Tonnen Kokain - Elf Schmuggler gehen bis zu 15 Jahre in Haft
--  8 years after tossed conviction, Toronto mom Cindy Ali is found not guilty in death of disabled daughter
--  Australian Open: Zieliński/Hsieh - Peers/Birrell. Relacja live i wynik na żywo
--  I faldoni di Conte, l'arringa di Meloni, le metafore di Mulè: la grande ammuina del gran Giurì
--  Elektrownia jądrowa nad Bałtykiem. Ekspert wyjaśnia powody
--  Путин се потопи в ледена вода на Богоявление
--  Voetbal- en tennisclubs in Leimuiden maken van hun terrein een openbare speel- en ontmoetingsplek
--  تقرير :الذكاء الاصطناعي يفاقم المخاطر مع تنظيم 60 دولة انتخابات هذا العام
--  Republicans React To Trump’s ‘Poisoning The Blood’ Comments
--  Fyrverkeri vid gymnasieskola – orsakade utryckning
+-  SFA Semicon to buy back P19M in shares
+-  PODIGNUTA OPTUŽNICA Nogometni sudac sumnjiči se da je u Gabeli od prikrivenog istražitelja uzeo 3000 KM
+-  Szijjártó Péter: Véglegessé vált a magyar-ukrán találkozó időpontja
+-  Pedro Bial acusa Meta de ser cúmplice em crime de falsificação após ser vítima de deepfake
+-  Kaum bekannte Krankheit: Sie müssen oft husten und sind ständig heiser? Vielleicht steckt ein stiller Reflux hinter den Beschwerden
+-  Названо неожиданное преимущество России над США
+-  В РПЦ рассказали о маскирующейся под нее секте
+-  Les Banque populaires se lancent dans l’intéressement responsable
+-  Новак поручил нефтяным компаниям контролировать цены на АЗС
+-  Nakon prepirke je hladnim oružjem ubio brata: Muškarcu (46) određen jednomjesečni istražni zatvor
