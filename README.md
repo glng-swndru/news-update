@@ -1,11 +1,11 @@
 # Latest News
--  ജപ്പാന്‍റെ ‘സ്‍ലിം’ പേടകത്തിലെ സോളാർ പാനൽ പ്രവർത്തന രഹിതം
--  Japan makes historic landing on moon, but lander losing power rapidly makes mission 'minimum success'
--  Sri Lanka remains open for positive role in dousing India-Maldives tension
--  تصعيد التهديدات والغارات الاسرائيلية.. تراجع وتيرة عمليات "حزب الله"
--  Bengal BJP president urges Mamata to declare holiday on Jan 22
--  Xếp hạng bảng C Asian Cup 2023: Iran nhất, Hong Kong cuối bảng
--  일본, 이라크에 충격패…16강 한일전 가능성
--  Occidental Petroleum-Aktie: Warren Buffett hat Beteiligung weiter ausgebaut
--  Thể dục nơi công cộng, tôi sợ chó cắn
--  Fire in School Dorm in China Kills 13
+-  Los Angeles Lakers - Brooklyn Nets, en directo | NBA
+-  Bleisure Travel Market Trend to Eyewitness Huge Growth by 2031 | AMR
+-  ‘Frost quakes’ jar Midwest this week. Here’s what to know about seismic phenomenon
+-  Running up that hill: Davos attractions show no signs of waning
+-  【ゲッターズ飯田が教える】すぐできる「相性のいい人」の増やし方
+-  粗品 競馬的中で2400万円を石川県に寄付の顛末に見える「クズ芸人」のセンスと覚悟
+-  木村沙織さんが待望の第一子を出産するまで 救急搬送されていた
+-  〈振り返る皇室「あのとき」〉愛子さま歌会始デビュー 雅子さまの歌で振り返る愛娘の20年と美智子さまの助言
+-  チャールズ英国王の生前退位はあるのか？ 欧州「世代交代ドミノ」の可能性と来たる「女王の時代」
+-  「エッフェル姉さん」こと松川るい氏はなぜ裏金疑惑があっても政治刷新本部に入れたのか 安倍派関係者が語る“内情”
