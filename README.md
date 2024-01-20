@@ -1,11 +1,11 @@
 # Latest News
--  직장인 월급 가장 많은 시도는 울산… 증가폭, 서울이 1위
--  ＜七飯＞名古屋で七飯、森、鹿部の味覚ＰＲ 柴田和弘さん（４０）
--  好評の舞台 ３劇団再演 札幌演劇シーズン ２７日から計３３公演 年２回は今回最後
--  Alaska Governor Hopeful for Trump 2024 Victory to Boost State’s Natural Resource Industries
--  Past Lives: The film on lost love that crosses continents - BBC
--  PLACAR FI: Confira os RESULTADOS de SEXTA-FEIRA com COPINHA e ESTADUAIS
--  【德能私家咪】李德能：亞洲盃激發人文精神
--  Follow norms, desist from direct Admn contact: H&ME
--  आज का राशिफल, 20 जनवरी 2024
--  FAA investiga aterrizaje de emergencia de un avión de carga en el aeropuerto de Miami
+-  Người đang chấp hành hình phạt tù có được lập di chúc?
+-  Huawei P70 Dirumorkan Meluncur pada Akhir Maret 2024
+-  Justiça manda Braskem indenizar mais 3.000 moradores em Maceió
+-  ОФИЦИАЛЬНО. Наполи сообщил о трансфере форварда из Вероны
+-  US President Biden speaks with Israeli PM Netanyahu after almost a month, discusses two-state solution
+-  Govt moves IHC seeking to continue trial in jail
+-  תאונה קטלנית בשרון: גבר בשנות ה-20 לחייו נהרג בכביש 6, צעיר נוסף נפצע קשה
+-  D.C. area pasted by week’s second snowstorm. How it happened.
+-  শেয়ারবাজারের গুরুত্বপূর্ণ ১৮ সংবাদ
+-  ¿Por qué renunció Andrés Palencia al Caso Uribe?
