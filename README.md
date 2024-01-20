@@ -1,11 +1,11 @@
 # Latest News
--  Meet the Investors Trying Quantitative Trading at Home
--  Fredrick Joseph Rennette
--  Australian Open star's gorgeous WAG wants tournament at Playboy mansion
--  De Laurentiis indagato per falso in bilancio, l'avvocato: "Siamo sereni, nessun vantaggio dall'operazione Osimhen"
--  Vuoden Hääyritys tietää, miten meikki kestää vuolaatkin onnenkyyneleet – Katso Elina Kymäläisen varmat vinkit
--  사전청약 받아놓고 '사업 취소' 부동산 침체에 잇따르나
--  Umstyling - Kimberly Schwalm wechselt Latz- gegen stylische Stoffhose
--  Even Elon Musk Wants More Power
--  Nazi şifrelerini kıran 80 yıllık bilgisayarın yeni görüntüleri yayınlandı
--  Saundersfoot news: St Issell’s WI
+-  El Gobierno asegura que respeta al Poder Judicial
+-  Jelínková postoupila v Jasné do druhého kola, Vlhová se zranila
+-  Sin zvijezde hit serije ‘Zalagaonica‘ pronađen mrtav, imao je 39 godina
+-  فأل خير.. أسود اليد يتأهلون رسميا لدور الثمانية
+-  Cumhurbaşkanı Erdoğan: "Asimilasyona karşı en büyük silahımız, çocuklarımıza ana dillerini, kültürlerini ve medeniyet değerlerini öğretmektir"
+-  Protestul fermierilor şi transportatorilor din Bucureşti, aprobat pentru ziua de duminică, în intervalul 09.30 – 22.00
+-  İmamoğlu'ndan "kentsel dönüşüm" mesajı
+-  Sivasspor 4 takviye yapmayı planlıyor
+-  Reçeliyle, çayıyla mucize meyve! Her akşam yediğinizde sonuçlarına inanamayacaksınız. Ayvanın bu faydasını biliyor muydunuz?
+-  Вече 50 жертви в САЩ на снежните бури, а чакат още студ
