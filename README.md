@@ -1,11 +1,11 @@
 # Latest News
--  Dobronić: Plaće sudaca moraju biti više! S Malenicom se nisam čuo, bio je zauzet
--  גאנדלמן בישל, גנט ב-1:1 מול מכלן בליגה הבלגית
--  Plane makes emergency landing on road in US
--  أسهم التكنولوجيا تتألق وتقود إس آند بي إلى إغلاق قياسي
--  Панди близнаци си играят сред снега в белгийски зоопарк (Видео)
--  Stanija uhvaćena na remontu! Sprema se za ulazak u "Elitu"?!
--  Karjeros skaičių nesureikšminęs Birutis apibūdino Trinchieri darbo metodus
--  Plane makes emergency landing on road in US
--  Tüm Kuzey Anadolu'da yayılış gösteren bir tür! Bursa'da, sulama göletinde bulundu!
--  Novos ataques israelenses deixam mais de 70 mortos em Gaza
+-  證券行情表、證券表格
+-  鈴木おさむ、引退前最後の地上波連ドラ “不倫”がテーマのダークコメディ『離婚しない男』スタート
+-  AI伺服器出貨提升 勤誠Q2營運增溫
+-  Marco Sesia su Buongiorno: "Ecco quello che non farà mai"
+-  李銘順返星國拍戲 宣萱成怨婦斷社交
+-  Canadian universities raise alarm over international student visa cap
+-  رواية هدمت حياتي بيديك وجاي تقول ندمت -81
+-  SCFI運價漲幅縮小 美國線撐盤 歐洲線轉跌
+-  Según ONU-Mujeres dos madres mueren cada hora por la guerra en Gaza
+-  温昇豪劉冠廷跳陣頭 化身台版超級賽亞人
