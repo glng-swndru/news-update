@@ -1,11 +1,11 @@
 # Latest News
--  Always wondered what Kevin McCloud’s house is like? You’ll never know
--  B.C. strata ordered to pay almost $11K for flood damage
--  Tämä yhtiö aikoo tuoda Suomen liikenteeseen aivan uudenlaisen auton
--  Starlink, dudak uçuklatan fiyata 10 Gbps hızında "fiber uzay interneti" veriyor
--  Brotbackautomaten Test: Das sind die besten Brotbackautomaten
--  Freie Wähler gegründet: Sie sehen sich als „anständige Wahl-Option“
--  PL Predictions: Palace to leave Arsenal's title bid in tatters
--  Tata isprovocirao buldoga da zaštiti bebu, ljudi pišu: Ovo je rizično ponašanje
--  JAV gyvenantį lietuvį teisingumas pasivijo po aštuonerių metų – turės sumokėti 11 tūkst. eurų baudą
--  Marozsán búcsúzóul szétszaggatta az ellenfele cipőjét (videó)
+-  Терзиев: Надявахме се на продуктивна среща с общинските съветници, получихме заяждане - Труд
+-  هزة أرضية جديدة تضرب الجارة الشرقية للمملكة: الثانية في يومين
+-  Mandić: Ne znam otkud tolika mržnja prema trobojci
+-  Chystané ohebné véčko Xiaomi pravděpodobně nabídne satelitní připojení
+-  FETÖ'den 6 yıldır aranan üsteğmen, sahte kimlikle yakalandı
+-  EHF hrvaška delegaciji naložil odgovornost za rasizem
+-  Valsts drošības dienests sāk darbu jaunajā ēkā Brīvības gatvē
+-  İstanbul dahil Tekirdağ, Çanakkale, Balıkesir, Bursa, Yalova ve Kocaeli'de yaşayan herkesi etkileyecek. Bir uyarı da AKOM'dan geldi
+-  Lukijalta | Elimäen yläluokkien opettajat: Tämän takia oppilaiden vessakäyntejä kirjataan Wilmaan
+-  Терзиев: ГЕРБ не показват уважение
