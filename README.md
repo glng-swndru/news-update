@@ -1,11 +1,11 @@
 # Latest News
--  Mutter (37) und zwei Kinder (5/7) in Herten erstickt: Lebenslange Haft für Dreifachmord beantragt
--  Squash to make Khelo India Youth Games debut
--  Manchester United 'interested in Swedish wonderkid Lucas Bergvall'
--  Esta es la hora a la que deberías dejar de tomar café
--  Chennai to get its 3rd urban plaza at Island grounds, details inside
--  Si tienes siempre frío, ten cuidado: Podrías estar enfermo
--  "Отвечать на неудобные вопросы не хотелось". Эксперт о причинах визита Сунака в Киев
--  Rats nibble body in Mumbai Hospital morgue, family cries foul
--  Yola çıkacaklar dikkat! BUDO'nun 6 seferi iptal edildi
--  Directeur Pieterskerk Leiden kondigt vertrek aan. Monument ’heeft andere energie nodig’
+-  Bundesinnenministerin: "Kein Mittel der politischen Auseinandersetzung": Nancy Faeser sieht wenig Chancen für ein AfD-Verbot
+-  Близо 150 машини чистят снега по улиците в София
+-  Gündüzleri bisikletle gazete dağıtıyor, akşamları mitingle seçime hazırlanıyor
+-  Lá dong Tràng Cát "vượt cổng làng" sang thị trường thế giới
+-  Bắt giữ 2 nghi phạm cướp ngân hàng tại Quảng Nam
+-  ONU: Două mame ucise în fiecare oră în Fâșia Gaza - 16.000 de femei și copii morți
+-  İngiliz devi istiyor! Fenerbahçe 35 milyon euro istiyor
+-  Meteorology department warns of strong wind, high sea
+-  Психолози ще консултират учители и директори как да защитят деца в риск
+-  Bundesinnenministerin: "Kein Mittel der politischen Auseinandersetzung": Nancy Faeser sieht wenig Chancen für ein AfD-Verbot
