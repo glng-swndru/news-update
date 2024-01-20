@@ -1,11 +1,11 @@
 # Latest News
--  Терзиев: Надявахме се на продуктивна среща с общинските съветници, получихме заяждане - Труд
--  هزة أرضية جديدة تضرب الجارة الشرقية للمملكة: الثانية في يومين
--  Mandić: Ne znam otkud tolika mržnja prema trobojci
--  Chystané ohebné véčko Xiaomi pravděpodobně nabídne satelitní připojení
--  FETÖ'den 6 yıldır aranan üsteğmen, sahte kimlikle yakalandı
--  EHF hrvaška delegaciji naložil odgovornost za rasizem
--  Valsts drošības dienests sāk darbu jaunajā ēkā Brīvības gatvē
--  İstanbul dahil Tekirdağ, Çanakkale, Balıkesir, Bursa, Yalova ve Kocaeli'de yaşayan herkesi etkileyecek. Bir uyarı da AKOM'dan geldi
--  Lukijalta | Elimäen yläluokkien opettajat: Tämän takia oppilaiden vessakäyntejä kirjataan Wilmaan
--  Терзиев: ГЕРБ не показват уважение
+-  Un enfant de 9 ans vivait seul dans un appartement depuis deux ans : sa mère condamnée à 18 mois de prison
+-  Kartlı ödemelerde yüzde 116'lık artış!
+-  Un enfant de 9 ans vivait seul dans un appartement depuis deux ans : sa mère condamnée à 18 mois de prison
+-  Vivacom направи първата крачка към електрическата мобилност
+-  Un enfant de 9 ans vivait seul dans un appartement depuis deux ans : sa mère condamnée à 18 mois de prison
+-  Принц Хари научил за хоспитализацията на крал Чарлз III от интернет
+-  Bursa'da yapılan operasyonda 'karı-koca' yakalandı! Bakın ne işine girmişler...
+-  مهرجان محايل عسير يجذب الزوار بالأجواء والفعاليات المميزة
+-  Glatteis in Esslingen: 400 Tonnen Salz streut die Stadt pro Winter auf die Straße
+-  Ishalka på Kallisbryggan – nu stängs den av
