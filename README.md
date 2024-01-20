@@ -1,11 +1,11 @@
 # Latest News
--  Korku dolu anlar: Uçak, pistten çıktı
--  Minea pokazala kako uživa u snježnim radostima: 'Zadnji put sam ovo napravila u djetinjstvu'
--  Alavés vence Cádiz (1-0) e se afasta da zona de rebaixamento
--  “추워도 스타일 빠질 순 없지”…방한용 패션 액세서리 ‘인기’
--  SPD officer won't face charges for downtown Spokane shooting
--  Puebloviejo: La amenaza que le hicieron al dueño de una piladora
--  Đulijanijevi advokati tražili ukidanje kazne od 150 miliona dolara: "On nema ćup sa zlatom na kraju duge"
--  V sobotu bude jasno, zafúka slabý vietor
--  Jorge Couto: «Não permitimos grandes situações de perigo ao Benfica»
--  Derksen: ‘Ik heb me heel erg geërgerd aan hem, hij moet zich kapot schamen’
+-  L’Ambrì ci crede. ‘Se tutti danno il 2% in più, ci rifacciamo’
+-  日本の月着陸実証機「SLIM」が世界で5カ国目の月面着陸に成功
+-  FX Rudy Tetap Yakin Ganjar-Mahfud Raih 65-70 Persen di Solo
+-  Ukraine-Krieg im Liveticker: +++ 23:51 "Die Lage ist schwierig", sagt Selenskyj-Berater Podoljak +++
+-  Sering Pakai Item Fashion Unik, Ini 5 Koleksi Serba Silver Nagita Slavina dari Bando Hingga Tas: Capai Ratusan Juta!
+-  Mortes: Ativista que acolheu, alegrou e amou a vida
+-  Ona je rođena sestra Duška Tošića: Katarina javno čestitala bratu, nežne poruke se samo nižu
+-  Daftar Lengkap Tim Lolos 16 Besar Piala Asia 2023
+-  Avrupa Birliği’nden Hamas'a yaptırım kararı
+-  黒すぎるトヨタ新型カスタムモデル「ブラッククルーザー70」が世界初公開
