@@ -1,11 +1,11 @@
 # Latest News
--  Un enfant de 9 ans vivait seul dans un appartement depuis deux ans : sa mère condamnée à 18 mois de prison
--  Kartlı ödemelerde yüzde 116'lık artış!
--  Un enfant de 9 ans vivait seul dans un appartement depuis deux ans : sa mère condamnée à 18 mois de prison
--  Vivacom направи първата крачка към електрическата мобилност
--  Un enfant de 9 ans vivait seul dans un appartement depuis deux ans : sa mère condamnée à 18 mois de prison
--  Принц Хари научил за хоспитализацията на крал Чарлз III от интернет
--  Bursa'da yapılan operasyonda 'karı-koca' yakalandı! Bakın ne işine girmişler...
--  مهرجان محايل عسير يجذب الزوار بالأجواء والفعاليات المميزة
--  Glatteis in Esslingen: 400 Tonnen Salz streut die Stadt pro Winter auf die Straße
--  Ishalka på Kallisbryggan – nu stängs den av
+-  Verkehr auf den Fildern: Land will Flughafentunnel zur Einbahnstraße machen
+-  Black Stars On Brink Of Elimination After 2-2 Draw Against Egypt
+-  La boutique du Festival international du court métrage de Clermont-Ferrand a ouvert
+-  Skandal olay sonrası Erdoğan'dan tepki: Utanın, bunun izahı yok, gidecek yeriniz yok!
+-  Erdoğan'dan 'rüşvet' operasyonu hakkında sert çıkış: 'Sizin gidecek yeriniz yok!'
+-  Taş duvar çöktü: 2 işçi yaralandı!
+-  Zwischenfälle bei Länderspielen in Luxemburg
+-  Zvicer analizirao gubitak Đukanovićeve vlasti na izborima: "Da su...
+-  Ator assume que ganha milhares em site com conteúdo para adultos: "Já fiz..."
+-  Rishi Sunak is confronted in street by angry voter – but watch what really happened
