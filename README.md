@@ -1,11 +1,11 @@
 # Latest News
--  味噌煮込みうどん 香港で大人気
--  2023 歐洲新車銷售 Top 10 出爐！冠軍換人當 Model Y 崛起成最大黑馬
--  Hazbin Hotel Fans Celebrate Keith David
--  味噌煮込みうどん 香港で大人気
--  প্রতিকূলতার মধ্যেও ২০২৩ সালে ২৬৪টি নতুন পোশাক কারখানা নির্মাণ হয়েছে
--  Tubarões abrem alas ao sonho
--  Russische Gruppe hackt Microsoft
--  Ucrania no sobrevivirá sin la ayuda de EU: Vladímir Zelenski
--  味噌煮込みうどんが香港で大成功 手打ち体験やムスリム対応などで好評博す
--  'Deepest condolences': Delta firefighter ID'd as victim of fatal UBC parkade crash (BC)
+-  Sports Illustrated’s publisher lays off most of its staff, the return of 'Wizards of Waverly Place' and more trending news
+-  Avokokadoyu bir türlü sevmeyenler bu şekilde bayıla bayıla yiyecek! İşte hem faydasını hem lezzetini katlayan yöntem
+-  5 bin TL karşılığında yarışan ve yakalanan 6 motosikletliden biri: Tekrar yarışacağız
+-  이상민 장관, 동해안 지진해일 긴급대피장소 점검
+-  Minister Ursell Arends: Proyecto di Agricultura a cuminsa na scol basico
+-  Yunan botunun kaçak göçmenleri batırmaya çalışması kamerada; Türk Sahil Güvenlik yetişti
+-  Yuk, Ikut Sayembara Desain Maskot Timnas Indonesia Berhadiah Rp 50 Juta
+-  Konya'da alkollü restoranda bıçaklı kavga: 1 ağır yaralı
+-  Video impactante: mató a su compañera de trabajo por un chisme sobre infidelidad que recorría su oficina
+-  Cezaevinden kaçan 2 firari hükümlü operasyonla yakalandı
