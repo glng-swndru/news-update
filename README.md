@@ -1,11 +1,11 @@
 # Latest News
--  證券行情表、證券表格
--  鈴木おさむ、引退前最後の地上波連ドラ “不倫”がテーマのダークコメディ『離婚しない男』スタート
--  AI伺服器出貨提升 勤誠Q2營運增溫
--  Marco Sesia su Buongiorno: "Ecco quello che non farà mai"
--  李銘順返星國拍戲 宣萱成怨婦斷社交
--  Canadian universities raise alarm over international student visa cap
--  رواية هدمت حياتي بيديك وجاي تقول ندمت -81
--  SCFI運價漲幅縮小 美國線撐盤 歐洲線轉跌
--  Según ONU-Mujeres dos madres mueren cada hora por la guerra en Gaza
--  温昇豪劉冠廷跳陣頭 化身台版超級賽亞人
+-  The tragic story of this famous meteorite
+-  [상보] 뉴욕증시, 기술주 강세에 상승…S&P500 사상 최고치 경신
+-  Rich and satisfying, this quiche is the hero of Saturday brunch
+-  Aliou Cissé : "Rien n'est fait, il faut garder notre humilité"
+-  Sarah Di Lorenzo’s back to work and school lunches to get your year started right
+-  ABD Başkanı Biden, İsrail'e Gazze'deki sivillere zarar verilmemesi çağrısı yaptı
+-  Pour Laurent Wauquiez, l"entresoi" du gouvernement Attal crée un "risque de déconnexion"
+-  The Best 'Black National Anthem' Performances in History
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 20 януари /валутен калкулатор/
+-  У Білому домі заявили про три нові удари по хуситах
