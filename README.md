@@ -1,11 +1,11 @@
 # Latest News
--  ガンバレルーヤ 激変の姿に騒然
--  Halle Bailey sorprende al anunciar el nacimiento de su primer hijo
--  Descubre dónde disfrutar de los ganadores de los Emmys 2024
--  'Terra e Paixão': Veja o final dos principais personagens da trama, que acabou hoje
--  BEYOND LOCAL: NHL announces PWHL's three-on-three all-star rosters
--  El bloqueo a buques venezolanos, ¿un buen negocio para Occidente?
--  अमित शाह ने खोले सियासी पत्ते तो 'फंस' गए लालू-तेजस्वी, नीतीश का भी है प्लान रेडी?
--  Isife solicitará 45 mdp al gobernador para instalar de 44 plantas eléctricas en escuelas de Sinaloa
--  Ex-Wagner-Söldner entdecken Drogenskandal in Putins Armee
--  동두천시, 건축물 해체계획서 서식·체크리스트 배포
+-  ജപ്പാന്‍റെ ‘സ്‍ലിം’ പേടകത്തിലെ സോളാർ പാനൽ പ്രവർത്തന രഹിതം
+-  Japan makes historic landing on moon, but lander losing power rapidly makes mission 'minimum success'
+-  Sri Lanka remains open for positive role in dousing India-Maldives tension
+-  تصعيد التهديدات والغارات الاسرائيلية.. تراجع وتيرة عمليات "حزب الله"
+-  Bengal BJP president urges Mamata to declare holiday on Jan 22
+-  Xếp hạng bảng C Asian Cup 2023: Iran nhất, Hong Kong cuối bảng
+-  일본, 이라크에 충격패…16강 한일전 가능성
+-  Occidental Petroleum-Aktie: Warren Buffett hat Beteiligung weiter ausgebaut
+-  Thể dục nơi công cộng, tôi sợ chó cắn
+-  Fire in School Dorm in China Kills 13
