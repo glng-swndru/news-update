@@ -1,11 +1,11 @@
 # Latest News
--  Affaire de chantage à la sextape : le maire de Saint-Étienne Gaël Perdriau de nouveau mis en examen
--  Ingresos brutos: otro cambio que propone la Ley Ómnibus que golpe de lleno en la recaudación de las provincias
--  GAJIĆ POSLAO JASNU PORUKU &quot;Ovi što putuju u Brisel da ogovoraju Srbiju sa Violom, Grošeljom i Šiderom su petokolonaši na obuci&quot;
--  CDA en VVD willen in Sassenheim vlot doorpakken met veiliger centrum
--  Săptămâna și greva în România: A venit rândul angajaților primăriilor din mediul rural să ceară salarii mai mari
--  "Bio je 33 godine stariji, htjela sam ga iskoristiti pa se zaljubila"
--  Çankırı'da Seçil Erzan vakası: 100 milyon TL'lik vurgun, 5 gözaltı!
--  Kes Bella: Bedah siasat rangka selesai, sampel patologi dianalisa
--  ГУР показало знищення російського ЗРК Тор
--  Uni Eropa Diminta Hentikan Penggunaan Bahan Bakar Fosil
+-  Le tribunal judiciaire de Cusset poursuit sa lutte contre toutes les violences
+-  Histórico! Nuno Borges bate Dimitrov e está nos «oitavos» do Open da Austrália
+-  Gunung Semeru Erupsi Dua Kali Pada Sabtu Pagi Ini, Masyarakat Diminta Waspada
+-  Egyeztetett Netanjahu és Biden, de egy alapvető dologban szakadék van köztük
+-  Le tribunal judiciaire de Cusset poursuit sa lutte contre toutes les violences
+-  고등학교 후배 때려 의식 불명 상태로 만든 20대 체포
+-  Air Montenegro pozitivno poslovao uprkos izazovima
+-  Thodex vurgununda verilen 11 bin yılın gerekçesi açıklandı
+-  Gezeravcı'yı taşıyan uzay aracı, Uluslararası Uzay İstasyonu'na Yaklaşıyor
+-  Lavori alla rete fognaria, si avvia il cantiere nella zona Marina
