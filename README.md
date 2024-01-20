@@ -1,11 +1,11 @@
 # Latest News
--  Ralf Schumacher bot Ex Cora Geld, damit sie Nachnamen ablegt
--  Netflix : ce film de science-fiction aux 540 millions de dollars de recettes quitte bientôt la plateforme
--  Zalgiris 98-75 Fenerbahçe Beko (MAÇ SONUCU - ÖZET)
--  Emmerdale spoilers: Moira reveals earth-shattering secret murder
--  Qiwi после продажи российских активов проведет buyback до 10% акций с NASDAQ и Мосбиржи
--  3 cuentos de Edgar Allan Poe para celebrar su vida y obra
--  「つぶれない会社」にしたければ、社長が毎日出社してはいけない理由 - 小宮一慶の週末経営塾
--  Криптопреступность в 2023 году: незаконная активность снижается, киберпреступники нацелены на стейблкоины
--  Sofía Caiche: Las 'chichotas' de la Caiche están de regreso
--  Taraji P. Henson has no beef with Oprah: "What you’re not gonna do is pit two Black women together"
+-  Başkan Çakın seçim startını verdi
+-  MDD a vibrant hub for Asian Cup activities
+-  Gobierno otorga al AIFA título de concesión por tiempo indefinido
+-  Türkiye reveals data on exports of electrical equipment to Iran
+-  Napoli senza freni, super offerta per Sudakov: la risposta dello Shakhtar
+-  Iran launches air defense drill amid rising regional tension
+-  The 5 best PS5 hard drives of 2024
+-  Que faire du côté de Saint-Germain-des-Prés et de l'Odéon: Nos bons plans et meilleures adresses
+-  '334억 초호화 결혼식'..브루나이 왕자 신부, 티아라 가격만 '170억'
+-  'TRT World Citizen Ödülleri' sahiplerini buldu
