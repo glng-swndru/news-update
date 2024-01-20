@@ -1,11 +1,11 @@
 # Latest News
--  Warming Shelter at First United Methodist Church to open for weekend
--  Тамбовчане выиграли пять наград на всероссийском легкоатлетическом турнире
--  "Vieni anche tu a Napoli!". Theate approva l'arrivo di Ngonge e i tifosi lo notano subito
--  "Plus de points qu’en une saison de DALS !" : Hélène Mannarino taquine Chris Marques dans Dream Team
--  Prieš „Fenerbahče“ vėl karjeros rekordus gerinęs Birutis: laimėjome prieš nuostabią komandą
--  RECEPT Hit kolač s nevidljivim jabukama
--  Koploper Willem II morst punten in Keuken Kampioen Divisie, Ralf Seuntjens maakt prachtige goal
--  Daboub, Costa hail players after entertaining draw
--  Coronation Street spoilers: Killer Gary’s unexpected response as he discovers Liam’s bullying hell
--  Our Favorite Power Bank for Steam Deck and ASUS ROG Ally Is on Sale Today
+-  Dobronić: Plaće sudaca moraju biti više! S Malenicom se nisam čuo, bio je zauzet
+-  גאנדלמן בישל, גנט ב-1:1 מול מכלן בליגה הבלגית
+-  Plane makes emergency landing on road in US
+-  أسهم التكنولوجيا تتألق وتقود إس آند بي إلى إغلاق قياسي
+-  Панди близнаци си играят сред снега в белгийски зоопарк (Видео)
+-  Stanija uhvaćena na remontu! Sprema se za ulazak u "Elitu"?!
+-  Karjeros skaičių nesureikšminęs Birutis apibūdino Trinchieri darbo metodus
+-  Plane makes emergency landing on road in US
+-  Tüm Kuzey Anadolu'da yayılış gösteren bir tür! Bursa'da, sulama göletinde bulundu!
+-  Novos ataques israelenses deixam mais de 70 mortos em Gaza
