@@ -1,11 +1,11 @@
 # Latest News
--  La Real Sociedad visita al Celta en Liga antes de medirse en Copa
--  Zammer Spital setzt auf Opferschutzgruppe
--  Alpentheater vor Premiere: Der «Geissbock» gibt den Ton an
--  Τα κόμματα οδεύουν προς τις εκλογές με φρέσκο κρατικό χρήμα στα ταμεία
--  Bruksela chce dać Polsce pieniądze. Szuka sposobu, by obejść ewentualne weto
--  Στρατόπεδα υπήρχαν και μετά το 1945: Η ιστορία της Colonia Dignidad - Μια ακόμα ντροπή της ανθρωπότητας
--  Protest am Ballhausplatz in Wien war nur ein Protestchen
--  필리핀 산사태 사망자 10명으로 늘어…실종자 한 명 수색 중
--  Skupina koju sponzorira ruska država hakirala Microsoft: 'Ukrali su nam dokumente'
--  Lo primero es lo primero
+-  Plus belle la vie, encore plus belle : tout ce que vous n'avez pas vu à la télé dévoilé dans un documentaire inédit
+-  Cựu Tổng thống Mỹ thừa nhận thân thiết với nhà lãnh đạo Nga
+-  Esta es la pensión de la Seguridad Social que ya pueden pedir los amos y las amas de casa
+-  Ansichtssache: Radevormwald darf nicht zu „Rechtsvormwald“ werden
+-  A harcnak sosem lesz vége
+-  A reportagem de uma visita anunciada
+-  Beautiful European city with year-round sunshine you can visit from £25
+-  Rela datang ke GBK Demi Meriahkan Harlah Muslimat NU ke-78
+-  Dok se mi smrzavamo, Australci upozoreni na dolazak ekstremnog toplinskog vala
+-  Srbija ide u budućnost! Predsednik Vučić završio učešće na forumu u Davosu, večeras predstavlja važan plan!
