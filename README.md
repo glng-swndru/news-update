@@ -1,11 +1,11 @@
 # Latest News
--  غارة على دمشق قتلت مسؤولا بالحرس الثوري الإيراني / فيديو
--  解体も体験！「生まぐろフェス」4年ぶり開催 和歌山・那智勝浦町
--  Dobronić: Čak je i Tuđman bolje shvaćao sudstvo od Plenkovića
--  Stellenabbau des Chemiekonzerns: Welche Abfindungen wird es bei Bayer geben?
--  Врач «Спартака» об Амарале: «Он оставил отличное впечатление»
--  "J'avais confiance en lui" : un homme condamné pour agression sexuelle à Vichy
--  Bu araç halkın malıdır, peki taşımalı seçmen sisteminin satılmışları kimin ‘MAL’ıdır
--  ‘Beter een zwakke zondaar dan een heilige in vroomheid verhard’
--  Ovo su mogući razlozi zbog kojih vam prehlada traje dugo
--  Egymás után két kismama is meghalt a nyíregyházi szülészeten: megszólalt a kórház
+-  Áustria: Sissi ainda mora em Bad Isclh
+-  Việt Nam là nền kinh tế mạnh trong khu vực
+-  В Дамаске погиб представитель КСИР
+-  Умяров о своем состоянии: «Все супер! Никаких болячек нет»
+-  Сирия съобщи за израелски удар по жилищен блок в Дамаск, убити са иранци
+-  Tekirdağ'da bir öğretmen taciz iddiasıyla tutuklandı
+-  Coupe de France: tout ce qu'il faut savoir avant le match entre Rodez-Monaco de ce samedi après-midi
+-  Bade Miyan Chote Miyan: Tiger Shroff, Manushi Chhillar and others pose for the paparazzi in style [Watch Video]
+-  8 Besar Elektabilitas Parpol versi Survei Terbaru Poltracking
+-  à¶±à·“à¶­à·’à¶¥à·€à¶»à·’à¶º à¶´à·œà¶½à·’à·ƒà·’à¶ºà¶§ à¶´à¶œà·�à·€ à¶¯à·™à¶±à·Šà¶± à·„à¶¯à¶½à·�
