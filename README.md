@@ -1,11 +1,11 @@
 # Latest News
--  El Gobierno asegura que respeta al Poder Judicial
--  Jelínková postoupila v Jasné do druhého kola, Vlhová se zranila
--  Sin zvijezde hit serije ‘Zalagaonica‘ pronađen mrtav, imao je 39 godina
--  فأل خير.. أسود اليد يتأهلون رسميا لدور الثمانية
--  Cumhurbaşkanı Erdoğan: "Asimilasyona karşı en büyük silahımız, çocuklarımıza ana dillerini, kültürlerini ve medeniyet değerlerini öğretmektir"
--  Protestul fermierilor şi transportatorilor din Bucureşti, aprobat pentru ziua de duminică, în intervalul 09.30 – 22.00
--  İmamoğlu'ndan "kentsel dönüşüm" mesajı
--  Sivasspor 4 takviye yapmayı planlıyor
--  Reçeliyle, çayıyla mucize meyve! Her akşam yediğinizde sonuçlarına inanamayacaksınız. Ayvanın bu faydasını biliyor muydunuz?
--  Вече 50 жертви в САЩ на снежните бури, а чакат още студ
+-  Jandarma ekipleri fabrika işçilerine KADES uygulamasını anlattı
+-  Πέθανε ο τραγουδιστής Χάρης Κωστόπουλος - Η ανακοίνωση της οικογένειάς του
+-  Alcaraz tham vọng phá vỡ mọi kỷ lục của Djokovic
+-  Israel, Jordan Clash Over Alleged Attack on Gaza Field Hospital
+-  Detenida una joven en Platja de Palma por drogar a una amiga para robarle 1.500 euros
+-  Thyroid Imbalance May Affect Fertility In Women: Experts
+-  Yonca Sitesi'ndeki enkazda 52 kişi ölmüştü... Apartmanın projesi eksik, malzeme ve yapı denetimi yetersiz çıktı
+-  BORIO SE ZA SRBIJU U ŠEST RATOVA, ZAVRŠIO KAO NAJGORI NEPRIJATELJ: Životna priča herojskog srpskog vojvode Petra Bojovića
+-  Gübre fiyatları çiftçiyi terletecek! Güncel gübre fiyatları Ocak 2024
+-  مدرب قيرغيزستان: نحتاج للحظ لتحقيق المعجزة أمام الأخضر
