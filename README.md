@@ -1,11 +1,11 @@
 # Latest News
--  'Everyone knows me as the guy who was attacked': Victim in Kyle Hayes case speaks out
--  Soccer-Tanzania coach suspended at Cup of Nations for insulting opponents
--  Ronaldo hala dünyanın en iyileri arasında olduğunu söyledi
--  Streit um Bundesetat: Was im Haushalt zu kurz kommt
--  Lokführergewerkschaft GDL und Abellio-Bahn einigen sich im Tarifstreit
--  Emma Wortelboer over haar zwangerschap: ‘Ik wilde altijd al een moeder zijn met een jong lijf’
--  El recopilatorio definitivo con los saltos más locos de Ryan Bean
--  Savoie. Loup : une sénatrice interpelle le ministre de l’Agriculture et demande « une généralisation des tirs de défense »
--  Mercado (oficial): Carlos Daniel emprestado ao Trofense
--  Přípravy na ligu ONLINE: Slavia - AIK 2:0, trefili se Oscar a Ševčík
+-  Beşiktaş'ın kamp kadrosu belli oldu
+-  Les braqueurs présumés de deux tabacs dans l'Allier arrêtés
+-  Gustavo Cisneros, Venezuelan Media Mogul Who Built a Multinational Empire, Dies at 78
+-  Всі овочі, за допомогою яких можна "розморозити" автомобіль - від картоплі до цибулі
+-  Les braqueurs présumés de deux tabacs dans l'Allier arrêtés
+-  V Hamburgu desettisoči protestirali proti skrajni desnici
+-  KW 3: Wie sich die ATX-Aktien in der vergangenen Woche bewegten
+-  Snoop Dogg’s daughter Cori Broadus says she suffered 'severe stroke' at 24
+-  İklim değişikliği 2050'ye kadar Alpler'deki buzulların yüzde 46'sını eritebilir
+-  Geolier: "Scrivo solo grazie a Napoli. Se mi allontanassi, non esisterei"
