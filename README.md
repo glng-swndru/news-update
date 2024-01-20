@@ -1,11 +1,11 @@
 # Latest News
--  THE MOJ: Canucks have to screen out noise as they continue to earn the day
--  Voll verschoben! Das knifflige Schieberätsel #171 auf TT.com
--  Governo: domani Meloni a Istanbul da Erdogan
--  Врач рассказала, сколько нужно спать, чтобы быть продуктивным
--  Pedro Moreira (Casa Pia): «Se não vencermos, já não melhoraremos o desempenho»
--  Murat Kurum'dan Ülkü Ocakları'na ziyaret. ‘İstanbul'da yaşanan fetret devrini bitireceğiz’
--  [🛑DIRECT] Fanzone -PLACE DE LA NATION: Vivez en live le match Sénégal vs Cameroun
--  Fracassos na TV, 'Elas por Elas' e 'Fuzuê' também vão mal no Globoplay
--  Inundações no Alentejo afetam zona da atriz
--  Scaloni: «Soulé? Merita la convocazione, sta facendo benissimo»
+-  'Everyone knows me as the guy who was attacked': Victim in Kyle Hayes case speaks out
+-  Soccer-Tanzania coach suspended at Cup of Nations for insulting opponents
+-  Ronaldo hala dünyanın en iyileri arasında olduğunu söyledi
+-  Streit um Bundesetat: Was im Haushalt zu kurz kommt
+-  Lokführergewerkschaft GDL und Abellio-Bahn einigen sich im Tarifstreit
+-  Emma Wortelboer over haar zwangerschap: ‘Ik wilde altijd al een moeder zijn met een jong lijf’
+-  El recopilatorio definitivo con los saltos más locos de Ryan Bean
+-  Savoie. Loup : une sénatrice interpelle le ministre de l’Agriculture et demande « une généralisation des tirs de défense »
+-  Mercado (oficial): Carlos Daniel emprestado ao Trofense
+-  Přípravy na ligu ONLINE: Slavia - AIK 2:0, trefili se Oscar a Ševčík
