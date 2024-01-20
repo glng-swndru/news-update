@@ -1,11 +1,11 @@
 # Latest News
--  Zwei Tote in Regensburg: Blutspuren führen Mordermittler direkt zur A3
--  Počinjem sa tekilom! Sledeći Novakov rival raspametio svet posle pet setova sa Šeltonom! (VIDEO)
--  Οκτώ αθώοι και ένας ένοχος στην υπόθεση της Συνεταιριστικής Τράπεζας Λέσβου - Λήμνου
--  MRAČNA NAJAVA DžEFRIJA SAKSA: Antagonizam SAD prema Kini eskaliraće na Tajvanu
--  OUG pregătită de Guvern: Fermierii vor putea să-și amâne ratele la credite cel mult până la finele acestui an
--  Prizde takılı gece lambası yangına neden oldu
--  Queen Mary stuns in first official portrait with King
--  Páll Helgi ÍS 142
--  Familiares de traficante equatoriano ‘Fito’ são presos e deportados da Argentina
--  Три человека пострадали из-за поломки подъёмника на курорте «Степаново»
+-  THE MOJ: Canucks have to screen out noise as they continue to earn the day
+-  Voll verschoben! Das knifflige Schieberätsel #171 auf TT.com
+-  Governo: domani Meloni a Istanbul da Erdogan
+-  Врач рассказала, сколько нужно спать, чтобы быть продуктивным
+-  Pedro Moreira (Casa Pia): «Se não vencermos, já não melhoraremos o desempenho»
+-  Murat Kurum'dan Ülkü Ocakları'na ziyaret. ‘İstanbul'da yaşanan fetret devrini bitireceğiz’
+-  [🛑DIRECT] Fanzone -PLACE DE LA NATION: Vivez en live le match Sénégal vs Cameroun
+-  Fracassos na TV, 'Elas por Elas' e 'Fuzuê' também vão mal no Globoplay
+-  Inundações no Alentejo afetam zona da atriz
+-  Scaloni: «Soulé? Merita la convocazione, sta facendo benissimo»
