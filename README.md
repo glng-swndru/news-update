@@ -1,11 +1,11 @@
 # Latest News
--  Európska únia uvalila sankcie na podporovateľov Hamasu
--  Situacija se drastično mijenja: Znate li koliko se povećava put kočenja na snijegu i ledu?
--  Rodelunfall: Acht Zentimeter dicker Ast bohrt sich in Kind
--  Rodelunfall: Acht Zentimeter dicker Ast bohrt sich in Kind
--  Dogecoin: How Much DOGE Does Elon Musk Have?
--  Abel Martínez sobre ley DNI: Es una amenaza a libertad de expresión
--  Segunda: Rampla Juniors y Juventud de Las Piedras definirán el tercer ascenso a primera
--  Equilibrada, afianzada y como "una potencia mundial": así se muestra Rusia al planeta
--  Tragic details after starved 2yo found dead
--  Artists with vision now being sought for Chilliwack Mural Festival
+-  Korku dolu anlar: Uçak, pistten çıktı
+-  Minea pokazala kako uživa u snježnim radostima: 'Zadnji put sam ovo napravila u djetinjstvu'
+-  Alavés vence Cádiz (1-0) e se afasta da zona de rebaixamento
+-  “추워도 스타일 빠질 순 없지”…방한용 패션 액세서리 ‘인기’
+-  SPD officer won't face charges for downtown Spokane shooting
+-  Puebloviejo: La amenaza que le hicieron al dueño de una piladora
+-  Đulijanijevi advokati tražili ukidanje kazne od 150 miliona dolara: "On nema ćup sa zlatom na kraju duge"
+-  V sobotu bude jasno, zafúka slabý vietor
+-  Jorge Couto: «Não permitimos grandes situações de perigo ao Benfica»
+-  Derksen: ‘Ik heb me heel erg geërgerd aan hem, hij moet zich kapot schamen’
