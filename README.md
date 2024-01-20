@@ -1,11 +1,11 @@
 # Latest News
--  Християнска ценност ли е толерантността? - Труд
--  Näin asiantuntijat ennakoivat tuloskauden kurssiliikkeitä – ”Voivat olla kallellaan positiiviseen päin”
--  Vanhat kuvat | Millä nimellä sinä tunnet tämän koulun? Luokissa on opetettu niin tekniikkaa kuin perusopetustakin
--  I tried Samsung’s Galaxy S24 before anyone else – it’s a must if you hate reading essay texts & has 2 other top features
--  DIRECTO | Última hora de la guerra entre Israel y Hamás
--  Bầu Đức: Chúng ta phải tỉnh mộng đi, đừng để HLV Troussier ru ngủ nữa!
--  “20 Yanvar Azərbaycan xalqının qan yaddaşından silinməyəcək”
--  Cómo limpiar tus sillas de tela para dejarlas como nuevas
--  FT: Украина ждет масштабного наступления РФ летом 2024 года
--  "1670". Jaki naprawdę to był rok?
+-  Mutter (37) und zwei Kinder (5/7) in Herten erstickt: Lebenslange Haft für Dreifachmord beantragt
+-  Squash to make Khelo India Youth Games debut
+-  Manchester United 'interested in Swedish wonderkid Lucas Bergvall'
+-  Esta es la hora a la que deberías dejar de tomar café
+-  Chennai to get its 3rd urban plaza at Island grounds, details inside
+-  Si tienes siempre frío, ten cuidado: Podrías estar enfermo
+-  "Отвечать на неудобные вопросы не хотелось". Эксперт о причинах визита Сунака в Киев
+-  Rats nibble body in Mumbai Hospital morgue, family cries foul
+-  Yola çıkacaklar dikkat! BUDO'nun 6 seferi iptal edildi
+-  Directeur Pieterskerk Leiden kondigt vertrek aan. Monument ’heeft andere energie nodig’
