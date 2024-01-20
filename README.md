@@ -1,11 +1,11 @@
 # Latest News
--  NESREĆA KOD JASTREBARSKOG Vozač koji je prevozio migrante udario u stablo i preminuo
--  Actividades para el fin de semana: qué hacer en San Miguel de Tucumán
--  Prefeitura divulga projeto do Parque Oeste em Lucas do Rio Verde
--  Save $100 and get the DJI Osmo Action 4 camera for its cheapest price ever at Amazon
--  fanatik.ro: Cine sunt șefii caselor de sănătate. Averi și legături politice. În ce județ instituția este condusă de președintele unei asociații a crescătorilor de animale
--  Qué leche recomienda consumir una nutricionista a quienes intentan bajar de peso
--  Na največji vaji po hladni vojni tudi 200 slovenskih vojakov, medtem znano, kdaj bi Putin lahko udaril po Natu
--  Podwyżki dla nauczycieli. Oto ile zarobią [STAWKI]
--  Cos’è il Rock’n Roar Abarth
--  Ödemeler hesaplara aktarıldı
+-  Veja artes conceituais do primeiro projeto do Studio Flare de Toshimichi Mori
+-  De är drabbade av den smittsamma hästsjukdomen
+-  Intenção de consumo das famílias cai 0,5% em janeiro ante dezembro, 2ª queda seguida, diz CNC
+-  Tommy Kuhse trumpft bei Rasta Vechta auf
+-  13enne scappa da casa dopo una discussione, i carabinieri bloccano il treno per trovarla
+-  IBES 2024: Dschungelcamp-Kandidat Mike Heiter: Er will Anführer und Verführer sein
+-  Eurovision Song Contest 2024: Kann der ESC wirklich unpolitisch sein?
+-  Dschungelcamp 2024: Tag 1 im Live-Blog: Der Dschungel ruft – und endlich ziehen die Promis ein!
+-  Ισραήλ: Πρώτη επικοινωνία Μπάιντεν – Νετανιάχου από τις 23 Δεκεμβρίου – Τι συζήτησαν
+-  Ermittlungen nach Diebstählen aus Chemieräumen
