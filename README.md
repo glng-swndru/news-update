@@ -1,11 +1,11 @@
 # Latest News
--  Beşiktaş'ın kamp kadrosu belli oldu
--  Les braqueurs présumés de deux tabacs dans l'Allier arrêtés
--  Gustavo Cisneros, Venezuelan Media Mogul Who Built a Multinational Empire, Dies at 78
--  Всі овочі, за допомогою яких можна "розморозити" автомобіль - від картоплі до цибулі
--  Les braqueurs présumés de deux tabacs dans l'Allier arrêtés
--  V Hamburgu desettisoči protestirali proti skrajni desnici
--  KW 3: Wie sich die ATX-Aktien in der vergangenen Woche bewegten
--  Snoop Dogg’s daughter Cori Broadus says she suffered 'severe stroke' at 24
--  İklim değişikliği 2050'ye kadar Alpler'deki buzulların yüzde 46'sını eritebilir
--  Geolier: "Scrivo solo grazie a Napoli. Se mi allontanassi, non esisterei"
+-  Главы МИД Азербайджана и Индии обсудили региональную ситуацию
+-  Ministarstvo finansija: Plaćena rata za auto-put, država uštedjela...
+-  Wordle 945 Answer Today: Hints & Clues To Guess Final Answer on 20 January 2024
+-  Dularfull sár á höndum Trump vekja athygli
+-  Russian Federation extends support with $ 1.5 m sunflower oil donation to Sri Lanka
+-  Batı Karadeniz, Marmara ve Kuzey Ege için fırtına uyarısı
+-  Cinq projets mobiliseront plus d'un million d'euros à Sens, en 2024
+-  Maharashtra: Four injured after fire breaks out at godown in Pimpri Chinchwad town
+-  في مهرجان الزهور.. أفكار مبتكرة صديقة للبيئة بين 500 ألف زهرة
+-  NYC stabbing spree suspect expected to be arraigned Friday
