@@ -1,11 +1,11 @@
 # Latest News
--  Seltene Auszeichnung: Im Kanu ein Mal um die ganze Welt
--  تاريخ المواجهات بين المنتخب المغربي والكونغو الديمقراطية
--  Schianto in auto, Daniela muore a 35 anni: aveva perso la sorella in un incidente sul lavoro
--  Официално: Манчестър Юнайтед назначи шеф на Сити за изпълнителен директор
--  Тръмп отново бърка имена на политици
--  Sivasspor Gaziantep FK'yı ağırlıyor
--  На Украине заявили, что взрывы на терминале в Усть-Луге организовала СБУ
--  EVO KOLIKA ĆE VAM BITI PENZIJA SA 40 GODINA RADNOG STAŽA Od ovih faktora zavisi visina primanja
--  FIFA-baas Infantino en vedette Mbappé steunen Maignan na racisme
--  Georgina Rodríguez reage a conquista de CR7. "Acompanhar o melhor"
+-  Labor to pledge more help on energy costs
+-  「返答せずにはおかない」イラン大統領が警告 ガザ死者2万5千人超
+-  Kulturskolans udda bekymmer: ”Frågan är inte så enkel”
+-  Irán megfenyegette Izraelt, kijelentették, hogy bosszút állnak
+-  ITV Vera Series 13 - how many episodes are there and full guide to each one
+-  اسماعيل هنية يجري محادثات في تركيا
+-  정영숙, 이승철에 “이휘향 대신 나와 일해” 제안(효심이네)
+-  Onde lanchar, jantar e beber um copo em Lisboa, sem ter de pensar muito?
+-  Riom, Sérent, Marignane et La Plagne
+-  Regionens sparförslag drabbar kvinnor
