@@ -1,11 +1,11 @@
 # Latest News
--  Australian Open, il prossimo avversario di Sinner: il tabellone completo degli ottavi
--  UxP pidió que se fundamente la decisión de retirar al país de los Brics
--  Apple habilita la compra anticipada en EU de sus Vision Pro
--  (video) Imaginea zilei: Un cal înhămat la o căruță, fără stăpân, surprins galopând pe o șosea
--  Artur Soboń zirytował przesłuchujących go członków komisji. Wymowna reakcja posłanki KO
--  Al Hadath: военную базу США на севере Ирака атаковали 20 ракетами
--  Κορωνοϊός: Το 55% όσων νόσησαν ελαφρά υποφέρουν από long covid - Ξεπερνούν τα 200 τα συμπτώματα
--  Pobuna u Zagori, mještani žele spasiti školu i vrtić, HDZ-ovci im brutalno uzvratili: To je kao da tražite samoubojstvo
--  Το Ιράν απειλεί με αντίποινα το Ισραήλ για τον βομβαρδισμό στη Συρία
--  Maastohiihto | Kerttu Niskanen oksensi itsensä tyhjäksi torstaina – nyt huippu­veto: ”Taisi olla hilkulla”
+-  Politik in Neukirchen-Vluyn: Grüne und andere Bündnisgruppen rufen zu „Demo gegen Rechts“ auf
+-  The Vision Pro’s first killer app is the web, whether Apple likes it or not
+-  VIDEO Prijatelji i stranci pomažu obnoviti kuću kod Križevaca: 'Bez njih ne bi uspjeli, hvala im'
+-  Câmara quer votar no 1° semestre projeto dos 'combustíveis do futuro'
+-  Back Roads Bill: What's in a location?
+-  Ekspedicija Tuzla Citya otputovala na pripreme u Tursku
+-  מחצית ראשונה: בני ריינה - הפועל חיפה 0:0
+-  Tutkusu hayran bıraktı! Kafkasların kraliçesi yollarda: Bu mesleği nasıl erkeklere kaptırmışız?
+-  Raigmore volunteers' donation enables portable testing pilot for urology patients
+-  FF7 Rebirth, TLOU 2, And More Of The Week's Essential Game Tips
