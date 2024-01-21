@@ -1,11 +1,11 @@
 # Latest News
--  La chronique du temps présent d'Astrid Eliard : "Pas de chance pour l’égalité des chances"
--  Lazio, fondamentale il ritorno di Castellanos: le sue condizioni
--  宇野昌磨「マリニン君の影響は大きい」 表現重視からジャンプの比重増やす戦略へ
--  Kardashianki grasują w Aspen: zakupowe szaleństwo i kolacja w drogiej knajpie. W tle AFERA O FUTRO Khloe... (ZDJĘCIA)
--  «Eiropas atbilde Markam Rotko» – britu abstraktā ekspresionista Džona Hoilenda dzīve un māksla
--  La statue rénovée d'un Saint-Roch fait sa rentrée au musée Douët à Saint-Flour
--  Rocznica zamordowania Brunona Nikoleiziga ps. "Adam" w Pleszewie
--  Krauthobel und die Reise ins Glück
--  Exclues de la table, soumises à des siècles d'injonctions contradictoires... Qu'est-ce qui a déréglé l'appétit des femmes ?
--  Švjontek: Podloga je brža
+-  Miran:"Yasal düzenlemeler için ara tatil dönemi değerlendirilmeli"
+-  Stuttgart-Feuerbach: Unfall wegen Glatteis - Renault Twingo überschlägt sich
+-  [스경x이슈] ‘계약 전 신체검사 요구’는 왜 유령 규정이 됐나···LG 함덕주 사태가 벌어진 이유
+-  Gesangverein Freiahorn: Viel Lob für den Beitrag zum Erhalt des deutschen Liedgutes
+-  Een van haar laatste diensten bij Yorneo in Emmen wordt hulpverleenster Marit (26) fataal: doodgestoken om beetje geld uit de groepskas
+-  Bursa Ulu Cami'deki Kabe örtüsünün altın püskülleri kayıp
+-  Dzień Babci i Dzień Dziadka. Kiedy pojawiło się to święto?
+-  Herzogin Sophie: Geburtstags-Glückwünsche vom Palast
+-  Stuttgart-Feuerbach: Unfall wegen Glatteis - Renault Twingo überschlägt sich
+-  Цяла нощ чистиха улиците в Благоевград, 5 села останаха без ток
