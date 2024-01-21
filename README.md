@@ -1,11 +1,11 @@
 # Latest News
--  Duży placek ziemniaczany Ewy Wachowicz. Przepis rodem ze Szwajcarii
--  島根の文化と味覚を堪能 しまねふるさとフェアに15万6000人が来場
--  A NASA helyreállította a kapcsolatot a Marson lévő helikopterével
--  Опубликован список погибших в авиакатастрофе в Афганистане
--  Tiedätkö, mitä tarkoittavat gg, afk tai mvp? 11 oikein tästä testistä on kova tulos!
--  Woedende AC Milan-doelman Mike Maignan eist zware straffen na racisme
--  Old mortar shell found at Pengkalan Chepa old folks' home
--  Gazze'de öldürülenlerin sayısı 25 bin 105'e yükseldi
--  У Донецьку заявили про обстріл ринку і загиблих
--  Antalya'da neler oluyor? Sahilde 4 günde 5 ceset
+-  Mercato : Cristiano Ronaldo vend la mèche pour son futur transfert
+-  與 ‘삼성전자맨’ 野 ‘현대차맨’… 총선 앞서 재계 인사 영입 경쟁
+-  アジア杯グループD第2節 日本 1-2 イラク:GK&DF編(25枚)
+-  アジア杯グループD第2節 日本 1-2 イラク:MF&FW編(30枚)
+-  アジア杯グループD第2節 日本 1-2 イラク:三笘薫(5枚)
+-  Hadirkan Kisah Musikal Coco Chanel, Shopee Luncurkan High-End Brands
+-  ’Ik hielp bij terughalen ontvoerde Sara en Ammar’
+-  וואווי הציגה את HarmonyOS Next ונפרדת לשלום מאנדרואיד
+-  Hamas Diduga Luncurkan Rudal Balistik ke Pangkalan Militer Amerika Serikat di Irak
+-  都道府県対抗男子駅伝 3区難波選手が圧巻15人抜き 福井は29位と健闘
