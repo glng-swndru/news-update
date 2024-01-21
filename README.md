@@ -1,11 +1,11 @@
 # Latest News
--  ŠOK OBRT UBISTVA KOJE JE POTRESLO GRČKU: Sumnjalo se da ga je ljubavnica izbola na smrt, ovo je prava istina
--  Tko će pobijediti u 'The Voiceu?'
--  Napad na ameriške vojake v Iraku izvedli proiranski borci
--  السيد: لماذا الهجوم على أميركا؟!
--  Důležitý přídavek aplikace Gmail. V Androidu si snadno odhlásíte odběr nevyžádaných e-mailů
--  Vergili: “Kim çıkarsa çıksın hep birlikte çalışacağız”
--  Lịch thi đấu Nguyễn Thùy Linh giải Indonesia Masters 2024 [23/1-28/1]
--  Türk Halk Müziği tutkusuyla kurduğu koroyla kulakların pasını siliyor
--  45 فرصة وظيفية لخريجات تقنية البنات بالأحساء
--  Cape Town fires | Authorities probe possible sabotage, arson
+-  Duży placek ziemniaczany Ewy Wachowicz. Przepis rodem ze Szwajcarii
+-  島根の文化と味覚を堪能 しまねふるさとフェアに15万6000人が来場
+-  A NASA helyreállította a kapcsolatot a Marson lévő helikopterével
+-  Опубликован список погибших в авиакатастрофе в Афганистане
+-  Tiedätkö, mitä tarkoittavat gg, afk tai mvp? 11 oikein tästä testistä on kova tulos!
+-  Woedende AC Milan-doelman Mike Maignan eist zware straffen na racisme
+-  Old mortar shell found at Pengkalan Chepa old folks' home
+-  Gazze'de öldürülenlerin sayısı 25 bin 105'e yükseldi
+-  У Донецьку заявили про обстріл ринку і загиблих
+-  Antalya'da neler oluyor? Sahilde 4 günde 5 ceset
