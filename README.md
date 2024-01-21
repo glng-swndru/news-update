@@ -1,11 +1,11 @@
 # Latest News
--  İtalya Dışişleri Bakanı Tajani: 7 Ekim'den bu yana İsrail'e silah göndermedik
--  Çok Kısa Sürede Hayatınızı Daha Huzurlu ve Sakin Hale Getirecek 17 Basit Değişiklik
--  "Mammai piedot nespēšu nekad,"- dziedātājs Kaspars Markševics par skaudro dzīves ceļa gājumu
--  Тимофеева проиграла украинке Костюк в четвертом круге Australian Open
--  สรุป 5 ข้อท้วงติง‘ดิจิทัลวอลเล็ต’จาก ป.ป.ช. สะท้อน‘เศรษฐา’อ่อนประสบการณ์
--  Renowned Author, Prof Anezi Okoro, Dies At 94
--  הלוטו בהפתעת ענק: פספס מספר וזכה ב-3 מיליון שקל
--  В Польше указали на обеспокоенность Киева популярностью сериала «Слово пацана»
--  Shai Gilgeous-Alexander scores 33 points, Thunder beat Timberwolves 102-97 in West showdown
--  Соболенко обыграла Анисимову и вышла в четвертьфинала Australian Open
+-  Pakistan snatch 42-run win over New Zealand in fifth T20
+-  India’s spinners are better than England’s, will be defining in the end: Former England captain Michael Atherton
+-  AFC Asian Cup: Iraq upset Japan, Indonesia revive hope
+-  Tin nóng bóng đá Việt 21/1: Tuấn Hải bảo vệ HLV Troussier, hai 'trò cưng' của HLV Kiatisuk tại CAHN
+-  Změna dodavatele ušetří za energie i desítky tisíc
+-  Warga Indonesia: Elak dianggap rakyat kelas kedua
+-  Mẹ Tiến sĩ nghỉ việc, cho con chơi 1 trò từ khi còn bé tí: Sau vài năm con thông minh vượt trội, hàng xóm tấp nập xin bí quyết
+-  New Mexico Republicans turn to politics' version of guerilla warfare in 30-day session
+-  GOP lawmaker calls for tougher punishments after saying 'thugs' burgled his car
+-  What makes a good legislator? A great set of ears and a thick skin
