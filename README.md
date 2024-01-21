@@ -1,11 +1,11 @@
 # Latest News
--  Sparta: Tuci se zapsal, dva útočníci ven. Co naštvalo Haraslínovu ženu?
--  Vakuutukset | Talven kuntoilijat loukkaavat yleensä olka­päänsä tai polvensa – Nämä lajit ovat vaarallisimpia kunto­liikkujille
--  Đủ kiểu thu hút khách mua hàng điện máy
--  Ley ómnibus: acuerdan cambios con objetivo de dictamen el martes
--  “Los mandaron a ‘enfriarse’, si se quedaban no sabemos qué podría pasar más adelante”
--  Rathaus Menden geschlossen: Rathausmitarbeiter wollen bei Evakuierung wegen Bombe helfen
--  Der Judenhass: Die 2.000 Jahre alte Geschichte eines mörderischern Vorurteils
--  Detuvieron a la hermana de El Ruso, el principal rival de Los Chapitos en Baja California
--  Krankenpflege-Azubis übernehmen Station im EvK: Jana (24) und Nils (21) über ihren Traumberuf
--  Verkehrsbranche offen für höheren Deutschlandticket-Preis
+-  İtalya Dışişleri Bakanı Tajani: 7 Ekim'den bu yana İsrail'e silah göndermedik
+-  Çok Kısa Sürede Hayatınızı Daha Huzurlu ve Sakin Hale Getirecek 17 Basit Değişiklik
+-  "Mammai piedot nespēšu nekad,"- dziedātājs Kaspars Markševics par skaudro dzīves ceļa gājumu
+-  Тимофеева проиграла украинке Костюк в четвертом круге Australian Open
+-  สรุป 5 ข้อท้วงติง‘ดิจิทัลวอลเล็ต’จาก ป.ป.ช. สะท้อน‘เศรษฐา’อ่อนประสบการณ์
+-  Renowned Author, Prof Anezi Okoro, Dies At 94
+-  הלוטו בהפתעת ענק: פספס מספר וזכה ב-3 מיליון שקל
+-  В Польше указали на обеспокоенность Киева популярностью сериала «Слово пацана»
+-  Shai Gilgeous-Alexander scores 33 points, Thunder beat Timberwolves 102-97 in West showdown
+-  Соболенко обыграла Анисимову и вышла в четвертьфинала Australian Open
