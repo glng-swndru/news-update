@@ -1,11 +1,11 @@
 # Latest News
--  غوغل تكشف عن ميزات ساعتها الذكية "بيكسل 2"
--  Alpine skiing-Slovakia's Vlhova airlifted to hospital after giant slalom fall
--  Trực tiếp bóng đá Arsenal vs Crystal Palace 19h30 hôm nay: Jesus, Odegaard và Havertz đá chính
--  Homem é baleado durante confraternização em Lucas do Rio Verde
--  Bursaspor kongresine yoğun katılım!
--  Frau stirbt nach Wohnungsbrand in Aachen
--  These 3 Stocks Might Be Getting a Little Too Expensive
--  ‘I’m on fire!’: County reviews 911 call after Wichita Fire Department flags concerns
--  Turkcell Kadın Futbol Süper Ligi: Fenerbahçe Petrol Ofisi: 6 - Hakkarigücü Spor: 0
--  ZAKUCAVANjE KOLA U EVROLIGI: ''Monstruozni'' Balša Koprivica preko Adetokumba (VIDEO)
+-  Şahin Demirtaş’ta vatandaşlarla buluştu
+-  В российском городе отменили концерт Лолиты в честь ее 60-летия
+-  Australian Open 2024 Ergebnisse: Zverev ohne Mühe im Achtelfinale, Swiatek überraschend raus
+-  Events tomorrow – Jan. 21: Rogamochana Sri Dhanvantari Sannidhana – Sri Uttaradi Mutt
+-  SRBIN DEMOLIRAO MAKABI, PA DOBIO PRIZNANJE: Nikola Milutinov MVP 22. kola Evrolige! Utakmicu završio sa INDEKSOM 40!
+-  Сводка минобороны 20.01
+-  ABŞ kəşfiyyat təyyarələrini bu reaktivlərlə əvəz edəcək
+-  НА ЖИВО: ЦСКА vs Корона Киелце 0:2, изгониха Юга
+-  Dàn diễn viên 'Hai Phượng': Người 2 lần leo Everest, người đột ngột qua đời
+-  Dirigentes iranianos morrem em ataque israelense na Síria
