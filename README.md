@@ -1,11 +1,11 @@
 # Latest News
--  PHOTOS: Hardest shot? Fastest skater? BCHL all-stars hit Penticton rink
--  Thu phí đậu ô tô ở lòng đường: Thu tăng, vi phạm giảm
--  Review: Run, jump and climb through Scotland in 'A Highland Song'
--  BI: Cố thủ ở Dnipro bất chấp cảnh 1 chọi 4 - Lực lượng Ukraine đối mặt "tình hình rất tệ"
--  Thủ tướng Phạm Minh Chính nhớ về "thời thanh niên sôi nổi" khi thăm Romania
--  解析新潮流／最強派系到底多強一次看懂 民進黨會倒但他們不會垮
--  韓江配穩贏嗎？ 游盈隆分析變數：立法院立刻就陷入瘋狂
--  NTK Thúy Hằng ra mắt BST áo dài Lộc xuân chào đón Tết Giáp Thìn
--  마이리얼트립, 756억 투자유치…"팬데믹 이후 2천억 조달"
--  Scott Gomez, Kyle Turris among stars in Penticton for BCHL Alumni Game
+-  Bliksem treft gezin op Braziliaans strand: één dode en drie zwaargewonden
+-  OpenAI suspends bot developer for Congressman Dean Phillips: Report
+-  運輸署呼籲提防偽冒「易通行」欺詐短訊
+-  Otra vez hay descarga de agua en Olas Altas; es de mar acumulada, asegura Jumapam
+-  United Airlines flight to Newark canceled after pilot arrested for taser found in luggage at Edinburgh airport
+-  कभी खिली धूप तो कभी कोहरे से ढंका शहर, दिल्ली में मौसम भी खेल रहा गजब खेल
+-  Ana Fuentes invita a disfrutar en familia de los Carnavales de Maturín 2024
+-  Renowned Author Of ‘The Village Headmaster’, Prof Anezi Okoro, Is Dead
+-  Pop Isaacs scores 32 points, No. 25 Texas Tech rallies to beat No. 20 BYU 85-78
+-  La crisis del mar Rojo afecta ya a la empresa española: varios sectores alertan de retrasos e incrementos de costes
