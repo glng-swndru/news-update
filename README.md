@@ -1,11 +1,11 @@
 # Latest News
--  Inverness mansion restoration plan
--  Gladiator Legend's life off screen from top athlete and PE teacher to YouTube sensation
--  Galaxy A15 a chegar à Europa e já é conhecido o preço e as variantes
--  Éducation. Uniforme à l’école : pull bleu et pantalon gris, voilà la tenue type prévue pour les élèves
--  January 20, 2024 coronavirus update for Oakville
--  LIVE Eredivisie: Heracles ontvangt Volendam
--  A co vy, posypali jste si už hlavu popelem kvůli naší společné koloniální minulosti?
--  Könyvbemutató a hazafiság kérdéseiről
--  En gare de Quimper, une passerelle et bientôt un roman
--  Ilmari Koppinen, 106, pääsi lähelle vuoden takaista kuulantyöntötulostaan – ”Miten tämä on edes mahdollista?”
+-  FOTO Koln u 'kockicama': Naši navijači su preplavili dvoranu, Hrvatska ima ogromnu podršku
+-  Edirne'de polis servis aracı ile otobüs çarpıştı: 10'u polis 11 yaralı
+-  Týden Živě: V mobilech je Samsung dvojka, ale boj s Applem rozjel na jedničku. Plus Martinův report ze San José
+-  Rimforsa föll tungt efter upphämtning
+-  Hype um Caspar David Friedrich: Doch der Großmeister der Landschaftsmalerei hatte auch Schwächen
+-  Вальо Антов спечели българското дерби в Италия срещу Петко Христов
+-  Liveblog: FC Volendam nog altijd op voorsprong (0-1), Martens begint aan vuurdoop (0-0)
+-  Επέλαση του χιονιά στη Βόρεια Ελλάδα: Η διαφορετική «εποχή» στο νότο και η πρόγνωση Μαρουσάκη για την εξέλιξη
+-  PREMIJERKA O VEŠTAČKOJ INTELIGENCIJI I BIOTEHNOLOGIJI Ono što ćemo uraditi do 2027. godine će biti kvantni skok u odnosu na sve do sada
+-  Dschungelcamp 2024: Cora Schumacher stichelt gegen Ex-Mann Ralf: „Hat mir eine nette Summe geboten“
