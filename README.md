@@ -1,11 +1,11 @@
 # Latest News
--  Politik in Neukirchen-Vluyn: Grüne und andere Bündnisgruppen rufen zu „Demo gegen Rechts“ auf
--  The Vision Pro’s first killer app is the web, whether Apple likes it or not
--  VIDEO Prijatelji i stranci pomažu obnoviti kuću kod Križevaca: 'Bez njih ne bi uspjeli, hvala im'
--  Câmara quer votar no 1° semestre projeto dos 'combustíveis do futuro'
--  Back Roads Bill: What's in a location?
--  Ekspedicija Tuzla Citya otputovala na pripreme u Tursku
--  מחצית ראשונה: בני ריינה - הפועל חיפה 0:0
--  Tutkusu hayran bıraktı! Kafkasların kraliçesi yollarda: Bu mesleği nasıl erkeklere kaptırmışız?
--  Raigmore volunteers' donation enables portable testing pilot for urology patients
--  FF7 Rebirth, TLOU 2, And More Of The Week's Essential Game Tips
+-  Marode Verbindung zwischen Schwerte, Holzwickede und Fröndenberg : Wann wird die L673 saniert?
+-  सेप्टिक टैंक में मिला महिला का अर्द्धनग्न शव, रेप की आशंका
+-  Кремонезе излезе трети в Серия "Б", Антов игра при победа над Специя с Христов - Труд
+-  My Secret Auckland: Te Ohorere Williams on her favourite spots in the city
+-  СМИ: Зеленский решил уволить главкома ВСУ Залужного
+-  VIDEO. Manifestation des agriculteurs : “Je trouve ça formidable”, sur les bords de l'autoroute A64, Jean Lassalle apporte son soutien à la mobilisation
+-  Zaboravite na klasične kožne jakne: Ovakvi modeli pravi su hit sezone
+-  Diplomacia Bolivariana pide impulso a Conferencia Internacional de Paz
+-  Inter-Roma Femminile 2-0: Spugna cade a Milano, prima sconfitta in campionato per le giallorosse
+-  STRANKA HRVATSKOG ZAJEDNIŠTVA Sredstva za izgradnju knjižnice usmjerena u hladnjaču
