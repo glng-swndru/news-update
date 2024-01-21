@@ -1,11 +1,11 @@
 # Latest News
--  Félix Torres fala em desejo realizado e enaltece torcida em apresentação no Corinthians
--  ロシア空軍の「早期警戒管制機」が撃墜される「史上初」の大失態
--  Bahrain edge past Malaysia 1-0
--  Ivan Toney explains controversial Brentford moment that left Nottingham Forest furious - The Mirror
--  여 '삼성' 야 '현대차'…기업인 영입 경쟁
--  Nova senzacija Pajoviča, Avstrija po nori tekmi presenetila tudi Nemčijo!
--  Princ Harry primio nagradu za 'živuću legendu zrakoplovstva': Na dodjelu došao bez Meghan
--  Former Merseyside Police Officer Convicted and Resigns Following Assault Charges
--  ماغي بو غصن تعلن انطلاق تصوير مسلسل ع أمل
--  Tunisie – Ennahdha dément le décès de Rached Ghannouchi
+-  Başakşehir’de zincirleme trafik kazası: 3 araç çarpıştı!
+-  Dışişleri Bakanı Hakan Fidan, Hamas Siyasi Büro Başkanı Henniye'yi kabul etti
+-  Dramatična Veronika na misiji Malmö
+-  Piala Afrika 2023: Pelatih Senegal Dilarikan ke RS Setelah Timnya Tembus 16 Besar
+-  Dramatična Veronika na misiji Malmö
+-  Sneg do kolena, a on grejao fotelju! Evo kako je izgledao Beograd za vreme tajkuna Đilasa!
+-  Coupe de France fédérale masculine : le HC Volcan (NM3) a cru à l'exploit devant Poitiers (NM1)
+-  Here's What Investors Should Expect From Eli Lilly Stock in 2024
+-  Coupe de France fédérale masculine : le HC Volcan (NM3) a cru à l'exploit devant Poitiers (NM1)
+-  Sudarila se dva britanska ratna broda: Snimljen trenutak sudara
