@@ -1,11 +1,11 @@
 # Latest News
--  Bersiap Menghadapi Madura United, Persis Dril Fisik Pemain
--  Pengajaran kepada Korea Selatan - Klinsmann
--  Sát hại mẹ ruột, nữ "sát thủ vali" ở Mỹ lãnh 26 năm tù
--  최상목 "현행 부동산 PF, 분양가 폭락시 줄줄이 망하는 구조"
--  Cập nhật lịch nghỉ Tết Nguyên đán 2024 của học sinh cả nước: Địa phương nào cho nghỉ dài nhất?
--  Democrats are not ‘in it’ for the Black community
--  Democrats are not ‘in it’ for the Black community
--  Milan keeper Maignan calls for sanctions to combat racism
--  Turkmenistan introduces e-government system
--  INSS: quem sofre com transtorno do espectro autista pode ter BPC agilizado
+-  ギニア、アフリカ杯勝利も母国で悲劇 お祝い中のファン3人が事故死
+-  Auto Sleuth: New Look Land Cruiser; Porsche Panamera & more
+-  大分、昨季限りで契約満了のFW長沢駿と再契約「またプレー出来る事になりました」
+-  State to buy six new housing hubs as Government scrambles with immigration
+-  【高知】未明の火事で高齢者の1人暮らし住宅が全焼、1人の遺体発見
+-  Thu phí đậu ô tô ở lòng đường: Thu tăng, vi phạm giảm
+-  Auto Sleuth: New Look Land Cruiser; Porsche Panamera & more
+-  Adrian Weckler: EVs are the future – but we need honest information about their pros and cons
+-  Middle East conflict could stretch to China and Russia, if Biden’s not careful
+-  Soc Dems leader Holly Cairns gets permission for new home on her family’s farm in West Cork
