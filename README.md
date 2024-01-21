@@ -1,11 +1,11 @@
 # Latest News
--  Los océanos siguen calentándose
--  I den tyska byn öppnar invånarna sina hjärtan för flyktingar
--  NAJNOVIJI APEL MUP: Posebno važno pridržavati se bitnog uputstva od ponedeljka (VIDEO)
--  Việt Nam có thể lấy lại mức tăng trưởng 6% trong năm 2024
--  НЕДЕЉНИ ХОРОСКОП: Девице улећу у КЕШ, Ваге се препуштају СТРАСТИМА, а ево кога мучи ЉУБОМОРА
--  What is Britain’s Post Office scandal?
--  コニカミノルタがハマった事業転換の「落とし穴」、ヘルスケア事業が不調なワケ《Editors' Picks》 - Editors' Picks
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  Çağlar Söyüncü, Fenerbahçe için 5 takımın teklifini reddetti
--  Portuguesa estreia diante da Inter de Limeira de olho em retorno ao cenário nacional
+-  Des milliers de manifestants à Tel-Aviv pour réclamer le départ de Netanyahu
+-  Bárki egy sci-fiben érezheti magát ezektől a szenzációs utcai fényektől - képek
+-  La Maison d'Izieu commémorera en avril le 80e anniversaire de la rafle de 44 enfants juifs
+-  „Rock das Ding“ in Holzbalge: Frank Juschkat verpflichtet Metal-Helden aus Tschechien
+-  La Maison d'Izieu commémorera en avril le 80e anniversaire de la rafle de 44 enfants juifs
+-  Aus die Maus – Trennungsgeschichten: Eigentlich wollte Lina nur Sex mit einem älteren Mann – und wurde ihn nicht wieder los
+-  Służbę rozpoczął w rawickiej jednostce. Insp. Szymon Sędzik został szefem lubuskich policjantów
+-  Ronaldo spreekt zich uit: ‘Zeg niet dat Messi het niet verdient, maar...'
+-  Ман Юнайтед открадна шефче от Ман Сити
+-  Samo jedan od trojice Hrvata završio prvu vožnju slaloma u Kitzbühelu
