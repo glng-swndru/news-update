@@ -1,11 +1,11 @@
 # Latest News
--  Fortuna Sittard gaat definitief overstag en ontvangt twee miljoen vanuit Engeland
--  Werder-Transfers und -Gerüchte im Ticker: Japanischer Nationalspieler im Visier der Grün-Weißen?
--  Christian Kolund liest den Blues und sorgt für viele Lacher in Bopfingen
--  Gezeravcı ile tarihi an! Uzay istasyonunda buluşma
--  Galatasaray-Trabzon derbisinin ilk 11'i belli oldu
--  Çaykur Rizespor 3 futbol ile yollarını ayırdı
--  Hvidra Mostar: Pripadnicima HVO-a, državljanima RH omogućeno ostvarivanje prava na invalidsku mirovinu
--  Gazze'deki esir İsraillilerin yakınları, Netanyahu'nun evinin önünde oturma eylemi yaptı
--  Sahiller ölüm tarlası gibi! Manavgat’ta kimliği belirsiz 2 ceset daha bulundu
--  Christian Kolund liest den Blues und sorgt für viele Lacher in Bopfingen
+-  Arsenal 'petardom' razbio Crystal Palace
+-  Magda Linette oglądała porażkę Świątek. Co za reakcja!
+-  „Stellantis“ fiksuoja fantastiškus rezultatus Europos automobilių rinkoje
+-  Leaked audio exposes woman attempting to bribe Narcotics ASP
+-  Show in der Saarlandhalle : Comedian Ralf Schmitz ist begeistert vom saarländischen Humor
+-  Arsenal v derby deklasoval 5:0 Crystal Palace a ukončil čekání na vítězství
+-  Proteste gegen die AfD werden größer: 35.000 Menschen bei Demo in Frankfurt
+-  İsveç'te yüzlerce kişi İsrail'in Gazze'deki etnik temizliğini durdurmasını istedi
+-  CBSE CTET 2024 January session exam tomorrow; Check paper pattern, guidelines
+-  Végre megtalálta feleségét Ted Mosby - fotókon a színész romantikus esküvője
