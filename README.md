@@ -1,11 +1,11 @@
 # Latest News
--  Ohne Subventionen geht's nicht: Landwirte Fritz und Martin Stiegler aus Cadolzburg sprechen Klartext
--  Ohne Subventionen geht's nicht: Landwirte Fritz und Martin Stiegler aus Cadolzburg sprechen Klartext
--  "שכחנו להופיע ונזכרנו בזמן": טירוף בהפועל ת"א, רצון להאריך חוזה למנפורד
--  Justiz ermittelt gegen Nürnberger Hausverwaltung Dettling: Geld der Eigentümer veruntreut?
--  ＜室蘭胆振＞女性審判員の思い 広川春男
--  충남 수산물 수출액 2억달러 돌파…효자상품 ‘김’이 견인
--  Gros succès pour le ski dans les Hautes Fagnes: les pistes ont été prises d’assaut!
--  Nach Brand in Hertener Kleingartenanlage: Gartenbesitzer Herbert Klopsch zeigt sich bestürzt
--  ‘외계+인’ 지건우, 사망 뒤늦게 알려져…향년 45세
--  Feci kaza! Otomobil tırla çarpıştı
+-  אכזבה גדולה במכבי: "משחק שהיה אמור להיות שלנו, ההפרש היה צריך להספיק"
+-  Tapa Edición Impresa - Domingo 21 de enero
+-  남성 공무원 육아휴직자, 4명 중 1명에 불과
+-  "ملتقى الاستثمار العماني الهندي" يبحث الفرص الواعدة في القطاعات الاقتصادية وتعزيز تبادل المعرفة والخبرات
+-  محاكاة الحياة العمانية القديمة ضمن فعاليات "مهرجان صحار"
+-  Шеф-пекарь раскрыл рецепт зимнего пирога
+-  시비 끝에 같은 베트남 유학생 살해한 20대 구속
+-  Бдительные стражи белых вершин
+-  Дубай лидирует в рейтинге мировых туристических направлений
+-  Ski alpin Weltcup 2023/24 Ergebnisse aus Jasna: Wer gewinnt den Slalom in der Slowakei?
