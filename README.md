@@ -1,11 +1,11 @@
 # Latest News
--  The disconnect between elite and grassroots sport across Scotland
--  Kocaeli Şube Başkanı'ndan şehitleri sansürleyen imam hakkında açıklama!
--  Filipe Ferreira para reavaliar
--  Neredeyse Her Gün Karşı Karşıya Gelsek de Hala Çözüm Yolu Bulunamamış 18 Gündelik Sorun
--  ג'ורג' דיבה: בהפועל ת"א לא האמינו בי, רוני לוי כן
--  Mehmet Özdilek'ten Tayfur Bingöl tepkisi!
--  Hoje é o 52.º dia de Dezembro
--  University places: Ministers were told funding cut posed risk to poor
--  Cụ bà bị bắt sau 18 năm trốn truy nã, ẩn mình tại Bình Phước
--  Θέλξη: Ήταν δική μου επιλογή να απέχω για οκτώ χρόνια από τη νύχτα και το τραγούδι
+-  Bogdanović opet imao zapaženu ulogu, ali je Atlanta ubedljivo poražena
+-  Marc Marquez Sebut Ducati Motor 'Manis', Tapi Merasa Masih Harus Banyak Belajar
+-  През зимата се събуждат автоимунните заболявания на кожата
+-  Allt að fimm­tán þúsund manns drepin í einni borg
+-  DANAS JE SVETSKI DAN SNEGA-. Evo gde je i kada palo najviše snežnog pokrivača u istoriji
+-  Kuriozalne zachowanie Sabalenki. Wszystko się nagrało. Białorusinka tłumaczyła się po meczu
+-  Çatıda çıkan yangın korkuttu
+-  Yavuzeli'nde yoğun sis etkili oldu
+-  Ezgi Mola'nın keyfine diyecek yok!
+-  Denizli'de kural tanımayan sürücülere sıkı takip
