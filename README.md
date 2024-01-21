@@ -1,11 +1,11 @@
 # Latest News
--  ギニア、アフリカ杯勝利も母国で悲劇 お祝い中のファン3人が事故死
--  Auto Sleuth: New Look Land Cruiser; Porsche Panamera & more
--  大分、昨季限りで契約満了のFW長沢駿と再契約「またプレー出来る事になりました」
--  State to buy six new housing hubs as Government scrambles with immigration
--  【高知】未明の火事で高齢者の1人暮らし住宅が全焼、1人の遺体発見
--  Thu phí đậu ô tô ở lòng đường: Thu tăng, vi phạm giảm
--  Auto Sleuth: New Look Land Cruiser; Porsche Panamera & more
--  Adrian Weckler: EVs are the future – but we need honest information about their pros and cons
--  Middle East conflict could stretch to China and Russia, if Biden’s not careful
--  Soc Dems leader Holly Cairns gets permission for new home on her family’s farm in West Cork
+-  Potret Selvi Ananda Satu Acara dengan Nagita Slavina, Style Dipuji Berkelas dan Cocok Jadi Selebriti
+-  LIVE | Brand bij Russische gasproducent, bewoners melden drone-aanval
+-  Katso kuvat | Tältä näyttää vanha tehtaanjohtajan talo, josta imatralaispariskunta remontoi lapsiperheelle sopivan kodin
+-  Một trường tiểu học ở Hàn Quốc không có học sinh nào nhập học năm nay, dấy lên lo ngại về cuộc khủng hoảng nguy cấp
+-  Going to India? You’ll need vaccinations mainly for the visa process
+-  Kiray Celis travels to South Korea
+-  En detalle, las modificaciones más importantes del proyecto Ómnibus
+-  Sin liderazgos apurados, el plan a largo plazo de Kicillof
+-  Cinco guardianes de la revolución iraníes abatidos en un bombardeo israelí en Siria
+-  La realidad según Milei
