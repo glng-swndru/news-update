@@ -1,11 +1,11 @@
 # Latest News
--  Razpis za to sanjsko službo tudi v Sloveniji
--  야구로 폐교 위기 극복한 학교 찾은 류지현 전 감독의 ‘바쁜 겨울’…“프로야구 발전으로 이어지길”
--  ‘태아산재’ 첫 인정···임신 중 유해물질 작업에 태아 ‘선천성 기형’ 피해
--  Yılın transfer bombası patladı! Anlaşma imzaya kaldı! Dünya yıldızı Süper Lig’e geliyor
--  Chance de ouro
--  야구로 폐교 위기 극복한 학교 찾은 류지현 전 감독의 ‘바쁜 겨울’…“프로야구 발전으로 이어지길”
--  „Ich bin ein Star - Holt mich hier raus!“: Dschungelcamp 2024: Alle IBES-Kandidaten im Überblick – wer ist dabei? (mit Fotos)
--  Siamo arrivati all'uomo incinto
--  Takla atan otomobil ikiye bölündü
--  В Анкаре перевернулся микроавтобус, пострадали 11 человек
+-  The disconnect between elite and grassroots sport across Scotland
+-  Kocaeli Şube Başkanı'ndan şehitleri sansürleyen imam hakkında açıklama!
+-  Filipe Ferreira para reavaliar
+-  Neredeyse Her Gün Karşı Karşıya Gelsek de Hala Çözüm Yolu Bulunamamış 18 Gündelik Sorun
+-  ג'ורג' דיבה: בהפועל ת"א לא האמינו בי, רוני לוי כן
+-  Mehmet Özdilek'ten Tayfur Bingöl tepkisi!
+-  Hoje é o 52.º dia de Dezembro
+-  University places: Ministers were told funding cut posed risk to poor
+-  Cụ bà bị bắt sau 18 năm trốn truy nã, ẩn mình tại Bình Phước
+-  Θέλξη: Ήταν δική μου επιλογή να απέχω για οκτώ χρόνια από τη νύχτα και το τραγούδι
