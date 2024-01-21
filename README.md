@@ -1,11 +1,11 @@
 # Latest News
--  سفير الصين لدى الدولة لـ العرب: التميز عنوان قطر
--  Daredevil Only Became MCU Canon After Born Again’s Creative Reboot
--  الياباني تومياسو مدافع أرسنال في حوارلـ العرب: التنظيم القطـــري رائـــع
--  يونس محمود: الفوز على اليابان له طعم خاص
--  Weekly Horoscope, January 21 to January 27, 2024: Read weekly astrological predictions for all zodiac signs
--  Mercato - ASSE : Un gros problème est dénoncé pour ce joueur
--  الكوري تعادل مع النشامى بنيران صديقة
--  Tre manager e due "blocchi" di potere per la rigenerazione urbana di Milano
--  মূল্যস্ফীতি নিয়ন্ত্রণে মুদ্রানীতি যে কারণে ব্যর্থ হচ্ছে
--  Fire Emblem Engage Artist Celebrates First Anniversary With New Artwork
+-  සියැට් වෙතින් සුව සැරිය ගිලන් රථ මෙහෙවරට දායකත්වය
+-  강원 춘천 주택서 불 나 90대 여성 숨져
+-  京都市長選に新人４人が届け出
+-  فندق ويستن الدوحة يطلق مبادرة «Move Well»
+-  Danilo Pereira sobre o golo de Gonçalo Ramos: «Importante para recuperar a confiança»
+-  «المصمم الرقمي» تطور التفكير الإبداعي لطالبات 45 مدرسة
+-  „Tik 20–30% pasirodo fronte.“ Atskleistas įdomus dalykas apie Rusijos ginklus
+-  Ley ómnibus: qué alternativas analiza el Gobierno para la movilidad jubilatoria
+-  Isaiah Likely 15-yard touchdown catch gives Ravens 24-10 lead over Texans
+-  Poutine a manifesté son intention de se rendre prochainement à Pyongyang-KCNA
