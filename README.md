@@ -1,11 +1,11 @@
 # Latest News
--  Polis servisi, otobüsle çarpıştı; yaralı polisler hastaneye kaldırıldı
--  Lleva tu portátil a cualquier lugar con esta mochila Lenovo a mitad de precio
--  Az ihlet bárhonnan jöhet - Rab Viki zeneszerzőként és színészként is mosolyt csal a gyerekek arcára
--  Ticaret Bakanlığı 523 firmaya dahilde işleme izin belgesi verdi
--  Είδαμε την ταινία «Μια Ζωή»: δεν ήταν καν ταινία, ήταν μάθημα ζωής
--  Gaziantep'te 1 milyon lira değerinde kaçak telefon ele geçirildi
--  Massiivinen Airbnb-huijaus paljastui – näin asiakkaita vedätettiin
--  السفن العابرة في البحر الاحمر ترفع عبارة جديدة للنجاة من القصف.. ماهي؟
--  김동준X하승리, 수창궁 합방 포착 ‘복잡다단+초조’ (고려거란전쟁)
--  ជំ​នួបរវាង Udinese និង AC Milan ត្រូវផ្អាកមួយរយៈ ដោយសារមានហេតុការណ៍រើសអើង
+-  Razpis za to sanjsko službo tudi v Sloveniji
+-  야구로 폐교 위기 극복한 학교 찾은 류지현 전 감독의 ‘바쁜 겨울’…“프로야구 발전으로 이어지길”
+-  ‘태아산재’ 첫 인정···임신 중 유해물질 작업에 태아 ‘선천성 기형’ 피해
+-  Yılın transfer bombası patladı! Anlaşma imzaya kaldı! Dünya yıldızı Süper Lig’e geliyor
+-  Chance de ouro
+-  야구로 폐교 위기 극복한 학교 찾은 류지현 전 감독의 ‘바쁜 겨울’…“프로야구 발전으로 이어지길”
+-  „Ich bin ein Star - Holt mich hier raus!“: Dschungelcamp 2024: Alle IBES-Kandidaten im Überblick – wer ist dabei? (mit Fotos)
+-  Siamo arrivati all'uomo incinto
+-  Takla atan otomobil ikiye bölündü
+-  В Анкаре перевернулся микроавтобус, пострадали 11 человек
