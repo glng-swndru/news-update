@@ -1,11 +1,11 @@
 # Latest News
--  Yaptıkları Davranışların Kötü Olup Olmadığını Sorgulatarak Tüm Ayarlarımızla Oynayan 15 Kişi
--  75 عامًا على النكبة
--  Guia per gestionar la setmanada dels nens
--  Umut Nayir 2'de 2 yaptı. Beşiktaş erken gelen gol sonrası şaştı kaldı
--  EU uvodi nova pravila za unošenje novca
--  Zaváhání s mladou Češkou. Nedokážu říct, jak se cítím, přiznala Šwiateková
--  Zaváhání s mladou Češkou. Nedokážu říct, jak se cítím, přiznala Šwiateková
--  Gần 20 tấn bưởi Diễn xuất khẩu sang Mỹ
--  Mükremin Gezgin'den sosyal medyayı ayağa kaldıran hareket: Kamuflaj giyip ojeli tırnaklarıyla asker selamı verdi!
--  Stepčenko pirms došanās uz Dienvidkoreju uzvar "Volvo Cup" junioru konkurencē
+-  إلى متى الانتظار في المؤسسات الصحية؟!
+-  Яремчук залишився у запасі Валенсії на матч з Атлетиком
+-  Rozvoj městských solárních elektráren. Solární panely coby stále častější doplněk městských a obecních budov. Republikový boom se týká i Moravskoslezského kraje. (video)
+-  Ağız yaralarının bir numaralı kurtarıcısı! Bir bardak içince anında iyileştiriyor
+-  Bir Kere Yemeye Başlayınca Kendimizi Durduramadığımız Bağımlılık Yapan 15 Atıştırmalık
+-  Čeští skokani na lyžích byli v závodu družstev v Zakopaném jedenáctí
+-  803 снегорина обработват пътищата от републиканската пътна мрежа
+-  Tomo Šokota: U Dinamu je bilo bolje dok je bio Mamić. Danas se u klubu ne zna tko što radi
+-  Mass General psychologist shares tips to boost mood during winter
+-  Fußball-Bundesliga: BVB gewinnt in Köln, Frankfurt kassiert späten Ausgleich in Darmstadt
