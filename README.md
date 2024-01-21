@@ -1,11 +1,11 @@
 # Latest News
--  Labor to pledge more help on energy costs
--  「返答せずにはおかない」イラン大統領が警告 ガザ死者2万5千人超
--  Kulturskolans udda bekymmer: ”Frågan är inte så enkel”
--  Irán megfenyegette Izraelt, kijelentették, hogy bosszút állnak
--  ITV Vera Series 13 - how many episodes are there and full guide to each one
--  اسماعيل هنية يجري محادثات في تركيا
--  정영숙, 이승철에 “이휘향 대신 나와 일해” 제안(효심이네)
--  Onde lanchar, jantar e beber um copo em Lisboa, sem ter de pensar muito?
--  Riom, Sérent, Marignane et La Plagne
--  Regionens sparförslag drabbar kvinnor
+-  Na ljeto brodska linija Budva - Dubrovnik, cilj je rasterećenje Karasovića?
+-  VRAŽDA neďaleko Nitry: O život prišiel 33-ročný muž
+-  ‘Pran Pratishtha’: Kangana Ranaut Takes Part In Temple Cleaning At Ayodhya's Hanuman Garhi
+-  Dagersättning höjs inte för ukrainska flyktingar
+-  Leiden stopt met exposities in het stadhuis. Kunst en overheid: het blijft een moeizame combinatie | column
+-  Trabzonspor - Galatasaray maçı öncesi yaşanan son gelişmeler!
+-  DVE GODINE SE TRAGALO ZA NJOM Rumuska šampionka posle svađe sa dečkom NESTALA, a sada je njeno telo KONAČNO PRONAĐENO
+-  تصل إلى 20 ألف ريال.. عقوبات مخالفة أحكام نظام كاميرات المراقبة
+-  Yavru kediyi kurtarmak için trafiği durdurdu
+-  Sto.André tem pioneira no Estado a atender o Samu sobre duas rodas
