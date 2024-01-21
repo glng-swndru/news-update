@@ -1,11 +1,11 @@
 # Latest News
--  Bogdanović opet imao zapaženu ulogu, ali je Atlanta ubedljivo poražena
--  Marc Marquez Sebut Ducati Motor 'Manis', Tapi Merasa Masih Harus Banyak Belajar
--  През зимата се събуждат автоимунните заболявания на кожата
--  Allt að fimm­tán þúsund manns drepin í einni borg
--  DANAS JE SVETSKI DAN SNEGA-. Evo gde je i kada palo najviše snežnog pokrivača u istoriji
--  Kuriozalne zachowanie Sabalenki. Wszystko się nagrało. Białorusinka tłumaczyła się po meczu
--  Çatıda çıkan yangın korkuttu
--  Yavuzeli'nde yoğun sis etkili oldu
--  Ezgi Mola'nın keyfine diyecek yok!
--  Denizli'de kural tanımayan sürücülere sıkı takip
+-  Udinese Milan, la moviola dei giornali: «Manca questo rigore per i rossoneri»
+-  Pohani šampinjoni: Recept zbog kojeg ćete zaboraviti na meso
+-  Bir kaşığı bile kana karışıp değerleri artırıyor: Kış boyu tüketen hastalık yüzü görmüyor!
+-  Everton now ready for bid for Goodison star, vulnerability & Dyche stance emerges - report
+-  Alperen Şengün'den müthiş performans: Kariyer rekoru kırdı
+-  Homes Under the Hammer host 'axed and replaced by BBC Breakfast star'
+-  Malaysia bị loại cay đắng, HLV Hàn Quốc nói lời xin lỗi
+-  En taze midye nasıl anlaşılır
+-  Probabili formazioni Lecce Juve: le ULTIME sulle scelte di Allegri
+-  Genijalan trik za otkrivanje lošeg zadaha! Proverite zdravlje za 10 sekundi (VIDEO)
