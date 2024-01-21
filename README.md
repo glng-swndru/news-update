@@ -1,11 +1,11 @@
 # Latest News
--  Power restored for Hawaiian Electric customers in East Oahu
--  ロシア大統領、早期訪朝に意欲
--  Loại heo này ở Bình Định nuôi dễ, trọng lượng nhỏ mà bán đắt hàng, tết đến bán càng nhanh
--  Roman Reigns Achieves Another Historic Milestone in WWE
--  Bafana players remain confident and focused
--  Почалися зловживання: міністр пояснив повернення відключеннь світла за борги
--  Aéreas brasileiras cancelam voos para Argentina no dia 24 por greve
--  Rugby - Nationale. Revivez les temps forts de la victoire du CSBJ dans le derby face au CS Vienne
--  Francuski ministar: Palestinci imaju pravo na državu
--  Ayodhya: सितारों का समागम ...अमिताभ, रजनीकांत, अंबानी, टाटा, सचिन जैसे दिग्गज बनेंगे प्राण प्रतिष्ठा के साक्षी
+-  V nedeľu bude jasno, ojedinele môže aj slabo snežiť
+-  How one Aussie state is saving money
+-  à¶œà·’à¶±à·’ à¶…à·€à·’ à¶±à·’à·‚à·Šà¶´à·�à¶¯à¶±à·�à¶œà·�à¶»à¶ºà¶šà·Š à·€à¶§à¶½à·� à¶­à·’à¶¯à·™à¶±à·™à¶šà·Š à¶…à¶½à·Šà¶½à¶ºà·’
+-  Fermerët e pakënaqur gjermanë planifikojnë protesta të reja
+-  ගිනි අවි නිෂ්පාදනාගාරයක් වටලා තිදෙනෙක් අල්ලයි
+-  Venezuela – Bolivia (0-0): minuto a minuto
+-  How one Aussie state is saving money
+-  &quot;PANTERI&quot; BEZ BELE ZASTAVICE STIŽU U &quot;ARENU&quot; Trener FMP-a pred Zvezdu: Da pokažemo napredak
+-  "Star Academy" : Axel ou Julien ? Qui est le premier finaliste de la saison 2023 ?
+-  How one Aussie state is saving money
