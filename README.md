@@ -1,11 +1,11 @@
 # Latest News
--  ביתם לשעבר של ג'ולי ופיט נמכר במכירה פומבית: זה הסכום העצום ששולם
--  İstanbul Boğazı'nda gemi arızası
--  SoFi Stock Down 25% in 2024: 1 Huge Reason SoFi Is a Buy-Now Stock
--  MG3 2024 hé lộ diện mạo hầm hố trước ngày ra mắt
--  Uzmanından kombi tasarrufu için püf noktalar
--  Kar yağışı Bozüyük'te etkili oldu
--  В Севастополе объявили воздушную тревогу
--  Алберт Попов не завърши в Кицбюел
--  Around 2,000 demonstrators in Geneva call for ceasefire in Gaza
--  Tarım Kredi Market'te flaş indirimler! İşte 20-26 Ocak indirimli ürünler listesi
+-  Los océanos siguen calentándose
+-  I den tyska byn öppnar invånarna sina hjärtan för flyktingar
+-  NAJNOVIJI APEL MUP: Posebno važno pridržavati se bitnog uputstva od ponedeljka (VIDEO)
+-  Việt Nam có thể lấy lại mức tăng trưởng 6% trong năm 2024
+-  НЕДЕЉНИ ХОРОСКОП: Девице улећу у КЕШ, Ваге се препуштају СТРАСТИМА, а ево кога мучи ЉУБОМОРА
+-  What is Britain’s Post Office scandal?
+-  コニカミノルタがハマった事業転換の「落とし穴」、ヘルスケア事業が不調なワケ《Editors' Picks》 - Editors' Picks
+-  APA - N A C H R I C H T E N Ü B E R B L I C K
+-  Çağlar Söyüncü, Fenerbahçe için 5 takımın teklifini reddetti
+-  Portuguesa estreia diante da Inter de Limeira de olho em retorno ao cenário nacional
