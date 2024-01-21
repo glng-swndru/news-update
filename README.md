@@ -1,11 +1,11 @@
 # Latest News
--  Hamas’tan esir takasına yeşil ışık!
--  HRVATSKA OSTALA BEZ POLUFINALA: Mađari presudili Vatrenima na Evropskom prvenstvu!
--  معركة الحق والباطل
--  EXPO 2027 JE NAJVEĆI RAZVOJNI POTENCIJAL SRBIJE Siniša Mali: Ogroman prostor i ogromni projekti, niče jedan novi grad (FOTO/VIDEO)
--  Katiller Filistin devletine karşı çıkıyor
--  Buona la prima per De Rossi: la Roma prima convince poi soffre, ma vince 2-1 con l'Hellas
--  BIZARNO Reper koji ima samo 22 godine čeka petero djece s pet žena
--  Победный гол на 90+6 мин. Бахрейн вырвал победу у Малайзии
--  Μην αρχίζεις τη μουρμούρα: Ο Μηνάς «συναντά» τη Βουλίτσα
--  Usai Bimbim dkk Deklarasi di Potlot, Slankers Siap Menangkan Ganjar-Mahfud: Pilihan Paling Tepat
+-  "Beşiktaş" böyük hesabla uduzdu
+-  Get The Child Tax Credit With No Income in 2023 and 2024 Announced by Harbor Financial
+-  Anya Elsner packt über zerrüttete Bindung zu ihrer Mama aus
+-  Quiniela de Córdoba hoy: consultá los resultados de los sorteos de este sábado 20 de enero
+-  Njezin anđeo čuvar: Sandra Perković ne krije da sve što ima duguje njoj
+-  New Huawei MateBook 14 review: An attempt at a MacBook Air alternative
+-  Российских футболистов осудили за жалобы на повышение цен
+-  Udinese-Milan, quarta di fila da titolare per Okoye: "Gara dura ma siamo pronti"
+-  Drama u Sarajevu: Evakucija iz hotela zbog curenja plina
+-  الأخضر.. من أجل اجتياز آسيوي ثامن للمجموعات
