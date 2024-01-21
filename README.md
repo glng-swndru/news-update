@@ -1,11 +1,11 @@
 # Latest News
--  Punishing victims, rewarding perpetrators: The Supreme Court and its creative contortions
--  Esiin taittuva terassi, katosta laajenee toinen kerros, portaat ovat säilytyskaappeja… – Yksilölliset matkailuautouutuudet yllättävät innovaatioillaan, ja kiipeävät vaikka tiettömille taipaleille
--  Naga Chaitanya heaps praise on blockbuster Hanu-Man - 123telugu
--  須坂市長選 投票始まる 6選目指す現職と新人の会社役員との一騎打ち 投票率は前回下回るペース
--  Hamble Airfield quarry delays criticised by Eastleigh council leader
--  M27 driver must pay £1,000 for speeding at Hedge End
--  Украинский боевик допустил оставление плацдарма на Днепре
--  Best and worst Wetherspoons: Southampton, Fareham and more
--  Benny Hill: the life and times of the iconic comedian from Southampton
--  Jadwal Siaran Langsung Premier League di SCTV Hari Ini, Minggu 21 Januari 2024
+-  Sparta: Tuci se zapsal, dva útočníci ven. Co naštvalo Haraslínovu ženu?
+-  Vakuutukset | Talven kuntoilijat loukkaavat yleensä olka­päänsä tai polvensa – Nämä lajit ovat vaarallisimpia kunto­liikkujille
+-  Đủ kiểu thu hút khách mua hàng điện máy
+-  Ley ómnibus: acuerdan cambios con objetivo de dictamen el martes
+-  “Los mandaron a ‘enfriarse’, si se quedaban no sabemos qué podría pasar más adelante”
+-  Rathaus Menden geschlossen: Rathausmitarbeiter wollen bei Evakuierung wegen Bombe helfen
+-  Der Judenhass: Die 2.000 Jahre alte Geschichte eines mörderischern Vorurteils
+-  Detuvieron a la hermana de El Ruso, el principal rival de Los Chapitos en Baja California
+-  Krankenpflege-Azubis übernehmen Station im EvK: Jana (24) und Nils (21) über ihren Traumberuf
+-  Verkehrsbranche offen für höheren Deutschlandticket-Preis
