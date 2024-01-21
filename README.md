@@ -1,11 +1,11 @@
 # Latest News
--  Kazak mantısı nasıl yapılır? Enfes lezzet Kazak mantısının tarifi ve malzemeleri neler?
--  Super League: Με εκτελεστή τον Μπετανκόρ ο Πανσερραϊκός πέρασε απ' την έδρα του ΠΑΣ Γιάννινα!
--  Fernando Santos'tan çarpıcı açıklama: Sorumluluk bana ait, utanç duyuyorum
--  Nach Streit: Wie verstehen sich Priscilla Presley und Riley?
--  Horoscope Today 21 January 2024 : कर्क, सिंह, कन्या राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
--  Захарян — о позиции в «Реал Сосьедад»: «Приходилось играть и слева, и справа»
--  Menang Lagi! Bayern Leverkusen Kokoh di Puncak Klasemen Bundesliga
--  Austrálska legenda v tom má jasno: Začnite ryť Djokovičove iniciály na trofej
--  Basura va a Chepo mientras el fuego es controlado en un 70 %
--  Dolijao sin Šljukinog telohranitelja! Uhapšen nasilnik koji je pretukao mladog lekara
+-  IBES 2024: Dschungelcamp: Neuerung bei Gage der Teilnehmer enthüllt
+-  5 اسباب ستزيد من غزارة الهطولات وقوة المنخفضات المنتظرة الفترة المقبلة
+-  دي روسي يبدأ مشواره مع روما بالفوز على فيرونا
+-  VÍDEO: Grimaldo decisivo em nova vitória do Leverkusen na compensação
+-  La neige a également eu des conséquences dans les rayons de plusieurs magasins : « Tout le monde s’est rué dessus ! »
+-  Bilbao prohrálo ve Valencii a přišlo o sérii neporazitelnosti ve španělské lize
+-  TPS tarjosi kotiyleisölle pannukakun sijaan voiton Lukosta
+-  A nap legfontosabb hírei egy helyen – 2024. január 20.
+-  Slovačka spremna staviti veto na ulazak Ukrajine u NATO: "To je osnova za treći svjetski rat"
+-  How Sam Wood is going to get you fit in 2024
