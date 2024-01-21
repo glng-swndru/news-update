@@ -1,11 +1,11 @@
 # Latest News
--  Şahin Demirtaş’ta vatandaşlarla buluştu
--  В российском городе отменили концерт Лолиты в честь ее 60-летия
--  Australian Open 2024 Ergebnisse: Zverev ohne Mühe im Achtelfinale, Swiatek überraschend raus
--  Events tomorrow – Jan. 21: Rogamochana Sri Dhanvantari Sannidhana – Sri Uttaradi Mutt
--  SRBIN DEMOLIRAO MAKABI, PA DOBIO PRIZNANJE: Nikola Milutinov MVP 22. kola Evrolige! Utakmicu završio sa INDEKSOM 40!
--  Сводка минобороны 20.01
--  ABŞ kəşfiyyat təyyarələrini bu reaktivlərlə əvəz edəcək
--  НА ЖИВО: ЦСКА vs Корона Киелце 0:2, изгониха Юга
--  Dàn diễn viên 'Hai Phượng': Người 2 lần leo Everest, người đột ngột qua đời
--  Dirigentes iranianos morrem em ataque israelense na Síria
+-  Fortuna Sittard gaat definitief overstag en ontvangt twee miljoen vanuit Engeland
+-  Werder-Transfers und -Gerüchte im Ticker: Japanischer Nationalspieler im Visier der Grün-Weißen?
+-  Christian Kolund liest den Blues und sorgt für viele Lacher in Bopfingen
+-  Gezeravcı ile tarihi an! Uzay istasyonunda buluşma
+-  Galatasaray-Trabzon derbisinin ilk 11'i belli oldu
+-  Çaykur Rizespor 3 futbol ile yollarını ayırdı
+-  Hvidra Mostar: Pripadnicima HVO-a, državljanima RH omogućeno ostvarivanje prava na invalidsku mirovinu
+-  Gazze'deki esir İsraillilerin yakınları, Netanyahu'nun evinin önünde oturma eylemi yaptı
+-  Sahiller ölüm tarlası gibi! Manavgat’ta kimliği belirsiz 2 ceset daha bulundu
+-  Christian Kolund liest den Blues und sorgt für viele Lacher in Bopfingen
