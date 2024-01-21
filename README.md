@@ -1,11 +1,11 @@
 # Latest News
--  אכזבה גדולה במכבי: "משחק שהיה אמור להיות שלנו, ההפרש היה צריך להספיק"
--  Tapa Edición Impresa - Domingo 21 de enero
--  남성 공무원 육아휴직자, 4명 중 1명에 불과
--  "ملتقى الاستثمار العماني الهندي" يبحث الفرص الواعدة في القطاعات الاقتصادية وتعزيز تبادل المعرفة والخبرات
--  محاكاة الحياة العمانية القديمة ضمن فعاليات "مهرجان صحار"
--  Шеф-пекарь раскрыл рецепт зимнего пирога
--  시비 끝에 같은 베트남 유학생 살해한 20대 구속
--  Бдительные стражи белых вершин
--  Дубай лидирует в рейтинге мировых туристических направлений
--  Ski alpin Weltcup 2023/24 Ergebnisse aus Jasna: Wer gewinnt den Slalom in der Slowakei?
+-  Hautärztin verrät: So oft sollten Sie pro Woche duschen
+-  Nem sikerült jól az év első hazai meccse
+-  Theth in Albanien: Ein Wanderparadies mitten in den Bergen
+-  Gol Ketiga Arsenal Adalah Gol Ideal
+-  Что случилось этой ночью: воскресенье, 21 января
+-  I visited the town where most don't work and their stories broke me
+-  Se Tavares fa il cinese (e l'indiano)
+-  ¿Qué hacer hoy en Barcelona? Agenda de actividades para hacer esta semana
+-  Mum's fears as asbestos found inside Hagley Road hotel now used to house homeless families
+-  EN DIRECT - Guerre en Ukraine : Kiev "peut compter sur la France", déclare le ministre français des Affaires étrangères
