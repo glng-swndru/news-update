@@ -1,11 +1,11 @@
 # Latest News
--  Un accident dû à une voiture à contre-sens fait trois blessés sur la RN 145 dans l'Allier
--  Расистски скандал прекъсна мач в Италия (видео)
--  Красивый жест Юргена. Клопп готов уступить место коуча Ливерпуля Эрикссону
--  Szczęśliwe zwycięstwo Bayeru Leverkusen. Niemieccy kibice protestują
--  Ponovo rasističke uvrede u Italiji - navijači Udineze vređali golmana Milana VIDEO
--  Διακοπή στο Ουντινέζε – Μίλαν για ρατσιστική επίθεση στον Μενιάν (vid)
--  Udinese Milan, i RETROSCENA: gli episodi curiosi che non avete notato dal Bluenergy Stadium
--  SAMOHRANE MAJKE SU HEROJI: Evo šta Marija Šerifović kaže o novoj ulozi u životu
--  Vanguard's Spot Bitcoin ETF Rejection Ignites Backlash
--  Un accident dû à une voiture à contre-sens fait trois blessés sur la RN 145 dans l'Allier
+-  Félix Torres fala em desejo realizado e enaltece torcida em apresentação no Corinthians
+-  ロシア空軍の「早期警戒管制機」が撃墜される「史上初」の大失態
+-  Bahrain edge past Malaysia 1-0
+-  Ivan Toney explains controversial Brentford moment that left Nottingham Forest furious - The Mirror
+-  여 '삼성' 야 '현대차'…기업인 영입 경쟁
+-  Nova senzacija Pajoviča, Avstrija po nori tekmi presenetila tudi Nemčijo!
+-  Princ Harry primio nagradu za 'živuću legendu zrakoplovstva': Na dodjelu došao bez Meghan
+-  Former Merseyside Police Officer Convicted and Resigns Following Assault Charges
+-  ماغي بو غصن تعلن انطلاق تصوير مسلسل ع أمل
+-  Tunisie – Ennahdha dément le décès de Rached Ghannouchi
