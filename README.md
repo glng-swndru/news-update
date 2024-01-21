@@ -1,11 +1,11 @@
 # Latest News
--  සියැට් වෙතින් සුව සැරිය ගිලන් රථ මෙහෙවරට දායකත්වය
--  강원 춘천 주택서 불 나 90대 여성 숨져
--  京都市長選に新人４人が届け出
--  فندق ويستن الدوحة يطلق مبادرة «Move Well»
--  Danilo Pereira sobre o golo de Gonçalo Ramos: «Importante para recuperar a confiança»
--  «المصمم الرقمي» تطور التفكير الإبداعي لطالبات 45 مدرسة
--  „Tik 20–30% pasirodo fronte.“ Atskleistas įdomus dalykas apie Rusijos ginklus
--  Ley ómnibus: qué alternativas analiza el Gobierno para la movilidad jubilatoria
--  Isaiah Likely 15-yard touchdown catch gives Ravens 24-10 lead over Texans
--  Poutine a manifesté son intention de se rendre prochainement à Pyongyang-KCNA
+-  Haley questions Trump's fitness for office after he appears to confuse her with Pelosi
+-  ‘외계+인’ 2부, 12일째 100만 돌파…류준열·김태리 감사 인사
+-  김호중 묵직한 응원→리베란테, ‘Butterfly’에 눌러 담은 진심 (불후의 명곡)[TV종합]
+-  Ankara'da komşu iki aile arasında gürültü kavgası: 4 yaralı
+-  La precandidata republicana Haley cuestiona salud mental de Trump
+-  파리행 무산된 여자하키, 캐나다 꺾고 올림픽 최종예선 5위로 마무리
+-  Cải tiến quy trình khám bệnh theo bảo hiểm y tế
+-  Prabowo Janji Bangun SMA Taruna Nusantara di Kalimantan: Saya Akan Minta Petunjuk Presiden
+-  Outrage as Brit jailed for trying to join ISIS is freed: Wannabe Jihardi Shamim Ahmed yelled 'give me 20 years, I'll come out the enemy' to as judge as he was locked up and branded a danger
+-  Harga Kripto Hari Ini 21 Januari 2024: Bitcoin Menguat Terbatas
