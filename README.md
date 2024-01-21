@@ -1,11 +1,11 @@
 # Latest News
--  Hautärztin verrät: So oft sollten Sie pro Woche duschen
--  Nem sikerült jól az év első hazai meccse
--  Theth in Albanien: Ein Wanderparadies mitten in den Bergen
--  Gol Ketiga Arsenal Adalah Gol Ideal
--  Что случилось этой ночью: воскресенье, 21 января
--  I visited the town where most don't work and their stories broke me
--  Se Tavares fa il cinese (e l'indiano)
--  ¿Qué hacer hoy en Barcelona? Agenda de actividades para hacer esta semana
--  Mum's fears as asbestos found inside Hagley Road hotel now used to house homeless families
--  EN DIRECT - Guerre en Ukraine : Kiev "peut compter sur la France", déclare le ministre français des Affaires étrangères
+-  Polis servisi, otobüsle çarpıştı; yaralı polisler hastaneye kaldırıldı
+-  Lleva tu portátil a cualquier lugar con esta mochila Lenovo a mitad de precio
+-  Az ihlet bárhonnan jöhet - Rab Viki zeneszerzőként és színészként is mosolyt csal a gyerekek arcára
+-  Ticaret Bakanlığı 523 firmaya dahilde işleme izin belgesi verdi
+-  Είδαμε την ταινία «Μια Ζωή»: δεν ήταν καν ταινία, ήταν μάθημα ζωής
+-  Gaziantep'te 1 milyon lira değerinde kaçak telefon ele geçirildi
+-  Massiivinen Airbnb-huijaus paljastui – näin asiakkaita vedätettiin
+-  السفن العابرة في البحر الاحمر ترفع عبارة جديدة للنجاة من القصف.. ماهي؟
+-  김동준X하승리, 수창궁 합방 포착 ‘복잡다단+초조’ (고려거란전쟁)
+-  ជំ​នួបរវាង Udinese និង AC Milan ត្រូវផ្អាកមួយរយៈ ដោយសារមានហេតុការណ៍រើសអើង
