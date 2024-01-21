@@ -1,11 +1,11 @@
 # Latest News
--  Udinese Milan, la moviola dei giornali: «Manca questo rigore per i rossoneri»
--  Pohani šampinjoni: Recept zbog kojeg ćete zaboraviti na meso
--  Bir kaşığı bile kana karışıp değerleri artırıyor: Kış boyu tüketen hastalık yüzü görmüyor!
--  Everton now ready for bid for Goodison star, vulnerability & Dyche stance emerges - report
--  Alperen Şengün'den müthiş performans: Kariyer rekoru kırdı
--  Homes Under the Hammer host 'axed and replaced by BBC Breakfast star'
--  Malaysia bị loại cay đắng, HLV Hàn Quốc nói lời xin lỗi
--  En taze midye nasıl anlaşılır
--  Probabili formazioni Lecce Juve: le ULTIME sulle scelte di Allegri
--  Genijalan trik za otkrivanje lošeg zadaha! Proverite zdravlje za 10 sekundi (VIDEO)
+-  La chronique du temps présent d'Astrid Eliard : "Pas de chance pour l’égalité des chances"
+-  Lazio, fondamentale il ritorno di Castellanos: le sue condizioni
+-  宇野昌磨「マリニン君の影響は大きい」 表現重視からジャンプの比重増やす戦略へ
+-  Kardashianki grasują w Aspen: zakupowe szaleństwo i kolacja w drogiej knajpie. W tle AFERA O FUTRO Khloe... (ZDJĘCIA)
+-  «Eiropas atbilde Markam Rotko» – britu abstraktā ekspresionista Džona Hoilenda dzīve un māksla
+-  La statue rénovée d'un Saint-Roch fait sa rentrée au musée Douët à Saint-Flour
+-  Rocznica zamordowania Brunona Nikoleiziga ps. "Adam" w Pleszewie
+-  Krauthobel und die Reise ins Glück
+-  Exclues de la table, soumises à des siècles d'injonctions contradictoires... Qu'est-ce qui a déréglé l'appétit des femmes ?
+-  Švjontek: Podloga je brža
