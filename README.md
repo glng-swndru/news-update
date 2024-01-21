@@ -1,11 +1,11 @@
 # Latest News
--  Miran:"Yasal düzenlemeler için ara tatil dönemi değerlendirilmeli"
--  Stuttgart-Feuerbach: Unfall wegen Glatteis - Renault Twingo überschlägt sich
--  [스경x이슈] ‘계약 전 신체검사 요구’는 왜 유령 규정이 됐나···LG 함덕주 사태가 벌어진 이유
--  Gesangverein Freiahorn: Viel Lob für den Beitrag zum Erhalt des deutschen Liedgutes
--  Een van haar laatste diensten bij Yorneo in Emmen wordt hulpverleenster Marit (26) fataal: doodgestoken om beetje geld uit de groepskas
--  Bursa Ulu Cami'deki Kabe örtüsünün altın püskülleri kayıp
--  Dzień Babci i Dzień Dziadka. Kiedy pojawiło się to święto?
--  Herzogin Sophie: Geburtstags-Glückwünsche vom Palast
--  Stuttgart-Feuerbach: Unfall wegen Glatteis - Renault Twingo überschlägt sich
--  Цяла нощ чистиха улиците в Благоевград, 5 села останаха без ток
+-  İşe giderken dehşeti yaşadı: Otomobilinin önünü kesip sopalarla darp ettiler!
+-  Thiếu tiền tiêu xài, 3 người bạn thân rủ nhau cướp ngân hàng
+-  OTKRIO ISTINU O VEZI SA CECOM RAŽNATOVIĆ, UBIJEN 2 SATA KASNIJE: Kralj Zvezdare molio da prenesu OVE REČI, a presudio mu MALI PAUN
+-  &quot;NAPRAVIO BUDALU OD SEBE&quot; Američki novinar o ponašanju Zelenskog u Davosu: &quot;Nije inspirisao zapad&quot;
+-  SPREMAN SAM, VIDEĆEMO! Kecmanović juri POBEDU KARIJERE! Protiv Alkaraza igra i za Novaka: Neverovatno je što ga imam za prijatelja
+-  용인 처인구 다세대주택서 불…3명 경상 · 15명 대피
+-  So súperom mal na čele rovnaký čas. V záverečnej etape však nenechal nič na náhodu a vyhral
+-  Əfqanıstanda sərnişin təyyarəsi QƏZAYA UĞRADI
+-  L’UE déclare la guerre à l’argent liquide et décide de limiter les paiements en espèces !
+-  Adet sancısı kısırlığın belirtisi olabilir
