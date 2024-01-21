@@ -1,11 +1,11 @@
 # Latest News
--  FOTO Koln u 'kockicama': Naši navijači su preplavili dvoranu, Hrvatska ima ogromnu podršku
--  Edirne'de polis servis aracı ile otobüs çarpıştı: 10'u polis 11 yaralı
--  Týden Živě: V mobilech je Samsung dvojka, ale boj s Applem rozjel na jedničku. Plus Martinův report ze San José
--  Rimforsa föll tungt efter upphämtning
--  Hype um Caspar David Friedrich: Doch der Großmeister der Landschaftsmalerei hatte auch Schwächen
--  Вальо Антов спечели българското дерби в Италия срещу Петко Христов
--  Liveblog: FC Volendam nog altijd op voorsprong (0-1), Martens begint aan vuurdoop (0-0)
--  Επέλαση του χιονιά στη Βόρεια Ελλάδα: Η διαφορετική «εποχή» στο νότο και η πρόγνωση Μαρουσάκη για την εξέλιξη
--  PREMIJERKA O VEŠTAČKOJ INTELIGENCIJI I BIOTEHNOLOGIJI Ono što ćemo uraditi do 2027. godine će biti kvantni skok u odnosu na sve do sada
--  Dschungelcamp 2024: Cora Schumacher stichelt gegen Ex-Mann Ralf: „Hat mir eine nette Summe geboten“
+-  Два человека погибли, еще восемь пострадали в ДТП под Саратовом
+-  Com greve geral marcada na Argentina, Gol e Latam cancelam voos para o país no dia 24/1
+-  طيران الشرطة ينقذ مواطنا سقط من أحد جبال بدبد
+-  Coraz mniej ropy płynie na Stary Kontynent. Wszystko przez ataki Huti
+-  Vučić o gradnji puteva i mostova: Otkrio kada će ključne saobraćajnice biti gotove
+-  İspanyada Filistin’e destek yürüyüşü
+-  Com greve geral marcada na Argentina, Gol e Latam cancelam voos para o país no dia 24/1
+-  Com greve geral marcada na Argentina, Gol e Latam cancelam voos para o país no dia 24/1
+-  "Y'a du lourd !" : une matinée avec les dégustateurs du concours des vins de Chablis
+-  Rappel à Dieu de « Diaga »: Les condoléances du ministre Mame Mbaye Niang à Wally Seck
