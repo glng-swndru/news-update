@@ -1,11 +1,11 @@
 # Latest News
--  IBES 2024: Dschungelcamp: Neuerung bei Gage der Teilnehmer enthüllt
--  5 اسباب ستزيد من غزارة الهطولات وقوة المنخفضات المنتظرة الفترة المقبلة
--  دي روسي يبدأ مشواره مع روما بالفوز على فيرونا
--  VÍDEO: Grimaldo decisivo em nova vitória do Leverkusen na compensação
--  La neige a également eu des conséquences dans les rayons de plusieurs magasins : « Tout le monde s’est rué dessus ! »
--  Bilbao prohrálo ve Valencii a přišlo o sérii neporazitelnosti ve španělské lize
--  TPS tarjosi kotiyleisölle pannukakun sijaan voiton Lukosta
--  A nap legfontosabb hírei egy helyen – 2024. január 20.
--  Slovačka spremna staviti veto na ulazak Ukrajine u NATO: "To je osnova za treći svjetski rat"
--  How Sam Wood is going to get you fit in 2024
+-  Ber om å utvide fristen for kvotemelding
+-  AZ knokt zich naar gelijkspel tegen PEC Zwolle bij debuut Maarten Martens
+-  Why ‘viability’ is dividing the abortion rights movement
+-  香取慎吾が主演の舞台「テラヤマキャバレー」は必見！没後40年“寺山修司”を読み直す - ビジネスを強くする教養
+-  Genç kadın otel odasında ölü bulundu
+-  Erdoğan, İtalya Başbakanı Meloni’yi kabul etti
+-  Судан спира членството си в Източна Африка
+-  英冤罪 悪いのは富士通だけ？
+-  Virginia Tech tops N.C. State in back-and-forth game for its first road victory of season
+-  Fears The Great British Bake Off will move to Netflix as Channel 4 struggles with cash problems
