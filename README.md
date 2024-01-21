@@ -1,11 +1,11 @@
 # Latest News
--  Два человека погибли, еще восемь пострадали в ДТП под Саратовом
--  Com greve geral marcada na Argentina, Gol e Latam cancelam voos para o país no dia 24/1
--  طيران الشرطة ينقذ مواطنا سقط من أحد جبال بدبد
--  Coraz mniej ropy płynie na Stary Kontynent. Wszystko przez ataki Huti
--  Vučić o gradnji puteva i mostova: Otkrio kada će ključne saobraćajnice biti gotove
--  İspanyada Filistin’e destek yürüyüşü
--  Com greve geral marcada na Argentina, Gol e Latam cancelam voos para o país no dia 24/1
--  Com greve geral marcada na Argentina, Gol e Latam cancelam voos para o país no dia 24/1
--  "Y'a du lourd !" : une matinée avec les dégustateurs du concours des vins de Chablis
--  Rappel à Dieu de « Diaga »: Les condoléances du ministre Mame Mbaye Niang à Wally Seck
+-  Promotion des bonnes valeurs: Des distinctions « Royuwaay» décernées à des modèles et références sociétales
+-  У водах Бахрейну зіткнулися два кораблі флоту Британії, - Reuters
+-  Έρευνα: Οι τηγανητές πατάτες μπορούν να θεραπεύσουν κάτι πολύ σοβαρό
+-  Microsoft najavio promjene u uslugama pohrane za Microsoft 365 Education korisnike
+-  Ticaret Bakanı Ömer Bolat: Bu yıl hep birlikte 267 milyar dolara ulaşacağız
+-  1 инжекция нов "бавен" инсулин регулира 7 дни кръвната захар като всекидневните дози
+-  Boltinn hjá Samtökum atvinnulífsins
+-  Valletta return to winning ways
+-  Ram Temple inauguration: Darbhanga’s royal family offers artfacts ahead of ceremony – watch
+-  Gaming monitor Gigabyte GS27QC je entry-level zakrivljeni gaming model sa 170 Hz
