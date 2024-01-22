@@ -1,11 +1,11 @@
 # Latest News
--  عروسة المرتفعات الغربية
--  Težke razmere v ambulantah: iz UKC Ljubljana pozivajo nekatere prebivalce, da ostanejo doma
--  Вильнюс передаст Украине дополнительную бронетехнику - Президент Литвы
--  Martin Wolf: the world economy's story remains one of integration
--  Rusija: Četvero preživjelih u padu zrakoplova u Afganistanu
--  Sol Gabetta in der Stuttgarter Liederhalle: Ein Cellospiel zum Verlieben
--  Костов призна за Охене и заяви: Видях доста добри неща, но има върху какво да работим
--  التخصصات الصحية تعلن بدء التسجيل ببرنامج "فني نظارات".. رابط التقديم
--  Документалният "Ваклуш" селектиран за международен кино фестивал
--  La contundente respuesta de Wanda Nara a la China Suárez ante las acusaciones de plagio
+-  تنقيط أداء لاعبي المنتخب الوطني أمام الكونغو الديمقراطية
+-  La India viste con flores y luces un histórico templo hindú en vísperas de su inauguración
+-  BRED PIT JE INTENZIVNO VEŽBAO I IŠAO U SOLARIJUM DA BI IZGLEDAO SVE BOLJE: Kritika danas kultnog filma BORILAČKI KLUB iz 1999!
+-  Sultanlar Ligi'nde Vakıfbank Galatasaray Daikin'e set vermedi
+-  США, Египет и Катар продвигают новую сделку по освобождению заложников в Газе
+-  Mocne słowa o siatkarzach! "To nie jest Złote Pokolenie"
+-  Bitcoin Lightning Network Accomplished the Vertical Growth
+-  Berniat Lindungi Masyarakat Adat, Mahfud Tunjuk Tumbler 'No One Left Behind' di Debat
+-  Esra Ezmeci'nin gizemli sevgilisi 'deşifre' oldu
+-  Борнемут - Ливърпул /състави/
