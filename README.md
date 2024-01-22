@@ -1,11 +1,11 @@
 # Latest News
--  NOVI UDARI Izrael bombardirao jug Gaze
--  Wanita Keturunan India Nikki Haley Coba Kalahkan Trump, Ini Strategi Gerilyanya
--  Gaziantep'te Şehit Kamil’i anma yarışları büyük ilgiyle gerçekleştirildi
--  4D LOTTO RESULT Today, Monday, January 22, 2024
--  Ярмольник раскрыл причину отказа от звания народного артиста
--  Reconoce el impacto en línea en el Día Mundial del Community Manager
--  Yılmaz Vural'ın Menemen FK'sından kritik galibiyet
--  En France, le sexisme s’accentue, notamment chez les jeunes hommes
--  iBilib: Guessing famous countries with the help of emojis!
--  Hơn 1.000 VĐV dự giải marathon vì an toàn giao thông quốc gia Điện Biên Phủ 2024
+-  A Jenzat, "L'Essentiel" finira-t-il par manquer ?
+-  Đề xuất đầu tư 35.588 tỉ đồng làm tuyến metro dài 11,5 km
+-  Türk teknoloji girişimcileri yenilikçi teknolojilerini CES'te sergiledi
+-  A Jenzat, "L'Essentiel" finira-t-il par manquer ?
+-  Jakov Kitarović u još jednom izlasku bez supruge Kolinde, no našao je društvo u kojem je uživao
+-  Камил Гаджиев посоветовал Вартаняну подписаться в Bellator и PFL
+-  Van'da yolcu minibüsü devrildi: Yaralı sayısı 27’ye yükseldi
+-  Yılmaz Vural'ın Menemen'i pes etmedi!
+-  ΚΕΦΙΜ: Η έλλειψη κεφαλαιοποιητικού συστήματος συνταξιοδότησης κοστίζει 770 ευρώ ετησίως σε κάθε Έλληνα
+-  2 Pengedar Narkoba Jaringan Internasional Ditangkap Polda Riau, Lihat Barang Buktinya
