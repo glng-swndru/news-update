@@ -1,11 +1,11 @@
 # Latest News
--  Članica britanske kraljevske obitelji opet se suočava s teškom dijagnozom, nakon što je nedavno pobijedila zloćudnu bolest
--  Empat individu didakwa curi, lupus 442 kad akses sistem milik TM
--  – Det er bra at det stilles krav til oss
--  Petition to reinstate bus service after village is cut off
--  heise+ | Kreativ werden mit KI: Web-Tools für Bilder, Videos, Musik und Texte
--  "J'y pense", face à Natalie Portman, Laurent Delahousse fait une annonce fracassante
--  El tiempo en Extremadura: alerta amarilla por nieblas y temperaturas en ascenso
--  Як банки переживають другий рік великої війни
--  Lukijalta | Ylellä ei ole sovellusta teksti-tv:lle – käyttösopimuksia lienee rikottu
--  Worthing man running length of Africa eyes Sahara Desert
+-  Truy nã 'nữ quái' lừa đưa người ra nước ngoài làm việc cho tổ chức tội phạm
+-  Tàu bỏ hoang thành điểm check-in 'độc nhất vô nhị'
+-  Huge amounts of land at the Port Talbot steelworks won't be needed in future - Wales Online
+-  [오늘 A주] 금리동결·트럼프 강경 발언에 일제히 대폭 하락
+-  Estos son los precios del diésel y la gasolina hoy 22 de enero en Córdoba
+-  Синдикатът на германските машинисти свиква поредна, още по-дълга стачка
+-  Građevinska industrija u Nemačkoj otpušta 10 hiljada ljudi
+-  Sandoz-Aktie: Sandoz schnappt sich Augenmedikament Cimerli
+-  Viele Gründer sind zu naiv: Stadt Castrop-Rauxel muss nicht nur fördern, sondern auch fordern
+-  ΥΠΕΞ Ιρλανδίας: Το Ισραήλ θα πρέπει "να λογοδοτήσει" για τη Γάζα
