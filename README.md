@@ -1,11 +1,11 @@
 # Latest News
--  Nem állnak le Hajdúböszörményben: energetikai fejlesztések jönnek, utak is megújulnak
--  India PM opens Hindu temple on razed Babri mosque site
--  Dimethylformamide Market Global Industry Forecast 2018-2028: Significant Growth with a CAGR of 2.93% through 2028, Driven by Rising Demand from Pharmaceutical and Agriculture Industries
--  De shopping: Urbanova y el nuevo mix de retail y food hall en San Isidro
--  Stres kalp sağlığıyla doğrudan ilişkili: Mutlu evlilik ise kalp sağlığına iyi geliyor
--  Atp Finals, c'è l'Intesa (Sanpaolo) per restare a Torino dopo il 2025
--  Prestiti Juve 2023/24: Soulé alla Dybala, a segno altri due giovani
--  شاومي تكشف عن سلسلة هواتف Redmi Note 13، التي ترفع مستوى الهواتف الذكية في الفئة المتوسطة إلى مستويات رائدة
--  Murat Kurum'un hangi takımı tuttuğu ortaya çıktı. Bayrak salladı, 'Vurduğun gol olsun' dedi
--  Pacient rozbil okno, agresia voči lekárnikom stúpa. Sukeľ: Lekárne nie sú obchod
+-  The weird history of a cigarette-smoking, hog-riding monkey and NC barbecue mascot
+-  Viel „Manpower“ und neues Gerät: Jahresversammlung der Dietramszeller Feuerwehr
+-  Бюрократія теж убиває. Що треба знати родинам загиблих захисників, аби отримати виплату
+-  Nic není jen náhoda. Apple Watch už nezměří kyslík v krvi a hodinky Masimo Freedom cítí svou šanci
+-  Hoćemo li prije izbora pitati političare o seksualnoj orijentaciji i ljubavnici?
+-  TMMOB Makina Mühendisleri Odası Bursa Şubesinde plaket töreni ve TSM 20. yılı özel konseri gerçekleştirildi
+-  Aseguran que si bien el precio de la carne bajó, no remontaron las ventas
+-  2 Stocks Down 74% and 92% to Buy Right Now
+-  Messi juega en el frío de Dallas el segundo amistoso de la pretemporada de Inter Miami
+-  Раздаем добро и увлечения: бесплатная книжная ярмарка Апельсина
