@@ -1,11 +1,11 @@
 # Latest News
--  Kira kavgasında eniştesini öldürdü
--  Ce film de science-fiction est le plus cher de l'histoire du cinéma français et il est disponible gratuitement en streaming
--  Yola düşen dev kayalar Ankara yolunu ulaşıma kapattı
--  4 شروط يجب توافرها في التاجر للمشاركة برد الضريبة للسياح
--  Konkurrent von Donald Trump: Ron DeSantis beendet Kandidatur als US-Präsidentschaftsbewerber
--  Hiszpańskie media mówią jednym głosem. To sygnał alarmowy dla Lewandowskiego
--  TRUDNA MINA JE PROLAZILA KROZ AGONIJU! Amidžić otkrio sve: Vređali su je ni krivu ni dužnu
--  Hiszpańskie media mówią jednym głosem. To sygnał alarmowy dla Lewandowskiego
--  رسميا.. الشباب يعلن رحيل إيفر بانيغا
--  Instagram'a yeni özellik geliyor: Takip nedenini belirtmek zorunlu olacak
+-  Police investigating after trailer loaded with pistachios stolen
+-  "Vai a quel paese". Romina Power e Mara Venier, che imbarazzo a Domenica In (davanti ad Al Bano)
+-  Marrakech : Arrestation d’un Britannique pour faux, usage de faux et usurpation d’identité
+-  Los veteranos cierran el curso de campo a través regional
+-  POŠALICA NA ŠEST ŽICA: SNP priprema premijeru „Mišje groznice“ Aleksandra Popovića
+-  Vojvodkyni z Yorku diagnostikovali malígny melanóm
+-  انطلاق الملتقى العماني اليمني لرجال الأعمال في ظفار العمانية الأربعاء القادم
+-  Jokić je najbolji ikada! Srbin je na ovoj listi ubedljivo prvi, prestigao čak i Majkla Džordana
+-  Yusuf Kavaklı Hoca'nın sinirden köpürdüğü anlar
+-  Dregur framboðið til baka og styður Trump
