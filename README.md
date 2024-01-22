@@ -1,11 +1,11 @@
 # Latest News
--  Police investigating after trailer loaded with pistachios stolen
--  "Vai a quel paese". Romina Power e Mara Venier, che imbarazzo a Domenica In (davanti ad Al Bano)
--  Marrakech : Arrestation d’un Britannique pour faux, usage de faux et usurpation d’identité
--  Los veteranos cierran el curso de campo a través regional
--  POŠALICA NA ŠEST ŽICA: SNP priprema premijeru „Mišje groznice“ Aleksandra Popovića
--  Vojvodkyni z Yorku diagnostikovali malígny melanóm
--  انطلاق الملتقى العماني اليمني لرجال الأعمال في ظفار العمانية الأربعاء القادم
--  Jokić je najbolji ikada! Srbin je na ovoj listi ubedljivo prvi, prestigao čak i Majkla Džordana
--  Yusuf Kavaklı Hoca'nın sinirden köpürdüğü anlar
--  Dregur framboðið til baka og styður Trump
+-  목원대, 베트남 하우장성과 인재 양성 교류 업무협약
+-  Solili smo šokol s domaćinom Šimom Skočićem iz Nina: ‘Nije ovo buđola niti suha vratina, bitni su začini, bura i... to je tajna‘
+-  Άρης Καβατζίκης: Και 10.000 ευρώ να μου δώσεις τον μήνα, δεν το ξανανακάνω αυτό
+-  Ottawa vyhrala vo Philadelphii 5:3, Pinto pri návrate s asistenciou
+-  Sivas'ta Kur'an-ı Kerim'e alçak saldırı! Valilikten açıklama geldi
+-  駒大・鈴木芽吹が「恩返し」の７区区間賞 長野県の大会新＆3連覇に貢献…全国都道府県対抗男子駅伝 - スポーツ報知
+-  LEDENA OLUJA U SAD-u Poginulo gotovo 90 ljudi
+-  Volkswagen na domačih tleh prehitel Teslo
+-  IBES 2024: Dschungelcamp-Kandidatin – so sah Cora Schumacher vor den Beauty-Eingriffen aus
+-  Hamas admite ‘erros’ que causaram mortes de civis durante ataque em Israel
