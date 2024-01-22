@@ -1,11 +1,11 @@
 # Latest News
--  İspanya'da Girona fırtınası dinmiyor!
--  Lecce-Juventus 0-3: le pagelle, il tabellino e tutti i risultati della 21^ giornata di Serie A
--  Daley Blind herovert met Girona koppositie na hattrick binnen 7 minuten van Artem Dovbyk
--  Parrilla Don Julio: la verdadera historia detrás del éxito
--  天皇皇后両陛下 被災地へのご訪問のタイミングはいつになる？
--  Much of US still gripped by Arctic weather as Memphis deals with numerous broken water pipes
--  Источник сообщил о поножовщине в ресторане Махачкалы
--  女子卓球 パリ五輪切符に伏兵も
--  悠仁さまのトンボ論文が閲覧数で全国2位の快挙 忍耐力に研究者も脱帽？
--  All-way stop coming to fast-moving Port Robinson intersection
+-  사우디 2연승, 16강행 확정
+-  Novi prostori krajevne knjižnice v Borovnici
+-  D’Aversa a DAZN: «Partita equilibrata fino al primo gol. La Juve ha meritato»
+-  La Juve vince a Lecce: super Vlahovic, è sorpasso virtuale all'Inter
+-  哈瑪斯提撤軍換釋放人質 納坦雅胡拒絕「投降條件」
+-  Best-Sounding Wireless Earbuds in 2024: Get Top Sound Quality - CNET
+-  Best-Sounding Wireless Earbuds in 2024: Get Top Sound Quality - CNET
+-  Madridčane klici iz sobe za VAR rešili pred senzacionalnim porazom
+-  Madridčane klici iz sobe za VAR rešili pred senzacionalnim porazom
+-  Best-Sounding Wireless Earbuds in 2024: Get Top Sound Quality - CNET
