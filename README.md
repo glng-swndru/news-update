@@ -1,11 +1,11 @@
 # Latest News
--  تنقيط أداء لاعبي المنتخب الوطني أمام الكونغو الديمقراطية
--  La India viste con flores y luces un histórico templo hindú en vísperas de su inauguración
--  BRED PIT JE INTENZIVNO VEŽBAO I IŠAO U SOLARIJUM DA BI IZGLEDAO SVE BOLJE: Kritika danas kultnog filma BORILAČKI KLUB iz 1999!
--  Sultanlar Ligi'nde Vakıfbank Galatasaray Daikin'e set vermedi
--  США, Египет и Катар продвигают новую сделку по освобождению заложников в Газе
--  Mocne słowa o siatkarzach! "To nie jest Złote Pokolenie"
--  Bitcoin Lightning Network Accomplished the Vertical Growth
--  Berniat Lindungi Masyarakat Adat, Mahfud Tunjuk Tumbler 'No One Left Behind' di Debat
--  Esra Ezmeci'nin gizemli sevgilisi 'deşifre' oldu
--  Борнемут - Ливърпул /състави/
+-  Auch am Sonntag Massen-Demos gegen Rechtsextremismus
+-  Шофьорите вече виждат и невръчените глоби (обзор) - Труд
+-  Leci Brandão está internada em SP por causa de problema vascular
+-  Yap-İşlet-Devret bütçeyi bitirdi
+-  Krievijas vadonis Putins februāra sākumā ieradīsies Ankarā
+-  10 Makanan yang Bisa Merusak Hati, Sama Bahayanya Seperti Alkohol
+-  6 مئوية.. 4 أماكن تسجل أقل درجات حرارة في المملكة
+-  Jak fotí Samsung Galaxy S24 Ultra. Podívejte se na ukázkové snímky a videa, která jsme pořídili v USA
+-  Misteriosul caz Andreea Rabciuc. ”El se teme foarte tare și spune că este nevinovat.” Noi detalii despre dispariție
+-  Sen. Jeremy Miller talks new sports betting proposal
