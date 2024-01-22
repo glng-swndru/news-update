@@ -1,11 +1,11 @@
 # Latest News
--  AfD-Jugendorganisation: Grünen-Chef Nouripour spricht sich für Verbot der Jungen Alternative aus
--  Football Fever Grips Kashmir Valley
--  CAN 2024: Le Maroc tenu en échec par la RDC
--  AK Parti İstanbul adayı Murat Kurum: Bu vatanın bir karış toprağını böldürmeyeceğiz
--  Jota skoraði tvö á níu mínútum - Bradley með stoðsendingu
--  Netanyahu'ya soğuk duş: Savunma Bakanı açıklamalarını çok sert eleştirdi
--  В ДНР при обстрелах ВСУ за день погибли 28 человек
--  Щефан Крафт спечели трета поредна победа в Закопане, Зографски не прескочи първия кръг
--  هكذا تفاعل بلماضي وأشباله مع الأنصار في محيط مقر التدريبات.. شاهد:
--  Walentina Doronina äußert sich zu den Trennungsgerüchten
+-  IDL wins two SLIM NASCO Awards
+-  Antalya'da kayıp genç otogarda bulundu
+-  Curieus: Mathieu van der Poel valt, Wout van Aert wint zónder zadel
+-  Φίλιππος Σοφιανός: Πάντα υπήρχε ένα νήμα που με έδενε με τη Ρίκα Βαγιάννη
+-  Qué sucede si tomo leche con ajo todas las noches
+-  Doméstica habla sobre mujer que murió tras fumigación en Piantini
+-  Gracyanne Barbosa não vai desfilar no Carnaval 2024 por lesão no joelho
+-  Angeschlagen? HSV-Torschütze hat „wieder einen Schlag“ kassiert
+-  Rize'de iki araç çarpıştı! 6 kişi yaralandı
+-  Atletizmde iki Türkiye rekoru kırıldı
