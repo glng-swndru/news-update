@@ -1,11 +1,11 @@
 # Latest News
--  Court sets Feb 13 to charge Emraz Travel, two directors for fraud
--  Đaci se vraćaju u klupe, počinje drugo polugodište! Evo kad će sledeći raspust
--  Άντζελα Δημητρίου: Με καταβεβλημένο ύφος και μαυροφορεμένη
--  ইরানের পাঠানো অস্ত্র জব্দে সাগরে অভিযান চালানো দুই সেনাকে মৃত ঘোষণা যুক্তরাষ্ট্রের
--  서울시 지원 소상공인 1년 생존율 94%… 전국 평균 대비 30%p↑
--  아시아나항공, 김포공항서 국제선 승객 몸무게 측정
--  “Molla Nəsrəddin”in maskası açıldı
--  Турция предъявила ультиматум западной разведке
--  Zdravniki zaostrujejo stavko, vsak zavod po svoje
--  تخصيص الطاقة.. تنظيم جديد لترشيد الاستهلاك وتعزيز الاقتصاد
+-  Wanted man charged after dramatic police chase through Brisbane
+-  Hãng xe của tỉ phú Phạm Nhật Vượng cho thuê xe tự lái dịp Tết
+-  Παναθηναϊκός - Ολυμπιακός: Και τώρα η ώρα των «αιωνίων»
+-  5 hərbçini öldürən əsgər saxlanıldı
+-  Cyclone Kirrily 'certain' to hit Queensland coast on Thursday
+-  Der Tag in Luxemburg: Meteolux warnt vor Sturmböen
+-  3.124 ehrenamtliche Projekte von Ford-Beschäftigten
+-  ラックの情報リテラシー教材、新版で「生成AI」の項目を追加
+-  "ŽELIM DA UMREM" Na sahrani Pavla Vuisića niko nije bio osim sveštenika I NJE: A razlog se krije u testamentu
+-  美 나사, 소행성 ‘베누’서 채취한 샘플 담은 용기 4개월만에 개봉
