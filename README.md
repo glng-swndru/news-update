@@ -1,11 +1,11 @@
 # Latest News
--  OFICIAL: Benfica empresta Jurásek ao Hoffenheim
--  Továbbra is az LCD-ben bízik a TCL
--  Hraunrennsli þótti líklegast í Grindavík
--  Геймърите са застрашени от необратима загуба на слуха
--  12月外銷訂單翻黑 2023全年衰退近16％
--  Minnesota hosts Washington after Kaprizov's hat trick
--  La Policía Local de Albacete participa en la Campaña de control del Transporte Escolar que se celebra esta semana en la ciudad
--  "Die Apothekerin": Kühlen bitte! Was Sie bei Fieber tun sollten – und was auf keinen Fall
--  GOLEADA U NAJAVI: Ovi rivali igraju utakmice sa velikim brojem pogodaka
--  Bakan Özhaseki'den kuvvetli ve yoğun kar yağışı
+-  Stellantis ai fornitori: "Venite in Marocco". Il governo chiama Elkann?
+-  Punk rockerji so nasadili Trumpa
+-  Galaxy S24 daha yeni çıktı: Galaxy S25'ten ilk bilgi geldi
+-  Kılıçdaroğlu'ndan Kamer Genç paylaşımı
+-  TUDENGID ⟩ Õpetajate palgaraha ei saa röövida kõrghariduselt
+-  Vote! Bayern Munich 0 - 1 Werder Bremen: Community player ratings
+-  Nga gặp hàng loạt sự cố máy bay sau khi bị phương Tây trừng phạt
+-  «Наполи» и «Интер» решают судьбу Суперкубка Италии. Следите за развязкой с бесплатными трансляциями от Winline!
+-  Gemeinschaftliches Wohnen: Willst du mit uns leben?
+-  Viktor Orbáns teure Tasse Kaffee
