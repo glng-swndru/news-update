@@ -1,11 +1,11 @@
 # Latest News
--  Kako razgovarati s djecom o smrti? Ove kreativne logopetkinje podučit će vas toj i mnogim drugim vještinama
--  Protest gegen rechts im Kreis Böblingen: Herrenberger Marsch für die Demokratie
--  Retegui torna al gol: l'italo-argentino supera Ochoa, è 1-1 fra Salernitana e Genoa
--  Jonnie Irwin 'empowered' after buying 'weeks and months' to live amid cancer battle
--  Protest gegen rechts im Kreis Böblingen: Herrenberger Marsch für die Demokratie
--  Emekli polis, evinde ölü bulundu
--  Ardèche. Vœux et projets pour le centre hospitalier Elisée Charra à Lamastre
--  Rodinná tragédia pri Trenčíne: Otec so synom si ľahli na koľajnice, zrazil ich vlak
--  Lanišek tretji v Zakopanah, Slovenija brez zmage na poljski turneji
--  Devrim Barçın: Sosyal konut bahane, rant şahane
+-  Čak pet pripadnika udarne splitske brigade umrlo u samo 20 dana: ‘Odlaze pomalo, tiho i bešćutno‘
+-  Rīgā "Lexus" automašīna iebraukusi kanalizācijas šahtā
+-  Айнтрахт се договори с ПСЖ за своя цел още от лятото
+-  "Реал" обыграл аутсайдера Ла Лиги, забив победный гол на 99-й минуте
+-  صيانة وتجهيز للقطارات.. وزير النقل يتفقد ورش أسوان للسكك الحديدية
+-  מחצית ראשונה: בטיס - ברצלונה 0:0
+-  Sceny w Madrycie. Sędzia doliczył 11 minut i Real uniknął blamażu. Trener nie wytrzymał
+-  Hiába a csodagól, elmaradt a világraszóló szenzáció a Real Madrid mérkőzésén
+-  İşgalci İsrail, Lübnan'da Hizbullah'a ait sağlık merkezini hedef aldı
+-  Ram Mandir Pran Pratishtha ceremony: World on its feet as countdown begins for consecration; Ayodhya decked up with flowers, lights
