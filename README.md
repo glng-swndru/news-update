@@ -1,11 +1,11 @@
 # Latest News
--  Jastremska apspēlē Ostapenko pāridarītāju un pirmoreiz tiek "Grand Slam" 1/4 finālā
--  Aus für Lila Bäcker ++ Krise bei ZF ++ Waschbären-Wurst
--  Crisis económica y terrorismo: los riesgos que amenazan a Ecuador
--  El retorno a la presencialidad atemoriza a los universitarios
--  Auswertung von Mobilfunkdaten | 34 Prozent der Nachtslalom-Fans kommen aus dem Ausland
--  Bauernproteste: So geht es in OPR weiter +++ „Volksdemo“ in Kyritz geplant +++ RB 73/74: Kritik an Vorgaben aus Potsdam +++
--  Un 25 % de expertos estiman viable bajar la jornada laboral con el mismo sueldo
--  Los efectos secundarios del conflicto armado interno
--  Сорокин стал второй звездой матча «Айлендерс» — «Даллас»
--  Cabby who allegedly pushed driver into drain during expressway dispute to be charged - CNA
+-  Không dùng thẻ tín dụng liệu có phải là quyết định đúng đắn ở thời điểm bây giờ?
+-  Какие соцвыплаты получают казахстанцы
+-  Руководители трех отделов районного акимата привлечены к ответственности в ВКО
+-  Zetrix, Web3Labs & Summer Capital to Accelerate HK's Web3 Roadmap Initiatives
+-  Houses for $110k? Vic regions’ most affordable streets revealed
+-  Bills Mafia takes over NYC, but then suffers crushing defeat
+-  İzmir'de vapur seferleri yeniden başladı
+-  [단독]일본만화 거장 후지사와 토오루 “‘경성크리처’ 인상깊게 봤다”
+-  床以外都是遠方！醫揭「天冷就想賴床」原因：務必注意「四床」
+-  伊利諾州4女中彈陳屍家中！ 人夫「親手射殺妻女」自行報警
