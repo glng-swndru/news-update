@@ -1,11 +1,11 @@
 # Latest News
--  Ο Φρόιντφελντ έστησε τα μέλη στην τηλεδιάσκεψη: «Παίρνει 15.000, το... φάντασμα», είπε ο Καραπαπάς
--  Široki sporazumno raskinuo s Vrcićem
--  Не стихват протестите срещу "Алтернатива за Германия" след неонацистката среща в Потдсам
--  "Plan rasta za Zapadni Balkan prilika za sve, da počne što prije"
--  Zelenski cree en una «salida política» para que Ucrania recupere su independencia
--  與내부 공멸 위기감에 “총선 80일도 안남아…지도부 흔들리면 선거에 악영향”
--  &quot;NEMAČKOJ SE SAD SVE VRATILO KAO BUMERANG&quot; Rodić: &quot;Tačno je ono što je VučIć rekao, da je uveo sankcije Rusiji...&quot;(FOTO)
--  "Haber Global" Sevda Ələkbərzadədən yazdı
--  YLB prepara segunda convocatoria internacional para industrializar litio
--  Quebrando: Capítulo 11 ou Golpe de Saída? O futuro obscuro da TerraUSD e da Luna após a falência
+-  Nem állnak le Hajdúböszörményben: energetikai fejlesztések jönnek, utak is megújulnak
+-  India PM opens Hindu temple on razed Babri mosque site
+-  Dimethylformamide Market Global Industry Forecast 2018-2028: Significant Growth with a CAGR of 2.93% through 2028, Driven by Rising Demand from Pharmaceutical and Agriculture Industries
+-  De shopping: Urbanova y el nuevo mix de retail y food hall en San Isidro
+-  Stres kalp sağlığıyla doğrudan ilişkili: Mutlu evlilik ise kalp sağlığına iyi geliyor
+-  Atp Finals, c'è l'Intesa (Sanpaolo) per restare a Torino dopo il 2025
+-  Prestiti Juve 2023/24: Soulé alla Dybala, a segno altri due giovani
+-  شاومي تكشف عن سلسلة هواتف Redmi Note 13، التي ترفع مستوى الهواتف الذكية في الفئة المتوسطة إلى مستويات رائدة
+-  Murat Kurum'un hangi takımı tuttuğu ortaya çıktı. Bayrak salladı, 'Vurduğun gol olsun' dedi
+-  Pacient rozbil okno, agresia voči lekárnikom stúpa. Sukeľ: Lekárne nie sú obchod
