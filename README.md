@@ -1,11 +1,11 @@
 # Latest News
--  목원대, 베트남 하우장성과 인재 양성 교류 업무협약
--  Solili smo šokol s domaćinom Šimom Skočićem iz Nina: ‘Nije ovo buđola niti suha vratina, bitni su začini, bura i... to je tajna‘
--  Άρης Καβατζίκης: Και 10.000 ευρώ να μου δώσεις τον μήνα, δεν το ξανανακάνω αυτό
--  Ottawa vyhrala vo Philadelphii 5:3, Pinto pri návrate s asistenciou
--  Sivas'ta Kur'an-ı Kerim'e alçak saldırı! Valilikten açıklama geldi
--  駒大・鈴木芽吹が「恩返し」の７区区間賞 長野県の大会新＆3連覇に貢献…全国都道府県対抗男子駅伝 - スポーツ報知
--  LEDENA OLUJA U SAD-u Poginulo gotovo 90 ljudi
--  Volkswagen na domačih tleh prehitel Teslo
--  IBES 2024: Dschungelcamp-Kandidatin – so sah Cora Schumacher vor den Beauty-Eingriffen aus
--  Hamas admite ‘erros’ que causaram mortes de civis durante ataque em Israel
+-  Palmeiras sofre gol no último minuto e estreia com empate no Paulista
+-  Sinfra volta a licitar pavimentação de trecho da MT-402 em Cuiabá; R$ 15,7 milhões
+-  Турска лира - лев. Колко струва една турска лира към един български лев днес, 22 януари /валутен калкулатор/
+-  سايس يوجه رسالة تهدئة بعد أحداث نهاية مباراة الأسود والكونغو الديمقراطية(صورة)
+-  سايس يوجه رسالة تهدئة بعد أحداث نهاية مباراة الأسود والكونغو الديمقراطية(صورة)
+-  [날씨] 밤사이 기온 '뚝'…이번 주 내내 강추위
+-  Palmeiras sofre gol no último minuto e estreia com empate no Paulista
+-  Palmeiras leva gol no último minuto e empata com o Novorizontino em estreia no Paulistão
+-  Yes, There Will Be 2 Sisters on ‘Bachelor’ Season 28: What to Know
+-  Движение к КПП «Верхний Ларс» закрыли для грузовиков из-за непогоды
