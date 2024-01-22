@@ -1,11 +1,11 @@
 # Latest News
--  INSÄNDARE: Lång leveranstid av julkort
--  INSÄNDARE: Lång leveranstid av julkort
--  В лева или в евро: 4 зодии ще забогатеят в понеделник!
--  Επίδομα θέρμανσης με ρεύμα: Τα εισοδηματικά κριτήρια για τους δικαιούχους
--  Αφγανιστάν: Συνελήφθη ο ανταποκριτής του ιαπωνικού πρακτορείου ειδήσεων Kyodo
--  3 tháng đầu tiên năm Giáp Thìn 2024, 4 con giáp này được cát tinh hỗ trợ, tài lộc dồi dào, may mắn đủ đường
--  נתניהו שוכח: אנחנו שונאים להפסיד יותר מאשר אנחנו אוהבים לנצח
--  Krishna Mukunda Murari Serial Today January 22nd: మురారి, కృష్ణ మాటలు విని ఆదర్శ్‌ ఇంటికి తిరిగి వస్తాడా.. ముకుందని ఇంకా ప్రేమిస్తున్నాడా!
--  민주 '9호 영입인재' 공영운 전 현대차 사장…"3% 성장, 구현 방법 찾을 것"
--  RECHERCHE SCIENTIFIQUE - Le directeur du parc Tsimbazaza suspendu
+-  Vì sao sầu riêng Việt Nam bị EU kiểm tra thuốc trừ sâu?
+-  3張千萬發票沒人領 叫過熊貓外送快來看！
+-  【暴走車】マンション突っ込み“6人重軽傷”直前に接触事故―離れた隙に車が動き出し…急いで止めようと「アクセルとブレーキを踏み間違えた」ギア操作が原因か
+-  رواية صحيح انا ما عطيتك اللي تتمنينه لكن وشكثر احبك -2
+-  Salon museoille suunnitellaan järeää yhteisvarastoa – 2 000 neliömetrin betonihalli Metsäjaanuun
+-  وفيات الاثنين .. 22 / 1 / 2024
+-  さぁ3学期！札幌の小学校“始業式”―子どもたち元気に登校 冬ならではのスキー授業に期待 大谷翔平選手がプレゼントしたグローブ手渡される場面に興奮も
+-  Pengacara di Bali Berbondong-bondong Perkuat Tim Hukum Ganjar – Mahfud, Makin Kuat
+-  Muhaimin Moncer saat Debat Cawapres, Tak Cuma Gesturnya
+-  Гриценко и Аванесов заняли 3-е место в синхронных прыжках с вышки в Ростоке
