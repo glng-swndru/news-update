@@ -1,11 +1,11 @@
 # Latest News
--  LIVE buitenlands voetbal | Heerlijke goal Wijndal bij winnend Antwerp, De Ligt in actie met Bayern
--  Mnichov zrušil demonstraci proti extremismu kvůli velkému počtu účastníků
--  Huancayo: Matrimonio rápido y barato en las notarías
--  Мостовой: «Для меня важно отличаться результативными действиями на сборах»
--  Çankırı'da kar yağışı etkili oldu
--  Muş-Mutki yolunda tipi! 70 kişi kurtarıldı
--  Rujak Cingur Lek Har, Lokadrama Universe Lara Ati Bercerita Resep Rahasia
--  Шест народа славят делото на св.св. Кирил и Методий в римска базилика
--  V Německu opět demonstrovaly proti pravicovému extremismu statisíce lidí
--  Mnichov zrušil demonstraci proti extremismu kvůli velkému počtu účastníků
+-  「キング・オブ・ドンキーコング」ビリー・ミッチェル氏の世界記録が復活、不正疑惑はハードウェア不具合との指摘
+-  Nestvaran gol zasenio majstoriju Maksimovića VIDEO
+-  "Una vergogna, ma grazie a questi scemi...". Maignan e i razzisti, la lezione di Matteo Salvini
+-  Konec otravného chrápání. Chytrý polštář se nafoukne, aby vám posunul hlavu. Nastavíte ho z mobilu
+-  NI STIDA NI SRAMA! Krao novac iz crkve, pa mu i to bilo malo, najgore od svega što ovo nije prvi put! (VIDEO)
+-  Mega-Sena acumula e próximo prêmio é estimado em R$ 38 milhões
+-  Зеленський: Україні не потрібні солдати НАТО, дайте нам зброю і технології
+-  Осасуна переграла Хетафе: результати матчів 21 туру Ла-Ліги
+-  الذهب في منافسة مع سوق الأسهم.. من ينتصر؟
+-  La condecorada labor de Mali, el perro héroe de guerra que salvó la vida de su equipo en Afganistán
