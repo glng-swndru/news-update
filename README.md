@@ -1,11 +1,11 @@
 # Latest News
--  Luật Đất đai (sửa đổi): Giảm thủ tục, tăng quyền cho địa phương
--  Renault'dan şaşırtan hamle: Tüm fiyatlar sil baştan! En ucuzu o seviyede
--  Ünlü oyuncu 26 bin Euro'luk saati için gözaltına alındı. 35 bin Euro ceza ödedi
--  Segurança de SP anuncia novas operações Escudo após ataques a 5 policiais
--  Создан предсказывающий срок жизни человека ИИ
--  Apple đề xuất cho phép đối thủ quyền truy cập công nghệ thanh toán di động
--  Công an quận 12 bắt Bi Thái Tử
--  The Times назвало середній вік бійця ЗСУ
--  ThinkPad Z13 Gen 2 dizüstü bilgisayar incelemesi: Lenovo'nun Dell XPS 13'e cevabı
--  One Piece Anime Officially Introduces Egghead Island
+-  Cuaca Surabaya Hari ini, Sore Gerimis, Malam Diguyur Hujan Lebat
+-  Giá vàng năm 2024 và 2025 sẽ thế nào?
+-  Cơ hội nào cho các nhà đầu tư căn hộ chung cư trong năm 2024?
+-  Cẩm nang Tết 2024: Bí quyết chi tiêu mà vẫn tiết kiệm với thẻ VIB
+-  Klasemen Lengkap Grup Piala Asia 2023: Arab Saudi ke 16 Besar, Indonesia Masih Berpeluang
+-  Detroit Lions noch einen Sieg von Super-Bowl-Einzug entfernt
+-  Detroit Lions noch einen Sieg von Super-Bowl-Einzug entfernt
+-  Packers fans gather at Lambeau Southeast
+-  台積電漲7元至633 指數漲逾140點站上17800
+-  Trudeau condemns human rights violations in Sri Lanka
