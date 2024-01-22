@@ -1,11 +1,11 @@
 # Latest News
--  IDL wins two SLIM NASCO Awards
--  Antalya'da kayıp genç otogarda bulundu
--  Curieus: Mathieu van der Poel valt, Wout van Aert wint zónder zadel
--  Φίλιππος Σοφιανός: Πάντα υπήρχε ένα νήμα που με έδενε με τη Ρίκα Βαγιάννη
--  Qué sucede si tomo leche con ajo todas las noches
--  Doméstica habla sobre mujer que murió tras fumigación en Piantini
--  Gracyanne Barbosa não vai desfilar no Carnaval 2024 por lesão no joelho
--  Angeschlagen? HSV-Torschütze hat „wieder einen Schlag“ kassiert
--  Rize'de iki araç çarpıştı! 6 kişi yaralandı
--  Atletizmde iki Türkiye rekoru kırıldı
+-  Sparta-Frauen verlieren nach Verlängerung, die Bartringer Männer bezwingen Heffingen
+-  NESVAKIDAŠNJA SITUACIJA: Bizaran rezultat Žalgirisa pred gostovanje Partizanu
+-  Actor de Like a Dragon: Infinite Wealth critica el juego y se gana el aplauso de los fans
+-  Чехия обновит ВВС самолетами F-35
+-  Vantrauststillaga vofir yfir: Vinstri grænir þegja
+-  O eski halinden eser yok şimdi!
+-  Șase cadavre au fost găsite pe plaje din Antalya în cinci zile. Ce teorie au autoritățile
+-  Burn-off at Burnaby refinery behind smelly Sunday morning in Vancouver: Fire Chief (BC)
+-  'Dur' ihtarına uymayarak kaçan 2 motosikletli uyuşturucu ve silahla yakalandı
+-  Dodaj odrobinę do ciasta. Pączki długo pozostaną świeże i puszyste
