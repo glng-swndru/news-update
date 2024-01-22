@@ -1,11 +1,11 @@
 # Latest News
--  Na ljeto brodska linija Budva - Dubrovnik, cilj je rasterećenje Karasovića?
--  VRAŽDA neďaleko Nitry: O život prišiel 33-ročný muž
--  ‘Pran Pratishtha’: Kangana Ranaut Takes Part In Temple Cleaning At Ayodhya's Hanuman Garhi
--  Dagersättning höjs inte för ukrainska flyktingar
--  Leiden stopt met exposities in het stadhuis. Kunst en overheid: het blijft een moeizame combinatie | column
--  Trabzonspor - Galatasaray maçı öncesi yaşanan son gelişmeler!
--  DVE GODINE SE TRAGALO ZA NJOM Rumuska šampionka posle svađe sa dečkom NESTALA, a sada je njeno telo KONAČNO PRONAĐENO
--  تصل إلى 20 ألف ريال.. عقوبات مخالفة أحكام نظام كاميرات المراقبة
--  Yavru kediyi kurtarmak için trafiği durdurdu
--  Sto.André tem pioneira no Estado a atender o Samu sobre duas rodas
+-  Un pequeño asteroide golpea la Tierra sobre Alemania durante la noche
+-  Fery Farhati dan Mutiara Baswedan Kunjungi Sentra Oleh-oleh Sanjai Balado Ummi Aufa Hakim untuk Dukung UMKM
+-  Kadıköy'de kiralar 3 yılda yüzde 627 arttı, ortalama kira 21 bin TL'yi aştı! Oturulacak ev bulunamıyor!
+-  „Az összes kép elégett” – felbecsülhetetlen értékű műalkotások vesztek oda a XIX. századból
+-  Antalyaspor'da Gerrit Holtmann ile yollar ayrıldı
+-  İstanbul'daki barajların doluluk oranı yüzde 60'ın üzerine çıktı
+-  İsrail'den onay: Vergi gelirleri Filistin yönetimine aktarılacak
+-  Beton elektrik direğine çarpan otomobilde 3 kişi yaralandı
+-  Bullrich garantizó respaldo del Gobierno a quienes trabajen durante el paro: "Hay un protocolo"
+-  VIDEO Gol marcat de Denis Drăguș într-un meci plin de evenimente pentru românii de la Gaziantep
