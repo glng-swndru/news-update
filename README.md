@@ -1,11 +1,11 @@
 # Latest News
--  西方抵制 中電動車擴張將剎車
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  Catch the sounds of the 60s in Cavalcade of Stars at the TIdemark Theatre
--  LETTER: Foreign conflicts being imported to Victoria
--  中職票房挑戰7字頭 靠黃衫軍挺
--  愛德華茲3罰落空 灰狼中止4連勝
--  Russia suspends operations at gas export terminal after drone strike
--  Hollandalı şirket, kartal şeklinde askeri drone üretti
--  白家綺4寶媽 精雕S型身材有法寶
--  В парламенте Словакии рассказали об усталости ЕС от конфликта на Украине
+-  Definen "Cuota Simple", el reemplazo del Ahora 12 tras el derrumbe industrial en diciembre
+-  MPs who visited West Bank urge action against "constant humiliation" of Palestinians
+-  TSK'dan PKK'ya operasyon!
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 22 януари /валутен калкулатор/
+-  EDIN VIŠĆA - NAJBOLJI ASISTENT U HISTORIJI TURSKOG PRVENSTVA
+-  30 Black Shows That Got Cancelled Too Soon
+-  Seis heridos tras choque entre dos autos por ruta 9, cerca de la ciudad de Rocha
+-  Saturday Night Live: Rachel McAdams, Renee Rapp, and Megan Thee Stallion Recreate Spider-Man Meme
+-  Del Piero avvisa il Napoli: "L'Inter non ha punti deboli. In Finale può succedere di tutto"
+-  100 Jahre Lenin-Mumie: Revolutionsführer bis heute präsent
