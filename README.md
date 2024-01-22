@@ -1,11 +1,11 @@
 # Latest News
--  A Jenzat, "L'Essentiel" finira-t-il par manquer ?
--  Đề xuất đầu tư 35.588 tỉ đồng làm tuyến metro dài 11,5 km
--  Türk teknoloji girişimcileri yenilikçi teknolojilerini CES'te sergiledi
--  A Jenzat, "L'Essentiel" finira-t-il par manquer ?
--  Jakov Kitarović u još jednom izlasku bez supruge Kolinde, no našao je društvo u kojem je uživao
--  Камил Гаджиев посоветовал Вартаняну подписаться в Bellator и PFL
--  Van'da yolcu minibüsü devrildi: Yaralı sayısı 27’ye yükseldi
--  Yılmaz Vural'ın Menemen'i pes etmedi!
--  ΚΕΦΙΜ: Η έλλειψη κεφαλαιοποιητικού συστήματος συνταξιοδότησης κοστίζει 770 ευρώ ετησίως σε κάθε Έλληνα
--  2 Pengedar Narkoba Jaringan Internasional Ditangkap Polda Riau, Lihat Barang Buktinya
+-  OFICIAL: Benfica empresta Jurásek ao Hoffenheim
+-  Továbbra is az LCD-ben bízik a TCL
+-  Hraunrennsli þótti líklegast í Grindavík
+-  Геймърите са застрашени от необратима загуба на слуха
+-  12月外銷訂單翻黑 2023全年衰退近16％
+-  Minnesota hosts Washington after Kaprizov's hat trick
+-  La Policía Local de Albacete participa en la Campaña de control del Transporte Escolar que se celebra esta semana en la ciudad
+-  "Die Apothekerin": Kühlen bitte! Was Sie bei Fieber tun sollten – und was auf keinen Fall
+-  GOLEADA U NAJAVI: Ovi rivali igraju utakmice sa velikim brojem pogodaka
+-  Bakan Özhaseki'den kuvvetli ve yoğun kar yağışı
