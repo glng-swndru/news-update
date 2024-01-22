@@ -1,11 +1,11 @@
 # Latest News
--  "Elle nous manque" : Mimie Mathy grande absente des "Enfoirés 2024"
--  This Is Me...Now: A Love Story de Jennifer Lopez ganha trailer e data de estreia
--  A surgeon general report once cleared the air about smoking. Is it time for one on vaping?
--  Westfalia Wethmar deklassiert BW Alstedde im Test: Der A-Kreisligist macht es zweistellig
--  NASA’nın Mars helikopteriyle iletişimi koptu: Belirsizlik sürüyor
--  Palworld permette di catturare gli umani, venderli e macellarli
--  Ron DeSantis ends his struggling presidential bid before New Hampshire and endorses Donald Trump (World)
--  Prepoznajete li ovog našeg glumca? Gledali smo ga u svima poznatoj emisiji, ali od tada se puno promijenio
--  Bibber-Test bei Tauwetter: VfL Kamen mit erfolgreichem Start gegen Hemer
--  Feng Shui: los zapatos que todas las mujeres deben tener para atraer la abundancia y la fortuna
+-  妹子崩潰：交友軟體用到心累 點出3點特徵「99.99％是詐騙」
+-  UBOJSTVO U SUSJEDSTVU Mladi Afganistanac izbo sunarodnjaka kod migrantkog kampa
+-  Pınar Gültekin ile ilgili o paylaşımlar sonrası harekete geçildi! Rezan Epözdemir: 'Hukuki yollara başvuracağız'
+-  Tumulte zwischen Gurbet Spor und VfK Weddinghofen: Hallenstadtmeisterschaft mit TIU-Überraschung
+-  İran'da bir asker 5 silah arkadaşını öldürdü
+-  BBB 24: Yasmin questiona comentários sobre compulsão alimentar: 'toco na comida, vocês olham'
+-  Oglasilo se resorno ministarstvo: Kasni 17 letova, naložena inspekcija
+-  Alper Gezeravcı, sosyal medya hesabından gelen soruları yanıtladı: Dikkat çekici cevaplar verdi!
+-  Šok za Bayern, ovo mu se nije dogodilo od rujna 2008. godine
+-  BBB 24: Yasmin questiona comentários sobre compulsão alimentar: 'toco na comida, vocês olham'
