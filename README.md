@@ -1,11 +1,11 @@
 # Latest News
--  "الخماسية" أمام وضع خريطة طريق لوقف تعطيل انتخاب الرئيس
--  China holds benchmark lending rates steady
--  Панова вышла в четвертьфинал парного турнира Australian Open
--  Nuggets roll past Wizards as Nikola Jokic pours in 42
--  Ringgit strengthens amid rising geopolitical tensions, oil price potential
--  পৌরনীতি ও নাগরিকতা - দশম শ্রেণি
--  Отряд кораблей Тихоокеанского флота вышел в море
--  China Unicom Helps Villages in Inner Mongolia Go Digital
--  김준호, 예비장모 위해 ‘임영웅 콘서트 투어’ 준비…굿즈도 ‘플렉스’
--  Ram Mandir inauguration: Ayodhya set for grand Pran Pratishtha ceremony today
+-  INSÄNDARE: Lång leveranstid av julkort
+-  INSÄNDARE: Lång leveranstid av julkort
+-  В лева или в евро: 4 зодии ще забогатеят в понеделник!
+-  Επίδομα θέρμανσης με ρεύμα: Τα εισοδηματικά κριτήρια για τους δικαιούχους
+-  Αφγανιστάν: Συνελήφθη ο ανταποκριτής του ιαπωνικού πρακτορείου ειδήσεων Kyodo
+-  3 tháng đầu tiên năm Giáp Thìn 2024, 4 con giáp này được cát tinh hỗ trợ, tài lộc dồi dào, may mắn đủ đường
+-  נתניהו שוכח: אנחנו שונאים להפסיד יותר מאשר אנחנו אוהבים לנצח
+-  Krishna Mukunda Murari Serial Today January 22nd: మురారి, కృష్ణ మాటలు విని ఆదర్శ్‌ ఇంటికి తిరిగి వస్తాడా.. ముకుందని ఇంకా ప్రేమిస్తున్నాడా!
+-  민주 '9호 영입인재' 공영운 전 현대차 사장…"3% 성장, 구현 방법 찾을 것"
+-  RECHERCHE SCIENTIFIQUE - Le directeur du parc Tsimbazaza suspendu
