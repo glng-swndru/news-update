@@ -1,11 +1,11 @@
 # Latest News
--  Paytaxt yollarında tıxac yarandı
--  Конституционен съдия ли ще е Десислава Атанасова през 2030 година
--  El tiempo en Montehermoso: previsión meteorológica para hoy, lunes 22 de enero
--  Kiểu dọn nhà khiến càng dọn càng bẩn, nhiều gia đình đang mắc phải: Nên bỏ ngay!
--  Dịch COVID-19 tăng trở lại: Chủ động phòng ngừa
--  男墜結冰湖16分鐘「只剩頭在水面」 靠寵物犬咬救援繩奇蹟救出
--  尾牙拒收紅包！老闆撂1句話秒抽走 唐從聖後悔了：早知道就不推掉
--  TENISKI DOGAĐAJ DANA: Evo gde možete gledati meč Kecmanović - Alkaraz
--  Loại hạt "trường thọ", tốt cho tim mạch, rang cháy tỏi làm món ăn vặt ngày Tết cực ngon
--  Gaziantep'te kira kavgası: Sezai Altın öldü
+-  "عدسة عُمان" تحصل على أول ترخيص لإنشاء محطة أرضية متصلة بالأقمار الصناعية
+-  Sử dụng 1 tháng, Peugeot 408 ‘siêu lướt’ đầu tiên tại Việt Nam xuống giá khó tin
+-  السبتي يتوجه إلى جنيف للمشاركة في اجتماع منظمة الصحة العالمية
+-  Báo Thái Lan phản ứng khi ngôi vương ĐNÁ của ĐT Việt Nam lung lay
+-  When Lord Ram’s ‘miracle’ scene in Ramayan serial left Ramanand Sagar and crew speechless
+-  CBSE to conduct 10th, 12th exams twice a year from 2024-25 session
+-  DEBATT: Ekonomisk kyla väntar i Nora
+-  Как се прави шкембе чорба по румънски - ето разликата с нашата
+-  Don Janez
+-  DEBATT: Ekonomisk kyla väntar i Nora
