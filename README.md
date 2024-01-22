@@ -1,11 +1,11 @@
 # Latest News
--  The weird history of a cigarette-smoking, hog-riding monkey and NC barbecue mascot
--  Viel „Manpower“ und neues Gerät: Jahresversammlung der Dietramszeller Feuerwehr
--  Бюрократія теж убиває. Що треба знати родинам загиблих захисників, аби отримати виплату
--  Nic není jen náhoda. Apple Watch už nezměří kyslík v krvi a hodinky Masimo Freedom cítí svou šanci
--  Hoćemo li prije izbora pitati političare o seksualnoj orijentaciji i ljubavnici?
--  TMMOB Makina Mühendisleri Odası Bursa Şubesinde plaket töreni ve TSM 20. yılı özel konseri gerçekleştirildi
--  Aseguran que si bien el precio de la carne bajó, no remontaron las ventas
--  2 Stocks Down 74% and 92% to Buy Right Now
--  Messi juega en el frío de Dallas el segundo amistoso de la pretemporada de Inter Miami
--  Раздаем добро и увлечения: бесплатная книжная ярмарка Апельсина
+-  Noodfonds Energie weer open, regeling dit jaar versoepeld
+-  Проф. Кунчев: Пикът на грипа е до седмица, с по 25 хил. заразени дневно
+-  Машков: в поддержку Путина собрали втрое больше подписей, чем на выборах-2018
+-  Angriff in Esslingen: Unbekannter schlägt Frau am Bahnhof nieder
+-  Российские военные сбили Су-25 ВСУ у Ивановки в Харьковской области
+-  La morte di Qi Zhiyong, testimone di Tiananmen col suo corpo
+-  Kein Wochenende für die Deutschfreiburger Volleyballerinnen
+-  Protester’s bizarre act stalls Aus Open
+-  NYSE-Titel Boeing-Aktie vorbörslich schwach: FAA untersucht ältere Version der Boeing 737
+-  Gökçeada ve Bozcaada feribot seferleri yarın yapılacak
