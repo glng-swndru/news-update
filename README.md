@@ -1,11 +1,11 @@
 # Latest News
--  「キング・オブ・ドンキーコング」ビリー・ミッチェル氏の世界記録が復活、不正疑惑はハードウェア不具合との指摘
--  Nestvaran gol zasenio majstoriju Maksimovića VIDEO
--  "Una vergogna, ma grazie a questi scemi...". Maignan e i razzisti, la lezione di Matteo Salvini
--  Konec otravného chrápání. Chytrý polštář se nafoukne, aby vám posunul hlavu. Nastavíte ho z mobilu
--  NI STIDA NI SRAMA! Krao novac iz crkve, pa mu i to bilo malo, najgore od svega što ovo nije prvi put! (VIDEO)
--  Mega-Sena acumula e próximo prêmio é estimado em R$ 38 milhões
--  Зеленський: Україні не потрібні солдати НАТО, дайте нам зброю і технології
--  Осасуна переграла Хетафе: результати матчів 21 туру Ла-Ліги
--  الذهب في منافسة مع سوق الأسهم.. من ينتصر؟
--  La condecorada labor de Mali, el perro héroe de guerra que salvó la vida de su equipo en Afganistán
+-  Met deze afzuigkap heb je geen last meer van geurtjes en vet, én hij is de beste uit de test
+-  Gəncədən ÜZÜCÜ XƏBƏR: Sumqayıtda əməliyyat edilən körpə qız...
+-  افتتاح مشروع نفق الدرعية الرابط بين الرياض والدرعية التاريخية
+-  Inter, allarme Bastoni: può saltare la partita contro il Napoli
+-  מחצית ראשונה: ריאל מדריד - אלמריה 0:0
+-  Líbya po vyše dvoch týždňoch obnovila ťažbu ropy na najväčšom poli
+-  Mielitkö hiihtolomalla rinteeseen? Tältä laskettelukeskusten varaustilanne näyttää
+-  Koht esikümnes kinnitas Sildarudele, et nad on tulevikku silmas pidades õigel teel
+-  Met deze afzuigkap heb je geen last meer van geurtjes en vet, én hij is de beste uit de test
+-  Trenčiansky kraj investoval v 2023 do opráv ciest viac ako 57 mil. eur
