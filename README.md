@@ -1,11 +1,11 @@
 # Latest News
--  Un pequeño asteroide golpea la Tierra sobre Alemania durante la noche
--  Fery Farhati dan Mutiara Baswedan Kunjungi Sentra Oleh-oleh Sanjai Balado Ummi Aufa Hakim untuk Dukung UMKM
--  Kadıköy'de kiralar 3 yılda yüzde 627 arttı, ortalama kira 21 bin TL'yi aştı! Oturulacak ev bulunamıyor!
--  „Az összes kép elégett” – felbecsülhetetlen értékű műalkotások vesztek oda a XIX. századból
--  Antalyaspor'da Gerrit Holtmann ile yollar ayrıldı
--  İstanbul'daki barajların doluluk oranı yüzde 60'ın üzerine çıktı
--  İsrail'den onay: Vergi gelirleri Filistin yönetimine aktarılacak
--  Beton elektrik direğine çarpan otomobilde 3 kişi yaralandı
--  Bullrich garantizó respaldo del Gobierno a quienes trabajen durante el paro: "Hay un protocolo"
--  VIDEO Gol marcat de Denis Drăguș într-un meci plin de evenimente pentru românii de la Gaziantep
+-  НА ЖИВО: Байерн - Вердер Бремен, съставите
+-  В Україні завтра буде сухо та морозно: де очікувати найбільших холодів
+-  Fundect abre chamada de Extensão Tecnológica voltada a Agricultores Familiares, povos originários e comunidades tradicionais
+-  ‘Mysuru-Srirangapatna Guidebook’ released
+-  Portland Trail Blazers at Los Angeles Lakers: Game preview, prediction, time, TV channel, how to watch free live stream online
+-  Skirennfahrer Straßer gewinnt Weltcup-Slalom in Kitzbühel
+-  Anadolu Üniversitesi beraberliği son anda kurtardı!
+-  Inciviltà sempre più dilagante, posti riservati a disabili occupati abusivamente: nel 2023 sanzionati "solo" 200 automobilisti
+-  Kent 24 saate 4 mevsimi yaşadı! Pencereden bakan şaşkına döndü
+-  Região Norte registra maior tremor de terra da história do Brasil
