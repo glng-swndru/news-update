@@ -1,11 +1,11 @@
 # Latest News
--  NBS UPOZORAVA SVE GRAĐANE Ako vam stigne ovaj novac, ne podižite ga
--  Дюкенс Назон напусна лагера на ЦСКА в Турция
--  Nach Stephan-Pleite: "Bauer sucht Frau"-Laura ist vergeben
--  Izabrani najbolji sportaš i sportašica Hrvatske, dvojbe ovaj put nije bilo
--  Potres pogodio Tuzlu: 'Bio je kratak, ali snažan'
--  Handball Landesliga Männer: HSG Rottweil im Endspurt stark
--  Boysi objavili poseban proglas prije utakmice s Lokomotivom
--  200 bin lira değerindeki 15 televizyonu çalındı: Hırsızın 'kimliği' şoke etti!
--  OTKRIVENO: Posle ovih reči Siniša Mihajlović je umro
--  Trauriges Geständnis der Dschungelcamp-Kandidatin: Lucy Diakovska unter Tränen über tote Mutter: „Ich habe sie gehasst“
+-  AfD-Jugendorganisation: Grünen-Chef Nouripour spricht sich für Verbot der Jungen Alternative aus
+-  Football Fever Grips Kashmir Valley
+-  CAN 2024: Le Maroc tenu en échec par la RDC
+-  AK Parti İstanbul adayı Murat Kurum: Bu vatanın bir karış toprağını böldürmeyeceğiz
+-  Jota skoraði tvö á níu mínútum - Bradley með stoðsendingu
+-  Netanyahu'ya soğuk duş: Savunma Bakanı açıklamalarını çok sert eleştirdi
+-  В ДНР при обстрелах ВСУ за день погибли 28 человек
+-  Щефан Крафт спечели трета поредна победа в Закопане, Зографски не прескочи първия кръг
+-  هكذا تفاعل بلماضي وأشباله مع الأنصار في محيط مقر التدريبات.. شاهد:
+-  Walentina Doronina äußert sich zu den Trennungsgerüchten
