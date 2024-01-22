@@ -1,11 +1,11 @@
 # Latest News
--  日銀会合注目点：マイナス金利の解除時期、展望リポートと総裁会見 - ブルームバーグ
--  BC Conservation confirms coyote hit by vehicle in Kelowna 'still mobile' (Kelowna)
--  Carabayllo: Municipalidad de Lima recupera área protegida que había sido invadida
--  تبادل دروع بين رئيسي أم صلال والوحدة
--  Horoscope Today, January 22, 2024: Read your daily astrological predictions
--  Horoscope Today 22 January 2024 : मकर, कुंभ, मीन राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
--  د. حمد الكواري: الدبلوماسية الثقافية مفتاح التقارب بين الدول
--  Drei Monate nach Trennung: Marina Marx wohl wieder vergeben!
--  Constitucionalismo
--  Costa abaixo e sen freo
+-  KT, 연간 이용료 60만원 아끼려 개인 상대 소송
+-  Didžiulis praradimas. Paaiškėjo, kas pilotavo A-50 (Foto, Video)
+-  Exclusive-Panasonic puts productivity boost ahead of new EV plant in US
+-  The Mortal Kombat 2 Movie Has Officially Wrapped Filming
+-  ชี้ชะตา "ก้าวไกล" วินิจฉัย "หุ้นไอทีวี-ล้มล้างปกครอง" ผลออกแบบไหน ไฮไลต์อยู่ เม.ย.
+-  ＡＴＳ不具合で２本運休 ＪＲ函館線
+-  "I condemn & repudiate what is being done in the name of Hinduism in Ayodhya"
+-  Non-ASN Bergaji Rp3,5 Juta Ingin Diangkat jadi PPPK, Simak Alasannya
+-  子ども食堂のニュースを見て「美容室でもサービスしたい」 小中学生3人を無料でカット 「めっちゃいい」と喜ばれる - 沖縄タイムス＋プラス ニュース
+-  Sebut Cak Imin Tak Paham Pertanyaannya Sendiri, Gibran Bawa-bawa Nama Tom Lembong
