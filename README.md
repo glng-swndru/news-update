@@ -1,11 +1,11 @@
 # Latest News
--  Palmeiras sofre gol no último minuto e estreia com empate no Paulista
--  Sinfra volta a licitar pavimentação de trecho da MT-402 em Cuiabá; R$ 15,7 milhões
--  Турска лира - лев. Колко струва една турска лира към един български лев днес, 22 януари /валутен калкулатор/
--  سايس يوجه رسالة تهدئة بعد أحداث نهاية مباراة الأسود والكونغو الديمقراطية(صورة)
--  سايس يوجه رسالة تهدئة بعد أحداث نهاية مباراة الأسود والكونغو الديمقراطية(صورة)
--  [날씨] 밤사이 기온 '뚝'…이번 주 내내 강추위
--  Palmeiras sofre gol no último minuto e estreia com empate no Paulista
--  Palmeiras leva gol no último minuto e empata com o Novorizontino em estreia no Paulistão
--  Yes, There Will Be 2 Sisters on ‘Bachelor’ Season 28: What to Know
--  Движение к КПП «Верхний Ларс» закрыли для грузовиков из-за непогоды
+-  西方抵制 中電動車擴張將剎車
+-  APA - N A C H R I C H T E N Ü B E R B L I C K
+-  Catch the sounds of the 60s in Cavalcade of Stars at the TIdemark Theatre
+-  LETTER: Foreign conflicts being imported to Victoria
+-  中職票房挑戰7字頭 靠黃衫軍挺
+-  愛德華茲3罰落空 灰狼中止4連勝
+-  Russia suspends operations at gas export terminal after drone strike
+-  Hollandalı şirket, kartal şeklinde askeri drone üretti
+-  白家綺4寶媽 精雕S型身材有法寶
+-  В парламенте Словакии рассказали об усталости ЕС от конфликта на Украине
