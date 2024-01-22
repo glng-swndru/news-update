@@ -1,11 +1,11 @@
 # Latest News
--  Kara yollarında son gelişmeler ne? İşte 22 Ocak kara yollarında son durumlar
--  Verzweifelt gesucht: Dattelns Busunternehmer leiden wirtschaftlich extrem unter Fahrermangel
--  Omar Berrada, el ex del Barcelona que le ha 'robado' el United al City para sacarles del infierno
--  „Vergleichsweise vorsichtig“: Polizei lobt Oer-Erkenschwicker für Fahrverhalten während Glatteis
--  Rangoli designs: 15 simple and easy rangolis of Ram Ji and Ayodhya Ram Mandir for January 22 [PHOTOS & VIDEOS]
--  El Plan del Casco Histórico de Córdoba alerta del "mantenimiento inadecuado y sin criterios" del Guadalquivir
--  풍자, 확실히 끊어드립니다 [포토]
--  Ísland í dag - Víkingar geta unnið riðilinn með fullt hús stiga
--  Man accused of raping child on Adelaide train named
--  Spánn í dag - Granada fær Atlético í heimsókn
+-  ‘그때 그시절을 아십니까’…광주 ‘산수색채 원풍경’ 발간
+-  Türkiye’nin en büyük şirketleri belli oldu ‘Ford Otosan’da o listede’
+-  Küresel piyasalar haftaya karışık seyirle başladı
+-  İzmir'de vapur seferleri yeniden başladı
+-  Van'da gümrük kaçakçılığı operasyonları
+-  Esenyurt'ta 2 genç sokak ortasında bıçaklandı
+-  İş insanı Yasemin Sadıkoğlu gece kulübünde saldırıya uğradı, darp raporu aldı
+-  세븐일레븐, 축구 이어 프로농구·프로배구 포토카드 선보여
+-  Kira yüzünden eniştesini vurarak öldürdü
+-  На 2 миллиарда тенге оштрафованы партнеры АНПЗ
