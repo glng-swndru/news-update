@@ -1,11 +1,11 @@
 # Latest News
--  Van'da deprem! Naci Görür'den açıklama geldi: ''2011'deki depremi bu fay üretmişti''
--  Akut vattenläcka i Finspång – arbetet pågår
--  Beursblog: 'AEX begint nieuwe week goed'
--  MP NEWS - ओबीसी आरक्षण, हाई कोर्ट में जुर्माना जमा करने के बाद आज की कार्रवाई का विवरण
--  Fontos változás érkezik a mobiltelefonokra
--  Citroen C3X Spied Again Ahead Of India Debut
--  Bitcoin Hashrate erreicht Rekordhöhen vor dem Halving 2024
--  Số phận chiếc du thuyền triệu USD của FLC hiện ra sao sau nhiều lần 'đại hạ giá'?
--  “우와! 까르OO!” 산다라박, 천둥 위해 통 큰 결혼선물 (사랑꾼)
--  사우디냐 일본이냐…아시안컵 16강 상대는 누구?
+-  Članica britanske kraljevske obitelji opet se suočava s teškom dijagnozom, nakon što je nedavno pobijedila zloćudnu bolest
+-  Empat individu didakwa curi, lupus 442 kad akses sistem milik TM
+-  – Det er bra at det stilles krav til oss
+-  Petition to reinstate bus service after village is cut off
+-  heise+ | Kreativ werden mit KI: Web-Tools für Bilder, Videos, Musik und Texte
+-  "J'y pense", face à Natalie Portman, Laurent Delahousse fait une annonce fracassante
+-  El tiempo en Extremadura: alerta amarilla por nieblas y temperaturas en ascenso
+-  Як банки переживають другий рік великої війни
+-  Lukijalta | Ylellä ei ole sovellusta teksti-tv:lle – käyttösopimuksia lienee rikottu
+-  Worthing man running length of Africa eyes Sahara Desert
