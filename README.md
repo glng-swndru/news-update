@@ -1,11 +1,11 @@
 # Latest News
--  홍익표 "김 여사, 개정 자본시장법 적용 시 과징금 46억 원 내야"
--  Wordle Today: Here's The Answer And Hints For January 22
--  Επίδομα παιδιού: Πότε θα καταβληθεί στους δικαιούχους
--  Nội tạng động vật bao lâu ăn một lần?
--  NYT Connections Today: See Hints And Answers For January 22
--  戴資穎奪冠積分逼近10萬！ 陳雨菲曝小戴新年「最大改變」
--  Kronologi Aktris Nana Mirdad Menemukan Bayi di Bali, Sedihnya Luar Biasa, OMG!
--  한동훈 거취 놓고 "버티기 성공할 것" vs "물러날 수밖에 없을 것"
--  Thí sinh Olympia khiến khán giả phải "thả like" vì khả năng nói 5 thứ tiếng, "hậu duệ" của MC Khánh Vy đây rồi
--  Nasib penunggang p-hailing terbela
+-  Ronaldo chia sẻ gây tranh cãi: Quả bóng vàng đã mất đi giá trị, chỉ có con số mới chính xác nhất
+-  신혜선 “따뜻했다. 숨 고를 수 있게 해준 작품” (삼달리) [일문일답]
+-  Giáo sư kinh tế kỳ cựu Steve Hanke: Kinh tế suy thoái, chứng khoán giảm, lạm phát hạ nhiệt dưới 2% cuối năm nay
+-  삼성카드, '에버랜드 삼성카드' 출시
+-  Лавров прибыл в Нью-Йорк для участия в заседаниях СБ ООН
+-  Ngọc Huyền 'Thương ngày nắng về' được chồng tặng xe hơi ngay trong ngày cưới
+-  Hội Bảo trợ bệnh nhân nghèo TP HCM hỗ trợ hàng ngàn trẻ em, người mắc bệnh tim và mắt
+-  “صحة غزة”: 70% من المساعدات الطبية لا تلبي احتياجاتنا الأساسية و350 ألفاً من أصحاب الأمراض المزمنة لا يوجد لديهم دواء
+-  BEYOND LOCAL: Here are the relationship factors people ponder when deciding whether to break up
+-  Main Atal Hoon BO Day 3: ‘मैं अटल हूं’ को मिला वीकेंड का फायदा, पंकज त्रिपाठी की फिल्म ने तीसरे दिन कमाए इतने
