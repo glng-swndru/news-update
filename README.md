@@ -1,11 +1,11 @@
 # Latest News
--  Este anime estrenará su cuarta temporada en cines
--  Efter 40 uteblivna besök – indragna nattpatrull-bilen fick sättas in på nytt
--  All downhill from here
--  Hannover 96 II: Daniel Stendels Talente siegen im Hammer-Härtetest
--  Profesionales de Talavera estudian el efecto atenuante en los síntomas del Covid al consumir aceite de oliva
--  Υδροπλάνα: Από πού και πότε αρχίζουν τα δρομολόγια στην Ελλάδα
--  Sahilde bulunan cansız bedenler: 5 kişinin ayakkabı ve kıyafetleri Suriye'de üretilmiş
--  Fun of the show
--  Pedro Pascal se embarca en una sangrienta aventura este año
--  珠洲市と能登町の中学生が集団避難 金沢市で22日から授業再開へ “犬猫”用の移動診療車 金沢に到着
+-  Slovenci skoro prosuli veliku prednost s poluvremena: Još uvijek mogu u polufinale Eura
+-  BAČIĆ O PLENKOVIĆU Dogodine u ovo vrijeme bit će u Banskim dvorima
+-  Wirkungsorientiertes Haushalten: Eine Demokratie, die liefert
+-  ĐORĐU DAVIDU ZABRANjEN IZLAZAK IZ MAKEDONIJE? Pevaču ograničeno kretanje, evo gde će biti smešten
+-  El Niño v Avstraliji. Strah jih je, da se bo ponovilo črno poletje
+-  BMW-om na Laništu sletio s ceste na gradilište: Pronašli zaključano vozilo bez vozača
+-  Жители Хельсинки провели акцию протеста против закрытия финско-российской границы
+-  Yargıtay'dan emsal karar: Alacaklılara faiz indirimi müjdesi geldi!
+-  Kronofogdens anställda lär sig hantera självmordshot
+-  Santo Ki Vani: संतों की वाणी में आज पढ़ें मोरारी बापू के अनमोल वचन
