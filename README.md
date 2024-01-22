@@ -1,11 +1,11 @@
 # Latest News
--  НА ЖИВО: Байерн - Вердер Бремен, съставите
--  В Україні завтра буде сухо та морозно: де очікувати найбільших холодів
--  Fundect abre chamada de Extensão Tecnológica voltada a Agricultores Familiares, povos originários e comunidades tradicionais
--  ‘Mysuru-Srirangapatna Guidebook’ released
--  Portland Trail Blazers at Los Angeles Lakers: Game preview, prediction, time, TV channel, how to watch free live stream online
--  Skirennfahrer Straßer gewinnt Weltcup-Slalom in Kitzbühel
--  Anadolu Üniversitesi beraberliği son anda kurtardı!
--  Inciviltà sempre più dilagante, posti riservati a disabili occupati abusivamente: nel 2023 sanzionati "solo" 200 automobilisti
--  Kent 24 saate 4 mevsimi yaşadı! Pencereden bakan şaşkına döndü
--  Região Norte registra maior tremor de terra da história do Brasil
+-  LIVE buitenlands voetbal | Heerlijke goal Wijndal bij winnend Antwerp, De Ligt in actie met Bayern
+-  Mnichov zrušil demonstraci proti extremismu kvůli velkému počtu účastníků
+-  Huancayo: Matrimonio rápido y barato en las notarías
+-  Мостовой: «Для меня важно отличаться результативными действиями на сборах»
+-  Çankırı'da kar yağışı etkili oldu
+-  Muş-Mutki yolunda tipi! 70 kişi kurtarıldı
+-  Rujak Cingur Lek Har, Lokadrama Universe Lara Ati Bercerita Resep Rahasia
+-  Шест народа славят делото на св.св. Кирил и Методий в римска базилика
+-  V Německu opět demonstrovaly proti pravicovému extremismu statisíce lidí
+-  Mnichov zrušil demonstraci proti extremismu kvůli velkému počtu účastníků
