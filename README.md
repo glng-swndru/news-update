@@ -1,11 +1,11 @@
 # Latest News
--  Τα πρωτοσέλιδα των εφημερίδων τη Δευτέρα 22 Ιανουαρίου
--  Νέα πακέτο στήριξης στα σκαριά: Μέτρα για γονείς, αύξηση κατώτατου μισθού και στεγαστικά προγράμματα
--  Trump turns focus to Biden after DeSantis drops out of race
--  OPINION: ”Vi har alltså lärare som inte fått lära sig hur man undervisar i läsning.”
--  10 il idi ki, "Barsa"da bunu heç bir ispan edə bilmirdi
--  Как будут выглядеть мировые достопримечательности через 50 лет
--  State at loss as Kenyans spend less on highly taxed items
--  الخارجية المصرية: شكري بحث في بروكسل مع نظيره الإسباني وقف النار في غزة وإدخال المساعدات
--  Programme launched to aid career transition of ex-servicemen
--  Melaka to announce new water tariff on Wednesday (Jan 24), says CM
+-  Mercato - PSG : En direct, un challenge XXL est proposé à Mbappé !
+-  Interview. « J’ai pensé mourir » : la caissière sauvée par le colonel Beltrame se confie
+-  ‘DMK govt’s ‘repression saga’ against live telecast of Ram Mandir consecration ceremony continues in Tamil Nadu temples,’ Nirmala Sitharaman charges
+-  12 kautta kestänyt pesti Putouksessa päättyi, mutta riihimäkeläinen Katja Lappi ei jää suremaan
+-  OORDEEL EUROPA - Opgewaardeerde Nikkei rekent erop dat BOJ ontspannen blijft
+-  ”Rajs barndom i förintelsens skugga”
+-  Ram Mandir Pran Prathishta Live Streaming: Watch Ayodhya Ram Mandir Opening ceremony LIVE on Mobile & TV, Details here
+-  Елена Йончева, евродепутат, председател на групата, която преговаря по Пакта за миграция на ЕС, пред „Труд news“: Новият Пакт за миграция брани България от наплив на бежанци - Труд
+-  นายกฯ ถึง “ระนอง” ยกเป็น 1 ในจังหวัด พลิกฟื้นเศรษฐกิจไทย จาก “แลนด์บริดจ์”
+-  "Un terreno sin construir en la Costa del Sol es un milagro"
