@@ -1,11 +1,11 @@
 # Latest News
--  ‘그때 그시절을 아십니까’…광주 ‘산수색채 원풍경’ 발간
--  Türkiye’nin en büyük şirketleri belli oldu ‘Ford Otosan’da o listede’
--  Küresel piyasalar haftaya karışık seyirle başladı
--  İzmir'de vapur seferleri yeniden başladı
--  Van'da gümrük kaçakçılığı operasyonları
--  Esenyurt'ta 2 genç sokak ortasında bıçaklandı
--  İş insanı Yasemin Sadıkoğlu gece kulübünde saldırıya uğradı, darp raporu aldı
--  세븐일레븐, 축구 이어 프로농구·프로배구 포토카드 선보여
--  Kira yüzünden eniştesini vurarak öldürdü
--  На 2 миллиарда тенге оштрафованы партнеры АНПЗ
+-  Court sets Feb 13 to charge Emraz Travel, two directors for fraud
+-  Đaci se vraćaju u klupe, počinje drugo polugodište! Evo kad će sledeći raspust
+-  Άντζελα Δημητρίου: Με καταβεβλημένο ύφος και μαυροφορεμένη
+-  ইরানের পাঠানো অস্ত্র জব্দে সাগরে অভিযান চালানো দুই সেনাকে মৃত ঘোষণা যুক্তরাষ্ট্রের
+-  서울시 지원 소상공인 1년 생존율 94%… 전국 평균 대비 30%p↑
+-  아시아나항공, 김포공항서 국제선 승객 몸무게 측정
+-  “Molla Nəsrəddin”in maskası açıldı
+-  Турция предъявила ультиматум западной разведке
+-  Zdravniki zaostrujejo stavko, vsak zavod po svoje
+-  تخصيص الطاقة.. تنظيم جديد لترشيد الاستهلاك وتعزيز الاقتصاد
