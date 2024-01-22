@@ -1,11 +1,11 @@
 # Latest News
--  KT, 연간 이용료 60만원 아끼려 개인 상대 소송
--  Didžiulis praradimas. Paaiškėjo, kas pilotavo A-50 (Foto, Video)
--  Exclusive-Panasonic puts productivity boost ahead of new EV plant in US
--  The Mortal Kombat 2 Movie Has Officially Wrapped Filming
--  ชี้ชะตา "ก้าวไกล" วินิจฉัย "หุ้นไอทีวี-ล้มล้างปกครอง" ผลออกแบบไหน ไฮไลต์อยู่ เม.ย.
--  ＡＴＳ不具合で２本運休 ＪＲ函館線
--  "I condemn & repudiate what is being done in the name of Hinduism in Ayodhya"
--  Non-ASN Bergaji Rp3,5 Juta Ingin Diangkat jadi PPPK, Simak Alasannya
--  子ども食堂のニュースを見て「美容室でもサービスしたい」 小中学生3人を無料でカット 「めっちゃいい」と喜ばれる - 沖縄タイムス＋プラス ニュース
--  Sebut Cak Imin Tak Paham Pertanyaannya Sendiri, Gibran Bawa-bawa Nama Tom Lembong
+-  Luật Đất đai (sửa đổi): Giảm thủ tục, tăng quyền cho địa phương
+-  Renault'dan şaşırtan hamle: Tüm fiyatlar sil baştan! En ucuzu o seviyede
+-  Ünlü oyuncu 26 bin Euro'luk saati için gözaltına alındı. 35 bin Euro ceza ödedi
+-  Segurança de SP anuncia novas operações Escudo após ataques a 5 policiais
+-  Создан предсказывающий срок жизни человека ИИ
+-  Apple đề xuất cho phép đối thủ quyền truy cập công nghệ thanh toán di động
+-  Công an quận 12 bắt Bi Thái Tử
+-  The Times назвало середній вік бійця ЗСУ
+-  ThinkPad Z13 Gen 2 dizüstü bilgisayar incelemesi: Lenovo'nun Dell XPS 13'e cevabı
+-  One Piece Anime Officially Introduces Egghead Island
