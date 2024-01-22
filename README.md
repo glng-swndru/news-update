@@ -1,11 +1,11 @@
 # Latest News
--  Auch am Sonntag Massen-Demos gegen Rechtsextremismus
--  Шофьорите вече виждат и невръчените глоби (обзор) - Труд
--  Leci Brandão está internada em SP por causa de problema vascular
--  Yap-İşlet-Devret bütçeyi bitirdi
--  Krievijas vadonis Putins februāra sākumā ieradīsies Ankarā
--  10 Makanan yang Bisa Merusak Hati, Sama Bahayanya Seperti Alkohol
--  6 مئوية.. 4 أماكن تسجل أقل درجات حرارة في المملكة
--  Jak fotí Samsung Galaxy S24 Ultra. Podívejte se na ukázkové snímky a videa, která jsme pořídili v USA
--  Misteriosul caz Andreea Rabciuc. ”El se teme foarte tare și spune că este nevinovat.” Noi detalii despre dispariție
--  Sen. Jeremy Miller talks new sports betting proposal
+-  Kako razgovarati s djecom o smrti? Ove kreativne logopetkinje podučit će vas toj i mnogim drugim vještinama
+-  Protest gegen rechts im Kreis Böblingen: Herrenberger Marsch für die Demokratie
+-  Retegui torna al gol: l'italo-argentino supera Ochoa, è 1-1 fra Salernitana e Genoa
+-  Jonnie Irwin 'empowered' after buying 'weeks and months' to live amid cancer battle
+-  Protest gegen rechts im Kreis Böblingen: Herrenberger Marsch für die Demokratie
+-  Emekli polis, evinde ölü bulundu
+-  Ardèche. Vœux et projets pour le centre hospitalier Elisée Charra à Lamastre
+-  Rodinná tragédia pri Trenčíne: Otec so synom si ľahli na koľajnice, zrazil ich vlak
+-  Lanišek tretji v Zakopanah, Slovenija brez zmage na poljski turneji
+-  Devrim Barçın: Sosyal konut bahane, rant şahane
