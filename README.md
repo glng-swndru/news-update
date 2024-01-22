@@ -1,11 +1,11 @@
 # Latest News
--  Definen "Cuota Simple", el reemplazo del Ahora 12 tras el derrumbe industrial en diciembre
--  MPs who visited West Bank urge action against "constant humiliation" of Palestinians
--  TSK'dan PKK'ya operasyon!
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 22 януари /валутен калкулатор/
--  EDIN VIŠĆA - NAJBOLJI ASISTENT U HISTORIJI TURSKOG PRVENSTVA
--  30 Black Shows That Got Cancelled Too Soon
--  Seis heridos tras choque entre dos autos por ruta 9, cerca de la ciudad de Rocha
--  Saturday Night Live: Rachel McAdams, Renee Rapp, and Megan Thee Stallion Recreate Spider-Man Meme
--  Del Piero avvisa il Napoli: "L'Inter non ha punti deboli. In Finale può succedere di tutto"
--  100 Jahre Lenin-Mumie: Revolutionsführer bis heute präsent
+-  İspanya'da Girona fırtınası dinmiyor!
+-  Lecce-Juventus 0-3: le pagelle, il tabellino e tutti i risultati della 21^ giornata di Serie A
+-  Daley Blind herovert met Girona koppositie na hattrick binnen 7 minuten van Artem Dovbyk
+-  Parrilla Don Julio: la verdadera historia detrás del éxito
+-  天皇皇后両陛下 被災地へのご訪問のタイミングはいつになる？
+-  Much of US still gripped by Arctic weather as Memphis deals with numerous broken water pipes
+-  Источник сообщил о поножовщине в ресторане Махачкалы
+-  女子卓球 パリ五輪切符に伏兵も
+-  悠仁さまのトンボ論文が閲覧数で全国2位の快挙 忍耐力に研究者も脱帽？
+-  All-way stop coming to fast-moving Port Robinson intersection
