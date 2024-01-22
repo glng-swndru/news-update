@@ -1,11 +1,11 @@
 # Latest News
--  "عدسة عُمان" تحصل على أول ترخيص لإنشاء محطة أرضية متصلة بالأقمار الصناعية
--  Sử dụng 1 tháng, Peugeot 408 ‘siêu lướt’ đầu tiên tại Việt Nam xuống giá khó tin
--  السبتي يتوجه إلى جنيف للمشاركة في اجتماع منظمة الصحة العالمية
--  Báo Thái Lan phản ứng khi ngôi vương ĐNÁ của ĐT Việt Nam lung lay
--  When Lord Ram’s ‘miracle’ scene in Ramayan serial left Ramanand Sagar and crew speechless
--  CBSE to conduct 10th, 12th exams twice a year from 2024-25 session
--  DEBATT: Ekonomisk kyla väntar i Nora
--  Как се прави шкембе чорба по румънски - ето разликата с нашата
--  Don Janez
--  DEBATT: Ekonomisk kyla väntar i Nora
+-  Τα πρωτοσέλιδα των εφημερίδων τη Δευτέρα 22 Ιανουαρίου
+-  Νέα πακέτο στήριξης στα σκαριά: Μέτρα για γονείς, αύξηση κατώτατου μισθού και στεγαστικά προγράμματα
+-  Trump turns focus to Biden after DeSantis drops out of race
+-  OPINION: ”Vi har alltså lärare som inte fått lära sig hur man undervisar i läsning.”
+-  10 il idi ki, "Barsa"da bunu heç bir ispan edə bilmirdi
+-  Как будут выглядеть мировые достопримечательности через 50 лет
+-  State at loss as Kenyans spend less on highly taxed items
+-  الخارجية المصرية: شكري بحث في بروكسل مع نظيره الإسباني وقف النار في غزة وإدخال المساعدات
+-  Programme launched to aid career transition of ex-servicemen
+-  Melaka to announce new water tariff on Wednesday (Jan 24), says CM
