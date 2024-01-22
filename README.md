@@ -1,11 +1,11 @@
 # Latest News
--  사우디 2연승, 16강행 확정
--  Novi prostori krajevne knjižnice v Borovnici
--  D’Aversa a DAZN: «Partita equilibrata fino al primo gol. La Juve ha meritato»
--  La Juve vince a Lecce: super Vlahovic, è sorpasso virtuale all'Inter
--  哈瑪斯提撤軍換釋放人質 納坦雅胡拒絕「投降條件」
--  Best-Sounding Wireless Earbuds in 2024: Get Top Sound Quality - CNET
--  Best-Sounding Wireless Earbuds in 2024: Get Top Sound Quality - CNET
--  Madridčane klici iz sobe za VAR rešili pred senzacionalnim porazom
--  Madridčane klici iz sobe za VAR rešili pred senzacionalnim porazom
--  Best-Sounding Wireless Earbuds in 2024: Get Top Sound Quality - CNET
+-  Doppelmoral? Katie Price findet aufgespritzte Lippen traurig
+-  Urgent warning as arctic 'zombie' viruses lying trapped under the ice could be released
+-  Cumhuriyetçi DeSantis, ABD Başkanlık yarışından çekildi
+-  Sporting conquista Taça da Liga
+-  Letter: Apparently good help is hard to find at The Forum
+-  ‘Woke’: Chain’s savage Australia Day post
+-  AFL storm erupts over Collingwood ‘error’
+-  Sporting bate Benfica e conquista Taça da Liga
+-  奥克兰Muriwai发生悲剧，皮卡翻车后压死一名少女，居民呼吁海滩禁车
+-  Ron DeSantis Concedes Defeat
