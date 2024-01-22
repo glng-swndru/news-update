@@ -1,11 +1,11 @@
 # Latest News
--  Sparta-Frauen verlieren nach Verlängerung, die Bartringer Männer bezwingen Heffingen
--  NESVAKIDAŠNJA SITUACIJA: Bizaran rezultat Žalgirisa pred gostovanje Partizanu
--  Actor de Like a Dragon: Infinite Wealth critica el juego y se gana el aplauso de los fans
--  Чехия обновит ВВС самолетами F-35
--  Vantrauststillaga vofir yfir: Vinstri grænir þegja
--  O eski halinden eser yok şimdi!
--  Șase cadavre au fost găsite pe plaje din Antalya în cinci zile. Ce teorie au autoritățile
--  Burn-off at Burnaby refinery behind smelly Sunday morning in Vancouver: Fire Chief (BC)
--  'Dur' ihtarına uymayarak kaçan 2 motosikletli uyuşturucu ve silahla yakalandı
--  Dodaj odrobinę do ciasta. Pączki długo pozostaną świeże i puszyste
+-  «البريميرليغ»: ليفربول «يغرد» بالصدارة برباعية في بورنموث
+-  Secondary bond market rallies; yields down
+-  Slovenka zapeljala v usmerjevalca prometa
+-  Un cantante de Karibe con K pidió disculpas por su actuación en los 300 años de Montevideo
+-  Arte y Academia | “La señora Kong”, la vida de una viuda con hijos: teatral y auténticamente lograda por Ignacio Escárcega
+-  Hakan Fidan Oman xarici işlər naziri ilə Qəzzadakı vəziyyəti müzakirə edib
+-  Over 580,000 beds recalled because they can collapse during use
+-  Atsakomybę už blogą žaidėjų mentalitetą prisiėmęs Trinchieri: „Žengėme žingsnį atgal“
+-  Salah to return to Liverpool from AFCON after suffering injury
+-  U Minhenu poginuo vozač sa srpskim tablicama
