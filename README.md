@@ -1,11 +1,11 @@
 # Latest News
--  Ronaldo chia sẻ gây tranh cãi: Quả bóng vàng đã mất đi giá trị, chỉ có con số mới chính xác nhất
--  신혜선 “따뜻했다. 숨 고를 수 있게 해준 작품” (삼달리) [일문일답]
--  Giáo sư kinh tế kỳ cựu Steve Hanke: Kinh tế suy thoái, chứng khoán giảm, lạm phát hạ nhiệt dưới 2% cuối năm nay
--  삼성카드, '에버랜드 삼성카드' 출시
--  Лавров прибыл в Нью-Йорк для участия в заседаниях СБ ООН
--  Ngọc Huyền 'Thương ngày nắng về' được chồng tặng xe hơi ngay trong ngày cưới
--  Hội Bảo trợ bệnh nhân nghèo TP HCM hỗ trợ hàng ngàn trẻ em, người mắc bệnh tim và mắt
--  “صحة غزة”: 70% من المساعدات الطبية لا تلبي احتياجاتنا الأساسية و350 ألفاً من أصحاب الأمراض المزمنة لا يوجد لديهم دواء
--  BEYOND LOCAL: Here are the relationship factors people ponder when deciding whether to break up
--  Main Atal Hoon BO Day 3: ‘मैं अटल हूं’ को मिला वीकेंड का फायदा, पंकज त्रिपाठी की फिल्म ने तीसरे दिन कमाए इतने
+-  "الخماسية" أمام وضع خريطة طريق لوقف تعطيل انتخاب الرئيس
+-  China holds benchmark lending rates steady
+-  Панова вышла в четвертьфинал парного турнира Australian Open
+-  Nuggets roll past Wizards as Nikola Jokic pours in 42
+-  Ringgit strengthens amid rising geopolitical tensions, oil price potential
+-  পৌরনীতি ও নাগরিকতা - দশম শ্রেণি
+-  Отряд кораблей Тихоокеанского флота вышел в море
+-  China Unicom Helps Villages in Inner Mongolia Go Digital
+-  김준호, 예비장모 위해 ‘임영웅 콘서트 투어’ 준비…굿즈도 ‘플렉스’
+-  Ram Mandir inauguration: Ayodhya set for grand Pran Pratishtha ceremony today
