@@ -1,11 +1,11 @@
 # Latest News
--  Banco Mundial: Cerca de 45 % de las casas en Gaza quedaron destruidas por los bombardeos de Israel
--  Kết quả Asian Cup 2023 hôm nay 22/1: Saudi Arabia thắng trong thế 11 người đấu 9
--  Ministro da Educação critica relator do Novo Ensino Médio
--  시즌과일 이벤트에…이마트24, 딸기상품 매출 51% ↑
--  黃仁勳驚喜再訪台灣夜市，本週出席 NVIDIA 尾牙、台積電供應鏈活動
--  Héctor Vargas sorprende: “Olimpia es como el PSG”
--  Halo InfiniteDen nye oppdateringen legger til rustninger fra Halo Wars.
--  Motociclista gravemente ferido em colisão em Famalicão
--  Υεμένη: Το Προεδρικό Συμβούλιο Ηγεσίας της χώρας ζητά να ανακηρύξουν τους Χούθι ως τρομοκράτες
--  Australian Open quarter-finalist Marta Kostyuk's passionate plea amid Ukraine-Russia conflict - Wide World of Sports
+-  日銀会合注目点：マイナス金利の解除時期、展望リポートと総裁会見 - ブルームバーグ
+-  BC Conservation confirms coyote hit by vehicle in Kelowna 'still mobile' (Kelowna)
+-  Carabayllo: Municipalidad de Lima recupera área protegida que había sido invadida
+-  تبادل دروع بين رئيسي أم صلال والوحدة
+-  Horoscope Today, January 22, 2024: Read your daily astrological predictions
+-  Horoscope Today 22 January 2024 : मकर, कुंभ, मीन राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
+-  د. حمد الكواري: الدبلوماسية الثقافية مفتاح التقارب بين الدول
+-  Drei Monate nach Trennung: Marina Marx wohl wieder vergeben!
+-  Constitucionalismo
+-  Costa abaixo e sen freo
