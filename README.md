@@ -1,11 +1,11 @@
 # Latest News
--  Slovenci skoro prosuli veliku prednost s poluvremena: Još uvijek mogu u polufinale Eura
--  BAČIĆ O PLENKOVIĆU Dogodine u ovo vrijeme bit će u Banskim dvorima
--  Wirkungsorientiertes Haushalten: Eine Demokratie, die liefert
--  ĐORĐU DAVIDU ZABRANjEN IZLAZAK IZ MAKEDONIJE? Pevaču ograničeno kretanje, evo gde će biti smešten
--  El Niño v Avstraliji. Strah jih je, da se bo ponovilo črno poletje
--  BMW-om na Laništu sletio s ceste na gradilište: Pronašli zaključano vozilo bez vozača
--  Жители Хельсинки провели акцию протеста против закрытия финско-российской границы
--  Yargıtay'dan emsal karar: Alacaklılara faiz indirimi müjdesi geldi!
--  Kronofogdens anställda lär sig hantera självmordshot
--  Santo Ki Vani: संतों की वाणी में आज पढ़ें मोरारी बापू के अनमोल वचन
+-  عروسة المرتفعات الغربية
+-  Težke razmere v ambulantah: iz UKC Ljubljana pozivajo nekatere prebivalce, da ostanejo doma
+-  Вильнюс передаст Украине дополнительную бронетехнику - Президент Литвы
+-  Martin Wolf: the world economy's story remains one of integration
+-  Rusija: Četvero preživjelih u padu zrakoplova u Afganistanu
+-  Sol Gabetta in der Stuttgarter Liederhalle: Ein Cellospiel zum Verlieben
+-  Костов призна за Охене и заяви: Видях доста добри неща, но има върху какво да работим
+-  التخصصات الصحية تعلن بدء التسجيل ببرنامج "فني نظارات".. رابط التقديم
+-  Документалният "Ваклуш" селектиран за международен кино фестивал
+-  La contundente respuesta de Wanda Nara a la China Suárez ante las acusaciones de plagio
