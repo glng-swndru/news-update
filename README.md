@@ -1,11 +1,11 @@
 # Latest News
--  Doppelmoral? Katie Price findet aufgespritzte Lippen traurig
--  Urgent warning as arctic 'zombie' viruses lying trapped under the ice could be released
--  Cumhuriyetçi DeSantis, ABD Başkanlık yarışından çekildi
--  Sporting conquista Taça da Liga
--  Letter: Apparently good help is hard to find at The Forum
--  ‘Woke’: Chain’s savage Australia Day post
--  AFL storm erupts over Collingwood ‘error’
--  Sporting bate Benfica e conquista Taça da Liga
--  奥克兰Muriwai发生悲剧，皮卡翻车后压死一名少女，居民呼吁海滩禁车
--  Ron DeSantis Concedes Defeat
+-  Banco Mundial: Cerca de 45 % de las casas en Gaza quedaron destruidas por los bombardeos de Israel
+-  Kết quả Asian Cup 2023 hôm nay 22/1: Saudi Arabia thắng trong thế 11 người đấu 9
+-  Ministro da Educação critica relator do Novo Ensino Médio
+-  시즌과일 이벤트에…이마트24, 딸기상품 매출 51% ↑
+-  黃仁勳驚喜再訪台灣夜市，本週出席 NVIDIA 尾牙、台積電供應鏈活動
+-  Héctor Vargas sorprende: “Olimpia es como el PSG”
+-  Halo InfiniteDen nye oppdateringen legger til rustninger fra Halo Wars.
+-  Motociclista gravemente ferido em colisão em Famalicão
+-  Υεμένη: Το Προεδρικό Συμβούλιο Ηγεσίας της χώρας ζητά να ανακηρύξουν τους Χούθι ως τρομοκράτες
+-  Australian Open quarter-finalist Marta Kostyuk's passionate plea amid Ukraine-Russia conflict - Wide World of Sports
