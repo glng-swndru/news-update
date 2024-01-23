@@ -1,11 +1,11 @@
 # Latest News
--  Команду проекта Ondo Finance заподозрили в дампе токена ONDO
--  Задържаха мъж, скубал за косата и удрял 75-годишната си майка в София
--  Carrefour combate la inflación en Cuenca con bajadas de precios en 500 productos
--  Руският опозиционер Алексей Навални е поставен в изолация за 10 дни
--  Người đàn ông rơi từ vách đá xuống vực tử vong sau khi ăn nấm rừng gây mê sảng
--  「F1」を大阪に！誘致目指す 『海外の富裕層の呼び込みなどに効果的』と大阪観光局 吉村知事も賛同
--  Buďte v zisku. Využívejte řízení fotovoltaické elektrárny a tepelného čerpadla umělou inteligencí!
--  Riforme: Lupi, 'premierato per cambiare l'Italia'
--  M Qodari Nilai Dukungan Erick Thohir Bisa Berkontribusi Besar untuk Prabowo-Gibran
--  Estados Unidos acaba de hacer lo correcto en América Latina
+-  Protestaktion: Auch Kulmbach steht gegen Rechtsextreme auf
+-  Puasa Rajab Boleh Dilakukan Bersama Puasa Ganti Wajib?
+-  गुम हुआ आधार कार्ड पहुंचा सकता है आपको जेल, बचने का तरीका है बहुत आसान
+-  ﻿Коко Гофф - Марта Костюк: огляд матчу
+-  Хероин за 2,3 млн. лв. е открит в пожарогасители на "Капитан Андреево" (ВИДЕО/СНИМКИ)
+-  Immigration: 142.500 demandes d'asile en France en 2023, un record
+-  Vėl sutriko „Smart-ID“ veikla
+-  Stjórn BÍ auglýsir eftir framkvæmdastjóra
+-  Fahrerflucht künftig nur noch Ordnungswidrigkeit?
+-  Lo que se sabe del homicidio de un joven en plena calle de Renca
