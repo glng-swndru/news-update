@@ -1,11 +1,11 @@
 # Latest News
--  안보현-박지현, 아웅다웅 티키타카 [포토]
--  Фотогалерия: Започна изработването на златните мечки за фестивала "Берлинале"
--  4D 눈 달린 자율주행차 온다
--  V Pásmu Gazy zemřelo v pondělí 21 izraelských vojáků, oznámila armáda
--  Αστυνομια:Χωρίς ιδιαίτερα προβλήματα από βροχές οι κύριες οδικές αρτηρίες
--  Лавров заявил о росте в США комплексов безнаказанности и превосходства
--  Ovoga tjedna gledamo filmove na Festivalu tolerancije
--  21 yıl hapis cezası olan hükümlü Balıkesir'de yakalandı!
--  Hatay'da bir haftada 42 motosiklet ve 21 araç trafikten men edildi
--  V Pásmu Gazy v pondělí padlo 24 izraelských vojáků, nejvíce za jediný den
+-  Galatasaray, yıldız isimle anlaştı! Sözleşmesi uzatılacak
+-  Ünlü oyuncu 7 büyüklüğündeki depreme yakalandı
+-  Anies Baswedan Bakal Kampanye Akbar di Palembang Kamis 25 Januari
+-  Krieg im Nahen Osten: 21 israelische Soldaten bei Vorfall im Gazastreifen getötet
+-  路上で80代男性に因縁をつけ重傷を負わせたか 20代の夫婦を逮捕
+-  Krievija ar raķetēm apšauda Kijivu un Harkivu
+-  В российском регионе родители обвинили учителя-мигранта в оскорблениях детей
+-  Disease X क्या है? जानें क्यों हर तरफ हो रही है इस नई मुसीबत की चर्चा
+-  അവശനിലയിൽ കണ്ട ഹനുമാൻ കുരങ്ങിന് സഹായഹസ്തം
+-  Căn bệnh xoắn tinh hoàn nam giới dễ mắc khi trời lạnh
