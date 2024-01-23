@@ -1,11 +1,11 @@
 # Latest News
--  Turecký parlament bude hlasovať o členstve Švédska v NATO
--  Husilər Ədən körfəzində yük gəmisini vurdu
--  Orbán Viktor is megemlékezett az elhunyt Grétsy Lászlóról
--  Uso de cheques no Brasil cai 17%, segundo Febraban
--  Live: Γρανάδα - Ατλέτικο Μαδρίτης
--  Руснаците са готови Ленин най-накрая да бъде погребан
--  VIDEO Reporter Dnevnika Nove TV s Eura u rukometu poručuje: "Mala nada još živi"
--  EastEnders spoilers: Evil Dean Wicks ignores Gina Knight’s wishes and makes horror move
--  Produžen rok za procesuiranje predmeta ratnih zločina pred pravosuđem BiH
--  Ф'юрі назвав найгрізнішого суперника у кар'єрі
+-  UROŠ STANIĆ POTPUNO VAN SEBE! Strahuje da se ne desi ono što nikako ne želi, poverio se učesnici
+-  СМИ: В России накопились запасы автомобилей, которые не могут распродать
+-  Projeto Jogada de Ouro prepara lançamento em março; Ricardo de Oliveira cita preparativos
+-  Günün ULDUZ FALI: baş verən hadisələri diqqətlə izləyin
+-  Colère des agriculteurs: la FNSEA va maintenir ses actions, le Gouvernement promet des mesures "dans la semaine"
+-  Preminuo legendarni italijanski fudbaler
+-  김동완, 서윤아에 "다들 잘 어울린다고 난리" 직진 고백
+-  Istorikas apie komunistų partijai priklausiusius visuomenės veikėjus: naivu tikėtis, kad tada visi buvo drąsūs
+-  Storvretas tydliga svar efter missräkningen:
+-  Arap Birliği'nden BMGK'ya 'Gazze' çağrısı
