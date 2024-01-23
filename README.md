@@ -1,11 +1,11 @@
 # Latest News
--  ΑΣΕΠ: Από σήμερα οι αιτήσεις για τις διοικήσεις στα νοσοκομεία
--  Insultaron a CFK en un aeropuerto y respondió con un gesto obsceno
--  Demos gegen Rechtsextremismus: Fotograf Boris Eldagsen über angeblich manipulierte Bilder
--  Colère des agriculteurs: voici pourquoi le secteur est en ébullition dans de nombreux pays d'Europe
--  TEŠKA NESREĆA KOD OSTRUŽNICE: Automobilom se zakucao u banderu
--  Irrumpen en Congreso de Israel familiares de rehenes: "No pueden estar sentados mientras ellos mueren" | VIDEO
--  CES parodoje „Mercedes-Benz“ pristatė virtualųjį asistentą, bendraujantį su vairuotoju ...
--  Nemecký festival Berlinale zverejnil zostavu 20 súťažných filmov
--  Прием заявок на конкурс «Россия — футбольная страна» завершится 4 февраля
--  Rappel d'épinards surgelés Carrefour : les sachets pourraient contenir des larves
+-  Elhunyt Grétsy László
+-  João Mário: «É possível ganhar tudo»
+-  В Германии заявили о критической нехватке боеприпасов у ВСУ
+-  Slovenska najstnica navdušuje v Franciji, izbrana celo za igralko tekme
+-  França coloca prestígio à prova dentro de 6 meses com Jogos Olímpicos
+-  Abel Hernández tiene nuevo destino: el exdelantero de Peñarol se hizo las pruebas médicas
+-  Reseña del libro Mañana y tarde, de Jon Fosse: un pescador viaja hacia la nada
+-  OVU SLIKU NEĆETE VIDETI NA N1 I NOVOJ S: Prazna sala skupštine Saveta Evrope, Marinikin štrajk je više nego uspeo (FOTO)
+-  Şamaxıda 9 odlu silah polisə təhvil verildi
+-  U Š. Brijegu tražila se Modrićeva autobiografija, knjiga pape Franje..., u Knjižnici Ljubuški 400 novih članova
