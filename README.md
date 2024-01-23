@@ -1,11 +1,11 @@
 # Latest News
--  Fabrizio Romano: Započeli su pregovori za Martina Baturinu, želi ga dovesti Hrvat
--  Tibo InShape devient le deuxième youtubeur le plus suivi en France, Cyprien reste dans le top 3
--  Tibo InShape devient le deuxième youtubeur le plus suivi en France, Cyprien reste dans le top 3
--  Cabinet Sub-Committee recommends reinstallation of Technical Advisory Committee
--  Dynamiters snap out of cold streak with 4-0 win over Golden Rockets
--  Tibo InShape devient le deuxième youtubeur le plus suivi en France, Cyprien reste dans le top 3
--  David de la Garza narra qué sucedió en Torreón, donde fueron atropellados aficionados de Rayados: "una desgracia en absoluto"
--  'Neki umirovljenici pričaju da vojska trebala odgajati mlade slično kao u Jugoslaviji'
--  Почетино: Феновете на Челси могат да направят разликата с Мидълзбро
--  Monopoli, acquisito a titolo definitivo il cartellino di Danilo Bulevardi dal Gubbio
+-  Dijon. Découverte exceptionnelle : qui percera le mystère du masque de Dijon ?
+-  كيفن نكودو ينافس رونالدو على رقم مميز في دوري روشن
+-  Nulta tolerancija: Udinese zbog rasizma navijača uveo super drastične mjere
+-  Türkmenistanyň Prezidenti sanly ulgam arkaly iş maslahatyny geçirdi
+-  "נצטרך לשים הכל בצד ולהיות מרוכזים 40 דקות": הפועל חולון מתכוננת למורסיה
+-  Σιντίκ: Δεν είναι δυνατή η αναγνώριση δύο κρατών
+-  Transfer news: Xavi Simons and Karim Benzema Arsenal links, Chelsea striker latest, Neymar TRUTH & more
+-  DHMZ JAVLJA Dio Dalmacije sutra pod žutim upozorenjem
+-  Akciový index S&P 500 vzrástol na nové historické maximum
+-  Soupeři nelítostně vyhodil rameno. Teď si jde pro bývalého šampiona Oktagonu
