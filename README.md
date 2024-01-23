@@ -1,11 +1,11 @@
 # Latest News
--  UROŠ STANIĆ POTPUNO VAN SEBE! Strahuje da se ne desi ono što nikako ne želi, poverio se učesnici
--  СМИ: В России накопились запасы автомобилей, которые не могут распродать
--  Projeto Jogada de Ouro prepara lançamento em março; Ricardo de Oliveira cita preparativos
--  Günün ULDUZ FALI: baş verən hadisələri diqqətlə izləyin
--  Colère des agriculteurs: la FNSEA va maintenir ses actions, le Gouvernement promet des mesures "dans la semaine"
--  Preminuo legendarni italijanski fudbaler
--  김동완, 서윤아에 "다들 잘 어울린다고 난리" 직진 고백
--  Istorikas apie komunistų partijai priklausiusius visuomenės veikėjus: naivu tikėtis, kad tada visi buvo drąsūs
--  Storvretas tydliga svar efter missräkningen:
--  Arap Birliği'nden BMGK'ya 'Gazze' çağrısı
+-  Ukraine-Newsblog: Ukrainischer Heereschef spricht von schwerer Lage an der Front
+-  Arbitraža najčistije rješenje za razgraničenje Podgorice i Zete
+-  Πιέρος στον Super Sport FM: «Φαβορί ο ΑΠΟΕΛ για το πρωτάθλημα, διαθέτει σταθερότητα»
+-  Prabowo-Gibran Didukung Emak-emak & Penyandang Difabel, TKN Makin Optimistis Jagoannya Menang
+-  MINA PRIJAVILA PARTNERA ZA NASILJE Pevačica podnela krivičnu prijavu protiv dečka, on se odmah pojavio u stanici
+-  DSÖ’den Gazze’de ''sarılık'' uyarısı
+-  Janeiro chega ao fim e o Carnaval já invade as casas e os relacionamentos
+-  ExxonMobil processa duas empresas acionistas por apresentarem proposta de redução de emissões
+-  ‘Potrebno je podupirati opstanak Hrvata u BiH, a istodobno poboljšati njihove odnose s Bošnjacima‘
+-  ExxonMobil is suing its own shareholders over a proposal aimed at reducing emissions
