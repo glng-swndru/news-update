@@ -1,11 +1,11 @@
 # Latest News
--  ГУР: У Москві "зламався" провайдер держструктур РФ
--  Президент Аргентины собирается провести "шоковую" терапию экономике страны
--  İsrail ordusu: Han Yunus'u kuşattık
--  Kaskisista lähtöisin oleva valittiin johdon assistentiksi Kristiinassa
--  "Biyopsi ile kanser yayılmaz"
--  Nach Rassismus-Vermutung: Olivia Jones gibt klares Statement
--  Идея: Санкциите за нелоялни търговци да бъдат процент от оборота
--  متى ستُنشأ حديقة ومتنفس صحي لأهالي دماء والطائيين ؟!
--  팩스턴을 택한 다저스, ‘2티어’ 투수들의 시간?···류현진 계약도 희망적이다
--  Novo lice na Poljudu, sedamnaestogodišnji Perkovich na probu je stigao iz Miamija
+-  – Er elbiler livsfarlige i Finnmark om vinteren?
+-  Kim Kardashian appointed new Balenciaga brand ambassador
+-  Rovanperä ei teegi hooaja avastarti Rootsis
+-  Viktor Orban l-a chemat pe Ulf Kristersson la Budapesta să negocieze aderarea Suediei la NATO în timp ce Turcia se pregătește s-o aprobe
+-  Shillong Teer Result Today, 23 January 2024: First & Second Round Teer Results
+-  Történelmi összhangzat
+-  Transfery w Polsce - 23 stycznia. Ekstraklasa, 1 liga, 2 liga. Śledź wszystkie doniesienia na żywo
+-  Business leaders urged to toughen up cyber security protection
+-  In assenza di rinforzi dal mercato perché non provare Ilic o Tameze in alternativa a Vlasic per innescare di più le punte del Torino?
+-  Κι όμως το πλυντήριο πιάτων χρειάζεται καθάρισμα. Δείτε πώς
