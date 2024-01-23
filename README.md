@@ -1,11 +1,11 @@
 # Latest News
--  Ukraine-Newsblog: Ukrainischer Heereschef spricht von schwerer Lage an der Front
--  Arbitraža najčistije rješenje za razgraničenje Podgorice i Zete
--  Πιέρος στον Super Sport FM: «Φαβορί ο ΑΠΟΕΛ για το πρωτάθλημα, διαθέτει σταθερότητα»
--  Prabowo-Gibran Didukung Emak-emak & Penyandang Difabel, TKN Makin Optimistis Jagoannya Menang
--  MINA PRIJAVILA PARTNERA ZA NASILJE Pevačica podnela krivičnu prijavu protiv dečka, on se odmah pojavio u stanici
--  DSÖ’den Gazze’de ''sarılık'' uyarısı
--  Janeiro chega ao fim e o Carnaval já invade as casas e os relacionamentos
--  ExxonMobil processa duas empresas acionistas por apresentarem proposta de redução de emissões
--  ‘Potrebno je podupirati opstanak Hrvata u BiH, a istodobno poboljšati njihove odnose s Bošnjacima‘
--  ExxonMobil is suing its own shareholders over a proposal aimed at reducing emissions
+-  Медведев ответил шуткой на слова представителя Госдепа о возвращении Аляски
+-  Prieskum: Väčšina Izraelčanov by podporila plán USA na ukončenie vojny
+-  DC Chief James Gunn Updates Status of Elseworlds Superman Movie
+-  Izrael poriče da je šef diplomatije predložio preseljenje Palestinaca na vještačko ostrvo
+-  VIDEO: El hipnótico cielo estrellado de Mongolia que parece sacado de un cuadro de Van Gogh
+-  Сериозен интерес към Даниел Наумов от румънски гранд
+-  Monitor Polski z 22 stycznia 2024 r. (poz. 45-69)
+-  Duas décadas após gafe que virou meme, apresentadora confunde nome de Zelda Mello
+-  KARDIOLOG TVRDI Ove vježbe su najbolje za srce
+-  Avramović o Milojeviću: Svi znamo koliko je bio fantastičan čovek
