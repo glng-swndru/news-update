@@ -1,11 +1,11 @@
 # Latest News
--  US-Bundesstaat Illinois: Mehrere Leichen gefunden - Polizei sucht Verdächtigen
--  Snažan potres na granici Kine i Kirgistana: Ima ozlijeđenih, oštećeni su kuće i vlakovi
--  Ποιο Τρίγωνο των Βερμούδων; Το Τρίγωνο της Αλάσκας και οι μυστηριώδεις εξαφανίσεις χιλιάδων ανθρώπων προκαλούν τρόμο
--  Morning Retail : La folie food court, par Eva Jacquot - 23/01
--  На Авдіївському напрямку відбито 17 атак росіян
--  Karış karış aranan çöp evdeki ceset gözden kaçtı! Emekli öğretmen...
--  Acht Tote in den USA: Verdächtiger tot gefunden
--  Del VAR a los vigilantes
--  طقس السعودية اليوم.. انخفاض درجات الحرارة وأمطار بعدة مناطق
--  انتشار للجيش في عكار.. هذا ما جرى
+-  안보현-박지현, 아웅다웅 티키타카 [포토]
+-  Фотогалерия: Започна изработването на златните мечки за фестивала "Берлинале"
+-  4D 눈 달린 자율주행차 온다
+-  V Pásmu Gazy zemřelo v pondělí 21 izraelských vojáků, oznámila armáda
+-  Αστυνομια:Χωρίς ιδιαίτερα προβλήματα από βροχές οι κύριες οδικές αρτηρίες
+-  Лавров заявил о росте в США комплексов безнаказанности и превосходства
+-  Ovoga tjedna gledamo filmove na Festivalu tolerancije
+-  21 yıl hapis cezası olan hükümlü Balıkesir'de yakalandı!
+-  Hatay'da bir haftada 42 motosiklet ve 21 araç trafikten men edildi
+-  V Pásmu Gazy v pondělí padlo 24 izraelských vojáků, nejvíce za jediný den
