@@ -1,11 +1,11 @@
 # Latest News
--  Murat Kurum mu Ekrem İmamoğlu mu? Aradaki fark dikkat çekti
--  Kırmızı ışıkta geçen tezcanlı yayalar dikkat! Bu cezadan sonra kimse geçemeyecek
--  Özgür Özel ve Kemal Kılıçdaroğlu baş başa yemek yedi! Özel'in teklifini reddetti
--  Трагедии, вызванные минным террором, должны быть вновь доведены до внимания мирового сообщества
--  港股市況｜傳內地考慮兩萬億救市 恒指半日彈368點 潤地及龍湖升逾7%
--  김종민 "이낙연 신당과 합당, 이번주 안에 결론 내야"
--  Аргентинские депутаты потребовали объяснить отказ от вступления в БРИКС
--  [포토]한파에 동파된 수도계량기
--  BBB 24: Veja como foi Sincerão com cinco emparedados
--  傅崐萁尚未領表、賴士葆要選黨團總召 藍：關鍵仍在朱立倫手上
+-  PSG'nin hedefi Sacha Boey
+-  Elon Musk supports India’s permanent membership at UNSC
+-  Kinofestival in Saarbrücken: Filmfestival Max-Ophüls-Preis ist eröffnet – Macher positionieren sich gegen Menschenfeindlichkeit
+-  قطر الخيرية: حملة "كالجسد الواحد" توزع الحقائب الشتوية على العمال
+-  Horlayan komşusunu öldürdü
+-  Байден после слов Жан-Пьер о его остром уме перепутал своих министров
+-  Sky Pacific to air all Super Rugby matches
+-  ZESA Holdings sued US$36k for breaching contract
+-  अयोध्या में Virat Kohli जैसा दिखने वाला पहुंचा शख्स तो जबरदस्ती सेल्फी लेने लगे लोग; Video
+-  «Второй уже не двигался»: жуткое избиение битой произошло в Приморье
