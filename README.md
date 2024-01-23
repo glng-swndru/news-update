@@ -1,11 +1,11 @@
 # Latest News
--  Official: Almeria sign Luka Romero from Milan
--  Video: Ostapenko labākās epizodes "Australian Open" turnīrā
--  Paro general del 24 de enero: ¿qué pasará con los pagos de ANSES?
--  Türkiye ile Libya arasında sosyal politika ve sosyal hizmet alanlarında iş birliği
--  Uno de los mejores Assassin’s Creed podría tener un remake, según rumor
--  Šprem: Ovo je neuspjeh, ali potez izbornika nakon utakmice me je oduševio
--  Прометей – Буковина. Смотреть онлайн. LIVE трансляция
--  Warum bei Coca-Cola in Mannheim bald Lkw ohne Fahrer unterwegs sind
--  Ревнивец шамароса любовницата си на улицата в пловдивско село, заподозрял изневяра
--  Trực tiếp Napoli vs Inter Milan, 02h00 ngày 23/01/2024 (Link HD)
+-  Vision Pro briefing: Apple’s new billion-dollar business
+-  Ethereum Foundation stößt 700 ETH ab: Strategische Verkäufe oder Marktmanipulation?
+-  TTC riders get a glimpse of Stanley Cup ahead of NHL All-Star Game in Toronto - CP24
+-  ¿Cuánto cuesta el nuevo Samsung Galaxy S24 en Liverpool?
+-  CAN 2023: la Fédération congolaise publie un message d’indignation après « les attaques racistes » contre Mbemba
+-  İş kadını Yasemin Sadıkoğlu'nun darp edilme anı kamerada
+-  Who will replace Virat Kohli for first two Test matches against England? Reports suggest...
+-  Magali Ripoll : Cet interdit que sa fille Chloé, son sosie de 11 ans, rêve de braver contre l'avis de sa mère !
+-  BMGK'da Rusya ve ABD, Ukrayna'daki çatışma için birbirini suçladı
+-  Palworld Could Come To PS5, But Nothing Is Certain Yet
