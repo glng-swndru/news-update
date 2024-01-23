@@ -1,11 +1,11 @@
 # Latest News
--  Future Fund lifts returns, cautions markets on inflation
--  De Laurentiis attacca l'Inter: "Ha 900 milioni di debiti, il Napoli vince lo scudetto a +85"
--  Trump seeks to secure NH win while dealing with defamation trial
--  Município pede ao STF para suspender licença de instalação da ferrovia Rondonópolis-Cuiabá-Mutum-Lucas
--  Dschungelcamp 2024: Mike Heiter: Heikle Vorgeschichte mit Kim Virginia
--  Drive London, el proyecto de karts de Fórmula 1 debajo del estadio del Tottenham
--  Iran generals' anti-Semitic talks to university students now subject to investigation
+-  Байден і Сунак обговорили Україну
+-  USA og Storbritannien udfører nye angreb
+-  Criminosos invadem empresa em Sinop para furtar veículos mas fogem após alarme disparar
+-  Lộ diện các doanh nghiệp đấu trúng 7 mỏ khoáng sản ở TT-Huế, 1 doanh nghiệp tại Hà Nội đấu trúng 2 mỏ
+-  Judge orders the unsealing of divorce case of Trump special prosecutor in Georgia accused of affair - The Associated Press
+-  空に向かってグングン！ 辰年の縁起物として話題、ドラゴンフルーツが想像以上にスゴかった 沖縄・石垣市 - 沖縄タイムス＋プラス ニュース
+-  Tigres del Licey blanquean a las Estrellas para su primera victoria
+-  El Gobierno acelera la búsqueda de un "mensaje único" sobre inmigración en plena polémica por el pacto con Junts
+-  TNA Star Is "Confident" the Promotion Will Land a Big Television Deal
 -  Dschungelcamp-Star mit tragischem Leben: Leyla Lahouar: Prügel-Ex, toter Vater und Krebs in jungen Jahren
--  SLEDI LI OKONČANJE RATA? Olgasiio se Netanjahu
--  BARAĆ EMOTIVNO O MILOJEVIĆU: Razmišljao sam da ga pitam za savet, ali me je on preduhitrio...
