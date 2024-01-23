@@ -1,11 +1,11 @@
 # Latest News
--  Sabah TBMM-də İsveç müzakirəsi olacaq
--  ¿Palworld llegará a PlayStation? Ejecutivo de Sony emociona a los jugadores
--  Bombeiros combatem incêndio em caminhão-baú em Lucas do Rio Verde
--  Capcom habla sobre el futuro de Ace Attorney y si seguirá haciendo juegos de la saga
--  Novinky v iOS. Stahujte aktualizaci iOS 17.3, přináší bezpečnostní funkci pro ochranu ukradených iPhonů
--  “Accordo Italia-Albania truffa ai danni di italiani e albanesi”. Migranti, la sparata di Fratoianni
--  Los resultados de la Primera División
--  السودان وباكستان واليمن.. "الملك سلمان للإغاثة" يواصل جهوده في الدول الصديقة
--  Camerún se la juega: "Ya me dieron por muerto pero estoy aquí"
--  Porto Alegre registra queda de mortes no trânsito em 2023
+-  Opponents of abortion rights gather at Minnesota State Capitol for March for Life
+-  Free low-income tax preparation
+-  Rick Bonadio diz que Brasil precisa de artista que 'não seja militante' e causa debate; entenda
+-  Ranbir Kapoor protects Alia Bhatt as they get pushed in queue with devotees at Ram temple in Ayodhya - IndiaTimes
+-  Legenda wróci do PlusLigi? Prezes nawet się z tym nie kryje!
+-  Media: To może być nowy klub "polskiego Messiego"
+-  Forma şansı bulamayan Arda Güler'den İtalyan teknik direktöre tepki
+-  Με δύο εντάλματα εναντίον του, ανανέωσε το διαβατήριο της ΚΔ ο σφετεριστής
+-  TÜİK hesapladı: Hissedilen enflasyon daha yüksek
+-  Szijjártó Péter: Magyarország szuverén ország, ha tetszik Donald Tusknak, ha nem
