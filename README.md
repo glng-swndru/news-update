@@ -1,11 +1,11 @@
 # Latest News
--  Gazzeliler otlarla yemek yapıyor…
--  Jéssica Galhofas desiste do jogo
--  New On Hulu In February 2024: FX's Feud: Capote Vs. The Swans, Abbott Elementary Season 3, And More
--  Atletiko poslije tri mjeseca slavio u gostima, Morata srušio...
--  ABD ve İngiltere'den Yemen'e savaş ilanı! Tüm güçlerle harekat başlatıldı
--  ¿No quieres volar en un avión Boeing? Hay un filtro de kayak para eso
--  Хороскоп за седмицата – какво да очаквате според зодията си
--  Бивш депутат от "Продължаваме промяната" е баща на едно от децата на Габриела и убития Пейо
--  IBES 2024: Dschungelcamp Gage - diese Stars verdienen am meisten
--  MINA KOSTIĆ JE ŽELELA DVOJE DECE SA DEČKOM NASILNIKOM! Plašila se ćerkine reakcije, pa priznala: Nikola nešto nije spreman...
+-  الإفراج عن لائحة جديدة من التعيينات في صفوف القضاة
+-  Hallan muerto a un funcionario de la Procuraduría colombiana
+-  Snažan potres magnitude 7,1 pogodio granicu Kine i Kirgistana
+-  Ramón “Wanchope” Ábila está a un paso de sumarse a Barracas Central
+-  Алкарас: Суши всеки ден и печелиш мачове
+-  Израел предлага да спре сраженията срещу освобождаването на всички заложници
+-  İYİ Parti'de İstanbul adayı kim olacak? 'Akşener o ismi güvenilirlik testine soktu'
+-  Filistin'den AB'ye, "Netanyahu'ya yaptırım uygulayın" çağrısı
+-  '대중교통 할인 카드' 혜택 제각각…현명한 선택하려면?
+-  मोगा में सिद्धू की रैली के आयोजकों को नोटिस, कांग्रेस कमेटी ने मांगा जवाब
