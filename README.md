@@ -1,11 +1,11 @@
 # Latest News
--  الاتحاد يحسم موقفه من رحيل حجازي
--  Þurfum við að standa ein?
--  La escuela de Caneto reabre sin dormirse en los laureles
--  영화 ‘소풍’ 소중한 추억을 기억하세요 [포토]
--  Invictus finalises capital raise for Zimbabwe exploration
--  上海市去年實際使用外資240億美元創歷史新高
--  Kommunal verksamhet visar flera brister
--  Cuộc sống kín tiếng của "hoa hậu cải lương" vừa được phong tặng danh hiệu NSƯT
--  Celebra los Derechos Humanos Fundamentales en el Día Mundial de la Libertad
--  Vũ điệu 'làng mía' ở Nghệ An nổi bật trong ngày
+-  Phát hiện hơn 2 tấn chân gà, thịt đông lạnh có ghi chữ nước ngoài
+-  Tổng thống Đức và phu nhân thăm Văn Miếu, uống cà phê trên phố Hà Nội
+-  Exclusive-Thai central bank chief says current policy rate neutral, economy not in crisis
+-  Không thiếu đất trồng, một loại hạt vẫn liên tục tràn vào Việt Nam với giá siêu rẻ: Brazil là tay buôn lớn nhất, nước ta nhập khẩu top đầu thế giới
+-  تعابير وجه الوالدين وراء رفض الأبناء للطعام
+-  Exclusive-Thai central bank chief says current policy rate neutral, economy not in crisis
+-  Not Shah Rukh, Preity, Abhishek, Ranbir, this Indian actor owns most sports teams; is Dhoni, Sachin's business partner
+-  Online PR Servisi’nden medya analizi: Türk basınının en’lerini açıkladı
+-  Thai central bank chief says current policy rate neutral, economy not in crisis
+-  Əli Əsədov sərəncam imzaladı
