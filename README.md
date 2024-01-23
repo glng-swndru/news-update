@@ -1,11 +1,11 @@
 # Latest News
--  Медведев ответил шуткой на слова представителя Госдепа о возвращении Аляски
--  Prieskum: Väčšina Izraelčanov by podporila plán USA na ukončenie vojny
--  DC Chief James Gunn Updates Status of Elseworlds Superman Movie
--  Izrael poriče da je šef diplomatije predložio preseljenje Palestinaca na vještačko ostrvo
--  VIDEO: El hipnótico cielo estrellado de Mongolia que parece sacado de un cuadro de Van Gogh
--  Сериозен интерес към Даниел Наумов от румънски гранд
--  Monitor Polski z 22 stycznia 2024 r. (poz. 45-69)
--  Duas décadas após gafe que virou meme, apresentadora confunde nome de Zelda Mello
--  KARDIOLOG TVRDI Ove vježbe su najbolje za srce
--  Avramović o Milojeviću: Svi znamo koliko je bio fantastičan čovek
+-  كاريكاتير أحمد رحمة
+-  "Antisemitizam je udar na temelje evropskih vrijednosti"
+-  الميادين: القصف الجوي الأميركي البريطاني استهدف عدة مناطق في صنعاء ومحيطها
+-  POLICIJA RAZOTKRILA SUROVI PLAN! VOĐI OZLOGLAŠENE GRUPE GLAVA BILA U TORBI: U isto vreme sprečene čak ČETIRI likvidacije
+-  Inter conquista Supertaça de Itália com golo nos “descontos”
+-  Sahillere vuran 9 cesetten birinin kayıp Merve'ye ait olduğu tespit edildi
+-  لقجع والركراكي يرفضان طلب بايرن ميونخ بخصوص نصير مزراوي
+-  Handball-EM 2024: Der Traum vom Halbfinale geht weiter: Deutsche Handballer siegen im Duell gegen Ungarn
+-  Exército israelense afirma que 200 soldados morreram em operação terrestre em Gaza
+-  PAO JE, OČI SU MU BILE OTVORENE Mandina udovica iznela potresne detalje o smrti glumca: To je bio znak da nešto nije u redu
