@@ -1,11 +1,11 @@
 # Latest News
--  신테카바이오, AI 신약 플랫폼 SaaS 출시 앞두고 개발 속도
--  Men with this disease are less likely to be childless than healthy men
--  Family testifies to their loss in deadly Vancouver hotel fire inquest
--  Cheese Based Snacks Market to record USD 4.34 billion growth from 2022 to 2027, Amys Kitchen Inc., Bikaji Foods International Ltd., EnWave Corp. among Key Vendors - Technavio
--  Citroen’den yeni araç alarmı! Hem çevre dostu hem de yüksek performanslı! Citroen C5 Aircross Hybrid 136 Türkiye’de
--  Naslovna strana za 23.1.
--  홍석준 "중국인의 한국 토지 · 주택 보유 급증"
--  নির্বাচন নিয়ে টিআইবির প্রতিবেদন এবং বাস্তবতা
--  Repentant Perry joins surging Oilers for 2nd half of the NHL season
--  Family testifies to their loss in deadly Vancouver hotel fire inquest
+-  5 أطعمة تخفف من "انسداد الأنف" في موسم نزلات البرد صحة
+-  Governo do PT volta a fazer o que não deu certo, e isso assusta, diz pesquisador
+-  اعتماد تكنولوجيا الزراعة العمودية للخضراوات بدون تربة
+-  Vinces: Buscando armas escondidas hallaron droga en hacienda
+-  NorthWestern's high-dollar power purchases during deep freeze draws scrutiny
+-  Điểm đến du lịch được khách Việt tìm nhiều nhất trên Google 2023: Gần Việt Nam, chỉ cách hơn 2 giờ bay
+-  Golden Boy tekad lebih menyerlah 2024
+-  أبوغزاله يتسلم جائزة التميز الدولي للمسؤولية الاجتماعية لعام 2023
+-  Governo do PT volta a fazer o que não deu certo, e isso assusta, diz pesquisador
+-  Panama bunker sales down in 2023 due to Canal restrictions.
