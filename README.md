@@ -1,11 +1,11 @@
 # Latest News
--  Elhunyt Grétsy László
--  João Mário: «É possível ganhar tudo»
--  В Германии заявили о критической нехватке боеприпасов у ВСУ
--  Slovenska najstnica navdušuje v Franciji, izbrana celo za igralko tekme
--  França coloca prestígio à prova dentro de 6 meses com Jogos Olímpicos
--  Abel Hernández tiene nuevo destino: el exdelantero de Peñarol se hizo las pruebas médicas
--  Reseña del libro Mañana y tarde, de Jon Fosse: un pescador viaja hacia la nada
--  OVU SLIKU NEĆETE VIDETI NA N1 I NOVOJ S: Prazna sala skupštine Saveta Evrope, Marinikin štrajk je više nego uspeo (FOTO)
--  Şamaxıda 9 odlu silah polisə təhvil verildi
--  U Š. Brijegu tražila se Modrićeva autobiografija, knjiga pape Franje..., u Knjižnici Ljubuški 400 novih članova
+-  Trauerfeier für Wolfgang Schäuble: Angela Merkel nimmt Abschied
+-  Periodista japonesa Shiori Ito presenta su grito de #MeToo a Sundance con 'Black Box Diaries'
+-  Most Crypto-Friendly States in the US That Everyone Must Know Of
+-  Vagas abertas para a Construtora Patriani no Grande ABC
+-  OVO JE BRITANKA (20) KOJA JE UMRLA U BEOGRADU: Naši lekari dali sve od sebe da je spasu (FOTO)
+-  جلالة السلطان.. شكرًا
+-  Trauerfeier für Wolfgang Schäuble: Angela Merkel nimmt Abschied
+-  Arbeitsunfall: Mann fällt von Baugerüst und stirbt
+-  Rudolf Dreßler über Israel-Politik: Wie ihm Angela Merkel die Formel der Staatsräson klaute
+-  Four individuals, two teams inducted into Niagara Falls Sports Wall of Fame
