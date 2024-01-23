@@ -1,11 +1,11 @@
 # Latest News
--  Windkraft im Kanton Zürich: Die Gemeinden sitzen am kürzeren Hebel
--  Funcionário é golpeado por outro com garrafa durante briga em alojamento no Nortão
--  Туск порадив менше слухати Путіна
--  Serdar Çevirgen’den hem teşekkür hem de söz
--  ΕΦΚΑ: Σε λειτουργία η πλατφόρμα για την επιλογή ασφαλιστικής κατηγορίας για το 2024
--  "พ่อแม่โดนด้วย" ตร.เรียกผู้ปกครอง 5 ทรชนฆ่า "ป้าบัวผัน" รับทราบข้อหา
--  Der Fluch über den Innerschweizer Parteipräsidenten: Wie die Bundesratschancen von Marcel Dettling stehen
--  Gold: Next 10 Trading Sessions Could Be a Repeat of September Last Year
--  Hatay'da 10 düzensiz göçmen yakalandı
--  Nuevas parejas confirmadas: conoce los últimos anuncios
+-  Mac PCs could ride AI wave
+-  Community Foundation ready to help local students with summer study goals
+-  Jeffrey Wright Says He Hasn't Seen A Script For The Batman 2 Yet
+-  Danh họa cuồng loạn Caravaggio
+-  "Tutta colpa della sinistra...". Meloni torna a parlare di Ferragni, riecco il parallelismo con Che Guevara
+-  ONG de ex-secretário investigado em esquema de lixo em Florianópolis já foi condenada pelo TCE
+-  궤도 "임영웅과 과학으로 친해져…비밀 단골음식점 있다"
+-  Viharkáosz: londoni landolás helyett visszatért Budapestre a Ryanair egyik repülője
+-  Filistin'den AB'ye, "Netanyahu'ya yaptırım uygulayın" çağrısı
+-  Kenevir atıklarından hayvan yemi üretilecek
