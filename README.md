@@ -1,11 +1,11 @@
 # Latest News
--  Phát hiện hơn 2 tấn chân gà, thịt đông lạnh có ghi chữ nước ngoài
--  Tổng thống Đức và phu nhân thăm Văn Miếu, uống cà phê trên phố Hà Nội
--  Exclusive-Thai central bank chief says current policy rate neutral, economy not in crisis
--  Không thiếu đất trồng, một loại hạt vẫn liên tục tràn vào Việt Nam với giá siêu rẻ: Brazil là tay buôn lớn nhất, nước ta nhập khẩu top đầu thế giới
--  تعابير وجه الوالدين وراء رفض الأبناء للطعام
--  Exclusive-Thai central bank chief says current policy rate neutral, economy not in crisis
--  Not Shah Rukh, Preity, Abhishek, Ranbir, this Indian actor owns most sports teams; is Dhoni, Sachin's business partner
--  Online PR Servisi’nden medya analizi: Türk basınının en’lerini açıkladı
--  Thai central bank chief says current policy rate neutral, economy not in crisis
--  Əli Əsədov sərəncam imzaladı
+-  ГУР: У Москві "зламався" провайдер держструктур РФ
+-  Президент Аргентины собирается провести "шоковую" терапию экономике страны
+-  İsrail ordusu: Han Yunus'u kuşattık
+-  Kaskisista lähtöisin oleva valittiin johdon assistentiksi Kristiinassa
+-  "Biyopsi ile kanser yayılmaz"
+-  Nach Rassismus-Vermutung: Olivia Jones gibt klares Statement
+-  Идея: Санкциите за нелоялни търговци да бъдат процент от оборота
+-  متى ستُنشأ حديقة ومتنفس صحي لأهالي دماء والطائيين ؟!
+-  팩스턴을 택한 다저스, ‘2티어’ 투수들의 시간?···류현진 계약도 희망적이다
+-  Novo lice na Poljudu, sedamnaestogodišnji Perkovich na probu je stigao iz Miamija
