@@ -1,11 +1,11 @@
 # Latest News
--  Thua sốc Guinea Xích đạo, chủ nhà Bờ Biển Ngà sắp bị loại ở AFCON
--  Quarteto furta R$ 7 mil em itens e desespero é notebook com dados de pacientes
--  8 loại thức uống tốt cho sức khỏe và giúp giảm mỡ bụng hiệu quả
--  Register to Vote
--  Rodriguinho sugere que Isabelle tenta golpe de sedução para se dar bem no jogo
--  ‘미래대연합’ 김종민 “제3지대 통합 시점은 2월 말 3월 초”
--  OPD investigating jewelry theft
--  TxDOT issues traffic alert for Cotton Flat Bridge site
--  눈보라 몰아친 제주공항 항공편 90여 편 결항
--  Former Marfa substitute teacher pleads guilty to producing child sexual abuse material
+-  The Big Tech Show: Could the Vision Pro be Apple’s first flop under Tim Cook?
+-  AGC jalin kerjasama, bangun zon ekonomi hijau, pelancongan Palau
+-  화성 상공 가로지르는 '비행기'…”물과 생명체 흔적 찾는다”
+-  Video impactante: quiso esquivar un carrito atascado en una escalera mecánica, cayó al vació y murió
+-  Pokémon: la preventa de este adorable set de Funko Pop! tiene descuento
+-  과기정통부, '정부연구개발 사업부처합동 설명회' 개최
+-  15 साल पहले ही कर दिया था राम मंदिर बनाने का वादा... कहानी L&T को बुलंदी पर पहुंचाने वाले 'नायक' की
+-  Jennie挑戰全身穿超難駕馭青蘋果綠色！美照曝光讓粉絲驚豔了
+-  這頻率至少半年見一次！《惡之花》劇組秀好感情，李準基、文彩元、張熙軫、徐賢宇、金智勳均到場
+-  Coaching Centre Crackdown?!
