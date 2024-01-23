@@ -1,11 +1,11 @@
 # Latest News
--  Bjesne borbe u Gazi, 1,7 milijuna ljudi je raseljeno iz svojih domova
--  Beşiktaş’a dünya yıldızı orta saha! Menajeri transfer için Türkiye’ye geliyor! Hasan Arat'tan Fernando Santos'a büyük hediye
--  Maliye Bakanlığı ile Merkez Bankası arasında kredilerle ilgili protokol imzalandı
--  Trabzonspor'da gözler sağ bek transferinde
--  Le meilleur maître sushi du monde travaille dans un restaurant de Mons !
--  US and UK carry out additional strikes against Houthi targets in Yemen
--  Mastalerek o słowach prezesa PiS: To prezydent ma rację, nie Kaczyński
--  "Наистина ли искаме двама 80-годишни за президент?"
--  巴恩斯32分領銜 國王輕取老鷹終止4連敗
--  서울 평창동 빌라에 모여 집단 마약 투약한 4명 검찰 송치
+-  Persib Menang Atas Dewa United, Bojan Hodak Mengaku Belum Puas
+-  Penjualan Mobil VinFast Ternyata Gagal Capai Target Sepanjang 2023
+-  EUROPSKI SUSRET Von der Leyen i nizozemski premijer Rutte stigli u Predsjedništvo BiH. Plenković otkazao dolazak
+-  Gemlik'te zabıtadan gramaj denetimi
+-  Nikki Haley receives all 6 votes from lone New Hampshire town participating in midnight voting tradition
+-  Siêu cường ‘chắc mẩm’ vào BRICS, đồng hành cùng Nga, Trung Quốc,...bỗng ‘quay xe’ phút chót: Chỉ một quyết định cũng có thể làm lung lay tham vọng kiểm soát thị trường ‘vàng đen’ toàn cầu của khối này
+-  “El ser humano es capaz de curar la enfermedad siempre y cuando sea rentable”
+-  Motorcycle Accident Attorneys Fayetteville : Ride Safe, Ride Informed 2024
+-  Mỹ nhân Hẹn Hò Chốn Công Sở khoe hôn lễ quy mô khủng: 1000 khách dự, 1 tài tử hạng A thầu hết chi phí
+-  Streaming: Længe ventet science fiction-serie får endelig premiere
