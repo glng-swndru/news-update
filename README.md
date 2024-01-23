@@ -1,11 +1,11 @@
 # Latest News
--  Pochettino thinks Chelsea have a 21-year-old talent who could make a first-team impact now
--  陸男自製「火箭筒煙火」自爆！手掌炸爛血肉模糊、肚子轟掉一大塊
--  Newcastle athlete posts world under-20 qualifiers via golden double
--  Liberal party all talk and no action on tax cuts
--  Ce vidéoprojecteur est proposé à un prix défiant toute concurrence, la rupture de stock est proche
--  د سندرو مېلمانه
--  Σαν Σήμερα: H απόπειρα των οδηγών της F1 για μποϊκοτάζ στη Ν. Αφρική
--  Vegyes volt a forint mozgása ma reggel
--  Construction de l'A50: à Sanary, l'ancien directeur se souvient du "dynamitage" de son école en août 1973
--  Mindössze három nap alatt elérte az 5 milliós eladást a Palworld
+-  Bjesne borbe u Gazi, 1,7 milijuna ljudi je raseljeno iz svojih domova
+-  Beşiktaş’a dünya yıldızı orta saha! Menajeri transfer için Türkiye’ye geliyor! Hasan Arat'tan Fernando Santos'a büyük hediye
+-  Maliye Bakanlığı ile Merkez Bankası arasında kredilerle ilgili protokol imzalandı
+-  Trabzonspor'da gözler sağ bek transferinde
+-  Le meilleur maître sushi du monde travaille dans un restaurant de Mons !
+-  US and UK carry out additional strikes against Houthi targets in Yemen
+-  Mastalerek o słowach prezesa PiS: To prezydent ma rację, nie Kaczyński
+-  "Наистина ли искаме двама 80-годишни за президент?"
+-  巴恩斯32分領銜 國王輕取老鷹終止4連敗
+-  서울 평창동 빌라에 모여 집단 마약 투약한 4명 검찰 송치
