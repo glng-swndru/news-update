@@ -1,11 +1,11 @@
 # Latest News
--  5 أطعمة تخفف من "انسداد الأنف" في موسم نزلات البرد صحة
--  Governo do PT volta a fazer o que não deu certo, e isso assusta, diz pesquisador
--  اعتماد تكنولوجيا الزراعة العمودية للخضراوات بدون تربة
--  Vinces: Buscando armas escondidas hallaron droga en hacienda
--  NorthWestern's high-dollar power purchases during deep freeze draws scrutiny
--  Điểm đến du lịch được khách Việt tìm nhiều nhất trên Google 2023: Gần Việt Nam, chỉ cách hơn 2 giờ bay
--  Golden Boy tekad lebih menyerlah 2024
--  أبوغزاله يتسلم جائزة التميز الدولي للمسؤولية الاجتماعية لعام 2023
--  Governo do PT volta a fazer o que não deu certo, e isso assusta, diz pesquisador
--  Panama bunker sales down in 2023 due to Canal restrictions.
+-  Atraparon a un sospechoso por el crimen de Umma y buscan a otros tres
+-  ‘친윤 핵심’ 이철규 “한동훈-대통령실 소통과정 오해…잘 봉합될 것”
+-  สภาพอากาศวันนี้ "อีสาน" ลมหนาวมา ลดฮวบ 5 องศาฯ ใต้มีฝนร้อยละ 30
+-  Cairngorm farmers turn out for a second demonstration
+-  Tôi 55 tuổi, phá sản về quê khởi nghiệp: Tưởng người nông thôn chất phác, ai dè phức tạp hơn thành thị rất nhiều!
+-  1 loại hạt ăn vặt tốt ngang insulin tự nhiên giúp hạ đường huyết, phòng chống ung thư hiệu quả: Rất sẵn ở chợ Việt
+-  Erneut koordinierter Militärschlag gegen Huthi-Miliz
+-  أمير الحدود الشمالية يرعى ختام مهرجان الصقور بالمنطقة
+-  北海道は道東の広い範囲で強い雪 風が吹き荒れる道北は猛吹雪に - ウェザーニュース
+-  Cụ bà 92 tuổi đòi ly hôn với cụ ông 94 tuổi, không chia tài sản, con cái: Dân tình cười ngả nghiêng khi nghe lý do!
