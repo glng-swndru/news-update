@@ -1,11 +1,11 @@
 # Latest News
--  PSG'nin hedefi Sacha Boey
--  Elon Musk supports India’s permanent membership at UNSC
--  Kinofestival in Saarbrücken: Filmfestival Max-Ophüls-Preis ist eröffnet – Macher positionieren sich gegen Menschenfeindlichkeit
--  قطر الخيرية: حملة "كالجسد الواحد" توزع الحقائب الشتوية على العمال
--  Horlayan komşusunu öldürdü
--  Байден после слов Жан-Пьер о его остром уме перепутал своих министров
--  Sky Pacific to air all Super Rugby matches
--  ZESA Holdings sued US$36k for breaching contract
--  अयोध्या में Virat Kohli जैसा दिखने वाला पहुंचा शख्स तो जबरदस्ती सेल्फी लेने लगे लोग; Video
--  «Второй уже не двигался»: жуткое избиение битой произошло в Приморье
+-  Alphabets Experiment-Abteilung sucht Geldgeber
+-  Venäläinen ruttasi saksalaisen auton Suomessa – alkoi kuuden vuoden kiista, jossa väännettiin lopulta kymmenistä tuhansista euroista
+-  بحث التعاون العُماني الأمريكي في مكافحة الاتجار بالبشر
+-  Salud de la mujer en pañales
+-  En el barrio Victorino Simón reclaman por las máquinas municipales
+-  Η ιστορία του πρώτου serial killer στην Ελλάδα, Αντώνη Δαγκλή που καταδικάστηκε σε 13 φορές ισόβια
+-  Utorok bude oblačný, na severozápade očakávajte snehové prehánky
+-  Sixers’ Joel Embiid breaks Wilt Chamberlain’s franchise record in masterful performance vs Spurs - Fox News
+-  Alphabets Experiment-Abteilung sucht Geldgeber
+-  YoWindow
