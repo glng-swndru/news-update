@@ -1,11 +1,11 @@
 # Latest News
--  Alphabets Experiment-Abteilung sucht Geldgeber
--  Venäläinen ruttasi saksalaisen auton Suomessa – alkoi kuuden vuoden kiista, jossa väännettiin lopulta kymmenistä tuhansista euroista
--  بحث التعاون العُماني الأمريكي في مكافحة الاتجار بالبشر
--  Salud de la mujer en pañales
--  En el barrio Victorino Simón reclaman por las máquinas municipales
--  Η ιστορία του πρώτου serial killer στην Ελλάδα, Αντώνη Δαγκλή που καταδικάστηκε σε 13 φορές ισόβια
--  Utorok bude oblačný, na severozápade očakávajte snehové prehánky
--  Sixers’ Joel Embiid breaks Wilt Chamberlain’s franchise record in masterful performance vs Spurs - Fox News
--  Alphabets Experiment-Abteilung sucht Geldgeber
--  YoWindow
+-  Rəsmi Bakıdan Cozep Borelin əsassız iddialarına
+-  XİN: "Azərbaycanın təcavüzə son qoyduğu tədbirlər..."
+-  Relief to Bajaj Auto Ltd: ITAT allows Deduction u/s 40(a) (i) of Income Tax Act in respect of Expenditure incurred in Foreign Currency [Read Order]
+-  Maia Estianty Komentari Kabar Al Ghazali Pacaran dengan Laura Moane
+-  «Στραγγαλισμό» και διακρίσεις καταγγέλλουν οι μικρότερες εργοληπτικές επιχειρήσεις - Τι ζητούν για να συμμετέχουν ισάξια στους διαγωνισμούς
+-  Reabre un bar mítico: cerró en el 2001 y tras años de remodelación vuelve a brillar en la clásica esquina de San Telmo: “Venía a los 5 con mi abuelo. Ahora tengo 50″
+-  ¿Para qué un cuerpo técnico tan vasto?
+-  Campeones del mundo en inflación
+-  Bayer Leverkusen plant offenbar Transfer-Überraschung – Boniface-Ersatz im Anflug?
+-  Coś dziwnego będzie się działo w niemieckiej branży budowlanej
