@@ -1,11 +1,11 @@
 # Latest News
--  Vision Pro briefing: Apple’s new billion-dollar business
--  Ethereum Foundation stößt 700 ETH ab: Strategische Verkäufe oder Marktmanipulation?
--  TTC riders get a glimpse of Stanley Cup ahead of NHL All-Star Game in Toronto - CP24
--  ¿Cuánto cuesta el nuevo Samsung Galaxy S24 en Liverpool?
--  CAN 2023: la Fédération congolaise publie un message d’indignation après « les attaques racistes » contre Mbemba
--  İş kadını Yasemin Sadıkoğlu'nun darp edilme anı kamerada
--  Who will replace Virat Kohli for first two Test matches against England? Reports suggest...
--  Magali Ripoll : Cet interdit que sa fille Chloé, son sosie de 11 ans, rêve de braver contre l'avis de sa mère !
--  BMGK'da Rusya ve ABD, Ukrayna'daki çatışma için birbirini suçladı
--  Palworld Could Come To PS5, But Nothing Is Certain Yet
+-  Mode. À la fashion week de Paris, des créations de plus en plus dégenrées
+-  Мария Габриел: Работата по оценката на министрите е на финален етап
+-  "Mi irrita, un ruolo illiberale": strike di Paolo Crepet, stronca Ferragni e Lucarelli
+-  Politique. «Ein freund» : Emmanuel Macron rend un hommage en allemand à Wolfgang Schäuble
+-  Leverkusener Rheinbrücke gesperrt: Staugefahr in NRW – wo aktuell mit Einschränkungen zu rechnen ist
+-  Israel, Czech Republic Reinforce Cyber Partnership Amid Hamas War
+-  Santé. Le gouvernement prépare le doublement des franchises médicales pour fin mars
+-  Santé. Les médecins diplômés à l'étranger «autorisés à travailler» pour les mois à venir
+-  Ekşi Sözlük'ün erişim engeli kaldırıldı! Ekrem İmamoğlu pazarlığı mı yapıldı?
+-  Shoah, Mulè (Fi): "Antisemitismo cancro che non guarisce e che va combattuto"
