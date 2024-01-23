@@ -1,11 +1,11 @@
 # Latest News
--  Russische Militärkultur: "Es war nie Russlands Ziel, dass Besatzungen überleben": Bundesheer-Oberst erklärt Moskaus Strategie
--  여당, ‘마포을 김경율·계양을 원희룡’ 전략공천 길 텄다
--  أمير الكويت يستقبل الأمير تركي بن محمد بن فهد ويستعرضان العلاقات الأخوية
--  Zuzana Čaputová ve výprodeji: Volby mohou završit její pád. Kandidátku berou útokem Ficovi muži
--  "TEŠKA JE TO PORODIČNA PRIČA, ZORAN JE UVEK BIO PROBLEMATIČAN" Detalji stravičnog ubistva u Smederevu, progovorile komšije
--  В сряда ще преобладава слънчево време, максималните температурите ще са между 3 и 8 градуса - Труд
--  8 yıl 11 ay hapis cezası olan şahıs yakalandı
--  PREDSJEDNIK MO STOBREČ: Grad je zaspao, sami moramo raditi jer oni koji bi to trebali ne znaju ili ne žele
--  Kronprinsessan besöker Saab – ska få se nya Gripen E
--  Le Théâtre du motif va réinterpréter une pièce de Samuel Beckett le 26 janvier à Issoire
+-  NSƯT Kim Tử Long: "Tôi ngồi chờ từ sáng tới tối mới được quay một cảnh, nói 1-2 câu thoại"
+-  ‘Role model’ - Championship player raves about 'insanely talented' Man Utd legend who has 'an impressive CV'
+-  Il mercato del Torino in uscita: Seck al Frosinone e Karamoh richiesto da Empoli e Lecce
+-  TBMM Sağlık Komisyonu Başkanvekili Ateş, KKTC Meclis heyetiyle görüştü
+-  〈さんま御殿きょう出演〉剛力彩芽が「前澤の元カノ」卒業！ 独立で仕事選ばず、好感度回復の兆し
+-  It’s No Joke! Hold Lucid Stock and You Could Go Broke.
+-  Kızıl Goncalar'ın Zeynep'i Mina Demirtaş kimdir? Mina Demirtaş'ın yaşı kaç? Mina Demirtaş'ın açık hali
+-  Hojbjerg Juve, tentativo last minute? Cosa filtra
+-  Incautan paquetes de cocaína en el Aeropuert Silvio Pettirossi
+-  Što mislite koliko tjedno zarađuje najpopularnija tiktokerica na svijetu? Ovo je njezina zarada samo od pregleda!
