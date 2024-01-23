@@ -1,11 +1,11 @@
 # Latest News
--  الإفراج عن لائحة جديدة من التعيينات في صفوف القضاة
--  Hallan muerto a un funcionario de la Procuraduría colombiana
--  Snažan potres magnitude 7,1 pogodio granicu Kine i Kirgistana
--  Ramón “Wanchope” Ábila está a un paso de sumarse a Barracas Central
--  Алкарас: Суши всеки ден и печелиш мачове
--  Израел предлага да спре сраженията срещу освобождаването на всички заложници
--  İYİ Parti'de İstanbul adayı kim olacak? 'Akşener o ismi güvenilirlik testine soktu'
--  Filistin'den AB'ye, "Netanyahu'ya yaptırım uygulayın" çağrısı
--  '대중교통 할인 카드' 혜택 제각각…현명한 선택하려면?
--  मोगा में सिद्धू की रैली के आयोजकों को नोटिस, कांग्रेस कमेटी ने मांगा जवाब
+-  Back bigger and better: 11 reasons to sign up to SuperCoach
+-  39 nominees up for B.C.’s 2024 SportBC awards
+-  Fiscalía venezolana detiene a 32 presuntos implicados en planes terroristas e intento de magnicidio
+-  Vandalismo em placas que indicam balneabilidade dificulta divulgação se praias de SC estão próprias para banho
+-  39 nominees up for B.C.’s 2024 SportBC awards
+-  Tom Sangster breaks golden rule in risky SuperCoach team
+-  39 nominees up for B.C.’s 2024 SportBC awards
+-  The Supreme Court says no, Texas can’t use razor wire to restrain federal agents
+-  Familiares de detenidos en El Salvador piden alternativas a prisión por razones de salud
+-  39 nominees up for B.C.’s 2024 SportBC awards
