@@ -1,11 +1,11 @@
 # Latest News
--  Galatasaray, yıldız isimle anlaştı! Sözleşmesi uzatılacak
--  Ünlü oyuncu 7 büyüklüğündeki depreme yakalandı
--  Anies Baswedan Bakal Kampanye Akbar di Palembang Kamis 25 Januari
--  Krieg im Nahen Osten: 21 israelische Soldaten bei Vorfall im Gazastreifen getötet
--  路上で80代男性に因縁をつけ重傷を負わせたか 20代の夫婦を逮捕
--  Krievija ar raķetēm apšauda Kijivu un Harkivu
--  В российском регионе родители обвинили учителя-мигранта в оскорблениях детей
--  Disease X क्या है? जानें क्यों हर तरफ हो रही है इस नई मुसीबत की चर्चा
--  അവശനിലയിൽ കണ്ട ഹനുമാൻ കുരങ്ങിന് സഹായഹസ്തം
--  Căn bệnh xoắn tinh hoàn nam giới dễ mắc khi trời lạnh
+-  Kocaeli Yıldızlar Karate Şampiyonası’nda Körfez fırtınası
+-  EN DIRECT - Colère des agriculteurs : au sud de Lyon, dans la Drôme... Plusieurs autoroutes coupées ce mardi matin
+-  Бомбена заплаха затвори училищата в Козлодуй и Хайредин
+-  Budowę tego stadionu obiecał sam Kaczyński. 300 mln złotych zablokowane?
+-  Ning Chasna Nayluver Malah Tidak Pakai Desain Gaun Pengantin Impiannya, Kenapa?
+-  Hırsız fare kamerada! Çaldığı ürünü görünce sizde şaşıracaksınız...
+-  Gaza, uccisi 21 soldati israeliani. Gallant: "Obbligati a raggiungere obiettivi"
+-  Novakova reakcija postala hit na društvenim mrežama: Đoković se isplazio Niku Kirjosu /VIDEO/
+-  Ogni giorno 6 incidenti e 3 denunce, il bilancio 2023 della Polizia Locale
+-  Емил Костадинов и още двама членове на Изпълкома обжалват вписването на Михаил Касабов
