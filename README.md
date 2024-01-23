@@ -1,11 +1,11 @@
 # Latest News
--  ‘세작’ 한동희 화냥년 파격 연기, “나만 잘하면 돼 생각” [화보]
--  Dom publiczny w nagrodę? Zespół ds. rozliczeń PiS zawiadomi prokuraturę
--  Ram Mandir in Ayodhya: Rituals, bhog, aarti timings and more
--  Dom publiczny w nagrodę? Zespół ds. rozliczeń PiS zawiadomi prokuraturę
--  Sensex crashes over 1,000 points, Nifty plunges below 21,300
--  أداء متباين لبورصات الخليج بعد تراجع أسعار النفط وتصاعد التوتر بالمنطقة
--  【速報】取り調べの刑事ら証人尋問の日程決まる 滋賀・湖東病院国賠訴訟
--  Dom publiczny w nagrodę? Zespół ds. rozliczeń PiS zawiadomi prokuraturę
--  4 cách phòng bệnh vùng kín hiệu quả, đây là 3 thực phẩm chị em cần tránh để bảo vệ tử cung
--  &quot;LEKARI U SRBIJI SU SJAJNI, U TURSKOJ SU JE OSTAVILI DA UMRE&quot; Ispovest majka Britanke zbog koje je avion morao da sleti u Beograd
+-  Команду проекта Ondo Finance заподозрили в дампе токена ONDO
+-  Задържаха мъж, скубал за косата и удрял 75-годишната си майка в София
+-  Carrefour combate la inflación en Cuenca con bajadas de precios en 500 productos
+-  Руският опозиционер Алексей Навални е поставен в изолация за 10 дни
+-  Người đàn ông rơi từ vách đá xuống vực tử vong sau khi ăn nấm rừng gây mê sảng
+-  「F1」を大阪に！誘致目指す 『海外の富裕層の呼び込みなどに効果的』と大阪観光局 吉村知事も賛同
+-  Buďte v zisku. Využívejte řízení fotovoltaické elektrárny a tepelného čerpadla umělou inteligencí!
+-  Riforme: Lupi, 'premierato per cambiare l'Italia'
+-  M Qodari Nilai Dukungan Erick Thohir Bisa Berkontribusi Besar untuk Prabowo-Gibran
+-  Estados Unidos acaba de hacer lo correcto en América Latina
