@@ -1,11 +1,11 @@
 # Latest News
--  Rəsmi Bakıdan Cozep Borelin əsassız iddialarına
--  XİN: "Azərbaycanın təcavüzə son qoyduğu tədbirlər..."
--  Relief to Bajaj Auto Ltd: ITAT allows Deduction u/s 40(a) (i) of Income Tax Act in respect of Expenditure incurred in Foreign Currency [Read Order]
--  Maia Estianty Komentari Kabar Al Ghazali Pacaran dengan Laura Moane
--  «Στραγγαλισμό» και διακρίσεις καταγγέλλουν οι μικρότερες εργοληπτικές επιχειρήσεις - Τι ζητούν για να συμμετέχουν ισάξια στους διαγωνισμούς
--  Reabre un bar mítico: cerró en el 2001 y tras años de remodelación vuelve a brillar en la clásica esquina de San Telmo: “Venía a los 5 con mi abuelo. Ahora tengo 50″
--  ¿Para qué un cuerpo técnico tan vasto?
--  Campeones del mundo en inflación
--  Bayer Leverkusen plant offenbar Transfer-Überraschung – Boniface-Ersatz im Anflug?
--  Coś dziwnego będzie się działo w niemieckiej branży budowlanej
+-  নির্বাচন থেকে সরে দাঁড়ালেন ডিস্যান্টিস, ট্রাম্পকে সমর্থন
+-  Pobuna zbog vjetroparka: "Ako ga stave pred kuću, ja ću ga odmah srušiti traktorom"
+-  Nawet 1191,33 zł miesięcznie przez trzy lata. To mało popularne świadczenie, warto o nim wiedzieć
+-  Wer nicht ins Schema passt, wird aussortiert? Warum Sozialverbände vor der AfD warnen
+-  Pánikban
+-  Başkent kulislerini hareketlendiren iddia! Kılıçdaroğlu, Özel’in teklifine sıcak bakmadı
+-  ဗိုလ်မှူးချုပ် ၆ ဦးကို ထောင်ဒဏ် တသက်နဲ့ သေဒဏ်ပြစ်ဒဏ်ချ၊ ဟိုပုံးမြို့နယ် စံဖူးရွာက လက်နက်သယ်လာတဲ့ ကားတွေနဲ့ တိုက်ပွဲဖြစ်ပြီး ကျေးရွာ အိမ် ၂၀ မီးလောင်
+-  Talpig sminkben ment barátnője helyett vizsgázni az álruhás gavallér (videó)
+-  사우디 떠나고 싶은 벤제마, 친정팀 리옹 복귀설
+-  Les villes nouvelles, une solution aux problèmes d’urbanisation de l’Afrique ?
