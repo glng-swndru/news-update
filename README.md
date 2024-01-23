@@ -1,11 +1,11 @@
 # Latest News
--  Polizei sucht vermisstes Mädchen (13) aus Marl: Jugendliche verschwand am 19. Januar
--  ΠΡΟΣΕΞΤΕ ΤΟΝ…
--  Whatsapps y documentos de Bildu destapan los chanchullos de Marlaska con Otegi
--  Евросоюзу предрекли стагнацию из-за санкций против России
--  Parkens populära lekytor döms ut – får inte användas: ”Inget som kommer påverka”
--  The 2024 Forecast for Abortion Is… Shitstorm
--  Fußball: Duo soll Harthausen im Abstiegskampf unterstützen
--  Contract Research Organization Services Market / CRO Services Market Worth $129.8 Billion | MarketsandMarkets™
--  Babacan'dan Hafize Gaye Erkan'a çağrı: Dedikoduların önünü kessin
--  'Overhaul' your scrambled eggs by adding one simple ingredient for 'ethereal fluffiness'
+-  Windkraft im Kanton Zürich: Die Gemeinden sitzen am kürzeren Hebel
+-  Funcionário é golpeado por outro com garrafa durante briga em alojamento no Nortão
+-  Туск порадив менше слухати Путіна
+-  Serdar Çevirgen’den hem teşekkür hem de söz
+-  ΕΦΚΑ: Σε λειτουργία η πλατφόρμα για την επιλογή ασφαλιστικής κατηγορίας για το 2024
+-  "พ่อแม่โดนด้วย" ตร.เรียกผู้ปกครอง 5 ทรชนฆ่า "ป้าบัวผัน" รับทราบข้อหา
+-  Der Fluch über den Innerschweizer Parteipräsidenten: Wie die Bundesratschancen von Marcel Dettling stehen
+-  Gold: Next 10 Trading Sessions Could Be a Repeat of September Last Year
+-  Hatay'da 10 düzensiz göçmen yakalandı
+-  Nuevas parejas confirmadas: conoce los últimos anuncios
