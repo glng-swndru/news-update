@@ -1,11 +1,11 @@
 # Latest News
--  Chefe de gabinete do CEO da TAP assume liderança dos Recursos Humanos
--  İçerken bir daha düşünün, endişe yaratan araştırma
--  Tıbbi destek projeleriyle Pasifik Ada ülkelerindeki binlerce hastaya yardım hedefleniyor
--  Kartepe'de Atlı Jandarma Timleri Tatilcilerin Güvenliğini Sağlıyor
--  Силкин: «Коваленко — перспективный футболист, но в «Зените» ему не место»
--  İstanbul'da gemi kazası
--  Rolex, Cartier, Patek Philippe: Luxusuhren in der Krise – Warum zahlreiche Aktien gerade kollektiv abstürzen
--  Αυστραλία: Οι αρχές της χώρας επέβαλαν "πρωτοφανείς" κυρώσεις σε Ρώσο χάκερ για τεράστια κυβερνοεπίθεση το 2022
--  Bên trong căn biệt thự gần 900m2 ngay khu nhà giàu Thảo Điền (Tp.HCM), nữ chủ nhân 9X chi bạo 30 tỉ đồng để xây dựng
--  경찰, '청량리 재개발 비리 의혹' 동대문구청 압수수색
+-  Pochettino thinks Chelsea have a 21-year-old talent who could make a first-team impact now
+-  陸男自製「火箭筒煙火」自爆！手掌炸爛血肉模糊、肚子轟掉一大塊
+-  Newcastle athlete posts world under-20 qualifiers via golden double
+-  Liberal party all talk and no action on tax cuts
+-  Ce vidéoprojecteur est proposé à un prix défiant toute concurrence, la rupture de stock est proche
+-  د سندرو مېلمانه
+-  Σαν Σήμερα: H απόπειρα των οδηγών της F1 για μποϊκοτάζ στη Ν. Αφρική
+-  Vegyes volt a forint mozgása ma reggel
+-  Construction de l'A50: à Sanary, l'ancien directeur se souvient du "dynamitage" de son école en août 1973
+-  Mindössze három nap alatt elérte az 5 milliós eladást a Palworld
