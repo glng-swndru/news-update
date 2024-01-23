@@ -1,11 +1,11 @@
 # Latest News
--  El riesgo de la reforma de la salud para Bogotá / Opinión
--  Sandra Postel: „Die Pflegekammer kann nur ein erster Schritt sein“
--  South Africa: Today’s latest news and headlines, Tuesday, 23 January 2024
--  Lower year sales for Iluka amid subdued conditions
--  New Forest dog owner warning as pet dies from rat poison
--  平阳省扩大与韩国京畿道始兴市的合作
--  손종학, 할리우드 진출...신성 감독 ‘24 아우어 소나타’서 한국 조직 보스로 열연 예고
--  Κοτόπουλο με μέλι & ουίσκι
--  Plantel de 2024/25 em construção: juventude comanda as tropas
--  Will we ever master a proper plan for Bengaluru?
+-  Avustralya, altın vize uygulamasını kaldırdı
+-  林秀琴「不怎麼認同低溫假」！女兒學校就在陽明山：怎麼睡都冷
+-  Ampel in Castrop-Rauxel bleibt minutenlang rot: Lange Schlangen und waghalsige Wendemanöver
+-  Regras de transição demora quanto tempo no INSS
+-  Bursa Malaysia closed for Thaipusam (Jan 25)
+-  Hindari Penyitaan, Asosiasi Distributor Mihol Berupaya Lengkapi Perizinan
+-  Ostapenko/Kičenoka sasniedz "Grand Slam" pusfinālu pirmoreiz kopš 2022. gada
+-  Teures Heizen ++ Scholle: Edeka kommt 2025 ++ Demo gegen rechts
+-  Prignitz-Express vom Bahnstreik betroffen +++ Windpark-Demo in Kyritz +++ Landrat fordert Hilfe für Uniklinik
+-  39-Jährige sticht Schatzsucher ins Bein +++ Wenn Kinder die Eltern verlassen +++ Bahnstreik auch in Oberhavel
