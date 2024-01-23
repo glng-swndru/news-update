@@ -1,11 +1,11 @@
 # Latest News
--  Back bigger and better: 11 reasons to sign up to SuperCoach
--  39 nominees up for B.C.’s 2024 SportBC awards
--  Fiscalía venezolana detiene a 32 presuntos implicados en planes terroristas e intento de magnicidio
--  Vandalismo em placas que indicam balneabilidade dificulta divulgação se praias de SC estão próprias para banho
--  39 nominees up for B.C.’s 2024 SportBC awards
--  Tom Sangster breaks golden rule in risky SuperCoach team
--  39 nominees up for B.C.’s 2024 SportBC awards
--  The Supreme Court says no, Texas can’t use razor wire to restrain federal agents
--  Familiares de detenidos en El Salvador piden alternativas a prisión por razones de salud
--  39 nominees up for B.C.’s 2024 SportBC awards
+-  Future Fund lifts returns, cautions markets on inflation
+-  De Laurentiis attacca l'Inter: "Ha 900 milioni di debiti, il Napoli vince lo scudetto a +85"
+-  Trump seeks to secure NH win while dealing with defamation trial
+-  Município pede ao STF para suspender licença de instalação da ferrovia Rondonópolis-Cuiabá-Mutum-Lucas
+-  Dschungelcamp 2024: Mike Heiter: Heikle Vorgeschichte mit Kim Virginia
+-  Drive London, el proyecto de karts de Fórmula 1 debajo del estadio del Tottenham
+-  Iran generals' anti-Semitic talks to university students now subject to investigation
+-  Dschungelcamp-Star mit tragischem Leben: Leyla Lahouar: Prügel-Ex, toter Vater und Krebs in jungen Jahren
+-  SLEDI LI OKONČANJE RATA? Olgasiio se Netanjahu
+-  BARAĆ EMOTIVNO O MILOJEVIĆU: Razmišljao sam da ga pitam za savet, ali me je on preduhitrio...
