@@ -1,11 +1,11 @@
 # Latest News
--  【好きなことでお金を稼ぐ】 資金ほぼゼロでOK！ たったひとりでECサイトを運営する方法 - 「おウチ起業」で4畳半から7億円 ネットショップで「好き」を売ってお金を稼ぐ！
--  "Attento Fiore...". Avanti Popolo chiude? Cosa risponde De Girolamo
--  Γκαγιέγο: «Πρέπει να βάζουμε πιο δύσκολα στους αντιπάλους»
--  „JEDNA DOJKA MI NIKADA NIJE PORASLA“ Primetila je da joj grudi ne rastu jednako, a lekari joj govorili da je sve u redu
--  Domaćin kontinentalne smotre doživio fijasko: Hajduk dobiva (ne)očekivano pojačanje?
--  עוד ניצחון לאוסף: בן שמעון ממשיך להרשים בקפריסין, 0:1 לא.א.ק לרנקה
--  Lula lança nova política industrial com aporte de R$ 300 bi
--  Russia's Navalny says he is forced to listen to pro-Putin singer every morning
--  Musin suigrač seli Kramariću; Čeh iz Benfice došao na posudbu
--  Instáč: Miraova ex ukázala novou lásku, Schicková se svlékla a Sandeva vychválila tchyni
+-  As The Servers Shut Down, The Day Before Is No More
+-  This New 272-Foot Hybrid Superyacht Has an Glass-Bottom Pool Perched Over Its Beach Club
+-  Ampel-Streit: Worum es beim Zank um Kindergeld und Freibetrag geht
+-  Global Market for Bio-based Leather 2024-2035: 11 Year Historic and Forecast Demand Globally, By Region & End Use Segment
+-  Blanka Lipińska zawiedziona kultową drogą w USA, po której biegł Forrest Gump: "G*wno widać. Przyjechaliśmy, żebyście WY NIE MUSIELI"
+-  Berberine May Reduce Inflammation of Lung Tissues in Patients With Metastatic Colorectal Cancer
+-  ‘America does not do coronations’: Haley hopes to stop Trump’s march
+-  Joe Biden y Kamala Harris ponen el derecho al aborto en primera línea electoral
+-  Schiffsunfall: Kriegsschiff-Kollision im Persischen Golf – britische Minenräumer krachen ineinander
+-  May Vancouver date for Avril Lavigne as greatest hits tour announced
