@@ -1,11 +1,11 @@
 # Latest News
--  Persib Menang Atas Dewa United, Bojan Hodak Mengaku Belum Puas
--  Penjualan Mobil VinFast Ternyata Gagal Capai Target Sepanjang 2023
--  EUROPSKI SUSRET Von der Leyen i nizozemski premijer Rutte stigli u Predsjedništvo BiH. Plenković otkazao dolazak
--  Gemlik'te zabıtadan gramaj denetimi
--  Nikki Haley receives all 6 votes from lone New Hampshire town participating in midnight voting tradition
--  Siêu cường ‘chắc mẩm’ vào BRICS, đồng hành cùng Nga, Trung Quốc,...bỗng ‘quay xe’ phút chót: Chỉ một quyết định cũng có thể làm lung lay tham vọng kiểm soát thị trường ‘vàng đen’ toàn cầu của khối này
--  “El ser humano es capaz de curar la enfermedad siempre y cuando sea rentable”
--  Motorcycle Accident Attorneys Fayetteville : Ride Safe, Ride Informed 2024
--  Mỹ nhân Hẹn Hò Chốn Công Sở khoe hôn lễ quy mô khủng: 1000 khách dự, 1 tài tử hạng A thầu hết chi phí
--  Streaming: Længe ventet science fiction-serie får endelig premiere
+-  الاتحاد يحسم موقفه من رحيل حجازي
+-  Þurfum við að standa ein?
+-  La escuela de Caneto reabre sin dormirse en los laureles
+-  영화 ‘소풍’ 소중한 추억을 기억하세요 [포토]
+-  Invictus finalises capital raise for Zimbabwe exploration
+-  上海市去年實際使用外資240億美元創歷史新高
+-  Kommunal verksamhet visar flera brister
+-  Cuộc sống kín tiếng của "hoa hậu cải lương" vừa được phong tặng danh hiệu NSƯT
+-  Celebra los Derechos Humanos Fundamentales en el Día Mundial de la Libertad
+-  Vũ điệu 'làng mía' ở Nghệ An nổi bật trong ngày
