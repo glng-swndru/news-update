@@ -1,11 +1,11 @@
 # Latest News
--  越南国会主席王廷惠走访慰问国会已故领导家属
--  Thấy gì từ bức tranh tài chính của Tập đoàn TASECO?
--  Общинските съветници на БСП предлагат решения за излизане от кризата в СОС
--  Reverse flow: Reduced to dumpyard, SWD spews dirty water into residents’ houses
--  最高裁が上告棄却・求刑超える「懲役10年」判決確定へ…2019年・天童市で妻殺害 山形
--  Small cap heroes to lead ASX fightback
--  وفيات الثلاثاء ,, 23 / 1 / 2024
--  Norman Jewison, acclaimed director of 'In the Heat of the Night' and 'Moonstruck,' dead at 97 - The Associated Press
--  Soroti Etika Gibran Saat Debat, Pengamat: Ada Benarnya Usia Kematangan Cawapres Minimal 40 Tahun
--  هل ينتقل كالوم ويلسون من نيوكاسل إلى دوري روشن؟
+-  Tư lệnh hạm đội Mỹ cáo buộc đích danh Iran
+-  उज्बेकिस्तान की लड़की के साथ रिजॉर्ट में रुका था दिल्ली का युवक, सुबह दोनों की मिली लाश
+-  Khám phá bí ẩn về cá ngựa: Vì sao nó được mệnh danh là “sinh vật được tạo hóa sinh ra khi say rượu”?
+-  爸媽常為錢吵架！她捨不得花「覺得沒資格」 過來人給建議
+-  আটক নেতা-কর্মীদের মুক্তি দেওয়া হোক
+-  Omakotitalo tuhoutui Janakkalassa – asukkaita ei ole tavoitettu
+-  IM Bangalore launches new six-week digital course on New Age Business Model
+-  Pasean desnudo a presunto violador de una menor de edad en Valle Nacional, Oaxaca
+-  Loạt sản phẩm và phần mềm của Apple sẽ ra mắt trong những tháng tới?
+-  Dólar hoy y dólar blue hoy, EN VIVO: cuál es la cotización del martes 23 de enero minuto a minuto
