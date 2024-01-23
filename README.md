@@ -1,11 +1,11 @@
 # Latest News
--  Başkan Erdem izcileri ağırladı
--  Kampanye di Lampung Selatan, Ganjar Sampaikan Program Unggulan untuk Rakyat Perekonomian ke Bawah
--  Main ke Indekos Teman Wanita, Mahasiswa Ini Motornya Digondol Maling
--  Gran Hermano: ¿quién es el nuevo eliminado de la casa?
--  Ratgeber: Von A bis C: Das sind die Unterschiede der USB-Kabel-Typen
--  Ratgeber: Von A bis C: Das sind die Unterschiede der USB-Kabel-Typen
--  Até já tem uma música com João Monteiro: "Penso em ti"
--  Amazon sold a fake RTX 4090 with an RTX 4080 GPU and fried components
--  Balıkesir'in meşhur tatil beldesinde korkunç manzara... Etkisini giderek artırdı. Zor anlara neden oldu
--  「突然の大雪で作業のスタートが遅れた」と札幌市は説明…小学校の始業式までに通学路の除排雪目指すも間に合わず 巨大な雪山残る中"登下校に注意"を
+-  Saugumo specialistai aptiko kritinį „Google Chrome“ naršyklės pažeidžiamumą
+-  Tiếp bước H&M, Zara, UNIQLO tố Shein đạo nhái thiết kế, đã vậy còn bán với giá rẻ 1 nửa
+-  La direction de l'hôpital Abass Ndao annonce la remise sur pied de l’appareil de dialyse pour enfant
+-  Playtika Holding Corp. : HSBC revisa su opinión y se vuelve a Neutral
+-  Playtika Holding Corp. : HSBC haalt aandeel van kooplijst
+-  Criscitiello: "Calciatori bruciati e insulti per tre anni. La maschera è caduta"
+-  Oficial da Marinha sai da pista, bate carro em árvore e morre na BR-262
+-  La Mariscal, sector tradicional del norte de Quito, sería renovada en doce años con un plan de seis ejes
+-  Taucher rücken in Bad Cannstatt aus: Herrenlose Jacke im Neckar löst Feuerwehreinsatz aus
+-  Kolejna porażka ministra. Sąd oddalił wniosek dot. wpisu likwidacji TVP do KRS
