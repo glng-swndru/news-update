@@ -1,11 +1,11 @@
 # Latest News
--  Mac PCs could ride AI wave
--  Community Foundation ready to help local students with summer study goals
--  Jeffrey Wright Says He Hasn't Seen A Script For The Batman 2 Yet
--  Danh họa cuồng loạn Caravaggio
--  "Tutta colpa della sinistra...". Meloni torna a parlare di Ferragni, riecco il parallelismo con Che Guevara
--  ONG de ex-secretário investigado em esquema de lixo em Florianópolis já foi condenada pelo TCE
--  궤도 "임영웅과 과학으로 친해져…비밀 단골음식점 있다"
--  Viharkáosz: londoni landolás helyett visszatért Budapestre a Ryanair egyik repülője
--  Filistin'den AB'ye, "Netanyahu'ya yaptırım uygulayın" çağrısı
--  Kenevir atıklarından hayvan yemi üretilecek
+-  Palworld lässt euch auch "unmenschliche" Dinge mit NPCs tun
+-  İsrail Gazze'de 108 günde 11 bin çocuk katletti
+-  Bangladeshi capital records season lowest temperature
+-  Hrvatski izbornik: Preuzimam odgovornost. Odigrali smo katastrofalno
+-  Die Ortsstraße in Erbach soll ab Februar saniert werden
+-  SOUTĚŽ: Návod k použití železnice. Vyhrajte překlad německého bestselleru Jaroslava Rudiše
+-  Actualité : Bose lance des écouteurs au design surprenant
+-  [UPDATED] Carved iPhone case review: Astoundingly beautiful one-of-a-kind smartphone cases
+-  Unasev pidió a intendentes mejorar prueba teórica para libreta de conducir
+-  НЕ СМЕЕ ДА ЈА НАПУШТИ МАКЕДОНИЈА: Ѓорѓе Давид остана без пасошот откако прегази жена на Табановце
