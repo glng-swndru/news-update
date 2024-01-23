@@ -1,11 +1,11 @@
 # Latest News
--  As The Servers Shut Down, The Day Before Is No More
--  This New 272-Foot Hybrid Superyacht Has an Glass-Bottom Pool Perched Over Its Beach Club
--  Ampel-Streit: Worum es beim Zank um Kindergeld und Freibetrag geht
--  Global Market for Bio-based Leather 2024-2035: 11 Year Historic and Forecast Demand Globally, By Region & End Use Segment
--  Blanka Lipińska zawiedziona kultową drogą w USA, po której biegł Forrest Gump: "G*wno widać. Przyjechaliśmy, żebyście WY NIE MUSIELI"
--  Berberine May Reduce Inflammation of Lung Tissues in Patients With Metastatic Colorectal Cancer
--  ‘America does not do coronations’: Haley hopes to stop Trump’s march
--  Joe Biden y Kamala Harris ponen el derecho al aborto en primera línea electoral
--  Schiffsunfall: Kriegsschiff-Kollision im Persischen Golf – britische Minenräumer krachen ineinander
--  May Vancouver date for Avril Lavigne as greatest hits tour announced
+-  Turecký parlament bude hlasovať o členstve Švédska v NATO
+-  Husilər Ədən körfəzində yük gəmisini vurdu
+-  Orbán Viktor is megemlékezett az elhunyt Grétsy Lászlóról
+-  Uso de cheques no Brasil cai 17%, segundo Febraban
+-  Live: Γρανάδα - Ατλέτικο Μαδρίτης
+-  Руснаците са готови Ленин най-накрая да бъде погребан
+-  VIDEO Reporter Dnevnika Nove TV s Eura u rukometu poručuje: "Mala nada još živi"
+-  EastEnders spoilers: Evil Dean Wicks ignores Gina Knight’s wishes and makes horror move
+-  Produžen rok za procesuiranje predmeta ratnih zločina pred pravosuđem BiH
+-  Ф'юрі назвав найгрізнішого суперника у кар'єрі
