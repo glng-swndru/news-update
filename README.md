@@ -1,11 +1,11 @@
 # Latest News
--  Saugumo specialistai aptiko kritinį „Google Chrome“ naršyklės pažeidžiamumą
--  Tiếp bước H&M, Zara, UNIQLO tố Shein đạo nhái thiết kế, đã vậy còn bán với giá rẻ 1 nửa
--  La direction de l'hôpital Abass Ndao annonce la remise sur pied de l’appareil de dialyse pour enfant
--  Playtika Holding Corp. : HSBC revisa su opinión y se vuelve a Neutral
--  Playtika Holding Corp. : HSBC haalt aandeel van kooplijst
--  Criscitiello: "Calciatori bruciati e insulti per tre anni. La maschera è caduta"
--  Oficial da Marinha sai da pista, bate carro em árvore e morre na BR-262
--  La Mariscal, sector tradicional del norte de Quito, sería renovada en doce años con un plan de seis ejes
--  Taucher rücken in Bad Cannstatt aus: Herrenlose Jacke im Neckar löst Feuerwehreinsatz aus
--  Kolejna porażka ministra. Sąd oddalił wniosek dot. wpisu likwidacji TVP do KRS
+-  Cornelius Meister dirigiert Mahlers dritte Sinfonie: Bimbam und das Hohelied der Demokratie
+-  Трансфер на "Герена": Левски подписа с Карлос Охене
+-  Zelenski anunță o schimbare radicală. „Etnicii ucraineni şi descendenţii lor din întreaga lume să aibă cetăţenia nostră”
+-  Skandalozan snimak: Psa vodi na povocu dok vozi auto (VIDEO)
+-  Выявлена коррупция в ООН
+-  Abgesagtes Bundesliga-Duell: Mainz gegen Union: Termin für Nachholspiel steht fest
+-  Vladimir Putin threatens to send Russian rapper to Ukraine over 'almost naked' party
+-  Nuovo esonero in Serie A, il club ha deciso: risposta ufficiale
+-  Fack stämmer Apotea – för många övertidstimmar
+-  Abgesagtes Bundesliga-Duell: Mainz gegen Union: Termin für Nachholspiel steht fest
