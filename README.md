@@ -1,11 +1,11 @@
 # Latest News
--  Kocaeli Yıldızlar Karate Şampiyonası’nda Körfez fırtınası
--  EN DIRECT - Colère des agriculteurs : au sud de Lyon, dans la Drôme... Plusieurs autoroutes coupées ce mardi matin
--  Бомбена заплаха затвори училищата в Козлодуй и Хайредин
--  Budowę tego stadionu obiecał sam Kaczyński. 300 mln złotych zablokowane?
--  Ning Chasna Nayluver Malah Tidak Pakai Desain Gaun Pengantin Impiannya, Kenapa?
--  Hırsız fare kamerada! Çaldığı ürünü görünce sizde şaşıracaksınız...
--  Gaza, uccisi 21 soldati israeliani. Gallant: "Obbligati a raggiungere obiettivi"
--  Novakova reakcija postala hit na društvenim mrežama: Đoković se isplazio Niku Kirjosu /VIDEO/
--  Ogni giorno 6 incidenti e 3 denunce, il bilancio 2023 della Polizia Locale
--  Емил Костадинов и още двама членове на Изпълкома обжалват вписването на Михаил Касабов
+-  Chefe de gabinete do CEO da TAP assume liderança dos Recursos Humanos
+-  İçerken bir daha düşünün, endişe yaratan araştırma
+-  Tıbbi destek projeleriyle Pasifik Ada ülkelerindeki binlerce hastaya yardım hedefleniyor
+-  Kartepe'de Atlı Jandarma Timleri Tatilcilerin Güvenliğini Sağlıyor
+-  Силкин: «Коваленко — перспективный футболист, но в «Зените» ему не место»
+-  İstanbul'da gemi kazası
+-  Rolex, Cartier, Patek Philippe: Luxusuhren in der Krise – Warum zahlreiche Aktien gerade kollektiv abstürzen
+-  Αυστραλία: Οι αρχές της χώρας επέβαλαν "πρωτοφανείς" κυρώσεις σε Ρώσο χάκερ για τεράστια κυβερνοεπίθεση το 2022
+-  Bên trong căn biệt thự gần 900m2 ngay khu nhà giàu Thảo Điền (Tp.HCM), nữ chủ nhân 9X chi bạo 30 tỉ đồng để xây dựng
+-  경찰, '청량리 재개발 비리 의혹' 동대문구청 압수수색
