@@ -1,11 +1,11 @@
 # Latest News
--  Mode. À la fashion week de Paris, des créations de plus en plus dégenrées
--  Мария Габриел: Работата по оценката на министрите е на финален етап
--  "Mi irrita, un ruolo illiberale": strike di Paolo Crepet, stronca Ferragni e Lucarelli
--  Politique. «Ein freund» : Emmanuel Macron rend un hommage en allemand à Wolfgang Schäuble
--  Leverkusener Rheinbrücke gesperrt: Staugefahr in NRW – wo aktuell mit Einschränkungen zu rechnen ist
--  Israel, Czech Republic Reinforce Cyber Partnership Amid Hamas War
--  Santé. Le gouvernement prépare le doublement des franchises médicales pour fin mars
--  Santé. Les médecins diplômés à l'étranger «autorisés à travailler» pour les mois à venir
--  Ekşi Sözlük'ün erişim engeli kaldırıldı! Ekrem İmamoğlu pazarlığı mı yapıldı?
--  Shoah, Mulè (Fi): "Antisemitismo cancro che non guarisce e che va combattuto"
+-  Sabah TBMM-də İsveç müzakirəsi olacaq
+-  ¿Palworld llegará a PlayStation? Ejecutivo de Sony emociona a los jugadores
+-  Bombeiros combatem incêndio em caminhão-baú em Lucas do Rio Verde
+-  Capcom habla sobre el futuro de Ace Attorney y si seguirá haciendo juegos de la saga
+-  Novinky v iOS. Stahujte aktualizaci iOS 17.3, přináší bezpečnostní funkci pro ochranu ukradených iPhonů
+-  “Accordo Italia-Albania truffa ai danni di italiani e albanesi”. Migranti, la sparata di Fratoianni
+-  Los resultados de la Primera División
+-  السودان وباكستان واليمن.. "الملك سلمان للإغاثة" يواصل جهوده في الدول الصديقة
+-  Camerún se la juega: "Ya me dieron por muerto pero estoy aquí"
+-  Porto Alegre registra queda de mortes no trânsito em 2023
