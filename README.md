@@ -1,11 +1,11 @@
 # Latest News
--  Protestaktion: Auch Kulmbach steht gegen Rechtsextreme auf
--  Puasa Rajab Boleh Dilakukan Bersama Puasa Ganti Wajib?
--  गुम हुआ आधार कार्ड पहुंचा सकता है आपको जेल, बचने का तरीका है बहुत आसान
--  ﻿Коко Гофф - Марта Костюк: огляд матчу
--  Хероин за 2,3 млн. лв. е открит в пожарогасители на "Капитан Андреево" (ВИДЕО/СНИМКИ)
--  Immigration: 142.500 demandes d'asile en France en 2023, un record
--  Vėl sutriko „Smart-ID“ veikla
--  Stjórn BÍ auglýsir eftir framkvæmdastjóra
--  Fahrerflucht künftig nur noch Ordnungswidrigkeit?
--  Lo que se sabe del homicidio de un joven en plena calle de Renca
+-  Russische Militärkultur: "Es war nie Russlands Ziel, dass Besatzungen überleben": Bundesheer-Oberst erklärt Moskaus Strategie
+-  여당, ‘마포을 김경율·계양을 원희룡’ 전략공천 길 텄다
+-  أمير الكويت يستقبل الأمير تركي بن محمد بن فهد ويستعرضان العلاقات الأخوية
+-  Zuzana Čaputová ve výprodeji: Volby mohou završit její pád. Kandidátku berou útokem Ficovi muži
+-  "TEŠKA JE TO PORODIČNA PRIČA, ZORAN JE UVEK BIO PROBLEMATIČAN" Detalji stravičnog ubistva u Smederevu, progovorile komšije
+-  В сряда ще преобладава слънчево време, максималните температурите ще са между 3 и 8 градуса - Труд
+-  8 yıl 11 ay hapis cezası olan şahıs yakalandı
+-  PREDSJEDNIK MO STOBREČ: Grad je zaspao, sami moramo raditi jer oni koji bi to trebali ne znaju ili ne žele
+-  Kronprinsessan besöker Saab – ska få se nya Gripen E
+-  Le Théâtre du motif va réinterpréter une pièce de Samuel Beckett le 26 janvier à Issoire
