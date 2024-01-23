@@ -1,11 +1,11 @@
 # Latest News
--  নির্বাচন থেকে সরে দাঁড়ালেন ডিস্যান্টিস, ট্রাম্পকে সমর্থন
--  Pobuna zbog vjetroparka: "Ako ga stave pred kuću, ja ću ga odmah srušiti traktorom"
--  Nawet 1191,33 zł miesięcznie przez trzy lata. To mało popularne świadczenie, warto o nim wiedzieć
--  Wer nicht ins Schema passt, wird aussortiert? Warum Sozialverbände vor der AfD warnen
--  Pánikban
--  Başkent kulislerini hareketlendiren iddia! Kılıçdaroğlu, Özel’in teklifine sıcak bakmadı
--  ဗိုလ်မှူးချုပ် ၆ ဦးကို ထောင်ဒဏ် တသက်နဲ့ သေဒဏ်ပြစ်ဒဏ်ချ၊ ဟိုပုံးမြို့နယ် စံဖူးရွာက လက်နက်သယ်လာတဲ့ ကားတွေနဲ့ တိုက်ပွဲဖြစ်ပြီး ကျေးရွာ အိမ် ၂၀ မီးလောင်
--  Talpig sminkben ment barátnője helyett vizsgázni az álruhás gavallér (videó)
--  사우디 떠나고 싶은 벤제마, 친정팀 리옹 복귀설
--  Les villes nouvelles, une solution aux problèmes d’urbanisation de l’Afrique ?
+-  US-Bundesstaat Illinois: Mehrere Leichen gefunden - Polizei sucht Verdächtigen
+-  Snažan potres na granici Kine i Kirgistana: Ima ozlijeđenih, oštećeni su kuće i vlakovi
+-  Ποιο Τρίγωνο των Βερμούδων; Το Τρίγωνο της Αλάσκας και οι μυστηριώδεις εξαφανίσεις χιλιάδων ανθρώπων προκαλούν τρόμο
+-  Morning Retail : La folie food court, par Eva Jacquot - 23/01
+-  На Авдіївському напрямку відбито 17 атак росіян
+-  Karış karış aranan çöp evdeki ceset gözden kaçtı! Emekli öğretmen...
+-  Acht Tote in den USA: Verdächtiger tot gefunden
+-  Del VAR a los vigilantes
+-  طقس السعودية اليوم.. انخفاض درجات الحرارة وأمطار بعدة مناطق
+-  انتشار للجيش في عكار.. هذا ما جرى
