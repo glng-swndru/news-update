@@ -1,11 +1,11 @@
 # Latest News
--  Trauerfeier für Wolfgang Schäuble: Angela Merkel nimmt Abschied
--  Periodista japonesa Shiori Ito presenta su grito de #MeToo a Sundance con 'Black Box Diaries'
--  Most Crypto-Friendly States in the US That Everyone Must Know Of
--  Vagas abertas para a Construtora Patriani no Grande ABC
--  OVO JE BRITANKA (20) KOJA JE UMRLA U BEOGRADU: Naši lekari dali sve od sebe da je spasu (FOTO)
--  جلالة السلطان.. شكرًا
--  Trauerfeier für Wolfgang Schäuble: Angela Merkel nimmt Abschied
--  Arbeitsunfall: Mann fällt von Baugerüst und stirbt
--  Rudolf Dreßler über Israel-Politik: Wie ihm Angela Merkel die Formel der Staatsräson klaute
--  Four individuals, two teams inducted into Niagara Falls Sports Wall of Fame
+-  Polizei sucht vermisstes Mädchen (13) aus Marl: Jugendliche verschwand am 19. Januar
+-  ΠΡΟΣΕΞΤΕ ΤΟΝ…
+-  Whatsapps y documentos de Bildu destapan los chanchullos de Marlaska con Otegi
+-  Евросоюзу предрекли стагнацию из-за санкций против России
+-  Parkens populära lekytor döms ut – får inte användas: ”Inget som kommer påverka”
+-  The 2024 Forecast for Abortion Is… Shitstorm
+-  Fußball: Duo soll Harthausen im Abstiegskampf unterstützen
+-  Contract Research Organization Services Market / CRO Services Market Worth $129.8 Billion | MarketsandMarkets™
+-  Babacan'dan Hafize Gaye Erkan'a çağrı: Dedikoduların önünü kessin
+-  'Overhaul' your scrambled eggs by adding one simple ingredient for 'ethereal fluffiness'
