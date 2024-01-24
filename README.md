@@ -1,11 +1,11 @@
 # Latest News
--  Mercato - OM : Retour surprise à Marseille, c’est confirmé
--  HS-tentti | Näin ehdokkaat pärjäsivät
--  SIN HARISA DŽINOVIĆA JE PRAVI FRAJER U vezi se sa ovom lepoticom, a pevač nije zadovoljan njegovim ponašanjem: U moje vreme se znalo
--  A century after Lenin's death, the USSR's founder seems to be an afterthought in modern Russia
--  AP source: Eagles fire Johnson as OC
--  5 Little Interior Design Buys to Chase Away the Winter Blues
--  Colombia: Tribunal falla a favor del activista venezolano Lorent Saleh por expulsión en 2014 #23Ene
--  リオ五輪の金メダリスト・土性沙羅さん 公務員として働く現在
--  Amerikanci objavili "brutalan" spisak za OI
--  Hamas Open to Releasing Some Israeli Hostages for Pause in Fighting, Mediators Say
+-  El Guabo: Buscan pistas sobre atacantes del expresidente de Tendales y su hijo
+-  Kars'ta zincirleme kazada yaralandı, 18 gün sonra yaşam mücadelesini kaybetti
+-  Ovisnik o drogi ubio čovjeka, htio se riješiti tijela pa izazvao požar u kojem je poginulo 76 ljudi
+-  Sternum and ChargePoint Collaborate to Enhance ChargePoint Home Flex Security
+-  VODIM JE NA EGZORCIZAM! Majka rijaliti učesnice očajna, donela šok odluku
+-  Binayı ateşe verdi, kaçmaya çalışırken yakalandı
+-  'Juventus bepaalt transfersom voor absolute topprioriteit Koopmeiners'
+-  'In the record zone': The Forks River Trail still closed, waiting for first opportunity to open
+-  "SIN NAM SE BORI ZA SVOJA PRAVA" Nadežda i Toma o nasledniku, planovima i rijalitiju: "Longo je hrabro dete" (VIDEO)
+-  City of Marion, Iowa Named Community of the Year by Community Playmaker
