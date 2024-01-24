@@ -1,11 +1,11 @@
 # Latest News
--  Autodieb in Ludwigsburg verhaftet: Gestohlenen VW gegen Ampel gefahren
--  Na Planet prihaja nova turška serija
--  Samsungs SSD 990 Evo beherrscht sowohl PCIe 5.0 als auch 4.0
--  Adalet Bakanlığı’nın CMK ücret tarifesi Meclis gündeminde
--  Doha Mücevherat ve Saat Fuarı'na geri sayım başladı
--  Etica e sviluppo, convenzione fra Comitato Fair Play e Digital Hub
--  Energia renovável cresce rápido, enquanto a nuclear deve bater recorde em 2025, afirma AIE
--  A héten a szél lesz az úr
--  Πέθανε η Αιμιλία Γερουλάνου - Η ανάρτηση του βουλευτή του ΠΑΣΟΚ για τη μητέρα του
--  Samsungs SSD 990 Evo beherrscht sowohl PCIe 5.0 als auch 4.0
+-  Figyelmeztet az OTP: hatalmas változás élesedik a banknál
+-  Песков заявил, что участники СВО могут войти в федеральный кадровый резерв
+-  Star Academy 2023 : Le gagnant déjà tout désigné ? Axel s'exprime après son élimination
+-  ‘Don’t cut corners’: 4 things to know about the Ford government’s plans to extend Mississauga and Brampton’s LRT
+-  Live - Russisch vliegtuig met 65 Oekraïense gevangenen aan boord crasht: ‘Alle inzittenden overleden’
+-  Siniša Mihajlović je zaradio veliki novac od fudbala, a ovo je procenjeno bogatstvo njegove udovice Arijane
+-  Ястремская в огне. Известны все полуфиналистки Australian Open 2024
+-  Ivošević odgovorio Kerumu: Za sve one koji u školi nisu usvojili čitanje s razumijevanjem
+-  Klinsmann expects South Korea's Son to put his stamp on Asian Cup
+-  Is Franklin Street dying or just different? What’s fueling Chapel Hill street’s changes?
