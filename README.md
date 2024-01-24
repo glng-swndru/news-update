@@ -1,11 +1,11 @@
 # Latest News
--  Sérgio Conceição fecha os olhos e desabafa
--  Как се пише: диплом или диплома?
--  Μαζική εξάπλωση σε νέα προϊόντα και αγορές ως το 2026 φέρνει το νέο πλάνο της ΔΕΗ – Οι κινήσεις «ματ» για αύξηση του EBITDA
--  Azure OpenAIの設定項目を知り、GPTを細かくチューニングしよう
--  Amenazas, prisión y exilio: ¿Por qué persecución contra los cristianos aumentó en 2023?
--  Bekymra for kraftsituasjonen: – Det er stadig prosjekter som ikke får strøm
--  ソフマップ、GeForce RTX 4090 Laptop搭載ゲーミングノート発売
--  Nên để bao nhiêu tiền trong tài khoản thanh toán để an toàn, không bị thiệt hại?
--  Füzuli şəhərinə daha 30 ailə yola salındı
--  Vietoje desertų 80-metė Jadvyga mieliau kramsnoja svirplius, o atsipalaiduoja siuvinėdama
+-  Удар по порту в РФ: робота терміналу паралізована
+-  献血运动30年——越南血液交融
+-  Tramps uzvar republikāņu priekšvēlēšanās Ņūhempšīrā
+-  Виктор Осимен: Реших къде ще играя!
+-  Không phải xa xỉ thầm lặng, xu hướng chi tiêu mới sẽ "lên ngôi" trong năm 2024: Rất thông minh mà lại cực hợp với các gia đình trẻ
+-  Huyện rộng nhất Việt Nam, gấp 3 lần tỉnh Bắc Ninh thu ngân sách nghìn tỷ
+-  Lợn nhập lậu tăng mạnh: Người chăn nuôi lo phá sản
+-  Rò rỉ thiết kế iPad Air 12,9 inch mới của Apple?
+-  President promises development of Niger Delta at meeting with monarchs
+-  B.C. doctors say pay boost for IUD insertions will reduce patient pain, waitlists
