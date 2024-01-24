@@ -1,11 +1,11 @@
 # Latest News
--  Mújica só sai pela cláusula
--  Análise do Lenovo ThinkPad P14s G4 AMD: rápido, portátil e simples
--  Load shedding on WEDNESDAY- Here is the updated schedule
--  議會市政報告要「補考」？藍綠無共識 侯友宜：為新北市民扛責任
--  Alleged YSL rival rapper YFN Lucci sentenced to prison on gang charge after taking plea deal - CNN
--  Avengers 5 leak says Kang is still Marvel’s main villain
--  Cher's Son Elijah Offers Extra Reasons Why He Doesn't Need Conservatorship - TMZ
--  Singaporean named new Anglican Archbishop for South-east Asia
--  에쓰오일, 희망 2024 나눔 캠페인에 30억 성금 전달
--  高速バスなど3台からむ事故、乗客ら複数人に軽傷 新潟県の関越道
+-  नारायणगढ–बुटवल सडकखण्ड: म्याद सकिन ६ महिना बाँकी रहँदा आधामात्रै काम
+-  Велика Сряда за 4 зодии - очакват ги Големите пари!
+-  Дональд Трамп раскрыл имя своего потенциального вице-президента
+-  辛納「一盤未失」晉級澳網男單4強 下一戰強碰球王喬帥
+-  Jokić na koti 31: Tripl-dabl u dramatičnoj pobedi nad Indijanom VIDEO
+-  Indonesian V-P candidate Mahfud MD to leave Cabinet post before election
+-  ‘빌드업’ 최강의 심사위원! [포토]
+-  “나 죽으면 카톡은”…카카오톡 추모 프로필 ‘선택권’ 생긴다
+-  “수사 무마 해줄게”…청탁 명목으로 수억 뜯은 검사 출신 변호사
+-  Phương pháp bất ngờ trị "nỗi khổ quý ông" tốt như Viagra
