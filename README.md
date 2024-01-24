@@ -1,11 +1,11 @@
 # Latest News
--  2024年は「失われた30年」からの覚醒の年に？日本経済が進展する2つの可能性 - 経済分析の哲人が斬る！市場トピックの深層
--  Erschöpftes Land: Raus aus dem Hamsterrad: Wie Arbeit wieder mehr Freude macht
--  Kfz-Neuzulassungen - „Ein Umbruch in der Branche“
--  Wer glückliche Kinder will, sollte ihnen so spät wie möglich ein Handy geben, rät Expertin
--  Testing Your C Knowledge With This One Simple Quiz
--  Objectif Lune pour les cheveux de trois Corréziens dont l'ADN est à bord de la fusée commerciale Vulcan Centaur
--  Ideakilpailussa kaivattiin digitaalista visualisointia avuksi metsänhoidon suunnitteluun
--  10 Ways to Be a Better You at Work in 2024
--  'Better than the busiest summer day': Hockey Day in Canada an economic boon for Victoria
--  Turning Doctors into Climate Health Advocates Is Good for Patients
+-  STORM JOCELYN: Complete shutdown of Scotland's rail services as 70 mph winds batter Highlands
+-  Yasmin'den Baba Erbil'e Sitem Dolu Sözler: "Babalık Görmedim" - Mehmet Ali Erbil'den Yürek Burkan Yanıt
+-  Live TV: Τσέλσι - Μίντλεσμπρο
+-  NOSKATIES ⟩ Raidījums: Sabiedrībā pazīstamam frizierim Mārupē klientu klātbūtnē tiek uzteiktas īres telpas
+-  Ammonia and carcinogens complicate Osoyoos drinking water problems
+-  קפיצת מדרגה: הבלם ששייך למכבי ת"א הושאל עד סיום העונה לבני סכנין
+-  EastEnders spoilers: Whitney Dean rocked by massive news about Bianca Jackson
+-  Presidente do União pede para torcedores não irem ao clássico em Rondonópolis; Academia repudia
+-  A nap legfontosabb hírei egy helyen – 2024. január 23.
+-  ‘Rusya saldıracak’ propagandası devam ediyor
