@@ -1,11 +1,11 @@
 # Latest News
--  Emmerdale cast favourite Lucy Pargeter sends message to fans amid 'exit' for Chas Dingle
--  Feijóo retrata a Sánchez y su "terrorismo light" en el homenaje del PP a 'Goyo' Ordoñez
--  Енцо Фернандес удвои преднината на Челси
--  Preminuo Gary Graham, poznat po ulozi u seriji Zvjezdane staze
--  Борел: Русия е най-красноречивият пример за чуждестранно манипулиране на информация
--  وزير الخارجية الروسي: علينا اتخاذ إجراءات عاجلة لضمان وقف إطلاق النار بغزة وإنهاء معاناة الفلسطينيين
--  Pas koji se igra sa svojom sjenkom je nešto najslađe što ćete vidjeti danas (VIDEO)
--  Türkiye'den İsveç'e NATO vizesi! ABD ve İsveç'ten son dakika Türkiye açıklaması
--  Pas koji se igra sa svojom sjenkom je nešto najslađe što ćete vidjeti danas (VIDEO)
--  Minera Cuzcatlán y ayuntamiento de San José del Progreso rehabilitan espacio multideportivo
+-  Les fils d'Amélie Oudéa-Castéra scolarisés dans des classes non-mixtes au collège Stanislas
+-  「あおり運転」狙われやすい人、ウインカーが原因かも…守るべき“たった1つのルール”とは？ - それって本当？クルマの「当たり前」
+-  Челси - Мидълзбро 4:0 /първо полувреме/
+-  TBMM'den İsveç'e NATO vizesi
+-  Сенченко: У Далакяна не пішов бій
+-  Aliocha Schneider, le beau-frère de Virginie Efira s'affiche avec sa célèbre chérie : pluie d'enfants de stars au défilé Chanel
+-  Dalversenyt nyert Kamarás Iván
+-  Les fils d'Amélie Oudéa-Castéra scolarisés dans des classes non-mixtes au collège Stanislas
+-  Especialista em comportamento humano preocupada com Miguel Vicente: "Trincar-se até fazer sangue"
+-  Araç muayene ücretlerine tepki
