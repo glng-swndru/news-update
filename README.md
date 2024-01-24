@@ -1,11 +1,11 @@
 # Latest News
--  İYİ Parti'nin İstanbul ve Balıkesir adayları açıklandı! Meral Akşener "Kaynanamın dediğini yapacağım" dedi!
--  Accident mortel sur l'axe Gossas-Diourbel : 8 morts sur le coup, une dizaine de blessés enregistrés
--  Umfrage: Mehrheit hat kein Verständnis für GDL-Streik
--  유해진X김서형 로맨스→윤여정X탕준상 호흡…‘도그데이즈’ (종합)[DA:현장]
--  Sjajan serijal ‘Moderna vremena‘ donio je niz zaboravljenih imena dizajna, a i priču o dnevnom boravku kao izumu 20. stoljeća
--  Опозицията атакува пред Конституционния съд избора Атанасова и Белазелков
--  Амерички авиони погодили три објекта ирачке милиције повезане са Ираном
--  IEA: Obnoviteľné zdroje nahradia uhlie ako zdroj na výrobu elektriny
--  Laporta: „Nagyon tisztelem a játékvezetőket, de…”
--  Juventus, Giuntoli prende Djalò e "prenota" due colpi dall'Atalanta
+-  Menjadi Teman dan Pembisik yang Baik
+-  Rio Ferdinand slams Arsenal boss Mikel Arteta in brutal Manchester United comparison
+-  Arbeitskampf bei der Bahn: Die GDL streikt auch für unsere Sicherheit
+-  Ready and waiting: first-class health care assured at Culcairn service
+-  Baker Hughes Reports Profit Growth on Strong LNG Demand
+-  Milei se vuelve pragmático mientras Congreso hostil lo obliga a negociar
+-  السودان.. معارك عنيفة حول "بابنوسة" الاستراتيجية في كردفان
+-  Portada miércoles 24 de enero de 2024
+-  FIRE達成者の多くは、「忍耐」という超能力を持つ——あるプログラマが語る「経済的自立」に役立つ2つの原則
+-  "Teljesen kész vagyok" - brutális meccse után kikészült a Grand Slam-győztes sztár
