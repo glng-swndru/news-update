@@ -1,11 +1,11 @@
 # Latest News
--  Drehstart für Dokumentation „Feuer & Flamme“ bei der Berufsfeuerwehr Heidelberg
--  SAP планира да преструктурира 8000 позиции, фокусирайки се върху AI
--  【內房困局】潘功勝：人行即將出台有利於房企現金流的融資政策
--  Interim Budget 2024: Remove Cap On CGTMSE Scheme For Last-mile Financial Inclusion, Demands MSME Fintech Sector
--  UNHCR เผยปี 2023 พบชาวโรฮีนจาตายกลางทะเลมากที่สุดในรอบ 10 ปี
--  Совфед отправил приглашения иностранным наблюдателям на выборы в России
--  Medvedev vence Hurkacz e avança às semifinais do Aberto da Austrália
--  Узбекская делегация посетила могилу великого Лидера и Шехидляр хиябаны
--  Amasya, Artvin, Bolu, Giresun, Gümüşhane, Kastamonu, Ordu, Rize, Samsun, Sinop, Trabzon, Zonguldak. Tarih verildi, bol bol yiyin. Ne hamsi ne istavrit kalacak
--  L'ereditÃ dell'islam 'modernista' in Asia centrale
+-  İYİ Parti'nin İstanbul ve Balıkesir adayları açıklandı! Meral Akşener "Kaynanamın dediğini yapacağım" dedi!
+-  Accident mortel sur l'axe Gossas-Diourbel : 8 morts sur le coup, une dizaine de blessés enregistrés
+-  Umfrage: Mehrheit hat kein Verständnis für GDL-Streik
+-  유해진X김서형 로맨스→윤여정X탕준상 호흡…‘도그데이즈’ (종합)[DA:현장]
+-  Sjajan serijal ‘Moderna vremena‘ donio je niz zaboravljenih imena dizajna, a i priču o dnevnom boravku kao izumu 20. stoljeća
+-  Опозицията атакува пред Конституционния съд избора Атанасова и Белазелков
+-  Амерички авиони погодили три објекта ирачке милиције повезане са Ираном
+-  IEA: Obnoviteľné zdroje nahradia uhlie ako zdroj na výrobu elektriny
+-  Laporta: „Nagyon tisztelem a játékvezetőket, de…”
+-  Juventus, Giuntoli prende Djalò e "prenota" due colpi dall'Atalanta
