@@ -1,11 +1,11 @@
 # Latest News
--  AI PC hype seems to be making PCs better – in hardware terms, at least
--  Hádzanári Portugalska remizovali s Holandskom
--  A jednak! Juventus chce go za Szczęsnego
--  2024 Oscar adayları belli oldu
--  AWS Marketplace adds sales of third-party services
--  Unfall in Haltern: Bossendorfer Damm nach Kollision gesperrt
--  Law designed to stop AI bias in hiring decisions is so ineffective it's slowing similar initiatives
--  A jednak! Juventus chce go za Szczęsnego
--  Trendyol Süper Lig: Beşiktaş: 0 - Adana Demirspor: 0
--  Đang tính chuyện kết hôn, bạn trai bất ngờ đưa ra một đề nghị khó hiểu
+-  Arkadaşını öldürdü ifadesi pes dedirtti: Alkol aldığım zaman bazen havaya ateş ederdim
+-  Suomalainen verkkokauppa romahti – Asiantuntija patistaa kauppiaita tekoälyn äärelle
+-  Ove tri kompanije su Bafetove "zlatne koke"
+-  Tablouri false expuse la expoziția Victor Brauner. Ar proveni din colecția lui Adrian Năstase
+-  Gamerii și cei care ascultă muzică tare în căști riscă să își piardă auzul. Avertismentul specialiștilor
+-  Justiça eleitoral cassa mandato de governador de RR Antonio Denarium pela 3ª vez
+-  每天尻2槍要減少頻率嗎？最美博士點出關鍵：就像減少睡眠一樣
+-  Ezt a könyvet minden nőnek kézbe kell vennie
+-  Cybertruck Owners Are Reporting Barely 200 Miles Per Charge
+-  Amazon'a 32 milyon euro'luk ceza
