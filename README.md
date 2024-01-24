@@ -1,11 +1,11 @@
 # Latest News
--  ‘We have our position’: Ukraine star says teen at centre of handshake storm was ‘confused’
--  BCCI Awards 2024: अवार्ड रखने के लिए आपने अलग से कैबिनेट बनाया है ? मोहम्मद शमी के जवाब ने लूटी महफिल
--  Cemburu, sakit hati punca Bella dibunuh - KPN
--  Furtul de identitate pe Instagram. Ce modalități folosesc hackerii să intre pe contul tău și cum să eviți acest lucru
--  Már csak Budapest döntésétől függ a NATO bővítése, felfedték Moszkva háborús terveit – Ukrajnai háborús híreink szerdán
--  New Hampshire: Trump pobijedio suparnicu Haley na republikanskim predizborima
--  Menší důvěryhodnost čínských čísel, nominální růst nejníže od roku 1976
--  Парламентът гласува оставката на Десислава Атанасова - Труд
--  Verletzte Igel - Experten fordern Crashtests für Mähroboter
--  U Novom Regulatorna agencija snizila vodu za 10 odsto, Vodovod uvećao cijenu za prečišćavanje otpadnih voda
+-  Nincs okuk szégyenre
+-  اهتمام إعلامي دولي بإطلاق الفيلم الوثائقي "هورايزن"
+-  Doctors mistook Redditch schoolgirl’s rare cancer for ‘pulled muscle’
+-  Natalia Niemen: gdy tata zachorował, stał się człowiekiem dużo cieplejszym [WYWIAD]
+-  Polacy zaczęli najmniej budów od lat. Jest coraz drożej, dużo zależy od nowego programu rządowego
+-  Op zoek naar verborgen ‘stroomslurpers’ bij Zeeuwse bedrijven; ‘meten is weten’
+-  Fuming parents blast 'double standards' over new rules sparking a surge in fines for school absences
+-  Das waren die größten Fehler der deutschen Pandemie-Politik
+-  Manchester United now now left with worst possible outcome as summer signing’s situation descends into farce
+-  試験会場に向かう途中は”泣き寝入り”多い 受験生を痴漢から守る防犯キャンペーン 北九州市
