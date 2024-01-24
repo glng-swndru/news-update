@@ -1,11 +1,11 @@
 # Latest News
--  Prvi snimci požara u beogradskom tržnom centru! Bukti vatra u bloku 70, crni dim se nadvio nad Novim Beogradom! (VIDEO)
--  Measles cases rise 40-fold across Europe
--  "Africa is rising, India is betting on Africa's rise": Jaishankar
--  لا تقييم للمصارف بل ميزانيات قديمة: ميقاتي ومنصوري والدبّاغ يخدعون النواب
--  Nakon lateksa bizarne hlače s rupom! Bianca Censori nastavlja šokirati svojim kombinacijama
--  Today's front pages – January 24, 2024
--  Suspek kes bunuh Bella tidak diberi layanan istimewa - KPN
--  Медведев и Хуркач сыграют решающий сет в 1/4 финала Australian Open
--  На рынках ожидают данных о динамике ВВП США
--  Мъжът с бомбените заплахи в училищата страдал от шизофрения
+-  Loimaalla jäätiin äänestysvilkkaudessa – seudulla äänestettiin ennakkoon silti viime presidentinvaaleja ahkerammin
+-  Fredriks återkomst – efter horribla åren
+-  ABD, Irak'taki İran destekli milisleri vurdu
+-  Tief „Jitka“: Sturm in NRW – was Hausbesitzer jetzt wissen müssen
+-  Kertas siasatan terhadap Tun M mengenai kaum India hampir siap
+-  Lipsa de mișcare poate duce la tromboză venoasă profundă. Cum se poate vindeca
+-  Hemlösheten i Sverige breder ut sig
+-  Kurtuluş eğitimde
+-  SEED 2024 result declared; Direct link
+-  PM’s own voters among hardest hit
