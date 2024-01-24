@@ -1,11 +1,11 @@
 # Latest News
--  Lekörözné az édesapját a magyar válogatott tündérmesét megélő játékosa
--  Lekörözné az édesapját a magyar válogatott tündérmesét megélő játékosa
--  Very expensive, but not over ISK 100 billion
--  Lekörözné az édesapját a magyar válogatott tündérmesét megélő játékosa
--  رواية عشر اسباب خلتني احبك تسع منها مدري ليش -33
--  Lekörözné az édesapját a magyar válogatott tündérmesét megélő játékosa
--  Lekörözné az édesapját a magyar válogatott tündérmesét megélő játékosa
--  Quảng bá Năm Du lịch Điện Biên 2024 tại Diễn đàn Du lịch Châu Á
--  Lekörözné az édesapját a magyar válogatott tündérmesét megélő játékosa
--  자유와 민주화 항쟁의 역사 현장 다큐멘터리 ‘국민의 길’ 방영
+-  Autodieb in Ludwigsburg verhaftet: Gestohlenen VW gegen Ampel gefahren
+-  Na Planet prihaja nova turška serija
+-  Samsungs SSD 990 Evo beherrscht sowohl PCIe 5.0 als auch 4.0
+-  Adalet Bakanlığı’nın CMK ücret tarifesi Meclis gündeminde
+-  Doha Mücevherat ve Saat Fuarı'na geri sayım başladı
+-  Etica e sviluppo, convenzione fra Comitato Fair Play e Digital Hub
+-  Energia renovável cresce rápido, enquanto a nuclear deve bater recorde em 2025, afirma AIE
+-  A héten a szél lesz az úr
+-  Πέθανε η Αιμιλία Γερουλάνου - Η ανάρτηση του βουλευτή του ΠΑΣΟΚ για τη μητέρα του
+-  Samsungs SSD 990 Evo beherrscht sowohl PCIe 5.0 als auch 4.0
