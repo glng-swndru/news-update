@@ -1,11 +1,11 @@
 # Latest News
--  Brasil registra 257 mortes violentas de pessoas LGBTQIA+ em 2023
--  Huánuco: ordenan prisión preventiva para sujeto que ultrajó a discapacitada mental
--  [속보] 합참 "북한, 서해 일대에서 순항미사일 여러 발 발사"
--  越南国家主席向757名百岁公民致贺寿卡
--  Test du Framework Laptop 16 : les débuts de la Radeon RX 7700S
--  Les performances de la Radeon RX 7700S font leurs débuts : Critique du Framework Laptop 16
--  [속보]합참 “북한, 서해 일대에서 순항미사일 여러 발 발사”
--  Det ble dramatisk da Knut (79) skulle måke: – Skjønte at noe var galt
--  Stürmisches Wetter erwartet: Fähren fallen fast komplett aus
--  [속보] 합참 "북한, 서해 일대에서 순항미사일 여러 발 발사"
+-  Hells Angel, ex-stockbroker can be extradited to U.S., B.C. judge rules
+-  Stock Radar: Time to buy? MCX stock price trading above its 40 DEMA support, says Ruchit Jain
+-  Watsons Singapore Launches Tru Niagen® Immune, a Groundbreaking Formula for Age Transformation and Immunity Boost
+-  DAHAN PHƯƠNG OANH: 13,912 km Việt Nam – thành phố New York và một câu chuyện biến thế giới thành sàn runway của mình
+-  9 Potret Pernikahan Aby Respati dengan Pacar Perempuan, Lelaki yang Dulu Pernah Jadi Transgender
+-  요즘 같은 최강 한파에 취약한 ‘이 질환’…혈관 건강 비상
+-  The rise of CAT bonds
+-  Weather Latest Update: తెలుగు రాష్ట్రాలకు వర్ష సూచన, బలహీనపడ్డ ద్రోణి - ఐఎండీ
+-  American Nightmare: A couple were held hostage in their own home, but US police said it was all a hoax like in the movie ‘Gone Girl’
+-  タンパク質も…「野菜の王様」ブロッコリーが“指定野菜”に 1974年ジャガイモ以来 流通量増加で価格安定か
