@@ -1,11 +1,11 @@
 # Latest News
--  PV-Anlagen: Einspeisevergütung sinkt ab dem 1. Februar
--  Изявите на Христо Иванов за Локомотив Пловдив през есента
--  Mysuru Track & Field Meet
--  Liiketilat | Helsingin tiloja lojuu tyhjänä miljoonien eurojen edestä
--  Hizbullah'tan İsrail mevzilerine saldırı
--  Elég lesz egy mobil is, ha a rendőr igazoltat
--  Közel félmillió forintra hízott a minimálbér egyik szomszédunknál
--  Volt egy fontos hívása Orbán Viktornak
--  «Неумолимая внутренняя потребность». Почему люди стоят в очереди в штабы Надеждина?
--  Jepang vs Indonesia, Justin Hubner Waspadai Kaoru Mitoma
+-  Panathinaikos'a Bakambu önerisi!
+-  Condamné pour trafic de drogue à la prison d’Andenne, le gardien de prison en poste à Huy est muté à Lantin
+-  Blood test could transform Alzheimer's diagnosis
+-  Betis faz jogo duro com Flamengo por Luiz Henrique e mantém pedida de venda
+-  Пеевски: Радев да подаде оставка днес и да си основе проекта
+-  Water firms slammed for 'shirking responsibility' by failing to provide sewage data
+-  Пьяного водителя задержали на одной из улиц Минска
+-  TUMI NAMED OFFICIAL LUGGAGE OF THE PGA TOUR AND LPGA
+-  Pablo de la Peña: Bases para el crecimiento con calidad
+-  Halk ekmekte 'kadın eli'
