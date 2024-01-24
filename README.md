@@ -1,11 +1,11 @@
 # Latest News
--  Southwest Airlines Flight Attendants Authorize Strike
--  Eggert á heimaslóðir
--  Man arrested for stolen truck and firearm
--  Antalya açıklarında 4,1 büyüklüğünde deprem
--  Dinamo je otpisao Čopa, a on se odmaknuo od nogometa. Sada ih je srušio na Maksimiru...
--  Partnership formed to elevate local golf event
--  Plenkovićev potez dignuo Sarajevo na noge. BIH mediji se obrušili na njega: To nije susjedski!
--  Geração "nem-nem" deixa de contribuir com R$ 46 bi no PIB; em MS são 101 mil
--  "Schwere Erkältung": Prinzessin Sofia muss Gala absagen
--  논산소방서 의용소방대장 합동 이·취임식 개최
+-  Emmerdale cast favourite Lucy Pargeter sends message to fans amid 'exit' for Chas Dingle
+-  Feijóo retrata a Sánchez y su "terrorismo light" en el homenaje del PP a 'Goyo' Ordoñez
+-  Енцо Фернандес удвои преднината на Челси
+-  Preminuo Gary Graham, poznat po ulozi u seriji Zvjezdane staze
+-  Борел: Русия е най-красноречивият пример за чуждестранно манипулиране на информация
+-  وزير الخارجية الروسي: علينا اتخاذ إجراءات عاجلة لضمان وقف إطلاق النار بغزة وإنهاء معاناة الفلسطينيين
+-  Pas koji se igra sa svojom sjenkom je nešto najslađe što ćete vidjeti danas (VIDEO)
+-  Türkiye'den İsveç'e NATO vizesi! ABD ve İsveç'ten son dakika Türkiye açıklaması
+-  Pas koji se igra sa svojom sjenkom je nešto najslađe što ćete vidjeti danas (VIDEO)
+-  Minera Cuzcatlán y ayuntamiento de San José del Progreso rehabilitan espacio multideportivo
