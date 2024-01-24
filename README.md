@@ -1,11 +1,11 @@
 # Latest News
--  Arkadaşını öldürdü ifadesi pes dedirtti: Alkol aldığım zaman bazen havaya ateş ederdim
--  Suomalainen verkkokauppa romahti – Asiantuntija patistaa kauppiaita tekoälyn äärelle
--  Ove tri kompanije su Bafetove "zlatne koke"
--  Tablouri false expuse la expoziția Victor Brauner. Ar proveni din colecția lui Adrian Năstase
--  Gamerii și cei care ascultă muzică tare în căști riscă să își piardă auzul. Avertismentul specialiștilor
--  Justiça eleitoral cassa mandato de governador de RR Antonio Denarium pela 3ª vez
--  每天尻2槍要減少頻率嗎？最美博士點出關鍵：就像減少睡眠一樣
--  Ezt a könyvet minden nőnek kézbe kell vennie
--  Cybertruck Owners Are Reporting Barely 200 Miles Per Charge
--  Amazon'a 32 milyon euro'luk ceza
+-  Наполі продовжить контракт з Політано
+-  Mission Impossible Dead Reckoning Streaming Release Date: How to Watch Online
+-  Kopuk dizisinin konusu ne, oyuncuları kimler?
+-  Bucs' Todd Bowles on not using final timeout: 'Game was over' - ESPN
+-  Kijev zaščiten pred točo izstrelkov, Harkov ne
+-  U Brčkom razmatrano uvođenje elektronskih listi čekanja pacijenata
+-  В США начали производство самолета шестого поколения
+-  James May recalls being amazed by Holi celebrations while filming Our Man in India: 'How do you clean it up' | Exclusive
+-  E se lhe dissessem que temos apenas 90 segundos para o fim da humanidade?
+-  Обявиха състава на България за мача срещу Босна от купа "Дейвис"
