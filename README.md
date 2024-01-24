@@ -1,11 +1,11 @@
 # Latest News
--  Судебные приставы обязали застройщика сделать ремонт на подземной автостоянке в Улан-Удэ
--  Nữ diễn viên Việt xinh đẹp 42 tuổi không kết hôn sinh con, rời showbiz sống tự tại, hướng Phật
--  '7년 절연' 백일섭 딸 "아빠 차 소리만 들어도 가슴이 뛰어"
--  Grootste Duitse treinstaking ooit is begonnen
--  Daftar 9 Negara yang Lolos 16 Besar Piala Asia 2023: Palestina Aman, Bagaimana Timnas Indonesia?
--  Trump ovládl primárky v New Hampshire. Klání není u konce, vzkázala Haleyová
--  อายุวัฒนมงคล 63 ปี “พระภาวนาธรรมาภิรัช วิ.”
--  과천시-LH, 율목초·중통합학교 개교 대비 안전점검 실시
--  Мальорка – Жирона. Прогноз и анонс на матч 1/4 финала Кубка Испании
--  來賓嘲諷身障者「賀瓏跟著大笑」遭炎上！ 網洗版逼道歉：退出演藝圈
+-  Mújica só sai pela cláusula
+-  Análise do Lenovo ThinkPad P14s G4 AMD: rápido, portátil e simples
+-  Load shedding on WEDNESDAY- Here is the updated schedule
+-  議會市政報告要「補考」？藍綠無共識 侯友宜：為新北市民扛責任
+-  Alleged YSL rival rapper YFN Lucci sentenced to prison on gang charge after taking plea deal - CNN
+-  Avengers 5 leak says Kang is still Marvel’s main villain
+-  Cher's Son Elijah Offers Extra Reasons Why He Doesn't Need Conservatorship - TMZ
+-  Singaporean named new Anglican Archbishop for South-east Asia
+-  에쓰오일, 희망 2024 나눔 캠페인에 30억 성금 전달
+-  高速バスなど3台からむ事故、乗客ら複数人に軽傷 新潟県の関越道
