@@ -1,11 +1,11 @@
 # Latest News
--  Trafik denetiminde 820 araca ceza yağdı
--  6 konkrete Tipps zum richtigen Umgang mit Geld
--  Sumqayıtda biznesmen sevdiyi qadını 69 bıçaq zərbəsi ilə öldürübmüş
--  Кремъл: Антивоенният кандидат за президент Надеждин не е сериозен съперник на Путин
--  Kocaeli’de tarihi geçmiş ürünlere ceza
--  Országjáró összművészeti program Juhász Annával
--  Над 5 хил. деца се обучават в българските неделни училища във Великобритания
--  Zo veel vrouwen klagen over Theo Maassen
--  JOBY Stock Is Good, but This Flying Car Company Is Better
--  Dutch Darts Masters 2024 prize money: How much cash will the winner take home?
+-  Noch kein Gesundheitsupdate: Wie geht es Prinzessin Kate?
+-  Jenazah Bella selamat dikebumikan
+-  جامعة الشارقة تنظم معرض توظيف لأصحاب الهمم
+-  İzmir’e 621 taraftar gidecek
+-  Smartphone, který se vymyká všemu. Má čtvercový E-Ink displej, QWERTY, upravený Android a čtyřdenní výdrž
+-  İYİ Parti’nin Ankara Büyükşehir Belediye Başkan adayı Cengiz Topel Yıldırım kimdir?
+-  Prostitúcióra kényszerítettek egy nőt, aztán minden pénzét elvették
+-  Noch kein Gesundheitsupdate: Wie geht es Prinzessin Kate?
+-  Újabb országokban bombázott az Egyesült Államok - Minden irányból szorongatják az iránbarát milíciákat
+-  Runner banned for 2 years for chain-smoking throughout marathon
