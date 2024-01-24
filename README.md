@@ -1,11 +1,11 @@
 # Latest News
--  Un año para Torrente Ballester
--  Horoscope Today 24 January 2024 : मकर, कुंभ, मीन राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
--  Un enero agónico para el comercio
--  What are child labor laws? How old do you have to be to get a job?
--  La moción de censura prospera y abre un paréntesis, otro más
--  Lage Tuñas, en el punto de mira de la oposición
--  Dar marcha atrás en la Educación
--  Check your mail: Survey on regional Greater Victoria parks coming soon
--  4 Reliable Dividend Stocks I Will Buy if I Had S$40,000
--  Confira as dezenas sorteadas pela loteria da Caixa nesta terça-feira
+-  Memory Lane - Taking you back to the 80s - on sale now
+-  تزامناً مع كأس آسيا 2023.. نجوم الغناء العرب على «المسرح المكشوف»
+-  Memory Lane - Taking you back to the 80s - on sale now
+-  The Batman - Part II Star Still Hasn't Read a Script
+-  Memory Lane - Taking you back to the 80s - on sale now
+-  Memory Lane - Taking you back to the 80s - on sale now
+-  Wayfair’s job cuts reportedly hit remote workers harder, amid battle over returning to the office
+-  Удар по Харкову: з’явилися кадри з місця влучання
+-  Memory Lane - Taking you back to the 80s - on sale now
+-  Man entered childcare centre before allegedly stabbing cyclist in Victoria
