@@ -1,11 +1,11 @@
 # Latest News
--  Skandal u Budimpšeti! Student go prošao pored obezbeđenja crkve i popeo se na oltar (VIDEO)
--  INCIDENT NA NOVOM BEOGRADU: Muškarac pretučen ispred kafane, radnik obezbeđenja mu polomio lobanju?
--  LjUBI TE TAJO: Amar Gile pokazao sina, pa mu se emotivnom porukom obratio
--  Kto zostanie burmistrzem Jutrosina? Przegląd giełdy nazwisk
--  Four lessons for bridging the urban-rural e-commerce divide in Sri Lanka
--  STEFAN SILOVAO I MUČIO DEVOJČICU 6 GODINA: Jeziv zločin konačno dobio sudski epilog pedofil osuđen na dugogodišnju robiju VIDEO
--  Tamba: Zahra bou Ousmane Sonko libérée après 6 mois de détention
--  Mladá Boleslav poprvé v sezoně porazila Spartu
--  Полският президент помилва двама бивши министри, които са в затвора
--  North York high school lifts lockdown but remains in hold and secure after reports of person with weapon
+-  'This win comes at a perfect time': Cambridge woman looking forward to fun in the sun with $100K win
+-  Soccer-Senegal beat Guinea 2-0 as both advance to last-16
+-  Poljski predsjednik pomilovao dvojicu zatvorenih bivših ministara u vladi
+-  Pesquisa aponta Lula com 55,2% de aprovação e 39,6% de rejeição
+-  Камерун се наложи над Гамбия в драма, Сенегал се справи с Гвинея
+-  The staggering proof tennis has changed forever after shock Aus Open delays — Talking Pts
+-  Камерун се наложи над Гамбия в трилър, Сенегал се справи с Гвинея
+-  Nikad napetija završna potjera! Kandidat sam s 9 odgovora pobijedio Mladena: 'Dakle, potop. Nisam se snašao'
+-  افتتاح السنة القضائية الجديدة تحت شعار " جدية الأداء القضائي من مصداقية الالتزام الأخلاقي"
+-  Pendikspor sahasında Kasımpaşa'yı 3-2 mağlup etti
