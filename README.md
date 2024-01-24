@@ -1,11 +1,11 @@
 # Latest News
--  STORM JOCELYN: Complete shutdown of Scotland's rail services as 70 mph winds batter Highlands
--  Yasmin'den Baba Erbil'e Sitem Dolu Sözler: "Babalık Görmedim" - Mehmet Ali Erbil'den Yürek Burkan Yanıt
--  Live TV: Τσέλσι - Μίντλεσμπρο
--  NOSKATIES ⟩ Raidījums: Sabiedrībā pazīstamam frizierim Mārupē klientu klātbūtnē tiek uzteiktas īres telpas
--  Ammonia and carcinogens complicate Osoyoos drinking water problems
--  קפיצת מדרגה: הבלם ששייך למכבי ת"א הושאל עד סיום העונה לבני סכנין
--  EastEnders spoilers: Whitney Dean rocked by massive news about Bianca Jackson
--  Presidente do União pede para torcedores não irem ao clássico em Rondonópolis; Academia repudia
--  A nap legfontosabb hírei egy helyen – 2024. január 23.
--  ‘Rusya saldıracak’ propagandası devam ediyor
+-  Southwest Airlines Flight Attendants Authorize Strike
+-  Eggert á heimaslóðir
+-  Man arrested for stolen truck and firearm
+-  Antalya açıklarında 4,1 büyüklüğünde deprem
+-  Dinamo je otpisao Čopa, a on se odmaknuo od nogometa. Sada ih je srušio na Maksimiru...
+-  Partnership formed to elevate local golf event
+-  Plenkovićev potez dignuo Sarajevo na noge. BIH mediji se obrušili na njega: To nije susjedski!
+-  Geração "nem-nem" deixa de contribuir com R$ 46 bi no PIB; em MS são 101 mil
+-  "Schwere Erkältung": Prinzessin Sofia muss Gala absagen
+-  논산소방서 의용소방대장 합동 이·취임식 개최
