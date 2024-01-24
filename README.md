@@ -1,11 +1,11 @@
 # Latest News
--  Минпромторг оценил инвестиции в химкомплекс в России за 2023 год в 900 млрд рублей
--  Jak se platí přes Cvak, kterým chtějí Češi obejít platební karty. Potřebujete telefon s NFC a mobilní internet
--  Kommentti: Olli Jokinen on häikäilemätön mies
--  El petróleo de Texas abre en US$73.63 el barril
--  LEDARE: Västerås psykiatri borde skämmas
--  KOME ĆE PRIPASTI KALIFORNIJSKI DERBI: Kliperse predvodi stara garda!
--  Pleasantville Boys Basketball Defeats West Central Valley, Girls Come up Short
--  A különböző fejfájások közül nem mindegy, hogy melyik kínozza
--  1. FC Köln verleiht Olesen in die Schweiz
--  Zadovoljstvo životom u Europi: Evo na kojem su mjestu Hrvati
+-  PV-Anlagen: Einspeisevergütung sinkt ab dem 1. Februar
+-  Изявите на Христо Иванов за Локомотив Пловдив през есента
+-  Mysuru Track & Field Meet
+-  Liiketilat | Helsingin tiloja lojuu tyhjänä miljoonien eurojen edestä
+-  Hizbullah'tan İsrail mevzilerine saldırı
+-  Elég lesz egy mobil is, ha a rendőr igazoltat
+-  Közel félmillió forintra hízott a minimálbér egyik szomszédunknál
+-  Volt egy fontos hívása Orbán Viktornak
+-  «Неумолимая внутренняя потребность». Почему люди стоят в очереди в штабы Надеждина?
+-  Jepang vs Indonesia, Justin Hubner Waspadai Kaoru Mitoma
