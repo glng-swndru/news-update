@@ -1,11 +1,11 @@
 # Latest News
--  Menjadi Teman dan Pembisik yang Baik
--  Rio Ferdinand slams Arsenal boss Mikel Arteta in brutal Manchester United comparison
--  Arbeitskampf bei der Bahn: Die GDL streikt auch für unsere Sicherheit
--  Ready and waiting: first-class health care assured at Culcairn service
--  Baker Hughes Reports Profit Growth on Strong LNG Demand
--  Milei se vuelve pragmático mientras Congreso hostil lo obliga a negociar
--  السودان.. معارك عنيفة حول "بابنوسة" الاستراتيجية في كردفان
--  Portada miércoles 24 de enero de 2024
--  FIRE達成者の多くは、「忍耐」という超能力を持つ——あるプログラマが語る「経済的自立」に役立つ2つの原則
--  "Teljesen kész vagyok" - brutális meccse után kikészült a Grand Slam-győztes sztár
+-  Open d'Australie : Medvedev à une victoire d'une troisième finale, Yastremska surprend encore
+-  Google će uložiti milijardu dolara u podatkovni centar u Velikoj Britaniji
+-  Тренер «Тампы» Купер о Кучерове: «Уникальный игрок, нет слов»
+-  Alain Delon : "Je veux mourir", assure l'acteur au beau milieu de la guerre qui oppose ses trois enfants
+-  Đường lên đỉnh Mẫu Sơn ùn tắc vì hàng ngàn du khách lên ngắm băng giá
+-  Miedwiediew znów wszystkich nabrał! Tym razem w meczu z Hurkaczem
+-  "Няма Кен без Барби": Райън Гослинг след номинациите за "Оскар"
+-  Jalkapallo | HJK hankki puolustajan Ruotsista
+-  Open d'Australie : Medvedev à une victoire d'une troisième finale, Yastremska surprend encore
+-  Задържаха певицата Диона, шофирала дрогирана
