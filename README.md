@@ -1,11 +1,11 @@
 # Latest News
--  Fernando Medina: "Foi difícil ficar imune ao que aconteceu no Governo, mas daqui a 50 anos posso contar todos os segredos"
--  On vous explique comment fonctionne WaryMe, l’application anti-intrusion des écoles de Fréjus
--  KIB-TEK: EL-SEN’in ortaya attığı iddialar gerçeklerden uzak ve kamuoyunu yanıltıcı ibareler içeriyor
--  The Life List: 3 highlights from Coldplay’s S’pore show, from teary tribute to piano glitch
--  Al-Nassr snýr sér að Wan-Bissaka
--  Van'ı kar fırtınası vurdu, hayat felç oldu: 429 yol kapandı, uçaklar rötar yaptı
--  Kasčiūnas apie pasienio saugumo stiprinimą: galima svarstyti apie bunkerių infrastruktūros kūrimą
--  Çin'de Türk gemisi çarpışma sonucu battı! İçindeki 16'sı Türk 21 denizci kurtarılmaya çalışılıyor
--  Sungai di AS Tercemar Nutrien, Dampak dari Perubahan Iklim
--  Trabzonspor'un şampiyon kadro dağılıyor!
+-  Drehstart für Dokumentation „Feuer & Flamme“ bei der Berufsfeuerwehr Heidelberg
+-  SAP планира да преструктурира 8000 позиции, фокусирайки се върху AI
+-  【內房困局】潘功勝：人行即將出台有利於房企現金流的融資政策
+-  Interim Budget 2024: Remove Cap On CGTMSE Scheme For Last-mile Financial Inclusion, Demands MSME Fintech Sector
+-  UNHCR เผยปี 2023 พบชาวโรฮีนจาตายกลางทะเลมากที่สุดในรอบ 10 ปี
+-  Совфед отправил приглашения иностранным наблюдателям на выборы в России
+-  Medvedev vence Hurkacz e avança às semifinais do Aberto da Austrália
+-  Узбекская делегация посетила могилу великого Лидера и Шехидляр хиябаны
+-  Amasya, Artvin, Bolu, Giresun, Gümüşhane, Kastamonu, Ordu, Rize, Samsun, Sinop, Trabzon, Zonguldak. Tarih verildi, bol bol yiyin. Ne hamsi ne istavrit kalacak
+-  L'ereditÃ dell'islam 'modernista' in Asia centrale
