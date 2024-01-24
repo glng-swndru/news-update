@@ -1,11 +1,11 @@
 # Latest News
--  Classmate All Rounder 2nd Edition competition: Winners shine at the National Final
--  Nejsem Castro ani Gándhí, protestoval poslanec Lang proti omezení rozpravy
--  Death Stranding pro iOS klepe na dveře. Známe termín vydání
--  Sněmovna může opět jednat o korespondenční volbě i přes noc
--  À Quimper, Valérie Bonneton en avant-première au Cinéville
--  岡山県選出 石井正弘参院議員（自民・安倍派）不記載額は３７８万円と発表【岡山】
--  "공짜로 외제차 타세요" 믿었는데…대출금 폭탄
--  I Republikanci Nju Hempšira žele Trampa
--  Daniil Medvedev battles into Australian Open semi-finals
--  Community concerned about Emergency and Disaster Management Act
+-  Şeydayev: “ Sadıgov, çok iyi bir taraftarımızın olduğunu söyledi”
+-  Депутат Госдумы: Еще один Ил-76 с украинскими военнопленными развернулся в обратном направлении-ВИДЕО
+-  Mazan. Des collégiens plantent 250 arbres pour « créer un îlot de fraîcheur »
+-  Katar, Türkiye’den yangın söndürme battaniyeleri ithal edecek!
+-  「白や紅色、ピンクの花が大きいね」 沖縄・名護でコスモス八分咲き 良い米を作るための緑肥が目的 - 沖縄タイムス＋プラス ニュース
+-  Angelino, Roma ile anlaştı
+-  UŽIVO Vučić: Za Expo 2027 – 150 dana pun angažman cele zemlje VIDEO
+-  Kardiolog otkrio koja vježba je najbolja za zdravlje srca
+-  STORM JOCELYN: Disruption across Gwynedd and Anglesey
+-  El Fòrum de la Societat Civil presenta un visor web per a consultar les dades de l'informe de l'Observatori de les Transicions
