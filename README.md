@@ -1,11 +1,11 @@
 # Latest News
--  Loimaalla jäätiin äänestysvilkkaudessa – seudulla äänestettiin ennakkoon silti viime presidentinvaaleja ahkerammin
--  Fredriks återkomst – efter horribla åren
--  ABD, Irak'taki İran destekli milisleri vurdu
--  Tief „Jitka“: Sturm in NRW – was Hausbesitzer jetzt wissen müssen
--  Kertas siasatan terhadap Tun M mengenai kaum India hampir siap
--  Lipsa de mișcare poate duce la tromboză venoasă profundă. Cum se poate vindeca
--  Hemlösheten i Sverige breder ut sig
--  Kurtuluş eğitimde
--  SEED 2024 result declared; Direct link
--  PM’s own voters among hardest hit
+-  Cumhurbaşkanı Erdoğan Eskişehir'e geliyor
+-  Tarih belli oldu... 'Apple Car' geliyor!
+-  Həmid Həmidov vəzifədən azad edildi
+-  Yarıyıl tatiline gidemeyen üniversite öğrencileri için askıda bilet uygulaması
+-  Altamira Real Estate: Εβδομάδα οικιστικών οικοπέδων στη Λευκωσία
+-  Wanita Indonesia berang, bertindak agresif ditahan JPJ
+-  Benzine 1 lira 46 kuruş zam!
+-  Kemény üzenet érkezett Orbánéknak a NATO-főtitkártól, közben a svédek is beintettek a magyar kormányfőnek – Magyarország mégis egyedül maradt
+-  XSMN 25/1, trực tiếp xổ số miền Nam hôm nay 25/1/2024, kết quả xổ số ngày 25 tháng 1
+-  Столичная ГАИ усилит профилактику ДТП с участием пешеходов
