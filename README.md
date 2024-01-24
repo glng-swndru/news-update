@@ -1,11 +1,11 @@
 # Latest News
--  "OVO JE PAKAO, OVAKAV POŽAR NISAM VIDELA": Broj vatrogasaca se pojačava u Bloku 70 ne bi li lokalizovali vatrenu stihiju (VIDEO)
--  שוטר נחקר באזהרה בחשד לתקיפת אזרח באצטדיון טדי בירושלים
--  OD CIFRE MU SE ZAVRTELO U GLAVI Stranac uzeo taksi po sletanju u Srbiju, kad je čuo koliko je dužan za vožnju SLOŠILO MU SE
--  Šef Mossada iznio plan za Gazu, Izraelci bijesni: ‘Pa kako je moguće da je 70 posto Hamasovih snaga netaknuto?‘
--  Menzil şeyhini gören mürit aşka geldi: 'Aşkım' diye seslendi!
--  Machine Learning as a Service (MLaaS) Market Report Trends, Segment by Region, SWOT Analysis, Industry Experts, Business Revenue and Drivers by 2024-2031 | H2O.ai, Google Inc., Predictron Labs Ltd, IBM Corporation
--  За год в Казахстане произвели мебель на 82,6 млрд тенге
--  El Gobierno advirtió que, si se cae la Ley Ómnibus revisará cada una de las partidas a las provincias
--  Dilbert Aguilar fue internado por cuadro de fiebre que lleva diez días: “Ha llegado con dificultad respiratoria”
--  Реализуется проект по созданию новых постов на границе Азербайджана с Грузией и Россией
+-  Fernando Medina: "Foi difícil ficar imune ao que aconteceu no Governo, mas daqui a 50 anos posso contar todos os segredos"
+-  On vous explique comment fonctionne WaryMe, l’application anti-intrusion des écoles de Fréjus
+-  KIB-TEK: EL-SEN’in ortaya attığı iddialar gerçeklerden uzak ve kamuoyunu yanıltıcı ibareler içeriyor
+-  The Life List: 3 highlights from Coldplay’s S’pore show, from teary tribute to piano glitch
+-  Al-Nassr snýr sér að Wan-Bissaka
+-  Van'ı kar fırtınası vurdu, hayat felç oldu: 429 yol kapandı, uçaklar rötar yaptı
+-  Kasčiūnas apie pasienio saugumo stiprinimą: galima svarstyti apie bunkerių infrastruktūros kūrimą
+-  Çin'de Türk gemisi çarpışma sonucu battı! İçindeki 16'sı Türk 21 denizci kurtarılmaya çalışılıyor
+-  Sungai di AS Tercemar Nutrien, Dampak dari Perubahan Iklim
+-  Trabzonspor'un şampiyon kadro dağılıyor!
