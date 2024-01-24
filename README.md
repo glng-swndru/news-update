@@ -1,11 +1,11 @@
 # Latest News
--  Ko su poslanici koji će činiti novi saziv Skupštine Srbije
--  الركراكي: «الصفراء» ستجبرنا على الاحتفاظ بلاعبينا… والفوز على زامبيا هدف
--  Kida Khodr Ramadan stellt einen Antrag auf Strafaufschub!
--  Au moins sept clients soutiennent que le banquier charitois touchait de belles commissions pour ses prêts douteux
--  Украина угрожает расправой европейским министрам: За деньги и оружие НАТО они готовы начать убивать
--  SKY - Politano-Napoli, rinnovo con grosso aumento di stipendio. Le nuove cifre
--  Lawan Jepang, Timnas Indonesia Diultimatum Tak Boleh Cuma Parkir Bus
--  What Congress could not do in 60 years, PM Modi govt did in 10 years: Anurag Thakur
--  Šmits un Ate salīdzinoši nemanāmi "Žalgira" panākumā Pasvalē
--  Au moins sept clients soutiennent que le banquier charitois touchait de belles commissions pour ses prêts douteux
+-  Netflix's Monsters Features a Clever Nod to Jujutsu Kaisen
+-  La sociedad de la nieve del Real Zaragoza: "De 5 de la tarde a 5 de la mañana no paramos, fue una experiencia inolvidable"
+-  AMSS: Višesatno čekanje na graničnim prelazima
+-  La sociedad de la nieve del Real Zaragoza: "De 5 de la tarde a 5 de la mañana no paramos, fue una experiencia inolvidable"
+-  Leo Daily Horoscope Today, Jan 24, 2024 predicts romances in the air
+-  Stock market today: Wall Street drifts near records as earnings reporting season heats up
+-  Former Georgia bulldog mascot Uga X dies with 2 national championships during his term
+-  Slovenski rokometaši so si priigrali tekmo za peto mesto na evropskem prvenstvu (FOTO)
+-  Centrale de Belleville-sur-Loire : 22 élus du Cher, de la Nièvre et du Loiret plaident pour deux nouveaux réacteurs auprès de Bruno Le Maire
+-  رئيس اللجنة التحضيرية للمعرض الوطني الأول للبُن : التحضيرات جارية لإقامة المعرض في وقته المحدد
