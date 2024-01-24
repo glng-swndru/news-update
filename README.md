@@ -1,11 +1,11 @@
 # Latest News
--  TKN Sebut Anies Arogan soal Museum Diponegoro, Cak Imin: Wong Pertama Diizinkan
--  „Anatomie eines Falls“: Deutsche Sandra Hüller für Oscar nominiert
--  Finanzen: Steuererklärung selbst machen: Diese Unterlagen brauchen Sie
--  Who is Karpoori Thakur, the Former Chief Minister Of Bihar awarded Bharat Ratna today?
--  Nem hinné melyik országot szemelte ki Nagy Márton
--  List of nominees for the 2024 Oscars
--  Nie żyje słynna lekkoatletka. Jest rekordzistką kraju w dwóch konkurencjach
--  "We were never motivated purely by money – that idea was knocked out of us many years ago!” Landmarq and the story of Entertaining Angels
--  Margot Robbie's 'Barbie' press tour fashion will be immortalized in a coffee table book
--  Fighter: Fans go gaga over Hrithik Roshan, Deepika Padukone's sizzling chemistry, say 'Aag lag jayegi' [Watch Video]
+-  Fallece mamá de conductor de 'Hoy' tras padecer 11 años cáncer; nunca supo que tenía la enfermedad
+-  В ультра реалистичном шутере Bodycam будет русская озвучка
+-  Serhat Akpınar: KKTC’de yükseköğretim politikası oluşturulması gerekiyor
+-  Azië Cup 2024: AZ-doelman Ryan groepswinnaar met Australië na gelijkspel
+-  Urteil zur ehemaligen NPD: Spielregeln verletzt, Geld entzogen
+-  Əli Əsədovdan QƏRAR: meyar göstəriciləri dəyişdirildi
+-  El Udinese jugará un partido a puerta cerrada por los insultos al arquero del Milan
+-  Seems Like Travis Barker Thinks Domestic Violence Is Fashionable
+-  У Харкові в завалах будинку виявили ще одну загиблу: вже 6 вбитих ракетним ударом РФ
+-  2 Passive Income Plays to Buy and Hold Forever
