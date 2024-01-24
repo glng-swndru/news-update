@@ -1,11 +1,11 @@
 # Latest News
--  Fallece mamá de conductor de 'Hoy' tras padecer 11 años cáncer; nunca supo que tenía la enfermedad
--  В ультра реалистичном шутере Bodycam будет русская озвучка
--  Serhat Akpınar: KKTC’de yükseköğretim politikası oluşturulması gerekiyor
--  Azië Cup 2024: AZ-doelman Ryan groepswinnaar met Australië na gelijkspel
--  Urteil zur ehemaligen NPD: Spielregeln verletzt, Geld entzogen
--  Əli Əsədovdan QƏRAR: meyar göstəriciləri dəyişdirildi
--  El Udinese jugará un partido a puerta cerrada por los insultos al arquero del Milan
--  Seems Like Travis Barker Thinks Domestic Violence Is Fashionable
--  У Харкові в завалах будинку виявили ще одну загиблу: вже 6 вбитих ракетним ударом РФ
--  2 Passive Income Plays to Buy and Hold Forever
+-  Bulgaria Unveils Ambitious Plans for Dual Highways Connecting Varna to Durankulak and Silistra
+-  Eishockey: Adler Mannheim holen Torhüter Pickard in die DEL zurück
+-  Eishockey: Adler Mannheim holen Torhüter Pickard in die DEL zurück
+-  Eishockey: Adler Mannheim holen Torhüter Pickard in die DEL zurück
+-  WADA objavila spisak zabranjenih sredstava
+-  Berkunjung ke TPI Tawang Kendal, Ganjar Bicara soal Kesejahteraan Nelayan
+-  Mieszkańcy Lubaczowa chcą naprawić relacje z Orłosiem. Stworzyli petycję. "Już nie będziemy"
+-  Cine este femeia care se află în spatele escrocheriei de un milion de euro din Ploiești. Era ajutată de fiul ei
+-  Rykter: Oppgradert Xbox-kontroller fortsatt på vei mot lansering i mai
+-  В «Пари НН» сообщили о подписании контракта с сыном Андрея Тихонова
