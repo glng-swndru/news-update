@@ -1,11 +1,11 @@
 # Latest News
--  Удар по порту в РФ: робота терміналу паралізована
--  献血运动30年——越南血液交融
--  Tramps uzvar republikāņu priekšvēlēšanās Ņūhempšīrā
--  Виктор Осимен: Реших къде ще играя!
--  Không phải xa xỉ thầm lặng, xu hướng chi tiêu mới sẽ "lên ngôi" trong năm 2024: Rất thông minh mà lại cực hợp với các gia đình trẻ
--  Huyện rộng nhất Việt Nam, gấp 3 lần tỉnh Bắc Ninh thu ngân sách nghìn tỷ
--  Lợn nhập lậu tăng mạnh: Người chăn nuôi lo phá sản
--  Rò rỉ thiết kế iPad Air 12,9 inch mới của Apple?
--  President promises development of Niger Delta at meeting with monarchs
--  B.C. doctors say pay boost for IUD insertions will reduce patient pain, waitlists
+-  דוק ריברס ימונה למאמן מילווקי, מג'יק ג'ונסון בירך
+-  TKN Prabowo-Gibran Apresiasi Peran Sentral G-Nesia
+-  Xui như Apple: Giảm doanh số còn bị Elon Musk ‘lừa’, định biến xe điện ‘iCar’ thành sản phẩm thay thế iPhone để rồi cho ra sản phẩm giống Tesla
+-  غزہ میں لڑائی کے دوران ایک ہی دن میں 21 اسرائیلی فوجی جہنم واصل
+-  장수·군산·전주에 특수학교 설립…서부권도 추가 설립 검토
+-  Netflix abonesi sayısı 13 milyonu aşkın artışla 260,28 milyona ulaştı
+-  SuperCoach BBL winner’s ultimate late birthday present
+-  Museum of Modern Art feiert deutschen Künstler Schütte
+-  Museum of Modern Art feiert deutschen Künstler Schütte
+-  아이 낳고 키우기 좋은 경남…육아 부담 확 줄인다
