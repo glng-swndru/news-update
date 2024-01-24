@@ -1,11 +1,11 @@
 # Latest News
--  Cumhurbaşkanı Erdoğan Eskişehir'e geliyor
--  Tarih belli oldu... 'Apple Car' geliyor!
--  Həmid Həmidov vəzifədən azad edildi
--  Yarıyıl tatiline gidemeyen üniversite öğrencileri için askıda bilet uygulaması
--  Altamira Real Estate: Εβδομάδα οικιστικών οικοπέδων στη Λευκωσία
--  Wanita Indonesia berang, bertindak agresif ditahan JPJ
--  Benzine 1 lira 46 kuruş zam!
--  Kemény üzenet érkezett Orbánéknak a NATO-főtitkártól, közben a svédek is beintettek a magyar kormányfőnek – Magyarország mégis egyedül maradt
--  XSMN 25/1, trực tiếp xổ số miền Nam hôm nay 25/1/2024, kết quả xổ số ngày 25 tháng 1
--  Столичная ГАИ усилит профилактику ДТП с участием пешеходов
+-  "OVO JE PAKAO, OVAKAV POŽAR NISAM VIDELA": Broj vatrogasaca se pojačava u Bloku 70 ne bi li lokalizovali vatrenu stihiju (VIDEO)
+-  שוטר נחקר באזהרה בחשד לתקיפת אזרח באצטדיון טדי בירושלים
+-  OD CIFRE MU SE ZAVRTELO U GLAVI Stranac uzeo taksi po sletanju u Srbiju, kad je čuo koliko je dužan za vožnju SLOŠILO MU SE
+-  Šef Mossada iznio plan za Gazu, Izraelci bijesni: ‘Pa kako je moguće da je 70 posto Hamasovih snaga netaknuto?‘
+-  Menzil şeyhini gören mürit aşka geldi: 'Aşkım' diye seslendi!
+-  Machine Learning as a Service (MLaaS) Market Report Trends, Segment by Region, SWOT Analysis, Industry Experts, Business Revenue and Drivers by 2024-2031 | H2O.ai, Google Inc., Predictron Labs Ltd, IBM Corporation
+-  За год в Казахстане произвели мебель на 82,6 млрд тенге
+-  El Gobierno advirtió que, si se cae la Ley Ómnibus revisará cada una de las partidas a las provincias
+-  Dilbert Aguilar fue internado por cuadro de fiebre que lleva diez días: “Ha llegado con dificultad respiratoria”
+-  Реализуется проект по созданию новых постов на границе Азербайджана с Грузией и Россией
