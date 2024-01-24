@@ -1,11 +1,11 @@
 # Latest News
--  Наполі продовжить контракт з Політано
--  Mission Impossible Dead Reckoning Streaming Release Date: How to Watch Online
--  Kopuk dizisinin konusu ne, oyuncuları kimler?
--  Bucs' Todd Bowles on not using final timeout: 'Game was over' - ESPN
--  Kijev zaščiten pred točo izstrelkov, Harkov ne
--  U Brčkom razmatrano uvođenje elektronskih listi čekanja pacijenata
--  В США начали производство самолета шестого поколения
--  James May recalls being amazed by Holi celebrations while filming Our Man in India: 'How do you clean it up' | Exclusive
--  E se lhe dissessem que temos apenas 90 segundos para o fim da humanidade?
--  Обявиха състава на България за мача срещу Босна от купа "Дейвис"
+-  Ko su poslanici koji će činiti novi saziv Skupštine Srbije
+-  الركراكي: «الصفراء» ستجبرنا على الاحتفاظ بلاعبينا… والفوز على زامبيا هدف
+-  Kida Khodr Ramadan stellt einen Antrag auf Strafaufschub!
+-  Au moins sept clients soutiennent que le banquier charitois touchait de belles commissions pour ses prêts douteux
+-  Украина угрожает расправой европейским министрам: За деньги и оружие НАТО они готовы начать убивать
+-  SKY - Politano-Napoli, rinnovo con grosso aumento di stipendio. Le nuove cifre
+-  Lawan Jepang, Timnas Indonesia Diultimatum Tak Boleh Cuma Parkir Bus
+-  What Congress could not do in 60 years, PM Modi govt did in 10 years: Anurag Thakur
+-  Šmits un Ate salīdzinoši nemanāmi "Žalgira" panākumā Pasvalē
+-  Au moins sept clients soutiennent que le banquier charitois touchait de belles commissions pour ses prêts douteux
