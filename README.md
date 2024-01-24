@@ -1,11 +1,11 @@
 # Latest News
--  Justin Trudeau sugerează că o revenire a lui Trump la Casa Albă ar putea să nu fie cel mai bun lucru pentru Canada
--  Лавров: Россия не будет проявлять инициативу и бежать «к дядюшке Сэму»
--  ComplyCube Sets the Standard in Age Verification Compliance with Zero Non-Conformities
--  Oscars 2024 nominations: Lily Gladstone, Oppenheimer create history
--  A négynapos munkahét diszkriminatív lehet
--  VIDEO Plenković o suradnji s Nizozemskom: 'Naši projekti i ulaganja su jako ohrabrujući'
--  Se fugó PNB durante visita conyugal en un hotel de Apure
--  Visoke številke Luke Dončića z motečo lepotno napako
--  Lithuania hands in note to Belarus over border violation by three armed guards
--  Final yapacak diziler belli oldu! İşte ekranlara veda eden o diziler!
+-  Netflix Drops Trailer For Live-Action Avatar: The Last Airbender Series
+-  Gisela Hack-Molitor aus Marbach schreibt Biografie einer Jüdin, die ihrer Zeit in vielem voraus war
+-  How to turn your Android phone into a security key for your Chrome browser
+-  Double-digit growth seen for Bloomberry
+-  Stávka opět zavaří cestujícím. Do Mnichova pojedou místo vlaků autobusy
+-  Slovan mal na sústredení v Katare nastúpiť proti Dinamu Moskva
+-  Mais ricos estão concentrando cada vez mais renda no Brasil, diz estudo da FGV
+-  Ispor abordará el reglamento de ETS en tres sesiones con expertas de la Aemps
+-  Preissteigerungen: Kronach: Wenn Pflege kaum noch bezahlbar ist
+-  Nottingham stabbing victim Grace O'Malley Kumar's brother reveals terrifying last moments
