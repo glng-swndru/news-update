@@ -1,11 +1,11 @@
 # Latest News
--  Aslı Bekiroğlu: Maalesef arkadaşız
--  Aydilge'nin Dilber tepkisi sosyal medyayı karıştırdı! İrem Derici dayanamadı: Kız sus...
--  Βουλή: Σήμερα η απόφαση για την επιστολική ψήφο στις ευρωεκλογές
--  Вице-премьер Оверчук в центре DOST
--  外国人に伝わるやさしい日本語を 浦河の協力隊員・高畠さんが教室
--  《小傳日記》突發官宣降準！聽日仲有「大禮包」咁筍？
--  Стало известно о десятках людей в упавшем под Белгородом Ил-76
--  Українка Ястремська залишила патріотичний меседж на камері після матчу на Australian Open
--  Парламентское собрание проведет слушания по развитию туризма в СГ
--  LIVE TJ - Mercato Juve h24 - Bianconeri sempre interessati a Samardzic. Anche la Roma su Bernardeschi. Domani visite mediche per Kean con l'Atletico
+-  Classmate All Rounder 2nd Edition competition: Winners shine at the National Final
+-  Nejsem Castro ani Gándhí, protestoval poslanec Lang proti omezení rozpravy
+-  Death Stranding pro iOS klepe na dveře. Známe termín vydání
+-  Sněmovna může opět jednat o korespondenční volbě i přes noc
+-  À Quimper, Valérie Bonneton en avant-première au Cinéville
+-  岡山県選出 石井正弘参院議員（自民・安倍派）不記載額は３７８万円と発表【岡山】
+-  "공짜로 외제차 타세요" 믿었는데…대출금 폭탄
+-  I Republikanci Nju Hempšira žele Trampa
+-  Daniil Medvedev battles into Australian Open semi-finals
+-  Community concerned about Emergency and Disaster Management Act
