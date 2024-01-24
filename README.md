@@ -1,11 +1,11 @@
 # Latest News
--  Figyelmeztet az OTP: hatalmas változás élesedik a banknál
--  Песков заявил, что участники СВО могут войти в федеральный кадровый резерв
--  Star Academy 2023 : Le gagnant déjà tout désigné ? Axel s'exprime après son élimination
--  ‘Don’t cut corners’: 4 things to know about the Ford government’s plans to extend Mississauga and Brampton’s LRT
--  Live - Russisch vliegtuig met 65 Oekraïense gevangenen aan boord crasht: ‘Alle inzittenden overleden’
--  Siniša Mihajlović je zaradio veliki novac od fudbala, a ovo je procenjeno bogatstvo njegove udovice Arijane
--  Ястремская в огне. Известны все полуфиналистки Australian Open 2024
--  Ivošević odgovorio Kerumu: Za sve one koji u školi nisu usvojili čitanje s razumijevanjem
--  Klinsmann expects South Korea's Son to put his stamp on Asian Cup
--  Is Franklin Street dying or just different? What’s fueling Chapel Hill street’s changes?
+-  Wie Abonnenten der SchwäPo und Tagespost das "Heimat-Doppel" kostenlos digital lesen können
+-  LeBron, Curry i Embiid na popisu Amerikanaca za OI u Parizu
+-  La asociación Alpargatas con tomate lleva este sábado a Teruel ‘Canto a la Luna y al Sol’
+-  Confira a lista dos jogadores mais caros de cada país
+-  İstanbul Hafta Sonu Buz Kesecek! Mola Veren Kar 2 Günlüğüne Geri Dönüyor
+-  「湿って重い…」北部中心に雪 25日にかけて断続的に降る見込み 路面の凍結などに注意を
+-  日本海側中心に雪警戒 外出控えて
+-  Ankara'da Bahar Yarıyılı Başlıyor: Yurt Fiyatlarında Son Durum 2024!
+-  เจ้าชายแฮร์รี่ เมแกน ไปร่วมงานที่จาเมกา ขณะกษัตริย์ชาร์ลส์เตรียมผ่าตัด (คลิป)
+-  Großbritannien: Sturm »Jocelyn« sorgt für neue Verkehrsbehinderungen
