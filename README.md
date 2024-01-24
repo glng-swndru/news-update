@@ -1,11 +1,11 @@
 # Latest News
--  'He can be a top-end player': Portsmouth boss salutes triumphant return after ex-Bristol City man's five-and-a-half-month wait
--  KPK Klaim Sedang Bersih-Bersih Buntut Kasus Pungli di Rutan KPK
--  Alicante: entre el auge del turismo y el declive de la economía
--  Διάταξη «ανατροπή» στο ΕΣΥ: «Ελευθέρας» στους γιατρούς του δημοσίου να εργάζονται όποτε θέλουν στον ιδιωτικό τομέα
--  부산서 180억 원 전세 사기 50대 1심서 징역 15년 선고
--  Les parents de Jayson, décédé subitement à l’âge de 13 ans, n’ont jamais reçu la cagnotte récoltée à la RUSC Anderlues : « Honte à l’ancien président! »
--  동해시, ‘사랑의 1분 전화’로 고독사 막는다
--  „Strafsteuer“ für Klimafreundlichkeit? : Dattelns Busunternehmen von CO₂-Steuer betroffen
--  Một TikToker review set quà Tết mới toanh của Hồng Phượng, nói câu chốt cực bất ngờ
--  Richtig gut vegan speisen: Der Floh in Langenlebarn
+-  ‘We have our position’: Ukraine star says teen at centre of handshake storm was ‘confused’
+-  BCCI Awards 2024: अवार्ड रखने के लिए आपने अलग से कैबिनेट बनाया है ? मोहम्मद शमी के जवाब ने लूटी महफिल
+-  Cemburu, sakit hati punca Bella dibunuh - KPN
+-  Furtul de identitate pe Instagram. Ce modalități folosesc hackerii să intre pe contul tău și cum să eviți acest lucru
+-  Már csak Budapest döntésétől függ a NATO bővítése, felfedték Moszkva háborús terveit – Ukrajnai háborús híreink szerdán
+-  New Hampshire: Trump pobijedio suparnicu Haley na republikanskim predizborima
+-  Menší důvěryhodnost čínských čísel, nominální růst nejníže od roku 1976
+-  Парламентът гласува оставката на Десислава Атанасова - Труд
+-  Verletzte Igel - Experten fordern Crashtests für Mähroboter
+-  U Novom Regulatorna agencija snizila vodu za 10 odsto, Vodovod uvećao cijenu za prečišćavanje otpadnih voda
