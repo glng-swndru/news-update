@@ -1,11 +1,11 @@
 # Latest News
--  'This win comes at a perfect time': Cambridge woman looking forward to fun in the sun with $100K win
--  Soccer-Senegal beat Guinea 2-0 as both advance to last-16
--  Poljski predsjednik pomilovao dvojicu zatvorenih bivših ministara u vladi
--  Pesquisa aponta Lula com 55,2% de aprovação e 39,6% de rejeição
--  Камерун се наложи над Гамбия в драма, Сенегал се справи с Гвинея
--  The staggering proof tennis has changed forever after shock Aus Open delays — Talking Pts
--  Камерун се наложи над Гамбия в трилър, Сенегал се справи с Гвинея
--  Nikad napetija završna potjera! Kandidat sam s 9 odgovora pobijedio Mladena: 'Dakle, potop. Nisam se snašao'
--  افتتاح السنة القضائية الجديدة تحت شعار " جدية الأداء القضائي من مصداقية الالتزام الأخلاقي"
--  Pendikspor sahasında Kasımpaşa'yı 3-2 mağlup etti
+-  2024年は「失われた30年」からの覚醒の年に？日本経済が進展する2つの可能性 - 経済分析の哲人が斬る！市場トピックの深層
+-  Erschöpftes Land: Raus aus dem Hamsterrad: Wie Arbeit wieder mehr Freude macht
+-  Kfz-Neuzulassungen - „Ein Umbruch in der Branche“
+-  Wer glückliche Kinder will, sollte ihnen so spät wie möglich ein Handy geben, rät Expertin
+-  Testing Your C Knowledge With This One Simple Quiz
+-  Objectif Lune pour les cheveux de trois Corréziens dont l'ADN est à bord de la fusée commerciale Vulcan Centaur
+-  Ideakilpailussa kaivattiin digitaalista visualisointia avuksi metsänhoidon suunnitteluun
+-  10 Ways to Be a Better You at Work in 2024
+-  'Better than the busiest summer day': Hockey Day in Canada an economic boon for Victoria
+-  Turning Doctors into Climate Health Advocates Is Good for Patients
