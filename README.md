@@ -1,11 +1,11 @@
 # Latest News
--  Anti-âge : ces nouveaux patchs pour les yeux réutilisables à l'infini nous ont convaincu
--  Corregedoria da Polícia Civil prende investigador suspeito de envolvimento em assassinato no MT
--  Destructions de radars dans le Var: cinq ans après, deux gilets jaunes relaxés
--  Enski boltinn - Jóhann Birnir ræðir Watford, Man Utd og fleira
--  Oscary 2024: Faworyci z nominacjami. Porażka "Chłopów", ale jest polski wątek
--  TRPELA SAM NASILjE: Mina Kostić iznela u javnost detalje torture koju je prošla s 19 godina mlađim dečkom Nikolom
--  "Twoja twarz brzmi znajomo". Oficjalnie wiadomo, kto wystąpi w jubileuszowej edycji. Dobrze znacie te nazwiska
--  Arsenalplatz Ludwigsburg: Am Montag beginnt die Umgestaltung zum Park
--  Consulcesi, 'rimborsi potenziali di 600 mln per ferie non godute'
--  Premios Oscar 2024: dónde ver 'Oppenheimer', 'Barbie' y las nominadas a mejor película
+-  Justin Trudeau sugerează că o revenire a lui Trump la Casa Albă ar putea să nu fie cel mai bun lucru pentru Canada
+-  Лавров: Россия не будет проявлять инициативу и бежать «к дядюшке Сэму»
+-  ComplyCube Sets the Standard in Age Verification Compliance with Zero Non-Conformities
+-  Oscars 2024 nominations: Lily Gladstone, Oppenheimer create history
+-  A négynapos munkahét diszkriminatív lehet
+-  VIDEO Plenković o suradnji s Nizozemskom: 'Naši projekti i ulaganja su jako ohrabrujući'
+-  Se fugó PNB durante visita conyugal en un hotel de Apure
+-  Visoke številke Luke Dončića z motečo lepotno napako
+-  Lithuania hands in note to Belarus over border violation by three armed guards
+-  Final yapacak diziler belli oldu! İşte ekranlara veda eden o diziler!
