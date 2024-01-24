@@ -1,11 +1,11 @@
 # Latest News
--  Les fils d'Amélie Oudéa-Castéra scolarisés dans des classes non-mixtes au collège Stanislas
--  「あおり運転」狙われやすい人、ウインカーが原因かも…守るべき“たった1つのルール”とは？ - それって本当？クルマの「当たり前」
--  Челси - Мидълзбро 4:0 /първо полувреме/
--  TBMM'den İsveç'e NATO vizesi
--  Сенченко: У Далакяна не пішов бій
--  Aliocha Schneider, le beau-frère de Virginie Efira s'affiche avec sa célèbre chérie : pluie d'enfants de stars au défilé Chanel
--  Dalversenyt nyert Kamarás Iván
--  Les fils d'Amélie Oudéa-Castéra scolarisés dans des classes non-mixtes au collège Stanislas
--  Especialista em comportamento humano preocupada com Miguel Vicente: "Trincar-se até fazer sangue"
--  Araç muayene ücretlerine tepki
+-  Ley "Bases": llegaron a un acuerdo en Diputados el oficialismo y bloques dialoguistas
+-  Israelis' ire at Netanyahu's obtuse, corrupt government is about to boil over
+-  Reviewing the Ring home security system: pros and cons
+-  В Испания е забранено масонството
+-  لا خطر في 4 ألوان للحوم بعد الطهي
+-  Luis Abinader felicita a Adrián Beltré
+-  UAE scrape into round of 16 despite defeat to Iran
+-  Costa Filho vê efeito ‘controlado’ de greve de auditores no escoamento e diz que pasta monitora
+-  Costa Filho vê efeito ‘controlado’ de greve de auditores no escoamento e diz que pasta monitora
+-  İsveç'in NATO üyeliği TBMM'den geçti
