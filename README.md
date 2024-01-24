@@ -1,11 +1,11 @@
 # Latest News
--  Netflix's Monsters Features a Clever Nod to Jujutsu Kaisen
--  La sociedad de la nieve del Real Zaragoza: "De 5 de la tarde a 5 de la mañana no paramos, fue una experiencia inolvidable"
--  AMSS: Višesatno čekanje na graničnim prelazima
--  La sociedad de la nieve del Real Zaragoza: "De 5 de la tarde a 5 de la mañana no paramos, fue una experiencia inolvidable"
--  Leo Daily Horoscope Today, Jan 24, 2024 predicts romances in the air
--  Stock market today: Wall Street drifts near records as earnings reporting season heats up
--  Former Georgia bulldog mascot Uga X dies with 2 national championships during his term
--  Slovenski rokometaši so si priigrali tekmo za peto mesto na evropskem prvenstvu (FOTO)
--  Centrale de Belleville-sur-Loire : 22 élus du Cher, de la Nièvre et du Loiret plaident pour deux nouveaux réacteurs auprès de Bruno Le Maire
--  رئيس اللجنة التحضيرية للمعرض الوطني الأول للبُن : التحضيرات جارية لإقامة المعرض في وقته المحدد
+-  Skandal u Budimpšeti! Student go prošao pored obezbeđenja crkve i popeo se na oltar (VIDEO)
+-  INCIDENT NA NOVOM BEOGRADU: Muškarac pretučen ispred kafane, radnik obezbeđenja mu polomio lobanju?
+-  LjUBI TE TAJO: Amar Gile pokazao sina, pa mu se emotivnom porukom obratio
+-  Kto zostanie burmistrzem Jutrosina? Przegląd giełdy nazwisk
+-  Four lessons for bridging the urban-rural e-commerce divide in Sri Lanka
+-  STEFAN SILOVAO I MUČIO DEVOJČICU 6 GODINA: Jeziv zločin konačno dobio sudski epilog pedofil osuđen na dugogodišnju robiju VIDEO
+-  Tamba: Zahra bou Ousmane Sonko libérée après 6 mois de détention
+-  Mladá Boleslav poprvé v sezoně porazila Spartu
+-  Полският президент помилва двама бивши министри, които са в затвора
+-  North York high school lifts lockdown but remains in hold and secure after reports of person with weapon
