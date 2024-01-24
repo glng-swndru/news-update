@@ -1,11 +1,11 @@
 # Latest News
--  नारायणगढ–बुटवल सडकखण्ड: म्याद सकिन ६ महिना बाँकी रहँदा आधामात्रै काम
--  Велика Сряда за 4 зодии - очакват ги Големите пари!
--  Дональд Трамп раскрыл имя своего потенциального вице-президента
--  辛納「一盤未失」晉級澳網男單4強 下一戰強碰球王喬帥
--  Jokić na koti 31: Tripl-dabl u dramatičnoj pobedi nad Indijanom VIDEO
--  Indonesian V-P candidate Mahfud MD to leave Cabinet post before election
--  ‘빌드업’ 최강의 심사위원! [포토]
--  “나 죽으면 카톡은”…카카오톡 추모 프로필 ‘선택권’ 생긴다
--  “수사 무마 해줄게”…청탁 명목으로 수억 뜯은 검사 출신 변호사
--  Phương pháp bất ngờ trị "nỗi khổ quý ông" tốt như Viagra
+-  一部の小中学校で子どもたちの受け入れが再開 7つの学校で再開の見通したたず 石川・輪島市
+-  Kết quả Australian Open hôm nay 24/1: Tay vợt hạng 93 thế giới vào bán kết
+-  Moia oder hvv hop? Vier- und Marschlande bleiben außen vor
+-  5 stocks Fools think could outperform Rolls-Royce shares in 2024
+-  Deaf boy can now hear after breakthrough gene treatment
+-  【能登半島地震】「少しでも支えになれたら」中学生が募金への協力呼びかけ 静岡・島田市
+-  ‘항저우 金’ 백승호, 전북 떠나 잉글랜드 2부 버밍엄 시티 입단
+-  Гутереш: Неприемливо е Израел да не иска нова палестинска държава
+-  وفيات الأربعاء .. 24 / 1 / 2024
+-  Uutisanalyysi | Etelä-Saimaa selvitti Kimmo Jarvan eron taustoja: Lähteet kertovat nyt, miten asiat oikeasti menivät
