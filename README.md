@@ -1,11 +1,11 @@
 # Latest News
--  Jastremská postúpila cez Noskovú do semifinále Australian Open
--  Evrópa í dag - Bayern fær loksins Union Berlin í heimsókn
--  &quot;RUSKI TERORISTI ĆE SE VRATITI ODAKLE SU DOŠLI&quot; Video-obraćanje Zelenskog diglo sve na noge; Avdejevka gori, u Harkovu horor
--  能登地震の土砂崩れで安否不明の弟を探す兄 唯一発見した兄弟の「思い出」
--  Bakıda klubda dava
--  Bendecir animales
--  Elővehet-e a munkáltató, ha home office idején megadja magát az internetünk?
--  День Ксенії: прикмети, заборони та що можна просити у святої
--  ഫഹദ് ഫാസിലിന്റെ “ആവേശം” ടീസർ.
--  New Horwich Loco Works spine road finished 'in a few months'
+-  Prvi snimci požara u beogradskom tržnom centru! Bukti vatra u bloku 70, crni dim se nadvio nad Novim Beogradom! (VIDEO)
+-  Measles cases rise 40-fold across Europe
+-  "Africa is rising, India is betting on Africa's rise": Jaishankar
+-  لا تقييم للمصارف بل ميزانيات قديمة: ميقاتي ومنصوري والدبّاغ يخدعون النواب
+-  Nakon lateksa bizarne hlače s rupom! Bianca Censori nastavlja šokirati svojim kombinacijama
+-  Today's front pages – January 24, 2024
+-  Suspek kes bunuh Bella tidak diberi layanan istimewa - KPN
+-  Медведев и Хуркач сыграют решающий сет в 1/4 финала Australian Open
+-  На рынках ожидают данных о динамике ВВП США
+-  Мъжът с бомбените заплахи в училищата страдал от шизофрения
