@@ -1,11 +1,11 @@
 # Latest News
--  Puchar Narodów Afryki. Czy to koniec turnieju dla Mohameda Salaha?
--  나태주 동인회 '새여울' 20년만에 다시 뭉쳐
--  Mantienen vigilancia en la 'narcofinca' en el cantón Vinces
--  １／２４朝
--  Trump Looks to Clear GOP Presidential Field In New Hampshire
--  Karaman'da kaçak kazı yapan 5 şüpheli yakalandı
--  CLB Việt Nam ghi 7 bàn vào lưới nhà vô địch Iraq, giành chiến thắng lịch sử Cúp châu Á khiến AFC ngỡ ngàng
--  Cooling New Zealand Inflation Turns Attention to Rate-Cut Timing
--  Manulife to offer Aeroplan points to group benefits members (Business)
--  Mayday, pan-pan e arremeter: conheça códigos e termos de atenção usados na aviação
+-  Dosarul de înşelăciune în domeniul imobiliar din Ploieşti: Trei persoane, între care un avocat, arestate preventiv
+-  Binayı ateşe verdi, kaçmaya çalışırken yakalandı
+-  Ústavní soud dnes vyhlásí, jak rozhodl o zkrácené valorizaci penzí
+-  “HD현대일렉트릭, 2·4분기 연속 ‘어닝 서프’ 구조적 수익성 개선…목표가↑”
+-  Aussies lose $135k to Taylor Swift ticket scam
+-  케이카, 금리 인하 기대감...단기 주가 상승 이끌 것
+-  Raro pinguim sem cor é encontrado na Antártida; veja fotos
+-  Filipino millennials postpone big life decisions due to social, economic barriers
+-  Peilers verwachten ruk naar rechts bij Europese verkiezingen
+-  Coppa d'Africa, iniziano a delinearsi gli ottavi di finale: Osimhen sfiderà Anguissa
