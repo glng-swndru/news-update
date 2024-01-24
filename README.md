@@ -1,11 +1,11 @@
 # Latest News
--  Dosarul de înşelăciune în domeniul imobiliar din Ploieşti: Trei persoane, între care un avocat, arestate preventiv
--  Binayı ateşe verdi, kaçmaya çalışırken yakalandı
--  Ústavní soud dnes vyhlásí, jak rozhodl o zkrácené valorizaci penzí
--  “HD현대일렉트릭, 2·4분기 연속 ‘어닝 서프’ 구조적 수익성 개선…목표가↑”
--  Aussies lose $135k to Taylor Swift ticket scam
--  케이카, 금리 인하 기대감...단기 주가 상승 이끌 것
--  Raro pinguim sem cor é encontrado na Antártida; veja fotos
--  Filipino millennials postpone big life decisions due to social, economic barriers
--  Peilers verwachten ruk naar rechts bij Europese verkiezingen
--  Coppa d'Africa, iniziano a delinearsi gli ottavi di finale: Osimhen sfiderà Anguissa
+-  Un año para Torrente Ballester
+-  Horoscope Today 24 January 2024 : मकर, कुंभ, मीन राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
+-  Un enero agónico para el comercio
+-  What are child labor laws? How old do you have to be to get a job?
+-  La moción de censura prospera y abre un paréntesis, otro más
+-  Lage Tuñas, en el punto de mira de la oposición
+-  Dar marcha atrás en la Educación
+-  Check your mail: Survey on regional Greater Victoria parks coming soon
+-  4 Reliable Dividend Stocks I Will Buy if I Had S$40,000
+-  Confira as dezenas sorteadas pela loteria da Caixa nesta terça-feira
