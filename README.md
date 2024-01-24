@@ -1,11 +1,11 @@
 # Latest News
--  Nincs okuk szégyenre
--  اهتمام إعلامي دولي بإطلاق الفيلم الوثائقي "هورايزن"
--  Doctors mistook Redditch schoolgirl’s rare cancer for ‘pulled muscle’
--  Natalia Niemen: gdy tata zachorował, stał się człowiekiem dużo cieplejszym [WYWIAD]
--  Polacy zaczęli najmniej budów od lat. Jest coraz drożej, dużo zależy od nowego programu rządowego
--  Op zoek naar verborgen ‘stroomslurpers’ bij Zeeuwse bedrijven; ‘meten is weten’
--  Fuming parents blast 'double standards' over new rules sparking a surge in fines for school absences
--  Das waren die größten Fehler der deutschen Pandemie-Politik
--  Manchester United now now left with worst possible outcome as summer signing’s situation descends into farce
--  試験会場に向かう途中は”泣き寝入り”多い 受験生を痴漢から守る防犯キャンペーン 北九州市
+-  Jastremská postúpila cez Noskovú do semifinále Australian Open
+-  Evrópa í dag - Bayern fær loksins Union Berlin í heimsókn
+-  &quot;RUSKI TERORISTI ĆE SE VRATITI ODAKLE SU DOŠLI&quot; Video-obraćanje Zelenskog diglo sve na noge; Avdejevka gori, u Harkovu horor
+-  能登地震の土砂崩れで安否不明の弟を探す兄 唯一発見した兄弟の「思い出」
+-  Bakıda klubda dava
+-  Bendecir animales
+-  Elővehet-e a munkáltató, ha home office idején megadja magát az internetünk?
+-  День Ксенії: прикмети, заборони та що можна просити у святої
+-  ഫഹദ് ഫാസിലിന്റെ “ആവേശം” ടീസർ.
+-  New Horwich Loco Works spine road finished 'in a few months'
