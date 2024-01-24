@@ -1,11 +1,11 @@
 # Latest News
--  Wie Abonnenten der SchwäPo und Tagespost das "Heimat-Doppel" kostenlos digital lesen können
--  LeBron, Curry i Embiid na popisu Amerikanaca za OI u Parizu
--  La asociación Alpargatas con tomate lleva este sábado a Teruel ‘Canto a la Luna y al Sol’
--  Confira a lista dos jogadores mais caros de cada país
--  İstanbul Hafta Sonu Buz Kesecek! Mola Veren Kar 2 Günlüğüne Geri Dönüyor
--  「湿って重い…」北部中心に雪 25日にかけて断続的に降る見込み 路面の凍結などに注意を
--  日本海側中心に雪警戒 外出控えて
--  Ankara'da Bahar Yarıyılı Başlıyor: Yurt Fiyatlarında Son Durum 2024!
--  เจ้าชายแฮร์รี่ เมแกน ไปร่วมงานที่จาเมกา ขณะกษัตริย์ชาร์ลส์เตรียมผ่าตัด (คลิป)
--  Großbritannien: Sturm »Jocelyn« sorgt für neue Verkehrsbehinderungen
+-  Trafik denetiminde 820 araca ceza yağdı
+-  6 konkrete Tipps zum richtigen Umgang mit Geld
+-  Sumqayıtda biznesmen sevdiyi qadını 69 bıçaq zərbəsi ilə öldürübmüş
+-  Кремъл: Антивоенният кандидат за президент Надеждин не е сериозен съперник на Путин
+-  Kocaeli’de tarihi geçmiş ürünlere ceza
+-  Országjáró összművészeti program Juhász Annával
+-  Над 5 хил. деца се обучават в българските неделни училища във Великобритания
+-  Zo veel vrouwen klagen over Theo Maassen
+-  JOBY Stock Is Good, but This Flying Car Company Is Better
+-  Dutch Darts Masters 2024 prize money: How much cash will the winner take home?
