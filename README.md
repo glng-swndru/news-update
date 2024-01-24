@@ -1,11 +1,11 @@
 # Latest News
--  La AFA dio una amnistía: qué clubes fueron los más beneficiados
--  SKIMS' Valentine's Day Shop Features Lana Del Rey and 15 Collections
--  Trump busca victoria en Nueva Hampshire contra Haley, la única importante rival que le queda
--  20 днів у Маріуполі. Номінант на Оскар від України
--  House Speaker Mike Johnson says Biden 'can't be trusted' on border
--  Dvacítka ukrajinských dopravních pilotů cvičí v Česku, projekt má přispět k rekonstrukci Ukrajiny
--  Biggest snubs from the 2024 Oscars nominations
--  'Get me the Jelly Babies': Theresa May reveals she asked aides to get her sweets to help with diabetic lows while in No10 and how excitement of PMQs sent her blood sugar soaring
--  Veri depolamada DNA dönemi başladı: Şimdilik pahalı ve düşük kapasiteli
--  BAJA MALI KNINDŽA ILI DŽEJ I DRAGANA MIRKOVIĆ Hit anegdota legendarnog pevača (VIDEO)
+-  AI PC hype seems to be making PCs better – in hardware terms, at least
+-  Hádzanári Portugalska remizovali s Holandskom
+-  A jednak! Juventus chce go za Szczęsnego
+-  2024 Oscar adayları belli oldu
+-  AWS Marketplace adds sales of third-party services
+-  Unfall in Haltern: Bossendorfer Damm nach Kollision gesperrt
+-  Law designed to stop AI bias in hiring decisions is so ineffective it's slowing similar initiatives
+-  A jednak! Juventus chce go za Szczęsnego
+-  Trendyol Süper Lig: Beşiktaş: 0 - Adana Demirspor: 0
+-  Đang tính chuyện kết hôn, bạn trai bất ngờ đưa ra một đề nghị khó hiểu
