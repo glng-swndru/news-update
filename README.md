@@ -1,11 +1,11 @@
 # Latest News
--  'Kudos to them, but...': Jasprit Bumrah's candid take on 'Bazball' ahead of England Tests
--  Sala gör slut med Heby – nu letar man nytt samarbete
--  Russia’s Fossil Fuel Revenues Continue To Fall
--  Freedom Planet 2 Finally Fights Its Way to PS5, PS4 in April
--  Roys happy with lamb draft
--  Mahnwache und Demo in der Weilheimer Innenstadt: Ein Zeichen gegen rechts und Politik-Kritik
--  Côte d'ivoire : Le message de Drogba après le «naufrage»
--  Prestanite ju raditi: Ova uobičajena navika prije spavanja oštećuje vašu kosu
--  New feeding system ensures all cows well-fed
--  프로포폴 투약 유아인 “의사 처방 따랐다” 주장 [연예뉴스 HOT]
+-  Anti-âge : ces nouveaux patchs pour les yeux réutilisables à l'infini nous ont convaincu
+-  Corregedoria da Polícia Civil prende investigador suspeito de envolvimento em assassinato no MT
+-  Destructions de radars dans le Var: cinq ans après, deux gilets jaunes relaxés
+-  Enski boltinn - Jóhann Birnir ræðir Watford, Man Utd og fleira
+-  Oscary 2024: Faworyci z nominacjami. Porażka "Chłopów", ale jest polski wątek
+-  TRPELA SAM NASILjE: Mina Kostić iznela u javnost detalje torture koju je prošla s 19 godina mlađim dečkom Nikolom
+-  "Twoja twarz brzmi znajomo". Oficjalnie wiadomo, kto wystąpi w jubileuszowej edycji. Dobrze znacie te nazwiska
+-  Arsenalplatz Ludwigsburg: Am Montag beginnt die Umgestaltung zum Park
+-  Consulcesi, 'rimborsi potenziali di 600 mln per ferie non godute'
+-  Premios Oscar 2024: dónde ver 'Oppenheimer', 'Barbie' y las nominadas a mejor película
