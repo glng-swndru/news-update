@@ -1,11 +1,11 @@
 # Latest News
--  Появились подробности о состоянии здоровья ударившейся головой об лед фигуристки
--  Müge Anlı'da Ali Diken cinayetini itiraf etmişti! İkinci ceset baldızı çıktı
--  Crème quantique : les pseudosciences font main basse sur la physique
--  Borsa İstanbul'da 'hatalı işlem' düzenlemesi
--  Rusija dronovima napala jug Ukrajine
--  [자막뉴스] 농심 수출용 라면에 '오역'…"'김치공정' 빌미 제공"
--  Welcome to SciBase Capital Markets Day 2024
--  Reel kesim güveni açıklandı
--  술에 취한 여성 성폭행…전 강원FC 선수 2명 징역 7년
--  Odun kesmeye giden adam ölü halde bulundu
+-  И след Атанасова – пак 3 силни жени зад Борисов в НС
+-  Heimsieg für Zegg, Salvetti Dritter
+-  Sai phạm tại dự án nghỉ dưỡng 25.243 tỷ khiến Bí thư Tỉnh ủy cùng Chủ tịch UBND tỉnh Lâm Đồng bị bắt
+-  « Ça a été un accélérateur dans tous les sens » : le XL Tour, plus de dix ans d’accompagnement d’artistes landais
+-  El Athletic Club elimina al Barcelona
+-  ‘She was so brave’: Young wife dies less than two months after diagnosis
+-  За што УЈП ќе потроши 309.000 евра?
+-  Dendoncker è a Napoli, oggi il primo allenamento a Castel Volturno
+-  Az ördögi Jin Kazama bunyózik a legújabb Tekken 8 gameplay traileren
+-  BlackRock Marktausblick – 23. Januar 2024: Von Holz-Drachen und Zuversicht
