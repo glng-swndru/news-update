@@ -1,11 +1,11 @@
 # Latest News
--  Budżet na 2024 rok. Senat zdecydował
--  Budżet na 2024 rok. Senat zdecydował
--  Titan OS è la nuova piattaforma smart dei TV Philips
--  Уткин сравнил играющего в "Реале Сосьедад" Захаряна с человеком-невидимкой
--  BorgWarner Presents Josef Newgarden and Roger Penske with Coveted Baby Borg Trophies
--  Maks miał tylko 17 lat. Został potrącony na pasach. Jego ciało znaleziono półtora kilometra dalej
--  Alcaraz gục ngã trước Zverev, chốt 2 cặp bán kết Úc mở rộng 2024
--  Марин Петков увеличи преднината на Левски срещу Тузла
--  Un barrage filtrant mis en place par les artisans des travaux publics à Pen-ar-C’hleuz, à Brest
--  Adana'da fabrika yangını
+-  Tekoäly ei korvaa viestinnän strategista osaamista
+-  Taylor Swift | Taylor Swiftistä on tullut niin suosittu, että huippuyliopisto järjestää hänestä kurssin. Harvardin professori kertoo miksi.
+-  Ponad 8 milionów złotych za szkody wyrządzone przez zwierzęta chronione
+-  Víctor Fernández no seguirá en Riachuelo
+-  넷플릭스 예능 ‘솔로지옥’ 시즌4 제작 확정 [연예뉴스 HOT]
+-  Alerta en Moncloa: Bruselas anuncia que "se toma muy en serio" la amnistía y mueve ficha
+-  Redondo Milan, nel mirino il figlio dell’ex rossonero Fernando: valutazioni in corso. I costi dell’operazione
+-  Fisheries urges use of app, care with catch sizes
+-  İşverene asgari ücret desteği ne kadar?
+-  Sin Bellingham, ¿habrá paraíso?
