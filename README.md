@@ -1,11 +1,11 @@
 # Latest News
--  [세상 읽기] 누구를 위한 농업안전보건센터 폐업인가
--  В России высказались об изменениях в процедуре обмена пленными с Украиной
--  [세상 읽기] 누구를 위한 농업안전보건센터 폐업인가
--  Ex-Rebel Leader Girkin Sentenced to 4 Years for Extremism After Criticizing War
--  Dönmez kardeşlerden baklavalı ziyaret
--  Ex-Rebel Commander Girkin Sentenced to 4 Years in Russian Prison
--  Megjelent az MME első 50 évét bemutató könyv
--  Xuân về trên xã đảo Thạnh An
--  Test na spostrzegawczość: Która gęś różni się od pozostałych? Tylko bystre oko znajdzie różnicę
--  Levyarvio | Peter Gabriel valmisteli uusinta levyään vuosi­kymmenten ajan, tällainen on loppu­tulos
+-  "La machine gagnerait toujours contre un batteur fait de chair et de sang": on a rencontré Stewart Copeland de The Police, parrain du Midem+ 2024
+-  Österreichischer Buchmarkt 2023: Absatz-Rückgang, aber mehr Umsatz
+-  Mercato - Real Madrid : C’est décidé pour le retour de Benzema !
+-  ਜਿੰਦਗੀ 'ਚ ਕੀਤਾ ਇਹ ਮੁਕਾਮ ਹਾਸਲ
+-  AI-driven technique to help Uttarakhand Police in nabbing cyber criminals, soon to introduce AI Lab
+-  USA setzen Ukraine-Hilfen aus
+-  Yfir­maður fótboltamála hjá UEFA segir af sér og gagn­rýnir for­setann
+-  원더걸스 혜림, 첫 라디오 DJ 도전 ‘혜림의 원더 아워스(Wonder Hours with Hyerim)’
+-  Alex Marshall vows to return in quest for seventh bowls title
+-  Biden und das Mega-Terminal: Ist es der Anfang vom Ende des LNG-Booms in den USA?
