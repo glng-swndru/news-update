@@ -1,11 +1,11 @@
 # Latest News
--  'Pedal down:' Bennington police chief says crime stats are down, but more work to be done
--  Twitch Again Switches Up Who Can Make Money Streaming
--  Twitch nuevamente cambia quién puede ganar dinero transmitiendo
--  Corso Trieste, ancora ceppaie e pini capitozzati: "Che fine ha fatto la promessa del Comune?"
--  "Mogo"/LSPA pēcspēles metienu sērijā uzvar HS "Rīga" vienību
--  Bolsas de NY fecham mistas após pressão de Treasuries limitar força de techs; Netflix salta 10%
--  Skok cijena nafte, trgovci procjenjuju poremećaj u snabdjevanju
--  Beauty pageant winner angers entire nation
--  Даяна Ястремская – Чжэн Циньвень. Прогноз и анонс матч на Australian Open
--  ВИДЕО. Как NAVI победил G2 в полуфинале BLAST Spring Groups
+-  Илия Груев и Лийдс затвърдиха добрата си форма
+-  PRVI SNIMCI ANE NIKOLIĆ S NOVIM DEČKOM! Evo šta rade kad ne znaju da ih snimaju kamere! Pevačica se videla i sa ova 2 muškarca!
+-  Bjelica sieht nach Rangelei mit Sané Rot: "Bei ihm entschuldige ich mich nicht"
+-  Nvidia RTX Video HDR offers AI-based HDR upscaling for SDR videos
+-  Лавров заявил о «нудном» диалоге между Россией и США. О чем еще говорил глава МИД России на полях ООН?
+-  ¿Quién es Henry Jiménez y de qué lo acusan?
+-  “친절한 이웃인 줄 알았는데…남편과 동 대표 불륜에 악몽 시작”
+-  Mass. psychologist on how stories can trigger intense emotions
+-  Zampini: "Non ho dimenticato la frase di De Laurentiis. Ricordate dopo Pechino?"
+-  Le maire de Chartres, Jean-Pierre Gorges, soutient les agriculteurs : "Les Français les comprennent"
