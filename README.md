@@ -1,11 +1,11 @@
 # Latest News
--  Đằng sau giọt nước mắt cay đắng, đội tuyển Việt Nam đã tôi luyện thành công một "cận vệ thép"
--  Noch einmal in den Jugendreport geschaut: Warum junge Menschen keine Kinder mehr haben wollen
--  Laura Castillo: Los juicios que podría enfrentar la presunta líder de Los Lobos
--  Europawahlen 2024 in Holzwickede: Engagierte Wahlhelfer für die Gemeinde gesucht
--  Az A-Hídtól 1,4 milliárdot kapott, de 22 milliót nem fizetett ki a Hír TV-nek a számlagyáros ügyvéd cége
--  Pupil referral unit rated 'inadequate' by Ofsted
--  Scorecard: India vs England, first Test, Hyderabad
--  İstanbul ve 36 ile kar yağışı geliyor! Meteoroloji tarih ve saat verdi
--  „Žala yra didžiulė.“ Ukraina gali paralyžiuoti Baltijos jūrą
--  ‘Unnecessary pressure’ placed on pupils and teachers as they await placements – SATU
+-  尹 “중대재해법 개정안 반드시 통과되도록 노력” 당부
+-  رونمایی از الکساندریت در برج آزادی ؛ جواهر ۱۵ میلیاردی در موزه شهاب سنگ های ایران
+-  Woman says mom sensed ‘ghost’ at home; heard sounds in empty building and knew who’d call before phone rang
+-  Lihat Bagan 16 Besar Piala Afrika 2023, Tim Besar Masih Bertahan
+-  Гандболисты Германии пробились в полуфинал чемпионата Европы
+-  На 25 януари рожден ден имат
+-  Palmeiras garante vitória sobre a Inter de Limeira por 3 a 2
+-  官網看好阿庫納蟬聯國聯MVP 新球季預測數據曝光
+-  Espoosta löytyy 326-metrinen masto, johon Aleksi Hankivaara kiipeää työkseen satoi tai paistoi – "Pakkasen vaikutus voi olla hyvinkin 30–40 astetta"
+-  Innovation Greece 5.0 | Athens | January 26-27
