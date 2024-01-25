@@ -1,11 +1,11 @@
 # Latest News
--  Több mint 1200 kilogrammnyi kokaint foglaltak le a szentpétervári Nagykikötőben
--  Slovan Ústí zkrotil dluhy. Jsme na nule, peníze přišly, řekl útočník Rudovský
--  Fatma Girik vefatının 2'inci yılında gözyaşlarıyla anıldı!
--  سكالوني يعلق على أنباء رحيله عن منتخب الأرجنتين
--  12 yıl hapis cezası ile aranan firari Ispartada yakalandı
--  Legenda Sepak Bola Indonesia Sebut Taktik Shin Tae-yong Saat Hadapi Jepang Sudah Tepat
--  Which Wichita schools will be closed? Where will teachers, staff go? Tell us your questions
--  Radila je u laboratoriji, a sada, u šestoj deceniji, snima porno filmove VIDEO
--  Slovan Ústí zkrotil dluhy. Jsme na nule, peníze přišly, řekl útočník Rudovský
--  Sugárzik a boldogságtól Oczella Eszter és Baronits Gábor
+-  المتحدث باسم وزارة الصحة بغزة: الطواقم الطبية غير قادرة على تقديم الرعاية للجرحى في خان يونس منذ 3 أيام
+-  15.000 elementos da PSP e GNR em protesto histórico
+-  Правительство рассмотрит законопроекты о госязыке и консульском уставе
+-  Homem fingia ser policial para extorquir e roubar comerciantes
+-  광주 서구 다세대주택 화재…2명 사상
+-  Joe Lewis, el dueño de Lago Escondido, se declara culpable por tráfico de influencias
+-  Duisburg bekommt neuen Krimi – DIESE Ermittlerin ist keine Unbekannte
+-  Brunn har svämmat över i Borensberg
+-  Ο Ατρόμητος πλήγωσε τον Παναθηναϊκό στη Λεωφόρο - Τρομερή επέμβαση Τσιντώτα στο 89' σε πέναλτι του Ιωαννίδη
+-  Brunn har svämmat över i Borensberg
