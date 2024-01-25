@@ -1,11 +1,11 @@
 # Latest News
--  Mãe "desabou" ao ter de reconhecer 2 filhos mortos em confronto com PM, diz tia
--  NAPLAĆIVAĆU SVOJE KONTAKTE: Goga Sekulić će biti prva na estradi koja će zarađivati na ovaj način
--  Ministro nega pedido para suspender ação contra ex-jogador do Cuiabá acusado de esquema de manipulação
--  Großbäckerei-Gruppe Mestemacher erzielt mit hygienisch verpackten Broten, Tiefkühlkuchen und Knäckebroten 2023 Rekord-Umsatz / Pressekonferenz Mestemacher am 25.01.2024 im Parkhotel Gütersloh
--  İsrail hedefindeki yeni ülkeyi açıkladı: Bedelini öderler
--  Group Congratulates Oborevwori on Supreme Court Victory
--  Njemačka policija uhitila Hrvata na granici: U kondomima i donjem rublju skrivao kokain
--  'The Counterfeit Countess' Review: Fake Title, Real Courage
--  বগুড়ায় ফুটপাতে বেগুনী খালার বাহারি পিঠাপুলি
--  [뉴스딱] 울산 대왕암공원 '바다남' 낙서범 붙잡혔다…범행 이유
+-  Атлетик Билбао взе скалпа на Барселона след луд мач с продължения за Купата на краля
+-  FDIC Lawyer Stayed on Paid Leave for Weeks After Child Porn Arrest
+-  Jepun, Iraq layak ke pusingan 16, Indonesia kena tunggu
+-  Mogadischu: Polizei verhindert Terroranschlag vor Fußballstadion – trotzdem zwei Tote
+-  Polícia esclarece latrocínio e aponta que jovem matou idosa para roubar celular no Médio Norte
+-  Exclusive: New York City to expand trash and rat mitigation pilot program
+-  Did New Hampshire end the GOP presidential primary?
+-  CUBAN VP HEADS TO ZIM
+-  SRBIN IZBODEN PRED ĆERKOM: Napadnut u Beču zbog psa
+-  RUSI UPALI U KLJUČNI GRAD Tenkovi i avioni probili odbranu (FOTO)
