@@ -1,11 +1,11 @@
 # Latest News
--  GOVT ON BORDER TIMBERS US$125M AWARD : WE WILL APPEAL
--  ABD'den F-16 ve Türkiye açıklaması! Biden harekete geçti! Dikkat çeken NATO detayı
--  Two women wanted on warrants found living in vacant Kelowna home slated for demolition (Kelowna)
--  35 gündür kayıp motokuryeyi arkadaşı öldürüp gömmüş
--  KARLEUŠINA ĆERKA PONOVO NA METI HEJTERA: Komentar koji je pročitala je zbunio pa se obratila brutalnim rečima: Vidim da...
--  IA impulsa a Microsoft a superar los $3 billones en valor de mercado
--  Some Netflix subscribers face price hike as no-ads basic plan ends in Canada (Business)
--  중대재해법 '50인 미만 사업장 유예' 오늘 막판 협상
--  Hoàng Đức tái xuất và câu chuyện 'lạ' về những cựu binh
--  Warm temperatures, torrential rain: Is a 'Pineapple Express' headed to Metro Vancouver?
+-  Mãe "desabou" ao ter de reconhecer 2 filhos mortos em confronto com PM, diz tia
+-  NAPLAĆIVAĆU SVOJE KONTAKTE: Goga Sekulić će biti prva na estradi koja će zarađivati na ovaj način
+-  Ministro nega pedido para suspender ação contra ex-jogador do Cuiabá acusado de esquema de manipulação
+-  Großbäckerei-Gruppe Mestemacher erzielt mit hygienisch verpackten Broten, Tiefkühlkuchen und Knäckebroten 2023 Rekord-Umsatz / Pressekonferenz Mestemacher am 25.01.2024 im Parkhotel Gütersloh
+-  İsrail hedefindeki yeni ülkeyi açıkladı: Bedelini öderler
+-  Group Congratulates Oborevwori on Supreme Court Victory
+-  Njemačka policija uhitila Hrvata na granici: U kondomima i donjem rublju skrivao kokain
+-  'The Counterfeit Countess' Review: Fake Title, Real Courage
+-  বগুড়ায় ফুটপাতে বেগুনী খালার বাহারি পিঠাপুলি
+-  [뉴스딱] 울산 대왕암공원 '바다남' 낙서범 붙잡혔다…범행 이유
