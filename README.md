@@ -1,11 +1,11 @@
 # Latest News
--  Şehir merkezinde karşılaştığı tilkiyi ıslık çalarak yanına çağırdı
--  Doğu Türkistan BM gündeminde
--  Fransada minlərlə hotel rezervasiyası ləğv edildi
--  Jahrein, Selahattin Demirtaş'ın annesine küfür etti
--  Legendarni zapovjednik Bruno Zorica u posljednjem intervjuu: Putin je fanatik, diktator
--  Vörös-tengeri válság: rakétákat lőtt le az amerikai haditengerészet
--  La construcció d'un parc de cal·listènia, la proposta guanyadora dels Pressupostos Participatius d'Hostalric
--  홍익표 "김건희 명품백 논란 방치… 법 우습게 보는 것"
--  TKN Prabowo-Gibran: Presiden Jokowi Masih Netral, Belum Memihak dan Berkampanye
--  Radeon RX 7600 XT és AFMF támogatással érkezett az idei első AMD Adrenalin driver
+-  EE.UU. concreta envío de equipos de apoyo a Ecuador en materia de seguridad
+-  Reprise des enseignes Casino : Carrefour en "négociations exclusives" pour une trentaine de magasins
+-  Reprise des enseignes Casino : Carrefour est en "négociations exclusives" pour une trentaine de magasins
+-  NASA планирует в феврале запуск к Луне посадочного аппарата Nova-C
+-  Wirex announces strategic integration with Liquity
+-  Irmak kenarında otururken silahlı saldırıya uğradı
+-  Choléra en Zambie: plus de 500 morts, rentrée scolaire repoussée
+-  Reprise des enseignes Casino : Carrefour en "négociations exclusives" pour une trentaine de magasins
+-  Energy & Utilities Roundup: Market Talk
+-  Yüksekova’da öğretmenler model uçak kursuna katıldı
