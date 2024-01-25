@@ -1,11 +1,11 @@
 # Latest News
--  Noch kein Gesundheitsupdate: Wie geht es Prinzessin Kate?
--  Jenazah Bella selamat dikebumikan
--  جامعة الشارقة تنظم معرض توظيف لأصحاب الهمم
--  İzmir’e 621 taraftar gidecek
--  Smartphone, který se vymyká všemu. Má čtvercový E-Ink displej, QWERTY, upravený Android a čtyřdenní výdrž
--  İYİ Parti’nin Ankara Büyükşehir Belediye Başkan adayı Cengiz Topel Yıldırım kimdir?
--  Prostitúcióra kényszerítettek egy nőt, aztán minden pénzét elvették
--  Noch kein Gesundheitsupdate: Wie geht es Prinzessin Kate?
--  Újabb országokban bombázott az Egyesült Államok - Minden irányból szorongatják az iránbarát milíciákat
--  Runner banned for 2 years for chain-smoking throughout marathon
+-  Ihr Paket steht für Sie bereit!
+-  O'Loughlin Gaels selector Skehan slams non-goal decision in All-Ireland Final
+-  ‘Veena Vaggeya Vibhushana’ award conferred
+-  Ce mesaje au transmis liderii celor mai mari partide de Ziua Micii Uniri
+-  Mögliche Tigers-Insolvenz: Verband ist wohl schon informiert
+-  Şeydayev "Kocaelispor"a Rəşad Sadıqova görə seçib?
+-  Der Stadtrat tagt: Die Januar-Sitzung im Livestream und als Video-Aufzeichnung
+-  Helen George kicks off King and I musical tour after Call The Midwife exit rumours
+-  Ihr Paket steht für Sie bereit!
+-  Denizli AK Parti yol haritasını belirledi
