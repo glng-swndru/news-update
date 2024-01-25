@@ -1,11 +1,11 @@
 # Latest News
--  Ihr Paket steht für Sie bereit!
--  O'Loughlin Gaels selector Skehan slams non-goal decision in All-Ireland Final
--  ‘Veena Vaggeya Vibhushana’ award conferred
--  Ce mesaje au transmis liderii celor mai mari partide de Ziua Micii Uniri
--  Mögliche Tigers-Insolvenz: Verband ist wohl schon informiert
--  Şeydayev "Kocaelispor"a Rəşad Sadıqova görə seçib?
--  Der Stadtrat tagt: Die Januar-Sitzung im Livestream und als Video-Aufzeichnung
--  Helen George kicks off King and I musical tour after Call The Midwife exit rumours
--  Ihr Paket steht für Sie bereit!
--  Denizli AK Parti yol haritasını belirledi
+-  Russia accuses Kyiv of downing IL-76 with 65 Ukrainian POWs on board, no official statement from Ukraine
+-  Миссия наблюдателей ШОС прибудет в Баку
+-  Knežević urnisao Šolakovog urednika Vijesti: Ivanović prvo treba da opere zube od ljubljenja sa Milom Đukanovićem!
+-  Successful delivery of CSR projects supported by APS Bank
+-  Papa Franjo upozorio na perverzne opasnosti umjetne inteligencije
+-  Klarna CEO says US IPO could come 'quite soon'
+-  НА ЖИВО: Левски - Тузла 1:0
+-  Хиддинк — о возможном допуске юношеских сборных России: «Мировые лидеры должны быть мудрее»
+-  Short Film Fest: Entries invited
+-  WestGene Spearheads Oncology Breakthroughs at the 3rd mRNA-Based Therapeutics Summit
