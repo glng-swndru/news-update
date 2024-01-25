@@ -1,11 +1,11 @@
 # Latest News
--  Dijital dünyanız için "dijital temizlik" önerileri!
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  Kobe Bryant'ın ölümünün ardından 4 yıl geçti
--  Argentina y Paraguay ganaron en el Preolímpico de fútbol
--  タカラトミー「SORA-Q」が月面着陸機「SLIM」の撮影に成功
--  Biyoteknoloji girişimi Infinite Roots, 58 milyon dolar yatırım aldı
--  TAL Education Group Announces Unaudited Financial Results for the Third Fiscal Quarter Ended November 30, 2023
--  Leon Korošec: Občutek ob uspešni inovaciji je podoben športni zmagi
--  「風で顔が…」新潟市は“猛吹雪”… 下越・佐渡では高波に警戒を 冬型の気圧配置２６日まで
--  신선식품으로 “장군” 외친 대형마트…배송이점으로 “멍군” 외친 이커머스
+-  Патрулка се обърна в Свиленград след удар в паркирани автомобили
+-  „Tele2“ apjungia jėgas su „Amazon“: klientų patirtį gerins pažangiais DI sprendimais
+-  DG Cup – en viktig inkomstkälla: "En våra största"
+-  Güney Kıbrıs’ta koronavirüs ve grip vakaları azaldı, aşılanma arttı
+-  Le Real Madrid génère le plus gros chiffre d'affaires, le PSG sur le podium mondial
+-  Maleńkie siostrzyczki zabrał ogień. Przejmujące okoliczności organizacji pogrzebu
+-  Amir sera sur la scène de l’Opéra, ce soir, pour incarner le rôle du "nageur d’Auschwitz"
+-  Андрей Новаков: Напълно възможно е да влезем едновременно в Шенген и еврозоната - Труд
+-  Krejčíř se nového soudu nedočká, původní verdikt 15 let vězení v Česku je platný
+-  【反響】救急車で搬送後「入院なしだと7700円」6月から導入…三重・松阪市 入院不要な「軽症」半数以上で決断 対象は3病院
