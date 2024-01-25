@@ -1,11 +1,11 @@
 # Latest News
--  Hrvatska svladala Njemačku, nevjerojatno izdanje Kuzmanovića!
--  BB estrutura programa para acelerar recuperação de pastagens
--  بعد الفوز ببطولة الوحدة.. معسكر الاتفاق مستمر في دبي
--  IFPR abre edital para vaga de professor substituto
--  Kuryenin cesedi ile aynı yerde bulundu, 5 aydır ailesi tarafından arandığı ortaya çıktı
--  Mauro conclui mandato na presidência do consórcio Brasil Central; Caiado assume
--  EastEnders spoilers: Double exit from the Square as Whitney leaves – with another character
--  ESG morreu
--  EastEnders spoilers: Suki Panesar fights back as Nish vows to destroy her life in colossal showdown
--  Seguradoras usarão 'risco climático' em cálculo de apólice
+-  Parco di largo Donzelli: accolta la riqualificazione dell'area giochi
+-  Porokhane / Incursion dans la cuisine de Sokhna Bali Mountakha : Un lieu où tous les plats sont préparés et servis aux hôtes de marque
+-  EuroCup, Άρης - Μπουργκ 68-76: Έχασε, αλλά εξακολουθεί να ελπίζει στην πρόκριση
+-  NAJOPASNIJI DATUMI U FEBRUARU Dobro se naoštrite, ove pozicije se ne šale
+-  Ukraine-Blog: Scholz fordert mehr Ukraine-Hilfe von Europa
+-  À Brest, le bâtiment prend le relais ce jeudi pour bloquer le pont de l’Iroise
+-  Druck auf Thomas Tuchel wächst – weil Aussagen die FC-Bayern-Bosse an Julian Nagelsmann erinnern
+-  550 Menschen demonstrieren auf Norderney gegen rechts
+-  Dikalahkan Jepang, Penggawa Timnas Indonesia Disebut Sudah Tampil Maksimal
+-  Captain Rohit not underestimating attacking England
