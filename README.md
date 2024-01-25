@@ -1,11 +1,11 @@
 # Latest News
--  Januar 2024: Das sind die aktuellen stern-Bestseller des Monats
--  ΔΥΠΑ: Πάνω από 200 επιχειρήσεις αναζητούν εργαζόμενους για πάνω από 7.000 θέσεις εργασίας
--  Transfer news LIVE: Man Utd £100m firesale, Chelsea Prem meeting, Arsenal track PSG star
--  Генерали Инвестментс: S&P достигна ново рекордно ниво
--  Tragedia w domu polskiego inżyniera. Śledczy nie mają wątpliwości
--  İçişleri Bakanı Yerlikaya: "Uyuşturucu madde imalatçılarına ve bunların satışını yapanlar ile sokak satıcılarına yönelik 41 ilde düzenlenen "NARKOGÜÇ-46"Operasyonlarında, 221 kg uyuşturucu madde ve 2 milyon 153 bin adet uyuşturucu hap ele g
--  Askeri nakliye uçağı acil iniş yaptı
--  ČUDNI OBLICI PRONAĐENI NA MESECU: Naučnici zatečeni, postoji nekoliko TEORIJA (VIDEO)
--  Kafbátinum fylgt út úr íslenskri landhelgi
--  Indian Navy Carries Out Precision Hit of Land Target With Extended Range of BrahMos
+-  La reunión del BCE será el principal foco de atención para los inversores
+-  Bu görüntüler filmden değil...5 araç böyle yarıştı
+-  Un bus scolaire se retrouve dans le fossé, sur la d352/3, à Magny, au lieu-dit Harville : près de 40 enfants ont été extraits par une vitre
+-  В Умбе снесут аварийный дом после вмешательства прокуратуры
+-  Detalji teške nesreće kod Dubrovnika u kojoj je poginuo muškarac, a dvije osobe su ozlijeđene
+-  Survivor: Έκρηξη Δάντη με παίκτες που γέλαγαν με τη σύντροφό του - «Μπράβο ρε μάγκες, πολύ αντριλίκι»
+-  Johnson & Johnson zaplatí 150 mil. dolárov za podiel na kríze opiátov
+-  CGT, CTA y movimientos sociales se movilizaron en el primer paro contra el gobierno de Milei
+-  Uçaktaki kavganın ifadeleri ortaya çıktı
+-  2 مدافع آفریقایی در آستانه پیوستن به استقلال خوزستان
