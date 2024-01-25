@@ -1,11 +1,11 @@
 # Latest News
--  음성군, 창업수당 2000만원 청년 지원
--  Ukrajinci konačno imaju mlazne dronove domaće proizvodnje koji bi mogli doseći Moskvu
--  서리, 31일 ‘Broken’ 새 노래
--  Cutting Royal Mail delivery days idea blasted in Watford
--  Как регионы модернизируют коммунальную инфраструктуру
--  Mersin'de tarihi eser operasyonu bir çok obje ele geçirildi
--  Mere assumptions that entering into two separate contracts was intentionally to evade Service Tax is not tenable unless it is proved: CESTAT remands matter [Read Order]
--  Mərkəzi Bankın valyuta məzənnələri
--  राष्ट्रिय सभा निर्वाचनः सुदूरपश्चिमा ३ सिटका लागि मतदान जारी
--  Trabzonspor, Rizespor deplasmanında
+-  Ο οδηγός ταινιών του Δημήτρη Δανίκα
+-  Aereo russo abbattuto vicino a Belgorod. Mosca: a bordo prigionieri di guerra ucraini, Kiev accusa: trasportava missili
+-  Nach Protesten: Frankreichs Verfassungsrat urteilt über umstrittenes Migrationsgesetz
+-  Ο οδηγός ταινιών του Δημήτρη Δανίκα
+-  Who invented butter chicken? Curry wars hot up in India as legal fight begins
+-  Dos nuevas excavaciones descubrirán el patio y el acceso al Castillo de Dos Hermanas en Montemayor
+-  VIDEO: Toto nezažil 9 mesiacov. Tatar podal hviezdny výkon, siahal na hetrik
+-  USA: Justiz lässt Hinrichtung mit Stickstoff zu
+-  Bedrijf uit Voorschoten was spil in internationaal smokkelnetwerk naar Rusland. Ex-directeur: ’Een nuttige idioot was ik’
+-  Frozen in time, Uttarakhand’s Indo-China border village, “Jadung” will come back to life
