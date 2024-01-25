@@ -1,11 +1,11 @@
 # Latest News
--  המפגש המרגש בבית הנשיא: "לא נשכח את גבורתכם והאומץ שלכם"
--  Elektrownia jądrowa w 2033 r.? Minister: Musimy bazować na faktach, nie marzeniach
--  „So ein Haushalt, der macht einfach Spaß“: Grasbrunn verzeichnet Rekordeinahmen
--  Fußbodenheizung selber einstellen: So machst du es richtig
--  Wirtschaftskrise in Simbabwe: Proteste gegen neue Brillensteuer
--  Мать летчика сбитого Ил-76 рассказала о членах экипажа
--  Съдебна драма: Кой измисли масленото пиле в Индия
--  Brezilya'da şiddetli yağışlar: Bir haftada 12 kişi hayatını kaybetti
--  都心マンション平均 初の1億円超
--  Antakya'da ev yangını
+-  RCL inks four boxships at Huangpu Wenchong Shipbuilding
+-  Kanada'da uçak düştü
+-  KAKO SE DOBIJA RAK GRLIĆA MATERICE! Zakić otkrila: Ne nastaje preko noći, potrebno je 5 do 10 godina da bi nastao
+-  Antalya'da cinayet itirafı sonrası iki ceset bulundu
+-  박성재 법무장관 후보자, 청문회 본격 준비…“국민에 헌신할 기회”
+-  한동훈 “제가 김 여사의 사과를 얘기한 적이 있던가요”
+-  ‘김학의 불법출금 수사 외압’ 혐의 이성윤, 항소심도 무죄
+-  Goldpreis: Ruhe vor dem Sturm?
+-  30 év után visszatért a magyar filmsztár
+-  Ausblick: Colgate-Palmolive präsentiert Bilanzzahlen zum jüngsten Jahresviertel
