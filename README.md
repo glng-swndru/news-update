@@ -1,11 +1,11 @@
 # Latest News
--  Tämä tiedetään nyt | Ukrainan ja Venäjän väitteet pudonneesta venäläiskoneesta ristiriitaisia
--  Трефл Гданьск – Барком-Кажаны. Смотреть онлайн. LIVE трансляция
--  Former Spurs owner Lewis pleads guilty to insider trading charges in US
--  Agriculteurs en colère : à Guingamp, ils déversent leurs remorques devant la sous-préfecture et le centre des impôts
--  Batman'da Aile Sağlık Merkezi açıldı
--  Dendoncker í læknisskoðun hjá Napoli
--  Verschwundener Unternehmer: Tatort entdeckt
--  Na ministrstvu prižgali rdečo luč, tega ne bodo več počeli
--  Demi Moore dazzles in bird-inspired gown for 'Feud: Capote vs. The Swans' premiere - Page Six
--  Controversial new source rules for cross-border services
+-  Stromausfall in Düsseldorf: Stromausfall legte Teile der Innenstadt lahm
+-  Seyidovdan ölkəmizin AŞPA-nı tərk etməsi ilə bağlı açıqlama
+-  Sutrikęs miegas gali turėti įtakos atminčiai vėlesniame amžiuje
+-  Warzone SMG gets secret buff with “crazy” TTK to dominate even more
+-  Hospiz in Leonberg: Reden, schweigen, weinen oder auch gemeinsam lachen
+-  Pagliaro (Inca Cgil), 'Covid è stato banco di prova per noi, raccolta sfida digitale'
+-  Google sospende l'ultimo update di Google Play System a causa di bug sui Pixel
+-  مدير عام شرطة مأرب يعزي قائد المنطقة العسكرية الثالثة بوفاة والده
+-  Barbie nebyla nominovaná na Oscara ze režii a ženský herecký výkon. ‚Je to šokující,‘ zlobí se fanoušci
+-  Ruska Duma kolegama u Francuskoj uputila intrigantan apel: Ne poštujete vlastite zakone...
