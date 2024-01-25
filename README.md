@@ -1,11 +1,11 @@
 # Latest News
--  أبين.. مدير عام مؤسسة المياه يلتقي مدير عام الوضيع وإدارة مشروع المياه بالمديرية
--  Fabrikanın boyahanesinde çıkan yangın söndürüldü
--  Transfer Polaka do Manchesteru United nie wypalił. "Nie narażę się ministrowi"
--  Transfer Polaka do Manchesteru United nie wypalił. "Nie narażę się ministrowi"
--  كأس أمم إفريقيا 2023.. جرحى في حادثة سير لحافلة صحافيين
--  Kis híján infarktust kapott a szkíta „kormányzó", amikor rajtatütött a házán a TEK
--  Ankaragücü'nün yenilmezlik serisi devam ediyor
--  Six dead after plane carrying Rio Tinto workers to diamond mine crashes in Canada - BBC.com
--  Национальный художественный музей начал юбилейный год выставкой афиш и фотографий
--  VIDEO: Four killed after car sandwiched between three lorries in horrific accident in Tamil Nadu
+-  Швейцария премахва граничните проверки за България и Румъния
+-  Coralie Porrovecchio (Secret Story) donne naissance à son troisième enfant au prénom inventé
+-  Amazon's record drought driven by climate change
+-  Meghan Markle, Prince Harry face 'unnecessary criticism' over Jamaica trip
+-  Úvodní projednávání volby poštou ukončí poslanci patrně ve čtvrtek
+-  Türkiye yeni sınır kapısı için hazırlanıyor
+-  భోజనాలు సరిపోక క్రీడాకారుల అవస్థలు
+-  王志安入籍日本夢碎？日議員關注《夜夜秀》風波：會採取相應行動
+-  FOTO/VIDEO: Tučnjava u Gorici, nakon utakmice letjele šake, Mrzljak nokautirao Godu, čeka ga velika kazna
+-  Man Utd vill framlengja við McTominay
