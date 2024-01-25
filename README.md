@@ -1,11 +1,11 @@
 # Latest News
--  Russia accuses Kyiv of downing IL-76 with 65 Ukrainian POWs on board, no official statement from Ukraine
--  Миссия наблюдателей ШОС прибудет в Баку
--  Knežević urnisao Šolakovog urednika Vijesti: Ivanović prvo treba da opere zube od ljubljenja sa Milom Đukanovićem!
--  Successful delivery of CSR projects supported by APS Bank
--  Papa Franjo upozorio na perverzne opasnosti umjetne inteligencije
--  Klarna CEO says US IPO could come 'quite soon'
--  НА ЖИВО: Левски - Тузла 1:0
--  Хиддинк — о возможном допуске юношеских сборных России: «Мировые лидеры должны быть мудрее»
--  Short Film Fest: Entries invited
--  WestGene Spearheads Oncology Breakthroughs at the 3rd mRNA-Based Therapeutics Summit
+-  Најголемата инвестиција на Лидл во земјава: Со вкупно 80 милиони евра Лидл ќе отвори повеќе од 150 работни места
+-  BMW Premium Selection: ojetá prémiová auta s bezkonkurenčními službami
+-  Pablo Moyano: “Un peronista no puede votar este DNU, no traicionen a los trabajadores”
+-  Ερντογάν: Θα συνεχίσουμε να φτιάχνουμε φρεγάτες και να στέλνουμε πυραύλους
+-  Alcaraz vypadol vo štvrťfinále, nestačil na Zvereva
+-  El Teatro Español rescata la comedia de Jardiel Poncela 'Es peligroso asomarse al exterior' con versión y dirección de Pilar Massa
+-  ĐT Việt Nam rớt khỏi Top 100 thế giới, mất ngôi đầu Đông Nam Á khi xếp dưới ĐT Thái Lan
+-  गडचिरोली: वैनगंगा नाव दुर्घटनेतील आज आणखी एका महिलेचे मिळाले प्रेत | Batmi Express
+-  Fünf Haartrockner im Test: Dyson, BaByliss oder Shark?
+-  Son Dakika: MHP 55 başkan adayını daha açıkladı
