@@ -1,11 +1,11 @@
 # Latest News
--  "La machine gagnerait toujours contre un batteur fait de chair et de sang": on a rencontré Stewart Copeland de The Police, parrain du Midem+ 2024
--  Österreichischer Buchmarkt 2023: Absatz-Rückgang, aber mehr Umsatz
--  Mercato - Real Madrid : C’est décidé pour le retour de Benzema !
--  ਜਿੰਦਗੀ 'ਚ ਕੀਤਾ ਇਹ ਮੁਕਾਮ ਹਾਸਲ
--  AI-driven technique to help Uttarakhand Police in nabbing cyber criminals, soon to introduce AI Lab
--  USA setzen Ukraine-Hilfen aus
--  Yfir­maður fótboltamála hjá UEFA segir af sér og gagn­rýnir for­setann
--  원더걸스 혜림, 첫 라디오 DJ 도전 ‘혜림의 원더 아워스(Wonder Hours with Hyerim)’
--  Alex Marshall vows to return in quest for seventh bowls title
--  Biden und das Mega-Terminal: Ist es der Anfang vom Ende des LNG-Booms in den USA?
+-  Zaniolo o süreç için konuştu! "Kabus gibiydi"
+-  „Fókusinn er á þessu máli“
+-  Sau khi truy sát chủ nợ, nghi phạm tử vong trong ô tô
+-  Ist Trainer Nenad Bjelica für Union Berlin noch tragbar? Ein Pro & Contra
+-  أعداد شهداء مجزرة دوار الكويت ترتفع بسرعة
+-  İmamoğlu: ''Ekonomiyi yönetemeyenler kentsel dönüşümü de yönetemez''
+-  Alimentare, rinnovato il contratto collettivo nazionale di CIFA-CONFSAL
+-  Listão da Uepa sairá nesta sexta (25); confira o horário
+-  Όμιλος Ευρωκλινικής: 20 νοσηλευτές πιστοποιήθηκαν με τον τίτλο του Κλινικού Εκπαιδευτή
+-  《京アニ放火犯に死刑判決》 青葉真司被告 女性アニメーターへの“妄想恋愛”投稿の全貌 〈異常なほどの色気を見せてくる〉〈京アニに自爆テロするわけじゃねーし〉
