@@ -1,11 +1,11 @@
 # Latest News
--  F-Zero 99 Update Adds Secret Tracks, Private Lobbies And More, Here's Everything Included
--  字幕：ウクライナ侵攻に反対候補の支持署名に列 ロシア大統領選
--  Підтоплення київського метро: експертиза визначила причину
--  尹 "올해, 본격적인 GTX 시대 열 것…4개 대도시권 xTX 추진"
--  起床猝死風險高！掀棉被後「4件事」一定要做 醫示警了
--  ‘출퇴근 30분 시대’ 열린다…GTX 노선 강원·충청까지 연장
--  Awan Panas Guguran Gunung Merapi
--  2년 만에 결승서 다시 만났다…‘리버풀 vs 첼시’ 리그컵 승자는
--  Debatte um Taurus: Deutschland erwägt Marschflugkörper-Ringtausch für Ukraine
--  중국, 얀코비치 감독과 결별 임박…사령탑 후보에 한국인 감독 거론 [아시안컵]
+-  Karnataka HC Chief Justice Prasanna Varale Becomes 3rd Sitting Dalit Judge In Supreme Court
+-  SK Hynix Returned to Operating Profit for Fourth Quarter
+-  Alexander Zverev stuns Carlos Alcaraz to reach Australian Open semifinals
+-  “춘절 맞아 중국 관광객 몰려온다”… 경기관광공사, 트립닷컴 손잡고 유치 ‘올인’
+-  Tuxedo Pulse 14 Gen3 - L'ultrabook Linux avec AMD Zen4 et un écran 120 Hz
+-  Đây là những gì sẽ diễn ra trong cơ thể khi bạn bỏ thuốc lá: Chỉ 20 phút đầu tiên điều bất ngờ đã xảy ra
+-  Kim Virginia sorgt für Ärger und Hunger im Dschungelcamp
+-  Krv danas možete dati u ovim mestima u Srbiji
+-  드릴로 갈고 모래로 문지른 ‘갤럭시 S24’, 내구성 테스트 결과는? (영상)
+-  Kim Virginia sorgt für Ärger und Hunger im Dschungelcamp
