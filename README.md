@@ -1,11 +1,11 @@
 # Latest News
--  Tekoäly ei korvaa viestinnän strategista osaamista
--  Taylor Swift | Taylor Swiftistä on tullut niin suosittu, että huippuyliopisto järjestää hänestä kurssin. Harvardin professori kertoo miksi.
--  Ponad 8 milionów złotych za szkody wyrządzone przez zwierzęta chronione
--  Víctor Fernández no seguirá en Riachuelo
--  넷플릭스 예능 ‘솔로지옥’ 시즌4 제작 확정 [연예뉴스 HOT]
--  Alerta en Moncloa: Bruselas anuncia que "se toma muy en serio" la amnistía y mueve ficha
--  Redondo Milan, nel mirino il figlio dell’ex rossonero Fernando: valutazioni in corso. I costi dell’operazione
--  Fisheries urges use of app, care with catch sizes
--  İşverene asgari ücret desteği ne kadar?
--  Sin Bellingham, ¿habrá paraíso?
+-  Coups de feu au Coudray : « Cette nuit était interminable, la plus longue de ma vie », le témoignage poignant d'une voisine
+-  Ted Bundy's brain was removed after execution for stomach-churning experiment
+-  Министър Гвоздейков: Модернизираме БДЖ със стари вагони от "Дойче банк", влакът ще стига по-бързо от автобуса
+-  "Левски" постигна първа победа в подготовката
+-  Тімур Мірошниченко прокоментував скандали навколо Нацвідбору на Євробачення-2024
+-  "Ko vas je ovako vaspitao?" Beograđani ponovo zgroženi ponašanjem dece u tržnom centru (FOTO)
+-  Car Dušan mu je promenio ime, jer zaslužuje bolje! Stoletni borovi nemi su svedoci bogate istorije Dobroselice (FOTO)
+-  Februári szerelmi horoszkóp
+-  El PSOE se calienta, Cerdán abronca a Page y decreta obediencia máxima: "Tú deberías saberlo"
+-  Feyenoord vs PSV: A qué hora y dónde VER a Santi Giménez vs Chucky Lozano HOY en la Copa de Holanda
