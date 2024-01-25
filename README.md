@@ -1,11 +1,11 @@
 # Latest News
--  Швейцария премахва граничните проверки за България и Румъния
--  Coralie Porrovecchio (Secret Story) donne naissance à son troisième enfant au prénom inventé
--  Amazon's record drought driven by climate change
--  Meghan Markle, Prince Harry face 'unnecessary criticism' over Jamaica trip
--  Úvodní projednávání volby poštou ukončí poslanci patrně ve čtvrtek
--  Türkiye yeni sınır kapısı için hazırlanıyor
--  భోజనాలు సరిపోక క్రీడాకారుల అవస్థలు
--  王志安入籍日本夢碎？日議員關注《夜夜秀》風波：會採取相應行動
--  FOTO/VIDEO: Tučnjava u Gorici, nakon utakmice letjele šake, Mrzljak nokautirao Godu, čeka ga velika kazna
--  Man Utd vill framlengja við McTominay
+-  Feature: Disneyland kicks off Lunar New Year celebrations with cultural diversity
+-  Hors stade. Guillaume Berthier, encore roi du Dernier homme debout du Morvan
+-  Brest : le pont de l’Iroise va-t-il rester bloqué cette nuit ?
+-  【神様は見ている】運がいい人、お金持ちの人は持っている、2024年の意外な開運アイテム - 旬のカレンダー
+-  Jeličić: Penali za Rijeku bili su čisti. Tučnjava? Emocije su tu kad izgubite preokretom...
+-  Cum arată trenul abandonat, transformat într-un hotel de lux. Este compus din zeci de apartamente moderne și o piscină | FOTO
+-  Može li Zvezda do pobede u Berlinu? Rokas dao odgovor koji će oduševiti "delije"
+-  Snimak stravičnog udesa u Petrovaradinu! Četvoro povređeno, od toga dvoje dece
+-  Истории от Висшата Лига: Мичу (24.01.2024)
+-  Izgledalo je nemoguće, ali dogodilo se čudo koje bi Hrvatskoj donijelo polufinale
