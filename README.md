@@ -1,11 +1,11 @@
 # Latest News
--  H Mέγκαν Μαρκλ με εντυπωσιακό μαύρο φόρεμα σε πρεμιέρα στη Τζαμάικα
--  Fjúkandi veggeiningar á Selfossi
--  Schulcampus, Altenheim, Schwimmbad: Pullach steht vor einem Berg von Projekten
--  La historia de la foto de Yabrán que le costó la vida a José Luis Cabezas
--  Tài xế chờ 'dài cổ' gia đình chim sang đường
--  Otkrivamo pozadinu sukoba s Čeferinom! Bobanovim odlaskom nogometu prijete iznimno opasne promjene
--  الرباش لـ" اليوم ": نصف مليون يمني يؤدون مناسك العمرة والزيارة هذا العام
--  Breye Therapeutics Commences Oral Dosing of Danegaptide in Patients with Diabetic Retinopathy
--  농식품부, 식품업체에 "가공식품 물가 안정 협조해 달라"
--  Dax scheut Rekordhoch vor EZB-Entscheid
+-  Anoushka Shankar’s Quintet Mesmerises Hyderabad with Stellar Performance
+-  Συντριβή μεταγωγικού αεροσκάφους στη Ρωσία: Βρέθηκαν τα μαύρα κουτιά, μετέδωσε το RIA
+-  Van forse kritiek over de uitsupporters bij derby’s, tot vragen over uitgaan in Katwijk. Dit was de Instagram-livesessie van burgemeester en wethouder Katwijk
+-  Vanlı kız futbolcular milli takım hayali kuruyor
+-  ‘리치 언니’ 박세리, 럭셔리 슈퍼카 꺼냈다 (전참시)
+-  Азербайджан и ряд тюркских государств объединились в «Совет по конкуренции тюркоязычных государств»
+-  LIVE Juric in conferenza stampa presenta la partita con il Cagliari
+-  Poprad chce investovať do kamerového systému
+-  PUŠTEN MONSTRUM KOJI JE ĆERKI NAPRAVIO SEDMORO DECE Doneta odluka o uslovnom otpustu
+-  Igor Anic: „Wir haben fast die komplette Halle gegen uns gehabt“
