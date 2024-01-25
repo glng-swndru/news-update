@@ -1,11 +1,11 @@
 # Latest News
--  Karnataka HC Chief Justice Prasanna Varale Becomes 3rd Sitting Dalit Judge In Supreme Court
--  SK Hynix Returned to Operating Profit for Fourth Quarter
--  Alexander Zverev stuns Carlos Alcaraz to reach Australian Open semifinals
--  “춘절 맞아 중국 관광객 몰려온다”… 경기관광공사, 트립닷컴 손잡고 유치 ‘올인’
--  Tuxedo Pulse 14 Gen3 - L'ultrabook Linux avec AMD Zen4 et un écran 120 Hz
--  Đây là những gì sẽ diễn ra trong cơ thể khi bạn bỏ thuốc lá: Chỉ 20 phút đầu tiên điều bất ngờ đã xảy ra
--  Kim Virginia sorgt für Ärger und Hunger im Dschungelcamp
--  Krv danas možete dati u ovim mestima u Srbiji
--  드릴로 갈고 모래로 문지른 ‘갤럭시 S24’, 내구성 테스트 결과는? (영상)
--  Kim Virginia sorgt für Ärger und Hunger im Dschungelcamp
+-  Саудовская Аравия – Таиланд. Прогноз и анонс на матч Кубка Азии
+-  Vietnam renews appeal for immediate ceasefire in Gaza Strip
+-  Nhiều người ảo tưởng sức mạnh trên mạng
+-  Pedestrian killed in collision north of London, Ont.
+-  Cricket greats speechless as new clip emerges
+-  페기 구, BTS·블랙핑크 이어 '브릿어워즈' 후보
+-  「監督のお気に入りになればいい」“サッカー日本代表の得点王”上田綺世（25歳）驚きのストライカー生存哲学「点を取る方法を盗んでいた」
+-  Fire destroys recently opened Waswanipi Cree Lumber sawmill
+-  Guppedantha Manasu January 25th Episode: ఇక తేల్చేసుకుందాం అన్న వసుధార - రిషి ఎంట్రీతో శైలేంద్ర చాప్టర్ క్లోజ్!
+-  NOUN Debunks Recruitment, Contracts Rumours
