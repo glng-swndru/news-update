@@ -1,11 +1,11 @@
 # Latest News
--  WRC, Ράλλυ Μόντε Κάρλο: Μάχη σε τρεις επιφάνειες με τα καρφιά stand by (vid)
--  POSLE 55 OPERACIJA MOLI DOKTORE DA JOJ AMPUTIRAJU NOGU Žena zbog obične ogrebotine proživela pakao (FOTO)
--  ĐT Việt Nam dưới thời HLV Troussier thu hoạch được gì sau Asian Cup 2024?
--  新潟県内 “インフルエンザ・新型コロナ”再び増加傾向に… 感染予防の徹底を呼びかけ
--  MÉS reclama al Consell de Mallorca dignificar tota la senyalització instal·lada a les carreteres construïdes per presoners republicans
--  Spielwarenmesse 2024 startet größer und mit starkem internationalen Zuspruch / Einzigartige Produkt-Vielfalt / Top-Thema „Life’s a Playground“ / Individuelle Networking-Angebote und coole Selfie-Spots
--  Patrónom jubilejnej Novej drámy bude nigérijský spisovateľ W. Soyinka
--  Classroom arriva in Chrome OS con Google for Education: ecco le novità
--  Başiskele ve Kandıra’da ittifak görüşmeleri sürüyor, CHP’de Kocaeli adayları için kritik gün
--  Sources: Burnley and Nottingham Forest have held talks over signing Eredivisie forward, he's been told he can leave
+-  Why mounting a 2024 plebiscite on charter change will be a daunting task for Comelec
+-  Darbinieku labklājība – uzņēmuma atbildība
+-  Sabalenka storms past Gauff into Australian Open final
+-  Robo a camiones de carga, un cáncer para la industria de transporte, incluido Yucatán
+-  Business Productivity Software Market to Grow at 15.34% CAGR (2023-2028); Industry Insights, Drivers, Trends, and Challenges Unveiled - Technavio
+-  Nhiều người ảo tưởng sức mạnh trên mạng
+-  Windows 12: How to use the new functions
+-  Holskefla þjálfarabreytinga í Afríku
+-  When the tanks rolled into Castlemartin - Adrian James presents talk at Pembrokeshire Historical Society
+-  Torino, Juric: "Il mercato dipende dalle uscite. Via Seck, vediamo cosa succederà"
