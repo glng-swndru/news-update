@@ -1,11 +1,11 @@
 # Latest News
--  Патрулка се обърна в Свиленград след удар в паркирани автомобили
--  „Tele2“ apjungia jėgas su „Amazon“: klientų patirtį gerins pažangiais DI sprendimais
--  DG Cup – en viktig inkomstkälla: "En våra största"
--  Güney Kıbrıs’ta koronavirüs ve grip vakaları azaldı, aşılanma arttı
--  Le Real Madrid génère le plus gros chiffre d'affaires, le PSG sur le podium mondial
--  Maleńkie siostrzyczki zabrał ogień. Przejmujące okoliczności organizacji pogrzebu
--  Amir sera sur la scène de l’Opéra, ce soir, pour incarner le rôle du "nageur d’Auschwitz"
--  Андрей Новаков: Напълно възможно е да влезем едновременно в Шенген и еврозоната - Труд
--  Krejčíř se nového soudu nedočká, původní verdikt 15 let vězení v Česku je platný
--  【反響】救急車で搬送後「入院なしだと7700円」6月から導入…三重・松阪市 入院不要な「軽症」半数以上で決断 対象は3病院
+-  WRC, Ράλλυ Μόντε Κάρλο: Μάχη σε τρεις επιφάνειες με τα καρφιά stand by (vid)
+-  POSLE 55 OPERACIJA MOLI DOKTORE DA JOJ AMPUTIRAJU NOGU Žena zbog obične ogrebotine proživela pakao (FOTO)
+-  ĐT Việt Nam dưới thời HLV Troussier thu hoạch được gì sau Asian Cup 2024?
+-  新潟県内 “インフルエンザ・新型コロナ”再び増加傾向に… 感染予防の徹底を呼びかけ
+-  MÉS reclama al Consell de Mallorca dignificar tota la senyalització instal·lada a les carreteres construïdes per presoners republicans
+-  Spielwarenmesse 2024 startet größer und mit starkem internationalen Zuspruch / Einzigartige Produkt-Vielfalt / Top-Thema „Life’s a Playground“ / Individuelle Networking-Angebote und coole Selfie-Spots
+-  Patrónom jubilejnej Novej drámy bude nigérijský spisovateľ W. Soyinka
+-  Classroom arriva in Chrome OS con Google for Education: ecco le novità
+-  Başiskele ve Kandıra’da ittifak görüşmeleri sürüyor, CHP’de Kocaeli adayları için kritik gün
+-  Sources: Burnley and Nottingham Forest have held talks over signing Eredivisie forward, he's been told he can leave
