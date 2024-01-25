@@ -1,11 +1,11 @@
 # Latest News
--  المتحدث باسم وزارة الصحة بغزة: الطواقم الطبية غير قادرة على تقديم الرعاية للجرحى في خان يونس منذ 3 أيام
--  15.000 elementos da PSP e GNR em protesto histórico
--  Правительство рассмотрит законопроекты о госязыке и консульском уставе
--  Homem fingia ser policial para extorquir e roubar comerciantes
--  광주 서구 다세대주택 화재…2명 사상
--  Joe Lewis, el dueño de Lago Escondido, se declara culpable por tráfico de influencias
--  Duisburg bekommt neuen Krimi – DIESE Ermittlerin ist keine Unbekannte
--  Brunn har svämmat över i Borensberg
--  Ο Ατρόμητος πλήγωσε τον Παναθηναϊκό στη Λεωφόρο - Τρομερή επέμβαση Τσιντώτα στο 89' σε πέναλτι του Ιωαννίδη
--  Brunn har svämmat över i Borensberg
+-  《新竹》竹市府人事地震 議員疑黑箱作業
+-  京都市、感染症や食中毒の発生報告をオンラインで可能に
+-  Jesu li zvijezde "škrte", a basisti "prokleti"? Bill Wyman je odlaskom napravio možda najneočekivaniju grešku u karijeri
+-  IU合體BTS V譜末日之戀 亡命鴛鴦披婚紗 幸福4連拍
+-  MN - Boateng: "Brava l'Udinese che ha agito senza aspettare nessuno"
+-  Wstrząsające kulisy pokazów dla seniorów. „Nigdy bym się tak nie dorobiła”
+-  3退役校尉淪共諜 判刑定讞
+-  Caesars Sportsbook promo code NYPNEWS1000: Lock in $1,000 for any game Wednesday
+-  陳佩賢高雄唱到流汗 感動粉絲反應熱烈
+-  獨活女子狂掃南台灣美食 江口德子放話不想回去日本
