@@ -1,11 +1,11 @@
 # Latest News
--  정다경, ‘생쇼’서 벌어진 아찔 일화 공개 “허경환 가사실수 후 동공지진”(미스터라디오)
--  Plane flying on Baku-Tbilisi route returns to its departure airport
--  Neue Anklage: Schuss auf Kamerafrau – Alec Baldwin bittet um schnellen Prozess
--  Velika sreća u životu Nine Violić: 'Danas je taj dan!'
--  В пятницу в Баку пасмурно и 8 градусов тепла - ПРОГНОЗ ПОГОДЫ
--  Kalça kırığına karşı hayat kurtaran öneriler
--  A konzolok hátán állhat talpra a játékipar idén
--  Bloomberg'den Merkez Bankası'nın faiz kararı öncesi flaş tahmin
--  Soud podmíněně propustil Kottovou z vězení, kde si odpykávala osmiletý trest
--  【独自】被爆８０年に向けユニーク事業「ＡＩ・ＶＲ活用した被爆体験の継承」広島市が計画
+-  Dijital dünyanız için "dijital temizlik" önerileri!
+-  APA - N A C H R I C H T E N Ü B E R B L I C K
+-  Kobe Bryant'ın ölümünün ardından 4 yıl geçti
+-  Argentina y Paraguay ganaron en el Preolímpico de fútbol
+-  タカラトミー「SORA-Q」が月面着陸機「SLIM」の撮影に成功
+-  Biyoteknoloji girişimi Infinite Roots, 58 milyon dolar yatırım aldı
+-  TAL Education Group Announces Unaudited Financial Results for the Third Fiscal Quarter Ended November 30, 2023
+-  Leon Korošec: Občutek ob uspešni inovaciji je podoben športni zmagi
+-  「風で顔が…」新潟市は“猛吹雪”… 下越・佐渡では高波に警戒を 冬型の気圧配置２６日まで
+-  신선식품으로 “장군” 외친 대형마트…배송이점으로 “멍군” 외친 이커머스
