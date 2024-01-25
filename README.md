@@ -1,11 +1,11 @@
 # Latest News
--  Abel exalta atuação da Inter e diz que trabalha com estratégia: ‘Não sou professor Pardal’
--  "כל משבר גורר את השוויון בתעסוקה 10 צעדים אחורה"
--  Названы самые популярные среди россиян направления для путешествий весной
--  Gytis Ivanauskas: niekada negyvenau jokiomis svajonėmis
--  „Nugalėti juos sporto aikštelėse“: įsileidus rusus į žaidynes – boikotą keičiantis siūlymas neatiduoti pergalių
--  양주 덕정~수원 잇는 GTX-C 착공…2028년 말 개통
--  MK challenges constitution, critiques voting system
--  Juhlavuoden suurnäyttelyssä kulman takana odottaa aina uusi yllätys
--  全国ローソン＆ファミマでスマホでの住民票取得が可能に（ただしiPhoneは除く…）
--  Asian Cup 2023: Indonesia hồi hộp chờ suất đi tiếp
+-  Đằng sau giọt nước mắt cay đắng, đội tuyển Việt Nam đã tôi luyện thành công một "cận vệ thép"
+-  Noch einmal in den Jugendreport geschaut: Warum junge Menschen keine Kinder mehr haben wollen
+-  Laura Castillo: Los juicios que podría enfrentar la presunta líder de Los Lobos
+-  Europawahlen 2024 in Holzwickede: Engagierte Wahlhelfer für die Gemeinde gesucht
+-  Az A-Hídtól 1,4 milliárdot kapott, de 22 milliót nem fizetett ki a Hír TV-nek a számlagyáros ügyvéd cége
+-  Pupil referral unit rated 'inadequate' by Ofsted
+-  Scorecard: India vs England, first Test, Hyderabad
+-  İstanbul ve 36 ile kar yağışı geliyor! Meteoroloji tarih ve saat verdi
+-  „Žala yra didžiulė.“ Ukraina gali paralyžiuoti Baltijos jūrą
+-  ‘Unnecessary pressure’ placed on pupils and teachers as they await placements – SATU
