@@ -1,11 +1,11 @@
 # Latest News
--  Саудовская Аравия – Таиланд. Прогноз и анонс на матч Кубка Азии
--  Vietnam renews appeal for immediate ceasefire in Gaza Strip
--  Nhiều người ảo tưởng sức mạnh trên mạng
--  Pedestrian killed in collision north of London, Ont.
--  Cricket greats speechless as new clip emerges
--  페기 구, BTS·블랙핑크 이어 '브릿어워즈' 후보
--  「監督のお気に入りになればいい」“サッカー日本代表の得点王”上田綺世（25歳）驚きのストライカー生存哲学「点を取る方法を盗んでいた」
--  Fire destroys recently opened Waswanipi Cree Lumber sawmill
--  Guppedantha Manasu January 25th Episode: ఇక తేల్చేసుకుందాం అన్న వసుధార - రిషి ఎంట్రీతో శైలేంద్ర చాప్టర్ క్లోజ్!
--  NOUN Debunks Recruitment, Contracts Rumours
+-  虹…ではなくカラフルかき餅 冬の伝統保存食が生産ピーク【福井・勝山市】
+-  Vodafone Idea Share Price Live blog for 25 Jan 2024
+-  ‘탈옥범’ 김길수, 특수강도 혐의 징역 7년 구형
+-  新井カープが必勝祈願 ６年ぶりのリーグ優勝、４０年ぶりの日本一へ
+-  南会津で大雪 雪かきに追われる 福島市は積雪で交通渋滞 中通りと浜通りでは今後強風に警戒＜福島県＞
+-  My Nintendo Store Restocks Some Splatoon 3 Goodies (North America)
+-  Nhận định bóng đá Ả rập Xê út vs Thái Lan (22h00 hôm nay), Asian Cup 2023 vòng bảng
+-  尹과 발맞춰 與, "늘봄학교 전면 확대·초1~고3에 1년에 100만 원씩 지급"
+-  Nhận định bóng đá Kyrgyzstan vs Oman (22h00 hôm nay), Asian Cup 2023 vòng bảng
+-  Nhận định bóng đá Jordan vs Bahrain (18h30 hôm nay), vòng bảng Asian Cup 2023
