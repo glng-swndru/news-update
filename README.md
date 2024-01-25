@@ -1,11 +1,11 @@
 # Latest News
--  Stromausfall in Düsseldorf: Stromausfall legte Teile der Innenstadt lahm
--  Seyidovdan ölkəmizin AŞPA-nı tərk etməsi ilə bağlı açıqlama
--  Sutrikęs miegas gali turėti įtakos atminčiai vėlesniame amžiuje
--  Warzone SMG gets secret buff with “crazy” TTK to dominate even more
--  Hospiz in Leonberg: Reden, schweigen, weinen oder auch gemeinsam lachen
--  Pagliaro (Inca Cgil), 'Covid è stato banco di prova per noi, raccolta sfida digitale'
--  Google sospende l'ultimo update di Google Play System a causa di bug sui Pixel
--  مدير عام شرطة مأرب يعزي قائد المنطقة العسكرية الثالثة بوفاة والده
--  Barbie nebyla nominovaná na Oscara ze režii a ženský herecký výkon. ‚Je to šokující,‘ zlobí se fanoušci
--  Ruska Duma kolegama u Francuskoj uputila intrigantan apel: Ne poštujete vlastite zakone...
+-  Birmingham City ins and outs confirmed amid links to Paik Seung-ho
+-  İlaçta döviz kuru krizi tırmanıyor
+-  Justice League: Crisis on Infinite Earths Producers Didn't Watch the Arrowverse Version First
+-  Ərdoğan və Rəisi hansı məsələləri müzakirə etdi?
+-  Nahversorgung: Was Anwohner vom künftigen Netto in Grundschöttel erwarten
+-  الحقيل يدشن المنصة الرقمية للفرص الاستثمارية الكبرى في عسير
+-  I hit the $1M lotto jackpot while on a Caribbean cruise — here’s what happened next
+-  Poslanici da pokažu konstruktivan pristup u imenovanju VDT
+-  Luna llena del 25 de enero: el ritual para atraer el amor, la prosperidad y el dinero a tu casa, ¿cómo se hace?
+-  Dramatyczna zbrodnia po 45 latach od rozstania. 85-latek zabił byłą żonę
