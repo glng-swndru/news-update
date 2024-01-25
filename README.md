@@ -1,11 +1,11 @@
 # Latest News
--  ’Never seen’ AO boilover shocks tennis
--  Черноморец Бургас удари Етър в контрола
--  السعودي الألماني (4009) يخترق قمة تاريخية ويستهدف تكوين قمة جديدة
--  Arano y Castellón jugarán en Real Tomayapo
--  Още един съюзник на Тайван в Тихия океан намекна за възможен разрив
--  Na silnici u Hřenska se svalil balvan o velikosti auta, cesta je zavřená
--  Стало відомо, чому багаті люди не закривають вікна
--  Türgi parlament kiitis heaks Rootsi liitumise NATOga, Orbángi lubas seda toetada
--  NDP Leader says a second Trump presidency would be ‘bad for the planet’
--  Confiança do empresário do comércio sobe 0,8% em janeiro, diz CNC
+-  Budżet na 2024 rok. Senat zdecydował
+-  Budżet na 2024 rok. Senat zdecydował
+-  Titan OS è la nuova piattaforma smart dei TV Philips
+-  Уткин сравнил играющего в "Реале Сосьедад" Захаряна с человеком-невидимкой
+-  BorgWarner Presents Josef Newgarden and Roger Penske with Coveted Baby Borg Trophies
+-  Maks miał tylko 17 lat. Został potrącony na pasach. Jego ciało znaleziono półtora kilometra dalej
+-  Alcaraz gục ngã trước Zverev, chốt 2 cặp bán kết Úc mở rộng 2024
+-  Марин Петков увеличи преднината на Левски срещу Тузла
+-  Un barrage filtrant mis en place par les artisans des travaux publics à Pen-ar-C’hleuz, à Brest
+-  Adana'da fabrika yangını
