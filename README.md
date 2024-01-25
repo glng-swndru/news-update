@@ -1,11 +1,11 @@
 # Latest News
--  Илия Груев и Лийдс затвърдиха добрата си форма
--  PRVI SNIMCI ANE NIKOLIĆ S NOVIM DEČKOM! Evo šta rade kad ne znaju da ih snimaju kamere! Pevačica se videla i sa ova 2 muškarca!
--  Bjelica sieht nach Rangelei mit Sané Rot: "Bei ihm entschuldige ich mich nicht"
--  Nvidia RTX Video HDR offers AI-based HDR upscaling for SDR videos
--  Лавров заявил о «нудном» диалоге между Россией и США. О чем еще говорил глава МИД России на полях ООН?
--  ¿Quién es Henry Jiménez y de qué lo acusan?
--  “친절한 이웃인 줄 알았는데…남편과 동 대표 불륜에 악몽 시작”
--  Mass. psychologist on how stories can trigger intense emotions
--  Zampini: "Non ho dimenticato la frase di De Laurentiis. Ricordate dopo Pechino?"
--  Le maire de Chartres, Jean-Pierre Gorges, soutient les agriculteurs : "Les Français les comprennent"
+-  GOVT ON BORDER TIMBERS US$125M AWARD : WE WILL APPEAL
+-  ABD'den F-16 ve Türkiye açıklaması! Biden harekete geçti! Dikkat çeken NATO detayı
+-  Two women wanted on warrants found living in vacant Kelowna home slated for demolition (Kelowna)
+-  35 gündür kayıp motokuryeyi arkadaşı öldürüp gömmüş
+-  KARLEUŠINA ĆERKA PONOVO NA METI HEJTERA: Komentar koji je pročitala je zbunio pa se obratila brutalnim rečima: Vidim da...
+-  IA impulsa a Microsoft a superar los $3 billones en valor de mercado
+-  Some Netflix subscribers face price hike as no-ads basic plan ends in Canada (Business)
+-  중대재해법 '50인 미만 사업장 유예' 오늘 막판 협상
+-  Hoàng Đức tái xuất và câu chuyện 'lạ' về những cựu binh
+-  Warm temperatures, torrential rain: Is a 'Pineapple Express' headed to Metro Vancouver?
