@@ -1,11 +1,11 @@
 # Latest News
--  Birmingham City ins and outs confirmed amid links to Paik Seung-ho
--  İlaçta döviz kuru krizi tırmanıyor
--  Justice League: Crisis on Infinite Earths Producers Didn't Watch the Arrowverse Version First
--  Ərdoğan və Rəisi hansı məsələləri müzakirə etdi?
--  Nahversorgung: Was Anwohner vom künftigen Netto in Grundschöttel erwarten
--  الحقيل يدشن المنصة الرقمية للفرص الاستثمارية الكبرى في عسير
--  I hit the $1M lotto jackpot while on a Caribbean cruise — here’s what happened next
--  Poslanici da pokažu konstruktivan pristup u imenovanju VDT
--  Luna llena del 25 de enero: el ritual para atraer el amor, la prosperidad y el dinero a tu casa, ¿cómo se hace?
--  Dramatyczna zbrodnia po 45 latach od rozstania. 85-latek zabił byłą żonę
+-  Şehir merkezinde karşılaştığı tilkiyi ıslık çalarak yanına çağırdı
+-  Doğu Türkistan BM gündeminde
+-  Fransada minlərlə hotel rezervasiyası ləğv edildi
+-  Jahrein, Selahattin Demirtaş'ın annesine küfür etti
+-  Legendarni zapovjednik Bruno Zorica u posljednjem intervjuu: Putin je fanatik, diktator
+-  Vörös-tengeri válság: rakétákat lőtt le az amerikai haditengerészet
+-  La construcció d'un parc de cal·listènia, la proposta guanyadora dels Pressupostos Participatius d'Hostalric
+-  홍익표 "김건희 명품백 논란 방치… 법 우습게 보는 것"
+-  TKN Prabowo-Gibran: Presiden Jokowi Masih Netral, Belum Memihak dan Berkampanye
+-  Radeon RX 7600 XT és AFMF támogatással érkezett az idei első AMD Adrenalin driver
