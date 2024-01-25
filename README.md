@@ -1,11 +1,11 @@
 # Latest News
--  Coal on the stove? We were just getting over gold from potatoes idea: Himanta Biswa Sarma mocks Rahul Gandhi
--  「素肌にシースルー」型破りな高校時代！俳優・桐谷健太の原点 成功につながる“まっすぐ過ぎる”生き方【古市憲寿対談】
--  Γάζα: Στην Χαν Γιουνίς συνεχίζονται οι μάχες μετά τα αιματηρά πλήγματα σε εγκατάσταση του ΟΗΕ
--  Winter Skincare: Here’s How Vitamin C Can Help Combat Dryness
--  媽有退休金！他月薪6萬「不想給孝親費」：不是我叫他們生我的
--  Poglejte to idejo: trik za shranjevanje peteršilja v hladilniku, ki ga zdaj vsi uporabljajo
--  【全日本卓球】平野美宇が決意 パリ五輪初のシングルス代表懸けた最終決戦へ「ネットをはさんだ格闘技」 - スポーツ報知
--  Liverpool boss Jurgen Klopp shows up Mikel Arteta after unearthing two 'new signings'
--  Jewellery store Goldsmiths pulls out of Forestside shopping centre in Belfast
--  질병청 “HPV 백신 남자 청소년에 확대, 국가 지원 대비 비용 효과적”
+-  Появились подробности о состоянии здоровья ударившейся головой об лед фигуристки
+-  Müge Anlı'da Ali Diken cinayetini itiraf etmişti! İkinci ceset baldızı çıktı
+-  Crème quantique : les pseudosciences font main basse sur la physique
+-  Borsa İstanbul'da 'hatalı işlem' düzenlemesi
+-  Rusija dronovima napala jug Ukrajine
+-  [자막뉴스] 농심 수출용 라면에 '오역'…"'김치공정' 빌미 제공"
+-  Welcome to SciBase Capital Markets Day 2024
+-  Reel kesim güveni açıklandı
+-  술에 취한 여성 성폭행…전 강원FC 선수 2명 징역 7년
+-  Odun kesmeye giden adam ölü halde bulundu
