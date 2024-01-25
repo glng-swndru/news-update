@@ -1,11 +1,11 @@
 # Latest News
--  Streik: Bahnbeauftragter warnt vor „Spiel mit dem Feuer“
--  [BioS]에이비엘, ‘4-1BB 단일항체’ 日특허 등록
--  네이버웹툰, 영등포 타임스퀘어에 ‘가비지타임’ 팝업스토어 오픈
--  Vereador Rodolfo Donetti destaca valorização de policiais
--  台股大漲逾百點近萬八 台積電漲8元至635
--  Airline battle: ACCC backs Virgin over Qantas in Bali beef
--  Vereador Rodolfo Donetti destaca valorização de policiais
--  Moyano habló de "tirar al Riachuelo" a Caputo y el ministro espera que actúe la Justicia
--  JINI(지니), 웹툰 ‘사내연애 사절!’ OST 가창
--  Video viral: ¿cómo es el mercado más peligroso del mundo?
+-  Mumbai To Witness 14% Surge In Office Spaces With 21 Million Sq Ft Grade A Supply By 2025: Reports Property Share
+-  B.C. refinery could be shut down for 4 weeks after stinky startup
+-  Rúben Dias termina relação com a modelo Arabella Chi
+-  Mumbai News: Students Rescue Scared Kitten From Churchgate Station, Find Her A Home
+-  Idosa fica três dias num cadeirão das urgências à espera de vaga
+-  Vancouver police spent $409K in seven days to decamp East Hastings
+-  Pinto da Costa leva nega de Sérgio Conceição
+-  Mercado à espera dos sinais de Christine Lagarde
+-  National Tourism Day 2024: Theme, history and importance
+-  Ice Hockey Equipment Market is to grow by USD 421.46 million from 2022 to 2027, market is fragmented due to the presence of prominent companies like American Athletic Shoe and Co., Formative Sports & Huashen Rubber Co. Ltd., many more - 17000+ Technavio Reports
