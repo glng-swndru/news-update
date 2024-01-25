@@ -1,11 +1,11 @@
 # Latest News
--  尹 “중대재해법 개정안 반드시 통과되도록 노력” 당부
--  رونمایی از الکساندریت در برج آزادی ؛ جواهر ۱۵ میلیاردی در موزه شهاب سنگ های ایران
--  Woman says mom sensed ‘ghost’ at home; heard sounds in empty building and knew who’d call before phone rang
--  Lihat Bagan 16 Besar Piala Afrika 2023, Tim Besar Masih Bertahan
--  Гандболисты Германии пробились в полуфинал чемпионата Европы
--  На 25 януари рожден ден имат
--  Palmeiras garante vitória sobre a Inter de Limeira por 3 a 2
--  官網看好阿庫納蟬聯國聯MVP 新球季預測數據曝光
--  Espoosta löytyy 326-metrinen masto, johon Aleksi Hankivaara kiipeää työkseen satoi tai paistoi – "Pakkasen vaikutus voi olla hyvinkin 30–40 astetta"
--  Innovation Greece 5.0 | Athens | January 26-27
+-  高校生の男女ら５人が１９歳男性を殴る蹴るの“集団暴行”で逮捕 男性は全治３カ月の重傷【新潟】
+-  Gejza potrebuje k pokojnému životu dostatok spánku
+-  কুমিল্লার সোনার দোকান মালিক গ্রেপ্তার, ১৫ ভরি স্বর্ণ উদ্ধার
+-  Концепция миграционной политики утверждена в Беларуси
+-  Kiša se isprečila Novaku FOTO
+-  خبر مهم برای متقاضیان وام بدون کارمزد | پرداخت وام 300 میلیونی بدون سود با طرح آفتاب
+-  Muž žaluje 27 žen o 1,7 miliardy kvůli tomu, jak na sítě psaly o randění s ním
+-  Православен календар за 25 януари, вижте имениците днес
+-  Stubbs hoping his slick sprinter can return to form at Wagga
+-  Κίνα: Συνελήφθησαν 12 άτομα από πυρκαγιά σε υπόγειο καταστήματος
