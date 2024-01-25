@@ -1,11 +1,11 @@
 # Latest News
--  Тръпката е на efbet.com с още повече игри: efbet с ново ключово партньорство - Труд
--  Chuva deixa famílias desabrigadas e provoca alagamentos no Litoral Norte de São Paulo
--  VW ID.4 im Privat-Leasing : Hier den lautlosen Elektro-SUV günstig leasen
--  Gutekällaren såld – fastighetsmagnaten tar över
--  ‘He’s on his last legs’ – Pundit tells Moyes to offload defender
--  İnternetten öğrendiği yöntemle takı üreterek aile ekonomisine katkı sağlıyor
--  윤선우, 이번엔 동생과 경젱? “내 여자=오승아, 건들지마”(세 번째 결혼)[종합]
--  Castrop-Rauxel wird Wasserstoff-Pilotprojekt: Dafür müssen die Stadtwerke keinen Cent zahlen
--  Останется ли Кудашов в «Динамо»? Live с Шевченко, Зислисом и Глазачевым — в 14.00
--  Mehrarbeit für Schulleiterin Zeitlmann: Neben Creußen muss sie auch Schnabelwaid betreuen
+-  [세상 읽기] 누구를 위한 농업안전보건센터 폐업인가
+-  В России высказались об изменениях в процедуре обмена пленными с Украиной
+-  [세상 읽기] 누구를 위한 농업안전보건센터 폐업인가
+-  Ex-Rebel Leader Girkin Sentenced to 4 Years for Extremism After Criticizing War
+-  Dönmez kardeşlerden baklavalı ziyaret
+-  Ex-Rebel Commander Girkin Sentenced to 4 Years in Russian Prison
+-  Megjelent az MME első 50 évét bemutató könyv
+-  Xuân về trên xã đảo Thạnh An
+-  Test na spostrzegawczość: Która gęś różni się od pozostałych? Tylko bystre oko znajdzie różnicę
+-  Levyarvio | Peter Gabriel valmisteli uusinta levyään vuosi­kymmenten ajan, tällainen on loppu­tulos
