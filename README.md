@@ -1,11 +1,11 @@
 # Latest News
--  Најголемата инвестиција на Лидл во земјава: Со вкупно 80 милиони евра Лидл ќе отвори повеќе од 150 работни места
--  BMW Premium Selection: ojetá prémiová auta s bezkonkurenčními službami
--  Pablo Moyano: “Un peronista no puede votar este DNU, no traicionen a los trabajadores”
--  Ερντογάν: Θα συνεχίσουμε να φτιάχνουμε φρεγάτες και να στέλνουμε πυραύλους
--  Alcaraz vypadol vo štvrťfinále, nestačil na Zvereva
--  El Teatro Español rescata la comedia de Jardiel Poncela 'Es peligroso asomarse al exterior' con versión y dirección de Pilar Massa
--  ĐT Việt Nam rớt khỏi Top 100 thế giới, mất ngôi đầu Đông Nam Á khi xếp dưới ĐT Thái Lan
--  गडचिरोली: वैनगंगा नाव दुर्घटनेतील आज आणखी एका महिलेचे मिळाले प्रेत | Batmi Express
--  Fünf Haartrockner im Test: Dyson, BaByliss oder Shark?
--  Son Dakika: MHP 55 başkan adayını daha açıkladı
+-  ’Never seen’ AO boilover shocks tennis
+-  Черноморец Бургас удари Етър в контрола
+-  السعودي الألماني (4009) يخترق قمة تاريخية ويستهدف تكوين قمة جديدة
+-  Arano y Castellón jugarán en Real Tomayapo
+-  Още един съюзник на Тайван в Тихия океан намекна за възможен разрив
+-  Na silnici u Hřenska se svalil balvan o velikosti auta, cesta je zavřená
+-  Стало відомо, чому багаті люди не закривають вікна
+-  Türgi parlament kiitis heaks Rootsi liitumise NATOga, Orbángi lubas seda toetada
+-  NDP Leader says a second Trump presidency would be ‘bad for the planet’
+-  Confiança do empresário do comércio sobe 0,8% em janeiro, diz CNC
