@@ -1,11 +1,11 @@
 # Latest News
--  Ο οδηγός ταινιών του Δημήτρη Δανίκα
--  Aereo russo abbattuto vicino a Belgorod. Mosca: a bordo prigionieri di guerra ucraini, Kiev accusa: trasportava missili
--  Nach Protesten: Frankreichs Verfassungsrat urteilt über umstrittenes Migrationsgesetz
--  Ο οδηγός ταινιών του Δημήτρη Δανίκα
--  Who invented butter chicken? Curry wars hot up in India as legal fight begins
--  Dos nuevas excavaciones descubrirán el patio y el acceso al Castillo de Dos Hermanas en Montemayor
--  VIDEO: Toto nezažil 9 mesiacov. Tatar podal hviezdny výkon, siahal na hetrik
--  USA: Justiz lässt Hinrichtung mit Stickstoff zu
--  Bedrijf uit Voorschoten was spil in internationaal smokkelnetwerk naar Rusland. Ex-directeur: ’Een nuttige idioot was ik’
--  Frozen in time, Uttarakhand’s Indo-China border village, “Jadung” will come back to life
+-  המפגש המרגש בבית הנשיא: "לא נשכח את גבורתכם והאומץ שלכם"
+-  Elektrownia jądrowa w 2033 r.? Minister: Musimy bazować na faktach, nie marzeniach
+-  „So ein Haushalt, der macht einfach Spaß“: Grasbrunn verzeichnet Rekordeinahmen
+-  Fußbodenheizung selber einstellen: So machst du es richtig
+-  Wirtschaftskrise in Simbabwe: Proteste gegen neue Brillensteuer
+-  Мать летчика сбитого Ил-76 рассказала о членах экипажа
+-  Съдебна драма: Кой измисли масленото пиле в Индия
+-  Brezilya'da şiddetli yağışlar: Bir haftada 12 kişi hayatını kaybetti
+-  都心マンション平均 初の1億円超
+-  Antakya'da ev yangını
