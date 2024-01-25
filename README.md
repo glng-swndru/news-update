@@ -1,11 +1,11 @@
 # Latest News
--  Muggers beware: Fundraiser to bring Indian ranger to Top End
--  Milei y su Ley ómnibus fracturaron al peronismo en Diputados: quién es el gobernador que lidera el nuevo bloque
--  Над Брянской областью сбит четвертый украинский дрон
--  Bolt calls for PM to sack Rudd if Trump is elected
--  Por ausencia de abogada, suspenden juicio en caso Estrellita
--  Габриела Славова, нейните роднини и близките на убития Пейо Пеев в битка за децата (Обзор)
--  Hautes-Alpes | Alpes-de-Haute-Provence. La mobilisation des agriculteurs s’étend aux Alpes du Sud
--  Új igazgatója lett a kecskeméti Mercedes-gyárnak
--  KD-politiker het på småländsk Lalandia-etablering
--  Serie A, stop alla pirateria: De Siervo: «E’ una piaga da oltre 300 milioni che contrasteremo così»
+-  Hrvatska svladala Njemačku, nevjerojatno izdanje Kuzmanovića!
+-  BB estrutura programa para acelerar recuperação de pastagens
+-  بعد الفوز ببطولة الوحدة.. معسكر الاتفاق مستمر في دبي
+-  IFPR abre edital para vaga de professor substituto
+-  Kuryenin cesedi ile aynı yerde bulundu, 5 aydır ailesi tarafından arandığı ortaya çıktı
+-  Mauro conclui mandato na presidência do consórcio Brasil Central; Caiado assume
+-  EastEnders spoilers: Double exit from the Square as Whitney leaves – with another character
+-  ESG morreu
+-  EastEnders spoilers: Suki Panesar fights back as Nish vows to destroy her life in colossal showdown
+-  Seguradoras usarão 'risco climático' em cálculo de apólice
