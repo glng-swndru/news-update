@@ -1,11 +1,11 @@
 # Latest News
--  « On a préparé le match comme si Eric était là » : Jimmy Durand va remplacer Bartecheky sur le banc de l’Elan à Fos
--  Thousands protest Australia Day holiday with ‘Invasion Day’ rallies
--  Der Stadtrat tagte: Die Gespräche zur alternativen Energie in Westsachsen laufen längst + Video
--  Court confirms four-month prison sentence for celebrity chef Chung Chang-wook
--  Денят на истината: Голям английски гранд ще отпадне рано-рано от ФА Къп
--  Feuerinferno am Straßenrand: Was steckt wirklich hinter den Autobränden in Castrop-Rauxel?
--  Valdis Dombrovskis: "Eiro ir veicinājis valsts attīstību"
--  South African jailed after being caught at Changi Airport in Singapore's largest seizure of rhino horns - CNA
--  NSƯT Phương Hồng Thủy: Theo chồng sang nước ngoài 20 năm, trở về vẫn run khi bước ra sân khấu
--  Индексы США выросли, S&P 500 обновил рекорд 5-ю сессии подряд
+-  Šifrer in drugi znani imajo veliko težavo: Če kdo zna odkriti packa, ki to počne, mu bom hvaležen
+-  「年賀状は届いているのに…」被災地での郵便引き渡し再開 安否不明の友人から届いた“年賀状”【能登半島地震】
+-  Nga ra đòn khiến người giàu nhất Ukraine cay đắng
+-  Британская MI6 готовит украинских диверсантов для атак на российские АЭС - Сергей Нарышкин
+-  Земельные участки на сумму 95 миллионов тенге возвращены государству в области Жетісу
+-  Cricket-Ravindra gets New Zealand test call-up for South Africa series
+-  Ельцин заявлял о необходимости вступления России в НАТО в случае расширения
+-  Bihar Political Crisis: बिहार में BJP की सरकार बनी तो रेनू देवी हो सकती हैं मुख्यमंत्री पद की प्रबल दावेदार
+-  Pelakon kecewa Margot Robbie, Greta Gerwig, gagal lolos pencalonan Oscar
+-  Во Владимире из огня спасли 15 человек
