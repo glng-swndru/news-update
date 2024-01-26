@@ -1,11 +1,11 @@
 # Latest News
--  Zašto se seksate? Postoje neki razlozi koji su jednostavno pogrešni…
--  中国と日本の経済は「逆転」した？3年ぶりに上海を訪れた私が見た“驚きの光景” - ＤＯＬ特別レポート
--  'Se tem alguém que já foi investigado, chama-se Domingos Brazão', diz conselheiro suspeito no caso Marielle
--  برگ برنده چین علیه آمریکا/ چرایی یارگیری پکن در خاورمیانه
--  NASA oznámila po téměř třech letech konec mise vrtulníčku Ingenuity na Marsu
--  Anti-AfD-Kundgebungen mit Tausenden Teilnehmern
--  Anti-AfD-Kundgebungen mit Tausenden Teilnehmern
--  83 new recovery beds to open in B.C.; 97 private beds now publicly funded
--  Shamed ex-footie chief Luis Rubiales, 46, set to face trial over World Cup kiss scandal involving Jenni Hermoso, 33
--  Kisbabát vár Harcsa Veronika
+-  Sofia Richie und Elliot Grainge: Die beiden werden zum ersten Mal Eltern
+-  Trump declara en juicio por difamación tras sus victorias en las primarias
+-  Alba schlägt Belgrad - Sorge um Thiemann
+-  Solicitada: Intendentes y comisionados tucumanos del PJ acompañan las decisiones políticas de Jaldo
+-  Subastarán un cuadro de Gustav Klimt, redescubierto después de casi 100 años
+-  Solicitada: legisladores justicialistas le expresan su apoyo a Jaldo
+-  Bitcoin ETFs come with risks. Here’s what you should know
+-  Sofia Richie und Elliot Grainge: Die beiden werden zum ersten Mal Eltern
+-  Abin foi usada para monitorar promotora do caso Marielle, diz PF
+-  "Nitko da prstom makne! Od početka listopada Vodovod nije vratio u prvobitno stanje ovu iskopinu na Bilom brigu"
