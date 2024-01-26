@@ -1,11 +1,11 @@
 # Latest News
--  Tahmini çok konuşulmuştu: Wells Fargo'dan dolar/TL açıklaması
--  19 Marken im Test: Preise für Orangensaft gehen durch die Decke. Ökotest prüft, ob sich der Kauf noch lohnt
--  Kırklareli'de Cengiz Kurtoğlu rüzgarı
--  Kā ikdienā sadzīvo vistuvākie kaimiņi – cilvēki un zirnekļi
--  DEBATT: Vill regionstyret verkligen öppna BB i Karlskoga?
--  19 Marken im Test: Preise für Orangensaft gehen durch die Decke. Ökotest prüft, ob sich der Kauf noch lohnt
--  NGO konon bantu perjuang kes penipuan rupanya kutip caj perkhidmatan
--  Tarihi kalıntılar toprakla kapatılacak
--  Vaške se pojavile u vrtićima! U ovom periodu se lako prenose, zbog njih planule posebne gumice u apotekama!
--  Gelar Doa Bersama, AKBP Kurnia Setyawan Doakan Pemilu 2024 di Meranti Aman & Damai
+-  Depois de goleada, torcida tricolor sonha com Libertadores e Mundial
+-  Blaženka malim detaljem na licu vraća samopouzdanje i osmeh onkološkim pacijentima. Ona je kozmetičarka koja besplatno iscrtava obrve
+-  Serge Lama désormais incapable de rester debout ? Difficile aveu du chanteur sur son état de santé
+-  Jahnsbräu- und Sparkassen-Areal: Was sich die Ludwigsstädter wünschen
+-  26. bis 28. Jänner - Bezirk Scheibbs: Das ist los am Wochenende!
+-  [인터뷰] ‘도그데이즈’ 윤여정 “오스카 수상 후 인터뷰 안 한 이유는···”
+-  Stolen presidential red carpet recovered in Malawi
+-  Törökország már lezárta a svéd NATO-csatlakozást
+-  Kastamonu'da 6 kişiye mezar olan otobüs havadan görüntülendi
+-  [인터뷰] ‘도그데이즈’ 윤여정 “오스카 수상 후 인터뷰 안 한 이유는···”
