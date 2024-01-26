@@ -1,11 +1,11 @@
 # Latest News
--  La versión más goleadora y letal de Oyarzabal
--  "트럼프, 바이든과 양자 대결서 6%p 리드"
--  “남친 살해했다” 온라인에 허위 글 올린 30대 벌금형 집유
--  Krieg in Nahost: Vorentscheidung im brisanten Völkermord-Prozess erwartet
--  "Macht das Land kaputt": Warum Unternehmen aus München kein Verständnis für den Streik haben
--  Cas en Pim gehuldigd voor redden verdrinkende klasgenoot: "Geen moment getwijfeld"
--  Newsblog: Weiter Rätsel um Flugzeugabsturz in Russland
--  Δράση σε «Αμμόχωστος» και «Στέλιος Κυριακίδης» (Πρόγραμμα & Βαθμολογία)
--  Thai export growth misses forecast in Dec, small rise seen in 2024
--  Macron et la catharsis
+-  Tahmini çok konuşulmuştu: Wells Fargo'dan dolar/TL açıklaması
+-  19 Marken im Test: Preise für Orangensaft gehen durch die Decke. Ökotest prüft, ob sich der Kauf noch lohnt
+-  Kırklareli'de Cengiz Kurtoğlu rüzgarı
+-  Kā ikdienā sadzīvo vistuvākie kaimiņi – cilvēki un zirnekļi
+-  DEBATT: Vill regionstyret verkligen öppna BB i Karlskoga?
+-  19 Marken im Test: Preise für Orangensaft gehen durch die Decke. Ökotest prüft, ob sich der Kauf noch lohnt
+-  NGO konon bantu perjuang kes penipuan rupanya kutip caj perkhidmatan
+-  Tarihi kalıntılar toprakla kapatılacak
+-  Vaške se pojavile u vrtićima! U ovom periodu se lako prenose, zbog njih planule posebne gumice u apotekama!
+-  Gelar Doa Bersama, AKBP Kurnia Setyawan Doakan Pemilu 2024 di Meranti Aman & Damai
