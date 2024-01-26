@@ -1,11 +1,11 @@
 # Latest News
--  Sechs ex-jugoslawische Staaten planen Gedenkort in Auschwitz
--  Румунія відмовилась від участі в Євробаченні-2024
--  ΑΑΔΕ: Παράταση ως 2/2 για τιςς δηλώσεις Ειδικού Φόρου Πολυτελείας
--  Bob Dylan expone "El camino trillado", sus grabados sobre el paisaje estadounidense
--  Постановка на боевое дежурство в РВСН комплекса "Сармат" планируется в этом году
--  Mediji: Apstiprināta 43 000 krievu karavīru bojāeja Ukrainā
--  L'entraîneur de Liverpool Jürgen Klopp annonce son départ en fin de saison
--  Can Ataklı'nın şehit babasına yönelik sözleri nedeniyle 3 yıl kadar hapsi istendi
--  Bakan Uraloğlu Trabzon’da o projenin son durumunu sordu!
--  Мъж и жена стреляха по кола с въздушен пистолет в Костинброд, опитаха да избягат пеша
+-  Horacio Velutini es el nuevo presidente de la Bolsa de Valores de Caracas
+-  Daily Quiz | On Indian Presidents
+-  Olasz agrár- és élelmiszeripari szövetségek delegációját fogadta az iparpolitikáért felelős államtitkár
+-  Vatan Partisi 126 adayını açıkladı!
+-  Plenković: Poljoprivreda je u fokusu djelovanja Vlade
+-  Fantacalcio, i consigliati "classic" e "mantra" della 22^ giornata. Ci sono due granata, uno per ogni formazione
+-  Estado peruano deja sin leche a los niños
+-  ABD F-16'ları verecek mi? Cumhurbaşkanı Erdoğan'dan açıklamalar
+-  Atlikėja Migluma pristato kūrinį „Vilnija Vilnia“: jį skiria sostinės gimtadieniui
+-  L'évolution de la vie des agriculteurs sur trente ans en 10 chiffres
