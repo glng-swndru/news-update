@@ -1,11 +1,11 @@
 # Latest News
--  Кого из бывших губернаторов приговорили к реальным срокам заключения
--  Hırsız sandılar suçlu köpekler çıktı: O anlar kamerada
--  İsrail esir takasında serbest bıraktığı Filistinliyi yeniden gözaltına aldı
--  Hazır kek üreticilerine: Moğolistan ürünlerinizi ithal edecek!
--  Vipps MobilePay launhes in Finland
--  Yola çıkacakları ilgilendiren haber geldi! Bolu Dağı’nda kar yağışı başladı
--  PiS ustąpił w sprawie komisji ds. Pegasusa
--  Santiago Castro se hace la revisión medica y firma contrato con Bologna
--  Polizei: 18-Jähriger nach Gewalttat an Schule festgenommen
--  Millainen on kaarinalaisen aikuisväestön vointi? – verrattain hyvä, mutta huolta aiheuttavat esimerkiksi vähäinen liikkuminen, ruokailutottumukset ja lähisuhdeväkivalta
+-  Силно земетресение удари Турция
+-  Anelka postao direktor u Turskoj
+-  Joković: Kreiraćemo brendove i radićemo na promociji proizvoda
+-  Végre egy nyugati politikus, akinek Orbán Viktor is örülni fog: Magyarországra látogat a szélsőjobbos Geert Wilders
+-  EKP jatkoi kireää linjaa asuntolainoissa – ohjauskorot ennalleen
+-  Путин отметил важность помощи волонтёров жителям Донбасса и Новороссии
+-  Masowe zatrzymania na Białorusi. MSZ apeluje o sankcje
+-  Na protestoch hrozil bombovými útokmi, NAKA zadržala podozrivú osobu
+-  Rugby - “L’Ovale de Saône-et-Loire”. Saint-Martin-du-Lac, le Petit Poucet du rugby bourguignon aux grandes ambitions
+-  Posebno sagledati stav kandidata za VDT-a prema ratnim zločinima
