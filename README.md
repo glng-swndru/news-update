@@ -1,11 +1,11 @@
 # Latest News
--  İzmir'de kaybolan Alzheimer hastası bulundu
--  “죽음의 일터 끝내야” vs “준비 안된 영세사업장 폐업 위기”
--  Pixel 8 Pro Users Get a Health Upgrade with Google’s Thermometer App
--  Раскрыта причина загадочных выбросов метана на Марсе
--  Israel: Entscheidung im Völkermord-Verfahren
--  Dieses Investment kostete Berkshire Hathaway Milliarden - Buffett dennoch von langfristigen Aussichten überzeugt
--  Padma Awards 2024: Hormusji N Cama, Kundan Vyas awarded Padma Bhushan in Literature and Education; Know about them
--  박신우, 힘찬 화이팅! (피도 눈물도 없이)[DA포토]
--  Ρούλα Πισπιρίγκου: Όλη η πρόταση της εισαγγελέως για την ενοχή της - «Η Τζωρτζίνα είχε μια ατυχία, να έχει μάνα την κατηγορούμενη»
--  Pet razloga za otkup zlata: Zašto je sada pravo vrijeme?
+-  The New Highland Clearances: Herald series starts on Monday
+-  Potensi Perikanan dan Kelautan dalam Al-Quran
+-  AAI recruitment deadline today for 119 Jr Assistant, Sr Assistant posts; here’s how to apply
+-  CLERHP: "Afrontamos un momento único en nuestra historia. Vamos a construir una ciudad desde cero"
+-  Д-р Наталия Конова: Има голям смисъл от скрининговите кампании - Труд
+-  Кристофър Нолан - Филмов гръмовержец - Труд
+-  Stade Rochelais Basket : tous les épisodes de notre série « Temps-mort »
+-  Straßen: Diese „üble Rumpelpiste“ ist bald Vergangenheit - aber auch andernorts wird saniert
+-  « Ce sont des sujets encore très tabous » : Anne Pouffary, joue dans les « Monologues du Vagin » ce dimanche à Vannes
+-  TPP Tak Kunjung Cair, ASN Kota Bogor Menjerit
