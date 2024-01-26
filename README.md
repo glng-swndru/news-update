@@ -1,11 +1,11 @@
 # Latest News
--  Które sklepy będą otwarte 28 stycznia? Pierwsza niedziela handlowa 2024 przypada w czasie ferii
--  Covid in Italia, siamo alla fine? Cosa dicono gli esperti
--  Cem Küçük canlı yayında kötü haberi verdi! 'Türk Sanayi Devi Üretimi Durdurdu
--  Kto kupi bistro nad zalewem w Pakosławiu? Gmina po raz 3 próbuje sprzedać nieruchomość
--  Гуманисты и патриоты. В чем разница между философиями, которые определяют конфликт вокруг человека
--  Ursache für Feuer im Knast steht fest: Polizei ermittelte in JVA Meisenhof
--  Equilor Alapkezelő: újra lendület jöhet a részvénypiacokon
--  Newey devrait prendre 'un rôle hors F1' chez Red Bull 'à moyen terme'
--  LIVE NOW: It's Friday, Jan. 26 and our top stories in Mississauga, Brampton and Caledon include a possible mayoral byelection date for Mississauga, Tamil Heritage Month celebration at Brampton City Hall, big lottery prize for Caledon woman
--  Ex Tottenham Midfielder Brands France FIFA World Cup Finalist An “Extraordinary Signing For Inter Milan”
+-  Sechs ex-jugoslawische Staaten planen Gedenkort in Auschwitz
+-  Румунія відмовилась від участі в Євробаченні-2024
+-  ΑΑΔΕ: Παράταση ως 2/2 για τιςς δηλώσεις Ειδικού Φόρου Πολυτελείας
+-  Bob Dylan expone "El camino trillado", sus grabados sobre el paisaje estadounidense
+-  Постановка на боевое дежурство в РВСН комплекса "Сармат" планируется в этом году
+-  Mediji: Apstiprināta 43 000 krievu karavīru bojāeja Ukrainā
+-  L'entraîneur de Liverpool Jürgen Klopp annonce son départ en fin de saison
+-  Can Ataklı'nın şehit babasına yönelik sözleri nedeniyle 3 yıl kadar hapsi istendi
+-  Bakan Uraloğlu Trabzon’da o projenin son durumunu sordu!
+-  Мъж и жена стреляха по кола с въздушен пистолет в Костинброд, опитаха да избягат пеша
