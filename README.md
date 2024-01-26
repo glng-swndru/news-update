@@ -1,11 +1,11 @@
 # Latest News
--  Horacio Velutini es el nuevo presidente de la Bolsa de Valores de Caracas
--  Daily Quiz | On Indian Presidents
--  Olasz agrár- és élelmiszeripari szövetségek delegációját fogadta az iparpolitikáért felelős államtitkár
--  Vatan Partisi 126 adayını açıkladı!
--  Plenković: Poljoprivreda je u fokusu djelovanja Vlade
--  Fantacalcio, i consigliati "classic" e "mantra" della 22^ giornata. Ci sono due granata, uno per ogni formazione
--  Estado peruano deja sin leche a los niños
--  ABD F-16'ları verecek mi? Cumhurbaşkanı Erdoğan'dan açıklamalar
--  Atlikėja Migluma pristato kūrinį „Vilnija Vilnia“: jį skiria sostinės gimtadieniui
--  L'évolution de la vie des agriculteurs sur trente ans en 10 chiffres
+-  Feux d'artifices et fumigènes: les folles images du Rallye de Monte-Carlo pour le début du championnat du monde WRC
+-  Näyttelyarvio | Lauri Laineen maalausten salaperäiset naiset lainaavat tyylinsä renessanssista
+-  Sobranje S. Makedonije konstatovalo ostavke premijera i predsjednika parlamenta
+-  „Eldrive Holding“ Lietuvoje įrengs 2,6 tūkst. naujų elektromobilių stotelių
+-  Elazığspor, Rize'ye gitti
+-  Kaarinan sisäiset linjat ajettaneen normaalisti lakosta huolimatta
+-  Wirtschaftszweig der Zukunft: Langes Warten auf die EU: Wann kommt der Wasserstoff aus Fenne?
+-  Esperti, 'metà dei disturbi mentali compare prima dei 18 anni'
+-  VfB Stuttgart: Kranzniederlegung an Gedenkstele
+-  Feux d'artifices et fumigènes: les folles images du Rallye de Monte-Carlo pour le début du championnat du monde WRC
