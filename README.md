@@ -1,11 +1,11 @@
 # Latest News
--  丁學文／地緣政治摧毀全球化 2024全球貿易大亂流
--  與賴清德交換政局看法 林佳龍：討論不涉及未來人事
--  Shania Twain reacts to SHIRTLESS Jason Kelce
--  Khách chuộng thuê nhà trong nửa đầu năm 2024 vì không đủ tiền mua
--  No-show Republicans delay decision on paid family and medical leave
--  DEBATT: Nya hot mot Bergslagens natur
--  Ankara'da kar yağışı başladı
--  Takiej owsianki jeszcze nie jadłeś. Sekret tkwi w jednym składniku
--  Á hậu Thùy Dung lần đầu đóng phim với Ước mình cùng bay
--  DEBATT: Nya hot mot Bergslagens natur
+-  Aile katliamı göz göre göre gelmiş! Sana öyle bir acı yaşatacağım ki! 'İnşaallah 3. sayfa haberi olmam'
+-  玉造温泉で最大規模「ホテル玉泉」東京の不動産関連企業に事業を譲渡（島根・松江市）
+-  Ceneje ne gre!
+-  Ghum Hai Kisikey Pyaar Meiin spoiler: Ishaan, Savi's marriage truth revealed; Reeva slaps the former for betraying her
+-  シリーズ最新作『風来のシレン６』発売中！モンスターに変身できるアイテムも登場
+-  Editorial: Una receta ‘tuca’ contra la delincuencia
+-  Atiku to Tinubu: You Owe Nigerians Explanation on $3.3bn NNPC Emergency Loan
+-  Zu viel Leerstand in der Stadt - doch eine Abteilung schafft Abhilfe. Und setzt auf Künstler ...
+-  REPORTAGE. A Tyr, au Liban, "personne ne veut revivre la guerre, mais tout le monde a peur qu'elle resurgisse"
+-  New Titans coach Brian Callahan ready to call plays for QB Will Levis
