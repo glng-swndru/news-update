@@ -1,11 +1,11 @@
 # Latest News
--  Uncertainty returns in Bihar as Nitish Kumar again 'weighs options'
--  تیراندازی به پاسگاه انتظامی "شور" در زاهدان/ عوامل تروریستی متواری هستند
--  Masters of The Universe: Revolution is Now on Netflix
--  Le service psychiatrique infanto-juvénile de Chartres en grève ce jeudi
--  Le service psychiatrique infanto-juvénile de Chartres en grève ce jeudi
--  Ex-WWE's Vince McMahon accused of defecating on woman, sex trafficking and naming dildos
--  Son dakika… Datça’da deprem
--  В Турции назвали последствие продолжения войны в Газе
--  Republic Day 2024 Parade Today, India To Showcase Its Growing Nari Shakti, Military Might
--  Мать 14-летней фигуристки рассказала о падении дочери головой об лед
+-  Massenvertreibungspläne der Rechtsextremisten: Marine Le Pen distanziert sich von der AfD
+-  Yeşilçam'ın 'Kötü adamı' Hikmet Taşdemir hayatını kaybetti
+-  Se avanza en el mantenimiento de los desagües de la ciudad Capital
+-  My New Favorite Song Sounds Like Olivia Rodrigo, But Political (and British)
+-  【芸人社長が教える】事業責任者のたった1つのミッションとは？ - スタートアップ芸人
+-  Con "Jaque Mate", vuelve al cine la dupla de "Poliladron" y "Comodines"
+-  ‘Karmma Calling’ review: The screen version of junk food
+-  Sofia Vergara szó szerint bekussoltatta Kelly Clarksont a saját tévéműsorában
+-  El Ayuntamiento de Barcelona da voz al pádel
+-  Farewell to South-East Asia: Behind the scenes of a crazy three years
