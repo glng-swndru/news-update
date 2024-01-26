@@ -1,11 +1,11 @@
 # Latest News
--  Šifrer in drugi znani imajo veliko težavo: Če kdo zna odkriti packa, ki to počne, mu bom hvaležen
--  「年賀状は届いているのに…」被災地での郵便引き渡し再開 安否不明の友人から届いた“年賀状”【能登半島地震】
--  Nga ra đòn khiến người giàu nhất Ukraine cay đắng
--  Британская MI6 готовит украинских диверсантов для атак на российские АЭС - Сергей Нарышкин
--  Земельные участки на сумму 95 миллионов тенге возвращены государству в области Жетісу
--  Cricket-Ravindra gets New Zealand test call-up for South Africa series
--  Ельцин заявлял о необходимости вступления России в НАТО в случае расширения
--  Bihar Political Crisis: बिहार में BJP की सरकार बनी तो रेनू देवी हो सकती हैं मुख्यमंत्री पद की प्रबल दावेदार
--  Pelakon kecewa Margot Robbie, Greta Gerwig, gagal lolos pencalonan Oscar
--  Во Владимире из огня спасли 15 человек
+-  丁學文／地緣政治摧毀全球化 2024全球貿易大亂流
+-  與賴清德交換政局看法 林佳龍：討論不涉及未來人事
+-  Shania Twain reacts to SHIRTLESS Jason Kelce
+-  Khách chuộng thuê nhà trong nửa đầu năm 2024 vì không đủ tiền mua
+-  No-show Republicans delay decision on paid family and medical leave
+-  DEBATT: Nya hot mot Bergslagens natur
+-  Ankara'da kar yağışı başladı
+-  Takiej owsianki jeszcze nie jadłeś. Sekret tkwi w jednym składniku
+-  Á hậu Thùy Dung lần đầu đóng phim với Ước mình cùng bay
+-  DEBATT: Nya hot mot Bergslagens natur
