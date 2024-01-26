@@ -1,11 +1,11 @@
 # Latest News
--  Named Australia’s best pie, you can now make this treat at home
--  Juiz condena Vale, BHP e Samarco a pagarem R$ 47,6 bi por Mariana
--  Helena kicks off count of its homeless population
--  2 WNA India Pembunuh Pria Jakarta Diganjar 7,5 Tahun Penjara
--  Cận Tết giá bưởi xuống thấp, thịt lợn siêu thị rẻ hơn chợ
--  Top court restores activist’s conviction over banned vigil on Tiananmen
--  섬 마을 추가 진료 확대 등 경남도 병원선 새해 힘찬 출항
--  DN cảng biển mới niêm yết trên HoSE: Cổ phiếu tăng trần 6 phiên liên tiếp, lợi nhuận năm 2023 tăng hơn 150%
--  Manitoba, Saskatchewan raise concerns about expanding eligibility for assisted dying
--  한국타이어, 아이온 장착한 '포뮬러 E 2024 디리야 E-PRIX' 경기 개최
+-  Spurs star Son lauds Harimau Malaya's tenacious ingenuity
+-  U.S. economy sees faster-than-expected growth
+-  Trẻ mắc viêm tiểu phế quản khi nào cần gặp bác sĩ?
+-  Persiba vs Persijap Jepara, Laskar Kalinyamat Incar Poin Penuh di Kandang Beruang Madu
+-  à¶½à·’à¶§à·Šâ€�à¶»à·� à¶œà·‘à·ƒà·Š à¶­à·€à¶­à·Š à¶šà·�à¶§à·’ 150à¶šà·Š à¶·à·�à¶«à·Šà¶©à·�à¶œà·�à¶»à¶ºà¶§ à¶ºà·€à¶ºà·’
+-  iPhone sideloading is coming, but there’s no sign of it in iOS 17.4 beta 1
+-  ලිට්‍රෝ ගෑස් තවත් කෝටි 150ක් භාණ්ඩාගාරයට යවයි
+-  کاهش فرسودگی و مصرف سوخت و افزایش عمر تایرها دستاورد نانویی ۵ شرکت دانش‌بنیان
+-  久保建英にリバプール「接触」か
+-  Etibarnamə ilə avtomobil alanlara XƏBƏRDARLIQ
