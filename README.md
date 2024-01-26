@@ -1,11 +1,11 @@
 # Latest News
--  Chuva no litoral abre cratera em São Sebastião e faz Santos colocar morros em atenção
--  "Un capricho ideológico": la oposición argentina critica a Milei por rechazo a los BRICS
--  «أكشن» وتشويق ورعب في صالات السينما هذا الأسبوع
--  D100'de otomobil bariyere çarptı: 2 ölü, 1 yaralı
--  Procurado de cidade no Nortão morre em confronto com a PM em Cuiabá
--  Otomobil 15 metreden anayola düştü: İki kişi hayatını kaybetti!
--  Lancement du projet incubateur d’entreprises culturelles : 1 milliard 300 millions dégagés pour renforcer l’automatisation au Sénégal.
--  Chuva no litoral abre cratera em São Sebastião e faz Santos colocar morros em atenção
--  වසරේ එක්දින ක්‍රීඩිකාව චමරි
--  Sprinklers were to be reset the day a Vancouver rooming house fire killed 2: inquest (BC)
+-  Named Australia’s best pie, you can now make this treat at home
+-  Juiz condena Vale, BHP e Samarco a pagarem R$ 47,6 bi por Mariana
+-  Helena kicks off count of its homeless population
+-  2 WNA India Pembunuh Pria Jakarta Diganjar 7,5 Tahun Penjara
+-  Cận Tết giá bưởi xuống thấp, thịt lợn siêu thị rẻ hơn chợ
+-  Top court restores activist’s conviction over banned vigil on Tiananmen
+-  섬 마을 추가 진료 확대 등 경남도 병원선 새해 힘찬 출항
+-  DN cảng biển mới niêm yết trên HoSE: Cổ phiếu tăng trần 6 phiên liên tiếp, lợi nhuận năm 2023 tăng hơn 150%
+-  Manitoba, Saskatchewan raise concerns about expanding eligibility for assisted dying
+-  한국타이어, 아이온 장착한 '포뮬러 E 2024 디리야 E-PRIX' 경기 개최
