@@ -1,11 +1,11 @@
 # Latest News
--  Bundeswehrpilot mit Laser bei Blaufelden geblendet: Polizei ermittelt
--  La película de hoy en TV en abierto y gratis: Sylvester Stallone muy bien acompañado de Viggo Mortensen y Jason Momoa
--  مدير عام مديرية صيرة يتفقد سير العمل في عدد من المشاريع الجاري تنفيذها بالمديرية
--  İşte faiz kararı sonrası Dolar, Euro ve altında son durum
--  Eintracht möchte sich mit Sieg gegen Mainz „oben festbeißen“
--  عدن.. افتتاح بنك القاسمي للتمويل الأصغر كأحد المشاريع المصرفية النوعية في المدينة
--  بعد قصف ملجأ الأمم المتحدة في غزة...بلينكن يكرّر طلبه من إسرائيل حماية المدنيين
--  Renta socjalna mocno wzrośnie? Ustawa trafiła do komisji
--  Đang giám sát Apax Leaders của shark Thủy
--  Eintracht möchte sich mit Sieg gegen Mainz „oben festbeißen“
+-  Koronavirüs aşısı olanlara tazminat ödeniyor!
+-  FDA Issues Another Warning on Tianeptine Products, Which Can Cause Seizures and Death
+-  **Pd: Schlein insiste su sanità e sfida Meloni su Mo, 'voti nostra mozione'**
+-  Boeingmodell kan få flyga igen efter dörrolycka
+-  FRANCUZ VERAN ČUVENOM TIMU: Šarl Lekler produžio ugovor sa Ferarijem
+-  Министър Радев: Започнахме процедура за блок 8 на АЕЦ „Козлодуй”
+-  Qatar University to become a member of the WHO EMRO Youth Council
+-  Teruel capital vuelve a batir por segundo día consecutivo el récord de calor en enero: 22,8 grados
+-  Tourismus in Ludwigsburg wird digitaler: Weniger stationäre Tourismus-Info in Ludwigsburg
+-  Im Februar: Dieses Topspiel der DEG überträgt DF1 live im Free-TV
