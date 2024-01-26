@@ -1,11 +1,11 @@
 # Latest News
--  Po sporu s Čeferinom zapušča Uefo, svetovni mediji: Nogometna Evropa je pretresena
--  Das brisante Wiedersehen : Grammozis über Schalke, den FCK und den schwierigen Spagat
--  Fani Willis Can't Make Mistakes as a Professional Black Woman, But Trump Should be President?
--  Young Kelowna couple possibly experiencing homelessness missing
--  NYC Mayor Calls Social Media an 'Environmental Toxin,' Announces It on Social Media
--  Cathie Wood Goes Bargain Hunting: 3 Stocks She Just Bought This Week
--  Reuniones del BID en RD serán clave para el desarrollo sostenible
--  Areenat | Iltalehti: Helsinki-hallilla rästissä jättisumma
--  Hailey Bieber Launches Rhode Cleanser and It's Sunshine in a Bottle
--  Comment le cirque Zavatta compte attirer le public à Dreux ?
+-  La terapia genica restituisce l’udito a un bambino nato sordo
+-  El Ibex 35 cierra con una caída del 0,58% tras la reunión del BCE y con la banca en 'rojo'
+-  Toboggan joyride sends B.C. teen to hospital
+-  GDL-Streik: FDP will Lokführer durch KI ersetzen – so realistisch ist das wirklich
+-  Nicht "Are You the One?"-Lisa: Paulo ist in einer Beziehung!
+-  La meilleure classe du XRK Stalker dans MW3 : accessoires, atouts, équipements
+-  Şimal Yılmaz'dan Türkiye rekoru
+-  Polisi şehit eden sanığın ifadesi ortaya çıktı
+-  На кону судьба мира: Байден радуется победе Трампа
+-  زلزال بقوة 5.2 ريختر يضرب جنوب شرق تركيا
