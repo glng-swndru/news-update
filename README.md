@@ -1,11 +1,11 @@
 # Latest News
--  "Tú tài" thời xưa tương đương với trình độ học vấn nào ở thời hiện đại?
--  Alexandra Lencastre e Fernanda Serrano: um encontro de titãs em 'Cacau'
--  Finance Accounting Business Process Outsourcing Market to grow at 7.85% CAGR from 2023 to 2028, Accenture Plc, Alight Solutions LLC, Amdocs Ltd. among Key Contributors to growth - Technavio
--  1 loại thịt chứa nhiều omega-3 là "thuốc" hạ đường huyết, dưỡng gan, bổ máu hiệu quả: Ở chợ Việt có nhiều nhưng ít người biết
--  'Thou Shalt Not Steal'; poem by Gumbainngirr Elder Uncle Roger Jarrett
--  Rapper Lil Dicky Splashes Out Millions for Kenny G’s Longtime L.A. Compound
--  Rui costa avisa jogadores depois de derrota com o Estoril
--  Pokémon Scarlet And Violet New Tera Raid Battle & Mass Outbreak Now Live
--  Board of Ed renews charter contracts, as CTU threatens strikes at 2 schools
--  Bebé de dois anos ferido em colisão entre dois carros em Carregal do Sal
+-  Bank DKI Kerja Sama dengan UNPAD dan Politeknik STIA LAN, Permudah Transaksi Sektor Pendidikan
+-  "양국 관계를 선진국 수준으로 끌어올리기 위해 노력할 것 입니다"
+-  'House tour' ông ngoại Tun Phạm, hé lộ CĂN PHÒNG đặc biệt khiến dân tình thán phục: 'Con nhà tông không giống lông cũng giống cánh’!
+-  「各方弟兄姊妹希望我帶領黨團」 傅崐萁：黨中央有介入早滿城風雨
+-  Đáp lại lời khen, người EQ thấp tự cao, người EQ cao kịp “nảy số” bằng 5 cách hành xử tinh tế
+-  김의영, 정통 트로트로 돌아온다…2월 2일 신곡 발표
+-  전청조-남현희 동부구치소서 3차 대질조사…공모 여부 규명에 초점
+-  「常態化しかねないと懸念の声」 嘉手納町議会が抗議 米軍のパラシュート降下訓練で - 沖縄タイムス＋プラス ニュース
+-  Pabriks: mēs vairs neflirtējam ar kreisumu
+-  বোর্ড পরীক্ষার প্রস্তুতির ১০টি কার্যকর অভ্যাস
