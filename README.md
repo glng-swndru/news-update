@@ -1,11 +1,11 @@
 # Latest News
--  Delighting in Orientals
--  Elektroauto chancenlos? Toyota-Boss prophezeit Marktanteil von nur 30 Prozent
--  Insändare: Tocco Lexi är också ett funktionshinder
--  Dam go-ahead sparks Clutha rush
--  Feeling the Burns across Moray
--  Nataša Ninković i Ljuba Bandović od ovog vikenda pridružuju se ekipi "Kože"
--  Letters to Editor: Vehicles on beaches, parliamentary term
--  Nya ägaren vill byta namn på Söderfors herrgård
--  Giữ trực thăng tại căn cứ 'bí mật' ở Crimea?
--  경찰, '배현진 습격' 미성년자 응급입원 조치
+-  Fico: Koalícia predloží k novele Trestného zákona pozmeňovacie návrhy
+-  Vale (VALE3) tem quatro barragens em zona de alto risco na região de Brumadinho, diz estudo
+-  Verkauf auch in Deutschland? Offenbar gefälschter Käse im Umlauf
+-  Napoli, Perez quinto acquisto: due resteranno fuori dalla lista Uefa, il motivo
+-  Giresun'un artık yeni bir ismi daha var! İşte yapay zekanın Giresun için önerdiği yeni isim
+-  Plantas para atraer la suerte: matas que debería tener en su casa, según el Feng Shui
+-  Rotam prende trio por cultivo de pés de maconha em Mato Grosso
+-  HyperOS od Xiaomi je na pohled přebarvené MIUI 14. Našli jsme jen několik rozdílů
+-  Neuer Schuldneratlas von Creditreform: Erneut weniger überschuldete Haushalte in Stuttgart und der Region
+-  Mirė žinoma JAV dainininkė, hipių eros žvaigždė Melanie
