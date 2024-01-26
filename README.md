@@ -1,11 +1,11 @@
 # Latest News
--  The New Highland Clearances: Herald series starts on Monday
--  Potensi Perikanan dan Kelautan dalam Al-Quran
--  AAI recruitment deadline today for 119 Jr Assistant, Sr Assistant posts; here’s how to apply
--  CLERHP: "Afrontamos un momento único en nuestra historia. Vamos a construir una ciudad desde cero"
--  Д-р Наталия Конова: Има голям смисъл от скрининговите кампании - Труд
--  Кристофър Нолан - Филмов гръмовержец - Труд
--  Stade Rochelais Basket : tous les épisodes de notre série « Temps-mort »
--  Straßen: Diese „üble Rumpelpiste“ ist bald Vergangenheit - aber auch andernorts wird saniert
--  « Ce sont des sujets encore très tabous » : Anne Pouffary, joue dans les « Monologues du Vagin » ce dimanche à Vannes
--  TPP Tak Kunjung Cair, ASN Kota Bogor Menjerit
+-  La versión más goleadora y letal de Oyarzabal
+-  "트럼프, 바이든과 양자 대결서 6%p 리드"
+-  “남친 살해했다” 온라인에 허위 글 올린 30대 벌금형 집유
+-  Krieg in Nahost: Vorentscheidung im brisanten Völkermord-Prozess erwartet
+-  "Macht das Land kaputt": Warum Unternehmen aus München kein Verständnis für den Streik haben
+-  Cas en Pim gehuldigd voor redden verdrinkende klasgenoot: "Geen moment getwijfeld"
+-  Newsblog: Weiter Rätsel um Flugzeugabsturz in Russland
+-  Δράση σε «Αμμόχωστος» και «Στέλιος Κυριακίδης» (Πρόγραμμα & Βαθμολογία)
+-  Thai export growth misses forecast in Dec, small rise seen in 2024
+-  Macron et la catharsis
