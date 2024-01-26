@@ -1,11 +1,11 @@
 # Latest News
--  Senate deal on border and Ukraine on brink of collapse as Trump pushes stronger measures
--  Tearful manager pleads for training in wake of fatal B.C. rooming house fire
--  Осужденный за сексуальное насилие над детьми монах назвал жертв «невменяемыми»
--  『おっさんずラブ‐リターンズ‐』第4話 “春田”田中圭、お尻が拭けない義父の世話をしに行く
--  《日本奧斯卡》哥吉拉-1.0入圍12項大贏家
--  農保公開賽》俞俊安銳不可當 首輪一枝獨秀
--  She was 36, he was 13; their scandalous affair is now an unsettling film
--  國民黨敗訴確定 中投、欣裕台156億元股權 收歸國有
--  시민덕희’에 표창원이?…전문가 특별출연, 범죄영화 몰입도 높인다
--  Van Gogh Museum Fires Four Employees Following Pokémon Collaboration
+-  Equador destrói 22 toneladas de cocaína apreendidas em sua maior operação antidrogas
+-  У ЗСУ попередили про загрозу удару з Чорного моря
+-  Modugno: "Napoli, possibile nuovo allenatore: ADL ha tre opzioni"
+-  [상보] 뉴욕증시, 미국 GDP 증가율 호조에 상승…다우 0.64%↑
+-  HERCEGOVAČKI MODNI DIZAJNER "Pronašao sam mir, kada ste s Bogom dogodi se ona prirodna selekcija"
+-  Τζούλιαν Μουρ: Πρωταγωνιστεί στην πρώτη μεγάλου μήκους αγγλόφωνη ταινία του Πέδρο Αλμοδόβαρ
+-  PSNI launches investigation into threats against DUP leader Sir Jeffrey Donaldson
+-  Kim Kardashian Makes Her Grand Entrance at Fashion Week in a Naked Dress
+-  Secretaria de MT divulga resultado preliminar de seleção de professores para intercâmbio
+-  インドが「新たな中国」ではない理由
