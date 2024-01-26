@@ -1,11 +1,11 @@
 # Latest News
--  Sofia Richie und Elliot Grainge: Die beiden werden zum ersten Mal Eltern
--  Trump declara en juicio por difamación tras sus victorias en las primarias
--  Alba schlägt Belgrad - Sorge um Thiemann
--  Solicitada: Intendentes y comisionados tucumanos del PJ acompañan las decisiones políticas de Jaldo
--  Subastarán un cuadro de Gustav Klimt, redescubierto después de casi 100 años
--  Solicitada: legisladores justicialistas le expresan su apoyo a Jaldo
--  Bitcoin ETFs come with risks. Here’s what you should know
--  Sofia Richie und Elliot Grainge: Die beiden werden zum ersten Mal Eltern
--  Abin foi usada para monitorar promotora do caso Marielle, diz PF
--  "Nitko da prstom makne! Od početka listopada Vodovod nije vratio u prvobitno stanje ovu iskopinu na Bilom brigu"
+-  Senate deal on border and Ukraine on brink of collapse as Trump pushes stronger measures
+-  Tearful manager pleads for training in wake of fatal B.C. rooming house fire
+-  Осужденный за сексуальное насилие над детьми монах назвал жертв «невменяемыми»
+-  『おっさんずラブ‐リターンズ‐』第4話 “春田”田中圭、お尻が拭けない義父の世話をしに行く
+-  《日本奧斯卡》哥吉拉-1.0入圍12項大贏家
+-  農保公開賽》俞俊安銳不可當 首輪一枝獨秀
+-  She was 36, he was 13; their scandalous affair is now an unsettling film
+-  國民黨敗訴確定 中投、欣裕台156億元股權 收歸國有
+-  시민덕희’에 표창원이?…전문가 특별출연, 범죄영화 몰입도 높인다
+-  Van Gogh Museum Fires Four Employees Following Pokémon Collaboration
