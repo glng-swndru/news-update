@@ -1,11 +1,11 @@
 # Latest News
--  Dank Hilfe von Polizeihund: Zwei Einbrecher verhaftet
--  GDE JE ĐINA DŽINOVIĆ DOK JOJ SE RODITELJI RAZVODE? Od sramote navukla kapuljaču na glavu, pa istrčala iz kuće u nepoznato vozilo
--  中国株の深刻な低迷、政治問題に - WSJ PickUp
--  Çanakkale'de düzensiz göçmen operasyonu! 32 kişi yakalandı
--  LIVEBLOG UNION-ANDERLECHT. Schmeichel gaat volledig de mist in bij uitvoetballen, maar Union straft dat niet af!
--  SOLV Metals Division Welcomes Wisconsin Metal Parts Team
--  CAN 2024 : Ils ont tremblé jusqu'au bout !
--  Förståndshandikappad utsattes för brutal vanvård och sexuella övergrepp
--  Brad Pitt facelift rumours go viral after doctor’s TikTok video explodes on internet
--  Експеримент с убиец! В САЩ екзекутират за първи път с азот (Обзор, графика)
+-  PFDK kararları açıklandı: İsrailli futbolcuların cezası belli oldu
+-  Gérald Darmanin : "On ne répond pas à la souffrance des agriculteurs en envoyant des CRS. Je les laisse faire"
+-  PFDK kararını açıkladı: İsrailli futbolcuların cezası belli oldu
+-  Шахтар - Лех 3:1: огляд матчу ВІДЕО
+-  Спрян за проверка подаде сигнал на 112, че полицаи му искат 100 лв. подкуп
+-  Sjajne vesti za radnike: Mnogi zaposleni dobiće na platu još 500 evra
+-  EastEnders spoilers: Keanu Taylor’s murder ‘set to be exposed’ as evil Nish Panesar uncovers shocking truths
+-  JOŠ LOŠIH VESTI ZA ZELENSKOG: Isporuke oružja sa Zapada sve "siromašnije", od dogovorene količine nije dostavljeno ni pola
+-  Pacheco diz que Valdemar 'passa pano' para impeachment de ministro do STF nos bastidores
+-  Gérald Darmanin : "On ne répond pas à la souffrance des agriculteurs en envoyant des CRS. Je les laisse faire"
