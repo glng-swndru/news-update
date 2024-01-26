@@ -1,11 +1,11 @@
 # Latest News
--  مجلس عدن الوطني ينظم (برنامج رحلة التغيير معنا )
--  Hunderte Güterzüge direkt an den Häusern vorbei: Anwohner in München trauen Lösung der Deutschen Bahn nicht
--  Сенат Італії ухвалив рішення щодо зброї для України
--  Djaló e la scelta fra Inter e Juve: «Sono in un grande club con molta storia»
--  衛冕軍大翻船！光復8強首戰不敵南山 中斷跨季32連勝
--  "NE VERUJEM ANELI DA JOJ JE STANIJA PREOTELA DEČKA" Taki bez dlake na jeziku: Nimalo se nije dobro pokazala, TANKA JOJ JE PRIČA
--  Bağımlılık tedavisi görenlerin yaptığı eserler sergilendi
--  Vĩnh Long: Truy bắt nghi phạm bắn 1 người chết, 2 người trọng thương
--  El gobierno prepara una "reforma integral del sistema tributario" para 2025
--  Ali Eyüpoğlu ve Selin Ciğerci birbirine girdi! Canlı yayında ortalık karıştı
+-  Závody Formule 1 odvysílají nové kanály Nova Sport 5 a Nova Sport 6
+-  Gaffar Okkan ve 5 polisin şehit edildiği pusuda gazi olmuştu, 23 yıl önceki o anı böyle anlattı
+-  Teilzeitarbeit führt zu wesentlichen Einbussen in der Vorsorge
+-  Μαρινάκης για ομόφυλα ζευγάρια: Σεβόμαστε τις αποφάσεις της Εκκλησίας, αλλά προχωρούμε μπροστά
+-  Akhisar'da zeytin budama kursunu tamamlayanlara sepet dağıtıldı
+-  100 Millionen Passwörter kursieren im Netz: So überprüfen Sie, ob Sie betroffen sind
+-  Tesla-Aktie unter Druck: Tesla erleidet Gewinneinbruch
+-  Gelinim Mutfakta kim birinci oldu? Gelinim Mutfakta 25 Ocak puan durumu
+-  Общините финалисти в петото издание на конкурса „Нестле за Живей Активно!“ са Ардино, Дряново, Шабла и Девня
+-  Baltijas kausā šogad piedalīsies arī Fēru salu izlase
