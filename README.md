@@ -1,11 +1,11 @@
 # Latest News
--  Nek im služi na čast! Karađorđevići neće Pavlinu, ali hoće Severinu!
--  Coyotes try to break road losing streak, face the Hurricanes
--  Zmiany w Straży Granicznej. Jest już następca Anny Michalskiej
--  CANİK Amerika'da güvenlik güçlerine görev tabancası üretmeyi hedefliyor
--  [속보] 법원 "양승태 '정운호 게이트' 검찰총장 압박 인정 안 돼"
--  Süni intellektə investisiya yatıran şirkətlərlə bağlı araşdırma başladı
--  Padma Shri Eklabya Sharma: The Ecological Guardian of the Himalayas
--  Биограф Владимира Зеленского Шустер раскрыл детали мирных переговоров Москвы и Киева в 2022 году
--  Salud observa paridad entre casos de dengue y covid
--  Abang rambut perang dapat hadiah motosikal RS150
+-  Urška Vučak Markež na potepu z Leo razkrila marsikaj
+-  Festival: Die Warsteiner Montgolfiade findet im Jahr 2024 nicht statt
+-  Could CBDCs help prevent fraud?
+-  UŽIVO Medvedev produžio prvi set
+-  「彼女が楽しそうに話す姿をいくつになっても見ていたい」 夫婦げんかせず、怒られた時はイチゴで謝る夫
+-  Kauppalehti seuraa tiiviisti vaali-iltaa sunnuntaina
+-  Liam Hickey praises decision to reward Paralympic champs with cash, like Olympians
+-  U Kamernom teatru 55 počeo rad na predstavi "Malograđanska svadba"
+-  Kocaelispor için her maç final
+-  Superlega: Ceferin, 'è contro ogni logica del calcio'
