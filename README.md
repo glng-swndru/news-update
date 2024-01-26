@@ -1,11 +1,11 @@
 # Latest News
--  Equador destrói 22 toneladas de cocaína apreendidas em sua maior operação antidrogas
--  У ЗСУ попередили про загрозу удару з Чорного моря
--  Modugno: "Napoli, possibile nuovo allenatore: ADL ha tre opzioni"
--  [상보] 뉴욕증시, 미국 GDP 증가율 호조에 상승…다우 0.64%↑
--  HERCEGOVAČKI MODNI DIZAJNER "Pronašao sam mir, kada ste s Bogom dogodi se ona prirodna selekcija"
--  Τζούλιαν Μουρ: Πρωταγωνιστεί στην πρώτη μεγάλου μήκους αγγλόφωνη ταινία του Πέδρο Αλμοδόβαρ
--  PSNI launches investigation into threats against DUP leader Sir Jeffrey Donaldson
--  Kim Kardashian Makes Her Grand Entrance at Fashion Week in a Naked Dress
--  Secretaria de MT divulga resultado preliminar de seleção de professores para intercâmbio
--  インドが「新たな中国」ではない理由
+-  Tulipalot | Vanha baari tuhoutui Pälkäneellä
+-  Jelena Dokic’s gesture with Aussie Open champ is pure class.
+-  Padma Awards 2024: Padma Shri conferred to 7 individuals in the fields of Science and Engineering
+-  Hezonja ubacio 16 koševa u novoj pobjedi Reala
+-  Jelena Dokic’s gesture with Aussie Open champ is pure class.
+-  Jelena Dokic’s gesture with Aussie Open champ is pure class.
+-  Pape Matar Sarr sur la Côte-d’Ivoire : « On va aborder ce match de la meilleure des façons ! »
+-  Exploring Muons' Site-Switching in Antiferromagnetic Oxides - Mirage News
+-  أتلتيكو مدريد يتأهل لنصف نهائي كأس ملك إسبانيا على حساب إشبيلية
+-  Así suenan dos galaxias interactuando; NASA comparte singular VIDEO
