@@ -1,11 +1,11 @@
 # Latest News
--  Paimiolaiskoulu kielsi kännykät ja saattaa saada siitä hyvästä palkinnon
--  Kiikalan asukkaalta: Jäähyväiset kesäiltojen rauhalle
--  Pentingnya Menggunakan Shea Butter untuk Kulit dan Rambut
--  Clip 4 giây tóc gió thôi bay tôn lên visual toát ra "mùi tiền" của Song Hye Kyo ở show Fendi khiến MXH dậy sóng
--  Partage d’expérience au forum des métiers du collège de Paopao
--  صفقات الاتفاق القوية في نهاية الميركاتو الشتوي
--  大学受験で6浪した原千晶アナが初告白 「浪人時代、連絡手段は文通と公衆電話でした」
--  B.C. businesses pinched by Chinaâ€™s cooling economy (BC)
--  Schock in Kummerfeld – beliebter Coach nimmt seinen Hut
--  新NISAで人気集中「オルカン」頼みでいいの？ 投資の初心者が心得えておくべき点は
+-  Nguồn cung bất động sản sẽ tăng?
+-  Năm Giáp Thìn 2024 có 2 con giáp đột phá mạnh mẽ trong sự nghiệp: Nắm bắt tốt thì tiền vào như nước
+-  「他にも複数が大麻を使用している」と供述 福山大学サッカー部大麻事件 大麻まん延の疑い
+-  越南政府发布2024年厉行节约反浪费总体计划
+-  Shadow Of The Ninja Remake Locks In 'Summer 2024' Switch Release
+-  Nhật Bản xác nhận tàu Mặt Trăng đáp lộn ngược, có thể "chết"
+-  Gazze'deki Sağlık Bakanlığı: İsrail rekor sayıda soykırım suçu işlemek için açlık silahını kullanıyor
+-  Lappeenrannan päättäjät ehdottavat jo pehmennyksiä virkamiesten koulujen lakkauttamisesityksiin
+-  صراع كبير على نجم الاتحاد جوتا في الميركاتو
+-  焼け跡から2人の遺体 小城市で火事 住宅2棟を全焼 【佐賀県】
