@@ -1,11 +1,11 @@
 # Latest News
--  Силно земетресение удари Турция
--  Anelka postao direktor u Turskoj
--  Joković: Kreiraćemo brendove i radićemo na promociji proizvoda
--  Végre egy nyugati politikus, akinek Orbán Viktor is örülni fog: Magyarországra látogat a szélsőjobbos Geert Wilders
--  EKP jatkoi kireää linjaa asuntolainoissa – ohjauskorot ennalleen
--  Путин отметил важность помощи волонтёров жителям Донбасса и Новороссии
--  Masowe zatrzymania na Białorusi. MSZ apeluje o sankcje
--  Na protestoch hrozil bombovými útokmi, NAKA zadržala podozrivú osobu
--  Rugby - “L’Ovale de Saône-et-Loire”. Saint-Martin-du-Lac, le Petit Poucet du rugby bourguignon aux grandes ambitions
--  Posebno sagledati stav kandidata za VDT-a prema ratnim zločinima
+-  مجلس عدن الوطني ينظم (برنامج رحلة التغيير معنا )
+-  Hunderte Güterzüge direkt an den Häusern vorbei: Anwohner in München trauen Lösung der Deutschen Bahn nicht
+-  Сенат Італії ухвалив рішення щодо зброї для України
+-  Djaló e la scelta fra Inter e Juve: «Sono in un grande club con molta storia»
+-  衛冕軍大翻船！光復8強首戰不敵南山 中斷跨季32連勝
+-  "NE VERUJEM ANELI DA JOJ JE STANIJA PREOTELA DEČKA" Taki bez dlake na jeziku: Nimalo se nije dobro pokazala, TANKA JOJ JE PRIČA
+-  Bağımlılık tedavisi görenlerin yaptığı eserler sergilendi
+-  Vĩnh Long: Truy bắt nghi phạm bắn 1 người chết, 2 người trọng thương
+-  El gobierno prepara una "reforma integral del sistema tributario" para 2025
+-  Ali Eyüpoğlu ve Selin Ciğerci birbirine girdi! Canlı yayında ortalık karıştı
