@@ -1,11 +1,11 @@
 # Latest News
--  Cedevita Olimpija in krilni center vsak svojo pot
--  Cezaevi’nden mektup var
--  EVO KAKO SEJO KALAČ DANAS IZGLEDA Isplivao prvi snimak pevača nakon privođenja i brojnih skandala
--  Kocaeli'de "Gönülden Gönüle" projesinde hane ziyaretleri sürüyor
--  Путин похвалил премьера Индии
--  Горя апартамент в столичния квартал „Слатина” - Труд
--  Helin’in annesi Zişan Saltukhan: Adalet istiyoruz
--  ‘Oppenheimer’ Japan Release Date Confirmed
--  MileMaker and Turvo Announce New Partnership, Enabling Enhanced Transportation Management Solutions
--  «Актобе» уверенно переиграл «Алматы» в матче чемпионата Казахстана
+-  Po sporu s Čeferinom zapušča Uefo, svetovni mediji: Nogometna Evropa je pretresena
+-  Das brisante Wiedersehen : Grammozis über Schalke, den FCK und den schwierigen Spagat
+-  Fani Willis Can't Make Mistakes as a Professional Black Woman, But Trump Should be President?
+-  Young Kelowna couple possibly experiencing homelessness missing
+-  NYC Mayor Calls Social Media an 'Environmental Toxin,' Announces It on Social Media
+-  Cathie Wood Goes Bargain Hunting: 3 Stocks She Just Bought This Week
+-  Reuniones del BID en RD serán clave para el desarrollo sostenible
+-  Areenat | Iltalehti: Helsinki-hallilla rästissä jättisumma
+-  Hailey Bieber Launches Rhode Cleanser and It's Sunshine in a Bottle
+-  Comment le cirque Zavatta compte attirer le public à Dreux ?
