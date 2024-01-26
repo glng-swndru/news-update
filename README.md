@@ -1,11 +1,11 @@
 # Latest News
--  Tulipalot | Vanha baari tuhoutui Pälkäneellä
--  Jelena Dokic’s gesture with Aussie Open champ is pure class.
--  Padma Awards 2024: Padma Shri conferred to 7 individuals in the fields of Science and Engineering
--  Hezonja ubacio 16 koševa u novoj pobjedi Reala
--  Jelena Dokic’s gesture with Aussie Open champ is pure class.
--  Jelena Dokic’s gesture with Aussie Open champ is pure class.
--  Pape Matar Sarr sur la Côte-d’Ivoire : « On va aborder ce match de la meilleure des façons ! »
--  Exploring Muons' Site-Switching in Antiferromagnetic Oxides - Mirage News
--  أتلتيكو مدريد يتأهل لنصف نهائي كأس ملك إسبانيا على حساب إشبيلية
--  Así suenan dos galaxias interactuando; NASA comparte singular VIDEO
+-  Frankenstein, de Guillermo del Toro, arranca el rodaje de la película de Netflix
+-  DEČKO I JA SMO IMALI TROJKU SA MOJOM DRUGARICOM I NISMO NI SLUTILI KOJI PAKAO NAS JE ČEKAO: Priredila nam je PRAVI HAOS u životu
+-  Frankenstein, de Guillermo del Toro, arranca el rodaje de la película de Netflix
+-  Estado confirma caso importado de sarampo em Rio Grande
+-  Ludnica u Turskoj zbog VAR-a! Gol poništen, na drugoj strani sviran penal... (VIDEO)
+-  Las Cimarronas arrasaron en su grupo en el Mundial de hockey 5 de Omán
+-  President Muse Bihi Abdi confirms Ethiopian naval base lease and formal recognition of Somaliland
+-  Yeni Genç Muratspor'a destek gecesi! Geceye katılanlar bağış için birbirleriyle yarıştı
+-  Mipymes generaron ventas por S/ 337,397 millones en el Perú durante el 2022
+-  Trudeau attaque Poilievre 20 fois en 30 minutes
