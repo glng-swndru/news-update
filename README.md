@@ -1,11 +1,11 @@
 # Latest News
--  Nguồn cung bất động sản sẽ tăng?
--  Năm Giáp Thìn 2024 có 2 con giáp đột phá mạnh mẽ trong sự nghiệp: Nắm bắt tốt thì tiền vào như nước
--  「他にも複数が大麻を使用している」と供述 福山大学サッカー部大麻事件 大麻まん延の疑い
--  越南政府发布2024年厉行节约反浪费总体计划
--  Shadow Of The Ninja Remake Locks In 'Summer 2024' Switch Release
--  Nhật Bản xác nhận tàu Mặt Trăng đáp lộn ngược, có thể "chết"
--  Gazze'deki Sağlık Bakanlığı: İsrail rekor sayıda soykırım suçu işlemek için açlık silahını kullanıyor
--  Lappeenrannan päättäjät ehdottavat jo pehmennyksiä virkamiesten koulujen lakkauttamisesityksiin
--  صراع كبير على نجم الاتحاد جوتا في الميركاتو
--  焼け跡から2人の遺体 小城市で火事 住宅2棟を全焼 【佐賀県】
+-  悍將網羅墨聯勝投王布藍登 還有一位洋投洽談中
+-  '오픈AI' 샘 올트먼 방한…삼성 · SK 경영진과 잇따라 면담
+-  Upgradation of Pay Scale of Income Tax Inspectors and Income Tax Officers: Kerala HC directs to extend benefit of Order to all Applicants [Read Order]
+-  В Физули вернулись еще 104 жителя-ФОТО
+-  尹, 배현진 피습에 “정치인 테러, 국민 테러와 다름없어”
+-  Еквадор унищожи десетки тонове кокаин
+-  26-ти януари: Числото 26 ще донесе много пари на тези зодии!
+-  El tiempo en Moraleja: previsión meteorológica para hoy, viernes 26 de enero
+-  휴온스, 엠에프씨와 의약품 개발 협약 체결
+-  Terekam Kamera, Aksi Heroik Letkol J Victorianus Tethool Evakuasi Anak Buah yang Terluka di Yahukimo
