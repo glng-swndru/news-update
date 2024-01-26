@@ -1,11 +1,11 @@
 # Latest News
--  Lysfanga: The Time Shift Warrior lanseres neste måned
--  Era inovacija u svetu gaminga: Play! predstavlja 4. broj Play!Retro specijala
--  Vetrarólympíuleikar ungmenna í Gangwon
--  Consumer organisation in Coimbatore demands Tangedco to withdraw recent clarification on issuing electricity connection
--  ABD duyurdu: Irak ile görüşmelere başlıyoruz!
--  Orring: "Vi är besvikna att Centern lämnar"
--  Assassinat en pleine rue à Nice: "C’est un réel problème de sécurité publique"
--  Deutschland - Dänemark im Halbfinale der Handball-EM 2024: Übertragung im TV und Stream
--  Lavrov razočarao Vašington, Turska neće dozvoliti da američki ratni brodovi uđu u Crno more - Rusija ne treba da brine!
--  Nenad Bjelica ukarany! Ale jak... Skandal w meczu z Bayernem
+-  Cedevita Olimpija in krilni center vsak svojo pot
+-  Cezaevi’nden mektup var
+-  EVO KAKO SEJO KALAČ DANAS IZGLEDA Isplivao prvi snimak pevača nakon privođenja i brojnih skandala
+-  Kocaeli'de "Gönülden Gönüle" projesinde hane ziyaretleri sürüyor
+-  Путин похвалил премьера Индии
+-  Горя апартамент в столичния квартал „Слатина” - Труд
+-  Helin’in annesi Zişan Saltukhan: Adalet istiyoruz
+-  ‘Oppenheimer’ Japan Release Date Confirmed
+-  MileMaker and Turvo Announce New Partnership, Enabling Enhanced Transportation Management Solutions
+-  «Актобе» уверенно переиграл «Алматы» в матче чемпионата Казахстана
