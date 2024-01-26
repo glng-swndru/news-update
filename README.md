@@ -1,11 +1,11 @@
 # Latest News
--  Závody Formule 1 odvysílají nové kanály Nova Sport 5 a Nova Sport 6
--  Gaffar Okkan ve 5 polisin şehit edildiği pusuda gazi olmuştu, 23 yıl önceki o anı böyle anlattı
--  Teilzeitarbeit führt zu wesentlichen Einbussen in der Vorsorge
--  Μαρινάκης για ομόφυλα ζευγάρια: Σεβόμαστε τις αποφάσεις της Εκκλησίας, αλλά προχωρούμε μπροστά
--  Akhisar'da zeytin budama kursunu tamamlayanlara sepet dağıtıldı
--  100 Millionen Passwörter kursieren im Netz: So überprüfen Sie, ob Sie betroffen sind
--  Tesla-Aktie unter Druck: Tesla erleidet Gewinneinbruch
--  Gelinim Mutfakta kim birinci oldu? Gelinim Mutfakta 25 Ocak puan durumu
--  Общините финалисти в петото издание на конкурса „Нестле за Живей Активно!“ са Ардино, Дряново, Шабла и Девня
--  Baltijas kausā šogad piedalīsies arī Fēru salu izlase
+-  Bundeswehrpilot mit Laser bei Blaufelden geblendet: Polizei ermittelt
+-  La película de hoy en TV en abierto y gratis: Sylvester Stallone muy bien acompañado de Viggo Mortensen y Jason Momoa
+-  مدير عام مديرية صيرة يتفقد سير العمل في عدد من المشاريع الجاري تنفيذها بالمديرية
+-  İşte faiz kararı sonrası Dolar, Euro ve altında son durum
+-  Eintracht möchte sich mit Sieg gegen Mainz „oben festbeißen“
+-  عدن.. افتتاح بنك القاسمي للتمويل الأصغر كأحد المشاريع المصرفية النوعية في المدينة
+-  بعد قصف ملجأ الأمم المتحدة في غزة...بلينكن يكرّر طلبه من إسرائيل حماية المدنيين
+-  Renta socjalna mocno wzrośnie? Ustawa trafiła do komisji
+-  Đang giám sát Apax Leaders của shark Thủy
+-  Eintracht möchte sich mit Sieg gegen Mainz „oben festbeißen“
