@@ -1,11 +1,11 @@
 # Latest News
--  Pakosław. Zapisy ruszyły. Zagrają nie tylko dla Huberta
--  Göllerde kaçak avcılıkla mücadele sürüyor
--  Huisarts Pieter Barnhoorn vertrekt met pijn in het hart uit Roelofarendsveen. ’Een huisarts die klaagt over geld, dat is een beetje gênant’
--  Erzurum, Kars ve Iğdır'da 18 yerleşim yerine ulaşım sağlanamıyor
--  “บุ๋ม ปนัดดา”โร่เคลียร์ปมเลิกสามี ลั่นยังรักกันดี
--  Lot-et-Garonne : les anciens des Baladins préparent deux jours de fête en hommage à Roger Louret
--  Einladung zur 10. Pirate Security Conference nach München
--  Još jedna momčad iz Formule 1 promijenila ime, imat će sasvim neobičan naziv
--  Pijan pretepal žensko, potem napadel še policiste
--  Bakanlık duyurdu. Ödemeler bugün hesaplara yatıyor
+-  Nek im služi na čast! Karađorđevići neće Pavlinu, ali hoće Severinu!
+-  Coyotes try to break road losing streak, face the Hurricanes
+-  Zmiany w Straży Granicznej. Jest już następca Anny Michalskiej
+-  CANİK Amerika'da güvenlik güçlerine görev tabancası üretmeyi hedefliyor
+-  [속보] 법원 "양승태 '정운호 게이트' 검찰총장 압박 인정 안 돼"
+-  Süni intellektə investisiya yatıran şirkətlərlə bağlı araşdırma başladı
+-  Padma Shri Eklabya Sharma: The Ecological Guardian of the Himalayas
+-  Биограф Владимира Зеленского Шустер раскрыл детали мирных переговоров Москвы и Киева в 2022 году
+-  Salud observa paridad entre casos de dengue y covid
+-  Abang rambut perang dapat hadiah motosikal RS150
