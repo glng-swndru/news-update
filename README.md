@@ -1,11 +1,11 @@
 # Latest News
--  Aile katliamı göz göre göre gelmiş! Sana öyle bir acı yaşatacağım ki! 'İnşaallah 3. sayfa haberi olmam'
--  玉造温泉で最大規模「ホテル玉泉」東京の不動産関連企業に事業を譲渡（島根・松江市）
--  Ceneje ne gre!
--  Ghum Hai Kisikey Pyaar Meiin spoiler: Ishaan, Savi's marriage truth revealed; Reeva slaps the former for betraying her
--  シリーズ最新作『風来のシレン６』発売中！モンスターに変身できるアイテムも登場
--  Editorial: Una receta ‘tuca’ contra la delincuencia
--  Atiku to Tinubu: You Owe Nigerians Explanation on $3.3bn NNPC Emergency Loan
--  Zu viel Leerstand in der Stadt - doch eine Abteilung schafft Abhilfe. Und setzt auf Künstler ...
--  REPORTAGE. A Tyr, au Liban, "personne ne veut revivre la guerre, mais tout le monde a peur qu'elle resurgisse"
--  New Titans coach Brian Callahan ready to call plays for QB Will Levis
+-  İzmir'de kaybolan Alzheimer hastası bulundu
+-  “죽음의 일터 끝내야” vs “준비 안된 영세사업장 폐업 위기”
+-  Pixel 8 Pro Users Get a Health Upgrade with Google’s Thermometer App
+-  Раскрыта причина загадочных выбросов метана на Марсе
+-  Israel: Entscheidung im Völkermord-Verfahren
+-  Dieses Investment kostete Berkshire Hathaway Milliarden - Buffett dennoch von langfristigen Aussichten überzeugt
+-  Padma Awards 2024: Hormusji N Cama, Kundan Vyas awarded Padma Bhushan in Literature and Education; Know about them
+-  박신우, 힘찬 화이팅! (피도 눈물도 없이)[DA포토]
+-  Ρούλα Πισπιρίγκου: Όλη η πρόταση της εισαγγελέως για την ενοχή της - «Η Τζωρτζίνα είχε μια ατυχία, να έχει μάνα την κατηγορούμενη»
+-  Pet razloga za otkup zlata: Zašto je sada pravo vrijeme?
