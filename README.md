@@ -1,11 +1,11 @@
 # Latest News
--  Massenvertreibungspläne der Rechtsextremisten: Marine Le Pen distanziert sich von der AfD
--  Yeşilçam'ın 'Kötü adamı' Hikmet Taşdemir hayatını kaybetti
--  Se avanza en el mantenimiento de los desagües de la ciudad Capital
--  My New Favorite Song Sounds Like Olivia Rodrigo, But Political (and British)
--  【芸人社長が教える】事業責任者のたった1つのミッションとは？ - スタートアップ芸人
--  Con "Jaque Mate", vuelve al cine la dupla de "Poliladron" y "Comodines"
--  ‘Karmma Calling’ review: The screen version of junk food
--  Sofia Vergara szó szerint bekussoltatta Kelly Clarksont a saját tévéműsorában
--  El Ayuntamiento de Barcelona da voz al pádel
--  Farewell to South-East Asia: Behind the scenes of a crazy three years
+-  Galatasaray evindeki yenilmezliğini 28 maça çıkardı
+-  Crobarometar otkriva kako stoje političari i stranke na početku superizborne godinu
+-  Két részre szakad a MÁV
+-  Военный самолёт напугал автомобилистов в Турции
+-  Hikmet Taşdemir öldü mü? Yeşilçam'ın Gaddar Kerim'i kaç yaşında ve neden öldü?
+-  BC tem perda de R$ 9,201 bilhões com swap cambial em janeiro, até dia 19
+-  Foden, la madre a processo per una rissa in discoteca: "Quando bevo divento animale"
+-  Luis Caputo encabeza una reunión para analizar la ley ómnibus y el DNU
+-  Scriitoarea Elif Shafak, găsită vinovată de plagiat de un tribunal turc
+-  BC tem perda de R$ 9,201 bilhões com swap cambial em janeiro, até dia 19
