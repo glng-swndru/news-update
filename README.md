@@ -1,11 +1,11 @@
 # Latest News
--  음주운전 차량에 고의로 ‘쾅’…합의금 뜯어낸 일당 덜미
--  Jadwal Tur Dunia Konser Coldplay Usai Gelar Konser di Singapura
--  New Zealand withdraws bill allowing 16-year-olds to vote in local body elections
--  Lộ diện Tập đoàn sẽ làm Aeon Mall Biên Hoà hơn 6.000 tỉ đồng ngay đường Đặng Văn Trơn
--  ‘Our Anzac Day’: Thousands gather for Brisbane Invasion Day rally
--  YSO SLO, SO HIGH and NO LAW among vanity plates rejected by ICBC last year
--  Schools juggle new accountability tracking
--  Tolak Bangun Patung Bung Karno, Ternyata Segini Harga yang Ditawarkan ke Seniman Sumsel
--  Nhà có 5 người mà mỗi tháng vợ tôi đòi 3 triệu đi chợ, kiểu gì cũng bớt xén cho đằng ngoại
--  Nigeria, Morocco fast-track talks on $30bn gas pipeline
+-  "Tú tài" thời xưa tương đương với trình độ học vấn nào ở thời hiện đại?
+-  Alexandra Lencastre e Fernanda Serrano: um encontro de titãs em 'Cacau'
+-  Finance Accounting Business Process Outsourcing Market to grow at 7.85% CAGR from 2023 to 2028, Accenture Plc, Alight Solutions LLC, Amdocs Ltd. among Key Contributors to growth - Technavio
+-  1 loại thịt chứa nhiều omega-3 là "thuốc" hạ đường huyết, dưỡng gan, bổ máu hiệu quả: Ở chợ Việt có nhiều nhưng ít người biết
+-  'Thou Shalt Not Steal'; poem by Gumbainngirr Elder Uncle Roger Jarrett
+-  Rapper Lil Dicky Splashes Out Millions for Kenny G’s Longtime L.A. Compound
+-  Rui costa avisa jogadores depois de derrota com o Estoril
+-  Pokémon Scarlet And Violet New Tera Raid Battle & Mass Outbreak Now Live
+-  Board of Ed renews charter contracts, as CTU threatens strikes at 2 schools
+-  Bebé de dois anos ferido em colisão entre dois carros em Carregal do Sal
