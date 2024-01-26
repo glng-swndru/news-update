@@ -1,11 +1,11 @@
 # Latest News
--  Fico: Koalícia predloží k novele Trestného zákona pozmeňovacie návrhy
--  Vale (VALE3) tem quatro barragens em zona de alto risco na região de Brumadinho, diz estudo
--  Verkauf auch in Deutschland? Offenbar gefälschter Käse im Umlauf
--  Napoli, Perez quinto acquisto: due resteranno fuori dalla lista Uefa, il motivo
--  Giresun'un artık yeni bir ismi daha var! İşte yapay zekanın Giresun için önerdiği yeni isim
--  Plantas para atraer la suerte: matas que debería tener en su casa, según el Feng Shui
--  Rotam prende trio por cultivo de pés de maconha em Mato Grosso
--  HyperOS od Xiaomi je na pohled přebarvené MIUI 14. Našli jsme jen několik rozdílů
--  Neuer Schuldneratlas von Creditreform: Erneut weniger überschuldete Haushalte in Stuttgart und der Region
--  Mirė žinoma JAV dainininkė, hipių eros žvaigždė Melanie
+-  Lysfanga: The Time Shift Warrior lanseres neste måned
+-  Era inovacija u svetu gaminga: Play! predstavlja 4. broj Play!Retro specijala
+-  Vetrarólympíuleikar ungmenna í Gangwon
+-  Consumer organisation in Coimbatore demands Tangedco to withdraw recent clarification on issuing electricity connection
+-  ABD duyurdu: Irak ile görüşmelere başlıyoruz!
+-  Orring: "Vi är besvikna att Centern lämnar"
+-  Assassinat en pleine rue à Nice: "C’est un réel problème de sécurité publique"
+-  Deutschland - Dänemark im Halbfinale der Handball-EM 2024: Übertragung im TV und Stream
+-  Lavrov razočarao Vašington, Turska neće dozvoliti da američki ratni brodovi uđu u Crno more - Rusija ne treba da brine!
+-  Nenad Bjelica ukarany! Ale jak... Skandal w meczu z Bayernem
