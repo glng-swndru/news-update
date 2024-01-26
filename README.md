@@ -1,11 +1,11 @@
 # Latest News
--  Países preocupados por aumento de violencia en Haití
--  Cambios
--  Miami Heat - Boston Celtics, en directo | NBA
--  Critics say 2 bad B.C. stinks in a few days aren’t passing the sniff test
--  Critics say 2 bad B.C. stinks in a few days aren’t passing the sniff test
--  Juno Awards coming west as Vancouver picked to host 2025 gala
--  Helena man charged with felony sexual intercourse without consent
--  City's youth cabinet, school boards call on Olivia Chow to invest in Toronto's young people
--  New York Knicks - Denver Nuggets, en directo | NBA
--  Critics say 2 unexplained B.C. stinks just days apart doesn’t pass sniff test
+-  Chuva no litoral abre cratera em São Sebastião e faz Santos colocar morros em atenção
+-  "Un capricho ideológico": la oposición argentina critica a Milei por rechazo a los BRICS
+-  «أكشن» وتشويق ورعب في صالات السينما هذا الأسبوع
+-  D100'de otomobil bariyere çarptı: 2 ölü, 1 yaralı
+-  Procurado de cidade no Nortão morre em confronto com a PM em Cuiabá
+-  Otomobil 15 metreden anayola düştü: İki kişi hayatını kaybetti!
+-  Lancement du projet incubateur d’entreprises culturelles : 1 milliard 300 millions dégagés pour renforcer l’automatisation au Sénégal.
+-  Chuva no litoral abre cratera em São Sebastião e faz Santos colocar morros em atenção
+-  වසරේ එක්දින ක්‍රීඩිකාව චමරි
+-  Sprinklers were to be reset the day a Vancouver rooming house fire killed 2: inquest (BC)
