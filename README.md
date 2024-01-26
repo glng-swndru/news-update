@@ -1,11 +1,11 @@
 # Latest News
--  Galatasaray evindeki yenilmezliğini 28 maça çıkardı
--  Crobarometar otkriva kako stoje političari i stranke na početku superizborne godinu
--  Két részre szakad a MÁV
--  Военный самолёт напугал автомобилистов в Турции
--  Hikmet Taşdemir öldü mü? Yeşilçam'ın Gaddar Kerim'i kaç yaşında ve neden öldü?
--  BC tem perda de R$ 9,201 bilhões com swap cambial em janeiro, até dia 19
--  Foden, la madre a processo per una rissa in discoteca: "Quando bevo divento animale"
--  Luis Caputo encabeza una reunión para analizar la ley ómnibus y el DNU
--  Scriitoarea Elif Shafak, găsită vinovată de plagiat de un tribunal turc
--  BC tem perda de R$ 9,201 bilhões com swap cambial em janeiro, até dia 19
+-  Dank Hilfe von Polizeihund: Zwei Einbrecher verhaftet
+-  GDE JE ĐINA DŽINOVIĆ DOK JOJ SE RODITELJI RAZVODE? Od sramote navukla kapuljaču na glavu, pa istrčala iz kuće u nepoznato vozilo
+-  中国株の深刻な低迷、政治問題に - WSJ PickUp
+-  Çanakkale'de düzensiz göçmen operasyonu! 32 kişi yakalandı
+-  LIVEBLOG UNION-ANDERLECHT. Schmeichel gaat volledig de mist in bij uitvoetballen, maar Union straft dat niet af!
+-  SOLV Metals Division Welcomes Wisconsin Metal Parts Team
+-  CAN 2024 : Ils ont tremblé jusqu'au bout !
+-  Förståndshandikappad utsattes för brutal vanvård och sexuella övergrepp
+-  Brad Pitt facelift rumours go viral after doctor’s TikTok video explodes on internet
+-  Експеримент с убиец! В САЩ екзекутират за първи път с азот (Обзор, графика)
