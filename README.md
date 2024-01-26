@@ -1,11 +1,11 @@
 # Latest News
--  Justiça avalia se patrimônio do trio bilionário da Americanas será usado para pagar funcionários
--  Does closing the toilet lid before flushing prevent viral contamination?
--  New B.C. coal mine enters public comment period (BC)
--  Şimşek taktik çalıştı
--  Phó Chủ tịch TƯ Hội NDVN Nguyễn Xuân Định: Hội Nông dân TP HCM đạt nhiều kết quả toàn diện
--  Justiça avalia se patrimônio do trio bilionário da Americanas será usado para pagar funcionários
--  瘋電影／星願 不要把自己的夢想交給別人
--  老婦伸手討伙食費…竟遭「教師養子」暴打！ 逆兒下場曝光
--  蔡壁如無奈沒被邀尾牙 網一看卻歪樓：以為是阿翰新角色
--  Jokowi Sebut Presiden Boleh Memihak, Ma'ruf Pilih Netral di Pemilu 2024
+-  음주운전 차량에 고의로 ‘쾅’…합의금 뜯어낸 일당 덜미
+-  Jadwal Tur Dunia Konser Coldplay Usai Gelar Konser di Singapura
+-  New Zealand withdraws bill allowing 16-year-olds to vote in local body elections
+-  Lộ diện Tập đoàn sẽ làm Aeon Mall Biên Hoà hơn 6.000 tỉ đồng ngay đường Đặng Văn Trơn
+-  ‘Our Anzac Day’: Thousands gather for Brisbane Invasion Day rally
+-  YSO SLO, SO HIGH and NO LAW among vanity plates rejected by ICBC last year
+-  Schools juggle new accountability tracking
+-  Tolak Bangun Patung Bung Karno, Ternyata Segini Harga yang Ditawarkan ke Seniman Sumsel
+-  Nhà có 5 người mà mỗi tháng vợ tôi đòi 3 triệu đi chợ, kiểu gì cũng bớt xén cho đằng ngoại
+-  Nigeria, Morocco fast-track talks on $30bn gas pipeline
