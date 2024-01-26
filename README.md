@@ -1,11 +1,11 @@
 # Latest News
--  Ne, český senior na tom není líp. Fakta pro Jurečku. Děsný propad za Fialovy vlády
--  Καρμιώτισσα: Κόντρα στα προγνωστικά και στα προβλήματα για το κέρδος!
--  GVARDIOLA NE MOŽE DA SE REŠI GLAVOBOLjE ZVANE TOTENHEM: ''Pevci'' znaju recept za pobedu protiv trostrukog uzastopnog šampiona
--  Para vermeyen ağabeyinin işyerini tiner döküp yaktı
--  EU threatens Hungary with ‘nuclear option’ if Viktor Orban blocks £43bn Ukraine lifeline
--  Saatlerce ekran karşısında kalmak duruş ve yürüyüş bozukluğuna yol açıyor
--  Зорин сравнил тренировочный процесс в «Спартаке» и минском «Динамо»
--  「平戸ひらめまつり」へ出荷式 まちは"ひらめづくし"に【長崎】
--  भारत होइन इन्डिया
--  90 yaşında bana mısın demiyor... Gençlerin cesaret edemeyeceği şeyi, tehlikeli şeyi 35 yıldır neredeyse her gün yapıyor. Gözüyle görmeyen inanmasın
+-  Atikoh Disambut Tondu' Majang, Turun ke Sawah Menanam Bawang, Menang Menang Menang!
+-  Ada Fitur Baru di Layanan LGI, Pelanggan Bisa Telekonsultasi Dokter Ahli 365 Kali
+-  Selain Hak Asuh Anak, Irish Bella Juga Minta Ammar Zoni Soal Ini
+-  Đăk Lăk Marathon 2024 - Chạy giữa mênh mông đại ngàn
+-  Lentoliikenne | Boeingin koneiden lentokielto maksaa Alaska Airlinesille lähes 140 miljoonaa euroa
+-  Ukradł puszkę WOŚP. Grozi mu 10 lat więzienia
+-  Konteyner kent sakinlerine yangın eğitime verildi
+-  Čínští představitelé požádali Írán, aby pomohl omezit útoky v Rudém moři
+-  Football rumours: Three clubs on alert as Newcastle consider Callum Wilson sale
+-  Football rumours: Three clubs on alert as Newcastle consider Callum Wilson sale
