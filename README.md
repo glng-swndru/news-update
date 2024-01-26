@@ -1,11 +1,11 @@
 # Latest News
--  Un estudio cuestiona la creencia de que cada huella dactilar es única
--  ISRO Celebrates Chandrayaan-3, Aditya L-1 Missions At Republic Day Parade
--  Kompromitacja Ministerstwa Klimatu i Środowiska przy zakazie wycinki lasów
--  谷垣グループ、解散を決定「党全体でまとまらなければ」
--  Þjálfari í NFL-deildinni vitnaði í Klopp
--  TRT1'in tarihi dizisinde korkunç kaza: Sinan Albayrak ağır yaralı!
--  Ce film, cinquième volet d’une saga très lucrative, est diffusé ce soir à la télé
--  「当たり前は、当たり前じゃないよ」 日本航空石川の監督が説く理由
--  Ръководството на Гран при на Австралия наложи забрани на феновете
--  İstanbul'da 2 depoda sahte oto yedek parçaları ele geçirildi
+-  Что будет, если каждый день съедать чайную ложку меда с чесноком
+-  Le théâtre d'impro revient à Luisant pour un match contre Avignon et plusieurs actions sociales
+-  Sparò al figlio, Loris Pasquini condannato anche in Cassazione
+-  Путин поручил признавать ветеранами участников СВО без контракта
+-  Vasárnaptól megint sztrájkba lépnek a Volán-sofőrök, több tízezer járat maradhat ki
+-  В Москве состоящую в «ЧВК Редан» шестиклассницу поймали в школе с мефедроном
+-  Путин поручил включить запуск малых КА в нацпроект
+-  【速報】卓球・伊藤美誠 選手 パリ五輪シングルス代表を逃す 全日本選手権で6回戦敗退
+-  IZAŠLI SU IZ CRNOG DŽIPA I UZELI SVE Srpkinja Sara žrtva pljačke u Americi (VIDEO)
+-  Trendyol, "Yarının Köyleri" projesiyle çocukların dijital becerilerini geliştirmeye devam ediyor
