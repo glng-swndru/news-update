@@ -1,11 +1,11 @@
 # Latest News
--  É verdade, pode (mesmo) ser alérgico às relações sexuais
--  Gamewell fire boxes protected York since the Statue of Liberty. Now they are history
--  ”Den största affären vi gjort”
--  Gamewell fire boxes protected York since the Statue of Liberty. Now they are history
--  Stepukoniui pralošus 16 mln. eurų, neslepiama – žala padaryta ir nacionalinio stadiono finansavimui, ir pensijų fondams
--  Local man speaks on road safety after sister is hit, killed on her birthday
--  Actor Tobi Makinde Speaks On Relationship With Funke Akindele
--  Kuressaare vanalinna plaanitakse uut kolmekorruselist kortermaja
--  Local man speaks on road safety after sister is hit, killed on her birthday
--  Stepukoniui galimai pralošus 16 mln. eurų, neslepiama – žalą patyrė ir nacionalinio stadiono finansavimas, ir pensijų fondai
+-  Nobel lanceert festival voor alternatieve muziek. Programma met bekende bands en nieuw talent uit de Leidse regio
+-  Ψυγείο: Τα 6 λάθη που κάνουμε και μικραίνουμε τη διάρκεια ζωής του
+-  Túl keveset keresnek, szellősek a hivatalok
+-  ছয় মাসে রাজস্ব–ঘাটতি ২৩,২২৭ কোটি টাকা
+-  Þetta er danska félagið sem vill fá Söndergaard frá Vestra
+-  Κάμερον Ντίαζ: Θα ήθελε να κανονικοποιήσουμε τις ξεχωριστές κρεβατοκάμαρες για παντρεμένα ζευγάρια
+-  GOP, DHS clash over obstruction claims ahead of Mayorkas impeachment
+-  "Aldrig i livet", sa Andreas – nu är han klar för VM
+-  Kymmenen suomalaisyritystä ylsi osuustoiminnan jättien listalle – maailman suurin on ranskalaispankki
+-  Que recuerde la historia
