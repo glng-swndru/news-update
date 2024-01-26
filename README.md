@@ -1,11 +1,11 @@
 # Latest News
--  Urška Vučak Markež na potepu z Leo razkrila marsikaj
--  Festival: Die Warsteiner Montgolfiade findet im Jahr 2024 nicht statt
--  Could CBDCs help prevent fraud?
--  UŽIVO Medvedev produžio prvi set
--  「彼女が楽しそうに話す姿をいくつになっても見ていたい」 夫婦げんかせず、怒られた時はイチゴで謝る夫
--  Kauppalehti seuraa tiiviisti vaali-iltaa sunnuntaina
--  Liam Hickey praises decision to reward Paralympic champs with cash, like Olympians
--  U Kamernom teatru 55 počeo rad na predstavi "Malograđanska svadba"
--  Kocaelispor için her maç final
--  Superlega: Ceferin, 'è contro ogni logica del calcio'
+-  Vereinte Nationen warnen: Krisen und Dürre behindern Handel
+-  Hosts Ivory Coast Squeezed into the Last 16 of the Afcon on the Day it Fired its Coach
+-  LIVE: Följ Svedahls pressträff - efter uteslutningen
+-  シャンシャンに匹敵するスターパンダの弟が実は妹！ パンダの性別はなぜ分かりにくいのか
+-  III. Károly király kórházba vonult
+-  Deputații ies din vacanță: Când va avea loc prima ședință a Parlamentului din sesiunea de primăvară-vară
+-  桐島聡容疑者を名乗る男から聴取
+-  Digital Markets Act der EU: Apple ermöglicht alternative App-Marktplätze und Zahlungen
+-  Kövér László „csicskázása” Stockholmig is elhallatszott, nincs miről tárgyalni a svéd kormányfő szerint
+-  Jualan Gudang Karangkraf 2024 platform pupuk budaya membaca
