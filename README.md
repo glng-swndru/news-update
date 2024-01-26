@@ -1,11 +1,11 @@
 # Latest News
--  Vereinte Nationen warnen: Krisen und Dürre behindern Handel
--  Hosts Ivory Coast Squeezed into the Last 16 of the Afcon on the Day it Fired its Coach
--  LIVE: Följ Svedahls pressträff - efter uteslutningen
--  シャンシャンに匹敵するスターパンダの弟が実は妹！ パンダの性別はなぜ分かりにくいのか
--  III. Károly király kórházba vonult
--  Deputații ies din vacanță: Când va avea loc prima ședință a Parlamentului din sesiunea de primăvară-vară
--  桐島聡容疑者を名乗る男から聴取
--  Digital Markets Act der EU: Apple ermöglicht alternative App-Marktplätze und Zahlungen
--  Kövér László „csicskázása” Stockholmig is elhallatszott, nincs miről tárgyalni a svéd kormányfő szerint
--  Jualan Gudang Karangkraf 2024 platform pupuk budaya membaca
+-  É verdade, pode (mesmo) ser alérgico às relações sexuais
+-  Gamewell fire boxes protected York since the Statue of Liberty. Now they are history
+-  ”Den största affären vi gjort”
+-  Gamewell fire boxes protected York since the Statue of Liberty. Now they are history
+-  Stepukoniui pralošus 16 mln. eurų, neslepiama – žala padaryta ir nacionalinio stadiono finansavimui, ir pensijų fondams
+-  Local man speaks on road safety after sister is hit, killed on her birthday
+-  Actor Tobi Makinde Speaks On Relationship With Funke Akindele
+-  Kuressaare vanalinna plaanitakse uut kolmekorruselist kortermaja
+-  Local man speaks on road safety after sister is hit, killed on her birthday
+-  Stepukoniui galimai pralošus 16 mln. eurų, neslepiama – žalą patyrė ir nacionalinio stadiono finansavimas, ir pensijų fondai
