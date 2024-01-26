@@ -1,11 +1,11 @@
 # Latest News
--  Zaniolo o süreç için konuştu! "Kabus gibiydi"
--  „Fókusinn er á þessu máli“
--  Sau khi truy sát chủ nợ, nghi phạm tử vong trong ô tô
--  Ist Trainer Nenad Bjelica für Union Berlin noch tragbar? Ein Pro & Contra
--  أعداد شهداء مجزرة دوار الكويت ترتفع بسرعة
--  İmamoğlu: ''Ekonomiyi yönetemeyenler kentsel dönüşümü de yönetemez''
--  Alimentare, rinnovato il contratto collettivo nazionale di CIFA-CONFSAL
--  Listão da Uepa sairá nesta sexta (25); confira o horário
--  Όμιλος Ευρωκλινικής: 20 νοσηλευτές πιστοποιήθηκαν με τον τίτλο του Κλινικού Εκπαιδευτή
--  《京アニ放火犯に死刑判決》 青葉真司被告 女性アニメーターへの“妄想恋愛”投稿の全貌 〈異常なほどの色気を見せてくる〉〈京アニに自爆テロするわけじゃねーし〉
+-  Кого из бывших губернаторов приговорили к реальным срокам заключения
+-  Hırsız sandılar suçlu köpekler çıktı: O anlar kamerada
+-  İsrail esir takasında serbest bıraktığı Filistinliyi yeniden gözaltına aldı
+-  Hazır kek üreticilerine: Moğolistan ürünlerinizi ithal edecek!
+-  Vipps MobilePay launhes in Finland
+-  Yola çıkacakları ilgilendiren haber geldi! Bolu Dağı’nda kar yağışı başladı
+-  PiS ustąpił w sprawie komisji ds. Pegasusa
+-  Santiago Castro se hace la revisión medica y firma contrato con Bologna
+-  Polizei: 18-Jähriger nach Gewalttat an Schule festgenommen
+-  Millainen on kaarinalaisen aikuisväestön vointi? – verrattain hyvä, mutta huolta aiheuttavat esimerkiksi vähäinen liikkuminen, ruokailutottumukset ja lähisuhdeväkivalta
