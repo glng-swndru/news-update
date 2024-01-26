@@ -1,11 +1,11 @@
 # Latest News
--  Koronavirüs aşısı olanlara tazminat ödeniyor!
--  FDA Issues Another Warning on Tianeptine Products, Which Can Cause Seizures and Death
--  **Pd: Schlein insiste su sanità e sfida Meloni su Mo, 'voti nostra mozione'**
--  Boeingmodell kan få flyga igen efter dörrolycka
--  FRANCUZ VERAN ČUVENOM TIMU: Šarl Lekler produžio ugovor sa Ferarijem
--  Министър Радев: Започнахме процедура за блок 8 на АЕЦ „Козлодуй”
--  Qatar University to become a member of the WHO EMRO Youth Council
--  Teruel capital vuelve a batir por segundo día consecutivo el récord de calor en enero: 22,8 grados
--  Tourismus in Ludwigsburg wird digitaler: Weniger stationäre Tourismus-Info in Ludwigsburg
--  Im Februar: Dieses Topspiel der DEG überträgt DF1 live im Free-TV
+-  Delighting in Orientals
+-  Elektroauto chancenlos? Toyota-Boss prophezeit Marktanteil von nur 30 Prozent
+-  Insändare: Tocco Lexi är också ett funktionshinder
+-  Dam go-ahead sparks Clutha rush
+-  Feeling the Burns across Moray
+-  Nataša Ninković i Ljuba Bandović od ovog vikenda pridružuju se ekipi "Kože"
+-  Letters to Editor: Vehicles on beaches, parliamentary term
+-  Nya ägaren vill byta namn på Söderfors herrgård
+-  Giữ trực thăng tại căn cứ 'bí mật' ở Crimea?
+-  경찰, '배현진 습격' 미성년자 응급입원 조치
