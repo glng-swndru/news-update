@@ -1,11 +1,11 @@
 # Latest News
--  La terapia genica restituisce l’udito a un bambino nato sordo
--  El Ibex 35 cierra con una caída del 0,58% tras la reunión del BCE y con la banca en 'rojo'
--  Toboggan joyride sends B.C. teen to hospital
--  GDL-Streik: FDP will Lokführer durch KI ersetzen – so realistisch ist das wirklich
--  Nicht "Are You the One?"-Lisa: Paulo ist in einer Beziehung!
--  La meilleure classe du XRK Stalker dans MW3 : accessoires, atouts, équipements
--  Şimal Yılmaz'dan Türkiye rekoru
--  Polisi şehit eden sanığın ifadesi ortaya çıktı
--  На кону судьба мира: Байден радуется победе Трампа
--  زلزال بقوة 5.2 ريختر يضرب جنوب شرق تركيا
+-  Bäck Manci képeiből nyílt tárlat Kecskeméten
+-  Wer jetzt seinen Strom- oder Gasanbieter wechseln sollte
+-  'You have to admire him'... Manchester United loanee 'moaning at his teammates', says La Liga expert
+-  Cinco jóvenes participan en la edición del 'Programa Cultiva' de Cooperativas Agro-alimentarias C-LM desde el lunes
+-  PayPal bringt KI-basierte Produkte auf den Markt, während der neue CEO versucht, den Aktienkurs wieder zu beleben
+-  Paper talk: Chelsea, Man Utd offered Wilson as Liverpool set £40m transfer fee
+-  My HIV diagnosis is ruining my relationship
+-  Emotivna ispovijest oca hrvatskog čuda: Jedan sin spašava hrvatski rukomet, drugi naše živote
+-  PayPal lanzará productos basados en inteligencia artificial mientras su nuevo consejero delegado intenta reanimar la cotización de sus acciones
+-  Feuchter Haushalt: Breite Übereinstimmung in den Fraktionen
