@@ -1,11 +1,11 @@
 # Latest News
--  Bank DKI Kerja Sama dengan UNPAD dan Politeknik STIA LAN, Permudah Transaksi Sektor Pendidikan
--  "양국 관계를 선진국 수준으로 끌어올리기 위해 노력할 것 입니다"
--  'House tour' ông ngoại Tun Phạm, hé lộ CĂN PHÒNG đặc biệt khiến dân tình thán phục: 'Con nhà tông không giống lông cũng giống cánh’!
--  「各方弟兄姊妹希望我帶領黨團」 傅崐萁：黨中央有介入早滿城風雨
--  Đáp lại lời khen, người EQ thấp tự cao, người EQ cao kịp “nảy số” bằng 5 cách hành xử tinh tế
--  김의영, 정통 트로트로 돌아온다…2월 2일 신곡 발표
--  전청조-남현희 동부구치소서 3차 대질조사…공모 여부 규명에 초점
--  「常態化しかねないと懸念の声」 嘉手納町議会が抗議 米軍のパラシュート降下訓練で - 沖縄タイムス＋プラス ニュース
--  Pabriks: mēs vairs neflirtējam ar kreisumu
--  বোর্ড পরীক্ষার প্রস্তুতির ১০টি কার্যকর অভ্যাস
+-  PFDK İsrailli futbolcular Jehezkel ve Karzev'e 8'er maç men cezası verdi
+-  NIGERIA’S ENDLESS OPPORTUNITIES FOR CORRUPTION
+-  Nasa’s Mars helicopter Ingenuity finally sputters out, ‘exceeding expectations’ - The Guardian
+-  현대건설·금호건설 ′힐스테이트 어울림 청주사직′ 2월 분양
+-  Horarios de toque de queda en Manabí para este viernes, 26 de enero
+-  關鍵少數首戰！立院龍頭之爭 柯文哲下軍令：跑票開除黨籍
+-  역시 송혜교, 자색고구마 스타킹도 완벽 소화 [DAY컷]
+-  Museum Literasi Syekh Nawawi Al-Bantani Bakal Dibangun
+-  Opening SobiFest 2024 Memupuk Solidaritas Mahasiswa Universitas BSI
+-  Red Sea crisis likely to push up LNG prices in Europe
