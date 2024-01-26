@@ -1,11 +1,11 @@
 # Latest News
--  ZORAN GOBAC "On sigurno nikad neće biti izbornik Hrvatske"
--  Unøyaktig om mineralutvinning
--  Bývalý severoírsky reprezentant a rekordér Davis ukončil kariéru
--  Gvardiola odgovorio Čeferinu: Advokat mora da poštuje proceduru
--  6000 Euro für drei Empfänger
--  ‘Drugs’: New claim about frozen friends
--  26.300 Euro an gemeinnützige Organisationen und Vereine gespendet
--  iOS 17.4: Apple erlaubt alternative App-Stores und Browser auf iPhones
--  6000 Euro für drei Institutionen
--  4000 Euro für soziale Projekte
+-  Uncertainty returns in Bihar as Nitish Kumar again 'weighs options'
+-  تیراندازی به پاسگاه انتظامی "شور" در زاهدان/ عوامل تروریستی متواری هستند
+-  Masters of The Universe: Revolution is Now on Netflix
+-  Le service psychiatrique infanto-juvénile de Chartres en grève ce jeudi
+-  Le service psychiatrique infanto-juvénile de Chartres en grève ce jeudi
+-  Ex-WWE's Vince McMahon accused of defecating on woman, sex trafficking and naming dildos
+-  Son dakika… Datça’da deprem
+-  В Турции назвали последствие продолжения войны в Газе
+-  Republic Day 2024 Parade Today, India To Showcase Its Growing Nari Shakti, Military Might
+-  Мать 14-летней фигуристки рассказала о падении дочери головой об лед
