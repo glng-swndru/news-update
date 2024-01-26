@@ -1,11 +1,11 @@
 # Latest News
--  Ечеверрі проведе наступний сезон у Жироні
--  Republic Day 2024: Grand display of military might, women power at Kartavya Path tomorrow
--  Esperança Verde, o restaurante que faltava em Braga
--  Stichting Oud Leimuiden-Rijnsaterwoude slaat alarm over bouwdrift gemeente. ’Mooie kernen met karakteristieke bebouwing worden aangetast’
--  Кои 4 зодиакални знаци не желаят "преждевременна интимност"
--  Захарова и Гасымлы опровергли слова российского ученого об азербайджанцах
--  FOOKUS ⟩ Streigijuht Reemo Voltri: me ei usu enam sõnu
--  Milwaukee tools targeted in Salmon Arm business break and enter
--  Das war der Donnerstag in der Steiermark
--  Rohan Bopanna, Joshna Chinappa among seven sportspersons to receive Padma Shri award
+-  ZORAN GOBAC "On sigurno nikad neće biti izbornik Hrvatske"
+-  Unøyaktig om mineralutvinning
+-  Bývalý severoírsky reprezentant a rekordér Davis ukončil kariéru
+-  Gvardiola odgovorio Čeferinu: Advokat mora da poštuje proceduru
+-  6000 Euro für drei Empfänger
+-  ‘Drugs’: New claim about frozen friends
+-  26.300 Euro an gemeinnützige Organisationen und Vereine gespendet
+-  iOS 17.4: Apple erlaubt alternative App-Stores und Browser auf iPhones
+-  6000 Euro für drei Institutionen
+-  4000 Euro für soziale Projekte
