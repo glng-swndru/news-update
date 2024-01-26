@@ -1,11 +1,11 @@
 # Latest News
--  Что будет, если каждый день съедать чайную ложку меда с чесноком
--  Le théâtre d'impro revient à Luisant pour un match contre Avignon et plusieurs actions sociales
--  Sparò al figlio, Loris Pasquini condannato anche in Cassazione
--  Путин поручил признавать ветеранами участников СВО без контракта
--  Vasárnaptól megint sztrájkba lépnek a Volán-sofőrök, több tízezer járat maradhat ki
--  В Москве состоящую в «ЧВК Редан» шестиклассницу поймали в школе с мефедроном
--  Путин поручил включить запуск малых КА в нацпроект
--  【速報】卓球・伊藤美誠 選手 パリ五輪シングルス代表を逃す 全日本選手権で6回戦敗退
--  IZAŠLI SU IZ CRNOG DŽIPA I UZELI SVE Srpkinja Sara žrtva pljačke u Americi (VIDEO)
--  Trendyol, "Yarının Köyleri" projesiyle çocukların dijital becerilerini geliştirmeye devam ediyor
+-  Golden Agri-Resources en Verborg Group gaan strategische samenwerking aan voor levering van tropische oliën
+-  Jannik Sinner spune cum l-a învins pe Novak Djokovic la Australian Open 2024: „Am învățat multe de la el”
+-  대통령실 "타당성 적은 부담금 폐지·경감 방안 적극 발굴"
+-  Doğanın ''kılcal damarları'' havadan görüntülendi! Mest eden manzara
+-  [포토] 2024카페디저트페어 고양시 특별관 방문한 이동환 고양시장
+-  Evangelische Kirche Deutschland: Forderungen nach weiterer Missbrauchsaufklärung
+-  Рух – Сараево. Смотреть онлайн. LIVE трансляция
+-  Ousmane Sonko déclare dans une vidéo pré-enregistrée : « Mon seul objectif est de faire passer le projet »
+-  Dalla prima beta di iOS 17.4 emergono nuovi dettagli sul prossimo CarPlay
+-  Nagy változás jön az iPhone-okra
