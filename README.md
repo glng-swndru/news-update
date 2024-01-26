@@ -1,11 +1,11 @@
 # Latest News
--  Carioca: Bangu anuncia novo técnico e auxiliar para a sequência do Estadual
--  Feuchte Annäherung: Dschungel-Leyla und Mike planschen
--  Esenler'de üst geçitten atlayan kadına otomobil çarptı
--  TRT'nin yayın hakları için 100 milyon euro teklif verdiği iddiası yalanlandı
--  "Je n'arrivais plus à m'en sortir" : Jérémy Ferrari révèle avoir failli abandonner son métier d'humoriste
--  Cơ hội cho thuốc bảo vệ thực vật sinh học
--  Manifestação em apoio a Morales cresce na Bolívia com mais bloqueios e primeiras vítimas
--  Manifestação em apoio a Morales cresce na Bolívia com mais bloqueios e primeiras vítimas
--  중국 외교부 부부장 방북…수교 75주년 교류확대 논의 전망
--  Kritik am Bau des „Premier Inn“: Hat Bremerhaven zu viele Hotels?
+-  桃田「頼り」バド協会の前途多難
+-  Banks see flat loan growth
+-  Schmeichel fait des heures supplémentaires après le match (VIDEO)
+-  مباحثات لتبادل الخبرات البرلمانية مع السويد
+-  اقتصادية الشورى تناقش «تطوير السياحة»
+-  Ukraine-Krieg im Liveticker: +++ 02:41 Verhaftungswelle in Belarus +++
+-  미국 작년 4분기 GDP 3.3% 증가...시장 전망 크게 웃돌아
+-  Uang Logam Rupiah Riwayatmu Kini
+-  年金暮らしに供え50代のうちに見直しておくべき「支出」4つ解説
+-  Cute Valentine's Day Cookware That Will Make Baking a Piece of Cake
