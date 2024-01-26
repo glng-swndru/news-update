@@ -1,11 +1,11 @@
 # Latest News
--  PFDK kararları açıklandı: İsrailli futbolcuların cezası belli oldu
--  Gérald Darmanin : "On ne répond pas à la souffrance des agriculteurs en envoyant des CRS. Je les laisse faire"
--  PFDK kararını açıkladı: İsrailli futbolcuların cezası belli oldu
--  Шахтар - Лех 3:1: огляд матчу ВІДЕО
--  Спрян за проверка подаде сигнал на 112, че полицаи му искат 100 лв. подкуп
--  Sjajne vesti za radnike: Mnogi zaposleni dobiće na platu još 500 evra
--  EastEnders spoilers: Keanu Taylor’s murder ‘set to be exposed’ as evil Nish Panesar uncovers shocking truths
--  JOŠ LOŠIH VESTI ZA ZELENSKOG: Isporuke oružja sa Zapada sve "siromašnije", od dogovorene količine nije dostavljeno ni pola
--  Pacheco diz que Valdemar 'passa pano' para impeachment de ministro do STF nos bastidores
--  Gérald Darmanin : "On ne répond pas à la souffrance des agriculteurs en envoyant des CRS. Je les laisse faire"
+-  Mästarlaget kvävde LHC – här är våra punkter och betyg
+-  Grbin: Produbio se jaz između bogatih i siromašnih
+-  Over 30 forest fires rage across Colombia
+-  Nastavak afere s Geodetskog fakulteta: Europski tužitelji su došli do vrata ministrice kulture
+-  Iskolai horror: megölte diáktársát egy 18 éves fiatal Németországban
+-  Ρούλα Πισπιρίγκου: Την ενοχή της για τον θάνατο της Τζωρτζίνας ζήτησε η εισαγγελέας έπειτα από αγόρευση 12 ωρών - Έφυγε βρίζοντας η Ρούλα
+-  Filistinlileri savunan avukat: İsrailli yetkililer hakkında yakalama kararı için yeterince delil var
+-  Sahte "doktor kartı" ile yakalanan kadın olayın aslı ortaya çıkınca serbest bırakıldı
+-  BILO JE ŽENA KOJIMA SAM HTEO DA SE OŽENIM, ALI ME NISU HTELE! Haris Džinović o braku sa Melinom: Neke su bile lepše od nje, ali...
+-  نائب أمير الشرقية يشرف حفل زواج الحقباني والفوزان
