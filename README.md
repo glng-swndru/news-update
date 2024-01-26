@@ -1,11 +1,11 @@
 # Latest News
--  Bäck Manci képeiből nyílt tárlat Kecskeméten
--  Wer jetzt seinen Strom- oder Gasanbieter wechseln sollte
--  'You have to admire him'... Manchester United loanee 'moaning at his teammates', says La Liga expert
--  Cinco jóvenes participan en la edición del 'Programa Cultiva' de Cooperativas Agro-alimentarias C-LM desde el lunes
--  PayPal bringt KI-basierte Produkte auf den Markt, während der neue CEO versucht, den Aktienkurs wieder zu beleben
--  Paper talk: Chelsea, Man Utd offered Wilson as Liverpool set £40m transfer fee
--  My HIV diagnosis is ruining my relationship
--  Emotivna ispovijest oca hrvatskog čuda: Jedan sin spašava hrvatski rukomet, drugi naše živote
--  PayPal lanzará productos basados en inteligencia artificial mientras su nuevo consejero delegado intenta reanimar la cotización de sus acciones
--  Feuchter Haushalt: Breite Übereinstimmung in den Fraktionen
+-  Ечеверрі проведе наступний сезон у Жироні
+-  Republic Day 2024: Grand display of military might, women power at Kartavya Path tomorrow
+-  Esperança Verde, o restaurante que faltava em Braga
+-  Stichting Oud Leimuiden-Rijnsaterwoude slaat alarm over bouwdrift gemeente. ’Mooie kernen met karakteristieke bebouwing worden aangetast’
+-  Кои 4 зодиакални знаци не желаят "преждевременна интимност"
+-  Захарова и Гасымлы опровергли слова российского ученого об азербайджанцах
+-  FOOKUS ⟩ Streigijuht Reemo Voltri: me ei usu enam sõnu
+-  Milwaukee tools targeted in Salmon Arm business break and enter
+-  Das war der Donnerstag in der Steiermark
+-  Rohan Bopanna, Joshna Chinappa among seven sportspersons to receive Padma Shri award
