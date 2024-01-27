@@ -1,11 +1,11 @@
 # Latest News
--  Drama na Gripama: Zadar vodio i ostao bez bodova. Sada su na ljestvici poravnati sa Splitom
--  Tunga perioden – Visby Roma föll blytungt mot jumbon
--  Bruising forward Wayne Simmonds calls time on NHL career: ‘I’m done’
--  Altınok: Yavaş, seçim geldiği zaman ülkücülüğe sarılıyor
--  Papa Franjo učinio monumentalan korak prema blagoslovu istospolnih parova: ‘Uzmite ovo u obzir!‘
--  Brawo Iga! Kapitalna forma i zasłużona nagroda po hitowym meczu (WIDEO)
--  "Imala je sve znake septičnog šoka!" Majka devojke koja je preminula u Beogradu otkrila ime lekara koji je kriv za smrt njene ćerke!
--  Hakim Ziyech moet door blessure training Marokko overslaan
--  Who's News for Jan. 31, 2024
--  Топ 10 храни, които подуват корема
+-  „Lappen“ immer teurer: Wird der Führerschein bald unerschwinglich?
+-  بانک سامان در جمع ۵۰ شرکت برتر ایران
+-  کسب رتبه اول بهره‌وری کل توسط چادرملو
+-  陳敏之母親血癌病逝
+-  پایگاه اطلاع‌رسانی دفتر مقام معظم رهبری - ۱۴۰۲/۱۱/۰۷
+-  Criadores de Palworld já estão trabalhando em um novo jogo; veja detalhes
+-  外匯基金全年賺2127億 港股輸155億 回報率5.2% 向政府派息3.7%反低於2022年
+-  خانم‌ها و آقایان، مراقب «میشله» باشید
+-  سامانه خودروهای وارداتی جانبازان فعال شد
+-  تر شنه اسمان لاندې (تکرار)
