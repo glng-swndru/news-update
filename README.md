@@ -1,11 +1,11 @@
 # Latest News
--  KBS umum syarat pelepasan cukai yuran latihan sukan sebelum Mac
--  Will Convicted Killer Alex Murdaugh Win His Freedom at This Hearing?
--  Илон Маск заявил, что намерен покупать ускорители AMD для суперкомпьютеров Tesla
--  รัฐบาล เล็ง ยกเว้นผลิตไฟฟ้าจาก Solar Rooftop ไม่ต้องขอใบอนุญาต "รง.4"
--  Pred operacijo odklonil narkozo: ko mu je kirurg s skalpelom zarezal v nogo, je začutil le »poteg«
--  Sao Chelsea gặp sự cố kỳ lạ khiến trận đấu tạm hoãn
--  [부고] 안태용(전 연합통신 외신부장)씨 별세
--  Miloš izrešetan na kućnom pragu u niškom "Beverli Hilsu", a ovom taktikom odbrana optuženog za zločin pokušava da dovede do PREOKRETA
--  Maratha quota activist Manoj Jarange calls off his protest as Maharashtra govt accepts demands
--  जंगल में बाघ और तेंदुए को एकसाथ देखकर शोर मचाने लगे टूरिस्ट और फिर जो हुआ, वो नहीं होना चाहिए
+-  Slaven Tolj, performer: Ko ni mogoče najti besed
+-  Лас Палмас - Реал Мадрид
+-  Премьер-министр Франции Атталь объявил о мерах в поддержку фермеров
+-  ‘ผอ.รพ.เขาย้อย’ ยืนยัน ‘30 บาทรักษาทุกที่’ ปชช.รับบริการสะดวกขึ้น - รพ.เบิกจ่ายได้เร็ว
+-  Strong Group downs Moroccan squad to book semis slot in Dubai
+-  Menakar Tantangan Investasi Ketenagalistrikan di Tengah Upaya Transisi Energi
+-  مرغان کاکایی در نهر اعظم شیراز
+-  Congress chief Kharge against 'personality cult,' bets on 'dialogue'
+-  تولید سالیانه فولاد خام ایران از مرز ۳۱ میلیون تُن گذشت
+-  Женская сборная Туркменистана примет участие в чемпионате CAFA-2024 по футзалу
