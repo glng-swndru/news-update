@@ -1,11 +1,11 @@
 # Latest News
--  « Petit génie », un duo avec Gims, qui est Lossa, ce jeune chanteur de Limoges aux millions de vues et Top 1 des classements ?
--  « Petit génie », un duo avec Gims, qui est Lossa, ce jeune chanteur de Limoges aux millions de vues et Top 1 des classements ?
--  Der Stadtrat tagte: Suche nach Fördermitteln für die Saatgutbibliothek kann beginnen + Video
--  « Petit génie », un duo avec Gims, qui est Lossa, ce jeune chanteur de Limoges aux millions de vues et Top 1 des classements ?
--  Договорен! Байерн плаща 29 млн. евро на турци за ренде
--  Alēns Delons: kā ģimenes strīda dēļ franču kino leģendas dzīve pārvērtās traģēdijā
--  Sudah Ada Larangan Tetap Dilanggar, Bawaslu Jakut Heran Masih Banyak Parpol dan Caleg Pasang APK di Jembatan
--  فریبا: گل زود هنگام، کلید پیروزی ایران برابر سوریه است
--  Neam românesc, neam de ofertă! Popor născut din tata KAKI și mama PAPAYA
--  Australian Open. Финал. Соболенко сыграет с Циньвэнь Чжэн
+-  KBS umum syarat pelepasan cukai yuran latihan sukan sebelum Mac
+-  Will Convicted Killer Alex Murdaugh Win His Freedom at This Hearing?
+-  Илон Маск заявил, что намерен покупать ускорители AMD для суперкомпьютеров Tesla
+-  รัฐบาล เล็ง ยกเว้นผลิตไฟฟ้าจาก Solar Rooftop ไม่ต้องขอใบอนุญาต "รง.4"
+-  Pred operacijo odklonil narkozo: ko mu je kirurg s skalpelom zarezal v nogo, je začutil le »poteg«
+-  Sao Chelsea gặp sự cố kỳ lạ khiến trận đấu tạm hoãn
+-  [부고] 안태용(전 연합통신 외신부장)씨 별세
+-  Miloš izrešetan na kućnom pragu u niškom "Beverli Hilsu", a ovom taktikom odbrana optuženog za zločin pokušava da dovede do PREOKRETA
+-  Maratha quota activist Manoj Jarange calls off his protest as Maharashtra govt accepts demands
+-  जंगल में बाघ और तेंदुए को एकसाथ देखकर शोर मचाने लगे टूरिस्ट और फिर जो हुआ, वो नहीं होना चाहिए
