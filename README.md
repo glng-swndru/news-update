@@ -1,11 +1,11 @@
 # Latest News
--  PGR muda posição e defende que não há vínculo entre entregador e plataforma
--  Projeto Fertivida faz uso da técnica de curvas de nível em sítios do Distrito de Bonfim
--  MILANO SRUŠIO BARSELONU: Valensija slavila u španskom derbiju!
--  La alfombra roja de los Feroz, en imágenes
--  Ankara emniyeti, araç trafiğine kapatılacak yolları açıkladı
--  PGR muda posição e defende que não há vínculo entre entregador e plataforma
--  Trump must pay $83.3 million for defaming E. Jean Carroll, jury says - CBS News
--  Челси - Астън Вила 0:0 /репортаж/
--  China to discuss Taiwan with US during high-level talks in Bangkok
--  Football. Ligue 1 : trop longtemps à l'envers, l'OL défait par le Stade Rennais
+-  السبت .. أجواء باردة وغائمة مع هطول الأمطار
+-  KRIMKA ⟩ Pastor-detektiiv püüab pahalasi Rõngu ja Aakre mõisates
+-  Bundesliga: Con William Pacho, Eintracht Frankfurt ganó a Mainz
+-  Obradović: Kako da odgovorim kada upotrebite takvu reč
+-  How Trump's Courtroom Calendar Collides With His Campaign Calendar
+-  습격 중학생, '우발적 범행' 진술…배현진 "처벌 원한다"
+-  民眾黨「立院龍頭選誰」內幕曝！ 藍綠都有人不願投
+-  Cesarićeva u Španskoj ostala je bez pitke vode zbog radova...
+-  Rigen alerta roja, naranja y amarilla por calor extremo en nueve provincias argentinas
+-  Trump é condenado a pagar R$ 493 milhões a E. Jean Carroll por difamação
