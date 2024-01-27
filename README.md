@@ -1,11 +1,11 @@
 # Latest News
--  Musk's SpaceX sued for negligence in accident that led to worker's coma
--  FaZe Clan си отмъсти на GamerLegion
--  В США заявили о "переломном моменте" на Украине
--  Ákvörðun lögreglustjórans kærð
--  지드래곤, 청소년 마약 다룬 책에 추천사…"징벌 아닌 예방·교육"
--  수년내 다문화 장병이 5% 되는데 軍 인식은 낙제점
--  Doctor shortage again closes Oliver hospital’s emergency room
--  Here’s Why You Should Never Use a Pie Chart for Your Data
--  රජය අන්තර්ජාතික ප්‍රජාවෙන් සහාය ලබාගැනීම
--  බලපත්‍රය ගන්න රේගුව මැදිහත් වෙලා: කුණු මාළු කන්ටේනර් 98ක් ගොඩබාන්න අවසර දීලා
+-  চিংড়ি রপ্তানি খাত থেকে আয় কমেছে ২০ শতাংশ
+-  Primera y dolorosa derrota política: Milei, obligado a dar un manotazo de ahogado para salvar la Ley ómnibus
+-  Police chase in Terre Haute leads to arrest on several charges
+-  Cập nhật BCTC ngày 27/1: Hải Phát, Hoa Sen, ACB, ... cùng loạt doanh nghiệp chủ chốt đã công bố, lợi nhuận Đường Quảng Ngãi thăng hoa
+-  Visiting Ephesus out of season
+-  Nego Kontrak Mandek, Manchester United Siap Angkut Lautaro Martinez?
+-  小さな高級車｢日産オーラ｣を買っている人物像 購入者分析でわかったノートと異なる特殊性 | トレンド | 東洋経済オンライン
+-  Minister urges political parties to prioritise education in their election manifestos
+-  I have Like a Dragon: Infinite Wealth's $110 Ultimate Edition, and it's making the game less fun
+-  What the papers say – January 27
