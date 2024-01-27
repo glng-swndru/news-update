@@ -1,11 +1,11 @@
 # Latest News
--  Idu li vozači hitne u štrajk? "Naš je posao izuzetno psihofizički stresan, a plaća je na razini jednog fotografa"
--  Cały tydzień siatkarskich zmagań, pizzerki, ciasta i klasyczna zbiórka. Wielka Orkiestra Świątecznej Pomocy zagrała w ZSZ [ZDJĘCIA]
--  Saitko yllättäen varmennuskoodin sitä pyytämättä? Toimi näin
--  Sesc terá shows de Teresa Cristina, Willy Verdaguer e Mariana Aydar
--  "Uditore, degrado in via Alias"
--  "Der Tod sitzt mir im Nacken": Wie sich ein schwer kranker Forchheimer einen Traum erfüllen will
--  ‘Kill the Drug’: Together we can prevent more British lives from being lost as the Olive Press relaunches its Nolotil campaign
--  Учёные нашли самый опасный стрессор
--  IZ KAFANE NAJAVILA POVRATAK U ELITU! Diskvalifikovana Miljana Kulić dohvatila mikrofon - Otkrila kada stiže u rijaliti!
--  Deportationen im Nationalsozialismus: Die letzten Bilder
+-  Ministro de Minas e Energia nega que Lula tenha tratado de sucessão na Vale
+-  Slaven iznenadio Varaždince unatoč igraču manje, opet presudio Mioč
+-  Val de căldură în Europa. Temperaturile au ajuns la 30 de grade
+-  Poutine lance la construction d’un brise-glace à propulsion nucléaire à Saint-Pétersbourg
+-  Kiev pierde varios sistemas de defensa antiaérea occidentales en una semana de la operación militar
+-  Plateau attack: Perpetrators won’t go unpunished, says Mutfwang
+-  AK Parti İBB adayı Murat Kurum: Raylı sistemleri 5 yılda 2 katına çıkaracağız
+-  Sacha Boey Bayern Münih'e transfer oldu
+-  ЦСКА привлече младежки национал от Септември
+-  «Пожалуйста, просто остановитесь»: трейлер Suicide Squad: Kill the Justice League с живыми актёрами не склонил фанатов на сторону игры
