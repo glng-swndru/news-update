@@ -1,11 +1,11 @@
 # Latest News
--  Kerala Governor Arif Mohammed Khan to send copy of FIR to Centre; SFI to intensify protest
--  Likimą tyrinėjantis profesorius: bandyti išburti ateitį – ne visada beprasmis užsiėmimas
--  신세경 “‘세계 일주 전 결혼 안 한다’ 발언 철회”
--  Enerji alanında düzenlemeler içeren kanun teklifi pazartesi Meclise sunulacak
--  La zona azul empieza a funcionar en Valderrobres en cinco calles céntricas
--  Ινστιτούτο Παστέρ: Συνεχίζει να σαρώνει η γρίπη - 92% το ποσοστό της Η1N1 στην κοινότητα
--  Onko oma presidenttiehdokas vielä haussa? – Tee Kauppalehden vaalikone
--  ВИДЕО. Гвардиола отреагировал на новость об уходе Клоппа из Ливерпуля
--  Ivana Mrvaljević - glumica koju smo voljeli
--  ‘역사왜곡 시비’ 고려거란전쟁, 1주일 결방…“완성도 높이겠다”
+-  „MG Baltic“ bylos analizė. Kodėl po konkurentus žudančio nuosprendžio garsiai nesidžiaugia socialdemokratai?
+-  Ein Meer dazwischen - Mobile Jugendoper feierte in Zwettl Premiere
+-  "Elles semblent criblées de balles": un scarabée dévoreur menace le commerce de la truffe dans le Haut-Var
+-  Chef's 'jaw drops' at amazing boiled egg hack they never knew existed
+-  A história do Pingo (doce)
+-  На живо: женския финал на Australian Open
+-  電車運転士や駅係員… 外国人労働者の特定技能、4分野の追加を検討
+-  تطورات جديدة في انتقال كاسيميرو إلى النصر
+-  Trailer zum Kino-Comeback eines der coolsten Filme mit Bruce Willis: Erlebt das Sci-Fi-Spektakel "Das fünfte Element" in 4K!
+-  США усиливают свои позиции в странах Западной Африки взамен французов
