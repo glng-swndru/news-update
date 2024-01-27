@@ -1,11 +1,11 @@
 # Latest News
--  „Lappen“ immer teurer: Wird der Führerschein bald unerschwinglich?
--  بانک سامان در جمع ۵۰ شرکت برتر ایران
--  کسب رتبه اول بهره‌وری کل توسط چادرملو
--  陳敏之母親血癌病逝
--  پایگاه اطلاع‌رسانی دفتر مقام معظم رهبری - ۱۴۰۲/۱۱/۰۷
--  Criadores de Palworld já estão trabalhando em um novo jogo; veja detalhes
--  外匯基金全年賺2127億 港股輸155億 回報率5.2% 向政府派息3.7%反低於2022年
--  خانم‌ها و آقایان، مراقب «میشله» باشید
--  سامانه خودروهای وارداتی جانبازان فعال شد
--  تر شنه اسمان لاندې (تکرار)
+-  Putyin: az ukrán katonai hírszerzés tudta, hogy hadifoglyok vannak az Il-76-oson
+-  Kinga Zawodnik pokazuje, jak ćwiczy do "Tańca z Gwiazdami"? Trenuje z Kochankiem
+-  Галатасарай може продати Тете
+-  Willie Brown is auctioning his old clothes as the 'Willie Brown collection'
+-  졸전 속 홀로 빛난 이강인, 조별리그 3차전 베스트XI 선정…1R 이어 2번째
+-  Fiatal színésznőként durva szavakkal intették csendre Gryllus Dorkát
+-  Ünal Üstel: Buse Savaşkan’ı halkım ve şahsım adına tebrik ederim
+-  President opens doors for alternative proposals to IMF program
+-  Džeko se uključio u akciju pomoći mladiću kojeg su mlatili i tjerali da viče "Dinamo"
+-  ĆERKA UPALA U SEPTIČKI ŠOK, DVA LEKARA INTERVENISALA: Majka devojke koja je preminula u Beogradu otkrila detalje sa leta
