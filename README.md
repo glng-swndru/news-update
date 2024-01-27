@@ -1,11 +1,11 @@
 # Latest News
--  Putyin: az ukrán katonai hírszerzés tudta, hogy hadifoglyok vannak az Il-76-oson
--  Kinga Zawodnik pokazuje, jak ćwiczy do "Tańca z Gwiazdami"? Trenuje z Kochankiem
--  Галатасарай може продати Тете
--  Willie Brown is auctioning his old clothes as the 'Willie Brown collection'
--  졸전 속 홀로 빛난 이강인, 조별리그 3차전 베스트XI 선정…1R 이어 2번째
--  Fiatal színésznőként durva szavakkal intették csendre Gryllus Dorkát
--  Ünal Üstel: Buse Savaşkan’ı halkım ve şahsım adına tebrik ederim
--  President opens doors for alternative proposals to IMF program
--  Džeko se uključio u akciju pomoći mladiću kojeg su mlatili i tjerali da viče "Dinamo"
--  ĆERKA UPALA U SEPTIČKI ŠOK, DVA LEKARA INTERVENISALA: Majka devojke koja je preminula u Beogradu otkrila detalje sa leta
+-  طرد صحفي أجنبي من المغرب إثر عقده اجتماعات مع انفصاليين
+-  Trabzonspor'da ayrılık çanları! Acun Ilıcalı kapıyor
+-  Aldi startet Großprojekt – Kunden können sich freuen
+-  JANJUŠ RONI SUZE U ELITI! Ne može da se smiri zbog smrtnog slučaja, vrlo potresne scene
+-  Transrodna plivačica traži od CAS-a da poništi pravila koja joj zabranjuju da se takmiči
+-  Eredivisie, il fratello di Reijnders decide l'anticipo della 19ª giornata
+-  Afif to Lee Kang-in: Five players who lit up Asian Cup group stage
+-  Football. Benoît Tavenot après Goal FC - DFCO : « Ce sont des matches à gagner »
+-  Shannon Sharpe Roasts Patriots Receiver For Reported Arrest - NESN
+-  How to work out in cold weather: 6 tips for staying motivated as the temperature drops
