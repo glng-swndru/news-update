@@ -1,11 +1,11 @@
 # Latest News
--  Former INEC Boss Attahiru Jega Calls for Investigation over iREV’s Failure During 2023 Polls
--  Hutiešu raķete trāpījusi tankkuģim, kas vedis Krievijas naftas produktus; tas aizdedzies
--  Alan Myers issues £160m+ Everton-777 Partners update as information submitted to Premier League
--  Αποκλείστηκε από τα γήπεδα ο 24χρονος για την κροτίδα στο «Αμμόχωστος»
--  Стали известны лауреаты премии «Золотой орел»
--  Коментар №1 на седмицата: Вазов за плоскоземци
--  Stiglo 19 prijava za v. d. direktora Poreske uprave
--  Историята на световната икономика все още е история на интеграция, но това се променя
--  Tramp osuđen: Mora da isplati 83 miliona
--  Green e Whitmore firmano il dominio Houston a Charlotte
+-  Sex and the City: Εδωσαν 52.000 δολάρια για να πάρουν τη φούστα της Κάρι Μπράντσο - Στοίχιζε... 5 δολάρια
+-  Sexismus in Frankreich: „Familien fördern Stereotype“
+-  США нанесли новый удар по Йемену, целью была ракета хуситов
+-  Revanschläge för Kianzad: ”Precis vad jag längtat efter”
+-  Piala Asia 2023: Manfaatkan Tinggi Badan, Bek Australia Pede Bisa Bekuk Indonesia
+-  Revanschläge för Kianzad: ”Precis vad jag längtat efter”
+-  Спасената София - Труд
+-  Genomgång: Brotten som ökade – och minskade – på ön
+-  Байдън унищожи енергетиката на Европа докато наказва Тексас за бунт - Труд
+-  Hogwarts Legacy ha venduto più di 24 milioni di copie finora
