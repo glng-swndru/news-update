@@ -1,11 +1,11 @@
 # Latest News
--  Millî Savunma Bakanı Güler, Hatay'daki Ziyaret Hudut Karakolu'nda inceleme ve denetlemelerde bulundu
--  Ολοκαύτωμα: γνώριζαν όλοι! Γιατί οι Μεγάλοι δεν έκαναν το παραμικρό για να σώσουν 6 εκατ. μελλοθάνατους
--  Юрист предупредил о последствиях конфискации российских активов для США
--  Toliko so nekateri pripravljeni plačati za diplomsko nalogo
--  ŽESTOKI NAPADI NA JUGU UKRAJINE Zelenski naložio planove za zaštitu gradova na liniji fronta (FOTO/VIDEO)
--  ‘Bij talkshow 'Op1' zou ik het verhaal van de verloren zoon voorlezen’: Uitgever Pieter de Boer houdt van de Bijbel
--  À moins de 150 €, ce smartphone Xiaomi est N°1 des ventes sur ce site réputé
--  DRAMA U MAKARSKOJ Planula pećnica u ugostiteljskom objektu
--  Türkiyədə 5.1 maqnitudalı zəlzələ olub
--  VKSND Phú Nhuận truy tố người trộm 6 chai lăn khử mùi trị giá 680.000 đồng
+-  मकबरे तलाश में मिली रहस्यमयी सुरंग, एक्पर्ट इसे बता रहे चमत्कार
+-  Geheimcodes beim Flug: Was die Crew heimlich über dich sagt
+-  Geheimcodes beim Flug: Was die Crew heimlich über dich sagt
+-  Geheimcodes beim Flug: Was die Crew heimlich über dich sagt
+-  CCTV कैमरे में कैद हुआ दर्दनाक हादसे का मंजर, 7 लोगों की हुई मौत; रूह कंपा देगा Video
+-  Geheimcodes beim Flug: Was die Crew heimlich über dich sagt
+-  USA znovu zaútočily na postavení rebelů v Jemenu, zničily další raketu
+-  Ege'de 5.1 büyüklüğünde deprem: İzmir ve çevresinde hissedildi
+-  Geheimcodes beim Flug: Was die Crew heimlich über dich sagt
+-  Geheimcodes beim Flug: Was die Crew heimlich über dich sagt
