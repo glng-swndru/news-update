@@ -1,11 +1,11 @@
 # Latest News
--  “Queremos mais desporto na RTP e três horas semanais de Educação Física na escola”
--  Новият секссимвол на българското кино и Кралят на рока влизат в „Черешката на тортата“
--  Още един хърватски гранд се насочи към нападател на Фиорентина
--  En attendant la reprise, Montluçon et Domérat (R1) disputent les 32es de finale de la Coupe Laura
--  Che fine ha fatto Leandrinho, il brasiliano ex Napoli è "sprofondato"
--  Tomasz Kammel po zwolnieniu z TVP nie ma co narzekać na brak pieniędzy. Wiemy, ile będzie teraz zarabiał
--  Allan Collander – målartalangen som blev sjöman
--  FBiH Više od 287.000 osoba nema zdravstveno osiguranje
--  Prof. Dr. Övgün Ahmet Ercan ve Naci Görür'den deprem açıklaması! 2024 depremsiz geçmeyecek!
--  Zeytinburnu'nda güpegündüz gasp! Bankadan iki poşet dolusu parayla çıktı, aracına binerken...
+-  Báo Indonesia ghen tỵ với thành tích của ĐT Việt Nam
+-  “Direzione politica chiusa e incerta”. Anche nell'ala sinistra del Pd mollano Schlein
+-  26-Millionen-Defizit: Grundstücksverkäufe könnten Kirchheims Finanzloch stopfen
+-  【瞬間映像】元MBCアナウンサーの女性議員が襲撃 少年が持っていた石で殴りかかる…馬乗りになり暴行も 韓国
+-  元アナウンサーの女性議員を少年が襲撃、10回以上殴りかかったか 韓国
+-  Kiracıları ilgilendiren emsal karar!
+-  Почетино: Получи се качествен мач
+-  경북고속도로 판교IC 부근서 버스 3중 추돌…버스 기사 등 10여 명 중경상
+-  Румъния стартира проект за нови умения в областта на киберсигурността
+-  Ryanair z bazo tudi v Trstu, Ljubljana je zanje predraga
