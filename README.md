@@ -1,11 +1,11 @@
 # Latest News
--  한국, 어쩌다 "음식물 쓰레기 재활용 챔피언" 됐을까
--  How Apps Use Push Notifications to Spy on You (and How to Stop Them)
--  Sweet deal? Tentative agreement reached in prolonged B.C. Rogers Sugar strike
--  „All is one“: Kulturhauptstadtjahr 2024 in Tartu eröffnet
--  “후티가 공격 안하는 중국 배 타세요” 홍해 봉쇄에 웃는 중국
--  Sweet deal? Tentative agreement reached in prolonged B.C. Rogers Sugar strike
--  Horoscope Today, January 27, 2024: Read your daily astrological predictions
--  Sweet deal? Tentative agreement reached in prolonged B.C. Rogers Sugar strike
--  Macrotech Developers, Yes Bank, APL Apollo Tubes Q3 Results Today — Earnings Estimates
--  【インタビュー】舘ひろし×玉木宏、『ゴールデンカムイ』「日本映画もここまで来た」
+-  Musk's SpaceX sued for negligence in accident that led to worker's coma
+-  FaZe Clan си отмъсти на GamerLegion
+-  В США заявили о "переломном моменте" на Украине
+-  Ákvörðun lögreglustjórans kærð
+-  지드래곤, 청소년 마약 다룬 책에 추천사…"징벌 아닌 예방·교육"
+-  수년내 다문화 장병이 5% 되는데 軍 인식은 낙제점
+-  Doctor shortage again closes Oliver hospital’s emergency room
+-  Here’s Why You Should Never Use a Pie Chart for Your Data
+-  රජය අන්තර්ජාතික ප්‍රජාවෙන් සහාය ලබාගැනීම
+-  බලපත්‍රය ගන්න රේගුව මැදිහත් වෙලා: කුණු මාළු කන්ටේනර් 98ක් ගොඩබාන්න අවසර දීලා
