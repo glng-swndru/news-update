@@ -1,11 +1,11 @@
 # Latest News
--  Le Prix Goncourt, Mohamed Mbougar Sarr rend hommage à son aîné l'écrivain Abass Ndione
--  Pressman: Orbán külpolitikája képzelgésekre épül, Magyarország elszigetelődött, pedig nem kellene magára maradnia
--  Fundusz Sprawiedliwości. Kto wręczał frytkownice, miksery i wozy strażackie?
--  Cutremur în România, raportat vineri. Unde a fost resimțit si ce magnitudine a avut
--  Nərimanovda anbarda yanğın oldu
--  Zisk koncernu Visa v 1. kvartáli prekonal očakávania trhu
--  Kritische Lücken bedrohen Onlineshops auf Gambio-Basis
--  "التحكم المروري": يطلب من السائقين توخي الحذر وتخفيف السرعة على الطرقات بسبب الامطار الغزيرة وعدم سلوك الطرقات الجبلية الا بعد التأكد من حالتها
--  Медведев предрёк США образование «Техасской Народной Республики»
--  Blaulicht: Tasche vom Arm gerissen: Wuppertaler Senior wird Opfer eines Raubs
+-  Colère des agriculteurs : le blocage de Paris occupe tous les esprits en Ile-de-France
+-  Darlington toddler murder suspect to make application for bail
+-  How to watch Siena Saints vs. Iona Gaels: NCAA Basketball live stream info, TV channel, start time, game odds
+-  Báo Indonesia “vừa đấm, vừa xoa” về kết quả của ĐT Việt Nam tại Asian Cup
+-  Conferenza stampa Allegri: «Chiesa ancora out. Noi come Sinner, l’Inter come Djokovic…» – VIDEO
+-  Il Milan ricorda Kobe Bryant: il toccante messaggio social del club rossonero – FOTO
+-  Miss France et médecin généraliste, Marine Lorphelin devient chroniqueuse à Télématin pour "faire passer des messages au grand public"
+-  Xabi Alonso’s unnoticed tactic has helped unbeaten Bayer Leverkusen rival Harry Kane and Bayern Munich amid Liverpool rumours
+-  Oma Hämeen Isosuo ja Lepola toivovat, ettei palveluverkkokeskustelu juutu seiniin – "On helppo sanoa, että tätä tai tätä ei saa lopettaa"
+-  Nije isključeno da u štrajk neće, osim liječnika, i učitelji, pravosudni policajci, fakulteti...
