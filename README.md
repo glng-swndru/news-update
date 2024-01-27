@@ -1,11 +1,11 @@
 # Latest News
--  Şiir Yazsaydın İsmail’im, Niye Bünyede Biriktirdin?!
--  “Gazze’yi kurtarmak, müslüman liderler için farzdır”
--  Hiç Kimseyi Dinlemiyor!
--  弄丟也能找到！iPadOS 17.4代碼洩露Apple Pencil新功能
--  Hancur di Piala Asia 2023, Vietnam Janji Balas Dendam ke Indonesia
--  國防秘辛》大漠中隊基層的第一線視角 有些事還有求於「蘇聯」
--  “Ek gösterge, seçimden önce TBMM’ye getirilmeli”
--  Aynı Ülkede Yaşamıyor Muyuz?
--  Kızıldeniz’deki gerilim: Navlun fiyatları 8 haftadır artıyor
--  Đàn ông hay phụ nữ nếu gương mặt có 3 đặc điểm này chứng tỏ thọ dài, dễ sống trăm tuổi: Ai có đủ thì xin chúc mừng
+-  Boeing's 737 Max 9 returns to service for first time since door blowout
+-  Thách thức mới từ căng thẳng trên biển Đỏ
+-  Soal Isu-isu Beras Bulog Berstiker Prabowo-Gibran, TKN Minta Bawaslu Turun Tangan
+-  Huracán supera a su rival con un marcador 2-0
+-  BEYOND LOCAL: Christine Sinclair signs one-year contract with NWSL's Portland
+-  葉門19歲小鮮肉酷似「甜茶」爆紅！ 自拍劫船影片秒歪樓
+-  The Kid Laroi sparks rumours he's dating Tate McRae just months after his split from model Katarina Deme
+-  Potato Flakes Are The Secret Ingredient For A Thick Pot Of Chicken And Dumplings
+-  越南外交部在2024年甲辰龙年春节之际会见越南新闻机构代表
+-  WWE founder Vince McMahon resigns from all roles after sex trafficking allegations
