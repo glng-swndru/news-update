@@ -1,11 +1,11 @@
 # Latest News
--  El robot bípedo con tejido muscular que puede caminar, detenerse y girar
--  Ηλικιωμένη άφησε την αμύθητη περιουσία της στα κατοικίδια της: Τα παιδιά της τρέχουν στα δικαστήρια για να την διεκδικήσουν
--  Grał Janusza Tracza w "Plebanii", a potem zniknął z mediów. Tak dziś wygląda największy badass polskiej telewizji
--  بعد صدمة الإقصاء المذل.. "زيدان" يوجه صفعة للاتحاد الجزائري
--  Consejera de Igualdad celebra el 54% de puestos de trabajo de mujeres en turismo en C-LM pero anima a superar "barreras"
--  ‘Queen Wen’s’ journey from Wuhan to the Australian Open final
--  Ponuđač za Željezaru spreman da plati penale Toščeliku
--  ‘Queen Wen’s’ journey from Wuhan to the Australian Open final
--  Tottenham-Manchester City, em direto
--  „Plötzlich stand die Königin vor mir“: Royaler Geheimbesuch – was machte Silvia von Schweden in Bedburg-Hau?
+-  Азербайджанские дзюдоисты завоевали 3 медали в первый день Гран-при в Португалии
+-  Рішення про допомогу Україні на 50 млрд євро підтримують всі 27 країн-членів ЄС, - Шмигаль
+-  Sri Lanka discusses ways to strengthen economic ties with Jordan
+-  Flor Vigna se grabó llorando y le pidió perdón a Noelia Marzol
+-  Industrija pred kolapsom: "Gubimo kontrolu"
+-  В России упростили медкомиссию для контрактников
+-  Prantsuse aktsiad püstitasid rekordi tänu luksusfirmadele
+-  Européennes 2024 : Charles Michel renonce à se présenter
+-  Über 45 Millionen Klicks: KI-Nacktfotos von Taylor Swift sorgen für Empörung
+-  Ensino médio: Pé-de-Meia dará R$ 2 mil por ano a alunos de baixa renda
