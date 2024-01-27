@@ -1,11 +1,11 @@
 # Latest News
--  السبت .. أجواء باردة وغائمة مع هطول الأمطار
--  KRIMKA ⟩ Pastor-detektiiv püüab pahalasi Rõngu ja Aakre mõisates
--  Bundesliga: Con William Pacho, Eintracht Frankfurt ganó a Mainz
--  Obradović: Kako da odgovorim kada upotrebite takvu reč
--  How Trump's Courtroom Calendar Collides With His Campaign Calendar
--  습격 중학생, '우발적 범행' 진술…배현진 "처벌 원한다"
--  民眾黨「立院龍頭選誰」內幕曝！ 藍綠都有人不願投
--  Cesarićeva u Španskoj ostala je bez pitke vode zbog radova...
--  Rigen alerta roja, naranja y amarilla por calor extremo en nueve provincias argentinas
--  Trump é condenado a pagar R$ 493 milhões a E. Jean Carroll por difamação
+-  Sigue la polémica tras supuesto desaire de los Óscar a ‘Barbie’
+-  용산 대통령실 일주일 [뉴시스Pic]
+-  Matic já viu a derrota do Lyon frente à antiga equipa
+-  健康網》冬季暖心薑茶！ 農糧署：煮前多做1動作更濃郁
+-  Barışma teklifini reddettiği eski erkek arkadaşı tarafından öldürüldü
+-  El ritual de la sal: se hace el último domingo del mes para asegurar el amor y dinero en tu vida
+-  الدور ثمن النهائي يفي بوعوده الفنية والجماهيرية
+-  JPP-KY打入AI伺服器散熱機構件 拿下微軟訂單營運看旺
+-  Jury orders Trump to pay $83.3M to E. Jean Carroll in defamation case
+-  Unterhaltsame Dschungelprüfung: Netz lacht über Twenty4tim!
