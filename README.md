@@ -1,11 +1,11 @@
 # Latest News
--  Dogodilo se na današnji datum, 27. januar
--  Başkentte çok sayıda kaçak araç parçası ele geçirildi
--  森崎ウィン、「俺はガンダムで行く！」が人生を変えた 『ガンダムSEED』最新作で実感した縁の大切さ
--  "Schiebst Filme": Leyla kündigt Kim endgültig Freundschaft
--  Banfield no tuvo un buen debut y sufrió un duro golpe de Huracán
--  Serafini: "Comprendo il borbottio dei tifosi, ma Leao è in assoluto il giocatore più forte che ha il Milan"
--  Az elvárás jelenleg nem elsősorban az eredmény, hanem, hogy a felkészülést szolgálja
--  Ексгенсек НАТО закликав збільшити допомогу Києву
--  Ley ómnibus: el Gobierno decidió retirar el capítulo fiscal para facilitar su aprobación
--  LĐBĐ Việt Nam trực tiếp gặp mặt báo giới
+-  한국, 어쩌다 "음식물 쓰레기 재활용 챔피언" 됐을까
+-  How Apps Use Push Notifications to Spy on You (and How to Stop Them)
+-  Sweet deal? Tentative agreement reached in prolonged B.C. Rogers Sugar strike
+-  „All is one“: Kulturhauptstadtjahr 2024 in Tartu eröffnet
+-  “후티가 공격 안하는 중국 배 타세요” 홍해 봉쇄에 웃는 중국
+-  Sweet deal? Tentative agreement reached in prolonged B.C. Rogers Sugar strike
+-  Horoscope Today, January 27, 2024: Read your daily astrological predictions
+-  Sweet deal? Tentative agreement reached in prolonged B.C. Rogers Sugar strike
+-  Macrotech Developers, Yes Bank, APL Apollo Tubes Q3 Results Today — Earnings Estimates
+-  【インタビュー】舘ひろし×玉木宏、『ゴールデンカムイ』「日本映画もここまで来た」
