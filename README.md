@@ -1,11 +1,11 @@
 # Latest News
--  Stopmotion Trailer and Poster Debut for Macabre Puppet Horror Movie
--  La extenista Aga Radwanska, otra que se suma a la fiebre del pádel
--  E a cocaína tornou-se blocos de cimento: Equador
--  Unabhängigkeitsbewegung in Spanien: Mit Pegasus und paralleler Polizei
--  League without 1 openly gay player having a 'Pride Night' at Super Bowl LVIII
--  Prende a pugni in faccia l'ex fidanzata in un negozio di alimentari, davanti a tutti
--  Milan Mayor Remains Hopeful Of Resurrecting San Siro Renovation Project: “It’s Still An Open Game”
--  MS v letoch na lyžiach vedie po prvom dni Slovinec, má sľubný náskok
--  Furry surprise in theft suspect’s pocket: A tiny blue-eyed puppy
--  러, 한국에 "양국 관계 붕괴시킬 '무모한 우크라 지원' 경고"
+-  Tokat'ta acı olay: Kamyonetin çarptığı 1 kişi hayatını kaybetti, 1 kişi yaralandı!
+-  Sykepleierstudenter med nye ideer: Dette kan være løsningene for framtida
+-  „Úgy reagáltam, ahogy nem kellett volna” – Schäferék edzője önkritikát gyakorolt
+-  В ЕC обеспокоены заявлениями о причастности сотрудников БАПОР к терактам 7 октября
+-  Die Fußballer des FC 07 Bensheim in einem ungeahnten Hoch
+-  Large amount of drugs seized in E. Myanmar
+-  Kotkalainen omakotitalo poltetaan harjoituksena – Kymenlaakson pelastuslaitos ottaa mieluusti vastaan tarjouksia purkukuntoisista rakennuksista
+-  Митрофанова изпрати и на пловдивските съветници декларацията на Думата за Альоша
+-  Liverpul ostaje i bez sportskog direktora, odlazi i kompletan Klopov tim
+-  Gaza, Kraftwerke, Klopp - der Tag kompakt
