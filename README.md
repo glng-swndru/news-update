@@ -1,11 +1,11 @@
 # Latest News
--  A call to secure our cell towers from Chinese spying
--  Un estudio analizará el nivel freático de la calle San Francisco
--  "FATALNE KOMPLIKACIJE OD OPERACIJA ŽELUCA NASTAJU U NAREDNIH 10 DANA!" Dr Ilić otkrio sve što treba da znate o ovoj intervenciji
--  Unities of difference
--  SD-förslaget: Låt arbetslösa skotta gator
--  Chrome ganha versão nativa para o Windows ARM
--  Au Cabanon de l’Ecailler à Grasse, une toute première "oursinade" ce samedi
--  СКА — ЦСКА: смотреть трансляцию матча КХЛ в прямом эфире
--  Sędzia Szymon Marciniak szykuje się do sezonu
--  L’enfer pour Jordy, un Belge, lorsqu’il reçoit une facture d’énergie exorbitante… à cause d’une erreur datant d’il y a 15 ans : « Je n’osais même plus prendre de douche chaude »
+-  SA Zionist Federation says Israel is already complying with humanitarian aid
+-  TKN Merasa Difitnah Soal Beras Bulog Berstiker Prabowo-Gibran
+-  Promis fuhren Ski für den guten Zweck
+-  Timi Zajc zanesljivo k novemu naslovu svetovnega prvaka: »Danes bo malo lažje zaspati kot včeraj«
+-  Meta introduces tool to block nude images in teens' private messages
+-  Ålands Idrottsgala 2024
+-  Šibensko-kninski župan primio dobitnike nagrade Suncokret ruralnog turizma Hrvatske
+-  Beyoğlu'nda turistin gasbedilmesine ilişkin 5 şüpheliye gözaltı!
+-  Skariolo: Partizan polako ulazi u formu
+-  Tax cuts likely with Jeremy Hunt's £14bn budget headroom
