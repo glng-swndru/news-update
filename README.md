@@ -1,11 +1,11 @@
 # Latest News
--  Азербайджанские дзюдоисты завоевали 3 медали в первый день Гран-при в Португалии
--  Рішення про допомогу Україні на 50 млрд євро підтримують всі 27 країн-членів ЄС, - Шмигаль
--  Sri Lanka discusses ways to strengthen economic ties with Jordan
--  Flor Vigna se grabó llorando y le pidió perdón a Noelia Marzol
--  Industrija pred kolapsom: "Gubimo kontrolu"
--  В России упростили медкомиссию для контрактников
--  Prantsuse aktsiad püstitasid rekordi tänu luksusfirmadele
--  Européennes 2024 : Charles Michel renonce à se présenter
--  Über 45 Millionen Klicks: KI-Nacktfotos von Taylor Swift sorgen für Empörung
--  Ensino médio: Pé-de-Meia dará R$ 2 mil por ano a alunos de baixa renda
+-  Google Chrome for Windows now gets native Arm support
+-  YVR chief executive leaving as chair of Canada Infrastructure Bank
+-  VÍDEO: A (sortuda) pancada que ajudou Medvedev a derrotar Zverev
+-  LIVE schaatsen | Jutta Leerdam stelt flink teleur op 1000 meter, geen Nederlanders op podium
+-  Demi Pilpres Satu Putaran, Eks Relawan Jokowi-JK Deklarasi Dukung Prabowo-Gibran
+-  بالفيديو| "جناح إثراء".. القهوة السعودية تجذب زوار معرض القاهرة للكتاب
+-  He's already Victoria's strongest emergency services worker, but can 'Teddy Bear' be its strongest man?
+-  Genialer Küchentrick: So könne Sie Kartoffeln in nur drei Minuten weich kochen
+-  LIVE schaatsen | Jutta Leerdam stelt flink teleur op 1000 meter, geen Nederlanders op podium
+-  Agnelli di nuovo alla Juve? L’amore per i bianconeri è sempre forte: dipende tutto da Elkann
