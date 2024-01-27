@@ -1,11 +1,11 @@
 # Latest News
--  Tokat'ta acı olay: Kamyonetin çarptığı 1 kişi hayatını kaybetti, 1 kişi yaralandı!
--  Sykepleierstudenter med nye ideer: Dette kan være løsningene for framtida
--  „Úgy reagáltam, ahogy nem kellett volna” – Schäferék edzője önkritikát gyakorolt
--  В ЕC обеспокоены заявлениями о причастности сотрудников БАПОР к терактам 7 октября
--  Die Fußballer des FC 07 Bensheim in einem ungeahnten Hoch
--  Large amount of drugs seized in E. Myanmar
--  Kotkalainen omakotitalo poltetaan harjoituksena – Kymenlaakson pelastuslaitos ottaa mieluusti vastaan tarjouksia purkukuntoisista rakennuksista
--  Митрофанова изпрати и на пловдивските съветници декларацията на Думата за Альоша
--  Liverpul ostaje i bez sportskog direktora, odlazi i kompletan Klopov tim
--  Gaza, Kraftwerke, Klopp - der Tag kompakt
+-  Trotz fehlender Erschließung: Viele Gebote für das alte Waltroper Schleusenwärterhaus
+-  Potraga nasljednikom je počela: Jedno ime moglo bi 'Redse' učiniti zastrašujućima
+-  4 Cash Flow Trends To Know About in 2024
+-  Konzert in Kronach: So lief der Coup mit Popstar Sasha
+-  Westerland: Ungewöhnlicher Fund auf Sylt: Riesige Wetterboje am Strand angespült
+-  Ο σωστός τρόπος να καθαρίσετε τον φούρνο μικροκυμάτων
+-  NEW BOOK ALERT: THE FOURTH INDUSTRIAL REVOLUTION & 100 YEARS OF AI (1950-2050) Demystifies Artificial Intelligence
+-  Bartesaghi Milan: un club svizzero prova l’inserimento a sorpresa, cosa sta succedendo
+-  Imágenes militares ‘nunca vistas’ revelan un misterioso OVNI parecido a una medusa
+-  Líkir Hákoni við Courtois - „Enski boltinn hentar honum vel“
