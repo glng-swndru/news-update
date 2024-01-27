@@ -1,11 +1,11 @@
 # Latest News
--  Slaven Tolj, performer: Ko ni mogoče najti besed
--  Лас Палмас - Реал Мадрид
--  Премьер-министр Франции Атталь объявил о мерах в поддержку фермеров
--  ‘ผอ.รพ.เขาย้อย’ ยืนยัน ‘30 บาทรักษาทุกที่’ ปชช.รับบริการสะดวกขึ้น - รพ.เบิกจ่ายได้เร็ว
--  Strong Group downs Moroccan squad to book semis slot in Dubai
--  Menakar Tantangan Investasi Ketenagalistrikan di Tengah Upaya Transisi Energi
--  مرغان کاکایی در نهر اعظم شیراز
--  Congress chief Kharge against 'personality cult,' bets on 'dialogue'
--  تولید سالیانه فولاد خام ایران از مرز ۳۱ میلیون تُن گذشت
--  Женская сборная Туркменистана примет участие в чемпионате CAFA-2024 по футзалу
+-  La Mesa de Enlace de Entre Ríos se reunió con Frigerio
+-  WWE icon McMahon resigns amid sexual misconduct claims
+-  Der neue „Außenminister“: Wie Dennis Schulte die Dattelner Wirtschaft voranbringen will
+-  El fleco suelto de Emiliano Page
+-  Liverpool manager Jurgen Klopp showed himself to be the 'very special one' – Scotsman comment
+-  Premalo dela za vse štorklje
+-  Luật đất đai mới sẽ “giải cứu” hàng trăm dự án nhà ở?
+-  Một phân khúc bất động sản liên tục nhận tín hiệu mới đầu năm 2024, dự đoán sẽ bước vào đà tăng giá mạnh trong 2 năm tới
+-  Premalo dela za vse štorklje
+-  Ровно обыграло Черкасских Мавп и вышло на второе место Суперлиги
