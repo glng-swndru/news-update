@@ -1,11 +1,11 @@
 # Latest News
--  চিংড়ি রপ্তানি খাত থেকে আয় কমেছে ২০ শতাংশ
--  Primera y dolorosa derrota política: Milei, obligado a dar un manotazo de ahogado para salvar la Ley ómnibus
--  Police chase in Terre Haute leads to arrest on several charges
--  Cập nhật BCTC ngày 27/1: Hải Phát, Hoa Sen, ACB, ... cùng loạt doanh nghiệp chủ chốt đã công bố, lợi nhuận Đường Quảng Ngãi thăng hoa
--  Visiting Ephesus out of season
--  Nego Kontrak Mandek, Manchester United Siap Angkut Lautaro Martinez?
--  小さな高級車｢日産オーラ｣を買っている人物像 購入者分析でわかったノートと異なる特殊性 | トレンド | 東洋経済オンライン
--  Minister urges political parties to prioritise education in their election manifestos
--  I have Like a Dragon: Infinite Wealth's $110 Ultimate Edition, and it's making the game less fun
--  What the papers say – January 27
+-  特朗普被判罰逾8千萬美元賠償損害女作家卡羅爾名譽
+-  特朗普遭裁定誹謗女作家卡羅爾 判罰賠償逾8000萬美金
+-  트럼프, '명예훼손' 1000억원대 배상 평결…"항소할 것"
+-  Năm Giáp Thìn có 4 con giáp cực may mắn, đại cát đại lộc, gia chủ hợp tuổi mời “xông đất” thì hết ý
+-  Aclamada trilogía tiene 89% de descuento; compra 3 juegazos por menos de $10 USD en Steam
+-  Three boys drown after outing at Army training camp pool
+-  Judo champ dead at 34 as surgery goes wrong
+-  Judo champ dead at 34 as surgery goes wrong
+-  Judo champ dead at 34 as surgery goes wrong
+-  Гвардиола - об уходе Клоппа из «Ливерпуля»: «Я буду спать лучше»
