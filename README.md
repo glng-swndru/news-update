@@ -1,11 +1,11 @@
 # Latest News
--  Báo Indonesia ghen tỵ với thành tích của ĐT Việt Nam
--  “Direzione politica chiusa e incerta”. Anche nell'ala sinistra del Pd mollano Schlein
--  26-Millionen-Defizit: Grundstücksverkäufe könnten Kirchheims Finanzloch stopfen
--  【瞬間映像】元MBCアナウンサーの女性議員が襲撃 少年が持っていた石で殴りかかる…馬乗りになり暴行も 韓国
--  元アナウンサーの女性議員を少年が襲撃、10回以上殴りかかったか 韓国
--  Kiracıları ilgilendiren emsal karar!
--  Почетино: Получи се качествен мач
--  경북고속도로 판교IC 부근서 버스 3중 추돌…버스 기사 등 10여 명 중경상
--  Румъния стартира проект за нови умения в областта на киберсигурността
--  Ryanair z bazo tudi v Trstu, Ljubljana je zanje predraga
+-  Bayernliga-Derby: Auf der Suche nach dem guten Gefühl
+-  Savjet bezbjednosti UN u srijedu o odluci Međunarodnog suda pravde
+-  Juve Empoli, la chiave sono i calci piazzati: così i bianconeri possono vincere
+-  Reform der Grundsteuer: Erklärungen liegen in Berlin fast vollständig vor
+-  Tony Christie: 'Who would play me in a film of my life? Oh, Brad Pitt' - The Guardian
+-  BBC Strictly's Bill Bailey's life off screen from rarely-seen wife to grief over pal's death
+-  佐々木朗希投手 契約を更改 今季の抱負・メジャー挑戦を会見で＜岩手県＞
+-  錦木が３場所ぶりの勝ち越し 大相撲初場所１４日目＜岩手・盛岡市＞
+-  Kobiety jego życia znają wszyscy, a rodziców? Bliscy Mikołaja Krawczyka też są artystami
+-  Sport in Rheurdt: Junge Tischtennisspieler bei Mini-Meisterschaften des TTC erfolgreich
