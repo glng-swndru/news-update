@@ -1,11 +1,11 @@
 # Latest News
--  "Đột phá thị trường thế giới...": Bài học quý cho người dám nuôi khát vọng
--  ‘서울 직장인 상위 0.1% 평균 연봉 14억’ 강원의 3배…제주 10억, 경기 9억5천 순
--  رواية على عتبات الماضي -30
--  Regina Casé diz que teve lesão na córnea causada por cola de cílios postiços: 'Muito assustador'
--  Martyrs week: Martyr Dharmabhakta remembered
--  Martyrs week: Martyr Dharmabhakta remembered
--  Medellín: Firmantes de la paz recibieron bienes de la SAE para proyectos productivos
--  Als die Tierpflegerin diese Aufnahmen sieht, wird sie wütend: „Wir werden Anzeige erstatten.“
--  Charles Osgood has died aged 91
--  Donald Trump rants over 'ridiculous witch-hunt' and vows to appeal $83.3m court order
+-  Şiir Yazsaydın İsmail’im, Niye Bünyede Biriktirdin?!
+-  “Gazze’yi kurtarmak, müslüman liderler için farzdır”
+-  Hiç Kimseyi Dinlemiyor!
+-  弄丟也能找到！iPadOS 17.4代碼洩露Apple Pencil新功能
+-  Hancur di Piala Asia 2023, Vietnam Janji Balas Dendam ke Indonesia
+-  國防秘辛》大漠中隊基層的第一線視角 有些事還有求於「蘇聯」
+-  “Ek gösterge, seçimden önce TBMM’ye getirilmeli”
+-  Aynı Ülkede Yaşamıyor Muyuz?
+-  Kızıldeniz’deki gerilim: Navlun fiyatları 8 haftadır artıyor
+-  Đàn ông hay phụ nữ nếu gương mặt có 3 đặc điểm này chứng tỏ thọ dài, dễ sống trăm tuổi: Ai có đủ thì xin chúc mừng
