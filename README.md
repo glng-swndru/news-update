@@ -1,11 +1,11 @@
 # Latest News
--  LinkedIn, Twitter y Adobe en alerta por filtración masiva de datos de usuarios
--  Slaven Belupo u ludoj utakmici slavio protiv Varaždina
--  É 'muito cedo' para falar sobre cortes de juros, reitera dirigente do BCE
--  Majdnem mindent megtenne Izrael a túszokért
--  How Beverly Johnson Is Celebrating 50 Years Since Historic Vogue Cover, Plus Naomi Sims' Unforgettable Words To Her
--  Holocaust: Seltene Bilder aus dem Todeslager Auschwitz tauchten in Castrop-Rauxel auf
--  Opera welcomes the opening of iOS to other browser engines, announces its plans to give iPhone users a true AI-powered alternative to Safari
--  The best base locations in Palworld
--  Régional 1 : l'Académie Moulins a une bonne occasion de faire un bond au classement
--  VIDEO Oameni care inspiră România. Tudor Chirilă: There is no planet B
+-  13,318 people in emergency accommodation in December, a 13.5% increase on previous year
+-  آبنبات دارچینی در آخر هفته
+-  Au fost descoperite peșteri ascunse, aflate la aproximativ 6 metri sub nivelul străzii. Oamenii care locuiesc în ele
+-  Αναγκαστική αλλαγή στο 5΄, δεν το πίστευε ο Χριστοδούλου
+-  Σε υψηλό διετίας έκλεισαν οι ευρωαγορές
+-  Kuže ga je skoro istukao, Hrvate iznimno cijeni, a zbog supruge se zahvalio Manchester Unitedu
+-  MHP 55 adayını daha açıkladı
+-  Britney Spears serves poetic justice to Justin Timberlake in comeback hit
+-  Hosszú Katinka: Kvázi kegynek kell éreznem, hogy támogatják a felkészülésemet
+-  Voormalig gidsland Nederland kijkt nu naar het buitenland voor drugsbeleid
