@@ -1,11 +1,11 @@
 # Latest News
--  الشباب يفضلون تيك توك كمحرك بحث على غوغل .. لماذا؟
--  İthal hayvanlar daha büyük sorun yaratacak: AKP ise günü kurtarma derdinde
--  ΠΕΡΙΟΡΙΣΜΕΝΕΣ
--  Suomalaistutkijoiden löytö kumoaa tylsistymiseen liitetyn luulon – ”Voi olla samanlainen riski terveydelle kuin...”
--  Ucuz tencere tabak alma çılgınlığı! Yaklaşık 3 bin kişi katıldı...
--  Türk doktorlar Özbekistan'da bir ilki gerçekleştirdi
--  Cyril Féraud se lâche au sujet de sa nouvelle partenaire Léa Salamé : "oeil coquin", "mauvaise haleine"...
--  Putin y Lukashenko celebrarán una reunión en San Petersburgo
--  Edito. L'autre big Mac
--  Descubren peces que viven más de 100 años en el desierto de Arizona
+-  India vs England Live Score, 1st Test Day 3: Ollie Pope scores a sublime ton in Hyderabad - The Indian Express
+-  Deux entreprises sud-coréennes coopèrent pour le développement touristique au Vietnam
+-  LIVEBLOG CHARLEROI-CLUB BRUGGE (20u45). Nusa opnieuw in de basis verwacht bij Club
+-  "Ogniste mumie" z Kabayan znikają. Tajemnica filipińskiej mumifikacji zagrożona
+-  İşte unutkanlığı unutturacak baharat. İbn-i Sina’nın 1000 yıl önceki reçetesinden çıktı
+-  LHQ kêu gọi triển khai khẩn cấp lực lượng đa quốc gia đến Haiti
+-  Orbán Viktor mégsem lesz uniós csúcsvezető
+-  Avustralya Açık'ta kadınlarda Aryna Sabalenka şampiyon oldu
+-  AUSTRALIJAN OPEN IMA ŠAMPIONA: Arina Sabalenka i Ćinven Dženg odigrale neverovatan meč
+-  „Nicht meine Spezialität“: Götze köpft Eintracht zum Sieg
