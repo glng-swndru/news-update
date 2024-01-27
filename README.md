@@ -1,11 +1,11 @@
 # Latest News
--  Sigue la polémica tras supuesto desaire de los Óscar a ‘Barbie’
--  용산 대통령실 일주일 [뉴시스Pic]
--  Matic já viu a derrota do Lyon frente à antiga equipa
--  健康網》冬季暖心薑茶！ 農糧署：煮前多做1動作更濃郁
--  Barışma teklifini reddettiği eski erkek arkadaşı tarafından öldürüldü
--  El ritual de la sal: se hace el último domingo del mes para asegurar el amor y dinero en tu vida
--  الدور ثمن النهائي يفي بوعوده الفنية والجماهيرية
--  JPP-KY打入AI伺服器散熱機構件 拿下微軟訂單營運看旺
--  Jury orders Trump to pay $83.3M to E. Jean Carroll in defamation case
--  Unterhaltsame Dschungelprüfung: Netz lacht über Twenty4tim!
+-  Goza com filho de Romana por usar saias: "Até os cantores pimba..."
+-  Хутите удариха кораб, превозващ руска нафта край Йемен
+-  Lando Norris renova com a McLaren e fecha a porta da Red Bull
+-  ‘Looks’ de belleza ‘coquette’ que vimos en la semana de Alta Costura en París
+-  De Laurentis: Osimen na leto napušta Napoli
+-  HITNA REAKCIJA Zvezdin rival iz Lige šampiona otpustio dvojicu fudbalera zbog rasizma
+-  OTKRIVENA VELIKA TAJNA TOME ZDRAVKOVIĆA: Zbog jedne odluke je ceo život vozio bez dozvole
+-  Aydın'da TIR'daki valizden uyuşturucu çıktı
+-  Težak udarac za Dinamo! Četiri talenta, legenda kluba i važan djelatnik odlaze u Kustošiju
+-  １／２７朝
