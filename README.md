@@ -1,11 +1,11 @@
 # Latest News
--  „MG Baltic“ bylos analizė. Kodėl po konkurentus žudančio nuosprendžio garsiai nesidžiaugia socialdemokratai?
--  Ein Meer dazwischen - Mobile Jugendoper feierte in Zwettl Premiere
--  "Elles semblent criblées de balles": un scarabée dévoreur menace le commerce de la truffe dans le Haut-Var
--  Chef's 'jaw drops' at amazing boiled egg hack they never knew existed
--  A história do Pingo (doce)
--  На живо: женския финал на Australian Open
--  電車運転士や駅係員… 外国人労働者の特定技能、4分野の追加を検討
--  تطورات جديدة في انتقال كاسيميرو إلى النصر
--  Trailer zum Kino-Comeback eines der coolsten Filme mit Bruce Willis: Erlebt das Sci-Fi-Spektakel "Das fünfte Element" in 4K!
--  США усиливают свои позиции в странах Западной Африки взамен французов
+-  “Queremos mais desporto na RTP e três horas semanais de Educação Física na escola”
+-  Новият секссимвол на българското кино и Кралят на рока влизат в „Черешката на тортата“
+-  Още един хърватски гранд се насочи към нападател на Фиорентина
+-  En attendant la reprise, Montluçon et Domérat (R1) disputent les 32es de finale de la Coupe Laura
+-  Che fine ha fatto Leandrinho, il brasiliano ex Napoli è "sprofondato"
+-  Tomasz Kammel po zwolnieniu z TVP nie ma co narzekać na brak pieniędzy. Wiemy, ile będzie teraz zarabiał
+-  Allan Collander – målartalangen som blev sjöman
+-  FBiH Više od 287.000 osoba nema zdravstveno osiguranje
+-  Prof. Dr. Övgün Ahmet Ercan ve Naci Görür'den deprem açıklaması! 2024 depremsiz geçmeyecek!
+-  Zeytinburnu'nda güpegündüz gasp! Bankadan iki poşet dolusu parayla çıktı, aracına binerken...
