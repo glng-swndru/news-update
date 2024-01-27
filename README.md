@@ -1,11 +1,11 @@
 # Latest News
--  Inför nya toppmötet: ”Vi måste vara beredda att betala priset”
--  Napi trükkös matek feladat: Mi a megoldás?
--  নাইট্রোজেন গ্যাস দিয়ে মৃত্যুদণ্ড কার্যকরে সময় লাগে ২২ মিনিট, কী বলছেন সমালোচকেরা
--  Inför nya toppmötet: ”Vi måste vara beredda att betala priset”
--  Own a part of Solihull for as little as £1 - but there's a catch
--  Látta már Tóth Gabi hasonmását? Ne hagyja ki!
--  Unique £8 Amazon 'perfume pods' help you drink more water 'through the power of scent'
--  A mosoly
--  Stade Rochelais Basket. Josselyn Rallec : « Julien (Cortey) a construit un projet défensif unique »
--  To nie żart. Gigantyczna kasa dla Thurnbichlera. Pięciocyfrowa kwota w euro
+-  Millî Savunma Bakanı Güler, Hatay'daki Ziyaret Hudut Karakolu'nda inceleme ve denetlemelerde bulundu
+-  Ολοκαύτωμα: γνώριζαν όλοι! Γιατί οι Μεγάλοι δεν έκαναν το παραμικρό για να σώσουν 6 εκατ. μελλοθάνατους
+-  Юрист предупредил о последствиях конфискации российских активов для США
+-  Toliko so nekateri pripravljeni plačati za diplomsko nalogo
+-  ŽESTOKI NAPADI NA JUGU UKRAJINE Zelenski naložio planove za zaštitu gradova na liniji fronta (FOTO/VIDEO)
+-  ‘Bij talkshow 'Op1' zou ik het verhaal van de verloren zoon voorlezen’: Uitgever Pieter de Boer houdt van de Bijbel
+-  À moins de 150 €, ce smartphone Xiaomi est N°1 des ventes sur ce site réputé
+-  DRAMA U MAKARSKOJ Planula pećnica u ugostiteljskom objektu
+-  Türkiyədə 5.1 maqnitudalı zəlzələ olub
+-  VKSND Phú Nhuận truy tố người trộm 6 chai lăn khử mùi trị giá 680.000 đồng
