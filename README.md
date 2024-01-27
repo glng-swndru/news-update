@@ -1,11 +1,11 @@
 # Latest News
--  Ravindra back in test squad for SA
--  Fehlende MFA, Standardpasswort: So lief der Angriff auf die MS-Securityabteilung
--  Tartu: Kulturhauptstadt 2024: Eine Stadt, die viel cooler ist, als sie aussieht
--  Blindflug durch Blendung: Wann das Fahren mit Fernlicht nicht erlaubt ist
--  heise+ | Photoshop 2024 und Lightroom: Neue Funktionen im Detail
--  Bán 4 thỏi vàng, nhận chuyển khoản gần 350 triệu đồng, người đàn ông lập tức bị ‘phong toả’ tài khoản ngân hàng: Cảnh sát tiết lộ sự thật chấn động về nguồn gốc số tiền
--  Taieri aim to sneak into 3-horse race
--  Another child death tied to the flu in B.C., the 4th this season
--  2024’s best sale yet on Switch games just kicked off
--  Who is Jurgen Klopp’s son Marc Klopp?
+-  Stopmotion Trailer and Poster Debut for Macabre Puppet Horror Movie
+-  La extenista Aga Radwanska, otra que se suma a la fiebre del pádel
+-  E a cocaína tornou-se blocos de cimento: Equador
+-  Unabhängigkeitsbewegung in Spanien: Mit Pegasus und paralleler Polizei
+-  League without 1 openly gay player having a 'Pride Night' at Super Bowl LVIII
+-  Prende a pugni in faccia l'ex fidanzata in un negozio di alimentari, davanti a tutti
+-  Milan Mayor Remains Hopeful Of Resurrecting San Siro Renovation Project: “It’s Still An Open Game”
+-  MS v letoch na lyžiach vedie po prvom dni Slovinec, má sľubný náskok
+-  Furry surprise in theft suspect’s pocket: A tiny blue-eyed puppy
+-  러, 한국에 "양국 관계 붕괴시킬 '무모한 우크라 지원' 경고"
