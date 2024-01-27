@@ -1,11 +1,11 @@
 # Latest News
--  Teljesen értelmetlenek a nyugati légicsapások? - Újra akcióba lendültek a húszik Jemenben
--  Saudi Arabia sets operational guidelines for bonded zones
--  Nora Kronig Romero named director of Swiss Red Cross
--  TROLLEY WATCH: Friday's figures from St Luke's Hospital - Kilkenny Live
--  Maanantain ja tiistain välisenä yönä Janakkalassa palanut hirsitalo alkoi kyteä uudelleen – "Tilannetta on seurattava edelleen"
--  World Court Rejects Demand for Gaza Cease-Fire
--  UN-Gericht ordnet kein Ende von Militäreinsatz in Gaza an
--  U srijedu 31.1. darujemo ulaznicu za dvije osobe
--  Eins stigs sigur í rúmlega 270 stiga leik
--  Lyžiari Šrobová a Barnáš na ZOHM obsadili v tímovej súťaži 14. miesto
+-  Le Prix Goncourt, Mohamed Mbougar Sarr rend hommage à son aîné l'écrivain Abass Ndione
+-  Pressman: Orbán külpolitikája képzelgésekre épül, Magyarország elszigetelődött, pedig nem kellene magára maradnia
+-  Fundusz Sprawiedliwości. Kto wręczał frytkownice, miksery i wozy strażackie?
+-  Cutremur în România, raportat vineri. Unde a fost resimțit si ce magnitudine a avut
+-  Nərimanovda anbarda yanğın oldu
+-  Zisk koncernu Visa v 1. kvartáli prekonal očakávania trhu
+-  Kritische Lücken bedrohen Onlineshops auf Gambio-Basis
+-  "التحكم المروري": يطلب من السائقين توخي الحذر وتخفيف السرعة على الطرقات بسبب الامطار الغزيرة وعدم سلوك الطرقات الجبلية الا بعد التأكد من حالتها
+-  Медведев предрёк США образование «Техасской Народной Республики»
+-  Blaulicht: Tasche vom Arm gerissen: Wuppertaler Senior wird Opfer eines Raubs
