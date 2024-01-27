@@ -1,11 +1,11 @@
 # Latest News
--  Bayernliga-Derby: Auf der Suche nach dem guten Gefühl
--  Savjet bezbjednosti UN u srijedu o odluci Međunarodnog suda pravde
--  Juve Empoli, la chiave sono i calci piazzati: così i bianconeri possono vincere
--  Reform der Grundsteuer: Erklärungen liegen in Berlin fast vollständig vor
--  Tony Christie: 'Who would play me in a film of my life? Oh, Brad Pitt' - The Guardian
--  BBC Strictly's Bill Bailey's life off screen from rarely-seen wife to grief over pal's death
--  佐々木朗希投手 契約を更改 今季の抱負・メジャー挑戦を会見で＜岩手県＞
--  錦木が３場所ぶりの勝ち越し 大相撲初場所１４日目＜岩手・盛岡市＞
--  Kobiety jego życia znają wszyscy, a rodziców? Bliscy Mikołaja Krawczyka też są artystami
--  Sport in Rheurdt: Junge Tischtennisspieler bei Mini-Meisterschaften des TTC erfolgreich
+-  الشباب يفضلون تيك توك كمحرك بحث على غوغل .. لماذا؟
+-  İthal hayvanlar daha büyük sorun yaratacak: AKP ise günü kurtarma derdinde
+-  ΠΕΡΙΟΡΙΣΜΕΝΕΣ
+-  Suomalaistutkijoiden löytö kumoaa tylsistymiseen liitetyn luulon – ”Voi olla samanlainen riski terveydelle kuin...”
+-  Ucuz tencere tabak alma çılgınlığı! Yaklaşık 3 bin kişi katıldı...
+-  Türk doktorlar Özbekistan'da bir ilki gerçekleştirdi
+-  Cyril Féraud se lâche au sujet de sa nouvelle partenaire Léa Salamé : "oeil coquin", "mauvaise haleine"...
+-  Putin y Lukashenko celebrarán una reunión en San Petersburgo
+-  Edito. L'autre big Mac
+-  Descubren peces que viven más de 100 años en el desierto de Arizona
