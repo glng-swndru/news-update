@@ -1,11 +1,11 @@
 # Latest News
--  Jalkapallo | Lahden stadion­hanke syöksyy taas kohti umpikujaa – ”Ei täytä Veikkaus­liigan vaatimuksia”
--  Pictures: Surfers’ huge tribute for teen shark victim
--  ZDA odobrile prodajo letal F-16 Turčiji
--  Mutfaktaki zehirleyen tehlike! Dikkat! Bu hatayı herkes yapıyor
--  این فیلم درباره پرونده جنجالی غزاله و آرمان است؟ | حاشیه سازی کردند داستان فیلم من واقعی نیست...
--  이준석, 與 보궐 참패 ‘서울 강서’ 방문…“정부·여당, 민생 관심 없어”
--  МТМ: Машина тоталитаризма модернизированная. Власть в обществе, обретающем тоталитарные черты, — это не персоны, не институты, не закон, а стратегии и техники сохранения господства
--  Boey tarihi transfer için Münih'e gitti!
--  Gebühren-Erstattung sollte für alle kommen: Auch eine arme Stadt muss anständig bleiben
--  Oishii: Lunch treat for Straits Times School Pocket Money Fund beneficiaries
+-  Kerala Governor Arif Mohammed Khan to send copy of FIR to Centre; SFI to intensify protest
+-  Likimą tyrinėjantis profesorius: bandyti išburti ateitį – ne visada beprasmis užsiėmimas
+-  신세경 “‘세계 일주 전 결혼 안 한다’ 발언 철회”
+-  Enerji alanında düzenlemeler içeren kanun teklifi pazartesi Meclise sunulacak
+-  La zona azul empieza a funcionar en Valderrobres en cinco calles céntricas
+-  Ινστιτούτο Παστέρ: Συνεχίζει να σαρώνει η γρίπη - 92% το ποσοστό της Η1N1 στην κοινότητα
+-  Onko oma presidenttiehdokas vielä haussa? – Tee Kauppalehden vaalikone
+-  ВИДЕО. Гвардиола отреагировал на новость об уходе Клоппа из Ливерпуля
+-  Ivana Mrvaljević - glumica koju smo voljeli
+-  ‘역사왜곡 시비’ 고려거란전쟁, 1주일 결방…“완성도 높이겠다”
