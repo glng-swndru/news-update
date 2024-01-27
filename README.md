@@ -1,11 +1,11 @@
 # Latest News
--  Google Chrome for Windows now gets native Arm support
--  YVR chief executive leaving as chair of Canada Infrastructure Bank
--  VÍDEO: A (sortuda) pancada que ajudou Medvedev a derrotar Zverev
--  LIVE schaatsen | Jutta Leerdam stelt flink teleur op 1000 meter, geen Nederlanders op podium
--  Demi Pilpres Satu Putaran, Eks Relawan Jokowi-JK Deklarasi Dukung Prabowo-Gibran
--  بالفيديو| "جناح إثراء".. القهوة السعودية تجذب زوار معرض القاهرة للكتاب
--  He's already Victoria's strongest emergency services worker, but can 'Teddy Bear' be its strongest man?
--  Genialer Küchentrick: So könne Sie Kartoffeln in nur drei Minuten weich kochen
--  LIVE schaatsen | Jutta Leerdam stelt flink teleur op 1000 meter, geen Nederlanders op podium
--  Agnelli di nuovo alla Juve? L’amore per i bianconeri è sempre forte: dipende tutto da Elkann
+-  Как зародилась азербайджанская детская поэзия
+-  Gvatemalā maiju karaļa kapenēs atrasta nefrīta maska
+-  Yamoussoukro : La pénurie de tickets pour le match Sénégal vs Côte d'Ivoire suscite la colère des supporters !
+-  A nap legfontosabb hírei egy helyen – 2024. január 26.
+-  Sigüenza será sede de la final de la XVI Edición del Concurso de Pinchos y Tapas Medievales en octubre
+-  Mazanec si nulou vychutnal „svoji" Plzeň: Možná mi doma vymlátí okna
+-  Trenérská anketa. Železný děkuje Vadlejchovi, Tomatis přidá v češtině
+-  Live Euromillions results for Friday, January 26: The winning numbers from £111m draw and Thunderball
+-  PINL: Our Projects Brought Peace, Employment to Niger Delta
+-  Basketbalisti BC Prievidza zdolali Iskru Svit 70:50
