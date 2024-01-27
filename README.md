@@ -1,11 +1,11 @@
 # Latest News
--  Sex and the City: Εδωσαν 52.000 δολάρια για να πάρουν τη φούστα της Κάρι Μπράντσο - Στοίχιζε... 5 δολάρια
--  Sexismus in Frankreich: „Familien fördern Stereotype“
--  США нанесли новый удар по Йемену, целью была ракета хуситов
--  Revanschläge för Kianzad: ”Precis vad jag längtat efter”
--  Piala Asia 2023: Manfaatkan Tinggi Badan, Bek Australia Pede Bisa Bekuk Indonesia
--  Revanschläge för Kianzad: ”Precis vad jag längtat efter”
--  Спасената София - Труд
--  Genomgång: Brotten som ökade – och minskade – på ön
--  Байдън унищожи енергетиката на Европа докато наказва Тексас за бунт - Труд
--  Hogwarts Legacy ha venduto più di 24 milioni di copie finora
+-  Jalkapallo | Lahden stadion­hanke syöksyy taas kohti umpikujaa – ”Ei täytä Veikkaus­liigan vaatimuksia”
+-  Pictures: Surfers’ huge tribute for teen shark victim
+-  ZDA odobrile prodajo letal F-16 Turčiji
+-  Mutfaktaki zehirleyen tehlike! Dikkat! Bu hatayı herkes yapıyor
+-  این فیلم درباره پرونده جنجالی غزاله و آرمان است؟ | حاشیه سازی کردند داستان فیلم من واقعی نیست...
+-  이준석, 與 보궐 참패 ‘서울 강서’ 방문…“정부·여당, 민생 관심 없어”
+-  МТМ: Машина тоталитаризма модернизированная. Власть в обществе, обретающем тоталитарные черты, — это не персоны, не институты, не закон, а стратегии и техники сохранения господства
+-  Boey tarihi transfer için Münih'e gitti!
+-  Gebühren-Erstattung sollte für alle kommen: Auch eine arme Stadt muss anständig bleiben
+-  Oishii: Lunch treat for Straits Times School Pocket Money Fund beneficiaries
