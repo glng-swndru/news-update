@@ -1,11 +1,11 @@
 # Latest News
--  My Korean Jagiya: Full Episode 98 (with English subs)
--  Hurkacz ukarany. Powodem zachowanie w ćwierćfinale Australian Open
--  PlayStation 5 recebe finalmente acessórias na cor Sterling Silver
--  Búnir að lána Everton meira en 160 milljónir punda
--  Marc Levy ? Molly Keane ? Le Prix des libraires ? Découvrez les nouveaux livres de poche recommandés par la rédaction
--  Marc Levy ? Molly Keane ? Le Prix des libraires ? Découvrez les nouveaux livres de poche recommandés par la rédaction
--  McMahon resigns from WWE parent company after sexual misconduct allegations
--  Arielle Boulin-Prat et Bertrand Renard ("Des chiffres et des lettres") aux Prud'hommes : la décision est tombée
--  Zvanično – Nemanja Matić ima novi klub
--  2 dividend shares I’m buying in February
+-  Athletic: Liverpool je u Premier ligi našao zamjenu za Kloppa
+-  Szybko poszło. Oto faworyci do zastąpienia Kloppa
+-  La IA vendrá a revolucionar la forma cómo construimos hoy
+-  SN ekskluzivno doznaju: Sve je gotovo, Brekalo je na putu za Split, evo kad bi trebao biti predstavljlen u Hajduku!
+-  Kábítószerrel bukott le a Birmingham bandája egyik legnagyobb sztárja: „Gyakran felismerik, és ő mindent megtesz, hogy a sorozat rajongóinak kedvében járjon”
+-  Trauerbeflaggung in Dortmund: Deshalb hängen die Fahnen am Samstag auf Halbmast
+-  United States: NASA's Perseverance Rover Unearths Evidence of Ancient Martian Lake
+-  Trauerbeflaggung in Dortmund: Deshalb hängen die Fahnen am Samstag auf Halbmast
+-  Lukašenko atkal atlidojis pie Putina
+-  Travaux, aménagement, recrutement... la Ville de Bonneval et la communauté de communes du Bonnevalais ont présenté conjointement leurs vœux
