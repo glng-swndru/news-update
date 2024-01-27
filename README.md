@@ -1,11 +1,11 @@
 # Latest News
--  Goza com filho de Romana por usar saias: "Até os cantores pimba..."
--  Хутите удариха кораб, превозващ руска нафта край Йемен
--  Lando Norris renova com a McLaren e fecha a porta da Red Bull
--  ‘Looks’ de belleza ‘coquette’ que vimos en la semana de Alta Costura en París
--  De Laurentis: Osimen na leto napušta Napoli
--  HITNA REAKCIJA Zvezdin rival iz Lige šampiona otpustio dvojicu fudbalera zbog rasizma
--  OTKRIVENA VELIKA TAJNA TOME ZDRAVKOVIĆA: Zbog jedne odluke je ceo život vozio bez dozvole
--  Aydın'da TIR'daki valizden uyuşturucu çıktı
--  Težak udarac za Dinamo! Četiri talenta, legenda kluba i važan djelatnik odlaze u Kustošiju
--  １／２７朝
+-  Dogodilo se na današnji datum, 27. januar
+-  Başkentte çok sayıda kaçak araç parçası ele geçirildi
+-  森崎ウィン、「俺はガンダムで行く！」が人生を変えた 『ガンダムSEED』最新作で実感した縁の大切さ
+-  "Schiebst Filme": Leyla kündigt Kim endgültig Freundschaft
+-  Banfield no tuvo un buen debut y sufrió un duro golpe de Huracán
+-  Serafini: "Comprendo il borbottio dei tifosi, ma Leao è in assoluto il giocatore più forte che ha il Milan"
+-  Az elvárás jelenleg nem elsősorban az eredmény, hanem, hogy a felkészülést szolgálja
+-  Ексгенсек НАТО закликав збільшити допомогу Києву
+-  Ley ómnibus: el Gobierno decidió retirar el capítulo fiscal para facilitar su aprobación
+-  LĐBĐ Việt Nam trực tiếp gặp mặt báo giới
