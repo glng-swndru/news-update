@@ -1,11 +1,11 @@
 # Latest News
--  Nya träd ska planteras i Kunskapsparken
--  'BJP ने AAP विधायकों से संपर्क किया, सरकार गिराने की तैयारी', CM केजरीवाल ने किया दावा
--  Bigg Boss 17: अंकिता नहीं...इस कंटेस्टेंट के सपोर्ट में उतर रहे टीवी-बॉलीवुड सेलेब्स, एक ने तो स्टोरी शेयर कर मांगे वोट!
--  Kenya court blocks deployment of police officers to Haiti
--  Bắt đối tượng sát hại cụ bà, ném xác xuống giếng phi tang
--  Destini Gooddine passes 1,000 career points
--  Nya träd ska planteras i Kunskapsparken
--  В Томске создают математическую модель для лечения женщин с онкологией
--  Son dakika! 10 ilde 'Sibergöz' Operasyonu: 33 şüpheli gözaltında
--  الهلال ينزل الرياض
+-  Inför nya toppmötet: ”Vi måste vara beredda att betala priset”
+-  Napi trükkös matek feladat: Mi a megoldás?
+-  নাইট্রোজেন গ্যাস দিয়ে মৃত্যুদণ্ড কার্যকরে সময় লাগে ২২ মিনিট, কী বলছেন সমালোচকেরা
+-  Inför nya toppmötet: ”Vi måste vara beredda att betala priset”
+-  Own a part of Solihull for as little as £1 - but there's a catch
+-  Látta már Tóth Gabi hasonmását? Ne hagyja ki!
+-  Unique £8 Amazon 'perfume pods' help you drink more water 'through the power of scent'
+-  A mosoly
+-  Stade Rochelais Basket. Josselyn Rallec : « Julien (Cortey) a construit un projet défensif unique »
+-  To nie żart. Gigantyczna kasa dla Thurnbichlera. Pięciocyfrowa kwota w euro
