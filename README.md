@@ -1,11 +1,11 @@
 # Latest News
--  Kara yollarında son durumlar ne oldu? İşte 28 Ocak kara yollarında son durumlar
--  Antonio García, alcalde de Montemayor: "No tener el corsé de un partido te da más libertad para tomar decisiones"
--  Verkaufsoffener Sonntag NRW: Wo Sie am 28. Januar shoppen können
--  Wirte kämpfen mit Preissteigerungen: Kreisvorsitzende des Gaststättenverbands klärt auf
--  Verkaufsoffener Sonntag NRW: Wo Sie am 28. Januar shoppen können
--  Volunteers from Harwood Artisan Market show their community support
--  Le CS Mainvilliers joue enfin en 2024 et accueille Linas-Montlhéry pour rester invaincu à domicile
--  Bu bölgələrə güclü qar yağdı
--  PROGNOZA ZA DALMACIJU Sunčano s burom
--  VIDEO: Kelemen strelil dva góly a pobil sa, Koch bol vylúčený za bizarný faul
+-  Die Restaurant-Rechnung aufzuteilen, lehnen immer mehr Menschen ab – für sie heißt es jetzt, jeder Gast ist für sich
+-  SINA OD 32 DANA OSTAVILA U DVORIŠTU NA 10 MINUTA I TO JU JE PROGANJALO DO SMRTI: Zbog pogrešnog koraka presudila sopstvenom detetu
+-  Dan po rekordu še trojni dvojček Luke Dončića
+-  Dan po rekordu še trojni dvojček Luke Dončića
+-  Esenyurt'ta bankadan çıkan vatandaşı gasp eden şüpheliler yakalandı
+-  Ayvacık açıklarında 39 kaçak göçmen yakalandı
+-  کراچی کی تاریخ میں عالمی معیار کی پہلی میراتھن کا انعقاد
+-  Melbourne-Aus: Djokovic will von Wachablösung nichts wissen
+-  Studi: Gen Z Justru Lebih Jarang Pakai AI untuk Pekerjaan Dibandingkan Gen X dan Milenial
+-  Nach Einzel-Erfolg: Wellinger peilt am Kulm Team-Podium an
