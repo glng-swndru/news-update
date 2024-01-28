@@ -1,11 +1,11 @@
 # Latest News
--  Yaban hayatı gönüllüleri, nadir canlıların yuvalarını saymak için gitti. Yarısından fazlası yok olmuştu. Oradaki izlerden suçlular hemen ortaya çıktı
--  Обявиха най-добрия град за 2024 г.
--  What Makes Altar Of Praise Ministry Unique – Grace Deh
--  Energie: Stadtwerke Menden verschicken ihre Jahresabrechnungen
--  #foto #video Dončić s trojnim dvojčkom in 28 točkami, Dallas vseeno izgubil
--  大谷翔平の英語スピーチにＮＹ記者が感嘆の声「品があって、とっても明瞭な英語だった。感動した」 - スポーツ報知
--  [도하NOW]‘사실상 원정’ 사우디전, 만만히 봐선 안 되는 이유
--  Определен мужской состав сборной Украины на ЧМ
--  Kırmızı bültenle aranan 6 DEAŞ'lı Türkiye'de yakalandı
--  Studniówka 2024 w Zespole Szkół Zawodowych Nr 2 w Białymstoku. Tak bawili się przyszli maturzyści
+-  La chronique du temps présent de Franck Bouysse : "Nous valons mieux que la colère, nous valons mieux que la haine"
+-  "J’arrive à me projeter pour les 25 prochaines années": avec ces Azuréens qui ont décidé de devenir secrétaires de mairie
+-  Zirkzee incanta San Siro e si candida a futuro 9 del Milan: cosa succederà in estate
+-  RTL+ 2 Monate kostenlos: Roku-Kunden streamen Dschungelcamp und Co. gratis
+-  Kết quả Australian Open hôm nay: Jannik Sinner vs Daniil Medvedev
+-  La chronique du temps présent de Franck Bouysse : "Nous valons mieux que la colère, nous valons mieux que la haine"
+-  Blinken'ın evinin karşısında Gazze çağrısı
+-  FRANCUSKA ČETVRTI ILI DANSKA TREĆI PUT: U Kelnu se za evropsku krunu bore olimpijski pobednik i svetski prvak
+-  지2터치 “中 토레드와 협력으로 제2 도약…고객·제품 확장 추진”
+-  Che tempo che fa, stasera in tv: Rafael Leão, Giuseppe Conte e gli altri ospiti della serata
