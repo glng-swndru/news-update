@@ -1,11 +1,11 @@
 # Latest News
--  Zu viel Druck? Anya heult, weil sie Dschungel-Teamchefin ist
--  Hiihto | Ruotsin naisilta ”hullu” kisa maailman­cupissa – Joni Mäki ja Jasmin Kähärä hiihtivät kauden parhaansa
--  Grutière, barmaid, maçonne ou encore soudeuse, elles accordent leurs métiers au féminin
--  Mehmetçik zorlu kış şartlarında keşif, gözetleme ve devriye faaliyetlerini sürdürüyor
--  Bayern preživio gostovanje kod Augsburga, Andrej Kramarić zabio u remiju
--  Futbolçu hakimi xəstəxanalıq etdi
--  Grutière, barmaid, maçonne ou encore soudeuse, elles accordent leurs métiers au féminin
--  Актриса Вера Молчанова умерла через сутки после своего дня рождения
--  Milica Đurđević Stamenkovski rasturila autošoviniste: To su moralno hendikepirani ljudi koji ne stoje iza bilo čega!
--  Gdje su i što rade plaćenici iz skupine Wagner? 'Čeka ih smrt ako ne poslušaju naredbu'
+-  „Für mich braucht ein Song Gemüt – nicht KI“ – Rock-Tausendsassa Achim Reichel wird 80
+-  Disabled Highland woman hits out at 'supermarket ban discrimination'
+-  Der Herr der Ringe: Die Sprachen Mittelerdes - 6 Fakten über Tolkiens linguistische Fantasy-Welt
+-  Permis octroyé pour la reconstruction de l’école communale de Saint-Nicolas, située rue d’Angleur, qui a été détruite pour insalubrité
+-  Как се пише: свещено или свещенно?
+-  Η απίστευτη ιστορία του ζευγαριού που είναι παντρεμένο 91 χρόνια και αγαπημένο - Βίντεο
+-  „Für mich braucht ein Song Gemüt – nicht KI“ – Rock-Tausendsassa Achim Reichel wird 80
+-  Foliões são convidados por blocos para ação "antes da folia, pratique empatia"
+-  تاب‌آوری فمینیستی – بخش دوم: مبارزه زنان بلوچ، «راهپیمایی طولانی بلوچ»
+-  Madonna is coming to Seattle Feb 17-18, tickets now available for ‘The Celebration Tour’
