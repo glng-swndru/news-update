@@ -1,11 +1,11 @@
 # Latest News
--  Bayern smeygði sér í toppsætið - Dýrmætur sigur hjá Venezia
--  Mathieu van der Poel toont weer zijn uitzonderlijke klasse
--  Lyon skompletizoval prestup skúseného stredopoliara Matiča z Rennes
--  Али Ахмети: Исторически ден за РСМ, за първи път ще има премиер албанец
--  جا يكحل ليها عماها.. أول رد للجزائري الذي "احتقر" منتخب موريتانيا قبل أن يصدمه "المرابطون" بإقصاء "الخضر" (فيديو)
--  Service Medal with Valor recipient calls coming to the rescue 'just part of the job' for police officers
--  SPREMITE SE ZA NOVI LEDENI TALAS Ovi delovi Srbije biće najviše na udaru, a evo gde se očekuje sneg!
--  Baby in Klinik: So sehr litten Brittany und Patrick Mahomes
--  43 साल की उम्र में ग्रैंड स्‍लैम... एक हफ्ते में 3 बड़ी उपलब्धि, PM मोदी भी हुए बोपन्‍ना के फैन
--  Fotbalové přestupy ONLINE: další odchod z Galatasaray před Spartou?
+-  UK cold weather: Exact moment Arctic snow plume splits and swamps entire nation - mapped
+-  One UI 6.1 também chegará à gama média... mas terão de ser pacientes
+-  Logan Nayneecassum killed in Saskatoon bar trying to break up fight (Canada)
+-  Hidrolara pospone interrupción del servicio de agua para «compensar a los sectores afectados» #27Ene
+-  Réhabilitation de la base de loisirs, réfection de la gendarmerie... qu'est-ce qui attend Saint-Anthème en 2024 ?
+-  Hrôzy minulosti sa nesmú opakovať. Politici si pripomínajú Medzinárodný deň pamiatky obetí holokaustu
+-  Politička zaštita ili briga o zdravlju
+-  Người sạch sẽ, ngăn nắp quá mức có thể bị giảm tới 9 năm tuổi thọ: Làm sao để biết bạn có thuộc nhóm này hay không?
+-  Focusing on prevention, not premiums a far healthier approach
+-  Další TON v dresu Sparty. Pro mě nejvíc, netají legenda. Má na extraligu?
