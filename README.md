@@ -1,11 +1,11 @@
 # Latest News
--  Alegr u Garmišu do prve pobede u Svetskom kupu
--  FBI: Broj silovanja i seksualnih napada na kruzerima dostigao rekordne cifre
--  UŽIVO Dobar start Denvera - Jokiću asistencija
--  Lista de campeones de la Lidom
--  ''Star Academy'', ''Est-ce que tu l'aimes ?'' : Gims charrie Héléna et Pierre en modifiant les paroles de sa chanson
--  Peñarol aceleró por fichajes después de perder el clásico y tiene un preacuerdo con un argentino
--  Gorakhpur News: अब बिजली उपभोक्ताओं को दो महीने में मिलेगा बिजली बिल
--  Two dead after separate shootings in Queensland
--  Jammu News: वित्त लेखा सहायक की परीक्षा आज, 972 पदों के लिए 1.94 लाख उम्मीदवार
--  Policías estatales detienen a un hombre con un arma de fuego en Culiacán
+-  Palworld Players Slam Missing Feature as "Worst Part of the Game"
+-  PROIRANSKE SNAGE IZVELE RAZORAN NAPAD: Na udaru američke snage na istoku Sirije
+-  القادسية يضغط على الفرنسي "فقير" لقبول عرضه
+-  This cruise ship can carry nearly 10,000 people. Here’s more of what sets Icon of the Seas apart - CNN
+-  Barty’s emotional message melts hearts
+-  Решена 18-летняя загадка иммунитета
+-  صدوچهاردهمین روز «طوفان الاقصی»|حملات بامدادی اشغالگران به نوار غزه/ عملیات ضد صهیونیستی در کرانه باختری
+-  Family hospitalised after being attacked with crowbar during ‘mistaken identity’ home invasion in Burwood, Sydney
+-  Joinville x Inter de Lages: horário, onde assistir e possíveis escalações
+-  Aruba won several awards in the 5k Tropical Run in Miami
