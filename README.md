@@ -1,11 +1,11 @@
 # Latest News
--  Noch werden wir heizen müssen - trotz der grünen Wiesen!
--  Büyükşehir Korosu izleyenleri mest etti
--  Van'da gece saatlerinde cayır cayır yanmaya başladı. Ahırda olan 1 katır ve 50 küçükbaş telef oldu
--  إحباط تهريب 250 كيلوجرامًا من نبات القات المخدر في جازان
--  Stuttgart: Mann belästigt zwei 17-Jährige sexuell
--  Animal on OTT: Ranbir Kapoor reveals he cried after Bobby Deol removed his shirt; here's what happened
--  A férfi kéziválogatott bizonyította, ott lenne a helye az olimpián
--  Andrej Kramarić je još malo promijenio povijesne knjige Bundeslige
--  Текущее падение цены — самое бычье событие, которое может случиться с Cardano: аналитик
--  Şerife Geçer
+-  Reclaiming our kids from the screens
+-  Ce que vous réservent les derniers coups de cœur "culture" de la rédaction
+-  Opamećuju se pametni telefoni: Produžetak čovjeka potreban je za oporavak tržišta
+-  Reclaiming our kids from the screens
+-  【大河ドラマ「光る君へ」本日第4話】離縁されたら「後妻打ち」！平安貴族の恐るべき恋愛事情
+-  Ce que vous réservent les derniers coups de cœur "culture" de la rédaction
+-  Jadwal Liverpool Hari Ini, Minggu 28 Januari 2024: Duel Emosional Lawan vs Norwich City
+-  〈NHK大河「光る君へ」兼家役〉段田安則の「朝」と「夜」の顔が違いすぎる！ 振り幅がすごい演技に視聴者も騒然
+-  Onze lamlendigheid en nu al gebroken beloftes worden duur betaald op het Oekraïense slagveld
+-  MPS Query Shs 35 billion Coffee Traceability System
