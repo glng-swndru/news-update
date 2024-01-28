@@ -1,11 +1,11 @@
 # Latest News
--  Литва призвала общество к дискуссии о будущем русских школ
--  Le groupe scolaire de Cloyes-les-Trois-Rivières est à nouveau menacé de deux fermetures de classes : "Le couperet est plus que dur"
--  Previsión meteorológica para este domingo en Castilla-La Mancha: temperaturas inusualmente altas para la época del año
--  Il solito Vlahovic questa volta non basta: la Juve (in dieci) pareggia 1-1 contro l'Empoli
--  İstanbul Boğazı gemi trafiğine kapatıldı
--  У Зеленского нашли тайно купленные элитные апартаменты на 600 "квадратов" в Дубае
--  Oprawa finału godna Ligi Mistrzów. Niedźwiadek Rawicz Cup rocznika 2016 [ZDJĘCIA]
--  Truth and Livermore should fight out the finish of the HPSL Golconda Derby Stakes (Gr. 1)
--  Yunus Akgün attı, Leicester City turladı
--  Judeus e muçulmanos lançam em Srebrenica iniciativa pela paz
+-  أنجولا تعبر ناميبيا وتصعد لدور ربع نهائي كأس أمم أفريقيا
+-  LIVE | Luuk de Jong doet het weer voor PSV in gezapige wedstrijd tegen Almere City
+-  LIVE | Luuk de Jong doet het weer voor PSV: spits maakt vanaf de stip zijn tweede
+-  Côte-d'Or. Colère des agriculteurs : l'autoroute A6 rouverte entre Pouilly-en-Auxois et Beaune nord, des opérations de nettoyage en cours
+-  Diaspo #323 : Fatima Zahra El Mhijar déconstruit les stéréotypes sur les femmes au travail
+-  الشّيخ خالد بن عبدالعزيز آل ثاني يُكرّم الإعلامي وائل الدحدوح
+-  Зрител на мач от Бундеслигата стана съдия заради травма на помощник
+-  Léa Salamé et Raphaël Glucksmann : la soeur de la journaliste effectue un geste fort pour son beau-frère
+-  Əfsanənin övladı sağalmaz xəstəliyə tutuldu
+-  Ovakvo je mišljenje Severinine majke o Milanu Popoviću: ‘Neka se srami, tom čovjeku ime ne želim čuti...‘
