@@ -1,11 +1,11 @@
 # Latest News
--  Snart kan flintskallen vara ett minne blott
--  İzmir’de kulislere yansıdı: Soyer’in bileti kesildi
--  Чемпионат Паулиста (трансляции на Sports.ru). «Ред Булл Брагантино» играет с «Ботафого-СП» (видео), «Сан-Паулу» встретится с «Португезой»
--  Yaşlı adam evinin bahçesinde ölü bulundu
--  Prince Harry and Meghan's 'jealousy' if King Charles decides to abdicate to Prince William
--  Apple pracuje nad własną SI, ale na razie… integruje iPhone’a z ChatGPT
--  Пустила по миру: за грехи Елены Блиновской страдают ее мама-пенсионерка и четверо детей
--  Günün ULDUZ FALI: belə davranışın çox pis fəsadları ola bilər
--  Super League: Τρομερό ματς στις Σέρρες! Πήρε βαθμό στο 94' ο Βόλος απ' τον Πανσερραϊκό
--  Rosso a Milik in Juve-Empoli, Cesari: "Poco da dire, decisione corretta"
+-  پروتئین خنک‌کننده به جنگ سرطان روده می‌آید
+-  RS terá pancadas de chuva neste domingo
+-  Não vou ser corna, diz Deborah Secco sobre casamento aberto com marido
+-  Morey-Saint-Denis. Saint-Vincent tournante : les chevaliers du Tastevin ont honoré quatorze personnes
+-  Teachers in Ontario's French system vote for strike mandate
+-  Обмін військовополоненими відбудеться - Буданов
+-  В Санкт-Петербурге запустили праздничный салют в честь 80-летия снятия блокады Ленинграда
+-  Сотрудники СБУ пришли с обысками к чиновникам Минобороны Украины
+-  ADRIJANA JE SRPSKOG POREKLA, SNIMA FILMOVE ZA ODRASLE I IMA BIZARNE FETIŠE: Malo falilo da UMRE na snimanju, a evo gde je sad FOTO
+-  Очевидци съобщиха за трима убити при израелски въздушен удар в Газа
