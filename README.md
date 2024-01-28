@@ -1,11 +1,11 @@
 # Latest News
--  Kastrups nya vd tar höjd för ökat flygresande
--  Vlado Cencel, kipar z motorno žago - Od nesojenega misijonarja do samorastniškega kiparja
--  Vente OM : Marseille s’enflamme, «ça sort de nulle part»
--  In memoriam | Adri de Fluiter (1940 – 2024) maakte een groot publiek enthousiast voor hedendaagse kunst in de Drentse natuur
--  Demo in Oer-Erkenschwick: „Gegen Rechtsextremismus, Intoleranz und Menschenfeindlickeit“
--  Mean Girls Set to Win Quiet Box Office Weekend
--  Kiderült: Köllő Babett csak így engedné el a lányát Amerikába
--  Realme 12 Pro ve Pro Plus'ın kamera özellikleri onaylandı: İşte beklenen özellikler
--  ¿Por qué fracasa el futbol en la India?
--  70-vuotias | Miksi Helsingin rajuja muutoksia valmistellaan salassa, tivaa arkkitehti Mona Schalin
+-  سرايا القدس: قصفنا تجمعات لجنود وآليات العدو بقذائف الهاون جنوب وغرب خان يونس جنوبي قطاع غزة
+-  Maura (19), nieuw burgerraadslid, wil jongeren Leiderdorp een stem geven. ’Lokale politiek toegankelijker en leuker maken’
+-  Ψυχρή εισβολή με βουτιά της θερμοκρασίας την Κυριακή: Έκτακτο δελτίο εξέδωσε η ΕΜΥ - Πού θα χιονίσει
+-  Medizin: Diagnose: Prostatakrebs. Was ich dann gemacht habe
+-  Noa Lang keert in nieuwe, bijzondere rol terug in basis van PSV
+-  Link Live Streaming Barcelona vs Villarreal di Liga Spanyol
+-  Le philatéliste Jean-Francis Ressort décoré par la Ville de Chartres
+-  Още двама от врачанската група, разпространявала наркотици, остават в ареста
+-  Soccer-Bayern win 3-2 at Augsburg to move within a point of leaders Leverkusen
+-  Galatasaray 18'lik İngiliz yıldızın peşinde! Torreira'nın yanına Bellingham'ın kardeşi geliyor
