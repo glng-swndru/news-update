@@ -1,11 +1,11 @@
 # Latest News
--  В Азербайджане выросла широкая денежная масса
--  Il Fatto Quotidiano: Запад потерпел фиаско в борьбе с Россией
--  Дмитрий Песков объяснил, зачем в ЕС вспоминают «страшилки про русского медведя»
--  Edben, Bopanna rock Rod Laver Arena in straight sets
--  Consumidor quer saber: depois de disparada, preço do azeite vai melhorar em 2024?
--  Cutremur cu magnitudinea de 5,1, raportat sâmbătă. Unde a fost resimțit
--  John Wick 5: Winston star Ian McShane speaks out after recent chat with Keanu Reeves
--  Events tomorrow – Jan. 28: Prakash Performing Arts Trust, Kannada and Culture Department
--  Governo: Schlein, 'Meloni come Wanna Marchi, regina delle televendite'
--  Représentants politiques et des agriculteurs ont pu échanger à Tournai : "Le but de cette entrevue était aussi de préparer notre réunion de mardi"
+-  Сыграет ли Миколенко? Известны составы на кубковый матч Эвертон – Лутон
+-  Ramones-Videos von Musikern aus Osnabrück ab Sonntag zu sehen
+-  Un bus eléctrico con chasis de fabricación local comenzará a circular por el AMBA
+-  മാങ്കാവ് റെസിഡന്റ്‌സ് അസോസിയേഷന്റെ വേറിട്ട ബസ് കാത്തിരിപ്പ് കേന്ദ്രം
+-  Kayserispor ayrılığı resmen duyurdu
+-  ‘It looked as if a torpedo had been shot off’: Memorial honours 1974 flood deaths
+-  Tarifkonflikt bei der Bahn: Lokführer-Streik endet vorzeitig am Montag um 2 Uhr
+-  Ish-kryebashkiaku denoncoi “shkrirjen” i disa institucioneve kulturore në Shkodër, reagon Benet Beci: Ato nuk janë më “arat e babës”! Kemi parë e dëgjuar nga brenda gjëra që të vjen turp t’i thuash
+-  ‘It looked as if a torpedo had been shot off’: Memorial honours 1974 flood deaths
+-  Κάθε πότε χρειάζεστε προληπτικές εξετάσεις για την όραση – Τι λένε οι ειδικοί
