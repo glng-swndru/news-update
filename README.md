@@ -1,11 +1,11 @@
 # Latest News
--  Calming someone with dementia starts with calming yourself
--  Ívar rétt á undan Jóni
--  Straks blir buss og hurtigbåt dyrere – Høyere prisvekst enn normalt får skylda
--  Odsłonięcie pomnika Lecha Kaczyńskiego. Prezes PiS wspomniał o zamachu
--  Helder Barbalho deve ser reeleito presidente do Consórcio da Amazônia Legal
--  Aprosoja pede US$ 1,9 bilhão para "salvar" produção em MT
--  Les planètes alignées pour un beau derby de Fédérale 3 entre Saint-Cernin et Saint-Simon
--  Estrela da arte Dozie Kanu encontrou em Portugal tempo para trabalhar em paz
--  Fiorentina, Brekalo-Hajduk, ci siamo: il giocatore in partenza per Spalato per le visite
--  Deschamps peut trembler, gros coup dur pour l’équipe de France ?
+-  Kastrups nya vd tar höjd för ökat flygresande
+-  Vlado Cencel, kipar z motorno žago - Od nesojenega misijonarja do samorastniškega kiparja
+-  Vente OM : Marseille s’enflamme, «ça sort de nulle part»
+-  In memoriam | Adri de Fluiter (1940 – 2024) maakte een groot publiek enthousiast voor hedendaagse kunst in de Drentse natuur
+-  Demo in Oer-Erkenschwick: „Gegen Rechtsextremismus, Intoleranz und Menschenfeindlickeit“
+-  Mean Girls Set to Win Quiet Box Office Weekend
+-  Kiderült: Köllő Babett csak így engedné el a lányát Amerikába
+-  Realme 12 Pro ve Pro Plus'ın kamera özellikleri onaylandı: İşte beklenen özellikler
+-  ¿Por qué fracasa el futbol en la India?
+-  70-vuotias | Miksi Helsingin rajuja muutoksia valmistellaan salassa, tivaa arkkitehti Mona Schalin
