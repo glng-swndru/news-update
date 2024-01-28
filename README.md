@@ -1,11 +1,11 @@
 # Latest News
--  Evo retiró de Palacio sus regalos; están en su casa del Chapare y el museo de Orinoca
--  هل ينطلق سهم الراجحي؟.. تحليل سهم الأهلي وإكسترا وعدد من الأسهم السعودية
--  Các doanh nghiệp Nhật đánh giá cao về môi trường đầu tư kinh doanh tại Việt Nam
--  Победительницей конкурса «Мисс Япония» стала этническая украинка. Это понравилось не всем
--  Marl benötigt rund 40 Tage pro Steuererklärung: So kommen Hertener schneller an die Rückzahlung
--  Ostaggi in cambio di una tregua. Nyt: c'è una bozza di accordo che sarà discussa oggi a Parigi
--  Probleme und Abschlüsse im Beerenbruchviertel: Bauunternehmen leidet, aber trotzt der Krise
--  Từ nay đến Tết, thường ăn loại hạt này giúp giảm cân tự nhiên, giảm đường huyết hiệu quả: Ra chợ Việt hỏi là có ngay
--  Saône-et-Loire. Villes et villages où il fait bon vivre : comment se classe votre commune ?
--  [정치톡톡] 트럭 탄 이준석 / "사진관으로 전락" / '기호 3번' 잡기 변수는?
+-  Həddindən artıq yuxu nəyə səbəb olur?
+-  Red Sea Situation Already Reflecting on Supply Chains: Your Keyboard May Take Much Longer to Arrive
+-  Za predaju cijelog neispravnog auta može se dobiti i do 130 eura
+-  Breakfast At 8 AM, Dinner At 8 PM? Why Timing Your Meals Matters More Than You Think!
+-  Νέα έφοδος στις Κεντρικές Φυλακές - Εντοπίστηκαν κινητά και ναρκωτικά
+-  트럼프, 재집권시 중국산 제품에 60% 관세 검토
+-  Konstantinopolio stačiatikių bendruomenė kreipėsi į Teisingumo ministeriją dėl teisinio pripažinimo
+-  Chi ha perso questa fede al centro commerciale?
+-  Русия е атакувала Украйна с дронове през нощта
+-  Rakitić seli u novi klub, a odmah iza njega stiže i proslavljeni golman?
