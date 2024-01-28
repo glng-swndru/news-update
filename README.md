@@ -1,11 +1,11 @@
 # Latest News
--  «Здесь самая высокая концентрация титулованных идиотов»
--  Shane Ross: The entire board of RTÉ needs to go. Nothing else will do
--  Leverkuzen pojačava ofanzivu: Stigao napadač iz Betisa
--  ‘This is it, I thought. He’s going to kill me’ — my four days in Schull with Ian Bailey
--  Editorial: Genocide to the fore in Holocaust remembrances
--  Sự kiện chưa từng có: Trận đấu phải đá lại vì VAR
--  ‘I said if the acting ever went tits up, he'd have a job for life’ – AskPaul founder on his pact with best friend Aidan Turner
--  This service costs $720 a year for Victorian students. In NSW, it’s free
--  Dermot Crowe: Dublin look to weather storm against Tipperary in league opener
--  شرط وحيد يضمن لعبد الرحمن غريب خلافة رونالدو وميسي!
+-  Derechos laborales: sólo en 14 economías de mundo se logró la equidad
+-  Kaksi ihmistä siivoaa EKHVA:n 4 000 asiakkaan lääkelistoja – Erityisesti he etsivät kaatumisvaaraa aiheuttavia lääkkeitä
+-  نیا چیئرمین، نئی امیدیں، نئے چیلنجز
+-  কোন বিশ্ববিদ্যালয়ে কবে ভর্তি পরীক্ষা, সব তথ্য দেখুন একসঙ্গে
+-  越南吸引外资35年的转折点
+-  Cường Đô La tiết lộ đoạn tin nhắn với con trai: Subeo trả lời lạnh lùng nhưng kết thúc bằng một câu siêu ngọt ngào
+-  Giới thượng lưu chi tiền ‘khủng’ vào thú vui độ xe
+-  Com De la Cruz em campo, Fla só empata com Orlando City em amistoso nos EUA
+-  "Nội dung" quà Tết của các công ty công nghệ lớn Trung Quốc vừa bị lộ, bạn thích cái nào nhất?
+-  Com De la Cruz em campo, Fla só empata com Orlando City em amistoso nos EUA
