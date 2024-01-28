@@ -1,11 +1,11 @@
 # Latest News
--  الجواد «ضاوي» يحصد كأس عين سنان
--  最高の冬スープ！ リー・ドラモンド氏の「ラザニアスープ」を作ってみた
--  Jay Leno Files for Conservatorship Over Wife, Mavis Leno
--  Star Trek's Jonathan Frakes Revealed His Favorite Memory From The Next Generation, And It's One Of The Wilder BTS Antics Patrick Stewart And The Cast Got Up To
--  「仮面ライダー555」芳賀優里亜、園田真理と歩んだ20年 井上敏樹が描く世界観「今の子供たちにこそ観てほしい」
--  Sports Highlights: বোপান্নার ইতিহাস, রোহিতদের লড়াই, আজ ইস্টবেঙ্গলের খেতাবি লড়াই, দিনের সেরা খেলার খবরের এক ঝলক
--  Bad to the Bone: 'It is funny, but there is pathos as well,' says Konkana Sen on 'Killer Soup'
--  Experimental gene therapy allows kids with inherited deafness to hear
--  TOP NEWS ore 24 - Xavi annuncia l'addio al Barcellona. Milan, pari, rigori e rimpianti
--  Thời tiết hôm nay 28/1/2024: Bắc Bộ mưa rét, có nơi dưới 3 độ C
+-  علماء يكتشفون «نجوما مدخنة» في «درب التبانة»
+-  Study suggests oilsands pollutant release vastly higher than official estimates
+-  США пропонують Греції допомогу на $200 млн в обмін на зброю для України
+-  Study suggests oilsands pollutant release vastly higher than official estimates
+-  أجواء البدع تنعش سباقات الرياضة للجميع الشتوية
+-  Study suggests oilsands pollutant release vastly higher than official estimates
+-  «شخصيات أثرت في الإنسانية» بثقافي المكفوفين
+-  «مايكروسوفت» يعاود الخدمة بصورة طبيعية
+-  Study suggests oilsands pollutant release vastly higher than official estimates
+-  වට රවුම් දෙකකින් මැවුණු නිමැවුම්කරුවන් දෙදෙනෙක්
