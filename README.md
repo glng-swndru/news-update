@@ -1,11 +1,11 @@
 # Latest News
--  Die Restaurant-Rechnung aufzuteilen, lehnen immer mehr Menschen ab – für sie heißt es jetzt, jeder Gast ist für sich
--  SINA OD 32 DANA OSTAVILA U DVORIŠTU NA 10 MINUTA I TO JU JE PROGANJALO DO SMRTI: Zbog pogrešnog koraka presudila sopstvenom detetu
--  Dan po rekordu še trojni dvojček Luke Dončića
--  Dan po rekordu še trojni dvojček Luke Dončića
--  Esenyurt'ta bankadan çıkan vatandaşı gasp eden şüpheliler yakalandı
--  Ayvacık açıklarında 39 kaçak göçmen yakalandı
--  کراچی کی تاریخ میں عالمی معیار کی پہلی میراتھن کا انعقاد
--  Melbourne-Aus: Djokovic will von Wachablösung nichts wissen
--  Studi: Gen Z Justru Lebih Jarang Pakai AI untuk Pekerjaan Dibandingkan Gen X dan Milenial
--  Nach Einzel-Erfolg: Wellinger peilt am Kulm Team-Podium an
+-  مدينة سيقصفها "حزب الله".. مسؤول يعلن إسمها وتحذير كبير!
+-  ‘실거주 폐지’ 주택법 처리 물꼬…수은법 등 이번 주 ‘데드라인’
+-  Mitovi koji iskrivljuju sliku Amerike o Rusiji i obratno
+-  DERBI KOJI ŽIVOT ZNAČI Zvezda ima šansu da reši sve, Partizan dolazi da pomuti račune na Jadranu
+-  JANJUŠ U BESU NAPAO ANELI: Da li si ti normalna, šta to radiš?!
+-  Improving diabetes foot care through innovative wearables
+-  El superalimento que te ayudará a dormir mejor mientras fortalece el corazón y el cerebro
+-  Ajax tast diep in de buidel voor routinier Jordan Henderson, een verantwoorde keuze?
+-  LUKSUZ I KVALITET U ČUVENOJ LARI: Odličan hotel u delu Antalije, poznatom po dugim peščanim plažama
+-  The driving law that doesn't feel illegal - but is
