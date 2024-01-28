@@ -1,11 +1,11 @@
 # Latest News
--  ਮੈਂ ਚਾਹੁੰਦਾ ਹਾਂ ਕੀ ਸਾਡੇ ਪੰਜਾਬ ਦੇ ਆਪਣੇ ਸਿਤਾਰੇ ਹੋਣ : ਗੁਰਨਾਮ
--  Olesen four shots clear going into final round on DP World Tour
--  Sövényházi Ilona: Mindenki a saját maga egészségügyi minisztere
--  Viajero revela lo que 'nunca hay que decir en un crucero' para disfrutar del viaje
--  Ehitusettevõtjad on arendajatega raksus. Arendajad probleemi ei näe
--  Intento de violación tras secuestro de niño en Zulia
--  Familienfreundliche Winterwanderung zur Denkalm: Schneespaß für Groß und Klein
--  Piqueteros y sindicatos "duros" empujan a un nuevo paro y volver al Congreso: qué harán la CGT y las CTAs
--  VIDEO | Antigua se arma para se campeón, asegura Castellanos
--  PlusLiga: Barkom Każany Lwów - Projekt Warszawa. Relacja live i wynik na żywo
+-  İqtisadiyyat Nazirliyində Türkiyə nümayəndə heyəti ilə görüş keçirilib
+-  У Харківській області померла дівчинка, поранена внаслідок удару окупантів
+-  Βρετανία: Διακόπτει τη χρηματοδότηση της υπηρεσίας αρωγής των Ηνωμένων Εθνών
+-  5 Tips Merawat Payudara di Rumah, Bukan Cuma Bikin Kencang Tapi Juga Baik Untuk Kesehatan
+-  Radojević Škodrić obišla Specijalnu bolnicu Čigota: " Država će učiniti sve da se posledice požara otklone u najkraćem mogućem roku"
+-  "Nula" Sosijedada - ne pomaže ni Sadik
+-  Bakan Koca: Bakanlığımıza 35 bin yeni çalışma arkadaşı geliyor
+-  Escolas estaduais de Miranda e Dourados terão reformas de R$ 6,6 milhões
+-  Tara je izgubila zub, a ja nisam bio tu! Nole emotivan kao nikad
+-  Dinamo još nije odustao od Kenta. Evo kad bi mogao doći u Maksimir
