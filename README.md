@@ -1,11 +1,11 @@
 # Latest News
--  Rahasia Surat Al Fatihah dan Keistimewaannya
--  İsrail polisi 'soykırımı saklayamazsınız' pankartlarına el koydu
--  Labour’s idea to teach ‘divisive white privilege’ in UK schools could spark bitter conflict in classrooms like in the US
--  La era Martínez en Boca Juniors empezó con un empate sin goles frente a Platense
--  幻藍小熊驚喜圓夢 皮繃緊登小巨蛋
--  Jeremy Clarkson, 63, brands himself too ‘fat and old’ for ‘immensely physical’ The Grand Tour
--  Qué es ‘Wallada’ y como afecta a la Universidad de Almería
--  Los ocho mejores panoramas gratis para disfrutar este fin de semana en Santiago
--  陳禹勳成龍? 味全證實有互動
--  Xavi oznámil konec, po sezoně opustí Barcelonu: Hráči potřebují impulz
+-  Nagihan diskalifiye oldu mu? Survivor'da büyük kavga...
+-  BILA SAM U KRVI, UDARILI SU ME PIŠTOLjEM, HTELI SU DA MI OBRIJU GLAVU: Branka Sovrlić o napadu zbog kog je mogla da izgubi život
+-  السجن 30 شهرًا.. عقوبات تنتظر الباحثين عن نبات "الكمأ" في حال مخالفتهم
+-  توقف میلان در سن‌سیرو با فرصت‌سوزی پنالتی‌زن‌‌ها!
+-  Silvi novi mandat, Mračević ponovo izabran u Biro LEN-a
+-  Quis ser bailarina, tem pontaria para jogar à bola e fez rapel numa torre militar. Só precisa de 120 segundos para conhecer Inês Sousa Real
+-  Publicidade, política e humor. Esta é a campanha de que todos falaram
+-  "Кому ты сдался, милок": Максима Галкина* подняли на смех за рассказ про письмо из России
+-  "Star Academy " : "C'est lunaire", l'intervention d'un huissier en plein prime choque les téléspectateurs
+-  A 'giant in a small body,' Florence Wong helped change senior care in Toronto
