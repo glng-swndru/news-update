@@ -1,11 +1,11 @@
 # Latest News
--  Irmã de Davi defende brother de comentários de participantes do BBB 24; veja
--  Rücktritt von Jürgen klopp - Biograf Neveling: "Er bleibt sich treu"
--  10 maçlık hasret Adana'da bitti
--  Budapest hosts Chinese New Year celebration events
--  Oud maar niet versleten: zeven verrassende dingen die je ook met vaseline kan doen
--  Minsa detecta restaurantes insalubres en Brisas del Golf
--  Dit doet vaseline echt voor je huid: ‘Bij extreem droge huid met eczeem neemt vaseline barrièrefunctie over’
--  قيادي حوثي: أمريكا وبريطانيا تهددان بتخريب العملية السياسية وإعادة تحريك الحرب في اليمن
--  Стена жилого дома обрушилась в российском городе
--  Roberto De Zerbi wants more from Brighton hat-trick hero Joao Pedro
+-  Green habits for 2024 that will grow your savings too
+-  Ledecká má jednotku. Odštartuje disciplínu, v ktorej šokovala svet
+-  Han öppnar sin femte restaurang: ”Brukar säga till mig att det är galet”
+-  Cristall collects 3 points but Kelowna Rockets fall in the final seconds
+-  Otroliga siffror – och Endres facit i ödesmånaden
+-  A101 1 Şubat 2024 aktüel ürünler listesi yayımlandı!
+-  Golden oldies: Wendy Harmer brings The Grandparents Club to the stage
+-  Hidrojen kaynaklı ısı pompalarının potansiyeli gösterildi
+-  Земеделски форум в Пловдив ще представи иновациите в сектора
+-  Për familjen time – Episodi 280
