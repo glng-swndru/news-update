@@ -1,11 +1,11 @@
 # Latest News
--  Biden travels to South Carolina, Trump campaigns in Nevada
--  Bihar: Lalan Singh's Expulsion Was a Prelude to Nitish and Lalu's Shadow Boxing
--  Umalo ubio čoveka zbog nesporazuma u saobraćaju: Zabio Rožajcu nož u grudi posle svađe
--  Ayda təhlükəli nasazlıqlar: "Cüzi seysmik təkan olsa..."
--  Südkoreas Militär: Nordkorea feuert erneut Marschflugkörper
--  Nam diễn viên đảm nhận hơn 20 phim kiếm hiệp Kim Dung có bạn gái ở tuổi 75
--  فارغ‌التحصیلان، ۴۷ درصد ورودی‌های مراکز فنی و حرفه‌ای
--  Kun väki nukkuu Turengissa, käynnistää Janne Jakomäki latukoneen ja suuntaa pimeään metsään – Seurana ovat metsäneläimet ja vilkas mielikuvitus
--  Petr Lněnička: Markovičova metoda spočívá v jeho schopnosti empatie
--  Champagne showers, ‘a lot to drink’: Aus Open champ’s wild celebrations
+-  Реал, Барса или чиста случайност? Клоп се мести в Испания
+-  Nedslående nyhet for Champions League-kvalik: – Ser langt mørkere ut
+-  Maaßen bezeichnet Wagenknecht als Kommunistin
+-  Klimaungerechtigkeit: Die verheerenden Folgen des kolonialen Denken nicht nur für die Länder des Südens
+-  Slavia v přípravě: změny systému a záhada Staněk. Co nechtění hráči?
+-  7 Film dan Drama Korea yang Dibintangi oleh Jeon Jong Seo
+-  La oposición calienta el clima: lanza sus críticas en la previa del discurso de LLaryora en la Unicameral
+-  Les prix de la grande distribution vont-ils baisser en 2024 ?
+-  Les prix de la grande distribution vont-ils baisser en 2024 ?
+-  Les prix de la grande distribution vont-ils baisser en 2024 ?
