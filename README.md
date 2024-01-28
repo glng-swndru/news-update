@@ -1,11 +1,11 @@
 # Latest News
--  İrlanda UNRWA’ya desteğini sürdürecek
--  VUČIĆ NA PITANjE "NOVOSTI": Ekspo je strašna prilika za ceo region i nadam se da ćemo u svemu uspeti
--  Ovo je lice dvostrukog ubice i samoubice! Usmrtio bolesnog sina i suprugu, spasila se samo ćerka
--  القادسية.. أول الحاضرين لمساندة الأخضر
--  Pljušte psovke, razjaren je kao bik! Na toga to Vlahović besni, kome ovo dobacuje?! (VIDEO)
--  Kayserispor, teknik direktör Burak Yılmaz'la 2,5 yıllığına anlaştı
--  各国が資金拠出を一時停止 国連職員“ハマス奇襲”関与か
--  YÖK’ten ‘savunma sanayii dersleri’ açıklaması
--  Fulham 0-2 Newcastle United: Toon fans make mockery of ridiculous ITV call & Shearer laps up tribute - Chronicle Live
--  클로징
+-  Rahasia Surat Al Fatihah dan Keistimewaannya
+-  İsrail polisi 'soykırımı saklayamazsınız' pankartlarına el koydu
+-  Labour’s idea to teach ‘divisive white privilege’ in UK schools could spark bitter conflict in classrooms like in the US
+-  La era Martínez en Boca Juniors empezó con un empate sin goles frente a Platense
+-  幻藍小熊驚喜圓夢 皮繃緊登小巨蛋
+-  Jeremy Clarkson, 63, brands himself too ‘fat and old’ for ‘immensely physical’ The Grand Tour
+-  Qué es ‘Wallada’ y como afecta a la Universidad de Almería
+-  Los ocho mejores panoramas gratis para disfrutar este fin de semana en Santiago
+-  陳禹勳成龍? 味全證實有互動
+-  Xavi oznámil konec, po sezoně opustí Barcelonu: Hráči potřebují impulz
