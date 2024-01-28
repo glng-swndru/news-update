@@ -1,11 +1,11 @@
 # Latest News
--  Idealne śniadanie nie istnieje? Z tym przepisem zmienisz zdanie
--  VIDEO: Slafkovský zažiaril. Strelil gól, pokoril míľnik a stal sa hviezdou zápasu
--  “연 이자 1700만원 아꼈다”…주담대 갈아타기 어디가 유리할까
--  Royal Mail hails best Christmas for four years
--  H＆M直接放棄20%以上門市！ 關閉西班牙28間分店
--  Cutremur în România, raportat duminică. Unde a fost resimțit și ce magnitudine a avut
--  Albo’s tax lie shows we are one-eyed, not clear-eyed
--  Bị thu hồi 4.000m2 'đất vàng' mua lại từ AIC, Tập đoàn R&H của đại gia Trương Quang Minh có lo lắng?
--  Yolcu treni, hemzemin geçitte beton mikserine çarptı; 1 yaralı
--  KAAN savaş uçağı müjdesi!
+-  新開幕特色餐廳６間推薦！新東方風味咖哩、濃郁昭和風咖啡廳必訪
+-  Ski alpin heute live im Free-TV: Wer zeigt / überträgt Super G der Frauen in Cortina d'Ampezzo und Herren in Garmisch-Patenkirchen im TV und Livestream?
+-  Was bedeutet "Gulag"? Bedeutung und Verwendung
+-  Denis Moschitto: „Wer immer schimpft, muss selbst mal ran“
+-  정부, 서천시장 화재 피해 점포당 500만원 긴급지원
+-  Pending Assessment get Abated u/S 153 A of Income Tax Act, after Conducting Search and obtaining Information: ITAT [Read Order]
+-  Humza Yousaf facing demand for probe into Gold Command Covid meetings
+-  Herkunft von Brot und Co muss neu im Verkauf deklariert werden
+-  اجتماع أمريكي ألماني مرتقب لتقديم المزيد من المساعدات لأوكرانيا
+-  ਮੈਂ ਬਹੁਤ ਛੇਤੀ ਮੁਆਫੀ ਮੰਗ ਲੈਂਦੀ ਹੈ : ਨਿਰਮਲ ਰਿਸ਼ੀ
