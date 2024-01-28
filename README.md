@@ -1,11 +1,11 @@
 # Latest News
--  「すごい！誇らしい」天満屋・前田穂南の日本記録樹立に地元も沸く 大阪国際女子マラソン【岡山】
--  Hogeschool Utrecht @HU_Utrecht schrapt Holocaust-lezingen. Wil liever "diverse dialoog en nieuwe maatschappelijke perspectieven"
--  Denizin ortasında kartpostallık görüntü!
--  Rusija spremna za pregovore oko isporuke gasa
--  مباراة منتظرة بين منتخب طاجيكستان ونظيره منتخب الإمارات - beIN SPORTS
--  For Palestinians, sovereignty is non-negotiable. We won’t accept a two-state solution without it
--  A Star is Born : Bradley Cooper chante-t-il vraiment dans le film ?
--  Removing Netanyahu is Israel’s only chance to achieve a two-state solution
--  Rusové nasadili nový chemický granát, zabije do pěti minut, tvrdí Ukrajinci
--  Short sellers bet against green minerals boom as prices plunge
+-  4 con giáp hưởng trọn tài phúc năm Giáp Thìn 2024: Đặc biệt nhất là người tuổi này nhờ sống vì gia đình
+-  Las altas temperaturas propician la floración de los almendros en Mallorca
+-  Tố cáo shipper đi tiểu vào đồ ăn, cô gái ngỡ ngàng khi sự thật được camera an ninh lật tẩy
+-  ČIK POGODITE Ovo prezime ima većina porodica u Srbiji, njegovo poreklo će vas iznenaditi
+-  Azerbaijani soldier injured in Karabakh anti-terror measures dies from injuries
+-  AK Parti'de Eskişehir'de bu isimleri açıklayacak
+-  OTKRIVEN TAJNI PLAN ANITE STANOJLOVIĆ! Želi da šutne Anđela, raskrinkao je ovaj potez, menja se tok rijalitija!
+-  Hakkari'de karla mücadele çalışması
+-  Tout un village derrière Hooker Berry, cheval berrichon en quête d'un second Prix d'Amérique
+-  Starinski, svima dobro poznat kolač, savršen za svaku priliku
