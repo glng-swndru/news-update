@@ -1,11 +1,11 @@
 # Latest News
--  La cuesta de enero del Barça pasa a ser un mes negro: sin Supercopa, sin Copa y ahora casi sin Liga
--  В Белгороде отменили сигнал ракетной опасности
--  Weather Up for iPhone updated with interactive widgets on Home Screen
--  Stəkanı 20 manata olan eşşək südü qızılcanın dərmanıdır?
--  सुपारीमा फुलेको गाउँको समृद्धि
--  Juventus compromete su liderato ante un Empoli en descenso
--  Man in trauma centre after being shot in Oshawa on Saturday night
--  Xavi “Barselona”nı tərk edəcəyini açıqladı
--  "Mẹ Nụ" - Cô giáo lái đò sông Đà và những lần đầu tiên đầy xúc động cùng WeChoice Awards 2023
--  Tự ý đốt than củi sưởi ấm có thể bị phạt tù
+-  تیراندازان برای پارالمپیک پاریس فشنگ خارجی ندارند!
+-  Dr Dzul positive 'amicable' closure can be achieved for parallel pathway issues
+-  Студенты смоленских вузов познакомились с работой психологов системы МВД
+-  Chega ataca corrupção e recupera castração química de violadores
+-  Pamela Anderson was always prettier, says Nicole Eggert (Entertainment)
+-  Kepincut Senyumannya, Fajar Bustomi Pilih Adhiyat Bintangi Film Dilan 1983: Wo Ai Ni
+-  Pedro Calado diz que dinheiro vivo encontrado em casa pertence à mulher
+-  Kho vàng của Việt Nam được châu Âu ưu ái hết mực: xuất khẩu thứ 2 thế giới, Indonesia 'thèm khát' một loại thuế mà Việt Nam đang hưởng
+-  Bihar Political Crisis: From Lalu Prasad’s ‘Game Plan’ To Rahul Gandhi’s Reach Out, This Is How RJD, Congress Are Planning To Tackle ‘Paltu Ram’ Nitish Kumar
+-  Health Tips : 'या' हार्मोनच्या कमतरतेचा महिलांच्या प्रजनन क्षमतेवर होतो वाईट परिणाम; फॉलो करा सोप्या टिप्स
