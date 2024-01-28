@@ -1,11 +1,11 @@
 # Latest News
--  İqtisadiyyat Nazirliyində Türkiyə nümayəndə heyəti ilə görüş keçirilib
--  У Харківській області померла дівчинка, поранена внаслідок удару окупантів
--  Βρετανία: Διακόπτει τη χρηματοδότηση της υπηρεσίας αρωγής των Ηνωμένων Εθνών
--  5 Tips Merawat Payudara di Rumah, Bukan Cuma Bikin Kencang Tapi Juga Baik Untuk Kesehatan
--  Radojević Škodrić obišla Specijalnu bolnicu Čigota: " Država će učiniti sve da se posledice požara otklone u najkraćem mogućem roku"
--  "Nula" Sosijedada - ne pomaže ni Sadik
--  Bakan Koca: Bakanlığımıza 35 bin yeni çalışma arkadaşı geliyor
--  Escolas estaduais de Miranda e Dourados terão reformas de R$ 6,6 milhões
--  Tara je izgubila zub, a ja nisam bio tu! Nole emotivan kao nikad
--  Dinamo još nije odustao od Kenta. Evo kad bi mogao doći u Maksimir
+-  Bayern smeygði sér í toppsætið - Dýrmætur sigur hjá Venezia
+-  Mathieu van der Poel toont weer zijn uitzonderlijke klasse
+-  Lyon skompletizoval prestup skúseného stredopoliara Matiča z Rennes
+-  Али Ахмети: Исторически ден за РСМ, за първи път ще има премиер албанец
+-  جا يكحل ليها عماها.. أول رد للجزائري الذي "احتقر" منتخب موريتانيا قبل أن يصدمه "المرابطون" بإقصاء "الخضر" (فيديو)
+-  Service Medal with Valor recipient calls coming to the rescue 'just part of the job' for police officers
+-  SPREMITE SE ZA NOVI LEDENI TALAS Ovi delovi Srbije biće najviše na udaru, a evo gde se očekuje sneg!
+-  Baby in Klinik: So sehr litten Brittany und Patrick Mahomes
+-  43 साल की उम्र में ग्रैंड स्‍लैम... एक हफ्ते में 3 बड़ी उपलब्धि, PM मोदी भी हुए बोपन्‍ना के फैन
+-  Fotbalové přestupy ONLINE: další odchod z Galatasaray před Spartou?
