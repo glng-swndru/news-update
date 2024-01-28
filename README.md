@@ -1,11 +1,11 @@
 # Latest News
--  Corona-Zahlen im Kreis Gütersloh aktuell: Die Coronavirus-News aus der Region
--  Трамп назвал оружие массового разрушения США
--  «Крылья Советов» заявили о создании второй команды
--  Exclusive: Chelsea “open” to selling or loaning star in coming days, says transfer expert
--  Griselda on Netflix: Fans are dying to know if Carmen is based on a real person
--  Finlandiya'da halk cumhurbaşkanını seçmek için sandığa gidiyor
--  '퍼스트 무버' 삼성전자, 갤럭시S24로 새역사 쓰는 중
--  NEROVERDI U PROBLEMU: Sasuolo bi se mogao naći u zoni ispadanja ukoliko ne podigne formu
--  Wetter im Südwesten: Viel Sonnenschein im Ländle – auch zu Wochenbeginn?
--  बिहार में महागठबंधन की सरकार गिरी तो यूपी में ओपी राजभर का स्टेज, देखें वीडियो
+-  Happy Sakat Chauth 2024 Wishes: सकट चौथ पर अपनों को भेजें तिलकुटा चतुर्थी की शानदार शुभकामनाएं
+-  Locatelli incoraggia la Juve: carica così dopo l’1-1 con l’Empoli – FOTO
+-  Самый большой круизный лайнер в мире отправился в плавание
+-  Свиленски: Имаме безпардонно управление, евроатлантизмът е само смокиновият лист
+-  « Dire que les industriels et les supermarchés “se gavent”, c’est factuellement faux ! »
+-  亨利慕時將純天然玉石打造成錶盤！連Logo都捨棄全球限量僅100只
+-  Edgar Morin : « Je suis à la fois mystique et rationnel »
+-  Australia Siapkan Strategi Matikan Serangan Indonesia
+-  Newport County have Argentinian fan who supports FA Cup underdogs because of FIFA
+-  Odbojkarji Krke za zmago znova potrebovali štiri nize
