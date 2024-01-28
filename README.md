@@ -1,11 +1,11 @@
 # Latest News
--  UK cold weather: Exact moment Arctic snow plume splits and swamps entire nation - mapped
--  One UI 6.1 também chegará à gama média... mas terão de ser pacientes
--  Logan Nayneecassum killed in Saskatoon bar trying to break up fight (Canada)
--  Hidrolara pospone interrupción del servicio de agua para «compensar a los sectores afectados» #27Ene
--  Réhabilitation de la base de loisirs, réfection de la gendarmerie... qu'est-ce qui attend Saint-Anthème en 2024 ?
--  Hrôzy minulosti sa nesmú opakovať. Politici si pripomínajú Medzinárodný deň pamiatky obetí holokaustu
--  Politička zaštita ili briga o zdravlju
--  Người sạch sẽ, ngăn nắp quá mức có thể bị giảm tới 9 năm tuổi thọ: Làm sao để biết bạn có thuộc nhóm này hay không?
--  Focusing on prevention, not premiums a far healthier approach
--  Další TON v dresu Sparty. Pro mě nejvíc, netají legenda. Má na extraligu?
+-  Avião Boeing 757 é usado para voo de sete minutos nos EUA e 14 quilômetros de distância
+-  "En 1999, le XV de France avait une équipe de fous !" : Thomas Parnaud, chef étoilé du Grand Monarque, évoque sa passion pour le rugby
+-  "Локомотив" спечели българското дерби срещу "Динамо" със страхотен обрат в Русия
+-  Шофьор от Асеновград плаща 2000 лв. за бягство от полицаи
+-  Тульская «Академия Михайлова» со счётом 3:1 разгромила «Акул» из Сахалина
+-  Rangers boss in 'busy until the last second' transfer prediction
+-  Avião Boeing 757 é usado para voo de sete minutos nos EUA e 14 quilômetros de distância
+-  Россиян предупредили об опасности злоупотребления популярными таблетками
+-  Antifurto per auto: quale scegliere
+-  What is the FNCS pickaxe called and how do you get it?
