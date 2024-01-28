@@ -1,11 +1,11 @@
 # Latest News
--  İstanbul'da yoğun bakım doluluk oranı açıklandı: 'Kronik hasta' vurgusu
--  Fluminense faz duelo direto com o Nova Iguaçu pela liderança da Taça Guanabara
--  China securities regulator suspends restricted share lending from Jan 29
--  CA, MBA Vacancy in Accenture
--  Mensonges d'État : comment Russell Crowe a pris 30 kilos pour le film de Ridley Scott
--  Mercato - PSG : Un transfert tombe à l’eau, la raison est dévoilée
--  Nem vehetnek Trump-sapkát a magyar állampolgárok
--  Dólar hoy, dólar blue hoy: a cuánto cotiza este domingo 28 de enero
--  Vučić odbranio RTS od napada tajkuna: Čim vas Đilas napada, znajte da u očima običnog naroda samo rastete! (VIDEO)
--  Vento di cambiamento in XI Zona, la squadra di Silvia Campanini disegna nuovi scenari
+-  J. K. Rowling milliárdokat kaszált tavaly a Harry Potterrel
+-  …तोपर्यंत आंदोलन सुरुच ठेवणार, विरोधकांच्या टीकेनंतर मनोज जरांगेंची मोठी घोषणा
+-  NAJPOPULARNIJI BORAC SE VRAĆA? Konor Mekgregor najavio povratak u kavez
+-  Verbote, Finanzen, Argumente - Was gegen Aufstieg der AfD helfen soll
+-  Китай допомагає Росії зберегти важку промисловість, - Bloomberg
+-  Córka oskarżyła matkę o czary
+-  Más de 170 bomberos combaten incendio forestal en zona andina del norte de Ecuador
+-  Европейски земеделски организации настояват за мерки срещу вноса от Украйна
+-  (여자) 아이들, ‘Super Lady’ 퍼포먼스 비디오 속 ‘칼각+남다른 카리스마’
+-  سارق حرفه ای و بی‌حواس تلفنش را جا گذاشت
