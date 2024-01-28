@@ -1,11 +1,11 @@
 # Latest News
--  Nagihan diskalifiye oldu mu? Survivor'da büyük kavga...
--  BILA SAM U KRVI, UDARILI SU ME PIŠTOLjEM, HTELI SU DA MI OBRIJU GLAVU: Branka Sovrlić o napadu zbog kog je mogla da izgubi život
--  السجن 30 شهرًا.. عقوبات تنتظر الباحثين عن نبات "الكمأ" في حال مخالفتهم
--  توقف میلان در سن‌سیرو با فرصت‌سوزی پنالتی‌زن‌‌ها!
--  Silvi novi mandat, Mračević ponovo izabran u Biro LEN-a
--  Quis ser bailarina, tem pontaria para jogar à bola e fez rapel numa torre militar. Só precisa de 120 segundos para conhecer Inês Sousa Real
--  Publicidade, política e humor. Esta é a campanha de que todos falaram
--  "Кому ты сдался, милок": Максима Галкина* подняли на смех за рассказ про письмо из России
--  "Star Academy " : "C'est lunaire", l'intervention d'un huissier en plein prime choque les téléspectateurs
--  A 'giant in a small body,' Florence Wong helped change senior care in Toronto
+-  트럼프, 대중국 수입품 일괄 60% 관세 부과 검토
+-  무인점포서 ‘스타킹’만 골라 10만원 어치 털어간 40대…벌금 40만원
+-  森保J次戦の相手 20年前の死闘
+-  Cunning Steve Smith is a tactical genius
+-  Cunning Steve Smith is a tactical genius
+-  Bayram Çelik: "Amasyalının huzur ve mutluluğundan başka hedefimiz yok"
+-  7e X Athletics : du haut niveau pour la première journée, mais de nombreux prétendants encore en lice pour la victoire ce dimanche
+-  Xavi anuncia sua saída do Barcelona no final da temporada
+-  Supruga Ognjena Amidžića zapalila društvene mreže: Mina se fotkala u devetom mesecu trudnoće, pa poručila: "Spremna sam" (FOTO)
+-  Cầu thủ MU vướng vào rắc rối lớn ở đội bóng mới vì 'đi đường quyền' với đồng đội
