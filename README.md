@@ -1,11 +1,11 @@
 # Latest News
--  Roketsan'dan büyük başarı!
--  Kamerun skončil už v osemfinále, svoje maximum vyrovnala Angola
--  How to watch Liverpool vs Norwich for FREE: TV channel and live stream for FA Cup game today
--  Çanakkale'nin Ayvacık ilçesi açıklarında 39 düzensiz göçmen yakalandı
--  Suomalais­asiantuntija: Ukrainan lennokki-iskuilla Venäjälle voi olla yllättävä vaikutus Suomeen – ”Se on uusi normaali”
--  Van'da ulaşıma kar engeli! 303 yerleşim yeri ulaşıma kapandı
--  Tenisiści stołowi zagrali o puchar wójta Pakosławia [ZDJĘCIA]
--  Egeli ihracatçılar Çin'de dijital pazaryeri kuracak
--  Cross-country : 223 Euréliens aux championnats régionaux, ce dimanche 28 janvier, à Saran
--  Nữ công nhân bật khóc trên sóng truyền hình vì Tết không về quê
+-  Yaban hayatı gönüllüleri, nadir canlıların yuvalarını saymak için gitti. Yarısından fazlası yok olmuştu. Oradaki izlerden suçlular hemen ortaya çıktı
+-  Обявиха най-добрия град за 2024 г.
+-  What Makes Altar Of Praise Ministry Unique – Grace Deh
+-  Energie: Stadtwerke Menden verschicken ihre Jahresabrechnungen
+-  #foto #video Dončić s trojnim dvojčkom in 28 točkami, Dallas vseeno izgubil
+-  大谷翔平の英語スピーチにＮＹ記者が感嘆の声「品があって、とっても明瞭な英語だった。感動した」 - スポーツ報知
+-  [도하NOW]‘사실상 원정’ 사우디전, 만만히 봐선 안 되는 이유
+-  Определен мужской состав сборной Украины на ЧМ
+-  Kırmızı bültenle aranan 6 DEAŞ'lı Türkiye'de yakalandı
+-  Studniówka 2024 w Zespole Szkół Zawodowych Nr 2 w Białymstoku. Tak bawili się przyszli maturzyści
