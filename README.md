@@ -1,11 +1,11 @@
 # Latest News
--  Das Figurentheater-Museum eröffnet seine eigene Bibliothek
--  We are sick of being collateral damage in the Left's thrust for power
--  Sexisme ordinaire, voyage à Tokyo, heures sup’, passion gelée... Les indiscrétions de la semaine
--  BRUKA U LUVRU, EKOLOZI PROSULI SUPU NA SLIKU MONA LIZE! Snimljen skandal, jedna stvar je tu sad neizvesna
--  عموتة .. جاهزون لمواجهة العراق
--  Türkiye’nin gizemli ilçesi keşfedilmeyi bekliyor! Doğa ve tarihin buluşma noktası: Turistlerin yeni gözdesi olmaya aday
--  Mercato agli sgoccioli: il Milan deve fare un ultimo colpo in difesa?
--  Проклятието на златните мини в Сенегал и Мали
--  VIDEO: Rīgā naktī izcēlies paaugstinātas bīstamības ugunsgrēks
--  „Gemeinsam an einem Strick ziehen“: Das sagen die Organisatoren der Holzwickeder Demonstration
+-  Noch werden wir heizen müssen - trotz der grünen Wiesen!
+-  Büyükşehir Korosu izleyenleri mest etti
+-  Van'da gece saatlerinde cayır cayır yanmaya başladı. Ahırda olan 1 katır ve 50 küçükbaş telef oldu
+-  إحباط تهريب 250 كيلوجرامًا من نبات القات المخدر في جازان
+-  Stuttgart: Mann belästigt zwei 17-Jährige sexuell
+-  Animal on OTT: Ranbir Kapoor reveals he cried after Bobby Deol removed his shirt; here's what happened
+-  A férfi kéziválogatott bizonyította, ott lenne a helye az olimpián
+-  Andrej Kramarić je još malo promijenio povijesne knjige Bundeslige
+-  Текущее падение цены — самое бычье событие, которое может случиться с Cardano: аналитик
+-  Şerife Geçer
