@@ -1,11 +1,11 @@
 # Latest News
--  Reclaiming our kids from the screens
--  Ce que vous réservent les derniers coups de cœur "culture" de la rédaction
--  Opamećuju se pametni telefoni: Produžetak čovjeka potreban je za oporavak tržišta
--  Reclaiming our kids from the screens
--  【大河ドラマ「光る君へ」本日第4話】離縁されたら「後妻打ち」！平安貴族の恐るべき恋愛事情
--  Ce que vous réservent les derniers coups de cœur "culture" de la rédaction
--  Jadwal Liverpool Hari Ini, Minggu 28 Januari 2024: Duel Emosional Lawan vs Norwich City
--  〈NHK大河「光る君へ」兼家役〉段田安則の「朝」と「夜」の顔が違いすぎる！ 振り幅がすごい演技に視聴者も騒然
--  Onze lamlendigheid en nu al gebroken beloftes worden duur betaald op het Oekraïense slagveld
--  MPS Query Shs 35 billion Coffee Traceability System
+-  ONU pede garantias para atividades da UNRWA em Gaza após acusações de Israel
+-  AUSTRALIAN OPEN. We gaan naar vijf sets! Sinner zorgt weer voor break bij 5-4 en is nu plots favoriet tegen Medvedev
+-  Verteidigungsexpertin: Strack-Zimmermann ist FDP-Spitzenkandidatin für die Europawahl
+-  Zuppa sul vetro della Gioconda a Parigi, nuova protesta degli ambientalisti
+-  Malaysian cops seize $850k worth of drugs from smuggling ring, arrest 8 in raids
+-  3 Turnaround Stocks You'll Regret Not Buying in 2024
+-  Ovo su uzdanice srpske opozicije! Žele da dovedu svoje favorite na vlast i proglase Srbe za genocidan narod (VIDEO)
+-  Линейка с пациент и кола се блъснаха в Шумен
+-  Dotation annuelle à l’assistance judiciaire: Macky Sall va allouer près de 2 milliards aux avocats
+-  Tottijev sin zakoračio u seniorski nogomet: Izabrao je drugi put u odnosu na slavnog oca
