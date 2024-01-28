@@ -1,11 +1,11 @@
 # Latest News
--  Avião Boeing 757 é usado para voo de sete minutos nos EUA e 14 quilômetros de distância
--  "En 1999, le XV de France avait une équipe de fous !" : Thomas Parnaud, chef étoilé du Grand Monarque, évoque sa passion pour le rugby
--  "Локомотив" спечели българското дерби срещу "Динамо" със страхотен обрат в Русия
--  Шофьор от Асеновград плаща 2000 лв. за бягство от полицаи
--  Тульская «Академия Михайлова» со счётом 3:1 разгромила «Акул» из Сахалина
--  Rangers boss in 'busy until the last second' transfer prediction
--  Avião Boeing 757 é usado para voo de sete minutos nos EUA e 14 quilômetros de distância
--  Россиян предупредили об опасности злоупотребления популярными таблетками
--  Antifurto per auto: quale scegliere
--  What is the FNCS pickaxe called and how do you get it?
+-  Calming someone with dementia starts with calming yourself
+-  Ívar rétt á undan Jóni
+-  Straks blir buss og hurtigbåt dyrere – Høyere prisvekst enn normalt får skylda
+-  Odsłonięcie pomnika Lecha Kaczyńskiego. Prezes PiS wspomniał o zamachu
+-  Helder Barbalho deve ser reeleito presidente do Consórcio da Amazônia Legal
+-  Aprosoja pede US$ 1,9 bilhão para "salvar" produção em MT
+-  Les planètes alignées pour un beau derby de Fédérale 3 entre Saint-Cernin et Saint-Simon
+-  Estrela da arte Dozie Kanu encontrou em Portugal tempo para trabalhar em paz
+-  Fiorentina, Brekalo-Hajduk, ci siamo: il giocatore in partenza per Spalato per le visite
+-  Deschamps peut trembler, gros coup dur pour l’équipe de France ?
