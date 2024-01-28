@@ -1,11 +1,11 @@
 # Latest News
--  Həddindən artıq yuxu nəyə səbəb olur?
--  Red Sea Situation Already Reflecting on Supply Chains: Your Keyboard May Take Much Longer to Arrive
--  Za predaju cijelog neispravnog auta može se dobiti i do 130 eura
--  Breakfast At 8 AM, Dinner At 8 PM? Why Timing Your Meals Matters More Than You Think!
--  Νέα έφοδος στις Κεντρικές Φυλακές - Εντοπίστηκαν κινητά και ναρκωτικά
--  트럼프, 재집권시 중국산 제품에 60% 관세 검토
--  Konstantinopolio stačiatikių bendruomenė kreipėsi į Teisingumo ministeriją dėl teisinio pripažinimo
--  Chi ha perso questa fede al centro commerciale?
--  Русия е атакувала Украйна с дронове през нощта
--  Rakitić seli u novi klub, a odmah iza njega stiže i proslavljeni golman?
+-  「すごい！誇らしい」天満屋・前田穂南の日本記録樹立に地元も沸く 大阪国際女子マラソン【岡山】
+-  Hogeschool Utrecht @HU_Utrecht schrapt Holocaust-lezingen. Wil liever "diverse dialoog en nieuwe maatschappelijke perspectieven"
+-  Denizin ortasında kartpostallık görüntü!
+-  Rusija spremna za pregovore oko isporuke gasa
+-  مباراة منتظرة بين منتخب طاجيكستان ونظيره منتخب الإمارات - beIN SPORTS
+-  For Palestinians, sovereignty is non-negotiable. We won’t accept a two-state solution without it
+-  A Star is Born : Bradley Cooper chante-t-il vraiment dans le film ?
+-  Removing Netanyahu is Israel’s only chance to achieve a two-state solution
+-  Rusové nasadili nový chemický granát, zabije do pěti minut, tvrdí Ukrajinci
+-  Short sellers bet against green minerals boom as prices plunge
