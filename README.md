@@ -1,11 +1,11 @@
 # Latest News
--  Orhaneli TOPUK-DER’de geleneksel gözleme şöleni
--  Für 35 Millionen Euro: Neuer Verteidiger für FC Bayern
--  [[박정규의 작살]‘김동연 發 반도체 말잔치 ’ 논란…이상일 용인특례시장 제안한 정책토론 나와라
--  NASA bir yer buldu Dünya’dan uzak! Orada su bulundu...
--  Megőrültek a szurkolók, futball Eb-n vannak ilyen nézőszámok
--  Sabah Bakıya sulu qar, bəzi rayonlara qar yağacaq
--  Alan Shearer ends 39-year wait as Newcastle reach FA Cup fifth round with Fulham win
--  Дерматолог рассказал, почему появляются темные круги под глазами
--  Каранга оправи проблемите с документите си и тръгна към лагера на ЦСКА
--  North Korea fires cruise missiles off east coast, Seoul reports
+-  İstanbul'da yoğun bakım doluluk oranı açıklandı: 'Kronik hasta' vurgusu
+-  Fluminense faz duelo direto com o Nova Iguaçu pela liderança da Taça Guanabara
+-  China securities regulator suspends restricted share lending from Jan 29
+-  CA, MBA Vacancy in Accenture
+-  Mensonges d'État : comment Russell Crowe a pris 30 kilos pour le film de Ridley Scott
+-  Mercato - PSG : Un transfert tombe à l’eau, la raison est dévoilée
+-  Nem vehetnek Trump-sapkát a magyar állampolgárok
+-  Dólar hoy, dólar blue hoy: a cuánto cotiza este domingo 28 de enero
+-  Vučić odbranio RTS od napada tajkuna: Čim vas Đilas napada, znajte da u očima običnog naroda samo rastete! (VIDEO)
+-  Vento di cambiamento in XI Zona, la squadra di Silvia Campanini disegna nuovi scenari
