@@ -1,11 +1,11 @@
 # Latest News
--  J. K. Rowling milliárdokat kaszált tavaly a Harry Potterrel
--  …तोपर्यंत आंदोलन सुरुच ठेवणार, विरोधकांच्या टीकेनंतर मनोज जरांगेंची मोठी घोषणा
--  NAJPOPULARNIJI BORAC SE VRAĆA? Konor Mekgregor najavio povratak u kavez
--  Verbote, Finanzen, Argumente - Was gegen Aufstieg der AfD helfen soll
--  Китай допомагає Росії зберегти важку промисловість, - Bloomberg
--  Córka oskarżyła matkę o czary
--  Más de 170 bomberos combaten incendio forestal en zona andina del norte de Ecuador
--  Европейски земеделски организации настояват за мерки срещу вноса от Украйна
--  (여자) 아이들, ‘Super Lady’ 퍼포먼스 비디오 속 ‘칼각+남다른 카리스마’
--  سارق حرفه ای و بی‌حواس تلفنش را جا گذاشت
+-  Corona-Zahlen im Kreis Gütersloh aktuell: Die Coronavirus-News aus der Region
+-  Трамп назвал оружие массового разрушения США
+-  «Крылья Советов» заявили о создании второй команды
+-  Exclusive: Chelsea “open” to selling or loaning star in coming days, says transfer expert
+-  Griselda on Netflix: Fans are dying to know if Carmen is based on a real person
+-  Finlandiya'da halk cumhurbaşkanını seçmek için sandığa gidiyor
+-  '퍼스트 무버' 삼성전자, 갤럭시S24로 새역사 쓰는 중
+-  NEROVERDI U PROBLEMU: Sasuolo bi se mogao naći u zoni ispadanja ukoliko ne podigne formu
+-  Wetter im Südwesten: Viel Sonnenschein im Ländle – auch zu Wochenbeginn?
+-  बिहार में महागठबंधन की सरकार गिरी तो यूपी में ओपी राजभर का स्टेज, देखें वीडियो
