@@ -1,11 +1,11 @@
 # Latest News
--  „Für mich braucht ein Song Gemüt – nicht KI“ – Rock-Tausendsassa Achim Reichel wird 80
--  Disabled Highland woman hits out at 'supermarket ban discrimination'
--  Der Herr der Ringe: Die Sprachen Mittelerdes - 6 Fakten über Tolkiens linguistische Fantasy-Welt
--  Permis octroyé pour la reconstruction de l’école communale de Saint-Nicolas, située rue d’Angleur, qui a été détruite pour insalubrité
--  Как се пише: свещено или свещенно?
--  Η απίστευτη ιστορία του ζευγαριού που είναι παντρεμένο 91 χρόνια και αγαπημένο - Βίντεο
--  „Für mich braucht ein Song Gemüt – nicht KI“ – Rock-Tausendsassa Achim Reichel wird 80
--  Foliões são convidados por blocos para ação "antes da folia, pratique empatia"
--  تاب‌آوری فمینیستی – بخش دوم: مبارزه زنان بلوچ، «راهپیمایی طولانی بلوچ»
--  Madonna is coming to Seattle Feb 17-18, tickets now available for ‘The Celebration Tour’
+-  Týden Živě: Hejtujeme Windows a eDoklady, protože nám na nich záleží
+-  Nesvakidašnja scena u Bundesligi – gledalac zamenio sudiju
+-  Football - Ligue 2. Le FC Annecy sous pression face à Pau
+-  Neumarkt ist "Weltstadt": OB Ochsenkühn begrüßt neueste Neubürger aus 43 Ländern
+-  CARINICI ŠOKIRANI Umirovljenik u ručnoj prtljazi nosio 455.000 eura
+-  Sigara içerken babalarına yakalandılar! Günlerdir haber alınamıyor! Aile hayatlarından endişeli!
+-  Nach Kopf-Treffer: Schiedsrichter-Assistent Siewer wird im Krankenhaus behandelt
+-  Neumarkt ist "Weltstadt": OB Ochsenkühn begrüßt neueste Neubürger aus 43 Ländern
+-  Дебют Михайличенко. Полесье пропустило от экс-форварда Динамо в Испании
+-  Bayreuther Mega-Projekt Berufsschule: Es knirscht an vielen Stellschrauben
