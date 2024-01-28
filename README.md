@@ -1,11 +1,11 @@
 # Latest News
--  LIVE MN - Milan-Bologna (0-0): Zirkzee ci ha provato, Maignan senza troppi problemi
--  The social media hack that helped Jess Sepel beat perfectionism
--  稲盛和夫「中学受験に失敗」で号泣…直後に“死の病”まで重なるドン底をはい上がれたワケ - 「超一流」の流儀
--  CAN 2023: Très puissant Angola humilie la Namibie et rallie les quarts de finale
--  Najmlađa kćer splitskog gradonačelnika večeras ide na maturalnu zabavu
--  El Gobierno reiteró que Argentina "no hace silencio frente al terror de Hamas"
--  ABD'de sınır krizi büyüyor
--  Florbalisté Střešovic zdolali Falun a poprvé v historii ovládli Pohár mistrů
--  Florbalisté Střešovic zdolali Falun a poprvé v historii ovládli Pohár mistrů
--  Duas obras do autor francês Han Ryner chegam ao Brasil com um século de atraso
+-  Snart kan flintskallen vara ett minne blott
+-  İzmir’de kulislere yansıdı: Soyer’in bileti kesildi
+-  Чемпионат Паулиста (трансляции на Sports.ru). «Ред Булл Брагантино» играет с «Ботафого-СП» (видео), «Сан-Паулу» встретится с «Португезой»
+-  Yaşlı adam evinin bahçesinde ölü bulundu
+-  Prince Harry and Meghan's 'jealousy' if King Charles decides to abdicate to Prince William
+-  Apple pracuje nad własną SI, ale na razie… integruje iPhone’a z ChatGPT
+-  Пустила по миру: за грехи Елены Блиновской страдают ее мама-пенсионерка и четверо детей
+-  Günün ULDUZ FALI: belə davranışın çox pis fəsadları ola bilər
+-  Super League: Τρομερό ματς στις Σέρρες! Πήρε βαθμό στο 94' ο Βόλος απ' τον Πανσερραϊκό
+-  Rosso a Milik in Juve-Empoli, Cesari: "Poco da dire, decisione corretta"
