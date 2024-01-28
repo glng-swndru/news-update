@@ -1,11 +1,11 @@
 # Latest News
--  علماء يكتشفون «نجوما مدخنة» في «درب التبانة»
--  Study suggests oilsands pollutant release vastly higher than official estimates
--  США пропонують Греції допомогу на $200 млн в обмін на зброю для України
--  Study suggests oilsands pollutant release vastly higher than official estimates
--  أجواء البدع تنعش سباقات الرياضة للجميع الشتوية
--  Study suggests oilsands pollutant release vastly higher than official estimates
--  «شخصيات أثرت في الإنسانية» بثقافي المكفوفين
--  «مايكروسوفت» يعاود الخدمة بصورة طبيعية
--  Study suggests oilsands pollutant release vastly higher than official estimates
--  වට රවුම් දෙකකින් මැවුණු නිමැවුම්කරුවන් දෙදෙනෙක්
+-  Al mal tiempo, buenas estrategias creativas
+-  Air Jordan 1 Low “Method of Make” Coming Soon
+-  Barcelona'da bir devir sona eriyor
+-  Jadwal Siaran Langsung Piala Asia 2023 di RCTI dan iNews TV Hari Ini, Minggu 28 Januari 2024
+-  LAKATAMIA FC – ΑΡΗΣ
+-  Rey Carlos III permanece en el hospital luego de someterse a una cirugía de próstata
+-  Usah banding-bandingkan karakter Agong – Shamrahayu
+-  Tobi Amusan sets new African hurdles record
+-  AAP functionary Nisha Rana joins BJP with supporters
+-  AIIMS Jammu to introduce On-Campus Medical, Grocery Stores
