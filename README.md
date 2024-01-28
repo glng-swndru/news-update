@@ -1,11 +1,11 @@
 # Latest News
--  Happy Sakat Chauth 2024 Wishes: सकट चौथ पर अपनों को भेजें तिलकुटा चतुर्थी की शानदार शुभकामनाएं
--  Locatelli incoraggia la Juve: carica così dopo l’1-1 con l’Empoli – FOTO
--  Самый большой круизный лайнер в мире отправился в плавание
--  Свиленски: Имаме безпардонно управление, евроатлантизмът е само смокиновият лист
--  « Dire que les industriels et les supermarchés “se gavent”, c’est factuellement faux ! »
--  亨利慕時將純天然玉石打造成錶盤！連Logo都捨棄全球限量僅100只
--  Edgar Morin : « Je suis à la fois mystique et rationnel »
--  Australia Siapkan Strategi Matikan Serangan Indonesia
--  Newport County have Argentinian fan who supports FA Cup underdogs because of FIFA
--  Odbojkarji Krke za zmago znova potrebovali štiri nize
+-  Das Figurentheater-Museum eröffnet seine eigene Bibliothek
+-  We are sick of being collateral damage in the Left's thrust for power
+-  Sexisme ordinaire, voyage à Tokyo, heures sup’, passion gelée... Les indiscrétions de la semaine
+-  BRUKA U LUVRU, EKOLOZI PROSULI SUPU NA SLIKU MONA LIZE! Snimljen skandal, jedna stvar je tu sad neizvesna
+-  عموتة .. جاهزون لمواجهة العراق
+-  Türkiye’nin gizemli ilçesi keşfedilmeyi bekliyor! Doğa ve tarihin buluşma noktası: Turistlerin yeni gözdesi olmaya aday
+-  Mercato agli sgoccioli: il Milan deve fare un ultimo colpo in difesa?
+-  Проклятието на златните мини в Сенегал и Мали
+-  VIDEO: Rīgā naktī izcēlies paaugstinātas bīstamības ugunsgrēks
+-  „Gemeinsam an einem Strick ziehen“: Das sagen die Organisatoren der Holzwickeder Demonstration
