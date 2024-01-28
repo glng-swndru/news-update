@@ -1,11 +1,11 @@
 # Latest News
--  تیراندازان برای پارالمپیک پاریس فشنگ خارجی ندارند!
--  Dr Dzul positive 'amicable' closure can be achieved for parallel pathway issues
--  Студенты смоленских вузов познакомились с работой психологов системы МВД
--  Chega ataca corrupção e recupera castração química de violadores
--  Pamela Anderson was always prettier, says Nicole Eggert (Entertainment)
--  Kepincut Senyumannya, Fajar Bustomi Pilih Adhiyat Bintangi Film Dilan 1983: Wo Ai Ni
--  Pedro Calado diz que dinheiro vivo encontrado em casa pertence à mulher
--  Kho vàng của Việt Nam được châu Âu ưu ái hết mực: xuất khẩu thứ 2 thế giới, Indonesia 'thèm khát' một loại thuế mà Việt Nam đang hưởng
--  Bihar Political Crisis: From Lalu Prasad’s ‘Game Plan’ To Rahul Gandhi’s Reach Out, This Is How RJD, Congress Are Planning To Tackle ‘Paltu Ram’ Nitish Kumar
--  Health Tips : 'या' हार्मोनच्या कमतरतेचा महिलांच्या प्रजनन क्षमतेवर होतो वाईट परिणाम; फॉलो करा सोप्या टिप्स
+-  Po velikem zaostanku napeta končnica, Luka do trojnega dvojčka
+-  BEYOND LOCAL: More animals are getting a mention in obituaries
+-  다가오는 4·10 총선…친명 vs 친문 공천경쟁 가열
+-  “Đồng hành tăng tốc” để có 240.000 doanh nghiệp gia nhập thị trường năm 2024
+-  Prabowo Doakan Timnas Indonesia Buat Kejutan Lawan Australia
+-  ‘나의 투쟁’ 꺼낸 네타냐후 “ICJ, 교훈 얻지 못했나”
+-  세금 1900억 써서 짓더니 철거에 또 수백억?…케이블카의 운명은 [방방콕콕]
+-  유승민 "당 지키겠다"…총선은 불출마 선언
+-  James Rodríguez ganó un nuevo round: esta vez por uno de sus negocios alternos
+-  Bangladesh beat Pakistan Women U19 by 36 runs
