@@ -1,11 +1,11 @@
 # Latest News
--  Prepoznajete li djevojčicu s fotografije? Danas je jedna od najvećih hrvatskih zvijezda!
--  Ramil ilk kez oynadı
--  شادی سربازان اسرائیلی هنگام فرار از غزه | ببینید
--  "SELMA BAJRAMI JE PRVA KOJA MI UVEK ČESTITA BOŽIĆ I USKRS" Dejan Milićević kod Jovane Jeremić o pevačici i zabrani da uđe u Srbiju: "ONA NAS OBOŽAVA"
--  Turquia mantém apoio à agência da ONU de assistência aos refugiados palestinianos
--  Kocaeli Süper Lig aşkına
--  Stávka německých drah končí, od pondělí začnou jezdit vlaky z Česka do Berlína a Mnichova
--  Bei Drohnenangriff in Jordanien: Drei US-Soldaten getötet
--  Youth Olympic Games: Montag wird’s ernst fürBrattendorfer Olympionikin
--  Еврофермери: Ако умрем, вие ще гладувате
+-  Российский легкоатлет рассказал об интересе к возможным провокациям за рубежом
+-  Kılıçdaroğlu: Koltuk derdi olanın Allah belasını versin
+-  Ley ómnibus: "Jaldo tiene puesta la camiseta de Tucumán", afirmó Albarracín
+-  Clermont Foot - Strasbourg : Boutobba et Nicholson bien connectés... le carnet de notes des Clermontois
+-  Clermont Foot - Strasbourg : Boutobba et Nicholson bien connectés... le carnet de notes des Clermontois
+-  Bu SUV dağ, taş, sis, şeritsiz yolda bile şoförsüz gidiyor! Videoyu izleyenler inanamadı
+-  加薩戰爭爆發以來「首傳美軍喪生」 拜登矢言反擊
+-  400 عنوان.. دار جامعة الملك سعود تحيي الحراك الثقافي بمعرض القاهرة الدولي
+-  Хет-трик Фюллькруга принес «Боруссии» победу над «Бохумом»
+-  Sysco LABS hosts 2nd Annual AHRP Immersion Program for aspiring HR professionals
