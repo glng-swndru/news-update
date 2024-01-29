@@ -1,11 +1,11 @@
 # Latest News
--  آزمون دشوار مکرون
--  تعویض پارکینگ پول صندوق توسعه از بانک مرکزی به بانک مسکن
--  Blak-blakan Dukung Ganjar-Mahfud, Konglomerat Sofjan Wanandi Ungkap Alasannya!
--  馬德鐘唔恨做阿爺 懶管兒子感情事 林鈺洧羨慕師姐郭柏妍多劇拍
--  善用商場優惠 辦年貨過肥年
--  ایرانی‌‌‌ها رکورددار حساب‌‌‌های بانکی
--  جدال بر سر استانداردهای 85گانه
--  ABD Savunma Bakanı Austin İran'ı sorumlu tuttu
--  سه پرده از دلواپسی بورس
--  Superniania na zdjęciu ze studniówki. Miała być "mokra Włoszka". Nie wyszło
+-  MK-sarjas esikümnesse uisutanud Marten Liivil jäi napilt Eesti rekordist puudu
+-  Nicki Minaj Set to Release Apparent Megan Thee Stallion Diss Track - TMZ
+-  PAOK Salonic, victorie în derbiul cu rivala Panathinaikos
+-  „Ich bin ein Star – Holt mich hier raus!“: Model Anya fliegt aus dem Dschungelcamp
+-  '필드골 0' 클린스만호, 정말 플랜 A뿐인가 "또 다른 전술, 복잡해질 수 있어"
+-  Лідер Мілана може перейти до ПСЖ
+-  Lorraine. Colère des agriculteurs : Paris lundi, retour sur les routes lorraines dès mardi
+-  Арменският премиер предлага на Азербайджан пакт за ненападение
+-  EDITA ARADINOVIĆ UHVAĆENA NA AERODROMU KAKO ŽURI KOD LEKARA! Ima ozbiljan problem, mora da se reši ovoga
+-  Thêm một sân khấu thiếu nhi đi vào hoạt động
