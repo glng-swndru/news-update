@@ -1,11 +1,11 @@
 # Latest News
--  Bắt 7 thanh niên hack tài khoản Facebook, chiếm đoạt 8 tỷ đồng
--  Politique. Antisémitisme : Yaël Braun-Pivet confie avoir déposé 23 plaintes
--  Politique. Antisémitisme : Yaël Braun-Pivet confie avoir déposé 23 plaintes
--  Politique. Antisémitisme : Yaël Braun-Pivet confie avoir déposé 23 plaintes
--  Τραγωδία στον Πειραιά: Νεκρός 18χρονος που κατανάλωσε μεγάλη ποσότητα αλκοόλ σε νυχτερινό μαγαζί
--  एक्सप्रेस वे पर डिवाइडर से टकराया ट्रक, किसी ने हटाया भी नही… सुबह उसी से टकराई कार, 2 की मौत
--  Socceroos set for quarter-final showdown
--  “Għax Robert Abela dgħajjef, qed ibati l-poplu Għawdxi u Malti kollu” – Bernard Grech
--  Bà mẹ TP.HCM liệt kê tiền học 1 tháng của con, phụ huynh khác than: Công nhân làm gì có tiền cho con học?
--  «Лилль» вдесятером сыграл вничью с «Монпелье»
+-  "Impresa memorabile", "Orgoglio tricolore". Sinner manda in estasi Meloni e Salvini
+-  Siner: Danile, ti me guraš; Medvedev: Teško je
+-  الدكتور المحوري يدشن الدورة التدريبية لمعلمي ومعلمات نهج القراءة المبكرة بخنفر
+-  «Вулверхэмптон» победил «Вест Бромвич» в Кубке Англии, игру прерывали из-за беспорядков на трибунах
+-  Bienvenido Alivio, vozač plamtećeg školskog autobusa koji nam je ponovo otkrivao snijeg
+-  UŽIVO, ZVEZDA - MLADOST: Pratite na Kuriru direktan prenos meča crveno-belih sa priprema na Kipru (LIVESTREAM)
+-  Leyla und Mike sind zu zweit weg: Dschungel-Kim dreht durch!
+-  Yami Gautam Shines Bright In 'Article 370', Portrays A Powerful Lead - WATCH
+-  Vérontáshoz vezet, hogy semmit nem tudnak egymásról a világ nagyhatalmai
+-  Хусити атакували військовий корабель Британії
