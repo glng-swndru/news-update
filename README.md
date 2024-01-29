@@ -1,11 +1,11 @@
 # Latest News
--  Bağışıklık seviyesini arttıran şalgam, gribe birebir
--  Red Bull Cliff Diving: Romania’s Constantin Popovici crowned men’s champion
--  Netflix, Apple Vision Pro için neden uygulama geliştirmediğini açıkladı
--  Sri Lankan diplomats in talks with Somali authorities to ascertain whereabouts of vessel, six crew members suspected of being abducted by pirates
--  ASEAN外相会議にミャンマー代表が出席 苦境続き、歩み寄りか
--  Φαίη Σκορδά: Πέθανε ο πατέρας της
--  민주 공관위 “소수정당 ‘권역별’ 비례제 타결돼야”
--  Missão Continente vence prémio internacional na área da responsabilidade social
--  El 40% de magistrados prorrogados fueron funcionarios públicos en la era del MAS
--  Jedenáctiletý český akordeonista vyhrává skoro všechny soutěže a koncertuje s orchestry
+-  Toyota revela que una filial manipuló datos sobre la potencia de los motores diésel
+-  اللجنة الوطنية للمرأة تستأنف تدريب نساء حول عملية بناء السلام
+-  Нападение на храм в Стамбуле: Под подозрением граждане России и Таджикистана-ВИДЕО
+-  Doğal gaz kombileri kaldırılacak. Düğmeye basıldı o tarihte uygulanacak
+-  Martin Scorsese otkrio zašto nikad ne gleda svoje filmove u javnosti
+-  Генерали: НАТО да се подготви за руски удари по цели в цяла Европа
+-  ВИДЕО. Лучший бомбардир в истории сборной Панамы умер в 41 год
+-  Rijeka se nakon pobjede na Poljudu oglasila s četiri riječi
+-  Herkes onu Kenan Işık sandı ama gerçek çok başka çıktı!
+-  Zwolniona z "Pytania na śniadanie" Nowakowska szybko znalazła nową fuchę. Nie ukrywa zachwytu
