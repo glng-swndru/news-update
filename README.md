@@ -1,11 +1,11 @@
 # Latest News
--  Toyota revela que una filial manipuló datos sobre la potencia de los motores diésel
--  اللجنة الوطنية للمرأة تستأنف تدريب نساء حول عملية بناء السلام
--  Нападение на храм в Стамбуле: Под подозрением граждане России и Таджикистана-ВИДЕО
--  Doğal gaz kombileri kaldırılacak. Düğmeye basıldı o tarihte uygulanacak
--  Martin Scorsese otkrio zašto nikad ne gleda svoje filmove u javnosti
--  Генерали: НАТО да се подготви за руски удари по цели в цяла Европа
--  ВИДЕО. Лучший бомбардир в истории сборной Панамы умер в 41 год
--  Rijeka se nakon pobjede na Poljudu oglasila s četiri riječi
--  Herkes onu Kenan Işık sandı ama gerçek çok başka çıktı!
--  Zwolniona z "Pytania na śniadanie" Nowakowska szybko znalazła nową fuchę. Nie ukrywa zachwytu
+-  Pērn Latvijas četru lielāko banku klientiem izkrāpti 12,662 miljoni eiro
+-  America is committed to 50 allies. What if they all come knocking at once?
+-  Khám phá camera hành trình 70mai A200 ghi hình trước sau giá rẻ
+-  শাবনূরের এসব দিনরাত্রি
+-  بالأرقام.. هل سينجح موسيماني مع أبها؟
+-  Shareholders’ proposals to the Annual General Meeting for the number of Marimekko’s Board members, the composition of the Board and its remuneration
+-  Không gian Tết cổ truyền nơi 'đại dương thu nhỏ'
+-  重体の76歳男性が死亡 猪苗代町の国道49号線を横断中 乗用車にはねられる＜福島県＞
+-  L’immagine dell’abbandono al centro della mostra d'arte di Bologna: l’uomo come paradigma dell’esistenza
+-  History: Dr Felice Cutajar – ‘Alexander Ball’s Maltese face’
