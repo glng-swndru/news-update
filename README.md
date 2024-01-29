@@ -1,11 +1,11 @@
 # Latest News
--  Even Netflix thinks Prime Video is making a mistake by forcing people to watch ads
--  1 loại thịt trong Đông y là “thuốc bổ thượng hạng”, giúp hạ đường huyết, dưỡng thận hiệu quả nhưng 2 kiểu người nên tránh
--  Quyết tâm lấy chồng giàu, sau 1 tháng, tôi đã tự cuốn gói về nhà đẻ
--  رواية عندما تضئ الشموع بيد الحزن -6
--  성남시, 하늘누리 1·2추모원 설 연휴에도 개방
--  엑스, 스위프트 검색 차단…아동 성착취물 단속팀도 신설
--  JAMBAR calls for gov't to consider Mr Vegas' anti-crime proposal
--  PLACAR FI: Confira os RESULTADOS deste DOMINGO recheado de JOGOS!
--  Sudoku difícil: 29 de enero de 2024
--  Sudoku medio: 29 de enero de 2024
+-  ED's Operation At Narco-Financial Trail Of Ali Asghar Shirazi's Drug Syndicate Unearths Money Laundering Network
+-  중처법 전면 시행…정부, '산업안전 대진단' 착수
+-  ビットコインが危機から何度も復活する理由 アメリカでビットコイン現物ETFの上場承認 | 投資 | 東洋経済オンライン
+-  Biden says US will 'respond' after three American troops are killed in drone attack in Jordan
+-  Giao tranh liên miên, quân đội Ukraine đứng trên bờ vực kiệt sức
+-  Demir çelik sektörüne bu kötülüğü yapmayın
+-  Cụ bà 83 tuổi vẫn lái Lamborghini, Porsche trong trường đua: Yêu xe thể thao từ năm 18 tuổi, sở hữu nhiều siêu xe đắt tiền
+-  Ağabey Diyor Ki, Bılderberg Nedir? Hizmet Edenler Kimlerdir?
+-  〈愛子さまが日赤に就職へ〉佳子さまの“パーフェクトスマイル”は現地で絶賛 「ほほ笑みのプリンセス」のペルー訪問
+-  Health Tips : तजेलदार, डागरहित त्वचा हवीय? तुमच्या आहारात 'हे' महत्त्वाचे बदल करा
