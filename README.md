@@ -1,11 +1,11 @@
 # Latest News
--  Тръмп заплашва: Има 100 процента шанс за терористична атака в САЩ заради нелегалните имигранти (ВИДЕО) - Труд
--  Villa leggur fram þriðja tilboðið í Rogers
--  Відомий артист балету, який мріяв про Росію, виступив у Києві: "Повний треш"
--  Vesić: Ove godine počinje gradnja pruge od Zemun polje do budućeg Nacionalnog stadiona
--  SJAJNE VESTI ZA NAVIJAČE ZVEZDE UOČI DERBIJA: Vratio se Miloš Teodosić!
--  ”Suomen kaikkien aikojen aitajuoksulupaus” kumautti tiskiin taas uuden SE-ajan
--  الصين تحاول اللعب على الحبلين في الشرق الأوسط
--  SEVERINA IZAŠLA NA NASTUP SVA UPLAKANA PA POKAZALA SREDNJI PRST! Čitava nacija stala uz nju: Seve uz tebe su sve majke ovog sveta
--  أبرزها تعليم الأطفال الرحمة.. مزايا تربية القطط في المنزل
--  Conmoción: una embarazada murió luego de ser atropellada por un auto cuando intentaba cruzar la ruta
+-  What is UNRWA, the aid provider in Gaza that Israel accuses of militant links?
+-  LiveBlog SuperLiga: Universitatea Craiova vs FCSB Ora 20:00 – Oltenii pot ieși din lupta pentru titlu
+-  Güzeltepe Kayak Merkezi kar yağışıyla sezonu açtı
+-  Boavista-Portimonense, 1-4 (crónica)
+-  Split: Hajduk - Rijeka 1:2
+-  Végnapjait éli a színészlegenda: ágyhoz kötve, borzalmas állapotban van Alain Delon
+-  Πέννυ Μπαλτατζή: H χιουμοριστική ανάρτηση με την 1,5 ετών κόρη της
+-  Domen matiral tekmece, Timi si je oddahnil, ko je preletel zeleno črto
+-  Internationales Breakdance-Battle im Trafo: «Unglaublich, was die Kids hier für eine Show geboten haben»
+-  Three iPhone tricks to boost your battery life and save your storage space – including little-known ‘reduce motion’ hack
