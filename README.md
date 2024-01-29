@@ -1,11 +1,11 @@
 # Latest News
--  Рибари: Ветропарковете ще ограничат риболовните зони в Черно море
--  יירש את צ'אבי? ארטטה עשוי לעזוב את ארסנל בסיום העונה
--  Làng 'âm phủ' Phúc Am tất bật chạy đơn hàng Tết
--  "Kül olsun başına ki, yanında pulla kişi saxlayır"
--  ‘내남결’ 박민영의 파격 리벤지룩
--  Trump ABD üssüne saldırıda Biden'ı hedef aldı! "Ben başkan olsaydım..."
--  Σοκ για τον Πισάρο της ΑΕΚ: Σκότωσαν τη θεία του στο Μεξικό, πυροβόλησαν και τη μητέρα του
--  ‘내남결’ 박민영의 파격 리벤지룩
--  Седем души загинаха при катастрофа на малък самолет в Бразилия
--  '수노아파 단순 가입' 조폭 집행유예 등 선처…"기회 주겠다"
+-  Румен Радев: Компенсации за цените на тока за домакинствата ще има поне до 2026 г.
+-  Killers, fraudster, cannabis farmers and burglar jailed
+-  Elinde altını olanlar dikkat! 2 gün sonra... 29 ocak altın fiyatları
+-  In IJmuiden kijken ze niet op een bommetje meer of minder: "Het is ver van m’n bed"
+-  Bejött a kis lépések taktikája
+-  African presidents arrive in Rome for Italy summit
+-  A foundation for stability
+-  Lewat Program Pos Bloc, PosIND Hadirkan Ruang Kreatif bagi Masyarakat
+-  When corruption is rewarded
+-  Нефть дорожает из-за новостей с Ближнего Востока
