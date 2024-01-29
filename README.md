@@ -1,11 +1,11 @@
 # Latest News
--  Van'da soba faciası! 6 aylık bebek alevlerin arasında kalarak hayatını kaybetti
--  Οι χούντες Μάλι, Μπουρκίνα Φάσο και Νίγηρα αποχωρούν από την Οικονομική Κοινότητα των Κρατών της Δυτικής Αφρικής
--  Love Island's Shaughna Phillips - 'Taking my baby to visit her dad in prison is not the life I wanted for her'
--  Блискиот Исток почнува да гори- Западот крои планови за Украина
--  Майка твърди, че синът й е починал в полицията в Разград при неизяснени обстоятелства
--  Rare praise for Victoria's Labor government after duck hunting move
--  Doların kanı kaynıyor!
--  BAJDEN SPREMA ODGOVOR ZA KRIVCE: Napadom na američke vojnike pređena "crvena linija"
--  Bewoners De Bloem in Rijnsburg leggen zich neer bij doortrekken Exportstraat, maar willen veiligheidsmaatregelen. ’Desnoods zet ik die strepen er zelf op’
--  문별, 29일 첫 정규앨범 '스탈릿 오브 뮤즈' 예약 판매 돌입
+-  پیش بینی نرخ ارز در روزهای آینده | افزایش قیمت دلار کنترل می شود؟
+-  Tử vi tuần mới từ 29/1 đến 4/2/2024, 4 con giáp càng cuối năm càng đỏ như son
+-  Jyske vei nimiinsä ”romurallipelin” – Hyökkäykseen lähdettiin aina kun oli mahdollista
+-  Landratswahl in Thüringen: AfD verliert im Saale-Orla-Kreis
+-  Altın haftaya yükselişle başladı
+-  能登地震 地震保険の受付は5万件
+-  عادة محببة خلال النهار.. قد تكون علامة على الخرف
+-  Konser öncesi hastanelik olan Alişan'ın sağlık durumu açıklandı
+-  「酒のツマミになる話」に番組名変更の噂…フジテレビが「松本色」を一掃か
+-  Meteorology Department expects moderate temperature, warns of strong wind and high sea offshore
