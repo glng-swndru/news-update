@@ -1,11 +1,11 @@
 # Latest News
--  これぞデイトナ24時間。ペンスキーの7号車ポルシェ963が2秒差でキャデラックとの熱戦を制す【決勝レポート】 - オートスポーツweb
--  Kılıçdaroğlu: Koltuk derdi olanın Allah belasını versin
--  리사, 佛 자선콘서트 출연…마크롱 여사와 ‘팔짱’
--  Blitz da lei seca em Mato Grosso tem 19 presos e 33 veículos apreendidos
--  Bruno Fernandes: Ekki úrslitin sem við vildum
--  Prazo para pagar IPVA com 15% de desconto termina na 4ª feira
--  멕시코서 승객이 이륙 지연 비행기 비상문 열고 날개 위에서 시위
--  Toni Viljanmaa: Haavisto ja Stubb mittelevät toisella kierroksella – näin turkulaistutkija povaa vaalien lopputulosta: "Hänellä on erittäin hyvät mahdollisuudet nousta presidentiksi"
--  Mansur Yavaş: ''Ankara halkını zengin edeceğiz sözümüzü yerine getiriyoruz''
--  Μεσανατολικό: Οι ΗΠΑ προειδοποιούν το Ιράν για αντίποινα μετά τον θάνατο 3 Αμερικανών στρατιωτών
+-  آزمون دشوار مکرون
+-  تعویض پارکینگ پول صندوق توسعه از بانک مرکزی به بانک مسکن
+-  Blak-blakan Dukung Ganjar-Mahfud, Konglomerat Sofjan Wanandi Ungkap Alasannya!
+-  馬德鐘唔恨做阿爺 懶管兒子感情事 林鈺洧羨慕師姐郭柏妍多劇拍
+-  善用商場優惠 辦年貨過肥年
+-  ایرانی‌‌‌ها رکورددار حساب‌‌‌های بانکی
+-  جدال بر سر استانداردهای 85گانه
+-  ABD Savunma Bakanı Austin İran'ı sorumlu tuttu
+-  سه پرده از دلواپسی بورس
+-  Superniania na zdjęciu ze studniówki. Miała być "mokra Włoszka". Nie wyszło
