@@ -1,11 +1,11 @@
 # Latest News
--  홍준표 "검사가 정치 맛 들이면 세상 어지러워져"…한동훈 겨냥?
--  Autofahrer aufgepasst! Hier wird diese Woche in Bremerhaven geblitzt
--  2 dead, 2 Palm Bay officers injured in shooting, police say
--  Mardin'de otomobil, şarampole devrildi: 4 yaralı
--  Roest rijdt stokoud Nederlands record uit de boeken en pakt goud op 5000 meter, Nuis naar ziekenhuis
--  日本株は小反発か、米景気底堅く投資家心理が改善－商社などに買い - ブルームバーグ
--  Afellay raakt in felle discussie: ‘We kunnen wel de moraalridder uithangen...’
--  러시아 대사관저 초소로 돌진한 SUV…경찰관 ‘중상’
--  Roest rijdt stokoud Nederlands record uit de boeken en pakt goud op 5.000 meter, Nuis naar ziekenhuis
--  Roest rijdt stokoud Nederlands record uit de boeken en pakt goud op 5.000 meter, Nuis naar ziekenhuis
+-  현대차, 글로벌 판매둔화와 불확실성…목표가↓
+-  모나리자에 농민 시위 불똥…"예술이 중요하냐" 수프 끼얹어
+-  Бивш румънски президент е приет в болница
+-  SKY - Perez al Napoli, martedì le visite mediche: si chiude nelle prossime ore
+-  أمانة منطقة تبوك ترفع كفاءة الطرق وأعمال السلامة المرورية داخل المدينة
+-  2024 Enugu State Budget: Audaciously Ambitious, Undeniably Unrealistic (2)
+-  돌아온 김부선…“明 ‘삼진아웃 안된다’ 내집서 술 먹고 대리 불렀다”
+-  TRAGEDIJA U GRČKOJ Mladić (17) pokušao skok motorom, pa nastradao i to na očigled svojih prijatelja (FOTO/VIDEO)
+-  Mỹ nhân bóng chuyền Việt Nam làm đám cưới trước tết Nguyên Đán, cuộc sống bước sang trang mới đáng nhớ
+-  Lessons for Land Bridge advocates
