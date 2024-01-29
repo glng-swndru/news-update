@@ -1,11 +1,11 @@
 # Latest News
--  Российский легкоатлет рассказал об интересе к возможным провокациям за рубежом
--  Kılıçdaroğlu: Koltuk derdi olanın Allah belasını versin
--  Ley ómnibus: "Jaldo tiene puesta la camiseta de Tucumán", afirmó Albarracín
--  Clermont Foot - Strasbourg : Boutobba et Nicholson bien connectés... le carnet de notes des Clermontois
--  Clermont Foot - Strasbourg : Boutobba et Nicholson bien connectés... le carnet de notes des Clermontois
--  Bu SUV dağ, taş, sis, şeritsiz yolda bile şoförsüz gidiyor! Videoyu izleyenler inanamadı
--  加薩戰爭爆發以來「首傳美軍喪生」 拜登矢言反擊
--  400 عنوان.. دار جامعة الملك سعود تحيي الحراك الثقافي بمعرض القاهرة الدولي
--  Хет-трик Фюллькруга принес «Боруссии» победу над «Бохумом»
--  Sysco LABS hosts 2nd Annual AHRP Immersion Program for aspiring HR professionals
+-  Watan gününi goraýjylaryň hormatyna, harby we ýörite derejeleri, şeýle hem synp derejelerini sylaglamak we bellemek
+-  Εθνικός – Άρης 2-6: Δεύτερη θέση με εξάρα και θελκτικό ποδόσφαιρο
+-  Gewiese se vrátil do Vítkovic. Loupež za bílého dne, pochvaloval si výhru
+-  Медицинската бележка за учениците ще отпадне
+-  В честь Дня защитников Отечества награждения и присвоения воинских и специальных званий, а также классных чинов
+-  Lazio-Napoli 0-0, il Toro recupera due punti ad entrambe
+-  Nişantaşı'nda yol kesip deve gezdirdiler. Yok artık deve
+-  British skydiver dies in 29-storey fall as parachute fails in Thailand
+-  Франція щомісяця постачатиме ЗСУ артснаряди
+-  Atenção Benfica: David Costa mostra como se marca ao Toulouse
