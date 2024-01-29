@@ -1,11 +1,11 @@
 # Latest News
--  Annesinin düğününde döktürdü! İddialı seçim
--  SK바이오팜, 작년 4Q 영업이익 '흑자전환'… "흑자 기조 이어가겠다"
--  Long wait for resumption of iron ore mine in Parbat
--  WOR for Future“ und Bund Naturschutz positionieren sich mit Mahnwache
--  Βραζιλία: 7 νεκροί στη συντριβή μικρού αεροσκάφους
--  故이선균 주연 영화 ‘잠’, 프랑스 제라르메 국제 영화제 대상 수상
--  নরম চুলের জন্য ডিমের সঙ্গে মেশান এই ৫ উপাদান
--  Healthy swaps: 20 natural ingredients to replace salt and sugar in your meals for better health
--  New Mexico tries to jump-start electric vehicle infrastructure ahead of new car rule
--  האזינו לפודקאסט: מכבי תל אביב חייבת את אלעד מדמון ועדי יונה עכשיו
+-  В прошлом квартале Китай определял по 40 % выручки компаний ASML и Lam Research
+-  “วราวุธ” เสียใจเหตุสลดนักเรียน ม.2 “ชัชชาติ” รุดพบผู้ปกครองเด็กที่เสียชีวิต
+-  Vācijas vilcienu mašīnisti pārtrauc streiku
+-  Οι αλβανικές αρχές πλαστογράφησαν το ποινικό μητρώο του Μπελέρη για να τον προφυλακίσουν
+-  Първата въздушна линейка се очаква у нас тази сряда
+-  "النقل" تدشن النسخة الثانية من برنامج "إعداد" لقادة التغيير
+-  Глава МИД Ирана прибыл в Пакистан для нормализации двусторонних отношений
+-  지금 제주 앞바다선 낚싯줄 걸린 새끼 돌고래 구조 작업 중
+-  Üssü vurulan Washington'dan ilk mesajlar: 'Sorumlu belli, karşılık vereceğiz...'
+-  Gerakan Salam 4 Jari Ramai di Media Sosial Jelang Pencoblosan, Apa Maksudnya?
