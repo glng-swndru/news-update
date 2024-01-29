@@ -1,11 +1,11 @@
 # Latest News
--  ‘Silent killer’: NQ suffering through severe heatwave
--  Music icon Joni Mitchell to perform at Grammys for 1st time - CBC News
--  Khi tác phẩm văn học cất tiếng cùng đời sống
--  США предлагают Греции помощь на $200 млн в обмен на оружие для Украины
--  [정치쇼] '이재명 측근' 김지호 "임종석 정도면 '尹 정권 중심'에서 맞붙어야"
--  [사설] 충청지방정부연합, 지방시대 마중물 될 것
--  5년간 3조7000억원 세수 줄어드는데… 총선 앞둔 감세 정책 논란
--  Vojvoda explica mudanças na escalação e exalta concorrência interna no Fortaleza
--  واکنش وزرای کابینه انگلیس به حملات علیه نیروهای آمریکایی
--  MAN UNITED RATINGS: Casemiro looked rusty in 4-2 win at Newport and Luke Shaw was excellent… but which two Red Devils stars scored just 5.5/10?
+-  なぜ今、ロードスターがアップデート？ そして990Sが消失したワケ
+-  Taylor Swift says what everyone is thinking
+-  Somali quldurları yenə gəmi qaçırdılar
+-  우리자산운용 순자산 43조 규모 통합법인 출범
+-  Taylor Swift says what everyone is thinking
+-  ヤマダイフーズプロセシング（函館） 納豆製品 知名度向上に力＜道南イチオシ企業＞
+-  ЕС создаст проблемы в экономике Венгрии в случае отказа Будапешта поддержать помощь Киеву
+-  ‘영풍제지 주가조작’ 총책 구속 갈림길…오전 영장심사
+-  Abel reforça que gramado sintético do Allianz precisa de manutenção: 'Prejudicial ao Palmeiras'
+-  «Вот и пошли первые некрологи»
