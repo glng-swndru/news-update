@@ -1,11 +1,11 @@
 # Latest News
--  MK-sarjas esikümnesse uisutanud Marten Liivil jäi napilt Eesti rekordist puudu
--  Nicki Minaj Set to Release Apparent Megan Thee Stallion Diss Track - TMZ
--  PAOK Salonic, victorie în derbiul cu rivala Panathinaikos
--  „Ich bin ein Star – Holt mich hier raus!“: Model Anya fliegt aus dem Dschungelcamp
--  '필드골 0' 클린스만호, 정말 플랜 A뿐인가 "또 다른 전술, 복잡해질 수 있어"
--  Лідер Мілана може перейти до ПСЖ
--  Lorraine. Colère des agriculteurs : Paris lundi, retour sur les routes lorraines dès mardi
--  Арменският премиер предлага на Азербайджан пакт за ненападение
--  EDITA ARADINOVIĆ UHVAĆENA NA AERODROMU KAKO ŽURI KOD LEKARA! Ima ozbiljan problem, mora da se reši ovoga
--  Thêm một sân khấu thiếu nhi đi vào hoạt động
+-  Голям мач на Десподов върна ПАОК на върха в Гърция (Снимки)
+-  "HVALA ČOVIĆU!" Evo zaštoi je Janis Sferopulos rešio da "prekine" konferenciju za štampu posle pobede Zvezde nad Partizanom
+-  &quot;POGLEDAJTE KAKO LOPOVI ZAVRŠE&quot; Uhvatio ga dok mu obija kuću, izmlatio ga i vezao, a onda sve to snimio (VIDEO)
+-  SUV 차량, 러시아 대사관저 초소 들이받아…경찰관 부상
+-  Ето до какво водят финтовете на Мбапе (видео)
+-  الميادين: 23 شهيداً بعد قصف إسرائيلي استهدف منزلاً يعود لعائلة المطوي غرب النصيرات وسط قطاع غزة
+-  Pod Peco več kot 300 graditeljev snežnih skulptur
+-  Alişan hastaneye kaldırıldı
+-  Stavka zaposlenihna upravnih enotah
+-  İsrail Gazze'yi vuruyor: 34 Filistinli daha öldü
