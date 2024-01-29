@@ -1,11 +1,11 @@
 # Latest News
--  Revealed: The cities where workers earn the most in Spain’s Andalucia – and a scandalous gender pay gap
--  Familienzeit: A$AP Rocky, Rihanna und Kids bei Fashion Week
--  Waarom de wederopstanding van Red Bull geen inspiratie mag vormen voor Mercedes
--  Gribal enfeksiyonlar emzirmeye engel değil!
--  'It'll feel like a recession': Australia headed for weakest growth since 90s
--  Két hét, és érkezik a 13. havi és a februári nyugdíj
--  Airline competition ‘halves ticket prices’
--  Infortunio Thiaw, il centrale brucia le tappe: ecco quando tornerà a disposizione di Pioli
--  Печалбите на китайските индустриални предприятия отчитат ръст за пети пореден месец
--  Studie - Theologen präsentieren diese Woche ihr neues Buch in Kilb
+-  Fazenda define procedimentos para casos de inadimplência e facilita acesso ao Desenrola
+-  Volkan Konak'tan çok konuşulacak sözler: 'Beni silin, ben yokum'
+-  Alertă în Paris. Mii de polițiști au scos blindatele pe străzi ca să blocheze "asediul" fermierilor. Zeci de autostrăzi sunt blocate
+-  Milan weigh up move for Alaves left back Javi Lopez, transfer expert says
+-  Natasha Thahane’s yellow outfit breaks Bucs’ hearts [photos]
+-  Париж 2024 обмисля увеличение на бюджета заради мерки за сигурност
+-  Leonel Jiménez habla del infarto, su futuro y el de ‘Sensación Deportiva’
+-  Bank of America: Buy, Sell, or Hold?
+-  Aidez la "SPA des animaux aquatiques", un centre unique en France basé à Limoges
+-  Bursa Valisi Demirtaş'tan BESAŞ fabrikasına ziyaret!
