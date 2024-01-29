@@ -1,11 +1,11 @@
 # Latest News
--  Tuntud briti laulik sattus füüsilise kurnatuse tõttu voodiravile
--  El PSOE descarta votar a favor de las enmiendas "vivas" de ERC y Junts a la amnistía este martes
--  15 جهاز إنعاش قلبي لخدمة قاصدي المسجد الحرام
--  Кои зодии са най-лошите гости - обръщат къщата с главата надолу!
--  被災した伝統工芸「珠洲焼」の工房 “やめる訳には” 再建決意
--  Universitas BSI Karawang Laksanakan Uji Kompetensi Programmer
--  Món canh rau củ dễ làm là "thuốc" giảm cân nhanh, có mỹ nhân đã dùng và giảm 3kg trong 1 tuần
--  LAJČAK U POSETI BEOGRADU I PRIŠTINI! Stano: Ovo je deo kontinuiranog kontakta i sa partnerima kako bi im pomogao na putu ka EU!
--  Trabzon Hurması için bir araya geldiler
--  新潟県発注の工事めぐる官製談合事件 元農村整備部長らに有罪判決「県民に迷惑・心配かけた」
+-  “梅の花”が咲き始める…富山市・内山邸「今年は少し早いかもしれない」
+-  Á hậu Bùi Khánh Linh tìm người mẫu cho show thời trang "Nguyện ước chốn thiêng"
+-  月探査機SLIM、狙い通りの復活劇 犬の名の岩石調べて何わかる？
+-  Lotto Baden-Württemberg: Lottospieler aus dem Südwesten räumt Millionengewinn ab
+-  Duel : Duel : LG65C3 vs Samsung TQ65S90C
+-  Повітряні сили розповіли, що найцінніше в перехоплених та вцілілих "Шахедах"
+-  Marcelo D2 e Fatoumata Diawara no regresso do festival Mimo a Amarante
+-  "Vēlos iegūt savu vislabāko ķermeni," - Liene Ušakova šovā veiks tauku atsūkšanu
+-  قتلى وجرحى جراء الغارات الإسرائيلية المتواصلة على شمال وجنوب قطاع غزة
+-  Bušite foliju prstima i vratite se ponovno u bezbrižno djetinjstvo
