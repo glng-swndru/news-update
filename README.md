@@ -1,11 +1,11 @@
 # Latest News
--  Vitória de Trump é um risco: "Se Putin der o próximo passo é no território da UE e da NATO"
--  Storm erupts over England hypocrisy
--  Zanger Morrissey wordt behandeld voor fysieke uitputting
--  Chuyển nhượng MU 29/1: Ten Hag nói về tương lai, De Gea trở lại?
--  Adalet Bakanı Tunç: "İstanbul'da kilise saldırısı olayının zanlıları gözaltına alındı"
--  Sheila Ford, el motor de los Detroit Lions
--  СМИ: при нападении на границе Судана погибли более 50 человек
--  ثانوية النسيم.. أحداث مثيرة في أولى الحلقات
--  Jammu News: रूपनगर में बिजली के मीटरों में लगी आग, सप्लाई ठप
--  Valledupar y el vallenato, en manos del narcotráfico
+-  Αυστηρό μήνυμα Γκουτέρες: Θα λογοδοτήσει όποιος εργαζόμενος του ΟΗΕ έχει σχέση με τρομοκρατικές ενέργειες
+-  Baraja: "Es muy bonito decir 'vamos a pelear por Europa', pero hay que demostrarlo; nos han dado un sopapo"
+-  Two teen boys stabbed to death 'by mob' in Bristol named
+-  ПСЖ упустил перевес в два мяча в игре с Брестом и потерял важные очки
+-  Soldados dos EUA morrem em ataque a drone na fronteira síria
+-  Inara Rusli Tuntut Royalti Lagu Virgoun, Eva Manurung Beri Sindiran
+-  Yola çıkanlar aman dikkat! Kuzey Marmara Otoyolu kara teslim
+-  6 persons, accused of commercial fraud, face prosecution
+-  VÍDEOS: Samuel Lino marca na vitória do Atlético Madrid sobre Valência
+-  Recent storms dampen Hawaii's drought forecast
