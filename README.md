@@ -1,11 +1,11 @@
 # Latest News
--  Pērn Latvijas četru lielāko banku klientiem izkrāpti 12,662 miljoni eiro
--  America is committed to 50 allies. What if they all come knocking at once?
--  Khám phá camera hành trình 70mai A200 ghi hình trước sau giá rẻ
--  শাবনূরের এসব দিনরাত্রি
--  بالأرقام.. هل سينجح موسيماني مع أبها؟
--  Shareholders’ proposals to the Annual General Meeting for the number of Marimekko’s Board members, the composition of the Board and its remuneration
--  Không gian Tết cổ truyền nơi 'đại dương thu nhỏ'
--  重体の76歳男性が死亡 猪苗代町の国道49号線を横断中 乗用車にはねられる＜福島県＞
--  L’immagine dell’abbandono al centro della mostra d'arte di Bologna: l’uomo come paradigma dell’esistenza
--  History: Dr Felice Cutajar – ‘Alexander Ball’s Maltese face’
+-  BMW코리아, ‘재벌X형사’에 XM·7시리즈 등 고급차 지원
+-  Hoe Mathieu van der Poel rekent op supercompensatie om zondag top te zijn in Tabor: “Nu gaat de riem eraf”
+-  عصبانیت شهربانو منصوریان از تماس یک اداره | من با این همه مدال جهانی و آسیایی، بلاگرم؟ | چه کسی اسم منو رد کرده! | ببینید
+-  EN DIRECT - Colère des agriculteurs : opération escargot des taxis sur la rocade de Chartres, ce lundi 29 janvier
+-  QatarEnergy, US Excelerate Energy sign agreement to supply LNG to Bangladesh
+-  Milli okçu Vedat Erbay dünya kupasında 4. kez zirveye çıktı
+-  Košarkaš Toronta će dugo pamtiti Bogdanovićev potez VIDEO
+-  DSO Başkanı Kasapoğlu: "Kızıldeniz ve Süveyş Kanalı krizi Türkiye'nin lehine dönebilir"
+-  Şırnak'ın bazı ilçeleri kar yağışı etkisi altında
+-  إطلاق الرصد الآلي على مخالفات الشاحنات والحافلات في أبريل المقبل
