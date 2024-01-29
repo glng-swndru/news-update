@@ -1,11 +1,11 @@
 # Latest News
--  Αυστηρό μήνυμα Γκουτέρες: Θα λογοδοτήσει όποιος εργαζόμενος του ΟΗΕ έχει σχέση με τρομοκρατικές ενέργειες
--  Baraja: "Es muy bonito decir 'vamos a pelear por Europa', pero hay que demostrarlo; nos han dado un sopapo"
--  Two teen boys stabbed to death 'by mob' in Bristol named
--  ПСЖ упустил перевес в два мяча в игре с Брестом и потерял важные очки
--  Soldados dos EUA morrem em ataque a drone na fronteira síria
--  Inara Rusli Tuntut Royalti Lagu Virgoun, Eva Manurung Beri Sindiran
--  Yola çıkanlar aman dikkat! Kuzey Marmara Otoyolu kara teslim
--  6 persons, accused of commercial fraud, face prosecution
--  VÍDEOS: Samuel Lino marca na vitória do Atlético Madrid sobre Valência
--  Recent storms dampen Hawaii's drought forecast
+-  홍준표 "검사가 정치 맛 들이면 세상 어지러워져"…한동훈 겨냥?
+-  Autofahrer aufgepasst! Hier wird diese Woche in Bremerhaven geblitzt
+-  2 dead, 2 Palm Bay officers injured in shooting, police say
+-  Mardin'de otomobil, şarampole devrildi: 4 yaralı
+-  Roest rijdt stokoud Nederlands record uit de boeken en pakt goud op 5000 meter, Nuis naar ziekenhuis
+-  日本株は小反発か、米景気底堅く投資家心理が改善－商社などに買い - ブルームバーグ
+-  Afellay raakt in felle discussie: ‘We kunnen wel de moraalridder uithangen...’
+-  러시아 대사관저 초소로 돌진한 SUV…경찰관 ‘중상’
+-  Roest rijdt stokoud Nederlands record uit de boeken en pakt goud op 5.000 meter, Nuis naar ziekenhuis
+-  Roest rijdt stokoud Nederlands record uit de boeken en pakt goud op 5.000 meter, Nuis naar ziekenhuis
