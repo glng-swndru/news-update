@@ -1,11 +1,11 @@
 # Latest News
--  Así quedó el ojo de Alejandro Mayorga tras codazo de Richard Sánchez en el Necaxa vs América
--  Córdoba cierra 2023 con un récord de trabajadores extranjeros afiliados a la Seguridad Social
--  5 dự đoán về AI năm 2024
--  واریز 2 میلیون 208 هزار تومان بحساب سهام عدالتی ها | دستور رئیسی برای پرداخت سود سهام عدالت | واریز مرحله دوم سود سهام عدالت اسفند با این مبالغ
--  Reformy, nebo smrt. Jednotný unijní trh se musí změnit, jinak bude mrtvý
--  Държавата съди държавата. Язовирът чака ремонт
--  Allemagne: l'extrême droite essuie un revers électoral après des mobilisations inédites contre son programme
--  X'te Korkutan Tuzak! Banka Hesabınız Bir Anda Boşalabilir
--  Девятиклассник распространял листовки с угрозами в Астане
--  Humour et boulevard au programme de la semaine culturelle d'Eure-et-Loir
+-  Той вече е лидер в ПАОК - Десподов с два гола, качи тима си на върха в Гърция - Труд
+-  Jedne će namiriti, druge zakinuti, a onda će sustav plaća opet na popravni
+-  Monday's Primeira Liga predictions including Estrela Amadora vs. Benfica
+-  Peut-on vraiment déshériter ses enfants? Une avocate spécialisée en droit des successions nous répond
+-  USD 39.19 billion Growth Opportunity in Alternative Data Market from 2023 to 2028, 50.29% YOY Growth Expected in 2024 - Technavio
+-  Seçime iki ay kala iki parti yükselişe geçti. Canlı yayında oy oranlarını açıkladı
+-  FDP-Europaparteitag: Interview mit Spitzenkandidatin Strack-Zimmermann
+-  İsraildə dünyanı şoka salan sorğu: Əhalinin 90 faizi...
+-  Cricket-Gabba, Hyderabad thrillers the perfect advertisement for test cricket
+-  Biden za krvavi napad na američke vojnike okrivio i Iran, oni mu odgovorili: 'Nemamo nikakve veze s tim'
