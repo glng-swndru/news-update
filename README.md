@@ -1,11 +1,11 @@
 # Latest News
--  Той вече е лидер в ПАОК - Десподов с два гола, качи тима си на върха в Гърция - Труд
--  Jedne će namiriti, druge zakinuti, a onda će sustav plaća opet na popravni
--  Monday's Primeira Liga predictions including Estrela Amadora vs. Benfica
--  Peut-on vraiment déshériter ses enfants? Une avocate spécialisée en droit des successions nous répond
--  USD 39.19 billion Growth Opportunity in Alternative Data Market from 2023 to 2028, 50.29% YOY Growth Expected in 2024 - Technavio
--  Seçime iki ay kala iki parti yükselişe geçti. Canlı yayında oy oranlarını açıkladı
--  FDP-Europaparteitag: Interview mit Spitzenkandidatin Strack-Zimmermann
--  İsraildə dünyanı şoka salan sorğu: Əhalinin 90 faizi...
--  Cricket-Gabba, Hyderabad thrillers the perfect advertisement for test cricket
--  Biden za krvavi napad na američke vojnike okrivio i Iran, oni mu odgovorili: 'Nemamo nikakve veze s tim'
+-  КХЛ. «Металлург» сыграет с «Амуром», «Салават» против «Адмирала», СКА примет «Локомотив», «Спартак» – «Торпедо»
+-  Vers un blocage de Paris par les agriculteurs, les taxis en colère... L'actu de ce lundi
+-  To będzie następca Lewandowskiego? Ekspresowo zbliża się do wyczynów ojca
+-  Гърция е крачка напред към F-35
+-  НХЛ. Большой кризис Лос-Анджелеса, победы Сиэттла и Сент-Луиса
+-  नीतीश कुमार की नई कैबिनेट के इस सिपाहसलार का JNU से है कनेक्शनः जानिए कौन हैं सुमित सिंह जिन्हें बनाया गया मंत्री
+-  再續「前猿」！林智勝談郭嚴文一壘卡位戰 若有陳禹勳戰力提升
+-  Meteoroloji uyardı: Yoğun kar yağışı ve fırtına geliyor!
+-  Χειροπέδες και σε 41χρονο για τις κλοπές με λεία 200 χιλιάδων στη Λεμεσό
+-  Nakon poraza u derbiju, Hajduk objavio ohrabrujuću poruku: ‘Što je teži uspon...‘
