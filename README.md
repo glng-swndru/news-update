@@ -1,11 +1,11 @@
 # Latest News
--  Ovaj Severinin video pogledan je skoro 3 milijuna puta: Jer što me nije ubilo, neće me ni ubiti
--  FOTO Na Rivi u šetnji i Željko Kerum sa suprugom i djecom
--  Fatih Portakal: İmamoğlu her cuma namazına giden adamdı
--  İngiltere Yemen'de İHA düşürdü
--  Đi mua cây cảnh chơi Tết, chồng gục ngã khi thấy vợ tay trong tay người đàn ông lớn tuổi
--  Съотборник на Игор Тиаго преминава във Висшата лига
--  Sensationelles Comeback: Sinner gewinnt erstmals die Australian Open
--  Jannik Sinner velikim preokretom osvojio Australian Open: Bio je na rubu poraza, a onda - ludnica!
--  明るさと哀愁の音色響く 札幌でマンドリン四重奏演奏会
--  "الكاف" يكشف هوية حكم مباراة المنتخب المغربي أمام جنوب إفريقيا
+-  Bắt 7 thanh niên hack tài khoản Facebook, chiếm đoạt 8 tỷ đồng
+-  Politique. Antisémitisme : Yaël Braun-Pivet confie avoir déposé 23 plaintes
+-  Politique. Antisémitisme : Yaël Braun-Pivet confie avoir déposé 23 plaintes
+-  Politique. Antisémitisme : Yaël Braun-Pivet confie avoir déposé 23 plaintes
+-  Τραγωδία στον Πειραιά: Νεκρός 18χρονος που κατανάλωσε μεγάλη ποσότητα αλκοόλ σε νυχτερινό μαγαζί
+-  एक्सप्रेस वे पर डिवाइडर से टकराया ट्रक, किसी ने हटाया भी नही… सुबह उसी से टकराई कार, 2 की मौत
+-  Socceroos set for quarter-final showdown
+-  “Għax Robert Abela dgħajjef, qed ibati l-poplu Għawdxi u Malti kollu” – Bernard Grech
+-  Bà mẹ TP.HCM liệt kê tiền học 1 tháng của con, phụ huynh khác than: Công nhân làm gì có tiền cho con học?
+-  «Лилль» вдесятером сыграл вничью с «Монпелье»
