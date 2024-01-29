@@ -1,11 +1,11 @@
 # Latest News
--  ЛНЗ підписав бразильського нападника
--  VIDEO Navijači igrače Hajduka ispratili aplauzom
--  Velika ljubav Daria Stojaka prema Hajduku
--  Трус със сила 3,6 по Рихтер край Балчик
--  Who is Tom Hartley and what is his net worth?
--  “No caer en la trampa de la fisura interna”: Monreal llama a los morenistas a cerrar filas con AMLO y Sheinbaum
--  Ramzy Bedia payé 10 fois plus que d'autres ? La liste impressionnante de ses achats de luxe, un "concours" avec Jamel Debbouze
--  Отменен гол шедьовър остави дербито Лацио-Наполи без победител (ВИДЕО)
--  V napadu z dronom v Jordaniji ubiti trije ameriški vojaki
--  Tihei: Hui an opportunity to kōrero and determine priorities
+-  Prepoznajete li djevojčicu s fotografije? Danas je jedna od najvećih hrvatskih zvijezda!
+-  Ramil ilk kez oynadı
+-  شادی سربازان اسرائیلی هنگام فرار از غزه | ببینید
+-  "SELMA BAJRAMI JE PRVA KOJA MI UVEK ČESTITA BOŽIĆ I USKRS" Dejan Milićević kod Jovane Jeremić o pevačici i zabrani da uđe u Srbiju: "ONA NAS OBOŽAVA"
+-  Turquia mantém apoio à agência da ONU de assistência aos refugiados palestinianos
+-  Kocaeli Süper Lig aşkına
+-  Stávka německých drah končí, od pondělí začnou jezdit vlaky z Česka do Berlína a Mnichova
+-  Bei Drohnenangriff in Jordanien: Drei US-Soldaten getötet
+-  Youth Olympic Games: Montag wird’s ernst fürBrattendorfer Olympionikin
+-  Еврофермери: Ако умрем, вие ще гладувате
