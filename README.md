@@ -1,11 +1,11 @@
 # Latest News
--  Her trener Jarle på å komme seg opp etter fall
--  ¿Quieres ser viral en TikTok? Estos son los mejores horarios para publicar según la Inteligencia Artificial
--  ‘Distressing’: NT’s wait times for non-urgent surgery revealed
--  Княжество Монако - банкоматът на Албер II - Труд
--  Lions vs. 49ers player props, picks: NFC Championship game best bets
--  Zrobili robota rodem z Terminatora. Zmienia stan ze stałego w ciekły i z powrotem
--  Ein Gmünder mischt bei Sahra Wagenknecht vorne mit
--  Paralympian Lauren Parker launches big year with home-town race in Stockton
--  McDonald’s inauguró su local 34 en Ecuador; está en el Mall El Fortín, en Guayaquil
--  Lions vs. 49ers predictions: Odds, game and player props for Sunday’s NFC Championship
+-  Usuários da cracolândia saqueiam loja e causam prejuízo de R$ 300 mil a comerciante
+-  Receita Federal nomeia 16 auditores, mas Sindifisco aponta ganho de apenas 8
+-  Áttörés a kínai kutatók új hőpajzsa
+-  Koxie maman à 46 ans, elle annonce la naissance de son 2e enfant après un "long parcours"
+-  TRAGEDIJA NA TAJLANDU Mladić poginuo nakon skoka s 29. kata, padobran mu se nije otvorio
+-  Paulovič sbíral body, řídil výhru, pak se zdrbal: Vím, že jsem nehrál dobře
+-  Incendio en ladera norte del Cerro Pan de Azúcar; Bomberos trabajan en el lugar
+-  "Ich bin ein Star", Tag 10: Es liegt was in der Luft: Im Dschungel entstehen Gefühle - und Anya Elsner muss das Camp verlassen
+-  日本製鉄・ブリヂストン・東レの年収、恵まれた世代は？日鉄・ブリヂストンは氷河期が劣位【5世代20年間の推移を初試算】 - どの世代が損をしたか？氷河期部長＆課長の憂鬱 出世・給料・役職定年
+-  La Municipalidad erradicó un minibasural en el Parque Aguirre
