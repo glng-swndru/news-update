@@ -1,11 +1,11 @@
 # Latest News
--  WSL round-up: Sensational Lauren James, Jill Roord honoured and Vivianne Miedema is back
--  Forradalmi fejlesztések fognak jönni az iOS 18-ban az iPhone-okra
--  La furia apenas ha comenzado: Venezuela en peligro
--  В Гонконге подали заявку на запуск спотового биткоин-ETF
--  Love Island's Shaughna hints at romantic reunion with ex Billy and having another baby
--  Възстановяват външната облицовка на пирамидата на Микерин в Гиза
--  「頭痛薬なしで生活できない」更年期障害で退職検討も 企業は対策
--  Nissan presenta el Ariya Nismo en Japón
--  Nearshoring en México: oportunidad para el empleo de las mujeres
--  Belsőnézetes dungeon crawler érkezik Dungeonborne címmel
+-  Bağışıklık seviyesini arttıran şalgam, gribe birebir
+-  Red Bull Cliff Diving: Romania’s Constantin Popovici crowned men’s champion
+-  Netflix, Apple Vision Pro için neden uygulama geliştirmediğini açıkladı
+-  Sri Lankan diplomats in talks with Somali authorities to ascertain whereabouts of vessel, six crew members suspected of being abducted by pirates
+-  ASEAN外相会議にミャンマー代表が出席 苦境続き、歩み寄りか
+-  Φαίη Σκορδά: Πέθανε ο πατέρας της
+-  민주 공관위 “소수정당 ‘권역별’ 비례제 타결돼야”
+-  Missão Continente vence prémio internacional na área da responsabilidade social
+-  El 40% de magistrados prorrogados fueron funcionarios públicos en la era del MAS
+-  Jedenáctiletý český akordeonista vyhrává skoro všechny soutěže a koncertuje s orchestry
