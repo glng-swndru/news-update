@@ -1,11 +1,11 @@
 # Latest News
--  Watan gününi goraýjylaryň hormatyna, harby we ýörite derejeleri, şeýle hem synp derejelerini sylaglamak we bellemek
--  Εθνικός – Άρης 2-6: Δεύτερη θέση με εξάρα και θελκτικό ποδόσφαιρο
--  Gewiese se vrátil do Vítkovic. Loupež za bílého dne, pochvaloval si výhru
--  Медицинската бележка за учениците ще отпадне
--  В честь Дня защитников Отечества награждения и присвоения воинских и специальных званий, а также классных чинов
--  Lazio-Napoli 0-0, il Toro recupera due punti ad entrambe
--  Nişantaşı'nda yol kesip deve gezdirdiler. Yok artık deve
--  British skydiver dies in 29-storey fall as parachute fails in Thailand
--  Франція щомісяця постачатиме ЗСУ артснаряди
--  Atenção Benfica: David Costa mostra como se marca ao Toulouse
+-  ASX to rise; Woolies whacked in NZ
+-  Morre mãe de Gisele Bündchen, Vânia Maria Nonnenmacher Bündchen, aos 75 anos
+-  Dağdan kopan kaya parçası seyir halindeki araca çarptı! Camı tuz buz ederek kıran kaya sürücüye çarptı!
+-  Morre mãe de Gisele Bündchen, Vânia Maria Nonnenmacher Bündchen, aos 75 anos
+-  Coppa d'Africa, la Guinea vince 1-0 contro la Guinea Equatoriale e vola ai quarti
+-  Xavi terá “comprometimento máximo” até o fim da temporada, garante presidente do Barça
+-  Ukraine-Blog: Massiver Korruptionsfall bei Waffenbeschaffung
+-  Des difficultés de circulation à prévoir ce lundi 29 janvier dès 9 heures à Chartres
+-  Morre mãe de Gisele Bündchen, Vânia Maria Nonnenmacher Bündchen, aos 75 anos
+-  Australia top Group C with win over Sri Lanka
