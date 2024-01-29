@@ -1,11 +1,11 @@
 # Latest News
--  Румен Радев: Компенсации за цените на тока за домакинствата ще има поне до 2026 г.
--  Killers, fraudster, cannabis farmers and burglar jailed
--  Elinde altını olanlar dikkat! 2 gün sonra... 29 ocak altın fiyatları
--  In IJmuiden kijken ze niet op een bommetje meer of minder: "Het is ver van m’n bed"
--  Bejött a kis lépések taktikája
--  African presidents arrive in Rome for Italy summit
--  A foundation for stability
--  Lewat Program Pos Bloc, PosIND Hadirkan Ruang Kreatif bagi Masyarakat
--  When corruption is rewarded
--  Нефть дорожает из-за новостей с Ближнего Востока
+-  Así quedó el ojo de Alejandro Mayorga tras codazo de Richard Sánchez en el Necaxa vs América
+-  Córdoba cierra 2023 con un récord de trabajadores extranjeros afiliados a la Seguridad Social
+-  5 dự đoán về AI năm 2024
+-  واریز 2 میلیون 208 هزار تومان بحساب سهام عدالتی ها | دستور رئیسی برای پرداخت سود سهام عدالت | واریز مرحله دوم سود سهام عدالت اسفند با این مبالغ
+-  Reformy, nebo smrt. Jednotný unijní trh se musí změnit, jinak bude mrtvý
+-  Държавата съди държавата. Язовирът чака ремонт
+-  Allemagne: l'extrême droite essuie un revers électoral après des mobilisations inédites contre son programme
+-  X'te Korkutan Tuzak! Banka Hesabınız Bir Anda Boşalabilir
+-  Девятиклассник распространял листовки с угрозами в Астане
+-  Humour et boulevard au programme de la semaine culturelle d'Eure-et-Loir
