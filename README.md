@@ -1,11 +1,11 @@
 # Latest News
--  BMW코리아, ‘재벌X형사’에 XM·7시리즈 등 고급차 지원
--  Hoe Mathieu van der Poel rekent op supercompensatie om zondag top te zijn in Tabor: “Nu gaat de riem eraf”
--  عصبانیت شهربانو منصوریان از تماس یک اداره | من با این همه مدال جهانی و آسیایی، بلاگرم؟ | چه کسی اسم منو رد کرده! | ببینید
--  EN DIRECT - Colère des agriculteurs : opération escargot des taxis sur la rocade de Chartres, ce lundi 29 janvier
--  QatarEnergy, US Excelerate Energy sign agreement to supply LNG to Bangladesh
--  Milli okçu Vedat Erbay dünya kupasında 4. kez zirveye çıktı
--  Košarkaš Toronta će dugo pamtiti Bogdanovićev potez VIDEO
--  DSO Başkanı Kasapoğlu: "Kızıldeniz ve Süveyş Kanalı krizi Türkiye'nin lehine dönebilir"
--  Şırnak'ın bazı ilçeleri kar yağışı etkisi altında
--  إطلاق الرصد الآلي على مخالفات الشاحنات والحافلات في أبريل المقبل
+-  İstanbul'da gökkuşağı sürprizi
+-  اختصاصی تسنیم|نمایندگان فعلی و شاخص ادوار در بین تاییدصلاحیت شده های جدید نیستند/ رقابت برای هر کرسی مجلس به 45 نامزد رسید
+-  Urgestein lässt Nachtleben am Tegernsee hinter sich
+-  رکورد فیلم تایتانیک شکسته می‌شود؟
+-  "Au vu de l'émoi suscité..." : Compagne d'un conseiller de Gabriel Attal, la cheffe du service politique du "Monde" quitte ses fonctions
+-  Embajador: Resultados de AMM Retreat prometen un año de cooperación dinámica y práctica
+-  相次ぐ詐欺、留宗でも 旭川財務事務所、事件受け増毛で講演会 手口や対策紹介
+-  Već je potpisao za novi klub, ali u nedjelju se došao oprostiti od svoje Seville
+-  Правительство поддержало проект закона о поддержке вдов бойцов СВО
+-  O post šéfa Kremlu se zatím utkají čtyři lidé. Nově i Putin
