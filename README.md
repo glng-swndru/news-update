@@ -1,11 +1,11 @@
 # Latest News
--  Tri američka vojnika ubijena u napadu dronom u Jordanu
--  Siddharth Kara: "Los niños del Congo mueren para que nuestros hijos puedan aprender con móviles y ordenadores"
--  Ngọc Anh 3A tiết lộ chồng Tây bị tai biến sau 1 năm làm đám cưới
--  A do ta vizitojë Talat Xhaferi si kryeministër Shqipërinë dhe Kosovën?
--  La commune de La Loupe vient de finaliser son accession au dispositif “Bourgs-Centres”
--  Krvavi napad na američku bazu: Ubijena tri vojnika, 25 ih je ranjeno
--  Ceny Brezna a primátora si prevzali piati jednotlivci a tri kolektívy
--  Ukrajinci postaju nemoćni, nemaju dovoljno streljiva: "Neprijatelj je aktivan u svim smjerovima"
--  Hochwasser: Eine Milliarde Liter Wasser gepumpt
--  Fabiana Justus mostra vídeo do dia que recebeu diagnóstico de leucemia
+-  Тръмп заплашва: Има 100 процента шанс за терористична атака в САЩ заради нелегалните имигранти (ВИДЕО) - Труд
+-  Villa leggur fram þriðja tilboðið í Rogers
+-  Відомий артист балету, який мріяв про Росію, виступив у Києві: "Повний треш"
+-  Vesić: Ove godine počinje gradnja pruge od Zemun polje do budućeg Nacionalnog stadiona
+-  SJAJNE VESTI ZA NAVIJAČE ZVEZDE UOČI DERBIJA: Vratio se Miloš Teodosić!
+-  ”Suomen kaikkien aikojen aitajuoksulupaus” kumautti tiskiin taas uuden SE-ajan
+-  الصين تحاول اللعب على الحبلين في الشرق الأوسط
+-  SEVERINA IZAŠLA NA NASTUP SVA UPLAKANA PA POKAZALA SREDNJI PRST! Čitava nacija stala uz nju: Seve uz tebe su sve majke ovog sveta
+-  أبرزها تعليم الأطفال الرحمة.. مزايا تربية القطط في المنزل
+-  Conmoción: una embarazada murió luego de ser atropellada por un auto cuando intentaba cruzar la ruta
