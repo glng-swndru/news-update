@@ -1,11 +1,11 @@
 # Latest News
--  UMRO MILOŠ STOISAVLJEVIĆ CAJGER Basista "Zane" i "Generacije 5" preminuo posle teške bolesti
--  More Palestinians displaced amid offensive in south Gaza
--  MSB paylaştı! Kahraman askerlerimiz görevlerinin başında..
--  Wielka zmiana w TVP. Tym razem serduszka WOŚP nie były ocenzurowane. Wręcz przeciwnie
--  국민의힘 “한동훈, 문재인 비공개 방문 주장? 사실무근”
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 29 януари /валутен калкулатор/
--  Thylane Blondeau : Son fiancé et son père partagent un point commun, rares clichés avec les 2 hommes de sa vie
--  Livaja je doživio ozbiljnu ozljedu u derbiju. Poznato koliko mora pauzirati, prognoze nisu dobre za Hajduk
--  "이기제 복귀 의지 강하다, 김진수는 풀타임 가능" 클린스만호, 풀백 고민 해소할까
--  Partidos dominicanos intensifican sus campañas de cara a comicios municipales de febrero
+-  Vitória de Trump é um risco: "Se Putin der o próximo passo é no território da UE e da NATO"
+-  Storm erupts over England hypocrisy
+-  Zanger Morrissey wordt behandeld voor fysieke uitputting
+-  Chuyển nhượng MU 29/1: Ten Hag nói về tương lai, De Gea trở lại?
+-  Adalet Bakanı Tunç: "İstanbul'da kilise saldırısı olayının zanlıları gözaltına alındı"
+-  Sheila Ford, el motor de los Detroit Lions
+-  СМИ: при нападении на границе Судана погибли более 50 человек
+-  ثانوية النسيم.. أحداث مثيرة في أولى الحلقات
+-  Jammu News: रूपनगर में बिजली के मीटरों में लगी आग, सप्लाई ठप
+-  Valledupar y el vallenato, en manos del narcotráfico
