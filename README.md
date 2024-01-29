@@ -1,11 +1,11 @@
 # Latest News
--  Usuários da cracolândia saqueiam loja e causam prejuízo de R$ 300 mil a comerciante
--  Receita Federal nomeia 16 auditores, mas Sindifisco aponta ganho de apenas 8
--  Áttörés a kínai kutatók új hőpajzsa
--  Koxie maman à 46 ans, elle annonce la naissance de son 2e enfant après un "long parcours"
--  TRAGEDIJA NA TAJLANDU Mladić poginuo nakon skoka s 29. kata, padobran mu se nije otvorio
--  Paulovič sbíral body, řídil výhru, pak se zdrbal: Vím, že jsem nehrál dobře
--  Incendio en ladera norte del Cerro Pan de Azúcar; Bomberos trabajan en el lugar
--  "Ich bin ein Star", Tag 10: Es liegt was in der Luft: Im Dschungel entstehen Gefühle - und Anya Elsner muss das Camp verlassen
--  日本製鉄・ブリヂストン・東レの年収、恵まれた世代は？日鉄・ブリヂストンは氷河期が劣位【5世代20年間の推移を初試算】 - どの世代が損をしたか？氷河期部長＆課長の憂鬱 出世・給料・役職定年
--  La Municipalidad erradicó un minibasural en el Parque Aguirre
+-  これぞデイトナ24時間。ペンスキーの7号車ポルシェ963が2秒差でキャデラックとの熱戦を制す【決勝レポート】 - オートスポーツweb
+-  Kılıçdaroğlu: Koltuk derdi olanın Allah belasını versin
+-  리사, 佛 자선콘서트 출연…마크롱 여사와 ‘팔짱’
+-  Blitz da lei seca em Mato Grosso tem 19 presos e 33 veículos apreendidos
+-  Bruno Fernandes: Ekki úrslitin sem við vildum
+-  Prazo para pagar IPVA com 15% de desconto termina na 4ª feira
+-  멕시코서 승객이 이륙 지연 비행기 비상문 열고 날개 위에서 시위
+-  Toni Viljanmaa: Haavisto ja Stubb mittelevät toisella kierroksella – näin turkulaistutkija povaa vaalien lopputulosta: "Hänellä on erittäin hyvät mahdollisuudet nousta presidentiksi"
+-  Mansur Yavaş: ''Ankara halkını zengin edeceğiz sözümüzü yerine getiriyoruz''
+-  Μεσανατολικό: Οι ΗΠΑ προειδοποιούν το Ιράν για αντίποινα μετά τον θάνατο 3 Αμερικανών στρατιωτών
