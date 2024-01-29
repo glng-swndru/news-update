@@ -1,11 +1,11 @@
 # Latest News
--  What is UNRWA, the aid provider in Gaza that Israel accuses of militant links?
--  LiveBlog SuperLiga: Universitatea Craiova vs FCSB Ora 20:00 – Oltenii pot ieși din lupta pentru titlu
--  Güzeltepe Kayak Merkezi kar yağışıyla sezonu açtı
--  Boavista-Portimonense, 1-4 (crónica)
--  Split: Hajduk - Rijeka 1:2
--  Végnapjait éli a színészlegenda: ágyhoz kötve, borzalmas állapotban van Alain Delon
--  Πέννυ Μπαλτατζή: H χιουμοριστική ανάρτηση με την 1,5 ετών κόρη της
--  Domen matiral tekmece, Timi si je oddahnil, ko je preletel zeleno črto
--  Internationales Breakdance-Battle im Trafo: «Unglaublich, was die Kids hier für eine Show geboten haben»
--  Three iPhone tricks to boost your battery life and save your storage space – including little-known ‘reduce motion’ hack
+-  ЛНЗ підписав бразильського нападника
+-  VIDEO Navijači igrače Hajduka ispratili aplauzom
+-  Velika ljubav Daria Stojaka prema Hajduku
+-  Трус със сила 3,6 по Рихтер край Балчик
+-  Who is Tom Hartley and what is his net worth?
+-  “No caer en la trampa de la fisura interna”: Monreal llama a los morenistas a cerrar filas con AMLO y Sheinbaum
+-  Ramzy Bedia payé 10 fois plus que d'autres ? La liste impressionnante de ses achats de luxe, un "concours" avec Jamel Debbouze
+-  Отменен гол шедьовър остави дербито Лацио-Наполи без победител (ВИДЕО)
+-  V napadu z dronom v Jordaniji ubiti trije ameriški vojaki
+-  Tihei: Hui an opportunity to kōrero and determine priorities
