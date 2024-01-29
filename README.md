@@ -1,11 +1,11 @@
 # Latest News
--  Tung förlust för Uppsala BoIS U på bortaplan mot Skirö
--  Ви для нього неважлива: ознаки, на які ви раніше не звертали уваги
--  Beşiktaş maç bitmeden Feyyaz Uçar'ı sahaya sürdü
--  Industria forestal: el 60% de la producción maderera se destina a la obra pública
--  Deutsche Skifahrer in Garmisch abgeschlagen
--  Grasberg: Frau fährt Pferd an – Tier muss eingeschläfert werden
--  Skiflug-WM: DSV-Quartett holt Bronze
--  Nagy frissítést kapnak a Pixelek, és a Pixel 8 új színben is elérhetővé válik
--  Holly Willoughby, Phillip Schofield departure sparks challenges for ITV management
--  LIVEBLOG STVV-GENK. Tumultueuze slotfase op Stayen: match stilgelegd nadat Genkse supporters vuurwerk gooien!
+-  Χιονίζει σε Εύβοια, Κρήτη, Πελοπόννησο αλλά και στα βόρεια προάστια της Αττικής - Πού απαιτούνται αλυσίδες
+-  F1 - Νόρις και WillNE ενώνουν τις δυνάμεις τους για να… ρίξουν το internet
+-  Visi Misi Ganjar-Mahfud Bikin Pengunjung Gen Z di Festival Pemilu Kagum
+-  (VIDEO) "KADA SE ZACOPAM NE VIDIM NIŠTA" Iako postoji ona rečenica da muškarci ne plaču Milan Marić otvoreno kaže: "Ja plačem"
+-  Los Nenes de la Casa se unen a Rub Amaya para lanzar su nuevo tema (+Video)
+-  Собкин — о причине поражения Медведева: «До финала он провел на корте на шесть часов больше, чем Янник»
+-  차은우, 뮤비에 올리비아 핫세 딸 아이슬리 출연 [연예뉴스 HOT]
+-  Ismail Zulfić u Splitu vizirao kartu za EP u Portugalu
+-  EXCLU - CAN 2024 - Algérie : Un ancien coach de Zidane «n’a plus la patience»
+-  Nach "Poor Things": Diesen Serien-Geheimtipp von 2023 mit Emma Stone müsst ihr unbedingt nachholen - auch wenn es weh tut!
