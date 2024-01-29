@@ -1,11 +1,11 @@
 # Latest News
--  Голям мач на Десподов върна ПАОК на върха в Гърция (Снимки)
--  "HVALA ČOVIĆU!" Evo zaštoi je Janis Sferopulos rešio da "prekine" konferenciju za štampu posle pobede Zvezde nad Partizanom
--  &quot;POGLEDAJTE KAKO LOPOVI ZAVRŠE&quot; Uhvatio ga dok mu obija kuću, izmlatio ga i vezao, a onda sve to snimio (VIDEO)
--  SUV 차량, 러시아 대사관저 초소 들이받아…경찰관 부상
--  Ето до какво водят финтовете на Мбапе (видео)
--  الميادين: 23 شهيداً بعد قصف إسرائيلي استهدف منزلاً يعود لعائلة المطوي غرب النصيرات وسط قطاع غزة
--  Pod Peco več kot 300 graditeljev snežnih skulptur
--  Alişan hastaneye kaldırıldı
--  Stavka zaposlenihna upravnih enotah
--  İsrail Gazze'yi vuruyor: 34 Filistinli daha öldü
+-  Columbus forward Patrik Laine enters the NHL/NHLPA player assistance program
+-  새앨범 예고 영상 ‘유튜브 차트 1위’…르세라핌 허윤진 ‘팬츠리스 룩’ 광풍
+-  Sterkur sigur SR á SA
+-  따뜻하거나 섬뜩하거나…유해진의 두 얼굴, 2월 극장 겨냥
+-  LIVE buitenlands voetbal | Memphis scoort voor Atlético Madrid tegen Sevilla, Malen en Maatsen winnen
+-  劇情成反諷 中股如今《繁花》落盡
+-  長榮機師不罷工了 春節照飛
+-  ‘도그데이즈’ 윤여정 “오스카 받고 주인공 제의多, 오히려 씁쓸했다”[인터뷰]
+-  本週汽油漲1角 柴油降2角
+-  Fiji 7s team second on the overall series standings
