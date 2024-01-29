@@ -1,11 +1,11 @@
 # Latest News
--  ED's Operation At Narco-Financial Trail Of Ali Asghar Shirazi's Drug Syndicate Unearths Money Laundering Network
--  중처법 전면 시행…정부, '산업안전 대진단' 착수
--  ビットコインが危機から何度も復活する理由 アメリカでビットコイン現物ETFの上場承認 | 投資 | 東洋経済オンライン
--  Biden says US will 'respond' after three American troops are killed in drone attack in Jordan
--  Giao tranh liên miên, quân đội Ukraine đứng trên bờ vực kiệt sức
--  Demir çelik sektörüne bu kötülüğü yapmayın
--  Cụ bà 83 tuổi vẫn lái Lamborghini, Porsche trong trường đua: Yêu xe thể thao từ năm 18 tuổi, sở hữu nhiều siêu xe đắt tiền
--  Ağabey Diyor Ki, Bılderberg Nedir? Hizmet Edenler Kimlerdir?
--  〈愛子さまが日赤に就職へ〉佳子さまの“パーフェクトスマイル”は現地で絶賛 「ほほ笑みのプリンセス」のペルー訪問
--  Health Tips : तजेलदार, डागरहित त्वचा हवीय? तुमच्या आहारात 'हे' महत्त्वाचे बदल करा
+-  TikTokやInstagramで性的画像を用いて脅迫する「セクストーション」が西アフリカの犯罪集団「Yahoo Boys」中心に行われている
+-  Diyarbakır'da hızını alamayıp kaldırıma çıkan otomobil, boşluğa düştü. 6 kişi yaralandı
+-  BEYOND LOCAL: The mental health challenges of elite youth athletes
+-  聚焦台灣 王毅與蘇利文討論美中敏感議題
+-  BBL gun’s big contract call for battlers
+-  Soccer-Vitoria's days as Egypt coach may be numbered after AFCON exit
+-  Chalmers slaps down bosses’ wage call
+-  Seitsemän ihmistä kuoli pienkoneen syöksyttyä maahan Brasiliassa
+-  Saddiq Bey’s last-second dunk gives Hawks 126-125 win over Raptors
+-  Saddiq Bey’s last-second dunk gives Hawks 126-125 win over Raptors
