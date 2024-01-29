@@ -1,11 +1,11 @@
 # Latest News
--  Χιονίζει σε Εύβοια, Κρήτη, Πελοπόννησο αλλά και στα βόρεια προάστια της Αττικής - Πού απαιτούνται αλυσίδες
--  F1 - Νόρις και WillNE ενώνουν τις δυνάμεις τους για να… ρίξουν το internet
--  Visi Misi Ganjar-Mahfud Bikin Pengunjung Gen Z di Festival Pemilu Kagum
--  (VIDEO) "KADA SE ZACOPAM NE VIDIM NIŠTA" Iako postoji ona rečenica da muškarci ne plaču Milan Marić otvoreno kaže: "Ja plačem"
--  Los Nenes de la Casa se unen a Rub Amaya para lanzar su nuevo tema (+Video)
--  Собкин — о причине поражения Медведева: «До финала он провел на корте на шесть часов больше, чем Янник»
--  차은우, 뮤비에 올리비아 핫세 딸 아이슬리 출연 [연예뉴스 HOT]
--  Ismail Zulfić u Splitu vizirao kartu za EP u Portugalu
--  EXCLU - CAN 2024 - Algérie : Un ancien coach de Zidane «n’a plus la patience»
--  Nach "Poor Things": Diesen Serien-Geheimtipp von 2023 mit Emma Stone müsst ihr unbedingt nachholen - auch wenn es weh tut!
+-  Patricia Benavides busca tachar declaración de Jaime Villanueva ante la JNJ: cómo avanza el proceso
+-  Anak Muda di Festival Pemilu Ramai Dukung Ganjar-Mahfud: Punya Kredibilitas Jelas
+-  Doubling of arson attacks on Russian recruitment offices suggests lack of confidence in Putin’s promise not to mobilze further
+-  Tusk wbił szpilę Kaczyńskiemu. „Ktoś zajął mnie naprawdę ważnymi sprawami”
+-  Tusk wbił szpilę Kaczyńskiemu. „Ktoś zajął mnie naprawdę ważnymi sprawami”
+-  Ligue 1 : Nantes accroche Reims, Strasbourg prend un point, Ayew s'offre un doublé !
+-  Terzo mandato per i governatori? "Neanche di un millimetro", la posizione di Meloni
+-  От подсчетов запасов углеводородов до буровых растворов. О разработках белорусских нефтяников
+-  VIDEO Pogledajte kako je Poljud pozdravio Josipa Brekala i Ivana Perišića!
+-  Tusk wbił szpilę Kaczyńskiemu. „Ktoś zajął mnie naprawdę ważnymi sprawami”
