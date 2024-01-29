@@ -1,11 +1,11 @@
 # Latest News
--  İstanbul'da gökkuşağı sürprizi
--  اختصاصی تسنیم|نمایندگان فعلی و شاخص ادوار در بین تاییدصلاحیت شده های جدید نیستند/ رقابت برای هر کرسی مجلس به 45 نامزد رسید
--  Urgestein lässt Nachtleben am Tegernsee hinter sich
--  رکورد فیلم تایتانیک شکسته می‌شود؟
--  "Au vu de l'émoi suscité..." : Compagne d'un conseiller de Gabriel Attal, la cheffe du service politique du "Monde" quitte ses fonctions
--  Embajador: Resultados de AMM Retreat prometen un año de cooperación dinámica y práctica
--  相次ぐ詐欺、留宗でも 旭川財務事務所、事件受け増毛で講演会 手口や対策紹介
--  Već je potpisao za novi klub, ali u nedjelju se došao oprostiti od svoje Seville
--  Правительство поддержало проект закона о поддержке вдов бойцов СВО
--  O post šéfa Kremlu se zatím utkají čtyři lidé. Nově i Putin
+-  Clash à la CAN 2024, ce joueur de l'OM calme tout le monde
+-  „Der talentierte Mr. Ripley“ von Patricia Highsmith als Serie auf Netflix ab April
+-  „Der talentierte Mr. Ripley“ von Patricia Highsmith als Serie auf Netflix ab April
+-  浪琴Conquest征服者系列推70週年紀念款！獨家雙圓盤動力儲存顯示驚喜回歸
+-  Επαρχιακό Δικαστήριο Λάρνακα: Aρνείται να εκδώσει συλληφθένττα Ρώσο στις ΗΠΑ
+-  Xavi, a melhor ideia sem contexto
+-  화장품 제조 빅2, 신공장 앞세워 ‘K뷰티 색조’ 뽐낸다
+-  "Bắc Đẩu" Trung Ruồi: Từng làm bốc vác, ship hàng với lương 2 triệu 7, phải đi vay lãi để sống
+-  Tak Katarzyna Sokołowska wspiera WOŚP z partnerem i synkiem: "Ważny dzień dla naszej rodziny" (FOTO)
+-  Bernardeschi Juve, niente ritorno ma l’esterno vuole l’Italia: ha scelto quel club
