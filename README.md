@@ -1,11 +1,11 @@
 # Latest News
--  England: Totes Baby auf Pub-Toilette gefunden
--  Thailand Masters Badminton 2024 Live Streaming: When And Where To Watch BWF Tour Super 300 Tournament On TV And Online
--  หุ้นวันนี้ปิดบวก 8.13 จุด แกว่งขาขึ้นตามตลาดหุ้นภูมิภาค คาดพรุ่งนี้ยังขยับกรอบขึ้น
--  Главные новости: ликвидация Evergrande
--  Dikkat! Hesabınıza gelen bu para yüzünden suçlu duruma düşebilirsiniz
--  "JUDO, PRESEŠĆE TI IZDAJA!" Sramni grafiti na ulicama prestonice zbog ŠOKANTNOG TRANSFERA fudbalera: Pogazio si sve naše ideale!
--  Generałowie NATO: Przygotujmy się na atak rakietowy Rosji na Europę
--  Fenerbahçe bir transferi daha resmen açıkladı! Krunic ve Bonucci'nin ardından bir imza daha...
--  "İstanbul'da raylı sistem 338,5 kilometreye çıkıyor"
--  Erman Toroğlu'ndan ilginç itiraf olay oldu: "Evde çıplak geziyorum"
+-  Revealed: The cities where workers earn the most in Spain’s Andalucia – and a scandalous gender pay gap
+-  Familienzeit: A$AP Rocky, Rihanna und Kids bei Fashion Week
+-  Waarom de wederopstanding van Red Bull geen inspiratie mag vormen voor Mercedes
+-  Gribal enfeksiyonlar emzirmeye engel değil!
+-  'It'll feel like a recession': Australia headed for weakest growth since 90s
+-  Két hét, és érkezik a 13. havi és a februári nyugdíj
+-  Airline competition ‘halves ticket prices’
+-  Infortunio Thiaw, il centrale brucia le tappe: ecco quando tornerà a disposizione di Pioli
+-  Печалбите на китайските индустриални предприятия отчитат ръст за пети пореден месец
+-  Studie - Theologen präsentieren diese Woche ihr neues Buch in Kilb
