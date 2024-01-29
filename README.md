@@ -1,11 +1,11 @@
 # Latest News
--  전나연 “父에 이유 모를 폭행→가출…남친도 폭력 성향” (고딩엄빠4)
--  وفيات الاثنين .. 29 / 1 / 2023
--  49ers-Chiefs: Super Bowl LVIII predictions, picks, odds - ESPN
--  [속보] 검찰, 프로야구 KIA 김종국 감독 구속영장 청구
--  4 صفقات ب15 مليون … ضربة معلم من الاتحاد!
--  Khi đến tuổi trung niên, con người trở nên nghiện tiết kiệm tiền, điều đó là tốt hay xấu?
--  [Infographic] 9 tuyến cao tốc 4 làn hạn chế có thể nâng tốc độ tối đa 90 km/h
--  「攻殻機動隊」公式Xが乗っ取り被害 不正アクセス受け
--  STVV伊藤涼太郎の芸術的FK弾に反響 意表突き「気持ち良すぎ」
--  【舟形町長選挙】30日告示・県外在住の男性立候補で現職と選挙戦へ 山形
+-  Hình ảnh hiếm gặp, đàn cá voi sát thủ tấn công cá voi xám khổng lồ
+-  Sankashti Chaturthi 2024: Sakat Chauth vrat katha, rituals and more!
+-  Demos könnten Einfluss auf AfD-Niederlage gehabt haben
+-  “เศรษฐา” ยัน ไม่มีใครบอกว่าไม่ต้องการเงินดิจิทัล ย้อนถามสำรวจทั่วถึงหรือไม่
+-  В постпредстве РФ заявили о кризисе ООН
+-  Skandalē par Maskavā izdoto “sarkanās Piebaltijas” grāmatu sēriju. Valsts drošības dienests uzsācis pārbaudi
+-  희토류 매장 2위 베트남…中 '자원 무기화' 대안으로 급부상
+-  검찰, KIA 김종국 감독·장정석 전 단장 구속영장…배임수재 혐의
+-  Wanita Indonesia maut, ditemui berlumuran darah tepi tangga
+-  AFC Asian Cup 2023: Tajikistan stuns UAE on penalties to move into quarterfinals
