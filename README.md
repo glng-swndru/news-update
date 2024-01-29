@@ -1,11 +1,11 @@
 # Latest News
--  つば九郎が契約更改 朗希イジる
--  つば九郎が契約更改 朗希イジる
--  IBM : Plafond de verre
--  El martirio de Xavi como entrenador del Barcelona
--  Robot chống ổ gà tự động đầu tiên trên thế giới
--  Football, Super Cup 2024: East Bengal win first title in 12 years
--  Какво да направите, ако раната не заздравява
--  Royal Mail service cuts ‘could threaten businesses’
--  Ecosocialist Bookshelf, January 2024
--  Xavi pasa la pelota a Laporta: así se gestó el adiós del entrenador del Barcelona
+-  Annesinin düğününde döktürdü! İddialı seçim
+-  SK바이오팜, 작년 4Q 영업이익 '흑자전환'… "흑자 기조 이어가겠다"
+-  Long wait for resumption of iron ore mine in Parbat
+-  WOR for Future“ und Bund Naturschutz positionieren sich mit Mahnwache
+-  Βραζιλία: 7 νεκροί στη συντριβή μικρού αεροσκάφους
+-  故이선균 주연 영화 ‘잠’, 프랑스 제라르메 국제 영화제 대상 수상
+-  নরম চুলের জন্য ডিমের সঙ্গে মেশান এই ৫ উপাদান
+-  Healthy swaps: 20 natural ingredients to replace salt and sugar in your meals for better health
+-  New Mexico tries to jump-start electric vehicle infrastructure ahead of new car rule
+-  האזינו לפודקאסט: מכבי תל אביב חייבת את אלעד מדמון ועדי יונה עכשיו
