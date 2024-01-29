@@ -1,11 +1,11 @@
 # Latest News
--  Başkan Uysal, galibiyet sevincine ortak oldu
--  “สส.เท้ง” ยันไม่รู้จัก “ศรีสุวรรณ-เจ๋ง ดอกจิก” บอก ความจริงมีแค่เรื่องเดียว
--  RED COMPARTIDA | Fuerza por México se inconforma
--  Klub od decembra nema rukovodstvo: Zakazana Skupština FK Sloboda
--  Meteoroloji “etkili yağış ve fırtına uyarısı” yaptı
--  Billionaire Chris Hohn Has 31% of His Portfolio Invested in 2 Iconic Stocks
--  Pleite bei Immobilien-Riese – Richterin ordnet Auflösung von Evergrande an
--  "QIŞ QRİPİ QAPIDA-yüksək hərarət, boğaz ağrısı, öskürək..."
--  Pleite bei Immobilien-Riese – Richterin ordnet Auflösung von Evergrande an
--  НБА: Безнадійний аутсайдер сенсаційно долає лідера
+-  Tuntud briti laulik sattus füüsilise kurnatuse tõttu voodiravile
+-  El PSOE descarta votar a favor de las enmiendas "vivas" de ERC y Junts a la amnistía este martes
+-  15 جهاز إنعاش قلبي لخدمة قاصدي المسجد الحرام
+-  Кои зодии са най-лошите гости - обръщат къщата с главата надолу!
+-  被災した伝統工芸「珠洲焼」の工房 “やめる訳には” 再建決意
+-  Universitas BSI Karawang Laksanakan Uji Kompetensi Programmer
+-  Món canh rau củ dễ làm là "thuốc" giảm cân nhanh, có mỹ nhân đã dùng và giảm 3kg trong 1 tuần
+-  LAJČAK U POSETI BEOGRADU I PRIŠTINI! Stano: Ovo je deo kontinuiranog kontakta i sa partnerima kako bi im pomogao na putu ka EU!
+-  Trabzon Hurması için bir araya geldiler
+-  新潟県発注の工事めぐる官製談合事件 元農村整備部長らに有罪判決「県民に迷惑・心配かけた」
