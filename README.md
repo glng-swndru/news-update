@@ -1,11 +1,11 @@
 # Latest News
--  Asrın İkameti
--  Cher Ndour emprestado pelo PSG ao Sp. Braga até final da época
--  Bir torba una gözyaşı
--  Husiler, ABD gemisini vurdu
--  I Played Overwatch Comp In An Airport Gamer Lounge - Kotaku Australia
--  Photo – Brazil Star Celebrates Inter Milan Serie A Win Vs Fiorentina: “Show Of Strength Of The Group!”
--  RTP volta a comprar novela à IURD
--  Pakistan ve İran'dan ortak çalışma vurgusu
--  Batı Trakya Türklerinin kimlik mücadelesi devam ediyor
--  Ne Diyeceğimizi Şaşırdık
+-  El Betis, ante tres días vitales
+-  یہ صحافت نہیں ایکٹیوزم ہے
+-  Virat Kohli to be back? India’s squad for last 3 Tests against England likely to be announced today
+-  [자막뉴스] "저는 연봉이 좀 높아서…" '꿈의 금리' 신청자 폭주
+-  Avelo Airlines Cheering On 49ers with Special Super Bowl Flights from Bay Area's Sonoma Airport to Vegas
+-  Mūzikas akadēmijai jau gadiem ir nepietiekams bāzes finansējums
+-  Đây là 10 cách tiết kiệm tiền hiệu quả mà tôi đã học được từ mẹ của mình
+-  Tổng thống Philippines gặp riêng tỷ phú Phạm Nhật Vượng, khẳng định tạo điều kiện thuận lợi để Vingroup đến đầu tư
+-  スノーピーク“148万円テント”初回生産は完売。開発者が語る「超高級テント」の狙い
+-  What experts think of Canada suspending funding to UNRWA over Oct. 7 allegations
