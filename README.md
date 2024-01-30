@@ -1,11 +1,11 @@
 # Latest News
--  Mort de Marion Game : Dans Scènes de ménages, une "prochaine étape" pour Huguette et Raymond
--  На кордоні України з Угорщиною відкриють новий прикордонний перехід
--  Haos u centru Beograda! Požar u Kosovskoj, dim kulja iz stana, vatrogasci kreću u akciju! Ulica zatvorena za saobraćaj (FOTO)
--  Marca de chocolates Pan vai a leilão nesta segunda-feira por R$ 27,7 milhões
--  Marca de chocolates Pan vai a leilão nesta segunda-feira por R$ 27,7 milhões
--  Man loses bid for 3rd trial in killing of woman at Edmonton hotel
--  PF apreendeu computador da Abin em endereço de Carlos Bolsonaro, diz jornalista
--  Antechinus: o marsupial australiano que chega a fazer 14h de sexo
--  Sven Wolter dankte den Stützpunktleitern
--  Drama u centru Beograda! Požar u Kosovskoj, dim kulja iz stana, vatrogasci kreću u akciju! Ulica zatvorena za saobraćaj
+-  Összefut a nyál a szánkban ettől a francia ételpornótól
+-  Vixy is the best early Pal in Palworld
+-  Scope Ratings : Le Maroc a des perspectives économiques plus favorables que l’Afrique du Sud
+-  La calle Aurora permanecerá cortada hasta el domingo
+-  Беглов пригласил Путина на церемонию начала строительства Большого Смоленского моста
+-  Aile'nin İbo'sunun yeni dizisi belli oldu! İşte o dizi
+-  CHP’den istifa eden Battal İlgezdi’nin iddialarına Özgür Özel’den yanıt
+-  Les lampadaires du pont Baudouin, à Huy, sont sauvés, ils seront conservés
+-  英語のアクセントは、5つの法則で9割、解決！ 暗記する必要はなし！【書籍オンライン編集部セレクション】 - 7時間で英語が突然ハッキリ聞こえて会話が続く本
+-  A világ legveszélyesebb helyszíne után a legmélyebbet is meghódította az oroszlányi búvár
