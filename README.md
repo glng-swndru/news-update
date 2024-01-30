@@ -1,11 +1,11 @@
 # Latest News
--  Ο Οδυσσέας Μιχαηλίδης για τις εξαγγελίες Προέδρου: Υπέρ οικονομικής ανεξαρτησίας Ελεγκτικής, όχι σε αλλαγή μοντέλου
--  광양서 구조된 대머리수리… 몸엔 美덴버동물원 인식표
--  H-1B Visa: Big Update! Now it will be easy for Indians to get American visa, this new service started
--  美덴버동물원 인식표 달린 대머리수리, 광양까지 날아와 구조
--  Khẩn trương khắc phục hậu quả vụ cháy khiến ba người tử vong
--  광양서 구조된 대머리수리… 몸엔 美덴버동물원 인식표
--  Biến cố hạ gục những “người xây giấc mơ”, tình yêu với bất động sản của người Trung Quốc gặp thách thức lớn
--  「十大精神健康新聞事件」首度票選出爐 新北國中生割頸案上榜
--  Son dakika! İzmir'de balıkçı teknesi battı: 3 ölü, 2 kayıp
--  L’écriture inclusive entre en fiction québécoise
+-  Cách vận hành của đường dây sản xuất sữa giả quy mô lớn
+-  機師年薪400萬↑ 他曝「高薪殘酷代價」嘆玻璃飯碗：難在天賦
+-  분신까지 이어진 택시기사 ‘월급’ 보장 안 한 21개 회사 적발
+-  Toàn cảnh vụ Rashford nổi loại ở MU, trước nguy cơ trở thành một Jadon Sancho mới
+-  Le poison de l’amour
+-  Веганство за начинаещи: Какво трябва да знаете
+-  4-те най-нахални и нетактични зодии
+-  Hamster Corporation Celebrates 400 Arcade Archives Titles On Switch
+-  鈴を背負って農業と牧羊業の繁栄願う スペイン北部でカーニバル
+-  На окраине Калуги сбили беспилотник
