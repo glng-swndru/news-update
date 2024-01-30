@@ -1,11 +1,11 @@
 # Latest News
--  "Mariés au premier regard" : Caroline a été la cible de coups de feu, son chien touché et vives inquiétudes pour son futur bébé
--  Chay sofre lesão no joelho e Guarani aguarda local desinchar para exames e diagnóstico preciso
--  Donovan Mitchell y Jared Allen le dan el triunfo a los Cavs sobre LAC
--  Chay sofre lesão no joelho e Guarani aguarda local desinchar para exames e diagnóstico preciso
--  V Termah Snovik brezplačno drsanje
--  8'inci 'Antarktika Bilim Seferi' başlıyor
--  سكاي نيوز : يجتمع بايدن الآن مع القيادة العسكرية العليا حيث سيعطي الأمر في وقت مبكر من هذه الليلة لتنفيذ الرد العسكري
--  It may be weeks, or longer, before displaced residents can reoccupy their apartments after collapse in Hawthorne, N.J.
--  Schauspieler erinnern an Nazi-Verbrecher auf Flucht
--  Božić je opet bio džoker: Cibona nije uspela da izađe na kraj sa Zadranima
+-  Rafila: Astăzi am avut un deces cauzat de rujeolă la o femeie de 24 de ani, nevaccinată / Nu suntem fanatici ai vaccinării, dar ne dăm seama de beneficii
+-  Hairball returns to Red River Valley Fair for a free concert this summer
+-  Clavadistas mexicanos inician su camino en el Campeonato Mundial de Doha
+-  "وطن من ذهب".. المسابقات يحولن أبيات الشعر إلى قطع فنية
+-  'People Who Aren't There Anymore' by Future Islands Review: A Singular Synth-Pop Sound
+-  2023’te online turizm harcamaları arttı
+-  Zaman sıçıraab gediyoru (2)
+-  Correção: Castrolanda vai instalar entreposto para grãos no Tocantins
+-  ركلات الترجيح تقود كوت ديفوار لدور الثمانية في أمم أفريقيا 2023 على حساب السنغال
+-  Capturan a joven tras disparar a un auto en Yuma
