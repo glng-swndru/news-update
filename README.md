@@ -1,11 +1,11 @@
 # Latest News
--  연두색 번호판이 부의 상징?…고가 법인車 판매 ‘급증’
--  C0urt urged to accept $14.4M B.C. iPhone class action settlement
--  Şehir eşkıyası taksicilere 18’er yıl hapis talebi
--  Colombian Band Morat Shines at Madison Square Garden
--  C0urt urged to accept $14.4M B.C. iPhone class action settlement
--  Blizzard Developer Grabs 10 Years of WoW Time Before Being Laid Off
--  C0urt urged to accept $14.4M B.C. iPhone class action settlement
--  1.500 agricultores em protesto cercam Paris
--  [상보] 뉴욕증시 3대 지수, 일제히 상승…S&P 또 사상 최고치
--  Hypera (HYPE3) aprova pagamento de JCP no valor de R$ 61,6 milhões
+-  "Mariés au premier regard" : Caroline a été la cible de coups de feu, son chien touché et vives inquiétudes pour son futur bébé
+-  Chay sofre lesão no joelho e Guarani aguarda local desinchar para exames e diagnóstico preciso
+-  Donovan Mitchell y Jared Allen le dan el triunfo a los Cavs sobre LAC
+-  Chay sofre lesão no joelho e Guarani aguarda local desinchar para exames e diagnóstico preciso
+-  V Termah Snovik brezplačno drsanje
+-  8'inci 'Antarktika Bilim Seferi' başlıyor
+-  سكاي نيوز : يجتمع بايدن الآن مع القيادة العسكرية العليا حيث سيعطي الأمر في وقت مبكر من هذه الليلة لتنفيذ الرد العسكري
+-  It may be weeks, or longer, before displaced residents can reoccupy their apartments after collapse in Hawthorne, N.J.
+-  Schauspieler erinnern an Nazi-Verbrecher auf Flucht
+-  Božić je opet bio džoker: Cibona nije uspela da izađe na kraj sa Zadranima
