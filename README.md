@@ -1,11 +1,11 @@
 # Latest News
--  Infolge der Vision Pro: Meta will "Android der Mixed Reality" werden
--  Sandra Milo amava Napoli: "Mi sento partenopea, adoro Finizio e i pomodorini del Vesuvio"
--  Животът на тези зодии ще се промени към по-добро
--  Erdmannhausen bekommt einen parkähnlichen Friedhof und barrierefreie Bushaltestellen
--  157분 오찬 회동…'민생 · 원팀' 강조
--  Hull City'da Acun Ilıcalı'dan Abdülkadir Ömür ve Ryan Kent açıklaması
--  Más de 28.000 niños valencianos correrán contra la desnutrición infantil
--  Валиева отреагировала на решение CAS о дисквалификации на 4 года
--  İsrail'in Hamas ile yeni esir takası anlaşmasını kabul ettiği iddiası
--  iRobot to cut 350 jobs in restructuring after Amazon acquisition deal scrapped
+-  Nkom: Flere områder i Nord-Norge mangler internett- og mobildekning
+-  The best type of salt for hypertension treatment; study discovers the component may control high BP
+-  Scholz diskutoval so Sísím o situácii v Pásme Gazy
+-  Pese a huelga, Audi mantiene propuesta de 6.5% de aumento a salario
+-  Ordumuzun zabitini qətlə yetirən şəxs həbs olundu
+-  Over 8000 aspirants to perform Hajj this year from J&K
+-  "Faccio una previsione su Jannik Sinner...": Adriano Panatta da brividi, la sua "profezia"
+-  Hausbesitzer in Bönnigheim wollen kaum investieren
+-  JOVANA SE NE VRAĆA U JEDINSTVO: Jankovićka brzo napustila Užice - nije stigla ni da zaigra
+-  Новые автомобили оснастят черными ящиками в Европе
