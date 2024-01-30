@@ -1,11 +1,11 @@
 # Latest News
--  Masacre en Vinces: Las pistas que sigue la policía, ya hay sospechosos identificados
--  Sentuhan Emas Eks PSM Makassar di Timnas Tajikistan pada Piala Asia 2023: Debutan Langsung Tembus 8 Besar!
--  Eine Frage der sozialen Gerechtigkeit: Tempo 30 in der Wolfgang-Heinze-Straße erst 2026?
--  [혁신스타트업 in 홍릉] 픽셀로 “눈 건강 관리, 안구 질환 예방하는 아이케어 솔루션”
--  미국 덴버 동물원 인식표 단 대머리수리, 전남 광양서 구조돼
--  국민의힘, '윤-한 회동' 비판에 "정쟁병에서 벗어나길"
--  ארה"ב וקטאר משדרות אופטימיות, אך הפערים במגעים לעסקה גדולים
--  Amazon: Gesichtserkennung durch Polizei eingeschränkt – per Vertrag
--  Drogen in Tupperdosen, Sporttasche und Kühlschrank: Mann aus Castrop-Rauxel steht vor Gericht
--  Dự đoán của ông Hoàng Nam Tiến sắp thành hiện thực: Người đàn ông lấy bạn gái là robot, có thể làm mọi thứ, biết im lặng, nguy cơ các bà vợ, bạn gái sẽ 'thất nghiệp'
+-  Ο Οδυσσέας Μιχαηλίδης για τις εξαγγελίες Προέδρου: Υπέρ οικονομικής ανεξαρτησίας Ελεγκτικής, όχι σε αλλαγή μοντέλου
+-  광양서 구조된 대머리수리… 몸엔 美덴버동물원 인식표
+-  H-1B Visa: Big Update! Now it will be easy for Indians to get American visa, this new service started
+-  美덴버동물원 인식표 달린 대머리수리, 광양까지 날아와 구조
+-  Khẩn trương khắc phục hậu quả vụ cháy khiến ba người tử vong
+-  광양서 구조된 대머리수리… 몸엔 美덴버동물원 인식표
+-  Biến cố hạ gục những “người xây giấc mơ”, tình yêu với bất động sản của người Trung Quốc gặp thách thức lớn
+-  「十大精神健康新聞事件」首度票選出爐 新北國中生割頸案上榜
+-  Son dakika! İzmir'de balıkçı teknesi battı: 3 ölü, 2 kayıp
+-  L’écriture inclusive entre en fiction québécoise
