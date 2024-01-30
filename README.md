@@ -1,11 +1,11 @@
 # Latest News
--  HWB Chartered Accountants senior to compete in snooker event
--  Leão insaciável na Liga: Goleada por 8-0 volvidos 50 anos
--  Noch eine Vollsperrung an der A1 – und dann freie Fahrt
--  One Stop and Co-op shoplifters walk free after 32 incidents
--  Met Office issues forecast on snow in Southampton
--  Jyväskylä ja Kuopio ovat yhteisessä ahdingossa – Espoo saa yli 1 000 euroa enemmän valtionosuuksia asukasta kohden
--  Potters and Erskine Court restaurants - What next after City Catering?
--  How many illegal disposable vapes were found in Southampton?
--  Cận cảnh AeroHT - mẫu xe điện bay nhà Xpeng
--  Sander Dickkopp kann jetzt für Events gemietet werden
+-  Masacre en Vinces: Las pistas que sigue la policía, ya hay sospechosos identificados
+-  Sentuhan Emas Eks PSM Makassar di Timnas Tajikistan pada Piala Asia 2023: Debutan Langsung Tembus 8 Besar!
+-  Eine Frage der sozialen Gerechtigkeit: Tempo 30 in der Wolfgang-Heinze-Straße erst 2026?
+-  [혁신스타트업 in 홍릉] 픽셀로 “눈 건강 관리, 안구 질환 예방하는 아이케어 솔루션”
+-  미국 덴버 동물원 인식표 단 대머리수리, 전남 광양서 구조돼
+-  국민의힘, '윤-한 회동' 비판에 "정쟁병에서 벗어나길"
+-  ארה"ב וקטאר משדרות אופטימיות, אך הפערים במגעים לעסקה גדולים
+-  Amazon: Gesichtserkennung durch Polizei eingeschränkt – per Vertrag
+-  Drogen in Tupperdosen, Sporttasche und Kühlschrank: Mann aus Castrop-Rauxel steht vor Gericht
+-  Dự đoán của ông Hoàng Nam Tiến sắp thành hiện thực: Người đàn ông lấy bạn gái là robot, có thể làm mọi thứ, biết im lặng, nguy cơ các bà vợ, bạn gái sẽ 'thất nghiệp'
