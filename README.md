@@ -1,11 +1,11 @@
 # Latest News
--  Positions for retained firefighters available in Co Kilkenny
--  Fransa'da çiftçiler traktörleriyle eylem yaptı
--  Omni Workspace welcomes Jesus Omana as President of their national services company, Emerald Blue
--  Justicia española archiva el caso del trasplante al ex futbolista Eric Abidal
--  Media: Raków idzie na całość. Rozmawia z piłkarzem, który kosztował 9 milionów euro
--  YÖK'ten öğrencilere 'Banka Hesabı' uyarısı
--  Ilary Blasi, apertura a Totti: "Invito Francesco a cena, porta sempre aperta. Siamo genitori"
--  Soğukta elektrikli mi benzinli araçlar mı daha az bozuluyor?
--  Uşaklı emekliler iktidara taleplerini sundu. 'Emekli maaşını hesaplarken tefe tüfe saraya gelince açık büfe'
--  UE pede investigação sobre agência da ONU após dossiê de suposto envolvimento com Hamas
+-  Mort de Marion Game : Dans Scènes de ménages, une "prochaine étape" pour Huguette et Raymond
+-  На кордоні України з Угорщиною відкриють новий прикордонний перехід
+-  Haos u centru Beograda! Požar u Kosovskoj, dim kulja iz stana, vatrogasci kreću u akciju! Ulica zatvorena za saobraćaj (FOTO)
+-  Marca de chocolates Pan vai a leilão nesta segunda-feira por R$ 27,7 milhões
+-  Marca de chocolates Pan vai a leilão nesta segunda-feira por R$ 27,7 milhões
+-  Man loses bid for 3rd trial in killing of woman at Edmonton hotel
+-  PF apreendeu computador da Abin em endereço de Carlos Bolsonaro, diz jornalista
+-  Antechinus: o marsupial australiano que chega a fazer 14h de sexo
+-  Sven Wolter dankte den Stützpunktleitern
+-  Drama u centru Beograda! Požar u Kosovskoj, dim kulja iz stana, vatrogasci kreću u akciju! Ulica zatvorena za saobraćaj
