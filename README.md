@@ -1,11 +1,11 @@
 # Latest News
--  Forskare: ”Utblicken lika viktig för hälsan som dagsljuset”
--  El secreto de la adolescencia de Ion Aramendi con Inés Sastre
--  Кметът на Русе косвено потвърди, че погромът на руското консулство е извършен от персонала му
--  Editorial: The deadly Tower of Babel
--  周囲の状況自ら判断 「自律ロボット」に安川電機社長が込めた思い
--  The Birmingham city centre 'square' you've probably never heard of
--  Look up if you’re lonely
--  Man, 39, 'with stomach pain' died four months after getting married
--  Mum's fears over school's unisex toilets after daughter, five, makes concerning disclosures
--  El cambio climático acelera la plaga que mata a las abejas españolas masivamente
+-  Борис Джонсон розповів, чому НАТО відчуває провину перед Україною
+-  Elon Musk duyurdu: Neuralink çipi ilk kez bir insanın beynine yerleştirildi
+-  Greek families get little help in form of decent salaries and tax breaks
+-  “대통령 공약 지켜야”…충남 치과의사들 ‘치의학연구소’ 설립 촉구
+-  Тунчев: Ако първенството е честно и обективно, ако няма влияние на трети страни, ще бъде доста интересно
+-  Driver follows ‘fastest route’ on Google Maps, gets stuck on a flight of stairs
+-  ضربة قضائية أخرى محتملة ضد ترامب
+-  Palestinavänner anklagar Lunds universitet för trakasserier
+-  Co za złodzieje... Okradli klub sportowy i szkołę. Nie zgadniesz co zabrali
+-  La Real afronta un mes alucinante
