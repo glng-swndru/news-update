@@ -1,11 +1,11 @@
 # Latest News
--  Utrolig Windows 11-pris – annonse
--  Ford Transit 2024 đã về nhà máy Việt Nam: Phiên bản trần cao, nhiều công nghệ mới, dự kiến bán trong năm nay
--  CAN 2023 : Krépin Diatta s’emporte contre l’arbitre du match Sénégal - Côte d’Ivoire
--  Fenerbahçe, Bartuğ Elmaz'ı Sivasspor'a kiraladı
--  Ungheria: Ascani, 'silenzio assordante Meloni, ci metta la faccia'
--  Movie2k-Verfahren: Mutmaßlicher Betreiber händigt BKA 50.000 Bitcoin aus
--  PORODICA IZ NIŠA BAVI SE OVIM BIZNISOM VEĆ 3 DECENIJE: Posao je neobičan, na slične KUPOVNE proizvode mesečno se TROŠE SILNE PARE
--  Planı olanlar dikkat: Tüm seferler iptal
--  Movie2k-Verfahren: Mutmaßlicher Betreiber händigt BKA 50.000 Bitcoin aus
--  Trabzon Büyükşehir Belediyesi İtfaiyesi 2023 yılında 2 bin 20 yangına müdahale etti
+-  Guide sensmart's latest infrared night vision technology was showcased at the SHOT SHOW in the United States
+-  Gav hunden för lite mat – får djurförbud
+-  La frontera, la política y la geografía
+-  Xe tải tông ô tô con rơi xuống ruộng, 2 người chết thương tâm
+-  Mikes Flirt mit Leyla: Eugen Lopez gibt ihm grünes Licht!
+-  Тошковски предложи мерки за пасошите пред грчката амбасадорка
+-  Felújították a több mint háromszáz éves városházát Esztergomban
+-  Singer Vineet Singh Hukmani ने Shankar Mahadevan पर क्या कहा, Born In Bharat Born For India क्या है?
+-  Chợ hoa cây cảnh tết Thái Nguyên, dân tấp nập xem, tiểu thương nóng ruột
+-  Sanierungen starten: Bahnübergänge in Dorsten werden gesperrt
