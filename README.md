@@ -1,11 +1,11 @@
 # Latest News
--  В Пирин търсят още две попълнения
--  Chamundi Hill Ropeway Project | Govt. to study pros and cons before implementation: Patil
--  Esaote presenta dos nuevos sistemas de ultrasonidos en Arab Health: MyLab™A50 y MyLab™A70
--  Asíubikarinn: Trylltur lokakafli og stórfurðulegt rautt spjald í dramatískum sigri Jórdaníu
--  Hnutie Slovensko podalo návrh na štvordňový pracovný týždeň
--  Anadolu Üniversitesi AÖF sınav sonuçları açıklandı mı? Açıköğretim Fakültesi 2024 Güz dönemi final sınavı AÖF sonuçları sorgulama!
--  Nach Platz vier bei Heim-EM: Wie Bundestrainer Gislason die Entwicklung seines Teams bewertet
--  Δένδιας: Συζητάμε με τις ΗΠΑ για την συμπαραγωγή επτά φρεγατών Constellation - Δείτε βίντεο
--  Λίνα Μενδώνη: Συνεργασία Ελλάδας - ΗΠΑ και πολιτιστικές ανταλλαγές στην ατζέντα της συνάντησής της με την Λι Σάτερφιλντ
--  Suđenje Ljubu Miloviću odloženo zbog prepiski na Skaj aplikaciji
+-  Ona je jedna od 10 djevojaka koje njezin dečko ima: ‘Nikada se neće skrasiti, ali ja se svejedno nadam da sam ona prava’
+-  Valtatie 8 tulisi nelikaistaistaa koko matkaltaan
+-  RATP : la CGT dépose un préavis de grève pour une période de sept mois
+-  Giovanni et Cassandra (Les apprentis aventuriers) : plus personne ne peut les supporter
+-  Internet : jeune ou senior, chacun est sensible à la publicité en ligne
+-  ਕਰੀਨਾ ਦੀ ਰੈੱਡ ਸਾੜੀ ਤਾਂ ਵੇਖੋ
+-  CORSAIR K55 CORE, análisis: un teclado gaming de membrana para presupuestos ajustados
+-  Spotlight turns to Ukraine, carbon price as Parliament returns in Ottawa
+-  Berkeley astrophysicist Gibor Basri interprets the stars
+-  Валиева не оспаривала факт наличия триметазидина в ее допинг-пробе. Она не смогла доказать, что нарушение антидопинговых правил было непредумышленным
