@@ -1,11 +1,11 @@
 # Latest News
--  AI companies will need to start reporting their safety tests to the US government
--  Menanti Nasib Ratusan Mahasiswa ITB, Terancam Tak Bisa Lanjut Kuliah
--  DWP warning as people told to open letters or risk benefits being stopped
--  NI KARCINOM U TRUDNOĆI NIJE PREPREKA ZA POTOMSTVO: Prof. dr Katarina Stefanović o onkološkim oboljenjima, lečenju, zdravom potomstvu
--  Loganair zero-emissions flights planned for Orkney 2027
--  중기부, “은행과 협력해 중소기업 구조개선 지원 확대”
--  Esenyurt'ta komşuların ev taşlamalı kavgasına polis müdahalesi
--  오기웅 차관 "중소기업 구조개선 위해 민·관 공동지원"
--  Pereče stanje v zagorskem zdravstvenem domu. Odpoved je dalo več pediatrinj
--  To najpopularniejsze oszustwo w sieci. Hakerzy mają nowy cel
+-  iOS 18, iPhone tarihindeki en büyük güncelleme olacak!
+-  Baro başkanlarından Kurtulmuş'a açık mektup: İrade koymanızı bekliyoruz
+-  Temelsiz ölüm villalarında CHP'li belediyeden parsel vurgunu: 76 yerine 106 ev
+-  Krieg in der Ukraine: Manche teilen den Schützengraben mit Toten
+-  A washingtoni magyar nagykövetségen arról beszéltek, hogy "minden vallást üdvözölni kell"
+-  Basilisk
+-  Луксозни ментета иззети на ГКПП “Капитан Андреево“
+-  Jas displeje 4500 nitů. Opravdu? Výrobci mobilů rozjeli další přetahovanou, jejich čísla ale většinou nic nevypovídají
+-  Merkez Bankası’ndan zorunlu karşılık
+-  Adu Gaya Teuku Ryan dan Aditya Surya, Mantan Gebetan Ria Ricis yang Dijodohkan Usai Foto Bersama
