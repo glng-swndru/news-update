@@ -1,11 +1,11 @@
 # Latest News
--  Guide sensmart's latest infrared night vision technology was showcased at the SHOT SHOW in the United States
--  Gav hunden för lite mat – får djurförbud
--  La frontera, la política y la geografía
--  Xe tải tông ô tô con rơi xuống ruộng, 2 người chết thương tâm
--  Mikes Flirt mit Leyla: Eugen Lopez gibt ihm grünes Licht!
--  Тошковски предложи мерки за пасошите пред грчката амбасадорка
--  Felújították a több mint háromszáz éves városházát Esztergomban
--  Singer Vineet Singh Hukmani ने Shankar Mahadevan पर क्या कहा, Born In Bharat Born For India क्या है?
--  Chợ hoa cây cảnh tết Thái Nguyên, dân tấp nập xem, tiểu thương nóng ruột
--  Sanierungen starten: Bahnübergänge in Dorsten werden gesperrt
+-  WhatsApp backups are now starting to count against your Drive storage quota - Android Police
+-  Gündəm olan idmançının məşqləri görün neçəyə imiş
+-  Блекберн – Рексгем 4:1: огляд матчу
+-  Nikos Hristodulidis, vatandaşların yaşam kalitesinin iyileştirilmesini hedefleyen hükümet programını açıkladı
+-  China's economy is facing a nightmarish Year of the Dragon
+-  Le maire de Lucé, Florent Gauthier, a présenté ses vœux pour 2024 : "Continuer à accélérer dans nos projets"
+-  Chinese EV battery giant CATL expects 2023 earnings to jump by up to 48%
+-  Supermicro shares jump after revenue forecast raise re-ignites AI rally
+-  Eximen de impuestos a las viviendas de Bahía Blanca afectadas por temporal
+-  중앙선 넘어 식당 돌진한 차…달아다더니 음주측정 거부
