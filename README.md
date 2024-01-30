@@ -1,11 +1,11 @@
 # Latest News
--  Minikler, Melikgazi'nin karne şenliğinde doyasıya eğlendi
--  Taliansky plán rozvoja Afriky zahŕňa dotáciu viac ako 5,5 miliardy eur
--  Baubeginn in diesem Jahr: Westukrainisches AKW Chmelnyzkyj soll größtes in Europa werden
--  Isabelle discute com MC Bin Laden: 'grandão só para mulher'
--  Vozači trljaju oči u neverici: Dva ponija izazvala opšti haos na putu za Novu Varoš!
--  Slovacia doreşte să cumpere un sistem de apărare antiaeriană Patriot de la Statele Unite
--  Bağımsız Türkiye Partisi Gebze esnaf ziyareti
--  Supermercados y turismo, rubros que más crecieron en transacciones con tarjetas de crédito
--  Ucraina vrea să construiască în plin război patru reactoare nucleare la Hmelnițki. Centrala se află la 400 km de România
--  Elon Musk's X blocks searches of Taylor Swift after abusive deepfake AI chaos
+-  В Пирин търсят още две попълнения
+-  Chamundi Hill Ropeway Project | Govt. to study pros and cons before implementation: Patil
+-  Esaote presenta dos nuevos sistemas de ultrasonidos en Arab Health: MyLab™A50 y MyLab™A70
+-  Asíubikarinn: Trylltur lokakafli og stórfurðulegt rautt spjald í dramatískum sigri Jórdaníu
+-  Hnutie Slovensko podalo návrh na štvordňový pracovný týždeň
+-  Anadolu Üniversitesi AÖF sınav sonuçları açıklandı mı? Açıköğretim Fakültesi 2024 Güz dönemi final sınavı AÖF sonuçları sorgulama!
+-  Nach Platz vier bei Heim-EM: Wie Bundestrainer Gislason die Entwicklung seines Teams bewertet
+-  Δένδιας: Συζητάμε με τις ΗΠΑ για την συμπαραγωγή επτά φρεγατών Constellation - Δείτε βίντεο
+-  Λίνα Μενδώνη: Συνεργασία Ελλάδας - ΗΠΑ και πολιτιστικές ανταλλαγές στην ατζέντα της συνάντησής της με την Λι Σάτερφιλντ
+-  Suđenje Ljubu Miloviću odloženo zbog prepiski na Skaj aplikaciji
