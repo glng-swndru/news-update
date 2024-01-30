@@ -1,11 +1,11 @@
 # Latest News
--  iOS 18, iPhone tarihindeki en büyük güncelleme olacak!
--  Baro başkanlarından Kurtulmuş'a açık mektup: İrade koymanızı bekliyoruz
--  Temelsiz ölüm villalarında CHP'li belediyeden parsel vurgunu: 76 yerine 106 ev
--  Krieg in der Ukraine: Manche teilen den Schützengraben mit Toten
--  A washingtoni magyar nagykövetségen arról beszéltek, hogy "minden vallást üdvözölni kell"
--  Basilisk
--  Луксозни ментета иззети на ГКПП “Капитан Андреево“
--  Jas displeje 4500 nitů. Opravdu? Výrobci mobilů rozjeli další přetahovanou, jejich čísla ale většinou nic nevypovídají
--  Merkez Bankası’ndan zorunlu karşılık
--  Adu Gaya Teuku Ryan dan Aditya Surya, Mantan Gebetan Ria Ricis yang Dijodohkan Usai Foto Bersama
+-  Everton star to remain at Goodison beyond Feb 1 amid £75m transfer update - report
+-  Ardahan’da dondurucu soğuklar başladı, eksi 32 dereceyi gördü
+-  DIRECTO | Última hora de la guerra entre Israel y Hamás
+-  フラッグシップモデルの「マツダ6」国内販売を終了する理由
+-  DIRECTO | Última hora de la guerra entre Israel y Hamás
+-  خبير عسكري: الهجمات الحوثية الأخيرة تطور خطير على الاقتصاد العالمي
+-  ‘사드 반대’ 했다고 88세 할머니 소환조사…마을주민 “반인권 수사”
+-  DIRECTO | Última hora de la guerra entre Israel y Hamás
+-  Še nekaj dni za uveljavljanje olajšave za otroke
+-  Chile debe aprender a navegar en las guerras comerciales (I)
