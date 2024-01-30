@@ -1,11 +1,11 @@
 # Latest News
--  Zagrebački holding zapošljava nove radnike, evo koje pozicije su otvorene
--  Cora Schumacher fordert Heimreise ihres Dschungelbegleiters!
--  이상호 전 대통령비서실 행정관 "부산진구 재도약 이뤄내겠다"
--  Елена Вайцеховская: «Как могло случиться, что на ОИ оказался спортсмен с грязной допинг-пробой? Это вопрос к людям, которые продолжают управлять российским спортом»
--  HanuMan Box Office: Prasanth Varma, Teja Sajja film joins elite list of Telugu films that did Rs 100 crore plus profits on theatrical business
--  Merck-Eigentümer bekommt neuen Vorsitzenden
--  Metro B, aggiudicata la gara per sostituire ascensori e scale mobili
--  Che vuole fare Giorgia Meloni con il famoso Piano Mattei
--  Prio está preparada para novos investimentos na casa de bilhão, diz presidente da empresa
--  Руската фигуристка Камила Валиева получи 4-годишно наказание за допинг
+-  Турецкие гранды и Британия. Сидорчук назвал клубы, которые его приглашали
+-  "LEDEJ, NEMOJ NIKAD DA SE MENjAŠ!" Kakva poruka Evrolige dan posle večitog derbija u kome je taj igrač Partizana razbesneo sve u Zvezdi
+-  Jordan s dva gola u nadoknadi izbacio Irak
+-  Βασιλιάς Κάρολος: Πήρε εξιτήριο από το νοσοκομείο μετά την επέμβαση στον προστάτη
+-  Υπ. Παιδείας: Ψηφιακά οι εξετάσεις στα Πανεπιστήμια, στις υπό κατάληψη σχολές
+-  진서연, 폭력 휘두른 父·남친 둔 청소년 엄마에 "어떻게 맞아야…"
+-  Otežan pristup web stranici IDDEEA-e
+-  Züge und Partys in den Niederlanden : So feiern Venlo und Roermond Karneval – ein Fahrplan
+-  Денислав Стойчев с документална изложба в галерия „Синтезис“ - Труд
+-  LIVE | Voor het eerst in weken luchtalarm in grote steden in Israël
