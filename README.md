@@ -1,11 +1,11 @@
 # Latest News
--  Everton star to remain at Goodison beyond Feb 1 amid £75m transfer update - report
--  Ardahan’da dondurucu soğuklar başladı, eksi 32 dereceyi gördü
--  DIRECTO | Última hora de la guerra entre Israel y Hamás
--  フラッグシップモデルの「マツダ6」国内販売を終了する理由
--  DIRECTO | Última hora de la guerra entre Israel y Hamás
--  خبير عسكري: الهجمات الحوثية الأخيرة تطور خطير على الاقتصاد العالمي
--  ‘사드 반대’ 했다고 88세 할머니 소환조사…마을주민 “반인권 수사”
--  DIRECTO | Última hora de la guerra entre Israel y Hamás
--  Še nekaj dni za uveljavljanje olajšave za otroke
--  Chile debe aprender a navegar en las guerras comerciales (I)
+-  Wenn Remigration Realität würde: In Recklinghausen würden Tausende Einwohner deportiert
+-  Drastic toll Size 8's success had on her life and relationships
+-  Rivalidad Meta-Apple en AR/VR: un eco de la caída de Blackberry
+-  Benzin ve motorine yine yeniden bir dev zam daha
+-  Leben im Baltikum: Lettland droht mit Zwangsausweisung russischer Bürger – Putin wittert "illegale Deportationen"
+-  Wyscout, visa rules and tight budgets: Inside women's football recruitment
+-  5 coisas que precisa de saber para começar o dia
+-  Strictly Come Dancing's Bobby Brazier dishes on 'interactions' with female fans
+-  Israel kündigt baldigen Einsatz an der Grenze zum Libanon an
+-  Lukijalta | Kirjasto on lakisääteinen palvelu
