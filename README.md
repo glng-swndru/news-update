@@ -1,11 +1,11 @@
 # Latest News
--  Fazenda define procedimentos para casos de inadimplência e facilita acesso ao Desenrola
--  Volkan Konak'tan çok konuşulacak sözler: 'Beni silin, ben yokum'
--  Alertă în Paris. Mii de polițiști au scos blindatele pe străzi ca să blocheze "asediul" fermierilor. Zeci de autostrăzi sunt blocate
--  Milan weigh up move for Alaves left back Javi Lopez, transfer expert says
--  Natasha Thahane’s yellow outfit breaks Bucs’ hearts [photos]
--  Париж 2024 обмисля увеличение на бюджета заради мерки за сигурност
--  Leonel Jiménez habla del infarto, su futuro y el de ‘Sensación Deportiva’
--  Bank of America: Buy, Sell, or Hold?
--  Aidez la "SPA des animaux aquatiques", un centre unique en France basé à Limoges
--  Bursa Valisi Demirtaş'tan BESAŞ fabrikasına ziyaret!
+-  TROLLEY WATCH: Monday's figures from St Luke's Hospital - Kilkenny Live
+-  Jetzt updaten! Exploits für kritische Jenkins-Sicherheitslücke im Umlauf
+-  Bargeld-Obergrenze und mehr: Diese und weitere Maßnahmen will die EU einführen
+-  Singapore sacks national football head coach Nishigaya
+-  Un altro vescovo cinese ordinato nella 'nuova' diocesi di Weifang
+-  Dağdan kopan kayanın isabet ettiği kamyonetteki kişi öldü
+-  Млад халф подписа нов договор с Нюкасъл
+-  HoREA kiến nghị sửa Thông tư 22
+-  Vučiću, pobićemo ti decu! Bolest mozga opozicije, ćerki predsednika prete silovanjem!
+-  СБУ нашла предупреждавших о раздаче повесток администраторов групп
