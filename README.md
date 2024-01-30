@@ -1,11 +1,11 @@
 # Latest News
--  Mehr als 1100 Unterstützer: Petition soll beliebte Veranstaltung „Live am Biotop“ in Beeden retten
--  Víte, co je KISS? Systém varování od O2 pomáhá v krizových situacích, funguje už 10 let
--  HEP JAVLJA Dio Dalmacije sutra bez struje
--  Минобороны Украины опубликовало сообщение на фоне слухов об отставке Залужного
--  Britney Spears apologizes for speaking her truth in The Woman In Me
--  सरफराज खान की वो खूबी जो उन्हें सभी से बनाती है अलग, प्लेइंग इलेवन में जगह मिलना पक्का
--  Załużny miał zostać odwołany. Wcześniej wielokrotnie krytykował Zełenskiego
--  Juízes substitutos são empossados e reforçarão comarcas de Mato Grosso
--  Čtyřletý zákaz. Arbitráž potrestala ruskou krasobruslařku za doping
--  Lamar Jackson may win MVP, but he's still second fiddle to Patrick Mahomes
+-  Positions for retained firefighters available in Co Kilkenny
+-  Fransa'da çiftçiler traktörleriyle eylem yaptı
+-  Omni Workspace welcomes Jesus Omana as President of their national services company, Emerald Blue
+-  Justicia española archiva el caso del trasplante al ex futbolista Eric Abidal
+-  Media: Raków idzie na całość. Rozmawia z piłkarzem, który kosztował 9 milionów euro
+-  YÖK'ten öğrencilere 'Banka Hesabı' uyarısı
+-  Ilary Blasi, apertura a Totti: "Invito Francesco a cena, porta sempre aperta. Siamo genitori"
+-  Soğukta elektrikli mi benzinli araçlar mı daha az bozuluyor?
+-  Uşaklı emekliler iktidara taleplerini sundu. 'Emekli maaşını hesaplarken tefe tüfe saraya gelince açık büfe'
+-  UE pede investigação sobre agência da ONU após dossiê de suposto envolvimento com Hamas
