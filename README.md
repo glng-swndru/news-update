@@ -1,11 +1,11 @@
 # Latest News
--  Economia portuguesa cresce 2,3% em 2023 e evita recessão no 4.º trimestre
--  DA LI JE NJOJ MASK UGRADIO PRVI ČIP? Glumica filmova za odrasle se sama nudila, zvala ga je BOTOKS ZA MOZAK i htela da bude MAŠINA
--  Rusya'dan İran'a misilleme açıklaması
--  В Зельвенском районе родители променяли своего 10-летнего сына на «бутылку»
--  Svíarnir fylgjast grannt með Maríu (myndskeið)
--  Concurso Ipea reúne mais de 26 mil inscritos; veja concorrência!
--  「本麒麟」をリニューアル キリンビール
--  Stellantis, BlackBerry ve AWS'den sanal kokpit platformu
--  Dava-Partei: Kommt die fünfte Kolonne des Sultans?
--  Iz te vrste testa bodo nastali božanski štruklji
+-  Utrolig Windows 11-pris – annonse
+-  Ford Transit 2024 đã về nhà máy Việt Nam: Phiên bản trần cao, nhiều công nghệ mới, dự kiến bán trong năm nay
+-  CAN 2023 : Krépin Diatta s’emporte contre l’arbitre du match Sénégal - Côte d’Ivoire
+-  Fenerbahçe, Bartuğ Elmaz'ı Sivasspor'a kiraladı
+-  Ungheria: Ascani, 'silenzio assordante Meloni, ci metta la faccia'
+-  Movie2k-Verfahren: Mutmaßlicher Betreiber händigt BKA 50.000 Bitcoin aus
+-  PORODICA IZ NIŠA BAVI SE OVIM BIZNISOM VEĆ 3 DECENIJE: Posao je neobičan, na slične KUPOVNE proizvode mesečno se TROŠE SILNE PARE
+-  Planı olanlar dikkat: Tüm seferler iptal
+-  Movie2k-Verfahren: Mutmaßlicher Betreiber händigt BKA 50.000 Bitcoin aus
+-  Trabzon Büyükşehir Belediyesi İtfaiyesi 2023 yılında 2 bin 20 yangına müdahale etti
