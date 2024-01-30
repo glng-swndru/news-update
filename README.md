@@ -1,11 +1,11 @@
 # Latest News
--  Superman Legacy Director James Gunn Says Batman Isn't In The Film
--  After years of providing free accounting and invoicing software, Wave rolls out paid model
--  SİBERGÖZ-20 operasyonu! Bakan Yerlikaya duyurdu: Bursa dahil 20 ilde 64 kişi yakalandı...
--  Mulher é agredida e socorrida com traumatismo em Colíder; padrasto preso
--  Украине предрекли недовольства из-за закона о мобилизации
--  Man (38) verdacht van kinderen betasten en geslachtsdeel laten zien op schoolplein aangehouden
--  الجامعات والعلاقات العاطفية
--  Кристъл Палас привлича десен бек от Генк
--  مرحبا بكم في "مهرجان صحار"
--  German offshore wind power share drops as land network expands -TenneT
+-  Infolge der Vision Pro: Meta will "Android der Mixed Reality" werden
+-  Sandra Milo amava Napoli: "Mi sento partenopea, adoro Finizio e i pomodorini del Vesuvio"
+-  Животът на тези зодии ще се промени към по-добро
+-  Erdmannhausen bekommt einen parkähnlichen Friedhof und barrierefreie Bushaltestellen
+-  157분 오찬 회동…'민생 · 원팀' 강조
+-  Hull City'da Acun Ilıcalı'dan Abdülkadir Ömür ve Ryan Kent açıklaması
+-  Más de 28.000 niños valencianos correrán contra la desnutrición infantil
+-  Валиева отреагировала на решение CAS о дисквалификации на 4 года
+-  İsrail'in Hamas ile yeni esir takası anlaşmasını kabul ettiği iddiası
+-  iRobot to cut 350 jobs in restructuring after Amazon acquisition deal scrapped
