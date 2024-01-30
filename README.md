@@ -1,11 +1,11 @@
 # Latest News
--  Борис Джонсон розповів, чому НАТО відчуває провину перед Україною
--  Elon Musk duyurdu: Neuralink çipi ilk kez bir insanın beynine yerleştirildi
--  Greek families get little help in form of decent salaries and tax breaks
--  “대통령 공약 지켜야”…충남 치과의사들 ‘치의학연구소’ 설립 촉구
--  Тунчев: Ако първенството е честно и обективно, ако няма влияние на трети страни, ще бъде доста интересно
--  Driver follows ‘fastest route’ on Google Maps, gets stuck on a flight of stairs
--  ضربة قضائية أخرى محتملة ضد ترامب
--  Palestinavänner anklagar Lunds universitet för trakasserier
--  Co za złodzieje... Okradli klub sportowy i szkołę. Nie zgadniesz co zabrali
--  La Real afronta un mes alucinante
+-  Link Live Streaming Persebaya Surabaya vs PSIS Semarang di BRI Liga 1, Segera Kick Off
+-  Kiborgot csinált Elon Musk cége - chipet ültetett egy ember fejébe
+-  Gorgeous European city has 300 days of sunshine and one of the world's best beaches
+-  Burkina Faso, Mali and Niger quit Ecowas
+-  ‘역대 2호 11000점 돌파’ 라건아, 쉬지 않고 뛰었다
+-  ЗСУ взяли у полон елітних російських десантників: деталі спецоперації
+-  2月22日は猫の日！ 木村屋總本店、動物パン（ねこ）や生チョコ コロネパイ！
+-  ‘역대 2호 11000점 돌파’ 라건아, 쉬지 않고 뛰었다
+-  LINEで粗大ごみ収集の申込・決済まで完結する行政向けサービス
+-  Anime Adaptation Spy X Anya Infiltrates PS5, PS4 This Summer
