@@ -1,11 +1,11 @@
 # Latest News
--  Salihlili judocular, Konya'da 2 madalya kazandı
--  Hasan Arat'tan eleştirilere cevap! 'Beni kimse menajerlerin kucağına itemez'
--  Ανοίγουν οι κατάλογοι επιχειρήσεων για χορηγίες φωτοβολταϊκών και θερμομόνωση
--  Η Εθνική Ομάδα Κορασίδων καλαθοσφαίρισης για προετοιμασία τον Ιούλιο στη Νάουσα
--  أرقام تلخص مواجهات البحرين ضد اليابان قبل مواجهة ثمن نهائي كأس آسيا
--  Обвинившая бойцов СВО в групповом изнасиловании россиянка заявила о беременности
--  ΚΚΕ: Όχι στην εμπορευματοποίηση της τεκνοποίησης και της τεκνοθεσίας
--  Why infrastructure investments may be about to sparkle
--  10 aylık bebek araçta mahsur kaldı, anne korkuyla bekledi
--  Why infrastructure investments may be about to sparkle
+-  Pour protester contre le retour de Mathias Vicherat, les étudiants de Sciences Po Menton bloquent l’accès au campus ce mardi
+-  Německá ekonomika v loňském 4. čtvrtletí vykázala pokles o 0,3 procenta
+-  Nova opozorila o porastu te nevarne okužbe
+-  CHP'nin İzmir adayı Cemil Tugay: İzmir'i Türkiye'nin en yaşanabilir şehri yapacağız
+-  Ukrajina se pře o spermie. Nový návrh zákona budí vášně
+-  Εκπαιδευτικές βολές και πτήσεις drone από το Ναυτικό ΓΕΕΦ
+-  Povećan promet u trgovini na malo i uslužnim djelatnostima
+-  ¿Repunte breve de la deuda? La atención se centra en la Fed y en los resultados
+-  Uyuz olan çift, hayvanlarda kullanılan kremi sürünce hastanelik oldu
+-  លោក Imran Khan ត្រូវជាប់ពន្ធនាគារ១០ឆ្នាំទៀត សម្រាប់បទចោទប្រកាន់ថ្មី
