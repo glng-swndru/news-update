@@ -1,11 +1,11 @@
 # Latest News
--  Unlocking the Future: VOC AI Revolutionizes Customer Experience and Empowers Businesses at CCW Austin 2024
--  찰스 英 국왕, 전립선 비대증 수술 후 퇴원…“요양 위해 일정 조정”
--  الهلال يصعق إنتر ميامي بثلاثية في الشوط الأول بحضور ميسي وسواريز.. فيديو - اليوم السابع
--  Preot din Suceava, reclamat că pleacă la muncă în străinătate și lasă biserica pe mâna unei femei. ”Doamna ne conduce”
--  Esquecida, 2ª fase da Operação Escudo da PM na Baixada Santista teve 8 mortos
--  Почина легендата на българския биатлон Николай Захаров - Труд
--  Welcome to the Wild World of Novelty Props for Super Bowl LVIII
--  KRAJ DRAME U KOSOVSKOJ ULICI: Gorelo u zgradi Borbe, požar lokalizovan
--  Vojni analitičar nakon napada na američke vojnike: Iran će dobiti po glavi
--  MHP-Riesen nehmen erneut Anlauf auf Sieg gegen Telekom Baskets Bonn
+-  Jedan od najvećih teniskih turnira na svijetu mijenja lokaciju nakon 38 godina
+-  Kino-Meisterwerk als Notlösung: Dieser gefeierte Psychothriller sollte eigentlich nur ins Fernsehen
+-  Danstävling med livet som insats – då bygger teatern om
+-  GPS First XI Team of the Week; players of the round from 7As to 11As
+-  Témoignages. Pourquoi nos agriculteurs ne s'en sortent plus : « Je dois 48 500 euros à la banque, je fais comment ? »
+-  Central Asia could help the West break its dependence on China’s critical minerals
+-  Pieter Jan Dijkman (Director WI/CDA): Autoridad di un gobierno ta pa sirbi e bon comun
+-  Galatasaray'dan evinde kırılması zor rekor
+-  Nieuwe Viaplay-topman Lodewick belooft verandering en vertrouwt op lang F1-avontuur
+-  B.C. pushing for exemptions to Ottawa’s cap on foreign students
