@@ -1,11 +1,11 @@
 # Latest News
--  Свежи пари ще зарадват тези зодии във Вторник!
--  聯發科新竹高鐵辦公大樓動土 預計2027年落成、三千員工進駐
--  억측 난무한 ‘자백의 대가’, 고집불통 작가 잡으니 정상화 [홍세영의 어쩌다]
--  Phóng viên Iraq giận dữ tấn công HLV đội nhà, đòi phải từ chức sau khi ĐTQG bị loại khỏi Asian Cup 2023
--  1月30日上午越南国内市场黄金价格横盘整理
--  APSDRI raid on Nova: Case filed against Parchur MLA
--  Tech companies warn EU over encryption plans
--  CLIP: CSGT Tiền Giang truy bắt tài xế chở hàng cấm bỏ chạy trong đêm
--  『ガンダムSEED FREEDOM』LINEスタンプ発売 シン「分身はーーっ！こうやるんだ！」 - ORICON NEWS
--  Agong, Raja Permaisuri tetap di hati rakyat
+-  HWB Chartered Accountants senior to compete in snooker event
+-  Leão insaciável na Liga: Goleada por 8-0 volvidos 50 anos
+-  Noch eine Vollsperrung an der A1 – und dann freie Fahrt
+-  One Stop and Co-op shoplifters walk free after 32 incidents
+-  Met Office issues forecast on snow in Southampton
+-  Jyväskylä ja Kuopio ovat yhteisessä ahdingossa – Espoo saa yli 1 000 euroa enemmän valtionosuuksia asukasta kohden
+-  Potters and Erskine Court restaurants - What next after City Catering?
+-  How many illegal disposable vapes were found in Southampton?
+-  Cận cảnh AeroHT - mẫu xe điện bay nhà Xpeng
+-  Sander Dickkopp kann jetzt für Events gemietet werden
