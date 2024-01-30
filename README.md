@@ -1,11 +1,11 @@
 # Latest News
--  Link Live Streaming Persebaya Surabaya vs PSIS Semarang di BRI Liga 1, Segera Kick Off
--  Kiborgot csinált Elon Musk cége - chipet ültetett egy ember fejébe
--  Gorgeous European city has 300 days of sunshine and one of the world's best beaches
--  Burkina Faso, Mali and Niger quit Ecowas
--  ‘역대 2호 11000점 돌파’ 라건아, 쉬지 않고 뛰었다
--  ЗСУ взяли у полон елітних російських десантників: деталі спецоперації
--  2月22日は猫の日！ 木村屋總本店、動物パン（ねこ）や生チョコ コロネパイ！
--  ‘역대 2호 11000점 돌파’ 라건아, 쉬지 않고 뛰었다
--  LINEで粗大ごみ収集の申込・決済まで完結する行政向けサービス
--  Anime Adaptation Spy X Anya Infiltrates PS5, PS4 This Summer
+-  AI companies will need to start reporting their safety tests to the US government
+-  Menanti Nasib Ratusan Mahasiswa ITB, Terancam Tak Bisa Lanjut Kuliah
+-  DWP warning as people told to open letters or risk benefits being stopped
+-  NI KARCINOM U TRUDNOĆI NIJE PREPREKA ZA POTOMSTVO: Prof. dr Katarina Stefanović o onkološkim oboljenjima, lečenju, zdravom potomstvu
+-  Loganair zero-emissions flights planned for Orkney 2027
+-  중기부, “은행과 협력해 중소기업 구조개선 지원 확대”
+-  Esenyurt'ta komşuların ev taşlamalı kavgasına polis müdahalesi
+-  오기웅 차관 "중소기업 구조개선 위해 민·관 공동지원"
+-  Pereče stanje v zagorskem zdravstvenem domu. Odpoved je dalo več pediatrinj
+-  To najpopularniejsze oszustwo w sieci. Hakerzy mają nowy cel
