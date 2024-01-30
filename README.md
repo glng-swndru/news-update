@@ -1,11 +1,11 @@
 # Latest News
--  Marido da apresentadora confessa fraude e dá pormenores
--  Kanada Türkiye'ye ihracat kısıtlamasını kaldırdı
--  Rumah Warga Banjar Buleleng Roboh Setelah Hujan Lebat, Ini Temuan di TKP
--  Roma na gostovanju pobijedila fenjeraša, nastupili Bradarić i Bašić
--  VISIBABE U JANUARU: U dvorištu u centru Zrenjanina iznikli prvi vesnici proleća
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 30 януари /валутен калкулатор/
--  Director de la DGSPC y Defensor del Pueblo visitan Najayo Mujeres
--  Solo Grinvuda i kiks golmana dovoljni za pobedu Hetafea VIDEO
--  Fenerbahçe Galatasaray'ı ipten alan ismi transfer ediyor! Sosyal medyayı sallayan transfer...
--  PoC Exploits Heighten Risks Around Critical New Jenkins Vuln
+-  Airlines schedule more flights to Las Vegas from Bay Area for 49ers fans ahead of Super Bowl LVIII
+-  Ações da Gol despencam 33% após pedido de recuperação judicial nos EUA
+-  No rest for Gaza dead with swift burials, bodies dug up
+-  Teco Puji Level Permainan Indonesia, Sentil Laga Bali United Kontra Wakil Australia
+-  شكل "التسويق" في المستقبل
+-  Obermayer Awards verliehen: Erinnerung an jüdisches Schaffen
+-  Obermayer Awards verliehen: Erinnerung an jüdisches Schaffen
+-  116-й день войны в Израиле. Хронология событий
+-  "นางแบบ" ร้อง พี่เขยข่มขืน ใช้ปืนบังคับ คิดฆ่าตัวตาย
+-  Otac i sin osuđeni: Srušili policajca na tlo i poderali mu službenu odoru
