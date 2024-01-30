@@ -1,11 +1,11 @@
 # Latest News
--  Lionel Messi i Luis Suarez zdobyli po golu w sparingu Interu Miami. Amerykanie przegrali z Al Hilal 3:4
--  Wealth Solutions Report Announces Second Annual Wealth Exemplar Award Winners
--  Insolite. La région PACA fait la promotion des JO-2030... avec une photo des Alpes suisses
--  K-치킨 '영토 개척'…동남아에서 '한판승부'
--  "Et Denitsa ? Et Katrina ?", "Danse avec les stars" : le casting des danseurs officialisés, les internautes furax
--  The Week In Games: Killing Your Heroes, And More New Releases
--  Booking data point to further reduction in overcrowding on Mykonos, Santorini
--  Dona de funerária também morre após colisão com antas em BR
--  Az eredeti filmsorozat szereplőivel tér vissza a Szellemirtók
--  King Charles Is out of the Hospital, but His Extended Stay Caused ‘Unease’ — Report
+-  عدم اعتراض حسن روحانی
+-  尚悅‧嶺一房318萬沽 5年實蝕近四成
+-  Nets vs. Jazz prediction: NBA odds, picks, best bets for Monday
+-  آشتی‌کنان در اسلام‌آباد
+-  Ripple: 5 Reasons XRP Could Still Surge in 2024
+-  官方樓指連跌兩年 逾20年最長跌浪 連跌8個月累挫12% 業界：期待美減息扭跌勢
+-  The Supreme Court can’t punt on Trump’s disqualification without threatening the Constitution
+-  Северозапада може да получи до 60% държавна помощ за инвестиции
+-  Марката “Движение Трети март” вече е регистрирана. Президентът: Неизбежно е да се появи алтернатива на тези, които “се перат” (Обзор)
+-  افت تقاضای خودرو در ایالات متحده
