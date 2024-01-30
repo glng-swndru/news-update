@@ -1,11 +1,11 @@
 # Latest News
--  عدم اعتراض حسن روحانی
--  尚悅‧嶺一房318萬沽 5年實蝕近四成
--  Nets vs. Jazz prediction: NBA odds, picks, best bets for Monday
--  آشتی‌کنان در اسلام‌آباد
--  Ripple: 5 Reasons XRP Could Still Surge in 2024
--  官方樓指連跌兩年 逾20年最長跌浪 連跌8個月累挫12% 業界：期待美減息扭跌勢
--  The Supreme Court can’t punt on Trump’s disqualification without threatening the Constitution
--  Северозапада може да получи до 60% държавна помощ за инвестиции
--  Марката “Движение Трети март” вече е регистрирана. Президентът: Неизбежно е да се появи алтернатива на тези, които “се перат” (Обзор)
--  افت تقاضای خودرو در ایالات متحده
+-  TOP Oss verbreekt vloek van de uitgoals en stunt met zege op Cambuur Leeuwarden
+-  Coronation Street spoilers: Simon Barlow is crushed as Peter drops a bombshell on him
+-  Coronation Street spoilers: Sad exit as another character departs leaving their lover broken
+-  トントン拍子で出世していく人ほど「メールの返事が速い」納得の理由とは？ - トンデモ人事部が会社を壊す
+-  ‘A Gatsby Valentine’: Swanky White Rock show to take stage
+-  What Time Is the Super Bowl Where 'Sweetie' Taylor Swift Will Wear Football Jewelry Next to Her Boyfriend's Drunk Brother Before Endorsing Joe Biden?
+-  Орлы взлетели на вершину. Трубин помог Бенфике разгромить Эштрелу Амадору
+-  Περιστέρι: Μετ' εμποδίων η κυκλοφορία στη Λ. Κηφισού λόγω τροχαίου
+-  Kanada, Türkiye'ye silah ihracatı kısıtlamalarını kaldırdı
+-  Un fiscal de EEUU señala que Texas tiene derecho a "defenderse de una invasión"
