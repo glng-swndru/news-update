@@ -1,11 +1,11 @@
 # Latest News
--  Csökkent a nagy ipari cégek nyeresége Kínában
--  ONLINE: Obrovský slalom žien v Kronplatzi dnes (2. kolo, Svetový pohár, LIVE)
--  A Balatonnál márpedig vannak tanúhegyek, ahogy a bazalt is létezik
--  Il Gruppo Renault frena sull’IPO di Ampere
--  Comparison of iPads: Guide To Buy the Perfect iPad - Times of India
--  „Tohle nebylo dobrý…“ Akciemi ČEZ hýbou Rakušanovy výroky
--  ¿Quién era Tina Galindo?
--  OPINIÃO Arbitrar uma final
--  Potential Manchester United swap deal has just suffered an enormous blow
--  CAN 2023 : La mort d’un étudiant ivoirien à Dakar annoncée, les précisions de l’AMEESIS
+-  Economia portuguesa cresce 2,3% em 2023 e evita recessão no 4.º trimestre
+-  DA LI JE NJOJ MASK UGRADIO PRVI ČIP? Glumica filmova za odrasle se sama nudila, zvala ga je BOTOKS ZA MOZAK i htela da bude MAŠINA
+-  Rusya'dan İran'a misilleme açıklaması
+-  В Зельвенском районе родители променяли своего 10-летнего сына на «бутылку»
+-  Svíarnir fylgjast grannt með Maríu (myndskeið)
+-  Concurso Ipea reúne mais de 26 mil inscritos; veja concorrência!
+-  「本麒麟」をリニューアル キリンビール
+-  Stellantis, BlackBerry ve AWS'den sanal kokpit platformu
+-  Dava-Partei: Kommt die fünfte Kolonne des Sultans?
+-  Iz te vrste testa bodo nastali božanski štruklji
