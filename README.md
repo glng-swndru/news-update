@@ -1,11 +1,11 @@
 # Latest News
--  RED COMPARTIDA | Morelos se le va a Morena
--  Zwei Kandidaturen für die Ergänzungswahl eingereicht
--  Krčmář a Davidová vévodí české nominaci na mistrovství světa na Vysočině
--  Neues Restaurant in Krefeld: Noch ist es ein Geheimtipp - mediterran speisen im Heideck
--  Алі Башир: Джошуа зупинить Нганну за шість раундів
--  Bu defa zam değil indirim! O ilçede ekmek 5 TL oldu!
--  Mikes Anna így érzi magát Krausz Gáborral
--  旭川観光大使・坂口さん 有志が応援へＣＦ ３１日まで
--  ¿Aún tienes uno? 20 objetos cotidianos que casi han desaparecido
--  Camboya registra el segundo caso de gripe aviar en humano este año
+-  Fizetési meghagyás: itt tart Magyarország
+-  Erste Erfolge für die Grafinger Judoka
+-  Van Basten: ‘De ene keer kan hij er niets van en vervolgens is hij de koning’
+-  Sportlerwahl in Oberberg: Wer wird Mannschaft, Sportler und Sportlerin des Jahres 2023?
+-  Dschungelcamp 2024: Wer ist raus? Alle Infos zu Staffel 17
+-  Un año en estado vegetativo: qué declaró un policía que asistió a Guillermo Tournaben
+-  Ömer dizisinde Emine'nin performansı alkış topladı
+-  Kemal Rizadi dilantik Ahli Lembaga Pengarah SC
+-  Mohorič od velike trojice prvi v tekmovalnem pogonu
+-  突然被欽點！爸一彎腰「秒變貓皇坐騎」 鞠躬不敢動：該怎麼做
