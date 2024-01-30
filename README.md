@@ -1,11 +1,11 @@
 # Latest News
--  Összefut a nyál a szánkban ettől a francia ételpornótól
--  Vixy is the best early Pal in Palworld
--  Scope Ratings : Le Maroc a des perspectives économiques plus favorables que l’Afrique du Sud
--  La calle Aurora permanecerá cortada hasta el domingo
--  Беглов пригласил Путина на церемонию начала строительства Большого Смоленского моста
--  Aile'nin İbo'sunun yeni dizisi belli oldu! İşte o dizi
--  CHP’den istifa eden Battal İlgezdi’nin iddialarına Özgür Özel’den yanıt
--  Les lampadaires du pont Baudouin, à Huy, sont sauvés, ils seront conservés
--  英語のアクセントは、5つの法則で9割、解決！ 暗記する必要はなし！【書籍オンライン編集部セレクション】 - 7時間で英語が突然ハッキリ聞こえて会話が続く本
--  A világ legveszélyesebb helyszíne után a legmélyebbet is meghódította az oroszlányi búvár
+-  Unlocking the Future: VOC AI Revolutionizes Customer Experience and Empowers Businesses at CCW Austin 2024
+-  찰스 英 국왕, 전립선 비대증 수술 후 퇴원…“요양 위해 일정 조정”
+-  الهلال يصعق إنتر ميامي بثلاثية في الشوط الأول بحضور ميسي وسواريز.. فيديو - اليوم السابع
+-  Preot din Suceava, reclamat că pleacă la muncă în străinătate și lasă biserica pe mâna unei femei. ”Doamna ne conduce”
+-  Esquecida, 2ª fase da Operação Escudo da PM na Baixada Santista teve 8 mortos
+-  Почина легендата на българския биатлон Николай Захаров - Труд
+-  Welcome to the Wild World of Novelty Props for Super Bowl LVIII
+-  KRAJ DRAME U KOSOVSKOJ ULICI: Gorelo u zgradi Borbe, požar lokalizovan
+-  Vojni analitičar nakon napada na američke vojnike: Iran će dobiti po glavi
+-  MHP-Riesen nehmen erneut Anlauf auf Sieg gegen Telekom Baskets Bonn
