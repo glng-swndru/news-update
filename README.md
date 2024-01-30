@@ -1,11 +1,11 @@
 # Latest News
--  Nkom: Flere områder i Nord-Norge mangler internett- og mobildekning
--  The best type of salt for hypertension treatment; study discovers the component may control high BP
--  Scholz diskutoval so Sísím o situácii v Pásme Gazy
--  Pese a huelga, Audi mantiene propuesta de 6.5% de aumento a salario
--  Ordumuzun zabitini qətlə yetirən şəxs həbs olundu
--  Over 8000 aspirants to perform Hajj this year from J&K
--  "Faccio una previsione su Jannik Sinner...": Adriano Panatta da brividi, la sua "profezia"
--  Hausbesitzer in Bönnigheim wollen kaum investieren
--  JOVANA SE NE VRAĆA U JEDINSTVO: Jankovićka brzo napustila Užice - nije stigla ni da zaigra
--  Новые автомобили оснастят черными ящиками в Европе
+-  Wandern im Naturschutzgebiet: Welche Aktivitäten verboten sind – und welche Bußgelder drohen
+-  Bayern að kaupa gríðarlega efnilegan sóknarmann frá Svíþjóð
+-  «Такія ж людзі стваралі ДНР і ЛНР». Кандыдаты і апірышчы «русского мира» ў Беларусі
+-  Nyt toplevel-domæne er på vej - men du får ikke adgang til det på det åbne net
+-  Sweet Family Favorites to Celebrate Lent
+-  Erdogan legt SPD und Grüne rein: Erst Doppelpass, dann neue Partei
+-  Małgorzata Ostrowska-Królikowska przerywa milczenie. Rodzina się o nią martwi. "Tyle mieliśmy problemów"
+-  Casi 40% de los trabajadores disfruta su empleo como para rechazar una promoción, según informe
+-  Die Möhren-Ingwer-Suppe ist wie eine wärmende Umarmung, die man im Winter braucht
+-  Resilience étend sa solution de gestion des cyber-risques à des clients internationaux dont le chiffre d'affaires s'élève à 10 milliards de dollars
