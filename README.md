@@ -1,11 +1,11 @@
 # Latest News
--  Chủ tịch Hội NDVN Lương Quốc Đoàn trao quà Tết cho người dân tại 4 địa phương của An Giang
--  Грузинский генерал в отставке: «Смена правительства Грузии не повлияет на отношения с Азербайджаном»
--  Almanya'nın dev AVM'si iflas etti
--  INSÄNDARE: Detaljplanen för kvarteret Skjutbanan bör göras om
--  Хто рятує столичне метро: цікаві факти про компанію, якій віддали мільйони без тендера
--  Kakve su osobe koje nose ime Gordana?
--  MHP Genel Başkanı Devlet Bahçeli: "Kimse boş hayale kapılmasın Mersin bizim, Türkiye hepimizindir."
--  Kars'ta çocukların düşe kalka kızak keyfi
--  VinFast VF 8 trở thành xe mới có giá thuê rẻ nhất nước Mỹ ngay khi VF 9 rục rịch đến xứ cờ hoa
--  Provozierend, aufrüttelnd, heftig: Das war das Jazz-Konzert des Luca Zambito Quartetts in Wolfratshausen
+-  因狀態不佳而中斷活動的(G)I-DLE Minnie、雨琦！本週將出演音樂節目，想給粉絲們展現完整體舞台
+-  İran Dışişleri: "Netanyahu suça dayalı siyasi kariyerinin sonuna geldi"
+-  Έναρξη υλοποίησης των προγραμμάτων αγροτικής κατάρτισης από τον ΕΛΓΟ-ΔΗΜΗΤΡΑ
+-  Dschungel-Anya findet Aussage ihres Vaters "unter aller Sau"
+-  Trafikte kavga: Kadına bayıltan tokat
+-  New Delhi: Indian Navy Thwarts Second Hijacking Attempt in Arabian Sea within 24 Hours
+-  閉園決定の「あわしまマリンパーク」来場者の増加を受け悲痛の訴え
+-  Ministerien erklären gegenüber FOCUS online - Kein Leerflug! Jetzt kommt die Wahrheit über Baerbocks umstrittenen Flug ans Licht
+-  Пропаганда в действие: Съвместна държавна медия създават Русия и Беларус
+-  “윤석열 사단은 ‘전두환 하나회’” 이성윤, 검사징계위 회부
