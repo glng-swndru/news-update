@@ -1,11 +1,11 @@
 # Latest News
--  'Genius' BBQ trick found on river 'what Australia is all about'
--  Mumbai Police Seize Over 913Kg Of Contraband Worth ₹427.18 Crore In 2023; Ganja Tops List
--  아이유X박보검 ‘폭싹 속았수다’, 넷플릭스 공개 확정
--  “Hút tài lộc” bằng 5 sắc son đỏ cuốn hút
--  [Pick] "동물 학대인가, 전통 문화인가"…멕시코 '투우' 재개 논란
--  North Korea fires cruise missiles into sea, South Korea says
--  台灣科技產業將由AI領銜 外資：有利台股後市行情
--  넬리 코다, 세계랭킹 2위로 올라서
--  넬리 코다, 세계랭킹 2위로 올라서
--  EU·미국 규제 당국 반대에…아마존, 로봇청소기 제조업체 ‘아이로봇’ 인수 포기
+-  ‘I’m the first female admiral of the Royal Cork Yacht Club in it’s 300 year history’
+-  پاکستان: تعلیق کمک مالی به آنروا غیرقابل توجیه است
+-  Future exploration under threat as moon is actively shrinking and crumbling, scientists say
+-  معرفی متهمان دادگاه منافقین/ زهرا بخشایی؛ متهم ردیف سی‌ویکم
+-  Yolsuzluklardan kaynaklı adaylığını kabul etmiyoruz
+-  Colm Keys: Only limited scope exists for use of Television Match Official in Gaelic games
+-  অক্সফোর্ড বিশ্ববিদ্যালয়ে স্কলারশিপ, মাসিক বৃত্তি, বিমান টিকিটসহ নানা সুবিধা
+-  Gardaí fear missing man was buried in shallow grave, as skeletal remains found in Cork
+-  [슬라이드 포토] '금품 수수 혐의' KIA 김종국 前 감독·장정석 前 단장, 긴장한 채 법원 출석
+-  Режиссер Шахназаров назвал самодостаточным советский кинематограф
