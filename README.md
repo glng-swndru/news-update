@@ -1,11 +1,11 @@
 # Latest News
--  Турецкие гранды и Британия. Сидорчук назвал клубы, которые его приглашали
--  "LEDEJ, NEMOJ NIKAD DA SE MENjAŠ!" Kakva poruka Evrolige dan posle večitog derbija u kome je taj igrač Partizana razbesneo sve u Zvezdi
--  Jordan s dva gola u nadoknadi izbacio Irak
--  Βασιλιάς Κάρολος: Πήρε εξιτήριο από το νοσοκομείο μετά την επέμβαση στον προστάτη
--  Υπ. Παιδείας: Ψηφιακά οι εξετάσεις στα Πανεπιστήμια, στις υπό κατάληψη σχολές
--  진서연, 폭력 휘두른 父·남친 둔 청소년 엄마에 "어떻게 맞아야…"
--  Otežan pristup web stranici IDDEEA-e
--  Züge und Partys in den Niederlanden : So feiern Venlo und Roermond Karneval – ein Fahrplan
--  Денислав Стойчев с документална изложба в галерия „Синтезис“ - Труд
--  LIVE | Voor het eerst in weken luchtalarm in grote steden in Israël
+-  Superman Legacy Director James Gunn Says Batman Isn't In The Film
+-  After years of providing free accounting and invoicing software, Wave rolls out paid model
+-  SİBERGÖZ-20 operasyonu! Bakan Yerlikaya duyurdu: Bursa dahil 20 ilde 64 kişi yakalandı...
+-  Mulher é agredida e socorrida com traumatismo em Colíder; padrasto preso
+-  Украине предрекли недовольства из-за закона о мобилизации
+-  Man (38) verdacht van kinderen betasten en geslachtsdeel laten zien op schoolplein aangehouden
+-  الجامعات والعلاقات العاطفية
+-  Кристъл Палас привлича десен бек от Генк
+-  مرحبا بكم في "مهرجان صحار"
+-  German offshore wind power share drops as land network expands -TenneT
