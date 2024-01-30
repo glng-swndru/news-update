@@ -1,11 +1,11 @@
 # Latest News
--  Airlines schedule more flights to Las Vegas from Bay Area for 49ers fans ahead of Super Bowl LVIII
--  Ações da Gol despencam 33% após pedido de recuperação judicial nos EUA
--  No rest for Gaza dead with swift burials, bodies dug up
--  Teco Puji Level Permainan Indonesia, Sentil Laga Bali United Kontra Wakil Australia
--  شكل "التسويق" في المستقبل
--  Obermayer Awards verliehen: Erinnerung an jüdisches Schaffen
--  Obermayer Awards verliehen: Erinnerung an jüdisches Schaffen
--  116-й день войны в Израиле. Хронология событий
--  "นางแบบ" ร้อง พี่เขยข่มขืน ใช้ปืนบังคับ คิดฆ่าตัวตาย
--  Otac i sin osuđeni: Srušili policajca na tlo i poderali mu službenu odoru
+-  연두색 번호판이 부의 상징?…고가 법인車 판매 ‘급증’
+-  C0urt urged to accept $14.4M B.C. iPhone class action settlement
+-  Şehir eşkıyası taksicilere 18’er yıl hapis talebi
+-  Colombian Band Morat Shines at Madison Square Garden
+-  C0urt urged to accept $14.4M B.C. iPhone class action settlement
+-  Blizzard Developer Grabs 10 Years of WoW Time Before Being Laid Off
+-  C0urt urged to accept $14.4M B.C. iPhone class action settlement
+-  1.500 agricultores em protesto cercam Paris
+-  [상보] 뉴욕증시 3대 지수, 일제히 상승…S&P 또 사상 최고치
+-  Hypera (HYPE3) aprova pagamento de JCP no valor de R$ 61,6 milhões
