@@ -1,11 +1,11 @@
 # Latest News
--  César Vallejo evalúa contratar a Paolo Guerrero, Marcelo Martins o Teófilo Gutiérrez
--  أصدقاء البيئة ينظم رحلة للطالبات إلى إكسبو
--  الأسترالي قودوين: نحن أبطال هذه النسخة
--  سوني وفناك قطر ينظمان ورشا للتصوير الفوتوغرافي
--  Arab Saudi tak pandang Korea Selatan sebelah mata
--  السماك الأعزل يجاور القمر مرتين في سماء قطر
--  Taylor Swift podría decidir si Biden gana o pierde las próximas elecciones
--  Russian skater Kamila Valieva's titles stripped after four-year ban for doping - The Guardian
--  "캘리포니아 연안서 갓 태어난 백상아리 포착…온몸이 흰색"
--  Messi ghi bàn và kiến tạo, Inter Miami vẫn thua Al Hilal
+-  Dauðvona og sleppur við fangelsisdóm
+-  MAFS best man shocks with X-rated speech
+-  Cảnh sát cơ động Tây Bắc biểu diễn tước vũ khí, hạ gục tội phạm
+-  Vì sao Asanzo bị dừng thủ tục thông quan?
+-  Deel appartementencomplex verwoest door explosie en grote brand Rotterdam, een persoon gewond
+-  Deel appartementencomplex verwoest door explosie en grote brand Rotterdam, een persoon gewond
+-  Fue inaugurado el Parque Monumental Ana María Campos en Maracaibo
+-  Drie vermisten na explosie en grote brand in appartementencomplex in Rotterdam
+-  ‘동체 구멍’ 보잉 737 맥스9, 핵심 볼트없이 출고 가능성 무게
+-  Deel appartementencomplex verwoest door explosie en grote brand Rotterdam, een persoon gewond
