@@ -1,11 +1,11 @@
 # Latest News
--  Jedan od najvećih teniskih turnira na svijetu mijenja lokaciju nakon 38 godina
--  Kino-Meisterwerk als Notlösung: Dieser gefeierte Psychothriller sollte eigentlich nur ins Fernsehen
--  Danstävling med livet som insats – då bygger teatern om
--  GPS First XI Team of the Week; players of the round from 7As to 11As
--  Témoignages. Pourquoi nos agriculteurs ne s'en sortent plus : « Je dois 48 500 euros à la banque, je fais comment ? »
--  Central Asia could help the West break its dependence on China’s critical minerals
--  Pieter Jan Dijkman (Director WI/CDA): Autoridad di un gobierno ta pa sirbi e bon comun
--  Galatasaray'dan evinde kırılması zor rekor
--  Nieuwe Viaplay-topman Lodewick belooft verandering en vertrouwt op lang F1-avontuur
--  B.C. pushing for exemptions to Ottawa’s cap on foreign students
+-  Can Atalay için 57 barodan Numan Kurtulmuş'a açık mektup
+-  NIO ET7: עוד טסלה סינית? הרבה יותר
+-  Az ukránok már nagyon szeretnének találkozni Orbán Viktorral
+-  Tovább korlátozza az alapélelmiszerek árrését a román kormány
+-  ABD basını İHA saldırısının neden önlenemediğini yazdı. 3 ABD askeri hayatını kaybetmişti
+-  Pirataria cresceu em 2023 e preferiu The Last of Us e Oppenheimer
+-  Baby Clydesdale born at Warm Springs Ranch
+-  EastEnders spoilers: Knife horror as Nish Panesar launches attack on terrified Stacey Slater
+-  EastEnders spoilers: Linda’s moving gesture for Alfie ends with fresh agony for him
+-  Emmerdale spoilers: Look out Moira! Caleb’s wife Ruby ‘sets her sights on Cain’
