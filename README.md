@@ -1,11 +1,11 @@
 # Latest News
--  Pour protester contre le retour de Mathias Vicherat, les étudiants de Sciences Po Menton bloquent l’accès au campus ce mardi
--  Německá ekonomika v loňském 4. čtvrtletí vykázala pokles o 0,3 procenta
--  Nova opozorila o porastu te nevarne okužbe
--  CHP'nin İzmir adayı Cemil Tugay: İzmir'i Türkiye'nin en yaşanabilir şehri yapacağız
--  Ukrajina se pře o spermie. Nový návrh zákona budí vášně
--  Εκπαιδευτικές βολές και πτήσεις drone από το Ναυτικό ΓΕΕΦ
--  Povećan promet u trgovini na malo i uslužnim djelatnostima
--  ¿Repunte breve de la deuda? La atención se centra en la Fed y en los resultados
--  Uyuz olan çift, hayvanlarda kullanılan kremi sürünce hastanelik oldu
--  លោក Imran Khan ត្រូវជាប់ពន្ធនាគារ១០ឆ្នាំទៀត សម្រាប់បទចោទប្រកាន់ថ្មី
+-  Korištenje jastuka na pogrešan način često je uzrok ovog zdravstvenog problema
+-  아이브 안유진 ‘러블리한 인사~’ [포토]
+-  Centerpartiet värnar den gotländska folkbildningen
+-  "Un gros problème que j’avais à une jambe" : comment la vie de la réalisatrice Isabelle Mergault a inspiré le scénario du film Des mains en or
+-  „Das Geisterhaus“ auf Platz 1: Die besten Bücher des Jahres 2023 auf Reddit
+-  Så mycket kan regionskandalen ha kostat
+-  Azərbaycan kinosunun yaraşıqlı oğlanı: İçkini və göyərçinləri sevdi, təhna öldü, məzarı...
+-  Everything We Know About Indiana Jones and The Great Circle
+-  Gólů chci víc, hlásí Ton mladší nenasytně. V mé éře by dominoval, tvrdí táta
+-  На участие в «Играх будущего» в Казани уже заявились 107 стран
