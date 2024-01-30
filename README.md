@@ -1,11 +1,11 @@
 # Latest News
--  Jony Ive pensó en fusionar el MacBook Air y MacBook Pro
--  أخنوش: المغرب تمكن بفضل رؤية جلالة الملك من أن يصبح رائدا قاريا في مجال الطاقات المتجددة
--  曾國城慶生56歲 許願當金鐘十全老人 蔡尚樺感情凸槌衰捲詐騙案 自糗水逆太嚴重
--  古曜威把酷弟當店貓招財 驕傲寶貝貓是流量密碼
--  We Tried a Bunch of Amazon Must-Haves and These Ones Are Legit
--  鄭鎧文尋找舞台 變心有理
--  Lei da amnistia aos catalães já chegou ao Congresso, mas há um juiz que não desiste
--  財經青紅燈》Line pay股價值千元嗎?
--  北市二殯爭議未解 預算將朝野協商
--  Ισραήλ: Επανακατασκευή οικισμών στη Γάζα ζήτησαν Εβραίοι έποικοι
+-  Marido da apresentadora confessa fraude e dá pormenores
+-  Kanada Türkiye'ye ihracat kısıtlamasını kaldırdı
+-  Rumah Warga Banjar Buleleng Roboh Setelah Hujan Lebat, Ini Temuan di TKP
+-  Roma na gostovanju pobijedila fenjeraša, nastupili Bradarić i Bašić
+-  VISIBABE U JANUARU: U dvorištu u centru Zrenjanina iznikli prvi vesnici proleća
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 30 януари /валутен калкулатор/
+-  Director de la DGSPC y Defensor del Pueblo visitan Najayo Mujeres
+-  Solo Grinvuda i kiks golmana dovoljni za pobedu Hetafea VIDEO
+-  Fenerbahçe Galatasaray'ı ipten alan ismi transfer ediyor! Sosyal medyayı sallayan transfer...
+-  PoC Exploits Heighten Risks Around Critical New Jenkins Vuln
