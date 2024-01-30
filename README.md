@@ -1,11 +1,11 @@
 # Latest News
--  El rey Carlos III sale del hospital tras haber sido operado de la próstata
--  Herec Delon dostal soudní ochranu kvůli rodinnému sporu ohledně zdravotní péče
--  Former Blue Jays manager Jimy Williams passes away at age 80 - Sportsnet.ca
--  EU-Richtlinie zu Gewalt gegen Frauen: Mehr als 100 prominente Frauen schreiben offenen Brief an Justizminister Buschmann
--  Former Blue Jays manager Jimy Williams passes away at age 80 - Sportsnet.ca
--  Cụ bà 92 tuổi vẫn khỏe mạnh, minh mẫn dù từng mắc ung thư: Nhờ 1 bài tập không phải đi hay chạy bộ
--  Vẫn được hưởng chế độ thai sản
--  Pôle gare de Chartres : le puits découvert sous la chaussée comblé et la déviation levée sur le pont Casanova
--  Pål Morten Borgli kjemper mot Sandnes Frp i makt­kamp
--  Cómo fortalecer el sistema inmunológico a través de la alimentación
+-  BRICS to Dominate Global GDP by 2050
+-  Köstlicher Klassiker: Vegetarische Spinatknödel, schnell und einfach zubereitet
+-  Sechs Millionen Euro in zweieinhalb Stunden: Bürger stürzen sich auf Windkraft-Beteiligung
+-  Václav Hřích: Peter Pellegrini a Ivan Korčok sú vyrovnaní súperi. Môže sa to zmeniť, ak Igor Matovič príde so svojím kandidátom (podcast)
+-  Der Tag in Luxemburg: Heizöl wird teurer
+-  Nachruf - Große Trauer um Hermann Fuchsluger (61)
+-  Kao da nije riječ o izborima, već o borbi na život i smrt: Zašto Bidenu odgovara još jedan sraz s Trumpom?
+-  Riding With Rozay: How Rick Ross Built a High-Flying Life of Luxury
+-  Matteo Brunetti chciał podbić serce Magdy Gessler. Odrzucił pracę w TVP. Powodem... klatka [PLOTEK EXCLUSIVE]
+-  🚨 Sénégal - Côte d'Ivoire en direct : le choc des 8es de la CAN 2023 en Live !
