@@ -1,11 +1,11 @@
 # Latest News
--  Qatar reach quarters after win over gritty Palestine
--  පළාත් කිහිපයකට අදත් විටින් විට වැසි
--  Commuter chaos as Sydney teen seriously injured falling from train at St Peters Station
--  Cops seize P829-K ‘shabu’ in Magalang
--  VIDEO Delphine Wespiser change de look ! Sa nouvelle tête ne plait pas, même à ses parents !
--  Biden yönetimiyle Teksas arasındaki anlaşmazlık büyüyor
--  ديلغادو يعلق على أنباء رحيله عن الهلال.. ومواجهة ميسي في كأس موسم الرياض
--  НБА. «Кливленд» – «Клипперс», «Оклахома» против «Миннесоты», «Милуоки» в гостях у «Денвера» и другие матчи
--  Órgãos de inteligência estão contaminados, diz Alexandre Padilha
--  ЕС притиска Орбан, Унгария отстъпва за Украйна
+-  Jony Ive pensó en fusionar el MacBook Air y MacBook Pro
+-  أخنوش: المغرب تمكن بفضل رؤية جلالة الملك من أن يصبح رائدا قاريا في مجال الطاقات المتجددة
+-  曾國城慶生56歲 許願當金鐘十全老人 蔡尚樺感情凸槌衰捲詐騙案 自糗水逆太嚴重
+-  古曜威把酷弟當店貓招財 驕傲寶貝貓是流量密碼
+-  We Tried a Bunch of Amazon Must-Haves and These Ones Are Legit
+-  鄭鎧文尋找舞台 變心有理
+-  Lei da amnistia aos catalães já chegou ao Congresso, mas há um juiz que não desiste
+-  財經青紅燈》Line pay股價值千元嗎?
+-  北市二殯爭議未解 預算將朝野協商
+-  Ισραήλ: Επανακατασκευή οικισμών στη Γάζα ζήτησαν Εβραίοι έποικοι
