@@ -1,11 +1,11 @@
 # Latest News
--  Cách vận hành của đường dây sản xuất sữa giả quy mô lớn
--  機師年薪400萬↑ 他曝「高薪殘酷代價」嘆玻璃飯碗：難在天賦
--  분신까지 이어진 택시기사 ‘월급’ 보장 안 한 21개 회사 적발
--  Toàn cảnh vụ Rashford nổi loại ở MU, trước nguy cơ trở thành một Jadon Sancho mới
--  Le poison de l’amour
--  Веганство за начинаещи: Какво трябва да знаете
--  4-те най-нахални и нетактични зодии
--  Hamster Corporation Celebrates 400 Arcade Archives Titles On Switch
--  鈴を背負って農業と牧羊業の繁栄願う スペイン北部でカーニバル
--  На окраине Калуги сбили беспилотник
+-  Nach tödlichem Unfall: Anwohner fordern Verkehrsberuhigung für B56 in Much-Wellerscheid
+-  Karneval 2024 in Herten: Für närrische Sparfüchse – Diese Kostüme gibt es für unter 20 Euro
+-  S11 nach Köln: S-Bahn-Ausbau in Bergisch Gladbach könnte 2027 starten
+-  Sanierung im Maritimo in Oer-Erkenschwick: Was bedeutet das für die Gäste in Sauna und Bad?
+-  Κακοκαιρία Avgi: Ποια σχολεία είναι κλειστά και που εφαρμόζονται κυκλοφοριακές ρυθμίσεις - Πώς θα κινηθεί ο χιονιάς
+-  Zentrum soll attraktiver werden: Spaziergang mit Waltrops Stadtspitze durch die Innenstadt
+-  Контролираш машини с мисъл: Първи човек вече има такъв чип, похвали се Мъск
+-  Алкохол през зимата: Измама за тялото
+-  Bauarbeiten in Datteln : Westnetz verlegt neue Leitungen und Anschlüsse
+-  Portsmouth new boy on why Fratton Park is 'perfect' for fresh career challenge after rejecting Rotherham and Derby
