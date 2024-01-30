@@ -1,11 +1,11 @@
 # Latest News
--  BRICS to Dominate Global GDP by 2050
--  Köstlicher Klassiker: Vegetarische Spinatknödel, schnell und einfach zubereitet
--  Sechs Millionen Euro in zweieinhalb Stunden: Bürger stürzen sich auf Windkraft-Beteiligung
--  Václav Hřích: Peter Pellegrini a Ivan Korčok sú vyrovnaní súperi. Môže sa to zmeniť, ak Igor Matovič príde so svojím kandidátom (podcast)
--  Der Tag in Luxemburg: Heizöl wird teurer
--  Nachruf - Große Trauer um Hermann Fuchsluger (61)
--  Kao da nije riječ o izborima, već o borbi na život i smrt: Zašto Bidenu odgovara još jedan sraz s Trumpom?
--  Riding With Rozay: How Rick Ross Built a High-Flying Life of Luxury
--  Matteo Brunetti chciał podbić serce Magdy Gessler. Odrzucił pracę w TVP. Powodem... klatka [PLOTEK EXCLUSIVE]
--  🚨 Sénégal - Côte d'Ivoire en direct : le choc des 8es de la CAN 2023 en Live !
+-  Mehr als 1100 Unterstützer: Petition soll beliebte Veranstaltung „Live am Biotop“ in Beeden retten
+-  Víte, co je KISS? Systém varování od O2 pomáhá v krizových situacích, funguje už 10 let
+-  HEP JAVLJA Dio Dalmacije sutra bez struje
+-  Минобороны Украины опубликовало сообщение на фоне слухов об отставке Залужного
+-  Britney Spears apologizes for speaking her truth in The Woman In Me
+-  सरफराज खान की वो खूबी जो उन्हें सभी से बनाती है अलग, प्लेइंग इलेवन में जगह मिलना पक्का
+-  Załużny miał zostać odwołany. Wcześniej wielokrotnie krytykował Zełenskiego
+-  Juízes substitutos são empossados e reforçarão comarcas de Mato Grosso
+-  Čtyřletý zákaz. Arbitráž potrestala ruskou krasobruslařku za doping
+-  Lamar Jackson may win MVP, but he's still second fiddle to Patrick Mahomes
