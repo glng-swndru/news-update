@@ -1,11 +1,11 @@
 # Latest News
--  Can Atalay için 57 barodan Numan Kurtulmuş'a açık mektup
--  NIO ET7: עוד טסלה סינית? הרבה יותר
--  Az ukránok már nagyon szeretnének találkozni Orbán Viktorral
--  Tovább korlátozza az alapélelmiszerek árrését a román kormány
--  ABD basını İHA saldırısının neden önlenemediğini yazdı. 3 ABD askeri hayatını kaybetmişti
--  Pirataria cresceu em 2023 e preferiu The Last of Us e Oppenheimer
--  Baby Clydesdale born at Warm Springs Ranch
--  EastEnders spoilers: Knife horror as Nish Panesar launches attack on terrified Stacey Slater
--  EastEnders spoilers: Linda’s moving gesture for Alfie ends with fresh agony for him
--  Emmerdale spoilers: Look out Moira! Caleb’s wife Ruby ‘sets her sights on Cain’
+-  Lionel Messi i Luis Suarez zdobyli po golu w sparingu Interu Miami. Amerykanie przegrali z Al Hilal 3:4
+-  Wealth Solutions Report Announces Second Annual Wealth Exemplar Award Winners
+-  Insolite. La région PACA fait la promotion des JO-2030... avec une photo des Alpes suisses
+-  K-치킨 '영토 개척'…동남아에서 '한판승부'
+-  "Et Denitsa ? Et Katrina ?", "Danse avec les stars" : le casting des danseurs officialisés, les internautes furax
+-  The Week In Games: Killing Your Heroes, And More New Releases
+-  Booking data point to further reduction in overcrowding on Mykonos, Santorini
+-  Dona de funerária também morre após colisão com antas em BR
+-  Az eredeti filmsorozat szereplőivel tér vissza a Szellemirtók
+-  King Charles Is out of the Hospital, but His Extended Stay Caused ‘Unease’ — Report
