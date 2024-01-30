@@ -1,11 +1,11 @@
 # Latest News
--  Ona je jedna od 10 djevojaka koje njezin dečko ima: ‘Nikada se neće skrasiti, ali ja se svejedno nadam da sam ona prava’
--  Valtatie 8 tulisi nelikaistaistaa koko matkaltaan
--  RATP : la CGT dépose un préavis de grève pour une période de sept mois
--  Giovanni et Cassandra (Les apprentis aventuriers) : plus personne ne peut les supporter
--  Internet : jeune ou senior, chacun est sensible à la publicité en ligne
--  ਕਰੀਨਾ ਦੀ ਰੈੱਡ ਸਾੜੀ ਤਾਂ ਵੇਖੋ
--  CORSAIR K55 CORE, análisis: un teclado gaming de membrana para presupuestos ajustados
--  Spotlight turns to Ukraine, carbon price as Parliament returns in Ottawa
--  Berkeley astrophysicist Gibor Basri interprets the stars
--  Валиева не оспаривала факт наличия триметазидина в ее допинг-пробе. Она не смогла доказать, что нарушение антидопинговых правил было непредумышленным
+-  Zagrebački holding zapošljava nove radnike, evo koje pozicije su otvorene
+-  Cora Schumacher fordert Heimreise ihres Dschungelbegleiters!
+-  이상호 전 대통령비서실 행정관 "부산진구 재도약 이뤄내겠다"
+-  Елена Вайцеховская: «Как могло случиться, что на ОИ оказался спортсмен с грязной допинг-пробой? Это вопрос к людям, которые продолжают управлять российским спортом»
+-  HanuMan Box Office: Prasanth Varma, Teja Sajja film joins elite list of Telugu films that did Rs 100 crore plus profits on theatrical business
+-  Merck-Eigentümer bekommt neuen Vorsitzenden
+-  Metro B, aggiudicata la gara per sostituire ascensori e scale mobili
+-  Che vuole fare Giorgia Meloni con il famoso Piano Mattei
+-  Prio está preparada para novos investimentos na casa de bilhão, diz presidente da empresa
+-  Руската фигуристка Камила Валиева получи 4-годишно наказание за допинг
