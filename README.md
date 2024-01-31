@@ -1,11 +1,11 @@
 # Latest News
--  Unglück in den Tiroler Alpen: Junge Skitourengeherin 100 Meter abgestürzt
--  Meli Bedeli'nin Jartiyerli Pozları Sosyal Medyada Gündem Oldu
--  Более тяжелое течение гриппа у мужчин объяснили
--  Bursa expects local bourse to perform better this year on higher corporate earnings
--  Khung hình tinh hoa hội tụ: Park Shin Hye - Park Hyung Sik hội ngộ Park Seo Joon - Choi Woo Sik nhờ 1 tài tử gia thế khủng
--  "Брага" рассталась с двумя игроками перед матчем с "Карабахом"
--  Tak Ingin Pemilu Kelam 2019 Terulang, Atang Trisnanto Minta Pemkot Bogor Kerahkan Nakesling
--  «Wir tragen Sorge zu unserem Personal»: Jetzt reagiert BOGG-Direktor auf die Kritik seiner Angestellten
--  北電、純損益黒字転換 ４～１２月期 燃料価格下落で差益
--  Azərbaycanda 14 yaşlı qız uşaq dünyaya gətirdi: Onu qaçıran şəxsə bu cəza verildi
+-  Tenista Rune ukončil spoluprácu s Lüthim, dlhoročným trénerom Federera
+-  U fontani liječnika iz Brčkog pronađeni ostaci još jedne osobe
+-  Magali, infirmière au CFA à Vannes, 19 ans au service du don de sang
+-  На Онкологија не се кратело на лекови, туку непотребно се набавувале и давале
+-  Hakan Sabancı ile evlenecek mi? Hande Erçel'den sürpriz cevap
+-  Cựu Chủ tịch Khánh Hoà Nguyễn Chiến Thắng bị tuyên phạt tổng cộng 22,5 năm tù
+-  VIDEO ⟩ Piesaistīts ķīmiķis no ārvalstīm. Kas zināms par metamfetamīna laboratoriju Latgalē?
+-  Едно птиче ще каже нещо важно на 3 зодии!
+-  Skandal neviđenih razmera: Muž Seke Aleksić napravio dete dadilji?! Društvene mreže gore
+-  Trabzonspor şampiyonluk sonrası çöküşe geçti
