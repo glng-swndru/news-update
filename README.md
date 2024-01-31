@@ -1,11 +1,11 @@
 # Latest News
--  Kazakhstan spots growth in remittances via ICS
--  Hannes-Kropfreiter-Preis - Ein junger Preis mit einem altbekannten Namen
--  Mbappé - PSG : L’ultimatum est lancé !
--  N.L.'s oil industry buoyant as cost-conscious Equinor seeks to retool stalled project
--  Issing: Beim Frittieren Küche in Brand geraten
--  LINE、自分の写真からビジネス風写真をAI生成する「AIビジネス」
--  Több mint nyolcvan pincészet kétszáz borát kínálja a Furmint Február Nagy Kóstoló
--  Strani vs. domaći radnici: Vrijede li ista radna prava za sve?
--  Southside resident concerned over unethical animal breeding
--  Após jogo polêmico, Vasco faz confronto direto com Nova Iguaçu no Campeonato Carioca
+-  ‘환상연가’ 박지훈♥홍예지, 죽음 위기 이겨내고 눈물로 재회
+-  Eşinin sevgilisini 2 oğlu ile öldürdü! Korkunç cinayette istenen ceza belli oldu
+-  アメリカが"パビリオン"デザイン発表 最先端技術やエンターテイメントに『没入』する空間に 万博
+-  Denizden resmen canavar yakaladı! O balığın boyunu ölçmeye metre yetmiyor: Balıkçı tezgahında görenler küçük dilini yuttu
+-  Новак: Россия не ведёт переговоров о транзите газа через Украину
+-  Rubano furgone della ditta edile con 20mila euro di materiale, scovati con il Gps
+-  RED COMPARTIDA | Mancera a la GAM
+-  Прибыль российской «дочки» Райффайзенбанка упала на треть
+-  Ermənistan 3 rayonun mina xəritələrini Azərbaycana təhvil verir
+-  "الحياة الفطرية" لـ"اليوم": حزمة مشاريع نوعية لحفظ أشكال التنوع الأحيائي بالشرقية
