@@ -1,11 +1,11 @@
 # Latest News
--  क्रिष्टल प्यालेसले शेफिल्ड युनाइटेडलाई हरायो
--  Ngôi vị nền kinh tế lớn thứ ba thế giới có thể sớm đổi chủ: Ngôi sao đang lên đe doạ vị thế một loạt siêu cường từng nhiều thập niên
--  逛街換新鈔！ 新光三越、環球購物中心「台新銀ATM」明起順手領
--  Yelp introduces AI-generated summaries of restaurants, bars, and more
--  ADAM is the barista robot ready to serve you a drink
--  Are 'love languages' the key to healthy relationships? Scientists say no.
--  NASA photos reveal serious damage to its Mars Ingenuity helicopter
--  Китай выразил готовность укреплять стратегическое сотрудничество с Россией
--  Yelp introduces AI-generated summaries of restaurants, bars, and more
--  ADAM is the barista robot ready to serve you a drink
+-  Embarazo bajo el agua: La guayaquileña que compite en apnea en pleno estado de gestación
+-  "הפרלמנט שפתחנו מעלים את האימה": ביקור באולפן הפודקאסט של דליה גוטמן
+-  艾瑪史東進妓院「體驗」生命 《可憐的東西》二度封后希望濃
+-  Highlights of Tesla CEO Elon Musk's court ruling: Mars, Frankenstein, a self-driving car pun
+-  NYANDEMO: Time to focus on pro-growth economic policies
+-  La rebelión del agro contra las leyes ambientales en Europa / Análisis Mauricio Vargas
+-  Lemon and Jinja hosts most successful clothes swap in Romsey yet
+-  Hà Nội: Xe ôm "chuyển nghề" ship đào Tết, kiếm tiền triệu mỗi ngày
+-  Paultons Park recognises decades of service from loyal employees
+-  Broadway star Chita Rivera dies at 91
