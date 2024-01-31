@@ -1,11 +1,11 @@
 # Latest News
--  МВФ підвищив оцінку зростання світової економіки за минулий рік
--  TBMM Başkanı Kurtulmuş, BAE Devlet Başkanı Al Nahyan ile bir araya geldi
--  Live: Geschützt gegen Extremisten?
--  B.C. health minister to outline new investments in cancer care and research
--  Volkswagen Still Seeking Investor for Battery Unit Despite Slower EV Growth
--  Fær að vera í fríi í heimalandinu en holdafar hans vekur þar athygli
--  Rekonstruktion der Drogenrazzia in Castrop-Rauxel: So lief der Zugriff auf die Cannabis-Plantage ab
--  Un joueur de l’OM brisé par son transfert avorté ?
--  Will the Gaza violence spill over into Australia?
--  Man Utd must learn from genius £22m PL transfer, make 21-year-old EFL gem top target - opinion
+-  Aktualizovali podmienky projektu Zelená domácnostiam
+-  Sagði nei við Liverpool
+-  Создавая прочный фундамент для новых достижений
+-  Кабмін передав до Ради оновлену версію законопроекту про мобілізацію: основні положення
+-  Radikalno na Marjanu: Park šuma uskratit će dozvole za promet vlasnicima poljoprivrednog zemljišta i nelegalnih objekata
+-  Tırda şeker komasına giren sürücüyü itfaiyeciler kurtardı
+-  IVG : l'Assemblée adopte à une très large majorité l'inscription d'une "liberté garantie" dans la Constitution
+-  BRUTALNO UBISTVO U DOBOJU: Muškarac vezan za drvo pa iskasapljen nožem, na ustima imao selotejp
+-  IVG : l'Assemblée adopte à une très large majorité l'inscription d'une "liberté garantie" dans la Constitution
+-  Stefan Jović dočekan aplauzima i ovacijama!
