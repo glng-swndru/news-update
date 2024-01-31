@@ -1,11 +1,11 @@
 # Latest News
--  Readers respond: The big picture on global warming
--  Bad Reichenhall: Ausbruch wie im Film – Häftling seilt sich mit Bettlaken ab
--  CEO de Microsoft, Satya Nadella, alarmado por deepfakes de Taylor Swift
--  No Olympic bronze for Canada despite Russian figure skating disqualification
--  Nach kurioser Axt-Attacke in Unna: Beschädigter Telefonmast vorerst gesichert
--  KRÖNIKA: ”Vi är inte identiska med det evolutionen gjorde oss till”
--  Hollabrunner Vorlesungen - Der „Musikant Gottes“ programmatisch oder absolut: „Wen juckt's?“
--  Encefalitis equina: enfermedad detectada en humanos
--  Masih Betah di MU, Casemiro Tepis Kabar Pindah ke Arab Saudi
--  Yarding, handy dog finals closely contested
+-  JANJUŠ HOĆE DA PUKNE OD LJUBOMORE Aneli prebacio jednu stvar, pa otkrio koga jedva čega da vidi
+-  Amerikanci u panici: Jedan potez Moskve i kraj
+-  Dresden: Alter Leipziger Bahnhof - Ausschreibung für Konzept gestartet
+-  SSAB:n tuloksen odotetaan puolittuvan, syklin pohja käsillä
+-  La Haute-Loire prend du retard sur l'installation de bornes de recharge pour les véhicules électriques
+-  Die Klimakleber haben ihrem Ziel geschadet - gut, dass sie anders protestieren wollen
+-  ‘Sci-Fi Horror’: No one is pleased at Musk’s announcement he put a Neuralink chip in a human
+-  Richard H. Lawrence, Jr.'s Second Book, "Carbon Done Correctly: A Model for Climate Mitigation from the Global South to Wall Street" is Now Available Nationwide
+-  Bustling market days for Spring Festival mirror China's economic vitality
+-  Експрем’єр Фінляндії Стубб випереджає конкурентів на посаду президента – опитування
