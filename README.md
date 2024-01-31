@@ -1,11 +1,11 @@
 # Latest News
--  Hrósar Íslendingnum unga í hástert
--  Bullpadel se asegura talento y futuro con un fichaje de la generación del 2004
--  Mnogi zbog izraelskih optužbi ne žele više davati novac UN-ovoj agenciji, evo što kaže naš MVEP
--  „Cu sau fără Orban'', UE va găsi o soluţie să ajute Kievul, spune Donald Tusk
--  Кабмин примет постановление в связи с утилизационным сбором
--  Maior do mundo, fundo soberano da Noruega tem lucro recorde de US$ 213 bilhões em 2023
--  Chantal Andere revela que estuvo con Tina Galindo antes de morir: "pudo escucharme"
--  Tardeo en Cort
--  [출마합니다] 황운하 '중구' 출마 공식 선언… "검찰개혁 완수"
--  Xbox’a göre Apple'ın “AB App Store” planı yanlış
+-  İspanya'da bölücülüğe af çıkmadı
+-  UDRUGA "HUMANITAS" Ovi ljudi otvorili su humanitarni butik, planiraju ih imati po cijeloj BiH
+-  É preciso redireccionar para o clima os biliões que vão para combustíveis fósseis na UE
+-  Ein neuer „Blitzer“ ist auf jeden Fall drin im Eschacher Haushalt
+-  Ein neuer „Blitzer“ ist auf jeden Fall drin im Eschacher Haushalt
+-  Haland spreman za Barnli
+-  بدء عرض مسرحية "منتهي بالتهليك" بالرياض 6 فبراير
+-  'Somos país da carne, mas só comemos frango': a crise na Argentina à espera de promessas de Milei
+-  పోలింగ్‌ కేంద్రాల వద్ద ఓటర్ల జాబితాలేవీ?
+-  Bauern-Proteste im Landkreis Nienburg: Mahnfeuer und Kundgebung
