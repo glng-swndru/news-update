@@ -1,11 +1,11 @@
 # Latest News
--  El primer ministro británico Sunak pone en marcha un nuevo consejo empresarial
--  "Від 40 до 60 хвилин": Володимир Зеленський зізнався, чим займається у вільний час
--  Z trhu sťahujú dve šarže lieku na zníženie vysokých hladín vápnika
--  Tim Joko Tingkir Ringkus Pencuri yang Bobol Minimarket 7 Kali di Lamongan
--  Không phải mọi việc đều suôn sẻ: Bộ trưởng Quốc phòng Nga thị sát việc sản xuất pháo tự hành mới
--  Oglasio se šef onkologije KBC-a Split: Poveli su hajku na mene, a sada će javnost čuti istinu
--  Hinweise für Konsumenten: Woher kommt das Fleisch? Neue Kennzeichnung verspricht Klarheit für Verbraucher
--  Belediye can dostlarını unutmuyor
--  Talas Mehmet Karamercan Kütüphanesi'nde büyük gün
--  "Tā nav neitrāla organizācija." Izraēla izvirza jaunas apsūdzības ANO Palestīniešu bēgļu lietu aģentūrai
+-  Kazakhstan spots growth in remittances via ICS
+-  Hannes-Kropfreiter-Preis - Ein junger Preis mit einem altbekannten Namen
+-  Mbappé - PSG : L’ultimatum est lancé !
+-  N.L.'s oil industry buoyant as cost-conscious Equinor seeks to retool stalled project
+-  Issing: Beim Frittieren Küche in Brand geraten
+-  LINE、自分の写真からビジネス風写真をAI生成する「AIビジネス」
+-  Több mint nyolcvan pincészet kétszáz borát kínálja a Furmint Február Nagy Kóstoló
+-  Strani vs. domaći radnici: Vrijede li ista radna prava za sve?
+-  Southside resident concerned over unethical animal breeding
+-  Após jogo polêmico, Vasco faz confronto direto com Nova Iguaçu no Campeonato Carioca
