@@ -1,11 +1,11 @@
 # Latest News
--  Alimpijević neuspešan protiv lidera Evrokupa
--  Sutjeska posustala u finišu, pretrpjela peti poraz
--  Französische Verfassung: Freiheit zur Abtreibung rückt näher
--  Tigard woman sentenced to more than 8 years in prison in child abuse case
--  La firma de pagos PayPal recortará unos 2.500 empleos - Bloomberg News
--  La société de paiement PayPal va supprimer environ 2 500 emplois - Bloomberg News
--  Los Premios Rei Jaume I reclaman apoyo para acercar la ciencia a las pymes
--  The 50 Best Shows On Netflix Right Now (February 2024)
--  ΤΟΝ ΗΘΕΛΑΝ ΠΙΣΩ
--  ŽRTVA NASILJA Bojala sam se prijaviti jer sam mislila da neću ništa moći dokazati
+-  Lebt der EURO-Traum? Alaba schuftet am Comeback
+-  Oğuz: İki vatandaşımızın suya kapıldığı ve kurtarıldığı iddia ediliyor
+-  Gov. Tina Kotek, local leaders declare 90-day fentanyl state of emergency for downtown Portland
+-  Mostra presente de luxo oferecido por Ronaldo no aniversário
+-  Poučení z Francie. Na otázku „proč“ zkouším občas odpovídat „proto“ i tady
+-  Štraus je svoje najlepše delo komponovao u čast Srbije! Nakon decenije zaborava, ponovo se čuje i to na bečkom dvoru!
+-  Miçotakis: Türkiye çok önemli bir savunma sanayii ihracatına sahip
+-  ЮАР заявила о заинтересованности стран Глобального Севера в работе с БРИКС
+-  Femta raka förlusten för Modo – tappade ledningigen
+-  Śpiewak: Nie sądziłem, że osoby umoczone w aferę reprywatyzacyjną wrócą tak szybko
