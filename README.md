@@ -1,11 +1,11 @@
 # Latest News
--  Auf dem Jungfraujoch fehlen immer noch die chinesischen Reisegruppen – ist das ein Problem für den Schweizer Tourismus?
--  Pop icon sparks romance rumours
--  Bay cleared after wastewater overflow
--  Skulle se kåsan i Vimmerby – utsatt för dramatiskt rån
--  TQ Eurocredit y StockcrowdIN: La fórmula que permite a un exitoso grupo promotor culminar un ambicioso proyecto inmobiliario en Altafulla
--  El Gobierno rechaza cambiar el calendario de cierre de las centrales nucleares en España
--  ‘Really focused on the baby’: What new mothers are missing after giving birth
--  David Brooks ist der Lieblings-Konservative von Amerikas Liberalen. Er sagt: «Donald Trump gibt unsichtbaren Menschen das Gefühl, gesehen zu werden»
--  DEBATT: Förutsägbarhet kan vara Sundsvalls stora superkraft
--  Was Grossverdiener und Firmen in der Schweiz 2024 an Steuern bezahlen: Rangliste der Kantone mit den tiefsten und den höchsten Belastungen
+-  Từ thứ bị coi là đã chết vì bán ế, chiếc điện thoại này là thủ phạm "kéo sập" đế chế huy hoàng của Nokia
+-  Kratkotrajna promjena: U srijedu oblačnije i hladnije, u noći moguća i kiša
+-  El FMI empeoró su proyección sobre la Argentina al estimar una recesión del 2,8% este año: qué dijo de la alta inflación
+-  Kultur in Hilden und Haan: Der Oma-Trick kommt zurück auf die Bühne
+-  광주서 50대 기초생활 수급자 홀로 숨진 채 발견
+-  Cleanup underway in South East Qld following heavy rainfall
+-  Breaking barriers: Somalia’s Bilan launches landmark women-led current affairs TV show
+-  Gotovo je; Dinamo prihvatio ponudu iz Grčke, Boysi opet bijesni
+-  Itoobiya oo ka codsatay IGAD shir degdeg ah oo looga hadlayo xiisadda gobolka ka taagan
+-  Yılmaz Akçil kimdir?
