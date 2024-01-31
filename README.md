@@ -1,11 +1,11 @@
 # Latest News
--  Từ thứ bị coi là đã chết vì bán ế, chiếc điện thoại này là thủ phạm "kéo sập" đế chế huy hoàng của Nokia
--  Kratkotrajna promjena: U srijedu oblačnije i hladnije, u noći moguća i kiša
--  El FMI empeoró su proyección sobre la Argentina al estimar una recesión del 2,8% este año: qué dijo de la alta inflación
--  Kultur in Hilden und Haan: Der Oma-Trick kommt zurück auf die Bühne
--  광주서 50대 기초생활 수급자 홀로 숨진 채 발견
--  Cleanup underway in South East Qld following heavy rainfall
--  Breaking barriers: Somalia’s Bilan launches landmark women-led current affairs TV show
--  Gotovo je; Dinamo prihvatio ponudu iz Grčke, Boysi opet bijesni
--  Itoobiya oo ka codsatay IGAD shir degdeg ah oo looga hadlayo xiisadda gobolka ka taagan
--  Yılmaz Akçil kimdir?
+-  Traditions-Brauerei ist insolvent: Betrieb wird in wenigen Tagen komplett eingestellt
+-  “1기 신도시 기준 용적률 300% 내외…선도지구 2곳도 지정 가능”[일문일답]
+-  La pusher ciclista con 2 etti di droga nel cestello della bici
+-  Ärger in Aidlingen: Gebühren viel zu niedrig: Bürger werden zur Kasse gebeten
+-  Vence hoy el congelamiento del impuesto a los combustibles y mañana podría aumentar nuevamente la nafta
+-  උදාවී ඇත්තේ ජනතාව බේරාගැනීමේ අවසන් අවස්ථාවයි
+-  à¶‹à¶¯à·�à·€à·“ à¶‡à¶­à·Šà¶­à·š à¶¢à¶±à¶­à·�à·€ à¶¶à·šà¶»à·�à¶œà·�à¶±à·“à¶¸à·š à¶…à·€à·ƒà¶±à·Š à¶…à·€à·ƒà·Šà¶®à·�à·€à¶ºà·’
+-  Jai HanuMan: Prasanth Varma wants Mahesh Babu on board as THIS character in the Teja Sajja film
+-  Ardanowski zaskakuje. "Kamiński i Wąsik nie powinni startować do PE"
+-  Latest Gold-Silver Prices Today: రెండు వారాల గరిష్టంలో గోల్డ్‌ - ఈ రోజు బంగారం, వెండి కొత్త ధరలు ఇవే
