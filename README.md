@@ -1,11 +1,11 @@
 # Latest News
--  Bunu yapmayan artık aracını satamayacak, bugün son gün!
--  CHP ve Zafer Partisi itiraz etti! YSK kararını verdi
--  Ísland í dag - Hvaða lið mætir Víkingi í úrslitum?
--  SPD: Lars Klingbeil drängt Länder auf Umsetzung der Abschiebepläne
--  Spánn í dag - Barcelona fær Osasuna í heimsókn
--  England í dag - Stórleikur á Anfield
--  Meistaradeild kvenna í dag - Riðlakeppnin klárast
--  Starbucks' Viral Olive Oil Drinks Now Available Nationwide
--  Pilot USA sa katapultoval ešte pred zrútením stíhačky F-16 do mora, informoval Soul
--  ‘Guarantees will be stopped if Congress doesn’t get more Lok Sabha seats’: Karnataka MLA HC Balakrishna
+-  VIDEO Cijeli dan smo se vozili javnim prijevozom po Zagrebu. Evo kako je bilo
+-  Chennai: Medical student held for placing hidden camera in tenant’s bathroom
+-  Fort de son succès, le 2e forum "Monaco pour l'emploi" revient au Grimaldi Forum en février prochain à Monaco
+-  Şalı silindir ütüye sıkışarak hayatını kaybeden kadının ailesinden açıklama
+-  북한, 북중미월드컵 2차 예선 일본전 평양서 개최
+-  Ali Yerlikaya'dan 'göçmen kaçakçılığı' operasyonlarına dair açıklama!
+-  ЦБ Азербайджана снизил учетную ставку
+-  Argentinos Juniors y Deportivo Riestra se ven las caras en La Paternal
+-  Türkiyənin təhsil naziri Ulu Öndərin məzarını, Şəhidlər xiyabanını və “Türk şəhidliyi” abidəsini ziyarət edib
+-  Evrende Göz Kamaştırıcı Bir Olay! Galaksiler Arasındaki Yıldız Köprüsü Ortaya Çıktı
