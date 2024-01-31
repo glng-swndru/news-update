@@ -1,11 +1,11 @@
 # Latest News
--  Звезда «Во все тяжкие» узнал, что он родственник Карла III
--  ALYİD yönetimi Demir'i ağırladı
--  제주 산간도로에 포트홀…달리던 차량 10대 줄줄이 펑크
--  Januar-Daten zu Arbeitslosen in Hessen erwartet
--  與, 이상규 한국청년임대주택협회 회장 등 3명 인재영입
--  Acertijo visual: desafiá tu agudeza visual y descubrí en 4 segundos dónde está el perro
--  '민주당 돈봉투 의혹' 윤관석 징역 2년·강래구 1년 8개월
--  Januar-Daten zu Arbeitslosen in Hessen erwartet
--  경남도 37억 투입해 인공어초 시설·보강 등 수산자원조성
--  Relief for borrowers amid fresh signs interest rates have peaked
+-  Sanatçıdan/Şairden Al Haberi-I
+-  海のSOS「118番」98％が無効 「風呂でおぼれた」いたずらも
+-  Eskiden Daha İyiymiş!
+-  【解説】「セクシー田中さん」原作者の芦原妃名子さん急死 ドラマ脚本巡り“トラブル”か…異例の自ら執筆も「力不足が露呈…」
+-  작년 담배 37억4300만갑 팔렸다…2년 연속 늘어
+-  OneXPlayer 2 Pro gaming handheld, tablet or detachable in review: dispositivo polifacético con un potente Ryzen 7
+-  Táo quân 2024: Bất giờ với danh tính Táo Giao Thông, tưởng ai hóa ra là "trai ế" từng gây bão 3 năm trước
+-  Başkan Hançerli, büyük dönüşümü yerinde tanıttı
+-  MZ 명절은 다르다?…친척집 대신 파티룸, 떡국 말고 배달음식
+-  Τέλη κυκλοφορίας 2024: Πώς μπορείτε να τα πληρώσετε
