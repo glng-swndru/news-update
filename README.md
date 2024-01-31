@@ -1,11 +1,11 @@
 # Latest News
--  Tenista Rune ukončil spoluprácu s Lüthim, dlhoročným trénerom Federera
--  U fontani liječnika iz Brčkog pronađeni ostaci još jedne osobe
--  Magali, infirmière au CFA à Vannes, 19 ans au service du don de sang
--  На Онкологија не се кратело на лекови, туку непотребно се набавувале и давале
--  Hakan Sabancı ile evlenecek mi? Hande Erçel'den sürpriz cevap
--  Cựu Chủ tịch Khánh Hoà Nguyễn Chiến Thắng bị tuyên phạt tổng cộng 22,5 năm tù
--  VIDEO ⟩ Piesaistīts ķīmiķis no ārvalstīm. Kas zināms par metamfetamīna laboratoriju Latgalē?
--  Едно птиче ще каже нещо важно на 3 зодии!
--  Skandal neviđenih razmera: Muž Seke Aleksić napravio dete dadilji?! Društvene mreže gore
--  Trabzonspor şampiyonluk sonrası çöküşe geçti
+-  Iran-backed group suspends attacks against US
+-  Förtydligande: Här ska Johannisborgsleden gå fram
+-  Is Intel About to Announce Exciting Artificial Intelligence (AI) News With OpenAI's CEO?
+-  GEZ-Gebühren: Das kommt bei einer Erhöhung 2025 auf die Verbraucher zu
+-  Beşiktaş, Trabzonspor maçı hazırlıklarını sürdürdü
+-  GEZ-Gebühren: Das kommt bei einer Erhöhung 2025 auf die Verbraucher zu
+-  'Brilliant record': Pundit thinks £3m ace would love to sign for Celtic but may suit Rangers more
+-  Gol (GOLL4) dá adeus ao Ibovespa com queda de 68% no mês e riscos de diluição massiva
+-  ICCT: Realverbrauch steigt – Monitoringmöglichkeit bleibt weiterhin ungenutzt
+-  Destici demokrasiyi hedef aldı: "Dökülecek kanın sorumlusu eylem çağrısı yapanlardır"
