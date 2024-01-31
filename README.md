@@ -1,11 +1,11 @@
 # Latest News
--  Sanatçıdan/Şairden Al Haberi-I
--  海のSOS「118番」98％が無効 「風呂でおぼれた」いたずらも
--  Eskiden Daha İyiymiş!
--  【解説】「セクシー田中さん」原作者の芦原妃名子さん急死 ドラマ脚本巡り“トラブル”か…異例の自ら執筆も「力不足が露呈…」
--  작년 담배 37억4300만갑 팔렸다…2년 연속 늘어
--  OneXPlayer 2 Pro gaming handheld, tablet or detachable in review: dispositivo polifacético con un potente Ryzen 7
--  Táo quân 2024: Bất giờ với danh tính Táo Giao Thông, tưởng ai hóa ra là "trai ế" từng gây bão 3 năm trước
--  Başkan Hançerli, büyük dönüşümü yerinde tanıttı
--  MZ 명절은 다르다?…친척집 대신 파티룸, 떡국 말고 배달음식
--  Τέλη κυκλοφορίας 2024: Πώς μπορείτε να τα πληρώσετε
+-  Дело против разыскиваемого экс-депутата Госдумы Сопчука приостановили
+-  ‘미군 3명 사망’ 공격 유력 친이란 민병대 “미군 향한 공격 중단”
+-  홍익표 "이재명 '비례대표 나가지 않는다' 정확히 말해"
+-  Трамп вновь выдвинут на Нобелевскую премию мира
+-  Từ vụ Sen Tài Thu bị khởi tố: Chiêu hút vốn khiến nhà đầu tư... sập bẫy
+-  Diputados: el Gobierno se asegura la aprobación en general de la ley de reformas, pero hay dudas con artículos clave
+-  Xử lý thanh niên cố tình xăm hình để trốn nghĩa vụ quân sự
+-  漫画家協会「契約の悩み、相談して」 漫画家の訃報受け
+-  Projektionen in Berlin: Aktivisten beleuchten Despotenbotschaften | Politik
+-  Dù bố mẹ chồng không cho 1 mét đất nào nhưng tôi vẫn yêu thương, chăm sóc ông bà như cha mẹ ruột
