@@ -1,11 +1,11 @@
 # Latest News
--  運転士「人影見つけ急ブレーキかけたが…」16歳男子高校生が特急列車にはねられ死亡 駅の近くにある踏切で
--  Дмитрий Хохлов: «Важно, чтобы игроки из молодежной команды попадали в основную»
--  VIDEO Vjeruju da su jedini koji su vidjeli mladunče velike bijele psine: ''Ovo bi mogao biti prvi dokaz koji imamo o njima u divljini''
--  Кривбас розірвав контракт з Хобленком
--  ODLUKA KOJU SMO SVI ČEKALI: Poznato kada će Srbija nastupati u polufinalu "Pesma Evrovizije"
--  LOSC Mercato : c'est officiel pour Tiago Morais, ses premiers mots chez les Dogues
--  الأسهم البريطانية تغلق على ارتفاع.. والإسترليني ينخفض
--  Nemecké stíhačky vzlietli k ruskému vojenskému lietadlu
--  Recomendaciones para evitar el golpe de calor
--  Reconstruction, urgences, médecins étrangers... Les annonces de l'hôpital de Dreux pour 2024
+-  Microsoft earnings beat across the board as cloud, AI drive momentum
+-  IS:n vaalitentti | Stubb loivensi väitettään Suomen ja Yhdysvaltojen läheisestä suhteesta
+-  UN's Palestinian teachers EXPOSED as Hamas-loving jihadis: Congress learns of Telegram club of 3,000 educators praising 'holy warriors' who left Israelis 'dead in hell' on Oct. 7
+-  Parlament Francuske usvojio uključivanje slobode abortusa u Ustav
+-  Mentzen: Jestem w "związku partnerskim" z Braunem
+-  Deklasacja w meczu polskiego zespołu w LM. Set zakończył się po 21 minutach
+-  Microsoft earnings beat across the board as cloud, AI drive momentum - MarketWatch
+-  Presidente de México descarta indulto para assassino confesso de candidato presidencial
+-  Giedraitis su „Crvena Zvezda“ triuškino „Valencia“ ekipą
+-  Brasil fica atrás de países do G20 no quesito segurança pública
