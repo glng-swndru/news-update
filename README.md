@@ -1,11 +1,11 @@
 # Latest News
--  İspanya'da bölücülüğe af çıkmadı
--  UDRUGA "HUMANITAS" Ovi ljudi otvorili su humanitarni butik, planiraju ih imati po cijeloj BiH
--  É preciso redireccionar para o clima os biliões que vão para combustíveis fósseis na UE
--  Ein neuer „Blitzer“ ist auf jeden Fall drin im Eschacher Haushalt
--  Ein neuer „Blitzer“ ist auf jeden Fall drin im Eschacher Haushalt
--  Haland spreman za Barnli
--  بدء عرض مسرحية "منتهي بالتهليك" بالرياض 6 فبراير
--  'Somos país da carne, mas só comemos frango': a crise na Argentina à espera de promessas de Milei
--  పోలింగ్‌ కేంద్రాల వద్ద ఓటర్ల జాబితాలేవీ?
--  Bauern-Proteste im Landkreis Nienburg: Mahnfeuer und Kundgebung
+-  МВФ підвищив оцінку зростання світової економіки за минулий рік
+-  TBMM Başkanı Kurtulmuş, BAE Devlet Başkanı Al Nahyan ile bir araya geldi
+-  Live: Geschützt gegen Extremisten?
+-  B.C. health minister to outline new investments in cancer care and research
+-  Volkswagen Still Seeking Investor for Battery Unit Despite Slower EV Growth
+-  Fær að vera í fríi í heimalandinu en holdafar hans vekur þar athygli
+-  Rekonstruktion der Drogenrazzia in Castrop-Rauxel: So lief der Zugriff auf die Cannabis-Plantage ab
+-  Un joueur de l’OM brisé par son transfert avorté ?
+-  Will the Gaza violence spill over into Australia?
+-  Man Utd must learn from genius £22m PL transfer, make 21-year-old EFL gem top target - opinion
