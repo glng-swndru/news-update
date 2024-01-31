@@ -1,11 +1,11 @@
 # Latest News
--  ЦСКА се отпуши и удари словаци за първи успех в Турция, Назон се завърна с гол
--  Erkan Baş ile Ümit Özdağ arasındaki tartışma büyüyor: Kendisini solcu zanneden…
--  MWC 2024: A Tecno is bemutat új telefont
--  Uyuşturucu operasyonunda 3 kılıç ele geçirildi
--  SA hafna öllum forsenduákvæðum í nýjum samningum
--  When does the January transfer window close? Key 2024 dates for Premier League clubs
--  Scottish Adoption and Fostering to launch its Foster Care Services
--  ÖSV-Damen-Debakel bei Gut-Behrami sieg in Kronplatz
--  Крумовград привлече бразилец - Труд
--  Thariq Halilintar Nangis Dapat Kejutan dari Aaliyah Massaid: Aku Belum Pernah Dicintai Ugal-ugalan
+-  Meclis'te kapalı oturumda önerge reddedilerek, açık oturuma geçildi. TİP Hatay Milletvekili Can Atalay kararının okunması bekleniyor.
+-  What 50-Year-Old Car Would You Daily Drive Today?
+-  Bulgaria's Gross External Debt Reaches EUR 44.4 Billion by November 2023
+-  Bekeményít gyermekvédelemben a Meta a Facebookon és az Instagramon
+-  Hét év után megszületett az elsőfokú ítélet a Pillangó utcai metróbaleset ügyében
+-  DP World ILT20 Season 2: Budding cricketers get a grand opportunity to play in iconic stadiums
+-  В РИПО рассказали о том, что такое качество образования
+-  Hadapi Pacific Caesar, Pelita Jaya Janjikan Menit Bermain Buat Pemain Muda
+-  프로농구 선두 DB, 35점 차 대승…삼성은 10연패 수렁으로
+-  Suspect in killing of woman whose body was found at airport arrested in Kenya
