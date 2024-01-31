@@ -1,11 +1,11 @@
 # Latest News
--  Problem och märkligheter i terrorns och krigets spår
--  Inhabilitación misógina
--  Televisio | Vanha lakisarja nousi yllättäen Yhdysvaltain katsotuimmaksi: yksi näyttelijöistä on nykyään Sussexin herttuatar
--  USD 1.50 billion growth expected in Sinus Dilation Devices Market between 2022 and 2027, Analysing Growth in Balloon Sinus Dilation Segment - 17,000+ Technavio Research Reports
--  Spannend, die spreiding van cultuurgelden, de regio is groter dan de stad | DVHN commentaar
--  Fußball-Kreisliga B: SV Ost ist nach personellem Umbruch auf Kurs
--  Xavi, del sueño a la pesadilla
--  Hay que hacerle caso a Sabina
--  Mercato - PSG : Coup de bluff à Paris ?
--  Эксперт дал школьникам советы по подготовке к итоговому собеседованию
+-  Auf dem Jungfraujoch fehlen immer noch die chinesischen Reisegruppen – ist das ein Problem für den Schweizer Tourismus?
+-  Pop icon sparks romance rumours
+-  Bay cleared after wastewater overflow
+-  Skulle se kåsan i Vimmerby – utsatt för dramatiskt rån
+-  TQ Eurocredit y StockcrowdIN: La fórmula que permite a un exitoso grupo promotor culminar un ambicioso proyecto inmobiliario en Altafulla
+-  El Gobierno rechaza cambiar el calendario de cierre de las centrales nucleares en España
+-  ‘Really focused on the baby’: What new mothers are missing after giving birth
+-  David Brooks ist der Lieblings-Konservative von Amerikas Liberalen. Er sagt: «Donald Trump gibt unsichtbaren Menschen das Gefühl, gesehen zu werden»
+-  DEBATT: Förutsägbarhet kan vara Sundsvalls stora superkraft
+-  Was Grossverdiener und Firmen in der Schweiz 2024 an Steuern bezahlen: Rangliste der Kantone mit den tiefsten und den höchsten Belastungen
