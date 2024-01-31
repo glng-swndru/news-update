@@ -1,11 +1,11 @@
 # Latest News
--  „Nie jem chleba i chudnę”. Próbowałaś? Jeśli nie, koniecznie sprawdź te zamienniki. Odchudzanie bez pieczywa jest łatwe i skuteczne!
--  ВИДЕО. Странный день в НХЛ: мало голов и победы аутсайдеров
--  Bereit für Mike? Leyla ließ sich vor dem Dschungel lasern!
--  Kendisini Yaralayan Boğasını Sarılıp Öptü! Rüzgarım, Benim Hayatım, Ömrüm
--  Van'da vatandaşların zorlu yaşam mücadelesi devam ediyor
--  قصف متبادل وتصاعد وتيرة الاشتباكات.. ماذا يحصل في الجنوب؟
--  Neue Ausstellung in Zwota: Eine Amerikanerin unter Vogtländerinnen
--  Украински удар в Санкт Петербург: Свалихме дрон, той продължи да лети, казват руснаците (ВИДЕО)
--  Stadt hat an einem Punkt Bedenken: Waldkaserne soll Denkmal werden
--  Гуманитарная партия удобрений "Уралхима" прибыла в Нигерию
+-  It had the makings of a Melbourne Cup champion, and I had to mop it up
+-  米空軍のF16戦闘機が1年で3度目の墜落 パイロットは緊急脱出
+-  Strategic Value Partners Bolsters Structured Capital Capabilities with Two Senior Hires in Europe
+-  四分之一的瑞士人服用止痛药
+-  Tylko jedno mieszkanie i dwie Wołgi. Putin opublikował oświadczenie majątkowe
+-  Les négociations de Sainz avec Ferrari sont devenues 'compliquées'
+-  코스닥 2달만에 800선 이탈…삼성전자, D램 흑자 전환에도 2% 하락 [이종화의 장보GO]
+-  本田真凜のキャスター起用に賛否「実績ないのに…フジはズレてる」疑問の声
+-  Singleton Station water licence opponents lose court battle
+-  Judins komentē, kāpēc drošības iestādes līdz šim nav bargi vērsušās pret Ždanoku
