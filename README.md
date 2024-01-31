@@ -1,11 +1,11 @@
 # Latest News
--  WhatsApp backups are now starting to count against your Drive storage quota - Android Police
--  Gündəm olan idmançının məşqləri görün neçəyə imiş
--  Блекберн – Рексгем 4:1: огляд матчу
--  Nikos Hristodulidis, vatandaşların yaşam kalitesinin iyileştirilmesini hedefleyen hükümet programını açıkladı
--  China's economy is facing a nightmarish Year of the Dragon
--  Le maire de Lucé, Florent Gauthier, a présenté ses vœux pour 2024 : "Continuer à accélérer dans nos projets"
--  Chinese EV battery giant CATL expects 2023 earnings to jump by up to 48%
--  Supermicro shares jump after revenue forecast raise re-ignites AI rally
--  Eximen de impuestos a las viviendas de Bahía Blanca afectadas por temporal
--  중앙선 넘어 식당 돌진한 차…달아다더니 음주측정 거부
+-  ЄС не бачить "світла в кінці тунелю" у війні в Україні, - Боррель
+-  Глушаков покинул костромской "Спартак"
+-  Sędziowie SN wzywają Manowską do rezygnacji. Domagają się "niezwłocznego podjęcia działań"
+-  Dünya devi otomobil üreticisi iflas etti: Arabası olanlar parça bulabilecek mi?
+-  Tăng cường hỏa lực, MU tìm tới vua phá lưới 'giàu có' bậc nhất
+-  Las marcas alemanas de autos no tendrán un buen 2024: las razones
+-  Sędziowie SN wzywają Manowską do rezygnacji. Domagają się "niezwłocznego podjęcia działań"
+-  Sędziowie SN wzywają Manowską do rezygnacji. Domagają się "niezwłocznego podjęcia działań"
+-  Impactante video: se incendió una fábrica de plástico en Lomas de Zamora
+-  Another weather warning issued for the north of Scotland
