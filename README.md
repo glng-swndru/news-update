@@ -1,11 +1,11 @@
 # Latest News
--  Iran-backed group suspends attacks against US
--  Förtydligande: Här ska Johannisborgsleden gå fram
--  Is Intel About to Announce Exciting Artificial Intelligence (AI) News With OpenAI's CEO?
--  GEZ-Gebühren: Das kommt bei einer Erhöhung 2025 auf die Verbraucher zu
--  Beşiktaş, Trabzonspor maçı hazırlıklarını sürdürdü
--  GEZ-Gebühren: Das kommt bei einer Erhöhung 2025 auf die Verbraucher zu
--  'Brilliant record': Pundit thinks £3m ace would love to sign for Celtic but may suit Rangers more
--  Gol (GOLL4) dá adeus ao Ibovespa com queda de 68% no mês e riscos de diluição massiva
--  ICCT: Realverbrauch steigt – Monitoringmöglichkeit bleibt weiterhin ungenutzt
--  Destici demokrasiyi hedef aldı: "Dökülecek kanın sorumlusu eylem çağrısı yapanlardır"
+-  "هدية" تخدم أكثر من 14 مليون حاج ومعتمر وزائر
+-  Suche nach Affe in Schottland: „Kingussie Kong“ weiter auf der Flucht
+-  Beşiktaş'ın transfer listesi ortaya çıktı! Samet Aybaba görüşmelere başladı
+-  Thêm nhiều người bị khởi tố vụ ông Trịnh Văn Quyết
+-  El Euríbor, a un paso de abaratar las hipotecas en Baleares
+-  Escape-Room in Barcelona: Entkommen aus dem eigenen Sarg
+-  Ефектът “безплатна диплома”: фамилия висшисти е 5 пъти по-богата от семейство с основно
+-  Kim Kardashian panics over 'crazy' psoriasis: 'Don't know what's happening'
+-  Russland: Boris Nadeschdin reicht Unterschriften bei Wahlkommission ein
+-  Suche nach Affe in Schottland: „Kingussie Kong“ weiter auf der Flucht
