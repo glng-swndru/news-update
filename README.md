@@ -1,11 +1,11 @@
 # Latest News
--  “증시 핵심은 반도체야”…오전 이어 오후에도 매집 [주식 초고수는 지금]
--  এবার তোশখানা মামলায় ১৪ বছরের জেল ইমরান ও তার স্ত্রীর
--  Аль-Иттихад принял окончательное решение по Бензема
--  ‘D의 공포 가속화’ 중국 직장인 32% “임금 줄었다”…수출 성장 분야도 역풍 직면
--  Amazon stoppt Übernahme von iRobot: Fast jeder dritte Mitarbeiter verliert seinen Job
--  Verbraucherzentrale warnt Kunden von ING und Commerzbank vor neuer Betrugsmasche
--  Stimmung in Chinas Industriebetrieben weiter trüb
--  Kesik baş cinayetinde detaylar ortaya çıktı! Katil diş hekimi...
--  Malezija dobila novoga kralja: Tko je bogati sultan Ibrahim?
--  尹, 제복 영웅·사회적 배려계층 등에 설 선물 전달
+-  Bunu yapmayan artık aracını satamayacak, bugün son gün!
+-  CHP ve Zafer Partisi itiraz etti! YSK kararını verdi
+-  Ísland í dag - Hvaða lið mætir Víkingi í úrslitum?
+-  SPD: Lars Klingbeil drängt Länder auf Umsetzung der Abschiebepläne
+-  Spánn í dag - Barcelona fær Osasuna í heimsókn
+-  England í dag - Stórleikur á Anfield
+-  Meistaradeild kvenna í dag - Riðlakeppnin klárast
+-  Starbucks' Viral Olive Oil Drinks Now Available Nationwide
+-  Pilot USA sa katapultoval ešte pred zrútením stíhačky F-16 do mora, informoval Soul
+-  ‘Guarantees will be stopped if Congress doesn’t get more Lok Sabha seats’: Karnataka MLA HC Balakrishna
