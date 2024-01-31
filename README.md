@@ -1,11 +1,11 @@
 # Latest News
--  Morocco-Panama: Key Points of the Joint Declaration
--  à¶¯à¶ºà·� à¶»à¶­à·Šà¶±à·�à¶ºà¶š à¶œà¶­à·Šà¶­à·�à¶§ à·†à·œà¶±à·Šà·ƒà·šà¶šà·�à¶œà·™à¶±à·Š à·€à·’à¶»à·�à¶°à¶º
--  KBS, 올해 1400억원대 적자 예상···수신료 분리 징수 영향
--  Phố Wall "trừng phạt" Microsoft và Alphabet ngay cả khi kết quả kinh doanh còn tốt hơn kỳ vọng
--  В США заявили о снарядном голоде ВСУ
--  KBS, 올해 1400억원대 적자 예상···수신료 분리 징수 영향
--  «تداول السعودية»: انطلاق ملتقى السوق المالية 19 فبراير
--  Am Bahnhof Mersch eröffnet 2025 wieder ein CFL-Shoppi
--  New Opportunity for a Shared Future -- China-France Industrial Cultural Exchange Week Launched in Beijing E-town
--  Arif Nihat Asya kimdir? Arif Nihat Asya'nın eserleri nelerdir?
+-  El primer ministro británico Sunak pone en marcha un nuevo consejo empresarial
+-  "Від 40 до 60 хвилин": Володимир Зеленський зізнався, чим займається у вільний час
+-  Z trhu sťahujú dve šarže lieku na zníženie vysokých hladín vápnika
+-  Tim Joko Tingkir Ringkus Pencuri yang Bobol Minimarket 7 Kali di Lamongan
+-  Không phải mọi việc đều suôn sẻ: Bộ trưởng Quốc phòng Nga thị sát việc sản xuất pháo tự hành mới
+-  Oglasio se šef onkologije KBC-a Split: Poveli su hajku na mene, a sada će javnost čuti istinu
+-  Hinweise für Konsumenten: Woher kommt das Fleisch? Neue Kennzeichnung verspricht Klarheit für Verbraucher
+-  Belediye can dostlarını unutmuyor
+-  Talas Mehmet Karamercan Kütüphanesi'nde büyük gün
+-  "Tā nav neitrāla organizācija." Izraēla izvirza jaunas apsūdzības ANO Palestīniešu bēgļu lietu aģentūrai
