@@ -1,11 +1,11 @@
 # Latest News
--  Jamie Carragher predicts unwanted Everton first v Fulham tonight
--  الفضلي يشيد بحضور ونشاط وزير الداخلية حيدان
--  Ο Ζελένσκι ετοιμάζεται να αντικαταστήσει τον αρχηγό των ενόπλων δυνάμεων
--  ŽELJKO OBRADOVIĆ JE KOŠARKAŠKI NOVAK ĐOKOVIĆ: Saša Obradović kao niko pohvalio trenera Partizana
--  التعريف بأهداف "رؤية عمان 2040" بـ"مهرجان صحار"
--  Васил Терзиев участва в среща на балканските градове в Тирана
--  Perugia, saluta il portiere Furlan. Il giocatore ha risolto consensualmente il contratto
--  Treu verbunden seit 45 Jahren: Der ewige Trabi-Fahrer aus Rudolstadt
--  Poslechněte si: S Martinem Slaným o tom, proč odmítnout euro
--  Минздрав с 1 сентября введет рекомендацию прививаться от COVID с перерывом в год
+-  Bakan Fidan Bulgaristan Başbakanı ile görüştü
+-  NBA : Victor Wembanyama quatrième plus gros vendeur de maillots cette saison
+-  Nedá se to přežít, žalují manželé kvůli hluku autodrom. Ten už plánuje další závody
+-  VIDEO Kaos u Iraku! Novinari napali izbornika nakon ispadanja iz Azijskog kupa
+-  Dagur kvenfélagskonunnar er 1. febrúar
+-  Co dalej z Instytutem Adama Mickiewicza? Sienkiewicz rozpoczyna kontrole
+-  PROKUPČANIN DOŠAO U NIŠ, PA NAŠAO KAZNU NA BRISAČU - ALI TO NIJE SVE: Tu je stajala i PORUKA, a njen sadržaj ga ostavio BEZ REČI
+-  כל מה שצריך לדעת לקראת אירועי "דרום אדום" בנגב המערבי
+-  NBA : Victor Wembanyama quatrième plus gros vendeur de maillots cette saison
+-  NBA : Victor Wembanyama quatrième plus gros vendeur de maillots cette saison
