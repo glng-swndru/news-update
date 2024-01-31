@@ -1,11 +1,11 @@
 # Latest News
--  ФАВОРИТ ДНЯ. Главные матчи дня и популярные прогнозы на 31 января
--  New York Knicks - Utah Jazz, en directo | NBA
--  CBN, foreign airlines differ over $700m trapped fund
--  部下に「分からないときは質問して」はNG！では、何て言い換える？ - ニュースな本
--  Astellas Announces Strategic Collaboration with Mass General Brigham
--  د. عبدالله المرزوقي لـ «العرب»: كتاب وإعلاميون يفسدون «العربية».. والنقد اللغوي «غائب»
--  Mental health, and caregivers, are in crisis
--  Xác định thêm 2 cặp Tứ kết Asian Cup 2024
--  Monero Tracing: Privacy Coin Proponents Dismiss Finnish Law Enforcement Agency’s Tracing Breakthrough Claims
--  تمديد تنظيم جولات الدوحة الدولية للفروسية
+-  في المتحف الأولمبي والرياضي.. افتتاح معرض زيدان اليوم
+-  マイナス金利解除含めた政策修正、要件は満されつつある－日銀意見 - ブルームバーグ
+-  نيسان أكس-تريل الجديدة تحافظ على جاذبيتها بين عشاق السيارات في قطر
+-  خيارات «شارع المذاق» تستقطب زوار «كتارا»
+-  PRITISAK NA HAMAS: Bela kuća pozvala Katar da utiče kako bi se oslobodili taoci
+-  „Žinau informaciją 100%.“ Ką rėžė Zalužnas Zelenskio kabinete (Video)
+-  Francos recibió a los embajadores de Italia y Gran Bretaña
+-  “중대재해법 유예해야”…중소기업인들 국회앞으로 간다
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Behalf of Investors of DocGo Inc. - DCGO
+-  Tugas Bersama Timnas Indonesia Beres, Marc Klok Kini Siap Bela Persib Melawan Persis di BRI Liga 1
