@@ -1,11 +1,11 @@
 # Latest News
--  К юбилею народного артиста Фуада Османова
--  Борисов: За импийчмънт е абсурдно да се мисли за човек, избран от народа, както е и абсурдно човек, който се има за обединител, да говори като партиен лидер
--  Nexion Group sues founders
--  Деветнаесет загинати и 22 повредени во автобуска несреќа во северозападниот дел на Мексико
--  2018-2024: el daño está hecho
--  Tử vi tuổi Tỵ năm 2024: Bình ổn trên mọi phương diện, có cơ hội thăng tiến
--  KAO DVA ROBOTA, NIJE BILO NIKAKVIH EMOCIJA: Otac ubijene Angeline o susretu dečaka ubice iz "Ribnikara" i njegove majke (VIDEO)
--  Mosti: Govt invites RFP for remote sensing satellite project
--  যত দূরেই থাকি, নটর ডেম চিরকাল ‘আমার’ই থাকবে
--  רשמית: יונס מלדה חתם במכבי תל אביב
+-  Dusty sends pre-season warning as action at Tigerland heats up
+-  ผบ.ตร. ชม ผบช.น. ทลายรังปลวก จับมือแทงช่างกลปทุมวันดับ จ่อขยายผลเพิ่ม
+-  황현선 전주병 예비후보 "덕진구 분동 주민의견 반영하라"
+-  Tri des biodéchets : la Ville de Rambouillet passe à la vitesse supérieure
+-  HONOR Magic6 Pro: ¡Listo para el Mundo!, PS5 Impacta: Juego Inédito Aparece sin Conocimiento de Desarrolladores,
+-  Kakvo strašno licemerje - Ponoševac napao vojni vrh Srbije, a njegov šef mu preko veze unapređivan u vojsci! (VIDEO)
+-  Aile'nin final bölümü sosyal medyada gündem oldu!
+-  Liverpool vs Chelsea, Premier League live broadcast & streaming: When and where to watch LIV vs CHE live
+-  L'opération des agriculteurs vient de démarrer dans l'Est-Var et pourrait durer 48 heures
+-  Warnstreik am Freitag in Castrop-Rauxel: Busfahrer protestieren – diese Busse fahren nicht
