@@ -1,11 +1,11 @@
 # Latest News
--  Zema: homens brancos, heterossexuais e bem-sucedidos são rotulados de ‘carrascos’
--  Former “Boys Planet” Contestant Winnie To Leave NINE.i Due To Injury
--  "Zeitbombe": David Odonkor über Kims Zickereien mit Mike
--  Španielsky parlament neschválil amnestiu pre katalánskych separatistov
--  SM-liigan jumbojoukkueelle nöyryyttävä pohja­kosketus – vastustajan valmentaja myhäili tyytyväisenä
--  La Justicia dejó sin efecto los artículos del DNU que autorizaban las sociedades anónimas deportivas
--  Tres décadas después, el Viaducto Nuevo es todo un icono del desarrollo urbanístico de Teruel
--  Tokayev bu tarixdə Azərbaycana səfər edəcək
--  Des chutes de pierres signalées sous la porte Saint-Jean à Joigny
--  «РБ Спорт»: Тодорович продлил контракт с «Ахматом»
+-  J. Peirano: Der geheime Code der Liebe: Warum fangen Frauen, die man locker datet, immer gleich an zu klammern?
+-  J. Peirano: Der geheime Code der Liebe: Warum fangen Frauen, die man locker datet, immer gleich an zu klammern?
+-  Dish Network Scraps Swap Deal to Push Out Debt Maturity
+-  Lezuhant egy Airbus, 66 ember szörnyethalt, mert a pilóta cigarettázni kezdett
+-  Сърбия обмисля да върне задължителната военна служба - Труд
+-  Miliony, miliony, miliony. Top 10 właśnie ujawnionych "darów" PiS-u
+-  SVIREPO Brutalna likvidacija kod Doboja, muškarac bez odjeće pronađen vezan za stablo
+-  18 plafoane și praguri fiscale 2024
+-  مالي تخرج بوركينا فاسو وتنتظر كوت ديفوار في ربع النهائي
+-  Megapuente de febrero 2024: ¿Qué días NO HAY clases para alumnos de la SEP?
