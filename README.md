@@ -1,11 +1,11 @@
 # Latest News
--  Soccer-Eze and Olise dazzle as Crystal Palace secure 3-2 win over Sheffield United
--  Turnover crosses Rs. 1 b mark at CSE amidst wary investor sentiment
--  Dinamo ipak prodao Ljubičića AEK-u! Evo kakvu ponudu nisu mogli odbiti
--  CapitaLand Investment aus Singapur gründet 333 Mio. $ JV mit AIA Life Insurance
--  CapitaLand Investment de Singapour forme une JV de 333 millions de dollars avec AIA Life Insurance
--  Možemo! Pula: Skandalozno postupanje prema aktivistima
--  CapitaLand Investment uit Singapore vormt $333 miljoen joint venture met AIA Life Insurance
--  CapitaLand Investment di Singapore forma una joint venture da 333 milioni di dollari con AIA Life Insurance
--  Banda crítica de Putin detida na Tailândia com medo de ser deportada
--  مواعيد مباريات يوم الاربعاء المتنوع
+-  [환율전망] “美 FOMC 앞두고 관망세 …1330원 중심 등락 전망”
+-  Combinaison, doudoune, pantalon... sur la nouvelle collection de ski de chez PrettyLittleThing !
+-  Erfiðara að ná til karlmanna
+-  Capital Regional District, Pacheedaht forge historic government partnership
+-  Žele da "spreče sramoćenje"; Irački Kataib Hezbolah obustavlja vojne operacije protiv američkih snaga
+-  CRD, Pacheedaht forge historic government partnership
+-  Những lời tự sự trong hành trình Xuân vận 2024: "Năm rồi bất kể ra sao, thành hay bại, về nhà trước rồi tính tiếp"
+-  SEVERNA KOREJA ISPALILA KRSTAREĆE RAKETE Zbog jednog detalja svi strepe da su upotrebili nuklearno oružje?!
+-  CRD, Pacheedaht forge historic government partnership
+-  Sibergöz-18 operasyonda 12 tutuklama
