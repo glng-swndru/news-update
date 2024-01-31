@@ -1,11 +1,11 @@
 # Latest News
--  Microsoft earnings beat across the board as cloud, AI drive momentum
--  IS:n vaalitentti | Stubb loivensi väitettään Suomen ja Yhdysvaltojen läheisestä suhteesta
--  UN's Palestinian teachers EXPOSED as Hamas-loving jihadis: Congress learns of Telegram club of 3,000 educators praising 'holy warriors' who left Israelis 'dead in hell' on Oct. 7
--  Parlament Francuske usvojio uključivanje slobode abortusa u Ustav
--  Mentzen: Jestem w "związku partnerskim" z Braunem
--  Deklasacja w meczu polskiego zespołu w LM. Set zakończył się po 21 minutach
--  Microsoft earnings beat across the board as cloud, AI drive momentum - MarketWatch
--  Presidente de México descarta indulto para assassino confesso de candidato presidencial
--  Giedraitis su „Crvena Zvezda“ triuškino „Valencia“ ekipą
--  Brasil fica atrás de países do G20 no quesito segurança pública
+-  張進德不破哏 無條件支持張育成
+-  市府人事再異動 發言人徐千晴離職
+-  Arturo Zaldívar no piensa renunciar a su pensión
+-  السعودية تودع بـ«الترجيحية»
+-  米「3月利下げ」が簡単でない理由 物価目標に近づいてはいるけれど
+-  郭源元沉澱出書 樂觀擁抱人生經歷
+-  New cyclotron at UBC promises to accelerate cancer diagnostics in B.C.
+-  A gazdaság egyik fontos motorja az aktív banki hitelezés
+-  カンボジア拠点特殊詐欺「リクルーター」容疑で3人を逮捕 埼玉県警
+-  春節前勗勉 蔡視察澎防部
