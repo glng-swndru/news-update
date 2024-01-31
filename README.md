@@ -1,11 +1,11 @@
 # Latest News
--  J. Peirano: Der geheime Code der Liebe: Warum fangen Frauen, die man locker datet, immer gleich an zu klammern?
--  J. Peirano: Der geheime Code der Liebe: Warum fangen Frauen, die man locker datet, immer gleich an zu klammern?
--  Dish Network Scraps Swap Deal to Push Out Debt Maturity
--  Lezuhant egy Airbus, 66 ember szörnyethalt, mert a pilóta cigarettázni kezdett
--  Сърбия обмисля да върне задължителната военна служба - Труд
--  Miliony, miliony, miliony. Top 10 właśnie ujawnionych "darów" PiS-u
--  SVIREPO Brutalna likvidacija kod Doboja, muškarac bez odjeće pronađen vezan za stablo
--  18 plafoane și praguri fiscale 2024
--  مالي تخرج بوركينا فاسو وتنتظر كوت ديفوار في ربع النهائي
--  Megapuente de febrero 2024: ¿Qué días NO HAY clases para alumnos de la SEP?
+-  Alimpijević neuspešan protiv lidera Evrokupa
+-  Sutjeska posustala u finišu, pretrpjela peti poraz
+-  Französische Verfassung: Freiheit zur Abtreibung rückt näher
+-  Tigard woman sentenced to more than 8 years in prison in child abuse case
+-  La firma de pagos PayPal recortará unos 2.500 empleos - Bloomberg News
+-  La société de paiement PayPal va supprimer environ 2 500 emplois - Bloomberg News
+-  Los Premios Rei Jaume I reclaman apoyo para acercar la ciencia a las pymes
+-  The 50 Best Shows On Netflix Right Now (February 2024)
+-  ΤΟΝ ΗΘΕΛΑΝ ΠΙΣΩ
+-  ŽRTVA NASILJA Bojala sam se prijaviti jer sam mislila da neću ništa moći dokazati
