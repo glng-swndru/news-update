@@ -1,11 +1,11 @@
 # Latest News
--  Жалбата на "Левски" не даде резултат
--  삼성전자 4분기 반도체 적자 2.2조 원…D램은 흑자 전환
--  São Paulo terá mais de 15 mil policiais nas ruas durante o carnaval
--  アングル：ＦＲＢがＱＴ終了に向けた議論開始か、3月に具体的計画発表との予想も
--  Tiare Tahiti prend la tête du championnat
--  SKT, 3개 대학과 6G 주파수 최적화 망 구조 설계 연구 검증
--  Нападающий «Болоньи» ван Хойдонк перейдет в «Норвич»
--  IBM, 부산에 ‘IBM 퀀텀 시스템 투’ 설치한다
--  Nucor CEO explains what led the steelmaking company to its third-most profitable year - CNBC
--  28GHz 대역 주파수 경매, 2018년 낙찰가 돌파 ‘가시권’
+-  [부음] 김경래(생명보험협회 홍보실장)씨 부친상
+-  Bob Marley biopic brings message to new generations
+-  한국씨티은행, ‘기후행동 라운드테이블’ 개최
+-  Samsung sees tech devices demand recovering in 2024 after Q4 profit drop
+-  Агент защитника Стоцкого рассказал о переговорах с «Балтикой»
+-  Respons Arya Sinulingga Soal Shin Tae-yong yang Dapat Tawaran Tim Lain: Tolong Hormati Kontrak
+-  Bob Marley biopic brings message to new generations
+-  Đội hạng 4 World Cup rơi đài, Cúp châu Phi nóng bỏng vòng tứ kết
+-  Bob Marley biopic brings message to new generations
+-  رواية عيني بعينه والقلوب بعاد -6
