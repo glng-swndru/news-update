@@ -1,11 +1,11 @@
 # Latest News
--  La Voie verte la vie d'après, un documentaire eurélien sur France 3, jeudi 1er février
--  A dor de lidar com a mãe com Alzheimer: "É avassalador e traumático" (entrevista exclusiva)
--  被災地・石川県で交通サポート 愛媛県警からエキスパート部隊が１日に出発【愛媛】
--  Merve Boluğur, 53 gün evli kaldığı eski eşiyle barıştı
--  Công đoàn Thanh Hóa thăm hỏi thân nhân vụ cháy nhà khiến 3 mẹ con tử vong
--  Figyeljünk egymásra: életmentés a Futrinka utcában
--  BUDO kullanacaklar dikkat! Bazı seferler iptal edildi: İşte BUDO'nun iptal edilen seferleri
--  В Чехия пациентът плаща в аптеката само 8% от стойността на лекарствата, останалото поема касата. А у нас?
--  Heimische Straßen wieder fit machen
--  Атанас Атанасов: Има теч на класифицирана информация, който службите замитат
+-  Akrep ve arı sokmasında faydalıdır. İşte şifa saçan o bitki
+-  Detalji zločina u Doboju: Otac četvero djece brutalno ubijen nožem u šumi
+-  Kas pärast hammaste pesemist tuleb suud veega loputada?
+-  Inverness Indian restaurant to close permanently
+-  Bursa'da bunu yapan yandı: Yüzde 80 zam geldi! İşte yeni tarife...
+-  Nedostatak jednog vitamina može znatno uticati na vaš seksualni život
+-  Jazda po alkoholu. Jak długo trzeba odczekać po wypiciu alkoholu, żeby móc prowadzić samochód?
+-  Ses kaydı bırakıp intihar etmiş
+-  Cevdet Yılmaz: Tüm imkanlarımızla KKTC'li kardeşlerimizin yanındayız
+-  Juventus pojačanje pronašao u Sautemptonu
