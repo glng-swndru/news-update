@@ -1,11 +1,11 @@
 # Latest News
--  ЄС не бачить "світла в кінці тунелю" у війні в Україні, - Боррель
--  Глушаков покинул костромской "Спартак"
--  Sędziowie SN wzywają Manowską do rezygnacji. Domagają się "niezwłocznego podjęcia działań"
--  Dünya devi otomobil üreticisi iflas etti: Arabası olanlar parça bulabilecek mi?
--  Tăng cường hỏa lực, MU tìm tới vua phá lưới 'giàu có' bậc nhất
--  Las marcas alemanas de autos no tendrán un buen 2024: las razones
--  Sędziowie SN wzywają Manowską do rezygnacji. Domagają się "niezwłocznego podjęcia działań"
--  Sędziowie SN wzywają Manowską do rezygnacji. Domagają się "niezwłocznego podjęcia działań"
--  Impactante video: se incendió una fábrica de plástico en Lomas de Zamora
--  Another weather warning issued for the north of Scotland
+-  ЦСКА се отпуши и удари словаци за първи успех в Турция, Назон се завърна с гол
+-  Erkan Baş ile Ümit Özdağ arasındaki tartışma büyüyor: Kendisini solcu zanneden…
+-  MWC 2024: A Tecno is bemutat új telefont
+-  Uyuşturucu operasyonunda 3 kılıç ele geçirildi
+-  SA hafna öllum forsenduákvæðum í nýjum samningum
+-  When does the January transfer window close? Key 2024 dates for Premier League clubs
+-  Scottish Adoption and Fostering to launch its Foster Care Services
+-  ÖSV-Damen-Debakel bei Gut-Behrami sieg in Kronplatz
+-  Крумовград привлече бразилец - Труд
+-  Thariq Halilintar Nangis Dapat Kejutan dari Aaliyah Massaid: Aku Belum Pernah Dicintai Ugal-ugalan
