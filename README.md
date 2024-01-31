@@ -1,11 +1,11 @@
 # Latest News
--  It had the makings of a Melbourne Cup champion, and I had to mop it up
--  米空軍のF16戦闘機が1年で3度目の墜落 パイロットは緊急脱出
--  Strategic Value Partners Bolsters Structured Capital Capabilities with Two Senior Hires in Europe
--  四分之一的瑞士人服用止痛药
--  Tylko jedno mieszkanie i dwie Wołgi. Putin opublikował oświadczenie majątkowe
--  Les négociations de Sainz avec Ferrari sont devenues 'compliquées'
--  코스닥 2달만에 800선 이탈…삼성전자, D램 흑자 전환에도 2% 하락 [이종화의 장보GO]
--  本田真凜のキャスター起用に賛否「実績ないのに…フジはズレてる」疑問の声
--  Singleton Station water licence opponents lose court battle
--  Judins komentē, kāpēc drošības iestādes līdz šim nav bargi vērsušās pret Ždanoku
+-  Morocco-Panama: Key Points of the Joint Declaration
+-  à¶¯à¶ºà·� à¶»à¶­à·Šà¶±à·�à¶ºà¶š à¶œà¶­à·Šà¶­à·�à¶§ à·†à·œà¶±à·Šà·ƒà·šà¶šà·�à¶œà·™à¶±à·Š à·€à·’à¶»à·�à¶°à¶º
+-  KBS, 올해 1400억원대 적자 예상···수신료 분리 징수 영향
+-  Phố Wall "trừng phạt" Microsoft và Alphabet ngay cả khi kết quả kinh doanh còn tốt hơn kỳ vọng
+-  В США заявили о снарядном голоде ВСУ
+-  KBS, 올해 1400억원대 적자 예상···수신료 분리 징수 영향
+-  «تداول السعودية»: انطلاق ملتقى السوق المالية 19 فبراير
+-  Am Bahnhof Mersch eröffnet 2025 wieder ein CFL-Shoppi
+-  New Opportunity for a Shared Future -- China-France Industrial Cultural Exchange Week Launched in Beijing E-town
+-  Arif Nihat Asya kimdir? Arif Nihat Asya'nın eserleri nelerdir?
