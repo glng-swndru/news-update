@@ -1,11 +1,11 @@
 # Latest News
--  Bakan Fidan Bulgaristan Başbakanı ile görüştü
--  NBA : Victor Wembanyama quatrième plus gros vendeur de maillots cette saison
--  Nedá se to přežít, žalují manželé kvůli hluku autodrom. Ten už plánuje další závody
--  VIDEO Kaos u Iraku! Novinari napali izbornika nakon ispadanja iz Azijskog kupa
--  Dagur kvenfélagskonunnar er 1. febrúar
--  Co dalej z Instytutem Adama Mickiewicza? Sienkiewicz rozpoczyna kontrole
--  PROKUPČANIN DOŠAO U NIŠ, PA NAŠAO KAZNU NA BRISAČU - ALI TO NIJE SVE: Tu je stajala i PORUKA, a njen sadržaj ga ostavio BEZ REČI
--  כל מה שצריך לדעת לקראת אירועי "דרום אדום" בנגב המערבי
--  NBA : Victor Wembanyama quatrième plus gros vendeur de maillots cette saison
--  NBA : Victor Wembanyama quatrième plus gros vendeur de maillots cette saison
+-  Já pode jogar jogos Xbox em smartphones sem comando
+-  THE MOJ: Can’t praise Detroit Lion courage in wins, criticize it in losses
+-  Neue TV-Verträge: So kämpft die Bundesliga um die Millionen
+-  Biden says he has decided how to respond to attack in Jordan
+-  札幌中央区 タクシーに男性がはねられる… 意識不明の重体 横断歩道上 「菊水・旭山公園通」と「石山通」の交差点
+-  Halton Police use drone to locate person in crisis
+-  Analista di Netflix abbandona la posizione rialzista
+-  Demo gegen Rechts: Auch Kronach setzt ein Zeichen
+-  Hamas'tan ateşkes adımı! Mısır'a heyet gitti
+-  THE MOJ: Can’t praise Detroit Lion courage in wins, criticize it in losses
