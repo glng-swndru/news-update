@@ -1,11 +1,11 @@
 # Latest News
--  Diebe klauen 55 Flaschen Waschmittel aus Drogerie in Wedel
--  ЕК подготовит предложение по передаче Украине доходов от замороженных средств РФ
--  "Netflix-berühmt": Serien-Star spricht über das Phänomen der Streaming-Eintagsfliege
--  "Не ни пускате в Европа - отиваме при Вучич": Това ли ни казва РСМ? Говори журналист от Скопие (ВИДЕО)
--  Retour chez ma mère : comment le personnage joué par Alexandra Lamy est-il né ?
--  Sud odbio zahtjev Šer za starateljstvom nad sinom starim 47 godina
--  Novému taiwanskému prezidentovi Peking zrejme telefón nezdvihne (názor Kristíny Kironskej)
--  Krankheiten: Schwerer Ausbruch von Dengue-Fieber in Brasilien
--  Sources: Chelsea reject bid from Prem rivals for £50m man, Aston Villa still interested
--  On a vu « La Ferme des Bertrand », cinquante ans d’agriculture en un film juste et émouvant
+-  Jamie Carragher predicts unwanted Everton first v Fulham tonight
+-  الفضلي يشيد بحضور ونشاط وزير الداخلية حيدان
+-  Ο Ζελένσκι ετοιμάζεται να αντικαταστήσει τον αρχηγό των ενόπλων δυνάμεων
+-  ŽELJKO OBRADOVIĆ JE KOŠARKAŠKI NOVAK ĐOKOVIĆ: Saša Obradović kao niko pohvalio trenera Partizana
+-  التعريف بأهداف "رؤية عمان 2040" بـ"مهرجان صحار"
+-  Васил Терзиев участва в среща на балканските градове в Тирана
+-  Perugia, saluta il portiere Furlan. Il giocatore ha risolto consensualmente il contratto
+-  Treu verbunden seit 45 Jahren: Der ewige Trabi-Fahrer aus Rudolstadt
+-  Poslechněte si: S Martinem Slaným o tom, proč odmítnout euro
+-  Минздрав с 1 сентября введет рекомендацию прививаться от COVID с перерывом в год
