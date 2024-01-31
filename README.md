@@ -1,11 +1,11 @@
 # Latest News
--  Meclis, Can Atalay'ın milletvekilliğini düşürdü
--  ارتفاع تداول بورصة مسقط إلى 21.7 مليون ريال
--  Varpu Hintsanen julkaisi koskettavan päivityksen kuolleen tyttärensä muistolle: "Vuodet vierivät, ikävä ei helpota"
--  Tusk: KO zarejestruje swój komitet w wyborach samorządowych
--  Burghead and Moray to meet in indoor bowls charity cup final
--  Daftar Gaji Baru PPPK Sesuai Perpres 11 Tahun 2024, Berlaku 1 Januari
--  Bandırma Ticaret Odası'ndan sigorta sektörüne destek çağrısı
--  David Portnoy Thinks Kansas Chiefs Are the New New England Patriots
--  Karkonosze. Trwa akcja ratunkowa na Śnieżce. „Trzy osoby ześlizgnęły się rynną śmierci”
--  Февруари ще изгони януарските проблеми на 3 зодии!
+-  Readers respond: The big picture on global warming
+-  Bad Reichenhall: Ausbruch wie im Film – Häftling seilt sich mit Bettlaken ab
+-  CEO de Microsoft, Satya Nadella, alarmado por deepfakes de Taylor Swift
+-  No Olympic bronze for Canada despite Russian figure skating disqualification
+-  Nach kurioser Axt-Attacke in Unna: Beschädigter Telefonmast vorerst gesichert
+-  KRÖNIKA: ”Vi är inte identiska med det evolutionen gjorde oss till”
+-  Hollabrunner Vorlesungen - Der „Musikant Gottes“ programmatisch oder absolut: „Wen juckt's?“
+-  Encefalitis equina: enfermedad detectada en humanos
+-  Masih Betah di MU, Casemiro Tepis Kabar Pindah ke Arab Saudi
+-  Yarding, handy dog finals closely contested
