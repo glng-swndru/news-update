@@ -1,11 +1,11 @@
 # Latest News
--  पागल व्यक्ति हमला कर दे, तब बचाव में प्रतिरक्षा का अधिकार होगा या नहीं
--  Could it be YOU? Lucky Brit ticket-holder wins more than £61million after splitting £123million EuroMillions jackpot with Spaniard
--  ทลายเซฟเฮาส์ "รังอุเทนถวาย" นครบาลระดมปูพรม 7 จุด รวบ 3 คนร้ายแทงปทุมวัน
--  Bitteres Aus für Bayern-Frauen nach Eigentor
--  Tom Wheelwright®, CPA and CEO of WealthAbility®, Releases Third Edition of Amazon's #1 Bestselling Tax Book, Tax-Free Wealth: How to Build Massive Wealth by Permanently Lowering Your Taxes
--  CAN 2023 : le programme complet des quarts de finale
--  뉴욕증시, FOMC 회의·실적발표 등에 혼조 마감
--  Трампа выдвинули на Нобелевскую премию мира
--  Tắm buổi sáng hay buổi tối sẽ tốt cho sức khỏe hơn? Bác sĩ lưu ý 3 điều để tăng lợi ích
--  Jhajjar-Bahadurgarh News: स्लोगन प्रतियोगिता में सीमा रही प्रथम
+-  Soccer-Eze and Olise dazzle as Crystal Palace secure 3-2 win over Sheffield United
+-  Turnover crosses Rs. 1 b mark at CSE amidst wary investor sentiment
+-  Dinamo ipak prodao Ljubičića AEK-u! Evo kakvu ponudu nisu mogli odbiti
+-  CapitaLand Investment aus Singapur gründet 333 Mio. $ JV mit AIA Life Insurance
+-  CapitaLand Investment de Singapour forme une JV de 333 millions de dollars avec AIA Life Insurance
+-  Možemo! Pula: Skandalozno postupanje prema aktivistima
+-  CapitaLand Investment uit Singapore vormt $333 miljoen joint venture met AIA Life Insurance
+-  CapitaLand Investment di Singapore forma una joint venture da 333 milioni di dollari con AIA Life Insurance
+-  Banda crítica de Putin detida na Tailândia com medo de ser deportada
+-  مواعيد مباريات يوم الاربعاء المتنوع
