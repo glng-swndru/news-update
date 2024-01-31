@@ -1,11 +1,11 @@
 # Latest News
--  Perlunya Pembaharuan NU
--  Moshe Kasher Talks ‘Subculture Vulture’ — His Memoir About AA, Burning Man and Hasidic Judaism — and Reveals the One Joke He Wishes He Could Cut From It
--  MISLILA DA JE SKINULA ZAŠTITNU FOLIJU SA TELEVIZORA, A ONA UNIŠTILA EKRAN Napravila sam FATALNU GREŠKU, savetujem da ne radite OVO
--  RTÜK cezaları sonrasında resmen şaha kalktı: O dizi zirveyi kimseye kaptırmadı… İşte 29 Ocak reyting sonuçları
--  سيف بن زايد يقدم واجب العزاء بوفاة سالم المزروعي
--  V generálce na Euro čeká fotbalisty S. Makedonie, trenérem brankářů Kozáčik
--  It-yhtiö joutui virheellisesti perintäyhtiön silmätikuksi
--  Cruel thieves steal dead teen’s ‘pride and joy’ as distraught parents beg for its return
--  NVE vurderte ikke karbonfangst: – Et politisk anliggende
--  Ifo-Beschäftigungsbarometer sinkt: „Unternehmen eher zurückhaltend bei Neueinstellungen“
+-  Diebe klauen 55 Flaschen Waschmittel aus Drogerie in Wedel
+-  ЕК подготовит предложение по передаче Украине доходов от замороженных средств РФ
+-  "Netflix-berühmt": Serien-Star spricht über das Phänomen der Streaming-Eintagsfliege
+-  "Не ни пускате в Европа - отиваме при Вучич": Това ли ни казва РСМ? Говори журналист от Скопие (ВИДЕО)
+-  Retour chez ma mère : comment le personnage joué par Alexandra Lamy est-il né ?
+-  Sud odbio zahtjev Šer za starateljstvom nad sinom starim 47 godina
+-  Novému taiwanskému prezidentovi Peking zrejme telefón nezdvihne (názor Kristíny Kironskej)
+-  Krankheiten: Schwerer Ausbruch von Dengue-Fieber in Brasilien
+-  Sources: Chelsea reject bid from Prem rivals for £50m man, Aston Villa still interested
+-  On a vu « La Ferme des Bertrand », cinquante ans d’agriculture en un film juste et émouvant
