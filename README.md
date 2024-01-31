@@ -1,11 +1,11 @@
 # Latest News
--  Akrep ve arı sokmasında faydalıdır. İşte şifa saçan o bitki
--  Detalji zločina u Doboju: Otac četvero djece brutalno ubijen nožem u šumi
--  Kas pärast hammaste pesemist tuleb suud veega loputada?
--  Inverness Indian restaurant to close permanently
--  Bursa'da bunu yapan yandı: Yüzde 80 zam geldi! İşte yeni tarife...
--  Nedostatak jednog vitamina može znatno uticati na vaš seksualni život
--  Jazda po alkoholu. Jak długo trzeba odczekać po wypiciu alkoholu, żeby móc prowadzić samochód?
--  Ses kaydı bırakıp intihar etmiş
--  Cevdet Yılmaz: Tüm imkanlarımızla KKTC'li kardeşlerimizin yanındayız
--  Juventus pojačanje pronašao u Sautemptonu
+-  К юбилею народного артиста Фуада Османова
+-  Борисов: За импийчмънт е абсурдно да се мисли за човек, избран от народа, както е и абсурдно човек, който се има за обединител, да говори като партиен лидер
+-  Nexion Group sues founders
+-  Деветнаесет загинати и 22 повредени во автобуска несреќа во северозападниот дел на Мексико
+-  2018-2024: el daño está hecho
+-  Tử vi tuổi Tỵ năm 2024: Bình ổn trên mọi phương diện, có cơ hội thăng tiến
+-  KAO DVA ROBOTA, NIJE BILO NIKAKVIH EMOCIJA: Otac ubijene Angeline o susretu dečaka ubice iz "Ribnikara" i njegove majke (VIDEO)
+-  Mosti: Govt invites RFP for remote sensing satellite project
+-  যত দূরেই থাকি, নটর ডেম চিরকাল ‘আমার’ই থাকবে
+-  רשמית: יונס מלדה חתם במכבי תל אביב
