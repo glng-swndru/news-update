@@ -1,11 +1,11 @@
 # Latest News
--  Dusty sends pre-season warning as action at Tigerland heats up
--  ผบ.ตร. ชม ผบช.น. ทลายรังปลวก จับมือแทงช่างกลปทุมวันดับ จ่อขยายผลเพิ่ม
--  황현선 전주병 예비후보 "덕진구 분동 주민의견 반영하라"
--  Tri des biodéchets : la Ville de Rambouillet passe à la vitesse supérieure
--  HONOR Magic6 Pro: ¡Listo para el Mundo!, PS5 Impacta: Juego Inédito Aparece sin Conocimiento de Desarrolladores,
--  Kakvo strašno licemerje - Ponoševac napao vojni vrh Srbije, a njegov šef mu preko veze unapređivan u vojsci! (VIDEO)
--  Aile'nin final bölümü sosyal medyada gündem oldu!
--  Liverpool vs Chelsea, Premier League live broadcast & streaming: When and where to watch LIV vs CHE live
--  L'opération des agriculteurs vient de démarrer dans l'Est-Var et pourrait durer 48 heures
--  Warnstreik am Freitag in Castrop-Rauxel: Busfahrer protestieren – diese Busse fahren nicht
+-  „Nie jem chleba i chudnę”. Próbowałaś? Jeśli nie, koniecznie sprawdź te zamienniki. Odchudzanie bez pieczywa jest łatwe i skuteczne!
+-  ВИДЕО. Странный день в НХЛ: мало голов и победы аутсайдеров
+-  Bereit für Mike? Leyla ließ sich vor dem Dschungel lasern!
+-  Kendisini Yaralayan Boğasını Sarılıp Öptü! Rüzgarım, Benim Hayatım, Ömrüm
+-  Van'da vatandaşların zorlu yaşam mücadelesi devam ediyor
+-  قصف متبادل وتصاعد وتيرة الاشتباكات.. ماذا يحصل في الجنوب؟
+-  Neue Ausstellung in Zwota: Eine Amerikanerin unter Vogtländerinnen
+-  Украински удар в Санкт Петербург: Свалихме дрон, той продължи да лети, казват руснаците (ВИДЕО)
+-  Stadt hat an einem Punkt Bedenken: Waldkaserne soll Denkmal werden
+-  Гуманитарная партия удобрений "Уралхима" прибыла в Нигерию
