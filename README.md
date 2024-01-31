@@ -1,11 +1,11 @@
 # Latest News
--  JANJUŠ HOĆE DA PUKNE OD LJUBOMORE Aneli prebacio jednu stvar, pa otkrio koga jedva čega da vidi
--  Amerikanci u panici: Jedan potez Moskve i kraj
--  Dresden: Alter Leipziger Bahnhof - Ausschreibung für Konzept gestartet
--  SSAB:n tuloksen odotetaan puolittuvan, syklin pohja käsillä
--  La Haute-Loire prend du retard sur l'installation de bornes de recharge pour les véhicules électriques
--  Die Klimakleber haben ihrem Ziel geschadet - gut, dass sie anders protestieren wollen
--  ‘Sci-Fi Horror’: No one is pleased at Musk’s announcement he put a Neuralink chip in a human
--  Richard H. Lawrence, Jr.'s Second Book, "Carbon Done Correctly: A Model for Climate Mitigation from the Global South to Wall Street" is Now Available Nationwide
--  Bustling market days for Spring Festival mirror China's economic vitality
--  Експрем’єр Фінляндії Стубб випереджає конкурентів на посаду президента – опитування
+-  Perlunya Pembaharuan NU
+-  Moshe Kasher Talks ‘Subculture Vulture’ — His Memoir About AA, Burning Man and Hasidic Judaism — and Reveals the One Joke He Wishes He Could Cut From It
+-  MISLILA DA JE SKINULA ZAŠTITNU FOLIJU SA TELEVIZORA, A ONA UNIŠTILA EKRAN Napravila sam FATALNU GREŠKU, savetujem da ne radite OVO
+-  RTÜK cezaları sonrasında resmen şaha kalktı: O dizi zirveyi kimseye kaptırmadı… İşte 29 Ocak reyting sonuçları
+-  سيف بن زايد يقدم واجب العزاء بوفاة سالم المزروعي
+-  V generálce na Euro čeká fotbalisty S. Makedonie, trenérem brankářů Kozáčik
+-  It-yhtiö joutui virheellisesti perintäyhtiön silmätikuksi
+-  Cruel thieves steal dead teen’s ‘pride and joy’ as distraught parents beg for its return
+-  NVE vurderte ikke karbonfangst: – Et politisk anliggende
+-  Ifo-Beschäftigungsbarometer sinkt: „Unternehmen eher zurückhaltend bei Neueinstellungen“
