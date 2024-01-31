@@ -1,11 +1,11 @@
 # Latest News
--  Oikeus kumosi Andrew Taten valituksen – ei saa poistua Romaniasta
--  Biden: Osvetit ćemo se za smrt američkih vojnika
--  Radi na minus 76 stepeni za 75.000 evra, a prva prodavnica mu udaljena 3.000 km
--  Erdogan-Partei in Deutschland: Detail ist besonders heikel
--  Back on track: Clayton Oliver returns to Demons
--  Camacho minimiza caso Régis e garante: 'O vestiário do Guarani está blindado'
--  Watch Live: House panel debates Mayorkas impeachment ahead of committee vote - CBS News
--  India and Pakistan start Super Six phase with wins
--  Apple Warns iPhone Sideloading Changes Will Increase Cyber Threats
--  Arsenal napustio Notingem sa tri boda u džepu
+-  पागल व्यक्ति हमला कर दे, तब बचाव में प्रतिरक्षा का अधिकार होगा या नहीं
+-  Could it be YOU? Lucky Brit ticket-holder wins more than £61million after splitting £123million EuroMillions jackpot with Spaniard
+-  ทลายเซฟเฮาส์ "รังอุเทนถวาย" นครบาลระดมปูพรม 7 จุด รวบ 3 คนร้ายแทงปทุมวัน
+-  Bitteres Aus für Bayern-Frauen nach Eigentor
+-  Tom Wheelwright®, CPA and CEO of WealthAbility®, Releases Third Edition of Amazon's #1 Bestselling Tax Book, Tax-Free Wealth: How to Build Massive Wealth by Permanently Lowering Your Taxes
+-  CAN 2023 : le programme complet des quarts de finale
+-  뉴욕증시, FOMC 회의·실적발표 등에 혼조 마감
+-  Трампа выдвинули на Нобелевскую премию мира
+-  Tắm buổi sáng hay buổi tối sẽ tốt cho sức khỏe hơn? Bác sĩ lưu ý 3 điều để tăng lợi ích
+-  Jhajjar-Bahadurgarh News: स्लोगन प्रतियोगिता में सीमा रही प्रथम
