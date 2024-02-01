@@ -1,11 +1,11 @@
 # Latest News
--  Greater Victoria enjoys 2 days of record-breaking warm winter
--  مريض يقاسي مرارة الألم وأسرته تناشد الجهات المسؤولة والقادة لإنقاذه
--  "Якби хтось сказав це раніше": гендиректор YouTube дав пораду №1 для успіху
--  "Totalmente infiltrata da Hamas". Onu travolta, un'accusa pesantissima
--  BBC's Liar: Fake Grooming Scandal's Eleanor Williams now from cash probe to why she lied
--  Emmerdale spoilers: Paddy Kirk makes huge vow to Chas Dingle as she tells Eve about her cancer in emotional moment
--  Samsung Galaxy S24: First Features You Should Try
--  Justiça condena Hang a pagar R$ 85 milhões por assédio durante campanha eleitoral
--  Osamnaestogodišnjak spasao Barselonu VIDEO
--  Kiracı yüzünden ev sahibi ve yakınları hastanelik oldu
+-  Oporba tvrdi: 'Turudićevim izborom pravosuđe će se koristiti u političke svrhe'
+-  5 ülke BRICS'e katılmayı onayladı
+-  Powell ei usko korkojen laskevan vielä maaliskuussa – ”Tarvitsemme lisää todisteita, että inflaatio laskee tavoitteeseen”
+-  "Non è Santa Maria Goretti". La verità su Salis spiazza tutti
+-  Ο αμερικανικός στρατός κατέστρεψε πύραυλο εδάφους-αέρος των Χούθι
+-  الناخب الوطني الإسباني يتّهم "إبراهيم دياز" بالابتزاز!
+-  Hajduk je još jednom pobijedio Dinamo! Ovakvo stanje nogometna javnost ne pamti
+-  'Depremlerde 130 bin kişi öldü' sözüne Murat Kurum açıklık getirdi!
+-  Powell: Fed zatiaľ neuvažuje o znížení úrokových sadzieb
+-  Blinken'dan diplomatlara talimat: ABD bağımsız Filistin devletine hazırlanıyor
