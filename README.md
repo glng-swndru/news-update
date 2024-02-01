@@ -1,11 +1,11 @@
 # Latest News
--  وزير الخارجية البريطانية وصل الى بيروت
--  Eurobank και Πειραιώς χρηματοδοτούν το μεγάλο φωτοβολταϊκό έργο 550 ΜWp της ΔΕΗ Ανανεώσιμες στην Πτολεμαΐδα
--  Statulevičius: naujo būsto rinka Vilniuje susitraukė perpus
--  Jest decyzja ws. nowego zespołu w F1! Absurdalna
--  Schlummertrunk: Der "Sleepy Girl Mocktail" wird auf Tiktok als Wunder-Einschlafhilfe gepriesen. Was kann das bisschen Saft wirklich?
--  Cartón de Tony: En la Casa del Pueblo
--  "Fatti importanti che cambiano presente e futuro": le Stelle di Branko, il segno del giorno
--  Başiskele’de pazarcıya sıcak sabah çorbası
--  Počinje suđenje Greti Thunberg
--  MAFS sex beast: ‘Don’t wanna sleep with you’
+-  20 metrelik falezlerden düşen genç kadının çığlıkları limanı inletti
+-  El CD Teruel cierra la incorporación de Neskes, centrocampista procedente del Ibiza
+-  Liga nacija 2024: Hrvatska nositelj u ždrijebu, prijenos uživo na gol.hr-u!
+-  허공 응시하며 애써 눈물 참는 동료들…순직 소방관 빈소엔 침묵만
+-  Netzagentur nimmt Tausende gefährliche Produkte vom Markt
+-  Маск проведёт голосование акционеров по переносу Tesla в Техас после проигранного суда на $56 млрд
+-  Главният секретар на МВР: Предполагаме откъде е стреляно по Нотариуса
+-  Parineeti Chopra aces debut live gig | Check out her melodious songs
+-  Нуланд прибыла в Киев после заявлений об отставке Залужного
+-  풍수 연구가 최창조 전 서울대 교수 별세
