@@ -1,11 +1,11 @@
 # Latest News
--  Waltroper Eltern von 15-Jährigen fragen: „Können wir die Pyjamaball-Karten zurückgeben?“
--  El Ibex 35 se asienta en positivo sobre los 10.000 puntos en un cierre en tablas del mes de enero
--  Miron Hauser se oženio nakon tri dana veze: Brata našeg poznatog violončelista osvojila je vinkovačka kirurginja
--  A mesterséges intelligencia is segíti a szakválasztást (fotók, videó)
--  Russia uses WWI chemical weapon amid Ukraine breakthrough
--  Vacina contra a dengue do Butantan será entregue a SP em 2025, diz Tarcísio
--  La caricature d'Ygreck en vidéo: la CAQ accusée de monnayer l’accès aux ministres
--  Meghosszabbítják a Francoise Gilot-kiállítást a Műcsarnokban
--  Premier League reaction and transfers latest - BBC
--  Wenn „Remigration“ Realität würde: In Oer-Erkenschwick wären Tausende Menschen betroffen
+-  Кирил Петков: Не трябва да чакаме нито ден повече, смяната на състава на КЗК е наш основен приоритет (ВИДЕО) - Труд
+-  3,500-year-old remains of ancient Egyptian suffering from rheumatoid arthritis uncovered
+-  Nejlepší mobilní aplikace pro filmové fanoušky: Kinobox, IMDb, TodoMovies, Letterboxd a mnoho dalších
+-  Євросоюз обіцяє збільшити військову допомогу Україні до 21 мільярда євро на рік
+-  IFC : Les IDE du Maroc dans toute l’Afrique ont dépassé les 800 M$
+-  Für die Demokratie: Helene Fischer und weitere Top-Stars: exklusiver Aufruf zum Kampf gegen Rechtsextremismus
+-  Eintritt frei beim deutsch-chinesischen Freundschaftskonzert in Besigheim
+-  VfB Waltrops Neuzugang verlor den Spaß: Trainer-Entlassung war Grund für Weggang aus Alstedde
+-  Gegen rechts: Was kommt nach den Demos? Zehn Ideen, wie wir Rechtsextreme stoppen können
+-  Kuulennot | Japanin kuu­laskeutuja Slim elvytettiin
