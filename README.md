@@ -1,11 +1,11 @@
 # Latest News
--  Casemiro Ogah Ikut Bicara Nasib Erik ten Hag, Buktinya Ada di Musim Lalu
--  DEČAK (14) NAPADNUT NA MILJAKOVCU: Hitno operisan, zadobio teške povrede glave
--  "C’est une offre qui manquait au centre et à notre clientèle", l'enseigne Grand frais a ouvert à Polygone Riviera
--  Sandoz announces changes in the Board of Directors
--  Deutsche Bank-Aktie: Deutsche Bank will trotz eines Gewinnrückgangs die Dividende anheben
--  Batler jači od tripl-dabla Sabonisa i "rafala" Mareja - Joviću ni minut
--  Mitsubishi Outlander: A suitable family SUV
--  数え100歳は世界の自然と光を撮る 「何とかものにせなあかん」
--  信用卡國外訂房反悔刷退 銀行：留意被收手續費
--  Finalmente Brenner. Chi è il Gabriel Jesus dell'Udinese, l'arma in più del club di Pozzo
+-  Exelion aloittaa 40 miljoonan euron aurinkovoimalan rakentamisen keväällä Simoon – 120 000 aurinkopaneelia tuottavat vuodessa sähkön 26 000 kerrostalokaksiolle
+-  ANKETA Kako vam se sviđa novi kulinarski show Hell's Kitchen?
+-  Adian Napitupulu Bongkar Cara Aparat Rezim Orba Tangkap Aktivis, Masih Terjadi Sampai Sekarang?
+-  'You can see it': Rio Ferdinand spotted Liverpool fans really supporting one player v Chelsea
+-  Google unterzeichnet seinen größten Offshore-Stromvertrag mit niederländischen Windprojekten
+-  الجميع مصابون به.. مرض العصر الصامت "يغتالكم" بتكتّم
+-  Tokat'ta feci kaza: Sokak köpeği yola atladı, araç takla attı! 5 yaralı
+-  Rangers transfer deadline day: Signing imminent, left-back blow, Shankland interest, late moves, possible exits
+-  Firearm access under review after tragic police station death
+-  Quel est le point commun entre un chocolatier de l'Yonne, le Japon et une ganache au ratafia ?
