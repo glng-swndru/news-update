@@ -1,11 +1,11 @@
 # Latest News
--  Tifo hastalığına karşı domates suyu
--  Un policía porteño mató a balazos a uno de los ladrones que le robaron el celular
--  El Gobierno irá a la Corte Suprema tras fallo que invalida la reforma laboral
--  Foulées du Rail autour de Dun-le-Palestel (Creuse) : ouverture des inscriptions le 2 juin
--  Son dakika! Uluslararası Adalet Divanı Rusya kararını açıkladı
--  Jugendbuchautoren in Sorge vor Rechtsextremen
--  На новой арене в Светлогорске встретились команды Президента и Гомельской области
--  Inside the fantasy life of YouTube 'beheader' Justin Mohn: Creepy Spotify and Messiah link
--  İlçe Başkanı Acurman açıkladı CHP, Zafer Mutlu’yu mu destekleyecek?
--  Düzce'de kendisinden haber alınamayan yaşlı kadın evinde ölü olarak bulundu!
+-  Агент Клаудиньо опроверг информацию о безответственном отношении игрока к тренировкам
+-  Výzva Suchý február: Vydržíte mesiac nekonzumovať alkohol?
+-  Výzva Suchý február: Vydržíte mesiac nekonzumovať alkohol?
+-  STF deve 'ajudar na construção de política penitenciária mais eficiente', afirma Dino
+-  Vācijā ceturtdien streika dēļ tiks atcelti vai kavēsies vairāk nekā 1100 avioreisu
+-  푸틴 “추락 러 수송기, 美패트리엇에 격추됐다”
+-  STF deve ‘ajudar na construção de política penitenciária mais eficiente’, afirma Dino
+-  Известная писательница лишена звания в России
+-  В азербайджанской армии проводятся мероприятия по боеготовности
+-  'झारखंड टाइगर' के नाम से मशहूर, जानें कौन हैं झारखंड के होने वाले सीएम चंपई सोरेन?
