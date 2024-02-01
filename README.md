@@ -1,11 +1,11 @@
 # Latest News
--  ‘Lack of Accountability Responsible for Nigeria’s Petroleum Industry Woes’
--  イスラエル極右が目指す「パレスチナ人なきガザ」
--  SkyCity braces for $73m money-laundering punishment
--  Expert: How FG can Make Youths Compete Globally in Digital Market
--  Gold Edges Higher, Supported by Lingering Fed Rate-Cut Hopes
--  イスラエル極右が目指す「パレスチナ人なきガザ」 - WSJ発
--  “면접만 봤는데 월급 달라니”… 한 사장님의 ‘황당한 사연’
--  Margot Robbie says she doesn’t 'feel sad' about being omitted from best actress Oscar race
--  미국, 기준금리 4연속 동결…파월 "3월 인하 어려울 듯"
--  快訊／國1員林段「10車連環撞」！ 占內側2線回堵中
+-  La banda leonesa Malos Versos publica su primer trabajo de estudio
+-  Exclusive: ‘If It Had No Story Within Action, People Would Have Not Been Engaged’, Shares Director Siddharth Anand On Fighter Success
+-  El PP de Laciana anuncia que el centro de salud contará con dos médicos más
+-  천안농수산물도매시장, 설명절 수산동 구매액 최대 30％ 온누리상품권 환급
+-  El 60% de los leoneses lee habitualmente
+-  FC St. Pauli - Folgt nach den Tränen das Tal?
+-  Phone Brands Could Charge You For Premium AI Features In The Next Year Or Two: What We Know
+-  Mayte Amigo, elegida Juglar del Carnaval de La Bañeza
+-  Will I look scabby coming back for 15c? – What to expect as Deposit Return Scheme begins today
+-  Tearful Nicola Sturgeon denies using Covid pandemic for political purposes
