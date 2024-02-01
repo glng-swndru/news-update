@@ -1,11 +1,11 @@
 # Latest News
--  Margot Robbie se pronuncia pela primeira vez por não ter sido indicada ao Oscar 2024 por 'Barbie'
--  Powell says a March rate cut is not likely. But don’t overlook his other comments.
--  Insfrán expresó su malestar por la suspensión de la obra pública anunciada por el Gobierno
--  Nebunie pentru achiziția unui produs, creștere record de 753%: Totul e privat prin telefon, prin negociere directă
--  Вулверхэмптон – Манчестер Юнайтед. Прогноз, анонс на матч чемпионата Англии
--  Murat Kurum'un 'depremlerde 130 bin kişi öldü' sözleri çarpıtıldı! Gökhan Taşkın’dan sert tepki: Birileri sosyal medyada bir algı operasyonuna girişti
--  Migros 1 - 14 Şubat 2024 güncel ürünler! İşte 1 - 14 Şubat Migros kataloğu indirimli fiyat listesi
--  Möglicher Ableger der Erdoğan-Partei: Dava-Gruppierung will bei Bundestagswahl antreten
--  Alec Baldwin pleads not guilty to ‘Rust’ killing
--  Indian cenbank stops fresh business at Paytm Payments Bank
+-  Carnaval sem danos à saúde: especialista fala sobre os perigos da automedicação durante os dias de folia.
+-  Estudo confirma eficácia de 79% da vacina contra dengue do Instituto Butantan
+-  “제가 (KIA 감독으로) 가겠습니다”…강정호 경솔 댓글에 ‘눈살’
+-  快訊／民進黨改投黃珊珊？ 洪申翰：「游昌配」才是最好人選
+-  국가유산과 함께 하는 설 연휴…4대궁·왕릉 무료 개방
+-  "국가전략기술 확보" 기계연, 연구소 신설 등 조직개편
+-  [인사] 대신파이낸셜그룹
+-  여성긴급전화1366대전센터, 5대폭력피해자 통합지원 수행기관 약정 체결
+-  Estudo confirma eficácia de 79% da vacina contra dengue do Instituto Butantan
+-  学生野球協会表彰 登別明日軟式野球部主将・石川慎太朗（いしかわ・しんたろう）さん
