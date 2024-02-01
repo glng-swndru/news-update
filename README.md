@@ -1,11 +1,11 @@
 # Latest News
--  ΕΕ: Θετικό κλίμα για στρατηγείο της ευρωπαϊκής επιχείρησης κατά των Χούτι στην Ελλάδα
--  Tarancón apresenta o show “50 anos” no teatro do Sesc Santo André
--  אוז'בולט ומאיר בהרכב הפועל ת"א להפועל חיפה. ההרכבים המלאים בפנים
--  Почина легендарният Иван Иванов от "Всичко е любов"
--  Piston: Pushback against 'modernization' to continue
--  Banco Central de República Dominicana mantiene tasa de interés en 7 %
--  Семейная пара придумала схему разбойных нападений на мужчин в Москве и попалась
--  'Diyarbakırlı Ramazan hoca' olarak bilinen Ramazan Pişkin öldürüldü!
--  Salida de PVEM benefició a PT, ampliarán siglado: Morena Querétaro
--  Adnan Oktar ve örgüt yöneticilerine hapis cezası
+-  Waltroper Eltern von 15-Jährigen fragen: „Können wir die Pyjamaball-Karten zurückgeben?“
+-  El Ibex 35 se asienta en positivo sobre los 10.000 puntos en un cierre en tablas del mes de enero
+-  Miron Hauser se oženio nakon tri dana veze: Brata našeg poznatog violončelista osvojila je vinkovačka kirurginja
+-  A mesterséges intelligencia is segíti a szakválasztást (fotók, videó)
+-  Russia uses WWI chemical weapon amid Ukraine breakthrough
+-  Vacina contra a dengue do Butantan será entregue a SP em 2025, diz Tarcísio
+-  La caricature d'Ygreck en vidéo: la CAQ accusée de monnayer l’accès aux ministres
+-  Meghosszabbítják a Francoise Gilot-kiállítást a Műcsarnokban
+-  Premier League reaction and transfers latest - BBC
+-  Wenn „Remigration“ Realität würde: In Oer-Erkenschwick wären Tausende Menschen betroffen
