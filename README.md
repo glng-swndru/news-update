@@ -1,11 +1,11 @@
 # Latest News
--  Mark Zuckerberg til amerikanske politikere: Apple og Google skal tvinges til at indføre aldersverifikation
--  Galaxy S24 Ultra má nejlepší displej ze všech mobilů. Foťák ale stačí jen na 18. místo
--  Governo espera que juros caiam mais e PIB pode superar 2%, diz secretário da Fazenda
--  З'явилися кадри Skoda Octavia 2024
--  Христо Проданов: Не вкарвайте БСП в калната мутренска битка
--  Кабинетът одобри допълнителни мерки по сътрудничество с ОИСР
--  България ще бъде официална страна - партньор на Международното изложение WEBIТ
--  Große Nachfrage nach Freiflächen für Fotovoltaik
--  Ankara'da çaldılar İzmir'de yakalandılar
--  Pianist Tanguy de Williencourt tritt in Colditz auf
+-  ΕΕ: Θετικό κλίμα για στρατηγείο της ευρωπαϊκής επιχείρησης κατά των Χούτι στην Ελλάδα
+-  Tarancón apresenta o show “50 anos” no teatro do Sesc Santo André
+-  אוז'בולט ומאיר בהרכב הפועל ת"א להפועל חיפה. ההרכבים המלאים בפנים
+-  Почина легендарният Иван Иванов от "Всичко е любов"
+-  Piston: Pushback against 'modernization' to continue
+-  Banco Central de República Dominicana mantiene tasa de interés en 7 %
+-  Семейная пара придумала схему разбойных нападений на мужчин в Москве и попалась
+-  'Diyarbakırlı Ramazan hoca' olarak bilinen Ramazan Pişkin öldürüldü!
+-  Salida de PVEM benefició a PT, ampliarán siglado: Morena Querétaro
+-  Adnan Oktar ve örgüt yöneticilerine hapis cezası
