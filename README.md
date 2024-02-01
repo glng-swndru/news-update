@@ -1,11 +1,11 @@
 # Latest News
--  ΥΠΟΙΚ: Σε δημόσια διαβούλευση το σ/ν για την αξιοποίηση της δημόσιας περιουσίας στις παραθαλάσσιες περιοχές
--  Манчестер Сіті - Бернлі 3:1: огляд матчу
--  Skriveni dragulj Evrope: Savršena destinacija za kratak odmor
--  Вниманию водителей: обледенели главные дороги Латгалии
--  Trotz Baugenehmigung: Münsinger Rat gegen provisorische Krippengruppe im alten Schulhaus
--  Emmering bekommt eine Umweltvertretung - aber keinen Beirat
--  Harry und Meghan: Mehr Sicherheit für Kinder im Netz gefordert
--  EU POMAŽE GRADNJU DIVOVSKE VJETROELEKTRANE U ŽZH Za VE Poklečani daju 44 milijuna eura bespovratnih sredstava
--  Metroda bıçaqlı dava – 1ölü, 1yaralı (VİDEO)
--  «Не совсем про теннис». Ястремская назвала главную цель на 2024 год
+-  وزير الخارجية البريطانية وصل الى بيروت
+-  Eurobank και Πειραιώς χρηματοδοτούν το μεγάλο φωτοβολταϊκό έργο 550 ΜWp της ΔΕΗ Ανανεώσιμες στην Πτολεμαΐδα
+-  Statulevičius: naujo būsto rinka Vilniuje susitraukė perpus
+-  Jest decyzja ws. nowego zespołu w F1! Absurdalna
+-  Schlummertrunk: Der "Sleepy Girl Mocktail" wird auf Tiktok als Wunder-Einschlafhilfe gepriesen. Was kann das bisschen Saft wirklich?
+-  Cartón de Tony: En la Casa del Pueblo
+-  "Fatti importanti che cambiano presente e futuro": le Stelle di Branko, il segno del giorno
+-  Başiskele’de pazarcıya sıcak sabah çorbası
+-  Počinje suđenje Greti Thunberg
+-  MAFS sex beast: ‘Don’t wanna sleep with you’
