@@ -1,11 +1,11 @@
 # Latest News
--  Zuckerberg pede desculpas no Congresso dos EUA sobre proteção de menores
--  TELO PRONAĐENO U AUTOMOBILU: Majka četvoro dece brutalno ubijena
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 1 февруари /валутен калкулатор/
--  Кубок Германии. Кайзерслаутерн вышел в полуфинал, победив Герту
--  Rovers on a high
--  Спрос на золото в мире в 2023 году стал рекордным
--  Disney Loses Lawsuit Against Florida Gov. Ron DeSantis
--  “Me siento traicionado”, devs lamentan el fin de Spec Ops: The Line
--  DZ sprejel novelo zakona o Prešernovi nagradi
--  Mark Zuckerberg Assures Concerned Parents That He’s Keeping Very Close Personal Eye On Teen Accounts
+-  Ливърпул разби Челси, "Анфийлд" има нов любимец
+-  SPK'dan iki yeni halka arza onay
+-  Краев поискал двойно увеличена заплата в “Левски”
+-  El cantante de una banda de Heavy Metal defendió a Taylor Swift ante los abucheos del público
+-  AK Parti İBB Başkan adayı Kurum: 1,5 puan öndeyiz ve bu CHP'nin yaptığı ankette de böyle
+-  Liverpool thump Chelsea to stay five points clear at the top
+-  หนุ่มไรเดอร์ฯปืนดุ ไล่ยิงการ์ดผับ ดับกลางถนน
+-  Badan Perlindungan Privasi Hong Kong Meluncurkan Investigasi Terhadap Worldcoin
+-  설 앞두고 전통시장서 온누리상품권 환급행사…구매액 최대 30%
+-  How We’re Tackling Fertility Challenges At Ijenwa Fertility – Ijeoma Muoma
