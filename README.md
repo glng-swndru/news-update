@@ -1,11 +1,11 @@
 # Latest News
--  Ben Simmons downgraded to questionable in worry development after NBA comeback
--  Fed faiz kararını açıkladı
--  Lemina-bræður sameinaðir hjá Wolves (Staðfest)
--  Mohamed Ihattaren wordt in B-team van Slavia Praag gezet
--  京都府宇治市で京アニ作品と「源氏物語」コラボのイラストを発表 紫式部ゆかりアピール
--  Nicola Sturgeon at the Covid inquiry: by turns defensive, lawyerly and very raw - The Guardian
--  Baixo estoque de leite humano faz Hospital Regional emitir alerta
--  "GLEDAO SAM TOLIKO PUTA KADA ĐOKOVIĆ GUBI..." Najveća američka zvezda progovorila o Novaku, i to kako!
--  BNS 37, IPC 99 - व्यक्ति को कब प्राइवेट प्रतिरक्षा का बचाब नहीं मिल सकता है, जानिए
--  What is 8K and should your next TV have it?
+-  Lenny Kravitz shares his thoughts on Channing Tatum ahead of daughter Zoë Kravitz’s wedding
+-  Depremzedelerin evleri 6 Şubat'ta teslim edilecek
+-  New Mexico cops won’t be charged for killing man at wrong address
+-  Hurdaya dönen otomobil, sürücüsüne mezar oldu
+-  Sydney teacher accused of using Grindr to solicit boy for sex
+-  AKP’li Murat Kurum sözlerine açıklık getirdi. “Depremde 130 bin canımız gitmiş” açıklaması gündem olmuştu
+-  "Скаузър" отбеляза първия си гол във ВЛ за Ливърпул - феновете полудяха (видео)
+-  STROGO GA KRIJE I ČUVA OD OČIJU JAVNOSTI! Ovaj moćnik stoji iza voditeljke RTS-a
+-  SAD OZNAČILE KRIVCA Oglasila se Bela kuća, hoće li Amerika poći u novi rat?
+-  문경 공장 큰불…고립됐던 소방관 2명, 끝내 주검으로
