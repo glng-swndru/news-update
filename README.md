@@ -1,11 +1,11 @@
 # Latest News
--  США заявили об уничтожении зенитного ракетного комплекса йеменских хуситов
--  Спартак (Варна) победи с 1:0 Женис (Астана) в третата си контролна среща - Труд
--  JUGOSLAVIJA I POSLE 25 GODINA PROGONI NATO: Nebenzja podsetio na mračnu prošlost Zapada, pa rekao šta misli o napadu na Jemen
--  Šok za ameriškega mogotca: Fia prižgala rdečo luč!
--  Zima zpátky v Edenu. Slavii dal přednost před evropskými kluby, těší Tvrdíka
--  Srećno živi na selu: Nikada nije bila na moru ni u kafiću (VIDEO)
--  ¿Cómo saber de quién es un número de teléfono?
--  Video ⟩ "Žalgirim" iespaidīgs pirmais puslaiks un pārliecinoša uzvara Eirolīgā
--  Joseph Daniel Aikens
--  ميسي ضيفًا في برنامج عربي لأول مرّة.. سيستضيفه هذا الإعلامي الشهير(صورة)
+-  Ben Simmons downgraded to questionable in worry development after NBA comeback
+-  Fed faiz kararını açıkladı
+-  Lemina-bræður sameinaðir hjá Wolves (Staðfest)
+-  Mohamed Ihattaren wordt in B-team van Slavia Praag gezet
+-  京都府宇治市で京アニ作品と「源氏物語」コラボのイラストを発表 紫式部ゆかりアピール
+-  Nicola Sturgeon at the Covid inquiry: by turns defensive, lawyerly and very raw - The Guardian
+-  Baixo estoque de leite humano faz Hospital Regional emitir alerta
+-  "GLEDAO SAM TOLIKO PUTA KADA ĐOKOVIĆ GUBI..." Najveća američka zvezda progovorila o Novaku, i to kako!
+-  BNS 37, IPC 99 - व्यक्ति को कब प्राइवेट प्रतिरक्षा का बचाब नहीं मिल सकता है, जानिए
+-  What is 8K and should your next TV have it?
