@@ -1,11 +1,11 @@
 # Latest News
--  GIF:s målkung om märkliga skadan, sin fysik – och att få en kompis
--  GIF:s målkung om märkliga skadan, sin fysik – och att få en kompis
--  GIF:s målkung om märkliga skadan, sin fysik – och att få en kompis
--  Трифоновден е, вижте кои са имениците днес
--  GIF:s målkung om märkliga skadan, sin fysik – och att få en kompis
--  GIF:s målkung om märkliga skadan, sin fysik – och att få en kompis
--  藤森慎吾、恋人との同棲を公表「ご飯を作ってくれる」 田中みな実イジリには「向こうも向こうの生活が…」 - スポニチアネックス Sponichi Annex
--  GIF:s målkung om märkliga skadan, sin fysik – och att få en kompis
--  Fortingall Hotel in famous Perthshire yew tree village sale
--  Peter Obi Pays Condolence Visit to Nabeeha Al-Kadriyar Family, Says It’s Heartbreaking
+-  정해인 "첫 로코 도전 기대…파트너 정소민 출연작 보며 익히는 중"
+-  TikTok Loses Taylor Swift, Olivia Rodrigo, and More Music Amid Dispute Over Payments, AI
+-  김경율, 야권 인사들 비위 줄줄이 거론하며 "제발 날 고소하라"
+-  à¶¯à·“à¶¸à¶±à·� à¶±à·�à¶­à·�à¶ºà·’ à¶‹à¶­à·Šà¶­à¶» à¶´à¶­à·Šâ€�à¶» à¶´à¶»à·“à¶šà·Šà·‚à·�à·€à·™à¶±à·Š à¶œà·”à¶»à·”à·€à¶»à·” à¶‰à·€à¶­à¶§
+-  Eric Roberts Calls James Earl Jones "Nicest Human Being I've Ever Worked With"
+-  기안84, 입 터진 ‘먹방84’ (나 혼자 산다)
+-  기안84, 입 터진 ‘먹방84’ (나 혼자 산다)
+-  Toàn cảnh tuyến đường 10 làn xe xuyên qua khu đô thị đắt đỏ bậc nhất Hà Nội, tương lai sẽ làm thay đổi toàn bộ bất động sản trục Hồ Tây - Ba Vì
+-  Svi noviteti u veljači: Serije i filmovi koje ćemo gledati i o kojima će se pričati
+-  柯震東認了有約過砲！羞曝「曾在餐桌上」結束不斷聯繫：會是好朋友
