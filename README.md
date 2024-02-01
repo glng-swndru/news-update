@@ -1,11 +1,11 @@
 # Latest News
--  Cách sơ cứu khi bị bỏng do pháo nổ
--  «أعمال» تعلن عن شراكة إستراتيجية بين «أعمال الطبية» و«أوستكو للرعاية الصحية»
--  තාත්තේ… බයෙන් හිටියේ…
--  'Usah lagi fikirkan Piala Asia, fokus misi akan datang'
--  Kondisi Terkini Korban Penembakan Colomadu yang Masih Hidup
--  Gaziantep’te hafif ticari araç devrildi: 5 yaralı
--  OFICIAL: Bruno Costa assina pelo Vizela
--  AKCIJA USRED KNEZ MIHAILOVE Osvanuo snimak hapšena (VIDEO)
--  Хетафе – Реал Мадрид. Прогноз и анонс на матч чемпионата Испании
--  Sultan of Sokoto, Gov Lawal of Zamfara State Vow to End Polio Virus
+-  Margot Robbie se pronuncia pela primeira vez por não ter sido indicada ao Oscar 2024 por 'Barbie'
+-  Powell says a March rate cut is not likely. But don’t overlook his other comments.
+-  Insfrán expresó su malestar por la suspensión de la obra pública anunciada por el Gobierno
+-  Nebunie pentru achiziția unui produs, creștere record de 753%: Totul e privat prin telefon, prin negociere directă
+-  Вулверхэмптон – Манчестер Юнайтед. Прогноз, анонс на матч чемпионата Англии
+-  Murat Kurum'un 'depremlerde 130 bin kişi öldü' sözleri çarpıtıldı! Gökhan Taşkın’dan sert tepki: Birileri sosyal medyada bir algı operasyonuna girişti
+-  Migros 1 - 14 Şubat 2024 güncel ürünler! İşte 1 - 14 Şubat Migros kataloğu indirimli fiyat listesi
+-  Möglicher Ableger der Erdoğan-Partei: Dava-Gruppierung will bei Bundestagswahl antreten
+-  Alec Baldwin pleads not guilty to ‘Rust’ killing
+-  Indian cenbank stops fresh business at Paytm Payments Bank
