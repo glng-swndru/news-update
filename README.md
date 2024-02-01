@@ -1,11 +1,11 @@
 # Latest News
--  Ankara’da uyuşturucu operasyonunda 2 gözaltı
--  Външно предупреди за транспортни затруднения в Германия, Гърция и Италия
--  Construction works begin on Inverkeithing allotments
--  వంటింటి చిట్కాలు
--  Houseworks: Young entrepreneur brings elegance to life
--  Murat Kurum İstanbul'daki son anket sonuçlarını açıkladı!
--  Wahlen: Modell für Europa? Südtirol mit neuartiger Mitte-Rechts-Regierung
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  Cipriani confirms retirement from rugby
--  German e-vehicle sales pick up pace of growth in China: PwC
+-  Kıskançlık yüzünden eşini öldüren şahıs tutuklandı
+-  Starlink’in lazer sistemi günde 42 milyon GB aktarıyor
+-  YouTuben kautta levitetään kieroa haittaohjelmaa: varo ennen kuin klikkaat
+-  Scontro tra mezzi pesanti sulla Statale a Spinazzola: un morto
+-  Une conduite sans permis ni assurance, une femme héliportée après un accident... Les faits divers en Auvergne
+-  Minister calls on Uisce Éireann to fix Cork's 'water crisis'
+-  Fax Services Market is Set to Reach $5.47 Billion by 2028, Cloud and Hybrid Solutions Leading the Future of the Market - Arizton
+-  Sprawdzony mikrofon w niskiej cenie. Promocja na Krux Edis 1000
+-  Szankciót vetett ki Oroszországra Svájc
+-  Emre Mor, Fatih Karagümrük ile anlaşma sağladı
