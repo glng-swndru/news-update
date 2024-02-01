@@ -1,11 +1,11 @@
 # Latest News
--  Promis wie Helene Fischer gegen Rechtsextremismus
--  Muhadjir Sebut Jokowi Pernah Ingatkan Kabinetnya Antisipasi Suasana Kerja di Tahun Politik
--  Quién es Alexis Pirchio, el nuevo titular de Defensa de la Competencia
--  Malgré l'annulation de la première étape, l'édition 2024 de l'Étoile de Bessèges-Tour du Gard est maintenue
--  Malgré l'annulation de la première étape, l'édition 2024 de l'Étoile de Bessèges-Tour du Gard est maintenue
--  Caso Maignan, accolto il ricorso dell'Udinese: stadio riaperto, ma solo in parte
--  Ausblick: Deutsche Bank legt die Bilanz zum abgelaufenen Quartal vor
--  ایف بی آر نے ریکارڈ 5150 ارب روپے کے محصولات جمع کرلئے
--  بشری بی بی اڈیالہ جیل سے بنی گالا منتقل، عمران خان کی رہائشگاہ سب جیل قرار
--  „Schmutzkampagne“ in Kaarst: Frankenheim-Bewerber ziehen sich zurück
+-  Erster Richterspruch im Mecke-Prozess: Dieses Urteil schreckt niemanden ab
+-  Triplo do valor nos apoios do Vale Eficiência faz disparar candidaturas desde novembro
+-  GROBARI PREPLAVILI MONTE KARLO: Na ulicama se čuje samo srpski! Veliki broj navijača Partizana nema ulaznice
+-  Une caméra qui montre toutes les pertes de chaleur des logements puydômois
+-  Globalna podrška: FK Željezničar okuplja navijače širom svijeta
+-  Uzelman: Burgeoning debt interest depletes funding for government services
+-  Uzelman: Burgeoning debt interest depletes funding for government services
+-  Le CA Brive vous a-t-il rassuré depuis le début de l'année 2024 ? Ecoutez l'épisode 6 de la saison 4 de PodCAB
+-  Suomessa rakennettu Icon of the Seas joutui tikunnokkaan – XXL-kokoiset risteilyalukset kovan kritiikin kohteena
+-  Uzelman: Burgeoning debt interest depletes funding for government services
