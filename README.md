@@ -1,11 +1,11 @@
 # Latest News
--  U Hrvatskoj se lani rodilo najmanje djece otkad postoje statistička mjerenja
--  Distribusi Logistik Pemilu ke TPS di Kapuas Hulu Dimulai 8-13 Februari 2024
--  El tiempo en Priego de Córdoba: esta es la previsión meteorológica de hoy, jueves 1 de febrero
--  Minikuchyně zvládnou víc, než čekáte
--  Щабът на операцията на ЕС в Червено море ще бъде в Лариса - Труд
--  Derbi Öncesi Sürpriz Seyirci Kararı
--  İYİ Parti'den maaş tepkisi
--  Kron Gracie frustrated with current MMA generation: ‘You can’t just be good at 1 martial art’
--  Reisetaugliches Arbeitsnotebook: Medion-Deal bei Aldi
--  Манчестър Юнайтед и Гранада се договориха за полузащитник
+-  Polymethyl Methacrylate Market worth $7.26 billion by 2030, growing at a CAGR of 4.64% - Exclusive Report by 360iResearch
+-  Erling Haaland's Man City exit plan outlined as Pep Guardiola hints at quitting
+-  마사회, 2월 경마 2일부터 스타트…설 연휴 '휴장'
+-  Glivarju dirka po Šardži, Ravbar v zadnji etapi tretji
+-  Thú vị với những cách biếu quà Tết bố mẹ chồng của các nàng dâu
+-  V dalmatinskem mestu razmah tako imenovanih kovček estetikov
+-  時間外労働200時間、休日3カ月なしで過労死も 医師が“定額働かせ放題”になるワケ
+-  健康網》早上沒事 晚上頻夜尿？ 醫：喝水的方式錯了
+-  Arts Picks: Art as emotional labour at NTU, T:>Works script reading, and Li Tianbing
+-  Niedziele handlowe 2024. Kiedy sklepy będą otwarte w lutym?
