@@ -1,11 +1,11 @@
 # Latest News
--  Vad innebär det nya räntebeskedet?
--  8 casos de IA aplicada al ecommerce
--  VIDEO: Xem lại trận cầu thủ Bà Rịa Vũng Tàu đá dưới sức để thua Đà Nẵng
--  Merkez Bankası, PPK toplantısının özetini yayımladı: 'Enflasyon ocakta yükselecek sonrasında ise yavaşlayacak'
--  Chytrý náramek Samsung Galaxy Fit 3 se blíží. Bude se vám líbit? – 3× aktualizováno
--  – Fyyyyyr! Compagniet får pengar til saluttkurs
--  ニトリ国内外に1000店舗達成へ 似鳥会長「海外展開に重点」 低迷期・アジア市場に“お、ねだん以上。”で挑戦
--  "Sie sind dabei, das Marvel-Universum zu retten": Der "Argylle"-Regisseur hat Szenen aus "Deadpool 3" gesehen – und ist begeistert
--  Se cae fichaje azul; amarran a Sánchez
--  Global Hi-Rel DC-DC Converter Market: Projected Valuation to Surpass US$ 8.6 Billion by 2031 | Astute Analytica
+-  Βρετανία: Έκρηξη κοντά σε σκάφος δυτικά της Χοντέιντα της Υεμένης
+-  Міжнародний суд ООН ухвалив рішення за позовом України проти РФ: що з ним не так
+-  ARD-Serie „Testo“: Kida Khodr Ramadan mit neuer Gangster-Serie
+-  Tauberbischofsheim - Geschädigter nach Parkplatz-Unfall gesucht
+-  Švarc Pipan: Nisem prepričana v objektivnost notranje revizije ministrstva
+-  Jadwal Pertandingan Al Nassr vs Inter Miami Hari Ini, Jumat 2 Februari 2024
+-  heise-Angebot: Mac & i 1/24: iPhone individualisieren, Zeitmanagement, 40 Jahre Mac
+-  ارتفاع عدد شهداء العدوان الإسرائيلي إلى 27019 #عاجل
+-  ‘Congress’ conspiracy to divide country’: Union Minister Shobha Karandlaje on MP DK Suresh’s ‘separate nation’ comment
+-  Tauberbischofsheim - Geschädigter nach Parkplatz-Unfall gesucht
