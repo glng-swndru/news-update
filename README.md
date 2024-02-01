@@ -1,11 +1,11 @@
 # Latest News
--  KB운용 "KBSTAR 미국채30년 엔화노출 ETF, 개인 순매수 300억 돌파"
--  Al Nassr vs Inter Miami | No Ronaldo-Messi reunion as Portuguese star ruled out with injury - The Hindu
--  윤재옥 “野에 중처법 2년 유예·산안청 2년 후 개청 제안”
--  국민통합위원회, '청년마당' 2기 청년위원 모집…19~34세 100명 선발
--  Việt Nam có 5 doanh nghiệp trúng thầu cung cấp gạo cho Indonesia
--  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
--  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
--  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
--  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
--  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
+-  ‘Lack of Accountability Responsible for Nigeria’s Petroleum Industry Woes’
+-  イスラエル極右が目指す「パレスチナ人なきガザ」
+-  SkyCity braces for $73m money-laundering punishment
+-  Expert: How FG can Make Youths Compete Globally in Digital Market
+-  Gold Edges Higher, Supported by Lingering Fed Rate-Cut Hopes
+-  イスラエル極右が目指す「パレスチナ人なきガザ」 - WSJ発
+-  “면접만 봤는데 월급 달라니”… 한 사장님의 ‘황당한 사연’
+-  Margot Robbie says she doesn’t 'feel sad' about being omitted from best actress Oscar race
+-  미국, 기준금리 4연속 동결…파월 "3월 인하 어려울 듯"
+-  快訊／國1員林段「10車連環撞」！ 占內側2線回堵中
