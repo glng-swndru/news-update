@@ -1,11 +1,11 @@
 # Latest News
--  İstanbul - Kudüs (Gazze, Filistin, İsrail) - Mekke – 54
--  Mark Zuckerberg confrontado com a morte de crianças por causa da tecnologia
--  BC Ferries aims for better reliability by cancelling summer refits
--  생태계 확장 나서는 XPLA, 로드맵 비전 ‘로드 투 윈’ 발표
--  Avrupa, soykırıma müdahil olmuyor
--  Mutsvangwa Gloats Over CCC Crisis
--  BC Ferries aims for better reliability by cancelling summer refits
--  주유소에서 소방관 흡연 논란…당국 “4년전 민원, 영상 못받아”
--  Dogecoin: You Could Have Had $13 Million With Just $8k in DOGE
--  Husiler, işgal gemisini vurdu
+-  KB운용 "KBSTAR 미국채30년 엔화노출 ETF, 개인 순매수 300억 돌파"
+-  Al Nassr vs Inter Miami | No Ronaldo-Messi reunion as Portuguese star ruled out with injury - The Hindu
+-  윤재옥 “野에 중처법 2년 유예·산안청 2년 후 개청 제안”
+-  국민통합위원회, '청년마당' 2기 청년위원 모집…19~34세 100명 선발
+-  Việt Nam có 5 doanh nghiệp trúng thầu cung cấp gạo cho Indonesia
+-  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
+-  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
+-  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
+-  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
+-  Video shows Indiana lawmaker showing holstered gun to students who were advocating for gun control
