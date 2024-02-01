@@ -1,11 +1,11 @@
 # Latest News
--  Suudi yetkililerden TFF'ye 'para iadesi' mektubu
--  Латвийским командам запретили соревноваться со сборными России
--  이낙연, 양당 향해 “서로 곱게 늙자” 발끈한 이유
--  Araştırma: Boğaz midyesinin yüzde 73'ünde mikroplastiğe rastlandı
--  Birmingham council and Pembrokeshire housing rumour denied
--  Vrhunska vina i gurmanske delicije stižu u Zagreb: Dobrodošli na Vino-trade Acrobat portfolio tasting 2024.
--  FCM køber Kamara: Se hans SL-mål for Randers
--  민주당, 90여분 토론 끝에 중대재해처벌법 추가 유예 거부
--  'Üşümesin' diye aldığı yolcu dehşeti yaşattı! Taksici 3 kurşunla vuruldu
--  Theater der Altstadt in Stuttgart: Nach dem großen Erfolg kehrt „La Cage aux Folles“ im August zurück
+-  Doların düşmesi borsayı nasıl etkiler?
+-  Government funding for Moray coastal defences
+-  5 acciones en foco este jueves: AAPL, QCOM, HON, CHRW, AMZN
+-  Ngôi sao số 1 Iran bị treo giò trận gặp Nhật Bản
+-  Dubarry Nautical Crossword: Win A Pair of Commodore X LT Deckshoes in Our Online Competition HERE!
+-  Flu deve ter titulares e Fernando Diniz no banco diante do Bangu no Campeonato Carioca
+-  Giữa thị trường nhạc Tết nhạt nhòa, Miu Lê và DTAP có làm nên dấu ấn?
+-  What Manchester United players have been saying about Kobbie Mainoo in training
+-  Живко Коцев: Установени са ценни свидетели относно убийството на Мартин Божанов - Нотариуса
+-  Online restoran yönetimi platformu Owner, 33 milyon dolar yatırım aldı
