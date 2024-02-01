@@ -1,11 +1,11 @@
 # Latest News
--  VIDEO Aktivirali se vulkani koji su mirovali 800 godina: ''Moramo preusmjeriti lavu''
--  SG워너비, 데뷔 20주년 맞아 3월 단독 콘서트 [연예뉴스 HOT]
--  Venelastele mõeldud kokaiin Eesti vetes. Prokurör: kartellid on tootmismahte tõstnud
--  Bühne | „Postkarten aus dem Osten“ an der Schaubühne: Leitartikel mit anderen Mitteln
--  Ver Video. ¡Entendió todo mal! Pensó que las “vacaciones pagas” las cubría la empresa: volvió de Brasil y le pasó los gastos al jefe
--  Local roses in calendar
--  Mindestlohn-Wunder: Deutschland sprengt die Ketten der Armut?
--  Hilfe, wenn der Kinderwunsch unerfüllt bleibt
--  Συναγερμός στην ΕΛ.ΑΣ. για ύποπτο αντικείμενο στη Μητροπόλεως
--  'La Moderna': avance del capítulo 90 que se puede ver este jueves en RTVE
+-  Mark Zuckerberg til amerikanske politikere: Apple og Google skal tvinges til at indføre aldersverifikation
+-  Galaxy S24 Ultra má nejlepší displej ze všech mobilů. Foťák ale stačí jen na 18. místo
+-  Governo espera que juros caiam mais e PIB pode superar 2%, diz secretário da Fazenda
+-  З'явилися кадри Skoda Octavia 2024
+-  Христо Проданов: Не вкарвайте БСП в калната мутренска битка
+-  Кабинетът одобри допълнителни мерки по сътрудничество с ОИСР
+-  България ще бъде официална страна - партньор на Международното изложение WEBIТ
+-  Große Nachfrage nach Freiflächen für Fotovoltaik
+-  Ankara'da çaldılar İzmir'de yakalandılar
+-  Pianist Tanguy de Williencourt tritt in Colditz auf
