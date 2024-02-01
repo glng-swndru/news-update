@@ -1,11 +1,11 @@
 # Latest News
--  Oporba tvrdi: 'Turudićevim izborom pravosuđe će se koristiti u političke svrhe'
--  5 ülke BRICS'e katılmayı onayladı
--  Powell ei usko korkojen laskevan vielä maaliskuussa – ”Tarvitsemme lisää todisteita, että inflaatio laskee tavoitteeseen”
--  "Non è Santa Maria Goretti". La verità su Salis spiazza tutti
--  Ο αμερικανικός στρατός κατέστρεψε πύραυλο εδάφους-αέρος των Χούθι
--  الناخب الوطني الإسباني يتّهم "إبراهيم دياز" بالابتزاز!
--  Hajduk je još jednom pobijedio Dinamo! Ovakvo stanje nogometna javnost ne pamti
--  'Depremlerde 130 bin kişi öldü' sözüne Murat Kurum açıklık getirdi!
--  Powell: Fed zatiaľ neuvažuje o znížení úrokových sadzieb
--  Blinken'dan diplomatlara talimat: ABD bağımsız Filistin devletine hazırlanıyor
+-  США заявили об уничтожении зенитного ракетного комплекса йеменских хуситов
+-  Спартак (Варна) победи с 1:0 Женис (Астана) в третата си контролна среща - Труд
+-  JUGOSLAVIJA I POSLE 25 GODINA PROGONI NATO: Nebenzja podsetio na mračnu prošlost Zapada, pa rekao šta misli o napadu na Jemen
+-  Šok za ameriškega mogotca: Fia prižgala rdečo luč!
+-  Zima zpátky v Edenu. Slavii dal přednost před evropskými kluby, těší Tvrdíka
+-  Srećno živi na selu: Nikada nije bila na moru ni u kafiću (VIDEO)
+-  ¿Cómo saber de quién es un número de teléfono?
+-  Video ⟩ "Žalgirim" iespaidīgs pirmais puslaiks un pārliecinoša uzvara Eirolīgā
+-  Joseph Daniel Aikens
+-  ميسي ضيفًا في برنامج عربي لأول مرّة.. سيستضيفه هذا الإعلامي الشهير(صورة)
