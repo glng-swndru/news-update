@@ -1,11 +1,11 @@
 # Latest News
--  Кайзерслаутерн удари Херта в Берлин и е на полуфинал за Купата на Германия
--  After young people leave treatment, let’s give them a safe place to go
--  Tailandia deporta a Israel todo los miembros de la banda Bi-2
--  "지금 잘리는 중"…MZ 직장인 사이 '해고 브이로그' 유행
--  Reykjavíkurmótið: Fimmtán ára skoraði í sigri Fram á Val - KR fer í úrslit
--  Nekoliko ljudi ozlijeđeno u Londonu nakon što je na njih bačena kiselina
--  "트럼프, 7개 경합주서 바이든에 오차 범위 밖에서 우세"
--  State Of Play Returns In February With Final Fantasy 7 Rebirth Details
--  After young people leave treatment, let’s give them a safe place to go
--  Zoff um Oliver Pocher: Sind Amira und Sandy noch befreundet?
+-  Spotify’s exclusivity era nears its end
+-  استعراض التعاون الثنائي مع هنغاريا
+-  Orbán Viktor szegényebb lett
+-  UAB Helps former football player through accident
+-  رئيس الوزراء: وساطتنا حققت نتائج لم يحققها القتال بغزة
+-  Grunur um sýruárás í Lundúnum
+-  As drug decriminalization turns 1, ending it won’t save lives: B.C. minister
+-  As drug decriminalization turns 1, ending it won’t save lives: B.C. minister
+-  Info Pemadaman Listrik Hari Ini, Kamis 1 Februari 2024
+-  대전서 혼자 있는 여성만 골라 강도짓… 30대 징역 9년
