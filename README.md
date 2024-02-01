@@ -1,11 +1,11 @@
 # Latest News
--  Ливърпул разби Челси, "Анфийлд" има нов любимец
--  SPK'dan iki yeni halka arza onay
--  Краев поискал двойно увеличена заплата в “Левски”
--  El cantante de una banda de Heavy Metal defendió a Taylor Swift ante los abucheos del público
--  AK Parti İBB Başkan adayı Kurum: 1,5 puan öndeyiz ve bu CHP'nin yaptığı ankette de böyle
--  Liverpool thump Chelsea to stay five points clear at the top
--  หนุ่มไรเดอร์ฯปืนดุ ไล่ยิงการ์ดผับ ดับกลางถนน
--  Badan Perlindungan Privasi Hong Kong Meluncurkan Investigasi Terhadap Worldcoin
--  설 앞두고 전통시장서 온누리상품권 환급행사…구매액 최대 30%
--  How We’re Tackling Fertility Challenges At Ijenwa Fertility – Ijeoma Muoma
+-  뉴욕증시, 3월 금리 동결에 하락 마감…나스닥 2.2%↓
+-  Tamara Tyasmara Kuatkan Mental Demi Cek CCTV Lihat Penyebab Anak Tenggelam
+-  13 ఎంపీ సీట్లు ఖరారు!
+-  Γερμανία: Διακρίσεις σε βάρος μεταναστών εντοπίζει ο ΟΟΣΑ - Παραμένει ελκυστικός προορισμός για εργασία
+-  المجلس العلمي المحلي يجمع المرشدين والمرشدات برسم شهر يناير
+-  コラム：日銀の金融政策と為替相場、思わぬ円高リスクも＝尾河眞樹氏 - ロイター (Reuters Japan)
+-  “Dazzlingly authentic speaker and miked room tones that truly sound and feel like guitar speaker cabinets”: UAFX OX Stomp Dynamic Speaker Emulator review
+-  Revelan la nueva entrega de Metro; será un juego VR para PlayStation VR2
+-  Rodrigo González a Pamela Franco tras confirmar ruptura: Conociste a Christian siéndole infiel a su pareja
+-  Ken Levine’s Judas gets a trailer at Sony’s State of Play
