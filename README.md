@@ -1,11 +1,11 @@
 # Latest News
--  "هدية" تخدم أكثر من 14 مليون حاج ومعتمر وزائر
--  Suche nach Affe in Schottland: „Kingussie Kong“ weiter auf der Flucht
--  Beşiktaş'ın transfer listesi ortaya çıktı! Samet Aybaba görüşmelere başladı
--  Thêm nhiều người bị khởi tố vụ ông Trịnh Văn Quyết
--  El Euríbor, a un paso de abaratar las hipotecas en Baleares
--  Escape-Room in Barcelona: Entkommen aus dem eigenen Sarg
--  Ефектът “безплатна диплома”: фамилия висшисти е 5 пъти по-богата от семейство с основно
--  Kim Kardashian panics over 'crazy' psoriasis: 'Don't know what's happening'
--  Russland: Boris Nadeschdin reicht Unterschriften bei Wahlkommission ein
--  Suche nach Affe in Schottland: „Kingussie Kong“ weiter auf der Flucht
+-  ÖPNV in Meiningen: MBB bietet Lösungen statt Streik
+-  Triastek's 3D Printed Gastric Retention Product T22 Receives FDA Clearance of IND Application
+-  中国の自動車輸出 日本抜き首位 EV輸出が拡大
+-  Nuvei launches EPR integration into Microsoft Dynamics 365
+-  Best Internet Providers in Bryan, Texas - CNET
+-  Lỗ hổng của Mỹ trong tác chiến từ sau vụ tập kích ở Jordan
+-  Tumor im Mund: Zwei Bereiche am häufigsten von Krebs betroffen
+-  Cómo es que sentir nostalgia puede ayudarnos en los momentos difíciles de la vida
+-  Dangerous, sexist rules of how to be a man are still alive for many
+-  VEEL ÜKS ⟩ PayPal asub koondama
