@@ -1,11 +1,11 @@
 # Latest News
--  Exelion aloittaa 40 miljoonan euron aurinkovoimalan rakentamisen keväällä Simoon – 120 000 aurinkopaneelia tuottavat vuodessa sähkön 26 000 kerrostalokaksiolle
--  ANKETA Kako vam se sviđa novi kulinarski show Hell's Kitchen?
--  Adian Napitupulu Bongkar Cara Aparat Rezim Orba Tangkap Aktivis, Masih Terjadi Sampai Sekarang?
--  'You can see it': Rio Ferdinand spotted Liverpool fans really supporting one player v Chelsea
--  Google unterzeichnet seinen größten Offshore-Stromvertrag mit niederländischen Windprojekten
--  الجميع مصابون به.. مرض العصر الصامت "يغتالكم" بتكتّم
--  Tokat'ta feci kaza: Sokak köpeği yola atladı, araç takla attı! 5 yaralı
--  Rangers transfer deadline day: Signing imminent, left-back blow, Shankland interest, late moves, possible exits
--  Firearm access under review after tragic police station death
--  Quel est le point commun entre un chocolatier de l'Yonne, le Japon et une ganache au ratafia ?
+-  Alec Baldwin izjasnio se da nije kriv za ubojstvo snimateljice
+-  Terbit Surat BKN soal Usulan Kebutuhan PNS & PPPK 2024, Honorer Tendik Bergembira
+-  Čína nechce být největším znečišťovatelem. Loni nainstalovala rekordní množství solárních panelů
+-  Rezeptvorschlag: Pizzateig ohne Hefe: Mit diesen Grundzutaten gelingt jede Pizza
+-  Incident u Londonu: Devetero ozlijeđenih nakon što je na njih bačena "korozivna tvar"
+-  В Аргентине против несогласных с реформами применили слезоточивый газ
+-  Ruszyła kwalifikacja wojskowa. Armia zaprasza w swoje szeregi cytatem z filmowego hitu
+-  Janusz Palikot nie zraża się bojową postawą Magdy Gessler. Ujawni więcej. "Napisałem najlepszy tekst na twój temat"
+-  Jean-Jacques Goldman s'invite dans le bus des anciens candidats de la "Star Academy" : une photo mémorable
+-  Rezeptvorschlag: Pizzateig ohne Hefe: Mit diesen Grundzutaten gelingt jede Pizza
