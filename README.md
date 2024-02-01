@@ -1,11 +1,11 @@
 # Latest News
--  Kıskançlık yüzünden eşini öldüren şahıs tutuklandı
--  Starlink’in lazer sistemi günde 42 milyon GB aktarıyor
--  YouTuben kautta levitetään kieroa haittaohjelmaa: varo ennen kuin klikkaat
--  Scontro tra mezzi pesanti sulla Statale a Spinazzola: un morto
--  Une conduite sans permis ni assurance, une femme héliportée après un accident... Les faits divers en Auvergne
--  Minister calls on Uisce Éireann to fix Cork's 'water crisis'
--  Fax Services Market is Set to Reach $5.47 Billion by 2028, Cloud and Hybrid Solutions Leading the Future of the Market - Arizton
--  Sprawdzony mikrofon w niskiej cenie. Promocja na Krux Edis 1000
--  Szankciót vetett ki Oroszországra Svájc
--  Emre Mor, Fatih Karagümrük ile anlaşma sağladı
+-  "Sei ehrlich"! Die Beckhams stellen virale Dokuszene nach
+-  (((VIDEO))) Lo mejor de la jornada de Balonmano nacional
+-  Зеленський: Енергетичну систему збережено
+-  Nos EUA, Federal Reserve mantém taxa dos Fed Funds em 5,25% a 5,50% ao ano
+-  Nos EUA, Federal Reserve mantém taxa dos Fed Funds em 5,25% a 5,50% ao ano
+-  Assemblée Nationale: Les députés ont voté la mise en place d’une commission d'enquête parlementaire avec 120 pour et 24 contre
+-  236 پروژه دهه فجر در رشت به بهره‌برداری می‌رسد
+-  Σέβη Βολουδάκη για οπαδική βία: Ο νέος νόμος περικλείει την θέληση όλων μας να δοθεί τέλος στο φαινόμενο
+-  Alanya'da rekor promosyon anlaşması
+-  LIVEBLOG STANDARD-ANTWERP. Van Bommel brengt de 19-jarige Doumbia aan de aftrap, ook Kerk staat in de basis
