@@ -1,11 +1,11 @@
 # Latest News
--  Prvi ovogodišnji State of Play ugostio petnaest nadolazećih igara za PlayStation
--  La inflación en la zona euro desciende al 2,8% en enero
--  Brandweerduikers halen persoon uit water Hollandsche IJssel
--  リンガーハットの「ちゃんぽん」にドレッシングをかけるとおいしい。スナック菓子にも
--  Canada’s dental benefit is expanding. Here’s what you need to know - Toronto Star
--  Giao dịch hàng hóa Đông Nam Á (SACT) khai trương Chi nhánh tại TPHCM
--  Así fue la explosión mediática de la carnicera del Barrio Laprida
--  Buta bukan penghalang baca al-Quran - Muhammad Qayyim
--  Pistte 2 uçak çapıştı
--  安倍派“最後の日” 松川るい氏「幹部の責任重い」 橋本聖子氏「自分の責任の取り方を…」 所属議員の思い様々
+-  「心に残った結婚式」グランプリに輝いたのはどんな結婚式？ 鹿児島市でコンテスト
+-  Serge Aurier Galatasaray'da
+-  Redmi Watch 4 jsou cenově dostupné hodinky s elegantním hliníkovým tělem a vestavěnou GPS
+-  Digiworld ghi nhận tăng trưởng mạnh mảng hàng tiêu dùng, thu về gần 19.000 tỷ đồng doanh thu trong năm 2023
+-  وزارة الأسماك وهيئة المصائد وخفر السواحل يبحتون التنسيق المشترك
+-  Plenković u Bruxellesu: 'Uložit ćemo maksimalne napore za kompromis o pomoći Ukrajini'
+-  WhatsApp: por qué te conviene agregar tu correo electrónico y cómo se hace
+-  VIDEO ⟩ Ebaõnne rohkem kui naela eest: Liverpooli ründaja püstitas müstilise rekordi
+-  Promena plana, Tuhelu gori: Saragosa stigao u Minhen!
+-  Özdemir Berova: Arızadan kaynaklı yapılamayan ödemelerin tarihleri uzatılacak
