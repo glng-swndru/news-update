@@ -1,11 +1,11 @@
 # Latest News
--  謠言終結站》公廁衛生紙有毒針血痕？ 美國影片與台灣無關
--  ‘You better have a snorkel’: flood evacuation alerts expanded in Pemberton
--  白營自推院長人選 黃珊珊：開創新的政治
--  馬東石末日狩獵 單挑喪屍團 韓版巨石強森向國際戲迷招手
--  サイゼリヤの朝食が食べ放題 「ホテルドリームゲート舞浜」が話題
--  142-year-old mansion set to break Hawthorn East record
--  Nives Celzijus iznenadila objavom: 'Cijeli mi život pucaš u leđa... Muško budi jednom bar'
--  龍千玉愛子墜谷後復元佳 謝金晶除夕夜搶頭香
--  PlayStation: Assiste aqui ao primeiro State of Play de 2024
--  Stage is set for Dutton’s dilemma over tax cuts
+-  Zuckerberg pede desculpas no Congresso dos EUA sobre proteção de menores
+-  TELO PRONAĐENO U AUTOMOBILU: Majka četvoro dece brutalno ubijena
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 1 февруари /валутен калкулатор/
+-  Кубок Германии. Кайзерслаутерн вышел в полуфинал, победив Герту
+-  Rovers on a high
+-  Спрос на золото в мире в 2023 году стал рекордным
+-  Disney Loses Lawsuit Against Florida Gov. Ron DeSantis
+-  “Me siento traicionado”, devs lamentan el fin de Spec Ops: The Line
+-  DZ sprejel novelo zakona o Prešernovi nagradi
+-  Mark Zuckerberg Assures Concerned Parents That He’s Keeping Very Close Personal Eye On Teen Accounts
