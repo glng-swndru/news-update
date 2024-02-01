@@ -1,11 +1,11 @@
 # Latest News
--  Doların düşmesi borsayı nasıl etkiler?
--  Government funding for Moray coastal defences
--  5 acciones en foco este jueves: AAPL, QCOM, HON, CHRW, AMZN
--  Ngôi sao số 1 Iran bị treo giò trận gặp Nhật Bản
--  Dubarry Nautical Crossword: Win A Pair of Commodore X LT Deckshoes in Our Online Competition HERE!
--  Flu deve ter titulares e Fernando Diniz no banco diante do Bangu no Campeonato Carioca
--  Giữa thị trường nhạc Tết nhạt nhòa, Miu Lê và DTAP có làm nên dấu ấn?
--  What Manchester United players have been saying about Kobbie Mainoo in training
--  Живко Коцев: Установени са ценни свидетели относно убийството на Мартин Божанов - Нотариуса
--  Online restoran yönetimi platformu Owner, 33 milyon dolar yatırım aldı
+-  وزير العدل تسلّم نسخة مترجمة عن تقرير ألفاريز أند مارشال
+-  Prezes Orlenu Daniel Obajtek odwołany ze stanowiska. "To jest sprawa honorowa"
+-  Индексите в Токио последваха спада на Уолстрийт
+-  Slavu i status legende stekao izvan Hrvatske, a sada se nakon 32 godine vratio kući: ‘Imamo tu dosta posla‘
+-  「月という遠いところに着陸できるのに、地球上の問題を解決できない…」久子さま声を震わせ平和への思い述べられる
+-  Alchemy Pay and Zero Hash: streamlining fiat-crypto transactions
+-  Крик души премьера Польши: Европа устала от Урбана
+-  Totalni "masakr" Putinovih snaga; Objavljeni snimci "bole"
+-  Eropa Diprediksi akan Alami Suhu Ekstrem Baru Tahun Ini
+-  Inaugural Singapore-France Judicial Roundtable
