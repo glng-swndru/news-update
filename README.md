@@ -1,11 +1,11 @@
 # Latest News
--  Dua Lipa’s PDA with actor boyfriend
--  Incidents OM-OL : «Inadmissible», le boss de l’OL hallucine encore
--  Adani Enterprises, Titan, Adani Ports Q3 Results Today — Earnings Estimates
--  Stocks To Watch: Paytm, Infosys, UltraTech, Mankind Pharma, Paras Defence, Godrej Consumer
--  ইরানের হামলার জবাবে বাইডেনের তিন বিকল্প পথ
--  Trese se planeta! Putin doneo odluku o Novorusiji! Ništa više neće biti isto, ovaj potez najavljuje kolosalne promene!
--  Me equivoqué, sin excusa ni perdón
--  Мик Шумахер: Достатъчно добър съм за Формула 1
--  Päivän horoskooppi torstaina 1.2.
--  Premier League darts beef! Maddison & Maupay's war of words over celebration
+-  Cách sơ cứu khi bị bỏng do pháo nổ
+-  «أعمال» تعلن عن شراكة إستراتيجية بين «أعمال الطبية» و«أوستكو للرعاية الصحية»
+-  තාත්තේ… බයෙන් හිටියේ…
+-  'Usah lagi fikirkan Piala Asia, fokus misi akan datang'
+-  Kondisi Terkini Korban Penembakan Colomadu yang Masih Hidup
+-  Gaziantep’te hafif ticari araç devrildi: 5 yaralı
+-  OFICIAL: Bruno Costa assina pelo Vizela
+-  AKCIJA USRED KNEZ MIHAILOVE Osvanuo snimak hapšena (VIDEO)
+-  Хетафе – Реал Мадрид. Прогноз и анонс на матч чемпионата Испании
+-  Sultan of Sokoto, Gov Lawal of Zamfara State Vow to End Polio Virus
