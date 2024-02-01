@@ -1,11 +1,11 @@
 # Latest News
--  Lärmpegel steigt: Saatkrähen in Holzwickede bereiten sich auf die Brutzeit vor
--  Davisov pokal: Povrhu še brez Artnaka
--  Rote Funken haben Anzeige erstattet: Melanie Appel: „Das ist kein Dummejungenstreich!“
--  Chuyến đi khó quên của gia đình nhỏ ở Hà Giang, trẻ nhỏ mê mệt, ngắm hoa đào, hoa mận rợp trời
--  Ésta es la batería del nuevo teléfono HONOR que presentará en Barcelona
--  „So eine Aufgabe lehnt man nicht ab“: Knut Wingender aus Oer-Erkenschwick ist Landestrainer
--  Perú confirma subida de impuesto a alcohol y tabaco desde marzo
--  윤 대통령 "의료인 사법 리스크 줄일 것"...과거 의료 수사 경험 언급
--  TotalEnergies to buy OMV’s Malaysia assets for US$903mil
--  La Patagonia argentina arde: ¿por qué la ley ómnibus de Milei podría echar más fuego?
+-  Nhận định Wolves vs MU (03h15, 2/2): Ten Hag giữa muôn trùng áp lực
+-  ​La commission répond aux médecins
+-  Perbandingan Kekuatan PSM Makassar Vs Persita Tangerang, Siapa Lebih Unggul?
+-  Northwestern coach Chris Collins ejected in waning seconds at Purdue, points to huge FT discrepancy
+-  33 очка Дюранта помогли «Финиксу» обыграть «Бруклин»
+-  Devet osoba završilo u bolnici nakon što je na njih bačena ‘korozivna tvar‘
+-  ‘विदेशमा पैसा टिप्ने रूख छ भन्ने सोच्नु गलत रहेछ’
+-  باران ۴ تالاب ایران را زنده کرد
+-  Результаты конкурсов на сумму свыше 8,3 миллиарда тенге отменены в Караганде
+-  Xu hướng nội thất năm 2024, đây là những gợi ý thiết kế cho người sống có gu
