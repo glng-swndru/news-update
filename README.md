@@ -1,11 +1,11 @@
 # Latest News
--  ÖPNV in Meiningen: MBB bietet Lösungen statt Streik
--  Triastek's 3D Printed Gastric Retention Product T22 Receives FDA Clearance of IND Application
--  中国の自動車輸出 日本抜き首位 EV輸出が拡大
--  Nuvei launches EPR integration into Microsoft Dynamics 365
--  Best Internet Providers in Bryan, Texas - CNET
--  Lỗ hổng của Mỹ trong tác chiến từ sau vụ tập kích ở Jordan
--  Tumor im Mund: Zwei Bereiche am häufigsten von Krebs betroffen
--  Cómo es que sentir nostalgia puede ayudarnos en los momentos difíciles de la vida
--  Dangerous, sexist rules of how to be a man are still alive for many
--  VEEL ÜKS ⟩ PayPal asub koondama
+-  بيان: مجلس الوزراء المصري يوافق على خفض 15% في خطة الاستثمار بالموازنة في 2023-2024
+-  קלופ חשף: כך נפל מעבר בלינגהאם לליברפול
+-  Brexit-Folgen: Armut und Insolvenzen: Vier Jahre nach dem Brexit ist Großbritanniens Bilanz verheerend
+-  Tarifa social SUBE: el paso a paso para tener el descuento de ANSES en transporte público
+-  Ucrânia e Rússia fazem nova troca de prisioneiros
+-  يناير.. يكتب أول النجاحات الرياضية للمملكة في العام 2024
+-  Sertakan Tawakal dalam Mencari Rezeki
+-  Инженер Microsoft нашёл серьёзную уязвимость в ИИ-художнике DALL-E 3, но компания замолчала проблему
+-  Ni denarja: dirke za VN Argentine letos ne bo
+-  Кайзера превърна Байерн в ненаситна машина
