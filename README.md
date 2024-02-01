@@ -1,11 +1,11 @@
 # Latest News
--  La banda leonesa Malos Versos publica su primer trabajo de estudio
--  Exclusive: ‘If It Had No Story Within Action, People Would Have Not Been Engaged’, Shares Director Siddharth Anand On Fighter Success
--  El PP de Laciana anuncia que el centro de salud contará con dos médicos más
--  천안농수산물도매시장, 설명절 수산동 구매액 최대 30％ 온누리상품권 환급
--  El 60% de los leoneses lee habitualmente
--  FC St. Pauli - Folgt nach den Tränen das Tal?
--  Phone Brands Could Charge You For Premium AI Features In The Next Year Or Two: What We Know
--  Mayte Amigo, elegida Juglar del Carnaval de La Bañeza
--  Will I look scabby coming back for 15c? – What to expect as Deposit Return Scheme begins today
--  Tearful Nicola Sturgeon denies using Covid pandemic for political purposes
+-  能登半島地震から1ヵ月 富山県出身の福島・双葉町の男性職員「経験を被災地でも活かせれば」
+-  Về quê đón Tết sau 3 năm làm ăn xa, người đàn ông “nóng mắt” với cảnh này: Cho máy xúc qua dỡ nhà hàng xóm
+-  カープ日南キャンプスタート 矢野選手が球場一番乗り 新井監督「このチームには日本一になる力がある」
+-  Doodles Joins Luxury Watch Brand G-Shock To Launch NFT-Inspired Watches
+-  Giá vé tàu Tết Giáp Thìn tăng 10%, hầu hết các chuyến đã kín chỗ
+-  ビッグモーター県内4店舗に整備事業の停止などの行政処分 必要な整備記録の交付せず【佐賀県】
+-  Nhật Bản mãi ‘đỉnh’: Không muốn sa thải hàng loạt như Google, Facebook, tập đoàn Hitachi và Sony cho nhân viên kiêm nhiệm lẫn nhau để đảm bảo thu nhập
+-  سبب موافقة أيمن يحيى على تجديد عقده مع النصر
+-  Hai doanh nghiệp nộp 2.000 tỷ đồng chỉ trong một tuần, tỉnh miền Trung nhảy 4 bậc trên bảng xếp hạng thu ngân sách
+-  【2024年提出】保険加入者は要注意「確定申告で間違いやすい事例」
