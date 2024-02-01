@@ -1,11 +1,11 @@
 # Latest News
--  能登半島地震から1ヵ月 富山県出身の福島・双葉町の男性職員「経験を被災地でも活かせれば」
--  Về quê đón Tết sau 3 năm làm ăn xa, người đàn ông “nóng mắt” với cảnh này: Cho máy xúc qua dỡ nhà hàng xóm
--  カープ日南キャンプスタート 矢野選手が球場一番乗り 新井監督「このチームには日本一になる力がある」
--  Doodles Joins Luxury Watch Brand G-Shock To Launch NFT-Inspired Watches
--  Giá vé tàu Tết Giáp Thìn tăng 10%, hầu hết các chuyến đã kín chỗ
--  ビッグモーター県内4店舗に整備事業の停止などの行政処分 必要な整備記録の交付せず【佐賀県】
--  Nhật Bản mãi ‘đỉnh’: Không muốn sa thải hàng loạt như Google, Facebook, tập đoàn Hitachi và Sony cho nhân viên kiêm nhiệm lẫn nhau để đảm bảo thu nhập
--  سبب موافقة أيمن يحيى على تجديد عقده مع النصر
--  Hai doanh nghiệp nộp 2.000 tỷ đồng chỉ trong một tuần, tỉnh miền Trung nhảy 4 bậc trên bảng xếp hạng thu ngân sách
--  【2024年提出】保険加入者は要注意「確定申告で間違いやすい事例」
+-  Питання кордонів і допомоги Україні можуть розділити у Конгресі - ЗМІ
+-  【宮崎】延岡を食べ歩く「のべおかタパス」 4年ぶり開催
+-  Hoà Minzy cho con chơi trò này: Không chỉ nghịch cho vui mà còn mang lại nhiều lợi ích vận động, rèn luyện trí não
+-  Суд аннулировал рекордную зарплату Маска в Tesla в десятки миллиардов долларов
+-  "Necesitamos estadistas, no leones": Facundo Manes apuntó a Milei y la UCR queda dividida
+-  Heybike Will Soon Release Hero -- A Powerful All-Terrain E-bike
+-  옵토마 친환경 스크린 골프 전용 레이저 프로젝터 GKW-32 출시
+-  밥스토랑, 잘 나가는 스크린골프장? 음식 판매부터 서빙로봇 선보여
+-  “올해 수출 플러스 전망”…바이오헬스·전기전자 ‘호조’, 철강·석유화학 ‘부진’
+-  Thriller-Serie „Hijack“ mit Idris Elba wird fortgesetzt
