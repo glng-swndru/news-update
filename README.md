@@ -1,11 +1,11 @@
 # Latest News
--  Spotify’s exclusivity era nears its end
--  استعراض التعاون الثنائي مع هنغاريا
--  Orbán Viktor szegényebb lett
--  UAB Helps former football player through accident
--  رئيس الوزراء: وساطتنا حققت نتائج لم يحققها القتال بغزة
--  Grunur um sýruárás í Lundúnum
--  As drug decriminalization turns 1, ending it won’t save lives: B.C. minister
--  As drug decriminalization turns 1, ending it won’t save lives: B.C. minister
--  Info Pemadaman Listrik Hari Ini, Kamis 1 Februari 2024
--  대전서 혼자 있는 여성만 골라 강도짓… 30대 징역 9년
+-  Dua Lipa’s PDA with actor boyfriend
+-  Incidents OM-OL : «Inadmissible», le boss de l’OL hallucine encore
+-  Adani Enterprises, Titan, Adani Ports Q3 Results Today — Earnings Estimates
+-  Stocks To Watch: Paytm, Infosys, UltraTech, Mankind Pharma, Paras Defence, Godrej Consumer
+-  ইরানের হামলার জবাবে বাইডেনের তিন বিকল্প পথ
+-  Trese se planeta! Putin doneo odluku o Novorusiji! Ništa više neće biti isto, ovaj potez najavljuje kolosalne promene!
+-  Me equivoqué, sin excusa ni perdón
+-  Мик Шумахер: Достатъчно добър съм за Формула 1
+-  Päivän horoskooppi torstaina 1.2.
+-  Premier League darts beef! Maddison & Maupay's war of words over celebration
