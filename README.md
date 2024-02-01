@@ -1,11 +1,11 @@
 # Latest News
--  Niewygodne pytanie do Scheuring-Wielgus: Nie krytykowałam chyba rządu PiS
--  Les hausses des tarifs d'autoroutes depuis Clermont-Ferrand : forte hausse sur Clermont-Riom et au péage du viaduc de Millau
--  Ze Stanów Zjednoczonych do Włoch? Karol Świderski blisko zmiany klubu
--  Beşiktaş - Trabzonspor maçının hakemi belli oldu
--  Les hausses des tarifs d'autoroutes depuis Clermont-Ferrand : forte hausse sur Clermont-Riom et au péage du viaduc de Millau
--  Februaris Playstation Plus-spel inkluderar Foamstars-premiären
--  Elazığ buz kesti, süs havuzları dondu
--  Mark Zuckerberg, çocukları koruyamadıkları için ailelerden özür diledi: İşte o anlar
--  У ЗСУ розкрили, які літаки Росія тримає на аеродромі "Бельбек" у Криму
--  Kognitivno bihevioralna terapija u liječenju oboljelih od upalnih bolesti crijeva
+-  Suudi yetkililerden TFF'ye 'para iadesi' mektubu
+-  Латвийским командам запретили соревноваться со сборными России
+-  이낙연, 양당 향해 “서로 곱게 늙자” 발끈한 이유
+-  Araştırma: Boğaz midyesinin yüzde 73'ünde mikroplastiğe rastlandı
+-  Birmingham council and Pembrokeshire housing rumour denied
+-  Vrhunska vina i gurmanske delicije stižu u Zagreb: Dobrodošli na Vino-trade Acrobat portfolio tasting 2024.
+-  FCM køber Kamara: Se hans SL-mål for Randers
+-  민주당, 90여분 토론 끝에 중대재해처벌법 추가 유예 거부
+-  'Üşümesin' diye aldığı yolcu dehşeti yaşattı! Taksici 3 kurşunla vuruldu
+-  Theater der Altstadt in Stuttgart: Nach dem großen Erfolg kehrt „La Cage aux Folles“ im August zurück
