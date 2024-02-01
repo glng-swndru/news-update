@@ -1,11 +1,11 @@
 # Latest News
--  بيان: مجلس الوزراء المصري يوافق على خفض 15% في خطة الاستثمار بالموازنة في 2023-2024
--  קלופ חשף: כך נפל מעבר בלינגהאם לליברפול
--  Brexit-Folgen: Armut und Insolvenzen: Vier Jahre nach dem Brexit ist Großbritanniens Bilanz verheerend
--  Tarifa social SUBE: el paso a paso para tener el descuento de ANSES en transporte público
--  Ucrânia e Rússia fazem nova troca de prisioneiros
--  يناير.. يكتب أول النجاحات الرياضية للمملكة في العام 2024
--  Sertakan Tawakal dalam Mencari Rezeki
--  Инженер Microsoft нашёл серьёзную уязвимость в ИИ-художнике DALL-E 3, но компания замолчала проблему
--  Ni denarja: dirke za VN Argentine letos ne bo
--  Кайзера превърна Байерн в ненаситна машина
+-  Popsängerin Mine im Porträt: Pop-Exotin Mine mit neuem Album „Baum“
+-  Gyanvapi row: What is Vyas ji ka tahkhana where Varanasi court has allowed puja?
+-  Kurioser Auftritt bei Premiere von Cirque Du Soleil in München: Manuel Neuer nimmt Abstand von Ehefrau Anika
+-  KES LÕPETAS ÕPETAJATE STREIGI? Erkki Keldo: ka rahandusminister Mart Võrklaev tegi omad ettepanekud ja pakkus appi spetsialiste
+-  Bursa'da yol düzenlemesi! Trafiğe kapatılacak, tarih ve saat verildi...
+-  Unglück: 15-Jähriger in Baden-Württemberg von Zug erfasst
+-  Do deep learning tools outperform humans in diagnosing breast cancer via ultrasound imaging? - News-Medical.Net
+-  Racing Team Owner Ran Over A Driver's Golden Retriever Puppy Hours Before The Daytona 24
+-  Aprosoja Rondônia propõe consulta para revisão da metodologia de safra da Conab
+-  По каким признакам можно распознать телефонных мошенников, уточнили в Следственном комитете
