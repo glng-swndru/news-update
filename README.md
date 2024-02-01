@@ -1,11 +1,11 @@
 # Latest News
--  Питання кордонів і допомоги Україні можуть розділити у Конгресі - ЗМІ
--  【宮崎】延岡を食べ歩く「のべおかタパス」 4年ぶり開催
--  Hoà Minzy cho con chơi trò này: Không chỉ nghịch cho vui mà còn mang lại nhiều lợi ích vận động, rèn luyện trí não
--  Суд аннулировал рекордную зарплату Маска в Tesla в десятки миллиардов долларов
--  "Necesitamos estadistas, no leones": Facundo Manes apuntó a Milei y la UCR queda dividida
--  Heybike Will Soon Release Hero -- A Powerful All-Terrain E-bike
--  옵토마 친환경 스크린 골프 전용 레이저 프로젝터 GKW-32 출시
--  밥스토랑, 잘 나가는 스크린골프장? 음식 판매부터 서빙로봇 선보여
--  “올해 수출 플러스 전망”…바이오헬스·전기전자 ‘호조’, 철강·석유화학 ‘부진’
--  Thriller-Serie „Hijack“ mit Idris Elba wird fortgesetzt
+-  Top news at 9 AM: Hindus offer prayers inside Gyanvapi mosque, Rain lashes Delhi-NCR, Malaysia gets new king, and more
+-  Cảnh đìu hiu tại một trong những triển lãm ô tô lớn nhất thế giới, chỉ có 8 hãng xe tham dự
+-  L’éphéméride du 1er février : joyeux anniversaire à Harry Styles !
+-  Vente OM : Ça capote pour une histoire… de chauffage ?
+-  「ウエスト・サイド物語」アニタ役の米女優チタ・リベラさん死去 91歳
+-  Strejken påverkar utdelningen av ÅU:s papperstidning – du kan ändå läsa e-tidningen
+-  Jugendclub Clippo: Fundament für Neubau-Projekt verschwunden
+-  From marching bands to Usher: How the Super Bowl halftime show became a global spectacle
+-  Da Lat, destino turístico más popular para los vacaciones en el Tet 2024
+-  Pekka Haaviston vaalimainoksia on tuhottu Lappeenrannassa useissa paikoissa
