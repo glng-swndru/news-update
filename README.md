@@ -1,11 +1,11 @@
 # Latest News
--  Cutremur raportat joi noapte. Ce magnitudine a avut și unde a fost înregistrat
--  Fuerte caída en la emisión de bonos ESG en 2023
--  品川駅に「触れる自販機」登場。無人決済×省スペース需要が多数、無人コンビニのTTGが開発
--  Tym zajmuje się dziś Radosław Matusiak, były reprezentant Polski
--  ‘Feud’ Star Tom Hollander Reflects On ‘Capote Vs. The Swans’ Premiere & Truman’s Abusive Relationship With John O’Shea
--  Soft drink linked to liver cancer risk in women
--  Опра Уинфри - Оправната - Труд
--  Csecsemőnek kólát? Jól helyretette a magyar orvos az eltévedt apukát
--  Napi trükkös matek feladat: Mi a megoldás?
--  Nahost-Newsblog: Netanjahu will neues Abkommen nicht „um jeden Preis“
+-  Tir mortel sur le film "Rust": Alec Baldwin plaide non coupable d'homicide involontaire
+-  Ukrajinci dostanou od USA novou přesnou zbraň. Mimořádně nebezpečné, tvrdí Rusové
+-  ‘로기완’, 송중기 얼굴 담긴 메인 포스터 공개...“나는 이 땅에서 살아남기로 했다”
+-  Metro istasyonunda bıçaklı kavga: 19 yaşındaki genç öldü
+-  Ísland í dag - Úrslitaleikur Reykjavíkurmótsins
+-  Minden fontos infó, amit tudnod kell a tatai buszok új tarifarendszeréről
+-  Spánn í dag - Greenwood og Bellingham mætast
+-  NE IDE BEZ JOKIĆA! Nikola nije igrao, ali je ZABLISTAO drugi SRBIN: Rekord karijere Micića u pobedi nad Denverom! (VIDEO)
+-  England í dag - Man Utd fer á erfiðan útivöll
+-  Химическая атака в Лондоне, есть пострадавшие
