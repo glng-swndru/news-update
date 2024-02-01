@@ -1,11 +1,11 @@
 # Latest News
--  وزير العدل تسلّم نسخة مترجمة عن تقرير ألفاريز أند مارشال
--  Prezes Orlenu Daniel Obajtek odwołany ze stanowiska. "To jest sprawa honorowa"
--  Индексите в Токио последваха спада на Уолстрийт
--  Slavu i status legende stekao izvan Hrvatske, a sada se nakon 32 godine vratio kući: ‘Imamo tu dosta posla‘
--  「月という遠いところに着陸できるのに、地球上の問題を解決できない…」久子さま声を震わせ平和への思い述べられる
--  Alchemy Pay and Zero Hash: streamlining fiat-crypto transactions
--  Крик души премьера Польши: Европа устала от Урбана
--  Totalni "masakr" Putinovih snaga; Objavljeni snimci "bole"
--  Eropa Diprediksi akan Alami Suhu Ekstrem Baru Tahun Ini
--  Inaugural Singapore-France Judicial Roundtable
+-  PSG : encore trois absences de poids pour le déplacement à Strasbourg
+-  ３５万円を自分の車の修理費に流用 庄原市の男性職員（35）を懲戒処分 男性は依願退職 広島
+-  Overseas Vietnamese in Cuba celebrate Tet
+-  Wirex unveils early access to WPay, a decentralised payment network
+-  ОККО и "Повернись живим" запустили 3-й этап ОКО за ОКО: 500 миллионов гривен на усиление ДШВ
+-  Porsche auf Parkplatz in Gerlingen beschädigt
+-  [오늘의 운세 나침반]2024년 2월 2일
+-  Velvyslance USA zklamalo rozhodnutí o Westinghousu v jaderném tendru
+-  Elárverezik a szalvétát, amelyre felfirkantották Messi első barcelonai szerződését
+-  Prevalece el estigma sobre la lepra
