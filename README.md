@@ -1,11 +1,11 @@
 # Latest News
--  20 metrelik falezlerden düşen genç kadının çığlıkları limanı inletti
--  El CD Teruel cierra la incorporación de Neskes, centrocampista procedente del Ibiza
--  Liga nacija 2024: Hrvatska nositelj u ždrijebu, prijenos uživo na gol.hr-u!
--  허공 응시하며 애써 눈물 참는 동료들…순직 소방관 빈소엔 침묵만
--  Netzagentur nimmt Tausende gefährliche Produkte vom Markt
--  Маск проведёт голосование акционеров по переносу Tesla в Техас после проигранного суда на $56 млрд
--  Главният секретар на МВР: Предполагаме откъде е стреляно по Нотариуса
--  Parineeti Chopra aces debut live gig | Check out her melodious songs
--  Нуланд прибыла в Киев после заявлений об отставке Залужного
--  풍수 연구가 최창조 전 서울대 교수 별세
+-  Niewygodne pytanie do Scheuring-Wielgus: Nie krytykowałam chyba rządu PiS
+-  Les hausses des tarifs d'autoroutes depuis Clermont-Ferrand : forte hausse sur Clermont-Riom et au péage du viaduc de Millau
+-  Ze Stanów Zjednoczonych do Włoch? Karol Świderski blisko zmiany klubu
+-  Beşiktaş - Trabzonspor maçının hakemi belli oldu
+-  Les hausses des tarifs d'autoroutes depuis Clermont-Ferrand : forte hausse sur Clermont-Riom et au péage du viaduc de Millau
+-  Februaris Playstation Plus-spel inkluderar Foamstars-premiären
+-  Elazığ buz kesti, süs havuzları dondu
+-  Mark Zuckerberg, çocukları koruyamadıkları için ailelerden özür diledi: İşte o anlar
+-  У ЗСУ розкрили, які літаки Росія тримає на аеродромі "Бельбек" у Криму
+-  Kognitivno bihevioralna terapija u liječenju oboljelih od upalnih bolesti crijeva
