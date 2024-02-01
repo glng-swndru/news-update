@@ -1,11 +1,11 @@
 # Latest News
--  Popstar der Liebenswürdigkeit - Harry Styles wird 30
--  Past in Perspective
--  Умєров відправив листа своїм колегам у ЄС
--  펄펄 끓는 한반도 바다…1990년 이래 가장 뜨거웠다
--  Rayakan Imlek 2024, Glenfiddich Kolaborasi dengan Raku Inoue
--  [설 특집] 연휴 OTT 뭐봄? 공연·전시 어때? 감동·재미 원픽!
--  [설 특집] 이번 설 연휴 '정주행' 달려볼까…OTT 볼거리 풍성
--  Popstar der Liebenswürdigkeit - Harry Styles wird 30
--  3000만원 과속 카메라 뽑아 과수원에 묻은 혐의 택시기사 “난 아니라는데”
--  Óscar Vicente Scavone sobre elecciones en Olimpia: “No apoyo a ninguna de la lista, me abro totalmente de esto”
+-  İstanbul - Kudüs (Gazze, Filistin, İsrail) - Mekke – 54
+-  Mark Zuckerberg confrontado com a morte de crianças por causa da tecnologia
+-  BC Ferries aims for better reliability by cancelling summer refits
+-  생태계 확장 나서는 XPLA, 로드맵 비전 ‘로드 투 윈’ 발표
+-  Avrupa, soykırıma müdahil olmuyor
+-  Mutsvangwa Gloats Over CCC Crisis
+-  BC Ferries aims for better reliability by cancelling summer refits
+-  주유소에서 소방관 흡연 논란…당국 “4년전 민원, 영상 못받아”
+-  Dogecoin: You Could Have Had $13 Million With Just $8k in DOGE
+-  Husiler, işgal gemisini vurdu
