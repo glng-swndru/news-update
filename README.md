@@ -1,11 +1,11 @@
 # Latest News
--  Alec Baldwin izjasnio se da nije kriv za ubojstvo snimateljice
--  Terbit Surat BKN soal Usulan Kebutuhan PNS & PPPK 2024, Honorer Tendik Bergembira
--  Čína nechce být největším znečišťovatelem. Loni nainstalovala rekordní množství solárních panelů
--  Rezeptvorschlag: Pizzateig ohne Hefe: Mit diesen Grundzutaten gelingt jede Pizza
--  Incident u Londonu: Devetero ozlijeđenih nakon što je na njih bačena "korozivna tvar"
--  В Аргентине против несогласных с реформами применили слезоточивый газ
--  Ruszyła kwalifikacja wojskowa. Armia zaprasza w swoje szeregi cytatem z filmowego hitu
--  Janusz Palikot nie zraża się bojową postawą Magdy Gessler. Ujawni więcej. "Napisałem najlepszy tekst na twój temat"
--  Jean-Jacques Goldman s'invite dans le bus des anciens candidats de la "Star Academy" : une photo mémorable
--  Rezeptvorschlag: Pizzateig ohne Hefe: Mit diesen Grundzutaten gelingt jede Pizza
+-  U Hrvatskoj se lani rodilo najmanje djece otkad postoje statistička mjerenja
+-  Distribusi Logistik Pemilu ke TPS di Kapuas Hulu Dimulai 8-13 Februari 2024
+-  El tiempo en Priego de Córdoba: esta es la previsión meteorológica de hoy, jueves 1 de febrero
+-  Minikuchyně zvládnou víc, než čekáte
+-  Щабът на операцията на ЕС в Червено море ще бъде в Лариса - Труд
+-  Derbi Öncesi Sürpriz Seyirci Kararı
+-  İYİ Parti'den maaş tepkisi
+-  Kron Gracie frustrated with current MMA generation: ‘You can’t just be good at 1 martial art’
+-  Reisetaugliches Arbeitsnotebook: Medion-Deal bei Aldi
+-  Манчестър Юнайтед и Гранада се договориха за полузащитник
