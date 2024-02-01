@@ -1,11 +1,11 @@
 # Latest News
--  Zaragoza? Bergwijn? Sollten beide nicht kommen, hat der FC Bayern bereits eine Lösung
--  Armėnija oficialiai prisijungė prie TBT, papiktindama Rusiją
--  Полицейски проверки цяла нощ след убийството на Нотариуса
--  नेपाली चिकित्सकको टोलीबाटै पहिलोपटक कलेजो प्रत्यारोपण
--  Az amerikai közművek és távközlési hálózatok ellen indítottak támadást kínai hekkerek az FBI szerint
--  Klopp nach 200. Sieg: „Mannschaft voller Freude“
--  Metroda cinayet! 1 kişi öldü, 1 kişi de yaralandı
--  Murat Kurum'dan kafaları karıştıran açıklama: Depremde ölü sayısı 130 bin
--  ‘GPS told me to cross it’: Thai woman out in a new area gets stuck on thin bridge, netizens joke, ‘It’s not her fault’
--  Klopp nach 200. Sieg: „Mannschaft voller Freude“
+-  Cutremur raportat joi noapte. Ce magnitudine a avut și unde a fost înregistrat
+-  Fuerte caída en la emisión de bonos ESG en 2023
+-  品川駅に「触れる自販機」登場。無人決済×省スペース需要が多数、無人コンビニのTTGが開発
+-  Tym zajmuje się dziś Radosław Matusiak, były reprezentant Polski
+-  ‘Feud’ Star Tom Hollander Reflects On ‘Capote Vs. The Swans’ Premiere & Truman’s Abusive Relationship With John O’Shea
+-  Soft drink linked to liver cancer risk in women
+-  Опра Уинфри - Оправната - Труд
+-  Csecsemőnek kólát? Jól helyretette a magyar orvos az eltévedt apukát
+-  Napi trükkös matek feladat: Mi a megoldás?
+-  Nahost-Newsblog: Netanjahu will neues Abkommen nicht „um jeden Preis“
