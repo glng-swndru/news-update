@@ -1,11 +1,11 @@
 # Latest News
--  beIN Sports broadcast of Riyadh Season Cup
--  Advogado de Fernando Madureira nega apreensão de armas, estupefacientes ou material pirotécnico
--  Las redes sociales no paran de crecer y este es el número de usuarios que alcanzaron en el mundo
--  Dinamo napravio šokantan potez: "Izgleda da je blagajna prazna, tražili su izbacivanje iz Europe"
--  ضمك يخالص الهولندي
--  Suslov pokračuje vo Verone, podpísal zmluvu do leta 2027
--  „Kolonistinės epochos markeris“ – Vilniuje siūloma nukelti Puškino paminklą ir siųsti jį į Grūto parką
--  快訊／幫樂天女孩私接商演「經手2600萬元」 裁定陳元凱羈押禁見
--  Ken Griffin casts doubt on Nikki Haley’s 2024 run — after giving $5M to her campaign
--  Wellington is facing a double digit rates rise, as the city council looks to spend more on water
+-  Ankara’da uyuşturucu operasyonunda 2 gözaltı
+-  Външно предупреди за транспортни затруднения в Германия, Гърция и Италия
+-  Construction works begin on Inverkeithing allotments
+-  వంటింటి చిట్కాలు
+-  Houseworks: Young entrepreneur brings elegance to life
+-  Murat Kurum İstanbul'daki son anket sonuçlarını açıkladı!
+-  Wahlen: Modell für Europa? Südtirol mit neuartiger Mitte-Rechts-Regierung
+-  APA - N A C H R I C H T E N Ü B E R B L I C K
+-  Cipriani confirms retirement from rugby
+-  German e-vehicle sales pick up pace of growth in China: PwC
