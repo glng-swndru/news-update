@@ -1,11 +1,11 @@
 # Latest News
--  楊烈義氣兩肋「插刀」 當兵過年留守差點轟了排長
--  Cillian Murphy podría protagonizar la secuela de Exterminio
--  Hulu Reveals Plans to Stop Password-Sharing Just Like Disney+, Netflix
--  An inside look at U.S. Navy ships tasked with securing the Red Sea
--  Cillian Murphy podría protagonizar la secuela de Exterminio
--  LG, 2024 연간회원 모집…다양한 혜택 제공
--  플러팅 빼면 시체 광태 진심은? 유정 “나 차애냐?” (환승연애3)
--  PF prende 6 pessoas em operação contra exploração sexual infantil
--  ‘웡카’, 첫날부터 달콤하게 터졌다...첫날 전체 박스오피스 1위 등극 [M+박스오피스]
--  बढ्ने भयो ईभी चार्जिङ शुल्क, चार्जिङ स्टेसन सञ्चालकले थप १०० प्रतिशत लिन पाउने
+-  Popstar der Liebenswürdigkeit - Harry Styles wird 30
+-  Past in Perspective
+-  Умєров відправив листа своїм колегам у ЄС
+-  펄펄 끓는 한반도 바다…1990년 이래 가장 뜨거웠다
+-  Rayakan Imlek 2024, Glenfiddich Kolaborasi dengan Raku Inoue
+-  [설 특집] 연휴 OTT 뭐봄? 공연·전시 어때? 감동·재미 원픽!
+-  [설 특집] 이번 설 연휴 '정주행' 달려볼까…OTT 볼거리 풍성
+-  Popstar der Liebenswürdigkeit - Harry Styles wird 30
+-  3000만원 과속 카메라 뽑아 과수원에 묻은 혐의 택시기사 “난 아니라는데”
+-  Óscar Vicente Scavone sobre elecciones en Olimpia: “No apoyo a ninguna de la lista, me abro totalmente de esto”
