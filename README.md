@@ -1,11 +1,11 @@
 # Latest News
--  Lenny Kravitz shares his thoughts on Channing Tatum ahead of daughter Zoë Kravitz’s wedding
--  Depremzedelerin evleri 6 Şubat'ta teslim edilecek
--  New Mexico cops won’t be charged for killing man at wrong address
--  Hurdaya dönen otomobil, sürücüsüne mezar oldu
--  Sydney teacher accused of using Grindr to solicit boy for sex
--  AKP’li Murat Kurum sözlerine açıklık getirdi. “Depremde 130 bin canımız gitmiş” açıklaması gündem olmuştu
--  "Скаузър" отбеляза първия си гол във ВЛ за Ливърпул - феновете полудяха (видео)
--  STROGO GA KRIJE I ČUVA OD OČIJU JAVNOSTI! Ovaj moćnik stoji iza voditeljke RTS-a
--  SAD OZNAČILE KRIVCA Oglasila se Bela kuća, hoće li Amerika poći u novi rat?
--  문경 공장 큰불…고립됐던 소방관 2명, 끝내 주검으로
+-  謠言終結站》公廁衛生紙有毒針血痕？ 美國影片與台灣無關
+-  ‘You better have a snorkel’: flood evacuation alerts expanded in Pemberton
+-  白營自推院長人選 黃珊珊：開創新的政治
+-  馬東石末日狩獵 單挑喪屍團 韓版巨石強森向國際戲迷招手
+-  サイゼリヤの朝食が食べ放題 「ホテルドリームゲート舞浜」が話題
+-  142-year-old mansion set to break Hawthorn East record
+-  Nives Celzijus iznenadila objavom: 'Cijeli mi život pucaš u leđa... Muško budi jednom bar'
+-  龍千玉愛子墜谷後復元佳 謝金晶除夕夜搶頭香
+-  PlayStation: Assiste aqui ao primeiro State of Play de 2024
+-  Stage is set for Dutton’s dilemma over tax cuts
