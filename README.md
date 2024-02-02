@@ -1,11 +1,11 @@
 # Latest News
--  Lincoln becomes Canada’s number one dog breed
--  Nova iznenađenja na web stranici princa Williama i Kate Middleton
--  Bilinçsiz kullanılan böcek ilaçları can almaya devam ediyor
--  Gartentipp der Woche - Stachelritter willkommen: Wie man den Garten igelfit macht
--  タリウム事件の宮本被告の捜査終結 不動産の不正取得容疑で書類送検
--  Tacora, still in creditor protection, hints new lease on life will be announced soon
--  কী দেখবন কোথায় দেখবেন
--  潰れた重文住宅、北前船で栄えた黒瓦の町並み「景観残すのは難しい」
--  Innovent Forum 2024: Η μεγαλύτερη εκδήλωση Επιστήμης & Τεχνολογίας έρχεται στις 9 και 10 Φεβρουαρίου
--  검찰, '23명 사상' 금천 가스 누출 사고 관계자 8명 불구속 기소
+-  Intel verzögert Bau neuer Fabrik in den USA
+-  TV-Soaps: Das passiert heute in den Soaps
+-  Советник Зеленского заявил, что Украина хочет получить от России 1 трлн долларов
+-  Ilaria Salis: gli arresti domiciliari e il braccialetto elettronico anti fuga
+-  Tvrd pristup ipak se isplati: YouTube Premium ima 100 milijuna pretplatnika
+-  Житель Даугавпилса отдал мошенникам почти 48 тысяч евро
+-  La longevità come base per il successo negli investimenti e nel trading
+-  Голямото интервю: Сандер Берге
+-  TV-Soaps: Das passiert heute in den Soaps
+-  Шойгу: Киев спешно проводит мобилизацию, чтобы не допустить обрушения обороны
