@@ -1,11 +1,11 @@
 # Latest News
--  Muhtarların beklediği artış geldi!
--  Early cuts unlikely given GDP results
--  Egy kegyetlen gyakorlat közös a nagy autógyárakban
--  Ivošević o posječenom boru na Gripama: ‘Kako SAD postupa prema teroristima, i mi ćemo tako‘. Prozvao je i policiju...
--  Mannen kopen shag en bier in Leeuwarden met gestolen pinpas, vrouw ziet dat op politiebureau
--  Diese EM-Quartiere sind in NRW: Mbappe schläft in Bad Lippspringe, Ronaldo in Harsewinkel
--  Preços de bens de capital caem 0,27% no IPP de dezembro; bens de consumo sobem 0,31%
--  Adalet Peşinde Aileleri: Depremde ölenlerin sorumlusunu biliyoruz
--  Lula diz que PF não 'persegue' ninguém e afirma que não interfere nos ministérios
--  Mercato: l’international espagnol Bryan Zaragoza rejoint le Bayern Munich
+-  Nuovi guai per Neymar. Perché lo portano in tribunale
+-  Ley ómnibus: agrupaciones de izquierda y del radicalismo preparan una nueva marcha frente al Congreso
+-  Kurum: Yarı zamanlı belediyeciliğe cevap 31 Mart'ta
+-  Opinion: How will generative AI impact our devices?
+-  Fabrikada rehin alınan işçilerden ilk görüntü
+-  Nenek, cucu rentung dalam kebakaran
+-  زعيم الحوثيين: أمريكا طلبت مساعدة الصين لوقف عملياتنا في البحر الأحمر
+-  DK: Orbán Viktor viccet csinált a saját nemzeti konzultációjából
+-  Processo Seletivo: Etec de Orlândia SP lança novo edital
+-  BoE eleva projeções para crescimento do PIB e para inflação nos próximos 2 anos no Reino Unido
