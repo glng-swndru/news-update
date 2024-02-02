@@ -1,11 +1,11 @@
 # Latest News
--  Erling gir seg etter 28 år: – Det verste med å være her, er at det er vanskelig å slutte
--  মাত্র ৩২ বছর বয়সে মারা গেলে বলিউড অভিনেত্রী পুনম পান্ডে
--  Estos son los precios del diésel y la gasolina hoy 2 de febrero en Córdoba
--  Fog warnings issued for much of Southern Interior
--  Interview mit Jörg Bukowski: „Die Gemeinde Morsbach darf sich nicht einigeln“
--  Na co koukat o víkendu v TV: Faunovy erotické touhy, uhnané matky a Rocky
--  Journalistin behauptet: Prinzessin Kate lag nach OP im Koma
--  Interview mit Jörg Bukowski: „Die Gemeinde Morsbach darf sich nicht einigeln“
--  Öngyilkos lett a Megfojtott virágok producerének felesége: az Oscarra jelölt Bradley Thomas 2 gyerekkel maradt egyedül
--  "너 싫어"는 대상 특정 학대 인정…"진짜 밉상"은 혼잣말 가능성에 불인정
+-  프로 2년 차 ‘특급 유망주’ 김서현, 이젠 움츠린 날개를 펼 시간
+-  Лекар: Прилагаме нови медикаменти за лечение на рак
+-  Орбан избра да се присъедини към консерваторите, не към крайно десните
+-  U Maleziji više od 100 izbeglica, uglavnom Rohindža, pobeglo iz pritvorskog kampa
+-  Sauvon Palvelukeskus sai evakkomummon – ”Muistutus vaikeista ajoista”
+-  Bakan Şimşek'ten gençlere 'kara para' uyarısı
+-  Le meneur du C'Chartres Basket Masculin Thomas Prost se livre avant la réception de Berck : « C'est vrai, Je ne suis pas le plus souriant »
+-  프로 2년 차 ‘특급 유망주’ 김서현, 이젠 움츠린 날개를 펼 시간
+-  13 ilaç geri ödeme listesine alındı
+-  Monika Goździalska opisuje szokujący incydent na pokładzie samolotu: "Zostałam UDERZONA. Nikt nie zareagował"
