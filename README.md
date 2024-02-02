@@ -1,11 +1,11 @@
 # Latest News
--  Rusia susţine că a identificat rămăşiţele tuturor ocupanţilor avionului Il-76 doborât în regiunea Belgorod
--  Volvo shares jump 26% on higher sales, plans to stop Polestar funding
--  Transfer Deadline Day LIVE: Lingard FINALLY finds club, Broja Fulham medical, Spurs eye £50m Solanke, Benrahma updates
--  Egypt's central bank raises interest rates by 200 bps to ease inflation
--  House passes child tax credit expansion — which could benefit millions of families, experts say
--  Be traumuoto Sedekerskio žaidusi „Baskonia“ nutraukė pralaimėjimų seriją, pergale džiaugėsi ir „Real“
--  Divided Bank of England leaves policy unchanged, says interest rates are 'under review'
--  Defense Secretary Lloyd Austin apologizes for his handling of cancer diagnosis and hospitalization
--  Matan en Zapopan a precandidato de Alcaldía de Mascota
--  "Ее разозлили". В Штатах забили тревогу из-за "мести" России
+-  Залужни: Украйна трябва да се подготви за намаляване на помощта отвън
+-  Mediators work for halt to deadly fighting in Gaza
+-  Skyscraper-size asteroid will buzz Earth on Friday, safely passing within 1.7 million miles
+-  Un bug enorme affligge alcuni Pixel, ma c'è una soluzione
+-  Turkmenistan buys large volume of aviation fuel from Türkiye
+-  США имеют низкий нефтяной резерв, заявил глава API
+-  "حزب الله": استهدفنا جنود للجيش الإسرائيلي بالصواريخ في محيط ثكنة زرعيت وحققنا إصابة مباشرة
+-  Así se vería Akane Tendo de Ranma 1/2 en la vida real según la IA de Midjourney
+-  Son Dakika... Kilise saldırısında yeni gelişme: 25 kişi tutuklandı!
+-  Mahfud Md Enggan Bahas Nama Pengganti Menko Polhukam: Itu Hak Prerogatif Jokowi
