@@ -1,11 +1,11 @@
 # Latest News
--  Celtic complete Adam Idah Norwich City loan transfer
--  Public sector workers missed a record number of days compared with private sector workers last year
--  Mercato : Pour son transfert à l’OM, il «n’a pas réfléchi»
--  आठ थानों में प्रतिनियुक्त किए नए थानाध्यक्ष
--  Antrag von SPD und Grüne: Laurentiusstraße in Wuppertal wird zur Fußgängerzone
--  La Candelaria será engalanada con impactante vestido de perlas este 2Feb +Programación
--  टीएमबीयू में पीजी में पहली मेधा सूची से अब 8 तक नामांकन
--  Турция штрафует корабли, идущие из Крыма
--  Instagram Won't Snitch If You Screenshot (For the Most Part)
--  प्रमोशन को आवेदन 18 तक चयन समिति में एडीएम शामिल
+-  Premier League Darts LIVE RESULTS: Michael Smith batters home hero Gerwyn Price in final after beating Luke Littler
+-  TWO SECURITY GUARDS KILLED BY ROBBERS
+-  à·€à·�à¶§à¶½à·“à¶¸à¶§ à¶œà·’à¶º à¶šà·œà·ƒà·Šà¶­à·�à¶´à¶½à·Šà¶§ à¶¶à¶¯à·’à¶± à¶­à·”à·€à¶šà·Šà¶šà·”à·€à¶šà·Š à¶´à¶­à·Šà¶­à·”à·€à·™à¶ºà·’
+-  වැටලීමට ගිය කොස්තාපල්ට බදින තුවක්කුවක් පත්තුවෙයි
+-  Bolivia – Colombia (2-0): minuto a minuto
+-  4 estrategias que los 49ers de San Francisco están implementando para ganarse al mercado mexicano
+-  Wall Street : gagne +1%, double la mise avec Amazon et Meta
+-  Der geheime Opernball-Logen-Plan
+-  ２／２朝
+-  El 70% de los usuarios de medicina prepaga considera cambiar su cobertura de salud actual
