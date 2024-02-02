@@ -1,11 +1,11 @@
 # Latest News
--  Βρετανία: Έκρηξη κοντά σε σκάφος δυτικά της Χοντέιντα της Υεμένης
--  Міжнародний суд ООН ухвалив рішення за позовом України проти РФ: що з ним не так
--  ARD-Serie „Testo“: Kida Khodr Ramadan mit neuer Gangster-Serie
--  Tauberbischofsheim - Geschädigter nach Parkplatz-Unfall gesucht
--  Švarc Pipan: Nisem prepričana v objektivnost notranje revizije ministrstva
--  Jadwal Pertandingan Al Nassr vs Inter Miami Hari Ini, Jumat 2 Februari 2024
--  heise-Angebot: Mac & i 1/24: iPhone individualisieren, Zeitmanagement, 40 Jahre Mac
--  ارتفاع عدد شهداء العدوان الإسرائيلي إلى 27019 #عاجل
--  ‘Congress’ conspiracy to divide country’: Union Minister Shobha Karandlaje on MP DK Suresh’s ‘separate nation’ comment
--  Tauberbischofsheim - Geschädigter nach Parkplatz-Unfall gesucht
+-  GeForce NOW GAME+'a düşük fiyatlı haftalık Premium paket geldi
+-  A început o nouă sesiune de înscriere la Programul NAȚIONAL de studiere a limbii ROMÂNE. Guvernul a alocat 8 000 000 de lei, pentru ca 4 000 de cetățeni să beneficieze de cursuri GRATUITE
+-  PHOTO Jean-Baptiste Marteau sans son mari Bruno ? Le journaliste s'affiche en vacances avec un autre homme...
+-  Aparição de caravelas no litoral de SP faz nadadores cancelarem treinos
+-  'Details Salah-Eddine-deal bekend: Ajax incasseert transfersom'
+-  Дипломат предрек ЕС саморазрушение из-за антироссийского курса
+-  Menstrualno zdravlje u fokusu: Trajno sniženi osnovni proizvodi za žensku higijenu
+-  Galatasaray'ın yeni sağ beki Sergei Aurier!
+-  Aktivisti po Ficových výrokoch odovzdali vláde dôkazy o vojne v Kyjeve: Úlomky ruských rakiet
+-  Núnězova střelecká mizérie? Nevadí, Liverpool i tak zářil. A má novou hvězdu
