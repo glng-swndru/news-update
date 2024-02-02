@@ -1,11 +1,11 @@
 # Latest News
--  Hey, let's give Chelsea a swift kicking while they are down
--  Mit Krümelmonster Grimme-Preis-verdächtig: Was Fernsehkoch Steffen Henssler zu Hause isst
--  BYU’s Aly Khalifa’s game resembles artistry of late Kresimir Cosic
--  Elevate Teams Joins HawkSoft's Solution Partner Program
--  Kommentar: Die Zeit der Träumereien in Köln ist vorbei
--  Tavaly harminchat százalékkal nőtt a búzatermés Magyarországon
--  Tisztakosz koncert a miskolci Ifiházban
--  Украина – США – 0:1. Крутых взял сет у Корды, но все же проиграл
--  ‘What they did for us was nothing short of miraculous’
--  BBC Dragons' Den star Peter Jones' life from earth-shattering divorce to Holly Willoughby feud
+-  Sources: Swansea City poised to sign £2m Norwich City ace on deadline day
+-  Elias Lindholm thanks Flames fans after trade to Canucks - Sportsnet.ca
+-  На Украине заявили о гибели двух французских добровольцев
+-  Gaziantep'te CHP KOMEDİSİ! GAZİANTEP'TE 2 MİLLETVEKİLİ OLMASINA rağmen BELEDİYE BAŞKAN ADAYI ORTADA YOK!!!
+-  2 people injured, 1 seriously in multi-vehicle crash on I-93
+-  Türkmenistanyň Prezidenti Malaýziýanyň Ýokary Baştutanyny gutlady
+-  Santa Maria Kilisesi saldırısının şüphelileri hakkında tutuklama talebi
+-  OKSiAL w Miejskiej Górce przygotował plan zajęć na ferie
+-  Casal contou 3 versões, “nenhuma compatível” com lesões em bebê, diz polícia
+-  Invalidenpoort Leidse Burcht is steevast afgesloten
