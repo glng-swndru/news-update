@@ -1,11 +1,11 @@
 # Latest News
--  Maciej Wąsik pojawi się w Sejmie? Padła jasna deklaracja
--  Румыния не будет вступать ни в одну войну, - премьер Чолаку отверг заявление главы Генштаба Георгице о возможной эскалации со стороны РФ
--  Một cơn “ớn lạnh” đe dọa các ngân hàng ở nhiều nơi trên khắp thế giới
--  Maciej Wąsik pojawi się w Sejmie? Padła jasna deklaracja
--  Nhiều địa phương khởi tố cả cán bộ diện Trung ương và tỉnh ủy, thành ủy quản lý
--  Цукерберг заработает $700 млн в год на дивидендах Meta
--  Sporazum s Merkosurom ne dolazi u obzir
--  Στυλιανίδης: Τρεις άξονες για την ψηφιοποίηση της ακτοπλοΐας – Παρατηρητήριο τιμών εισιτηρίων
--  Maciej Wąsik pojawi się w Sejmie? Padła jasna deklaracja
--  Гандболисты сборной Беларуси проведут три гостевых спарринга с россиянами
+-  बीपी प्रतिष्ठानका विद्यार्थी अनशनमा
+-  Grifols: Potencial recuperación del 17,92%
+-  「日本を変える」経済効果“1兆9000億円” 4月から運用開始「ナノテラス」 目指す「世界一のイノベーションの地」
+-  Tết vui vầy cùng cha mẹ khỏe mạnh, thế là đủ đầy
+-  My Aunty Eleanor’s discovery exposed a surprising link between my first job and this one
+-  Stora skador efter bombdåd vid flerfamiljshus
+-  (VIDEO) Katarina Živković objavila emotivnu baladu
+-  Pension muss warten! - Slayer-Legende Kerry King mit neuer Band am Nova Rock
+-  「うちほどいいところはない。戻らせて」 介護必要な高齢者などが身を寄せる『福祉避難所』 その先が問題
+-  Poslanci pokračujú v diskusii o novele Trestného zákona aj v piatok
