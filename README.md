@@ -1,11 +1,11 @@
 # Latest News
--  PTT'den vatandaşlara dolandırıcılık uyarısı!
--  Gaza war gives new urgency to US push for Israel-Saudi ties
--  ¿El SAIME exige la carta de residencia para algún trámite? Te damos todos los detalles
--  與 ‘중대재해처벌법 유예 중재안 불발’ 연일 對野 공세
--  Spontanheilung – kann Krebs „von selbst“ wieder weggehen?
--  Nyhetsquiz vecka 5: Har du hängt med i nyhetsflödet?
--  Arranca la programación de febrero en el Teatro del Municipio de Lomas
--  Neue Chipfabrik: Intels Ohio-Fab verspätet sich um ein volles Jahr
--  Banedanmark opgiver at fikse sårbarhed i S-togets signalsystem: Giver risiko for opbremsninger
--  Fantasy Basketball Waiver Wired, Week 15: Don't let Ayo pass you by-o
+-  Culture: L’artiste Kalidou Kassé invité de la ville de Castelsarrasin
+-  محمد بن راشد: صناعة الأمل صناعة للحياة
+-  Angeklagter bleibt freier Mann: Verfahren zu Messerangriff in Mönchengladbach eingestellt
+-  BlackRock: Investing guru Larry Fink tells Milei he will be visiting Argentina in May
+-  Education in crisis | Hundreds of thousands drop out before matric
+-  Helsingin pörssissä indeksisijoittajien tuotoissa merkittäviä eroja – Muutaman osakkeen ero on ratkaissut muita paremman menestyksen
+-  Boğazda arıza yapan yakıt tankeri, denizaltındaki fiber optik kablolara zarar verdi
+-  Ex-York City youngster Ben Godfrey keen to work hard with Everton
+-  В Сирии сообщили об очередном обстреле Израилем окрестностей Дамаска
+-  BlackRock: Investing guru Larry Fink tells Milei he will be visiting Argentina in May
