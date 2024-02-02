@@ -1,11 +1,11 @@
 # Latest News
--  앱코 "작년 영업익∙순이익 흑자전환...매출액 전년比 19.7% ↑ "
--  Von Notz über Maaßen: Dienstrechtliche Konsequenzen prüfen
--  A cheaper Galaxy Z Fold 6 is reportedly in the works
--  Chuyên gia cảnh báo nền kinh tế lớn nhất châu Âu có nguy cơ rơi vào ‘khủng hoảng vĩnh viễn’
--  演藝圈尾牙現蹤30名明星！入場費1人3000包場狂歡 楊雅筑亮整疊千鈔
--  Mendadak Pilih Pindah ke Ferrari pada 2025, Lewis Hamilton: Waktunya Cari Tantangan Baru
--  Von Notz über Maaßen: Dienstrechtliche Konsequenzen prüfen
--  از پایش سطح زیرکشت برنج و گندم تا رکوردشکنی ثبت ارتفاع پرتاب ماهواره دستاورد ۱۴ ساله فضایی کشور
--  [속보] '징역 30년' 남편 니코틴 살인사건, 파기환송심서 무죄
--  США повинні й далі допомагати Києву - Байден
+-  KB증권, 어르신 위한 설맞이 '정 든든 KB박스' 전달
+-  उत्तराखंड में UCC लाने की तैयारी पूरी, आज धामी सरकार को कमेटी सौंपेगी रिपोर्ट
+-  Comparing perioperative differences: Sleeve gastrectomy vs. Roux-en-Y gastric bypass - News-Medical.Net
+-  최성희, 웹드 ‘촬영 전날’ 출연…행복 에너지 전한다
+-  인천 모텔서 생후 49일 쌍둥이 숨진 채 발견…친모·계부 긴급 체포
+-  Comparing perioperative differences: Sleeve gastrectomy vs. Roux-en-Y gastric bypass
+-  UN chief urgently appeals for heightened humanitarian aid for Gaza
+-  [속보] '주식 저가 양도' 허영인 SPC 회장 1심서 무죄
+-  What would Americans give up to have a bathroom that stayed sanitized forever?
+-  Ir laiks pārmaiņām
