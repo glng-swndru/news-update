@@ -1,11 +1,11 @@
 # Latest News
--  Kottrová: K slovenskému pôvodu sa v USA hlási 594.844 obyvateľov
--  Valor y aprecio
--  Эксперт посоветовал избегать слов «да» и «нет» при общении с мошенниками
--  Oscar-nominated 'Killers of the Flower Moon' producer's wife dies by suicide
--  Трима души са загинали при пожари през денонощието
--  OVO JE KLUB SA NAJDUŽIM IMENOM NA SVETU: Ima 83 slova i nema šanse da ga izgovorite iz prve! U Srbiji je poznat po skraćenici
--  Zoom сократит 150 сотрудников, или 2% штата
--  700여년 한국인쇄사 연대기… 송파책박물관 ‘인쇄, 시대의 기억’ 기획전
--  Кіченок вийшла у півфінал парного турніру WTA 500 в Австрії
--  Lana Jurčević podijelila nježne trenutke s kćeri: 'Za to se živi'
+-  Erling gir seg etter 28 år: – Det verste med å være her, er at det er vanskelig å slutte
+-  মাত্র ৩২ বছর বয়সে মারা গেলে বলিউড অভিনেত্রী পুনম পান্ডে
+-  Estos son los precios del diésel y la gasolina hoy 2 de febrero en Córdoba
+-  Fog warnings issued for much of Southern Interior
+-  Interview mit Jörg Bukowski: „Die Gemeinde Morsbach darf sich nicht einigeln“
+-  Na co koukat o víkendu v TV: Faunovy erotické touhy, uhnané matky a Rocky
+-  Journalistin behauptet: Prinzessin Kate lag nach OP im Koma
+-  Interview mit Jörg Bukowski: „Die Gemeinde Morsbach darf sich nicht einigeln“
+-  Öngyilkos lett a Megfojtott virágok producerének felesége: az Oscarra jelölt Bradley Thomas 2 gyerekkel maradt egyedül
+-  "너 싫어"는 대상 특정 학대 인정…"진짜 밉상"은 혼잣말 가능성에 불인정
