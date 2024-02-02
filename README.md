@@ -1,11 +1,11 @@
 # Latest News
--  KB증권, 어르신 위한 설맞이 '정 든든 KB박스' 전달
--  उत्तराखंड में UCC लाने की तैयारी पूरी, आज धामी सरकार को कमेटी सौंपेगी रिपोर्ट
--  Comparing perioperative differences: Sleeve gastrectomy vs. Roux-en-Y gastric bypass - News-Medical.Net
--  최성희, 웹드 ‘촬영 전날’ 출연…행복 에너지 전한다
--  인천 모텔서 생후 49일 쌍둥이 숨진 채 발견…친모·계부 긴급 체포
--  Comparing perioperative differences: Sleeve gastrectomy vs. Roux-en-Y gastric bypass
--  UN chief urgently appeals for heightened humanitarian aid for Gaza
--  [속보] '주식 저가 양도' 허영인 SPC 회장 1심서 무죄
--  What would Americans give up to have a bathroom that stayed sanitized forever?
--  Ir laiks pārmaiņām
+-  La segunda tractorada se queda a las puertas y ya está en marcha la tercera para ‘tomar’ la capital
+-  Style notes: H&M’s Studio collection inspired by a relaxed, retro California aesthetic
+-  Double Privilege? Israeli Diplomat’s Son Tries to Get Out of Two Felony Charges After Running Over Florida Cop While Driving Without License
+-  Home Economics: Are there tax implications if we rent somewhere while a family member stays in our house?
+-  La elección de los permisos los cotos de pesca, en marcha desde el 20 de enero
+-  Los artistas españoles no llegan al salario mínimo
+-  Ev ödevine yardım etmek doğru mu
+-  Los astros barruntan un año «fresco»
+-  Dick Clerkin: Early season can be a guessing game but it’s not short of intrigue
+-  Will a 4.7% federal tax hike on alcohol reduce how much alcohol you buy? (Poll)
