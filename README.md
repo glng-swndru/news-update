@@ -1,11 +1,11 @@
 # Latest News
--  Залужни: Украйна трябва да се подготви за намаляване на помощта отвън
--  Mediators work for halt to deadly fighting in Gaza
--  Skyscraper-size asteroid will buzz Earth on Friday, safely passing within 1.7 million miles
--  Un bug enorme affligge alcuni Pixel, ma c'è una soluzione
--  Turkmenistan buys large volume of aviation fuel from Türkiye
--  США имеют низкий нефтяной резерв, заявил глава API
--  "حزب الله": استهدفنا جنود للجيش الإسرائيلي بالصواريخ في محيط ثكنة زرعيت وحققنا إصابة مباشرة
--  Así se vería Akane Tendo de Ranma 1/2 en la vida real según la IA de Midjourney
--  Son Dakika... Kilise saldırısında yeni gelişme: 25 kişi tutuklandı!
--  Mahfud Md Enggan Bahas Nama Pengganti Menko Polhukam: Itu Hak Prerogatif Jokowi
+-  Celtic complete Adam Idah Norwich City loan transfer
+-  Public sector workers missed a record number of days compared with private sector workers last year
+-  Mercato : Pour son transfert à l’OM, il «n’a pas réfléchi»
+-  आठ थानों में प्रतिनियुक्त किए नए थानाध्यक्ष
+-  Antrag von SPD und Grüne: Laurentiusstraße in Wuppertal wird zur Fußgängerzone
+-  La Candelaria será engalanada con impactante vestido de perlas este 2Feb +Programación
+-  टीएमबीयू में पीजी में पहली मेधा सूची से अब 8 तक नामांकन
+-  Турция штрафует корабли, идущие из Крыма
+-  Instagram Won't Snitch If You Screenshot (For the Most Part)
+-  प्रमोशन को आवेदन 18 तक चयन समिति में एडीएम शामिल
