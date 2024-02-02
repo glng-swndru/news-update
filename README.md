@@ -1,11 +1,11 @@
 # Latest News
--  GeForce NOW GAME+'a düşük fiyatlı haftalık Premium paket geldi
--  A început o nouă sesiune de înscriere la Programul NAȚIONAL de studiere a limbii ROMÂNE. Guvernul a alocat 8 000 000 de lei, pentru ca 4 000 de cetățeni să beneficieze de cursuri GRATUITE
--  PHOTO Jean-Baptiste Marteau sans son mari Bruno ? Le journaliste s'affiche en vacances avec un autre homme...
--  Aparição de caravelas no litoral de SP faz nadadores cancelarem treinos
--  'Details Salah-Eddine-deal bekend: Ajax incasseert transfersom'
--  Дипломат предрек ЕС саморазрушение из-за антироссийского курса
--  Menstrualno zdravlje u fokusu: Trajno sniženi osnovni proizvodi za žensku higijenu
--  Galatasaray'ın yeni sağ beki Sergei Aurier!
--  Aktivisti po Ficových výrokoch odovzdali vláde dôkazy o vojne v Kyjeve: Úlomky ruských rakiet
--  Núnězova střelecká mizérie? Nevadí, Liverpool i tak zářil. A má novou hvězdu
+-  الحكومة تصادق على خطة لمكافحة العنف بالملاعب الرياضية
+-  Österreich: Landwirt muss nach tödlicher Kuh-Attacke nicht zahlen
+-  Milli Savunma Bakanlığı, 2023 Yılı Verimlilik Proje Ödül törenin de bir çok alanda ödüle laik görüldü
+-  CHP'li Keskin: Aday olmayacağımı bana İmamoğlu tebliğ etti
+-  Rozhnevaní poľnohospodári protestujú v Bruseli počas samitu EÚ. V uliciach horí a dochádza k zrážkam s políciou
+-  Съпругата на убития Божанов не получила достъп до класифицирана информация
+-  Šéf UNRWA: Ak štáty neobnovia financovanie, do konca februára skončíme
+-  Relatório da CPI do 8 de Janeiro alertou para 'Abin paralela' sob Bolsonaro
+-  Kaçak tütün operasyonunda çok miktarda malzeme ele geçirildi
+-  ‘Mater ti j**em četničku, nisi siguran...‘; Umirovljeni vojnik prijetio Banožiću, sada je osuđen: ‘Neće se ponoviti‘
