@@ -1,11 +1,11 @@
 # Latest News
--  Sources: Swansea City poised to sign £2m Norwich City ace on deadline day
--  Elias Lindholm thanks Flames fans after trade to Canucks - Sportsnet.ca
--  На Украине заявили о гибели двух французских добровольцев
--  Gaziantep'te CHP KOMEDİSİ! GAZİANTEP'TE 2 MİLLETVEKİLİ OLMASINA rağmen BELEDİYE BAŞKAN ADAYI ORTADA YOK!!!
--  2 people injured, 1 seriously in multi-vehicle crash on I-93
--  Türkmenistanyň Prezidenti Malaýziýanyň Ýokary Baştutanyny gutlady
--  Santa Maria Kilisesi saldırısının şüphelileri hakkında tutuklama talebi
--  OKSiAL w Miejskiej Górce przygotował plan zajęć na ferie
--  Casal contou 3 versões, “nenhuma compatível” com lesões em bebê, diz polícia
--  Invalidenpoort Leidse Burcht is steevast afgesloten
+-  STIGLA KAZNA! Dožel Embid pobegao od Jokića, a NBA liga ne prašta KRŠENJE PRAVILA!
+-  Seleção Brasileira fecha primeira fase do pré-Olímpico contra a Venezuela
+-  Militantes de Javier Milei amenazaron de muerte a una diputada: qué le dijeron
+-  Nuova lettera di Ilaria Salis dal carcere: "Ho firmato, ma non ho capito nulla"
+-  Sofia Vergara wanted 'Griselda' role to make people 'forget Gloria Pritchett'
+-  AMLO critica cierre de caso contra el exabogado de Peña Nieto: "Está podrido el Poder judicial"
+-  Gemeinde protestiert gegen Priester: Bischof lenkt ein
+-  PREMIJER U ZEMLjI ČUDA: Francuska po meri "Gabrijela Tačera"
+-  Rehin alınan vatandaşların yakınlarının bekleyişi sürüyor
+-  Ubistvo u Borči! Jeziv zločin - mladić (20) izboden nasmrt
