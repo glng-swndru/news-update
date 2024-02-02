@@ -1,11 +1,11 @@
 # Latest News
--  Putin dal na stôl kórejský scenár. Hovorí o nárazníkovej zóne na Ukrajine a vysiela signály na Západ
--  Agriculteurs en colère : quelles routes sont encore bloquées ce vendredi ?
--  Le chef de l'État contrôle le travail de sécurité pour le Têt du Dragon
--  Uttarakhand flagship schemes for tourism and infrastructure will get a boost with budget allocation of Rs. 2217 crores
--  Erik ten Hag points finger at two Man Utd players after dramatic last-gasp win over Wolves - The Mirror
--  Agriculteurs en colère : quelles routes sont encore bloquées ce vendredi ?
--  Ria Ricis Tersinggung Ditanya Vlog Perceraian, Warganet Ungkit Lagi Konten Saat Ayahnya Meninggal
--  Meta wie ein Phönix aus der Asche (Kursexplosion) plus Apple und Amazon!
--  Agriculteurs en colère : quelles routes sont encore bloquées ce vendredi ?
--  Desalojadas 44 viviendas por derrumbamiento en El Campello
+-  Czy 2 lutego jest dyspensa? Kościół przekazał zalecenia dotyczące Święta Ofiarowania Pańskiego
+-  Finska strahuje od Rusije, ali i od Trumpa
+-  Śmiertelny wypadek na A1. Sebastian M. został zwolniony z aresztu w Dubaju
+-  Decorative lighting in Huntly town centre removed over safety fears
+-  A Hamilton–Ferrari-románc bejelentése megrengette még a világsajtót is
+-  Experiență VR în cadrul expoziţiei "Universul lui Salvador Dalí" de la București. Ce au pregătit organizatorii
+-  Sivas'ta ilk, kilosu 150 liradan satışa sunuluyor
+-  Meta第四季度业绩大超预期 宣布首次派息提振股票大涨15%！
+-  42 kişinin can verdiği binada nehir kumu kullanılmış
+-  En venta la casa más cara de València
