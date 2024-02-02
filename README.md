@@ -1,11 +1,11 @@
 # Latest News
--  프로 2년 차 ‘특급 유망주’ 김서현, 이젠 움츠린 날개를 펼 시간
--  Лекар: Прилагаме нови медикаменти за лечение на рак
--  Орбан избра да се присъедини към консерваторите, не към крайно десните
--  U Maleziji više od 100 izbeglica, uglavnom Rohindža, pobeglo iz pritvorskog kampa
--  Sauvon Palvelukeskus sai evakkomummon – ”Muistutus vaikeista ajoista”
--  Bakan Şimşek'ten gençlere 'kara para' uyarısı
--  Le meneur du C'Chartres Basket Masculin Thomas Prost se livre avant la réception de Berck : « C'est vrai, Je ne suis pas le plus souriant »
--  프로 2년 차 ‘특급 유망주’ 김서현, 이젠 움츠린 날개를 펼 시간
--  13 ilaç geri ödeme listesine alındı
--  Monika Goździalska opisuje szokujący incydent na pokładzie samolotu: "Zostałam UDERZONA. Nikt nie zareagował"
+-  Maciej Wąsik pojawi się w Sejmie? Padła jasna deklaracja
+-  Румыния не будет вступать ни в одну войну, - премьер Чолаку отверг заявление главы Генштаба Георгице о возможной эскалации со стороны РФ
+-  Một cơn “ớn lạnh” đe dọa các ngân hàng ở nhiều nơi trên khắp thế giới
+-  Maciej Wąsik pojawi się w Sejmie? Padła jasna deklaracja
+-  Nhiều địa phương khởi tố cả cán bộ diện Trung ương và tỉnh ủy, thành ủy quản lý
+-  Цукерберг заработает $700 млн в год на дивидендах Meta
+-  Sporazum s Merkosurom ne dolazi u obzir
+-  Στυλιανίδης: Τρεις άξονες για την ψηφιοποίηση της ακτοπλοΐας – Παρατηρητήριο τιμών εισιτηρίων
+-  Maciej Wąsik pojawi się w Sejmie? Padła jasna deklaracja
+-  Гандболисты сборной Беларуси проведут три гостевых спарринга с россиянами
