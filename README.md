@@ -1,11 +1,11 @@
 # Latest News
--  තරුණයකුට මැර ප්‍රහාරයක්
--  Showtime: Emraan Hashmi, Mouni Roy, Shriya Saran and other actors will leave you spell bound with their captivating looks
--  A Fradinak nem kellett, az egyik legfőbb riválisnál köthet ki a közönségkedvenc
--  【社説】EUがウクライナ支援を強化 - WSJ発
--  Boeren blokkeren E19 bij Hazeldonk, A4 en A67, Rijkswaterstaat waarschuwt: ‘Stel de reis naar België uit’
--  DIRECT - Agriculteurs en colère : plusieurs blocages seront levés en Bretagne dans la journée de vendredi
--  Boeren blokkeren E19 bij Hazeldonk en A4 bij Markiezaat, Rijkswaterstaat waarschuwt: ‘Stel de reis naar België uit’
--  대구 아파트 지하 공사장에서 불…10명 연기 마셔
--  Részlegesen megsüketült a platinalemezes magyar zenész
--  Prezidentka: Je mi ľúto, že vo voľbách nekandiduje žiadna žena
+-  Tuyển thủ Nhật Bản bị cáo buộc tấn công tình dục rời Asian Cup 2023
+-  Serenay Sarıkaya’nın yeni evinin fiyatı dudak uçuklattı
+-  Fenerbahçe'de bir lider daha! Leonardo Bonucci etkisi
+-  Vô tình phát hiện bí mật trong thiết kế của Apple Vision Pro
+-  UŽAS NA FLORIDI: Avion pao na naselje mobilnih kućica, više ljudi je poginulo
+-  ‘Čekat ću te nakon meča‘: kockar prijetio kontroverznom tenisaču, ovakvom odgovoru nije se nadao, pogledajte
+-  Konflikt Izraela i Hezbolaha: da li će biti rata?
+-  Az angol másodosztályba szerződött Marco Rossi kulcsembere
+-  Zalužni: kultni general – i suparnik Zelenskog?
+-  Hidegen hagyta a forintot az uniós megállapodás
