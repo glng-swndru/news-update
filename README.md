@@ -1,11 +1,11 @@
 # Latest News
--  Thüringer Rechnungshof gegen Härtefallfonds für Straßenausbaubeiträge
--  LIVE Transfers: Brest slaat bod Nottingham Forest af voor Marco Bizot
--  Comment le Futuroscope compte réinventer le genre des parcs aquatiques avec son Aquascope
--  DANAŠNJA KLIMA SVEDENA JE NA "SEBIČNOST" U SVAKOM SMISLU Stevo Grabovac, laureat NIN-ove nagrade za "Blic": Književnost nije tu da opravdava, ali ni da sudi
--  Poznati glumac prebačen u ozloglašeni zatvor nakon izrečene kazne za silovanje
--  Tylyjä terveisiä hallitukselle – katso roiseimmat kuvat mielen­osoituksesta
--  Comment le Futuroscope compte réinventer le genre des parcs aquatiques avec son Aquascope
--  Slováci opět vyšli do ulic kvůli vládním změnám v trestním právu
--  Будут субсидироваться проценты по кредитам в манатах, выданным предпринимателям в связи с организацией COP29 в Азербайджане
--  Grupo Ramos amplía cobertura con la apertura de Sirena Barahona
+-  Can Elon Musk do ‘whatever he wants’? Why moving Tesla out of Delaware may spook investors.
+-  Ozbiljno se naoružavaju, Amerika odobrila
+-  مكتبة الملك عبدالعزيز تستقبل وفدا ثقافيا صينيا وتحتفي بعام الإبل
+-  ОФИЦИАЛЬНО. Судаков продлил контракт с Шахтером
+-  Ozbiljno se naoružavaju, Amerika odobrila
+-  Репортаж ZDF з Маріуполя викликав хвилю обурень: що не так із матеріалом
+-  Pentagon ozbiljno naoružava članicu BRIKS-a: Odobrena prodaja dronova
+-  Ola de calor: el consumo eléctrico marcó un nuevo récord
+-  Adana Demirspor, Kazakistanlı golcü oyuncu Abat Aymbetov ile 1.5+1 yıllık sözleşme imzaladı.
+-  Пътниците в самолетите се държаха зле преди COVID, а сега са нетърпими
