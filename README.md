@@ -1,11 +1,11 @@
 # Latest News
--  Actualité : Un Galaxy A peut en cacher un autre : le Galaxy A15 de Samsung est lui aussi officiel
--  Pogrešajo 16-letnega Boruta Jana Ružiča iz Brestanice
--  Kicsoda Borisz Nagyezsgyin, a Putyin hatalmára törő háborúellenes orosz politikus?
--  Norja | Näin poikkeuksellisen raju Ingunn-myrsky runteli Norjaa: ”Koko rakennuksesta lähti katto”
--  Pa. mom charged for allegedly leaving child home alone for month with no heat, water
--  **Caso Pozzolo: deputato sentito dai probiviri**
--  Unfall bei Steinheim: 56-Jähriger stirbt während der Autofahrt
--  Trasporti, Dradi: "Un'emozione rivedere i manifesti come fossero nuovi"
--  Ogres teātris pārtop par neatkarīgu pašvaldības iestādi
--  Universal Music Group drops Taylor Swift and Drake’s songs from TikTok amid licensing dispute
+-  KI-Update kompakt: Deepfakes, KI-Waffen, Googles KI-Pläne, Jugendschutz
+-  केंद्र ने आंध्र प्रदेश को रेलवे के लिए 9,138 करोड़, तेलंगाना को 5,071 करोड़ रुपये आवंटित किए
+-  Спортивный психолог Плехова прокомментировала первый выход в свет Валиевой после суда
+-  Report DLA Piper: 2023 anno record per sanzioni ai sensi del GDPR, pari a 1,78 miliardi
+-  Minor league baseball player who spit on Delta passengers now facing federal charges, prosecutors say
+-  Klęska suszy w Hiszpanii. Katalonia racjonuje wodę
+-  Bilanz-Experte: René Benkos Signa: "Die haben ihr Vermögen hochbewertet"
+-  Sparen angesagt: Die „goldenen Jahre“ sind auch in Täferrot vorbei
+-  Букмекери зробили новий прогноз щодо Євробачення-2024
+-  США перебросили на Гуам группу бомбардировщиков на фоне испытания ракеты в КНДР
