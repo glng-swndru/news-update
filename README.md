@@ -1,11 +1,11 @@
 # Latest News
--  الحكومة تصادق على خطة لمكافحة العنف بالملاعب الرياضية
--  Österreich: Landwirt muss nach tödlicher Kuh-Attacke nicht zahlen
--  Milli Savunma Bakanlığı, 2023 Yılı Verimlilik Proje Ödül törenin de bir çok alanda ödüle laik görüldü
--  CHP'li Keskin: Aday olmayacağımı bana İmamoğlu tebliğ etti
--  Rozhnevaní poľnohospodári protestujú v Bruseli počas samitu EÚ. V uliciach horí a dochádza k zrážkam s políciou
--  Съпругата на убития Божанов не получила достъп до класифицирана информация
--  Šéf UNRWA: Ak štáty neobnovia financovanie, do konca februára skončíme
--  Relatório da CPI do 8 de Janeiro alertou para 'Abin paralela' sob Bolsonaro
--  Kaçak tütün operasyonunda çok miktarda malzeme ele geçirildi
--  ‘Mater ti j**em četničku, nisi siguran...‘; Umirovljeni vojnik prijetio Banožiću, sada je osuđen: ‘Neće se ponoviti‘
+-  Keto, paleo, low carb. Dieta bez pieczywa naprawdę działa! Te zamienniki chleba i bułek pozwolą ci jeść ulubione posiłki przy odchudzaniu
+-  Правительству предложили разгрузить Восточный полигон РЖД за счет рек Сибири
+-  Spotify ücretlerine zam
+-  Excise Policy case: AAP MP Sanjay Singh moves court seeking interim bail to take oath as Rajya Sabha member, attend parliament session
+-  Virginia lawmakers consider bill to let cities and counties prohibit gas-powered leaf blowers
+-  "Невъзможно е да защитим Санкт Петербург от дронове": Признание от руския парламент
+-  "UBIŠE MI SAŠU, IŠČUPAŠE GA IZ MOG SRCA" Neutešna majka na sahrani sina kojeg su ubili žena i njen ljubavnik
+-  מעבר עם סיום החלון? דיווח: קבוצתו לשעבר של וייסמן שוקלת להחזירו
+-  مدير تربية لحج يلتقي "مؤسسة طيبة" ويناقش تدخلاتها بقطاع التعليم
+-  Rugby-Ford starts at flyhalf for England, debuts for Dingwall and Roots
