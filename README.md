@@ -1,11 +1,11 @@
 # Latest News
--  Por qué se viste al Niño Dios el 2 de febrero, esto dice la tradición
--  펄시스터즈 배인순 근황 “재벌가 시집살이 혹독→위자료 25억 다 날려” (같이삽시다)
--  Judd Trump dominates BetVictor series to land enormous bonus with time to spare
--  Nova rekordna vrednost ameriških delnic
--  Двухэтажный дом загорелся на улице Всеволода Сибирцева во Владивостоке
--  Exmodelo revela tener una hija con Neymar: “Solo lo ve en los partidos”
--  Banco Montepio conclui programa de ajustamento com menos 979 trabalhadores desde 2019
--  Reforma IEEPCNL Lineamientos de Registro de Candidaturas
--  Un médico cirujano uruguayo intentó cruzar el Río de La Plata a nado y murió a 1500 metros de llegar
--  Celebrarán nuevo año lunar en bibliotecas de San Diego
+-  Konsorsium ALPHA Sepakat Membangun Konektivitas Digital Asia Pasifik
+-  Sénégal : Le port d'armes interdit dans la période allant du 25 janvier au 14 avril 2024
+-  PM Dahal and UML Chair Oli meet
+-  La Libertad Asesora: nombraron al hermano del vocero Manuel Adorni en Defensa con un sueldo millonario
+-  HLV Trần Công Minh: 'Bóng đá Việt Nam hãy bước tiếp với lòng dũng cảm'
+-  Brad Pitt, Quentin Tarantino to reunite on ‘The Movie Critic’ (reports)
+-  'Abandon Biden': Democrats turn on president over support for Israel
+-  City of Kelowna received $68 million in grant funding in 2023 (Kelowna)
+-  6 Zodiak Paling Beruntung Hari Ini, Jumat 2 Februari 2024: Taurus, Leo, Virgo, Libra hingga Pisces
+-  US Pop Culture, Politics, and Conspiracies: The Bizarre Claims Around Taylor Swift's Love Story
