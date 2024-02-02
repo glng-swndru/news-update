@@ -1,11 +1,11 @@
 # Latest News
--  Can Elon Musk do ‘whatever he wants’? Why moving Tesla out of Delaware may spook investors.
--  Ozbiljno se naoružavaju, Amerika odobrila
--  مكتبة الملك عبدالعزيز تستقبل وفدا ثقافيا صينيا وتحتفي بعام الإبل
--  ОФИЦИАЛЬНО. Судаков продлил контракт с Шахтером
--  Ozbiljno se naoružavaju, Amerika odobrila
--  Репортаж ZDF з Маріуполя викликав хвилю обурень: що не так із матеріалом
--  Pentagon ozbiljno naoružava članicu BRIKS-a: Odobrena prodaja dronova
--  Ola de calor: el consumo eléctrico marcó un nuevo récord
--  Adana Demirspor, Kazakistanlı golcü oyuncu Abat Aymbetov ile 1.5+1 yıllık sözleşme imzaladı.
--  Пътниците в самолетите се държаха зле преди COVID, а сега са нетърпими
+-  Hey, let's give Chelsea a swift kicking while they are down
+-  Mit Krümelmonster Grimme-Preis-verdächtig: Was Fernsehkoch Steffen Henssler zu Hause isst
+-  BYU’s Aly Khalifa’s game resembles artistry of late Kresimir Cosic
+-  Elevate Teams Joins HawkSoft's Solution Partner Program
+-  Kommentar: Die Zeit der Träumereien in Köln ist vorbei
+-  Tavaly harminchat százalékkal nőtt a búzatermés Magyarországon
+-  Tisztakosz koncert a miskolci Ifiházban
+-  Украина – США – 0:1. Крутых взял сет у Корды, но все же проиграл
+-  ‘What they did for us was nothing short of miraculous’
+-  BBC Dragons' Den star Peter Jones' life from earth-shattering divorce to Holly Willoughby feud
