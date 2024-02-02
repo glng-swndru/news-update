@@ -1,11 +1,11 @@
 # Latest News
--  STIGLA KAZNA! Dožel Embid pobegao od Jokića, a NBA liga ne prašta KRŠENJE PRAVILA!
--  Seleção Brasileira fecha primeira fase do pré-Olímpico contra a Venezuela
--  Militantes de Javier Milei amenazaron de muerte a una diputada: qué le dijeron
--  Nuova lettera di Ilaria Salis dal carcere: "Ho firmato, ma non ho capito nulla"
--  Sofia Vergara wanted 'Griselda' role to make people 'forget Gloria Pritchett'
--  AMLO critica cierre de caso contra el exabogado de Peña Nieto: "Está podrido el Poder judicial"
--  Gemeinde protestiert gegen Priester: Bischof lenkt ein
--  PREMIJER U ZEMLjI ČUDA: Francuska po meri "Gabrijela Tačera"
--  Rehin alınan vatandaşların yakınlarının bekleyişi sürüyor
--  Ubistvo u Borči! Jeziv zločin - mladić (20) izboden nasmrt
+-  Full Sail University Welcomes John P. Saboor as Executive Director, Head of Partnerships
+-  Коя е следващата стъпка на роботизираната хирургия след свързване на човешкия мозък и чип
+-  Ajax-aanwinst Rijkhoff: ’Paar slopende dagen’
+-  Sedmoro dece ostalo bez svega u požaru, sa roditeljima ŽIVE U JEDNOJ SOBI stare oronule kuće, a onda su za njihovu muku čule Novosađanke: "Kupovali su ciglu po ciglu, često ostajući gladni zbog toga"
+-  Chladnokrvná vražda priamo na trávniku. Bývalého reprezentanta zastrelili počas zápasu
+-  5 Takeaways About the Pre-Owned Watch Market Circa 2024
+-  Emeklilik için en iyi şehirler belli oldu! Türkiye'den de 1 şehir var
+-  Skal ha slått til politiet på tur ut av arresten
+-  Netflix's 2024 Previews Tease Squid Game Season 2, Avatar's Arrival, and More - Gizmodo
+-  Opasno po zdravlje: Carina upecala 30 tona lažnog praška za rublje iz Turske
