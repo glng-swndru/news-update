@@ -1,11 +1,11 @@
 # Latest News
--  Intel verzögert Bau neuer Fabrik in den USA
--  TV-Soaps: Das passiert heute in den Soaps
--  Советник Зеленского заявил, что Украина хочет получить от России 1 трлн долларов
--  Ilaria Salis: gli arresti domiciliari e il braccialetto elettronico anti fuga
--  Tvrd pristup ipak se isplati: YouTube Premium ima 100 milijuna pretplatnika
--  Житель Даугавпилса отдал мошенникам почти 48 тысяч евро
--  La longevità come base per il successo negli investimenti e nel trading
--  Голямото интервю: Сандер Берге
--  TV-Soaps: Das passiert heute in den Soaps
--  Шойгу: Киев спешно проводит мобилизацию, чтобы не допустить обрушения обороны
+-  Ross-shire care home could 'twin' with counterpart in France
+-  Petrović: Kroz projekat "Zaplovi Srbijom" pokazaćemo sve potencijale Srbije
+-  Vệ Thần: Tựa game lấy cảm hứng từ thần thoại Việt Nam
+-  UE destrava acordo para liberar 50 bilhões de euros para Ucrânia
+-  NHL All Star má novinky: Draft s celebritami a milión pre kráľa súťaží
+-  Hyundai ve Iveco'dan elektrikli ticari araç iş birliği
+-  Miks Dukurs un Kalendy iepazinušies, runājot par grupveida seksu
+-  Szexi ételeket visz házhoz Valentin-napra egy erotikus segédeszközökkel foglalkozó cég
+-  HLV Park Hang Seo nhận tin buồn ngày cuối năm
+-  حارس مرمى قطر: مواجهة أوزبكستان صعبة.. ونريد العبور لنصف نهائي كأس آسيا
