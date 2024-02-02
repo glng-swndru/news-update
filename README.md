@@ -1,11 +1,11 @@
 # Latest News
--  Átengedte az NVB az LMP kiemelt beruházások megszüntetését célzó népszavazási kezdeményezését
--  Modesto students traveling to visit historical black colleges. Why is that important?
--  Viking Line har besökt varv i Kina
--  Prijavite se za spektakularnu drugu sezonu "MasterChef Srbija" na Prvoj
--  Empieza la cuenta atrás: una semana para el cierre de mercado en la NBA
--  KFF Health News' 'What the Health?': The Struggle Over Who Gets the Last Word
--  Ferrari i službeno potvrdio: Lewis Hamilton je naš od 2025. godine!
--  Adıyaman'da yangının çıktığı ev kullanılamaz hale geldi
--  EastEnders spoilers: Phil Mitchell issues Kat Slater a warning over abusive killer Nish Panesar
--  출생에 '기본소득' 더한 이재명…정부 무관심 속 '돈줄'은 어디에?
+-  Segertåget Timrå IK rullar vidare
+-  Segertåget Timrå IK rullar vidare
+-  Klub Messiego zdemolowany! Ronaldo szalał na trybunach [WIDEO]
+-  Игнашевич заявил, что Козлов заслужил возможность играть в команде РПЛ
+-  Talisca coştu! Al Nassr, Messi'nin takımını gole boğdu
+-  Justiça mantém prisão de brasileiro suspeito de envolvimento com o Hezbollah
+-  Sarıyer'de kiliseye silahlı saldırı olayına ilişkin yeni detaylar ortaya çıktı
+-  Woman felt a drip on her forehead in bathroom but was horrified at what she saw - The Mirror
+-  'Vanderpump Rules' Star Tom Sandoval Dating Model Victoria Lee Robinson - TMZ
+-  住宅火災 焼け跡から3人が遺体で見つかる 鹿児島県南さつま市
