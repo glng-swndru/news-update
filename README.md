@@ -1,11 +1,11 @@
 # Latest News
--  面板廠拿回議價權 電視面板2月齊漲
--  ۸ ویتامین ضروری برای سلامت زنان
--  Georgina Rodriguez podijelila atraktivne fotografije s Maldiva, a uživala je u društvu prijatelja i djece
--  獅主場票房緊箍咒 等鷹救援?
--  新制勞退去年賺4786億創高 人均帳面分紅3.8萬
--  핫한 광고 꿰차는 ‘핫한 투어스’
--  Brocchi: "Il Milan è forte, non è una squadra da metà classifica"
--  'Happiest guy you'll ever meet' takes Young Citizen of the Year award
--  UCLA's Laiatu Latu goes from medically retired player to hot NFL prospect
--  潤娥週日會台粉 激動提前拜年
+-  Rusia susţine că a identificat rămăşiţele tuturor ocupanţilor avionului Il-76 doborât în regiunea Belgorod
+-  Volvo shares jump 26% on higher sales, plans to stop Polestar funding
+-  Transfer Deadline Day LIVE: Lingard FINALLY finds club, Broja Fulham medical, Spurs eye £50m Solanke, Benrahma updates
+-  Egypt's central bank raises interest rates by 200 bps to ease inflation
+-  House passes child tax credit expansion — which could benefit millions of families, experts say
+-  Be traumuoto Sedekerskio žaidusi „Baskonia“ nutraukė pralaimėjimų seriją, pergale džiaugėsi ir „Real“
+-  Divided Bank of England leaves policy unchanged, says interest rates are 'under review'
+-  Defense Secretary Lloyd Austin apologizes for his handling of cancer diagnosis and hospitalization
+-  Matan en Zapopan a precandidato de Alcaldía de Mascota
+-  "Ее разозлили". В Штатах забили тревогу из-за "мести" России
