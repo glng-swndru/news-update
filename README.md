@@ -1,11 +1,11 @@
 # Latest News
--  Utility company to move out from iconic Wisma SESB
--  Η Λευκωσία στις ευφυείς πόλεις της Ευρώπης
--  Quién es Larry Fink, el poderoso empresario con el que se reunirá Milei y que maneja el fondo de inversión más grande del mundo
--  Scoperta una Super Terra in zona abitabile. È a 137 anni luce da noi
--  كتائب القسام:
--  Squid Game Season 2 Gets First Teaser Trailer, And It Looks Mysterious
--  Mulher e filhas são atacadas com ‘substância corrosiva’ em Londres
--  'Sugerira se da su sindikati instruirani od oporbe. A oni koji šute, njih instruira HDZ?'
--  Présidentielle 2024 : Guy Marius Sagna, Abass Fall et Birame Soulèye Diop chez Dr Abdourahmane Diouf
--  Pirelli realiza testes com Porsche no deserto e em pista gelada
+-  Red in colour, green in nature
+-  Sky Lifesavers: Bulgaria Welcomes Its First Lifesaving Air Ambulance Helicopter
+-  Lara Sophie Bothur: Wieso LinkedIn-Influencer sich über Fake-Follower streiten
+-  Punters’ tram takeover
+-  Lange Schließung im Hallenbad in Bietigheim abgewendet: Bad am Viadukt soll im April wieder öffnen
+-  Letters to Editor: South D, roads, columnists
+-  «I Am: Celine Dion»: Ντοκιμαντέρ για τη σκληρή μάχη που δίνει με σπάνια ασθένεια η τραγουδίστρια
+-  The 10 Most Unique Chipotle Locations on Earth
+-  Gözünü kararttı, tetiği çekti. Eski nişanlısına kurşun yağdırdı! Cani kadın ağırlaştırılmış müebbet cezası aldı
+-  Box Office: Jókora bukta elé néz az Argylle, de a gyártónak ez nem nagyon fog fájni
