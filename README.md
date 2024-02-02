@@ -1,11 +1,11 @@
 # Latest News
--  La mortalité routière en légère baisse en 2023
--  Brandenburg an der Havel bekommt noch in diesem Jahr einen Bürgerhaushalt
--  Haben Sie „Rücken“? Das muss auch ab 50 nicht sein!
--  Ciclista cai em vala de escoamento após passar mal em Sinop
--  Усилено се строят сгради, устойчиви на жестоките земетресения в Турция
--  Así será el Campeonato de España por equipos, la primera prueba del calendario nacional
--  Haben Sie „Rücken“? Das muss auch ab 50 nicht sein!
--  Exigen a la Virreina del carnaval paceño 2023 que devuelva la corona de su reinado
--  نجاح اختبار أول الرقائق الإلكترونية العمانية في معامل تايوان
--  Conte, l'amico: "Napoli lo stimola molto. Bel duetto con De Laurentiis"
+-  Utility company to move out from iconic Wisma SESB
+-  Η Λευκωσία στις ευφυείς πόλεις της Ευρώπης
+-  Quién es Larry Fink, el poderoso empresario con el que se reunirá Milei y que maneja el fondo de inversión más grande del mundo
+-  Scoperta una Super Terra in zona abitabile. È a 137 anni luce da noi
+-  كتائب القسام:
+-  Squid Game Season 2 Gets First Teaser Trailer, And It Looks Mysterious
+-  Mulher e filhas são atacadas com ‘substância corrosiva’ em Londres
+-  'Sugerira se da su sindikati instruirani od oporbe. A oni koji šute, njih instruira HDZ?'
+-  Présidentielle 2024 : Guy Marius Sagna, Abass Fall et Birame Soulèye Diop chez Dr Abdourahmane Diouf
+-  Pirelli realiza testes com Porsche no deserto e em pista gelada
