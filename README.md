@@ -1,11 +1,11 @@
 # Latest News
--  Ross-shire care home could 'twin' with counterpart in France
--  Petrović: Kroz projekat "Zaplovi Srbijom" pokazaćemo sve potencijale Srbije
--  Vệ Thần: Tựa game lấy cảm hứng từ thần thoại Việt Nam
--  UE destrava acordo para liberar 50 bilhões de euros para Ucrânia
--  NHL All Star má novinky: Draft s celebritami a milión pre kráľa súťaží
--  Hyundai ve Iveco'dan elektrikli ticari araç iş birliği
--  Miks Dukurs un Kalendy iepazinušies, runājot par grupveida seksu
--  Szexi ételeket visz házhoz Valentin-napra egy erotikus segédeszközökkel foglalkozó cég
--  HLV Park Hang Seo nhận tin buồn ngày cuối năm
--  حارس مرمى قطر: مواجهة أوزبكستان صعبة.. ونريد العبور لنصف نهائي كأس آسيا
+-  PTT'den vatandaşlara dolandırıcılık uyarısı!
+-  Gaza war gives new urgency to US push for Israel-Saudi ties
+-  ¿El SAIME exige la carta de residencia para algún trámite? Te damos todos los detalles
+-  與 ‘중대재해처벌법 유예 중재안 불발’ 연일 對野 공세
+-  Spontanheilung – kann Krebs „von selbst“ wieder weggehen?
+-  Nyhetsquiz vecka 5: Har du hängt med i nyhetsflödet?
+-  Arranca la programación de febrero en el Teatro del Municipio de Lomas
+-  Neue Chipfabrik: Intels Ohio-Fab verspätet sich um ein volles Jahr
+-  Banedanmark opgiver at fikse sårbarhed i S-togets signalsystem: Giver risiko for opbremsninger
+-  Fantasy Basketball Waiver Wired, Week 15: Don't let Ayo pass you by-o
