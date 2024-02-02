@@ -1,11 +1,11 @@
 # Latest News
--  Premier League Darts LIVE RESULTS: Michael Smith batters home hero Gerwyn Price in final after beating Luke Littler
--  TWO SECURITY GUARDS KILLED BY ROBBERS
--  à·€à·�à¶§à¶½à·“à¶¸à¶§ à¶œà·’à¶º à¶šà·œà·ƒà·Šà¶­à·�à¶´à¶½à·Šà¶§ à¶¶à¶¯à·’à¶± à¶­à·”à·€à¶šà·Šà¶šà·”à·€à¶šà·Š à¶´à¶­à·Šà¶­à·”à·€à·™à¶ºà·’
--  වැටලීමට ගිය කොස්තාපල්ට බදින තුවක්කුවක් පත්තුවෙයි
--  Bolivia – Colombia (2-0): minuto a minuto
--  4 estrategias que los 49ers de San Francisco están implementando para ganarse al mercado mexicano
--  Wall Street : gagne +1%, double la mise avec Amazon et Meta
--  Der geheime Opernball-Logen-Plan
--  ２／２朝
--  El 70% de los usuarios de medicina prepaga considera cambiar su cobertura de salud actual
+-  Jamaal Bowman's 9/11 Truther Poem
+-  Klokken har passert midnatt. Nå kan Eirik Horneland smile.
+-  Президент подякував партнерам ЄС за 50 млрд
+-  함박눈 내린 듯 '몽글몽글'…강물 뒤덮은 거품 정체
+-  Clark Art Institute to present concert by Ice Rasta and Father Hotep
+-  Child’s remains found in concrete in Colorado storage unit fuels homicide investigation
+-  1월 소비자물가 전년비 2.8% 상승…6개월 만에 2%대 진입
+-  700.000 einstaklingar deyja árlega í sjálfsvígi
+-  Mercato foot : Bertrand Traoré à Villarreal, c’est fait !
+-  గ్రామీణాభివృద్ధికి రూ.1.77 లక్షల కోట్లు
