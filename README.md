@@ -1,11 +1,11 @@
 # Latest News
--  बीपी प्रतिष्ठानका विद्यार्थी अनशनमा
--  Grifols: Potencial recuperación del 17,92%
--  「日本を変える」経済効果“1兆9000億円” 4月から運用開始「ナノテラス」 目指す「世界一のイノベーションの地」
--  Tết vui vầy cùng cha mẹ khỏe mạnh, thế là đủ đầy
--  My Aunty Eleanor’s discovery exposed a surprising link between my first job and this one
--  Stora skador efter bombdåd vid flerfamiljshus
--  (VIDEO) Katarina Živković objavila emotivnu baladu
--  Pension muss warten! - Slayer-Legende Kerry King mit neuer Band am Nova Rock
--  「うちほどいいところはない。戻らせて」 介護必要な高齢者などが身を寄せる『福祉避難所』 その先が問題
--  Poslanci pokračujú v diskusii o novele Trestného zákona aj v piatok
+-  Putin dal na stôl kórejský scenár. Hovorí o nárazníkovej zóne na Ukrajine a vysiela signály na Západ
+-  Agriculteurs en colère : quelles routes sont encore bloquées ce vendredi ?
+-  Le chef de l'État contrôle le travail de sécurité pour le Têt du Dragon
+-  Uttarakhand flagship schemes for tourism and infrastructure will get a boost with budget allocation of Rs. 2217 crores
+-  Erik ten Hag points finger at two Man Utd players after dramatic last-gasp win over Wolves - The Mirror
+-  Agriculteurs en colère : quelles routes sont encore bloquées ce vendredi ?
+-  Ria Ricis Tersinggung Ditanya Vlog Perceraian, Warganet Ungkit Lagi Konten Saat Ayahnya Meninggal
+-  Meta wie ein Phönix aus der Asche (Kursexplosion) plus Apple und Amazon!
+-  Agriculteurs en colère : quelles routes sont encore bloquées ce vendredi ?
+-  Desalojadas 44 viviendas por derrumbamiento en El Campello
