@@ -1,11 +1,11 @@
 # Latest News
--  Top Social Post: গায়ক গৌরব সরকারের বিরুদ্ধে বিস্ফোরক অভিযোগ, ব্যাঙ্ক প্রতারণার শিকার শান্তনু, আজকের সোশ্যালে সেরা
--  Boston Celtics - Los Angeles Lakers, en directo | NBA
--  Tortuga marina murió atrapada por redes fantasmas en Morrocoy #1Feb
--  Balanços do 4° trimestre 2023 da Bolsa de Valores: confira datas de divulgação
--  Fitness Tips : जिमला न जाता फिट राहायचंय? फक्त 'ही' घरगुती कामं करा; कोणत्याही व्यायामाची गरज भासणार नाही
--  New therapy for dementia patients ‘may help them live independently for longer’
--  Fransa'dan geri adım! Çiftçilere yeni tedbirleri içeren 150 milyon euroluk destek
--  Türkiye'nin en fazla çalışanı olan şirketleri açıklandı! İlk 30'da o şirketler bulunuyor: İşte en çok çalışanı bulunan şirketler
--  Graduates entering weak markets face long-term effects, lower earnings: TD Economics
--  Hiện trạng đường Đồng Văn Cống từng bị “tuýt còi” nhiều lần do chậm tiến độ, chuẩn bị thông xe trước Tết Nguyên đán
+-  من يحكم غزة.. الفدائيون أم الإسرائيليون؟
+-  හිටපු නායකයන් තිදෙනකුගේ සහාය ඇතිව ධනංජය අද සුක්කානම අතට ගනී
+-  Como crash: Teen motorbike rider injured in shocking collision with taxi
+-  Preço da corrida com carro de aplicativo dispara após pane no metrô de SP
+-  بعد الغياب عن بطولة الشباب بالمكسيك.. سلطان السويدي: الكرة القطرية ستعود إلى الإنجاز
+-  Uçuruma yuvarlanan kamyonun sürücüsü hayatını kaybetti
+-  بعثة من قطر لمعهد البريد العربي بدمشق
+-  العريض يهدي مكتبته لدار العروبة
+-  Hojlund quebra recorde de Cristiano Ronaldo na Premier League
+-  අද සීඅයිඩීයේ පෙනී සිටින්නැයි කෙහෙළියට උසාවි නියෝගයක්
