@@ -1,11 +1,11 @@
 # Latest News
--  Nuovi guai per Neymar. Perché lo portano in tribunale
--  Ley ómnibus: agrupaciones de izquierda y del radicalismo preparan una nueva marcha frente al Congreso
--  Kurum: Yarı zamanlı belediyeciliğe cevap 31 Mart'ta
--  Opinion: How will generative AI impact our devices?
--  Fabrikada rehin alınan işçilerden ilk görüntü
--  Nenek, cucu rentung dalam kebakaran
--  زعيم الحوثيين: أمريكا طلبت مساعدة الصين لوقف عملياتنا في البحر الأحمر
--  DK: Orbán Viktor viccet csinált a saját nemzeti konzultációjából
--  Processo Seletivo: Etec de Orlândia SP lança novo edital
--  BoE eleva projeções para crescimento do PIB e para inflação nos próximos 2 anos no Reino Unido
+-  Sesks slimības dēļ Kataras rallijā nestartēs
+-  CHP'de sular durulmuyor! Belediye Başkanı'ndan partisine eleştiri
+-  Markkina-analyysi | Suomessa ruoka­kauppa on omistajilleen kulta­kaivos
+-  AMD Zen 5: Echte neue Ryzen-Generation kommt noch dieses Jahr
+-  Wintertransfers KKD 2023/24: ADO betaalt ruim 500.000 euro voor aanvoerder Emmen
+-  AMD Zen 5: Echte neue Ryzen-Generation kommt noch dieses Jahr
+-  الأمم المتحدة تطلب 2.7 مليار دولار لمساعدة اليمن في 2024
+-  Семак — о Кубке равноправия: «Турнир достаточно интересный, наша главная цель — качество игры»
+-  Na veľtrh v Solúne prišli protestovať stovky poľnohospodárov
+-  Weil der Stadt hat Verkehrsberuhigung getestet: Ein Versuch mit ernüchterndem Ergebnis
