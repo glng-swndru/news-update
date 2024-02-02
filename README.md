@@ -1,11 +1,11 @@
 # Latest News
--  Ad firm Publicis, drugmaker Hikma settle US opioid cases for $500 million
--  Manchester mayor hails 'brilliant' Ineos duo and speaks out on Old Trafford future
--  Bez Kolečka a v Chanelu! Aneta Vignerová se ukázala po dlouhé době na veřejnosti
--  Taani teadlased leidsid uue võimaluse haruldasi haigusi kiirelt diagnoosida
--  « On sent un véritable engouement » : les Boxers de Bordeaux remplissent la patinoire de Mériadeck
--  I lavoratori Hyundai dell’Alabama si uniscono all’UAW
--  Confira os conteúdos com maior sucesso de monetização na internet
--  Kövér László rendkívüli parlamenti ülést hívott össze, az akkugyárak és a svéd NATO-csatlakozás is téma lesz
--  Landwirte erleiden Ertragsverluste durch das Hochwasser
--  Как се пише: избраник или избранник?
+-  Thüringer Rechnungshof gegen Härtefallfonds für Straßenausbaubeiträge
+-  LIVE Transfers: Brest slaat bod Nottingham Forest af voor Marco Bizot
+-  Comment le Futuroscope compte réinventer le genre des parcs aquatiques avec son Aquascope
+-  DANAŠNJA KLIMA SVEDENA JE NA "SEBIČNOST" U SVAKOM SMISLU Stevo Grabovac, laureat NIN-ove nagrade za "Blic": Književnost nije tu da opravdava, ali ni da sudi
+-  Poznati glumac prebačen u ozloglašeni zatvor nakon izrečene kazne za silovanje
+-  Tylyjä terveisiä hallitukselle – katso roiseimmat kuvat mielen­osoituksesta
+-  Comment le Futuroscope compte réinventer le genre des parcs aquatiques avec son Aquascope
+-  Slováci opět vyšli do ulic kvůli vládním změnám v trestním právu
+-  Будут субсидироваться проценты по кредитам в манатах, выданным предпринимателям в связи с организацией COP29 в Азербайджане
+-  Grupo Ramos amplía cobertura con la apertura de Sirena Barahona
