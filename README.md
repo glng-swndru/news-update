@@ -1,11 +1,11 @@
 # Latest News
--  Cứu sống hành khách máy bay bằng Apple Watch
--  Governo instala centro emergencial para monitorar casos de dengue
--  «Станет чемпионом мира в 18 лет». В команде Мэйвезера назвали следующую суперзвезду бокса
--  Kristalina Georgiewa: IWF-Chefin warnt vor zu vielen Zugeständnissen an Landwirte
--  PRD se deslinda de presunto financiamiento ilícito de AMLO
--  North Korea's Kim stresses need to strengthen navy on shipyard visit
--  রাজধানীতে বিশ্ববিদ্যালয় শিক্ষার্থীর লাশ উদ্ধার
--  Balas Dendam Kematian 3 Tentara AS, Bos Pentagon Janjikan Respons Bertingkat
--  NIKO-SEM: AI PCs, NEVs to Shine in 2024
--  Experience the awe-inspiring showcase by INFiLED at ISE2024
+-  En død i masseflukt fra migrantmottak i Malaysia
+-  Se espera que en marzo La Roca tenga al menos techo
+-  Romsey planning: objections for major business park plans in local gap
+-  Mordfall Yasemin T.: Zeuge sagt aus: „Ich wollte damit nichts zu tun haben“
+-  Romsey driver caught almost double the drink drive limit
+-  Äänekoskelaisessa Purasen kahdeksanlapsisessa perheessä on kahdet kaksoset – "Kun ei eilistä muistele ja huomista murehdi, niin hyvä on"
+-  Casbrook Home Care prepares to open community hub in Romsey centre
+-  Demi Lovato Ungkap Persiapan Pernikahannya: Saya Sangat Bersemangat
+-  Securing Our Wheels: A Positive Approach to Vehicle Safety in British Columbia
+-  ‘Many will not recover’: Why it’s time to bring on interest rate cuts
