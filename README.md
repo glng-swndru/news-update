@@ -1,11 +1,11 @@
 # Latest News
--  Full Sail University Welcomes John P. Saboor as Executive Director, Head of Partnerships
--  Коя е следващата стъпка на роботизираната хирургия след свързване на човешкия мозък и чип
--  Ajax-aanwinst Rijkhoff: ’Paar slopende dagen’
--  Sedmoro dece ostalo bez svega u požaru, sa roditeljima ŽIVE U JEDNOJ SOBI stare oronule kuće, a onda su za njihovu muku čule Novosađanke: "Kupovali su ciglu po ciglu, često ostajući gladni zbog toga"
--  Chladnokrvná vražda priamo na trávniku. Bývalého reprezentanta zastrelili počas zápasu
--  5 Takeaways About the Pre-Owned Watch Market Circa 2024
--  Emeklilik için en iyi şehirler belli oldu! Türkiye'den de 1 şehir var
--  Skal ha slått til politiet på tur ut av arresten
--  Netflix's 2024 Previews Tease Squid Game Season 2, Avatar's Arrival, and More - Gizmodo
--  Opasno po zdravlje: Carina upecala 30 tona lažnog praška za rublje iz Turske
+-  Átengedte az NVB az LMP kiemelt beruházások megszüntetését célzó népszavazási kezdeményezését
+-  Modesto students traveling to visit historical black colleges. Why is that important?
+-  Viking Line har besökt varv i Kina
+-  Prijavite se za spektakularnu drugu sezonu "MasterChef Srbija" na Prvoj
+-  Empieza la cuenta atrás: una semana para el cierre de mercado en la NBA
+-  KFF Health News' 'What the Health?': The Struggle Over Who Gets the Last Word
+-  Ferrari i službeno potvrdio: Lewis Hamilton je naš od 2025. godine!
+-  Adıyaman'da yangının çıktığı ev kullanılamaz hale geldi
+-  EastEnders spoilers: Phil Mitchell issues Kat Slater a warning over abusive killer Nish Panesar
+-  출생에 '기본소득' 더한 이재명…정부 무관심 속 '돈줄'은 어디에?
