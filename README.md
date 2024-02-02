@@ -1,11 +1,11 @@
 # Latest News
--  She MAD: Sarah Rumpf's EMBARRASSING 17-Tweet Meltdown Over Disney/Desantis Ruling Accidentally HILARIOUS
--  Przedwiośnie nad Jeziorem Wulpińskim. Luksusowy wypoczynek w specjalnych cenach
--  A Théoule-sur-Mer, le patron de La Maréa est un authentique "produit de la mer"
--  Getting your Phil: everything you need to know about Groundhog Day
--  Letartóztatták a pécsi diáklányt, aki egy kollégiumi mosdóban szülte meg gyermekét
--  Meet KDF General leaving girls drooling and men wailing
--  Setting The Foundation: Why Defining Business Goals Upfront Is Key For Tech Leaders
--  NA ROVINU s Igorom Matovičom: Ako môže blázon z ulice ohroziť Korčoka?
--  OnePlus de braço dado com a App Defense Alliance
--  Here's How iOS 17.3's Stolen Device Protection Works - CNET
+-  La mortalité routière en légère baisse en 2023
+-  Brandenburg an der Havel bekommt noch in diesem Jahr einen Bürgerhaushalt
+-  Haben Sie „Rücken“? Das muss auch ab 50 nicht sein!
+-  Ciclista cai em vala de escoamento após passar mal em Sinop
+-  Усилено се строят сгради, устойчиви на жестоките земетресения в Турция
+-  Así será el Campeonato de España por equipos, la primera prueba del calendario nacional
+-  Haben Sie „Rücken“? Das muss auch ab 50 nicht sein!
+-  Exigen a la Virreina del carnaval paceño 2023 que devuelva la corona de su reinado
+-  نجاح اختبار أول الرقائق الإلكترونية العمانية في معامل تايوان
+-  Conte, l'amico: "Napoli lo stimola molto. Bel duetto con De Laurentiis"
