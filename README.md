@@ -1,11 +1,11 @@
 # Latest News
--  Konsorsium ALPHA Sepakat Membangun Konektivitas Digital Asia Pasifik
--  Sénégal : Le port d'armes interdit dans la période allant du 25 janvier au 14 avril 2024
--  PM Dahal and UML Chair Oli meet
--  La Libertad Asesora: nombraron al hermano del vocero Manuel Adorni en Defensa con un sueldo millonario
--  HLV Trần Công Minh: 'Bóng đá Việt Nam hãy bước tiếp với lòng dũng cảm'
--  Brad Pitt, Quentin Tarantino to reunite on ‘The Movie Critic’ (reports)
--  'Abandon Biden': Democrats turn on president over support for Israel
--  City of Kelowna received $68 million in grant funding in 2023 (Kelowna)
--  6 Zodiak Paling Beruntung Hari Ini, Jumat 2 Februari 2024: Taurus, Leo, Virgo, Libra hingga Pisces
--  US Pop Culture, Politics, and Conspiracies: The Bizarre Claims Around Taylor Swift's Love Story
+-  Konon Elektabilitas Prabowo-Gibran Sudah di Atas 60 Persen, Masa, yang Lain Tidur?
+-  VIDEO: Trời Hà Nội sương mù dày dặc
+-  Bị nói là tỷ phú mà tính toán tiết kiệm không mua máy bay, ông Phạm Nhật Vượng thẳng thừng: "Cái gì đáng thì bao nhiêu cũng đầu tư, nhưng không đáng thì một đồng cũng không tiêu"
+-  Central Valley BizFed Joins Groups Challenging CA’s Climate Impact Reporting Laws
+-  이소라, 전 연인 신동엽 또 만난다…'SNL 코리아5' 호스트 확정
+-  Extraoficial: Jorge Rodríguez se habría reunido con funcionario de EEUU
+-  윤재옥 "野 중대재해법 유예 반대, 운동권 특유의 마키아벨리즘"
+-  "명절을 안전하게" 한전 전북, 전통시장 전력설비 점검
+-  “혹등고래 괴롭힌 대통령” 비난 폭주...지지자들은 “정치탄압”이라며 감싸
+-  New Hampshire school worker is charged with assaulting 7-year-olds, weeks after similar incident
