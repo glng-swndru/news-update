@@ -1,11 +1,11 @@
 # Latest News
--  Red in colour, green in nature
--  Sky Lifesavers: Bulgaria Welcomes Its First Lifesaving Air Ambulance Helicopter
--  Lara Sophie Bothur: Wieso LinkedIn-Influencer sich über Fake-Follower streiten
--  Punters’ tram takeover
--  Lange Schließung im Hallenbad in Bietigheim abgewendet: Bad am Viadukt soll im April wieder öffnen
--  Letters to Editor: South D, roads, columnists
--  «I Am: Celine Dion»: Ντοκιμαντέρ για τη σκληρή μάχη που δίνει με σπάνια ασθένεια η τραγουδίστρια
--  The 10 Most Unique Chipotle Locations on Earth
--  Gözünü kararttı, tetiği çekti. Eski nişanlısına kurşun yağdırdı! Cani kadın ağırlaştırılmış müebbet cezası aldı
--  Box Office: Jókora bukta elé néz az Argylle, de a gyártónak ez nem nagyon fog fájni
+-  Actualité : Un Galaxy A peut en cacher un autre : le Galaxy A15 de Samsung est lui aussi officiel
+-  Pogrešajo 16-letnega Boruta Jana Ružiča iz Brestanice
+-  Kicsoda Borisz Nagyezsgyin, a Putyin hatalmára törő háborúellenes orosz politikus?
+-  Norja | Näin poikkeuksellisen raju Ingunn-myrsky runteli Norjaa: ”Koko rakennuksesta lähti katto”
+-  Pa. mom charged for allegedly leaving child home alone for month with no heat, water
+-  **Caso Pozzolo: deputato sentito dai probiviri**
+-  Unfall bei Steinheim: 56-Jähriger stirbt während der Autofahrt
+-  Trasporti, Dradi: "Un'emozione rivedere i manifesti come fossero nuovi"
+-  Ogres teātris pārtop par neatkarīgu pašvaldības iestādi
+-  Universal Music Group drops Taylor Swift and Drake’s songs from TikTok amid licensing dispute
