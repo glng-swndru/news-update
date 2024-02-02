@@ -1,11 +1,11 @@
 # Latest News
--  Sesks slimības dēļ Kataras rallijā nestartēs
--  CHP'de sular durulmuyor! Belediye Başkanı'ndan partisine eleştiri
--  Markkina-analyysi | Suomessa ruoka­kauppa on omistajilleen kulta­kaivos
--  AMD Zen 5: Echte neue Ryzen-Generation kommt noch dieses Jahr
--  Wintertransfers KKD 2023/24: ADO betaalt ruim 500.000 euro voor aanvoerder Emmen
--  AMD Zen 5: Echte neue Ryzen-Generation kommt noch dieses Jahr
--  الأمم المتحدة تطلب 2.7 مليار دولار لمساعدة اليمن في 2024
--  Семак — о Кубке равноправия: «Турнир достаточно интересный, наша главная цель — качество игры»
--  Na veľtrh v Solúne prišli protestovať stovky poľnohospodárov
--  Weil der Stadt hat Verkehrsberuhigung getestet: Ein Versuch mit ernüchterndem Ergebnis
+-  Ad firm Publicis, drugmaker Hikma settle US opioid cases for $500 million
+-  Manchester mayor hails 'brilliant' Ineos duo and speaks out on Old Trafford future
+-  Bez Kolečka a v Chanelu! Aneta Vignerová se ukázala po dlouhé době na veřejnosti
+-  Taani teadlased leidsid uue võimaluse haruldasi haigusi kiirelt diagnoosida
+-  « On sent un véritable engouement » : les Boxers de Bordeaux remplissent la patinoire de Mériadeck
+-  I lavoratori Hyundai dell’Alabama si uniscono all’UAW
+-  Confira os conteúdos com maior sucesso de monetização na internet
+-  Kövér László rendkívüli parlamenti ülést hívott össze, az akkugyárak és a svéd NATO-csatlakozás is téma lesz
+-  Landwirte erleiden Ertragsverluste durch das Hochwasser
+-  Как се пише: избраник или избранник?
