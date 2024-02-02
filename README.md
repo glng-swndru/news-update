@@ -1,11 +1,11 @@
 # Latest News
--  En død i masseflukt fra migrantmottak i Malaysia
--  Se espera que en marzo La Roca tenga al menos techo
--  Romsey planning: objections for major business park plans in local gap
--  Mordfall Yasemin T.: Zeuge sagt aus: „Ich wollte damit nichts zu tun haben“
--  Romsey driver caught almost double the drink drive limit
--  Äänekoskelaisessa Purasen kahdeksanlapsisessa perheessä on kahdet kaksoset – "Kun ei eilistä muistele ja huomista murehdi, niin hyvä on"
--  Casbrook Home Care prepares to open community hub in Romsey centre
--  Demi Lovato Ungkap Persiapan Pernikahannya: Saya Sangat Bersemangat
--  Securing Our Wheels: A Positive Approach to Vehicle Safety in British Columbia
--  ‘Many will not recover’: Why it’s time to bring on interest rate cuts
+-  Bị cáo Ngọc Trinh khai gì tại tòa?
+-  Golm wächst extrem +++ Nahverkehr ruht +++ Verkehrslärm nimmt zu
+-  Na Přerovsku řádí svrab, první školy musejí dezinfikovat své prostory
+-  "Прости ни, Апостоле, че си под ботуша на окупатора": Пловдив срещу "Альоша"
+-  Животът на 3 зодии ще се промени драматично през 2024 г. заради транзита на Уран
+-  Pārvadātājs: Autobusu pasažieru plūsma no Rīgas uz Krieviju un Baltkrieviju samazinās
+-  "Radini" skal underholde gjestene: - Ikke redd for at det avsløres
+-  Bauern legen A24 bei Wittstock lahm +++ L167 in Neuruppin wird nicht saniert +++ Tipps für die Winterferien in OPR
+-  「富士フイルムクラウド」誕生 AWS・Azureの導入支援など手掛ける新会社
+-  Sestdiena būs nedēļas siltākā diena; nākamnedēļ gaidāms sniegs un sals
