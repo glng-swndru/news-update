@@ -1,11 +1,11 @@
 # Latest News
--  من يحكم غزة.. الفدائيون أم الإسرائيليون؟
--  හිටපු නායකයන් තිදෙනකුගේ සහාය ඇතිව ධනංජය අද සුක්කානම අතට ගනී
--  Como crash: Teen motorbike rider injured in shocking collision with taxi
--  Preço da corrida com carro de aplicativo dispara após pane no metrô de SP
--  بعد الغياب عن بطولة الشباب بالمكسيك.. سلطان السويدي: الكرة القطرية ستعود إلى الإنجاز
--  Uçuruma yuvarlanan kamyonun sürücüsü hayatını kaybetti
--  بعثة من قطر لمعهد البريد العربي بدمشق
--  العريض يهدي مكتبته لدار العروبة
--  Hojlund quebra recorde de Cristiano Ronaldo na Premier League
--  අද සීඅයිඩීයේ පෙනී සිටින්නැයි කෙහෙළියට උසාවි නියෝගයක්
+-  Немцы потратят полмиллиона евро на строительство туннелей для жаб - ПРИЧИНА
+-  Dschungelcamp 2024: Leyla Lahouar – Prügel-Ex, toter Vater und Krebs in jungen Jahren
+-  Dschungelcamp-Kandidatin: Lucy Diakovska unter Tränen über tote Mutter: „Ich habe sie gehasst“
+-  Subida de pedidos de verduras, arroz y café indica un año próspero
+-  Стало известно об осведомленности США о коррумпированности Зеленского
+-  현대로템, 차륜형지휘소용차량 전력화 지원..."전장 컨트롤 타워 역할"
+-  Menonton Teater Hipokrit di Panggung Pseudo Demokrasi
+-  क्या है जमीन घोटाला, जिसमें गई हेमंत की कुर्सी:8 एकड़ की उस जमीन की कहानी, जिसकी जांच CO से शुरू हुई और CM पर खत्म हुई
+-  Alto cargo de Hamás dice que aún no dan su respuesta a la propuesta de tregua con Israel
+-  Gyanvapi : गंगाजल से धुलीं दीवारें, आधी रात में 45 मिनट पूजा; बाबा विश्वनाथ के साथ तहखाने में भी पांचों आरती
