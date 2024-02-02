@@ -1,11 +1,11 @@
 # Latest News
--  Czy 2 lutego jest dyspensa? Kościół przekazał zalecenia dotyczące Święta Ofiarowania Pańskiego
--  Finska strahuje od Rusije, ali i od Trumpa
--  Śmiertelny wypadek na A1. Sebastian M. został zwolniony z aresztu w Dubaju
--  Decorative lighting in Huntly town centre removed over safety fears
--  A Hamilton–Ferrari-románc bejelentése megrengette még a világsajtót is
--  Experiență VR în cadrul expoziţiei "Universul lui Salvador Dalí" de la București. Ce au pregătit organizatorii
--  Sivas'ta ilk, kilosu 150 liradan satışa sunuluyor
--  Meta第四季度业绩大超预期 宣布首次派息提振股票大涨15%！
--  42 kişinin can verdiği binada nehir kumu kullanılmış
--  En venta la casa más cara de València
+-  Lincoln becomes Canada’s number one dog breed
+-  Nova iznenađenja na web stranici princa Williama i Kate Middleton
+-  Bilinçsiz kullanılan böcek ilaçları can almaya devam ediyor
+-  Gartentipp der Woche - Stachelritter willkommen: Wie man den Garten igelfit macht
+-  タリウム事件の宮本被告の捜査終結 不動産の不正取得容疑で書類送検
+-  Tacora, still in creditor protection, hints new lease on life will be announced soon
+-  কী দেখবন কোথায় দেখবেন
+-  潰れた重文住宅、北前船で栄えた黒瓦の町並み「景観残すのは難しい」
+-  Innovent Forum 2024: Η μεγαλύτερη εκδήλωση Επιστήμης & Τεχνολογίας έρχεται στις 9 και 10 Φεβρουαρίου
+-  검찰, '23명 사상' 금천 가스 누출 사고 관계자 8명 불구속 기소
