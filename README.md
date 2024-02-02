@@ -1,11 +1,11 @@
 # Latest News
--  KI-Update kompakt: Deepfakes, KI-Waffen, Googles KI-Pläne, Jugendschutz
--  केंद्र ने आंध्र प्रदेश को रेलवे के लिए 9,138 करोड़, तेलंगाना को 5,071 करोड़ रुपये आवंटित किए
--  Спортивный психолог Плехова прокомментировала первый выход в свет Валиевой после суда
--  Report DLA Piper: 2023 anno record per sanzioni ai sensi del GDPR, pari a 1,78 miliardi
--  Minor league baseball player who spit on Delta passengers now facing federal charges, prosecutors say
--  Klęska suszy w Hiszpanii. Katalonia racjonuje wodę
--  Bilanz-Experte: René Benkos Signa: "Die haben ihr Vermögen hochbewertet"
--  Sparen angesagt: Die „goldenen Jahre“ sind auch in Täferrot vorbei
--  Букмекери зробили новий прогноз щодо Євробачення-2024
--  США перебросили на Гуам группу бомбардировщиков на фоне испытания ракеты в КНДР
+-  Muhtarların beklediği artış geldi!
+-  Early cuts unlikely given GDP results
+-  Egy kegyetlen gyakorlat közös a nagy autógyárakban
+-  Ivošević o posječenom boru na Gripama: ‘Kako SAD postupa prema teroristima, i mi ćemo tako‘. Prozvao je i policiju...
+-  Mannen kopen shag en bier in Leeuwarden met gestolen pinpas, vrouw ziet dat op politiebureau
+-  Diese EM-Quartiere sind in NRW: Mbappe schläft in Bad Lippspringe, Ronaldo in Harsewinkel
+-  Preços de bens de capital caem 0,27% no IPP de dezembro; bens de consumo sobem 0,31%
+-  Adalet Peşinde Aileleri: Depremde ölenlerin sorumlusunu biliyoruz
+-  Lula diz que PF não 'persegue' ninguém e afirma que não interfere nos ministérios
+-  Mercato: l’international espagnol Bryan Zaragoza rejoint le Bayern Munich
