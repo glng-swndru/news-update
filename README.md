@@ -1,11 +1,11 @@
 # Latest News
--  YouTube Premium a Music mají už přes 100 milionů uživatelů
--  Izbornik Zlatko Dalić bio u rijetkom izlasku sa suprugom Davorkom u Lisinskom
--  Stora mängder narkotika hittades – tre åtalas
--  ドコモの通信品質、9割以上の対策が完了 「d払い」アプリを品質改善に活用
--  एउटा उत्कृष्ट कोरियन सिनेमा, हेर्नुहोस् युट्युबमा
--  Nach Kuss: Hat "Die Bachelors"-Katja Gefühle für Dennis?
--  МАИР: заболеваемость раком к 2050 году может вырасти на 77%
--  Финский музей «Атенеум» указал Репина как украинца из-за происхождения предков
--  Pettson och Findus flyttar in i Hembygdsparken
--  “Verkrachter”: Jude Bellingham valt even uit zijn rol nadat hij forse tackle op landgenoot Greenwood inzet
+-  Colère des agriculteurs : l’exécutif change de pied et glorifie la souveraineté nationale
+-  The Health System Needs to Do More to Stop Suicide
+-  רבע ראשון: הפועל תל אביב - הפועל ב"ש 0:0
+-  Come l’Intelligenza artificiale sta cambiando il modo di lavorare
+-  The One Big Issue With MARA Stock (Hint: It’s Not Bitcoin Prices)
+-  Counting Down the Most Influential Teams in NFL History: Top 10 Revealed
+-  Home Energy Management System Market: A Surge to $14.73 Billion by 2031 with a 20.6% CAGR
+-  Copa Davis: Guillén abre la serie ante Egipto, Andrade será la dupla de Hidalgo
+-  L’arte ai tempi della realtà virtuale
+-  So v ligi NBA opeharili Luko Dončića?
