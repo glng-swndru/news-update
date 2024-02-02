@@ -1,11 +1,11 @@
 # Latest News
--  國內汽油價格下周不調整 柴油估降0.1元
--  Pollisum Engineering Surpasses 2023 Financial Goals, Rewards Team with Overseas Incentive Trip
--  Польша уменьшила запланированные расходы на оборону
--  张尧浠：APD及初请前瞻非农利好、黄金周尾仍有看涨
--  【節分】一足早く園児が元気に鬼退治! 「怖かったけど楽しく豆まきできた」 地獄谷から来た“湯鬼神”と対決―実は無病息災や開運願う『登別温泉の守り神』
--  وفيات الجمعة .. 2 / 2 / 2024
--  4時間半燃え浦河町“住宅全焼”男女2人の遺体発見 住人の70代夫婦と連絡取れず―札幌でもアパートの1室焼ける 換気扇付近焼け激しい…男性意識不明の重体
--  India U19 vs Nepal U19 World Cup 2024 Live Streaming For Free: When, Where and How To Watch IND Under 19 Vs Nepal Under 19 Super Six Match Live Telecast On Mobile APPS, TV And Laptop?
--  El tiempo en Ricla: previsión meteorológica para hoy, viernes 2 de febrero
--  Chỉ có thể là Trung Quốc: Làm xe không người lái 5 năm sau Mỹ nhưng hiện đã triển khai với quy mô ngang bằng, khiến phương Tây khiếp sợ
+-  Cứu sống hành khách máy bay bằng Apple Watch
+-  Governo instala centro emergencial para monitorar casos de dengue
+-  «Станет чемпионом мира в 18 лет». В команде Мэйвезера назвали следующую суперзвезду бокса
+-  Kristalina Georgiewa: IWF-Chefin warnt vor zu vielen Zugeständnissen an Landwirte
+-  PRD se deslinda de presunto financiamiento ilícito de AMLO
+-  North Korea's Kim stresses need to strengthen navy on shipyard visit
+-  রাজধানীতে বিশ্ববিদ্যালয় শিক্ষার্থীর লাশ উদ্ধার
+-  Balas Dendam Kematian 3 Tentara AS, Bos Pentagon Janjikan Respons Bertingkat
+-  NIKO-SEM: AI PCs, NEVs to Shine in 2024
+-  Experience the awe-inspiring showcase by INFiLED at ISE2024
