@@ -1,11 +1,11 @@
 # Latest News
--  'This is Britain not the stone age' - inside the lives of the people coping with poverty
--  À Quimper, la science-fiction envahit la médiathèque et l e Katorza
--  هذا ما يخسره لبنان اقتصاديا نتيجة الحرب في الجنوب
--  Birmingham's vulnerable kids and families face massive shock as £112 million of cuts lined up
--  Birmingham's burglary hotspots as police figures reveal area where crooks strike at least once a day
--  Interview mit Heinz Bude: «Nicht Interessen, Wünsche treiben die Menschen an»
--  I found a knife and drug needles at a city park families are sick of complaining about
--  Biden, Ürdün’de ölen 3 ABD askeri için düzenlenen törene katıldı
--  Die Wahrheit über Lolita - 3. Februar 2024 um 06:30 Uhr
--  Отложиха делото срещу Тръмп за опит за изборни измами
+-  Emekliler artık o faturayı ödemeyecek 'Meclis'te kabul edildi'
+-  Park halindeki otomobil yanarak kullanılamaz hale geldi
+-  BMKG: Waspada Hujan, Petir, Angin Kencang di Banten
+-  ‘Terugkeren naar VVV omdat je pas overleden vader dat mooi had gevonden: Delano van Crooij is de held van de afgelopen transferwindow’
+-  Estos son los festivos a los que tienes derecho este 2024
+-  Umalo da im plaža dođe glave: Pet delfina vodilo bitku za život, jedva su ih spasili
+-  Температурите се повишават, идва и ветровито време
+-  Marozsán kikapott, de Fucsovics bravúrgyőzelmével él a remény a továbbjutásra a Davis-kupában
+-  Febrero loco arranca en Girona
+-  فوز وتعادل في افتتاحية المباريات التمهيدية لكاس حضرموت الثامنة لأندية الوادي
