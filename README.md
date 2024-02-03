@@ -1,11 +1,11 @@
 # Latest News
--  NCAA Hits Ex-Alabama Baseball Coach With 5-Year Ban
--  পদ্মার চর থেকে যেভাবে উদ্ধার হলো যুবকের লাশের ৯ টুকরা
--  Saadet Partisi aday tanıtım toplantısı başlıyor! Ankara'da büyük heyecan
--  Das Café im Sulinger „Taff“ öffnet künftig länger
--  Dituntun Ameena, Atta Halilintar Belajar Jalan usai Operasi
--  Áudio imersivo Bose: Filmes e música mais reais do que nunca com nova tecnologia
--  Finucci esplora conflitti invisibili nel libro "Operazione satellite"
--  Sakaryaspor 3 maç sonra kazandı
--  Doctor Slump Season 1 Episode 4 Streaming: How to Watch & Stream Online
--  Los seis platos que son el orgullo de Santiago: todo compostelano debe haberlos probado
+-  How Nosh’s AI-Powered Robot Chefs Are All Set To Transform Indian Kitchens
+-  सहारनपुर में पुलिस मुठभेड़ में बदमाश गिरफ्तार, 18 से ज्यादा मामले हैं दर्ज
+-  FEATURE: 1,000-km nature trek helping Tohoku once again hit its stride
+-  Evropa ključa! Borelj javlja: Pripremite se za rat! Putin dobio šokantne vesti iz Unije, Moskva neće sedeti skrštenih ruku!
+-  DOKTORKA BISERKA UPOZORAVA- AKO OVO OSEĆATE DUŽE OD 4 DANA, ODMAH LEKARA: Sve više obolelih, a tek se očekuje novi udar
+-  Elektronický systém přihlášek na školy funguje. Žáci odevzdali stovky přihlášek
+-  Държавата със заявка за спиране на вдигането на таксите от мобилните оператори
+-  Bharat Ratna for LK Advani: A timeline of BJP stalwart's illustrious political career
+-  Rapsodija ukusa u "MasterChefu", supa od čičoke sa pireom od kruške
+-  SUDAR BOMBARDERA: Kazahstanac deluje fokusirano!
