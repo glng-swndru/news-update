@@ -1,11 +1,11 @@
 # Latest News
--  Katlanabilir iPad netleşmeye başladı: iPad Mini rafa kalkabilir
--  Златно мляко – ползи и рецепта
--  "Cri de détresse", "ras-le-bol général", "la confiance n'exclut pas le contrôle" : la colère des agriculteurs vue par les parlementaires de l'Yonne
--  DEBATT: Jättebra argument för att låta unga åka buss gratis
--  Interview. Colère des agriculteurs : « Il faut changer de modèle agricole »
--  UMRO POZNATI VODITELJ Izgubio bitku u 50. godini života
--  Begåvningsreserven – en urballad lektion i artificiell kreativitet
--  Приска Цайзель: «В Михайловском театре я танцую больше, чем когда-либо в жизни»
--  Pogačice sa kiselim mlekom: Pufnasto testo koje se topi u ustima
--  Pillantás az idők jeleire
+-  Separatisti u Moldaviji traže više ruskog plina
+-  За нуждата от по-добро детско здравеопазване
+-  Čini se da je stvar sigurna: Zelenski informirao Bijelu kuću da planira radikalan potez u vlastitim redovima
+-  Need on põhjused, miks sind võib vaevata hommikul peavalu
+-  Saturday's Scottish Premiership predictions including Aberdeen vs. Celtic
+-  Italijanu mednarodni turnir v Novi Gorici
+-  Oddaj krew i zostań potencjalnym dawcą szpiku!
+-  Filho da atriz fala de gravação de vídeo erótico com a mãe: "Nojo"
+-  Haas and new boss Komatsu expecting to start 2024 season at the back
+-  Saim Oktay hayatını kaybetti
