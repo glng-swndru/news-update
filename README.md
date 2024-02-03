@@ -1,11 +1,11 @@
 # Latest News
--  مزارعون: طرق زراعية بالطفيلة تعاني من التصدعات واتساع الحفر
--  صحة غزة: الاحتلال الإسرائيلي ارتكب 12 مجزرة راح ضحيتها 107 شهداء
--  أسعار الذهب عالمياً ترتفع بأسبوع
--  TCMB'deki görev değişimi piyasaları nasıl etkileyecek?
--  Admiral 2. Liga - Amstetten feiert Schützenfest gegen Wiener Sportclub
--  Большунов выиграл 16-ю гонку подряд на Кубке России
--  الإمارات تخصص 5 ملايين دولار لدعم جهود الأونروا في غزة
--  Gebze’de büyük fabrika yangını
--  Kći Marina Miletića postigla veliki uspjeh, pozirali zajedno: 'Srce tatino, čestitam'
--  Mỹ chỉ trích ý tưởng của Nga về khu phi quân sự ở Ukraine
+-  Wakapolri Berkunjung ke Destinasi Wisata Pulau Penyengat, Warga Keluhkan Kekurangan Air Bersih
+-  João Paulo perde força dentro e fora do vestiário do Santos após rebaixamento
+-  Gebze’de boya fabrikasında yangın. Dumanlar gökyüzünü kapladı
+-  El Gobierno designó interventores en los medios públicos
+-  Промяна в контролите на Славия
+-  Фермерите в Гърция бесни на премиера Мицотакис
+-  Медведев призвал поддерживать несистемных оппозиционных политиков на Западе
+-  Παπαθανάσης: Μέσα στο μήνα ανακοινώσεις για μικροδάνεια έως 25.000 ευρώ για τους αγρότες
+-  Zabranjena ljubav na tronu: 'Ili ću oženiti Sonju, ili se ne ženim'
+-  37 tahanan lolos sudah ditahan semula
