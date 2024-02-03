@@ -1,11 +1,11 @@
 # Latest News
--  2024 Point in Time Counts Reveal Needs of the Homeless
--  ماكرون يندد بمقتل وإصابة 5 فرنسيين فى غارة روسية بأوكرانيا
--  Un hombre entró a un apartamento con cuchillo y destornillador, y atacó a dos mujeres
--  Brest Métropole programme 10 M€ pour le nouveau stade du SB29
--  Belajar Investasi, Penggawa Timnas Indonesia U-20 Belajar di Sekolah Pasar Modal
--  TOP 10 | TIM BLUZI MOEANALÜÜS: EMA gala punasel vaibal käinute rõivastus peegeldab ühiskonna valusaid teemasid
--  Nina Badrić otkrila da za Valentinovo dolazi u BiH
--  ‘Pokupec je od mene tražila da lažno svjedočim kako sam Severini nosio opijate. Sve sam rekao policiji‘
--  Ardèche. Laurent Wauquiez aux agriculteurs : « Vous êtes plus contrôlés que les trafiquants de drogue »
--  Ovo je pravo ime Seke Aleksić
+-  Rahu Kaal, Yamaganda Kaal, Gulika Kaal and Varjyam Kaal (3 February 2024) in Mumbai, Delhi and other cities
+-  ’Ik ga mij niet meer aan een man aanpassen’
+-  Počinje najbolji party u gradu - pratite uživo dodjelu nagrada Rock&Off
+-  Elche - Burgos CF, en directo | LaLiga HyperMotion
+-  La Ville de Saint-Florentin ne touchera pas à la fiscalité en 2024
+-  Nistkasten: Fünf Tipps, wie und wo Sie Vogelhäuser am besten aufhängen
+-  Brad Pitt y Quentin Tarantino se unen nuevamente para ‘The Movie Critic’ #2Feb
+-  Risco de onda de calor ameaça Jogos Olímpicos de Paris 2024
+-  Risks and rewards in two impressive new exhibitions to see this weekend
+-  Президентът Радев отвърна на премиера Денков за въздушната линейка
