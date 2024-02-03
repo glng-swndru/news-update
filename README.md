@@ -1,11 +1,11 @@
 # Latest News
--  Разкриха интерес към четирима от Хебър
--  Минобороны сообщило об улучшении позиций на двух направлениях
--  Manifiesto íntegro de los historiadores en defensa de la Diada de Mallorca el 31 de Diciembre
--  Amazon says the 'magic words.' They could spur a $100 billion market-cap boost. - MarketWatch
--  Check Point Infinity AI Copilot helpt met security
--  Ex-funcionário da CIA é condenado a 40 anos de prisão pelo maior vazamento na história da agência
--  Potato Flake Market Size to Witness Growth Acceleration During 2024-2030 | PepsiCo, Lutosa (McCain), Lamb Weston, Aviko Rixona, Dali Group
--  Turist vizesiyle geldi, yerde bulduğu kredi kartını patlattı!
--  Organitzen una concentració davant l'Ajuntament de Ciutadella per a proclamar 'Qui estima la llengua la protegeix'
--  ASTAF ucap takziah kepada keluarga legenda takraw negara
+-  Un crâne de mammouth mis aux enchères à Évreux
+-  Stellantis e le "fabbriche a rischio": cosa chiede l'azienda e il nuovo scontro col governo
+-  Mercedes F1 : Wolff a des options et n'exclut pas de l'audace pour remplacer Hamilton en 2025
+-  Unfall in Stuttgart: Auto und Taxi kollidieren – Polizei sucht Zeugen
+-  Kỳ phùng địch thủ của tuyển Việt Nam làm nên lịch sử, lần đầu lọt vào bán kết Asian Cup
+-  Lanzamiento local: llegaron los imponentes nuevos BMW Serie 5 y X2 100% eléctricos
+-  ร้านขายเสื้อจีนเริ่มคึกคัก ชุดกี่เพ้า เสื้อลายมังกรขายดี รับตรุษจีนปากน้ำโพ 67
+-  2 Reasons Why February May Be a Difficult Month on Wall Street
+-  Calhoun helps students in need with Student Emergency Grant
+-  Governo: Meloni domani a Catania, lunedì a Tokyo poi Abruzzo mercoledì (2)
