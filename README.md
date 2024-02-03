@@ -1,11 +1,11 @@
 # Latest News
--  Ouro fecha em queda, ante dólar forte no exterior, mas mantém nível de US$ 2 mil
--  Briti kohus mõistis oma eakaaslase tapnud noored sadistid eluks ajaks vangi
--  IMAO JE NEKOLIKO TEŠKIH SAOBRAĆAJKI, POSLE JEDNE JE OSTAO INVALID Beban iz &quot;Porodičnog blaga&quot; otkrio tužnu istinu o porodičnoj tragediji
--  Türkmenistanyň Ministrler Kabinetiniň mejlisi
--  Esport - League of Legends - Striker : « C'est à nous de rester sérieux »
--  Like a Dragon: Infinite Wealth Hits 1 Million Players, Announces New Freebies to Celebrate
--  Accident grav în Prahova. Au fost implicate trei mașini. O persoană este în stop cardio-respirator | FOTO
--  Bro, Take the L! David Walsh Tries Picking a Fight With Matt Walsh and WOOF, Someone Better Call 9-1-1
--  De-stress your life! Top habits for natural wellbeing and peace
--  Not-Dreigestirn: Ortsgemeinschaft Dansweiler tritt aus Festkomitee Pulheimer Karneval aus
+-  Гол Лукмана в матче с Анголой вывел Нигерию в полуфинал Кубка Африки
+-  MB Başkanı Hafize Gaye Erkan görevden affını istedi
+-  ז'לגיריס הפתיעה את פנאתינייקוס עם 68:80, 73:79 לאנדולו על מילאנו
+-  ジェフ・ベゾスが起業家に届けた言葉 - 起業参謀の戦略書
+-  Internationaler Gerichtshof lässt Klage der Ukraine gegen Russland weitgehend zu
+-  Merkez Bankası Başkanı Hafize Gaye Erkan istifa etti!
+-  Gigantikus mennyiségű fát osztanak ki
+-  Qué pasará con el dólar y en qué invertir, según Gustavo Neffa
+-  Radonjic no entra en la lista por problemas burocráticos
+-  Тривалість життя собаки залежить від її морди: вчені знайшли сумну закономірність
