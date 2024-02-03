@@ -1,11 +1,11 @@
 # Latest News
--  NEW USC POLL SHOWS 71% SUPPORT TO KEEP HISTORIC LAW PREVENTING TOXIC OIL DRILLING NEAR SCHOOLS, HOSPITALS AND NEIGHBORHOODS
--  Regional students are returning to school, but getting there is becoming a problem
--  Almanya'da ulaşım sektöründe uyarı grevleri devam ediyor
--  Russian aviation now less active over Sea of Azov, Ukraine says
--  Το απλό τρικ της Σάρα Τζέσικα Πάρκερ είναι το μυστικό για ενδιαφέρουσες casual εμφανίσεις
--  Unimed oferece curso gratuito para cuidador de idosos: saiba como se inscrever
--  Här öppnar fritidsgården i nya fräscha lokaler: ”Här kommer vi att trivas”
--  Szegeden szűrték ki a legtöbb SMA-s beteget az országban
--  Дойде първата въздушна линейка, ще спасява и туристи в планината (Видео)
--  Rocky’s Apollo Creed, Carl Weathers, dead at 76
+-  Devotos acompañaron a La Candelaria en su día y le pidieron paz para Venezuela (+Fotos)
+-  VIDEO Romantika nakon utakmice na tribinama Gripa
+-  Carcinoembryonic Antigen (CEA) Market 2024 [Latest Trends]: Analysis Future Opportunity and Demand Forecast Year 2030
+-  „Karneval in Köln“: Hendrik Wüst kommt als „Insta-Präsident“ zu Karnevalssitzung
+-  Muere Carl Weathers, intérprete de Apollo Creed en 'Rocky'; esto sabemos
+-  The Fearsome Tanks That Fought Saddam Hussein May Soon Come for Vladimir Putin
+-  Live: Στρασβούργο - Παρί Σεν Ζερμέν
+-  Dozens of new Kamloops bus shelters to be installed through city's multi-year plan (Kamloops)
+-  Brasil bate recorde na produção de petróleo e gás em 2023, com 4,344 mi boe/d
+-  Sakaryaspor 3 maç sonra galip
