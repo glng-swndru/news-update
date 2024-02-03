@@ -1,11 +1,11 @@
 # Latest News
--  संक्रमणकालीन न्यायमा सर्वोच्चको छलाङ
--  Do wciągnięcia USA w konflikt zbrojny Chiny nie muszą atakować Tajwanu. Wystarczy "kwarantanna"
--  Eiskanal doch in Cortina, Dornauer fordert Berufungs-Verzicht der Tiwag
--  Kā čekisti vajāja rakstniekus, kuru vienīgais noziegums - publicēja savus darbus Rietumos
--  Merkez Bankası Başkanı Fatih Karahan oldu
--  Historische Wahl soll politische Krise in Nordirland beenden
--  Chef der Mövenpick-Häuser am Flughafen Stuttgart: Warum gestrandete Flugpassagiere für Hotels eine Herausforderung sind
--  Lanserhof-Chefin: „Bis zur Eröffnung war es eine wilde Zeit“
--  Hakkari'de deprem! Çevre iller de sarsıldı
--  Cinci dintre pakistanezii acuzați că au ucis un afgan în Timișoara, apoi au încercat să fugă din România au fost arestați
+-  'This is Britain not the stone age' - inside the lives of the people coping with poverty
+-  À Quimper, la science-fiction envahit la médiathèque et l e Katorza
+-  هذا ما يخسره لبنان اقتصاديا نتيجة الحرب في الجنوب
+-  Birmingham's vulnerable kids and families face massive shock as £112 million of cuts lined up
+-  Birmingham's burglary hotspots as police figures reveal area where crooks strike at least once a day
+-  Interview mit Heinz Bude: «Nicht Interessen, Wünsche treiben die Menschen an»
+-  I found a knife and drug needles at a city park families are sick of complaining about
+-  Biden, Ürdün’de ölen 3 ABD askeri için düzenlenen törene katıldı
+-  Die Wahrheit über Lolita - 3. Februar 2024 um 06:30 Uhr
+-  Отложиха делото срещу Тръмп за опит за изборни измами
