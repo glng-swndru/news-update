@@ -1,11 +1,11 @@
 # Latest News
--  UŽIVO Srpski dubl pod imperativom pobede
--  Labor aims stage 3 tax pitch at Coalition voters, as Liberals amp up fight on integrity
--  Perché il Prop Trading sta attirando i trader più giovani
--  Ahok Tinggalkan Gaji Miliaran Mundur dari Komisaris Utama Pertamina Demi Ganjar
--  (여자)아이들 완전체 출격…프로듀서 소연 고충 고백 (아형)
--  Dambakan Pemimpin Amanah, Alumni Unair Deklarasi Dukung AMIN
--  Penticton's crime rate trending downward: RCMP
--  Das Bezirksmusikerfest wird heuer in Dinkelscherben gefeiert
--  India wil steenkool blijven verbranden en lanceert beleid voor afvangen van groeiende uitstoot
--  Vodič zrazil mladú chodkyňu bez reflexných prvkov: Brutálnu zrážku zázrakom prežila
+-  Mulher é socorrida após ser prensada por carro contra portão no Médio Norte; ex-companheiro preso
+-  De rastos com rumores de traição, sofre recaída
+-  Preokret u sudskoj bitci između Angeline i Brada: 'On se borio za ovo, jako su ga podcijenili...'
+-  Electioneering in Sindh – III
+-  Incar Kemenagan Sebelum Libur Pemilu, Satria Muda Ogah Remehkan Bima Perkasa
+-  Complete list of Bharat Ratna Award winners from 1954-2024
+-  Facebook a Instagram ochrání děti před predátory. Meta omezí, kteří dospělí jim budou moci psát
+-  Köpeğe çarpmamak için manevra yapan araç ağaca çarptı
+-  VELIKA TUGA ZA SRPSKI FUDBAL! Preminuo istaknuti sportski radnik, jedan od najzaslužnijih za izgradnju čuvenog stadiona!
+-  Dunfermline v Greenock Morton: SPFL Championship match preview
