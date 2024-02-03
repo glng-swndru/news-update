@@ -1,11 +1,11 @@
 # Latest News
--  Cud podczas WOŚP. Policjant Artur uratował wolontariuszkę. Niesłychane, jak tego dokonał!
--  Зеленський зустрівся з діючим головою ОБСЄ
--  Union in der Haushaltsdebatte: Merz’ Spiel mit dem Verderben
--  Potíže eDokladů odvrátily pozornost od auditu o čachrech na SÚKL, míní poradce
--  Sisu 2024: matrícula de selecionados começa nesta sexta-feira
--  Đorđe Milosavljević o novoj seriji: Među osumnjičenima su glumački prvaci beogradskog pozorišta, dramska spisateljica, reditelj i upravnik…
--  Classic Bethesda Game Is Now Available for Free
--  BYU basketball: Revamped West Virginia a big challenge for No. 22 Cougs
--  ‘NSC twijfelt over kabinet met PVV’
--  ICJ potrdil svojo pristojnost v večjem delu ukrajinske tožbe proti Rusiji
+-  2024 Point in Time Counts Reveal Needs of the Homeless
+-  ماكرون يندد بمقتل وإصابة 5 فرنسيين فى غارة روسية بأوكرانيا
+-  Un hombre entró a un apartamento con cuchillo y destornillador, y atacó a dos mujeres
+-  Brest Métropole programme 10 M€ pour le nouveau stade du SB29
+-  Belajar Investasi, Penggawa Timnas Indonesia U-20 Belajar di Sekolah Pasar Modal
+-  TOP 10 | TIM BLUZI MOEANALÜÜS: EMA gala punasel vaibal käinute rõivastus peegeldab ühiskonna valusaid teemasid
+-  Nina Badrić otkrila da za Valentinovo dolazi u BiH
+-  ‘Pokupec je od mene tražila da lažno svjedočim kako sam Severini nosio opijate. Sve sam rekao policiji‘
+-  Ardèche. Laurent Wauquiez aux agriculteurs : « Vous êtes plus contrôlés que les trafiquants de drogue »
+-  Ovo je pravo ime Seke Aleksić
