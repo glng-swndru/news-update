@@ -1,11 +1,11 @@
 # Latest News
--  Nietrzeźwy „Pan-Stop” przeprowadzał uczniów. Będzie odpowiadał przed sądem
--  Precio de la gasolina HOY 2 de febrero de 2024; Magna cierra semana en MÍNIMO de $12.00
--  Nach Kritik und Boykott-Aufrufen: Edeka-Betreiber entschuldigt sich für Anti-Nazi-Spruch
--  Apple CEO promises AI innovation
--  Nietrzeźwy „Pan-Stop” przeprowadzał uczniów. Będzie odpowiadał przed sądem
--  Filipinos should shun Mindanao secession calls
--  Kapıkule’de kaçakçılık operasyonu: 7 şüpheli tutuklandı
--  Filmkritik: Kuriose Vermarktung: Die "Mean Girls" singen, aber Hollywood schweigt dazu
--  11 movies to check out on Hulu this February
--  11 movies to check out on Hulu this February
+-  El Ibex 35 salva la semana con signo positivo, por encima de los 10.000 puntos y gracias a los grandes bancos
+-  Тежка катастрофа на пътя Пловдив – Хасково
+-  PH products showcased in HK expo
+-  60-vuotias | Moni tietää, miltä Nightwish tai Children of Bodom kuulostaa, mutta harva tietää että niiden soundi on Mikko Karmilan käsialaa
+-  İYİ Parti'de Peş Peşe İstifa!
+-  Whisky, cognac, vin rouge et mois de février
+-  Eine Woche nach Rekord-Demo in Schwerte: Nele Blase (26) im Interview: „Waren fassungslos“
+-  Arnar Gunnlaugs: Þarf að vera fullkomið fyrir okkur
+-  Grumpy Delta customers will get new benefits with SkyMiles credit cards, but the changes come with a cost
+-  Schira: "Il 31 dicembre, a mezzanotte, ho avuto una soffiata di mercato sul Napoli"
