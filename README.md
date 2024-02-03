@@ -1,11 +1,11 @@
 # Latest News
--  Água Santa aposta no Canindé para se recuperar e desafia Mirassol no Paulistão
--  Masimo Freedom Watch Challenges Apple Dominance in Smartwatch Market
--  Năm 2024: Ngành xi măng kỳ vọng sẽ khởi sắc trở lại “đường băng” tăng trưởng
--  Verso Torino-Salernitana: Tameze in difesa. Ricci e Djidji vanno in panchina
--  中国最高性能の分光望遠鏡 2026年に青海省で完成
--  Israel pounds Gaza as fears grow of push into Rafah
--  Wartehalle im Gare de Lyon: Messerangreifer verletzt drei Menschen in Pariser Bahnhof
--  TOKİ hak sahiplerini 430 bin lira dolandıran şüpheli tutuklandı
--  Galaxy S24, Android Auto ile sorunlar yaşatıyor: İşte Samsung'un açıklaması
--  "Top Gun: Maverick"- & "Wo die Lüge hinfällt"-Star als falscher Auftragskiller: Trailer zur 4-Sterne-Thriller-Comedy "Hit Man"
+-  مزارعون: طرق زراعية بالطفيلة تعاني من التصدعات واتساع الحفر
+-  صحة غزة: الاحتلال الإسرائيلي ارتكب 12 مجزرة راح ضحيتها 107 شهداء
+-  أسعار الذهب عالمياً ترتفع بأسبوع
+-  TCMB'deki görev değişimi piyasaları nasıl etkileyecek?
+-  Admiral 2. Liga - Amstetten feiert Schützenfest gegen Wiener Sportclub
+-  Большунов выиграл 16-ю гонку подряд на Кубке России
+-  الإمارات تخصص 5 ملايين دولار لدعم جهود الأونروا في غزة
+-  Gebze’de büyük fabrika yangını
+-  Kći Marina Miletića postigla veliki uspjeh, pozirali zajedno: 'Srce tatino, čestitam'
+-  Mỹ chỉ trích ý tưởng của Nga về khu phi quân sự ở Ukraine
