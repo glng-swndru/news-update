@@ -1,11 +1,11 @@
 # Latest News
--  沖縄セルラー電話が感謝祭 eスポーツやARゲームなど14種類 2月11・12日那覇の本社ビル - 沖縄タイムス＋プラス ニュース
--  Заря – Ягеллония – 2:2. Спарринг в Турции. Видео голов и обзор матча
--  Piramitlerin restorasyonuna büyük tepki
--  Peeling the lid off the Glasgow subway
--  Catching up on Curb Your Enthusiasm
--  Soccer-Aurier moves from Nottingham Forest to Galatasaray
--  NEXT Weather: 6 p.m. report on Feb. 2, 2024
--  Thưởng Tết ở các bệnh viện thế nào?
--  Rekomendasi Tiket Pesawat Murah Banjarmasin-Surabaya, Naik Super Air Jet Mulai Rp 910 Ribuan
--  Texas ACLU finds most schools in state still have discriminatory dress codes
+-  Fears over online 'gifting' after claims it may have been contributory factor in a suicide
+-  '농구 황제' 조던이 챔피언 결정전서 신었던 그 농구화 세트, 107억 원에 팔렸다
+-  Poco X6 Neo Disebut akan Diluncurkan di India Bulan Depan
+-  BBB | Alane planeja colocar "vilã de Malhação" no Monstro
+-  Setelah Unggah Video Nangis di IG, Lolly Murka Dituding Tak Punya Kerjaan karena Sering Main TikTok
+-  El Gran Combo, Niche y otros grandes de la salsa arribaron a Lima para concierto
+-  Weather Report: बारिश के बाद आसमान साफ, पॉल्यूशन से मिली राहत, सर्दी के बीच आज फिर होगी कुदरती बौछार!
+-  India key to Apple's not-so-secret sauce
+-  Scheffler finishes strong for a 64. He shares Pebble Beach lead with Aberg, Detry
+-  Naughty Dog’s Original Plans for The Last of Us Part 2 Revealed: An Open World Inspired by Bloodborne
