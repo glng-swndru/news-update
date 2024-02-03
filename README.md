@@ -1,11 +1,11 @@
 # Latest News
--  الحاضري: تبييض البعض لجرائم الحوثي سقوط اخلاقي
--  Μαρία Μενούνος: Η νέα φωτογραφία με την μπέμπα της
--  Chile impõe estado de exceção após dez mortos em incêndios florestais
--  Verkehr in Hagen: Hagen wartet acht Monate lang auf eine Blitz-Lösung
--  Cendrine Dominguez se confie sur le drame qui l’a poussée à arrêter la télévision
--  Broward superintendent discusses the options as district explores closing schools
--  Partidos de hoy, sábado 3 de febrero del 2024: programación, canales TV y dónde ver fútbol en vivo
--  All of Loblaw-less Labrador cut out as Manulife makes exclusive deal with retail giant
--  Иран — Япония: где смотреть трансляцию матча Кубка Азии
--  ゲレンデで鬼退治！でも…最後は仲直りの証に記念撮影 季節のイベントを満喫 静岡・富士市
+-  Novi sustav cestarina: 'Mobilni timovi s čitačima uređaja lovit će neplatiše po autocestama'
+-  Дизайн iPhone 16 может разочаровать ожидающих — вот почему
+-  Τιμολόγια ρεύματος: «Βουτιά» στις τιμές – Ενίσχυση του ανταγωνισμού «βλέπει» το ΥΠΕΝ
+-  В посольстве Азербайджана в Туркменистане создан избирательный участок
+-  Sinemanın Usta Yapımcısı Üstün Karabol Yaşamını Yitirdi
+-  Bitcoin-Absturz auf 22.000 Dollar? Investoren und Experten sind gespalten!
+-  GOTOVO! Zvezda prodala Mijatovića za rekordnu sumu!
+-  На Сумщине запрещено движение гражданского транспорта на некоторых участках дорог в пределах 5-километровой зоны от границы, - ОВА. СПИСОК
+-  Vidović: Fokusirani smo na Amerikance
+-  Holky (v) sobě! Na síti se Leitgeb a Hanychová vůbec nešetří, ale co v reálu?
