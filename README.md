@@ -1,11 +1,11 @@
 # Latest News
--  Główna twarz kremlowskiej propagandy skrytykowała kobiety. „Jesteś warta twojego męża?
--  Денков помолил Борисов за среща след критиките за кабинета - Труд
--  La sinistra Ue si attacca all'algoritmo: foto fake per attaccare Meloni sulla Rai
--  Główna twarz kremlowskiej propagandy skrytykowała kobiety. „Jesteś warta twojego męża?
--  Netflix, Amazon, HBO y Spotify: cuánto salen en febrero tras movimientos del dólar
--  Corinthians faz acordo com ex-patrocinador e pagará multa rescisória de R$ 40,1 mi em 12 vezes
--  Contraproposta do governo não agrada e servidores ambientais mantêm paralisação
--  Un bărbat a murit după ce a căzut de pe platforma de observare a muzeului Tate Modern din Londra
--  Contraproposta do governo não agrada e servidores ambientais mantêm paralisação
--  Główna twarz kremlowskiej propagandy skrytykowała kobiety. „Jesteś warta twojego męża?
+-  Cud podczas WOŚP. Policjant Artur uratował wolontariuszkę. Niesłychane, jak tego dokonał!
+-  Зеленський зустрівся з діючим головою ОБСЄ
+-  Union in der Haushaltsdebatte: Merz’ Spiel mit dem Verderben
+-  Potíže eDokladů odvrátily pozornost od auditu o čachrech na SÚKL, míní poradce
+-  Sisu 2024: matrícula de selecionados começa nesta sexta-feira
+-  Đorđe Milosavljević o novoj seriji: Među osumnjičenima su glumački prvaci beogradskog pozorišta, dramska spisateljica, reditelj i upravnik…
+-  Classic Bethesda Game Is Now Available for Free
+-  BYU basketball: Revamped West Virginia a big challenge for No. 22 Cougs
+-  ‘NSC twijfelt over kabinet met PVV’
+-  ICJ potrdil svojo pristojnost v večjem delu ukrajinske tožbe proti Rusiji
