@@ -1,11 +1,11 @@
 # Latest News
--  ارسال ۴۲ پتابایت داده به وسیله استارلینک | استفاده از ۹ هزار لیزر
--  DEBATT: Arbetslösa funktionsnedsatta är ett enormt resursslöseri
--  DEBATT: Arbetslösa funktionsnedsatta är ett enormt resursslöseri
--  Failure to make a note in file of person searched does not vitiate proceedings u/s 153C of Income Tax Act: ITAT [Read Order]
--  Kala Gubernur Kepri Ansar Ahmad Sanjung Presiden Jokowi
--  Stewart Milne collapse a bitter blow, amid UK economy woe
--  Aussie footballer Lewis Miller cops ‘disgusting’ abuse from trolls after Asian Cup cameo for Socceroos
--  深水埗警打擊違泊拖走11車 拘1男涉非法駕電動單車
--  Blinken viajará a la región para acelerar una ‘pausa humanitaria’
--  Indien - Modis Gratwanderung zwischen Palästina-Unterstützung und Israel-Solidarität
+-  Coup dur pour Nicole Kidman, censurée à Hongkong
+-  Crash Kurs zeigt schwere Verkehrsunfälle: „Ich sage meinen Kindern bis heute: Fahrt vorsichtig“
+-  Retzer beschuldigt - Gestohlener Traktor wurde in Obstplantage entdeckt
+-  DWP 48-hour alert for £299 cost of living payment - everything you need to know
+-  „Remigration“ als Realität: Mindestens jeder Zehnte müsste Waltrop verlassen
+-  Nie wieder ist jetzt: Demo für die Demokratie
+-  Plača brez prispevkov
+-  Jakob Aljaž z nakupom Triglava matiral Nemce
+-  INSÄNDARE: Många tankar om vård och pension
+-  Rokkant lett, mert segített a barátján – Már az orvosok is lemondtak az M7-esen elgázolt Lajosról
