@@ -1,11 +1,11 @@
 # Latest News
--  Dad in Ali murder trial did not bring gun to courtroom, his lawyer says
--  Transcript : Decentral Life, Inc. - Pre Recorded Shareholder/Analyst Call
--  दो प्रोजेक्ट का रास्ता साफ:जमीन मिली...दानापुर-बिहटा एलिवेटेड रोड, हार्डिंग पार्क में लोकल ट्रेनों के प्लेटफॉर्म बनेंगे
--  서울 100세 이상 1474명…"장수축하금·효도수당 드려요"[구청25]
--  Curry in Davis med rezervisti za tekmo zvezd
--  PSG, Real Madrid... Guardiola répond cash sur l'avenir d'Haaland
--  Airport sting nabs man alleged of planning vile overseas child abuse
--  Son, Klinsmann embrace South Korea's 'zombie football' tag - ESPN - ESPN
--  Piden activar planes de prevención de incendios forestales en Venezuela durante todo el año #4Feb
--  Rodgers at Celtic for long haul despite Switzerland rumours
+-  ‘Weather whiplash’ made for a record-breaking January on Vancouver Island
+-  Hamilton to pocket whopping Ferrari salary
+-  Cata Gorostidi, de Gran Hermano, en El Observador Radio: "Golpes bajos a ese nivel yo nunca di"
+-  ２／３朝
+-  Kurier verschiebt Romy wegen Kündigungswelle
+-  ‘Weather whiplash’ made for a record-breaking January on Vancouver Island
+-  Ćorić u polufinalu Montpelliera, sada ga čeka prvi nositelj Rune
+-  Sakarya'da evin çatısı küle döndü: 1 yaralı
+-  مقتل قيادي بارز في المليشيات الإيرانية بغارة أمريكية
+-  Le douloureux record de la Guinée à la CAN
