@@ -1,11 +1,11 @@
 # Latest News
--  京都市の高さ規制緩和 市民に交錯する期待と不安「全ては新市長がどう判断するかだ」
--  Shop for Your Geeky Sweetie With io9's Valentine's Day Gift Guide
--  کلیات بودجه سال 1403 از دیدگاه صنعت برق
--  今田美櫻試鏡擊敗3364人 演明年晨間劇
--  Winters Hotel jury deliberating as inquest into deadly B.C. fire nears end
--  دوای مهاجرت متخصص‌ها
--  آخرین امیدها برای صعود
--  حمایت بازار کار از نرخ بهره
--  Carl Weathers: »Apollo Creed«-Darsteller ist tot
--  Prakash Ambedkar stuns MVA, says INDIA bloc has almost collapsed - Times of India
+-  Васил Терзиев се срещна с експерти по антикорупция
+-  Escape to the Country star Jonnie Irwin dies aged 50 - 7NEWS
+-  How to Know Which Phone You Have: A Guide for Fellow Idiots
+-  New cyclone fear for battered state
+-  Highland News and Media journalists triumph with stunning success at Highlands and Islands media awards
+-  "All'Italia il comando tattico della missione". Mar Rosso, l'annuncio di Crosetto
+-  Mehmet Şimşek: Ekonomi programımız kararlılıkla devam etmekte
+-  Iconic Rocky star dies aged 76
+-  "Veprina alava!" Nući bahatim ponašanjem zgrozio javnost (VIDEO)
+-  Nova kolekcija haljina bh. dizajnerice predstavljena na neobičnom mjestu - zaleđenom Blidinjskom jezeru
