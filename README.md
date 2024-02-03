@@ -1,11 +1,11 @@
 # Latest News
--  Landesregierung appelliert an Bauern für friedliche Proteste
--  Homem que matou ciclista à queima-roupa é preso saindo da igreja
--  PÕNEVAD PAARID MUUSIKAAUHINDADEL | Kossuäss Gregor Arbet on keeranud eraelus uue lehekülje
--  Evo zašto je u avionima prilikom sletanja i poletanja uvek prigušeno svetlo
--  Tunceli'de koruma altındaki yaban keçisi avlayan şahıslar fotokapana yakalandı: 345 bin lira ceza
--  Se registró un nuevo sismo en Vaca Muerta: ocurrió esta madrugada en Añelo
--  Hove father feels ‘worthless’ after Supreme Court ruling
--  Пъстра програма и нови незабравими вечери в 121-я Празник на розата в Казанлък от 17 май
--  Бойцы трофеят вооружение и боеприпасы из брошенной оккупантами бронемашины. ВИДЕО
--  Work-Life-Balance: Firmen müssen heute mehr bieten als Geld und Karriere – drei Beispiele zeigen, wie das gelingen kann
+-  Гарна учениця: Соня Морозюк сховала від арешту квартири та галерею за "схемою Гринкевичів"
+-  Auto total loss, motor en accu uit de wagen geslingerd in Ter Apelkanaal. 'Lastig vol te houden dat het 'iets meer dan 50' is geweest'
+-  Dublin Racing Festival offer: Get Galopin Des Champs to win Irish Gold Cup at 45/1
+-  Kementerian Luar Negeri RI Benarkan Ada WNI Diduga Mencuri Data soal Teknologi Jet Tempur KF-21
+-  Saanich police look to locate a man missing nearly a month
+-  Erciş'te ekiplerin karla mücadelesi devam ediyor
+-  Son Dakika:Gaziantepliler Dikkat! Gaziantep'te yarın birçok bölgede elektrik kesintisi olacak
+-  Linn Kazmaier: Fehlerfrei zum nächsten Sieg
+-  Demiroks storsatsning i C: Bli partiet för ökad invandring
+-  Nada será como antes
