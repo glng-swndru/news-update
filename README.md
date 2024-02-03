@@ -1,11 +1,11 @@
 # Latest News
--  Menkaure-Pyramide von Gizeh: Hübsch machen oder nicht?
--  Jay Khan leugnet weiter seine Dschungel-Romanze mit Indira
--  UPI in France: Indian tourists can now buy tickets for Paris' iconic Eiffel Tower in rupees
--  (VIDEO) Visi ovde četvrti dan! Gledam je, ne mrda! Akcija spašavanja u Majdanpeku!
--  De griep waart rond, maar wie hoest er nog in de elleboog?
--  США начнут удары по иранским целям в Ираке и Сирии в эти выходные, - WSJ
--  Promocija knjige posvećena Veljku Uskokoviću u ponedjeljak
--  Minister über Sicherheit im Verkehr: Nach Tod von Radaktivist – Hermann zeigt Anteilnahme
--  Minister über Sicherheit im Verkehr: Nach Tod von Radaktivist – Hermann zeigt Anteilnahme
--  Maanpuolustus | Joukkopako reservistä: Kahdessa päivässä lähtijöitä jo yhtä paljon kuin viime kuussa
+-  Nietrzeźwy „Pan-Stop” przeprowadzał uczniów. Będzie odpowiadał przed sądem
+-  Precio de la gasolina HOY 2 de febrero de 2024; Magna cierra semana en MÍNIMO de $12.00
+-  Nach Kritik und Boykott-Aufrufen: Edeka-Betreiber entschuldigt sich für Anti-Nazi-Spruch
+-  Apple CEO promises AI innovation
+-  Nietrzeźwy „Pan-Stop” przeprowadzał uczniów. Będzie odpowiadał przed sądem
+-  Filipinos should shun Mindanao secession calls
+-  Kapıkule’de kaçakçılık operasyonu: 7 şüpheli tutuklandı
+-  Filmkritik: Kuriose Vermarktung: Die "Mean Girls" singen, aber Hollywood schweigt dazu
+-  11 movies to check out on Hulu this February
+-  11 movies to check out on Hulu this February
