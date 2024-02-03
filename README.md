@@ -1,11 +1,11 @@
 # Latest News
--  Emekliler artık o faturayı ödemeyecek 'Meclis'te kabul edildi'
--  Park halindeki otomobil yanarak kullanılamaz hale geldi
--  BMKG: Waspada Hujan, Petir, Angin Kencang di Banten
--  ‘Terugkeren naar VVV omdat je pas overleden vader dat mooi had gevonden: Delano van Crooij is de held van de afgelopen transferwindow’
--  Estos son los festivos a los que tienes derecho este 2024
--  Umalo da im plaža dođe glave: Pet delfina vodilo bitku za život, jedva su ih spasili
--  Температурите се повишават, идва и ветровито време
--  Marozsán kikapott, de Fucsovics bravúrgyőzelmével él a remény a továbbjutásra a Davis-kupában
--  Febrero loco arranca en Girona
--  فوز وتعادل في افتتاحية المباريات التمهيدية لكاس حضرموت الثامنة لأندية الوادي
+-  Kevesen tartják be ezt a fürdős szabályt, pedig baj lehet belőle
+-  Sudoku za subotu 03.02.2024.
+-  Cierre temporal de este establecimiento de Inditex en Barcelona para renovar su imagen
+-  Trang trại gió nửa nổi nửa chìm đầu tiên trên thế giới phá kỷ lục sản lượng điện
+-  Sempat Ramai Disebut-sebut Warganet, Apa Itu Neurodivergen?
+-  HS Lapinlahdella | Minnalla oli aavistus, että metsässä tapahtuu jotain kamalaa – Sitten paljastui ennennäkemätön rikos
+-  Schimmelalarm in der Kaffeemaschine: So verhindern Sie ihn
+-  Guru Besar Unpad: Pemerintahan Sudah Tidak berjalan Berdasarkan Asas, Prinsip, Etika, dan Hukum
+-  David Moyes gives major update on West Ham future after transfer deadline day chaos
+-  Jubelstemming in De Geusselt: ‘We werden hier en daar al afgeschreven, maar dit toont de wilskracht van dit team’
