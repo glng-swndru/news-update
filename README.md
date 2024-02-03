@@ -1,11 +1,11 @@
 # Latest News
--  Fears over online 'gifting' after claims it may have been contributory factor in a suicide
--  '농구 황제' 조던이 챔피언 결정전서 신었던 그 농구화 세트, 107억 원에 팔렸다
--  Poco X6 Neo Disebut akan Diluncurkan di India Bulan Depan
--  BBB | Alane planeja colocar "vilã de Malhação" no Monstro
--  Setelah Unggah Video Nangis di IG, Lolly Murka Dituding Tak Punya Kerjaan karena Sering Main TikTok
--  El Gran Combo, Niche y otros grandes de la salsa arribaron a Lima para concierto
--  Weather Report: बारिश के बाद आसमान साफ, पॉल्यूशन से मिली राहत, सर्दी के बीच आज फिर होगी कुदरती बौछार!
--  India key to Apple's not-so-secret sauce
--  Scheffler finishes strong for a 64. He shares Pebble Beach lead with Aberg, Detry
--  Naughty Dog’s Original Plans for The Last of Us Part 2 Revealed: An Open World Inspired by Bloodborne
+-  Tà đạo “Bà cô Dợ”, tự xưng sinh ra Chúa đã bị triệt xóa như thế nào?
+-  4 mỹ nhân Việt mặc chân váy dài đẹp nhất, có nàng cao chưa đến 1m60 nhưng phối đồ tôn dáng cực khéo
+-  「ペンタックス」ブランドに戻ったカジュアルなアウトドアカメラ「WG-90」を試す 便利な「顕微鏡モード」も
+-  地下鉄東西線で人身事故 菊水―ひばりが丘間の運行停止
+-  Fifa vai anunciar no domingo a cidade-sede da final da Copa do Mundo de 2026
+-  Apresan hombre acusado de matar al abogado Chaguito Reyes en Santiago
+-  Entertainment News LIVE: 'ਐਨੀਮਲ' ਨੂੰ ਲੈ ਕੇ ਕਿਰਨ ਰਾਓ 'ਤੇ ਭੜਕੇ ਸੰਦੀਪ ਵਾਂਗਾ ਰੈੱਡੀ, ਪੂਨਮ ਪਾਂਡੇ ਦੀ ਅਚਾਨਕ ਮੌਤ ਨਾਲ ਫਿਲਮ ਇੰਡਸਟਰੀ ਨੂੰ ਝਟਕਾ ਸਣੇ ਅਹਿਮ ਖਬਰਾਂ
+-  El amistoso entre Always Ready y The Strongest en El Alto quedó suspendido
+-  Bloomberg Markets
+-  HBD Simbu: லிட்டில் ஸ்டார் முதல் STR வரை! சிம்பு கடந்து வந்த பாதை - ரசிக்க தவறாத ரசிகர்கள்
