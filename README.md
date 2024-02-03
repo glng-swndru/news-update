@@ -1,11 +1,11 @@
 # Latest News
--  How Nosh’s AI-Powered Robot Chefs Are All Set To Transform Indian Kitchens
--  सहारनपुर में पुलिस मुठभेड़ में बदमाश गिरफ्तार, 18 से ज्यादा मामले हैं दर्ज
--  FEATURE: 1,000-km nature trek helping Tohoku once again hit its stride
--  Evropa ključa! Borelj javlja: Pripremite se za rat! Putin dobio šokantne vesti iz Unije, Moskva neće sedeti skrštenih ruku!
--  DOKTORKA BISERKA UPOZORAVA- AKO OVO OSEĆATE DUŽE OD 4 DANA, ODMAH LEKARA: Sve više obolelih, a tek se očekuje novi udar
--  Elektronický systém přihlášek na školy funguje. Žáci odevzdali stovky přihlášek
--  Държавата със заявка за спиране на вдигането на таксите от мобилните оператори
--  Bharat Ratna for LK Advani: A timeline of BJP stalwart's illustrious political career
--  Rapsodija ukusa u "MasterChefu", supa od čičoke sa pireom od kruške
--  SUDAR BOMBARDERA: Kazahstanac deluje fokusirano!
+-  Abdulkadir Uraloğlu: Ulaşım yatırımlarında öncelik Deprem Bölgesi
+-  Report shares what Everton fans are planning before Premier League showdown with Tottenham
+-  Egy közepes méretű újszerű lakásra már elég lehet a CSOK Plusz - A hét videója
+-  韓國花美男樂隊CNBLUE時隔7年攜亞巡襲港！3月16日亞博開唱，粉絲福利&座位圖全公開
+-  Hafize Gaye Erkan: Chefin der türkischen Zentralbank tritt nach Korruptionsvorwürfen zurück
+-  4 "quá" khi ăn uống gián tiếp "bào mòn" đường tiêu hoá, tăng nguy cơ mắc ung thư
+-  Kolme ihmistä haavoittunut veitsi-iskussa rautatieasemalla Pariisissa
+-  Zaluzsnij talán a finn Mannerheim tábornok példáját akarta követni és emiatt váltja le Zelenszkij?
+-  Sneijder: «Se l’Inter batte la Juve non ha lo scudetto in tasca. Allegri? Ha un’occasione»
+-  BRNABIĆEVA: Opozicija u Srbiji optužuje Vučića, a abolira Kurtija
