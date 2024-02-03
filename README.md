@@ -1,11 +1,11 @@
 # Latest News
--  Abstimmung der EU-Staaten: Schärfere Gesetze für Künstliche Intelligenz
--  Uuring ⟩ Enamik eestlasi kasutab igas kuus pakiautomaati
--  JPMorgan отозвал иск об обжаловании bail-in евробондов украинского Приватбанка
--  Κοινωνικές κι άλλες προκλήσεις της ΕΕ στη συνάντηση ΠτΒ με Ευρωπαίο Επίτροπο
--  Petrobras reduz preço do gás natural em 2%
--  CGTN: Spending time with the people: Xi Jinping's Chinese New Year tradition
--  Έτσι θα πάτε στο Τρόοδος το Σαββατοκύριακο- Δείτε τις κυκλοφοριακές ρυθμίσεις
--  Yashasvi Jaiswal Celebrates Century Like Real Madrid Star Boy Jude Bellingham - WATCH
--  Как да разберете, че той е влюбен във вас: Признаци на любовна треска у всяка зодия
--  Владислав Дикиджи: «Меня чуть не зарезали в метро. Нахожусь с полицейскими, буду писать заявление»
+-  Główna twarz kremlowskiej propagandy skrytykowała kobiety. „Jesteś warta twojego męża?
+-  Денков помолил Борисов за среща след критиките за кабинета - Труд
+-  La sinistra Ue si attacca all'algoritmo: foto fake per attaccare Meloni sulla Rai
+-  Główna twarz kremlowskiej propagandy skrytykowała kobiety. „Jesteś warta twojego męża?
+-  Netflix, Amazon, HBO y Spotify: cuánto salen en febrero tras movimientos del dólar
+-  Corinthians faz acordo com ex-patrocinador e pagará multa rescisória de R$ 40,1 mi em 12 vezes
+-  Contraproposta do governo não agrada e servidores ambientais mantêm paralisação
+-  Un bărbat a murit după ce a căzut de pe platforma de observare a muzeului Tate Modern din Londra
+-  Contraproposta do governo não agrada e servidores ambientais mantêm paralisação
+-  Główna twarz kremlowskiej propagandy skrytykowała kobiety. „Jesteś warta twojego męża?
