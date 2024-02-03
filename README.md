@@ -1,11 +1,11 @@
 # Latest News
--  Home Audio Equipment Market Forecast Report to 2028, Featuring Hon Hai Precision Industry, Akai, Intex Technologies, Koninklijke Philips, Sony, Yamaha & Qualcomm Technologies
--  طرفداری بی‌سابقه مردم آمریکا از فلسطین امداد غیبی است
--  Poglejte, kaj si je v Dubaju zakuhala Petra Parovel
--  Samsung TVs no longer have Google Assistant - 9to5Google
--  Location-Based Service (LBS) and Real-Time Location Systems (RTLS) Market worth $60.4 billion by 2028 - Exclusive Report by MarketsandMarkets™
--  Чаму маёр міліцыі, які душыў пратэсты, бесклапотна жыў у Літве
--  ‘Nieuwe implantaten gepresenteerd als de Ferrari onder de protheses, maar kunnen allemaal klachten geven’
--  Prosinečki selektor Črne gore
--  Steeds meer vrouwen laten hun siliconenborsten verwijderen: wachtlijst is al 13 maanden
--  ‘Nieuwe implantaten gepresenteerd als de Ferrari onder de protheses, maar ze kunnen allemaal klachten geven’
+-  Das Konzert der jungen Cellistin Raphaela Gromes fällt aus dem Rahmen des Gewohnten – mit einer Überraschung zum Schluss
+-  Saudi Arabia doesn't grant women equal rights, but plans to host WTA Finals
+-  B.C.’s mad temperature swings create concern for bees and cattle
+-  West Ham confirm two attackers will miss Manchester United fixture
+-  Messow: «Entiendo al entrenador, pero hubiera preferido que me dijera sus quejas en privado»
+-  NÖN-Krapfentour - NÖN verteilte süße Faschingsgrüße in der Region Purkersdorf
+-  Stopped in its tracks: Brewery owner's big beer plan stuck at station
+-  B.C.’s mad temperature swings create concern for bees and cattle
+-  Има ли таван? Милиардер прави Олимпийски игри с допинг
+-  Ab sofort im Streaming-Abo: Kaum zu glauben, wer bei diesem neuen Netflix-Abenteuer alles mitgewirkt hat!
