@@ -1,11 +1,11 @@
 # Latest News
--  El Ibex 35 salva la semana con signo positivo, por encima de los 10.000 puntos y gracias a los grandes bancos
--  Тежка катастрофа на пътя Пловдив – Хасково
--  PH products showcased in HK expo
--  60-vuotias | Moni tietää, miltä Nightwish tai Children of Bodom kuulostaa, mutta harva tietää että niiden soundi on Mikko Karmilan käsialaa
--  İYİ Parti'de Peş Peşe İstifa!
--  Whisky, cognac, vin rouge et mois de février
--  Eine Woche nach Rekord-Demo in Schwerte: Nele Blase (26) im Interview: „Waren fassungslos“
--  Arnar Gunnlaugs: Þarf að vera fullkomið fyrir okkur
--  Grumpy Delta customers will get new benefits with SkyMiles credit cards, but the changes come with a cost
--  Schira: "Il 31 dicembre, a mezzanotte, ho avuto una soffiata di mercato sul Napoli"
+-  Mais de 20 mil funcionários públicos reformam-se em 2023, valor mais alto em nove anos
+-  KRUNISANjE? Novak Đoković je najbolji teniser svih vremena? Poslednja vest može samo to da znači!
+-  Operação Policial frusta quatro grandes assaltos e desmantela associação criminosa em Santarém
+-  Σύσκεψη για τον τελικό του Europa Conference League: Από 9.000 φιλάθλους η κάθε φιναλίστ
+-  CANLI | Samsunspor - Galatasaray
+-  Teaser Squid Game 2 Dirilis, Ada Gong Yoo hingga Lee Byung Hun
+-  Il cartone Netflix che tutti gli adulti dovrebbero guardare
+-  'Sachin meets Tendulkar': India legend makes fan's day with heartwarming gesture, video goes viral
+-  Představí se za měsíc, my už jsme je vyzkoušeli. Nová řada smartphonů Xiaomi 14 naživo
+-  Soud zprostil Gretu Thunbergovou obvinění kvůli klimatickému protestu
