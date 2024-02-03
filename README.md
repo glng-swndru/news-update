@@ -1,11 +1,11 @@
 # Latest News
--  Devotos acompañaron a La Candelaria en su día y le pidieron paz para Venezuela (+Fotos)
--  VIDEO Romantika nakon utakmice na tribinama Gripa
--  Carcinoembryonic Antigen (CEA) Market 2024 [Latest Trends]: Analysis Future Opportunity and Demand Forecast Year 2030
--  „Karneval in Köln“: Hendrik Wüst kommt als „Insta-Präsident“ zu Karnevalssitzung
--  Muere Carl Weathers, intérprete de Apollo Creed en 'Rocky'; esto sabemos
--  The Fearsome Tanks That Fought Saddam Hussein May Soon Come for Vladimir Putin
--  Live: Στρασβούργο - Παρί Σεν Ζερμέν
--  Dozens of new Kamloops bus shelters to be installed through city's multi-year plan (Kamloops)
--  Brasil bate recorde na produção de petróleo e gás em 2023, com 4,344 mi boe/d
--  Sakaryaspor 3 maç sonra galip
+-  Crude futures settle lower
+-  Mirė aktorius Carlas Weathersas: geriausiai žinomas dėl Apollo Creedo vaidmens filme „Rokis“
+-  LoanMart reports no discernable impact from end of student loan pause on title loan demand and payment performance
+-  Voluntari francezi uciși în Ucraina: Procurorul antiterorism a deschis o anchetă
+-  D'argent et de sang : qui était Claude Dray, alias Ilan Frydman dans la série, le beau-père d’Arnaud Mimran qui a inspiré Jérôme Attias ? (PHOTOS)
+-  Así es como el Ayuntamiento de El Ejido enseña a los niños a cuidar los humedales
+-  Estrasburgo-PSG, em direto
+-  Carl Weathers, NFL linebacker-turned-actor who starred in ‘Rocky’ and ‘The Mandalorian,’ dies
+-  Petróleo fecha em queda de cerca de 2% e tem perda semanal, com incerteza sobre alívio em juros
+-  Makinde’s Security Adviser Raises Team On Safe Handling Of Harmful Substances
