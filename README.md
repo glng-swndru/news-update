@@ -1,11 +1,11 @@
 # Latest News
--  Účastníci Survivoru 2024: Soukup, Jirešová či Ornella! Na co se můžeme už za pár dní těšit
--  Grimau otkrio plan: Sprečili smo da Zvezda igra kao kod kuće!
--  내년 살림 미리 준비한다…익산시 국비 확보 선제대응
--  Prediksi Everton vs Tottenham di Liga Inggris: Skor, H2H hingga Live Streaming
--  Attorney General: State to receive $1M opiate settlement
--  Tisíc flakonů, lékovek, baněk a stojatek. V klášteře Zlatá Koruna restaurují barokní lékárnu
--  Fransa ve İspanya arasında domates tartışması
--  Agresti: "Pioli ha sempre avuto la capacità di reagire, non è da tutti. Continua a svolgere un lavoro eccezionale"
--  Agresti: "Pioli ha sempre avuto la capacità di reagire, non è da tutti. Continua a svolgere un lavoro eccezionale"
--  Biden se obratio svijetu i zaprijetio neprijateljima: ‘Ako naudite Amerikancu...‘; šef Pentagona: ‘Ovo je tek početak‘
+-  Grote uitslaande brand Poeldijk onder controle, ME ingezet: brandweer bekogeld door omstanders
+-  Senior Bowl features well-traveled QBs, other top prospects
+-  ひろゆき｢都内の異業種交流会がパッとしない訳｣ 起業家コミュニティー｢サミット｣成功の秘訣 | 読書 | 東洋経済オンライン
+-  Jagmeet Singh on his new baby's name and why he regrets biking with Doug Ford: 5 things we learned at TMU’s Democracy Forum
+-  Concurso público da Previdência de Guarapuava 2024: inscrições abertas
+-  Grote uitslaande brand Poeldijk onder controle, ME ingezet: brandweer bekogeld door omstanders
+-  कप्तान की उम्मीद पर खड़े उतरे यशस्वी जायसवाल, रोहित शर्मा की 4 साल पहले की भविष्यवाणी हुई सच
+-  Horoscope Today: আজ গোটাদিন কেমন কাটবে? কী বলছে আপনার রাশিফল?
+-  Donald Glover Wore a Monochromatic Fear of God Look to the ‘Mr. & Mrs. Smith’ Premiere
+-  ‘Had to stop’: Real reason you’re burnt out already this year
