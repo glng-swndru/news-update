@@ -1,11 +1,11 @@
 # Latest News
--  Das Konzert der jungen Cellistin Raphaela Gromes fällt aus dem Rahmen des Gewohnten – mit einer Überraschung zum Schluss
--  Saudi Arabia doesn't grant women equal rights, but plans to host WTA Finals
--  B.C.’s mad temperature swings create concern for bees and cattle
--  West Ham confirm two attackers will miss Manchester United fixture
--  Messow: «Entiendo al entrenador, pero hubiera preferido que me dijera sus quejas en privado»
--  NÖN-Krapfentour - NÖN verteilte süße Faschingsgrüße in der Region Purkersdorf
--  Stopped in its tracks: Brewery owner's big beer plan stuck at station
--  B.C.’s mad temperature swings create concern for bees and cattle
--  Има ли таван? Милиардер прави Олимпийски игри с допинг
--  Ab sofort im Streaming-Abo: Kaum zu glauben, wer bei diesem neuen Netflix-Abenteuer alles mitgewirkt hat!
+-  Menkaure-Pyramide von Gizeh: Hübsch machen oder nicht?
+-  Jay Khan leugnet weiter seine Dschungel-Romanze mit Indira
+-  UPI in France: Indian tourists can now buy tickets for Paris' iconic Eiffel Tower in rupees
+-  (VIDEO) Visi ovde četvrti dan! Gledam je, ne mrda! Akcija spašavanja u Majdanpeku!
+-  De griep waart rond, maar wie hoest er nog in de elleboog?
+-  США начнут удары по иранским целям в Ираке и Сирии в эти выходные, - WSJ
+-  Promocija knjige posvećena Veljku Uskokoviću u ponedjeljak
+-  Minister über Sicherheit im Verkehr: Nach Tod von Radaktivist – Hermann zeigt Anteilnahme
+-  Minister über Sicherheit im Verkehr: Nach Tod von Radaktivist – Hermann zeigt Anteilnahme
+-  Maanpuolustus | Joukkopako reservistä: Kahdessa päivässä lähtijöitä jo yhtä paljon kuin viime kuussa
