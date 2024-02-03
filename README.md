@@ -1,11 +1,11 @@
 # Latest News
--  Гарна учениця: Соня Морозюк сховала від арешту квартири та галерею за "схемою Гринкевичів"
--  Auto total loss, motor en accu uit de wagen geslingerd in Ter Apelkanaal. 'Lastig vol te houden dat het 'iets meer dan 50' is geweest'
--  Dublin Racing Festival offer: Get Galopin Des Champs to win Irish Gold Cup at 45/1
--  Kementerian Luar Negeri RI Benarkan Ada WNI Diduga Mencuri Data soal Teknologi Jet Tempur KF-21
--  Saanich police look to locate a man missing nearly a month
--  Erciş'te ekiplerin karla mücadelesi devam ediyor
--  Son Dakika:Gaziantepliler Dikkat! Gaziantep'te yarın birçok bölgede elektrik kesintisi olacak
--  Linn Kazmaier: Fehlerfrei zum nächsten Sieg
--  Demiroks storsatsning i C: Bli partiet för ökad invandring
--  Nada será como antes
+-  "Пирин" подписа с украински халф
+-  Filhote de arara é resgatado por moradores e entregue para os bombeiros no Nortão
+-  Cena za Robin Oil bude za osm a půl roku zpátky, tvrdí Čepro. Fixní část obchodu vyšla na 2,4 miliardy korun
+-  Dinamo skoro kupio 'mačka u vreći'. Umjesto Metzovog beka, stiže bivši hajdukovac?
+-  Eski tip ehliyetlerin değiştirilmesi için son gün 31 Aralık 2024
+-  Meddig tart még az influenzajárvány?
+-  Menšík se těší v Davis Cupu proti Izraeli na domácí prostředí, podpora ho nabíjí
+-  PHOTOS Ycare marié, il présente officiellement sa femme Renna après des mois de discrétion !
+-  Ehrenamt in Stuttgart: Bürgerpreis für sieben Initiativen verliehen
+-  Podpisał kontrakt w nowym klubie i się zaczęło. "Macie krew na rękach". Chodzi o śmierć Polki
