@@ -1,11 +1,11 @@
 # Latest News
--  Васил Терзиев се срещна с експерти по антикорупция
--  Escape to the Country star Jonnie Irwin dies aged 50 - 7NEWS
--  How to Know Which Phone You Have: A Guide for Fellow Idiots
--  New cyclone fear for battered state
--  Highland News and Media journalists triumph with stunning success at Highlands and Islands media awards
--  "All'Italia il comando tattico della missione". Mar Rosso, l'annuncio di Crosetto
--  Mehmet Şimşek: Ekonomi programımız kararlılıkla devam etmekte
--  Iconic Rocky star dies aged 76
--  "Veprina alava!" Nući bahatim ponašanjem zgrozio javnost (VIDEO)
--  Nova kolekcija haljina bh. dizajnerice predstavljena na neobičnom mjestu - zaleđenom Blidinjskom jezeru
+-  X-Men: First Class Director Would "Never Say Never" to Returning to Marvel Franchise
+-  滋賀県水産試験場を建て替えへ 体験学習の展示・体験スペースも確保
+-  Ларионов — о поражении от «Динамо»: «Приложили усилия, чтобы выиграть, но по ряду причин этого не произошло»
+-  Saiba quais são as cidades do Brasil que têm mais casas do que moradores
+-  Seis combatentes pró-Irã morrem em bombardeios ‘provavelmente americanos’ na Síria (ONG)
+-  Preterm birth rate in the US is rising, study finds, but the reasons are a mystery
+-  Hrgović javno prozvao Usika: Evo što mu je poručio!
+-  Saiba quais são as cidades do Brasil que têm mais casas do que moradores
+-  مسؤول أميركي تعليقا على الضربات في سوريا والعراق: عندما نضرب فإن الرد سيكون واضحا
+-  Live updates: Another shockingly good jobs report shows America's economy is booming - CNN
