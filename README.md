@@ -1,11 +1,11 @@
 # Latest News
--  Gesunde Ernährung: Längeres Leben durch Intervallfasten? Studie wird deutlich
--  U novom broju Stila čitajte:
--  Demi Jaga Kans Juara, Atletico Madrid Wajib Kalahkan Real Madrid
--  Brat Stipe Biuka pronašao novi klub: Potpisao je za Lokomotivu
--  Desetkovani Hajduk stiže u ruke Osijeku. Gdje gledati derbi?
--  Uçaklar kabusunuz olmasın
--  Израелски военни разкопават гробове в Газа в търсене на заложници
--  "BOMBARDOVALI SU MOJU ZEMLjU KADA SAM IMAO 11 GODINA" Ovo je odgovor Miloša Bikovića nakon što ga je HBO na zahtev Ukrajine izbacio iz serije
--  Народная артистка Бриллиант Дадашева стала участницей проекта "Qonağımız var"
--  De Laurentiis scettico sulla Superlega, ma non chiude le porte: "Ho parlato con Florentino"
+-  NCAA Hits Ex-Alabama Baseball Coach With 5-Year Ban
+-  পদ্মার চর থেকে যেভাবে উদ্ধার হলো যুবকের লাশের ৯ টুকরা
+-  Saadet Partisi aday tanıtım toplantısı başlıyor! Ankara'da büyük heyecan
+-  Das Café im Sulinger „Taff“ öffnet künftig länger
+-  Dituntun Ameena, Atta Halilintar Belajar Jalan usai Operasi
+-  Áudio imersivo Bose: Filmes e música mais reais do que nunca com nova tecnologia
+-  Finucci esplora conflitti invisibili nel libro "Operazione satellite"
+-  Sakaryaspor 3 maç sonra kazandı
+-  Doctor Slump Season 1 Episode 4 Streaming: How to Watch & Stream Online
+-  Los seis platos que son el orgullo de Santiago: todo compostelano debe haberlos probado
