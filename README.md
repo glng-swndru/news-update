@@ -1,11 +1,11 @@
 # Latest News
--  Operação Pretoriano: Fernando Madureira ouvido pelo juiz este sábado
--  Жителей Тулы и области ждёт ярмарка вакансий предприятий ОПК
--  바이든 "미군 사망에 대한 보복 공격 계속될 것"
--  Нигматуллин: «В обойме «Спартака» сейчас и так полно голкиперов, даже своих некуда девать»
--  Jadwal Kereta Api KRD Bandung Raya Hari Ini 3 Februari 2024, Relasi Padalarang-Cicalengka PP
--  ප්‍රනාන්දුලා සහ ජයසූරිය ඇෆ්ගනිස්ථාන ඉනිම බිඳ දමති
--  යළි දිනාගත යුතු නිදහස
--  Tin chuyển nhượng 3/2: De Gea trở lại Ngoại hạng Anh, Mbappe tới Liverpool?
--  '옥중 수기' 송영길 "국힘 당명, 검찰의힘·용산의힘으로 바꿔라"
--  පැය 10ක් සීඅයිඩීයේ සිටි කෙහෙළිය අත්අඩංගුවට
+-  Hjálmar kveðst ekki hafa verið handtekinn
+-  ПОНОМАРЕВ: «Игроки должны пройти через поражения – это часть процесса»
+-  Vì sao tòa nhà cao nhất thế giới ở Dubai có kinh phí xây dựng hơn 36.000 tỷ đồng nhưng không có cống ngầm?
+-  គណបក្ស​ភ្លើង​ទៀន​​ស្នើ​តុលាការ​ឱ្យ​ដោះ​លែង​មន្ត្រី​បក្ស​ភ្លើង​ទៀន​ពីរ​រូប​​​​​ដោយ​ឥត​លក្ខខណ្ឌ
+-  شيفرولية تريل بليزر 2024 Chevrolet Blazer صاحبة الأداء القوى والتصميم الأنيق - بوابة الصبح
+-  梳邦再也輕快鐵站出意外！ 6歲女童右手被手扶梯夾住
+-  پولیس بریتانیا در تلاش دستگیری یک مهاجر افغان است
+-  Jerônimo Teixeira na Crusoé: Bill Maher nunca falou do Brasil
+-  Javier Milei festejó a través de X la aprobación en general de la Ley ‘Ómnibus’
+-  Franklin County man arrested in connection with shooting near Holly Springs, Wake sheriff's office says
