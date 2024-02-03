@@ -1,11 +1,11 @@
 # Latest News
--  Mais de 20 mil funcionários públicos reformam-se em 2023, valor mais alto em nove anos
--  KRUNISANjE? Novak Đoković je najbolji teniser svih vremena? Poslednja vest može samo to da znači!
--  Operação Policial frusta quatro grandes assaltos e desmantela associação criminosa em Santarém
--  Σύσκεψη για τον τελικό του Europa Conference League: Από 9.000 φιλάθλους η κάθε φιναλίστ
--  CANLI | Samsunspor - Galatasaray
--  Teaser Squid Game 2 Dirilis, Ada Gong Yoo hingga Lee Byung Hun
--  Il cartone Netflix che tutti gli adulti dovrebbero guardare
--  'Sachin meets Tendulkar': India legend makes fan's day with heartwarming gesture, video goes viral
--  Představí se za měsíc, my už jsme je vyzkoušeli. Nová řada smartphonů Xiaomi 14 naživo
--  Soud zprostil Gretu Thunbergovou obvinění kvůli klimatickému protestu
+-  Abstimmung der EU-Staaten: Schärfere Gesetze für Künstliche Intelligenz
+-  Uuring ⟩ Enamik eestlasi kasutab igas kuus pakiautomaati
+-  JPMorgan отозвал иск об обжаловании bail-in евробондов украинского Приватбанка
+-  Κοινωνικές κι άλλες προκλήσεις της ΕΕ στη συνάντηση ΠτΒ με Ευρωπαίο Επίτροπο
+-  Petrobras reduz preço do gás natural em 2%
+-  CGTN: Spending time with the people: Xi Jinping's Chinese New Year tradition
+-  Έτσι θα πάτε στο Τρόοδος το Σαββατοκύριακο- Δείτε τις κυκλοφοριακές ρυθμίσεις
+-  Yashasvi Jaiswal Celebrates Century Like Real Madrid Star Boy Jude Bellingham - WATCH
+-  Как да разберете, че той е влюбен във вас: Признаци на любовна треска у всяка зодия
+-  Владислав Дикиджи: «Меня чуть не зарезали в метро. Нахожусь с полицейскими, буду писать заявление»
