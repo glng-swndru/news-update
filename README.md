@@ -1,11 +1,11 @@
 # Latest News
--  Separatisti u Moldaviji traže više ruskog plina
--  За нуждата от по-добро детско здравеопазване
--  Čini se da je stvar sigurna: Zelenski informirao Bijelu kuću da planira radikalan potez u vlastitim redovima
--  Need on põhjused, miks sind võib vaevata hommikul peavalu
--  Saturday's Scottish Premiership predictions including Aberdeen vs. Celtic
--  Italijanu mednarodni turnir v Novi Gorici
--  Oddaj krew i zostań potencjalnym dawcą szpiku!
--  Filho da atriz fala de gravação de vídeo erótico com a mãe: "Nojo"
--  Haas and new boss Komatsu expecting to start 2024 season at the back
--  Saim Oktay hayatını kaybetti
+-  U ovim situacijama se najčešće šire klice: Perete li ruke nakon njih?
+-  Megtámadták az USA firenzei konzulátusát
+-  Navy to commission INS Sandhayak: Know its potential helping country to keep surveillance on China’s move
+-  Написанную The Beatles картину продали за 1,7 миллиона долларов
+-  شركة جيلي الصينية تطلق 11 قمرا صناعيا للسيارات ذاتية القيادة
+-  «РБ Спорт»: «Спартак» намерен подписать вратаря в зимнее трансферное окно
+-  Пять районов Белгородской области обстреляны ВСУ за сутки
+-  Το έπαιζαν πελάτες σε κοσμηματοπωλείο και έκλεψαν καδένα αξίας 10.000 ευρώ
+-  Silent BMW electric scooter turns head
+-  Vo veku 76 rokov zomrel herec Carl Weathers, zahral si po boku Sylvestra Stalloneho
