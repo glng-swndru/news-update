@@ -1,11 +1,11 @@
 # Latest News
--  Wakapolri Berkunjung ke Destinasi Wisata Pulau Penyengat, Warga Keluhkan Kekurangan Air Bersih
--  João Paulo perde força dentro e fora do vestiário do Santos após rebaixamento
--  Gebze’de boya fabrikasında yangın. Dumanlar gökyüzünü kapladı
--  El Gobierno designó interventores en los medios públicos
--  Промяна в контролите на Славия
--  Фермерите в Гърция бесни на премиера Мицотакис
--  Медведев призвал поддерживать несистемных оппозиционных политиков на Западе
--  Παπαθανάσης: Μέσα στο μήνα ανακοινώσεις για μικροδάνεια έως 25.000 ευρώ για τους αγρότες
--  Zabranjena ljubav na tronu: 'Ili ću oženiti Sonju, ili se ne ženim'
--  37 tahanan lolos sudah ditahan semula
+-  UŽIVO Srpski dubl pod imperativom pobede
+-  Labor aims stage 3 tax pitch at Coalition voters, as Liberals amp up fight on integrity
+-  Perché il Prop Trading sta attirando i trader più giovani
+-  Ahok Tinggalkan Gaji Miliaran Mundur dari Komisaris Utama Pertamina Demi Ganjar
+-  (여자)아이들 완전체 출격…프로듀서 소연 고충 고백 (아형)
+-  Dambakan Pemimpin Amanah, Alumni Unair Deklarasi Dukung AMIN
+-  Penticton's crime rate trending downward: RCMP
+-  Das Bezirksmusikerfest wird heuer in Dinkelscherben gefeiert
+-  India wil steenkool blijven verbranden en lanceert beleid voor afvangen van groeiende uitstoot
+-  Vodič zrazil mladú chodkyňu bez reflexných prvkov: Brutálnu zrážku zázrakom prežila
