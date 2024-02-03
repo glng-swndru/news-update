@@ -1,11 +1,11 @@
 # Latest News
--  «Eskertzekoa da klubak jokalari gazteengan duen konfiantza»
--  Vì sao uống rượu sau gần 1 ngày vẫn còn nồng độ cồn?
--  Baustelle in Moers: Zusätzliche Parkstreifen für Geschäfte an der Hülsdonker Straße
--  ¿Petro a reelección?
--  ‘Kerajaan perlu jelaskan keputusan Lembaga Pengampunan’ - Radzi Jidin
--  Ким Чен Ын призвал военно-морские силы КНДР готовиться к войне
--  Soziales in Düsseldorf : Zu alt für das Regenbogenland
--  Últimos sorbos de Luka Modric
--  Volleyball, Regionalliga: SGL fordert Spitzenreiter Aasee
--  Xavi no deja el Barcelona por “cansancio”, sino por los (malos) resultados
+-  ارسال ۴۲ پتابایت داده به وسیله استارلینک | استفاده از ۹ هزار لیزر
+-  DEBATT: Arbetslösa funktionsnedsatta är ett enormt resursslöseri
+-  DEBATT: Arbetslösa funktionsnedsatta är ett enormt resursslöseri
+-  Failure to make a note in file of person searched does not vitiate proceedings u/s 153C of Income Tax Act: ITAT [Read Order]
+-  Kala Gubernur Kepri Ansar Ahmad Sanjung Presiden Jokowi
+-  Stewart Milne collapse a bitter blow, amid UK economy woe
+-  Aussie footballer Lewis Miller cops ‘disgusting’ abuse from trolls after Asian Cup cameo for Socceroos
+-  深水埗警打擊違泊拖走11車 拘1男涉非法駕電動單車
+-  Blinken viajará a la región para acelerar una ‘pausa humanitaria’
+-  Indien - Modis Gratwanderung zwischen Palästina-Unterstützung und Israel-Solidarität
