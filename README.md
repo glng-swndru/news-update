@@ -1,11 +1,11 @@
 # Latest News
--  Egy ismeretlen anarchista csoport vállalta a felelősséget az athéni robbantásért
--  Spartak Trnava predĺžil zmluvu s brankárom Vantrubom
--  توقيف 3 أشخاص في الليلكي لتأليفهم عصابة وارتكابهم جرائم مختلفة
--  'Opvallend dat Edwin Evers zich hier zó over uitliet'
--  INSÄNDARE: ”Att bara sätta sprätt på pengarna är inte ansvarsfullt”
--  Missglücktes Ausweichmanöver: Unfall mit zwei Verletzten
--  В Зимбабве заинтересованы в сотрудничестве и совместных проектах с "АМКОДОР"
--  Капсула для самогубців: експерт пояснив, що не так з новим українським ПТРК "Штурм-СМ"
--  Pesan Jokowi di Debat Pilpres Kelima: Sampaikan Substansial, Tidak Personal
--  Cevher'den Cemiyet By News’te eşsiz performans
+-  Água Santa aposta no Canindé para se recuperar e desafia Mirassol no Paulistão
+-  Masimo Freedom Watch Challenges Apple Dominance in Smartwatch Market
+-  Năm 2024: Ngành xi măng kỳ vọng sẽ khởi sắc trở lại “đường băng” tăng trưởng
+-  Verso Torino-Salernitana: Tameze in difesa. Ricci e Djidji vanno in panchina
+-  中国最高性能の分光望遠鏡 2026年に青海省で完成
+-  Israel pounds Gaza as fears grow of push into Rafah
+-  Wartehalle im Gare de Lyon: Messerangreifer verletzt drei Menschen in Pariser Bahnhof
+-  TOKİ hak sahiplerini 430 bin lira dolandıran şüpheli tutuklandı
+-  Galaxy S24, Android Auto ile sorunlar yaşatıyor: İşte Samsung'un açıklaması
+-  "Top Gun: Maverick"- & "Wo die Lüge hinfällt"-Star als falscher Auftragskiller: Trailer zur 4-Sterne-Thriller-Comedy "Hit Man"
