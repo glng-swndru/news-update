@@ -1,11 +1,11 @@
 # Latest News
--  Entenda briga que fez Universal tirar todas as suas músicas do TikTok
--  Meta: Stellar Report Leaves No Doubt That Zuckerberg’s Turnaround Is a Success
--  FCC proposal aims to outlaw AI-generated voices in robocalls after fake Biden message
--  Meta: Stellar Report Leaves No Doubt That Zuckerberg’s Turnaround Is a Success
--  Le nouveau prix de ce Redmi Note 12 va vous étonner, c'est sur Amazon que ça se passe
--  Pad Hanfe najozbiljniji je sigurnosni incident u povijesti javnog sektora
--  Stessa qualità, poche rinunce: arriva la nuova sedia economica di Secretlab
--  Sultanlar Ligi'nde derbi haftası
--  ExxonMobil tem queda no lucro líquido a US$ 7,63 bilhões no 4º trimestre, mas supera previsão
--  Прогулка на природе в Лянкяране с участием трехкратной чемпионки мира
+-  Разкриха интерес към четирима от Хебър
+-  Минобороны сообщило об улучшении позиций на двух направлениях
+-  Manifiesto íntegro de los historiadores en defensa de la Diada de Mallorca el 31 de Diciembre
+-  Amazon says the 'magic words.' They could spur a $100 billion market-cap boost. - MarketWatch
+-  Check Point Infinity AI Copilot helpt met security
+-  Ex-funcionário da CIA é condenado a 40 anos de prisão pelo maior vazamento na história da agência
+-  Potato Flake Market Size to Witness Growth Acceleration During 2024-2030 | PepsiCo, Lutosa (McCain), Lamb Weston, Aviko Rixona, Dali Group
+-  Turist vizesiyle geldi, yerde bulduğu kredi kartını patlattı!
+-  Organitzen una concentració davant l'Ajuntament de Ciutadella per a proclamar 'Qui estima la llengua la protegeix'
+-  ASTAF ucap takziah kepada keluarga legenda takraw negara
