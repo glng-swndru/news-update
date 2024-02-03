@@ -1,11 +1,11 @@
 # Latest News
--  Гол Лукмана в матче с Анголой вывел Нигерию в полуфинал Кубка Африки
--  MB Başkanı Hafize Gaye Erkan görevden affını istedi
--  ז'לגיריס הפתיעה את פנאתינייקוס עם 68:80, 73:79 לאנדולו על מילאנו
--  ジェフ・ベゾスが起業家に届けた言葉 - 起業参謀の戦略書
--  Internationaler Gerichtshof lässt Klage der Ukraine gegen Russland weitgehend zu
--  Merkez Bankası Başkanı Hafize Gaye Erkan istifa etti!
--  Gigantikus mennyiségű fát osztanak ki
--  Qué pasará con el dólar y en qué invertir, según Gustavo Neffa
--  Radonjic no entra en la lista por problemas burocráticos
--  Тривалість життя собаки залежить від її морди: вчені знайшли сумну закономірність
+-  NEW USC POLL SHOWS 71% SUPPORT TO KEEP HISTORIC LAW PREVENTING TOXIC OIL DRILLING NEAR SCHOOLS, HOSPITALS AND NEIGHBORHOODS
+-  Regional students are returning to school, but getting there is becoming a problem
+-  Almanya'da ulaşım sektöründe uyarı grevleri devam ediyor
+-  Russian aviation now less active over Sea of Azov, Ukraine says
+-  Το απλό τρικ της Σάρα Τζέσικα Πάρκερ είναι το μυστικό για ενδιαφέρουσες casual εμφανίσεις
+-  Unimed oferece curso gratuito para cuidador de idosos: saiba como se inscrever
+-  Här öppnar fritidsgården i nya fräscha lokaler: ”Här kommer vi att trivas”
+-  Szegeden szűrték ki a legtöbb SMA-s beteget az országban
+-  Дойде първата въздушна линейка, ще спасява и туристи в планината (Видео)
+-  Rocky’s Apollo Creed, Carl Weathers, dead at 76
