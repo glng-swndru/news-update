@@ -1,11 +1,11 @@
 # Latest News
--  Hjálmar kveðst ekki hafa verið handtekinn
--  ПОНОМАРЕВ: «Игроки должны пройти через поражения – это часть процесса»
--  Vì sao tòa nhà cao nhất thế giới ở Dubai có kinh phí xây dựng hơn 36.000 tỷ đồng nhưng không có cống ngầm?
--  គណបក្ស​ភ្លើង​ទៀន​​ស្នើ​តុលាការ​ឱ្យ​ដោះ​លែង​មន្ត្រី​បក្ស​ភ្លើង​ទៀន​ពីរ​រូប​​​​​ដោយ​ឥត​លក្ខខណ្ឌ
--  شيفرولية تريل بليزر 2024 Chevrolet Blazer صاحبة الأداء القوى والتصميم الأنيق - بوابة الصبح
--  梳邦再也輕快鐵站出意外！ 6歲女童右手被手扶梯夾住
--  پولیس بریتانیا در تلاش دستگیری یک مهاجر افغان است
--  Jerônimo Teixeira na Crusoé: Bill Maher nunca falou do Brasil
--  Javier Milei festejó a través de X la aprobación en general de la Ley ‘Ómnibus’
--  Franklin County man arrested in connection with shooting near Holly Springs, Wake sheriff's office says
+-  沖縄セルラー電話が感謝祭 eスポーツやARゲームなど14種類 2月11・12日那覇の本社ビル - 沖縄タイムス＋プラス ニュース
+-  Заря – Ягеллония – 2:2. Спарринг в Турции. Видео голов и обзор матча
+-  Piramitlerin restorasyonuna büyük tepki
+-  Peeling the lid off the Glasgow subway
+-  Catching up on Curb Your Enthusiasm
+-  Soccer-Aurier moves from Nottingham Forest to Galatasaray
+-  NEXT Weather: 6 p.m. report on Feb. 2, 2024
+-  Thưởng Tết ở các bệnh viện thế nào?
+-  Rekomendasi Tiket Pesawat Murah Banjarmasin-Surabaya, Naik Super Air Jet Mulai Rp 910 Ribuan
+-  Texas ACLU finds most schools in state still have discriminatory dress codes
