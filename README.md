@@ -1,11 +1,11 @@
 # Latest News
--  Coup dur pour Nicole Kidman, censurée à Hongkong
--  Crash Kurs zeigt schwere Verkehrsunfälle: „Ich sage meinen Kindern bis heute: Fahrt vorsichtig“
--  Retzer beschuldigt - Gestohlener Traktor wurde in Obstplantage entdeckt
--  DWP 48-hour alert for £299 cost of living payment - everything you need to know
--  „Remigration“ als Realität: Mindestens jeder Zehnte müsste Waltrop verlassen
--  Nie wieder ist jetzt: Demo für die Demokratie
--  Plača brez prispevkov
--  Jakob Aljaž z nakupom Triglava matiral Nemce
--  INSÄNDARE: Många tankar om vård och pension
--  Rokkant lett, mert segített a barátján – Már az orvosok is lemondtak az M7-esen elgázolt Lajosról
+-  संक्रमणकालीन न्यायमा सर्वोच्चको छलाङ
+-  Do wciągnięcia USA w konflikt zbrojny Chiny nie muszą atakować Tajwanu. Wystarczy "kwarantanna"
+-  Eiskanal doch in Cortina, Dornauer fordert Berufungs-Verzicht der Tiwag
+-  Kā čekisti vajāja rakstniekus, kuru vienīgais noziegums - publicēja savus darbus Rietumos
+-  Merkez Bankası Başkanı Fatih Karahan oldu
+-  Historische Wahl soll politische Krise in Nordirland beenden
+-  Chef der Mövenpick-Häuser am Flughafen Stuttgart: Warum gestrandete Flugpassagiere für Hotels eine Herausforderung sind
+-  Lanserhof-Chefin: „Bis zur Eröffnung war es eine wilde Zeit“
+-  Hakkari'de deprem! Çevre iller de sarsıldı
+-  Cinci dintre pakistanezii acuzați că au ucis un afgan în Timișoara, apoi au încercat să fugă din România au fost arestați
