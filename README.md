@@ -1,11 +1,11 @@
 # Latest News
--  David Fofana's dramatic double earns Burnley comeback draw against Fulham - The Guardian
--  Jak on to ustał?! Niebotyczny rekord w Willingen. Zrobił to dzień po dniu [WIDEO]
--  Xavi punge: "Il Real condiziona gli arbitri". Ancelotti non risponde: "Non mi abbasso al suo livello"
--  Koudelka ve Willingenu neudržel 17. místo, rekordním skokem vyhrál Forfang
--  Ove efektne sobne biljke manje su poznate, a u trenu podižu cijeli interijer
--  Igreja comprada por Ludmilla custou cerca de 750 mil reais, diz jornal
--  Дармщат - Байер Леверкузен 0:2 /репортаж/
--  Kava vam može pomoći da smršavite, a evo koliko šalica dnevno je potrebno
--  Lilia Lemoine presentó una denuncia en la Justicia por las amenazas recibidas en las redes
--  Katlanabilir bir iPhone'u ne zaman göreceğiz? Artık tahmini bir tarihimiz var...
+-  Kapade bil vid Svampen – greps i Karlstad
+-  Corey Graves calls new WWE SmackDown commentary role 'an honor'
+-  Sædís Rún skoraði - Alfons aftur á bekknum
+-  Ayacucho: Lanzan festival gastronómico por el Día del Puca Picante y del Pisco Sour
+-  ONPE realiza actividades previas a las elecciones municipales complementarias 2024
+-  Jujutsu Kaisen Cursed Clash já disponível para consolas e PC
+-  LETTER: Roundhouse development will turn Vic West into a Vancouver wannabe
+-  Dom Dolla Talks First Grammy Nomination, Hopes to Bring His Mom to the Ceremony: ‘I Enjoy Sharing These Moments With Family’
+-  ভারতে অবৈধ অনুপ্রবেশ, গ্রেফতার ১১ বাংলাদেশি
+-  Opozicija probila dno! Đilasovi kmetovi žele da slepo služe gospodarima sa Zapada!
