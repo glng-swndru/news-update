@@ -1,11 +1,11 @@
 # Latest News
--  Nhà 200m2 của bố mẹ Quang Hải trang trí tưng bừng đón Tết, Chu Thanh Huyền về làm dâu chắc rộn ràng lắm đây!
--  노사정 사회적 대화 본격 시작…6일 경사노위 본위원회 개최
--  한동훈 “목련 피면 김포는 서울”에…이준석 “뜨거운 아아같은 모순”
--  Đội hình 11 ngôi sao Việt kiều chờ góp sức cho đội tuyển Việt Nam khiến CĐV mong ngóng
--  Câu trả lời của Hòa Thân ẩn chứa nguy cơ suy tàn của nhà Thanh
--  Tirotean a un hombre en Los Tapiales
--  Geldzahlungen für Flüchtlinge: Söder setzt bei Bezahlkarte auf mehr Härte
--  Туляки отправятся в лыжный поход выходного дня
--  Redbank Plains stabbing: Disturbing details emerge after woman was knifed in front of her six-year-old granddaughter at a shopping centre
--  Everything To Know About The English Electric Lightning Jet
+-  Ukraine sắp nhận được 100 xe bọc thép từ Bulgaria
+-  家屋が倒壊、残された車は津波に流され…ドラレコがとらえていた能登半島地震発生時の石川・珠洲市
+-  Diretor do Barcelona, Deco anuncia que o clube vai recorrer da expulsão de Vitor Roque
+-  World Cancer Day 2024 : ক্যান্সারের ঝুঁকি বাড়ায়, আপনিও রোজ খান এই খাবার
+-  Full Court Press: Montana high school basketball highlights (Feb. 3)
+-  家屋が倒壊、残された車は津波に流され…ドラレコがとらえていた能登半島地震発生時の石川・珠洲市｜FNNプライムオンライン - FNNプライムオンライン
+-  鼻息はまるで機関車？「湯気立つ馬」動画が60万回以上再生される
+-  悲しみ、あきらめ、感謝 沖縄戦の大隊長が受け取った遺族からの手紙
+-  Deeper Dive Into NYT Article on Trans Kids Shows Critics of 'Gender Affirming' Care Were Right All Along
+-  You're spoiled for choice with new anime to watch this winter
