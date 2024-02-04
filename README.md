@@ -1,11 +1,11 @@
 # Latest News
--  Indore: Man Booked For Raping Married Woman
--  Jovic completes Milan comeback at Frosinone
--  CAN 2023 : la Côte d’Ivoire arrache la qualification à la dernière seconde face au Mali
--  Nach Bayern-Spiel: Seoane legt den Schalter schnell um auf Gladbachs nächste Herausforderung
--  پیروزی راحت شاگردان ژاوی در خارج از خانه؛ بارسلونا روی نوار برد
--  Murió Carl Weathers, el actor que interpretó a Apollo Creed en la saga de Rocky
--  Британские СМИ сообщили о сбое в работе GPS на восточном фланге НАТО
--  Matias Soulé nella storia del Frosinone: è il primo ad andare il doppia cifra in A
--  Lähde: näin paljon Lewis Hamilton tienaa Ferrarilla
--  Elderly man suffers serious injuries after being hit by taxi in Chilliwack
+-  Янина Кашева: Някаква магия стана между мене и Иван Иванов
+-  50درصد ساختمان‌‌‌ها ناایمن هستند
+-  احتمال تعیین عوارض صادراتی برای خرما
+-  رفع تبعیض از «ترخیص»
+-  Erik ten Hag wants answers from Man Utd board after his January transfer plea was ignored
+-  《不離婚的男人》網上點播破朝日台紀錄
+-  Cinco cantones buscan adherirse a Programa Municipios Saludables que impulsa el Ministerio de Salud
+-  اهمیت سرمایه‌گذاری در ICT
+-  Parolo a DAZN: «Cosa si può chiedere di più a Pioli? Dalle sue parole traspare un aspetto»
+-  美股三大指數齊升 道指標指再新高 港股ADR逆市回軟 反映明開市或走低
