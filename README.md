@@ -1,11 +1,11 @@
 # Latest News
--  Miền Bắc bước vào đợt ô nhiễm không khí nghiêm trọng
--  Shooting in North York leaves one injured, police say
--  Awujale installs Kuku as 4th Ogbeni Oja
--  Sinh viên trường danh giá bỏ học, làm shipper cho Pizza Hut: Vài năm sau ‘đổi đời’, trở thành tỷ phú với khối tài sản hơn 29.000 tỷ đồng
--  Байден выступил против помощи Израилю без поддержки Украины - Белый дом
--  ¿Qué es la epilepsia y cómo puedo actuar si una persona convulsiona?
--  "AI 시대, 이미지·영상 데이터 폭증" 개인정보 가명처리 기준 나왔다
--  Cara Membuka Bungkus Kue Keranjang yang Sering Tersaji Saat Imlek
--  Ley Ómnibus: una semana de crisis política, represión y resistencia
--  Untold story behind viral window-flash video
+-  چگونگی بهره‌مندی کامل از یارانه تشویقی در طرح «فجرانه»
+-  میانگین سرعت دسترسی به اینترنت در کشور چقدر است؟
+-  Gemini Weekly Horoscope 5 To 11 Feb 2024 : मिथुन राशीच्या लोकांना या आठवड्यात मोठे बदल पाहायला मिळतील, संयम राखा, साप्ताहिक राशीभविष्य
+-  Sari Heiskasella oli jo iso ikävä äitiä ja isää Iisalmessa - "Kun läksin Australiaan, otin Suomen itsestäänselvyytenä"
+-  Weekly Horoscope: नया सप्ताह कैसा रहेगा तुला, वृश्चिक, धनु, मकर, कुंभ और मीन वालों के लिए, यहां पढ़ें साप्ताहिक राशिफल
+-  元カープ安部友裕さんが、手づくりで醸す「幻の酒」 づくりに挑戦 130年の伝統の技で柔らかい味【広島発】
+-  Solent University opens new Human Health Lab in Southampton
+-  Pua has gone overboard with comments on Najib's sentence, says Wan Rosdy
+-  Southampton cats and dogs looking for a forever home
+-  Ο καιρός σήμερα: Ανεβαίνει η θερμοκρασία - «Άνοιξη» μέσα στο φθινόπωρο
