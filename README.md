@@ -1,11 +1,11 @@
 # Latest News
--  Cumhurbaşkanı Erdoğan'dan önemli açıklamalar
--  Elcsendesedett a holdi éjszakában, talán már sosem ébred fel a japán holdszonda, a SLIM
--  Oscar-winning director Mark Gustafson remembered as irreverent soul who was serious about animation
--  Star-DJ: Gigi D’Agostino will nach Erkrankung wieder durchstarten
--  La apretada agenda de Taylor Swift para llegar al Super Bowl
--  Dienvidkoreja nosoda Krievijas nekompetentos komentārus par drošību reģionā
--  A kormány szerint a felmondott pedagógusok próbálnak visszasomfordálni a rendszerbe
--  Star-DJ: Gigi D’Agostino will nach Erkrankung wieder durchstarten
--  Chayanne quiere unirse al trend de Tiempo de Vals en TikTok
--  Tauron 1. Liga siatkarzy: PSG KPS Siedlce – Lechia Tomaszów Mazowiecki. Relacja live i wynik na żywo
+-  Cafer Güneş kimdir?
+-  Сакраменто Кингс обмисля раздяла с Александър Везенков
+-  Hamilton: «Vou viver outro sonho infância e conduzir um Ferrari»
+-  Motorola-Smartphone-Test: Die besten Handys der amerikanischen Traditionsmarke
+-  "Powiedzmy wprost". Mocny komentarz Morawieckiego
+-  Ancelotti iskreno progovorio o Modriću: ‘Takve odluke su mi najteže, iznimno mi je teško i komplicirano‘
+-  بتمويل كويتي وفد جمعية النجاة الخيرية يفتتح مشروع إنشاء قرية الدبوس بالحديدة
+-  Pio! Pio! Pio! Piątek znów z golem! [WIDEO]
+-  «Страна․ua»: военкомы в Киевской области избили мужчину после вручения повестки
+-  Видеообзор матча чемпионата Казахстана «Астана» — «Актобе» 1:5
