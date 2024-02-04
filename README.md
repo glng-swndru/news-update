@@ -1,11 +1,11 @@
 # Latest News
--  Янина Кашева: Някаква магия стана между мене и Иван Иванов
--  50درصد ساختمان‌‌‌ها ناایمن هستند
--  احتمال تعیین عوارض صادراتی برای خرما
--  رفع تبعیض از «ترخیص»
--  Erik ten Hag wants answers from Man Utd board after his January transfer plea was ignored
--  《不離婚的男人》網上點播破朝日台紀錄
--  Cinco cantones buscan adherirse a Programa Municipios Saludables que impulsa el Ministerio de Salud
--  اهمیت سرمایه‌گذاری در ICT
--  Parolo a DAZN: «Cosa si può chiedere di più a Pioli? Dalle sue parole traspare un aspetto»
--  美股三大指數齊升 道指標指再新高 港股ADR逆市回軟 反映明開市或走低
+-  Дея спорт се справи с Берое, ЦСКА спечели драматично във Варна
+-  Усик прокоментував перенесення бою з Ф'юрі
+-  Böcekler o bölgeyi istila edecek! Uzmanlar tarih verdi, 1803 yılından beri ilk kez böylesi yaşanacak
+-  Defiant Houthis launch missiles during military drill in Yemen amid escalating attacks on Red Sea shipping: Middle East crisis reaches boiling point with American threatening MORE airstrikes after bombing Syria and Iraq
+-  A reação às 'indiretas' de Manuel Luís Goucha? "Há convidados menos bons..."
+-  Ley Ómnibus: Guillermo Francos aseguró que los acuerdos para el debate de los artículos están "prácticamente todos cerrados"
+-  Report de l’élection présidentielle : Khalifa Sall promet d’attaquer le décret...
+-  Erdoğan'dan Hatay'da Utandıran Konuşma! AKP'ye Oy Vermeyenlere Gözdağı...
+-  LIVE Afrika Cup | Nog geen goals bij Kaapverdië - Zuid-Afrika, wie bereikt halve finale?
+-  Коньки. Ким с рекордом трека выиграла гонку на 500 метров на Кубке мира
