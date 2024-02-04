@@ -1,11 +1,11 @@
 # Latest News
--  ABD'den misilleme saldırısı! Rusya, İran, Irak ve Suriye'den açıklama! Bilanço duyuruldu!
--  Rights Groups, U.S. Assail Serbian Court's Acquittal Of Ex-Intelligence Officers In 1999 Murder Of Journalist
--  Загрязнения воздуха из-за пожара на НПЗ в Волгограде нет
--  Gaziantep'te aranan 30 şüpheli yakalandı!
--  Кристи спортува (СНИМКА)
--  »Süddeutsche Zeitung« bespitzelt eigene Redaktion – heftige Kritik
--  Sikorski reaguje na słowa prezydenta o Krymie
--  Bocheński kandydatem PiS w Warszawie. Dziennikarz ujawnia: Takie są plany Jarosława Kaczyńskiego
--  Kartalkaya'da 40 tatilci telesiyejde mahsur kaldı
--  »Süddeutsche Zeitung« bespitzelt eigene Redaktion auf Suche nach »Maulwurf« – heftige Kritik
+-  Niño de dos años escaló hasta campamento base del monte Everest
+-  "Izgatottak, hogy valami újat lássanak": Christopher Nolan szerint így ütheti ki a franchise-okat az Oppenheimer sikere Hollywoodból a jövőben
+-  'Remarkable': McCoist says Richarlison's Tottenham team-mate also did something 'special' at Everton
+-  Starfield için FSR3 güncellemesi yolda
+-  Kommentti: Nyt on tallettajan vuoro panna pankki maksamaan
+-  سپېنې خبرې
+-  ‘La hija de un manaba se ganó un Emmy’: Jes Anderson, de padre ecuatoriano, se llevó el máximo premio de la industria televisiva por su trabajo de producción en la serie ‘Beef’
+-  Savo gyvenimą apvertęs snieglentininkas vejasi paralimpinę svajonę
+-  Hoa chơi Tết Giáp Thìn trong biệt thự 30 tỷ của Hà Hồ: Đào phai, cúc vạn thọ, tulip,... rực rỡ chói mắt
+-  Summit isn't quite right when it comes to hospital development talk
