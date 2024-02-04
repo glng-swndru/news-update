@@ -1,11 +1,11 @@
 # Latest News
--  Ukraine sắp nhận được 100 xe bọc thép từ Bulgaria
--  家屋が倒壊、残された車は津波に流され…ドラレコがとらえていた能登半島地震発生時の石川・珠洲市
--  Diretor do Barcelona, Deco anuncia que o clube vai recorrer da expulsão de Vitor Roque
--  World Cancer Day 2024 : ক্যান্সারের ঝুঁকি বাড়ায়, আপনিও রোজ খান এই খাবার
--  Full Court Press: Montana high school basketball highlights (Feb. 3)
--  家屋が倒壊、残された車は津波に流され…ドラレコがとらえていた能登半島地震発生時の石川・珠洲市｜FNNプライムオンライン - FNNプライムオンライン
--  鼻息はまるで機関車？「湯気立つ馬」動画が60万回以上再生される
--  悲しみ、あきらめ、感謝 沖縄戦の大隊長が受け取った遺族からの手紙
--  Deeper Dive Into NYT Article on Trans Kids Shows Critics of 'Gender Affirming' Care Were Right All Along
--  You're spoiled for choice with new anime to watch this winter
+-  Moskou stelt dat zeker 20 doden vielen bij beschietingen op door Rusland bezette stad
+-  رئیس سابق موساد: اسرائیل باید بهای سنگینی برای بازگرداندن اسرا بدهد
+-  Exercise shapes our gut health, study finds - News-Medical.Net
+-  Why you should delete these apps from your Android phones - Times of India
+-  BEYOND LOCAL: Saskatchewan collector finds rare case containing coveted Wayne Gretzky rookie cards
+-  청소년 성 착취물 제작한 20대, 징역 4년
+-  Nguyên nhân xe khách chở 37 người lao xuống vực sâu ở Kon Tum
+-  特殊詐欺の被害を防止 宇和島のコンビニ店員と郵便局職員に警察から感謝状【愛媛】
+-  Phân luồng các tuyến đường quanh hồ Tây để phục vụ lễ hội ánh sáng
+-  65,000 lab tests done in Delhi's mohalla clinics 'fake' finds ACB probe
