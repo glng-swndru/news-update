@@ -1,11 +1,11 @@
 # Latest News
--  Şili'de orman yangını:19 ölü
--  „Árásin er umfangsmikil“
--  EVO KAKO SAD IZGLEDA TIKA ŠPIC Kada nema šešir na glavi, niko ga ne prepoznaje: Policajci mi ne gledaju kroz prste i pišu prijave
--  TEŠKA SAOBRAĆAJNA NESREĆA NA PUTU ZA PEĆ: Auto sleteo sa puta, jedna osoba izgubila život
--  400 Menschen demonstrieren in Sondershausen gegen Rechtsextremismus
--  FC Nantes - RC Lens : les compos sont tombées
--  Kihúzták az ötös lottó nyerőszámait - lehet ön lett milliárdos
--  Mansur Yavaş’tan Turgut Altınok’a ‘6 aydır aklınız neredeydi?’
--  A Klebersberg Központ elnöke szerint álhír, hogy sztrájkoló tanárok nem kaptak béremelést
--  Milliardenschwerer Hochwasserschutz: Jetzt gibt es eine interaktive Gefahrenkarte zum „Sturzflutrisiko“
+-  Vernon School District rebrand finished
+-  BILDEXTRA: ”Det finns ingen trend 2024 och jag älskar det”
+-  В Совфеде назвали бандитизмом идею Бельгии по конфискации активов РФ
+-  Φλόριντα: Τα τελευταία λόγια πιλότου πριν από τη συντριβή (vid)
+-  “Nos iremos a quiebra”, mantener Palworld cuesta millones, pero devs hacen una promesa
+-  México vs Panamá: ¿A qué hora y dónde VER partido de la Serie del Caribe 2024?
+-  Solve pyramid puzzle designed to reduce risk of dementia as 40% of cases can be prevented
+-  Izgalmas részletek szivároghattak ki az MCU Pengéjéről: Nagyon személyes lesz a sztori, és egy legendás fegyver is felbukkan
+-  KIJHL players could skate away with education funding
+-  ZDJELAR NAPUŠTA MOSKVU POSLE GODINU I PO DANA?! Turski velikan "zagrizao" za srpskog fudbalera - ponovo oblači crno-beli dres?
