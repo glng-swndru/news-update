@@ -1,11 +1,11 @@
 # Latest News
--  Yolcuların da karıştığı yol verme kavgası kameraya yansıdı
--  Bandits abduct 55 wedding guests in Katsina
--  Нидерландската полиция задържа 1000 екоактивисти в Хага
--  Руководитель Минцифры Федоров объяснил сбой в "Дії" при отборе на Евровидение: количество запросов выросло в 20 раз
--  स्पेन ओपनमा अशोक उत्कृष्ट निर्णायक घोषित
--  Ukrayna'dan Lısıçansk'a saldırı! Çok sayıda ölü var
--  “문 열어” 부부싸움 피해 아들 집 간 아내 찾으려 아파트에 불 지른 50대
--  A királyné, akit nem láttak szívesen a Buckingham-palotában
--  «Μακριά από παιδιά» του Γιωργή Τσουρή στην Κεντρική σκηνή στο Θέατρο Ιλίσια
--  Delhi: Shiv Sena MP Priyanka Chaturvedi criticises law and order situation over Ulhasnagar firing
+-  Altının kaça yükseleceğini açıkladı; herkes akın akın almaya gitti
+-  Digitales Krebsregister Rheinland-Pfalz: Fast jeder Vierte erkrankt an Krebs
+-  Долідзе програв Імавову: результати турніру UFC Fight Night 235
+-  Pedido em casamento por japonesa que lhe ofereceu meio milhão de euros
+-  Bursa'da tehlikeli yolculuk yapan 2 kişi kameralara yansıdı! İşte o anlar...
+-  小心送命？西方制裁缺零件 俄羅斯飛安事故激增
+-  Hafize Gaye Erkan'ın ipini Şimşek mi çekti Erdoğan mı?
+-  Transfer news LIVE: Kylian Mbappe ‘CHOOSES next club’, David De Gea ‘DECLINED Premier League move’, Broja joins Fulham
+-  Путин не спира, а заглушава и дискредитира протестите срещу войната (ВИДЕО)
+-  La traversée de Paris de Charles Dantzig
