@@ -1,11 +1,11 @@
 # Latest News
--  ZDA pri Jemnu sestrelile osem brezpilotnikov, štiri uničile na tleh
--  Polom Krafta in Zajca v Willingenu, tik pod vrhom Peter Prevc
--  Wales vs Scotland LIVE SCORE – Six Nations 2024: Latest rugby updates as Finn Russell and Co look to end Cardiff curse
--  שבוע טוב!
--  حـرمة الـله: "الأحرار" بقيادة أخنوش نجح في تعبئة الكفاءات والمناضلين بالأقاليم الجنوبية
--  Adalet Bakanı Tunç'tan deprem soruşturmalarına ilişkin açıklama
--  Ancelottijevo bolno priznanje: 'Teško mi je što legenda poput Luke ostaje na klupi. Jako me pogađa'
--  Em risco de perder império milionário após ser multada por 'falsa solidariedade'
--  V Paríži sa bude konať referendum o zvýšení parkovacích poplatkov pre vozidlá SUV
--  Легенди откриха турнир по стрелба в София
+-  800.000 Unterschriften: Die wichtigsten Fragen und Antworten zur AfD-Verbotspetition: So geht es jetzt weiter
+-  Kaczyński uderzył w Trzaskowskiego: Problemy zostały wzmożone. Wynikają z pewnego typu ideologii
+-  Hamas deploys police, distributes funds in sign of resurgence in Gaza
+-  "VOJSKA BOŽIJA" STIGLA NA GRANICU: Napetost raste na prelazu između Teksasa i Meksika (VIDEO)
+-  Hamas deploys police, distributes funds in sign of resurgence in Gaza
+-  Hamas deploys police, distributes funds in sign of resurgence in Gaza
+-  Kejutan, Xavier Cannefax Bawa Bali United Kalahkan Juara Bertahan IBL di Pulau Dewata
+-  Hamas deploys police, distributes funds in sign of resurgence in Gaza
+-  Hamas deploys police, distributes funds in sign of resurgence in Gaza
+-  "We are shocked": Man who died in Elgin Bus Station incident confirmed as bus driver for Stagecoach
