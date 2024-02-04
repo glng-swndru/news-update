@@ -1,11 +1,11 @@
 # Latest News
--  HDZ ODGOVORIO MILANOVIĆU Nema više nedodirljivih kao u SDP-ovu mandatu
--  Nach US-Schlägen in Syrien und Irak: Droht jetzt ein Flächenbrand?
--  Το πόρισμα του ιατροδικαστή για τον αιφνίδιο θάνατο του βρέφους στο Διδυμότειχο - Το «βαρύ» παρελθόν της οικογένειας
--  Manchester United whizkid on fire, sends Ten Hag a message in latest U18 win
--  WYCIEKŁY NAZWISKA uczestników nowej edycji "Azji Express". Kogo zobaczymy na ekranach?
--  Vom Schlagabtausch zum Flächenbrand: Wie nah sind USA und Iran am Krieg?
--  Newsletter: No, it isn’t ‘scientifically impossible’ to cross the Atlantic Ocean
--  Valur gerði góða ferð norður
--  Global warming can affect the ability of forests to suck carbon from atmosphere, shows study - Scroll.in
--  Apple Vision Pro için 600'ün üzerinde yeni uygulama ve oyun tanıtıldı
+-  Andrew Tate elmondta, mire lenne képes Orbán Viktorért
+-  Přípravy na ligu ONLINE: klokani znají jedničku, Slováci (se) baví před Slavií
+-  Ajax vs PSV: ¿A qué hora juega Chucky Lozano HOY y dónde ver ONLINE partido de Eredivisie?
+-  Irlande du Nord. « Un jour historique » : le gouvernement dirigé par une républicaine, une première
+-  Hazavinnék az olasz jogászok az antifa támadássorozat elsőrendű vádlottját Magyarországról
+-  Léo Pinheiro pede a Toffoli suspensão da multa de R$ 45 milhões da Lava Jato
+-  Vieri sicuro: "Devastanti. Possono vincere scudetto e Champions League"
+-  Przemowy, gratulacje, podziękowania i życzenia. Strażacy zawodowi podsumowali 2023 rok
+-  Банкомати в Австрії перестали працювати з картками Газпромбанку
+-  Egyre nagyobb a baj: Nigéria egyik uralkodóját meggyilkolták, a feleségét pedig elrabolták
