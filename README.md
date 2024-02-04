@@ -1,11 +1,11 @@
 # Latest News
--  〈千鳥のクセスゴ！きょう〉昭和系女優「浜辺美波」 雰囲気とは真逆の今ドキ若者的素顔
--  Cuts hit sweet spot but fail to deliver dividend
--  Изминатото деноноќие 1 752 повици на 112, најмногу кон полицијата
--  Klub Bundesligi ukarany za napis na banerze. Absurdalny powód
--  Motgången blev en vändpunkt – nu leder hon talangerna
--  Hon lämnar politiken: ”Det har totalt spårat ur”
--  Powerade: Bruno Fernandes hafnaði Al-Hilal - Sane velur Bayern framyfir Liverpool og Chelsea
--  아파트 실거래가 '동'까지 공개…로열동 구분 가능해져
--  Kromozom bozukluğunu genetik testlerle teşhis etmek mümkün
--  Mer jobb för lotsarna i Helsingborg efter nya regler
+-  박재훈, 세계선수권 마라톤 수영서 남자 10km 54위
+-  Dreister Ladendiebstahl in Holzwickede: 50-Jähriger zieht Beute kurzerhand an
+-  Lichthupe und dichtes Auffahren: Porsche-Fahrer brettert rücksichtslos über die A27
+-  «Интер» — «Ювентус»: прямая трансляция матча Серии А
+-  Por la devaluación y la inflación se frenó el aluvión de uruguayos de compras en Argentina
+-  Олександрія переграла Б-93 у контрольному матчі
+-  Está no Tinder dos famosos e há um cantor que gostava de conhecer: "Aquele homem é tudo"
+-  В Индии освободили голубя – его подозревали в шпионаже
+-  "TEŠKA NEDELjA JE ZA NAMA..." Jasna poruka Vučića - "Nema predaje! Srbija će pobediti!" (VIDEO)
+-  Nach Autobahnblockade: Polizei nimmt 1000 Klimaaktivisten in Den Haag fest
