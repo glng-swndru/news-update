@@ -1,11 +1,11 @@
 # Latest News
--  Samsung TVs will no longer support Google Assistant
--  Keine Angst mehr? So reagiert Anya Elsner auf Kim Virginia!
--  Emir Ortakaya kaleyi gole kapattıkları için mutlu
--  Who should win the Grammy: Kylie or Troye?
--  Amateurvoetbal: Katwijk verslaat hekkensluiter in 'judowedstrijd', Quick Boys speelt gelijk
--  Real Madrid e HP anunciam colaboração global histórica
--  10 most expensive homes sold in the Portland metro area, Jan. 22-28
--  Camarote Número 1 fará mais dinheiro em um dia de carnaval que a Marisa
--  Ljudi se opet smeju Cybertrucku: "Sad zovi Maska da te izvuče" VIDEO
--  Drei Future Stars vom RSV Irschenberg beim Six Days Berlin
+-  Report de l’élection présidentielle : les avis partagés des citoyens sénégalais!
+-  Otepää talveralli teist päeva valitsenud Gregor Jeets võttis ka üldvõidu
+-  Le Président Macky Sall a bien fait : il y va de la crédibilité de nos institutions (Par Alinard NDIAYE ,PDS)
+-  Bayerische der U17: Grün-Weiß Frankenwald triumphiert
+-  Trener Karoglan: Idemo se podići, moramo biti bolji od samih sebe
+-  Teori ne demek?
+-  Elecciones en El Salvador y agresiones a periodistas
+-  Fala sobre cenas íntimas com José Condessa: "Gosto de fazer"
+-  Protagonistas de Ted adelantan detalles de la serie, una precuela de las películas
+-  Profits at oil giants are declining, partially due to lower gas prices: Track gas price changes in Montana
