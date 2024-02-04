@@ -1,11 +1,11 @@
 # Latest News
--  Niño de dos años escaló hasta campamento base del monte Everest
--  "Izgatottak, hogy valami újat lássanak": Christopher Nolan szerint így ütheti ki a franchise-okat az Oppenheimer sikere Hollywoodból a jövőben
--  'Remarkable': McCoist says Richarlison's Tottenham team-mate also did something 'special' at Everton
--  Starfield için FSR3 güncellemesi yolda
--  Kommentti: Nyt on tallettajan vuoro panna pankki maksamaan
--  سپېنې خبرې
--  ‘La hija de un manaba se ganó un Emmy’: Jes Anderson, de padre ecuatoriano, se llevó el máximo premio de la industria televisiva por su trabajo de producción en la serie ‘Beef’
--  Savo gyvenimą apvertęs snieglentininkas vejasi paralimpinę svajonę
--  Hoa chơi Tết Giáp Thìn trong biệt thự 30 tỷ của Hà Hồ: Đào phai, cúc vạn thọ, tulip,... rực rỡ chói mắt
--  Summit isn't quite right when it comes to hospital development talk
+-  ZDA pri Jemnu sestrelile osem brezpilotnikov, štiri uničile na tleh
+-  Polom Krafta in Zajca v Willingenu, tik pod vrhom Peter Prevc
+-  Wales vs Scotland LIVE SCORE – Six Nations 2024: Latest rugby updates as Finn Russell and Co look to end Cardiff curse
+-  שבוע טוב!
+-  حـرمة الـله: "الأحرار" بقيادة أخنوش نجح في تعبئة الكفاءات والمناضلين بالأقاليم الجنوبية
+-  Adalet Bakanı Tunç'tan deprem soruşturmalarına ilişkin açıklama
+-  Ancelottijevo bolno priznanje: 'Teško mi je što legenda poput Luke ostaje na klupi. Jako me pogađa'
+-  Em risco de perder império milionário após ser multada por 'falsa solidariedade'
+-  V Paríži sa bude konať referendum o zvýšení parkovacích poplatkov pre vozidlá SUV
+-  Легенди откриха турнир по стрелба в София
