@@ -1,11 +1,11 @@
 # Latest News
--  Дея спорт се справи с Берое, ЦСКА спечели драматично във Варна
--  Усик прокоментував перенесення бою з Ф'юрі
--  Böcekler o bölgeyi istila edecek! Uzmanlar tarih verdi, 1803 yılından beri ilk kez böylesi yaşanacak
--  Defiant Houthis launch missiles during military drill in Yemen amid escalating attacks on Red Sea shipping: Middle East crisis reaches boiling point with American threatening MORE airstrikes after bombing Syria and Iraq
--  A reação às 'indiretas' de Manuel Luís Goucha? "Há convidados menos bons..."
--  Ley Ómnibus: Guillermo Francos aseguró que los acuerdos para el debate de los artículos están "prácticamente todos cerrados"
--  Report de l’élection présidentielle : Khalifa Sall promet d’attaquer le décret...
--  Erdoğan'dan Hatay'da Utandıran Konuşma! AKP'ye Oy Vermeyenlere Gözdağı...
--  LIVE Afrika Cup | Nog geen goals bij Kaapverdië - Zuid-Afrika, wie bereikt halve finale?
--  Коньки. Ким с рекордом трека выиграла гонку на 500 метров на Кубке мира
+-  Stwierdzili śmierć kliniczną. Tragiczny wypadek Polaka we Włoszech
+-  Cabify y empresas de conductores de apps reclaman al MEF por "desventajas" para competir
+-  Megvan, ki érkezik a Péterfy Bori & Love Bandből távozó Tövisházi Ambrus helyére
+-  Mayans adelantó que UxP volverá a pedir una sesión en el Senado por el DNU
+-  Il Milan subisce troppi gol, Gabbia: "Tutti questi gol subiti ci danno fastidio"
+-  Félelmetes előzést hajtott végre egy kamionsofőr, aki szembe ment egy másik autóval: videón a centiken múló baleset
+-  WCM-Q demonstrates links between health, environmental sustainability at Doha Expo
+-  Goran Bogdan stao u obranu kolege iz Srbije: 'Miloš kojeg poznajem ne podržava genocide. Bože sačuvaj'
+-  Θεσσαλονίκη: Επεισόδιο σε κατάστημα μεταξύ σεκιουριτά και πελάτη για ένα μπουφάν
+-  Muğla'da acı ölüm: Ticari aracın çarptığı yaya hayatını kaybetti
