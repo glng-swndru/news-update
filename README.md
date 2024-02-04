@@ -1,11 +1,11 @@
 # Latest News
--  Report de l’élection présidentielle : les avis partagés des citoyens sénégalais!
--  Otepää talveralli teist päeva valitsenud Gregor Jeets võttis ka üldvõidu
--  Le Président Macky Sall a bien fait : il y va de la crédibilité de nos institutions (Par Alinard NDIAYE ,PDS)
--  Bayerische der U17: Grün-Weiß Frankenwald triumphiert
--  Trener Karoglan: Idemo se podići, moramo biti bolji od samih sebe
--  Teori ne demek?
--  Elecciones en El Salvador y agresiones a periodistas
--  Fala sobre cenas íntimas com José Condessa: "Gosto de fazer"
--  Protagonistas de Ted adelantan detalles de la serie, una precuela de las películas
--  Profits at oil giants are declining, partially due to lower gas prices: Track gas price changes in Montana
+-  Şili'de orman yangını:19 ölü
+-  „Árásin er umfangsmikil“
+-  EVO KAKO SAD IZGLEDA TIKA ŠPIC Kada nema šešir na glavi, niko ga ne prepoznaje: Policajci mi ne gledaju kroz prste i pišu prijave
+-  TEŠKA SAOBRAĆAJNA NESREĆA NA PUTU ZA PEĆ: Auto sleteo sa puta, jedna osoba izgubila život
+-  400 Menschen demonstrieren in Sondershausen gegen Rechtsextremismus
+-  FC Nantes - RC Lens : les compos sont tombées
+-  Kihúzták az ötös lottó nyerőszámait - lehet ön lett milliárdos
+-  Mansur Yavaş’tan Turgut Altınok’a ‘6 aydır aklınız neredeydi?’
+-  A Klebersberg Központ elnöke szerint álhír, hogy sztrájkoló tanárok nem kaptak béremelést
+-  Milliardenschwerer Hochwasserschutz: Jetzt gibt es eine interaktive Gefahrenkarte zum „Sturzflutrisiko“
