@@ -1,11 +1,11 @@
 # Latest News
--  Sarkacın salınımı: Sokak ve ev
--  ED Approaches Court After Kejriwal Skips Fifth Summons - News18
--  Dakota Johnson tem passagem relâmpago no Baile da Vogue
--  解鎖人生清單！「網球王子」劉丞登網球世界舞台撂英文
--  Parque de las Aguas abre ‘Family on ice’, pista de patinaje sobre hielo
--  پزشکان فرانسوی یامگا را عمل نکردند | نکونام: اصلا به فکر برگشت به زمین فوتبال نباش!
--  Rukouksen liekki
--  ماہرِ عروض اور پختہ گو شاعر پروفیسر خالد بزمیؔ
--  Cum a putut Dorinel Munteanu să îi numească pe fanii Rapidului: ar putea fi suspendat
--  Senegal president postpones election hours before official campaign start
+-  Kulinarični prepiri: kdo si je izmislil maslenega piščanca po indijsko?
+-  El Girona, ante el espejo de otras ‘Cenicientas’
+-  «Man spürt dabei so viel»: Töpfern ist wieder in – weil es meditativ ist und von allem anderen ablenkt
+-  La star du Real Madrid libérée par Mbappé ?
+-  Carroll's Isabelle Erickson logs career-high after 'trying to find that feeling again'
+-  «Man spürt dabei so viel»: Töpfern ist wieder in – weil es meditativ ist und von allem anderen ablenkt
+-  I’m a mum of two earning Sh65,000 but unable to save anything. How do I budget to be saving Sh10,000 monthly?
+-  D1A: accroché à Molenbeek, le Standard marche sur un fil
+-  Großer Andrang - SCU Thaya lud zur Faschingsparty: Närrisches Treiben im Gemeindesaal
+-  США нанесли новый удар по Йемену и уничтожили крылатую ракету хуситов
