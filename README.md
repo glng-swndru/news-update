@@ -1,11 +1,11 @@
 # Latest News
--  Hafize Gaye Erkan’ı ve babasını CİMER'e şikâyet eden kadın, istifa sonrası ilk kez konuştu
--  Fantacalcio, la scheda su Weissman alla Salernitana
--  Gençler merakla bekliyordu! Faizsiz evlilik kredisi için başvuru tarihi açıklandı
--  Tín hiệu tích cực xuất khẩu nông sản năm 2024
--  На Ростовскую область утром 4 февраля опустился туман
--  Životný úspech pre Reichovú, na MS postúpila do finále
--  Российский космонавт поставил мировой рекорд по суммарному пребыванию в космосе
--  Путин наградил Володина орденом «За заслуги перед Отечеством»
--  ‘İçecek’ ihracatçılarının dikkatine! Yüzlerce yeni müşteri tek tıkla karşında
--  ''Di Survei Sudah Lolos,'' Kaesang Yakin PSI Lolos ke Senayan, Enggan Ungkap Obrolan dengan Jokowi
+-  Just in time for the Grammy Awards, here’s a whiskey from country star Chris Stapleton
+-  Minnesord om Rolf Ekberg
+-  Xe lai là điểm sáng trong doanh thu đầu năm 2024 của Ford
+-  KRÖNIKA: I barnlitteraturen har papporna gått från tragikomiska till ansvarsfulla
+-  ИЛЈАДНИЦИ ИНДИЈЦИ НА РЕГРУТАЦИЈА: Сакаат да одат во Израел
+-  นายกฯ หวัง ไฟไหม้ ก.เกษตรฯ ไร้เรื่องการเมือง ชี้เป็นเพราะล้างแอร์-ไม่รู้ม็อบบุกทำเนียบ
+-  Agriculture biodynamique : « Nous dénonçons les liens entre la recherche publique et un mouvement philosophico-religieux »
+-  Bayern's injury crisis worsens after Davies hurts knee
+-  Puma named global Top Employer in 2024
+-  Western Cape fires | Firefighters still on high alert
