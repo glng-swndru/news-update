@@ -1,11 +1,11 @@
 # Latest News
--  Tchad : état de dégradation avancée pour le Stade omnisport de Begou
--  Aydınlı çiftçilerin destek ödemeleri yapıldı
--  Χιλή: Τουλάχιστον 19 νεκροί σε δασικές πυρκαγιές στην παραλιακή πόλη Βίνια ντελ Μαρ
--  Dansbanan full – av Volvobilar
--  JUGOVIĆ OTVORENO O VLAHOVIĆU: Nije bitno da li si dobar napadač, već trofeji
--  Jóhann átti þátt í dramatísku marki (myndskeið)
--  Začíná rozsáhlá rekonstrukce slavné Kotvy. Přemění se na luxusní obchodní dům
--  Przełamał się! Pierwszy taki gol Lewandowskiego od ośmiu miesięcy [WIDEO]
--  KKTC Alüminyum Doğramacılar Birliği Derneği’nin başkanı Ediz Taşkınçay oldu
--  DIREKT: 20.00: Vilka låtar tar sig vidare från Malmö?
+-  Samsung TVs will no longer support Google Assistant
+-  Keine Angst mehr? So reagiert Anya Elsner auf Kim Virginia!
+-  Emir Ortakaya kaleyi gole kapattıkları için mutlu
+-  Who should win the Grammy: Kylie or Troye?
+-  Amateurvoetbal: Katwijk verslaat hekkensluiter in 'judowedstrijd', Quick Boys speelt gelijk
+-  Real Madrid e HP anunciam colaboração global histórica
+-  10 most expensive homes sold in the Portland metro area, Jan. 22-28
+-  Camarote Número 1 fará mais dinheiro em um dia de carnaval que a Marisa
+-  Ljudi se opet smeju Cybertrucku: "Sad zovi Maska da te izvuče" VIDEO
+-  Drei Future Stars vom RSV Irschenberg beim Six Days Berlin
