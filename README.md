@@ -1,11 +1,11 @@
 # Latest News
--  الصين تطلق أقماراً صناعية من طراز «جيلي- 02»
--  «واتساب» تختبر ميزة إضافة جهات الاتصال إلى «المفضلة»
--  Tensão no Brasil: adeptos do São Paulo partem vidro do autocarro do Palmeiras (vídeos)
--  Kızıl bayraklar ve tapınaklar şehri Luang Prabang
--  එංගලන්තයේ සුද්දන් අතරේත් බයියෝ ඉන්නවා…අපේ රටේ බයියන්ට ඥාති දෙවිවරුත් ඉන්නවා
--  Zags set program record for made threes in a game, win 104-39 against Pacific
--  Soap and Allied Industries ජයග්‍රහණයේ 25 වන වසර සමරයි
--  فريق لاند كروزر أوتو بودي يفوز بالمركزين الأول والثاني عن فئة مركبات الإنتاج في رالي داكار 2024
--  Kisah Skandal Panembahan Senopati Muda, Antara Cinta Terlarang dan Konsekuensi Berat
--  大谷 デコピンもキャンプに帯同
+-  Biến dầu ăn cũ thành xà phòng
+-  Українці поклали "Дію" через Нацвідбір на Євробачення: мережу заполонили меми
+-  Dự báo thời tiết ngày mùng 1 Tết Nguyên đán năm 2024
+-  북한 원효심, 여자 45㎏급 세계신기록…아시아역도 우승
+-  ¿Es amor genuino? Este test de personalidad desvelará tus verdaderos sentimientos por tu pareja
+-  Metà degli incentivi usati per produrre all'estero: Elkann e Stellantis, un nuovo caso
+-  ‘I’m proud of how they handled it’: Vics kick off huge day in style
+-  Лондон се присъедини към поредната вълна удари по хутите
+-  Lori ditumpang lembaga wanita tanpa kepala
+-  ¡Adopta! Los perritos del Centro de Transferencia Canina del Metro buscan un hogar
