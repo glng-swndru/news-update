@@ -1,11 +1,11 @@
 # Latest News
--  Dalla strage di Erba alle inchieste sull'immobiliare: i fronti aperti della giustizia milanese
--  Netuno vira sobre o Mirassol e se reabilita no Paulistão
--  Epilepsia: ¿Cuál es su origen y como tratarla?
--  Leitores comentam dados do Censo sobre estabelecimentos religiosos no país
--  Atlanta Hawks - Golden State Warriors, en directo | NBA
--  'Adman Madman' book review: A Laugh Riot
--  Британский эксперт указал на неспособность Зеленского найти замену Залужному
--  Horoscope Today 4 February 2024 : मकर, कुंभ, मीन राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
--  Art of self-encouragement
--  [여기는 튀르키예]지진피해 임시 정착촌 9살 소년 "김민재가 내 우상"
+-  الصين تطلق أقماراً صناعية من طراز «جيلي- 02»
+-  «واتساب» تختبر ميزة إضافة جهات الاتصال إلى «المفضلة»
+-  Tensão no Brasil: adeptos do São Paulo partem vidro do autocarro do Palmeiras (vídeos)
+-  Kızıl bayraklar ve tapınaklar şehri Luang Prabang
+-  එංගලන්තයේ සුද්දන් අතරේත් බයියෝ ඉන්නවා…අපේ රටේ බයියන්ට ඥාති දෙවිවරුත් ඉන්නවා
+-  Zags set program record for made threes in a game, win 104-39 against Pacific
+-  Soap and Allied Industries ජයග්‍රහණයේ 25 වන වසර සමරයි
+-  فريق لاند كروزر أوتو بودي يفوز بالمركزين الأول والثاني عن فئة مركبات الإنتاج في رالي داكار 2024
+-  Kisah Skandal Panembahan Senopati Muda, Antara Cinta Terlarang dan Konsekuensi Berat
+-  大谷 デコピンもキャンプに帯同
