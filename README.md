@@ -1,11 +1,11 @@
 # Latest News
--  Fernando Santos, Aboubakar için kararını verdi!
--  Bassiehof - De enige volwassenen deze formatie zijn Wilders, Omtzigt en Plasterk
--  Spamhaus pysäyttää roskapostin – toimi näin, jos joudut aiheettomasti mustalle listalle
--  Prvi put u Hrvatskoj uvodi se praćenje ishoda liječenja. Beroš objasnio što će sve omogućiti
--  Inšpektori v decembri 2023 vykonali 2410 úradných kontrol potravín
--  Baləli yeni imici ilə GÜNDƏMDƏ
--  Nižu se reakcije na SMS poruke Turudića i Josipe Rimac
--  Geçmeyen öksürük nasıl kökünden kurutulur? İşte o yöntemler
--  Especialidades del Tet puestas a la venta en feria en Ciudad Ho Chi Minh
--  Lilia Lemoine hizo una denuncia por las amenazas que recibió en las redes sociales
+-  〈千鳥のクセスゴ！きょう〉昭和系女優「浜辺美波」 雰囲気とは真逆の今ドキ若者的素顔
+-  Cuts hit sweet spot but fail to deliver dividend
+-  Изминатото деноноќие 1 752 повици на 112, најмногу кон полицијата
+-  Klub Bundesligi ukarany za napis na banerze. Absurdalny powód
+-  Motgången blev en vändpunkt – nu leder hon talangerna
+-  Hon lämnar politiken: ”Det har totalt spårat ur”
+-  Powerade: Bruno Fernandes hafnaði Al-Hilal - Sane velur Bayern framyfir Liverpool og Chelsea
+-  아파트 실거래가 '동'까지 공개…로열동 구분 가능해져
+-  Kromozom bozukluğunu genetik testlerle teşhis etmek mümkün
+-  Mer jobb för lotsarna i Helsingborg efter nya regler
