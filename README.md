@@ -1,11 +1,11 @@
 # Latest News
--  洪佩瑜獻聲紅白 新年備戰新專輯
--  劉漢之引領張家陞入門 燃燒檔車魂
--  Lulu當小戴隊友 自嘲薪水小偷 證實黃子佼換電話 復出動向未明
--  Condanne da Iraq e Iran agli Usa. Mosca chiede la riunione del Consiglio Onu
--  阿妹俏皮戴龍毛帽 尾牙場嗨唱不過癮
--  「珊昌配」羅生門延燒林佳龍》民進黨：堅定支持游錫堃 柯文哲別搬弄是非
--  Ρόδος: Έκλεψαν προσκυνητήρια που αναπαριστούν τα πάθη του Χριστού
--  魔鷹火球底 洪總：他投就代誌大條了
--  Darren逐夢飆風 新春環島景點大放送
--  『厨房のありす』第3話 がんばる“倖生”永瀬廉に思わぬ疑惑がかけられる
+-  طرز تهیه سیب زمینی تنوری در قابلمه با سنگ ؛ یک میان وعده جذاب که عاشقش می‌شوید
+-  احتجاز 1000 من نشطاء المناخ في لاهاي بهولندا
+-  Икономичен Ланс взе своето срещу Нант
+-  Rusija optužila SAD da namjerno žele eskalirati sukob: Sastaje se Vijeće sigurnosti
+-  «Θα το τραβήξω μέχρι τέρμα» λέει ο πατέρας της ανήλικης από το Κερατσίνι που τη βίαζε ο παππούς της
+-  Botafogo faz 2 a 0, mas vacila e cede empate no final para o Nova Iguaçu pelo Carioca
+-  CGTN: Čas strávený s ľuďmi: Čínska novoročná tradícia prezidenta Xi Jinping
+-  Jokowi Habiskan Malam Minggu Bareng Kaesang dan Elite PSI di Braga Bandung
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 4 февруари /валутен калкулатор/
+-  Régional 1 : but vainqueur, carton rouge et ange gardien... Montluçon remporte le derby de l'Allier contre Domérat (1-0)
