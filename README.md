@@ -1,11 +1,11 @@
 # Latest News
--  NIJE BILO DOMAĆICE U JUGOSLAVIJI KOJA NIJE ZNALA DA SPREMI PAPAZJANIJU: Ovo jelo je palo u zaborav, ali UKUS mu je odličan RECEPT
--  Manual de instrucciones para pensar en el tiempo y no perderlo
--  Τι λένε τα ζώδια για σήμερα Κυριακή 4 Φεβρουαρίου 2024
--  Lovec izolátorů umí ve sklepě vyčarovat blesky. Vydejte se k němu na návštěvu
--  Lok Sabha Elections 2024: BJP’s Minority Front To Launch New Campaign ‘Quami Chaupal’ To Woo Muslim Voters in Western Uttar Pradesh
--  Sherrone Moore Net Worth: How Much Has the New Michigan Coach Earned Thus Far?
--  Gempa Pagi Hari Ini Minggu 4 Februari 2024: Terjadi Empat Kali Getarkan Indonesia
--  Tinubu has capacity to restructure Nigeria – Ndoma-Egba
--  افزایش ظرفیت خط تولید نانوکامپوزیت ایرانی در کانادا با سرمایه مشتریان
--  Mục tiêu dang dở của Israel sau gần 4 tháng khai chiến với Hamas
+-  Recht haben und Recht beweisen: Warum Dr. Thomas Hölscher aus Datteln Jurist wurde
+-  'Ah!nana', bazterrekoen bazterra
+-  Unfall in Herten: Zehnjährige kam nach Zusammenstoß mit Auto verletzt ins Krankenhaus
+-  Yazar Gül Çetin: Kültürel mirasımızı korumak
+-  Золото и бронза. Юные украинские шпажистки – вдвоем на пьедестале в Тбилиси
+-  سرمربی قطر: جاه‌طلبی ما ادامه دارد/ بازی سختی با ایران خواهیم داشت
+-  Anxious Portsmouth wait continues over injury fears for ex-Bristol City man
+-  Fabian und Caroline Bröggelhoff sagen Ja: Die „fette“ Hochzeitsparty kommt erst 2025
+-  Konami quería relanzar Silent Hill clásicos para sistemas actuales
+-  Sobe para 51 número de mortos por incêndios florestais no Chile
