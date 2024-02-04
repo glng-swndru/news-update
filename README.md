@@ -1,11 +1,11 @@
 # Latest News
--  Mulher é socorrida após ser prensada por carro contra portão no Médio Norte; ex-companheiro preso
--  De rastos com rumores de traição, sofre recaída
--  Preokret u sudskoj bitci između Angeline i Brada: 'On se borio za ovo, jako su ga podcijenili...'
--  Electioneering in Sindh – III
--  Incar Kemenagan Sebelum Libur Pemilu, Satria Muda Ogah Remehkan Bima Perkasa
--  Complete list of Bharat Ratna Award winners from 1954-2024
--  Facebook a Instagram ochrání děti před predátory. Meta omezí, kteří dospělí jim budou moci psát
--  Köpeğe çarpmamak için manevra yapan araç ağaca çarptı
--  VELIKA TUGA ZA SRPSKI FUDBAL! Preminuo istaknuti sportski radnik, jedan od najzaslužnijih za izgradnju čuvenog stadiona!
--  Dunfermline v Greenock Morton: SPFL Championship match preview
+-  Sjukdomssmäll för LHC – de missar publikfesten
+-  Wie is 'Flora' toch? De mysterieuze slavin die op een landgoed in Zuid-Afrika is gevonden, verdient nieuw onderzoek
+-  Osmaniye'ye şehit ateşi düştü
+-  A Fidesz alelnökétől bérel irodát a tankerületi központ
+-  Milli Emlak 3 ilde KDV'den muaf arazi satacak!
+-  Ivan Pažanin oduševio je svoje pratitelje: ‘Savršenstvo. 50 nijansi...‘
+-  Україна вже потопила п'яту частину Чорноморського флоту РФ, - Bild
+-  Экс-командующий Южным военным округом избран главой ДОСААФ России
+-  Tarım Kredi Market'te yumurta fiyatı dibi gördü! O tarihe kadar geçerli olacak
+-  Chris Farrell: Index funds can help you reach your retirement goals
