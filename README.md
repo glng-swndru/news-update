@@ -1,11 +1,11 @@
 # Latest News
--  Just in time for the Grammy Awards, here’s a whiskey from country star Chris Stapleton
--  Minnesord om Rolf Ekberg
--  Xe lai là điểm sáng trong doanh thu đầu năm 2024 của Ford
--  KRÖNIKA: I barnlitteraturen har papporna gått från tragikomiska till ansvarsfulla
--  ИЛЈАДНИЦИ ИНДИЈЦИ НА РЕГРУТАЦИЈА: Сакаат да одат во Израел
--  นายกฯ หวัง ไฟไหม้ ก.เกษตรฯ ไร้เรื่องการเมือง ชี้เป็นเพราะล้างแอร์-ไม่รู้ม็อบบุกทำเนียบ
--  Agriculture biodynamique : « Nous dénonçons les liens entre la recherche publique et un mouvement philosophico-religieux »
--  Bayern's injury crisis worsens after Davies hurts knee
--  Puma named global Top Employer in 2024
--  Western Cape fires | Firefighters still on high alert
+-  В Ираке нейтрализованы террористы РПК
+-  Alex Schulman : un secret de famille au centre de son nouveau roman
+-  На екранах Galaxy S24 Ultra почали з нізвідки з'являтися зелені смуги
+-  🔴 Liveblog: FC Volendam verliest broedertwist en AZ onderuit in topper tegen Feyenoord
+-  تشكيلات الفرق: ريال مدريد - أتلتيكو مدريد في الدوري الإسباني 2023-24
+-  Un homme recherché par la police pour des faits de harcèlement arrêté ce vendredi à Verviers
+-  🔴 Liveblog: Volendam neemt de leiding via Booth (0-1) en snelle achterstand AZ tegen Feyenoord (0-1)
+-  ¿Cómo debemos jugar contra rivales altos? Algunos consejos que pueden ser útiles
+-  England make strong start to record chase as Gill century inspires India
+-  Пограничники уничтожили вражеский блиндаж и автомобиль захватчиков FPV-дронами. ВИДЕО
