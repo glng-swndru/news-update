@@ -1,11 +1,11 @@
 # Latest News
--  Vernon School District rebrand finished
--  BILDEXTRA: ”Det finns ingen trend 2024 och jag älskar det”
--  В Совфеде назвали бандитизмом идею Бельгии по конфискации активов РФ
--  Φλόριντα: Τα τελευταία λόγια πιλότου πριν από τη συντριβή (vid)
--  “Nos iremos a quiebra”, mantener Palworld cuesta millones, pero devs hacen una promesa
--  México vs Panamá: ¿A qué hora y dónde VER partido de la Serie del Caribe 2024?
--  Solve pyramid puzzle designed to reduce risk of dementia as 40% of cases can be prevented
--  Izgalmas részletek szivároghattak ki az MCU Pengéjéről: Nagyon személyes lesz a sztori, és egy legendás fegyver is felbukkan
--  KIJHL players could skate away with education funding
--  ZDJELAR NAPUŠTA MOSKVU POSLE GODINU I PO DANA?! Turski velikan "zagrizao" za srpskog fudbalera - ponovo oblači crno-beli dres?
+-  Reducir Costa Rica a píxeles: El arte de Colorblind Pixel
+-  Ministrul Luminiţa Odobescu: Nevoile civililor palestinieni vor continua să fie o prioritate pentru România
+-  Валери Залужний – генералът, който има по-висок рейтинг от Зеленски
+-  «Алавес» — «Барселона»: каталонец Витор Роке удален ошибочно
+-  Glæsileg byrjun Freys hélt áfram
+-  ZAPEVALA NASRED ULICE Ana Bekuta glavna atrakcija u Londonu, pokazala umeće, a iza svega se krije emotivna posveta Milutinu Mrkonjiću
+-  「紀子さまとキャサリン妃」なぜ相次ぎ健康不安？皇室と世界の王室で広がる“深刻な頭痛のタネ”とは - News&Analysis
+-  Milan sofre, mas vira sobre Frosinone no Italiano
+-  Everton deny Spurs as rampant Villa go fourth
+-  Establecen nuevo precio máximo de acopio para la caña de azúcar en Cuba
