@@ -1,11 +1,11 @@
 # Latest News
--  Voleybolda büyük heyecan: Fenerbahçe - Galatasaray derbisi
--  Alexis Mac Allister reveals impact Jurgen Klopp exit news has had on Liverpool dressing room
--  Das grosse Abc – unser Sprachquiz: Kennen Sie diese LGBTQIA+-Begriffe?
--  Dengue: Brasil registra mais de 243 mil casos prováveis da doença
--  Represión en el Congreso: el reportero gráfico platense y otros detenidos fueron liberados
--  ダイソーの激ウマお菓子5選
--  「断らない救急」に密着 社会問題と命を救う難しさに直面する一作「その鼓動に耳をあてよ」
--  Bruno Fernandes reminds Man Utd squad of responsibilities on Munich tragedy anniversary
--  Mercato : Mbappé au Real Madrid, le PSG prépare sa vengeance
--  সয়েল টেস্ট কেন প্রয়োজন
+-  Radical plan to save Godfreys after collapse
+-  Radical plan to save Godfreys after collapse
+-  Das sagt der Chef-Kardiologe über das Klinik-Aus bei Ameos
+-  Mahnbescheid: Bezahlen oder Widerspruch? So reagiert man richtig
+-  Erschreckender Anblick: Das wurde aus dem Nordenhamer Strandwald
+-  Pixie the potbelly pig rescued after roaming a construction property in Arizona
+-  AFRIKA CUP. Sprookje blijft duren: Hugo Broos met Zuid-Afrika na zenuwslopende penalty’s naar halve finale
+-  Kao da niko nije hteo da prođe - Južna Afrika otišla na Nigeriju posle katastrofalnih penala
+-  Tin chuyển nhượng 4/2: Mbappe gia nhập Real, ngã ngũ vụ Sane thay Salah?
+-  Presidente confirma 46 mortos por incêndios florestais no Chile e teme mais vítimas
