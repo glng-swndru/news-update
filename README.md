@@ -1,11 +1,11 @@
 # Latest News
--  1 PAN, 1000 accounts: How Paytm Payments Bank came under RBI radar, know here
--  Αγρότες: Μέχρι το Πάσχα οι πληρωμές του 2023 - Τα μέτρα ενίσχυσης του αγροτικού εισοδήματος
--  Biden pobijedio na stranačkim predizborima u Južnoj Karolini
--  SAD i Britanija napali Jemen: Jasna poruka Hutima
--  The ₹21.3 lakh crore tax demands that will elude the government
--  Dušane, osvoji sve, kao i ja! Legenda Juventusa ima poruku za paklenog golgetera!
--  Befreiungsschlag, aber nicht mehr
--  Παραμένουν στα μπλόκα οι αγρότες - Μέχρι το Πάσχα θα έχουν ολοκληρωθεί όλες οι πληρωμές του 2023
--  «Циничный маневр»: у Байдена отреагировали на помощь Израилю без Украины
--  НБА. Бессмысленные 60 очко Карри – Голден Стэйт проиграл, победа Сакраменто
+-  Yolcuların da karıştığı yol verme kavgası kameraya yansıdı
+-  Bandits abduct 55 wedding guests in Katsina
+-  Нидерландската полиция задържа 1000 екоактивисти в Хага
+-  Руководитель Минцифры Федоров объяснил сбой в "Дії" при отборе на Евровидение: количество запросов выросло в 20 раз
+-  स्पेन ओपनमा अशोक उत्कृष्ट निर्णायक घोषित
+-  Ukrayna'dan Lısıçansk'a saldırı! Çok sayıda ölü var
+-  “문 열어” 부부싸움 피해 아들 집 간 아내 찾으려 아파트에 불 지른 50대
+-  A királyné, akit nem láttak szívesen a Buckingham-palotában
+-  «Μακριά από παιδιά» του Γιωργή Τσουρή στην Κεντρική σκηνή στο Θέατρο Ιλίσια
+-  Delhi: Shiv Sena MP Priyanka Chaturvedi criticises law and order situation over Ulhasnagar firing
