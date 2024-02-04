@@ -1,11 +1,11 @@
 # Latest News
--  Forscher lösen Rätsel um Schwarze Löcher, die mysteriöse Teilchen auf nahezu Lichtgeschwindigkeit beschleunigen
--  Sugieren no hablar de Palworld en redes para evitar problemas con Pokémon
--  Pocta Ettore Bugattimu. Na sporťáku slavné značky pracoval Král osmnáct let
--  SK E&S, 호주와 LNG 자원개발·CCUS 기술 협력 강화
--  Kriminalist: Aufklärung im Fall Rebecca noch möglich
--  Quedé sorprendido por algunos discursos en el Congreso
--  Токкет — о свисте в адрес Кучерова на Матче звезд: «Я сказал ему, что все ненавидят победителей»
--  Miksi tätä ei keksitty aiemmin? Vesijohdoilla voi tuottaa sähköä
--  Bocah 12 Tahun yang Hilang Tiga Hari Ditemukan di Sungai Barabai, Dievakuasi ke RSUD H Damanhuri
--  PSM vs Persita di Liga 1 Hari Ini, Adu Taktik 2 Pelatih Eropa di Stadion Batakan Balikpapan
+-  'I was battered and robbed in a five-on-one attack coming from the shop - it's not safe here anymore'
+-  Байдън печели с лекота в Южна Каролина
+-  Potsdam: Die 6 besten Aussichtspunkte auf die Barockstadt
+-  Nedeľa bude pod oblakom, môže sa vyskytnúť aj občasný dážď
+-  CPM Banks on Minakshi Mukherjee to Alter the Bipolarity of West Bengal
+-  Potsdam: Die 6 besten Aussichtspunkte auf die Barockstadt
+-  Robothand och nya ben – så byggs Virres nya kropp
+-  OM : Le départ de Gattuso annoncé en direct ?
+-  Bygget av en ny kropp – året då Virre reste sig igen och fick en robothand
+-  ISW: С цензура Кремъл потиска недоволството от войната в Украйна
