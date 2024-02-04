@@ -1,11 +1,11 @@
 # Latest News
--  Kapade bil vid Svampen – greps i Karlstad
--  Corey Graves calls new WWE SmackDown commentary role 'an honor'
--  Sædís Rún skoraði - Alfons aftur á bekknum
--  Ayacucho: Lanzan festival gastronómico por el Día del Puca Picante y del Pisco Sour
--  ONPE realiza actividades previas a las elecciones municipales complementarias 2024
--  Jujutsu Kaisen Cursed Clash já disponível para consolas e PC
--  LETTER: Roundhouse development will turn Vic West into a Vancouver wannabe
--  Dom Dolla Talks First Grammy Nomination, Hopes to Bring His Mom to the Ceremony: ‘I Enjoy Sharing These Moments With Family’
--  ভারতে অবৈধ অনুপ্রবেশ, গ্রেফতার ১১ বাংলাদেশি
--  Opozicija probila dno! Đilasovi kmetovi žele da slepo služe gospodarima sa Zapada!
+-  Pria di Bantul Curi Uang dari Kotak Infak Masjid
+-  «Ренн» победил «Монпелье» в домашнем матче
+-  Incêndios florestais deixam 19 mortos e grande destruição em região turística do Chile
+-  Ostapenko iekļūst Lincas "WTA 500" sērijas turnīra finālā
+-  130 مليون مستخدم في Threads
+-  Meloni fail. Condoni e sanatorie hanno l'effetto opposto: crescono le tasse non pagate
+-  Abre o jogo sobre conta no OnlyFans: "Olha..."
+-  VfR Aalen: Zwei neue Stürmer und ein altes Problem
+-  Affären vill växa – kan bli nästan dubbelt så stor
+-  VfR Aalen: Zwei neue Stürmer und ein altes Problem
