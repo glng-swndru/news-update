@@ -1,11 +1,11 @@
 # Latest News
--  Andrew Tate elmondta, mire lenne képes Orbán Viktorért
--  Přípravy na ligu ONLINE: klokani znají jedničku, Slováci (se) baví před Slavií
--  Ajax vs PSV: ¿A qué hora juega Chucky Lozano HOY y dónde ver ONLINE partido de Eredivisie?
--  Irlande du Nord. « Un jour historique » : le gouvernement dirigé par une républicaine, une première
--  Hazavinnék az olasz jogászok az antifa támadássorozat elsőrendű vádlottját Magyarországról
--  Léo Pinheiro pede a Toffoli suspensão da multa de R$ 45 milhões da Lava Jato
--  Vieri sicuro: "Devastanti. Possono vincere scudetto e Champions League"
--  Przemowy, gratulacje, podziękowania i życzenia. Strażacy zawodowi podsumowali 2023 rok
--  Банкомати в Австрії перестали працювати з картками Газпромбанку
--  Egyre nagyobb a baj: Nigéria egyik uralkodóját meggyilkolták, a feleségét pedig elrabolták
+-  David Fofana's dramatic double earns Burnley comeback draw against Fulham - The Guardian
+-  Jak on to ustał?! Niebotyczny rekord w Willingen. Zrobił to dzień po dniu [WIDEO]
+-  Xavi punge: "Il Real condiziona gli arbitri". Ancelotti non risponde: "Non mi abbasso al suo livello"
+-  Koudelka ve Willingenu neudržel 17. místo, rekordním skokem vyhrál Forfang
+-  Ove efektne sobne biljke manje su poznate, a u trenu podižu cijeli interijer
+-  Igreja comprada por Ludmilla custou cerca de 750 mil reais, diz jornal
+-  Дармщат - Байер Леверкузен 0:2 /репортаж/
+-  Kava vam može pomoći da smršavite, a evo koliko šalica dnevno je potrebno
+-  Lilia Lemoine presentó una denuncia en la Justicia por las amenazas recibidas en las redes
+-  Katlanabilir bir iPhone'u ne zaman göreceğiz? Artık tahmini bir tarihimiz var...
