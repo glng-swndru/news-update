@@ -1,11 +1,11 @@
 # Latest News
--  Radical plan to save Godfreys after collapse
--  Radical plan to save Godfreys after collapse
--  Das sagt der Chef-Kardiologe über das Klinik-Aus bei Ameos
--  Mahnbescheid: Bezahlen oder Widerspruch? So reagiert man richtig
--  Erschreckender Anblick: Das wurde aus dem Nordenhamer Strandwald
--  Pixie the potbelly pig rescued after roaming a construction property in Arizona
--  AFRIKA CUP. Sprookje blijft duren: Hugo Broos met Zuid-Afrika na zenuwslopende penalty’s naar halve finale
--  Kao da niko nije hteo da prođe - Južna Afrika otišla na Nigeriju posle katastrofalnih penala
--  Tin chuyển nhượng 4/2: Mbappe gia nhập Real, ngã ngũ vụ Sane thay Salah?
--  Presidente confirma 46 mortos por incêndios florestais no Chile e teme mais vítimas
+-  "Не выживете". Киеву сообщили о смертельной угрозе на фронте
+-  Gaziantep'te helikopter düştü: 2 pilot şehit
+-  「懐かしい」クバの葉で籠作り楽しむ 伊平屋村の海産物や泡盛などの特産品並ぶ 那覇市久茂地で観光・物産フェア きょう2月4日まで - 沖縄タイムス＋プラス ニュース
+-  CAN 2023: Cabo Verde colapsa nos penáltis
+-  Culk aus Wien in Stuttgart: Postpunk-Melancholie im Merlin
+-  Justin Bieber de volta? Cantor retorna aos palcos mais de um ano depois de último show
+-  Jak souvisí lanovka, ptačí cvrlikání a laser? Francouzský fyzik za spojení dostal Nobelovu cenu
+-  Bombardeio em área da Ucrânia ocupada pela Rússia deixa 20 mortos
+-  尹정부 첫 노사정 대화, 모레 열린다…'근로시간·계속고용' 논의
+-  Helikopter Düştü! 2 Pilot Şehit Oldu!
