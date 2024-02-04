@@ -1,11 +1,11 @@
 # Latest News
--  Sjukdomssmäll för LHC – de missar publikfesten
--  Wie is 'Flora' toch? De mysterieuze slavin die op een landgoed in Zuid-Afrika is gevonden, verdient nieuw onderzoek
--  Osmaniye'ye şehit ateşi düştü
--  A Fidesz alelnökétől bérel irodát a tankerületi központ
--  Milli Emlak 3 ilde KDV'den muaf arazi satacak!
--  Ivan Pažanin oduševio je svoje pratitelje: ‘Savršenstvo. 50 nijansi...‘
--  Україна вже потопила п'яту частину Чорноморського флоту РФ, - Bild
--  Экс-командующий Южным военным округом избран главой ДОСААФ России
--  Tarım Kredi Market'te yumurta fiyatı dibi gördü! O tarihe kadar geçerli olacak
--  Chris Farrell: Index funds can help you reach your retirement goals
+-  Cumhurbaşkanı Erdoğan'dan önemli açıklamalar
+-  Elcsendesedett a holdi éjszakában, talán már sosem ébred fel a japán holdszonda, a SLIM
+-  Oscar-winning director Mark Gustafson remembered as irreverent soul who was serious about animation
+-  Star-DJ: Gigi D’Agostino will nach Erkrankung wieder durchstarten
+-  La apretada agenda de Taylor Swift para llegar al Super Bowl
+-  Dienvidkoreja nosoda Krievijas nekompetentos komentārus par drošību reģionā
+-  A kormány szerint a felmondott pedagógusok próbálnak visszasomfordálni a rendszerbe
+-  Star-DJ: Gigi D’Agostino will nach Erkrankung wieder durchstarten
+-  Chayanne quiere unirse al trend de Tiempo de Vals en TikTok
+-  Tauron 1. Liga siatkarzy: PSG KPS Siedlce – Lechia Tomaszów Mazowiecki. Relacja live i wynik na żywo
