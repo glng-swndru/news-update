@@ -1,11 +1,11 @@
 # Latest News
--  Cafer Güneş kimdir?
--  Сакраменто Кингс обмисля раздяла с Александър Везенков
--  Hamilton: «Vou viver outro sonho infância e conduzir um Ferrari»
--  Motorola-Smartphone-Test: Die besten Handys der amerikanischen Traditionsmarke
--  "Powiedzmy wprost". Mocny komentarz Morawieckiego
--  Ancelotti iskreno progovorio o Modriću: ‘Takve odluke su mi najteže, iznimno mi je teško i komplicirano‘
--  بتمويل كويتي وفد جمعية النجاة الخيرية يفتتح مشروع إنشاء قرية الدبوس بالحديدة
--  Pio! Pio! Pio! Piątek znów z golem! [WIDEO]
--  «Страна․ua»: военкомы в Киевской области избили мужчину после вручения повестки
--  Видеообзор матча чемпионата Казахстана «Астана» — «Актобе» 1:5
+-  Demonstracije u Njemačkoj protiv krajnje desnog ekstremizma, Šolc:...
+-  Sénégal : Macky Sall prend position dans le conflit entre l'Assemblée nationale et le Conseil constitutionnel
+-  'Me estaban linchando': ataque brutal a periodista y camarógrafo de TV en Bogotá |Video
+-  DHMZ JAVLJA Temperatura na obali i do 17°C
+-  Fontos levelet küldött a Simple az iOS felhasználóknak
+-  "Сакраменто" може да се раздели с Везенков
+-  Najbolja bh. skijašica novu utrku starta u ponedjeljak
+-  Nastavili jsme zrcadlo ekologickým aktivistům, říkají autoři nekorektní francouzské komedie Těžký rok
+-  Olivia Culpo Buys Super Bowl Box to Surprise Christian McCaffrey's Mom
+-  SM-liigaottelu viivästyy erikoisesta syystä
