@@ -1,11 +1,11 @@
 # Latest News
--  Recht haben und Recht beweisen: Warum Dr. Thomas Hölscher aus Datteln Jurist wurde
--  'Ah!nana', bazterrekoen bazterra
--  Unfall in Herten: Zehnjährige kam nach Zusammenstoß mit Auto verletzt ins Krankenhaus
--  Yazar Gül Çetin: Kültürel mirasımızı korumak
--  Золото и бронза. Юные украинские шпажистки – вдвоем на пьедестале в Тбилиси
--  سرمربی قطر: جاه‌طلبی ما ادامه دارد/ بازی سختی با ایران خواهیم داشت
--  Anxious Portsmouth wait continues over injury fears for ex-Bristol City man
--  Fabian und Caroline Bröggelhoff sagen Ja: Die „fette“ Hochzeitsparty kommt erst 2025
--  Konami quería relanzar Silent Hill clásicos para sistemas actuales
--  Sobe para 51 número de mortos por incêndios florestais no Chile
+-  Forscher lösen Rätsel um Schwarze Löcher, die mysteriöse Teilchen auf nahezu Lichtgeschwindigkeit beschleunigen
+-  Sugieren no hablar de Palworld en redes para evitar problemas con Pokémon
+-  Pocta Ettore Bugattimu. Na sporťáku slavné značky pracoval Král osmnáct let
+-  SK E&S, 호주와 LNG 자원개발·CCUS 기술 협력 강화
+-  Kriminalist: Aufklärung im Fall Rebecca noch möglich
+-  Quedé sorprendido por algunos discursos en el Congreso
+-  Токкет — о свисте в адрес Кучерова на Матче звезд: «Я сказал ему, что все ненавидят победителей»
+-  Miksi tätä ei keksitty aiemmin? Vesijohdoilla voi tuottaa sähköä
+-  Bocah 12 Tahun yang Hilang Tiga Hari Ditemukan di Sungai Barabai, Dievakuasi ke RSUD H Damanhuri
+-  PSM vs Persita di Liga 1 Hari Ini, Adu Taktik 2 Pelatih Eropa di Stadion Batakan Balikpapan
