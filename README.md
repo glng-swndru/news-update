@@ -1,11 +1,11 @@
 # Latest News
--  800.000 Unterschriften: Die wichtigsten Fragen und Antworten zur AfD-Verbotspetition: So geht es jetzt weiter
--  Kaczyński uderzył w Trzaskowskiego: Problemy zostały wzmożone. Wynikają z pewnego typu ideologii
--  Hamas deploys police, distributes funds in sign of resurgence in Gaza
--  "VOJSKA BOŽIJA" STIGLA NA GRANICU: Napetost raste na prelazu između Teksasa i Meksika (VIDEO)
--  Hamas deploys police, distributes funds in sign of resurgence in Gaza
--  Hamas deploys police, distributes funds in sign of resurgence in Gaza
--  Kejutan, Xavier Cannefax Bawa Bali United Kalahkan Juara Bertahan IBL di Pulau Dewata
--  Hamas deploys police, distributes funds in sign of resurgence in Gaza
--  Hamas deploys police, distributes funds in sign of resurgence in Gaza
--  "We are shocked": Man who died in Elgin Bus Station incident confirmed as bus driver for Stagecoach
+-  HDZ ODGOVORIO MILANOVIĆU Nema više nedodirljivih kao u SDP-ovu mandatu
+-  Nach US-Schlägen in Syrien und Irak: Droht jetzt ein Flächenbrand?
+-  Το πόρισμα του ιατροδικαστή για τον αιφνίδιο θάνατο του βρέφους στο Διδυμότειχο - Το «βαρύ» παρελθόν της οικογένειας
+-  Manchester United whizkid on fire, sends Ten Hag a message in latest U18 win
+-  WYCIEKŁY NAZWISKA uczestników nowej edycji "Azji Express". Kogo zobaczymy na ekranach?
+-  Vom Schlagabtausch zum Flächenbrand: Wie nah sind USA und Iran am Krieg?
+-  Newsletter: No, it isn’t ‘scientifically impossible’ to cross the Atlantic Ocean
+-  Valur gerði góða ferð norður
+-  Global warming can affect the ability of forests to suck carbon from atmosphere, shows study - Scroll.in
+-  Apple Vision Pro için 600'ün üzerinde yeni uygulama ve oyun tanıtıldı
