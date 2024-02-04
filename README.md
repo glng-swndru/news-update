@@ -1,11 +1,11 @@
 # Latest News
--  Pria di Bantul Curi Uang dari Kotak Infak Masjid
--  «Ренн» победил «Монпелье» в домашнем матче
--  Incêndios florestais deixam 19 mortos e grande destruição em região turística do Chile
--  Ostapenko iekļūst Lincas "WTA 500" sērijas turnīra finālā
--  130 مليون مستخدم في Threads
--  Meloni fail. Condoni e sanatorie hanno l'effetto opposto: crescono le tasse non pagate
--  Abre o jogo sobre conta no OnlyFans: "Olha..."
--  VfR Aalen: Zwei neue Stürmer und ein altes Problem
--  Affären vill växa – kan bli nästan dubbelt så stor
--  VfR Aalen: Zwei neue Stürmer und ein altes Problem
+-  Tchad : état de dégradation avancée pour le Stade omnisport de Begou
+-  Aydınlı çiftçilerin destek ödemeleri yapıldı
+-  Χιλή: Τουλάχιστον 19 νεκροί σε δασικές πυρκαγιές στην παραλιακή πόλη Βίνια ντελ Μαρ
+-  Dansbanan full – av Volvobilar
+-  JUGOVIĆ OTVORENO O VLAHOVIĆU: Nije bitno da li si dobar napadač, već trofeji
+-  Jóhann átti þátt í dramatísku marki (myndskeið)
+-  Začíná rozsáhlá rekonstrukce slavné Kotvy. Přemění se na luxusní obchodní dům
+-  Przełamał się! Pierwszy taki gol Lewandowskiego od ośmiu miesięcy [WIDEO]
+-  KKTC Alüminyum Doğramacılar Birliği Derneği’nin başkanı Ediz Taşkınçay oldu
+-  DIREKT: 20.00: Vilka låtar tar sig vidare från Malmö?
