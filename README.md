@@ -1,11 +1,11 @@
 # Latest News
--  Kulinarični prepiri: kdo si je izmislil maslenega piščanca po indijsko?
--  El Girona, ante el espejo de otras ‘Cenicientas’
--  «Man spürt dabei so viel»: Töpfern ist wieder in – weil es meditativ ist und von allem anderen ablenkt
--  La star du Real Madrid libérée par Mbappé ?
--  Carroll's Isabelle Erickson logs career-high after 'trying to find that feeling again'
--  «Man spürt dabei so viel»: Töpfern ist wieder in – weil es meditativ ist und von allem anderen ablenkt
--  I’m a mum of two earning Sh65,000 but unable to save anything. How do I budget to be saving Sh10,000 monthly?
--  D1A: accroché à Molenbeek, le Standard marche sur un fil
--  Großer Andrang - SCU Thaya lud zur Faschingsparty: Närrisches Treiben im Gemeindesaal
--  США нанесли новый удар по Йемену и уничтожили крылатую ракету хуситов
+-  NIJE BILO DOMAĆICE U JUGOSLAVIJI KOJA NIJE ZNALA DA SPREMI PAPAZJANIJU: Ovo jelo je palo u zaborav, ali UKUS mu je odličan RECEPT
+-  Manual de instrucciones para pensar en el tiempo y no perderlo
+-  Τι λένε τα ζώδια για σήμερα Κυριακή 4 Φεβρουαρίου 2024
+-  Lovec izolátorů umí ve sklepě vyčarovat blesky. Vydejte se k němu na návštěvu
+-  Lok Sabha Elections 2024: BJP’s Minority Front To Launch New Campaign ‘Quami Chaupal’ To Woo Muslim Voters in Western Uttar Pradesh
+-  Sherrone Moore Net Worth: How Much Has the New Michigan Coach Earned Thus Far?
+-  Gempa Pagi Hari Ini Minggu 4 Februari 2024: Terjadi Empat Kali Getarkan Indonesia
+-  Tinubu has capacity to restructure Nigeria – Ndoma-Egba
+-  افزایش ظرفیت خط تولید نانوکامپوزیت ایرانی در کانادا با سرمایه مشتریان
+-  Mục tiêu dang dở của Israel sau gần 4 tháng khai chiến với Hamas
