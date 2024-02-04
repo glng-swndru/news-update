@@ -1,11 +1,11 @@
 # Latest News
--  대출 보이스피싱 전화 속 '그 목소리' 징역 5년 6월
--  Hamas dengelerini bozdu, İsrail'in yıkılması yakın
--  18 gadniekam Rokem 13 minūtēs vārti un noraidījums "Barcelona" uzvarā
--  Joshua Buatsi vs Dan Azeez LIVE RESULT: Latest fight updates from huge Wembley Arena clash – latest
--  ANKETA Je li Osijek protiv Hajduka zakinut za jedanaesterac?
--  Mistókst að fara upp í toppsætið
--  Bayern-Trainer sauer - Tuchel schlägt Entschuldigung von Sky-Mann aus: „Er hat Grenze überschritten“
--  Milan et Bologne s’imposent sur le fil
--  Domaća glumica pokazala kako izgleda bez trunke šminke: ‘Pogledajte ovu s filterom, a kakva sam u stvarnosti‘
--  GTK introduce dos nuevos renderizadores: uno para GL y otro para Vulkan
+-  Voleybolda büyük heyecan: Fenerbahçe - Galatasaray derbisi
+-  Alexis Mac Allister reveals impact Jurgen Klopp exit news has had on Liverpool dressing room
+-  Das grosse Abc – unser Sprachquiz: Kennen Sie diese LGBTQIA+-Begriffe?
+-  Dengue: Brasil registra mais de 243 mil casos prováveis da doença
+-  Represión en el Congreso: el reportero gráfico platense y otros detenidos fueron liberados
+-  ダイソーの激ウマお菓子5選
+-  「断らない救急」に密着 社会問題と命を救う難しさに直面する一作「その鼓動に耳をあてよ」
+-  Bruno Fernandes reminds Man Utd squad of responsibilities on Munich tragedy anniversary
+-  Mercato : Mbappé au Real Madrid, le PSG prépare sa vengeance
+-  সয়েল টেস্ট কেন প্রয়োজন
