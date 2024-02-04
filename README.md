@@ -1,11 +1,11 @@
 # Latest News
--  طرز تهیه سیب زمینی تنوری در قابلمه با سنگ ؛ یک میان وعده جذاب که عاشقش می‌شوید
--  احتجاز 1000 من نشطاء المناخ في لاهاي بهولندا
--  Икономичен Ланс взе своето срещу Нант
--  Rusija optužila SAD da namjerno žele eskalirati sukob: Sastaje se Vijeće sigurnosti
--  «Θα το τραβήξω μέχρι τέρμα» λέει ο πατέρας της ανήλικης από το Κερατσίνι που τη βίαζε ο παππούς της
--  Botafogo faz 2 a 0, mas vacila e cede empate no final para o Nova Iguaçu pelo Carioca
--  CGTN: Čas strávený s ľuďmi: Čínska novoročná tradícia prezidenta Xi Jinping
--  Jokowi Habiskan Malam Minggu Bareng Kaesang dan Elite PSI di Braga Bandung
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 4 февруари /валутен калкулатор/
--  Régional 1 : but vainqueur, carton rouge et ange gardien... Montluçon remporte le derby de l'Allier contre Domérat (1-0)
+-  대출 보이스피싱 전화 속 '그 목소리' 징역 5년 6월
+-  Hamas dengelerini bozdu, İsrail'in yıkılması yakın
+-  18 gadniekam Rokem 13 minūtēs vārti un noraidījums "Barcelona" uzvarā
+-  Joshua Buatsi vs Dan Azeez LIVE RESULT: Latest fight updates from huge Wembley Arena clash – latest
+-  ANKETA Je li Osijek protiv Hajduka zakinut za jedanaesterac?
+-  Mistókst að fara upp í toppsætið
+-  Bayern-Trainer sauer - Tuchel schlägt Entschuldigung von Sky-Mann aus: „Er hat Grenze überschritten“
+-  Milan et Bologne s’imposent sur le fil
+-  Domaća glumica pokazala kako izgleda bez trunke šminke: ‘Pogledajte ovu s filterom, a kakva sam u stvarnosti‘
+-  GTK introduce dos nuevos renderizadores: uno para GL y otro para Vulkan
