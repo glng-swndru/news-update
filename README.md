@@ -1,11 +1,11 @@
 # Latest News
--  Moskou stelt dat zeker 20 doden vielen bij beschietingen op door Rusland bezette stad
--  رئیس سابق موساد: اسرائیل باید بهای سنگینی برای بازگرداندن اسرا بدهد
--  Exercise shapes our gut health, study finds - News-Medical.Net
--  Why you should delete these apps from your Android phones - Times of India
--  BEYOND LOCAL: Saskatchewan collector finds rare case containing coveted Wayne Gretzky rookie cards
--  청소년 성 착취물 제작한 20대, 징역 4년
--  Nguyên nhân xe khách chở 37 người lao xuống vực sâu ở Kon Tum
--  特殊詐欺の被害を防止 宇和島のコンビニ店員と郵便局職員に警察から感謝状【愛媛】
--  Phân luồng các tuyến đường quanh hồ Tây để phục vụ lễ hội ánh sáng
--  65,000 lab tests done in Delhi's mohalla clinics 'fake' finds ACB probe
+-  Запад должен победить РФ, как победил нацистскую Германию во Второй мировой – венгерский евродепутат
+-  기안84X빠니보틀X덱스X이시언, ‘완전체’로 맞이한 첫 일출 (태계일주3)
+-  Amusan set to challenge Charlton at New Balance Grand prix
+-  Không khí Tết rộn ràng khắp phố phường
+-  임종석 “초보 한동훈, 아니면 말고 식 정치…대단히 어리석어”
+-  Chỉ số lương thực thế giới thấp nhất trong gần 3 năm
+-  開幕投手指名の巨人・戸郷「任せてください」 厄払いも済ませじっくり調整 視察した山口オーナー「大黒柱」 宮崎キャンプ - 沖縄タイムス＋プラス プレミアム
+-  Giải mã đôi giày đế gỗ cao lênh khênh kì dị trong phim cung đấu: Phi tần thời nhà Thanh đi lại thế nào để không bị ngã?
+-  नीतीश कुमार की कैबिनेट का फैसला करेंगे पीएम मोदी और अमित शाह, दिल्ली में होनी है बड़ी बैठक
+-  Sivitas Akademika Ramai-ramai "Jewer" Jokowi, Bantah Tudingan Ditunggangi Kepentingan Politik
