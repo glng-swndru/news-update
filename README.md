@@ -1,11 +1,11 @@
 # Latest News
--  De tijd tikt voor informateur Plasterk, deadline eindverslag nadert
--  Глава Минздрава объяснил выгоду от замещения зарубежных препаратов российскими
--  Звезда «50 оттенков серого» вышла в свет в прозрачном платье
--  Ayvalık açıklarında 51 düzensiz göçmen, motor arızalı botla sürüklenirken kurtarıldı
--  김주현 금융위원장, 설 앞두고 전통시장 방문…민생현장 살펴
--  MATERI Soal Sejarah Peminatan Kelas 10 SMA Ulangan/Ujian Semester 2 Tahun 2024 Lengkap Kunci Jawaban
--  Denize düşerek hayatını kaybeden kılavuz kaptanın güvenlik kamerasına yansıyan görüntüleri ortaya çıktı!
--  윤 대통령 "명절 물가 관리 · 사고 방지에 만전 기해야"
--  기시다 “북일 정상회담 통해 납북 피해자 귀국 실현하겠다”
--  세기말 여름 서울 사망자 82% ↑…탄소중립 실천한다해도 사망자 발생
+-  Сенатът в САЩ обяви компромисна сделка с помощ за Украйна, но тя вече е под въпрос
+-  Aufwärts mit Donald Trump? Das bedeutet die US-Wahl für Ihre Geldanlage
+-  Vorbild für Städte in Deutschland?: Paris geht gegen SUV vor – Parkgebühren steigen drastisch
+-  『今週のASCII.jp注目ニュース』生放送（2024年2/3～2/9ぶん）
+-  진해성 핫하다 핫해~ ‘트롯픽’ 수퍼노바 1위 [DA:차트]
+-  Pamukkale CHP'de Belediye Meclis Üyesi adayları belli oldu
+-  Humanitaires français tués en Ukraine : l'ambassadeur de Russie en France convoqué au Quai d'Orsay
+-  A ludicrously cheap FTSE 250 stock I’d buy right now!
+-  5 bin yıllık kente yolculuk
+-  한국식품연구원 공공기관 해제⋯우수 연구인력 확보 과제로
