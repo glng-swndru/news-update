@@ -1,11 +1,11 @@
 # Latest News
--  На Прикарпатті доросла донька через суд вимагала від матері аліментів: чим усе закінчилося
--  Unfall in Heidelberg: Herzinfarkt am Steuer: Mann fährt durch Kleingartenanlage
--  Unfall in Heidelberg: Herzinfarkt am Steuer: Mann fährt durch Kleingartenanlage
--  Unfall in Heidelberg: Herzinfarkt am Steuer: Mann fährt durch Kleingartenanlage
--  Зеленский посетил позиции ВСУ в Работино. ВИДЕО+ФОТОрепортаж
--  Superquiz and Target Time, Monday, February 5
--  3 Promising AI Stocks That Are Cheaper Than Nvidia
--  Superquiz and Target Time, Monday, February 5
--  DEM Parti'den İmamoğlu'na destek yok
--  Bộ Nội vụ đề xuất bổ sung quy định xác định "nguồn nhân sự tại chỗ"
+-  Şehit Piyade Uzman Çavuş Kadir Dingil son yolculuğuna uğurlandı
+-  Ještě není jasné, kolik nových jaderných bloků vznikne, říká Stanjura
+-  Edirne'deki uyuşturucu operasyonlarında 2 şüpheli gözaltına alındı
+-  Zwischen Laufsteg und TV-Show: Heidi Klum will es nicht ruhiger angehen
+-  Chesnais-Girard met fin aux délégations de Christian Troadec à la région Bretagne après son accident
+-  Zwischen Laufsteg und TV-Show: Heidi Klum will es nicht ruhiger angehen
+-  Ispanijoje – „Real“ pergalė ir triuškinantis „Baskonia“ pralaimėjimas
+-  Пирин освободи треньора си 2 седмици преди рестарта на Първа лига
+-  Luciano Rodríguez: su futuro, la ilusión de jugar en la selección mayor y el Preolímpico
+-  Zwischen Laufsteg und TV-Show: Heidi Klum will es nicht ruhiger angehen
