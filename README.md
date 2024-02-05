@@ -1,11 +1,11 @@
 # Latest News
--  Severe Storm Threatens California
--  말다툼→몸싸움으로 경찰 부른 부부…오은영 깊은 한숨 (결혼 지옥)
--  Ganjar Pranowo Mau Alokasi Wajib Anggaran Kesehatan Sebesar Lima sampai 10 Persen dari APBN
--  Arsenal tewaskan Liverpool
--  뉴진스, 드디어 터졌다...‘OMG’ 스포티파이 6억 스트리밍 돌파
--  Hoa khôi bóng chuyền Việt Nam sinh quý tử trước tết Nguyên Đán, hạnh phúc ngập tràn sau cuộc hôn nhân ‘kín tiếng’
--  48 giờ truy bắt nghi phạm cướp ngân hàng ở Nghệ An
--  Los ‘looks’ que conquistaron la alfombra roja de los Premios Grammy 2024
--  Guilherme anota duas vezes e garante vitória do líder Santos sobre o Guarani
--  Suzuki Jimny XXL? Six-wheel off-roader ute revealed
+-  Why a napkin that changed Messi’s life is worth almost $600,000
+-  Неправильный перевод пенсионных накоплений может привести к потере инвестдохода
+-  Dogs should be allowed on trains. It’s their owners I’m more worried about
+-  5 loại tư duy giúp cuộc sống bớt mệt mỏi, rèn luyện ngay để nửa đời sau ung dung hưởng phúc
+-  Chứng khoán đón sóng sau Tết?
+-  Beetlejuice 2 Is Really Called Beetlejuice Beetlejuice
+-  The question your NRL club wants answered in February trials
+-  NCT泰容韓文拼寫錯太多被指「無知」，引網友熱評：如果是女團成員的話，會被嘲笑一輩子吧
+-  The question your NRL club wants answered in February trials
+-  La alimentación perfecta que te aportará la cantidad de colágeno necesaria para retrasar el envejecimiento de la piel
