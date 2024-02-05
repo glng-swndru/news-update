@@ -1,11 +1,11 @@
 # Latest News
--  Pakistanda sel: 1 ölü
--  Vilja að saumavélarnar komist í skjól
--  Az LMP felszóllította Lázár Jánost a HÉV-ek járatritkításának visszavonására
--  Naš pjevač David Ricov preminuo je u dobi od 37 godina, glazbom se bavio od malih nogu i svi su ga obožavali
--  OD 1. SVIBNJA 2025. NOVI PROPIS U NJEMAČKOJ: Odnosi se na skoro sve osobe koje trebaju nove dokumente
--  وزير الأشغال يلتقي الرئيس التنفيذي لمجموعة H S
--  UMRLA JE SA 34 GODINE Potresna životna priča pisca Igora Marojevića o porodici i delima: Skupljam snage da napišem ROMAN O SESTRI
--  Eğitimde 2. dönem başlıyor
--  U.S. Court Mandates Ryder Ripps to Pay Yuga Labs $9 Million in Final Judgment
--  Ossada humana é encontrada em usina abandonada de MS
+-  VIDEO I FOTO Tražili smo stan za najam u Zagrebu, evo što se nudi i koliko košta
+-  «Вильярреал» и «Кадис» не забили голов в матче ла лиги
+-  Erdoğan açılışını yaptığı hastanede tedavi gören çocukları ziyaret etti
+-  Fluminense tem início de temporada ainda melhor que em 2023; Compare
+-  Gegen Gesetz verstoßen: Darum verklagen Verbraucherschützer die Deutsche Bahn
+-  Debat Pilpres 2024: Anies dan Prabowo Sepakat Cara Mensejahterakan Guru di Indonesia
+-  Policija objavila priopćenje o jučerašnjoj utakmici u Osijeku
+-  Nhìn thấy bố mẹ dùng chiếu đắp cho dễ ngủ, chị chồng liền mua máy sưởi biếu, nào ngờ chồng tôi đòi đập nát
+-  De moordenaar van Epe MOET zich melden
+-  Manželé žalují Google za to, že je jeho Mapy poslaly do oblasti, kde je okradli ozbrojení zloději
