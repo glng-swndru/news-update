@@ -1,11 +1,11 @@
 # Latest News
--  Elektrik direği havai fişek gibi patladı
--  إقامة دورة تدريبية لموظفي إدارات التسجيل بكليات جامعة عدن
--  戸建てバブル崩壊前夜！ファミリー層の購入意欲減退で、住宅メーカー「最後の死闘」が始まった - 住宅メーカー最終決戦！戸建てバブル崩壊秒読み
--  Soccer-They're only human, Klopp says, as Liverpool self-destruct
--  FOTO/VIDEO Završio pohod Triljskih starogradskih mačkara
--  L’Umbria vola alla Bit di Milano per confermare il momento d'oro del turismo: la presentazione degli eventi
--  Não tem dúvidas sobre vencedor do Big Brother (e não é Miguel Vicente)
--  Bursa'da Turkcell Türkiye 16 Yaş Altı Salon Atletizm Şampiyonası gerçekleştirildi
--  Kempný podpis nové smlouvy oslavil výhrou a dvěma asistencemi
--  Помощник Байдена об ударах по Ирану: «Президент сделает то, что считает нужным»
+-  Arteta: Liverpool er líklega besta lið Evrópu
+-  Venemaa president Vladimir Putin külastab peatselt Türgit
+-  Worauf es für Biden jetzt ankommt
+-  ¡GOL DE WATERMAN! Alianza Lima anotó el 1-0 en Sullana con inesperada asistencia de Castillo
+-  Bremer strepitoso: salva la Juve negando il gol a Thuram con un miracolo – VIDEO
+-  EN DIRECT - Toulon-Bordeaux-Bègles: l’UBB refroidit Mayol d’entrée
+-  Salt Water Is The Liquid Hero You Need To Rescue Ordinary Bland Potato Chips
+-  Aaj Ka Kark Tarot Card: कर्क राशि वालों को परिजनों का सहयोग बना रहेगा, आगे बढ़ते रहें
+-  Politiet: Drapsetterforskning etter dødsfall i Fana
+-  Hibernians b’rebħa komda fuq Santa Lucia
