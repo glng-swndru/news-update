@@ -1,11 +1,11 @@
 # Latest News
--  Oğuz Erge'nin ailesinin avukatları: Katilin cezaevinde saldırıya uğradığı doğru değil
--  Silahlı saldırıya uğrayan gazeteciden ilk açıklama
--  Vliegangst niet om te lachen | Recensie
--  58 km metro yapacaktı! 5 yılın sonunda 'İnşaata başlayacağız' dedi
--  ”Uusia Citymarketeja ei ole tullut pitkään aikaan, mutta nyt niitä tulee” – Keskon uusi pääjohtaja kertoo KL:n haastattelussa, mitä kauppajätille tapahtuu
--  Διερευνητικές κινήσεις σε θετικό έδαφος στο Χρηματιστήριο
--  Şanlıurfa'da DEAŞ operasyonunda 4 tutuklama
--  C.sinistra: Boccia, 'se Conte guarda a passato non si costruisce alternativa'
--  So entwickelt sich der Arbeitsmarkt in Hessen
--  Potražnja za radom manja za 6,7 posto na godišnjoj razini
+-  Χριστίνα Κοντοβά: Mε την κόρη της σε καταφύγιο αδέσποτων ζώων
+-  Könnt ihr das neue Rätsel lösen? Das Schlagzeilen-Raten auf TT.com
+-  Bakan Uraloğlu açıkladı: Yüzde 30 indirim yapıldı
+-  Mexico đăng cai trận khai mạc World Cup 2026, Mỹ tổ chức 78/104 trận
+-  Sporting: ultrapassar e mudar o ‘chip’
+-  OBJAVLJENE SLUŽBENE CIJENE Evo koliko koštaju letovi iz Mostara za Rim, Veronu i Munchen
+-  Westhill's Calum McIlroy takes the Young Traditional Musician 2024 title
+-  【島根スサノオマジック】アウェイで三遠に痛い連敗 エース・安藤が不在 ＣＳ進出へ正念場
+-  Dieter Bohlen: Heimliche Hochzeit mit seiner Carina
+-  Europawahl 2024: SPD-Spitzenkandidatin Barley will besseres Wahl-Ergebnis als 2019
