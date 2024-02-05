@@ -1,11 +1,11 @@
 # Latest News
--  Baden-Württemberg: Weniger Aufträge im Jahr 2023 für die Industrie
--  Nel Lazio quasi il 60% dei bambini sotto i 12 mesi utilizza lo smartphone
--  4 Serba-serbi Lelang Raket Rafael Nadal
--  다이빙 김나현, 세계선수권 여자 10m 결승 진출 좌절…준결승 16위
--  Politique. Rejet de la motion de censure : « Je ne me laisserai jamais intimider » promet Attal
--  Gifuni: "ADL ha torto: Lindstrom non è esterno destro e lo si è visto col Verona"
--  Baden-Württemberg: Weniger Aufträge im Jahr 2023 für die Industrie
--  이재명 "준연동형제 유지"…범야 위성정당 시동
--  زيارة عمل للمدير العام للأمن الوطني إلى المملكة العربية السعودية
--  Güzide Parlak
+-  Why the next generation of West Australians are among the least educated in the country
+-  Tax cuts to dominate first sitting day
+-  A mesterséges intelligencia alkalmazási lehetőségeit mutatták be
+-  Scania sai lopullisen niitin rekkakartellista: 881 miljoonan euron sakot
+-  Thiem nur mehr die Nummer drei im Lande? Völlig wurscht
+-  Após Palmeiras perder título da Supercopa, Abel Ferreira diminui torneio: “Não é competição”
+-  Truancy, dropout rates at record high
+-  Bombones de chocolate sin horno ni azúcar: prepara en 5 minutos el postre estrella
+-  Uzdignute glave Severina stigla na sud
+-  Policeman Murdered At Tshabangu By-Election Polling Station
