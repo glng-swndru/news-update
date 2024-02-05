@@ -1,11 +1,11 @@
 # Latest News
--  Was hat Bad Wörishofens Pflicht zum Spielplatzbau bislang gebracht?
--  El próximo 15 de febrero retoma su actividad el programa #AulaEmpleo de la UCLM
--  Supporter gav sig på Linköpingsprofilen: "Knuffade mig"
--  Seul un ménage modeste sur dix est prêt pour l’électrique selon un sondage
--  NC braces for more problem gambling as online sports betting nears launch
--  Lottogewinn: Kreis Weseler Lotterieteilnehmer gewinnt bei Aktion Mensch
--  Dutton a thug, Morrison ‘duplicitous’: Turnbull unloads on enemies in Nemesis
--  Kifőzte a Balaton pálinkáját
--  Two women with heart disease had to fight for a diagnosis. Here’s how they advocated for their health - Fox News
--  The right way to use turmeric to get maximum benefit
+-  「円安に対応できている」「８８歳まで現役」 ニトリ会長インタビュー・一問一答
+-  Des parents d’élèves en lutte contre une probable suppression de poste à Burlot en septembre
+-  С 69% по-малко мигранти се опитват да преминат българо-турската граница
+-  Предложение: Репресирани, били в лагери, да могат да си купят до 3 г. осигурителен стаж
+-  Румъния, Швеция, Армения или Люксембург ще е водач в групата ни за Лигата на нациите
+-  Манчестър Сити се озърта за Кимих
+-  Des parents d’élèves en lutte contre une probable suppression de poste à Burlot en septembre
+-  Eight in 10 Brits would only use a public toilet if completely unavoidable, study finds
+-  Hari Kanker Sedunia: Ini Tantangan Besar yang Masih Terus Dihadapi Dalam Mengatasi Penyakit Kanker di Indonesia
+-  Opozícia podala ústavnú sťažnosť v súvislosti s novelou Trestného zákona
