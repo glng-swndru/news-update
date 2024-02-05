@@ -1,11 +1,11 @@
 # Latest News
--  Rakentamisluvista uhkaa tulla hepreaa maallikoille – Lappeenrannan rakennusvalvonnassa painopiste siirtyy ennakkoneuvontaan
--  وفيات الاثنين .. 5 / 2 / 2023
--  '학원 뺑뺑이' 이젠 그만…수업 후 골프·펜싱·코딩까지 배운다
--  卓球パリ代表は 13時半から会見
--  САЩ нанесе нови удари по йеменските хути
--  似顔絵で被災地支援 九州漫画の会や美術教師らが筆を走らせる【佐賀県佐賀市】
--  검찰 ‘고가매입 의혹’ 윤경림 전 KT 사장 소환
--  Bringing in ‘good guy’ Mbeki might be a clever move by ANC
--  Sương mù dày đặc tại sân bay Nội Bài, ngành hàng không họp khẩn
--  新潟・弥彦山に登山へ出かけた６４歳男性 登山道から約５０ｍ下で発見も死亡確認 雪に滑って転落か
+-  京成線が一部区間で一時“運転見合わせ” 架線トラブルで4時間にわたり 午前9時に運転再開
+-  EU plant neue Russland-Sanktionen
+-  US and UK launch strikes on Houthi targets used to attack shipping
+-  Bắt giữ nghi phạm sát hại đồng hương người nước ngoài
+-  EU plant neue Russland-Sanktionen
+-  ‘신예’ 이광희, ‘브랜딩 인 성수동’서 재벌 3세로 파격 변신..김지은과 호흡
+-  Australian academic Yang Hengjun given suspended death sentence by Chinese court - The Guardian
+-  Vietnam remains RoK’s third trade partner in 2023
+-  Australian academic Yang Hengjun given suspended death sentence by Chinese court - The Guardian
+-  Nayib Bukele, el publicista que fabricó su propio fenómeno de culto
