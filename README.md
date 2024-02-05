@@ -1,11 +1,11 @@
 # Latest News
--  우주에서 878일을 보낸 사람이 있다…러시아 우주비행사 신기록 수립
--  Bäume, Pflaster und Markisen: In der Euskirchener Fußgängerzone gibt es viele Baustellen
--  Veja a programação de hoje das novelas
--  Lincas čempione Ostapenko pakāpjas uz 11. vietu WTA rangā
--  Intars Rešetins: "Mums jābūt gataviem X stundai"
--  Perrine, une Jamboise de 30 ans victime de deux cancers et d’une maladie rare, lance une cagnotte pour éviter la chaise roulante : « Je voudrais profiter de la vie avec mon petit garçon » (vidéo)
--  77 साल का बुजुर्ग और 22 साल की लड़की, INSTA पर दोस्ती-बंगले पर हत्या, क्या है कहानी?
--  Gérard Jugnot sera la vedette de la semaine culturelle en Eure-et-Loir
--  Назван обладатель «Грэмми» в номинации «Лучший новый исполнитель»
--  Parisliler, SUV'lerden üç kat fazla park ücreti alınması için sandık başında
+-  Bitlis'te gösteri yürüyüşü ve açık hava toplantıları 5 gün süreyle yasaklandı
+-  Rate cuts a double-edged sword for first-home buyers
+-  Aditya Zoni Ungkap Kondisi Ammar Zoni yang Baru Bercerai dari Irish Bella
+-  Politik Güğüm - 5 Şubat 2024
+-  로이터 “현대차 인도법인 올 하반기 상장 추진…4조 원 이상 조달”
+-  Asgari ücret zammı merhem olmadı! Market fiyatları resmen fırladı..
+-  Wel of geen azc. Heerenveen bouwt woningen op grond De Fryske Marren. 'Ik snap dat het misschien voelt als landjepik'
+-  Odvážná servírka zachránila z bazénu tonoucího chlapce, ostatní jen přihlíželi
+-  The Biggest Grammys Moments, From Taylor Swift's Historic Win to Miley Cyrus to Joni Mitchell
+-  Вертолет МЧС Ми-8 упал в Онежское озеро в Карелии
