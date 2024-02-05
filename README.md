@@ -1,11 +1,11 @@
 # Latest News
--  "Laprugne a peur !" : en Montagne bourbonnaise, l'ombre des Hauts de Cordat se fait plus pesante que jamais
--  El poliamor, de moda entre los jóvenes españoles
--  Poslovni partner Do Kvona izručen iz Crne Gore u Južnu Koreju
--  Tchad : Voici le programme des obsèques officielles pour le Général d’armée Daoud Yaya Brahim
--  Магия живого концерта Криса Нормана в Даугавпилсе: звук и свет
--  Dr Michael Mosley recommends 59p food to reduce blood pressure and inflammation
--  Chevron's earnings from int'l upstream projects grow y-o-y
--  Exclusive: Man United star “always wanted to stay” despite Saudi transfer rumours, says expert
--  Уничтожен российский дрон минирования на Таврическом направлении, - Тарнавский. ВИДЕО
--  Демокрация с една партия: Салвадор преизбра "най-готиния диктатор"
+-  Oğuz Erge'nin ailesinin avukatları: Katilin cezaevinde saldırıya uğradığı doğru değil
+-  Silahlı saldırıya uğrayan gazeteciden ilk açıklama
+-  Vliegangst niet om te lachen | Recensie
+-  58 km metro yapacaktı! 5 yılın sonunda 'İnşaata başlayacağız' dedi
+-  ”Uusia Citymarketeja ei ole tullut pitkään aikaan, mutta nyt niitä tulee” – Keskon uusi pääjohtaja kertoo KL:n haastattelussa, mitä kauppajätille tapahtuu
+-  Διερευνητικές κινήσεις σε θετικό έδαφος στο Χρηματιστήριο
+-  Şanlıurfa'da DEAŞ operasyonunda 4 tutuklama
+-  C.sinistra: Boccia, 'se Conte guarda a passato non si costruisce alternativa'
+-  So entwickelt sich der Arbeitsmarkt in Hessen
+-  Potražnja za radom manja za 6,7 posto na godišnjoj razini
