@@ -1,11 +1,11 @@
 # Latest News
--  ¡No te lo pierdas! El puntazo de 45 toques que levantó al público del Madrid Arena
--  ONLINE: Tenisté chtějí rozhodnout o postupu, debl hrají Pavlásek a Macháč
--  Here are the Grammy nominees from Montreal for tonight's show - CTV News Montreal
--  Türkiye'nin ilk astronotu Gezeravcı'dan dönüş mesajı
--  Kadınların temizlerken en çok yorulduğu küvet aslında nasıl temizlenmeli?
--  PORODILJSKO IM TRAJE 3 GODINE A DECA IM SPAVAJU NA TERASI Kad je Dubravka rešila tu da živi, nije znala da imaju 20 padeža
--  Cómo es Apple Vision Pro, los lentes de realidad virtual de US$3.500 que salen al mercado (y los problemas que ya enfrentan)
--  Antigo mordomo revela que vai abdicar do trono
--  Impreza godna mistrzostw kraju. Najlepsze drużyny z Wielkopolski zagrały w Miejskiej Górce [ZDJĘCIA]
--  Pasirengimo cikle – antrasis „Kauno Žalgirio“ pralaimėjimas
+-  На Прикарпатті доросла донька через суд вимагала від матері аліментів: чим усе закінчилося
+-  Unfall in Heidelberg: Herzinfarkt am Steuer: Mann fährt durch Kleingartenanlage
+-  Unfall in Heidelberg: Herzinfarkt am Steuer: Mann fährt durch Kleingartenanlage
+-  Unfall in Heidelberg: Herzinfarkt am Steuer: Mann fährt durch Kleingartenanlage
+-  Зеленский посетил позиции ВСУ в Работино. ВИДЕО+ФОТОрепортаж
+-  Superquiz and Target Time, Monday, February 5
+-  3 Promising AI Stocks That Are Cheaper Than Nvidia
+-  Superquiz and Target Time, Monday, February 5
+-  DEM Parti'den İmamoğlu'na destek yok
+-  Bộ Nội vụ đề xuất bổ sung quy định xác định "nguồn nhân sự tại chỗ"
