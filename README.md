@@ -1,11 +1,11 @@
 # Latest News
--  Сенатът в САЩ обяви компромисна сделка с помощ за Украйна, но тя вече е под въпрос
--  Aufwärts mit Donald Trump? Das bedeutet die US-Wahl für Ihre Geldanlage
--  Vorbild für Städte in Deutschland?: Paris geht gegen SUV vor – Parkgebühren steigen drastisch
--  『今週のASCII.jp注目ニュース』生放送（2024年2/3～2/9ぶん）
--  진해성 핫하다 핫해~ ‘트롯픽’ 수퍼노바 1위 [DA:차트]
--  Pamukkale CHP'de Belediye Meclis Üyesi adayları belli oldu
--  Humanitaires français tués en Ukraine : l'ambassadeur de Russie en France convoqué au Quai d'Orsay
--  A ludicrously cheap FTSE 250 stock I’d buy right now!
--  5 bin yıllık kente yolculuk
--  한국식품연구원 공공기관 해제⋯우수 연구인력 확보 과제로
+-  Nauja „TikTok“ funkcija siūlys atsisakyti vieno dažno įpročio: įdarbins akis, o ne ...
+-  Сенатът на САЩ гласува 118 млрд. долара за мерки по границата и за Украйна
+-  Justin Bijlow verdient vooral steun, zeker van zijn eigen achterban
+-  "Икономист": Сухопътен Шенген може да се забави след 2025 г.
+-  Impossibile espellere le belve dello stupro di Catania: ringraziate il Pd...
+-  Съдия от ВСС за Мартин Божанов: За 20 години практика не съм с сблъсквала с толкова немислимо поведение
+-  Grammy 2024: H Taylor Swift γράφει ιστορία και η Kylie Minogue κερδίζει βραβείο μετά από 20 χρόνια - Οι νικητές
+-  Column Willem van Hanegem | Justin Bijlow verdient vooral steun, zeker van zijn eigen achterban
+-  Kad se Jokić i Denver razgoropade...
+-  Потребителите на мобилни услуги - крепостници на операторите
