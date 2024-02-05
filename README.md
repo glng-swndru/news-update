@@ -1,11 +1,11 @@
 # Latest News
--  DATUM POTVRĐEN PRIJE 4 GODINE Međunarodni je dan ljudskog bratstva i sestrinstva
--  Nvidia cuenta con el 98% del mercado de GPU, según estimaciones de analistas
--  Manchester United boekt grootste thuiszege van het seizoen, Ten Hag klimt naar plek 6
--  Brühler Schüler verabschieden sich von Schach-AG Mentor Helmut Mehrer
--  Uppbyggingarsvæði endurmetin
--  Van der Poel sa stal šiestykrát majstrom sveta, Ulík došiel na konci štvrtej desiatky
--  “Nos dará una paliza”, director de Baldur’s Gate 3 reconoce la popularidad de Palworld
--  Да те пипнат за късмет: Какво е да си коминочистач в днешно време?
--  Panamá, invicta, deja agonizante a Nicaragua en la Serie del Caribe
--  Film 20 dní v Mariupolu nominovaný na Oscara je šokující svědectví o ruských zvěrstvech i Putinově vině
+-  Nikad veći izazov! Košarkašice Srbije otišle po vizu za Olimpijske igre
+-  Huhumylly leimahti: Lensikö Trumpin liittolainen Venäjälle?
+-  Dueto vedami vilniečiai galingu puolimu nušlavė „Šiaulius“
+-  "La Chronique des Bridgerton" : Netflix dévoile un premier extrait alléchant de la prochaine saison
+-  Cara Loves CH
+-  Вниманию метеочувствительных людей
+-  Liefde op de werkvloer: soms zijn de consequenties echt onhandig | column Irma van Steijn
+-  مؤشرات الادخار والاستثمار في الاقتصاد العُماني
+-  Blinken putuje na Bliski istok: Humanitarna pitanja u Gazi glavni prioritet posjete
+-  Liefde op de werkvloer: soms zijn de consequenties echt onhandig | column Irma van Steijn
