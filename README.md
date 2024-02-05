@@ -1,11 +1,11 @@
 # Latest News
--  Nauja „TikTok“ funkcija siūlys atsisakyti vieno dažno įpročio: įdarbins akis, o ne ...
--  Сенатът на САЩ гласува 118 млрд. долара за мерки по границата и за Украйна
--  Justin Bijlow verdient vooral steun, zeker van zijn eigen achterban
--  "Икономист": Сухопътен Шенген може да се забави след 2025 г.
--  Impossibile espellere le belve dello stupro di Catania: ringraziate il Pd...
--  Съдия от ВСС за Мартин Божанов: За 20 години практика не съм с сблъсквала с толкова немислимо поведение
--  Grammy 2024: H Taylor Swift γράφει ιστορία και η Kylie Minogue κερδίζει βραβείο μετά από 20 χρόνια - Οι νικητές
--  Column Willem van Hanegem | Justin Bijlow verdient vooral steun, zeker van zijn eigen achterban
--  Kad se Jokić i Denver razgoropade...
--  Потребителите на мобилни услуги - крепостници на операторите
+-  대구서 북콘서트 연 박근혜 “정치는 안하겠지만…보답 차원서 할 일은 할 것”
+-  Suchbild: Schneller Augentest: Sehen Sie, welcher Rucksack aus der Reihe tanzt?
+-  Au moins 112 morts, "grande tragédie" : les images des impressionnants feux de forêt qui ravagent le Chili
+-  Российские войска продвигаются в Донецке
+-  Au moins 112 morts, "grande tragédie" : les images des impressionnants feux de forêt qui ravagent le Chili
+-  AFP: Посла РФ вызовут в МИД Франции из-за гибели двух французов на Украине
+-  Jay-Z, discurs acid la Premiile Grammy. Rapperul a reproșat că Beyonce nu a primit niciodată cel mai prestigios premiu. VIDEO
+-  "Quê hương ơi": Bất kỳ ai xem cũng muốn chạy ngay về với mẹ cha khi Tết đang cận kề
+-  Świdry Podleśne. Wypadek samochodu osobowego. Jedna osoba trafiła do szpitala po dachowaniu na S61
+-  Kansere karşı mRNA devrimi başladı
