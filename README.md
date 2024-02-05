@@ -1,11 +1,11 @@
 # Latest News
--  「円安に対応できている」「８８歳まで現役」 ニトリ会長インタビュー・一問一答
--  Des parents d’élèves en lutte contre une probable suppression de poste à Burlot en septembre
--  С 69% по-малко мигранти се опитват да преминат българо-турската граница
--  Предложение: Репресирани, били в лагери, да могат да си купят до 3 г. осигурителен стаж
--  Румъния, Швеция, Армения или Люксембург ще е водач в групата ни за Лигата на нациите
--  Манчестър Сити се озърта за Кимих
--  Des parents d’élèves en lutte contre une probable suppression de poste à Burlot en septembre
--  Eight in 10 Brits would only use a public toilet if completely unavoidable, study finds
--  Hari Kanker Sedunia: Ini Tantangan Besar yang Masih Terus Dihadapi Dalam Mengatasi Penyakit Kanker di Indonesia
--  Opozícia podala ústavnú sťažnosť v súvislosti s novelou Trestného zákona
+-  Baden-Württemberg: Weniger Aufträge im Jahr 2023 für die Industrie
+-  Nel Lazio quasi il 60% dei bambini sotto i 12 mesi utilizza lo smartphone
+-  4 Serba-serbi Lelang Raket Rafael Nadal
+-  다이빙 김나현, 세계선수권 여자 10m 결승 진출 좌절…준결승 16위
+-  Politique. Rejet de la motion de censure : « Je ne me laisserai jamais intimider » promet Attal
+-  Gifuni: "ADL ha torto: Lindstrom non è esterno destro e lo si è visto col Verona"
+-  Baden-Württemberg: Weniger Aufträge im Jahr 2023 für die Industrie
+-  이재명 "준연동형제 유지"…범야 위성정당 시동
+-  زيارة عمل للمدير العام للأمن الوطني إلى المملكة العربية السعودية
+-  Güzide Parlak
