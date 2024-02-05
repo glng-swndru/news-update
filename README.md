@@ -1,11 +1,11 @@
 # Latest News
--  صحت سرمایۀ زنده‌گی
--  Testspiele der Blauen: Stuttgarter Kickers blicken auf erfolgreiches Wochenende
--  PSG : Promesse non-tenue de Mbappé pour son transfert
--  Awesome Amazon Deals This Weekend: Save Big on Apple's AirPods 2, Amazon's Omni TV, Eugy L60 and More - CNET
--  3 món rau ngày Tết khiến đường huyết tăng đột biến không ngờ tới, cảnh báo 2 bộ phận bị ngứa cần đi khám tiểu đường
--  Les Restos du coeur cherchent des bénévoles d’un jour à Draguignan
--  Tumpukan Sampah di pantai Zakat Bengkulu
--  Giannis se desató y anotó 48 puntos ante Dallas: reviví la gran noche del griego
--  Katie Price spotted cosying up to new ‘boyfriend’ on night out as romance with Married At First Sight star is revealed
--  Live meepraten in de Premier League: Arsenal - Liverpool
+-  DATUM POTVRĐEN PRIJE 4 GODINE Međunarodni je dan ljudskog bratstva i sestrinstva
+-  Nvidia cuenta con el 98% del mercado de GPU, según estimaciones de analistas
+-  Manchester United boekt grootste thuiszege van het seizoen, Ten Hag klimt naar plek 6
+-  Brühler Schüler verabschieden sich von Schach-AG Mentor Helmut Mehrer
+-  Uppbyggingarsvæði endurmetin
+-  Van der Poel sa stal šiestykrát majstrom sveta, Ulík došiel na konci štvrtej desiatky
+-  “Nos dará una paliza”, director de Baldur’s Gate 3 reconoce la popularidad de Palworld
+-  Да те пипнат за късмет: Какво е да си коминочистач в днешно време?
+-  Panamá, invicta, deja agonizante a Nicaragua en la Serie del Caribe
+-  Film 20 dní v Mariupolu nominovaný na Oscara je šokující svědectví o ruských zvěrstvech i Putinově vině
