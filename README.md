@@ -1,11 +1,11 @@
 # Latest News
--  Kaše o MS v Praze či sudích: Pískejte častěji sekání, zrychlí to extraligu
--  Staudenhof-Mieter verlangt Wohnung zurück +++ Rechte Schmierereien an Potsdamer Schule +++ Das sagen Betroffene über „Remigrations“-Pläne
--  Schwere Kollision zwischen Liebenthal und Hammer +++ Demokratie-Demo in Gransee +++ Neues vom Korruptions-Bürgermeister Hagen
--  Auflösungserscheinungen bei Real ++ Bosse kommt zum Havelfest ++ Warten auf Fernwärme
--  Zrání, sušení, koupání. Výroba Olomouckých tvarůžků je alchymie
--  CPT Markets：美国就业数据意外激增令黄金大跳水！本周关注全球通胀数据
--  Tausend bei Menschenkette in Falkensee +++ Bissiger Angeklagter vor Gericht in Nauen +++ Solarparks in Rhinow zu groß geplant
--  BV Lünen zeigt im Test gegen SV Afferde zwei Gesichter: Viele Tore, noch mehr Gegentore
--  Frankfurt: 15 Restaurants wegen Hygienemängeln geschlossen - Ekel-Alarm in der Küche
--  Лямные дольки
+-  Super League 1: Το φοβερό γκολ του Κωνσταντέλια, η «τεσσάρα» της ΑΕΚ και όλα τα highlights από το Παναθηναϊκός - Ολυμπιακός
+-  Pacific Islands’ woes worsen amid worries over climate
+-  Selangor Ruler proclaims Klang a royal city
+-  Trump predicts Iran's acquisition of nuclear weapons within 60 days
+-  Yksityiset elämykselliset ostoshetket kivijalkamyymälöissä kasvattavat suosiotaan – kysyimme kolmesta Oulun keskustassa sijaitsevasta privaattishoppailua tarjoavasta liikkeestä, mistä oikein on kyse
+-  Hochhäuser in Düsseldorf: Die Dachterrassen erleben einen Boom
+-  জয়পুরহাটে পরিবহনে চাঁদাবাজির অভিযোগে গ্রেফতার ১
+-  Von Meerbusch zum Landtag in Düsseldorf: Meerbuscher Migranten besuchen die „Demokratieschule“
+-  2,000 vacated HDB homes in Tanglin Halt to be used as interim rental flats for families from 2025
+-  Is this last orders for the hospitality industry?
