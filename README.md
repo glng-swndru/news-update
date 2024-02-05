@@ -1,11 +1,11 @@
 # Latest News
--  ارزنده اما پر ریسک
--  کاهش نرخ تورم فصلی تولید برق
--  ভাইরাল হতে নিজের ৫ লাখ টাকার মোটরসাইকেলে আগুন
--  جاماندگی دستمزد از تورم خوراکی‌ها
--  [삼표산업 사망사고 2년③]법정 서는 책임자들…삼표, 대형 로펌 선임
--  Umstrukturierung im Verteidigungsministerium : Verteidigungspolitiker und Reservisten begrüßen Pistorius‘ Reform
--  投資者及理財教育委員會：ESG可創造價值 也可影響價值
--  PSG - Équipe de France : Mbappé fait un choix crucial, ils ne regrettent rien
--  涂國彬：聯儲議息無礙數據為本 高息料持續
--  電視精選
+-  En vivo | Premios Grammy 2024: siga los artistas en la premiación y la alfombra roja
+-  МАРТЫНЮК: «Тренируюсь с юниорами. Возможно, будет вариант с арендой»
+-  vSérénité et Responsabilité : Macky Sall et l'Alliance Pour la République Face aux Défis Électoraux du Sénégal
+-  Bolu'da 2 otomobil kafa kafaya çarpıştı: Çok sayıda yaralı var
+-  2 бронза за България от сноуборд крос в Италия
+-  NOVO POSKUPLjENjE? OPEK+ u martu odlučuje da li će nastaviti sa smanjenjem proizvodnje nafte
+-  Zoran Savić o dolasku novih igrača! Partizan je zbog Egzuma doveo Doužera i Kaminskog!
+-  年収が低い会社ランキング2023最新版【中国＆四国地方・100社完全版】7位は弁当が人気のコンビニチェーン - ニッポンなんでもランキング！
+-  '가루쌀' 활용 제품 봇물…"소비자 선택은 글쎄"
+-  Ünlü futbolcu polis denetimine takıldı! Emniyet şeridini ihlalden ceza ödedi
