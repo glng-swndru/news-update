@@ -1,11 +1,11 @@
 # Latest News
--  Овие 3 знаци ги чека промена во кариерата во февруари
--  Ligue 1: «Τρίποντο» παραμονής για τη Λυών
--  إحصائيات براهيم دياز أمام أتلتيكو مدريد
--  Фантастичні сейви Луніна допомогли Реалу уникнути поразки в дербі з Атлетіко
--  駐車違反を1回しただけで「免停」に？知っておきたい条件とは
--  Netflix Is Now Streaming One of Anime's Best Romcoms
--  Экс-сотрудник Пентагона Брайен: Зеленский из Киева сбежит во Львов от русских
--  Buruan Daftar, Pendaftaran Beasiswa Pertamina Sobat Bumi 2024 Ditunggu Sampai 24 Februari 2024
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 5 февруари /валутен калкулатор/
--  Le Real Madrid accroché à domicile par l'Atlético Madrid
+-  U utakmici vrijednoj šest bodova presudio je jedan gol. Inter povećao prednost
+-  Rui Baleiras: Fundo para investimentos não tem pernas para andar
+-  신원식 “적 지도부 제거” 발언에…北 “노골적 선전포고”
+-  “집 때문에 서울 떠나”… 10년간 174만명 전출
+-  뉴욕증시, '사상 최고치' 강세 흐름 지속될까
+-  Organizaciones sociales se manifestarán frente al Ministerio de Capital Humano
+-  Man charged under Emily's Law after 2 people mauled by dogs at Tarrant park last summer
+-  모습 드러낸 제2대전문학관…실시설계 용역 착수
+-  Con gái hốt hoảng: Mẹ ơi, con sắp chết - Bà mẹ kiểm tra rồi hối hận vì đã bỏ qua 1 điều quan trọng khi dạy con
+-  Career coaches decode the impact of inconsistent leadership on team dynamics
