@@ -1,11 +1,11 @@
 # Latest News
--  Şehit Piyade Uzman Çavuş Kadir Dingil son yolculuğuna uğurlandı
--  Ještě není jasné, kolik nových jaderných bloků vznikne, říká Stanjura
--  Edirne'deki uyuşturucu operasyonlarında 2 şüpheli gözaltına alındı
--  Zwischen Laufsteg und TV-Show: Heidi Klum will es nicht ruhiger angehen
--  Chesnais-Girard met fin aux délégations de Christian Troadec à la région Bretagne après son accident
--  Zwischen Laufsteg und TV-Show: Heidi Klum will es nicht ruhiger angehen
--  Ispanijoje – „Real“ pergalė ir triuškinantis „Baskonia“ pralaimėjimas
--  Пирин освободи треньора си 2 седмици преди рестарта на Първа лига
--  Luciano Rodríguez: su futuro, la ilusión de jugar en la selección mayor y el Preolímpico
--  Zwischen Laufsteg und TV-Show: Heidi Klum will es nicht ruhiger angehen
+-  Pakistanda sel: 1 ölü
+-  Vilja að saumavélarnar komist í skjól
+-  Az LMP felszóllította Lázár Jánost a HÉV-ek járatritkításának visszavonására
+-  Naš pjevač David Ricov preminuo je u dobi od 37 godina, glazbom se bavio od malih nogu i svi su ga obožavali
+-  OD 1. SVIBNJA 2025. NOVI PROPIS U NJEMAČKOJ: Odnosi se na skoro sve osobe koje trebaju nove dokumente
+-  وزير الأشغال يلتقي الرئيس التنفيذي لمجموعة H S
+-  UMRLA JE SA 34 GODINE Potresna životna priča pisca Igora Marojevića o porodici i delima: Skupljam snage da napišem ROMAN O SESTRI
+-  Eğitimde 2. dönem başlıyor
+-  U.S. Court Mandates Ryder Ripps to Pay Yuga Labs $9 Million in Final Judgment
+-  Ossada humana é encontrada em usina abandonada de MS
