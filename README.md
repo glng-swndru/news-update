@@ -1,11 +1,11 @@
 # Latest News
--  VIDEO I FOTO Tražili smo stan za najam u Zagrebu, evo što se nudi i koliko košta
--  «Вильярреал» и «Кадис» не забили голов в матче ла лиги
--  Erdoğan açılışını yaptığı hastanede tedavi gören çocukları ziyaret etti
--  Fluminense tem início de temporada ainda melhor que em 2023; Compare
--  Gegen Gesetz verstoßen: Darum verklagen Verbraucherschützer die Deutsche Bahn
--  Debat Pilpres 2024: Anies dan Prabowo Sepakat Cara Mensejahterakan Guru di Indonesia
--  Policija objavila priopćenje o jučerašnjoj utakmici u Osijeku
--  Nhìn thấy bố mẹ dùng chiếu đắp cho dễ ngủ, chị chồng liền mua máy sưởi biếu, nào ngờ chồng tôi đòi đập nát
--  De moordenaar van Epe MOET zich melden
--  Manželé žalují Google za to, že je jeho Mapy poslaly do oblasti, kde je okradli ozbrojení zloději
+-  Аналитик Демидов: снижение поставок СПГ из США в Европу приведёт к росту цен
+-  Лудогорец, ЦСКА и Ботев Пд се прибраха от Турция (видео)
+-  Terör örgütünden kopmalar devam ediyor
+-  TOKİ mağdurları Eskişehir'den seslendi!
+-  Hommage aux victimes françaises des attentats du 7 octobre : malgré l'opposition des familles, LFI veut y assister
+-  Procedură nouă pentru polițiști privind intervenția față de bolnavii psihici. Polițiștii nu vor însoți pacienții în ambulanță
+-  [아시안컵] ‘전체 평점 1위!’ 손흥민, 亞컵 8강 평점 기반 베스트 11 선정…설영우도 ‘깜짝’ 등장
+-  İBB Başkan adayı Kurum: İstanbul'u Türkiye Yüzyılı'na en güzel şekilde hazırlayacağız
+-  Hommage aux victimes françaises des attentats du 7 octobre : malgré l'opposition des familles, LFI veut y assister
+-  Verkaufsoffener Sonntag und Antikmarkt in Marl: Die schönsten Bilder aus dem Marler Stern
