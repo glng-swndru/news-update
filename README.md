@@ -1,11 +1,11 @@
 # Latest News
--  বাণিজ্য মেলায় কোথায় কত ছাড় পাবেন
--  Insurers call for planning reform to curb rising premiums
--  広島空港でも大雪の影響で欠航相次ぐ ５日午後の便から 関東で警報級の大雪予想
--  Highlights e gol Inter Juve 1-0: le immagini del match – VIDEO
--  রাতে তাদের খুঁজতে গিয়ে দেখি শুটিংয়ের পাশেই একটি মেয়ে খুব কাঁদছে
--  Dutton set to accept Labor tax plan but not before pushing for changes
--  Обезврежена агентурная сеть ФСБ РФ: среди задержанных - инженер оборонного завода и чиновница горсовета на Донетчине, - СБУ. ФОТОрепортаж
--  Concrete replacement: The Melbourne invention turning toxic soil into bricks
--  DDA Crypto Select 10 ETP
--  Novi Snapdragon čip navodno u pripremi, kao 8s Gen 2 ili Gen 3 Lite verzija
+-  "Laprugne a peur !" : en Montagne bourbonnaise, l'ombre des Hauts de Cordat se fait plus pesante que jamais
+-  El poliamor, de moda entre los jóvenes españoles
+-  Poslovni partner Do Kvona izručen iz Crne Gore u Južnu Koreju
+-  Tchad : Voici le programme des obsèques officielles pour le Général d’armée Daoud Yaya Brahim
+-  Магия живого концерта Криса Нормана в Даугавпилсе: звук и свет
+-  Dr Michael Mosley recommends 59p food to reduce blood pressure and inflammation
+-  Chevron's earnings from int'l upstream projects grow y-o-y
+-  Exclusive: Man United star “always wanted to stay” despite Saudi transfer rumours, says expert
+-  Уничтожен российский дрон минирования на Таврическом направлении, - Тарнавский. ВИДЕО
+-  Демокрация с една партия: Салвадор преизбра "най-готиния диктатор"
