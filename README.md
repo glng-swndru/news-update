@@ -1,11 +1,11 @@
 # Latest News
--  亞太女子業餘賽 吳純葳奪冠 台灣第2人
--  擴大對台鬥爭 中共下一步 恐侵擾我禁限制水域
--  Junín: Jauja se alista para celebrar su carnaval 2024, el más elegante del Perú
--  Día del lunar: recomiendan chequeos preventivos para descartar complicaciones
--  劉丞趕場主持國際大賽 成功壓線
--  Dakhla : La Marine royale assiste 59 migrants
--  陽岱鋼重返日職 有機會尬孫易磊
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  Donald Trump: országunk nem él túl egy újabb Biden-elnökséget
--  ISPOVIJEST MAJKE Hrabri dječak Mak s osam godina se borio s rijetkom i agresivnom bolešću, ali na kraju je pobijedio
+-  Овие 3 знаци ги чека промена во кариерата во февруари
+-  Ligue 1: «Τρίποντο» παραμονής για τη Λυών
+-  إحصائيات براهيم دياز أمام أتلتيكو مدريد
+-  Фантастичні сейви Луніна допомогли Реалу уникнути поразки в дербі з Атлетіко
+-  駐車違反を1回しただけで「免停」に？知っておきたい条件とは
+-  Netflix Is Now Streaming One of Anime's Best Romcoms
+-  Экс-сотрудник Пентагона Брайен: Зеленский из Киева сбежит во Львов от русских
+-  Buruan Daftar, Pendaftaran Beasiswa Pertamina Sobat Bumi 2024 Ditunggu Sampai 24 Februari 2024
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 5 февруари /валутен калкулатор/
+-  Le Real Madrid accroché à domicile par l'Atlético Madrid
