@@ -1,11 +1,11 @@
 # Latest News
--  En vivo | Premios Grammy 2024: siga los artistas en la premiación y la alfombra roja
--  МАРТЫНЮК: «Тренируюсь с юниорами. Возможно, будет вариант с арендой»
--  vSérénité et Responsabilité : Macky Sall et l'Alliance Pour la République Face aux Défis Électoraux du Sénégal
--  Bolu'da 2 otomobil kafa kafaya çarpıştı: Çok sayıda yaralı var
--  2 бронза за България от сноуборд крос в Италия
--  NOVO POSKUPLjENjE? OPEK+ u martu odlučuje da li će nastaviti sa smanjenjem proizvodnje nafte
--  Zoran Savić o dolasku novih igrača! Partizan je zbog Egzuma doveo Doužera i Kaminskog!
--  年収が低い会社ランキング2023最新版【中国＆四国地方・100社完全版】7位は弁当が人気のコンビニチェーン - ニッポンなんでもランキング！
--  '가루쌀' 활용 제품 봇물…"소비자 선택은 글쎄"
--  Ünlü futbolcu polis denetimine takıldı! Emniyet şeridini ihlalden ceza ödedi
+-  23区 夕方までに1～5cm積雪予想
+-  Kocaeli'de hava nasıl olacak?
+-  Pape Djibril Fall galvanise ses troupes et appelle à la mobilisation
+-  KOBI, PA STEF: Kari izbrojao 60 poena i izgubio od Bogdanovića - pa rešio da se ne hvali
+-  NHL | Jesse Puljujärvi teki kaksivuotisen NHL-sopimuksen
+-  Dişi düzgün fırçalamamaq ürək xəstəliyinə
+-  НБА. «Детройт» принимает «Орландо», «Финикс» в гостях встречается с «Вашингтоном» и другие матчи
+-  Bhopal: BJP Forms Panels For Four RS Seats
+-  NIKOLA ROKVIĆ OTKRIO KAKO JE MARINKO UTICAO NA NJEGOVU KARIJERU: To me je sačuvalo...
+-  김경율 비대위원 불출마 선언…"외압 때문 아니다"
