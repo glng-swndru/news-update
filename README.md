@@ -1,11 +1,11 @@
 # Latest News
--  Sky o DAZN? La programmazione televisiva della Serie A fino alla 27^ giornata
--  رواية تحبني وانا احقرك -4
--  Novák Katalin elveszi az igazságot a pedofilok áldozataitól, van, aki kíváncsi, mi áll az elnöki kegyelem hátterében
--  Merkez Bankası'ndan TL'yi destekleyici adım
--  Leonard Cohen, son roman inédit
--  Zacher Gábor az „okosdrogok” veszélyeire figyelmeztet
--  سعر الدولار اليوم في مصر الإثنين 5 فبراير 2024.. «الأخضر» يترنح في السوق السوداء
--  Αλέξης Κούγιας: Ο ίδιος άνθρωπος που με γοήτευσε, ο ίδιος άνθρωπος μ’ απογοήτευσε!
--  Ísland í dag - Fylkir og Víkingur mætast í hreinum úrslitaleik
--  Karneval in Oer-Erkenschwick – Tickets sind noch zu haben: „Der Rathaus-Schlüssel ist uns sicher!“
+-  De tijd tikt voor informateur Plasterk, deadline eindverslag nadert
+-  Глава Минздрава объяснил выгоду от замещения зарубежных препаратов российскими
+-  Звезда «50 оттенков серого» вышла в свет в прозрачном платье
+-  Ayvalık açıklarında 51 düzensiz göçmen, motor arızalı botla sürüklenirken kurtarıldı
+-  김주현 금융위원장, 설 앞두고 전통시장 방문…민생현장 살펴
+-  MATERI Soal Sejarah Peminatan Kelas 10 SMA Ulangan/Ujian Semester 2 Tahun 2024 Lengkap Kunci Jawaban
+-  Denize düşerek hayatını kaybeden kılavuz kaptanın güvenlik kamerasına yansıyan görüntüleri ortaya çıktı!
+-  윤 대통령 "명절 물가 관리 · 사고 방지에 만전 기해야"
+-  기시다 “북일 정상회담 통해 납북 피해자 귀국 실현하겠다”
+-  세기말 여름 서울 사망자 82% ↑…탄소중립 실천한다해도 사망자 발생
