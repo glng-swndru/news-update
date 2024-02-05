@@ -1,11 +1,11 @@
 # Latest News
--  Χριστίνα Κοντοβά: Mε την κόρη της σε καταφύγιο αδέσποτων ζώων
--  Könnt ihr das neue Rätsel lösen? Das Schlagzeilen-Raten auf TT.com
--  Bakan Uraloğlu açıkladı: Yüzde 30 indirim yapıldı
--  Mexico đăng cai trận khai mạc World Cup 2026, Mỹ tổ chức 78/104 trận
--  Sporting: ultrapassar e mudar o ‘chip’
--  OBJAVLJENE SLUŽBENE CIJENE Evo koliko koštaju letovi iz Mostara za Rim, Veronu i Munchen
--  Westhill's Calum McIlroy takes the Young Traditional Musician 2024 title
--  【島根スサノオマジック】アウェイで三遠に痛い連敗 エース・安藤が不在 ＣＳ進出へ正念場
--  Dieter Bohlen: Heimliche Hochzeit mit seiner Carina
--  Europawahl 2024: SPD-Spitzenkandidatin Barley will besseres Wahl-Ergebnis als 2019
+-  Mon bistro de quartier à Vichy : à l'Absinthe, une âme préservée qui fait un tabac
+-  A kormány a gazdasági növekedés bálványozásával fedi el, hogy a magyar társadalom összességében szegény
+-  Scumpirile la pompă nu se mai opresc: Ce prețuri a afișat ANRE pentru mâine
+-  Народному писателю Азербайджана 85
+-  أسهم أوروبا تفتح على ارتفاع بفضل نتائج أعمال إيجابية
+-  Sevdikleriyle konuşmak isteyen Gazzeliler bakın ne yapıyor?
+-  Possible 2024 Stock Splits: 2 Monster Growth Stocks Up 310% and 380% in 5 Years to Buy Now
+-  Spikerin Hatayspor sözleri herkesi gözyaşına boğdu! 'Artık ne Atsu ne de o taraftarlar hayatta'
+-  宗谷の生乳廃棄１００トン １月下旬、暴風雪で集荷できず
+-  Coastal Contracts gets RM318.9mil contract extension
