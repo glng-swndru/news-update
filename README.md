@@ -1,11 +1,11 @@
 # Latest News
--  Indra Burkovska par sapņiem, ģimeni un filmēšanos Romā: "Vecumam piemīt savs šarms un foršums"
--  Billy Joel leaves fans in disbelief with Grammys performance of first new song in 30 years
--  Đinh Lan Hương và "lò" đào tạo loạt Quán quân các cuộc thi âm nhạc Việt
--  شيريهان تظهر في المتحف المصري .. والجمهور:" أنت لا تقلّين أهمية عن أي عمل فني" (صور)
--  Ronaldo provoca imprensa após vitória do Cruzeiro em clássico com confusão e marmita no gramado
--  İsrail Savunma Bakanı: Hizbullah'la olan sorunu diplomatik yollarla çözmeye hazırız
--  İstanbul'da okulların yeniden açılmasıyla sabah trafik yoğunluğu oluştu
--  청소년그루터기재단-오케스트로, 체험형 진로교육 ‘꿈길’ 사업 진행
--  Subscriber exclusive: Behind the scenes of Bushiroad firing Rossy Ogawa
--  4000 ميجاواط الحمل الكهربائي المُسجل مساء أمس الاحد
+-  우주에서 878일을 보낸 사람이 있다…러시아 우주비행사 신기록 수립
+-  Bäume, Pflaster und Markisen: In der Euskirchener Fußgängerzone gibt es viele Baustellen
+-  Veja a programação de hoje das novelas
+-  Lincas čempione Ostapenko pakāpjas uz 11. vietu WTA rangā
+-  Intars Rešetins: "Mums jābūt gataviem X stundai"
+-  Perrine, une Jamboise de 30 ans victime de deux cancers et d’une maladie rare, lance une cagnotte pour éviter la chaise roulante : « Je voudrais profiter de la vie avec mon petit garçon » (vidéo)
+-  77 साल का बुजुर्ग और 22 साल की लड़की, INSTA पर दोस्ती-बंगले पर हत्या, क्या है कहानी?
+-  Gérard Jugnot sera la vedette de la semaine culturelle en Eure-et-Loir
+-  Назван обладатель «Грэмми» в номинации «Лучший новый исполнитель»
+-  Parisliler, SUV'lerden üç kat fazla park ücreti alınması için sandık başında
