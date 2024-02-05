@@ -1,11 +1,11 @@
 # Latest News
--  Аналитик Демидов: снижение поставок СПГ из США в Европу приведёт к росту цен
--  Лудогорец, ЦСКА и Ботев Пд се прибраха от Турция (видео)
--  Terör örgütünden kopmalar devam ediyor
--  TOKİ mağdurları Eskişehir'den seslendi!
--  Hommage aux victimes françaises des attentats du 7 octobre : malgré l'opposition des familles, LFI veut y assister
--  Procedură nouă pentru polițiști privind intervenția față de bolnavii psihici. Polițiștii nu vor însoți pacienții în ambulanță
--  [아시안컵] ‘전체 평점 1위!’ 손흥민, 亞컵 8강 평점 기반 베스트 11 선정…설영우도 ‘깜짝’ 등장
--  İBB Başkan adayı Kurum: İstanbul'u Türkiye Yüzyılı'na en güzel şekilde hazırlayacağız
--  Hommage aux victimes françaises des attentats du 7 octobre : malgré l'opposition des familles, LFI veut y assister
--  Verkaufsoffener Sonntag und Antikmarkt in Marl: Die schönsten Bilder aus dem Marler Stern
+-  صحت سرمایۀ زنده‌گی
+-  Testspiele der Blauen: Stuttgarter Kickers blicken auf erfolgreiches Wochenende
+-  PSG : Promesse non-tenue de Mbappé pour son transfert
+-  Awesome Amazon Deals This Weekend: Save Big on Apple's AirPods 2, Amazon's Omni TV, Eugy L60 and More - CNET
+-  3 món rau ngày Tết khiến đường huyết tăng đột biến không ngờ tới, cảnh báo 2 bộ phận bị ngứa cần đi khám tiểu đường
+-  Les Restos du coeur cherchent des bénévoles d’un jour à Draguignan
+-  Tumpukan Sampah di pantai Zakat Bengkulu
+-  Giannis se desató y anotó 48 puntos ante Dallas: reviví la gran noche del griego
+-  Katie Price spotted cosying up to new ‘boyfriend’ on night out as romance with Married At First Sight star is revealed
+-  Live meepraten in de Premier League: Arsenal - Liverpool
