@@ -1,11 +1,11 @@
 # Latest News
--  Why the next generation of West Australians are among the least educated in the country
--  Tax cuts to dominate first sitting day
--  A mesterséges intelligencia alkalmazási lehetőségeit mutatták be
--  Scania sai lopullisen niitin rekkakartellista: 881 miljoonan euron sakot
--  Thiem nur mehr die Nummer drei im Lande? Völlig wurscht
--  Após Palmeiras perder título da Supercopa, Abel Ferreira diminui torneio: “Não é competição”
--  Truancy, dropout rates at record high
--  Bombones de chocolate sin horno ni azúcar: prepara en 5 minutos el postre estrella
--  Uzdignute glave Severina stigla na sud
--  Policeman Murdered At Tshabangu By-Election Polling Station
+-  GOB: «La propietat militar i els actuals usos de defensa no són incompatibles amb la protecció»
+-  2 mỹ nhân màn ảnh Việt rời showbiz sang Mỹ khi ở đỉnh cao, giờ sống sung túc trong biệt thự sang trọng
+-  Є 7 популярних способів зберігання бананів: який найкращий
+-  Γεωργιάδης για Κασσελάκη: Όταν πηγαίνει στα Χάμπτονς με τον Τάιλερ το πρώτο που σκέφτεται είναι τα αγροτικά μπλόκα
+-  Numărul de noi cazuri de cancer, în creștere cu peste 20% în România
+-  Karneval: Karneval im Kreis Olpe: Die buntesten Bilder und alle Infos
+-  Cumhur İttifakı Beşiktaş Belediye Başkan Adayı Serkan Toper gençlerle buluştu
+-  Escobedo da la bienvenida a los 21 estudiantes de 16 países del Máster Erasmus Mundus en Ingeniería de Bioproductos y Biomasa Sostenible
+-  New Treatment Approach Good News for People Battling Rectal Cancers
+-  El día 29 arranca en Toledo un ciclo de novela histórica, con el que aspira a volver a ser "luz" sobre Europa
