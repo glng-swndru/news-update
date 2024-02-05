@@ -1,11 +1,11 @@
 # Latest News
--  Bitlis'te gösteri yürüyüşü ve açık hava toplantıları 5 gün süreyle yasaklandı
--  Rate cuts a double-edged sword for first-home buyers
--  Aditya Zoni Ungkap Kondisi Ammar Zoni yang Baru Bercerai dari Irish Bella
--  Politik Güğüm - 5 Şubat 2024
--  로이터 “현대차 인도법인 올 하반기 상장 추진…4조 원 이상 조달”
--  Asgari ücret zammı merhem olmadı! Market fiyatları resmen fırladı..
--  Wel of geen azc. Heerenveen bouwt woningen op grond De Fryske Marren. 'Ik snap dat het misschien voelt als landjepik'
--  Odvážná servírka zachránila z bazénu tonoucího chlapce, ostatní jen přihlíželi
--  The Biggest Grammys Moments, From Taylor Swift's Historic Win to Miley Cyrus to Joni Mitchell
--  Вертолет МЧС Ми-8 упал в Онежское озеро в Карелии
+-  Pedro ("Mariés au premier regard") en couple avec un célèbre animateur de M6 : un duo inattendu
+-  Vols posar el teu cos física i emocionalment a punt? Posa't en mans d'Arnica
+-  6 món ăn giàu carbohydrate giúp giảm cholesterol
+-  Země sedmiletých předškoláků. Spolu s odklady školy Česko odkládá i část své prosperity
+-  Evo kako izgleda kuća u kojoj se oporavlja Kate Middleton, mnogi misle da ona za njeno trenutno stanje i nije najbolje mjesto!
+-  Monnaie locale en Gironde : la Gemme se répand en misant sur sa transition numérique
+-  Sản phẩm hỗ trợ cung cấp dinh dưỡng thiết yếu cho cơ thể được nhiều mẹ Việt tin dùng
+-  Macquarie tops Two Rivers cricket competition after win over Rovers
+-  Kommunen lyssnar inte på Knivstaborna
+-  Što su zvijezde ovog tjedna pripremile vašem horoskopskom znaku?
