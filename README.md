@@ -1,11 +1,11 @@
 # Latest News
--  LIVE buitenlands voetbal | Simons verslaat debuterende Vertessen, Inter zonder Nederlanders in topper
--  Elhunyt a Twin Peaks Oscar-díjra jelölt színésze, Don Murray
--  Армянские "реваншисты": мечты о настоящем, где будущего нет
--  Mitsubishi: Τα νέα ASX και Colt βρίσκονται ήδη στην Ελλάδα
--  Matthijs van Nieuwkerk is risicofactor, wie wil er nog met hem werken?
--  NRL ironmen: Most durable and injury-prone players
--  Το NBA live στο Gazzetta
--  Palm Springs-style oasis unearthed in city’s north east
--  A días del inicio de clases, los precios de los útiles, mochilas y cartucheras se cuadriplicaron en un año
--  "Er ist grausam": Sylvester Stallone dachte, dass dieser Action-Kracher zu brutal fürs Kino ist – obwohl er ihn für seinen besten Film hält
+-  Elektrik direği havai fişek gibi patladı
+-  إقامة دورة تدريبية لموظفي إدارات التسجيل بكليات جامعة عدن
+-  戸建てバブル崩壊前夜！ファミリー層の購入意欲減退で、住宅メーカー「最後の死闘」が始まった - 住宅メーカー最終決戦！戸建てバブル崩壊秒読み
+-  Soccer-They're only human, Klopp says, as Liverpool self-destruct
+-  FOTO/VIDEO Završio pohod Triljskih starogradskih mačkara
+-  L’Umbria vola alla Bit di Milano per confermare il momento d'oro del turismo: la presentazione degli eventi
+-  Não tem dúvidas sobre vencedor do Big Brother (e não é Miguel Vicente)
+-  Bursa'da Turkcell Türkiye 16 Yaş Altı Salon Atletizm Şampiyonası gerçekleştirildi
+-  Kempný podpis nové smlouvy oslavil výhrou a dvěma asistencemi
+-  Помощник Байдена об ударах по Ирану: «Президент сделает то, что считает нужным»
