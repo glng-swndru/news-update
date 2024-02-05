@@ -1,11 +1,11 @@
 # Latest News
--  Claim a free pair of horse racing tickets in association with Racing TV
--  Claim a free pair of horse racing tickets in association with Racing TV
--  Claim a free pair of horse racing tickets in association with Racing TV
--  Angkat Isu Perempuan di Debat Capres, Anies Baswedan Sebut Cat Calling hingga Upah Setara
--  厳しい寒さが生み出す幻想的な「窓霜」 中国・黒竜江省黒河市
--  ප්‍රඥාව අත්හැර උගුලේ හිරවීම
--  Sigue la búsqueda de una embarazada desaparecida: todo lo que se sabe del caso
--  مجلة الصحافة لمعهد الجزيرة تواكب أحداث غزة
--  Senators release border-Ukraine deal to allow president to pause asylum law
--  මං දන්නේ නෑ කියා ඇඟ බේරා ගන්න ඇමැතිවරයකුට බැහැ – මහෙස්ත්‍රාත්
+-  Severe Storm Threatens California
+-  말다툼→몸싸움으로 경찰 부른 부부…오은영 깊은 한숨 (결혼 지옥)
+-  Ganjar Pranowo Mau Alokasi Wajib Anggaran Kesehatan Sebesar Lima sampai 10 Persen dari APBN
+-  Arsenal tewaskan Liverpool
+-  뉴진스, 드디어 터졌다...‘OMG’ 스포티파이 6억 스트리밍 돌파
+-  Hoa khôi bóng chuyền Việt Nam sinh quý tử trước tết Nguyên Đán, hạnh phúc ngập tràn sau cuộc hôn nhân ‘kín tiếng’
+-  48 giờ truy bắt nghi phạm cướp ngân hàng ở Nghệ An
+-  Los ‘looks’ que conquistaron la alfombra roja de los Premios Grammy 2024
+-  Guilherme anota duas vezes e garante vitória do líder Santos sobre o Guarani
+-  Suzuki Jimny XXL? Six-wheel off-roader ute revealed
