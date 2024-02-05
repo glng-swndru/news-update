@@ -1,11 +1,11 @@
 # Latest News
--  POLICIJA NUDI 23.000 EVRA ZA NJEGOVU GLAVU Velika Britanija traži pomoć u hapšenju osumnjičenog za hemijski napad
--  믿고 본다 킹스맨 감독…‘아가일’ 북미 첫 주말 1위
--  Calls for better access to free weight-loss surgery - The Korea Herald
--  Dschungelkrone verspielt: Dieser Star fliegt als erstes!
--  Зеленский договорился со Швейцарией о саммите по украинскому кризису
--  Ex-paquita Andrea Veiga recebe alta hospitalar após dengue: 'Pior doença que tive na vida'
--  Mulher que agrediu comerciante judia é proibida de deixar cidade
--  Baixe o pôster do campeão da Supercopa
--  "NISAM IMAO PARE ZA LEŽARINU, PRODAO SAM OČEVU JEDRILICU" Vuk Kostić nikad iskrenije: Priznao šta mu fali za iskrenu sreću
--  Fed’s Goolsbee: Strong US jobs data may not mean rate cuts should wait
+-  Confira a programação de esportes na TV desta segunda-feira, 5 de fevereiro
+-  JCE investigará denuncias de uso recursos del Estado en campaña
+-  #VIDEO Tellechea anuncia que PDVSA reanudará la producción de lubricantes #4Feb
+-  Ukraine-Krieg im Liveticker: +++ 01:33 Deutscher Generalmajor: Wir beobachten Zerwürfnis Selenskyjs mit seinem Oberbefehlshaber +++
+-  Aaj Ka Rashiifal: सोमवार का दिन सिंह समेत इन जातकों के लिए रहेगा भारी, जानें क्या कहते हैं आपके सितारे
+-  Во Франции рассказали о проблеме граждан из-за антироссийских санкций
+-  هوای تازه - مهمان آزادی (تکرار)
+-  Päivän horoskooppi maanantaina 5.2.
+-  Horoscope Today 5 February 2024 : मकर, कुंभ, मीन राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
+-  خودروهای هیبریدی به داد فورد رسید
