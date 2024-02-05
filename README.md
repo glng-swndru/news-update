@@ -1,11 +1,11 @@
 # Latest News
--  U utakmici vrijednoj šest bodova presudio je jedan gol. Inter povećao prednost
--  Rui Baleiras: Fundo para investimentos não tem pernas para andar
--  신원식 “적 지도부 제거” 발언에…北 “노골적 선전포고”
--  “집 때문에 서울 떠나”… 10년간 174만명 전출
--  뉴욕증시, '사상 최고치' 강세 흐름 지속될까
--  Organizaciones sociales se manifestarán frente al Ministerio de Capital Humano
--  Man charged under Emily's Law after 2 people mauled by dogs at Tarrant park last summer
--  모습 드러낸 제2대전문학관…실시설계 용역 착수
--  Con gái hốt hoảng: Mẹ ơi, con sắp chết - Bà mẹ kiểm tra rồi hối hận vì đã bỏ qua 1 điều quan trọng khi dạy con
--  Career coaches decode the impact of inconsistent leadership on team dynamics
+-  Experte: Bessere digitale Zukunft ist möglich
+-  Иди ми, дойди ми във волейболния “Дея”
+-  Glumac Jacob Elordi navodno je napao radijskog voditelja: U tijeku je istraga incidenta...
+-  District 1 candidate forum Tuesday
+-  Spánn: Bjargaði stigi gegn gömlu félögunum
+-  ‘RoboCop 2‘: Robotika našeg futura, interes za AI doveo je do toga da se nastavak SF klasika vrati na liste gledanosti
+-  Merkez Bankası’ndan resmi açıklama geldi. Faiz artmaya devam edecek mi
+-  Biden's Worst Energy Decision
+-  Truques para ter sempre toalhas fofinhas sem usar amaciador
+-  Top 14 : en vidéo, l’essai le plus rapide de la saison inscrit par l’UBB
