@@ -1,11 +1,11 @@
 # Latest News
--  Experte: Bessere digitale Zukunft ist möglich
--  Иди ми, дойди ми във волейболния “Дея”
--  Glumac Jacob Elordi navodno je napao radijskog voditelja: U tijeku je istraga incidenta...
--  District 1 candidate forum Tuesday
--  Spánn: Bjargaði stigi gegn gömlu félögunum
--  ‘RoboCop 2‘: Robotika našeg futura, interes za AI doveo je do toga da se nastavak SF klasika vrati na liste gledanosti
--  Merkez Bankası’ndan resmi açıklama geldi. Faiz artmaya devam edecek mi
--  Biden's Worst Energy Decision
--  Truques para ter sempre toalhas fofinhas sem usar amaciador
--  Top 14 : en vidéo, l’essai le plus rapide de la saison inscrit par l’UBB
+-  Karstadt-Abriss in Bremerhaven: Bürger wollen besonderen Gebäudeteil erhalten
+-  Autofahrer aufgepasst: Hier stehen diese Woche Blitzer in Bremerhaven
+-  Karstadt-Abriss in Bremerhaven: Bürger wollen besonderen Gebäudeteil erhalten
+-  Allegri a Sky: «Sul gol potevamo difendere meglio, ci è mancata fortuna per fare l’1-1»
+-  Autofahrer aufgepasst: Hier stehen diese Woche Blitzer in Bremerhaven
+-  Humanitarna pitanja Gaze u fokusu Blinkenovog puta na Bliski istok
+-  Kanaat önderi Uygurlar Çin zulmünün hedefinde
+-  Ostapenko: "Šoreiz trofeja ir daudz jaukāka nekā pirms dažiem gadiem"
+-  Pre-Grammys heat up: Glen Powell ditches rumored romance for mystery dates
+-  Mijatović na oproštaju od Zvezde citirao Malog Stanoja VIDEO
