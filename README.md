@@ -1,11 +1,11 @@
 # Latest News
--  6 Şubat'ta 'Süper Hızlı Yırtılma' Oldu
--  Tukao ćerku sa pištoljem za pojasom! Momentalno uhapšen
--  Ocak ayında en çok artan ve en çok düşen fiyatlar belli oldu
--  Casamento de Bruno Dantas, do TCU, e empresária reúne poder político e econômico em São Paulo
--  Dakar Dem Dikk suspend ses rotations, ce lundi
--  Ocak ayında en fazla fiyat artışı havayolu ile yolcu taşımacılığında yaşandı
--  만취 사망사고 낸 벤츠女 “피해자 들이받은 것 몰랐다”
--  Check out a video of the dress a lady ordered vs what she got that made netizens laugh
--  UŽIVO HRVATSKA - AUSTRALIJA Barakude odlično krenule na Svjetskom prvenstvu, razbijaju!
--  Yandex'in Rusya'daki varlıklarının satışı için anlaşma sağlandı
+-  বাণিজ্য মেলায় কোথায় কত ছাড় পাবেন
+-  Insurers call for planning reform to curb rising premiums
+-  広島空港でも大雪の影響で欠航相次ぐ ５日午後の便から 関東で警報級の大雪予想
+-  Highlights e gol Inter Juve 1-0: le immagini del match – VIDEO
+-  রাতে তাদের খুঁজতে গিয়ে দেখি শুটিংয়ের পাশেই একটি মেয়ে খুব কাঁদছে
+-  Dutton set to accept Labor tax plan but not before pushing for changes
+-  Обезврежена агентурная сеть ФСБ РФ: среди задержанных - инженер оборонного завода и чиновница горсовета на Донетчине, - СБУ. ФОТОрепортаж
+-  Concrete replacement: The Melbourne invention turning toxic soil into bricks
+-  DDA Crypto Select 10 ETP
+-  Novi Snapdragon čip navodno u pripremi, kao 8s Gen 2 ili Gen 3 Lite verzija
