@@ -1,11 +1,11 @@
 # Latest News
--  ‘88세’ 김영옥 “쉬면 인생 끝난 것 같아…소처럼 일해” (금쪽상담소)
--  Liga 1: Haudi Abdillah Ingin Bali United Curi Poin di Kediri, Titik
--  Australian milk production continues to grow - with 2.2% lift in December
--  Công chúa gia tộc Samsung sẽ debut dưới trướng công ty Teddy, netizen quan ngại tai tiếng hơn nổi tiếng?
--  ＮＨＫ大河ドラマ「光る君へ」第５話視聴率１１・７％ 予告で一瞬映ったタレントにネット騒然「いたよね？！」 - スポーツ報知
--  BEYOND LOCAL: A 365-million-year-old fish with an extreme underbite showcases vertebrate diversity
--  China's Jan services activity expands at slower pace - Caixin PMI
--  Vision International Supply Chain Management Services Extended Application Scenarios of Marketing Function to Cinema
--  KBS서 혼자 말한 윤석열, 김포서 못 지킬 약속한 한동훈
--  PEI-Genesis to Showcase Connector Innovations at Singapore Airshow - TNGlobal - TechNode Global
+-  Tăng cường đảm bảo an toàn bay trong thời tiết xấu, sương mù
+-  نصائح أوروبية لـ"حزب الله" بتسهيل مساعي الحكومة لتطبيق الـ1701
+-  Assemblea ANIS: dall’UE all’economia reale
+-  Instituto visita a Banfield con el objetivo de llegar invicto a la punta
+-  이지아, 초록우산 1억 원 이상 후원자 모임 가입…4년간 저소득층 아동 지원
+-  남산~명동 잇는 ‘예장공원’ 되살린다…“남산 곤돌라 연계”
+-  ‘한국행 인증샷’ 린가드, FC서울 온다…8일 입단 기자회견
+-  ASN Jabatan Kabag di Pemkab Soppeng Aniaya Mahasiswa, Bakal Diperiksa Polisi
+-  Volodymyr Zelensky may replace senior officials including Ukraine’s military commander as he says ‘reset is necessary’
+-  Елена Рыбакина продолжила падение в рейтинге WTA
