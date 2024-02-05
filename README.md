@@ -1,11 +1,11 @@
 # Latest News
--  Sve više ljekara iz Srbije dolazi da radi u Crnu Goru: "Plate su...
--  महाराष्ट्र: युवा कांग्रेस के प्रदेश अध्यक्ष को पुलिस ने हिरासत में लिया, जानें क्या है मामला
--  Fotoradari joprojām fiksē daudz pārkāpumu ar Krievijā reģistrētiem auto
--  Arsenal tók Liverpool í kennslu­stund
--  Víc než 90 milionů korun – tolik bude stát rekonstrukce přes 50 let starého kulturního domu v Zábřehu. (video)
--  Inglaterra: Arsenal venció al Liverpool de Darwin Núñez y acortó su distancia como escolta
--  Σοκαριστική υπόθεση στη Ρόδο: 43χρονος κατηγορείται ότι μετέδωσε σκόπιμα AIDS στη σύντροφό του
--  Olympiádu v Paříži může zhatit politika. Francii trápí nejen ruští sportovci, ale i konflikt Izraele s Hamásem
--  First-of-its-Kind NFL Flag Championships Coming This Summer
--  Maailman suurin ydinreaktori on samalla ”luultavasti monimutkaisin koskaan rakennettu kone”
+-  Bike-friendly Paris votes on triple parking fees for SUVs
+-  Vorbereitung für die Oberliga: 04/19 überzeugt im Test gegen TVD
+-  Savunma sanayisinden 5. nesİl araç
+-  Ferrari hint op nieuwe kleurstelling
+-  Blast from the past: Hansie hammers Proteas to win over Windies
+-  SA’s nuclear push like ‘signing a big cheque’ for foreign companies
+-  OL - OM : les compos officielles !
+-  Arthur Kaplan jewel heist wrangle between tycoon and liquidator back in court
+-  Bafana player ratings: Ronwen rules, Mvala and Kekana among other heroes
+-  Όχημα συγκρούστηκε με μοτοσικλέτα στη Λάρνακα - Σε σοβαρή κατάσταση 23χρονος
