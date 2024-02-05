@@ -1,11 +1,11 @@
 # Latest News
--  Kinshasa : la firme Fertile Ground veut construire une usine de production des engrains chimiques
--  الطيران المدني تستعرض الفرص الاستثمارية في القطاع بمعرض الدفاع العالمي 2024
--  Dezenflasyonist süreçte maliye politikamız-4
--  Irlanda, calul troian al Europei într-un conflict cu axa Rusia-China-Iran. Marea Britanie și UE, amenințate
--  Přihlášky na střední školy podalo elektronicky už 10 000 zájemců. Systém čelil třem hackerským útokům
--  Беларусь и Россия планируют за 3-4 года сформировать единое научно-технологическое пространство
--  4:1 gegen den Meister: Foster rotiert, Selb brilliert
--  Basketball - Swans durch Sieg über St. Pölten Grunddurchgangs-Zweiter
--  Fidan'dan ABD-İran yorumu: Durum iyi değil
--  FTSE 100 shares to watch: BAE Systems, Vodafone, Rolls-Royce, Royal Mail
+-  LIVE buitenlands voetbal | Simons verslaat debuterende Vertessen, Inter zonder Nederlanders in topper
+-  Elhunyt a Twin Peaks Oscar-díjra jelölt színésze, Don Murray
+-  Армянские "реваншисты": мечты о настоящем, где будущего нет
+-  Mitsubishi: Τα νέα ASX και Colt βρίσκονται ήδη στην Ελλάδα
+-  Matthijs van Nieuwkerk is risicofactor, wie wil er nog met hem werken?
+-  NRL ironmen: Most durable and injury-prone players
+-  Το NBA live στο Gazzetta
+-  Palm Springs-style oasis unearthed in city’s north east
+-  A días del inicio de clases, los precios de los útiles, mochilas y cartucheras se cuadriplicaron en un año
+-  "Er ist grausam": Sylvester Stallone dachte, dass dieser Action-Kracher zu brutal fürs Kino ist – obwohl er ihn für seinen besten Film hält
