@@ -1,11 +1,11 @@
 # Latest News
--  Super League 1: Το φοβερό γκολ του Κωνσταντέλια, η «τεσσάρα» της ΑΕΚ και όλα τα highlights από το Παναθηναϊκός - Ολυμπιακός
--  Pacific Islands’ woes worsen amid worries over climate
--  Selangor Ruler proclaims Klang a royal city
--  Trump predicts Iran's acquisition of nuclear weapons within 60 days
--  Yksityiset elämykselliset ostoshetket kivijalkamyymälöissä kasvattavat suosiotaan – kysyimme kolmesta Oulun keskustassa sijaitsevasta privaattishoppailua tarjoavasta liikkeestä, mistä oikein on kyse
--  Hochhäuser in Düsseldorf: Die Dachterrassen erleben einen Boom
--  জয়পুরহাটে পরিবহনে চাঁদাবাজির অভিযোগে গ্রেফতার ১
--  Von Meerbusch zum Landtag in Düsseldorf: Meerbuscher Migranten besuchen die „Demokratieschule“
--  2,000 vacated HDB homes in Tanglin Halt to be used as interim rental flats for families from 2025
--  Is this last orders for the hospitality industry?
+-  Indra Burkovska par sapņiem, ģimeni un filmēšanos Romā: "Vecumam piemīt savs šarms un foršums"
+-  Billy Joel leaves fans in disbelief with Grammys performance of first new song in 30 years
+-  Đinh Lan Hương và "lò" đào tạo loạt Quán quân các cuộc thi âm nhạc Việt
+-  شيريهان تظهر في المتحف المصري .. والجمهور:" أنت لا تقلّين أهمية عن أي عمل فني" (صور)
+-  Ronaldo provoca imprensa após vitória do Cruzeiro em clássico com confusão e marmita no gramado
+-  İsrail Savunma Bakanı: Hizbullah'la olan sorunu diplomatik yollarla çözmeye hazırız
+-  İstanbul'da okulların yeniden açılmasıyla sabah trafik yoğunluğu oluştu
+-  청소년그루터기재단-오케스트로, 체험형 진로교육 ‘꿈길’ 사업 진행
+-  Subscriber exclusive: Behind the scenes of Bushiroad firing Rossy Ogawa
+-  4000 ميجاواط الحمل الكهربائي المُسجل مساء أمس الاحد
