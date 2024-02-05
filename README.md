@@ -1,11 +1,11 @@
 # Latest News
--  Bike-friendly Paris votes on triple parking fees for SUVs
--  Vorbereitung für die Oberliga: 04/19 überzeugt im Test gegen TVD
--  Savunma sanayisinden 5. nesİl araç
--  Ferrari hint op nieuwe kleurstelling
--  Blast from the past: Hansie hammers Proteas to win over Windies
--  SA’s nuclear push like ‘signing a big cheque’ for foreign companies
--  OL - OM : les compos officielles !
--  Arthur Kaplan jewel heist wrangle between tycoon and liquidator back in court
--  Bafana player ratings: Ronwen rules, Mvala and Kekana among other heroes
--  Όχημα συγκρούστηκε με μοτοσικλέτα στη Λάρνακα - Σε σοβαρή κατάσταση 23χρονος
+-  Kinshasa : la firme Fertile Ground veut construire une usine de production des engrains chimiques
+-  الطيران المدني تستعرض الفرص الاستثمارية في القطاع بمعرض الدفاع العالمي 2024
+-  Dezenflasyonist süreçte maliye politikamız-4
+-  Irlanda, calul troian al Europei într-un conflict cu axa Rusia-China-Iran. Marea Britanie și UE, amenințate
+-  Přihlášky na střední školy podalo elektronicky už 10 000 zájemců. Systém čelil třem hackerským útokům
+-  Беларусь и Россия планируют за 3-4 года сформировать единое научно-технологическое пространство
+-  4:1 gegen den Meister: Foster rotiert, Selb brilliert
+-  Basketball - Swans durch Sieg über St. Pölten Grunddurchgangs-Zweiter
+-  Fidan'dan ABD-İran yorumu: Durum iyi değil
+-  FTSE 100 shares to watch: BAE Systems, Vodafone, Rolls-Royce, Royal Mail
