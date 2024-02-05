@@ -1,11 +1,11 @@
 # Latest News
--  Mon bistro de quartier à Vichy : à l'Absinthe, une âme préservée qui fait un tabac
--  A kormány a gazdasági növekedés bálványozásával fedi el, hogy a magyar társadalom összességében szegény
--  Scumpirile la pompă nu se mai opresc: Ce prețuri a afișat ANRE pentru mâine
--  Народному писателю Азербайджана 85
--  أسهم أوروبا تفتح على ارتفاع بفضل نتائج أعمال إيجابية
--  Sevdikleriyle konuşmak isteyen Gazzeliler bakın ne yapıyor?
--  Possible 2024 Stock Splits: 2 Monster Growth Stocks Up 310% and 380% in 5 Years to Buy Now
--  Spikerin Hatayspor sözleri herkesi gözyaşına boğdu! 'Artık ne Atsu ne de o taraftarlar hayatta'
--  宗谷の生乳廃棄１００トン １月下旬、暴風雪で集荷できず
--  Coastal Contracts gets RM318.9mil contract extension
+-  Et si notre classe politique nous épargnait les malaises d’élections ? (Imam Makhtar Kanté)
+-  Серийный выпуск автомобилей на бывшем заводе Hyundai в РФ начнется во II квартале
+-  Μπορίς Νταντιέζντιν: Η Εκλογική Επιτροπή έκρινε άκυρο το 15% των υπογραφών
+-  Левски отмени контрола в Турция, трима се прибраха в София
+-  „Und dann macht er das Ding rein“: Wie Pherai und Reis ihr HSV-Tor in Berlin planten
+-  Кои зодии могат да лъжат красиво като Благолаж - героя на Елин Пелин
+-  Jasprit Bumrah Breaks 90-Year-Old Bowling Record With Nine Wickets In 2nd Test Vs England
+-  SK Hynix, yeni nesil HBM4 bellekler için tarih verdi, HBM3E bu yıl geliyor
+-  Ucraina a „curățat” Marea Neagră de navele de război rusești. Flota lui Putin, paralizată
+-  Британский политик Куртен: Великобритании необходимо прекратить разговоры о войне с Россией
