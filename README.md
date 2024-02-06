@@ -1,11 +1,11 @@
 # Latest News
--  Birč posle duže pauze pronašao klub - vraća se u Evropu
--  TIEŠRAIDE: Čehova teātra diskusija «Savējie un svešie – no «Skatuves» dēļiem līdz mūsdienu Latvijai»
--  VIDEO Polufinalist Supertalenta Nikola Batinović objavio svoj prvi singl
--  Икономиката на еврозоната показва признаци на възстановяване в началото на 2024 г.
--  Bürgerbüros in Stuttgart öffnen: „Um diese Uhrzeit gäbe es in Möhringen schon 150 Wartemarken“
--  UCC researchers make 'world-first discovery' in stress treatment
--  Bürgerbüros in Stuttgart öffnen: „Um diese Uhrzeit gäbe es in Möhringen schon 150 Wartemarken“
--  İki büyük depremin ardından bir yıl geçti
--  Трима миноритарни акционери са приели търговото на мажоритаря на "Ямболен"
--  Michael Owen and Ian Wright in full agreement on Liverpool star who let them down vs Arsenal - The Mirror
+-  WATCH LIVE: Dayton Public Schools to interview three superintendent candidates today
+-  Παναθηναϊκός: Οριστικό! Ο Μπερνάρ επιστρέφει στη Βραζιλία – Η ανακοίνωση της Ατλέτικο Μινέιρο
+-  Fußball-WM 2026 - Fifa gibt Spielplandetails zur WM bekannt
+-  Liga NBA žaluje, poslovil se je dvakratni prvak
+-  Motociclismo: el piloto uruguayo Maxi Gerardo prueba y apunta a Estados Unidos
+-  Abdou Latif Coulibaly, sur les ondes de RFI, " ce que Macky Sall a fait est pire que se présenter pour un troisième mandat"
+-  Gebzespor kaçıyor, Çorluspor kovalıyor
+-  Vitesse onder vuur door 'akkerlandschap': ‘We moeten afwegingen maken’
+-  Andrew Haigh breaks down four key scenes from ’All Of Us Strangers’: "Half the crew were crying"
+-  Jaka to piosenka? [QUIZ]
