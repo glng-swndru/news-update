@@ -1,11 +1,11 @@
 # Latest News
--  PS é chave contra Chega no Governo
--  Tahltan development training program receives funding from TD
--  Steven Marshall resigns without showing up%%page%% %%sep%% %%sitename%% - InDaily
--  Hackers ਨੇ ਬਣਾਇਆ ਸਰਕਾਰ ਦੀ ਵੈਬਸਾਈਟ ਦਾ Fake Link
--  En acı dersimiz 6 Şubat
--  Cristina Ferreira recupera liderança das manhãs
--  Stock Radar I Eicher Motors likely to hit fresh record highs in next 2-4 months: Ajit Mishra
--  Curazao - Rep. Dominicana EN VIVO - a qué hora juegan, dónde ver por TV y online
--  性格矯正？銀行員の厳しいルール
--  Suicide Squad: Kill The Justice League review – Task Force Ex
+-  Two New Pokémon Squishmallows Are Now Available
+-  В ЄС планують обмежити поїздки російських дипломатів - ЗМІ
+-  В Раде высмеяли слова Зеленского насчет украинских властей
+-  雄武町に６５７０万円賠償命令 職員自殺訴訟で札幌地裁
+-  Le ministre Bui Thanh Son reçoit le ministre assistant des Affaires étrangères de Chine Nong Rong
+-  만취해 버스기사 발로 차고 흉기로 위협한 70대 체포
+-  How academic frauds cheat their way to state jobs
+-  Niềm vui 'ngắn chẳng tày gang', Apple mất ngôi vương smartphone tại Trung Quốc chỉ trong 2 tuần đầu năm nay
+-  Senator Defends Suspended Councillor Who Spoke Out on Transgender Issues
+-  ДВО РАН и Китайская академия наук в 2024 году проведут совместные глубоководные экспедиции
