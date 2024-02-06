@@ -1,11 +1,11 @@
 # Latest News
--  Eismo įvykis Klaipėdoje: prastai pasijutęs vairuotojas automobiliu kliudė pėsčiąjį ir rėžėsi į medikų automobilį
--  "Това е нещо повече от хуманитарно бедствие"
--  Onda de calor também afeta seu celular e computador. Saiba como protegê-los
--  Umrla velikanka varovanja pravic aboriginov Lowitja O'Donoghue
--  Sshura Khan's latest post for Arbaaz Khan is all things love - See photos | - Times of India - IndiaTimes
--  Highland Council to object to Kirkton Energy Park proposal on north coast
--  37 bin makaron ve 58 kilo tütün ele geçirildi
--  Pemerintah Korea Selatan Berencana Larang Adegan Merokok di K-Drama
--  Глава МЗС Португалії прибув з візитом у Київ
--  Утре слънчево и топло, но в Северна България пак ще духа силен вятър
+-  Znate li kojih sedam mjesta u BiH je bogato litijumom?
+-  U Barseloni počelo suđenje Daniju Alvešu
+-  BJP leader Aparna Yadav hails Uttar Pradesh: Major focus on women and youth empowerment
+-  Merson Says: Arsenal won their cup final so why not celebrate?
+-  Krónan styrkt sig gagn­vart evru og dal
+-  Provável apoio do PSB a Lula em 2026 afasta PSDB de Tabata em SP
+-  Guy M. Sagna, député, " la décision de Macky Sall est nulle et de nul effet"
+-  Hessen: Im Wald entwischt - Zweijähriger nach Stunden wohlauf gefunden
+-  Quem foi Wolfgang Pauli, físico brilhante citado por Einstein como seu sucessor intelectual
+-  Mugur Isărescu, în centrul unui deepfake de proporții. Avertismentul guvernatorului: BNR nu face propuneri de investiții
