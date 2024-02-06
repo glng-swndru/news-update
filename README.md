@@ -1,11 +1,11 @@
 # Latest News
--  Day trading guide for February 06, 2024: Intraday supports, resistances for Nifty50 stocks
--  SPC그룹, ‘ESG 활동’ 알릴 크리에이터 모집
--  Viré du PSG, il prépare son retour
--  A crónica do Tondela-P. Ferreira, 1-1: Ninguém mereceu mais que um ponto
--  Former stadiums boss leading contender to become Racing NSW chairman
--  이스라엘 국방부 “하마스 수장, 도망 다니느라 바빠”
--  Stuff it! If everything good’s not good for us, I’m breaking bad
--  Put Natalie Portman on Your Shelf With Padmé Amidala’s New Star Wars Figure
--  Breaking News Live Updates: Yemen appoints Ahmed Awad bin Mubarak as country’s new Prime Minister
--  소방관 2명, 육가공 공장 화재 진화 중 사망
+-  J&F acusa transparência Internacional de se apropriar de acordos de leniência da Lava Jato
+-  Convicted Idaho serial killer's defense asks judge to postpone execution
+-  J&F acusa transparência Internacional de se apropriar de acordos de leniência da Lava Jato
+-  Büyükşehir turnuva düzenledi
+-  Rare photos of Barty’s baby expose look-alike
+-  Lähi-idän kriisi | Ulko­ministeriö: Yhdysvallat ei ilmoittanut Irakille etu­käteen Irania tukevia ryhmiä vastaan tehdyistä iskuista
+-  J&F acusa transparência Internacional de se apropriar de acordos de leniência da Lava Jato
+-  Rare photos of Barty’s baby expose look-alike
+-  Taste Tested: These Are the Best Mushroom Coffees to Replace Your Cup of Joe
+-  퓨쳐켐, 전립선암 치료제 FC705 미국 특허 취득...“미국 내 원천기술 확보”
