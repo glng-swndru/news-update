@@ -1,11 +1,11 @@
 # Latest News
--  Mannschaften: Tennis-Frauen des TC Lüchow
--  TAURON Liga: Grupa Azoty Akademia Tarnów - Energa MKS Kalisz. Relacja live i wynik na żywo
--  Kao da je san: Budućnost „oduvala” Zvezdu u „Morači”
--  A40 runners near Witney and Curbridge baffle passing drivers
--  Poznato kada će nastupati reprezentativci BiH u brzom klizanju
--  Τελευταία ευκαιρία να ψηφίσεις στα Gazzetta Awards 2023 by bwin!
--  Judo, Landesmeisterschaft U18 / U21: Tragischer Unfall trübt die Turnierstimmung
--  H Kέιτ Μος και η Αν Χάθαγουεϊ με ski-ready σύνολα στο Σεν Μόριτζ
--  Beata Tyszkiewicz PRZERYWA MILCZENIE. Zdradziła, jak się czuje i gdzie przebywa
--  TXT 수빈 “장애 환아 위해 써달라”…1억원 기부 [연예뉴스 HOT]
+-  Koalicja Orbana zbojkotowała głosowanie ws. Szwecji w NATO. „Gest w stronę Putina”
+-  Elma Saiz señala a los jóvenes como "eje central" de las políticas de la Seguridad Social
+-  Μαζικές διαδηλώσεις στη Γερμανία εναντίον της ακροδεξιάς
+-  Spania deblochează un ajutor de urgenţă pentru ca Agenţia ONU pentru palestinieni să poată continua să funcţioneze
+-  Велика Британія посилить тиск на Європу через імпорт російського скрапленого разу
+-  Tajemnicza śmierć dwóch duchownych z Sosnowca. Ujawniono nowe szczegóły
+-  [Ekstra] Mener det er millioner å spare på å bytte batterier mens passasjerene går av og på
+-  Koalicja Orbana zbojkotowała głosowanie ws. Szwecji w NATO. „Gest w stronę Putina”
+-  Piers Morgan puts down Jamie Carragher after criticism of Arsenal celebrations - The Mirror
+-  Los kinesióogos suspenderán la prestación a Galeano, OSECAC y AMENPBA
