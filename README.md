@@ -1,11 +1,11 @@
 # Latest News
--  Fitch'den emtialar için risk uyarısı
--  Prepustili vplyvného predstaviteľa ukrajinskej tajnej služby za odpočúvanie investigatívnych novinárov
--  Huti i ataki na Morzu Czerwonym. Jak zagrożenie ze strony rebeliantów zmienia rynek ropy?
--  В ЛНР нашли доказательства намеренного уничтожения Киевом лесов в Донбассе
--  Türkiyədə "Əsrin fəlakəti" kimi xarakterizə edilən zəlzələdən bir il ötür
--  Раскрыта стоимость электрокара Xiaomi
--  DLRG steigert Mitgliederzahlen auf Rekordhöhe
--  Burza w trakcie meczu Barcelony, ale co zrobił Lewandowski? Zaskakujące kulisy
--  Alkmaarders mogen nu toch langs de spitspaal met een eigen pasje
--  Explosion i Strängnäs – boende evakueras
+-  Neuerrichtung - Pöggstalls Heimatmuseum strahlt in neuem Licht
+-  Pravilnici se nisu mijenjali desecima godina: "Stisnem se koliko mogu, ali drugi ne paze"
+-  Afera w mistrzowskim zespole F1. Legenda może wylecieć z hukiem
+-  NAŠ PEVAČ BIO JE U POPRAVNOM DOMU, PA ZAVRŠIO NA ROBIJI Šok detalji iz života: Zbog ove TRAGEDIJE je dugo patio
+-  Voici les résultats des Mousquetaires (Intermarché) en 2023
+-  Skoraj devetnajst let denacionalizacijske zamude
+-  “레고랜드 사태 막자”…‘국토부-고용부-금융위’ 맞손
+-  Großes Zeugnis zur Energiewende: So schneiden Habeck, Scholz und Lindner ab
+-  Ambíció
+-  Vasúti logisztikai vállalatban szerzett többséget a Waberer’s Csoport
