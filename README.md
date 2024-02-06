@@ -1,11 +1,11 @@
 # Latest News
--  Koalicja Orbana zbojkotowała głosowanie ws. Szwecji w NATO. „Gest w stronę Putina”
--  Elma Saiz señala a los jóvenes como "eje central" de las políticas de la Seguridad Social
--  Μαζικές διαδηλώσεις στη Γερμανία εναντίον της ακροδεξιάς
--  Spania deblochează un ajutor de urgenţă pentru ca Agenţia ONU pentru palestinieni să poată continua să funcţioneze
--  Велика Британія посилить тиск на Європу через імпорт російського скрапленого разу
--  Tajemnicza śmierć dwóch duchownych z Sosnowca. Ujawniono nowe szczegóły
--  [Ekstra] Mener det er millioner å spare på å bytte batterier mens passasjerene går av og på
--  Koalicja Orbana zbojkotowała głosowanie ws. Szwecji w NATO. „Gest w stronę Putina”
--  Piers Morgan puts down Jamie Carragher after criticism of Arsenal celebrations - The Mirror
--  Los kinesióogos suspenderán la prestación a Galeano, OSECAC y AMENPBA
+-  „Einhverjir taka allt“
+-  ¿Power Rangers y Fortnite: Battle Royale tendrán una colaboración?
+-  Anthony Davis Trolled For Being A 30-Year-old Kai Cenat Viewer
+-  How To Get Persona 3 Reload On Steam Deck Running Much Better
+-  Еще двое детей возвращены из оккупированной Херсонщины на подконтрольную Украине территорию
+-  Elektronische Rezepte und Patientenakte für alle: Die wichtigsten Fragen und Antworten
+-  Vídeo: O problema do Brasil é o brasileiro?
+-  Elhalasztják a Ferencváros bajnokiját
+-  Tennis-Osaka aims to return to top spots this year inspired by daughter Shai
+-  Majer nakon najbolje utakmice za Wolfsburg: Nakupio mi se pozitivan bijes
