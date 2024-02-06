@@ -1,11 +1,11 @@
 # Latest News
--  ODDVJETNIK JOSIPE PLESLIĆ EX RIMAC Ona je žena i majka i zasigurno joj nije lako, prolazi torturu
--  Hilversum is een reservaat vol droeftoeters die vroeger te weinig aandacht kregen
--  King Charles III being treated for undisclosed form of cancer
--  Ryan Blaney On The Bond Between Driver And Spotter
--  King Charles III undergoing treatment for cancer
--  Eine Woche vor der TV-Premiere auf ProSieben jetzt schon streamen: Das ist der neue Serien-Hit des "Ted"- & "Family Guy"-Machers
--  Victoria’s home loans plummet while others hit record highs
--  Sondaggio Mentana, Conte dimentichi il sorpasso: dalle cifre una legnata per i 5 Stelle
--  소프라노 박혜상 “새 앨범 콘셉트는 ‘살아가는 동안 빛나라’에요”
--  Na zes jaar KNVB ligt de wereld open voor voetbaltrainer Mischa Visser uit Groningen. 'Ik ben ambitieus, maar heb geen groot ego'
+-  ODUŠEVIO MILIONE LJUDI Evo kako pas reaguje kada mu se ne sviđa ono što je obukla njegova vlasnica
+-  Dakota Johnson Channels Madame Web in Naked Spider Gown
+-  Incendio forestal en el Parque Nahuel Huapi: cerraron senderos y circuitos "por extremas razones de seguridad"
+-  Looop、東急系、大和ハウス、楽天系…新電力で「家庭向け電力」シェアが初の過半超えした3つの理由 - エネルギー動乱
+-  Dakota Johnson Channels Madame Web in Naked Spider Gown
+-  Emmerdale spoilers: Gut punch for Nate Robinson as Tracy Metcalfe drops wedding bombshell
+-  König Charles III.: Prinz Harry besucht Vater nach Krebsdiagnose
+-  Avatar 6 and 7 Already Planned by James Cameron
+-  Bivši državni odvjetnici: Glasanje o Turudiću mora se odgoditi
+-  Bombeiros utilizam tecnologia e aeronaves para combate incêndios no Pantanal
