@@ -1,11 +1,11 @@
 # Latest News
--  ‘고령 논란’ 바이든 또 말실수…마크롱과 1996년 사망한 미테랑 혼동
--  An Aktionäre: Google will 350 Millionen US-Dollar wegen Lücke in Google+ zahlen
--  GSW verschicken erklärungsbedürftige Rechnungen: Hilfe finden die Kunden im Internet
--  Les spectateurs de retour dans les salles obscures de l'Etoile Palace à Vichy
--  Soccer-Sevilla call for action after Ocampos touched 'inappropriately' by Rayo fan
--  La grande retata delle 'bande di strada' in Uzbekistan
--  Българският фермерски съюз се присъединява към протестите
--  Anies-Muhaimin akan Lanjutkan Jalan Tol Trans Jawa hingga Banyuwangi
--  MOM set to issue guidelines on restrictive employment clauses: Tan See Leng
--  C’Chartres Business s'engage à organiser des boost contacts bien enrichis, en 2024
+-  Над 878 дни в Космоса: Руски космонавт постави световен рекорд
+-  Capes families call on State Government to show fairness in cost-of-living relief measures
+-  VRIJEDNA DONACIJA Klinika za dječje bolesti KBC-a Split dobila uređaj koji najmlađim pacijentima pomaže disati
+-  Trei reguli pentru a slăbi 5 kilograme. Sfaturi de la Mihaela Bilic
+-  Kỷ lục mới của thành phố nhỏ nhất Việt Nam
+-  Josipa Rimac tvrdi: 'Uskok je tražio da lažno svjedočim protiv Ivana Turudića. Odbila sam to'
+-  Capes families call on State Government to show fairness in cost-of-living relief measures
+-  Yeniden Refah Partisi 80 adayını açıkladı
+-  SC introduces Focus Scope Assessment approach to gatekeeping
+-  중대범죄라며 엄벌 후 ‘관행’ 셀프특사···제왕적 대통령의 ‘면죄부’
