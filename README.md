@@ -1,11 +1,11 @@
 # Latest News
--  Pijan je vozio po Koprivnici bez vozačke, kaznili ga s 2500 eura
--  MacKinnon prekonal klubový rekord Petra Šťastného
--  E-Bezahlung und E-Akte: Wie weit ist Heubach bei der Digitalisierung?
--  Von der Leyen veegt erfenis Timmermans van tafel: ’Symbool van polarisatie’
--  Minik şefler başkan amca ile mutfakta
--  FOTO Ovo nije Sibir: Ovako je izgledala Drava u Osijeku prije 12 godina. Sante leda lomili su brodovima
--  脱北者の７割、食料配給経験なし 韓国政府が調査報告書 市場経済拡大で格差
--  February is typically a good month for the US Dollar – ING
--  Украински депутат разкри важни подробности за плановете за мобилизацията на осъдени лица
--  PREMINUO SLAVNI PEVAČ: Zvezda kantri muzike izgubila borbu sa opakom bolešću, iza sebe ostavio suprugu, troje dece i 4 unučića
+-  Dvojica Osječana htjeli trgovati kriptovalutama pa ih prevarili za 24 tisuće eura
+-  Nederlands succes bij AS Roma: 'Ik ben overtuigd van mijn kwaliteiten'
+-  TASS: Gazprom Export se kvůli české firmě NET4GAS obrátil na arbitrážní soud
+-  Naša je ruka Mostu i dalje pružena, a nećemo sigurno samo sa SDSS-om i Možemo!, koje financira Soros
+-  Két uniós ország segíti ki az éhező palesztinokat Gázában
+-  Teröristler saldırdı deprem suçluları unutuldu
+-  「龜山vs.鶯歌怎選」網戰翻 內行指4大購屋指標
+-  Civitas Akademika Ramai Buat Petisi, TKN: Mereka Punya Hak Menyuarakan
+-  網友譏「跪著舔中」！連勝文提告求償50萬 敗訴理由出爐
+-  „A szivató másik végén vagyunk“ – szakértő a magyar kormány Ukrajna-politikájáról
