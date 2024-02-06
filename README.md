@@ -1,11 +1,11 @@
 # Latest News
--  INSÄNDARE: Tapetsera inte Malmö med mördarens nuna
--  KI in Unternehmen: Welche Faktoren sind für die erfolgreiche Implementierung Künstlicher Intelligenz in Unternehmen notwendig? / Untersuchung des Brand Science Institute zeigt Erfolgsfaktoren auf
--  Blinken'a gerçekler haykırıldı: "Soykırım Bakanı seni..."
--  평택 로즈팜 둘러본 송미령 장관 "농축산업 미래 스마트 축산 지원"
--  Pamela Anderson otkrila s kim joj je bilo najvrelije u krevetu
--  Překvapení pro hráče: ty nejlepší hry od Microsoftu zamíří na PlayStation
--  6D LOTTO RESULT Today, Tuesday, February 6, 2024
--  송미령 장관 "스마트축산 보급 확산 위해 필요한 지원 강화"
--  Nemecké priemyselné objednávky vzrástli najvyšším tempom za 3,5 roka
--  Call to cancel renewable rollout, Nationals declare bush is full
+-  Nadal, Djokovič a ďalší sa predstavia na exhibícii v Saudskej Arábii
+-  דיווח ביוון: אולימפיאקוס מעריכה את בכר ורוצה למנותו למאמן
+-  Mistrz Europy może trafić za kratki. Poważne oskarżenia!
+-  Pengakuan Gila Eks CEO MU: Atap Old Trafford Ternyata Sudah Bocor Sejak Lebih dari 10 Tahun Lalu
+-  Sunak: Rakovinu u kráľa Karola III. sa podarilo zachytiť včas
+-  Moškemu, ki je zabodel nekdanjo partnerko, grozi do petnajst let zapora
+-  Terungkap, Alasan KCI Pilih KRL Impor Asal China Ketimbang Jepang dan Korsel
+-  Jung und unverzichtbar: Diese Toptalente könnten das Topspiel Leverkusen gegen FC Bayern entscheiden
+-  "Facet w skorupie żółwia", "drugi Gomułka". Nowy nabytek TVP o Kaczyńskim
+-  "Wysłałem córkę do szkoły. Wróciła w trumnie". Poczwórne morderstwo przerosło śledczych
