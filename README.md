@@ -1,11 +1,11 @@
 # Latest News
--  „Einhverjir taka allt“
--  ¿Power Rangers y Fortnite: Battle Royale tendrán una colaboración?
--  Anthony Davis Trolled For Being A 30-Year-old Kai Cenat Viewer
--  How To Get Persona 3 Reload On Steam Deck Running Much Better
--  Еще двое детей возвращены из оккупированной Херсонщины на подконтрольную Украине территорию
--  Elektronische Rezepte und Patientenakte für alle: Die wichtigsten Fragen und Antworten
--  Vídeo: O problema do Brasil é o brasileiro?
--  Elhalasztják a Ferencváros bajnokiját
--  Tennis-Osaka aims to return to top spots this year inspired by daughter Shai
--  Majer nakon najbolje utakmice za Wolfsburg: Nakupio mi se pozitivan bijes
+-  heise+ | Kurztests: Kopfhörer von Philips, LG und Audio-Technica
+-  Cinestar Dortmund zeigt den Super Bowl auf der Leinwand: Dortmunder Football-Team ist mit dabei
+-  Edward Miszczak mówi o małżeństwie z młodszą o 25 lat Anną Cieślak: "Ta sytuacja mnie wiele nauczyła"
+-  Robinson to take anti-Islamophobia training after controversial Gaza statement
+-  Das saftigste Bananenbrot, das man je probiert hat, besteht aus nur 5 Zutaten
+-  Neue Bücherei steht jetzt in Waltrops Innenstadt: „Hier kann man richtig schön schmökern“
+-  Bruno Akrapović nakon pobjede: Dolazi nam novi stoper večeras
+-  Florian Kaufmann - Vom Uhrmacher zum Informationsoffizier in der Kaserne Weitra
+-  Roy Keane supported two clubs growing up and neither one was Man Utd, he remains deeply loyal to one team
+-  Командующий НВС Латвии: ситуация не более опасна, чем десять лет назад
