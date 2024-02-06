@@ -1,11 +1,11 @@
 # Latest News
--  Tech unicorns vanish as start-up funding plummets
--  Deadpool's Creator Is Leaving the Character Behind
--  Vue Hires Former Regal Cinemas Exec Matt Eyre as COO (EXCLUSIVE)
--  Megváltoztak a termelői árak decemberben az euróövezetben és az EU-ban
--  Vladimir Putin prepares fresh onslaught in Ukraine massing 40K troopa and 500 tanks
--  מחצית ראשונה: מכבי חיפה - מכבי תל אביב 0 :0
--  Virgil van Dijk and Alisson Becker saved Arsenal’s season
--  Feeding teenagers is expensive. Here are some money-saving grocery tips for parents
--  $1,000s in merchandise stolen from B.C. home improvement stores
--  China’s New Hyperloop Train Just Hit a Record 387 MPH During Testing
+-  Société. La Ciivise appelle à la nomination rapide d’un secrétaire d’État à l’Enfance
+-  Ermənistan prezidenti Macarıstana gedir
+-  Société. La Ciivise appelle à la nomination rapide d’un secrétaire d’État à l’Enfance
+-  Operations and treatments: King's health issues over the years
+-  Tarım ve Orman Bakanlığı'ndan depremzede balıkçılara destek
+-  Les 18-24 an davantage en proie à des pensées suicidaires et des tentatives de suicide
+-  Les 18-24 an davantage en proie à des pensées suicidaires et des tentatives de suicide
+-  Les 18-24 ans davantage en proie à des pensées suicidaires et des tentatives de suicide
+-  Игнатьев: «Спартаковский дух — это кредо Черчесова, он заряжен идеями «Спартака»
+-  След диагнозата на крал Чарлз Трети: Принц Хари се прибира във Великобритания
