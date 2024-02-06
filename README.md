@@ -1,11 +1,11 @@
 # Latest News
--  “岩手のカシミヤ”世界が注目 最高級・繊細な手作りでアップサイクルも 「SDGs債」は中小企業の光明に
--  လေခဏီ - ဝဋ်ကြွေးလား
--  Η Φρόσω και η Φιλιώ επέστρεψαν στον Άσσο Κορινθίας και παράγουν limited edition μονοποικιλιακό ελαιόλαδο
--  Markerte samanes nasjonaldag - Vil ha eigen 6. februar-komitè
--  ULTIMA ORĂ // APP a identificat un nou administrator la AIC, după ce Constantin Vozian și-a anunțat DEMISIA: „Provocările sunt mari și obiectivele stabilite pentru administrarea Aeroportului sunt ambițioase”
--  Оккупант пытается бросить гранату в украинских воинов во время сдачи в плен. ВИДЕО беспилотника
--  La cruda realidad: Nayib Bukele reelecto
--  Monika Goździalska miała zostać uderzona na pokładzie samolotu. Wizz Air wydał oświadczenie: "Nie było widać żadnych obrażeń"
--  Palavra do Leitor - 6 de fevereiro de 2024
--  Tomaszów Lub.: Miała być zwykła kontrola, a była niespodzianka. Pasażer usłyszał zarzuty
+-  Новая экранизация «Мастера и Маргариты» собрала в прокате больше миллиарда рублей
+-  Bogdanović opleo po Zvezdi! Manipulatori, prave pritisak na sudije, javnost...
+-  Šovasar Rīgā koncertēs īru grupa "Fontaines D.C."
+-  أم كلثوم والرئيس الأمريكي.. مشاهير تورطوا في حوادث هجوم الكلاب
+-  Customer Service: l'intelligenza artificiale non sostituirà l'interazione umana
+-  На Украине Рада одобрила продление военного положения и всеобщей мобилизации
+-  Šta!? Šokantna izjava Ursule fon der Lajen o Putinu! Skandal u Evropskom parlamentu, ovo prevazilazi sve granice!
+-  [Info L'Echo Républicain] Une bombe au poivre à l'origine des malaises au lycée de La Saussaye à Sours
+-  Pehlivanköy'deki okullarda depremde hayatını kaybedenler için saygı duruşunda bulunuldu
+-  Amatör maçlarda görevli sağlık görevlileri sezon başından beri para alamıyor
