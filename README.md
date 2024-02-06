@@ -1,11 +1,11 @@
 # Latest News
--  Pesquisa italiana cria ‘nariz eletrônico’ que identifica vinhos
--  Stocks making the biggest moves after hours: Palantir Technologies, NXP Semiconductors, Chegg and more
--  Santander (SANB11) aprova programa de recompra de até 36,2 milhões de units
--  Philippe Clement eyeing solution for out-of-contract Rangers player
--  O forță amenințătoare a lui Putin paralizată de Ucraina: Kievul a lovit-o, deschizând calea spre înfrângerea Rusiei
--  KBB Uzmanı Dr. Büşra Gebeş Şahiner Derince’de
--  Philippe Clement eyeing solution for out-of-contract Rangers player
--  최동석, 박지윤과 양육권 갈등?…“아이들 데려올 것”
--  Pobjeda Manchester Cityja uz hattrick briljantnog Fodena
--  Lucknow News: सराफ की दुकान का शटर काट लाखों के जेवर चोरी
+-  Greenworks® Battery-Powered Lawn and Garden Products Now Available at Walmart
+-  Samsun’da sokakta yürürken silahlı saldırıda yaralandı: 4 gözaltı
+-  17 designer sneakers worth investing in, according to Vogue
+-  Highest-ever compensation for sexual assault, harassment awarded by B.C. Human Rights Tribunal
+-  Más de 450 euros deben pagar en multas las cuatro principales teleoperadoras de Portugal
+-  17 designer sneakers worth investing in, according to Vogue
+-  Personal assistant was sexually and physically assaulted by boss, B.C. tribunal finds, awarding $100K for discrimination
+-  Murió el bombero que se fotografió con Bush tras el atentado a las Torres Gemelas
+-  북한 “日 강제동원 조선인 추도비 철거, 반인륜적 폭거”
+-  Lucro do Itaú cresce para R$ 35,6 bilhões em 2023
