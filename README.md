@@ -1,11 +1,11 @@
 # Latest News
--  Cerita Warga Surabaya Jadi Korban Penipuan, Rekening Terkuras 7,8 Miliar
--  Sottrums Routinier Itzen startet beim Heimturnier durch
--  New report: U.S. battery industry powers $8.1 trillion in economic output, 48 million jobs
--  Polsek Bojongsari Kejar Pencuri Kotak Amal di Masjid SDIT Al-Iman Kota Depok
--  Neue Sonderausstellung im Museum Kevelaer : Ein halbes Jahrhundert Kunst am Niederrhein
--  The Supreme Court must throw Trump off the 2024 ballot
--  Mejora la calidad crediticia de Metropistas
--  Viertelfinale im Niederrheinpokal: SFB glauben an ihren Halbfinal-Traum
--  April court date set in world junior hockey team sex assault case
--  "BIKOVIĆ JE JASNO IZRAZIO SVOJ STAV POVODOM RATA" Oglasilo se Udruženje dramskih umetnika Srbije: "Izražavamo najdublje žaljenje"
+-  Birč posle duže pauze pronašao klub - vraća se u Evropu
+-  TIEŠRAIDE: Čehova teātra diskusija «Savējie un svešie – no «Skatuves» dēļiem līdz mūsdienu Latvijai»
+-  VIDEO Polufinalist Supertalenta Nikola Batinović objavio svoj prvi singl
+-  Икономиката на еврозоната показва признаци на възстановяване в началото на 2024 г.
+-  Bürgerbüros in Stuttgart öffnen: „Um diese Uhrzeit gäbe es in Möhringen schon 150 Wartemarken“
+-  UCC researchers make 'world-first discovery' in stress treatment
+-  Bürgerbüros in Stuttgart öffnen: „Um diese Uhrzeit gäbe es in Möhringen schon 150 Wartemarken“
+-  İki büyük depremin ardından bir yıl geçti
+-  Трима миноритарни акционери са приели търговото на мажоритаря на "Ямболен"
+-  Michael Owen and Ian Wright in full agreement on Liverpool star who let them down vs Arsenal - The Mirror
