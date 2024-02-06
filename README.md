@@ -1,11 +1,11 @@
 # Latest News
--  Dove Cameron und Damiano David geben ihr Red-Carpet-Debüt!
--  גלנט: התמרון הקרקעי הוא מהמורכבים ומהמסובכים בהיסטוריה של המלחמות
--  La marque de prêt-à-porter IKKS envisage une réduction d'effectifs et du nombre de magasins
--  Pozor, v zračnem prostoru Slovenije poteka vojaška vaja
--  Sube a 122 el número de víctimas fatales por los incendios forestales en Chile
--  Dorota Gawryluk wystartuje w wyborach prezydenckich? Media: Pytana stosuje uniki
--  غسان الخوري: المشهد اللبناني الجامع في مؤتمر الاخوّة الانسانية يشبه التيار الوطني الحر
--  Μ. Κατρίνης: "Υπάρχει τραπεζικό σύστημα για να χρηματοδοτήσει την ανάπτυξη της οικονομίας;"
--  Abinader en La Semanal con la Prensa
--  Кирил Петков за ротацията: Минимален брой промени на министри ще даде по-голямо спокойствие на обществото ни
+-  Passageira grava piso de ônibus cedendo e ironiza: "Isso é novidade para mim"
+-  Obwohl Staffel 2 schon bestätigt war: Netflix setzt Serien-Hit von "American Horror Story"-Macher nach erster Staffel ab
+-  Helikopterrel sem sikerült megmenteni eddig a két szlovák hegymászót
+-  Robles enfada a los militares por que Sánchez los excluye de su 'escudo social': "Una vergüenza"
+-  Particulele de plastic poluează întreaga planetă, inclusiv corpurile noastre. Cât de mare este problema
+-  Soulé fa godere la Juve: la felicità del club dopo il gol e l’assist al Milan
+-  Kratki crni kaput za eleganciju i minimalizam - uvijek u trendu
+-  Llegá a fin de mes: 5 consejos fundamentales para manejar tu economía personal y hacer rendir tu dinero durante todo febrero
+-  Leben im Gazastreifen: Im Norden gibt es kein sauberes Trinkwasser mehr
+-  Grüntee als Kaffee-Ersatz: Fünf Vorteile bringt die Umstellung mit sich
