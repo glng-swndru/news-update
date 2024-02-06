@@ -1,11 +1,11 @@
 # Latest News
--  Dschungelcamp – das Wiedersehen: Kim kommt mit Krone – und Lucy oben ohne
--  Öğrenciler saygı duruşuna geçti: 6 Şubat depremi okullarda anıldı
--  TV (6/2): Πού θα δείτε Νέα Σαλαμίνα-Άρης, Καρμιώτισσα-ΑΕΛ, αγώνες κυπέλλου σε Αγγλία, Ισπανία, Γερμανία και Γαλλία κι άλλα…
--  Bundespolitik: Kretschmann sieht 2025 große Chancen für Schwarz-Grün im Bund
--  Sevgililer günü özel indirimleri burada! Parfüm fiyatları düştü! İşte Avon Şubat 2024 kataloğu
--  한경협 “40년 묵은 기업 총수 ‘동일인 지정’ 글로벌 경영 걸림돌”
--  메드트로닉코리아, 수술용 전파 절삭기 ‘리가슈어’ 출시
--  Stefania (21) verloor Songfestival van Joost Klein: ‘Niet tevreden’
--  조성경 1차관 우주기업 10곳 방문…"우주항공청 청사진 마련 집중 "
--  Studie der Bertelsmann-Stiftung: Viele junge Deutsche misstrauen Regierung
+-  Otonom teslimat robotları üreten Starship Technologies, 90 milyon dolar yatırım aldı
+-  Đồng hồ rồng vàng bay chào đón năm Giáp Thìn đầy may mắn
+-  Pro D2 : pour préparer Nevers, le staff du CA Brive peut compter sur les retours de blessés de longue date
+-  İsrail boykotu fast food devine darbe vurdu: McDonald's satışları dipte
+-  Imran Khan: The hunk who sold his Ferrari
+-  FC-Stürmer formstark: Bei Faride Alidou muss der 1. FC Köln bald abwägen
+-  What’s next after El Capitan? Free Solo’s Alex Honnold scales Greenland sea cliff for new documentary
+-  Nguyễn Văn Tiến (T.Bynz) - Hành trình chinh phục lĩnh vực DJ
+-  Fiyat/performans odaklı OPPO Reno 11F 5G, performans testinde!
+-  Skakad efter fem månader i förvaret
