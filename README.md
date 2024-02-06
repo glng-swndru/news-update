@@ -1,11 +1,11 @@
 # Latest News
--  United front from new leaders as they demand more money from Treasury
--  União Europeia avança com 12 meses de garantia para reparações
--  Педиатр Продеус дал тулякам советы по укреплению здоровья детей зимой
--  「港版美斯」睇首映撐張繼聰 張家輝想再拍喜劇 擔心難超越「化骨龍」
--  Rimac posle pobede nad Partizanom: Svi smo mi ljudi...
--  Severgnini: «Confronto Calhanoglu-Locatelli impietoso. Lui e Vlahovic strapagati, Calha e Thuram niente»
--  Jay-Z為妻抱不平 轟格林美歧視Beyonce
--  電視精選
--  عملیات فرار ایران از تحریم در قلب لندن
--  اختلاف قیمت‌ها در بازار مسکن مناطق 22گانه
+-  Prijateljica shvatila da nešto nije u redu između Alena i Ane: 'Čini li ti se da je on mamin sin?'
+-  El S&P Merval cayó con fuerza pero una empresa líder se salvó de las mermas generalizadas
+-  Feke Pál: „A színház élményét nem lehet elég korán megtapasztalni”
+-  Coronation Street legend returns to soap and straight into scandalous storyline
+-  Majka godinama kćer držala zatočenu: "Ležala je na podu pokrivena dekom, samo smo po disanju i treptanju očiju znali da je živa"
+-  Simeone, rotación a rotación
+-  Bečić: Turska sigurno ne gleda blagonaklono na dešavanja u slučaju...
+-  尹대통령 장모 3·1절 가석방?…법무부 “검토한 적 없다”
+-  Житель Чернігова відмовився воювати зі зламаною ключицею: його засудили
+-  京都市左京区の警察署を「左京署」に統合へ 府の当初予算案に建設計画費
