@@ -1,11 +1,11 @@
 # Latest News
--  Biếm họa 24h: Onana trở thành niềm cảm hứng của MU
--  'Proof of Existence' by Rona & Ofek
--  Lào Cai et le Yunnan reprennent l’itinéraire de transport de passagers Sapa-Gejiu
--  Luxury waterfront hotels near Miami Beach just named the best in the country
--  Limpieza emocional: el Feng Shui enseña cómo cerrar ciclos para seguir adelante
--  Jubiláló sétáltatás
--  WATCH: Senegal Election – Lawmakers agree to delay vote
--  Trung Quốc phóng thành công vệ tinh thương mại AI đầu tiên trên thế giới
--  Facilities will be ready for 2025 Canada Summer Games kickoff, say officials
--  Le pagelle di Dybala: illumina la serata dell'Olimpico con un campionario di bellezze
+-  Pijan je vozio po Koprivnici bez vozačke, kaznili ga s 2500 eura
+-  MacKinnon prekonal klubový rekord Petra Šťastného
+-  E-Bezahlung und E-Akte: Wie weit ist Heubach bei der Digitalisierung?
+-  Von der Leyen veegt erfenis Timmermans van tafel: ’Symbool van polarisatie’
+-  Minik şefler başkan amca ile mutfakta
+-  FOTO Ovo nije Sibir: Ovako je izgledala Drava u Osijeku prije 12 godina. Sante leda lomili su brodovima
+-  脱北者の７割、食料配給経験なし 韓国政府が調査報告書 市場経済拡大で格差
+-  February is typically a good month for the US Dollar – ING
+-  Украински депутат разкри важни подробности за плановете за мобилизацията на осъдени лица
+-  PREMINUO SLAVNI PEVAČ: Zvezda kantri muzike izgubila borbu sa opakom bolešću, iza sebe ostavio suprugu, troje dece i 4 unučića
