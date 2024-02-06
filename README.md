@@ -1,11 +1,11 @@
 # Latest News
--  Passageira grava piso de ônibus cedendo e ironiza: "Isso é novidade para mim"
--  Obwohl Staffel 2 schon bestätigt war: Netflix setzt Serien-Hit von "American Horror Story"-Macher nach erster Staffel ab
--  Helikopterrel sem sikerült megmenteni eddig a két szlovák hegymászót
--  Robles enfada a los militares por que Sánchez los excluye de su 'escudo social': "Una vergüenza"
--  Particulele de plastic poluează întreaga planetă, inclusiv corpurile noastre. Cât de mare este problema
--  Soulé fa godere la Juve: la felicità del club dopo il gol e l’assist al Milan
--  Kratki crni kaput za eleganciju i minimalizam - uvijek u trendu
--  Llegá a fin de mes: 5 consejos fundamentales para manejar tu economía personal y hacer rendir tu dinero durante todo febrero
--  Leben im Gazastreifen: Im Norden gibt es kein sauberes Trinkwasser mehr
--  Grüntee als Kaffee-Ersatz: Fünf Vorteile bringt die Umstellung mit sich
+-  "Kuća", "Trainspotting" i "Sedam strahova" na sceni BNP-a Zenica
+-  Ratched Season 2 Cancelled at Netflix, Sarah Paulson Confirms
+-  NAŠA PEVAČICA PRIZNALA DA JE BISEKSUALNA! Kraljica bakšiša šokirala: Raskinula sam sa devojkom!
+-  BIG BLUE MARBLE ACADEMY ANNOUNCES NEW LOCATION IN SIMPSONVILLE IS NOW OPEN AND ENROLLING
+-  “Hij betastte ook míjn intieme delen”: vriendinnen van vrouw die Dani Alves zou verkracht hebben getuigen tijdens eerste dag van rechtszaak
+-  Tragedija kod Garešnice: Traktor prikliještio muškarca
+-  Mästarnas Mästare-premiären är den bästa tv jag sett
+-  Κλιμακώνουν τις κινητοποιήσεις οι αγρότες: Σκέψεις για αποκλεισμό της Εθνικής Οδού και απόβαση στην Αθήνα
+-  Polícia prende quatro por tráfico de drogas em Lucas do Rio Verde; arma apreendida
+-  В Китае приговорили австралийского писателя к смертной казни за шпионаж
