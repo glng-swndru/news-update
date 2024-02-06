@@ -1,11 +1,11 @@
 # Latest News
--  Başkan Tanış’tan 6 Şubat depremlerinin yıl dönümü mesajı
--  Nacionalni program vzgoje in izobraževanja tudi v prenovo učnih načrtov
--  OVO NIKO NIJE OČEKIVAO Ibrahimović očaran Jovićem, zbog Srbina poslao poruku svima u Milanu
--  Nam sinh Vĩnh Phúc xuất sắc đạt quán quân cuộc thi Trí tuệ nhân tạo
--  India Energy Week: PM Modi outlines his government's focus on alternate fuels
--  Это'О подал в отставку с поста президента Камерунской федерации футбола
--  "ŠTA DA KAŽEM - SRAMOTA!" Anđušić se oglasio posle NEVIĐENE BRUKE svog tima: Vreme je da se svi zapitamo GDE SMO I ŠTA SMO!
--  Vučić nacrtao mapu: 'Ovo su svi ratovi koji se vode protiv mene. Napadaju me jer čuvam Srbiju'
--  CHP Kocaeli deprem saatinde anma töreni gerçekleştirdi
--  सहकारी ठगी आरोपमा पृथ्वीनारायण क्याम्पसका सहप्राध्यापक पक्राउ
+-  La organización internacional Programa Científico Fronteras Humanas publica el Plan Estratégico 2024-2032: «Ciencias de la vida y fronteras en tiempos de cambio»
+-  US envoy piles pressure on Orban to ratify Sweden’s NATO entry
+-  সৌদি যুবরাজের সঙ্গে বৈঠক করলেন মার্কিন পররাষ্ট্রমন্ত্রী
+-  HZA-DU: Das Hauptzollamt Duisburg informiert: Schließungen und Einschränkungen am Rosenmontag
+-  Kako će izgledati električni Fiat iz Kragujevca FOTO
+-  د سندرو مېلمانه
+-  Bauchweh ist ein Alarmsignal: Ist der Darm geschädigt, können chronische Krankheiten entstehen
+-  Michał Wiśniewski gorzko odniósł się do możliwej odsiadki: "Może przyszła na mnie kolej". Wspomniał o wyrokach ojca i braci
+-  Zamfara 8: NYSC, military secure release of another PCM, driver
+-  Ništa bez Embida: Dončić solidan u pobedi Dalasa u Filadelfiji VIDEO
