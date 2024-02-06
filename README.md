@@ -1,11 +1,11 @@
 # Latest News
--  La organización internacional Programa Científico Fronteras Humanas publica el Plan Estratégico 2024-2032: «Ciencias de la vida y fronteras en tiempos de cambio»
--  US envoy piles pressure on Orban to ratify Sweden’s NATO entry
--  সৌদি যুবরাজের সঙ্গে বৈঠক করলেন মার্কিন পররাষ্ট্রমন্ত্রী
--  HZA-DU: Das Hauptzollamt Duisburg informiert: Schließungen und Einschränkungen am Rosenmontag
--  Kako će izgledati električni Fiat iz Kragujevca FOTO
--  د سندرو مېلمانه
--  Bauchweh ist ein Alarmsignal: Ist der Darm geschädigt, können chronische Krankheiten entstehen
--  Michał Wiśniewski gorzko odniósł się do możliwej odsiadki: "Może przyszła na mnie kolej". Wspomniał o wyrokach ojca i braci
--  Zamfara 8: NYSC, military secure release of another PCM, driver
--  Ništa bez Embida: Dončić solidan u pobedi Dalasa u Filadelfiji VIDEO
+-  ‘고령 논란’ 바이든 또 말실수…마크롱과 1996년 사망한 미테랑 혼동
+-  An Aktionäre: Google will 350 Millionen US-Dollar wegen Lücke in Google+ zahlen
+-  GSW verschicken erklärungsbedürftige Rechnungen: Hilfe finden die Kunden im Internet
+-  Les spectateurs de retour dans les salles obscures de l'Etoile Palace à Vichy
+-  Soccer-Sevilla call for action after Ocampos touched 'inappropriately' by Rayo fan
+-  La grande retata delle 'bande di strada' in Uzbekistan
+-  Българският фермерски съюз се присъединява към протестите
+-  Anies-Muhaimin akan Lanjutkan Jalan Tol Trans Jawa hingga Banyuwangi
+-  MOM set to issue guidelines on restrictive employment clauses: Tan See Leng
+-  C’Chartres Business s'engage à organiser des boost contacts bien enrichis, en 2024
