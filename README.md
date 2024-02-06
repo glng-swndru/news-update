@@ -1,11 +1,11 @@
 # Latest News
--  Prijateljica shvatila da nešto nije u redu između Alena i Ane: 'Čini li ti se da je on mamin sin?'
--  El S&P Merval cayó con fuerza pero una empresa líder se salvó de las mermas generalizadas
--  Feke Pál: „A színház élményét nem lehet elég korán megtapasztalni”
--  Coronation Street legend returns to soap and straight into scandalous storyline
--  Majka godinama kćer držala zatočenu: "Ležala je na podu pokrivena dekom, samo smo po disanju i treptanju očiju znali da je živa"
--  Simeone, rotación a rotación
--  Bečić: Turska sigurno ne gleda blagonaklono na dešavanja u slučaju...
--  尹대통령 장모 3·1절 가석방?…법무부 “검토한 적 없다”
--  Житель Чернігова відмовився воювати зі зламаною ключицею: його засудили
--  京都市左京区の警察署を「左京署」に統合へ 府の当初予算案に建設計画費
+-  Krebsdiagnose: Joe Biden, Donald Trump und Justin Trudeau senden König Charles Genesungswünsche
+-  Jasno je tko je "Klokan" iz poruka Josipe Rimac i Vase Brkića
+-  Krebsdiagnose: Joe Biden, Donald Trump und Justin Trudeau senden König Charles Genesungswünsche
+-  Krebsdiagnose: Joe Biden, Donald Trump und Justin Trudeau senden König Charles Genesungswünsche
+-  Pazarcıların pratik kabak soyma taktiği! Deneyen Allah razı olsun diyecek! İşte en basit bal kabağı soyma yöntemi…
+-  Mikið um dýrðir í Kaupmannahöfn
+-  Diablo 4 Lunar Awakening release time, date and exclusive rewards
+-  Αντιμέτωπος με τον καρκίνο ο βασιλιάς Κάρολος - Τα ατυχήματα και τα προβλήματα υγείας του που προκάλεσαν ανησυχία στο παρελθόν
+-  Wall Street: Ποδαρικό για την εβδομάδα με το… αριστερό από τον Τζερόμ Πάουελ
+-  105 saniye boyunca yer yerinden oynadı! Büyük yıkımın 1. yılı, acılar hala taze...
