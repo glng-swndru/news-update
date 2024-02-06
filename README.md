@@ -1,11 +1,51 @@
 # Latest News
--  AS Roma Hajar Cagliari 4-0, Daniele De Rossi Catat Hasil Sempurna
--  ¡Empieza la etapa complementaria! Boca Juniors lleva la ventaja con un marcador 2-0
--  لولو هايبر ماركت قطر ووكالة التجارة الإيطالية يتعاونان في مهرجان «دعونا نتناول الطعام الإيطالي»
--  «التجاري» يعلن الفائزين بـ 8 سيارات
--  سلة الزعيم بطلاً لدوري الشباب
--  تطلقها حدائق دَدُ بالإكسبو.. فعاليات متنوعة في عطلة نهاية الأسبوع
--  한투운용 “주주환원 시대, 명품 우량주 찾기”…북콘서트 콘텐츠 공개
--  Giá YouTube Premium ở Việt Nam thuộc top rẻ nhất thế giới: Vì sao Google “ưu ái” người dùng Việt đến vậy?
--  مكتب الثقافة بشبوة يدشن البرنامج الثقافي للعام الجاري بحفل فني ساهر
--  Coviara, la empresa de las Fuerzas Armadas que el Gobierno quiere privatizar y dejó sin autoridades
+-  Cultivan costumbres del Tet en Ciudadela Imperial de Thang Long
+-  Pacheco: IA e reforma eleitoral são prioridades do Congresso em 2024
+-  Sisters turn 'pain' into profit through small Black-owned businesses
+-  My husband's wellbeing is my only concern, says Taib's wife Raghad
+-  “이정후만으론 파워 부족”…SF, ‘통산 170홈런’ 강타자 솔레어와 계약 논의
+-  Sisters turn 'pain' into profit through small Black-owned businesses
+-  В США раскритиковали Трампа за нежелание помогать Украине
+-  Jadwal SIM Keliling Selasa 6 Februari 2024 Tangerang Selatan Digelar di 2 Lokasi Simak Syaratnya
+-  ADM postpones some executive bonuses amid accounting probe
+-  出店加速中のバーガーキング「物件紹介」で10万円プレゼントの企画
+-  에스파, 배우로 무대인사 뜬다[에스파:마이 퍼스트 페이지]
+-  [MD카타르] 좀비축구? NO...휴먼축구? YES!
+-  뷰티 브랜드 ‘예쁘다’, 러시아·튀르키예·인도 글로벌 진출 본격화
+-  오예주, 비타민 브랜드 얼라이브 새로운 얼굴로 발탁
+-  '2시즌 만에 복귀' 차유람, 전체 2위로 32강 진출…'1위' 스롱도 여유 있게 32강 안착
+-  나문희X김영옥의 마주보는 눈빛에 가슴이 따뜻해졌다[소풍]
+-  GS25, 편스토랑 콜라보 상품 누적 매출 500억 돌파
+-  ‘브리트니 스피어스 낙태 강요’ 저스틴 팀버레이크, “오프라 윈프리 쇼에서 모두 밝히겠다”[해외이슈]
+-  KB손해보험, 소상공인·중소기업 ‘안전경영 컨설팅 지원 사업’ 실시
+-  트와이스, 신곡에 팝스타 라우브 참여…'I GOT YOU (Voyage ver.)' 발매
+-  농심, 백혈병소아암 환아 위해 현금·제품 등 2억원 기부
+-  SNT홀딩스, 주당 500원 결산 배당 결정
+-  MLB》大谷翔平登南韓綜藝節目？日網友：不可能
+-  Aplica Alcaldía Coyoacán mil 200 mastografías gratuitas
+-  First all-inclusive golf club celebrates its roots for Black History Month
+-  Reportan temporada de pesca de camarón sin incidentes
+-  Labor cumplida en el Inpec de Pácora
+-  Vanguard cuts Ola’s valuation to $1.9 billion, down 74% from peak
+-  Indiana community mourns 6 siblings killed in house fire
+-  ‘Deepfakes to make biometrics unreliable’
+-  Trai fines telcos Rs 110 crore for failure to tackle pesky calls
+-  Asset manager 360 One buys stake in realty firm Anarock
+-  Safia Oakley-Green, Kit Young, and Andrew Cumming talk about ‘Out of Darkness’
+-  North Korea To Detonate A Nuke? Why Crypto Bettors Rate This As More Likely Than You May Think
+-  GG wishes King Charles III speedy recovery following cancer diagnosis
+-  RD está “preparada ante cualquier inestabilidad” en Haití, dice Abinader
+-  नहीं चाहिए विटामिन डी की कमी तो रखें इन बातों का ख्याल
+-  [재경 전북인] 고창 출신 김강삼 세븐브로이 맥주(주) 대표이사
+-  결국 ‘사법 리스크’가 선거판 좌우…“트럼프 유죄땐 바이든이 역전”
+-  World News | Bilawal Bhutto Launches Pakistan People's Party Electoral Rally in Karachi Ahead of General Elections
+-  Moment tourist gets bitten by a monkey in Bali
+-  'Lacklustre' January for retailers with bad weather and cost of living pressures blamed
+-  Bukele: comunidad internacional le pide respetar DD.HH y fortalecer lazos regionales
+-  בני משפחתו של החטוף מתן צנגאוקר הקימו אוהל מול הקריה בתל אביב
+-  旧統一教会に「粛々と対応」と盛山氏
+-  금태섭, '서울 종로' 출마한다…"대한민국 방향타 역할한 곳"
+-  Fire Alarm and Detection System Market: The global market is expected to grow at a CAGR of 6.5% during the forecasted period.
+-  Минцифры: число заявок на онлайн-голосование на выборах президента превысило миллион
+-  Court gives suspended death sentence to Chinese Australian democracy blogger
+-  Hundreds of pubs could go bust if booze duty is not cut in the Budget, beer bosses warn Jeremy Hunt
