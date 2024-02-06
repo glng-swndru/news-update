@@ -1,11 +1,11 @@
 # Latest News
--  Otonom teslimat robotları üreten Starship Technologies, 90 milyon dolar yatırım aldı
--  Đồng hồ rồng vàng bay chào đón năm Giáp Thìn đầy may mắn
--  Pro D2 : pour préparer Nevers, le staff du CA Brive peut compter sur les retours de blessés de longue date
--  İsrail boykotu fast food devine darbe vurdu: McDonald's satışları dipte
--  Imran Khan: The hunk who sold his Ferrari
--  FC-Stürmer formstark: Bei Faride Alidou muss der 1. FC Köln bald abwägen
--  What’s next after El Capitan? Free Solo’s Alex Honnold scales Greenland sea cliff for new documentary
--  Nguyễn Văn Tiến (T.Bynz) - Hành trình chinh phục lĩnh vực DJ
--  Fiyat/performans odaklı OPPO Reno 11F 5G, performans testinde!
--  Skakad efter fem månader i förvaret
+-  Lionel Messi zegt sorry tegen woedende Chinese fans na reservebeurt in Hongkong: ‘Ook ik vind het jammer’
+-  Lionel Messi zegt sorry tegen woedende Chinese fans na reservebeurt in Hongkong: ‘Ook ik vind het jammer’
+-  Flora Kərimova: “Varlığıma nifrət edib, deyirlər ki...”
+-  Lionel Messi zegt sorry tegen woedende Chinese fans na reservebeurt in Hongkong: ‘Ook ik vind het jammer’
+-  Dispositif Mouv'Emploi à Dreux : 300.000 euros et des voitures proposées aux jeunes pour les aider dans leur emploi
+-  První skládací iPhone od Applu přijde nejdřív v roce 2026. V portfoliu by mohl nahradit iPad mini
+-  Wybory samorządowe 2024. W Miejskiej Górce i Pakosławiu nie będzie konkurencji?
+-  ADAC-Statistik: Hier ist die Stau-Gefahr in NRW besonders hoch
+-  클린스만호, 64년 만의 우승 도전...확률은? [아시안컵]
+-  Россия резко нарастила поставки одного вида продукции в Китай
