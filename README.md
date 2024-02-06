@@ -1,11 +1,11 @@
 # Latest News
--  Nadal, Djokovič a ďalší sa predstavia na exhibícii v Saudskej Arábii
--  דיווח ביוון: אולימפיאקוס מעריכה את בכר ורוצה למנותו למאמן
--  Mistrz Europy może trafić za kratki. Poważne oskarżenia!
--  Pengakuan Gila Eks CEO MU: Atap Old Trafford Ternyata Sudah Bocor Sejak Lebih dari 10 Tahun Lalu
--  Sunak: Rakovinu u kráľa Karola III. sa podarilo zachytiť včas
--  Moškemu, ki je zabodel nekdanjo partnerko, grozi do petnajst let zapora
--  Terungkap, Alasan KCI Pilih KRL Impor Asal China Ketimbang Jepang dan Korsel
--  Jung und unverzichtbar: Diese Toptalente könnten das Topspiel Leverkusen gegen FC Bayern entscheiden
--  "Facet w skorupie żółwia", "drugi Gomułka". Nowy nabytek TVP o Kaczyńskim
--  "Wysłałem córkę do szkoły. Wróciła w trumnie". Poczwórne morderstwo przerosło śledczych
+-  Tormenta en Tucumán: las ráfagas de viento alcanzaron los 70 kilómetros por hora y causaron serios daños
+-  Anna K. i Jana Kirschner v dubnu na koncertech představí svá nová alba
+-  Кардиолог Ашихмин дал советы, как пережить "барическую ложбину"
+-  TOFAŞ'ın ABD'li basketbolcusu Wiley'dan Bursa'ya övgü!
+-  25 milyon dolarlık sahte içerikli arama
+-  FAST ile para gönderenler dikkat! Artık sistem değişti
+-  India vs South Africa Live Score, U19 World Cup 2024 Semi-Final: Raj Limbani cleans up David Teeger, SA – 68/2 - The Indian Express
+-  Powstaje specjalna wersja Elden Ring. Ma być dostępna za darmo i wykorzystywać kontrowersyjne rozwiązania z Genshin Impact (plotka)
+-  Манчестър Сити ще вземе играч, впечатлил в Жирона
+-  Kalp Ritim Bozukluğuna Dikkat!
