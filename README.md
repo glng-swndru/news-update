@@ -1,11 +1,11 @@
 # Latest News
--  Podle šéfa OnePlus je sedmiletá softwarová podpora zbytečná. Kvůli stárnutí hardwaru a baterie
--  Google: Eine Million US-Dollar für das Überführen von Legacy-C++-Code in Rust
--  탁재훈, '딸 바보' 박준형에 "'엄마'가 곧 '얼마'될 것"
--  Керівництво Челсі вірить у Почеттіно
--  Украина тонет в крови и беззаконии: Интриганы в Киеве раздирают страну на куски
--  MÉS planteja modificar el PTI per a «protegir el sòl rústic i evitar la proliferació de nous usos turístics i residencials»
--  TOP 5 receptov za miške
--  "Ništa nismo rešili, moramo da se spremimo za Srbiju"
--  Vision+ dan Viu Hadirkan Paket Kombo, Tontonan Menarik untuk Keluarga
--  Zorlu Töre: İsias Otel' deprem sırasında tuzla buz oldu
+-  Muere Miguel Ángel, uno de los grandes porteros de la historia del Real Madrid
+-  Dos blocos de Carnaval aos bares, Fabricio faz tudo virar desenho
+-  Kolakušić bijesan: Ursula von der Leyen nas je opet nakon nekoliko minuta napustila...
+-  Trostruka grend slem šampionka nema dilemu: Majčinstvo je bolje od svakog trofeja
+-  Megőrülnek a befektetők egy papírért, ez a fém lehet az év nyertese
+-  FOTO Turudić je stigao u Banske dvore, iz Možemo! prosvjeduju: 'Stajat ćemo tu cijeli dan i noć!'
+-  Pedagógusbér-emelés: üzent a minisztérium a nyugdíj előtt álló tanároknak
+-  Minden vittek a skodások a cseheknél
+-  Täglicher Kommentar der apano-Fondsberater - 6. Februar 2024
+-  Knižnica v Nitre predstaví knihy a časopisy národnostných menšín
