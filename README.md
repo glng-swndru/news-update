@@ -1,11 +1,11 @@
 # Latest News
--  Two New Pokémon Squishmallows Are Now Available
--  В ЄС планують обмежити поїздки російських дипломатів - ЗМІ
--  В Раде высмеяли слова Зеленского насчет украинских властей
--  雄武町に６５７０万円賠償命令 職員自殺訴訟で札幌地裁
--  Le ministre Bui Thanh Son reçoit le ministre assistant des Affaires étrangères de Chine Nong Rong
--  만취해 버스기사 발로 차고 흉기로 위협한 70대 체포
--  How academic frauds cheat their way to state jobs
--  Niềm vui 'ngắn chẳng tày gang', Apple mất ngôi vương smartphone tại Trung Quốc chỉ trong 2 tuần đầu năm nay
--  Senator Defends Suspended Councillor Who Spoke Out on Transgender Issues
--  ДВО РАН и Китайская академия наук в 2024 году проведут совместные глубоководные экспедиции
+-  'Evistas' amenazan con masificar los bloqueos, si hasta medianoche de este lunes 5 no se aprueba la Ley 144
+-  Megyn Kelly says recent polling numbers are 'devastating' for Biden's reelection hopes as he trails Trump by 35 points in handling the border with host ripping migrants flooding the country under 'bulls***' asylum requests
+-  BLACKPINK Lisa成法國小說女主人公，在法國受國賓待遇，和第一夫人合影
+-  수도권 제2순환 고속도로 포천~남양주 조안 구간 내일 개통
+-  Huawei Cloud lance des serveurs dédiés à Palworld avec une configuration d'une minute
+-  Tiga Pelaku Penipuan Tanda Tangan Idola Jepang Ditangkap dan Dipenjara
+-  Message de condoléances en Namibie
+-  Huawei Cloud lanza servidores dedicados Palworld con configuración en un minuto
+-  El tiempo en A Coruña: previsión meteorológica para hoy, martes 6 de febrero
+-  โฆษกรัฐบาล ซูฮก นายกฯ เก่ง ดันผลงาน มกราคม 67 ส่งออกข้าวได้เพิ่มขึ้น 43.96 %
