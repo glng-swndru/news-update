@@ -1,11 +1,11 @@
 # Latest News
--  Muere Miguel Ángel, uno de los grandes porteros de la historia del Real Madrid
--  Dos blocos de Carnaval aos bares, Fabricio faz tudo virar desenho
--  Kolakušić bijesan: Ursula von der Leyen nas je opet nakon nekoliko minuta napustila...
--  Trostruka grend slem šampionka nema dilemu: Majčinstvo je bolje od svakog trofeja
--  Megőrülnek a befektetők egy papírért, ez a fém lehet az év nyertese
--  FOTO Turudić je stigao u Banske dvore, iz Možemo! prosvjeduju: 'Stajat ćemo tu cijeli dan i noć!'
--  Pedagógusbér-emelés: üzent a minisztérium a nyugdíj előtt álló tanároknak
--  Minden vittek a skodások a cseheknél
--  Täglicher Kommentar der apano-Fondsberater - 6. Februar 2024
--  Knižnica v Nitre predstaví knihy a časopisy národnostných menšín
+-  “岩手のカシミヤ”世界が注目 最高級・繊細な手作りでアップサイクルも 「SDGs債」は中小企業の光明に
+-  လေခဏီ - ဝဋ်ကြွေးလား
+-  Η Φρόσω και η Φιλιώ επέστρεψαν στον Άσσο Κορινθίας και παράγουν limited edition μονοποικιλιακό ελαιόλαδο
+-  Markerte samanes nasjonaldag - Vil ha eigen 6. februar-komitè
+-  ULTIMA ORĂ // APP a identificat un nou administrator la AIC, după ce Constantin Vozian și-a anunțat DEMISIA: „Provocările sunt mari și obiectivele stabilite pentru administrarea Aeroportului sunt ambițioase”
+-  Оккупант пытается бросить гранату в украинских воинов во время сдачи в плен. ВИДЕО беспилотника
+-  La cruda realidad: Nayib Bukele reelecto
+-  Monika Goździalska miała zostać uderzona na pokładzie samolotu. Wizz Air wydał oświadczenie: "Nie było widać żadnych obrażeń"
+-  Palavra do Leitor - 6 de fevereiro de 2024
+-  Tomaszów Lub.: Miała być zwykła kontrola, a była niespodzianka. Pasażer usłyszał zarzuty
