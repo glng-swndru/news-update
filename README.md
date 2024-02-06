@@ -1,11 +1,11 @@
 # Latest News
--  Transparência Internacional: É falsa informação de que recebeu valores da Lava Jato
--  Vėžiu sergančiai moteriai – darbdavio atsakas: mums neįgaliųjų nereikia
--  Charles’ shock new cancer diagnosis
--  Senate Democrats troubled by 'unconstitutional moves' that affected El Salvador election
--  Charles’ shock new cancer diagnosis
--  Депутатите на Орбан бойкотираха вота за Швеция в НАТО
--  Transparência Internacional: É falsa informação de que recebeu valores da Lava Jato
--  King Charles health updates: Diagnosed with cancer
--  Alvesu počelo suđenje, svjedoci iznijeli mučne detalje: 'Bacio ju je na pod i gnjusno ju vrijeđao'
--  King Charles has cancer, Buckingham Palace says
+-  Tech unicorns vanish as start-up funding plummets
+-  Deadpool's Creator Is Leaving the Character Behind
+-  Vue Hires Former Regal Cinemas Exec Matt Eyre as COO (EXCLUSIVE)
+-  Megváltoztak a termelői árak decemberben az euróövezetben és az EU-ban
+-  Vladimir Putin prepares fresh onslaught in Ukraine massing 40K troopa and 500 tanks
+-  מחצית ראשונה: מכבי חיפה - מכבי תל אביב 0 :0
+-  Virgil van Dijk and Alisson Becker saved Arsenal’s season
+-  Feeding teenagers is expensive. Here are some money-saving grocery tips for parents
+-  $1,000s in merchandise stolen from B.C. home improvement stores
+-  China’s New Hyperloop Train Just Hit a Record 387 MPH During Testing
