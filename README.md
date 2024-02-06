@@ -1,11 +1,11 @@
 # Latest News
--  Ātra trase un konkurenti
--  Di diari, Matteotti e Smemorande
--  Glas mu je rekel, da mora ubiti dedka
--  Chính quyền Tổng thống Biden chuẩn bị kế hoạch mới cho Ukraine
--  Θυμός ΣΥΡΙΖΑ και ΠΑΣΟΚ για την εκδήλωση Τεμπονέρα - Το παρασκήνιο της πρόσκλησης σε Χριστοδουλάκη και Αχτσιόγλου
--  Un Real Madrid exprimido encara el examen final
--  La Real Sociedad más intensa, al asalto de Son Moix
--  Hoteliers upbeat as the Safari Rally makes Easter comeback
--  Lemmikit ovat tervetulleita yhä useammalle työpaikalle – Kääpiöpinseri Minni on esimerkillinen toimistokoira
--  Chiếc SUV mini từng khiến cựu Tổng thống Moon Jae-in cũng phải xếp hàng đặt mua lộ diện phiên bản chạy điện, giá chưa đến 500 triệu đồng
+-  Reitera Gobierno de Ensenada recomendaciones ante pronóstico de lluvias
+-  你的15歲在幹嘛？ 她擠下奧運金牌攜手哥哥前進巴黎奧運舞台
+-  「お父さんが長靴を買ってくれて」関東の大雪で大学受験生にも影響 入試開始１時間後ろ倒しも
+-  Barcelona adia decisão sobre novo treinador
+-  Những bữa tiệc mang tên "tiếp lửa bản lĩnh", nơi nối dài hành trình tử tế đến cộng đồng
+-  Kral Charles kanser oldu
+-  Tin nóng bóng đá Việt 6/2: Văn Lâm thi đấu trở lại, U17 Thể Công Viettel giành ngôi Á quân
+-  Depremin birinci yıldönümünde 5 ilde eğitime 1 günlük ara!
+-  Φωτιά σε μπαρ στη Λεμεσό – Κατασβέστηκε από αστυνομικό
+-  New Mexico's largest cannabis company closing Santa Fe shop
