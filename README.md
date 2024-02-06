@@ -1,11 +1,11 @@
 # Latest News
--  ODUŠEVIO MILIONE LJUDI Evo kako pas reaguje kada mu se ne sviđa ono što je obukla njegova vlasnica
--  Dakota Johnson Channels Madame Web in Naked Spider Gown
--  Incendio forestal en el Parque Nahuel Huapi: cerraron senderos y circuitos "por extremas razones de seguridad"
--  Looop、東急系、大和ハウス、楽天系…新電力で「家庭向け電力」シェアが初の過半超えした3つの理由 - エネルギー動乱
--  Dakota Johnson Channels Madame Web in Naked Spider Gown
--  Emmerdale spoilers: Gut punch for Nate Robinson as Tracy Metcalfe drops wedding bombshell
--  König Charles III.: Prinz Harry besucht Vater nach Krebsdiagnose
--  Avatar 6 and 7 Already Planned by James Cameron
--  Bivši državni odvjetnici: Glasanje o Turudiću mora se odgoditi
--  Bombeiros utilizam tecnologia e aeronaves para combate incêndios no Pantanal
+-  Mariage d'Emmanuel-Philibert de Savoie et Clotilde Courau : comment Victor-Emmanuel a volé la vedette à son fils ?
+-  Principala favorită, în optimi la Transylvania Open – Rezultatele zilei
+-  "Govorio mi je: 'Ti ćeš se udati za mene, imaćemo decu...', čudila sam se": Slobodan Ćustić je zaveo 23 GODINE MLAĐU Jelenu i sa njom dobio ČETVORO DECE
+-  "Samsung" vadītājs attaisnots par finanšu noziegumiem
+-  İstanbul'da hafriyat kamyonu tehlike saçtı! Yola molozları dökerek ilerledi!
+-  Verktyg för tiotusentals kronor stulna från arbetsplats
+-  Vacina contra dengue está em falta em hospitais e clínicas particulares de SP
+-  Hatay'da depremde hayatını kaybedenler anıldı
+-  Marinha e FGV organizam primeira pós em IA para sistemas militares
+-  Kuzenlerin silahlı kavgası: Başından vurulan 10 yaşındaki Nazım hayatını kaybetti
