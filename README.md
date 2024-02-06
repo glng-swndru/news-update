@@ -1,11 +1,11 @@
 # Latest News
--  Mariage d'Emmanuel-Philibert de Savoie et Clotilde Courau : comment Victor-Emmanuel a volé la vedette à son fils ?
--  Principala favorită, în optimi la Transylvania Open – Rezultatele zilei
--  "Govorio mi je: 'Ti ćeš se udati za mene, imaćemo decu...', čudila sam se": Slobodan Ćustić je zaveo 23 GODINE MLAĐU Jelenu i sa njom dobio ČETVORO DECE
--  "Samsung" vadītājs attaisnots par finanšu noziegumiem
--  İstanbul'da hafriyat kamyonu tehlike saçtı! Yola molozları dökerek ilerledi!
--  Verktyg för tiotusentals kronor stulna från arbetsplats
--  Vacina contra dengue está em falta em hospitais e clínicas particulares de SP
--  Hatay'da depremde hayatını kaybedenler anıldı
--  Marinha e FGV organizam primeira pós em IA para sistemas militares
--  Kuzenlerin silahlı kavgası: Başından vurulan 10 yaşındaki Nazım hayatını kaybetti
+-  United front from new leaders as they demand more money from Treasury
+-  União Europeia avança com 12 meses de garantia para reparações
+-  Педиатр Продеус дал тулякам советы по укреплению здоровья детей зимой
+-  「港版美斯」睇首映撐張繼聰 張家輝想再拍喜劇 擔心難超越「化骨龍」
+-  Rimac posle pobede nad Partizanom: Svi smo mi ljudi...
+-  Severgnini: «Confronto Calhanoglu-Locatelli impietoso. Lui e Vlahovic strapagati, Calha e Thuram niente»
+-  Jay-Z為妻抱不平 轟格林美歧視Beyonce
+-  電視精選
+-  عملیات فرار ایران از تحریم در قلب لندن
+-  اختلاف قیمت‌ها در بازار مسکن مناطق 22گانه
