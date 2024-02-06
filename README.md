@@ -1,11 +1,11 @@
 # Latest News
--  Register Live-In Relationships Or Face 6-Month Jail: Uttarakhand UCC Bill
--  Un hombre de 60 años es el primer fallecido en Córdoba por encefalitis equina
--  Alla klara övergångar i damfyran
--  Várjon még egy napot a tankolással! Szerdától ennyivel csökken a benzin és a gázolaj ára
--  À Lorient, la rue Auguste Nayel fermée pour refaire le réseau d’eaux pluviales
--  Változást mutatott az ipari termelés decemberben
--  PSG - Real Madrid : Mbappé va signer un contrat légendaire ?
--  Juniori Željezničara sutra igraju drugu utakmicu na turniru u Španiji
--  SG Ardagger/Viehdorf - Ardagger/Viehdorf sorgt für volles Haus in Lindabrunn
--  12 храни, които обичаме, но звездите отказват да ядат
+-  Podle šéfa OnePlus je sedmiletá softwarová podpora zbytečná. Kvůli stárnutí hardwaru a baterie
+-  Google: Eine Million US-Dollar für das Überführen von Legacy-C++-Code in Rust
+-  탁재훈, '딸 바보' 박준형에 "'엄마'가 곧 '얼마'될 것"
+-  Керівництво Челсі вірить у Почеттіно
+-  Украина тонет в крови и беззаконии: Интриганы в Киеве раздирают страну на куски
+-  MÉS planteja modificar el PTI per a «protegir el sòl rústic i evitar la proliferació de nous usos turístics i residencials»
+-  TOP 5 receptov za miške
+-  "Ništa nismo rešili, moramo da se spremimo za Srbiju"
+-  Vision+ dan Viu Hadirkan Paket Kombo, Tontonan Menarik untuk Keluarga
+-  Zorlu Töre: İsias Otel' deprem sırasında tuzla buz oldu
