@@ -1,11 +1,11 @@
 # Latest News
--  Lionel Messi zegt sorry tegen woedende Chinese fans na reservebeurt in Hongkong: ‘Ook ik vind het jammer’
--  Lionel Messi zegt sorry tegen woedende Chinese fans na reservebeurt in Hongkong: ‘Ook ik vind het jammer’
--  Flora Kərimova: “Varlığıma nifrət edib, deyirlər ki...”
--  Lionel Messi zegt sorry tegen woedende Chinese fans na reservebeurt in Hongkong: ‘Ook ik vind het jammer’
--  Dispositif Mouv'Emploi à Dreux : 300.000 euros et des voitures proposées aux jeunes pour les aider dans leur emploi
--  První skládací iPhone od Applu přijde nejdřív v roce 2026. V portfoliu by mohl nahradit iPad mini
--  Wybory samorządowe 2024. W Miejskiej Górce i Pakosławiu nie będzie konkurencji?
--  ADAC-Statistik: Hier ist die Stau-Gefahr in NRW besonders hoch
--  클린스만호, 64년 만의 우승 도전...확률은? [아시안컵]
--  Россия резко нарастила поставки одного вида продукции в Китай
+-  Başkan Tanış’tan 6 Şubat depremlerinin yıl dönümü mesajı
+-  Nacionalni program vzgoje in izobraževanja tudi v prenovo učnih načrtov
+-  OVO NIKO NIJE OČEKIVAO Ibrahimović očaran Jovićem, zbog Srbina poslao poruku svima u Milanu
+-  Nam sinh Vĩnh Phúc xuất sắc đạt quán quân cuộc thi Trí tuệ nhân tạo
+-  India Energy Week: PM Modi outlines his government's focus on alternate fuels
+-  Это'О подал в отставку с поста президента Камерунской федерации футбола
+-  "ŠTA DA KAŽEM - SRAMOTA!" Anđušić se oglasio posle NEVIĐENE BRUKE svog tima: Vreme je da se svi zapitamo GDE SMO I ŠTA SMO!
+-  Vučić nacrtao mapu: 'Ovo su svi ratovi koji se vode protiv mene. Napadaju me jer čuvam Srbiju'
+-  CHP Kocaeli deprem saatinde anma töreni gerçekleştirdi
+-  सहकारी ठगी आरोपमा पृथ्वीनारायण क्याम्पसका सहप्राध्यापक पक्राउ
