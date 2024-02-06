@@ -1,11 +1,11 @@
 # Latest News
--  Greenworks® Battery-Powered Lawn and Garden Products Now Available at Walmart
--  Samsun’da sokakta yürürken silahlı saldırıda yaralandı: 4 gözaltı
--  17 designer sneakers worth investing in, according to Vogue
--  Highest-ever compensation for sexual assault, harassment awarded by B.C. Human Rights Tribunal
--  Más de 450 euros deben pagar en multas las cuatro principales teleoperadoras de Portugal
--  17 designer sneakers worth investing in, according to Vogue
--  Personal assistant was sexually and physically assaulted by boss, B.C. tribunal finds, awarding $100K for discrimination
--  Murió el bombero que se fotografió con Bush tras el atentado a las Torres Gemelas
--  북한 “日 강제동원 조선인 추도비 철거, 반인륜적 폭거”
--  Lucro do Itaú cresce para R$ 35,6 bilhões em 2023
+-  Osun: Adeleke’s Govt crippled local government administration
+-  Horror world champs day for Aussie star
+-  ‘Unreasonable’ move to silence 110yo bowlo
+-  Alarma en la Patagonia por un incendio forestal en el Parque Nacional Nahuel Huapi
+-  SK텔레콤, 높은 배당수익률·자사주 소각 등 주주환원정책 적극적
+-  ‘Unreasonable’ move to silence 110yo club
+-  Assemblée nationale : C’est acté, l’élection présidentielle finalement renvoyée au 15 décembre 2024
+-  솔비·이민우·고준, 뉴욕 소호에서 특별전 참여
+-  Mueren 4 militares tras desplome de un helicóptero del Ejército de Colombia
+-  ‘Unreasonable’ move to silence 110yo club
