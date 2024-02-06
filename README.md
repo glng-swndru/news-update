@@ -1,11 +1,11 @@
 # Latest News
--  Dvojica Osječana htjeli trgovati kriptovalutama pa ih prevarili za 24 tisuće eura
--  Nederlands succes bij AS Roma: 'Ik ben overtuigd van mijn kwaliteiten'
--  TASS: Gazprom Export se kvůli české firmě NET4GAS obrátil na arbitrážní soud
--  Naša je ruka Mostu i dalje pružena, a nećemo sigurno samo sa SDSS-om i Možemo!, koje financira Soros
--  Két uniós ország segíti ki az éhező palesztinokat Gázában
--  Teröristler saldırdı deprem suçluları unutuldu
--  「龜山vs.鶯歌怎選」網戰翻 內行指4大購屋指標
--  Civitas Akademika Ramai Buat Petisi, TKN: Mereka Punya Hak Menyuarakan
--  網友譏「跪著舔中」！連勝文提告求償50萬 敗訴理由出爐
--  „A szivató másik végén vagyunk“ – szakértő a magyar kormány Ukrajna-politikájáról
+-  Register Live-In Relationships Or Face 6-Month Jail: Uttarakhand UCC Bill
+-  Un hombre de 60 años es el primer fallecido en Córdoba por encefalitis equina
+-  Alla klara övergångar i damfyran
+-  Várjon még egy napot a tankolással! Szerdától ennyivel csökken a benzin és a gázolaj ára
+-  À Lorient, la rue Auguste Nayel fermée pour refaire le réseau d’eaux pluviales
+-  Változást mutatott az ipari termelés decemberben
+-  PSG - Real Madrid : Mbappé va signer un contrat légendaire ?
+-  Juniori Željezničara sutra igraju drugu utakmicu na turniru u Španiji
+-  SG Ardagger/Viehdorf - Ardagger/Viehdorf sorgt für volles Haus in Lindabrunn
+-  12 храни, които обичаме, но звездите отказват да ядат
