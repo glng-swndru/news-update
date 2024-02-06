@@ -1,11 +1,11 @@
 # Latest News
--  Governo altera prazo de inscrições do MS Supera após instabilidade no sistema
--  Göreve giden polisleri taşıyan midibüs devrildi, 25 polis hafif şekilde yaralandı
--  Vendas de máquinas agrícolas recuam 16,2% em 2023, aponta Fenabrave
--  Órgãos cobram de Derrite acesso a informações sobre mortes na Operação Escudo
--  전장연, 오늘 서울역 1호선 지하철 시위…출근길 눈·비 겹쳐 혼잡 예상
--  뉴욕증시, 파월 의장 '신중' 발언에 하락 마감…다우 0.7%↓
--  เอาผิด 4 คนร่วมก๊วน "ช่างกิต" เค้นสอบเมียไม่เจอพิรุธ ญาติลอยอัฐิ-สาปส่งเมีย (คลิป)
--  Bowen Yang Responds to Nikki Haley's SNL Appearance
--  Državni vrh Velike Britanije o dijagnozi kralja Charlesa: 'Cijela će mu zemlja željeti sve najbolje'
--  Uprava za zrakoplovstvo: Pregledani avioni Boeing 737 MAX 9 opet prometuju
+-  Pesquisa italiana cria ‘nariz eletrônico’ que identifica vinhos
+-  Stocks making the biggest moves after hours: Palantir Technologies, NXP Semiconductors, Chegg and more
+-  Santander (SANB11) aprova programa de recompra de até 36,2 milhões de units
+-  Philippe Clement eyeing solution for out-of-contract Rangers player
+-  O forță amenințătoare a lui Putin paralizată de Ucraina: Kievul a lovit-o, deschizând calea spre înfrângerea Rusiei
+-  KBB Uzmanı Dr. Büşra Gebeş Şahiner Derince’de
+-  Philippe Clement eyeing solution for out-of-contract Rangers player
+-  최동석, 박지윤과 양육권 갈등?…“아이들 데려올 것”
+-  Pobjeda Manchester Cityja uz hattrick briljantnog Fodena
+-  Lucknow News: सराफ की दुकान का शटर काट लाखों के जेवर चोरी
