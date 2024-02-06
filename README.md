@@ -1,11 +1,11 @@
 # Latest News
--  "Kuća", "Trainspotting" i "Sedam strahova" na sceni BNP-a Zenica
--  Ratched Season 2 Cancelled at Netflix, Sarah Paulson Confirms
--  NAŠA PEVAČICA PRIZNALA DA JE BISEKSUALNA! Kraljica bakšiša šokirala: Raskinula sam sa devojkom!
--  BIG BLUE MARBLE ACADEMY ANNOUNCES NEW LOCATION IN SIMPSONVILLE IS NOW OPEN AND ENROLLING
--  “Hij betastte ook míjn intieme delen”: vriendinnen van vrouw die Dani Alves zou verkracht hebben getuigen tijdens eerste dag van rechtszaak
--  Tragedija kod Garešnice: Traktor prikliještio muškarca
--  Mästarnas Mästare-premiären är den bästa tv jag sett
--  Κλιμακώνουν τις κινητοποιήσεις οι αγρότες: Σκέψεις για αποκλεισμό της Εθνικής Οδού και απόβαση στην Αθήνα
--  Polícia prende quatro por tráfico de drogas em Lucas do Rio Verde; arma apreendida
--  В Китае приговорили австралийского писателя к смертной казни за шпионаж
+-  Transparência Internacional: É falsa informação de que recebeu valores da Lava Jato
+-  Vėžiu sergančiai moteriai – darbdavio atsakas: mums neįgaliųjų nereikia
+-  Charles’ shock new cancer diagnosis
+-  Senate Democrats troubled by 'unconstitutional moves' that affected El Salvador election
+-  Charles’ shock new cancer diagnosis
+-  Депутатите на Орбан бойкотираха вота за Швеция в НАТО
+-  Transparência Internacional: É falsa informação de que recebeu valores da Lava Jato
+-  King Charles health updates: Diagnosed with cancer
+-  Alvesu počelo suđenje, svjedoci iznijeli mučne detalje: 'Bacio ju je na pod i gnjusno ju vrijeđao'
+-  King Charles has cancer, Buckingham Palace says
