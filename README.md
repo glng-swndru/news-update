@@ -1,11 +1,11 @@
 # Latest News
--  Neuerrichtung - Pöggstalls Heimatmuseum strahlt in neuem Licht
--  Pravilnici se nisu mijenjali desecima godina: "Stisnem se koliko mogu, ali drugi ne paze"
--  Afera w mistrzowskim zespole F1. Legenda może wylecieć z hukiem
--  NAŠ PEVAČ BIO JE U POPRAVNOM DOMU, PA ZAVRŠIO NA ROBIJI Šok detalji iz života: Zbog ove TRAGEDIJE je dugo patio
--  Voici les résultats des Mousquetaires (Intermarché) en 2023
--  Skoraj devetnajst let denacionalizacijske zamude
--  “레고랜드 사태 막자”…‘국토부-고용부-금융위’ 맞손
--  Großes Zeugnis zur Energiewende: So schneiden Habeck, Scholz und Lindner ab
--  Ambíció
--  Vasúti logisztikai vállalatban szerzett többséget a Waberer’s Csoport
+-  Mladá jezídka sa dostala na slobodu po vyše 10 rokoch zajatia u IS
+-  Назван виновник срыва трансфера Килиана Мбаппе в «Реал»
+-  Fréquentation record, en 2023, au Rambolitrain
+-  Kara yollarında son durumlar belli oldu! İşte 6 Şubat kara yollarında son durumlar
+-  Hamarosan teljes napfogyatkozás lesz az Egyesült Államokban
+-  Vântul le-a dat de furcă pompierilor din Vâlcea. În doar 4 ore, au avut de stins 15 incendii de vegetație uscată
+-  Hari Won hốt hoảng vì Trấn Thành "biến mất" lúc 4 giờ sáng, ngỡ ngàng khi thấy anh lén vợ làm việc này
+-  Policie pátrá po čtrnáctileté Kristýně, naposledy byla u stanice metra Můstek
+-  Βασίλι Ζάιτσεφ: ο ελεύθερος σκοπευτής-θρύλος της ΕΣΣΔ είχε μια τελευταία επιθυμία που του τη στέρησαν
+-  Über 4 Millionen TV-Nutzer betroffen: Gleich 6 Sender wurden inzwischen abgeschaltet
