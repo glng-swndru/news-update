@@ -1,11 +1,11 @@
 # Latest News
--  Moins de porteurs de projets et moins de prêts d'honneur, en 2023, pour le Réseau Initiative Eure-et-Loir
--  Bocheński kandydatem PiS na prezydenta Warszawy. Marcinkiewicz szuka drugiego dna
--  Quelle est cette fumée visible sur les monts du Cantal ? Petit rappel sur la pratique de l'écobuage en hiver
--  Ένας χρόνος από τον φονικό σεισμό σε Τουρκία και Συρία: Η πληγή μένει ανοιχτή και ο φόβος είναι η νέα κανονικότητα
--  Carnevale: pediatra, 'no maschere guerra e violenza ma spiegare a bimbi perché'
--  Andreas Niedrig: Glücklich auf dem Dach Afrikas: So verlief die Besteigung des Kilimanjaro
--  Diese Wetter-App bietet einzigartige Funktion, die gerade jetzt für Millionen nützlich ist
--  Shame NYT! Taylor Swift’s Boo Travis Kelce Did NOT 'Revolutionize' the Fade Haircut
--  Naxçıvanda cinayətkar dəstə üzvləri saxlanıldı
--  Nietypowy bal dla singli. Ilu "dobrych mężów i żon" udało się znaleźć?
+-  Dove Cameron und Damiano David geben ihr Red-Carpet-Debüt!
+-  גלנט: התמרון הקרקעי הוא מהמורכבים ומהמסובכים בהיסטוריה של המלחמות
+-  La marque de prêt-à-porter IKKS envisage une réduction d'effectifs et du nombre de magasins
+-  Pozor, v zračnem prostoru Slovenije poteka vojaška vaja
+-  Sube a 122 el número de víctimas fatales por los incendios forestales en Chile
+-  Dorota Gawryluk wystartuje w wyborach prezydenckich? Media: Pytana stosuje uniki
+-  غسان الخوري: المشهد اللبناني الجامع في مؤتمر الاخوّة الانسانية يشبه التيار الوطني الحر
+-  Μ. Κατρίνης: "Υπάρχει τραπεζικό σύστημα για να χρηματοδοτήσει την ανάπτυξη της οικονομίας;"
+-  Abinader en La Semanal con la Prensa
+-  Кирил Петков за ротацията: Минимален брой промени на министри ще даде по-голямо спокойствие на обществото ни
