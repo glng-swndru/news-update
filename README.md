@@ -1,11 +1,11 @@
 # Latest News
--  Над 878 дни в Космоса: Руски космонавт постави световен рекорд
--  Capes families call on State Government to show fairness in cost-of-living relief measures
--  VRIJEDNA DONACIJA Klinika za dječje bolesti KBC-a Split dobila uređaj koji najmlađim pacijentima pomaže disati
--  Trei reguli pentru a slăbi 5 kilograme. Sfaturi de la Mihaela Bilic
--  Kỷ lục mới của thành phố nhỏ nhất Việt Nam
--  Josipa Rimac tvrdi: 'Uskok je tražio da lažno svjedočim protiv Ivana Turudića. Odbila sam to'
--  Capes families call on State Government to show fairness in cost-of-living relief measures
--  Yeniden Refah Partisi 80 adayını açıkladı
--  SC introduces Focus Scope Assessment approach to gatekeeping
--  중대범죄라며 엄벌 후 ‘관행’ 셀프특사···제왕적 대통령의 ‘면죄부’
+-  INSÄNDARE: Tapetsera inte Malmö med mördarens nuna
+-  KI in Unternehmen: Welche Faktoren sind für die erfolgreiche Implementierung Künstlicher Intelligenz in Unternehmen notwendig? / Untersuchung des Brand Science Institute zeigt Erfolgsfaktoren auf
+-  Blinken'a gerçekler haykırıldı: "Soykırım Bakanı seni..."
+-  평택 로즈팜 둘러본 송미령 장관 "농축산업 미래 스마트 축산 지원"
+-  Pamela Anderson otkrila s kim joj je bilo najvrelije u krevetu
+-  Překvapení pro hráče: ty nejlepší hry od Microsoftu zamíří na PlayStation
+-  6D LOTTO RESULT Today, Tuesday, February 6, 2024
+-  송미령 장관 "스마트축산 보급 확산 위해 필요한 지원 강화"
+-  Nemecké priemyselné objednávky vzrástli najvyšším tempom za 3,5 roka
+-  Call to cancel renewable rollout, Nationals declare bush is full
