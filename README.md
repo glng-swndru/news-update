@@ -1,11 +1,11 @@
 # Latest News
--  GOB: «La propietat militar i els actuals usos de defensa no són incompatibles amb la protecció»
--  2 mỹ nhân màn ảnh Việt rời showbiz sang Mỹ khi ở đỉnh cao, giờ sống sung túc trong biệt thự sang trọng
--  Є 7 популярних способів зберігання бананів: який найкращий
--  Γεωργιάδης για Κασσελάκη: Όταν πηγαίνει στα Χάμπτονς με τον Τάιλερ το πρώτο που σκέφτεται είναι τα αγροτικά μπλόκα
--  Numărul de noi cazuri de cancer, în creștere cu peste 20% în România
--  Karneval: Karneval im Kreis Olpe: Die buntesten Bilder und alle Infos
--  Cumhur İttifakı Beşiktaş Belediye Başkan Adayı Serkan Toper gençlerle buluştu
--  Escobedo da la bienvenida a los 21 estudiantes de 16 países del Máster Erasmus Mundus en Ingeniería de Bioproductos y Biomasa Sostenible
--  New Treatment Approach Good News for People Battling Rectal Cancers
--  El día 29 arranca en Toledo un ciclo de novela histórica, con el que aspira a volver a ser "luz" sobre Europa
+-  Eismo įvykis Klaipėdoje: prastai pasijutęs vairuotojas automobiliu kliudė pėsčiąjį ir rėžėsi į medikų automobilį
+-  "Това е нещо повече от хуманитарно бедствие"
+-  Onda de calor também afeta seu celular e computador. Saiba como protegê-los
+-  Umrla velikanka varovanja pravic aboriginov Lowitja O'Donoghue
+-  Sshura Khan's latest post for Arbaaz Khan is all things love - See photos | - Times of India - IndiaTimes
+-  Highland Council to object to Kirkton Energy Park proposal on north coast
+-  37 bin makaron ve 58 kilo tütün ele geçirildi
+-  Pemerintah Korea Selatan Berencana Larang Adegan Merokok di K-Drama
+-  Глава МЗС Португалії прибув з візитом у Київ
+-  Утре слънчево и топло, но в Северна България пак ще духа силен вятър
