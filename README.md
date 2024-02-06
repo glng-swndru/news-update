@@ -1,11 +1,11 @@
 # Latest News
--  heise+ | Kurztests: Kopfhörer von Philips, LG und Audio-Technica
--  Cinestar Dortmund zeigt den Super Bowl auf der Leinwand: Dortmunder Football-Team ist mit dabei
--  Edward Miszczak mówi o małżeństwie z młodszą o 25 lat Anną Cieślak: "Ta sytuacja mnie wiele nauczyła"
--  Robinson to take anti-Islamophobia training after controversial Gaza statement
--  Das saftigste Bananenbrot, das man je probiert hat, besteht aus nur 5 Zutaten
--  Neue Bücherei steht jetzt in Waltrops Innenstadt: „Hier kann man richtig schön schmökern“
--  Bruno Akrapović nakon pobjede: Dolazi nam novi stoper večeras
--  Florian Kaufmann - Vom Uhrmacher zum Informationsoffizier in der Kaserne Weitra
--  Roy Keane supported two clubs growing up and neither one was Man Utd, he remains deeply loyal to one team
--  Командующий НВС Латвии: ситуация не более опасна, чем десять лет назад
+-  Moins de porteurs de projets et moins de prêts d'honneur, en 2023, pour le Réseau Initiative Eure-et-Loir
+-  Bocheński kandydatem PiS na prezydenta Warszawy. Marcinkiewicz szuka drugiego dna
+-  Quelle est cette fumée visible sur les monts du Cantal ? Petit rappel sur la pratique de l'écobuage en hiver
+-  Ένας χρόνος από τον φονικό σεισμό σε Τουρκία και Συρία: Η πληγή μένει ανοιχτή και ο φόβος είναι η νέα κανονικότητα
+-  Carnevale: pediatra, 'no maschere guerra e violenza ma spiegare a bimbi perché'
+-  Andreas Niedrig: Glücklich auf dem Dach Afrikas: So verlief die Besteigung des Kilimanjaro
+-  Diese Wetter-App bietet einzigartige Funktion, die gerade jetzt für Millionen nützlich ist
+-  Shame NYT! Taylor Swift’s Boo Travis Kelce Did NOT 'Revolutionize' the Fade Haircut
+-  Naxçıvanda cinayətkar dəstə üzvləri saxlanıldı
+-  Nietypowy bal dla singli. Ilu "dobrych mężów i żon" udało się znaleźć?
