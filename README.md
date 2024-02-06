@@ -1,11 +1,11 @@
 # Latest News
--  Американцы на Украине заявили о сокрушающих ВСУ «волнах» российских войск
--  Nazir istefa verdi
--  Jelena Rozga i Ivan Huljić snimljeni zajedno u trgovini
--  Cagliari, a breve anche le parole di Ranieri in conferenza
--  Por que os bancos centrais estão relutantes em declarar vitória sobre a inflação
--  Barcelona interested in Adrien Rabiot - again
--  Geen heldenrol voor uitmuntende Flekken: hattrick Foden doet Oranje-doelman das om
--  Fenabrave: Vendas de motos crescem 29,7% em janeiro contra janeiro de 2023
--  King Charles sent 'hidden message' with last photos before cancer diagnosis made public
--  "Esa casa amarilla", un documental que aborda la dolorosa experiencia del aborto
+-  Governo altera prazo de inscrições do MS Supera após instabilidade no sistema
+-  Göreve giden polisleri taşıyan midibüs devrildi, 25 polis hafif şekilde yaralandı
+-  Vendas de máquinas agrícolas recuam 16,2% em 2023, aponta Fenabrave
+-  Órgãos cobram de Derrite acesso a informações sobre mortes na Operação Escudo
+-  전장연, 오늘 서울역 1호선 지하철 시위…출근길 눈·비 겹쳐 혼잡 예상
+-  뉴욕증시, 파월 의장 '신중' 발언에 하락 마감…다우 0.7%↓
+-  เอาผิด 4 คนร่วมก๊วน "ช่างกิต" เค้นสอบเมียไม่เจอพิรุธ ญาติลอยอัฐิ-สาปส่งเมีย (คลิป)
+-  Bowen Yang Responds to Nikki Haley's SNL Appearance
+-  Državni vrh Velike Britanije o dijagnozi kralja Charlesa: 'Cijela će mu zemlja željeti sve najbolje'
+-  Uprava za zrakoplovstvo: Pregledani avioni Boeing 737 MAX 9 opet prometuju
