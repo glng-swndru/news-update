@@ -1,11 +1,11 @@
 # Latest News
--  "FRK PETOM" Igrač Rame postigao sjajan pogodak protiv Zrinjskog u Mostaru
--  Галатасарай может подписать звездного хавбека Манчестер Юнайтед
--  Топурия уверен, что нокаутирует Волкановски в первом раунде
--  Sébastien Vaniček Tapped To Helm ‘Evil Dead’ Spin-Off As He Signs With CAA
--  ABD Dışişleri Bakanı Blinken, Suudi Arabistan Veliaht Prensi Salman ile görüştü
--  Suposta vítima do caso Daniel Alves presta depoimento a portas fechadas e reforça acusação de agressão sexual
--  Beyoncé compartilha detalhes de seu look e de Blue Ivy para o Grammy 2024
--  Em casamento aberto com Caio Blat, Luisa Arraes é vista beijando filho de Cássia Eller
--  Regina Casé parabeniza Zeca Pagodinho e brinca: Amiga que é amiga tapa a barriguinha do aniversariante
--  Celine Dion faz rara aparição no Grammy 2024 após diagnóstico de síndrome da pessoa rígida
+-  ODDVJETNIK JOSIPE PLESLIĆ EX RIMAC Ona je žena i majka i zasigurno joj nije lako, prolazi torturu
+-  Hilversum is een reservaat vol droeftoeters die vroeger te weinig aandacht kregen
+-  King Charles III being treated for undisclosed form of cancer
+-  Ryan Blaney On The Bond Between Driver And Spotter
+-  King Charles III undergoing treatment for cancer
+-  Eine Woche vor der TV-Premiere auf ProSieben jetzt schon streamen: Das ist der neue Serien-Hit des "Ted"- & "Family Guy"-Machers
+-  Victoria’s home loans plummet while others hit record highs
+-  Sondaggio Mentana, Conte dimentichi il sorpasso: dalle cifre una legnata per i 5 Stelle
+-  소프라노 박혜상 “새 앨범 콘셉트는 ‘살아가는 동안 빛나라’에요”
+-  Na zes jaar KNVB ligt de wereld open voor voetbaltrainer Mischa Visser uit Groningen. 'Ik ben ambitieus, maar heb geen groot ego'
