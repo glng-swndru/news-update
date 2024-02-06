@@ -1,11 +1,11 @@
 # Latest News
--  MP Board 12th, Jharkhand 10th, 12th exams 2024 begins today; check exam timing, guidelines here
--  भैरहवाबाट १४३ करोडको सिमेन्ट र क्लिंकर निकासी
--  December 2023 Quarterly Report
--  Вторник в страх и тревога: 4 зодии да внимават днес!
--  «Клипперс» победили «Атланту», «Нью-Орлеан» разгромил «Торонто»
--  Chủ tịch FED Jerome Powell cảnh báo: Một số ngân hàng sẽ phải đóng cửa, nhưng vấn đề này ‘có thể kiểm soát’
--  Взрыв в котельной жилого дома в Баку
--  “키 내놓으라”며 여성 운전자 폭행하고 차량 탈취…잡히자 “내가 왜 그랬는지”
--  Lapas Muaro Padang Dirikan Empat TPS Khusus untuk Pemilu 2024
--  ¿Quién es la modelo que prestó su rostro para crear a Eve de Stellar Blade?
+-  Antes y después: la luminosa cocina provenzal de una jardinera apasionada
+-  Sparpläne der Ampel: Ist die Hamburger S4 in Gefahr?
+-  "אתה חושב לעצמך: 'אני אעשה עוד סרט', ושנתיים חולפות, ואז עוד שנתיים. פאק, מה קורה כאן?"
+-  Людей слід готувати до війни, а не до служби у війську – командир батальйону безпілотників 3-ої ОШБр Мазевич
+-  Stadion pro finále MS 2026: Nejhorší hřiště v NFL, místo Pelého rozlučky
+-  サテライトオフィス、Google スプレッドシートで管理できるQ＆Aシステム提供開始
+-  ‘Below Deck’ Chief Stew Fraser Olender Has A “Love Interest” Of His Own This Season: “I’ve Always Been A Third Wheel”
+-  تیم ملی مراقب جنگ روانی قطر باشد
+-  رفتار آتشفشان «تفتان» تغییر محسوسی ندارد/عدم تامین اعتبار برای پایش آتشفشان‌های کشور
+-  5 Contoh Surat Lamaran Kerja via Email, Ada yang untuk Fresh Graduate hingga Bahasa Inggris
