@@ -1,11 +1,11 @@
 # Latest News
--  Kakvo nas vrijeme očekuje idućih dana? Detalje donosi meteorolog Ivan Čačić
--  Darwin real estate agent loses licence after tenant ‘witch hunt’
--  Emekli olmaya zorladığı çalışanına binlerce dolar tazminat ödemek zorunda kaldı
--  Wer steckt hinter dem Torten-Angriff auf Eric Sindermann?
--  Januárban is változást mutatott a kiskereskedelmi forgalom
--  KAKO DO SUBVENCIJA ZA ELEKTRIČNI AUTOMOBIL? Pratite ovih 6 koraka, nova pomoć države
--  Srbin nakon smrti babe ostao bez ičega: Rodbina potpisala ugovor i iza njegovih leđa, OTELA CELOKUPNU IMOVINU
--  Spike Lee Set For Career Award From American Society Of Cinematographers
--  Ska vi alla bli traumatiserade nu?
--  Faciəvi şəkildə həlak olan Tunar Vətən müharibəsi iştirakçısı imiş
+-  Tahran, Moskova ve Pekin silah gösterecek
+-  Dere taşması sonucu camide mahsur kalanlar kurtarıldı
+-  Ще заиграе ли Бастунов на "Герена"? Левски дава само 50 000, от Хебър искат 200 000
+-  Linde-Aktie im Plus: Linde erwartet 2024 gebremstes Wachstum - Prognosen übertroffen
+-  Lactalis perquisitionné dans une enquête pour fraude fiscale aggravée
+-  Davinson Sanchez bu sezonki 2. golünü attı
+-  MAJKA OSUĐENA ZBOG SINA (17) KOJI JE POČINIO MASAKR! Istorijska presuda, nije ga SPREČILA da ubije drugove!
+-  Emmerdale hints at who will catch abusive and controlling Tom King out
+-  Lactalis perquisitionné dans une enquête pour fraude fiscale aggravée
+-  Evrópukeppni unglingaliða: Sárt og svekkjandi tap hjá Daníel og félögum
