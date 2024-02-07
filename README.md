@@ -1,11 +1,11 @@
 # Latest News
--  Rob Shaw: Score-settling on the minds of some as Selina Robinson turfed from cabinet
--  ‘We wish the king the very best’ – MP
--  Nächtlicher Lärm: Verärgerung über Autoposer in Wipperfürth geht weiter
--  Atiku Again Blasts Tinubu Over Failure To Tackle Economic Challenges Facing Nigeria
--  Objavljen Javni poziv za učešće na XXIII festivalu bh. drame Zenica 2024.
--  Man dies in north Minneapolis shooting
--  Kako su Huti postali ovako moćni
--  North vs South: Can Tamil Nadu survive the migrant labour exodus?
--  Изненада! Липсващите гласове според данните от флашките повече за Терзиев, отколкото за Григорова
--  美國立亞洲藝術博物館百年委創：台灣導演蔡明亮新片柏林影展首映
+-  Feminen Ne Demek? Türkçede "Feminen Ne Demek?"
+-  Kärleksveckan tillbaka i Lund
+-  Vuelven al Ibex 35 los 10.000 puntos (por la mínima) de la mano de Unicaja y Acerinox
+-  ORTEC Launches Innovative End-to-End Supply Chain Solution for Increased Efficiency and Reduced Costs
+-  FDP spielt den Koalitionsbruch durch: In der Ampel rasen zwei Züge aufeinander zu
+-  Карлос Контрера: Сянката на ротацията оказва влияние върху избора на шеф на СОС
+-  Ahol bátorságra is szükség van, de legfontosabb a csapatjáték - Nyílt napot tartottak a veszprémi kórházban
+-  Kärleksveckan tillbaka i Lund
+-  Pierre (Star Academy) s'exprime sur ses réseaux sociaux, les élèves et les professeurs réagissent
+-  Rengiyle de tadıyla da siyah çaya fark atıyor! Osmanlı'dan gelen gelenek: Faydalarını duyunca markete koşacaksınız
