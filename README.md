@@ -1,11 +1,11 @@
 # Latest News
--  İSİG Meclisi: Ocak ayında en az 158 işçi hayatını kaybetti
--  A Place in the Sun buyers' horror after realising home was 'too good to be true'
--  Murat Kurum, İstanbul'da sendikalara destek vereceğini açıkladı
--  زلزال بقوة 4.9 درجات يضرب جزر سليمان في المحيط الهادئ
--  Saaremaalt pärit lastekirjaniku uus raamat pakub seiklusi ja põnevust
--  Világossá tette a miniszterelnök: az euró a hivatalos fizetőeszköz Koszovóban
--  Khatron Ke Khiladi 14: Mannara Chopra confirmed to be a part of Rohit Shetty show? Bigg Boss 17 finalist reacts
--  Fotografije dneva (7. 2.)
--  Good Morning Britain fans 'sick to death' as they blast 'ridiculous' Prince Harry question
--  Ezért ne öntse a lefolyóba a Bailey’s-t!
+-  Brimob Menjadi Andalan untuk Pengaman Pemilu 2024
+-  Csökken a benzin ára, de így sem esik be 600 forint alá
+-  Snap Doesn't Get its Meta-Moment
+-  L'Inter non perde di vista Fabbian. Entro il 2025 può riprenderlo dal Bologna a 12 milioni
+-  Farzi 2 to release soon on OTT? Shahid Kapoor spills the beans
+-  L'assistante maternelle avait délaissé deux jeunes enfants pour aller faire des courses
+-  Global and Regional Biorational Pesticides Market Analysis Report 2023-2033: Advancements in Microbial Research and Rising Demand of Organic Food Products Emerging as Major Trends
+-  Seime ruošiamas siūlymas visiškai uždrausti lošimo reklamą
+-  Travis Kelce se hace fan de Griezmann y de la Liga Española: "¡Qué pasada!"
+-  H βασίλισσα Λετίσια αντικαθιστά τα kitten heels με ένα ζευγάρι loafers με τακούνι
