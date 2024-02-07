@@ -1,11 +1,11 @@
 # Latest News
--  Только что подписал указ, который начинает создание в наших Силах обороны отдельного рода сил - Сил беспилотных систем, - Зеленский. ВИДЕО
--  В Молдавии заявили о готовности расследовать инцидент на границе Украины
--  '64년 만의 우승' 불발…주장 손흥민 "너무 죄송하다"
--  אלוף פיקוד מרכז יהודה פוקס מתנצל: "זאת הייתה טעות לתרגל את התרחיש"
--  L'UBCI lance un appel à candidature pour désigner deux Administrateurs Indépendants
--  Пользователи Apple Vision Pro стали подвергать себя и других опасности — чиновники в США забили тревогу
--  Milović demantuje medijske natpise: Ćerka Suzane Mugoše odrađuje pripravnički u UIKS-u preko Vladinog programa stručnog osposobljavanja
--  Boas-vindas à ministra Vera Lúcia
--  Balıkesir'de asayiş uygulamasında çeşitli suçlardan aranan 5 şüpheli yakalandı
--  Bhopal: BMHRC Starts Making Smart Cards For Gas Victims Treatment
+-  Kruno Simon zbog prijetnji povlači se s liste za Dinamovu skupštinu
+-  Kunstradfahren: Favoriten setzen sich durch
+-  King Charles III’s cancer caught early, UK PM says
+-  The Future of Brain Monitoring: Market Size poised to Cross US$ 12.5 Billion by 2034
+-  U eksplozijama u Somaliji poginulo najmanje 10 ljudi
+-  King Charles III’s cancer caught early, UK PM says
+-  Daily Lotto results: Tuesday, 6 February 2024
+-  Rune Dahl var alltid gjestfri og sjenerøs
+-  ‘Deeper conversation’ needed on assisted dying, mental health: Holland
+-  For 8th straight year, Indiana Donor Network achieves a record number of lifesaving organ transplants – 1,134
