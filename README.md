@@ -1,11 +1,11 @@
 # Latest News
--  Rusijos URM iškvietė Baltijos šalių diplomatus dėl rinkimų „sabotažo“
--  Serafín Suárez | “Lo que no hagamos por caridad lo vamos a tener que hacer por necesidad”
--  Customs intercepts six trucks of rice, 23,000 litres of PMS worth N854.1m
--  Philippa Anderson driven to bring it home at Surfest 2024 after flying start
--  "Nos efforts sont caricaturés": le président de Domaines skiables de France réagit au bilan critique des stations dressé par la cour des comptes
--  Sir Jim Ratcliffe is responding to Manchester United wish with statement of intent
--  Pavement parking ban is about to be introduced in Glasgow
--  Stjärnans känga till Poromaa: ”En bit ner på listan”
--  6 πράγματα που δεν πρέπει να αποθηκεύετε στα ντουλάπια της κουζίνας
--  Спа хотели дерат кожи - Труд
+-  Bakanlık el koydu! Usulsüz işlemlerle yurda sokulan 49 lüks aracın piyasa değeri dudak uçuklattı
+-  “Queremos que um contentor carregado em Sines possa ser descarregado na Polónia”
+-  ’Grijze hulptroepen zijn veeleisend’
+-  Bu alışkanlıklar gençlik iksiri kolajenin azalmasına neden oluyor
+-  İstanbul baraj doluluk oranlarında artış
+-  Ομόνοια: Με επιστροφές και ανεβασμένη ψυχολογία, για να δώσει συνέχεια στις νίκες
+-  Rekordordreindgang og positiv bundlinje til Vestas
+-  Samajwadi Party leader Shivpal Yadav slams BJP, says RLD's Jayant Chaudhary 'will remain with INDIA bloc'
+-  Consommation. Comment repérer les produits (vraiment) français au supermarché ?
+-  Avant le vote du budget de la Région, les oppositions unanimes pour fustiger la hausse des cartes grises et des billets TER
