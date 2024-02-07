@@ -1,11 +1,11 @@
 # Latest News
--  Ausstellung im Düsseldorfer Kunstpalast: Eine Frage des Formats
--  От март до октомври: С 50% скача такса "настаняване" в Гърция
--  Milli Savunma Bakanı Güler, IKBY Başkanı Barzani'yle görüştü
--  Over 20 killed in twin blasts on eve of Pakistan election
--  Sakla Beni 15. bölüm fragmanı yayınlandı! Artık senin bende affın yok Naz!
--  Százszámra fogják a gyorshajtókat az új budapesti traffipaxok, ennyivel ment a rekorder
--  Местный житель гоняет водителей, заезжающих на тротуар Центрального проспекта, пока власти бездействуют
--  Niespodziewany zwrot akcji w reprezentacji Polski. Jest oficjalny komunikat, chodzi o sponsora kadry
--  Alper Gezeravcı'nın dünyaya dönüş saati belli oldu
--  Kolda - Grève des médecins, pharmaciens, chirurgiens et dentistes : Désarroi et colère chez les population
+-  Cháy nhà khi luộc bánh chưng Tết
+-  Gunung Putri Lembang: Daya Tarik, Tarif dan Aktivitas Serunya
+-  【2月7日】インテル・マイアミvsヴィッセル神戸｜地上波テレビ放送・ネット配信 未定【2月7日18時30分更新】 - SOCCER KING
+-  PSG : Un gros défi est annoncé pour Luis Enrique !
+-  Kira ve konut fiyatlarındaki artış yüzde 14.3! Türkiye ekonomisindeki en önemli sorun ne?
+-  Anpfiff, Übertragung & Co.: Alle Details zum Super Bowl 2024
+-  Счет на миллионы. Назван гонорар Тео Лопеса за бой с Ортисом
+-  地元漁師から卒業生へ卒業祝い「若松葉がに」給食 １人１杯振舞われる豪華なプレゼント（鳥取・岩美町）
+-  Målvaktsstjärnan Carl Lindboms resa: “Det var en jäkla ära”
+-  Ukusna krem juha od rajčice
