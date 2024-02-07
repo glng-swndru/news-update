@@ -1,11 +1,11 @@
 # Latest News
--  نجم المنتخب الإيراني السابق روشان: العنابي عازم على النهائي
--  Nieerlande: Geert Wilders kassiert Abfuhr bei Koalitionsverhandlungen
--  PF faz operação para investigar suspeito de criar 'vaquinha' para financiar assassinato de Lula
--  Lucas Villalba chega a Belo Horizonte para fazer exames e assinar contrato com Cruzeiro
--  Liga 1: Irfan Jaya Sentil Laga Bali United kontra Persik, Kalah Karena Ini
--  PF faz operação para investigar suspeito de criar 'vaquinha' para financiar assassinato de Lula
--  Ákærður fyrir morð á nærri 200 börnum
--  PF faz operação para investigar suspeito de criar ‘vaquinha’ para financiar assassinato de Lula
--  Viste 20 minutter fra Final Fantasy VII Rebirth
--  石原さとみら 美女3ショット反響
+-  Sesión positiva para el peso mexicano
+-  Hàn Quốc bị loại tại bán kết Asian Cup, HLV Klinsmann gây phẫn nộ vì nụ cười khó hiểu
+-  El gobierno avanza en gestiones para concretar un vuelo entre Uruguay y Italia
+-  지난해 예탁원 통해 처리된 자본시장 대금, 전년비 10% 증가… 6경6200조원
+-  No Carnaval, descontração não rima com desatenção
+-  यस्तो रहने छ आज दिनभरको मौसम
+-  07.02.24 Macro Morning
+-  "동성애자와 성관계 후 협박 받아"…튀니지인 난민소송 승소
+-  Former Abbotsford school trustee dies in crash
+-  No Carnaval, descontração não rima com desatenção
