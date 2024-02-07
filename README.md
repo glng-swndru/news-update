@@ -1,11 +1,11 @@
 # Latest News
--  Incidentul de la Alaska Airlines: Patru şuruburi care ar fi trebuit să fixeze uşa desprinsă în zbor de pe avionul Boeing MAX 9 lipseau
--  背番号譲られ同僚夫妻にポルシェ贈った大谷翔平「それくらい価値ある」
--  MAGISTRATE BARS HEADMAN CHIGODORA
--  Bolsonaro organiza ato com apoiadores mesmo depois de PF cancelar depoimento em São Sebastião
--  Backstop on insurance needed from catastrophe risk, says regulator
--  Nick Baker’s Weird Creatures Season 2 Streaming: Watch & Stream Online via Amazon Prime Video
--  JoJo's Bizarre Adventure: Axed Light Novel Surfaces With Hirohiko Araki's Art
--  Bolsonaro organiza ato com apoiadores mesmo depois de PF cancelar depoimento em São Sebastião
--  Se dispararon las acciones de Spotify gracias a proyecciones de negocio y aumento de usuarios
--  VfB Stuttgart bei Bayer Leverkusen: „Wir können stolz auf das sein, was wir geleistet haben“
+-  Dukung UMKM, Sepanjang 2023 Pertamina Salurkan Rp 141 Miliar untuk 5.116 Mitra Binaan
+-  日本の領土返還団体を「望ましく団体」に指定 ロシア政府
+-  Tres días de duelo en Chile y un funeral de Estado para Piñera
+-  How good would this be on a sunny Saturday on the Border in March?
+-  SKANDAL U NJUJORKU Uhapšeno više od 60 radnika Uprave za stambena pitanja zbog korupcije
+-  Eski Şili Devlet Başkanı Pinera helikopter kazasında öldü
+-  13 blue states say EPA should strengthen proposal to remove lead water pipes
+-  Video shows massive explosion as pick-up truck plows into gas pumps ‘Oh my f–king God!’
+-  Trio arrested after alleged $6K shoplifting incident at Vancouver Lululemon
+-  Wind power outpaced gas plants in Europe for the first time in 2023 - Ember
