@@ -1,11 +1,11 @@
 # Latest News
--  Tarifs de SNCF Réseau : le Conseil d’État rejette le recours de la Région Bourgogne Franche-Comté
--  현대제철서 7명 쓰러져…1명 사망 · 2명 중태
--  Pesquisa aponta a liderança de Botelho na corrida pela Prefeitura
--  서병수 · 김태호에 '낙동강 험지' 출마 요구
--  국화꽃 든 특수교사들과 함께…항소장 제출
--  '가습기 살균제' 국가 배상 책임 첫 인정
--  Takside bir şiddet vakası daha! Önce bıçakladı sonra yumrukladı
--  "윤 정권 탄생 원인 제공자" 지목에 반박
--  중국 원료 들여와 가정집에서…'근육 약물' 적발
--  حسام حسن مديراً فنيا لـ منتخب مصر
+-  Rob Shaw: Score-settling on the minds of some as Selina Robinson turfed from cabinet
+-  ‘We wish the king the very best’ – MP
+-  Nächtlicher Lärm: Verärgerung über Autoposer in Wipperfürth geht weiter
+-  Atiku Again Blasts Tinubu Over Failure To Tackle Economic Challenges Facing Nigeria
+-  Objavljen Javni poziv za učešće na XXIII festivalu bh. drame Zenica 2024.
+-  Man dies in north Minneapolis shooting
+-  Kako su Huti postali ovako moćni
+-  North vs South: Can Tamil Nadu survive the migrant labour exodus?
+-  Изненада! Липсващите гласове според данните от флашките повече за Терзиев, отколкото за Григорова
+-  美國立亞洲藝術博物館百年委創：台灣導演蔡明亮新片柏林影展首映
