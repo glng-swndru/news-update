@@ -1,11 +1,11 @@
 # Latest News
--  ЗОШТО СЕ ОДЛОЖИ ПОСЕТАТА НА МИНИСТЕРОТ МЕЏИТИ НА ПРИЛЕПСКАТА БОЛНИЦА - има ли врска „кавгата“ на Владата со Алијанса за Албанците
--  Ha egy kicsit is romantikus alkat, tutira elolvad Tóth Gabiék legújabb fotójától
--  Ayu Ting Ting Buka Suara soal Dugaan Lamaran dengan Anggota TNI
--  Los mercados, a la espera; las señales divergen: Cosas a tener en cuenta hoy
--  Il giallo di Manuela Murgia trovata morta a 16 anni: "L'hanno uccisa, riaprite le indagini"
--  RED COMPARTIDA | Las reformas son la agenda de la 4T
--  Bolu ormanlarında yeni bir tür keşfedildi
--  納豆消費量 日本一だった福島市…9位に陥落 納豆の値上げ 外での飲食増加が背景に
--  納豆大好き福島市民 消費量9位陥落も飲食店はアツイ！ ユニークメニューで日本一奪還へ
--  UN appeals for $4.1 billion to help war-torn Sudan, refugees
+-  Szakítós pizzával fordul rá a Valentin-napra az amerikai Pizza Hut
+-  Apple ascolta le critiche: il primo aggiornamento di VisionOS migliora le Persona
+-  Kapolres Lampung Utara Pimpin Apel Pengecekan dan Pembagian Sarpas Logistik Personel Pam TPS Pemilu 2024
+-  Добрев: Сглобката претърпя пълен провал
+-  Поломали качественно, но не поможет. Как VPN обрел сакральность и что будет после 1 марта, которое власть объявила днем победы над обходом блокировок
+-  RRZ: Kúpna sila rodín napriek inflácii za dva roky v priemere vzrástla
+-  Ege Bölgesi için fırtına uyarısı
+-  Phiên 7/2: Ngược chiều khối ngoại tự doanh CTCK trở lại mua ròng gần trăm tỷ trên HOSE
+-  Aalen gedenkt der Erdbebenopfer in seiner türkischen Partnerstadt Antakya
+-  Wie man als Amazon-Seller ein Millionen-Startup aufbaut – ein Praxisbericht
