@@ -1,11 +1,11 @@
 # Latest News
--  Teejay Lanka pips Abans to clinch MCA “E” division 25 over League trophy
--  Ρέθυμνο: Η φρίκη που ζούσε η 14χρονη, το τελευταίο σημείωμα του πατέρα και το «γιατί» της μάνας
--  【新NISAにも役立つ】「株で勝つ人・負ける人」会社情報の見方に決定的な差 - 10万円から始める! 小型株集中投資で１億円 【１問１答】株ドリル
--  ŽIKA JAKŠIĆ PROSLAVLJA ROĐENDAN A GOSTI SU MORALI DA DONESU KOVERTE! Dao im uslov, a ono što će uraditi sa novcem će vas šokirati
--  «Мне это интересно». Ярмоленко рассказал о планах на Олимпиаду
--  Hamas son ateşkes önerisine olumlu karşılık verdi
--  Boris Becker: Er hört als Tennis-Coach von Holger Rune auf
--  Gobierno dominicano expresa pesar por muerte de Sebastián Piñera
--  Michael Gove admits he is in Treasury 'dog house' over spending
--  Маск пообещал не блокировать интервью Карлсона с Путиным в соцсети X
+-  Kakvo nas vrijeme očekuje idućih dana? Detalje donosi meteorolog Ivan Čačić
+-  Darwin real estate agent loses licence after tenant ‘witch hunt’
+-  Emekli olmaya zorladığı çalışanına binlerce dolar tazminat ödemek zorunda kaldı
+-  Wer steckt hinter dem Torten-Angriff auf Eric Sindermann?
+-  Januárban is változást mutatott a kiskereskedelmi forgalom
+-  KAKO DO SUBVENCIJA ZA ELEKTRIČNI AUTOMOBIL? Pratite ovih 6 koraka, nova pomoć države
+-  Srbin nakon smrti babe ostao bez ičega: Rodbina potpisala ugovor i iza njegovih leđa, OTELA CELOKUPNU IMOVINU
+-  Spike Lee Set For Career Award From American Society Of Cinematographers
+-  Ska vi alla bli traumatiserade nu?
+-  Faciəvi şəkildə həlak olan Tunar Vətən müharibəsi iştirakçısı imiş
