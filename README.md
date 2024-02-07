@@ -1,11 +1,11 @@
 # Latest News
--  Pemilu Saat Musim Hujan, Begini Arahan BPBD DIY
--  Horóscopo de hoy, 7 de febrero: EXTRA te da las predicciones más acertadas de los astros
--  Should the province step in to help B.C.'s wine industry? - Castanet.net
--  Sophie's Legacy founder helps make child cancer taskforce
--  Bayern Munich player Sacha Boey talks his playstyle and approach to the game
--  Cezar Augusto cuenta un momento triste de su vida: "Se quemó toda mi casa"
--  Фермеры заблокировали ключевые дороги Испании
--  Quito: el testimonio clave para indagar el crimen de Jonathan Masabanda
--  DA maps out a vision to revitalise South Africa
--  Mohsin Khan Latest interview | Eisha Singh | Jab Mila Tu | Ye rishta kya kehlata hai | Abp Sanjha
+-  Jadwal Kapal Ferry Tanjungpinang Terupdate, Tidak Ada Penambahan Armada Jelang Imlek
+-  Лапорта и Деку не могут договориться о кандидатуре на пост главного тренера «Барселоны»
+-  Latvijas veikalos joprojām tirgo agresorvalstu pārtiku
+-  Karneval in Castrop-Rauxel: So wird bei „Die Zwei“ in Ickern gefeiert
+-  Anna, 35, har backat upp internationella storstjärnor – nu vill hon dansa till sin egen musik
+-  Anna, 35, har backat upp internationella storstjärnor – nu vill hon dansa till sin egen musik
+-  윤석열 대통령 "미등록 경로당, 난방비·양곡비 지원"
+-  “เบญจา” เผยผลประชุม กมธ. ปมไฟฟ้าสวัสดิการ ทร.สัตหีบ ประชาชนร้องแพง-คุณภาพแย่
+-  Anna, 35, har backat upp internationella storstjärnor – nu vill hon dansa till sin egen musik
+-  Ab 16. Februar in den Hauptbahnhof Promenaden: Notenspur-Projekt feiert Premiere
