@@ -1,11 +1,11 @@
 # Latest News
--  Nhìn lại một năm lãi suất huy động ‘rơi tự do’
--  وفيات الأربعاء .. 7 / 2 / 2024
--  Bank of England sold Government debt without 'any regard to value for money'
--  PM Modi to reply on 'Motion of Thanks' in Rajya Sabha today
--  Овечкин забил 832-й гол в НХЛ. До рекорда Гретцки – 62 шайбы
--  Biden confunde Macron com Mitterrand, ex-presidente francês que morreu em 1996
--  7日東京株式市場前場 株価もみ合う展開 38円09銭安の3万6122円57銭で終了
--  今季初 冷凍網ノリ入札会 例年より2週間遅れも出品枚数は昨季比で約3倍に【佐賀県】
--  문가영, 파격 시스루…럭셔리한 관능美 [화보]
--  Денков чака земеделците да се върнат на масата на преговорите и да подпишат споразумение
+-  Avloppsprover ska avslöja narkotikan i norra Dalarna
+-  Australian passport processing times slammed
+-  富山県内でも“震度3”佐渡島付近が震源で石川県能登で最大震度4…津波観測されず・志賀原発への影響なし
+-  Iran announces visa-waiver programme for Indian tourists for maximum of 15-day stay
+-  Angriff an Hochschule: Stark-Watzinger fordert Konsequenzen
+-  크래비티, 새 타이틀곡 'Love or Die' 확정…신보 'EVERSHINE' 트랙리스트 공개
+-  유지태, 22번째 '함께 독립영화 보기' 추진…'길 위에 김대중' 100명 초청
+-  台糖豬肉片檢出瘦肉精！食藥署曝「複驗3次」數值：接近偵測極限
+-  Angriff an Hochschule: Stark-Watzinger fordert Konsequenzen
+-  बुमराह के सामने बार-बार क्यों ढेर हो रहे बेन स्टोक्स? इंग्लैंड के पूर्व कप्तान ने बताई असली वजह
