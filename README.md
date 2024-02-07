@@ -1,11 +1,11 @@
 # Latest News
--  "Powiedział, że zabiłby ponownie. Uwierzyłem". Pierwsza rozmowa z prokuratorami, którzy ścigali Kajetana Poznańskiego
--  Toto jsou čtyři funkce Galaxy AI, které dorazí i do řady Galaxy S23 a loňských skládaček od Samsungu
--  Westcliff Cricketers pub to celebrate ‘grand opening’ - here's when
--  Tesouro dos EUA reforça pedido de relação econômica saudável com China, em reunião em Pequim
--  Cijene nafte iznad 78 dolara
--  Projet de cessez-le-feu à Gaza : le Qatar dit avoir reçu une réponse "positive" du Hamas sur un projet d'accord
--  IFK Motala–Hammarby IF
--  2024 could be a lucrative year for stock market investors
--  Objavljena lista Samsung Galaxy AI funkcija koje stižu i na S23 seriju telefona
--  Ta zbrodnia wstrząsnęła Polską. Nowe szczegóły sprawy Kajetana Poznańskiego
+-  Только что подписал указ, который начинает создание в наших Силах обороны отдельного рода сил - Сил беспилотных систем, - Зеленский. ВИДЕО
+-  В Молдавии заявили о готовности расследовать инцидент на границе Украины
+-  '64년 만의 우승' 불발…주장 손흥민 "너무 죄송하다"
+-  אלוף פיקוד מרכז יהודה פוקס מתנצל: "זאת הייתה טעות לתרגל את התרחיש"
+-  L'UBCI lance un appel à candidature pour désigner deux Administrateurs Indépendants
+-  Пользователи Apple Vision Pro стали подвергать себя и других опасности — чиновники в США забили тревогу
+-  Milović demantuje medijske natpise: Ćerka Suzane Mugoše odrađuje pripravnički u UIKS-u preko Vladinog programa stručnog osposobljavanja
+-  Boas-vindas à ministra Vera Lúcia
+-  Balıkesir'de asayiş uygulamasında çeşitli suçlardan aranan 5 şüpheli yakalandı
+-  Bhopal: BMHRC Starts Making Smart Cards For Gas Victims Treatment
