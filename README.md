@@ -1,11 +1,11 @@
 # Latest News
--  قبل شهر
--  무보, 홍해 물류 사태로 피해 본 수출기업 돕는다…긴급 지원방안 마련
--  Ambulance called after students ingest ‘unknown substance’
--  Đặt mâm cỗ "quý tộc" về nhà tiệc tùng trước Tết: Khách cao cấp có "quy tắc ngầm", món ăn cũng được tổng duyệt như show nghệ thuật
--  Nhìn lại một năm lãi suất huy động ‘rơi tự do’
--  Tompolo’s Tantita Clinches New Telegraph’s Best Private Security Award
--  Kritik aus SPD und FDP an Einkommensprüfung bei Grundrente
--  [ŽT] „Jis sukėlė katastrofą.“ Neįtikėtina. JAV tyliai skelbia, kas Ukrainoje trukdo gauti ginklus
--  ROSEN, LEADING INVESTOR COUNSEL, Encourages Driven Brands Holdings Inc. Investors to Secure Counsel Before Important February 20 Deadline in Securities Class Action – DRVN
--  Kritik aus SPD und FDP an Einkommensprüfung bei Grundrente
+-  Acertijo visual: encontrá la única billetera sin billetes en sólo 10 segundos
+-  Prakiraan Cuaca di Lampung Rabu 7 Februari 2024, Simak!
+-  방통위, 유진이엔티 YTN 최대주주 변경 신청 승인...노조 '반발'
+-  Thanh tra Chính phủ công bố kết luận thanh tra tại tỉnh Ninh Bình
+-  পদার্থবিজ্ঞান - এসএসসি ২০২৪
+-  Đất do xã giao không đúng thẩm quyền sau 2014 có được cấp sổ đỏ?
+-  ज्यादा किराया देने से झल्लाई थी लड़की, कबाड़ जैसे ट्रक में बनाया घर!
+-  Pronostica el Madden 23 victoria de Chiefs
+-  Artvin ve Rize'de çığ felaketi: 1 operatör can verdi, diğeri kurtarıldı
+-  El tiempo en Candelaria: previsión meteorológica para hoy, miércoles 7 de febrero
