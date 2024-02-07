@@ -1,11 +1,11 @@
 # Latest News
--  Travis Kelce responds to Taylor Swift engagement rumours
--  İzmir'de büyük vurguna karıştığı belirlenen 30 kişi gözaltı kararı verildi!
--  Azerbaijani CEC works to ensure rights of voters - CEC Chairman
--  한동훈 "명품백 의혹, 저열한 몰카 공작…걱정할 부분은 분명"
--  Vive en una ciudad imponente y halló la forma para no extrañar sus raíces: “El solo hecho de ser argentino me abrió puertas”
--  WPL नीलामी में नहीं चुने जाने से हैरान थी: अटापट्टू
--  Schulcheck: Christliches Leitbild prägt die Marienschule Brilon
--  Tập đoàn Sơn Hải trả lương thưởng lái xe ben, xe ủi hơn 300 triệu một năm đang được ngân hàng nào cấp vốn?
--  Nach Merz-Äußerung Debatte über schwarz-grüne Koalition
--  UN stellen Finanzbedarf für Hilfe im Sudan vor
+-  Kockás felöltő
+-  OORDEEL EUROPA - Wachten tot Beijing de markten echt gaat beïnvloeden
+-  Muchas dudas en el Betis de la medular en adelante
+-  7 лютого - День ангела Григорія: красиві листівки та найкращі побажання
+-  Festa no interior tem forte apelo cultural e dá fôlego à economia
+-  Ucraineanca desemnată Miss Japonia 2024 renunţă la premiu, după ce s-a aflat că are o relaţie cu un medic căsătorit: Ce se întâmplă cu titlul
+-  Ungdomar skrämmer resenärer på bussen: ”Har till och med kastats smällare”
+-  OFFERTA DEL MATTINO EUROPA - In attesa che Pechino faccia sul serio sui mercati
+-  Pakistani politics is like a Monopoly game
+-  Valentine's Day 2024: Tips To Get Your Home Decked Up For The Day
