@@ -1,11 +1,11 @@
 # Latest News
--  Ovo su potencijalni nasljednici Perkovca, pitamo vas koga želite za izbornika
--  Anger Over Messi’s ‘Mess’ in Hong Kong Spreads to China, Taking a Geopolitical Turn
--  Google Chrome: Update schließt mögliche Codeschmuggel-Lücken
--  真冬の避難所を記者が疑似体験 室温３．９度、寒さで眠れず 釧路
--  RUSIJA SPREMNA DA SUDI NACISTI KOG ČUVA KANADA: Otava uverava Moskvu da će razmotriti izručenje Hunke
--  Teploty na Slovensku prekonali +17 °C: Vonku je teplo ako počas APRÍLA!
--  Színpadi balesetet szenvedett Vidnyánszky Attila, kórházba kellett szállítani
--  INSÄNDARE: Okunnighet som förvånar
--  Propam Polda Riau Periksa HP 943 Personel yang Bertugas Mengamankan TPS Pemilu 2024
--  Google Chrome: Update schließt mögliche Codeschmuggel-Lücken
+-  תושב רמלה נעצר בחשד שפרץ לבית כנסת בלוד וגנב רכוש
+-  Megszólalt a pedofil bűnöző bűnsegédjének felmentéséről Orbán Balázs: Tiszteletben tartjuk a köztársasági elnök döntését
+-  Guide Touristique le Petit Futé pour le Tchad : bientôt une nouvelle édition !
+-  Pria di Bima Tewas Dianiaya setelah Dituduh Praktik Dukun Santet
+-  Exciting Updates to Delta SkyMiles Credit Cards: What You Need to Know
+-  Taylor Swift bu kez tehditle gündemde! Hedefte üniversite öğrencisi var
+-  879 gün uzayda kaldı: Rus astronot Oleg Kononenko'dan yeni rekor!
+-  恒指全日跌５４點報１６０８１，中芯瀉８％，藥明生物收升６％
+-  Luminor: viimase kuu hinnatõusu üks põhjustest on alkoholiaktsiisi tõstmine
+-  Otomobil tutkunları esnafın yüzünü güldürüyor
