@@ -1,11 +1,11 @@
 # Latest News
--  Brimob Menjadi Andalan untuk Pengaman Pemilu 2024
--  Csökken a benzin ára, de így sem esik be 600 forint alá
--  Snap Doesn't Get its Meta-Moment
--  L'Inter non perde di vista Fabbian. Entro il 2025 può riprenderlo dal Bologna a 12 milioni
--  Farzi 2 to release soon on OTT? Shahid Kapoor spills the beans
--  L'assistante maternelle avait délaissé deux jeunes enfants pour aller faire des courses
--  Global and Regional Biorational Pesticides Market Analysis Report 2023-2033: Advancements in Microbial Research and Rising Demand of Organic Food Products Emerging as Major Trends
--  Seime ruošiamas siūlymas visiškai uždrausti lošimo reklamą
--  Travis Kelce se hace fan de Griezmann y de la Liga Española: "¡Qué pasada!"
--  H βασίλισσα Λετίσια αντικαθιστά τα kitten heels με ένα ζευγάρι loafers με τακούνι
+-  Tablet shipments hit their lowest volume since 2011 last year, but Chinese vendors mitigated the decline
+-  Мария Габриел и Атанас Славов застават начело на Националния съвет за борба с домашното насилие (ВИДЕО)
+-  Großer Nudel-Rückruf bei Edeka: Für Allergiker droht Gesundheitsgefahr
+-  Guinée: vers une grève après l'arrestation du journaliste et syndicaliste Sékou Jamal Pendessa
+-  Яким буде iPhone 16: новий блок камери та дизайн в стилі айфона 2017 року
+-  Omiljeni festival za gurmane ponovno stiže u Rovinj - i bit će raskošniji nego ikad prije
+-  Ini Klarifikasi Kabaharkam soal Pernyataan Rektor Unika Soegijapranata
+-  Источник: Обвинения главы «Ред Булл» Хорнера не связаны с сексуальными нарушениями
+-  Interceptan a un joven que circulaba con dos patinetes a la vez cargado de droga en Palma
+-  Serie del Caribe: Tiburones de La Guaira alcanza las semifinales
