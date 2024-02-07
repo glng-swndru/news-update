@@ -1,11 +1,11 @@
 # Latest News
--  Hospize: Ruheoasen für Familien mit schwerkrankem Nachwuchs
--  Международный турнир по хоккею "Кубок Будущего" стартует в Минске
--  Ayu Ting Ting Diduga Lamaran, Komentar Ivan Gunawan Jadi Sorotan
--  Senate rejects bill prohibiting local governments from detaining asylum-seekers
--  Why fashion's 'recycling' is not saving the planet
--  Kolombiya'da askeri helikopter düştü, 5 asker yaşamını yitirdi
--  Star's accuser's 'combative' evidence: court
--  Shocking amount Aussies are overpaying
--  التوأم على رأس منتخب مصر
--  Azerbaijan's Surakhani district sees influx of voters to polling stations (PHOTO)
+-  Stižu nova pravila za dječji doplatak: Popisali smo što sve trebate znati
+-  Sähköautojen kolaritestit saivat jopa armeijan huolestumaan – törmäys suojakaiteeseen on karua nähtävää
+-  İlk Türk astronot Alper Gezeravcı ne zaman dönecek? SpaceX'ten yeni açıklama!
+-  Bắt người phụ nữ đi xe máy không đội mũ bảo hiểm, đánh CSGT
+-  "La ligne N n’incite pas à vivre à Dreux" : Alexandre estime que l'abonnement est trop cher au vu des dysfonctionnements récurrents
+-  Maria Probosz była nazywana seksbombą lat 80. "Przeżyłam piekło, aby żyć"
+-  屬猴今年幾歲？2024屬猴生肖年齡對照表！屬猴性格特質
+-  한동훈 "대통령과 오래된 사이…개인적 관계 낄 자리 없어"
+-  Bernd Bimczok und Pro Therm wärmen Nutella an: Waltroper Begleitheizungen in der ganzen Welt gefragt
+-  Energetic young stars create a hostile environment for newborn planets
