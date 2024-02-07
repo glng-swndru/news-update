@@ -1,11 +1,11 @@
 # Latest News
--  Помер ексголкіпер Реала Анхель
--  Picture Of Mnangagwa’s Slaying Deputy Minister Takes Social Media By Storm
--  «نوفاتك» تفتح مكتباً في الصين لتسويق الغاز المسال بعد العقوبات الأميركية
--  Karneval: So tolerant und bunt ist der Karneval an Rhein und Ruhr
--  Ολοκληρώνεται η διασύνδεση της Πελοποννήσου στο σύστημα υπερυψηλής τάσης - Υπεγράφη η σύμβαση με Mytilineos - Aτέρμων
--  Nova generacija Infigo SIEM-a
--  IDFES2024: Revolusi Fashion Lokal
--  Opération "collège mort" au collège Paul-Fourrey de Migennes pour protester contre la baisse des moyens
--  Washington Post: Байдън влезе в нова "вечна война" в Близкия Изток - Труд
--  'Zus, vrouw en ex Theo Maassen ontkennen beschuldigingen in Privé'
+-  Le Sénégal : une nation perdue par la roublardise (Par Oumhany Sy Sociologue)
+-  Nhận định bóng đá Nottingham vs Bristol (02h45, 8/2), vòng 4 FA Cup
+-  Depremde hayatını kaybedenler Kütahya'da dualarla anıldı
+-  Kütahya OSB, AFAD ile akredite
+-  Abdullah Gül'den '6 Şubat' mesajı: Deprem konusu Türkiye’nin birinci önceliği
+-  Key events in the life of King Charles III
+-  Jaga Kondusivitas Pemilu, Netralitas ASN Sangat Ditekankan
+-  Icardi ve eşi Wanda Nara'dan dans gösterisi: O anlar sosyal medyayı salladı
+-  OVO NIKO NIJE OČEKIVAO Ana Ivanović govorila o Sineru i ponovo zabila nož u leđa Novaka Đokovića
+-  Áhorfandi potaði í rassinn á leikmanni
