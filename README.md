@@ -1,11 +1,11 @@
 # Latest News
--  «Visit Qatar» تجدد شراكتها مع الرابطة العالمية لصناعة المعارض
--  Τo NBA live στο Gazzetta
--  不思議の国・台湾 多様性の社会と三者三様の政党
--  Jury finds Jennifer Crumbley, the Michigan school shooter's mother, guilty of manslaughter
--  تعزيز التعاون مع السنغال في الطيران المدني
--  Helena High School principal to speak in Japan
--  Murshidabad Weather Updates: তাপমাত্রায় তেমন হেরফের নেই, সকালে বৃষ্টি হলেও হতে পারে
--  地方を飛び回る“ワーケーショナー” 絶賛、東京ワーカーが知らない自治体の「超VIPサポート」 - Lifestyle Analysis
--  Whitecaps have prep concerns for Vancouver Island match versus Mexican side
--  Picture Of Mnangagwa’s New Deputy Minister Takes Social Media By Storm
+-  نجم المنتخب الإيراني السابق روشان: العنابي عازم على النهائي
+-  Nieerlande: Geert Wilders kassiert Abfuhr bei Koalitionsverhandlungen
+-  PF faz operação para investigar suspeito de criar 'vaquinha' para financiar assassinato de Lula
+-  Lucas Villalba chega a Belo Horizonte para fazer exames e assinar contrato com Cruzeiro
+-  Liga 1: Irfan Jaya Sentil Laga Bali United kontra Persik, Kalah Karena Ini
+-  PF faz operação para investigar suspeito de criar 'vaquinha' para financiar assassinato de Lula
+-  Ákærður fyrir morð á nærri 200 börnum
+-  PF faz operação para investigar suspeito de criar ‘vaquinha’ para financiar assassinato de Lula
+-  Viste 20 minutter fra Final Fantasy VII Rebirth
+-  石原さとみら 美女3ショット反響
