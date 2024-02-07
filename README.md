@@ -1,11 +1,11 @@
 # Latest News
--  Avloppsprover ska avslöja narkotikan i norra Dalarna
--  Australian passport processing times slammed
--  富山県内でも“震度3”佐渡島付近が震源で石川県能登で最大震度4…津波観測されず・志賀原発への影響なし
--  Iran announces visa-waiver programme for Indian tourists for maximum of 15-day stay
--  Angriff an Hochschule: Stark-Watzinger fordert Konsequenzen
--  크래비티, 새 타이틀곡 'Love or Die' 확정…신보 'EVERSHINE' 트랙리스트 공개
--  유지태, 22번째 '함께 독립영화 보기' 추진…'길 위에 김대중' 100명 초청
--  台糖豬肉片檢出瘦肉精！食藥署曝「複驗3次」數值：接近偵測極限
--  Angriff an Hochschule: Stark-Watzinger fordert Konsequenzen
--  बुमराह के सामने बार-बार क्यों ढेर हो रहे बेन स्टोक्स? इंग्लैंड के पूर्व कप्तान ने बताई असली वजह
+-  Pemilu Saat Musim Hujan, Begini Arahan BPBD DIY
+-  Horóscopo de hoy, 7 de febrero: EXTRA te da las predicciones más acertadas de los astros
+-  Should the province step in to help B.C.'s wine industry? - Castanet.net
+-  Sophie's Legacy founder helps make child cancer taskforce
+-  Bayern Munich player Sacha Boey talks his playstyle and approach to the game
+-  Cezar Augusto cuenta un momento triste de su vida: "Se quemó toda mi casa"
+-  Фермеры заблокировали ключевые дороги Испании
+-  Quito: el testimonio clave para indagar el crimen de Jonathan Masabanda
+-  DA maps out a vision to revitalise South Africa
+-  Mohsin Khan Latest interview | Eisha Singh | Jab Mila Tu | Ye rishta kya kehlata hai | Abp Sanjha
