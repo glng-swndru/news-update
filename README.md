@@ -1,11 +1,11 @@
 # Latest News
--  MIVD verwijdelt zomaal softwale uit systemen Nedellandse klijgsmacht
--  Συναντήσεις ΑΚΕΛ για την πορεία της μεταρρύθμισης της Τ.Α.
--  Столетник ще носи факлата с олимпийския огън в Париж
--  Paytm CEO meets RBI chief, finance minister amid regulatory concerns: Reports - IndiaTimes
--  Indonesia Tanpa Gelar di Thailand Masters 2024, PBSI Beri Respons Mengejutkan
--  "Аргентина може стати "дверима" України до ринків Латинської Америки", - Юрій Клименко, посол України в Аргентині
--  С близо 1000 повече са били делата в РС – Велико Търново през 2023-а
--  Nairo Quintana: médico del ciclista será juzgado por caso de dopaje en Tour de Francia
--  Shannen Doherty Addresses Alyssa Milano's Denial of Her Firing
--  61-годишен нападнал 37-годишната си приятелка, задържан е
+-  Elezioni a Islamabad: Nawaz Sharif contro gli 'indipendenti' di Imran Khan
+-  Oshawa public school evacuated as Durham police investigate bomb threat
+-  Fermetures de classes à la rentrée 2024 en Loire-Atlantique : les maires ruraux "vigilants"
+-  Διδυμότειχο: Πότε θα γίνει η κηδεία της 9χρονης που πέθανε από στρεπτόκοκκο
+-  Анимированное приключение об ужасах Первой мировой войны Valiant Hearts: Coming Home скоро вырвется из плена Netflix
+-  Taksici Oğuz Erge’nin katili için istenen ceza belli oldu
+-  Trump nema predsjednički imunitet i može mu se suditi za pokušaj rušenja izbora 2020.
+-  Milli Çözüm Dergisi deprem şehitlerini andı
+-  تفاصيل الحالة الجوية خلال الأيام القادمة
+-  Allergies aux pollens: le département du Var placé en alerte rouge
