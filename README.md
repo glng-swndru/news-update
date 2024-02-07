@@ -1,11 +1,11 @@
 # Latest News
--  Kruno Simon zbog prijetnji povlači se s liste za Dinamovu skupštinu
--  Kunstradfahren: Favoriten setzen sich durch
--  King Charles III’s cancer caught early, UK PM says
--  The Future of Brain Monitoring: Market Size poised to Cross US$ 12.5 Billion by 2034
--  U eksplozijama u Somaliji poginulo najmanje 10 ljudi
--  King Charles III’s cancer caught early, UK PM says
--  Daily Lotto results: Tuesday, 6 February 2024
--  Rune Dahl var alltid gjestfri og sjenerøs
--  ‘Deeper conversation’ needed on assisted dying, mental health: Holland
--  For 8th straight year, Indiana Donor Network achieves a record number of lifesaving organ transplants – 1,134
+-  Marvel's Ultimate Black Panther #1 Gets Second Printing
+-  Analyse vorläufige Reglements NES und NLS: Alle kochen mit Wasser
+-  BMC pool in Dahisar closed for 2 months as tiles fall off
+-  Такер Карлсон заявил о скором интервью с Путиным
+-  Ouro fecha em alta, em recuperação apoiada por menor pressão de dólar e Treasuries
+-  В Україні створять Сили безпілотних систем
+-  Ouro fecha em alta, em recuperação apoiada por menor pressão de dólar e Treasuries
+-  FC Sochaux – Stade Rennais : les compos sont tombées !
+-  Boruto Artist Adapts One Fan's Art Into an Actual Ninja
+-  NAPIKAS PÄÄSEMINE: Tai võimud oleksid sõjavastase Vene bändi äärepealt Kremli küüsi andnud
