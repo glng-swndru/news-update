@@ -1,11 +1,11 @@
 # Latest News
--  Vesna Šouc Tričković za "Nezavisne": Umetnost spaja ljude, svuda nailazim na dobrodošlicu
--  MOB-015 is launched in Sweden under the brand name Terclara- pharmacies report major demand for the new medication
--  Hacia un envejecimiento significativo (II)
--  Azbil Corporation Awarded Frost & Sullivan's Southeast Asia Company of the Year Award for Delivering Groundbreaking Smart Building Solutions that Enhance Efficiency and Operational Performance
--  Nagyon furcsa dolog derült ki Molnár Anikó lottóötöséről
--  CHP'li Torun'dan Erdoğan'ın ‘payları eksiksiz gönderiyoruz’ açıklamasına yanıt
--  Фалшиво обаждане с гласа на Байдън разубеждава избирателите да гласуват за него - Труд
--  Od ovoga ide voda na usta! Brzo i lako se pravi, a potrebna su samo 3 sastojka za jelo koje će i deca obožavati
--  Промпроизводство в Германии в декабре сократилось на 1,6%
--  Po slabi predstavi do zasluženega poraza
+-  Vleugje Dick Advocaat-voetbal in de Kuip: Feyenoord moet knokken om overeind te blijven
+-  dailyEDEL: Platin - Bruch der Marke wäre Verkaufssignal
+-  City leaders come together to redefine Geelong
+-  Mehmet Özhaseki, tepki çeken sözlerine sosyal medyadan yanıt verdi
+-  Kaag en Braassem is klaar met verkeersopstoppingen. Raadsbrede motie voor oplossen problemen Leimuiderbrug
+-  紀子さまとキャサリン妃、重なった体調不良 「嫁いだ2人」と「制度」と
+-  dailyÖL: Pullback am gebrochenen Trend
+-  Newcastle food and wine take centre stage at Newcastle Food Month
+-  DAX® - Schlusskurs erstmals oberhalb der 17.000er-Marke
+-  Mahi V Raghav: యాత్ర, యాత్ర 2 లో నటించిన మమ్ముట్టి, జీవాలపై ప్రశంసల వర్షం కురిపించిన మహి వి రాఘవ్
