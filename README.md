@@ -1,11 +1,11 @@
 # Latest News
--  Dave Franco And Alison Brie To Star In The Horror Pic ‘Together’ For Picturestart, Tango And Director Michael Shanks
--  瑞銀連蝕兩季擬下半年重啟回購
--  فرصت‌‌‌های همکاری استان کهگیلویه و بویراحمد و چین
--  استان شاگرد اول در حفظ اراضی کشاورزی
--  機管局零售債首掛升1.6％ 每手帳賺160元
--  سرلیست‌های اصولگرایان
--  內地多部委出手 A股港股齊升 彭博：監管機構向習近平匯報資本市場情况
--  Reputační krizi Boeingu dovršily čtyři chybějící šrouby. K nehodě s dveřmi se vyjádřila národní rada
--  Netflix擁抱韓流 今年推逾30部影視綜藝 孔劉新劇壓軸上架 朴贊郁監製古裝片
--  Judge wants answers after report that key witness in Trump fraud trial may plead guilty to perjury
+-  Egypt povedie tréner Hossam Hassan, nahradil odvolaného Vitoriu
+-  LeAnn Rimes, Adam Lambert and Kate Miller-Heidke announced as judges on The Voice alongside Guy Sebastian
+-  Vrijeme curi, veljača bi morala biti mjesec dogovora za političku stabilnost i europsku budućnost BiH
+-  IR bill negotiations and Coaltion support stage 3 tax cut changes - Politics with David Crowe - ABC News
+-  Łódzkie siatkarki w półfinale! Po dwóch setach wszystko było jasne
+-  Comissão do Senado aprova fim do "saidão" para presos
+-  ONLINE: Leverkusen - Stuttgart 1:1. Kovář inkasoval, Schick spálil šanci
+-  New book examines history of Winnipeg's buildings
+-  عبر الدعم الاجتماعي المباشر.. أخنوش يؤكد دعم الحكومة للأسر الهشة وتشجيعها على تتبع تمدرس أطفالها
+-  جمهورية اتحاد جزر القمر تجدد دعمها الثابت لمغربية الصحراء
