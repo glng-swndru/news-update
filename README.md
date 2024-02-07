@@ -1,11 +1,11 @@
 # Latest News
--  ‘Nirmala Sitharaman lied in Parliament’: Siddaramaiah accuses FM of rejecting spl grants to Karnataka recommended by Finance Commission
--  اللواء المعايطة يكتب: عهد العطاء
--  Derrick Köhn transferinde pürüz
--  Байден победил на праймериз в Неваде
--  Odloženo lansiranje Apple Watch Ultra sa MicroLED ekranom zbog navodnog ograničenja u snabdevanju
--  سرپرست معاونت هوانوردی سازمان هواپیمایی منصوب شد
--  ЕС передал Украине систему разминирования DOK-ING MV-10
--  ATSO Başkanı Ali Bahar: "Ocak ayı enflasyonu geçici etkilerden kaynaklanıyor"
--  Nasilje u Skupštini je deo hibridnog rata! Ceo cirkus bio je samo kockica u slagalici uništenja Srbije koje priželjkuje opozicija! (VIDEO)
--  Garmin Vivoactive 5 nebyly nikdy levnější. Hodinky s parádním AMOLEDem a dlouhou výdrží stojí 5841 Kč
+-  Ausstellung im Düsseldorfer Kunstpalast: Eine Frage des Formats
+-  От март до октомври: С 50% скача такса "настаняване" в Гърция
+-  Milli Savunma Bakanı Güler, IKBY Başkanı Barzani'yle görüştü
+-  Over 20 killed in twin blasts on eve of Pakistan election
+-  Sakla Beni 15. bölüm fragmanı yayınlandı! Artık senin bende affın yok Naz!
+-  Százszámra fogják a gyorshajtókat az új budapesti traffipaxok, ennyivel ment a rekorder
+-  Местный житель гоняет водителей, заезжающих на тротуар Центрального проспекта, пока власти бездействуют
+-  Niespodziewany zwrot akcji w reprezentacji Polski. Jest oficjalny komunikat, chodzi o sponsora kadry
+-  Alper Gezeravcı'nın dünyaya dönüş saati belli oldu
+-  Kolda - Grève des médecins, pharmaciens, chirurgiens et dentistes : Désarroi et colère chez les population
