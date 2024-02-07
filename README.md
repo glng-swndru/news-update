@@ -1,11 +1,11 @@
 # Latest News
--  Szakítós pizzával fordul rá a Valentin-napra az amerikai Pizza Hut
--  Apple ascolta le critiche: il primo aggiornamento di VisionOS migliora le Persona
--  Kapolres Lampung Utara Pimpin Apel Pengecekan dan Pembagian Sarpas Logistik Personel Pam TPS Pemilu 2024
--  Добрев: Сглобката претърпя пълен провал
--  Поломали качественно, но не поможет. Как VPN обрел сакральность и что будет после 1 марта, которое власть объявила днем победы над обходом блокировок
--  RRZ: Kúpna sila rodín napriek inflácii za dva roky v priemere vzrástla
--  Ege Bölgesi için fırtına uyarısı
--  Phiên 7/2: Ngược chiều khối ngoại tự doanh CTCK trở lại mua ròng gần trăm tỷ trên HOSE
--  Aalen gedenkt der Erdbebenopfer in seiner türkischen Partnerstadt Antakya
--  Wie man als Amazon-Seller ein Millionen-Startup aufbaut – ein Praxisbericht
+-  Đạt mục tiêu thực hiện thắng lợi các mục tiêu, nhiệm vụ phát triển KTXH năm 2024
+-  El INTT matricula un vehículo para taxi con estos trámites (+DETALLES)
+-  【高知】桂浜でバレンタインフェア 真っ黒カカオ麺が仰天美味 スイーツ・ドリンク・あかうしステーキも
+-  Seconda squadra Milan: Ibra punterebbe tutto su di lui come primo allenatore. Il retroscena
+-  Cấm xe các đoạn đường quanh Nhà hát TPHCM vào tối mùng 5 Tết
+-  Nastrčený kandidát, který se Kremlu vymyká z rukou. Antiputin Rusy láká
+-  La crisis de la Justicia
+-  São Paulo x Água terá exibição da taça da Supercopa do Brasil
+-  Test Microsoft Surface Laptop Studio 2 : le retour du PC portable hors-norme
+-  Már lehet pályázni elektromos járművekre
