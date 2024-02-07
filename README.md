@@ -1,11 +1,11 @@
 # Latest News
--  Đạt mục tiêu thực hiện thắng lợi các mục tiêu, nhiệm vụ phát triển KTXH năm 2024
--  El INTT matricula un vehículo para taxi con estos trámites (+DETALLES)
--  【高知】桂浜でバレンタインフェア 真っ黒カカオ麺が仰天美味 スイーツ・ドリンク・あかうしステーキも
--  Seconda squadra Milan: Ibra punterebbe tutto su di lui come primo allenatore. Il retroscena
--  Cấm xe các đoạn đường quanh Nhà hát TPHCM vào tối mùng 5 Tết
--  Nastrčený kandidát, který se Kremlu vymyká z rukou. Antiputin Rusy láká
--  La crisis de la Justicia
--  São Paulo x Água terá exibição da taça da Supercopa do Brasil
--  Test Microsoft Surface Laptop Studio 2 : le retour du PC portable hors-norme
--  Már lehet pályázni elektromos járművekre
+-  NC Dems have attorney general primary. A GOP congressman awaits in fall. What to know
+-  Экс-главе Василеостровского района Петербурга предъявили обвинение
+-  La pec, il rinnovo e la volontà di Spalletti. ADL spiega l'addio del tecnico: "Non dovevo accettare"
+-  Wieder ein Ressortleiter weg: Marius Wetzel verlässt den Holzwickeder SC nach nur vier Monaten
+-  EUV-Verhalten „nahezu unglaublich“: Leser: Abwassergebühren „zerstören Vertrauensvorschuss“
+-  Tre millioner smarte eltandbørster udfører DDoS-angreb
+-  VELIKI KAŠALj RAZDIRE I BEBE U CG: Broj obolelih u poslednja tri meseca prešao 500 pacijenata, među njima i 14 novorođenčadi
+-  Oliver Pocher: Mit Ex Alessandra Meyer-Wölden beim Opernball
+-  Ordu'da öküzün boynuz darbesi ile yaralanan kadın hayatını kaybetti
+-  Hommage aux victimes françaises du Hamas : Macron dénonce le "plus grand massacre antisémite de notre siècle"
