@@ -1,11 +1,11 @@
 # Latest News
--  NC Dems have attorney general primary. A GOP congressman awaits in fall. What to know
--  Экс-главе Василеостровского района Петербурга предъявили обвинение
--  La pec, il rinnovo e la volontà di Spalletti. ADL spiega l'addio del tecnico: "Non dovevo accettare"
--  Wieder ein Ressortleiter weg: Marius Wetzel verlässt den Holzwickeder SC nach nur vier Monaten
--  EUV-Verhalten „nahezu unglaublich“: Leser: Abwassergebühren „zerstören Vertrauensvorschuss“
--  Tre millioner smarte eltandbørster udfører DDoS-angreb
--  VELIKI KAŠALj RAZDIRE I BEBE U CG: Broj obolelih u poslednja tri meseca prešao 500 pacijenata, među njima i 14 novorođenčadi
--  Oliver Pocher: Mit Ex Alessandra Meyer-Wölden beim Opernball
--  Ordu'da öküzün boynuz darbesi ile yaralanan kadın hayatını kaybetti
--  Hommage aux victimes françaises du Hamas : Macron dénonce le "plus grand massacre antisémite de notre siècle"
+-  İSİG Meclisi: Ocak ayında en az 158 işçi hayatını kaybetti
+-  A Place in the Sun buyers' horror after realising home was 'too good to be true'
+-  Murat Kurum, İstanbul'da sendikalara destek vereceğini açıkladı
+-  زلزال بقوة 4.9 درجات يضرب جزر سليمان في المحيط الهادئ
+-  Saaremaalt pärit lastekirjaniku uus raamat pakub seiklusi ja põnevust
+-  Világossá tette a miniszterelnök: az euró a hivatalos fizetőeszköz Koszovóban
+-  Khatron Ke Khiladi 14: Mannara Chopra confirmed to be a part of Rohit Shetty show? Bigg Boss 17 finalist reacts
+-  Fotografije dneva (7. 2.)
+-  Good Morning Britain fans 'sick to death' as they blast 'ridiculous' Prince Harry question
+-  Ezért ne öntse a lefolyóba a Bailey’s-t!
