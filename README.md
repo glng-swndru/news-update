@@ -1,11 +1,11 @@
 # Latest News
--  Tahran, Moskova ve Pekin silah gösterecek
--  Dere taşması sonucu camide mahsur kalanlar kurtarıldı
--  Ще заиграе ли Бастунов на "Герена"? Левски дава само 50 000, от Хебър искат 200 000
--  Linde-Aktie im Plus: Linde erwartet 2024 gebremstes Wachstum - Prognosen übertroffen
--  Lactalis perquisitionné dans une enquête pour fraude fiscale aggravée
--  Davinson Sanchez bu sezonki 2. golünü attı
--  MAJKA OSUĐENA ZBOG SINA (17) KOJI JE POČINIO MASAKR! Istorijska presuda, nije ga SPREČILA da ubije drugove!
--  Emmerdale hints at who will catch abusive and controlling Tom King out
--  Lactalis perquisitionné dans une enquête pour fraude fiscale aggravée
--  Evrópukeppni unglingaliða: Sárt og svekkjandi tap hjá Daníel og félögum
+-  Оппозиция Молдовы требует отставки правительства из-за неспособности решить серьезные проблемы экономики страны
+-  Energiekosten: Womit müssen Verbraucher künftig rechnen?
+-  BC United leader calls on government to show urgency for embattled wine industry
+-  Energiekosten: Womit müssen Verbraucher künftig rechnen?
+-  Greenas užstojo į „Visų žvaigždžių“ rungtynes nepatekusį Sabonį
+-  Verdi kündigt Warnstreik in Speditionsbranche an
+-  Man är bortskämd: En liten besvikelse var det ändå
+-  Two words expose The Rock as a fraud
+-  Energiekosten: Womit müssen Verbraucher künftig rechnen?
+-  Günün ULDUZ FALI: aqressiv reaksiya münasibətləri korlaya bilər
