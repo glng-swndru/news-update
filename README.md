@@ -1,11 +1,11 @@
 # Latest News
--  Bakanlık el koydu! Usulsüz işlemlerle yurda sokulan 49 lüks aracın piyasa değeri dudak uçuklattı
--  “Queremos que um contentor carregado em Sines possa ser descarregado na Polónia”
--  ’Grijze hulptroepen zijn veeleisend’
--  Bu alışkanlıklar gençlik iksiri kolajenin azalmasına neden oluyor
--  İstanbul baraj doluluk oranlarında artış
--  Ομόνοια: Με επιστροφές και ανεβασμένη ψυχολογία, για να δώσει συνέχεια στις νίκες
--  Rekordordreindgang og positiv bundlinje til Vestas
--  Samajwadi Party leader Shivpal Yadav slams BJP, says RLD's Jayant Chaudhary 'will remain with INDIA bloc'
--  Consommation. Comment repérer les produits (vraiment) français au supermarché ?
--  Avant le vote du budget de la Région, les oppositions unanimes pour fustiger la hausse des cartes grises et des billets TER
+-  Vesna Šouc Tričković za "Nezavisne": Umetnost spaja ljude, svuda nailazim na dobrodošlicu
+-  MOB-015 is launched in Sweden under the brand name Terclara- pharmacies report major demand for the new medication
+-  Hacia un envejecimiento significativo (II)
+-  Azbil Corporation Awarded Frost & Sullivan's Southeast Asia Company of the Year Award for Delivering Groundbreaking Smart Building Solutions that Enhance Efficiency and Operational Performance
+-  Nagyon furcsa dolog derült ki Molnár Anikó lottóötöséről
+-  CHP'li Torun'dan Erdoğan'ın ‘payları eksiksiz gönderiyoruz’ açıklamasına yanıt
+-  Фалшиво обаждане с гласа на Байдън разубеждава избирателите да гласуват за него - Труд
+-  Od ovoga ide voda na usta! Brzo i lako se pravi, a potrebna su samo 3 sastojka za jelo koje će i deca obožavati
+-  Промпроизводство в Германии в декабре сократилось на 1,6%
+-  Po slabi predstavi do zasluženega poraza
