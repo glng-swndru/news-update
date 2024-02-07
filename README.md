@@ -1,11 +1,11 @@
 # Latest News
--  Sulm me armë para pallatit turk të drejtësisë
--  Änderung bei Hauptuntersuchung geplant: Autofahrern drohen teure Folgen
--  Plenty to keep busy with in retirement
--  Fonterra to install 1st electrode boiler
--  Grup Vokal Family to Jannah Rilis Single Religi, Tribute untuk Palestina
--  Ukraina eriüksused võitlevad Sudaanis wagnerlastega
--  Les mots du coach de l'OGC Nice Francesco Farioli avant le huitième de finale de Coupe de France à Montpellier
--  Presidenttiehdokkaat virsien veisuusta: ”Säälin ihmisiä ympärilläni – musikaalisuus ei ole periytyvää”
--  Topdressing industry ‘scratchy’
--  Horner met Red Bull om de tafel na beschuldigingen
+-  Tarifs de SNCF Réseau : le Conseil d’État rejette le recours de la Région Bourgogne Franche-Comté
+-  현대제철서 7명 쓰러져…1명 사망 · 2명 중태
+-  Pesquisa aponta a liderança de Botelho na corrida pela Prefeitura
+-  서병수 · 김태호에 '낙동강 험지' 출마 요구
+-  국화꽃 든 특수교사들과 함께…항소장 제출
+-  '가습기 살균제' 국가 배상 책임 첫 인정
+-  Takside bir şiddet vakası daha! Önce bıçakladı sonra yumrukladı
+-  "윤 정권 탄생 원인 제공자" 지목에 반박
+-  중국 원료 들여와 가정집에서…'근육 약물' 적발
+-  حسام حسن مديراً فنيا لـ منتخب مصر
