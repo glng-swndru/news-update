@@ -1,11 +1,11 @@
 # Latest News
--  Kockás felöltő
--  OORDEEL EUROPA - Wachten tot Beijing de markten echt gaat beïnvloeden
--  Muchas dudas en el Betis de la medular en adelante
--  7 лютого - День ангела Григорія: красиві листівки та найкращі побажання
--  Festa no interior tem forte apelo cultural e dá fôlego à economia
--  Ucraineanca desemnată Miss Japonia 2024 renunţă la premiu, după ce s-a aflat că are o relaţie cu un medic căsătorit: Ce se întâmplă cu titlul
--  Ungdomar skrämmer resenärer på bussen: ”Har till och med kastats smällare”
--  OFFERTA DEL MATTINO EUROPA - In attesa che Pechino faccia sul serio sui mercati
--  Pakistani politics is like a Monopoly game
--  Valentine's Day 2024: Tips To Get Your Home Decked Up For The Day
+-  Πεταλούδας και Ρωχάμης: ζωές που δεν συναντήθηκαν ποτέ - Η πρώτη ένα ψέμα ή δεύτερη μόνο αλήθεια
+-  Al Lleida le cuesta ganar a domicilio
+-  女子バスケ代表 不安指摘する声
+-  Spánn í dag - Atlético og Athletic eigast við í undanúrslitum
+-  El juzgado del caso Voloh cuenta ya con "decenas de miles de folios" sobre las relaciones entre Junts y Putin
+-  अजित पवार हुए NCP के असली हकदार, EC के फैसले पर अनिल देशमुख ने क्या कहा?
+-  Afríkukeppnin í dag - Komast heimamenn í úrslit?
+-  De ida y vuelta
+-  西九州道の無料区間 ４車線化に伴い一部区間は有料へ【長崎県佐世保市】
+-  L'avenir de l'ancien restaurant étoilé L'Espérance sera acté ce mercredi, avec sa vente aux enchères
