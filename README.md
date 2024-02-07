@@ -1,11 +1,11 @@
 # Latest News
--  Goran Perkovac dobio otkaz; tko će preuzeti rukometnu reprezentaciju?
--  TBMM Başkanı Kurtulmuş'tan Miraç Kandili mesajı
--  Europäische Union: EU-Parlament stimmt für EU-weite Fahrverbote
--  Trogrlić: Najbezbolnije rješenje za ovu akutnu situaciju jest da se Ivan Turudić sam povuče
--  Zvezda predstavila drugo pojačanje: Posle Sremčevića stigao i on! (FOTO)
--  "النشامى" يقهر المستحيل ويصعد إلى نهائي كأس آسيا للمرة الأولى في تاريخه
--  Zagrebačka burza: Indeksi bez jasnih kretanja
--  Roditelji pretučene djece: Još nisu svi uhićeni, nećemo odustati od borbe
--  Bakan Yerlikaya Açıkladı: Adliye Saldırısına 40 Gözaltı
--  В ЦИК рассказали, какую предельную сумму из избирательного фонда может потратить кандидат в депутаты
+-  Çanakkale Ayvacık'ta 38 düzensiz göçmen kurtarıldı
+-  Bairros de Corumbá estão recebendo ações com fumacê para combater a dengue
+-  Lo más caro en la lista inteligente de frutas y verduras cuesta $ 98 el kilo
+-  Gyventojų piniginės liks pilnesnės: nuo balandžio reikšmingai mažės dujų tarifai
+-  MDR-Radiosendung „Flirteinander“ endet nach fast 30 Jahren
+-  ЦСКА предложил контракт Чалову до лета 2027 года
+-  VIDEO Seljaci ne odustaju, blokirali promet ispred EU parlamenta u Strasbourgu
+-  City of North Vancouver headed for higher tax increase
+-  Dopo l'incidente sulla A1 scoppia la lite tra automobilisti, un ferito
+-  Vorwürfe gegen UNRWA: Viele Prüfungen und wenig Geld
