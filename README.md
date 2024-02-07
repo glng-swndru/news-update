@@ -1,11 +1,11 @@
 # Latest News
--  Elezioni a Islamabad: Nawaz Sharif contro gli 'indipendenti' di Imran Khan
--  Oshawa public school evacuated as Durham police investigate bomb threat
--  Fermetures de classes à la rentrée 2024 en Loire-Atlantique : les maires ruraux "vigilants"
--  Διδυμότειχο: Πότε θα γίνει η κηδεία της 9χρονης που πέθανε από στρεπτόκοκκο
--  Анимированное приключение об ужасах Первой мировой войны Valiant Hearts: Coming Home скоро вырвется из плена Netflix
--  Taksici Oğuz Erge’nin katili için istenen ceza belli oldu
--  Trump nema predsjednički imunitet i može mu se suditi za pokušaj rušenja izbora 2020.
--  Milli Çözüm Dergisi deprem şehitlerini andı
--  تفاصيل الحالة الجوية خلال الأيام القادمة
--  Allergies aux pollens: le département du Var placé en alerte rouge
+-  Sulm me armë para pallatit turk të drejtësisë
+-  Änderung bei Hauptuntersuchung geplant: Autofahrern drohen teure Folgen
+-  Plenty to keep busy with in retirement
+-  Fonterra to install 1st electrode boiler
+-  Grup Vokal Family to Jannah Rilis Single Religi, Tribute untuk Palestina
+-  Ukraina eriüksused võitlevad Sudaanis wagnerlastega
+-  Les mots du coach de l'OGC Nice Francesco Farioli avant le huitième de finale de Coupe de France à Montpellier
+-  Presidenttiehdokkaat virsien veisuusta: ”Säälin ihmisiä ympärilläni – musikaalisuus ei ole periytyvää”
+-  Topdressing industry ‘scratchy’
+-  Horner met Red Bull om de tafel na beschuldigingen
