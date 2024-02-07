@@ -1,11 +1,11 @@
 # Latest News
--  Egypt povedie tréner Hossam Hassan, nahradil odvolaného Vitoriu
--  LeAnn Rimes, Adam Lambert and Kate Miller-Heidke announced as judges on The Voice alongside Guy Sebastian
--  Vrijeme curi, veljača bi morala biti mjesec dogovora za političku stabilnost i europsku budućnost BiH
--  IR bill negotiations and Coaltion support stage 3 tax cut changes - Politics with David Crowe - ABC News
--  Łódzkie siatkarki w półfinale! Po dwóch setach wszystko było jasne
--  Comissão do Senado aprova fim do "saidão" para presos
--  ONLINE: Leverkusen - Stuttgart 1:1. Kovář inkasoval, Schick spálil šanci
--  New book examines history of Winnipeg's buildings
--  عبر الدعم الاجتماعي المباشر.. أخنوش يؤكد دعم الحكومة للأسر الهشة وتشجيعها على تتبع تمدرس أطفالها
--  جمهورية اتحاد جزر القمر تجدد دعمها الثابت لمغربية الصحراء
+-  Tarihte geçen 10 harika fantastik, bilim kurgu filmi
+-  V živo: "drugoligaši" na delu, navijači Chelseaja skandirali Mourinhu
+-  올해 의대 2천명 더 뽑는다…5년간 1만 명 증원
+-  BOŽIĆ JE NEZAUSTAVLJIV - SRUŠIO I MEGU! Zadar siguran na svom terenu
+-  Sanremo, feroce sfottò di Fiorello a Chiara Ferragni: affondata con uno striscione | Guarda
+-  Fiorello, il mantello come Chiara Ferragni e Amadeus-Rosa Chemical
+-  Calendário Cultural de 2024 para Mato Grosso do Sul foi anunciado com mais de 100 atrações
+-  Quem foi Sebastián Piñera, ex-presidente do Chile que morreu em acidente de helicóptero
+-  Ali Yeşilyurt ve Gökdeniz Gürpüz A Takıma çıktı
+-  Britannia | Prinssi Harrylla ei ole aikomusta tavata veljeään Williamia
