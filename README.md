@@ -1,11 +1,11 @@
 # Latest News
--  Оппозиция Молдовы требует отставки правительства из-за неспособности решить серьезные проблемы экономики страны
--  Energiekosten: Womit müssen Verbraucher künftig rechnen?
--  BC United leader calls on government to show urgency for embattled wine industry
--  Energiekosten: Womit müssen Verbraucher künftig rechnen?
--  Greenas užstojo į „Visų žvaigždžių“ rungtynes nepatekusį Sabonį
--  Verdi kündigt Warnstreik in Speditionsbranche an
--  Man är bortskämd: En liten besvikelse var det ändå
--  Two words expose The Rock as a fraud
--  Energiekosten: Womit müssen Verbraucher künftig rechnen?
--  Günün ULDUZ FALI: aqressiv reaksiya münasibətləri korlaya bilər
+-  Dave Franco And Alison Brie To Star In The Horror Pic ‘Together’ For Picturestart, Tango And Director Michael Shanks
+-  瑞銀連蝕兩季擬下半年重啟回購
+-  فرصت‌‌‌های همکاری استان کهگیلویه و بویراحمد و چین
+-  استان شاگرد اول در حفظ اراضی کشاورزی
+-  機管局零售債首掛升1.6％ 每手帳賺160元
+-  سرلیست‌های اصولگرایان
+-  內地多部委出手 A股港股齊升 彭博：監管機構向習近平匯報資本市場情况
+-  Reputační krizi Boeingu dovršily čtyři chybějící šrouby. K nehodě s dveřmi se vyjádřila národní rada
+-  Netflix擁抱韓流 今年推逾30部影視綜藝 孔劉新劇壓軸上架 朴贊郁監製古裝片
+-  Judge wants answers after report that key witness in Trump fraud trial may plead guilty to perjury
