@@ -1,11 +1,11 @@
 # Latest News
--  Feminen Ne Demek? Türkçede "Feminen Ne Demek?"
--  Kärleksveckan tillbaka i Lund
--  Vuelven al Ibex 35 los 10.000 puntos (por la mínima) de la mano de Unicaja y Acerinox
--  ORTEC Launches Innovative End-to-End Supply Chain Solution for Increased Efficiency and Reduced Costs
--  FDP spielt den Koalitionsbruch durch: In der Ampel rasen zwei Züge aufeinander zu
--  Карлос Контрера: Сянката на ротацията оказва влияние върху избора на шеф на СОС
--  Ahol bátorságra is szükség van, de legfontosabb a csapatjáték - Nyílt napot tartottak a veszprémi kórházban
--  Kärleksveckan tillbaka i Lund
--  Pierre (Star Academy) s'exprime sur ses réseaux sociaux, les élèves et les professeurs réagissent
--  Rengiyle de tadıyla da siyah çaya fark atıyor! Osmanlı'dan gelen gelenek: Faydalarını duyunca markete koşacaksınız
+-  Goran Perkovac dobio otkaz; tko će preuzeti rukometnu reprezentaciju?
+-  TBMM Başkanı Kurtulmuş'tan Miraç Kandili mesajı
+-  Europäische Union: EU-Parlament stimmt für EU-weite Fahrverbote
+-  Trogrlić: Najbezbolnije rješenje za ovu akutnu situaciju jest da se Ivan Turudić sam povuče
+-  Zvezda predstavila drugo pojačanje: Posle Sremčevića stigao i on! (FOTO)
+-  "النشامى" يقهر المستحيل ويصعد إلى نهائي كأس آسيا للمرة الأولى في تاريخه
+-  Zagrebačka burza: Indeksi bez jasnih kretanja
+-  Roditelji pretučene djece: Još nisu svi uhićeni, nećemo odustati od borbe
+-  Bakan Yerlikaya Açıkladı: Adliye Saldırısına 40 Gözaltı
+-  В ЦИК рассказали, какую предельную сумму из избирательного фонда может потратить кандидат в депутаты
