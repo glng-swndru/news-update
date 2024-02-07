@@ -1,11 +1,11 @@
 # Latest News
--  תושב רמלה נעצר בחשד שפרץ לבית כנסת בלוד וגנב רכוש
--  Megszólalt a pedofil bűnöző bűnsegédjének felmentéséről Orbán Balázs: Tiszteletben tartjuk a köztársasági elnök döntését
--  Guide Touristique le Petit Futé pour le Tchad : bientôt une nouvelle édition !
--  Pria di Bima Tewas Dianiaya setelah Dituduh Praktik Dukun Santet
--  Exciting Updates to Delta SkyMiles Credit Cards: What You Need to Know
--  Taylor Swift bu kez tehditle gündemde! Hedefte üniversite öğrencisi var
--  879 gün uzayda kaldı: Rus astronot Oleg Kononenko'dan yeni rekor!
--  恒指全日跌５４點報１６０８１，中芯瀉８％，藥明生物收升６％
--  Luminor: viimase kuu hinnatõusu üks põhjustest on alkoholiaktsiisi tõstmine
--  Otomobil tutkunları esnafın yüzünü güldürüyor
+-  中国発パンダ配信番組 和歌山から帰国した「永明」親子3頭の最新映像も
+-  Katalysator gestohlen: Worauf betroffene Autobesitzer achten müssen
+-  Dunia Dibayangi Krisis Utang dalam 10 Tahun ke Depan
+-  رئيس «بوابة الدرعية»: تخصيص 9 كيلومترات لإنشاء واحد من أجمل المتاحف عالميا
+-  4D LOTTO RESULT Today, Wednesday, February 7, 2024
+-  SPORT NA TV Košarka: Liga Šampiona: Tofaš – Šole
+-  "Пусть сначала бабахнет. А потом посмотрим, куда осколки полетят": Как Америка переживет интервью Карлсона с Путиным
+-  Cameroon make decision which could absolutely infuriate Man Utd goalkeeper Andre Onana
+-  ジャーナリスト・池上彰さんが長崎へ おなじみの”池上節”で語る世界の核情勢や地方が抱える課題で見えたもの
+-  Chiesa, Juve un po’ in ansia: la serie di infortuni e la richiesta fuori portata
