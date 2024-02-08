@@ -1,11 +1,11 @@
 # Latest News
--  High school graduation requirements bill heads to Lujan Grisham's desk
--  Española's March 5 election features two contested council races
--  Anies Yakin Suara Masyarakat di Garut Tak Bisa Dibeli dengan Uang
--  Nhà vườn Sa Đéc nhổ bỏ hoa trước ngày 30 Tết
--  Потужний удар Росії по Україні: в ISW вказали на особливості атаки
--  শঙ্কার মধ্যে পাকিস্তানে চলছে ভোটগ্রহণ
--  Nemzetek Ligája: a botrány miatt módosult a helyszín
--  Housing bill backed by governor barely survives committee hearing
--  ISW: Какво се крие зад руските удари в Украйна от 7 февруари
--  Heinrich account mocked after tweeting 'elk were extinct in New Mexico' with picture of a sheep
+-  Πώς την πάτησε έτσι; Γάλλος έφτιαξε τον πύργο του Άιφελ από 700.000 σπίρτα, αλλά έχασε το ρεκόρ Γκίνες
+-  Mihaela, mort d’une prostituée Roumaine - Le récit (2/2)
+-  宝塚歌劇団員急死問題 「双方大きな違いないところまできた」阪急阪神HD会長が発言 2月中の結論目指す - 神戸新聞NEXT
+-  नोएडा में लागू हुई धारा 144, अगले 24 घंटों के लिए सभी बॉर्डर हुए सील
+-  Andhra Pradesh: TDP chief Chandrababu Naidu meets Amit Shah
+-  Кои зодии трябва да бъдат по-внимателни с парите през февруари?
+-  LIVE | Noorwegen schenkt 24 miljoen euro aan hulporganisatie UNRWA
+-  Emoməli Rəhmon Prezident İlham Əliyevə məktub ünvanlayıb
+-  LIVE | Noorwegen schenkt 24 miljoen euro aan hulporganisatie UNRWA
+-  Musikschule Hollabrunn - Ein Klavierkonzert voller Talent und großer Gefühle
