@@ -1,11 +1,11 @@
 # Latest News
--  CNA: Valor Bruto da Produção Agropecuária recua 2,6% em 2023, para R$ 1,25 tri
--  POLICIJSKI INSPEKTOR UBIO ŽENU U TRŽNOM CENTRU! Detalji jezivog zločina u Tuzli
--  Зеленський озвучив головні військові завдання
--  İstanbul’un bu ilçelerinde yaşayanın keyfi keyif! Oralar megakentin en ucuz yerleri...
--  VIDEO: La espectacular transformación física de Miley Cyrus que se vio en los Grammy
--  Konvoyda havaya ateş açtı; tutuklandı
--  New World Test Championship leaders following easy New Zealand triumph
--  NATO-főtitkár: Beszéltem Orbán Viktorral, Svédország hamarosan a NATO tagja lesz
--  Descubre cómo estos institutos lideran la lucha contra las basuras marinas en Vera
--  Uefa potrdila delitev sredstev za evropska klubska tekmovanja
+-  PTI voters vow to beat odds in poll today
+-  Димовски: СДСМ нема да освои повеќе од 25 пратеници на изборите
+-  "ملتقى النص" يعرض مسيرة "أدبي جدة" وإنجازاته في الحركة الثقافية
+-  Joel Edgerton, Felicity Jones to star in ‘Train Dreams’; Black Bear launching at EFM
+-  Stolen Van Gogh returned in IKEA bag displayed again
+-  DAEŞ operasyonunda kilise saldırısı ayrıntısı
+-  Izbornici na Afričkom kupu nacija su kao na 'stratištu', stigla je za to nova potvrda
+-  Bursa'da bir garip olay: İfade verdikten sonra kavgaya tutuştular
+-  Blinken'dan ateşkes sözleri: Hamas'ın başarı şansı olmayan talepleri...
+-  Dünya bu sözleri konuşuyor: Netanyahu'dan 'Saldırı emri verdik' açıklaması! Hamas duyurdu: 'Türkiye'den garantörlük talep edildi'
