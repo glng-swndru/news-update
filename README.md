@@ -1,11 +1,11 @@
 # Latest News
--  Munka vagy tanulás? Van megoldás, munka és tanulás!
--  Editorial: The mood of the business community
--  Látott már szolgálatban korcsolyázó rendőröket? Itt a remek alkalom (videó)
--  Kurioser als die Polizei erlaubt: die ungewöhnlichsten Einsätze aus Ostfriesland
--  Gouvernement. Amélie Oudéa-Castéra, reléguée en fond de court ?
--  MORNING BID EUROPE-China's deflation worry a bad omen for new year
--  Perjalanan Sebastien Haller: 166 Hari Menepi karena Kanker, Sekarang Bawa Pantai Gading ke Final Piala Afrika
--  Jákob Zoli tablóképén ámul az internet - ön felismeri?
--  À Vannes, trois terrains de beach-volley vont voir le jour à Kercado
--  Rilanciare Caselle priorità per Torino
+-  "Nữ hoàng dao kéo xứ Hàn" liên tục được ghép đôi với bạn diễn kém 8 tuổi
+-  'Shining Inheritance' PH adaptation, inaabangan na!
+-  전국 아파트값 11주째 하락…평택 · 김포 등 교통호재지역 꿈틀
+-  Handel: Markt vor Handelsplattformen wie Temu schützen
+-  Bu kirazın yararları az biliniyor
+-  سیمئونه راند اول را به والورده باخت/ شکست خانگی اتلتیکومادرید در جام حذفی
+-  Bu günə olan valyuta məzənnələri
+-  BMW řady 5 Touring se představilo, obří kufr nabídnou všechny motorizace
+-  【動画あり】「大事故になったかもしれない」駐車場６階で車衝突 外壁にコンクリート散乱しテントに穴 那覇市泉崎 - 沖縄タイムス＋プラス ニュース
+-  Griezmann brutalno napao rivala i prošao nekažnjeno. Španjolci: Kako je to moguće?!
