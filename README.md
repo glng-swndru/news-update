@@ -1,11 +1,11 @@
 # Latest News
--  RECENSION: Fransk opera spred glans till solkungens epok
--  Шавкат Мирзиёев поздравил Ильхама Алиев с победой на президентских выборах
--  RECENSION: Fransk opera spred glans till solkungens epok
--  Dhananjay Munde : कृषी विभागाच्या पुरस्काराच्या रकमेत चौपट वाढ: कृषीमंत्री धनंजय मुंडे यांची माहिती
--  CANADA STOCKS-TSX nearly flat ahead of BoC policy meeting minutes release
--  Izrael zničil strategický tunel Hamasu
--  RECENSION: Fransk opera spred glans till solkungens epok
--  Warzone Season 2 update patch notes - ADS idle sway, audio, new features and more
--  Digosipkan Pindah ke Turki, Christian Eriksen: Gak Dulu!
--  Important Update Coming to PlayStation 5 Controllers
+-  Energy-saving grants add to bill relief for small firms
+-  Waimata cheeses recalled after E. coli bacteria concerns
+-  Hamburger Energiewerke kaufen Solarpark in Niedersachsen
+-  Румен Христов: Заради еврозоната земеделците трябва да осъзнаят кое е възможно и кое - не (ВИДЕО)
+-  Southampton FC 3-0 Watford: Daily Echo's big match verdict
+-  Rugby union: Dunfermline beaten by Strathmore in league
+-  Bombenfund in Datteln: 250 Kilo Sprengstoff lagen 79 Jahre lang unter der Goethestraße
+-  Plänterwald soll „mit verschiedenen Maßnahmen“ grüner werden
+-  Super Bowl 2024: Wirkt sich der Taylor-Swift-Effekt auch auf die Werbung aus?
+-  Letteratura, il Premio Firenze a un 16enne genovese: "Ho scritto dell'importanza di lottare per gli altri"
