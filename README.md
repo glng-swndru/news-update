@@ -1,11 +1,11 @@
 # Latest News
--  Izbornik rukometaša bit će stranac? Već je stigao na pregovore, ali ima tu problema
--  Реал Мадрид и мисия Ерлинг Халанд - възможна ли е?
--  Americký moderátor Tucker Carlson urobil rozhovor s Putinom
--  Diputación de Teruel niega que el jefe del servicio de bomberos fuera destituido por motivos políticos
--  Kamion sletio s ceste i uletio u dječju sobu: Policija objavila detalje teške nesreće
--  Zaxarova: "ABŞ özünü nüfuzdan salır"
--  ولي العهد البحريني يصل الرياض
--  В Миргороде прозвучал взрыв
--  Black Isle Brewery set to depart the Black Isle as Inverness plans get the green light
--  Opening statements expected in Adam Montgomery murder trial
+-  RECENSION: Fransk opera spred glans till solkungens epok
+-  Шавкат Мирзиёев поздравил Ильхама Алиев с победой на президентских выборах
+-  RECENSION: Fransk opera spred glans till solkungens epok
+-  Dhananjay Munde : कृषी विभागाच्या पुरस्काराच्या रकमेत चौपट वाढ: कृषीमंत्री धनंजय मुंडे यांची माहिती
+-  CANADA STOCKS-TSX nearly flat ahead of BoC policy meeting minutes release
+-  Izrael zničil strategický tunel Hamasu
+-  RECENSION: Fransk opera spred glans till solkungens epok
+-  Warzone Season 2 update patch notes - ADS idle sway, audio, new features and more
+-  Digosipkan Pindah ke Turki, Christian Eriksen: Gak Dulu!
+-  Important Update Coming to PlayStation 5 Controllers
