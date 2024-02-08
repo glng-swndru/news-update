@@ -1,11 +1,11 @@
 # Latest News
--  Arrasa Pedro Crispim: "Maior lambe rabos"
--  Your Urgent Questions About Disney’s Plans for Hulu, Answered
--  Ovo je predlog Hamasa koji je Izrael odbio
--  Ákærðir fyrir manndráp í Solna
--  Communique du conseil des ministres du Mercredi 07 Février 2024
--  Merkja gervigreindarmyndir á Facebook
--  Mladi par koji kupuje stan: "Cijene nisu najgore, ovo nam je najveći problem..."
--  사형선고 받고 웃으며 박수친 60대, 항소심서 무기징역 감형…왜?
--  'Medyası güçlü olursa Adıyaman da güçlü olur'
--  保育施設で生後4カ月の乳児死亡「うつぶせ寝でもいい」施設が職員へ許可
+-  Les députés du PDS notent des erreurs dans le communiqué du porte-parole du département américain
+-  «Лейрия» крупно проиграла «Спортингу». Лысцов отыграл весь матч
+-  Player ratings: What Clayton Oliver has to prove in 2024
+-  Social media firms can't be let 'off the hook' for deadly sextortion of kids: Eby
+-  禁煙とダイエット、どちらが辛い？男女300人を対象にアンケート調査
+-  Toluca vs Herediano: EN VIVO VER partido de la Concachampions 2024
+-  «Mega Party»: Dieter Bohlen feiert 70. Geburtstag
+-  Excombatientes de La Plata reclamarán por la derogación de la Ley de Tierras
+-  中国・4月に中国国際消費品博覧会開催、消費回復をさらに後押し
+-  سيدات الأعمال يناقشن الشراكة الإستراتيجية مع وفد إسباني
