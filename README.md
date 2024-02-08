@@ -1,11 +1,11 @@
 # Latest News
--  ‘Canlı yayında sigara’ olayı açıklığa kavuştu
--  [ITmedia News] 家電の運転データから症状を診断する機能、日立がスマホアプリに追加 修理依頼も
--  2024 rokiem japońskich RPG-ów. Remake Persony 3 i nowa Yakuza pokazały moc
--  Melisa Döngel Galatasaraylı Futbolcuyla Aşk Mı Yaşıyor?
--  Vi blir galaksens beste skadedyrbekjempere i dagens GR Live.
--  Президент Азербайджана принял делегацию турецкого парламента
--  "J'ai décidé de..." Le prince William ose une blague concernant les soucis Kate Middleton et Charles III et commet un impair
--  Coty увеличила квартальную выручку лучше прогноза
--  Vor HSV-Spiel: Hannover verkauft einen Leistungsträger in die Türkei
--  Президент Ильхам Алиев принял делегацию членов Великого национального собрания Турции
+-  Le théâtre des Tanneurs s’offre un nouveau restaurant en plein cœur des Marolles : “une ruche au service des artistes, du public et des habitants”
+-  "Respektlos": Darum beendete Tish die Ehe zu Billy Ray Cyrus
+-  Core Banking Software Market Analysis Report 2023-2030, Featuring Profiles of Capgemini, Finastra, FIS, Fiserv, HCL Technologies, Infosys, Oracle, Temenos & Unisys
+-  Accusé par 41 nouvelles femmes, Gérard Miller passe aux aveux : "des femmes plus jeunes" et un "homme de pouvoir"
+-  Du RCT à cuisinier, la belle histoire de reconversion derrière le restaurant La Terrasse de Karo à Besse-sur-Issole
+-  Thinkific Introduces New Podcast: "Unique Genius: The Business of Creators"
+-  Remote Revolution: 3 Unstoppable Work-From-Home Stocks Defying Corporate Resistance
+-  Penkkareita juhlittiin hyvillä mutta haikeilla mielin
+-  Gestiegene Preise: Viele sparen bei frischem Obst und Gemüse
+-  Gestiegene Preise: Viele sparen bei frischem Obst und Gemüse
