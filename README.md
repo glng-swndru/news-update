@@ -1,11 +1,11 @@
 # Latest News
--  Pakistán cerrará temporalmente la frontera con Irán y Afganistán para garantizar la seguridad en los comicios
--  Белстат: доля отечественных огурцов на белорусском рынке превышает 80%
--  Srednja stručna škola u Pljevljima na putu da postane regionalni...
--  LIVE TOTO KNVB Beker | Feyenoord in bekerclash tegen AZ wederom met Nieuwkoop in de basis
--  SPORTSKO IME DALMACIJE Održan tradicionalni izbor najboljih sportaša u protekloj godini
--  Novi primeri ptičje gripe: prosta reja perutnine prepovedana
--  Números de Oro: tres lectores se repartieron el pozo de $800.000
--  Di Makam Bung Karno, GMNI Ajak Masyarakat Berani Bersuara
--  Rund 70 Läuferinnen und Läufer beim Schaulaufen dabei
--  ميزة مشرف جدا وتنويه وتوصية بالنشر.. الدكتور محمد حمداوي يناقش رسالته بوجدة
+-  "Nessun contatto". La Rai smentisce i trattori all'Ariston
+-  Tässä ovat yleisön suosikit vuoden parhaaksi luonto­kuvaksi – voittajaa kehutaan ”henkeä­salpaavaksi ja koskettavaksi”
+-  Doktora şiddette böylesi görülmedi! Ölüm haberini veren kadın doktora saldırdı: O anlar kamerada
+-  Folik Asit Ne İşe Yarar?
+-  Görenler mest oldu! İşte fotoğrafçıların gözünden Erzincan...
+-  Dubai'deki Türk kızdan 'cinsellik' tavsiyesi
+-  Bursa'da bıçaklı kavga! İki grup birbirine girdi...
+-  ¿Quieres trabajar en Adra? Pronto habrá nuevas plazas de empleo disponibles
+-  Число пострадавших после обстрела в Белгородской области выросло до трех
+-  Messi ou Ronaldo?, pergunta Luva de Pedreiro ao papa Francisco
