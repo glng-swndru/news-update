@@ -1,11 +1,11 @@
 # Latest News
--  Rio declares dengue emergency as Brazil gears up for carnival - CNN
--  “한·미·일·유럽 무역에서 중국 비중 감소…위험회피 추구”-닛케이
--  Gilbert PD announces two more arrests related to teen violence investigations
--  Periodistas de TyC cometen grueso error con Bryan Reyna: “el chileno”, repitieron en el Belgrano vs Mitre por Copa Argentina
--  ‘I want to rest in peace’: Ecuador decriminalizes euthanasia
--  Hajj: Jigawa sets Feb. 9 deadline for payment
--  Warner Music to cut 600 jobs, or 10% of staff
--  В Японии произошло задымление на остановленной АЭС
--  Dog dies during walk with owner after they were run over by forklift in Heights area, police say
--  СМИ: Австрия ведет расследование в отношении экс-главы нацбанка Украины
+-  Trade between Kyrgyzstan and UK soars
+-  Cegah Disinformasi di Tahun Pemilu, Meta akan Tandai Postingan AI
+-  Sarawak Report editor Clare Rewcastle-Brown appeals against jail sentence
+-  Bộ GTVT yêu cầu xử nghiêm việc tăng giá vé trái quy định
+-  Azerbaijan's Aliyev appears headed to a landslide win in election called after retaking Karabakh
+-  U toku obuka brodskih ronilaca u Rečnoj flotili
+-  게레로 주니어, MLB 연봉 조정 신기록…올해 1990만 달러 수령
+-  VIDEO: Captan momento exacto en que motociclista atropelló y mató a abuelito en Amozoc
+-  Карлсон сообщил, что интервью с Путиным будет опубликовано 9 февраля в 02:00 мск
+-  Padrino López advierte de una respuesta "contundente" si la ExxonMobil explora en el Esequibo
