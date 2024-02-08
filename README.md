@@ -1,11 +1,11 @@
 # Latest News
--  Selektorsko mesto prevzema najboljši rokometaš zadnjih dveh desetletij
--  AK Parti, Mardin'de belediye başkan adaylarını tanıttı
--  (Ne)střelec Roman v oku tornáda. Oceláři našli alternativu do přesilovek
--  Pesticidas: ¿qué impacto tiene en la salud las sustancias que se emplean para controlar plagas en el medio agrícola?
--  Video: #148 Ārpus kadra: Septiņi miljoni par katru reklāmu - kā un kāpēc sekot Super Bowl?
--  Chamber planning to offset possible smelter closure
--  Klauny očkaté možno zvládajú jednoduchú matematiku, naznačuje štúdia
--  More funding needed to protect kea
--  GOLF ROUNDUP
--  Tire toxin linked to salmon deaths, environmental groups want federal probe
+-  Izbornik rukometaša bit će stranac? Već je stigao na pregovore, ali ima tu problema
+-  Реал Мадрид и мисия Ерлинг Халанд - възможна ли е?
+-  Americký moderátor Tucker Carlson urobil rozhovor s Putinom
+-  Diputación de Teruel niega que el jefe del servicio de bomberos fuera destituido por motivos políticos
+-  Kamion sletio s ceste i uletio u dječju sobu: Policija objavila detalje teške nesreće
+-  Zaxarova: "ABŞ özünü nüfuzdan salır"
+-  ولي العهد البحريني يصل الرياض
+-  В Миргороде прозвучал взрыв
+-  Black Isle Brewery set to depart the Black Isle as Inverness plans get the green light
+-  Opening statements expected in Adam Montgomery murder trial
