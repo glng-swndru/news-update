@@ -1,11 +1,11 @@
 # Latest News
--  Mystery of Sh6.3bn spent in Uhuru’s 'dying' days
--  Сколько грандов осталось? Определены все пары 1/8 финала Кубка Англии
--  Y2K Movie First Look Revealed
--  「Bluesky」招待制廃止でユーザー爆増 有名人も続々アカウント開設中
--  The delegation of the “Turkmenaragatnashyk” Agency took part in the largest international IT forum “Cisco Live 2024”
--  ZZS cer atgūt vēlētāju labvēlību
--  Sistem Pendinginan untuk Membangun Pemilu Damai
--  Suicide Squad Game's Prequel Comic Kills off a Batman Villain
--  誰でも参加可能になったBlueskyのユーザーが爆増して400万人を突破、日本の有名人も続々アカウント開設中
--  [인사] 해양수산부
+-  تجميد النقاش الرئاسي في إنتظار تطورات غزة والجنوب
+-  Ribuan TPS di Jakarta Berdiri di Lokasi Rawan Banjir
+-  Detienen a presunto violador en bulevar Galerías, en Saltillo
+-  “설 연휴 우리집 댕댕이 돌봐드려요”
+-  Heat’s Haywood Highsmith involved in car crash that left victim with partial leg amputation
+-  WTA roundup: Ons Jageur reaches quarterfinals at Abu Dhabi
+-  বাংলা - ষষ্ঠ শ্রেণি
+-  Fármacos para disfunción eréctil pueden reducir riesgo de Alzheimer: estudio
+-  Prakiraan Cuaca Hari Ini: Waspada Hujan Lebat dan Petir di Sejumlah Provinsi
+-  El tiempo en Almonte: previsión meteorológica para hoy, jueves 8 de febrero
