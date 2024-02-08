@@ -1,11 +1,11 @@
 # Latest News
--  Kaza yapan alkollü sürücü aracını bırakıp olay yerinden ayrıldı
--  Борисов: Ако не искат Габриел да е и премиер, и външен министър, ще излъчим нов кандидат за МВнР
--  Gönen'de ekmek fırınında yangın çıktı
--  4∼5월 美항모 절반, 한반도로 모인다…걸프전 이후 최대 집결
--  Zusagen und Absagen für Kita-Plätze in Castrop-Rauxel sind raus: Das müssen Eltern jetzt wissen
--  جلالةُ السُّلطان المعظم يتوجّه إلى المملكة المتحدة
--  Khách 'quây' kín siêu thị, sắm sửa đón Tết Giáp Thìn 2024
--  Mattel увеличила квартальную чистую прибыль более чем в девять раз
--  Stow All Those Extra Cables and Grab This 3-in-1 Magnetic Wireless Charger
--  Wenn „Remigration“ Wirklichkeit würde: Fast jeder dritte Hertener wäre betroffen
+-  에스파 닝닝, 베르사체 글로벌 앰버서더 발탁…“나만의 에너지 공유할 수 있어 기뻐”
+-  Šefčovič: Klimatické ciele EÚ sú výzvou pre transformáciu priemyslu
+-  رئيس هيئة العمليات يتفقد النقاط الأمنية والمواقع العسكرية في محيط الشركات النفطية بمأرب
+-  Merkez Bankası enflasyondaki artışın nedenini asgari ücret zammına bağladı
+-  Sakarya'nın yüksek kesimlerinde kış, merkezinde adeta bahar yaşanıyor
+-  Kocaeli'de toplu taşıma 724 kontrol altında
+-  Hajer Gueldich, nouvelle Conseillère juridique de l’Union africaine
+-  여야 설 귀성 인사…연탄배달 vs 시장 방문
+-  PSG su Leao e Osimhen, per il nigeriano c'è anche l'Inghilterra
+-  Tak Paulina Smaszcz zaczynała karierę. W sieci krąży nagranie [WIDEO]
