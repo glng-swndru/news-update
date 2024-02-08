@@ -1,11 +1,11 @@
 # Latest News
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 8 февруари /валутен калкулатор/
--  Radisson Blu Doha gets new GM
--  City clinic has capacity for providing sexual health services
--  Çay ithalatına servet akıyor
--  Chelsea sigldi örugg­lega á­fram í 16-liða úr­slit
--  First ever Congress for Sustainable Materials 2024 a success
--  B.C. to move nicotine pouches behind pharmacy counters
--  Fernandez hits stunner as Chelsea beat Villa to reach FA Cup fifth round
--  Επιστολή με τα αιτήματά τους απέστειλαν στον πρωθυπουργό οι αγρότες
--  B.C. to move nicotine pouches behind pharmacy counters
+-  В Евросоюзе заявили об отсутствии «волшебной палочки» для помощи Украине
+-  Strava u Tuzli: Policajac upucao ženu u trgovačkom centru pa pobjegao
+-  PSG - Brest : éliminé de la Coupe de France, cette fois, le Stade Brestois n’est pas revenu
+-  MP Williams says action needed now on drug problems
+-  PSG - Brest : le tacle assassin sur la cheville de Mbappé !
+-  Sound Euphonium Season 3 Release Date, Episode Count Announced
+-  Aceptaría cargos hombre acusado por asesinar a su hijo de 21 días de nacido en Ramos Arizpe
+-  Penticton man arrested downtown after being seen with BB gun (Penticton)
+-  DNA de exames feitos na denunciante é compatível com o de Daniel Alves, dizem peritos
+-  Od Beograda do Subotice ya 70 minuta! Vesić objavio snimak trase brze pruge iz vazduha
