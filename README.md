@@ -1,11 +1,11 @@
 # Latest News
--  "Nữ hoàng dao kéo xứ Hàn" liên tục được ghép đôi với bạn diễn kém 8 tuổi
--  'Shining Inheritance' PH adaptation, inaabangan na!
--  전국 아파트값 11주째 하락…평택 · 김포 등 교통호재지역 꿈틀
--  Handel: Markt vor Handelsplattformen wie Temu schützen
--  Bu kirazın yararları az biliniyor
--  سیمئونه راند اول را به والورده باخت/ شکست خانگی اتلتیکومادرید در جام حذفی
--  Bu günə olan valyuta məzənnələri
--  BMW řady 5 Touring se představilo, obří kufr nabídnou všechny motorizace
--  【動画あり】「大事故になったかもしれない」駐車場６階で車衝突 外壁にコンクリート散乱しテントに穴 那覇市泉崎 - 沖縄タイムス＋プラス ニュース
--  Griezmann brutalno napao rivala i prošao nekažnjeno. Španjolci: Kako je to moguće?!
+-  Bluesky'a artık herkes kayıt olabilecek!
+-  אבוקסיס לשחקני הפועל ת"א: "מבחינתי כולם מתחילים מאותה נקודה"
+-  33 ilde film gibi operasyon: 147 DEAŞ'lı yakalandı
+-  장민호, 대게 회 뜨는 폼 미쳤다 (편스토랑)
+-  PSG : Un très gros projet est abandonné
+-  JÄLLE UNETU ÖÖ? Menopaus mõjutab naise elu väga mitmel moel
+-  "警察官"や"検事"も登場 福岡県のニセ電話詐欺 １カ月で約３億円被害 電話で暗証番号聞かれたら用心
+-  Le Pas-de-Calais placé en vigilance orange pour des risques de crues
+-  Noémie, 16 ans, décédée dans un accident à Vence en 2022: l'affaire classée sans suite, ses parents accusent
+-  Trendbarometer Sustainable Finance: Bankkunden fischen beim Thema Nachhaltigkeit weiterhin im Trüben
