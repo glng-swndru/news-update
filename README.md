@@ -1,11 +1,11 @@
 # Latest News
--  AKP çoğunluğu sağlayamadı, oturum kapandı
--  Tivi 40 vuotta sitten: Systeemisuunnittelijat katoavat – ”murheellinen ura”
--  Ecco le funzioni di Galaxy AI che arriveranno sui vecchi smartphone Samsung
--  Vuelve “Coraline” a los cines: qué se sabe sobre el clásico animado
--  Туристки из России страдают от сексуального насилия по всему миру. Какие страны особенно опасны для них?
--  Emotivna večer Željka Krušlina Kruške: Na promociji svoje zbirke pjesama u suzama se oprostio od preminulog kolege
--  Architekten-Vorschläge: Museumserweiterung in Saarbrücken: Mancher warnt vor „Frevel“ am Schlossplatz
--  "Nous ne sommes pas des petits médecins" : près de Perpignan, deux pharmacies peuvent prescrire des médicaments sans l'ordonnance du médecin
--  Í beinni: Njarð­vík - Grinda­vík | Heimakonur sjóð­heitar
--  Izraelski premijer Netanyahu odbacio uvjete Hamasa: Bizarni su. U Gazi je moguća pobjeda...
+-  Pakistán cerrará temporalmente la frontera con Irán y Afganistán para garantizar la seguridad en los comicios
+-  Белстат: доля отечественных огурцов на белорусском рынке превышает 80%
+-  Srednja stručna škola u Pljevljima na putu da postane regionalni...
+-  LIVE TOTO KNVB Beker | Feyenoord in bekerclash tegen AZ wederom met Nieuwkoop in de basis
+-  SPORTSKO IME DALMACIJE Održan tradicionalni izbor najboljih sportaša u protekloj godini
+-  Novi primeri ptičje gripe: prosta reja perutnine prepovedana
+-  Números de Oro: tres lectores se repartieron el pozo de $800.000
+-  Di Makam Bung Karno, GMNI Ajak Masyarakat Berani Bersuara
+-  Rund 70 Läuferinnen und Läufer beim Schaulaufen dabei
+-  ميزة مشرف جدا وتنويه وتوصية بالنشر.. الدكتور محمد حمداوي يناقش رسالته بوجدة
