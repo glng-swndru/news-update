@@ -1,11 +1,11 @@
 # Latest News
--  "Nessun contatto". La Rai smentisce i trattori all'Ariston
--  Tässä ovat yleisön suosikit vuoden parhaaksi luonto­kuvaksi – voittajaa kehutaan ”henkeä­salpaavaksi ja koskettavaksi”
--  Doktora şiddette böylesi görülmedi! Ölüm haberini veren kadın doktora saldırdı: O anlar kamerada
--  Folik Asit Ne İşe Yarar?
--  Görenler mest oldu! İşte fotoğrafçıların gözünden Erzincan...
--  Dubai'deki Türk kızdan 'cinsellik' tavsiyesi
--  Bursa'da bıçaklı kavga! İki grup birbirine girdi...
--  ¿Quieres trabajar en Adra? Pronto habrá nuevas plazas de empleo disponibles
--  Число пострадавших после обстрела в Белгородской области выросло до трех
--  Messi ou Ronaldo?, pergunta Luva de Pedreiro ao papa Francisco
+-  Budućnost, Igman i Šibenik na Veležovom Februarskom turniru
+-  The Newest Apple AirPods Pro with USB Is Back Down to Black Friday Pricing
+-  Lessons from Latin America: How barring Trump from the ballot could backfire
+-  How on earth? criminals' most bizarre drug trafficking attempts
+-  Halton police say fatal Georgetown house fire considered suspicious
+-  سرود و سخن
+-  LIVEBLOG NIGERIA-ZUID-AFRIKA. Penalty’s na sensationele match! Stoot Broos na nieuwe thriller door naar finale?
+-  Novi Mini Cooper predstavljen s benzinskim agregatima
+-  "Volati gli stracci" tra gli staff di Annalisa e Amoroso, il retroscena
+-  Vegetarisk kaviar återkallas – innehåller fisk
