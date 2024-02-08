@@ -1,11 +1,11 @@
 # Latest News
--  L'association nationale Cultures du monde de Gannat participe à un événement Unesco sur l'éducation culturelle
--  Revolut says Meta platforms are a 'hotbed' for scams
--  Đám cưới 720 tỷ của phú nhị đại Trung Quốc: Tổ chức trong "Diệp Phủ" khổng lồ, của hồi môn một lời khó tả hết
--  Flere store Xbox-influencere flykter fra plattformen.
--  Inflácia v Holandsku sa zrýchlila v januári na 6-mesačné maximum
--  Uşak'ta 10-16 milyon yaşında ağaç fosili bulundu
--  Ngoài tắm, chị em dùng nước mùi già để làm một việc mỗi sáng ngày Tết sẽ có da sáng hồng, khí sắc tốt
--  Tigers claw battling Bulls
--  Konya'da feci kaza: 1'i bebek 3 kişi hayatını kaybetti
--  中 “대만은 레드라인”…필리핀 병력 강화에 반발
+-  Riforme: costituzionalista Buratti, 'emendamenti Governo consolidano e sciolgono dubbi'
+-  Scurgere de apă radioactivă la Centrala Nucleară avariată Fukushima. Este al 2-lea incident la o instalaţie nucleară japoneză
+-  Juhász Gréta reményekkel teli igazolt Vácra: "Tetszenek a felvázolt tervek!"
+-  Kaya Yanar wird wegen Nahost-Video angezeigt
+-  Bursaspor Yeni Çarşı maç biletleri satışa çıkıyor
+-  '18 kilo altınım var' diyen Kobra Murat'a MASAK şoku
+-  Golf-Hatton uncertain of Ryder Cup future after LIV switch
+-  Welfare concern after clothes left in Huntcliff, Saltburn
+-  Bursa'da metroda nefes kesen tatbikat! Raydan çıkan vagonda uluslararası tatbikat...
+-  Nowi inżynierzy i nowe inżynierki Politechniki Białostockiej. Studenci bronili prac dyplomowych. Zobacz kto został absolwentem "Polibudy"
