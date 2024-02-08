@@ -1,11 +1,11 @@
 # Latest News
--  Schon wieder: Auch Credo und Flocke sind bei "B:Real" raus!
--  Helldivers 2 Off to a Strong Start on PS5, PC, Currently Third Best-Selling Game on Steam - Push Square
--  Jag oroar mig ofta – hur slutar jag att övertänka och älta?
--  Mayors outline rail vision for Birmingham to Manchester improvements
--  Bernie Sanders Isn’t Thankful for High Drug Prices
--  £35m special school planned to replace outdated facility in Wrexham
--  Парламентът набързо реши репресираните да могат да си купуват стаж за пенсия
--  Golden Triangle Ventures Activates Phase One of Destino Ranch Development, an Immersive Entertainment Venue, Through Its Entertainment Division
--  Adams and Reese Lands Veteran Attorneys to Launch Aviation and Aerospace Practice
--  „Kuliokul” sau Președinția. Dodon, în fața JUDECĂTORILOR la ora când Maia Sandu l-a chemat la consultări vizavi de REFERENDUMUL pentru integrarea europeană a R. Moldova
+-  胡志明市滨城-仙泉地铁一号线的17组列车将在春节期间试运
+-  NYC giving pre-paid debit cards to asylum seeker families for food, baby supplies
+-  Nejlepší aplikace pro tento týden: Deník duševního zdraví, rodičovský zámek, jestřábí oko a příprava kávy
+-  MASAK'tan Kobra Murat'a
+-  Jets de 80 mètres de haut, coulées de lave... Les images saisissantes de l'éruption volcanique en Islande
+-  Újabb városok és fővárosi kerületek lépték át az egymilliós négyzetméterárakat
+-  Kafa kafaya çarpıştılar. 3 kişi öldü 3 kişi yaralandı
+-  Nie żyje dziadek z TikToka, który podbił serca internautów. 95-letni Henryk nagrywał filmiki z wnuczką: "Jeszcze wczoraj rozmawialiśmy"
+-  Může být jednatel firmy zároveň i zaměstnancem s. r. o.?
+-  Ankstinamas amžius: pasitikrinti dėl krūties vėžio galės moterys nuo 45-erių
