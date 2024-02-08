@@ -1,11 +1,11 @@
 # Latest News
--  Cae ex colaborador de Mario Villanueva tras casi 20 años prófugo
--  कुशलको अर्द्धशतकमा नेपालको १०० रन
--  Apple Vision Pro: Deutschland-Start und weitere Expansion geplant
--  Cip bariyerlere saplandı; bariyerlerin kafasını sıyırdığı sürücü hastaneye kaldırıldı
--  क्यानडाविरूद्ध नेपालका दुवै ओपनरसहित चार ब्याटर आउट
--  İki grup arasında silahlı kavga: 4 yaralı
--  Лидеры мировых государств поздравляют Ильхама Алиева-ОБНОВЛЕНО-2
--  „Irgendjemand ist immer von Kunst beleidigt“
--  Diese Tricks nutzen Bewerber, um Recruiting-Software zu überlisten
--  حسینی: دشمن در روز ۲۲ بهمن مأیوس خواهد شد
+-  Munka vagy tanulás? Van megoldás, munka és tanulás!
+-  Editorial: The mood of the business community
+-  Látott már szolgálatban korcsolyázó rendőröket? Itt a remek alkalom (videó)
+-  Kurioser als die Polizei erlaubt: die ungewöhnlichsten Einsätze aus Ostfriesland
+-  Gouvernement. Amélie Oudéa-Castéra, reléguée en fond de court ?
+-  MORNING BID EUROPE-China's deflation worry a bad omen for new year
+-  Perjalanan Sebastien Haller: 166 Hari Menepi karena Kanker, Sekarang Bawa Pantai Gading ke Final Piala Afrika
+-  Jákob Zoli tablóképén ámul az internet - ön felismeri?
+-  À Vannes, trois terrains de beach-volley vont voir le jour à Kercado
+-  Rilanciare Caselle priorità per Torino
