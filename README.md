@@ -1,11 +1,11 @@
 # Latest News
--  Hasan el-Benna’dan Müslüman gençlere
--  Pretty room, charming people … but what about the food?
--  PSP corta folgas de agentes para garantir futebol e festejos de Carnaval
--  Pedro Nuno Santos afirma que PS e PSD não podem ter a mesma lógica governativa
--  Man guilty of 2022 assault spree accused of breaching probation
--  "Se o jogo fosse adiado não ficava contente": Roger Schmidt sobre os protestos de agentes da PSP
--  Stock Radar I Top long-term pick! This smallcap stock could almost double in 18-24 months: Gaurav Bissa
--  Bancos multados em oito milhões de euros
--  Coahuila, a un paso de distribuir nuevos libros de texto de la SEP federal
--  ‘I love to race and can’t seem to stop’: Kelowna’s Elmore makes 3rd Olympic team
+-  Mystery of Sh6.3bn spent in Uhuru’s 'dying' days
+-  Сколько грандов осталось? Определены все пары 1/8 финала Кубка Англии
+-  Y2K Movie First Look Revealed
+-  「Bluesky」招待制廃止でユーザー爆増 有名人も続々アカウント開設中
+-  The delegation of the “Turkmenaragatnashyk” Agency took part in the largest international IT forum “Cisco Live 2024”
+-  ZZS cer atgūt vēlētāju labvēlību
+-  Sistem Pendinginan untuk Membangun Pemilu Damai
+-  Suicide Squad Game's Prequel Comic Kills off a Batman Villain
+-  誰でも参加可能になったBlueskyのユーザーが爆増して400万人を突破、日本の有名人も続々アカウント開設中
+-  [인사] 해양수산부
