@@ -1,11 +1,11 @@
 # Latest News
--  Çağlayan Adliyesi'ne saldırı planı '5 dakika'da engellendi
--  1 Bedroom Home in Clancy - $29,000
--  VIDEO // Ce-a pățit un general rus MORT DE BEAT care a convins o tânără să meargă cu el în camera de hotel
--  Anies Baswedan Diberi Kujang oleh Warga Garut, Simbol Saling Terikat: Kukuh Kana Janji, Satu Tujuan
--  New year brings change at helm of Nairn BID board after chair steps down
--  FTSE 100 Live 08 February: Unilever, BAT, AstraZeneca results
--  Bollette del gas sempre più care: suggerimenti per risparmiare
--  'Homely' Chinese restaurant serving Liverpool families for over 30 years
--  Kiểm soát Kupiansk, Nga sẽ đột phá hàng trăm km?
--  Publicis prevede una crescita del fatturato del 4%-5% nel 2024, battendo le aspettative del quarto trimestre
+-  '남편 니코틴 살해 사건' 또 대법원행…검찰 재상고
+-  Pakistan'da saldırıların gölgesinde seçim: Bazı bölgelerde oy verme işlemi durdu
+-  Où en est le projet de construction d'un hôpital à Rambouillet ?
+-  Kamery zarejestrowały uderzenie Kamińskiego. Macierewicz twierdzi, że nagranie zmanipulowano
+-  Kamery zarejestrowały uderzenie Kamińskiego. Macierewicz twierdzi, że nagranie zmanipulowano
+-  Volkswagen Caddy bude pomáhat seniorům
+-  Kamery zarejestrowały uderzenie Kamińskiego. Macierewicz twierdzi, że nagranie zmanipulowano
+-  [동정] 안민정책포럼 이사장에 유일호 전 부총리
+-  PS4／Switch版『ライブラリー・オブ・ルイナ』 ゲーム序盤のプレイ映像が公開！
+-  Geheime Stromzähler-Funktion: Taschenlampe hilft beim Stromsparen
