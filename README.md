@@ -1,11 +1,11 @@
 # Latest News
--  Ūkininkai visoje Europoje lieja įniršį: ar reikia remti pelningus grūdų ūkius?
--  ÍE kaupir ofurtölvu fyrir 3 milljarða
--  Deux personnes sont décédées dans l'incendie de leur maison à Grimaud
--  Quarta maglia Milan 2023/24, a Milano la preview del nuovo kit! Tanti rossoneri presenti all’evento, ecco chi c’è – FOTO
--  My husband quit his job for a less well paid role without mentioning a thing
--  Horse racing tips: JP McManus snapped up Templegate’s NAP after his debut – he looks a banker at Doncaster
--  Gesündere Karnevals-Alternative: Krapfen ohne Frittieren selber machen
--  A83 at the Rest and be Thankful: The 18 year wait for a solution
--  Hungriga i Åbo kan få skolmat som blivit över – nu söks frivilliga för pilotprojekt
--  Consommation : le liquide, espèce pas vraiment en voie de disparition
+-  Asienmeisterschaft im Fußball: Die Lehren nach dem Sieg
+-  تأسيس منتدى نادي طب أسنان الأطفال الإماراتي ضمن «إيدك دبي»
+-  Wo einst der zweitreichste Mann Frankreichs einkaufte
+-  NA SAJTU SAVETA BEZBEDNOSTI ZVANIČNO OBJAVLjENO: Sednica po zahtevu Srbije sutra u devet uveče
+-  Фотогалерия: Световните снимки на деня - 7 февруари 2024 г.
+-  DNA TV Show: Analysis of Balochistan blasts on eve of Pakistan elections
+-  انطلاق فعاليات الدورة الـ 25 من الملتقى الهندسي الخليجي في دبي
+-  “Murat Kurum Çevre Bakanıyken verdiği sözleri tutamadı şimdi ne yapacak?”
+-  OPINION: How many more Brits need to die after taking Nolotil in Spain before PROPER legislation is actioned?
+-  Soome ajaleht: kruiisilaeva pardal toimus orgia
