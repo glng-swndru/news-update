@@ -1,11 +1,11 @@
 # Latest News
--  Casos de covid aumentam e em Corumbá hospital obriga uso de máscara
--  F1 Powerboat 2024 Digelar 2-3 Maret, Kemenparekraf Targetkan Kunjungan Wisatawan 25%
--  Yarın sabah saatlerinde sis, cuma günü sağanak bekleniyor
--  Средната площ на новопостроените жилища у нас е намаляла с 10 кв. м за година
--  Ludwigsburger Jugendgemeinderäte löchern Planer der Stadtbahn Lucie
--  Gran Hermano, Escape perfecto o Trato hecho, ¿quién lideró el prime time de verano?
--  Hamas proposes three-phase ceasefire plan to end Israel’s war on Gaza
--  Oyetola Unveils NIMASA Service Charter, Grievance Redress Mechanism
--  Ronaldo đăng ảnh khoe sinh nhật lần thứ 39, fan ngỡ ngàng trước chiều cao khó tin của cậu con trai cả
--  Moroccan Media Outlet Slams CAF President Motsepe
+-  Krieg in der Ukraine - Wie Putin wegen Kriegsverbrechen vor Gericht landen könnte
+-  6 Şubat depremlerinde hayatını kaybedenler Londra'da anıldı
+-  Montevideo emitirá deuda por u$s 37,3M para sumar ómnibus eléctricos
+-  Kada iznijeti limun i drugo toploljubivo bilje na otvoreno?
+-  Zufriedenheit: Was braucht man, um glücklich zu sein?
+-  Společnost Vistex oznamuje jmenování Amose Bieguna dočasným generálním ředitelem
+-  Zufriedenheit: Was braucht man, um glücklich zu sein?
+-  EU überschätzt ihre Macht: dm-Chef nennt Lieferkettengesetz „überzogen“
+-  Po silnici se řítil 200 km/h, zběsilou jízdu si natáčel. Policie hledá svědky
+-  Budućnost, Igman i Šibenik na Veležovom Februarskom turniru
