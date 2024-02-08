@@ -1,11 +1,11 @@
 # Latest News
--  Bluesky'a artık herkes kayıt olabilecek!
--  אבוקסיס לשחקני הפועל ת"א: "מבחינתי כולם מתחילים מאותה נקודה"
--  33 ilde film gibi operasyon: 147 DEAŞ'lı yakalandı
--  장민호, 대게 회 뜨는 폼 미쳤다 (편스토랑)
--  PSG : Un très gros projet est abandonné
--  JÄLLE UNETU ÖÖ? Menopaus mõjutab naise elu väga mitmel moel
--  "警察官"や"検事"も登場 福岡県のニセ電話詐欺 １カ月で約３億円被害 電話で暗証番号聞かれたら用心
--  Le Pas-de-Calais placé en vigilance orange pour des risques de crues
--  Noémie, 16 ans, décédée dans un accident à Vence en 2022: l'affaire classée sans suite, ses parents accusent
--  Trendbarometer Sustainable Finance: Bankkunden fischen beim Thema Nachhaltigkeit weiterhin im Trüben
+-  Çağlayan Adliyesi'ne saldırı planı '5 dakika'da engellendi
+-  1 Bedroom Home in Clancy - $29,000
+-  VIDEO // Ce-a pățit un general rus MORT DE BEAT care a convins o tânără să meargă cu el în camera de hotel
+-  Anies Baswedan Diberi Kujang oleh Warga Garut, Simbol Saling Terikat: Kukuh Kana Janji, Satu Tujuan
+-  New year brings change at helm of Nairn BID board after chair steps down
+-  FTSE 100 Live 08 February: Unilever, BAT, AstraZeneca results
+-  Bollette del gas sempre più care: suggerimenti per risparmiare
+-  'Homely' Chinese restaurant serving Liverpool families for over 30 years
+-  Kiểm soát Kupiansk, Nga sẽ đột phá hàng trăm km?
+-  Publicis prevede una crescita del fatturato del 4%-5% nel 2024, battendo le aspettative del quarto trimestre
