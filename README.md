@@ -1,11 +1,11 @@
 # Latest News
--  AK Parti'nin Van'daki ilçe belediye başkan adayları açıklandı
--  Nakon Đokovićevih hvalospjeva Prižmiću novo priznanje, dobio pozivnicu za turnir koji su osvajali Ivanišević i Federer
--  Bully Fans Finally Get a Little Bit of Good News
--  ‘교체 투입 임동혁 32점’ 대한항공, KB손보 제압…선두 추격
--  Bivši reprezentativac Srbije: ‘Nogometaši su se osilili, pogledajte koliko ima silovanja...‘
--  The best bar in the UK is 'absolutely incredible' - full list of locations
--  Taxas futuras de juros têm viés de baixa com dólar e após varejo fraco
--  Лебедько: «Через месяц больше 90% избирателей не вспомнят фамилию депутата, за которого они якобы голосовали»
--  Huelga de agricultores hoy en Catalunya, en directo: última hora de los tractores en Barcelona, protestas y afectaciones al tráfico
--  Naturfreunde Meißner bringen Kindern und Erwachsenen Skifahren bei
+-  Twin bombings at Pakistan political offices kill at least 26 a day before voting begins
+-  У РНБО пояснили, чому українцям на ТОТ краще уникнути участі у "виборах" Путіна
+-  "Все заплутано": Кулеба заявив про "гостросюжетний детектив" із допомогою від США
+-  Картопля здешевшала вперше за декілька місяців: скільки вона нині коштує
+-  Τραγωδία στο Ηράκλειο: Νεκρός 78χρονος που καταπλακώθηκε από το τρακτέρ του
+-  Tod im Kinderheim: Junge erhebt Vorwürfe gegen Angeklagten
+-  Taylor Swift is demanding this college student stop tracking her private jet
+-  MHP'de 55 belediye başkan adayı daha açıklandı
+-  Španielski farmári pokračujú v protestoch, blokujú viaceré cesty v krajine
+-  İsrail basını: Blinken'ın İsrail Genelkurmay Başkanı ile yapacağı görüşme iptal edildi
