@@ -1,11 +1,11 @@
 # Latest News
--  《彰化》賴蕭訪彰化 初三、初一發小福袋
--  出口領頭羊！ 台積電1月營收創同期新高
--  PepsiCo Declares Quarterly Dividend
--  經部出手！ 工具機全面禁止輸俄
--  滋賀県2024年度当初予算案、教育委員会分は2・1パーセント増 退職手当、教職員数が増
--  曾俊欣趕場夜戰 清奈開胡
--  JELD-WEN Names Senior Leaders to Strengthen Customer Focus and Accelerate Business Performance
--  The Best Time to Take Probiotics, According to Experts
--  艾瑪史東玩膩情慾遊戲 改當書蟲
--  Canadian cities embrace AI in the face of unprecedented gridlock
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 8 февруари /валутен калкулатор/
+-  Radisson Blu Doha gets new GM
+-  City clinic has capacity for providing sexual health services
+-  Çay ithalatına servet akıyor
+-  Chelsea sigldi örugg­lega á­fram í 16-liða úr­slit
+-  First ever Congress for Sustainable Materials 2024 a success
+-  B.C. to move nicotine pouches behind pharmacy counters
+-  Fernandez hits stunner as Chelsea beat Villa to reach FA Cup fifth round
+-  Επιστολή με τα αιτήματά τους απέστειλαν στον πρωθυπουργό οι αγρότες
+-  B.C. to move nicotine pouches behind pharmacy counters
