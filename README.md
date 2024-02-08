@@ -1,11 +1,11 @@
 # Latest News
--  에스파 닝닝, 베르사체 글로벌 앰버서더 발탁…“나만의 에너지 공유할 수 있어 기뻐”
--  Šefčovič: Klimatické ciele EÚ sú výzvou pre transformáciu priemyslu
--  رئيس هيئة العمليات يتفقد النقاط الأمنية والمواقع العسكرية في محيط الشركات النفطية بمأرب
--  Merkez Bankası enflasyondaki artışın nedenini asgari ücret zammına bağladı
--  Sakarya'nın yüksek kesimlerinde kış, merkezinde adeta bahar yaşanıyor
--  Kocaeli'de toplu taşıma 724 kontrol altında
--  Hajer Gueldich, nouvelle Conseillère juridique de l’Union africaine
--  여야 설 귀성 인사…연탄배달 vs 시장 방문
--  PSG su Leao e Osimhen, per il nigeriano c'è anche l'Inghilterra
--  Tak Paulina Smaszcz zaczynała karierę. W sieci krąży nagranie [WIDEO]
+-  Ispanağı bu şekilde sakın tüketmeyin! Böbrekleri çürütüyor, bağırsakları bozuyor: Bir lokması bile burnunuzdan gelebilir
+-  Onyx Boox Tab X incelemesi - Büyük işler için E-Ink tablet mi?
+-  Paul Merson reacts to Chelsea's win over Aston Villa after predicting London club had 'no chance'
+-  La cathédrale Notre-Dame de l’Immaculée Conception d'Antibes sera bientôt accessible vraiment à tous
+-  Velká vládní hra o jádro. Fialův kabinet musí rozhodnout, kdo bude stavět a co bude dál s ČEZ
+-  Teri Baaton Mein Aisa Uljha Jiya box office collection day 1: Shahid Kapoor, Kriti Sanon starrer has huge potential to be first clean hit of 2024 [Exclusive]
+-  NBA: Pelicansi iznenadili pobjedom protiv Cilppersa, Pistonsi bolji od Kingsa
+-  НХЛ: Рейнджерс, Торонто і Міннесота перемагають
+-  WATCH: Ukrainian artist documents a year of war with 365 paintings
+-  6D LOTTO RESULT Today, Thursday, February 8, 2024
