@@ -1,11 +1,11 @@
 # Latest News
--  İsrail Savunma Bakanı Gallant: Gazze'ye saldırılar sürecek
--  Krčmář se po pokažené štafetě kál: Velice špatné. Je na místě se omluvit
--  Invictus Games Vancouver Whistler 2025 appoints new CEO Scott Moore
--  Velika drama i penali odveli Nigeriju u finale KAN
--  Allianz MTV Stuttgart: Stuttgarts Volleyballerinnen erreichen ihr großes Ziel
--  Toğrul Allahverdili: Seçimlerde tek Azerbaycan değil Türk dünyası kazandı
--  Ólafur drjúgur og liðið fékk mikilvægt stig
--  Качараба: У мене було дві пропозиції: одна з корейської ліги, а інша від ДАК
--  Pakistan'da çifte saldırı: Bombalı saldırıları DEAŞ üstlendi
--  Avignon. Cap Sud : l’enseigne Carrefour va remplacer le supermarché Casino
+-  'In such a daze': Brampton man wins huge lottery prize but didn't realize it right away
+-  La Audiencia Provincial condena a dos personas a dos años de prisión a cada una por sendos delitos de apropiación indebida
+-  '18년 전 아동 강제추행 등' 김근식 징역 5년…오늘 대법 결론
+-  【阪神】島田珠代「私は常にパンティーに伊藤将司と刺しゅうしてますから。全部のパンティーに」 - プロ野球 - ニッカンスポーツ
+-  Gwiazda zadebiutowała w nowej dyscyplinie. "Chciałam zwymiotować"
+-  ‘MAFS-Malou gebruikt Sarath als konijn!’
+-  Демографската криза, видяна през опустелите училища - вече в София след Венеция
+-  Centenas de agricultores manifestam-se em Vila Real e lamentam que setor seja "o parente pobre da economia portuguesa"
+-  Inside Stormzy’s mum's epic plan get him back with Maya Jama after bitter split
+-  PiS nie odpuszcza. Sejm będzie debatował nad CPK
