@@ -1,11 +1,11 @@
 # Latest News
--  Riforme: costituzionalista Buratti, 'emendamenti Governo consolidano e sciolgono dubbi'
--  Scurgere de apă radioactivă la Centrala Nucleară avariată Fukushima. Este al 2-lea incident la o instalaţie nucleară japoneză
--  Juhász Gréta reményekkel teli igazolt Vácra: "Tetszenek a felvázolt tervek!"
--  Kaya Yanar wird wegen Nahost-Video angezeigt
--  Bursaspor Yeni Çarşı maç biletleri satışa çıkıyor
--  '18 kilo altınım var' diyen Kobra Murat'a MASAK şoku
--  Golf-Hatton uncertain of Ryder Cup future after LIV switch
--  Welfare concern after clothes left in Huntcliff, Saltburn
--  Bursa'da metroda nefes kesen tatbikat! Raydan çıkan vagonda uluslararası tatbikat...
--  Nowi inżynierzy i nowe inżynierki Politechniki Białostockiej. Studenci bronili prac dyplomowych. Zobacz kto został absolwentem "Polibudy"
+-  A 14 e 16 anni rubano una Panda e per sfuggire alla polizia uno di loro si lancia dall'auto in corsa: arrestati
+-  「ドキドキワクワクするような環境を作りたい」ＦC今治が今治市を表敬訪問【愛媛】
+-  Nur bei 32 Prozent liegt das Vertrauen in die Politik
+-  עיצוב אנטנה חדש של גוגל יוכל לחסוך זמן סוללה בשעונים חכמים
+-  Fordin Saksassa sijaitsevalta tehtaalta vähennetään rajusti väkeä – 3 500 työntekijälle tarjotaan ”houkuttelevaa erosopimusta”
+-  Marko Ahtiainen on Hämeen Yrittäjien uusi toimitusjohtaja
+-  A delightful family home in the heart of one of the Cotswolds' finest villages
+-  Mesai arkadaşını silahla yaralayan zabıta memuru hakkında mütalaa açıklandı
+-  Güney Afrika Siyonizm'e karşı ayakta! Okullarda İsrail bağlantısı deşifre edildi!
+-  Enzo Fernandez, Terlahir untuk Jadi Pemain Chelsea & Satu-satunya Hal Positif dari Kemenangan Atas Villa
