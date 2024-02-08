@@ -1,11 +1,11 @@
 # Latest News
--  Πώς την πάτησε έτσι; Γάλλος έφτιαξε τον πύργο του Άιφελ από 700.000 σπίρτα, αλλά έχασε το ρεκόρ Γκίνες
--  Mihaela, mort d’une prostituée Roumaine - Le récit (2/2)
--  宝塚歌劇団員急死問題 「双方大きな違いないところまできた」阪急阪神HD会長が発言 2月中の結論目指す - 神戸新聞NEXT
--  नोएडा में लागू हुई धारा 144, अगले 24 घंटों के लिए सभी बॉर्डर हुए सील
--  Andhra Pradesh: TDP chief Chandrababu Naidu meets Amit Shah
--  Кои зодии трябва да бъдат по-внимателни с парите през февруари?
--  LIVE | Noorwegen schenkt 24 miljoen euro aan hulporganisatie UNRWA
--  Emoməli Rəhmon Prezident İlham Əliyevə məktub ünvanlayıb
--  LIVE | Noorwegen schenkt 24 miljoen euro aan hulporganisatie UNRWA
--  Musikschule Hollabrunn - Ein Klavierkonzert voller Talent und großer Gefühle
+-  Cae ex colaborador de Mario Villanueva tras casi 20 años prófugo
+-  कुशलको अर्द्धशतकमा नेपालको १०० रन
+-  Apple Vision Pro: Deutschland-Start und weitere Expansion geplant
+-  Cip bariyerlere saplandı; bariyerlerin kafasını sıyırdığı sürücü hastaneye kaldırıldı
+-  क्यानडाविरूद्ध नेपालका दुवै ओपनरसहित चार ब्याटर आउट
+-  İki grup arasında silahlı kavga: 4 yaralı
+-  Лидеры мировых государств поздравляют Ильхама Алиева-ОБНОВЛЕНО-2
+-  „Irgendjemand ist immer von Kunst beleidigt“
+-  Diese Tricks nutzen Bewerber, um Recruiting-Software zu überlisten
+-  حسینی: دشمن در روز ۲۲ بهمن مأیوس خواهد شد
