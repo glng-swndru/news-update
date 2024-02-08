@@ -1,11 +1,11 @@
 # Latest News
--  Tablet shipments hit their lowest volume since 2011 last year, but Chinese vendors mitigated the decline
--  Мария Габриел и Атанас Славов застават начело на Националния съвет за борба с домашното насилие (ВИДЕО)
--  Großer Nudel-Rückruf bei Edeka: Für Allergiker droht Gesundheitsgefahr
--  Guinée: vers une grève après l'arrestation du journaliste et syndicaliste Sékou Jamal Pendessa
--  Яким буде iPhone 16: новий блок камери та дизайн в стилі айфона 2017 року
--  Omiljeni festival za gurmane ponovno stiže u Rovinj - i bit će raskošniji nego ikad prije
--  Ini Klarifikasi Kabaharkam soal Pernyataan Rektor Unika Soegijapranata
--  Источник: Обвинения главы «Ред Булл» Хорнера не связаны с сексуальными нарушениями
--  Interceptan a un joven que circulaba con dos patinetes a la vez cargado de droga en Palma
--  Serie del Caribe: Tiburones de La Guaira alcanza las semifinales
+-  AK Parti'nin Van'daki ilçe belediye başkan adayları açıklandı
+-  Nakon Đokovićevih hvalospjeva Prižmiću novo priznanje, dobio pozivnicu za turnir koji su osvajali Ivanišević i Federer
+-  Bully Fans Finally Get a Little Bit of Good News
+-  ‘교체 투입 임동혁 32점’ 대한항공, KB손보 제압…선두 추격
+-  Bivši reprezentativac Srbije: ‘Nogometaši su se osilili, pogledajte koliko ima silovanja...‘
+-  The best bar in the UK is 'absolutely incredible' - full list of locations
+-  Taxas futuras de juros têm viés de baixa com dólar e após varejo fraco
+-  Лебедько: «Через месяц больше 90% избирателей не вспомнят фамилию депутата, за которого они якобы голосовали»
+-  Huelga de agricultores hoy en Catalunya, en directo: última hora de los tractores en Barcelona, protestas y afectaciones al tráfico
+-  Naturfreunde Meißner bringen Kindern und Erwachsenen Skifahren bei
