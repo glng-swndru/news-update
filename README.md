@@ -1,11 +1,11 @@
 # Latest News
--  تجميد النقاش الرئاسي في إنتظار تطورات غزة والجنوب
--  Ribuan TPS di Jakarta Berdiri di Lokasi Rawan Banjir
--  Detienen a presunto violador en bulevar Galerías, en Saltillo
--  “설 연휴 우리집 댕댕이 돌봐드려요”
--  Heat’s Haywood Highsmith involved in car crash that left victim with partial leg amputation
--  WTA roundup: Ons Jageur reaches quarterfinals at Abu Dhabi
--  বাংলা - ষষ্ঠ শ্রেণি
--  Fármacos para disfunción eréctil pueden reducir riesgo de Alzheimer: estudio
--  Prakiraan Cuaca Hari Ini: Waspada Hujan Lebat dan Petir di Sejumlah Provinsi
--  El tiempo en Almonte: previsión meteorológica para hoy, jueves 8 de febrero
+-  Fourteen Helena High athletes share experience of signing collegiately
+-  Andhra Bhavan review: ‘My friend has agonised over whether to tell me about this new South Indian gem with the best dosas in Dublin’
+-  Louise McSharry: How to perfect Pat McGrath’s viral ‘glass skin’ look
+-  Къде ще играе? Нов скандал с Бензема
+-  Chainlink (LINK) Price Prediction: Mid-February 2024
+-  «Tiene un mérito grandísimo»
+-  由興趣變成抱負 心理學家學習手語 關注聾人精神健康
+-  Miljoonan lasikuulan miehellä oli valtava vaikutus 1990-luvun estetiikkaan
+-  Caroline O’Doherty: Support for increased activity at Dublin Airport shows up contradiction in Coalition climate policy
+-  How do I know if I am living in a Rent Pressure Zone and what can I do if my landlord increases my rent too much? – All you need to know about RPZs
