@@ -1,11 +1,11 @@
 # Latest News
--  Budućnost, Igman i Šibenik na Veležovom Februarskom turniru
--  The Newest Apple AirPods Pro with USB Is Back Down to Black Friday Pricing
--  Lessons from Latin America: How barring Trump from the ballot could backfire
--  How on earth? criminals' most bizarre drug trafficking attempts
--  Halton police say fatal Georgetown house fire considered suspicious
--  سرود و سخن
--  LIVEBLOG NIGERIA-ZUID-AFRIKA. Penalty’s na sensationele match! Stoot Broos na nieuwe thriller door naar finale?
--  Novi Mini Cooper predstavljen s benzinskim agregatima
--  "Volati gli stracci" tra gli staff di Annalisa e Amoroso, il retroscena
--  Vegetarisk kaviar återkallas – innehåller fisk
+-  İsrail Savunma Bakanı Gallant: Gazze'ye saldırılar sürecek
+-  Krčmář se po pokažené štafetě kál: Velice špatné. Je na místě se omluvit
+-  Invictus Games Vancouver Whistler 2025 appoints new CEO Scott Moore
+-  Velika drama i penali odveli Nigeriju u finale KAN
+-  Allianz MTV Stuttgart: Stuttgarts Volleyballerinnen erreichen ihr großes Ziel
+-  Toğrul Allahverdili: Seçimlerde tek Azerbaycan değil Türk dünyası kazandı
+-  Ólafur drjúgur og liðið fékk mikilvægt stig
+-  Качараба: У мене було дві пропозиції: одна з корейської ліги, а інша від ДАК
+-  Pakistan'da çifte saldırı: Bombalı saldırıları DEAŞ üstlendi
+-  Avignon. Cap Sud : l’enseigne Carrefour va remplacer le supermarché Casino
