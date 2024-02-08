@@ -1,11 +1,11 @@
 # Latest News
--  Twin bombings at Pakistan political offices kill at least 26 a day before voting begins
--  У РНБО пояснили, чому українцям на ТОТ краще уникнути участі у "виборах" Путіна
--  "Все заплутано": Кулеба заявив про "гостросюжетний детектив" із допомогою від США
--  Картопля здешевшала вперше за декілька місяців: скільки вона нині коштує
--  Τραγωδία στο Ηράκλειο: Νεκρός 78χρονος που καταπλακώθηκε από το τρακτέρ του
--  Tod im Kinderheim: Junge erhebt Vorwürfe gegen Angeklagten
--  Taylor Swift is demanding this college student stop tracking her private jet
--  MHP'de 55 belediye başkan adayı daha açıklandı
--  Španielski farmári pokračujú v protestoch, blokujú viaceré cesty v krajine
--  İsrail basını: Blinken'ın İsrail Genelkurmay Başkanı ile yapacağı görüşme iptal edildi
+-  Задържан е крадец на 450 лв. от частен имот в Балчик
+-  Horóscopo de hoy con Luna Nueva para atreverse a cambiar y lograr abundancia este miércoles 7 de febrero
+-  "Черно море" не успя да бие 12-ия във Втора лига в контрола
+-  اختصاصی| بازداشت چند جاسوس هدایت شده توسط یک مرکز در جمهوری آذربایجان در ایران
+-  Nestao Jovan (22) iz Novog Sada! Izašao iz kuće bez telefona i novčanika, od tada mu se gubi svaki trag
+-  Февруарски дейности в градината: Ето какво може да свършите
+-  Less than half of people know their blood pressure
+-  Domstol fastslår: Salwan Momika ska utvisas
+-  Microsoft BitLocker encryption cracked in just 43 seconds with a $4 Raspberry Pi Pico
+-  Der beste Freund von „Stan“ Libuda: Karl-Heinz Bechmann feiert 80. Geburtstag
