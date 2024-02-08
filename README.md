@@ -1,11 +1,11 @@
 # Latest News
--  Само в Gol.bg! Кокала каза как Левски ще шокира всички и отсече: Единствено Уелтън е незаменим
--  Is Virat Kohli Ending Endorsement Deal With Puma? Check What Company Said
--  Pakistan votes for a new parliament as militant attacks surge and jailed leaderâ€™s party cries foul
--  Telefonata di presentazione dei risultati: Triumph Group annuncia una crescita e piani di dismissione
--  Keine Tariflöhne in kommunalen Unternehmen ++ beliebteste Vornamen ++ keine höheren Gebühren für SUV
--  Polizei trainiert Amoklauf-Szenario +++ Debatte um Fleischerei-Aus geht weiter +++ Neue Landeplätze für Adebar
--  Taucher prüfen Brücke in Rathenow +++ „Nastasja“ in Möthlow aus Schlammfalle gerettet +++ Pole Dance Studio bringt Schwung ins Havelland
--  Vorstoß gegen Flughafenparker in Holzwickede: Entscheidung lässt auf sich warten
--  Gutachten für Bahn nach Güstrow +++ 120 Jahre altes Haus wird versteigert +++ Perleberger Kauffrau setzt auf Regionalität
--  出國進修收穫滿滿 高志綱赴美學習建立贏球文化
+-  Рубль сохраняет позиции к доллару и юаню на старте торгов
+-  Haiti'de tansiyon yükseliyor: 6 kişi öldü
+-  ASV Senāts noraida likumprojektu, kas ietver palīdzību Ukrainai
+-  बावर्ची' रीमेक की स्क्रिप्ट हुई पूरी, कौन लेगा राजेश खन्ना-जया बच्चन की जगह?
+-  “테슬라 1월 한국서 단 1대 판매…美선 인력 감원 준비”
+-  Opernstars Garanca und Beczala eröffnen Wiener Opernball
+-  Latvijas Televīzijā pirmizrādīs dokumentālo filmu par trimdas dziedātāju Larisu Mondrusu
+-  Датчики проконтролируют скорость на 14 участках дорог в Минске
+-  Gustavus men's basketball team thumps Cobbers
+-  協和キリン---大幅反発、今期ガイダンス上振れや自社株買いを評価材料視
