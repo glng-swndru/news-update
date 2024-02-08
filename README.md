@@ -1,11 +1,11 @@
 # Latest News
--  Trade between Kyrgyzstan and UK soars
--  Cegah Disinformasi di Tahun Pemilu, Meta akan Tandai Postingan AI
--  Sarawak Report editor Clare Rewcastle-Brown appeals against jail sentence
--  Bộ GTVT yêu cầu xử nghiêm việc tăng giá vé trái quy định
--  Azerbaijan's Aliyev appears headed to a landslide win in election called after retaking Karabakh
--  U toku obuka brodskih ronilaca u Rečnoj flotili
--  게레로 주니어, MLB 연봉 조정 신기록…올해 1990만 달러 수령
--  VIDEO: Captan momento exacto en que motociclista atropelló y mató a abuelito en Amozoc
--  Карлсон сообщил, что интервью с Путиным будет опубликовано 9 февраля в 02:00 мск
--  Padrino López advierte de una respuesta "contundente" si la ExxonMobil explora en el Esequibo
+-  Hasan el-Benna’dan Müslüman gençlere
+-  Pretty room, charming people … but what about the food?
+-  PSP corta folgas de agentes para garantir futebol e festejos de Carnaval
+-  Pedro Nuno Santos afirma que PS e PSD não podem ter a mesma lógica governativa
+-  Man guilty of 2022 assault spree accused of breaching probation
+-  "Se o jogo fosse adiado não ficava contente": Roger Schmidt sobre os protestos de agentes da PSP
+-  Stock Radar I Top long-term pick! This smallcap stock could almost double in 18-24 months: Gaurav Bissa
+-  Bancos multados em oito milhões de euros
+-  Coahuila, a un paso de distribuir nuevos libros de texto de la SEP federal
+-  ‘I love to race and can’t seem to stop’: Kelowna’s Elmore makes 3rd Olympic team
