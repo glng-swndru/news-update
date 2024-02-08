@@ -1,11 +1,11 @@
 # Latest News
--  PTI voters vow to beat odds in poll today
--  Димовски: СДСМ нема да освои повеќе од 25 пратеници на изборите
--  "ملتقى النص" يعرض مسيرة "أدبي جدة" وإنجازاته في الحركة الثقافية
--  Joel Edgerton, Felicity Jones to star in ‘Train Dreams’; Black Bear launching at EFM
--  Stolen Van Gogh returned in IKEA bag displayed again
--  DAEŞ operasyonunda kilise saldırısı ayrıntısı
--  Izbornici na Afričkom kupu nacija su kao na 'stratištu', stigla je za to nova potvrda
--  Bursa'da bir garip olay: İfade verdikten sonra kavgaya tutuştular
--  Blinken'dan ateşkes sözleri: Hamas'ın başarı şansı olmayan talepleri...
--  Dünya bu sözleri konuşuyor: Netanyahu'dan 'Saldırı emri verdik' açıklaması! Hamas duyurdu: 'Türkiye'den garantörlük talep edildi'
+-  《彰化》賴蕭訪彰化 初三、初一發小福袋
+-  出口領頭羊！ 台積電1月營收創同期新高
+-  PepsiCo Declares Quarterly Dividend
+-  經部出手！ 工具機全面禁止輸俄
+-  滋賀県2024年度当初予算案、教育委員会分は2・1パーセント増 退職手当、教職員数が増
+-  曾俊欣趕場夜戰 清奈開胡
+-  JELD-WEN Names Senior Leaders to Strengthen Customer Focus and Accelerate Business Performance
+-  The Best Time to Take Probiotics, According to Experts
+-  艾瑪史東玩膩情慾遊戲 改當書蟲
+-  Canadian cities embrace AI in the face of unprecedented gridlock
