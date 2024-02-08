@@ -1,11 +1,11 @@
 # Latest News
--  [PGA] 우즈, 16일 개막 제네시스 출전... 10개월만에 정규대회
--  El debut de Spotify más escuchado: Luck Ra proyecta el cuarteto en todo el mundo
--  정신병동 동료환자 살해한 40대 남성 징역 15년…검찰 항소
--  Sunway Medical Centre Velocity enables access to advanced medical treatments with the introduction of robotic surgery service
--  سربازان متأهل‌ چند ماه کسر خدمت می‌گیرند؟
--  Disney anuncia parceria com Epic Games e vai comprar US$ 1,5 bilhão em ações da empresa
--  [ITmedia エグゼクティブ] 「ジン」ブーム背景に参入障壁の低さと自由度の高さ サントリーが牽引、相次ぐ地方参入
--  [Pick] 차례상에 '농약 굴비'가 웬 말…딱 걸린 불량 업체 살펴보니
--  요양 인프라 기업 케어링, 시니어하우징 위한 실버타운 전문가 정기환 고문 영입
--  Polisi Bakal Periksa Dokter yang Pertama Cek Anak Tamara Sebelum Tewas
+-  Rio declares dengue emergency as Brazil gears up for carnival - CNN
+-  “한·미·일·유럽 무역에서 중국 비중 감소…위험회피 추구”-닛케이
+-  Gilbert PD announces two more arrests related to teen violence investigations
+-  Periodistas de TyC cometen grueso error con Bryan Reyna: “el chileno”, repitieron en el Belgrano vs Mitre por Copa Argentina
+-  ‘I want to rest in peace’: Ecuador decriminalizes euthanasia
+-  Hajj: Jigawa sets Feb. 9 deadline for payment
+-  Warner Music to cut 600 jobs, or 10% of staff
+-  В Японии произошло задымление на остановленной АЭС
+-  Dog dies during walk with owner after they were run over by forklift in Heights area, police say
+-  СМИ: Австрия ведет расследование в отношении экс-главы нацбанка Украины
