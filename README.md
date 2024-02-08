@@ -1,11 +1,11 @@
 # Latest News
--  Ispanağı bu şekilde sakın tüketmeyin! Böbrekleri çürütüyor, bağırsakları bozuyor: Bir lokması bile burnunuzdan gelebilir
--  Onyx Boox Tab X incelemesi - Büyük işler için E-Ink tablet mi?
--  Paul Merson reacts to Chelsea's win over Aston Villa after predicting London club had 'no chance'
--  La cathédrale Notre-Dame de l’Immaculée Conception d'Antibes sera bientôt accessible vraiment à tous
--  Velká vládní hra o jádro. Fialův kabinet musí rozhodnout, kdo bude stavět a co bude dál s ČEZ
--  Teri Baaton Mein Aisa Uljha Jiya box office collection day 1: Shahid Kapoor, Kriti Sanon starrer has huge potential to be first clean hit of 2024 [Exclusive]
--  NBA: Pelicansi iznenadili pobjedom protiv Cilppersa, Pistonsi bolji od Kingsa
--  НХЛ: Рейнджерс, Торонто і Міннесота перемагають
--  WATCH: Ukrainian artist documents a year of war with 365 paintings
--  6D LOTTO RESULT Today, Thursday, February 8, 2024
+-  L'association nationale Cultures du monde de Gannat participe à un événement Unesco sur l'éducation culturelle
+-  Revolut says Meta platforms are a 'hotbed' for scams
+-  Đám cưới 720 tỷ của phú nhị đại Trung Quốc: Tổ chức trong "Diệp Phủ" khổng lồ, của hồi môn một lời khó tả hết
+-  Flere store Xbox-influencere flykter fra plattformen.
+-  Inflácia v Holandsku sa zrýchlila v januári na 6-mesačné maximum
+-  Uşak'ta 10-16 milyon yaşında ağaç fosili bulundu
+-  Ngoài tắm, chị em dùng nước mùi già để làm một việc mỗi sáng ngày Tết sẽ có da sáng hồng, khí sắc tốt
+-  Tigers claw battling Bulls
+-  Konya'da feci kaza: 1'i bebek 3 kişi hayatını kaybetti
+-  中 “대만은 레드라인”…필리핀 병력 강화에 반발
