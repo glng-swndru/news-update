@@ -1,11 +1,11 @@
 # Latest News
--  水漏れは約40分 福島第一原発で5.5トン汚染水含む水漏洩 地面にしみ込み 周辺の240倍の放射線量
--  Por vaga em Paris, Brasil volta a campo nesta quinta-feira
--  Ankita Lokhande admits she wasn’t sensible when she spoke about getting a divorce from Vicky Jain in Bigg Boss 17 house
--  PBL-direktør forfattet uttalelse til ny barnehagelov: – Avgjort problematisk etisk
--  Imlie: Sai Ketan Rao aka Agastya to quit the show? Will his character die?
--  وفيات الخميس .. 8 / 2 / 2024
--  [포토] ‘설레는 마음 안고 고향으로’
--  AEW Reveals Big Business Event, Teasing Mercedes Moné Debut
--  Kovakuntoisten hommaa | Rajavartija Maarit Huipero saattaa kävellä työpäivänsä aikana jopa 12 kilometriä
--  Percy Jackson And The Olympians renewed for season 2 at Disney+
+-  银行危机“还魂”！耶伦承认一些银行压力很大
+-  Γιατί θεωρείται σημαντική η επέκταση του Μετρό προς το Ίλιον – Προχωρά ο διαγωνισμός ύψους 550 εκατ. ευρώ
+-  Nijerya'da 88,4 milyon kişi aşırı yoksulluk içinde yaşıyor
+-  Chỉ số S&P 500 trên thị trường Mỹ lần đầu tiên áp sát ngưỡng 5.000 điểm
+-  El tiempo en Torrox: previsión meteorológica para hoy, jueves 8 de febrero
+-  Polisi Tangkap Seorang Warga Majene Pengguna Sabu, Tiga Saset Barang Bukti Diamankan
+-  '후보 매수 공모 혐의' 홍남표 창원시장 무죄... 법원 "증거 발견 못해"
+-  El tiempo en Torremolinos: previsión meteorológica para hoy, jueves 8 de febrero
+-  Heboh Pasutri di Sleman Disekap Selama 2 Bulan di Kos, Sang Istri Juga Jadi Korban Asusila
+-  Promo Alfamart Hari Ini 8-15 Februari 2024 Deterjen 800gr Rp9.900, Mi Gaga, Margarin Beli 2 Gratis 1
