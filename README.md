@@ -1,11 +1,11 @@
 # Latest News
--  Задържан е крадец на 450 лв. от частен имот в Балчик
--  Horóscopo de hoy con Luna Nueva para atreverse a cambiar y lograr abundancia este miércoles 7 de febrero
--  "Черно море" не успя да бие 12-ия във Втора лига в контрола
--  اختصاصی| بازداشت چند جاسوس هدایت شده توسط یک مرکز در جمهوری آذربایجان در ایران
--  Nestao Jovan (22) iz Novog Sada! Izašao iz kuće bez telefona i novčanika, od tada mu se gubi svaki trag
--  Февруарски дейности в градината: Ето какво може да свършите
--  Less than half of people know their blood pressure
--  Domstol fastslår: Salwan Momika ska utvisas
--  Microsoft BitLocker encryption cracked in just 43 seconds with a $4 Raspberry Pi Pico
--  Der beste Freund von „Stan“ Libuda: Karl-Heinz Bechmann feiert 80. Geburtstag
+-  🚨 Nigeria - Afrique du Sud en direct : la première demi-finale de la CAN en Live !
+-  Tarot Card Hororscope: टैरो कार्ड रीडर से जानें मेष, तुला, कुंभ राशि सहित सभी 12 राशियों का 08 फरवरी का राशिफल
+-  Time part of the cure as Canadian officials work to fix health care crisis
+-  Interrumpen cargamento de droga que iba rumbo a Europa
+-  Hamas'tan '3 aşamalı öneri' açıklaması
+-  Teuku Ryan Pastikan sang Ibu Tidak Ikut Campur Rumah Tangganya dengan Ria Ricis
+-  Dank - Goldene Ehrennadel für Margarete Köstler in Kirchstetten
+-  Zelena i digitalna transformacija ključne za efikasno poslovanje
+-  ‘A lot of work’ remains as Gaza ceasefire negotiations continue
+-  Schweinezucht Hubmann - Gerersdorf: Behörde erscheint nicht zu Termin bei Freilandschweinen
