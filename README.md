@@ -1,11 +1,11 @@
 # Latest News
--  إكسبو يستضيف المعرض الزراعي الدولي 21 فبراير
--  「キッチンカー3台で肉うどんや炊き込みご飯を」杉良太郎（79）が“被災者目線”の支援を徹底する理由《能登から帰京、初告白》
--  Dismal green B.C. ski season a sign of things to come: climate researcher
--  Spletna križanka in sudoku Slovenskih novic (8. februar)
--  عموتة.. صمت دهراً لينطق إنجازاً
--  Dismal green B.C. ski season a sign of things to come: climate researcher
--  Bombay High Court Grants Parole To 1993 Blast Convict Rubina Memon For Son's Wedding Under Police Escort
--  Mulino: Martinelli tomó esta decisión para proteger sus derechos e integridad
--  عمومية «الخليج للمخازن» توافق على توزيع أرباح نقدية 11%
--  Dismal green B.C. ski season a sign of things to come: climate researcher
+-  El Barça, a atar el liderato; Calafell y Lleida se la juegan en la Liga de Campeones
+-  اليوم.. انطلاق النسخة الـ 13 من «قطر الدولي للأغذية»
+-  Apple defeats lawsuit claiming it overpaid CEO Tim Cook, others
+-  Nick Saban set to join ESPN as a ‘College GameDay’ analyst
+-  Новые коды появятся на автомобильных номерах в Подмосковье
+-  Vigdís ráðin til Alcoa
+-  أنشطة متنوعة ببطولة الشقب الدولية للفروسية
+-  World stunned as tennis’ big secret exposed
+-  Manta: Lo que se sabe de la mujer asesinada en su cevichería
+-  Israel prepara nova ofensiva em Gaza enquanto negociações por trégua continuam
