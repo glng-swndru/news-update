@@ -1,11 +1,11 @@
 # Latest News
--  Рубль сохраняет позиции к доллару и юаню на старте торгов
--  Haiti'de tansiyon yükseliyor: 6 kişi öldü
--  ASV Senāts noraida likumprojektu, kas ietver palīdzību Ukrainai
--  बावर्ची' रीमेक की स्क्रिप्ट हुई पूरी, कौन लेगा राजेश खन्ना-जया बच्चन की जगह?
--  “테슬라 1월 한국서 단 1대 판매…美선 인력 감원 준비”
--  Opernstars Garanca und Beczala eröffnen Wiener Opernball
--  Latvijas Televīzijā pirmizrādīs dokumentālo filmu par trimdas dziedātāju Larisu Mondrusu
--  Датчики проконтролируют скорость на 14 участках дорог в Минске
--  Gustavus men's basketball team thumps Cobbers
--  協和キリン---大幅反発、今期ガイダンス上振れや自社株買いを評価材料視
+-  High school graduation requirements bill heads to Lujan Grisham's desk
+-  Española's March 5 election features two contested council races
+-  Anies Yakin Suara Masyarakat di Garut Tak Bisa Dibeli dengan Uang
+-  Nhà vườn Sa Đéc nhổ bỏ hoa trước ngày 30 Tết
+-  Потужний удар Росії по Україні: в ISW вказали на особливості атаки
+-  শঙ্কার মধ্যে পাকিস্তানে চলছে ভোটগ্রহণ
+-  Nemzetek Ligája: a botrány miatt módosult a helyszín
+-  Housing bill backed by governor barely survives committee hearing
+-  ISW: Какво се крие зад руските удари в Украйна от 7 февруари
+-  Heinrich account mocked after tweeting 'elk were extinct in New Mexico' with picture of a sheep
