@@ -1,11 +1,11 @@
 # Latest News
--  Μη κρατικά ΑΕΙ: Μέσω Πανελληνίων η εγγραφή, σε υποτροφίες το 5% των διδάκτρων - Τι προβλέπει το νομοσχέδιο
--  VUČIĆ SE OGLASIO NAKON SASTANKA SA PISTORIJUSOM Imamo različita viđenja po mnogim pitanjima, saglasni smo da su mir i stabilnost od najvećeg značaja
--  SLUŽBENO Mijo Caktaš ima novi klub
--  Bird knocks out power to Langley Bypass, parts of downtown
--  "Mənim səsvermə hüququm olsaydı, səsimi İlham Əliyevə verərdim"
--  Tüm gözler Cumhurbaşkanı Erdoğan-Putin zirvesindeydi! Putin'in Türkiye ziyareti ertelendi
--  FOTOD | Merle Palmiste tutvustab oma uhket kübarakogu: „Oleks mul rohkem raha ja ruumi, kus hoiustada, oleks mul neid kindlasti enamgi!“
--  Захарова: РФ и Армения остаются союзниками, рассчитываем, что Ереван учтет это
--  Lufthansa-Bodenpersonal: Ver.di droht mit längeren Streiks an Flughäfen
--  Brynjólfur hættir í stjórn Arion banka
+-  Karel III. kvůli nemoci ruší osobní setkání se Sunakem. Budou si volat
+-  Sreli se glumci serije "Prijatelji": Dženifer Aniston ne prepoznaje dugogodišnjeg kolegu VIDEO
+-  Posebna veza Željka Bebeka i Dubrovnika: ''Pokazuje se da smo bili jedno za drugo, o razlici u godinama nikad nismo razmišljali''
+-  FOTO Ogromne gužve u Zagrebu: Ovako je izgledao poslijepodnevni krkljanac na Jadranskom mostu
+-  اکرم عفیف بهترین بازیکن دیدار ایران - قطر شد
+-  Citypress | Kieswetter’s contract extension at Sars still in limbo, says presidency
+-  Police tape, RCMP close rail trail, RCMP say 'stay out of the area'
+-  Emlakçılar kanuni düzenleme bekliyor
+-  Winline Зимний Кубок РПЛ. «Спартак» играет с «Ростовом». Угальде, Промес и Роналдо в старте
+-  Stort äventyr väntar Ö-viksungdomarna
