@@ -1,11 +1,11 @@
 # Latest News
--  Mumbai Police Launches Cyber Cells Across Zones, Honours Commandos For Saving ₹25 Crore
--  Andrzej Makowski
--  Brad Pitt Did The Table Read For Legends Of The Fall And Nearly Quit. It Would Become A Major Win For His Career
--  OpenAI developing software that operates devices, automates tasks - The Information
--  NEXT Weather: 6 p.m. report from Feb. 7, 2024
--  Receita investigará possíveis fraudes em ajuda a empresas de eventos
--  На Сахалине объявили предупреждение об опасной ледовой обстановке на 8 февраля
--  S&P hints at upgrading Pak credit rating after elections
--  Pregnant heart patient suffers stroke, KEM docs use stent to save her, baby
--  Former Vancouver Police Board director speaks about resignation
+-  [PGA] 우즈, 16일 개막 제네시스 출전... 10개월만에 정규대회
+-  El debut de Spotify más escuchado: Luck Ra proyecta el cuarteto en todo el mundo
+-  정신병동 동료환자 살해한 40대 남성 징역 15년…검찰 항소
+-  Sunway Medical Centre Velocity enables access to advanced medical treatments with the introduction of robotic surgery service
+-  سربازان متأهل‌ چند ماه کسر خدمت می‌گیرند؟
+-  Disney anuncia parceria com Epic Games e vai comprar US$ 1,5 bilhão em ações da empresa
+-  [ITmedia エグゼクティブ] 「ジン」ブーム背景に参入障壁の低さと自由度の高さ サントリーが牽引、相次ぐ地方参入
+-  [Pick] 차례상에 '농약 굴비'가 웬 말…딱 걸린 불량 업체 살펴보니
+-  요양 인프라 기업 케어링, 시니어하우징 위한 실버타운 전문가 정기환 고문 영입
+-  Polisi Bakal Periksa Dokter yang Pertama Cek Anak Tamara Sebelum Tewas
