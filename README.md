@@ -1,11 +1,11 @@
 # Latest News
--  Féminisme et grosse soirée au festival du court métrage de Clermont ce jeudi
--  MS Dhoni Promotes Childhood Friend’s Sports Shop, Gears Up For 2024 IPL
--  Adarabioyo Milan, i rossoneri accelerano: un ostacolo da superare, ecco quale
--  Budget, rue des Anciennes-Boucheries, stérilisation des chats... À l'ordre du jour du conseil municipal de Montluçon
--  Virus auf Zahnbürsten entdeckt: 3 Millionen Geräte betroffen
--  Mental health waiting times ‘unacceptable’ as 10,000 NI children seek support in 2023
--  Une école de karting ouvre ses portes sur le circuit d'Angerville
--  Вижте къде в София няма да има вода утре
--  Trčilo troje vozil, več oseb odpeljali v UKC Ljubljana
--  Chelsea beat Aston Villa in FA Cup replay to ease pressure on Pochettino
+-  Kaza yapan alkollü sürücü aracını bırakıp olay yerinden ayrıldı
+-  Борисов: Ако не искат Габриел да е и премиер, и външен министър, ще излъчим нов кандидат за МВнР
+-  Gönen'de ekmek fırınında yangın çıktı
+-  4∼5월 美항모 절반, 한반도로 모인다…걸프전 이후 최대 집결
+-  Zusagen und Absagen für Kita-Plätze in Castrop-Rauxel sind raus: Das müssen Eltern jetzt wissen
+-  جلالةُ السُّلطان المعظم يتوجّه إلى المملكة المتحدة
+-  Khách 'quây' kín siêu thị, sắm sửa đón Tết Giáp Thìn 2024
+-  Mattel увеличила квартальную чистую прибыль более чем в девять раз
+-  Stow All Those Extra Cables and Grab This 3-in-1 Magnetic Wireless Charger
+-  Wenn „Remigration“ Wirklichkeit würde: Fast jeder dritte Hertener wäre betroffen
