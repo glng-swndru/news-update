@@ -1,11 +1,11 @@
 # Latest News
--  胡志明市滨城-仙泉地铁一号线的17组列车将在春节期间试运
--  NYC giving pre-paid debit cards to asylum seeker families for food, baby supplies
--  Nejlepší aplikace pro tento týden: Deník duševního zdraví, rodičovský zámek, jestřábí oko a příprava kávy
--  MASAK'tan Kobra Murat'a
--  Jets de 80 mètres de haut, coulées de lave... Les images saisissantes de l'éruption volcanique en Islande
--  Újabb városok és fővárosi kerületek lépték át az egymilliós négyzetméterárakat
--  Kafa kafaya çarpıştılar. 3 kişi öldü 3 kişi yaralandı
--  Nie żyje dziadek z TikToka, który podbił serca internautów. 95-letni Henryk nagrywał filmiki z wnuczką: "Jeszcze wczoraj rozmawialiśmy"
--  Může být jednatel firmy zároveň i zaměstnancem s. r. o.?
--  Ankstinamas amžius: pasitikrinti dėl krūties vėžio galės moterys nuo 45-erių
+-  ‘Canlı yayında sigara’ olayı açıklığa kavuştu
+-  [ITmedia News] 家電の運転データから症状を診断する機能、日立がスマホアプリに追加 修理依頼も
+-  2024 rokiem japońskich RPG-ów. Remake Persony 3 i nowa Yakuza pokazały moc
+-  Melisa Döngel Galatasaraylı Futbolcuyla Aşk Mı Yaşıyor?
+-  Vi blir galaksens beste skadedyrbekjempere i dagens GR Live.
+-  Президент Азербайджана принял делегацию турецкого парламента
+-  "J'ai décidé de..." Le prince William ose une blague concernant les soucis Kate Middleton et Charles III et commet un impair
+-  Coty увеличила квартальную выручку лучше прогноза
+-  Vor HSV-Spiel: Hannover verkauft einen Leistungsträger in die Türkei
+-  Президент Ильхам Алиев принял делегацию членов Великого национального собрания Турции
