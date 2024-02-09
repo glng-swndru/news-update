@@ -1,11 +1,11 @@
 # Latest News
--  Wie sich Akzeptanz für Erneuerbare schaffen lässt
--  Россиян отговорили от заработков на аренде
--  Light up your life with Glocusent LED Neck Reading Light, 27% Off
--  India to replace its troops in Maldives with technical personnel: MEA
--  Jaka przyszłość czeka prezydenta UEFA? Aleksander Ceferin podjął ważną decyzję
--  „Neo Group“ gaminsis elektrą iš vandens garų, investuoja 3 mln. eurų
--  Shoah, Pisani (Tor Vergata): "Testimonianze dirette incisive per i giovani"
--  "صلالة الخيري" يقدم أكثر من 280 ألف ريال من المساعدات
--  Rishi Sunak should apologise for transgender jibe, Gordon Brown tells Sky News
--  Policija istražuje bivšu upravu Ekonomskog fakulteta u Rijeci, sumnja se u kriminal težak stotine tisuća eura
+-  Mlade ne treba podcjenjivati: Otkrivamo kako se najviše informiraju
+-  Illegálisan tartott ragadozót mentettek volna a tűzoltók a Citromfa utcában, ha az állat is így akarta volna
+-  Talianski poľnohospodári sa sťažujú na mimoriadne miernu zimu
+-  BESPOVRATNO 150 MILIONA ZA RURALNI TURIZAM: Mogu da se prijave seoska domaćinstva, salaši i etno-kuće
+-  Ile wyniesie waloryzacja emerytur 2024. Sprawdzamy, o ile wzrosną emerytury po pierwszej i drugiej podwyżce w tym roku
+-  Þarf á hjartaígræðslu að halda
+-  Marmaray'da bir genç intihar etti
+-  Izglasana promjena pravila, Čeferin: Neću se kandidovati za...
+-  사퇴 의사 묻는 질문에 웃으며 “나이스 퀘스천”, ‘원격 근무’ 고집까지···성난 여론 부채질하는 클린스만 감독
+-  باسل الرواس: سلطنة عُمان تسعى لتنظيم بطولات عالمية لمضاعفة الإثارة الرياضية
