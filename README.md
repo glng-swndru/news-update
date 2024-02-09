@@ -1,11 +1,11 @@
 # Latest News
--  Spielplan zwingt Basketballteams zu kniffliger Entscheidung
--  Es läuft für Trump
--  Spekulationen über Rudolf Fröhlich: Warum stand Höffner ohne den wichtigen Unterstützer da?
--  Описан возможный эффект интервью Путина Карлсону
--  Điểm danh loạt trải nghiệm vui quên lối về không thể bỏ lỡ khi ăn Tết tại quận Kinh Đô
--  प्रदेश में निकायों द्वारा 98 प्रतिशत कचरे का किया जा रहा है प्रसंस्करण,ठोस अपशिष्ट प्रबंधन की बेहतर व्यवस्था
--  Acclaimed Japanese conductor Seiji Ozawa who led BSO dies at 88
--  Kadın badmintoncular Avrupa'da ilk kez madalya kazanmak istiyor
--  İrakli Kobaxidze İlham Əliyevi təbrik etdi
--  На Черкащині виявлено несанкціонований відбір газу
+-  Leonel firma propuesta para solucionar drenaje en la capital
+-  BBC's John Simpson delivers brutal slap down of Tucker Carlson's Putin interview
+-  Messi, Beckhams und Co.: Super Bowl 2024: Das sind die besten (und teuersten) Werbespots des Jahres
+-  Estradas e aeroportos estão preparados para movimento no carnaval
+-  Dünya bu oyundan danışır: Qadınlar, qadınlar...
+-  عسكري إسرائيلي: الجيش نهب وأحرق منازل بغزة وأعدم أسرى
+-  Fergus Ewing 'delighted' Fiona Hyslop is appointed transport secretary overseeing the A9
+-  Brankář láká na fotbal, lehátko do kina. Vizuál Prahy 10 stojí na římské desítce
+-  নওয়াজ ও বিলাওয়ালের দলের সঙ্গে জোট সরকার গড়বে না পিটিআই
+-  Szijjártó Péter egy pedofilbotrányba keveredett bíborossal nevetgélt, miközben itthon Novák Katalin ügyétől hangos minden
