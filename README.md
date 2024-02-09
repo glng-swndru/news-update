@@ -1,11 +1,11 @@
 # Latest News
--  Portugal defronta Croácia, Polónia e Escócia Grupo A1 da Liga das Nações 2024/25
--  İsrail UNRWA'yı vergiye tabi tutarak Filistinlilere yeni bir darbeye hazırlanıyor
--  Verdener Kläranlage: Investitionen und steigende Gebühren
--  Ontslagen uit het ziekenhuis nadat laatste boot al is vertrokken, Texelse Mariëlle eist oplossing
--  Entenda como vai funcionar cadastro reserva do Concurso Unificado
--  Сенат США проголосував за пакет допомоги Україні
--  Hrvatska i BiH sa elitom – kog su izvukle eks-Ju reprezentacije?
--  Texelaars 's nachts op straat gezet na ontslag uit ziekenhuis, terwijl laatste boot al weg is
--  Produção industrial opera acima do nível pré-pandemia em 5 de 15 locais, mostra IBGE
--  Produção industrial opera acima do nível pré-pandemia em 5 de 15 locais, mostra IBGE
+-  Минсельхозпрод изменил экспортные цены на некоторую молочную продукцию
+-  Murat Kurum: ''Maalesef İstanbul’da son 5 yılda iyi olan hiçbir şey yok''
+-  PM Took A Dig At Congress, But Praised Manmohan Singh
+-  Game-camera footage leads police to stolen travel trailer in Nanaimo
+-  Brasil lança ingressos por R$ 20 para jogo contra o Guarany
+-  Петър Витанов направи неофициален дебют за новия си отбор Беверен - Труд
+-  Happy Chocolate Day 2024: Delicious Chocolate Day WhatsApp video status to sweeten their day
+-  Григор Димитров се класира на 1/4-финал в Марсилия
+-  Hoće li dva kandidata imati podršku da uđu u finiš trke za šefa...
+-  Snimak koji dokazuje brutalne laži opozicije! Šta piše u Rezoluciji EP, a šta je realnost...
