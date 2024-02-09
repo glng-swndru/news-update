@@ -1,11 +1,11 @@
 # Latest News
--  Rusiya Ukraynadan sonra bu iki ölkəyə hücum edəcək?
--  Türkiye'deki çiftçiler eylemde!
--  Tekirdağ'da otomobil duvara çarptı: 3 yaralı
--  Dekan FER-a: Imamo ljudi i novac za tehnološku preobrazbu, koče nas mentalne prepreke
--  Ini Rekayasa Lalulintas Polda Metro Jaya di Sekitar JIS
--  Emtéčko od března zdraží a přidá více dat, včetně neomezených. Některé tarify získají přístup k 5G síti
--  Krijumčari kod Nove Gradiške izazvali prometnu nesreću pa pobjegli
--  Alla hjärtans dag i skilsmässornas tid
--  WATCH: Crowe joins campaign to ‘unleash’ rugby league in the US
--  Telangana: Upset over not getting campus placement, engineering student kills self
+-  Доклад на САЩ подлага на съмнение паметта на Байдън
+-  Jetzt bewerben: Mitarbeiter*in Service / Technischer Support (m/w/d)
+-  Kripto para üzerinden ‘fidye’ ödemeleri katlandı
+-  Hamaney'in Facebook ve Instagram hesapları silindi
+-  Съюз на съдиите: Изключително важно е да се разкрие дали Нотариуса e имал връзки с магистрати
+-  Meteoroloji'den uyarı: Suriye'den toz taşınımı geliyor
+-  Pasaulio čempionato MVP iškeistas – žais „Nets“
+-  Google rebrands Bard to Gemini, introduces paid Advanced tier and a free mobile app
+-  Senzacija godine u Francuskoj: Trećeligaš iz Kupa izbacio slavni klub
+-  Check Full list of winners and losers in Pakistan Election Result 2024
