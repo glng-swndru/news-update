@@ -1,11 +1,11 @@
 # Latest News
--  Доклад на САЩ подлага на съмнение паметта на Байдън
--  Jetzt bewerben: Mitarbeiter*in Service / Technischer Support (m/w/d)
--  Kripto para üzerinden ‘fidye’ ödemeleri katlandı
--  Hamaney'in Facebook ve Instagram hesapları silindi
--  Съюз на съдиите: Изключително важно е да се разкрие дали Нотариуса e имал връзки с магистрати
--  Meteoroloji'den uyarı: Suriye'den toz taşınımı geliyor
--  Pasaulio čempionato MVP iškeistas – žais „Nets“
--  Google rebrands Bard to Gemini, introduces paid Advanced tier and a free mobile app
--  Senzacija godine u Francuskoj: Trećeligaš iz Kupa izbacio slavni klub
--  Check Full list of winners and losers in Pakistan Election Result 2024
+-  Cardenal destruye polémico libro publicado en México
+-  Briga o zdravlju naših očiju prepustili smo Andi Pandi, dala nam je i WhatsApp kontakt na koji joj se možete javiti
+-  Wakker. Verder kletsen bij Plasterk zonder Omtzigt - Nieuwsuur: Het heeft geen zin meer
+-  Nàng WAG Yến Xuân: Tìm niềm vui trong “nỗi sợ” ngày Tết, tiết lộ tips để Tết ăn thả ga không lo về dáng
+-  Zdravotní vyšetření na dálku se rozšiřuje, telemedicína je i v obci na Opavsku
+-  Obrady Sejmu na żywo. Piątek 9 lutego 2024 roku [TRANSMISJA ONLINE]
+-  Migración, fentanilo y la explosiva relación con Estados Unidos
+-  Galatasaray sahasında Başakşehir'i ağırlıyor: Muhtemel 11'ler
+-  Биткоин стал дороже $46 000 — эксперты прогнозируют рост выше $50 000 после халвинга
+-  Terra amara, le anticipazioni dal 12 al 17 febbraio 2024
