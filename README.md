@@ -1,11 +1,11 @@
 # Latest News
--  Regulador en EE. UU. declara ilegales llamadas automáticas con voces generadas por IA
--  Simpatizantes de Gustavo Petro marchan para exigir nuevo fiscal en Colombia
--  KURTI JE BEŽAO OD OVOG PITANJA KAO ĐAVO OD KRSTA Vučić zagrmeo: Srbija će se uvek boriti za svoj narod na Kosovu (VIDEO)
--  Bipartisan bill on animal testing transparency is downgraded to study after industry pushback
--  Readying for first Super Bowl, Reno native Brandon Aiyuk has love for Las Vegas
--  Gareth Southgate sends Euro 2024 warning to Marcus Rashford after Belfast booze bender with next squad picked in weeks
--  Steve Clarke urges Ronaldo and co to stay on for Scotland swansong as boss roars 'I want them all'
--  US Army spent billions on a new helicopter that now will never fly
--  Poznata glumica optužila slavnog redatelja za silovanje: 'Imala sam samo 14 godina'
--  McGinty plotting cup upset against ex-Man Utd team-mate in Rangers tie
+-  Nicaragua busca sumarse a la demanda ante la ONU contra Israel por Gaza
+-  Opernball in Wien mit Hymnen gestartet
+-  Opernball in Wien mit Hymnen gestartet
+-  Около 400 человек эвакуированы из горящего дома на севере Москвы
+-  China's PV industry contributes to global green development
+-  Prezantohen medaljet olimpike, mbartin simbolika edhe pjesë të Francës
+-  Taksiciler arasındaki müşteri kavgasında kan aktı
+-  First Alert Weather: Thursday evening update - 2/8/24
+-  Fenómeno de El Niño sigue activo y las lluvias no se extenderán por mucho tiempo: Ideam
+-  3 Stocks Set to Soar as Construction Spending Continues to Rise
