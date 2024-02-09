@@ -1,11 +1,11 @@
 # Latest News
--  «Бостон» выменял центрового «Мемфиса» Тиллмана на Стивенса и два пика драфта
--  Knuckles, serie spin-off de Sonic con Idris Elba, presenta su espectacular tráiler oficial
--  JetBlue planes hit each other on ground at Logan Airport
--  Knuckles, serie spin-off de Sonic con Idris Elba, presenta su espectacular tráiler oficial
--  ABD'de işsizlik maaşı başvuruları beklenenden fazla düştü
--  لماذا ارتفع معدل التضخم الشهري في مصر خلال يناير الماضي؟
--  V Vrbi odmeval Prešernov verz Žive naj vsi narodi
--  "Допомоги ФРН буде недостатньо": Шольц перед візитом у США виступив із жорсткою заявою
--  "Srbi su generalno divan narod" Srpska snajka otkrila šta misli o fejsbuk stranici na kojoj se vređaju ljudi iz Afrike koji žive u našoj zemlji!
--  To koniec. Magda Linette nie zagra o półfinał. Musiała zrezygnować
+-  Gemeinsame Aktivitäten - Karlstettner Jugend trifft sich im Pfarrheim
+-  Dünya genelinde tütün tüketimi azalıyor
+-  Radio tuning to Vista as Bell broadcasts sell-off of 21 B.C. stations
+-  Leao rivela: «Quando arrivai al Milan Maldini ed Ibrahimovic mi aiutarono, in studio metto ciò che non do in campo»
+-  International companies are recruiting South Africans for these jobs
+-  Bruce Willis: Ehefrau plant Buch über Demenzerkrankung ihres Mannes
+-  V najtežjih časih nas lahko rešijo zgolj in samo odnosi
+-  Gesundheitswesen: Streik in NRW-Praxen: Abschluss für Arzthelferinnen
+-  Tougher penalties could be on the way Trudeau hints at car theft summit
+-  हल्द्वानी में अवैध मस्जिद और मदरसे पर चला बुलडोजर, लोगों ने पुलिस पर किया पथराव
