@@ -1,11 +1,11 @@
 # Latest News
--  ผู้แทนการค้าไทย เผย รัฐบาลดึงเงินลงทุนจากต่างชาติปี 66 เพิ่ม 72% จีนครองอันดับหนึ่ง
--  Hallenkosten in Sindelfingen: Vereinen wird einmal pro Jahr die Miete erlassen
--  Американский боец получил новый контракт с UFC после сенсационной победы над казахстанцем
--  ANO naznačí směr, jímž míří. Říká, že nejvíc nových voličů má z modrých vod
--  Ботев Пловдив праща вратар в Хебър
--  "Мы держим руку на пульсе". МВД о готовности реагировать на угрозы в период электоральной кампании
--  Elephant population declines to an alarming level in Sri Lanka: Know reasons, facts, and other details about the tuskers
--  Jacobelli consiglia la Juventus: "Allegri l'uomo giusto per proseguire con il lavoro"
--  Ísland um helgina - Lengjubikarinn fer á fulla ferð
--  382 yabancı uyruklu kişiye taşınmaz mal izni verildi
+-  "La mairie me réclame 25.000 euros": un retraité lance une pétition très suivie dans cette commune des Alpes-Maritimes
+-  Objavljeno kolike će biti cijene zakupa zemljišta u kampovima te oko hotela i turističkih naselja
+-  UKRAJINSKI IZVORI:”General Sirski šalje rezervne snage ka Avdejevki, uz obećanje Zelenskom da će zadržati grad” (VIDEO)
+-  Az amerikai Legfelsőbb Bíróság megkezdte a Donald Trump választásból való kizárásával kapcsolatos ügy tárgyalását
+-  La Diputación impulsará la vieira y la zamburiña de la ría más allá de la provincia
+-  すし18貫999円（税別）！土日祝限定の“感謝価格”がアツイ
+-  Deux nouveaux quartiers classés "prioritaires" à Toulon, on décrypte le vrai du faux
+-  Lieferkettengesetz - FDP verteidigt Ablehnung der EU-Richtlinie
+-  Instagram của hội con nhà giàu Việt những ngày cận Tết: Áo dài, áo bà ba thi nhau phủ sóng
+-  #komentar Izgubljena sezona Cedevite Olimpije
