@@ -1,11 +1,11 @@
 # Latest News
--  RTP prevê prejuízo de 1,4 milhões de euros em 2023
--  Can China save its stock market from India?
--  Anheuser-Busch stock climbs after Trump endorses Bud Light. ‘Not a Woke company.’
--  Presidente do Barcelona e Deco em desacordo sobre perfil de Sérgio Conceição
--  Disney Parks' Most Impressive Modern Theme Park Tech
--  Bantuan: JKM tingkat sistem penyampaian
--  La Fête du printemps 2024 vibre au parc d’attractions de Suôi Tiên
--  Aluno de 12 anos agride professora com bofetada e pontapé em Pampilhosa da Serra
--  Confira os números da Mega-Sena que pode pagar R$ 37 milhões
--  Longest living dog breeds to have as pets
+-  Elon Musk slams ‘insane’ volumes of US aid to Ukraine
+-  ¡Crossover épico! Cristiano, impactado con la aparición de Undertaker en Riyadh Season Cup | VIDEO
+-  高さ60メートルもの電波塔が盗まれる事件が発生、地元ラジオ局が放送停止を余儀なくされる
+-  Một ngân hàng Mỹ ‘run rẩy’ trong khủng hoảng niềm tin: Cổ phiếu mất 50% giá trị, cổ đông đệ đơn cáo buộc lừa đảo, cổ tức bị cắt 70%
+-  Ông Zelensky chính thức sa thải Tổng tư lệnh Quân đội: Binh sĩ Ukraine phẫn nộ
+-  Más de 600 atenciones brindó la UNIF en el mes de enero, en Saltillo
+-  米で高さ60メートルの電波塔が盗まれる 地元ラジオ局が放送停止に
+-  Key warning ahead of Taylor Swift concerts
+-  Key warning ahead of Taylor Swift concerts
+-  El tiempo en La Almunia de Doña Godina: previsión meteorológica para hoy, viernes 9 de febrero
