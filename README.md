@@ -1,11 +1,11 @@
 # Latest News
--  Crianças de 10 a 11 anos serão as primeiras a vacinar contra dengue
--  Winter wallops southern Manitoba
--  Peru: BC corta taxa básica de juros em 25 pontos-base, a 6,25% ao ano
--  Zelensky Resmi Pecat Jenderal Tertinggi Ukraina Valery Zaluzhny
--  Putin nega planos de atacar Polônia e pede que EUA convençam Ucrânia a ceder território
--  Путин: Россия и Украина рано или поздно договорятся
--  ‘Cuộc sống thật hạnh phúc’: Lối sống kết hôn không sinh con, quen nhau qua Tinder ngày càng thịnh hành vì thu nhập tăng vượt trội so với xã hội
--  Thị trường ngày 09/02: Giá dầu tăng 3%, vàng giảm, kẽm thấp nhất trong 5 tháng
--  Cúng Giao thừa Tết 2024: "Tất tần tật" những điều cần biết để cầu được ước thấy, năm mới bình an
--  Peru: BC corta taxa básica de juros em 25 pontos-base, a 6,25% ao ano
+-  RTP prevê prejuízo de 1,4 milhões de euros em 2023
+-  Can China save its stock market from India?
+-  Anheuser-Busch stock climbs after Trump endorses Bud Light. ‘Not a Woke company.’
+-  Presidente do Barcelona e Deco em desacordo sobre perfil de Sérgio Conceição
+-  Disney Parks' Most Impressive Modern Theme Park Tech
+-  Bantuan: JKM tingkat sistem penyampaian
+-  La Fête du printemps 2024 vibre au parc d’attractions de Suôi Tiên
+-  Aluno de 12 anos agride professora com bofetada e pontapé em Pampilhosa da Serra
+-  Confira os números da Mega-Sena que pode pagar R$ 37 milhões
+-  Longest living dog breeds to have as pets
