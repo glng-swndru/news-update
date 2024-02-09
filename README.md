@@ -1,11 +1,11 @@
 # Latest News
--  Путин призвал учёных работать на опережение, а не догонять других
--  Слуцкий не пришел на пресс-конференцию после 0:6 с «Зенитом», нарушив регламент
--  Marcelo Claure sobre Guabirá - Bolívar: “La pelea fue vergonzosa”
--  Naujasis „Kibirkšties“ treneris – Egidijus Ženevičius
--  Várkonyi Andrea több milliós szettben érkezett Semjén kedvenc rendezvényére, a vadászati kiállításra
--  Zalužného v čele ozbrojených sil vystřídal Syrskyj, oznámil Zelenskyj
--  Giganti protestují proti změnám u Applu. Nelíbí se to ani EU, ve vzduchu visí právní bitva
--  Zalužného v čele ozbrojených sil vystřídal Syrskyj, oznámil Zelenskyj
--  Ukraine-Liveblog: General Saluschnyj abgesetzt – neuer Militärchef für ukrainische Armee
--  Economic GENIUS AOC Tries Making Her Case That Illegals Aren't 'Takers' ANNND We Can't Even Make This UP
+-  Nehire düşen araçtaki şahsın cesedi 5 buçuk saatlik çalışmayla çıkarıldı
+-  Does Nick Cannon See a Future With Mariah Carey? He Says...
+-  Israel intensifica bombardeios em Rafah entre negociações para trégua
+-  Гордон Хэйворд станет игроком «Оклахомы», «Шарлотт» получит Тре Мэнна, Дависа Бертанса, Василие Мицича и драфт-компенсацию
+-  Plan d’actions contre le retrait de la licence de Walf-Tv: La société civile se joint à la CAP…
+-  Nehire düşen araçtaki şahsın cesedi 5 buçuk saatlik çalışmayla çıkarıldı
+-  Pro D2 : trois choses à retenir dans la composition du CA Brive retenue pour affronter Nevers ce vendredi
+-  La UAL colabora en un proyecto europeo sobre agricultura de carbono
+-  Обмислят въвеждането на син картон във футбола
+-  Chuyện quá khứ bầu Hiển vượt ‘kiếp nạn’ nợ thuế bị gọi là “Chúa Chổm”: Không nhận giúp đỡ vì không muốn sai thêm, khuyên nhân viên nghỉ việc để đi tìm kiếm cơ hội tốt hơn
