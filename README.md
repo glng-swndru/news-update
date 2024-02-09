@@ -1,11 +1,11 @@
 # Latest News
--  BGH verhandelt zu Eigentümer-Versammlungen während Corona
--  Koniec týždňa bude pod oblakom, teploty dosiahnu 12 stupňov
--  Nazywają je domkiem Baby Jagi. Najmniejsze beskidzkie schronisko z dala od tłumów
--  Psikolojik sorunları olan genç annesi ile kardeşini rehin aldı
--  Skispringen live im TV und Stream: Hier sehen Sie den Weltcup am Lake Placid
--  Обнаружены отпечатки ног человека возрастом 90 000 лет - УЧЕНЫЕ
--  Arızalanan metrobüsü kontrol eden şoför, başka metrobüsün çarpmasıyla öldü
--  2.50 promil alkollü sürücünün kullandığı otomobil direğe çarptı: 3 yaralı
--  Finance secretary does not expect rate hike as inflation easing
--  Fabrika işçilerinin taşındığı servis minibüsü devrildi: 9 yaralı
+-  Hatalmas tűz volt Moszkvában az éjjel
+-  Junior Bocat’ta transferi için flaş gelişme!
+-  Jonathan Majors in deep waters, faces more abuse allegations
+-  Скот Ритър за Путин: Познава Америка по-добре от нея самата - Труд
+-  Why Benji is waxing lyrical about ‘outstanding’ teenage Tigers: Hoops
+-  Prof. Dr. Naci Görür tekrar tekrar uyarıyor! İstanbul’un kırılması an meselesi!
+-  Pakistan'da seçim günü 51 terör saldırısı! 12 kişi öldü
+-  Seniler Senior? Bidens Wahlkampf-Desaster und ein Wutanfall
+-  Lauri Markkanen oli paras pistemies Utah Jazzin tappiossa – seura hurjasteli pelaaja­markkinoilla ottelun alla
+-  Galaxy-Nutzer müssen reagieren: Über 60 Sicherheitslücken in Samsung-Handys entdeckt
