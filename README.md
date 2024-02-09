@@ -1,11 +1,11 @@
 # Latest News
--  Aus für X920 schon in diesem Jahr
--  Mes bons plans: Les vidéos du moment qui animent la Toile
--  Han stjal selvkørende teknologi fra Apple og flyttede til Kina: Nu får han millionbøde og ryger i fængsel
--  The Race to Succeed Goldman's CEO Just Got More Complicated
--  Sanremo, Annalisa svela la versione in spagnolo di "Sinceramente"
--  Från Hej Monika till döden: ”Ett ämne som måste börja luckras upp”
--  Proizvodnja industrije se je lani skrčila za 5,3 odstotka
--  Kad dukros nepamirštų Lietuvos, Gintautas Norvegijoje įkūrė ansamblį
--  Test Sony Alpha A9 III : la révolution de la photo sportive aura bien lieu
--  "Glückliches Leben": So meisterte Teresa Enke schwere Zeit
+-  Spielplan zwingt Basketballteams zu kniffliger Entscheidung
+-  Es läuft für Trump
+-  Spekulationen über Rudolf Fröhlich: Warum stand Höffner ohne den wichtigen Unterstützer da?
+-  Описан возможный эффект интервью Путина Карлсону
+-  Điểm danh loạt trải nghiệm vui quên lối về không thể bỏ lỡ khi ăn Tết tại quận Kinh Đô
+-  प्रदेश में निकायों द्वारा 98 प्रतिशत कचरे का किया जा रहा है प्रसंस्करण,ठोस अपशिष्ट प्रबंधन की बेहतर व्यवस्था
+-  Acclaimed Japanese conductor Seiji Ozawa who led BSO dies at 88
+-  Kadın badmintoncular Avrupa'da ilk kez madalya kazanmak istiyor
+-  İrakli Kobaxidze İlham Əliyevi təbrik etdi
+-  На Черкащині виявлено несанкціонований відбір газу
