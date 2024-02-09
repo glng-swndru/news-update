@@ -1,11 +1,11 @@
 # Latest News
--  Hombres, quienes más acuden a la CDHEM a solicitar ayuda
--  Tuffi: Mondiali Larsen e Timbretti decimi nella piattaforma sincro
--  Rodrigo Hilbert mostra momento de filhos com a mão na massa e relembra dia de pesca
--  SINIŠA MALI POSLAO PUNU PODRŠKU PREDSEDNIKU: Uprkos pritiscima, sačuvaćemo nezavisnu, suverenu i slobodnu Srbiju (FOTO)
--  Jednom rečenicom EPPO otkrio što misli o izjavi Ivana Turudića
--  LIVEBLOG BELGIAN CATS. Hoe kunnen de Cats zich plaatsen voor Spelen? - Door nederlaag van Senegal kan kwalificatie morgen al binnen zijn
--  Посол Антонов раскрыл позицию США по поставкам оружия Украине
--  Pixar, Marvel, Star Wars… Disney investit 1,5 milliard de dollars pour créer un univers dans Fortnite
--  Arnaque au faux conseiller bancaire : pourquoi des escrocs arrivent encore à vider vos comptes
--  The Chiefs and 49ers should provide a heavy dose of pre-snap motion in Super Bowl
+-  ▷ Digital 15 EN VIVO GRATIS - cómo ver Rep. Dominicana vs. Panamá (8 Feb. 2024) vía streaming
+-  Kitchener’s first synagogue one of two churches recommended for heritage designation
+-  Novi problemi na jugu Hrvatske: Riva je kulturna baština, a radi se bez konzervatorskih dozvola
+-  A cél stabil értékrendű, környezettudatos diplomás munkavállalók képzése
+-  Mauritániában igyekeznek gátat szabni az illegális migrációnak
+-  Google Cloud’s Anton Chuvakin Talks GenAI in the Enterprise
+-  ජොහැනස්බර්ග්හිදී අවි ගත් කල්ලියක් කොදෙව් ක්‍රීඩකයා කොල්ලකයි
+-  Blutzucker senken: Zehn Lebensmittel, die Ihrem Zuckerhaushalt guttun
+-  In diesem gefloppten Horrorthriller liefert sich "Oppenheimer"-Star Cillian Murphy ein Duell mit Robert De Niro
+-  Yunanistan’da "özel üniversite" protestoları sürüyor
