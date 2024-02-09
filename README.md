@@ -1,11 +1,11 @@
 # Latest News
--  US100 bullish bias intact above 17,709 [Video]
--  Se mantiene detención por fraude en cobro de arroz en Veraguas
--  Aerolínea latinoamericana Gol enfrenta turbulencia financiera
--  Heparanase Inhibitors May Reduce Risk of Diabetic Kidney Disease, Diabetic Retinopathy in Patients with Diabetes
--  How long does it take?
--  Zidane floué : «C'est une honte»
--  Luis Miguel en Costa Rica en vivo: El Sol de México canta este jueves en el Estadio Nacional
--  Ribuan Perempuan Banyumas Berdoa Demi Pemilu Damai untuk Perubahan
--  Sechs Jahre Liebe: James Norton trennt sich von Verlobter!
--  Fritagna mannen på Sis-hemmet i Bärby välkänd smitare
+-  Em vídeos, soldados israelenses zombam da destruição em Gaza
+-  Bürgermeister Rajko Kravanja entmachtet: Narren stürmen nach 40 Jahren wieder das Rathaus
+-  Tisíce mrtvých, statisíce hladovějících. HRW chce stíhat Putina za zvěrstva v Mariupolu
+-  Россия придает большое значение союзническим отношениям с Азербайджаном
+-  Neoblíbený Grepl? Nevíte, o čem mluvíte, bič je potřeba, vzkazuje kapitán Děčína
+-  Brülisauer tritt aus Bezirksrat zurück
+-  Кубок равноправия. «Зенит» забил 6 голов «Шанхай Шеньхуа» Слуцкого
+-  Görme engelli genci kaçırıp ailesinden fidye istedi
+-  Oběti znásilnění už se nebudeme ptát, jestli se bránila, vysvětluje změnu v zákoně zmocněnkyně
+-  ادعای بلینکن: متعهد به تشکیل کشور مستقل فلسطینی هستیم
