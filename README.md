@@ -1,11 +1,11 @@
 # Latest News
--  Утверждены госстандарты специального образования для лиц с ограниченными возможностями
--  TV audiences up for the summer’s sporting stars
--  Narren in Marl stürmen Pfarrheim und Medienhaus Bauer: Karneval geht in die heiße Phase
--  Monotype Type Trends: Generative KI, Musik aus den 2000ern und klassische Serifen beeinflussen das Markendesign im Jahr 2024
--  TV audiences up for the summer’s sporting stars
--  Chalon. La fin de la galère sur le pont Saint-Laurent… avant d’autres travaux
--  KAD SU SE KUGLICE OTVORILE: Ovo su rivali Srbije u A diviziji UEFA Lige nacija
--  Maple Ridge and Pitt Meadows sports groups outgrow local arenas
--  Shark Tank India Season 3: Sharks Looked Amazed By The Variety of Infused Honey Offered by "Honey Twigs”
--  "DA LI JE SRBIJA DOBRA IDEJA?" Poljak napravio haos pitanjem na društvenim mrežama: "LJUDI NE ZNAJU ŠTA JE ZAPAD"
+-  Esposa e filhos de desembargador: veja organograma de alvos da PF
+-  Σεμπαστιάν Αλέ: Μεσαίο δάκτυλο στον καρκίνο
+-  【タイパとコスパ】両方を実現させるたった1つの言い方 - 一流ファシリテーターの 空気を変えるすごいひと言
+-  Muğla açıklarında 31 düzensiz göçmen yakalandı
+-  Manuel Serrano asegura que el Jueves Lardero ha sido "el mejor prólogo para las mejores fiestas de Carnaval, con más de 15.000 personas disfrutando de las actividades programadas en el Día de la Mona"
+-  Del Solar shoots 57 for lowest round in PGA Tour history
+-  "Фюрер узнал о предательстве": Почему отставка Залужного напоминает конвульсии гитлеровской Германии
+-  Barry Keoghan Once Tried to Eat 50 Eggs Like Paul Newman in ‘Cool Hand Luke.’ It Didn’t Go Well
+-  Saime ha entregado cédulas a más de 6.000 personas en Tumeremo
+-  Δημοσκόπηση Αlco: Προβάδισμα 16 μονάδων για ΝΔ - «Λανθασμένοι» χειρισμοί με τους αγρότες
