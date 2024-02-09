@@ -1,11 +1,11 @@
 # Latest News
--  Kamu harcamaları için parasal sınırlar belirlendi
--  Slovita atletinja se bo po Parizu upokojila
--  Čula se istina o srpskom stradanju na KiM! Brnabić: Jučerašnja sednica SB UN bila je istorijska!
--  TV-serien om Knuckles har fått sin første trailer
--  Pawaslu Agam Diminta Patroli untuk Mencegah Pelanggaran Pemilu 2024 di Masa Tenang
--  Kvara decisivo, fallito il trapianto di Garcia: la cura Mazzarri funziona
--  Mobile Games 2024: 7 Handyspiele, die deine Langeweile vertreiben werden
--  Hrvatski svećenici osvojili zlato u malom nogometu. Najbolji strijelac je strastveni hajdukovac
--  Macky Sall déménage au Maroc» : le Palais répond à Souleymane Jules Diop
--  Azilant četiri sata držao taoce: Policija upala u vlak i ubila napadača
+-  新NISAのスタートダッシュは、まだ間に合う。つみたて投資枠を「ボーナス月設定」でハックする方法
+-  Czarnek: Tusk wraca do programu "zero laptopów"
+-  Simon La Mantia, il "tuttofare" che cerca il Milan
+-  Stokes’ Seven takes on News Corp with nightly newspaper, supported by Gina Rinehart
+-  Man Utd have 'special interest' in signing 'incredible' £64m player Ten Hag loves - journalist
+-  Namirnica koju svakodnevno konzumiramo pomaže u lečenju depresije
+-  Reklama za stolariju iz Srbije podigla prašinu: 'Šovinizam! Kad ćemo se maknuti od toga?'
+-  সেদিন শাহরুখকে দেখে চোখ কপালে উঠেছিল সুস্মিতার!
+-  Razer Gold、日本で「崩壊：スターレイル」サービス開始
+-  Asthma on the rise among children, parents urged to exercise caution
