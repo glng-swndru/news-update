@@ -1,11 +1,11 @@
 # Latest News
--  Hatalmas tűz volt Moszkvában az éjjel
--  Junior Bocat’ta transferi için flaş gelişme!
--  Jonathan Majors in deep waters, faces more abuse allegations
--  Скот Ритър за Путин: Познава Америка по-добре от нея самата - Труд
--  Why Benji is waxing lyrical about ‘outstanding’ teenage Tigers: Hoops
--  Prof. Dr. Naci Görür tekrar tekrar uyarıyor! İstanbul’un kırılması an meselesi!
--  Pakistan'da seçim günü 51 terör saldırısı! 12 kişi öldü
--  Seniler Senior? Bidens Wahlkampf-Desaster und ein Wutanfall
--  Lauri Markkanen oli paras pistemies Utah Jazzin tappiossa – seura hurjasteli pelaaja­markkinoilla ottelun alla
--  Galaxy-Nutzer müssen reagieren: Über 60 Sicherheitslücken in Samsung-Handys entdeckt
+-  Persib Latihan Tanpa Didampingi Bojan Hodak, Goran Paulic Angkat Bicara
+-  লাভলীর তরে মজনুর নিঃস্বার্থ ভালোবাসা ‘যাও পাখি বলো তারে’
+-  À Naval Group Lorient, elle « traduit l’humain en geek »
+-  5 Film Horor Indonesia yang Tayang Februari 2024
+-  “En RENADE ayudamos a las empresas a compensar las emisiones de gases de efecto invernadero”
+-  ¿Quién mueve los hilos en los tres valores más alcistas del Ibex 35?
+-  Вакцину от кариеса разрабатывают в Беларуси
+-  Alper Gezeravcı Dünya'ya dönüyor
+-  Mission possible: Scholz in den USA
+-  Bütçe dostu vivo Y200e için geri sayım başladı!
