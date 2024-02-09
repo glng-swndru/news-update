@@ -1,11 +1,11 @@
 # Latest News
--  Leonel firma propuesta para solucionar drenaje en la capital
--  BBC's John Simpson delivers brutal slap down of Tucker Carlson's Putin interview
--  Messi, Beckhams und Co.: Super Bowl 2024: Das sind die besten (und teuersten) Werbespots des Jahres
--  Estradas e aeroportos estão preparados para movimento no carnaval
--  Dünya bu oyundan danışır: Qadınlar, qadınlar...
--  عسكري إسرائيلي: الجيش نهب وأحرق منازل بغزة وأعدم أسرى
--  Fergus Ewing 'delighted' Fiona Hyslop is appointed transport secretary overseeing the A9
--  Brankář láká na fotbal, lehátko do kina. Vizuál Prahy 10 stojí na římské desítce
--  নওয়াজ ও বিলাওয়ালের দলের সঙ্গে জোট সরকার গড়বে না পিটিআই
--  Szijjártó Péter egy pedofilbotrányba keveredett bíborossal nevetgélt, miközben itthon Novák Katalin ügyétől hangos minden
+-  TIC : les dépenses au Moyen-Orient, en Turquie et en Afrique atteindront 238 milliards $ en 2024 (IDC)
+-  Belum Beroperasi, Bandara Dhoho Kediri Jadi Tempat Piknik Dadakan Warga Sekitar
+-  ¿Puede el S&P 500 sobrepasar y mantenerse en los 5.000 puntos?
+-  MSI Prestige 16 review: Light on your back and wallet
+-  Man Group’s Moniot on Rise of Credit Risk Sharing: Credit Crunch
+-  Steuererklärung: Wann muss sie 2024 spätestens beim Finanzamt sein?
+-  定額減税「効果は限定的」、IMFが日本政府の経済対策を疑問視
+-  Cựu người mẫu bỏ showbiz về dạy học, sau hơn 10 năm bất ngờ quay lại và đăng quang hoa hậu là ai?
+-  健康網》宿醉好痛苦？喝咖啡不夠 中醫茶飲幫忙
+-  ひつぎに入って帰宅した父犬に、息子犬が寄り添い…… 胸を打つ親子の絆と、埋葬後の愛に満ちた変化
