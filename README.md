@@ -1,11 +1,11 @@
 # Latest News
--  Президент Ильхам Алиев: Голосование в Ханкенди имеет большое политическое и символическое значение
--  „Atacuri banditești”. Noul sediu AUR din Craiova, vandalizat de „extremiştii PSD” înainte de a-l inaugura George Simion
--  Avrupa Birliği'nde kadına şiddetle ilgili ilk yasa
--  Посол в Аргентине Феоктистов: администрация Милея готова сотрудничать с Россией
--  Gazze'de bir gazeteci daha katletildi!
--  Precio del dólar a peso mexicano hoy 8 de Febrero de 2024: ¿a cuánto esta el tipo de cambio durante la apertura del mercado?
--  La compagnia aerea che pesa i passeggeri (oltre che i bagagli)
--  Charles III se bat contre un cancer : cette maladie d'Elizabeth II qu'elle n'a jamais voulu rendre publique...
--  Ρωσικές δυνάμεις επιτίθενται από όλες τις κατευθύνσεις στην πόλη Αβντίβκα
--  Σε εξέλιξη πανελλαδικό πανεκπαιδευτικό συλλαλητήριο στο κέντρο της Αθήνας
+-  Bursa'da 2 kişiyi bıçaklayan şüpheli yakalandı
+-  INCC/Sinapi de janeiro sobe 0,19% ante alta de 0,26% em dezembro
+-  Nusron Wahid: Orang yang Daftar Ikut Kampanye di GBK Sudah Lebih Dari Setengah Juta Orang
+-  Sportif yetenek taraması başlıyor
+-  12 Nations Call on FIFA to Ban Israel from World Soccer Competitions
+-  破産法違反の容疑 札幌の元社長ら２人逮捕 特定の債権者優先し返済
+-  Manzana de GH es acusado de maltrato animal por un video viejo que se hizo viral
+-  Top news at 7 pm: Newborn found abandoned near garbage dump in Meerut, traffic snarls in Noida due to farmers’ protest and other stories
+-  VIDEO ⟩ Smiltenieti slimošanas laikā atlaiž no darba: vai tas ir likumīgi?
+-  Inter nudi osam, Martines traži 10 - kapiten ne može da se dogovori sa "nerazurima"
