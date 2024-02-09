@@ -1,11 +1,11 @@
 # Latest News
--  Минсельхозпрод изменил экспортные цены на некоторую молочную продукцию
--  Murat Kurum: ''Maalesef İstanbul’da son 5 yılda iyi olan hiçbir şey yok''
--  PM Took A Dig At Congress, But Praised Manmohan Singh
--  Game-camera footage leads police to stolen travel trailer in Nanaimo
--  Brasil lança ingressos por R$ 20 para jogo contra o Guarany
--  Петър Витанов направи неофициален дебют за новия си отбор Беверен - Труд
--  Happy Chocolate Day 2024: Delicious Chocolate Day WhatsApp video status to sweeten their day
--  Григор Димитров се класира на 1/4-финал в Марсилия
--  Hoće li dva kandidata imati podršku da uđu u finiš trke za šefa...
--  Snimak koji dokazuje brutalne laži opozicije! Šta piše u Rezoluciji EP, a šta je realnost...
+-  Утверждены госстандарты специального образования для лиц с ограниченными возможностями
+-  TV audiences up for the summer’s sporting stars
+-  Narren in Marl stürmen Pfarrheim und Medienhaus Bauer: Karneval geht in die heiße Phase
+-  Monotype Type Trends: Generative KI, Musik aus den 2000ern und klassische Serifen beeinflussen das Markendesign im Jahr 2024
+-  TV audiences up for the summer’s sporting stars
+-  Chalon. La fin de la galère sur le pont Saint-Laurent… avant d’autres travaux
+-  KAD SU SE KUGLICE OTVORILE: Ovo su rivali Srbije u A diviziji UEFA Lige nacija
+-  Maple Ridge and Pitt Meadows sports groups outgrow local arenas
+-  Shark Tank India Season 3: Sharks Looked Amazed By The Variety of Infused Honey Offered by "Honey Twigs”
+-  "DA LI JE SRBIJA DOBRA IDEJA?" Poljak napravio haos pitanjem na društvenim mrežama: "LJUDI NE ZNAJU ŠTA JE ZAPAD"
