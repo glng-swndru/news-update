@@ -1,11 +1,11 @@
 # Latest News
--  Nicaragua busca sumarse a la demanda ante la ONU contra Israel por Gaza
--  Opernball in Wien mit Hymnen gestartet
--  Opernball in Wien mit Hymnen gestartet
--  Около 400 человек эвакуированы из горящего дома на севере Москвы
--  China's PV industry contributes to global green development
--  Prezantohen medaljet olimpike, mbartin simbolika edhe pjesë të Francës
--  Taksiciler arasındaki müşteri kavgasında kan aktı
--  First Alert Weather: Thursday evening update - 2/8/24
--  Fenómeno de El Niño sigue activo y las lluvias no se extenderán por mucho tiempo: Ideam
--  3 Stocks Set to Soar as Construction Spending Continues to Rise
+-  Parlamento Europeu adverte Venezuela por inabilitação de opositora
+-  El Nino waning, La Nina to develop in second half of 2024
+-  Indevin confirms wine bottling operations to move from Māngere, 35 redundancies expected
+-  Putin u intervjuu s američkim voditeljem: Zelenski je shvatio dvije stvari kad je došao na vlast
+-  The Hunt for Montezuma’s Stolen Aztec Treasure (Video)
+-  Presidente do TJMS publica afastamento de Divoncir e nomeia substituto
+-  설 연휴 귀성행렬 시작, 전국서 가장 싼 주유소는?
+-  Radio duo’s revenge after brutal sacking
+-  Indígenas protestam em Brasília contra ferrovia Sinop-Miritituba
+-  Polícia investiga se pai e filho morreram após um atirar contra o outro em Mato Grosso
