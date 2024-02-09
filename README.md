@@ -1,11 +1,11 @@
 # Latest News
--  Tactical Chainsaw Reviews WARNED Buyers Beware!
--  Serie del Caribe: Conozca algunos datos del juego sin hits ni carreras de Ángel Padrón
--  Gesetzentwurf wird vorbereitet: Darum wollen niederländische Unis weniger ausländische Studenten
--  No injuries reported in Wednesday evening Brampton house fire
--  Många är nöjda med bussarna men de flesta väljer bilen
--  Ventajas de invertir en la Bolsa de Estados Unidos frente a la Bolsa Mexicana
--  ¿Dónde puedo ver las películas nominadas a los premios Goya 2024?
--  Bilo je to 1984. u Sarajevu: Igre mira, legendarni Vučko i Sanda
--  Here's Why Meta's New Dividend Is a Bigger Deal Than You Might Think
--  Τρεις επιδημίες ιλαρά τα τελευταία 20 χρόνια στην Ελλάδα - Τα κρούσματα και οι οδηγίες
+-  Президент Ильхам Алиев: Голосование в Ханкенди имеет большое политическое и символическое значение
+-  „Atacuri banditești”. Noul sediu AUR din Craiova, vandalizat de „extremiştii PSD” înainte de a-l inaugura George Simion
+-  Avrupa Birliği'nde kadına şiddetle ilgili ilk yasa
+-  Посол в Аргентине Феоктистов: администрация Милея готова сотрудничать с Россией
+-  Gazze'de bir gazeteci daha katletildi!
+-  Precio del dólar a peso mexicano hoy 8 de Febrero de 2024: ¿a cuánto esta el tipo de cambio durante la apertura del mercado?
+-  La compagnia aerea che pesa i passeggeri (oltre che i bagagli)
+-  Charles III se bat contre un cancer : cette maladie d'Elizabeth II qu'elle n'a jamais voulu rendre publique...
+-  Ρωσικές δυνάμεις επιτίθενται από όλες τις κατευθύνσεις στην πόλη Αβντίβκα
+-  Σε εξέλιξη πανελλαδικό πανεκπαιδευτικό συλλαλητήριο στο κέντρο της Αθήνας
