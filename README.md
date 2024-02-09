@@ -1,11 +1,11 @@
 # Latest News
--  Parlamento Europeu adverte Venezuela por inabilitação de opositora
--  El Nino waning, La Nina to develop in second half of 2024
--  Indevin confirms wine bottling operations to move from Māngere, 35 redundancies expected
--  Putin u intervjuu s američkim voditeljem: Zelenski je shvatio dvije stvari kad je došao na vlast
--  The Hunt for Montezuma’s Stolen Aztec Treasure (Video)
--  Presidente do TJMS publica afastamento de Divoncir e nomeia substituto
--  설 연휴 귀성행렬 시작, 전국서 가장 싼 주유소는?
--  Radio duo’s revenge after brutal sacking
--  Indígenas protestam em Brasília contra ferrovia Sinop-Miritituba
--  Polícia investiga se pai e filho morreram após um atirar contra o outro em Mato Grosso
+-  Kadarius Toney’s failure benefits Richie James for second straight season
+-  Deco segir að Mbappe myndi veikja lið Barcelona
+-  Trilocali a 4mila euro e divertimenti: vi portiamo nelle nuove residenze di lusso per anziani a Milano
+-  Dividendos pagos pelas cotadas vão voltar a subir
+-  New guidelines around managing concussion in community sport welcomed in Northland
+-  Live at 7 p.m.: NDSU men's basketball vs. Kansas City Roos on WDAY
+-  Black Women Face Higher Homicide Risk Than White Women: Study
+-  Un joueur de l’OM répond cash à Longoria
+-  新潟市へ「オフィス移転する企業」が倍々で増えている理由
+-  Ricky Hoek (MEP): MEP su vision ta pa crea un pais di progreso pa un y tur
