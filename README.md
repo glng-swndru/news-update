@@ -1,11 +1,11 @@
 # Latest News
--  Aktive Fans veröffentlichen Stellungnahme: Fanszene lehnt DFL-Gespräch mit klarer Forderung ab
--  GRČEVI U NOGAMA UOPŠTE NISU BEZAZLENI Evo na koju opasnu bolest mogu da ukažu bolovi u butinama i listovima
--  Oh!Dio – Φίνα κουζίνα και διαλεχτά κρασιά στον πιο ιστορικό δρόμο της Αθήνας
--  Yanardağ 2 ayda 3’üncü kez patladı: Bölgede acil durum ilan edildi
--  Neue Erprobungsphase für das Bürgerbüro Castrop-Rauxel: Jetzt läuft der Donnerstagstest
--  Ini Pesan Kombes Harryo untuk Personel yang Mengamankan TPS Pemilu 2024 di Palembang
--  Уверенный рост Сбера: банк опубликовал финитоги за январь 2024 года
--  日本人ドライバー所属のF1チーム、初公開の新車に「かっこいい」称賛の声も…… チーム名でざわつかせる「そのまま読む事になるんかな」
--  Ostré kombíky mají své místo i v budoucnosti, zní z Audi
--  Παράταση στην υποβολή συμβάσεων συμβολαιακής γεωργίας
+-  Kamu harcamaları için parasal sınırlar belirlendi
+-  Slovita atletinja se bo po Parizu upokojila
+-  Čula se istina o srpskom stradanju na KiM! Brnabić: Jučerašnja sednica SB UN bila je istorijska!
+-  TV-serien om Knuckles har fått sin første trailer
+-  Pawaslu Agam Diminta Patroli untuk Mencegah Pelanggaran Pemilu 2024 di Masa Tenang
+-  Kvara decisivo, fallito il trapianto di Garcia: la cura Mazzarri funziona
+-  Mobile Games 2024: 7 Handyspiele, die deine Langeweile vertreiben werden
+-  Hrvatski svećenici osvojili zlato u malom nogometu. Najbolji strijelac je strastveni hajdukovac
+-  Macky Sall déménage au Maroc» : le Palais répond à Souleymane Jules Diop
+-  Azilant četiri sata držao taoce: Policija upala u vlak i ubila napadača
