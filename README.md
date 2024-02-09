@@ -1,11 +1,11 @@
 # Latest News
--  Nehire düşen araçtaki şahsın cesedi 5 buçuk saatlik çalışmayla çıkarıldı
--  Does Nick Cannon See a Future With Mariah Carey? He Says...
--  Israel intensifica bombardeios em Rafah entre negociações para trégua
--  Гордон Хэйворд станет игроком «Оклахомы», «Шарлотт» получит Тре Мэнна, Дависа Бертанса, Василие Мицича и драфт-компенсацию
--  Plan d’actions contre le retrait de la licence de Walf-Tv: La société civile se joint à la CAP…
--  Nehire düşen araçtaki şahsın cesedi 5 buçuk saatlik çalışmayla çıkarıldı
--  Pro D2 : trois choses à retenir dans la composition du CA Brive retenue pour affronter Nevers ce vendredi
--  La UAL colabora en un proyecto europeo sobre agricultura de carbono
--  Обмислят въвеждането на син картон във футбола
--  Chuyện quá khứ bầu Hiển vượt ‘kiếp nạn’ nợ thuế bị gọi là “Chúa Chổm”: Không nhận giúp đỡ vì không muốn sai thêm, khuyên nhân viên nghỉ việc để đi tìm kiếm cơ hội tốt hơn
+-  What the shrinking Electoral College battleground means for 2024
+-  Retorno de debêntures incentivadas sobe com decisão do CMN sobre isentos; há efeito para os fundos?
+-  Бельгійський ексгенерал розкритикував стан оборонного виробництва в Європі
+-  Megrendelték a második évadot a Disney+ tavalyi nagy sikersorozatához
+-  6 tecnologias revolucionárias que fazem 30 anos em 2024
+-  „Nechtěla jsem být jako mé kolegyně,“ říká Dagmar Pecková k odchodu z opery
+-  Apego desorganizado: qué es, síntomas y consecuencias en la vida adulta
+-  Streaming-Tipp: Dieses 3,5-Stunden-Meisterwerk zählt zu den besten Sci-Fi-Filmen aller Zeiten – und ist trotzdem kaum bekannt
+-  Who is Ochai Agbaji, the newest Raptor acquired in the Kelly Olynyk trade?
+-  Посол Ирана о важности коридоров Север-Юг и Восток-Запад для региона
