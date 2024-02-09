@@ -1,11 +1,11 @@
 # Latest News
--  Gefum íslensku séns í hamförum samfélagsbreytinga
--  La pompe à chaleur, un produit pour faire des économies. Explication avec les spécialistes Aware Transition Énergie
--  Байден выступил с обращением к нации
--  Så ska bilen skrapas för att du ska slippa böter
--  MHP'li Ersoy'dan Kayseri tarımına müjdeler
--  Stan zdrowia Zbigniewa Ziobry. Patryk Jaki: Czeka go operacja. Trzymamy kciuki
--  Wladimir Putin, Tucker-Carlson: Interview-Auszüge im Video
--  Cantan a Santiago ‘Las Mañanitas’
--  Na geel en rood ook een blauwe kaart in het voetbal? FIFA noemt geruchten ‘onjuist en voorbarig’
--  Så ska bilen skrapas för att du ska slippa böter
+-  Türkiye'nin ilk uzay yolculuğuna dair uzmanından değerlendirme
+-  Срам - не срам: 4 зодии ще трябва да поискат помощ!
+-  みんなで同じ１杯目！“甘酒”を乾杯酒に♪ 開発のきっかけは「お酒飲めず疎外感…」【新潟】
+-  Η κοπή βασιλόπιτας των εργαζομένων του Δήμου Νάουσας
+-  За прошлый год в МАРТ рассмотрели 125 заявлений о нарушении конкуренции
+-  Chef mit 17 Jahren: Wie Jonas Molt sich selbständig gemacht hat
+-  Hindistan'da cami yıkımına karşı çıkan olaylarda 4 kişi öldü
+-  宿泊税導入に「反対」 札幌の宿泊団体、道と市に見合わせを要望
+-  Okulda tarhana çorbası etkinliği yapıldı
+-  Сглобката погна схемата за получаване на българско гражданство от руснаци
