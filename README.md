@@ -1,11 +1,11 @@
 # Latest News
--  Vilniaus universitetas tapo NATO inovacijų akceleratoriaus DIANA bandymų centru
--  Pertarungan Inter Milan vs Atletico Madrid Begitu Menarik di Mata Ravanelli
--  С 9 февраля можно проверить данные о себе в списке избирателей. Как это сделать?
--  Учени пробиха ледено ядро от Антарктида и откриха нещо много тревожно
--  People on PIP never need to report any of these six changes to the DWP
--  Người phụ nữ cho vay "siêu lãi suất" 2160%/năm bị bắt
--  NA-44 DI Khan Election Results 2024 - Ali Amin Khan Gandapur vs Fazlur Rehman
--  Οι Κομόλιθοι στην Κρήτη που θυμίζουν Καππαδοκία – Σπάνιες εικόνες
--  Meteoroloji'den gök gürültülü sağanak uyarısı
--  İlk Türk astronot Alper Gezeravcı bugün Dünya'ya dönüyor
+-  BGH verhandelt zu Eigentümer-Versammlungen während Corona
+-  Koniec týždňa bude pod oblakom, teploty dosiahnu 12 stupňov
+-  Nazywają je domkiem Baby Jagi. Najmniejsze beskidzkie schronisko z dala od tłumów
+-  Psikolojik sorunları olan genç annesi ile kardeşini rehin aldı
+-  Skispringen live im TV und Stream: Hier sehen Sie den Weltcup am Lake Placid
+-  Обнаружены отпечатки ног человека возрастом 90 000 лет - УЧЕНЫЕ
+-  Arızalanan metrobüsü kontrol eden şoför, başka metrobüsün çarpmasıyla öldü
+-  2.50 promil alkollü sürücünün kullandığı otomobil direğe çarptı: 3 yaralı
+-  Finance secretary does not expect rate hike as inflation easing
+-  Fabrika işçilerinin taşındığı servis minibüsü devrildi: 9 yaralı
