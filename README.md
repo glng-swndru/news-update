@@ -1,11 +1,11 @@
 # Latest News
--  What the shrinking Electoral College battleground means for 2024
--  Retorno de debêntures incentivadas sobe com decisão do CMN sobre isentos; há efeito para os fundos?
--  Бельгійський ексгенерал розкритикував стан оборонного виробництва в Європі
--  Megrendelték a második évadot a Disney+ tavalyi nagy sikersorozatához
--  6 tecnologias revolucionárias que fazem 30 anos em 2024
--  „Nechtěla jsem být jako mé kolegyně,“ říká Dagmar Pecková k odchodu z opery
--  Apego desorganizado: qué es, síntomas y consecuencias en la vida adulta
--  Streaming-Tipp: Dieses 3,5-Stunden-Meisterwerk zählt zu den besten Sci-Fi-Filmen aller Zeiten – und ist trotzdem kaum bekannt
--  Who is Ochai Agbaji, the newest Raptor acquired in the Kelly Olynyk trade?
--  Посол Ирана о важности коридоров Север-Юг и Восток-Запад для региона
+-  Portugal defronta Croácia, Polónia e Escócia Grupo A1 da Liga das Nações 2024/25
+-  İsrail UNRWA'yı vergiye tabi tutarak Filistinlilere yeni bir darbeye hazırlanıyor
+-  Verdener Kläranlage: Investitionen und steigende Gebühren
+-  Ontslagen uit het ziekenhuis nadat laatste boot al is vertrokken, Texelse Mariëlle eist oplossing
+-  Entenda como vai funcionar cadastro reserva do Concurso Unificado
+-  Сенат США проголосував за пакет допомоги Україні
+-  Hrvatska i BiH sa elitom – kog su izvukle eks-Ju reprezentacije?
+-  Texelaars 's nachts op straat gezet na ontslag uit ziekenhuis, terwijl laatste boot al weg is
+-  Produção industrial opera acima do nível pré-pandemia em 5 de 15 locais, mostra IBGE
+-  Produção industrial opera acima do nível pré-pandemia em 5 de 15 locais, mostra IBGE
