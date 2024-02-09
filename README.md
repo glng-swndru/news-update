@@ -1,11 +1,11 @@
 # Latest News
--  Estava prestes a mudar-se para casa de João Moura Caetano? "No cérebro dela..."
--  Stiže nastavak Diznijevog hit filma VIDEO
--  96 kişinin öldüğü apartmanın müteahhidi: Hiçbir suç ve kabahatim yok
--  ضخ الأجانب يخترق هدوء الأسهم بـ 157 مليون درهم
--  Placer Subaru donates over 150 jackets to children in need
--  La ira de Milei con el Congreso siembra dudas sobre su plan: ¿qué pasará con la reforma laboral y privatizaciones?
--  Θοδωρής Κατσαφάδος: Ο Πάνος Νάτσης ήταν σαν παιδί μου, δεν μπορώ να δω τις «Σέρρες» και να το ευχαριστηθώ
--  Man, 26, fatally shot outside Bronx chicken restaurant
--  Tiësto Pulls Out of Super Bowl Performance Due to ‘Family Emergency’ - Variety
--  Padre de Osasco é alvo da PF em operação sobre golpe de Estado
+-  Moedas Globais: dólar avança, após dado positivo dos EUA reforçar cautela do Fed
+-  Haavisto painoi päälle, Stubb väisteli – Uutissuomalainen arvioi presidenttiehdokkaiden suoritukset Ylen tv-väittelyssä
+-  JANJUŠ RASKINUO SA ANELI! Drao se i psovao, pa je ostavio! Ovo je bio okidač
+-  Weiberfastnacht „überdurchschnittlich unauffällig“
+-  Emocje wracają. Bagnaia przed Martinem
+-  Obras de drenagem obrigam o fechamento parcial da Avenida Alberto Soares Sampaio em Mauá
+-  O cisternă a luat foc într-o comună din Brăila. Ardea cu „flacără violentă”
+-  Kadıköy'de kahreden olay! Torununu kurtaran kadın tramvayın altında kaldı
+-  ついに“大山越え”藤井聡太八冠が前人未到のタイトル戦20連覇 「光栄なこと」4連勝で王将戦防衛
+-  Kadıköy'de kahreden olay! Torununu kurtaran kadın tramvayın altında kaldı
