@@ -1,11 +1,11 @@
 # Latest News
--  Gemeinsame Aktivitäten - Karlstettner Jugend trifft sich im Pfarrheim
--  Dünya genelinde tütün tüketimi azalıyor
--  Radio tuning to Vista as Bell broadcasts sell-off of 21 B.C. stations
--  Leao rivela: «Quando arrivai al Milan Maldini ed Ibrahimovic mi aiutarono, in studio metto ciò che non do in campo»
--  International companies are recruiting South Africans for these jobs
--  Bruce Willis: Ehefrau plant Buch über Demenzerkrankung ihres Mannes
--  V najtežjih časih nas lahko rešijo zgolj in samo odnosi
--  Gesundheitswesen: Streik in NRW-Praxen: Abschluss für Arzthelferinnen
--  Tougher penalties could be on the way Trudeau hints at car theft summit
--  हल्द्वानी में अवैध मस्जिद और मदरसे पर चला बुलडोजर, लोगों ने पुलिस पर किया पथराव
+-  Wie sich Akzeptanz für Erneuerbare schaffen lässt
+-  Россиян отговорили от заработков на аренде
+-  Light up your life with Glocusent LED Neck Reading Light, 27% Off
+-  India to replace its troops in Maldives with technical personnel: MEA
+-  Jaka przyszłość czeka prezydenta UEFA? Aleksander Ceferin podjął ważną decyzję
+-  „Neo Group“ gaminsis elektrą iš vandens garų, investuoja 3 mln. eurų
+-  Shoah, Pisani (Tor Vergata): "Testimonianze dirette incisive per i giovani"
+-  "صلالة الخيري" يقدم أكثر من 280 ألف ريال من المساعدات
+-  Rishi Sunak should apologise for transgender jibe, Gordon Brown tells Sky News
+-  Policija istražuje bivšu upravu Ekonomskog fakulteta u Rijeci, sumnja se u kriminal težak stotine tisuća eura
