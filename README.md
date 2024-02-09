@@ -1,11 +1,11 @@
 # Latest News
--  Trading ideas: Kumpulan Jetson, Reneuco, Dataprep, MGB, RCE Capital, KKB, NationGate, Southern Acids, Perdana Petroleum and Industronics
--  Mumbai: BMC To Have Dedicated Staff For Environment Department, Focusing On Air Quality & Pollution Control
--  Công ty Điện tử BHS của ông Nguyễn Tử Quảng giảm vốn từ 10 tỷ đồng còn 1 tỷ đồng trước lùm xùm nợ lương người lao động
--  Petri viajó a Bariloche para evaluar la "usurpación de tierras del Ejército"
--  Эндрик назвал умение Беллингема, которое удивило его больше всего
--  У Словаччині ухвалили ліквідацію Антикорупційної прокуратури
--  Earnings call: Axcelis Technologies hits record revenue in 2023
--  PM Kakar felicitates nation for successful polls
--  الیکشن کمیشن کے حتمی نتائج کا انتظار کرنا چاہیے، وزیر اعظم نواز شریف ہی ہوں گے، خواجہ آصف
--  Shoals Technologies Group, Inc. Announces Fourth Quarter
+-  Joe Biden furious at Special Counsel reference to Beau's death: 'None of your business!'
+-  Joly urges more funding to hire Canadian diplomats
+-  Grim development in missing mum mystery
+-  Denizli Büyükşehir Belediyesi 23.500 TL maaşla halk otobüsü şoförü arıyor! İşte şoför alımı için başvuru şartları
+-  [스브스夜] '꼬꼬무' 맨 손으로 암 덩어리 꺼낸 '심령술사 준 라보'…기적의 시술, 그 진실은?
+-  Yeniden Refah'ın AK Parti'den isteği ortaya çıktı! 'Kocaeli ve Sakarya'yı istedik'
+-  Yeniden Refah'ın AK Parti'den istediği iller belli oldu! 'Kocaeli ve Sakarya'yı istedik'
+-  Heritage minister calls Bell Media job cuts 'extremely disappointing' - CBC News
+-  Bildungsministerin in Frankreich nach nur vier Wochen abgesetzt
+-  India News | Farmer Protest: Punjab CM Claims in Breakthrough in Talks but Delhi March Still on
