@@ -1,11 +1,11 @@
 # Latest News
--  TIC : les dépenses au Moyen-Orient, en Turquie et en Afrique atteindront 238 milliards $ en 2024 (IDC)
--  Belum Beroperasi, Bandara Dhoho Kediri Jadi Tempat Piknik Dadakan Warga Sekitar
--  ¿Puede el S&P 500 sobrepasar y mantenerse en los 5.000 puntos?
--  MSI Prestige 16 review: Light on your back and wallet
--  Man Group’s Moniot on Rise of Credit Risk Sharing: Credit Crunch
--  Steuererklärung: Wann muss sie 2024 spätestens beim Finanzamt sein?
--  定額減税「効果は限定的」、IMFが日本政府の経済対策を疑問視
--  Cựu người mẫu bỏ showbiz về dạy học, sau hơn 10 năm bất ngờ quay lại và đăng quang hoa hậu là ai?
--  健康網》宿醉好痛苦？喝咖啡不夠 中醫茶飲幫忙
--  ひつぎに入って帰宅した父犬に、息子犬が寄り添い…… 胸を打つ親子の絆と、埋葬後の愛に満ちた変化
+-  Ríkisstjórnarfundur stendur enn yfir
+-  Jelang Pemungutan Suara, Prabowo-Gibran Unggul di Kalangan Muhammadiyah
+-  **Foibe: Mattarella, 'grazie per testimonianza Lada e Alessandra Rivaroli e Egea Haffner'**
+-  Φώτης Σεργουλόπουλος: «Έκανα μακροχρόνιες σχέσεις, μου αρέσει η ρουτινα» – Η εξομολόγηση για την προσωπική του ζωή
+-  Redmi Note 13 Pro+ - a fejlődés íve
+-  Las acciones del Ibex 35 analizadas: Desde ACS hasta IAG
+-  Ювентус побореться з Манчестер Юнайтед та Арсеналом за хавбека Ніцци
+-  Кураньи сообщил, что готов помочь Тюкавину уехать в Европу
+-  Дед главы МИД Германии Бербок был «ярым нацистом»
+-  وسائل اعلام حوثية: قصف جوي أمريكي-بريطاني على الحديدة
