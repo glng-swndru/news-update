@@ -1,11 +1,11 @@
 # Latest News
--  ▷ Digital 15 EN VIVO GRATIS - cómo ver Rep. Dominicana vs. Panamá (8 Feb. 2024) vía streaming
--  Kitchener’s first synagogue one of two churches recommended for heritage designation
--  Novi problemi na jugu Hrvatske: Riva je kulturna baština, a radi se bez konzervatorskih dozvola
--  A cél stabil értékrendű, környezettudatos diplomás munkavállalók képzése
--  Mauritániában igyekeznek gátat szabni az illegális migrációnak
--  Google Cloud’s Anton Chuvakin Talks GenAI in the Enterprise
--  ජොහැනස්බර්ග්හිදී අවි ගත් කල්ලියක් කොදෙව් ක්‍රීඩකයා කොල්ලකයි
--  Blutzucker senken: Zehn Lebensmittel, die Ihrem Zuckerhaushalt guttun
--  In diesem gefloppten Horrorthriller liefert sich "Oppenheimer"-Star Cillian Murphy ein Duell mit Robert De Niro
--  Yunanistan’da "özel üniversite" protestoları sürüyor
+-  Obras de saneamento para casa populares devem ser concluídas até próximo mês em Lucas
+-  「陰湿な職場」増 重要な心構え
+-  Protestation contre le report de la présidentielle : Plusieurs manifestants arrêtés
+-  Megszólalt Robert De Niro a 19 éves unokája haláláról
+-  George Gershwin's 'Rhapsody in Blue' Still Hits the Right Notes at 100
+-  Sorban NU: Program Makan Siang dan Susu Gratis Sesuai Aspirasi Warga Nahdliyin
+-  Passaporte de Bolsonaro é entregue às autoridades
+-  Leijonat jälleen voittoon Sveitsistä
+-  Final Fantasy VII Rebirth Demo Launches On PS5 [Update]
+-  Revelan conversaciones de la tensa discusión entre Pamela López y Christian Cueva
