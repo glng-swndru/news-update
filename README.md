@@ -1,11 +1,11 @@
 # Latest News
--  Kadarius Toney’s failure benefits Richie James for second straight season
--  Deco segir að Mbappe myndi veikja lið Barcelona
--  Trilocali a 4mila euro e divertimenti: vi portiamo nelle nuove residenze di lusso per anziani a Milano
--  Dividendos pagos pelas cotadas vão voltar a subir
--  New guidelines around managing concussion in community sport welcomed in Northland
--  Live at 7 p.m.: NDSU men's basketball vs. Kansas City Roos on WDAY
--  Black Women Face Higher Homicide Risk Than White Women: Study
--  Un joueur de l’OM répond cash à Longoria
--  新潟市へ「オフィス移転する企業」が倍々で増えている理由
--  Ricky Hoek (MEP): MEP su vision ta pa crea un pais di progreso pa un y tur
+-  Este es el alimento que te ayuda a reducir la grelina, hormona que estimula el hambre
+-  ශ්‍රී ලංකා ඇෆ්ගනිස්තාන පළමු එක්දින තරගය අද
+-  පොලිස් කූඩුවේ සැකකරුවන් 2 කට කිරි පැකට් දීම: ආදුරුප්පුවීදිය වැ.බ. ඕඅයිසී ඇතුළු 3 කගේ වැඩ තහනම්
+-  Putin i Karlson zapalili planetu! Više od 3 miliona ljudi prati istorijski intervju, broj gledaoca i dalje ubrzano raste (VIDEO)
+-  بعد مجزرتين للاحتلال فبراير 1973.. ماذا سيكون الرد العربي؟
+-  استاد خليفة استضاف المواجهة.. منتخب العرب يسحق هولندا برباعية
+-  مستشفى حمد عام 1982: فرصة لتدريب الحاصلين على الإعدادية
+-  طالب بلان.. أول حكم قطري ينال الشارة الدولية
+-  Anielle chama de “aterrorizante” vídeo de morador baleado na Maré
+-  «العرب» تنشر صورة الـ 50 ريالا
