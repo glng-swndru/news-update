@@ -1,11 +1,11 @@
 # Latest News
--  MP Board 12th Exam: 15 Cheating Cases Reported
--  Here's a list of every deal made before the NBA trade deadline
--  'Por onde anda a professora?', pergunta Mauro Cid no encalço de Moraes
--  Bolsonaro pediu e aprovou mudança em minuta que previa golpe, diz PF
--  Novi Ford Transit Courier je bolji, praktičniji, jači i fleksibliniji (FOTO)
--  Das sind die größten Fehler, die man beim Aktienkauf machen kann
--  Stjuartes "kreisais" pēdējā sekundē izrauj ASV uzvaru pār lepno Beļģiju
--  НА ЖИВО: Кризата в Украйна, 09.02 - Зеленски смени Залужни със Сирски начело на армията
--  El Senado de EEUU aprueba proyecto de fondos suplementarios para Ucrania e Israel
--  Unidad Piquetera intentó ir al Puente Pueyrredón, pero Prefectura y la Policía lo impidieron
+-  アジアに絶対的強者いない 韓国
+-  Minnesota museums adapt to new federal rules regarding Native objects and remains
+-  "الأرصاد" يحذر منها.. ماذا تعرف عن "الرياح الهابطة"؟
+-  Ubisoft se muestra "decepcionada" con las ventas de Assassin's Creed Nexus VR
+-  Chiefs or 49ers? Fans face Super Bowl quandary as presidential politics muddy field
+-  Situation politique nationale : Ismaila Madior FALL a convié les Missions diplomatiques et consulaires, les Organisations internationales accréditées à une séance d’informations.
+-  Live-Musik und Polonaise im Schalander in Unna: Viele Fotos von der Weiberfastnacht-Party
+-  Giovanna Antonelli mostra bumbum nas redes sociais e ganha elogios: 'Ah se o Tio Ali vê isso!'
+-  رسميا.. نادي سوتشي الروسي يضم المغربي الدولي عطية الله
+-  الاتحاد الأوروبي يمنح 210 ملايين يورو لدعم موريتانيا في مجال إدارة الهجرة
