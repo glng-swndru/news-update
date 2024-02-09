@@ -1,11 +1,11 @@
 # Latest News
--  Tea zeznula jelo i nije ga poslužila Gretiću: "Nisam stavila sve komponente"
--  Mainoo að fá nýjan samning hjá Man Utd
--  Зеленскому предрекли тяжелые времена после отставки Залужного
--  Why the final stretch of the inflation fight is perilous
--  2023最賺運動員 大谷翔平稱霸棒球
--  収益性の高い物件を見つけるための3つの戦略。月数十万円の収入を得ている不動産投資家がやっていること
--  拒絕奧客 行業可自訂管理辦法
--  A boxing gym with a difference
--  小池百合子弔唁李登輝
--  Les métiers du nucléaire emploient 23.000 salariés en Bourgogne Franche-Comté, mais peinent à attirer des jeunes
+-  MP Board 12th Exam: 15 Cheating Cases Reported
+-  Here's a list of every deal made before the NBA trade deadline
+-  'Por onde anda a professora?', pergunta Mauro Cid no encalço de Moraes
+-  Bolsonaro pediu e aprovou mudança em minuta que previa golpe, diz PF
+-  Novi Ford Transit Courier je bolji, praktičniji, jači i fleksibliniji (FOTO)
+-  Das sind die größten Fehler, die man beim Aktienkauf machen kann
+-  Stjuartes "kreisais" pēdējā sekundē izrauj ASV uzvaru pār lepno Beļģiju
+-  НА ЖИВО: Кризата в Украйна, 09.02 - Зеленски смени Залужни със Сирски начело на армията
+-  El Senado de EEUU aprueba proyecto de fondos suplementarios para Ucrania e Israel
+-  Unidad Piquetera intentó ir al Puente Pueyrredón, pero Prefectura y la Policía lo impidieron
