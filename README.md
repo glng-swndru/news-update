@@ -1,11 +1,11 @@
 # Latest News
--  Переходники CableMod 12VHPWR нанесли владельцам видеокарт NVIDIA ущерб на $74 тысячи
--  What will be the best day for cherry blossoms in Vancouver this year? Experts aim to pinpoint a date
--  Best robot vacuums for pet hair in 2024, according to pet owners
--  Presence Receives Fortune 20 Impact Award for World-Changing Innovation in PreK-12 Teletherapy Services
--  Бешикташ продължава за Купата на Турция
--  Mister Spade (Canal+) : tout ce qu'il faut savoir sur la nouvelle série du
--  Give the Gift of Great Hair for Valentine’s Day With These Dyson Deals for My Best Buy Members
--  Günün ULDUZ FALI: ciddi problemləri qulaqardına vurmayın
--  Supreme Court: Key takeaways, what’s next after oral arguments in Trump ballot case
--  Avalanche forecasters try to curb deaths as skiers and snowmobilers flock to backcountry areas
+-  Kuningatar Camilla kommentoi kuningas Charlesin tilaa
+-  3 Stocks to Buy for the New 2024 Bull Market
+-  Court says Boca Raton violated public records law as developer aimed for beachfront project
+-  J&J, Merck and Bristol Myers CEOs, under fire on Capitol Hill, seek to turn up heat on drug-market middlemen
+-  Έρωτας φυγάς: Η Αλεξάνδρα έχει την αίτηση διαζυγίου στα χέρια της
+-  Nowy pakiet pomocy USA dla Ukrainy i Izraela. Jest kolejna decyzja Senatu
+-  Kamyonun altında kaldı, feci şekilde can verdi
+-  VUČIĆ UPOZORAVA: Privremene institucije samouprave u Prištini kreiraju nepodnošljive uslove za život Srba
+-  Minneapolis Mayor Frey says comment that remote workers would turn into "losers" was a joke
+-  YRP'li Aydal'dan yerel seçim açıklaması: AK Parti'den Kocaeli ve Sakarya'yı istedik
