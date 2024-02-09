@@ -1,11 +1,11 @@
 # Latest News
--  Moedas Globais: dólar avança, após dado positivo dos EUA reforçar cautela do Fed
--  Haavisto painoi päälle, Stubb väisteli – Uutissuomalainen arvioi presidenttiehdokkaiden suoritukset Ylen tv-väittelyssä
--  JANJUŠ RASKINUO SA ANELI! Drao se i psovao, pa je ostavio! Ovo je bio okidač
--  Weiberfastnacht „überdurchschnittlich unauffällig“
--  Emocje wracają. Bagnaia przed Martinem
--  Obras de drenagem obrigam o fechamento parcial da Avenida Alberto Soares Sampaio em Mauá
--  O cisternă a luat foc într-o comună din Brăila. Ardea cu „flacără violentă”
--  Kadıköy'de kahreden olay! Torununu kurtaran kadın tramvayın altında kaldı
--  ついに“大山越え”藤井聡太八冠が前人未到のタイトル戦20連覇 「光栄なこと」4連勝で王将戦防衛
--  Kadıköy'de kahreden olay! Torununu kurtaran kadın tramvayın altında kaldı
+-  Tea zeznula jelo i nije ga poslužila Gretiću: "Nisam stavila sve komponente"
+-  Mainoo að fá nýjan samning hjá Man Utd
+-  Зеленскому предрекли тяжелые времена после отставки Залужного
+-  Why the final stretch of the inflation fight is perilous
+-  2023最賺運動員 大谷翔平稱霸棒球
+-  収益性の高い物件を見つけるための3つの戦略。月数十万円の収入を得ている不動産投資家がやっていること
+-  拒絕奧客 行業可自訂管理辦法
+-  A boxing gym with a difference
+-  小池百合子弔唁李登輝
+-  Les métiers du nucléaire emploient 23.000 salariés en Bourgogne Franche-Comté, mais peinent à attirer des jeunes
