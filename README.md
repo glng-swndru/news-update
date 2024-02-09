@@ -1,11 +1,11 @@
 # Latest News
--  Elon Musk slams ‘insane’ volumes of US aid to Ukraine
--  ¡Crossover épico! Cristiano, impactado con la aparición de Undertaker en Riyadh Season Cup | VIDEO
--  高さ60メートルもの電波塔が盗まれる事件が発生、地元ラジオ局が放送停止を余儀なくされる
--  Một ngân hàng Mỹ ‘run rẩy’ trong khủng hoảng niềm tin: Cổ phiếu mất 50% giá trị, cổ đông đệ đơn cáo buộc lừa đảo, cổ tức bị cắt 70%
--  Ông Zelensky chính thức sa thải Tổng tư lệnh Quân đội: Binh sĩ Ukraine phẫn nộ
--  Más de 600 atenciones brindó la UNIF en el mes de enero, en Saltillo
--  米で高さ60メートルの電波塔が盗まれる 地元ラジオ局が放送停止に
--  Key warning ahead of Taylor Swift concerts
--  Key warning ahead of Taylor Swift concerts
--  El tiempo en La Almunia de Doña Godina: previsión meteorológica para hoy, viernes 9 de febrero
+-  Сердар Бердымухамедов поздравил Ильхама Алиева с победой на президентских выборах
+-  젤렌스키 "즉각적 변화 필요하다" 군 사령관 경질
+-  Real Estate Sector Cheers RBI's Decision To Retain Repo Rates, Expects Boost In Affordability & Housing Demand
+-  Salah laku pegawai, anggota menconteng arang ke muka PDRM - KPN
+-  Poetin in interview met Tucker Carlson: ’Alleen als Polen Rusland aanvalt, valt Rusland Polen aan’
+-  ​កម្ពុជា​រំពឹង​ថា​នឹង​មាន​រថយន្ត​អគ្គិសនី​ជាច្រើន​លាន​គ្រឿង​នៅ​ទសវត្សរ៍​ក្រោយ​
+-  Giá vàng nhẫn lập đỉnh 66 triệu đồng/lượng
+-  বাংলা ১ম পত্র - এসএসসি ২০২৪
+-  Thailand removes VAT on crypto trading to promote digital assets fundraising
+-  Tuberculosis screening concludes at Jalan Bukit Merah estate blocks, with two infectious cases found - Yahoo Singapore News
