@@ -1,11 +1,11 @@
 # Latest News
--  हल्द्वानी हिंसा: छतों पर पहले से जमा थे पत्थर, थाने पर फायरिंग; DM ने किए बहुत बड़े खुलासे
--  גם לאחר דברי נתניהו, המו"מ לעסקת חטופים לא הסתיים — הוא רק עבר לשלב אחר
--  टसबाट विजेताको टुंगो लगाउँदा विवाद, पछि संयुक्त विजेता घोषणा
--  Khloe Kardashian Shows Off Son Tatum's Growth Spurt in New Photos
--  ‘Đắt quá’: Lời than trời vì đồ cúng gia tiên lên tới vài triệu đồng dịp Tết Nguyên Đán, các bà nội trợ Hàn Quốc bỏ nhà đi du lịch nước ngoài
--  Esta es la multa por hacer “huachicoleo” de agua en la CDMX
--  ‘Gilmore Girls’: 3 Totally Obscure Stars Hollow Mysteries
--  Pemegang taruh Mahkamah Syariah akan dipanggil - Mohd Na'im
--  ¡Qué van a saber los Grammy de metal!
--  OpenAI chief Sam Altman is seeking to raise as much as $5 trillion to $7 trillion for a project that would boost the world's chip-building capacity and expand its ability to power artificial intelligence.
+-  立憲・泉代表 盛山文科相の更迭要求「ウソ・言い逃れ・利益相反の3アウト」
+-  10 tapaa, joilla suojaat aivosi muisti­sairaudelta – ”Merkitys on valtava”
+-  Mercato - PSG : Un Brésilien pour tourner la page Mbappé ?
+-  Achtung, Fahrradfahrer: Was durch diese Ampel in Goch anders werden soll
+-  La remontada de Andriy Lunin, el portero que vino del Este
+-  Tài xế lưu ý khi di chuyển đến Tây Ninh vào ngày mùng 4 Tết
+-  La Fórmula 1 en Madrid y el fin de los grandes premios clásicos
+-  Congress’ probable list of candidates for Lok Sabha polls in Karnataka
+-  Vídeo | Dónde están los efectos especiales en ‘20.000 especies de abejas’ o cómo se hizo el maquillaje en ‘La sociedad de la nieve’
+-  Gestionar las expectativas
