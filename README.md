@@ -1,11 +1,11 @@
 # Latest News
--  Esposa e filhos de desembargador: veja organograma de alvos da PF
--  Σεμπαστιάν Αλέ: Μεσαίο δάκτυλο στον καρκίνο
--  【タイパとコスパ】両方を実現させるたった1つの言い方 - 一流ファシリテーターの 空気を変えるすごいひと言
--  Muğla açıklarında 31 düzensiz göçmen yakalandı
--  Manuel Serrano asegura que el Jueves Lardero ha sido "el mejor prólogo para las mejores fiestas de Carnaval, con más de 15.000 personas disfrutando de las actividades programadas en el Día de la Mona"
--  Del Solar shoots 57 for lowest round in PGA Tour history
--  "Фюрер узнал о предательстве": Почему отставка Залужного напоминает конвульсии гитлеровской Германии
--  Barry Keoghan Once Tried to Eat 50 Eggs Like Paul Newman in ‘Cool Hand Luke.’ It Didn’t Go Well
--  Saime ha entregado cédulas a más de 6.000 personas en Tumeremo
--  Δημοσκόπηση Αlco: Προβάδισμα 16 μονάδων για ΝΔ - «Λανθασμένοι» χειρισμοί με τους αγρότες
+-  Hombres, quienes más acuden a la CDHEM a solicitar ayuda
+-  Tuffi: Mondiali Larsen e Timbretti decimi nella piattaforma sincro
+-  Rodrigo Hilbert mostra momento de filhos com a mão na massa e relembra dia de pesca
+-  SINIŠA MALI POSLAO PUNU PODRŠKU PREDSEDNIKU: Uprkos pritiscima, sačuvaćemo nezavisnu, suverenu i slobodnu Srbiju (FOTO)
+-  Jednom rečenicom EPPO otkrio što misli o izjavi Ivana Turudića
+-  LIVEBLOG BELGIAN CATS. Hoe kunnen de Cats zich plaatsen voor Spelen? - Door nederlaag van Senegal kan kwalificatie morgen al binnen zijn
+-  Посол Антонов раскрыл позицию США по поставкам оружия Украине
+-  Pixar, Marvel, Star Wars… Disney investit 1,5 milliard de dollars pour créer un univers dans Fortnite
+-  Arnaque au faux conseiller bancaire : pourquoi des escrocs arrivent encore à vider vos comptes
+-  The Chiefs and 49ers should provide a heavy dose of pre-snap motion in Super Bowl
