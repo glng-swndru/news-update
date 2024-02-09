@@ -1,11 +1,11 @@
 # Latest News
--  Mlade ne treba podcjenjivati: Otkrivamo kako se najviše informiraju
--  Illegálisan tartott ragadozót mentettek volna a tűzoltók a Citromfa utcában, ha az állat is így akarta volna
--  Talianski poľnohospodári sa sťažujú na mimoriadne miernu zimu
--  BESPOVRATNO 150 MILIONA ZA RURALNI TURIZAM: Mogu da se prijave seoska domaćinstva, salaši i etno-kuće
--  Ile wyniesie waloryzacja emerytur 2024. Sprawdzamy, o ile wzrosną emerytury po pierwszej i drugiej podwyżce w tym roku
--  Þarf á hjartaígræðslu að halda
--  Marmaray'da bir genç intihar etti
--  Izglasana promjena pravila, Čeferin: Neću se kandidovati za...
--  사퇴 의사 묻는 질문에 웃으며 “나이스 퀘스천”, ‘원격 근무’ 고집까지···성난 여론 부채질하는 클린스만 감독
--  باسل الرواس: سلطنة عُمان تسعى لتنظيم بطولات عالمية لمضاعفة الإثارة الرياضية
+-  US100 bullish bias intact above 17,709 [Video]
+-  Se mantiene detención por fraude en cobro de arroz en Veraguas
+-  Aerolínea latinoamericana Gol enfrenta turbulencia financiera
+-  Heparanase Inhibitors May Reduce Risk of Diabetic Kidney Disease, Diabetic Retinopathy in Patients with Diabetes
+-  How long does it take?
+-  Zidane floué : «C'est une honte»
+-  Luis Miguel en Costa Rica en vivo: El Sol de México canta este jueves en el Estadio Nacional
+-  Ribuan Perempuan Banyumas Berdoa Demi Pemilu Damai untuk Perubahan
+-  Sechs Jahre Liebe: James Norton trennt sich von Verlobter!
+-  Fritagna mannen på Sis-hemmet i Bärby välkänd smitare
