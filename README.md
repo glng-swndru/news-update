@@ -1,11 +1,11 @@
 # Latest News
--  Ležaljke i suncobrani biće znatno skuplji u Hrvatskoj
--  Family Feud Philippines: February 9, 2024 | LIVESTREAM
--  Szigetvár megszívta magát
--  Леверкузен – Байерн – мачът на сезона в Германия е тук
--  Hong Kong marine tech start-up Clearbot launches new solar-powered, self-driving boats to clean up ocean waste in India
--  Equipe de France : le calendrier complet des Bleus en Ligue des Nations
--  ¿Tienes problemas de oído? La novedosa timpanoplastia endoscópica puede ser la solución
--  Campus divestment activists eye fossil fuel profits on stolen land
--  Магія 29 лютого: що можна і не можна робити в цей день, прикмети
--  RDBN discussed tax rates and increases
+-  Gefum íslensku séns í hamförum samfélagsbreytinga
+-  La pompe à chaleur, un produit pour faire des économies. Explication avec les spécialistes Aware Transition Énergie
+-  Байден выступил с обращением к нации
+-  Så ska bilen skrapas för att du ska slippa böter
+-  MHP'li Ersoy'dan Kayseri tarımına müjdeler
+-  Stan zdrowia Zbigniewa Ziobry. Patryk Jaki: Czeka go operacja. Trzymamy kciuki
+-  Wladimir Putin, Tucker-Carlson: Interview-Auszüge im Video
+-  Cantan a Santiago ‘Las Mañanitas’
+-  Na geel en rood ook een blauwe kaart in het voetbal? FIFA noemt geruchten ‘onjuist en voorbarig’
+-  Så ska bilen skrapas för att du ska slippa böter
