@@ -1,11 +1,11 @@
 # Latest News
--  中学校教諭の男（26）逮捕 16歳未満の少女に映像送信要求・不同意わいせつの疑い 山形・米沢市
--  Kan ta flere år å få på plass permanente lokaler for politiet
--  Байден звернувся до американців із незапланованою промовою
--  Best Dishwasher Features of 2024 - CNET
--  アサヒビールが県内のプロスポーツチームとコラボ！第1弾はタンブラー【佐賀県】
--  В доме Яны Рудковской и Евгения Плющенко скандал: вот что случилось
--  Confira público e renda do primeiro jogo do Fluminense no Maracanã em 2024
--  VinFast sắp gia nhập thị trường Thái Lan, ráo riết tuyển dụng nhân sự?
--  Senate advances foreign aid bill as Zelenskyy replaces top general
--  Joona Niskala ryntäsi asuntokaupoille kuultuaan verouudistuksesta – Lainojen kysyntä harppasi Etelä-Karjalassa loppuvuonna
+-  Chuyên gia châu Á nhận xét thật lòng về lối chơi của ĐT Việt Nam
+-  à¶šà·œà·…à¶¹ à¶´à·Šâ€�à¶»à¶¯à·šà·� 5à¶šà¶§ à¶´à·�à¶º 15à¶šà·Š à¶¢à¶½à¶º à¶±à·‘
+-  Miền Bắc rét đậm, rét hại xuyên Tết
+-  Pengakuan Ten Hag: Cedera Pemain Rusak Ritme, Formasi Jadi Gak Jelas
+-  “ชัยชนะ” สส.ปชป. ลั่น ขัดขวางขบวนเสด็จฯ ไม่สมควรได้รับการ “นิรโทษกรรม”
+-  Mặt hàng từ Canada đổ bộ Việt Nam với giá rẻ bất ngờ, nhập khẩu tăng nóng hơn 1.000% trong năm 2023
+-  Speed up work on STP at Bellandur Lake: Minister Eshwar Khandre
+-  Corte Constitucional de Ecuador despenaliza la eutanasia
+-  Steve Aoki Kirim Doa untuk Anak Tamara Tyasmara yang Tenggelam lewat Tagar 'JusticeForDante'
+-  No clarity on OPS; govt gives relaxation of 2 years in DPCs
