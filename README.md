@@ -1,11 +1,11 @@
 # Latest News
--  Türkiye'nin ilk uzay yolculuğuna dair uzmanından değerlendirme
--  Срам - не срам: 4 зодии ще трябва да поискат помощ!
--  みんなで同じ１杯目！“甘酒”を乾杯酒に♪ 開発のきっかけは「お酒飲めず疎外感…」【新潟】
--  Η κοπή βασιλόπιτας των εργαζομένων του Δήμου Νάουσας
--  За прошлый год в МАРТ рассмотрели 125 заявлений о нарушении конкуренции
--  Chef mit 17 Jahren: Wie Jonas Molt sich selbständig gemacht hat
--  Hindistan'da cami yıkımına karşı çıkan olaylarda 4 kişi öldü
--  宿泊税導入に「反対」 札幌の宿泊団体、道と市に見合わせを要望
--  Okulda tarhana çorbası etkinliği yapıldı
--  Сглобката погна схемата за получаване на българско гражданство от руснаци
+-  Aus für X920 schon in diesem Jahr
+-  Mes bons plans: Les vidéos du moment qui animent la Toile
+-  Han stjal selvkørende teknologi fra Apple og flyttede til Kina: Nu får han millionbøde og ryger i fængsel
+-  The Race to Succeed Goldman's CEO Just Got More Complicated
+-  Sanremo, Annalisa svela la versione in spagnolo di "Sinceramente"
+-  Från Hej Monika till döden: ”Ett ämne som måste börja luckras upp”
+-  Proizvodnja industrije se je lani skrčila za 5,3 odstotka
+-  Kad dukros nepamirštų Lietuvos, Gintautas Norvegijoje įkūrė ansamblį
+-  Test Sony Alpha A9 III : la révolution de la photo sportive aura bien lieu
+-  "Glückliches Leben": So meisterte Teresa Enke schwere Zeit
