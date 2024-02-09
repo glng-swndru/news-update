@@ -1,11 +1,11 @@
 # Latest News
--  Best Weighted Blankets for 2024 - CNET
--  The Best Build For Black Swan, Honkai: Star Rail’s Mysterious Soothsayer
--  Bojan Bogdanović ima novi klub
--  Avrupa'nın en yoğun havalimanı oldu
--  From units to spare rooms: the urgent rural housing fix
--  Der Texas-Burger-Toast vereint rauchiges Burgerfleisch und würzige Barbecue-Soße
--  A kisteleki betlehemes, Harmat József is jelölt az Év embere díjra
--  Ulusal Kanal Sedat Ocakçı ile ilgili çarpıcı görüntülere ulaştı! Yurt dışına kaçmaya çalışmış
--  Global Artificial Intelligence (AI) in Operating Room Market Set for Remarkable Growth, Forging Path for Future of Surgical Procedures
--  Mischief of rats overrunning Vancouver skytrain station after dark
+-  Путин призвал учёных работать на опережение, а не догонять других
+-  Слуцкий не пришел на пресс-конференцию после 0:6 с «Зенитом», нарушив регламент
+-  Marcelo Claure sobre Guabirá - Bolívar: “La pelea fue vergonzosa”
+-  Naujasis „Kibirkšties“ treneris – Egidijus Ženevičius
+-  Várkonyi Andrea több milliós szettben érkezett Semjén kedvenc rendezvényére, a vadászati kiállításra
+-  Zalužného v čele ozbrojených sil vystřídal Syrskyj, oznámil Zelenskyj
+-  Giganti protestují proti změnám u Applu. Nelíbí se to ani EU, ve vzduchu visí právní bitva
+-  Zalužného v čele ozbrojených sil vystřídal Syrskyj, oznámil Zelenskyj
+-  Ukraine-Liveblog: General Saluschnyj abgesetzt – neuer Militärchef für ukrainische Armee
+-  Economic GENIUS AOC Tries Making Her Case That Illegals Aren't 'Takers' ANNND We Can't Even Make This UP
