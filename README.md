@@ -1,11 +1,11 @@
 # Latest News
--  アジアに絶対的強者いない 韓国
--  Minnesota museums adapt to new federal rules regarding Native objects and remains
--  "الأرصاد" يحذر منها.. ماذا تعرف عن "الرياح الهابطة"؟
--  Ubisoft se muestra "decepcionada" con las ventas de Assassin's Creed Nexus VR
--  Chiefs or 49ers? Fans face Super Bowl quandary as presidential politics muddy field
--  Situation politique nationale : Ismaila Madior FALL a convié les Missions diplomatiques et consulaires, les Organisations internationales accréditées à une séance d’informations.
--  Live-Musik und Polonaise im Schalander in Unna: Viele Fotos von der Weiberfastnacht-Party
--  Giovanna Antonelli mostra bumbum nas redes sociais e ganha elogios: 'Ah se o Tio Ali vê isso!'
--  رسميا.. نادي سوتشي الروسي يضم المغربي الدولي عطية الله
--  الاتحاد الأوروبي يمنح 210 ملايين يورو لدعم موريتانيا في مجال إدارة الهجرة
+-  Regulador en EE. UU. declara ilegales llamadas automáticas con voces generadas por IA
+-  Simpatizantes de Gustavo Petro marchan para exigir nuevo fiscal en Colombia
+-  KURTI JE BEŽAO OD OVOG PITANJA KAO ĐAVO OD KRSTA Vučić zagrmeo: Srbija će se uvek boriti za svoj narod na Kosovu (VIDEO)
+-  Bipartisan bill on animal testing transparency is downgraded to study after industry pushback
+-  Readying for first Super Bowl, Reno native Brandon Aiyuk has love for Las Vegas
+-  Gareth Southgate sends Euro 2024 warning to Marcus Rashford after Belfast booze bender with next squad picked in weeks
+-  Steve Clarke urges Ronaldo and co to stay on for Scotland swansong as boss roars 'I want them all'
+-  US Army spent billions on a new helicopter that now will never fly
+-  Poznata glumica optužila slavnog redatelja za silovanje: 'Imala sam samo 14 godina'
+-  McGinty plotting cup upset against ex-Man Utd team-mate in Rangers tie
