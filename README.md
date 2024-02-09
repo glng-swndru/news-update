@@ -1,11 +1,11 @@
 # Latest News
--  Kuningatar Camilla kommentoi kuningas Charlesin tilaa
--  3 Stocks to Buy for the New 2024 Bull Market
--  Court says Boca Raton violated public records law as developer aimed for beachfront project
--  J&J, Merck and Bristol Myers CEOs, under fire on Capitol Hill, seek to turn up heat on drug-market middlemen
--  Έρωτας φυγάς: Η Αλεξάνδρα έχει την αίτηση διαζυγίου στα χέρια της
--  Nowy pakiet pomocy USA dla Ukrainy i Izraela. Jest kolejna decyzja Senatu
--  Kamyonun altında kaldı, feci şekilde can verdi
--  VUČIĆ UPOZORAVA: Privremene institucije samouprave u Prištini kreiraju nepodnošljive uslove za život Srba
--  Minneapolis Mayor Frey says comment that remote workers would turn into "losers" was a joke
--  YRP'li Aydal'dan yerel seçim açıklaması: AK Parti'den Kocaeli ve Sakarya'yı istedik
+-  Estava prestes a mudar-se para casa de João Moura Caetano? "No cérebro dela..."
+-  Stiže nastavak Diznijevog hit filma VIDEO
+-  96 kişinin öldüğü apartmanın müteahhidi: Hiçbir suç ve kabahatim yok
+-  ضخ الأجانب يخترق هدوء الأسهم بـ 157 مليون درهم
+-  Placer Subaru donates over 150 jackets to children in need
+-  La ira de Milei con el Congreso siembra dudas sobre su plan: ¿qué pasará con la reforma laboral y privatizaciones?
+-  Θοδωρής Κατσαφάδος: Ο Πάνος Νάτσης ήταν σαν παιδί μου, δεν μπορώ να δω τις «Σέρρες» και να το ευχαριστηθώ
+-  Man, 26, fatally shot outside Bronx chicken restaurant
+-  Tiësto Pulls Out of Super Bowl Performance Due to ‘Family Emergency’ - Variety
+-  Padre de Osasco é alvo da PF em operação sobre golpe de Estado
