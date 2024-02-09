@@ -1,11 +1,11 @@
 # Latest News
--  Firenze: Mattarella a cerimonia per intitolazione parco a Pier Luigi Vigna
--  Save Up to 50% Off Allbirds Sustainable Sneakers, Shoes and Lounge Wear - CNET
--  Công bố những VĐV kiếm tiền giỏi nhất năm: Ronaldo dẫn đầu với con số khó tin, vượt xa Messi
--  Corinthians em crise: veja 10 caminhos para o clube sair da má fase
--  LIVE loting Nations League | Deze landen kan Oranje vanavond loten voor de groepsfase
--  LOTTO RESULT Today, Friday, February 9, 2024
--  Save Up to 50% Off Allbirds Sustainable Sneakers, Shoes and Lounge Wear - CNET
--  LIVE loting Nations League | Deze landen kan Oranje vanavond loten voor de groepsfase
--  Carnaval en Guaranda: desfile, elección de reina y conciertos
--  وفد أوروبي يزور مركز إيواء المهاجرين في طرابلس.
+-  Best Weighted Blankets for 2024 - CNET
+-  The Best Build For Black Swan, Honkai: Star Rail’s Mysterious Soothsayer
+-  Bojan Bogdanović ima novi klub
+-  Avrupa'nın en yoğun havalimanı oldu
+-  From units to spare rooms: the urgent rural housing fix
+-  Der Texas-Burger-Toast vereint rauchiges Burgerfleisch und würzige Barbecue-Soße
+-  A kisteleki betlehemes, Harmat József is jelölt az Év embere díjra
+-  Ulusal Kanal Sedat Ocakçı ile ilgili çarpıcı görüntülere ulaştı! Yurt dışına kaçmaya çalışmış
+-  Global Artificial Intelligence (AI) in Operating Room Market Set for Remarkable Growth, Forging Path for Future of Surgical Procedures
+-  Mischief of rats overrunning Vancouver skytrain station after dark
