@@ -1,11 +1,11 @@
 # Latest News
--  Chuyên gia châu Á nhận xét thật lòng về lối chơi của ĐT Việt Nam
--  à¶šà·œà·…à¶¹ à¶´à·Šâ€�à¶»à¶¯à·šà·� 5à¶šà¶§ à¶´à·�à¶º 15à¶šà·Š à¶¢à¶½à¶º à¶±à·‘
--  Miền Bắc rét đậm, rét hại xuyên Tết
--  Pengakuan Ten Hag: Cedera Pemain Rusak Ritme, Formasi Jadi Gak Jelas
--  “ชัยชนะ” สส.ปชป. ลั่น ขัดขวางขบวนเสด็จฯ ไม่สมควรได้รับการ “นิรโทษกรรม”
--  Mặt hàng từ Canada đổ bộ Việt Nam với giá rẻ bất ngờ, nhập khẩu tăng nóng hơn 1.000% trong năm 2023
--  Speed up work on STP at Bellandur Lake: Minister Eshwar Khandre
--  Corte Constitucional de Ecuador despenaliza la eutanasia
--  Steve Aoki Kirim Doa untuk Anak Tamara Tyasmara yang Tenggelam lewat Tagar 'JusticeForDante'
--  No clarity on OPS; govt gives relaxation of 2 years in DPCs
+-  Ar reikia mokytojų juodųjų sąrašų? Pasipylus skandalams, pedagogai baudžiami, bet grįžti gali jau po metų
+-  Arena brings alive Harper Lee’s classic To Kill a Mockingbird
+-  Arthur Cabral de novo a abrir caminho
+-  Eka Compositen asiakkaina ovat jo lähes kaikki kovat venebrändit, ja nyt kiikarissa näkyy jotain aivan yllättävää
+-  A la espera de una revolución cultural
+-  South Africa: Today’s latest news and headlines, Friday, 9 February 2023
+-  Как се пише: сграда или зграда?
+-  Voiko 80-vuotias hankkia koiran? Kennelneuvoja ja eläinsuojeluyhdistys kertovat, mitä iäkkään koiranystävän pitää harkita
+-  『ちいかわ』最新話、映画を見終わったちいかわの目に涙が…… それに気づいたハチワレの対応に「泣いちゃった」
+-  Top News at 9 am: 4 dead in Haldwani violence, Trump scores big win in US Virgin Islands and other stories
