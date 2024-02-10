@@ -1,11 +1,11 @@
 # Latest News
--  Turkmenistan exceeds 2023 revenue expectations in budget
--  Dyson Supersonic r 吹風機亮相 重量更輕、造型更流線
--  Sıcak hava çığ olaylarının erken yaşanmasına neden oldu
--  Inzaghi guarda Allegri. La rivelazione: «La sua Inter ha “rubato” una cosa alla Juve»
--  PSG : Le verdict est tombé pour Mbappé !
--  Crno-beli posetili grob klupske legende u Ivanjici
--  Lampung Rawan Kecurangan Pemilu 2024, Kapolda Ungkap Faktornya
--  الدفاع المدني يدعو إلى الحيطة من الأمطار في 5 مناطق
--  Indul a beporzás, nem érdemes kocsit mosni
--  Moody's İsrail'in kredi notunu düşürdü
+-  Microsoft, Copilot için yeni özellikleri duyurdu
+-  주북 러 대사 "북한 핵실험 가능성 배제 안해…책임은 미국에"
+-  Famagusta: Ο Ανδρέας Γεωργίου στα γυρίσματα με τον ανιψιό του
+-  Banfield busca su primer triunfo ante Argentinos Juniors
+-  Firme una decisión electoral: serán solo cinco distritos para candidatos locales indígenas
+-  Langlaufen - Elias Eischer: Keine Medaille trotz Bestzeit
+-  Μανώλης Κονταρός: Τιμή να παντρέψω τη Δέσποινα Βανδή με τον Βασίλη Μπισμπίκη
+-  V tem delu Slovenije je povečana nevarnost za nastanek zemeljskih plazov
+-  Al Torino servono più gol: angoli e punizioni le idee di Juric per svoltare
+-  「ブラックサンダー」で被災地を支援 国際NGOは「六花亭」とコラボ…チョコレート活用した支援広がる
