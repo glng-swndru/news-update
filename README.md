@@ -1,11 +1,11 @@
 # Latest News
--  AMLO pide “perdón” a Cabeza de Vaca
--  Yeni gelmediler, geri döndüler
--  Afta vagy Herpesz? Gyors gyógyulás titkai, amiket mindenkinek ismernie kell
--  رئيس مجلس القيادة يستقبل في عدن المبعوث الخاص للامم المتحدة
--  Gratulacje, statuetki i podziękowania. Oficjalne przekazanie dwóch wozów strażackich [ZDJĘCIA]
--  Nedeljsko kosilo: saltimbocca – odlični telečji zrezki, ki vzamejo le 15 minut (VIDEO)
--  Ella Dvornik snimljena s mladim producentom: 'Bili su prisni i držali su se za ruke'
--  Jonathan Schmid: „Ich hätte nie gedacht, dass ich Ribéry überholen würde“
--  Merekezefendi Başkan Adayı Başer, saha çalışmalarına ağırlık verdi
--  Arxivada la causa contra Anna Gabriel per un presumpte delicte de desobediència: «La repressió continua ben viva»
+-  «Griezei nav traktora, ar ko aizbraukt pie Saeimas.» Intervija ar ornitologu Ķerus
+-  Χανιά: Ντυμένοι στα λευκά, συγγενείς και φίλοι λένε το τελευταίο «αντίο» στη Ραφαέλα Πιτσικάλη - Φωτογραφίες
+-  Güney Kıbrıs'ta bir kadın 480 bin Euro dolandırıldı
+-  Le dragon, symbole sacré sur les vêtements impériaux
+-  VIDEO Pokidali Cecin plakat u Zagrebu: 'Ovo je sramota!'
+-  Kiderült, mi okozta a Rocky-filmek színészének halálát
+-  Orbán Viktor utasította Varga Juditot a kegyelem aláírására?
+-  Otomotiv üretiminde ve ihracatında flaş gelişme
+-  Наступний після Залужного: Україна зняла з посади першого заступника глави Міноборони
+-  Hatay'da yanan ev kullanılmaz hale geldi
