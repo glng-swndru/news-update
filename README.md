@@ -1,11 +1,11 @@
 # Latest News
--  ONGC, Divi’s Labs, Aurobindo Pharma Q3 Results Today — Earnings Estimates
--  Amazon es acusada de recomendar los productos más caros
--  Pedestrian killed in Wawatosa crash thrown approx. 30 feet, according to a witness
--  VIDEO: Animal control officers attempt to seize B.C. senior’s leashed dog
--  Päivän horoskooppi lauantaina 10.2.
--  日, '독도는 일본땅' 행사에 12년째 차관급 파견
--  Gobierno no está facultado para calificar asilo a Martinelli
--  Benzema desmente especulações de insatisfação com o futebol saudita!
--  Naslovna strana za 10.2.
--  Three Kansas City Chiefs storylines to watch during Super Bowl LVIII vs. 49ers
+-  Triplete de Juan Ignacio Ramírez para un nuevo triunfo del Newell's de Mauricio Larriera
+-  ‘যার কাছে শুনেছেন তাকে জিগ্যেস করেন’
+-  Kiinan suurin juhla­sesonki koittaa
+-  Manifestations à Saint-Louis : Ce qu’il faut savoir sur le décès de l’étudiant de l’UGB
+-  පොදු ප්‍රවාහනයේදී සළෙළුන් කොටුකරන මෙහෙයුම
+-  Ryan Leaf returning to Spokane to share mental health message
+-  Why Ukraine’s new top general is known as the “butcher”
+-  පල්ලේකැලේ පිටිය පැතුම් වාර්තාවලින් හොල්ලයි
+-  Manifestations à Saint-Louis : Ce qu’il faut savoir sur le décès de l’étudiant de l’UGB
+-  코인 '김치 프리미엄' 노리고 4조 원 해외 송금…일당에 "무죄"
