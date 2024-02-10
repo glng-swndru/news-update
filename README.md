@@ -1,11 +1,11 @@
 # Latest News
--  TUTULACAK VASİYETİ BİLMEK DE ERDEMDİR
--  CURPA: Malcontento ta sigui crece bou nos Cuerpo Policial y pueblo
--  Gazze'den sonra hedef Anadolu
--  Belum Kenal Lama, Tamara Tyasmara Tidak Menyangka YA bisa Membunuh Putranya
--  Saadet Partisi milletvekili sordu: Fahri Kur'ân kursu öğreticilerine kadro ne zaman
--  Απεργία τρένων στην Ισπανία - Πάνω από 300 δρομολόγια ακυρώθηκαν
--  Rubikpara’nın çözümleri UGİK’te ilgi gördü
--  ¿Quién será el sustituto de Darwin Lom en Mixco para enfrentar a Achuapa?
--  Police investigate GC influencer sleeping arrangements after infant son’s death
--  Seçim; Depremler ve Kalkınma Kooperatifleri-3
+-  Израиль совершил ракетный налет на окрестности столицы Сирии
+-  Shani Dev: इन चीजों का भोग लगाने से प्रसन्न होते हैं शनि देव, खुशियों से भर देते हैं झोली
+-  戴資穎守歲「早安晚安分不清」 穿紅T恤喜氣賀新年
+-  장민호, 팬x매니저 향한 진심 고백 “정말 고맙습니다” (편스토랑)
+-  Sarap 'Di Ba? (February 10 2024) | LIVESTREAM
+-  Bộ Công an khen thưởng lực lượng phá vụ án giết người ở Vĩnh Long
+-  NFL abrió la puerta para que el flag esté en los Juegos Olímpicos, asegura Diana Flores
+-  Mengenal Kawalpemilu.org yang Kembali Hadir Pantau Perhitungan Suara Pilpres 2024
+-  Cuaca Jawa Timur 10 Februari 2024, Pagi-Malam Gerimis dan Hujan Lebat
+-  Bolsonaro habría planeado un ‘golpe de Estado' según un video dado a conocer por la Corte de Brasil
