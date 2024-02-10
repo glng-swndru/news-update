@@ -1,11 +1,11 @@
 # Latest News
--  "마이클 잭슨 저작권 절반, 소니가 8천억 원에 사들인다"
--  Taylor begrijpt critici niet na opleving Ajax: "Denk dat ik er weer beter in kom"
--  De la Hoz: “Es un partido para ganarlo y seguir arriba”
--  Argentina vs. Brasil en vivo, Preolímpico Sub 23: cuándo juegan, a qué hora y en qué canal ver transmisión
--  قاسم‌پور: سبک بازی ایران خاصیت طارمی را گرفت/ نتیجه هم می‌گرفتیم، هیچ چیزی تغییر نمی‌کرد
--  ਵੇਖੋ ਰਕੁਲ ਦੀ ਕਿਯੂਟ ਸਮਾਈਲ
--  Thời gian vắng lặng hiếm hoi của các 'điểm đen' giao thông Hà Nội ngày mùng 1 Tết
--  Nekadašnji igrač Bayerna postaje nova desetka Juventusa
--  Why is there more cancer in younger patients? A scientist explains
--  Dekat dengan Happy Asmara, Segini Beda Harta Anak Haji Isam dan Denny Caknan
+-  Izlaze detalji o velikoj nesreći u Rijeci: Mladi vozač u zavoju je izgubio nadzor nad vozilom
+-  Bröckelt die Firewall rechts?
+-  Megawati Bikin Heboh Hajatan Rakyat Semarang, Berdangdut Ria Bareng Nassar
+-  Матч Аргентини з Нігерією скасований через конфліктну ситуацію з Мессі
+-  В Канаде создали альтернативную архитектуру кубита со встроенной защитой от ошибок вычислений
+-  LIVE Primavera 1, Torino-Lazio 0-0 alla fine del primo tempo
+-  Qafqaz Müsəlmanları İdarəsinin Rusiya Federasiyasındakı səlahiyyətli nümayəndəsi Prezident İlham Əliyevə təbrik məktubu ünvanlayıb
+-  Live-Ticker: Live! RWE bei Spitzenreiter Regensburg: Das Spiel im Ticker
+-  Užasne scene na Floridi! Avion sleteo na autoput, a onda je usledio horor! Najmanje dvoje mrtvih! (VIDEO)
+-  Galatasaray - Başakşehir maçının VAR hakemi belli oldu
