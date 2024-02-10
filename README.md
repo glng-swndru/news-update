@@ -1,11 +1,11 @@
 # Latest News
--  أرقام الأردن قبل نهائي كأس آسيا 2023
--  Instagram y Threads actualizan su enfoque ante el contenido político
--  Servis otobüsü şoförü, silahlı saldırıda öldü
--  بازی مستقیم در فوتبال آسیا هم منسوخ شده/ زمان تغییر نسل فوتبال ایران است
--  Antrean Kendaraan Pendukung AMIN Memanjang 4 KM
--  ក្រសួងសុខាភិបាល ចេញសេចក្តីប្រកាសព័ត៌មាន ស្តីពីករណីស្លាប់ដោយសារជំងឺផ្តាសាយបក្សីលើកុមារាអាយុ៩ឆ្នាំ
--  তাইওয়ান প্রণালির আকাশসীমায় ৮টি চীনা বেলুন শনাক্ত
--  Cultural forum to observe V-Day as ‘Book Lovers Day’
--  Doorstep Ration Delivery: ਲੋਕ ਸਭਾ ਚੋਣਾਂ ਤੋਂ ਪਹਿਲਾਂ ਕੇਜਰੀਵਾਲ ਦੀ ਅੱਜ ਪੰਜਾਬ 'ਚ ਤੀਜੀ ਰੈਲੀ, ਘਰ-ਘਰ ਮੁਫ਼ਤ ਰਾਸ਼ਨ ਸਕੀਮ ਦੀ ਹੋਵੇਗੀ ਸ਼ੁਰੂਆਤ
--  ¿Historia con final feliz?: Bruno finalmente le pedirá pololeo a Carol en “Como la vida misma”
+-  Nga lên tiếng về việc Ukraine thay tư lệnh quân đội
+-  Неповернення блудного сина
+-  Southampton: Pensioner nearly killed friend of 20 years in stabbing
+-  Solskjaer đưa ra lời cảnh tỉnh cho Rashford sau vụ chơi đêm
+-  Israel PM orders army to prepare to evacuate civilians from Gaza's Rafah
+-  كاريكاتير عماد عواد
+-  Tin nóng bóng đá Việt 10/2: Vợ Filip Nguyễn lần đầu ăn Tết ở Việt Nam, cầu thủ Ngọc Dũng báo tin vui
+-  Sähköautojen hinnat sen kun ropisevat – Kahden merkin Suomi-hinnoista putosi juuri jopa 8 000 euroa
+-  Vì sao Amkor chọn Việt Nam là 'cứ điểm' sản xuất bán dẫn lớn nhất thế giới?
+-  Konzert: Isselburg: The Gregorian Voices treten in der Kirche auf
