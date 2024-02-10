@@ -1,11 +1,11 @@
 # Latest News
--  Polisten Scooter uyarısı! 690 TL cezası var
--  Olimpijsko progo poimenovali po Juretu Franku
--  Bakan Kacır'dan Alper Gezeravcı açıklaması! 'Türkiye tarih sayfasında yeni bir perde açmıştır'
--  Caso Berenice: Fiscalía informó que se agravó la imputación a violación seguida de muerte
--  Saarbrücken gegen Gladbach wird am 12. März nachgeholt
--  Защитник «Крыльев Советов» Барач перешел в «Актобе»
--  DFB-Pokal 2023/24 Ergebnisse: Gegen wen müssen Leverkusen, Lautern und Co. im Halbfinale ran?
--  El encarcelado expresidente peruano Castillo funda nuevo partido político
--  Schimmeloverlast zorgt voor longproblemen, "Crepeer in m'n woning"
--  وابل الصواريخ الاخير... لم تشهده اسرائيل منذ العام 2006!
+-  Meeting the Challenge to Ready Minority Candidates for Utility Careers
+-  New Zealand’s First Global Geopark Preserves a Host of Unique Features
+-  Le yaourt à boire est-il vraiment bon pour la santé ?
+-  Nepoznati Michelangelo: Tajna sobe ispod sakristije bazilike San Lorenzo
+-  Libre antenne - Marie déplore la mauvaise qualité de prise en charge des personnes âgées par les associations
+-  Soho House Is Heading Toward Bankruptcy, a New Report Says
+-  B.C. police officer fit to survive world’s coldest, toughest race
+-  Natur und Umwelt in Kamp-Lintfort : Jäger forsten Wald und Wiesen auf
+-  Sea lions making merry may signal Greater Victoria herring spawn
+-  Что произошло за день: пятница, 9 февраля
