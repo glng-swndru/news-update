@@ -1,11 +1,11 @@
 # Latest News
--  Pedro Gonçalves: «José Peseiro deu uma prova de competência»
--  Chad makes strides as veteran Hawks ease towards round 1
--  Avaí bate Fluminense na abertura da Supercopa do Brasil feminina
--  Arema FC Pecat Fernando Valente Setelah Kalah dari PSIS, Target Keluar Zona Degradasi
--  Thời tiết nhiều nơi trên cả nước thuận lợi cho kế hoạch du xuân trong ngày mùng 1 Tết
--  Pelotas anuncia contratação de lateral-direito
--  Atacan a regidor de PT en Xochitepec, Morelos
--  Comisión de Disciplina deniega apelación de Rubilio Castillo
--  Top cổ phiếu ngân hàng được khối ngoại ưa thích trước thềm Tết Nguyên đán
--  정부 할인 지원한다는데…사과·귤값 1년새 두배 올라
+-  Le PSG va mourir, la folle annonce en direct
+-  ‘I’m obsessed with sport – to work on a subject you’d do for free, it’s heaven’: Dubliner Stephen Dowling hits the ground running at Fanatics
+-  NT market update: New year, new price drop
+-  Analysing PM Modi's Assault on Congress in His Final Address to Parliament
+-  CyL, a la cabeza en plazas residenciales con 7,73 por cada 100 y superávit de 17.234
+-  7 Drama Korea Tayang di Netflix 2024, Squid Game Season 2 Tayang di Akhir Tahun
+-  Letters: Families living through the trauma of tube-feeding a loved one need far greater support
+-  নতুন সিনেমা নিয়ে নতুন ইয়ামি
+-  Declan Devine confident Conor Bradley will stay with Northern Ireland rather than switching to Republic
+-  Golpe de autoridad o de Estado en Madrid
