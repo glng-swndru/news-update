@@ -1,11 +1,11 @@
 # Latest News
--  Fatih Karagümrük'e Suudi Arabistan'dan golcü
--  [속보] S&P500지수, 사상 첫 종가 5000선 돌파
--  EVO KOLIKA JE SADA VEROVATNOĆA DA ĆE CRVENA ZVEZDA PROĆI U TOP 10 EVROLIGE: Posle večerašnjeg poraza došlo je do OGROMNE promene
--  Ensino superior: partidos de acordo em devolver “gestão democrática” às instituições
--  Tchad : inauguration d'un Bureau Exécutif Syndical à l'INSEED pour renforcer la voix des employés
--  Asansörlü defineciler evin 40 metre altında yakalandı
--  Ataque armado en barbería de Buena Fe causa muertos y heridos
--  German firm BASF to pull out of Xinjiang after Uyghur abuse claims - The Guardian
--  İmamoğlu’nun cumaya gittiği caminin imamı: Alevi, Sünni, Şii ayırmadığı için seviyoruz
--  Ateş Kuşları dizisini izleyen hiç kimse inanamadı; Yeni bölümde bu da oldu
+-  SRD holding emergency support virtual learning sessions
+-  竹科春節首見 8吋晶圓廠放假7天
+-  ‘Manicho’, escarabajo muy común en la época lluviosa de Guayaquil, y de aspecto poco agraciado, es parte de la dieta de otros animales
+-  林哲熹蔡凡熙 若擁10億先買房-最想打造屬於自己的家 不放棄演員職業
+-  The All-Electric Cadillac Escalade Is Coming, and It Could Be the Biggest One Ever
+-  男團F4掀網球熱 9月在台有續集
+-  後輔中心幹部PO中共閱兵片 後指部：撤文並檢討
+-  What People Are Getting Wrong This Week: Taylor Swift Conspiracy Theories
+-  Formal names for Bennington multi-use pathways proposed
+-  ছুটির দিনে বাণিজ্য মেলায় লক্ষাধিক মানুষ, সর্বোচ্চ বিক্রি
