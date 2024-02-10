@@ -1,11 +1,11 @@
 # Latest News
--  البرز در رتبه آخر سرانه آموزشی/هر دانش‌آموز کمتر از ۴ مترمربع فضا دارد
--  Fenerbahçe’nin kış transfer dönemi dosyası! Kimler geldi, kimler gitti
--  Dead zone: New threat to iconic strip
--  "Angst vor Babys": Travis Barkers Sohn hat Bruder nie im Arm
--  Absa Hane de Seneweb blessée et sous arrestation : La Convention des Jeunes Reporters du Sénégal exige sa libération
--  Fleury hral zrejme poslednýkrát proti Penguins, blysol sa v závere
--  Predrag Mijatović kažnjen zbog finansijskih malverzacija
--  Nữ sinh nguy cơ mù vĩnh viễn do pháo hoa bắn vào mắt
--  Mithun Chakraborty health: Son Mimoh shares update after the veteran actor gets hospitalised in Kolkata for chest pain
--  KVOTE "PADALICE": Kladionice pomažu i ove subote
+-  "마이클 잭슨 저작권 절반, 소니가 8천억 원에 사들인다"
+-  Taylor begrijpt critici niet na opleving Ajax: "Denk dat ik er weer beter in kom"
+-  De la Hoz: “Es un partido para ganarlo y seguir arriba”
+-  Argentina vs. Brasil en vivo, Preolímpico Sub 23: cuándo juegan, a qué hora y en qué canal ver transmisión
+-  قاسم‌پور: سبک بازی ایران خاصیت طارمی را گرفت/ نتیجه هم می‌گرفتیم، هیچ چیزی تغییر نمی‌کرد
+-  ਵੇਖੋ ਰਕੁਲ ਦੀ ਕਿਯੂਟ ਸਮਾਈਲ
+-  Thời gian vắng lặng hiếm hoi của các 'điểm đen' giao thông Hà Nội ngày mùng 1 Tết
+-  Nekadašnji igrač Bayerna postaje nova desetka Juventusa
+-  Why is there more cancer in younger patients? A scientist explains
+-  Dekat dengan Happy Asmara, Segini Beda Harta Anak Haji Isam dan Denny Caknan
