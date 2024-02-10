@@ -1,11 +1,11 @@
 # Latest News
--  BRAVE 2024 line up revealed
--  Mit Design aus Gmünd eine Million Euro im Jahr sparen
--  Thực hư việc CSGT “không thổi nồng độ cồn dịp Tết”
--  योजनाबद्ध तरीके से होगा राज्य के अल्पसंख्यकों का विकास — सदस्य राष्ट्रीय अल्पसंख्यक आयोग
--  Francos le respondió a los gobernadores: “No hay una guerra con el interior”
--  Srbi 'sredili' Amerikance i sad mirno čekaju Hrvatsku u četvrtfinalu
--  Concurso Nacional Unificado: entenda como serão as provas
--  Igaunijā joprojām meklē sievieti, kura nesen dzemdējusi. Atrasts jaundzimušā līķis
--  Il neurologo: "Ore piccole davanti alla tv? Aggressivi e irritabili il giorno dopo"
--  Inumet emitió alerta amarilla y naranja para oeste del país: las localidades afectadas
+-  "Si j'avais su que c'était Nikos Aliagas..." : l'un des cambrioleurs de l'animateur fait de surprenants aveux
+-  Subiu cachet de Miguel Vicente mas não foi suficiente para algarvio mudar de ideias
+-  وسائل إعلام إسرائيلية: وابل الصواريخ من لبنان في الصلية الأخيرة لم نشهده منذ عام 2006
+-  JUDO Splićanka Barbara Matić primljena u sjedište Međunarodnog olimpijskog odbora
+-  Oke Gas! Jalan Juventus Angkut Partey Dari Arsenal Sudah Terbuka
+-  "САЩ напълно подкрепят финансирането за Украйна": Конгресмени посетиха Киев (ВИДЕО)
+-  Кои са най-подходящите дни за сватба през 2024
+-  Putin considera “imposible” derrotar a Rusia en Ucrania
+-  Prabowo Hadiri Kampanye Akbar di Sidoarjo
+-  Justyna Steczkowska PRZEPRASZA za rozpowszechnianie wyśmiewającego Izabelę Zabielską nagrania: "Kazałam to zdjąć" (WIDEO)
