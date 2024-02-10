@@ -1,11 +1,11 @@
 # Latest News
--  Muž surově rdousil přítelkyni, po přiznání dostal za pokus o vraždu devět let
--  De Jong konačno spreman da napusti Barselonu
--  Javier Milei le dio like a un tuit en el que vinculan a Maximiliano Pullaro con el narcotráfico
--  DŽEJ VRATIO LJUDE U BIOSKOPE: Za tri nedelje u Srbiji i regionu film "Nedelja" o životu pevača pogledalo 400.000 gledalaca
--  Se concretó un gran operativo de Salud en el CIC San Carlos de La Banda
--  GRAAFIK ⟩ Tallinna bensiinihind pakkus positiivse üllatuse
--  British Vogue's First Black Editor's Final Cover Will Blow Your Mind
--  Arda Turan istedi. Eyüpspor'dan radikal karar geldi. Kocaelispor anında aynısını yaptı
--  Thẻ xanh được áp dụng, hình ảnh tương tự Chiellini phạm lỗi Saka có thể bị xóa bỏ hoàn toàn
--  大雪像滑り台 楽しく何度も 大通会場１０丁目 さっぽろ雪まつり
+-  Şevval Şahin, cesur tarzıyla mest etti: Pozları beğeni yağmuruna tutuldu!
+-  الراعي في قداس مار مارون: إنقاذ البلاد يستدعي رئيسا يتحدى جميع الشواذات المنتشرة في الدولة اللبنانية
+-  Сборная России U18 разгромила Казахстан U20 в матче Кубка будущего
+-  Ex gerente general Billy Eppler, suspendido por inventar lesiones
+-  Dân tình than xem Táo Quân phải cần vietsub vì khó nghe, một mỹ nhân phim Việt bị chê thoại như trả bài
+-  Merve Özbey ile Kenan Koçak evliliklerinde dört yılı geride bıraktı
+-  Pokud jste se jako nezletilí objevili ve videu nebo na obrázku nahraném nebo zobrazeném na stránkách Pornhub.com, Pornhubpremium.com, Redtube.com, Redtubepremium.com, YouPorn.com, YouPornpremium.com, Tube8.com, Mofosex.com, ExtremeTube.com, Spankwire.com,
+-  Hedayatullah Zyarmal: Von Afghanistan nach Bruchhausen-Vilsen
+-  Bankas „Barclays“ nebefinansuos naujų naftos ir dujų projektų
+-  Konzerte in München: Riesenansturm auf Adele-Tickets – das ist die letzte Chance auf Karten
