@@ -1,11 +1,11 @@
 # Latest News
--  東海道新幹線の車内販売用ワゴン、1台10万円・50台限定販売も50倍の応募
--  Celebrities Had Some Great Advice For Their 18-Year-Old Selves. Viola Davis' Was The Best, But Questlove's Was the Funniest
--  Sanremo 2024, Fiorello si "vendica": la battuta su John Travolta è virale
--  Betis se rutinskom pobjedom u gostima 'zagrijao' za utakmicu s Dinamom
--  AKO 24.000 LJUDI VIDI ISTU STVAR... Sferopulos o odluci sudija koja je izazvala haos u Areni
--  Bad Gyal fa moure el cul al públic del Sant Jordi com si no hi hagués demà
--  Nisam video grešku! Trinkijeri ne deli mišljenje "delija"
--  Madhya Pradesh: Man, Brother Sentenced To 20-Year RI For Raping Kin
--  O cerco está se fechando contra Bolsonaro
--  Vai britu dziedāšanas konkursā "X faktors" vistālāk tikusī latviete ir nākamā "Supernovas" zvaigzne?
+-  Loose 45V guidance would backfire on taxpayers, clean hydrogen, and climate
+-  What can work do for me? A lot when it comes to self understanding, survey shows
+-  'We are still there' - Pep Guardiola rates Man City chances of winning another treble
+-  Trump addresses NRA members in Pennsylvania: Watch live
+-  Louise Thompson darf nach über zwei Wochen Klinik verlassen
+-  Смарт-очки Frame с мультимодальным ИИ Noa оценены в $349
+-  ボクシングの判定、AIカメラで見える化 審判「言い訳ができない」
+-  PROSI PO BEČU I LAŽE LJUDE, JAČE ME JE STISNUO! Miljana Kulić se javno obratila Zolinoj majci, iznela šokantne stvari
+-  Pep Guardiola tells Jack Grealish to get back to being himself to reclaim Man City starting place
+-  Fast food is too expensive and consumers are pushing back; how people are earning and spending in Montana
