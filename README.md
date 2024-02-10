@@ -1,11 +1,11 @@
 # Latest News
--  What Is The Knuckles Trailer Song?
--  Gümüşhane’nin kurtuluşu kutlanacak
--  ‘Shōgun’: FX Releases Extended Trailer For Series Adaptation Of James Clavell Novel — Update
--  Burdur'da eski eş cinayetinde, katil zanlısı ve yardım eden 6 şahıs tutuklandı
--  Bivšem doušniku DEA doživotna kazna zbog uloge u atentatu
--  El GBC no puede con el método Aíto
--  Trajković: Svaka utakmica nam je presudna
--  5 Mukjizat Ilmiah Alquran Ini Dibuktikan Sains Modern dan tak Terbantahkan
--  PepsiCo named Cork Company of the Year
--  Agression de journalistes par des FDS : la CJRS condamne vigoureusement
+-  Rotary Club Of VGC Provides Relief Materials To 500 Indigent People In Ikota
+-  Đồi chè Mộc Châu tựa tiên cảnh trong sương sớm
+-  ¿Qué artistas han rechazado presentarse en el Super Bowl?
+-  Crise au Sénégal : Moussa Niakhaté prend ses responsabilités et dénonce les « actes de violence »
+-  Ben Affleck evita tema de revelaciones de Britney Spears
+-  沖縄市職員、58件の出退勤を虚偽申請 所属長のIDなどを不正利用 30代職員を停職1年の懲戒処分 - 沖縄タイムス＋プラス ニュース
+-  More details emerge as Horner faces music
+-  Hellmann's y Pedro Sola se reconcilian
+-  F1 boss grilled over ‘inappropriate behaviour’
+-  F1 boss grilled over ‘inappropriate behaviour’
