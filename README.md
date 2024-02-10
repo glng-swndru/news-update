@@ -1,11 +1,11 @@
 # Latest News
--  Трусът в общината люшна и НС - “Възраждане” изпадна до 4-а сила, и БСП се цепи (Обзор)
--  ‘The one they have to beat’: Fully Lit’s licence to thrill
--  Breast cancer survivor joins chemotherapy buddy for Inverness catwalk fundraiser
--  Hugo de Jonge denkt bij Sylvana Simons aan het ’lekkere wijf’ bij TMF
--  Helenans express frustration over lack of emergency shelter
--  Daily Wage Worker Arrested for Stealing ₹14.5 Lakh from Employer
--  Srbi pokrenuli temu u muško-ženskih odnosima pa dobili odgovore koje nisu očekivali: "BRIGA MENE DRUŽE ZA TO, MENI TREBA NEŠTO MNOGO BITNIJE"
--  Com operação-padrão de servidores, IBC-Br de dezembro será publicado com atraso, no dia 19
--  Hajradinović ponovo u centru pažnje: Asistencija i gol za novu pobjedu
--  TOP NEWS ore 20 - La Salernitana ritrova Dia. Camarda, pronta la firma col Milan
+-  Aday gösterilmeyen belediye başkanı istifa edip adaylığını açıkladı. Şanlıurfa'da AKP'den istifa furyası sürüyor
+-  Gezeravcı, Dünya'ya dönüşünü ardından bir hafta gözlem altında tutulacak
+-  Fatehgarh Sahib-based agent arrested in fake visa racket by Delhi Police
+-  「向上心がある子」が持っている2つの共通点とは？〈教育専門家が解説〉 - 「強み」を生み出す育て方
+-  Bakanı Kacır, Alper Gezeravcı ile görüştü
+-  A mensagem que o toureiro enviou a um amigo de Luciana Abreu
+-  İranın Ermənistan sərhədləri ilə bağlı mövqeyi… - Qriqoryan
+-  Get your Apple Watch Ultra 2 for $70 off at Best Buy right now
+-  Madagaskar obhajuje kastrácie páchateľov sexuálneho násilia na deťoch
+-  Hamas exige mil camiões diários de ajuda para evitar uma fome no norte de Gaza
