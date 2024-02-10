@@ -1,11 +1,11 @@
 # Latest News
--  Xem linh vật rồng phun lửa ở Đà Nẵng chờ đón giao thừa
--  KRATKA PRIČA O NAMA, NAŠIM RODITELJIMA I GODINAMA: Marko Čadež, predsednik Privredne komore Srbije, u nikad viđenom izdanju
--  Likör- und Ölmanufaktur in Köngen: Geschmack ist hier Familiensache
--  Dinamo poslao Rukavinu u Goricu
--  DIA and Women in DSO Join Forces to Empower Women in Dental Entrepreneurship and Investing
--  605.000 TL’ye Renault Megane Sedan sahibi olabilirsiniz!
--  AK Parti'nin Düzce Belediye başkan adayları tanıtıldı
--  Özak işçilerine 'özel yasak' uygulanmıştı: İşçiler ve sendika temsilcileri gözaltına alındı
--  Ertuğruloğlu: Maria Angela Holguin Cuellar'dan bir beklentimiz yok
--  Найдена безопасная замена пестицидам
+-  BEBA PREMINULA U SARAJEVU: Jeziva scena, majka upala u bolnicu i molila za pomoć, opasna bakterija zahvatila MOZAK
+-  DSÖ: İşgal altındaki Filistin topraklarında sağlık merkezlerine yönelik 721 saldırı belgeledik
+-  Mujer es sentenciada por homicidio a su bebé en Nogales
+-  Anušić 'prikočio' s najavom izbora u svibnju; očitovao se o EPPO-u u Hrvatskoj
+-  Teri Baaton Mein Aisa Uljha Jiya Public Review: Shahid Kapoor and Kriti Sanon’s sizzling chemistry impresses fans [Video]
+-  В США потребовали отставки генсека ООН и главы агентства для помощи Палестине
+-  Merasa Terhormat Didatangi Gibran, Umuh Muchtar Dukung Prabowo-Gibran Tak Bawa-bawa Bobotoh Persib
+-  Армия Германии обратила внимание на угрозу правых экстремистов в своих рядах
+-  Remaniement : le désaccord avec François Bayrou n'est qu'une "péripétie politique", selon Emmanuel Macron
+-  "Sosteniamo la loro lotta": Ornella Muti a Sanremo al fianco degli agricoltori
