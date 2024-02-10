@@ -1,11 +1,11 @@
 # Latest News
--  What is Google's Gemini AI tool (formerly Bard)? Everything you need to know
--  Zmaga v ZDA, Anja Mandeljc do najboljše uvrstitve v sezoni
--  "Poi non si stupisca...": la gonna di Mengoni nel mirino di Vannacci
--  Още един депутат е привлечен по скандала с куфарите с пари в Европарламента
--  Co za powrót Ekstraklasy! Nieprawdopodobne emocje. Gol w 93. minucie! [WIDEO]
--  Portuguesa e Operário jogam com arbitragem de Marcos Mateus Pereira
--  Microsoft julkaisi uuden version Copilot-tekoälystä jo nyt – mukana kuvageneraattori ja uusi kielimalli
--  J2US: Ο Νίκος Κοκλώνης και η Βίκυ Σταυροπούλου σε ρόλο «Τζουτζούκου-Τζουτζούκας»
--  Γ. Γεραπετρίτης - Άντ. Μπλίνκεν: Η Ελλάδα υπέγραψε τη συμφωνία "Άρτεμις" για ασφαλή εξερεύνηση του διαστήματος
--  Co za powrót Ekstraklasy! Nieprawdopodobne emocje. Gol w 93. minucie! [WIDEO]
+-  Трусът в общината люшна и НС - “Възраждане” изпадна до 4-а сила, и БСП се цепи (Обзор)
+-  ‘The one they have to beat’: Fully Lit’s licence to thrill
+-  Breast cancer survivor joins chemotherapy buddy for Inverness catwalk fundraiser
+-  Hugo de Jonge denkt bij Sylvana Simons aan het ’lekkere wijf’ bij TMF
+-  Helenans express frustration over lack of emergency shelter
+-  Daily Wage Worker Arrested for Stealing ₹14.5 Lakh from Employer
+-  Srbi pokrenuli temu u muško-ženskih odnosima pa dobili odgovore koje nisu očekivali: "BRIGA MENE DRUŽE ZA TO, MENI TREBA NEŠTO MNOGO BITNIJE"
+-  Com operação-padrão de servidores, IBC-Br de dezembro será publicado com atraso, no dia 19
+-  Hajradinović ponovo u centru pažnje: Asistencija i gol za novu pobjedu
+-  TOP NEWS ore 20 - La Salernitana ritrova Dia. Camarda, pronta la firma col Milan
