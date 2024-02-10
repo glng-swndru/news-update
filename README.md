@@ -1,11 +1,11 @@
 # Latest News
--  Kenneth Taylor onder de indruk van Jordan Henderson: ‘Hij weet als geen ander wat het moment is om druk te zetten’
--  Dihadiri Forkopimda, Jenazah Baskami Ginting Dilepas darI DPRD Sumut
--  Taksidə itirdiyi zinət əşyalarını bələdiyyədə “tapdı”
--  Tako ga kljub bolezni kralja Karla žura Camilla
--  Je igralki ‘odklenkalo’, po aferi ne dobiva več vlog
--  West Bengal: Sandeshkhali protest turns violent as villagers seek TMC leader’s arrest
--  Ločitev je zgodovina, tako se Stallone in žena gledata danes
--  بعد قطاع غزة.. الأونروا تعتزم قطع مساعداتها في دولة عربية جديدة وتحذيرات من كارثة
--  Kenneth Taylor onder de indruk van Jordan Henderson: ‘Hij weet als geen ander wat het moment is om druk te zetten’
--  West Bengal: Sandeshkhali protest turns violent as villagers seek TMC leader’s arrest
+-  Κλείνει το ευρωψηφοδέλτιο του ΔΗΣΥ - Σήμερα η ψηφοφορία
+-  Dvigubą dublį surinkęs Valančiūnas pralaimėjo Los Andžele
+-  TVP wyda na to prawie 20 milionów złotych. A to dopiero początek. Ujawniamy
+-  Videó: így győzte le Japánt a magyar női válogatott!
+-  Kỳ diệu ca phẫu thuật ghép thận cha cho con gái sau 32 năm
+-  TVP wyda na to prawie 20 milionów złotych. A to dopiero początek. Ujawniamy
+-  Valančiūnas fiksavo dvigubą dublį, tačiau pergale džiaugėsi Jameso „Lakers“
+-  Στόλτενμπεργκ: H Eυρώπη να ενισχύσει την παραγωγή της σε όπλα στην Ουκρανία
+-  주북 러 대사, 北 핵실험 가능성 시사 “책임은 美에 있다”
+-  İlk Türk astronot Alper Gezeravcı ailesiyle buluştu
