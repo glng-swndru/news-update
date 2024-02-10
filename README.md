@@ -1,11 +1,11 @@
 # Latest News
--  Şehirler arası yolcu otobüslerinde emniyet kemerine sıkı denetim
--  Facebook slaví 20 let. Ošklivý web pro studenty se proměnil v globální fenomén lajků i virtuálních bitek
--  Promise Day 2024: Happy Promise Day shayari, images, quotes, wishes for GF, BF and best friend
--  越南人过春节时饮茶配蜜饯的消遣
--  Công Phượng hội ngộ cầu thủ Việt kiều Đức tại Nhật Bản
--  Erzincanda okul servisleri ile çevreleri denetlendi
--  Diputación reforzará la implantación de supermercados en municipios en riesgo de despoblación
--  Ganjar di Hajatan Rakyat Solo: Kita Harus Menang Total
--  DEBATT: Vem tar ansvar för demensvården inom Välfärd Gävle och på vilket sätt?
--  Millal jõuab Eestisse uus kaalulangetusravim?
+-  Jöhet a kulturális útlevél
+-  Öğretmenler odasında buluştular
+-  Uzmanından 'elektronik sigara' uyarısı: "Elektronik sigara, sigara bırakmak için kullanılacak bir alternatif değildir"
+-  Latvialainen Baiba Bendika synnytti lokakuussa – ylsi nyt huimaan suoritukseen
+-  Police identify Abdul Malik as main conspirator behind Haldwani violence- Latest Updates
+-  Küresel ısınma çığların düşme mevsimine kadar etkiliyor
+-  El presidente de YPF explicó en Mendoza el plan 4×4
+-  Ardahan Belediyesi, taziye evlerine yemek ikramına başladı
+-  Handwerker in der Backstube: Bäckermeister Günter Markus starb mit 85
+-  TUŽILAŠTVO SE OGLASILO O SLUČAJU SILOVANJA DEVOJČICE (13) Jedan detalj ih zaprepastio
