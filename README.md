@@ -1,11 +1,11 @@
 # Latest News
--  Nytt avtal ska minska våld i nära relationer
--  Červený polmesiac: Izrael vtrhol do nemocnice v meste Chán Júnis
--  Arbetsförmedlare i Uppsala fick in 426 000 på kontot
--  Sau khi đi thăm họ hàng dịp Tết, tôi mới nhận ra: Đằng sau những đứa trẻ có lòng tự trọng thấp thường có 2 kiểu cha mẹ
--  Pieno supirkimo kaina gruodį toliau augo
--  Le Qatar s’en va, une légende du PSG s’en mêle !
--  FOTO Na četirima lokacijama u Splitu na snazi će biti privremena prometna regulacija
--  Şeyma Subaşı'ndan bir acayip paylaşım
--  Video: Takhle Putin přepsal známé dějiny. Poláci si myslí, že musel blouznit
--  Tour of Antalya'da Demre-Antalya etabını Matevz Govekar kazandı
+-  Istražitelji locirali osmero otete ukrajinske djece u Rusiji
+-  Tâm sự của tài xế xe công nghệ đêm giao thừa
+-  Eisenstangen-Schlägerei am Hauptbahnhof: Darum stellt die Staatsanwaltschaft die Ermittlungen ein
+-  Снегът в Банско издържа и в жегата - Труд
+-  «Мне этого не хватает»: Кейн назвал основную причину перехода в Баварию
+-  Cos'è questa storia del rimborso per chi ha un mutuo a tasso variabile
+-  Gazze’de insanlık dramı: Can kaybı en az 27 bin 947
+-  Saznajte kako ukrajinski centar u Hrvatskoj pomaže ukrajinskim vojnicima
+-  Gaza-Krieg: Netanyahu: Armee soll Plan für Evakuierung von Rafah und "Zerstörung" der Hamas vorlegen
+-  Liga: minuto de silêncio na 21.ª jornada por João Oliveira Pinto
