@@ -1,11 +1,11 @@
 # Latest News
--  Aday gösterilmeyen belediye başkanı istifa edip adaylığını açıkladı. Şanlıurfa'da AKP'den istifa furyası sürüyor
--  Gezeravcı, Dünya'ya dönüşünü ardından bir hafta gözlem altında tutulacak
--  Fatehgarh Sahib-based agent arrested in fake visa racket by Delhi Police
--  「向上心がある子」が持っている2つの共通点とは？〈教育専門家が解説〉 - 「強み」を生み出す育て方
--  Bakanı Kacır, Alper Gezeravcı ile görüştü
--  A mensagem que o toureiro enviou a um amigo de Luciana Abreu
--  İranın Ermənistan sərhədləri ilə bağlı mövqeyi… - Qriqoryan
--  Get your Apple Watch Ultra 2 for $70 off at Best Buy right now
--  Madagaskar obhajuje kastrácie páchateľov sexuálneho násilia na deťoch
--  Hamas exige mil camiões diários de ajuda para evitar uma fome no norte de Gaza
+-  Papież: Bez reformy liturgicznej nie ma reformy Kościoła
+-  Τριάντα προσαγωγές μελών του Ρουβίκωνα έξω από τον «Άγιο Σάββα»
+-  Manifestations Saint Louis : Un étudiant de l’UGB tué par balle
+-  Carnevale narnese, la festa di bambini e bambine: buona la prima, ora si replica in piazza dei Priori
+-  Afrique centrale : le centrafricain Yvon Sana Bangui est le nouveau gouverneur de la BEAC
+-  Sanremo 2024, Russell Crowe svela la squadra del cuore: "In quello stadio diventerei matto"
+-  Gezeravcı'dan ilk paylaşım geldi: Merhaba Dünya, ben geldim
+-  App “muévelo” facilitará transporte en Miranda
+-  Lalitpur News: जिला जज ने जारी किया कचहरी परिसर का ड्रेस कोड
+-  Nagy bejelentést tett Eva Kaili
