@@ -1,11 +1,11 @@
 # Latest News
--  B.C. hunting show hosts fined after cross-border investigation
--  بازار سهام - ۱۴۰۲/۱۱/۲۱
--  بدهی عمومی آمریکا؛ 116 درصد تولید ناخالص داخلی
--  Максим Литовченко: «Не люблю либералов из-за их агрессивности»
--  Бивш и настоящ главен прокурор спорят кой е близък с Нотариуса (Обзор)
--  B.C. hunting show hosts fined after cross-border investigation
--  Start FOCL Subscription and Get 25% Cash Back On Your First Order! CBD, Supplements, and More
--  “Vučica” dobija novog vlasnika? Saudijci nude 900 miliona eura za Romu
--  رونمایی از 18 طرح بهسازی توزیع برق تهران
--  برگزاری پنجاه‌‌‌ویکمین رویداد دوشنبه‌‌‌های استارت‌آپی در حوزه «سلامت دیجیتال» با حضور 6‌‌‌ استارت‌آپ
+-  Změny v ukrajinském velení pokračují, generální štáb má nového náčelníka
+-  Près de 6 millions d’euros investis dans les projets lavandourains
+-  Леонид Агутин сделал признание о своей американской дочери: его предупреждали, а он не верил
+-  Efter prestationen – så säger han om ny utlandssejour
+-  Investigation into January arson ongoing, Prince George RCMP say
+-  Willem II weet mede dankzij beauty van Meerveld weer wat winnen is
+-  Coronation Street spoilers: Tim Metcalfe assures Steve McDonald that he’s sexy and offers him a promise
+-  Ministro de Bolsonaro revelou reuniões com militares sobre reeleição
+-  DERMATOLOZI ODGOVARAJU Ovo su najčešći uzroci opadanja kose
+-  Капленко заявил, что от пребывания в «Зените» остались только положительные эмоции
