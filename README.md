@@ -1,11 +1,11 @@
 # Latest News
--  Confronta Cristina Ferreira sobre Miguel Vicente: "Há dois pesos..."
--  Partiyasını seçkilərə Saakaşvili özü aparacaq – Elan etdi
--  Tanja Malesija zvanično predstavljena u Dinamu iz Moskve
--  Le maire de Nice s’apprête à saisir le procureur après les révélations de BFM Nice Côte d’Azur sur une escroquerie aux logements sociaux
--  Ryan Serhant on housing market: Prices will stay high this spring
--  Governador entrega nova escola em Mato Grosso e destaca investimentos; “no rumo certo”
--  Türkmenistanyň Ministrler Kabinetiniň giňişleýin mejlisi
--  How mutant wolves near Chernobyl Exclusion Zone can produce cancer cure?
--  Early-Bird-Deal: Mit dem Dreame L10s Pro Ultra Heat bis in die Ecke saugen
--  Liječnik KBC-a Split o trovanju klorom: 'Najteže simptome ima muškarac (60), ostali idu doma'
+-  What is Google's Gemini AI tool (formerly Bard)? Everything you need to know
+-  Zmaga v ZDA, Anja Mandeljc do najboljše uvrstitve v sezoni
+-  "Poi non si stupisca...": la gonna di Mengoni nel mirino di Vannacci
+-  Още един депутат е привлечен по скандала с куфарите с пари в Европарламента
+-  Co za powrót Ekstraklasy! Nieprawdopodobne emocje. Gol w 93. minucie! [WIDEO]
+-  Portuguesa e Operário jogam com arbitragem de Marcos Mateus Pereira
+-  Microsoft julkaisi uuden version Copilot-tekoälystä jo nyt – mukana kuvageneraattori ja uusi kielimalli
+-  J2US: Ο Νίκος Κοκλώνης και η Βίκυ Σταυροπούλου σε ρόλο «Τζουτζούκου-Τζουτζούκας»
+-  Γ. Γεραπετρίτης - Άντ. Μπλίνκεν: Η Ελλάδα υπέγραψε τη συμφωνία "Άρτεμις" για ασφαλή εξερεύνηση του διαστήματος
+-  Co za powrót Ekstraklasy! Nieprawdopodobne emocje. Gol w 93. minucie! [WIDEO]
