@@ -1,11 +1,11 @@
 # Latest News
--  Papież: Bez reformy liturgicznej nie ma reformy Kościoła
--  Τριάντα προσαγωγές μελών του Ρουβίκωνα έξω από τον «Άγιο Σάββα»
--  Manifestations Saint Louis : Un étudiant de l’UGB tué par balle
--  Carnevale narnese, la festa di bambini e bambine: buona la prima, ora si replica in piazza dei Priori
--  Afrique centrale : le centrafricain Yvon Sana Bangui est le nouveau gouverneur de la BEAC
--  Sanremo 2024, Russell Crowe svela la squadra del cuore: "In quello stadio diventerei matto"
--  Gezeravcı'dan ilk paylaşım geldi: Merhaba Dünya, ben geldim
--  App “muévelo” facilitará transporte en Miranda
--  Lalitpur News: जिला जज ने जारी किया कचहरी परिसर का ड्रेस कोड
--  Nagy bejelentést tett Eva Kaili
+-  B.C. hunting show hosts fined after cross-border investigation
+-  بازار سهام - ۱۴۰۲/۱۱/۲۱
+-  بدهی عمومی آمریکا؛ 116 درصد تولید ناخالص داخلی
+-  Максим Литовченко: «Не люблю либералов из-за их агрессивности»
+-  Бивш и настоящ главен прокурор спорят кой е близък с Нотариуса (Обзор)
+-  B.C. hunting show hosts fined after cross-border investigation
+-  Start FOCL Subscription and Get 25% Cash Back On Your First Order! CBD, Supplements, and More
+-  “Vučica” dobija novog vlasnika? Saudijci nude 900 miliona eura za Romu
+-  رونمایی از 18 طرح بهسازی توزیع برق تهران
+-  برگزاری پنجاه‌‌‌ویکمین رویداد دوشنبه‌‌‌های استارت‌آپی در حوزه «سلامت دیجیتال» با حضور 6‌‌‌ استارت‌آپ
