@@ -1,11 +1,11 @@
 # Latest News
--  Mark Taylor was asked to address the Dragons. This is what he told them
--  Luka Doncic da el visto bueno a sus nuevos compañeros en los Dallas Mavericks
--  WLAN-Technik: Die Vorteile von Wi-Fi 7 | c’t uplink
--  Cómo cotizan los gigantes de la comida basura en Bolsa
--  Kayseri'de amatör kulüplere 'Sümer' tesis
--  Българският футбол се завръща с мач за Суперкупата между "Лудогорец" и "ЦСКА 1948"
--  8 unique ways to reuse Achaar oil
--  Köszönet
--  5 style lessons to learn from real-life celebrity bridesmaids
--  Украинский безэкипажный катер, следовавший к Крыму, уничтожен в Черном море
+-  Kenneth Taylor onder de indruk van Jordan Henderson: ‘Hij weet als geen ander wat het moment is om druk te zetten’
+-  Dihadiri Forkopimda, Jenazah Baskami Ginting Dilepas darI DPRD Sumut
+-  Taksidə itirdiyi zinət əşyalarını bələdiyyədə “tapdı”
+-  Tako ga kljub bolezni kralja Karla žura Camilla
+-  Je igralki ‘odklenkalo’, po aferi ne dobiva več vlog
+-  West Bengal: Sandeshkhali protest turns violent as villagers seek TMC leader’s arrest
+-  Ločitev je zgodovina, tako se Stallone in žena gledata danes
+-  بعد قطاع غزة.. الأونروا تعتزم قطع مساعداتها في دولة عربية جديدة وتحذيرات من كارثة
+-  Kenneth Taylor onder de indruk van Jordan Henderson: ‘Hij weet als geen ander wat het moment is om druk te zetten’
+-  West Bengal: Sandeshkhali protest turns violent as villagers seek TMC leader’s arrest
