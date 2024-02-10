@@ -1,11 +1,11 @@
 # Latest News
--  住宅火災で男性１人死亡 住人と連絡取れず
--  強い寒気の影響 あす大気不安定
--  Le cabaret Garden Palace était à la foire de Moulins
--  Milli Savunma Bakanı Güler'in babası vefat etti
--  Accused Russian spy worked for U.K. intelligence, met with prime ministers and princes
--  Erhan Arıklı: “Dönüşümlü başkanlık” teklifini kabul ettiğimi bir kez daha ifade ettim
--  Brawl outside mall as royalists confront protesters
--  Fenerbahçe kimleri transfer etti, kimler ayrıldı?
--  Accused Russian spy worked for U.K. intelligence, met with prime ministers and princes
--  Gut zu wissen: So kommt man mit Kindern entspannt am Urlaubsziel an
+-  البرز در رتبه آخر سرانه آموزشی/هر دانش‌آموز کمتر از ۴ مترمربع فضا دارد
+-  Fenerbahçe’nin kış transfer dönemi dosyası! Kimler geldi, kimler gitti
+-  Dead zone: New threat to iconic strip
+-  "Angst vor Babys": Travis Barkers Sohn hat Bruder nie im Arm
+-  Absa Hane de Seneweb blessée et sous arrestation : La Convention des Jeunes Reporters du Sénégal exige sa libération
+-  Fleury hral zrejme poslednýkrát proti Penguins, blysol sa v závere
+-  Predrag Mijatović kažnjen zbog finansijskih malverzacija
+-  Nữ sinh nguy cơ mù vĩnh viễn do pháo hoa bắn vào mắt
+-  Mithun Chakraborty health: Son Mimoh shares update after the veteran actor gets hospitalised in Kolkata for chest pain
+-  KVOTE "PADALICE": Kladionice pomažu i ove subote
