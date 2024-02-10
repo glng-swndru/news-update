@@ -1,11 +1,11 @@
 # Latest News
--  Microsoft, Copilot için yeni özellikleri duyurdu
--  주북 러 대사 "북한 핵실험 가능성 배제 안해…책임은 미국에"
--  Famagusta: Ο Ανδρέας Γεωργίου στα γυρίσματα με τον ανιψιό του
--  Banfield busca su primer triunfo ante Argentinos Juniors
--  Firme una decisión electoral: serán solo cinco distritos para candidatos locales indígenas
--  Langlaufen - Elias Eischer: Keine Medaille trotz Bestzeit
--  Μανώλης Κονταρός: Τιμή να παντρέψω τη Δέσποινα Βανδή με τον Βασίλη Μπισμπίκη
--  V tem delu Slovenije je povečana nevarnost za nastanek zemeljskih plazov
--  Al Torino servono più gol: angoli e punizioni le idee di Juric per svoltare
--  「ブラックサンダー」で被災地を支援 国際NGOは「六花亭」とコラボ…チョコレート活用した支援広がる
+-  AMLO pide “perdón” a Cabeza de Vaca
+-  Yeni gelmediler, geri döndüler
+-  Afta vagy Herpesz? Gyors gyógyulás titkai, amiket mindenkinek ismernie kell
+-  رئيس مجلس القيادة يستقبل في عدن المبعوث الخاص للامم المتحدة
+-  Gratulacje, statuetki i podziękowania. Oficjalne przekazanie dwóch wozów strażackich [ZDJĘCIA]
+-  Nedeljsko kosilo: saltimbocca – odlični telečji zrezki, ki vzamejo le 15 minut (VIDEO)
+-  Ella Dvornik snimljena s mladim producentom: 'Bili su prisni i držali su se za ruke'
+-  Jonathan Schmid: „Ich hätte nie gedacht, dass ich Ribéry überholen würde“
+-  Merekezefendi Başkan Adayı Başer, saha çalışmalarına ağırlık verdi
+-  Arxivada la causa contra Anna Gabriel per un presumpte delicte de desobediència: «La repressió continua ben viva»
