@@ -1,11 +1,11 @@
 # Latest News
--  Er ist seit 70 Jahren bei der Feuerwehr: Erster Einsatz mit Schaufel und Schubkarre
--  Ylivoimainen voittaja! Suomalaiset äänestivät kauppojen parhaan laskiais­pullan
--  Herzbrötchen sind der schönste Liebesbeweis, der frisch aus dem Ofen kommt
--  NAJAVLJUJE SE POSKUPLJENJE ČOKOLADE Proizvođači se žale da im je zbog suše u Africi poskupila sirovina
--  Jokić urlao na ženskog sudiju - tehnička koja ga je razbesnela VIDEO
--  Miała 12 lat, gdy narzeczony siostry zaczął ją krzywdzić. Przemówiła po latach milczenia
--  ODTÜ'de geliştirilen fiber optik mikrofon acil durumlar için hassas dinleme yapacak
--  Docklands bomb victims’ relatives pay tribute 28 years on from IRA attack
--  Rätt ska vara rätt: jag glömde solen
--  Голямото сърце на Делян Пеевски - Труд
+-  اليوم : مواجهة عربية كبيرة في نهائي كأس اسيا قطر
+-  터질 듯 붓는 다리, 밤마다 쥐 나면 하지정맥류 의심
+-  Rok temu kosztował 120 mln. Teraz chce do Barcelony
+-  Czarny piątek na litewskich drogach
+-  Антон Хекимян: От 3 месеца наблюдаваме провала на ПП-ДБ-СС, а сега тропат с крачета като малки деца - Труд
+-  DEBAKL "ZMAJČEKA" ZA KRAJ EVROKUPA: "Panteri" bez visokih ambicija!
+-  Legkevésbé sem várt ismerős kopogtatott be a Liverpool öltözőjébe
+-  PRIPREMA SE SUPER BRZO: Tortilja od krompira, lagana je i izuzetno bogata sirom
+-  Comment l'office HLM de Dreux répond au manque de gardiens dans les cités ?
+-  Về nhà đón Tết, được mẹ ‘chăm sóc tận răng’, ngày trở về thành phố còn được xách theo bao nhiêu ‘của nả’ nhưng tôi vẫn vùng vằng: Tới khi ân hận thì e đã muộn!
