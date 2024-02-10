@@ -1,11 +1,11 @@
 # Latest News
--  Jöhet a kulturális útlevél
--  Öğretmenler odasında buluştular
--  Uzmanından 'elektronik sigara' uyarısı: "Elektronik sigara, sigara bırakmak için kullanılacak bir alternatif değildir"
--  Latvialainen Baiba Bendika synnytti lokakuussa – ylsi nyt huimaan suoritukseen
--  Police identify Abdul Malik as main conspirator behind Haldwani violence- Latest Updates
--  Küresel ısınma çığların düşme mevsimine kadar etkiliyor
--  El presidente de YPF explicó en Mendoza el plan 4×4
--  Ardahan Belediyesi, taziye evlerine yemek ikramına başladı
--  Handwerker in der Backstube: Bäckermeister Günter Markus starb mit 85
--  TUŽILAŠTVO SE OGLASILO O SLUČAJU SILOVANJA DEVOJČICE (13) Jedan detalj ih zaprepastio
+-  Er ist seit 70 Jahren bei der Feuerwehr: Erster Einsatz mit Schaufel und Schubkarre
+-  Ylivoimainen voittaja! Suomalaiset äänestivät kauppojen parhaan laskiais­pullan
+-  Herzbrötchen sind der schönste Liebesbeweis, der frisch aus dem Ofen kommt
+-  NAJAVLJUJE SE POSKUPLJENJE ČOKOLADE Proizvođači se žale da im je zbog suše u Africi poskupila sirovina
+-  Jokić urlao na ženskog sudiju - tehnička koja ga je razbesnela VIDEO
+-  Miała 12 lat, gdy narzeczony siostry zaczął ją krzywdzić. Przemówiła po latach milczenia
+-  ODTÜ'de geliştirilen fiber optik mikrofon acil durumlar için hassas dinleme yapacak
+-  Docklands bomb victims’ relatives pay tribute 28 years on from IRA attack
+-  Rätt ska vara rätt: jag glömde solen
+-  Голямото сърце на Делян Пеевски - Труд
