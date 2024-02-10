@@ -1,11 +1,11 @@
 # Latest News
--  心碎除夕夜！10億女神王宥忻前公公猝逝 悲痛發聲曝死因
--  Democracia plebiscitaria
--  Lappeenrantalaisen Katjan keikkakokemus vaihtui 14-vuotiaana painajaiseen – Tuttu poika raiskasi hänet
--  وفيات السبت .. 10 / 2 / 2024
--  Lectura de verano
--  Lo que el marketing no puede ocultar
--  ফুলে ফুলে সুরভিত হোক শিক্ষাপ্রতিষ্ঠান
--  あの、YouTubeチャンネル開設で早速“あのちゃんワールド”全開 「セルフBGM」「PCのパスワード公開」にファン「これは新し過ぎる」
--  Hay mucha plata
--  País de cuentos
+-  أرقام الأردن قبل نهائي كأس آسيا 2023
+-  Instagram y Threads actualizan su enfoque ante el contenido político
+-  Servis otobüsü şoförü, silahlı saldırıda öldü
+-  بازی مستقیم در فوتبال آسیا هم منسوخ شده/ زمان تغییر نسل فوتبال ایران است
+-  Antrean Kendaraan Pendukung AMIN Memanjang 4 KM
+-  ក្រសួងសុខាភិបាល ចេញសេចក្តីប្រកាសព័ត៌មាន ស្តីពីករណីស្លាប់ដោយសារជំងឺផ្តាសាយបក្សីលើកុមារាអាយុ៩ឆ្នាំ
+-  তাইওয়ান প্রণালির আকাশসীমায় ৮টি চীনা বেলুন শনাক্ত
+-  Cultural forum to observe V-Day as ‘Book Lovers Day’
+-  Doorstep Ration Delivery: ਲੋਕ ਸਭਾ ਚੋਣਾਂ ਤੋਂ ਪਹਿਲਾਂ ਕੇਜਰੀਵਾਲ ਦੀ ਅੱਜ ਪੰਜਾਬ 'ਚ ਤੀਜੀ ਰੈਲੀ, ਘਰ-ਘਰ ਮੁਫ਼ਤ ਰਾਸ਼ਨ ਸਕੀਮ ਦੀ ਹੋਵੇਗੀ ਸ਼ੁਰੂਆਤ
+-  ¿Historia con final feliz?: Bruno finalmente le pedirá pololeo a Carol en “Como la vida misma”
