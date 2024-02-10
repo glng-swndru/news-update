@@ -1,11 +1,11 @@
 # Latest News
--  Loose 45V guidance would backfire on taxpayers, clean hydrogen, and climate
--  What can work do for me? A lot when it comes to self understanding, survey shows
--  'We are still there' - Pep Guardiola rates Man City chances of winning another treble
--  Trump addresses NRA members in Pennsylvania: Watch live
--  Louise Thompson darf nach über zwei Wochen Klinik verlassen
--  Смарт-очки Frame с мультимодальным ИИ Noa оценены в $349
--  ボクシングの判定、AIカメラで見える化 審判「言い訳ができない」
--  PROSI PO BEČU I LAŽE LJUDE, JAČE ME JE STISNUO! Miljana Kulić se javno obratila Zolinoj majci, iznela šokantne stvari
--  Pep Guardiola tells Jack Grealish to get back to being himself to reclaim Man City starting place
--  Fast food is too expensive and consumers are pushing back; how people are earning and spending in Montana
+-  What Is The Knuckles Trailer Song?
+-  Gümüşhane’nin kurtuluşu kutlanacak
+-  ‘Shōgun’: FX Releases Extended Trailer For Series Adaptation Of James Clavell Novel — Update
+-  Burdur'da eski eş cinayetinde, katil zanlısı ve yardım eden 6 şahıs tutuklandı
+-  Bivšem doušniku DEA doživotna kazna zbog uloge u atentatu
+-  El GBC no puede con el método Aíto
+-  Trajković: Svaka utakmica nam je presudna
+-  5 Mukjizat Ilmiah Alquran Ini Dibuktikan Sains Modern dan tak Terbantahkan
+-  PepsiCo named Cork Company of the Year
+-  Agression de journalistes par des FDS : la CJRS condamne vigoureusement
