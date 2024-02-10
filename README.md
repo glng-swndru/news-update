@@ -1,11 +1,11 @@
 # Latest News
--  Ríkisstjórnarfundur stendur enn yfir
--  Jelang Pemungutan Suara, Prabowo-Gibran Unggul di Kalangan Muhammadiyah
--  **Foibe: Mattarella, 'grazie per testimonianza Lada e Alessandra Rivaroli e Egea Haffner'**
--  Φώτης Σεργουλόπουλος: «Έκανα μακροχρόνιες σχέσεις, μου αρέσει η ρουτινα» – Η εξομολόγηση για την προσωπική του ζωή
--  Redmi Note 13 Pro+ - a fejlődés íve
--  Las acciones del Ibex 35 analizadas: Desde ACS hasta IAG
--  Ювентус побореться з Манчестер Юнайтед та Арсеналом за хавбека Ніцци
--  Кураньи сообщил, что готов помочь Тюкавину уехать в Европу
--  Дед главы МИД Германии Бербок был «ярым нацистом»
--  وسائل اعلام حوثية: قصف جوي أمريكي-بريطاني على الحديدة
+-  Теофимо и Ортис устроили суету. А потом Лопес вызвал Кроуфорда
+-  Events tomorrow – Feb. 10: Sri Thyagaraja Sangeetha Sabha Charitable Trust
+-  Márcio Bittar sai em defesa de Bolsonaro contra operação “Tempus Veritatis”
+-  Ewerton bude pokračovat v Ostravě. Slavia mu prodloužila hostování
+-  Петролът на ОПЕК скочи над 80 долара за барел
+-  ЕК за Путин след интервюто му с Карлсън: Той получи възможност да повтори стари лъжи
+-  보스턴 교향악단 최장수 상임 지휘자 오자와 세이지 별세
+-  What is Super Tuesday? How are delegates chosen? How NC’s presidential primary works
+-  El IES Elena García Armada de Jerez visibiliza el papel de la Mujer en la Ciencia con jornada de conferencias
+-  Разориться можно: три проходные модели для Беларуси, сулящие массу проблем
