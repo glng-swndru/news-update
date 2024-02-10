@@ -1,11 +1,11 @@
 # Latest News
--  Beşiktaş, Al-Musrati'nin maliyetini açıkladı
--  快訊／「三寶媽」李宓初一宣布又當媽！ 肚懷3周龍寶寶：最好的禮物
--  B sınıfı ehliyeti olanlar dikkat! Resmi Gazete'de yayımlandı: 125 cc'lik motorlar B ehliyetle kullanılabilecek
--  Pendukung AMIN Bentangkan Karung Panjang Berisi Harapan Perubahan untuk Anies Baswedan
--  El TSE de El Salvador confirma la victoria de Bukele con más del 80 por ciento de votos
--  Santiago esconde la única escalera triple helicoidal del mundo
--  India's Forex Reserves At 1-Month High Of USD 622.47 Billion
--  أجواء باردة نسبيا في أغلب المناطق السبت
--  Hunting TV show host, wife fined for poaching in B.C. and Alberta: wildlife officials
--  Indian women’s U19 football team receives warm welcome in Delhi following SAFF Championship win
+-  Winning photo of young polar bear sleeping on a bed of ice comes to Edinburgh
+-  ටී 56 උණ්ඩ 25ක් අක්මීමනින් අල්ලයි
+-  Slovenske vojake staodlikovali hrabrost in žilavost
+-  Kombinirani volilni sistem: 63. vprašanje
+-  Smo izgubili kompas, ko svet pada s tečajev?​
+-  Organizaciones civiles y religiosas piden parar violencia en Guerrero
+-  „Wir sind ganz klar dagegen“: SPD-Pläne zum Dattelner Tigg stoßen auf viel Kritik
+-  Energiewende in Oer-Erkenschwick: Stadt will Förderung für private Solaranlagen verlängern
+-  Το κοινό πεπρωμένο του ΠΑΟΚ με τον Ραζβάν Λουτσέσκου: Μια επιτυχημένη συνύπαρξη που έχει και συνέχεια
+-  Eltern hochsensibler Kinder sind oft macht- und ratlos: Waltroperin Sarah König kann helfen
