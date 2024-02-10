@@ -1,11 +1,11 @@
 # Latest News
--  Rotary Club Of VGC Provides Relief Materials To 500 Indigent People In Ikota
--  Đồi chè Mộc Châu tựa tiên cảnh trong sương sớm
--  ¿Qué artistas han rechazado presentarse en el Super Bowl?
--  Crise au Sénégal : Moussa Niakhaté prend ses responsabilités et dénonce les « actes de violence »
--  Ben Affleck evita tema de revelaciones de Britney Spears
--  沖縄市職員、58件の出退勤を虚偽申請 所属長のIDなどを不正利用 30代職員を停職1年の懲戒処分 - 沖縄タイムス＋プラス ニュース
--  More details emerge as Horner faces music
--  Hellmann's y Pedro Sola se reconcilian
--  F1 boss grilled over ‘inappropriate behaviour’
--  F1 boss grilled over ‘inappropriate behaviour’
+-  ONGC, Divi’s Labs, Aurobindo Pharma Q3 Results Today — Earnings Estimates
+-  Amazon es acusada de recomendar los productos más caros
+-  Pedestrian killed in Wawatosa crash thrown approx. 30 feet, according to a witness
+-  VIDEO: Animal control officers attempt to seize B.C. senior’s leashed dog
+-  Päivän horoskooppi lauantaina 10.2.
+-  日, '독도는 일본땅' 행사에 12년째 차관급 파견
+-  Gobierno no está facultado para calificar asilo a Martinelli
+-  Benzema desmente especulações de insatisfação com o futebol saudita!
+-  Naslovna strana za 10.2.
+-  Three Kansas City Chiefs storylines to watch during Super Bowl LVIII vs. 49ers
