@@ -1,11 +1,11 @@
 # Latest News
--  Izlaze detalji o velikoj nesreći u Rijeci: Mladi vozač u zavoju je izgubio nadzor nad vozilom
--  Bröckelt die Firewall rechts?
--  Megawati Bikin Heboh Hajatan Rakyat Semarang, Berdangdut Ria Bareng Nassar
--  Матч Аргентини з Нігерією скасований через конфліктну ситуацію з Мессі
--  В Канаде создали альтернативную архитектуру кубита со встроенной защитой от ошибок вычислений
--  LIVE Primavera 1, Torino-Lazio 0-0 alla fine del primo tempo
--  Qafqaz Müsəlmanları İdarəsinin Rusiya Federasiyasındakı səlahiyyətli nümayəndəsi Prezident İlham Əliyevə təbrik məktubu ünvanlayıb
--  Live-Ticker: Live! RWE bei Spitzenreiter Regensburg: Das Spiel im Ticker
--  Užasne scene na Floridi! Avion sleteo na autoput, a onda je usledio horor! Najmanje dvoje mrtvih! (VIDEO)
--  Galatasaray - Başakşehir maçının VAR hakemi belli oldu
+-  Turkmenistan exceeds 2023 revenue expectations in budget
+-  Dyson Supersonic r 吹風機亮相 重量更輕、造型更流線
+-  Sıcak hava çığ olaylarının erken yaşanmasına neden oldu
+-  Inzaghi guarda Allegri. La rivelazione: «La sua Inter ha “rubato” una cosa alla Juve»
+-  PSG : Le verdict est tombé pour Mbappé !
+-  Crno-beli posetili grob klupske legende u Ivanjici
+-  Lampung Rawan Kecurangan Pemilu 2024, Kapolda Ungkap Faktornya
+-  الدفاع المدني يدعو إلى الحيطة من الأمطار في 5 مناطق
+-  Indul a beporzás, nem érdemes kocsit mosni
+-  Moody's İsrail'in kredi notunu düşürdü
