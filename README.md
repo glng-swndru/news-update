@@ -1,11 +1,11 @@
 # Latest News
--  Fiers catalans et partis de loin : Gérone, l’onde de choc du foot espagnol
--  Border Security Market Report 2024-2034 - Increasing Procurement of Advanced Defence Systems Driving Market Growth - A $38.9 Billion Market by End of 2024
--  Grammar art teacher auctions lifetime collection of works
--  ‘That’s not for me’: The one thing Eddie Betts wouldn’t do for his TV series
--  Tres ex presidentes le dieron el último adiós a Sebastián Piñera.
--  Αυτό είναι το σπίτι των ονείρων μας σύμφωνα με το ζώδιό μας
--  Alm om systemskiftet: "En naturlig del av fotbollen"
--  Sault man steals minivan in Thessalon, rolls it on Hwy. 17: OPP
--  Abarth 600e: Το πιο δυνατό μοντέλο του «σκορπιού»
--  Expect big changes for small business under a second Trump presidency
+-  Confronta Cristina Ferreira sobre Miguel Vicente: "Há dois pesos..."
+-  Partiyasını seçkilərə Saakaşvili özü aparacaq – Elan etdi
+-  Tanja Malesija zvanično predstavljena u Dinamu iz Moskve
+-  Le maire de Nice s’apprête à saisir le procureur après les révélations de BFM Nice Côte d’Azur sur une escroquerie aux logements sociaux
+-  Ryan Serhant on housing market: Prices will stay high this spring
+-  Governador entrega nova escola em Mato Grosso e destaca investimentos; “no rumo certo”
+-  Türkmenistanyň Ministrler Kabinetiniň giňişleýin mejlisi
+-  How mutant wolves near Chernobyl Exclusion Zone can produce cancer cure?
+-  Early-Bird-Deal: Mit dem Dreame L10s Pro Ultra Heat bis in die Ecke saugen
+-  Liječnik KBC-a Split o trovanju klorom: 'Najteže simptome ima muškarac (60), ostali idu doma'
