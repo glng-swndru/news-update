@@ -1,11 +1,11 @@
 # Latest News
--  BEBA PREMINULA U SARAJEVU: Jeziva scena, majka upala u bolnicu i molila za pomoć, opasna bakterija zahvatila MOZAK
--  DSÖ: İşgal altındaki Filistin topraklarında sağlık merkezlerine yönelik 721 saldırı belgeledik
--  Mujer es sentenciada por homicidio a su bebé en Nogales
--  Anušić 'prikočio' s najavom izbora u svibnju; očitovao se o EPPO-u u Hrvatskoj
--  Teri Baaton Mein Aisa Uljha Jiya Public Review: Shahid Kapoor and Kriti Sanon’s sizzling chemistry impresses fans [Video]
--  В США потребовали отставки генсека ООН и главы агентства для помощи Палестине
--  Merasa Terhormat Didatangi Gibran, Umuh Muchtar Dukung Prabowo-Gibran Tak Bawa-bawa Bobotoh Persib
--  Армия Германии обратила внимание на угрозу правых экстремистов в своих рядах
--  Remaniement : le désaccord avec François Bayrou n'est qu'une "péripétie politique", selon Emmanuel Macron
--  "Sosteniamo la loro lotta": Ornella Muti a Sanremo al fianco degli agricoltori
+-  iOS 17.3.1 lançado com algumas correções
+-  BetMGM and X Sign Exclusive Sports Betting Partnership
+-  Suomalainen logistiikkayhtiö kasvatti liiketoimintaansa Venäjällä yli 25 vuotta, ja sitten alkoi sota – Näin sillä menee nyt
+-  Milyonlarca veliyi ilgilendiriyor! Alınan "yüksek kitap ücreti" için karar
+-  Queens of the Stone Age: Το δημοφιλές συγκρότημα έρχεται το καλοκαίρι στην Αθήνα
+-  Philip Johnson to Retire as Lilly Treasurer
+-  الويندوز 11 يمكنه الآن تقليد صوتك بشكل مذهل .. جعل جهاز الكمبيوتر الخاص بك يتحدث مثلك وإليك طريقة تفعيلها
+-  Ripple [XRP] Valentine’s Day Price Prediction
+-  Adler-Olsens Thriller „Erwartung“ kommt ins Fernsehen: ZDF zeigt Verfilmung
+-  ولد الغزواني يتلقى رسالة من الرئيس الجزائري
