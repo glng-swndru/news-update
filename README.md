@@ -1,11 +1,11 @@
 # Latest News
--  Borsa haftanın en çok kazandıranı oldu
--  Cumhuriyet Tarihinde Bir İlk!
--  Motorine yeni zam geliyor. Pazartesiden itibaren geçerli. Verdiniz yetkiyi alıyorsunuz etkiyi
--  EuroLeague: Οι ισοβαθμίες Παναθηναϊκού, Ολυμπιακού και οι έδρες που θα κρίνουν το πλεονέκτημα
--  Kanzler in den USA: Olaf Scholz trifft „Doppelgänger“ in Washington
--  BRESKVICA RAZOČARANA U KOLEGE Anđela ne može da veruje da joj se ovako nešto dešava
--  Audiences : Quel score pour "Les Victoires de la musique" 2024 sur France 2 face aux 20 ans du "Grand concours" sur TF1 ?
--  Asrın felaketinde annesini ve ağabeyinin 5 kişilik ailesini kaybeden kadın yaşadıklarını anlattı
--  Kanzler in den USA: Olaf Scholz trifft „Doppelgänger“ in Washington
--  Sfaturi pentru cei care îşi doresc un căţel: Trebuie disponibilitate emoţională şi financiară
+-  Dag vol krakers in Europa: toppers in Duitsland en Spanje, AS Roma ontvangt koploper Inter
+-  CAA would be implemented before Lok Sabha polls 2024: Home Minister Amit Shah
+-  ST 10 februari 1999: Väpnat rån mot matbutik
+-  Todas las nominaciones a los Goya 2024
+-  Anna-Karins sambo dog i bilolycka – 24 år gammal
+-  Dag vol krakers in Europa: toppers in Duitsland en Spanje, AS Roma ontvangt koploper Inter
+-  Dag vol krakers in Europa: toppers in Duitsland en Spanje, AS Roma ontvangt koploper Inter
+-  Imamo recept za hrskave krumpiriće u obliku srca idealne za Valentinovo
+-  ‘I want to show people how proud I am to be Aboriginal’: Hynes’ passionate defence of All Stars clash
+-  Người phụ nữ Việt đầu tiên chạy bộ 42km ở Bắc Cực: Chi phí 1,5 tỷ đồng cho trải nghiệm nhớ đời
