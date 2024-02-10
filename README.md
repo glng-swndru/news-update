@@ -1,11 +1,11 @@
 # Latest News
--  SRD holding emergency support virtual learning sessions
--  竹科春節首見 8吋晶圓廠放假7天
--  ‘Manicho’, escarabajo muy común en la época lluviosa de Guayaquil, y de aspecto poco agraciado, es parte de la dieta de otros animales
--  林哲熹蔡凡熙 若擁10億先買房-最想打造屬於自己的家 不放棄演員職業
--  The All-Electric Cadillac Escalade Is Coming, and It Could Be the Biggest One Ever
--  男團F4掀網球熱 9月在台有續集
--  後輔中心幹部PO中共閱兵片 後指部：撤文並檢討
--  What People Are Getting Wrong This Week: Taylor Swift Conspiracy Theories
--  Formal names for Bennington multi-use pathways proposed
--  ছুটির দিনে বাণিজ্য মেলায় লক্ষাধিক মানুষ, সর্বোচ্চ বিক্রি
+-  Lietuvos ledo ritulio rinktinė olimpinėje atrankoje nepasipriešino vengrams
+-  Imlek di Jakarta
+-  Davidovac o suđenju: Dešava se, nije prvi put VIDEO
+-  미 증시 S&P 500 지수 사상 처음 5000선 넘어
+-  Λευκός Οίκος: «Αβάσιμα και ανάρμοστα» τα σχόλια εισαγγελέα για τον Μπάιντεν
+-  BM Genel Kurul Başkanı: İnsanlık adına Gazze'deki sivillerin durumunu görün ve önemseyin
+-  Вскрылась подноготная скандала с отверженной Кристиной Орбакайте в России
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 10 февруари /валутен калкулатор/
+-  Revela o que verdadeiramente sentiu com a desistência de Francisco Monteiro
+-  Wizz Air povukao iz prodaje tri linije za Dalmaciju
