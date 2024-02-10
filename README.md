@@ -1,11 +1,11 @@
 # Latest News
--  Lietuvos ledo ritulio rinktinė olimpinėje atrankoje nepasipriešino vengrams
--  Imlek di Jakarta
--  Davidovac o suđenju: Dešava se, nije prvi put VIDEO
--  미 증시 S&P 500 지수 사상 처음 5000선 넘어
--  Λευκός Οίκος: «Αβάσιμα και ανάρμοστα» τα σχόλια εισαγγελέα για τον Μπάιντεν
--  BM Genel Kurul Başkanı: İnsanlık adına Gazze'deki sivillerin durumunu görün ve önemseyin
--  Вскрылась подноготная скандала с отверженной Кристиной Орбакайте в России
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 10 февруари /валутен калкулатор/
--  Revela o que verdadeiramente sentiu com a desistência de Francisco Monteiro
--  Wizz Air povukao iz prodaje tri linije za Dalmaciju
+-  東海道新幹線の車内販売用ワゴン、1台10万円・50台限定販売も50倍の応募
+-  Celebrities Had Some Great Advice For Their 18-Year-Old Selves. Viola Davis' Was The Best, But Questlove's Was the Funniest
+-  Sanremo 2024, Fiorello si "vendica": la battuta su John Travolta è virale
+-  Betis se rutinskom pobjedom u gostima 'zagrijao' za utakmicu s Dinamom
+-  AKO 24.000 LJUDI VIDI ISTU STVAR... Sferopulos o odluci sudija koja je izazvala haos u Areni
+-  Bad Gyal fa moure el cul al públic del Sant Jordi com si no hi hagués demà
+-  Nisam video grešku! Trinkijeri ne deli mišljenje "delija"
+-  Madhya Pradesh: Man, Brother Sentenced To 20-Year RI For Raping Kin
+-  O cerco está se fechando contra Bolsonaro
+-  Vai britu dziedāšanas konkursā "X faktors" vistālāk tikusī latviete ir nākamā "Supernovas" zvaigzne?
