@@ -1,11 +1,11 @@
 # Latest News
--  Změny v ukrajinském velení pokračují, generální štáb má nového náčelníka
--  Près de 6 millions d’euros investis dans les projets lavandourains
--  Леонид Агутин сделал признание о своей американской дочери: его предупреждали, а он не верил
--  Efter prestationen – så säger han om ny utlandssejour
--  Investigation into January arson ongoing, Prince George RCMP say
--  Willem II weet mede dankzij beauty van Meerveld weer wat winnen is
--  Coronation Street spoilers: Tim Metcalfe assures Steve McDonald that he’s sexy and offers him a promise
--  Ministro de Bolsonaro revelou reuniões com militares sobre reeleição
--  DERMATOLOZI ODGOVARAJU Ovo su najčešći uzroci opadanja kose
--  Капленко заявил, что от пребывания в «Зените» остались только положительные эмоции
+-  Fatih Karagümrük'e Suudi Arabistan'dan golcü
+-  [속보] S&P500지수, 사상 첫 종가 5000선 돌파
+-  EVO KOLIKA JE SADA VEROVATNOĆA DA ĆE CRVENA ZVEZDA PROĆI U TOP 10 EVROLIGE: Posle večerašnjeg poraza došlo je do OGROMNE promene
+-  Ensino superior: partidos de acordo em devolver “gestão democrática” às instituições
+-  Tchad : inauguration d'un Bureau Exécutif Syndical à l'INSEED pour renforcer la voix des employés
+-  Asansörlü defineciler evin 40 metre altında yakalandı
+-  Ataque armado en barbería de Buena Fe causa muertos y heridos
+-  German firm BASF to pull out of Xinjiang after Uyghur abuse claims - The Guardian
+-  İmamoğlu’nun cumaya gittiği caminin imamı: Alevi, Sünni, Şii ayırmadığı için seviyoruz
+-  Ateş Kuşları dizisini izleyen hiç kimse inanamadı; Yeni bölümde bu da oldu
