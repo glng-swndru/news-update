@@ -1,11 +1,11 @@
 # Latest News
--  Bigg Boss 17 Reunion: Neil Bhatt and Aishwarya Sharma turn heads with their style; netizens say ‘Made for each other’
--  Vejas fotos do desfile da Dragões da Real
--  75 Tahun, Titik Hamzah Hadirkan Geletar
--  Reformtervet kér Kijevtől Brüsszel
--  Breaking: Big blow to Team India as Virat Kohli takes this big decision, details inside
--  Borzalmas állapotban lévő, szétszaggatott emberi testrészeket sodort partra az óceán
--  Auslosung am Samstag: Was Borussia im Halbfinale erwarten würde
--  İki suç örgütü çökertildi! Çok sayıda gözaltı
--  Így készüljön: hamarosan méregdrága lesz a csoki
--  Чибриков забросил 14-ю шайбу за фарм-клуб «Виннипега» в АХЛ
+-  Mark Taylor was asked to address the Dragons. This is what he told them
+-  Luka Doncic da el visto bueno a sus nuevos compañeros en los Dallas Mavericks
+-  WLAN-Technik: Die Vorteile von Wi-Fi 7 | c’t uplink
+-  Cómo cotizan los gigantes de la comida basura en Bolsa
+-  Kayseri'de amatör kulüplere 'Sümer' tesis
+-  Българският футбол се завръща с мач за Суперкупата между "Лудогорец" и "ЦСКА 1948"
+-  8 unique ways to reuse Achaar oil
+-  Köszönet
+-  5 style lessons to learn from real-life celebrity bridesmaids
+-  Украинский безэкипажный катер, следовавший к Крыму, уничтожен в Черном море
