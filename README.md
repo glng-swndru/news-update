@@ -1,11 +1,11 @@
 # Latest News
--  Winning photo of young polar bear sleeping on a bed of ice comes to Edinburgh
--  ටී 56 උණ්ඩ 25ක් අක්මීමනින් අල්ලයි
--  Slovenske vojake staodlikovali hrabrost in žilavost
--  Kombinirani volilni sistem: 63. vprašanje
--  Smo izgubili kompas, ko svet pada s tečajev?​
--  Organizaciones civiles y religiosas piden parar violencia en Guerrero
--  „Wir sind ganz klar dagegen“: SPD-Pläne zum Dattelner Tigg stoßen auf viel Kritik
--  Energiewende in Oer-Erkenschwick: Stadt will Förderung für private Solaranlagen verlängern
--  Το κοινό πεπρωμένο του ΠΑΟΚ με τον Ραζβάν Λουτσέσκου: Μια επιτυχημένη συνύπαρξη που έχει και συνέχεια
--  Eltern hochsensibler Kinder sind oft macht- und ratlos: Waltroperin Sarah König kann helfen
+-  Bigg Boss 17 Reunion: Neil Bhatt and Aishwarya Sharma turn heads with their style; netizens say ‘Made for each other’
+-  Vejas fotos do desfile da Dragões da Real
+-  75 Tahun, Titik Hamzah Hadirkan Geletar
+-  Reformtervet kér Kijevtől Brüsszel
+-  Breaking: Big blow to Team India as Virat Kohli takes this big decision, details inside
+-  Borzalmas állapotban lévő, szétszaggatott emberi testrészeket sodort partra az óceán
+-  Auslosung am Samstag: Was Borussia im Halbfinale erwarten würde
+-  İki suç örgütü çökertildi! Çok sayıda gözaltı
+-  Így készüljön: hamarosan méregdrága lesz a csoki
+-  Чибриков забросил 14-ю шайбу за фарм-клуб «Виннипега» в АХЛ
