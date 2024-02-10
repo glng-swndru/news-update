@@ -1,11 +1,11 @@
 # Latest News
--  Dag vol krakers in Europa: toppers in Duitsland en Spanje, AS Roma ontvangt koploper Inter
--  CAA would be implemented before Lok Sabha polls 2024: Home Minister Amit Shah
--  ST 10 februari 1999: Väpnat rån mot matbutik
--  Todas las nominaciones a los Goya 2024
--  Anna-Karins sambo dog i bilolycka – 24 år gammal
--  Dag vol krakers in Europa: toppers in Duitsland en Spanje, AS Roma ontvangt koploper Inter
--  Dag vol krakers in Europa: toppers in Duitsland en Spanje, AS Roma ontvangt koploper Inter
--  Imamo recept za hrskave krumpiriće u obliku srca idealne za Valentinovo
--  ‘I want to show people how proud I am to be Aboriginal’: Hynes’ passionate defence of All Stars clash
--  Người phụ nữ Việt đầu tiên chạy bộ 42km ở Bắc Cực: Chi phí 1,5 tỷ đồng cho trải nghiệm nhớ đời
+-  住宅火災で男性１人死亡 住人と連絡取れず
+-  強い寒気の影響 あす大気不安定
+-  Le cabaret Garden Palace était à la foire de Moulins
+-  Milli Savunma Bakanı Güler'in babası vefat etti
+-  Accused Russian spy worked for U.K. intelligence, met with prime ministers and princes
+-  Erhan Arıklı: “Dönüşümlü başkanlık” teklifini kabul ettiğimi bir kez daha ifade ettim
+-  Brawl outside mall as royalists confront protesters
+-  Fenerbahçe kimleri transfer etti, kimler ayrıldı?
+-  Accused Russian spy worked for U.K. intelligence, met with prime ministers and princes
+-  Gut zu wissen: So kommt man mit Kindern entspannt am Urlaubsziel an
