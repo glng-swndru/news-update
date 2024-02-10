@@ -1,11 +1,11 @@
 # Latest News
--  Şevval Şahin, cesur tarzıyla mest etti: Pozları beğeni yağmuruna tutuldu!
--  الراعي في قداس مار مارون: إنقاذ البلاد يستدعي رئيسا يتحدى جميع الشواذات المنتشرة في الدولة اللبنانية
--  Сборная России U18 разгромила Казахстан U20 в матче Кубка будущего
--  Ex gerente general Billy Eppler, suspendido por inventar lesiones
--  Dân tình than xem Táo Quân phải cần vietsub vì khó nghe, một mỹ nhân phim Việt bị chê thoại như trả bài
--  Merve Özbey ile Kenan Koçak evliliklerinde dört yılı geride bıraktı
--  Pokud jste se jako nezletilí objevili ve videu nebo na obrázku nahraném nebo zobrazeném na stránkách Pornhub.com, Pornhubpremium.com, Redtube.com, Redtubepremium.com, YouPorn.com, YouPornpremium.com, Tube8.com, Mofosex.com, ExtremeTube.com, Spankwire.com,
--  Hedayatullah Zyarmal: Von Afghanistan nach Bruchhausen-Vilsen
--  Bankas „Barclays“ nebefinansuos naujų naftos ir dujų projektų
--  Konzerte in München: Riesenansturm auf Adele-Tickets – das ist die letzte Chance auf Karten
+-  Nytt avtal ska minska våld i nära relationer
+-  Červený polmesiac: Izrael vtrhol do nemocnice v meste Chán Júnis
+-  Arbetsförmedlare i Uppsala fick in 426 000 på kontot
+-  Sau khi đi thăm họ hàng dịp Tết, tôi mới nhận ra: Đằng sau những đứa trẻ có lòng tự trọng thấp thường có 2 kiểu cha mẹ
+-  Pieno supirkimo kaina gruodį toliau augo
+-  Le Qatar s’en va, une légende du PSG s’en mêle !
+-  FOTO Na četirima lokacijama u Splitu na snazi će biti privremena prometna regulacija
+-  Şeyma Subaşı'ndan bir acayip paylaşım
+-  Video: Takhle Putin přepsal známé dějiny. Poláci si myslí, že musel blouznit
+-  Tour of Antalya'da Demre-Antalya etabını Matevz Govekar kazandı
