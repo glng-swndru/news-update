@@ -1,11 +1,11 @@
 # Latest News
--  বাংলা - ষষ্ঠ শ্রেণি
--  AT車の「ニュートラル」はいつ使うべき？信号待ちや下り坂での使用はNG
--  過年到東京必玩景點！新版大江戶溫泉泡湯看海 再到teamLab拍美照
--  '살생부설' · '음해설'…'지라시'에 혼탁해지는 공천 정국
--  春節國旅…業者哀嘆訂房率 「不降房價、辦促銷？」一票搖頭
--  Ranji Trophy 2024: I am focussed on winning the tournament for Mumbai, not expecting India call-up soon, says Prithvi Shaw
--  Спортивный директор «Оренбурга» заявил, что «Зенит» не связывался с клубом по поводу аренды Адамова
--  A Mississippi man buried in a pauper’s grave finally gets a proper funeral - NBC News
--  Señalan que ataque a precandidato en Jalisco no fue por motivos electorales
--  Range Rover phiên bản đặc biệt dành khách hàng châu Á vào năm rồng
+-  ‘Making someone redundant is heartbreaking’ — Jeweller Chupi Sweetman on owning failure and the supports that keep her going
+-  سقوط باورنکردنی نیسان
+-  Rubén Santos Becerro da el pregón ente un numeroso público
+-  Eoin O’Malley: John Bruton was a pragmatist who never claimed to have easy answers to complex problems
+-  ‘My only interest is taking market share from the pillar banks’ – Capitalflow CEO Ronan Horgan on his plans to transform the SME lending landscape
+-  Irish star of Made in Chelsea is now making his move on the ‘real capital’
+-  ‘We now know our daughter was dying before our eyes’ – Bryonny Sainsbury’s family on the pain of knowing she could have been saved
+-  Sassuolo-Torino, roba da bomber: Pinamonti-Zapata gol, è 1-1
+-  2금융권 이자캐시백은 언제? 내달 소상공인 40만명 최대 150만원 돌려받는다
+-  Apple iPhone 16 To Come With THESE Features? Check What Leaks Say
