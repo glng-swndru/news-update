@@ -1,11 +1,11 @@
 # Latest News
--  Google One reached a significant milestone of 100 million subscribers
--  C-LM presume del nivel de la región en salvamento y socorrismo, donde cuenta con 37 deportistas de alto rendimiento
--  Pendik, Gümrük'ten geçemedi
--  الصراف: لم أخضع لضغوط من أي كان
--  טשואמני וקרבחאל במרכז ההגנה של ריאל מדריד למשחק העונה. לחצו להרכב
--  Підтоплення на Закарпатті: перекрито дорогу державного значення
--  بكين تلغي ودية الأرجنتين مع استمرار تداعيات ميسي
--  Milei despide a dos altos cargos ligados a gobernadores considerados “traidores” por él
--  Probabilidades de lluvias en sectores montañosos de Honduras
--  Beşiktaş'ta imza şov
+-  Maastricht-Kriterien: EU einigt sich auf neue Schuldenregeln
+-  ‘Grey’s Anatomy’: Jessica Capshaw & Alex Landi Return As Guest Stars; Natalie Morales & Freddy Miyares Also Join Season 20
+-  Csodaszép csillagbölcsőről készített képet a Hubble űrteleszkóp
+-  Roma-Inter, Hujisen dal 1': le formazioni ufficiali
+-  NBA年度最糗／字母哥為比賽用球暴怒 毀64分紀錄之夜還被狠酸
+-  Húsíovia tvrdia, že pri americko-britských útokoch zomrelo 17 ľudí
+-  弟を包丁で切りつけた疑いで23歳男を逮捕 部屋では火災発生、1人の遺体
+-  TRST Premijerka Italije poklonila se žrtvama koje su titovi partizani masakrirali i bacili u fojbe
+-  Kräftig sparen bei MediaMarkt und Saturn: Über 800 (!) Brettspiele zum Super-Schnäppchenpreis dank MwSt-Aktion
+-  Ziraat Bankkart deplasmanda galip
