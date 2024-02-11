@@ -1,11 +1,11 @@
 # Latest News
--  Tỉ phú Giáp Thìn Wei Jianjun - Người biến hãng xe Trung Quốc từ căn tường đổ sụp tới ‘Vạn lý trường thành’
--  Vosky na lyže bez fluoru. Šetrné k přírodě, náročné pro sportovce. A hodně drahé
--  Billy Joel nabídl k prodeji svůj dům na Floridě. Už potřetí
--  Video: Dāvis Bertāns paredzēja maiņas iespēju un debitē ar otro rezultatīvāko spēli sezonā
--  CHRISTIAN VIEWPOINT: These days, we look despairingly for messiahs
--  Mansur Yavaş bir projesini daha hayata geçiriyor
--  Hertfordshire County Council forecasts £15.7m overspend for 23/24
--  Kütahya Müftüsü Dr. İrfan Açık şehit yakınlarını ziyaret etti
--  Lần cuối cùng Bác Hồ chúc Tết đồng bào, chiến sĩ Xuân Kỷ Dậu 55 năm trước
--  Grēku pilsētā Mahoumsam ceļā pēc trešā Super Bowl stāsies Misters Nesvarīgais
+-  Infortunati Milan: non solo Thiaw, NOVITÀ anche su Tomori e Kalulu. Cosa succederà in settimana
+-  Çeyrek final kuraları çekilecek
+-  San Francisco 49ers backup quarterback having Super Bowl experience he never envisioned
+-  Deusa do Ébano é referência de vida para meninas negras
+-  Bergedorfer Polizist entpuppt sich als Serienbankräuber
+-  ‘비트코인 현물 ETF’ 승인 후 한 달···비트코인 가격은 ‘흐림’
+-  Vliegshow in Eelde. Bekijk beelden uit 1984 van vliegtuigen op de grond en in de lucht | Films van Toen
+-  Finale de la CAN 2024 Nigeria-Côte d'Ivoire: les petits poteaux, la vraie formation des Eléphants
+-  Yamaç paraşütü yapan arkadaşlarını uçaktan selamladı
+-  NM-sylv til skjåkgut
