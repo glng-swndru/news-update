@@ -1,11 +1,11 @@
 # Latest News
--  Russia attacks Ukraine with Shahed drones overnight: 23 out of 31 UAVs destroyed – Air Force
--  Kormányalakításra készül Pakisztánban Imran Hán pártja
--  BCE/Panetta: momento de reversão da postura da política monetária está se aproximando rápido -
--  VIDEO Jean-Marie Bigard et Lola Marois : Leurs jumeaux Bella et Jules de vrais préados, rare et surprenante apparition
--  İsrail gazetesi: Gazze'deki yıkım "atom bombası'' sonrasına benziyor
--  Fogy a levegő az Irakban állomásozó amerikai katonák körül: egységfrontra szólított fel az Irán-barát milícia
--  Osvaldo Giordano y Flavia Royón hablaron tras salir del Gobierno: qué dijeron de Milei
--  Titkok a mostani Super Bowlról
--  Fatma Aysu Turnalı
--  Butković: Turudić je transparentno izabran. A onda su krenula vrijeđanja i tirade
+-  Trendyol Süper Lig: Fatih Karagümrük: 1 - Pendikspor: 0
+-  Mayjen TNI Harfendi Minta Anggota TNI tak Terprovokasi Ulah OTK, Sentil Pilpres 2024
+-  AK Parti İBB Başkan Adayı Kurum: "Fikirtepe'de 60 bin ailemizin hayatını değiştirdik"
+-  "Novo zlato": Cena ove namirnice odlazi u nebesa
+-  Foibe: Braga (Pd), 'conoscere il passato per costruire una convivenza di pace'
+-  Best European country to retire is beautiful and has free healthcare - and it's not Spain
+-  Alle aandacht gaat in De Engelenbak naar het eten | Recensie Over de Tong
+-  Były reprezentant Polski chce wrócić do kadry po latach. "To ja muszę dać sygnał"
+-  Slow-moving traffic on several major expressways tonight, says LLM
+-  Naagin 7: Not Ankita Lokhande but Isha Malviya to play the lead role after Tejasswi Prakash?
