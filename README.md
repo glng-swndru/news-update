@@ -1,11 +1,11 @@
 # Latest News
--  [VÍDEO] Sus a la campanya de la insígnia distintiva dels Sanitaris per la Llengua
--  KPU Bawaslu dan 12 Parpol di Bintan Sepakat APK Diturunkan 10 Februari 2024 Pukul 23.59 WIB.
--  الأهدل: تخزين جماعة الحوثي للاسلحة بمنازل المواطنين خطر وشيك يهدد حياتهم
--  Clive Woodward was smashed to the ground by Wales legend as he did TV work before England v Wales
--  Khách du lịch nườm nượp đi tour, xuất ngoại ngày mùng 1 Tết
--  Super Bowl LVIII: How much do advertisers pay for a 30-second commercial?
--  휴식 없이 출격 준비…"손흥민은 그런 사람"
--  LIZ JONES'S DIARY: In which a new chapter gets closer... and I cannot wait to turn the key in the lock
--  No bloco, foliões mostram que só o preconceito atrapalha o Carnaval
--  ВСУ за неделю потеряли 1,5 тыс. военных на краснолиманском направлении
+-  Russia attacks Ukraine with Shahed drones overnight: 23 out of 31 UAVs destroyed – Air Force
+-  Kormányalakításra készül Pakisztánban Imran Hán pártja
+-  BCE/Panetta: momento de reversão da postura da política monetária está se aproximando rápido -
+-  VIDEO Jean-Marie Bigard et Lola Marois : Leurs jumeaux Bella et Jules de vrais préados, rare et surprenante apparition
+-  İsrail gazetesi: Gazze'deki yıkım "atom bombası'' sonrasına benziyor
+-  Fogy a levegő az Irakban állomásozó amerikai katonák körül: egységfrontra szólított fel az Irán-barát milícia
+-  Osvaldo Giordano y Flavia Royón hablaron tras salir del Gobierno: qué dijeron de Milei
+-  Titkok a mostani Super Bowlról
+-  Fatma Aysu Turnalı
+-  Butković: Turudić je transparentno izabran. A onda su krenula vrijeđanja i tirade
