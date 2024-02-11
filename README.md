@@ -1,11 +1,11 @@
 # Latest News
--  Sevastova: "Savu labāko tenisu spēlēšu varbūt vasarā"
--  "Fazio, come va?". Poi il raptus: clamoroso Fiorello, vaffa in diretta | Video
--  Mérgező gondolatok, amiket jobb, ha elfelejtünk
--  Kličko: Putin bi napao Aljasku, Ukrajina neće biti poslednja
--  Premier League : Liverpool reprend la tête, Tottenham s’offre Brighton sur le fil, Erling Haaland en sauveur contre Everton
--  Мурат Зязиков: Задача дипломатии – обеспечение мира во всем мире
--  Безумная сумма. Красюк рассказал, сколько стоят билеты на бой Усик – Фьюри
--  ПСЖ переграв Лілль: результати 21 туру Ліги 1
--  King issues first message since cancer diagnosis
--  SK Gaming остава в плейофите на LEC
+-  L'océan Atlantique proche d'un point de bascule "critique" selon un étude
+-  Ekranlardan gələn mavi işıq dərinin qocalmasını sürətləndirir?
+-  AK Parti İstanbul Kadın Kolları İl Başkan Yardımcısı Fatma Sevim Baltacı, Beyoğlu'nda geçirdiği trafik kazasında hayatını kaybetti
+-  Zuid-Afrika draagt Hugo Broos op handen: Belgische coach verovert brons op Afrika Cup na spannende strafschoppenreeks
+-  Sandhar Technologies Q3 FY24 Results Live: Profit Rises by 28.21% YoY
+-  Buitenlands voetbal | Feyenoord-opponent Roma onderuit tegen koploper, PSG maakt geen fout
+-  2 หลานสางแค้น ฆ่าน้าชายเมาแล้วชกแม่ คว้าเหล็กตีดับ
+-  GDE GOD TI DA IGRAŠ TU SU TVOJI GROBARI: Košarkaši Partizana doputovali u Laktaše - tamo ih dočekale NESTVARNE SCENE (VIDEO)
+-  Buitenlands voetbal | Feyenoord-opponent Roma onderuit tegen koploper, PSG maakt geen fout
+-  [ITmedia News] 「これ……ラブコメじゃん！！」 ヒット中の映画“ガンダムSEED”に驚愕したマンガ家の話
