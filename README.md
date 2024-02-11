@@ -1,11 +1,11 @@
 # Latest News
--  Israel, Just Downgraded, Readies Bond Spree to Pay for War Against Hamas
--  Ucap Pesan untuk Moana Sambil Nangis, Sikap Ria Ricis Malah Dikatai Drama
--  Meet my friend, the UK Labour candidate seeing Red amid Tory death spiral
--  First ever ‘vegan butchers’ in Andalucia opens on the Costa del Sol – this is what’s on the menu
--  Grand Designs UK: Single dad's 'treehouse' is all for the kids
--  El adiós de los Mozos de Arousa en 'Reacción en Cadena': "Mucha gente dejará de verlo"
--  La recette de l’Insa Lyon pour arriver à une parité presque parfaite parmi ses étudiants
--  Tiền lương của cán bộ, công chức, viên chức sẽ tăng khoảng 30% từ 1-7
--  ST 11 februari 1999: Sundsvall är årets popstad
--  Nuevas generaciones ya no quieren trabajar
+-  Jean-Christophe Rufin, un Prix Goncourt contre les Gafam
+-  Zlatni savjeti za kuhanje tjestenine
+-  Plus d'un million de téléspectateurs, et moins de 700 licenciés... Pourquoi le biathlon fait un carton à la télé
+-  Avec Percival Everett, le cauchemar américain a son polar
+-  Zelenskiy appoints ex-deputy defence minister Pavliuk as new ground forces chief
+-  Başkan Canpolat: “Hep birlikte hizmet etmeye gayret edeceğiz”
+-  堂安律 噂の恋人？がアジア杯に
+-  Borsadan rekor üzerine rekor: Dünyada ilk sırada
+-  Viacero areálov bude dnes pre zlé poveternostné podmienky zatvorených
+-  Həvəskar xizəkçilər arasında Heydər Əliyev Kuboku keçirilib
