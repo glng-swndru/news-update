@@ -1,11 +1,11 @@
 # Latest News
--  Fuji Ikut Kampanye GanjarPranowo-Mahfud MD di Solo, Warganet Wanti-Wanti Begini
--  Etelä-Saimaa kysyi, valtuutetut vastasivat: Tällainen kaupunginjohtaja Lappeenrantaan tarvitaan
--  全国大会に向けて卓球部が2カ月ぶり活動再開 被災中学の部活を大学が支援
--  फिलीपींस में भूस्खलन से मरने वालों की संख्या बढ़कर 35 हुई, 77 लापता
--  وفيات الأحد .. 11 / 2 / 2024
--  尼神インター・誠子、かわいすぎるボブカットの近影に「可愛さが増してきてますね」「ダイエット方法を教えて」
--  Rủ khách thăm vườn, lão nông thu tiền tỷ mỗi năm
--  県下の「海上犯罪」取締り状況まとまる ７割が救命・消防・排水設備の不備など海事関係の法令違反【岡山】
--  Từ 3 món công nghệ được giới trẻ Trung Quốc đổ xô 'găm hàng', phát hiện suy nghĩ thực của Gen Z về ăn Tết
--  Cáritas recibió donaciones y colaboró con los santiagueños en Plaza Libertad
+-  Luiza Brunet diz que está 'obcecada' com o BBB 24 e que sofre vendo embate de Yasmin com Davi
+-  Woman burns newborn baby in oven
+-  Assam: Karimganj police arrest three drug peddlers, seize 150 gram heroin
+-  車で通れる道が1本もない 日本で唯一の「車で移動できない」群馬の県境
+-  READY? Stage 6 load shedding until further notice
+-  ‘Deserved it 200 percent’: Manoj Tiwary lauds this pacer for getting maiden Test call-up
+-  Russland steht vor „logistischem Zusammenbruch“: Chinas Bank lässt Putin auflaufen
+-  網羅賽揚強投沒定案 美媒爆卡關在天使隊老闆
+-  Casteist remarks land city woman in dock
+-  CM interacts with farmers
