@@ -1,11 +1,11 @@
 # Latest News
--  "ZAŠTO ME PONIŽAVAŠ?" Rijaliti učesnica otkrila da je četiri godine radila u STARAČKOM DOMU: "Ne preostaje ti ništa drugo"
--  رواية من أعماق أحضان مجنونة -21
--  זעם בסכנין על גל ליבוביץ'. גנטוס: "בושה להרחיק את דראפיץ'"
--  Tarjeta azul en el fútbol: qué es y cómo funcionará
--  Wohngeld in Nienburg: Nach Reform doppelt so viel, dreimal so teuer
--  Environnement. Puits de pétrole dans le bassin d’Arcachon : pourquoi ça fait débat ?
--  Simstjärnan blickar mot en speciell VM-medalj
--  Larm om trafikolycka
--  Environnement. Puits de pétrole dans le bassin d’Arcachon : pourquoi ça fait débat ?
--  Mercato - PSG : La mère de Mbappé a rencontré le Real Madrid !
+-  Les commémorations des 80 ans de la Libération en Haute-Loire ont débuté par deux hommages dans le Brivadois
+-  National Council of Women ushers in new executive council for 2024
+-  Thủ tướng Israel tuyên bố thiết lập hành lang an toàn cho dân thường ở Rafah
+-  Toutes les pharmacies et les vétérinaires de garde ce dimanche 11 février dans l'arrondissement de Vichy
+-  'I ate the wedge of lettuce at Miller and Carter and now it all makes sense'
+-  Magiška Curry ranka: „Warriors“ snaiperio tritaškis paskutinę sekundę paskandino „Suns“
+-  One-Punch Man, il cosplay di Tatsumaki da Lada Lyumos è un Tornado
+-  Subsidio para mayores de 52 años: casi 100 euros más al mes con la propuesta de UGT
+-  Aurinkoparatiisi kiinnostaa jo suomalaisia asuntosijoittajiakin, mutta samalla aluetta uhkaa ankara vesipula
+-  Chawaguta named substantive Zimbabwe Women head coach
