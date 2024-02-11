@@ -1,11 +1,11 @@
 # Latest News
--  Jean-Christophe Rufin, un Prix Goncourt contre les Gafam
--  Zlatni savjeti za kuhanje tjestenine
--  Plus d'un million de téléspectateurs, et moins de 700 licenciés... Pourquoi le biathlon fait un carton à la télé
--  Avec Percival Everett, le cauchemar américain a son polar
--  Zelenskiy appoints ex-deputy defence minister Pavliuk as new ground forces chief
--  Başkan Canpolat: “Hep birlikte hizmet etmeye gayret edeceğiz”
--  堂安律 噂の恋人？がアジア杯に
--  Borsadan rekor üzerine rekor: Dünyada ilk sırada
--  Viacero areálov bude dnes pre zlé poveternostné podmienky zatvorených
--  Həvəskar xizəkçilər arasında Heydər Əliyev Kuboku keçirilib
+-  В Пакистане завершили подсчет голосов на парламентских выборах
+-  Bohater finału zaskoczył. Nagle wyjął to z getrów [WIDEO]
+-  Ghosting: Wenn sich eine Bekanntschaft in Luft auflöst
+-  Bir buçuk milyon Filistinli için tehcir planı masada
+-  Bohater finału zaskoczył. Nagle wyjął to z getrów [WIDEO]
+-  Năm 2024 có 2 ngày cực xấu khai trương cửa hàng, công ty có thể khiến chủ doanh nghiệp hao hụt tài lộc cả năm
+-  Pieskow komentuje wywiad Putina. Ujawnił główny cel rozmowy. "Przynajmniej pomyślą"
+-  Kalp krizi geçiren karakol komutanından acı haber
+-  Əməkdar artist: "Hər zaman ciddi mahnı olmaz ki..."
+-  Grupas "Bi-2" līderis publicē attēlus un video no ieslodzījuma vietas Taizemē
