@@ -1,11 +1,11 @@
 # Latest News
--  Pieter 'in gesprek met achterban' over formatie
--  Az USA történetének legnagyobb deportálását ígéri Donald Trump megválasztása esetén
--  Hadise külot modasına uydu! Dansıyla yine gündem oldu
--  Maggi-Mythos: Nein, Maggi kommt nicht aus dem Saarland – und wir sprechen es auch noch falsch aus
--  Hon har skapat en samlingsplats för kommunens kultur
--  ‘밤에 피는 꽃’ 이종원, 순정과 주정사이
--  حماس: أي هجوم بري لإسرائيل على رفح يعني "نسف" مفاوضات التبادل
--  Gazze'de can kaybı 28 bin 176'ya yükseldi
--  Pakistan Elections: Split verdict in Pakistan, Independents backed by PTI win big
--  Schule in Hilden: Klassenkameraden von 1969 gesucht
+-  Stopp för köttbullar och makaroner varje dag: ”I huvudsak av ekonomiska skäl”
+-  Acerbi e il gestaccio ai tifosi della Roma: scoppia la polemica social! – FOTO
+-  České žaláře jsou přeplněné, přibývá případů napadení. Snižme radikálně počet vězňů, navrhuje expert
+-  PSG : L’image folle qui confirme un transfert à 90M€ ?
+-  Většina Íránců kritizujících současný režim by návrat před rok 1979 nechtěla, uvádí Horčička
+-  Athletics: Outstanding young runners return home with medals
+-  Torino, i punti persi con le "pericolanti" pesano. Ma Juric ci crede: "Stiamo facendo benissimo"
+-  Jurgen Klopp has 'two major rebuild projects planned' after Liverpool exit
+-  Meet the man who was world’s ‘last knight’ and attacked army of Nazi Germany with sword and arrows
+-  Ausbildung: Marinearsenal Kiel meldet sich mit Rekord-Quote zurück
