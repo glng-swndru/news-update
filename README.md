@@ -1,11 +1,11 @@
 # Latest News
--  BACK ROADS BILL: Solitude – remoteness and reasons why
--  El Leganés encadena por primera vez en la temporada tres jornadas sin marcar
--  18 automobile hibride și 125 de camere de corp au fost oferite Poliției R. Moldova de către Guvernul Japoniei, cu sprijinul PNUD
--  Bo Jackson wins $21 million suit against niece, nephew who tried to extort him
--  Android 15 vai chegar com suporte nativo para armazenamento de aplicações
--  Ísak skoraði þegar slæmt gengi Dusseldorf hélt áfram
--  Колумбийската звезда е избрана за Жена на годината на "Билборд"
--  Közel a tűzhöz – Brüsszelben
--  La Liga: Real Madryt - Girona. Relacja i wynik na żywo
--  Ősszel kezd a Póka Egon Akadémia
+-  Google One reached a significant milestone of 100 million subscribers
+-  C-LM presume del nivel de la región en salvamento y socorrismo, donde cuenta con 37 deportistas de alto rendimiento
+-  Pendik, Gümrük'ten geçemedi
+-  الصراف: لم أخضع لضغوط من أي كان
+-  טשואמני וקרבחאל במרכז ההגנה של ריאל מדריד למשחק העונה. לחצו להרכב
+-  Підтоплення на Закарпатті: перекрито дорогу державного значення
+-  بكين تلغي ودية الأرجنتين مع استمرار تداعيات ميسي
+-  Milei despide a dos altos cargos ligados a gobernadores considerados “traidores” por él
+-  Probabilidades de lluvias en sectores montañosos de Honduras
+-  Beşiktaş'ta imza şov
