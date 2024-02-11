@@ -1,11 +1,11 @@
 # Latest News
--  Haaland skaut meisturunum á toppinn
--  Dorse kaldırıldı, otoyol trafiğe açıldı
--  ثبت شانزدهمین برد فصل منچسترسیتی با دبل هالند
--  «Манчестер Сити» благодаря дублю Холанна обыграл «Эвертон» и вышел на первое место в АПЛ
--  Sigarayı bırakmak isteyenlere müjdeli haber
--  Želite imati top vjenčanicu, a muka vam je od cijena? Naša novinarka je pronašla luksuzne modele: ne prelaze 130 eura!
--  الداخلية السعودية: ضبط 1051 مخالفًا حاولوا عبور الحدود خلال أسبوع، 41% منهم يمنيو الجنسية
--  England: Haaland skoraði tvennu þegar Man City komst á toppinn
--  Haaland afgreiddi Everton
--  سلطنة عمان تختتم مشاركتها في المؤتمر الدولي للعدالة الغذائية
+-  Négyszázötven milliárd forintos programmal segíti a kormány a vállalkozásokat
+-  "Fugatti ha dichiarato guerra al mondo animalista"
+-  Négyszázötven milliárd forintos programmal segíti a kormány a vállalkozásokat
+-  Saadet Partili rakibi ile karşılaşan İmamoğlu'ndan dikkat çeken açıklama
+-  Galatasaray-Başakşehir maçının ilk 11'leri belli oldu
+-  ムロツヨシの“1人2役”演技、監督と原作者はどう評価したのか 映画『身代わり忠臣蔵』コメントが到着
+-  Political content will no longer be recommended on Instagram and Threads
+-  Jadwal Imsakiyah dan Buka Puasa Wilayah Makassar Besok Minggu 11 Februari 2024
+-  Négyszázötven milliárd forintos programmal segíti a kormány a vállalkozásokat
+-  Daryl Dike forced off in tears as gut-wrenching West Brom injury record strikes again
