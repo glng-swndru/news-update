@@ -1,11 +1,11 @@
 # Latest News
--  Nem áll le Zelenszkij, újabb katonai vezetőket menesztett
--  Eine Stadt will wissen, was kommt
--  Hon flydde råttorna i Höja – och tog rutten till Spanien
--  Mit Schutzengel an Bord - FF Wiener Neudorf: Verkehrsunfall auf der Südostautobahn
--  Super Bowl: Κάνσας εναντίον Σαν Φρανσίσκο στη σκιά της… Τέιλορ Σουίφτ
--  Bursa Büyükşehir Belediye Başkan Adayı Mustafa Bozbey: "Bursa'da kentsel dönüşüm yapılmadı"
--  Заради дейността на Мартин Божанов-Нотариуса, Радев поиска операция за деинтоксикация на институциите
--  Com acessório a R$ 10, ninguém fica 'zerado' de fantasia
--  Жестоко убийство в Италия, мъж уби жена си и двете си деца, защото видял дявола
--  Bļugera un Porziņģa pārstāvētajām līderēm agrās spēles pirms NFL lielā fināla
+-  TSV 1860 München gegen FC Ingolstadt 04: So könnt ihr das Spiel der 3. Liga im TV und Live-Stream sehen
+-  Chanel abre a primeira loja nos EUA dedicada a alta joalharia e relojoaria
+-  Tusk reaguje na słowa Trumpa. Zwrócił się do prezydenta Dudy
+-  USA machen China den Status als deutscher Handelspartner Nr. 1 streitig
+-  Willie Mays cautivó a la afición caraqueña
+-  Två bilar i sidokrock – totalstopp i trafiken
+-  Tomasz Adamek ma dwie córki. Młodsza chciała być modelką. "Wybiłem jej to szybko z głowy"
+-  „Šiaulių“ kapitonas tiki savo komandos galimybėmis patriukšmauti: dar ne viską parodėme
+-  A Comprehensive Tech Guide For Valentine’s Day
+-  Бузова ответила на обвинения экс-продюсера Лободы в вечном пьянстве
