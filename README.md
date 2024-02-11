@@ -1,11 +1,11 @@
 # Latest News
--  Mustangs win Class A East Region wrestling title, Davies, North and Central Cass produce individual champs
--  グレタさん、高速道建設計画反対デモに参加 仏
--  Patroli Tiga Pilar Polisi Denpasar Razia 73 Duktang, Kompol Ari Herawan Bereaksi
--  Lola Poggio, la hermana menor de Julieta, se mostró con una jugada trikini
--  Manchester United have £496m NFL blueprint for Old Trafford which Tottenham haven't capitalised on
--  Watch: Kavya Maran Can't Hide Her Happiness As Sunrisers' SA20 Franchise Lifts Back-To-Back Titles - NDTV Sports
--  Danas čak do 23°C: Ove predele očekuje kiša
--  金童唐西奇轟32分、加佛德首秀19分 獨行俠痛宰雷霆還破隊史紀錄
--  Masa Tenang Kampanye, Sandiaga Uno Sarankan Agar Alat Peraga Kampanye Didaur Ulang
--  Madhya Pradesh के झाबुआ में आदिवासी समुदाय के सम्मेलन को Prime Minister Modi आज करेंगे संबोधित
+-  Atlantic Ocean is headed for a tipping point − once melting glaciers shut down the Gulf Stream, we would see extreme climate change within decades, study shows - Times of India - IndiaTimes
+-  Κοντογεώργης στο ethnos.gr: Ανοιχτοί στον παραγωγικό διάλογο με τους αγρότες - Στα θεσμικά ζητήματα υπάρχουν σημεία σύγκλισης
+-  Euan McColm: Almost a year on, the fall of the House of Humza Yousaf has started
+-  Warten auf den Super Bowl: Die Halbzeitshow ist für Niklas und Henrik reine Nebensache
+-  בדרך לאליפות? הנתונים של דגו בהשוואה לבכר. האזינו לפודקאסט מכבי חיפה
+-  Новите случаи на коронавирус са едва 10
+-  Wallons et Flamands ne seront plus égaux au contrôle technique: «Ce projet pose énormément de questions au niveau pratique»
+-  ¿Estupidez humana o Inteligencia Artificial?
+-  Ecological disarray: Uncovering the global crisis and the enduring wisdom of the Vedas
+-  暖男形象翻車！ 池昌旭被抓包室內吸菸…經紀公司認了：非常抱歉
