@@ -1,11 +1,11 @@
 # Latest News
--  Były piłkarz Realu Madryt skazany! To strzelec gola w finale Ligi Mistrzów
--  Seis temblores sacuden Loreto, BCS, este 10 de febrero; van más de 63 sismos en dos semanas
--  Elemző a lemondásokról: Minden jel abba az irányba mutat, hogy ezzel az ügy lezárható
--  «Виннипег» — «Питтсбург»: смотреть трансляцию матча НХЛ в прямом эфире
--  Amir crowns national team with Asian Cup trophy
--  Conozca a Veragua, la joyería tica que Residente utiliza en sus videos y portadas internacionales
--  Giorno del Ricordo, tricolore sui monumenti. Sangiuliano: buco nero nella memoria nazionale
--  VIDEO Čop opet zabio Dinamu, Petko osigurao bod 'modrima'. Pogledajte ludnicu s Kranjče
--  Israel afirma ter encontrado túnel do Hamas sob sede de agência da ONU em Gaza
--  Menekül a pénz Európa ingatlanalapjaiból
+-  5 физически признака, че сте влюбени
+-  Übergangen? Herzogin Meghan wird nicht auf Royals zugehen
+-  DİN Mingəçevirdəki qətillə bağlı yeni məlumat yaydı
+-  【京都記念】AI予想 プラダリア本命！京都実績を評価 - スポニチアネックス Sponichi Annex
+-  ¿Cómo invertir en el S&P 500 desde Costa Rica? Indicador captura a inversionistas tras alcanzar récord
+-  Sindicalistas califican de “carnavalazo” las leyes aprobadas por la Asamblea y la ratificación del acuerdo con China
+-  Bijesni Kovač opleo po sucima: Katastrofa, ja to ne prihvaćam!
+-  François Cluzet revient sur le départ de sa mère alors qu’il n’avait que 8 ans dans Les Rencontres du Papotin
+-  A infantaria da Ucrânia está sem soldados e os que restam estão exaustos
+-  Horoscope Today 11 February 2024 : मेष, वृषभ, मिथुन राशींसाठी आजचा दिवस खास! करिअर, आर्थिक स्थिती कशी राहील? आजचे राशीभविष्य जाणून घ्या
