@@ -1,11 +1,11 @@
 # Latest News
--  Tunisie – METEO : Pluies orageuses sur le nord
--  Predsednica Madžarske priznala hudo napako in odstopila
--  12星座「告白前」會有什麼徵兆？ 天蠍會設結界、射手愛問在幹嘛
--  Carnaval pode provocar aumento dos casos de dengue, diz infectologista
--  Сальдо: ВС РФ нанесли удары по семи пунктам дислокации ВСУ в Херсонской области
--  Aslan tam gaz
--  ‘The Golden Bachelorette’ Set For Fall Premiere At ABC; ‘The Bachelorette’ To Return In Summer - Deadline
--  Galatasaray'a ilk yarı yetti!
--  Propouštění bez udání důvodů? Stát by musel zvýšit výdaje, míní odboráři
--  Lengjubikar kvenna: Þór/KA skoraði sjö gegn ÍBV
+-  Зеленский назначил заместителей нового главкома ВСУ
+-  Taylor Swift’s eras ranked from worst to best
+-  Daily Lotto results: Saturday, 10 February 2024
+-  NFL: Guia do Super Bowl 2024
+-  Cuenta oficial en X de Cámara de Diputados de Brasil es pirateada
+-  Przeskoczyłem z iPhone’a 11 na iPhone’a 15 Pro i… jestem zdumiony
+-  Taylor Swift’s eras ranked from worst to best
+-  Zwei Stunden Verspätung: Kanye West verärgert seine Fans!
+-  Leaning into Lent – and trying to do better
+-  ‘Zombies 4’ Greenlit at Disney Branded Television
