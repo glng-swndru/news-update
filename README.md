@@ -1,11 +1,11 @@
 # Latest News
--  Infortunati Milan: non solo Thiaw, NOVITÀ anche su Tomori e Kalulu. Cosa succederà in settimana
--  Çeyrek final kuraları çekilecek
--  San Francisco 49ers backup quarterback having Super Bowl experience he never envisioned
--  Deusa do Ébano é referência de vida para meninas negras
--  Bergedorfer Polizist entpuppt sich als Serienbankräuber
--  ‘비트코인 현물 ETF’ 승인 후 한 달···비트코인 가격은 ‘흐림’
--  Vliegshow in Eelde. Bekijk beelden uit 1984 van vliegtuigen op de grond en in de lucht | Films van Toen
--  Finale de la CAN 2024 Nigeria-Côte d'Ivoire: les petits poteaux, la vraie formation des Eléphants
--  Yamaç paraşütü yapan arkadaşlarını uçaktan selamladı
--  NM-sylv til skjåkgut
+-  Десетки чужденци казаха "Да" във Варна, искат битов ритуал
+-  No “filme” do Liverpool, foi Jürgen a escrever o “Klopp twist”
+-  İstanbul'daki Silahlı Saldırıyla İlgili Yeni Görüntüler
+-  Károly király először nyilatkozott, mióta rákkal diagnosztizálták
+-  Künstliche Intelligenz an Hertens Schulen: Yvonne Jeschke und Sascha Maurus testen Technologie
+-  Mayotte : Gérald Darmanin annonce « la fin du droit du sol » sur l’île
+-  Scontri tra manifestanti e polizia al corteo di Roma per Ilaria Salis
+-  BTS RM·지민 설인사 “군생활 잘 적응 중이에요”
+-  ЛНЗ - Спартак 3:1: огляд матчу ВІДЕО
+-  İşte Kocaelispor’un muhtemel 11’i
