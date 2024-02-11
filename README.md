@@ -1,11 +1,11 @@
 # Latest News
--  Pääekonomisti Henna Mikkosella on arvostettu sijoitusalan tutkinto, ja näin hän sijoittaa itse: ”Se tuottaa myös tuloksia”
--  February brings fun entertainment for Burns Lake residents
--  The NSO hosts a jumbo jam session for students
--  Microsoft, Windows 12'yi 2024'te piyasaya sürmeyebilir
--  Jelang Ramadhan, Harga Bahan Pokok Turun
--  LIVE | Russische aanval: Kyiv schiet 40 van de 45 drones uit de lucht
--  京都市中京区のマンガミュージアム一帯で「仮装百鬼夜行」パレード 妖怪に詳しいあの人も参加
--  Dok se na Wall Streetu obaraju rekordi, europski ulagači su nešto oprezniji
--  ‘A high-class player’: Jason Cundy says 23-year-old Tottenham Hotspur player is brilliant
--  For sale: Stunning ski chalets in Spain – but you’re going to need a BIG budget
+-  DWS-icoon André Pijlman kijkt met verdriet naar verval roemruchte club
+-  Objawy braku witaminy B12. Apatia, osłabienie, kłopoty z pamięcią, depresja 11.02.2024
+-  NATO SE PREISPITUJE Rusija naterala Alijansu na očajnički korak
+-  Зоря оголосила про повернення бразильця
+-  Beşiktaş'ta Kayserispor maçı öncesi sakatlık şoku!
+-  Karnval 2024 im Kreis Mettmann: Hier gibt es Kostüme günstig Second Hand
+-  Ротенберг об отказе России U18 от призов: «Белорусы – наши друзья, мы вместе развиваемся. Нам скандалы не нужны. Но все должно быть честно»
+-  NYT: Ukrainas pretgaisa aizsardzība bez Rietmu atbalsta spēs funkcionēt tikai līdz martam
+-  Housing, food insecurity are rural problems, too. Grassroots groups in N.S. are stepping up.
+-  Írsku televíznu šou videlo 400.000 ľudí, môže zvýšiť náš turizmus
