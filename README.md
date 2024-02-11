@@ -1,11 +1,11 @@
 # Latest News
--  Rodriguinho apelida Yasmin Brunet de coroa gulosa
--  Zilu Godoi curte barzinho acompanhada de Marle Mattos: - Essa mulher é da noite
--  Ungarns Staatschefin Katalin Novak tritt nach Pädophilie-Skandal zurück
--  Causa da morte de Carl Weathers, o Apollo Creed da franquia Rocky Balboa, é revelada
--  Após morte da mãe, Gisele Bündchen reflete: Deixar ir às vezes pode parecer desafiador
--  Karneval in Köln: Jungfrau Frieda kann nicht am Rosenmontagszug teilnehmen
--  Social Media: "Wie stehst Du zu Israel?" – Warum wir Stars zu politischen Statements drängen
--  Social Media: "Wie stehst Du zu Israel?" – Warum wir Stars zu politischen Statements drängen
--  PREMINUO POZNATI KUVAR RASEL NORMAN: Zvezda emisije "Saturday Kitchen" oduzeo sebi život nakon svađe sa devojkom (FOTO)
--  Perfil da Câmara no X é invadido e post chama ministro de “ditador”
+-  COLIN CAMPBELL: From personal experience, no wonder the ‘free’ NHS is buckling right now
+-  Kladno - Vítkovice 2:3. Zmar Rytířů, připsali si patnáctou prohru v řadě
+-  Schalke: Gar nicht toll an „tollen Tagen“: Karneval und andere königsblaue Fakten
+-  Thijs Boogaard (15) strandt in kwalificaties ABN AMRO Open, Gijs Brouwer wel door
+-  Priske: Krejčí je kluk mnoha možností, nádherný gól. Haraslín bude ready
+-  Paris of the east (kala pani version)
+-  Сборная Катара по футболу во второй раз подряд победила на Кубке Азии
+-  Celular alugado ou doado por cervejaria vira alternativa a furtos no Carnaval
+-  À quand une passerelle sur l’Odet pour relier la gare de Quimper à l’hippodrome ?
+-  Šokovaný Hapal: Všude pozdě, porážku beru na sebe. Našel jediné pozitivum
