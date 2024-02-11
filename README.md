@@ -1,11 +1,11 @@
 # Latest News
--  Зеленский назначил заместителей нового главкома ВСУ
--  Taylor Swift’s eras ranked from worst to best
--  Daily Lotto results: Saturday, 10 February 2024
--  NFL: Guia do Super Bowl 2024
--  Cuenta oficial en X de Cámara de Diputados de Brasil es pirateada
--  Przeskoczyłem z iPhone’a 11 na iPhone’a 15 Pro i… jestem zdumiony
--  Taylor Swift’s eras ranked from worst to best
--  Zwei Stunden Verspätung: Kanye West verärgert seine Fans!
--  Leaning into Lent – and trying to do better
--  ‘Zombies 4’ Greenlit at Disney Branded Television
+-  Liverpool đánh bại Burnley, Alexander-Arnold lập nên siêu kỷ lục
+-  Mađarska predsednica se oglasila nakon što je podnela ostavku: Pogrešila sam
+-  Jalkapallo | Haaland siivitti Manchester Cityn hetkeksi kärkipaikalle – Liverpoolilta nopea vastaus
+-  LIVE eredivisie | Dubbele wissel Excelsior bij start tweede helft, FC Twente leidt comfortabel
+-  Egy hónapig biztosan Kövér László látja majd el a köztársasági elnök feladatait
+-  TBMM Başkanı Kurtulmuş Küçükçekmece'deki silahlı saldırıyı kınadı
+-  Meet Jeremiah Fennell, the 11-year-old NFL reporter who stole the show this week in Las Vegas
+-  Американские зоозащитники требуют убрать с каруселей игрушечных лошадей
+-  Fjölnir með sannfærandi sigur á HK
+-  LIVE eredivisie | Dubbele wissel Excelsior bij start tweede helft, FC Twente leidt comfortabel
