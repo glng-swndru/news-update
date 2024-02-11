@@ -1,11 +1,11 @@
 # Latest News
--  Ουγγαρία: Παραιτήθηκε η πρόεδρος μετά το σκάνδαλο σεξουαλικής κακοποίησης παιδιών
--  كاريكاتير أحمد رحمة
--  AK Parti’nin Ağrı ve Muş adayları belli oldu
--  Source - Spencer Dinwiddie to join Lakers after clearing waivers - ESPN
--  Fußball-Bundesliga: Fan-Proteste: eine Partie kurz vor dem Abbruch
--  Tog grus från järnåldersgravar – i naturreservat
--  ONLINE + VIDEO: Plzeň - Boleslav 0:0. Valenta v základu, chytá Jedlička
--  Live: Ρόμα - Ίντερ
--  1 Warren Buffett Stock That Could Go Parabolic in 2024
--  Ministério dos Transportes anuncia que vai investir R$ 4,7 bi em rodovias e ferrovias que vão escoar safra 23/24
+-  Rodriguinho apelida Yasmin Brunet de coroa gulosa
+-  Zilu Godoi curte barzinho acompanhada de Marle Mattos: - Essa mulher é da noite
+-  Ungarns Staatschefin Katalin Novak tritt nach Pädophilie-Skandal zurück
+-  Causa da morte de Carl Weathers, o Apollo Creed da franquia Rocky Balboa, é revelada
+-  Após morte da mãe, Gisele Bündchen reflete: Deixar ir às vezes pode parecer desafiador
+-  Karneval in Köln: Jungfrau Frieda kann nicht am Rosenmontagszug teilnehmen
+-  Social Media: "Wie stehst Du zu Israel?" – Warum wir Stars zu politischen Statements drängen
+-  Social Media: "Wie stehst Du zu Israel?" – Warum wir Stars zu politischen Statements drängen
+-  PREMINUO POZNATI KUVAR RASEL NORMAN: Zvezda emisije "Saturday Kitchen" oduzeo sebi život nakon svađe sa devojkom (FOTO)
+-  Perfil da Câmara no X é invadido e post chama ministro de “ditador”
