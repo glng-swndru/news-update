@@ -1,11 +1,11 @@
 # Latest News
--  আজিজুল হক কলেজ কেন ‘আপন-আপন লাগে’
--  Người xin mở đại học tư thục đầu tiên
--  Fédérale 2 : une rencontre à quitte ou double pour Riom en déplacement à Belvès
--  XV de France : face à l’Écosse, Gaël Fickou a (enfin) relevé la tête
--  Fédérale 2 : une rencontre à quitte ou double pour Riom en déplacement à Belvès
--  توكل كرمان : لا أخطاء لثورة 11 فبراير
--  SGK Uzmanı Özgür Erdursun emeklinin cebine girecek net rakamı açıkladı ‘Emekliler çok üzülecek’
--  Борис Бонев обясни точно защо ПП-ДБ-СС напуснаха заседанието на СОС
--  6 loài hoa phú quý lộc tài, năm mới trồng trong nhà cho đẹp và may mắn
--  Anastasiia Kirpichnikova sera l'une des rares chances de médailles mondiales françaises
+-  Tỉ phú Giáp Thìn Wei Jianjun - Người biến hãng xe Trung Quốc từ căn tường đổ sụp tới ‘Vạn lý trường thành’
+-  Vosky na lyže bez fluoru. Šetrné k přírodě, náročné pro sportovce. A hodně drahé
+-  Billy Joel nabídl k prodeji svůj dům na Floridě. Už potřetí
+-  Video: Dāvis Bertāns paredzēja maiņas iespēju un debitē ar otro rezultatīvāko spēli sezonā
+-  CHRISTIAN VIEWPOINT: These days, we look despairingly for messiahs
+-  Mansur Yavaş bir projesini daha hayata geçiriyor
+-  Hertfordshire County Council forecasts £15.7m overspend for 23/24
+-  Kütahya Müftüsü Dr. İrfan Açık şehit yakınlarını ziyaret etti
+-  Lần cuối cùng Bác Hồ chúc Tết đồng bào, chiến sĩ Xuân Kỷ Dậu 55 năm trước
+-  Grēku pilsētā Mahoumsam ceļā pēc trešā Super Bowl stāsies Misters Nesvarīgais
