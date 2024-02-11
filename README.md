@@ -1,11 +1,11 @@
 # Latest News
--  Stopp för köttbullar och makaroner varje dag: ”I huvudsak av ekonomiska skäl”
--  Acerbi e il gestaccio ai tifosi della Roma: scoppia la polemica social! – FOTO
--  České žaláře jsou přeplněné, přibývá případů napadení. Snižme radikálně počet vězňů, navrhuje expert
--  PSG : L’image folle qui confirme un transfert à 90M€ ?
--  Většina Íránců kritizujících současný režim by návrat před rok 1979 nechtěla, uvádí Horčička
--  Athletics: Outstanding young runners return home with medals
--  Torino, i punti persi con le "pericolanti" pesano. Ma Juric ci crede: "Stiamo facendo benissimo"
--  Jurgen Klopp has 'two major rebuild projects planned' after Liverpool exit
--  Meet the man who was world’s ‘last knight’ and attacked army of Nazi Germany with sword and arrows
--  Ausbildung: Marinearsenal Kiel meldet sich mit Rekord-Quote zurück
+-  Kütahya'da çöken bağ evi inşaatı enkazı altında kalan kişi yaşamını yitirdi
+-  Aufgehängte Puppe unter der Brücke an der Villa Hirzel
+-  Splinter sitt Fortnite-skin avslørt sammen med nytt utseende til Shredder
+-  Stimmungsvoller Nachtumzug: Wasserfratzen und Feuerbarthl mischen Murrhardt auf
+-  Mahfud Md: Demokrasi dan Nomokrasi Lemah karena Dikangkangi Kekuasaan
+-  Bhakshak: Bhumi Pednekar wins accolades for her pitch perfect performance; netizens call the film a need of an hour
+-  Sumir fengið heitt vatn sem ekki má nota
+-  Кальярі - Лаціо 1:3: огляд матчу ВІДЕО
+-  Aufgehängte Puppe unter der Brücke an der Villa Hirzel
+-  הגובה שלו תרם לקריירת ה-NBA שלו, אבל כעת אולי יגרום למותו
