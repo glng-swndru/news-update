@@ -1,11 +1,11 @@
 # Latest News
--  Maastricht-Kriterien: EU einigt sich auf neue Schuldenregeln
--  ‘Grey’s Anatomy’: Jessica Capshaw & Alex Landi Return As Guest Stars; Natalie Morales & Freddy Miyares Also Join Season 20
--  Csodaszép csillagbölcsőről készített képet a Hubble űrteleszkóp
--  Roma-Inter, Hujisen dal 1': le formazioni ufficiali
--  NBA年度最糗／字母哥為比賽用球暴怒 毀64分紀錄之夜還被狠酸
--  Húsíovia tvrdia, že pri americko-britských útokoch zomrelo 17 ľudí
--  弟を包丁で切りつけた疑いで23歳男を逮捕 部屋では火災発生、1人の遺体
--  TRST Premijerka Italije poklonila se žrtvama koje su titovi partizani masakrirali i bacili u fojbe
--  Kräftig sparen bei MediaMarkt und Saturn: Über 800 (!) Brettspiele zum Super-Schnäppchenpreis dank MwSt-Aktion
--  Ziraat Bankkart deplasmanda galip
+-  Jonna Pusa koki, ettei päiväkotityötä arvostettu ja muutti Espanjaan – Moni tekee töitä suomalaisyrityksille Aurinkorannikon lämmössä
+-  Link Live Streaming AS Roma vs Inter Milan: Duel Dua Tim dengan Laju Impresif
+-  'Địch Lệ Nhiệt Ba đẹp phát điên' đứng đầu Weibo
+-  Kannattaako nukkua alasti vai pyjamassa? Nakuna nukkumisessa on useita hyötyjä
+-  Real Madrid-Girona: Siga em direto a luta pela liderança da La Liga
+-  ODT quiz: February 11
+-  Técnico do Corinthians, António Oliveira pretende resgatar autoestima do elenco com vitórias
+-  Wien/Mistelbach - Köppens in Opernball-Loge: „Man erlebt das nur einmal im Leben“
+-  Marler Grüne sind gegen AfD-Parteitag in Sinsen: „Entsetzen und Abscheu“
+-  BMW i5 Touring: Erster BMW-Kombi als E-Auto
