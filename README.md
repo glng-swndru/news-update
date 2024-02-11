@@ -1,11 +1,11 @@
 # Latest News
--  Puzzelen bij Feyenoord: twee opties voor plek geblesseerde Quinten Timber, moet Santiago Giménez vrezen voor plek?
--  Moraes concede liberdade provisória a Valdemar Costa Neto
--  Se celebra el segundo ‘Foro Latinoamericano Nicotina y Reducción de Riesgo’
--  Leonel acusa gobierno de clientelismo
--  Taki weekend, jak ten, zdarza się raz na 20 lat
--  ‘Vint’ Cerf, padre fundacional de Internet, viene al país a describir el futuro de la red
--  Donosimo slike onih koji su ispali iz utrke, doznali smo četvrtfinalne parove nakon čega je jasno kako najmanje jedan prvak neće vidjeti polufinale...
--  Cycling No Borders: Paola è a Hameln
--  Buscan rehabilitar baldío en Valle De Puebla
--  Baby in Kansas City, Missouri, dies after her mother mistakenly put her in an oven
+-  CĐV châu Á đồng loạt mỉa mai trận chung kết Asian Cup 2024
+-  VÍDEO: São Paulo perde pela primeira vez na época devido a este golaço
+-  Fans fordern, Bianca Censori wegen Nackt-Outfit zu verhaften
+-  CAN 2023: Nigeria vs Côte d’Ivoire, une belle finale en perspective
+-  B.C. town commits to class-action lawsuit against fossil fuel companies
+-  Takmičarka "Zvezda Granda" napala Popovića: "Izbacio me iz baraža pored svih 6 glasova"
+-  Qatar kekal Raja Bola Sepak Asia
+-  الشيخ سعود بن ناصر: مبروك للعنابي والنشامى ما قصروا
+-  Analis: 'Magis' Ahok Di Kubu Ganjar Bisa Memupus Wacara Pilpres Satu Putaran
+-  B.C. town commits to class-action lawsuit against fossil fuel companies
