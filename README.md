@@ -1,11 +1,11 @@
 # Latest News
--  Liverpool đánh bại Burnley, Alexander-Arnold lập nên siêu kỷ lục
--  Mađarska predsednica se oglasila nakon što je podnela ostavku: Pogrešila sam
--  Jalkapallo | Haaland siivitti Manchester Cityn hetkeksi kärkipaikalle – Liverpoolilta nopea vastaus
--  LIVE eredivisie | Dubbele wissel Excelsior bij start tweede helft, FC Twente leidt comfortabel
--  Egy hónapig biztosan Kövér László látja majd el a köztársasági elnök feladatait
--  TBMM Başkanı Kurtulmuş Küçükçekmece'deki silahlı saldırıyı kınadı
--  Meet Jeremiah Fennell, the 11-year-old NFL reporter who stole the show this week in Las Vegas
--  Американские зоозащитники требуют убрать с каруселей игрушечных лошадей
--  Fjölnir með sannfærandi sigur á HK
--  LIVE eredivisie | Dubbele wissel Excelsior bij start tweede helft, FC Twente leidt comfortabel
+-  مشعل برشم: جائزة أفضل حارس بأمم آسيا 2023 بفضل مجهود الجميع
+-  Clinch bald vorbei? Charles war von Harrys Besuch "gerührt"
+-  Израел откри тунел на "Хамас" под сграда на ООН в Газа
+-  "Giovedì in 20mila al Circo Massimo, è solo l'inizio": la promessa degli agricoltori
+-  L'Inter batte la Roma in rimonta e vola a +7 sulla Juve
+-  Znate li tko je napisao "Neću, neću dijamante"? Prvobitno je imala melodiju sevdalinke
+-  Z ZAKSY do Asseco Resovii! Kontrakt został już podpisany?
+-  Futbolçu matç zamanı sehrli fənd göstərdi
+-  Ejército israelí asegura haber matado a un miembro de alto rango de Hamás en Rafah
+-  Critică pe Facebook, pedeapsă la cont: Un bărbat din Vaslui s-a trezit cu poprire după un comentariu la adresa primăriei
