@@ -1,11 +1,11 @@
 # Latest News
--  Atlantic Ocean is headed for a tipping point − once melting glaciers shut down the Gulf Stream, we would see extreme climate change within decades, study shows - Times of India - IndiaTimes
--  Κοντογεώργης στο ethnos.gr: Ανοιχτοί στον παραγωγικό διάλογο με τους αγρότες - Στα θεσμικά ζητήματα υπάρχουν σημεία σύγκλισης
--  Euan McColm: Almost a year on, the fall of the House of Humza Yousaf has started
--  Warten auf den Super Bowl: Die Halbzeitshow ist für Niklas und Henrik reine Nebensache
--  בדרך לאליפות? הנתונים של דגו בהשוואה לבכר. האזינו לפודקאסט מכבי חיפה
--  Новите случаи на коронавирус са едва 10
--  Wallons et Flamands ne seront plus égaux au contrôle technique: «Ce projet pose énormément de questions au niveau pratique»
--  ¿Estupidez humana o Inteligencia Artificial?
--  Ecological disarray: Uncovering the global crisis and the enduring wisdom of the Vedas
--  暖男形象翻車！ 池昌旭被抓包室內吸菸…經紀公司認了：非常抱歉
+-  Nächster deutscher Schuh-Händler ist insolvent: So steht es jetzt um die Filialen
+-  Tapa Edición Impresa - Domingo 11 de febrero
+-  24 jobs you can work from home and earn more than £50,000
+-  Il dilemma morale dello zoo di Norimberga: uccidere i babbuini o no?
+-  Ki lehet az új Nemzet Színésze? Szavazzon!
+-  Клуб КПЛ объявил о подписании футболиста из Франции с опытом игры в Лиге 1
+-  Aiden Markram hands trophy to Kavya Maran as she joins celebrations after Sunrisers Eastern Cape win SAT20 2024 title – WATCH
+-  Сестри Стоеви газят в Баку, българките са на крачка от финал
+-  Γυναικείο: Με Λευκοθέα ο Απόλλωνας
+-  Transport to Plymouth twenty years ago in 53 snaps from the early 2000s
