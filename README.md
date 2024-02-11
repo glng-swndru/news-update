@@ -1,11 +1,11 @@
 # Latest News
--  TSV 1860 München gegen FC Ingolstadt 04: So könnt ihr das Spiel der 3. Liga im TV und Live-Stream sehen
--  Chanel abre a primeira loja nos EUA dedicada a alta joalharia e relojoaria
--  Tusk reaguje na słowa Trumpa. Zwrócił się do prezydenta Dudy
--  USA machen China den Status als deutscher Handelspartner Nr. 1 streitig
--  Willie Mays cautivó a la afición caraqueña
--  Två bilar i sidokrock – totalstopp i trafiken
--  Tomasz Adamek ma dwie córki. Młodsza chciała być modelką. "Wybiłem jej to szybko z głowy"
--  „Šiaulių“ kapitonas tiki savo komandos galimybėmis patriukšmauti: dar ne viską parodėme
--  A Comprehensive Tech Guide For Valentine’s Day
--  Бузова ответила на обвинения экс-продюсера Лободы в вечном пьянстве
+-  Myanmar’da zorunlu askerlik: Kadınlar da gidecek
+-  БК Запоріжжя здолав Політехніку-Галичину в овертаймі матчу Суперліги
+-  Feci kaza! İki araç kafa kafaya çarpıştı
+-  Joe Biden ‘wandering around dazed and confused’ as President has 'lost his mind'
+-  "Chi ci sarò in studio", schiaffo di Fabio Fazio alla Rai dopo Sanremo: ecco chi ospita
+-  Lindmehe anatoomia. Spetsialistid selgitavad, miks Riiber hõljub pidevalt püüdmatusse kaugusesse
+-  Nolan, premiado pelo grêmio de diretores de cinema dos EUA por ‘Oppenheimer’
+-  Banjalučki bend "Ultrazvuk" objavio pjesmu "Ostaje nam nada"
+-  «Зенит» обыграл «Локомотив-Кубань» с разницей в 39 очков
+-  Tài xế bị phạt 35 triệu vì sử dụng rượu bia vẫn chở vợ, con đi chúc Tết
