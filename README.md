@@ -1,11 +1,11 @@
 # Latest News
--  DWS-icoon André Pijlman kijkt met verdriet naar verval roemruchte club
--  Objawy braku witaminy B12. Apatia, osłabienie, kłopoty z pamięcią, depresja 11.02.2024
--  NATO SE PREISPITUJE Rusija naterala Alijansu na očajnički korak
--  Зоря оголосила про повернення бразильця
--  Beşiktaş'ta Kayserispor maçı öncesi sakatlık şoku!
--  Karnval 2024 im Kreis Mettmann: Hier gibt es Kostüme günstig Second Hand
--  Ротенберг об отказе России U18 от призов: «Белорусы – наши друзья, мы вместе развиваемся. Нам скандалы не нужны. Но все должно быть честно»
--  NYT: Ukrainas pretgaisa aizsardzība bez Rietmu atbalsta spēs funkcionēt tikai līdz martam
--  Housing, food insecurity are rural problems, too. Grassroots groups in N.S. are stepping up.
--  Írsku televíznu šou videlo 400.000 ľudí, môže zvýšiť náš turizmus
+-  Pieter 'in gesprek met achterban' over formatie
+-  Az USA történetének legnagyobb deportálását ígéri Donald Trump megválasztása esetén
+-  Hadise külot modasına uydu! Dansıyla yine gündem oldu
+-  Maggi-Mythos: Nein, Maggi kommt nicht aus dem Saarland – und wir sprechen es auch noch falsch aus
+-  Hon har skapat en samlingsplats för kommunens kultur
+-  ‘밤에 피는 꽃’ 이종원, 순정과 주정사이
+-  حماس: أي هجوم بري لإسرائيل على رفح يعني "نسف" مفاوضات التبادل
+-  Gazze'de can kaybı 28 bin 176'ya yükseldi
+-  Pakistan Elections: Split verdict in Pakistan, Independents backed by PTI win big
+-  Schule in Hilden: Klassenkameraden von 1969 gesucht
