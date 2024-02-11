@@ -1,11 +1,11 @@
 # Latest News
--  Trendyol Süper Lig: Fatih Karagümrük: 1 - Pendikspor: 0
--  Mayjen TNI Harfendi Minta Anggota TNI tak Terprovokasi Ulah OTK, Sentil Pilpres 2024
--  AK Parti İBB Başkan Adayı Kurum: "Fikirtepe'de 60 bin ailemizin hayatını değiştirdik"
--  "Novo zlato": Cena ove namirnice odlazi u nebesa
--  Foibe: Braga (Pd), 'conoscere il passato per costruire una convivenza di pace'
--  Best European country to retire is beautiful and has free healthcare - and it's not Spain
--  Alle aandacht gaat in De Engelenbak naar het eten | Recensie Over de Tong
--  Były reprezentant Polski chce wrócić do kadry po latach. "To ja muszę dać sygnał"
--  Slow-moving traffic on several major expressways tonight, says LLM
--  Naagin 7: Not Ankita Lokhande but Isha Malviya to play the lead role after Tejasswi Prakash?
+-  Haaland skaut meisturunum á toppinn
+-  Dorse kaldırıldı, otoyol trafiğe açıldı
+-  ثبت شانزدهمین برد فصل منچسترسیتی با دبل هالند
+-  «Манчестер Сити» благодаря дублю Холанна обыграл «Эвертон» и вышел на первое место в АПЛ
+-  Sigarayı bırakmak isteyenlere müjdeli haber
+-  Želite imati top vjenčanicu, a muka vam je od cijena? Naša novinarka je pronašla luksuzne modele: ne prelaze 130 eura!
+-  الداخلية السعودية: ضبط 1051 مخالفًا حاولوا عبور الحدود خلال أسبوع، 41% منهم يمنيو الجنسية
+-  England: Haaland skoraði tvennu þegar Man City komst á toppinn
+-  Haaland afgreiddi Everton
+-  سلطنة عمان تختتم مشاركتها في المؤتمر الدولي للعدالة الغذائية
