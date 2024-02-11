@@ -1,11 +1,11 @@
 # Latest News
--  Jonna Pusa koki, ettei päiväkotityötä arvostettu ja muutti Espanjaan – Moni tekee töitä suomalaisyrityksille Aurinkorannikon lämmössä
--  Link Live Streaming AS Roma vs Inter Milan: Duel Dua Tim dengan Laju Impresif
--  'Địch Lệ Nhiệt Ba đẹp phát điên' đứng đầu Weibo
--  Kannattaako nukkua alasti vai pyjamassa? Nakuna nukkumisessa on useita hyötyjä
--  Real Madrid-Girona: Siga em direto a luta pela liderança da La Liga
--  ODT quiz: February 11
--  Técnico do Corinthians, António Oliveira pretende resgatar autoestima do elenco com vitórias
--  Wien/Mistelbach - Köppens in Opernball-Loge: „Man erlebt das nur einmal im Leben“
--  Marler Grüne sind gegen AfD-Parteitag in Sinsen: „Entsetzen und Abscheu“
--  BMW i5 Touring: Erster BMW-Kombi als E-Auto
+-  Ουγγαρία: Παραιτήθηκε η πρόεδρος μετά το σκάνδαλο σεξουαλικής κακοποίησης παιδιών
+-  كاريكاتير أحمد رحمة
+-  AK Parti’nin Ağrı ve Muş adayları belli oldu
+-  Source - Spencer Dinwiddie to join Lakers after clearing waivers - ESPN
+-  Fußball-Bundesliga: Fan-Proteste: eine Partie kurz vor dem Abbruch
+-  Tog grus från järnåldersgravar – i naturreservat
+-  ONLINE + VIDEO: Plzeň - Boleslav 0:0. Valenta v základu, chytá Jedlička
+-  Live: Ρόμα - Ίντερ
+-  1 Warren Buffett Stock That Could Go Parabolic in 2024
+-  Ministério dos Transportes anuncia que vai investir R$ 4,7 bi em rodovias e ferrovias que vão escoar safra 23/24
