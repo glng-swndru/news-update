@@ -1,11 +1,11 @@
 # Latest News
--  Les commémorations des 80 ans de la Libération en Haute-Loire ont débuté par deux hommages dans le Brivadois
--  National Council of Women ushers in new executive council for 2024
--  Thủ tướng Israel tuyên bố thiết lập hành lang an toàn cho dân thường ở Rafah
--  Toutes les pharmacies et les vétérinaires de garde ce dimanche 11 février dans l'arrondissement de Vichy
--  'I ate the wedge of lettuce at Miller and Carter and now it all makes sense'
--  Magiška Curry ranka: „Warriors“ snaiperio tritaškis paskutinę sekundę paskandino „Suns“
--  One-Punch Man, il cosplay di Tatsumaki da Lada Lyumos è un Tornado
--  Subsidio para mayores de 52 años: casi 100 euros más al mes con la propuesta de UGT
--  Aurinkoparatiisi kiinnostaa jo suomalaisia asuntosijoittajiakin, mutta samalla aluetta uhkaa ankara vesipula
--  Chawaguta named substantive Zimbabwe Women head coach
+-  আজিজুল হক কলেজ কেন ‘আপন-আপন লাগে’
+-  Người xin mở đại học tư thục đầu tiên
+-  Fédérale 2 : une rencontre à quitte ou double pour Riom en déplacement à Belvès
+-  XV de France : face à l’Écosse, Gaël Fickou a (enfin) relevé la tête
+-  Fédérale 2 : une rencontre à quitte ou double pour Riom en déplacement à Belvès
+-  توكل كرمان : لا أخطاء لثورة 11 فبراير
+-  SGK Uzmanı Özgür Erdursun emeklinin cebine girecek net rakamı açıkladı ‘Emekliler çok üzülecek’
+-  Борис Бонев обясни точно защо ПП-ДБ-СС напуснаха заседанието на СОС
+-  6 loài hoa phú quý lộc tài, năm mới trồng trong nhà cho đẹp và may mắn
+-  Anastasiia Kirpichnikova sera l'une des rares chances de médailles mondiales françaises
