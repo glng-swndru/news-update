@@ -1,11 +1,11 @@
 # Latest News
--  الشباب تتبنى هجوم الصومال: مقتل جنود إماراتيين وضابط بحريني
--  JEZIV ZLOČIN U SANDŽAKU Nusret namamljen porukom, pretučen na smrt i bačen u bunar?
--  Doctor de Bine. Emisiunea integrală din 11 februarie 2024
--  Обнаружен новый теплый юпитер
--  Ji Chang Wook apologizes for 'inappropriate actions' after viral smoking video
--  Aranan şahıslara yönelik çalışmada 29 şüpheli yakalandı
--  GRAD BUDUĆNOSTI OD BILION DOLARA NIČE USRED PUSTINJE Neboder dug 120 km, stadion na 300 m iznad zemlje: Evo kako teče izgradnja
--  Otkrivamo! Ovo je žena zbog koje je ubijen Nusret - Novi detalji istrage na Pešteru (FOTO)
--  Ovog leta brže i lakše do mora: Moguć sistem integrisane putarine sa Grčkom
--  लाडली बहना के कारण स्कॉलरशिप सहित कई योजनाओं की फंडिंग बंद - MP NEWS
+-  Israel, Just Downgraded, Readies Bond Spree to Pay for War Against Hamas
+-  Ucap Pesan untuk Moana Sambil Nangis, Sikap Ria Ricis Malah Dikatai Drama
+-  Meet my friend, the UK Labour candidate seeing Red amid Tory death spiral
+-  First ever ‘vegan butchers’ in Andalucia opens on the Costa del Sol – this is what’s on the menu
+-  Grand Designs UK: Single dad's 'treehouse' is all for the kids
+-  El adiós de los Mozos de Arousa en 'Reacción en Cadena': "Mucha gente dejará de verlo"
+-  La recette de l’Insa Lyon pour arriver à une parité presque parfaite parmi ses étudiants
+-  Tiền lương của cán bộ, công chức, viên chức sẽ tăng khoảng 30% từ 1-7
+-  ST 11 februari 1999: Sundsvall är årets popstad
+-  Nuevas generaciones ya no quieren trabajar
