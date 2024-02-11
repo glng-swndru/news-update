@@ -1,11 +1,11 @@
 # Latest News
--  Schau mal, was da wächst: Wie man mit Kindern nachhaltig Gärtnern lernt
--  Süßwaren-Anbieter Hussel meldet Insolvenz an: Filiale in Castrop-Rauxel steht auf der Kippe
--  Horario del show de medio tiempo del Super Bowl LVIII y cuánto tiempo dura
--  Campaign Props in Bandung to Be Cleaned
--  Flagrancias: estadísticas del 2023 mostraron números muy dispares entre las fiscalías
--  So oft werden Tonies durch Holzwickede gereicht: Aus der Bibliothek in die Kinderzimmer
--  Nik Elin terima banyak ugutan bunuh
--  Un gobierno adolescente, con una economía que cruje y apoyos endebles
--  Lirik Lagu Bale Pulang 3 - Justy Aldrin Feat Toton Caribo, Jadi Musik Trending di Youtube
--  करियर में उछाल पाने का सुनहरा मौका, शनि-सूर्य मिलकर बरसाएंगे कृपा
+-  Tena, un paraíso entre la naturaleza y lo ancestral
+-  Carnaval: ¿Qué otras maneras hay para festejar
+-  Estos son los riesgos del consumo de contenido para adultos en manos de adolescentes
+-  सीपमूलक र व्यावसायिक शिक्षा आवश्यक
+-  伝説の博徒を静かに弔う「赤木しげるの墓」がワンフェス2024[冬]の会場にそびえていた
+-  Dron odkril letalo Amelie Earhart, prve ženske, ki je preletela Atlantik
+-  Brock Purdy, el último en la fila en busca de grandeza en la Super Bowl
+-  Meteoroloji'den Antalya'ya fırtına uyarısı
+-  Mentor Koukal dovedl olympijské naděje k titulům. Zdaleka není hotovo, říká
+-  Mbappé es ahora asequible
