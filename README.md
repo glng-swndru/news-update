@@ -1,11 +1,11 @@
 # Latest News
--  Десетки чужденци казаха "Да" във Варна, искат битов ритуал
--  No “filme” do Liverpool, foi Jürgen a escrever o “Klopp twist”
--  İstanbul'daki Silahlı Saldırıyla İlgili Yeni Görüntüler
--  Károly király először nyilatkozott, mióta rákkal diagnosztizálták
--  Künstliche Intelligenz an Hertens Schulen: Yvonne Jeschke und Sascha Maurus testen Technologie
--  Mayotte : Gérald Darmanin annonce « la fin du droit du sol » sur l’île
--  Scontri tra manifestanti e polizia al corteo di Roma per Ilaria Salis
--  BTS RM·지민 설인사 “군생활 잘 적응 중이에요”
--  ЛНЗ - Спартак 3:1: огляд матчу ВІДЕО
--  İşte Kocaelispor’un muhtemel 11’i
+-  الشباب تتبنى هجوم الصومال: مقتل جنود إماراتيين وضابط بحريني
+-  JEZIV ZLOČIN U SANDŽAKU Nusret namamljen porukom, pretučen na smrt i bačen u bunar?
+-  Doctor de Bine. Emisiunea integrală din 11 februarie 2024
+-  Обнаружен новый теплый юпитер
+-  Ji Chang Wook apologizes for 'inappropriate actions' after viral smoking video
+-  Aranan şahıslara yönelik çalışmada 29 şüpheli yakalandı
+-  GRAD BUDUĆNOSTI OD BILION DOLARA NIČE USRED PUSTINJE Neboder dug 120 km, stadion na 300 m iznad zemlje: Evo kako teče izgradnja
+-  Otkrivamo! Ovo je žena zbog koje je ubijen Nusret - Novi detalji istrage na Pešteru (FOTO)
+-  Ovog leta brže i lakše do mora: Moguć sistem integrisane putarine sa Grčkom
+-  लाडली बहना के कारण स्कॉलरशिप सहित कई योजनाओं की फंडिंग बंद - MP NEWS
