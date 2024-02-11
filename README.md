@@ -1,11 +1,11 @@
 # Latest News
--  DC's Creature Commandos Release Window Confirmed
--  Минус 930 окупантов и 12 танков. ВСУ обновили статистику потерь врага
--  TOP 3 város Komárom-Esztergomban: ide érkezett a legtöbb vendég 2023-ban
--  Ísland í dag - Víkingur mætir til leiks í Lengjubikarnum
--  Imádják a tatai ovisok a magyar bajnokot: dzsúdóedzés Salánki Evelinnel +fotók, videó
--  Kenneth Taylor hoorde al van goede vriend over Jordan Henderson: ‘Hij gaat jullie goed aanpakken’
--  Trois bonhommes hiver plus tard, le grand feu de Falisolle est de retour : "ce rendez-vous, c’est la raison de vivre de notre groupe folklorique"
--  Šta da radite ako vam stigne oštećena pošiljka?
--  England í dag - Arsenal og Man Utd eiga erfiða útileiki
--  Afríkukeppnin í dag - Stjörnur mætast í úrslitaleik
+-  "ZAŠTO ME PONIŽAVAŠ?" Rijaliti učesnica otkrila da je četiri godine radila u STARAČKOM DOMU: "Ne preostaje ti ništa drugo"
+-  رواية من أعماق أحضان مجنونة -21
+-  זעם בסכנין על גל ליבוביץ'. גנטוס: "בושה להרחיק את דראפיץ'"
+-  Tarjeta azul en el fútbol: qué es y cómo funcionará
+-  Wohngeld in Nienburg: Nach Reform doppelt so viel, dreimal so teuer
+-  Environnement. Puits de pétrole dans le bassin d’Arcachon : pourquoi ça fait débat ?
+-  Simstjärnan blickar mot en speciell VM-medalj
+-  Larm om trafikolycka
+-  Environnement. Puits de pétrole dans le bassin d’Arcachon : pourquoi ça fait débat ?
+-  Mercato - PSG : La mère de Mbappé a rencontré le Real Madrid !
