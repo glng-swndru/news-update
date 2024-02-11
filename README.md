@@ -1,11 +1,11 @@
 # Latest News
--  Ai Cập cảnh báo đình chỉ Hiệp ước hòa bình với Israel
--  São Paulo produz pouco, sofre golaço da Ponte Preta e perde a primeira em 2024
--  Dopo 5 edizioni: «Anni meravigliosi ma ora basta così»
--  「イサミーーッ！」「私は全て絶好調だ！」と愛が重い『勇気爆発バーンブレイバーン』のフィギュア＆プラモデルいろいろ
--  Nhật Bản thay đổi chương trình thực tập sinh, thu hút thêm lao động nước ngoài
--  Recuerda Manlio Fabio Beltrones a Luis Donaldo Colosio
--  Prabowo Berkegiatan Sehari-hari di Masa Tenang Pemilu 2024, Gibran Kembali Kerja Jadi Wali Kota Solo
--  Angelina Mango vince Sanremo Secondo Geolier, terza Annalisa
--  «Dritti al cuore» Il popolo della rete celebra i cantori
--  Hungarian leader resigns over sex abuse case pardon
+-  বাংলা - ষষ্ঠ শ্রেণি
+-  AT車の「ニュートラル」はいつ使うべき？信号待ちや下り坂での使用はNG
+-  過年到東京必玩景點！新版大江戶溫泉泡湯看海 再到teamLab拍美照
+-  '살생부설' · '음해설'…'지라시'에 혼탁해지는 공천 정국
+-  春節國旅…業者哀嘆訂房率 「不降房價、辦促銷？」一票搖頭
+-  Ranji Trophy 2024: I am focussed on winning the tournament for Mumbai, not expecting India call-up soon, says Prithvi Shaw
+-  Спортивный директор «Оренбурга» заявил, что «Зенит» не связывался с клубом по поводу аренды Адамова
+-  A Mississippi man buried in a pauper’s grave finally gets a proper funeral - NBC News
+-  Señalan que ataque a precandidato en Jalisco no fue por motivos electorales
+-  Range Rover phiên bản đặc biệt dành khách hàng châu Á vào năm rồng
