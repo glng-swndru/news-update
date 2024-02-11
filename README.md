@@ -1,11 +1,11 @@
 # Latest News
--  AK Partili Aziz Yeniay'a silahlı saldırı
--  "L'anno prossimo torniamo come concorrenti"? Ma per i Jalisse finisce malissimo: "Questi disgraziati..."
--  Karagümrük, Pendikspor'u 2 golle geçti
--  "الكتاب والأدباء" تنظم أمسية "وفاء وعرفان" في عبري
--  Économie. En 2023, les salaires ont augmenté plus vite que l'inflation
--  Ripple CLO называет четыре причины, по которым Гэри Генслер не может получить работу за пределами SEC
--  Économie. En 2023, les salaires ont augmenté plus vite que l'inflation
--  Koncert Eve Braun na Dan zaljubljenih
--  Ripple CLO Outlines Four Reasons Gary Gensler Cannot Get Job Outside SEC
--  Erhürman: Üretimin bitmesi, var oluşumuzu sorgulanır hale getirir
+-  BACK ROADS BILL: Solitude – remoteness and reasons why
+-  El Leganés encadena por primera vez en la temporada tres jornadas sin marcar
+-  18 automobile hibride și 125 de camere de corp au fost oferite Poliției R. Moldova de către Guvernul Japoniei, cu sprijinul PNUD
+-  Bo Jackson wins $21 million suit against niece, nephew who tried to extort him
+-  Android 15 vai chegar com suporte nativo para armazenamento de aplicações
+-  Ísak skoraði þegar slæmt gengi Dusseldorf hélt áfram
+-  Колумбийската звезда е избрана за Жена на годината на "Билборд"
+-  Közel a tűzhöz – Brüsszelben
+-  La Liga: Real Madryt - Girona. Relacja i wynik na żywo
+-  Ősszel kezd a Póka Egon Akadémia
