@@ -1,11 +1,11 @@
 # Latest News
--  COLIN CAMPBELL: From personal experience, no wonder the ‘free’ NHS is buckling right now
--  Kladno - Vítkovice 2:3. Zmar Rytířů, připsali si patnáctou prohru v řadě
--  Schalke: Gar nicht toll an „tollen Tagen“: Karneval und andere königsblaue Fakten
--  Thijs Boogaard (15) strandt in kwalificaties ABN AMRO Open, Gijs Brouwer wel door
--  Priske: Krejčí je kluk mnoha možností, nádherný gól. Haraslín bude ready
--  Paris of the east (kala pani version)
--  Сборная Катара по футболу во второй раз подряд победила на Кубке Азии
--  Celular alugado ou doado por cervejaria vira alternativa a furtos no Carnaval
--  À quand une passerelle sur l’Odet pour relier la gare de Quimper à l’hippodrome ?
--  Šokovaný Hapal: Všude pozdě, porážku beru na sebe. Našel jediné pozitivum
+-  Armed and barricaded incident results in three Winnipeg officers being shot
+-  Na čelo ukrajinske vojske postavljen je 'najbolji od najgorih': Što bi promjena vodstva mogla značiti za tijek rata?
+-  LIVE eredivisie | Droomstart voor FC Twente tegen Excelsior, ook Van Wolfswinkel scoort
+-  Drei getötete Radfahrer in Lünen: Ausschuss verschiebt Entscheidung über Unfallanalyse
+-  IF THE PRICE IS RIGHT: Ottawa Redblacks looking for bargains heading into CFL free agency
+-  Three officers shot during armed and barricaded incident in Winnipeg
+-  آسيا عنابية
+-  Prinzessinnen, Piraten und Winnie Puuh tanzen gemeinsam am Kindermaskenball in Subingen
+-  НА ЖИВО: Реал Мадрид 1:0 Жирона, шедьовър на Винисиус
+-  EUV-Debatte um Abwassergebühren: „Hätte, hätte, Fahrradkette! Bestandskraft kann auch uns schützen“
