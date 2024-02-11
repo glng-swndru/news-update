@@ -1,11 +1,11 @@
 # Latest News
--  مشعل برشم: جائزة أفضل حارس بأمم آسيا 2023 بفضل مجهود الجميع
--  Clinch bald vorbei? Charles war von Harrys Besuch "gerührt"
--  Израел откри тунел на "Хамас" под сграда на ООН в Газа
--  "Giovedì in 20mila al Circo Massimo, è solo l'inizio": la promessa degli agricoltori
--  L'Inter batte la Roma in rimonta e vola a +7 sulla Juve
--  Znate li tko je napisao "Neću, neću dijamante"? Prvobitno je imala melodiju sevdalinke
--  Z ZAKSY do Asseco Resovii! Kontrakt został już podpisany?
--  Futbolçu matç zamanı sehrli fənd göstərdi
--  Ejército israelí asegura haber matado a un miembro de alto rango de Hamás en Rafah
--  Critică pe Facebook, pedeapsă la cont: Un bărbat din Vaslui s-a trezit cu poprire după un comentariu la adresa primăriei
+-  לפחות 7 עוכבו ע"י המשטרה במחאה בנתיבי איילון סמוך למחלף השלום
+-  Capuano: «Vittoria pesantissima dell’Inter e +7 sulla Juventus»
+-  Nem akármilyen összeesküvés-elmélet látott napvilágot Mr. Beanről
+-  Waarom we de gevolgen van de drugsindustrie blijven accepteren
+-  Leao Milan, Pacchioni stuzzica: «Curioso di vederlo allenato da lui»
+-  Dia D para Endrick e a seleção sub-23
+-  Теперь эковандалы атаковали картину знаменитого Моне
+-  Emma, 32, lider av en osynlig sjukdom: ”Väldigt få som blir bättre”
+-  Veggie powder helping farmers find purpose for imperfect produce
+-  Visitas a fábricas e sedes administrativas viram arma de reputação para empresas
