@@ -1,11 +1,11 @@
 # Latest News
--  ‘Making someone redundant is heartbreaking’ — Jeweller Chupi Sweetman on owning failure and the supports that keep her going
--  سقوط باورنکردنی نیسان
--  Rubén Santos Becerro da el pregón ente un numeroso público
--  Eoin O’Malley: John Bruton was a pragmatist who never claimed to have easy answers to complex problems
--  ‘My only interest is taking market share from the pillar banks’ – Capitalflow CEO Ronan Horgan on his plans to transform the SME lending landscape
--  Irish star of Made in Chelsea is now making his move on the ‘real capital’
--  ‘We now know our daughter was dying before our eyes’ – Bryonny Sainsbury’s family on the pain of knowing she could have been saved
--  Sassuolo-Torino, roba da bomber: Pinamonti-Zapata gol, è 1-1
--  2금융권 이자캐시백은 언제? 내달 소상공인 40만명 최대 150만원 돌려받는다
--  Apple iPhone 16 To Come With THESE Features? Check What Leaks Say
+-  Fuji Ikut Kampanye GanjarPranowo-Mahfud MD di Solo, Warganet Wanti-Wanti Begini
+-  Etelä-Saimaa kysyi, valtuutetut vastasivat: Tällainen kaupunginjohtaja Lappeenrantaan tarvitaan
+-  全国大会に向けて卓球部が2カ月ぶり活動再開 被災中学の部活を大学が支援
+-  फिलीपींस में भूस्खलन से मरने वालों की संख्या बढ़कर 35 हुई, 77 लापता
+-  وفيات الأحد .. 11 / 2 / 2024
+-  尼神インター・誠子、かわいすぎるボブカットの近影に「可愛さが増してきてますね」「ダイエット方法を教えて」
+-  Rủ khách thăm vườn, lão nông thu tiền tỷ mỗi năm
+-  県下の「海上犯罪」取締り状況まとまる ７割が救命・消防・排水設備の不備など海事関係の法令違反【岡山】
+-  Từ 3 món công nghệ được giới trẻ Trung Quốc đổ xô 'găm hàng', phát hiện suy nghĩ thực của Gen Z về ăn Tết
+-  Cáritas recibió donaciones y colaboró con los santiagueños en Plaza Libertad
