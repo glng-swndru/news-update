@@ -1,11 +1,11 @@
 # Latest News
--  Négyszázötven milliárd forintos programmal segíti a kormány a vállalkozásokat
--  "Fugatti ha dichiarato guerra al mondo animalista"
--  Négyszázötven milliárd forintos programmal segíti a kormány a vállalkozásokat
--  Saadet Partili rakibi ile karşılaşan İmamoğlu'ndan dikkat çeken açıklama
--  Galatasaray-Başakşehir maçının ilk 11'leri belli oldu
--  ムロツヨシの“1人2役”演技、監督と原作者はどう評価したのか 映画『身代わり忠臣蔵』コメントが到着
--  Political content will no longer be recommended on Instagram and Threads
--  Jadwal Imsakiyah dan Buka Puasa Wilayah Makassar Besok Minggu 11 Februari 2024
--  Négyszázötven milliárd forintos programmal segíti a kormány a vállalkozásokat
--  Daryl Dike forced off in tears as gut-wrenching West Brom injury record strikes again
+-  AK Partili Aziz Yeniay'a silahlı saldırı
+-  "L'anno prossimo torniamo come concorrenti"? Ma per i Jalisse finisce malissimo: "Questi disgraziati..."
+-  Karagümrük, Pendikspor'u 2 golle geçti
+-  "الكتاب والأدباء" تنظم أمسية "وفاء وعرفان" في عبري
+-  Économie. En 2023, les salaires ont augmenté plus vite que l'inflation
+-  Ripple CLO называет четыре причины, по которым Гэри Генслер не может получить работу за пределами SEC
+-  Économie. En 2023, les salaires ont augmenté plus vite que l'inflation
+-  Koncert Eve Braun na Dan zaljubljenih
+-  Ripple CLO Outlines Four Reasons Gary Gensler Cannot Get Job Outside SEC
+-  Erhürman: Üretimin bitmesi, var oluşumuzu sorgulanır hale getirir
