@@ -1,11 +1,11 @@
 # Latest News
--  How Swifties can score free public transport
--  How Swifties can score free public transport
--  Kasus Kematian Dante, Baim Wong Berkomentar Begini
--  健康網》健康、美味全都要！ 北農授3步驟自製果乾
--  Javio se Monfis posle diskvalifikacije: Želim svima da kažem šta se desilo!
--  Vatrena stihija guta automobile nasred puta! Vozači svedočili jezivoj sceni kod Nove Pazove (VIDEO)
--  How Swifties can score free public transport
--  Boavista-Estoril, 2-1 (crónica)
--  Izbodena dva dečaka kod Plavog mosta, prebačeni u Tiršovu i Urgentni
--  B sınıfı ehliyeti olanlara bir sürpriz haber daha; O şart tamamen kalktı!
+-  Puzzelen bij Feyenoord: twee opties voor plek geblesseerde Quinten Timber, moet Santiago Giménez vrezen voor plek?
+-  Moraes concede liberdade provisória a Valdemar Costa Neto
+-  Se celebra el segundo ‘Foro Latinoamericano Nicotina y Reducción de Riesgo’
+-  Leonel acusa gobierno de clientelismo
+-  Taki weekend, jak ten, zdarza się raz na 20 lat
+-  ‘Vint’ Cerf, padre fundacional de Internet, viene al país a describir el futuro de la red
+-  Donosimo slike onih koji su ispali iz utrke, doznali smo četvrtfinalne parove nakon čega je jasno kako najmanje jedan prvak neće vidjeti polufinale...
+-  Cycling No Borders: Paola è a Hameln
+-  Buscan rehabilitar baldío en Valle De Puebla
+-  Baby in Kansas City, Missouri, dies after her mother mistakenly put her in an oven
