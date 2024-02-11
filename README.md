@@ -1,11 +1,11 @@
 # Latest News
--  Jaga Persatuan, 4 Organisasi Kebangsaan Serukan Pemilu Damai dan Kondusif
--  Món đồ chơi bé tí, hình thù đa dạng, sắc màu mê hoặc đang hồi sinh mạnh mẽ giữa phố thị Sài Gòn
--  Những bức ảnh đoạt giải cuộc cuộc thi Wildlife Photographer of the Year People's Choice Award
--  König Charles dankt für Unterstützung nach Krebsdiagnose
--  König Charles dankt für Unterstützung nach Krebsdiagnose
--  North’s unending battle with terror
--  세종대 총동문회, 2024년 정기총회 및 신년회
--  Kohli opts out of remainder of series; Iyer axed, rookie Akash gets maiden call-up
--  Poliser till sjukhus – angreps
--  En Agrobaja no se puede fumar pese a ser un lugar abierto
+-  최근 10년간 자연재해 피해 가장 큰 지자체는 '경북'
+-  Sanremo, Geolier secondo classificato: Ho già vinto portando qui il napoletano
+-  ‘고속도로 교통상황’ 부산→서울 6시간40분…내일 새벽 정체 해소
+-  돌봄부터 대입까지…새학기부터 달라지는 교육 정책
+-  ¡Vigas del estacionamiento de Salemma explotaron!
+-  विश्वव्यापी प्रकोप बन्दै पत्रुखाना
+-  Ισπανία: Αγρότες και οδηγοί φορτηγών συγκρούστηκαν με αστυνομικούς κατά την πέμπτη ημέρα διαδηλώσεων
+-  Leverkusen - Bayern: Alonso gewinnt Taktik-Duell mit Tuchel
+-  Athlétisme: Grant Holloway victorieux à Liévin
+-  CAN: l'Afrique du Sud remporte la petite finale
