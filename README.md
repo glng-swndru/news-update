@@ -1,11 +1,11 @@
 # Latest News
--  Travis Kelce Talks ‘Diving’ Into Relationships Amid Taylor Swift Romance: ‘You Really Gotta Know Somebody’
--  Prince Harry firmly rejects royal protocol for Archie in encounter with Jane Goodall
--  LIVE eredivisie | Hornkamp kopt Heracles naast tiental Vitesse
--  LIVE eredivisie | Vitesse in extase na twee prachtige treffers, maar Isimat-Mirin moet met tien verder
--  Tournoi des VI Nations : Bielle-Biarrey, une flamme bleue dans la froideur écossaise
--  Tournoi des VI Nations : Bielle-Biarrey, une flamme bleue dans la froideur écossaise
--  NHL ONLINE: Pastrňák vs. Capitals. Zářil Hronek, v akci Nečas proti Devils
--  Vatan Partisi'nden Uygur kışkırtması uyarısı
--  OVO JE JEDNO OD NAJSTARIJIH VEROVANjA: Evo šta znači ako na Svetog Trifuna padne kiša
--  Podzim proseděl, teď Penner trefil Liberci krásně výhru. Slavil po italsku
+-  نگاهی آماری به جام ملت‌های آسیا 2023/ ایران و طارمی؛ بی‌دقت‌ترین‌ها در گلزنی
+-  Днепр разгромил Галичину, Говерла проиграла Запорожью
+-  В Тольятти при пожаре в гостиничном комплексе пострадали два человека
+-  Советник Виктора Орбана раскритиковал Запад за нежелание говорить с Россией
+-  Ο μεγάλος γιος της πριγκίπισσας Ευγενίας έκλεισε τα 3
+-  PROBLEM ZA PIKSIJA: Srpski fudbaler povredio mišić
+-  Ήττα ΟΦΗ από τον Ολυμπιακό
+-  ABŞ-də helikopter qəzası: ölənlər var
+-  Uluslararası toplum harekete geçmeli - Gidecek hiçbir yer yok
+-  Bahar: Uyanmaya Hazır Mısın?’dan yeni kareler paylaşıldı
