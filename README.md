@@ -1,11 +1,11 @@
 # Latest News
--  Luiza Brunet diz que está 'obcecada' com o BBB 24 e que sofre vendo embate de Yasmin com Davi
--  Woman burns newborn baby in oven
--  Assam: Karimganj police arrest three drug peddlers, seize 150 gram heroin
--  車で通れる道が1本もない 日本で唯一の「車で移動できない」群馬の県境
--  READY? Stage 6 load shedding until further notice
--  ‘Deserved it 200 percent’: Manoj Tiwary lauds this pacer for getting maiden Test call-up
--  Russland steht vor „logistischem Zusammenbruch“: Chinas Bank lässt Putin auflaufen
--  網羅賽揚強投沒定案 美媒爆卡關在天使隊老闆
--  Casteist remarks land city woman in dock
--  CM interacts with farmers
+-  Here Are the Wildest Ways People Have Been Using Their Apple Vision Pro - Gizmodo Australia
+-  羅志祥超正徒弟！《炸裂吧》電豹女神草莓爆紅 激辣身材曝光
+-  La casa-taller abierta al verde de una artista y joyera que volvió a Tigre, su lugar de siempre
+-  Mengulik Gizi Susu Oat vs Susu Almond, Mana Lebih Baik?
+-  Migrants found in coach after Totton’s Hounsdown School trip to France
+-  Posidonia conferences to expand 2024 event
+-  Tiền đạo Bùi Vĩ Hào chúc Tết người hâm mộ, hé lộ đặc biệt về HLV Troussier
+-  Le partite di oggi: il programma di domenica 11 febbraio
+-  'Slippery, wet and the smell was awful' at Southampton toilet block
+-  The pretty European city that you probably have never heard of named city of the year
