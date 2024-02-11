@@ -1,11 +1,11 @@
 # Latest News
--  Kütahya'da çöken bağ evi inşaatı enkazı altında kalan kişi yaşamını yitirdi
--  Aufgehängte Puppe unter der Brücke an der Villa Hirzel
--  Splinter sitt Fortnite-skin avslørt sammen med nytt utseende til Shredder
--  Stimmungsvoller Nachtumzug: Wasserfratzen und Feuerbarthl mischen Murrhardt auf
--  Mahfud Md: Demokrasi dan Nomokrasi Lemah karena Dikangkangi Kekuasaan
--  Bhakshak: Bhumi Pednekar wins accolades for her pitch perfect performance; netizens call the film a need of an hour
--  Sumir fengið heitt vatn sem ekki má nota
--  Кальярі - Лаціо 1:3: огляд матчу ВІДЕО
--  Aufgehängte Puppe unter der Brücke an der Villa Hirzel
--  הגובה שלו תרם לקריירת ה-NBA שלו, אבל כעת אולי יגרום למותו
+-  Nem áll le Zelenszkij, újabb katonai vezetőket menesztett
+-  Eine Stadt will wissen, was kommt
+-  Hon flydde råttorna i Höja – och tog rutten till Spanien
+-  Mit Schutzengel an Bord - FF Wiener Neudorf: Verkehrsunfall auf der Südostautobahn
+-  Super Bowl: Κάνσας εναντίον Σαν Φρανσίσκο στη σκιά της… Τέιλορ Σουίφτ
+-  Bursa Büyükşehir Belediye Başkan Adayı Mustafa Bozbey: "Bursa'da kentsel dönüşüm yapılmadı"
+-  Заради дейността на Мартин Божанов-Нотариуса, Радев поиска операция за деинтоксикация на институциите
+-  Com acessório a R$ 10, ninguém fica 'zerado' de fantasia
+-  Жестоко убийство в Италия, мъж уби жена си и двете си деца, защото видял дявола
+-  Bļugera un Porziņģa pārstāvētajām līderēm agrās spēles pirms NFL lielā fināla
