@@ -1,11 +1,11 @@
 # Latest News
--  Thomas Müller tajtékzott, Leroy Sané szétütötte a kamerát a csúfos vereség után
--  Leković: Neistina da je Savjet izmjenio uslove konkursa pred sam...
--  "Maï et Mouna" de Béatrice Castaner : un récit puissant qu'elle dédicacera à Limoges
--  رواية من أعماق أحضان مجنونة -49
--  Bolu’da iki puan bıraktık: 1-1
--  Tauron 1. Liga siatkarzy: MCKiS Jaworzno – AZS AGH Kraków. Relacja live i wynik na żywo
--  周杰倫當球衣設計師「姆巴佩也穿」！ 驕傲曬認證照：自己的創意
--  Лікувати більше нікому: війна РФ проти України призвела до нестачі медперсоналу
--  Mở phong bao lì xì của chị chồng, tôi xấu hổ đến đỏ mặt và cư xử lúng túng suốt cả ngày
--  Ο γάμος των ομόφυλων ζευγαριών και ο κ. Κουτσούμπας
+-  Ο Ιάγος και ο εαυτός του
+-  İsrail güçleri, Filistin'in Mesafir Yatta bölgesinde evleri yıktı
+-  Jüdisches Leben in Deutschland: Vergesst eure deutschen Klischees über Juden!
+-  Filipinler'deki toprak kaymasında can kaybı 54'e yükseldi
+-  "Wygrywa ten, kto ma wygrać". Sopiński o konkursie ministra Bodnara
+-  Unionsfraktion schreibt Brief an den Kanzler: Die Ampelkoalition muss auf die Union zugehen – und umgekehrt
+-  Dudince chcú tento rok realizovať viacero investičných projektov
+-  ‘Whatever they want’: Trump comment stuns
+-  Konyaspor'un galibiyet hasreti bitti
+-  Große Party in Wevelinghoven: Rund 2000 Karnevalsfans feiern bei „Da simmer dabei“
