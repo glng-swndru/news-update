@@ -1,11 +1,11 @@
 # Latest News
--  In Lahore, Mani Shankar Aiyar lauds hospitality of Pakistanis, criticises PM Modi
--  Нігерія - Кот-д’Івуар 1:2: огляд фіналу Кубка африканських націй-2023
--  Ouverture à la rentrée 2024 d’une nouvelle classe préparatoire au lycée Renoir de Limoges
--  Започва второ ниво на киноиграта "Боб Марли: One Love"
--  MSB duyurdu! Saldırı hazırlığı yapan teröristler etkisiz hale getirildi
--  استقلال خواهان بازگرداندن منتظر محمد شد
--  In Lahore, Mani Shankar Aiyar lauds hospitality of Pakistanis, criticises Modi - Hindustan Times
--  НБА. Бостон одолел Майами, Оклахома обыграла Сакраменто
--  Над 100 убити при израелската атака в Газа
--  Balıkesir'de yolcu otobüsü devrildi: 1 ölü, 20 yaralı
+-  Sonora: Llegarán 200 militares al estado
+-  Крупнейшая птицефабрика Сахалина восстановит работу после птичьего гриппа к осени
+-  Нефтегазовые Diamondback и Endeavor Energy почти согласовали слияние на $52 млрд
+-  Maratonský rekordman Kelvin Kiptum zahynul při dopravní nehodě v Keni
+-  Usher 'aqueceu' o Super Bowl sem camisola e com convidados especiais
+-  Masada kalırsın denilen 150’den fazla hasta Van'da sağlığına kavuştu
+-  زمان پخش سریال «بیست کووید» تغییر کرد
+-  Türkiye'de günde 6 bin 200 TL maaşla çalışacak işçi aranıyor
+-  מסצ'ראנו: "מסי בירך אותנו, הדלת פתוחה". וגם: הקריצה של הפרעוש לאולימפית
+-  Мировой рекордсмен в марафоне Келвин Киптум погиб в ДТП
