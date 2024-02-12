@@ -1,11 +1,11 @@
 # Latest News
--  Trump že dviga prah glede zveze Nato
--  Везенков няма да играе за "Сакраменто" няколко седмици заради нова контузия
--  Coronation Street spoilers: Adam Barlow’s devastatingly brutal action ‘impresses’ killer
--  "Se Governo não cumprir o prometido será a própria CAP a dizer: 'temos de nos manifestar'"
--  Kayseri'de zincirleme trafik kazasında 1 kişi öldü, 1 kişi yaralandı
--  Coronation Street spoilers: Bethany floors Daniel with a major secret and there are more shocks to come
--  «القرين الثقافي 29» انطلق بتكريم فائزي «التقديرية والتشجيعية»
--  PAŠINjAN STAVIO TAČKU NA SVE GLASINE: Odgovorio da li je bilo razgovora oko ulaska te zemlje u NATO
--  Україна має стати буферною зоною між РФ і Заходом, - Орбан
--  Севилья – Атлетико – 1:0. Победный мяч Ромеро. Видео гола и обзор
+-  Турска лира - лев. Колко струва една турска лира към един български лев днес, 12 февруари /валутен калкулатор/
+-  İsrail güçleri, işgal altındaki Batı Şeria'da bir Filistinliyi öldürdü
+-  Feyenoord slavio u gradskom derbiju, Ivanušec iz prvog dodira s loptom upisao asistenciju
+-  Izboden muškarac na Petrovaradinu! Zbrinut u svesnom stanju
+-  Corinthians vence a Portugues na estreia de treinador que era do Cuiabá
+-  Βαθμολογία Basket League: Ο Ολυμπιακός έμεινε κοντά στον Παναθηναϊκό στην κορυφή
+-  How to Watch the Super Bowl for Free Today: Paramount Plus Is All You Need to Stream - CNET
+-  Making our journalists more accessible
+-  Izboden muškarac u Petrovaradinu! Zbrinut u svesnom stanju
+-  MIL-NAP (1-0): Pioli ricorre ai cambi, fuori Bennacer e Kjaer per Musah e Simic
