@@ -1,11 +1,11 @@
 # Latest News
--  Teun Koopmeiners doet het weer bij Atalanta: rake vrije trap bij ruime zege op Genoa
--  ASML isporučuje Intelu 380 milijuna dolara vrijedan High NA EUV
--  Trump: Mỹ không bao giờ nên đưa tiền cho nước ngoài mà không có hy vọng đòi lại
--  How women can be represented in politics
--  الخارجية الفرنسية تختار ناشطة يمنية للفوز بجائزة ماريان ضمن 15 امرأة ورجل آخرون
--  Wirtschaftsministerium nennt Zahlen: So hoch sind die Subventionen für die Wolfspeed-Fabrik in Ensdorf
--  Hrvati briljirali u na Svjetskom prvenstvu, imamo dvoje polufinalista i 12. plivača svijeta
--  "Two and a Half Men"-Comeback? Jon Cryer ist sehr skeptisch!
--  "TO MI JE NAJVEĆA TRAUMA KOJU SAM DOŽIVEO!" Bane Mojićević otvoreno o razvodu, progovorio i o novoj ljubavi
--  Soomlased valisid uueks presidendiks Alexander Stubbi
+-  Elektronika bez baterii i ładowarek. Oto przyszłość naszych domowych sprzętów
+-  Bebé de un año necesita cirugía por ingesta de alfiler
+-  ITV The Chase question was so hard Bradley Walsh didn't 'understand' - can you answer it?
+-  Minsa retiene dos cisternas no autorizados en La Chorrera
+-  2 Afghans who were kept at Guantanamo Bay for 14 years released, Taliban says
+-  2 Afghans who were kept at Guantanamo Bay for 14 years released, Taliban says
+-  Újabb áldozat szólalt meg a bicskei gyermekotthonból Novák Katalin lemondása után
+-  Egypt threatens to suspend key peace treaty with Israel, officials say
+-  Children's bereavement charity receives £1560 donation thanks to singers' epic performance
+-  Egypt threatens to suspend key peace treaty with Israel, officials say
