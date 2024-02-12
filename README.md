@@ -1,11 +1,11 @@
 # Latest News
--  GS Cappenberg bricht den Bann: Angstgegner RW Unna muss sich geschlagen geben
--  Kansas City Chiefs beat San Francisco 49ers 25-22 in Super Bowl LVIII
--  バイク2人乗りで転倒 “初心者”の男子高校生（17）運転 同乗の女性（17）が頭の骨折る重傷
--  Jetzt sind die Einzelhändler in Castrop-Rauxel an der Reihe: Ein Konzept für die Zukunft soll her
--  Super Bowl: Kansas City Chiefs gewinnen dramatisch gegen die San Francisco 49ers
--  Kansas City po podaljšku ubranil naslov, Mahomes MVP
--  Бал-бесы
--  Brezilya'da bir albay darbe iddiasıyla gözaltına alındı
--  Hrot24: мораторий на экспорт американского СПГ крайне выгоден России
--  Мобилизирани да воюват до пенсионна възраст: В Русия засега свалиха нов законопроект
+-  Beyoncé surprise announces new album during Super Bowl
+-  Scottsdale Fire, TPC Scottsdale bartender react to Saturday shutdown at WM Phoenix Open - Arizona's Family
+-  ขายด่วน ! FTX ร้อนเงินตัดสินใจขายบริษัทในเครือให้ Coinlist มูลค่า 18 ล้าน หลังเคยซื้อมา 350 ล้านบาท
+-  Tập đoàn bà dì Thượng Hải tiết lộ số tiền lì xì cho con cháu năm mới: Không nói không ai dám hình dung
+-  Hai trường hợp được tăng lương hưu từ ngày 1/7
+-  Ticket prices for Johor Zoo to be among lowest in Asia, says exco man
+-  David Beckham nghẹn ngào đăng ảnh khoe với cả gia đình khi phát hiện ra một vật ở phía sau căn hộ 370 tỷ
+-  Olimpija se je že spotaknila, Celje gre z veliko prednostjo v nadaljevanje prvenstva
+-  Fatwa MUI: Haram Memilih Pemimpin Tidak Siddiq, Amanah, Tabligh, Fathonah
+-  JEE Main 2024 Session 1 Result Today: What's Next for Candidates?
