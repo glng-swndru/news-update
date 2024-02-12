@@ -1,11 +1,11 @@
 # Latest News
--  Final CAN 23 de Futebol: Costa do Marfim vence Nigéria e conquista o terceiro título de campeã de África
--  Major city facing ‘homelessness tsunami’
--  NÉZŐpont: Miller győztes gólja, Krug 5 asszisztja!
--  Tour of Antalya sona erdi!
--  Ator de 'Vai na Fé' sofre acidente de trânsito e é internado em Salvador
--  Неприятно. Везенков ще отсъства по-дълго от очакваното
--  सत्ता में आने आने अनुसूचित जाति के लोगों को मिलेंगी सुविधाएं : सरोहा
--  February Is Cat Health Month: Try These Tips For A Happy, Chipper Kitty Year-round
--  Priča za film, priča kako je fudbal savladao smrt: Pobedio rak, vratio se i doživeo košmar na terenu - sada je heroj šampiona!
--  $70k a seat? Super Bowl ticket prices out of control as scalpers cash in
+-  Mazzarri: "Classifica? A inizio stagione non c'ero io. Non segniamo? Ci sono state tante palle gol"
+-  ‘Što će nam uopće taj Mbappé?‘: Ancelotti raspolaže napadačkim luksuzom kakav nema ni Guardiola
+-  La China Suárez apoyó Lali Espósito tras su fuerte descargo
+-  Pašinjan: Nemam ovlašćenja da uhapsim Putina
+-  CAN 2023 : folie à Paris après le sacre ivoirien !
+-  Посол РФ в Азербайджане: Вопрос с Карабахом закрыт
+-  Putin y Trump son vistos como una "amenaza" por los globalistas de Davos
+-  ABD'de kiliseye silahlı saldırı
+-  Vdes në burgun rus një ukrainas i akuzuar për spiunazh
+-  "Барса" бая зацикли - едва измъкна точка след 3:3 с предпоследния у дома
