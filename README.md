@@ -1,11 +1,11 @@
 # Latest News
--  "DOK NE DOĐE, SAMELJEM ZA SVINJE, CEPAM DRVA, SVE ŠTO FALI RADIM" Dragana nije jedina, naše žene u kući rade duplo više od muških
--  D-100'de alev alan araç küle döndü
--  Volkswagen: Politiker fordern VW zu Rückzug aus Xinjiang auf
--  Milanović uspješno 'cementira' svoj status šefa oporbe
--  Gaza: Israel says its forces rescued two hostages in Rafah raid
--  Trabzonspor-Hatayspor! Muhtemel 11'ler
--  Блудство с 12-годишно момиче, насилникът е хванат, но после е пуснат на свобода
--  SkyCity faces new claims of money laundering breaches
--  Aussichten für NRW: So wird das Wetter heute an Rosenmontag
--  Dolar blago oslabio
+-  In Lahore, Mani Shankar Aiyar lauds hospitality of Pakistanis, criticises PM Modi
+-  Нігерія - Кот-д’Івуар 1:2: огляд фіналу Кубка африканських націй-2023
+-  Ouverture à la rentrée 2024 d’une nouvelle classe préparatoire au lycée Renoir de Limoges
+-  Започва второ ниво на киноиграта "Боб Марли: One Love"
+-  MSB duyurdu! Saldırı hazırlığı yapan teröristler etkisiz hale getirildi
+-  استقلال خواهان بازگرداندن منتظر محمد شد
+-  In Lahore, Mani Shankar Aiyar lauds hospitality of Pakistanis, criticises Modi - Hindustan Times
+-  НБА. Бостон одолел Майами, Оклахома обыграла Сакраменто
+-  Над 100 убити при израелската атака в Газа
+-  Balıkesir'de yolcu otobüsü devrildi: 1 ölü, 20 yaralı
