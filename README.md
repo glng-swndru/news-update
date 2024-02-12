@@ -1,11 +1,11 @@
 # Latest News
--  박서진, 둘째 형 공개 “큰형 죽기 전 해선 안 될 말…” (살림남2)
--  Kiderült, hogy mennyivel nőtt egy év alatt a képviselők vagyona?
--  İtalya'da RAI Üst Yöneticisi Sergio İsrail'e arka çıktı tepki mesajları yağdı
--  Тестовое голосование в системе ДЭГ перед выборами президента пройдёт в Москве в начале марта
--  Vilniuje praūžė MKL žvaigždžių diena
--  Tory MP Andrew Rosindell cleared by Met Police after lengthy investigation
--  خلف دعا النواب إلى انتخاب رئيس "فيرتاح الضمير"
--  فيديو| مختصون بالأزياء لـ"اليوم": 3 أسباب تعزز الاستثمار في قطاع الأزياء بالمملكة
--  Vonáék feljelentést tesznek Varga Judit volt férjének állításai nyomán
--  НХЛ: Сент-Луїс здолав Монреаль, Ванкувер - Вашингтон
+-  Februaraufstand 1934 - Vor 90 Jahren schossen Österreicher auf Österreicher
+-  Haravgi’ye göre “çabanın devam edip edemeyeceği Holguin adaya döndüğünde ortaya çıkacak”
+-  국힘, 내일부터 공천 면접 돌입…민주, 곧 '하위 20%' 통보
+-  120 Ironman-Triathlons am Stück – dafür wird Jonas Deichmann vom Abenteurer zum Hochleistungssportler
+-  Hakkari'de toplu taşıma ücretsiz oldu! Bakın uygulama ne zaman bitiyor
+-  В список объектов культурного наследия планируют включить Черемшанский вал
+-  Endre nära två tunga värvningar – kontraktsförslag ute
+-  Kāda būs Grīziņkalna tirgus nākotne? Iedzīvotāji aicina Rīgas domi pieņemt lēmumu
+-  VVIJ grijpt naast periodetitel, zegereeks Linschoten stokt en ander voetbal
+-  Jangan Salah! Ini Cara Mencoblos yang Benar dan Berkas yang Harus Dibawa di Pemilu 2024
