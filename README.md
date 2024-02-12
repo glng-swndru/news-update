@@ -1,11 +1,11 @@
 # Latest News
--  突発的に犯行か 自宅にあった包丁で夫を刺す「殺すつもりで…」 福島・いわき市殺人未遂事件
--  「朝早起きして準備した」大雪像を取り壊し…さっぽろ雪まつりが閉幕 コロナ禍前に迫る“238万9000人”つどーむ会場復活など2023年から約4割増
--  What a buzz… SA20 League is certainly here to stay
--  Oportunidad única e irrepetible para atraer capital extranjero
--  ダイハツ 京都工場で2車種の生産再開
--  バイデン大統領 ガザ地区ラファ地上侵攻に懸念
--  プロジェクションマッピングで"おまち"を活性化！ 音楽に合わせて公園の壁に映像を投影 静岡市
--  Uutisanalyysi | Ryminällä ennakkosuosikiksi nousseen Alexander Stubbin pokka piti loppuun asti – Etelä-Saimaa arvioi syyt voittoon
--  神田正輝ほっそりの全身ショット
--  Fatih’te ahşap binada başlayan yangın yanındaki binaya da sıçradı: 1 yaralı
+-  El tiempo en Vilalba: previsión meteorológica para hoy, lunes 12 de febrero
+-  Vi phạm nồng độ cồn, cô giáo nói ‘đi họp lớp chỉ uống nửa lon bia pha nước lọc’
+-  Hành khách 'mất hàng lít máu', tử vong trên máy bay Lufthansa
+-  （專訪）宇宙人「建中、台大打底」步步高升！ 成為「人中之龍」有訣竅
+-  Mbappé volta aos treinos do PSG e deverá enfrentar Real Sociedad na Champions
+-  BCA Setop Layanan m-BCA SIM Card, Jadi Pakai Ini
+-  Biden campaign joins TikTok in an effort to reach younger voters
+-  Сенатор Маллин: пакет помощи Киеву направят на восполнение боеприпасов США
+-  ASI to conserve 7 Maratha military forts across state
+-  Pope and Argentine President Milei embrace after pontiff canonizes Argentina’s first female saint
