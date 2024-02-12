@@ -1,11 +1,11 @@
 # Latest News
--  Paper Mario supera Pragmata nella classifica dei giochi più attesi da Famitsu
--  Przeliczenia emerytur po 65. roku życia. Sprawdź, czy spełniasz te warunki
--  Prensa uruguaya publica entrevista del secretario general del PCV
--  "Kebo, jesi li se šlogirao?" Pevač objavio snimak, pratioci se zabrinuli za njegovo zdravstveno stanje! A onda zanemeli kad je počeo da ljubi drvo (VIDEO)
--  Biden post pours petrol on Swift conspiracy
--  Dostali od Kołodziejczaka prezent za 40 tys. zł. "Dzwoni do nas i pyta"
--  Biden post pours petrol on Swift conspiracy
--  Tulpensonntag in "Pochz om Rhing": So schön war der Zug in Köln-Porz
--  VIDEO Un nou film bazat pe una din poveștile clasice ale cinematografiei n-a reușit să impresioneze la box office într-un weekend cu o contraperformanță istorică
--  Rumunijos premjeras įsitikinęs, kad Rusija šalies nepuls: tam nėra pagrindo
+-  British Gas launches tariff £299 cheaper than energy price cap to beat high bills
+-  Kinh tế Việt Nam: Những tín hiệu lạc quan từ đầu năm mới
+-  Gleiches Finale, anderer Ausgang
+-  Razones y consecuencias de querer llevar un control permanente de todo
+-  3 Surprising Lessons U.S. Medicine Can Learn From Around The World
+-  The Girl on The Bus ganha data de estreia na HBO Max
+-  「アグレッシブに最後まで全力で戦う」愛媛FCが開幕前にキックオフフェスタ【愛媛】
+-  ভারতে বহুবিবাহ নিষিদ্ধে বিভক্ত মুসলিম নারীরা
+-  Karlar: Félagaskiptin í íslenska fótboltanum
+-  A clinic in western Newfoundland is capitalizing on virtual tools to tackle demand
