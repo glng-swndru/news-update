@@ -1,11 +1,11 @@
 # Latest News
--  Vidosavljević i Sali presudili Nišlijama na "Čika Dači": Kragujevčani imali tri gola prednosti pa ušli u dramu
--  Farmers 'Delhi Chalo' Protests: Union Ministers To Meet Farmer Groups In Chandigarh
--  «Ausência do banco não tem influência»
--  Calcio: Allegri, 'futuro? Ho ancora un anno di contratto ma dipende dai risultati'
--  Perché Angelina Mango ha vinto Sanremo, spiegato con i numeri (spoiler: c’entrano i social network)
--  Perché Angelina Mango ha vinto Sanremo, spiegato con i numeri (spoiler: c’entrano i social network)
--  Виктор Орбан с призив Сърбия да влезе по-бързо в ЕС
--  Fasching auf den Rängen, harter Fight auf dem Feld
--  Quebec Winter Carnival closes Palais de Bonhomme due to warm weather
--  Rotes Meer: US-Angriffe auf Huthi-Miliz
+-  AK Parti'nin acı günü! Fatma Sevim Baltacı ebediyete uğurlandı! Erdoğan'dan açıklama!
+-  Harte Kritik an rutschigem Kunstrasen in Salzburg: "Hier zu spielen ist gefährlich"
+-  Berlin'de 2021 yılında yapılan genel seçimler kısmi olarak tekrarlandı
+-  'Deprem Bölgesi Zirvesi' özel oturumu deprem, şehircilik ve sosyolojisi üzerine olacak
+-  Leben mit Psychose: In einer anderen Wirklichkeit
+-  TUGA U SVETU TENISA! Preminula legenda US Opena, igrač iz KUĆE SLAVNIH i veliki dobrotvor!
+-  Rätsel der Woche: Wie groß ist das Dreieck?
+-  Netflix : Ce film bouleversant, à voir au moins une fois dans sa vie, va bientôt quitter la plateforme
+-  Gerardo Zamora apuntó contra Javier Milei: "Está equivocado y tiene que reflexionar"
+-  Кафе с мед - много хора го обичат, а други не го понасят
