@@ -1,11 +1,11 @@
 # Latest News
--  Минские динамовцы проиграли "Северстали" в гостевом матче КХЛ
--  Work with wonder and imagination
--  Болоня разби Лече, Монца и Верона не се победиха
--  Астън Вила - Ман Юнайтед /състави/
--  Streit um EU Lieferkettengesetz: Menschenrechte vertagt
--  O minciună aruncată de PSD. Suntem singura țară europeană cu cotă unică? NU! / Biriș: De ce-i mulțumește FMI lui Liviu Voinea pentru studiul privind impozitul progresiv?
--  Artvin-Hopa kara yolunda son durum! Vali Ünsal çalışmaları inceledi
--  Kanye West's controversial tactics affecting his fashion line: Claims expert
--  Bohemians čarovali v Hradci Králové. Teplice díky Filovi porazily Zlín
--  Sanremo: FdI, 'risultato storico fa impallidire oppositori a prescindere'
+-  Norra laskesuusatajaid said MMil viisikvõidu, Ränkel jäi viimaseks
+-  Kadıköy'de tartışılan karar! Alanyaspor'dan yoğun itiraz
+-  Klarer Sieg gegen Mainz: VfB Stuttgart festigt Spitzenposition
+-  The Boys: New Super Bowl Ad "Too Patriotic" for TV
+-  O que é revisão da vida toda: entenda a polêmica em discussão no STF
+-  Kabine yarın toplanıyor: Öğretmen ataması gündemde
+-  Man assaulted while delivering groceries in Boston, police say
+-  Qué es la "trampa de la población" a la que se enfrenta Canadá y cómo puede afectar a quienes planean migrar al país
+-  BJP releases first list of 14 RS nominees; R.P.N. Singh, Sudhanshu Trivedi make the cut - The Hindu
+-  Usmívající se Davidová: Musím se pochválit, koncentraci jsem tentokrát zvládla
