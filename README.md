@@ -1,11 +1,11 @@
 # Latest News
--  Helldivers 2: sviluppatori si devono guadagnare il diritto di monetizzare, per il direttore creativo
--  «La sociedad de la nieve» arrasa en los Goya con 12 premios #11Feb
--  Nach Feuer in Kleingartenanlage in Recklinghausen: Polizei schließt technischen Defekt aus
--  "Bullying Collection" u SARTR-u: Komad koji progovara o problemu vršnjačkog nasilja
--  Burkina/Lutte contre la contrebande : La 6e légion de la Gendarmerie démantèle des réseaux de trafiquants dans la région du Centre-Est
--  Phim Tết có NSND Hồng Vân rời rạp vì quá ít suất chiếu
--  Bhumi Pednekar Interview | Muzaffarpur कांड पर Shahrukh Khan की फिल्म करने में डर लगा?
--  Achtung, Kontrolle: 3200 Häuser im Kreis Pinneberg betroffen
--  Pamiętasz pierwsze zdjęcie Ziemi z kosmosu? To było niezwykłe osiągnięcie techniczne
--  What Time Is The Super Bowl On Today?
+-  Mehmed: Fetihler Sultanı ne zaman, hangi kanalda başlıyor?
+-  İzmit’te şüpheli çanta paniği. Tramvay seferleri aksadı
+-  Remi Klermona i Bresta, pobede Lorijena i Tuluza
+-  ‘Surprised me’: Paul Scholes left stunned by 25-year-old Arsenal player vs West Ham United
+-  Sanremo: Malan (FdI), 'non il posto giusto per parlare di crisi internazionali, a senso unico'
+-  West Ham - Arsenal 0:6. Oba Češi u drsného debaklu, fanoušci odcházeli
+-  VIDEO: Teplice - Zlín 2:1. Fila dvěma góly trefil cennou výhru
+-  مكتب ميقاتي: الحملات الاعلامية التي تشن على رئيس الحكومة تفتقد الى الصدقية وهدفها العراضات الاعلامية
+-  Bürgerbüro jetzt mit langem Donnerstag: Warum wir trotzdem keine freien Abend-Termine finden
+-  ΑΠΟΕΛ: Ο λόγος που έμειναν εκτός οι Κονσταντίνοφ και Ντβάλι
