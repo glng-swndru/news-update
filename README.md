@@ -1,11 +1,11 @@
 # Latest News
--  Ο Ιάγος και ο εαυτός του
--  İsrail güçleri, Filistin'in Mesafir Yatta bölgesinde evleri yıktı
--  Jüdisches Leben in Deutschland: Vergesst eure deutschen Klischees über Juden!
--  Filipinler'deki toprak kaymasında can kaybı 54'e yükseldi
--  "Wygrywa ten, kto ma wygrać". Sopiński o konkursie ministra Bodnara
--  Unionsfraktion schreibt Brief an den Kanzler: Die Ampelkoalition muss auf die Union zugehen – und umgekehrt
--  Dudince chcú tento rok realizovať viacero investičných projektov
--  ‘Whatever they want’: Trump comment stuns
--  Konyaspor'un galibiyet hasreti bitti
--  Große Party in Wevelinghoven: Rund 2000 Karnevalsfans feiern bei „Da simmer dabei“
+-  Helldivers 2: sviluppatori si devono guadagnare il diritto di monetizzare, per il direttore creativo
+-  «La sociedad de la nieve» arrasa en los Goya con 12 premios #11Feb
+-  Nach Feuer in Kleingartenanlage in Recklinghausen: Polizei schließt technischen Defekt aus
+-  "Bullying Collection" u SARTR-u: Komad koji progovara o problemu vršnjačkog nasilja
+-  Burkina/Lutte contre la contrebande : La 6e légion de la Gendarmerie démantèle des réseaux de trafiquants dans la région du Centre-Est
+-  Phim Tết có NSND Hồng Vân rời rạp vì quá ít suất chiếu
+-  Bhumi Pednekar Interview | Muzaffarpur कांड पर Shahrukh Khan की फिल्म करने में डर लगा?
+-  Achtung, Kontrolle: 3200 Häuser im Kreis Pinneberg betroffen
+-  Pamiętasz pierwsze zdjęcie Ziemi z kosmosu? To było niezwykłe osiągnięcie techniczne
+-  What Time Is The Super Bowl On Today?
