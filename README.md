@@ -1,11 +1,11 @@
 # Latest News
--  Kenya's leader wants a paved road to cut through a forest, a key water source. Scientists don’t
--  카타르, 이스라엘 라파 지상전 강행시 “인도적 재앙 일어날 것”
--  Очаквайте на живо: Super Bowl LVIII, Сан Франциско 49ърс – Канзас Сити Чийфс
--  Nigéria de Peseiro perde final da CAN frente à Costa do Marfim
--  "60대 심정지 환자 소생 기여"...세종시민 '하트세이버' 인증
--  Sevilla continue on road to recovery in Spanish league
--  IMF 총재 “불확실성 여전히 크지만, 세계경제 더 자신감 가져도 돼”
--  Canada routs US 6-1, sweeps final 4 games to claim 2nd straight Rivalry Series
--  高中木聯24強／衛冕軍穀保打擊榜第一 崇義有外援、玉里二刀流吸睛
--  Jesuits in US bolster outreach initiative aimed at encouraging LGBTQ+ Catholics
+-  Final CAN 23 de Futebol: Costa do Marfim vence Nigéria e conquista o terceiro título de campeã de África
+-  Major city facing ‘homelessness tsunami’
+-  NÉZŐpont: Miller győztes gólja, Krug 5 asszisztja!
+-  Tour of Antalya sona erdi!
+-  Ator de 'Vai na Fé' sofre acidente de trânsito e é internado em Salvador
+-  Неприятно. Везенков ще отсъства по-дълго от очакваното
+-  सत्ता में आने आने अनुसूचित जाति के लोगों को मिलेंगी सुविधाएं : सरोहा
+-  February Is Cat Health Month: Try These Tips For A Happy, Chipper Kitty Year-round
+-  Priča za film, priča kako je fudbal savladao smrt: Pobedio rak, vratio se i doživeo košmar na terenu - sada je heroj šampiona!
+-  $70k a seat? Super Bowl ticket prices out of control as scalpers cash in
