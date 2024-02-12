@@ -1,11 +1,11 @@
 # Latest News
--  "Bilo je nezaboravnih utakmica sa Hrvatima, jedva čekamo novi derbi"
--  「券売機がない駅では…」JR九州の“不親切”ポスターに驚いたワケ - News&Analysis
--  Fédérale 3 : Argentat a souffert de bout en bout à Vergt
--  "POSLE PAROVA SAM IMAO INFARKT, PSIHIČKI SAM PUKAO!" Teška ispovest Nemanje Nikolića: Čačkalicama sam crtao obezglavljene anđele..
--  Líder da CAP: "Não posso ser proibido de plantar um pomar e o vizinho ser autorizado a construir um campo de golfe"
--  Η Σαουδική Αραβία χορήγησε 250 εκατ. δολάρια για να βοηθήσει την κυβέρνηση της Υεμένης
--  7. yüzyılda Tonyukuk, Kültigin ve Bilge Kağan adına dikilmiş Orhun kitabelerinde geçen Tabgaç kelimesi günümüz Türkçesine nasıl çevrilir?
--  Halid Bešlić o događaju koji mu je promijenio život: Cigareta mi je bila u ustima i to je bila je zadnja koju sam zapalio
--  CAMM N°5 de La Banda realizó un taller sobre prevención de enfermedades comunes contraídas en piscinas
--  정원 급증한 의대, 기초의학 대응 될까
+-  Leafs' Morgan Rielly offered in-person hearing by NHL Department of Safety
+-  Leafs' Morgan Rielly offered in-person hearing by NHL Department of Safety
+-  Finland's new president sees no limit to NATO ties, Ukraine support
+-  Leafs' Morgan Rielly offered in-person hearing by NHL Department of Safety
+-  Leafs' Morgan Rielly offered in-person hearing by NHL Department of Safety
+-  Leafs' Morgan Rielly offered in-person hearing by NHL Department of Safety
+-  Pyrosomes on Oregon's beaches
+-  Finlande. Le conservateur Alexander Stubb élu président de la République
+-  Leafs' Morgan Rielly offered in-person hearing by NHL Department of Safety
+-  Galatasaray ve Fenerbahçe atıştı!
