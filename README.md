@@ -1,11 +1,11 @@
 # Latest News
--  آینده رالی دو «شاخص»
--  Modernist Melbourne home attracts international attention
--  راهبرد - ۱۴۰۲/۱۱/۲۳
--  Beyti Engin: Böyle bir kadının hikayesini anlatmak gurur verici
--  卡塔爾衛冕亞洲盃 艾菲夫12碼戴帽寫歷史 盡攬個人獎項
--  Toorak: Modernist home attracts international attention with $23m price hopes
--  فهم انتقادی از تحریم‌ها
--  Ezeli rakipler birbirine girdi! Galatasaray'ın paylaşımına Fenerbahçe'den jet yanıt
--  化妝品店長轉行地產代理 零售經驗助適應
--  واریز عیدی بازنشستگان تامین اجتماعی تا ۱۰ اسفند
+-  Trump že dviga prah glede zveze Nato
+-  Везенков няма да играе за "Сакраменто" няколко седмици заради нова контузия
+-  Coronation Street spoilers: Adam Barlow’s devastatingly brutal action ‘impresses’ killer
+-  "Se Governo não cumprir o prometido será a própria CAP a dizer: 'temos de nos manifestar'"
+-  Kayseri'de zincirleme trafik kazasında 1 kişi öldü, 1 kişi yaralandı
+-  Coronation Street spoilers: Bethany floors Daniel with a major secret and there are more shocks to come
+-  «القرين الثقافي 29» انطلق بتكريم فائزي «التقديرية والتشجيعية»
+-  PAŠINjAN STAVIO TAČKU NA SVE GLASINE: Odgovorio da li je bilo razgovora oko ulaska te zemlje u NATO
+-  Україна має стати буферною зоною між РФ і Заходом, - Орбан
+-  Севилья – Атлетико – 1:0. Победный мяч Ромеро. Видео гола и обзор
