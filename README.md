@@ -1,11 +1,11 @@
 # Latest News
--  AK Parti'nin acı günü! Fatma Sevim Baltacı ebediyete uğurlandı! Erdoğan'dan açıklama!
--  Harte Kritik an rutschigem Kunstrasen in Salzburg: "Hier zu spielen ist gefährlich"
--  Berlin'de 2021 yılında yapılan genel seçimler kısmi olarak tekrarlandı
--  'Deprem Bölgesi Zirvesi' özel oturumu deprem, şehircilik ve sosyolojisi üzerine olacak
--  Leben mit Psychose: In einer anderen Wirklichkeit
--  TUGA U SVETU TENISA! Preminula legenda US Opena, igrač iz KUĆE SLAVNIH i veliki dobrotvor!
--  Rätsel der Woche: Wie groß ist das Dreieck?
--  Netflix : Ce film bouleversant, à voir au moins une fois dans sa vie, va bientôt quitter la plateforme
--  Gerardo Zamora apuntó contra Javier Milei: "Está equivocado y tiene que reflexionar"
--  Кафе с мед - много хора го обичат, а други не го понасят
+-  Thomas Müller tajtékzott, Leroy Sané szétütötte a kamerát a csúfos vereség után
+-  Leković: Neistina da je Savjet izmjenio uslove konkursa pred sam...
+-  "Maï et Mouna" de Béatrice Castaner : un récit puissant qu'elle dédicacera à Limoges
+-  رواية من أعماق أحضان مجنونة -49
+-  Bolu’da iki puan bıraktık: 1-1
+-  Tauron 1. Liga siatkarzy: MCKiS Jaworzno – AZS AGH Kraków. Relacja live i wynik na żywo
+-  周杰倫當球衣設計師「姆巴佩也穿」！ 驕傲曬認證照：自己的創意
+-  Лікувати більше нікому: війна РФ проти України призвела до нестачі медперсоналу
+-  Mở phong bao lì xì của chị chồng, tôi xấu hổ đến đỏ mặt và cư xử lúng túng suốt cả ngày
+-  Ο γάμος των ομόφυλων ζευγαριών και ο κ. Κουτσούμπας
