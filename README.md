@@ -1,11 +1,11 @@
 # Latest News
--  Nato-Debatte - Sigmar Gabriel rügt Donald Trumps "Spiel mit dem Feuer"
--  Ana Oliveira: «Benfica é a grande potência em Portugal no atletismo»
--  4 dự án giao thông trọng điểm dự kiến hoàn thành trong năm 2024
--  "Un gentil mec, sans ambiguïté": qui était Chris Fruchart enlevé et tué sur la Côte d’Azur?
--  Betting apps – Top 10 Best betting sites for UK punters 2024
--  Splitski mališani će jutros Joker pretvoriti u maškarano carstvo
--  El marisco económico que baja el colesterol en vez de subirlo
--  Nagy dologra készül az Atari
--  Terni, le varie forme dell’amore e la vittoria di Angelina Mango a UmbriaLibri Love
--  Batteries: What will the EU’s Critical Raw Materials Act really achieve?
+-  "DOK NE DOĐE, SAMELJEM ZA SVINJE, CEPAM DRVA, SVE ŠTO FALI RADIM" Dragana nije jedina, naše žene u kući rade duplo više od muških
+-  D-100'de alev alan araç küle döndü
+-  Volkswagen: Politiker fordern VW zu Rückzug aus Xinjiang auf
+-  Milanović uspješno 'cementira' svoj status šefa oporbe
+-  Gaza: Israel says its forces rescued two hostages in Rafah raid
+-  Trabzonspor-Hatayspor! Muhtemel 11'ler
+-  Блудство с 12-годишно момиче, насилникът е хванат, но после е пуснат на свобода
+-  SkyCity faces new claims of money laundering breaches
+-  Aussichten für NRW: So wird das Wetter heute an Rosenmontag
+-  Dolar blago oslabio
