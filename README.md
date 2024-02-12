@@ -1,11 +1,11 @@
 # Latest News
--  Söğüt, sabahın ilk ışıklarında Körfez sokaklarındaydı
--  INS: Salarial mediu net în decembrie 2023 a crescut cu 314 lei, la 5.079 lei, faţă de luna noiembrie 2023
--  LÄSARTEXT: Skolan behöver fler pedagoger – inte avskaffad anpassning
--  Usulan Formasi CPNS & PPPK 2024 Diperpanjang Lagi, BKN Menjelaskan Alasannya
--  Изключеният от "Възраждане" Дренчев: Държат се като крайна опозиция
--  TİP'in Hatay adayı duyuruluyor
--  Immobilienpreise fallen erneut - Bürokrise wächst
--  Venecuela raspoređuje vojsku na granicu Gvajane: Područje bogato...
--  Правительство направит 20 миллиардов рублей на льготные кредиты для АПК
--  В детска градина в Бургас: Майка има съмнения за насилие над 4-годишното ѝ дете - Труд
+-  Important Orders for Safeture's Platform
+-  Bakan Şimşek: Kiralardaki fiyat artışlarının önüne geçmek için konut arzı artırılacak
+-  Ambisi Persik Kediri Tembus 4 Besar BRI Liga 1
+-  ФОТО. Виталий Кличко примерил форму английского футбольного клуба
+-  e-Devlet'ten yeni özellik! Ne zaman emekli olacaksın tıkla öğren
+-  AC/DC en concert à l'hippodrome ParisLongchamp en août 2024
+-  USDA approves stunning bioluminescent "firefly petunias" for sale
+-  Министра российского региона заподозрили в браконьерстве
+-  Azərbaycanlı modelin arxiv FOTOLARI yayıldı
+-  황선우도 굿 스타트···세계선수권 男 자유형 200ｍ 예선 11위로 통과
