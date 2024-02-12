@@ -1,11 +1,11 @@
 # Latest News
--  Beyoncé surprise announces new album during Super Bowl
--  Scottsdale Fire, TPC Scottsdale bartender react to Saturday shutdown at WM Phoenix Open - Arizona's Family
--  ขายด่วน ! FTX ร้อนเงินตัดสินใจขายบริษัทในเครือให้ Coinlist มูลค่า 18 ล้าน หลังเคยซื้อมา 350 ล้านบาท
--  Tập đoàn bà dì Thượng Hải tiết lộ số tiền lì xì cho con cháu năm mới: Không nói không ai dám hình dung
--  Hai trường hợp được tăng lương hưu từ ngày 1/7
--  Ticket prices for Johor Zoo to be among lowest in Asia, says exco man
--  David Beckham nghẹn ngào đăng ảnh khoe với cả gia đình khi phát hiện ra một vật ở phía sau căn hộ 370 tỷ
--  Olimpija se je že spotaknila, Celje gre z veliko prednostjo v nadaljevanje prvenstva
--  Fatwa MUI: Haram Memilih Pemimpin Tidak Siddiq, Amanah, Tabligh, Fathonah
--  JEE Main 2024 Session 1 Result Today: What's Next for Candidates?
+-  Super Bowl 2024: Watch Taylor Swift React to the Kansas City Chiefs Win
+-  That’s a wrap! Upsets, thrillers and top clubs at NSW titles
+-  İstanbul'da sağanak etkisi! Haftanın ilk 3 gününe dikkat!
+-  ‘브레이브 걸그룹’ 캔디샵, 완전체 4인 모습 최초 공개
+-  CLIP: Mùng 3 Tết, người miền Tây chen chân mua gà trống
+-  Что случилось этой ночью: понедельник, 12 февраля
+-  Se agarran a golpes por no completar para la cubeta, en cantina de Saltillo
+-  Super Bowl LVIII : Les Chiefs conservent leur titre, Mahomes entre dans l'histoire
+-  ‘브레이브 걸그룹’ 캔디샵, 완전체 4인 모습 최초 공개
+-  Google пусна оправен ъпдейт за Android
