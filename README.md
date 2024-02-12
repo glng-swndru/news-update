@@ -1,11 +1,11 @@
 # Latest News
--  Турска лира - лев. Колко струва една турска лира към един български лев днес, 12 февруари /валутен калкулатор/
--  İsrail güçleri, işgal altındaki Batı Şeria'da bir Filistinliyi öldürdü
--  Feyenoord slavio u gradskom derbiju, Ivanušec iz prvog dodira s loptom upisao asistenciju
--  Izboden muškarac na Petrovaradinu! Zbrinut u svesnom stanju
--  Corinthians vence a Portugues na estreia de treinador que era do Cuiabá
--  Βαθμολογία Basket League: Ο Ολυμπιακός έμεινε κοντά στον Παναθηναϊκό στην κορυφή
--  How to Watch the Super Bowl for Free Today: Paramount Plus Is All You Need to Stream - CNET
--  Making our journalists more accessible
--  Izboden muškarac u Petrovaradinu! Zbrinut u svesnom stanju
--  MIL-NAP (1-0): Pioli ricorre ai cambi, fuori Bennacer e Kjaer per Musah e Simic
+-  این حق من است (تکرار)
+-  APA - N A C H R I C H T E N Ü B E R B L I C K
+-  الشيخ جوعان يلتقي مسؤولين رياضيين
+-  展開雙臂擁抱 寄養童溫馨回「娘」家
+-  メールチェックは週2回で十分。4つのコツで集中力を切らさず生産性を高める仕事術
+-  林郁婷專訪》套用買股概念 教你過年吃不胖
+-  Caitlin Clark narrowly misses scoring mark as Nebraska upsets Iowa
+-  «بروة العقارية» توصي بتـــوزيـــع «18 %» نقدا
+-  O PS tem um novo problema: o Chega
+-  Συνελήφθη από την ΕΛ.ΑΣ. 35χρονος με δέματα που περιείχαν κάνναβη - Τα παρέλαβε από το ταχυδρομείο
