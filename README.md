@@ -1,11 +1,11 @@
 # Latest News
--  Столица Конго может исчезнуть из-за наводнений
--  Manj afganistanskega maka, vendar nič manj heroina
--  Trump NATO comments labelled ‘appalling and unhinged’
--  Mùng 2 Tết đến nhà người yêu ra mắt, cô gái “chạy mất dép” sau màn chào mừng đầy vô lý
--  Berlin: Hannah-Arendt-Lesung nach propalästinensischem Protest abgebrochen
--  Muğla'da düzensiz göçmen operasyonu
--  Travel Hacks: Sorglos um die Welt: Acht Tipps für sicheres Reisen
--  Sieťový gigant Cisco plánuje prepustiť tisíce zamestnancov
--  PS apresenta o programa eleitoral. Siga aqui em direto
--  Travel Hacks: Sorglos um die Welt: Acht Tipps für sicheres Reisen
+-  Zauberhafte Wesen und wilde Rocker feiern Karneval in Drebber
+-  Brasil x Argentina: disputa pela vaga nas Olimpíadas de Paris 2024!
+-  Севилья – Атлетико Мадрид. Смотреть онлайн. LIVE трансляция
+-  Z natáčení Smyslu pro tumor jsem měl noční můry, říká Filip Březina. Každý den nám sjížděli hlavu
+-  Fiorentina, Gonzalez: "Sono argentino, non mi piace perdere o prendere gol"
+-  GYM Lovers ਨੂੰ ਸੁਣਨੀ ਚਾਹੀਦੀ ਕਰਤਾਰ ਦੀ ਇਹ ਗੱਲ
+-  TOFAŞ, Aliağa Petkimspor'u farklı yendi
+-  ‘Make charge last longer’ says Google with 8 Android phone settings that instantly unlock extra battery life
+-  Silovatelji dece biće kastrirani, neki hemijski dok drugi hirurškim putem! Novi zakon stupio na snagu
+-  Havada korkunç ölüm... Uçak acil iniş yaptı...
