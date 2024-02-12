@@ -1,11 +1,11 @@
 # Latest News
--  Februaraufstand 1934 - Vor 90 Jahren schossen Österreicher auf Österreicher
--  Haravgi’ye göre “çabanın devam edip edemeyeceği Holguin adaya döndüğünde ortaya çıkacak”
--  국힘, 내일부터 공천 면접 돌입…민주, 곧 '하위 20%' 통보
--  120 Ironman-Triathlons am Stück – dafür wird Jonas Deichmann vom Abenteurer zum Hochleistungssportler
--  Hakkari'de toplu taşıma ücretsiz oldu! Bakın uygulama ne zaman bitiyor
--  В список объектов культурного наследия планируют включить Черемшанский вал
--  Endre nära två tunga värvningar – kontraktsförslag ute
--  Kāda būs Grīziņkalna tirgus nākotne? Iedzīvotāji aicina Rīgas domi pieņemt lēmumu
--  VVIJ grijpt naast periodetitel, zegereeks Linschoten stokt en ander voetbal
--  Jangan Salah! Ini Cara Mencoblos yang Benar dan Berkas yang Harus Dibawa di Pemilu 2024
+-  Μητσοτάκης σε Βούτσιτς: «Είμαστε δίπλα σας - Μας ενδιαφέρει η διασύνδεση Ελλάδας - Σερβίας στην ενέργεια και στις μεταφορές»
+-  A creatina e outros assuntos
+-  Massa di Semarang Lempari Polisi dengan Celana Dalam, Simbol Jokowi Tak Punya Malu
+-  Chaoten wüten im Bürgerpark Dorsten: Stadt reagiert prompt
+-  Apenas 2% dos resíduos coletados na região são reciclados
+-  Belum Kenal Brandnya, Netizen Kira Nagita Slavina Beli Tas di Pasar Malam: Siap-siap Jadi Trendsetter!
+-  Birinci Moskva Dövlət Tibb Universitetinin rektoru Prezident İlham Əliyevə təbrik məktubu göndərib
+-  Miške iz treh sestavin: najpreprostejše ocvrto vzhajano testo, ki si ga lahko zamislite
+-  Kinderkarneval in Castrop-Rauxel 2024: So bunt haben die kleinen Jecken gefeiert
+-  Úřad chce uzavřít smlouvu s vítězem aukce zámku, Kunratice částku nedorovnaly
