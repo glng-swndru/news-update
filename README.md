@@ -1,11 +1,11 @@
 # Latest News
--  Important Orders for Safeture's Platform
--  Bakan Şimşek: Kiralardaki fiyat artışlarının önüne geçmek için konut arzı artırılacak
--  Ambisi Persik Kediri Tembus 4 Besar BRI Liga 1
--  ФОТО. Виталий Кличко примерил форму английского футбольного клуба
--  e-Devlet'ten yeni özellik! Ne zaman emekli olacaksın tıkla öğren
--  AC/DC en concert à l'hippodrome ParisLongchamp en août 2024
--  USDA approves stunning bioluminescent "firefly petunias" for sale
--  Министра российского региона заподозрили в браконьерстве
--  Azərbaycanlı modelin arxiv FOTOLARI yayıldı
--  황선우도 굿 스타트···세계선수권 男 자유형 200ｍ 예선 11위로 통과
+-  中国の超伝導量子コンピューター「本源悟空」 世界からの利用者が100万人超
+-  Câu cá bống dưới đám dừa nước
+-  Sauli Kuopus hiihti umpihankikisojen voittoon kotikylällään Syötteen maisemissa – "Yöpakkanen piti hereillä"
+-  【新NISAスタート】まだ始めていないなら、伝えておきたい3つの鉄則
+-  Phương Anh Đào: "Bất ổn nhất là cảnh nóng với Tuấn Trần phải quay mất 4 ngày"
+-  「コンセントから出火」伊予市で住宅１棟を全焼する火事 けが人なし【愛媛】
+-  Bog: Sådan bygger du bro mellem den digitale og fysiske verden med 'digital twins'
+-  Konzert- und Festivaltickets in Haltern kaufen: Zwei Anlaufstellen für Events im Sommer
+-  Slavc Kovačič na Veseljaku
+-  ST 12 februari 1999: Dåligt intresse för Vivsta skola
