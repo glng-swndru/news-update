@@ -1,11 +1,11 @@
 # Latest News
--  Super Bowl 2024: Watch Taylor Swift React to the Kansas City Chiefs Win
--  That’s a wrap! Upsets, thrillers and top clubs at NSW titles
--  İstanbul'da sağanak etkisi! Haftanın ilk 3 gününe dikkat!
--  ‘브레이브 걸그룹’ 캔디샵, 완전체 4인 모습 최초 공개
--  CLIP: Mùng 3 Tết, người miền Tây chen chân mua gà trống
--  Что случилось этой ночью: понедельник, 12 февраля
--  Se agarran a golpes por no completar para la cubeta, en cantina de Saltillo
--  Super Bowl LVIII : Les Chiefs conservent leur titre, Mahomes entre dans l'histoire
--  ‘브레이브 걸그룹’ 캔디샵, 완전체 4인 모습 최초 공개
--  Google пусна оправен ъпдейт за Android
+-  Dackel „Dasty“ steckt in Betonrohr in der Erde fest: Feuerwehr befreit das Tier
+-  Editorial: Decisiones dignas de imitar
+-  Trains: Bus replacements launched with no trains between Portsmouth and Southampton on school holidays
+-  Kabine bugün toplanıyor: Masada ne var?
+-  Εκδήλωση για Κεντροαριστερά: Οι γέφυρες του Τεμπονέρα, η αναδίπλωση του Χριστοδουλάκη και η σιγουριά της Αχτσιόγλου
+-  Iskrica
+-  Where does Biden’s latest gaffe rate among the biggest political slips
+-  Where does Biden’s latest gaffe rate among the biggest political slips
+-  Fatalny sondaż dla Joe Bidena. Odpuści walkę o reelekcję?
+-  HAZ Hannover-Update: Neues Flair an der Leine?
