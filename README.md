@@ -1,11 +1,11 @@
 # Latest News
--  این حق من است (تکرار)
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  الشيخ جوعان يلتقي مسؤولين رياضيين
--  展開雙臂擁抱 寄養童溫馨回「娘」家
--  メールチェックは週2回で十分。4つのコツで集中力を切らさず生産性を高める仕事術
--  林郁婷專訪》套用買股概念 教你過年吃不胖
--  Caitlin Clark narrowly misses scoring mark as Nebraska upsets Iowa
--  «بروة العقارية» توصي بتـــوزيـــع «18 %» نقدا
--  O PS tem um novo problema: o Chega
--  Συνελήφθη από την ΕΛ.ΑΣ. 35χρονος με δέματα που περιείχαν κάνναβη - Τα παρέλαβε από το ταχυδρομείο
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 12 февруари /валутен калкулатор/
+-  Milan in missione Champions: 1-0 al Napoli, basta un lampo di Theo Hernandez
+-  Kandy beat Havies and await for Red Shirts
+-  Winter Festival Art Show Best in Show winner Friesen surprised by win
+-  Νετανιάχου: «Αρκετοί όμηροι είναι ζωντανοί ώστε να δικαιολογηθεί ο πόλεμος»
+-  &quot;NEĆU TU SELJANČURU DA RADIM!&quot;: Otkriveno šta je frizerka rekla Aniti u salonu, nakon čega je nastao haos, isplivao snimak
+-  Sunset Boulevard wins big at the WhatsOnStage awards - The Guardian
+-  Weekly Money FM Podcasts: Which of the ‘Magnificent Seven’ stocks should you add to your portfolio?
+-  VALjDA NEĆE DA SE DESI NAJVEĆE ČUDO? Srpkinje su zakoračile na Olimpijske igre "Pariz 2024", ali....
+-  Chandigarh News: रंजिशन दो युवकों पर चाकू से हमला
