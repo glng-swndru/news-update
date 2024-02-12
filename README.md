@@ -1,11 +1,11 @@
 # Latest News
--  El tiempo en Vilalba: previsión meteorológica para hoy, lunes 12 de febrero
--  Vi phạm nồng độ cồn, cô giáo nói ‘đi họp lớp chỉ uống nửa lon bia pha nước lọc’
--  Hành khách 'mất hàng lít máu', tử vong trên máy bay Lufthansa
--  （專訪）宇宙人「建中、台大打底」步步高升！ 成為「人中之龍」有訣竅
--  Mbappé volta aos treinos do PSG e deverá enfrentar Real Sociedad na Champions
--  BCA Setop Layanan m-BCA SIM Card, Jadi Pakai Ini
--  Biden campaign joins TikTok in an effort to reach younger voters
--  Сенатор Маллин: пакет помощи Киеву направят на восполнение боеприпасов США
--  ASI to conserve 7 Maratha military forts across state
--  Pope and Argentine President Milei embrace after pontiff canonizes Argentina’s first female saint
+-  Спартакиада: где смотреть и расписание трансляций 12 февраля
+-  ADM councillors’ push for higher salaries hits a snag
+-  أمطار وزخات من البَرَد بالجنوب والشرقية ورياح نشطة على مكة والمدينة
+-  Politikos korespondentas: vokiečiai nerimauja dėl kylančių kainų ir jaučiasi atsidūrę ant karo slenksčio
+-  Hampshire wildlife trust president leads birdwatching tours in Gambia
+-  New micronising plant for Collie
+-  Fareham community centre gets new lease of life in £1.75m upgrade
+-  Wedding photo shoot takes place at Broadlands Estate
+-  Nuo hobio iki verslo atvirlaiškių idėją išvysčiusi Renata: poreikis yra didelis
+-  Lähipiiri paljastaa, millainen Suzanne Innes-Stubb on oikeasti – ”Jos haluaa, hän saa muiden huomion”
