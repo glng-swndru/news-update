@@ -1,11 +1,11 @@
 # Latest News
--  Myanmar’da zorunlu askerlik: Kadınlar da gidecek
--  БК Запоріжжя здолав Політехніку-Галичину в овертаймі матчу Суперліги
--  Feci kaza! İki araç kafa kafaya çarpıştı
--  Joe Biden ‘wandering around dazed and confused’ as President has 'lost his mind'
--  "Chi ci sarò in studio", schiaffo di Fabio Fazio alla Rai dopo Sanremo: ecco chi ospita
--  Lindmehe anatoomia. Spetsialistid selgitavad, miks Riiber hõljub pidevalt püüdmatusse kaugusesse
--  Nolan, premiado pelo grêmio de diretores de cinema dos EUA por ‘Oppenheimer’
--  Banjalučki bend "Ultrazvuk" objavio pjesmu "Ostaje nam nada"
--  «Зенит» обыграл «Локомотив-Кубань» с разницей в 39 очков
--  Tài xế bị phạt 35 triệu vì sử dụng rượu bia vẫn chở vợ, con đi chúc Tết
+-  Kontrolden çıkan kamyonet tarlaya uçtu: 1 yaralı
+-  Néhány napon belül műhold zuhan a Földre
+-  Israel continúa con los bombardeos en Gaza: al menos 25 palestinos muertos
+-  Bărbat din Arad, arestat preventiv după ce în locuinţa sau au fost găsite sute de mii comprimate de diazepam, alprazolam şi clonazepam
+-  Beşiktaş'ta Kayserispor maçında Muçi ve Al-Musrati sürprizi
+-  종로구 창신동 아파트 화재…2시간 40분 만 진화
+-  Woman remains in Garda custody as vigil held in memory of Waterford boy Matthew Healy
+-  Tuzla'da yüzlerce projeye 55 proje daha eklenecek! Tuzla Belediye Başkanı Dr. Şadi Yazıcı yeni döneme hazır
+-  مكتبة محمد بن راشد تحيي ذكرى شاعر الحياة محمد بن حاضر 15 فبراير
+-  'நான் பார்த்த முதல் முகம் நீ' குழந்தைகளுடன் நயன்தாரா வெளியிட்ட வீடியோ!
