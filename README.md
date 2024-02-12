@@ -1,11 +1,11 @@
 # Latest News
--  Ali Koç yönetimi İsmail Kartal'a güvenmiyor! Kapıyı gösterdiği yıldızı kurtarıcı yaptı
--  Tümer Metin'den İsmail Kartal'a çok sert sözler: 'Hiçbir şey yapmadı bu takıma'
--  Meghalt Szurdi Miklós
--  Εορτή Αγίου Βλασίου στο Νεοχώρι Ημαθίας
--  Travis Kelce plays down barging into ‘greatest coach’ Andy Reid at Super Bowl
--  SYRI: Lidi se základním vzděláním ohrožuje deprese pětkrát víc než vysokoškoláky
--  Bombardiranje »varnega območja«
--  Kremlin denies its troops use Elon Musk's Starlink
--  Над 4,5 милиона мигранти са влезли в България през Гърция за 2023 г.
--  Нетаняху: Само ако продължи военният натиск, ще бъдат освободени заложниците, държани в Газа
+-  박서진, 둘째 형 공개 “큰형 죽기 전 해선 안 될 말…” (살림남2)
+-  Kiderült, hogy mennyivel nőtt egy év alatt a képviselők vagyona?
+-  İtalya'da RAI Üst Yöneticisi Sergio İsrail'e arka çıktı tepki mesajları yağdı
+-  Тестовое голосование в системе ДЭГ перед выборами президента пройдёт в Москве в начале марта
+-  Vilniuje praūžė MKL žvaigždžių diena
+-  Tory MP Andrew Rosindell cleared by Met Police after lengthy investigation
+-  خلف دعا النواب إلى انتخاب رئيس "فيرتاح الضمير"
+-  فيديو| مختصون بالأزياء لـ"اليوم": 3 أسباب تعزز الاستثمار في قطاع الأزياء بالمملكة
+-  Vonáék feljelentést tesznek Varga Judit volt férjének állításai nyomán
+-  НХЛ: Сент-Луїс здолав Монреаль, Ванкувер - Вашингтон
