@@ -1,11 +1,11 @@
 # Latest News
--  Lecce sottotono: il Bologna vince con merito. Ora c'è il Torino
--  Best way to help when feeling helpless, from someone who knows
--  DIỄN ĐÀN: Khách quốc tế nườm nượp đến Việt Nam, cách nào để khách trở lại?
--  Trình diễn nghệ thuật rối tại Phú Quốc
--  UNUKA LJUBIŠE SAMARDŽIĆA JE PRAVA BOMBA: Preživela je STRAŠNE TRAGEDIJE, a zbog "Policajca sa Petlovog brda" je stalno PLAKALA
--  El sofisma del debate mexicano
--  Bokslutskommuniké 2023
--  Les Bodin’s enquêtent en Corse : Maria et Christian héros d'un téléfilm pour la première fois
--  Loose Women's Linda Robson on Queen Camilla and parties at the palace
--  Indra adquiere el 100% de Global Training Aviation (GTA) para acelerar su crecimiento
+-  Söğüt, sabahın ilk ışıklarında Körfez sokaklarındaydı
+-  INS: Salarial mediu net în decembrie 2023 a crescut cu 314 lei, la 5.079 lei, faţă de luna noiembrie 2023
+-  LÄSARTEXT: Skolan behöver fler pedagoger – inte avskaffad anpassning
+-  Usulan Formasi CPNS & PPPK 2024 Diperpanjang Lagi, BKN Menjelaskan Alasannya
+-  Изключеният от "Възраждане" Дренчев: Държат се като крайна опозиция
+-  TİP'in Hatay adayı duyuruluyor
+-  Immobilienpreise fallen erneut - Bürokrise wächst
+-  Venecuela raspoređuje vojsku na granicu Gvajane: Područje bogato...
+-  Правительство направит 20 миллиардов рублей на льготные кредиты для АПК
+-  В детска градина в Бургас: Майка има съмнения за насилие над 4-годишното ѝ дете - Труд
