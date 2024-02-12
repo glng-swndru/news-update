@@ -1,11 +1,11 @@
 # Latest News
--  Niechlubna przeszłość ukraińskiego dowódcy. Brał udział w tłumieniu Euromajdanu
--  Niechlubna przeszłość ukraińskiego dowódcy. Brał udział w tłumieniu Euromajdanu
--  Sasol
--  Невнимательность водителя микроавтобуса стала причиной травмирования двух дорожных работников
--  Ziraat Türkiye Kupası çeyrek finalinde Galatasaray ile Fatih Karagümrük eşleşti.
--  ТОП-7 лет с самой футбольной атмосферой в Киеве
--  平子理沙、元モデルな“美魔女母”の84歳誕生日ショット 驚きの若々しさに「さすが理沙ママ」「ほんとにお若い」
--  [세상읽기] 나에게 노동이란
--  Ο ΠΑΟΚ την κορυφή, η ΑΕΚ την χαμένη ευκαιρία και… ο Παναθηναϊκός κερδισμένος
--  Borrell'den 'NATO' açıklaması: Alakart bir askeri ittifak olamaz
+-  La ‘Joya’ brilla: ¿por qué este arranque goleador de Andy Polo es el mejor de toda su carrera?
+-  Празничният декември е донесъл 20% ръст в приходите на хотелиерите
+-  Ambasador Ukrainy apeluje do Polski o reakcję na wysypanie zboża z ukraińskich ciężarówek
+-  Eagles hero Chris Judd set for big financial haircut as administrators ponder Elmore’s fate
+-  HP Elite Dragonfly Chromebook review: A new level of luxury
+-  IMF ? Membros do BCE apelaram à paciência na redução das taxas
+-  Ernst-Wilhelm Gohl: Landesbischof warnt potenzielle AfD-Wähler
+-  Bí ẩn những "loài người ma" vừa lộ diện
+-  Başkan Böcek: "Manavgat'a 5 yılda 2 milyar 424 milyon liralık yatırım yaptık"
+-  Groza, kaj je na pustno nedeljo počel ženi, otroku in živalim
