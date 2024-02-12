@@ -1,11 +1,11 @@
 # Latest News
--  Norra laskesuusatajaid said MMil viisikvõidu, Ränkel jäi viimaseks
--  Kadıköy'de tartışılan karar! Alanyaspor'dan yoğun itiraz
--  Klarer Sieg gegen Mainz: VfB Stuttgart festigt Spitzenposition
--  The Boys: New Super Bowl Ad "Too Patriotic" for TV
--  O que é revisão da vida toda: entenda a polêmica em discussão no STF
--  Kabine yarın toplanıyor: Öğretmen ataması gündemde
--  Man assaulted while delivering groceries in Boston, police say
--  Qué es la "trampa de la población" a la que se enfrenta Canadá y cómo puede afectar a quienes planean migrar al país
--  BJP releases first list of 14 RS nominees; R.P.N. Singh, Sudhanshu Trivedi make the cut - The Hindu
--  Usmívající se Davidová: Musím se pochválit, koncentraci jsem tentokrát zvládla
+-  Столица Конго может исчезнуть из-за наводнений
+-  Manj afganistanskega maka, vendar nič manj heroina
+-  Trump NATO comments labelled ‘appalling and unhinged’
+-  Mùng 2 Tết đến nhà người yêu ra mắt, cô gái “chạy mất dép” sau màn chào mừng đầy vô lý
+-  Berlin: Hannah-Arendt-Lesung nach propalästinensischem Protest abgebrochen
+-  Muğla'da düzensiz göçmen operasyonu
+-  Travel Hacks: Sorglos um die Welt: Acht Tipps für sicheres Reisen
+-  Sieťový gigant Cisco plánuje prepustiť tisíce zamestnancov
+-  PS apresenta o programa eleitoral. Siga aqui em direto
+-  Travel Hacks: Sorglos um die Welt: Acht Tipps für sicheres Reisen
