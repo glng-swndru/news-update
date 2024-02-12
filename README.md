@@ -1,11 +1,11 @@
 # Latest News
--  Disney renova série Percy Jackson para a temporada 2
--  Fünf Missverständnisse über Grippe und Erkältungen
--  Die Woche in Kamen und Bergkamen: Ein Geschäft schließt, ein Fitnessstudio steht in der Kritik
--  It takes a special politician to draw a crowd of 100,000. This one has a chequered past
--  Inverness roofer got his job back after going 'off the rails'
--  Unsere Bilder vom Karnevalsumzug in Sickingmühle: Das sind die beteiligten Gruppen
--  AFL pre-season predictions: The clubs under pressure and players with a point to prove in 2024
--  It takes a special politician to draw a crowd of 100,000. This one has a chequered past
--  Friendship bracelets, Taylor-gating, secret songs: A guide to Taylor-mania
--  НХЛ. «Вашингтон» принимает «Ванкувер», «Монреаль» против «Сент-Луиса»
+-  PSV-trainer tikt twee eigen spelers op de vingers na duel met FC Volendam
+-  Biden odrádza izraelského premiéra od útoku na Rafah bez plánu na ochranu civilistov
+-  అడ్డగూడూరు పీఏసీఎస్‌ చైర్మన్‌పై నేడు అవిశ్వాసం
+-  Властта и земеделците окончателно оформиха споразумението си след 4-часови преговори
+-  Президент Туркменистана поздравил Президента Исламской Республики Иран
+-  Ninja Kamui Is Now Streaming on Max: Watch
+-  Anitta se disfarça de 'La casa de Papel' para curtir carnaval entre foliões em Salvador
+-  Stökigt ingripande på resecentrum
+-  ABD Başkanı Biden ve İsrail Başbakanı Netanyahu Telefonda Görüştü
+-  La canonización de Mama Antula también se festejó en el barrio de San Nicolás
