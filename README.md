@@ -1,11 +1,11 @@
 # Latest News
--  Μητσοτάκης σε Βούτσιτς: «Είμαστε δίπλα σας - Μας ενδιαφέρει η διασύνδεση Ελλάδας - Σερβίας στην ενέργεια και στις μεταφορές»
--  A creatina e outros assuntos
--  Massa di Semarang Lempari Polisi dengan Celana Dalam, Simbol Jokowi Tak Punya Malu
--  Chaoten wüten im Bürgerpark Dorsten: Stadt reagiert prompt
--  Apenas 2% dos resíduos coletados na região são reciclados
--  Belum Kenal Brandnya, Netizen Kira Nagita Slavina Beli Tas di Pasar Malam: Siap-siap Jadi Trendsetter!
--  Birinci Moskva Dövlət Tibb Universitetinin rektoru Prezident İlham Əliyevə təbrik məktubu göndərib
--  Miške iz treh sestavin: najpreprostejše ocvrto vzhajano testo, ki si ga lahko zamislite
--  Kinderkarneval in Castrop-Rauxel 2024: So bunt haben die kleinen Jecken gefeiert
--  Úřad chce uzavřít smlouvu s vítězem aukce zámku, Kunratice částku nedorovnaly
+-  Niechlubna przeszłość ukraińskiego dowódcy. Brał udział w tłumieniu Euromajdanu
+-  Niechlubna przeszłość ukraińskiego dowódcy. Brał udział w tłumieniu Euromajdanu
+-  Sasol
+-  Невнимательность водителя микроавтобуса стала причиной травмирования двух дорожных работников
+-  Ziraat Türkiye Kupası çeyrek finalinde Galatasaray ile Fatih Karagümrük eşleşti.
+-  ТОП-7 лет с самой футбольной атмосферой в Киеве
+-  平子理沙、元モデルな“美魔女母”の84歳誕生日ショット 驚きの若々しさに「さすが理沙ママ」「ほんとにお若い」
+-  [세상읽기] 나에게 노동이란
+-  Ο ΠΑΟΚ την κορυφή, η ΑΕΚ την χαμένη ευκαιρία και… ο Παναθηναϊκός κερδισμένος
+-  Borrell'den 'NATO' açıklaması: Alakart bir askeri ittifak olamaz
