@@ -1,11 +1,11 @@
 # Latest News
--  Dackel „Dasty“ steckt in Betonrohr in der Erde fest: Feuerwehr befreit das Tier
--  Editorial: Decisiones dignas de imitar
--  Trains: Bus replacements launched with no trains between Portsmouth and Southampton on school holidays
--  Kabine bugün toplanıyor: Masada ne var?
--  Εκδήλωση για Κεντροαριστερά: Οι γέφυρες του Τεμπονέρα, η αναδίπλωση του Χριστοδουλάκη και η σιγουριά της Αχτσιόγλου
--  Iskrica
--  Where does Biden’s latest gaffe rate among the biggest political slips
--  Where does Biden’s latest gaffe rate among the biggest political slips
--  Fatalny sondaż dla Joe Bidena. Odpuści walkę o reelekcję?
--  HAZ Hannover-Update: Neues Flair an der Leine?
+-  Голкипер «Каролины» Раанта пропустит минимум две недели из-за травмы
+-  WA senator Linda Reynolds set to retire
+-  Унгарският президент подаде оставка заради педофил
+-  "Мис Силикон" пак се похвали, че шофира с пълна газ, на автомобила й пише "Република България - Народно събрание" - Труд
+-  Plymouth roadworks sees 42 new schemes start in half-term week
+-  Jadwal Siaran Langsung 16 Besar Liga Champions 2023/2024 di SCTV
+-  Quant Slips Sightly As It Encounters Rejection At $108
+-  Viranomainen varoittaa yli­määräisestä älystä
+-  New crime statistics expose 2023 surge in WA domestic violence offences, the state’s worst year yet
+-  이재용 말레이시아 방문…"과감한 도전으로 변화 주도"
