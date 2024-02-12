@@ -1,11 +1,11 @@
 # Latest News
--  Thailand’s economic recovery is still lagging behind ASEAN peers
--  Call for ban on Nazi era ‘racial blacklists’
--  ROBERT KRAFT'S FOUNDATION TO COMBAT ANTISEMISTIM DEBUT'S FIRST-EVER SUPER BOWL AD
--  '지역인재선발 60% 이상' 지방의대 7곳뿐… 충청권은 0곳
--  2년 뒤 초·중·고교생 '500만 명' 붕괴… 대전 13만 명 깨진다
--  Ex-WWF wrestler Billy Jack Haynes accused of killing wife
--  The Deadpool & Wolverine taunts us with a Secret Wars reference worth breaking down
--  राजस्थानी पपरा बहुत स्वादिष्ट होता है, इसे बनाने का ये है आसान तरीका
--  식료품값 넉달째 6%대 '고공행진'…상반기 물가 또 오른다
--  Australische Aktien rutschen ab, da das Biotech-Unternehmen CSL wegen einer gescheiterten Medikamentenstudie einbricht
+-  Soccer-Ivory Coast relief after winning Cup of Nations
+-  Blog do Ari – Palmas para Carille e Mozart, eles merecem !
+-  選北市長起手式？2天狂掃25間宮廟 黃珊珊：是多年來的習慣
+-  Hãng xe vừa vào Việt Nam sắp trình làng mẫu bán tải điện có khả năng ‘tăng tốc nhanh ngang ngửa Tesla Cybertruck’
+-  Masa Tenang Ala Capres-Cawapres: Prabowo Sarungan hingga Mahfud Umrah
+-  ‘Everyone has the same problem’, MOT mechanic reveals little-known but key car part which is hurting performance
+-  ‘Everyone has the same problem’, MOT mechanic reveals little-known but key car part which is hurting performance
+-  เช็กเลย! ค่าฝุ่น PM2.5 ทั่วไทย พร้อมคาดการณ์ 7 วันข้างหน้า
+-  Super Bowl 2024: Taylor Swift shares sweet moments with Lana Del Rey and Blake Lively
+-  김우민, 세계수영 자유형 400m 금메달 쾌거 [뉴시스 Pic]
