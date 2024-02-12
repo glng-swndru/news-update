@@ -1,11 +1,11 @@
 # Latest News
--  국민의힘 40.9% vs 민주당 41.8% …오차범위 내 접전
--  CHP'li Büyükerşen'den Osmanlı için skandal sözler! Tepkiler peş peşe geldi
--  [액트-앤트 연대기]③지난해 74개사 주주 행동주의 공격
--  Taylor Swift Supports Travis Kelce With Her Game-Day Style
--  Tin nóng thể thao sáng 12/2: Kiều Trinh có sinh nhật đáng nhớ tại Thái Lan, Bờ Biển Ngà vô địch AFCON 2023
--  Horror home invasion as thieves spring sinister surprise
--  Horror home invasion as thieves spring sinister surprise
--  Horror home invasion as thieves spring sinister surprise
--  Horror home invasion as thieves spring sinister surprise
--  Horror home invasion as thieves spring sinister surprise
+-  Thailand’s economic recovery is still lagging behind ASEAN peers
+-  Call for ban on Nazi era ‘racial blacklists’
+-  ROBERT KRAFT'S FOUNDATION TO COMBAT ANTISEMISTIM DEBUT'S FIRST-EVER SUPER BOWL AD
+-  '지역인재선발 60% 이상' 지방의대 7곳뿐… 충청권은 0곳
+-  2년 뒤 초·중·고교생 '500만 명' 붕괴… 대전 13만 명 깨진다
+-  Ex-WWF wrestler Billy Jack Haynes accused of killing wife
+-  The Deadpool & Wolverine taunts us with a Secret Wars reference worth breaking down
+-  राजस्थानी पपरा बहुत स्वादिष्ट होता है, इसे बनाने का ये है आसान तरीका
+-  식료품값 넉달째 6%대 '고공행진'…상반기 물가 또 오른다
+-  Australische Aktien rutschen ab, da das Biotech-Unternehmen CSL wegen einer gescheiterten Medikamentenstudie einbricht
