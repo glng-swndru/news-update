@@ -1,11 +1,11 @@
 # Latest News
--  PSV-trainer tikt twee eigen spelers op de vingers na duel met FC Volendam
--  Biden odrádza izraelského premiéra od útoku na Rafah bez plánu na ochranu civilistov
--  అడ్డగూడూరు పీఏసీఎస్‌ చైర్మన్‌పై నేడు అవిశ్వాసం
--  Властта и земеделците окончателно оформиха споразумението си след 4-часови преговори
--  Президент Туркменистана поздравил Президента Исламской Республики Иран
--  Ninja Kamui Is Now Streaming on Max: Watch
--  Anitta se disfarça de 'La casa de Papel' para curtir carnaval entre foliões em Salvador
--  Stökigt ingripande på resecentrum
--  ABD Başkanı Biden ve İsrail Başbakanı Netanyahu Telefonda Görüştü
--  La canonización de Mama Antula también se festejó en el barrio de San Nicolás
+-  Teun Koopmeiners doet het weer bij Atalanta: rake vrije trap bij ruime zege op Genoa
+-  ASML isporučuje Intelu 380 milijuna dolara vrijedan High NA EUV
+-  Trump: Mỹ không bao giờ nên đưa tiền cho nước ngoài mà không có hy vọng đòi lại
+-  How women can be represented in politics
+-  الخارجية الفرنسية تختار ناشطة يمنية للفوز بجائزة ماريان ضمن 15 امرأة ورجل آخرون
+-  Wirtschaftsministerium nennt Zahlen: So hoch sind die Subventionen für die Wolfspeed-Fabrik in Ensdorf
+-  Hrvati briljirali u na Svjetskom prvenstvu, imamo dvoje polufinalista i 12. plivača svijeta
+-  "Two and a Half Men"-Comeback? Jon Cryer ist sehr skeptisch!
+-  "TO MI JE NAJVEĆA TRAUMA KOJU SAM DOŽIVEO!" Bane Mojićević otvoreno o razvodu, progovorio i o novoj ljubavi
+-  Soomlased valisid uueks presidendiks Alexander Stubbi
