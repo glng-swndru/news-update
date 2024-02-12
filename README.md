@@ -1,11 +1,11 @@
 # Latest News
--  Sonora: Llegarán 200 militares al estado
--  Крупнейшая птицефабрика Сахалина восстановит работу после птичьего гриппа к осени
--  Нефтегазовые Diamondback и Endeavor Energy почти согласовали слияние на $52 млрд
--  Maratonský rekordman Kelvin Kiptum zahynul při dopravní nehodě v Keni
--  Usher 'aqueceu' o Super Bowl sem camisola e com convidados especiais
--  Masada kalırsın denilen 150’den fazla hasta Van'da sağlığına kavuştu
--  زمان پخش سریال «بیست کووید» تغییر کرد
--  Türkiye'de günde 6 bin 200 TL maaşla çalışacak işçi aranıyor
--  מסצ'ראנו: "מסי בירך אותנו, הדלת פתוחה". וגם: הקריצה של הפרעוש לאולימפית
--  Мировой рекордсмен в марафоне Келвин Киптум погиб в ДТП
+-  Lecce sottotono: il Bologna vince con merito. Ora c'è il Torino
+-  Best way to help when feeling helpless, from someone who knows
+-  DIỄN ĐÀN: Khách quốc tế nườm nượp đến Việt Nam, cách nào để khách trở lại?
+-  Trình diễn nghệ thuật rối tại Phú Quốc
+-  UNUKA LJUBIŠE SAMARDŽIĆA JE PRAVA BOMBA: Preživela je STRAŠNE TRAGEDIJE, a zbog "Policajca sa Petlovog brda" je stalno PLAKALA
+-  El sofisma del debate mexicano
+-  Bokslutskommuniké 2023
+-  Les Bodin’s enquêtent en Corse : Maria et Christian héros d'un téléfilm pour la première fois
+-  Loose Women's Linda Robson on Queen Camilla and parties at the palace
+-  Indra adquiere el 100% de Global Training Aviation (GTA) para acelerar su crecimiento
