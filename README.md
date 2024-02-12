@@ -1,11 +1,11 @@
 # Latest News
--  Kontrolden çıkan kamyonet tarlaya uçtu: 1 yaralı
--  Néhány napon belül műhold zuhan a Földre
--  Israel continúa con los bombardeos en Gaza: al menos 25 palestinos muertos
--  Bărbat din Arad, arestat preventiv după ce în locuinţa sau au fost găsite sute de mii comprimate de diazepam, alprazolam şi clonazepam
--  Beşiktaş'ta Kayserispor maçında Muçi ve Al-Musrati sürprizi
--  종로구 창신동 아파트 화재…2시간 40분 만 진화
--  Woman remains in Garda custody as vigil held in memory of Waterford boy Matthew Healy
--  Tuzla'da yüzlerce projeye 55 proje daha eklenecek! Tuzla Belediye Başkanı Dr. Şadi Yazıcı yeni döneme hazır
--  مكتبة محمد بن راشد تحيي ذكرى شاعر الحياة محمد بن حاضر 15 فبراير
--  'நான் பார்த்த முதல் முகம் நீ' குழந்தைகளுடன் நயன்தாரா வெளியிட்ட வீடியோ!
+-  One dead, four injured after 4WD plunges into Batang Kali gorge
+-  Tara Thaller i Mateo strastveno zaplesali, a onda je pala i pusa
+-  Royal Sources Claim Only 1 Person Can Bring Prince Harry and Prince William Together — And It’s Not a Royal Family Member
+-  Trendyol Süper Lig: Konyaspor: 1 - MKE Ankaragücü: 0
+-  Brasileiras caem nas quartas no Mundial de Surfe em Pipeline; americana e havaiano ganham etapa
+-  İkinci gayrimenkulu olanlar dikkat! Akla hayale gelmeyecek ceza...
+-  Тотнъм се фука с уникално постижение
+-  बितेको वर्ष चार दशककै सर्वाधिक तातोमध्येको एक
+-  Sivasspor’dan Trendyol Süper Lig’de 8.galibiyet
+-  Council of Health Insurance strives to ensure sustainable and comprehensive healthcare
