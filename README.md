@@ -1,11 +1,11 @@
 # Latest News
--  Спартакиада: где смотреть и расписание трансляций 12 февраля
--  ADM councillors’ push for higher salaries hits a snag
--  أمطار وزخات من البَرَد بالجنوب والشرقية ورياح نشطة على مكة والمدينة
--  Politikos korespondentas: vokiečiai nerimauja dėl kylančių kainų ir jaučiasi atsidūrę ant karo slenksčio
--  Hampshire wildlife trust president leads birdwatching tours in Gambia
--  New micronising plant for Collie
--  Fareham community centre gets new lease of life in £1.75m upgrade
--  Wedding photo shoot takes place at Broadlands Estate
--  Nuo hobio iki verslo atvirlaiškių idėją išvysčiusi Renata: poreikis yra didelis
--  Lähipiiri paljastaa, millainen Suzanne Innes-Stubb on oikeasti – ”Jos haluaa, hän saa muiden huomion”
+-  GS Cappenberg bricht den Bann: Angstgegner RW Unna muss sich geschlagen geben
+-  Kansas City Chiefs beat San Francisco 49ers 25-22 in Super Bowl LVIII
+-  バイク2人乗りで転倒 “初心者”の男子高校生（17）運転 同乗の女性（17）が頭の骨折る重傷
+-  Jetzt sind die Einzelhändler in Castrop-Rauxel an der Reihe: Ein Konzept für die Zukunft soll her
+-  Super Bowl: Kansas City Chiefs gewinnen dramatisch gegen die San Francisco 49ers
+-  Kansas City po podaljšku ubranil naslov, Mahomes MVP
+-  Бал-бесы
+-  Brezilya'da bir albay darbe iddiasıyla gözaltına alındı
+-  Hrot24: мораторий на экспорт американского СПГ крайне выгоден России
+-  Мобилизирани да воюват до пенсионна възраст: В Русия засега свалиха нов законопроект
