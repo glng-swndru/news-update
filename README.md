@@ -1,11 +1,11 @@
 # Latest News
--  La ‘Joya’ brilla: ¿por qué este arranque goleador de Andy Polo es el mejor de toda su carrera?
--  Празничният декември е донесъл 20% ръст в приходите на хотелиерите
--  Ambasador Ukrainy apeluje do Polski o reakcję na wysypanie zboża z ukraińskich ciężarówek
--  Eagles hero Chris Judd set for big financial haircut as administrators ponder Elmore’s fate
--  HP Elite Dragonfly Chromebook review: A new level of luxury
--  IMF ? Membros do BCE apelaram à paciência na redução das taxas
--  Ernst-Wilhelm Gohl: Landesbischof warnt potenzielle AfD-Wähler
--  Bí ẩn những "loài người ma" vừa lộ diện
--  Başkan Böcek: "Manavgat'a 5 yılda 2 milyar 424 milyon liralık yatırım yaptık"
--  Groza, kaj je na pustno nedeljo počel ženi, otroku in živalim
+-  Bez otpada i zagađivanja okoliša: Ovako izgleda namještaj izrađen od kore voća i ostataka kave
+-  Alper Gezeravcı'nın uzayda yaptığı deneyin sonuçları paylaşıldı
+-  Nešto se čudno događa s Hrvatskom na Eurosongu, nečemu ovakvom nismo svjedočili otkako sudjelujemo na natjecanju!
+-  Посланията на цветята: Вижте какви цветя да НЕ подарявате за Свети Валентин
+-  박지원·김길리, 이틀 연속 동반 금메달
+-  한국 아티스틱 이리영-허윤서…12년 만에 올림픽 출전
+-  Frama Posuški Gradac uz obred Primanja i Obećanja proslavila jubilarnih 20 godina postojanja
+-  يرجح أنها تعرضت للسرقة.. غياب العشرات من علامات التشوير بطريق الدريوش تمسمان
+-  Diese deutschen Trainer wären für den HSV sofort verfügbar
+-  De Ligt op weg naar uitgang: 'Speelt geen rol in plannen van Tuchel'
