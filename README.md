@@ -1,11 +1,11 @@
 # Latest News
--  Soccer-Ivory Coast relief after winning Cup of Nations
--  Blog do Ari – Palmas para Carille e Mozart, eles merecem !
--  選北市長起手式？2天狂掃25間宮廟 黃珊珊：是多年來的習慣
--  Hãng xe vừa vào Việt Nam sắp trình làng mẫu bán tải điện có khả năng ‘tăng tốc nhanh ngang ngửa Tesla Cybertruck’
--  Masa Tenang Ala Capres-Cawapres: Prabowo Sarungan hingga Mahfud Umrah
--  ‘Everyone has the same problem’, MOT mechanic reveals little-known but key car part which is hurting performance
--  ‘Everyone has the same problem’, MOT mechanic reveals little-known but key car part which is hurting performance
--  เช็กเลย! ค่าฝุ่น PM2.5 ทั่วไทย พร้อมคาดการณ์ 7 วันข้างหน้า
--  Super Bowl 2024: Taylor Swift shares sweet moments with Lana Del Rey and Blake Lively
--  김우민, 세계수영 자유형 400m 금메달 쾌거 [뉴시스 Pic]
+-  “Trái ngọt” từ Vàng: Nhà đầu tư thắng lớn khi chọn vàng là “hầm trú ẩn” trong 2023
+-  Опубликован новый трейлер сериала «Сегун»
+-  [액트-앤트 연대기]① 불개미 등에 업고 ‘밸류업’ 정책 방패삼은…행동주의 역습
+-  Adı: Ciğer, Görevi: İltihap Bombacısı
+-  У Бердянську ліквідували колаборанта - МВА
+-  Getting a rise from the news
+-  Yleisurheilu | Maratonin ME-mies kuoli kolarissa
+-  "아버지보다 계층 상승했다"…'삶 만족도'는 떨어지는 이유
+-  Merrick Garland Needs to Be Thanked For His Service and Shown the Door
+-  Merrick Garland Needs to Be Thanked For His Service and Shown the Door
