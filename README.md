@@ -1,11 +1,11 @@
 # Latest News
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 12 февруари /валутен калкулатор/
--  Milan in missione Champions: 1-0 al Napoli, basta un lampo di Theo Hernandez
--  Kandy beat Havies and await for Red Shirts
--  Winter Festival Art Show Best in Show winner Friesen surprised by win
--  Νετανιάχου: «Αρκετοί όμηροι είναι ζωντανοί ώστε να δικαιολογηθεί ο πόλεμος»
--  &quot;NEĆU TU SELJANČURU DA RADIM!&quot;: Otkriveno šta je frizerka rekla Aniti u salonu, nakon čega je nastao haos, isplivao snimak
--  Sunset Boulevard wins big at the WhatsOnStage awards - The Guardian
--  Weekly Money FM Podcasts: Which of the ‘Magnificent Seven’ stocks should you add to your portfolio?
--  VALjDA NEĆE DA SE DESI NAJVEĆE ČUDO? Srpkinje su zakoračile na Olimpijske igre "Pariz 2024", ali....
--  Chandigarh News: रंजिशन दो युवकों पर चाकू से हमला
+-  Kenya's leader wants a paved road to cut through a forest, a key water source. Scientists don’t
+-  카타르, 이스라엘 라파 지상전 강행시 “인도적 재앙 일어날 것”
+-  Очаквайте на живо: Super Bowl LVIII, Сан Франциско 49ърс – Канзас Сити Чийфс
+-  Nigéria de Peseiro perde final da CAN frente à Costa do Marfim
+-  "60대 심정지 환자 소생 기여"...세종시민 '하트세이버' 인증
+-  Sevilla continue on road to recovery in Spanish league
+-  IMF 총재 “불확실성 여전히 크지만, 세계경제 더 자신감 가져도 돼”
+-  Canada routs US 6-1, sweeps final 4 games to claim 2nd straight Rivalry Series
+-  高中木聯24強／衛冕軍穀保打擊榜第一 崇義有外援、玉里二刀流吸睛
+-  Jesuits in US bolster outreach initiative aimed at encouraging LGBTQ+ Catholics
