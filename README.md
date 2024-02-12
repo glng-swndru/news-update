@@ -1,11 +1,11 @@
 # Latest News
--  British Gas launches tariff £299 cheaper than energy price cap to beat high bills
--  Kinh tế Việt Nam: Những tín hiệu lạc quan từ đầu năm mới
--  Gleiches Finale, anderer Ausgang
--  Razones y consecuencias de querer llevar un control permanente de todo
--  3 Surprising Lessons U.S. Medicine Can Learn From Around The World
--  The Girl on The Bus ganha data de estreia na HBO Max
--  「アグレッシブに最後まで全力で戦う」愛媛FCが開幕前にキックオフフェスタ【愛媛】
--  ভারতে বহুবিবাহ নিষিদ্ধে বিভক্ত মুসলিম নারীরা
--  Karlar: Félagaskiptin í íslenska fótboltanum
--  A clinic in western Newfoundland is capitalizing on virtual tools to tackle demand
+-  Ali Koç yönetimi İsmail Kartal'a güvenmiyor! Kapıyı gösterdiği yıldızı kurtarıcı yaptı
+-  Tümer Metin'den İsmail Kartal'a çok sert sözler: 'Hiçbir şey yapmadı bu takıma'
+-  Meghalt Szurdi Miklós
+-  Εορτή Αγίου Βλασίου στο Νεοχώρι Ημαθίας
+-  Travis Kelce plays down barging into ‘greatest coach’ Andy Reid at Super Bowl
+-  SYRI: Lidi se základním vzděláním ohrožuje deprese pětkrát víc než vysokoškoláky
+-  Bombardiranje »varnega območja«
+-  Kremlin denies its troops use Elon Musk's Starlink
+-  Над 4,5 милиона мигранти са влезли в България през Гърция за 2023 г.
+-  Нетаняху: Само ако продължи военният натиск, ще бъдат освободени заложниците, държани в Газа
