@@ -1,11 +1,11 @@
 # Latest News
--  〈さんま御殿きょう出演〉瀬戸大也、競泳でメダル逃すも「すっきりしています」 見守り続けた妻・馬淵優佳のアスリートな本音
--  Japán cégek 36 milliárd dollárért vásároltak fel amerikai vállatokat
--  Klavdija Winder Pantner upihnila prvo svečko na Veseljaku: Imam fetiš na mikrofone
--  Nothing Phone (2a) tanıtım tarihi açıklandı! İşte tüm bilinenler
--  〈さんま御殿きょう出演〉蛙亭・中野、アンガ田中までが令和のモテ男に ミュージシャンが失墜して芸人が「モテ」の天下を取る理由
--  Kurtlar Vadisi efsanesi yeni bölümleriyle geri dönüyor
--  Türkiye'de sosyal medya kullanım süresi 2 saat 44 dakika
--  Valmontone - Ladispoli, il Valmontone si scusa per il comportamento dei tifosi "Poco corretti"
--  CGI's 2023 ESG Report highlights progress through responsible innovation
--  Zusätzliches Einkommen: In welchen Fällen lohnt sich der Zweitjob?
+-  Cambio en la gobernación del Monumento de Santiago
+-  Takács nem bírt az olimpiai bajnokkal, Lévai és Mányik kikapott a birkozó eb
+-  Ermenistan Savunma Bakanlığı: "Azerbaycan'ın açtığı ateşte 4 asker öldü"
+-  Malaysia's palm oil stocks hit six-month low
+-  Αναστάτωση στην Ευρώπη από τις απειλές Τραμπ
+-  Министр обороны Италии Гвидо Крозетто среди ночи попал в больницу
+-  Сенатът в САЩ одобри помощ за Украйна, Израел и Тайван за 95 млрд. долара
+-  Faixa de pedestres vira passarela para desfile de quatis no Parque do Poderes
+-  Még mindig Ruandában látja a megoldást a brit kormány
+-  Pferdemarkt in Leonberg: Die Zahl der Hufe ist gesunken
