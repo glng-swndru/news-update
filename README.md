@@ -1,11 +1,11 @@
 # Latest News
--  Všechny Galaxy Watch6 koupíte až o dva tisíce levněji, stačí znát slevový kód
--  Mamma misstänks för barnmisshandel
--  CHP'de bir istifa daha! Belediye başkanı CHP'den istifa etti
--  Akkuyu'da DEAŞ'lı terörist operasyonu! Bir terörist yakalandı
--  Finastra and Tesselate digitalise trade finance for US banks
--  空き家１棟を全焼「野焼き」の火が燃え移ったか（島根・大田市）
--  VZ Kort: Portugese scheidsrechter voor Ajax tegen Bodø/Glimt
--  Stadt- und Schulradeln 2024
--  heise+ | Ladetarife für Elektroautos im Vergleich
--  Арока – Порту 3:2: огляд матчу
+-  Адвокат BaltCap: из компаний фонда могли пропасть около 40 млн евро
+-  Picasso ou Warhol? Obras podem ser destruídas com ácido se Assange morrer
+-  За кои зодии е крайно време да стягат коланите - да не хвърлят пари за глупости!
+-  Exciting! Saif Ali Khan and Jaideep Ahlawat to star in Siddharth Anand’s upcoming film Jewel Thief
+-  माओवादी केन्द्रको नाम फेर्न प्रस्ताव
+-  OVO JE PRVI MUŽ POKOJNE MARINE TUCAKOVIĆ! Pre Fute Marina je bila udata za OVOG MUZIČARA, posvetila mu je HIT koji svi pevamo
+-  Nike Stock at $100: Time to Buy?
+-  غارة على أطراف عيتا الشعب - راميا
+-  Svi luduju za haljinom od 30 eura: ‘Ne mogu se pohvaliti grudima, a pogledajte ih sada!‘
+-  A Gigabyte robusztusabbra cseréli egyes VGA-inak terhelésre érzékeny NYÁK-jait
