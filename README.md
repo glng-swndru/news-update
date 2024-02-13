@@ -1,11 +1,11 @@
 # Latest News
--  CHP'de 4 büyükşehir adayı belli oldu
--  كمرافقين للاعبين وحاملي الأعلام وجامعي الكرات.. مشاركة أكثر من 700 طفل في كأس آسيا
--  تواصل الإقبال الجماهيري على المعرض
--  JetBlue’s stock rallies after Carl Icahn takes nearly 10% stake in airline and signals interest in board seat
--  Leipzig: irregularidad, gran ataque y dudas atrás
--  Nuno Rafael voltou a jogar 1.232 dias depois: «Senti-me uma criança»
--  [ŽT] „Jie nori duoti 100 000 000 000$.“ Trumpas skelbia, ką darys su Ukraina (Video)
--  海外市场迎来龙年开市，本周或受这些事件、数据影响！
--  بمناسبة اليوم الرياضي للدولة.. 200 نشاط رياضي في إكسبو اليوم
--  르노코리아, 발레오 출신 차량 SW 전문가 신규 임원 영입
+-  Today's Horoscope Prediction – 13th February 2024: Leo, Libra, etc Zodiac Sunshine Birthday Forecast
+-  Kelowna council will re-examine its construction time bylaw
+-  2월 1∼10일 수출 14.6% 감소…무역적자 20억 달러
+-  Pink super fans already lined up outside stadium ahead of Newcastle concert
+-  ‘They’ll leave’: Bosses warned over 2024 trend
+-  SJ노무법인, ‘2024년 노동정책 전망’ 주제로 회원사 대상 강연회
+-  Khám phá ngôi làng cổ độc nhất ở Việt Nam có 3 di sản thế giới
+-  ASX 200 LIVE: Shares move sideways; CSL double-digit earnings growth; Macquarie warns “substantially” lower profit; Temple & Webster beats forecasts; Seven West Media sales slump. - The Australian Financial Review
+-  Palmeiras toma gol no final e cede empate para o Santo André
+-  '포스코 개발' 기가스틸 용접 기술, 학술지 네이처 게재
