@@ -1,11 +1,11 @@
 # Latest News
--  Gustavo Henrique é apresentado no Corinthians e assegura estar 100% fisicamente para estreia
--  Adana Büyükşehir Belediyesi’nde dehşet! Özel Kalem vekili kaldırıldığı hastanede hayatını kaybetti
--  Toto jsou nejočekávanější smartphony letošního roku. Na které z nich se vyplatí počkat?
--  В Думе предложили обеспечить получение педагогами жилья вне очереди по соцнайму
--  EXCLUSIVE: Piping to return to Forres this summer as town to host British Championships
--  Matija Cvek uoči koncerta u Splitu otkrio spol bebe, ali ne i ime koje su odabrali
--  Ker i saradnici propuštaju meč Voriorsa zbog Milojevićeve sahrane
--  Gustavo Henrique é apresentado no Corinthians e assegura estar 100% fisicamente para estreia
--  أمريكا تعرب عن صدمتها بشأن الوفاة "المفجعة" للطفلة هند رجب
--  PRODUKCIJA POTVRDILA SVE! U Elitu ulaze dva poznata lica, ukućani će zanemeti od šoka
+-  Ajax-speler Berghuis maakt de tongen los: ‘Het prinsesje begint het te leren’
+-  Peste bubónica es detectada en EU por primera vez desde 2015
+-  Global MBA: les business schools françaises tirent leur épingle du jeu
+-  ODE LOVA - Aca Bulić će morati da iskešira cifru od ČETIRI MILIONA, a evo i zbog čega će snositi ovakve posledice
+-  Tego Bodnar się nie spodziewał. Sędzia chce, by cofnął jej nominację
+-  ГРАО с обяснение за ЕГН-то на Мартин Божанов, 95 000 българи били с променено ЕГН
+-  Was Bürgermeisterkandidat Ralf Hörner in Mutlangen vor hat
+-  Krok k příměří v Gaze? Biden se sešel s jordánským králem, může mu to navíc přihrát hlasy muslimů ve volbách
+-  Kapetan Zadra nije igrao protiv Zvezde jer nije imao tenisice...
+-  Nach dem Super Bowl: So geht es in der NFL weiter
