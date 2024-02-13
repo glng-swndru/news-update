@@ -1,11 +1,11 @@
 # Latest News
--  'Ser honesto é obrigação, não é qualidade', dizia Tia Luiza; conheça a história da fundadora do Magalu
--  'Ser honesto é obrigação, não é qualidade', dizia Tia Luiza; conheça a história da fundadora do Magalu
--  債券先物は小幅高、日銀の利上げペースはゆっくりとの見方 - Bloomberg - ブルームバーグ
--  Soccer-Chelsea snatch last-gasp 3-1 win at Palace
--  Nagrizao ga je zub vremena, dokrajčio potres, a obnovu bi trebali ubrzati - strani radnici
--  Vital statistics -- Feb. 2 to 8, 2024
--  Kaithal News: हर वर्ग तक पहुंच रहा योजनाओं का लाभ ः ढांडा
--  US Senator wants airline, credit card CEOs to testify on fees
--  Pour rattraper le Maroc, l’Algérie veut mettre à niveau son agence spatiale
--  DEČAK (12) PREVEZEN U BOLNICU Nesreća na uglu Bulevara oslobođenja
+-  Кристал Пэлас – Челси – 1:3. Два гола в конце. Видео голов и обзор матча
+-  Have Chelsea turned a corner, or is it another false start? - ESPN
+-  Transfery w Polsce - 13 lutego. Ekstraklasa, 1 liga, 2 liga. Śledź wszystkie doniesienia na żywo
+-  通訳棒立ちで「困ってる」松井裕樹の英語力にファンも驚き
+-  "OVO JE MOŽDA MOJ POSLEDNJI MITING U BEOGRADU" Slavni sportista rastužio navijače u Srbiji - ovim rečima je najavio kraj karijere?
+-  "재건축 아파트 안 돼요"…부모 울리는 신생아 특례 대출
+-  Homem é arremessado e fica ferido em colisão entre moto e caminhonete em Sorriso
+-  Menor desaparece en Saltillo tras pelea con sus padres, piden ayuda para buscarla
+-  MemorialCare's Vice President of Clinical Integration Shines Bright in Modern Healthcare's 40 Under 40
+-  Tôi 65 tuổi, chỉ có một mình, định đến ở nhà con trai nhưng con dâu không muốn: Câu “khi ông nội đến, bố mẹ cãi nhau” của cháu nội khiến tôi từ bỏ ý định
