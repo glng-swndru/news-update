@@ -1,11 +1,11 @@
 # Latest News
--  Today's Horoscope Prediction – 13th February 2024: Leo, Libra, etc Zodiac Sunshine Birthday Forecast
--  Kelowna council will re-examine its construction time bylaw
--  2월 1∼10일 수출 14.6% 감소…무역적자 20억 달러
--  Pink super fans already lined up outside stadium ahead of Newcastle concert
--  ‘They’ll leave’: Bosses warned over 2024 trend
--  SJ노무법인, ‘2024년 노동정책 전망’ 주제로 회원사 대상 강연회
--  Khám phá ngôi làng cổ độc nhất ở Việt Nam có 3 di sản thế giới
--  ASX 200 LIVE: Shares move sideways; CSL double-digit earnings growth; Macquarie warns “substantially” lower profit; Temple & Webster beats forecasts; Seven West Media sales slump. - The Australian Financial Review
--  Palmeiras toma gol no final e cede empate para o Santo André
--  '포스코 개발' 기가스틸 용접 기술, 학술지 네이처 게재
+-  Bê Martins escolhido pela 'Beach Soccer Worldwide' para a melhor equipa de futebol de praia de 2023
+-  テイラー・スウィフトらの楽曲がTikTokで聴けず「楽しさ半減」と嘆く声も
+-  TikTokでテイラーら楽曲NG 何が
+-  ABD Başkanı Joe Biden, Ürdün Kralı 2. Abdullah ile görüştü
+-  En India, desmantelan 'narcolaboratorio' y detienen a 3 mexicanos
+-  Beefs and brawls: Inside the Broncos’ biggest scandals
+-  New CBS News poll shows Trump leading Haley by wide margin
+-  대전·충남 연고 구단 희비… 정관장 봄배구 가능성 커졌다
+-  정영환 “중·성동을 등 지원자 몰린 곳 재배치…인요한과 도시락 미팅 희망”
+-  Стало известно о повреждении ТЭС в украинском городе
