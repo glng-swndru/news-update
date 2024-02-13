@@ -1,11 +1,11 @@
 # Latest News
--  Pioli teme il Rennes: «Sarà difficile, mi hanno sorpreso per questi tre aspetti»
--  Pop legend hints at secret romance with star
--  Khó xử khi chị dâu lì xì con mình 3 triệu nhưng chị ấy có 3 đứa con
--  Nagaland: Civil Society Organizations Advocate for Lifting Three-Decade-Old Liquor Prohibition
--  [Leak] Sony Xperia 2024 – Sony to announce 2.5 new smartphones in spring 2024
--  UHIĆEN 25-GODIŠNJAK Mostarac 'pao' u Širokom Brijegu s više vrećica kokaina, mobitelima i 2.000 maraka
--  Muqdisho: Macalin Iskuul oo Maanta loo dilay arday uu canaantay darteed
--  Buffon: «Rifarei 100 volte la scelta di restare in B con la Juventus»
--  Cel puţin 17 migranţi, între care un copil de 5 ani, daţi dispăruţi în drum către Italia. Erau la bordul unei ambarcaţiuni
--  Newsblog: Bundestagsvizepräsidentin Göring-Eckardt besucht Ukraine – Scholz empfängt Tusk
+-  Назначена руководитель по работе с волонтерами COP29
+-  Кабинетът предложи нов посланик в Северна Македония: Кой е Желязко Радуков?
+-  Großbank: Citi mahnt Investmentbanker zu weniger Alkohol bei Kundenveranstaltungen
+-  Yeni yapılan kavşakta ilk kaza: 1 yaralı
+-  Health Tips: हार्ट अटैक पड़ने के मिनट भर में कर लें यह उपाय
+-  Русия санкционира "демонизиращи я" британски служители, историци и академици
+-  Vorfall in U-Bahn nach Ostfildern: Mann richtet Softairpistole auf Fahrgäste
+-  Accordi tra Bper e Bei da 650 milioni a sostegno delle pmi italiane
+-  Pedestrian, 78, dies after being struck by car in horror crash on Scots road
+-  Trečias kartas nemelavo – „Amber Volley“ tinklininkai įveikė Daugpilio ekipą
