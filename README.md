@@ -1,11 +1,11 @@
 # Latest News
--  New Holland grows MyPLM
--  ये कौन सी बीमारी आ गई जयपुर में! रहस्यमयी खांसी की चपेट में आए हजारों लोग, रोज 700 से ज्यादा मरीज पहुंच रहे अस्पताल
--  Claro que hay crisis pero también carnaval
--  Đầm nhà Mạc nay là vùng nào của Quảng Ninh, con thứ mấy của Mạc Đăng Doanh về đây trồng cây ngập mặn?
--  Arctic Expedition Cruises Case Study - Expedition Cruising Proved One of the Hottest Travel Trends of 2023
--  El ‘cocinillas’ del CIS cumple con el encargo de sus jefes de Moncloa
--  It’s been 12 years since the Vancouver Canucks have been this good, this late
--  Municipal declarations: Pizza Day is how you do it
--  Incentives for new physicans and nursing scholarship for Belleville
--  Los errores se pagan
+-  CHP'de 4 büyükşehir adayı belli oldu
+-  كمرافقين للاعبين وحاملي الأعلام وجامعي الكرات.. مشاركة أكثر من 700 طفل في كأس آسيا
+-  تواصل الإقبال الجماهيري على المعرض
+-  JetBlue’s stock rallies after Carl Icahn takes nearly 10% stake in airline and signals interest in board seat
+-  Leipzig: irregularidad, gran ataque y dudas atrás
+-  Nuno Rafael voltou a jogar 1.232 dias depois: «Senti-me uma criança»
+-  [ŽT] „Jie nori duoti 100 000 000 000$.“ Trumpas skelbia, ką darys su Ukraina (Video)
+-  海外市场迎来龙年开市，本周或受这些事件、数据影响！
+-  بمناسبة اليوم الرياضي للدولة.. 200 نشاط رياضي في إكسبو اليوم
+-  르노코리아, 발레오 출신 차량 SW 전문가 신규 임원 영입
