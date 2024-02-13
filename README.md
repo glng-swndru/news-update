@@ -1,11 +1,11 @@
 # Latest News
--  Mbappé en rêve, les refus s’enchainent au PSG
--  Наръчник за оцеляване край колега егоист
--  Bewegende Trauerfeier für Kampfhund-Opfer auf Waldfriedhof
--  バッテリーを気にするなら、次は「iPhone 16 Pro Max」を選びたい
--  Joshua Kimmich was surprised at starting bench during Bayern Munich’s 3-0 loss at Bayer Leverkusen
--  „Pilietybės suteikimas Reed – olimpinė dovana Ambrulevičiui“: 6 iš 10 tokiam sprendimui pritartų
--  Huluを1カ月間無料で試聴する方法 – 公式サイトの無料トライアルは終了！
--  This is why armed police were by Southampton Old Cemetery
--  비싸진 배달비·늘어난 외식…음식 배달액 처음으로 감소
--  Two bodies buried in wrong plots at Bishopstoke Cemetery
+-  أمريكا: أنصار الله استهدفت سفينة شحن متجهة لإيران
+-  На винтовке открывшей стрельбу в церкви нашли наклейку с надписью «Палестина»
+-  Circles Strengthens Leadership Team to Power Global Telco Transformation
+-  Masif Dukungan Kepala Desa untuk Prabowo-Gibran di Pilpres 2024
+-  Baubeginn für die neue Kita in Merklinde: Caritas Vorständin: „Dann muss es aber auch losgehen“
+-  Čarovnija
+-  Baubeginn für die neue Kita in Merklinde: Caritas-Vorständin: „Dann muss es aber auch losgehen“
+-  Kolombiya'da tüm cezaevlerinde "acil durum" ilan edildi
+-  [정치쇼] 이낙연 "개혁신당, 최소 30석 이상 얻어 양당 횡포 막을 것"
+-  24 Portraits: Wie fühlen sich eigentlich die Menschen hinter den Zeitungsgeschichten?
