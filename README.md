@@ -1,11 +1,11 @@
 # Latest News
--  Овечкин, Сорокин и Кузьменко — в тройке российских звезд недели в НХЛ
--  Клуб КХЛ расторг контракт с игроком после четырех технических поражений
--  Радев: Токът от новите блокове в АЕЦ "Козлодуй" ще струва 65 евро за мегаватчас
--  Şakşuka nasıl yapılır? Şakşuka tarifi için malzemeler neler?
--  Възходът на промишлените роботи в Северна Америка се охлажда през 2023 г.
--  **Foibe: revoca onorificenza a Tito, alla Camera atteso il primo sì'**
--  Vasant Panchami 2024: Celebrate Saraswati Puja with these 5 divine Prasad offerings to Goddess
--  Iisraeli sõjaväel õnnestus kaks pantvangi päästa
--  Kim Kardashian and Odell Beckham Jr. Hug in Vegas During Fanatics Party
--  ما بين جبل ومضيق.. قلبٌ نابضٌ
+-  "تجمع موظفي الإدارة العامة": التوقف عن العمل على منحاه التصاعدي في انتظار ما ستؤول إليه نتائج جلسة مجلس الوزراء
+-  Judge to Elon Musk: Answer regulators
+-  Ботев пусна шокиращо видео и обяви: Срам ни е, че "ботевисти" петнят името на клуба
+-  Classic Newfoundland song used in derogatory way in Super Bowl ad: critics
+-  Павлюченкова обыграла Касаткину в первом круге турнира в Катаре
+-  В некоторых принтерах Canon i-Sensys нашли ряд критических уязвимостей
+-  Lietuviškų itin trumpų impulsų lazerių sėkmės istorija: mokslininkų darbui būtina ...
+-  Mahomes leads Chiefs to OT thriller over 49ers
+-  Промени в закона предвиждат персонална камера за всеки полицай
+-  "Il était un peu amoureux..." : Kate Middleton trop proche du prince Harry ? Meghan Markle a sorti les griffes
