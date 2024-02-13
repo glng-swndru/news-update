@@ -1,11 +1,11 @@
 # Latest News
--  Trinidad and Tobago does not rule out foreign help to deal with oil spill
--  História de amor, aviação e atraso marcam 1° dia de desfile das escolas
--  Французские фермеры заявили о готовности возобновить забастовки
--  اسألوا مانشيني.. أول تعليق من كاسترو على عقوبة نواف العقيدي
--  Popularny łódzki ksiądz modli się o zniesienie celibatu. Zwrócił się do Watykanu
--  Qui est MifaMosa, l'artiste qui a recréé La Laitière de Vermeer en mosaïque à Chartres ?
--  5 лет тюрьмы или 700 тысяч тенге штрафа — новая статья в Уголовном кодексе за продажу вейпов
--  Barrages routiers : les agriculteurs du centre de la France ont été précurseurs il y a 70 ans
--  【速報】雲南市で住宅の火事 激しい炎と煙（島根・雲南市）
--  ‘Alarming rise’: Should Canadians be concerned about climbing global measles cases?
+-  Небезпека особистих пристроїв в корпоративних мережах - як зменшити ризики
+-  Canelo Álvarez confirma fecha de su próxima pelea
+-  За всички кемпери от днес се плаща е-винетка, а не тол такси
+-  Valentinovo u kazalištu: Romanca o tri ljubavi sutra u Omišu
+-  Sur de Sonora: Sismos dejan afectaciones
+-  Kulkeeko kaarasi sähköllä vai bensalla? – Vastaa Laitilan Sanomien autokyselyyn
+-  После ареста Степукониса в нескольких компаниях проводятся обыски
+-  Người Thái Lan dự chi gần 70 triệu USD cho ngày Valentine
+-  『スパイダーマン』ゼンデイヤ、ウエストほっそ！
+-  Fund managers no longer expect a recession as they snap up tech stocks, survey finds
