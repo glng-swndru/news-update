@@ -1,11 +1,11 @@
 # Latest News
--  Znakomite wieści z Halowych Mistrzostw Polski U18 we Wrocławiu. Reprezentant Kadeta Rawicz z brązowym medalem
--  Santa Casa tem pacientes aguardando há 12 horas no corredor
--  Feyenoord hoopvol richting AS Roma-thuis: 'Gekke is, je ziet niets aan hem'
--  Criança atacada por Pitbull em Nova Mutum é hospitalizada
--  İstanbul Ortaköy'de ahşap binada yangın
--  Bitcoin poprvé od roku 2021 přesáhl hranici 50.000 dolarů
--  Work begins on new £10m Armagh GAA training complex
--  Protokollarische Rangfolge: Ministerpräsidentin Rehlinger oder Landtagspräsidentin Winzent – wer ist das Saarland-Oberhaupt?
--  Operateri će generirati 400 milijardi dolara od 5G usluga u 2024.
--  FOOKUS ⟩ Zelenskõi jääb kindralite vallandajana Obamale tublisti alla
+-  Avropanın ən böyük akvaparkında güclü yanğın - Xəsarət alanlar var
+-  Karneval 2024 am Niederrhein: Die Narren regieren in Goch – Tausende beim Rosenmontagszug
+-  Turchia, 25ª giornata: esordio di Bourabia, il suo Kayserispor ferma il Besiktas
+-  وفد الـ " يونيسيف " يطلع على أعمال تركيب منظومات الطاقة الشمسية لآبار المياه في الحوطة و تبن بلحج
+-  FGE vincula a proceso de exjueza veracruzana
+-  Billú, banco digital de Afirme, logra 100 mil descargas en seis meses de operación
+-  Bandov o izborima u SAD-u: Zasad voda ide na mlin Donaldu Trumpu
+-  Beşiktaş cephesi Kayseri'de bu pozisyona isyan etti
+-  Новое заявление Госдепа США о диалоге между Азербайджаном и Арменией
+-  Minister obrany USA Austin zrušil cesty, leží v nemocnici
