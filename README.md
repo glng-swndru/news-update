@@ -1,11 +1,11 @@
 # Latest News
--  Live: Κρίσταλ Πάλας - Τσέλσι
--  Prvi grad na svijetu koji dobija leteći taksi
--  Francúzsko a Poľsko chcú obnoviť svoje vzájomné vzťahy
--  Prvi grad na svijetu koji dobija leteći taksi
--  Dyson Airstrait Saç Düzleştirici Türkiye’de Satışa Çıktığı Gibi Stokları Tükendi
--  Mixto feminino se apresenta e inicia treinos para temporada
--  日銀は利上げ「1％で赤字、2.5％で債務超過」だがそれより深刻な本質問題 - 金利復活
--  "Une mauvaise chose", Alicia Keys et Usher collés serrés au Super Bowl, son mari, Swizz Beatz, réagit cash
--  O comentário a um homicídio em Lisboa que está a dar que falar: "Portugal é..."
--  AMC shares up more than 5%, set for longest winning streak since December
+-  Żona Mameda Chalidowa przeszła na Islam. "Nie widziała w chrześcijaństwie odpowiedzi"
+-  Meghan Markle's heartwarming gesture to adoring fans goes viral
+-  Jaunpur News: 150 वर्षों से जीर्णोद्धार की राह देख रहा पिलकिछा तालाब
+-  Șeful Pentagonului, Lloyd Austin, se poate întoarce la muncă marți - medici
+-  Γάλλος ΥΠΕΞ: «Η Ευρώπη να προετοιμαστεί για το σενάριο - σοκ που σκιαγράφησε ο Τραμπ για το ΝΑΤΟ»
+-  Politique. Macron va recevoir tous les syndicats avant le Salon de l'Agriculture
+-  Madhya Pradesh: Yoga Instructor Dies Of Brain Haemorrhage In Khandwa
+-  Żona Mameda Chalidowa przeszła na Islam. "Nie widziała w chrześcijaństwie odpowiedzi"
+-  Joe Biden negocia la liberación de rehenes y una tregua de seis semanas entre Israel y Hamas
+-  Politique. Macron va recevoir tous les syndicats avant le Salon de l'Agriculture
