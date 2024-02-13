@@ -1,11 +1,11 @@
 # Latest News
--  أمريكا: أنصار الله استهدفت سفينة شحن متجهة لإيران
--  На винтовке открывшей стрельбу в церкви нашли наклейку с надписью «Палестина»
--  Circles Strengthens Leadership Team to Power Global Telco Transformation
--  Masif Dukungan Kepala Desa untuk Prabowo-Gibran di Pilpres 2024
--  Baubeginn für die neue Kita in Merklinde: Caritas Vorständin: „Dann muss es aber auch losgehen“
--  Čarovnija
--  Baubeginn für die neue Kita in Merklinde: Caritas-Vorständin: „Dann muss es aber auch losgehen“
--  Kolombiya'da tüm cezaevlerinde "acil durum" ilan edildi
--  [정치쇼] 이낙연 "개혁신당, 최소 30석 이상 얻어 양당 횡포 막을 것"
--  24 Portraits: Wie fühlen sich eigentlich die Menschen hinter den Zeitungsgeschichten?
+-  SA apprentice flown to hospital after trackwork incident
+-  No joy for ex-Crs return
+-  රජයේ රෝහල්වල තුන්ඩුවට ඔසුසලෙන් නොමිලේ බෙහෙත් නෑ
+-  Nearly 3/4 mln households to be economically supported
+-  Relay Market Size In Stowage Bins Segment Is Expected To Exhibit Significant Growth Over 2030 | Panasonic Corporation, Xiamen Hongfa Electroacoustic Co., Ltd., TE connectivity, Fuji Electric , and OMRON Industrial Automation
+-  Biden on TikTok: ‘Lol’ or national security worry?
+-  SA apprentice flown to hospital after trackwork incident
+-  The White Lotus: Blackpink member Lisa joins cast for third season - The Guardian
+-  ครม.คึกคัก เตรียมอวยพรวันเกิดล่วงหน้า “นายกฯ เศรษฐา” 15 ก.พ.นี้ ครบ 62 ปี
+-  «Гремио» заплатил «Зениту» за аренду Ду Кейроса 500 тысяч евро
