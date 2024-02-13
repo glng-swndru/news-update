@@ -1,11 +1,11 @@
 # Latest News
--  Scandal-hit Daihatsu execs to step down
--  Sporting e Amora voltam a falar do passe de Geny Catamo
--  Scandal-hit Daihatsu execs to step down
--  アプリ『五等分の花嫁』でバレンタインデー記念キャンペーンが復刻開催中！
--  Nikola Zalewski w centrum wielkiej afery. Klamka zapadła
--  「ベビーシッター利用割引券」2024年度は約70万枚配布へ 前年度より約6.8億円予算を増額
--  Hatay’da işçileri taşıyan minibüs tarlaya uçtu: 13 yaralı
--  UK takeaway boss hit with £12k legal bill from Tesla after choosing chicken shop name
--  Nikola Zalewski w centrum wielkiej afery. Klamka zapadła
--  Tineco erweitert die PURE ONE STATION Serie um zwei leistungsstarke Optionen
+-  Residents' chance to respond after changes to Delany's later closure plan
+-  Coxhoe chocolatier disappointed at House of Parliament event
+-  ST 13 februari 1999: Ållateatern på plats i nya lokaler
+-  Wilkinson lashes her employer for ‘one pathetic excuse after another’
+-  Pokolból a mennyországba: már a vb-döntő is sanszos a magyar pólós lányoknak
+-  H πιο περίεργη απόδειξη: Μαγαζί προσφέρει εκπτώσεις στις τιμές του για το χαμόγελο και την υπομονή
+-  Ngày xửa, ngày xưa... Tết
+-  Buck stops with nobody in embarrassing fallout from Home Affairs scandals
+-  Die Schultess aus Lauchheim schickte kurzerhand eine Abordnung ins Schottenland
+-  Warndreieck richtig aufstellen: Worauf es ankommt und welche Bußgelder drohen
