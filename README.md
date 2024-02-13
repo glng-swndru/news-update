@@ -1,11 +1,11 @@
 # Latest News
--  MP NEWS - कर्मचारी की क्रमोन्नति वापस लेने वाले अधिकारी पर 10000 का जुर्माना, जबलपुर हाईकोर्ट
--  PKK ve DEAŞ operasyonu: 2 tutuklama
--  Matica slovenská žiada nápravu pri štátnych symboloch na dokladoch
--  Vjerski lideri na konferenciji u Sarajevu poručili da će zajedno raditi na boljoj izgradnji mira
--  Pápež a argentínsky prezident Milei si na audiencii vymenili dary
--  Affaire Massaly : Le maire de Thiès-Est porte plainte pour "tentative de meurtre" et "détention illégale d'arme"
--  Над 200 уязвими семейства у нас са подобрили жилищата си през 2023 г. с безлихвени микрозаеми
--  I NAJŽEŠĆI PLAČU Potresna scena, čuveni kapiten Partizana nije mogao da zadrži suze na Milojevićevoj sahrani (FOTO)
--  US-Wahl 2024: Trumps Rache – und der Angriff auf die amerikanische Demokratie
--  Böhm Január legjobb ICEHL-ifjonca!
+-  Turbo Golf Racing Is a Rocket League-Style Arcade Sports Hybrid Hitting PS5 in 2024
+-  Wie sich die Düsseldorfer Kunstakademie wandelt: Der Körper verliert seine Grenzen
+-  Seeking the perfect wave
+-  Tiroler Ex-Teamspieler Hinterseer bei Hansa Rostock aussortiert
+-  Cruise passenger choppered to hospital
+-  Video: Ježíš myje nohy. Reklama ze Super Bowlu nadzvedla část diváků
+-  PlusLiga: Cuprum Lubin - Ślepsk Malow Suwałki. Relacja live i wynik na żywo
+-  Kinh nghiệm thực tế của các bà nội trợ: Học 12 thói quen tiết kiệm tiền này, cuộc sống của bạn sẽ thoải mái hơn
+-  Fires, bad conduct spark call to close beach at night
+-  Antoine Besse lancera sa saison à Abu Dhabi avec les Jeux de Paris en ligne de mire : "2024, le plus haut sommet à gravir"
