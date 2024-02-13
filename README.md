@@ -1,11 +1,11 @@
 # Latest News
--  Gradonačelnik Zadra zabranio koncert Aleksandre Prijović?
--  Abdullah Avcı açıkladı! Teklif almasına rağmen takımda kaldı
--  Bitcoin, Aralık 2021'den bu yana ilk defa 50 bin doları aştı
--  ONLINE: Plzeň - Dynamo 1:2. Dvougólový Vondráček, Vítkovice vedou na Kladně
--  Ehekrise? Jamie Laing und Sophie Habboo machen Paartherapie!
--  ‘Hell Falling Down On Civilians’: Fear In Gaza’s Rafah After Deadly Israeli Raid
--  Necesidades particulares
--  Belgrad ormanında vahşet! Ağaca kravatlarla bağlanmış cansız beden bulundu
--  Ал-Рифа - Ал-Нахда 1:1 /репортаж/
--  Prețul Bitcoin a depășit 50.000 dolari, luni, 12 februarie 2024
+-  Electing the next President; our Hercules to clean the Augean stables
+-  ARD: 409 допинговых дел против российских спортсменов закрыто без обвинений
+-  Les Cendres (Netflix) : la fictophilie décrite dans le film existe-t-elle vraiment ?
+-  Arno Vermeulen stelt zich live op tv beschikbaar als directeur van AZ
+-  Nintendo Switch 2 could feature backward compatibility with physical and digital games
+-  Стоимость биткойна превысила $50 тыс.
+-  FOTO Slavni na Super Bowl-u: Elon Musk u opuštenom izdanju, Bieber stigao sa suprugom...
+-  الحرب على التزييف العميق .. الولايات المتحدة تمنع المكالمات التي تستنسخ الصوت بالذكاء الاصطناعي
+-  Vaucluse. Aire de covoiturage inoccupée à Orange : « Pas assez de panneaux de signalisation »
+-  «معا نتقدم».. وعي عالٍ وخطاب متزن
