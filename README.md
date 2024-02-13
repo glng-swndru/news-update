@@ -1,11 +1,11 @@
 # Latest News
--  Небезпека особистих пристроїв в корпоративних мережах - як зменшити ризики
--  Canelo Álvarez confirma fecha de su próxima pelea
--  За всички кемпери от днес се плаща е-винетка, а не тол такси
--  Valentinovo u kazalištu: Romanca o tri ljubavi sutra u Omišu
--  Sur de Sonora: Sismos dejan afectaciones
--  Kulkeeko kaarasi sähköllä vai bensalla? – Vastaa Laitilan Sanomien autokyselyyn
--  После ареста Степукониса в нескольких компаниях проводятся обыски
--  Người Thái Lan dự chi gần 70 triệu USD cho ngày Valentine
--  『スパイダーマン』ゼンデイヤ、ウエストほっそ！
--  Fund managers no longer expect a recession as they snap up tech stocks, survey finds
+-  〈さんま御殿きょう出演〉瀬戸大也、競泳でメダル逃すも「すっきりしています」 見守り続けた妻・馬淵優佳のアスリートな本音
+-  Japán cégek 36 milliárd dollárért vásároltak fel amerikai vállatokat
+-  Klavdija Winder Pantner upihnila prvo svečko na Veseljaku: Imam fetiš na mikrofone
+-  Nothing Phone (2a) tanıtım tarihi açıklandı! İşte tüm bilinenler
+-  〈さんま御殿きょう出演〉蛙亭・中野、アンガ田中までが令和のモテ男に ミュージシャンが失墜して芸人が「モテ」の天下を取る理由
+-  Kurtlar Vadisi efsanesi yeni bölümleriyle geri dönüyor
+-  Türkiye'de sosyal medya kullanım süresi 2 saat 44 dakika
+-  Valmontone - Ladispoli, il Valmontone si scusa per il comportamento dei tifosi "Poco corretti"
+-  CGI's 2023 ESG Report highlights progress through responsible innovation
+-  Zusätzliches Einkommen: In welchen Fällen lohnt sich der Zweitjob?
