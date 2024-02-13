@@ -1,11 +1,11 @@
 # Latest News
--  CHP İstanbul ilçe adayları resmen açıklandı
--  Catastrophe en équipe de France, adieu l’Euro ?
--  Ardal North West: big win for Nantlle Vale and Pwllheli fight back
--  Ricaurte tendrá en 2 meses un nuevo centro de abastos
--  La Promessa anticipazioni puntata di oggi: Lope affronta la furia di Salvador
--  Strage di Altavilla, il fratello della donna uccisa: "Quei due si sono infilati in casa per togliere gli spiriti maligni"
--  Чорлука — о Николиче: «Мог позвонить мне в 22:30 и начать разговор о футболе»
--  Så mycket minskar kontantuttagen: ”Negativ spiral”
--  CHP'de 'krizli' aday tanıtımı! Özel katılmadı, İmamoğlu protesto edildi
--  Békéscsaba önerőből is megoldja
+-  Všechny Galaxy Watch6 koupíte až o dva tisíce levněji, stačí znát slevový kód
+-  Mamma misstänks för barnmisshandel
+-  CHP'de bir istifa daha! Belediye başkanı CHP'den istifa etti
+-  Akkuyu'da DEAŞ'lı terörist operasyonu! Bir terörist yakalandı
+-  Finastra and Tesselate digitalise trade finance for US banks
+-  空き家１棟を全焼「野焼き」の火が燃え移ったか（島根・大田市）
+-  VZ Kort: Portugese scheidsrechter voor Ajax tegen Bodø/Glimt
+-  Stadt- und Schulradeln 2024
+-  heise+ | Ladetarife für Elektroautos im Vergleich
+-  Арока – Порту 3:2: огляд матчу
