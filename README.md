@@ -1,11 +1,11 @@
 # Latest News
--  بازدید میدانی وزیر ورزش از چهار فدراسیون ورزشی
--  Кокаин и марихуана за над 1 млн. лв. откриха в тайник на бус митничари на Капитан Андреево
--  Deadpool Wolverine: Hugh Jackman lanza su propio título de la película y es hilarante
--  MPPSC NEWS - राज्य सेवा परीक्षा की तारीख को लेकर आयोग का फैसला पढ़िए
--  टीम इंडिया को तीसरे टेस्ट से पहले करारा झटका, स्टार खिलाड़ी हो गया बाहर!
--  MetroPOLL'den 'genel seçim' anketi: Bu pazar seçim olsa...
--  İstanbul'da kömür sobasından çıkan yangın evi küle çevirdi
--  전공의 '파업' 초읽기…온라인서 의대 정원 확대 저지 논의
--  עילי פדרמן, שבריטניה הטילה עליו סנקציות, נפצע מ-RPG בחאן יונס
--  الأول من نوعه.. فريق الاستجابة السريعة للجلطات الرئوية الحادة في "فهد الطبية"
+-  Pioli teme il Rennes: «Sarà difficile, mi hanno sorpreso per questi tre aspetti»
+-  Pop legend hints at secret romance with star
+-  Khó xử khi chị dâu lì xì con mình 3 triệu nhưng chị ấy có 3 đứa con
+-  Nagaland: Civil Society Organizations Advocate for Lifting Three-Decade-Old Liquor Prohibition
+-  [Leak] Sony Xperia 2024 – Sony to announce 2.5 new smartphones in spring 2024
+-  UHIĆEN 25-GODIŠNJAK Mostarac 'pao' u Širokom Brijegu s više vrećica kokaina, mobitelima i 2.000 maraka
+-  Muqdisho: Macalin Iskuul oo Maanta loo dilay arday uu canaantay darteed
+-  Buffon: «Rifarei 100 volte la scelta di restare in B con la Juventus»
+-  Cel puţin 17 migranţi, între care un copil de 5 ani, daţi dispăruţi în drum către Italia. Erau la bordul unei ambarcaţiuni
+-  Newsblog: Bundestagsvizepräsidentin Göring-Eckardt besucht Ukraine – Scholz empfängt Tusk
