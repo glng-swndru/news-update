@@ -1,11 +1,11 @@
 # Latest News
--  मिस्टर इंडिया बनाते हुए डरे हुए थे अनिल-बोनी:डायरेक्टर शेखर कपूर से कहा था- इसमें हमारे पूरे खानदान का पैसा लगा हुआ है, खत्म हो जाएगा
--  Así ‘cayeron’ los falsos policías sospechosos de secuestrar a dos ciudadanos en Guayaquil
--  Pakistan’s legacy parties in talks for coalition that would keep Imran Khan from power
--  Geplagtes Dorf an der A26: Das Leiden in Rübke geht weiter
--  Poster child Tintswalo is not so lucky
--  First person in England and Wales convicted of cyberflashing - The Guardian
--  Carnaval sin 'piscinazo' no es carnaval en Guayaquil
--  Leaney returns to NSW Waratahs after English stint
--  Bhopal: 3 Get Life Imprisonment In Loot And Murder Case
--  El Candil: 10 años después y con la misma fuerza
+-  酒田市浜中で住宅火災・一人暮らしの80代女性がのどにやけども軽傷 山形・酒田市
+-  B.C. developer ordered to pay pre-sale condo buyers $13M for breach of contract
+-  【高知】大津バイパスで車4台が絡む事故 軽乗用車が横転 58歳女性1人ケガ
+-  「佐賀の乱」150年企画展 巻き込まれた”武雄の葛藤”を紹介【佐賀県】
+-  Tết của những người thầy "luồn rừng, lội suối" mời học sinh đến lớp
+-  සෞඛ්‍ය වැඩවර්ජනයෙන් රෝහල් අඩපණ වෙයි
+-  Vil bygge ni nye rekkehus i Bodø
+-  Bhopal: No Change In Curriculum For Class 5 To 8
+-  「どこの業者も人手不足 ある程度しかたない」利用者あきらめの声 じょうてつバスで“過去最大規模”―札幌市内32路線51便の減便始まる 夏にはさらに…
+-  Tällä tontilla | Talli oli ensin varasto, sitten ruokala ja kabinetti – Nyt Tuju panee olutta Soittokunnanraitin yli 100-vuotiaassa talossa
