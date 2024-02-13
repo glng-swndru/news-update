@@ -1,11 +1,11 @@
 # Latest News
--  외교부, ‘北 핵실험 가능성’ 주북 러 대사 발언에 “매우 유감”
--  Extra Swift tickets sold out in just 35 minutes
--  Potsdamer leiden unter kaputten Fahrstuhl im Werner-Alfred-Bad
--  Появилось видео взрыва частного самолета на трассе в США
--  Motosikletiyle camiye giderken otomobil çarptı, hayatını kaybetti
--  Genç güreşçilerden iki madalya
--  NRL Market Watch: Knights confirm star’s $2m extension
--  Polresta Sidoarjo Gelar Curhat Kamtibmas di Desa Buduran Jelang Pemilu 2024
--  Toni Kroos: Fußballstar von Real Madrid vor DFB-Comeback? – »Ich denke darüber nach«
--  Former England cricketer feels England can win Ashes 2025 against Australia’s ‘Dad’s army’
+-  Er der et cloud-tronskifte på vej? AI får Microsoft til at hale markant ind på AWS
+-  La moitié des ministres du gouvernement d’Attal sont millionnaires, selon « L’Humanité »
+-  KIJK. Weekje sneeuwpret dat deugd deed: Mathieu van der Poel en vriendin Roxanne amuseren zich op de latten
+-  Hutieši uzbrukuši kuģim, kas devās uz Irānu
+-  Süper Lig Ekiplerine Müjde: Sözleşmesi Bitiyor! Sezon Sonunda Premier Lig'e Veda Edecek
+-  KPU Jakarta Pusat Mulai Distribusikan Logistik Pemilu ke Kecamatan dan Kelurahan
+-  ИЗДАВАЊЕ КУЌИ ВО СЕЛО: Дали ова функционира во Македонија?
+-  Hraðasta hraunflæðið til þessa
+-  Росен Рапчев: Лошото е, че много хора харесват "Мис Силикон" и това поведение
+-  KVKK'den "banka ile müşteri arasındaki görüşme kaydı" kararı
