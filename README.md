@@ -1,11 +1,11 @@
 # Latest News
--  Düzce'de ardiyede yangın
--  Bước chân về phía biển
--  6 неудачни интериорни решения, които ще провалят всеки ремонт
--  Hwy. 97 closed between Monte Lake and Monte Creek due to head-on crash
--  Έξι εύκολοι και γρήγοροι τρόποι να βελτιώσετε την κινητικότητα σας
--  Südtiroler Äpfel: Pestizidbelastung auch in Berglagen
--  Trois questions à Maguette Ndong, Sg adjoint (Synpics)
--  PC版『地球防衛軍6』の発売時期が2024年夏に変更
--  Jadi Comeback DJ Winky di TV, Tunggu Keseruan Akhirnya Datang Juga di GTV!
--  „Dovana iš Rytų.“ Neįtikėtina. Kas užpuolė Rusiją (Foto)
+-  Skispringen, Continental Cup: Viel Geschichte auf dem Inselberg
+-  Защо ви сърби лявата ръка: знаци по време и част от деня - суеверия
+-  Utorok bude polooblačný, na horách môže mrznúť
+-  Sky o DAZN? La programmazione televisiva della Serie A fino alla 27^ giornata
+-  Nicht nur die Straßen sind in Herten kaputt : Auch die Brücken müssen repariert werden
+-  イスラエル国防相、人質2人の救出は「転機」
+-  „Gottesdienst für Liebende“ in Holzwickede: Kim Friehs sorgt für musikalische Unterstützung
+-  Zofia Mrozowska przez całe życie kochała męża innej kobiety. Nie zdołała go zatrzymać dla siebie
+-  1月のビール販売実績が前年同月比21％増 増税の第3のビールは20％減少
+-  東京・歌舞伎町で暴力団幹部が殴られ大けが…同じ組幹部の男を逮捕
