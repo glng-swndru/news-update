@@ -1,11 +1,11 @@
 # Latest News
--  Erősen kezdte az évet a magyar használtautó-piac
--  Colère des agriculteurs : Emmanuel Macron va recevoir les syndicats
--  Musk ordered to give evidence in Twitter takeover probe
--  韋拿重遊傑志中心 偕李華度與港超球員小將交流
--  تعامل بیشتر با بانک مرکزی در دستور کار پژوهشکده پولی و بانکی
--  Офіцер Росгвардії отримав підозру за катування українців в аеропорту Гостомеля
--  感情事低調 專注做女強人 王灝兒勤做歌盼開演唱會
--  Fact-finding the Constitution envisions and the public deserves
--  همصدایی چین و آمریکا در منطقه؟
--  حل مشکل ورود موقت فرش دستباف
+-  군사 지원 급한 젤렌스키, 서유럽 순방 예상
+-  Rijkhoff laat zich gelden en schiet Jong Ajax naar eenvoudige zege
+-  エベレスト登山者に自身の排泄物掃除を義務化 自治体が発表
+-  Samsun'da korkunç olay! 'Çok yoruldum, yapamıyorum' dedi, arkadaşlarının gözü önünde canına kıydı
+-  Kim Dzsongun már Szöult készül célba venni
+-  Oglasila se je tudi Dominika Švarc Pipan: "Hvala za rože in srečno, SD"
+-  Κανάκης: «Ο Πάνος Βλάχος έβαλε στο ίδιο σακί Γεωργιάδη και Πορτοσάλτε, το απόλυτα αυτονόητο τσουβάλιασμα» (vid)
+-  Engelli raporu yenileme nasıl yapılır?
+-  PTT şartlı eğitim yardımı başvurusu ve sorgulama nasıl yapılır?
+-  Filmes clássicos encontram espaço na internet e São Boas opções para o feriado
