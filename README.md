@@ -1,11 +1,11 @@
 # Latest News
--  2 ayrı kazada 2 kişi yaralandı
--  New York metrosunda silahlı saldırı: 1 ölü, 5 yaralı
--  Ergan Dağı’nda yamaç paraşütlü kayak keyfi
--  Нетаньяху открывает второй фронт?. «Хезболла», может, и не хочет воевать с Израилем — но ее мнения теперь уже никто не спрашивает
--  Dagli USA bacchettano Mazzarri: "Non ha mantenuto la sua promessa"
--  Céline Géraud, maman de 3 filles : pourquoi a-t-elle caché sa grossesse ? "Ceux qui me voyaient..."
--  Cuatro finales para Brahim
--  Задържаха шофьор на такси с близо 2 промила в Приморско
--  Memleket Partisi’nin, Ankara adayı belli oldu
--  Völlegefühl nach dem Essen: Welches Getränk sofort helfen kann
+-  Third man charged over alleged role in Onefour murder plot
+-  Лукашенко поставил задачу до 1 сентября «встряхнуть вузы»
+-  Norsepower lands largest wind rotor order for Airbus vessels
+-  Heizölpreise aktuell (13.02.): Der Preis pro Liter Heizöl
+-  晚安小雞全身衣服被撕爛！ 痛哭：我想回台灣、我想回家
+-  Άγριο έγκλημα στο Μανχάταν: Μητέρα νεκρή στο πάτωμα ξενοδοχείου και δίπλα ματωμένο σίδερο
+-  Chanda Rule singt Blues, Gospel und Jazz in Jennersdorf
+-  "Левски" организира сбогуване на Уелтън с феновете - Труд
+-  Houston Rockets'te kötü gidişatı Alperen Şengün bitirdi
+-  Юрий Скуратов: Тотального пересмотра итогов приватизации не будет. Пока только - точечный возврат собственности
