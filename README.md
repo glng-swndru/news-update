@@ -1,11 +1,11 @@
 # Latest News
--  Pohoda 2024: Program, vstupenky, line-up. Vše, co o festivalu potřebujete vědět
--  Nespokojení zemědělci se sešli s hejtmanem Půtou. Situace je vážná, řekl
--  ‘Driver poverty.’ Report shows Toronto ride-hail gig workers earn $6.37 an hour after expenses
--  GNR passou menos 14 mil multas num mês (menos 1 milhão de euros para o Estado)
--  ABŞ-ın sensasion planı: Ukraynanın köməyi ilə bu ölkələri zəiflətmək istəyib
--  B.C. shoppers turning to ugly produce in bid to battle inflation
--  Chân dung Europa: Mục tiêu năm 2024 của tàu săn sự sống NASA
--  Estado envia alimentos e produtos de higiene para famílias desabrigadas pela chuva em MT
--  Tarot Card Horoscope: टैरो कार्ड से जानें मेष से मीन राशि का 13 फरवरी का राशिफल
--  Frischzellen für die EU? Polen zurück im Boot mit Berlin und Paris – gut so
+-  Camarote da Sapucaí preparava comida no banheiro; responsável é presa
+-  Guerre en Ukraine. Céréales déversées à la frontière : nouvelle crise ouverte entre Kiev et Varsovie
+-  Federico Valverde y Real Madrid sufrieron un insólito percance que cambió el viaje a Alemania
+-  Powiat rawicki wyłonił wykonawców dwóch dróg przeznaczonych do remontu. Przetargi zakończone
+-  Jumlah Hambur Uang Man United untuk Transfer di Bawah Kepemimpinan Glazers? Ronaldo Jual Termahal
+-  従業員の不適切動画巡りドミノ・ピザが即日謝罪文 「対応速い」賞賛の声
+-  Υπόγειο Θεάτρου Τέχνης: Ανεβάζει μια παράσταση για την «Αγάπη» στην τρίτη ηλικία
+-  Camarote da Sapucaí preparava comida no banheiro; responsável é presa
+-  Veliko naučno otkriće u Albaniji: Nikada nije pronađeno nešto slično tome
+-  Canale Emiliano-Romagnolo: "Tratto Reno-Crevenzosa in sicurezza, ora più velocemente l’acqua all’agricoltura"
