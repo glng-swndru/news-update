@@ -1,11 +1,11 @@
 # Latest News
--  Żona Mameda Chalidowa przeszła na Islam. "Nie widziała w chrześcijaństwie odpowiedzi"
--  Meghan Markle's heartwarming gesture to adoring fans goes viral
--  Jaunpur News: 150 वर्षों से जीर्णोद्धार की राह देख रहा पिलकिछा तालाब
--  Șeful Pentagonului, Lloyd Austin, se poate întoarce la muncă marți - medici
--  Γάλλος ΥΠΕΞ: «Η Ευρώπη να προετοιμαστεί για το σενάριο - σοκ που σκιαγράφησε ο Τραμπ για το ΝΑΤΟ»
--  Politique. Macron va recevoir tous les syndicats avant le Salon de l'Agriculture
--  Madhya Pradesh: Yoga Instructor Dies Of Brain Haemorrhage In Khandwa
--  Żona Mameda Chalidowa przeszła na Islam. "Nie widziała w chrześcijaństwie odpowiedzi"
--  Joe Biden negocia la liberación de rehenes y una tregua de seis semanas entre Israel y Hamas
--  Politique. Macron va recevoir tous les syndicats avant le Salon de l'Agriculture
+-  Erősen kezdte az évet a magyar használtautó-piac
+-  Colère des agriculteurs : Emmanuel Macron va recevoir les syndicats
+-  Musk ordered to give evidence in Twitter takeover probe
+-  韋拿重遊傑志中心 偕李華度與港超球員小將交流
+-  تعامل بیشتر با بانک مرکزی در دستور کار پژوهشکده پولی و بانکی
+-  Офіцер Росгвардії отримав підозру за катування українців в аеропорту Гостомеля
+-  感情事低調 專注做女強人 王灝兒勤做歌盼開演唱會
+-  Fact-finding the Constitution envisions and the public deserves
+-  همصدایی چین و آمریکا در منطقه؟
+-  حل مشکل ورود موقت فرش دستباف
