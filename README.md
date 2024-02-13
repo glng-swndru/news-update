@@ -1,11 +1,11 @@
 # Latest News
--  طرح رتبه‌بندی معلمان تاکنون ۵ برابر بودجه نوسازی مدارس هزینه داشته است
--  大王製紙と北越 業務提携へ
--  ФСБ России: с начала СВО предотвращено 419 террористических преступлений
--  Κώστας Αποστολάκης: Θέλω να έχω έναν θείο έρωτα, να είμαι ερωτευμένος με τον Ιησού Χριστό
--  Bawaslu Kabupaten Serang Waswas di Masa Tenang Pemilu 2024
--  Министр образования рассказал о возможностях ранней профориентации школьников
--  STRAŠNA ISPOVEST MILICE KEMEZ Tukli su me i držali u PODRUMU! Hraniteljka me je terala da jedem s poda, šišala na silu... AGONIJA
--  Roban violentamente a su víctima y días después... ¡La denuncian!
--  Reclamen conèixer la relació de despeses personals, la declaració de béns i l'agenda de Bonet com a consellera
--  (اضافة) المفتي دريان على راس وفد والسفيرة الاميركية في بيت الوسط
+-  Trinidad and Tobago does not rule out foreign help to deal with oil spill
+-  História de amor, aviação e atraso marcam 1° dia de desfile das escolas
+-  Французские фермеры заявили о готовности возобновить забастовки
+-  اسألوا مانشيني.. أول تعليق من كاسترو على عقوبة نواف العقيدي
+-  Popularny łódzki ksiądz modli się o zniesienie celibatu. Zwrócił się do Watykanu
+-  Qui est MifaMosa, l'artiste qui a recréé La Laitière de Vermeer en mosaïque à Chartres ?
+-  5 лет тюрьмы или 700 тысяч тенге штрафа — новая статья в Уголовном кодексе за продажу вейпов
+-  Barrages routiers : les agriculteurs du centre de la France ont été précurseurs il y a 70 ans
+-  【速報】雲南市で住宅の火事 激しい炎と煙（島根・雲南市）
+-  ‘Alarming rise’: Should Canadians be concerned about climbing global measles cases?
