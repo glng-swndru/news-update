@@ -1,11 +1,11 @@
 # Latest News
--  Mersin'de acil koduyla aranan DEAŞ'lı Akkuyu Nükleer'de yakalandı
--  미래에셋운용, 인도니프티50레버리지 ETF 순자산 500억 돌파
--  DEAŞ'tan acil koduyla aranan Rus şüpheli Akkuyu Nükleer'de yakalandı
--  На 13 февруари отбелязваме Световния ден на радиото - Труд
--  Japonya Başkonsolosu Kenichi: "İki ülkenin ilişkisi derin ve samimi"
--  Keyfine düşkün 60 yaşındaki olta balıkçısı sosyal medyada gündem oldu
--  Antalya'da İYİ Parti'nin eski ilçe başkanına silahlı saldırı
--  Warum ich Bananen esse und was man mit einem Cross-Trainer alles tun kann
--  Naci Görür'ün itirafı gündem oldu! La hocam bi gel bile demediler dedi tek tek saydı
--  Điện thoại gập ba đầu tiên sẽ giúp Huawei dẫn đầu xu hướng?
+-  외교부, ‘北 핵실험 가능성’ 주북 러 대사 발언에 “매우 유감”
+-  Extra Swift tickets sold out in just 35 minutes
+-  Potsdamer leiden unter kaputten Fahrstuhl im Werner-Alfred-Bad
+-  Появилось видео взрыва частного самолета на трассе в США
+-  Motosikletiyle camiye giderken otomobil çarptı, hayatını kaybetti
+-  Genç güreşçilerden iki madalya
+-  NRL Market Watch: Knights confirm star’s $2m extension
+-  Polresta Sidoarjo Gelar Curhat Kamtibmas di Desa Buduran Jelang Pemilu 2024
+-  Toni Kroos: Fußballstar von Real Madrid vor DFB-Comeback? – »Ich denke darüber nach«
+-  Former England cricketer feels England can win Ashes 2025 against Australia’s ‘Dad’s army’
