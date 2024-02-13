@@ -1,11 +1,11 @@
 # Latest News
--  Ajax-speler Berghuis maakt de tongen los: ‘Het prinsesje begint het te leren’
--  Peste bubónica es detectada en EU por primera vez desde 2015
--  Global MBA: les business schools françaises tirent leur épingle du jeu
--  ODE LOVA - Aca Bulić će morati da iskešira cifru od ČETIRI MILIONA, a evo i zbog čega će snositi ovakve posledice
--  Tego Bodnar się nie spodziewał. Sędzia chce, by cofnął jej nominację
--  ГРАО с обяснение за ЕГН-то на Мартин Божанов, 95 000 българи били с променено ЕГН
--  Was Bürgermeisterkandidat Ralf Hörner in Mutlangen vor hat
--  Krok k příměří v Gaze? Biden se sešel s jordánským králem, může mu to navíc přihrát hlasy muslimů ve volbách
--  Kapetan Zadra nije igrao protiv Zvezde jer nije imao tenisice...
--  Nach dem Super Bowl: So geht es in der NFL weiter
+-  BVB-Stürmer Haller stellt sich Konkurrenzkampf: Titelgewinn als Motivation für den Neustart
+-  School District 72 to implement Safeteen program in 2024/25 school year
+-  "Je n'arrivais pas à uriner", Laurent Delahousse planté par Teddy Riner qui finit par tout lui avouer
+-  What you need to know about the ongoing fight to prevent AI-generated child porn
+-  À Quimper, La Playce est prête à accueillir 700 à 800 visiteurs par jour
+-  Only sex workers will entertain my fetish
+-  BVB-Stürmer Haller stellt sich Konkurrenzkampf: Titelgewinn als Motivation für den Neustart
+-  „Früher ist viel mehr geduldet worden“
+-  People Don't Update Their Resumes Enough
+-  Wölfe-Transfers: Nur „Sechser im Lotto“ kommt noch in Frage
