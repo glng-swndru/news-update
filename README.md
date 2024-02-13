@@ -1,11 +1,11 @@
 # Latest News
--  BVB-Stürmer Haller stellt sich Konkurrenzkampf: Titelgewinn als Motivation für den Neustart
--  School District 72 to implement Safeteen program in 2024/25 school year
--  "Je n'arrivais pas à uriner", Laurent Delahousse planté par Teddy Riner qui finit par tout lui avouer
--  What you need to know about the ongoing fight to prevent AI-generated child porn
--  À Quimper, La Playce est prête à accueillir 700 à 800 visiteurs par jour
--  Only sex workers will entertain my fetish
--  BVB-Stürmer Haller stellt sich Konkurrenzkampf: Titelgewinn als Motivation für den Neustart
--  „Früher ist viel mehr geduldet worden“
--  People Don't Update Their Resumes Enough
--  Wölfe-Transfers: Nur „Sechser im Lotto“ kommt noch in Frage
+-  NOW TV'nin sahibi kim?
+-  Elevii din toată țara au din 12 februarie, prin rotație, o săptămână de vacanță. Mulți au ajuns deja pe pârtii
+-  Défaillance d’entreprise : cette ancienne patronne rennaise raconte
+-  Ännu inget datum för Elden Ring-DLC:t
+-  V Luki Koper privezana največja ladja francoskega ladjarja doslej
+-  Save on classic Levi’s jeans and denim jackets at Amazon during this rare sale
+-  Ivan stiskao Miljanu za stomak, ona zapomagala sve vreme! Neviđeni haos u rijalitiju, obezbeđenje odmah alarmiralo (VIDEO)
+-  Ražnatović o dolasku Stiva Kera: Gest za poštovanje koji nećemo zaboraviti
+-  Este juego de Captain Tsubasa tiene 75% de descuento en la eShop
+-  Hafnar samanburði forstjóra Landsvirkjunar
