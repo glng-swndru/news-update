@@ -1,11 +1,11 @@
 # Latest News
--  川普再戰拜登 中國淪大輸家
--  コカイン、幻覚キノコ、フェンタニル。米ウォール街「麻薬汚染」実態をバンカーら13人が証言
--  中田英寿氏の「容赦なき要求」 日本代表OBの北澤豪氏らが明かす
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  中彰投寺廟參香 賴：打造團結強盛自信的國家
--  3月巨人的進擊 觀戰手冊不漏接
--  （超級‧吸睛）死侍嗆聲是漫威耶穌 龍捲風暴7月狂襲
--  中國舊設備拚5奈米 恐卡死2關
--  What does restoring affordable home ownership actually mean? One economist crunches the numbers
--  Striker says Caley Thistle focus is on avoiding relegation battle
+-  סבע: "אוהד בארסה, אספר לנכדים ששיחקתי עם אינייסטה". ואיך כמעט עבר בקיץ?
+-  STEJT DEPARTMENT: SAD ne smatra da su vazdušni udari u Rafi početak ofanzive
+-  Živi u trošnoj kući bez WC-a: Vodu crpi iz bunara, a penzija mala
+-  Kanyeova supruga opet je bila gola, kritičari je ‘razapeli‘: ‘Ovo je izmaklo kontroli. Daj se više pokrij!‘
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 13 февруари /валутен калкулатор/
+-  RBA says services inflation key to rate cuts
+-  Co Antrim woman diagnosed with rare brain tumour among young scholars to scoop award
+-  Abarth 695 75° anniversario
+-  El director mexicano Luis Estrada iniciará el rodaje de «Las muertas» con Netflix
+-  Živi u trošnoj kući bez WC-a: Vodu crpi iz bunara, a penzija mala
