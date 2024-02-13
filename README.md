@@ -1,11 +1,11 @@
 # Latest News
--  Skispringen, Continental Cup: Viel Geschichte auf dem Inselberg
--  Защо ви сърби лявата ръка: знаци по време и част от деня - суеверия
--  Utorok bude polooblačný, na horách môže mrznúť
--  Sky o DAZN? La programmazione televisiva della Serie A fino alla 27^ giornata
--  Nicht nur die Straßen sind in Herten kaputt : Auch die Brücken müssen repariert werden
--  イスラエル国防相、人質2人の救出は「転機」
--  „Gottesdienst für Liebende“ in Holzwickede: Kim Friehs sorgt für musikalische Unterstützung
--  Zofia Mrozowska przez całe życie kochała męża innej kobiety. Nie zdołała go zatrzymać dla siebie
--  1月のビール販売実績が前年同月比21％増 増税の第3のビールは20％減少
--  東京・歌舞伎町で暴力団幹部が殴られ大けが…同じ組幹部の男を逮捕
+-  단백질로 10년 뒤 치매 발생 예측
+-  Otrdien gaidāms lietus un atkala
+-  All the jobs at Highcross in Leicester right now
+-  IIHF predĺžila zákaz pre Rusko a Bielorusko aj na ďalšiu sezónu
+-  Празник е! Кой има имен ден
+-  「ラヴィット！」初出演した人気女優の姿にネット騒然「えっ…」「マジ？」「目が覚めた」「どゆこと？」 - スポーツ報知
+-  Neue Leaks aufgetaucht: So könnte der Samsung Galaxy Ring aussehen
+-  Chưa kết hôn mà "ngầu đét" như người dì quốc dân này thì chắc chẳng phụ huynh nào giục cưới!
+-  Facts of Kartel’s appeal outlined by Privy Council
+-  CAN-KAR Projesinin ikinci oturumu gerçekleşti
