@@ -1,11 +1,11 @@
 # Latest News
--  Turbo Golf Racing Is a Rocket League-Style Arcade Sports Hybrid Hitting PS5 in 2024
--  Wie sich die Düsseldorfer Kunstakademie wandelt: Der Körper verliert seine Grenzen
--  Seeking the perfect wave
--  Tiroler Ex-Teamspieler Hinterseer bei Hansa Rostock aussortiert
--  Cruise passenger choppered to hospital
--  Video: Ježíš myje nohy. Reklama ze Super Bowlu nadzvedla část diváků
--  PlusLiga: Cuprum Lubin - Ślepsk Malow Suwałki. Relacja live i wynik na żywo
--  Kinh nghiệm thực tế của các bà nội trợ: Học 12 thói quen tiết kiệm tiền này, cuộc sống của bạn sẽ thoải mái hơn
--  Fires, bad conduct spark call to close beach at night
--  Antoine Besse lancera sa saison à Abu Dhabi avec les Jeux de Paris en ligne de mire : "2024, le plus haut sommet à gravir"
+-  Овечкин, Сорокин и Кузьменко — в тройке российских звезд недели в НХЛ
+-  Клуб КХЛ расторг контракт с игроком после четырех технических поражений
+-  Радев: Токът от новите блокове в АЕЦ "Козлодуй" ще струва 65 евро за мегаватчас
+-  Şakşuka nasıl yapılır? Şakşuka tarifi için malzemeler neler?
+-  Възходът на промишлените роботи в Северна Америка се охлажда през 2023 г.
+-  **Foibe: revoca onorificenza a Tito, alla Camera atteso il primo sì'**
+-  Vasant Panchami 2024: Celebrate Saraswati Puja with these 5 divine Prasad offerings to Goddess
+-  Iisraeli sõjaväel õnnestus kaks pantvangi päästa
+-  Kim Kardashian and Odell Beckham Jr. Hug in Vegas During Fanatics Party
+-  ما بين جبل ومضيق.. قلبٌ نابضٌ
