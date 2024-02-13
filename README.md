@@ -1,11 +1,11 @@
 # Latest News
--  Camarote da Sapucaí preparava comida no banheiro; responsável é presa
--  Guerre en Ukraine. Céréales déversées à la frontière : nouvelle crise ouverte entre Kiev et Varsovie
--  Federico Valverde y Real Madrid sufrieron un insólito percance que cambió el viaje a Alemania
--  Powiat rawicki wyłonił wykonawców dwóch dróg przeznaczonych do remontu. Przetargi zakończone
--  Jumlah Hambur Uang Man United untuk Transfer di Bawah Kepemimpinan Glazers? Ronaldo Jual Termahal
--  従業員の不適切動画巡りドミノ・ピザが即日謝罪文 「対応速い」賞賛の声
--  Υπόγειο Θεάτρου Τέχνης: Ανεβάζει μια παράσταση για την «Αγάπη» στην τρίτη ηλικία
--  Camarote da Sapucaí preparava comida no banheiro; responsável é presa
--  Veliko naučno otkriće u Albaniji: Nikada nije pronađeno nešto slično tome
--  Canale Emiliano-Romagnolo: "Tratto Reno-Crevenzosa in sicurezza, ora più velocemente l’acqua all’agricoltura"
+-  MP NEWS - कर्मचारी की क्रमोन्नति वापस लेने वाले अधिकारी पर 10000 का जुर्माना, जबलपुर हाईकोर्ट
+-  PKK ve DEAŞ operasyonu: 2 tutuklama
+-  Matica slovenská žiada nápravu pri štátnych symboloch na dokladoch
+-  Vjerski lideri na konferenciji u Sarajevu poručili da će zajedno raditi na boljoj izgradnji mira
+-  Pápež a argentínsky prezident Milei si na audiencii vymenili dary
+-  Affaire Massaly : Le maire de Thiès-Est porte plainte pour "tentative de meurtre" et "détention illégale d'arme"
+-  Над 200 уязвими семейства у нас са подобрили жилищата си през 2023 г. с безлихвени микрозаеми
+-  I NAJŽEŠĆI PLAČU Potresna scena, čuveni kapiten Partizana nije mogao da zadrži suze na Milojevićevoj sahrani (FOTO)
+-  US-Wahl 2024: Trumps Rache – und der Angriff auf die amerikanische Demokratie
+-  Böhm Január legjobb ICEHL-ifjonca!
