@@ -1,11 +1,11 @@
 # Latest News
--  Cem Karaca'nın Gözyaşları filmi vizyondan kaldırıldı
--  Robin Lopez, Groucho Marx e Nicolussi Caviglia
--  dailyEDEL: Silber - Zwischenerholung im intakten Abwärtstrend
--  VIDÉO - Enfants contaminés par la bactérie E.Coli : comment sont contrôlés les fromages ?
--  Ovaj stan u Zagrebu prodaje se za 125.000 €. "Prije 2 godine bio bi znatno jeftiniji"
--  Le PSG a abandonné pour Mbappé ?
--  Tötung von 23-Jähriger - Keine Spur vom Tatverdächtigen
--  ABD Başkan Yardımcısı Harris ağzından kaçırdı! Biden ne tepki verecek?
--  DE-dailyÖL- 2024-02-12
--  הייבוב הישראלית רוכשת את פלטפורמת השכר הבריטית Pento בכ-40 מיליון דולר
+-  SRBIN ŽELI OSVETU ZA PORAZ IZ HAMBURGA: Lajović protiv talentovanog Francuza!
+-  Zirk alustas MMi võimsalt: eelujumiste parima ajaga purunesid Eesti rekord ja olümpianorm
+-  Nach dem Bürgerentscheid: Feuerwehrgerätehaus Scherlebeck: Noch rund ein Jahr Vorbereitungszeit
+-  PROMENIO SE KURS DINARA Oglasila se NBS
+-  Appetit unter Kontrolle: Diese Tricks stoppen Heißhunger
+-  Την επόμενη εβδομάδα οι ανακοινώσεις της ΑΗΚ για αύξηση 6% στις διατιμήσεις
+-  à¶šà¶±à·Šà¶¯à¶šà·�à¶©à·” à¶œà·�à¶± à¶±à·�à¶šà·Šà¶šà·�à¶©à·”à·€à¶§ à¶‰à¶© à¶­à¶¶à¶±à·” à¶‘à¶´à·�
+-  Samsunspor Markus Gisdol ile evinde 7 galibiyet elde etti
+-  U Botincu se danima žale na neizdrživ smrad: 'Deset dana ljudi nisu mogli izaći van'
+-  Marmara Denizi'nde istilacı tür tehlikesi! 'Deprem kadar yıkıcı ve tehlikeli'
