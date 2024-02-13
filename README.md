@@ -1,11 +1,11 @@
 # Latest News
--  NOW TV'nin sahibi kim?
--  Elevii din toată țara au din 12 februarie, prin rotație, o săptămână de vacanță. Mulți au ajuns deja pe pârtii
--  Défaillance d’entreprise : cette ancienne patronne rennaise raconte
--  Ännu inget datum för Elden Ring-DLC:t
--  V Luki Koper privezana največja ladja francoskega ladjarja doslej
--  Save on classic Levi’s jeans and denim jackets at Amazon during this rare sale
--  Ivan stiskao Miljanu za stomak, ona zapomagala sve vreme! Neviđeni haos u rijalitiju, obezbeđenje odmah alarmiralo (VIDEO)
--  Ražnatović o dolasku Stiva Kera: Gest za poštovanje koji nećemo zaboraviti
--  Este juego de Captain Tsubasa tiene 75% de descuento en la eShop
--  Hafnar samanburði forstjóra Landsvirkjunar
+-  Gradonačelnik Zadra zabranio koncert Aleksandre Prijović?
+-  Abdullah Avcı açıkladı! Teklif almasına rağmen takımda kaldı
+-  Bitcoin, Aralık 2021'den bu yana ilk defa 50 bin doları aştı
+-  ONLINE: Plzeň - Dynamo 1:2. Dvougólový Vondráček, Vítkovice vedou na Kladně
+-  Ehekrise? Jamie Laing und Sophie Habboo machen Paartherapie!
+-  ‘Hell Falling Down On Civilians’: Fear In Gaza’s Rafah After Deadly Israeli Raid
+-  Necesidades particulares
+-  Belgrad ormanında vahşet! Ağaca kravatlarla bağlanmış cansız beden bulundu
+-  Ал-Рифа - Ал-Нахда 1:1 /репортаж/
+-  Prețul Bitcoin a depășit 50.000 dolari, luni, 12 februarie 2024
