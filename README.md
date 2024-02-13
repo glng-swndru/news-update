@@ -1,11 +1,11 @@
 # Latest News
--  Residents' chance to respond after changes to Delany's later closure plan
--  Coxhoe chocolatier disappointed at House of Parliament event
--  ST 13 februari 1999: Ållateatern på plats i nya lokaler
--  Wilkinson lashes her employer for ‘one pathetic excuse after another’
--  Pokolból a mennyországba: már a vb-döntő is sanszos a magyar pólós lányoknak
--  H πιο περίεργη απόδειξη: Μαγαζί προσφέρει εκπτώσεις στις τιμές του για το χαμόγελο και την υπομονή
--  Ngày xửa, ngày xưa... Tết
--  Buck stops with nobody in embarrassing fallout from Home Affairs scandals
--  Die Schultess aus Lauchheim schickte kurzerhand eine Abordnung ins Schottenland
--  Warndreieck richtig aufstellen: Worauf es ankommt und welche Bußgelder drohen
+-  2 ayrı kazada 2 kişi yaralandı
+-  New York metrosunda silahlı saldırı: 1 ölü, 5 yaralı
+-  Ergan Dağı’nda yamaç paraşütlü kayak keyfi
+-  Нетаньяху открывает второй фронт?. «Хезболла», может, и не хочет воевать с Израилем — но ее мнения теперь уже никто не спрашивает
+-  Dagli USA bacchettano Mazzarri: "Non ha mantenuto la sua promessa"
+-  Céline Géraud, maman de 3 filles : pourquoi a-t-elle caché sa grossesse ? "Ceux qui me voyaient..."
+-  Cuatro finales para Brahim
+-  Задържаха шофьор на такси с близо 2 промила в Приморско
+-  Memleket Partisi’nin, Ankara adayı belli oldu
+-  Völlegefühl nach dem Essen: Welches Getränk sofort helfen kann
