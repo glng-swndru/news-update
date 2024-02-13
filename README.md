@@ -1,11 +1,11 @@
 # Latest News
--  Electing the next President; our Hercules to clean the Augean stables
--  ARD: 409 допинговых дел против российских спортсменов закрыто без обвинений
--  Les Cendres (Netflix) : la fictophilie décrite dans le film existe-t-elle vraiment ?
--  Arno Vermeulen stelt zich live op tv beschikbaar als directeur van AZ
--  Nintendo Switch 2 could feature backward compatibility with physical and digital games
--  Стоимость биткойна превысила $50 тыс.
--  FOTO Slavni na Super Bowl-u: Elon Musk u opuštenom izdanju, Bieber stigao sa suprugom...
--  الحرب على التزييف العميق .. الولايات المتحدة تمنع المكالمات التي تستنسخ الصوت بالذكاء الاصطناعي
--  Vaucluse. Aire de covoiturage inoccupée à Orange : « Pas assez de panneaux de signalisation »
--  «معا نتقدم».. وعي عالٍ وخطاب متزن
+-  Znakomite wieści z Halowych Mistrzostw Polski U18 we Wrocławiu. Reprezentant Kadeta Rawicz z brązowym medalem
+-  Santa Casa tem pacientes aguardando há 12 horas no corredor
+-  Feyenoord hoopvol richting AS Roma-thuis: 'Gekke is, je ziet niets aan hem'
+-  Criança atacada por Pitbull em Nova Mutum é hospitalizada
+-  İstanbul Ortaköy'de ahşap binada yangın
+-  Bitcoin poprvé od roku 2021 přesáhl hranici 50.000 dolarů
+-  Work begins on new £10m Armagh GAA training complex
+-  Protokollarische Rangfolge: Ministerpräsidentin Rehlinger oder Landtagspräsidentin Winzent – wer ist das Saarland-Oberhaupt?
+-  Operateri će generirati 400 milijardi dolara od 5G usluga u 2024.
+-  FOOKUS ⟩ Zelenskõi jääb kindralite vallandajana Obamale tublisti alla
