@@ -1,11 +1,11 @@
 # Latest News
--  Homenagem da Portela é reconhecimento do meu trabalho sério, diz Silvio Almeida
--  أمطار ورياح مثيرة للغبار على 9 مناطق مع احتمالية تكون ضباب
--  Nikki Haley Blames Donald Trump for Military's Low Recruitment Numbers
--  Leo Fernández se llevó su primera pelota en Peñarol por sus tres goles a Liverpool y la clasificación en la Copa AUF Uruguay
--  Home Grown Garden tours take root across region | Watch the video
--  「表情見てもやってやるぞという感じ」震災後、山梨に拠点移した日本航空石川 体調不良2人除く全部員揃って練習開始
--  王晶狠批周迅長相「僅有70分」！ 一提演技獲高評價：這我能給滿分
--  MAGNETNI POLOVI SUNCA SE OVE GODINE PREOKREĆU Stižu GEOMAGNETNE OLUJE, evo kako će to uticati na naše živote
--  Продукты в бугерной в Приморье были неподтвержденного качества
--  El tiempo en Valverde: previsión meteorológica para hoy, martes 13 de febrero
+-  Mbappé en rêve, les refus s’enchainent au PSG
+-  Наръчник за оцеляване край колега егоист
+-  Bewegende Trauerfeier für Kampfhund-Opfer auf Waldfriedhof
+-  バッテリーを気にするなら、次は「iPhone 16 Pro Max」を選びたい
+-  Joshua Kimmich was surprised at starting bench during Bayern Munich’s 3-0 loss at Bayer Leverkusen
+-  „Pilietybės suteikimas Reed – olimpinė dovana Ambrulevičiui“: 6 iš 10 tokiam sprendimui pritartų
+-  Huluを1カ月間無料で試聴する方法 – 公式サイトの無料トライアルは終了！
+-  This is why armed police were by Southampton Old Cemetery
+-  비싸진 배달비·늘어난 외식…음식 배달액 처음으로 감소
+-  Two bodies buried in wrong plots at Bishopstoke Cemetery
