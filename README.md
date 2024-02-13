@@ -1,11 +1,11 @@
 # Latest News
--  군사 지원 급한 젤렌스키, 서유럽 순방 예상
--  Rijkhoff laat zich gelden en schiet Jong Ajax naar eenvoudige zege
--  エベレスト登山者に自身の排泄物掃除を義務化 自治体が発表
--  Samsun'da korkunç olay! 'Çok yoruldum, yapamıyorum' dedi, arkadaşlarının gözü önünde canına kıydı
--  Kim Dzsongun már Szöult készül célba venni
--  Oglasila se je tudi Dominika Švarc Pipan: "Hvala za rože in srečno, SD"
--  Κανάκης: «Ο Πάνος Βλάχος έβαλε στο ίδιο σακί Γεωργιάδη και Πορτοσάλτε, το απόλυτα αυτονόητο τσουβάλιασμα» (vid)
--  Engelli raporu yenileme nasıl yapılır?
--  PTT şartlı eğitim yardımı başvurusu ve sorgulama nasıl yapılır?
--  Filmes clássicos encontram espaço na internet e São Boas opções para o feriado
+-  "Un moment rare" : à Belleville, les élus se sont rassemblés pour demander l’implantation de deux nouveaux réacteurs
+-  ЕПИДЕМИЈА ВЕЛИКОГ КАШЉА НЕ ПРЕСТАЈЕ За недељу дана у Београду више од 50 нових случајева, ЕВО КО ЈЕ НАЈВИШЕ И НАЈТЕЖЕ ПОГОЂЕН
+-  개혁신당, 첫 지도부 회의…당직자 인선 의결
+-  VIDEO: Pogledajte show u Međugorju, svećenik zbog Hajduka preradio jednu od najljepših katoličkih pjesama
+-  More izbacilo desetak uginulih morskih kornjača, čeka se obdukcija
+-  Mulher de 29 anos é vítima de feminicídio em Nioaque
+-  ЕПИДЕМИЈА ВЕЛИКОГ КАШЉА НЕ ПРЕСТАЈЕ За недељу дана у Београду више од 50 нових случајева, ЕВО КО ЈЕ НАЈВИШЕ И НАЈТЕЖЕ ПОГОЂЕН
+-  Refly Harun: Pemerintah Dipimpin Sosok Terbatas Narasi dan Wawasan Tidak Luas
+-  Here's Why Madame Web Breaks Marvel's Tradition of Post-Credits Scenes (Exclusive)
+-  Дасаев прокомментировал уровень российской вратарской школы
