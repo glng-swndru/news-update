@@ -1,11 +1,11 @@
 # Latest News
--  Third man charged over alleged role in Onefour murder plot
--  Лукашенко поставил задачу до 1 сентября «встряхнуть вузы»
--  Norsepower lands largest wind rotor order for Airbus vessels
--  Heizölpreise aktuell (13.02.): Der Preis pro Liter Heizöl
--  晚安小雞全身衣服被撕爛！ 痛哭：我想回台灣、我想回家
--  Άγριο έγκλημα στο Μανχάταν: Μητέρα νεκρή στο πάτωμα ξενοδοχείου και δίπλα ματωμένο σίδερο
--  Chanda Rule singt Blues, Gospel und Jazz in Jennersdorf
--  "Левски" организира сбогуване на Уелтън с феновете - Труд
--  Houston Rockets'te kötü gidişatı Alperen Şengün bitirdi
--  Юрий Скуратов: Тотального пересмотра итогов приватизации не будет. Пока только - точечный возврат собственности
+-  CHP İstanbul ilçe adayları resmen açıklandı
+-  Catastrophe en équipe de France, adieu l’Euro ?
+-  Ardal North West: big win for Nantlle Vale and Pwllheli fight back
+-  Ricaurte tendrá en 2 meses un nuevo centro de abastos
+-  La Promessa anticipazioni puntata di oggi: Lope affronta la furia di Salvador
+-  Strage di Altavilla, il fratello della donna uccisa: "Quei due si sono infilati in casa per togliere gli spiriti maligni"
+-  Чорлука — о Николиче: «Мог позвонить мне в 22:30 и начать разговор о футболе»
+-  Så mycket minskar kontantuttagen: ”Negativ spiral”
+-  CHP'de 'krizli' aday tanıtımı! Özel katılmadı, İmamoğlu protesto edildi
+-  Békéscsaba önerőből is megoldja
