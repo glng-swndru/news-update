@@ -1,11 +1,11 @@
 # Latest News
--  Назначена руководитель по работе с волонтерами COP29
--  Кабинетът предложи нов посланик в Северна Македония: Кой е Желязко Радуков?
--  Großbank: Citi mahnt Investmentbanker zu weniger Alkohol bei Kundenveranstaltungen
--  Yeni yapılan kavşakta ilk kaza: 1 yaralı
--  Health Tips: हार्ट अटैक पड़ने के मिनट भर में कर लें यह उपाय
--  Русия санкционира "демонизиращи я" британски служители, историци и академици
--  Vorfall in U-Bahn nach Ostfildern: Mann richtet Softairpistole auf Fahrgäste
--  Accordi tra Bper e Bei da 650 milioni a sostegno delle pmi italiane
--  Pedestrian, 78, dies after being struck by car in horror crash on Scots road
--  Trečias kartas nemelavo – „Amber Volley“ tinklininkai įveikė Daugpilio ekipą
+-  Pohoda 2024: Program, vstupenky, line-up. Vše, co o festivalu potřebujete vědět
+-  Nespokojení zemědělci se sešli s hejtmanem Půtou. Situace je vážná, řekl
+-  ‘Driver poverty.’ Report shows Toronto ride-hail gig workers earn $6.37 an hour after expenses
+-  GNR passou menos 14 mil multas num mês (menos 1 milhão de euros para o Estado)
+-  ABŞ-ın sensasion planı: Ukraynanın köməyi ilə bu ölkələri zəiflətmək istəyib
+-  B.C. shoppers turning to ugly produce in bid to battle inflation
+-  Chân dung Europa: Mục tiêu năm 2024 của tàu săn sự sống NASA
+-  Estado envia alimentos e produtos de higiene para famílias desabrigadas pela chuva em MT
+-  Tarot Card Horoscope: टैरो कार्ड से जानें मेष से मीन राशि का 13 फरवरी का राशिफल
+-  Frischzellen für die EU? Polen zurück im Boot mit Berlin und Paris – gut so
