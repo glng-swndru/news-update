@@ -1,11 +1,11 @@
 # Latest News
--  Pronašli divlju svinju, pa odlučili da je usvoje: Oskar sada ima 80 kilograma i uživa ušuškan u ćebencetu
--  NCT 텐, ‘TEN’ 쇼케이스 [포토]
--  核のゴミ最終処分場の概要調査候補地、北海道寿都町の全域と神恵内村の南端…文献調査報告書案 - 読売新聞オンライン
--  이은형♥강재준, 결혼 7년 만에 전한 임신 소식 “우리 엄마·아빠 된다”
--  Hittade sin pappa naken och blodig på vårdboendet
--  Antalya'dan yüzyılın en büyük yağışı! Meteoroloji'den kritik uyarı: 1 saat içinde şehir felç oldu
--  TÄIE HOOGA TEISE ILMA: noorukid sõitsid BMW nii puruks, et kiirus jäigi mõistatuseks
--  中国如何误判了生育低谷的到来
--  Bojevnik zdaj po odškodnino?
--  Sedal dio estilo y glamour al peinado de cientos de chicas en Picnic
+-  Mersin'de acil koduyla aranan DEAŞ'lı Akkuyu Nükleer'de yakalandı
+-  미래에셋운용, 인도니프티50레버리지 ETF 순자산 500억 돌파
+-  DEAŞ'tan acil koduyla aranan Rus şüpheli Akkuyu Nükleer'de yakalandı
+-  На 13 февруари отбелязваме Световния ден на радиото - Труд
+-  Japonya Başkonsolosu Kenichi: "İki ülkenin ilişkisi derin ve samimi"
+-  Keyfine düşkün 60 yaşındaki olta balıkçısı sosyal medyada gündem oldu
+-  Antalya'da İYİ Parti'nin eski ilçe başkanına silahlı saldırı
+-  Warum ich Bananen esse und was man mit einem Cross-Trainer alles tun kann
+-  Naci Görür'ün itirafı gündem oldu! La hocam bi gel bile demediler dedi tek tek saydı
+-  Điện thoại gập ba đầu tiên sẽ giúp Huawei dẫn đầu xu hướng?
