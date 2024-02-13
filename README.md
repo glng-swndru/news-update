@@ -1,11 +1,11 @@
 # Latest News
--  Er der et cloud-tronskifte på vej? AI får Microsoft til at hale markant ind på AWS
--  La moitié des ministres du gouvernement d’Attal sont millionnaires, selon « L’Humanité »
--  KIJK. Weekje sneeuwpret dat deugd deed: Mathieu van der Poel en vriendin Roxanne amuseren zich op de latten
--  Hutieši uzbrukuši kuģim, kas devās uz Irānu
--  Süper Lig Ekiplerine Müjde: Sözleşmesi Bitiyor! Sezon Sonunda Premier Lig'e Veda Edecek
--  KPU Jakarta Pusat Mulai Distribusikan Logistik Pemilu ke Kecamatan dan Kelurahan
--  ИЗДАВАЊЕ КУЌИ ВО СЕЛО: Дали ова функционира во Македонија?
--  Hraðasta hraunflæðið til þessa
--  Росен Рапчев: Лошото е, че много хора харесват "Мис Силикон" и това поведение
--  KVKK'den "banka ile müşteri arasındaki görüşme kaydı" kararı
+-  EU-Lieferkettengesetz: Wirtschaft dringt auf Nachbesserungen
+-  Beyazıt Öztürk ve Kubat sevgililer gününe yalnız girecekler için söyledi 'Bekar Gezelim'
+-  Maestralna partija Bogdanovića u porazu Atlanta VIDEO
+-  NASA, bir güneş patlamasının dehşet verici görüntülerini paylaştı
+-  بدء العمل بمخالفات محطات الوقود بالعاصمة المقدسة
+-  Баскетболисты "МИНСКА" примут "Уралмаш" в Единой лиге ВТБ
+-  Икономически университет – Варна: Трансформиращо образователно изживяване чрез иновации и предприемачество
+-  Банките не дават лихви по депозити и държат ниски тези по кредитите
+-  TV-Journalistin: Dunja Hayali schildert rassistische Attacke an Altweiber
+-  Pengiriman Logistik Pemilu 2024 di pedalaman Badui
