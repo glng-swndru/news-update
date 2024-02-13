@@ -1,11 +1,11 @@
 # Latest News
--  Bez otpada i zagađivanja okoliša: Ovako izgleda namještaj izrađen od kore voća i ostataka kave
--  Alper Gezeravcı'nın uzayda yaptığı deneyin sonuçları paylaşıldı
--  Nešto se čudno događa s Hrvatskom na Eurosongu, nečemu ovakvom nismo svjedočili otkako sudjelujemo na natjecanju!
--  Посланията на цветята: Вижте какви цветя да НЕ подарявате за Свети Валентин
--  박지원·김길리, 이틀 연속 동반 금메달
--  한국 아티스틱 이리영-허윤서…12년 만에 올림픽 출전
--  Frama Posuški Gradac uz obred Primanja i Obećanja proslavila jubilarnih 20 godina postojanja
--  يرجح أنها تعرضت للسرقة.. غياب العشرات من علامات التشوير بطريق الدريوش تمسمان
--  Diese deutschen Trainer wären für den HSV sofort verfügbar
--  De Ligt op weg naar uitgang: 'Speelt geen rol in plannen van Tuchel'
+-  بازدید میدانی وزیر ورزش از چهار فدراسیون ورزشی
+-  Кокаин и марихуана за над 1 млн. лв. откриха в тайник на бус митничари на Капитан Андреево
+-  Deadpool Wolverine: Hugh Jackman lanza su propio título de la película y es hilarante
+-  MPPSC NEWS - राज्य सेवा परीक्षा की तारीख को लेकर आयोग का फैसला पढ़िए
+-  टीम इंडिया को तीसरे टेस्ट से पहले करारा झटका, स्टार खिलाड़ी हो गया बाहर!
+-  MetroPOLL'den 'genel seçim' anketi: Bu pazar seçim olsa...
+-  İstanbul'da kömür sobasından çıkan yangın evi küle çevirdi
+-  전공의 '파업' 초읽기…온라인서 의대 정원 확대 저지 논의
+-  עילי פדרמן, שבריטניה הטילה עליו סנקציות, נפצע מ-RPG בחאן יונס
+-  الأول من نوعه.. فريق الاستجابة السريعة للجلطات الرئوية الحادة في "فهد الطبية"
