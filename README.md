@@ -1,11 +1,11 @@
 # Latest News
--  Hamas, Aussie’s terror links no risk at home: spy chief
--  Инвеститорите на Wall Street очакват с оптимизъм новите корпоративни отчети*
--  3 Stocks Cathie Wood Bought Last Week
--  Idén is bőkezűen fog adakozni az EU
--  Karneval 2024 in Herten: Exklusive Fotos der Hertener Karnevalsvereine beim Rosenmontagsumzug
--  Plažu Sakarun prekrile uginule želve: Šest je mrtvih već dulje vrijeme, jedna ide na autopsiju
--  Künftig Ladestationen in Bordsteinen?: Im Kreis Unna ragt eine Kommune bei Elektro-Pkw heraus
--  "الجزيرة": إطلاق صاروخَين باتجاه موقع الرمثا الإسرائيلي في تلال كفرشوبا المحتلة
--  5 azioni del settore consumer che potrebbero crollare questo mese
--  Справжній "Циркон": в Україні підтвердили удар по Києву новою "гіперзвуковою" зброєю
+-  Gustavo Henrique é apresentado no Corinthians e assegura estar 100% fisicamente para estreia
+-  Adana Büyükşehir Belediyesi’nde dehşet! Özel Kalem vekili kaldırıldığı hastanede hayatını kaybetti
+-  Toto jsou nejočekávanější smartphony letošního roku. Na které z nich se vyplatí počkat?
+-  В Думе предложили обеспечить получение педагогами жилья вне очереди по соцнайму
+-  EXCLUSIVE: Piping to return to Forres this summer as town to host British Championships
+-  Matija Cvek uoči koncerta u Splitu otkrio spol bebe, ali ne i ime koje su odabrali
+-  Ker i saradnici propuštaju meč Voriorsa zbog Milojevićeve sahrane
+-  Gustavo Henrique é apresentado no Corinthians e assegura estar 100% fisicamente para estreia
+-  أمريكا تعرب عن صدمتها بشأن الوفاة "المفجعة" للطفلة هند رجب
+-  PRODUKCIJA POTVRDILA SVE! U Elitu ulaze dva poznata lica, ukućani će zanemeti od šoka
