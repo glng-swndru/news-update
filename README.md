@@ -1,11 +1,11 @@
 # Latest News
--  EU-Lieferkettengesetz: Wirtschaft dringt auf Nachbesserungen
--  Beyazıt Öztürk ve Kubat sevgililer gününe yalnız girecekler için söyledi 'Bekar Gezelim'
--  Maestralna partija Bogdanovića u porazu Atlanta VIDEO
--  NASA, bir güneş patlamasının dehşet verici görüntülerini paylaştı
--  بدء العمل بمخالفات محطات الوقود بالعاصمة المقدسة
--  Баскетболисты "МИНСКА" примут "Уралмаш" в Единой лиге ВТБ
--  Икономически университет – Варна: Трансформиращо образователно изживяване чрез иновации и предприемачество
--  Банките не дават лихви по депозити и държат ниски тези по кредитите
--  TV-Journalistin: Dunja Hayali schildert rassistische Attacke an Altweiber
--  Pengiriman Logistik Pemilu 2024 di pedalaman Badui
+-  Cem Karaca'nın Gözyaşları filmi vizyondan kaldırıldı
+-  Robin Lopez, Groucho Marx e Nicolussi Caviglia
+-  dailyEDEL: Silber - Zwischenerholung im intakten Abwärtstrend
+-  VIDÉO - Enfants contaminés par la bactérie E.Coli : comment sont contrôlés les fromages ?
+-  Ovaj stan u Zagrebu prodaje se za 125.000 €. "Prije 2 godine bio bi znatno jeftiniji"
+-  Le PSG a abandonné pour Mbappé ?
+-  Tötung von 23-Jähriger - Keine Spur vom Tatverdächtigen
+-  ABD Başkan Yardımcısı Harris ağzından kaçırdı! Biden ne tepki verecek?
+-  DE-dailyÖL- 2024-02-12
+-  הייבוב הישראלית רוכשת את פלטפורמת השכר הבריטית Pento בכ-40 מיליון דולר
