@@ -1,11 +1,11 @@
 # Latest News
--  "تجمع موظفي الإدارة العامة": التوقف عن العمل على منحاه التصاعدي في انتظار ما ستؤول إليه نتائج جلسة مجلس الوزراء
--  Judge to Elon Musk: Answer regulators
--  Ботев пусна шокиращо видео и обяви: Срам ни е, че "ботевисти" петнят името на клуба
--  Classic Newfoundland song used in derogatory way in Super Bowl ad: critics
--  Павлюченкова обыграла Касаткину в первом круге турнира в Катаре
--  В некоторых принтерах Canon i-Sensys нашли ряд критических уязвимостей
--  Lietuviškų itin trumpų impulsų lazerių sėkmės istorija: mokslininkų darbui būtina ...
--  Mahomes leads Chiefs to OT thriller over 49ers
--  Промени в закона предвиждат персонална камера за всеки полицай
--  "Il était un peu amoureux..." : Kate Middleton trop proche du prince Harry ? Meghan Markle a sorti les griffes
+-  Hamas, Aussie’s terror links no risk at home: spy chief
+-  Инвеститорите на Wall Street очакват с оптимизъм новите корпоративни отчети*
+-  3 Stocks Cathie Wood Bought Last Week
+-  Idén is bőkezűen fog adakozni az EU
+-  Karneval 2024 in Herten: Exklusive Fotos der Hertener Karnevalsvereine beim Rosenmontagsumzug
+-  Plažu Sakarun prekrile uginule želve: Šest je mrtvih već dulje vrijeme, jedna ide na autopsiju
+-  Künftig Ladestationen in Bordsteinen?: Im Kreis Unna ragt eine Kommune bei Elektro-Pkw heraus
+-  "الجزيرة": إطلاق صاروخَين باتجاه موقع الرمثا الإسرائيلي في تلال كفرشوبا المحتلة
+-  5 azioni del settore consumer che potrebbero crollare questo mese
+-  Справжній "Циркон": в Україні підтвердили удар по Києву новою "гіперзвуковою" зброєю
