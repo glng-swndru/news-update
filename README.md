@@ -1,11 +1,11 @@
 # Latest News
--  단백질로 10년 뒤 치매 발생 예측
--  Otrdien gaidāms lietus un atkala
--  All the jobs at Highcross in Leicester right now
--  IIHF predĺžila zákaz pre Rusko a Bielorusko aj na ďalšiu sezónu
--  Празник е! Кой има имен ден
--  「ラヴィット！」初出演した人気女優の姿にネット騒然「えっ…」「マジ？」「目が覚めた」「どゆこと？」 - スポーツ報知
--  Neue Leaks aufgetaucht: So könnte der Samsung Galaxy Ring aussehen
--  Chưa kết hôn mà "ngầu đét" như người dì quốc dân này thì chắc chẳng phụ huynh nào giục cưới!
--  Facts of Kartel’s appeal outlined by Privy Council
--  CAN-KAR Projesinin ikinci oturumu gerçekleşti
+-  Először lép a nyilvánosság elé a Madeleine McCann megölésével gyanúsított férfi
+-  Abbdulkadir Selvi, Ali Koç'un peşini bırakmıyor! Onlara da Atatürk tişörtü giydirdin mi?
+-  Iskolát szeretett volna robbantani a budapesti diák, végül csak a tanárát nem engedte ki a teremből
+-  Announcements – February 13, 2024
+-  INSÄNDARE: Att äta en variationsrik kost ger flera hälsovinster
+-  International Condom Day: Simple ways to avoid contraceptive-related accidents in bed
+-  INSÄNDARE: Att äta en variationsrik kost ger flera hälsovinster
+-  Počasie na dnes: V utorok bude teplo, zrána hmla
+-  День ангела Світлани 2024: як красиво привітати іменинницю
+-  „Die Straße bröckelt uns weg“: Bürgermeister ärgert sich über Rumpelpiste in die Jachenau
