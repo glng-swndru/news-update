@@ -1,11 +1,11 @@
 # Latest News
--  Putins jau ir melojis vairākkārt
--  Manta: Prisión para cuatro sospechosos por secuestro de empresario
--  Akaryakıta öyle zam geldi ki araç sahipleri şoke oldu
--  В МВФ оценили решение Запада о конфискации российских активов
--  Belleville Council receives pre-draft budget overview
--  Mystery men raise suspicions after Kiptum’s shock death
--  BRI Liga 1: Performanya Mengesankan, PSIS Semarang Perpanjang Kontrak Paulo Gali Freitas
--  Chelsea golea y suma puntos valiosos
--  Dicatut! Kapolri Diframing Bekerja Senyap Menangkan Paslon Pilpres
--  Tràng An (Ninh Bình) đông kín du khách trong ngày mùng 3 Tết, nhiều người định đi nhưng nhìn cảnh này lại "rén"
+-  Líder indica que Câmara dos EUA vai negar pacote de ajuda a Ucrânia e Israel
+-  What’s at stake in Indonesia as the world’s third-largest democracy elects a new president?
+-  Nəyə görə dünyada miqren xəstəliyi artır?
+-  BASF hofft nach möglichem Trump-Sieg auf offene Weltmärkte
+-  Doa Nabi Muhammad untuk Dibaca Lansia
+-  Meet IPS officer who is popular on social media, resigned from prestigious job after 12 years due to...
+-  박성재 법무부 장관 후보자 "尹과 신뢰 관계…자주 연락 안 해"
+-  Ops Selamat: 17 deaths from 1,261 accidents nationwide on Feb 12
+-  민주, 오늘 이태원참사 유가족 면담…"2월 중 특별법 재의결 필요하단 의견도"
+-  El tiempo en Calatorao: previsión meteorológica para hoy, martes 13 de febrero
