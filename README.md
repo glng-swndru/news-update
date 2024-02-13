@@ -1,11 +1,11 @@
 # Latest News
--  Cómo Buddy Cops y los hermanos Shaw influyeron en Godzilla x Kong: El nuevo imperio
--  Van, ahol az összes eladó ingatlan is kijön a lottóötösből
--  XRP Network Now Close To Welcoming Smart Contracts as Needed 10,000 Votes Achieved
--  You have 'genius level IQ' if you can work out which coin will reach bottom of bucket
--  PHOTOS: Stolen Sisters March through Victoria honours missing and murdered
--  キーマン明かす｢宇都宮ライトレール｣成功の鍵 利用者数は100万人を突破､今後の展望は? | ローカル線･公共交通 | 東洋経済オンライン
--  Dá boleia pela primeira vez a Cristina Ferreira: "Devagarinho..."
--  Спартак Варна взе белгиец на проби
--  Oceania Rugby U20s challenge set to ignite a new era of Pacific Rugby talent
--  Triunfo no Pré-Olímpico garante Paraguai nos jogos olímpicos de Paris 2024!
+-  Live: Κρίσταλ Πάλας - Τσέλσι
+-  Prvi grad na svijetu koji dobija leteći taksi
+-  Francúzsko a Poľsko chcú obnoviť svoje vzájomné vzťahy
+-  Prvi grad na svijetu koji dobija leteći taksi
+-  Dyson Airstrait Saç Düzleştirici Türkiye’de Satışa Çıktığı Gibi Stokları Tükendi
+-  Mixto feminino se apresenta e inicia treinos para temporada
+-  日銀は利上げ「1％で赤字、2.5％で債務超過」だがそれより深刻な本質問題 - 金利復活
+-  "Une mauvaise chose", Alicia Keys et Usher collés serrés au Super Bowl, son mari, Swizz Beatz, réagit cash
+-  O comentário a um homicídio em Lisboa que está a dar que falar: "Portugal é..."
+-  AMC shares up more than 5%, set for longest winning streak since December
