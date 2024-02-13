@@ -1,11 +1,11 @@
 # Latest News
--  Адвокат BaltCap: из компаний фонда могли пропасть около 40 млн евро
--  Picasso ou Warhol? Obras podem ser destruídas com ácido se Assange morrer
--  За кои зодии е крайно време да стягат коланите - да не хвърлят пари за глупости!
--  Exciting! Saif Ali Khan and Jaideep Ahlawat to star in Siddharth Anand’s upcoming film Jewel Thief
--  माओवादी केन्द्रको नाम फेर्न प्रस्ताव
--  OVO JE PRVI MUŽ POKOJNE MARINE TUCAKOVIĆ! Pre Fute Marina je bila udata za OVOG MUZIČARA, posvetila mu je HIT koji svi pevamo
--  Nike Stock at $100: Time to Buy?
--  غارة على أطراف عيتا الشعب - راميا
--  Svi luduju za haljinom od 30 eura: ‘Ne mogu se pohvaliti grudima, a pogledajte ih sada!‘
--  A Gigabyte robusztusabbra cseréli egyes VGA-inak terhelésre érzékeny NYÁK-jait
+-  طرح رتبه‌بندی معلمان تاکنون ۵ برابر بودجه نوسازی مدارس هزینه داشته است
+-  大王製紙と北越 業務提携へ
+-  ФСБ России: с начала СВО предотвращено 419 террористических преступлений
+-  Κώστας Αποστολάκης: Θέλω να έχω έναν θείο έρωτα, να είμαι ερωτευμένος με τον Ιησού Χριστό
+-  Bawaslu Kabupaten Serang Waswas di Masa Tenang Pemilu 2024
+-  Министр образования рассказал о возможностях ранней профориентации школьников
+-  STRAŠNA ISPOVEST MILICE KEMEZ Tukli su me i držali u PODRUMU! Hraniteljka me je terala da jedem s poda, šišala na silu... AGONIJA
+-  Roban violentamente a su víctima y días después... ¡La denuncian!
+-  Reclamen conèixer la relació de despeses personals, la declaració de béns i l'agenda de Bonet com a consellera
+-  (اضافة) المفتي دريان على راس وفد والسفيرة الاميركية في بيت الوسط
