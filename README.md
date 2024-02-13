@@ -1,11 +1,11 @@
 # Latest News
--  Líder indica que Câmara dos EUA vai negar pacote de ajuda a Ucrânia e Israel
--  What’s at stake in Indonesia as the world’s third-largest democracy elects a new president?
--  Nəyə görə dünyada miqren xəstəliyi artır?
--  BASF hofft nach möglichem Trump-Sieg auf offene Weltmärkte
--  Doa Nabi Muhammad untuk Dibaca Lansia
--  Meet IPS officer who is popular on social media, resigned from prestigious job after 12 years due to...
--  박성재 법무부 장관 후보자 "尹과 신뢰 관계…자주 연락 안 해"
--  Ops Selamat: 17 deaths from 1,261 accidents nationwide on Feb 12
--  민주, 오늘 이태원참사 유가족 면담…"2월 중 특별법 재의결 필요하단 의견도"
--  El tiempo en Calatorao: previsión meteorológica para hoy, martes 13 de febrero
+-  मिस्टर इंडिया बनाते हुए डरे हुए थे अनिल-बोनी:डायरेक्टर शेखर कपूर से कहा था- इसमें हमारे पूरे खानदान का पैसा लगा हुआ है, खत्म हो जाएगा
+-  Así ‘cayeron’ los falsos policías sospechosos de secuestrar a dos ciudadanos en Guayaquil
+-  Pakistan’s legacy parties in talks for coalition that would keep Imran Khan from power
+-  Geplagtes Dorf an der A26: Das Leiden in Rübke geht weiter
+-  Poster child Tintswalo is not so lucky
+-  First person in England and Wales convicted of cyberflashing - The Guardian
+-  Carnaval sin 'piscinazo' no es carnaval en Guayaquil
+-  Leaney returns to NSW Waratahs after English stint
+-  Bhopal: 3 Get Life Imprisonment In Loot And Murder Case
+-  El Candil: 10 años después y con la misma fuerza
