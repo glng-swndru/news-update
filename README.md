@@ -1,11 +1,11 @@
 # Latest News
--  סבע: "אוהד בארסה, אספר לנכדים ששיחקתי עם אינייסטה". ואיך כמעט עבר בקיץ?
--  STEJT DEPARTMENT: SAD ne smatra da su vazdušni udari u Rafi početak ofanzive
--  Živi u trošnoj kući bez WC-a: Vodu crpi iz bunara, a penzija mala
--  Kanyeova supruga opet je bila gola, kritičari je ‘razapeli‘: ‘Ovo je izmaklo kontroli. Daj se više pokrij!‘
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 13 февруари /валутен калкулатор/
--  RBA says services inflation key to rate cuts
--  Co Antrim woman diagnosed with rare brain tumour among young scholars to scoop award
--  Abarth 695 75° anniversario
--  El director mexicano Luis Estrada iniciará el rodaje de «Las muertas» con Netflix
--  Živi u trošnoj kući bez WC-a: Vodu crpi iz bunara, a penzija mala
+-  'Ser honesto é obrigação, não é qualidade', dizia Tia Luiza; conheça a história da fundadora do Magalu
+-  'Ser honesto é obrigação, não é qualidade', dizia Tia Luiza; conheça a história da fundadora do Magalu
+-  債券先物は小幅高、日銀の利上げペースはゆっくりとの見方 - Bloomberg - ブルームバーグ
+-  Soccer-Chelsea snatch last-gasp 3-1 win at Palace
+-  Nagrizao ga je zub vremena, dokrajčio potres, a obnovu bi trebali ubrzati - strani radnici
+-  Vital statistics -- Feb. 2 to 8, 2024
+-  Kaithal News: हर वर्ग तक पहुंच रहा योजनाओं का लाभ ः ढांडा
+-  US Senator wants airline, credit card CEOs to testify on fees
+-  Pour rattraper le Maroc, l’Algérie veut mettre à niveau son agence spatiale
+-  DEČAK (12) PREVEZEN U BOLNICU Nesreća na uglu Bulevara oslobođenja
