@@ -1,11 +1,11 @@
 # Latest News
--  酒田市浜中で住宅火災・一人暮らしの80代女性がのどにやけども軽傷 山形・酒田市
--  B.C. developer ordered to pay pre-sale condo buyers $13M for breach of contract
--  【高知】大津バイパスで車4台が絡む事故 軽乗用車が横転 58歳女性1人ケガ
--  「佐賀の乱」150年企画展 巻き込まれた”武雄の葛藤”を紹介【佐賀県】
--  Tết của những người thầy "luồn rừng, lội suối" mời học sinh đến lớp
--  සෞඛ්‍ය වැඩවර්ජනයෙන් රෝහල් අඩපණ වෙයි
--  Vil bygge ni nye rekkehus i Bodø
--  Bhopal: No Change In Curriculum For Class 5 To 8
--  「どこの業者も人手不足 ある程度しかたない」利用者あきらめの声 じょうてつバスで“過去最大規模”―札幌市内32路線51便の減便始まる 夏にはさらに…
--  Tällä tontilla | Talli oli ensin varasto, sitten ruokala ja kabinetti – Nyt Tuju panee olutta Soittokunnanraitin yli 100-vuotiaassa talossa
+-  Homenagem da Portela é reconhecimento do meu trabalho sério, diz Silvio Almeida
+-  أمطار ورياح مثيرة للغبار على 9 مناطق مع احتمالية تكون ضباب
+-  Nikki Haley Blames Donald Trump for Military's Low Recruitment Numbers
+-  Leo Fernández se llevó su primera pelota en Peñarol por sus tres goles a Liverpool y la clasificación en la Copa AUF Uruguay
+-  Home Grown Garden tours take root across region | Watch the video
+-  「表情見てもやってやるぞという感じ」震災後、山梨に拠点移した日本航空石川 体調不良2人除く全部員揃って練習開始
+-  王晶狠批周迅長相「僅有70分」！ 一提演技獲高評價：這我能給滿分
+-  MAGNETNI POLOVI SUNCA SE OVE GODINE PREOKREĆU Stižu GEOMAGNETNE OLUJE, evo kako će to uticati na naše živote
+-  Продукты в бугерной в Приморье были неподтвержденного качества
+-  El tiempo en Valverde: previsión meteorológica para hoy, martes 13 de febrero
