@@ -1,11 +1,11 @@
 # Latest News
--  ‘Clear window’ for AFLW as season start revealed
--  Mantan PM Mahathir Kembali Dirawat di Rumah Sakit
--  Преговарящите в Кайро не постигнаха споразумение за примирие в Газа
--  Arşivler Açıldı, Binali Yıldırım'ın Felaketin Yaşandığı Madenle İlgili Sözleri Hatırlandı!
--  Banky v lednu poskytly hypotéky za 13 miliard, meziročně o 99 procent víc
--  Čínská ekonomika politika nemění směr, přestože nefunguje. Růst už není prioritou - Miller (video)
--  ‘Clear window’ for AFLW as season start revealed
--  44 са новите случаи на коронавирус у нас
--  Kukavice, uništili smo te! Grin brutalno napao Bosanca, pomenuo i Jokića
--  Şili'de orman yangınları devam ediyor: Yaşamını yitirenlerin sayısı 132'ye yükseldi
+-  Aswoensdag: het begin van veertig dagen bezinnen, bekering en nieuwe hoop | Commentaar
+-  MORNING BID EUROPE - La remise en question de la baisse des taux d'intérêt se répercute sur les marchés
+-  روزانه ۵ تا ۱۰ واحد صنفی مشاوره املاک برای ابطال پروانه به اتحادیه مراجعه می‌کنند
+-  MORNING BID EUROPE-Rate cut rethink ripples across markets
+-  Юлиан Костов - От Варна към Холивуд - Труд
+-  Św. Walenty nie miał szczęścia w miłości. Kim był patron zakochanych?
+-  Jüngste Abkehr von London: Reisekonzern TUI fliegt nach Frankfurt
+-  À Quimper, la police scientifique est une aide indispensable aux enquêtes
+-  "Le contact humain, c'est important": les jeunes blasés par les applications de rencontre?
+-  Oroscopo di oggi (mercoledì 14 febbraio 2024): segno per segno
