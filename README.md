@@ -1,11 +1,11 @@
 # Latest News
--  恒指升１３２點收報１５８７９，美團碧服齊漲逾５％
--  Share the gains of Red Sea disruption with seafarers
--  Güneş'te 100 yılda 1 olacak büyük patlama ya olacak ya olacak. Güneş yine patladı. Büyük elektrik kesintisi sürpriz olmaz. Telefon, tablet, bilgisayar şarj edin
--  Nije mogao vjerovati, Bijač je briljirao, pogledajte reakcije srpskog komentatora u porazu od Hrvatske
--  Vali Aslan heyelan bölgesinde incelemelerde bulundu
--  Tres detenidos y más de 100 kilos de marihuana incautados en una plantación de interior en Torrejón del Rey
--  Čmilytė-Nielsen Vyriausybės siūlomą SND akcizą vadina „geru kompromisu“
--  L'intelligenza artificiale dei Galaxy non è solo per i telefoni
--  Live Quick Count LSI: Prabowo-Gibran Unggul Drastis
--  ハマス指導者・シンワル氏が家族と安全施設に逃げ込む様子か “地下トンネル移動”映像をイスラエル軍が公開
+-  APA - N A C H R I C H T E N Ü B E R B L I C K
+-  10대들이 무인가게 절도…모방 범죄 우려
+-  "Ils se retrouvent à quatre, cinq par stage, livrés à eux-mêmes": pourquoi les étudiants infirmiers jettent l'éponge
+-  Unusual signs of Vitamin B12 deficiency
+-  市営バスのドライブレコーダーを盗んだ疑い 運転手の男を逮捕 「嫌がらせ目的でとりました」
+-  Siirt Valisi Kemal Kızılkaya, okul müdürleriyle bir araya geldi
+-  "Je fonds..." : Adeline Toniutti sous le charme de son danseur Adrien Caby ? La prof de la Star Ac' se lâche !
+-  TEMA 4 yıl önce video çekip uyarmıştı: Siyanürle altın çıkarılırsa ne olur?
+-  Avrupa Komisyonu: Apple, iMessage'ı rakiplere açmak zorunda değil
+-  Anyone who reckons you can’t raise kids in a flat has never done it
