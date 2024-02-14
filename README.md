@@ -1,11 +1,11 @@
 # Latest News
--  La nueva y divertida canción del 112: «La que has 'liao' Juanito por un huevo frito»
--  Paikalliset seurat mukana cup-taistoissa
--  Molk Danijela Bešiča Loredana, v poslanske klopi Uroš Brežan
--  Американскиот Сенат одобри 60 милијарди долари за Украина - но судбината на оваа донација се уште е неизвесна
--  Voici le top 10 des véhicules les plus volés en 2023, et le Var est un département à risque
--  نصر الله: لن نتوقف عن قصف إسرائيل إلا بانتهاء العدوان على غزة
--  Han får flest rubriker i HIF 2024: ”Mediernas man”
--  Han får flest rubriker i HIF 2024: ”Mediernas man”
--  Раскрыты райдер и гонорар певца Niletto
--  Voici le top 10 des véhicules les plus volés en 2023, et le Var est un département à risque
+-  Prince Harry B.C.-bound as Invictus Games launches one-year countdown
+-  Comment les élus de Brassac-les-Mines comptent réduire la facture d'électricité ?
+-  Šimkovičová vyzdvihla potrebu zachovania jedinečnosti kultúr
+-  Manchester United e bilionário obtêm aprovação da Premier League para compra de 25% do clube
+-  Kobbie Mainoo 'set for new England role' after impressing on Manchester United scouting mission
+-  „Sjokkerandi að hann hafi aldrei farið úr dönsku deildinni"
+-  La inflación en Estados Unidos baja tres décimas en enero hasta el 3.1%
+-  «Putins Tage sind gezählt»: Russland-Kennerin sagt, dass wir gerade den Anfang vom Ende des Kreml-Chefs erleben
+-  Befutott A hercegnő és a sárkány nagy előzetese, melyben Millie Bobby Brown hősnőjét a fényes esküvőről egy sötét verembe dobják, de nem adja olyan könnyen magát
+-  Comment les élus de Brassac-les-Mines comptent réduire la facture d'électricité ?
