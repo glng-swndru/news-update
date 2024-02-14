@@ -1,11 +1,11 @@
 # Latest News
--  Izrael tvrdi: Ovo su dokazi da Hamas koristi bolnice u Gazi
--  Dorota Gawryluk o spekulacjach nt. swojego startu w wyborach: To zestawienie legło u podstaw plotki
--  Merus Powerille noin 15 miljoonan euron sähkövarastotilaus – Uusi sähkövarasto vahvistaa sähköverkkoa
--  Vasseur : L'arrivée d'Hamilton chez Ferrari n'est pas 'injuste' pour Sainz
--  Pět partnerů vládnout nemůže, hodnotí koalici Paroubek. S Rajchlem najde řeč
--  Roboter navigiert wie ein Insekt
--  Kinderfasching in Eppelheim: Bunte Sause für die Jüngsten
--  Roboter navigiert wie ein Insekt
--  Un unicornio ante la alergia alimentaria
--  Prince George RCMP investigating drive-by shootings
+-  Tiborcz István Magyar Péterről: „Vannak olyan emberek, akik a gazdasági életből kikerülve politikai hatalmat akarnak szerezni”
+-  Die Meldungen des Tages aus dem Burgenland
+-  UVic cuts budget by $13M citing declining international student enrolment
+-  THE MOJ: Lack of preparation may have cost the 49ers the Super Bowl
+-  THE MOJ: Lack of preparation may have cost the 49ers the Super Bowl
+-  Atlético: ir a jogo em dia de fatalidade
+-  Байдачный об СССР: «Отношения между людьми были лучше, чем сейчас. Сколько было доброты в них! Двери не закрывали, прятали ключ под дверью»
+-  Как се пише: обида или убида?
+-  Tanzgruppen, Kamelle und bunte Kostüme: „Der richtige Karneval“ – die schönsten Bilder der Kölner Veedelszüge
+-  Los 6 pasos que tienes que seguir para resintonizar los canales de la TDT en tu televisor
