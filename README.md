@@ -1,11 +1,11 @@
 # Latest News
--  학교 화장실서 용변보는 친구 훔쳐보면 ‘학폭’…중학생, 취소소송 ‘패소’
--  ජීවත්වන දේශපාලනඥයන්ගේ නම් පාසල්වලට දැමීම තහනම්
--  TP HCM dẫn đầu cả nước về số dự án FDI mới trong tháng đầu tiên năm 2024
--  이랜드문화재단, 제13회 서울국제조각페스타 참여… “中작가 특별전 구성”
--  Por um voto, Câmara dos EUA aprova impeachment de secretário de Biden em meio a crise na fronteira
--  [자막뉴스] '9,300조' 쏟아붓는다..."한국도 격랑" 전 세계 술렁
--  Spartan ‘drilling to de-risk’ strategy reveals visible gold 170m below deposit
--  Przeraża cię wizja turbulencji w czasie lotu? Jest już na to sposób
--  В Палате представителей отказались голосовать по вопросу помощи Украине
--  윤재옥 "조국 총선 출마는 입법부와 사법부 조롱"
+-  World’s largest automated terminal: PSA Tuas Port pioneering automation transformation with event-driven architecture
+-  Terör örgütleriyle iltisaklı 11 kişinin mal varlığı donduruldu
+-  Ferrari predstavio SF-24 Formula 1 bolid: Estetski različit, ali tehnički usavršen pretendent za naslov
+-  ¿Nuevo exclusivo de PlayStation? Sony registra nueva IP
+-  Mediterranean and vegetarian diets boost heart health by improving novel CVD markers
+-  Chứng khoán không phải "sòng bạc", chuyên gia chỉ ra 5 tố chất nhà đầu tư cần có để thành công
+-  PM Modi in UAE: Burj Khalifa lights up ahead of Prime Minister's address at World Government Summit | See Pics
+-  From Farjad to Rocky: 7 onscreen green flags to appreciate on Valentine’s Day
+-  Kashmir में सेना की हिरासत में नागरिकों की मौत संबंधी खबर हटाए कारवां-सरकार
+-  [포토] 화훼농장에 먼저 찾아온 봄 향기
