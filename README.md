@@ -1,11 +1,11 @@
 # Latest News
--  Реал Мадрид победи РБ Лайпциг при завръщането на Шампионска лига (ВИДЕО)
--  Тежка катастрофа в Гложене, има пострадал
--  "Ти себе бачив?": Білик звернулася до Кіркорова, який заспівав її пісню перед окупантами
--  中国EC「SHEIN」を超える？「Temu」急成長のワケは激安とワクワク！電子機器が数百円!? - ニュース3面鏡
--  Le permis de conduire dématérialisé sera généralisé dès ce mercredi
--  Τρίκαλα: Βίντεο από τον άγριο ξυλοδαρμό γνωστού δικηγόρου από ανηλίκους
--  Tomasz Lis stanął w obronie Rusin. Nie szczędził słów pod adresem Stanowskiego. "Panienka w męskim ciele"
--  Rogán haverjának fiai épp most szereztek egy 1,5 milliárd forintos céget
--  Avgörande i förlängning när Iron föll mot Flemingsberg
--  5 عقبات تحول دون اتفاق لوقف إطلاق النار بغزة
+-  Propao pokušaj da se Seria A smanji sa 20 na 18 klubova
+-  大谷翔平、肉声で拾われたジョークに米歓喜 スタッフとお茶目な交流
+-  [속보] '30억대 투자 사기·재벌 3세 사칭' 전청조, 1심서 징역 12년
+-  Лошо - Везенков аут между 4 и 6 седмици заради разкъсано сухожилие
+-  Bill Plaschke: DeShaun Foster is UCLA's new football coach? Bruins are taking a giant gamble.
+-  Amasra'daki maden faciasında ara karar açıklandı
+-  أصغر جد في العالم قصة السوري ذو الـ32 عاما
+-  Vereador de Campo Grande confirma discussões internas no União Brasil para candidatura própria
+-  מכבי ת"א גברה 0:3 על עיילבון בליגת העל בכדורעף, ניצחון גם לעמק חפר
+-  MARCHE À TOUBA - Les Baayfall n’écartent plus la violence, s’arment en conséquence et invitent les contrevenants à prendre leurs responsabilités
