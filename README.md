@@ -1,11 +1,11 @@
 # Latest News
--  الحريري استقبل سفراء ونوابا وقيادات حزبية وامنية في بيت الوسط
--  House GOP will try again to impeach Mayorkas after failing once. But outcome is still uncertain
--  Prištinski mediji veličaju Đilasovog ideologa koji poručuje: Kurti je lider koji nam je potreban! (FOTO)
--  Prates: Petrobras e Mubadala vão intensificar negociações para montar parcerias
--  Prates: Petrobras e Mubadala vão intensificar negociações para montar parcerias
--  Body Shop във Великобритания обяви фалит
--  Prates: Petrobras e Mubadala vão intensificar negociações para montar parcerias
--  "Tyvärr ser vi oroande trender i Norrköpings kommun"
--  49 best Presidents Day 2024 sales to shop before the holiday weekend
--  Des défenseurs du climat ciblent un tableau de Botticelli à Florence (vidéo)
+-  Successful in business, David Pizzo was a champion for the poor
+-  Shadow of 1998 hangs over Jakarta’s Chinatown on poll day
+-  House Urges NJC To Revisit Appointment Of High Court Judges In FCT
+-  Shadow of 1998 hangs over Jakarta’s Chinatown on poll day
+-  Shadow of 1998 hangs over Jakarta’s Chinatown on poll day
+-  Dr. Navracsics Tibor: országos példa lehet Komárom-Esztergom
+-  الفتح مكتمل الصفوف في التحضير للنصر.. وبيليتش يكثف النصائح للاعبين
+-  "Сините" са под пара: Левски договори четвърто ново попълнение
+-  Faustův dům je plný záhad. Za pýchu a nenasytnost odnesl ďábel mudrce i studenta
+-  REPORTAGE. Wie zijn de jonge ‘boerenzonen op speed’ die nu het protest in gang gestoken hebben? “Ik voel de emotionele druk: ik wil blijven boeren”
