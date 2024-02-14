@@ -1,11 +1,11 @@
 # Latest News
--  Orbán Viktor haladéktalan cselekvést követel a minisztereitől
--  Vallée de la Sévenne. Leur facture d’eau s’envole sans qu’ils ne comprennent pourquoi
--  Amazon Prime Members Can Score Last-Minute Valentine's Day Roses for Just $25 - CNET
--  Anne adayları en çok bebeğe ve kendisine bir şey olacağından korkuyor
--  Диетолог рассказала о самой отвратительной еде
--  Robert Wagner und Stefanie Powers: Wiedersehen der "Hart aber herzlich"-Stars
--  Erzincan'da Çöpler Altın Madeni’nde toprak kayması: Çok sayıda işçi göçük altında
--  Geheime Pläne von Microsoft: Windows bekommt Super-Auflösung
--  “A grande operação militar em Rafah não deve prosseguir” - Biden deixa aviso a Netanyahu
--  Amazon Prime Members Can Score Last-Minute Valentine's Day Roses for Just $25 - CNET
+-  Gürcafer'den Akan Kürşat değerlendirmesi...
+-  Rog: Ne možeš svake godine u veljači imati 10 bodova prednosti. Bit ćemo prvaci
+-  Gli agricoltori 'in marcia' su Bari, carovana di trattori e incontro con Emiliano in Regione: "A rischio le nostre aziende"
+-  Justin Bieber 'wasn't feeling' Usher's Super Bowl halftime show invite: Report
+-  Area school closures, delays for Tuesday, Feb. 13
+-  Übelkeit und Co.: Laura Maria Rypa nimmt sich eine Auszeit
+-  Εντοπίστηκε ύποπτο αντικείμενο στο κέντρο της Αθήνας
+-  CSX train derails in Morgan County
+-  Südlibanon: Frankreich schickt Friedensplan an Konfliktparteien
+-  Putin da izgubi rat? Mask: Nema šanse
