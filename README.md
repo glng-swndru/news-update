@@ -1,11 +1,11 @@
 # Latest News
--  Southend High Street unprovoked attack outside WH Smith
--  Populism trend worrying
--  Motoristas de TVDE nos EUA em greve no Dia dos Namorados
--  How the two major parties say they’ll grow the NT economy
--  Netflix's One Piece Stars Unpack Their Relationship With Oda
--  «Вашингтон» — «Колорадо»: смотреть трансляцию матча НХЛ
--  Little-Mix-Star Perrie Edwards kündigt erstes Solodebüt an
--  Who Wants to Be a Millionaire winner knew last 3 questions 'immediately' - do you?
--  Ryan Gosling First Learns About Greta Gerwig’s ‘Barbie’ Snub in Meta Oscars Teaser
--  CAN 2024 : Gros chèque de 100M pour le héros de la Côte d'Ivoire !
+-  SDAIA launches center of excellence for smart solutions
+-  מקרה חריג בגביע האזורים: שופט הפסיק משחק בגלל קללות איומות וחזר בו
+-  Hydro CEO out after rift with minister
+-  EastEnders spoilers: Ben Mitchell’s shocking exit storyline ‘confirmed’ in major revenge plot as star ends filming
+-  Még az első kapavágás sem történt meg, a BYD máris toboroz
+-  Sikorski: Unesenú poľskú lekárku prepustili na slobodu
+-  Que sont ils devenus ? Les Peluches de Marius
+-  Biden: Trumpi ähvardus NATO suunal on rumal ja häbiväärne
+-  Æfir með Chelsea út tímabilið og fer svo til Strasbourg
+-  El chirrido aleatorio de Facebook causa una confusión generalizada
