@@ -1,11 +1,11 @@
 # Latest News
--  Pencoblosan di TPS Rutan KPK Dikawal Belasan Polisi
--  Borsa: Tokyo, apertura in calo (-0,68%)
--  Leafs defenceman Morgan Rielly tried to stand up for his team. He got a five-game suspension for not being good at it
--  Daftar Tim Peserta 16 Besar Liga Champions 2023/2024
--  Meski Menang, Real Madrid Benar-benar Dibuat Menderita Oleh RB Leipzig
--  Brahim Díaz selló el triunfo ante el Leipzig
--  Morgan Rielly messed up and the Maple Leafs will be without hum for five games
--  Inclusive play works under way at Apex Park
--  《本港樓市》傳英皇集團放售非核心物業，涉逾２０億元
--  नेपाल–पोर्चुगल व्यापारिक सम्बन्धका आयामहरू: निर्यात बढाउन आवश्यक केही रणनीति
+-  학교 화장실서 용변보는 친구 훔쳐보면 ‘학폭’…중학생, 취소소송 ‘패소’
+-  ජීවත්වන දේශපාලනඥයන්ගේ නම් පාසල්වලට දැමීම තහනම්
+-  TP HCM dẫn đầu cả nước về số dự án FDI mới trong tháng đầu tiên năm 2024
+-  이랜드문화재단, 제13회 서울국제조각페스타 참여… “中작가 특별전 구성”
+-  Por um voto, Câmara dos EUA aprova impeachment de secretário de Biden em meio a crise na fronteira
+-  [자막뉴스] '9,300조' 쏟아붓는다..."한국도 격랑" 전 세계 술렁
+-  Spartan ‘drilling to de-risk’ strategy reveals visible gold 170m below deposit
+-  Przeraża cię wizja turbulencji w czasie lotu? Jest już na to sposób
+-  В Палате представителей отказались голосовать по вопросу помощи Украине
+-  윤재옥 "조국 총선 출마는 입법부와 사법부 조롱"
