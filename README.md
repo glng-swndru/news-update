@@ -1,11 +1,11 @@
 # Latest News
--  人気上昇中！《はりまとやばし》が確定申告ＰＲ「e－Taxの利用を」初テープカットに緊張!?【高知】
--  El objetivo del DNU es aumentar la competitividad en la economía y la libertad, destacó Sturzenegger
--  Guindos (BCE) aboga por no adelantarse en los recortes de tipos
--  Agriculture Ministry Introduces Free Insurance for Red Onion Cultivation
--  Em ano de eleição, bispo defende mais inclusão e menos ideologias
--  Meilės dienos proga „Saulės Kliošas“ pristato naują klipą: „Jo pavadinimas – kiek neįprastas“
--  What Is The Real Story Behind Valentine’s Day Controversy?
--  Erste Bilder: So stylish traten Usher und Jenn vor den Altar
--  Mi történik a zárt ajtók mögött? – Életét menti, ki elfut a pofonok elől
--  Berges du Trieux à Guingamp : on marchera bientôt sur la rive gauche
+-  Замглавы МИД РФ обсудил с южнокорейским послом двусторонние отношения
+-  Zoom: Kritische Lücke erlaubt Angreifern aus dem Netz die Rechteausweitung
+-  15-åring åtalas för misshandel och dödshot
+-  Suriye sınırında 4,2 büyüklüğünde deprem
+-  Kuzey Marmara Otoyolu'nda ticari taksi gişeye çarptı: 2 ağır yaralı
+-  バレンタインに「夢」バレンタインジャンボ宝くじ 鹿児島市
+-  CCOO pone a disposición de los IES una exposición sobre cultura preventiva y salud laboral
+-  Zwischen Chewy Vuiton und Cowboystiefel
+-  Die Spurenlese des Sensler Künstlers Beat Fasel
+-  Tuji supermarketi pri nas (II. del)
