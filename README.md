@@ -1,11 +1,11 @@
 # Latest News
--  Polonyalı çiftçiler, Ukrayna ile olan tüm sınır kapılarını ablukaya alacak!
--  배상문, 말레이시아에서 심폐소생술로 생명 구해
--  Arianna Meloni,no alle europee. Giorgia?Sarebbe valore aggiunto
--  Tajani, da Ue obiettivi irraggiungibili per gli agricoltori
--  Mondiali nuoto: Cocconcelli in semifinale dei 50 dorso
--  "Чакаме ротацията" и "а, a, ето това е целта": Разединените земеделци се скараха и в ефир (СНИМКИ)
--  Kütahyalı sporcular Türkiye Şampiyonasında derece aldı
--  Südamearst Viigimaa annab nõu: kuidas tunda suusamaratonil ära terviserike?
--  AB'den çiftçiler için yeni karar
--  Bursa'da kaçak göçle mücadele için düğmeye basıldı: O ilçeye GÖKSEM kurulacak!
+-  恒指升１３２點收報１５８７９，美團碧服齊漲逾５％
+-  Share the gains of Red Sea disruption with seafarers
+-  Güneş'te 100 yılda 1 olacak büyük patlama ya olacak ya olacak. Güneş yine patladı. Büyük elektrik kesintisi sürpriz olmaz. Telefon, tablet, bilgisayar şarj edin
+-  Nije mogao vjerovati, Bijač je briljirao, pogledajte reakcije srpskog komentatora u porazu od Hrvatske
+-  Vali Aslan heyelan bölgesinde incelemelerde bulundu
+-  Tres detenidos y más de 100 kilos de marihuana incautados en una plantación de interior en Torrejón del Rey
+-  Čmilytė-Nielsen Vyriausybės siūlomą SND akcizą vadina „geru kompromisu“
+-  L'intelligenza artificiale dei Galaxy non è solo per i telefoni
+-  Live Quick Count LSI: Prabowo-Gibran Unggul Drastis
+-  ハマス指導者・シンワル氏が家族と安全施設に逃げ込む様子か “地下トンネル移動”映像をイスラエル軍が公開
