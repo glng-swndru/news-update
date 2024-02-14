@@ -1,11 +1,11 @@
 # Latest News
--  A Surprising Nicolas Cage Rom-Com Has Hit Netflix's Top 10 In Time For Valentine's Day
--  Calleri espera jogo disputado contra o Santos: ‘Precisamos voltar ao caminho das vitórias’
--  Petrol Diesel Price: প্রেম দিবসে পেট্রোলের দর চড়ল চেন্নাই-সহ একাধিক শহরে, কী দর কলকাতায় ?
--  정부, 어촌 인력난 해소 적극 나선다...전문기관 공모
--  برنامه فرصت‌های تحقیقاتی‌و شبکه‌سازی در کشورهای اسلامی/قرارداد ۵ ساله برای صادرات فناوری به هند
--  국민의힘 "이재명 직접 불출마 요구, 공천 개입"
--  Islam guides us with perfect code of life, says Virk
--  El tiempo en Fene: previsión meteorológica para hoy, miércoles 14 de febrero
--  [속보]복지차관 "젊은 의사 투쟁 부추기기, 신상털기·욕설 멈춰야"
--  अर्निंग कॉल: ब्लैकबॉड 2023 के वित्तीय मार्गदर्शन से अधिक है, 2024 में आंखों की वृद्धि
+-  Police reveal electronics found at alleged mushroom cook's home
+-  Influence of social networks on financial markets – Octa overview
+-  鴻上尚史が語った『セクシー田中さん』問題の本質 「脚本家が悪い」空気の中で投稿した真意は？
+-  Aufstiegskulisse im Blick: Wie St. Pauli in Palma trainiert
+-  El cine de Medarde, hoy en El Albéitar
+-  US Senate approves billions in aid for Ukraine, Israel and Taiwan
+-  Police reveal electronics found at alleged mushroom cook's home
+-  Любовни послания за Свети Валентин
+-  ‘When you finish your cancer treatment, the euphoria is overwhelming. And then there’s the comedown it’s the lowest of the low’
+-  Novak Djokovic chuẩn bị mất ngôi số 1 thế giới
