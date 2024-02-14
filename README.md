@@ -1,11 +1,11 @@
 # Latest News
--  Successful in business, David Pizzo was a champion for the poor
--  Shadow of 1998 hangs over Jakarta’s Chinatown on poll day
--  House Urges NJC To Revisit Appointment Of High Court Judges In FCT
--  Shadow of 1998 hangs over Jakarta’s Chinatown on poll day
--  Shadow of 1998 hangs over Jakarta’s Chinatown on poll day
--  Dr. Navracsics Tibor: országos példa lehet Komárom-Esztergom
--  الفتح مكتمل الصفوف في التحضير للنصر.. وبيليتش يكثف النصائح للاعبين
--  "Сините" са под пара: Левски договори четвърто ново попълнение
--  Faustův dům je plný záhad. Za pýchu a nenasytnost odnesl ďábel mudrce i studenta
--  REPORTAGE. Wie zijn de jonge ‘boerenzonen op speed’ die nu het protest in gang gestoken hebben? “Ik voel de emotionele druk: ik wil blijven boeren”
+-  Bakıdakı dəhşətli qətlin təfərrüatı məlum oldu
+-  The pace of justice
+-  Waymo: Wut auf autonome Wagen: Feiernde fackeln in San Francisco unter Jubel ein Robo-Taxi ab
+-  الزمان والحقيقة: سطوة الزمان
+-  I dubbi delle opposizioni sul regolamento movida: "La gestione dell'ordine pubblico non spetta al Comune"
+-  Devemos retomar o potencial da parceria com África, diz Lula ao embarcar ao continente
+-  ANALÝZA: Trpělivý showman. Jak si Lauko vybojoval stálé místo v Bostonu
+-  Pavilionis: nieko nedarant Amerika gali atsibusti tik tada, kai visiems bus per vėlu
+-  【精神科医が教える】 悪口や愚痴でしか盛り上がれない人の悪いクセ・ワースト1 - 精神科医Tomyが教える 30代を悩まず生きる言葉
+-  Meghan tekent nieuwe podcastovereenkomst
