@@ -1,11 +1,11 @@
 # Latest News
--  서울교육청, 학생 분쟁 생기면 심리치료 등 전문가 투입
--  CohesityがVeritasの「NetBackup」などデータ保護事業を買収
--  The Out-of-Touch Adults' Guide to Kid Culture: How SpongeBob Won the Super Bowl
--  Live Coverage: Indonesia Decides 2024
--  チョコレートにも打撃… 異常気象の影響で、カカオの価格が高騰
--  幸せを呼ぶ「青い鳥」はどこ？ 隠し絵クイズに挑戦してみよう【バレンタイン編】
--  "고철로 팔려고"…MLB 첫 흑인 선수 로빈슨 동상 절도범 체포
--  PM In UAE: Modi To Inaugurate First Hindu Temple In Abu Dhabi Today
--  Мачовете по телевизията днес, 14 февруари
--  HERMAN: Shaping a future without scars
+-  Cawapres Cak Imin dan Mahfud MD Sudah Pamer Jari Kelingking Ungu, Sempat Lempar Candaan
+-  Художник пригрозил уничтожить 16 картин в случае смерти Ассанжа в тюрьме
+-  A Complete Guide to Every 2024 NBA All-Star Weekend Party & Event (Updating)
+-  Thứ trưởng Lê Thị Thu Hằng: Niềm tin vững chắc vào đồng bào ở nước ngoài
+-  「あの奥さんはサイコパス」次女をゴミ屋敷で殺害？ 浅草ホテル経営資産家夫妻・細谷健一と志保の「評判」と「手口」
+-  “방귀 뀌셨냐?” 배우 출신 유튜버, 택시 기사에 갑질 논란
+-  Korea prolongs tie-up with 3Ktv
+-  Още неприятности за Тръмп: Негов съветник измисли как да се наказват членовете на НАТО, които не плащат
+-  이준석 “한동훈, 尹·김여사 비호감도 낮추는 ‘양두구육’ 역할”
+-  Twitchで大流行したみんなで同時にプレイするポケモンが10周年を迎え復活
