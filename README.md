@@ -1,11 +1,11 @@
 # Latest News
--  Edirneli helvacı aile mesleğini geleneksel usullerle sürdürüyor
--  Мощна снежна буря предизвика транспортен хаос в САЩ
--  Chocan Morena y PAN en Senado por violencia
--  Cessar-fogo no Médio Oriente em negociação no Cairo. Guterres espera "sucesso" para evitar ofensiva em Rafah
--  Γεραπετρίτης: Η ελληνική υποψηφιότητα για το Συμβούλιο Ασφαλείας του ΟΗΕ θα έχει σημαντική υποστήριξη
--  Νέο τζακ ποτ στο Τζόκερ - Δείτε ποιοι αριθμοί κερδίζουν
--  Turkmenistan's energy sector surges amidst expansion efforts
--  Insólito: en plena cobertura, les robaron la cámara a periodistas de LN+ en Quilmes
--  VIDEO Aleksandra Prijović emotivnim riječima otvorila koncert: '30-ak km od mjesta u kojem sam odrasla'
--  Large turnout at NSD celebrations in Katara
+-  بازار - ۱۴۰۲/۱۱/۲۵
+-  Прогноза за времето - 14 февруари 2024 г. (сряда)
+-  施維雅達卡塔爾公開賽過關 偕國手鄭欽文晉第3圈
+-  Mumbai: HC Says Vending Outside Designated Hawking Zones 'Continued Problem', Asks BMC To Identify Issues In Removing Hawkers From Footpaths
+-  Байдън призова камарата на представителите за одобри финансирането на Украйна
+-  "Delfini" utučeni zbog poraza! Ostaje veliki žal...
+-  بهبود خفیف محیط‌ کسب‌وکار
+-  ایستگاه پایانی
+-  冬菇頭麥玲玲為Avantgardey算命
+-  Amazon customers hail £15 white noise gadget a 'game changer' for anyone who struggles to sleep
