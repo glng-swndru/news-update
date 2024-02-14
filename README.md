@@ -1,11 +1,11 @@
 # Latest News
--  Karneval in Herten 2024: Prinzessin Bianca I. (46) genießt die tollen Tage „in vollen Zügen“
--  Missing man's body found near Shepherds Lookout
--  V stredu bude polooblačné počasie s teplotami aj nad 10 stupňov
--  Посол РФ в Ватикане сообщил о готовности Папы Римского выступить посредником по Украине
--  NASTAVLJA SE NOKAUT FAZA LIGE ŠAMPIONA: Evo gde možete pratiti mečeve osmine finala elitnog takmičenja
--  Politik Güğüm - 14 Şubat 2024
--  Litter bug: dropped cigarette butt costs Wigan man dear
--  Israel tung video thủ lĩnh Hamas cùng vợ con trốn trong đường hầm ở Gaza
--  Sri Mulyani Pamer Sudah Nyoblos di TPS, Warganet Malah Debatkan Outfit yang Dipakainya
--  Ξεκινά η συζήτηση για τα ομόφυλα ζευγάρια στη Βουλή - Ποια η διαδικασία και τα καθοριστικά ερωτήματα
+-  ‘Clear window’ for AFLW as season start revealed
+-  Mantan PM Mahathir Kembali Dirawat di Rumah Sakit
+-  Преговарящите в Кайро не постигнаха споразумение за примирие в Газа
+-  Arşivler Açıldı, Binali Yıldırım'ın Felaketin Yaşandığı Madenle İlgili Sözleri Hatırlandı!
+-  Banky v lednu poskytly hypotéky za 13 miliard, meziročně o 99 procent víc
+-  Čínská ekonomika politika nemění směr, přestože nefunguje. Růst už není prioritou - Miller (video)
+-  ‘Clear window’ for AFLW as season start revealed
+-  44 са новите случаи на коронавирус у нас
+-  Kukavice, uništili smo te! Grin brutalno napao Bosanca, pomenuo i Jokića
+-  Şili'de orman yangınları devam ediyor: Yaşamını yitirenlerin sayısı 132'ye yükseldi
