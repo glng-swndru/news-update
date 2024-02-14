@@ -1,11 +1,11 @@
 # Latest News
--  Mercedes und Daimler Truck vor Gericht: Lohngleichheit nur ein Nischenthema?
--  Stock market crash today: BSE Sensex plunges 600 points, Nifty50 dips below 21,600 - Times of India
--  Chivas se lleva la victoria parcial tras finalizar el primer tiempo
--  Babar Azam remains sole top five across formats after latest ICC rankings update
--  Youssef Yesilmen spricht Klartext: Ärger über Türkspor-Abgang und große Ziele mit der SG Gahmen
--  Mercedes und Daimler Truck vor Gericht: Lohngleichheit nur ein Nischenthema?
--  After Rashami Desai, Sayantani Ghosh slams Ranveer Singh and Johnny Sins sex*al health ad; says 'Even the biggest of stars...'
--  [날씨] '서울 16도' 어제보다 따뜻…남부 곳곳 산발적 비
--  Būvniecības nozarē pērn 3,2 miljardu apgrozījums; šogad turpinās lielie objekti, bet mazāk jaunu piedāvājumu
--  북한, 대통령실 행정관 이메일 해킹…尹 현지일정 입수
+-  Copper Gains As LME Stocks Hit The Lowest Level Since September
+-  Rusi pripremaju velika preslagivanja, estonski špijuni uvjereni: ‘Sve vodi ka jednom cilju‘
+-  Red River Valley SWAT team called out 4 times in 2 weeks
+-  【速報】「工場内で作業中に爆発した」札幌市南区の自動車整備工場でバーナー使用中に”着衣に引火” 作業員の男性1人やけどで搬送
+-  Nemaz nav jālido- varam mīties arī istabā. Velotrenažieris būs tavs draugs.
+-  Механизм страхования работников от несчастных случаев изменен с 2024 года
+-  India is Bangladesh's largest export destination in Asia: Indian High Commissioner
+-  انتقاد تند ایتالیا از رژیم صهیونیستی
+-  किसानों का विरोध: दिल्ली की सीमाएं सील, यात्रियों के लिए एडवाइजरी जारी
+-  Morningstar appoints South-east Asia managing director in newly-created role
