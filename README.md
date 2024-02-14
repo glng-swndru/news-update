@@ -1,11 +1,11 @@
 # Latest News
--  أدبي الطائف يطلق اسم عالي القرشي على قاعة محاضراته
--  The ghost of Golden State is starting to make some noise
--  Splatoon 3 - Tráiler de DLC "Side Order"
--  چند راهکار ساده برای تسکین درد زانو | شایع‌ترین علل زانو درد ؛ از درد زانو اینگونه پیشگیری کنید
--  Real Madrid : la confidence franche de Tchouaméni sur le dossier Mbappé
--  McDonalds vende ramo de papas fritas este San Valentín
--  Diez causas de la infidelidad en las parejas
--  Жёсткие диски стали менее надёжными, показала статистика Backblaze за 2023 год — Seagate оказались хуже всех
--  Груев с асистенция, Лийдс взе гръмка победа навън и излезе втори
--  El telescopio espacial UVEX abrirá en 2030 nuevas vías para estudiar las galaxias
+-  Kenal YA Pacar Tamara Tyasmara, Raffi Ahmad: Cuma Teman Bermotor
+-  Le Français Bruno Irles est le nouveau coach du RWDM
+-  Tak Kamil Grabara zagrał z Manchesterem City (WIDEO)
+-  Philippe Clement insists Rangers would be Ligue 1 contenders but won't enjoy view from the summit in Scotland - Daily Record
+-  Katalog Promo Indomaret Hari ini 14 Februari 2024, Setelah Nyoblos Ada Diskon Belanja Rp 5.000
+-  Жителей Белгорода и Курской области предупредили о ракетной опасности
+-  What ChatGPT getting a memory means for you
+-  EDEN CONFIDENTIAL: The Princess of Wales's tennis club rocked by two 'inappropriate behaviour' cases
+-  The EU says iMessage can remain closed to rivals because it's not a "gatekeeper service" after all
+-  Labor-trafficking case against Palolo couple is dismissed
