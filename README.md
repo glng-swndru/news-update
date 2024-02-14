@@ -1,11 +1,11 @@
 # Latest News
--  Bankalardan sıfır faizli kredi kampanyaları
--  Ostapenko Dohā tēmēs uz iespējamo 1/4 finālu pret Švjonteku
--  Chytrá náušnice dokáže přesně měřit teplotu a vydrží měsíc na jedno nabití. Ale zatím jen v laboratoři
--  Erste Faustball-Bundesliga in der nächsten Hallensaison ohne Seekirchen
--  IZUVAO SE U EMISIJI, A ONDA URADIO NEŠTO JOŠ ODVRATNIJE! Desingerica zgrozio gledaoce, i žena ga pitala šta radi (VIDEO)
--  미국 두 번째 민간 개발 달 착륙선, 발사 하루 연기
--  Công ty cho nghỉ Tết dài hơn quy định, người lao động được tính lương thế nào?
--  ESV Grizzlys Bergkamen – Dinslakener Kobras: Samstag, 17.30 Uhr
--  Allenamento Milan pre Rennes LIVE: la rifinitura dei rossoneri alla vigilia del match di Europa League – FOTO e VIDEO
--  Aussie’s trick shot exposes Boomers woes
+-  GSP: „Te întreb bărbătește: te droghezi?". Cum a reacționat în direct preferatul lui Gigi Becali
+-  Реал і Ман Сіті перемагають в стартових матчах 1/8 фіналу ЛЧ
+-  En directo | Segunda semana de protestas en el campo: cortes y retenciones en ocho carreteras de Extremadura
+-  マンションに夫婦遺体、警察が15歳息子の逮捕状を請求 父殺害に関与か
+-  Thiago Motta Juve (CorSera), Giuntoli non lo perde di vista. E se Allegri non rinnova…
+-  Inflation remains stuck at four percent for second month - double Bank of England target
+-  Uzayda bir ilk daha: İki asteroitin yüzeyinde su tespit edildi
+-  Signzy introduces One-Touch KYC
+-  ウニ香る「うにクリ」!! 日清ラ王から濃厚で贅沢な一杯
+-  Kjaer convocato per Milan Rennes? In giornata la decisione di Pioli: cosa filtra
