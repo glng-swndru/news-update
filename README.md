@@ -1,11 +1,11 @@
 # Latest News
--  Education minister urges NI teaching unions to suspend further strike action
--  New platform supports Black women, girls on mental health journey
--  Трифонов: Къде са милионите, направени от Асен Василев? - Труд
--  Best Sports Betting Sites 2024 – Online Sportsbooks Ranked
--  Apple убедила Евросоюз, что iMessage не нужно делать более открытым
--  "Danse avec les stars" : une vedette de "Sous le soleil" refuse 30.000 euros, une somme "dérisoire" pour "se griller"
--  L'Iran condanna lo zio di Mahsa Amini a 5 anni di carcere
--  Giudice Sportivo, prima sanzione per Nicolussi Caviglia
--  Verkehr: Achtung Autofahrer: Werler Straße wird zur Großbaustelle
--  Raptors' Scottie Barnes heads to locker room early in lopsided loss to Wembanyama and Spurs
+-  Kadewere Scores First Nantes Goal
+-  Izrazite svoju ljubav na nekonvencionalan način uz ponudu Huawei uređaja
+-  Samsung radí, jak se vyznat ve značení jeho smartphonů. Z názvu odhadnete stáří i výbavu mobilu
+-  Istraživanje vojnih analitičara: Svijet troši 9% više na vojsku nego prošle godine
+-  Сирський пояснив, завдяки чому війна переходить у нову стадію
+-  Суд визначився з запобіжним заходом судді Тандиру, який насмерть збив нацгвардійця
+-  Gaza: Israels drohende Offensive auf Rafah stellt Ägypten vor ein Dilemma
+-  Премьер Украины раскрыл план использования помощи от США
+-  Kiku-Motion aus Hückeswagen: Visuelle „Nachhilfe“ für bergische Unternehmen
+-  Mujer revela que al ser diagnosticada con cáncer su esposo la abandonó | CASO VIRAL
