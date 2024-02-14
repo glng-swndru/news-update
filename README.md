@@ -1,11 +1,11 @@
 # Latest News
--  Prince Harry B.C.-bound as Invictus Games launches one-year countdown
--  Comment les élus de Brassac-les-Mines comptent réduire la facture d'électricité ?
--  Šimkovičová vyzdvihla potrebu zachovania jedinečnosti kultúr
--  Manchester United e bilionário obtêm aprovação da Premier League para compra de 25% do clube
--  Kobbie Mainoo 'set for new England role' after impressing on Manchester United scouting mission
--  „Sjokkerandi að hann hafi aldrei farið úr dönsku deildinni"
--  La inflación en Estados Unidos baja tres décimas en enero hasta el 3.1%
--  «Putins Tage sind gezählt»: Russland-Kennerin sagt, dass wir gerade den Anfang vom Ende des Kreml-Chefs erleben
--  Befutott A hercegnő és a sárkány nagy előzetese, melyben Millie Bobby Brown hősnőjét a fényes esküvőről egy sötét verembe dobják, de nem adja olyan könnyen magát
--  Comment les élus de Brassac-les-Mines comptent réduire la facture d'électricité ?
+-  Grégoire Munster will nicht wieder von den Fans ausgebuddelt werden
+-  수백억 대 대부업, 가족엔 '허위 급여'…회계사들 적발
+-  Anavatan Partisi, Kepez ve Finike Belediye Başkan adaylarını açıkladı
+-  Für Wohneigentümer steigt ab 2025 die Steuerrechnung: Der Kanton Zürich legt die Bewertung der Liegenschaften neu fest
+-  چهارمین شماره فصلنامه صنعت گل و گیاه منتشر شد
+-  Şirintepe muhtarı isyan etti
+-  Erdoğan'dan Erzincan talimatı: Tüm imkanlar seferber edilsin
+-  Twardy reset w "Pytaniu na Śniadanie" i... co dalej? W TVP przyszło nowe, ale prawdziwa rewolucja dopiero przed nami (PUDELEK OGLĄDA)
+-  Kommentar: Malcafé könnte Von-Alten-Straße in Burgwedel beleben
+-  Eurolygos kovos gali grįžti į Izraelį
