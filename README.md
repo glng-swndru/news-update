@@ -1,11 +1,11 @@
 # Latest News
--  Aswoensdag: het begin van veertig dagen bezinnen, bekering en nieuwe hoop | Commentaar
--  MORNING BID EUROPE - La remise en question de la baisse des taux d'intérêt se répercute sur les marchés
--  روزانه ۵ تا ۱۰ واحد صنفی مشاوره املاک برای ابطال پروانه به اتحادیه مراجعه می‌کنند
--  MORNING BID EUROPE-Rate cut rethink ripples across markets
--  Юлиан Костов - От Варна към Холивуд - Труд
--  Św. Walenty nie miał szczęścia w miłości. Kim był patron zakochanych?
--  Jüngste Abkehr von London: Reisekonzern TUI fliegt nach Frankfurt
--  À Quimper, la police scientifique est une aide indispensable aux enquêtes
--  "Le contact humain, c'est important": les jeunes blasés par les applications de rencontre?
--  Oroscopo di oggi (mercoledì 14 febbraio 2024): segno per segno
+-  Raffica di "telefonate truffa" ad anziani
+-  Bali commence à imposer une nouvelle taxe aux touristes étrangers
+-  Türkü Söylüyor, Terliyor! Aşık Veysel'in İnsansı Robotunu Yaptılar
+-  Wetter: Wolken und leichter Regen in Sachsen-Anhalt
+-  Dalle lamentele sulle multe "ingiuste" ai controlli intensificati. A che punto siamo sull'abbandono dei rifiuti
+-  Adiós a la TDT: Guía completa sobre el 'apagón' de la Televisión Digital Terrestre hoy miércoles, 14 de febrero
+-  Bali commence à imposer une nouvelle taxe aux touristes étrangers
+-  Feriha Tel: Şehir Planlama Dairesi’nin attığı her imza, mahkemeye taşınıyorsa büyük bir sıkıntı var demektir
+-  [포토] 의협 비상대책위 기자회견
+-  Франция заявила о соблюдении решения МОК об участии белорусов и россиян в Играх-2024
