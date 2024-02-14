@@ -1,11 +1,11 @@
 # Latest News
--  معالجة التشوه البصري
--  Плашещ клип показва как всъщност се произвеждат куклите (ВИДЕО)
--  FOTO Održan 211. Krnjeval: Pogledajte tko je Kaštelanima kriv za sve prošlogodišnje nedaće
--  Vieta kiek nusivylusi Teterevkova džiaugiasi karjeros rekordu: reiškia, dirbu teisinga linkme
--  Dopo 16 mesi nasce la Commissione di vigilanza su Cdp: controllerà come si investono i 325 miliardi di risparmio postale
--  Ashley Park makes exciting announcement after health crisis
--  ЛОША ВЕСТ ОД ЕВРОПСКАТА ЦЕНТРАЛНА БАНКА: Се соочуваме со економска криза како онаа во 2008 година?!
--  Втора Бундеслига: Обзор на 21-и кръг (13.02.2024)
--  Stevens Sloveniji priplaval finale
--  Se conoció el verdadero motivo de la separación entre Flor Vigna y Luciano Castro
+-  الحريري استقبل سفراء ونوابا وقيادات حزبية وامنية في بيت الوسط
+-  House GOP will try again to impeach Mayorkas after failing once. But outcome is still uncertain
+-  Prištinski mediji veličaju Đilasovog ideologa koji poručuje: Kurti je lider koji nam je potreban! (FOTO)
+-  Prates: Petrobras e Mubadala vão intensificar negociações para montar parcerias
+-  Prates: Petrobras e Mubadala vão intensificar negociações para montar parcerias
+-  Body Shop във Великобритания обяви фалит
+-  Prates: Petrobras e Mubadala vão intensificar negociações para montar parcerias
+-  "Tyvärr ser vi oroande trender i Norrköpings kommun"
+-  49 best Presidents Day 2024 sales to shop before the holiday weekend
+-  Des défenseurs du climat ciblent un tableau de Botticelli à Florence (vidéo)
