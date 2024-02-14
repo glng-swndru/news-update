@@ -1,11 +1,11 @@
 # Latest News
--  Bolsas da Europa sobem após CPI britânico, com balanços e juros também no radar
--  Dritte Ehe anvisiert: Boris Becker soll sich heimlich mit seiner Freundin verlobt haben
--  Hoće li biti potvrđena optužnica protiv osječkih sudaca za primanje mita od Mamića? Uskoro sjednica...
--  Legambiente, la beffa dei tagli al Pnrr per ferrovie
--  Argentina: il governo valuta tagli ai contributi per i sindacati
--  Vücut ağırlığı ile yapılan sporlar nelerdir? Evde nasıl yapılırlar?
--  Издирваният от Русия Иван Калчев: Не ме е страх, никой не ме е търсил
--  Italgas realizza in Grecia 800 Km di rete
--  Bolsas da Europa sobem após CPI britânico, com balanços e juros também no radar
--  החלוץ ששיחק בנוער של מכבי ת"א והגיע ל-מ.ס טירה מליגה הפלסטינאית
+-  NBA : Fin du calvaire pour Evan Fournier, son ancien coach s’explique
+-  İstanbul polisinden uyuşturucu ve silah kaçakçılığına darbe: 2 şüpheli yakalandı!
+-  Người Việt nô nức xuất ngoại, du lịch Tết trong nước vẫn đông nghịt
+-  Equipe de France (F) : la liste de Renard pour le Final 4 de la Ligues des Nations révélée
+-  Hiihto | Neuvostoliiton lippu liehui maailman­cupissa: ”Piti hieraista silmiä”
+-  U nastavku operativne akcije „Kodeks“ SIPA slobode lišila jedno lice
+-  مدير جمرك شحن لـعدن الغد : هدفنا الإرتقاء بالعمل الجمركي في منفذ شحن البري
+-  Você pode ajudar a encontrar Renan, um dos desaparecidos do Brasil
+-  BOCAN-HARČENKO URUČIO VUČIĆU PUTINOVU ČESTITKU Predsednik Srbije: Sretenje je praznik na koji se susreću naša istorija i državnost
+-  कांग्रेसले महासमिति बैठकमा ५६ पेजको नीति प्रस्ताव पेश गर्ने
