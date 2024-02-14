@@ -1,11 +1,11 @@
 # Latest News
--  Beşiktaş'ın yeni transferini değerlendirdi: Muci'nin hocasından flaş Szymanski yorumu!
--  Emekli Orgeneral Saldıray Berk yaşamını yitirdi
--  [SBS Star] "Korean Drama Scene Is..." Lee Jang-woo Reveals Why He Has Not Been in Any Dramas Recently
--  Крадат номерата на коли в столичен квартал (Снимки)
--  FAMILY COUNSELLOR IN MESSY FIGHT WITH EX HUBBY
--  Дейвид Камерън в София: Путин трябва да види, че е сбъркал
--  Alessandro Morelli: "Serve trovare equilibrio tra intrattenimento e dibattito sociale"
--  Российский чиновник попал в жесткое ДТП с участием микроавтобуса
--  Ръстът на БВП се забавя в края на 2023 г.
--  Ege Denizi için fırtına uyarısı
+-  La question du jour: Fêtez-vous la Saint-Valentin?
+-  Man Utd poised to appoint Dan Ashworth as sporting director – but face hefty Newcastle fee
+-  Tatar: Gaziantep’le olan ilişkilerin her gün daha da arttığını görüyoruz
+-  Особую экономическую зону «Липецк» увеличат
+-  Lakkovahdit päivystivät kuopiolaisella juomatehtaalla: "Ei mehua tälle hallitukselle"
+-  Набережночелнинские волонтеры вяжут комплекты для недоношенных детей
+-  人気グラドル・高崎かなみ、現役感あふれる制服ショットに反響「尊い」「まだまだいける」
+-  SpaceX отложила запуск частного лунного модуля из-за проблем с метановым топливом
+-  Chegou o tempo de fazer: a hora da política no Desporto
+-  Mar faulton! Newfoundland’s very own Valentine’s Day expression
