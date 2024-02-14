@@ -1,11 +1,11 @@
 # Latest News
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  10대들이 무인가게 절도…모방 범죄 우려
--  "Ils se retrouvent à quatre, cinq par stage, livrés à eux-mêmes": pourquoi les étudiants infirmiers jettent l'éponge
--  Unusual signs of Vitamin B12 deficiency
--  市営バスのドライブレコーダーを盗んだ疑い 運転手の男を逮捕 「嫌がらせ目的でとりました」
--  Siirt Valisi Kemal Kızılkaya, okul müdürleriyle bir araya geldi
--  "Je fonds..." : Adeline Toniutti sous le charme de son danseur Adrien Caby ? La prof de la Star Ac' se lâche !
--  TEMA 4 yıl önce video çekip uyarmıştı: Siyanürle altın çıkarılırsa ne olur?
--  Avrupa Komisyonu: Apple, iMessage'ı rakiplere açmak zorunda değil
--  Anyone who reckons you can’t raise kids in a flat has never done it
+-  Honda ưu đãi loạt SUV và sedan tại VN: City và CR-V giảm cao nhất gần 90 triệu, nỗ lực tăng doanh số ngay đầu năm 2024
+-  "Il m'a demandé de lui payer une p*te" : Amandine Pellissard cash sur l'un de ses enfants qui est "très ouvert"
+-  VZ Kort: Ajax neemt voor duel met NEC afscheid van Edson Álvarez
+-  Görme engelli öğretmene doğrum günü sürprizi
+-  Telefon sice při pádech neochrání, ale vypadá stylově. Na světě je magnetický kožený kryt na záda iPhonů 15 Pro
+-  SA SCHOOL TARGETED FOR TEACHING SHONA
+-  에코프로·에코프로비엠, 신용등급 ‘A’로 상향…이차전지 쾌속 질주
+-  ‘Feb 14 ka din apne mata, pita ke sath bitao’: Team India pacer Ishant Sharma’s old video resurfaces on Valentine’s Day, goes viral – WATCH
+-  Речник Священого синоду ПЦУ Євстратій Зоря: "Московський Патріархат не має канонічної юрисдикції на території Литовської держави"
+-  Độc đáo hình ảnh tê tê vàng siêu quý hiếm cõng con trên lưng ở Quảng Nam
