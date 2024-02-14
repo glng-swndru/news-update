@@ -1,11 +1,11 @@
 # Latest News
--  Já foi a Viseu conhecer os pais da namorada, 27 anos mais nova
--  Arthritis drug could prevent condition in those deemed at risk, trial finds
--  Trial offers hope for millions that jab could prevent rheumatoid arthritis - The Guardian
--  Baby delivery in Fosston is latest victim of health care executives' greed
--  Readers Write: Biden's age, Karmel Mall
--  セーヌ川沿いの古書店、パリ五輪中も存続 大統領が立ち退き断念
--  Dyp fortvilelse etter avvisning: – Nå sier dere «get the fuck out»
--  龍年開運7大招！內褲穿這5種顏色旺翻
--  Editorial cartoon: Cupid's arrow is no good here
--  「道路に穴、外環道トンネル掘進の影響低い」 狛江市などが原因調査
+-  شراكة بين قطر الخيرية و«نسيم» للرعاية الصحية
+-  Exclusivo A BOLA Neemias: «Não estou preocupado com o meu contrato»
+-  Camera Usa approva l'impeachment del ministro degli Interni
+-  San Valentín y el amor, un encuentro de imágenes y distopías
+-  පාරට බැස්ස ඉන්දීය ගොවීන්ට කඳුළු ගෑස්
+-  9 malih gestova koji će svaki dan da učine kao da je "Dan zaljubljenih"
+-  à¶´à·�à¶»à¶§ à¶¶à·�à·ƒà·Šà·ƒ à¶‰à¶±à·Šà¶¯à·“à¶º à¶œà·œà·€à·“à¶±à·Šà¶§ à¶šà¶³à·”à·…à·” à¶œà·‘à·ƒà·Š
+-  විධායක මුවහම සහ දේශපාලන නාට්ටාමිලා!
+-  У кого почти девятка? Стали известны оценки за матч Копенгагена и Ман Сити
+-  فعاليات جامعة الدوحة تنبض بالحيوية
