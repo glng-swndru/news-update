@@ -1,11 +1,11 @@
 # Latest News
--  Tiborcz István Magyar Péterről: „Vannak olyan emberek, akik a gazdasági életből kikerülve politikai hatalmat akarnak szerezni”
--  Die Meldungen des Tages aus dem Burgenland
--  UVic cuts budget by $13M citing declining international student enrolment
--  THE MOJ: Lack of preparation may have cost the 49ers the Super Bowl
--  THE MOJ: Lack of preparation may have cost the 49ers the Super Bowl
--  Atlético: ir a jogo em dia de fatalidade
--  Байдачный об СССР: «Отношения между людьми были лучше, чем сейчас. Сколько было доброты в них! Двери не закрывали, прятали ключ под дверью»
--  Как се пише: обида или убида?
--  Tanzgruppen, Kamelle und bunte Kostüme: „Der richtige Karneval“ – die schönsten Bilder der Kölner Veedelszüge
--  Los 6 pasos que tienes que seguir para resintonizar los canales de la TDT en tu televisor
+-  Seerosenorden-Gewinnerin Scheitz kündigt Perchalla-Joghurt an
+-  Los Superpibes disfrutan de la NBA en Miami
+-  Neikvæð afkomuviðvörun frá Sýn
+-  Fırat Nehri'ne siyanür sızma ihtimali var mı?
+-  Farmers’ protest: Suspension of mobile internet services extended in 7 districts of Haryana till February 15
+-  Peter John Stevens priplaval Sloveniji nastop v finalu
+-  Wees Nederland deze Duitse Songfestivalinzending af?
+-  Едмонд Назарян спечели бронзов медал на европейското по борба
+-  Oto, co szykuje nam Bruksela. Alarmujący raport
+-  Un père de famille piégé par les gendarmes de Sens à l'aide d'un faux profil d'adolescente sur un site internet
