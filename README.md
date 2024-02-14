@@ -1,11 +1,11 @@
 # Latest News
--  Blinken Speaks by Phone With Paul Whelan Held by Russia
--  A strong relationship with Türkiye is in America’s best interest
--  키움운용 ‘인도 Nifty50 ETF’ 순자산 2000억 돌파
--  Stokes’ Seven Group hikes guidance on Boral’s turnaround
--  클린스만호 내분설…“손흥민, 동료들과 다투다 골절” 영국 언론 ‘폭로’
--  Instacart to cut 250 jobs as slowing ad business counters upbeat Q1 forecast
--  인천공항 회복 ‘아직’…설 연휴 95만명, 예상보다 2만8000명 적어
--  Salesforceの元共同CEOテイラー氏、カスタマーサービスAIボット「Sierra」発表
--  Swim star’s surprise new side hustle
--  黑期低水逾100點 滙控ADR跌1.47%
+-  Pencoblosan di TPS Rutan KPK Dikawal Belasan Polisi
+-  Borsa: Tokyo, apertura in calo (-0,68%)
+-  Leafs defenceman Morgan Rielly tried to stand up for his team. He got a five-game suspension for not being good at it
+-  Daftar Tim Peserta 16 Besar Liga Champions 2023/2024
+-  Meski Menang, Real Madrid Benar-benar Dibuat Menderita Oleh RB Leipzig
+-  Brahim Díaz selló el triunfo ante el Leipzig
+-  Morgan Rielly messed up and the Maple Leafs will be without hum for five games
+-  Inclusive play works under way at Apex Park
+-  《本港樓市》傳英皇集團放售非核心物業，涉逾２０億元
+-  नेपाल–पोर्चुगल व्यापारिक सम्बन्धका आयामहरू: निर्यात बढाउन आवश्यक केही रणनीति
