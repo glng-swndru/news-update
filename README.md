@@ -1,11 +1,11 @@
 # Latest News
--  La question du jour: Fêtez-vous la Saint-Valentin?
--  Man Utd poised to appoint Dan Ashworth as sporting director – but face hefty Newcastle fee
--  Tatar: Gaziantep’le olan ilişkilerin her gün daha da arttığını görüyoruz
--  Особую экономическую зону «Липецк» увеличат
--  Lakkovahdit päivystivät kuopiolaisella juomatehtaalla: "Ei mehua tälle hallitukselle"
--  Набережночелнинские волонтеры вяжут комплекты для недоношенных детей
--  人気グラドル・高崎かなみ、現役感あふれる制服ショットに反響「尊い」「まだまだいける」
--  SpaceX отложила запуск частного лунного модуля из-за проблем с метановым топливом
--  Chegou o tempo de fazer: a hora da política no Desporto
--  Mar faulton! Newfoundland’s very own Valentine’s Day expression
+-  Bolsas da Europa sobem após CPI britânico, com balanços e juros também no radar
+-  Dritte Ehe anvisiert: Boris Becker soll sich heimlich mit seiner Freundin verlobt haben
+-  Hoće li biti potvrđena optužnica protiv osječkih sudaca za primanje mita od Mamića? Uskoro sjednica...
+-  Legambiente, la beffa dei tagli al Pnrr per ferrovie
+-  Argentina: il governo valuta tagli ai contributi per i sindacati
+-  Vücut ağırlığı ile yapılan sporlar nelerdir? Evde nasıl yapılırlar?
+-  Издирваният от Русия Иван Калчев: Не ме е страх, никой не ме е търсил
+-  Italgas realizza in Grecia 800 Km di rete
+-  Bolsas da Europa sobem após CPI britânico, com balanços e juros também no radar
+-  החלוץ ששיחק בנוער של מכבי ת"א והגיע ל-מ.ס טירה מליגה הפלסטינאית
