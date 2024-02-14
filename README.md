@@ -1,11 +1,11 @@
 # Latest News
--  Замглавы МИД РФ обсудил с южнокорейским послом двусторонние отношения
--  Zoom: Kritische Lücke erlaubt Angreifern aus dem Netz die Rechteausweitung
--  15-åring åtalas för misshandel och dödshot
--  Suriye sınırında 4,2 büyüklüğünde deprem
--  Kuzey Marmara Otoyolu'nda ticari taksi gişeye çarptı: 2 ağır yaralı
--  バレンタインに「夢」バレンタインジャンボ宝くじ 鹿児島市
--  CCOO pone a disposición de los IES una exposición sobre cultura preventiva y salud laboral
--  Zwischen Chewy Vuiton und Cowboystiefel
--  Die Spurenlese des Sensler Künstlers Beat Fasel
--  Tuji supermarketi pri nas (II. del)
+-  Λήμνος: Τραγικός θάνατος για 50χρονο - Έπεσε σε πηγάδι επτά μέτρων
+-  Gaziosmanpaşa'da veliden, öğrencilerine "arkadaşlarınızı iyi seçmelisiniz" konuşması yapan öğretmene darp iddiası
+-  طرح مناقصة إنشاء محطة لتنقية سد مياه وادي ضيقة
+-  'Allinnich Anna' is in 'prikkelearme' foarstelling. Tet Rozendal en Nynke Heeg witte wat soks is. 'Se begjnt wer op in soarte fan nul'
+-  Korban Tenggelam di Embung Lampung Tengah Ditemukan, Begini Kondisinya
+-  Servis kazasında 3 öğrenci hafif şekilde yaralandı
+-  Explainer-Did Delaware 'lock the doors' to stop companies from leaving, as Musk claims?
+-  Vučićev ministar objavio spot sa zastavom tzv. Republike Srpske Krajine: ‘Sviće neka nova zora...‘
+-  Terus Ikuti Perkembangan, Ganjar Minta Semua Pihak Tetap Tenang
+-  MK-etapil lehvis uhkelt Nõukogude Liidu lipp. Miks küll?
