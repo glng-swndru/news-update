@@ -1,11 +1,11 @@
 # Latest News
--  ВРАБОТЕНИТЕ ВО МРВ УТРЕ ЌЕ ДОБИЈАТ ПЛАТА ПУЛС - Бојмацалиев им се заблагодари за работата во смени, викенди и празници
--  Съдия Цариградска иска анализ може ли в България съдиите да получават ефективна защита
--  كاريكاتير أحمد قدورة
--  Daniela Mercury consola Ivete Sangalo após problemas em trio: 'Só foi um dia ruim'
--  Murdered Ian Ogle was attacked as he stood praying with pastor near his home, trial hears
--  South Bank Academy Trust is looking for a new executive head
--  Rennrodeln, Weltcup in Oberhof: Die Möglichkeiten der Bahn sind ausgereizt
--  Умерла писатель и искусствовед Нина Молева
--  Déviations levées, déviations maintenues... Le point sur les travaux de la RN145 en Creuse
--  Pearl Jam bringing new tour to Boston's Fenway Park
+-  Izrael tvrdi: Ovo su dokazi da Hamas koristi bolnice u Gazi
+-  Dorota Gawryluk o spekulacjach nt. swojego startu w wyborach: To zestawienie legło u podstaw plotki
+-  Merus Powerille noin 15 miljoonan euron sähkövarastotilaus – Uusi sähkövarasto vahvistaa sähköverkkoa
+-  Vasseur : L'arrivée d'Hamilton chez Ferrari n'est pas 'injuste' pour Sainz
+-  Pět partnerů vládnout nemůže, hodnotí koalici Paroubek. S Rajchlem najde řeč
+-  Roboter navigiert wie ein Insekt
+-  Kinderfasching in Eppelheim: Bunte Sause für die Jüngsten
+-  Roboter navigiert wie ein Insekt
+-  Un unicornio ante la alergia alimentaria
+-  Prince George RCMP investigating drive-by shootings
