@@ -1,11 +1,11 @@
 # Latest News
--  If You Like Devon Energy, Then You'll Love These High-Yield Oil Stocks
--  Bitcoin ETF-ovi premašili tri milijarde dolara priljeva u mjesec dana od odobrenja
--  Podcast : Financial Market Preview -Wednesday 14-Feb
--  À Toulon, les chercheurs auront trois minutes pour présenter leur thèse ce vendredi
--  Průzkum: Většina ukrajinských uprchlíků v ČR má práci a bydlení si platí sama
--  Android Safe Browsing está a ser disponibilizado para todos os utilizadores
--  Стоимость биткойна покорила новый рубеж
--  Bitcoin ETF-ovi premašili tri milijarde dolara priljeva u mjesec dana od odobrenja
--  Laurdag opnar skitrekket i Grotli: – Heilt vilt med snø
--  Verkeerschaos en onrust door sluipverkeer na afsluiting tunnels, gemeente grijpt in
+-  Deliveroo, Just Eat, Uber Eats strikes set to hit Fridays and holidays, drivers warn
+-  Coburger OB im Interview: „Sparen ist für alle schmerzhaft“
+-  Valentinstag: Dieb stiehlt Blumensträuße an Tankstelle
+-  TIENI A FRENO...LA LINGUA! - A BOLOGNA UN 46ENNE DI ORIGINI MAROCCHINE PICCHIAVA LA MOGLIE PERCHÉ NON VOLEVA CHE FREQUENTASSE IL CORSO DI ITALIANO: TEMEVA CHE LA DONNA POTESSE INCONTRARE ALTRI UOMINI - LA 44ENNE, SUA CONNAZIONALE, HA DENUNCIATO IL MARITO PER LE AGGRESSIONI SUBITE DAVANTI ALLE FIGLIE PICCOLE - L'ACCUSA DI STUPRO, MALTRATTAMENTI FISICI E PSICOLOGICI...
+-  7 Link Quick Count Pemilu 2024, Pantau Hasil Perhitungan Cepat Pemilihan Presiden Secara Online
+-  Rufisque : des cas de gastro-entérites détectés chez les enfants
+-  НБА звезда пропя за Свети Валентин
+-  Bukan ke Liverpool, Alonso Diprediksi Kuat Jadi Suksesor Guardiola di Manchester City
+-  Navijači Crne Gore bijesni zbog izjave Prosinečkog: Dužni smo iznijeti svoj stav
+-  Chelsea to make amends with young mascot left by himself at Anfield
