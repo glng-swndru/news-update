@@ -1,11 +1,11 @@
 # Latest News
--  Gürcafer'den Akan Kürşat değerlendirmesi...
--  Rog: Ne možeš svake godine u veljači imati 10 bodova prednosti. Bit ćemo prvaci
--  Gli agricoltori 'in marcia' su Bari, carovana di trattori e incontro con Emiliano in Regione: "A rischio le nostre aziende"
--  Justin Bieber 'wasn't feeling' Usher's Super Bowl halftime show invite: Report
--  Area school closures, delays for Tuesday, Feb. 13
--  Übelkeit und Co.: Laura Maria Rypa nimmt sich eine Auszeit
--  Εντοπίστηκε ύποπτο αντικείμενο στο κέντρο της Αθήνας
--  CSX train derails in Morgan County
--  Südlibanon: Frankreich schickt Friedensplan an Konfliktparteien
--  Putin da izgubi rat? Mask: Nema šanse
+-  Education minister urges NI teaching unions to suspend further strike action
+-  New platform supports Black women, girls on mental health journey
+-  Трифонов: Къде са милионите, направени от Асен Василев? - Труд
+-  Best Sports Betting Sites 2024 – Online Sportsbooks Ranked
+-  Apple убедила Евросоюз, что iMessage не нужно делать более открытым
+-  "Danse avec les stars" : une vedette de "Sous le soleil" refuse 30.000 euros, une somme "dérisoire" pour "se griller"
+-  L'Iran condanna lo zio di Mahsa Amini a 5 anni di carcere
+-  Giudice Sportivo, prima sanzione per Nicolussi Caviglia
+-  Verkehr: Achtung Autofahrer: Werler Straße wird zur Großbaustelle
+-  Raptors' Scottie Barnes heads to locker room early in lopsided loss to Wembanyama and Spurs
