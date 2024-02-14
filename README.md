@@ -1,11 +1,11 @@
 # Latest News
--  Turniej ATP w Rotterdamie: Hurkacz z awansem
--  Mort de Robert Badinter : un bilan considérable comme garde des sceaux
--  Küçükhasbahçe'de büyük panik
--  University of Idaho gets $1.8M to study how black holes in space collide
--  Michel sulla cresta dell'onda. Ma non valuta l'addio: "Credo che resterò al Girona"
--  Посол Степанов: Канада попросила еще время для ответа по делу эсэсовца Гунько
--  Fitness tracker obsession ruins woman’s life
--  Văn khấn khai trương đầu năm Giáp Thìn 2024 chuẩn nhất, cầu năm mới làm ăn phát tài
--  ALARMANTNO STANJE U FRANCUSKOJ: Porastao broj slučajeva jedne od najstarijih polno prenosivih bolesti
--  Fitness tracker obsession ruins woman’s life
+-  Já foi a Viseu conhecer os pais da namorada, 27 anos mais nova
+-  Arthritis drug could prevent condition in those deemed at risk, trial finds
+-  Trial offers hope for millions that jab could prevent rheumatoid arthritis - The Guardian
+-  Baby delivery in Fosston is latest victim of health care executives' greed
+-  Readers Write: Biden's age, Karmel Mall
+-  セーヌ川沿いの古書店、パリ五輪中も存続 大統領が立ち退き断念
+-  Dyp fortvilelse etter avvisning: – Nå sier dere «get the fuck out»
+-  龍年開運7大招！內褲穿這5種顏色旺翻
+-  Editorial cartoon: Cupid's arrow is no good here
+-  「道路に穴、外環道トンネル掘進の影響低い」 狛江市などが原因調査
