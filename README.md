@@ -1,11 +1,11 @@
 # Latest News
--  Raffica di "telefonate truffa" ad anziani
--  Bali commence à imposer une nouvelle taxe aux touristes étrangers
--  Türkü Söylüyor, Terliyor! Aşık Veysel'in İnsansı Robotunu Yaptılar
--  Wetter: Wolken und leichter Regen in Sachsen-Anhalt
--  Dalle lamentele sulle multe "ingiuste" ai controlli intensificati. A che punto siamo sull'abbandono dei rifiuti
--  Adiós a la TDT: Guía completa sobre el 'apagón' de la Televisión Digital Terrestre hoy miércoles, 14 de febrero
--  Bali commence à imposer une nouvelle taxe aux touristes étrangers
--  Feriha Tel: Şehir Planlama Dairesi’nin attığı her imza, mahkemeye taşınıyorsa büyük bir sıkıntı var demektir
--  [포토] 의협 비상대책위 기자회견
--  Франция заявила о соблюдении решения МОК об участии белорусов и россиян в Играх-2024
+-  Komentar Lare Paukovič: Vseprisotna
+-  Cork City ace Greg Bolger admits that this season may be his last before retirement
+-  Savez-vous où seront célébrés les mariages, à Nice, à partir de juin? Et ça ne sera plus qu’en mairie...
+-  3 Top-Aktien abseits der 'Magnificent 7' für Ihr Portfolio
+-  Более 60 молодых IT-специалистов начали стажироваться в правительстве Москвы
+-  "OŽENIO SAM SE MLAD I NIKADA SE NISAM POKAJAO" Ovako je počela ljubav Dejana i Nataše Milojević, slavni sportista ju je voleo do poslednjeg dana
+-  '회삿돈 횡령' 박수홍 친형 징역 2년…형수는 무죄
+-  KKTC'nin Londra Eğitim ve Kültür Ataşesi Harper’in görev süresi uzatıldı
+-  Sporting: jogo político – as razões para o afastamento de Diomande
+-  Kocaeli'de faaliyet gösteren bir firma işçi alacak!
