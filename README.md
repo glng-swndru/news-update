@@ -1,11 +1,11 @@
 # Latest News
--  SDAIA launches center of excellence for smart solutions
--  מקרה חריג בגביע האזורים: שופט הפסיק משחק בגלל קללות איומות וחזר בו
--  Hydro CEO out after rift with minister
--  EastEnders spoilers: Ben Mitchell’s shocking exit storyline ‘confirmed’ in major revenge plot as star ends filming
--  Még az első kapavágás sem történt meg, a BYD máris toboroz
--  Sikorski: Unesenú poľskú lekárku prepustili na slobodu
--  Que sont ils devenus ? Les Peluches de Marius
--  Biden: Trumpi ähvardus NATO suunal on rumal ja häbiväärne
--  Æfir með Chelsea út tímabilið og fer svo til Strasbourg
--  El chirrido aleatorio de Facebook causa una confusión generalizada
+-  Edirneli helvacı aile mesleğini geleneksel usullerle sürdürüyor
+-  Мощна снежна буря предизвика транспортен хаос в САЩ
+-  Chocan Morena y PAN en Senado por violencia
+-  Cessar-fogo no Médio Oriente em negociação no Cairo. Guterres espera "sucesso" para evitar ofensiva em Rafah
+-  Γεραπετρίτης: Η ελληνική υποψηφιότητα για το Συμβούλιο Ασφαλείας του ΟΗΕ θα έχει σημαντική υποστήριξη
+-  Νέο τζακ ποτ στο Τζόκερ - Δείτε ποιοι αριθμοί κερδίζουν
+-  Turkmenistan's energy sector surges amidst expansion efforts
+-  Insólito: en plena cobertura, les robaron la cámara a periodistas de LN+ en Quilmes
+-  VIDEO Aleksandra Prijović emotivnim riječima otvorila koncert: '30-ak km od mjesta u kojem sam odrasla'
+-  Large turnout at NSD celebrations in Katara
