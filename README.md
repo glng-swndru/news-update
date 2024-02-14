@@ -1,11 +1,11 @@
 # Latest News
--  بازار - ۱۴۰۲/۱۱/۲۵
--  Прогноза за времето - 14 февруари 2024 г. (сряда)
--  施維雅達卡塔爾公開賽過關 偕國手鄭欽文晉第3圈
--  Mumbai: HC Says Vending Outside Designated Hawking Zones 'Continued Problem', Asks BMC To Identify Issues In Removing Hawkers From Footpaths
--  Байдън призова камарата на представителите за одобри финансирането на Украйна
--  "Delfini" utučeni zbog poraza! Ostaje veliki žal...
--  بهبود خفیف محیط‌ کسب‌وکار
--  ایستگاه پایانی
--  冬菇頭麥玲玲為Avantgardey算命
--  Amazon customers hail £15 white noise gadget a 'game changer' for anyone who struggles to sleep
+-  Реал Мадрид победи РБ Лайпциг при завръщането на Шампионска лига (ВИДЕО)
+-  Тежка катастрофа в Гложене, има пострадал
+-  "Ти себе бачив?": Білик звернулася до Кіркорова, який заспівав її пісню перед окупантами
+-  中国EC「SHEIN」を超える？「Temu」急成長のワケは激安とワクワク！電子機器が数百円!? - ニュース3面鏡
+-  Le permis de conduire dématérialisé sera généralisé dès ce mercredi
+-  Τρίκαλα: Βίντεο από τον άγριο ξυλοδαρμό γνωστού δικηγόρου από ανηλίκους
+-  Tomasz Lis stanął w obronie Rusin. Nie szczędził słów pod adresem Stanowskiego. "Panienka w męskim ciele"
+-  Rogán haverjának fiai épp most szereztek egy 1,5 milliárd forintos céget
+-  Avgörande i förlängning när Iron föll mot Flemingsberg
+-  5 عقبات تحول دون اتفاق لوقف إطلاق النار بغزة
