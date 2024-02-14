@@ -1,11 +1,11 @@
 # Latest News
--  Proteste im Land: So viel Mehrheit war nie – oder?
--  В Словакии призвали разрешить игрокам из КХЛ выступать за сборную страны
--  Proteste im Land: So viel Mehrheit war nie – oder?
--  Chelsea Mencetak Sejarah Baru Klub dalam Kemenangan atas Crystal Palace
--  Była gwiazdą w "13 posterunku", nagle zniknęła bez wieści. Co teraz robi Aleksandra Woźniak?
--  “Azəriqaz”ın əməkdaşına xəsarət yetirildi
--  Dos carteristas detenidos por una treintena de robos en autobuses de Palma
--  Proteste im Land: So viel Mehrheit war nie – oder?
--  Беларусь на площадке ООН призвала уделять должное внимание проблеме санкций
--  Proteste im Land: So viel Mehrheit war nie – oder?
+-  Orbán Viktor haladéktalan cselekvést követel a minisztereitől
+-  Vallée de la Sévenne. Leur facture d’eau s’envole sans qu’ils ne comprennent pourquoi
+-  Amazon Prime Members Can Score Last-Minute Valentine's Day Roses for Just $25 - CNET
+-  Anne adayları en çok bebeğe ve kendisine bir şey olacağından korkuyor
+-  Диетолог рассказала о самой отвратительной еде
+-  Robert Wagner und Stefanie Powers: Wiedersehen der "Hart aber herzlich"-Stars
+-  Erzincan'da Çöpler Altın Madeni’nde toprak kayması: Çok sayıda işçi göçük altında
+-  Geheime Pläne von Microsoft: Windows bekommt Super-Auflösung
+-  “A grande operação militar em Rafah não deve prosseguir” - Biden deixa aviso a Netanyahu
+-  Amazon Prime Members Can Score Last-Minute Valentine's Day Roses for Just $25 - CNET
