@@ -1,11 +1,11 @@
 # Latest News
--  Avanti Nioding’s debut novel is an ode to her childhood
--  Squamish, Tsleil-Waututh nations want seats on Vancouver Police Board
--  Southampton Research Hub to run shingles vaccine trial
--  4億円かけた施設が突然閉鎖 福岡
--  Two Gosport schools could merge due to lack of pupils
--  Kapar crash: Postmortem of victims expected to be completed today
--  Baldur's Gate 3 Earns Hasbro $90 Million Since Launch
--  Squamish, Tsleil-Waututh nations want seats on Vancouver Police Board
--  出会い系アプリでのマッチングがうまくいかない理由は中古車市場の理論で説明できる
--  Southampton: People needing social care set to face increased charges
+-  Mercedes und Daimler Truck vor Gericht: Lohngleichheit nur ein Nischenthema?
+-  Stock market crash today: BSE Sensex plunges 600 points, Nifty50 dips below 21,600 - Times of India
+-  Chivas se lleva la victoria parcial tras finalizar el primer tiempo
+-  Babar Azam remains sole top five across formats after latest ICC rankings update
+-  Youssef Yesilmen spricht Klartext: Ärger über Türkspor-Abgang und große Ziele mit der SG Gahmen
+-  Mercedes und Daimler Truck vor Gericht: Lohngleichheit nur ein Nischenthema?
+-  After Rashami Desai, Sayantani Ghosh slams Ranveer Singh and Johnny Sins sex*al health ad; says 'Even the biggest of stars...'
+-  [날씨] '서울 16도' 어제보다 따뜻…남부 곳곳 산발적 비
+-  Būvniecības nozarē pērn 3,2 miljardu apgrozījums; šogad turpinās lielie objekti, bet mazāk jaunu piedāvājumu
+-  북한, 대통령실 행정관 이메일 해킹…尹 현지일정 입수
