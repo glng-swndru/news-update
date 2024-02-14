@@ -1,11 +1,11 @@
 # Latest News
--  World’s largest automated terminal: PSA Tuas Port pioneering automation transformation with event-driven architecture
--  Terör örgütleriyle iltisaklı 11 kişinin mal varlığı donduruldu
--  Ferrari predstavio SF-24 Formula 1 bolid: Estetski različit, ali tehnički usavršen pretendent za naslov
--  ¿Nuevo exclusivo de PlayStation? Sony registra nueva IP
--  Mediterranean and vegetarian diets boost heart health by improving novel CVD markers
--  Chứng khoán không phải "sòng bạc", chuyên gia chỉ ra 5 tố chất nhà đầu tư cần có để thành công
--  PM Modi in UAE: Burj Khalifa lights up ahead of Prime Minister's address at World Government Summit | See Pics
--  From Farjad to Rocky: 7 onscreen green flags to appreciate on Valentine’s Day
--  Kashmir में सेना की हिरासत में नागरिकों की मौत संबंधी खबर हटाए कारवां-सरकार
--  [포토] 화훼농장에 먼저 찾아온 봄 향기
+-  서울교육청, 학생 분쟁 생기면 심리치료 등 전문가 투입
+-  CohesityがVeritasの「NetBackup」などデータ保護事業を買収
+-  The Out-of-Touch Adults' Guide to Kid Culture: How SpongeBob Won the Super Bowl
+-  Live Coverage: Indonesia Decides 2024
+-  チョコレートにも打撃… 異常気象の影響で、カカオの価格が高騰
+-  幸せを呼ぶ「青い鳥」はどこ？ 隠し絵クイズに挑戦してみよう【バレンタイン編】
+-  "고철로 팔려고"…MLB 첫 흑인 선수 로빈슨 동상 절도범 체포
+-  PM In UAE: Modi To Inaugurate First Hindu Temple In Abu Dhabi Today
+-  Мачовете по телевизията днес, 14 февруари
+-  HERMAN: Shaping a future without scars
