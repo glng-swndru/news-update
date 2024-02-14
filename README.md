@@ -1,11 +1,11 @@
 # Latest News
--  Grégoire Munster will nicht wieder von den Fans ausgebuddelt werden
--  수백억 대 대부업, 가족엔 '허위 급여'…회계사들 적발
--  Anavatan Partisi, Kepez ve Finike Belediye Başkan adaylarını açıkladı
--  Für Wohneigentümer steigt ab 2025 die Steuerrechnung: Der Kanton Zürich legt die Bewertung der Liegenschaften neu fest
--  چهارمین شماره فصلنامه صنعت گل و گیاه منتشر شد
--  Şirintepe muhtarı isyan etti
--  Erdoğan'dan Erzincan talimatı: Tüm imkanlar seferber edilsin
--  Twardy reset w "Pytaniu na Śniadanie" i... co dalej? W TVP przyszło nowe, ale prawdziwa rewolucja dopiero przed nami (PUDELEK OGLĄDA)
--  Kommentar: Malcafé könnte Von-Alten-Straße in Burgwedel beleben
--  Eurolygos kovos gali grįžti į Izraelį
+-  Loạt 'đại bàng' muốn hạ cánh tại tỉnh đất chật người đông vừa gia nhập CLB thu hút FDI tỷ đô
+-  Britanski dostavljavci bodo na valentinovo stavkali
+-  Na smrt bolnemu trenerju so izpolnili željo, vodil bo Liverpool
+-  CSRC intensifies crackdown on fraud, misconduct
+-  Иран тренира как да удари израелска военна база с F-35 (ВИДЕО)
+-  Åbobekanta Ribs öppnar i ny tappning på ”Kungsen” i Ekenäs
+-  These companies have laid off Canadian workers in 2024
+-  Tvrde da se Elon Musk priprema za preuzimanje kojim bi opet šokirao svijet: ‘Bio bi to neviđeni potez u biznisu!‘
+-  Teen taking 28 A-Levels and 'smarter than Stephen Hawking' insists 'I have a social life'
+-  U KB Dubravu stigla s teškim ozljedama: Nasamario ju je, pretukao i zatočio, ali uspjela je pobjeći
