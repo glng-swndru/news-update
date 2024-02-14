@@ -1,11 +1,11 @@
 # Latest News
--  Cawapres Cak Imin dan Mahfud MD Sudah Pamer Jari Kelingking Ungu, Sempat Lempar Candaan
--  Художник пригрозил уничтожить 16 картин в случае смерти Ассанжа в тюрьме
--  A Complete Guide to Every 2024 NBA All-Star Weekend Party & Event (Updating)
--  Thứ trưởng Lê Thị Thu Hằng: Niềm tin vững chắc vào đồng bào ở nước ngoài
--  「あの奥さんはサイコパス」次女をゴミ屋敷で殺害？ 浅草ホテル経営資産家夫妻・細谷健一と志保の「評判」と「手口」
--  “방귀 뀌셨냐?” 배우 출신 유튜버, 택시 기사에 갑질 논란
--  Korea prolongs tie-up with 3Ktv
--  Още неприятности за Тръмп: Негов съветник измисли как да се наказват членовете на НАТО, които не плащат
--  이준석 “한동훈, 尹·김여사 비호감도 낮추는 ‘양두구육’ 역할”
--  Twitchで大流行したみんなで同時にプレイするポケモンが10周年を迎え復活
+-  A Surprising Nicolas Cage Rom-Com Has Hit Netflix's Top 10 In Time For Valentine's Day
+-  Calleri espera jogo disputado contra o Santos: ‘Precisamos voltar ao caminho das vitórias’
+-  Petrol Diesel Price: প্রেম দিবসে পেট্রোলের দর চড়ল চেন্নাই-সহ একাধিক শহরে, কী দর কলকাতায় ?
+-  정부, 어촌 인력난 해소 적극 나선다...전문기관 공모
+-  برنامه فرصت‌های تحقیقاتی‌و شبکه‌سازی در کشورهای اسلامی/قرارداد ۵ ساله برای صادرات فناوری به هند
+-  국민의힘 "이재명 직접 불출마 요구, 공천 개입"
+-  Islam guides us with perfect code of life, says Virk
+-  El tiempo en Fene: previsión meteorológica para hoy, miércoles 14 de febrero
+-  [속보]복지차관 "젊은 의사 투쟁 부추기기, 신상털기·욕설 멈춰야"
+-  अर्निंग कॉल: ब्लैकबॉड 2023 के वित्तीय मार्गदर्शन से अधिक है, 2024 में आंखों की वृद्धि
