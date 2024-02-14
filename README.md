@@ -1,11 +1,11 @@
 # Latest News
--  Kadewere Scores First Nantes Goal
--  Izrazite svoju ljubav na nekonvencionalan način uz ponudu Huawei uređaja
--  Samsung radí, jak se vyznat ve značení jeho smartphonů. Z názvu odhadnete stáří i výbavu mobilu
--  Istraživanje vojnih analitičara: Svijet troši 9% više na vojsku nego prošle godine
--  Сирський пояснив, завдяки чому війна переходить у нову стадію
--  Суд визначився з запобіжним заходом судді Тандиру, який насмерть збив нацгвардійця
--  Gaza: Israels drohende Offensive auf Rafah stellt Ägypten vor ein Dilemma
--  Премьер Украины раскрыл план использования помощи от США
--  Kiku-Motion aus Hückeswagen: Visuelle „Nachhilfe“ für bergische Unternehmen
--  Mujer revela que al ser diagnosticada con cáncer su esposo la abandonó | CASO VIRAL
+-  La nueva y divertida canción del 112: «La que has 'liao' Juanito por un huevo frito»
+-  Paikalliset seurat mukana cup-taistoissa
+-  Molk Danijela Bešiča Loredana, v poslanske klopi Uroš Brežan
+-  Американскиот Сенат одобри 60 милијарди долари за Украина - но судбината на оваа донација се уште е неизвесна
+-  Voici le top 10 des véhicules les plus volés en 2023, et le Var est un département à risque
+-  نصر الله: لن نتوقف عن قصف إسرائيل إلا بانتهاء العدوان على غزة
+-  Han får flest rubriker i HIF 2024: ”Mediernas man”
+-  Han får flest rubriker i HIF 2024: ”Mediernas man”
+-  Раскрыты райдер и гонорар певца Niletto
+-  Voici le top 10 des véhicules les plus volés en 2023, et le Var est un département à risque
