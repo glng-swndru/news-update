@@ -1,11 +1,11 @@
 # Latest News
--  Великобритания и США нанесли удары по объектам хуситов в Йемене
--  컴투스, 밸런타인데이 주요 타이틀 이벤트 전개
--  Putinovo interview u moskevských diváků propadlo, píše list
--  Bi kịch của người đàn bà phóng hoả trả thù tình nhân
--  Labor to spend $40 million selling Stage 3 ‘broken promise’ to voters
--  Penghadang saksi dipindah ke kandang Ebit Lew
--  深田えいみとの交際が報じられたイケメン医師 逮捕と改名の過去
--  Putinovo interview u moskevských diváků propadlo, píše list
--  [현장] ‘블랙리스트’ 의혹 보도에 발끈한 쿠팡 “MBC, 강력한 법적 조치한다”
--  ‘Centre must relax EWS quota norms’
+-  Avanti Nioding’s debut novel is an ode to her childhood
+-  Squamish, Tsleil-Waututh nations want seats on Vancouver Police Board
+-  Southampton Research Hub to run shingles vaccine trial
+-  4億円かけた施設が突然閉鎖 福岡
+-  Two Gosport schools could merge due to lack of pupils
+-  Kapar crash: Postmortem of victims expected to be completed today
+-  Baldur's Gate 3 Earns Hasbro $90 Million Since Launch
+-  Squamish, Tsleil-Waututh nations want seats on Vancouver Police Board
+-  出会い系アプリでのマッチングがうまくいかない理由は中古車市場の理論で説明できる
+-  Southampton: People needing social care set to face increased charges
