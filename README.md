@@ -1,11 +1,11 @@
 # Latest News
--  Cambio en la gobernación del Monumento de Santiago
--  Takács nem bírt az olimpiai bajnokkal, Lévai és Mányik kikapott a birkozó eb
--  Ermenistan Savunma Bakanlığı: "Azerbaycan'ın açtığı ateşte 4 asker öldü"
--  Malaysia's palm oil stocks hit six-month low
--  Αναστάτωση στην Ευρώπη από τις απειλές Τραμπ
--  Министр обороны Италии Гвидо Крозетто среди ночи попал в больницу
--  Сенатът в САЩ одобри помощ за Украйна, Израел и Тайван за 95 млрд. долара
--  Faixa de pedestres vira passarela para desfile de quatis no Parque do Poderes
--  Még mindig Ruandában látja a megoldást a brit kormány
--  Pferdemarkt in Leonberg: Die Zahl der Hufe ist gesunken
+-  Proteste im Land: So viel Mehrheit war nie – oder?
+-  В Словакии призвали разрешить игрокам из КХЛ выступать за сборную страны
+-  Proteste im Land: So viel Mehrheit war nie – oder?
+-  Chelsea Mencetak Sejarah Baru Klub dalam Kemenangan atas Crystal Palace
+-  Była gwiazdą w "13 posterunku", nagle zniknęła bez wieści. Co teraz robi Aleksandra Woźniak?
+-  “Azəriqaz”ın əməkdaşına xəsarət yetirildi
+-  Dos carteristas detenidos por una treintena de robos en autobuses de Palma
+-  Proteste im Land: So viel Mehrheit war nie – oder?
+-  Беларусь на площадке ООН призвала уделять должное внимание проблеме санкций
+-  Proteste im Land: So viel Mehrheit war nie – oder?
