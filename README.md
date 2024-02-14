@@ -1,11 +1,11 @@
 # Latest News
--  UEFA Avrupa Konferans Ligi'nde play-off heyecanı
--  DAX- Interne Trendlinie von doppelter Bedeutung
--  ЦБ РФ: для борьбы с мошенниками нужно ввести период охлаждения при выдаче кредитов
--  Violencia y corrupción, los temas que definirán la elección el 2 de junio
--  Mapfre gana 692 millones (+7,7%) y propone aumentar un 5,9% su dividendo complementario
--  Antona u 'Braku na prvu' živcira Nikolinin zagrljaj: 'S njom mi je nelagodno. Nije mi prirodno'
--  Maailmaa ravistelee nyt valtava rahavirtojen suunnanmuutos – Kylmähermoinen sijoittaja voi hyötyä tilanteesta kahdella tavalla
--  Правната коисия ще гледа ветото на Радев върху промените в НПК
--  Võ Hoàng Yến – Á hậu, siêu mẫu tuổi Thìn: “Thích là nhích sao phải chần chừ”
--  DAX- Interne Trendlinie von doppelter Bedeutung
+-  Polonyalı çiftçiler, Ukrayna ile olan tüm sınır kapılarını ablukaya alacak!
+-  배상문, 말레이시아에서 심폐소생술로 생명 구해
+-  Arianna Meloni,no alle europee. Giorgia?Sarebbe valore aggiunto
+-  Tajani, da Ue obiettivi irraggiungibili per gli agricoltori
+-  Mondiali nuoto: Cocconcelli in semifinale dei 50 dorso
+-  "Чакаме ротацията" и "а, a, ето това е целта": Разединените земеделци се скараха и в ефир (СНИМКИ)
+-  Kütahyalı sporcular Türkiye Şampiyonasında derece aldı
+-  Südamearst Viigimaa annab nõu: kuidas tunda suusamaratonil ära terviserike?
+-  AB'den çiftçiler için yeni karar
+-  Bursa'da kaçak göçle mücadele için düğmeye basıldı: O ilçeye GÖKSEM kurulacak!
