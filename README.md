@@ -1,11 +1,11 @@
 # Latest News
--  Popis bramkarza Realu w Lidze Mistrzów! "Królewscy" z cennym zwycięstwem
--  E, zato su oni velikani! Real i Siti napravili veliki korak ka četvrtfinalu Lige šampiona!
--  ISTRAŽIVANJA POKAZALA Evo zašto je ljubljenje veoma korisno za vaše zdravlje
--  Toy makers face dismal outlook after Hasbro’s holiday sales tank
--  Cztery gole w Kopenhadze. Kamil Grabara robił co mógł [WIDEO]
--  BC Hydro duct work approved for 32 Avenue
--  Belingema dublieris nokārto "Real" uzvaru Leipcigā, De Breinem pirmie vārti ČL sezonā
--  Rentree Venus Williams in Indian Wells; Tiger Woods keer terug bij Genesis Invitational
--  Liga Mistrzów. 14 idealnych mgnień Realu Madryt i Manchesteru City
--  Državljanin BiH sa bebom upao u rijeku, spasao ih slučajni prolaznik
+-  أدبي الطائف يطلق اسم عالي القرشي على قاعة محاضراته
+-  The ghost of Golden State is starting to make some noise
+-  Splatoon 3 - Tráiler de DLC "Side Order"
+-  چند راهکار ساده برای تسکین درد زانو | شایع‌ترین علل زانو درد ؛ از درد زانو اینگونه پیشگیری کنید
+-  Real Madrid : la confidence franche de Tchouaméni sur le dossier Mbappé
+-  McDonalds vende ramo de papas fritas este San Valentín
+-  Diez causas de la infidelidad en las parejas
+-  Жёсткие диски стали менее надёжными, показала статистика Backblaze за 2023 год — Seagate оказались хуже всех
+-  Груев с асистенция, Лийдс взе гръмка победа навън и излезе втори
+-  El telescopio espacial UVEX abrirá en 2030 nuevas vías para estudiar las galaxias
