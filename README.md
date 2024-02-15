@@ -1,11 +1,11 @@
 # Latest News
--  Pojavio se snimak iz SAD: Slavlje, pucnjava i stampedo - ovako je počeo haos /VIDEO/
--  Seemanová a Horská postoupily na plaveckém MS do semifinále
--  Occidental Petroleum в IV квартале сократил чистую прибыль на 40%
--  Заподозреният за изчезването на Маделин Маккан ще бъде изправен пред съда
--  Kürzere Wege zur Tempo-30-Tafel: Braucht Unna einen eigenen Schilderdienst?
--  Rapat Bareng Ketum Parpol, Ganjar: Kita Sepakat Tunggu Keputusan KPU
--  Ganjar: Suara PDIP Tinggi, Suara Saya Agak Anomali Ya
--  Συναγερμός στη θάλασσα του Μαρμαρά: Βυθίστηκε τουρκικό εμπορικό πλοίο - Αγνοούνται 6 άτομα
--  BOTAŞ, Hatay'da gaz kaçağı tespit edilen boru hattını onarıyor
--  [D리포트] 녹색정의, 비례연합정당 참여 내부 이견…이번 주 결론
+-  Obajtek i Kurski "pewniakami" na listach PiS? "W partii tli się bunt"
+-  Тренер «Миннесоты» оценил игру звена Капризова
+-  Pádár és Telegdy is középdöntős az úszó-világbajnokságon
+-  Hậu công khai danh tính chồng đại gia, Phạm Hương khoe màn ăn mừng 14/2 xịn xò ở Mỹ
+-  Pablo Morales lleva la música medieval de los pergaminos y la piedra hasta nuestros oídos
+-  Länger gut riechen: Ein Duft, der hält: Tipps für langanhaltendes Parfum
+-  Гърция ще узакони еднополовите бракове
+-  Bolu'nun yüksekleri beyaza büründü
+-  BM, ABD ve Rusya'dan İsrail’e “Refah” uyarısı
+-  Na cestah je pokalo več, žrtev k sreči manj
