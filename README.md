@@ -1,11 +1,11 @@
 # Latest News
--  Canada, allies warn Israel military incursion into Rafah would be catastrophic
--  “美しい髪”を鳥取の新たなおもてなしに 県内の宿泊施設でキャンペーン（鳥取市）
--  Інтерв'ю Путіна провалилося у російському ефірі
--  Người “chơi vàng” chất: Đeo hơn 7 cây vàng, ngồi trên vỉa hè bán hoa quả!
--  Elon Musk moves SpaceX to Texas after Delaware revoked his Tesla salary package - Fox Business
--  Får trolig ja til å bygge 70 nye boliger – fikk inn to reaksjoner på planene
--  Три държави предупредиха Израел да не предприема "катастрофална" операция в Рафах
--  Slam bakal beraksi di Dewan Filharmonik Petronas Jun depan
--  Lemiläisyhtiö osti 35 vuotta toimineen lappeenrantalaisyrityksen – "Näemme tämän mahdollisuutena, vaikka maailmantilanne on vaikea"
--  وفيات الخميس .. 15 / 2 / 2024
+-  인권위 “교원평가 성희롱 막아야”…교육부 “서술형 폐지”
+-  台積電衝上709元「一股賣壓襲來」股價瞬間掉下！大學長：快跑啊
+-  Paramount Global shares fall 6% after Warren Buffett cuts stake
+-  Hasil Quick Count, Partai Pengusung Amin Lolos Senayan
+-  Teen cyclists injured after crash with DUI driver in Novato
+-  2024 Daytona 500 at Daytona International Raceway Driver and Car Shots - Jayski.com
+-  KRRS criticises Centre for arresting ryots
+-  Polisi Ralat Pelaku Penganiayaan Kakek di Depok Usai Ditegur Buang Sampah Belum Ditahan
+-  Dilabel Muka Macam Jalan Tar, Wanita Sedih Kena Body Shaming Oleh Individu Di Media Sosial
+-  Safety meet: Mys DC pulls up officers for road deaths
