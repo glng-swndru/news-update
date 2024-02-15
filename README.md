@@ -1,11 +1,11 @@
 # Latest News
--  Число пострадавших во время стрельбы в Канзас-Сити возросло до 22
--  Indonesien: Offizielle Zahlen bestätigen Sieg von Prabowo
--  SpaceX lässt rund 100 Starlink-Satelliten verglühen wegen drohenden Ausfalls
--  Indonesien: Offizielle Zahlen bestätigen Sieg von Prabowo
--  Germany overtakes Japan as world’s third largest economy
--  با این غذاها پیر نمی‌شوید !
--  台籃不老野獸神話！ 林志傑生涯首獲PLG單月MVP肯定
--  SpaceX lässt rund 100 Starlink-Satelliten verglühen wegen drohenden Ausfalls
--  Roger Schmidt: «Queremos ganhar uma boa margem»
--  Loại rau giàu dưỡng chất, tốt cho sức khỏe, đem nấu canh ăn vừa mát vừa bổ
+-  Từ 1/7 cấp số định danh cá nhân cho người gốc Việt chưa xác định quốc tịch
+-  Three more money lenders arrested in Dhubri district of Assam
+-  PODD: Har fortfarande Närkerekordet – åtta år efter superloppet
+-  Por qué Raúl Alfonsín, el presidente que llevó a juicio al mal absoluto, perdurará como héroe
+-  Ngày đi làm đầu tiên sau Tết, đường phố đông đúc, người - xe chen chúc
+-  Появятся в магазинах на будущей неделе: названы цены на огурцы, которые выращены в Гродно
+-  Paid family and medical leave fails in narrow House floor vote
+-  Phát hiện 439 lượt phương tiện vi phạm tốc độ những ngày nghỉ Tết
+-  라파 참사 우려 고조…휴전 협상 진통에 네타냐후 군사 작전 고수
+-  à¶½à·�à¶‚à¶šà·’à¶šà¶ºà¶±à·Š 25à¶šà·Š à¶¸à·�à¶½à¶¯à·’à·€à¶ºà·’à¶±à·™à¶±à·Š à¶´à·’à¶§à·”à·€à·„à¶½à·Š à¶šà¶»à¶ºà·’
