@@ -1,11 +1,11 @@
 # Latest News
--  الجيش الملكي ينتزع فوزا صعبا من الزمامرة وينفرد بالصدارة(فيديو)
--  Porto (PSSA3): Morgan vê retorno ainda atrativo e reitera recomendação de compra para ação
--  Norvegijos premjeras pasmerkė vieno šalies miesto sprendimą priimti tik Ukrainos pabėgėlius
--  Buurt geeft fiets en voetganger voorrang in opknapplan Leidse Oosterkerkstraat
--  أشقاء رغم البعد الجغرافي
--  Srbi se raspisali o 'ozloglašenim' navijačima Dinama: 'Krenuli su na put, nije ih briga...'
--  كاريكاتير اليوم
--  To korenčkovo juho pa res morate pripraviti
--  “Jueguito reduccionista”: Topolansky dijo que democracia en Venezuela tiene “altibajos”
--  Mujica tras fallo en contra del Estado uruguayo: “Pluna estaba muerta hacía una década”
+-  Flamengo veta De la Cruz e Allan de duelo com Bangu em Aracaju pelo Carioca
+-  Bell Tree House, Tenby, for sale with Bryce & Co
+-  Découvrez l'adversaire de Chamalières en demi-finale de la Coupe de France féminine
+-  Junakaaos | Rata­vaurioiden aiheuttaja toden­näköisesti selvillä – Tämä miljoona­tappiot aiheuttaneista vaurioista tiedetään nyt
+-  पीएम मोदी ने मंदिर के लिए अदा किया UAE का शुक्रिया, कहा-राष्ट्रपति शेख मोहम्मद ने जीता 140 करोड़ भारतीयों का दिल
+-  Flamengo veta De la Cruz e Allan de duelo com Bangu em Aracaju pelo Carioca
+-  منذ متى بدأ الإنسان بمحاربة الإنسان؟
+-  Découvrez l'adversaire de Chamalières en demi-finale de la Coupe de France féminine
+-  Președintele Camerei SUA se opune pachetului de 95 de miliarde de dolari pentru Ucraina, Israel și Taiwan
+-  Пресконференция на Георги Дерменджиев и Квадво Дуа преди Сервет - Лудогорец
