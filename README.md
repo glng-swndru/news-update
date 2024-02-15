@@ -1,11 +1,11 @@
 # Latest News
--  «سوني» تخفض توقعات مبيعات«بلايستيشن 5» إلى 21 مليون وحدة
--  BBB 24: Equipe de Fernanda desliga integrante que divulgou vídeo editado sobre suposto assédio de Davi
--  Có tiền lì xì, gửi tiết kiệm ở ngân hàng nào hưởng lãi suất cao nhất?
--  Vì sao chứng khoán VietinBank bị xử phạt gần 400 triệu đồng?
--  Soccer-City showing same hunger for trophies as last year, says Foden
--  ارتفاع طفيف للتضخم في السعودية إلى 1.6% خلال يناير
--  Stellantis, nel 2023 utile record a 18,6 miliardi (+11%)
--  Trump: Namjerno brkam imena
--  Kastamonu’da alkollü sürücünün çarptığı anne, kızından 11 gün sonra yaşamını yitirdi
--  Tragedija u Baru: U požaru stradale četiri osobe, među njima dvije...
+-  Guerre en Ukraine en direct: un dépôt de pétrole en flammes en Russie après une attaque de drone
+-  Денков се оплете като пиленце в калчища (ВИДЕО)
+-  Простести фермерів на кордоні триватимуть? Сільгосппалата Польщі тисне на Дональда Туска
+-  강부자, 윤유선과 44년 인연…“며느리 삼고팠는데” (편스토랑)
+-  Evlerde yüzde 25 sınır var ama, Vakıflar kiracılarına çok yüksek kira zamları için ihbarname yolluyor!
+-  Population stabil: Biber in Brandenburg hat Siedlungsmöglichkeiten ausgeschöpft
+-  Warnstreik bei Bus und Bahn in Nordrhein-Westfalen
+-  Ліга чемпіонів: Лаціо переміг Баварію, ПСЖ - Реал Сосьєдад
+-  Anket: Neredeyse her beş ABD'liden biri Taylor Swift-Biden komplosuna inanıyor
+-  Veľkým pozitívom rimavskosobotskej nemocnice je odborne zdatný personál, hovorí riaditeľ Dušan Suchý
