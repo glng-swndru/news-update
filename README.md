@@ -1,11 +1,11 @@
 # Latest News
--  Ukraina-studio | Tutkija Hanna Smith: Venäjällä lasketaan leikkiä siitä, millä prosentilla Putin voittaa vaalit
--  Рубль на "Мосбирже" немного подешевел в основных парах
--  Close to €80,000 worth of medical supplies donated to Ukraine in 2022
--  Alan Varela lesionado a uma semana do FC Porto-Arsenal
--  Borker Fußballprofi Joel Grodowski gewinnt gegen BVB: „Extra-Push“ setzt starke Tor-Serie fort
--  Aplikace Beeper Mini měla posílat zprávy z Androidu na iMessage. Narazila na uzavřenou zahradu
--  Кметът на Варна недоумява как е бил назначен служител в общината с криминално минало
--  Президент подписал несколько резонансных законов
--  Türkei | Schweres Minenunglück: Neun Minenarbeiter werden vermisst
--  Trenval CEED funding for two Stirling non-profits
+-  Hajtóvadászatot indítottak a Posta ügyfeleire a csalók
+-  Veljko Birmancevic: Galatasaray'ı biliyoruz
+-  Schlag den Rodelstar: Nächste Niederlage für den Weltmeister
+-  Paris SG : le Chartrain Nicolas Cousin dans le staff des pros de Luis Enrique !
+-  Unser Akkuladegeräte-Preistipp: XTAR VC4 Plus im Test
+-  В Кремле допустили увеличение сроков СВО, отвергли возможность изменения хода спецоперации
+-  Palmarès des grandes écoles de commerce : notre méthodologie
+-  Mustafa Sandal'dan bomba paylaşım. 'Erzincan’ın yiğit evladı Binali yıldırım toprağı avuçlar'
+-  Była liderka wraca po latach. Już oficjalnie, jest komunikat
+-  "Regalo di San Valentino", colpacco ucraino: affondano la nave da sbarco di Putin in Crimea
