@@ -1,11 +1,11 @@
 # Latest News
--  In Kansas City, a tragic end to Super Bowl parade shocks community
--  看好美債「40%獲利」 億元教授砸千萬：閒錢全部買！
--  [신간] 임상시험과 임상개발 업무가 궁금한 모든 이에게 ‘초심자를 위한 임상시험 A to Z’
--  Imported luxury cars such as Audi held by US over banned part linked to forced labor in China - Fox Business
--  “테일러 스위프트, 정부 비밀요원”…美 5명 중 1명 ‘음모론’ 믿는다
--  Menang Quick Count Pilpres 2024, Gibran Bakal Sowan dengan Anies-Muhaimin dan Ganjar-Mahfud
--  'I didn't hesitate': Man helped tackle one of the alleged shooters at Kansas City Chiefs Super Bowl parade
--  Bom onder cruciaal boerenoverleg: milieuorganisaties scherp over inhoud gelekte onderhandelingsnota
--  Kỳ lạ rêu suối - Món ăn độc đáo được ví như 'vũ nữ dưới làn nước' ngày Tết của người Thái ở Tây Bắc
--  Россиянин Артем Усс рассказал о побеге из-под ареста в Италии
+-  Winterkorn-Vernehmung im Dieselprozess wird fortgesetzt
+-  삼정KPMG, 유럽 ESG 정보공시 대응 세미나 이달 21일 개최
+-  'The Fantastic Four' casts Pedro Pascal, Vanessa Kirby, Joseph Quinn, and Ebon Moss-Bachrach; Marvel supe - TOI Etimes
+-  Bundesagrarminister Özdemir zu Obstbau-Messe erwartet
+-  Suspect arrested after cart full of items stolen from Langford Walmart
+-  양양 · 속초 · 고성 등 강원 3곳 대설주의보
+-  Liga Champions: PSG Bungkam Real Sociedad 2-0
+-  Suspect arrested after cart full of items stolen from Langford Walmart
+-  Analysts revamp Robinhood inventory worth goal after earnings
+-  សម្តេចធិបតី ហ៊ុន ម៉ាណែត អញ្ជើញសម្ពោធសាកលវិទ្យាល័យជាតិគ្រប់គ្រង សាខាវាលស្បូវ
