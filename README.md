@@ -1,11 +1,11 @@
 # Latest News
--  Từ 1/7 cấp số định danh cá nhân cho người gốc Việt chưa xác định quốc tịch
--  Three more money lenders arrested in Dhubri district of Assam
--  PODD: Har fortfarande Närkerekordet – åtta år efter superloppet
--  Por qué Raúl Alfonsín, el presidente que llevó a juicio al mal absoluto, perdurará como héroe
--  Ngày đi làm đầu tiên sau Tết, đường phố đông đúc, người - xe chen chúc
--  Появятся в магазинах на будущей неделе: названы цены на огурцы, которые выращены в Гродно
--  Paid family and medical leave fails in narrow House floor vote
--  Phát hiện 439 lượt phương tiện vi phạm tốc độ những ngày nghỉ Tết
--  라파 참사 우려 고조…휴전 협상 진통에 네타냐후 군사 작전 고수
--  à¶½à·�à¶‚à¶šà·’à¶šà¶ºà¶±à·Š 25à¶šà·Š à¶¸à·�à¶½à¶¯à·’à·€à¶ºà·’à¶±à·™à¶±à·Š à¶´à·’à¶§à·”à·€à·„à¶½à·Š à¶šà¶»à¶ºà·’
+-  Antonio Conte tiết lộ nghịch lý về tham vọng của Tottenham
+-  VIDEO | Rifugio e rinascita per persone in difficoltà: ecco il Centro di accoglienza Papa Francesco
+-  В США захотели пополнить склады боеприпасов за счет Турции
+-  Schlaglöcher auf dem Dattelner Schemm: „Wir werden massiv angreifen“
+-  Faces and places: pictures of Wigan's Haigh Road over a century
+-  Sky o DAZN? La programmazione televisiva della Serie A fino alla 27^ giornata
+-  Starmer fa pulizia nel Labour: fuori gli antisemiti
+-  Rosjanie panikują i mówią o nowych rakietach z USA
+-  Wigan shopping centre staff and retailers take part in epic two-wheeled challenge for hospice
+-  Rodzinny dramat wstrząsnął sportem. Wielka gwiazda zginęła z rąk męża
