@@ -1,11 +1,11 @@
 # Latest News
--  Mahasiswa Prodi Manajemen UNM Gali Pengalaman Dunia Advertising Berbasis AI
--  Tante-M in Kleinbottwar macht wieder auf
--  Beşiktaş'ta iki futbolcu için sözleşme kararı: Santos onay verdi!
--  ¿Hubo piñas entre Demichelis y Barco? La aclaración del DT de River
--  Las chicas del Fuensport se reencuentran con la victoria en casa
--  Las chicas del Fuensport se reencuentran con la victoria en casa
--  PKW odrzuciła sprawozdanie finansowe jednej z partii. Michał Kołodziejczak w kłopocie
--  В Азербайджане будет вестись официальный реестр космических объектов
--  Reprezentacja Polski awansowała w rankingu FIFA
--  Bursa'da feci kazada kahreden detay: Abla kardeşi kaza ayırdı
+-  Parov Stelar: Ερχεται στην Ελλάδα και θα προσφέρει την πιο χορευτική βραδιά του φετινού καλοκαιριού
+-  Rusia Tuduh Duolingo Sebarkan Propaganda LGBT
+-  Сторонника «Яблока» арестовали за развратные действия против несовершеннолетней
+-  Brasserie Pausa in Venlo prikkelt de zintuigen, maar ontbeert een goede smoel
+-  Gefährliche Verkehrssituation an Gymnasien in Werne: „Es ist ein Wunder, dass noch nichts Schlimmes passiert ist“
+-  Sänkt straff för man som knivhotade kvinna
+-  オフィスは“空き旅館”！観光メインの新潟・湯沢町に企業が進出 県の“誘致数”過去最多に
+-  The Federal Government Runs a College. It Has Had Eight Presidents in Six Years.
+-  감사원, 文정부 당시 코로나 대응·국가채무 관리체계 등 감사
+-  江蘇省蘇州市の若者 超格安の家賃で老人ホームに入居 中国
