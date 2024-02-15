@@ -1,11 +1,11 @@
 # Latest News
--  Διαρκής Επιτροπή Αντιμετώπισης Βίας: Η πρώτη ποινή της νέας εποχής επιβλήθηκε στην ομάδα μπάσκετ της ΑΕΚ
--  VIDEO | In piazza Indipendenza coi trattori in doppia fila, guida Cateno De Luca: "Questo è un grido di dolore"
--  Kaos i Viaplay-aktien – men vissa investerare kan inte handla
--  米ＰＰＩ、23年12月は前月比0.2％下落に下方改定 - ロイター (Reuters Japan)
--  Vyšší inflace brzdí Fed a akciový trh se nadechuje k dalšímu růstu. Přišel verdikt k Lex ČEZ II a ekonom ČEZ komentoval plyn, elektřinu i povolenky
--  Rusi nemajú v Čiernom mori lode na odpaľovanie striel Zirkón, podľa Britov upravili systém pobrežnej obrany
--  Agro: Celoslovenský protest farmárov a gazdov sa uskutoční 19. február
--  Shell vê alta de pelo menos 50% da demanda por GNL até 2040 puxada por China
--  Harmincöt éve életveszélyben él, mégsem hagyta, hogy tönkretegyék az életét
--  Heidelberg: Feuerwehreinsatz in Neuenheim
+-  Lovren sigurno ne dolazi, Dinamo panično traži novog stopera
+-  OPEK očekuje rast tražnje za naftom
+-  Rendkívüli időpontban készül bejelentésekre a kormány - Először a kegyelmi botrány kirobbanása óta
+-  Samsung: Galaxy-S24-Serie erhält Update für Display und Kamera
+-  חיילת נהרגה מפגיעת רקטה שירה חיזבאללה לבסיס פיקוד צפון בצפת
+-  CORTE DEI CONTI CONTRO GOVERNO: LO SCAZZO CONTINUA – I MAGISTRATI CONTABILI MANIFESTANO LA LORO “CONTRARIETÀ” ALLA PROROGA DELLO SCUDO ERARIALE, APPROVATA CON UN EMENDAMENTO AL DL MILLEPROROGHE: “È UNA SCELTA CHE ESPONE IL PAESE AL RISCHIO DI SPRECO DI DENARO E DI GESTIONI OPACHE DI COMMESSE PUBBLICHE” – PAROLE CHE ARRIVANO DOPO LE BORDATE SUL PNRR DEL PROCURATORE GENERALE DELLA CORTE, PIO SILVESTRI: “SEGNALATE GIA’ DIVERSE IRREGOLARITÀ”
+-  Никки Хейли поддержала передачу российских активов Украине
+-  Mirabel-et-Blacons. Samedi 17 février, une manifestation contre la construction d’une antenne relais
+-  Zápasnice Hanzlíčková bude na ME bojovat o bronz, v semifinále těsně prohrála
+-  Fontos bejelentéseket tesz pénteken a kormány
