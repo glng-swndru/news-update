@@ -1,11 +1,11 @@
 # Latest News
--  Ovako će izgledati obeležavanje Dana državnost! Vučić uručuje odlikovanja, centralna ceremonija u Orašcu
--  Hokejisté Poruby při návratu domů zdolali Pardubice B a dál vedou o 14 bodů
--  Böblinger Aschermittwoch-Fischsuppenessen: Lisa Federle als Fastenrednerin mit Witz und Herz
--  Qatar partners with Morocco for 2024 Year of Culture
--  Država će brodarima koji su godinama gradili bespravnu luku sagraditi legalnu vrijednu više od 18 milijuna eura"
--  Ukraine droht der Awdijiwka-Verlust: Selenskyj schickt Sonderbrigade
--  Ukraine droht der Awdijiwka-Verlust: Selenskyj schickt Sonderbrigade
--  Na Zachodzie straszą? Kowal: To nic nie da, trzeba wyprodukować amunicję
--  Netanjahu verspricht „starke“ Rafah-Aktion – DW – 14.02.2024
--  Iga Świątek - Wiktoria Azarenka. Relacja live i wynik na żywo
+-  مسیر صعودی ورود خارجی‌ها
+-  CNN: Сериозната заплаха, за която алармира Майк Търнър, е свързана с Русия
+-  Product Safety Australia recalls Casio calculator over button battery fears: ‘Stop using immediately’
+-  오늘 법무장관 인사청문회…'尹친분·고소득·세금 논란' 공세 전망
+-  新花朵「蘇腫」 蘇雅琳拍劇cut機執薯片食
+-  技術取勝：中國水務上升動力增強
+-  کلنگی‌‌‌های جنوب پایتخت؛ چند؟
+-  کاهش 72درصدی بارش‌‌‌ها در یزد
+-  「龍」圖大展多搞作 《造星V》5子預告頭炮出新歌
+-  Gobierno de México afirma que gran parte de armas decomisadas en el país son originarias de Texas
