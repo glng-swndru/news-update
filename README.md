@@ -1,11 +1,11 @@
 # Latest News
--  25 Senator AS Desak Biden Dukung Gencatan Senjata di Gaza: Demi Kepentingan Nasional
--  Zurück in die City: So wird Wohnen im Zentrum von Gera wieder schick
--  פצוע קל בשריפה שפרצה בדירה ברחובות
--  "Je suis touché! Je suis touché!": un gland tombe sur sa voiture, un policier américain ouvre le feu
--  İçişleri Bakanı Yerlikaya: "İstanbul'da eş zamanlı olarak düzenlenen "KAFES-40" operasyonlarında; elebaşılığını Emre Özcan'ın yaptığı Organize Suç Örgütü, elebaşılığını Önder Küçük'ün yaptığı Organize Suç Örgütü ve elebaşılığını
--  A record-breaking 2023 and a new era for Marshall
--  ВИДЕО. ФСК Мариуполь и Тростянец разошлись миром на Зимнем кубке АФП
--  Austrālijas likumdevēji aicina ASV un Lielbritāniju atbrīvot Asanžu
--  นายกฯ หารือด่วน แก้ PM 2.5 ยก "เชียงใหม่โมเดล" แก้ได้ดี ชวนคนใช้รถสาธารณะ
--  Zuckerberg lyttää Applen uutuustuotteen ja hehkuttaa omaansa paremmaksi – hintaero moninkertainen
+-  Israël : pourquoi la poursuite de la guerre contre le Hamas est le totem d'immunité de Netanyahu
+-  A házasság és a család fontosságára hívja fel a figyelmet a házasság hete
+-  Everbergs svåra tid: ”Jag vill ha upprättelse”
+-  Il Salone immaginario
+-  Ettől kikerekedik a szemünk: Schobert Norbi ezt csinálta álmában a feleségével (videó)
+-  소금의 진실과 건강(연재6)_조기성 전 한국화학융합실험연구원장
+-  Automechanik z Budyně seděl vedle Lopraise, kamion skoro vyhrál Rallye Dakar
+-  Truth about movements of sex predators on our streets as convicted offenders move house and travel abroad
+-  Arkiruoka | Helppo ja maukas peltiruoka pelastaa arjessa
+-  Oil slips after large US crude stock build
