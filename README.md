@@ -1,11 +1,11 @@
 # Latest News
--  ❄️Winter Returns! Cold and snow on the way for Thursday - Kris
--  연습 타격부터 ‘홈런’ 행진…이정후, SF 스프링캠프 첫 합류
--  GNDP-ISELCO II Virtual
--  “보조금 된서리 피해야” 테슬라도 가격인하…모델Y 5499만원
--  Hari Ini, Dewas KPK Bacakan Putusan untuk 90 Pegawai Diduga Pungli di Rutan
--  Cận cảnh dàn xe điện VinFast sắp trình làng tại triển lãm ô tô Indonesia
--  Đúng ngày 14/2, sếp Hoàng Nam Tiến "khoe" thư tình của tướng Hoàng Đan: Chỉ một câu cũng đủ làm xao xuyến
--  CEO ACB và chiến lược ‘không thể đi ngang’
--  Federal Govt Sets Up Security Committee On Highway Projects
--  Erneut Warnstreik im NRW-Nahverkehr: Millionen Betroffene
+-  Венчени соленки с ким: Лесна рецепта, която ще ви впечатли
+-  પરેશ શાહનું ઘર હરણી તળાવથી 100 મીટર જ દૂર:ઘરે બેઠા સંચાલન કરતો, પાડોશીઓએ કહ્યું- ''એ પરિવાર સાથે અમારો કોઈ સંપર્ક નહોતો''
+-  Ripple (XRP) Could Hit $413, Here’s When
+-  Roslyn Dee: Careless owners are making the nation’s bad dogs even worse
+-  温泉のまち静岡・熱海も宿泊税導入へ 来年4月から1人1泊200円
+-  Bocados de amor de María Lafuente
+-  Γερμανία: Οι αμυντικές δαπάνες για το 2024 θα φθάσουν τον στόχο του 2% του γερμανικού ΑΕΠ
+-  La ULE abordará en una jornada el marco legal del lobo y su coexistencia
+-  El Open Museum de Botines aborda el cambio generacional
+-  Elon Musk tem bônus bilionário da Tesla barrado nos EUA; veja detalhes
