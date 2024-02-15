@@ -1,11 +1,11 @@
 # Latest News
--  Incumprimento nos bancos está em queda há oito anos
--  Export 2023 stabile sul 2022, torna surplus commerciale
--  Kasper aktuell for Harstad IL
--  Five reasons why cats prefer raw meat
--  Manuel Gößler – vom Leistungssportler zum Bürgermeister
--  Röntgenteleskop: eROSITA löst kosmologische Differenzen
--  Lazio-Bayern Monaco, Del Piero: "Prova di sacrificio. Felipe ha fatto il terzino"
--  Was man am Wochenende im Burgenland machen kann
--  Brutalni Boston – Netsi ispraćeni kući sa 50 razlike!
--  Auf die Haie wartet ein feuriges Finale in der Liga
+-  Посол Азербайджана: мы будем укреплять сотрудничество с Беларусью
+-  Konec manipulacím na STK a při měření emisí? Ministerstvo nechá stanice prověřit
+-  Malta abortion helpline gets at least one call a day, doctor tell Brussels event
+-  Bivši trener Sarajeva smijenjen sa pozicije selektora kadetske reprezentacije Hrvatske
+-  Gute Jahresbilanz 2023: Airbus will Produktion weiter erhöhen
+-  LLANTAS Y CUBIERTAS USADAS SOCIEDAD ANONIMA ILICITA
+-  ¿Qué hacer hoy en Barcelona? Agenda de actividades para hacer esta semana
+-  The Zenfone 11 Ultra with Snapdragon 8 Gen 3 has surfaced on Geekbench
+-  Danilović upitan o nastupu Jokića na Olimpijskim igrama
+-  O presente que recebeu de João Monteiro no Dia dos Namorados
