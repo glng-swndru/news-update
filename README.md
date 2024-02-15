@@ -1,11 +1,11 @@
 # Latest News
--  Yêu đương có thể khiến bạn thay đổi hoàn toàn thói quen chi tiêu
--  Франция пообещала поднять оборонные расходы до 2% ВВП в 2024 году
--  How discredited health claims find a second life on TikTok
--  Alvotech tilkynnir hvenær sala á AVT04, líftæknilyfjahliðstæðu við Stelara, getur hafist á alþjóðlegum mörkuðum
--  Aseguran que el "Estafador virtual" de Las Lomitas ahora ataca en España
--  Día del Colangiocarcinoma: ¿Qué es, por qué cada día afecta a más personas, y qué síntomas tiene?
--  Barry from Watford's tribute to BBC Radio's Steve Wright
--  Spavala s dečkom ne znajući da joj je polubrat; Za sve je kriv liječnik: ‘Taj monstrum oplodio je barem 20 žena‘
--  Denunciado ministro de Economía y Finanzas, José Arista, tiene sus defensores
--  La súper acción estrella del mercado: Nvidia, sube casi 50% en el año y se puede invertir en pesos
+-  Гришо: Това е нова седмица и нов турнир, случилото се преди е вече зад гърба ми
+-  TOP 5. Najbardziej i najmniej "paliwożerne" auta hybrydowe HEV na naszym rynku. Cz. 3
+-  India To Launch Its First Helicopter Emergency Medical Service In Uttarakhand, Announces Jyotiraditya Scindia
+-  80% of influencers don't properly disclose advertising
+-  U Srbiji svakog dana jedno dete oboli od kancera! "I ja se borim" : Obeležava se Međunarodni dan dece obolele od raka!
+-  Синоптики прогнозируют похолодание со следующей недели
+-  È morta Marina Bulgari: addio alla regina del gioiello
+-  BP и ADNOC создают СП для разработки газовых активов в Египте
+-  Генпрокуратура выясняет обстоятельства, способствовавшие гибели четверых детей в Орше
+-  Bahn-Tochter steckt tief in den roten Zahlen
