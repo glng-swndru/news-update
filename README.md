@@ -1,11 +1,11 @@
 # Latest News
--  FC Utrecht heeft eerste zomerversterking binnen en haalt middenvelder op bij Anderlecht
--  Domikaitytė ir Gaučaitė kovos dėl Europos imtynių čempionato bronzos
--  Akaryakıt Fiyatları Uçtu, Ünlü Ekonomistten Ürküten Tahmin Geldi! O Tarihte Fiyatlar Uçacak: 60 TL'yi Görebilir
--  Το Πανεπ. Κύπρου καλεί τον Τρυφωνίδη να καταθέσει στην Αστυνομία περί χρηματισμού για τις φοιτητικές εστίες
--  Pourquoi c'est important. Grève SNCF : votre train est annulé ? Voici comment vous pouvez être ...
--  Russie. Un centre commercial touché à Belgorod, au moins cinq morts et 18 blessés
--  "Il ne supportait rien" : Macha Méril, un couple parfois explosif avec Michel Legrand
--  Prezes GPW: Jestem przekonany, że atrakcyjność polskiego rynku kapitałowego wzrośnie, a „Parkiet” będzie miał co opisywać
--  FC Utrecht heeft eerste zomerversterking binnen en haalt middenvelder op bij Anderlecht
--  Vidnyánszky nem lehetett ott, ezért nem választottak új nemzet színészét
+-  Yêu đương có thể khiến bạn thay đổi hoàn toàn thói quen chi tiêu
+-  Франция пообещала поднять оборонные расходы до 2% ВВП в 2024 году
+-  How discredited health claims find a second life on TikTok
+-  Alvotech tilkynnir hvenær sala á AVT04, líftæknilyfjahliðstæðu við Stelara, getur hafist á alþjóðlegum mörkuðum
+-  Aseguran que el "Estafador virtual" de Las Lomitas ahora ataca en España
+-  Día del Colangiocarcinoma: ¿Qué es, por qué cada día afecta a más personas, y qué síntomas tiene?
+-  Barry from Watford's tribute to BBC Radio's Steve Wright
+-  Spavala s dečkom ne znajući da joj je polubrat; Za sve je kriv liječnik: ‘Taj monstrum oplodio je barem 20 žena‘
+-  Denunciado ministro de Economía y Finanzas, José Arista, tiene sus defensores
+-  La súper acción estrella del mercado: Nvidia, sube casi 50% en el año y se puede invertir en pesos
