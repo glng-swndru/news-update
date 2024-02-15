@@ -1,11 +1,11 @@
 # Latest News
--  A Killer Paradox (Netflix) : pourquoi la série fait polémique en Corée du Sud
--  Prabowo-Gibran Unggul di TPS Tempat Wali Kota Bobby Nyoblos, Sempat Lakukan Penghitungan Ulang
--  Drugi čovjek Europske središnje banke u Dnevniku o inflaciji i rizicima
--  Ma választottak volna új tagot a Nemzet Színészei, az utolsó pillanatban azonban lefújták a voksolást: ez az oka
--  Inflação no Reino Unido voltará à meta até primavera no Hemisfério Norte, diz presidente do BoE
--  «Τα Τέμπη είναι κρατικό έγκλημα με ιθύνοντες»: Χειροκροτούσαν όρθιοι την Καρυστιανού στο Ευρωκοινοβούλιο
--  Távozik Debrecenből a klubikon középpályás – hivatalos
--  KC turns red as Chiefs celebrate another Super Bowl title
--  Inflação no Reino Unido voltará à meta até primavera no Hemisfério Norte, diz presidente do BoE
--  Lanús y Sarmiento no se sacan ventaja en Junín
+-  Türkmenistanyň Döwlet howpsuzlyk geňeşiniň mejlisi
+-  "On a fait un mini-smack" : Pierre (Star Academy) lève le voile sur ce "premier baiser"
+-  «ПСЖ» — «Реал Сосьедад»: Захарян остался в запасе, младший брат Мбаппе попал в заявку
+-  Sírt a gyászmenet, Michael Jackson és Tina Turner is megjelent a pincevölgyben +videó, fotók
+-  Charytatywna Zumba w Miejskiej Górce
+-  Panaszt tettek David Pressman ellen a Külügyminisztériumban
+-  Four Hundred by Design Exceeds 2,000 Travel Advisors and Over 400 Properties Two Years After Launch
+-  İYİ Parti'den istifa eden isim sordu: Sisi mi İmamoğlu mu?
+-  West Bengal BJP chief hospitalised after scuffle with police
+-  Halldór Snær framlengir við Fjölni
