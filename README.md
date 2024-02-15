@@ -1,11 +1,11 @@
 # Latest News
--  Antonio Conte tiết lộ nghịch lý về tham vọng của Tottenham
--  VIDEO | Rifugio e rinascita per persone in difficoltà: ecco il Centro di accoglienza Papa Francesco
--  В США захотели пополнить склады боеприпасов за счет Турции
--  Schlaglöcher auf dem Dattelner Schemm: „Wir werden massiv angreifen“
--  Faces and places: pictures of Wigan's Haigh Road over a century
--  Sky o DAZN? La programmazione televisiva della Serie A fino alla 27^ giornata
--  Starmer fa pulizia nel Labour: fuori gli antisemiti
--  Rosjanie panikują i mówią o nowych rakietach z USA
--  Wigan shopping centre staff and retailers take part in epic two-wheeled challenge for hospice
--  Rodzinny dramat wstrząsnął sportem. Wielka gwiazda zginęła z rąk męża
+-  25 Senator AS Desak Biden Dukung Gencatan Senjata di Gaza: Demi Kepentingan Nasional
+-  Zurück in die City: So wird Wohnen im Zentrum von Gera wieder schick
+-  פצוע קל בשריפה שפרצה בדירה ברחובות
+-  "Je suis touché! Je suis touché!": un gland tombe sur sa voiture, un policier américain ouvre le feu
+-  İçişleri Bakanı Yerlikaya: "İstanbul'da eş zamanlı olarak düzenlenen "KAFES-40" operasyonlarında; elebaşılığını Emre Özcan'ın yaptığı Organize Suç Örgütü, elebaşılığını Önder Küçük'ün yaptığı Organize Suç Örgütü ve elebaşılığını
+-  A record-breaking 2023 and a new era for Marshall
+-  ВИДЕО. ФСК Мариуполь и Тростянец разошлись миром на Зимнем кубке АФП
+-  Austrālijas likumdevēji aicina ASV un Lielbritāniju atbrīvot Asanžu
+-  นายกฯ หารือด่วน แก้ PM 2.5 ยก "เชียงใหม่โมเดล" แก้ได้ดี ชวนคนใช้รถสาธารณะ
+-  Zuckerberg lyttää Applen uutuustuotteen ja hehkuttaa omaansa paremmaksi – hintaero moninkertainen
