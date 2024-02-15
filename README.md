@@ -1,11 +1,11 @@
 # Latest News
--  Bračni par sa fotografije ljubavi u Banjaluci bogatiji za jednog novog člana porodice
--  Prabowo Gibran Unggul Versi Quick Count, TKD Indramayu Akan Lakukan Ini, Tak Mau Euforia Berlebihan
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 15 февруари /валутен калкулатор/
--  This Guy Made a Dating App Where You Can Only Date Him
--  Prijović iz uskog kombinezona uskočila u ultrakratku haljinicu, a prava ludnica je nastala kada je stigao gost iznenađenja
--  황선우, 준결승 3위…자유형 100m 한국 최초 세계선수권 결승행
--  Bračni par sa fotografije ljubavi u Banjaluci bogatiji za jednog novog člana porodice
--  김정은 신형 지상대해상 미사일 '바다수리-6형' 검수사격 지도
--  Un muerto y nueve heridos en tiroteo en el desfile del Super Bowl en EEUU
--  Occidental Petroleum: Καλύτερα των εκτιμήσεων τα κέρδη δ’ τριμήνου, χάρη στην αύξηση της παραγωγής
+-  Samuel García acusa que el PAN y PRI logró quitarles la UIFE
+-  แท็กซี่เมาแอ๋ ชนสลด 2 ศพ วิศวกรกับครู ผัวเมียขี่จยย.
+-  PSG upravičil vlogo favorita, Bayern poražen v Rimu
+-  «Реал Сосьедад» ни разу не пробил в створ ворот «ПСЖ»
+-  Nicolas Sarkozy foi condenado a um ano de prisão após processo que durou 12 anos
+-  한동훈, 국군대전병원 방문…이국종 병원장과 면담
+-  Confirman que el viernes 23 se pagará el bono de febrero para los estatales de Río Negro
+-  Venda da soja avança 2% em Mato Grosso e alguns produtores fazem caixa, diz instituto
+-  اگر از موقعیت فعلی خود ناراضی هستید بخوانید | چگونه می‌توانم تغییر کنم؟
+-  Migrantes interceptados en frontera México-EU de diciembre a enero bajó 50%
