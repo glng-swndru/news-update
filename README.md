@@ -1,11 +1,11 @@
 # Latest News
--  Israël : pourquoi la poursuite de la guerre contre le Hamas est le totem d'immunité de Netanyahu
--  A házasság és a család fontosságára hívja fel a figyelmet a házasság hete
--  Everbergs svåra tid: ”Jag vill ha upprättelse”
--  Il Salone immaginario
--  Ettől kikerekedik a szemünk: Schobert Norbi ezt csinálta álmában a feleségével (videó)
--  소금의 진실과 건강(연재6)_조기성 전 한국화학융합실험연구원장
--  Automechanik z Budyně seděl vedle Lopraise, kamion skoro vyhrál Rallye Dakar
--  Truth about movements of sex predators on our streets as convicted offenders move house and travel abroad
--  Arkiruoka | Helppo ja maukas peltiruoka pelastaa arjessa
--  Oil slips after large US crude stock build
+-  À Campénéac, un blessé dans une collision entre une voiture et un poids lourd sur la RN24
+-  Navijači savladali napadača na paradi pobjednika Super Bowla, pogledajte snimku
+-  Llaryora llamó al consenso con críticas a Milei: "Espero que algún día me pida disculpas"
+-  Warnung vor „Gemetzel“ in Rafah
+-  Bursa Malaysia, IDX, SET and SGX to collaborate on Asean Interconnected Sustainability Ecosystem
+-  Gsellschaft steht Digitalisierung skeptischer gegenüber
+-  No hay que volverse locos
+-  Artvin-Ardahan kara yolunda heyelan!
+-  Studie: Gsellschaft steht Digitalisierung skeptischer gegenüber
+-  Pensioner with dementia waited five hours for ambulance after fall
