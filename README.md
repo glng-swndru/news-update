@@ -1,11 +1,11 @@
 # Latest News
--  El taxista que recorre los barrios más peligrosos de Guayaquil mientras trasmite en TikTok
--  У 2022-му на військового дивилися, як на "острівець безпеки", а зараз – як на небезпеку – командир підрозділу "Ахіллес" Федоренко
--  Deep tech investments in India doubling every three years, crossed $1 billion between 2021-23: Report
--  Deep tech investments in India doubling every three years, crossed $1 billion between 2021-23: Report
--  Marad a tavasz és a 10 fok feletti hőmérséklet
--  Falgun Month 2024: फाल्गुन माह कब शुरू होगा ? इस महीने के व्रत-त्योहार, महत्व, नियम यहां जानें
--  Mỹ nhân chết thảm nhất lịch sử Trung Quốc: Khi sống bị biến thành lợn người, qua đời thành thần tiên
--  મેનેજમેન્ટ ફંડા by એન રઘુરામન:નવી વસ્તુઓ શીખવા ઈચ્છો છો તો ઓબ્જર્વેશન સ્કિલ ડેવલપ કરો; કરિયરમાં થશે ફાયદો
--  Materiaaleja arvostamalla kierrättämistä paremmaksi – "Pakkausmateriaalien raaka-aine voi tulla myös Lapin luonnosta"
--  HOP TO IT: FoodShare takes the reins of Border Easter Egg Hunt
+-  Arnd Zeiglers wunderbares Fußballbuch: Worum es beim Ballspiel tatsächlich geht
+-  Im Video: So denken die Castrop-Rauxeler über die Altstadt: Was läuft gut? Was muss besser werden?
+-  Antti Tuisku esiintyi videolla – huomio kiinnittyi oudosti liikkuvaan päähän
+-  Nontshinga title rematch captures world boxing interest
+-  Tin nóng bóng đá Việt 15/2: Công Phượng tập hăng ở Nhật Bản, cầu thủ Việt kiều được U19 Séc triệu tập
+-  Нутрициолог назвал главной ошибкой всех худеющих «углеводную бомбу»
+-  BW Alstedde verpflichtet Spieler vom VfB Waltrop: Der soll zunächst im Aufstiegskampf helfen
+-  Straßensperrung in Castrop-Rauxel: Wir zeigen, wie Sie trotzdem ans Ziel kommen
+-  Barry Harry’s Kiosk „auf heißen Kohlen“: Warum die Eröffnung auf sich warten lässt
+-  Consulta popular: El presidente Daniel Noboa pone a los partidos políticos en remojo
