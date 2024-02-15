@@ -1,11 +1,11 @@
 # Latest News
--  Lovren sigurno ne dolazi, Dinamo panično traži novog stopera
--  OPEK očekuje rast tražnje za naftom
--  Rendkívüli időpontban készül bejelentésekre a kormány - Először a kegyelmi botrány kirobbanása óta
--  Samsung: Galaxy-S24-Serie erhält Update für Display und Kamera
--  חיילת נהרגה מפגיעת רקטה שירה חיזבאללה לבסיס פיקוד צפון בצפת
--  CORTE DEI CONTI CONTRO GOVERNO: LO SCAZZO CONTINUA – I MAGISTRATI CONTABILI MANIFESTANO LA LORO “CONTRARIETÀ” ALLA PROROGA DELLO SCUDO ERARIALE, APPROVATA CON UN EMENDAMENTO AL DL MILLEPROROGHE: “È UNA SCELTA CHE ESPONE IL PAESE AL RISCHIO DI SPRECO DI DENARO E DI GESTIONI OPACHE DI COMMESSE PUBBLICHE” – PAROLE CHE ARRIVANO DOPO LE BORDATE SUL PNRR DEL PROCURATORE GENERALE DELLA CORTE, PIO SILVESTRI: “SEGNALATE GIA’ DIVERSE IRREGOLARITÀ”
--  Никки Хейли поддержала передачу российских активов Украине
--  Mirabel-et-Blacons. Samedi 17 février, une manifestation contre la construction d’une antenne relais
--  Zápasnice Hanzlíčková bude na ME bojovat o bronz, v semifinále těsně prohrála
--  Fontos bejelentéseket tesz pénteken a kormány
+-  No immediate federal help coming for B.C.’s devastated fruit and wine growers
+-  Bakan Ersoy, Afrodisias Antik Kenti Tanıtım Toplantısı'na katıldı
+-  Canadian major junior leagues sued over 'atrocious' contracts for teenage hockey players
+-  Expect the market to take Ukraine's year of transition in stride
+-  Banks closing on people who need them the most: report
+-  Витае усещането, че “Мис Силикон“ няма да бъде наказана: Диана Русинова в “Отговорите“(ВИДЕО)
+-  В Україні стало більше валютних обмінників: скільки податків сплатили у 2023 році
+-  ‘Bridgerton’ Season 3 Drops Valentine’s Day Clip: Colin and Penelope’s Slow Burn Romance Heats Up in Part 1
+-  Drumgold review chair to fight claims
+-  Bajdena odmah proglasiti nesposobnim da vodi državu! U suprotnom, suditi mu za zloupotrebu položaja! Haris da preuzme SAD!
