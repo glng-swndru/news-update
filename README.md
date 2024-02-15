@@ -1,11 +1,11 @@
 # Latest News
--  مسیر صعودی ورود خارجی‌ها
--  CNN: Сериозната заплаха, за която алармира Майк Търнър, е свързана с Русия
--  Product Safety Australia recalls Casio calculator over button battery fears: ‘Stop using immediately’
--  오늘 법무장관 인사청문회…'尹친분·고소득·세금 논란' 공세 전망
--  新花朵「蘇腫」 蘇雅琳拍劇cut機執薯片食
--  技術取勝：中國水務上升動力增強
--  کلنگی‌‌‌های جنوب پایتخت؛ چند؟
--  کاهش 72درصدی بارش‌‌‌ها در یزد
--  「龍」圖大展多搞作 《造星V》5子預告頭炮出新歌
--  Gobierno de México afirma que gran parte de armas decomisadas en el país son originarias de Texas
+-  "Цар-потяг" РФ на Донбасі: експерт пояснив, у чому полягає небезпека
+-  Man Utd may not have to wait for Dan Ashworth as Newcastle agreement 'expected'
+-  Morreu o criador da bolacha norte-americana 'Pop Tart'. Tinha 96 anos
+-  Unidos do Viradouro vince il carnevale di Rio 2024
+-  Tužilaštvo traži međunarodnu pravnu pomoć: Camgoz osumnjičen da јe priјetio ministru Dukaju
+-  Prefeitura comemora público de 80 mil no Carnaval, 68 mil só na Esplanada
+-  Humble hittade nätet i hemmacomebacken
+-  『セクシー田中さん』問題、小学館の編集者一同の「泣ける声明」でも鎮火失敗のワケ - 情報戦の裏側
+-  Shots Fired Near Kansas City Chiefs' Super Bowl Parade
+-  Coronation Street spoilers: Broken Liam Connor sobs in mum Maria’s arms as bullying story takes another heart-wrenching turn
