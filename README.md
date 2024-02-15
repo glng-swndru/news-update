@@ -1,11 +1,11 @@
 # Latest News
--  Here’s why scientists are starting to buy into the Vision Pro hype
--  歷史性時刻！輝達超越Alphabet 躍升美國市值第3大公司
--  Президент России назвал Такера Карлсона опасным человеком
--  Unemployment rises to two-year high
--  CEO ACB và chiến lược ‘không thể đi ngang’
--  „Der Kroatien-Krimi“: Flucht in den Tod
--  Không để Chợ Tốt làm ‘trùm’, loạt ‘đại gia’ Tasco, Digiworld, Haxaco muốn khuấy đảo thị trường đồ cũ tỷ đô của Việt Nam
--  Nam Bộ nắng nóng ở đâu, vào thời điểm nào trong hôm nay?
--  „Kein Ende in Sicht“: „Simpsons“-Erfinder Groening wird 70
--  Jason Kelce Says Several Celebrities Wanted to Meet Taylor Swift in Super Bowl Suite
+-  In Kansas City, a tragic end to Super Bowl parade shocks community
+-  看好美債「40%獲利」 億元教授砸千萬：閒錢全部買！
+-  [신간] 임상시험과 임상개발 업무가 궁금한 모든 이에게 ‘초심자를 위한 임상시험 A to Z’
+-  Imported luxury cars such as Audi held by US over banned part linked to forced labor in China - Fox Business
+-  “테일러 스위프트, 정부 비밀요원”…美 5명 중 1명 ‘음모론’ 믿는다
+-  Menang Quick Count Pilpres 2024, Gibran Bakal Sowan dengan Anies-Muhaimin dan Ganjar-Mahfud
+-  'I didn't hesitate': Man helped tackle one of the alleged shooters at Kansas City Chiefs Super Bowl parade
+-  Bom onder cruciaal boerenoverleg: milieuorganisaties scherp over inhoud gelekte onderhandelingsnota
+-  Kỳ lạ rêu suối - Món ăn độc đáo được ví như 'vũ nữ dưới làn nước' ngày Tết của người Thái ở Tây Bắc
+-  Россиянин Артем Усс рассказал о побеге из-под ареста в Италии
