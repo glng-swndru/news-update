@@ -1,11 +1,11 @@
 # Latest News
--  I Ferragnez superano lo "stallo social": video di San Valentino. Ma lei...
--  Le riserve della Russia si riducono, ma la rete di sicurezza fiscale potrebbe durare anni
--  Sport Magazín: kouč Svědík i nový seriál k domácím MS v hokeji
--  ”Ottaa pahasti aivoon” – Näin Tesla rokottaa perinnemerkeiltä miljardeja
--  Ako imate ovaj problem sa Facebookom, evo jednostavnog rešenja
--  Marko jubelt na overstap Hamilton: "Sensationeel, beter dan Netflix!"
--  Change to flood gates on £32m Aberaeron scheme given backing
--  Vald kulutab sotsiaaltranspordile jätkuvalt pool miljonit aastas
--  Brand in Hollabrunn - Autos umgeparkt: „Drei Minuten später ist das Vordach eingebrochen“
--  Poput droge je: Evo što se događa vašem mozgu kada ste zaljubljeni
+-  Талалаев — о Скворцове: «Адиев настаивает на постоянной игровой практике для вызова в сборную Казахстана»
+-  Даугавпилчанка установила мобильное приложение и стала жертвой мошенников
+-  Eindhoven Airport in 2027 vijf maanden gesloten, 3 miljoen reizigers moeten naar andere vliegvelden
+-  Real Count KPU DPD RI Jabar, Perolehan Suara Komeng Melambung Tinggi, Hahaha
+-  No Funchal, uma capela que há muito não é capela mostra arte sob o olhar de uma santa
+-  POVREDE GA UNIŠTAVAJU Nadal otkrio da li mrzi tenis, pa progovorio o sinu
+-  OTSE | Valitsus otsustas algatada eriplaneeringu kaitsetööstuspargi loomiseks
+-  Nach Aufruf bei „Aktenzeichen XY“: Etliche neue Hinweise auf Ex-RAF-Terroristen
+-  CUP: Vlada više da se posveti zahtjevima privrede
+-  Q&A: Election 2024 Fake-Out
