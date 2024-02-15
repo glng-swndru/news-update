@@ -1,11 +1,11 @@
 # Latest News
--  Acadêmica de enfermagem morre após colisão de moto em poste no Mato Grosso
--  Още една страна влиза в коалицията за дронове за Украйна
--  Democratas conquistam vaga de George Santos no Congresso dos EUA
--  Airbnb prijavio gubitak zbog velikog spora u Italiji
--  Gergin toplantının ardından İYİ Parti Ankara İl Başkanı Yener Yıldırım görevden alındı
--  Kırsal Kalkınma Destekleri başvuru süresi uzatıldı!
--  Gray Area Gallery to open in Norwich with gun-shot pottery
--  Lo Monaco: "Napoli, non si può sopportare ciò che è successo. E' incredibile"
--  Wagenknecht nennt Ampel-Koalition „gefährlichste Regierung in Europa“
--  BAPS Hindu Mandir: అబుదాబిలో మొదటి హిందూ రాతి ఆలయాన్ని ప్రారంభించిన ప్రధాని నరేంద్ర మోదీ, వీడియో ఇదిగో..
+-  Steve Wright's cause of death - what we know so far as BBC Radio 2 host found dead at home
+-  Riforme: da 7 giorni 'fantasma' giurì d'onore in Senato, La Russa 'non lo convocherò'/Rpt
+-  Jürgen Klinsmanns Südkorea im Asian Cup: Son ging auf Mitspieler los - Finger ausgekugelt
+-  Huancayo: Joven va a fiesta y aparece muerto, sus tres amigos son detenidos como sospechosos
+-  Štuhec po diskvalifikaciji Bosanke pridobila eno mesto
+-  Red Bull confirme que Horner assistera demain au lancement de la RB20
+-  JAKA KONKURENCIJA Čak 90 plesača u Splitu se borilo za posao na europskim daskama
+-  لیگ دسته اول فوتبال| تداوم صدرنشینی چادرملو در روز توقف فجر/ بُردهای مهم خیبر و نفت مسجدسلیمان
+-  Pharmacist-Led Care Transitions: Best Practices
+-  Na mariborski srednji šoli se je za pusta oblekel v kukluksklanovca #video
