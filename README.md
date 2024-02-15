@@ -1,11 +1,11 @@
 # Latest News
--  Parov Stelar: Ερχεται στην Ελλάδα και θα προσφέρει την πιο χορευτική βραδιά του φετινού καλοκαιριού
--  Rusia Tuduh Duolingo Sebarkan Propaganda LGBT
--  Сторонника «Яблока» арестовали за развратные действия против несовершеннолетней
--  Brasserie Pausa in Venlo prikkelt de zintuigen, maar ontbeert een goede smoel
--  Gefährliche Verkehrssituation an Gymnasien in Werne: „Es ist ein Wunder, dass noch nichts Schlimmes passiert ist“
--  Sänkt straff för man som knivhotade kvinna
--  オフィスは“空き旅館”！観光メインの新潟・湯沢町に企業が進出 県の“誘致数”過去最多に
--  The Federal Government Runs a College. It Has Had Eight Presidents in Six Years.
--  감사원, 文정부 당시 코로나 대응·국가채무 관리체계 등 감사
--  江蘇省蘇州市の若者 超格安の家賃で老人ホームに入居 中国
+-  30 yaşına gelmeden bu alışkanlıklardan vazgeçin!
+-  Beutezug in Holzwickede und Umgebung: Dieb (47) benötigt Geld für Drogen
+-  '이자 캐시백 선착순'…보이스피싱 기승에 '소비자경보'
+-  Dubbla melloartister till årets Hallsbergsmässa
+-  Winter weather travel advisory in effect for the Sault and surrounding areas
+-  Ρωσία: Απορρίπτει προειδοποίηση των ΗΠΑ για πυρηνικές δυνατότητες στο διάστημα
+-  POBEGLA KOD MILOJKA, ON BIO HARMONIKAŠ, RODILA DEJANA SA 15 GODINA I OSTAVILA GA Komšije za Kurir: Zorica otišla da ganja karijeru
+-  「仕事なめんなよ！辞めろ」市長が“パワハラ発言”釈明に追われる…「子ども産んで初めて女に」“セクハラ疑惑”も 福岡・宮若市
+-  Горнолыжница Гирина победила в слаломе на Спартакиаде 2024
+-  陳俊翰辭世 民眾黨：謝謝為身障及罕病弱勢挺身而出
