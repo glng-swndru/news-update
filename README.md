@@ -1,11 +1,11 @@
 # Latest News
--  Britain to be blasted by 10-day polar bomb with 11cm of snow covering parts of England
--  Anant- Radhika Wedding: आतिशबाजी के साथ शुरू हुए अनंत- राधिका के प्री वेडिंग फंक्शन, ब्लैक शेरवानी में खूब जंचे 'दुल्हन' के पापा
--  Supreme Court of India Law Clerk application deadline today; apply for 90 posts at main.sci.gov.in
--  Scaysbrook fires five-under round to be equal-fourth at Cypress Lakes
--  Meghan act that made Queen ‘uncomfortable’
--  Colère des agriculteurs : Emmanuel Macron "a pris la mesure" de la crise, estime la Coordination rurale
--  Thêm một đường dây lừa đảo qua mạng quy mô lớn bị triệt phá
--  [트윗시황] "BTC 현물 ETF, 매입 평균가는 42.5K"
--  Wojtek Sawicki z "Life on Wheelz" publikuje nowe zdjęcie: "Ja zadowolony po WALENTYNKOWYM SEKSIE"
--  NRW revenue up 6.7pc
+-  Pojavio se snimak iz SAD: Slavlje, pucnjava i stampedo - ovako je počeo haos /VIDEO/
+-  Seemanová a Horská postoupily na plaveckém MS do semifinále
+-  Occidental Petroleum в IV квартале сократил чистую прибыль на 40%
+-  Заподозреният за изчезването на Маделин Маккан ще бъде изправен пред съда
+-  Kürzere Wege zur Tempo-30-Tafel: Braucht Unna einen eigenen Schilderdienst?
+-  Rapat Bareng Ketum Parpol, Ganjar: Kita Sepakat Tunggu Keputusan KPU
+-  Ganjar: Suara PDIP Tinggi, Suara Saya Agak Anomali Ya
+-  Συναγερμός στη θάλασσα του Μαρμαρά: Βυθίστηκε τουρκικό εμπορικό πλοίο - Αγνοούνται 6 άτομα
+-  BOTAŞ, Hatay'da gaz kaçağı tespit edilen boru hattını onarıyor
+-  [D리포트] 녹색정의, 비례연합정당 참여 내부 이견…이번 주 결론
