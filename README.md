@@ -1,11 +1,11 @@
 # Latest News
--  Steve Wright's cause of death - what we know so far as BBC Radio 2 host found dead at home
--  Riforme: da 7 giorni 'fantasma' giurì d'onore in Senato, La Russa 'non lo convocherò'/Rpt
--  Jürgen Klinsmanns Südkorea im Asian Cup: Son ging auf Mitspieler los - Finger ausgekugelt
--  Huancayo: Joven va a fiesta y aparece muerto, sus tres amigos son detenidos como sospechosos
--  Štuhec po diskvalifikaciji Bosanke pridobila eno mesto
--  Red Bull confirme que Horner assistera demain au lancement de la RB20
--  JAKA KONKURENCIJA Čak 90 plesača u Splitu se borilo za posao na europskim daskama
--  لیگ دسته اول فوتبال| تداوم صدرنشینی چادرملو در روز توقف فجر/ بُردهای مهم خیبر و نفت مسجدسلیمان
--  Pharmacist-Led Care Transitions: Best Practices
--  Na mariborski srednji šoli se je za pusta oblekel v kukluksklanovca #video
+-  Da rottamazione quater 6,8 miliardi, decaduti 5,4 miliardi
+-  Geri manevra yapan kamyonetin altında kalan kadın hayatını kaybetti
+-  Thấy chồng cũ đột nhiên giàu có, người phụ nữ đòi bồi thường 3 tỷ đồng: Kết quả cuối cùng ít ai ngờ đến
+-  Kühleffekt von Wäldern: Wiederaufforstung schützte den Osten der USA vor Hitze
+-  Uber Aktie gefragt: Uber kündigt Aktienrückkauf an
+-  Izbrisala je vse sledove zveze
+-  Vládní spor o zákaz HHC. Čtyři strany ho prosadily, Piráti navrhovali jiné řešení
+-  Вносят органику, известкуют почвы. Аграрии Минской области готовятся к весенней посевной
+-  Termómetros ultrapassam os 20 graus em todo o país
+-  Nelle scuole siciliane si parlerà anche la lingua siciliana: via al progetto da 200 mila euro
