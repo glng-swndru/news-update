@@ -1,11 +1,11 @@
 # Latest News
--  Magdalena Biejat kandydatką Lewicy i stowaryszenia Miasto Jest Nasze w Warszawie
--  El Pontedeume, en una dura recta final para la salvación
--  손흥민 vs 이강인 몸싸움, 클린스만과 축구협회 책임은?
--  SAT Lima promueve el pago de los impuestos que vencen el 29 de febrero
--  賴登門探視 阿嬤鐵粉：足歡喜
--  米莉遭獻祭鬥惡龍 勇敢顛覆想像
--  Americans want action on guns, but Republicans don’t have a plan
--  Delivery, ride service job action targets date night in US, UK
--  ‘Our clothes make a powerful statement’: How to be comfortable and look sharp in the new world of work
--  年代致歉 嗆告越南地接毀商譽
+-  Bračni par sa fotografije ljubavi u Banjaluci bogatiji za jednog novog člana porodice
+-  Prabowo Gibran Unggul Versi Quick Count, TKD Indramayu Akan Lakukan Ini, Tak Mau Euforia Berlebihan
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 15 февруари /валутен калкулатор/
+-  This Guy Made a Dating App Where You Can Only Date Him
+-  Prijović iz uskog kombinezona uskočila u ultrakratku haljinicu, a prava ludnica je nastala kada je stigao gost iznenađenja
+-  황선우, 준결승 3위…자유형 100m 한국 최초 세계선수권 결승행
+-  Bračni par sa fotografije ljubavi u Banjaluci bogatiji za jednog novog člana porodice
+-  김정은 신형 지상대해상 미사일 '바다수리-6형' 검수사격 지도
+-  Un muerto y nueve heridos en tiroteo en el desfile del Super Bowl en EEUU
+-  Occidental Petroleum: Καλύτερα των εκτιμήσεων τα κέρδη δ’ τριμήνου, χάρη στην αύξηση της παραγωγής
