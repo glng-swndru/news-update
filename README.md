@@ -1,11 +1,11 @@
 # Latest News
--  Ako je suditi po priči iz Zagreba, Hrvatska je već u finalu: Čudo od igrača je zaustavljeno, protivnik razbijen
--  Medford teen finds success as varsity esports captain
--  Rui Rocha vs Paulo Raimundo: oiça aqui o debate entre os líderes da IL e do PCP
--  Biłgoraj: Kamera sprawdzi straty
--  Нефтебаза загорелась в Курской области после атаки украинского дрона
--  ¿Cuánto gana un cajero de Banco Azteca? Estos son los salarios en 2024
--  Đơn hàng thủy sản ồ ạt đổ về, doanh nghiệp Bà Rịa-Vũng Tàu xoay đủ kiểu, sao cơ hội vẫn tuột khỏi tay?
--  Nach Wasserschaden: Bremerhavens „Pier 6“ hat schlechte Nachrichten für Gäste
--  Barselona za rastanak sa vezistom traži 100 miliona
--  Gündə neçə dilim çörək yeməliyik?
+-  Province spends $16M to upgrade wildfire fighting equipment
+-  Grandfather dies after losing $1m life savings
+-  [아주증시포커스] [美 CPI 후폭풍] 미국채 연중 최고치…국내 채권 시장도 '급등' 外
+-  주가 조작으로 6,600억 부당이득…단일 종목 사상 최대
+-  Que se preocupa com o colapso da floresta amazônica?
+-  Empresa a media luz: CFE corta la luz de nueva cuenta a Altos Hornos de México
+-  'Paesi arabi limitano capacità raid Usa su alleati Iran'
+-  Surge in new office supply to prompt rejig
+-  Com desfile sobre força da mulher negra, Viradouro é campeã do Carnaval do Rio
+-  Com desfile sobre força da mulher negra, Viradouro é campeã do Carnaval do Rio
