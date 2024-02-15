@@ -1,11 +1,11 @@
 # Latest News
--  Rally set at Minnesota Capitol in support of more fertility insurance
--  Nagłe zmiany w Żandarmerii Wojskowej. Szef MON odwołał komendanta głównego i jego zastępcę
--  Плавание, бег, стрельба. Чемпионат Западного оперативного командования проходит в Гродно
--  Najhitrejša Kira Weidle, Ilka Štuhec dosegla 15. čas
--  VUČIĆ PRISUSTVUJE PRIKAZU NAORUŽANJA VOJSKE SRBIJE Predsednik iz Niša šalje moćnu poruku: Naše je da zaštitimo ljude!
--  Jak sądy w Rosji kneblują usta ludziom? Kary od przedszkola do cmentarza
--  Hafta sonundan beri etkili olan kar sebebiyle evler bile kar altında kaldı. Son yılların en yoğun kar yağışını gören Ardahan'da karla mücadele sürüyor
--  Ivan Jakovčić nam otkrio: Baš letim za Bangkok! Neće moja ljubav na Valentinovo biti sama
--  Bell CEO, other execs called to committee to testify over recent job cuts
--  Bursa'da uluslararası öğrencilerin katılımıyla 40 Hadis Yarışması yapıldı
+-  Acadêmica de enfermagem morre após colisão de moto em poste no Mato Grosso
+-  Още една страна влиза в коалицията за дронове за Украйна
+-  Democratas conquistam vaga de George Santos no Congresso dos EUA
+-  Airbnb prijavio gubitak zbog velikog spora u Italiji
+-  Gergin toplantının ardından İYİ Parti Ankara İl Başkanı Yener Yıldırım görevden alındı
+-  Kırsal Kalkınma Destekleri başvuru süresi uzatıldı!
+-  Gray Area Gallery to open in Norwich with gun-shot pottery
+-  Lo Monaco: "Napoli, non si può sopportare ciò che è successo. E' incredibile"
+-  Wagenknecht nennt Ampel-Koalition „gefährlichste Regierung in Europa“
+-  BAPS Hindu Mandir: అబుదాబిలో మొదటి హిందూ రాతి ఆలయాన్ని ప్రారంభించిన ప్రధాని నరేంద్ర మోదీ, వీడియో ఇదిగో..
