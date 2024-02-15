@@ -1,11 +1,11 @@
 # Latest News
--  Pink paruka a průhledná kabelka: Sharlota slavila bez manžela a na Valentýna šla z domu!
--  Bauernproteste: Landrat Dirk Neubauer nimmt Landwirte in Freiberg in Schutz
--  Travis Kelce says he shouldn't have bumped Chiefs coach Andy Reid during the Super Bowl
--  A korai és a késői kamatvágás is kockázatos
--  De vlag kan uit voor de salderingsregeling. Maar voor hoe lang? | DVHN commentaar
--  Bitcoin-Kurs vorhersagen? Mit diesem Indikator soll das gehen
--  Větrovský pro Expres: Soukalová během natáčení plakala, na Van Dammovi jsem prodělal!
--  Forsvarsevne i en ny verden
--  PlayStation 5: próximo grande jogo original só em 2025
--  Once a cycling champion, B.C.’s Svein Tuft has learned how to slow down
+-  الجيش الملكي ينتزع فوزا صعبا من الزمامرة وينفرد بالصدارة(فيديو)
+-  Porto (PSSA3): Morgan vê retorno ainda atrativo e reitera recomendação de compra para ação
+-  Norvegijos premjeras pasmerkė vieno šalies miesto sprendimą priimti tik Ukrainos pabėgėlius
+-  Buurt geeft fiets en voetganger voorrang in opknapplan Leidse Oosterkerkstraat
+-  أشقاء رغم البعد الجغرافي
+-  Srbi se raspisali o 'ozloglašenim' navijačima Dinama: 'Krenuli su na put, nije ih briga...'
+-  كاريكاتير اليوم
+-  To korenčkovo juho pa res morate pripraviti
+-  “Jueguito reduccionista”: Topolansky dijo que democracia en Venezuela tiene “altibajos”
+-  Mujica tras fallo en contra del Estado uruguayo: “Pluna estaba muerta hacía una década”
