@@ -1,11 +1,11 @@
 # Latest News
--  Pedro Scooby rebate internauta e defende Cintia Dicker
--  Ruski predsjednik Putin kaže da je Rusija blizu stvaranja cjepiva protiv raka
--  Ranking do FT traz as melhores escolas e cursos de MBA do mundo; confira lista
--  Kurum: Erzincan'daki işletme 135 kez denetlendi
--  ATA AGE FWA 158 GERACAO DE BIOENERGIA S.A
--  Feyenoord lijkt door vergevorderde onderhandelingen naast Rodríguez te grijpen
--  Corse : Gérald Darmanin veut débuter d'ici «fin février» la rédaction du projet d'autonomie
--  Covenant Clearinghouse Engages Prominent Attorney Lawrence S. Robbins of Friedman Kaplan
--  Covid: bagarre alla Camera su commissione, seduta sospesa (2)
--  La peor trampa de Youtube: por qué se volvió peligroso para nuestras tarjetas y billeteras
+-  Puchar Narodów Afryki. Wybrano symboliczną drużynę turnieju i najlepszego trenera
+-  Global Biosimilar Monoclonal Antibodies Market Report 2024: Future Market Growth Powered by Biologics and Personalized Therapy Advances
+-  I Tried the Viral ‘Sleepy Girl Mocktail.’ Here’s Why Tart Cherry Juice is Flying Off Your Grocery Store’s Shelves. - CNET
+-  Council's Boundary Reform
+-  Congresistas piden reforzar acciones para poner fin a violencia contra las mujeres
+-  Debenhams Basildon to be transformed as plans to be approved
+-  Best VPNs for Android 2024: Our picks for phones and tablets
+-  Besni na Apple jer im iOS 17 zaglupljuje iPhone
+-  Canvas of local talent for Gawler's 10th Fringe
+-  İşte Fincancı'nın 'işkence' raporları! Adnan Oktar cezadan böyle kurtuldu: Delil yok, kanaat var!
