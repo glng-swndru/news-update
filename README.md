@@ -1,11 +1,11 @@
 # Latest News
--  Body found in search for missing woman (57) missing from Lossiemouth
--  Cocaina e hashish in casa: arrestati due fratelli
--  'La Moderna': avance del capítulo 100 que se puede ver este jueves en RTVE
--  Governments worldwide use satellite communication to close a critical gap
--  Star Regent 24-Hour Book Sale returns
--  Copa del Rey 2024 | La presentazione della nostra inviata da Malaga
--  Shay Kerman of Urgent Care Solutions Named to the Denver Board of the American Cancer Society
--  Sara Tendulkar drops stunning pics in a red dress on the occasion of Valentine's Day; netizens say, 'Aaj Ka Din Shub Hua'
--  Правната комисия в НС призна: Промените в НПК са приети твърде прибързано
--  Scenes that capture the strong colours of Otago
+-  Διαρκής Επιτροπή Αντιμετώπισης Βίας: Η πρώτη ποινή της νέας εποχής επιβλήθηκε στην ομάδα μπάσκετ της ΑΕΚ
+-  VIDEO | In piazza Indipendenza coi trattori in doppia fila, guida Cateno De Luca: "Questo è un grido di dolore"
+-  Kaos i Viaplay-aktien – men vissa investerare kan inte handla
+-  米ＰＰＩ、23年12月は前月比0.2％下落に下方改定 - ロイター (Reuters Japan)
+-  Vyšší inflace brzdí Fed a akciový trh se nadechuje k dalšímu růstu. Přišel verdikt k Lex ČEZ II a ekonom ČEZ komentoval plyn, elektřinu i povolenky
+-  Rusi nemajú v Čiernom mori lode na odpaľovanie striel Zirkón, podľa Britov upravili systém pobrežnej obrany
+-  Agro: Celoslovenský protest farmárov a gazdov sa uskutoční 19. február
+-  Shell vê alta de pelo menos 50% da demanda por GNL até 2040 puxada por China
+-  Harmincöt éve életveszélyben él, mégsem hagyta, hogy tönkretegyék az életét
+-  Heidelberg: Feuerwehreinsatz in Neuenheim
