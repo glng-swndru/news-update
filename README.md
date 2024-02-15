@@ -1,11 +1,11 @@
 # Latest News
--  Samsung, XR gözlüğü geliştirmek için özel bir ekip kurdu
--  Chișinăul DENUNȚĂ Acordul privind grupurile observatorilor militari și forțele colective de menținere a păcii în CSI
--  Geri Horner 'terrified life could unravel' over husband's 'inappropriate behaviour' probe
--  امتلاء سدود التغذية بمحافظة شمال الشرقية
--  Gripa na vrhuncu: Najviše slučajeva u dvije jadranske županije, do sada 23 smrtna ishoda
--  Bundesgerichtshof: Urteil gegen Stuttgarter Witwenmörder rechtskräftig
--  ラッピングタクシーで洞爺湖町ＰＲ 互信ＨＤが札幌で１０台運行 温泉や花火など車体に
--  Bundesgerichtshof: Urteil gegen Stuttgarter Witwenmörder rechtskräftig
--  معرفى دستیاران نویدکیا در مس رفسنجان
--  لأول مرة في المملكة.. بطولة العالم لكرة الطاولة "سماش السعودية"
+-  I Ferragnez superano lo "stallo social": video di San Valentino. Ma lei...
+-  Le riserve della Russia si riducono, ma la rete di sicurezza fiscale potrebbe durare anni
+-  Sport Magazín: kouč Svědík i nový seriál k domácím MS v hokeji
+-  ”Ottaa pahasti aivoon” – Näin Tesla rokottaa perinnemerkeiltä miljardeja
+-  Ako imate ovaj problem sa Facebookom, evo jednostavnog rešenja
+-  Marko jubelt na overstap Hamilton: "Sensationeel, beter dan Netflix!"
+-  Change to flood gates on £32m Aberaeron scheme given backing
+-  Vald kulutab sotsiaaltranspordile jätkuvalt pool miljonit aastas
+-  Brand in Hollabrunn - Autos umgeparkt: „Drei Minuten später ist das Vordach eingebrochen“
+-  Poput droge je: Evo što se događa vašem mozgu kada ste zaljubljeni
