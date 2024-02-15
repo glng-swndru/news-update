@@ -1,11 +1,11 @@
 # Latest News
--  Vai zini, kas 1945. gada mūziklu «Karuselis» padara aktuālu 2024. gadā?
--  Pearl Jam Tour 2024: Registrierung notwendig! So kommen Sie an Tickets für alle Deutschland-Konzerte
--  장은실 ‘대학체전 반가워요~’ [포토]
--  Kuzey Kore: "Karadan denize fırlatılan Padasuri-6 füzesi test edildi"
--  이대훈, 대학 체육인들의 대결 기대하세요~ [포토]
--  주먹불끈 이대훈 ‘대학체전 기대하세요~’ [포토]
--  Ispijanje ovog čaja čisti jetru i pomaže u mršavljenju
--  ÕNNESTUS ⟩ Kuu-masin liigub õiges suunas
--  Homem que atropelou e atirou no próprio irmão em briga por herança se entrega à polícia em MG
--  스트릿 패션의 좋은 예…더보이즈 에릭, NBA 경기 관람
+-  «سوني» تخفض توقعات مبيعات«بلايستيشن 5» إلى 21 مليون وحدة
+-  BBB 24: Equipe de Fernanda desliga integrante que divulgou vídeo editado sobre suposto assédio de Davi
+-  Có tiền lì xì, gửi tiết kiệm ở ngân hàng nào hưởng lãi suất cao nhất?
+-  Vì sao chứng khoán VietinBank bị xử phạt gần 400 triệu đồng?
+-  Soccer-City showing same hunger for trophies as last year, says Foden
+-  ارتفاع طفيف للتضخم في السعودية إلى 1.6% خلال يناير
+-  Stellantis, nel 2023 utile record a 18,6 miliardi (+11%)
+-  Trump: Namjerno brkam imena
+-  Kastamonu’da alkollü sürücünün çarptığı anne, kızından 11 gün sonra yaşamını yitirdi
+-  Tragedija u Baru: U požaru stradale četiri osobe, među njima dvije...
