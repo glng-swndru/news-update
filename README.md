@@ -1,11 +1,11 @@
 # Latest News
--  Da rottamazione quater 6,8 miliardi, decaduti 5,4 miliardi
--  Geri manevra yapan kamyonetin altında kalan kadın hayatını kaybetti
--  Thấy chồng cũ đột nhiên giàu có, người phụ nữ đòi bồi thường 3 tỷ đồng: Kết quả cuối cùng ít ai ngờ đến
--  Kühleffekt von Wäldern: Wiederaufforstung schützte den Osten der USA vor Hitze
--  Uber Aktie gefragt: Uber kündigt Aktienrückkauf an
--  Izbrisala je vse sledove zveze
--  Vládní spor o zákaz HHC. Čtyři strany ho prosadily, Piráti navrhovali jiné řešení
--  Вносят органику, известкуют почвы. Аграрии Минской области готовятся к весенней посевной
--  Termómetros ultrapassam os 20 graus em todo o país
--  Nelle scuole siciliane si parlerà anche la lingua siciliana: via al progetto da 200 mila euro
+-  Григор Димитров: Не играх най-добрия си тенис, но бях солиден във важните моменти
+-  Suštinski problem je što RTS i dalje troši ogroman novac na izvršne produkcije! Klanšček o novim sumnjivim poslovima Javnog servisa
+-  Monumental’s arena plan guarantees hurt feelings and messy disputes
+-  المعالج الصيني Loongson 3A6000 قد ينافس معالجات إنتل و AMD
+-  新田真劍佑被爆耍大牌？陳柏霖還原「真實情況」
+-  „Studenții nu pot fi constrânși să participe la mai mult de 8 ore pe zi de activități didactice” - Ministerul Educației a pus în dezbatere publică codul drepturilor și obligațiilor studentului
+-  Ancelotti odvukao Modrića nasamo i objasnio mu zašto nije igrao u Leipzigu: ‘Ne sviđa mi se to‘
+-  Presidente Lula chega ao Egito para visita oficial de dois dias
+-  Петима пловдивчани са ранени при удар межу кола и бус край Арчар - Труд
+-  V centru za usposabljanje v Dragi spolno zlorabljena dva varovanca
