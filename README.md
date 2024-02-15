@@ -1,11 +1,11 @@
 # Latest News
--  Hajtóvadászatot indítottak a Posta ügyfeleire a csalók
--  Veljko Birmancevic: Galatasaray'ı biliyoruz
--  Schlag den Rodelstar: Nächste Niederlage für den Weltmeister
--  Paris SG : le Chartrain Nicolas Cousin dans le staff des pros de Luis Enrique !
--  Unser Akkuladegeräte-Preistipp: XTAR VC4 Plus im Test
--  В Кремле допустили увеличение сроков СВО, отвергли возможность изменения хода спецоперации
--  Palmarès des grandes écoles de commerce : notre méthodologie
--  Mustafa Sandal'dan bomba paylaşım. 'Erzincan’ın yiğit evladı Binali yıldırım toprağı avuçlar'
--  Była liderka wraca po latach. Już oficjalnie, jest komunikat
--  "Regalo di San Valentino", colpacco ucraino: affondano la nave da sbarco di Putin in Crimea
+-  Pink paruka a průhledná kabelka: Sharlota slavila bez manžela a na Valentýna šla z domu!
+-  Bauernproteste: Landrat Dirk Neubauer nimmt Landwirte in Freiberg in Schutz
+-  Travis Kelce says he shouldn't have bumped Chiefs coach Andy Reid during the Super Bowl
+-  A korai és a késői kamatvágás is kockázatos
+-  De vlag kan uit voor de salderingsregeling. Maar voor hoe lang? | DVHN commentaar
+-  Bitcoin-Kurs vorhersagen? Mit diesem Indikator soll das gehen
+-  Větrovský pro Expres: Soukalová během natáčení plakala, na Van Dammovi jsem prodělal!
+-  Forsvarsevne i en ny verden
+-  PlayStation 5: próximo grande jogo original só em 2025
+-  Once a cycling champion, B.C.’s Svein Tuft has learned how to slow down
