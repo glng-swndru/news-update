@@ -1,11 +1,11 @@
 # Latest News
--  Посол Азербайджана: мы будем укреплять сотрудничество с Беларусью
--  Konec manipulacím na STK a při měření emisí? Ministerstvo nechá stanice prověřit
--  Malta abortion helpline gets at least one call a day, doctor tell Brussels event
--  Bivši trener Sarajeva smijenjen sa pozicije selektora kadetske reprezentacije Hrvatske
--  Gute Jahresbilanz 2023: Airbus will Produktion weiter erhöhen
--  LLANTAS Y CUBIERTAS USADAS SOCIEDAD ANONIMA ILICITA
--  ¿Qué hacer hoy en Barcelona? Agenda de actividades para hacer esta semana
--  The Zenfone 11 Ultra with Snapdragon 8 Gen 3 has surfaced on Geekbench
--  Danilović upitan o nastupu Jokića na Olimpijskim igrama
--  O presente que recebeu de João Monteiro no Dia dos Namorados
+-  Samsung, XR gözlüğü geliştirmek için özel bir ekip kurdu
+-  Chișinăul DENUNȚĂ Acordul privind grupurile observatorilor militari și forțele colective de menținere a păcii în CSI
+-  Geri Horner 'terrified life could unravel' over husband's 'inappropriate behaviour' probe
+-  امتلاء سدود التغذية بمحافظة شمال الشرقية
+-  Gripa na vrhuncu: Najviše slučajeva u dvije jadranske županije, do sada 23 smrtna ishoda
+-  Bundesgerichtshof: Urteil gegen Stuttgarter Witwenmörder rechtskräftig
+-  ラッピングタクシーで洞爺湖町ＰＲ 互信ＨＤが札幌で１０台運行 温泉や花火など車体に
+-  Bundesgerichtshof: Urteil gegen Stuttgarter Witwenmörder rechtskräftig
+-  معرفى دستیاران نویدکیا در مس رفسنجان
+-  لأول مرة في المملكة.. بطولة العالم لكرة الطاولة "سماش السعودية"
