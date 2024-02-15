@@ -1,11 +1,11 @@
 # Latest News
--  30 yaşına gelmeden bu alışkanlıklardan vazgeçin!
--  Beutezug in Holzwickede und Umgebung: Dieb (47) benötigt Geld für Drogen
--  '이자 캐시백 선착순'…보이스피싱 기승에 '소비자경보'
--  Dubbla melloartister till årets Hallsbergsmässa
--  Winter weather travel advisory in effect for the Sault and surrounding areas
--  Ρωσία: Απορρίπτει προειδοποίηση των ΗΠΑ για πυρηνικές δυνατότητες στο διάστημα
--  POBEGLA KOD MILOJKA, ON BIO HARMONIKAŠ, RODILA DEJANA SA 15 GODINA I OSTAVILA GA Komšije za Kurir: Zorica otišla da ganja karijeru
--  「仕事なめんなよ！辞めろ」市長が“パワハラ発言”釈明に追われる…「子ども産んで初めて女に」“セクハラ疑惑”も 福岡・宮若市
--  Горнолыжница Гирина победила в слаломе на Спартакиаде 2024
--  陳俊翰辭世 民眾黨：謝謝為身障及罕病弱勢挺身而出
+-  FC Utrecht heeft eerste zomerversterking binnen en haalt middenvelder op bij Anderlecht
+-  Domikaitytė ir Gaučaitė kovos dėl Europos imtynių čempionato bronzos
+-  Akaryakıt Fiyatları Uçtu, Ünlü Ekonomistten Ürküten Tahmin Geldi! O Tarihte Fiyatlar Uçacak: 60 TL'yi Görebilir
+-  Το Πανεπ. Κύπρου καλεί τον Τρυφωνίδη να καταθέσει στην Αστυνομία περί χρηματισμού για τις φοιτητικές εστίες
+-  Pourquoi c'est important. Grève SNCF : votre train est annulé ? Voici comment vous pouvez être ...
+-  Russie. Un centre commercial touché à Belgorod, au moins cinq morts et 18 blessés
+-  "Il ne supportait rien" : Macha Méril, un couple parfois explosif avec Michel Legrand
+-  Prezes GPW: Jestem przekonany, że atrakcyjność polskiego rynku kapitałowego wzrośnie, a „Parkiet” będzie miał co opisywać
+-  FC Utrecht heeft eerste zomerversterking binnen en haalt middenvelder op bij Anderlecht
+-  Vidnyánszky nem lehetett ott, ezért nem választottak új nemzet színészét
