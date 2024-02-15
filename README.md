@@ -1,11 +1,11 @@
 # Latest News
--  Ifarhu anunciará preseleccionados para becas el 23 de febrero
--  眠たくてグズる4カ月赤ちゃん、パパのスゴ技で…… 「すげー、魔法だ」「なんて華麗な寝かしつけ」な寝落ちシーンにビックリ
--  SightGlass Vision Receives Breakthrough Device Designation from U.S. Food and Drug Administration
--  Jazz Pharmaceuticals to Report 2023 Full Year and Fourth Quarter Financial Results on February 28, 2024
--  Mysterious National Security Threat Hyped By Republicans Likely Nukes In Space: Report
--  Kotaku Asks: Who Is Your Biggest Video Game Crush?
--  Güreşte büyük başarı! Selçuk Can ve Alperen Berber Avrupa Şampiyonu oldu
--  Aethlon Medical Announces Fiscal Third Quarter Financial Results and Provides Corporate Update
--  Koja je najveća greška kod prijave poreza? Imamo odgovore na najvažnija pitanja
--  モルガン・スタンレー、ウェルスマネジメント部門で数百人削減へ - WSJ発
+-  Magdalena Biejat kandydatką Lewicy i stowaryszenia Miasto Jest Nasze w Warszawie
+-  El Pontedeume, en una dura recta final para la salvación
+-  손흥민 vs 이강인 몸싸움, 클린스만과 축구협회 책임은?
+-  SAT Lima promueve el pago de los impuestos que vencen el 29 de febrero
+-  賴登門探視 阿嬤鐵粉：足歡喜
+-  米莉遭獻祭鬥惡龍 勇敢顛覆想像
+-  Americans want action on guns, but Republicans don’t have a plan
+-  Delivery, ride service job action targets date night in US, UK
+-  ‘Our clothes make a powerful statement’: How to be comfortable and look sharp in the new world of work
+-  年代致歉 嗆告越南地接毀商譽
