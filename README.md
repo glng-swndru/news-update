@@ -1,11 +1,11 @@
 # Latest News
--  Deliveroo, Just Eat, Uber Eats strikes set to hit Fridays and holidays, drivers warn
--  Coburger OB im Interview: „Sparen ist für alle schmerzhaft“
--  Valentinstag: Dieb stiehlt Blumensträuße an Tankstelle
--  TIENI A FRENO...LA LINGUA! - A BOLOGNA UN 46ENNE DI ORIGINI MAROCCHINE PICCHIAVA LA MOGLIE PERCHÉ NON VOLEVA CHE FREQUENTASSE IL CORSO DI ITALIANO: TEMEVA CHE LA DONNA POTESSE INCONTRARE ALTRI UOMINI - LA 44ENNE, SUA CONNAZIONALE, HA DENUNCIATO IL MARITO PER LE AGGRESSIONI SUBITE DAVANTI ALLE FIGLIE PICCOLE - L'ACCUSA DI STUPRO, MALTRATTAMENTI FISICI E PSICOLOGICI...
--  7 Link Quick Count Pemilu 2024, Pantau Hasil Perhitungan Cepat Pemilihan Presiden Secara Online
--  Rufisque : des cas de gastro-entérites détectés chez les enfants
--  НБА звезда пропя за Свети Валентин
--  Bukan ke Liverpool, Alonso Diprediksi Kuat Jadi Suksesor Guardiola di Manchester City
--  Navijači Crne Gore bijesni zbog izjave Prosinečkog: Dužni smo iznijeti svoj stav
--  Chelsea to make amends with young mascot left by himself at Anfield
+-  Rally set at Minnesota Capitol in support of more fertility insurance
+-  Nagłe zmiany w Żandarmerii Wojskowej. Szef MON odwołał komendanta głównego i jego zastępcę
+-  Плавание, бег, стрельба. Чемпионат Западного оперативного командования проходит в Гродно
+-  Najhitrejša Kira Weidle, Ilka Štuhec dosegla 15. čas
+-  VUČIĆ PRISUSTVUJE PRIKAZU NAORUŽANJA VOJSKE SRBIJE Predsednik iz Niša šalje moćnu poruku: Naše je da zaštitimo ljude!
+-  Jak sądy w Rosji kneblują usta ludziom? Kary od przedszkola do cmentarza
+-  Hafta sonundan beri etkili olan kar sebebiyle evler bile kar altında kaldı. Son yılların en yoğun kar yağışını gören Ardahan'da karla mücadele sürüyor
+-  Ivan Jakovčić nam otkrio: Baš letim za Bangkok! Neće moja ljubav na Valentinovo biti sama
+-  Bell CEO, other execs called to committee to testify over recent job cuts
+-  Bursa'da uluslararası öğrencilerin katılımıyla 40 Hadis Yarışması yapıldı
