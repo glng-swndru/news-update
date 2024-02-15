@@ -1,11 +1,11 @@
 # Latest News
--  Türkmenistanyň Döwlet howpsuzlyk geňeşiniň mejlisi
--  "On a fait un mini-smack" : Pierre (Star Academy) lève le voile sur ce "premier baiser"
--  «ПСЖ» — «Реал Сосьедад»: Захарян остался в запасе, младший брат Мбаппе попал в заявку
--  Sírt a gyászmenet, Michael Jackson és Tina Turner is megjelent a pincevölgyben +videó, fotók
--  Charytatywna Zumba w Miejskiej Górce
--  Panaszt tettek David Pressman ellen a Külügyminisztériumban
--  Four Hundred by Design Exceeds 2,000 Travel Advisors and Over 400 Properties Two Years After Launch
--  İYİ Parti'den istifa eden isim sordu: Sisi mi İmamoğlu mu?
--  West Bengal BJP chief hospitalised after scuffle with police
--  Halldór Snær framlengir við Fjölni
+-  Pedro Scooby rebate internauta e defende Cintia Dicker
+-  Ruski predsjednik Putin kaže da je Rusija blizu stvaranja cjepiva protiv raka
+-  Ranking do FT traz as melhores escolas e cursos de MBA do mundo; confira lista
+-  Kurum: Erzincan'daki işletme 135 kez denetlendi
+-  ATA AGE FWA 158 GERACAO DE BIOENERGIA S.A
+-  Feyenoord lijkt door vergevorderde onderhandelingen naast Rodríguez te grijpen
+-  Corse : Gérald Darmanin veut débuter d'ici «fin février» la rédaction du projet d'autonomie
+-  Covenant Clearinghouse Engages Prominent Attorney Lawrence S. Robbins of Friedman Kaplan
+-  Covid: bagarre alla Camera su commissione, seduta sospesa (2)
+-  La peor trampa de Youtube: por qué se volvió peligroso para nuestras tarjetas y billeteras
