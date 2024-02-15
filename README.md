@@ -1,11 +1,11 @@
 # Latest News
--  인권위 “교원평가 성희롱 막아야”…교육부 “서술형 폐지”
--  台積電衝上709元「一股賣壓襲來」股價瞬間掉下！大學長：快跑啊
--  Paramount Global shares fall 6% after Warren Buffett cuts stake
--  Hasil Quick Count, Partai Pengusung Amin Lolos Senayan
--  Teen cyclists injured after crash with DUI driver in Novato
--  2024 Daytona 500 at Daytona International Raceway Driver and Car Shots - Jayski.com
--  KRRS criticises Centre for arresting ryots
--  Polisi Ralat Pelaku Penganiayaan Kakek di Depok Usai Ditegur Buang Sampah Belum Ditahan
--  Dilabel Muka Macam Jalan Tar, Wanita Sedih Kena Body Shaming Oleh Individu Di Media Sosial
--  Safety meet: Mys DC pulls up officers for road deaths
+-  El taxista que recorre los barrios más peligrosos de Guayaquil mientras trasmite en TikTok
+-  У 2022-му на військового дивилися, як на "острівець безпеки", а зараз – як на небезпеку – командир підрозділу "Ахіллес" Федоренко
+-  Deep tech investments in India doubling every three years, crossed $1 billion between 2021-23: Report
+-  Deep tech investments in India doubling every three years, crossed $1 billion between 2021-23: Report
+-  Marad a tavasz és a 10 fok feletti hőmérséklet
+-  Falgun Month 2024: फाल्गुन माह कब शुरू होगा ? इस महीने के व्रत-त्योहार, महत्व, नियम यहां जानें
+-  Mỹ nhân chết thảm nhất lịch sử Trung Quốc: Khi sống bị biến thành lợn người, qua đời thành thần tiên
+-  મેનેજમેન્ટ ફંડા by એન રઘુરામન:નવી વસ્તુઓ શીખવા ઈચ્છો છો તો ઓબ્જર્વેશન સ્કિલ ડેવલપ કરો; કરિયરમાં થશે ફાયદો
+-  Materiaaleja arvostamalla kierrättämistä paremmaksi – "Pakkausmateriaalien raaka-aine voi tulla myös Lapin luonnosta"
+-  HOP TO IT: FoodShare takes the reins of Border Easter Egg Hunt
