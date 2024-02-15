@@ -1,11 +1,11 @@
 # Latest News
--  Григор Димитров: Не играх най-добрия си тенис, но бях солиден във важните моменти
--  Suštinski problem je što RTS i dalje troši ogroman novac na izvršne produkcije! Klanšček o novim sumnjivim poslovima Javnog servisa
--  Monumental’s arena plan guarantees hurt feelings and messy disputes
--  المعالج الصيني Loongson 3A6000 قد ينافس معالجات إنتل و AMD
--  新田真劍佑被爆耍大牌？陳柏霖還原「真實情況」
--  „Studenții nu pot fi constrânși să participe la mai mult de 8 ore pe zi de activități didactice” - Ministerul Educației a pus în dezbatere publică codul drepturilor și obligațiilor studentului
--  Ancelotti odvukao Modrića nasamo i objasnio mu zašto nije igrao u Leipzigu: ‘Ne sviđa mi se to‘
--  Presidente Lula chega ao Egito para visita oficial de dois dias
--  Петима пловдивчани са ранени при удар межу кола и бус край Арчар - Труд
--  V centru za usposabljanje v Dragi spolno zlorabljena dva varovanca
+-  'Record breaker’ Jodi Jones grabs 20th assist in League Two
+-  ভালোবাসার দিনে অন্য রকম শাকিবের দেখা মিলল
+-  InventHelp Inventor Develops Improved Way to Warm a Baby Bottle (ACC-148)
+-  Urso avverte Stellantis: "Un milione di auto in Italia o risorse ad un nuovo produttore"
+-  Tendance mode : 5 paires de bottes à bouts pointus à moins de 100E
+-  Subaru of America and AAAS Announce Winners of 2024 Prize for Excellence in Science Books
+-  ‘Slingshot’ goes to Bleecker Street for US
+-  Verschobener Abriss schafft Spielraum für einen Stadthaushalt im Landkreis Greiz
+-  German ClimateTech Company econnext AG Launches Private Placement to Accredited Investors in United States on the Invest.Green platform
+-  «Лацио» — «Бавария»: где смотреть матч Лиги чемпионов 14 февраля 2024 года онлайн в прямом эфире
