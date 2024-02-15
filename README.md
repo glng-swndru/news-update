@@ -1,11 +1,11 @@
 # Latest News
--  No immediate federal help coming for B.C.’s devastated fruit and wine growers
--  Bakan Ersoy, Afrodisias Antik Kenti Tanıtım Toplantısı'na katıldı
--  Canadian major junior leagues sued over 'atrocious' contracts for teenage hockey players
--  Expect the market to take Ukraine's year of transition in stride
--  Banks closing on people who need them the most: report
--  Витае усещането, че “Мис Силикон“ няма да бъде наказана: Диана Русинова в “Отговорите“(ВИДЕО)
--  В Україні стало більше валютних обмінників: скільки податків сплатили у 2023 році
--  ‘Bridgerton’ Season 3 Drops Valentine’s Day Clip: Colin and Penelope’s Slow Burn Romance Heats Up in Part 1
--  Drumgold review chair to fight claims
--  Bajdena odmah proglasiti nesposobnim da vodi državu! U suprotnom, suditi mu za zloupotrebu položaja! Haris da preuzme SAD!
+-  Ukraina-studio | Tutkija Hanna Smith: Venäjällä lasketaan leikkiä siitä, millä prosentilla Putin voittaa vaalit
+-  Рубль на "Мосбирже" немного подешевел в основных парах
+-  Close to €80,000 worth of medical supplies donated to Ukraine in 2022
+-  Alan Varela lesionado a uma semana do FC Porto-Arsenal
+-  Borker Fußballprofi Joel Grodowski gewinnt gegen BVB: „Extra-Push“ setzt starke Tor-Serie fort
+-  Aplikace Beeper Mini měla posílat zprávy z Androidu na iMessage. Narazila na uzavřenou zahradu
+-  Кметът на Варна недоумява как е бил назначен служител в общината с криминално минало
+-  Президент подписал несколько резонансных законов
+-  Türkei | Schweres Minenunglück: Neun Minenarbeiter werden vermisst
+-  Trenval CEED funding for two Stirling non-profits
