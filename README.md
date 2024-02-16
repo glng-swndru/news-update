@@ -1,11 +1,11 @@
 # Latest News
--  Palavra do Leitor - 16 de fevereiro de 2024
--  Tout ce qu’il faut savoir sur le week-end NBA All-Star et ses différents concours
--  'Dd Chronicle perlu 'bayar harga' setimpal'
--  Hrvatski odbojkaši ostali bez izbornika, iz Saveza najavili novo rješenje za budućnost
--  Avec une eau de plus en plus rare, Menton promet d'adapter son futur plan local d’urbanisme en conséquence
--  בורארד ודוניו בספק לקרב התחתית מול פ"ת. סילבס: הזדמנות להתחבר ולייצר רצף
--  Narančasti hvataju vlak za ekspresni povratak u 1. HNL! Novi igrač na putu prema Šubićevcu
--  IT-entreprenören vill skapa ett Silicon Valley i Båstad
--  Universités du Burkina Faso : Le handisport fait son entrée dans la nouvelle saison culturelle et sportive
--  O xixi é amarelo e a ciência tem finalmente uma explicação para isso
+-  GALIANO GOLD REPORTS Q4 AND FULL YEAR 2023 OPERATING AND FINANCIAL RESULTS
+-  Le site Naval group de Toulon source de nouvelles compétences pour préparer l’avenir
+-  L'Italia avrà la 5ª squadra in Champions? Consolidato il 1° posto nel ranking stagionale
+-  מאכזבים: אף ג׳ודאי ישראלי לא הגיע לקרב על מדליה בפתיחת גראנד סלאם באקו
+-  Baj lehet a korai tavaszból?
+-  Nigeria to halt electricity subsidies
+-  Zuzana Čaputová zjavne s novelou súhlasí, hlási koalícia. Boja sa Ústavného súdu, odpovedá opozícia
+-  Le prince Harry et son nouveau site font polémique : sa réponse cash aux détracteurs, de quoi rassurer Kate Middleton
+-  The 7 little-known signs of TB you need to know amid ‘resurgence’ of nasty Victorian disease
+-  14-inch M3 Pro MacBook Pro review: The sweet spot for price and performance
