@@ -1,11 +1,11 @@
 # Latest News
--  消えたufotableの公式X、現在「復旧申請中」 「鬼滅の刃」などのアニメ制作会社
--  Faeser: Gepöbel und Gewalt sind Grenzüberschreitungen
--  Marvel's Loki Instagram Account Has Mysterious Message About Deadpool & Wolverine Trailer
--  Предельная розничная цена на бензин и дизель остается без изменений в РК
--  Video: Breezy, cold Friday; Tracking early weekend storm
--  «Русский мир» дошел и до Узбекистана?
--  दरमहा फक्त 55 रुपये भरा, महिन्याला 3000 रुपये मिळवा; शेतकऱ्यांसाठी 'ही' आहे खास योजना
--  Netanyahu Ngotot Tolak Berdamai dengan Hamas, Sebut Tak Akui Negara Palestina
--  "대체 왜 3200억원이나 들여 YTN을 망치려 드나"
--  นายกฯ มอบนโยบายคณะกรรมการจัดประชุมใหญ่สามัญสหพันธ์ฟุตบอลนานาชาติ
+-  Ирина Жук о танцах на льду: «Хочется как в одиночном — прыгнуть четверной и точно победить»
+-  Malta News Briefing – Friday 16 February 2024
+-  Vídeo | Riesgos de batir un récord espacial: ‘viajes al futuro’, perder masa muscular y hasta problemas de erección
+-  El Gobierno lanza el plan antiestafas para bloquear los fraudes bancarios a través de llamadas telefónicas
+-  Money allocated for Oxygen used to buy substandard drugs
+-  Kolumni | Tuore Netflix-sarja on lähes täydellinen onnistuminen, mutta se sai näyttelijän vihaamaan itseään
+-  Tibor Gašpar a Peter Žiga si podľa opozície schválili samoamnestiu. Zastaví to novelu Trestného zákona?
+-  El alza de tipos enfría la adquisición de clubes de fútbol tras el pico post Covid
+-  名物「カレーごぼう天うどん」復活！ 豪雨で2度の浸水 閉店から蘇った人気店に“思い出の味”求めて常連客の行列
+-  Roger Grimau: “Me pongo más presión que nadie. A veces es enfermizo”
