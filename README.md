@@ -1,11 +1,11 @@
 # Latest News
--  Intiman a retirar la cartelería “ilegal” en la zona del puente carretero en Cipolletti
--  El templo primordial
--  Cosheston solar farm plans withdrawn from planning committee
--  Vikarie avstängd efter bråk i klassrum
--  EU bewilligt Förderung für GET H2 Projekte
--  V občini Črnomelj lani uspešno, tudi letos ambiciozno
--  La Curva dà ancora fiducia a Juric
--  Ötöslottó: íme a hatmilliárdot érő számok a mesterséges intelligencia szerint
--  Ums Geld pokern: Trennung im Job: So holen Sie mehr bei der Abfindung raus
--  Ivan Lins e Camerata Florianópolis se apresentam juntos em março, na UFSC
+-  Игрок «Вегаса» Мироманов: «Я не могу понять алкоголь. Во время сезона вообще не пью»
+-  Mercor: Spowolnienie w zamówieniach
+-  Reinier Honig gaat voor tiende nationale titel op NK stayeren
+-  Valsts robežsardzes koledžas kadetu vaino privātpersonas piekaušanā
+-  Vahid Əhmədovdan Bakı-Quba yolunun tarifləri ilə bağlı MÜHÜM MÜRACİƏT
+-  Três bebidas que todos consumimos e nos fazem parecer mais velhos
+-  Lula condemns Israel's killings in Gaza
+-  Türkiye'nin 66 yıllık dev konserve firması Tamtad resmen iflas etti!
+-  Klay Thompson sai do banco e faz 35 pontos na vitória do Golden State Warriors sobre Utah Jazz
+-  STI ends 1.4% higher on broad optimism, Budget boost
