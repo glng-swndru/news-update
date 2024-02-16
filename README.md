@@ -1,11 +1,11 @@
 # Latest News
--  Air Europa annonce la reprise de sa liaison Madrid - Marrakech
--  コーチング研修帰りの上司が、部下から嫌われるワケ…「1on1」「傾聴」の大誤解 - デキる上司の「結果を出す技術」
--  Sokoto Police Neutralise Bandit, Arrest 15, Recovers Rifle, Ammunitions
--  Rusko vyvíjí zbraň proti satelitům, vysvětlil Bílý dům varování o hrozbě
--  Sonic Dream Team brings loads of new content in first update post-launch
--  Intercettazioni, stretta su sequestro smartphone. Perché trema il Pd
--  Роман Ротенберг: «Салават» убрал все финское – оно не нужно, у нас своя культура. В системе, когда стоят вшестером, как «Лада», какое развитие у игроков? Никакого. Деградация»
--  Filip Ude plasirao se u finale prvog ovosezonskog turnira Svjetskog kupa
--  Xəzərdə içərisində sərnişinlər olan gəmi BATDI
--  Campbell River RCMP continue search for 2 teenage girls last seen on Quadra
+-  GU to Launch New "GU x UNDERCOVER" Collection
+-  Laura Stephens wins Britain’s first women’s individual world title in 13 years
+-  Blackface volta a gerar polêmica no Carnaval de Rio Grande
+-  Isto é o que a numerologia diz sobre 2024
+-  FOTOS: Red Bull apresentou novo carro de Verstappen e Pérez
+-  Laura Stephens wins Britain’s first women’s individual world title in 13 years
+-  Dodik o litijumu u Loparama: Ništa bez konsenzusa sa stanovništvom
+-  Los carbohidratos más saludables que deberías comer
+-  Contribuintes com mercadorias retidas tem 60 dias para regularizar débitos com fisco
+-  Laura Stephens wins Britain’s first women’s individual world title in 13 years
