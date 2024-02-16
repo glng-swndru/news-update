@@ -1,11 +1,11 @@
 # Latest News
--  Игрок «Вегаса» Мироманов: «Я не могу понять алкоголь. Во время сезона вообще не пью»
--  Mercor: Spowolnienie w zamówieniach
--  Reinier Honig gaat voor tiende nationale titel op NK stayeren
--  Valsts robežsardzes koledžas kadetu vaino privātpersonas piekaušanā
--  Vahid Əhmədovdan Bakı-Quba yolunun tarifləri ilə bağlı MÜHÜM MÜRACİƏT
--  Três bebidas que todos consumimos e nos fazem parecer mais velhos
--  Lula condemns Israel's killings in Gaza
--  Türkiye'nin 66 yıllık dev konserve firması Tamtad resmen iflas etti!
--  Klay Thompson sai do banco e faz 35 pontos na vitória do Golden State Warriors sobre Utah Jazz
--  STI ends 1.4% higher on broad optimism, Budget boost
+-  Palavra do Leitor - 16 de fevereiro de 2024
+-  Tout ce qu’il faut savoir sur le week-end NBA All-Star et ses différents concours
+-  'Dd Chronicle perlu 'bayar harga' setimpal'
+-  Hrvatski odbojkaši ostali bez izbornika, iz Saveza najavili novo rješenje za budućnost
+-  Avec une eau de plus en plus rare, Menton promet d'adapter son futur plan local d’urbanisme en conséquence
+-  בורארד ודוניו בספק לקרב התחתית מול פ"ת. סילבס: הזדמנות להתחבר ולייצר רצף
+-  Narančasti hvataju vlak za ekspresni povratak u 1. HNL! Novi igrač na putu prema Šubićevcu
+-  IT-entreprenören vill skapa ett Silicon Valley i Båstad
+-  Universités du Burkina Faso : Le handisport fait son entrée dans la nouvelle saison culturelle et sportive
+-  O xixi é amarelo e a ciência tem finalmente uma explicação para isso
