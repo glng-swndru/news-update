@@ -1,11 +1,11 @@
 # Latest News
--  GU to Launch New "GU x UNDERCOVER" Collection
--  Laura Stephens wins Britain’s first women’s individual world title in 13 years
--  Blackface volta a gerar polêmica no Carnaval de Rio Grande
--  Isto é o que a numerologia diz sobre 2024
--  FOTOS: Red Bull apresentou novo carro de Verstappen e Pérez
--  Laura Stephens wins Britain’s first women’s individual world title in 13 years
--  Dodik o litijumu u Loparama: Ništa bez konsenzusa sa stanovništvom
--  Los carbohidratos más saludables que deberías comer
--  Contribuintes com mercadorias retidas tem 60 dias para regularizar débitos com fisco
--  Laura Stephens wins Britain’s first women’s individual world title in 13 years
+-  回擊擴權違憲說 朱：民進黨反民主 走倒退路線
+-  海を渡る佐々木麟太郎に「暴れて」 留学経験者が語る米国の大学野球
+-  Urgent warnings after city battered by storm
+-  政院通過海保法草案 闖「庇護區」 最高罰50萬元
+-  Rishi Sunak warned against fresh austerity drive to finance tax cuts - The Guardian
+-  Victoria’s iconic Capital Iron returning with new ownership to original home
+-  대성공 거둔 ‘황야’…누가 뒤이을까
+-  Dólar tem leve queda com exterior após dados mais fracos nos EUA
+-  6隊球季燒牛棚 葉總慶幸陳禹勳加盟
+-  「ですの！」邪神ちゃんと自由な会話 AIと友達になる時、人の心は
