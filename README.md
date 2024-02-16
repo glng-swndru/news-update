@@ -1,11 +1,11 @@
 # Latest News
--  heise+ | FAQ Einstieg in die Photovoltaik: So gehen Sie vor
--  Pärnu boss Kärp: teeme Kullamäe-juhtumi teemal vastukirja
--  "살인에도 정의가 있다?" 콘텐츠가 된 범죄 ‘살인자ㅇ난감’ [오코노미]
--  京都府舞鶴市「唯一の酒蔵」で新酒仕込み 人手不足で「助太刀」したのは？
--  Gần 20 tỉnh, thành công bố môn thi vào lớp 10
--  【裏金事件】高木毅衆院議員「信頼回復に努める」離党や辞職は否定 1019万円の不記載を地元党員に謝罪【福井発】
--  Atak nożem na rodzinę w Łomiankach. Mamy nowe informacje
--  [컬처콕] "김호중은 임영웅을 이길 수 없다"…트로트 스타들이 '외도' 하는 이유
--  25 Petugas Penyelenggara Pemilu di Kota Bogor Jatuh Sakit Selama Proses Pencoblosan dan Penghitungan
--  'Bij Ajax kan Tannane het verschil maken, het is slappe hap in Amsterdam'
+-  Bio je najbolji strijelac Afričkog kupa nacija. Izbacili su ga iz reprezentacije
+-  "NAJBOLJE BI BILO DA SE ĐOKOVIĆ POVREDI!" Bolesne i sramotne reči Nadala o Novaku
+-  Antalya'da yaşanan sel felaketi için 100 milyon lira daha finansman desteği
+-  JMPD promised 200 official pointsment for Joburg
+-  Photoshop-afdeling Red Bull flikt 't weer: belangrijk detail vakkundig weggewerkt
+-  El BCRA adjudicó US$1.170 millones y ya colocó el 72% del total de la Serie 2 del Bopreal
+-  Smutný dozvuk DMA. iPhony v Evropě přestanou podporovat webové miniaplikace na domovské obrazovce
+-  Βιλερουά ντε Γκαλό: Δεν θα πρέπει να περιμένουμε πάρα πολύ για την πρώτη μείωση των επιτοκίων
+-  कांग्रेसले आममानिसलाई आशा सिर्जना गर्ने प्रस्ताव ल्याउन सकेन: प्रदीप पौडेल
+-  Ръст на патентите за изобретения с висока стойност отчете континенталната част на Китай
