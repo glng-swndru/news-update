@@ -1,11 +1,11 @@
 # Latest News
--  港乒5男5女戰世團賽 女隊今首擊鬥奧地利
--  ગોધરાની મહિલાનું કોલકાતાની હોસ્પિટલમાં ૧૧ વર્ષ સુધી કોમામાં રહ્યા બાદ પરિવાર સાથે મિલન
--  Magyarország elkötelezett NATO-tagként fejleszti haderejét
--  Magyarország elkötelezett NATO-tagként fejleszti haderejét
--  Mercato - PSG : Luis Enrique est réclamé à l’étranger !
--  Стосується школярів. Естонія запровадила нову вимогу для українських біженців
--  姚子羚寧接財神唔急搵情人 王浩信撐陳自瑤新劇 冀收視報捷
--  Bårebord gjør overfarten lettere for pasientene: – Jeg håper ikke jeg får bruk for den nye båra selv
--  Works in progress – updates on downtown
--  君珀特色戶銀主盤7200萬沽 11年貶值五成
+-  Air Europa annonce la reprise de sa liaison Madrid - Marrakech
+-  コーチング研修帰りの上司が、部下から嫌われるワケ…「1on1」「傾聴」の大誤解 - デキる上司の「結果を出す技術」
+-  Sokoto Police Neutralise Bandit, Arrest 15, Recovers Rifle, Ammunitions
+-  Rusko vyvíjí zbraň proti satelitům, vysvětlil Bílý dům varování o hrozbě
+-  Sonic Dream Team brings loads of new content in first update post-launch
+-  Intercettazioni, stretta su sequestro smartphone. Perché trema il Pd
+-  Роман Ротенберг: «Салават» убрал все финское – оно не нужно, у нас своя культура. В системе, когда стоят вшестером, как «Лада», какое развитие у игроков? Никакого. Деградация»
+-  Filip Ude plasirao se u finale prvog ovosezonskog turnira Svjetskog kupa
+-  Xəzərdə içərisində sərnişinlər olan gəmi BATDI
+-  Campbell River RCMP continue search for 2 teenage girls last seen on Quadra
