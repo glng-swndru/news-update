@@ -1,11 +1,11 @@
 # Latest News
--  Nestala je kobila Ribica, vlasnik se boji da je ukradena
--  Ove suknje kao stvorene su za zrelije dame koje žele zablistati na proljeće
--  Mariana Mortágua vs Rui Rocha: oiça aqui o debate entre os líderes do BE e do IL
--  Seyhan Belediye Başkanı Akay: Özgür Özel'i desteklemediğim için aday gösterilmedim
--  Lottery.com, Inc. Acquires SportLocker
--  Atriz que interpreta Arizona Robbins em 'Grey's Anatomy' anuncia volta para a 20ª temporada
--  Експерти: Приемането на еврото няма да се отрази негативно на покупателната способност
--  DIRETTA EUROPA LEAGUE (ore 21) - Tra poco in campo il Milan
--  円安＆円高で株価が反応しやすい銘柄ランキング【全100社】為替リスクに備える！ - 高配当＆高成長！新NISAで狙う日本株
--  Frisch Auf Göppingen schlägt ThSV Eisenach: Frisch Auf feiert wichtigen Heimsieg bei Kneules Jubliäum
+-  OD KANABISA DO KOKAINA Evo šta je policija sve pronašla u Subotici
+-  Filmfestival: Cillian, Cillian! Wie Oscar-Star Murphy auf der Berlinale zum Liebling des Tages wurde
+-  Qatar embassies, consulates hold NSD activities
+-  В Госдуме назвали обстрел Белгорода местью Зеленского
+-  Hate literature disrupts Canada Post’s bulletin board in Emo
+-  Новый район в Грозном назовут в честь Путина
+-  رئيسة اللجنة الوطنية للمرأة تشارك في المؤتمر الإقليمي حول المرأة العربية
+-  Varoituskartta hehkuu oranssina – hiihtolomat alkavat järkyttävässä säässä
+-  Galatasaray'dan Avrupa Ligi’ne galibiyetli başlangıç
+-  انخفاض أسعار 15 صنفا من الخضار في السعودية خلال شهر
