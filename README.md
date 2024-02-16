@@ -1,11 +1,11 @@
 # Latest News
--  Daytona 500: Jimmie Johnson im Toyota zittert sich in den Duels ins Rennen!
--  Tiết lộ 'siêu kế hoạch' tái thiết sân Old Trafford của Sir Jim Ratcliffe
--  FSM Köprüsü sarıya büründü
--  2 sao nữ cùng tên Hương Giang: Người úp mở có tình mới đúng Valentine, người công khai khoảnh khắc yêu
--  خواهر رهبر کره شمالی: سفر کیشیدا به پیونگ یانگ امکان‌پذیر است
--  Ángel de Brito confirmó el fin de una amistad que sacude a la farándula y todo es dolor: «Me dio donde más me dolía»
--  Ranbir Kapoor reveals THIS personality is his inspiration; shares the biggest advice he got to be a good husband and a father
--  二征夫人英雄历史3D投影舞台给观众带来视听盛宴
--  Defamation suits against Kepala Batas MP to be heard in September
--  윤 대통령 "이공계 학비 걱정 없게 전폭 지원"
+-  DICE Awards 2024 Livestream
+-  抗精神病薬、数週間継続し飲まされたか 4歳児殺害、毛髪鑑定で判明
+-  Pitkään vaivanneet sisäiset asiat löysivät kanavan päästä ulos – "Moni on sanonut minulle, että olen rohkea", sanoo esikoisrunoilija Mervi Rönkkö
+-  Carlos Vera Santos, el tercer ecuatoriano inicia el sueño en la UFC
+-  Pixel 8 Pro review: ‘Okay Google’ – The flagship smartphone ticks almost all boxes
+-  ロシアが宇宙配備の新型核兵器を開発か 「衛星標的」と米国が懸念
+-  Katso suora lähetys Karjalan prikaatin sotilasvalasta kello 11.45 alkaen
+-  進学校から直接欧州、忘れなかった少年時代の刺激 川崎の異色DF
+-  सुंदर पिचाई के इस रहस्यमय बात को जानकर हो जाएंगे हैरान
+-  Юрист рассказал, можно ли оформить кредит без ведома человека
