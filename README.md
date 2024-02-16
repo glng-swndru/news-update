@@ -1,11 +1,11 @@
 # Latest News
--  Bio je najbolji strijelac Afričkog kupa nacija. Izbacili su ga iz reprezentacije
--  "NAJBOLJE BI BILO DA SE ĐOKOVIĆ POVREDI!" Bolesne i sramotne reči Nadala o Novaku
--  Antalya'da yaşanan sel felaketi için 100 milyon lira daha finansman desteği
--  JMPD promised 200 official pointsment for Joburg
--  Photoshop-afdeling Red Bull flikt 't weer: belangrijk detail vakkundig weggewerkt
--  El BCRA adjudicó US$1.170 millones y ya colocó el 72% del total de la Serie 2 del Bopreal
--  Smutný dozvuk DMA. iPhony v Evropě přestanou podporovat webové miniaplikace na domovské obrazovce
--  Βιλερουά ντε Γκαλό: Δεν θα πρέπει να περιμένουμε πάρα πολύ για την πρώτη μείωση των επιτοκίων
--  कांग्रेसले आममानिसलाई आशा सिर्जना गर्ने प्रस्ताव ल्याउन सकेन: प्रदीप पौडेल
--  Ръст на патентите за изобретения с висока стойност отчете континенталната част на Китай
+-  Saaremaa ettevõtjad kohtusid LHV Panga esindajatega
+-  Ucraina, giù la fiducia in Zelensky dopo la destituzione di Zaluzhny
+-  Yleisurheilu SM-hallikisat käydään viikonloppuna – kovia kokenut Reetta Hurske palaa radoille
+-  Lima laporan polis ugutan bunuh Nik Elin diterima di KL
+-  Rusya'nın işgali altındaki Herson'un bir kabasında rahip öldürüldü
+-  Естрада от ЦСКА кацна в Еквадор
+-  VIDEO ⟩ Meisterlikult avariid vältinud Evans pääses ehmatusega, Neuville siunas Hyundaid
+-  Gelijkspel Ajax en Feyenoord slecht nieuws voor Nederland in coëfficiëntenstrijd
+-  Владимир Зографски прескочи квалификацията в Сапоро
+-  RUSI PROBILI UKRAJINSKU TVRĐAVU Ulaze u ključni grad
