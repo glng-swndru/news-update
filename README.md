@@ -1,11 +1,11 @@
 # Latest News
--  回擊擴權違憲說 朱：民進黨反民主 走倒退路線
--  海を渡る佐々木麟太郎に「暴れて」 留学経験者が語る米国の大学野球
--  Urgent warnings after city battered by storm
--  政院通過海保法草案 闖「庇護區」 最高罰50萬元
--  Rishi Sunak warned against fresh austerity drive to finance tax cuts - The Guardian
--  Victoria’s iconic Capital Iron returning with new ownership to original home
--  대성공 거둔 ‘황야’…누가 뒤이을까
--  Dólar tem leve queda com exterior após dados mais fracos nos EUA
--  6隊球季燒牛棚 葉總慶幸陳禹勳加盟
--  「ですの！」邪神ちゃんと自由な会話 AIと友達になる時、人の心は
+-  Red Bull apresenta carro ‘agressivo’ e Verstappen revela ansiedade para ir às pistas
+-  Red Bull apresenta carro ‘agressivo’ e Verstappen revela ansiedade para ir às pistas
+-  EUROPA LEAGUE - Milan-Rennes: 3-0, Pioli ipoteca gli ottavi. Doppietta di Loftus-Cheek
+-  Шоу на „Сан Сиро“! Милан разкости и почти изхвърли французи от ЛЕ
+-  Мілан розгромив Ренн, Бенфіка з Трубіним дотиснула Тулузу: результати раунду плей-оф Ліги Європи
+-  O nouă plângere depusă împotriva lui Gérard Depardieu pentru agresiune sexuală
+-  Мілан розгромив Ренн, Бенфіка з Трубіним дотиснула Тулузу: результати 1/8 фіналу Ліги Європи
+-  For someone like me who was ‘given up’ as a baby, Cillian Murphy’s film Small Things Like These really hits home
+-  Europa League, Milan-Rennes 3-0: il tabellino del match
+-  3-0 secco del Milan al Rennes: Loftus-Cheek dominante, che gol Theo-Leao. Tra una settimana il ritorno in Francia
