@@ -1,11 +1,11 @@
 # Latest News
--  Prakiraan Cuaca Kota Cilegon Jumat 16 Februari 2024: Siap-siap Diguyur Hujan
--  What does it say about America that random NFL games dominate the most-watched TV list?
--  Giochi: Vaccari (Pd), 'grave voler far cassa su ludopatia'
--  – Man må få mer og mer avfallsprodukter inn i denne verdikjeden
--  Transición Ecológica asigna a Canarias 106 millones para impulsar los primeros sondeos de geotermia profunda en España
--  Berlin: Bundesverkehrsministerium entlässt Abteilungsleiter
--  Volta a atacar Big Brother e garante que foi ameaçado por Francisco Monteiro
--  Toto je velmi žádaný kryt pro iPhony. Čeká se na něj fronta, přitom do něj jen vložíte balzám na rty...
--  Sanidad fomentará planes individualizados de seguimiento para mejorar la atención a los largos supervivientes de cáncer infantil
--  Mr. Lordi on ollut vihainen jo 18 vuotta
+-  Триумфатор ОИ Садулаев пропустит ЧЕ по борьбе в Румынии из-за отказа во въезде
+-  Mass killer Breivik loses Norway human rights case
+-  "Modersmordet visar grymt det gränslösa våldet"
+-  3대가 공들였는데…"북한 큰 충격일 것"
+-  Humanitarna fudbalska utakmica između Vlade i Skupštine CG
+-  Breivik perde la causa contro Oslo per trattamento disumano
+-  Congé menstruel: le Sénat écarte la mise en place d'un arrêt de travail... Voici ce qu'il faut savoir
+-  Mozilla bus restruktūrizuojama, daugiausia dėmesio skirs „Firefox“ ir dirbtinio intelekto ...
+-  България U17 приключи участието си на турнира в Хърватия с ново равенство
+-  לסובוי ושואו ב-11 של מכבי חיפה לגנט. לחצו להרכב המלא
