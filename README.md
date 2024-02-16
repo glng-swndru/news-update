@@ -1,11 +1,11 @@
 # Latest News
--  Roundup: European farmers stage new wave of protests
--  SUA au dat totul la iveală: Cât costă cu adevărat războiul Rusia, Ucraina și Occidentul
--  小沢仁志 大物に激怒された過去
--  Lunar New Year celebration coming to Spokane
--  Simona Halep, proces cu firma care a produs suplimentul contaminat – Sportiva cere daune uriașe
--  В оспорван мач Ланс и Фрайбург не успяха да се победят
--  U Splitu nestala 18-godišnjakinja, policija traži pomoć
--  [뉴스딱] 지구 반대편까지 추적…외국인 떨게 한 'K-공무원'의 힘
--  O-Net Plus to boost skills of students
--  Dos maquillajes que son de la calidad de Dior, según Profeco, pero cuestan menos de 50 pesos
+-  Müsilaj geri dönüyor, hamsi kaçıyor!
+-  Outgoing Ambassador of Cuba awarded with Royal Order of Sahametrei, Grand Officer
+-  U Splitu nestala 18-godišnja djevojka. Jeste li je vidjeli?
+-  સંઘર્ષથી રોશન થયેલા નાગરથ પરિવારની દાસ્તાન
+-  Gaza, media Usa: Egitto costruisce mega-recinto per sfollati
+-  Vleugje Feyenoord in Dordrecht: ‘Ze zeggen vaak dat ik op Mats Wieffer lijk’
+-  „Männer, die aufs Wasser starren“ auf Deutschland-Tour: Das sind die Termine
+-  Fuerte sismo de 5,4 grados sacude Lima
+-  Rimac u društvu voditelja 'Top Geara': 'Naša omiljena crash test lutka, sada se nije razbio'
+-  JPMorgan e State Street deixam grupo climático; BlackRock reduz participação
