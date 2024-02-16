@@ -1,11 +1,11 @@
 # Latest News
--  To so konkretni ukrepi, ki jih ministrstvo uvaja za krajšanje čakalnih dob
--  Flushing is Burning: Goodbye for Eppler
--  Занятие по огневой подготовке для руководителей вузов прошло в Военной академии
--  Süße Bedeutung: So heißt Kevin Yanik und Kathi Wageners Sohn
--  Evernote'un çatı şirketi Bending Spoons, 155 milyon dolar yatırım aldı
--  Důvody, proč si pořídit tepelné čerpadlo
--  Endométriose chez les adolescentes : une prise en charge précoce est nécessaire
--  Marmara Denizi'nde batan geminin yeri tespit edildi
--  Luis Bará, dirigente do Bloco Nacionalista Galego: “Apostamos em que a alta velocidade Porto-Vigo seja realidade em 2030”
--  Hatay, Kilis, Osmaniye, Adana, Gaziantep, Şanlıurfa, Elazığ, Malatya ve Kahramanmaraş dikkat! 20 Şubat'ta daha da artacak. Hepinize tek tek açıklandı
+-  Pogrešajo 47-letnico iz okolice Slovenske Bistrice. Ste jo videli?
+-  Biatlonové MS pokračuje singl mixem, Češi nasadí Davidovou s Marečkem
+-  Pangdam: Helikopter TNI Angkut Logistik ke Empat Distrik di Mamberamo Raya
+-  Nach mehreren Diebstählen im Januar: Neunkirchen: Flüchtige Diebin gefasst
+-  Volkskrankheit Rückenschmerzen: 5 praktische Tipps zur schnellen Selbsthilfe
+-  Telkom to Launch HTS Satellite in Mid-February
+-  Варненски полицаи спряха автобус, предотвратиха телефонна измама за 30 000 лв.
+-  موظفون حكوميون إلى التقاعد / أسماء
+-  La Banda: fuerte trabajo de limpieza en distintos sectores de la ciudad
+-  Pierre Bachelet et Françoise, leur relation au coeur d'une "douloureuse" histoire familiale : "Je ne veux pas..."
