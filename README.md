@@ -1,11 +1,11 @@
 # Latest News
--  Ζελένσκι: Κάνουν ό,τι καλύτερο μπορούν για τα στρατεύματα στην Αβντιίβκα
--  Navy engineer walks 15 miles carrying 40kg for mental health charity
--  快訊／籃協火速回應劉錚 強調會「加強溝通」避免造成誤會
--  9 ilde "Kafes41" operasyonu: 61 gözaltı
--  Missbrauchsvorwurf gegen früheren LWL-Pfleger aus Herten: „Die Patientin war fix und fertig“
--  Wirtschaft in Wermelskirchen: Als auf die Flammen der Neubeginn folgte
--  KPU Tasikmalaya Bakal Santuni KPPS yang Meninggal Dunia Saat Bertugas
--  Berks career and technology centers get state grants to buy equipment
--  Потери Армии обороны Израиля достигли 571 человека - ЦАХАЛ
--  「有吉の壁」で人気のモデル激変
+-  "'바이든 기억력' 특검 보고서 발표 전 백악관-법무부 정면 충돌"
+-  В Киргизии началась многосторонняя встреча по Афганистану
+-  Rosyjska broń w kosmosie? Biały Dom odpowiada na doniesienia
+-  La Grèce dit "oui" au mariage homosexuel et à l'adoption pour les couples de même sexe
+-  فل سبنسر يريد ألعاب Nintendo و PlayStation على Xbox
+-  Mordkommission: Sohn alarmiert Polizei: Frau (41) stirbt in Wohnung
+-  "Comprava" bimbi da abusare: condannato un 50enne a Milano
+-  La Grèce dit "oui" au mariage homosexuel et à l'adoption pour les couples de même sexe
+-  장민호, 명란 황태자의 신박한 레시피 (편스토랑)
+-  WhatsApp: Eine neue Funktion, die jeder aktivieren sollte
