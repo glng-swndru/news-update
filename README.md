@@ -1,11 +1,11 @@
 # Latest News
--  DICE Awards 2024 Livestream
--  抗精神病薬、数週間継続し飲まされたか 4歳児殺害、毛髪鑑定で判明
--  Pitkään vaivanneet sisäiset asiat löysivät kanavan päästä ulos – "Moni on sanonut minulle, että olen rohkea", sanoo esikoisrunoilija Mervi Rönkkö
--  Carlos Vera Santos, el tercer ecuatoriano inicia el sueño en la UFC
--  Pixel 8 Pro review: ‘Okay Google’ – The flagship smartphone ticks almost all boxes
--  ロシアが宇宙配備の新型核兵器を開発か 「衛星標的」と米国が懸念
--  Katso suora lähetys Karjalan prikaatin sotilasvalasta kello 11.45 alkaen
--  進学校から直接欧州、忘れなかった少年時代の刺激 川崎の異色DF
--  सुंदर पिचाई के इस रहस्यमय बात को जानकर हो जाएंगे हैरान
--  Юрист рассказал, можно ли оформить кредит без ведома человека
+-  消えたufotableの公式X、現在「復旧申請中」 「鬼滅の刃」などのアニメ制作会社
+-  Faeser: Gepöbel und Gewalt sind Grenzüberschreitungen
+-  Marvel's Loki Instagram Account Has Mysterious Message About Deadpool & Wolverine Trailer
+-  Предельная розничная цена на бензин и дизель остается без изменений в РК
+-  Video: Breezy, cold Friday; Tracking early weekend storm
+-  «Русский мир» дошел и до Узбекистана?
+-  दरमहा फक्त 55 रुपये भरा, महिन्याला 3000 रुपये मिळवा; शेतकऱ्यांसाठी 'ही' आहे खास योजना
+-  Netanyahu Ngotot Tolak Berdamai dengan Hamas, Sebut Tak Akui Negara Palestina
+-  "대체 왜 3200억원이나 들여 YTN을 망치려 드나"
+-  นายกฯ มอบนโยบายคณะกรรมการจัดประชุมใหญ่สามัญสหพันธ์ฟุตบอลนานาชาติ
