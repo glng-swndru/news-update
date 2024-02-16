@@ -1,11 +1,11 @@
 # Latest News
--  Saaremaa ettevõtjad kohtusid LHV Panga esindajatega
--  Ucraina, giù la fiducia in Zelensky dopo la destituzione di Zaluzhny
--  Yleisurheilu SM-hallikisat käydään viikonloppuna – kovia kokenut Reetta Hurske palaa radoille
--  Lima laporan polis ugutan bunuh Nik Elin diterima di KL
--  Rusya'nın işgali altındaki Herson'un bir kabasında rahip öldürüldü
--  Естрада от ЦСКА кацна в Еквадор
--  VIDEO ⟩ Meisterlikult avariid vältinud Evans pääses ehmatusega, Neuville siunas Hyundaid
--  Gelijkspel Ajax en Feyenoord slecht nieuws voor Nederland in coëfficiëntenstrijd
--  Владимир Зографски прескочи квалификацията в Сапоро
--  RUSI PROBILI UKRAJINSKU TVRĐAVU Ulaze u ključni grad
+-  Láttu vaða! - Varstu á tánum í fótboltafréttum vikunnar?
+-  Gazze’de can kaybı 28 bin 775 oldu
+-  Schwerer Unfall am Gemeindedreieck in Dorsten: Autos kollidieren auf der B224
+-  EU country sides with Donald Trump on NATO comments in blow to Brussels
+-  Патрушев: Запад стремится дестабилизировать ситуацию на Южном Кавказе
+-  İsrail'in Gazze’ye saldırılarında can kaybı 28 bin 775’e yükseldi
+-  Legalisierung: Niedersachsens Innenministerin hält Cannabis-Gesetzentwurf für "Murks"
+-  「とんでもない爆弾で草」 ローソンストア100のパン「THE カロリー」、想像超える中身＆総カロリーに衝撃
+-  Helsingin pörssin tulossumma romahti – Konkarisalkunhoitaja listaa syyt miljardimenetyksille
+-  Family Feud Philippines: February 16, 2024 | LIVESTREAM
