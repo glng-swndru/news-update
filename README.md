@@ -1,11 +1,11 @@
 # Latest News
--  Rusya'da yapay zeka uygulaması, tıp yeterlilik sınavını geçmeyi başardı
--  بحضور الداحوري واليزيدي اشهار اعضاء مجتمع الريان بزنجبار محافظة ابين
--  Neues Gesetz der Bundesregierung: Justiz muss Zehntausende Cannabis-Verfahren überprüfen
--  Bariera na mszyce, mrówki i krety. Oto powody, by mieć ten kwiat w ogrodzie
--  Teknologia | Microsoft sijoittaa 3,2 miljardia tekoälykehitykseen Saksassa
--  Propos polémiques sur l'attentat de Nice: la justice valide l'interdiction du concert de Freeze Corleone à Lille
--  Corona-Zahlen im Landkreis Lüchow-Dannenberg aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Tavares rassicura: "Stellantis ha bisogno di tutti gli stabilimenti italiani. Nessun rischio per Pomigliano e Mirafiori"
--  Falešná černoška Dolezalová přišla o práci učitelky. Kvůli erotice na OnlyFans
--  Aliados de peso de Bolsonaro desistem ou silenciam sobre ir a ato na Paulista; veja lista
+-  Bike access plan gets thumbs-up
+-  Jeff Hardy Suffers Serious Injury During AEW Rampage Taping
+-  Impallomeni è sicuro: ecco fino dove può arrivare il Milan in Europa League
+-  PAN buscará seguridad para sus candidatos
+-  Herder die dieren verwaarloosde wil zijn beesten terug: 'Ik heb hier veel kennis van'
+-  Viimane genialist on klubist lahkunud. „Ilmselt ei saa enam kellegagi koos niimoodi naerda kui temaga.“
+-  "Lỡ" cho con tự do tiêu tiền lì xì, bà mẹ ở Hà Nội bị Hiệu trưởng gọi lên nhắc nhở: Suýt thì hại con
+-  „Reflektieren fast gar nicht“: Ein Drittel der Warnwesten fällt im ADAC-Test durch
+-  Work begins on temporary fix to save town
+-  Під Авдіївкою за Україну загинув чеський доброволець
