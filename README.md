@@ -1,11 +1,11 @@
 # Latest News
--  Red Bull apresenta carro ‘agressivo’ e Verstappen revela ansiedade para ir às pistas
--  Red Bull apresenta carro ‘agressivo’ e Verstappen revela ansiedade para ir às pistas
--  EUROPA LEAGUE - Milan-Rennes: 3-0, Pioli ipoteca gli ottavi. Doppietta di Loftus-Cheek
--  Шоу на „Сан Сиро“! Милан разкости и почти изхвърли французи от ЛЕ
--  Мілан розгромив Ренн, Бенфіка з Трубіним дотиснула Тулузу: результати раунду плей-оф Ліги Європи
--  O nouă plângere depusă împotriva lui Gérard Depardieu pentru agresiune sexuală
--  Мілан розгромив Ренн, Бенфіка з Трубіним дотиснула Тулузу: результати 1/8 фіналу Ліги Європи
--  For someone like me who was ‘given up’ as a baby, Cillian Murphy’s film Small Things Like These really hits home
--  Europa League, Milan-Rennes 3-0: il tabellino del match
--  3-0 secco del Milan al Rennes: Loftus-Cheek dominante, che gol Theo-Leao. Tra una settimana il ritorno in Francia
+-  Milan faz 3 a 0 no Rennes e fica com a mão na vaga das oitavas de final da Liga Europa
+-  El Betis cae con un gol de penalti del Dinamo y se complica el pase
+-  „PRETNjA PO BEZBEDNOST“: Bajden naložio da se stupi u kontakt sa Rusijom
+-  El Betis cae con un gol de penalti del Dinamo y se complica el pase
+-  Soccer-Loftus-Cheek double puts Milan in control v Stade Rennais
+-  Two boys, both 15, arrested on suspicion of murder after teen, 16, stabbed to death
+-  "A precipitação do Ministério Público", a "demissão de Lucília Gago" e o "sacrifício voluntário de Israel": 5.ª Coluna, Miguel Sousa Tavares
+-  Μητσοτάκης: Η Ελλάδα είναι περήφανη που γίνεται η 16η χώρα της ΕΕ που νομοθετεί την ισότητα των γάμων
+-  El Betis cae con un gol de penalti del Dinamo y se complica el pase
+-  Анастасия МЕРКУШИНА: «Думаю, сегодня я просто выбрала неправильную тактику»
