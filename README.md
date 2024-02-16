@@ -1,11 +1,11 @@
 # Latest News
--  "المقاومة الإسلامية": استهداف‏ التجهيزات التجسسية في ‏موقع الناقورة البحري وتحقيق إصابة مباشرة
--  Ο Μασκ εκδικείται το Ντέλαγουερ επειδή έχασε δίκη για 56 δισ. και μεταφέρει την έδρα της SpaceX στο Τέξας
--  Venezuela suspende atividades do escritório de Direitos Humanos da ONU e expulsa seu pessoal
--  Sud prihvatio јemstvo Igora Baćovića: Vozač za slobodu dao 450.000, Stoјanović izašao bez centa
--  Bandai Namco Says It Is "Narrowing Down" Titles, Recently Canceled 5 Games
--  Blinken përfundon vizitën në Tiranë, eskorta niset drejt aeroportit ‘Nënë Tereza’
--  Norwegen: Attentäters Anders Breivik verliert Klage gegen Isolationshaft
--  Die Hauptakteure der EUV-Sitzung: So kam die Abstimmung gegen die Gebührenrückzahlung zustande
--  Košarkašice Budućnosti osvojile Kup Crne Gore
--  Üç Kız Kardeş'in 2 ismi yürekleri ağza getiren kaza geçirdi! Son dakika sağlık durumu...
+-  Inside Harry and Meghan's Valentine's Day - $369 wine to secluded table and Valentino fit - The Mirror
+-  Claremont McKenna College named "Top Producing Institution" of Fulbright Students by U.S. Secretary of State
+-  Phil Taylor thinks Luke Littler could 'make a fortune' and quit darts in two years
+-  Peníze na účtu obratem. Evropský parlament schválil nová pravidla
+-  Ιταλία: Διαδικτυακή σύνοδος κορυφής της G7 στις 24 Φεβρουαρίου
+-  Elzavarták a hajléktalanokat, hogy helyet csináljanak DiCaprio új filmjének
+-  'Ruthless' Prince Harry wanted to look like 'hero' by King's side before glitzy event
+-  eBay's Presidents Day Sale Will Save You Up to $500 on Smart TVs, Robot Vacuums, Generators and More - CNET
+-  نص ساعة سلبية من مباراة فيينورد وروما
+-  Red Bull: Horner niega conducta impropia en presentación monoplaza
