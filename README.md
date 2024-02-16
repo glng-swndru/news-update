@@ -1,11 +1,11 @@
 # Latest News
--  Pogrešajo 47-letnico iz okolice Slovenske Bistrice. Ste jo videli?
--  Biatlonové MS pokračuje singl mixem, Češi nasadí Davidovou s Marečkem
--  Pangdam: Helikopter TNI Angkut Logistik ke Empat Distrik di Mamberamo Raya
--  Nach mehreren Diebstählen im Januar: Neunkirchen: Flüchtige Diebin gefasst
--  Volkskrankheit Rückenschmerzen: 5 praktische Tipps zur schnellen Selbsthilfe
--  Telkom to Launch HTS Satellite in Mid-February
--  Варненски полицаи спряха автобус, предотвратиха телефонна измама за 30 000 лв.
--  موظفون حكوميون إلى التقاعد / أسماء
--  La Banda: fuerte trabajo de limpieza en distintos sectores de la ciudad
--  Pierre Bachelet et Françoise, leur relation au coeur d'une "douloureuse" histoire familiale : "Je ne veux pas..."
+-  Rusya'da yapay zeka uygulaması, tıp yeterlilik sınavını geçmeyi başardı
+-  بحضور الداحوري واليزيدي اشهار اعضاء مجتمع الريان بزنجبار محافظة ابين
+-  Neues Gesetz der Bundesregierung: Justiz muss Zehntausende Cannabis-Verfahren überprüfen
+-  Bariera na mszyce, mrówki i krety. Oto powody, by mieć ten kwiat w ogrodzie
+-  Teknologia | Microsoft sijoittaa 3,2 miljardia tekoälykehitykseen Saksassa
+-  Propos polémiques sur l'attentat de Nice: la justice valide l'interdiction du concert de Freeze Corleone à Lille
+-  Corona-Zahlen im Landkreis Lüchow-Dannenberg aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Tavares rassicura: "Stellantis ha bisogno di tutti gli stabilimenti italiani. Nessun rischio per Pomigliano e Mirafiori"
+-  Falešná černoška Dolezalová přišla o práci učitelky. Kvůli erotice na OnlyFans
+-  Aliados de peso de Bolsonaro desistem ou silenciam sobre ir a ato na Paulista; veja lista
