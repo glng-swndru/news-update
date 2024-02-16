@@ -1,11 +1,11 @@
 # Latest News
--  Die Erwartungen und Hoffnungen: Reaktionen von CDU, SPD und Grüne auf den neuen Pächter vom Eyller See
--  Der Haardsee läuft über: Regen bringt Verschnaufpause beim Klimawandel
--  Veszprémben sem a hulladékgyűjtő manó viszi el a szemetet
--  With many royals ailing, Queen Camilla stepping up more in public
--  SWERTRES RESULT Today, Friday, February 16, 2024
--  The Sous-Vide Circulator Is a Forgetful Cook's Best Friend
--  Άγγελος Μπράτης: Πόζαρε με κόκκινα ψηλοτάκουνα την ημέρα του Αγίου Βαλεντίνου
--  With many royals ailing, Queen Camilla stepping up more in public
--  Başkan Şahin, deprem zirvesinde deprem anma ve eğitim müzesi projesini anlattı
--  Drie sterren voor The New Look: Coco Chanel is een over het paard getilde diva
+-  Abre finalmente o jogo sobre namoro com Bárbara Branco
+-  Berner Kitas: Ganztagsbetreuung gefragt, Vormittagsplätze bleiben frei
+-  Inter Milan Keeping Tabs On Belgium Starlet Likened To Ex Chelsea Legend
+-  La denunciante de Alperovich sufría física y psicológicamente, según los testigos
+-  Tucak: ''Izvukli smo zadnji atom snage! Nikad mi se nešto slično nije dogodilo''
+-  Unlocking protein structures with precision: Microfluidic Modulation Spectroscopy shines in HOS analysis - News-Medical.Net
+-  Medios: El futbolista Kylian Mbappé abandonará el PSG al terminar esta temporada
+-  Göz Batmasına Ne İyi Gelir?
+-  Google: Neues KI-Modell kann eine Stunde Video auswerten
+-  RBI-Aktie dreht ins Plus: Ukraine übt erneut Kritik an RBI - Kein Zeitplan zu Russland-Ausstieg
