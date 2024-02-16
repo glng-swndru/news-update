@@ -1,11 +1,11 @@
 # Latest News
--  Inside Harry and Meghan's Valentine's Day - $369 wine to secluded table and Valentino fit - The Mirror
--  Claremont McKenna College named "Top Producing Institution" of Fulbright Students by U.S. Secretary of State
--  Phil Taylor thinks Luke Littler could 'make a fortune' and quit darts in two years
--  Peníze na účtu obratem. Evropský parlament schválil nová pravidla
--  Ιταλία: Διαδικτυακή σύνοδος κορυφής της G7 στις 24 Φεβρουαρίου
--  Elzavarták a hajléktalanokat, hogy helyet csináljanak DiCaprio új filmjének
--  'Ruthless' Prince Harry wanted to look like 'hero' by King's side before glitzy event
--  eBay's Presidents Day Sale Will Save You Up to $500 on Smart TVs, Robot Vacuums, Generators and More - CNET
--  نص ساعة سلبية من مباراة فيينورد وروما
--  Red Bull: Horner niega conducta impropia en presentación monoplaza
+-  Rusya'da yapay zeka, tıp yeterlilik sınavını başarıyla geçti
+-  YouTube Shorts can now include clips from an artist’s music videos
+-  NDB Bank supports Junior National Hockey Championship 2024
+-  США запустили спутники слежения за гиперзвуковым оружием
+-  Major Fire Breaks Out In Delhi's Alipur Market, 7 Dead
+-  Nächster Pilotenstreik bei Discover
+-  Orbán Viktor történelmi beszédre készül, a forró témák is előkerülhetnek
+-  Judicial power of the people and a Presidential interpretation of our Constitution?
+-  Muhalefet partilerinin önerileri yine kabul edilmedi
+-  Лудогорец вече е на "Стад дьо Жонев" (видео)
