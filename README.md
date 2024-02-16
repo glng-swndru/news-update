@@ -1,11 +1,11 @@
 # Latest News
--  THE BREAKDOWN: Senators' winning streak halted with ugly loss to Anaheim Ducks
--  Garena Free Fire MAX redeem codes for February 16: Win free rewards ang gifts - Times of India
--  Nacional do Paraguai goleia Aucas (3-0) e avança à 2ª fase da Libertadores
--  「慌てて踏み間違えた」車運転の72歳女 ＪＲ鏡石駅前で教習所帰りの19歳男女2人死傷事故＜福島県＞
--  I’m loving my $8 drugstore lip color – I can confirm it’s the exact same as the Tarte Maracuja for a third of the price
--  Portuguesa e Água Santa empatam em jogo de confusões no encerramento da rodada no Paulistão
--  ３位・はだか祭りを前に ２位・スマートIC「機能強化」 １位は…＜週間ランキング 岡山・香川＞
--  Diese Stimme! „Tatort“-Star spielt jetzt im St. Pauli Theater
--  Perjuangan Belum Selesai, Anies: Kawal dan Laporkan Kecurangan
--  وفيات الجمعة .. 16 / 2 / 2024
+-  Daytona 500: Jimmie Johnson im Toyota zittert sich in den Duels ins Rennen!
+-  Tiết lộ 'siêu kế hoạch' tái thiết sân Old Trafford của Sir Jim Ratcliffe
+-  FSM Köprüsü sarıya büründü
+-  2 sao nữ cùng tên Hương Giang: Người úp mở có tình mới đúng Valentine, người công khai khoảnh khắc yêu
+-  خواهر رهبر کره شمالی: سفر کیشیدا به پیونگ یانگ امکان‌پذیر است
+-  Ángel de Brito confirmó el fin de una amistad que sacude a la farándula y todo es dolor: «Me dio donde más me dolía»
+-  Ranbir Kapoor reveals THIS personality is his inspiration; shares the biggest advice he got to be a good husband and a father
+-  二征夫人英雄历史3D投影舞台给观众带来视听盛宴
+-  Defamation suits against Kepala Batas MP to be heard in September
+-  윤 대통령 "이공계 학비 걱정 없게 전폭 지원"
