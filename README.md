@@ -1,11 +1,11 @@
 # Latest News
--  Президент Туркменистана поздравил Президента Литовской Республики
--  Egy Bugattira nem, Kömlődön és Tatán erre lenne elég 6 lottómilliárd +videó
--  Feiertage: Totensonntag 2024 – die Bedeutung des stillen Feiertags
--  Κύπελλο μπάσκετ Live: ΠΑΟΚ-Άρης
--  Endine armupettur: kõige parem oli naistele kirjutada hilja õhtul
--  UE i NATO wzmacniają obronę. Dyskusje o powołaniu nowego komisarza
--  Moskva vyhodila šéfa Čiernomorskej flotily, dopustil skazu ďalšej ruskej lode
--  Türkmenistanyň Prezidenti Litwa Respublikasynyň Prezidentini gutlady
--  Maroc : Une double disparition dans les mêmes circonstances d’un festival inquiète les familles
--  Bijonse i Tejlor Svift snimaju duet?
+-  En avgrunn mellom partene
+-  Former goalkeeper Mark Bosnich hospitalised following heart scare
+-  ‘ERA 2.83’ 볼티모어 우완 브래디시, 팔꿈치 인대 부상 진단
+-  LIVEBLOG FEYENOORD-ROMA. Daar is Lukaku! Big Rom kopt AS Roma terug langszij in sfeervolle Kuip
+-  13 Şubat'tan beri aranıyordu... Hasan Çölgeçen ölü bulundu
+-  【直木賞作家が教える】 人生を支えてくれる「池波正太郎の名言」とは？ - 教養としての歴史小説
+-  Ordenan nuevo juicio a imputados de crimen a Yuniol Ramírez
+-  YSK duyurdu! Oy sandıkları erişime açıldı
+-  Pakistanın bu şəhərini nəhəng timsah DƏHŞƏTƏ GƏTİRİB
+-  Full list of 40 surnames Pontins blacklisted amid discrimination against travellers
