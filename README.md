@@ -1,11 +1,11 @@
 # Latest News
--  Nagyot zuhant a Mol pénzügyi eredménye 2023-ban
--  Iz rodilišta odveli sestru preminulog dječaka, braću ostavili s roditeljima!? Majka: ‘Ne znam gdje je...‘
--  Имат ли китовете традиции?
--  فرنسية تطلق على مولودها اسم جزائري ساعدها في ولادته
--  Retinolo, cosa cambia con il nuovo regolamento e come usarlo in sicurezza nei nostri prodotti beauty
--  Neues Leben für Hallenbad Ascholding: Gemeinderat Dietramszell für Zwischennutzung als Kunstatelier
--  'O şehirler risk altında!'... Fatih Portakal canlı yayında o illeri tek tek o illeri saydı!
--  Dukung Peningkatan Kompetensi Pengajar di Tanah Air, BNI Berbagi 1.000 Sertifikasi Guru
--  김지희 작가, ‘영원한 금빛 너머’로 중국 K11 미술관 대규모 개인전
--  Hafta sonu kuvvetli sağanak bekleniyor! Bursa'da hava nasıl?
+-  Ζελένσκι: Κάνουν ό,τι καλύτερο μπορούν για τα στρατεύματα στην Αβντιίβκα
+-  Navy engineer walks 15 miles carrying 40kg for mental health charity
+-  快訊／籃協火速回應劉錚 強調會「加強溝通」避免造成誤會
+-  9 ilde "Kafes41" operasyonu: 61 gözaltı
+-  Missbrauchsvorwurf gegen früheren LWL-Pfleger aus Herten: „Die Patientin war fix und fertig“
+-  Wirtschaft in Wermelskirchen: Als auf die Flammen der Neubeginn folgte
+-  KPU Tasikmalaya Bakal Santuni KPPS yang Meninggal Dunia Saat Bertugas
+-  Berks career and technology centers get state grants to buy equipment
+-  Потери Армии обороны Израиля достигли 571 человека - ЦАХАЛ
+-  「有吉の壁」で人気のモデル激変
