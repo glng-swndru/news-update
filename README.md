@@ -1,11 +1,11 @@
 # Latest News
--  محافظ كفر الشيخ يتابع جهود شركة المياه في رفع تراكمات مياه الأمطار ببيلا
--  UE prevê crescimento mais fraco da zona do euro e inflação abaixo de 3% em 2024
--  Şampiyon olmak için kulaç attılar
--  Latvijas futbola izlase bez aizvadītām spēlēm pakāpusies FIFA rangā
--  Adnan Oktar davasında kritik gelişme!
--  Kaan Kahriman 142 kiloyla altın madalya kazandı
--  Özgür Özel: Anketler İzmir'de 30'da 30'u müjdeliyor
--  Як зробити, щоб не злипались макарони: ці поради має знати кожен
--  "لم يترك سوى سيرة ومسيرة عطرة"...فَقدَ لبنان اليوم مربّيًا وقائدًا
--  Trenitalia ambitionne de créer deux trains touristiques: un dans la Roya et un autre entre Milan et la Côte d'Azur jusqu'à Marseille
+-  Parks Associates: 24% of Households Report They Are Not Currently Enrolled in an Energy Program Such as Demand Response or Time-of-Use
+-  NetSTAR, a Leading Provider of URL Categorization Solutions, Announces Participation at MWC Barcelona 2024
+-  Akşener: Başka partilerle el sıkışıp ne idiği belirsiz durumların oluşmasına müsaade etmeyin
+-  Antalya'da 'Kafes-39' operasyonu: 15 şüpheli yakalandı
+-  Tinder: Sammelklage gegen Dating-App
+-  Reden wir über Geld mit Nico Rosberg: „Ich weiß nicht, ob ich das aushalten würde, mein eigenes Kind im Rennwagen“
+-  Vertailimme kaksi huippu­puhelinta – yhdessä ominaisuudessa toinen oli ylivoimainen
+-  Trupele ucrainene, „redistribuite de urgență” în Avdiivka. „Luptăm la 360 de grade împotriva unor noi brigăzi ruse”
+-  Israels Armee stürmt Krankhaus in Chan Junis
+-  Büyük milliyetçi Türkeş’in unutulmaz sözü: İslamiyeti ele alıp Türklüğü inkar etmek ihanettir
