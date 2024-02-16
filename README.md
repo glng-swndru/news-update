@@ -1,11 +1,11 @@
 # Latest News
--  U Dubrovniku svakodnevno niču nove zgrade, a ni stare nemaju parking! Bolje da vam ne zatreba hitna ili vatrogasci
--  Топлата зима е тук за да остане
--  Vidi ietekmē arī internets
--  Cosa dicono le stelle per il 16 febbraio
--  Путин призова руснаците да имат повече деца
--  Akaryakıta rekor zam! Benzin ve motorin fiyatı tam 4 lira... Yeni zamlar yolda! 16 Şubat 2024 benzin motorin fiyatları
--  Ärger über Matchstrafe, verpasster Shutout: EC Peiting gewinnt, aber ist nicht ganz zufrieden
--  Али Асадов остается на посту премьер-министра Азербайджана -ОБНОВЛЕНО
--  MILAN 2024: Mega Naval exercise set to witness over 50 countries displaying their might in Visakhapatnam
--  ឧកញ៉ា ហួត អៀងតុង៖ កម្ពុជា នៅខ្វះធនធានមនុស្សក្នុងវិស័យធនាគារ និងហិរញ្ញវត្ថុ
+-  Aleksi Valavuori yllättää ilmoituksellaan Instagramissa: ”Menemme naimisiin”
+-  Riecco Lukaku. Roma, un pari che vale oro
+-  2023'te yaklaşık 660 milyon liralık bozuk para ceplere girdi
+-  Мілан - Ренн 3:0: огляд матчу
+-  Mersin'de kazalara karşı servis ve otobüslere sıkı denetim
+-  李智凱世界盃開羅站「嚴重失誤」 林育信：還有3站會繼續加油
+-  Hakkari'de sokak hayvanlarına yiyecek bırakıldı
+-  Faktor Jokowi Gerus Suara Ganjar-Mahfud di Basis PDIP
+-  ‘Dít is jammer van Ruben Nicolai bij RTL!’
+-  В Казахстане предложили до конца года зафиксировать цены на яйца
