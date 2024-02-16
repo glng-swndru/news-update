@@ -1,11 +1,11 @@
 # Latest News
--  Гришо: Това е нова седмица и нов турнир, случилото се преди е вече зад гърба ми
--  TOP 5. Najbardziej i najmniej "paliwożerne" auta hybrydowe HEV na naszym rynku. Cz. 3
--  India To Launch Its First Helicopter Emergency Medical Service In Uttarakhand, Announces Jyotiraditya Scindia
--  80% of influencers don't properly disclose advertising
--  U Srbiji svakog dana jedno dete oboli od kancera! "I ja se borim" : Obeležava se Međunarodni dan dece obolele od raka!
--  Синоптики прогнозируют похолодание со следующей недели
--  È morta Marina Bulgari: addio alla regina del gioiello
--  BP и ADNOC создают СП для разработки газовых активов в Египте
--  Генпрокуратура выясняет обстоятельства, способствовавшие гибели четверых детей в Орше
--  Bahn-Tochter steckt tief in den roten Zahlen
+-  محافظ كفر الشيخ يتابع جهود شركة المياه في رفع تراكمات مياه الأمطار ببيلا
+-  UE prevê crescimento mais fraco da zona do euro e inflação abaixo de 3% em 2024
+-  Şampiyon olmak için kulaç attılar
+-  Latvijas futbola izlase bez aizvadītām spēlēm pakāpusies FIFA rangā
+-  Adnan Oktar davasında kritik gelişme!
+-  Kaan Kahriman 142 kiloyla altın madalya kazandı
+-  Özgür Özel: Anketler İzmir'de 30'da 30'u müjdeliyor
+-  Як зробити, щоб не злипались макарони: ці поради має знати кожен
+-  "لم يترك سوى سيرة ومسيرة عطرة"...فَقدَ لبنان اليوم مربّيًا وقائدًا
+-  Trenitalia ambitionne de créer deux trains touristiques: un dans la Roya et un autre entre Milan et la Côte d'Azur jusqu'à Marseille
