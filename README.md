@@ -1,11 +1,11 @@
 # Latest News
--  Assange iade edilirse ölecek
--  Masovni ubojica Breivik ostaje u izolaciji, nije uspio dokazati kršenje ljudskih prava
--  Europa, die USA und der Krieg: Ja zur Atombombe
--  Il gas chiude sotto quota 25 euro al MWh al Ttf di Amsterdam
--  Par Trampa kriminālprāvas sākumu ASV tiesnesis nosaka 25.martu
--  신협, 서천특화시장 화재 피해복구 성금 전달
--  Kupferhaus Planegg: Bühne frei für Würmtaler Musiker
--  윤석열 대통령 지지율 소폭 올라 33%…국힘 37%, 민주당 31%
--  Papa Francisc l-a primit în audiență pe prim-ministrul României. Ce cadou i-a făcut suveranul
--  Відкриття центрів для мігрантів: парламент Італії ухвалив рішення
+-  This 197-Foot Custom Superyacht Can Cruise in the Shallowest of Waters
+-  Resist flawed human bahviour
+-  Schalke im Keller: Die Frage nach der Einstellung: Karel Geraerts kommen erste Zweifel
+-  Councillor's bid to make Huntly streets a one-way route
+-  Шахтар - Марсель: ОНЛАЙН
+-  France to host humanitarian conference in April for Sudan
+-  The next round of the ESG fight should start in Congress, not in court
+-  Tribute for Newport man in car crash on Cardiff Road Newport
+-  Radosław Piesiewicz: Chcemy pokazać, że jesteśmy liczącym się w skali świata komitetem
+-  From Narrow Focus to Broad Success — How to Harness the Power of Niche Branding
