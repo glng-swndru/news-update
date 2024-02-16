@@ -1,11 +1,11 @@
 # Latest News
--  ダイハツ「ロッキー」の基準適合を確認 順次生産・出荷を再開へ
--  Седмично в Бундеслигата (15.02.2024)
--  趙少康憂兩岸敵意升高 談陸漁船翻覆：賴清德要善意重建官方溝通
--  김준호, ♥김지민에 ‘최악의 손금’ 지목…“분량 챙기려고” 해명 (독박투어2)
--  الكشف عن الحالة الجوية المتوقعة في جميع المحافظات اليوم الجمعة
--  Sombras sobre la luna de miel
--  Świątek powiedziała, co myśli o Azarence. Na Białorusi będzie o tym głośno
--  Deloitte Futbol Para Ligi'nde rekor gelir artışı
--  Soldaten in der Ukraine: Ein Krankenwagen für die Kameraden
--  Mehr Sicherheit für Fußgänger: Verkehrsschauen in Fröndenberge finden ohne Anwohner statt
+-  Тръпката се завръща на българския футболен терен! efbet Лига отново е тук с Топ Коефициенти и Бонуси!
+-  Türkiye'ye Sivas'ta o canlıdan korkunç haber geldi. Siyahı da geçtik bu zemheri siyah bir haber. Yumurtadan çıkar çıkmaz öldü
+-  Nacionālajā mākslas muzejā būs skatāma Aijas Jurjānes izstāde Karalienes virtuves
+-  Football: South Korea sack Klinsmann after Asian Cup disappointment
+-  Sää | Helsinkiin varoitus rankkasateesta
+-  Drei weitere Festnahmen nach Tod eines Ukrainers
+-  Altın madenindeki facia sonrası Murat Kurum hakkında suç duyurusu
+-  Rider taken to hospital after car collides with motorcycle at Ang Mo Kio junction
+-  Drei weitere Festnahmen nach Tod eines Ukrainers
+-  Bloomberg: Интервью Путина Такеру Карлсону не нашло отклика у российских телезрителей
