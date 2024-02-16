@@ -1,11 +1,11 @@
 # Latest News
--  Chat GPT'nin yaratıcısı Open AI'ın yeni yapay zeka aracı Sora duyuruldu! Sora nasıl kullanılır?
--  Hisarcık'ta din görevlileri toplantısı
--  Freies Wort hilft: Diagnose Krebs für den sechsjährigen Ben
--  Kırklareli'de minibüs ve otobüs şoförlerine eğitim
--  Настимир Ананиев: Няма как да е нямало политици в кръга на Нотариуса
--  Một mình chăm cô ruột, 12 năm sau, tôi được ‘di chúc’ 1 chiếc áo màu đỏ mà thấy ấm lòng
--  Orhaneli'de tek yön uygulaması hayata geçirildi
--  RED COMPARTIDA | La huelga que nadie quiere
--  Arnavutköy'de bulunan bir plastik depolama ve üretim imalathanesinde henüz bilinmeyen bir nedenle yangın çıktı. Olay yerine çok sayıda itfaiye, polis ve sağlık ekibinin sevk edildiği öğrenildi.
--  Гешев: Не познавам Нотариуса, защо няма комисия и за Алексей Петров
+-  Diaby and Torres start, McGinn call - Aston Villa starting XI vs Fulham predicted amid injury struggles
+-  عطاف يجري محادثات ثنائية مع وزيرة العلاقات الدولية والتعاون بجمهورية جنوب أفريقيا
+-  Landgericht Braunschweig: Prozess gegen Maddie-Verdächtigen vertagt
+-  Vesic: Serbia under unbelievable pressure
+-  Você pode ajudar a encontrar Geovana, uma das desaparecidas do Brasil
+-  Landgericht Braunschweig: Prozess gegen Maddie-Verdächtigen vertagt
+-  NatWest lucra menos no 4º trimestre, mas supera previsão
+-  Komşudan kanlı tuzak! Cinayete kaza süsü verip, ambulans çağırdılar
+-  PEZ figurice napunile su 70 godina, a još se prodaju u milijunima komada
+-  Real Count DPRD Luwu Dapil 2: Suara Petahana Abdul Muharrir Goyah Disalip Arman
