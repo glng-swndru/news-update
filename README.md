@@ -1,11 +1,11 @@
 # Latest News
--  This 197-Foot Custom Superyacht Can Cruise in the Shallowest of Waters
--  Resist flawed human bahviour
--  Schalke im Keller: Die Frage nach der Einstellung: Karel Geraerts kommen erste Zweifel
--  Councillor's bid to make Huntly streets a one-way route
--  Шахтар - Марсель: ОНЛАЙН
--  France to host humanitarian conference in April for Sudan
--  The next round of the ESG fight should start in Congress, not in court
--  Tribute for Newport man in car crash on Cardiff Road Newport
--  Radosław Piesiewicz: Chcemy pokazać, że jesteśmy liczącym się w skali świata komitetem
--  From Narrow Focus to Broad Success — How to Harness the Power of Niche Branding
+-  "المقاومة الإسلامية": استهداف‏ التجهيزات التجسسية في ‏موقع الناقورة البحري وتحقيق إصابة مباشرة
+-  Ο Μασκ εκδικείται το Ντέλαγουερ επειδή έχασε δίκη για 56 δισ. και μεταφέρει την έδρα της SpaceX στο Τέξας
+-  Venezuela suspende atividades do escritório de Direitos Humanos da ONU e expulsa seu pessoal
+-  Sud prihvatio јemstvo Igora Baćovića: Vozač za slobodu dao 450.000, Stoјanović izašao bez centa
+-  Bandai Namco Says It Is "Narrowing Down" Titles, Recently Canceled 5 Games
+-  Blinken përfundon vizitën në Tiranë, eskorta niset drejt aeroportit ‘Nënë Tereza’
+-  Norwegen: Attentäters Anders Breivik verliert Klage gegen Isolationshaft
+-  Die Hauptakteure der EUV-Sitzung: So kam die Abstimmung gegen die Gebührenrückzahlung zustande
+-  Košarkašice Budućnosti osvojile Kup Crne Gore
+-  Üç Kız Kardeş'in 2 ismi yürekleri ağza getiren kaza geçirdi! Son dakika sağlık durumu...
