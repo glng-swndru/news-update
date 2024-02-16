@@ -1,11 +1,11 @@
 # Latest News
--  Body recovered from submerged car in Thessaloniki
--  Bán Toyota Vios còn mới đẹp nhưng giá chỉ 200 triệu, CĐM nhìn biển số rồi nói: "Sang Lào mà đăng kiểm!"
--  Macarıstan XİN: Aİ-nin Türkiyəyə ehtiyacı var
--  Migrantes venezolanos contribuyen al aumento de la población en España: alcanzó el récord de 46.8 millones de habitantes
--  Uz brīdi būt skaļam un apvaldīt laiku. Mūziķis Ingus Ulmanis dodas jubilejas koncertturnejā
--  Alanya'da mağdur üreticilere Dr. Biner desteği
--  Des critiques déplorent le manque de consultations quant au projet de loi sur l'IA
--  ย้ายแล้ว "ส.ต.ต." ลวงขืนใจสาว 19 ผ่านแอปหาคู่ โทษอาญารอผลตรวจ รพ.เชือด
--  PDIP Masih Perkasa di Sulut, Survei PRC Raih 37,97 Persen Suara DPR RI
--  Incentives extended for EEC rail line builder
+-  To so konkretni ukrepi, ki jih ministrstvo uvaja za krajšanje čakalnih dob
+-  Flushing is Burning: Goodbye for Eppler
+-  Занятие по огневой подготовке для руководителей вузов прошло в Военной академии
+-  Süße Bedeutung: So heißt Kevin Yanik und Kathi Wageners Sohn
+-  Evernote'un çatı şirketi Bending Spoons, 155 milyon dolar yatırım aldı
+-  Důvody, proč si pořídit tepelné čerpadlo
+-  Endométriose chez les adolescentes : une prise en charge précoce est nécessaire
+-  Marmara Denizi'nde batan geminin yeri tespit edildi
+-  Luis Bará, dirigente do Bloco Nacionalista Galego: “Apostamos em que a alta velocidade Porto-Vigo seja realidade em 2030”
+-  Hatay, Kilis, Osmaniye, Adana, Gaziantep, Şanlıurfa, Elazığ, Malatya ve Kahramanmaraş dikkat! 20 Şubat'ta daha da artacak. Hepinize tek tek açıklandı
