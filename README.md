@@ -1,11 +1,11 @@
 # Latest News
--  Rusya'da yapay zeka, tıp yeterlilik sınavını başarıyla geçti
--  YouTube Shorts can now include clips from an artist’s music videos
--  NDB Bank supports Junior National Hockey Championship 2024
--  США запустили спутники слежения за гиперзвуковым оружием
--  Major Fire Breaks Out In Delhi's Alipur Market, 7 Dead
--  Nächster Pilotenstreik bei Discover
--  Orbán Viktor történelmi beszédre készül, a forró témák is előkerülhetnek
--  Judicial power of the people and a Presidential interpretation of our Constitution?
--  Muhalefet partilerinin önerileri yine kabul edilmedi
--  Лудогорец вече е на "Стад дьо Жонев" (видео)
+-  Президент Туркменистана поздравил Президента Литовской Республики
+-  Egy Bugattira nem, Kömlődön és Tatán erre lenne elég 6 lottómilliárd +videó
+-  Feiertage: Totensonntag 2024 – die Bedeutung des stillen Feiertags
+-  Κύπελλο μπάσκετ Live: ΠΑΟΚ-Άρης
+-  Endine armupettur: kõige parem oli naistele kirjutada hilja õhtul
+-  UE i NATO wzmacniają obronę. Dyskusje o powołaniu nowego komisarza
+-  Moskva vyhodila šéfa Čiernomorskej flotily, dopustil skazu ďalšej ruskej lode
+-  Türkmenistanyň Prezidenti Litwa Respublikasynyň Prezidentini gutlady
+-  Maroc : Une double disparition dans les mêmes circonstances d’un festival inquiète les familles
+-  Bijonse i Tejlor Svift snimaju duet?
