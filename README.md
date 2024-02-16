@@ -1,11 +1,11 @@
 # Latest News
--  Хелън Мирън - Актриса от класа - Труд
--  El barril sin fondo
--  Racing wrap: Mary chases magic mix, Gary Harley's preview, plus dogs, trots
--  Accende un braciere per scaldarsi, muore per esalazioni
--  Así no, Presidente
--  岡山南署の現金３２０万円紛失で「和解」 逮捕・起訴された巡査長に全額賠償を求め所有者へ【岡山】
--  百年精湛工藝一次看！Loewe打造Crafted World大型展三月登場
--  Komitmen Wujudkan Pemenuhan Hak Anak Lewat Temu Hati Anak Sleman 2024
--  Reolink Argus 3 Pro im Test: Überwachungskamera mit Akku und Solarpanel für 100 €
--  Да си прозападен в България по никакъв начин не означава, че трябва да следваш сляпо идеологията на Демократическата партия в САЩ - Труд
+-  ダイハツ「ロッキー」の基準適合を確認 順次生産・出荷を再開へ
+-  Седмично в Бундеслигата (15.02.2024)
+-  趙少康憂兩岸敵意升高 談陸漁船翻覆：賴清德要善意重建官方溝通
+-  김준호, ♥김지민에 ‘최악의 손금’ 지목…“분량 챙기려고” 해명 (독박투어2)
+-  الكشف عن الحالة الجوية المتوقعة في جميع المحافظات اليوم الجمعة
+-  Sombras sobre la luna de miel
+-  Świątek powiedziała, co myśli o Azarence. Na Białorusi będzie o tym głośno
+-  Deloitte Futbol Para Ligi'nde rekor gelir artışı
+-  Soldaten in der Ukraine: Ein Krankenwagen für die Kameraden
+-  Mehr Sicherheit für Fußgänger: Verkehrsschauen in Fröndenberge finden ohne Anwohner statt
