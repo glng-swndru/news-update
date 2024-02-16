@@ -1,11 +1,11 @@
 # Latest News
--  Ирина Жук о танцах на льду: «Хочется как в одиночном — прыгнуть четверной и точно победить»
--  Malta News Briefing – Friday 16 February 2024
--  Vídeo | Riesgos de batir un récord espacial: ‘viajes al futuro’, perder masa muscular y hasta problemas de erección
--  El Gobierno lanza el plan antiestafas para bloquear los fraudes bancarios a través de llamadas telefónicas
--  Money allocated for Oxygen used to buy substandard drugs
--  Kolumni | Tuore Netflix-sarja on lähes täydellinen onnistuminen, mutta se sai näyttelijän vihaamaan itseään
--  Tibor Gašpar a Peter Žiga si podľa opozície schválili samoamnestiu. Zastaví to novelu Trestného zákona?
--  El alza de tipos enfría la adquisición de clubes de fútbol tras el pico post Covid
--  名物「カレーごぼう天うどん」復活！ 豪雨で2度の浸水 閉店から蘇った人気店に“思い出の味”求めて常連客の行列
--  Roger Grimau: “Me pongo más presión que nadie. A veces es enfermizo”
+-  Nagyot zuhant a Mol pénzügyi eredménye 2023-ban
+-  Iz rodilišta odveli sestru preminulog dječaka, braću ostavili s roditeljima!? Majka: ‘Ne znam gdje je...‘
+-  Имат ли китовете традиции?
+-  فرنسية تطلق على مولودها اسم جزائري ساعدها في ولادته
+-  Retinolo, cosa cambia con il nuovo regolamento e come usarlo in sicurezza nei nostri prodotti beauty
+-  Neues Leben für Hallenbad Ascholding: Gemeinderat Dietramszell für Zwischennutzung als Kunstatelier
+-  'O şehirler risk altında!'... Fatih Portakal canlı yayında o illeri tek tek o illeri saydı!
+-  Dukung Peningkatan Kompetensi Pengajar di Tanah Air, BNI Berbagi 1.000 Sertifikasi Guru
+-  김지희 작가, ‘영원한 금빛 너머’로 중국 K11 미술관 대규모 개인전
+-  Hafta sonu kuvvetli sağanak bekleniyor! Bursa'da hava nasıl?
