@@ -1,11 +1,11 @@
 # Latest News
--  Aleksi Valavuori yllättää ilmoituksellaan Instagramissa: ”Menemme naimisiin”
--  Riecco Lukaku. Roma, un pari che vale oro
--  2023'te yaklaşık 660 milyon liralık bozuk para ceplere girdi
--  Мілан - Ренн 3:0: огляд матчу
--  Mersin'de kazalara karşı servis ve otobüslere sıkı denetim
--  李智凱世界盃開羅站「嚴重失誤」 林育信：還有3站會繼續加油
--  Hakkari'de sokak hayvanlarına yiyecek bırakıldı
--  Faktor Jokowi Gerus Suara Ganjar-Mahfud di Basis PDIP
--  ‘Dít is jammer van Ruben Nicolai bij RTL!’
--  В Казахстане предложили до конца года зафиксировать цены на яйца
+-  Piden Empresas Globales Estado eficaz para invertir más
+-  Али Асадов назвал приоритеты правительства
+-  정진석·박수현 3번째 맞대결 성사···홍문표·강승규는 국민의힘 내부 경선
+-  Geçen yıl 660 milyon TL'lik bozuk para cebe girdi
+-  Elecciones en Galicia 2024, en directo hoy: última hora de las encuestas, campaña electoral, candidatos a la Xunta y sondeos
+-  Stal Mielec z wizytą u wicelidera. Czy będzie powtórka z jesieni?
+-  6 ilde FETÖ operasyonu: 10 gözaltı
+-  Protesty w bałkańskim kraju, w tym "w obronie demokracji"
+-  Green IT: How Google’s cloud and AI tools are supporting a methane-tracking satellite project
+-  Türkiye'nin yüzde 52,7'si mutlu
