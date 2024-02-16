@@ -1,11 +1,11 @@
 # Latest News
--  Триумфатор ОИ Садулаев пропустит ЧЕ по борьбе в Румынии из-за отказа во въезде
--  Mass killer Breivik loses Norway human rights case
--  "Modersmordet visar grymt det gränslösa våldet"
--  3대가 공들였는데…"북한 큰 충격일 것"
--  Humanitarna fudbalska utakmica između Vlade i Skupštine CG
--  Breivik perde la causa contro Oslo per trattamento disumano
--  Congé menstruel: le Sénat écarte la mise en place d'un arrêt de travail... Voici ce qu'il faut savoir
--  Mozilla bus restruktūrizuojama, daugiausia dėmesio skirs „Firefox“ ir dirbtinio intelekto ...
--  България U17 приключи участието си на турнира в Хърватия с ново равенство
--  לסובוי ושואו ב-11 של מכבי חיפה לגנט. לחצו להרכב המלא
+-  Die Erwartungen und Hoffnungen: Reaktionen von CDU, SPD und Grüne auf den neuen Pächter vom Eyller See
+-  Der Haardsee läuft über: Regen bringt Verschnaufpause beim Klimawandel
+-  Veszprémben sem a hulladékgyűjtő manó viszi el a szemetet
+-  With many royals ailing, Queen Camilla stepping up more in public
+-  SWERTRES RESULT Today, Friday, February 16, 2024
+-  The Sous-Vide Circulator Is a Forgetful Cook's Best Friend
+-  Άγγελος Μπράτης: Πόζαρε με κόκκινα ψηλοτάκουνα την ημέρα του Αγίου Βαλεντίνου
+-  With many royals ailing, Queen Camilla stepping up more in public
+-  Başkan Şahin, deprem zirvesinde deprem anma ve eğitim müzesi projesini anlattı
+-  Drie sterren voor The New Look: Coco Chanel is een over het paard getilde diva
