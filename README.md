@@ -1,11 +1,11 @@
 # Latest News
--  Piden Empresas Globales Estado eficaz para invertir más
--  Али Асадов назвал приоритеты правительства
--  정진석·박수현 3번째 맞대결 성사···홍문표·강승규는 국민의힘 내부 경선
--  Geçen yıl 660 milyon TL'lik bozuk para cebe girdi
--  Elecciones en Galicia 2024, en directo hoy: última hora de las encuestas, campaña electoral, candidatos a la Xunta y sondeos
--  Stal Mielec z wizytą u wicelidera. Czy będzie powtórka z jesieni?
--  6 ilde FETÖ operasyonu: 10 gözaltı
--  Protesty w bałkańskim kraju, w tym "w obronie demokracji"
--  Green IT: How Google’s cloud and AI tools are supporting a methane-tracking satellite project
--  Türkiye'nin yüzde 52,7'si mutlu
+-  Хелън Мирън - Актриса от класа - Труд
+-  El barril sin fondo
+-  Racing wrap: Mary chases magic mix, Gary Harley's preview, plus dogs, trots
+-  Accende un braciere per scaldarsi, muore per esalazioni
+-  Así no, Presidente
+-  岡山南署の現金３２０万円紛失で「和解」 逮捕・起訴された巡査長に全額賠償を求め所有者へ【岡山】
+-  百年精湛工藝一次看！Loewe打造Crafted World大型展三月登場
+-  Komitmen Wujudkan Pemenuhan Hak Anak Lewat Temu Hati Anak Sleman 2024
+-  Reolink Argus 3 Pro im Test: Überwachungskamera mit Akku und Solarpanel für 100 €
+-  Да си прозападен в България по никакъв начин не означава, че трябва да следваш сляпо идеологията на Демократическата партия в САЩ - Труд
