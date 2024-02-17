@@ -1,11 +1,11 @@
 # Latest News
--  „Ich hol die Puffn und räum euch weg“
--  Helicópteros, drones e 300 policiais atuam na busca por fugitivos
--  Salta l'accordo in Ue sulle tutele per i rider
--  Δημοτικές: Αυτούς τους Δημάρχους-Αντιδημάρχους εισηγείται η ΔΗΠΑ για στήριξη
--  Депутати предлагат решение при повишение на цените на мобилните оператори
--  Top Putin critic Navalny dies in prison at 47
--  Livey sýnir spænska boltann á Íslandi
--  في دورة خاصة بالمقاومة الفلسطينية : مهرجان الأغنية التونسية 2024 يفسح مجال المشاركة للأشقاء العرب المقيمين في تونس
--  Propelled Brands Announces Speakers at International Franchise Association's 64th Annual Convention
--  İki evde yapılan aramada ruhsatsız silah ve tüfekler ele geçirildi
+-  Frau aus Kernen hat: Warum Sigrun Trinkle jetzt Weinkulturexpertin Champagne ist
+-  Website designers need filling in on issue
+-  Transferts - PSG : Mbappé se fait tacler en direct !
+-  Obituary: Henry Sandon, antique dealer
+-  Pavla Kladivová: Do Francie už se nikdy nevrátím
+-  Obituary: JPR — a player with flair, and dedicated doctor
+-  Nate Robinson Thinks ‘Nobody Wants To Be A Meme’ So It Takes Courage To Be In The Dunk Contest
+-  Michael Rosenthal named 2024-2025 chair of the Utility Broadband Alliance Board of Directors
+-  Tamil Nadu Class 12, 11 admit card 2024 released; Check details here
+-  Das Solothurner Wochen-Quiz: Haben Sie diese Woche alles mitbekommen?
