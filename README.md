@@ -1,11 +1,11 @@
 # Latest News
--  Rząd dyskryminuje uczniów? Episkopat reaguje na zmiany w oświacie
--  AARE MINU KODUS | Tuhaplokist Urr jälgib pere tegemisi
--  Dinamo are un nou atacant: „Ar putea debuta duminică”
--  Cyclisme - Tour de France. Tadej Pogacar en repérage sur le chrono entre Nuits et Gevrey
--  Prezident İlham Əliyev Münxendə israilli həmkarı ilə görüşdü
--  Ardèche. Aven d’Orgnac : le label Grand site de France officiellement renouvelé pour huit ans
--  [Ekstra] Nye Veier-sjefen: – I dag kunne jeg ikke gjort jobben med den masteroppgaven
--  This Is Me... Now, JLo torna regina del pop
--  Histoire. Missak Manouchian, les coulisses d’une panthéonisation... partie de la Drôme
--  Israele, all'ospedale Nasser farmaci con i nomi degli ostaggi
+-  VIDEO Splićani su zaboravili na zimu i uživali u piciginu: 'Ja ne pamtim da je bilo ovako toplo'
+-  Ben Duckett demolishes India demons in match-altering onslaught - ESPNcricinfo
+-  Maxim Van Gils boekt na schorsing in Ruta del Sol een van de opmerkelijkste zeges uit zijn loopbaan
+-  Maxim Van Gils boekt na schorsing in Ruta del Sol een van de opmerkelijkste zeges uit zijn loopbaan
+-  Росстат отметил снижение естественной убыли населения России в 2023 году на 17,4%
+-  Ribakina i Svjontek u finalu WTA turnira u Dohi
+-  NAFMC offers ‘Mission: Space’ on Family Day
+-  Maxim Van Gils boekt in Ruta del Sol na schorsing een van de opmerkelijkste zeges uit zijn loopbaan
+-  Maxim Van Gils boekt in Ruta del Sol na schorsing een van de opmerkelijkste zeges uit zijn loopbaan
+-  QUESTA SCUOLA È UNA GIUNGLA! - A PARMA UNA PROFESSORESSA DELLE SCUOLE MEDIA È STATA AGGREDITA DAI SUOI ALUNNI, CHE LE HANNO LANCIATO CONTRO UN SASSO - GLI STUDENTI HANNO PRIMA AGGREDITO VERBALMENTE L'INSEGNANTE E, POI, UNO DEI PISCHELLI LE HA TIRATO IL CIOTTOLO MIRANDO ALLA TESTA - SECONDO LA PROF, I RAGAZZINI SONO BEN CONSAPEVOLI DI NON ESSERE INCRIMINABILI VISTO CHE SI SONO VANTATI DI POTER COMMETTERE QUALUNQUE REATO...
