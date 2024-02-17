@@ -1,11 +1,11 @@
 # Latest News
--  맑고 포근한 토요일…낮 최고 8∼15도
--  Thông tin mới nhất về tuyển sinh lớp 10 năm 2024 ở Hà Nội: Nhiều trường xét tuyển bằng học bạ
--  Stanford Student activists end pro-Palestine sit-in protest
--  Sosok Sinta Rosma Yenti, Peraih Suara Tertinggi Calon DPD Dapil Kaltim, Pernah Jadi Pramugari Garuda
--  Eva Dorothy Syvertsen
--  Perolehan Suara Sementara Caleg PDIP untuk DPRD Sulut Dapil Manado Pagi Ini, Roring Dekati Pinontoan
--  ‘जातीय विभेदविरुद्ध अझै संघर्ष आवश्यक’
--  通膨數據冷卻降息預期 黃金連2週跌
--  Multa de 35,000 dólares a entrenador de Clippers por decir que árbitros hicieron trampa
--  Marriage has made me better — Anita Joseph
+-  “Gấu biển” của gia tộc 5 đời vươn khơi
+-  Nung ngói âm dương, ấm tình làng bản
+-  Мъри Стоилов с 0:0 в Турция
+-  В Германии возмутились отношением украинских беженцев к бесплатным продуктам
+-  Burnaby mayor dumbfounded Parkland Refinery not regulated by BC Energy Regulator (BC)
+-  북한 TV에 한국 애니 캐릭터가…'슈퍼 윙스' 풍선 포착
+-  The best Presidents' Day TV deals you can nab right now
+-  Better than Patagonia — my favorite L.L.Bean insulated puffer is back on sale for $139
+-  An Idaho man stabbed his mother to death. He’ll spend decades in prison, judge decides
+-  Saudi Arabia And Oman Hold Talks On Civil Aviation Sector Collaboration
