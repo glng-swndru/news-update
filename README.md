@@ -1,11 +1,11 @@
 # Latest News
--  Ο στρατός της Ουκρανίας αποσύρεται από την Αβντιίβκα, νίκη για τη Ρωσία
--  „Nem feltett kezekkel lépünk pályára” – Klujber a Fradi sorsdöntő BL-csatája előtt
--  Kind per Samenspende: Wie Hamburgerin stolze Solo-Mama wurde
--  Moartea lui Navalnîi: Autorităţile de la Moscova îi avertizează pe ruşi împotriva oricăror manifestaţii ,,neautorizate"
--  ‘GIVE THEM TIME’
--  Concordia se prepara para vivir la última noche del carnaval más pasional del país
--  16 İlde Bölücü Terör Örgütüne yönelik düzenlenen "Bozdoğan-2" operasyonlarında 120 şüpheli yakalandı
--  Japan meldet erfolgreichen Start seiner neuen Trägerrakete
--  Славия и Берое се срещат с надежди за добър старт на пролетния дял
--  Hasan Sabri Bursaspor'a güç katacak
+-  Mikulásjelmez, pucér gyászolók - ilyen extrém temetésen nem sokan voltak még
+-  Fernsehen per Internet statt Kabel | c’t uplink
+-  V sobotu bude oblačno až zamračené
+-  Lecsapott a plüssmaci: drogdílereket fogott az álruhás rendőr (videó)
+-  Was passiert mit deutschem Müll im Ausland?
+-  Pemungutan Suara Sususlan di Demak, Bawaslu Jateng Waspadai Politik Uang
+-  A gyász ideje
+-  "PORODILA SAM SE OD ŠOKA, PUKAO MI JE VODENJAK KADA SAM ČULA TO" Manekenka o šuškanju da su njen muž i Petar Grašo LJUBAVNICI: "Čekali su me ispred psihijatrije"
+-  Rysslands krigsdopade ekonomi döms ut
+-  Авдіївський напрямок: Генштаб розповів про ситуацію в гарячій точці
