@@ -1,11 +1,11 @@
 # Latest News
--  Guvernul britanic i-a convocat pe diplomații ruși: Considerăm autoritățile ruse pe deplin responsabile de moartea lui Navalnîi
--  Aleksiću, vreme je da odlepršaš iz politike! Đilasov pulen poziva se na bolesnu decu kako bi opljuvao Vučića!
--  Ukrayna birliklerini çekti
--  NÉZŐpont: a Team Jalen nyerte az ifjak, a Team Shannon pedig a celebek meccsét!
--  Ukrajinci se stáhli z Avdijivky. Hrozilo jim obklíčení ruskými jednotkami
--  Циклон с юга Скандинавии принесет в Мурманск метель
--  Crolla un cantiere a Firenze, i testimoni: "Boato come una bomba"
--  Az amerikai vámhatóság leállítja a Volkswagen-szállítmányokat
--  Песков занервничал из-за заявлений мировых лидеров о смерти Навального
--  Νέοι ενεργειακοί διάδρομοι στα Βαλκάνια με επίκεντρο την Ελλάδα
+-  La sartén más buena y barata del mercado está en Ikea, palabra de la OCU
+-  Zeulenrodaer im Trabant auf Schweden-Tour: Auspuff macht schlapp
+-  Geschüttelt, nicht gerührt: Heute im Free-TV ist Sean Connery ein Agent mit Lizenz zum Töten!
+-  Man Utd's £1.2bn squad the most expensive ever assembled as UEFA reveal top 20
+-  Nah an Menschen: Mit 76 Jahren Indien per Fahrrad erkunden
+-  ISTORIJU ŽENA PIŠU MUŠKARCI: Kasja Smutnjak, zvezda istorijske drame "Domina", o najpoznatijoj rimskoj carici, feminizmu i borbi
+-  Cinco alimentos que no deberíamos congelar bajo ningún concepto y aún así lo hacemos
+-  Unik inblick: Härifrån styrs hela rallyt
+-  Gardening: How to cut back for better fruit
+-  Bu poğaçanın mayalanma derdinin olmadığını duyanlar mutfağa koşuyor! 5 dakikada hazır kıyır kıyır dereotlu poğaça tarifi
