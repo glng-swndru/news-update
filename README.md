@@ -1,11 +1,11 @@
 # Latest News
--  Kurti se sastao sa Boreljom i Lajčakom u Minhenu: Ponovo tražio potpisivanje sporazuma
--  Salernitana, Esposito furioso: "Assurdo, nemmeno un tiro in porta contro l'Inter. Basta alibi"
--  Toyota takes high hopes into Daytona 500
--  [ITmedia Mobile] 「Android 15」のデベロッパープレビュー 1が登場
--  How to get Rotom in Pokemon Go and can it be Shiny?
--  So unterschiedlich sind Hilary Swanks Zwillinge Aya und Ohm!
--  'İhracatı arttırmamız gerekiyor'
--  Fiscalía abre investigación por denuncia de acoso que Karla Tarazona interpuso contra Rafael Fernández
--  Pendik'te kaymakamlık lojmanına silahlı saldırı. Polis noktasına ateş edip kaçtılar
--  IZIBET Amateur League: Qormi held by San Gwann as Cottonera derby ends in a draw
+-  Cuma Pazarı esnafı Şahin'i bağrına bastı
+-  Invitan a pensar cómo la tecnología está cambiando la forma de producir arte
+-  Una venezolana en Reino Unido gana premio por innovador proyecto de educación
+-  Руководство «Баварии» о возможной отставке Тухеля
+-  Die Anhörung im Fall Trump Georgia zum Antrag auf Disqualifikation von Fani Willis wird fortgesetzt
+-  ¿Habrá un concierto masivo el 8M en el Zócalo por el Día de la Mujer? No, y esto sabemos
+-  Locke's 'vague' plans for Surrey stadium catches Lions by surprise
+-  Protesta agricoltori, i trattori oggi tornano a Roma
+-  Protesta agricoltori, i trattori oggi tornano a Roma
+-  Protesta agricoltori, i trattori oggi tornano a Roma
