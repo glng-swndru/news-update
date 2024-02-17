@@ -1,11 +1,11 @@
 # Latest News
--  Langley City calls on B.C. for more school funding as growth takes off
--  Олександр Денисов потрапив у важку ДТП
--  Govt. ‘studying’ SC order on electoral bonds schemes, rules out precipitate action
--  Serie A: Inter-Salernitana 4-0
--  Donald Trump ordered to pay over $350m in New York financial fraud case
--  Eski X-Men animasyon dizisinin devamı niteliğindeki X-Men '97'den ilk fragman yayınlandı
--  Spektakl na Gripama: Cibona protiv Zadra za trofej u Kupu!
--  OBRADOVIĆ IDE U POLUFINALE Džaba i sjajni srpski centar
--  Microsoft fixes two zero-days with Patch Tuesday release
--  Lautaro Martínez metió un tanto, para el Inter que golea a Salernitana
+-  أسعار الصرف وبيع العملات الأجنبية مساء الجمعة بالعاصمة عدن
+-  SPK, iki şirketin ilk halka arzını onayladı
+-  Gaziantep'te silahlı saldırıya uğrayan kişi öldü
+-  GOVERNOR HOCHUL'S BUDGET MUST ADDRESS NURSING HOME CRISIS
+-  Sąd nałożył na Trumpa gigantyczną karę finansową
+-  Papież przyjął rezygnację kardynała, który na początku roku "zaginął" w tajemniczych okolicznościach
+-  PAULISTA A3: Desportivo Brasil defende a liderança contra o União Suzano
+-  Rybakina sets up final with Swiatek
+-  MN - Graffiedi: "Theo e Leao impressionanti, sotto tutti i punti di vista. Campioni assoluti"
+-  "Cucho" Hernández: "A Messi lo quieres enfrentar pero no, a la vez"
