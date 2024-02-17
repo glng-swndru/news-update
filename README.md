@@ -1,11 +1,11 @@
 # Latest News
--  주유소 기름값 3주 연속 상승…휘발유 다시 1600원대
--  中国では加工貿易業の「世代交代」が着々と進行
--  રશિયાના વિપક્ષી નેતા એલેક્સી નેવેલનીનું જેલમાં જ મૃત્યુ
--  B.C.'s life sciences labour gap set for 11-fold increase, says report
--  Chủ tịch Gia Nguyễn Group tạo dự án "ma", chiếm đoạt hơn 78 tỷ đồng
--  Police execute search warrant in an Indignity to a Dead Body investigation
--  古江彩佳は12位で決勝へ 勝みなみ17位に浮上／欧州女子ツアー
--  Police execute search warrant in an Indignity to a Dead Body investigation
--  Black Student Unions in Surrey high schools offering connection, belonging
--  Para migrar em caso do “fim do mundo”: nosso planeta tem um gêmeo a apenas 22 anos-luz
+-  නැවුම් වෙනසක් කරා නීති ප්‍රතිසංස්කරණය කරමු
+-  MWC 2024: da Deutsche Telekom in arrivo il concept di smartphone AI senza applicazioni
+-  Bürgerrechtler: Über 100 Festnahmen bei Nawalny-Gedenken
+-  ශ්‍රී ලංකා – ඇෆ්ගන් පළමු පන්දු වාර 20-20 තරගය අද
+-  Bürgerrechtler: Über 100 Festnahmen bei Nawalny-Gedenken
+-  නාරම්මල පොලිස් වෙඩිල්ලට එරෙහිව බිරිඳ උසාවි යයි
+-  „Situacija labai pavojinga.“ Kinija skubiai keičia mobilizaciją. IISS skelbia, kas nutiko
+-  Moutinho e o FC Porto: «Não guardo rancor, tomei a decisão e estou muito feliz»
+-  Bürgerrechtler: Über 100 Festnahmen bei Nawalny-Gedenken
+-  „Ce șanse are Rapid la titlu?” » Marius Măldărășanu, opinie sinceră în conferință: „E în sufletul tuturor, dar...”
