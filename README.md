@@ -1,11 +1,11 @@
 # Latest News
--  TERVIS ⟩ Psühhiaater: ATH-kahtluse korral ära kahtlusta, pöördu arsti poole!
--  Cartoon (16/02/2024)
--  Report: Struggling Man Utd loanee set for Old Trafford return as club currently 'rule out' buy-option
--  Darum sollten Sie Ihr Parfum nicht im Bad lagern
--  Simply the best: The must-see shows in Melbourne this year
--  OVO ĆE POSTATI MNOGO MOĆNIJE ORUŽJE NEGO DANAS! Vučić upozorio šta će biti za samo par godina
--  Jetzt kostenlos und ohne Abo streamen: Folge 1 der neusten Staffel einer der besten Serien aller Zeiten
--  Focus on here and now
--  Cash from Kangaroo Paws: how to make your garden lucrative
--  Tarcísio defende reversão de tombamento de complexo do Ibirapuera contra 'arquitetura obsoleta'
+-  "Немає жодних процедур": Данілов пояснив, чому РФ отримує зброю швидше за Україну
+-  Berlinale: So hart trifft das Ende des Streaming-Booms die deutsche Filmbranche
+-  A tüntetés zárásaként közösen eléneklik a himnuszt
+-  Za pucnjavu na paradi Super Bowla optužili dva maloljetnika
+-  The after-hours phone call that gave workers the right to disconnect
+-  The Lenovo President's Day Sale Starts Now: The Best Deals on Legion Gaming PCs and Laptops
+-  Superman: Legacy Director James Gunn Confirms Why Bassem Youssef Won't Appear In Film
+-  Alisson missir líklega af næsta leik
+-  Нещо застрашава Орбан В Унгария. Гневът на обществото
+-  Tisíce Maďarov protestujú v Budapešti po afére amnestie v pedofilnej kauze
