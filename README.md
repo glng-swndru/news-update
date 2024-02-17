@@ -1,11 +1,11 @@
 # Latest News
--  Pazarcık'ta konteyner yangını
--  لليوم الخامس.. استمرار عمليات البحث عن الشخص المفقود بالجبل الأخضر
--  الهجمات الخفية عبر القنوات الجانبية في شبكات المعلومات المعزولة
--  J.Lo, zar ti nije hladno? Rijetko koja žena bi ove hlače nosila usred zime
--  Kraft s rekordným 9. triumfom v sezóne, Kasai bodoval
--  FC Porto-Estrela: os onzes prováveis (com estreia à vista)
--  Marina di Ragusa, l'antico Galeón Andalucía approda al porto turistico
--  StammELV Schiffweiler: In Schiffweiler gibt es jetzt einen SVE-Fanclub – sogar der Vizepräsident des Vereins ist dabei
--  이준석, 기자회견 1시간 전 돌연 취소…낙-준 갈등 '표면화'
--  Uzmanı uyardı: Para cezası yolda
+-  Fleximan in azione in Piemonte, tagliato in due un autovelox
+-  Para irmão, só crueldade explica espancamento de Anderson até a morte
+-  L'actualité en images. Frangy-en-Bresse : 110 élèves se sont déguisés pour fêter le carnaval au village
+-  Радан Кънев: Надявам се ротацията да случи, както е договорена
+-  Dziś Światowy Dzień Kota. Andrzej Duda przedstawia rodakom "pierwszego kota RP": "ULUBIENIEC Agaty" (FOTO)
+-  Näin rakennat sähköä säästävän älykodin
+-  Handwerker müssen sich neu aufstellen: „Das Neubaugeschäft ist eingebrochen“
+-  Mourinho prognozirao pobjednika Lige prvaka
+-  Singapore Cancer Society to roll out rehab, cancer screening services as it marks 60th anniversary - The Straits Times
+-  Live meepraten in de Premier League: Brentford FC - Liverpool
