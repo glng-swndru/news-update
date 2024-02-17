@@ -1,11 +1,11 @@
 # Latest News
--  Wow! Brad Pitt schenkt Ines De Ramon riesigen Blumenstrauß
--  美斯代言股極兔速遞 曾挫26% 股民陪「坐」艇
--  Trump fined $364M in New York civil fraud case
--  એમ.એસ.યુનિ.ના સૌથી મહત્વના પરીક્ષા વિભાગમાં ડે.રજિસ્ટ્રારની જગ્યા ખાલી પડી
--  Bundesgesundheitsminister: Karl Lauterbach hofft auf Neuauflage für Ampel-Regierung
--  پیش‌بینی بدهی آمریکا: ۵۴ تریلیون دلار!
--  Jardar brøt barriere: Sikret bronse i junior-NM
--  Prepping the Sandworm Scenes in Dune: Part Two
--  Gun-related charges laid against two juveniles in Kansas City mass shooting
--  دنیای آتی بانکداری، دنیای نوآوری‌‌‌ها است
+-  Langley City calls on B.C. for more school funding as growth takes off
+-  Олександр Денисов потрапив у важку ДТП
+-  Govt. ‘studying’ SC order on electoral bonds schemes, rules out precipitate action
+-  Serie A: Inter-Salernitana 4-0
+-  Donald Trump ordered to pay over $350m in New York financial fraud case
+-  Eski X-Men animasyon dizisinin devamı niteliğindeki X-Men '97'den ilk fragman yayınlandı
+-  Spektakl na Gripama: Cibona protiv Zadra za trofej u Kupu!
+-  OBRADOVIĆ IDE U POLUFINALE Džaba i sjajni srpski centar
+-  Microsoft fixes two zero-days with Patch Tuesday release
+-  Lautaro Martínez metió un tanto, para el Inter que golea a Salernitana
