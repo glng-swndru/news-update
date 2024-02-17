@@ -1,11 +1,11 @@
 # Latest News
--  Megtévesztő levelet kaptak a cégek
--  Sex worker killings | Sex workers recall encounters with murder-accused
--  Lula critica Israel por guerra e diz que mazelas não serão resolvidas por extrema direita racista
--  À Chartres, des seniors cuisinent et déjeunent ensemble tous les mois grâce au CCAS
--  10 metrelik dev anakonda şehre indi. Evlere doğru ilerledi
--  Prije 30 godina poginuo je legendarni zapovjednik Gavran, jedan od najvećih heroja Domovinskog rata
--  러, 나발니 애도 분위기 경계…"집회 참석 100여명 구금"
--  Ja igram s Jokićem, kvalitet pokažem u plej-ofu! As Denvera poslao moćnu poruku!
--  Fünf Jahre nach der Mega-Sprengung: In Videos: So fiel das Kraftwerk Knepper im Jahr 2019
--  Tak zmieniły się gwiazdy pierwszej edycji "Warsaw Shore": Paweł Cattaneo, "Mała" Ania, Eliza Trybała, Mariusz "Śmietana" (ZDJĘCIA)
+-  Pazarcık'ta konteyner yangını
+-  لليوم الخامس.. استمرار عمليات البحث عن الشخص المفقود بالجبل الأخضر
+-  الهجمات الخفية عبر القنوات الجانبية في شبكات المعلومات المعزولة
+-  J.Lo, zar ti nije hladno? Rijetko koja žena bi ove hlače nosila usred zime
+-  Kraft s rekordným 9. triumfom v sezóne, Kasai bodoval
+-  FC Porto-Estrela: os onzes prováveis (com estreia à vista)
+-  Marina di Ragusa, l'antico Galeón Andalucía approda al porto turistico
+-  StammELV Schiffweiler: In Schiffweiler gibt es jetzt einen SVE-Fanclub – sogar der Vizepräsident des Vereins ist dabei
+-  이준석, 기자회견 1시간 전 돌연 취소…낙-준 갈등 '표면화'
+-  Uzmanı uyardı: Para cezası yolda
