@@ -1,11 +1,11 @@
 # Latest News
--  Nostalgie in der Mediathek: Kultserien zum Binge-Watchen
--  Serie A: Torino-Lecce 2-0
--  Alper Gezeravcı'nın uzaydan İstanbul karesi
--  Fenerbahçe'den Beşiktaş'a tarihi fark
--  EU announces subsidy probe into Chinese train maker
--  SERIE A - Torino-Lecce 2-0: Super Bellanova, i granata scavalcano il Napoli
--  Elisa Carrió aseguró que el Gobierno genera “un pymecidio y la destrucción de la clase media”
--  Navalni deixou mensagem sobre sua morte em documentário de 2022
--  職場にいる「自然と人が集まってくる人」が持っている1つの特徴 - 1秒で答えをつくる力 お笑い芸人が学ぶ「切り返し」のプロになる48の技術
--  Nostalgie in der Mediathek: Kultserien zum Binge-Watchen
+-  Bajden: Ruske vlasti će da pričaju svoju priču, ali budite...
+-  Mystinen virus tappoi ensimmäistä kertaa ihmisen Yhdysvalloissa – Tästä on kyse taudissa, joka herättää maailmalla huomiota
+-  Petróleo prolonga ganhos apoiado na acomodação do dólar e sinais de ajuste de posicionamento
+-  REGIONALNA KOŠARKA U SUZAMA Preminuo legendarni košarkaški trener i bivši selektor
+-  Happy 27th Birthday To The Simpsons' Best-Ever Needle Drop
+-  Natural Gas Crashes Into Historic 25-Year Price Support
+-  「セクシー田中さん」の日テレだけじゃない！「不誠実なエリート」がのさばる組織の病理 - 原田泰 データアナリシス
+-  Зеленский и Макрон подписали двустороннее соглашение о гарантиях безопасности
+-  Възможно ли е да са прикрити улики при убийството на Нотариуса?
+-  Кремль проводить дезінформаційну кампанію з дискредитації Зеленського – WP
