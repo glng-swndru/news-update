@@ -1,11 +1,11 @@
 # Latest News
--  7 неща, които момичетата мразят в телата си, въпреки че мъжете са луди по тях
--  Milli güreşçi Avrupa Şampiyonu oldu
--  ¿Cómo es que Robert F. Kennedy Jr., la oveja negra de los Kennedy es clave para decidir quién ganará las elecciones presidenciales?
--  Biden: Putin ist verantwortlich für Nawalnys Tod
--  Baleada na Sapucaí, Nathalia Santos pede por doações de sangue após passar por cirurgia
--  Biden: Putin ist verantwortlich für Nawalnys Tod
--  Снимка на деня: Кога и на теб ще ти се откъсне тромб, кучи сине
--  Após polêmica de traição, Renata Heilborn compartilha mensagem inspiradora: - Nenhum momento ruim define nossa vida
--  Zendaya surpreende com look robótico em première de Duna 2
--  OL - Nice : les compos officielles !
+-  Media russi, bandiere di Mosca nel centro di Avdiivka
+-  Taylor Swift gives $100,000 to the family of the woman killed in the Chiefs parade shooting
+-  Flagrado em reunião golpista, ex-vice AGU ficou em cargo de confiança no governo
+-  سرود و سخن
+-  Украинские атаки стоят России миллионы
+-  Hawaii's Coral Ecosystems Are the Latest Reefs to Be Insured against Extreme Storms
+-  U NJEGA NAVIJAČI PARTIZANA VERUJU Bio je heroj u poslednjem pohodu na Niš, a da li to može da uradi ponovo?
+-  Hollyoaks confirms surprise and unexpected new love interest for Ethan Williams – and it’s not Dilly Harcourt
+-  Kylian Mbappe Mantap Tinggalkan PSG, Klub Lain Bisa Angkut Gratisan
+-  Taylor Swift gives $100,000 to the family of the woman killed in the Chiefs parade shooting
