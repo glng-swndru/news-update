@@ -1,11 +1,11 @@
 # Latest News
--  Crise politique au Sénégal : L’ambassadeur des Etats-Unis rencontre le professeur Babacar Guèye et Moundiaye Cissé
--  Reunimos as principais tendências que desfilaram em Nova Iorque
--  STF já condenou 71 pessoas pelos atos antidemocráticos de 8 de janeiro
--  اللقاء الوطني للهيئات الزراعية استنكر الاعتداء الوحشي الصهيوني على المدنيين العزل في النبطية والصوانة
--  Quem era Alexei Navalny, o obstinado opositor de Putin que morreu atrás das grades
--  STF já condenou 71 pessoas pelos atos antidemocráticos de 8 de janeiro
--  MFW2024: Mansarda 53 presenta la moda più cool dal Brasil
--  Lezárják este a Hősök terét: így változik a közlekedés a tüntetés miatt
--  Navalnyin kuolema | ”Putin kidutti hänet kuoliaaksi” – Lännessä tyrmistyttiin Navalnyin kuolin­uutisesta
--  Chỉ số VN-Index cao nhất trong vòng 5 tháng qua
+-  Felix Graf Adelmann über Lust und Last eines Burgherrn
+-  Zelenski potpisao bezbjednosni sporazum sa Njemačkom
+-  İsrail Husi'lerin saldırıları nedeniyle yeni rota oluşturdu!
+-  SSC Napoli, Lombardo: "Non possiamo fare 110 conferenze stampa all'anno"
+-  Sadece Antalya'da yetişiyor: Koparmanın cezası yaklaşık 2 milyon lira
+-  “Littmann Sessions“ in der Staatsoper: Punkband Die Nerven auf der großen Opernbühne
+-  Tischtennis-Team-WM 2024 Ergebnisse: Deutsche Spielerinnen gewinnen Auftakt! Boll sagt ab
+-  Netflix' merkelige serie Chicken Nugget kommer i midten av mars.
+-  Skandalozno! Đilasovci i tajkunski mediji pljuvali proslavu Dana državnosti: Smeta im sve srpsko! (VIDEO)
+-  DGS apela a hospitais para reforçarem medidas de controlo de infeções
