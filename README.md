@@ -1,11 +1,11 @@
 # Latest News
--  "Немає жодних процедур": Данілов пояснив, чому РФ отримує зброю швидше за Україну
--  Berlinale: So hart trifft das Ende des Streaming-Booms die deutsche Filmbranche
--  A tüntetés zárásaként közösen eléneklik a himnuszt
--  Za pucnjavu na paradi Super Bowla optužili dva maloljetnika
--  The after-hours phone call that gave workers the right to disconnect
--  The Lenovo President's Day Sale Starts Now: The Best Deals on Legion Gaming PCs and Laptops
--  Superman: Legacy Director James Gunn Confirms Why Bassem Youssef Won't Appear In Film
--  Alisson missir líklega af næsta leik
--  Нещо застрашава Орбан В Унгария. Гневът на обществото
--  Tisíce Maďarov protestujú v Budapešti po afére amnestie v pedofilnej kauze
+-  7 неща, които момичетата мразят в телата си, въпреки че мъжете са луди по тях
+-  Milli güreşçi Avrupa Şampiyonu oldu
+-  ¿Cómo es que Robert F. Kennedy Jr., la oveja negra de los Kennedy es clave para decidir quién ganará las elecciones presidenciales?
+-  Biden: Putin ist verantwortlich für Nawalnys Tod
+-  Baleada na Sapucaí, Nathalia Santos pede por doações de sangue após passar por cirurgia
+-  Biden: Putin ist verantwortlich für Nawalnys Tod
+-  Снимка на деня: Кога и на теб ще ти се откъсне тромб, кучи сине
+-  Após polêmica de traição, Renata Heilborn compartilha mensagem inspiradora: - Nenhum momento ruim define nossa vida
+-  Zendaya surpreende com look robótico em première de Duna 2
+-  OL - Nice : les compos officielles !
