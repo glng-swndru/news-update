@@ -1,11 +1,11 @@
 # Latest News
--  Treba je odpreti okno, pogledati v svet in se učiti
--  4期ぶり43億円の黒字 JR四国
--  "Dune 2": Kiệt tác đỉnh cao thể loại phim khoa học viễn tưởng
--  ‘Too fat for sex’: Husband’s private pain
--  ΟΗΕ: Ανησυχίες ότι το Ισλαμικό Κράτος «ριζώνει» στη δυτική Αφρική
--  Engenhoso método científico consegue transferir energia solar do espaço para a Terra
--  VeChain: How High Can VET Surge This Weekend?
--  Görevimiz ve eylemimiz
--  Super Bowl LIX: ¿dónde se jugaría la próxima final de la NFL?
--  ઈજનેરી વિદ્યાર્થીને ડ્રગ કેસમાં ફસાવી 20 લાખની ખંડણીની માંગ
+-  Badan Hukum BUMN Diganti Koperasi?
+-  Miembros de comunidad mapuche deponen huelga de hambre en Chile
+-  Biden "outraged" over Alexey Navalny's reported death
+-  इस हरी सब्जी के सामने सारे फल विटामिन सी के मामले में फेल
+-  И Лунин? В Испании назвали мощный старт Реала на следующий сезон с Мбаппе
+-  Birmingham apartment building damaged after fire
+-  일본 신형 H3로켓 발사 성공...지난해 실패 이후 1년만
+-  이준석, 개혁신당 내홍 속 긴급 기자회견 예고했다가 돌연 취소
+-  #RSDailyMusic: Here’s What We’re Listening to Today
+-  Estos son los requisitos para acceder a una beca en 2024: Colfuturo y Fullbright
