@@ -1,11 +1,11 @@
 # Latest News
--  Perth engineering firm fined after employee lost fingers in ‘traumatic amputation’
--  Войната на светците - Труд
--  Krimovke v boj za napredovanje
--  Sigurjón tekur slaginn áfram með Grindavík (Staðfest)
--  De Vrij avvisa la Juve: «Vincere e andare a +10 è fondamentale per non dare speranze»
--  So viele neue Staatsbürger gab es im Vorjahr in Wien
--  Galatasaray'da Köhn görücüye çıkıyor!
--  Gdy zobaczył, co złowił, nie mógł uwierzyć. "To szalone, po prostu niedorzeczne"
--  FOTO: Novomeščani ostajajo pri štirih pokalnih lovorikah
--  Simple habits that help in balancing hormones naturally - Times of India
+-  "Życie żołnierzy jest najwyższą wartością". Ukraińcy wycofują się z Awdijiwki
+-  Iran: Israel laut »New York Times« hinter Pipeline-Explosionen vermutet
+-  Жительницу Каменска-Уральского «забыли» выселить из снесенного дома
+-  L’INTER AMMAZZA IL CAMPIONATO: CALA IL POKER CONTRO UNA SALERNITANA ALLO SBANDO (PERCHE’ CAMBIARE INZAGHI PIPPO CON LIVERANI?) E VOLA A PIU’ 10 SULLA JUVE – L’AD NERAZZURRO BEPPE MAROTTA SULL’INTERESSE DEL PSG PER LAUTARO: “NON VEDO DIFFERENZE TRA LORO E L’INTER. ZIELINSKI? È TRA GLI SVINCOLATI MONITORATI. VEDREMO IN MODO TRASPARENTE SE LA COSA SI POTRÀ ANNUNCIARE O NO”
+-  Erste Zahlen aus Energiebericht
+-  NEMA ŠANSE DA PREPOZNATE PEVAČICU SA FOTKE! Bila je prirodna lepotica, sada je prozivaju ZBOG OPERACIJA I FOTOŠOPA!
+-  Prabowo Usai Bertemu SBY di Pacitan: Sowan Senior
+-  SASLUŠANI SVI SVJEDOCI U PREDMETU PROTIV DOKTORA NIKOLE FATIĆA
+-  Open day for Kintyre climate campaign’s six-month mark
+-  Trabzon hava durumu: Meteoroloji sağanak için sarı alarm verdi! (17 Şubat 2024)
