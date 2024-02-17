@@ -1,11 +1,11 @@
 # Latest News
--  Badan Hukum BUMN Diganti Koperasi?
--  Miembros de comunidad mapuche deponen huelga de hambre en Chile
--  Biden "outraged" over Alexey Navalny's reported death
--  इस हरी सब्जी के सामने सारे फल विटामिन सी के मामले में फेल
--  И Лунин? В Испании назвали мощный старт Реала на следующий сезон с Мбаппе
--  Birmingham apartment building damaged after fire
--  일본 신형 H3로켓 발사 성공...지난해 실패 이후 1년만
--  이준석, 개혁신당 내홍 속 긴급 기자회견 예고했다가 돌연 취소
--  #RSDailyMusic: Here’s What We’re Listening to Today
--  Estos son los requisitos para acceder a una beca en 2024: Colfuturo y Fullbright
+-  雙院長相見歡！韓國瑜主動握陳建仁手 笑喊「不要擁抱了，握手就好」
+-  Eine Chronologie der Twitter-Übernahme durch Tesla-Chef Elon Musk
+-  Biggest takeaways after wild 2-day hearing on Fani Willis affair: ‘What’s done is done’
+-  यूपी सिपाही भर्ती परीक्षा: आज से 75 जिलों के 2385 केंद्रों पर होगा एग्जाम, जानें गाइडलाइंस
+-  의대생들 "20일 동맹 휴학 강행…설문조사 결과, 90% 이상 찬성"
+-  টিভিতে আজকের খেলা (১৭ ফেব্রুয়ারি, ২০২৪)
+-  Tras peticiones a AMLO, ofrece gobierno estatal “soluciones” a Secundaria Popular
+-  “สิทธิพล” ยินดีคลังเตรียมทบทวนเก็บภาษีนำเข้าสินค้า
+-  SpaceX Celebrates Triple Rocket Launches Including Milestone 300th Falcon 9 Flight
+-  استمرار التصعيد الميداني.. وهوكشتاين يلتقي ميقاتي ويعلن تحضير "حلول دائمة"
