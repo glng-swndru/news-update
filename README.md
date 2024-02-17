@@ -1,11 +1,11 @@
 # Latest News
--  雙院長相見歡！韓國瑜主動握陳建仁手 笑喊「不要擁抱了，握手就好」
--  Eine Chronologie der Twitter-Übernahme durch Tesla-Chef Elon Musk
--  Biggest takeaways after wild 2-day hearing on Fani Willis affair: ‘What’s done is done’
--  यूपी सिपाही भर्ती परीक्षा: आज से 75 जिलों के 2385 केंद्रों पर होगा एग्जाम, जानें गाइडलाइंस
--  의대생들 "20일 동맹 휴학 강행…설문조사 결과, 90% 이상 찬성"
--  টিভিতে আজকের খেলা (১৭ ফেব্রুয়ারি, ২০২৪)
--  Tras peticiones a AMLO, ofrece gobierno estatal “soluciones” a Secundaria Popular
--  “สิทธิพล” ยินดีคลังเตรียมทบทวนเก็บภาษีนำเข้าสินค้า
--  SpaceX Celebrates Triple Rocket Launches Including Milestone 300th Falcon 9 Flight
--  استمرار التصعيد الميداني.. وهوكشتاين يلتقي ميقاتي ويعلن تحضير "حلول دائمة"
+-  Muslim cleric left with broken teeth after suspected hate attack says ‘Is breá liom Éire’ as gardaí investigate
+-  La Copa Diputación tiene calendario
+-  The Mutual Fund Show: How Investors Should Evaluate Returns Of Schemes
+-  Today’s Wordle Hints (and Answer) for Saturday, February 17, 2024
+-  Serial arsonist torched garda’s private car before calmly walking away
+-  Pól Ó Conghaile: Why a good menu is so much more than a list of dishes and prices
+-  Father of Fani Willis tells court he wasn’t aware of daughter’s romance with Trump prosecutor
+-  Here's Why BofA Securities Is Bullish On PSU Banks
+-  Editorial: A formidable foe, Alexei Navalny’s actions rocked Putin’s Kremlin
+-  Latest Touareg plug-in SUV – big price, but just €150 road tax
