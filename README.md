@@ -1,11 +1,11 @@
 # Latest News
--  Confindustria, 'Investimenti deboli, urgente accelerare il Pnrr'
--  Lukijalta | Haluavatko veronmaksajat rahoittaa Taidetestaajat-hanketta?
--  Játékos télűző vetélkedőt szervez a Rotary
--  X(旧Twitter)からのトラフィックは「大半がボットによる偽の数字」であるとの調査データ、Instagramの1％未満に対してXは30％超から期間によっては70％超まで跳ね上がる
--  Confindustria, 'industria vicina a archiviare fase di flessione'
--  Manchester United could target Erik ten Hag favourite to replace Casemiro this summer - journalist
--  Badminton Asia Team Championships: India Advances to Final Against Thailand
--  Kunsthaus Bregenz erinnert an Günter Brus: Im Labyrinth des Zeichners
--  VLADAN ČUKIĆ: Ujpešt bolji posle promena
--  Disznótoron űzzük a telet a hétvégén Somogyban
+-  นายกฯ ตามสถานการณ์ส่งออก มุ่งมั่นพัฒนา "นครพนม" จากเมืองรองเป็นเมืองหลัก
+-  Las lesiones más comunes en un jugador de pádel amateur: ¿Qué hay que hacer cuando sentimos molestias?
+-  Jadwal Penyeberangan Kapal Feri Rute Merak-Bakauheni Akhir Pekan Ini
+-  生後半年のカワウソのこども 四つ子の長女が一足早くデビュー
+-  Calenda: un commissario alla Difesa? Sì ma solo se ha deleghe
+-  Kazdağları'nda yaşayan yaban hayvanları unutulmadı! Dondurucu soğukta kilolarca yem bırakıldı
+-  [날씨] 내일 흐려지다 오후부터 전국 비…낮 최고 12∼18도
+-  Az első Mercedes, amelyben lakni is lehet: a fényűző ingatlan Dubaj egyik legmagasabb felhőkarcolója lesz – fotók
+-  Memleket Partisi'nin İBB başkan adayı belli oldu!
+-  O sítích 6G se mluví už pět let, na vývoji se podílí všichni telekomunikační giganti. S nasazením ale nespěchají
