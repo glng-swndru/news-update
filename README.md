@@ -1,11 +1,11 @@
 # Latest News
--  وفد الأكاديمية العسكرية للدراسات العليا والاستراتيجية بجمهورية مصر العربية يصل إلى سلطنة عُمان
--  Kimondta a német kancellár: nem lehet háború Oroszország és a NATO között, de pénzelni kell Ukrajnát
--  Jordanov kaput
--  Klasyfikacja generalna Pucharu Świata 2023/24 i Pucharu Narodów. O ile miejsc awansował Kubacki?
--  Talk of European nuclear deterrent 'not helpful', says NATO's Stoltenberg
--  Elektrikli araç piyasasına yeni canavar: Avrupa'dan önce ülkemizde satışa girdi! Hozon Neta U'dan inanılmaz kampanya...
--  Бижу! Български национал вкара феноменален гол в efbet Лига (видео)
--  Pilotenstreik führt zu ersten Flugausfällen bei Discover
--  Задръстване на пътя София - Перник. Има катастрофа с пострадали
--  Кои зодии са обект на присмех глупешки?
+-  Ungmenni ákærð fyrir skotárásina í Kansas
+-  의협 비대위 첫 회의 “정부, 깊은 고민 없이 정치권 압력 수행”
+-  Webb telescope makes unexpected find in outskirts of our solar system - Mashable
+-  Film Look At Me, Touch Me, Kiss Me Hadirkan Cerita Dari 3 Negara Berbeda
+-  Naa In Woo to V: Korean newsmakers of the week
+-  "불매할래요" 이강인 모델 기업들에 '불똥'…진화 나서
+-  Danas napravite sarmu ili krpice sa zeljem i uživajte u okusima
+-  How Selling Insurance Became One of the Worst Jobs in California
+-  7 Potret Lawas Titiek Soeharto, Anak Presiden RI ke-2 yang Jadi Cinta Sejati Prabowo Subianto
+-  Suraskite keistą skaičių per 5 sekundes: optinė iliuzija labai gabiems žmonėms
