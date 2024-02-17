@@ -1,11 +1,11 @@
 # Latest News
--  "Soit ils continueront de porter le maillot, soit ils dégageront" : Broncan (CA Brive) met la pression sur ses joueurs
--  Carewell Celebrates the Heart of Caregiving with 2024 Caregiver Award Winners
--  Juve, commovente messaggio di Mandzukic per il tecnico bianconero – VIDEO
--  Europees kampioen Jenning de Boo (20) kijkt met bewondering naar Jordan Stolz: ‘Hij is dé maatstaf voor iedereen’
--  L'association Livradoué-Dansaïre, organisatrice du World Festival, fête ses 70 ans
--  Филиал Института имени Столыпина откроют в Татарстане
--  Marie Keudel und Jens Schumann als Sportler des Jahres geehrt
--  Clea-Lacy Juhn und Partner Hasim erwarten ihr erstes Kind!
--  Parolin, la morte di Navalny ci stupisce e ci addolora
--  5 scams people in Norfolk should be aware of this week
+-  A TV2 műsorvezetője élő adásban árulta el, hogy babát vár
+-  No habrá trenes el próximo miércoles: la Fraternidad anunció un paro de 24 horas
+-  Калинкович: защита исторической правды всеми правовыми средствами сегодня особенно важна
+-  Egy hónapig nem volt fűtés a győri kórház urológiáján és szülészetén
+-  Al via le riprese del nuovo film di Elisabetta Sgarbi
+-  Asvel eliminisan iz Kupa Francuske
+-  Florida encabeza la lista de lugares más mortales para andar en bicicleta
+-  Rusi oplakuju Navaljnog, vlasti upozoravaju: 'Ne sudjelujte na prosvjedu!'
+-  Deputados dos EUA aprovam retirada de poder de Biden para congelar licenças de projetos de GNL
+-  Azərbaycan Prezidenti Hakan Fidanla görüşdü
