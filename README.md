@@ -1,11 +1,11 @@
 # Latest News
--  La sartén más buena y barata del mercado está en Ikea, palabra de la OCU
--  Zeulenrodaer im Trabant auf Schweden-Tour: Auspuff macht schlapp
--  Geschüttelt, nicht gerührt: Heute im Free-TV ist Sean Connery ein Agent mit Lizenz zum Töten!
--  Man Utd's £1.2bn squad the most expensive ever assembled as UEFA reveal top 20
--  Nah an Menschen: Mit 76 Jahren Indien per Fahrrad erkunden
--  ISTORIJU ŽENA PIŠU MUŠKARCI: Kasja Smutnjak, zvezda istorijske drame "Domina", o najpoznatijoj rimskoj carici, feminizmu i borbi
--  Cinco alimentos que no deberíamos congelar bajo ningún concepto y aún así lo hacemos
--  Unik inblick: Härifrån styrs hela rallyt
--  Gardening: How to cut back for better fruit
--  Bu poğaçanın mayalanma derdinin olmadığını duyanlar mutfağa koşuyor! 5 dakikada hazır kıyır kıyır dereotlu poğaça tarifi
+-  Gmina Rawicz otrzymała 2,5 mln zł dofinansowania na rozbudowę strzelnicy
+-  Türkiye'de geliştirilen 'kurşun yutan cam' ile taksici ölümlerinin önüne geçilebilir
+-  FilmSharks Sells Wide ‘Lobo Feroz,’ Ines Paris’ ‘Olvido’ (EXCLUSIVE)
+-  La Contienda en el DF será muy dura
+-  Кельн - Вердер 0:1: огляд матчу
+-  Tchaj-wan chce z Česka udělat základnu na dodávky pro čipovou továrnu TSMC v Drážďanech
+-  FilmSharks Sells Wide ‘Lobo Feroz,’ Ines Paris’ ‘Olvido’ (EXCLUSIVE)
+-  '80’ler 90’lar Gülümseten Hatıralar' Saray’ı salladı
+-  Tuore pariskunta lahjoitti häälahjaksi saamansa 3500 euroa tervakoskelaiselle Suojele Eläintä -yhdistykselle – "Näin isoa summaa emme ole koskaan saaneet"
+-  ペットボトルで幼い男の子の顔を殴りケガを負わせた47歳”養父”の男を逮捕…児童相談所が”打撲痕”みつけ通報「手が滑っただけ 事故だ」と容疑否認 釧路市
