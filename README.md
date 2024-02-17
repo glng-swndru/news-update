@@ -1,11 +1,11 @@
 # Latest News
--  MPESB 87-13 फार्मूले के खिलाफ हाई कोर्ट में 10 याचिकाएं, पढ़िए आज की कार्यवाही - NEWS TODAY
--  Début des plaidoiries des parties civiles au procès des attentats de Trèbes et Carcassonne qui avaient fait quatre morts en 2018
--  Oekraïne sluit veiligheidsakkoorden met Duitsland, Frankrijk en straks ook Nederland
--  Россия и Украина обменялись телами военнослужащих
--  El Gobierno designó a Ignacio Yacobucci como nuevo presidente de la UIF
--  Azərbaycanda şagird vəfat etdi
--  Η εργαζόμενη της χρονιάς: Πώς αντέδρασε όταν πελάτισσα τής έριξε αναψυκτικό
--  Real Madrid ấn định ngày thông báo ký hợp đồng với Mbappe
--  Държавата ще даде 4.7 млн. лева на неолимпийските спортове през 2024 г.
--  Milanović o Turudiću i Mamiću: Ne radi se o reduciranom izričaju, ovo je sada prijesna laž
+-  Crise politique au Sénégal : L’ambassadeur des Etats-Unis rencontre le professeur Babacar Guèye et Moundiaye Cissé
+-  Reunimos as principais tendências que desfilaram em Nova Iorque
+-  STF já condenou 71 pessoas pelos atos antidemocráticos de 8 de janeiro
+-  اللقاء الوطني للهيئات الزراعية استنكر الاعتداء الوحشي الصهيوني على المدنيين العزل في النبطية والصوانة
+-  Quem era Alexei Navalny, o obstinado opositor de Putin que morreu atrás das grades
+-  STF já condenou 71 pessoas pelos atos antidemocráticos de 8 de janeiro
+-  MFW2024: Mansarda 53 presenta la moda più cool dal Brasil
+-  Lezárják este a Hősök terét: így változik a közlekedés a tüntetés miatt
+-  Navalnyin kuolema | ”Putin kidutti hänet kuoliaaksi” – Lännessä tyrmistyttiin Navalnyin kuolin­uutisesta
+-  Chỉ số VN-Index cao nhất trong vòng 5 tháng qua
