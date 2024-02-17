@@ -1,11 +1,11 @@
 # Latest News
--  No es una estafa, es la policía: el importante recordatorio que muchos españoles han recibido por correo electrónico
--  Elisa Aguilar: "Sergio Scariolo es el mejor, espero que esté muchos años en la selección"
--  The Carpenters Arms, Shirenewton, to reopen this week
--  Müəllim etdiyi paylaşıma görə işdən çıxarıldı
--  Elisa Aguilar: "Sergio Scariolo es el mejor, espero que esté muchos años en la selección"
--  Neil Kinnock backs Vaughan Gething, Max Boyce backs Jeremy Miles
--  Blaenau Gwent council tax increase in 2024 to go before council
--  Two sections of Monmouthshire and Brecon Canal towpath closed
--  Man found dead in house in Barry with next of kin search on
--  Un hoț care jefuise o persoană la un bancomat a fost oprit de o femeie cu un copil. Acesta a renunțat la pradă
+-  Guvernul britanic i-a convocat pe diplomații ruși: Considerăm autoritățile ruse pe deplin responsabile de moartea lui Navalnîi
+-  Aleksiću, vreme je da odlepršaš iz politike! Đilasov pulen poziva se na bolesnu decu kako bi opljuvao Vučića!
+-  Ukrayna birliklerini çekti
+-  NÉZŐpont: a Team Jalen nyerte az ifjak, a Team Shannon pedig a celebek meccsét!
+-  Ukrajinci se stáhli z Avdijivky. Hrozilo jim obklíčení ruskými jednotkami
+-  Циклон с юга Скандинавии принесет в Мурманск метель
+-  Crolla un cantiere a Firenze, i testimoni: "Boato come una bomba"
+-  Az amerikai vámhatóság leállítja a Volkswagen-szállítmányokat
+-  Песков занервничал из-за заявлений мировых лидеров о смерти Навального
+-  Νέοι ενεργειακοί διάδρομοι στα Βαλκάνια με επίκεντρο την Ελλάδα
