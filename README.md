@@ -1,11 +1,11 @@
 # Latest News
--  Take a Look at John Williams' Original Music Manuscript for the Star Wars Theme
--  Loophole got man a free 5-year New York stay, then he claimed the building
--  Aaj Ka Rashiifal: कन्या राशि के जातकों के लिए दिन रहने वाला है शुभ, बड़ी उपलब्धि के लिए रहें तैयार, जाने पूरा राशिफल
--  CFB Esquimalt compromise saves space for Eves of Destrution Roller Derby
--  Schon wieder Nippelblitzer! Florence Pughs Kleid verrutscht
--  'Remember that': Pep Guardiola responds to Gary Neville jibe at 'boring' Man City
--  ¡Bombazo! Se confirmó oficialmente el futuro de Cristian Pavón
--  Loophole got man a free 5-year New York stay, then he claimed the building
--  Broken machine delays Jack Grealish injury diagnosis to confuse Man City preparations vs Chelsea
--  Loophole got man a free 5-year New York stay, then he claimed the building
+-  Kurti se sastao sa Boreljom i Lajčakom u Minhenu: Ponovo tražio potpisivanje sporazuma
+-  Salernitana, Esposito furioso: "Assurdo, nemmeno un tiro in porta contro l'Inter. Basta alibi"
+-  Toyota takes high hopes into Daytona 500
+-  [ITmedia Mobile] 「Android 15」のデベロッパープレビュー 1が登場
+-  How to get Rotom in Pokemon Go and can it be Shiny?
+-  So unterschiedlich sind Hilary Swanks Zwillinge Aya und Ohm!
+-  'İhracatı arttırmamız gerekiyor'
+-  Fiscalía abre investigación por denuncia de acoso que Karla Tarazona interpuso contra Rafael Fernández
+-  Pendik'te kaymakamlık lojmanına silahlı saldırı. Polis noktasına ateş edip kaçtılar
+-  IZIBET Amateur League: Qormi held by San Gwann as Cottonera derby ends in a draw
