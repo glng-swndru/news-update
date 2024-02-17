@@ -1,11 +1,11 @@
 # Latest News
--  Uludağ'da 1 kişinin ölümüne sebep olan şoför tutuklandı
--  नेदरल्याण्ड्सविरूद्ध टस जितेको नेपालले पहिले बलिङ गर्ने
--  Thomas J. Henry promueve como nadie la consolidación de los equipos corporativos
--  Ehliyetsiz sürücü, yolun karşısına geçmeye çalışan aileye çarptı
--  Com muita sorte, 16 apostas de MS faturam prêmio na Lotofácil
--  Şişli'de bariyerlere çarpan motosiklet sürücüsü hayatını kaybetti
--  Arecanut Price Karnataka:‌ ರಾಜ್ಯದ ಮಾರುಕಟ್ಟೆಯಲ್ಲಿ ಇಂದಿನ ಅಡಿಕೆ ಧಾರಣೆ
--  Emilia Santillana ganó las elecciones pero su triunfo se vio opacado por este personaje | Papá en Apuros Cap 79
--  Il morbillo è tornato: 7 morti in un mese. I sintomi e perché i casi saliranno
--  Kronologi Ketua KPPS di Bandung Meninggal Dunia, Sempat Drop setelah Pemungutan Suara
+-  Así es el lío detrás de proyecto 4G que está paralizado en Cundinamarca
+-  Ranjit Hoskote: In our interconnected world, Gaza is everywhere
+-  Tällaiset ovat talvisen autolomamatkan energiakulut Mercedeksen uudella E-sarjan lataushybridillä ja EQE-sähköautolla
+-  Territory falling behind Queensland in barra business: Anglers
+-  Ngôi sao suýt đóng vai của Trấn Thành trong "Mai", được "đo ni đóng giày" từ đầu nhưng ekip một mực muốn đổi
+-  NASA satellite technology made by Southampton company
+-  Shiba Inu: How High Can SHIB Surge This Weekend?
+-  Российский боксер Атаев завоевал титул чемпиона IBA
+-  Belgium Loyalty Programs Market Intelligence and Future Growth Dynamics Databook 2019-2023 and 2024-2028
+-  お兄ちゃんになったばかりの息子、生まれたばかりの妹を抱いて離さず……？ まさかの“一言”が1633万再生！【海外】
