@@ -1,11 +1,11 @@
 # Latest News
--  Ungmenni ákærð fyrir skotárásina í Kansas
--  의협 비대위 첫 회의 “정부, 깊은 고민 없이 정치권 압력 수행”
--  Webb telescope makes unexpected find in outskirts of our solar system - Mashable
--  Film Look At Me, Touch Me, Kiss Me Hadirkan Cerita Dari 3 Negara Berbeda
--  Naa In Woo to V: Korean newsmakers of the week
--  "불매할래요" 이강인 모델 기업들에 '불똥'…진화 나서
--  Danas napravite sarmu ili krpice sa zeljem i uživajte u okusima
--  How Selling Insurance Became One of the Worst Jobs in California
--  7 Potret Lawas Titiek Soeharto, Anak Presiden RI ke-2 yang Jadi Cinta Sejati Prabowo Subianto
--  Suraskite keistą skaičių per 5 sekundes: optinė iliuzija labai gabiems žmonėms
+-  Megtévesztő levelet kaptak a cégek
+-  Sex worker killings | Sex workers recall encounters with murder-accused
+-  Lula critica Israel por guerra e diz que mazelas não serão resolvidas por extrema direita racista
+-  À Chartres, des seniors cuisinent et déjeunent ensemble tous les mois grâce au CCAS
+-  10 metrelik dev anakonda şehre indi. Evlere doğru ilerledi
+-  Prije 30 godina poginuo je legendarni zapovjednik Gavran, jedan od najvećih heroja Domovinskog rata
+-  러, 나발니 애도 분위기 경계…"집회 참석 100여명 구금"
+-  Ja igram s Jokićem, kvalitet pokažem u plej-ofu! As Denvera poslao moćnu poruku!
+-  Fünf Jahre nach der Mega-Sprengung: In Videos: So fiel das Kraftwerk Knepper im Jahr 2019
+-  Tak zmieniły się gwiazdy pierwszej edycji "Warsaw Shore": Paweł Cattaneo, "Mała" Ania, Eliza Trybała, Mariusz "Śmietana" (ZDJĘCIA)
