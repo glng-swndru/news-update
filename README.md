@@ -1,11 +1,11 @@
 # Latest News
--  “Gấu biển” của gia tộc 5 đời vươn khơi
--  Nung ngói âm dương, ấm tình làng bản
--  Мъри Стоилов с 0:0 в Турция
--  В Германии возмутились отношением украинских беженцев к бесплатным продуктам
--  Burnaby mayor dumbfounded Parkland Refinery not regulated by BC Energy Regulator (BC)
--  북한 TV에 한국 애니 캐릭터가…'슈퍼 윙스' 풍선 포착
--  The best Presidents' Day TV deals you can nab right now
--  Better than Patagonia — my favorite L.L.Bean insulated puffer is back on sale for $139
--  An Idaho man stabbed his mother to death. He’ll spend decades in prison, judge decides
--  Saudi Arabia And Oman Hold Talks On Civil Aviation Sector Collaboration
+-  Treba je odpreti okno, pogledati v svet in se učiti
+-  4期ぶり43億円の黒字 JR四国
+-  "Dune 2": Kiệt tác đỉnh cao thể loại phim khoa học viễn tưởng
+-  ‘Too fat for sex’: Husband’s private pain
+-  ΟΗΕ: Ανησυχίες ότι το Ισλαμικό Κράτος «ριζώνει» στη δυτική Αφρική
+-  Engenhoso método científico consegue transferir energia solar do espaço para a Terra
+-  VeChain: How High Can VET Surge This Weekend?
+-  Görevimiz ve eylemimiz
+-  Super Bowl LIX: ¿dónde se jugaría la próxima final de la NFL?
+-  ઈજનેરી વિદ્યાર્થીને ડ્રગ કેસમાં ફસાવી 20 લાખની ખંડણીની માંગ
