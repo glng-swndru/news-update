@@ -1,11 +1,11 @@
 # Latest News
--  Recompensă uriașă oferită de poliția din Australia pentru a rezolva misterul unei crime vechi de 46 de ani
--  Justiția franceză recunoaște „violența nediscriminatorie de o intensitate excepțională” din Gaza
--  Jaf într-un cimitir din județul Mureș. Mai mulți indivizi au furat bani și bijuterii și s-au făcut nevăzuți
--  DEM Parti'nin İzmir adayları belli oldu
--  Επ. Διοικήσεως: Απουσία αντικειμενικής αξιολόγησης προσόντων μελών Αστυνομίας
--  Sur'daki binalar kadın vitraycıyla renkleniyor
--  Български таланти в сноуборда спечелиха 2 златни медала и 1 сребърен в Германия
--  Alcaraz has his sights set on regaining world No 1 from Djokovic
--  ЕК: Рано е да се говори за стабилни тенденции в подобряването на конкурентоспособността на ЕС
--  Zorlu Töre, Baf Türk Birliği Yönetim Kurulu’nu kabul etti
+-  „Ich hol die Puffn und räum euch weg“
+-  Helicópteros, drones e 300 policiais atuam na busca por fugitivos
+-  Salta l'accordo in Ue sulle tutele per i rider
+-  Δημοτικές: Αυτούς τους Δημάρχους-Αντιδημάρχους εισηγείται η ΔΗΠΑ για στήριξη
+-  Депутати предлагат решение при повишение на цените на мобилните оператори
+-  Top Putin critic Navalny dies in prison at 47
+-  Livey sýnir spænska boltann á Íslandi
+-  في دورة خاصة بالمقاومة الفلسطينية : مهرجان الأغنية التونسية 2024 يفسح مجال المشاركة للأشقاء العرب المقيمين في تونس
+-  Propelled Brands Announces Speakers at International Franchise Association's 64th Annual Convention
+-  İki evde yapılan aramada ruhsatsız silah ve tüfekler ele geçirildi
