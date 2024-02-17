@@ -1,11 +1,11 @@
 # Latest News
--  Testiryhmä maisteli blinit Lappeenrannan keskustan ravintoloista – Suurin ja rasvaisin oli ylivoimainen
--  Minh Hà khoe "món quà hạnh phúc" do con gái tự làm, giàu có nhưng luôn dạy con biết trân trọng những điều đơn giản
--  Titiek Soeharto Disebut Cocok Jadi Ibu Negara, Intip Koleksi Tas Chanel Vintage Miliknya: Ada yang Ratusan Juta!
--  여성이어서 고맙습니다
--  El impacto del ajuste: cuánto cuesta vivir en las provincias que registraron más inflación
--  Viejos anónimos
--  A pedal
--  El mejor de todos
--  Capitalismo y esquizofrenia
--  Organizações de direitos humanos pedem fim de operação policial no litoral de São Paulo
+-  Uludağ'da 1 kişinin ölümüne sebep olan şoför tutuklandı
+-  नेदरल्याण्ड्सविरूद्ध टस जितेको नेपालले पहिले बलिङ गर्ने
+-  Thomas J. Henry promueve como nadie la consolidación de los equipos corporativos
+-  Ehliyetsiz sürücü, yolun karşısına geçmeye çalışan aileye çarptı
+-  Com muita sorte, 16 apostas de MS faturam prêmio na Lotofácil
+-  Şişli'de bariyerlere çarpan motosiklet sürücüsü hayatını kaybetti
+-  Arecanut Price Karnataka:‌ ರಾಜ್ಯದ ಮಾರುಕಟ್ಟೆಯಲ್ಲಿ ಇಂದಿನ ಅಡಿಕೆ ಧಾರಣೆ
+-  Emilia Santillana ganó las elecciones pero su triunfo se vio opacado por este personaje | Papá en Apuros Cap 79
+-  Il morbillo è tornato: 7 morti in un mese. I sintomi e perché i casi saliranno
+-  Kronologi Ketua KPPS di Bandung Meninggal Dunia, Sempat Drop setelah Pemungutan Suara
