@@ -1,11 +1,11 @@
 # Latest News
--  KAISİYAD üyelerini üniversite bir araya getirdi!
--  Pierre Arditi : Réapparition après les malaises, l'acteur sans filtre sur ces "expériences" malheureuses
--  V Thajsku začali vyrábět elektrické repliky evropských klasik, některé i zmenšené
--  أوباما يعود: بدأوا يسحبون بايدن من السباق الرئاسي
--  Pagaron a cuidacoches, pero encontraron les pincharon las ruedas
--  Un homme qui "menaçait" des policiers avec une "lame de boucher" tué à Paris
--  Тейлър Фриц продължава защитата на титлата си в Делрий Бийч
--  Un homme qui "menaçait" des policiers avec une "lame de boucher" tué à Paris
--  Żminijietna pushes for Malta to steer clear of EU's Red Sea maritime mission
--  H.Yıldızspor mucize arıyor
+-  وفد الأكاديمية العسكرية للدراسات العليا والاستراتيجية بجمهورية مصر العربية يصل إلى سلطنة عُمان
+-  Kimondta a német kancellár: nem lehet háború Oroszország és a NATO között, de pénzelni kell Ukrajnát
+-  Jordanov kaput
+-  Klasyfikacja generalna Pucharu Świata 2023/24 i Pucharu Narodów. O ile miejsc awansował Kubacki?
+-  Talk of European nuclear deterrent 'not helpful', says NATO's Stoltenberg
+-  Elektrikli araç piyasasına yeni canavar: Avrupa'dan önce ülkemizde satışa girdi! Hozon Neta U'dan inanılmaz kampanya...
+-  Бижу! Български национал вкара феноменален гол в efbet Лига (видео)
+-  Pilotenstreik führt zu ersten Flugausfällen bei Discover
+-  Задръстване на пътя София - Перник. Има катастрофа с пострадали
+-  Кои зодии са обект на присмех глупешки?
