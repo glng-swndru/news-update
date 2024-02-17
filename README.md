@@ -1,11 +1,11 @@
 # Latest News
--  Ny utställning om klass och arbete på museet
--  ‘Surreal’ moment nine-year-old fan meets Taylor Swift
--  تن‌پوش‌های‌عروسکی بلای جان‌تولدهای لاکچری
--  STARINSKI KOH OD GRIZA PO BAKINOM RECEPTU: Toliko je ukusan da pola tepsije ode za tili čas, porodica će uživati u ovom slatkišu
--  Rotbach: Ärger über vollgelaufene Keller: „Ernst der Lage wird nicht erkannt“
--  Những người trẻ TP HCM lần đầu đến Trường Sa
--  PSI Diprediksi tak Lolos Parlemen, Ini Respons Gibran
--  "Vamos somar no arco de alianças, mas não vamos caminhar a reboque de ninguém", avisa Mauro Carvalho
--  Nuova gestione per il “Gregge”: annullamento dell’assemblea
--  Notice of Assessment Order Communicated via Email: Kerala HC dismisses Writ Petition [Read Order]
+-  Winter weather advisory for Eastern PA: Several inches of snow possible Friday night into Saturday
+-  Dredge Agusan River to solve flooding problem, says governor
+-  Gladbach bei RB Leipzig: Was von Rose übrig blieb - und wie Borussia dem Ex-Coach Sorgen bereiten kann
+-  민주 "카이스트 졸업생 '입틀막' 강제퇴장...백골단 부활" 맹비난
+-  Gaetano Vecchio: “Lavorare insieme alle istituzioni per favorire l’interesse generale”
+-  "Mēs neapmaldāmies un turamies kopā," - kā Zaiga un Māris Gaiļi ir pāris jau 50 gadu garumā
+-  ‘Throwing up blood’: New details emerge in Amy Bowden case
+-  Стали известны победители матча восходящих звезд НБА
+-  Euforia azzurra La Carrarese vola in alto Calabro: "L’obiettivo è continuare a far bene" Ad Ancona mancheranno gli squalificati Della Latta e Belloni. Palmieri in forse
+-  La ’cultura dell’emergenza’ contro l’alluvione
