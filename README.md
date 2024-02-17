@@ -1,11 +1,11 @@
 # Latest News
--  Media russi, bandiere di Mosca nel centro di Avdiivka
--  Taylor Swift gives $100,000 to the family of the woman killed in the Chiefs parade shooting
--  Flagrado em reunião golpista, ex-vice AGU ficou em cargo de confiança no governo
--  سرود و سخن
--  Украинские атаки стоят России миллионы
--  Hawaii's Coral Ecosystems Are the Latest Reefs to Be Insured against Extreme Storms
--  U NJEGA NAVIJAČI PARTIZANA VERUJU Bio je heroj u poslednjem pohodu na Niš, a da li to može da uradi ponovo?
--  Hollyoaks confirms surprise and unexpected new love interest for Ethan Williams – and it’s not Dilly Harcourt
--  Kylian Mbappe Mantap Tinggalkan PSG, Klub Lain Bisa Angkut Gratisan
--  Taylor Swift gives $100,000 to the family of the woman killed in the Chiefs parade shooting
+-  Nostalgie in der Mediathek: Kultserien zum Binge-Watchen
+-  Serie A: Torino-Lecce 2-0
+-  Alper Gezeravcı'nın uzaydan İstanbul karesi
+-  Fenerbahçe'den Beşiktaş'a tarihi fark
+-  EU announces subsidy probe into Chinese train maker
+-  SERIE A - Torino-Lecce 2-0: Super Bellanova, i granata scavalcano il Napoli
+-  Elisa Carrió aseguró que el Gobierno genera “un pymecidio y la destrucción de la clase media”
+-  Navalni deixou mensagem sobre sua morte em documentário de 2022
+-  職場にいる「自然と人が集まってくる人」が持っている1つの特徴 - 1秒で答えをつくる力 お笑い芸人が学ぶ「切り返し」のプロになる48の技術
+-  Nostalgie in der Mediathek: Kultserien zum Binge-Watchen
