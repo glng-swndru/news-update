@@ -1,11 +1,11 @@
 # Latest News
--  SLAVIMO PREPODOBNOG ISIDORA PELUSIOTA: Smatra se zaštitnikom pisaca, književnika i svih onih koji žive od pisane reči
--  Saadet Partisi, Kartepe’de adayını açıkladı
--  100 bin TL'nin faiz getirisi uçtu. 32 günde kazanılacak para belli oldu
--  Коментар №1 на седмицата: Богът на силиконките
--  Lockerud har sämst målsnitt någonsin: ”Inte chockad”
--  Ryan Pettis, ignited by his slam dunk, leads Serra to CCS playoff win over Sacred Heart Prep
--  Xankəndidə silah-sursatlar aşkarlandı
--  Comment manger plus équilibré à budget réduit? Ces ateliers aident les familles à modifier leurs habitudes
--  Régional 1 : le Sporting Châtaigneraie retrouve "son" championnat face à Beaumont
--  Ryan Pettis, ignited by his slam dunk, leads Serra to CCS playoff win over Sacred Heart Prep
+-  Perth engineering firm fined after employee lost fingers in ‘traumatic amputation’
+-  Войната на светците - Труд
+-  Krimovke v boj za napredovanje
+-  Sigurjón tekur slaginn áfram með Grindavík (Staðfest)
+-  De Vrij avvisa la Juve: «Vincere e andare a +10 è fondamentale per non dare speranze»
+-  So viele neue Staatsbürger gab es im Vorjahr in Wien
+-  Galatasaray'da Köhn görücüye çıkıyor!
+-  Gdy zobaczył, co złowił, nie mógł uwierzyć. "To szalone, po prostu niedorzeczne"
+-  FOTO: Novomeščani ostajajo pri štirih pokalnih lovorikah
+-  Simple habits that help in balancing hormones naturally - Times of India
