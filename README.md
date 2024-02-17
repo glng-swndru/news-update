@@ -1,11 +1,11 @@
 # Latest News
--  Чемпион мира Мирзахалилов стал соперником Шумкова в поединке за титул IBA
--  Diputados debaten la emergencia carcelaria y el nuevo endeudamiento en Neuquén
--  Dois adolescentes são apreendidos após assalto a comércio em Feijó
--  Гарантії, зброя і покарання Росії: з'явився текст безпекової угоди України та Франції
--  Κρίστοφερ Νόλαν: Λέει ότι θέλει να γυρίσει μια ταινία τρόμου
--  OpenAI, Sora'yı tanıttı
--  Tederigli başa kar yaamaz
--  Standard blijft boven gevarenzone hangen na verlies in Westerlo, dat zege dankt aan heerlijke goal van Yow
--  ડલેન લાઈટનો શોધક નિલ્સ ડલેન
--  מלכת התיקו: ויאריאל סיימה ב-1:1 עם חטאפה, שהתרחקה מאירופה
+-  Snoop Dogg mourns death of younger brother Bing Worthington: 'Back with mom'
+-  国仲涼子主演「ちゅらさん」20年の時を経て再放送決定！4月からNHK総合で
+-  Gaye Turgut Evin’den minik kızı Eftelya’ya: En iyi arkadaşım
+-  Nainital News: वन्यजीवों की सुरक्षा के लिए मुस्तैद रहेंगे वन कर्मी
+-  Türkiye Kyokushin Stil Karate Şampiyonası'nın seremonisi yapıldı
+-  I BRITANIJA OPTUŽILA RUSIJU ZA SMRT NAVALJNOG, POZIVAJU I NA ODGOVORNOST: "U Navaljnom videli pretnju"
+-  Der ESC-Vorentscheid läuft: Wer fährt für Deutschland nach Malmö?
+-  Eispiraten Crimmitschau: Klassenerhalt an der Schanze perfekt gemacht
+-  Najviši sud UN odbacio zahtjev Južne Afrike da se uvedu hitne mjere za zaštitu Rafe
+-  Kushinagar News: सौतेली मां ने मासूम को पीटकर मार डाला
