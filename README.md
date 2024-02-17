@@ -1,11 +1,11 @@
 # Latest News
--  Snoop Dogg mourns death of younger brother Bing Worthington: 'Back with mom'
--  国仲涼子主演「ちゅらさん」20年の時を経て再放送決定！4月からNHK総合で
--  Gaye Turgut Evin’den minik kızı Eftelya’ya: En iyi arkadaşım
--  Nainital News: वन्यजीवों की सुरक्षा के लिए मुस्तैद रहेंगे वन कर्मी
--  Türkiye Kyokushin Stil Karate Şampiyonası'nın seremonisi yapıldı
--  I BRITANIJA OPTUŽILA RUSIJU ZA SMRT NAVALJNOG, POZIVAJU I NA ODGOVORNOST: "U Navaljnom videli pretnju"
--  Der ESC-Vorentscheid läuft: Wer fährt für Deutschland nach Malmö?
--  Eispiraten Crimmitschau: Klassenerhalt an der Schanze perfekt gemacht
--  Najviši sud UN odbacio zahtjev Južne Afrike da se uvedu hitne mjere za zaštitu Rafe
--  Kushinagar News: सौतेली मां ने मासूम को पीटकर मार डाला
+-  Take a Look at John Williams' Original Music Manuscript for the Star Wars Theme
+-  Loophole got man a free 5-year New York stay, then he claimed the building
+-  Aaj Ka Rashiifal: कन्या राशि के जातकों के लिए दिन रहने वाला है शुभ, बड़ी उपलब्धि के लिए रहें तैयार, जाने पूरा राशिफल
+-  CFB Esquimalt compromise saves space for Eves of Destrution Roller Derby
+-  Schon wieder Nippelblitzer! Florence Pughs Kleid verrutscht
+-  'Remember that': Pep Guardiola responds to Gary Neville jibe at 'boring' Man City
+-  ¡Bombazo! Se confirmó oficialmente el futuro de Cristian Pavón
+-  Loophole got man a free 5-year New York stay, then he claimed the building
+-  Broken machine delays Jack Grealish injury diagnosis to confuse Man City preparations vs Chelsea
+-  Loophole got man a free 5-year New York stay, then he claimed the building
