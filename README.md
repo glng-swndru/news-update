@@ -1,11 +1,11 @@
 # Latest News
--  නැවුම් වෙනසක් කරා නීති ප්‍රතිසංස්කරණය කරමු
--  MWC 2024: da Deutsche Telekom in arrivo il concept di smartphone AI senza applicazioni
--  Bürgerrechtler: Über 100 Festnahmen bei Nawalny-Gedenken
--  ශ්‍රී ලංකා – ඇෆ්ගන් පළමු පන්දු වාර 20-20 තරගය අද
--  Bürgerrechtler: Über 100 Festnahmen bei Nawalny-Gedenken
--  නාරම්මල පොලිස් වෙඩිල්ලට එරෙහිව බිරිඳ උසාවි යයි
--  „Situacija labai pavojinga.“ Kinija skubiai keičia mobilizaciją. IISS skelbia, kas nutiko
--  Moutinho e o FC Porto: «Não guardo rancor, tomei a decisão e estou muito feliz»
--  Bürgerrechtler: Über 100 Festnahmen bei Nawalny-Gedenken
--  „Ce șanse are Rapid la titlu?” » Marius Măldărășanu, opinie sinceră în conferință: „E în sufletul tuturor, dar...”
+-  고양 일산동구 대학병원서 불…환자 66명 대피
+-  Top-seed Alcaraz reaches Argentina Open semi-finals
+-  «Хаббл» запечатлел шаровое скопление из тысячи звузд
+-  Bradford Bulls CEO Jason Hirst addresses first team queries
+-  Rusia responde a EU tras acusaciones directas contra Putin por la muerte de Navalni
+-  EPL: Peluang Palmer ‘diamkan’ Stadium Etihad
+-  MANDEL: Salon owner vows to appeal record human rights award against him
+-  Economía de Honduras obtiene bajas calificaciones en innovación; inclusividad; sostenibilidad; y resiliencia
+-  "Forced To Leave India": French Journalist After Row Over OCI Card
+-  황선우와 황금세대, 계영 800m 2위…세계수영 단체전 첫 메달
