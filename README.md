@@ -1,11 +1,11 @@
 # Latest News
--  高速道路の「未来感たっぷり装置」に称賛「雪の上に車線が光ってる」
--  Uzmanından 'üçlü salgın' hakkında uyarı
--  Mort de Navalny : une centaine de personnes arrêtées lors de rassemblements en Russie
--  Veliki prosvjed 11 stranaka na Markovu Trgu. Dolaze busevi iz cijele zemlje. Traže hitne izbore
--  “BIBI” NETANYAHU STA FACENDO PERDERE LA PAZIENZA A BIDEN, MA GLI STATI UNITI SONO PRONTI A INVIARE NUOVI ARMI A ISRAELE – MENTRE GLI USA FANNO PRESSIONI SULLO STATO EBRAICO PER UN CESSATE IL FUOCO A GAZA, LA CASA BIANCA VARA UN NUOVO PACCHETTO DI AIUTI MILITARI PER TEL AVIV - KAMALA HARRIS HA INCONTRATO IL PRESIDENTE ISRAELIANO ISAAC HERZOG A MONACO: “ABBIAMO PARLATO DI UNA GAZA POST-BELLICA” - L'ASSE TRA QATAR E GIORDANIA PER UN "CESSATE IL FUOCO" NELLA STRISCIA
--  DIREKT: Senaste nytt inför cupmatchen mot AIK
--  Kelis šimtus tūkstančių Kaunui kainavęs obeliskas policijai po kelių metų gali būti nukeltas
--  Trabzonspor ile Pendikspor 2. randevuda
--  Зам.-министър на икономиката обеща: По-малко документи от бизнеса и съкратени срокове
--  Drei Prozesstage in Krems - Kind in Hundebox gesperrt: Vorwürfe werden großteils bestritten
+-  Confindustria, 'Investimenti deboli, urgente accelerare il Pnrr'
+-  Lukijalta | Haluavatko veronmaksajat rahoittaa Taidetestaajat-hanketta?
+-  Játékos télűző vetélkedőt szervez a Rotary
+-  X(旧Twitter)からのトラフィックは「大半がボットによる偽の数字」であるとの調査データ、Instagramの1％未満に対してXは30％超から期間によっては70％超まで跳ね上がる
+-  Confindustria, 'industria vicina a archiviare fase di flessione'
+-  Manchester United could target Erik ten Hag favourite to replace Casemiro this summer - journalist
+-  Badminton Asia Team Championships: India Advances to Final Against Thailand
+-  Kunsthaus Bregenz erinnert an Günter Brus: Im Labyrinth des Zeichners
+-  VLADAN ČUKIĆ: Ujpešt bolji posle promena
+-  Disznótoron űzzük a telet a hétvégén Somogyban
