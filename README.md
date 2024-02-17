@@ -1,11 +1,11 @@
 # Latest News
--  Frau aus Kernen hat: Warum Sigrun Trinkle jetzt Weinkulturexpertin Champagne ist
--  Website designers need filling in on issue
--  Transferts - PSG : Mbappé se fait tacler en direct !
--  Obituary: Henry Sandon, antique dealer
--  Pavla Kladivová: Do Francie už se nikdy nevrátím
--  Obituary: JPR — a player with flair, and dedicated doctor
--  Nate Robinson Thinks ‘Nobody Wants To Be A Meme’ So It Takes Courage To Be In The Dunk Contest
--  Michael Rosenthal named 2024-2025 chair of the Utility Broadband Alliance Board of Directors
--  Tamil Nadu Class 12, 11 admit card 2024 released; Check details here
--  Das Solothurner Wochen-Quiz: Haben Sie diese Woche alles mitbekommen?
+-  Rząd dyskryminuje uczniów? Episkopat reaguje na zmiany w oświacie
+-  AARE MINU KODUS | Tuhaplokist Urr jälgib pere tegemisi
+-  Dinamo are un nou atacant: „Ar putea debuta duminică”
+-  Cyclisme - Tour de France. Tadej Pogacar en repérage sur le chrono entre Nuits et Gevrey
+-  Prezident İlham Əliyev Münxendə israilli həmkarı ilə görüşdü
+-  Ardèche. Aven d’Orgnac : le label Grand site de France officiellement renouvelé pour huit ans
+-  [Ekstra] Nye Veier-sjefen: – I dag kunne jeg ikke gjort jobben med den masteroppgaven
+-  This Is Me... Now, JLo torna regina del pop
+-  Histoire. Missak Manouchian, les coulisses d’une panthéonisation... partie de la Drôme
+-  Israele, all'ospedale Nasser farmaci con i nomi degli ostaggi
