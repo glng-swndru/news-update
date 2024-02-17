@@ -1,11 +1,11 @@
 # Latest News
--  Bajden: Ruske vlasti će da pričaju svoju priču, ali budite...
--  Mystinen virus tappoi ensimmäistä kertaa ihmisen Yhdysvalloissa – Tästä on kyse taudissa, joka herättää maailmalla huomiota
--  Petróleo prolonga ganhos apoiado na acomodação do dólar e sinais de ajuste de posicionamento
--  REGIONALNA KOŠARKA U SUZAMA Preminuo legendarni košarkaški trener i bivši selektor
--  Happy 27th Birthday To The Simpsons' Best-Ever Needle Drop
--  Natural Gas Crashes Into Historic 25-Year Price Support
--  「セクシー田中さん」の日テレだけじゃない！「不誠実なエリート」がのさばる組織の病理 - 原田泰 データアナリシス
--  Зеленский и Макрон подписали двустороннее соглашение о гарантиях безопасности
--  Възможно ли е да са прикрити улики при убийството на Нотариуса?
--  Кремль проводить дезінформаційну кампанію з дискредитації Зеленського – WP
+-  Wow! Brad Pitt schenkt Ines De Ramon riesigen Blumenstrauß
+-  美斯代言股極兔速遞 曾挫26% 股民陪「坐」艇
+-  Trump fined $364M in New York civil fraud case
+-  એમ.એસ.યુનિ.ના સૌથી મહત્વના પરીક્ષા વિભાગમાં ડે.રજિસ્ટ્રારની જગ્યા ખાલી પડી
+-  Bundesgesundheitsminister: Karl Lauterbach hofft auf Neuauflage für Ampel-Regierung
+-  پیش‌بینی بدهی آمریکا: ۵۴ تریلیون دلار!
+-  Jardar brøt barriere: Sikret bronse i junior-NM
+-  Prepping the Sandworm Scenes in Dune: Part Two
+-  Gun-related charges laid against two juveniles in Kansas City mass shooting
+-  دنیای آتی بانکداری، دنیای نوآوری‌‌‌ها است
