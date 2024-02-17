@@ -1,11 +1,11 @@
 # Latest News
--  Fleximan in azione in Piemonte, tagliato in due un autovelox
--  Para irmão, só crueldade explica espancamento de Anderson até a morte
--  L'actualité en images. Frangy-en-Bresse : 110 élèves se sont déguisés pour fêter le carnaval au village
--  Радан Кънев: Надявам се ротацията да случи, както е договорена
--  Dziś Światowy Dzień Kota. Andrzej Duda przedstawia rodakom "pierwszego kota RP": "ULUBIENIEC Agaty" (FOTO)
--  Näin rakennat sähköä säästävän älykodin
--  Handwerker müssen sich neu aufstellen: „Das Neubaugeschäft ist eingebrochen“
--  Mourinho prognozirao pobjednika Lige prvaka
--  Singapore Cancer Society to roll out rehab, cancer screening services as it marks 60th anniversary - The Straits Times
--  Live meepraten in de Premier League: Brentford FC - Liverpool
+-  Partnerka Marcina Hakiela zaskoczyła wyznaniem o dziecku. Tancerz z publiczną deklaracją
+-  출산율 2.95명…일본 '기적의 마을' 직접 찾아가 보니
+-  Wintersport-Telegramm: Weltmeisterin Nolte gewinnt Monobob-Weltcup
+-  Alerta por la inteligencia artificial: cómo es el pacto que firmaron Google, Microsoft y Facebook
+-  TBMM Başkanı Kurtulmuş: "Türkiye'nin gelecek asrı gençlerin omuzlarındadır"
+-  Kafes-41 operasyonu kapsamında İzmir'de 11 gözaltı
+-  마동석, 日 첫 공식 방문…‘범죄도시3’ 열도 흥행 청신호
+-  Il Teatro Titano si colora di "blues" con Gegè Telesforo
+-  Драма в края! Алекс Колев донесе инфарктна победа на Крумовград (видео)
+-  Malasia espera ingresar cientos millones de dólares por turismo de salud en 2024
