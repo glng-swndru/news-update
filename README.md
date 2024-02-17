@@ -1,11 +1,11 @@
 # Latest News
--  "Życie żołnierzy jest najwyższą wartością". Ukraińcy wycofują się z Awdijiwki
--  Iran: Israel laut »New York Times« hinter Pipeline-Explosionen vermutet
--  Жительницу Каменска-Уральского «забыли» выселить из снесенного дома
--  L’INTER AMMAZZA IL CAMPIONATO: CALA IL POKER CONTRO UNA SALERNITANA ALLO SBANDO (PERCHE’ CAMBIARE INZAGHI PIPPO CON LIVERANI?) E VOLA A PIU’ 10 SULLA JUVE – L’AD NERAZZURRO BEPPE MAROTTA SULL’INTERESSE DEL PSG PER LAUTARO: “NON VEDO DIFFERENZE TRA LORO E L’INTER. ZIELINSKI? È TRA GLI SVINCOLATI MONITORATI. VEDREMO IN MODO TRASPARENTE SE LA COSA SI POTRÀ ANNUNCIARE O NO”
--  Erste Zahlen aus Energiebericht
--  NEMA ŠANSE DA PREPOZNATE PEVAČICU SA FOTKE! Bila je prirodna lepotica, sada je prozivaju ZBOG OPERACIJA I FOTOŠOPA!
--  Prabowo Usai Bertemu SBY di Pacitan: Sowan Senior
--  SASLUŠANI SVI SVJEDOCI U PREDMETU PROTIV DOKTORA NIKOLE FATIĆA
--  Open day for Kintyre climate campaign’s six-month mark
--  Trabzon hava durumu: Meteoroloji sağanak için sarı alarm verdi! (17 Şubat 2024)
+-  高速道路の「未来感たっぷり装置」に称賛「雪の上に車線が光ってる」
+-  Uzmanından 'üçlü salgın' hakkında uyarı
+-  Mort de Navalny : une centaine de personnes arrêtées lors de rassemblements en Russie
+-  Veliki prosvjed 11 stranaka na Markovu Trgu. Dolaze busevi iz cijele zemlje. Traže hitne izbore
+-  “BIBI” NETANYAHU STA FACENDO PERDERE LA PAZIENZA A BIDEN, MA GLI STATI UNITI SONO PRONTI A INVIARE NUOVI ARMI A ISRAELE – MENTRE GLI USA FANNO PRESSIONI SULLO STATO EBRAICO PER UN CESSATE IL FUOCO A GAZA, LA CASA BIANCA VARA UN NUOVO PACCHETTO DI AIUTI MILITARI PER TEL AVIV - KAMALA HARRIS HA INCONTRATO IL PRESIDENTE ISRAELIANO ISAAC HERZOG A MONACO: “ABBIAMO PARLATO DI UNA GAZA POST-BELLICA” - L'ASSE TRA QATAR E GIORDANIA PER UN "CESSATE IL FUOCO" NELLA STRISCIA
+-  DIREKT: Senaste nytt inför cupmatchen mot AIK
+-  Kelis šimtus tūkstančių Kaunui kainavęs obeliskas policijai po kelių metų gali būti nukeltas
+-  Trabzonspor ile Pendikspor 2. randevuda
+-  Зам.-министър на икономиката обеща: По-малко документи от бизнеса и съкратени срокове
+-  Drei Prozesstage in Krems - Kind in Hundebox gesperrt: Vorwürfe werden großteils bestritten
