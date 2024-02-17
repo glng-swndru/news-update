@@ -1,11 +1,11 @@
 # Latest News
--  Gmina Rawicz otrzymała 2,5 mln zł dofinansowania na rozbudowę strzelnicy
--  Türkiye'de geliştirilen 'kurşun yutan cam' ile taksici ölümlerinin önüne geçilebilir
--  FilmSharks Sells Wide ‘Lobo Feroz,’ Ines Paris’ ‘Olvido’ (EXCLUSIVE)
--  La Contienda en el DF será muy dura
--  Кельн - Вердер 0:1: огляд матчу
--  Tchaj-wan chce z Česka udělat základnu na dodávky pro čipovou továrnu TSMC v Drážďanech
--  FilmSharks Sells Wide ‘Lobo Feroz,’ Ines Paris’ ‘Olvido’ (EXCLUSIVE)
--  '80’ler 90’lar Gülümseten Hatıralar' Saray’ı salladı
--  Tuore pariskunta lahjoitti häälahjaksi saamansa 3500 euroa tervakoskelaiselle Suojele Eläintä -yhdistykselle – "Näin isoa summaa emme ole koskaan saaneet"
--  ペットボトルで幼い男の子の顔を殴りケガを負わせた47歳”養父”の男を逮捕…児童相談所が”打撲痕”みつけ通報「手が滑っただけ 事故だ」と容疑否認 釧路市
+-  SLAVIMO PREPODOBNOG ISIDORA PELUSIOTA: Smatra se zaštitnikom pisaca, književnika i svih onih koji žive od pisane reči
+-  Saadet Partisi, Kartepe’de adayını açıkladı
+-  100 bin TL'nin faiz getirisi uçtu. 32 günde kazanılacak para belli oldu
+-  Коментар №1 на седмицата: Богът на силиконките
+-  Lockerud har sämst målsnitt någonsin: ”Inte chockad”
+-  Ryan Pettis, ignited by his slam dunk, leads Serra to CCS playoff win over Sacred Heart Prep
+-  Xankəndidə silah-sursatlar aşkarlandı
+-  Comment manger plus équilibré à budget réduit? Ces ateliers aident les familles à modifier leurs habitudes
+-  Régional 1 : le Sporting Châtaigneraie retrouve "son" championnat face à Beaumont
+-  Ryan Pettis, ignited by his slam dunk, leads Serra to CCS playoff win over Sacred Heart Prep
