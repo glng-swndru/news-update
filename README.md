@@ -1,11 +1,11 @@
 # Latest News
--  Lacul lebedelor moarte. Gripa aviară a ucis mai multe lebede din București, în parcul IOR. Avertismentul specialiștilor
--  Second suspect charged in summer death of international student in Mississauga
--  Ali Putin ogroža ZDA iz vesolja?
--  Neuer Verdener Schulbau schon wieder geschlossen
--  SEKA tünelindeki ışıklar yanmıyor
--  Bakan Ersoy'dan Antalya'da sel felaketinde hayatını kaybeden sürücünün ailesine taziye ziyareti
--  Skandaliczne słowa na temat Nawalnego. Powiedział je ulubieniec Trumpa
--  Das Potenzial der Adler Mannheim blitzt beim Sieg gegen Wolfsburg auf
--  رئيس الوزراء يوجه بتحمل نفقات علاج الصحفي القدير فريد صبحي
--  Защитник «Динамо» Бессмертный успешно перенес операцию после перелома ключицы
+-  "Soit ils continueront de porter le maillot, soit ils dégageront" : Broncan (CA Brive) met la pression sur ses joueurs
+-  Carewell Celebrates the Heart of Caregiving with 2024 Caregiver Award Winners
+-  Juve, commovente messaggio di Mandzukic per il tecnico bianconero – VIDEO
+-  Europees kampioen Jenning de Boo (20) kijkt met bewondering naar Jordan Stolz: ‘Hij is dé maatstaf voor iedereen’
+-  L'association Livradoué-Dansaïre, organisatrice du World Festival, fête ses 70 ans
+-  Филиал Института имени Столыпина откроют в Татарстане
+-  Marie Keudel und Jens Schumann als Sportler des Jahres geehrt
+-  Clea-Lacy Juhn und Partner Hasim erwarten ihr erstes Kind!
+-  Parolin, la morte di Navalny ci stupisce e ci addolora
+-  5 scams people in Norfolk should be aware of this week
