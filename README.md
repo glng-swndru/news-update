@@ -1,11 +1,11 @@
 # Latest News
--  Mystère à l’OM, McCourt porté disparu ?
--  Rising to the occasion
--  Lagarde kivárna, de nem mindenki ennyire türelmes
--  Director hails Man United loanee, star showing why club wanted him 'so much'
--  Ursula von der Leyen: EU-Kommission will neue europäische Verteidigungsindustrie aufbauen
--  Bayern Münih'te Sacha Boey depremi! Kulüp sakatlığı duyurdu: Kaç hafta oynamayacak?
--  Navalny knew his life would end in prison without fall of regime
--  CD Rates Today, Feb. 16, 2024: Where You Can Score an APY up to 5.5% - CNET
--  Najnowszy sondaż CBOS: KO przed PiS, dwie partie "łeb w łeb"
--  鐵了心要走！姆巴佩告知大巴黎今夏離隊 可能新東家浮現
+-  Recompensă uriașă oferită de poliția din Australia pentru a rezolva misterul unei crime vechi de 46 de ani
+-  Justiția franceză recunoaște „violența nediscriminatorie de o intensitate excepțională” din Gaza
+-  Jaf într-un cimitir din județul Mureș. Mai mulți indivizi au furat bani și bijuterii și s-au făcut nevăzuți
+-  DEM Parti'nin İzmir adayları belli oldu
+-  Επ. Διοικήσεως: Απουσία αντικειμενικής αξιολόγησης προσόντων μελών Αστυνομίας
+-  Sur'daki binalar kadın vitraycıyla renkleniyor
+-  Български таланти в сноуборда спечелиха 2 златни медала и 1 сребърен в Германия
+-  Alcaraz has his sights set on regaining world No 1 from Djokovic
+-  ЕК: Рано е да се говори за стабилни тенденции в подобряването на конкурентоспособността на ЕС
+-  Zorlu Töre, Baf Türk Birliği Yönetim Kurulu’nu kabul etti
