@@ -1,11 +1,11 @@
 # Latest News
--  ＜はなし抄＞諦めるのは最終手段 「出来る理由」探して アドベンチャーレーサー・田中陽希さん
--  Сирський заявив про виведення військ з Авдіївки
--  Брентфорд – Ливерпуль. Прогноз и анонс на матч чемпионата Англии
--  চেষ্টার ফসল উপভোগ্য হবে: শরীফুল রাজ
--  Los alimentos que debés comer para tener una buena memoria, según recomiendan los especialistas
--  Microsoft, Google, Leading Tech Companies, Sign Commitment to Fight AI Misinformation for 2024 Elections
--  “3루 수비? 진짜 필요할 때 빼고는” 13억 美 신입생 1루로 가는데…50억 1루수와 교통정리 어떻게? 다 계획 있다 [MK오키나와]
--  Anh bảo vệ lương 5 triệu chinh phục nữ DJ nóng bỏng ở cách xa 1650 cây số, cưới về mặc cảm chuyện khó nói
--  Bí thư Tỉnh ủy kiểm tra công tác tổ chức phiên chợ có một không hai trong cả nước
--  Hail and Rain Batter Parts of Western Tennessee
+-  맑고 포근한 토요일…낮 최고 8∼15도
+-  Thông tin mới nhất về tuyển sinh lớp 10 năm 2024 ở Hà Nội: Nhiều trường xét tuyển bằng học bạ
+-  Stanford Student activists end pro-Palestine sit-in protest
+-  Sosok Sinta Rosma Yenti, Peraih Suara Tertinggi Calon DPD Dapil Kaltim, Pernah Jadi Pramugari Garuda
+-  Eva Dorothy Syvertsen
+-  Perolehan Suara Sementara Caleg PDIP untuk DPRD Sulut Dapil Manado Pagi Ini, Roring Dekati Pinontoan
+-  ‘जातीय विभेदविरुद्ध अझै संघर्ष आवश्यक’
+-  通膨數據冷卻降息預期 黃金連2週跌
+-  Multa de 35,000 dólares a entrenador de Clippers por decir que árbitros hicieron trampa
+-  Marriage has made me better — Anita Joseph
