@@ -1,11 +1,11 @@
 # Latest News
--  باجة: افتتاح الأيام التنشيطية بالمدارس الريفية لمعتمدية نفزة (صور)
--  Gobierno pagará el próximo 26 de febrero plantas a Iberdrola; "agradecemos a Cofece" que apruebe compra, dice AMLO
--  Богомаз: средства ПВО уничтожили украинский дрон-разведчик над Брянской областью
--  This pet-friendly air purifier from Shark is 38% off at Amazon right now
--  STF: Mendonça convoca audiência de conciliação para discutir acordos de leniência da Lava Jato
--  Mercado eleva previsão da inflação para 2024 e 2025
--  ONLINE: Brno hostí Kladno, Sparta na Hané, Motor dal tři góly za 198 sekund!
--  Le prince Harry et Meghan Markle changent le nom de famille de leurs enfants
--  Coronado troca Al-Ittihad pelo Corinthians de António Oliveira
--  Tony Cetinski pao na pozornici pa komentirao: 'Želio sam se bacit u publiku'
+-  Lacul lebedelor moarte. Gripa aviară a ucis mai multe lebede din București, în parcul IOR. Avertismentul specialiștilor
+-  Second suspect charged in summer death of international student in Mississauga
+-  Ali Putin ogroža ZDA iz vesolja?
+-  Neuer Verdener Schulbau schon wieder geschlossen
+-  SEKA tünelindeki ışıklar yanmıyor
+-  Bakan Ersoy'dan Antalya'da sel felaketinde hayatını kaybeden sürücünün ailesine taziye ziyareti
+-  Skandaliczne słowa na temat Nawalnego. Powiedział je ulubieniec Trumpa
+-  Das Potenzial der Adler Mannheim blitzt beim Sieg gegen Wolfsburg auf
+-  رئيس الوزراء يوجه بتحمل نفقات علاج الصحفي القدير فريد صبحي
+-  Защитник «Динамо» Бессмертный успешно перенес операцию после перелома ключицы
