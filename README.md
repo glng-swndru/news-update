@@ -1,11 +1,11 @@
 # Latest News
--  Partnerka Marcina Hakiela zaskoczyła wyznaniem o dziecku. Tancerz z publiczną deklaracją
--  출산율 2.95명…일본 '기적의 마을' 직접 찾아가 보니
--  Wintersport-Telegramm: Weltmeisterin Nolte gewinnt Monobob-Weltcup
--  Alerta por la inteligencia artificial: cómo es el pacto que firmaron Google, Microsoft y Facebook
--  TBMM Başkanı Kurtulmuş: "Türkiye'nin gelecek asrı gençlerin omuzlarındadır"
--  Kafes-41 operasyonu kapsamında İzmir'de 11 gözaltı
--  마동석, 日 첫 공식 방문…‘범죄도시3’ 열도 흥행 청신호
--  Il Teatro Titano si colora di "blues" con Gegè Telesforo
--  Драма в края! Алекс Колев донесе инфарктна победа на Крумовград (видео)
--  Malasia espera ingresar cientos millones de dólares por turismo de salud en 2024
+-  Apple согласилась внедрить RCS в iPhone под давлением Китая
+-  Welche Kräuter ein Pferd zur Futterergänzung bekommen darf – und welche nicht
+-  Promessa de Temer de novos presídios federais não saiu do papel
+-  トランプリスクを警戒する欧州 G7外相、ウクライナ支援を協議
+-  BBC The Traitors stars tease All Stars series with bizarre twist and they're more than up for it
+-  Canadian Club of Halton hosts Terry Fallis
+-  Bertín Osborne desvela en 'El Hormiguero' el motivo por el que nunca usa perfume
+-  Mutáns farkasok jelentek meg Csernobilban
+-  Sind Monatsabschläge nur „gefühlt“ zu hoch berechnet?
+-  SSV Mühlhausen vor nächster Hammeraufgabe: „Die sind spielerisch eine absolute Macht“
