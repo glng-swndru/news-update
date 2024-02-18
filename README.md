@@ -1,11 +1,11 @@
 # Latest News
--  19 cats and dogs available for adoption in Leeds including playful Pomeranian who 'came from stressful home'
--  ਮੈਂ ਹਮੇਸ਼ਾ ਤੋਂ ਕਰਨੀ ਸੀ ਪੰਜਾਬੀ ਫਿਲਮ : ਇਮਰਾਨ ਅੱਬਾਸ
--  Líder nacional em vendas via Pix, Mato Grosso do Sul ‘adotou’ forma de pagamento, mas ainda há quem resista
--  Terapevtska kolonija Društva Sonček Posavje
--  Citizen poll results: Do you approve the Prince George school district adding a Japanese cooking and culture course to the curriculum?
--  ARMASTUS ESIMESEST SILMAPILGUST: noorena kartis Külli rotte nagu tuld, nüüd on tõmmusilmne Jenny tema suuremaid lemmikuid
--  Leeds son jailed for pestering his mother for drug money and smashing up her home
--  Para evitar la infiltración de criminales, van contra vehículos sospechosos
--  Cogumelos, tomate ou oregãos. Os perfumes para a casa da Loewe são de se comer
--  Sweeping review of nation’s warships to recommend naval fleet shake-up
+-  시민단체 “늘봄학교, 시작도 안해…교사·시민 한마음으로 성공·안착해야”
+-  3rd Test: Jaiswal, Jadeja shine as India register record victory over England
+-  Milli lazer silahı yerli yeteneklerle daha da gelişecek
+-  정부 “생명을 볼모 삼아선 안 돼”…의협 “처벌 땐 대재앙”
+-  В "Раубичах" завершился финал республиканских соревнований по биатлону "Снежный снайпер"
+-  Sci: Paris torna sul podio in SuperG 'cercavo questo risultato'
+-  Lazio gana 1 a 0 en el estadio Stadio Olimpico
+-  433 nüfuslu köyün muhtar adayından iş makinesi ve kamyon vaadi
+-  60. Münchner Sicherheitskonferenz: „Taurus“ und eine Fronteinladung an Trump
+-  Van ve Hakkari'de 25 yerleşim yerine ulaşım sağlanamıyor
