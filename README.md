@@ -1,11 +1,11 @@
 # Latest News
--  Politique. Olivier Véran veut réanimer l'aile gauche de la majorité
--  Lewandowski viaja a Mossoró neste domingo (18) para acompanhar busca a fugitivos
--  Tradition in Heidelberg: Zuckerladen-Abschied vereint Generationen
--  Politique. Olivier Véran veut réanimer l'aile gauche de la majorité
--  خبير عسكري: الحوثي يتجه لعسكرة كل شيء في الدولة
--  Tifoso del Napoli "blocca" l'auto di Anguissa: "Ascoltami, noi siamo con voi" (VIDEO)
--  Bursa'daki 45 yıllık aile şirketi konkordato ilan etti! 3 ay süre verildi
--  Ancelotti'den Arda Güler müjdesi! Derbide ilk 11 mi çıkacak? İşte maçın saati ve kanalı
--  Politique. Olivier Véran veut réanimer l'aile gauche de la majorité
--  Israelin Netanjahu Kairon tuli­tauko­neuvotteluista: Hamasin vaatimukset ovat ”harhaisia”
+-  Polska cyfrowa innowacja to…. inteligentna miejska ławka. Siedziałem na niej
+-  日経平均、最高値試す 米エヌビディア決算が相場左右 - 日本経済新聞
+-  Балтийските държави строят бункери: Могат ли да спрат настъпление от Русия?
+-  Rodri strike salvages Man City point against Chelsea
+-  TOP of the WEEK: Negócios e talento no desporto
+-  Justyna Kowalczyk opublikowała wzruszający post o Tekielim. Łzy cisną się do oczu
+-  Тело мужчины обнаружили в одном из хостелов Москвы
+-  The humble spud is now a $1 billion industry but a potato farmer says not all growers are benefitting
+-  Parish welcomes new priest
+-  Bug no Microsoft Edge está a irritar os utilizadores
