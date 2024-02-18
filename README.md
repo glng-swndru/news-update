@@ -1,11 +1,11 @@
 # Latest News
--  Biden zadzwonił do Zełenskiego. "Musimy wygrać tę wojnę"
--  Росіяни вдарили по Донеччині: є загибла, під завалами шукають людей
--  Napoli-Genoa, il gol di Ngonge visto dagli spalti. Boato dei tifosi (VIDEO)
--  رئيس مجلس القيادة يدعو المجتمع الدولي الى الاعتماد على الحكومة الشرعية كشريك وثيق لتأمين الملاحة الدولية
--  Juventus só empata com Verona, e Inter de Milão abre nove pontos na liderança do Italiano
--  Ariana Grande hält zu Ethan Slater während seiner Scheidung!
--  **Mo: Tajani, 'due popoli, due stati e immediato cessate il fuoco'**
--  **Mo: Tajani, ‘due popoli, due stati e immediato cessate il fuoco’**
--  Houvast voor AZ richting duel met Ajax: 'Daar hebben tegenstanders geen vat op'
--  La crisis del PRM en Santiago y qué piensa la oposición
+-  인천 · 구례 · 순천 곳곳 불…하청노동자 끼임사
+-  (ازداك) الرباط يحفل بتخرج الفوج 33 من طلبة المعهد
+-  Rusya: Donetsk'teki Avdiyivka kentini ele geçirdik
+-  キーウ近郊に巨大クレーター 北朝鮮製ミサイル着弾か FNNのカメラが現場に
+-  Il Bayer Leverkusen vince ancora e allunga a +8 sul Bayern
+-  Lappi bude na závěr Švédské rallye hájit více než minutový náskok
+-  Cabelos: a nova tendência em mechas que todas as famosas querem e deixam o balayage no esquecimento
+-  Professores voltam a exigir recuperação do tempo de serviço em frente ao Parlamento
+-  ウクライナの首都キーウ近郊に巨大クレーター 北朝鮮製ミサイルが着弾か
+-  Hayatın derinliklerine inmeden asla mutlu olamazsınız
