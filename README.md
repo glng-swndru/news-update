@@ -1,11 +1,11 @@
 # Latest News
--  Planos de saúde devem cobrir exame de dengue? Entenda seus direitos
--  New iGaming M&A Database: $125 Billion in Deals, with 2023 Setting Sales Record
--  DRAGANA MIRKOVIĆ KONCERTOM U ARENI NACIJU BACILA U TRANS! Karleuša rasplakala folk divu
--  Sprinterka Maňasová vylepšila český rekord na 60 metrů o tři setiny na 7,20
--  Смъртта на Навални е недвусмислено послание за опасността от противопоставянето на Путин
--  Muş'ta gençler spora yönlendiriliyor
--  אבוקסיס אחרי התיקו: "אם נמשיך ככה יהיה בסדר", מימר: "נקודה במגרש קשה"
--  Β' Κατηγορία Κύπρου: «Πάτησε» κορυφή η Ομόνοια Αραδίππου
--  بالفيديو.. القبض على شخص سرق مركبة كانت في وضع التشغيل بمسقط
--  المستشار الصحفي الجيلاني وخدشي يعزون العميد أحمد حسن باستشهاد نجله
+-  Cách đăng nhập bằng vân tay trên VNeID, đảm bảo thuận tiện, bảo mật và an toàn
+-  „Immer mehr“ und „immer schneller“: Darüber beschwerte sich schon Goethe
+-  “Unrest” in Bayern Munich locker room could be coming from unlikely source
+-  Quân Ukraine tiếp tục cố thủ trong Avdiivka bất chấp lệnh rút quân
+-  Netflix : Ce film de Noël original avec Kristen Stewart va bientôt quitter la plateforme de streaming
+-  Ο Φλορεντίνο Πέρεθ ενημέρωσε τους παίκτες της Ρεάλ Μαδρίτης για την επικείμενη έλευση του Κιλιάν Μπαπέ στο Μπερναμπέου
+-  ¿Alimenta bien a su mascota? Descubra los consejos para una dieta saludable
+-  Trung Quốc có vai trò gì trong Thế chiến II?
+-  Buffon si confessa: «Vicino alla Roma due volte. Non fosse stato per Conte…»
+-  Gaziantep’te kaçak göçmen organizatörü operasyonu: 3 gözaltı
