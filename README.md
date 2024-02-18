@@ -1,11 +1,11 @@
 # Latest News
--  SUN周日體育直播賽程
--  ૬ મહિનામાં વીજ જોડાણ કાપવા ગયેલા સાત કર્મચારીઓ પર હુમલા
--  لزوم افزایش سهم بخش‌خصوصی در اقتصاد
--  Shigeru Miyamoto celebra el aniversario de Super Nintendo World con un mensaje especial
--  تیک‌تاک «شاخص»
--  公屋料今年加租兼「走甜」 羅淑佩：股樓差租戶影響有限 公屋聯會：基層收入無改善
--  أمال القيصر تتحدث بحـ.. ـرقة عن سبب غيابها عن الشاشة📺 وتكشف لأوّل مرة كيف التحقت بمسلسل بنت البلاد..
--  Zapata ancora in gol, fa festa il Toro ma anche l'Atalanta
--  Corrie star Alan Halsall splits from co-star girlfriend Tisha Merry after ‘pressure to make it work got on top of them’
--  بهینه‌‌‌سازی مصرف با مصالح نوین ساختمانی
+-  Biden zadzwonił do Zełenskiego. "Musimy wygrać tę wojnę"
+-  Росіяни вдарили по Донеччині: є загибла, під завалами шукають людей
+-  Napoli-Genoa, il gol di Ngonge visto dagli spalti. Boato dei tifosi (VIDEO)
+-  رئيس مجلس القيادة يدعو المجتمع الدولي الى الاعتماد على الحكومة الشرعية كشريك وثيق لتأمين الملاحة الدولية
+-  Juventus só empata com Verona, e Inter de Milão abre nove pontos na liderança do Italiano
+-  Ariana Grande hält zu Ethan Slater während seiner Scheidung!
+-  **Mo: Tajani, 'due popoli, due stati e immediato cessate il fuoco'**
+-  **Mo: Tajani, ‘due popoli, due stati e immediato cessate il fuoco’**
+-  Houvast voor AZ richting duel met Ajax: 'Daar hebben tegenstanders geen vat op'
+-  La crisis del PRM en Santiago y qué piensa la oposición
