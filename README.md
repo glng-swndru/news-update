@@ -1,11 +1,11 @@
 # Latest News
--  Is the age of entitlement over? It depends on what age you are
--  Vesperkirche: Wenn in der Magdalenenkirche getanzt wird
--  Malta FA in Latvian prison for its UEFA Outraged project
--  Ποια ζώδια θα έχουν τύχη και ποια θα είναι άτυχα, από 18/02 έως 24/02
--  Jean-Marie Bigard bientôt au casting de "Plus belle la vie" ? L'humoriste postule !
--  Paschiun pel Chalandamarz
--  Zorunlu trafik sigortasında yeni dönem: Yarın başlıyor
--  Analytici: Koruna by mohla v příštích měsících dále mírně ztrácet
--  북·일 대화 시그널···‘그린라이트’일까, 국면 전환용일까
--  SAP, Bayer und ZF : Kulturwandel, Transformation, Turnaround – Wie SAP, Bayer und ZF ihre Personalprobleme lösen wollen
+-  Volta para os braços de Cristiana Jesus: "Aprendemos a dar mais espaço"
+-  Ferda Ataman zu Hanau: „Deutschland hat versagt“
+-  ABD, Gazze'de ateşkes çağrısını BMGK'de reddedecek!
+-  Rijeka ima sve što šampionska momčad treba imati i prepuna optimizma stiže na Maksimir
+-  Fifty firefighters tackle huge blaze at Taroni's scrap yard blaze in Aston
+-  Başkan Altay: "İstanbul yolu Fırat Caddesi Köprülü Kavşağı şehrimize hayırlı olsun"
+-  Fahrten durch NRW: 180.000 Euro für Probefahrten mit leeren Atommüll-Castoren
+-  Netanjahu vztraja pri ofenzivi na Rafo, pogajanja spet zastala
+-  Legendární mobilní hra Asphalt bude optimalizovaná pro skládací smartphony Honor
+-  Netanjahu vztraja pri ofenzivi na Rafo, pogajanja spet zastala
