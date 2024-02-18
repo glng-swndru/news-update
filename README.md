@@ -1,11 +1,11 @@
 # Latest News
--  Vancouver Giants enjoy 6th straight win on home ice
--  Ancelotti Enggan Bahas Rumor Kepindahan Mbappe ke Real Madrid
--  段ボールベッドの「食わず嫌い」を防ぐには お年寄りの不安解消法
--  10 Fruits that help increase hemoglobin naturally
--  महाकाली नदी किनारमा महिलाको शव फेला
--  Harsh Mander: The deep Hindutva roots of the violence that reduced a mosque to rubble in Haldwani
--  Human Heart: ఈ ఆహారంతో గుండె పదిలం - ఈ రోజు నుంచే మీ డైట్‌లో చేర్చుకోండి
--  Pakina: Illan torkku, aamun virkku
--  Concert review: China’s folk rockers Wutiaoren inspires fans to wave red plastic bags and dance
--  Случаят с маймуните и още 3 научни експеримента, в които може да се познаете
+-  همکاری ایران با عربستان، بحرین و کویت برای نجات خلیج فارس | کشتی های نظامی و تجاری خلیج فارس و خزر را پایش می‌کنند؟
+-  Himmlisch unperfekt: Das ganz und gar Menschliche in 40 biblischen Held/-innen-Geschichten
+-  EU-Ausschreibung fürs Gymnasium: Anbau für Holzwickeder Schule springt über Millionenschwelle
+-  Lịch thi đấu và trực tiếp bóng đá hôm nay 18/2: MU nối dài mạch thắng?
+-  Con IA y armas no letales la Provincia busca reforzar la prevención del delito
+-  Update Real Count KPU Prabowo-Gibran Tetap Unggul Nyaris 58 Persen
+-  Allu Arjun Teases The Possibility Of 'Pushpa 3' At Berlin Film Festival | WATCH - SHOWSHA
+-  Meteorologen med gode nyheter: – Ser rimelig bra ut
+-  Mediator says Gaza truce 'not promising' as Israel rejects calls to spare Rafah
+-  ALL-OUT SUNDAYS: LIVE! Tuloy-tuloy pa rin ang selebrasyon sa buwan ng FEB-IBIG!
