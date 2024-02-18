@@ -1,11 +1,11 @@
 # Latest News
--  Concours. Le Haut-Savoyard Charles Stamper élu Mister France 2024
--  6 lầm tưởng cực phổ biến ai cũng tự tin là mình biết tuốt nhưng hóa ra toàn bị phim ảnh đánh lừa
--  Gandrīz puse Latvijas iedzīvotāju šogad plāno remontēt vai labiekārtot savu mājokli
--  Melempem Lawan Chelsea, Guardiola Tantang Erling Haaland Langsung Cetak Gol Lagi di Laga Manchester City Berikutnya
--  Министр Кравцов назвал даты последних звонков и выпускных в школах
--  VÍDEO: Curry e Lillard brilham no fim de semana All Star da NBA
--  عندك محفظة زين كاش؟.. شارك الآن بفرصة ربح 100 دينار
--  LACIO JE PUN SAMOPOUZDANjA POSLE POBEDE NAD BAJERNOM: ''Crveno-plavi'' su na poslednja tri meča dali deset golova!
--  Regardez des films dans une ambiance chaleureuse grâce à ce TV Philips Ambilight à prix réduit sur Amazon
--  ERTUĞRUL SAĞLAM İSTİFA ETTİ, SÖZLEŞME 1.5 MİLYON LİRAYA KARŞILIKLI FESHEDİLECEK… ŞENOL CAN GELİYOR
+-  Puasa sebelum Ramadhan di Bulan Syaban: Amalan yang Paling Sering Dilakukan Rasulullah
+-  الراعي: ليضع الجميع فوق كلّ شيء هدف بناء الوحدة الوطنيّة بسبل جديدة ولغة جديدة وبخاصّة الولاء لوطننا النهائيّ لبنان
+-  Wann ein altes Auto zum Oldtimer wird
+-  Uživajte danas u sunčanoj nedjelji, uskoro stižu promjene; Idući tjedan pad temperature, bura, kiša i jugo...
+-  MMO İstanbul Yönetim Kurulu seçimleri başladı: Demokrat Makina Mühendislerinden sandığa çağrı
+-  Първият динозавър получава името си преди 200 години
+-  BBC hopes to cash in on The Traitors' success with spin-off quiz show The Chosen Ten
+-  "Un très bon patron" : Alexandre Benalla fait des révélations sur Emmanuel Macron face à Cyril Hanouna sur C8
+-  C-LM y Valencia estudian novedades para el convenio que presta atención sanitaria en zonas limítrofes de ambas regiones
+-  "Комай ни лъжат тия синковци" - за кои зодии се отнася това!
