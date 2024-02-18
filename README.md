@@ -1,11 +1,11 @@
 # Latest News
--  همکاری ایران با عربستان، بحرین و کویت برای نجات خلیج فارس | کشتی های نظامی و تجاری خلیج فارس و خزر را پایش می‌کنند؟
--  Himmlisch unperfekt: Das ganz und gar Menschliche in 40 biblischen Held/-innen-Geschichten
--  EU-Ausschreibung fürs Gymnasium: Anbau für Holzwickeder Schule springt über Millionenschwelle
--  Lịch thi đấu và trực tiếp bóng đá hôm nay 18/2: MU nối dài mạch thắng?
--  Con IA y armas no letales la Provincia busca reforzar la prevención del delito
--  Update Real Count KPU Prabowo-Gibran Tetap Unggul Nyaris 58 Persen
--  Allu Arjun Teases The Possibility Of 'Pushpa 3' At Berlin Film Festival | WATCH - SHOWSHA
--  Meteorologen med gode nyheter: – Ser rimelig bra ut
--  Mediator says Gaza truce 'not promising' as Israel rejects calls to spare Rafah
--  ALL-OUT SUNDAYS: LIVE! Tuloy-tuloy pa rin ang selebrasyon sa buwan ng FEB-IBIG!
+-  上白石萌歌、海外在住時の幼少期ショットが尊すぎて国宝級 小学生で「既に美少女」「ほとんど変わってない」
+-  Novi afriški bojevniki in bojevnice
+-  Golos rentáveis: Galeno a marcar dá dragão a vencer
+-  Insurrección de aficionados en la Bundesliga
+-  El mundo del deporte se reconfigura al compás del cambio geopolítico
+-  PSG : Surprise pour le transfert de Mbappé ? Il hallucine en direct
+-  Οι αποχές έφεραν γκρίνια στο ΠΑΣΟΚ - Ο δύσκολος δρόμος Ανδρουλάκη
+-  El largo apagón de Raúl de Tomás
+-  Martxak deseraikitzen
+-  Zelulosazko plaza bat
