@@ -1,11 +1,11 @@
 # Latest News
--  Mindent túlélő szerelem: újabb szívszorító fotót posztolt Bruce Willis felesége
--  ‘Fundamental change’: Blueprint for Coroners Court shakeup revealed
--  I put the OnePlus 12 vs Samsung Galaxy S24 Ultra through a 7-round face-off — here’s the winner
--  INSÄNDARE: Kort sagt om skatt, bro, parkering, kommun
--  Tudta? Egymilliós büntetést is kaphat, akinek hulladékkal van az ingatlana
--  America used to face down autocrats. Then Trump came along
--  ЦСКА - София гони задължителна победа срещу Ботев (Враца) на "Васил Левски"
--  Kobiety o tych imionach mają piękną osobowość. Czy jesteś jedną z nich?
--  Altın fiyatı bugün ne kadar oldu? Altın roket gibi yükseliyor! 18 Şubat 2024 Pazar güncel altın fiyatları...
--  Mindent túlélő szerelem: újabb szívszorító fotót posztolt Bruce Willis felesége
+-  Dattelner Innenstadt: Viele Versprechungen, wenig Konkretes
+-  All-Star Game 2024: ’The Greek Freak’ versus ’King James’, maar Joel Embiid ontbreekt
+-  Арда и Локомотив Пловдив се захапват здраво в Кърджали
+-  Evrópa í dag - Real Madrid, Bayern og Evrópuslagir
+-  Space Matters: From the root, part one
+-  England í dag - Brighton og Man Utd eiga útileiki
+-  Ísland í dag - Þór og Valur eiga heimaleiki
+-  Italy, Home Of The Mafia, Now One Of Europe’s Safest Countries
+-  Už nebudu pop*cávat, slíbil před lety po natáčení filmu Langmajer. Takhle to dopadlo
+-  Bakıda məşhur gecə klubunda kütləvi dava olub?
