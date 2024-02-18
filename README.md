@@ -1,11 +1,11 @@
 # Latest News
--  Volta para os braços de Cristiana Jesus: "Aprendemos a dar mais espaço"
--  Ferda Ataman zu Hanau: „Deutschland hat versagt“
--  ABD, Gazze'de ateşkes çağrısını BMGK'de reddedecek!
--  Rijeka ima sve što šampionska momčad treba imati i prepuna optimizma stiže na Maksimir
--  Fifty firefighters tackle huge blaze at Taroni's scrap yard blaze in Aston
--  Başkan Altay: "İstanbul yolu Fırat Caddesi Köprülü Kavşağı şehrimize hayırlı olsun"
--  Fahrten durch NRW: 180.000 Euro für Probefahrten mit leeren Atommüll-Castoren
--  Netanjahu vztraja pri ofenzivi na Rafo, pogajanja spet zastala
--  Legendární mobilní hra Asphalt bude optimalizovaná pro skládací smartphony Honor
--  Netanjahu vztraja pri ofenzivi na Rafo, pogajanja spet zastala
+-  Housewife with passion for art seizes on chance to take part in Melaka exhibition
+-  ティラノサウルスの軍団がラジオ体操？ ”ほっかいどう大運動会”札幌ドームで開催 野菜摂取量を測定するブースも
+-  James Bond filminde kullanmıştı: Bu "casus" makineye ilgi büyük
+-  Nem kegyelmeztek az izraeli katonák az iszlamistáknak
+-  Kartalkaya yolu tatilcilere çile oldu
+-  Nem bízik az állami egészségügyben? Gondoskodjon magáról!
+-  Mâm cúng ngày vía thần Tài 2024 gồm những gì?
+-  यशस्वी जायसवाल ने इंग्लैंड के खिलाफ जारी पांच मैचों की टेस्ट सीरीज में लगातार दूसरा दोहरा शतक ठोका
+-  Waarom Ferrari Red Bull niet met gelijke wapens bevecht
+-  Дара Екимова: Върнах годежния си пръстен
