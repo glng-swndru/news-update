@@ -1,11 +1,11 @@
 # Latest News
--  Rahapolitiikan suunta jakaa EKP:n nevostoa – Mario Draghi jyrähtää täysin poikkeuksellisella tavalla
--  Hot weather: Rubber tappers switch to night shift
--  REAL SIGURNO KORAČA KA TITULI: Vreme je da se ''kraljevski klub'' naplati kod domaćina koji mu je ''izmakao'' u prvom delu sezone
--  Heti horoszkóp: a Bika hajlamos a fertőzésekre, a Szűznek a munkahelyváltás nem feltétlenül előnyös
--  Ev sahipleri ile kiracılar arasında yeni dönem başlıyor! Bir-iki yıllık kiracılar için rakam yeniden belirlenecek
--  घर की सफाई कर रहा था शख्‍स, तभी हाथ लगी 'दुर्लभ' चीज, जिसने बदल दी दुनिया
--  La métropole de Chartres propose aux habitants de se munir de lombricomposteurs pour trier leurs biodéchets
--  Росія береже основні ресурси та готується до війни з НАТО, - начштабу "Азову"
--  Newsblog: Tote nach Raketenangriffen in Kramatorsk – Ukraine hofft auf Taurus-Lieferung
--  제베원 김지웅, '사필귀정'…직접 일축한 욕설 논란 "떳떳하게 살았다"
+-  Lâché par Mbappé, le boss du PSG a la cote à l’étranger
+-  Емполі Коваленка прийматиме Фіорентину, Мілан зіграє з Монцою: розклад матчів Серії А
+-  آغاز حراج جدید شمش طلا از ساعت 12 امروز
+-  Look at this superb four-bedroom home for sale in Wrexham
+-  CRNO JUTRO U CRNOJ GORI: Troje mladih poginulo u teškoj saobraćajnoj nesreći
+-  Beşiktaş evinde galibiyet peşinde
+-  Elsam Minta KPU Evaluasi Seluruh Hasil Pemindaian Sirekap
+-  Yle: Kennelliiton ja valtion koirarekisterit yritetään kytkeä toisiinsa
+-  Belastingaangifte 2023: aftrekposten en bijtelling voor de auto van de zaak
+-  Şubat ayı sonunda dolar/TL'nin ne kadar olması bekleniyor?
