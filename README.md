@@ -1,11 +1,11 @@
 # Latest News
--  Levandovski u nadoknadi sa "kreča" matirao Seltu
--  В Германии прошло шествие против конференции по безопасности
--  Laura Kuenssberg pinpoints 'important evidence' over threat of Nigel Farage and Reform UK
--  Arthur Kluckers mischt ganz vorne mit
--  FH fór illa með ÍBV – öruggt hjá Fylki
--  В Минобороны рассказали о достижении важной цели после освобождения Авдеевки
--  PUTIN DOBIO UDARNU VEST SA FRONTA!
--  Jágr trénoval s Pittsburghem, chce také na rozbruslení. Zvládl by i zápas?
--  A nap legfontosabb hírei egy helyen – 2024. február 17.
--  تاوامبا متخصص جديد بالشباك الخضراء
+-  Pedro Henrique se coloca à disposição para jogar e projeta Dérbi
+-  اللجنة الوطنية للتحقيق تستمع لشهادات حية من ضحايا تعرضوا لانتهاكات في مأرب
+-  England’s spirit shattered in brutal display
+-  TOP NEWS ore 21 - Juve, un altro passo falso. Mazzarri in crisi ma non si dimette
+-  Dono de oficina que guardava R$ 1 milhão em cocaína tem prisão decretada
+-  Netanyahu: "Entreremo a Rafah a prescindere da un accordo. Le elezioni tra qualche anno"
+-  Mo: Borghi (Lega), 'solidarietà a Meloni'
+-  Mo: Borghi (Lega), ‘solidarietà a Meloni’
+-  삼성 파운드리, 반도체 실적 전성기 위한 '마지막 퍼즐'
+-  Mbappé - PSG : Une révélation est lâchée sur son départ
