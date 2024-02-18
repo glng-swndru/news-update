@@ -1,11 +1,11 @@
 # Latest News
--  Puasa sebelum Ramadhan di Bulan Syaban: Amalan yang Paling Sering Dilakukan Rasulullah
--  الراعي: ليضع الجميع فوق كلّ شيء هدف بناء الوحدة الوطنيّة بسبل جديدة ولغة جديدة وبخاصّة الولاء لوطننا النهائيّ لبنان
--  Wann ein altes Auto zum Oldtimer wird
--  Uživajte danas u sunčanoj nedjelji, uskoro stižu promjene; Idući tjedan pad temperature, bura, kiša i jugo...
--  MMO İstanbul Yönetim Kurulu seçimleri başladı: Demokrat Makina Mühendislerinden sandığa çağrı
--  Първият динозавър получава името си преди 200 години
--  BBC hopes to cash in on The Traitors' success with spin-off quiz show The Chosen Ten
--  "Un très bon patron" : Alexandre Benalla fait des révélations sur Emmanuel Macron face à Cyril Hanouna sur C8
--  C-LM y Valencia estudian novedades para el convenio que presta atención sanitaria en zonas limítrofes de ambas regiones
--  "Комай ни лъжат тия синковци" - за кои зодии се отнася това!
+-  [뉴스추적] 앞서가는 국힘, 위기 맞은 민주…왜?
+-  Love Month Stories 2024: The consequence of a cheating husband
+-  'Missing Man Utd's Champions League final broke my heart – I partied until 5am instead'
+-  LAS Dolenjska in Bela krajina z novimi organi vodenja ter potrjeno strategijo lokalnega razvoja LAS DBK 2021–2027
+-  LAS Dolenjska in Bela krajina z novimi organi vodenja ter potrjeno strategijo lokalnega razvoja LAS DBK 2021–2027
+-  Ezeket mindenképpen érdemes megbeszélni magunkkal, mielőtt elektromos autóba ülünk át
+-  本堂倒壊の寺で四十九日法要 被災の住職「半歩でも進んでいきたい」
+-  Steuererleichterungen für Rückkehrer: Wie Italien den Braindrain stoppen will
+-  C'est le moment de profiter des dernières truffes d'hiver
+-  L'actualité en images. Les enfants du RPI Joudes-Champagnat ont défilé pour le carnaval
