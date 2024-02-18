@@ -1,11 +1,11 @@
 # Latest News
--  Dattelner Innenstadt: Viele Versprechungen, wenig Konkretes
--  All-Star Game 2024: ’The Greek Freak’ versus ’King James’, maar Joel Embiid ontbreekt
--  Арда и Локомотив Пловдив се захапват здраво в Кърджали
--  Evrópa í dag - Real Madrid, Bayern og Evrópuslagir
--  Space Matters: From the root, part one
--  England í dag - Brighton og Man Utd eiga útileiki
--  Ísland í dag - Þór og Valur eiga heimaleiki
--  Italy, Home Of The Mafia, Now One Of Europe’s Safest Countries
--  Už nebudu pop*cávat, slíbil před lety po natáčení filmu Langmajer. Takhle to dopadlo
--  Bakıda məşhur gecə klubunda kütləvi dava olub?
+-  बालकुमारी घटनालाई हामी सामान्य रूपमा लिँदैनौं, प्रधानमन्त्रीले जाँच दिनुहुनेछ: लामिछाने
+-  "ALERGIČNA SAM NA VODU" Šok ispovest devojke: "Iz kuće ne izlazim bez kišobrana, svi pitaju kako se kupam i šta pijem kad ožednim"
+-  서아프리카 민주주의 보루 세네갈, 대선 일정 놓고 혼란 격화…“민주주의 최대 시험대”
+-  Fenerbahçe yağmur çamur demedi 3 puanı böyle çıkardı kulübün paylaşımı gündem oldu
+-  Силно земетресение разтърси град Акапулко в Мексико
+-  ‘Oozing kindness’: Swift’s travelling SA fans sing her praises
+-  人行今續5000億人幣MLF 利率維持2.5厘不變
+-  Egipatska piramida iz susjedstva: Čudo gradnje staro 2000 godina koje je podignuto za samo 330 dana
+-  Дочь экс-главы Узбекистана избавляется от недвижимости в США
+-  Kamena palača peterokatnica izrasla iz stijene široke točno kao njezin temelj
