@@ -1,11 +1,11 @@
 # Latest News
--  बालकुमारी घटनालाई हामी सामान्य रूपमा लिँदैनौं, प्रधानमन्त्रीले जाँच दिनुहुनेछ: लामिछाने
--  "ALERGIČNA SAM NA VODU" Šok ispovest devojke: "Iz kuće ne izlazim bez kišobrana, svi pitaju kako se kupam i šta pijem kad ožednim"
--  서아프리카 민주주의 보루 세네갈, 대선 일정 놓고 혼란 격화…“민주주의 최대 시험대”
--  Fenerbahçe yağmur çamur demedi 3 puanı böyle çıkardı kulübün paylaşımı gündem oldu
--  Силно земетресение разтърси град Акапулко в Мексико
--  ‘Oozing kindness’: Swift’s travelling SA fans sing her praises
--  人行今續5000億人幣MLF 利率維持2.5厘不變
--  Egipatska piramida iz susjedstva: Čudo gradnje staro 2000 godina koje je podignuto za samo 330 dana
--  Дочь экс-главы Узбекистана избавляется от недвижимости в США
--  Kamena palača peterokatnica izrasla iz stijene široke točno kao njezin temelj
+-  Manchester City sent FFP warning by rival Premier League boss with announcement ‘imminent’
+-  Il y a 30 ans, Yann Piat était assassinée dans le Var: portrait d'une députée (très) seule, en haut à droite
+-  Fortuna 1 Liga: Stal Rzeszów - Wisła Kraków. Transmisja TV i stream online
+-  Лив Тайлър: В европейското кино има по-добър секс от американското - Труд
+-  Pašeráci v Rokytnici zvládli bez sněhu i jízdu na vleku, tradici nevzdali
+-  Salandin: «La Juventus perfetta era quella che vinse a Firenze»
+-  Nam Em "kể tội" ai đó trên livestream: Từng nói muốn có con, chở cô đi khách sạn, hôm trước vừa ôm hôn cô hôm sau đã lên truyền hình cầu hôn
+-  Nostalgic photos from across Wrexham and Flintshire
+-  ASSE : Le boss lance une révolution, il se lâche
+-  MSV Duisburg: MSV Duisburg im Aufwind: „Connection mit Fans ist wieder da“
