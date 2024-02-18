@@ -1,11 +1,11 @@
 # Latest News
--  Apple согласилась внедрить RCS в iPhone под давлением Китая
--  Welche Kräuter ein Pferd zur Futterergänzung bekommen darf – und welche nicht
--  Promessa de Temer de novos presídios federais não saiu do papel
--  トランプリスクを警戒する欧州 G7外相、ウクライナ支援を協議
--  BBC The Traitors stars tease All Stars series with bizarre twist and they're more than up for it
--  Canadian Club of Halton hosts Terry Fallis
--  Bertín Osborne desvela en 'El Hormiguero' el motivo por el que nunca usa perfume
--  Mutáns farkasok jelentek meg Csernobilban
--  Sind Monatsabschläge nur „gefühlt“ zu hoch berechnet?
--  SSV Mühlhausen vor nächster Hammeraufgabe: „Die sind spielerisch eine absolute Macht“
+-  Four Cheltenham bars and restaurants earn five-star food hygiene ratings
+-  Monty Python's latest spat, Jon Stewart's big return, and more from the week in news
+-  Weekend Business News Roundup February 17, 2024
+-  EBASOBIV KASUTAMINE? „Müüja õiendas, et testrid pole mõeldud tasuta terve näo jumestamiseks. Kuid ma lihtsalt katsetasin mitme toote sobivust ühel ajal!“
+-  Stand-up is far from down and out after pandemic knocks
+-  Occupational therapist Sarah on why new therapeutic gardens will make such a difference
+-  笹やぶ伐採の93歳 10m転落し死亡
+-  Comer esta fruta puede mejorar tu salud mental en solo cuatro días, ¿se recomienda comerla con la cáscara como lo hace la actriz Jenna Ortega?
+-  Những quân đội hùng mạnh nhất thế giới
+-  Ο γάμος της συμφοράς - Έπιασε την πεθερά να θηλάζει... τον γαμπρό
