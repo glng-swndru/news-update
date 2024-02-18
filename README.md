@@ -1,11 +1,11 @@
 # Latest News
--  Ganztagsbetreuung auf der Kippe?
--  Legali Elkann, fondi dell'eredità già dichiarati al fisco
--  La Russa chiama Meloni, vicinanza per la foto bruciata a Torino
--  Dışişleri Bakanı Fidan, Alman mevkidaşı Baerbock ile görüştü
--  Zelenski ​advierte de «déficit artificial» de armas tras la retirada de Avdiivka #17Feb
--  Skandal w Lublinie. Nastolatkowie zostali zaatakowani przez Rafalalę? Nowe fakty
--  El aterrador pasado de Zeus y cómo una oficial de policía le dio una nueva vida llena de amor
--  Zgodicima Livaje i Dajakua Hajduk uzeo tri boda kod Rudeša
--  تكريم أصغر شيف بالدرب
--  На Авдіївському напрямку бої перекинулися до Ласточкиного, - Генштаб
+-  Sex über 40: Sex, von dem man nicht genug kriegen kann – unsere Autorin hat ihn gefunden
+-  BJP leaders praise PM Modi's development, cultural measures; farmers and South India find mention
+-  'Não vou chamar Moraes de ditador de toga como faço nas redes', diz Malafaia sobre ato
+-  ‘Não vou chamar Moraes de ditador de toga como faço nas redes’, diz Malafaia sobre ato
+-  Sonst macht Putin die "Welt zur Katastrophe"
+-  KAKVO NEVASPITANJE! Slavna pevačica pobegla sa snimanja emisije, Rita Ora odmah dotrčala da spasi krizu
+-  Ben Affleck's mysterious appearance in Jennifer Lopez's film explained
+-  On a revu le premier épisode de NCIS et on s’est demandé pourquoi Caitlin Todd (Sasha Alexander) n’était pas restée dans la série
+-  Специјалци упаднаа во воз во Германија – упасија маж по кој трагале 25 години
+-  'Não vou chamar Moraes de ditador de toga como faço nas redes', diz Malafaia sobre ato
