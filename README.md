@@ -1,11 +1,11 @@
 # Latest News
--  Легализацията на еднополовите бракове в Гърция е плод на дългогодишна война с църквата - Труд
--  BIZARNO PONAŠANJE TURISTA Prepustili se strastima NA ŠETALIŠTU, ljudi užasnuti: "Zašto jednostavno ne odete u hotel, KAKVI SU TO LJUDI!?"
--  Elite 1 féminine : pourquoi l'ASM Romagnat va devoir se réinventer face à Lille
--  Seçimden sonra kur şoku yaşanacak mı? Merkez Bankası’nın döviz kuru stratejisi!
--  Što znači famozni članak 5. NATO-a i kako se aktivira? Dosad je bio bio upotrijebljen samo jednom
--  姚黛瑋吃感冒藥引發嚴重副作用 拍戲「記憶中斷」全身昏沉
--  قبيسي: تبقى اسرائيل متغطرسة في المنطقة ليس بقوتها بل بضعف من يواجهها
--  100 % LED, télédétection... Près de Bordeaux, cette commune mise sur l’éclairage « intelligent »
--  Espirito Santo: Þetta var augljós vítaspyrna
--  Stórstjörnur og gljáandi hlutir
+-  Neues Café öffnet in Herten: Gastronomin Aida Suvalic setzt auf bewährtes Konzept
+-  Kebab nikad skuplji! Podolski: Kad smo mi otvarali bio je 5 KM, danas je 8 eura
+-  ‘15년 망명’ 탁신 전 태국 총리, 수감 6개월 만에 가석방
+-  Alle Kurse im Überblick - So bereiten Sie sich auf die Entbindung vor
+-  PWRD Invites Tender for Periodic Renewal Of Road in Jorhat- 2024_PWD_36256_22
+-  Alertan menor producción de alimentos por la falta de dólares
+-  Consejos conejos para revolucionarios en flor (Parte II)
+-  Seçimlerde hile skandalı: Bir yetkili istifa etti
+-  Eski hakemler Çaykur Rizespor - Fenerbahçe maçını değerlendirdi: 'Kırmızı kart görmeliydi'
+-  Kết quả xổ số hôm nay (18-2): Tiền Giang, Kiên Giang, Đà Lạt, Khánh Hòa, Thái Bình...
