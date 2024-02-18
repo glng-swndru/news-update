@@ -1,11 +1,11 @@
 # Latest News
--  Naslovna strana za 18.2.
--  개혁신당, 지역구 출마자 ‘인물난’에 제3지대 바람 ‘주춤’
--  王毅氏が「もしトラ」にらんだ発言 欧州に向けて「中国は安定の力」
--  Lan toả vẻ đẹp văn hoá Việt Nam ở nước ngoài
--  Say Hello to Your New Fantastic Four
--  ગોવંડીની ઝુંપડપટ્ટીમાં ભીષણ આગઃ ૧૫ ગોદામો અને ઘણાં ઘરો બળીને ખાખ
--  Aaj Ka Panchang 18 Feburary: आज का पंचांग, देखें तिथि, ग्रह, शुभ मुहूर्त और राहुकाल का समय
--  وائل الدحدوح في ندوة «القطري للصحافة»: «نراكم على خير» رسالتي إلى أسرتي يوم 7 أكتوبر
--  Alberto Díaz el nuevo gerente de Cocodrilos de Caracas
--  Weekly Horoscope, February 18 to February 24, 2024: Read weekly astrological predictions for all zodiac signs
+-  Il G7 rassicura Zelensky: «Determinati nel sostegno a Kiev»
+-  ‘Not allowed’: William’s blunt Harry rule
+-  "Барса" би с родилни мъки
+-  Real Santa Cruz - Real Tomayapo (0-0): minuto a minuto
+-  Chelsea Tahan Imbang Manchester City, Mauricio Pochettino Bahagia dan Bangga
+-  «مون بلان» تطلق أداة مخصصة لتشكيل سنون الأقلام
+-  RGIA tops on-time performance for four airlines in January 2024
+-  ජීවිත වැනසූ,මාතර කැලඹූ නිල්වලා ලවණ බාධකය
+-  ආර්ථික ස්ථාවරත්වය සමඟ මෝටර්සයිකල් ආනයන තහනම ඉවත් කරනු ඇතැයි Yamaha සහ AMW සමාගම් අපේක්ෂා කරයි
+-  બે જીવાશ્મિ વિજ્ઞાાનીઓ શા માટે એકબીજાના કટ્ટર દુશ્મન બની ગયા?
