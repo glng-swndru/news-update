@@ -1,11 +1,11 @@
 # Latest News
--  Yurtta bugün hava nasıl olacak?
--  Çankırı'da ahır yangını
--  A Föld 6+1 rejtett gyöngyszeme: titokzatos helyszínek, amelyekről kevesen tudnak
--  Ab 2025: Nasa sucht „Marsbewohner“ für einjährige Simulation in Texas
--  هزة أرضية بقوة 5 درجات تضرب وسط المكسيك
--  Ab 2025: Nasa sucht „Marsbewohner“ für einjährige Simulation in Texas
--  They don’t play for draws, but... India young gun’s double ton sets Poms impossible chase — LIVE
--  Maden felaketinde flaş gelişme!
--  Turun taidemuseon verkkosivu todennäköisesti kaapattu – jäljet vievät aasialaiselle pelisivustolle
--  Ovo su francuski znanstvenici koji istražuju NLO-e
+-  Is the age of entitlement over? It depends on what age you are
+-  Vesperkirche: Wenn in der Magdalenenkirche getanzt wird
+-  Malta FA in Latvian prison for its UEFA Outraged project
+-  Ποια ζώδια θα έχουν τύχη και ποια θα είναι άτυχα, από 18/02 έως 24/02
+-  Jean-Marie Bigard bientôt au casting de "Plus belle la vie" ? L'humoriste postule !
+-  Paschiun pel Chalandamarz
+-  Zorunlu trafik sigortasında yeni dönem: Yarın başlıyor
+-  Analytici: Koruna by mohla v příštích měsících dále mírně ztrácet
+-  북·일 대화 시그널···‘그린라이트’일까, 국면 전환용일까
+-  SAP, Bayer und ZF : Kulturwandel, Transformation, Turnaround – Wie SAP, Bayer und ZF ihre Personalprobleme lösen wollen
