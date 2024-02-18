@@ -1,11 +1,11 @@
 # Latest News
--  Sex über 40: Sex, von dem man nicht genug kriegen kann – unsere Autorin hat ihn gefunden
--  BJP leaders praise PM Modi's development, cultural measures; farmers and South India find mention
--  'Não vou chamar Moraes de ditador de toga como faço nas redes', diz Malafaia sobre ato
--  ‘Não vou chamar Moraes de ditador de toga como faço nas redes’, diz Malafaia sobre ato
--  Sonst macht Putin die "Welt zur Katastrophe"
--  KAKVO NEVASPITANJE! Slavna pevačica pobegla sa snimanja emisije, Rita Ora odmah dotrčala da spasi krizu
--  Ben Affleck's mysterious appearance in Jennifer Lopez's film explained
--  On a revu le premier épisode de NCIS et on s’est demandé pourquoi Caitlin Todd (Sasha Alexander) n’était pas restée dans la série
--  Специјалци упаднаа во воз во Германија – упасија маж по кој трагале 25 години
--  'Não vou chamar Moraes de ditador de toga como faço nas redes', diz Malafaia sobre ato
+-  Škole u Zeti ne prekidaju nastavu
+-  4-2-3-1: Manchester United predicted XI vs Luton Town, Ten Hag forced into huge change
+-  د سندرو مېلمانه
+-  Illinois vs. Maryland prediction: College basketball odds, pick
+-  Miles from Nowhere star Arlo Green on why new Kiwi-Muslim dramedy is a universal story - Spy
+-  2 Artificial Intelligence Stocks You Can Buy and Hold for the Next Decade
+-  "Двіж тут, а не на полуниці": воїни, які вийшли з Авдіївки, звернулися до українців
+-  OM : Gattuso annonce une attaque de folie avec Aubemayang
+-  VfL Bochum vs Bayern Munich: Lineups, team news, Thomas Tuchel looking for new ways to disappoint fans, and more!
+-  Convocati Monza per il Milan: le scelte di Palladino per il match
