@@ -1,11 +1,11 @@
 # Latest News
--  Major tech companies sign agreement to combat AI's use in election interference
--  Цветлин Йовчев: Депутатите трябва да провеждат разследвания
--  Intento de homicidio al alcalde Arcadio Rosa
--  Svađa na „X-u“ poslanika PES-a i bivšeg Milovog kuma: Knežević optužio Lakovića da je pet tona kokaina prošlo kroz Crnu Goru kad je bio šef odjela za narkotike!
--  Major tech companies sign agreement to combat AI's use in election interference
--  "العربية" عن الخارجية الأميركية: بلينكن أكد للرئيس الإسرائيلي عدم دعم واشنطن لعملية عسكرية في رفح
--  Tour des Alpes-Maritimes: le Britannique Ethan Vernon s’impose à Antibes
--  Tour des Alpes-Maritimes: le Britannique Ethan Vernon s’impose à Antibes
--  Йосиф Миладинов е осми в света на 100 метра бътерфлай
--  Vali Yavuz, Başiskele’de gönül kapılarını araladı
+-  Box Office: ‘Bob Marley: One Love’ Gets Together $7.4 Million on Friday, ‘Madame Web’ Falls Behind With $4.3 Million
+-  Пожар на Околовръстното шосе
+-  „Ich möchte ein Allrounder sein!“: Tobias Dalhof lebt mit Leidenschaft seine Musik.
+-  Europee: Renzi, 'felice per 'Palla la centro' primo in classifica, ancora di più per clima'
+-  Kupiłem wideo grabber za 100 zł. Sprawdziłem, czy warto
+-  Glücksspiel, aber gut für den Kopf?!: Schalke-Talk nach Wiesbaden
+-  Despite working so hard, why does free time remain elusive?
+-  Aglietti per ora non dà la scossa: il Lecco cade anche con il Cosenza
+-  RB Leipzig - Borussia Mönchengladbach, en directo | Bundesliga
+-  Tiago o medenom mjesecu i odnosu s Tinom: 'Dogodila se nepotrebna drama'
