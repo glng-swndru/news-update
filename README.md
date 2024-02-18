@@ -1,11 +1,11 @@
 # Latest News
--  Når vi bryder med vores forældre, handler det ofte om vores partner
--  Nordhorn / Ems-Vechte-Kanal: Leichenteile in Kanal entdeckt
--  60. Münchner Sicherheitskonferenz: Selenskyj lädt Trump an die ukrainische Front ein
--  Psihoterapija u Hrvatskoj je još uvijek slabo dostupna
--  Sicherheitskonferenz in München: Speed-Dating als Leistungssport der Diplomatie
--  Турски клуб стана част от семейството на City Football Group
--  Domovinski pokret: Zakupci na osječkoj Tržnici ne bi trebali o svom trošku uređivati prostor
--  Norveške tajne službe: Rusija pobjeđuje u Ukrajini
--  Minik Erva hayata tutunamadı
--  Khloé Kardashian befürwortet Kims neue Romanze mit Odell!
+-  19 cats and dogs available for adoption in Leeds including playful Pomeranian who 'came from stressful home'
+-  ਮੈਂ ਹਮੇਸ਼ਾ ਤੋਂ ਕਰਨੀ ਸੀ ਪੰਜਾਬੀ ਫਿਲਮ : ਇਮਰਾਨ ਅੱਬਾਸ
+-  Líder nacional em vendas via Pix, Mato Grosso do Sul ‘adotou’ forma de pagamento, mas ainda há quem resista
+-  Terapevtska kolonija Društva Sonček Posavje
+-  Citizen poll results: Do you approve the Prince George school district adding a Japanese cooking and culture course to the curriculum?
+-  ARMASTUS ESIMESEST SILMAPILGUST: noorena kartis Külli rotte nagu tuld, nüüd on tõmmusilmne Jenny tema suuremaid lemmikuid
+-  Leeds son jailed for pestering his mother for drug money and smashing up her home
+-  Para evitar la infiltración de criminales, van contra vehículos sospechosos
+-  Cogumelos, tomate ou oregãos. Os perfumes para a casa da Loewe são de se comer
+-  Sweeping review of nation’s warships to recommend naval fleet shake-up
