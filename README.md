@@ -1,11 +1,11 @@
 # Latest News
--  سرقت میلیونی نوه از حساب پدربزرگ و کلاهبرداری میلیاردی در ساری
--  Şahin'den miting gibi seçim irtibat ofisi açılışı
--  Trump hit where it hurts most in New York fraud ruling
--  ONLINE: Liverpool zvítězil na půdě Brentfordu. Jak zareagují Arsenal a City?
--  ŽIVĚ: Mikyska zvládl první úsek štafety skvěle. Krčmářovi předal na druhém místě
--  Ruská státní média o smrti kritika Kremlu Navalného informují jen okrajově
--  Угис КРАСТИНЬШ: «Нам по силам бороться за десятку и даже выше в Плюс Лиге»
--  Operaio cade dal tetto mentre lavorava a Umbertide, è grave
--  Politieauto die auto te hulp schiet, rijdt sloot in
--  Кожен бачить павича, і лиш люди з високим IQ знайдуть кошеня за 10 секунд: дивна ілюзія
+-  Planos de saúde devem cobrir exame de dengue? Entenda seus direitos
+-  New iGaming M&A Database: $125 Billion in Deals, with 2023 Setting Sales Record
+-  DRAGANA MIRKOVIĆ KONCERTOM U ARENI NACIJU BACILA U TRANS! Karleuša rasplakala folk divu
+-  Sprinterka Maňasová vylepšila český rekord na 60 metrů o tři setiny na 7,20
+-  Смъртта на Навални е недвусмислено послание за опасността от противопоставянето на Путин
+-  Muş'ta gençler spora yönlendiriliyor
+-  אבוקסיס אחרי התיקו: "אם נמשיך ככה יהיה בסדר", מימר: "נקודה במגרש קשה"
+-  Β' Κατηγορία Κύπρου: «Πάτησε» κορυφή η Ομόνοια Αραδίππου
+-  بالفيديو.. القبض على شخص سرق مركبة كانت في وضع التشغيل بمسقط
+-  المستشار الصحفي الجيلاني وخدشي يعزون العميد أحمد حسن باستشهاد نجله
