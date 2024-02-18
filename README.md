@@ -1,11 +1,11 @@
 # Latest News
--  Polska cyfrowa innowacja to…. inteligentna miejska ławka. Siedziałem na niej
--  日経平均、最高値試す 米エヌビディア決算が相場左右 - 日本経済新聞
--  Балтийските държави строят бункери: Могат ли да спрат настъпление от Русия?
--  Rodri strike salvages Man City point against Chelsea
--  TOP of the WEEK: Negócios e talento no desporto
--  Justyna Kowalczyk opublikowała wzruszający post o Tekielim. Łzy cisną się do oczu
--  Тело мужчины обнаружили в одном из хостелов Москвы
--  The humble spud is now a $1 billion industry but a potato farmer says not all growers are benefitting
--  Parish welcomes new priest
--  Bug no Microsoft Edge está a irritar os utilizadores
+-  Levandovski u nadoknadi sa "kreča" matirao Seltu
+-  В Германии прошло шествие против конференции по безопасности
+-  Laura Kuenssberg pinpoints 'important evidence' over threat of Nigel Farage and Reform UK
+-  Arthur Kluckers mischt ganz vorne mit
+-  FH fór illa með ÍBV – öruggt hjá Fylki
+-  В Минобороны рассказали о достижении важной цели после освобождения Авдеевки
+-  PUTIN DOBIO UDARNU VEST SA FRONTA!
+-  Jágr trénoval s Pittsburghem, chce také na rozbruslení. Zvládl by i zápas?
+-  A nap legfontosabb hírei egy helyen – 2024. február 17.
+-  تاوامبا متخصص جديد بالشباك الخضراء
