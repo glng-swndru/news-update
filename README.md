@@ -1,11 +1,11 @@
 # Latest News
--  Lâché par Mbappé, le boss du PSG a la cote à l’étranger
--  Емполі Коваленка прийматиме Фіорентину, Мілан зіграє з Монцою: розклад матчів Серії А
--  آغاز حراج جدید شمش طلا از ساعت 12 امروز
--  Look at this superb four-bedroom home for sale in Wrexham
--  CRNO JUTRO U CRNOJ GORI: Troje mladih poginulo u teškoj saobraćajnoj nesreći
--  Beşiktaş evinde galibiyet peşinde
--  Elsam Minta KPU Evaluasi Seluruh Hasil Pemindaian Sirekap
--  Yle: Kennelliiton ja valtion koirarekisterit yritetään kytkeä toisiinsa
--  Belastingaangifte 2023: aftrekposten en bijtelling voor de auto van de zaak
--  Şubat ayı sonunda dolar/TL'nin ne kadar olması bekleniyor?
+-  Легализацията на еднополовите бракове в Гърция е плод на дългогодишна война с църквата - Труд
+-  BIZARNO PONAŠANJE TURISTA Prepustili se strastima NA ŠETALIŠTU, ljudi užasnuti: "Zašto jednostavno ne odete u hotel, KAKVI SU TO LJUDI!?"
+-  Elite 1 féminine : pourquoi l'ASM Romagnat va devoir se réinventer face à Lille
+-  Seçimden sonra kur şoku yaşanacak mı? Merkez Bankası’nın döviz kuru stratejisi!
+-  Što znači famozni članak 5. NATO-a i kako se aktivira? Dosad je bio bio upotrijebljen samo jednom
+-  姚黛瑋吃感冒藥引發嚴重副作用 拍戲「記憶中斷」全身昏沉
+-  قبيسي: تبقى اسرائيل متغطرسة في المنطقة ليس بقوتها بل بضعف من يواجهها
+-  100 % LED, télédétection... Près de Bordeaux, cette commune mise sur l’éclairage « intelligent »
+-  Espirito Santo: Þetta var augljós vítaspyrna
+-  Stórstjörnur og gljáandi hlutir
