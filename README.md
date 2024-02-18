@@ -1,11 +1,11 @@
 # Latest News
--  В окупованому Мелітополі пролунав вибух під час дитячих змагань
--  This delicious better-for-you bread is easy to bake at home
--  Postecoglou: Ég er ekki galdramaður
--  «Общественное»: в Харьковской области прогремел взрыв
--  Saka tiếp tục thăng hoa, Arsenal 'tiễn' Burnley trở lại Championship gần thêm một đoạn
--  This delicious better-for-you bread is easy to bake at home
--  Obradović: Zbog čega neiskusne sudije sude derbi? VIDEO
--  Irene Schouten grijpt wereldtitel op de massastart in Calgary
--  Kabar Buruk! Liverpool Dilanda Badai Cedera, Kondisi Diogo Jota Paling Parah
--  Tendrá Mazatlán icónica escultura de venado de 12 metros de altura en la glorieta de Atlántico y Carlos Canseco
+-  الشــــيخة المياســـة تتوّج بطلـــة قطــر توتــــال إنــــرجيز للتنس.. الصقر الذهبي للبولندية شيفيونتيك
+-  رئيس الوزراء: يجب وقف الحرب في غزة دون شروط مسبقة
+-  رئيس الوزراء يبحث تطورات غزة مع مسؤولين أوروبيين بميونخ
+-  مباحثات قطرية عُمانية حول الأوضاع الفلسطينية
+-  夫の物を勝手にフリマ出品 罪か
+-  الشيخ ثاني بن حمد يتوّج الفائزين.. ختام أنيق لسباق سيف سمو الأمير لقوة التحمل
+-  நெல்லை, தென்காசி மாவட்ட அணைகள் நீா் மட்டம்
+-  Суперлига. Разгромные победы Мотора и Донбасса, Карпаты обыграли СКА Киев
+-  Nike segir yfir 1.700 manns upp
+-  Obradović: Sudije nisu bile dorasle ovoj utakmici VIDEO
