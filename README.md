@@ -1,11 +1,11 @@
 # Latest News
--  Pedro Henrique se coloca à disposição para jogar e projeta Dérbi
--  اللجنة الوطنية للتحقيق تستمع لشهادات حية من ضحايا تعرضوا لانتهاكات في مأرب
--  England’s spirit shattered in brutal display
--  TOP NEWS ore 21 - Juve, un altro passo falso. Mazzarri in crisi ma non si dimette
--  Dono de oficina que guardava R$ 1 milhão em cocaína tem prisão decretada
--  Netanyahu: "Entreremo a Rafah a prescindere da un accordo. Le elezioni tra qualche anno"
--  Mo: Borghi (Lega), 'solidarietà a Meloni'
--  Mo: Borghi (Lega), ‘solidarietà a Meloni’
--  삼성 파운드리, 반도체 실적 전성기 위한 '마지막 퍼즐'
--  Mbappé - PSG : Une révélation est lâchée sur son départ
+-  SUN周日體育直播賽程
+-  ૬ મહિનામાં વીજ જોડાણ કાપવા ગયેલા સાત કર્મચારીઓ પર હુમલા
+-  لزوم افزایش سهم بخش‌خصوصی در اقتصاد
+-  Shigeru Miyamoto celebra el aniversario de Super Nintendo World con un mensaje especial
+-  تیک‌تاک «شاخص»
+-  公屋料今年加租兼「走甜」 羅淑佩：股樓差租戶影響有限 公屋聯會：基層收入無改善
+-  أمال القيصر تتحدث بحـ.. ـرقة عن سبب غيابها عن الشاشة📺 وتكشف لأوّل مرة كيف التحقت بمسلسل بنت البلاد..
+-  Zapata ancora in gol, fa festa il Toro ma anche l'Atalanta
+-  Corrie star Alan Halsall splits from co-star girlfriend Tisha Merry after ‘pressure to make it work got on top of them’
+-  بهینه‌‌‌سازی مصرف با مصالح نوین ساختمانی
