@@ -1,11 +1,11 @@
 # Latest News
--  iPhone owners baffled after finding mystery ‘P’ that appears on their chats
--  Video Resurfaces of Unbelievable Moment Meghan Markle Walked in Front of Queen Elizabeth During Engagement
--  Maja Šuput prisjetila se anegdote s Grdovićem: 'Stavio je masku na glavu i trčao, pa su nas istjerali'
--  Kulturdirektoratet og kvensk språk og kultur
--  מחצית ראשונה: בני סכנין - בית"ר ירושלים 0:0
--  Eldurvult családi vita Iránban: Kalasnyikovval lőtt le 12 rokont egy férfi
--  PSG : Le Real Madrid a un plan, jackpot pour Mbappé ?
--  Sedang Berlangsung, Link Streaming Manchester City vs Chelsea, Minggu 18 Februari 2024
--  Comment a été inventé le Walkman ? L'incroyable histoire de sa création, grâce à un PDG golfeur
--  No. 7 Oregon State Beavers vs. Minnesota Golden Gophers: Preview, starting lineup, how to watch college baseball game
+-  Ganztagsbetreuung auf der Kippe?
+-  Legali Elkann, fondi dell'eredità già dichiarati al fisco
+-  La Russa chiama Meloni, vicinanza per la foto bruciata a Torino
+-  Dışişleri Bakanı Fidan, Alman mevkidaşı Baerbock ile görüştü
+-  Zelenski ​advierte de «déficit artificial» de armas tras la retirada de Avdiivka #17Feb
+-  Skandal w Lublinie. Nastolatkowie zostali zaatakowani przez Rafalalę? Nowe fakty
+-  El aterrador pasado de Zeus y cómo una oficial de policía le dio una nueva vida llena de amor
+-  Zgodicima Livaje i Dajakua Hajduk uzeo tri boda kod Rudeša
+-  تكريم أصغر شيف بالدرب
+-  На Авдіївському напрямку бої перекинулися до Ласточкиного, - Генштаб
