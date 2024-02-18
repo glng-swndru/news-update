@@ -1,11 +1,11 @@
 # Latest News
--  Mbappé 'cumpriu castigo', entrou e... marcou na vitória do PSG frente ao Nantes
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 18 февруари /валутен калкулатор/
--  «ПСЖ» обыграл «Нант», Мбаппе вышел на замену во втором тайме и реализовал пенальти
--  Alanyaspor-Adana Demirspor maçı ne zaman? Saat kaçta? Hangi kanalda?
--  Grêmio goleia Santa Cruz por 6 a 2 e vira líder provisório do Gaúcho
--  White Man Who Destroyed Jackie Robinson's Statue Found Out, Whoopie Goldberg's Hookups, Lies of Transantlantic Slave Trade and More Culture News
--  Putin čestitao vojsci na zauzimanju Avdiivke: ‘Izražavam zahvalnost svim postrojbama’
--  Grêmio goleia Santa Cruz por 6 a 2 e vira líder provisório do Gaúcho
--  Мбапе влезе от пейката и отново помогна на ПСЖ
--  Incident na konferenciji za medije, Jusup se raspravljao s novinarom i zaustavljao Božića da priča o reprezentaciji
+-  Man dies after fall from harbourside apartment
+-  Long COVID is highest in these states, says new CDC report - Fox News
+-  러시아, 나발니 추모 시위자 전국서 359명 체포
+-  “美 인하 깜빡이는 아직”…2월 금통위 9회 연속 동결에 무게
+-  Komşu'da korkunç aile katliamı: 12 akrabasını öldürdü!
+-  MLS to lock out referees
+-  Long COVID is highest in these states, says new CDC report - Fox News
+-  Mais de 1,6 mil bebês prematuros foram beneficiados com banco de leite no Mato Grosso
+-  George Santos is suing Jimmy Kimmel for buying Cameos from him under false pretenses
+-  I lived in California for 26 years but am moving to Texas because all the rules and regulations made it tough to run my business
