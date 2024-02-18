@@ -1,11 +1,11 @@
 # Latest News
--  Σιδηρόδρομος: Ο βόρειος διάδρομος και η… Ουκρανία – Αλλαγή πλεύσης για το τμήμα Αλεξανδρούπολη – Ορμένιο, «πύλη» ο λιμένας
--  Des boulangeries de l'Yonne à la télé, contre-attaque politique, incident au tribunal... Les indiscrétions de la semaine
--  Минута мълчание в памет на Васил Левски преди Етър - ЦСКА 1948
--  Tennis, torneo di Rotterdam: Sinner vola in finale e diventa numero 3 al mondo
--  Kritik aus Athen: Modeschau im Parthenon-Saal respektlos
--  Sprūds: Ukrainas uzvara ir galvenais priekšnoteikums Eiropas drošībai
--  [내일 날씨] 전국에 비…화요일 기온 ‘뚝’
--  Apple wirft PWAs aus Sicherheitsgründen aus dem App Store
--  Calcio: Juve; escluse lesioni, ma Danilo si ferma 10-15 giorni
--  Man fearlessly grabs huge cobra from well with bare hands, video goes viral
+-  Når vi bryder med vores forældre, handler det ofte om vores partner
+-  Nordhorn / Ems-Vechte-Kanal: Leichenteile in Kanal entdeckt
+-  60. Münchner Sicherheitskonferenz: Selenskyj lädt Trump an die ukrainische Front ein
+-  Psihoterapija u Hrvatskoj je još uvijek slabo dostupna
+-  Sicherheitskonferenz in München: Speed-Dating als Leistungssport der Diplomatie
+-  Турски клуб стана част от семейството на City Football Group
+-  Domovinski pokret: Zakupci na osječkoj Tržnici ne bi trebali o svom trošku uređivati prostor
+-  Norveške tajne službe: Rusija pobjeđuje u Ukrajini
+-  Minik Erva hayata tutunamadı
+-  Khloé Kardashian befürwortet Kims neue Romanze mit Odell!
