@@ -1,11 +1,11 @@
 # Latest News
--  ¿Es Juan Espadas catalán?
--  Örebro Hockey besegrade på hemmaplan av Björklöven
--  Uzbekistan's industrial output per capita increases
--  Qədim Misirdə ilk mumiyaların SİRRİ AÇILDI
--  古橋先制ヘッドも終了間際に被弾
--  古橋先制ヘッドも終了間際に被弾
--  Leverkusen vence Heidenheim e segue firme na liderança do Alemão
--  «أطلس الفطريات الطبية» .. إسهام عماني بارز في علم الجراثيم
--  Promet manji 30 odsto
--  Evadono dal carcere scavalcando il muro di cinta: ricerche con elicotteri
+-  iPhone owners baffled after finding mystery ‘P’ that appears on their chats
+-  Video Resurfaces of Unbelievable Moment Meghan Markle Walked in Front of Queen Elizabeth During Engagement
+-  Maja Šuput prisjetila se anegdote s Grdovićem: 'Stavio je masku na glavu i trčao, pa su nas istjerali'
+-  Kulturdirektoratet og kvensk språk og kultur
+-  מחצית ראשונה: בני סכנין - בית"ר ירושלים 0:0
+-  Eldurvult családi vita Iránban: Kalasnyikovval lőtt le 12 rokont egy férfi
+-  PSG : Le Real Madrid a un plan, jackpot pour Mbappé ?
+-  Sedang Berlangsung, Link Streaming Manchester City vs Chelsea, Minggu 18 Februari 2024
+-  Comment a été inventé le Walkman ? L'incroyable histoire de sa création, grâce à un PDG golfeur
+-  No. 7 Oregon State Beavers vs. Minnesota Golden Gophers: Preview, starting lineup, how to watch college baseball game
