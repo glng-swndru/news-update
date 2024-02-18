@@ -1,11 +1,11 @@
 # Latest News
--  Four Cheltenham bars and restaurants earn five-star food hygiene ratings
--  Monty Python's latest spat, Jon Stewart's big return, and more from the week in news
--  Weekend Business News Roundup February 17, 2024
--  EBASOBIV KASUTAMINE? „Müüja õiendas, et testrid pole mõeldud tasuta terve näo jumestamiseks. Kuid ma lihtsalt katsetasin mitme toote sobivust ühel ajal!“
--  Stand-up is far from down and out after pandemic knocks
--  Occupational therapist Sarah on why new therapeutic gardens will make such a difference
--  笹やぶ伐採の93歳 10m転落し死亡
--  Comer esta fruta puede mejorar tu salud mental en solo cuatro días, ¿se recomienda comerla con la cáscara como lo hace la actriz Jenna Ortega?
--  Những quân đội hùng mạnh nhất thế giới
--  Ο γάμος της συμφοράς - Έπιασε την πεθερά να θηλάζει... τον γαμπρό
+-  The new £5.8 bn train line that's given huge country its first 217mph bullet train
+-  Į ligonines plūsta neaiškiomis medžiagomis apsinuodiję vaikai: kokį gydymą taikyti, medikai dažnai nežino
+-  «Авангард» — «Металлург»: видеообзор матча КХЛ
+-  Tausende demonstrieren bei Münchner Sicherheitskonferenz
+-  Dowladda Fedraalka oo si kulul uga hadashay xadgudub Itoobiya kula kacday Wafdiga Madxweyne Xasan Sheekh
+-  Christian Horner, șeful echipei Red Bull, anchetat pentru comportament nepotrivit
+-  Класика за Славия на старта на пролетния дял - Труд
+-  Heidenheim-Bayer Leverkusen, em direto
+-  Boykotlar İsrailli firmaların marka değerini düşürüyor
+-  Cuánto deberá cobrar por hora una niñera en febrero
