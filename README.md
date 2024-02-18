@@ -1,11 +1,11 @@
 # Latest News
--  [뉴스추적] 앞서가는 국힘, 위기 맞은 민주…왜?
--  Love Month Stories 2024: The consequence of a cheating husband
--  'Missing Man Utd's Champions League final broke my heart – I partied until 5am instead'
--  LAS Dolenjska in Bela krajina z novimi organi vodenja ter potrjeno strategijo lokalnega razvoja LAS DBK 2021–2027
--  LAS Dolenjska in Bela krajina z novimi organi vodenja ter potrjeno strategijo lokalnega razvoja LAS DBK 2021–2027
--  Ezeket mindenképpen érdemes megbeszélni magunkkal, mielőtt elektromos autóba ülünk át
--  本堂倒壊の寺で四十九日法要 被災の住職「半歩でも進んでいきたい」
--  Steuererleichterungen für Rückkehrer: Wie Italien den Braindrain stoppen will
--  C'est le moment de profiter des dernières truffes d'hiver
--  L'actualité en images. Les enfants du RPI Joudes-Champagnat ont défilé pour le carnaval
+-  Σιδηρόδρομος: Ο βόρειος διάδρομος και η… Ουκρανία – Αλλαγή πλεύσης για το τμήμα Αλεξανδρούπολη – Ορμένιο, «πύλη» ο λιμένας
+-  Des boulangeries de l'Yonne à la télé, contre-attaque politique, incident au tribunal... Les indiscrétions de la semaine
+-  Минута мълчание в памет на Васил Левски преди Етър - ЦСКА 1948
+-  Tennis, torneo di Rotterdam: Sinner vola in finale e diventa numero 3 al mondo
+-  Kritik aus Athen: Modeschau im Parthenon-Saal respektlos
+-  Sprūds: Ukrainas uzvara ir galvenais priekšnoteikums Eiropas drošībai
+-  [내일 날씨] 전국에 비…화요일 기온 ‘뚝’
+-  Apple wirft PWAs aus Sicherheitsgründen aus dem App Store
+-  Calcio: Juve; escluse lesioni, ma Danilo si ferma 10-15 giorni
+-  Man fearlessly grabs huge cobra from well with bare hands, video goes viral
