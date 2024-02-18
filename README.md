@@ -1,11 +1,11 @@
 # Latest News
--  El príncipe Enrique está dispuesto a desempeñar funciones reales de manera temporal #17Feb
--  OnePlus 12R bio je pogrešno reklamiran, kupci ga mogu vratiti
--  Hrvatska nakon peteraca do svjetske krune
--  Eine neue Unterführung für die Tram am Héienhaff
--  Clermont Foot : sans Virginius ni Rashani, mais avec Konaté, Bela et Andric pour le déplacement à Rennes
--  Pasaulio plaukimo čempionatas: Meilutytė pasirodo pusfinalyje
--  Strage in famiglia: la superstite trovata con cellulari vittime
--  My boyfriend is 27 years older than me. I kept our age-gap relationship a secret at first, but I regret not being open about it sooner.
--  Milli judocu Ejder Toktay Azerbaycan'da bronz madalya kazandı
--  Aydın'da açan badem çiçekleri böyle görüntülendi
+-  Major tech companies sign agreement to combat AI's use in election interference
+-  Цветлин Йовчев: Депутатите трябва да провеждат разследвания
+-  Intento de homicidio al alcalde Arcadio Rosa
+-  Svađa na „X-u“ poslanika PES-a i bivšeg Milovog kuma: Knežević optužio Lakovića da je pet tona kokaina prošlo kroz Crnu Goru kad je bio šef odjela za narkotike!
+-  Major tech companies sign agreement to combat AI's use in election interference
+-  "العربية" عن الخارجية الأميركية: بلينكن أكد للرئيس الإسرائيلي عدم دعم واشنطن لعملية عسكرية في رفح
+-  Tour des Alpes-Maritimes: le Britannique Ethan Vernon s’impose à Antibes
+-  Tour des Alpes-Maritimes: le Britannique Ethan Vernon s’impose à Antibes
+-  Йосиф Миладинов е осми в света на 100 метра бътерфлай
+-  Vali Yavuz, Başiskele’de gönül kapılarını araladı
