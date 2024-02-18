@@ -1,11 +1,11 @@
 # Latest News
--  Crystal Palace’s ‘secret’ Oliver Glasner meeting gatecrashed by EFL team as Hodgson offers to take charge at Everton
--  Το Ιράν παρουσίασε δύο νέα συστήματα αντιαεροπορικής άμυνας
--  Gwen Stefani says she has to relearn No Doubt songs ahead of ‘amazing’ Coachella reunion
--  सांसद ने जयश्री विघा गांव में किया सड़क का उद्घाटन
--  Kylian Mbappe hands Man City huge transfer boost amid Erling Haaland contract fears
--  ANELI VRIŠTI NA SAV GLAS! Desio se haos u Eliti, Janjuš pobesneo: Čuješ li ti mene?
--  Legendary chairman who saved Man City recalls darkest hour in which club nearly "died"
--  QNB: تزايد جاذبية الذهب الاستثمارية
--  वाहन से लाई गई तीन लाख रुपए की शराब जब्त की गई
--  लोन नहीं चुकाने वालों के खिलाफ छापेमारी
+-  В окупованому Мелітополі пролунав вибух під час дитячих змагань
+-  This delicious better-for-you bread is easy to bake at home
+-  Postecoglou: Ég er ekki galdramaður
+-  «Общественное»: в Харьковской области прогремел взрыв
+-  Saka tiếp tục thăng hoa, Arsenal 'tiễn' Burnley trở lại Championship gần thêm một đoạn
+-  This delicious better-for-you bread is easy to bake at home
+-  Obradović: Zbog čega neiskusne sudije sude derbi? VIDEO
+-  Irene Schouten grijpt wereldtitel op de massastart in Calgary
+-  Kabar Buruk! Liverpool Dilanda Badai Cedera, Kondisi Diogo Jota Paling Parah
+-  Tendrá Mazatlán icónica escultura de venado de 12 metros de altura en la glorieta de Atlántico y Carlos Canseco
