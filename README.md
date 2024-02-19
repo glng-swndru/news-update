@@ -1,11 +1,11 @@
 # Latest News
--  САЩ нанесоха удари по хусите в Йемен
--  המשטרה על הירי באזור כרמית בנגב: מקור הירי בלקייה, הרקע - סכסוך פלילי
--  Panchkula News: शिक्षा विभाग में अब ऑनलाइन भरी जाएगी वार्षिक गोपनीय रिपोर्ट
--  3,652 Indonesians in Qatar voted in overseas general election
--  İstanbul'da yolu kapatıp halay çektiler! Sürücüler tepki gösterdi
--  Rugby - Fédérale 2. Le Creusot s’en sort in extremis face à Pontarlier
--  年収が低い会社ランキング2023最新版【九州＆沖縄地方・100社完全版】JR九州、イオン九州は何位？ - ニッポンなんでもランキング！
--  年収が低い会社ランキング2023最新版【九州&沖縄地方・トップ5】4位は井筒屋、1・2位は200万円台 - ニッポンなんでもランキング！
--  Гарантії безпеки: Зеленський розповів про успіхи
--  'BBB 24': Vanessa Lopes fala sobre 'quadro psicótico agudo' em entrevista ao 'Fantástico'
+-  AmCham Sri Lanka unlocks 2024
+-  KAKAV POTEZ! Luka Jović je ovo uradio rivalu u Seriji A i odmah dobio crveni karton (VIDEO)
+-  هيئة التجارة البحرية البريطانية: تلقينا تقريراً عن حادث على بعد 35 ميلاً بحرياً جنوب مدينة المخا اليمنية في البحر الأحمر
+-  Jahrestag Hanau: Çetin Gültekin über seinen ermordeten Bruder: "Ich habe Gökhan am Grab versprochen, ihn unsterblich zu machen"
+-  Kontrolden çıkan otomobil takla attı! 4 kişi yaralandı
+-  Baftas 2024 speeches: UK film investment, ongoing conflicts and “Oppenhomies”
+-  シンガポール選手が叫んで反則に…日本ファンも「謎の声」と注目
+-  Nema mesta za Janisa u Jokićevom timu VIDEO
+-  Ancelotti nahvalio Modrića: Bio je kao onaj Luka kakav je uvijek
+-  Харри проиграл аргентинцу Диасу Акосте в финале турнира в Буэнос-Айресе
