@@ -1,11 +1,11 @@
 # Latest News
--  Century of bowling club ‘pretty cool’
--  Kritik von Hebammen: In Baden-Württemberg gibt es mehr Geburten per Kaiserschnitt
--  Quite the lineup ...
--  Convocati Juventus Next Gen per la Lucchese: la lista completa di Brambilla
--  Parametr TBW. Czym jest i co oznacza?
--  El ser humano utiliza varias regiones cerebrales para procesar melodías musicales
--  Stroppy sheep puts end to title dreams
--  Darba nedēļas sākumā debesis atkal aizklās mākoņi
--  Last year’s runner-up goes one better
--  그룹 AOA 출신 유나, 작곡가 강정훈과 결혼 [연예뉴스 HOT]
+-  Cyber-Spionage: Sicherheitsbehörden legen russisches Botnetz lahm
+-  Баскетболисти от НБА се псуват преди мача на звездите
+-  Watch: Rohit Sharma sends back Jaiswal, Sarfaraz to crease amid declaration confusion in Rajkot Test, video goes viral
+-  Nem akartak Orbánék szóba állni az amerikai szenátorokkal
+-  DUDE, WAT?! LOL! Biden Embarrasses Himself AGAIN Babbling at Republicans for 'Not Funding NATO' (Watch)
+-  Amikor erőállapota felől érdeklődtem, elmosolyodott
+-  "In due minuti...", poi la foto sul cellulare: Montaruli imbarazza così Majorino
+-  Real Madrid : Ancelotti hausse le ton à propos du feuilleton Mbappé
+-  Волонтер из Донецка Андрей Лысенко: После взятия Авдеевки у нас стало намного тише
+-  Baden-Württemberg: Rund 150 ethnisch und religiös diskriminierende Vorfälle an Schulen
