@@ -1,11 +1,11 @@
 # Latest News
--  Mukesh Ambani’s Jio Studios, Riteish Deshmukh’s Mumbai Film Company Set Young Shivaji Biopic (EXCLUSIVE)
--  [속보]정부, 전체 전공의에 '진료유지명령'…오늘 현장점검
--  Joy to see people of different races celebrating Chinese New Year, says Dr Wee
--  長期債、利下げ回数少なくても買うべき理由 - WSJ PickUp
--  PJ investiga fogo que destruiu autocarro e carros em Loulé
--  Jaya Ekadashi 2024: जया एकादशी पर जरूर करें ये खास उपाय, जीवन में मिलेगी खूब तरक्की!
--  Bancária suspeita de burla milionária esconde mobília em garagem secreta
--  Alan Walker Kaget Saat Tahu Raffi Ahmad dan Nagita Slavina Ultah Bareng
--  Clube lamenta morte de ciclista em Aljustrel
--  Jovem esquizofrénico ameaça e rouba mãe em Ponte de Sor
+-  Khẩn trương khắc phục hiện trường tai nạn trên cầu Sài Gòn
+-  Bakan Yerlikaya İliç’te maden faciasındaki son durumu açıkladı. ‘Toprağın tekrar kayma riski var’
+-  교육 전문 전자책 플랫폼 SCONN, 애플 앱스토어 인기 1위 올라
+-  中 불경기 맞나? 춘제 관광 내수 117조원 폭발
+-  BEYOND LOCAL: Air Canada ramp-up slows as Canadians remain eager to fly
+-  현대차 월드랠리팀, 2024 WRC 스웨덴 랠리 우승
+-  Shivaji Maharaj Jayanti 2024 Wishes: हिंदुओं की शान, मराठा साम्राज्य का मान..शिवाजी महाराज की जयंती पर भेजें ये शुभकामनाएं
+-  Mua bao nhiêu vàng ngày vía Thần Tài là đủ? Nếu muốn mua nhiều thì nên mua vàng gì?
+-  Survey Reveals Overwhelming Support For Eden Park Hosting More Concerts
+-  เตือนข่าวปลอม สัมผัสสารกันบูดในปลาทูนึ่งจะเป็น "มะเร็งผิวหนัง" เป็นข้อมูลเท็จ
