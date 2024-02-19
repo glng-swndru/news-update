@@ -1,11 +1,11 @@
 # Latest News
--  ‘He has to play’: Erik ten Hag says £31m Man Utd player simply must be picked, but there is a problem
--  Nema radnika. Samo u trgovini nedostaje ih 10 tisuća. Vlasnik dućana: 'Ne mogu pokriti smjenu'
--  Márcia Soares arrasa com decote arrojado e sem Francisco Monteiro
--  Mt Eliza: ‘Pelican’ estate with luxury car showroom by the pool set to rev up the market
--  У Counter-Strike 2 и Minecraft появился конкурент — как в него поиграть
--  Ukrajina se přibližuje goebbelsovské „totální válce“. Docent Valenčík ke korupci a výměnám velení
--  'Hamrai dosti Hindu College se shuru hui'
--  Dobro raspoloženi Princ William se pojavio na dodjeli nagrada BAFTA: Ovaj put je sam, bez Kate
--  Não recue e encontre ‘PARCIAL’ neste caça-palavras em apenas 13 segundos
--  Empresário é assassinado enquanto comia em um restaurante de luxo
+-  2 மணிநேரம் தாமதமாகப் புறப்பட்ட சேலம் ரயில்: பயணிகள் அவதி
+-  Murat Kurum: ''Elle yaptığınız kalp işaretiyle bu hizmetler yapılmaz''
+-  Πανελλήνιο κλειστού στίβου: Ανετα πρώτος ο Τεντόγλου με 8,26μ - Δείτε βίντεο
+-  Mahendragarh-Narnaul News: ब्लैक एंड व्हाइट क्लब मेरठ और बाबा रूपादास क्रिकेट एकेडमी क्वार्टर फाइनल में
+-  Azamgarh News: साहित्यकार डॉ कन्हैया सिंह को कुंवर मिर्जा फ्रेंडशिप अवॉर्ड
+-  Що відбудеться з організмом, якщо регулярно їсти капусту
+-  Rain pushes Daytona 500 to Monday in first outright postponement since 2012
+-  Forsterová triumfovala na 60 m prek.: Nie som spokojná
+-  ¿Quiénes fueron los ganadores de cada categoría de los premios Bafta? Mirá la lista entera
+-  Mahendragarh-Narnaul News: 108 कुंडीय गायत्री महायज्ञ में श्रद्धालुओं ने डाली आहुति
