@@ -1,11 +1,11 @@
 # Latest News
--  Two boys charged with murder of Darrian Williams
--  Four people hit by lightning, houses set alight, flood rescues as powerful storm sweeps across Sydney - ABC News
--  «C’est terminé» : L’annonce qui met le feu à l’OM
--  Triangle raises $5m for projects
--  Photo – France FIFA World Cup Winner Celebrates Inter Milan Serie A Win Vs Salernitana
--  Từ phim Mai của Trấn Thành: Gia đình không hạnh phúc "hại" cuộc đời con thế nào?
--  Araç sahipleri dikkat! Zorunlu trafik sigortasında yeni dönem bugün başladı
--  Ovacijomis sutiktas Lukošiūnas – apie vaidmenį „Žalgiryje“ ir Trinchieri išskirtinumą
--  Rebondissements dans le dossier du chemin des Treize-Dames à Cagnes: un tracé plus ancien pourrait chambouler le projet de réhabilitation
--  Banco Santander: 5.538 millones de euros en dividendos y recompra de acciones. Fechas e importe del cupón
+-  Kommunernes udgifter til Microsoft næsten fordoblet på seks år: Betalte halv milliard kroner i 2023
+-  TÜİK, 2022 yılına ilişkin "hane halkı nihai enerji tüketim" verilerini açıkladı
+-  ¿Quiénes cobran hoy de ANSES? Cronograma de pago de Jubilaciones, Asignaciones, Embarazo, AUH y AFH
+-  Dieci carri e sei gruppi mascherati ad animare il carnevale di Castiglione delle Stiviere
+-  Hospital com atendimento para pessoas com albinismo
+-  칠리즈, K리그와 파트너십…"웹3 활용해 팬덤 활동 지원"
+-  Estas son las gasolineras más baratas hoy en Córdoba
+-  BAL'da tek gülen Manisa takımı Yunusemre Belediyespor oldu
+-  Гомельчанин отравился угарным газом в своем гараже
+-  Labor hat Bodenprobe chemisch geprüft: Bagger-Pause für Frohlinder Mehrfamilienhäuser beendet
