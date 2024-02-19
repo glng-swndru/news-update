@@ -1,11 +1,11 @@
 # Latest News
--  Gelap, Dingin, dan Menakjubkan! 15 Fakta Unik tentang Awan Oort, Tempat Asal Komet yang Tidak Terduga
--  الريال يتعادل مع رايو فايكانو
--  "Выходка" фон дер Ляйен против России вызвала ярость во Франции
--  Até o chocolate vai ficar mais caro
--  એરાઉન્ડ ધ માર્કેટ .
--  Nhiều đứa trẻ tương lai mù mịt không phải là bởi IQ hay EQ thấp mà do sự “giả tạo” này của cha mẹ
--  رسالة دكتوراه تدعو إلى نموذج عربي لقياس القدرات السيبرانية
--  고현정 “꼭 원 톱 같은 거 아니어도 돼요”
--  La clave del éxito laboral según Bill Gates: cuál es su técnica para mantener la concentración
--  Wyndham to celebrate women and girls
+-  김창완, ‘아침창’ 23년 만에 하차…러브FM으로 옮긴다 [공식]
+-  Deep learning shines a new light on Parkinson's detection through the eye
+-  Etapa do Circuito Brasileiro de Vôlei de Praia começa nesta semana
+-  Myrtleford signs ex-Brisbane-listed excitement machine as 'home' player
+-  Ejecutan a hombre en restaurante de hotel en San Pedro, Nuevo León
+-  البحرية البريطانية تتحدث عن وقوع حادث جنوبي المخا
+-  Cunucu Aruba Dushi Tera ta recicla carton cah’i webo
+-  11 Caleg DPR RI Dapil Sulut Peraih Suara Terbanyak Sementara, Hillary Teratas, Tatong Salip Felly
+-  Jessie James Decker gives birth to a baby boy! Singer welcomes her fourth child with husband Eric Decker
+-  प्रजातन्त्रको विकल्प उन्नत प्रजातन्त्र
