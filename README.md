@@ -1,11 +1,11 @@
 # Latest News
--  시민단체 “늘봄학교, 시작도 안해…교사·시민 한마음으로 성공·안착해야”
--  3rd Test: Jaiswal, Jadeja shine as India register record victory over England
--  Milli lazer silahı yerli yeteneklerle daha da gelişecek
--  정부 “생명을 볼모 삼아선 안 돼”…의협 “처벌 땐 대재앙”
--  В "Раубичах" завершился финал республиканских соревнований по биатлону "Снежный снайпер"
--  Sci: Paris torna sul podio in SuperG 'cercavo questo risultato'
--  Lazio gana 1 a 0 en el estadio Stadio Olimpico
--  433 nüfuslu köyün muhtar adayından iş makinesi ve kamyon vaadi
--  60. Münchner Sicherheitskonferenz: „Taurus“ und eine Fronteinladung an Trump
--  Van ve Hakkari'de 25 yerleşim yerine ulaşım sağlanamıyor
+-  Trampov govor trese Ameriku: Postali smo zemlja Trećeg sveta
+-  Ailesi Başkan Adayı Ertemur'u Pamukkale'ye emanet etti
+-  Байден совсем заговаривается: перепутал Украину с НАТО
+-  Autor krimića o trgovini kokainom u kojoj Šibenik glumi Split: kriminal je gospodarska grana u usponu
+-  Kolejny list z Watykanu przeciwko niemieckiej "drodze synodalnej"
+-  U napadima Rusije na Ukrajinu najmanje tri osobe poginule
+-  ほっかいどう大運動会 市民ら１万人が運動楽しむ 札幌ドーム
+-  Autor krimića o trgovini kokainom koji se snimao u Šibeniku: kriminal je gospodarska grana u usponu, a serije društveni romani 21. stoljeća
+-  Ecco gli smartphone e tablet Samsung che riceveranno Android 15
+-  Две жени загинаха при пожар в старчески дом в Мадрид
