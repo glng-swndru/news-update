@@ -1,11 +1,11 @@
 # Latest News
--  Stock Market on Feb 19: Sensex up 100 points, Nifty above 22,000 as Bharti Airtel and ITC drive gains
--  Soha többet nem dolgozik együtt a Barátok közt Magdi anyusát és Vili bácsiját alakító színészpáros
--  Sigma Run gives ‘over 100 million reasons to celebrate’
--  Miss Tahiti, dans les coulisses des préparatifs
--  Frosinone-Roma 0-3, le pagelle: Svilar un muro, Paredes un gigante. Soulé in ombra
--  중국 춘제 연휴 ‘반짝 특수’로 그치나…1인당 지출 감소, 소비 위축 여전
--  James Blake Siap Tambah Kemeriahan Joyland Festival Bali 2024
--  سعود بن هلال يستعرض مع هيئة البيئة مبادرة "مسقط الخضراء"
--  عُمان تشارك في اجتماع وكلاء السياحة بـ"دول التعاون"
--  Airstrike kills several al-Shabab militants in Lower Shabelle region
+-  Проф. Христо Хинков сигурен, че следващият здравен министър няма да е милостив към "Пирогов"
+-  Het weer van vandaag: droge ochtend en een natte middag
+-  Ehrenaufgabe für Designer aus Stuttgart: Norwegens Kronprinz erhält ein Prachtbuch von Stuttgarter Designern
+-  Evolving EU-Africa relations
+-  Nu är systrarna sjösatta – häng med på Finncanopus jungfrufärd
+-  健康網》腸病毒當心釀脫甲症！ 醫：避免泡水、外力碰撞
+-  Benefici della rucola per la salute, più ricca di vitamina C delle arance
+-  Einfacher Zugang zu innovativen Technologien: FabLab in Wattens wird auf neue Beine gestellt
+-  Esselunga teme per i subappalti
+-  "Verletzend": Julia Roberts war entsetzt über Hass im Netz
