@@ -1,11 +1,11 @@
 # Latest News
--  Where are the 2024 Baftas being held?
--  Where are the Baftas held?
--  Тръмп пуска на пазара златни маратонки. Колко струват?
--  Derde preektocht in Fryslân, dit keer in Dokkum en omgeving
--  Where are the 2024 Baftas being held?
--  Pedijatrica za Net.hr otkrila kako pravilno sniziti temperaturu kod djece
--  "VIŠE NIŠTA NE PLANIRAM, OSTAJE SAMO JEDNO..." Potresna poruka oca poginulog mladića koji je poginuo sa devojkom kod Vrdnika
--  OGLASIO SE MINISTAR Habijan pojasnio što donosi novi paket mjera
--  Gorivo budućnosti: Slavni MIT napravio motocikl na hidrogen (FOTO, VIDEO)
--  বুন্দেসলিগায় মাঠে ধোঁয়া বোমা, টেনিস বল, চকলেট ও মার্বেল ছুড়ে দর্শকদের প্রতিবাদ
+-  Resistência de Navalny ao Kremlin tinha o apoio incondicional de sua esposa
+-  Sergej Lavrov že spet v Havani
+-  Сценарият "Западна Германия" ли е бъдещето на Украйна
+-  Sergej Lavrov že spet v Havani
+-  Como recuperar conversaciones de Whatsapp perdidas
+-  Reacție rară a președintelui prorus al Serbiei, după moartea lui Navalnîi: ”Îngrozit”. ”Ar putea afecta relațiile cu Rusia”
+-  Симоньян призвала не стесняться слова «русский»
+-  Blijedi Dinamo se provukao do pobjede, Nevistić obranio penal pa skinuo zicer
+-  Peru pavilion opened at Expo 2023 Doha
+-  SUPERLIGA SRBIJE: Radnički i TSC odbranili domaći teren, Radnik u sve težoj situaciji
