@@ -1,11 +1,11 @@
 # Latest News
--  غانتس وغالانت يهاجمان نتنياهو: لقد تجاوزت المؤسسة الأمنية
--  파주서 택시가 중앙분리대 들이받아…70대 기사 사망
--  “교실밖 문제 학생도 문제네”…수업방해 분리조치 교사간 ‘갈등’ 우려
--  Những lưu ý quan trọng khi mua vàng ngày vía Thần Tài
--  터널 공사 중 발견한 신비함…영월 분덕재동굴, 천연기념물 됐다
--  Inland sea swamps outback as SEQ set for 34C heat blast, severe storms
--  Alexander Volkanovski urged to make move for family after crushing loss at UFC 298
--  대전 수련병원 전공의 줄줄이 사직…"일부 출근 안해"
--  Legislating against Mercenarism in Nigeria’s Security Architecture
--  Javier Milei viaja este lunes a Corrientes en medio de la tensión con los gobernadores
+-  정부, 확률 공개 해설서 배포…“직·간접적 유상 구매 아이템 공개 의무화“
+-  Kuda-kuda Prabowo-Gibran Rangkul Rival
+-  Irritated Billie Eilish caught gossiping with Kylie Minogue - seems to make 'catty' remark
+-  Diễn biến lạ trong sáng sớm ngày vía Thần Tài 2024 trên 'phố vàng' Hà Nội
+-  早めのツボ押しで症状軽減？ 花粉症におすすめのツボ3選 - ウェザーニュース
+-  [정치쇼] 김준우 "민주당과 지역구 연대, 심상정 구하기 아니다"
+-  Jadwal Acara NET TV Hari ini Senin 19 Februari 2024: Clean With Passion For Now, Rumah Hantu Ampera
+-  What’s behind Nothing CEO Carl Pei’s ‘Bhai mode’ in India
+-  ‘മല്ലികാ വസന്ത’ത്തിന്റെ 50 വർഷങ്ങൾ; മല്ലിക സുകുമാരന് തലസ്ഥാനത്തിന്റെ സ്നേഹാദരം
+-  [편의점에서는] GS25 ‘혜자브랜드’ 누적 2800만개 판매 外 CU
