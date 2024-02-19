@@ -1,11 +1,11 @@
 # Latest News
--  AmCham Sri Lanka unlocks 2024
--  KAKAV POTEZ! Luka Jović je ovo uradio rivalu u Seriji A i odmah dobio crveni karton (VIDEO)
--  هيئة التجارة البحرية البريطانية: تلقينا تقريراً عن حادث على بعد 35 ميلاً بحرياً جنوب مدينة المخا اليمنية في البحر الأحمر
--  Jahrestag Hanau: Çetin Gültekin über seinen ermordeten Bruder: "Ich habe Gökhan am Grab versprochen, ihn unsterblich zu machen"
--  Kontrolden çıkan otomobil takla attı! 4 kişi yaralandı
--  Baftas 2024 speeches: UK film investment, ongoing conflicts and “Oppenhomies”
--  シンガポール選手が叫んで反則に…日本ファンも「謎の声」と注目
--  Nema mesta za Janisa u Jokićevom timu VIDEO
--  Ancelotti nahvalio Modrića: Bio je kao onaj Luka kakav je uvijek
--  Харри проиграл аргентинцу Диасу Акосте в финале турнира в Буэнос-Айресе
+-  中企爛尾樓禍延海外 恐掀外溢效應
+-  爭立院召委 藍綠都不找白合作
+-  조국 "이준석 신당, 尹정권 종식 동조하면 손잡을 수 있다"
+-  半年下架近5萬則 假投資廣告 刑事局：臉書占9成
+-  رسانه های صهیونیستی : ساکنان شمال اسراییل نمی خواهند به خانه هایشان بازگردند
+-  Man Utd transfer news LIVE: Dan Ashworth ‘will cost United more than £20m’, Shaw injury latest, De Gea EXCLUSIVE
+-  [주간IPO] 케이웨더·이에이트·코셈 신규 상장
+-  高空氣球擾台 國防部：非由共艦施放
+-  周董朝聖泰勒絲 JJ幫腔紅髮艾德-昆凌喜會天后爸 林俊傑逐句教天王唱中文歌
+-  網友私訊送暖 林千又感動承諾改進
