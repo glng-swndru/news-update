@@ -1,11 +1,11 @@
 # Latest News
--  Drake, 50 Cent among 5 rappers registered to vote at same Texas home in apparent prank
--  January signings Calum Kavanagh and Sam Walker earn Bradford City boss Graham Alexander's praise
--  1. liga: Slavia snížila náskok Sparty na jediný bod, Zlín využil přesilovku
--  NASA, "Mars habitatı" deneyleri için başvuru açtı! İşte şartlar...
--  Без следа от “вирусните” $10 млрд. биткойни, изчезнали през 2017 г.
--  ANELI PRIZNALA DA JE JANJUŠ PODSEĆA NA ASMINA Napravila haos u Beloj kući, bivši košarkaš se pravda na sve načine
--  Live: Φροζινόνε - Ρόμα
--  ‘Always a reason to buy’: Young shoppers keep cosmetics hot despite inflation
--  Za konec prvenstva izjemen nastop Jakova Faka
--  Garmin vs. Elonga. Proč hodinky ukazují něco jiného než specializované zařízení. Jáchyme…?
+-  „Ajungi să cumperi lucruri de care nu ai nevoie”. Sfaturile specialiștilor pentru „vânătorii” de reduceri
+-  Vereadores analisam veto de projeto que antecipa emendas em ano eleitoral
+-  বিছানায় বসে খাবার খাওয়া ঠিক নয় যেসব কারণে
+-  Carsten Linnemann: CDU-Generalsekretär bietet FDP Koalition an
+-  Prochainement à Lieurey : un spectacle familial sur les aventures de Pinocchio
+-  VIDEO Modrić je ovim potezom raspametio navijače! Suparnika izvrtio pa mu 'prodao tunel'
+-  Una pareja murió al chocar un camión y un Jeep en el ingreso a Gualeguay
+-  Carro con pandoro e uovo di Pasqua: Ferragni "pensati..." | VIDEO
+-  Saadet Partisi, Siirt Belediye Başkan Adayını açıkladı!
+-  Mediji: Otkriveno gdje je tijelo Navaljnog, pronađeni tragovi modrica
