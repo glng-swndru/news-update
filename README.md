@@ -1,11 +1,11 @@
 # Latest News
--  Fahren lernen in NRW: So viel kostet ein Autoführerschein 2024
--  Primer día en 'Pasapalabra' y se van con el bote: "Extraordinario"
--  [속보] 與 공관위, 최재형·윤희숙·박수영·김성원 등 13명 단수추천
--  So süß: Michael J. Fox und seine Frau bezaubern bei BAFTAs
--  Penghantar makanan didakwa bakar kereta polis bantuan
--  ביד חזקה ובעוצמה אדיר: פברואר חם עם אירועי הגמר בכדורעף ובכדוריד
--  Energie: Worauf es bei Förderung und Einbau einer Wärmepumpe ankommt
--  Điều gì xảy ra khi phụ nữ thiếu ngủ?
--  Власти Ростовской области опровергли работу ПВО в регионе
--  Közel tíz éve nem használhatnak telefont a diákok egy veszprémi iskolában
+-  Thủ tướng Estonia lên tiếng về lệnh truy nã của Nga
+-  ZSE: Investitori će se pozicionirati pred objavu poslovnih rezultata kompanija
+-  '사위 사랑' 정다은母, 딸에 "너가 심했다…왜 그랬냐"
+-  Wielki rząd Tuska. 112 ministrów w 19 ministerstwach, w marcu powstanie kolejne [INFOGRAFIKA]
+-  El Consell defensarà al Parlament Europeu la protecció de la tela de llengües
+-  Prof. Dr. Avcı: Diplomamı polise kendim verdim
+-  Malatya'da 4,3 büyüklüğünde deprem
+-  Inter vs. Atlético Madrid en vivo, Champions League: cuándo juegan, a qué hora y en qué canal transmiten
+-  Prije tri godine nas je napustio Đorđe Balašević, a ovo su neki od njegovih najljepših citata
+-  H σούπερ κομψή εμφάνιση της βασίλισσας Λετίσια με skinny pants και slingback γόβες
