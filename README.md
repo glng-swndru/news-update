@@ -1,11 +1,11 @@
 # Latest News
--  Пашинян: Армения не подкрепя Русия за войната в Украйна
--  Dėl traumos rinktinėje nežaisiantis Birutis – apie Sabonio juokelius ir pergalės šventimą
--  Mehmet Sevigen'den tv100'de flaş açıklama: CHP'de 81 ilde sandığa gitmeme kampanyası var
--  Αλλάζει ο καιρός τις επόμενες ώρες: Έρχεται συννεφιά και τοπικές βροχές
--  Weekly Money FM Podcasts: Should you trim equity exposure?
--  Murders of The Civil Rights Era You Must Never Forget
--  LIVE MN - Monza-Milan (4-2): è finita a Monza. Si interrompe a 9 la striscia di risultati utili consecutivi del Milan in campionato
--  Funheitur Óttar Magnús skoraði tvennu - Arnór rekinn útaf
--  미네소타 총격사건, 경찰관 2명 구조대원 1명 피살…용의자도 숨져
--  Serie A, Monza-Milan 4-2: il tabellino del match
+-  Fábio Carille minimiza derrota em casa do Santos e reconhece mérito do Novorizontino
+-  BAFTA 2024: az Oppenheimer nyerte a legtöbb díjat
+-  Big consumer divide: Mass market lags, premium end soars - Times of India
+-  The Big Read: E-commerce layoffs - heyday of online shopping could be over, with consumers on the losing end
+-  Sem erros de arbitragem, Vasco se impõe em mais um clássico
+-  Pedro Llompart triunfa con el Nápoles en la Copa de Italia
+-  Минюст обяжет иноагентов указывать в отчетности ОГРН и доменное имя
+-  มะกันร่วมพิสูจน์เรือหลวงสุโขทัยอับปาง ส่งเรือ-ทีมจากฮาวาย เริ่มปฏิบัติการ 22 ก.พ.
+-  Ministarstvo: Žalimo zbog štrajka prosvjetara, omogućiti djeci pravo na redovno školovanje
+-  Betis uoči Dinama doživio još jedno veliko razočaranje
