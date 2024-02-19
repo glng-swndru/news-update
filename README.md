@@ -1,11 +1,11 @@
 # Latest News
--  Resistência de Navalny ao Kremlin tinha o apoio incondicional de sua esposa
--  Sergej Lavrov že spet v Havani
--  Сценарият "Западна Германия" ли е бъдещето на Украйна
--  Sergej Lavrov že spet v Havani
--  Como recuperar conversaciones de Whatsapp perdidas
--  Reacție rară a președintelui prorus al Serbiei, după moartea lui Navalnîi: ”Îngrozit”. ”Ar putea afecta relațiile cu Rusia”
--  Симоньян призвала не стесняться слова «русский»
--  Blijedi Dinamo se provukao do pobjede, Nevistić obranio penal pa skinuo zicer
--  Peru pavilion opened at Expo 2023 Doha
--  SUPERLIGA SRBIJE: Radnički i TSC odbranili domaći teren, Radnik u sve težoj situaciji
+-  Θεοδωρικάκος: Η ΝΔ προχωρά ενωμένη με τις ιδέες και το έργο της
+-  "Манчестър юнайтед" взе труден успех и продължи изкачването си
+-  Se dvěma chybami se těžko něco dohání. Krčmář a Mikyska o posledním závodě
+-  Totalna wojna u rywali Polaków. Mocny cios w trenera. Stanęli po stronie skoczków
+-  Kas senesnio? KGB užverbuoto Alseikos mitas: kaip antitarybinis bėglys okupantus šlovino
+-  Se dvěma chybami se těžko něco dohání. Krčmář a Mikyska o posledním závodě
+-  EN VIVO: San Martín de Tucumán y Ferro, que aprovechó un error defensivo del "santo", empatan en La Ciudadela
+-  Vídeo do sequestro do filho de um comerciante no momento em que fechavam seu comércio
+-  Manchester United piept en kraakt, maar wint weer dankzij dubbelslag Højlund
+-  Debaixo de chuva, Daniela Mercury fecha o Carnaval de SP com homenagem a Zé Celso
