@@ -1,11 +1,11 @@
 # Latest News
--  投げて守って 雪合戦に歓声 札幌・麻生球場
--  PSG : un entraîneur bien connu de L1 affiche une grosse crainte pour Mbappé
--  集合住宅向けＥＶ充電設備 普及へセミナー 札幌市が初開催
--  Senamhi prevé lluvias de fuerte intensidad en la sierra
--  Angelina Mango, sold out a Roma e Napoli, raddoppia le date
--  Newsblog: Tote nach Raketenangriffen in Kramatorsk – Ukraine hofft auf Taurus-Lieferung
--  Lula, 'Africa può diventare un grande granaio per il mondo'
--  Boşanma aşamasındaki eşini boğarak öldürdü, ardından gömdü!
--  Đỉnh cao của sự xa xỉ trong giới siêu giàu: Đi mua hàng tạp hóa cũng phải đẹp sang chảnh?
--  İddiaçılar xarici dillər üzrə fəlsəfə doktoru imtahanı verdilər
+-  Imposto de renda: governo isenta quem ganha até dois salários mínimos
+-  Відступ із Авдіївки: Reuters назвав наслідки окупації міста
+-  Nach Taser 20 Schüsse abgefeuert: Polizisten erschießen mit Fleischerbeil bewaffneten Angreifer in Paris
+-  "المقاومة الإسلامية" أعلنت استهداف ‏تموضع لجنود العدو في مثلث الطيحات
+-  台灣燈會安平藝術燈區假日人潮多 高鐵燈區緊鑼密鼓籌備中
+-  Alioune Tine : « Il est indispensable que Sonko et Diomaye Faye sortent et aillent au Palais discuter avec Macky Sall»
+-  Pakistan: PML-N leader claims Zardari, Shehbaz finalised terms of govt formation
+-  Türkiye Kupası Fenerbahçe'nin: 8. kez gülen taraf oldu!
+-  LEDARE: Tyskland funderar på att skaffa sig kärnvapen
+-  Ngoại binh thăng hoa, CAHN thắng dễ trong trận ra mắt của tân HLV Kiatisak
