@@ -1,11 +1,11 @@
 # Latest News
--  高知が《アニメの聖地》に…賞金最大3000万！ショートアニメ受賞作の発表も「高知アニクリ祭」
--  Nintendo Shares Drop Following Latest Reports Of Switch 2 'Delay'
--  Israel rechaza legitimidad para declarar "ilegal" ocupación Palestina
--  Ráadáskoncerttel duplázik Charlie a BJC-ben
--  Birgitta, 67, är expert på favoritlaget – som hon aldrig sett live
--  Támogatást nyert Kondoros
--  映画『ファイト・クラブ』で着用された90年代の意欲作をオークリーが復刻
--  Τα ζώδια που θα χωρίσουν την εβδομάδα που μόλις ξεκίνησε
--  S’pore’s $1b AI boost will help sustain competitive edge in digital era, say business leaders
--  Etisalat unveils multi-access edge slicing innovation
+-  Pertemuan Surya Paloh dan Jokowi, Pengamat Nilai Sinyal Koalisi
+-  Zieleń przy parafii pw. św. Andrzeja Boboli w Rawiczu tymczasowo znika. "Głównym celem prowadzonych prac jest powrót do stanu pierwotnego" [ZDJĘCIA]
+-  U trenutku kada je Michael J. Fox ustao iz kolica krenule su ovacije, ali i potekle suze
+-  カップヌードル「チリトマト」のスピンオフ。燻製香るとアメリカンに！
+-  Uruguayan orchestra plays concert at Antarctic Artigas Base
+-  A Garota Não recebe prémio José da Ponte, entregue pela Sociedade Portuguesa de Autores
+-  Google анонсировала потенциально хитовую функцию Android
+-  Παναθηναϊκός – ΠΑΟΚ: Ξεκινάει η διάθεση των εισιτηρίων για τη ρεβάνς στο Κύπελλο Ελλάδας
+-  Umrla Snježana Paušek-Baždar, nekadašnja upraviteljica Odsjeka za povijest prirodnih i matematičkih znanosti HAZU
+-  Ковачевич — о желании играть в топ-клубе России: «Кто знает, что будет в будущем?»
