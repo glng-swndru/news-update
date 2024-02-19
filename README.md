@@ -1,11 +1,11 @@
 # Latest News
--  Topuria sitúa a España en lo más alto de la UFC
--  Những 'người hùng' áo vàng trên bãi biển Đà Nẵng
--  "성수동서 AI PC 체험해보세요" 인텔, '코어 울트라' 탑재 노트북 전시
--  内閣支持率22.4％に急落し岸田政権で過去最低 不記載議員は政倫審「説明すべき」9割【24年2月 FNN世論調査】
--  León tiene nuevas pruebas sobre el Grial
--  Vladimir Putin, riding high before Alexei Navalny’s death, now seems to be unstoppable
--  Girl (6) who died nine days after motorway crash named
--  El Madrid levanta su 29º Copa del Rey
--  خنده‌دارترین مسابقه تاریخ المپیک با نقش‌آفرینی ۳ تونسی!
--  Mass trespass on Dartmoor to highlight England’s ‘piecemeal’ right to roam laws - The Guardian
+-  米ＥＶフィスカー、ＮＹ証取が上場廃止警告 株価1ドル割れ続き
+-  Kaisa Metso avasi oman suutariliikkeensä Oksasenkadulle – Vertailimme, kuinka paljon suutaripalvelut maksavat Lappeenrannassa
+-  កម្ពុជា កំពុងសិក្សា ស្ពានវែងជាងគេ ប្រវែងជាង ៣គីឡូម៉ែត្រ
+-  Papua Nuova Guinea, 64 morti in nuove violenze tribali
+-  ３位・岡山駅前高層マンション ２位・水垢離行 １位は…＜週末ランキング 岡山・香川＞
+-  自衛隊 弁当代金キックバック 幹部自衛官自ら“詐欺持ち掛けた”か ほかにも水増し請求を繰り返していたとみて調査
+-  「なぜ保護してくれない」大通駅“地下休憩スペース”でまた騒ぎ 10代の男現行犯逮捕 トラブルになり駅員を突き飛ばす
+-  ＪＲ、雪崩警戒で普通列車６本運休 蘭島―小樽間
+-  وفيات الاثنين .. 19 / 2 / 2024
+-  新賽季將擔任全職一壘手！哈波：球隊要我守哪裡我就去
