@@ -1,11 +1,11 @@
 # Latest News
--  Andrej Mangold und Annika Jung: Der "Ex"-Bachelor möchte Papa werden
--  Andrej Mangold und Annika Jung: Der "Ex"-Bachelor möchte Papa werden
--  Vakava liikenne­onnettomuus Somerolla – kaksi kuoli
--  NESUĐENO POJAČANJE "VEČITIH" GOVORILO O BEOGRADU! Amerikanac otkrio da li su bolji crveno ili crno-beli NAVIJAČI!
--  "Барса" избра заместника на Шави
--  1461 Trabzon Başkanı Hekimoğlu, maçın hakemini tebrik etti!
--  وزير الداخلية يتفقد سير العمل برئاسة مصلحة الهجرة والجوازات والجنسية بعدن
--  Oslabený AC Milán podlehl v italské fotbalové lize 2:4 Monze
--  Andrej Mangold und Annika Jung: Der "Ex"-Bachelor möchte Papa werden
--  Köfteci Yusuf’taki tavan çökme olayının yeni görüntüleri ortaya çıktı
+-  投げて守って 雪合戦に歓声 札幌・麻生球場
+-  PSG : un entraîneur bien connu de L1 affiche une grosse crainte pour Mbappé
+-  集合住宅向けＥＶ充電設備 普及へセミナー 札幌市が初開催
+-  Senamhi prevé lluvias de fuerte intensidad en la sierra
+-  Angelina Mango, sold out a Roma e Napoli, raddoppia le date
+-  Newsblog: Tote nach Raketenangriffen in Kramatorsk – Ukraine hofft auf Taurus-Lieferung
+-  Lula, 'Africa può diventare un grande granaio per il mondo'
+-  Boşanma aşamasındaki eşini boğarak öldürdü, ardından gömdü!
+-  Đỉnh cao của sự xa xỉ trong giới siêu giàu: Đi mua hàng tạp hóa cũng phải đẹp sang chảnh?
+-  İddiaçılar xarici dillər üzrə fəlsəfə doktoru imtahanı verdilər
