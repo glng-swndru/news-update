@@ -1,11 +1,11 @@
 # Latest News
--  政倫審､安倍派幹部と二階氏の出席で与野党攻防 岸田首相の"圧力"も､当事者反発で調整難航 | 窮地の岸田政権 | 東洋経済オンライン
--  Deník se podíval do výroby Zetoru v Líšni. Testují tam novou verzi traktoru
--  QuickCheck: Did two friends escape unscathed after a luxury car caught fire on a highway?
--  Tang vật đang chờ xử lý "biến mất": Bất ngờ kết quả xác minh
--  الأمم المتحدة: العمليات العسكرية ستضع رفح على أعتاب الموت
--  Brandbekämpfung bald in Shorts?
--  BATC 2024: Mental pemain 'goyah' dengan perubahan taktikal
--  "Viņš mani gaidīja... " Hosams Abu Meri paguva atvadīties no tēta
--  Mengenal Epidermolysis Bullosa, Kondisi Medis Langka yang Bikin Kulit Mudah Melepuh dan Rapuh
--  Is Puzhu Based On A True Story? Digging Deep Into The Thriller!
+-  南韓住院醫師今集體請辭罷工！癌末手術「無限延期」 警下令嚴辦
+-  Big miss that could cost Aussies thousands
+-  [ITmedia PC USER] サンコー、LED発光機能を内蔵したゲーミングチェア 実売1万9800円
+-  LeBron James opens up on Lakers future, says Warriors trade rumors 'didn't go far at all' - CBS Sports
+-  Big miss that could cost Aussies thousands
+-  Lo que debes saber sobre “Badlands”, la nueva película de “Predator”
+-  Big miss that could cost Aussies thousands
+-  Singapore outbound flights to cost more from 2026 over green fuel requirements - CNBC
+-  عمل ۲۵۰ میلیون تومانی برای تغییر رنگ چشم! | در این کشور از هر ۳ خانم ایرانی، ۲ نفر کاندیدای تغییر رنگ چشم بوده‌اند
+-  Chuyên gia kinh tế: Mua vàng ngày vía thần tài chỉ làm giàu cho chủ tiệm vàng
