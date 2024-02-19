@@ -1,11 +1,11 @@
 # Latest News
--  'Inilah masa paling sesuai bentang RUU 355'
--  Thaksin appears seriously ill, says official
--  Зеленски: Мюнхенската конференция беше доста ползотворна за Украйна
--  Tepih će biti kao nov! Evo kako da očistite fleke i to sa pićem koje Srbi obožavaju
--  VIDEO Split dobiva novi ulaz u grad: Kreće izgradnja važnog tunela kojeg se čekalo godinama
--  Svi Jokićevi potezi sa Ol-stara VIDEO
--  Xem trực tiếp lễ trao giải Quả bóng Vàng Việt Nam 2023 trên kênh nào, ở đâu?
--  "Uzun ve sağlıklı bir yaşamın ilk adımı düzenli kontrol yaptırmaktır"
--  Araç sahipleri uygulama bugün başladı! Mayıs ayından sonra fiyatlar...
--  Hiba a Fideszes erőtérben – Az oroszokat bírálta az Országgyűlés külügyi bizottságának elnöke: Navalnij halála korunk botránya!
+-  Two boys charged with murder of Darrian Williams
+-  Four people hit by lightning, houses set alight, flood rescues as powerful storm sweeps across Sydney - ABC News
+-  «C’est terminé» : L’annonce qui met le feu à l’OM
+-  Triangle raises $5m for projects
+-  Photo – France FIFA World Cup Winner Celebrates Inter Milan Serie A Win Vs Salernitana
+-  Từ phim Mai của Trấn Thành: Gia đình không hạnh phúc "hại" cuộc đời con thế nào?
+-  Araç sahipleri dikkat! Zorunlu trafik sigortasında yeni dönem bugün başladı
+-  Ovacijomis sutiktas Lukošiūnas – apie vaidmenį „Žalgiryje“ ir Trinchieri išskirtinumą
+-  Rebondissements dans le dossier du chemin des Treize-Dames à Cagnes: un tracé plus ancien pourrait chambouler le projet de réhabilitation
+-  Banco Santander: 5.538 millones de euros en dividendos y recompra de acciones. Fechas e importe del cupón
