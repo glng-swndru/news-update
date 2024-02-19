@@ -1,11 +1,11 @@
 # Latest News
--  Hrvatska kreirala jedno od najvećih iznenađenja na Svjetskom prvenstvu, a upali smo kao zamjena!
--  HSV nimmt Kontakt zu einem Trainer-Kandidaten auf
--  Mueren al menos 26 combatientes y varios testigos en violencia tribal en Papúa Nueva Guinea
--  Traktorok borították fel a menetrendet Prágában
--  Αλεξένι Ναβάλνι: «Δηλητηριάστηκε με νόβιτσοκ, η Ρωσία κρύβει τη σορό του» κατήγγειλε η σύζυγός του
--  강돌고래 떼죽음·빙하 유실…지구의 ‘경고’
--  USA: Joe Biden will Mobilitätswende womöglich hinauszögern
--  Suche nach Blindgängern nahe der B1 in Dortmund: Straße wochenlang gesperrt
--  A Veolia kezébe kerül a gönyűi erőmű
--  Kevesebbre lesznek képesek a franciák
+-  Fue una respuesta a los exabruptos del Presidente, así califica Riva Palacio a la marcha por la democracia
+-  Keychron M6 Wireless review: An exceptional-value gaming mouse
+-  Joe Caruana Curran decides not to contest MFA presidential elections
+-  Alavanque sua vida profissional, o Senac MS te mostra o caminho
+-  ¿Ionescu vs Curry? Pero y qué tal Caitlin Clark, la chica récord
+-  Classifiche a confronto: +16 per l'Inter, -29 per il Napoli! Vola il Bologna di Motta +10. Torino +5
+-  Recept: Na žlico - babičin pasulj
+-  Венци Стефанов: Касабов винаги е бил опозиция на Боби, той никога не е бил послушник - Труд
+-  Neurophth Announces Completion of Patient Enrollment for Opvika® Phase I/II Clinical Trial in the U.S.
+-  Agora entram as máquinas partidárias
