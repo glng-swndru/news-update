@@ -1,11 +1,11 @@
 # Latest News
--  米ＥＶフィスカー、ＮＹ証取が上場廃止警告 株価1ドル割れ続き
--  Kaisa Metso avasi oman suutariliikkeensä Oksasenkadulle – Vertailimme, kuinka paljon suutaripalvelut maksavat Lappeenrannassa
--  កម្ពុជា កំពុងសិក្សា ស្ពានវែងជាងគេ ប្រវែងជាង ៣គីឡូម៉ែត្រ
--  Papua Nuova Guinea, 64 morti in nuove violenze tribali
--  ３位・岡山駅前高層マンション ２位・水垢離行 １位は…＜週末ランキング 岡山・香川＞
--  自衛隊 弁当代金キックバック 幹部自衛官自ら“詐欺持ち掛けた”か ほかにも水増し請求を繰り返していたとみて調査
--  「なぜ保護してくれない」大通駅“地下休憩スペース”でまた騒ぎ 10代の男現行犯逮捕 トラブルになり駅員を突き飛ばす
--  ＪＲ、雪崩警戒で普通列車６本運休 蘭島―小樽間
--  وفيات الاثنين .. 19 / 2 / 2024
--  新賽季將擔任全職一壘手！哈波：球隊要我守哪裡我就去
+-  Kapolda Papua Sebut TNI-Polri Kejar KKB Pelaku Penembakan Pesawat Wings Air
+-  「春みたい♪」新潟で５月並みの陽気に…最高気温は２１℃予想 雪崩や土砂災害に注意
+-  लुटन टाउनलाई युनाइटेडले हरायो, शेफिल्डको पोस्टमा ब्राइटनको ५ गोल
+-  “จตุพร” มอง “ทักษิณ” จงใจให้เห็นขณะออก รพ. จับตาแนวโน้มรัฐบาลเปลี่ยนแปลง
+-  PRM habría ganado 70% de alcaldías en elecciones este domingo
+-  «Nervt mich»: Bochums Schlotterbeck nach Sieg verärgert
+-  e-ΕΦΚΑ και ΔΥΠΑ: Λεφτά σε χιλιάδες δικαιούχους - Ποιοι θα πληρωθούν μέχρι τις 23 Φεβρουαρίου
+-  เปิดภาพ ‘ทักษิณ’ เดินทางพบอัยการสูงสุด รายงานตัวคดี ม.112
+-  El tiempo en Torrox: previsión meteorológica para hoy, lunes 19 de febrero
+-  DRS debate flares: Eng skipper seeks clarity after 2nd Crawley call
