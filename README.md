@@ -1,11 +1,11 @@
 # Latest News
--  Проф. Христо Хинков сигурен, че следващият здравен министър няма да е милостив към "Пирогов"
--  Het weer van vandaag: droge ochtend en een natte middag
--  Ehrenaufgabe für Designer aus Stuttgart: Norwegens Kronprinz erhält ein Prachtbuch von Stuttgarter Designern
--  Evolving EU-Africa relations
--  Nu är systrarna sjösatta – häng med på Finncanopus jungfrufärd
--  健康網》腸病毒當心釀脫甲症！ 醫：避免泡水、外力碰撞
--  Benefici della rucola per la salute, più ricca di vitamina C delle arance
--  Einfacher Zugang zu innovativen Technologien: FabLab in Wattens wird auf neue Beine gestellt
--  Esselunga teme per i subappalti
--  "Verletzend": Julia Roberts war entsetzt über Hass im Netz
+-  "C'était très réaliste !" : à Chartres, le public fait ses premiers pas dans le monde virtuel
+-  İYİ Parti İstanbul ilçe belediye başkan adayları belli oldu
+-  Pittsburgh vyradil číslo Jaromíra Jágra. Boli to najlepšie roky v živote, spomínal
+-  Real Madrid'de Arda Güler son dakikalarda oyuna girdi
+-  Teden z Luno: prihajajo nežnejši dnevi
+-  В Турции готовятся сократить рабочую неделю
+-  Nikola i Luka se hvatali za stomak od smeha (VIDEO)
+-  "C'était très réaliste !" : à Chartres, le public fait ses premiers pas dans le monde virtuel
+-  Challa’s re-entry into Cong opposed
+-  Das Ende von Microsoft Publisher: Was Nutzer wissen müssen
