@@ -1,11 +1,11 @@
 # Latest News
--  Camide bıçaklı tehdit kamerada! Çocukların üstüne yürüdü
--  PSOE replica a Velázquez que en los últimos 16 años la EMV promovió "directa o indirectamente" casi 400 viviendas
--  Фільм "20 днів у Маріуполі" отримав премію BAFTA
--  Forderung nach Verabschiedung des Wachstumsgesetzes
--  病気になりたくなかったら、真っ先にやめたほうがいい食事の習慣とは？【書籍オンライン編集部セレクション】 - 糖質制限はやらなくていい
--  TADIĆEV FENERBAHČE OPET IZA VELIKOG RIVALA: Galatasaraju dovoljno poluvreme za pobedu
--  Qatar Auto Museum launches sustainable transportation design contest
--  Forderung nach Verabschiedung des Wachstumsgesetzes
--  NATO'dan Çin'e Navalnıy eleştirisi
--  Turizm Bakanlığı'ndan Girne Antik Liman açıklaması
+-  ‘He has to play’: Erik ten Hag says £31m Man Utd player simply must be picked, but there is a problem
+-  Nema radnika. Samo u trgovini nedostaje ih 10 tisuća. Vlasnik dućana: 'Ne mogu pokriti smjenu'
+-  Márcia Soares arrasa com decote arrojado e sem Francisco Monteiro
+-  Mt Eliza: ‘Pelican’ estate with luxury car showroom by the pool set to rev up the market
+-  У Counter-Strike 2 и Minecraft появился конкурент — как в него поиграть
+-  Ukrajina se přibližuje goebbelsovské „totální válce“. Docent Valenčík ke korupci a výměnám velení
+-  'Hamrai dosti Hindu College se shuru hui'
+-  Dobro raspoloženi Princ William se pojavio na dodjeli nagrada BAFTA: Ovaj put je sam, bez Kate
+-  Não recue e encontre ‘PARCIAL’ neste caça-palavras em apenas 13 segundos
+-  Empresário é assassinado enquanto comia em um restaurante de luxo
