@@ -1,11 +1,11 @@
 # Latest News
--  خل التفاح.. فوائد متعددة أهمها فقدان الوزن
--  “숙박해야 야영” vs “안 자도 야영” 공방…캠핑식당 무죄 2차전 간다
--  Αποχώρηση του Ν. Χρυσανθόπουλου από τη θέση του Chief of Corporate Center του Ομίλου Alpha Bank
--  Working class men like Steve Wright don’t go to the doctor – and that’s exactly the problem...
--  Noskaties ⟩ Pļavniekos šoferis zaudē modrību un pamatīgi sadauza divas automašīnas
--  Zmowa milczenia wokół ciała Nawalnego. Uwagę zwraca nocny przejazd konwoju
--  Gundel Takács Gábor egyetlen emberrel tárgyalta meg a lemondását Novák Katalinnál
--  -52,3 градуса: Студ скова Китай
--  Who was Ameer Balaj Tipu, young gangster shot dead at a wedding?
--  Οικογένεια Παλαιοχριστιανών: Επιτέθηκαν σε δημοσιογράφο του ΑΝΤ1, άρπαξαν την κάμερα (vid)
+-  Fahren lernen in NRW: So viel kostet ein Autoführerschein 2024
+-  Primer día en 'Pasapalabra' y se van con el bote: "Extraordinario"
+-  [속보] 與 공관위, 최재형·윤희숙·박수영·김성원 등 13명 단수추천
+-  So süß: Michael J. Fox und seine Frau bezaubern bei BAFTAs
+-  Penghantar makanan didakwa bakar kereta polis bantuan
+-  ביד חזקה ובעוצמה אדיר: פברואר חם עם אירועי הגמר בכדורעף ובכדוריד
+-  Energie: Worauf es bei Förderung und Einbau einer Wärmepumpe ankommt
+-  Điều gì xảy ra khi phụ nữ thiếu ngủ?
+-  Власти Ростовской области опровергли работу ПВО в регионе
+-  Közel tíz éve nem használhatnak telefont a diákok egy veszprémi iskolában
