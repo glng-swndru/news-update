@@ -1,11 +1,11 @@
 # Latest News
--  Fue una respuesta a los exabruptos del Presidente, así califica Riva Palacio a la marcha por la democracia
--  Keychron M6 Wireless review: An exceptional-value gaming mouse
--  Joe Caruana Curran decides not to contest MFA presidential elections
--  Alavanque sua vida profissional, o Senac MS te mostra o caminho
--  ¿Ionescu vs Curry? Pero y qué tal Caitlin Clark, la chica récord
--  Classifiche a confronto: +16 per l'Inter, -29 per il Napoli! Vola il Bologna di Motta +10. Torino +5
--  Recept: Na žlico - babičin pasulj
--  Венци Стефанов: Касабов винаги е бил опозиция на Боби, той никога не е бил послушник - Труд
--  Neurophth Announces Completion of Patient Enrollment for Opvika® Phase I/II Clinical Trial in the U.S.
--  Agora entram as máquinas partidárias
+-  Dosarul diplomelor fictive. Percheziţii la Inspectoratul Școlar Mureș şi la Şcoala Postliceală Sanitară "Eugen Nicoară" din Reghin: urmează audieri pe bandă rulantă
+-  Minister Boštjančič na službeno srečanje pripeljal sina
+-  Dominance Airbusu a Boeingu v ohrožení. Čínský konkurent poprvé vyrazil za hranice
+-  Immortals of Aveum blir praktisk talt gitt bort for 1 pund i britiske supermarkeder.
+-  حفل جوائز تكريم 2023 في عمان: تكريم الصحافيين في الخطوط الأماميّة وجائزة إنجازات العمر لغسّان أبو ستّة
+-  "Oppenheimer" é o grande vencedor da premiação britânica Bafta
+-  U Srbiji kritično, planiraju se nove mere: "To će izazvati reakcije antivaksera"
+-  В России ответили на заявление премьера Армении Пашиняна об Украине
+-  "Večera budala" na daskama Pozorišta mladih Sarajevo
+-  Knapper Borat-Badeanzug von Reit-Star sorgt für Olympia-Posse
