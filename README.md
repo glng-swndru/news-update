@@ -1,11 +1,11 @@
 # Latest News
--  Anant Ambani and Radhika Merchant’s Lagan Lakhvanu ceremony: What happens in it?
--  Exploring the Latest Trends in Advertising Technology
--  르세라핌 허윤진, 규티+섹시 [포토]
--  르세라핌 허윤진, 사랑스러운 볼하트 [포토]
--  황인선, 오늘(19일) 신곡 ‘니가 말해봐’로 깜짝 컴백
--  Skúrir í dag en lítilsháttar súld norðanlands
--  3 пловдивски училища получават над 5 млн. лв. за физкултурни салони
--  Sosyal medya için video çekerken kaza anını görüntüledi
--  Χάθηκαν τα ίχνη 14χρονης στη Λευκωσία- Την έχετε δει; (pics)
--  Pokalsieg soll für Bayern-Basketballer erst der Anfang sein
+-  기다렸던 선발 보직, 좌승현은 말보단 행동으로 보여주고 있다
+-  Waarom je kop koffie ‘s ochtends je ook slaperig kan maken
+-  JOKIĆ I DONČIĆ SAIGRAČI? Hit odgovor Srbina: Nemam želju da napuštam Denver, ali...
+-  BGHL (EUR): NAV(s)
+-  2 Bedroom Home in Helena - $207,900
+-  80s & 90s Inverness band Raining Stairs' music re-released for a new generation
+-  heise+ | Midjourney, Firefly und Ideogram: So gut ist Schrift der KI-Bildgeneratoren
+-  Denizli’de Şubat ayında ağaçlar çiçek açtı!
+-  「四国のへそ」にある鉄橋跡 朝鮮人が支えた難工事、案内役は労組員
+-  Grünheide: Viel Interesse an Bürgerbefragung zu Tesla
