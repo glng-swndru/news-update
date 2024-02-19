@@ -1,11 +1,11 @@
 # Latest News
--  Pertemuan Surya Paloh dan Jokowi, Pengamat Nilai Sinyal Koalisi
--  Zieleń przy parafii pw. św. Andrzeja Boboli w Rawiczu tymczasowo znika. "Głównym celem prowadzonych prac jest powrót do stanu pierwotnego" [ZDJĘCIA]
--  U trenutku kada je Michael J. Fox ustao iz kolica krenule su ovacije, ali i potekle suze
--  カップヌードル「チリトマト」のスピンオフ。燻製香るとアメリカンに！
--  Uruguayan orchestra plays concert at Antarctic Artigas Base
--  A Garota Não recebe prémio José da Ponte, entregue pela Sociedade Portuguesa de Autores
--  Google анонсировала потенциально хитовую функцию Android
--  Παναθηναϊκός – ΠΑΟΚ: Ξεκινάει η διάθεση των εισιτηρίων για τη ρεβάνς στο Κύπελλο Ελλάδας
--  Umrla Snježana Paušek-Baždar, nekadašnja upraviteljica Odsjeka za povijest prirodnih i matematičkih znanosti HAZU
--  Ковачевич — о желании играть в топ-клубе России: «Кто знает, что будет в будущем?»
+-  Hrvatska kreirala jedno od najvećih iznenađenja na Svjetskom prvenstvu, a upali smo kao zamjena!
+-  HSV nimmt Kontakt zu einem Trainer-Kandidaten auf
+-  Mueren al menos 26 combatientes y varios testigos en violencia tribal en Papúa Nueva Guinea
+-  Traktorok borították fel a menetrendet Prágában
+-  Αλεξένι Ναβάλνι: «Δηλητηριάστηκε με νόβιτσοκ, η Ρωσία κρύβει τη σορό του» κατήγγειλε η σύζυγός του
+-  강돌고래 떼죽음·빙하 유실…지구의 ‘경고’
+-  USA: Joe Biden will Mobilitätswende womöglich hinauszögern
+-  Suche nach Blindgängern nahe der B1 in Dortmund: Straße wochenlang gesperrt
+-  A Veolia kezébe kerül a gönyűi erőmű
+-  Kevesebbre lesznek képesek a franciák
