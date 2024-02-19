@@ -1,11 +1,11 @@
 # Latest News
--  „Ajungi să cumperi lucruri de care nu ai nevoie”. Sfaturile specialiștilor pentru „vânătorii” de reduceri
--  Vereadores analisam veto de projeto que antecipa emendas em ano eleitoral
--  বিছানায় বসে খাবার খাওয়া ঠিক নয় যেসব কারণে
--  Carsten Linnemann: CDU-Generalsekretär bietet FDP Koalition an
--  Prochainement à Lieurey : un spectacle familial sur les aventures de Pinocchio
--  VIDEO Modrić je ovim potezom raspametio navijače! Suparnika izvrtio pa mu 'prodao tunel'
--  Una pareja murió al chocar un camión y un Jeep en el ingreso a Gualeguay
--  Carro con pandoro e uovo di Pasqua: Ferragni "pensati..." | VIDEO
--  Saadet Partisi, Siirt Belediye Başkan Adayını açıkladı!
--  Mediji: Otkriveno gdje je tijelo Navaljnog, pronađeni tragovi modrica
+-  مدرب الرائد: نشعر بالفخر لأننا سجلنا في الهلال
+-  Berlinale: Tragik und Leichtigkeit
+-  Что произошло за день: воскресенье, 18 февраля
+-  Handball, 3. Liga: Heimpleitenserie des TuS 82 Opladen hält an
+-  F1 urges Red Bull to clarify Horner situation 'at earliest opportunity'
+-  Ako se po jutru dan poznaje, Partizan je odradio fantastičan posao... Protiv IMT-a se desilo nešto što se retko viđa
+-  Зендая шокира с футуристични тоалети - Труд
+-  PREVIA | Candente juego en Guastatoya
+-  ŠA NA IVICI NOVOG NERVNOG SLOMA Evo šta mu je sada uradila Miona Jovanović
+-  Schalke zwischen klarer Kante und Triumphmarsch: Denkzettel von Geraerts für einen Führungsspieler
