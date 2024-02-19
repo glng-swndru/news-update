@@ -1,11 +1,11 @@
 # Latest News
--  Kapolda Papua Sebut TNI-Polri Kejar KKB Pelaku Penembakan Pesawat Wings Air
--  「春みたい♪」新潟で５月並みの陽気に…最高気温は２１℃予想 雪崩や土砂災害に注意
--  लुटन टाउनलाई युनाइटेडले हरायो, शेफिल्डको पोस्टमा ब्राइटनको ५ गोल
--  “จตุพร” มอง “ทักษิณ” จงใจให้เห็นขณะออก รพ. จับตาแนวโน้มรัฐบาลเปลี่ยนแปลง
--  PRM habría ganado 70% de alcaldías en elecciones este domingo
--  «Nervt mich»: Bochums Schlotterbeck nach Sieg verärgert
--  e-ΕΦΚΑ και ΔΥΠΑ: Λεφτά σε χιλιάδες δικαιούχους - Ποιοι θα πληρωθούν μέχρι τις 23 Φεβρουαρίου
--  เปิดภาพ ‘ทักษิณ’ เดินทางพบอัยการสูงสุด รายงานตัวคดี ม.112
--  El tiempo en Torrox: previsión meteorológica para hoy, lunes 19 de febrero
--  DRS debate flares: Eng skipper seeks clarity after 2nd Crawley call
+-  В Казахстане ограничено движение на автодорогах в 12 областях
+-  New bids in to revive KL-Singapore high-speed rail, but govt funding remains missing link
+-  Natty’s Jerk Kitchen brings the Caribbean to Utilita Bowl
+-  Quería que decorar con plantas fuera más sencillo
+-  Lebron ispričao "vic" – Jokić i Dončić "popadali" od smeha VIDEO
+-  Student to rising country music star
+-  Viikon vinkki | Vanhempi, kuinka hyvin tunnet lapsesi mediamaailmaa? – Mediakasvattaja neuvoo, miten pitää lapsi turvassa verkon vaaroilta
+-  Fijian Drua and Moana Pasifika have work cut out for new Super Rugby season
+-  Huge DMOE graffiti tag seen on Meridian Waterside flats
+-  I feel like Don Quixote swiping windmills: Michael Spence on Artificial Intelligence
