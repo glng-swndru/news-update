@@ -1,11 +1,11 @@
 # Latest News
--  Учени разработиха пробиотик за преодоляване на последиците от антибиотиците и вредните храни
--  Bursa'da kaybolan alzheimer hastasını jandarma ekipleri buldu!
--  중고로 산 내 가방, 정품일까 궁금하다면? 무료로 감정해 드립니다
--  Muğla'da 4,3 büyüklüğünde deprem
--  Iskrica
--  Pot do znanja
--  Iskrica
--  John Castegnaro: Von der Straße ins Parlament
--  Pot do znanja
--  Frage des Tages: Rauchen Sie?
+-  Stock Market on Feb 19: Sensex up 100 points, Nifty above 22,000 as Bharti Airtel and ITC drive gains
+-  Soha többet nem dolgozik együtt a Barátok közt Magdi anyusát és Vili bácsiját alakító színészpáros
+-  Sigma Run gives ‘over 100 million reasons to celebrate’
+-  Miss Tahiti, dans les coulisses des préparatifs
+-  Frosinone-Roma 0-3, le pagelle: Svilar un muro, Paredes un gigante. Soulé in ombra
+-  중국 춘제 연휴 ‘반짝 특수’로 그치나…1인당 지출 감소, 소비 위축 여전
+-  James Blake Siap Tambah Kemeriahan Joyland Festival Bali 2024
+-  سعود بن هلال يستعرض مع هيئة البيئة مبادرة "مسقط الخضراء"
+-  عُمان تشارك في اجتماع وكلاء السياحة بـ"دول التعاون"
+-  Airstrike kills several al-Shabab militants in Lower Shabelle region
