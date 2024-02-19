@@ -1,11 +1,11 @@
 # Latest News
--  '일부러 떨어뜨리고 슬쩍' 카지노 딜러 3천만 원 상당 칩 빼돌려
--  Buy this home and rent downstairs out for $1400/wk
--  ALARMANTNO STANJE U PROSVETI Od sutra štrajk u više od 160 škola u Crnoj Gori
--  Afellay wijst ideale club aan voor Frenkie de Jong: ‘Daar zou ik hem graag zien’
--  ‘테니스 신성’ 신네르, ABN AMRO 오픈 우승…최근 15연승 행진
--  Los inviernos pucelanos
--  Hugh Grant delights fans as he channels Oompa-Loompa character and performs comical rhymes at Baftas
--  VIDEO. ¡De película! Cadáver “revive” en la morgue del San Juan de Dios
--  3 Murid SD Lejer Indramayu Meninggal Dunia Saat Kegiatan Pramuka, Korban Sempat Melambaikan Tangan
--  Inmet emite alerta de perigo para chuvas de 30 milímetros e ventos de até 60 km/h nas regiões de Piracicaba e Campinas
+-  Did people watch NBA All-Star Saturday night?
+-  Two-day-old baby girl goes missing from government MCH centre
+-  Phó Thủ tướng: Bảo đảm các dự án đường bộ cao tốc, đường điện cao thế về đích đúng kế hoạch
+-  Santo perde para o Novorizontino na Vila, mas segue líder
+-  Päivän horoskooppi maanantaina 19.2.
+-  নতুন করে স্বপ্ন বোনে তারা
+-  هوای تازه - مهمان آزادی (تکرار)
+-  Estoques de vacina contra dengue estão quase esgotados
+-  Quế Vân "bóng gió" đoạn ghi âm với 1 người đàn ông trên livestream, netizen liền "đào mộ" nghi vấn hội thoại giữa cô và Trường Giang
+-  UŽIVO "Ol-star" spektakl u Indijanapolisu - Jokić je stigao! VIDEO
