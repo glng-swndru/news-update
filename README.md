@@ -1,11 +1,11 @@
 # Latest News
--  Pollster John Curtice predicts 'trouble' for Labour within months of getting keys to No10
--  Παρίστανε τη δικηγόρο και εξαπατούσε θύματα: Τους πουλούσε αυτοκίνητα και σπίτια που είχαν κατασχεθεί
--  "Las tierras usurpadas vuelven al Estado": desalojaron a comunidades mapuches en terrenos del Ejército en Bariloche
--  Συνελήφθη 51χρονη που παρίστανε τον υπάλληλο συμβολαιογραφικού γραφείου και εξαπατούσε πολίτες
--  Türkmenistanyň Prezidentiniň Karary «Türkmenistanyň ussat diplomaty» diýen tapawutlandyryş nyşany bilen sylaglamak hakynda
--  Jedna od najljepših glumica snimljena u rijetkom izlasku sa starijom sestrom, razlika od 16 godina među njima jedva se vidi!
--  Daniel Sousa: «Criámos várias situações de finalização, mas não conseguimos concretizar»
--  Είχε άγριες διαθέσεις ο Άρης και «καθάρισε» στο πι και φι την ΑΕΛ
--  Ítalía: Rómverjar skoruðu þrjú í Frosinone
--  Гери Халиуел подкрепи шефа на Ред Бул в сексскандала
+-  Camide bıçaklı tehdit kamerada! Çocukların üstüne yürüdü
+-  PSOE replica a Velázquez que en los últimos 16 años la EMV promovió "directa o indirectamente" casi 400 viviendas
+-  Фільм "20 днів у Маріуполі" отримав премію BAFTA
+-  Forderung nach Verabschiedung des Wachstumsgesetzes
+-  病気になりたくなかったら、真っ先にやめたほうがいい食事の習慣とは？【書籍オンライン編集部セレクション】 - 糖質制限はやらなくていい
+-  TADIĆEV FENERBAHČE OPET IZA VELIKOG RIVALA: Galatasaraju dovoljno poluvreme za pobedu
+-  Qatar Auto Museum launches sustainable transportation design contest
+-  Forderung nach Verabschiedung des Wachstumsgesetzes
+-  NATO'dan Çin'e Navalnıy eleştirisi
+-  Turizm Bakanlığı'ndan Girne Antik Liman açıklaması
