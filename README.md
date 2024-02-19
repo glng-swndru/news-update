@@ -1,11 +1,11 @@
 # Latest News
--  رواية يا لبيه يا الدنيا العجيبة -8
--  15 kandidāti sāk gatavoties Latvijas spēlēm pret Spāniju un Slovākiju
--  شعبة المعلومات تُلقي القيض على مروج مخدرات في صور
--  Mengintip Galeri Ganing Shibori Pati Milik Suci Indyaswati, Angkat Motif Seperti Batik Jumputan
--  Imate herpes? Znanstvenici: Imate i dvostruko veći rizik od demencije
--  ENAG'ın kurucusu ünlü ekonomistten Dolar kuru için ''vahim'' tahmin
--  "Милано" без Матей Казийски би 3:0 "Верона" на Радостин Стойчев
--  AMERIKANCI U ŠOKU: Rusija nikad nije bila bogatija, a sve zahvaljujući velikom savezniku Vašingtona
--  "Absolut inacceptabil". Cum califică Kremlinul reacțiile Occidentului la moartea lui Navalnîi
--  Cryptocurrency gains targeted
+-  高知が《アニメの聖地》に…賞金最大3000万！ショートアニメ受賞作の発表も「高知アニクリ祭」
+-  Nintendo Shares Drop Following Latest Reports Of Switch 2 'Delay'
+-  Israel rechaza legitimidad para declarar "ilegal" ocupación Palestina
+-  Ráadáskoncerttel duplázik Charlie a BJC-ben
+-  Birgitta, 67, är expert på favoritlaget – som hon aldrig sett live
+-  Támogatást nyert Kondoros
+-  映画『ファイト・クラブ』で着用された90年代の意欲作をオークリーが復刻
+-  Τα ζώδια που θα χωρίσουν την εβδομάδα που μόλις ξεκίνησε
+-  S’pore’s $1b AI boost will help sustain competitive edge in digital era, say business leaders
+-  Etisalat unveils multi-access edge slicing innovation
