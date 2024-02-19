@@ -1,11 +1,11 @@
 # Latest News
--  Imposto de renda: governo isenta quem ganha até dois salários mínimos
--  Відступ із Авдіївки: Reuters назвав наслідки окупації міста
--  Nach Taser 20 Schüsse abgefeuert: Polizisten erschießen mit Fleischerbeil bewaffneten Angreifer in Paris
--  "المقاومة الإسلامية" أعلنت استهداف ‏تموضع لجنود العدو في مثلث الطيحات
--  台灣燈會安平藝術燈區假日人潮多 高鐵燈區緊鑼密鼓籌備中
--  Alioune Tine : « Il est indispensable que Sonko et Diomaye Faye sortent et aillent au Palais discuter avec Macky Sall»
--  Pakistan: PML-N leader claims Zardari, Shehbaz finalised terms of govt formation
--  Türkiye Kupası Fenerbahçe'nin: 8. kez gülen taraf oldu!
--  LEDARE: Tyskland funderar på att skaffa sig kärnvapen
--  Ngoại binh thăng hoa, CAHN thắng dễ trong trận ra mắt của tân HLV Kiatisak
+-  貝克漢長子結婚2年 維多利亞爆「快要當阿嬤」嚇翻：我的老天！
+-  Domaine royal de Dreux : quels sont ces lieux interdits au public qui ouvriront exceptionnellement mardi 20 février ?
+-  Ông Biden nêu nguy cơ đáng ngại sau khi Avdeevka thất thủ
+-  आचार्य श्री का जीवन ही उनका दर्शन था
+-  Меган Маркл вышла на публику в украшениях за невероятную сумму
+-  نادي رجال الأعمال ينظم ندوة حول الاحداث التجارية وتداعياتها الاقتصادية على البحر الاحمر وخليج عدن
+-  إنقطاع مفاجئ.. ماذا حدث في المستوطنات والمدن الكبرى؟
+-  Calzona sa má stať trénerom Neapola, tvrdí zdroj z Talianska
+-  Biden 'confident' on $60bn Ukraine war aid package vote
+-  برلین، لندن و واشنگتن را هدف موشک هسته ای قرار می دهیم اگر ....
