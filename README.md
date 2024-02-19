@@ -1,11 +1,11 @@
 # Latest News
--  南韓住院醫師今集體請辭罷工！癌末手術「無限延期」 警下令嚴辦
--  Big miss that could cost Aussies thousands
--  [ITmedia PC USER] サンコー、LED発光機能を内蔵したゲーミングチェア 実売1万9800円
--  LeBron James opens up on Lakers future, says Warriors trade rumors 'didn't go far at all' - CBS Sports
--  Big miss that could cost Aussies thousands
--  Lo que debes saber sobre “Badlands”, la nueva película de “Predator”
--  Big miss that could cost Aussies thousands
--  Singapore outbound flights to cost more from 2026 over green fuel requirements - CNBC
--  عمل ۲۵۰ میلیون تومانی برای تغییر رنگ چشم! | در این کشور از هر ۳ خانم ایرانی، ۲ نفر کاندیدای تغییر رنگ چشم بوده‌اند
--  Chuyên gia kinh tế: Mua vàng ngày vía thần tài chỉ làm giàu cho chủ tiệm vàng
+-  마쓰야마, PGA 제네시스서 통산 9승…亞 선수 최다승
+-  Норма прибыли Sony в игровом бизнесе упала почти до десятилетнего минимума
+-  Israel sieht Kampfwillen der Hamas gebrochen
+-  Nahostkrieg: Wohin sollen die Menschen in Gaza fliehen?
+-  64 Orang Tewas dalam Bentrokan Suku di Papua Nugini
+-  Khofifah Sampaiakn Duka Cita Meninggalnya KPPS & Linmas: Mereka Pejuang Demokrasi
+-  KCGI자산운용, 피인수 후 6개월 만에 국내 일반 주식형 수익률 1위
+-  “중량 줄이면서 가격은 그대로”…이런 꼼수 발 못붙인다
+-  석종건 방사청장 "북한 위협 대비 압도적 전력 신속히 증강"
+-  아리아나 그란데의 글린다는 어떨까…영화 '위키드', 11월 개봉
