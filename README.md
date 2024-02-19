@@ -1,11 +1,11 @@
 # Latest News
--  Trampov govor trese Ameriku: Postali smo zemlja Trećeg sveta
--  Ailesi Başkan Adayı Ertemur'u Pamukkale'ye emanet etti
--  Байден совсем заговаривается: перепутал Украину с НАТО
--  Autor krimića o trgovini kokainom u kojoj Šibenik glumi Split: kriminal je gospodarska grana u usponu
--  Kolejny list z Watykanu przeciwko niemieckiej "drodze synodalnej"
--  U napadima Rusije na Ukrajinu najmanje tri osobe poginule
--  ほっかいどう大運動会 市民ら１万人が運動楽しむ 札幌ドーム
--  Autor krimića o trgovini kokainom koji se snimao u Šibeniku: kriminal je gospodarska grana u usponu, a serije društveni romani 21. stoljeća
--  Ecco gli smartphone e tablet Samsung che riceveranno Android 15
--  Две жени загинаха при пожар в старчески дом в Мадрид
+-  Andrej Mangold und Annika Jung: Der "Ex"-Bachelor möchte Papa werden
+-  Andrej Mangold und Annika Jung: Der "Ex"-Bachelor möchte Papa werden
+-  Vakava liikenne­onnettomuus Somerolla – kaksi kuoli
+-  NESUĐENO POJAČANJE "VEČITIH" GOVORILO O BEOGRADU! Amerikanac otkrio da li su bolji crveno ili crno-beli NAVIJAČI!
+-  "Барса" избра заместника на Шави
+-  1461 Trabzon Başkanı Hekimoğlu, maçın hakemini tebrik etti!
+-  وزير الداخلية يتفقد سير العمل برئاسة مصلحة الهجرة والجوازات والجنسية بعدن
+-  Oslabený AC Milán podlehl v italské fotbalové lize 2:4 Monze
+-  Andrej Mangold und Annika Jung: Der "Ex"-Bachelor möchte Papa werden
+-  Köfteci Yusuf’taki tavan çökme olayının yeni görüntüleri ortaya çıktı
