@@ -1,11 +1,11 @@
 # Latest News
--  마쓰야마, PGA 제네시스서 통산 9승…亞 선수 최다승
--  Норма прибыли Sony в игровом бизнесе упала почти до десятилетнего минимума
--  Israel sieht Kampfwillen der Hamas gebrochen
--  Nahostkrieg: Wohin sollen die Menschen in Gaza fliehen?
--  64 Orang Tewas dalam Bentrokan Suku di Papua Nugini
--  Khofifah Sampaiakn Duka Cita Meninggalnya KPPS & Linmas: Mereka Pejuang Demokrasi
--  KCGI자산운용, 피인수 후 6개월 만에 국내 일반 주식형 수익률 1위
--  “중량 줄이면서 가격은 그대로”…이런 꼼수 발 못붙인다
--  석종건 방사청장 "북한 위협 대비 압도적 전력 신속히 증강"
--  아리아나 그란데의 글린다는 어떨까…영화 '위키드', 11월 개봉
+-  Учени разработиха пробиотик за преодоляване на последиците от антибиотиците и вредните храни
+-  Bursa'da kaybolan alzheimer hastasını jandarma ekipleri buldu!
+-  중고로 산 내 가방, 정품일까 궁금하다면? 무료로 감정해 드립니다
+-  Muğla'da 4,3 büyüklüğünde deprem
+-  Iskrica
+-  Pot do znanja
+-  Iskrica
+-  John Castegnaro: Von der Straße ins Parlament
+-  Pot do znanja
+-  Frage des Tages: Rauchen Sie?
