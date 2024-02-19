@@ -1,11 +1,11 @@
 # Latest News
--  "C'était très réaliste !" : à Chartres, le public fait ses premiers pas dans le monde virtuel
--  İYİ Parti İstanbul ilçe belediye başkan adayları belli oldu
--  Pittsburgh vyradil číslo Jaromíra Jágra. Boli to najlepšie roky v živote, spomínal
--  Real Madrid'de Arda Güler son dakikalarda oyuna girdi
--  Teden z Luno: prihajajo nežnejši dnevi
--  В Турции готовятся сократить рабочую неделю
--  Nikola i Luka se hvatali za stomak od smeha (VIDEO)
--  "C'était très réaliste !" : à Chartres, le public fait ses premiers pas dans le monde virtuel
--  Challa’s re-entry into Cong opposed
--  Das Ende von Microsoft Publisher: Was Nutzer wissen müssen
+-  Anant Ambani and Radhika Merchant’s Lagan Lakhvanu ceremony: What happens in it?
+-  Exploring the Latest Trends in Advertising Technology
+-  르세라핌 허윤진, 규티+섹시 [포토]
+-  르세라핌 허윤진, 사랑스러운 볼하트 [포토]
+-  황인선, 오늘(19일) 신곡 ‘니가 말해봐’로 깜짝 컴백
+-  Skúrir í dag en lítilsháttar súld norðanlands
+-  3 пловдивски училища получават над 5 млн. лв. за физкултурни салони
+-  Sosyal medya için video çekerken kaza anını görüntüledi
+-  Χάθηκαν τα ίχνη 14χρονης στη Λευκωσία- Την έχετε δει; (pics)
+-  Pokalsieg soll für Bayern-Basketballer erst der Anfang sein
