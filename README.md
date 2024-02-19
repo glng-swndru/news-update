@@ -1,11 +1,11 @@
 # Latest News
--  김창완, ‘아침창’ 23년 만에 하차…러브FM으로 옮긴다 [공식]
--  Deep learning shines a new light on Parkinson's detection through the eye
--  Etapa do Circuito Brasileiro de Vôlei de Praia começa nesta semana
--  Myrtleford signs ex-Brisbane-listed excitement machine as 'home' player
--  Ejecutan a hombre en restaurante de hotel en San Pedro, Nuevo León
--  البحرية البريطانية تتحدث عن وقوع حادث جنوبي المخا
--  Cunucu Aruba Dushi Tera ta recicla carton cah’i webo
--  11 Caleg DPR RI Dapil Sulut Peraih Suara Terbanyak Sementara, Hillary Teratas, Tatong Salip Felly
--  Jessie James Decker gives birth to a baby boy! Singer welcomes her fourth child with husband Eric Decker
--  प्रजातन्त्रको विकल्प उन्नत प्रजातन्त्र
+-  غانتس وغالانت يهاجمان نتنياهو: لقد تجاوزت المؤسسة الأمنية
+-  파주서 택시가 중앙분리대 들이받아…70대 기사 사망
+-  “교실밖 문제 학생도 문제네”…수업방해 분리조치 교사간 ‘갈등’ 우려
+-  Những lưu ý quan trọng khi mua vàng ngày vía Thần Tài
+-  터널 공사 중 발견한 신비함…영월 분덕재동굴, 천연기념물 됐다
+-  Inland sea swamps outback as SEQ set for 34C heat blast, severe storms
+-  Alexander Volkanovski urged to make move for family after crushing loss at UFC 298
+-  대전 수련병원 전공의 줄줄이 사직…"일부 출근 안해"
+-  Legislating against Mercenarism in Nigeria’s Security Architecture
+-  Javier Milei viaja este lunes a Corrientes en medio de la tensión con los gobernadores
