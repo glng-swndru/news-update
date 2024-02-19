@@ -1,11 +1,11 @@
 # Latest News
--  Alckmin: Vitalidade, dedicação ao trabalho e fé no Brasil são lições de vida de Abilio
--  Alckmin: Vitalidade, dedicação ao trabalho e fé no Brasil são lições de vida de Abilio
--  Cogger taking nothing for granted despite promising trial
--  台股AI族群開盤狹幅震盪 麗臺被摜至跌停
--  Stokes bids for Boral: why this time is different
--  [특징주] 에스피소프트, MS 챗GPT 적용 가상 OS '코파일럿' 개발 기대감...3거래일 째 강세
--  Alckmin: Vitalidade, dedicação ao trabalho e fé no Brasil são lições de vida de Abilio
--  광주시, 지역 중소기업 구조고도화자금 300억 지원…금리 2.12% 적용
--  Brazil retail billionaire Abilio Diniz dies at 87
--  Kylian Mbappé ya firmó con Real Madrid por 5 años: Marca
+-  Mukesh Ambani’s Jio Studios, Riteish Deshmukh’s Mumbai Film Company Set Young Shivaji Biopic (EXCLUSIVE)
+-  [속보]정부, 전체 전공의에 '진료유지명령'…오늘 현장점검
+-  Joy to see people of different races celebrating Chinese New Year, says Dr Wee
+-  長期債、利下げ回数少なくても買うべき理由 - WSJ PickUp
+-  PJ investiga fogo que destruiu autocarro e carros em Loulé
+-  Jaya Ekadashi 2024: जया एकादशी पर जरूर करें ये खास उपाय, जीवन में मिलेगी खूब तरक्की!
+-  Bancária suspeita de burla milionária esconde mobília em garagem secreta
+-  Alan Walker Kaget Saat Tahu Raffi Ahmad dan Nagita Slavina Ultah Bareng
+-  Clube lamenta morte de ciclista em Aljustrel
+-  Jovem esquizofrénico ameaça e rouba mãe em Ponte de Sor
