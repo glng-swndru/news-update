@@ -1,11 +1,11 @@
 # Latest News
--  Θεοδωρικάκος: Η ΝΔ προχωρά ενωμένη με τις ιδέες και το έργο της
--  "Манчестър юнайтед" взе труден успех и продължи изкачването си
--  Se dvěma chybami se těžko něco dohání. Krčmář a Mikyska o posledním závodě
--  Totalna wojna u rywali Polaków. Mocny cios w trenera. Stanęli po stronie skoczków
--  Kas senesnio? KGB užverbuoto Alseikos mitas: kaip antitarybinis bėglys okupantus šlovino
--  Se dvěma chybami se těžko něco dohání. Krčmář a Mikyska o posledním závodě
--  EN VIVO: San Martín de Tucumán y Ferro, que aprovechó un error defensivo del "santo", empatan en La Ciudadela
--  Vídeo do sequestro do filho de um comerciante no momento em que fechavam seu comércio
--  Manchester United piept en kraakt, maar wint weer dankzij dubbelslag Højlund
--  Debaixo de chuva, Daniela Mercury fecha o Carnaval de SP com homenagem a Zé Celso
+-  Pollster John Curtice predicts 'trouble' for Labour within months of getting keys to No10
+-  Παρίστανε τη δικηγόρο και εξαπατούσε θύματα: Τους πουλούσε αυτοκίνητα και σπίτια που είχαν κατασχεθεί
+-  "Las tierras usurpadas vuelven al Estado": desalojaron a comunidades mapuches en terrenos del Ejército en Bariloche
+-  Συνελήφθη 51χρονη που παρίστανε τον υπάλληλο συμβολαιογραφικού γραφείου και εξαπατούσε πολίτες
+-  Türkmenistanyň Prezidentiniň Karary «Türkmenistanyň ussat diplomaty» diýen tapawutlandyryş nyşany bilen sylaglamak hakynda
+-  Jedna od najljepših glumica snimljena u rijetkom izlasku sa starijom sestrom, razlika od 16 godina među njima jedva se vidi!
+-  Daniel Sousa: «Criámos várias situações de finalização, mas não conseguimos concretizar»
+-  Είχε άγριες διαθέσεις ο Άρης και «καθάρισε» στο πι και φι την ΑΕΛ
+-  Ítalía: Rómverjar skoruðu þrjú í Frosinone
+-  Гери Халиуел подкрепи шефа на Ред Бул в сексскандала
