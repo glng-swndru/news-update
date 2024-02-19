@@ -1,11 +1,11 @@
 # Latest News
--  정부, 확률 공개 해설서 배포…“직·간접적 유상 구매 아이템 공개 의무화“
--  Kuda-kuda Prabowo-Gibran Rangkul Rival
--  Irritated Billie Eilish caught gossiping with Kylie Minogue - seems to make 'catty' remark
--  Diễn biến lạ trong sáng sớm ngày vía Thần Tài 2024 trên 'phố vàng' Hà Nội
--  早めのツボ押しで症状軽減？ 花粉症におすすめのツボ3選 - ウェザーニュース
--  [정치쇼] 김준우 "민주당과 지역구 연대, 심상정 구하기 아니다"
--  Jadwal Acara NET TV Hari ini Senin 19 Februari 2024: Clean With Passion For Now, Rumah Hantu Ampera
--  What’s behind Nothing CEO Carl Pei’s ‘Bhai mode’ in India
--  ‘മല്ലികാ വസന്ത’ത്തിന്റെ 50 വർഷങ്ങൾ; മല്ലിക സുകുമാരന് തലസ്ഥാനത്തിന്റെ സ്നേഹാദരം
--  [편의점에서는] GS25 ‘혜자브랜드’ 누적 2800만개 판매 外 CU
+-  Alckmin: Vitalidade, dedicação ao trabalho e fé no Brasil são lições de vida de Abilio
+-  Alckmin: Vitalidade, dedicação ao trabalho e fé no Brasil são lições de vida de Abilio
+-  Cogger taking nothing for granted despite promising trial
+-  台股AI族群開盤狹幅震盪 麗臺被摜至跌停
+-  Stokes bids for Boral: why this time is different
+-  [특징주] 에스피소프트, MS 챗GPT 적용 가상 OS '코파일럿' 개발 기대감...3거래일 째 강세
+-  Alckmin: Vitalidade, dedicação ao trabalho e fé no Brasil são lições de vida de Abilio
+-  광주시, 지역 중소기업 구조고도화자금 300억 지원…금리 2.12% 적용
+-  Brazil retail billionaire Abilio Diniz dies at 87
+-  Kylian Mbappé ya firmó con Real Madrid por 5 años: Marca
