@@ -1,11 +1,11 @@
 # Latest News
--  Kommunernes udgifter til Microsoft næsten fordoblet på seks år: Betalte halv milliard kroner i 2023
--  TÜİK, 2022 yılına ilişkin "hane halkı nihai enerji tüketim" verilerini açıkladı
--  ¿Quiénes cobran hoy de ANSES? Cronograma de pago de Jubilaciones, Asignaciones, Embarazo, AUH y AFH
--  Dieci carri e sei gruppi mascherati ad animare il carnevale di Castiglione delle Stiviere
--  Hospital com atendimento para pessoas com albinismo
--  칠리즈, K리그와 파트너십…"웹3 활용해 팬덤 활동 지원"
--  Estas son las gasolineras más baratas hoy en Córdoba
--  BAL'da tek gülen Manisa takımı Yunusemre Belediyespor oldu
--  Гомельчанин отравился угарным газом в своем гараже
--  Labor hat Bodenprobe chemisch geprüft: Bagger-Pause für Frohlinder Mehrfamilienhäuser beendet
+-  Chlapec s genetickou poruchou se po zákroku ve Francii vrátil do Česka
+-  Darphane'nin son verileri! Çeyrek altın üretimi 2023'te yaklaşık 18 milyon adet oldu
+-  (여자)아이들 "7년 차에도 계속 성장해 행복…'슈퍼 레이디' 듣고 자신감 얻었으면"
+-  Prekipjelo joj je! Lepa Brena zaustavila je koncert zbog jedne osobe: 'Radiš to već dva sata'
+-  Rogel presentó su libro: Crónicas de los 40 años de continuidad democrática
+-  OD JUTROS PONOVO PLAĆANJE RAČUNA NA ŠALTERIMA EPS-A
+-  AK Parti İzmit İlçe Başkanı Dokuzlar: Çıtanın yükseklere çıkacağı belliydi
+-  Buscan alivios para morosos
+-  Mi kell ahhoz, hogy egy iroda igazán vonzó legyen?
+-  Xôi tam sên - món ăn nghe lạ tai mà bán vèo vèo ngày vía Thần tài
