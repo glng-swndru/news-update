@@ -1,11 +1,11 @@
 # Latest News
--  Fábio Carille minimiza derrota em casa do Santos e reconhece mérito do Novorizontino
--  BAFTA 2024: az Oppenheimer nyerte a legtöbb díjat
--  Big consumer divide: Mass market lags, premium end soars - Times of India
--  The Big Read: E-commerce layoffs - heyday of online shopping could be over, with consumers on the losing end
--  Sem erros de arbitragem, Vasco se impõe em mais um clássico
--  Pedro Llompart triunfa con el Nápoles en la Copa de Italia
--  Минюст обяжет иноагентов указывать в отчетности ОГРН и доменное имя
--  มะกันร่วมพิสูจน์เรือหลวงสุโขทัยอับปาง ส่งเรือ-ทีมจากฮาวาย เริ่มปฏิบัติการ 22 ก.พ.
--  Ministarstvo: Žalimo zbog štrajka prosvjetara, omogućiti djeci pravo na redovno školovanje
--  Betis uoči Dinama doživio još jedno veliko razočaranje
+-  Star Wars hayranlarına müjde: Respawn Entertainment, Mandalorian oyunu için çalışmalara başladı
+-  Trao giải Quả bóng Vàng Việt Nam 2023: Còn những niềm vui
+-  Namesto Ščuke in Macure Čebašek in Mirtič
+-  HPD seeks several males after man, 39, fatally shot in Makaha
+-  Ministarstvo: Žalimo zbog odluke o štrajku, u srijedu sastanak...
+-  Vasco vira sobre Botafogo e entra no G4 do Cariocão
+-  Masih Ingat Norman Kamaru? Dulu Viral karena Joget Chaiya-chaiya dan Jual Bubur, Kini Jadi Caleg
+-  ‘Be your own kind of leader’: Frances Feenstra from People Measures on the development of women in leadership
+-  Ghiaccio: Mondiali Velocità, Ghiotto è oro nei 10.000
+-  SFI workers wave black flags at Kerala Governor in Kannur
