@@ -1,11 +1,11 @@
 # Latest News
--  Did people watch NBA All-Star Saturday night?
--  Two-day-old baby girl goes missing from government MCH centre
--  Phó Thủ tướng: Bảo đảm các dự án đường bộ cao tốc, đường điện cao thế về đích đúng kế hoạch
--  Santo perde para o Novorizontino na Vila, mas segue líder
--  Päivän horoskooppi maanantaina 19.2.
--  নতুন করে স্বপ্ন বোনে তারা
--  هوای تازه - مهمان آزادی (تکرار)
--  Estoques de vacina contra dengue estão quase esgotados
--  Quế Vân "bóng gió" đoạn ghi âm với 1 người đàn ông trên livestream, netizen liền "đào mộ" nghi vấn hội thoại giữa cô và Trường Giang
--  UŽIVO "Ol-star" spektakl u Indijanapolisu - Jokić je stigao! VIDEO
+-  Gelap, Dingin, dan Menakjubkan! 15 Fakta Unik tentang Awan Oort, Tempat Asal Komet yang Tidak Terduga
+-  الريال يتعادل مع رايو فايكانو
+-  "Выходка" фон дер Ляйен против России вызвала ярость во Франции
+-  Até o chocolate vai ficar mais caro
+-  એરાઉન્ડ ધ માર્કેટ .
+-  Nhiều đứa trẻ tương lai mù mịt không phải là bởi IQ hay EQ thấp mà do sự “giả tạo” này của cha mẹ
+-  رسالة دكتوراه تدعو إلى نموذج عربي لقياس القدرات السيبرانية
+-  고현정 “꼭 원 톱 같은 거 아니어도 돼요”
+-  La clave del éxito laboral según Bill Gates: cuál es su técnica para mantener la concentración
+-  Wyndham to celebrate women and girls
