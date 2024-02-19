@@ -1,11 +1,11 @@
 # Latest News
--  Star Wars hayranlarına müjde: Respawn Entertainment, Mandalorian oyunu için çalışmalara başladı
--  Trao giải Quả bóng Vàng Việt Nam 2023: Còn những niềm vui
--  Namesto Ščuke in Macure Čebašek in Mirtič
--  HPD seeks several males after man, 39, fatally shot in Makaha
--  Ministarstvo: Žalimo zbog odluke o štrajku, u srijedu sastanak...
--  Vasco vira sobre Botafogo e entra no G4 do Cariocão
--  Masih Ingat Norman Kamaru? Dulu Viral karena Joget Chaiya-chaiya dan Jual Bubur, Kini Jadi Caleg
--  ‘Be your own kind of leader’: Frances Feenstra from People Measures on the development of women in leadership
--  Ghiaccio: Mondiali Velocità, Ghiotto è oro nei 10.000
--  SFI workers wave black flags at Kerala Governor in Kannur
+-  "걷고 자전거 타고 인생 2막"
+-  مجلس در اصلاح چرخه معیوب اقتصادی نقش حیاتی ایفا می‌کند
+-  IZBACIO ALKARAZA, PA OSTAO BEZ TITULE Argentinac dobio vajld kard za turnir u Buenos Ajresu, a onda ga i osvojio
+-  Dubaijas eksčempione Ostapenko eksaminēs turnīra debitanti
+-  [사진뉴스] 천안교육지원청·천안시청소년재단, 청소년 정책 개발 협약 체결
+-  한화이글스, 호주 멜버른 1차 스프링캠프 마무리
+-  경질 전 클린스만이 돌아본 정몽규 축구협회장은 '든든한 우군'
+-  માત્ર વિવાદીત વેરાની રકમનું પ્રાથમિક ભરણું કરવાનું થાય
+-  Bị con ruột xa lánh, cha dượng được tôi chăm sóc lúc cuối đời: Đến khi đọc di chúc, tôi không tin vào mắt mình
+-  Joy Beune pakt vlak na goud op 5000m ook brons op 1500m, Antoinette Rijpma-de Jong onttroond
