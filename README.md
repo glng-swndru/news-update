@@ -1,11 +1,11 @@
 # Latest News
--  Troca por híbridos e elétricos dá subida de 46% ao "renting"
--  Jalin Silaturahmi dan Monitoring, Kesbangpol Lampura Kunjungi Organisasi IKS
--  Deux piscines sur les cinq de la Métropole restent fermées pendant les vacances de février
--  Terug in de tijd: in het spoor van Irene Schouten tijdens Marathon Cup
--  How Chiefs’ Butker helped family of Johnson County mom killed in KC parade shooting
--  Hål i spången över Aura å – isbron i bruk åtminstone den här veckan
--  Συνάντηση Αννίτας με τον Αρχιεπίσκοπο Μαρωνιτών Κύπρου
--  West Coast chief executive Don Pyke reveals Eagles considering return of original club song after banner flip
--  L'agenda sportif de la semaine en Auvergne et Limousin
--  'Very good and very quick': Edwards admits Luton struggled with three Man United stars
+-  В МАГАТЭ заявили о затратах при снижении зависимости от атомной отрасли РФ
+-  Pivljanin demantuje opoziciju i halucinira: To nije pobeda opozicije; Pomenuo i milion i po ljudi!
+-  OTSE | Põhiseaduskomisjon arutab avalikul istungil Vene külmutatud varade kasutuselevõttu
+-  Kuala Lumpur: entro fine anno l'omologazione tra sharia e Costituzione
+-  EPDK yazı göndererek uyardı: İndirimleri tüketiciye yansıtın
+-  Cumhurbaşkanı Erdoğan: Danıştay'ın kararı tartışmalı
+-  Outdoor, Natur und Jagd - Schützenverein lädt zum „Tag der Optik“
+-  Ankara'da seçim yarışını kim kazanacak? HBS Araştırma'nın şubat ayı anketi belli oldu! Aradaki makas açıldı
+-  Atletas do Grande ABC garantem medalhas no US Open Taekwondo
+-  Bokeo: oltre 5mila bambini hanno lasciato la scuola nell'ultimo anno
