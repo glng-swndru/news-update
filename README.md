@@ -1,11 +1,11 @@
 # Latest News
--  Hribar z reprezentanco za konec skupinskega dela boljši še od Malezije
--  Royal Brunei Airlines Orders Four Boeing 787 Dreamliners
--  "Un cataclysme", Marie Portolano et Thomas Sotto sans filtres sur Bruce Toussaint et sa quotidienne "Bonjour"
--  «Je m'en fiche» : Cette star a refusé un pactole au PSG tous les étés
--  한동훈, 원희룡과 23일 인천 계양 찾는다…구로 등 격전지 지원
--  « Drapeau satanique » : ce que l’on sait sur l’imam de Bagnols-sur-Cèze, accusé d’apologie de terrorisme
--  Илон Маск: Позиции Украины становятся слабее-ФОТО
--  Met Office issues UK long-range forecast that constantly mentions storms, rain and snow
--  Isabel Camarinha deixa CGTP após mandato atípico e volta ao CESP
--  Артур: «В Бразилии знают: «Зенит» — самый сильный и лучший клуб России»
+-  検察官から「ガキだよね」と罵倒された元弁護士が語る「黙秘しても罵詈雑言の取り調べが延々と」
+-  V Rusku zatkli ženu s americkým občanstvím, viní ji z podpory ukrajinské armády
+-  Gyengült a forint reggel
+-  Рязко скочиха цените имотите в Гърция
+-  Australian scientists find fastest growing black hole in universe - ABC News
+-  UN-Sicherheitsrat ringt um Feuerpause in Gaza
+-  Kertas siasatan banduan merusuh lengkap - Polis
+-  Канада скоро ще даде стотици модерни дронове на Украйна (ВИДЕО)
+-  今の小中高校生にとって麻雀は「トランプと同じような普通のゲーム」 ゲームで覚えた世代がリアルでも麻雀を
+-  Tom Cruise soll schon Elsinas Kinder kennengelernt haben!
