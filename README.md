@@ -1,11 +1,11 @@
 # Latest News
--  Нови физкултурни салони ще бъдат изградени в три училища в Пазарджик
--  Odolá nárazům, výkyvům teplot i vrstvě ledu. Skládací displej od Samsungu získal certifikaci MIL-STD 810G
--  'Ayıntab Bastası' temalı resim sergisi
--  Вътрешният министър отрече да е имало теч на информация от МВР към Мартин Божанов
--  Jeste li vidjeli što se dogodilo? Autobus udario pješakinju, preminula je u bolnici
--  Komarov: Posle zlata na EP zanima me samo plasman na Igre u Parizu
--  VIDEO Zelenski posjetio vojsku u blizini bojišnice: Hvala vam što branite državu i naše obitelji
--  Alckmin deve participar de velório do empresário Abilio Diniz em SP nesta segunda-feira
--  Bayern No dan Liverpool Yes Untuk Xabi Alonso
--  Polisi Ungkap Modus Penyalahgunaan BBM Bersubsidi di Pelabuhan Tegal
+-  Streamen, Gaming, Homeoffice: Internet-Tarif: Wie viel Mbit braucht der heimische Anschluss?
+-  Gruppe im Bundestag: Die Linke auf der Suche nach Führung und Geschlossenheit
+-  Israel declara «persona non grata» a Lula por comparar la ofensiva en Gaza con el Holocausto
+-  Valsts kancelejas direktors Citskovskis: mēs Latvijā neuzticamies viens otram
+-  بحث تعزيز مجالات التعاون مع الصين
+-  المدارس الخضراء.. مشاريع بيئية وتفاعل تربوي
+-  Ampel einigt sich auf Maßnahmen: So soll das Schienennetz verbessert werden
+-  Никогда не сдавайся. Мудрик запостил мотивационное фото из спортзала
+-  Dayton Public Schools to name new superintendent
+-  Hyderabad: Electric car crashes median on Begumpet flyover, three injured
