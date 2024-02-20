@@ -1,11 +1,11 @@
 # Latest News
--  Žiemiški orai sugrįžo tik trumpam – jau ketvirtadienį numatomi 9 laipsniai šilumos
--  Strany ladí kandidátky do krajských voleb. Vznikají nové koalice, ODS jde sama
--  Five passengers killed as bus hits landmine in Mogadishu
--  Bukan Cuma Vincent Rompies, Ini Profil Dokter Spesialis Urologi Edwin Tobing: Diduga Orangtua Pelaku Bullying di Binus
--  Edinburgh-based connectivity firm Commsworld top of class with new seven-figure Dundee schools contract
--  化粧品ブランド「オルビス」無人店舗 盛岡市にオープン 東北初展開＜岩手県＞
--  Frage des Tages: Verfolgen Sie die Berlinale?
--  Uradno: iz ZDA v Evropo nova znamka, Slovenije še ni na spisku
--  Juhuhu
--  Utorok bude oblačný, treba počítať s prehánkami
+-  Tsingshan, nichel e batterie e la corsa ai sussidi USA
+-  Kryptowährungen & Co: Diese Krypto-Fragen werden bei Google am häufigsten gestellt
+-  日도쿄증시 시총, 3년 반만에 中상하이증시 앞질러…亞 1위 탈환
+-  Kirkonkellot soivat Ukrainalle ja kutsuvat rukoushetkeen
+-  Esenler semt pazarında İmamoğlu izdihamı. Adıyamanlı depremzededen Erdoğan’a 'tehdit' tepkisi
+-  Son 14, tienen más de 40 años y realizan una aventura que los mantiene unidos: “El único requisito es que prenda, el resto vamos viendo”
+-  Trabzonspor, Avrupa'nın en kötü 10 takımı arasına girdi!
+-  Politik Güğüm - 20 Şubat 2024
+-  Virgin Australia CEO Jayne Hrdlicka to step down
+-  Ruang khas merokok: Cukup dalam lakaran kotak merah tanpa bumbung, kerusi
