@@ -1,11 +1,11 @@
 # Latest News
--  FC Bayern München und Thomas Tuchel: Wie geht es weiter für den Trainer?
--  Korzystasz z WhatsAppa? Zobacz 9 trików, które musisz znać. Przekonaj się, jakie opcje skrywa popularny komunikator
--  Natasza Urbańska zdradziła swoje triki na piękny wygląd. Aż trudno uwierzyć w to, co robi [WIDEO]
--  NBA: Karl Anthony Towns hace historia en el All Star (+Video)
--  «Интер» и «Атлетико» общими усилиями подарят голы в матче ЛЧ. Прогноз Карена Адамяна
--  घरेलू क्रिकेट में अपनी विशेष छाप छोड़ने वाले पांच दिग्गज खिलाड़ियों ने खेल को अलविदा कहा
--  CHP'nin Esenyurt'ta DEM tuttuğu Ahmet Özer'i deşifre ettik: 'kürdistan' hayali kurdu, yerel özerklik talep edip anayasada değişiklik istedi
--  Oregon House passes bill to allow more state investigations of suspected child labor violations
--  Sami Özsulu: “GKK’da görev yapan mukaveleli personel istifa ediyor…”
--  Suđenje sucima za mito: Propao potez Vekićeve prijateljice, nisu izbacili dokaze koje ima Uskok
+-  Giordani: "Sonepar conferma Padova territorio accogliente per le imprese"
+-  So können Sie im heimischen Garten Geld sparen
+-  Tennis: Binaghi, 'Sinner campione in campo e fuori, ora così per 10 anni'
+-  Tennis: Sinner, 'non ho paura di sbagliare, vedremo come reagirò al primo fallimento'
+-  Verfassungsschutz und Südkorea warnen: Nordkorea attackiert Rüstungsunternehmen
+-  Verfassungsschutz und Südkorea warnen: Nordkorea attackiert Rüstungsunternehmen
+-  Тежък инцидент с халф на Миньор Перник
+-  Satelitul european ERS-2 se va prăbuși prin atmosfera terestră la 21 februarie. Există riscuri pentru oamenire?
+-  Meta leaves Apple's 30% fee for boosted posts to advertisers
+-  Eltűnt több mint 220 ezer katás a Számlázz.hu-nál
