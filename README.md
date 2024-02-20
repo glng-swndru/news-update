@@ -1,11 +1,11 @@
 # Latest News
--  検察官から「ガキだよね」と罵倒された元弁護士が語る「黙秘しても罵詈雑言の取り調べが延々と」
--  V Rusku zatkli ženu s americkým občanstvím, viní ji z podpory ukrajinské armády
--  Gyengült a forint reggel
--  Рязко скочиха цените имотите в Гърция
--  Australian scientists find fastest growing black hole in universe - ABC News
--  UN-Sicherheitsrat ringt um Feuerpause in Gaza
--  Kertas siasatan banduan merusuh lengkap - Polis
--  Канада скоро ще даде стотици модерни дронове на Украйна (ВИДЕО)
--  今の小中高校生にとって麻雀は「トランプと同じような普通のゲーム」 ゲームで覚えた世代がリアルでも麻雀を
--  Tom Cruise soll schon Elsinas Kinder kennengelernt haben!
+-  Lovci znaků přibližují interaktivní formou písmo i komunikaci od jejich prvopočátku. Vezměte děti a pojďte jim ukázat, co je telegraf či světlotisk nebo si pokecat s robotem Blablátorem
+-  MHP Genel Başkanı Devlet Bahçeli: "Cumhurbaşkanı'nın gerçekleştirdiği Birleşik Arap Emirlikleri ve Mısır ziyaretinin yararlı ve yerinde olduğunu değerlendiriyoruz."
+-  4 שמות, כולל אחיינו של אולי האנס: בגרמניה עשו סדר לגבי המאמן הבא בבאיירן
+-  73 İlde Bin 131 Gözaltı
+-  공장설비 훔치다 경비원에 적발돼 폭행, 징역 4년
+-  Varnostni svet ZN o resoluciji o Gazi: na mizi takojšnja prekinitev ognja #vŽivo
+-  Hrvatska ekonomija rasla najbrže u Europskoj uniji: Evo koliki se rast BDP-a očekuje u zadnjem kvartalu...
+-  Uscătorul unui bloc din Vaslui, transformat în penthouse și închiriat cu 700 lei/noapte. Vecinii reclamanți, anchetați FOTO
+-  Hàng loạt thông tin mới về lương hưu trong năm 2024 tác động tích cực đến người lao động, ai không biết sẽ thiệt
+-  Weniger Luftrettungen in Thüringen: „Christoph 70“ muss seltener abheben
