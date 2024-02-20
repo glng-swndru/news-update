@@ -1,11 +1,11 @@
 # Latest News
--  Haddad: Teremos reunião com Lula amanhã sobre desoneração
--  Haddad: Teremos reunião com Lula amanhã sobre desoneração
--  Haddad: Teremos reunião com Lula amanhã sobre desoneração
--  Anche Zinedine Zidane finisce nel mirino del Bayern per il dopo-Tuchel
--  대전충남지방병무청, 위기대응 훈련 실시
--  Fala de Lula nos isola do mundo democrático e fortalece a oposição no Brasil
--  Bugün netleşiyor
--  Богомаз: силы ПВО сбили украинский дрон в Погарском районе Брянской области
--  Văn khấn cúng sao giải hạn 2024 chuẩn nhất để giải trừ tài ách, cầu bình an, may mắn, phát tài
--  Đại học Kiến trúc Hà Nội tăng điều kiện xét tuyển IELTS
+-  «اتحاد الشرطة» يبرم شراكتين مع الأهلي و«الدراجات الهوائية»
+-  El mérito de Ana Pontón está claro...
+-  愛犬と手でハートを作ろうとしたら…… “ギャル”すぎる神対応に反響続々「あざとい」「カメラ目線で…」
+-  800 drones on way to Ukraine for surveillance, Canada says
+-  No sé, no sé...
+-  Napoli sack Mazzarri, bring in Calzona ahead of Barca tie
+-  Alcaldía de Maturín prioriza salud mental de los jóvenes maturineses
+-  Jueces ‘europeos’
+-  破壊した街に新しい病院や住宅 プーチン政権、「復興」を猛アピール
+-  Transcript : QANTM Intellectual Property Limited, H1 2024 Earnings Call, Feb 20, 2024
