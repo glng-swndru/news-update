@@ -1,11 +1,11 @@
 # Latest News
--  Ana Botín ganó 12,2 millones de euros en 2023 como presidenta de Santander, un 4% más
--  Още трима се присъединиха към националния по баскетбол
--  La Aeronáutica Civil aprobó la solicitud de la aerolínea Emirates para operar en el país
--  El Gobierno anunció aumento de sueldo para gremio de trabajadores estatales: de cuánto será
--  En menos de 10 días mueren dos mujeres en extrañas circunstancias cerca al río Pamplonita en Cúcuta
--  Variação do preço do gás de cozinha tem variação em Dourados
--  Influencer trans asegura que Cristian Castro le fue infiel a su novia con ella; “hicimos cosas”
--  장애인단체, 오늘 4호선 지하철 시위…비오는 출근길 혼잡 예상
--  Канада пообіцяла Україні понад 800 дронів
--  Misterija ubistva ruskog pilota "izdajnika": Koliko je imao godina, koga je video pre smrti?
+-  全国高校「難関私立大合格力」ランキング・ベスト10！3位女子学院、2位洗足学園、1位は？【2024年入試版】 - 中学受験への道
+-  Pep Guardiola offers fresh take on Kyle Walker and Neal Maupay's bitter row
+-  Southampton's Russell Martin wishes Tony Mowbray a speedy recovery
+-  PM to tell farming conference Government is ‘by their side’
+-  Europe Oil and Gas Projects Outlook Report 2024: Focus on United Kingdom, Norway, Poland, Italy, and Germany
+-  〈開運アンコール〉【7万人占ったゲッターズ飯田】アドバイスした時のリアクションでわかる「運をつかめる人」とは？
+-  India v England: Brendon McCullum says his side have ‘no regrets’ despite Rajkot defeat
+-  「事業部長のおごり自販機」を使って分かった魅力と“誤算” TOPPAN担当者が明かす「大失敗」とは
+-  डिप्टी सीएम सम्राट चौधरी के तीखे वार बोले:मुख्यमंत्री नीतीश के राज में सीएम आवास में बैठ कर गुंडागर्दी वाला राजपाट नहीं चल सकता
+-  『Eye Love You』は“韓ドラあるある”だらけ!? 演出からセリフまで注目ポイントを解説
