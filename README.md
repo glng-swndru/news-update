@@ -1,11 +1,11 @@
 # Latest News
--  VIDEO: Dok se Dinamo sprda sa sucima, naš sudački ekspert iznio stav o Komisiji sudaca HNS-a
--  Traitements inhumains, cruels…au sein des M.A.C. : Indignée, l’ONG ADHA exige la lumière sur les responsabilités et des sanctions
--  Jim Nantz shuts down Hideki Matsuyama conspiracy theory at Genesis Invitational
--  Residential Water Filtration Parts & Accessories Market to Reach $13.88 Billion by 2029, Smart Technologies to Act as a Game Changer in the Market - Arizton
--  What a viral post on giraffes says about China’s fed-up investors
--  What a viral post on giraffes says about China’s fed-up investors
--  E' morta Ira Von Furstenberg
--  FOTO Pogledajte kako parkiraju susjedi na Kocunaru
--  Festival de Berlim: “Betânia” leva Bumba Meu Boi e é aplaudido
--  Beşiktaş 2 golle kazandı
+-  Randolfe diz que governo deve ter nesta semana definição sobre MP da reoneração
+-  【精神科医が教える】 心配ごとが頭からスッと消える習慣術 - 精神科医Tomyが教える 30代を悩まず生きる言葉
+-  Αυγενάκης: Συνεχίζουμε με συνέπεια τη λήψη μέτρων υπέρ των αγροτών
+-  Hingucker: Megan Fox zeigt sich mit heißen roten Lippen!
+-  Cauvery pact: a controversial journey
+-  태안군, 이웃사랑 마음 담은 성금 기탁 이어져
+-  당진시, 장애인 직업재활시설 연계고용 협약 맺어
+-  Глава МИД Эквадора пообещала не отправлять советское вооружение Украине
+-  Lastbil i diket – varnar för risk för läckage
+-  당진시, 만선과 안녕 기원, 한진 풍어당제 개최
