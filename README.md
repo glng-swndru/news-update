@@ -1,11 +1,11 @@
 # Latest News
--  Ravintola-arvio | Testasimme georgialaisravintola Lian Koulukadulla – Mausteinen lohturuoka täytti odotukset, mutta yksi asia heikensi viihtyvyyttä
--  Huthi-Attacken: Handels-Präsident kritisiert Deutschland
--  Huthi-Attacken: Handels-Präsident kritisiert Deutschland
--  災害による“地域孤立”を想定 自衛隊ヘリコプターで復旧のための機器を運ぶ訓練 携帯電話大手が参加 北海道札幌市
--  'I Will Ask Dhoni Why Was I Dropped,' Virat Kohli's Contemporary Retires From Cricket But Seeks Explanation From Former Captain
--  وفيات الثلاثاء .. 20 / 2 / 2024
--  いわき市で午前中に21℃超 前線通過に伴い気温が低下 夜にかけ雨模様に《福島・2月20日》
--  デジタル庁、「新型コロナワクチン接種証明アプリ」サービス終了を発表
--  New concrete housing scheme for rural poor
--  First container of Ha Giang pickled daikon in 2024 exported to Japan
+-  Young star midfielder, goalkeeper win Vietnam Golden Ball 2023
+-  Enerjisa Enerji ve MLP Care iş birliği ile sağlıkta temiz enerji dönemi başlatacağını duyurdu
+-  室蘭での在日米軍ＰＣＢ廃棄物処理 「検討の事実ない」 環境相
+-  »Es braucht Luft in diversen Faulecken im Mund«
+-  [12뉴스] 오늘의 주요뉴스
+-  Bulan Madu Kekuasaan
+-  重さ２千キロ超の人工衛星、２１日にも地球に落下 - CNN.co.jp
+-  Joseph, Forsberg lead Senators past Lightning - Sportsnet.ca
+-  »Deshalb ist es gut, die Zunge täglich mit einer Bürste zu reinigen«
+-  Trapped and left for dead, injured Ukrainian soldiers exchanged desperate messages as Avdiivka fell
