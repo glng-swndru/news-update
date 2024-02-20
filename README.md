@@ -1,11 +1,11 @@
 # Latest News
--  Ar Atveseļošanas fonda investīcijām 5,7 miljonu eiro apmērā modernizēs un digitalizēs Latvijas medijus
--  TPHCM huỷ sổ đỏ khu đất 3 mặt tiền rộng gần 31.000 m2
--  Energy Transfer Is Looking at Adding a New Fuel to Help Drive Growth
--  Sorge vor Gasmangel und Wärmewende heizen Absatz von Heizungen an
--  Barcellona, i convocati per Napoli: Xavi recupera Joao Felix e Sergi Roberto
--  Megint nagyon rossz hírt hozott Kunetz Zsombor - és ez csak a jéghegy csúcsa lehet
--  Itt van Pintér Sándorék legújabb bosszúja, már érzik is a hatását
--  FileBot: praktisches Umbenennungs-Tool für Filme
--  Uluslararası Acil Akademik Tıp Kongresi'ne katılan DOSD Meram yoğun ilgi gördü
--  Bailes no konkurences vai aplami principi? Lielās sporta organizācijas asi kritizē “uzlabotās spēles”, kur atļauts lietot dopingu
+-  Şükrü Genç bağımsız aday olduğunu açıkladı
+-  Arthrose erkennen: Achten Sie auf frühe Warnsignale und Symptome
+-  Local volleyball team earns gold in international tournament
+-  „Tag der Bäuerin“ - Vernetzungstreffen der Bäuerinnen
+-  Kokainkurir på Amorella undkom lagens långa arm – kompisen dömdes till fängelse mot sitt nekande
+-  Vialidad y recreación
+-  過去最多の２８２５億円超 鹿児島市の新年度一般会計当初予算 議会に提案
+-  Best Phone Under $300 - CNET
+-  Recordando a Luis Bedoya Reyes
+-  Barrierefrei im Opernhaus Chemnitz: So geht es mit Leonardo da Vinci weiter
