@@ -1,11 +1,11 @@
 # Latest News
--  Rusijos karas prieš Ukrainą. Analitikai: užėmus Avdijivką, rusų puolamųjų operacijų tempas prie miesto smarkiai sulėtėjo
--  Seltenes Zebra-Fohlen im Nürnberger Tiergarten geboren
--  Nuu Waar Pesantren AFKN to Arrange Khatam Quran 6,000 Times
--  Čtyřlístek je nekonečný, ujišťuje duchovní otec legendy Jaroslav Němeček
--  В Гродно пьяный мужчина, угоняя авто, повредил еще четыре машины
--  الحوثيون يستهدفون سفينتين أميركيتين في خليج عدن
--  Минобороны заявило об уничтожении трех дронов над Брянской областью за ночь
--  Sepideh senza velo
--  Оборот поддельной валюты пресечен в Шымкенте
--  İliç'teki maden faciasında tutuklanan 6 kişinin ifadesi ortaya çıktı
+-  Fake police TikTok comedy videos lead to real charge for Santa Fe man
+-  米自動車レースで大クラッシュ発生 20台が巻き込まれる惨事に
+-  Tiga Hari Lagi Persib Lawan Barito, Gelandang Bertahan Andalan Bojan Hodak Ungkap Target 3 Poin
+-  開議首日大戰黃捷搶麥 徐巧芯還原過程：人若犯我、我加倍奉還
+-  이방실 SK하이닉스 부사장, IFRS 자문평의회 위원 선임
+-  이준석, 이낙연 합당 철회에 "참담한 마음…국민에게 사과"
+-  Encontraron muerto al apoderado de Zaffaroni en la casa del ex juez de la Corte
+-  Военкоры показали результат работы РЭБ против украинских дронов
+-  Sydney Swift fans fear the worst
+-  Turista morre afogado em cachoeira na Chapada dos Veadeiros (GO)
