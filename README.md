@@ -1,11 +1,11 @@
 # Latest News
--  Randolfe diz que governo deve ter nesta semana definição sobre MP da reoneração
--  【精神科医が教える】 心配ごとが頭からスッと消える習慣術 - 精神科医Tomyが教える 30代を悩まず生きる言葉
--  Αυγενάκης: Συνεχίζουμε με συνέπεια τη λήψη μέτρων υπέρ των αγροτών
--  Hingucker: Megan Fox zeigt sich mit heißen roten Lippen!
--  Cauvery pact: a controversial journey
--  태안군, 이웃사랑 마음 담은 성금 기탁 이어져
--  당진시, 장애인 직업재활시설 연계고용 협약 맺어
--  Глава МИД Эквадора пообещала не отправлять советское вооружение Украине
--  Lastbil i diket – varnar för risk för läckage
--  당진시, 만선과 안녕 기원, 한진 풍어당제 개최
+-  ビジネスで成果を上げるために必要な、4ループ学習システムとは？ - 起業参謀の戦略書
+-  Am Montag fielen erneut die Server aus: Neuer Ärger mit dem E-Rezept
+-  John remembered fondly after sudden passing
+-  PowerWash Simulator Is Getting Space Marines Because Sometimes The Universe Is Good
+-  Şevval Şahin spor salonundan paylaştı. Fit vücuduyla hayran bıraktı
+-  Wyong preview: Widdup’s classic catches to shine
+-  "Très bien" ou "à refaire"? La nouvelle place de Valberg fait débat
+-  Survey launched to shape government accountability in Closing the Gap
+-  Accès des populations aux communications électroniques : La ministre Aminata Zerbo/Sabané visite la case numérique de Lemnogo
+-  Srbija trenutno ima 79 putnika za Pariz, među njima nije Đoković: Sve što treba da znate o našim predstavnicima na Olimpijskim igrama
