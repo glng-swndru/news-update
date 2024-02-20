@@ -1,11 +1,11 @@
 # Latest News
--  Futbalisti Evertonu remizovali s Crystal Palace 1:1
--  Prof. Dr. Ahmet Ercan bir kez daha uyardı: Deprem için tek çare...
--  Putkirikko | Vesi pitää keittää useilla alueilla Helsingin seudulla
--  Отменени полети от и до Франкфурт и Мюнхен на летище София - Труд
--  트라이비, ‘다이아몬드’ 컴백 쇼케이스 [포토]
--  트라이비, 하나 같은 춤사위 [포토]
--  트라이비, 깜찍한 컴백 쇼케이스 [포토]
--  Aydınlı çiftçinin sorunları 'Efeçem' projesi ile çözülecek
--  Evaluation des Afghanistan-Engagements: Eine Chronologie des Scheiterns
--  Jerca Legan v kopalkah prava paša za oči
+-  Una Voce per San Marino: Daudia passa alla finale
+-  Uludere'nin bu köyünde kar fazla yağmayınca köylüler hayvanlarını erken dağa çıkardı
+-  Kastamonu'da kamyonet ile otomobil çarpıştı: 1 yaralı
+-  Yem yüklü tır devrildi, sürücü yaralandı
+-  국민체육진흥공단, 신보와 스포츠산업 지원 활성화 MOU
+-  Fazla çalışmada birinciyiz! 3 işçiden 1’i haftada 50 saatten fazla çalışıyor
+-  "OSEĆAM KAO DA SI PORED MENE..." Miha bi danas napunio 55 godina, supruga Arijana poslala BOLNU PORUKU (FOTO)
+-  Chân dung 'bóng ma' phiên bản Nga: Mẫu xe nhiều khả năng chính là chiếc ông Putin tặng ông Kim Jong-un
+-  Świetne wieści dla Świątek. Groźna rywalka wylatuje. Aż rzucała rakietą
+-  Jedan od najboljih boksača svih vremena neće nastupiti na OI: Tužan sam i razočaran
