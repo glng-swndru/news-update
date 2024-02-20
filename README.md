@@ -1,11 +1,11 @@
 # Latest News
--  Šok! Ne ide u Pariz! Sjajni vaterpolista gledaće Olimpijske igre na TV!
--  Coronation Street spoilers: Sean Tully faces wrath of broken Maria Connor as bully Dylan Wilson slips up
--  ITV Coronation Street fans spot new clue which 'confirms' Mason and Gary link in huge twist
--  あおり運転が怖いなら「あえて外車デビュー」 初心者にオススメな車種と“いきなりベンツ”の注意点とは？ - それって本当？クルマの「当たり前」
--  Kisbabával forgatta az RTL+ legújabb sorozatát Gáspár Kata
--  Parigi convoca l'ambasciatore russo per Navalny
--  [속보] 尹 "국민생명 볼모로 집단행동 안돼… 의대증원 시대적 과제"
--  Desenrola das empresas pode ter 8 milhões de beneficiados, diz Márcio França
--  Episcopado Mexicano llama a votar el 2 de junio como gesto de justicia y paz
--  Poznata glumica filmova za odrasle izvršila samoubistvo
+-  Trakya'dan doğalgaz müjdesi! Yeni rezerv keşfedildi
+-  NHL ONLINE: Pastrňák v závěru srovnal, pak neproměnil nájezd
+-  Câmara Municipal de Abreu e Lima PE anuncia novo concurso
+-  Ucciso in Spagna il pilota russo che disertò in Ucraina
+-  محمد نور: لو كنت مسئولاً سأختار الهلال لـ اللعب في دوري أبطال أوروبا
+-  Zelensky diz que situação é ‘extremamente difícil’ em partes do front na Ucrânia
+-  Aéroport d’Alger : Mokhtar Mediouni installé à la tête de la SGSIA
+-  Kushinagar News: भाजयुमो जिला उपाध्यक्ष का किया स्वागत
+-  Ubican a sujeto con orden de captura por abusar de una menor
+-  إطلاق مشروع الصحافة البيئية لدعم وتحسين البيئة في الديوانية
