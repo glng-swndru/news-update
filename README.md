@@ -1,11 +1,11 @@
 # Latest News
--  Vì sao không nên sạc điện thoại bằng cổng USB công cộng ở sân bay?
--  SVET O SLOVENSKU: Zomrel slovenský horolezec, osudným sa mu stal najvyšší vrch Ameriky
--  WATCH: How narco boats hide out in the open sea for DAYS before being ordered to drop off drugs in Spain
--  Buongiorno dentro o fuori? Arriva la risposta ufficiale
--  Ukrainian Drone Attacks Drag Russia’s Refining Rates Down by 380,000 Bpd
--  문가영, 작가로 데뷔…산문집 ‘파타’ 3월 출간 [연예뉴스 HOT]
--  Mölln: Entwarnung nach SEK-Einsatz an Berufsschule in Schleswig-Holstein
--  Počeo američki pritisak na Kineze, prve žrtve Audi i Porsche
--  PKS:llä voittoisa viikonloppu– ja paikka sarjakärjessä
--  ‘Shirley’ Trailer: Regina King Portrays First Black Congresswoman in Netflix’s Shirley Chisholm Biopic
+-  Ucrânia considera bloqueio da fronteira com a Polônia uma ‘ameaça à segurança’
+-  Preço da gasolina e do etanol aumenta mais de 2% na 1ª quinzena de fevereiro, aponta IPTL
+-  Frente frío 36 entrará a México; te decimos cuándo llega y cómo afectará al país
+-  Новият спортен директор на Ман Юнайтед може да дойде чак след две години?
+-  Az acélipart a visszapattanás is arcul csapta
+-  Preço da gasolina e do etanol aumenta mais de 2% na 1ª quinzena de fevereiro, aponta IPTL
+-  Вот на доверие за Петев в Университатя Крайова
+-  Güreş Milli Takımı, Ankara'da coşkuyla karşılandı
+-  هذه هي الطريقة التي يمكنك بها استبدال مساعد غوغل بـ Gemini على هاتفك الذي يعمل بنظام أندرويد
+-  Almanya: İsrail’in Refah'a yönelik kara saldırısı yapacağı açıklamasından derin endişe duyuyoruz
