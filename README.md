@@ -1,11 +1,11 @@
 # Latest News
--  Coronation Street spoilers confirm return after 2 months with 'disaster' ahead
--  Yapay zekalı sohbet asistanı, yolcuyu mağdur etti!
--  Marks & Spencer's 'perfect' £17 flared jeggings back in stock and fans urge 'grab them'
--  Jääkiekko | Sebastian Ahon osumaa hehkutettiin – Carolina äitynyt hyvään vireeseen
--  "PRATIO JE I PRETIO JOJ KAD JE IZAŠAO IZ ZATVORA" Meštani otkrili detalje zločina: Bivšu ženu ubio na spratu, taštu na pragu kuće
--  Demenz bei unter 65-Jährigen: Mehrere Faktoren können das Risiko erhöhen
--  Cristiano Ronaldo's controversial take slammed by Eden Hazard who blasts 'I don't agree'
--  Retrieval-Augmented Generation: de techniek die AI accurater maakt
--  金正恩氏に専用車贈呈 ロシアのプーチン大統領
--  Wat is Retrieval-Augmented Generation?
+-  '서울탱고' 가수 방실이, 오랜 투병 끝 별세…향년 61세
+-  Heydər Əliyev Fondunun təşəbbüsü ilə 5 mayda keçiriləcək “Bakı Marafonu 2024”ə qeydiyyat başlayır
+-  Colorado Springs college student arrested in deadly dorm shooting
+-  Rice Is Not Nice: The Truth About Wet iPhones and How to Dry Them
+-  Денков ще се срещне с френския президент Еманюел Макрон в Париж
+-  Savaşta saf değiştiren Rus savaş pilotu Maksim Kuzminov, İspanya'da öldürüldü
+-  국정원, 북 유튜버 '유미' 방심위에 재차단 요청…내주 심의
+-  Motorine İndirim Geliyor
+-  KADIROV: POSLE ZAUZIMANJA AVDIJEVKE RUSIJA JOŠ VEĆIM KORACIMA IDE KA KIJEVU Zelenski: Situacija na frontu &quot;izuzetno teška&quot; (FOTO/VIDEO)
+-  Avro ucuzlaşdı, rubl isə...
