@@ -1,11 +1,11 @@
 # Latest News
--  Young star midfielder, goalkeeper win Vietnam Golden Ball 2023
--  Enerjisa Enerji ve MLP Care iş birliği ile sağlıkta temiz enerji dönemi başlatacağını duyurdu
--  室蘭での在日米軍ＰＣＢ廃棄物処理 「検討の事実ない」 環境相
--  »Es braucht Luft in diversen Faulecken im Mund«
--  [12뉴스] 오늘의 주요뉴스
--  Bulan Madu Kekuasaan
--  重さ２千キロ超の人工衛星、２１日にも地球に落下 - CNN.co.jp
--  Joseph, Forsberg lead Senators past Lightning - Sportsnet.ca
--  »Deshalb ist es gut, die Zunge täglich mit einer Bürste zu reinigen«
--  Trapped and left for dead, injured Ukrainian soldiers exchanged desperate messages as Avdiivka fell
+-  TerraPay nombra presidente a Rubén Salazar Genovez, exdirector de Visa Direct
+-  Golf Journey is minimalistic yet visually stunning golf game now available on iOS
+-  【訴状で主張】「客観的証拠は存在しない」松本人志さん 「週刊文春」記事めぐる裁判 第一回口頭弁論3月28日
+-  Russia accused of executing prisoners of war in Avdiivka after Ukraine withdraws
+-  મેનેજમેન્ટ ફંડા by એન રઘુરામન:મેનેજમેન્ટ ફંડા by એન રઘુરામન: વિદેશમાં ભણવા જઇ રહ્યાં છો તો જાણી લો શું છે GIC, કેનેડાએ ડબલ કરી દીધું છે GIC અમાઉન્ટ
+-  New Forest: Image shows how hotel site will be transformed
+-  「再構築」のJR芸備線めぐり任意協議会設置へ 広島県内の沿線3市
+-  全国初「カスハラ防止条例」制定へ 客による悪質なクレームや要求・暴言・土下座強要…“罰則なし”で検討 東京都
+-  新店大型社區藏金 39戶轉手全都賺「漲幅逾6成」
+-  'I let him down': Ontario man devastated after brother's ashes lost on Air Canada flight
