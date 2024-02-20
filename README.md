@@ -1,11 +1,11 @@
 # Latest News
--  Suara Menyusut, Caleg Pertanyakan Real Count Sirekap
--  قوى الأمن: تعميم صورة الرأس المدبّر لعصابة سلب بقوّة السّلاح وانتحال صفة أمنية
--  ‘탈북자 성추행’ 천기원 1심 징역 5년 선고에 검찰 ‘항소’
--  גופת גבר כבן 80 אותרה בנחל ציפורי
--  В России запретили цитировать иноагентов в СМИ
--  Audiences : Quel score pour le lancement de "L'école à remonter le temps" sur M6 face au retour de "L'art du crime" sur France 2 ?
--  Olena je najubojitija ukrajinska snajperistica. Ratuje 10 godina: 'Putin? Znam tko će ga ubiti...'
--  В МВД возбудили уголовное дело в связи с кадрами неэтичного поведения школьников
--  Sijamske bliznakinje kojima su davali nekoliko dana života...
--  Sukses di Thailand, Kadokawa Siap Jualan Manga dan Novel di Indonesia
+-  Намаляват случаите на остри респираторни заболявания и грип в област Стара Загора
+-  The making of Arsenal goalkeeper David Raya – and his giant hands
+-  Hills of discontent as communities remain blacked out a week after storm
+-  「セクシー田中さん」チームが再タッグ？、日テレ新ドラマが放送延期か
+-  Hình ảnh mẹ bầu "bụng vượt mặt" vẫn đi bốc vác thuê kiếm tiền nuôi con khiến dân mạng xúc động
+-  El superalimento de moda en Galicia es gallego, rico en fibra y muy bajo en calorías
+-  ‘Cease and desist’: The top Sydney school taking on private coaching colleges
+-  "Быть максимально готовыми к нейтрализации рисков и угроз". Лукашенко назвал первоочередные задачи для силовиков
+-  Вече е официално: Левски продаде Дарлан в Китай
+-  Veel regen op komst, maar aan het eind van de vakantie breekt de zon door
