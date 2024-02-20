@@ -1,11 +1,11 @@
 # Latest News
--  Dosarul diplomelor fictive. Percheziţii la Inspectoratul Școlar Mureș şi la Şcoala Postliceală Sanitară "Eugen Nicoară" din Reghin: urmează audieri pe bandă rulantă
--  Minister Boštjančič na službeno srečanje pripeljal sina
--  Dominance Airbusu a Boeingu v ohrožení. Čínský konkurent poprvé vyrazil za hranice
--  Immortals of Aveum blir praktisk talt gitt bort for 1 pund i britiske supermarkeder.
--  حفل جوائز تكريم 2023 في عمان: تكريم الصحافيين في الخطوط الأماميّة وجائزة إنجازات العمر لغسّان أبو ستّة
--  "Oppenheimer" é o grande vencedor da premiação britânica Bafta
--  U Srbiji kritično, planiraju se nove mere: "To će izazvati reakcije antivaksera"
--  В России ответили на заявление премьера Армении Пашиняна об Украине
--  "Večera budala" na daskama Pozorišta mladih Sarajevo
--  Knapper Borat-Badeanzug von Reit-Star sorgt für Olympia-Posse
+-  Mięso może być źródłem śmiertelnego zatrucia! Uważaj na to, gdzie kupujesz wyroby mięsne. Potem może być już za późno
+-  „Уебит Инвестмънт Нетуърк“ пита акционерите си в кои стартъпи да инвестира
+-  Cười "té ghế": Phụ huynh có bằng Thạc sĩ "ra tay" dạy con học, điểm số không những không cải thiện mà còn tụt lùi
+-  野菜の昇格!? ブロッコリーが「指定野菜」に 50年ぶり国が追加でキャベツやトマトの仲間に
+-  Uważaj na zatrute mięso. Przyczyną śmierci od domowych wędlin mogły być te bakterie. Jest wiele powodów, by unikać wyrobów mięsnych z targu
+-  مدافع جوان تراکتور به استقلال خوزستان پیوست
+-  Transit van 'hit and run' sees car driver suffer neck injuries
+-  Boğa Hazırlığı! Son 48 Saatteki Veri Shiba Inu’yu Coşturabilir
+-  Moray Wellbeing Fair to take place at New Elgin Hall
+-  Neću ili ne ću
