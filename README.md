@@ -1,11 +1,11 @@
 # Latest News
--  Türkiye ile Azerbaycan arasında 3 anlaşma imzalandı
--  На ЧМ по пляжному футболу известны две пары 1/4 финала
--  Алькарас: «Люди думают, что я должен выигрывать каждый матч»
--  'Juventus ziet 'nieuwe Huijsen' bij FC Twente en wil talent (16) inlijven'
--  32 urenweek: de werkweek van de toekomst of onhaalbaar voorstel?
--  College student chooses weekly flights over renting to save on housing costs
--  Hurtownia HelloNails – centrum zaopatrzenia stylistek
--  Column Thijs Zonneveld | Irene Schouten was nooit hét grote talent, maar ze blééf geloven in een doorbraak
--  U toku uviđaj o nebezbednom poletanju sa beogradskog aerodroma - probijeno krilo aviona, počelo da curi gorivo (VIDEO)
--  Si te están haciendo falta una vacaciones, estos son los destinos más baratos para viajar a Europa en 2024
+-  VIDEO: Dok se Dinamo sprda sa sucima, naš sudački ekspert iznio stav o Komisiji sudaca HNS-a
+-  Traitements inhumains, cruels…au sein des M.A.C. : Indignée, l’ONG ADHA exige la lumière sur les responsabilités et des sanctions
+-  Jim Nantz shuts down Hideki Matsuyama conspiracy theory at Genesis Invitational
+-  Residential Water Filtration Parts & Accessories Market to Reach $13.88 Billion by 2029, Smart Technologies to Act as a Game Changer in the Market - Arizton
+-  What a viral post on giraffes says about China’s fed-up investors
+-  What a viral post on giraffes says about China’s fed-up investors
+-  E' morta Ira Von Furstenberg
+-  FOTO Pogledajte kako parkiraju susjedi na Kocunaru
+-  Festival de Berlim: “Betânia” leva Bumba Meu Boi e é aplaudido
+-  Beşiktaş 2 golle kazandı
