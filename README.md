@@ -1,11 +1,11 @@
 # Latest News
--  '서울탱고' 가수 방실이, 오랜 투병 끝 별세…향년 61세
--  Heydər Əliyev Fondunun təşəbbüsü ilə 5 mayda keçiriləcək “Bakı Marafonu 2024”ə qeydiyyat başlayır
--  Colorado Springs college student arrested in deadly dorm shooting
--  Rice Is Not Nice: The Truth About Wet iPhones and How to Dry Them
--  Денков ще се срещне с френския президент Еманюел Макрон в Париж
--  Savaşta saf değiştiren Rus savaş pilotu Maksim Kuzminov, İspanya'da öldürüldü
--  국정원, 북 유튜버 '유미' 방심위에 재차단 요청…내주 심의
--  Motorine İndirim Geliyor
--  KADIROV: POSLE ZAUZIMANJA AVDIJEVKE RUSIJA JOŠ VEĆIM KORACIMA IDE KA KIJEVU Zelenski: Situacija na frontu &quot;izuzetno teška&quot; (FOTO/VIDEO)
--  Avro ucuzlaşdı, rubl isə...
+-  Futbalisti Evertonu remizovali s Crystal Palace 1:1
+-  Prof. Dr. Ahmet Ercan bir kez daha uyardı: Deprem için tek çare...
+-  Putkirikko | Vesi pitää keittää useilla alueilla Helsingin seudulla
+-  Отменени полети от и до Франкфурт и Мюнхен на летище София - Труд
+-  트라이비, ‘다이아몬드’ 컴백 쇼케이스 [포토]
+-  트라이비, 하나 같은 춤사위 [포토]
+-  트라이비, 깜찍한 컴백 쇼케이스 [포토]
+-  Aydınlı çiftçinin sorunları 'Efeçem' projesi ile çözülecek
+-  Evaluation des Afghanistan-Engagements: Eine Chronologie des Scheiterns
+-  Jerca Legan v kopalkah prava paša za oči
