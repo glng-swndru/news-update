@@ -1,11 +1,11 @@
 # Latest News
--  Bu fiyata ikinci el bile bulunmaz! O marka gemileri yaktı: 500 bin TL’nin altında satacak
--  【レターパックで現金900万】80代女性だまし取られる…末端の”受け子”役の男2人を逮捕「1回2万円で受け取った」もう1人は容疑否認 大金はどこへ？
--  Frank Roche: Wilting Lilies have more to worry about than a local media spat
--  Liên bộ họp bàn tìm hướng gỡ khó cho các dự án, công trình trọng điểm
--  Buen nivel de Gerson Larios en Marbella
--  Handwerk: Kreis Wesel: Viele Bäckereien geschlossen – die Gründe
--  Sí, la PS1 podía conectarse a internet... Aunque el método era engorroso
--  How rogue solicitor Michael Lynn became ‘Scarlet Pimpernel’ of the Celtic Tiger
--  Former Department of Justice official admits possessing child abuse images
--  Credit unions see 80pc increase in home loans with 1,800 mortgages issued last year
+-  Ravintola-arvio | Testasimme georgialaisravintola Lian Koulukadulla – Mausteinen lohturuoka täytti odotukset, mutta yksi asia heikensi viihtyvyyttä
+-  Huthi-Attacken: Handels-Präsident kritisiert Deutschland
+-  Huthi-Attacken: Handels-Präsident kritisiert Deutschland
+-  災害による“地域孤立”を想定 自衛隊ヘリコプターで復旧のための機器を運ぶ訓練 携帯電話大手が参加 北海道札幌市
+-  'I Will Ask Dhoni Why Was I Dropped,' Virat Kohli's Contemporary Retires From Cricket But Seeks Explanation From Former Captain
+-  وفيات الثلاثاء .. 20 / 2 / 2024
+-  いわき市で午前中に21℃超 前線通過に伴い気温が低下 夜にかけ雨模様に《福島・2月20日》
+-  デジタル庁、「新型コロナワクチン接種証明アプリ」サービス終了を発表
+-  New concrete housing scheme for rural poor
+-  First container of Ha Giang pickled daikon in 2024 exported to Japan
