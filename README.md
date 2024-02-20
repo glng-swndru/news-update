@@ -1,11 +1,11 @@
 # Latest News
--  “Türk Eskobar” və dəstəsinə qarşı əməliyyat keçirildi
--  AAI ATC Result 2023-24: Here’s how to check scorecard, cut-off at aai.aero
--  Budućnost Crne Gore je u Evropskoj uniji
--  Spanien: "Rosa Kokain" im Energydrink: 14-Jähriger stirbt an Drogenkonsum
--  Hetedszer is magyar főszereplő a Bajnokok Ligájában
--  Se še spomnite: mlečni močnik, kot so nam ga kuhale babice
--  Cetak Rekor Muri, Begini Strategi Brand Catokan Lokal Jual 4.000 Produk per Hari
--  Hetedszer is magyar főszereplő a Bajnokok Ligájában
--  Eurovision Song Contest in Malmö: ESC 2024: Diese Acts stehen schon fest
--  Spanien: "Rosa Kokain" im Energydrink: 14-Jähriger stirbt an Drogenkonsum
+-  India formally begins construction for Fermilab’s new particle accelerator in US
+-  HS-gallup | Perus­suomalaiset nousussa, Rkp vajosi ennätyksellisen alas
+-  Russia: Biancofiore, 'fiaccolata esempio di unità, solidarietà a Lega per contestazioni'
+-  Този предател си беше морален труп: Руското разузнаване за убития пилот Кузминов
+-  Çiftçilere ‘fare’ uyarısı: “Kış olmadığı için fareler çoğaldı”
+-  Месси передал 8-й «Золотой мяч» музею «Барсы». Там уже хранятся остальные награды Лионеля
+-  Bomba carta per forzare il distributore di sigarette di via Trieste
+-  มติ สส.ปชป. ยื่นแก้กฎหมายคุมอำนาจราชทัณฑ์ ต่อสภาฯ สืบเนื่องปมพักโทษ “ทักษิณ”
+-  S&P Global может купить аналитическую платформу Visible Alpha за $500 млн
+-  Společnost Envision dominuje čínským OEM výrobcům v objemu zahraničních objednávek větrných turbín v roce 2023
