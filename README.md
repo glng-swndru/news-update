@@ -1,11 +1,11 @@
 # Latest News
--  La Camera conferma la fiducia a governo sul dl Milleproroghe
--  Activists demand justice for Rufo, a fair sentence for his attacker
--  Jaajo Linnonmaa leikkasi kotinsa seinään reiän – sen takaa paljastui käsittämätön löytö
--  Felicitan en Antigua y Barbuda a médicos graduados en Cuba
--  Demonske sile i veštičarenje! Uznemirujući video paranormalnih aktivnosti uplašio svet (VIDEO)
--  В Белоруссии появилось новое приложение для знакомств
--  Fırat Kuvetli adaylık için kolları sıvadı
--  Πώς τα γυρίσματα ταινιών συμβάλλουν στην οικονομία μιας πόλης - Η αύξηση παραγωγών στη Νέα Υόρκη
--  Evo kako se branio bivši direktor Gerontološkog centra u Nišu! Sudi mu se zbog ovoga
--  Klodens hurtigste processor er spottet: Priser på endnu ikke offentliggjort CPU florerer hos forhandlerne
+-  Нови физкултурни салони ще бъдат изградени в три училища в Пазарджик
+-  Odolá nárazům, výkyvům teplot i vrstvě ledu. Skládací displej od Samsungu získal certifikaci MIL-STD 810G
+-  'Ayıntab Bastası' temalı resim sergisi
+-  Вътрешният министър отрече да е имало теч на информация от МВР към Мартин Божанов
+-  Jeste li vidjeli što se dogodilo? Autobus udario pješakinju, preminula je u bolnici
+-  Komarov: Posle zlata na EP zanima me samo plasman na Igre u Parizu
+-  VIDEO Zelenski posjetio vojsku u blizini bojišnice: Hvala vam što branite državu i naše obitelji
+-  Alckmin deve participar de velório do empresário Abilio Diniz em SP nesta segunda-feira
+-  Bayern No dan Liverpool Yes Untuk Xabi Alonso
+-  Polisi Ungkap Modus Penyalahgunaan BBM Bersubsidi di Pelabuhan Tegal
