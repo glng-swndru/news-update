@@ -1,11 +1,11 @@
 # Latest News
--  푸틴, 김정은에 러시아산 승용차 선물…제재 위반 가능성
--  Καναδάς: Περισσότερα από 800 drones θα παραδοθούν σύντομα στην Ουκρανία
--  VIDEO: Influencer drogó y abusó sexualmente de su esposo y lo presumió en entrevista
--  Murilo deveria ser expulso por fraturar costela de Yuri? Ex-árbitros opinam
--  Gualtieri, 'in 5 anni si può fare molto, in 10 si fa tutto'
--  Mogok Kerja Berakhir, PPSU Ancol Diminta Kembali Bekerja, Lurah Bakal Dipanggil Camat
--  Praktična uputstva: Šta muškarci ne vole u krevetu?
--  Pedro Nuno Santos vs Luís Montenegro: ouça aqui o embate entre os líderes do PS e do PSD
--  Palas remijem na "Gudisonu" započeo eru bez Hodžsona
--  Pedro Nuno Santos vs Luís Montenegro: oiça aqui o debate entre os líderes do PS e do PSD
+-  Ana Botín ganó 12,2 millones de euros en 2023 como presidenta de Santander, un 4% más
+-  Още трима се присъединиха към националния по баскетбол
+-  La Aeronáutica Civil aprobó la solicitud de la aerolínea Emirates para operar en el país
+-  El Gobierno anunció aumento de sueldo para gremio de trabajadores estatales: de cuánto será
+-  En menos de 10 días mueren dos mujeres en extrañas circunstancias cerca al río Pamplonita en Cúcuta
+-  Variação do preço do gás de cozinha tem variação em Dourados
+-  Influencer trans asegura que Cristian Castro le fue infiel a su novia con ella; “hicimos cosas”
+-  장애인단체, 오늘 4호선 지하철 시위…비오는 출근길 혼잡 예상
+-  Канада пообіцяла Україні понад 800 дронів
+-  Misterija ubistva ruskog pilota "izdajnika": Koliko je imao godina, koga je video pre smrti?
