@@ -1,11 +1,11 @@
 # Latest News
--  Veste șocantă pentru familia lui Navalnîi. Anchetatorii ruși au anunțat cât timp va fi examinat trupul acestuia
--  Botón antipánico por presencia indeseada de ex pareja munido de una tumbera
--  Prouni: prazo para comprovar dados termina nesta terça-feira
--  Bundesliga: Die Knackpunkt-Knacker aus Leverkusen
--  Alckmin presta homenagem a Abílio Diniz, permanecendo por cerca de 30 minutos no velório
--  Alckmin presta homenagem a Abílio Diniz, permanecendo por cerca de 30 minutos no velório
--  Iran’s non-oil trade with Tajikistan increases
--  A Suzzara rogo notturno nella casa abitata dai disperati
--  Вдовицата на Алексей Навални обещава да продължи делото му
--  Arquitetura prisional precisa ser revista
+-  Türkiye ile Azerbaycan arasında 3 anlaşma imzalandı
+-  На ЧМ по пляжному футболу известны две пары 1/4 финала
+-  Алькарас: «Люди думают, что я должен выигрывать каждый матч»
+-  'Juventus ziet 'nieuwe Huijsen' bij FC Twente en wil talent (16) inlijven'
+-  32 urenweek: de werkweek van de toekomst of onhaalbaar voorstel?
+-  College student chooses weekly flights over renting to save on housing costs
+-  Hurtownia HelloNails – centrum zaopatrzenia stylistek
+-  Column Thijs Zonneveld | Irene Schouten was nooit hét grote talent, maar ze blééf geloven in een doorbraak
+-  U toku uviđaj o nebezbednom poletanju sa beogradskog aerodroma - probijeno krilo aviona, počelo da curi gorivo (VIDEO)
+-  Si te están haciendo falta una vacaciones, estos son los destinos más baratos para viajar a Europa en 2024
