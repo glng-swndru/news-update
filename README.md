@@ -1,11 +1,11 @@
 # Latest News
--  Giordani: "Sonepar conferma Padova territorio accogliente per le imprese"
--  So können Sie im heimischen Garten Geld sparen
--  Tennis: Binaghi, 'Sinner campione in campo e fuori, ora così per 10 anni'
--  Tennis: Sinner, 'non ho paura di sbagliare, vedremo come reagirò al primo fallimento'
--  Verfassungsschutz und Südkorea warnen: Nordkorea attackiert Rüstungsunternehmen
--  Verfassungsschutz und Südkorea warnen: Nordkorea attackiert Rüstungsunternehmen
--  Тежък инцидент с халф на Миньор Перник
--  Satelitul european ERS-2 se va prăbuși prin atmosfera terestră la 21 februarie. Există riscuri pentru oamenire?
--  Meta leaves Apple's 30% fee for boosted posts to advertisers
--  Eltűnt több mint 220 ezer katás a Számlázz.hu-nál
+-  La Camera conferma la fiducia a governo sul dl Milleproroghe
+-  Activists demand justice for Rufo, a fair sentence for his attacker
+-  Jaajo Linnonmaa leikkasi kotinsa seinään reiän – sen takaa paljastui käsittämätön löytö
+-  Felicitan en Antigua y Barbuda a médicos graduados en Cuba
+-  Demonske sile i veštičarenje! Uznemirujući video paranormalnih aktivnosti uplašio svet (VIDEO)
+-  В Белоруссии появилось новое приложение для знакомств
+-  Fırat Kuvetli adaylık için kolları sıvadı
+-  Πώς τα γυρίσματα ταινιών συμβάλλουν στην οικονομία μιας πόλης - Η αύξηση παραγωγών στη Νέα Υόρκη
+-  Evo kako se branio bivši direktor Gerontološkog centra u Nišu! Sudi mu se zbog ovoga
+-  Klodens hurtigste processor er spottet: Priser på endnu ikke offentliggjort CPU florerer hos forhandlerne
