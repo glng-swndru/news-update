@@ -1,11 +1,11 @@
 # Latest News
--  «Рубин» подписал 17-летнего иранского футболиста Тахери
--  Como ser uma pessoa mais criativa no trabalho
--  GLUMICA IZ FILMOVA ZA ODRASLE IZVRŠILA SAMOUBISTVO: Oduzela sebi život u 36. godini
--  БУГАРИЈА ГО БИРА ХЈУНДАИ ПРЕД БЕХТЕЛ ЗА ПРОШИРУВАЊЕ НА НУКЛЕАРНАТА ЦЕНТРАЛА КОЗЛОДУЈ? Јужнокореецот ја надминува силната конкуренција
--  Ukrayna'ya iltica eden Rus pilot İspanya'da vurularak öldürüldü! Cesedinde çok sayıda kurşun izine rastlandı
--  Hayleys Aventura and Invertek power greener industries through energy efficiency
--  Medie: Kendt pornostjerne død som 36-årig
--  Işın Tedavisi Nedir?
--  Судно подверглось нападению у берегов Йемена
--  Bhadohi News: सीबीएसई परीक्षाः पहले दिन 17 ने नहीं दी परीक्षा
+-  پیچ‌وتاب‌های انتخابات در سرزمین کودتاها
+-  Auktion bei "The Biggest Loser" führt zum Streit in Team Rot
+-  珺瓏灣蝕45% 4年前九成一按入市 開放式234萬沽 原業主或「抬錢」賣樓
+-  قول تجاری سفیر به فعالان اقتصادی
+-  دور‌اندیشی ؛ از تولید تا واردات
+-  انتخابات 2024 پاکستان
+-  北水回歸 恒指三連升斷纜挫184點
+-  «Тампа-Бэй» — «Оттава»: смотреть трансляцию матча НХЛ в прямом эфире
+-  湯文亮：香港銀行非常大方
+-  اما و اگرهای رونق اسفند
