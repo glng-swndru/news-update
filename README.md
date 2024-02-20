@@ -1,11 +1,11 @@
 # Latest News
--  Şükrü Genç bağımsız aday olduğunu açıkladı
--  Arthrose erkennen: Achten Sie auf frühe Warnsignale und Symptome
--  Local volleyball team earns gold in international tournament
--  „Tag der Bäuerin“ - Vernetzungstreffen der Bäuerinnen
--  Kokainkurir på Amorella undkom lagens långa arm – kompisen dömdes till fängelse mot sitt nekande
--  Vialidad y recreación
--  過去最多の２８２５億円超 鹿児島市の新年度一般会計当初予算 議会に提案
--  Best Phone Under $300 - CNET
--  Recordando a Luis Bedoya Reyes
--  Barrierefrei im Opernhaus Chemnitz: So geht es mit Leonardo da Vinci weiter
+-  “Türk Eskobar” və dəstəsinə qarşı əməliyyat keçirildi
+-  AAI ATC Result 2023-24: Here’s how to check scorecard, cut-off at aai.aero
+-  Budućnost Crne Gore je u Evropskoj uniji
+-  Spanien: "Rosa Kokain" im Energydrink: 14-Jähriger stirbt an Drogenkonsum
+-  Hetedszer is magyar főszereplő a Bajnokok Ligájában
+-  Se še spomnite: mlečni močnik, kot so nam ga kuhale babice
+-  Cetak Rekor Muri, Begini Strategi Brand Catokan Lokal Jual 4.000 Produk per Hari
+-  Hetedszer is magyar főszereplő a Bajnokok Ligájában
+-  Eurovision Song Contest in Malmö: ESC 2024: Diese Acts stehen schon fest
+-  Spanien: "Rosa Kokain" im Energydrink: 14-Jähriger stirbt an Drogenkonsum
