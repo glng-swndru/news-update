@@ -1,11 +1,11 @@
 # Latest News
--  Fake police TikTok comedy videos lead to real charge for Santa Fe man
--  米自動車レースで大クラッシュ発生 20台が巻き込まれる惨事に
--  Tiga Hari Lagi Persib Lawan Barito, Gelandang Bertahan Andalan Bojan Hodak Ungkap Target 3 Poin
--  開議首日大戰黃捷搶麥 徐巧芯還原過程：人若犯我、我加倍奉還
--  이방실 SK하이닉스 부사장, IFRS 자문평의회 위원 선임
--  이준석, 이낙연 합당 철회에 "참담한 마음…국민에게 사과"
--  Encontraron muerto al apoderado de Zaffaroni en la casa del ex juez de la Corte
--  Военкоры показали результат работы РЭБ против украинских дронов
--  Sydney Swift fans fear the worst
--  Turista morre afogado em cachoeira na Chapada dos Veadeiros (GO)
+-  Žiemiški orai sugrįžo tik trumpam – jau ketvirtadienį numatomi 9 laipsniai šilumos
+-  Strany ladí kandidátky do krajských voleb. Vznikají nové koalice, ODS jde sama
+-  Five passengers killed as bus hits landmine in Mogadishu
+-  Bukan Cuma Vincent Rompies, Ini Profil Dokter Spesialis Urologi Edwin Tobing: Diduga Orangtua Pelaku Bullying di Binus
+-  Edinburgh-based connectivity firm Commsworld top of class with new seven-figure Dundee schools contract
+-  化粧品ブランド「オルビス」無人店舗 盛岡市にオープン 東北初展開＜岩手県＞
+-  Frage des Tages: Verfolgen Sie die Berlinale?
+-  Uradno: iz ZDA v Evropo nova znamka, Slovenije še ni na spisku
+-  Juhuhu
+-  Utorok bude oblačný, treba počítať s prehánkami
