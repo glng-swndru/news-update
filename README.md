@@ -1,11 +1,11 @@
 # Latest News
--  Grafing hat Dresdens Flatterbälle nicht im Griff
--  Благодаря стратегическому партнеру США у России полно денег от торговли нефтью
--  Resmi Açıklama Geldi: Koç Grubuna Ait Dev Şirket 2.5 Milyar Liraya Satıldı
--  За спиной Зеленского - шум русского оружия: президента окрестили символом самых громких провалов ВСУ
--  Systém elektronických přihlášek měl výpadek, nefungoval dvě hodiny
--  Investigadores russos vão examinar corpo de Navalny por ao menos ’14 dias’
--  Criança é atingida em tiroteio na zona Sul de Porto Alegre
--  NHS hospital worker charged with 'sex assault of patient who came in for foot operation'
--  Navalného smrt mi připomněla úpadek USA a nespravedlivé soudy, řekl Trump
--  Prezidentka absolvuje v utorok obed s bývalými hlavami štátu
+-  REKORDAN IZNOS ZA MIROVINE Vlada Federacije predstavila proračun za ovu godinu, najveći u povijesti FBiH
+-  KI-Shootingstar OpenAI: Video-Tool Sora und $80-Milliarden-Bewertung
+-  Επαναδιεκδικεί τη Δημαρχία Στροβόλου ο Ανδρέας Παπαχαραλάμπους
+-  Warning issued in Costessey after 10 cars are broken into
+-  Alckmin diz que posição do presidente Lula é pela paz na Palestina
+-  Христо Христов спечели седми медал за България от ЕП
+-  ¿Qué dinosaurios podían volar? Estudio aporta nuevas claves al respecto
+-  Beylikdüzü E-5 yan yolda feci kaza: 1'i ağır 3 yaralı
+-  Gazzeli çocuğun görüntüleri yürekleri dağladı
+-  Colheita de soja do Brasil 23/24 alcança 32%, diz AgRural
