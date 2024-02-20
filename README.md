@@ -1,11 +1,11 @@
 # Latest News
--  Farmers reject Centre’s 5-year MSP contract offer, to resume ‘Delhi Chalo’ on Feb 21
--  SM Prime income soars 33% to P40B
--  Skíðavikan um páskana
--  "ردًّا على انفجار قطعة جوية في منطقة طبريا"... ادرعي يتبنى غارة الغازية!
--  "Nuove sanzioni contro Putin". Morte Navalny, la minaccia di Biden
--  'Not in our interest': Farmer leaders reject govt's proposal on MSP, 'Delhi Chalo' protest to resume on F - The Times of India
--  Нинова в Пловдив: Идеалът на Апостола още не е изпълнен, в дълг сме към него
--  Navaľného telo rodine nevydajú ešte najmenej 14 dní
--  Pablo Sandoval firma contrato de ligas menores con Gigantes de SF
--  Azərbaycan klublarının ümumi gəliri məlum olub
+-  Cepa 21 valora en 2,5 millones de euros los daños del sabotaje en la bodega
+-  德國央行：經濟恐連兩季萎縮 可能陷入技術性衰退
+-  ما حقيقة صورة الملك المتداولة على مواقع التواصل؟
+-  Guy Marius révéle les circonstances du décès de la femme de Didier Badji
+-  PM da reserva diz que bebeu cerveja e bateu em van ao desviar de pessoas na rua
+-  Las FFAA rusas liberan la planta en Avdéyevka y provocan más de 1.000 bajas en las tropas de Ucrania
+-  Roy Hodgson steps down as Crystal Palace manager
+-  Roy Hodgson steps down as Crystal Palace manager
+-  Roy Hodgson steps down as Crystal Palace manager
+-  Roy Hodgson steps down as Crystal Palace manager
