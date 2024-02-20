@@ -1,11 +1,11 @@
 # Latest News
--  Cepa 21 valora en 2,5 millones de euros los daños del sabotaje en la bodega
--  德國央行：經濟恐連兩季萎縮 可能陷入技術性衰退
--  ما حقيقة صورة الملك المتداولة على مواقع التواصل؟
--  Guy Marius révéle les circonstances du décès de la femme de Didier Badji
--  PM da reserva diz que bebeu cerveja e bateu em van ao desviar de pessoas na rua
--  Las FFAA rusas liberan la planta en Avdéyevka y provocan más de 1.000 bajas en las tropas de Ucrania
--  Roy Hodgson steps down as Crystal Palace manager
--  Roy Hodgson steps down as Crystal Palace manager
--  Roy Hodgson steps down as Crystal Palace manager
--  Roy Hodgson steps down as Crystal Palace manager
+-  Grafing hat Dresdens Flatterbälle nicht im Griff
+-  Благодаря стратегическому партнеру США у России полно денег от торговли нефтью
+-  Resmi Açıklama Geldi: Koç Grubuna Ait Dev Şirket 2.5 Milyar Liraya Satıldı
+-  За спиной Зеленского - шум русского оружия: президента окрестили символом самых громких провалов ВСУ
+-  Systém elektronických přihlášek měl výpadek, nefungoval dvě hodiny
+-  Investigadores russos vão examinar corpo de Navalny por ao menos ’14 dias’
+-  Criança é atingida em tiroteio na zona Sul de Porto Alegre
+-  NHS hospital worker charged with 'sex assault of patient who came in for foot operation'
+-  Navalného smrt mi připomněla úpadek USA a nespravedlivé soudy, řekl Trump
+-  Prezidentka absolvuje v utorok obed s bývalými hlavami štátu
