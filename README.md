@@ -1,11 +1,11 @@
 # Latest News
--  联国:90%患传染病 加沙罹难儿童恐暴增
--  Hinterm Arlberg ist die Fußball-Welt noch in Ordnung
--  York's Paul Jubb beaten in Glasgow Challenger Final
--  Leao PSG e non solo, i parigini fanno spesa al Milan: altri due rossoneri nel mirino
--  Nőhet idén a világ gáztermelése
--  As the Chicago White Sox eye a new ballpark, some players still enjoy the one they call home
--  „A hittanórán maga mellé ültette, és belenyúlt a bugyijába” – Vád alá helyezték Sz. atyát
--  Hilft beim Abnehmen - Deshalb sollten Sie jeden Morgen Selleriesaft trinken
--  Exclusive: Fabrizio Romano responds to big names being linked with Bayern Munich job
--  PENZIONERIMA 500 KNjIGA NA POKLON: Akcija novosadske Galerije likovne umetnosti "Poklon-zbirka Rajka Mamuzića"
+-  Ünlü oyuncu Selen Soyder'in annesi hayatını kaybetti 'Beni ve babamı bırakmak zorunda kaldı'
+-  Support for victims of crime in the Highlands
+-  【高知】四万十市江川崎で夏日の一歩手前24.9度 高知市カワヅザクラ咲き誇る
+-  Coupe de France : les billets du quart entre Le Puy Foot et Rennes à Geoffroy-Guichard s'arrachent, de nouvelles tribunes ouvrent
+-  Klan News – Edicioni i lajmeve, ora 09:00
+-  25-jähriger Osnabrücker erscheint vor Gericht, obwohl er längst freigesprochen war
+-  鈴木奈々、人気女子レスラーと双子級2ショットに反響
+-  Le sprinteur de l'Aclam Paul Lada revient sur ses premiers championnats de France en salle
+-  T-Mobile obsadí ředitelskou pozici. Zkušená manažerka přichází z mateřského Deutsche Telekomu
+-  Czarzasty apeluje do Trzeciej Drogi ws. aborcji. "Mam tego dość. Hołownia z Kosiniakiem blokują ustawy"
