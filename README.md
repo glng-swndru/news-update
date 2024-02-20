@@ -1,11 +1,11 @@
 # Latest News
--  Tsingshan, nichel e batterie e la corsa ai sussidi USA
--  Kryptowährungen & Co: Diese Krypto-Fragen werden bei Google am häufigsten gestellt
--  日도쿄증시 시총, 3년 반만에 中상하이증시 앞질러…亞 1위 탈환
--  Kirkonkellot soivat Ukrainalle ja kutsuvat rukoushetkeen
--  Esenler semt pazarında İmamoğlu izdihamı. Adıyamanlı depremzededen Erdoğan’a 'tehdit' tepkisi
--  Son 14, tienen más de 40 años y realizan una aventura que los mantiene unidos: “El único requisito es que prenda, el resto vamos viendo”
--  Trabzonspor, Avrupa'nın en kötü 10 takımı arasına girdi!
--  Politik Güğüm - 20 Şubat 2024
--  Virgin Australia CEO Jayne Hrdlicka to step down
--  Ruang khas merokok: Cukup dalam lakaran kotak merah tanpa bumbung, kerusi
+-  Coronation Street spoilers confirm return after 2 months with 'disaster' ahead
+-  Yapay zekalı sohbet asistanı, yolcuyu mağdur etti!
+-  Marks & Spencer's 'perfect' £17 flared jeggings back in stock and fans urge 'grab them'
+-  Jääkiekko | Sebastian Ahon osumaa hehkutettiin – Carolina äitynyt hyvään vireeseen
+-  "PRATIO JE I PRETIO JOJ KAD JE IZAŠAO IZ ZATVORA" Meštani otkrili detalje zločina: Bivšu ženu ubio na spratu, taštu na pragu kuće
+-  Demenz bei unter 65-Jährigen: Mehrere Faktoren können das Risiko erhöhen
+-  Cristiano Ronaldo's controversial take slammed by Eden Hazard who blasts 'I don't agree'
+-  Retrieval-Augmented Generation: de techniek die AI accurater maakt
+-  金正恩氏に専用車贈呈 ロシアのプーチン大統領
+-  Wat is Retrieval-Augmented Generation?
