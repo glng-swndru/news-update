@@ -1,11 +1,11 @@
 # Latest News
--  Ünlü oyuncu Selen Soyder'in annesi hayatını kaybetti 'Beni ve babamı bırakmak zorunda kaldı'
--  Support for victims of crime in the Highlands
--  【高知】四万十市江川崎で夏日の一歩手前24.9度 高知市カワヅザクラ咲き誇る
--  Coupe de France : les billets du quart entre Le Puy Foot et Rennes à Geoffroy-Guichard s'arrachent, de nouvelles tribunes ouvrent
--  Klan News – Edicioni i lajmeve, ora 09:00
--  25-jähriger Osnabrücker erscheint vor Gericht, obwohl er längst freigesprochen war
--  鈴木奈々、人気女子レスラーと双子級2ショットに反響
--  Le sprinteur de l'Aclam Paul Lada revient sur ses premiers championnats de France en salle
--  T-Mobile obsadí ředitelskou pozici. Zkušená manažerka přichází z mateřského Deutsche Telekomu
--  Czarzasty apeluje do Trzeciej Drogi ws. aborcji. "Mam tego dość. Hołownia z Kosiniakiem blokują ustawy"
+-  Ar Atveseļošanas fonda investīcijām 5,7 miljonu eiro apmērā modernizēs un digitalizēs Latvijas medijus
+-  TPHCM huỷ sổ đỏ khu đất 3 mặt tiền rộng gần 31.000 m2
+-  Energy Transfer Is Looking at Adding a New Fuel to Help Drive Growth
+-  Sorge vor Gasmangel und Wärmewende heizen Absatz von Heizungen an
+-  Barcellona, i convocati per Napoli: Xavi recupera Joao Felix e Sergi Roberto
+-  Megint nagyon rossz hírt hozott Kunetz Zsombor - és ez csak a jéghegy csúcsa lehet
+-  Itt van Pintér Sándorék legújabb bosszúja, már érzik is a hatását
+-  FileBot: praktisches Umbenennungs-Tool für Filme
+-  Uluslararası Acil Akademik Tıp Kongresi'ne katılan DOSD Meram yoğun ilgi gördü
+-  Bailes no konkurences vai aplami principi? Lielās sporta organizācijas asi kritizē “uzlabotās spēles”, kur atļauts lietot dopingu
