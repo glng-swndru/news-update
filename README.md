@@ -1,11 +1,11 @@
 # Latest News
--  A Haitian judge indicted former first lady Martine Moïse, as well as the country's former prime minister and police chief, in connection with the 2021 assassination of President Jovenel Moïse.
--  FBI director Wray told intelligence chiefs and policymakers at a security conference in Germany that China's efforts to covertly plant offensive malware inside U.S. infrastructure networks have reached an unprecedented scale.
--  Nikki Haley criticized Trump for neglecting to weigh in on the prison death of Alexei Navalny, an anticorruption campaigner who had opposed Putin.
--  Warnstreik beim Lufthansa-Bodenpersonal angelaufen
--  Waltroperin Gabriele wird „jeden Tag blinder“: Jetzt sucht sie eine Wohnung in Dortmund
--  Måtte forklare en kasse vin
--  Israel gave Hamas a March deadline to return the hostages held in Gaza or face a ground offensive in Rafah, the first timeline it has provided for operations that have become a source of tension with the U.S.
--  Leming: Kolja, Reinhold und Verena und ihre wilde Reise an den Balaton
--  චරිත හේරත්ගෙන් ජනතාවට උපදෙසක්
--  The Biden administration is looking to financially prop up the Palestinian Authority as officials in Ramallah warn it is close to running out of money, potentially jeopardizing U.S. hopes the organization will eventually govern Gaza.
+-  Rusijos karas prieš Ukrainą. Analitikai: užėmus Avdijivką, rusų puolamųjų operacijų tempas prie miesto smarkiai sulėtėjo
+-  Seltenes Zebra-Fohlen im Nürnberger Tiergarten geboren
+-  Nuu Waar Pesantren AFKN to Arrange Khatam Quran 6,000 Times
+-  Čtyřlístek je nekonečný, ujišťuje duchovní otec legendy Jaroslav Němeček
+-  В Гродно пьяный мужчина, угоняя авто, повредил еще четыре машины
+-  الحوثيون يستهدفون سفينتين أميركيتين في خليج عدن
+-  Минобороны заявило об уничтожении трех дронов над Брянской областью за ночь
+-  Sepideh senza velo
+-  Оборот поддельной валюты пресечен в Шымкенте
+-  İliç'teki maden faciasında tutuklanan 6 kişinin ifadesi ortaya çıktı
