@@ -1,11 +1,11 @@
 # Latest News
--  全国高校「難関私立大合格力」ランキング・ベスト10！3位女子学院、2位洗足学園、1位は？【2024年入試版】 - 中学受験への道
--  Pep Guardiola offers fresh take on Kyle Walker and Neal Maupay's bitter row
--  Southampton's Russell Martin wishes Tony Mowbray a speedy recovery
--  PM to tell farming conference Government is ‘by their side’
--  Europe Oil and Gas Projects Outlook Report 2024: Focus on United Kingdom, Norway, Poland, Italy, and Germany
--  〈開運アンコール〉【7万人占ったゲッターズ飯田】アドバイスした時のリアクションでわかる「運をつかめる人」とは？
--  India v England: Brendon McCullum says his side have ‘no regrets’ despite Rajkot defeat
--  「事業部長のおごり自販機」を使って分かった魅力と“誤算” TOPPAN担当者が明かす「大失敗」とは
--  डिप्टी सीएम सम्राट चौधरी के तीखे वार बोले:मुख्यमंत्री नीतीश के राज में सीएम आवास में बैठ कर गुंडागर्दी वाला राजपाट नहीं चल सकता
--  『Eye Love You』は“韓ドラあるある”だらけ!? 演出からセリフまで注目ポイントを解説
+-  Lewandowski autoriza uso da Força Nacional para buscas de fugitivos em Mossoró
+-  Corregedoria de Justiça cobra de tribunais realização de concursos para cartórios vagos
+-  Aim is to ensure nobody is left behind in welfare stakes: PM Modi - The Times of India
+-  "젊은데 일 안 해" 훈계했다가 뺨 맞자 흉기로 찔러…징역 5년
+-  Aim is to ensure nobody is left behind in welfare stakes: PM Modi - The Times of India
+-  Os destaques do Sporting: leão não perde o estilo mesmo vestindo de negro
+-  Corregedoria de Justiça cobra de tribunais realização de concursos para cartórios vagos
+-  HLV Trần Công Minh: 'Quả bóng vàng là cảm hứng và động lực cho các cầu thủ'
+-  Corregedoria de Justiça cobra de tribunais realização de concursos para cartórios vagos
+-  Ostapenko jāapspēlē nomināli vājāka pretiniece, lai tiktu Dohas 1/8 finālā
