@@ -1,11 +1,11 @@
 # Latest News
--  Lewandowski autoriza uso da Força Nacional para buscas de fugitivos em Mossoró
--  Corregedoria de Justiça cobra de tribunais realização de concursos para cartórios vagos
--  Aim is to ensure nobody is left behind in welfare stakes: PM Modi - The Times of India
--  "젊은데 일 안 해" 훈계했다가 뺨 맞자 흉기로 찔러…징역 5년
--  Aim is to ensure nobody is left behind in welfare stakes: PM Modi - The Times of India
--  Os destaques do Sporting: leão não perde o estilo mesmo vestindo de negro
--  Corregedoria de Justiça cobra de tribunais realização de concursos para cartórios vagos
--  HLV Trần Công Minh: 'Quả bóng vàng là cảm hứng và động lực cho các cầu thủ'
--  Corregedoria de Justiça cobra de tribunais realização de concursos para cartórios vagos
--  Ostapenko jāapspēlē nomināli vājāka pretiniece, lai tiktu Dohas 1/8 finālā
+-  Haddad: Teremos reunião com Lula amanhã sobre desoneração
+-  Haddad: Teremos reunião com Lula amanhã sobre desoneração
+-  Haddad: Teremos reunião com Lula amanhã sobre desoneração
+-  Anche Zinedine Zidane finisce nel mirino del Bayern per il dopo-Tuchel
+-  대전충남지방병무청, 위기대응 훈련 실시
+-  Fala de Lula nos isola do mundo democrático e fortalece a oposição no Brasil
+-  Bugün netleşiyor
+-  Богомаз: силы ПВО сбили украинский дрон в Погарском районе Брянской области
+-  Văn khấn cúng sao giải hạn 2024 chuẩn nhất để giải trừ tài ách, cầu bình an, may mắn, phát tài
+-  Đại học Kiến trúc Hà Nội tăng điều kiện xét tuyển IELTS
