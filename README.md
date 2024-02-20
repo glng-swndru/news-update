@@ -1,11 +1,11 @@
 # Latest News
--  Намаляват случаите на остри респираторни заболявания и грип в област Стара Загора
--  The making of Arsenal goalkeeper David Raya – and his giant hands
--  Hills of discontent as communities remain blacked out a week after storm
--  「セクシー田中さん」チームが再タッグ？、日テレ新ドラマが放送延期か
--  Hình ảnh mẹ bầu "bụng vượt mặt" vẫn đi bốc vác thuê kiếm tiền nuôi con khiến dân mạng xúc động
--  El superalimento de moda en Galicia es gallego, rico en fibra y muy bajo en calorías
--  ‘Cease and desist’: The top Sydney school taking on private coaching colleges
--  "Быть максимально готовыми к нейтрализации рисков и угроз". Лукашенко назвал первоочередные задачи для силовиков
--  Вече е официално: Левски продаде Дарлан в Китай
--  Veel regen op komst, maar aan het eind van de vakantie breekt de zon door
+-  中華男籃在吵失能險 羅嘉仁在12強賽受傷獲賠514萬
+-  На Землю упадет неуправляемый спутник
+-  La apicultura frente a las altas temperaturas
+-  À 23 ans, le boulanger Antoine Lucas, à Chartres, multiplie les concours et collectionne les prix
+-  À Vernouillet, un bus roule contre la fracture numérique des seniors
+-  【速報】スノーピーク（新潟三条市）が自社買収（ＭＢＯ）を実施、ベインキャピタル系が株式公開買い付け（ＴＯＢ）へ - 新潟日報デジタルプラス
+-  WH40K: Rogue Trader har fått en massiv patch
+-  «Челси» хочет подписать Кейна летом
+-  Riwayat Pendidikan Ahmad Dhani, Sindir Anies Baswedan dengan Kata Kasar: Bukan Ajang Bacot-bacotan
+-  Zomrel legendárny Andreas Brehme. V roku 1990 rozhodol o titule majstrov sveta
