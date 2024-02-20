@@ -1,11 +1,11 @@
 # Latest News
--  TerraPay nombra presidente a Rubén Salazar Genovez, exdirector de Visa Direct
--  Golf Journey is minimalistic yet visually stunning golf game now available on iOS
--  【訴状で主張】「客観的証拠は存在しない」松本人志さん 「週刊文春」記事めぐる裁判 第一回口頭弁論3月28日
--  Russia accused of executing prisoners of war in Avdiivka after Ukraine withdraws
--  મેનેજમેન્ટ ફંડા by એન રઘુરામન:મેનેજમેન્ટ ફંડા by એન રઘુરામન: વિદેશમાં ભણવા જઇ રહ્યાં છો તો જાણી લો શું છે GIC, કેનેડાએ ડબલ કરી દીધું છે GIC અમાઉન્ટ
--  New Forest: Image shows how hotel site will be transformed
--  「再構築」のJR芸備線めぐり任意協議会設置へ 広島県内の沿線3市
--  全国初「カスハラ防止条例」制定へ 客による悪質なクレームや要求・暴言・土下座強要…“罰則なし”で検討 東京都
--  新店大型社區藏金 39戶轉手全都賺「漲幅逾6成」
--  'I let him down': Ontario man devastated after brother's ashes lost on Air Canada flight
+-  A Haitian judge indicted former first lady Martine Moïse, as well as the country's former prime minister and police chief, in connection with the 2021 assassination of President Jovenel Moïse.
+-  FBI director Wray told intelligence chiefs and policymakers at a security conference in Germany that China's efforts to covertly plant offensive malware inside U.S. infrastructure networks have reached an unprecedented scale.
+-  Nikki Haley criticized Trump for neglecting to weigh in on the prison death of Alexei Navalny, an anticorruption campaigner who had opposed Putin.
+-  Warnstreik beim Lufthansa-Bodenpersonal angelaufen
+-  Waltroperin Gabriele wird „jeden Tag blinder“: Jetzt sucht sie eine Wohnung in Dortmund
+-  Måtte forklare en kasse vin
+-  Israel gave Hamas a March deadline to return the hostages held in Gaza or face a ground offensive in Rafah, the first timeline it has provided for operations that have become a source of tension with the U.S.
+-  Leming: Kolja, Reinhold und Verena und ihre wilde Reise an den Balaton
+-  චරිත හේරත්ගෙන් ජනතාවට උපදෙසක්
+-  The Biden administration is looking to financially prop up the Palestinian Authority as officials in Ramallah warn it is close to running out of money, potentially jeopardizing U.S. hopes the organization will eventually govern Gaza.
