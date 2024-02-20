@@ -1,11 +1,11 @@
 # Latest News
--  Ucrânia considera bloqueio da fronteira com a Polônia uma ‘ameaça à segurança’
--  Preço da gasolina e do etanol aumenta mais de 2% na 1ª quinzena de fevereiro, aponta IPTL
--  Frente frío 36 entrará a México; te decimos cuándo llega y cómo afectará al país
--  Новият спортен директор на Ман Юнайтед може да дойде чак след две години?
--  Az acélipart a visszapattanás is arcul csapta
--  Preço da gasolina e do etanol aumenta mais de 2% na 1ª quinzena de fevereiro, aponta IPTL
--  Вот на доверие за Петев в Университатя Крайова
--  Güreş Milli Takımı, Ankara'da coşkuyla karşılandı
--  هذه هي الطريقة التي يمكنك بها استبدال مساعد غوغل بـ Gemini على هاتفك الذي يعمل بنظام أندرويد
--  Almanya: İsrail’in Refah'a yönelik kara saldırısı yapacağı açıklamasından derin endişe duyuyoruz
+-  Farmers reject Centre’s 5-year MSP contract offer, to resume ‘Delhi Chalo’ on Feb 21
+-  SM Prime income soars 33% to P40B
+-  Skíðavikan um páskana
+-  "ردًّا على انفجار قطعة جوية في منطقة طبريا"... ادرعي يتبنى غارة الغازية!
+-  "Nuove sanzioni contro Putin". Morte Navalny, la minaccia di Biden
+-  'Not in our interest': Farmer leaders reject govt's proposal on MSP, 'Delhi Chalo' protest to resume on F - The Times of India
+-  Нинова в Пловдив: Идеалът на Апостола още не е изпълнен, в дълг сме към него
+-  Navaľného telo rodine nevydajú ešte najmenej 14 dní
+-  Pablo Sandoval firma contrato de ligas menores con Gigantes de SF
+-  Azərbaycan klublarının ümumi gəliri məlum olub
