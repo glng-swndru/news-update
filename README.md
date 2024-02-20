@@ -1,11 +1,11 @@
 # Latest News
--  ビジネスで成果を上げるために必要な、4ループ学習システムとは？ - 起業参謀の戦略書
--  Am Montag fielen erneut die Server aus: Neuer Ärger mit dem E-Rezept
--  John remembered fondly after sudden passing
--  PowerWash Simulator Is Getting Space Marines Because Sometimes The Universe Is Good
--  Şevval Şahin spor salonundan paylaştı. Fit vücuduyla hayran bıraktı
--  Wyong preview: Widdup’s classic catches to shine
--  "Très bien" ou "à refaire"? La nouvelle place de Valberg fait débat
--  Survey launched to shape government accountability in Closing the Gap
--  Accès des populations aux communications électroniques : La ministre Aminata Zerbo/Sabané visite la case numérique de Lemnogo
--  Srbija trenutno ima 79 putnika za Pariz, među njima nije Đoković: Sve što treba da znate o našim predstavnicima na Olimpijskim igrama
+-  Otomotiv devlerine cam üreten Olimpia Cam’ın işçi çıkarmasına tepki
+-  A nap legfontosabb hírei egy helyen – 2024. február 19.
+-  Putin dozvolio prodaju
+-  Moselle. Accident mortel sur l’A4 à Fèves : les deux blessés toujours à l’hôpital
+-  Ação de avaliação da hanseníase será no próximo sábado em Sinop
+-  Moćni vitamin C: Sve prednosti nutrijenta najvažnijeg za imunitet
+-  Arrasada em direto após desistência de Bernardo Sousa: "És mentirosa"
+-  Trump’s limited-edition sneakers are already being listed for up to $45,000 on eBay, but can they hold their value?
+-  Emmerdale’s Caleb Milligan ‘set to finally pay’ as scorned resident seeks revenge – and it’s not Nate Robinson
+-  YSK seçmen kağıtları ne zaman dağıtılacak?
