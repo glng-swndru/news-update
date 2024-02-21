@@ -1,11 +1,11 @@
 # Latest News
--  Tra Orsini e Serracchiani finisce in rissa: "Incompetente", "gioca a Risiko"
--  Η Μάγισσα: Θα καταφέρει η Πολυξένη να φυλάξει το ένοχο μυστικό της Δαμιανής;
--  На форуме "Россия" открылся международный фестиваль "Кино на службе Отечеству"
--  Sheinbaum destaca construcción de la paz ante embajadores en México
--  NATO secretary-general expects Canada to give timeline to meet defence spending target
--  استفاده از هوش مصنوعی برای کشف ریزساختارهای سخت
--  Putin odgovorio na glasine da razvija svemirsko nuklearno naoružanje: "SAD zna..."
--  လင်းလက်နွေဦး - ဟိုဘက်ကမ်းက မီးထိန်ထိန်
--  Yapay Zeka Alanında Neler Oluyor? GPT-4’e Yönelik Araştırma Sonucu Heyecan Verici
--  Tesla-Erweiterung stößt bei Bürgern auf Ablehnung
+-  صحة الوادي الجديد تعدم كميات من الأغذية الفاسدة.. وتسحب عينات للتحليل
+-  Vanđelić: Obuljen Koržinek je pretjerano lojalna Plenkoviću, kad tad će biti uhićena
+-  "EKSPO je energetska kapisla": Vučić otkrio koliko znači za našu zemlju i koliko se ulaže
+-  Бразилець з Полісся виконав обіцянку перевезти родину до України
+-  Elizabeth Warren revela la rotación de ensueño mientras Crypto Fanatic lanza una oferta contra ella
+-  PLL LOT będzie rósł. Przewoźnik powiększa swoją flotę
+-  Sarah Fraisou en couple et bientôt mariée à son cousin ? "On a une complicité incroyable !"
+-  Survivor: Αυτό είναι το πρόβλημα υγείας της Όλγας Πηλιάκη - Τι είπε ο Στέλιος Χανταμπάκης
+-  VÍDEO: A 'figuraça' de Kanye West no Inter-Atlético Madrid
+-  North Carolina School ‘Celebrates’ Black History Month by Terrorizing Children
