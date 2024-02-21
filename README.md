@@ -1,11 +1,11 @@
 # Latest News
--  Real Estate Icon, Jayne Onwumere Receives Prestigious Sun Investors Award
--  한국, 유엔 국제조세협력 임시위 부의장국 수임…“조세 규범 제정 주도”
--  Enfrentamiento entre grupos criminales deja al menos 17 muertos en México
--  우상혁, 체코서 시즌 두 번째 우승…내달 세계실내선수권 앞두고 청신호
--  "MAJKA NIJE IMALA DA MI PLATI VRTIĆ, SEDEO SAM KOD KUĆE" Teška ispovest popularnog pevača, govorio o TEŠKOM DETINJSTVU
--  GRUPO ELEKTRA ANNOUNCES 45% GROWTH IN EBITDA TO Ps.4,727 MILLION IN THE FOURTH QUARTER OF 2023
--  "3·1절 연휴에 일본여행 가요"…항공편 예약률 '고공행진'
--  법원 “‘입찰 담합’ 아스콘·레미콘 조합, 지자체·기관에도 배상해야”
--  Petróleo cai em mercado atento a tensões geopolíticas
--  ‘Thanks for having me in paradise’: Inside P!nk’s Gold Coast circus
+-  McDonald’s Interlomas reabre sus puertas con una experiencia innovadora, checa cómo se renovó
+-  Jadi Hot Mom, Ini 9 Potret Adiezty Fersa Makin Langsing
+-  James Rodríguez ganha nova chance no São Paulo
+-  Voetbalfraudeur (26) bedreigt bestuurders met de dood: ’We pakken alles van je af, mij vind je nooit’
+-  Cổ phiếu tiêu điểm hôm nay (21/2): Vì sao giá cổ phiếu IDC của Tổng công ty Idico được ACBS điều chỉnh tăng 16%?
+-  Aaj Ka Rashiifal: वृषभ समेत इन जातकों के लिए मुश्किल रहेगा बुधवार, पढ़ें मेष से लेकर मीन तक का हाल
+-  Bố mẹ thiên vị con út, cuối đời mong con cả giúp 1 việc, bị từ chối nhưng không dám trách móc nửa lời
+-  [ITmedia ビジネスオンライン] マーケティングの「学習範囲と8つのスキル」 プロは「理論」から学ぶ
+-  White Rock Whalers advance to 2nd round of PJHL playoffs
+-  TOP NEWS ore 24 - L'Inter vince il primo round. 1-0 all'Atletico: tutte le reazioni
