@@ -1,11 +1,11 @@
 # Latest News
--  北朝鮮「韓国は敵対国」発言や異例の日本向け談話、新たな緊張の裏にある“従来と違う事情” - 田中均の「世界を見る眼」
--  A nap legfontosabb hírei egy helyen – 2024. február 20.
--  Dólar cae por quinta sesión consecutiva: ¿en cuánto cotiza este martes 20 de febrero?
--  Arról beszélt a műsorvezető az ATV-ben, hogy "Kaleta nem volt pedofil", fegyelmi eljárást indítanak ellene
--  Trump Booed At FurryCon While Hawking New $399 Tail
--  BBC EastEnders' Denise Fox's downfall 'sealed' as character return leads to twist before exit
--  Pao "fantastični trojac": Krali šta su stigli, a nafta im bila "poslastica" i to 2.850 litara
--  Emmerdale legend reaches breaking point and loses it in shocking outburst at work
--  Land Rover Says 24-Inch Wheels Are Too Much
--  Stacey Solomon's rollercoaster love life - Steve-O fling to failed engagement and Joe Swash
+-  Криза на кордоні з Польщею. Що буде далі
+-  FRANCUSKI VELIKAN BRZO REAGOVAO: Marselj našao zamenu za Đenara Gatuza
+-  Netflix show’s ‘boundary-pushing’ sex scenes
+-  Diunggulkan, Borneo FC Enggan Pandang Persikabo 1973 Sebelah Mata
+-  חגיגת שמינית גמר גביע המדינה במחלקות הילדים, כל התוצאות בפנים
+-  Βρέθηκε ανθρώπινο πόδι στο μετρό της Νέας Υόρκης και αναζητείται το πτώμα
+-  Cartoon (20/02/2024)
+-  Ruby Franke and Jodi Hildebrandt sentenced to at least 4 years in prison in child abuse case - CBS News
+-  «Η ΝΔ είναι η πιο ισχυρή στο ΕΛΚ, γι’ αυτό μας χτυπάνε» – Στρεψοδικεί ο Μητσοτάκης για το κράτος δικαίου
+-  Dortmund schludert, Eindhoven setzt das zweite Ausrufezeichen
