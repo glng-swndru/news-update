@@ -1,11 +1,11 @@
 # Latest News
--  Nádraží z filmových básníků v Kladně půjde k zemi. Nahradí ho moderní budova se zelenou střechou
--  Uzay'dan başımıza uydu düşecek! Dünya'ya doğru yöneldi
--  27.1 مليار ريال استثمارات أجنبية في عُمان.. و5.3 مليار ريال استثمارات عُمانية بالخارج
--  Súd v Londýne zamietol pozastavenie vývozu zbraní do Izraela
--  Trešdien valsti šķērsos plaša nokrišņu zona
--  ΗΠΑ: 9χρονο φέρεται να πυροβόλησε και να σκότωσε μέλος της οικογένειάς του
--  Omicidio Carol Maltesi, a Milano il processo d'appello: Fontana rischia l'ergastolo
--  전공의 71% 사직서 제출…'의대 증원 백지화' 등 요구
--  إطلاق "سحابة وطنية" لمواكبة متطلبات الثورة الرقمية
--  美 FDA, ‘고형암’ 세포치료제 첫 허가…K바이오도 “도전”
+-  Noć u Beogradu! Ženu oborio automobil u Kneza Miloša
+-  Brazil boss Junior Dorival gives Joao Pedro update
+-  네타냐후 “인질 석방 위해 하마스에 대가 치르지 않을 것”
+-  박민영, 연기 그만둬도 되겠어…이번엔 건설사 사내이사 재직 의혹
+-  Lütfü Savaş ile Özgür Özel görüşmesinde neler oldu? Perde arkasındaki yaşananları Lütfü Savaş açıkladı
+-  Vrouwelijke freelancers vinden verbinden bij noordelijk netwerk: ‘Thuiswerken kan eenzaam zijn’
+-  Otobüste kadına yumruklu tekmeli saldırı kamerada
+-  Vaikinų U19 rinktinės pirmoji akistata su juodkalniečiais pasibaigė lygiosiomis
+-  Ženy mají ze stejného množství cvičení větší prospěch než muži, tvrdí studie
+-  पंजाब और हरियाणा हाईकोर्ट ने कहा : राजमार्गों पर ट्रैक्टर-ट्रेलरों का उपयोग नहीं किया जा सकता
