@@ -1,11 +1,11 @@
 # Latest News
--  В МАГАТЭ заявили о затратах при снижении зависимости от атомной отрасли РФ
--  Pivljanin demantuje opoziciju i halucinira: To nije pobeda opozicije; Pomenuo i milion i po ljudi!
--  OTSE | Põhiseaduskomisjon arutab avalikul istungil Vene külmutatud varade kasutuselevõttu
--  Kuala Lumpur: entro fine anno l'omologazione tra sharia e Costituzione
--  EPDK yazı göndererek uyardı: İndirimleri tüketiciye yansıtın
--  Cumhurbaşkanı Erdoğan: Danıştay'ın kararı tartışmalı
--  Outdoor, Natur und Jagd - Schützenverein lädt zum „Tag der Optik“
--  Ankara'da seçim yarışını kim kazanacak? HBS Araştırma'nın şubat ayı anketi belli oldu! Aradaki makas açıldı
--  Atletas do Grande ABC garantem medalhas no US Open Taekwondo
--  Bokeo: oltre 5mila bambini hanno lasciato la scuola nell'ultimo anno
+-  Soud zpřísnil trest policistovi, který pomáhal zloději aut. Odsedí si 5,5 roku
+-  Valkoposkihanhien aiheuttamat vahinkokorvaukset pienenivät puoleen Pohjois-Karjalassa – hätistely tehokkainta ennaltaehkäisyä
+-  Neutrinos Appoints Ashish Jha as their First Chief Marketing and Strategy Officer
+-  روسیه سناتور آمریکایی را در فهرست «تروریست‌ها» قرار داد
+-  Легенда Динамо рассказал, как сорвался его переход в английский гранд
+-  Severinin sin slavi 12. rođendan, pjevačica objavila emotivan status
+-  Designaron a una ex fiscal como subsecretaria de Protección contra la Violencia de Género
+-  Neutrinos Appoints Ashish Jha as their First Chief Marketing and Strategy Officer
+-  مذكرة تفاهم لتعزيز تداول اتفاقيات إعادة الشراء في السوق المالية السعودية
+-  Ifo sagt längere Krise im Wohnungsbau voraus
