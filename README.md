@@ -1,11 +1,11 @@
 # Latest News
--  Champions: Inter-Atletico Madrid 1-0
--  «Интер» переиграл «Атлетико» в первом матче 1/8 финала Лиги чемпионов
--  Champions League : l'Inter bat l'Atlético, Dortmund ramène le nul d'Eindhoven
--  Inter fer með for­ystuna til Spánar
--  El funeral del plumarquista mundial Kelvin Kiptum se adelantó por un motivo inesperado
--  Muškarac u 7 ujutro gol hodao ulicom, privela ga policija
--  Hiljade ljudi na opozicionom protestu u Tirani
--  Major deal at Man United confirmed, huge for future of Premier League giants
--  Інтер здолав Атлетико в 1/8 фіналу Ліги чемпіонів
--  滋賀県愛荘町、庁舎リニューアルに3億円超 来年度当初予算案に計上
+-  İsrail'in fosfor bombasıyla ağır yaralanan genç kızın hali gözyaşlarına boğdu
+-  BBP'den Fatih Erbakan açıklaması: Nezaketsizlik, saygısızlık! Özür çağrısı
+-  시드니 태권도장 한인 일가족 살인사건…유력 용의자 병원 치료
+-  Luna i Anabela besne na Vesnu Đogani! Oštro poručile: Sve sami moralisti, to se ne radi!
+-  TRAKTORIJADA STIGLA I U GRČKU: Poljoprivrednici blokirali granični prelaz Evzoni
+-  Irmã de Melody anuncia venda de carro que ganhou da cantora há um mês: 'Oportunidade'
+-  Nikki Haley promete se manter na disputa contra Trump até o fim das primárias republicanas
+-  Irmã de Melody anuncia venda de carro que ganhou da cantora há um mês: 'Oportunidade'
+-  پیروزی منچسترسیتی مقابل برنتفورد در حضور کوتاه سامان قدوس
+-  Nikki Haley promete se manter na disputa contra Trump até o fim das primárias republicanas
