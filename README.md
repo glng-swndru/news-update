@@ -1,11 +1,11 @@
 # Latest News
--  Noć u Beogradu! Ženu oborio automobil u Kneza Miloša
--  Brazil boss Junior Dorival gives Joao Pedro update
--  네타냐후 “인질 석방 위해 하마스에 대가 치르지 않을 것”
--  박민영, 연기 그만둬도 되겠어…이번엔 건설사 사내이사 재직 의혹
--  Lütfü Savaş ile Özgür Özel görüşmesinde neler oldu? Perde arkasındaki yaşananları Lütfü Savaş açıkladı
--  Vrouwelijke freelancers vinden verbinden bij noordelijk netwerk: ‘Thuiswerken kan eenzaam zijn’
--  Otobüste kadına yumruklu tekmeli saldırı kamerada
--  Vaikinų U19 rinktinės pirmoji akistata su juodkalniečiais pasibaigė lygiosiomis
--  Ženy mají ze stejného množství cvičení větší prospěch než muži, tvrdí studie
--  पंजाब और हरियाणा हाईकोर्ट ने कहा : राजमार्गों पर ट्रैक्टर-ट्रेलरों का उपयोग नहीं किया जा सकता
+-  Japans Exporte ziehen an - Schlechte Stimmung trübt Aussichten
+-  Ni tanto ni tan calvo
+-  Los autónomos cordobeses sufrieron más de 800 accidentes de trabajo en 2023, con un balance de tres fallecidos
+-  Ísland í dag - KR tekur á móti Njarðvík
+-  England í dag - Nýliðarnir á Anfield
+-  Nadaljujejo se pogajanja ob stavki operaterjev 112
+-  Meistaradeildin í dag - Arsenal í Portúgal
+-  티모시 샬라메 “폴=영웅으로 비춰지는 것 지양…폭력적이기도” (듄: 파트2)
+-  Création unique du peintre ou action d'un faussaire ? Un tableau signé Claude Monet crée la confusion
+-  Sambandsdeildin í dag - Blikabanarnir frá Gent ætla sér sigur
