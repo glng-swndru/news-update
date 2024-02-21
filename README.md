@@ -1,11 +1,11 @@
 # Latest News
--  Soud zpřísnil trest policistovi, který pomáhal zloději aut. Odsedí si 5,5 roku
--  Valkoposkihanhien aiheuttamat vahinkokorvaukset pienenivät puoleen Pohjois-Karjalassa – hätistely tehokkainta ennaltaehkäisyä
--  Neutrinos Appoints Ashish Jha as their First Chief Marketing and Strategy Officer
--  روسیه سناتور آمریکایی را در فهرست «تروریست‌ها» قرار داد
--  Легенда Динамо рассказал, как сорвался его переход в английский гранд
--  Severinin sin slavi 12. rođendan, pjevačica objavila emotivan status
--  Designaron a una ex fiscal como subsecretaria de Protección contra la Violencia de Género
--  Neutrinos Appoints Ashish Jha as their First Chief Marketing and Strategy Officer
--  مذكرة تفاهم لتعزيز تداول اتفاقيات إعادة الشراء في السوق المالية السعودية
--  Ifo sagt längere Krise im Wohnungsbau voraus
+-  Maharashtra Dy CM Ajit Pawar on Maratha Reservation Bill: It was passed keeping in view law and regulations
+-  Napoli, primo allenamento di Calzona iniziato. Ngonge salta il Barcellona?
+-  Sempat Dihentikan Sinkronisasi Sirekap, KPU Bali Lanjutkan Penghitungan Suara Pemilu
+-  X-Account von Julia Nawalnaja zeitweise gesperrt
+-  Emotivni Jokić: Jedna stvar najbitnija, to ne možeš kupiti
+-  X-Account von Julia Nawalnaja zeitweise gesperrt
+-  Türk Hava Yolları duyurdu! 5 bin personel alımı yapılacak
+-  Dear Doctor: Do you faint during blood draws? Here are some tips that might help stop that reaction
+-  Čína dusí svůj růst. Ani atraktivní ceny tamních akcií zatím nelákají investory k návratu
+-  Francisco Neto aproveitou ideia de Roberto Martínez
