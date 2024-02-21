@@ -1,11 +1,11 @@
 # Latest News
--  Mercato : A peine arrivé, il fait une promesse à l’OM
--  South Africa Cereals and Crops Growing Industry Report 2023: Growing Opportunities in the Development of Hemp Amidst New Regulations
--  کاهش نامحسوس آمار «ازدواج» و عدم رشد «طلاق»/ صدور مجوز مراکز همسرگزینی توسط وزارت ورزش و جوانان
--  iPhone 16では｢スマホに話しかける生活｣が当たり前になるかも - GIZMODO JAPAN
--  "הבנתי שבגין צדק שאויבנו הם חיות דו־רגליות"
--  TDP Janasena Seats Sharing : సీట్ల షేరింగ్ లో టీడీపీ-జనసేన కు మధ్య ఏం జరుగుతోంది.? | ABP Desam
--  «Вашингтон» — «Нью-Джерси»: видеообзор матча
--  両陛下、能登半島地震の被災地訪問 3月下旬の方向で調整中
--  Elon Musk says patient moves cursor with brain implant
--  મેનેજમેન્ટ ફંડા by એન રઘુરામન:ઓફિસ કે કોલેજમાં ડિસ્કશન માટે આંકડા જરૂરી છે, તેના વિના ચર્ચાનું કોઇ મહત્વ નથી.
+-  Unternehmen suchen Nachfolger ++ Ampel in der Potsdamer ++ Gasleitung kaputt
+-  Phát minh ra mã QR, vì sao người Nhật không 'hào hứng' với nó như người Trung Quốc?
+-  Mihin käyttäisit 25 000 euroa? – Somerolla haetaan ideoita osallistavaan budjetointiin
+-  대출 상담 고객 차에 감금하고 위협…사금융 직원 검거
+-  Antrag aus der Politik fordert Pariser Modell für Castrop-Rauxel: Höhere Parkgebühren für SUVs?
+-  Avinor advarer – når større deler av Bodø enn først antatt
+-  Presidency, APC's NWC, others may back Aiyedatiwa for gubernatorial ticket in Ondo
+-  2個月大嬰兒也染菜花 李秉穎：耳邊說話就可能傳染
+-  Indonesia issues regulations requiring digital platforms to pay media for content
+-  Ароматно пиле по традиционна рецепта: Опитвали ли сте го с гъби
