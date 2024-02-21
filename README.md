@@ -1,11 +1,11 @@
 # Latest News
--  Estoniyada on nəfər Rusiya casusu saxlanılıb
--  (여자)아이들 미연, 사랑스러운 인사 [포토]
--  2월 중순 수출 7.8% 감소…조업일수 감소 영향
--  越南两家酒店被评为“世界最佳酒店”
--  (여자)아이들 미연, 귀여운 파이팅 [포토]
--  Pendaftaran CPNS 2024 Sebentar Lagi, Pembagian Belum Jelas, Honorer Sabar Dulu
--  Se la coppia è in crisi potrebbe essere una questione di tempo: per salvarla basta un'ora dedicata al "noi"
--  Borsa: Hong Kong negativa, apre a -0,5%
--  KB국민은행 "'청년 주택드림 청약통장' 가입하고 선물 받으세요"
--  서울대 교수 “의대증원 통해 의사 수입 적정 수준으로 낮춰야”
+-  Preocupación por el aumento del suicidio en mayores
+-  Työelämäprofessoriksi ryhtynyt suorasuu Alex Nieminen lataa: Insinöörijohtajat käyvät kalliiksi Suomen kansantaloudelle
+-  The dangers of ‘influencers’ and brands targeting your kids with ads
+-  Angst auf Harburger Straßen –und was dagegen helfen soll
+-  La sustitución de los proyectores de La Eragudina costará 44.770 euros
+-  Đón chờ bí mật hấp dẫn sắp được bật mí từ Pokémon và OREO trong năm 2024
+-  Engage XR signs largest contract to date with Middle East deal
+-  Retired legend makes surprise radio return
+-  All-Ireland winner arrested over alleged assault on boy (12)
+-  Miñambres coge el timón del Levante
