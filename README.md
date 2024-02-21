@@ -1,11 +1,11 @@
 # Latest News
--  Криза на кордоні з Польщею. Що буде далі
--  FRANCUSKI VELIKAN BRZO REAGOVAO: Marselj našao zamenu za Đenara Gatuza
--  Netflix show’s ‘boundary-pushing’ sex scenes
--  Diunggulkan, Borneo FC Enggan Pandang Persikabo 1973 Sebelah Mata
--  חגיגת שמינית גמר גביע המדינה במחלקות הילדים, כל התוצאות בפנים
--  Βρέθηκε ανθρώπινο πόδι στο μετρό της Νέας Υόρκης και αναζητείται το πτώμα
--  Cartoon (20/02/2024)
--  Ruby Franke and Jodi Hildebrandt sentenced to at least 4 years in prison in child abuse case - CBS News
--  «Η ΝΔ είναι η πιο ισχυρή στο ΕΛΚ, γι’ αυτό μας χτυπάνε» – Στρεψοδικεί ο Μητσοτάκης για το κράτος δικαίου
--  Dortmund schludert, Eindhoven setzt das zweite Ausrufezeichen
+-  Tra Orsini e Serracchiani finisce in rissa: "Incompetente", "gioca a Risiko"
+-  Η Μάγισσα: Θα καταφέρει η Πολυξένη να φυλάξει το ένοχο μυστικό της Δαμιανής;
+-  На форуме "Россия" открылся международный фестиваль "Кино на службе Отечеству"
+-  Sheinbaum destaca construcción de la paz ante embajadores en México
+-  NATO secretary-general expects Canada to give timeline to meet defence spending target
+-  استفاده از هوش مصنوعی برای کشف ریزساختارهای سخت
+-  Putin odgovorio na glasine da razvija svemirsko nuklearno naoružanje: "SAD zna..."
+-  လင်းလက်နွေဦး - ဟိုဘက်ကမ်းက မီးထိန်ထိန်
+-  Yapay Zeka Alanında Neler Oluyor? GPT-4’e Yönelik Araştırma Sonucu Heyecan Verici
+-  Tesla-Erweiterung stößt bei Bürgern auf Ablehnung
