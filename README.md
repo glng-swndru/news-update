@@ -1,11 +1,11 @@
 # Latest News
--  Unternehmen suchen Nachfolger ++ Ampel in der Potsdamer ++ Gasleitung kaputt
--  Phát minh ra mã QR, vì sao người Nhật không 'hào hứng' với nó như người Trung Quốc?
--  Mihin käyttäisit 25 000 euroa? – Somerolla haetaan ideoita osallistavaan budjetointiin
--  대출 상담 고객 차에 감금하고 위협…사금융 직원 검거
--  Antrag aus der Politik fordert Pariser Modell für Castrop-Rauxel: Höhere Parkgebühren für SUVs?
--  Avinor advarer – når større deler av Bodø enn først antatt
--  Presidency, APC's NWC, others may back Aiyedatiwa for gubernatorial ticket in Ondo
--  2個月大嬰兒也染菜花 李秉穎：耳邊說話就可能傳染
--  Indonesia issues regulations requiring digital platforms to pay media for content
--  Ароматно пиле по традиционна рецепта: Опитвали ли сте го с гъби
+-  100회 맞은 ‘고딩엄빠’ 가출팸→성 착취, 청소년 범죄 집중 조명
+-  Big problem with solar laid bare
+-  Хищения 330 миллионов тенге из бюджета выявлено в Алматы
+-  Bạc Liêu: Phát hiện một sinh viên trường y trồng trái phép cần sa
+-  Sau nghỉ Tết, thêm một tỷ phú mới được tìm thấy nhờ trúng Vietlott
+-  100회 맞은 ‘고딩엄빠’ 가출팸→성 착취, 청소년 범죄 집중 조명
+-  Big problem with solar laid bare
+-  Anxious Mount Duneed buyers beg for help after builder collapse
+-  Узбекистан консолидирует усилия государственных организаций и гражданского общества в борьбе с коррупцией
+-  السياحة المستدامة
