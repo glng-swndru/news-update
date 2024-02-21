@@ -1,11 +1,11 @@
 # Latest News
--  Dijete hitno prevezeno u pulsku bolnicu, nedugo zatim preminulo. Istraga u tijeku
--  I pendolari consegnano oltre 5mila firme in Regione per chiedere il potenziamento della Roma Nord
--  Présidentielle 2024: Le patron de l’Onu en Afrique de l’Ouest et au Sahel, reçu par Macky Sall et...la présidente Innocence Ntap Ndiaye
--  Лебеденко: «В резиденции Кадырова Черчесов подошел к клетке со львом, сказав: «Тише, я такой же»
--  شاهد أضوى العسيري بإطلالة تراثية ساحرة في احتفال يوم التأسيس
--  김연아, “나도 실수할 수 있지”
--  Uczestniczka "Królowej Przetrwania" wprost o wybielaniu uczestników. Chodzi o trzy nazwiska [POMPONIK EXCLUSIVE]
--  VinFast tìm ra phương án mới để huy động vốn từ giới siêu giàu
--  Swiss Steel will Fruithof offenbar nicht als VR-Präsident nominieren
--  KAAN ilk kez havalandı, gökyüzünde süzüldü, ardından iniş yaptı! Savunma Sanayii Başkanı Görgün o anları paylaştı
+-  Рекорд высоты снежного покрова в Москве был побит 20 февраля
+-  Jamie Oliver's 'smash hit' baked chicken recipe is simple and tastes 'delicious'
+-  許常德親自操刀！ 林秋離遺孀認了「不以為然」：一度拒唱
+-  Treści religijne w TVP są zagrożone? Nowy dyrektor o przyszłości stacji
+-  «Киви банк» лишился лицензии. Что известно о судьбе денег клиентов?
+-  MPPSC SSE Main 2023 exam registration closes today at mppsc.mp.gov.in; Check eligibility, steps to apply
+-  'Double It Up...', R Ashwin's Old Tweet Goes Viral As Virat Kohli Becomes Father For 2nd Time
+-  Brumotti piange l’amico Geremia, 14 anni: «Ha chiuso gli occhi con la voglia di guarire»
+-  Makarska je domaćin 21. izdanja Hrvatskog dvoranskog nogometnog prvenstva za veterane
+-  【インフルエンザ／山形】2回かかるおそれも・患者747人のうち8割がB型に感染…県が注意喚起
