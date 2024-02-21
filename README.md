@@ -1,11 +1,11 @@
 # Latest News
--  Ukrayna: Rus ordusuna ait savaş uçağı düşürdük
--  "Trouver 80.000 euros n'est pas insurmontable" : une pétition en ligne réclame le maintien du Catalpa festival en 2024
--  Siirt'te Kopya Düzenekleri Ele Geçirildi: 2 Gözaltı!
--  Президент Узбекистана приедет в Казань для участия в открытии «Игр будущего»
--  국민의힘, 현역 물갈이 없는 '조용한' 공천…미정 78곳 현역 교체 바람 부나?
--  "Trouver 80.000 euros n'est pas insurmontable" : une pétition en ligne réclame le maintien du Catalpa festival en 2024
--  Transgender personen stellen Amsterdam UMC aansprakelijk na mislukte operaties: ‘Ernstige fouten’
--  Il Quartierino 'invaso' da nuovi palazzi, protestano i residenti: "Viviamo senza giardini e servizi essenziali"
--  Milli muharip uçak KAAN, gökyüzüyle buluştu
--  Transgenders stellen Amsterdam UMC aansprakelijk na mislukte operaties: ‘Ernstige fouten gemaakt’
+-  Los futuros del Ibex 35 se animan antes del comienzo de la sesión
+-  INSÄNDARE: Är du orolig för hur ditt barn har det på förskolan?
+-  Vừa bị LĐBĐ Hàn Quốc sa thải, HLV Klinsmann sắp có bến đỗ mới?
+-  こどもたちに夢を 福井出身のプロ野球選手グッズを展示 県立こども歴史文化館
+-  Nasa objavila poseben oglas: če vas izberejo, vas čaka nepozabna dogodivščina
+-  KLAB himpun 49 penerbit buku pelbagai bahasa
+-  '듄:파트2' 젠데이야, 한국 팬에게 반하다…"엄마도 날 이렇게는 안 반겨"
+-  Meksiko: Pet ugljenisanih tijela pronađeno na jugu zemlje
+-  Már a nagy aukciós házak is lecsaptak a volt szocialista autókra
+-  Алкарас с контузия, игра само 10 минути - Труд
