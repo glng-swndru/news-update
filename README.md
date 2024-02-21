@@ -1,11 +1,11 @@
 # Latest News
--  Japans Exporte ziehen an - Schlechte Stimmung trübt Aussichten
--  Ni tanto ni tan calvo
--  Los autónomos cordobeses sufrieron más de 800 accidentes de trabajo en 2023, con un balance de tres fallecidos
--  Ísland í dag - KR tekur á móti Njarðvík
--  England í dag - Nýliðarnir á Anfield
--  Nadaljujejo se pogajanja ob stavki operaterjev 112
--  Meistaradeildin í dag - Arsenal í Portúgal
--  티모시 샬라메 “폴=영웅으로 비춰지는 것 지양…폭력적이기도” (듄: 파트2)
--  Création unique du peintre ou action d'un faussaire ? Un tableau signé Claude Monet crée la confusion
--  Sambandsdeildin í dag - Blikabanarnir frá Gent ætla sér sigur
+-  Paro de trenes: cómo funcionarán los servicios este miércoles
+-  L'ultima Champions col Porto prima dell'Inter: Taremi tra i protagonisti più attesi
+-  Pourra-t-on un jour soigner tous les cancers ?
+-  Mercato : Une légende a recalé l’OM !
+-  Mislim svoje mesto: Mesto kratkih poti
+-  Furti a Montebelluna, si potenzia la videosorveglianza: si parte da Mercato Vecchio
+-  Jamkrindo Luncurkan Program Trash4Cash
+-  Азербайджанские депутаты будут наблюдать за выборами в Беларуси
+-  Mega fans gallery: Pink on the Gold Coast
+-  KURTI NE PROPUŠTA DA KAŽE DA SAM PUTINOV MALI I DA JE SRBIJA - RUSIJA NA BALKANU Vučić: Laže kao i obično!
