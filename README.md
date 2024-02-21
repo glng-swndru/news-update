@@ -1,11 +1,11 @@
 # Latest News
--  100회 맞은 ‘고딩엄빠’ 가출팸→성 착취, 청소년 범죄 집중 조명
--  Big problem with solar laid bare
--  Хищения 330 миллионов тенге из бюджета выявлено в Алматы
--  Bạc Liêu: Phát hiện một sinh viên trường y trồng trái phép cần sa
--  Sau nghỉ Tết, thêm một tỷ phú mới được tìm thấy nhờ trúng Vietlott
--  100회 맞은 ‘고딩엄빠’ 가출팸→성 착취, 청소년 범죄 집중 조명
--  Big problem with solar laid bare
--  Anxious Mount Duneed buyers beg for help after builder collapse
--  Узбекистан консолидирует усилия государственных организаций и гражданского общества в борьбе с коррупцией
--  السياحة المستدامة
+-  우상혁, 체코 실내대회 우승…“부족한 부분 점검”
+-  삼성전자 “텍사스가 핵심”…美 경제적 영향력 268억달러
+-  Sharad Pawar Says Government Not Bothered About Attacks On Fundamental Rights
+-  Sở hữu MU, Ratcliffe định đoạt tương lai Rashford
+-  Lobbyists spent tens of thousands of dollars wining, dining lawmakers
+-  Meeting over converting Santa Fe streetlights to LEDs to be online only
+-  Bikin Gaduh, 2 Tempat Hiburan Malam di Kota Serang Dibongkar
+-  Trágico accidente de turistas argentinos en México: qué se sabe de la salud de los dos sobrevivientes
+-  New managers arrive for candidates' third showdown
+-  CMA Inter, Final Result Dec 2023: Check pass percentage, rank list here
