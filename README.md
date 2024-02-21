@@ -1,11 +1,11 @@
 # Latest News
--  Στο τραπέζι της G7 το ενδεχόμενο αυστηροποίησης των κυρώσεων κατά της Ρωσίας – "Επίθεση φιλίας" του Πούτιν στην Ιταλία;
--  "Husi"lər İsrail gəmisinə raket zərbələri endirdi
--  Nightingale - How To Use Realmic Transmuters
--  Wilder Look: Rita Ora präsentiert ihre neue Kurzhaarfrisur!
--  Путин дал совет российскому губернатору
--  Το «One Song» της Miet Warlop στη Στέγη: Μια γιορτή, ένα τραγούδι, μια αξέχαστη στιγμή - Πόσο μακριά θα τρέξεις για τη ζωή σου;
--  Cartel de Notificación
--  Täällä juomavesi täytyy edelleen keittää
--  TNRD expanding fines for disposing of inappropriate materials through recycling
--  Geta ekki upplýst um endanlega tímalínu
+-  YouTube mom tearfully apologizes in U.S. child abuse sentencing
+-  Strikers block Eiffel Tower access for 2nd day, threaten to dig in
+-  YouTube mom tearfully apologizes in U.S. child abuse sentencing
+-  ΑΕΚ: Αήττητη με αντίπαλο την Πάφο FC και έτοιμη για τις ισχυρές προκλήσεις
+-  Черноморец ще е домакин на турнира за баскетболната Купа на България при мъжете - Труд
+-  YouTube mom tearfully apologizes in U.S. child abuse sentencing
+-  Graham Price: The Wales player we now need for 80 minutes
+-  Strikers block Eiffel Tower access for 2nd day, threaten to dig in
+-  Strikers block Eiffel Tower access for 2nd day, threaten to dig in
+-  Strikers block Eiffel Tower access for 2nd day, threaten to dig in
