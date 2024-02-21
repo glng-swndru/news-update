@@ -1,11 +1,11 @@
 # Latest News
--  Stora gatan stängs av när fjärrvärme grävs
--  You can get £75 off your broadband bill if you pick Virgin Media's M250 plan
--  Nhịn ăn sáng tốt hay hại, ảnh hưởng thế nào đến đường huyết? Chuyên gia có câu trả lời gây bất ngờ
--  県立高校入試平均志願倍率 調整後も０．８０倍で過去最低 最高は不来方・芸術コース１．５０倍＜岩手県＞
--  ZUTOMAYO首來台想吃正港排骨麵！ 全中文問候被讚：聲音好甜～
--  Startup Electric Hydrogen Has Big Plans To Make Green Fuel For Cheap - Forbes
--  TWO CID OFFICERS CHARGED WITH ASSAULT
--  Groupe public-privé, refus de l’opposition: quelle gestion pour le pôle de transition environnementale dracénois?
--  Electric Cars Vs. Wildflowers: Who Wins?
--  Megkezdte a régi Windows-ok kényszerfrissítését a legújabbra a Microsoft
+-  Казахстанская теннисистка прервала серию из четырех поражений подряд
+-  Exclusive: Liverpool admirers of three Bayer Leverkusen players, says Reds transfer expert
+-  Забраняват всякакво строителство в стария град на Охрид
+-  息子の命奪われ 加害者に「賠償金」も踏み倒される現実 遺族らが「国が立て替えて支払う制度」創設を求める
+-  Three offers for the No. 1 draft pick, three offers for Justin Fields: Let's lay out the Bears' options - ESPN
+-  Bivši mladi reprezentativac Njemačke odlučio igrati za BiH
+-  UK scores major Brexit victory – and it is all thanks to France
+-  Länder-Vergleich zeigt: So schlecht sind die Renten in Deutschland
+-  Länder-Vergleich zeigt: So schlecht sind die Renten in Deutschland
+-  Panthéonisation de Missak Manouchian : Georges Cloarec, eurélien des jeunes Résistants martyrs, fusillé le même jour au Mont-Valérien
