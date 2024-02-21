@@ -1,11 +1,11 @@
 # Latest News
--  Emergency Missing Child Alert issued for Lauderdale Co. teen
--  2 men face murder charges in Kansas Super Bowl parade shooting
--  中國船越界翻覆事件》兩死者家屬抵金 海巡署協助處理後事
--  天選之肉哪來 陳揆：中市府應給交代
--  The Cigna Group Announces Pricing Terms of Tender Offers
--  Skier injured in Flathead avalanche, other close calls reported
--  U Power Limited Receives Nasdaq Delisting Notification and Intends to Appeal
--  Vanđelić o Obuljen: Pretjerano je lojalna Plenkoviću, kad tad će biti uhićena
--  證券行情表、證券表格
--  Разрешены ли подкаты? Какое прозвище получил Вилиан? А у кого больше трофеев ЧМ? Проверьте, что вы знаете о мини-футболе
+-  Champions: Inter-Atletico Madrid 1-0
+-  «Интер» переиграл «Атлетико» в первом матче 1/8 финала Лиги чемпионов
+-  Champions League : l'Inter bat l'Atlético, Dortmund ramène le nul d'Eindhoven
+-  Inter fer með for­ystuna til Spánar
+-  El funeral del plumarquista mundial Kelvin Kiptum se adelantó por un motivo inesperado
+-  Muškarac u 7 ujutro gol hodao ulicom, privela ga policija
+-  Hiljade ljudi na opozicionom protestu u Tirani
+-  Major deal at Man United confirmed, huge for future of Premier League giants
+-  Інтер здолав Атлетико в 1/8 фіналу Ліги чемпіонів
+-  滋賀県愛荘町、庁舎リニューアルに3億円超 来年度当初予算案に計上
