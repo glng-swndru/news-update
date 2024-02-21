@@ -1,11 +1,11 @@
 # Latest News
--  توقيع برنامج للتعاون البيئي بين سلطنة عمان وأمريكا
--  اجتماع موسع لمديري إدارة الجامعات في المنطقتين الشرقية والغربية لتنظيم عمل الجامعات
--  „Ići ću do kraja, tražiću samostalno starateljstvo“: Oglasila se Severina nakon što joj je sud vratio sina
--  One Arrested as Migrants Assault Cops in Randall’s Island Tent City
--  Zmrazená embrya jsou děti, rozhodl Nejvyšší soud v Alabamě
--  O OVOM NAPADU TERORISTA NA BEOGRAD SE MALO ZNA: 4 razorne bombe na 4 mesta i misteriozni čovek sa crnom kutijom! Vriska, krv, dim
--  Qua 50 tuổi, TRÁNH làm 4 điều để cuối đời hưởng phúc, khôn ngoan nhất là thấu hai chữ: THÍCH HỢP!
--  EEUU está "en declive" hoy en día debido a la "ignorancia y arrogancia"
--  Наёмник из Грузии получил в ДНР пожизненный срок за убийство российских военных
--  Государственный секретарь Республики Дагестан направил поздравительное письмо Президенту Ильхаму Алиеву
+-  Bypass the waiting lists and eat at the best restaurants in the world with OAD TRAVEL
+-  Uppsala har tre av de farligaste järnvägsövergångarna
+-  Támogatást kap a HÉV
+-  Eric Ramsay's journey to Manchester United as 'unbelievably good' coach linked with exit
+-  KRÖNIKA: Jag kan inte hejda tanken: ”Ge ungen en surfplatta för guds skull”
+-  Repeated vandalism attacks terrorizing B.C. couple, baffling police
+-  Rückruf bei Mercedes: Brandgefahr nicht ausgeschlossen​
+-  Ira von Fürstenberg: la vita privata, gli amori e gli scandali di una donna che ha sfidato le regole
+-  Presidente da Câmara de Arganil considera que é uma vitória Posto de Turismo de Piódão ser finalista de um prémio
+-  Hannover: Missbrauch in AWO Doktorspiele Kita: Bewährung für Erzieher
