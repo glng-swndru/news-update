@@ -1,11 +1,11 @@
 # Latest News
--  '방산 FTA' 한미 국방상호조달협정 연내 체결 추진
--  BT to sell the BT Tower, which will become a hotel
--  CPH:DOX unveils full 2024 programme, including seven films on Israel-Palestine conflict
--  Sonnenweiher Grafenwörth - Greenpeace kritisiert Land NÖ: „Mini-Dubai“ sei durchgewunken worden
--  Quang Ninh dévoile sa beauté aux participants de la Clipper Round The World Race
--  Luxemburgischer Rennfahrer Gil Linster mischt Nascar-Szene auf
--  El nuevo salario mínimo llegará a $180 mil en febrero pero sigue bajo la línea de pobreza
--  معلق مباراة برشلونة ونابولي اليوم في دوري أبطال أوروبا 2023-24
--  Police seize 1,450 crates of banned beer in Karatina valued at Sh4mn
--  UPDATE/ Olga Golban, noua directoare a SFS. Ministerul Finanțelor și Ministerul Dezvoltării Economice și Digitalizării au noi secretari de stat
+-  Около 230 кг наркотиков изъяли в Минске в 2023 году
+-  Vợ NSND Công Lý nói gì về tin đồn sức khỏe của chồng?
+-  مسؤول أمريكي: الطائرة التي تحطمت بالقرب من الحديدة أسقطها صاروخ أرض جو أطلقه الحوثي
+-  Sparta bude doma proti Galatasarayi dohánět ztrátu bez kapitána Krejčího
+-  Müjdat Gezen'den dikkat çeken Yılmaz Erdoğan açıklaması. Seni mahvedecektik
+-  Somali, Türkiye ile imzaladığı savunma işbirliği anlaşmasını onayladı
+-  Genova, al policlinico San Martino il primo trapianto di fegato eseguito senza fermare il flusso sanguigno
+-  El Banco de Alimentos de Córdoba, la astrofísica Casiana Muñoz y el periodista Manolo Lama, entre los distinguidos con la Bandera de Andalucía
+-  Zase svítí a vaří! Po 20 dnech bez proudu má seniorka z Opavy znovu elektřinu
+-  Toimi nopeasti: legendaarinen peliklassikko ja hyytävä kauhuteos jaossa ilmaiseksi
