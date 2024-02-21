@@ -1,11 +1,11 @@
 # Latest News
--  Cuiabá desembarca em Vitória e se prepara para duelo pela Copa do Brasil; 4 desfalques
--  Golob se hvali z najvišjim, na odgovor Janševih ni bilo treba dolgo čakati
--  Pd, che brutta fine: Dargen D'Amico da Floris detta la linea al partito
--  Američki povjesničari: Biden je 14. najbolji predsjednik SAD-a, a Trump je najgori
--  Reagált az Országos Mentőszolgálat arra, hogy miért nem vállalják a vasárnapi ellenzéki tüntetés egészségügyi biztosítását
--  “อนุชา” แสดงศักยภาพการเกษตรไทยในเวที FAO ยันพร้อมพลิกโฉมเพื่อการผลิตที่ยั่งยืน
--  Palmeiras confirma meia Rômulo, destaque do Novorizontino, como reforço até 2028
--  Çine Ülkü Ocakları'ndan Fırat Çakıroğlu için lokma hayrı
--  Декларация след декларация - "Лудогорец" и "Черно море" влязоха в спор след мача за върха
--  Çaykur Rizespor'da Benhur Keser, yaklaşık 4 ay sahalardan uzak kalacak
+-  Trudeau in Vancouver to make housing announcement
+-  No hay punto de comparación: Max Ramírez
+-  Fräck stöld av utrustning – ligger kvar hos polisen
+-  El S&P 500 pierde los 5.000 puntos en una jornada a la baja en Wall Street
+-  Beneficios del ginseng para el corazón: mejora la circulación de la sangre, ayuda a reducir el colesterol malo y los triglicéridos, ¿cómo tomarlo?
+-  Orri Steinn skoraði í óhefðbundnum æfingaleik
+-  Em’s Café, Freeling
+-  Mask: Prvi ljudski Neuralink pacijent može da kontroliše kompjuterski miš mislima
+-  Sorriso: forças de segurança contém princípio de motim em cadeia
+-  El peso mexicano intenta romper hacia abajo el psicológico de los $17.0 spot
