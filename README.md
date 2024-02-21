@@ -1,11 +1,11 @@
 # Latest News
--  Paro de trenes: cómo funcionarán los servicios este miércoles
--  L'ultima Champions col Porto prima dell'Inter: Taremi tra i protagonisti più attesi
--  Pourra-t-on un jour soigner tous les cancers ?
--  Mercato : Une légende a recalé l’OM !
--  Mislim svoje mesto: Mesto kratkih poti
--  Furti a Montebelluna, si potenzia la videosorveglianza: si parte da Mercato Vecchio
--  Jamkrindo Luncurkan Program Trash4Cash
--  Азербайджанские депутаты будут наблюдать за выборами в Беларуси
--  Mega fans gallery: Pink on the Gold Coast
--  KURTI NE PROPUŠTA DA KAŽE DA SAM PUTINOV MALI I DA JE SRBIJA - RUSIJA NA BALKANU Vučić: Laže kao i obično!
+-  Με μέτρο η βιταμίνη Β3: Υψηλά επίπεδα συνδέθηκαν με καρδιακές παθήσεις - Ποια τρόφιμα αποτελούν βασικές πηγές
+-  Vučić ‘briljirao‘, tema je sportska, nije moglo bez Hrvatske: ‘Uspio sam i u tome da cijeli narod misli isto što i ja‘
+-  Совет по развитию инклюзивной среды создан в Алматы
+-  Güneşli günler kısa sürecek! Soğuk hava aniden çökecek, lapa lapa kar yağışı için tarih verildi: İstanbul, Ankara, İzmir dahil çok sayıda kent için yeni uyarı
+-  EU: istraga protiv TikToka
+-  정부, 7월 14일 '북한이탈주민의 날'로 제정 추진…기념공원 조성 계획
+-  İzmit'te Ramazan davulcusu başvuruları başladı
+-  Cuatro bebidas que estimulan el sueño y ayudan a descansar mejor por la noche
+-  Vatandaş yönünü dövize çevirdi: Üç madde talebi artırdı
+-  Kırmızı bültenle aranan şüpheli İzmir'de yakalandı
