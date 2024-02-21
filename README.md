@@ -1,11 +1,11 @@
 # Latest News
--  Qantas has announced John Mullen will be the airline’s new chair
--  String of drug-related deaths prompts police warning in N.L.
--  우리산업, 지난해 영업이익 189억...역대 최대
--  티모시 샬라메 너 나와…‘파묘’ 예매량 20만명 넘겼다
--  'CPI da Elektro' em Limeira quer detalhes sobre uso de R$ 56 milhões, preservação de redes elétricas e pontos de risco
--  '하위 10%' 윤영찬 "예상했던 일…공관위 구성 '친명일색'"
--  Trading ideas: Teo Seong, Globetronics, Green Packet, SunCon, KLK, Star Media, Gas Malaysia, CelcomDigi, Hume Cement and Supermax
--  Japan's Exports Rose Nearly 12% in January
--  Haley vows to stay in 2024 race regardless of South Carolina primary results
--  Zelenski G7 liderlərinin görüşündə iştirak edəcək
+-  「亡くなっている認識はあったが届け出なかった」自宅に８８歳母親の遺体放置疑い ６２歳男逮捕〈仙台市〉
+-  백악관 “23일, 러시아 중대 제재 발표”…동결자금 몰수 등 돈줄 죈다
+-  ダイキン、AI解析のためのデータ活用を推進する「データマネジメント支援ソフト」を発売
+-  Africa Vehicle Tracking System Market Estimated to Surpass $26.53 Million by 2027, Growing At a CAGR of 14.9%
+-  Oklahoma County Jail Trustee quits over lack of funding for operations at the jail
+-  McGree’s Middlesbrough upset Championship favourites
+-  La investigación científica que comprobó el poder de un alimento para proteger la memoria cuando las personas envejecen
+-  The NRL players who can’t party with their teammates in Las Vegas
+-  નિફટી 75 પોઈન્ટ વધીને 22197 નવા શિખરે
+-  Global Biofuels Market Report 2024: Industry Developments 2022-2024, Feedstocks Analysis, Production Pathways, Prices Trends, Sustainability Metrics and 200 Company Profiles
