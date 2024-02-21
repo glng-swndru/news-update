@@ -1,11 +1,11 @@
 # Latest News
--  Pametnjakovići iz "ProGlasa" bi da zabrane da se pominje Vučićevo ime! Genijalci ne mogu da ga pobede pa se dosetili...
--  Türkücü Hilal Özdemir 31 Mart seçimlerinde aday oldu: Hizmete talibim!
--  Holiday Inn's parent is giving $1 billion to investors because hotels are popular again
--  Navalny Memorial Billboards Erected Outside Russian Embassy in Sofia
--  Chartres, Orléans, Auxerre... Ils parcourent 2.196 km à vélo pour tracer les anneaux olympiques et battent un record
--  Crest. Un sentier PMR est en cours d’aménagement au parc du Bosquet
--  Make a Big Splash With a Business Meeting in San Diego
--  Putin kommentoi väitteitä avaruuteen sijoitettavista ydinaseista
--  Chartres, Orléans, Auxerre... Ils parcourent 2.196 km à vélo pour tracer les anneaux olympiques et battent un record
--  Шойгу рассказал о завершающихся работах по «Сармату»
+-  Svijet je pred skokom cijena nafte: Evo što s time imaju ukrajinski napadi dronovima na Rusiju
+-  "الغرفة": "الشراكة والتكامل" مع الحكومة يُعزز تنافسية القطاع الخاص ويحسِّن بيئة الأعمال
+-  Con i leader candidati cambia tutto: chi resta fuori dall'Europarlamento
+-  Berlin: Inicijative da se po Navaljnom imenuje trg ili ulica
+-  Why renters report a lower quality of life than homeowners, according to experts
+-  Rahu Kaal and other inauspicious timings (21 Feb 2024): Nashik, Delhi and more
+-  R. Moldova explică de ce îi interzice intrarea în țară lui George Simion. Liderul AUR se apără: „Așa m-au învățat bunicii”
+-  Red Bull confirme travailler sur une F1 'zéro ponton' avec sa RB20
+-  Policía libera a persona secuestrada por la que pedían 50.000 dólares
+-  Educació facilitará el traslado a su isla de residencia a docentes con hijos menores de 12 años
