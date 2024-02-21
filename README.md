@@ -1,11 +1,11 @@
 # Latest News
--  Photo – Inter Milan Champions League Hero Celebrates 1-0 Win Vs Atletico Madrid: ‘I Can’t Describe Feelings Like This’
--  BYD gözünü yükseklere dikti! Bentley ve Rolls-Royce rakip geliyor! Lüks otomobil sektörüne yeni soluk
--  Júlia Palha é protagonista do filme de César Mourão
--  Warm global oceans making difference in predicting weather events, says Australian agency
--  Fome ameaça vida de bebés e grávidas na Faixa de Gaza
--  Auxiliar do Hospital Garcia de Orta torturou doentes idosos para sacar códigos dos cartões bancários
--  Link Live Streaming GS Caltex vs Red Sparks Liga Voli Korea 2024 Hari Ini, Laga Penting Demi Playoff
--  Mnangagwa To Address Youth In Masvingo On Robert Mugabe Day
--  Cần xóa ngay những ứng dụng này khỏi điện thoại Android
--  Irmão de Alexei Navalny na lista de procurados da Rússia
+-  Nawaz Sharif, Bilawal Bhutto’s parties reach new coalition govt deal in Pakistan
+-  இன்று சென்னை மாநகராட்சி பட்ஜெட்
+-  陸快艇翻覆海巡無錄影 邱毅：到底在遮掩什麼？
+-  여가부 장관 5개월 만에 사표 수리…여가부 사실상 폐지 수순
+-  MinTIC y Sena lanzan cursos gratis de tecnología con certificación de OIT: inscripción
+-  Ar ēnu ekonomikas mazināšanu pagaidām īpaši raiti nesokas
+-  El tiempo en Camas: previsión meteorológica para hoy, miércoles 21 de febrero
+-  Yankees star Aaron Judge thinks toe injury will require 'constant maintenance' through end of his career - Yahoo Sports
+-  Чилийски съд възобнови разследването на смъртта на поета Пабло Неруда
+-  OpenAI’s Sam Altman has plans for AI that could mean big money for Intel
