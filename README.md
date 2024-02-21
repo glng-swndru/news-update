@@ -1,11 +1,11 @@
 # Latest News
--  Die Leben der Beatles werden verfilmt: Vier Biopics auf einen Schlag angekündigt
--  हरियाणा से भाजपा के सुभाष बराला राज्यसभा के लिए चुने गए
--  По меньшей мере, 200 украинцев пребывают в заключении в оккупированном Крыму в связи с политическими преследованиями, - правозащитники
--  Schulfrei: Wann sind Osterferien in Deutschland?
--  Des chars et missiles étrangers et un chasseur détruits en Ukraine: Moscou publie son nouveau bilan
--  Schulfrei: Wann sind Osterferien in Deutschland?
--  Ο «παλαιοχριστιανός» πατέρας αρνείται τεστ DNA για το 11 μηνών βρέφος
--  Die Leben der Beatles werden verfilmt: Vier Biopics auf einen Schlag angekündigt
--  فوز اول للاهلي النبطية على طرابلس في بطولة كرة القدم
--  وزير البترول المصري: نستهدف استثمارات أجنبية بـ8 مليارات دولار
+-  NZ media silent on Assange
+-  Saftiger Zitronenkuchen vom Blech – kinderleichtes Rezept
+-  Global Calcium Carbonate Strategic Market Report 2024-2030: Growing Paper Demand Trends and Increasing Consumption of Plastics to Give a Boost to the Industry
+-  Tekbol od ove sezone ima i "zimsku ligu" - sve kreće iz Podgorice
+-  Zbog jutrošnjeg iskliznuća tramvaja na Črnomercu, večeras se uvodi posebna regulacija prometa koja će trajati čak dva tjedna!
+-  Dr Ousmane Cissé: « Une voie de recours ou un couloir de secours est bien possible à la Décision N°1/C/2024 du Conseil Constitutionnel »
+-  A Telekom volt a nap sztárja a magyar tőzsdén
+-  Warframe is Now Available on the App Store for iOS
+-  Ruska barbika očarala Putina: To je lepa Katya, ki jo povezujejo s predsednikom
+-  Travaux d’éboulement dans la Tinée: les horaires de circulation évoluent
