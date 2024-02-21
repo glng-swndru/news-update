@@ -1,11 +1,11 @@
 # Latest News
--  Martin Scorsese auf der Berlinale: „Ich bin ein Mysterium“
--  HEAD Sportswear se anticipa al verano con una nueva colección textil 2024
--  المنافذ الجوية والبرية لبلادنا تسجل وصولا ومغادرة 9909 مسافرين
--  IT-Recht: Wie der Digital Services Act ohne deutsches Begleitgesetz startet
--  وول ستريت تفتح منخفضة مع تضاؤل الآمال في خفض مبكر لأسعار الفائدة
--  "Prawie się nie odzywał". Znamy szczegóły rozmowy z Andriejewem w MSZ
--  На ВДНХ представили уникальные экологические атласы
--  OM : Il annonce un nouveau séisme après Gattuso ?
--  Erik ten Hag has treated 21-year-old Man Utd 'magician' badly, he deserves a chance - opinion
--  Vier Hände und zwei Flügel im Einklang: Polnische Schwester brillieren beim Finale der Klaviertage
+-  Husumer Busunternehmen wartet lange auf Führerscheinverlängerungen aus Region Hannover2020
+-  SAD u petak objavljuje veliki paket sankcija Rusiji
+-  «Спартак» одержал разгромную победу перед матчем с «Астаной»
+-  একুশের চেতনা ও বর্তমান ভাষা-পরিস্থিতি
+-  Amerika tendenciozno gura Evropu u rat! Evo ko će imati najviše koristi od opšteg haosa!
+-  Une proche d’Eric Ciotti dépose plainte contre un adjoint de Christian Estrosi, qui réplique
+-  Há sekt fyrir að úthúða dómaranum
+-  Ação especial vacina mais de 400 funcionários da JBS e Seara de Dourados
+-  Ιταλία: Νέα κινητοποίηση των αγροτών έξω από τη Ρώμη - Πορεία των τρακτέρ στον περιφερειακό
+-  Gökhan Zan kimdir ve aslen nereli? Gökhan Zan'ın eşi kim? Biyografik bilgileri
