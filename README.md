@@ -1,11 +1,11 @@
 # Latest News
--  "Temperatura crollata a -52 gradi all'improvviso, animali morti congelati": la verità dietro il video shock
--  South Carolina's Elliott says downsizing was for family reasons, not changes in college football
--  Estrazioni Lotto oggi e numeri SuperEnalotto di martedì 20 febbraio 2024
--  Presidents Day may be over, but these mattress deals are still on at Amazon
--  Champions League, Ίντερ-Ατλέτικο Μαδρίτης, Αϊντχόφεν-Ντόρτμουντ (22:00, Cosmote Sport) - Οι ενδεκάδες
--  FOTOGALERIJA Pogledajte kako je bilo na premijeri predstave Nije pas beštija
--  Felle Frenkie de Jong haalt hard uit naar Spaanse pers: ’Jullie moeten je schamen’
--  【会社員必見】日本的「大企業信仰」からの本格的な脱却…大企業の年収をスタートアップの年収が上回ったという現実 - 14歳のときに教えてほしかった 起業家という冒険
--  De Jong 'atira-se' a jornalista: «Porque escreves mentiras?»
--  ‘Verba Cordis’, medio siglo de discursos de los Caballeros Cubiertos de Orihuela
+-  Στο τραπέζι της G7 το ενδεχόμενο αυστηροποίησης των κυρώσεων κατά της Ρωσίας – "Επίθεση φιλίας" του Πούτιν στην Ιταλία;
+-  "Husi"lər İsrail gəmisinə raket zərbələri endirdi
+-  Nightingale - How To Use Realmic Transmuters
+-  Wilder Look: Rita Ora präsentiert ihre neue Kurzhaarfrisur!
+-  Путин дал совет российскому губернатору
+-  Το «One Song» της Miet Warlop στη Στέγη: Μια γιορτή, ένα τραγούδι, μια αξέχαστη στιγμή - Πόσο μακριά θα τρέξεις για τη ζωή σου;
+-  Cartel de Notificación
+-  Täällä juomavesi täytyy edelleen keittää
+-  TNRD expanding fines for disposing of inappropriate materials through recycling
+-  Geta ekki upplýst um endanlega tímalínu
