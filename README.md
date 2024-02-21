@@ -1,11 +1,11 @@
 # Latest News
--  Svijet je pred skokom cijena nafte: Evo što s time imaju ukrajinski napadi dronovima na Rusiju
--  "الغرفة": "الشراكة والتكامل" مع الحكومة يُعزز تنافسية القطاع الخاص ويحسِّن بيئة الأعمال
--  Con i leader candidati cambia tutto: chi resta fuori dall'Europarlamento
--  Berlin: Inicijative da se po Navaljnom imenuje trg ili ulica
--  Why renters report a lower quality of life than homeowners, according to experts
--  Rahu Kaal and other inauspicious timings (21 Feb 2024): Nashik, Delhi and more
--  R. Moldova explică de ce îi interzice intrarea în țară lui George Simion. Liderul AUR se apără: „Așa m-au învățat bunicii”
--  Red Bull confirme travailler sur une F1 'zéro ponton' avec sa RB20
--  Policía libera a persona secuestrada por la que pedían 50.000 dólares
--  Educació facilitará el traslado a su isla de residencia a docentes con hijos menores de 12 años
+-  Martin Scorsese auf der Berlinale: „Ich bin ein Mysterium“
+-  HEAD Sportswear se anticipa al verano con una nueva colección textil 2024
+-  المنافذ الجوية والبرية لبلادنا تسجل وصولا ومغادرة 9909 مسافرين
+-  IT-Recht: Wie der Digital Services Act ohne deutsches Begleitgesetz startet
+-  وول ستريت تفتح منخفضة مع تضاؤل الآمال في خفض مبكر لأسعار الفائدة
+-  "Prawie się nie odzywał". Znamy szczegóły rozmowy z Andriejewem w MSZ
+-  На ВДНХ представили уникальные экологические атласы
+-  OM : Il annonce un nouveau séisme après Gattuso ?
+-  Erik ten Hag has treated 21-year-old Man Utd 'magician' badly, he deserves a chance - opinion
+-  Vier Hände und zwei Flügel im Einklang: Polnische Schwester brillieren beim Finale der Klaviertage
