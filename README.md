@@ -1,11 +1,11 @@
 # Latest News
--  Did You Know: Rituraj Singh Was In Shah Rukh Khan's Debut Film 'In Which Annie Gives It Those Ones'
--  ТАТКО МУ Е БЛИЗОК ЧОВЕК НА ПУТИН: Mлад Русин почина под сомнителни околности
--  Four Beatles movie biopics announced in unprecedented granting of life and music rights
--  SEVERINI SUD VRATIO SINA: Pevačiica i kralj bakra deliće starateljstvo nad naslednikom, ona se oglasila na društvenim mrežama (FOTO)
--  Nicolas Ndiaye, SG de la Ligue Démocratique (LD) : « On ne peut pas reprendre tout le processus…la question de l’amnistie me pose problème (..) Amadou Ba reste et demeure notre candidat »
--  Světem se šíří spalničky. Jejich počet masivně narůstá, v ohrožení jsou desítky milionů dětí
--  Lions rescued from Sudan conflict zone find new home in South Africa
--  "My Sói" Thu Quỳnh: "Tôi không kinh doanh, không tham vọng kiếm nhiều tiền, đầu tư"
--  Διστακτικό ξεκίνημα στη Wall ενόψει αποτελεσμάτων και πρακτικών Fed
--  Anderson Talisca Süper Lig'e mi dönüyor? Yeni adresini duyurdular...
+-  توقيع برنامج للتعاون البيئي بين سلطنة عمان وأمريكا
+-  اجتماع موسع لمديري إدارة الجامعات في المنطقتين الشرقية والغربية لتنظيم عمل الجامعات
+-  „Ići ću do kraja, tražiću samostalno starateljstvo“: Oglasila se Severina nakon što joj je sud vratio sina
+-  One Arrested as Migrants Assault Cops in Randall’s Island Tent City
+-  Zmrazená embrya jsou děti, rozhodl Nejvyšší soud v Alabamě
+-  O OVOM NAPADU TERORISTA NA BEOGRAD SE MALO ZNA: 4 razorne bombe na 4 mesta i misteriozni čovek sa crnom kutijom! Vriska, krv, dim
+-  Qua 50 tuổi, TRÁNH làm 4 điều để cuối đời hưởng phúc, khôn ngoan nhất là thấu hai chữ: THÍCH HỢP!
+-  EEUU está "en declive" hoy en día debido a la "ignorancia y arrogancia"
+-  Наёмник из Грузии получил в ДНР пожизненный срок за убийство российских военных
+-  Государственный секретарь Республики Дагестан направил поздравительное письмо Президенту Ильхаму Алиеву
