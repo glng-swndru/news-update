@@ -1,11 +1,11 @@
 # Latest News
--  صحة الوادي الجديد تعدم كميات من الأغذية الفاسدة.. وتسحب عينات للتحليل
--  Vanđelić: Obuljen Koržinek je pretjerano lojalna Plenkoviću, kad tad će biti uhićena
--  "EKSPO je energetska kapisla": Vučić otkrio koliko znači za našu zemlju i koliko se ulaže
--  Бразилець з Полісся виконав обіцянку перевезти родину до України
--  Elizabeth Warren revela la rotación de ensueño mientras Crypto Fanatic lanza una oferta contra ella
--  PLL LOT będzie rósł. Przewoźnik powiększa swoją flotę
--  Sarah Fraisou en couple et bientôt mariée à son cousin ? "On a une complicité incroyable !"
--  Survivor: Αυτό είναι το πρόβλημα υγείας της Όλγας Πηλιάκη - Τι είπε ο Στέλιος Χανταμπάκης
--  VÍDEO: A 'figuraça' de Kanye West no Inter-Atlético Madrid
--  North Carolina School ‘Celebrates’ Black History Month by Terrorizing Children
+-  "Za Ekspo i više od 17 milijardi evra"
+-  How To Choose the Right Funding Model for Your Startup
+-  La sorpresa de Patricia Madrid por un mensaje de su pareja al aire: "No sé cómo hicieron"
+-  لياو مهاجم ميلان يهاجم "أصحاب العقول الصغيرة" بعد تعرضه لإساءة عنصرية
+-  İstanbul'da feci kaza: Fren yerine gaza bastı
+-  Le quita el derecho de paso a vehículo en Saltillo; madre e hijo resultan afectados
+-  ЕС привика руския шарже д'афер в Брюксел за смъртта на Навални
+-  Congreso: Sustentan proyecto que propone tribunales sin rostro para crimen organizado
+-  Paris'in simgesi Eyfel Kulesi grev nedeniyle kapandı
+-  Osmaniye'de 250 ton atık geri dönüşüme kazandırıldı
