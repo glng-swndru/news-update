@@ -1,11 +1,11 @@
 # Latest News
--  Ostro nad korupcijo
--  Weiterer Schaden entdeckt: Wartburgstraße in Castrop-Rauxel bleibt noch länger gesperrt
--  Plötzlich geht alles sehr schnell: Zweites Dattelner Windrad am Kraftwerk fertig montiert
--  Riconoscere il figlio o la figlia fuori del matrimonio: come si fa e cosa serve
--  Naira tumbles to all time low of N1,825/$ at parallel market
--  Notunterkunft auf der Backumer Straße: Nach Sanierung sollen hier Flüchtlinge einziehen
--  《浩克慢遊》重返10年前拍攝地！ 主持人憶菜鳥心聲：看東西都是朦朧的
--  Λεμεσός: Εντοπίστηκαν 5 κιλά κάνναβης και €14.000-Χειροπέδες σε 52χρονο
--  春闘 トヨタ労使協議会 開始 最高で2万8,440円賃上げ要求へ
--  Börsen-Ticker: Schweizer Aktienmarkt vorbörslich im Minus - Nervosität vor Nvidia-Bericht drückt Wall Street - Intel legt zu
+-  Nádraží z filmových básníků v Kladně půjde k zemi. Nahradí ho moderní budova se zelenou střechou
+-  Uzay'dan başımıza uydu düşecek! Dünya'ya doğru yöneldi
+-  27.1 مليار ريال استثمارات أجنبية في عُمان.. و5.3 مليار ريال استثمارات عُمانية بالخارج
+-  Súd v Londýne zamietol pozastavenie vývozu zbraní do Izraela
+-  Trešdien valsti šķērsos plaša nokrišņu zona
+-  ΗΠΑ: 9χρονο φέρεται να πυροβόλησε και να σκότωσε μέλος της οικογένειάς του
+-  Omicidio Carol Maltesi, a Milano il processo d'appello: Fontana rischia l'ergastolo
+-  전공의 71% 사직서 제출…'의대 증원 백지화' 등 요구
+-  إطلاق "سحابة وطنية" لمواكبة متطلبات الثورة الرقمية
+-  美 FDA, ‘고형암’ 세포치료제 첫 허가…K바이오도 “도전”
