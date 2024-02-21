@@ -1,11 +1,11 @@
 # Latest News
--  Kitą savaitę – 12 mln. paramos kvietimas nuosavoms saulės elektrinėms
--  Verhandlung im März: Nawalnys Mutter klagt auf Herausgabe ihres toten Sohnes
--  Danmarks største open source-leverandør: Vi kan komme Chromebook-sagen til livs for kun fem millioner kroner
--  The big miss on electric cars is remaking Europe’s auto industry
--  あの「スイカゲーム」に無料エクササイズ版が登場！
--  Στον Αντιπεριφερειάρχη Ημαθίας ο νέος Αστυνομικός Διευθυντής κ. Ανδρέας Καλογερόπουλος
--  Family Feud Philippines: February 21, 2024 | LIVESTREAM
--  Maxi truffa a una coppia di anziani: portati via Swaroski, orologi e lingotti d'oro
--  Bonus edilizi, dichiarazioni dei redditi ed evasione: i nuovi piani del Fisco
--  Cuatro juveniles de Temperley se marchan a Sol de Mayo
+-  Dijete hitno prevezeno u pulsku bolnicu, nedugo zatim preminulo. Istraga u tijeku
+-  I pendolari consegnano oltre 5mila firme in Regione per chiedere il potenziamento della Roma Nord
+-  Présidentielle 2024: Le patron de l’Onu en Afrique de l’Ouest et au Sahel, reçu par Macky Sall et...la présidente Innocence Ntap Ndiaye
+-  Лебеденко: «В резиденции Кадырова Черчесов подошел к клетке со львом, сказав: «Тише, я такой же»
+-  شاهد أضوى العسيري بإطلالة تراثية ساحرة في احتفال يوم التأسيس
+-  김연아, “나도 실수할 수 있지”
+-  Uczestniczka "Królowej Przetrwania" wprost o wybielaniu uczestników. Chodzi o trzy nazwiska [POMPONIK EXCLUSIVE]
+-  VinFast tìm ra phương án mới để huy động vốn từ giới siêu giàu
+-  Swiss Steel will Fruithof offenbar nicht als VR-Präsident nominieren
+-  KAAN ilk kez havalandı, gökyüzünde süzüldü, ardından iniş yaptı! Savunma Sanayii Başkanı Görgün o anları paylaştı
