@@ -1,11 +1,11 @@
 # Latest News
--  「亡くなっている認識はあったが届け出なかった」自宅に８８歳母親の遺体放置疑い ６２歳男逮捕〈仙台市〉
--  백악관 “23일, 러시아 중대 제재 발표”…동결자금 몰수 등 돈줄 죈다
--  ダイキン、AI解析のためのデータ活用を推進する「データマネジメント支援ソフト」を発売
--  Africa Vehicle Tracking System Market Estimated to Surpass $26.53 Million by 2027, Growing At a CAGR of 14.9%
--  Oklahoma County Jail Trustee quits over lack of funding for operations at the jail
--  McGree’s Middlesbrough upset Championship favourites
--  La investigación científica que comprobó el poder de un alimento para proteger la memoria cuando las personas envejecen
--  The NRL players who can’t party with their teammates in Las Vegas
--  નિફટી 75 પોઈન્ટ વધીને 22197 નવા શિખરે
--  Global Biofuels Market Report 2024: Industry Developments 2022-2024, Feedstocks Analysis, Production Pathways, Prices Trends, Sustainability Metrics and 200 Company Profiles
+-  สภาพอากาศวันนี้ ทั่วไทยเจอ "อากาศร้อนในตอนกลางวัน" มีฝนฟ้าคะนอง 10%
+-  Nhà sản xuất phim Đào, Phở và Piano: Lãi ròng vỏn vẹn vài triệu đồng, có năm thua lỗ, SCIC muốn thoái toàn bộ vốn
+-  Sandeep Lamichhane watched cricket from the hospital
+-  Nasdaq 100 futures slip after major averages incur back-to-back losses: Live updates - CNBC
+-  The affordable rosé you need in your glass this summer
+-  Barroso nega pedido de Bolsonaro para afastar Moraes do inquérito do golpe
+-  용인특례시, ‘찾아가는 무한돌봄센터’ 운영
+-  민주→국힘→개혁신당?…김종인 당 바꿔 또 등판하나
+-  Sandeep Lamichhane watched cricket from the hospital
+-  Comissão de Ética abre processo contra ministros de Bolsonaro por reunião com teor golpista
