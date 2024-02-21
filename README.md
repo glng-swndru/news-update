@@ -1,11 +1,11 @@
 # Latest News
--  McDonald’s Interlomas reabre sus puertas con una experiencia innovadora, checa cómo se renovó
--  Jadi Hot Mom, Ini 9 Potret Adiezty Fersa Makin Langsing
--  James Rodríguez ganha nova chance no São Paulo
--  Voetbalfraudeur (26) bedreigt bestuurders met de dood: ’We pakken alles van je af, mij vind je nooit’
--  Cổ phiếu tiêu điểm hôm nay (21/2): Vì sao giá cổ phiếu IDC của Tổng công ty Idico được ACBS điều chỉnh tăng 16%?
--  Aaj Ka Rashiifal: वृषभ समेत इन जातकों के लिए मुश्किल रहेगा बुधवार, पढ़ें मेष से लेकर मीन तक का हाल
--  Bố mẹ thiên vị con út, cuối đời mong con cả giúp 1 việc, bị từ chối nhưng không dám trách móc nửa lời
--  [ITmedia ビジネスオンライン] マーケティングの「学習範囲と8つのスキル」 プロは「理論」から学ぶ
--  White Rock Whalers advance to 2nd round of PJHL playoffs
--  TOP NEWS ore 24 - L'Inter vince il primo round. 1-0 all'Atletico: tutte le reazioni
+-  Milei aumenta salário mínimo em 30% em meio a inflação de 254% na Argentina
+-  Diversi jadi Opsi Jalan Keluar Kasus Dugaan Perundungan di Binus School Serpong
+-  Após bater carro, motorista embriagado é preso com espingarda russa e 60 munições em Sinop
+-  경기도교육청 "전국동계체육대회에 경기도 438명 학생선수 참가"
+-  김민하, “무너질 때 확 무너져버리는 용기, 그걸 배웠어요”
+-  Pet Express is now at The Podium
+-  Rà soát, điều chỉnh giao thông cao tốc Cam Lộ - La Sơn sau tai nạn nghiêm trọng
+-  Possibili nuove regole per gli autovelox: stop sotto i 50 km/h e non solo
+-  Adu Gaya OOTD Ibu Pejabat Siti Atikoh vs Selvi Ananda: Lebih Anggun Mana?
+-  Mário Branco: «Não fui contactado pelo Benfica nem pelo FC Porto»
