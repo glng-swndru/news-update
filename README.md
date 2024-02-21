@@ -1,11 +1,11 @@
 # Latest News
--  İsrail'in fosfor bombasıyla ağır yaralanan genç kızın hali gözyaşlarına boğdu
--  BBP'den Fatih Erbakan açıklaması: Nezaketsizlik, saygısızlık! Özür çağrısı
--  시드니 태권도장 한인 일가족 살인사건…유력 용의자 병원 치료
--  Luna i Anabela besne na Vesnu Đogani! Oštro poručile: Sve sami moralisti, to se ne radi!
--  TRAKTORIJADA STIGLA I U GRČKU: Poljoprivrednici blokirali granični prelaz Evzoni
--  Irmã de Melody anuncia venda de carro que ganhou da cantora há um mês: 'Oportunidade'
--  Nikki Haley promete se manter na disputa contra Trump até o fim das primárias republicanas
--  Irmã de Melody anuncia venda de carro que ganhou da cantora há um mês: 'Oportunidade'
--  پیروزی منچسترسیتی مقابل برنتفورد در حضور کوتاه سامان قدوس
--  Nikki Haley promete se manter na disputa contra Trump até o fim das primárias republicanas
+-  WiseTech to hit $1bn revenue target after hiking dividend
+-  Ranking UEFA, l'Italia allunga al primo posto: buona notizia per il Napoli
+-  Champions: Arnautovic, gol tra più importanti mia carriera
+-  WiseTech to hit $1bn revenue target after hiking dividend
+-  Rolling Stone Audio Awards 2024
+-  ملخص مباراة إنتر ميلان ضد أتلتيكو مدريد فى دوري أبطال أوروبا - اليوم السابع
+-  70% de las grandes ciudades de EEUU están endeudadas y no tiene recursos para pagar sus facturas
+-  Amazon Is Joining the Dow Jones Industrial Average
+-  ’Must have missed Australia for 20 years’: Clarke puts Poms in their place over Bazball claim
+-  Chilean skies protected from light pollution by the Guardians of Darkness
