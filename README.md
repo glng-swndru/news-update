@@ -1,11 +1,11 @@
 # Latest News
--  UGB : Un autre étudiant, blessé pendant les manifestations, est finalement décédé
--  Somos András végleg otthagyja a tévés szakmát a pedofíliáról tett kijelentései után
--  [예술과 오늘] 표절공장 ‘생성형 AI’
--  Na Sunset Sports Media Festival dolaze svjetski stručnjaci, sportske i medijske zvijezde
--  الثواني الأخيرة تُخرج منتخبنا الوطني من مونديال الشاطئية
--  Bandecchi indagato per diffamazione ad assessore Umbria
--  Nardò, schianto sulla pista di collaudo della Porsche: muore un motociclista di 36 anni
--  Amerykański miliarder sprzedał właśnie akcje rynkowego giganta za łączną sumę prawie 10 mld zł. Jego firma zatrudnia w Polsce tysiące osób
--  Programação para dia da mulher terá palestra com psicóloga em Nova Mutum
--  Колишні постачальники харчів для Міноборони скасували нові правила закупівель через суд
+-  Stora gatan stängs av när fjärrvärme grävs
+-  You can get £75 off your broadband bill if you pick Virgin Media's M250 plan
+-  Nhịn ăn sáng tốt hay hại, ảnh hưởng thế nào đến đường huyết? Chuyên gia có câu trả lời gây bất ngờ
+-  県立高校入試平均志願倍率 調整後も０．８０倍で過去最低 最高は不来方・芸術コース１．５０倍＜岩手県＞
+-  ZUTOMAYO首來台想吃正港排骨麵！ 全中文問候被讚：聲音好甜～
+-  Startup Electric Hydrogen Has Big Plans To Make Green Fuel For Cheap - Forbes
+-  TWO CID OFFICERS CHARGED WITH ASSAULT
+-  Groupe public-privé, refus de l’opposition: quelle gestion pour le pôle de transition environnementale dracénois?
+-  Electric Cars Vs. Wildflowers: Who Wins?
+-  Megkezdte a régi Windows-ok kényszerfrissítését a legújabbra a Microsoft
