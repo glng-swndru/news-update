@@ -1,11 +1,11 @@
 # Latest News
--  Preocupación por el aumento del suicidio en mayores
--  Työelämäprofessoriksi ryhtynyt suorasuu Alex Nieminen lataa: Insinöörijohtajat käyvät kalliiksi Suomen kansantaloudelle
--  The dangers of ‘influencers’ and brands targeting your kids with ads
--  Angst auf Harburger Straßen –und was dagegen helfen soll
--  La sustitución de los proyectores de La Eragudina costará 44.770 euros
--  Đón chờ bí mật hấp dẫn sắp được bật mí từ Pokémon và OREO trong năm 2024
--  Engage XR signs largest contract to date with Middle East deal
--  Retired legend makes surprise radio return
--  All-Ireland winner arrested over alleged assault on boy (12)
--  Miñambres coge el timón del Levante
+-  Guerrilha do ELN congela diálogos de paz com governo da Colômbia
+-  吉田正尚が苦しんだメジャー1年目を語る 今季は「逆にプレッシャー」
+-  Външните министри на Бразилия и Израел се засипаха с обвинения
+-  Bà hàng xóm hot nhất phim Mai tiết lộ phản ứng khi xem lại cảnh mình đóng, đáp trả đã tai khi bị chê già hơn tuổi thật
+-  وفيات الأربعاء .. 21 / 2 / 2023
+-  Gazan sota | Brasilian ulko­ministeri syyttää Israelin virka­veljeään valehtelusta
+-  사상 최고치 이후 방향성 찾는 시장, 매도해야 할 고평가 주식 4종목
+-  Toàn cảnh đường nối 2 cao tốc trị giá 2,5 tỷ sắp hoàn thành, đi qua 2 tỉnh siêu nhỏ dự kiến lên thành phố trực thuộc Trung ương
+-  Broken Bronco’s remarkable recovery in time for Vegas
+-  福島第一原発の汚染水含む水漏えい 齋藤経産相が再発防止について東京電力を直接指導
