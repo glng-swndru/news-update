@@ -1,11 +1,11 @@
 # Latest News
--  우상혁, 체코 실내대회 우승…“부족한 부분 점검”
--  삼성전자 “텍사스가 핵심”…美 경제적 영향력 268억달러
--  Sharad Pawar Says Government Not Bothered About Attacks On Fundamental Rights
--  Sở hữu MU, Ratcliffe định đoạt tương lai Rashford
--  Lobbyists spent tens of thousands of dollars wining, dining lawmakers
--  Meeting over converting Santa Fe streetlights to LEDs to be online only
--  Bikin Gaduh, 2 Tempat Hiburan Malam di Kota Serang Dibongkar
--  Trágico accidente de turistas argentinos en México: qué se sabe de la salud de los dos sobrevivientes
--  New managers arrive for candidates' third showdown
--  CMA Inter, Final Result Dec 2023: Check pass percentage, rank list here
+-  Ostro nad korupcijo
+-  Weiterer Schaden entdeckt: Wartburgstraße in Castrop-Rauxel bleibt noch länger gesperrt
+-  Plötzlich geht alles sehr schnell: Zweites Dattelner Windrad am Kraftwerk fertig montiert
+-  Riconoscere il figlio o la figlia fuori del matrimonio: come si fa e cosa serve
+-  Naira tumbles to all time low of N1,825/$ at parallel market
+-  Notunterkunft auf der Backumer Straße: Nach Sanierung sollen hier Flüchtlinge einziehen
+-  《浩克慢遊》重返10年前拍攝地！ 主持人憶菜鳥心聲：看東西都是朦朧的
+-  Λεμεσός: Εντοπίστηκαν 5 κιλά κάνναβης και €14.000-Χειροπέδες σε 52χρονο
+-  春闘 トヨタ労使協議会 開始 最高で2万8,440円賃上げ要求へ
+-  Börsen-Ticker: Schweizer Aktienmarkt vorbörslich im Minus - Nervosität vor Nvidia-Bericht drückt Wall Street - Intel legt zu
