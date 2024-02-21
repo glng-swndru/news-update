@@ -1,11 +1,11 @@
 # Latest News
--  Με μέτρο η βιταμίνη Β3: Υψηλά επίπεδα συνδέθηκαν με καρδιακές παθήσεις - Ποια τρόφιμα αποτελούν βασικές πηγές
--  Vučić ‘briljirao‘, tema je sportska, nije moglo bez Hrvatske: ‘Uspio sam i u tome da cijeli narod misli isto što i ja‘
--  Совет по развитию инклюзивной среды создан в Алматы
--  Güneşli günler kısa sürecek! Soğuk hava aniden çökecek, lapa lapa kar yağışı için tarih verildi: İstanbul, Ankara, İzmir dahil çok sayıda kent için yeni uyarı
--  EU: istraga protiv TikToka
--  정부, 7월 14일 '북한이탈주민의 날'로 제정 추진…기념공원 조성 계획
--  İzmit'te Ramazan davulcusu başvuruları başladı
--  Cuatro bebidas que estimulan el sueño y ayudan a descansar mejor por la noche
--  Vatandaş yönünü dövize çevirdi: Üç madde talebi artırdı
--  Kırmızı bültenle aranan şüpheli İzmir'de yakalandı
+-  Ukrayna: Rus ordusuna ait savaş uçağı düşürdük
+-  "Trouver 80.000 euros n'est pas insurmontable" : une pétition en ligne réclame le maintien du Catalpa festival en 2024
+-  Siirt'te Kopya Düzenekleri Ele Geçirildi: 2 Gözaltı!
+-  Президент Узбекистана приедет в Казань для участия в открытии «Игр будущего»
+-  국민의힘, 현역 물갈이 없는 '조용한' 공천…미정 78곳 현역 교체 바람 부나?
+-  "Trouver 80.000 euros n'est pas insurmontable" : une pétition en ligne réclame le maintien du Catalpa festival en 2024
+-  Transgender personen stellen Amsterdam UMC aansprakelijk na mislukte operaties: ‘Ernstige fouten’
+-  Il Quartierino 'invaso' da nuovi palazzi, protestano i residenti: "Viviamo senza giardini e servizi essenziali"
+-  Milli muharip uçak KAAN, gökyüzüyle buluştu
+-  Transgenders stellen Amsterdam UMC aansprakelijk na mislukte operaties: ‘Ernstige fouten gemaakt’
