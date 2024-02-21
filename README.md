@@ -1,11 +1,11 @@
 # Latest News
--  WiseTech to hit $1bn revenue target after hiking dividend
--  Ranking UEFA, l'Italia allunga al primo posto: buona notizia per il Napoli
--  Champions: Arnautovic, gol tra più importanti mia carriera
--  WiseTech to hit $1bn revenue target after hiking dividend
--  Rolling Stone Audio Awards 2024
--  ملخص مباراة إنتر ميلان ضد أتلتيكو مدريد فى دوري أبطال أوروبا - اليوم السابع
--  70% de las grandes ciudades de EEUU están endeudadas y no tiene recursos para pagar sus facturas
--  Amazon Is Joining the Dow Jones Industrial Average
--  ’Must have missed Australia for 20 years’: Clarke puts Poms in their place over Bazball claim
--  Chilean skies protected from light pollution by the Guardians of Darkness
+-  اعلام دو شاخص ارزیابی مدیران استان تهران/ تلاش واحدهای بازرسی برای مبارزه با فساد اداری
+-  Pescadores y autoridades evitan varada masiva de ballenas en Celestún, Yucatán
+-  Galatasaray, Fenerbahçe ve Beşiktaş, PFDK'lık oldu
+-  Atletico Madrid, Simeone: "La partita è andata come volevamo. Restiamo tranquilli"
+-  OAG chases B600m from China gang
+-  Khống chế cháy rừng bùng phát tại Vườn Quốc gia Hoàng Liên ở Lào Cai
+-  「お口、クチュ、クチュ。モンダミン」JR神田駅の駅メロに 企画の舞台裏
+-  Guardiola býst við þriggja hesta titilbaráttu - „Þeir hafa gert ótrúlega hluti“
+-  Igor Coronado chega motivado para defender o Corinthians: "Não existe momento bom ou ruim"
+-  Best Internet Providers in Connecticut - CNET
