@@ -1,11 +1,11 @@
 # Latest News
--  NZ media silent on Assange
--  Saftiger Zitronenkuchen vom Blech – kinderleichtes Rezept
--  Global Calcium Carbonate Strategic Market Report 2024-2030: Growing Paper Demand Trends and Increasing Consumption of Plastics to Give a Boost to the Industry
--  Tekbol od ove sezone ima i "zimsku ligu" - sve kreće iz Podgorice
--  Zbog jutrošnjeg iskliznuća tramvaja na Črnomercu, večeras se uvodi posebna regulacija prometa koja će trajati čak dva tjedna!
--  Dr Ousmane Cissé: « Une voie de recours ou un couloir de secours est bien possible à la Décision N°1/C/2024 du Conseil Constitutionnel »
--  A Telekom volt a nap sztárja a magyar tőzsdén
--  Warframe is Now Available on the App Store for iOS
--  Ruska barbika očarala Putina: To je lepa Katya, ki jo povezujejo s predsednikom
--  Travaux d’éboulement dans la Tinée: les horaires de circulation évoluent
+-  No convictions for mum, uncle who took 'screaming' boy from his school outing
+-  Gemini Man : comment le jeune Will Smith a-t-il été créé ?
+-  Inversión extranjera en México tocó un nuevo máximo histórico en 2023: más de US$ 36.000 millones
+-  13 pictures showing a East Leeds home in a bustling residential area ideal for families and couples
+-  MN24 – Infortunio Kalulu, passi avanti importanti verso il rientro. Ecco cosa filtra da Milanello sulle condizioni del difensore
+-  Best Presidents Day Home and Kitchen Deals You Can Still Grab - CNET
+-  Brambati critico: «Juve? Non ha ancora trovato qualcuno che…»
+-  Navigating AI Deployment: What CIOs Need to Know According to Info-Tech Research Group's Latest Research
+-  Waarom Dortmund-doelman Kobel extra uit moet kijken voor PSV-middenvelder Veerman
+-  Descubra como a saúde cardiovascular pode ser potencializada pelo sexo
