@@ -1,11 +1,11 @@
 # Latest News
--  Guerrilha do ELN congela diálogos de paz com governo da Colômbia
--  吉田正尚が苦しんだメジャー1年目を語る 今季は「逆にプレッシャー」
--  Външните министри на Бразилия и Израел се засипаха с обвинения
--  Bà hàng xóm hot nhất phim Mai tiết lộ phản ứng khi xem lại cảnh mình đóng, đáp trả đã tai khi bị chê già hơn tuổi thật
--  وفيات الأربعاء .. 21 / 2 / 2023
--  Gazan sota | Brasilian ulko­ministeri syyttää Israelin virka­veljeään valehtelusta
--  사상 최고치 이후 방향성 찾는 시장, 매도해야 할 고평가 주식 4종목
--  Toàn cảnh đường nối 2 cao tốc trị giá 2,5 tỷ sắp hoàn thành, đi qua 2 tỉnh siêu nhỏ dự kiến lên thành phố trực thuộc Trung ương
--  Broken Bronco’s remarkable recovery in time for Vegas
--  福島第一原発の汚染水含む水漏えい 齋藤経産相が再発防止について東京電力を直接指導
+-  Μήνυμα στήριξης από την κυβέρνηση για τους ελληνικούς υδρογονάνθρακες πριν τη γεώτρηση στην Κρήτη
+-  ウクライナ侵攻後繋がり深めるロシアと中国 去年貿易総額は“過去最高”約2400億ドル 往来活発化する国境地帯を取材
+-  Трамп считает, что Байден разрушает США
+-  SPD-Ausschussvorsitzender will gegen Cannabis-Gesetz stimmen
+-  SPD-Ausschussvorsitzender will gegen Cannabis-Gesetz stimmen
+-  Prozesse: Waffenmeister vor Gericht nach tödlichem Schuss von „Rust“.
+-  FOMC 의사록 경계 속 두터운 상하방 압력…환율 1330원대 좁은 레인지[외환분석]
+-  Traffic diversion near Modi stadium
+-  Acciones del América ‘vuelan’ en su debut en Bolsa
+-  Viral Wajah Wanita Makassar Rusak Buntut 2 Kali Disiram Air Keras, Pilu Tak Punya Biaya Berobat
