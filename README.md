@@ -1,11 +1,11 @@
 # Latest News
--  Trudeau in Vancouver to make housing announcement
--  No hay punto de comparación: Max Ramírez
--  Fräck stöld av utrustning – ligger kvar hos polisen
--  El S&P 500 pierde los 5.000 puntos en una jornada a la baja en Wall Street
--  Beneficios del ginseng para el corazón: mejora la circulación de la sangre, ayuda a reducir el colesterol malo y los triglicéridos, ¿cómo tomarlo?
--  Orri Steinn skoraði í óhefðbundnum æfingaleik
--  Em’s Café, Freeling
--  Mask: Prvi ljudski Neuralink pacijent može da kontroliše kompjuterski miš mislima
--  Sorriso: forças de segurança contém princípio de motim em cadeia
--  El peso mexicano intenta romper hacia abajo el psicológico de los $17.0 spot
+-  Did You Know: Rituraj Singh Was In Shah Rukh Khan's Debut Film 'In Which Annie Gives It Those Ones'
+-  ТАТКО МУ Е БЛИЗОК ЧОВЕК НА ПУТИН: Mлад Русин почина под сомнителни околности
+-  Four Beatles movie biopics announced in unprecedented granting of life and music rights
+-  SEVERINI SUD VRATIO SINA: Pevačiica i kralj bakra deliće starateljstvo nad naslednikom, ona se oglasila na društvenim mrežama (FOTO)
+-  Nicolas Ndiaye, SG de la Ligue Démocratique (LD) : « On ne peut pas reprendre tout le processus…la question de l’amnistie me pose problème (..) Amadou Ba reste et demeure notre candidat »
+-  Světem se šíří spalničky. Jejich počet masivně narůstá, v ohrožení jsou desítky milionů dětí
+-  Lions rescued from Sudan conflict zone find new home in South Africa
+-  "My Sói" Thu Quỳnh: "Tôi không kinh doanh, không tham vọng kiếm nhiều tiền, đầu tư"
+-  Διστακτικό ξεκίνημα στη Wall ενόψει αποτελεσμάτων και πρακτικών Fed
+-  Anderson Talisca Süper Lig'e mi dönüyor? Yeni adresini duyurdular...
