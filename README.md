@@ -1,11 +1,11 @@
 # Latest News
--  Nejlepší scénář? Hned na začátku Varům odskočit, nabádá pardubický Dvořák
--  ANALIZA SUDAČKE KOMISIJE: Jedanaesterac protiv Dinama neprihvatljiva je odluka!
--  Elezioni europee 2024, tutto quello che devi sapere: la guida completa
--  Yhteislenkit totuttavat koiria käyttäytymään kauniisti
--  Nachmieter-Suche für Altstadt-Geschäft: „Sehr attraktiver Mietpreis“ soll Leerstand verhindern
--  Ria Ricis Hilang Kehangatan Saat Hamil Karena Teuku Ryan Takut, Padahal Ini Manfaat Berhubungan Saat Mengandung
--  Loire. Course-poursuite sur l’A47 : à 14 et 15 ans, ils fuient la police dans une voiture volée
--  “Sabah da söz sahibi komandam olacaq"
--  Wie der Fußball Mick und Lena Gudra vor den Altar führt
--  Un recensement inédit à Vichy
+-  UGB : Un autre étudiant, blessé pendant les manifestations, est finalement décédé
+-  Somos András végleg otthagyja a tévés szakmát a pedofíliáról tett kijelentései után
+-  [예술과 오늘] 표절공장 ‘생성형 AI’
+-  Na Sunset Sports Media Festival dolaze svjetski stručnjaci, sportske i medijske zvijezde
+-  الثواني الأخيرة تُخرج منتخبنا الوطني من مونديال الشاطئية
+-  Bandecchi indagato per diffamazione ad assessore Umbria
+-  Nardò, schianto sulla pista di collaudo della Porsche: muore un motociclista di 36 anni
+-  Amerykański miliarder sprzedał właśnie akcje rynkowego giganta za łączną sumę prawie 10 mld zł. Jego firma zatrudnia w Polsce tysiące osób
+-  Programação para dia da mulher terá palestra com psicóloga em Nova Mutum
+-  Колишні постачальники харчів для Міноборони скасували нові правила закупівель через суд
