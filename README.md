@@ -1,11 +1,11 @@
 # Latest News
--  Siêu tàu ngầm du lịch mà giới tỷ phú cũng phải mơ ước
--  Muhtar adayı Doğan’dan Plajyoluspor’a ziyaret
--  "Une beauté hallucinante" : Mélanie Laurent, une star américaine a eu un gros crush pour elle, belle déclaration
--  宿泊施設で５０代女性に性的暴行疑い ５３歳パート従業員男逮捕〈仙台市〉
--  『Tales of ARISE』が300万本突破！岩本稔氏による描きおろしイラストを公開
--  Un malien abattu par la police ivoirienne à Tingréla, ville frontalière
--  Comment l'Agglo Pays d'Issoire accompagne la réhabilitation de logements anciens ?
--  이준석 “한동훈, 비례정당이 축낼 보조금 어떻게 할지 입장 밝히라”
--  Orbán Viktor Mészáros Lőrinc szállodájában ad iránymutatást az övéinek, Bayer Zsolt és Rákay Philip is ott lesz – Már a héten bejelenthetik a kormánypárti ...
--  Ganz natürlich: Kylie Jenner begeistert als Bikini-Babe
+-  Петър Куленски посрещна Димитър Бербатов и Стилян Петров в Пазарджик
+-  L'OMS et l'UE vont aider à renforcer la résilience de l'Indonésie face aux futures pandémies
+-  Soud rozhodne o vazbě na pět obviněných v kauze nemocnic v Ústí a Jihlavě
+-  Bölgesel kalkınma projeleriyle şehirler cazibe merkezi haline getirilecek
+-  Wynik finansowy NBP. NBP odpowiada na ataki
+-  Клиенты Qiwi не могут пополнить кошельки после отзыва лицензии у Киви банка
+-  Kazakhstan approves agreement with Türkiye to accelerate cargo transit via Azerbaijan
+-  Susurluk Şeker Fabrikası üretimde rekora koşuyor
+-  Türkiye tarihinin en büyük felaketi ile karşı karşıya kalabilir diyerek uyardı! 1 değil 2 değil. Ötelendikçe öteleniyor
+-  La France appelle «le Rwanda à cesser tout soutien au M23» actif dans l'est de la RDC
