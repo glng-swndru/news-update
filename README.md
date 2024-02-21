@@ -1,11 +1,11 @@
 # Latest News
--  Oficial din Departamentul de Stat al SUA, despre o posibilă invazie rusă în Republica Moldova: „Ne pregătim în consecinţă”
--  مشيدة بدورها المجتمعي.. جمعية الرحمة النسوية تزور مؤسسة المحروسة بالحوطة
--  SUA blochează pentru a treia oară rezoluția ONU de încetare a focului în războiul Israel-Hamas din Fâșia Gaza
--  Lapangan Olahraga di Ponpes Lombok Dibangun Usai Dampak Gempa 2018
--  Ottawa police investigating Monday morning shooting in ByWard Market
--  Играчите на Байерн на бунт срещу Тухел
--  Василев: Към 19 февруари сме събрали 685 млн. лева повече данъци
--  El euro blue cerró a $1153 para la compra y $1196 para la venta este martes 20 de febrero de 2024
--  Bakanlık açıkladı: Ortak sınav tarihleri belli oldu
--  Ardèche. Les bugnes sont très attendues dans les boulangeries du bassin annonéen
+-  د سندرو مېلمانه
+-  Miramare, al via un 2024 di ricchi appuntamenti
+-  Официальный визит Президента Ильхама Алиева в Турцию в центре внимания турецких СМИ
+-  Crepe tra i 5 Stelle, Capozzella: “Ascoltare di più i territori”
+-  Lilou Varga ist das Mädchen mit der Hörspielstimme
+-  Vodafone reklamında oynayan kadın kim?
+-  Kommun uppmärksammas – sänkte kostnaderna rejält
+-  Riforma elettorale: la maggioranza riflette, opposizioni all’attacco
+-  Riforma elettorale: la maggioranza riflette, opposizioni all’attacco
+-  ACCC break-up powers would be a ‘big stick’ to corporate Australia: Fels
