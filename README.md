@@ -1,11 +1,11 @@
 # Latest News
--  Milei aumenta salário mínimo em 30% em meio a inflação de 254% na Argentina
--  Diversi jadi Opsi Jalan Keluar Kasus Dugaan Perundungan di Binus School Serpong
--  Após bater carro, motorista embriagado é preso com espingarda russa e 60 munições em Sinop
--  경기도교육청 "전국동계체육대회에 경기도 438명 학생선수 참가"
--  김민하, “무너질 때 확 무너져버리는 용기, 그걸 배웠어요”
--  Pet Express is now at The Podium
--  Rà soát, điều chỉnh giao thông cao tốc Cam Lộ - La Sơn sau tai nạn nghiêm trọng
--  Possibili nuove regole per gli autovelox: stop sotto i 50 km/h e non solo
--  Adu Gaya OOTD Ibu Pejabat Siti Atikoh vs Selvi Ananda: Lebih Anggun Mana?
--  Mário Branco: «Não fui contactado pelo Benfica nem pelo FC Porto»
+-  Qantas has announced John Mullen will be the airline’s new chair
+-  String of drug-related deaths prompts police warning in N.L.
+-  우리산업, 지난해 영업이익 189억...역대 최대
+-  티모시 샬라메 너 나와…‘파묘’ 예매량 20만명 넘겼다
+-  'CPI da Elektro' em Limeira quer detalhes sobre uso de R$ 56 milhões, preservação de redes elétricas e pontos de risco
+-  '하위 10%' 윤영찬 "예상했던 일…공관위 구성 '친명일색'"
+-  Trading ideas: Teo Seong, Globetronics, Green Packet, SunCon, KLK, Star Media, Gas Malaysia, CelcomDigi, Hume Cement and Supermax
+-  Japan's Exports Rose Nearly 12% in January
+-  Haley vows to stay in 2024 race regardless of South Carolina primary results
+-  Zelenski G7 liderlərinin görüşündə iştirak edəcək
