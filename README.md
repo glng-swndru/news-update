@@ -1,11 +1,11 @@
 # Latest News
--  Μήνυμα στήριξης από την κυβέρνηση για τους ελληνικούς υδρογονάνθρακες πριν τη γεώτρηση στην Κρήτη
--  ウクライナ侵攻後繋がり深めるロシアと中国 去年貿易総額は“過去最高”約2400億ドル 往来活発化する国境地帯を取材
--  Трамп считает, что Байден разрушает США
--  SPD-Ausschussvorsitzender will gegen Cannabis-Gesetz stimmen
--  SPD-Ausschussvorsitzender will gegen Cannabis-Gesetz stimmen
--  Prozesse: Waffenmeister vor Gericht nach tödlichem Schuss von „Rust“.
--  FOMC 의사록 경계 속 두터운 상하방 압력…환율 1330원대 좁은 레인지[외환분석]
--  Traffic diversion near Modi stadium
--  Acciones del América ‘vuelan’ en su debut en Bolsa
--  Viral Wajah Wanita Makassar Rusak Buntut 2 Kali Disiram Air Keras, Pilu Tak Punya Biaya Berobat
+-  Mercato : A peine arrivé, il fait une promesse à l’OM
+-  South Africa Cereals and Crops Growing Industry Report 2023: Growing Opportunities in the Development of Hemp Amidst New Regulations
+-  کاهش نامحسوس آمار «ازدواج» و عدم رشد «طلاق»/ صدور مجوز مراکز همسرگزینی توسط وزارت ورزش و جوانان
+-  iPhone 16では｢スマホに話しかける生活｣が当たり前になるかも - GIZMODO JAPAN
+-  "הבנתי שבגין צדק שאויבנו הם חיות דו־רגליות"
+-  TDP Janasena Seats Sharing : సీట్ల షేరింగ్ లో టీడీపీ-జనసేన కు మధ్య ఏం జరుగుతోంది.? | ABP Desam
+-  «Вашингтон» — «Нью-Джерси»: видеообзор матча
+-  両陛下、能登半島地震の被災地訪問 3月下旬の方向で調整中
+-  Elon Musk says patient moves cursor with brain implant
+-  મેનેજમેન્ટ ફંડા by એન રઘુરામન:ઓફિસ કે કોલેજમાં ડિસ્કશન માટે આંકડા જરૂરી છે, તેના વિના ચર્ચાનું કોઇ મહત્વ નથી.
