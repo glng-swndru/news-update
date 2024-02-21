@@ -1,11 +1,11 @@
 # Latest News
--  Nawaz Sharif, Bilawal Bhutto’s parties reach new coalition govt deal in Pakistan
--  இன்று சென்னை மாநகராட்சி பட்ஜெட்
--  陸快艇翻覆海巡無錄影 邱毅：到底在遮掩什麼？
--  여가부 장관 5개월 만에 사표 수리…여가부 사실상 폐지 수순
--  MinTIC y Sena lanzan cursos gratis de tecnología con certificación de OIT: inscripción
--  Ar ēnu ekonomikas mazināšanu pagaidām īpaši raiti nesokas
--  El tiempo en Camas: previsión meteorológica para hoy, miércoles 21 de febrero
--  Yankees star Aaron Judge thinks toe injury will require 'constant maintenance' through end of his career - Yahoo Sports
--  Чилийски съд възобнови разследването на смъртта на поета Пабло Неруда
--  OpenAI’s Sam Altman has plans for AI that could mean big money for Intel
+-  Estoniyada on nəfər Rusiya casusu saxlanılıb
+-  (여자)아이들 미연, 사랑스러운 인사 [포토]
+-  2월 중순 수출 7.8% 감소…조업일수 감소 영향
+-  越南两家酒店被评为“世界最佳酒店”
+-  (여자)아이들 미연, 귀여운 파이팅 [포토]
+-  Pendaftaran CPNS 2024 Sebentar Lagi, Pembagian Belum Jelas, Honorer Sabar Dulu
+-  Se la coppia è in crisi potrebbe essere una questione di tempo: per salvarla basta un'ora dedicata al "noi"
+-  Borsa: Hong Kong negativa, apre a -0,5%
+-  KB국민은행 "'청년 주택드림 청약통장' 가입하고 선물 받으세요"
+-  서울대 교수 “의대증원 통해 의사 수입 적정 수준으로 낮춰야”
