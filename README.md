@@ -1,11 +1,11 @@
 # Latest News
--  YouTube mom tearfully apologizes in U.S. child abuse sentencing
--  Strikers block Eiffel Tower access for 2nd day, threaten to dig in
--  YouTube mom tearfully apologizes in U.S. child abuse sentencing
--  ΑΕΚ: Αήττητη με αντίπαλο την Πάφο FC και έτοιμη για τις ισχυρές προκλήσεις
--  Черноморец ще е домакин на турнира за баскетболната Купа на България при мъжете - Труд
--  YouTube mom tearfully apologizes in U.S. child abuse sentencing
--  Graham Price: The Wales player we now need for 80 minutes
--  Strikers block Eiffel Tower access for 2nd day, threaten to dig in
--  Strikers block Eiffel Tower access for 2nd day, threaten to dig in
--  Strikers block Eiffel Tower access for 2nd day, threaten to dig in
+-  北朝鮮「韓国は敵対国」発言や異例の日本向け談話、新たな緊張の裏にある“従来と違う事情” - 田中均の「世界を見る眼」
+-  A nap legfontosabb hírei egy helyen – 2024. február 20.
+-  Dólar cae por quinta sesión consecutiva: ¿en cuánto cotiza este martes 20 de febrero?
+-  Arról beszélt a műsorvezető az ATV-ben, hogy "Kaleta nem volt pedofil", fegyelmi eljárást indítanak ellene
+-  Trump Booed At FurryCon While Hawking New $399 Tail
+-  BBC EastEnders' Denise Fox's downfall 'sealed' as character return leads to twist before exit
+-  Pao "fantastični trojac": Krali šta su stigli, a nafta im bila "poslastica" i to 2.850 litara
+-  Emmerdale legend reaches breaking point and loses it in shocking outburst at work
+-  Land Rover Says 24-Inch Wheels Are Too Much
+-  Stacey Solomon's rollercoaster love life - Steve-O fling to failed engagement and Joe Swash
