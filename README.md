@@ -1,11 +1,11 @@
 # Latest News
--  El fortín de San Mamés
--  Vermoedelijke opstelling Feyenoord: Slot schuift voorin en wijzigt op twee plekken
--  Ísland í dag - Fjölnir og Stjarnan mætast í Egilshöll
--  Петьо Петров-Еврото се намира в близка до България държава, обяви шефът на столичната полиция
--  Kafes-45 operasyonlarında 63 şüpheli yakalandı
--  Ground down: 'Exhausted' coffee roaster ordered to leave airport building
--  Ítalía í dag - Torino og Lazio eigast við
--  Evrópudeildin í dag - Hvaða lið fara í 16-liða úrslit?
--  Alves Kablo halka arzı başladı: Kaç gün sürecek?, Kaç lot verecek?
--  Crime in SA | Cape Town authorities monitor highways
+-  Tributes continue to pour in for late Taib
+-  Kahramanmaraş, savunma sanayiine katkı verecek
+-  જામનગરમાં આગામી તા.24 ફેબ્રુઆરીએ વડાપ્રધાન નરેન્દ્ર મોદીનો રોડ શૉ: તંત્ર દ્વારા પુર જોશમાં તૈયારી
+-  KVIEČIAME Į SUSITIKIMĄ SU LIETUVOS RESPUBLIKOS PREZIDENTU GITANU NAUSĖDA
+-  Intuitive Machines’ Odysseus spacecraft successfully injected into Moon orbit ahead of landing attempt
+-  How life in Ukraine has been shattered by two years of war
+-  Deputatların telefonlarında casus proqramı aşkarlandı
+-  Czy wyniki Nvidia zakończą hossę?
+-  വിവാഹ വാർഷികം ആഘോഷിക്കാൻ അറബ് നാട്ടിലെത്തി; ഇന്ത്യൻ ദമ്പതികളുടെ തലവര മാറി, അക്കൗണ്ടിലെത്തുക 6.5 കോടി രൂപ
+-  'MAFS-Dirk bedolven onder huwelijksaanzoeken'
