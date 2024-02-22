@@ -1,11 +1,11 @@
 # Latest News
--  The Rookie (2024) Season 6 Streaming: Watch & Stream Online via Hulu
--  Türkmenistanyň Prezidenti Birleşen Arap Emirlikleriniň wise-prezidenti, Premýer-ministriniň orunbasary bilen duşuşdy
--  Excitement peaks with Beda Paar song from Kiran Rao's Laapataa Ladies Out Now
--  LIVE Champions League | Frenkie de Jong met Barcelona tegen kwakkelend Napoli, Xavi kiest voor 5-3-2
--  Генетични тестове измерват риска от 10 често срещани заболявания
--  Troisdorf: GFO-Kliniken ordnen Notfallversorgung neu – Zentrale Notaufnahme am Standort St. Josef
--  Встреча Президента Туркменистана с Вице-президентом, заместителем Премьер-министра Объединённых Арабских Эмиратов
--  Privatna američka svemirska letjelica stigla do Mjesečeve orbite
--  Makron Azərbaycan əsgərinin yaralanmasından təəssüflənir, amma...
--  "Čim sam to pomenuo..." Vučić zapretio Zvezdi i Partizanu
+-  Paşinyan Fransadan alınan silahlardan danışdı
+-  ものすごく仕事の成果があがる「ドラッカーの時間術」とは？ - 定番読書
+-  Széttankolta magát a volt cége kontójára
+-  Operazione +12: il Parma studia l'allungo e aspetta Krause
+-  Γκαγιέγο: «Εγχείρηση για τον Κίκο – Είμαστε ανταγωνιστικοί»
+-  Ημαθία: Τρένο πέρασε από φυλασσομένη διάβαση με ανεβασμένες μπάρες – Δείτε βίντεο
+-  ClorDiSys' Chlorine Dioxide Gas Medical Device Sterilization Noted as One of the "Best of MD&M West"
+-  Em fundo de cabine de caminhão, traficante escondia R$ 20 milhões em cocaína
+-  Mortes por dengue sobem para 17 no estado de SP
+-  Warning ahead of Taylor Swift’s Eras Tour
