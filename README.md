@@ -1,11 +1,11 @@
 # Latest News
--  Synlait Milk is warning of a potential net loss in its half year results
--  İranda ucuz iPhone vaadiyle 35 milyon dolarlık vurgun
--  Aborcja dzieli Koalicję? Posłanki: Panowie są przeciw, my chcemy liberalizacji
--  صافي أرباح اسـتـثـمار القابضة ترتفع 8.3٪ إلى 352 مليون ريال قطري بنهاية 2023
--  Pioli a Sky: "Gravissimo pensare di essere qualificati. Turnover? 4 o 5 cambi non modificano la mentalità di una squadra"
--  Sağlık Yaşam Yürüyüşlerine kadınlar yoğun ilgi gösteriyor
--  Az Olympiakosz játékosait nem izgatja a budapesti pokol, újabb győzelmet aratnának
--  Samsun'da okul müdürü darbedildi: 3 kişi gözaltına alındı
--  Speaker apologises after Commons descends into chaos over ceasefire votes
--  Taylor Swift embraces Australian wildlife during break from Eras Tour
+-  Ayacucho: 30 viviendas en riesgo por activación de quebradas en Concepción
+-  ஆஞ்சனேயா் கோயிலில் கும்பாபிஷேக பூா்த்தி விழா
+-  Чочев: Най-голямата сила на Лудогорец са качествените футболисти
+-  The Zone of Interest lays bare the banality and ordinariness of evil
+-  Gorizia, chiudono da lunedì per tutto il 2024 i Musei Provinciali di Borgo Castello
+-  A home in an Australian capital for under $750k? Tell 'em its a reality
+-  Horoscope Today 22 February 2024 : आजचा गुरुवार खास! स्वामींच्या कृपेने ‘या’ राशीच्या व्यक्तींची अडकलेली कामं लागतील मार्गी, वाचा 12 राशींचं भविष्य
+-  கூட்டுறவு ஒன்றியத்துக்கு கல்வி வளா்ச்சி நிதி அளிப்பு
+-  The Zone of Interest lays bare the banality and ordinariness of evil
+-  د سندرو مېلمانه
