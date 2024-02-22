@@ -1,11 +1,11 @@
 # Latest News
--  CLJ Roofing Ltd owner fleeced £642k out of 50 customers
--  美國23億最新對台軍售案 外交部感謝落實安全承諾
--  كريستيانو رونالدو … آلة تهديفية
--  Občinski prostorski načrt: Na osnutek prejeli 368 pripomb
--  Cha mẹ càng bất tài, càng thích giả vờ “hào phóng” trong 3 việc, vừa hại con vừa hại mình
--  Yêu cầu báo cáo việc giá vé máy bay 'nhảy múa' dịp Tết
--  Разпитват нови свидетели по делото "Семерджиев"
--  台灣國際運動及健身展智能化、數位化 3月盛大開展
--  Senate committee moves bill to allow creation of alternative public charter schools
--  Senate bill opens path for state to make money through forest-management wildfire prevention
+-  許藍方遭爆「靠王少偉牽線搶代言」！ 出面鬆口內幕：不太可能
+-  ইন্দোনেশিয়া দেবে ২২২ বৃত্তি, আবেদন করুন দ্রুত
+-  Hangi meyve kalp krizinin önünü kesiyor
+-  Así encontró la Guardia Civil el cuerpo de Don Manuel
+-  Güney Afrika ülkesinden ihracat yasağı kararı
+-  La dernière étude de DigiCert révèle un fossé grandissant entre les entreprises qui bénéficient de la confiance numérique et celles qui la perdent
+-  Surveillance video shows plants being stolen from a Sacramento charter high school multiple times
+-  Sebut Angin Dahsyat di Sumedang sebagai Tornado Pertama di Indonesia, Ini Penjelasan Peneliti BRIN
+-  Terangi Desa Patimburak, PLN Hadir Listriki Masjid Tertua di Tanah Papua
+-  The top 7 best-selling phones of 2023 were all … you guessed it
