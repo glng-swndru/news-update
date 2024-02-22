@@ -1,11 +1,11 @@
 # Latest News
--  Zuur voor Atlético Madrid: Antoine Griezmann verstuikt enkel
--  Lazio: Zaccagni salta il Torino per precauzione
--  La colocación de la estructura metálica da un nuevo impulso a la obra del mercado municipal de Almuñécar
--  Fossibot DT2 - a munka neheze
--  Coaching Post For Hardlife Zvirekwi
--  Cachorro de 'Anatomia de uma Queda' ensaiou por dois meses para fingir sua morte
--  V Ljubljano prihaja močni Fehervar z Anžetom Kuraltom
--  Кологривый показал, что умеет тратить деньги: Кроссовки за 147 тысяч и футболка за 60 тысяч
--  Maior homem do mundo se encontra com mulher considerada a pessoa mais baixa do planeta
--  Straße Am Markt nach langer Verzögerung freigegeben: Keine Baustelle bleibt in der Castroper Altstadt
+-  Diana Mondino se reunió con el canciller británico y mantuvo una fuerte discusión por las Islas Malvinas
+-  Genoeg dramatisch serie­materiaal in ‘Patty’, maar de scènes zijn oppervlakkig en de dialogen krukkig
+-  Ministar Primorac predstavlja središnji registar stanovništva, zamijenit će popis stanovništva
+-  Trei bărbați au vrut să abandoneze doi câini la marginea drumului, dar au fost prinși în fapt și filmați. Ce amendă au primit
+-  Google представила Gemma — открытую версию ИИ-модели Gemini
+-  נפתחה מכירת הכרטיסים למשחק הנבחרת מול איסלנד, המחיר האחיד בפנים
+-  Stuttgarter Wilhelma: Schwingaffenhaus wird geschlossen
+-  Tragis, Ayah Kandung dan Ibu Tiri Tega Redam Anaknya di Selokan Air hingga Meninggal di Aceh Singkil
+-  Андрей Никитин: Мы организовали первый телемост с нашими бойцами на СВО
+-  Google, açık kaynak yapay zeka modeli Gemma'yı duyurdu
