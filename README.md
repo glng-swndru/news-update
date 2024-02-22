@@ -1,11 +1,11 @@
 # Latest News
--  Bloomberg: KE jest gotowa odblokować kolejne 6 mld euro z KPO dla Polski
--  Morto in montagna a 24 anni borsa di studio per ricordarlo
--  A Copiano e Bascapè sindaci ricandidati a Roncaro si cambia
--  Policías hieren dos entre ellos un miembro de la Fuerza Aérea Dominicana en Hondo Valle
--  Bar Sport, dopo 37 anni finisce la gestione di “Pepo”
--  Богомаз: силы ПВО сбили украинский БПЛА в Клинцовском районе Брянской области
--  Parcheggio a 1 euro al giorno se i Comuni non si accordano
--  Achtelfinale der Champions League: FC Barcelona verspielt Führung, Porto schockt Arsenal
--  'Anything you can do to reduce': 90K Winnipeggers asked to cut back on water use to combat pipe leak
--  Com chá revelação luxuoso, Virgínia e Zé Felipe revelam sexo do terceiro bebê
+-  King Charles 'reduced to tears' by public support
+-  «خالــــــد الشحانيــــــــــة» يفوز بكأس بيضا القاع
+-  Cámara de Turismo de Lara realizó la presentación de su “Agenda 2024” #21Feb
+-  Kunsten å balansere utslippsfri kollektivtransport med etikk
+-  Ronaldo decisivo nella Champions League asiatica: l’ex Juve segna il gol vittoria nel “derby”
+-  No solo Sam Altman está aventando dinero para a la escasez de chips de IA
+-  Border paranoia breaks out in Fortress Australia
+-  Airinmar signs extension of aircraft warranty and value engineering services with Philippine Airlines
+-  भ्रष्टाचार के कथित आरोपों में फंस डॉ. जितेंद्र गुप्ता:विजिलेंस ने पकड़ा तो बिहार छोड़ा, अब नगालैंड में सीबीआई ने पकड़ा
+-  Knight Therapeutics Announces Regulatory Submission of Fostamatinib in Brazil
