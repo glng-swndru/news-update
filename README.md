@@ -1,11 +1,11 @@
 # Latest News
--  Моторошні паралелі з сьогоденням: огляд фільму "Зона інтересу"
--  El Vaticano inició la restauración del Baldaquino de San Pedro
--  Háború – Európa polgárai alig hisznek Ukrajna győzelmében
--  В Беларуси аттестованы более 1,3 тыс. экскурсоводов и гидов-переводчиков
--  Can you go inside the BT Tower and why was it closed?
--  Dve zmagi Jorgića premalo za četrtfinale
--  Storing in systemen reisinformatie Nederlandse Spoorwegen: ‘Nog geen gevolgen voor treinverkeer’
--  Leilão da Receita com celular, Transformers e pedalinho começa nesta quarta (21); saiba participar
--  Can you go inside the BT Tower and why was it closed?
--  Prezidentas pritarė Jarukaičio ir Norkaus kandidatūroms į ES Teisingumo Teismą
+-  Motor racing-Wolff says Antonelli will be in F1, Vowles plays down Williams seat
+-  "On voit que ça va dans le bon sens, mais..." : quelles revendications et mobilisations des agriculteurs de la Région Centre ?
+-  Työehtosopimukset | Ruotsin Tesla-lakko laajenee lataus­asemille
+-  Arrestation de Me Ngagne Demba Touré : l’UNJT invite à un arrêt immédiat du travail et à une suspension des audiences en cours
+-  Kauza učitele s falešnými diplomy: Nový verdikt, justiční pinkaná ale pokračuje
+-  Matjaž Kek še ni rekel zadnje
+-  Caso Assange, concluso l’appello finale a Londra: il verdetto, forse, tra alcuni giorni
+-  Γαλλία: Αγρότες εισέβαλαν στην έδρα του κολοσσού των γαλακτοκομικών Lactalis
+-  Japan's exports keep growing
+-  Cyclisme - Mercato : Soudal-Quickstep-Alaphilippe, c’est fini !
