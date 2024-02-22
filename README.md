@@ -1,11 +1,11 @@
 # Latest News
--  King Charles 'reduced to tears' by public support
--  «خالــــــد الشحانيــــــــــة» يفوز بكأس بيضا القاع
--  Cámara de Turismo de Lara realizó la presentación de su “Agenda 2024” #21Feb
--  Kunsten å balansere utslippsfri kollektivtransport med etikk
--  Ronaldo decisivo nella Champions League asiatica: l’ex Juve segna il gol vittoria nel “derby”
--  No solo Sam Altman está aventando dinero para a la escasez de chips de IA
--  Border paranoia breaks out in Fortress Australia
--  Airinmar signs extension of aircraft warranty and value engineering services with Philippine Airlines
--  भ्रष्टाचार के कथित आरोपों में फंस डॉ. जितेंद्र गुप्ता:विजिलेंस ने पकड़ा तो बिहार छोड़ा, अब नगालैंड में सीबीआई ने पकड़ा
--  Knight Therapeutics Announces Regulatory Submission of Fostamatinib in Brazil
+-  Çanakkale açıklarında 89 düzensiz göçmen kurtarıldı
+-  Onherkenbaar Arsenal gaat in extremis ten onder bij Porto na heerlijke treffer van Galeno
+-  Salta cobrará la atención médica a extranjeros en cuestiones "que no sean de gravedad para la salud"
+-  "IMA STROGU ENERGIJU!" Sanja Vučić TOTALNO RAZOTKRILA Teu Tairović: Ja sam krivac, što je tu gde jeste!
+-  Ferstapen: Zadovoljan sam kako je bolid reagovao
+-  8. Yargı Paketi Komisyonda kabul edildi: Adli para cezaları artacak
+-  [환율전망] “수출 네고·수입 결제 균형 예상…1330원대 초중반 등락 전망”
+-  Jimmy Kimmel Could Be On The Verge Of Disappearing From TV For Good
+-  한국무역협회 대전세종충남본부, 지역 기업 대상 원산지관리 집체교육 개최
+-  Chuyển nhượng MU 22/2: Ngã ngũ thương vụ De Jong, Tuchel bất ngờ thay thế Ten Hag?
