@@ -1,11 +1,11 @@
 # Latest News
--  НА ЖИВО: Ливърпул - Лутън 0:1, шок на "Анфийлд"
--  Chanceler brasileiro critica “inaceitável paralisia” da ONU em conflitos armados
--  Sretnik na Lotu 7 uplatio samo četiri eura i osvojio čak 50.000
--  고령화 vs 저출산…의대증원 2천명을 바라보는 두 가지 시선
--  日本株の高騰をもたらしたインフレ、消費低迷続けばいずれ株価上昇は頭打ち - マーケットフォーカス
--  This Is the Lowest Price We've Ever Seen for a Lenovo Legion Pro RTX 4090 Gaming Laptop
--  Milák ismét azzal az edzővel készül, aki korábban világcsúcshoz segítette
--  Lacalle se hizo un tajo en el dedo al cortar cinta en realojo del asentamiento Kennedy
--  英ウィリアム皇太子が異例の「政治的声明」ガザ戦闘終結を訴える
--  Maestros de Montevideo juntan firmas para hacer un paro en el inicio de las clases 2024
+-  Sneijder analyseert situatie Frenkie de Jong én geeft advies: ‘Dat hóéft niet’
+-  Зеленский изменил состав Ставки Главнокомандующего
+-  "Pseća smrt za psa"! Medvedev o smrti izdajnika Maksima Kuzminova
+-  10 de dep'. Kévin L'Honoré (Hastings FC RCSMN) : "Nous avons un bel avenir devant nous"
+-  Asus Zenfone 11 Ultra Tease Reveals Bigger Size, Video Features - CNET
+-  Eis os árbitros nomeados para os jogos da 23.ª jornada da I Liga
+-  Čović progovorio o svemu: Ivanović je birao Tobija i Bjelicu ispred Monekea i Dejvisa!
+-  Waterloo company makes drones headed for Ukraine
+-  Câmara de Florianópolis aprova internação involuntária para população de rua com dependência química
+-  DOBRODOŠLI U SRBIJU Vučić poručio: Ljude koji dođu otvorenog srca uvek dočeka veličanstvena dobrodošlica (FOTO)
