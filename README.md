@@ -1,11 +1,11 @@
 # Latest News
--  PDRM umum pertukaran jawatan 45 pegawai kanan
--  "On vient d'apprendre qu'elle annule" : Hugo Clément planté "au dernier moment" par la ministre déléguée à l'Agriculture sur France 2
--  Scarpe disegnate da street artist: le Nike Air di una caffetteria fiorentina
--  先探／看懂美日大漲劇本
--  Доллар подорожал до 93 рублей
--  Barcelona legend found guilty of sexual assault, sentenced to four years in jail
--  ЕС отложи преговорите за членство на Украйна
--  Like: prihaja turistična biblija Slovenije in Hrvaške
--  Repsol в 2023 году сократила чистую прибыль на 26%, до 3,2 млрд евро
--  Eskişehir’de 30 milyon dolarlık proje için start verildi
+-  Dólar hoy: esta es la cotización del jueves 22 de febrero, según el BROU
+-  Медведев назвал победу Путина на выборах президента несомненной
+-  Триетажна жилищна сграда гори в София - Труд
+-  Vlada formira Koordinaciono tijelo za zaštitu javnog interesa u...
+-  Денков: Нормално е след първия сблъсък страните да седнат на масата на преговорите
+-  Bid to turn listed Bungay building into flats denied
+-  SPREMILI NOVU PRLJAVU IGRU Saznajemo koja će biti taktika opozicije u Briselu i Parizu sledeće nedelje
+-  Benue Government Issues 14-day Quit Notice To Herders With Their Cattle Grazing Openly
+-  NAJNOVIJE TEORIJE O ZLOGLASNOM MALEZIJSKOM AVIONU MH370! Iskusni pilot objasnio šta se NAJVEROVATNIJE desilo u letelici
+-  Помощь жителям и фронту: два года назад «Единая Россия» развернула масштабную гуманитарную миссию в новых регионах
