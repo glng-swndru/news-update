@@ -1,11 +1,11 @@
 # Latest News
--  북한 ‘美 북한인권특사 비판’에…정부 “그만큼 뼈아프다는 것”
--  Bursada mobilya imalathanesinde yangın
--  "تهميش المسيحيين": من مسؤوليتهم أم من الشركاء؟
--  [속보] 이창용 한은 총재 “올해 민간소비 전망치 1.9→1.6% 하향 조정”
--  Cabinet approves hike in price of sugarcane payable by sugar factories for 2024-25 season
--  Not Anushka Sharma, but this actress was Ali Abbas Zafar's first choice opposite Salman Khan in Sultan
--  Why Akshay Kumar feels LUCKY
--  Amid suspense over Kamal Nath's next political move, several Congressmen from MP's Chhindwara join BJP
--  Kamil: “Heç ümidim yox idi”
--  女탁구, 中과 외나무다리 혈투…열광 응원 속 이변 가능?
+-  Study finds music's alcohol references sway drinking habits
+-  Large Excavators Market Size, Trends, Share, Opportunities And Forecast To 2032
+-  정부, 원전 생태계 복원 가속…일감 3.3조 확대·R&D 4조 투입
+-  30 человек погибли под завалами шахты в Венесуэле
+-  Pasar Asia Pasifik Dibuka Beragam Kamis Pagi, Bank of Korea Bakal Umumkan Suku Bunga
+-  СМИ узнали о секретном контракте SpaceX с властями США
+-  संगठन शुद्धीकरण र सुदृढीकरणको वार्षिक कार्ययोजना बनाएर सकिँदैछ एमाले केन्द्रीय कमिटी बैठक
+-  미래 원전 패권 좌우할 'SMR' 역량 강화…민간 공동 사업모델 만든다
+-  Dân một làng biển Quảng Bình trúng luồng cá cơm, xúc mỏi tay, chỉ một đêm "bắt" được 150 triệu
+-  일감 늘리고 세금 줄이고 금융 투하까지…"원전 최강국 도약"
