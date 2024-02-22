@@ -1,11 +1,11 @@
 # Latest News
--  Paşinyan Fransadan alınan silahlardan danışdı
--  ものすごく仕事の成果があがる「ドラッカーの時間術」とは？ - 定番読書
--  Széttankolta magát a volt cége kontójára
--  Operazione +12: il Parma studia l'allungo e aspetta Krause
--  Γκαγιέγο: «Εγχείρηση για τον Κίκο – Είμαστε ανταγωνιστικοί»
--  Ημαθία: Τρένο πέρασε από φυλασσομένη διάβαση με ανεβασμένες μπάρες – Δείτε βίντεο
--  ClorDiSys' Chlorine Dioxide Gas Medical Device Sterilization Noted as One of the "Best of MD&M West"
--  Em fundo de cabine de caminhão, traficante escondia R$ 20 milhões em cocaína
--  Mortes por dengue sobem para 17 no estado de SP
--  Warning ahead of Taylor Swift’s Eras Tour
+-  Showtime/MTV Entertainment Studios Storytellers Lab Launches HBCU Partnership To Cultivate BIPOC Content Creators
+-  El destino exótico en el que jugará un futbolista de Lanús
+-  Essen für einen gesunden Darm: Acht Lebensmittel besser vermeiden
+-  10 classic TV shows that should return to our screens after Gladiators reboot
+-  Save 25% or more on Logitech keyboards, mice, and webcams at Amazon
+-  Prevalence of persistent SARS-CoV-2 in a large community surveillance study - Nature.com
+-  Campbell River figure skaters thrill at Vancouver Island Championships
+-  «Aquí al delincuente no lo abrazamos»: Tere Jiménez
+-  Global Electric Vehicle Charging Infrastructure Market Analysis Report 2024-2030: Declining Lithium-ion Battery Costs Presents Growth Opportunities
+-  Essen für einen gesunden Darm: Acht Lebensmittel besser vermeiden
