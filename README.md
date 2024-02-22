@@ -1,11 +1,11 @@
 # Latest News
--  Sneijder analyseert situatie Frenkie de Jong én geeft advies: ‘Dat hóéft niet’
--  Зеленский изменил состав Ставки Главнокомандующего
--  "Pseća smrt za psa"! Medvedev o smrti izdajnika Maksima Kuzminova
--  10 de dep'. Kévin L'Honoré (Hastings FC RCSMN) : "Nous avons un bel avenir devant nous"
--  Asus Zenfone 11 Ultra Tease Reveals Bigger Size, Video Features - CNET
--  Eis os árbitros nomeados para os jogos da 23.ª jornada da I Liga
--  Čović progovorio o svemu: Ivanović je birao Tobija i Bjelicu ispred Monekea i Dejvisa!
--  Waterloo company makes drones headed for Ukraine
--  Câmara de Florianópolis aprova internação involuntária para população de rua com dependência química
--  DOBRODOŠLI U SRBIJU Vučić poručio: Ljude koji dođu otvorenog srca uvek dočeka veličanstvena dobrodošlica (FOTO)
+-  Anderson Silva’s son Gabriel fights Anthony Taylor in Misfits Boxing 13 championship bout
+-  港元定存高息精選
+-  REVIEW: 'One Love' glosses over Bob Marley's colorful life
+-  વડોદરાના જૈન ઉદ્યોગપતિએ સંસારની માયા છોડી દીક્ષા લીધી
+-  لزوم برقراری تعرفه ترجیحی برای افزایش حجم تجارت ایران و تاجیکستان
+-  張兆聰：落後高啤打選車股 小注博零跑
+-  بازار - ۱۴۰۲/۱۲/۰۳
+-  澳洲超市Woolworths涉抬價受查 CEO宣布9月退休
+-  Košarkaški reprezentativci BiH obavili posljednji trening pred odlazak u Nikoziju
+-  8. Yargı Paketi, Meclis'te kabul edildi! Adli para cezaları artıyor...
