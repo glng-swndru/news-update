@@ -1,11 +1,11 @@
 # Latest News
--  Nagnakaw sa karinderya tinutugis
--  Critican a Lilly Téllez por clasista tras exhibir a una diputada comiendo
--  iPhone รุ่นไหนจะได้อัปเดต iOS 18 และรุ่นไหนจะหยุดอยู่ที่ iOS 17
--  輝達AI大會推B100晶片！鴻海廣達出席 黃仁勳3／19開講
--  Dono é multado em R$ 5 mil por ataque de pitbull a criança em Nova Mutum
--  Vecāki nostājas Pumpuru skolas sardzē
--  5 con giáp nhiều cát tinh nhất năm Giáp Thìn: Tài lộc dồi dào, quý nhân dẫn đường, cuộc sống viên mãn
--  Rapor Pemain Liverpool Kala Hajar Luton 4-1: Nyaris Semua Gacor, Badai Cedera Bukan Jadi Masalah
--  Công bố sốc về bệnh ung thư: Hai con số 4 "tử thần"
--  Đà Nẵng đấu giá khu đất lớn xây trung tâm thương mại ngàn tỉ đồng
+-  북한 ‘美 북한인권특사 비판’에…정부 “그만큼 뼈아프다는 것”
+-  Bursada mobilya imalathanesinde yangın
+-  "تهميش المسيحيين": من مسؤوليتهم أم من الشركاء؟
+-  [속보] 이창용 한은 총재 “올해 민간소비 전망치 1.9→1.6% 하향 조정”
+-  Cabinet approves hike in price of sugarcane payable by sugar factories for 2024-25 season
+-  Not Anushka Sharma, but this actress was Ali Abbas Zafar's first choice opposite Salman Khan in Sultan
+-  Why Akshay Kumar feels LUCKY
+-  Amid suspense over Kamal Nath's next political move, several Congressmen from MP's Chhindwara join BJP
+-  Kamil: “Heç ümidim yox idi”
+-  女탁구, 中과 외나무다리 혈투…열광 응원 속 이변 가능?
