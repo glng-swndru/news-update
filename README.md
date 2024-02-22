@@ -1,11 +1,11 @@
 # Latest News
--  “SPA의류·화장품·LCC…가성비 소비 트렌드 수혜주 주목”
--  Diễn biến mới vụ tiền đạo ĐT Việt Nam bị kỷ luật
--  TRU looks to raise $48K during annual Day of Giving drive
--  Bollard use under the scope as CRD embarks on $53M trail widening project
--  Bollard use under the scope as CRD embarks on $53M trail widening project
--  Ana Gomes: “Na AD estão bem encaminhados para vencer André Ventura; não têm o apoio do PS como eu não tive”
--  Doãn Quốc Đam: “Xem phim Đào, phở và piano ngoài rạp, tôi thấy cảm xúc dâng trào"
--  "한화의 류현진, 광채가 날 것 같아요"
--  Tak Percaya Jadi Pemeran Utama Film Mendung Tanpo Udan, Tangis Erick Estrada Pecah
--  Corazzi: "Pioli ha finito il suo ciclo al Milan quasi per volontà sua"
+-  Man has serious injuries after being struck by vehicle in Etobicoke
+-  Trade finance : Le groupe BCP, meilleure banque marocaine pour la troisième année consécutive
+-  Spletna križanka in sudoku Slovenskih novic (22. februar)
+-  おくやみ２月22日掲載分
+-  Aaj Ka Love Rashifal 22 Feb 2024: पार्टनर से आज विवाद हो सकता है, आपको अपने किए का पछतावा होगा
+-  Does Coinstar Exchange Foreign Currency?
+-  Intravascular Imaging Significantly Improves Survival, Safety, and Outcomes in Cardiovascular Stenting Procedures Over Conventional Angiography
+-  الوكرة والغرافة يحتفيان بأبطال القارة
+-  Por que uma série tão ruim como 'Suits' faz tanto sucesso?
+-  健康網》幫孩子調整飲食迎開學 營養師5招助學童飲食均衡
