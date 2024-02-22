@@ -1,11 +1,11 @@
 # Latest News
--  Alabama Health System Pauses IVF Treatments After Court Ruling
--  Buscan a dos hermanos de 9 y 10 años desaparecidos en San Carlos
--  Một người mất tích bao lâu thì nên trình báo công an?
--  Denis Krude, leader de l'industrie de l'hydrogène vert, est nommé président-directeur général de Hydrogen Optimized
--  余罪捜査で発覚…１０代女性に淫らな行為のうえ動画を撮影 千葉県の男（48）を児童買春などの疑いで逮捕
--  Госдеп: подарок Путина Ким Чен Ыну нарушает санкции СБ ООН
--  B.C. woman finds her wallet after it was lost at sea for months
--  B.C. woman finds her wallet after it was lost at sea for months
--  B.C. woman finds her wallet after it was lost at sea for months
--  عامر حسين: لا يوجد موعد محدد لنهاية الدوري
+-  Как будут выглядеть банкноты с изображением Карла III?
+-  İzmir'de tabancayla göğsünden vurulan kişi hayatını kaybetti
+-  A sand hole collapse in Florida killed a child. Such deaths occur several times a year in the US - The Associated Press
+-  Satelit Badan Antariksa Eropa Seberat 2 Ton akan Jatuh ke Bumi
+-  琵琶湖の水位はマイナス46センチ 21日午後5時現在
+-  AFL star retires immediately after sad news
+-  SunRun is the latest solar stock to take a dive, amid concerns over weaker demand
+-  AFL star retires immediately after sad news
+-  Air quality and residential greenness influence childhood cancer development
+-  ‘Devastated’ Angus Brayshaw retires from AFL due to concussion
