@@ -1,11 +1,11 @@
 # Latest News
--  Laren wacht toch met verbouwing Brinkvijver tot na bezwaarprocedure
--  「教室での告白シーンが好きです」 あどけない美少女・中野愛音がDVDデビュー！
--  Zajtrkuj kot kralj in večerjaj kot berač. Ali ta pregovor še drži?
--  EV革命頓挫、6カ月で何が起こったのか - WSJ PickUp
--  43 Rebounds: This Crazy College Basketball Record May Live for a 'Long, Long, Long Time'
--  Eilantrag von Linkem zur Geheimdienstkontrolle abgewiesen
--  Sağlık girişimi Medical Microinstruments, 110 milyon dolar yatırım aldı
--  Migrante de Cuenca murió en ataque en México
--  Students Aren't the Obstacle to Open Debate at Harvard
--  Toxic street drugs cause for concern in Niagara
+-  Kabar Baik MU! Musim Luke Shaw Belum Berakhir!
+-  Suivez en direct la conférence de presse de Christophe Pélissier et Rayan Raveloson avant AJA-Bastia
+-  Genç Parti yerel seçim kararını açıkladı
+-  „Пълмед” откри Отделение по лъчелечение и радиохирургия с апаратура от последно поколение
+-  Pozabite na sarme, poskusite napolniti to zelenjavo, ki jo imate gotovo doma
+-  Карпенко: избирательный процесс в стране идет в штатном режиме
+-  Prestižnu nagradu "Meša Selimović" dobio Selimir Radulović (FOTO)
+-  Ексклюзиви Xbox з'являться на платформах Sony та Nintendo: ось які і коли
+-  Seçime katılacak siyasi parti sayısı 34'e düştü
+-  Quer dar próximo passo na relação com João Monteiro: "Tem muitas certezas"
