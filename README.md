@@ -1,11 +1,11 @@
 # Latest News
--  Paroollezers over de A10-blokkade van Extinction Rebellion: ‘Ga de weg in China of Rusland blokkeren’
--  LMM: el spotter de autos repatriados
--  Τουλάχιστον 29.410 Παλαιστίνιοι έχουν σκοτωθεί στη Γάζα, σύμφωνα με το υπουργείο Υγείας
--  LiveBLOG Sorana Cîrstea - Marketa Vondrousova, în sferturi la WTA Dubai / Meciul începe la ora 12:00
--  דני אלבס נידון ל-4.5 שנות מאסר בגין תקיפה מינית
--  Tchad : l’ARSAT encadre la distribution de carburant en prévision de la canicule
--  조영철 17대 정보보호산업협회장 취임…"'빌드업 투게더'로 세계시장 정조준"
--  Mentale Stärke: Vier Bücher gegen die Angst und für mehr Widerstandsfähigkeit
--  Video is said to show UN relief worker taking shot Israeli on Oct. 7
--  Dani Alves proglašen krivim za silovanje; dobio je četiri i pol godine zatvora!
+-  PDRM umum pertukaran jawatan 45 pegawai kanan
+-  "On vient d'apprendre qu'elle annule" : Hugo Clément planté "au dernier moment" par la ministre déléguée à l'Agriculture sur France 2
+-  Scarpe disegnate da street artist: le Nike Air di una caffetteria fiorentina
+-  先探／看懂美日大漲劇本
+-  Доллар подорожал до 93 рублей
+-  Barcelona legend found guilty of sexual assault, sentenced to four years in jail
+-  ЕС отложи преговорите за членство на Украйна
+-  Like: prihaja turistična biblija Slovenije in Hrvaške
+-  Repsol в 2023 году сократила чистую прибыль на 26%, до 3,2 млрд евро
+-  Eskişehir’de 30 milyon dolarlık proje için start verildi
