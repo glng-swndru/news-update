@@ -1,11 +1,11 @@
 # Latest News
--  Biri Yeni Halka Arz Toplam 4 Hisseye Ay Boyunca Yasak Uygulandı. Borsa İstanbul Emir Paketi Tedbiri Uygulayacak
--  Näin Saarensalmen sillan käyttökielto vaikuttaa koulukuljetuksiin – Ely-keskus selvittää vielä sillan saamia vaurioita
--  Parole O_Stili in tour nelle scuole medie contro gli stereotipi sul calcio femminile
--  Projekt von Martin Engelien: „Go Music“-Reihe startet soulig in den März
--  Iğdır Belediyesinden yangın söndürme eğitimi
--  Abdullah Avcı, Mislav Orsic'in dönüş tarihini açıkladı! Taraftara çağrı...
--  มท.เผย ครบ 84 วัน ลงทะเบียนหนี้นอกระบบ 1.46 แสนราย ยอดหนี้ กว่าหมื่นล้าน
--  Енергийният микс към 2035
--  Argumente für Carsharing-Projekt in Haltern: Bürger besuchen Bürgermeister
--  Todos podemos ser malvados
+-  Paytm controversy: ‘RBI knows better than You and I’ — What Uday Kotak said on Paytm Payments Bank crackdown
+-  Cinco mortos no sul da China após navio colidir com ponte
+-  Vihane vormelilegend: tiimid peaksid ennast häbenema!
+-  Dcera přišla s cenovkou od zubaře v slzách, píší o dostupnosti péče čtenáři
+-  Potholes in Fort Worth cause thousands in damage. Outraged drivers try to make city pay.
+-  Sturm Graz zittert vor dem „kernigen Luxemburger“
+-  Giving Crohn’s drug early ‘cuts need for surgery and further treatment’
+-  サンシャイン池崎が700万円超を寄付 保護猫団体と地震の被災動物支援に
+-  Gesto di solidarietà da McDonald’s: pasti caldi offerti ai più bisognosi
+-  Nuclear Moisture Separator Reheaters Market: Projected to Reach US$ 1,231.6 Million by 2032 | Astute Analytica
