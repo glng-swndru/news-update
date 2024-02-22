@@ -1,11 +1,11 @@
 # Latest News
--  Noa Lang vanaf komende vrijdag te bewonderen op Prime Video
--  Iba v DATARTe máte teraz dopravu zadarmo a zľavu na kávovary až 25 %
--  Fructífera reunión del intendente de Clodomira con el rector de la UNSE para crear nuevos espacios de formación
--  השיחה הראשונה למגן דוד אדום מזירת הפיגוע: "יש פה פצועים על הריצפה"
--  VIDEO Tragedia de la 2 Mai. Tatăl Robertei, tânăra ucisă de Vlad Pascu, acuzații privind tergiversarea procesului: „Este bătaie de joc”
--  "Dozivala me je pred smrt"! Zvezdan Slavnić o ubistvu Ksenije Pajčin: Možda bi jedan poziv promenio sve
--  Feyza Altun hakkında 3 yıla kadar hapis istemi
--  «Рейнджерс» продлили контракт с Бродзински
--  Taliye Mahad Oo Hambalyeeyey Xuska Sanad Guuradda 54aad Ee Ciidanka Asluubta Soomaaliyeed
--  Обвиниха и задържаха 2 жени, ограбили пенсионерка в София
+-  Paroollezers over de A10-blokkade van Extinction Rebellion: ‘Ga de weg in China of Rusland blokkeren’
+-  LMM: el spotter de autos repatriados
+-  Τουλάχιστον 29.410 Παλαιστίνιοι έχουν σκοτωθεί στη Γάζα, σύμφωνα με το υπουργείο Υγείας
+-  LiveBLOG Sorana Cîrstea - Marketa Vondrousova, în sferturi la WTA Dubai / Meciul începe la ora 12:00
+-  דני אלבס נידון ל-4.5 שנות מאסר בגין תקיפה מינית
+-  Tchad : l’ARSAT encadre la distribution de carburant en prévision de la canicule
+-  조영철 17대 정보보호산업협회장 취임…"'빌드업 투게더'로 세계시장 정조준"
+-  Mentale Stärke: Vier Bücher gegen die Angst und für mehr Widerstandsfähigkeit
+-  Video is said to show UN relief worker taking shot Israeli on Oct. 7
+-  Dani Alves proglašen krivim za silovanje; dobio je četiri i pol godine zatvora!
