@@ -1,11 +1,11 @@
 # Latest News
--  Kabar Baik MU! Musim Luke Shaw Belum Berakhir!
--  Suivez en direct la conférence de presse de Christophe Pélissier et Rayan Raveloson avant AJA-Bastia
--  Genç Parti yerel seçim kararını açıkladı
--  „Пълмед” откри Отделение по лъчелечение и радиохирургия с апаратура от последно поколение
--  Pozabite na sarme, poskusite napolniti to zelenjavo, ki jo imate gotovo doma
--  Карпенко: избирательный процесс в стране идет в штатном режиме
--  Prestižnu nagradu "Meša Selimović" dobio Selimir Radulović (FOTO)
--  Ексклюзиви Xbox з'являться на платформах Sony та Nintendo: ось які і коли
--  Seçime katılacak siyasi parti sayısı 34'e düştü
--  Quer dar próximo passo na relação com João Monteiro: "Tem muitas certezas"
+-  Biri Yeni Halka Arz Toplam 4 Hisseye Ay Boyunca Yasak Uygulandı. Borsa İstanbul Emir Paketi Tedbiri Uygulayacak
+-  Näin Saarensalmen sillan käyttökielto vaikuttaa koulukuljetuksiin – Ely-keskus selvittää vielä sillan saamia vaurioita
+-  Parole O_Stili in tour nelle scuole medie contro gli stereotipi sul calcio femminile
+-  Projekt von Martin Engelien: „Go Music“-Reihe startet soulig in den März
+-  Iğdır Belediyesinden yangın söndürme eğitimi
+-  Abdullah Avcı, Mislav Orsic'in dönüş tarihini açıkladı! Taraftara çağrı...
+-  มท.เผย ครบ 84 วัน ลงทะเบียนหนี้นอกระบบ 1.46 แสนราย ยอดหนี้ กว่าหมื่นล้าน
+-  Енергийният микс към 2035
+-  Argumente für Carsharing-Projekt in Haltern: Bürger besuchen Bürgermeister
+-  Todos podemos ser malvados
