@@ -1,11 +1,11 @@
 # Latest News
--  Doğum Günü İçin Seçtiği Oversize Ceket Kombiniyle Dillere Düşen Demet Özdemir Memura ve Nicelerine Benzetildi
--  Ποσειδώνας Γιαννόπουλος: Είχα απομυθοποιημένο από νωρίς τον θεσμό του γάμου και της οικογένειας
--  Россиянам назвали самые полезные и питательные морепродукты
--  Bugüne kadar görülen en ucuz katlanabilir telefon ortaya çıktı
--  Meet The Indian Tycoon Invests Rs 13,000 Crore To Revamp London’s Old War Office Into Luxurious Hotel – Not Mukesh Ambani Or Ratan Tata
--  이재명 “툭하면 사퇴하라? 그럼 1년 내내 대표 바꿔야”
--  Crash: Why Test cricket needs Bazball to fail
--  Im Test: Stiftung Warentest prüft Fischstäbchen — Elf haben ein Schadstoffproblem
--  Unfall in Plauen: Zwei Volkswagen krachen an Friedensstraße/Straße der Deutschen Einheit zusammen
--  Στα μπλόκα ξανά οι αγρότες: Αποφασίζουν σήμερα για το μέλλον των κινητοποιήσεων - Στο Σύνταγμα οι μελισσοκόμοι
+-  Telefonica nel 2023 perde 892 milioni, pesano accantonamenti
+-  Dolar/TL rekor seviyede işlem görüyor
+-  India vs England: Former England cricketer wants Ben Stokes & Co. to play smart cricket in 4th Test in Ranchi
+-  Najlakši recept za štrudlu od jabuka s gotovim korama
+-  Eltűnt a népszerű fideszes távfelügyeleti cég
+-  'Đào, phở và piano' vượt mốc 1 tỷ đồng, Bộ VHTTDL chỉ đạo phổ biến phim nhà nước
+-  Gặp bạn thân ở khách sạn nhưng ra chào hỏi thì bị nói không quen, người đàn ông sững sờ khi biết chân tướng
+-  Vie quotidienne. En bois, personnalisable... Comment le puzzle parvient à rester tendance
+-  Người dân sẽ được nhận thêm hàng loạt khoản hỗ trợ khi đất bị thu hồi từ năm 2025?
+-  Delhi: New traffic plan near Bagga roundabout on 5-day trial basis to decongest Karol Bagh
