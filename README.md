@@ -1,11 +1,11 @@
 # Latest News
--  ‘Sea of Dreams,’ Agate & Mineral Show, and Music From the Sole: 8 things to do this week
--  Sanktēterburgā Navaļnija piemiņas pasākumā aizturētajiem sāk izdot pavēstes uz kara komisariātiem
--  "Lo capisce anche un bambino!": voto in Sardegna, Soru fa sbottare Bersani | Video
--  'Mind-blowing': Reptile rescue in peril thrilled by success of Penticton event
--  ONLINE + VIDEO: Teplice - Olomouc 1:0. Bílek poslal domácí do vedení
--  Debatte um Harz in der Halle: DHB macht Druck – Vereine im Kreis zwischen Kritik und Verständnis
--  Jak nastavit Quick Share. Sdílení mezi Androidy je univerzální, Samsung má ještě něco navíc
--  Borsa: l'Europa chiude cauta in attesa dei verbali della Fed
--  Dubaijas "WTA 1000" ceturtdaļfinālā iekļūst arī Švjonteka un Gofa
--  El PSOE entra en pánico tras el fiasco gallego y el PSE marca ahora distancias con Bildu
+-  Are you a weekend warrior when it comes to exercise? Both regular or one-to-two days of exercise aid weight loss - News-Medical.Net
+-  Goleiro brilha na Copa do Brasil após perder filho e avô
+-  Świątek zabrała głos po awansie do ćwierćfinału. "Zadziałało"
+-  Cyclisme : Lefévère fait all-in pour Alaphilippe !
+-  في معرض «جلفود».. مجموعة هائل سعيد أنعم وشركاه تعرض تجربتها في استدامة تعزيز الأمن الغذائي
+-  Juicio por YPF: el Gobierno presenta argumentos para apelar el fallo de la Justicia de EE.UU.
+-  Раскрыто место съемок «Бегущего по лезвию 2099»
+-  EK pozvala Skupštinu da imenuje predsjednika i petog člana Senata DRI
+-  복지부 "100개 병원서 9275명 전공의 사직… 8024명 결근"
+-  Best Solar Panel Installation Companies Throughout New England - CNET
