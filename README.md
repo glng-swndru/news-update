@@ -1,11 +1,11 @@
 # Latest News
--  Man has serious injuries after being struck by vehicle in Etobicoke
--  Trade finance : Le groupe BCP, meilleure banque marocaine pour la troisième année consécutive
--  Spletna križanka in sudoku Slovenskih novic (22. februar)
--  おくやみ２月22日掲載分
--  Aaj Ka Love Rashifal 22 Feb 2024: पार्टनर से आज विवाद हो सकता है, आपको अपने किए का पछतावा होगा
--  Does Coinstar Exchange Foreign Currency?
--  Intravascular Imaging Significantly Improves Survival, Safety, and Outcomes in Cardiovascular Stenting Procedures Over Conventional Angiography
--  الوكرة والغرافة يحتفيان بأبطال القارة
--  Por que uma série tão ruim como 'Suits' faz tanto sucesso?
--  健康網》幫孩子調整飲食迎開學 營養師5招助學童飲食均衡
+-  МЛС. «Интер Майами» Месси примет «Реал Солт Лейк»
+-  Montenegro court says Do Kwon should be extradited to US, WSJ reports
+-  帳戶突多500元 台南男「有錢就領出來花」慘關1年2個月
+-  이천수, 원희룡 후원회장 맡는다…오늘(22일) 출근 인사 동행
+-  Dwayne â€˜The Rockâ€™ Johnson producing film based on Ric Flairâ€™s flamboyant life
+-  Volontari e scuole: basta rifiuti
+-  Bejo Sugiantoro, Libero Legendaris yang Sempat Dijuluki Laurent Blanc Indonesia
+-  쯔위 미모력 모아…트와이스, MV 티저 추가 공개+美 모닝쇼 출연
+-  Klopp compares 'thunderstorm' Luton win to 2019 Barcelona comeback
+-  Expat obsessed with ‘very Aussie’ item
