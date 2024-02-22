@@ -1,11 +1,11 @@
 # Latest News
--  Telefonica nel 2023 perde 892 milioni, pesano accantonamenti
--  Dolar/TL rekor seviyede işlem görüyor
--  India vs England: Former England cricketer wants Ben Stokes & Co. to play smart cricket in 4th Test in Ranchi
--  Najlakši recept za štrudlu od jabuka s gotovim korama
--  Eltűnt a népszerű fideszes távfelügyeleti cég
--  'Đào, phở và piano' vượt mốc 1 tỷ đồng, Bộ VHTTDL chỉ đạo phổ biến phim nhà nước
--  Gặp bạn thân ở khách sạn nhưng ra chào hỏi thì bị nói không quen, người đàn ông sững sờ khi biết chân tướng
--  Vie quotidienne. En bois, personnalisable... Comment le puzzle parvient à rester tendance
--  Người dân sẽ được nhận thêm hàng loạt khoản hỗ trợ khi đất bị thu hồi từ năm 2025?
--  Delhi: New traffic plan near Bagga roundabout on 5-day trial basis to decongest Karol Bagh
+-  Ateş Kuşları 44. bölüm 2. fragman yayınlandı!
+-  Barcelona miss an opportunity to take advantage of Napoli
+-  知人女性宅に車で押しかけ”クラクション”…通報で駆け付けた警察官を無視して3時間も居座る…50歳男を逮捕 「寝ていただけだ」と供述 過去にもトラブル
+-  Il caillasse la vitrine de Dolce & Gabbana à Cannes et dérobe un scooter à Sushi shop
+-  Borsa: Milano apre in rialzo dello 0,85%
+-  Kilometar u sekundi: Huawei postavlja duplo brže punjače od Teslinih
+-  YAŞLANDIKÇA MUTLULUK ARTIYOR
+-  Attraversa fuori dalle strisce e causa un incidente, condannata
+-  Başkan Zolan, "Gencimiz ve üreticimizin katıldığı fuarların Denizli'de olması çok kıymetli"
+-  Repsol reduce su beneficio hasta los 3.168 millones pero incrementa un 30% el dividendo
