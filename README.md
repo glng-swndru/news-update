@@ -1,11 +1,11 @@
 # Latest News
--  Ateş Kuşları 44. bölüm 2. fragman yayınlandı!
--  Barcelona miss an opportunity to take advantage of Napoli
--  知人女性宅に車で押しかけ”クラクション”…通報で駆け付けた警察官を無視して3時間も居座る…50歳男を逮捕 「寝ていただけだ」と供述 過去にもトラブル
--  Il caillasse la vitrine de Dolce & Gabbana à Cannes et dérobe un scooter à Sushi shop
--  Borsa: Milano apre in rialzo dello 0,85%
--  Kilometar u sekundi: Huawei postavlja duplo brže punjače od Teslinih
--  YAŞLANDIKÇA MUTLULUK ARTIYOR
--  Attraversa fuori dalle strisce e causa un incidente, condannata
--  Başkan Zolan, "Gencimiz ve üreticimizin katıldığı fuarların Denizli'de olması çok kıymetli"
--  Repsol reduce su beneficio hasta los 3.168 millones pero incrementa un 30% el dividendo
+-  Vegyes forintmozgás reggel
+-  "Il n'y a plus beaucoup de personnes qui peuvent encore témoigner": une rescapée raconte la Seconde Guerre mondiale dans un lycée de Toulon
+-  7 món ăn uống nên tránh khi tiêu chảy
+-  Netflix-serie Alexander de Grote neemt loopje met de waarheid: ‘Variant op doorfluisterspelletje’
+-  Những lĩnh vực được khuyến khích thu hút đầu tư nước ngoài
+-  Rainer Lechner will die evangelischen Kirche mitgestalten
+-  Van Lanschot Kempen releases Annual Report 2023
+-  Are you consuming high levels of Vitamin B3? Study finds risk of heart diseases and Niacin intake
+-  "Le Iene presentano: Inside", stasera in tv: le anticipazioni della puntata
+-  Tekur margt jákvætt úr frammistöðunni á Anfield - „Erfitt fyrir mína leikmenn að hugsa“
