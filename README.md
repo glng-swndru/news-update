@@ -1,11 +1,11 @@
 # Latest News
--  Paytm controversy: ‘RBI knows better than You and I’ — What Uday Kotak said on Paytm Payments Bank crackdown
--  Cinco mortos no sul da China após navio colidir com ponte
--  Vihane vormelilegend: tiimid peaksid ennast häbenema!
--  Dcera přišla s cenovkou od zubaře v slzách, píší o dostupnosti péče čtenáři
--  Potholes in Fort Worth cause thousands in damage. Outraged drivers try to make city pay.
--  Sturm Graz zittert vor dem „kernigen Luxemburger“
--  Giving Crohn’s drug early ‘cuts need for surgery and further treatment’
--  サンシャイン池崎が700万円超を寄付 保護猫団体と地震の被災動物支援に
--  Gesto di solidarietà da McDonald’s: pasti caldi offerti ai più bisognosi
--  Nuclear Moisture Separator Reheaters Market: Projected to Reach US$ 1,231.6 Million by 2032 | Astute Analytica
+-  Domper voor Kimberley Bos bij WK: skeletonster zakt weg in klassement door helmproblemen
+-  Govt Allows Export Onion: भारतातून 55 हजार टन कांदा परदेशात जाणार; 'या' चार देशांमध्ये निर्यातीला केंद्राची परवानगी
+-  Dominicanos NY llaman connacionales desistir entrar a USA en la “Vuelta por México”
+-  Jihad verde, i talebani dell'ecologia in guerra con i cittadini
+-  IIT Jodhpur scientists develop ‘Make in India’ sensor for alcohol detection through breath monitoring
+-  FEDA presenta las "rondas empresariales" del Programa IN-FEDA 2024 en Albacete y en las delegaciones
+-  Çin'deki geminin köprüye çarptığı kazada can kaybı 5'e yükseldi
+-  СБУ нашла подтверждение, что РФ бьет по Украине баллистическими ракетами из КНДР. ВИДЕО+ФОТОрепортаж
+-  Pri útoku na škole v Nemecku bolo zranených niekoľko osôb
+-  Sverige skickar militär till Röda havet
