@@ -1,11 +1,11 @@
 # Latest News
--  Tributes continue to pour in for late Taib
--  Kahramanmaraş, savunma sanayiine katkı verecek
--  જામનગરમાં આગામી તા.24 ફેબ્રુઆરીએ વડાપ્રધાન નરેન્દ્ર મોદીનો રોડ શૉ: તંત્ર દ્વારા પુર જોશમાં તૈયારી
--  KVIEČIAME Į SUSITIKIMĄ SU LIETUVOS RESPUBLIKOS PREZIDENTU GITANU NAUSĖDA
--  Intuitive Machines’ Odysseus spacecraft successfully injected into Moon orbit ahead of landing attempt
--  How life in Ukraine has been shattered by two years of war
--  Deputatların telefonlarında casus proqramı aşkarlandı
--  Czy wyniki Nvidia zakończą hossę?
--  വിവാഹ വാർഷികം ആഘോഷിക്കാൻ അറബ് നാട്ടിലെത്തി; ഇന്ത്യൻ ദമ്പതികളുടെ തലവര മാറി, അക്കൗണ്ടിലെത്തുക 6.5 കോടി രൂപ
--  'MAFS-Dirk bedolven onder huwelijksaanzoeken'
+-  Doğum Günü İçin Seçtiği Oversize Ceket Kombiniyle Dillere Düşen Demet Özdemir Memura ve Nicelerine Benzetildi
+-  Ποσειδώνας Γιαννόπουλος: Είχα απομυθοποιημένο από νωρίς τον θεσμό του γάμου και της οικογένειας
+-  Россиянам назвали самые полезные и питательные морепродукты
+-  Bugüne kadar görülen en ucuz katlanabilir telefon ortaya çıktı
+-  Meet The Indian Tycoon Invests Rs 13,000 Crore To Revamp London’s Old War Office Into Luxurious Hotel – Not Mukesh Ambani Or Ratan Tata
+-  이재명 “툭하면 사퇴하라? 그럼 1년 내내 대표 바꿔야”
+-  Crash: Why Test cricket needs Bazball to fail
+-  Im Test: Stiftung Warentest prüft Fischstäbchen — Elf haben ein Schadstoffproblem
+-  Unfall in Plauen: Zwei Volkswagen krachen an Friedensstraße/Straße der Deutschen Einheit zusammen
+-  Στα μπλόκα ξανά οι αγρότες: Αποφασίζουν σήμερα για το μέλλον των κινητοποιήσεων - Στο Σύνταγμα οι μελισσοκόμοι
