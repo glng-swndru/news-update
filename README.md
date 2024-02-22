@@ -1,11 +1,11 @@
 # Latest News
--  Crypto News: boom di volumi e offerte crypto | In arrivo depositi FIAT su Coincall
--  Πική: Η θέση Κυβέρνησης περιγράφεται στο νομοσχέδιο για συνεργάτες Υπουργών
--  암초 만난 테슬라 독일 공장 확장…'주민투표 부결'
--  Agricultores avisan de que no se irán de Madrid hasta que dejen entrar a los 1.500 tractores
--  Hugo Garcias Alves erklärt: Warum Tanzen gut für Selbstbewusstsein und Gesundheit ist
--  بانوان سنگ آهن بافق یزد قهرمان لیگ برتر هندبال شدند
--  Marozsán Fábián nem bírt a 2. kiemelttel a katari nyolcaddöntőben
--  Wer folgt auf Thomas Tuchel beim FC Bayern? Xabi Alonso, Jürgen Klopp: Die Kandidaten im Check
--  Наш плувец разкри къде ще се готви за Олимпиадата
--  Tylko jedna osoba odmówiła występu w filmie Błaszczykowskiego
+-  Priske: Rövanşı dört gözle bekliyoruz
+-  Армен Григорян: Система безопасности ОДКБ для Армении "не сработала"
+-  Ароматно пиле Фрикасе за вашата трапеза
+-  أمريكا وصناعة "حضارة التوحش"
+-  Wi-Fi 7-tel turbózza fel asztali számítógépünket az MSI
+-  Today's Logistics Report: Charleston's Labor Appeal; Rising Warehouse Barriers; Stalled EV Supply Chains
+-  Thót tim' những pha vượt ẩu, lấn làn trên cao tốc Cam Lộ - La Sơn
+-  На певицу Нюшу захотели подать жалобу в прокуратуру
+-  Guarabira PB abre processo seletivo com 100 vagas
+-  Media: Tomasz Komenda nie żyje. Mężczyzna zmarł w wieku 46 lat
