@@ -1,11 +1,11 @@
 # Latest News
--  Diana Mondino se reunió con el canciller británico y mantuvo una fuerte discusión por las Islas Malvinas
--  Genoeg dramatisch serie­materiaal in ‘Patty’, maar de scènes zijn oppervlakkig en de dialogen krukkig
--  Ministar Primorac predstavlja središnji registar stanovništva, zamijenit će popis stanovništva
--  Trei bărbați au vrut să abandoneze doi câini la marginea drumului, dar au fost prinși în fapt și filmați. Ce amendă au primit
--  Google представила Gemma — открытую версию ИИ-модели Gemini
--  נפתחה מכירת הכרטיסים למשחק הנבחרת מול איסלנד, המחיר האחיד בפנים
--  Stuttgarter Wilhelma: Schwingaffenhaus wird geschlossen
--  Tragis, Ayah Kandung dan Ibu Tiri Tega Redam Anaknya di Selokan Air hingga Meninggal di Aceh Singkil
--  Андрей Никитин: Мы организовали первый телемост с нашими бойцами на СВО
--  Google, açık kaynak yapay zeka modeli Gemma'yı duyurdu
+-  'Kohli's absence...': Shubman Gill's candid remarks ahead of India vs England 4th Test
+-  Deutsche Bank Sees Brent Oil Price at $88 by the End of 2024
+-  Ratssitzung in Datteln: Unser „Second Screen“ zu Übertragung aus der Stadthalle
+-  Xabi Alonso has already made Bayern Munich stance clear as Liverpool prepare for new manager battle
+-  Could Zinedine Zidane be Bayern Munich’s next manager?
+-  Margot Robbie, Idris Elba and Glen Powell Among SAG Awards Presenters; Jennifer Aniston to Present Barbra Streisand Life Achievement Award
+-  “Cachi” continuará en prisión preventiva por el crimen en Los Ralos
+-  US offers up to $15 million for information on Lockbit leaders, State Dept says
+-  Rebranding of Pride radio show
+-  Global Nitrile Gloves Market Size is Estimated to Reach USD 13.53 billion by 2030, Growing at a CAGR of 5.30%: Straits Research
