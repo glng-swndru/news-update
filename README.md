@@ -1,11 +1,11 @@
 # Latest News
--  Vegyes forintmozgás reggel
--  "Il n'y a plus beaucoup de personnes qui peuvent encore témoigner": une rescapée raconte la Seconde Guerre mondiale dans un lycée de Toulon
--  7 món ăn uống nên tránh khi tiêu chảy
--  Netflix-serie Alexander de Grote neemt loopje met de waarheid: ‘Variant op doorfluisterspelletje’
--  Những lĩnh vực được khuyến khích thu hút đầu tư nước ngoài
--  Rainer Lechner will die evangelischen Kirche mitgestalten
--  Van Lanschot Kempen releases Annual Report 2023
--  Are you consuming high levels of Vitamin B3? Study finds risk of heart diseases and Niacin intake
--  "Le Iene presentano: Inside", stasera in tv: le anticipazioni della puntata
--  Tekur margt jákvætt úr frammistöðunni á Anfield - „Erfitt fyrir mína leikmenn að hugsa“
+-  Bursa’da minibüs 2 kişiye çarptı! Kaza anı kamerada...
+-  Ετήσιο μνημόσυνο της ΚΑΛΛΙΟΠΗΣ ΕΥΑΓΓ. ΜΟΣΧΟΥ
+-  Kurandere ne demek? Niyetle kısmet arasındaki kurandere yaşamak diyoruz ne anlama geliyor?
+-  Sedat Önal kimdir? Yeni Washington Büyükelçilisi Sedat Önal’ın özgeçmişi
+-  Uzman isim akılalmaz 5 dolandırıcılık yöntemini açıkladı! Yüzünüzü bile çalıyorlar
+-  Jahrestag der russischen Invasion der Ukraine: Kundgebung auf dem Holzwickeder Marktplatz
+-  नेपाली नर्सको नियति : बेरोजगारी, श्रम शोषण र विदेशगमन
+-  MP NEWS - पन्ना में जिला शिक्षा अधिकारी का बाबू रिश्वत लेते गिरफ्तार
+-  LH, 매입임대 가격 산정 방식 개편…"올해 2만 7천 호 매입"
+-  Bán tháo 360 triệu USD cổ phiếu chỉ trong 1 phút, một quỹ phòng hộ quản lý khối tài sản hơn 8 tỷ USD của Trung Quốc bị đình chỉ hoạt động
