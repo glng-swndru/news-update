@@ -1,11 +1,11 @@
 # Latest News
--  Disparition d'Émile : "Les enquêteurs ? J’ai l’impression qu’ils ne savent pas grand-chose", dit un commerçant interrogé
--  Συνεχίζονται απόψε οι εργασίες σε αυτοκινητόδρομους-Δείτε ποια σημεία κλείνουν
--  Husky alla fashion week, cashmere per un nuovo lifestyle
--  Persecución a lo GTA: robó un vehículo del Estado y trató de huir
--  Disparition d'Émile : "Les enquêteurs ? J’ai l’impression qu’ils ne savent pas grand-chose", dit un commerçant interrogé
--  ЕС согласовал санкции против Индии и Китая за связи с Россией
--  Impigliati nella rete di una porta da calcio, morti due daini
--  Şenol Güneş için yol göründü! Yeni adresi merak ediliyordu, hazırlık başladı
--  Sve važne pozicije u Hajdukovoj akademiji drže bivši stoperi!
--  Birth Control: Myth Vs. Fact
+-  Synlait Milk is warning of a potential net loss in its half year results
+-  İranda ucuz iPhone vaadiyle 35 milyon dolarlık vurgun
+-  Aborcja dzieli Koalicję? Posłanki: Panowie są przeciw, my chcemy liberalizacji
+-  صافي أرباح اسـتـثـمار القابضة ترتفع 8.3٪ إلى 352 مليون ريال قطري بنهاية 2023
+-  Pioli a Sky: "Gravissimo pensare di essere qualificati. Turnover? 4 o 5 cambi non modificano la mentalità di una squadra"
+-  Sağlık Yaşam Yürüyüşlerine kadınlar yoğun ilgi gösteriyor
+-  Az Olympiakosz játékosait nem izgatja a budapesti pokol, újabb győzelmet aratnának
+-  Samsun'da okul müdürü darbedildi: 3 kişi gözaltına alındı
+-  Speaker apologises after Commons descends into chaos over ceasefire votes
+-  Taylor Swift embraces Australian wildlife during break from Eras Tour
