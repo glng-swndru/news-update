@@ -1,11 +1,11 @@
 # Latest News
--  Study finds music's alcohol references sway drinking habits
--  Large Excavators Market Size, Trends, Share, Opportunities And Forecast To 2032
--  정부, 원전 생태계 복원 가속…일감 3.3조 확대·R&D 4조 투입
--  30 человек погибли под завалами шахты в Венесуэле
--  Pasar Asia Pasifik Dibuka Beragam Kamis Pagi, Bank of Korea Bakal Umumkan Suku Bunga
--  СМИ узнали о секретном контракте SpaceX с властями США
--  संगठन शुद्धीकरण र सुदृढीकरणको वार्षिक कार्ययोजना बनाएर सकिँदैछ एमाले केन्द्रीय कमिटी बैठक
--  미래 원전 패권 좌우할 'SMR' 역량 강화…민간 공동 사업모델 만든다
--  Dân một làng biển Quảng Bình trúng luồng cá cơm, xúc mỏi tay, chỉ một đêm "bắt" được 150 triệu
--  일감 늘리고 세금 줄이고 금융 투하까지…"원전 최강국 도약"
+-  北海道初「ヤングケアラー支援」条例案を提出“家族の世話する18歳未満の子ども”…公務復帰した岩倉市長の公約 苫小牧市
+-  「炎が噴き出している」 木造住宅が全焼 焼け跡から男性の遺体 この家の高齢男性か 広島市佐伯区
+-  My cleaning ‘friend’ works magic every time – it cleared away a million scratches my toddler left on his favorite plate
+-  Critico da China lidera delegação do Congresso dos EUA em Taiwan
+-  Wird Abriss vertagt? Bürgerstube soll vorerst bleiben
+-  Người Nhật thích ramen, sushi, bữa tối giàu tinh bột nhưng vẫn ít tăng cân nhờ 6 yếu tố then chốt
+-  Посол заявил о втягивании США нейтральных государств в конфликт на Украине
+-  تغییر رژیم اوکراین در راه است
+-  Nếu đang dự định tới Địa Tạng Phi Lai Tự để chụp ảnh "nàng thơ áo dài" đầu xuân, đây những điều bạn cần biết!
+-  My cleaning ‘friend’ works magic every time – it cleared away a million scratches my toddler left on his favorite plate
