@@ -1,11 +1,11 @@
 # Latest News
--  Losos smanjuje holesterol
--  Съпругата на шефа на “Ред Бул” в депресия
--  Hasil Napoli vs Barcelona: Skor 1-1
--  King Charles seen back at work for first time since cancer diagnosis
--  After Casting Shakeups, Thunderbolts Has Taken An Exciting Step Forward
--  «Порту» вырвал победу у «Арсенала» в матче Лиги чемпионов
--  Porto v nastavení porazilo Arsenal. Barcelona remizovala v Neapoli
--  Miljuschka Witzenhausen biecht op: ‘Toen ben ik uit m’n slof geschoten’
--  පොට්ටනිය ලෙඩාට පත්තුවෙලා
--  VIDEO Pogledajte golčinu u posljednjoj minuti za pobjedu u Ligi prvaka: Stadion je eruptirao
+-  Bloomberg: KE jest gotowa odblokować kolejne 6 mld euro z KPO dla Polski
+-  Morto in montagna a 24 anni borsa di studio per ricordarlo
+-  A Copiano e Bascapè sindaci ricandidati a Roncaro si cambia
+-  Policías hieren dos entre ellos un miembro de la Fuerza Aérea Dominicana en Hondo Valle
+-  Bar Sport, dopo 37 anni finisce la gestione di “Pepo”
+-  Богомаз: силы ПВО сбили украинский БПЛА в Клинцовском районе Брянской области
+-  Parcheggio a 1 euro al giorno se i Comuni non si accordano
+-  Achtelfinale der Champions League: FC Barcelona verspielt Führung, Porto schockt Arsenal
+-  'Anything you can do to reduce': 90K Winnipeggers asked to cut back on water use to combat pipe leak
+-  Com chá revelação luxuoso, Virgínia e Zé Felipe revelam sexo do terceiro bebê
