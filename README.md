@@ -1,11 +1,11 @@
 # Latest News
--  Nitra vlani preinvestovala rekordných 28,5 milióna eur
--  Румен Радев удостои с Почетния знак на президента Цветана Манева
--  Anushka Sharma and Virat Kohli’s jaw-dropping net worth revealed
--  Konjunktur: Bundesregierung senkt Wachstumsprognose für 2024 deutlich ab
--  Familie Rüppel aus Germerode erhält gefährdete Hühnerrassen
--  Serenissima Ristorazione acquista crediti di sostenibilità per assorbimento 100 t di CO2
--  Kesiapan KPU Kota Surabaya Menjelang Pencobolosan Ulang di 10 TPS
--  Zazzaroni non ha dubbi: "Giocatore mostruoso. Con la Champions si sente a casa"
--  19th century Clyffe Hotel in Lowestoft due for auction
--  Serenissima Ristorazione acquista crediti di sostenibilità per assorbimento 100 t di CO2
+-  Crypto News: boom di volumi e offerte crypto | In arrivo depositi FIAT su Coincall
+-  Πική: Η θέση Κυβέρνησης περιγράφεται στο νομοσχέδιο για συνεργάτες Υπουργών
+-  암초 만난 테슬라 독일 공장 확장…'주민투표 부결'
+-  Agricultores avisan de que no se irán de Madrid hasta que dejen entrar a los 1.500 tractores
+-  Hugo Garcias Alves erklärt: Warum Tanzen gut für Selbstbewusstsein und Gesundheit ist
+-  بانوان سنگ آهن بافق یزد قهرمان لیگ برتر هندبال شدند
+-  Marozsán Fábián nem bírt a 2. kiemelttel a katari nyolcaddöntőben
+-  Wer folgt auf Thomas Tuchel beim FC Bayern? Xabi Alonso, Jürgen Klopp: Die Kandidaten im Check
+-  Наш плувец разкри къде ще се готви за Олимпиадата
+-  Tylko jedna osoba odmówiła występu w filmie Błaszczykowskiego
