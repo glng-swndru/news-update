@@ -1,11 +1,11 @@
 # Latest News
--  北海道初「ヤングケアラー支援」条例案を提出“家族の世話する18歳未満の子ども”…公務復帰した岩倉市長の公約 苫小牧市
--  「炎が噴き出している」 木造住宅が全焼 焼け跡から男性の遺体 この家の高齢男性か 広島市佐伯区
--  My cleaning ‘friend’ works magic every time – it cleared away a million scratches my toddler left on his favorite plate
--  Critico da China lidera delegação do Congresso dos EUA em Taiwan
--  Wird Abriss vertagt? Bürgerstube soll vorerst bleiben
--  Người Nhật thích ramen, sushi, bữa tối giàu tinh bột nhưng vẫn ít tăng cân nhờ 6 yếu tố then chốt
--  Посол заявил о втягивании США нейтральных государств в конфликт на Украине
--  تغییر رژیم اوکراین در راه است
--  Nếu đang dự định tới Địa Tạng Phi Lai Tự để chụp ảnh "nàng thơ áo dài" đầu xuân, đây những điều bạn cần biết!
--  My cleaning ‘friend’ works magic every time – it cleared away a million scratches my toddler left on his favorite plate
+-  “ජනාධිපතිවරණය හැකි ඉක්මණින් පවත්වන්න”
+-  මත් උරණ උපකරණ සමග සිසුන් දෙදෙනා මාට්ටු
+-  La Borsa ha un problema serio. C’è allarme tra gli intermediari
+-  Ảnh màu cực hiếm ghi lại sức hấp dẫn độc đáo của hàng quán ven đường cuối thời nhà Thanh
+-  â€œà¶¢à¶±à·�à¶°à·’à¶´à¶­à·’à·€à¶»à¶«à¶º à·„à·�à¶šà·’ à¶‰à¶šà·Šà¶¸à¶«à·’à¶±à·Š à¶´à·€à¶­à·Šà·€à¶±à·Šà¶±â€�
+-  Primer ministro insta a acelerar modernización de autopistas
+-  형사도 충격, 범인 누구길래…택시기사 살인사건 전말 (용형사3)
+-  Cassava exports see record growth rate in January
+-  8.800 Dokter Korea Selatan Mogok Kerja, Operasi Kanker Batal Dilakukan
+-  El tiempo en O Saviñao: previsión meteorológica para hoy, jueves 22 de febrero
