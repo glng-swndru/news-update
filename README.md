@@ -1,11 +1,11 @@
 # Latest News
--  Amerikan İsrail Halka İlişkiler Komitesi, Güney Kıbrıs'ta temaslarda bulundu
--  《換乘戀愛》PD新戀綜《戀愛兄妹》5大看點介紹！賢圭現身狂喊努那
--  "C’est comme une seconde famille", les coulisses de Migennes collector racontées par deux bénévoles
--  Németh Zsolt tiszta vizet öntött a pohárba az amerikai delegációs botrányával kapcsolatban
--  Szantaż seksem. Każdy może stać się jego ofiarą. Uwaga, to kosztuje
--  "고준위 특별법 신속히 제정하라"…김성환 의원실 앞 1인시위
--  Váratlan helyről kapott súlyos bírálatot Balog Zoltán
--  «СЭ» стали известны детали будущего сериала о жизни Промеса
--  Нов инцидент в Червено море край бреговете на Йемен
--  Men set stage on fire with their dance to SRK’s Chaiyya Chaiyya at wedding in Pakistan
+-  Noa Lang vanaf komende vrijdag te bewonderen op Prime Video
+-  Iba v DATARTe máte teraz dopravu zadarmo a zľavu na kávovary až 25 %
+-  Fructífera reunión del intendente de Clodomira con el rector de la UNSE para crear nuevos espacios de formación
+-  השיחה הראשונה למגן דוד אדום מזירת הפיגוע: "יש פה פצועים על הריצפה"
+-  VIDEO Tragedia de la 2 Mai. Tatăl Robertei, tânăra ucisă de Vlad Pascu, acuzații privind tergiversarea procesului: „Este bătaie de joc”
+-  "Dozivala me je pred smrt"! Zvezdan Slavnić o ubistvu Ksenije Pajčin: Možda bi jedan poziv promenio sve
+-  Feyza Altun hakkında 3 yıla kadar hapis istemi
+-  «Рейнджерс» продлили контракт с Бродзински
+-  Taliye Mahad Oo Hambalyeeyey Xuska Sanad Guuradda 54aad Ee Ciidanka Asluubta Soomaaliyeed
+-  Обвиниха и задържаха 2 жени, ограбили пенсионерка в София
