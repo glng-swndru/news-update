@@ -1,11 +1,11 @@
 # Latest News
--  TRAJKOVIĆ PRED IMT: Utakmica nosi ne tri, već šest bodova
--  Γαλλία: Για πέμπτη ημέρα κλειστός ο Πύργος του Άιφελ
--  900 milliárd forintos napelemparkot építenének az akkugyárak Magyarországon
--  Einstieg ins Meditieren: So wählen Sie Ihr erstes Meditationskissen aus
--  Tomašević kreće u obnovu doma zdravlja kojemu gravitira 50.000 Zagrepčana
--  Val-d'Oise. Rino Della Negra est entré au Panthéon
--  Tabiat Buruk Luna Maya Dibongkar Mantan Asisten, Bayar Rp700 Ribu demi Jaga Mood
--  Vučević dobar, ali nedovoljan protiv moćnog Bostona
--  Putin felicita os ‘heróis’ que lutam na Ucrânia
--  Einstieg ins Meditieren: So wählen Sie Ihr erstes Meditationskissen aus
+-  Na Alemanha, índice Ifo de sentimento das empresas avança a 85,5 em fevereiro, como previsto
+-  Hivatalos: márciustól új forgatókönyv lép életbe a magyar boltokban, minden vásárló érintett
+-  PREPARATE I POPCORN: COSA RISPONDERÀ DE LUCA ALL’ATTACCO FRONTALE DI GIORGIA MELONI? LA DUCETTA A “PORTA A PORTA” HA SPERNACCHIATO IL GOVERNATORE PER L’UTILIZZO DEI FONDI DI COESIONE PER “LA FESTA DEL FAGIOLO E DELLA PATATA, LA RASSEGNA DELLA ZAMPOGNA, LA SAGRA DEL CICATIELLO, LA FESTA DEL CACIOCAVALLO PODOLICO”. MA PERCHÉ NON ENTRA NEL MERITO E DICE QUANTI SOLDI SIANO STATI SPESI PER QUESTE (MERITORIE) INIZIATIVE? È EVIDENTE CHE SI TRATTI DI PICCOLI CONTRIBUTI… - VIDEO: IL "LAVORA, STRONZA" DEL GOVERNATORE ALLA DUCETTA
+-  Unia Europejska zatwierdziła 13. pakiet sankcji wobec Rosji
+-  Az MBH új platformmal segíti a cégalapítást
+-  Stock Up on Underwear and Save With These Deals at Calvin Klein, MeUndies and More - CNET
+-  Sudo für Windows: Du hast die Kernfunktionen vergessen, mein Microsoft
+-  Rapina in via Zorutti a Trieste: passante aggredito da un uomo armato di pistola
+-  Кметът Пенчо Милков награди плувните шампиони от КПС „Ирис" Русе
+-  Ivana Španović odustala od velikog takmičenja
