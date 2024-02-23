@@ -1,11 +1,11 @@
 # Latest News
--  ABD 52 yıl sonra yeniden Ay'a iniş yaptı!
--  ARMEX NA SAJMU GAST Predstavit ćemo novi njemački pročistač otpadnih voda
--  Co teď může Jan Bendig udělat, aby si zachránil hlavně kariéru a pak i krk?
--  Cinéma. Les César 2024, un tournant pour le mouvement #MeToo ?
--  Poundsterling Gambar Raja Charles III akan Beredar di Inggris Mulai Juni 2024
--  Kingmakers: zběsilá akce ve středověku s moderními zbraněmi
--  ¿Abren los bancos el 24 de febrero? Esto sabemos
--  NRES sasar 25 Rumah Ibadat Hijau setiap tahun
--  Αναχρονιστικό- οδυνηρό όπλο του Α’ Παγκοσμίου Πολέμου: βελάκια που προκαλούσαν τρόμο - Τα έριξαν και στο Βιετνάμ
--  Deux ans après le début de la guerre, 392 Ukrainiens vivent dans l'Yonne
+-  Ledus graušana, mēles pīrsingi, regulāras uzkodas un vēl 12 zobiem kaitējoši ieradumi
+-  Mo: Unrwa, 'agenzia arrivata a punto di rottura'
+-  Temel Karamollaoğlu'ndan dikkat çeken açıklamalar... 'Erdoğan, Erbakan'ın evini polis ile kuşattırdı ve hapse attırmak istedi'
+-  Predsednik Vučić danas na proglašenju ambasadora Sportskih igara mladih
+-  Kayseri güne sisle uyandı: Görüş mesafesi 10 metreye düştü
+-  Mrestilište u Pljevljima predmet spora između opštinskih i državnih vlasti: Politika ili interesi zamutili ribnjak
+-  Sürücüler dikkat: Hatalı tutanaklar geçersiz sayılıyor
+-  Jennie居然27歲了！ 聊到真實年齡結巴：後輩都小我7歲⋯
+-  Galata Kulesi ziyarete kapandı
+-  Samsunda otomobille çarpışan motosikletin sürücüsü yaralandı
