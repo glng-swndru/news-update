@@ -1,11 +1,11 @@
 # Latest News
--  UPDATE 1-US to impose sanctions on over 500 targets in Russia action on Friday
--  Un incendio de grandes dimensiones arrasa dos edificios de viviendas en Valencia y deja 14 heridos
--  Zwei Jahre Ukraine-Krieg: Schmerz und quälende Ungewissheit
--  Αλτσχάιμερ: Πώς συνδέεται με την ατμοσφαιρική ρύπανση - Τι δείχνει έρευνα
--  Izgoreo automobil u Novom Sadu na Detelinari (VIDEO)
--  Спарта Прага разкъса 10 от Галатасарай
--  LJUBILA MUŽA SVOJE KOLEGINICE Sloboda Mićalović pre Vojina bila u vezi sa ovim poznatim muškarcem!
--  HAOS KOD OBRENOVCA Policajci došli da uhapse mladića (23), on ih napao
--  OM : la belle pensée d'Aubameyang pour Gattuso après la victoire contre Donetsk
--  9번 연속 동결…한은 "금리 인하, 상반기 내로는 쉽지 않아"
+-  RCMP searching for potentially violent man in South Okanagan (Oliver/Osoyoos)
+-  "Vučica" opet kobna za Fejnord: Golman Svilar i penali odveli Romu...
+-  Sceny w LE. Historyczny sukces 27. kraju w rankingu UEFA! [WIDEO]
+-  «Рома», «Милан», Карабах» и «Марсель» вышли в 1/8 финала ЛЕ. Известны все участники этой стадии
+-  બોલિવુડ સ્ટાર્સનાં હુલામણાં નામ .
+-  VinFast đạt tổng doanh thu gần 1,2 tỷ USD trong năm 2023
+-  EL: AC Milán padl v Rennes, ale jde dál. Feyenoord končí, slaví AS Řím
+-  İstanbul'da kentsel dönüşüm için verilecek yardım desteği belli oldu
+-  황정음, 재결합 3년 만에 남편과 이혼 소송 중
+-  "Godinu dana sam se lečila od alkohola!" Nadežda Biljić u emisiji "Estradanje" iskreno o borbi sa porokom: "Nisam znala za meru!" (VIDEO)
