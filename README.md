@@ -1,11 +1,11 @@
 # Latest News
--  Art Karlsruhe: Wo Besucher und Kunst atmen können
--  Reddit: Das ist das Besondere am Börsengang
--  Schnabel (Bce): “La lotta contro l’inflazione non è ancora terminata. Sui tassi serve prudenza”
--  Portugáliából érkezhet Szoboszlai Dominikék új edzője
--  日本の伝統「ＢＥＮＴＯ」体験で３万７０００円 “欧米豪の富裕層を狙え” 福岡の新インバウンド戦略
--  Norwich City: Tony Springett interview on Northampton Town
--  Crime passionnel à Ouest-Foire : Une scène de jalousie vire au meurtre
--  1 Big Problem With Nvidia's Rising Valuation
--  Změna času 2024: Kdy začíná letní čas a proč se mění
--  Kocaeli'de BTP adayları dernekleri ziyaret etti
+-  Änderungen nötig: Wie die Personalprobleme Seoane und Borussia sogar helfen können
+-  Europa League last-16 draw LIVE: Liverpool, West Ham and Brighton await their fate... with AC Milan the unseeded team to avoid
+-  Otthagyná munkahelyét? Nincs ezzel egyedül
+-  Hétfőn lesz új köztásasági elnökünk - jelentette be Kocsis Máté
+-  LKF pasisakė naujos Vilniaus arenos klausimu
+-  Women’s Premier League: Shah Rukh Khan meets Mumbai Indians and Delhi Capitals squads
+-  В российских КАБах обнаружили двигатели от продаваемых во Франции вентиляторов за 13 евро, - КНДИСЕ
+-  MÉS: «La casa d’Emili Darder ha de tornar a la ciutat de Palma»
+-  Kars'ta 18 ton 200 kilogram kaçak deterjan ele geçirildi! 2 kişi gözaltına alındı
+-  Neue perfide Masche: Angebliche Vertreter locken Kunden in teure Gas-Verträge
