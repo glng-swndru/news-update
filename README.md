@@ -1,11 +1,11 @@
 # Latest News
--  Fethiye'de otomobil motosikletle çarpıştı: 2 ölü, 1 yaralı
--  পারমাণবিক বোমারু বিমানে চড়ে পশ্চিমাদের বার্তা দিলেন পুতিন
--  Ο Πούτιν απάντησε στον Μπάιντεν: Δεν περιμέναμε να μας πει «ευχαριστώ πολύ για τη βοήθειά σας»
--  Séisme et Superbowl : comment Taylor Swift fait trembler le monde
--  Carrefour presenta una App de ahorro creada por sus propios clientes
--  El Colegio La Milagrosa de Cuenca sopla 125 velas rodeado de exalumnos, "compartiendo vida" y honrando a sus creadoras
--  Grenoble. Le quai de France rouvrira à la circulation en fin de semaine
--  Borsa: Europa positiva in chiusura, Parigi +1,27%, Londra +0,29%
--  Nilai Transaksi Digital Banking Januari 2024 Tumbuh 17 Persen
--  Путин посетил новый сельский ФАП в Чувашии
+-  Joshua Tarling wint tijdrit O Gran Camiño: “Zelfs de afdaling was zwaar”
+-  Premios Luces 2023: Los mejores discos musicales del año
+-  Rejuvenate Bio Announces Gene Therapy-Mediated Partial Reprogramming Extends Lifespan and Reverses Age-Related Changes in the Journal Cellular Reprogramming
+-  Perez se réjouit d'avoir bien compris les réglages de sa nouvelle RB20
+-  সাইবার বুলিং প্রতিরোধে বাবা-মায়ের ভূমিকা
+-  UE propõe flexibilizar exigências e reduzir os controles sobre os agricultores
+-  Şarkıcı Murat Dalkılıç bütün konserlerini iptal etti
+-  Les trois choses à retenir du groupe du CA Brive qui affrontera Valence Romans ce vendredi soir au Stadium
+-  I trent’anni della legge 84, la legge che ha riformato i porti
+-  Storm Louis: code oranje in hele land, Rijkswaterstaat adviseert weg te mijden
