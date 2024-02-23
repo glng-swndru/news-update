@@ -1,11 +1,11 @@
 # Latest News
--  Ledus graušana, mēles pīrsingi, regulāras uzkodas un vēl 12 zobiem kaitējoši ieradumi
--  Mo: Unrwa, 'agenzia arrivata a punto di rottura'
--  Temel Karamollaoğlu'ndan dikkat çeken açıklamalar... 'Erdoğan, Erbakan'ın evini polis ile kuşattırdı ve hapse attırmak istedi'
--  Predsednik Vučić danas na proglašenju ambasadora Sportskih igara mladih
--  Kayseri güne sisle uyandı: Görüş mesafesi 10 metreye düştü
--  Mrestilište u Pljevljima predmet spora između opštinskih i državnih vlasti: Politika ili interesi zamutili ribnjak
--  Sürücüler dikkat: Hatalı tutanaklar geçersiz sayılıyor
--  Jennie居然27歲了！ 聊到真實年齡結巴：後輩都小我7歲⋯
--  Galata Kulesi ziyarete kapandı
--  Samsunda otomobille çarpışan motosikletin sürücüsü yaralandı
+-  Collective exhibition at Il-Ħaġar delves into different textures
+-  Tansu Çiller'den beklenen destek: Murat Kurum bir heyecanla geliyor
+-  Luk Ivanušec ispao iz Europe nakon lutrije penala: Turski velikan ispao u Pragu
+-  Murat Dalkılıç konserlerini iptal etti: Ameliyat olacağım
+-  NASA warns of strong solar flare • The Register - The Register
+-  Sin Michaela Jacksona Prince Jackson poželio svom bratu Bigiju sretan rođendan: ‘Lovi svoje snove i osvaja nagrade‘
+-  Христо Иванов нарече поведението на Пеевски “пошлост“
+-  50 години по-късно САЩ осъществиха ново кацане на Луната
+-  Нацбанк Казахстана снизил базовую ставку
+-  야구대표팀은 세대교체 중···류중일호, 프리미어12까지 계속된다
