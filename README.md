@@ -1,11 +1,11 @@
 # Latest News
--  Para Diego Casas lo más importante es el rendimiento colectivo
--  Economía circular: solución para el desarrollo sostenible
--  MP: All Forgotten! NHRC Asks Do Cops Get Weekly Offs; PHQ Yet To Reply
--  Buscan medidas para promover cooperación Vietnam-Bélgica
--  Sekjen PKS: Hak Angket Lebih Menarik daripada ke MK yang Ada Pamannya
--  Stock Radar I Eye on auto space! Olectra Greentech building momentum for next leg of rally: Shivangi Sarda
--  ☕What’s a forest, anyway?
--  Resulü Müctebâ Efendimiz (S.A.V.): Mescid-i Haram’da namaz kılmak 1000 kat daha hayırlıdır
--  Esquimalt youth one of 14 in Canada selected for RCMP workshop in Regina
--  Dịch mủ chảy trong khoang miệng, người phụ nữ hốt hoảng "cầu cứu" bác sĩ
+-  मोठी बातमी! मराठा आरक्षणाच्या ‘GR’नंतरच पोलिस भरती; १० टक्के आरक्षणाप्रमाणे रोस्टर बदलणार; तरूणांची वयोमर्यादा वाढवून देण्याची मागणी
+-  Governo confirma atraso de aluguel social, mas que até segunda (26) será regularizado
+-  Demostraciones de ‘break dance’, grafitis y más arte en el festival de Ciudad Bolívar
+-  GP Ansor Bubarkan Pengajian Ustaz Syafiq Basalamah di Surabaya
+-  纳瓦尔尼家人与拜登会面，进一步向普京施压
+-  英伟达宣称AI形成“全新产业”，投资者怎么看？
+-  ‘트롯 바비’ 홍지윤, 올해도 ‘콜핑’ 광고 모델로 활약...2년 연속 쾌거
+-  ABD 52 yıl sonra yeniden Ay'a araç gönderdi
+-  反鎖轎車內 華青疑燒炭自殺
+-  Billie Starkz Praises Lexy Nair, Says She Deserves More Credit
