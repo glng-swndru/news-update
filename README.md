@@ -1,11 +1,11 @@
 # Latest News
--  Ski alpin: Schramm mit neuer Bestleistung im Europacup
--  Países del G20 apoyan dos Estados para conflicto israelo-palestino
--  Blutdruck-Kontrolle am Handgelenk: Die beste Smartwatch mit Blutdruckmessung
--  Берінчик піднявся на перше місце в рейтингу WBO
--  Lindsay Hoyle and SNP leader standoff in the Wild West saloon of Westminster
--  Guru Besar UMY Sarankan Ubah Sistem Pemilihan Hakim MK
--  Tchad : À Abéché, 136 prisonniers de droit commun remis en liberté
--  Xiaomi 14 Ultra ufficiale: una scheda tecnica da urlo per un top di gamma senza compromessi
--  Budapest vezeti az albérletárak európai rangsorát a The Economist felmérése szerint
--  Auto uderzyło w bunkier. Ze szpitala nadeszły tragiczne wieści
+-  Noise cancelling Echo Buds cost 74% less than AirPods Pro with this sale
+-  Металіст 1925 підписав ексзахисника Шахтаря
+-  BCE fecha 2023 com prejuízo após atuação para manter estabilidade de preços
+-  Persija Kalah Tipis Melawan Madura United
+-  Fyrirskipa athugun á skrúfboltum í MAX-vélum
+-  Sluchátka Sennheiser Accentum Plus Wireless přidávají funkce i výbavu pro náročnější posluchače a mají i lepší zvuk
+-  Američki san dolazi svojem kraju: 'Tamo su najbogatije kompanije, a ljudi žive kraće nego u Italiji'
+-  "Pugno unico", cos'è la tecnica dell'era Kgb che ha ucciso Navalny
+-  VABA AKADEEMIA ⟩ Mihhail Lotman: «Vene kultuur: etüüdid mustades värvides. Russofoobia 2»
+-  Joanna Opozda przygotowuje się do świętowania. To już dwa lata Vincenta
