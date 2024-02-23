@@ -1,11 +1,11 @@
 # Latest News
--  Şehit pilot için anıt çağrısı
--  Evrópa: Óverðskuldaður sigur Ajax - Qarabag sló Braga út
--  УЕФА поделилась публикацией в связи с успехом "Карабаха"
--  Benefis gives public sneak peek of $44M Helena Specialty Center
--  Francúzsko bude v pondelok hostiť konferenciu na podporu Ukrajiny
--  CTERA convocó a un paro nacional docente para este lunes y peligra el inicio de clases en la Ciudad y otras provincias
--  Sloboda drži vrh, pokušava je "skinuti" Stupčanica
--  La Policía recuperó una camioneta robada a un repartidor
--  Paco Jémez, ex DT de Cruz Azul, EXPLOTA por la severa sanción a Willer Ditta
--  كان وسط حراسة أمنية مشددة.. وفاة ناظوري داخل المستشفى بخيرونا الإسبانية
+-  OM : une explication derrière le pénalty non sifflé à Moumbagna
+-  Valensija: Požar zahvatio stambene zgrade, najmanje sedam...
+-  Fieldays No.8 Wire National Art Awards Paused For Creative Recharge
+-  Ο Μπάιντεν συνάντησε τη χήρα και την κόρη του Ναβάλνι στο Σαν Φρανσίσκο
+-  DOJ announces criminal charges against sanctioned Russian oligarchs
+-  Montenegro mantém o tabu e não explica se viabilizaria um governo minoritário do PS
+-  Exotisk neutronstjärna hittad av svenska forskare
+-  Зафиксированы пуски ракет Х-22 в направлении южных областей, - Воздушные силы
+-  DOJ announces criminal charges against sanctioned Russian oligarchs
+-  기업 보안 '안랩 XDR' 하나면 끝…AI 더해 효율성 '쑥'
