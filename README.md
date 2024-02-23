@@ -1,11 +1,11 @@
 # Latest News
--  Basketbalisti Slovenska prehrali v kvalifikácii ME s Belgickom
--  Pontus Kozan lämnar Lund – klar för Warberg
--  „Der Kontakt ist nie abgebrochen“: Mats Grambusch kehrt zum Gladbacher HTC zurück
--  شاهد.. تفاعل الأهالي مع أوبريت "ذكرى دولة" في احتفال الأحساء بيوم التأسيس
--  «Праект»: Пуцін за апошнія 6 гадоў рэпрэсаваў больш людзей, чым Брэжнеў
--  Национальный Лидер туркменского народа, Председатель Халк Маслахаты провёл заседание Президиума Халк Маслахаты Туркменистана
--  Uudistukset | Alkoholin kotiin­kuljetukseen pitäisi olla lupa ja viranomaisilla oikeus koe­ostoihin, ehdottavat THL ja Valvira
--  Fráncfort se impone a Madrid como sede de la agencia antiblanqueo de la UE
--  LIVEBLOG FRANKFURT-UNION. Sadiki vervangt de geschorste Vanhoutte, ook Mac Allister - met mondstuk - in de basis
--  Krajiny G20 sa zhodujú na dvojštátnom riešení vojny v Pásme Gazy, povedal Borrell. Počíta so vznikom Palestíny
+-  Bolsonaro se cala na PF sobre tentativa de golpe; defesa alega falta de acesso ao processo
+-  Hizbullah 2 kayıp daha verdi
+-  Qué encontró el Gobierno en el INADI kirchnerista
+-  Законопроект о штрафах за нарушение ПДД на электросамокатах внесен в Госдуму
+-  Mãe de Navalni diz que Rússia a pressiona por funeral secreto de seu filho
+-  Bolsonaro se cala na PF sobre tentativa de golpe; defesa alega falta de acesso ao processo
+-  Chacarita pide que le den ganado el partido ante Tigre
+-  I Njemačka i Francuska podržale nizozemskog premijera za šefa NATO-a
+-  Dogovor o EU reformama žrtva optužbi izdaje nacionalnih interesa
+-  V Slovenj Gradcu žalujejo, zapustila jih je velika strokovnjakinja
