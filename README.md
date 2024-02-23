@@ -1,11 +1,11 @@
 # Latest News
--  Put nicotine back on Poisons List, CAP urges govt
--  הרצף נעצר: 5 נקודות לאבדיה, וושינגטון הובסה בדנבר. טריפל דאבל ליוקיץ'
--  Nowy SUV do produkcji tylko w Polsce! To sensacyjna inwestycja
--  Το ”έγκλημα διαρκείας” με θύμα την ελληνική Ομογένεια.
--  Luka Dončić nastavio tamo gde je stao pre pauze: Nova odlična partija u pobedi Dalasa nad Finiksom
--  Does Taylor Swift write all her own songs?
--  India should become exporter of green energy by 2047 to attract capital: Kant
--  Wegen Influenza und RS-Virus: Hochbetrieb an den Ostalb-Kliniken
--  Xiaomi 14 Ultra ra mắt: "Kẻ hủy diệt" iPhone 15 Pro Max và Galaxy S24 Ultra, camera vượt trội mà giá lại rẻ hơn
--  Nhiều địa phương không có dự án nhà ở xã hội nào trong 2 năm nay
+-  What causes the fog?
+-  AK Partili Pekdemir, Pamukkale'de kırsal kalkınma hamlesi başlatacak
+-  ‘후배 괴롭힘 의혹’ 페퍼 A 선수, 상벌위 참석…결론 못 내리고 재논의
+-  „Männer investieren in Männer“ – kaum Geld für Gründerinnen
+-  Solidarnost
+-  „Männer investieren in Männer“ – kaum Geld für Gründerinnen
+-  Recenzja smartfona Tecno Spark 20 Pro+ - Zaskakująco dobre aparaty za mniej niż 200 euro
+-  Potwierdziło się. Były reprezentant wystartuje w wyborach. "Miasto potrzebuje zmiany"
+-  Zwangsversteigerungen in Herten: Wie man beim Hauskauf 70.000 Euro sparen kann
+-  "Khi xe VinFast lăn bánh trên đường, là lúc Indonesia đã sẵn sàng"
