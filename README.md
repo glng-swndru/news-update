@@ -1,11 +1,11 @@
 # Latest News
--  Didepak Munchen, Tuchel Dikabarkan Bakal Kembali ke Inggris
--  Why Nimona Got Saved From Disney to Become an Oscar Contender
--  Gabriele Chiogna, da studente di fisica a docente di geologia applicata a Erlangen
--  NBA Player props: Luka Doncic, Anthony Davis props, more at Underdog Fantasy - Feb. 22
--  Gagal di Satu Tempat, Komplotan Pencuri Motor Beraksi Lagi 400 Meter dari Lokasi Pertama di Palmerah
--  Pop megastar and daytime TV queen among huge names to appear in new series of Ant & Dec’s Saturday Night Takeaway
--  OM : «Il y a de la colère», la tension monte à Marseille
--  Pop megastar and daytime TV queen among huge names to appear in new series of Ant & Dec’s Saturday Night Takeaway
--  B.C. serial killer Robert Pickton now eligible to apply for day parole
--  Može li rast BDP-a pogonjen osobnom potrošnjom doseći četiri posto? I zašto to nije poželjno
+-  Arrecadação de janeiro teve R$ 4,1 bi vindos de tributação de fundos exclusivos, diz Receita
+-  Simone Tebet diz que é possível repriorizar gastos públicos
+-  Πάφος: Έρχονται δυνατές μονομαχίες
+-  Gmünds OB Richard Arnold nimmt Stellung zum Gutachten
+-  Gmünds OB Richard Arnold nimmt Stellung zum Gutachten
+-  Германският производител на автомобилни компоненти „Кайзер Аутомотив“ отваря завод в Плевен
+-  De Laurentiis a Castel Volturno, nuovo vertice con Calzona nel pomeriggio
+-  Acusada de "desencaminhar" Maria Cerqueira Gomes: "É um disparate"
+-  Volo Ryanair Edimburgo-Tenerife: scoppia una lite tra un terzetto di passeggeri a bordo di un aereo
+-  Klimato ekspertai apie miestų siaubą: betoniniai pastatai veikia it krosnys – įkaista ir spinduliuoja šilumą
