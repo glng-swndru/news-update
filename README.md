@@ -1,11 +1,11 @@
 # Latest News
--  El peso cerró la sesión con una depreciación de 0.40%
--  Молде розгромив Легію, Аякс дотиснув Буде/Глімт: результати раунду плей-оф Ліги конференцій
--  Élections européennes : qui est Jean-Marc Governatori, le candidat de l’Écologie au centre ?
--  Optimismo en bolsas tras las sólidas cifras de Nvidia
--  Scotti, i “play gold” iniziano sul parquet della Virtus Siena
--  RADA MANOJLOVIĆ PONOVO NAPRAVILA HAOS NA VESELJU! Đuskala, pa pokazala previše, snimak se širi neverovatnom brzinom
--  Vigevano, la manager Annalisa Pirro candidata più vicina alla presidenza
--  LJUDI PRESKAČU TERASE DA SE SPASU, NAJMANJE 14 POVREĐENO Jezivi snimci požara u Valensiji (FOTO/VIDEO)
--  Частный американский космический аппарат вышел на орбиту вокруг Луны
--  مئات الشباب يحجون لفندق ميركور لحضور لقاء حول ريادة الأعمال الرقمية
+-  UPDATE 1-US to impose sanctions on over 500 targets in Russia action on Friday
+-  Un incendio de grandes dimensiones arrasa dos edificios de viviendas en Valencia y deja 14 heridos
+-  Zwei Jahre Ukraine-Krieg: Schmerz und quälende Ungewissheit
+-  Αλτσχάιμερ: Πώς συνδέεται με την ατμοσφαιρική ρύπανση - Τι δείχνει έρευνα
+-  Izgoreo automobil u Novom Sadu na Detelinari (VIDEO)
+-  Спарта Прага разкъса 10 от Галатасарай
+-  LJUBILA MUŽA SVOJE KOLEGINICE Sloboda Mićalović pre Vojina bila u vezi sa ovim poznatim muškarcem!
+-  HAOS KOD OBRENOVCA Policajci došli da uhapse mladića (23), on ih napao
+-  OM : la belle pensée d'Aubameyang pour Gattuso après la victoire contre Donetsk
+-  9번 연속 동결…한은 "금리 인하, 상반기 내로는 쉽지 않아"
