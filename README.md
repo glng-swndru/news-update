@@ -1,11 +1,11 @@
 # Latest News
--  Joshua Tarling wint tijdrit O Gran Camiño: “Zelfs de afdaling was zwaar”
--  Premios Luces 2023: Los mejores discos musicales del año
--  Rejuvenate Bio Announces Gene Therapy-Mediated Partial Reprogramming Extends Lifespan and Reverses Age-Related Changes in the Journal Cellular Reprogramming
--  Perez se réjouit d'avoir bien compris les réglages de sa nouvelle RB20
--  সাইবার বুলিং প্রতিরোধে বাবা-মায়ের ভূমিকা
--  UE propõe flexibilizar exigências e reduzir os controles sobre os agricultores
--  Şarkıcı Murat Dalkılıç bütün konserlerini iptal etti
--  Les trois choses à retenir du groupe du CA Brive qui affrontera Valence Romans ce vendredi soir au Stadium
--  I trent’anni della legge 84, la legge che ha riformato i porti
--  Storm Louis: code oranje in hele land, Rijkswaterstaat adviseert weg te mijden
+-  Samsung traci pozycję lidera w Europie. Pierwszy raz od dwóch lat
+-  Tämän vuoden hittisarjan lohduton päätös kuohuttaa: ”Haluaisin vain itkeä päiväkausia”
+-  DNA-Analyse nach Fund von Leichenteilen
+-  Schreckgespenst geistert durch Recklinghausen: Warum häufen sich gerade jetzt die Insolvenzen?
+-  Engineering Plastics Global Market Overview Report 2024, with 100+ Company Profiles Including Advansix, CHIMEI, Covestro, Envalior, Invista, Jam Petrochemical, Kuraray, Plaskolite and Taita Chemical
+-  Candidatul care a acumulat cel mai mare punctaj la concursul pentru funcția de procuror general, organizat de CSP: Candidatura viitorului procuror general, pe mâna Comisiei pre-vetting
+-  Motorola preparada para anuncia o Edge 50 Pro
+-  Σε "πνεύμα" Τσίπρα η δήλωση Τεμπονέρα προσερχόμενος στο συνέδριο του ΣΥΡΙΖΑ
+-  LOOK WHO'S BACK: The 'Breen Machine' returns to the Bughouse
+-  Shin Megami Tensei V: Vengeance Doubles The Length Of The Original
