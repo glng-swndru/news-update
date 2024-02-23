@@ -1,11 +1,11 @@
 # Latest News
--  These 18 Bradenton-area restaurants, food trucks get near-perfect health inspections
--  Swarbrick’s vision of change what the country needs
--  女性起業家が主役の事業発表会 多様化社会に必要なサービス
--  Kulesza zmienia narrację. Naprawdę powiedział to o Fernando Santosie
--  Heidelberg: 21-Jährige von Straßenbahn mitgeschleift
--  Sodas, kurį rašytoja Jurga Vilė ir komiksų autorė Miglė Anušauskaitė pasodino Jonui Mekui
--  Your garden, February 23rd
--  블랙핑크 지수, 개인 레이블 ‘블리수’ 설립 [연예뉴스 HOT]
--  «Економічний безвіз». Що треба встигнути?
--  Rebiću otvoren put za napuštanje Bešiktaša, nesuglasice sa trenerom
+-  Ski alpin: Schramm mit neuer Bestleistung im Europacup
+-  Países del G20 apoyan dos Estados para conflicto israelo-palestino
+-  Blutdruck-Kontrolle am Handgelenk: Die beste Smartwatch mit Blutdruckmessung
+-  Берінчик піднявся на перше місце в рейтингу WBO
+-  Lindsay Hoyle and SNP leader standoff in the Wild West saloon of Westminster
+-  Guru Besar UMY Sarankan Ubah Sistem Pemilihan Hakim MK
+-  Tchad : À Abéché, 136 prisonniers de droit commun remis en liberté
+-  Xiaomi 14 Ultra ufficiale: una scheda tecnica da urlo per un top di gamma senza compromessi
+-  Budapest vezeti az albérletárak európai rangsorát a The Economist felmérése szerint
+-  Auto uderzyło w bunkier. Ze szpitala nadeszły tragiczne wieści
