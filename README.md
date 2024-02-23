@@ -1,11 +1,11 @@
 # Latest News
--  How did COVID-19 impact cancer incidence trends in the US?
--  방통위, 트위치 ‘VOD 중단’에 과징금 4억3천500만원 부과
--  Губернатор Нижнего Новгорода дал оценку работе Юрана в «Пари НН»
--  Il presidente Palu' lascia l'Aifa: "Inascoltato da Schillaci"
--  Terzo mandato, Toti "si sfiora scontro istituzionale"
--  Ligue Europa : avec un but d’Ismaïla Sarr , l’OM s’impose face au Shakhtar Donetsk et rejoint les 8es de finale
--  La France en tête de proue d'un changement de cap de la BCE ?
--  TMSF bir şirketi daha satışa çıkardı
--  Már a magyar munkahelyekre is átgyűrűzött a német betegség
--  UŽIVO Ruski Ka-52 uništili komandni centar; Požar u Odesi, ima mrtvih; Ukrajinci uzvraćaju udare VIDEO
+-  Bernadette de Lourdes, musical in Italia per il Giubileo
+-  Во Франции обвинили Киев в провалах ВСУ на фронте
+-  ZAPLENjENA REKORDNA KOLIČINA KOKAINA U VELIKOJ BRITANIJI: Policija radi na otkrivanju kriminalnih mreža koje su umešane
+-  Balıkesir Müftülüğüne Hasan Hayri Yaşar atandı
+-  Zukunft des Gazastreifens: Netanjahus Plan für Zeit nach dem Krieg
+-  İşe giden baba ve engelli oğluna kurşun yağdırdılar! Dehşet anları kamerada
+-  GAİB'den finansal okuryazarlık eğitimi
+-  The Stellar Daisy - some progress on real responsibility
+-  All Star Perche : Alysha Newman voit le bout du tunnel et signe un nouveau record du Canada
+-  Εκτός τελικού ρόστερ του "WWE 2K24" οι Brock Lesnar και Vince McMahon
