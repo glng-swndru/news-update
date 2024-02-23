@@ -1,11 +1,11 @@
 # Latest News
--  RCMP searching for potentially violent man in South Okanagan (Oliver/Osoyoos)
--  "Vučica" opet kobna za Fejnord: Golman Svilar i penali odveli Romu...
--  Sceny w LE. Historyczny sukces 27. kraju w rankingu UEFA! [WIDEO]
--  «Рома», «Милан», Карабах» и «Марсель» вышли в 1/8 финала ЛЕ. Известны все участники этой стадии
--  બોલિવુડ સ્ટાર્સનાં હુલામણાં નામ .
--  VinFast đạt tổng doanh thu gần 1,2 tỷ USD trong năm 2023
--  EL: AC Milán padl v Rennes, ale jde dál. Feyenoord končí, slaví AS Řím
--  İstanbul'da kentsel dönüşüm için verilecek yardım desteği belli oldu
--  황정음, 재결합 3년 만에 남편과 이혼 소송 중
--  "Godinu dana sam se lečila od alkohola!" Nadežda Biljić u emisiji "Estradanje" iskreno o borbi sa porokom: "Nisam znala za meru!" (VIDEO)
+-  류현진 아내 배지현 "고생한 남편, 한국 돌아오길 원해"
+-  INDIA bloc is a collection of corrupt leaders in jail or out on bail: Nadda
+-  Milan e Benfica avançam na Liga Europa; Betis dá adeus à Conference
+-  "해외 그리고 주주"…방경만 KT&G 사장 후보의 두 과제
+-  Atama kararları Resmi Gazete'de yayımlandı
+-  Tez arıqlamaq üçün qəhvəyə kərə yağı əlavə edin
+-  EEUU advierte que no podrá mantener los equipos militares suministrados a Ucrania
+-  Игроки «Спарты» и «Галатасарая» подрались в конце матча Лиги Европы
+-  Văn khấn cúng Rằm tháng Giêng 2024 chuẩn nhất, cầu gia đình bình an, mọi sự như ý, tài lộc hanh thông
+-  Muhammad (sa): The Great Exemplar
