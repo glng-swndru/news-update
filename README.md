@@ -1,11 +1,11 @@
 # Latest News
--  Domper voor Kimberley Bos bij WK: skeletonster zakt weg in klassement door helmproblemen
--  Govt Allows Export Onion: भारतातून 55 हजार टन कांदा परदेशात जाणार; 'या' चार देशांमध्ये निर्यातीला केंद्राची परवानगी
--  Dominicanos NY llaman connacionales desistir entrar a USA en la “Vuelta por México”
--  Jihad verde, i talebani dell'ecologia in guerra con i cittadini
--  IIT Jodhpur scientists develop ‘Make in India’ sensor for alcohol detection through breath monitoring
--  FEDA presenta las "rondas empresariales" del Programa IN-FEDA 2024 en Albacete y en las delegaciones
--  Çin'deki geminin köprüye çarptığı kazada can kaybı 5'e yükseldi
--  СБУ нашла подтверждение, что РФ бьет по Украине баллистическими ракетами из КНДР. ВИДЕО+ФОТОрепортаж
--  Pri útoku na škole v Nemecku bolo zranených niekoľko osôb
--  Sverige skickar militär till Röda havet
+-  快訊／威力彩頭獎4.9億號碼來了 對中7碼開始每天睡到自然醒
+-  В Минобороны Дании пообещали передать Украине первые истребители F-16 летом
+-  Sinopsis Amidst a Snowstorm of Love, Drama China yang Viral di Sosmed
+-  Navalnyin liittolainen länsi­maille: Iskekää Putinin ystävien varoihin
+-  Мъск се надява американците да разберат, че Байдън използва нелегални имигранти за политически цели - Труд
+-  Tribunal de Dakar : Me Ngagne Demba Touré inculpé et placé sous mandat de dépôt
+-  Nedostatek vojáků i boj proti vlastnímu otci. Ukrajinci popisují těžkosti na bojišti
+-  Молдавская власть трещит по швам: С руководящих должностей уходят топ-менеджеры, представители ЦИК и министерств
+-  Američki institut: Rusi napreduju sa svih strana, Ukrajini se ne piše dobro
+-  VOLARE, OH NO! – A LECCO UN 62ENNE SI È SCHIANTATO ED È MORTO DURANTE IL LANCIO CON LA TUTA ALARE - ALESSANDRO FIORITO, 62 ANNI, ERA UN PARACADUTISTA ESPERTO MA, QUANDO SI È TUFFATO DA UNO STRAPIOMBO DI 400 METRI A LECCO, LA TUTA NON SI È GONFIATA E IL PARACADUTE D'EMERGENZA NON SI È APERTO IN TEMPO - IL "BASE JUMPING" È LO SPORT PIU' PERICOLOSO AL MONDO: A FRONTE DI TREMILA PERSONE CHE PRATICANO QUESTA ATTIVITA' NE SONO MORTE 473 - VIDEO
