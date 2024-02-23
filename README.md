@@ -1,11 +1,11 @@
 # Latest News
--  Bezahlter Vaterschaftsurlaub verwehrt, Vater klagt: Wie es in Deutschland um Familien steht
--  Ipswich Town: Lowdown on Birmingham City clash in the Championship
--  Kenya, UAE seal comprehensive economic partnership deal
--  Summit Hotel Properties Announces 2024 Annual Meeting of Stockholders
--  Cựu HLV tuyển Trung Quốc bị phạt tù chung thân
--  Fracaso, no todo es pérdida: reflexiones y aprendizajes sobre nuestros proyectos fallidos
--  Végső búcsút vettek Grétsy Lászlótól
--  Yozgat polisinden kaçak makaron operasyonu: 11 bin 200 adet makaron ele geçirildi!
--  Lucille, Maëlys, Bernard... On vous présente les "petites mains" de la 90e Fête du citron à Menton
--  Hotel Don Giovanni boduje u hostů i v mezinárodních anketách
+-  Cittadella, mister Gorini: «Il Catanzaro può essere la scossa. Serve coraggio per uscire dalle difficoltà»
+-  Petróleo de Texas abre en 77.41 dólares el barril
+-  尹, 과기부 차관급 3명 전원 교체… ‘R&D예산 삭감 논란’ 등 영향인 듯
+-  Napadali su Milanovića zbog lexa Perković, a sada Plenković čini još goru stvar s EPPO-om
+-  Kakve veze imaju Hrvatska i formula? Na rubu Zagreba iz godine u godinu raste nevjerojatna priča
+-  Stuttgarter Thienemann Verlag: Verlag streicht N-Wort aus „Jim Knopf“
+-  Fratoianni propone le scorte democratiche alle manifestazioni
+-  Lula falou em mais proximidade com a Câmara, diz líder do PSB após reunião
+-  Розвідка Британії розповіла, як Кремль намагається придушити інакодумство
+-  Україна відкриє новий пункт пропуску на кордоні з Угорщиною, - Шмигаль
