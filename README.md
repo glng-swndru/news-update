@@ -1,11 +1,11 @@
 # Latest News
--  Collective exhibition at Il-Ħaġar delves into different textures
--  Tansu Çiller'den beklenen destek: Murat Kurum bir heyecanla geliyor
--  Luk Ivanušec ispao iz Europe nakon lutrije penala: Turski velikan ispao u Pragu
--  Murat Dalkılıç konserlerini iptal etti: Ameliyat olacağım
--  NASA warns of strong solar flare • The Register - The Register
--  Sin Michaela Jacksona Prince Jackson poželio svom bratu Bigiju sretan rođendan: ‘Lovi svoje snove i osvaja nagrade‘
--  Христо Иванов нарече поведението на Пеевски “пошлост“
--  50 години по-късно САЩ осъществиха ново кацане на Луната
--  Нацбанк Казахстана снизил базовую ставку
--  야구대표팀은 세대교체 중···류중일호, 프리미어12까지 계속된다
+-  [사설] RE100 인정 못받는 원전 연구·개발에만 4조원 쓰겠다는 윤 정부
+-  방통위, 딥페이크 허위정보 근절위해 민간 사업자와 협력
+-  NXT CX Summit South East Asia ke-9: Memberi Pengalaman pada Kostumer Tak Hanya Andalkan AI
+-  Wie Essener beim Spazieren Partner und Freunde finden
+-  Де Роси: Заслужена победа, много съм щастлив
+-  Vernd Úkraínumanna framlengd
+-  Pemaju waspada kenaikan kos susulan prestasi ringgit semasa
+-  Romanova objava o Dinamu je iznenadila mnoge: 'O moj Bože, Betis?? Ma Dinamo ovo osvaja'
+-  Atlikėjas Mikutavičius dėl apgaulių jo vardu kreipėsi į policiją: „Tie dalykai turi būti užkardyti“
+-  Представлена полностью обновленная Toyota C-HR 2023!
