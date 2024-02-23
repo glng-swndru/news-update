@@ -1,11 +1,11 @@
 # Latest News
--  ASELSAN Genel Müdürü Akyol: "ASELSAN'ın misyonu KAAN'ı 'BİLGE KAAN' yapmak"
--  Стотици протестираха в Газа за още помощи и против "Хамас"
--  Bursalılar dikkat: T1 Tramvay Hattı hizmet veremeyecek! Tarih ve saat verildi
--  Fleximan colpisce ancora nel Mantovano: segato l’autovelox alle porte di Asola
--  Slovėnų snaiperis spindėjo lyg Luka Dončičius
--  رحلة شتوية فريدة.. استمتع بجمال الطائف
--  Selden etkilenen Artvin'de hasar tespit çalışmaları sürüyor
--  „Vor zehn Jahren war es noch brechend voll“: Viele Lücken auf dem Holzwickeder Wochenmarkt
--  Çetinkaya, “Hizmet aşkıyla çalışmaya devam edeceğiz”
--  大跌20%後，撈底這兩隻美國科技股的機會來了？
+-  Supreme Court asks Centre if new law on bail is under consideration
+-  Cumhurbaşkanı Erdoğan seçmenle buluşuyor
+-  Tässä on Kauppalehden perjantain protestilista - Katso oman alueesi uudet protestit
+-  Başkan Ekim'den kurtuluş günü mesajı
+-  El almacenamiento de datos en 3D utilizando luz permitiría guardar un millón de películas
+-  ‘與 영입인재’ 이상규 “경제 옭아매는 비정상 규제 걷어내야”
+-  Live-Rundgang durch den neuen Bürgerbahnhof: Dorstens neues Schmuckstück eröffnet
+-  Swifties evacuated and show delayed
+-  L'OM réclame du très lourd !
+-  Clach to learn venue for next Highland League fixture on morning of match
