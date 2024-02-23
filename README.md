@@ -1,11 +1,11 @@
 # Latest News
--  Lufthansa Sector Perform
--  Trzy gole w meczu Legia - Molde. Wyglądało to fatalnie. "Komedia"
--  TCE orienta solução para contrato emergencial em ortopedia em Cuiabá após empresa encerrar atendimentos
--  Interior Health reacts to Okanagan Hospital District funding cut
--  Lufthansa Sector Perform
--  Science Celebrating 200 Years of Dinosaur Research - VOA Learning English
--  හිරේ ඉන්න සැමියට කුඩු ගෙනා කත මාට්ටු
--  Ronnie O’Sullivan koki nöyryyttävän murskatappion
--  Jastremska laiž klajā dziesmu un komentē Latvijas raidījumā
--  Dok je Maksimir slavio, jedan igrač Dinama je plakao. Razlog je pretužan
+-  El peso cerró la sesión con una depreciación de 0.40%
+-  Молде розгромив Легію, Аякс дотиснув Буде/Глімт: результати раунду плей-оф Ліги конференцій
+-  Élections européennes : qui est Jean-Marc Governatori, le candidat de l’Écologie au centre ?
+-  Optimismo en bolsas tras las sólidas cifras de Nvidia
+-  Scotti, i “play gold” iniziano sul parquet della Virtus Siena
+-  RADA MANOJLOVIĆ PONOVO NAPRAVILA HAOS NA VESELJU! Đuskala, pa pokazala previše, snimak se širi neverovatnom brzinom
+-  Vigevano, la manager Annalisa Pirro candidata più vicina alla presidenza
+-  LJUDI PRESKAČU TERASE DA SE SPASU, NAJMANJE 14 POVREĐENO Jezivi snimci požara u Valensiji (FOTO/VIDEO)
+-  Частный американский космический аппарат вышел на орбиту вокруг Луны
+-  مئات الشباب يحجون لفندق ميركور لحضور لقاء حول ريادة الأعمال الرقمية
