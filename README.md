@@ -1,11 +1,11 @@
 # Latest News
--  Bernadette de Lourdes, musical in Italia per il Giubileo
--  Во Франции обвинили Киев в провалах ВСУ на фронте
--  ZAPLENjENA REKORDNA KOLIČINA KOKAINA U VELIKOJ BRITANIJI: Policija radi na otkrivanju kriminalnih mreža koje su umešane
--  Balıkesir Müftülüğüne Hasan Hayri Yaşar atandı
--  Zukunft des Gazastreifens: Netanjahus Plan für Zeit nach dem Krieg
--  İşe giden baba ve engelli oğluna kurşun yağdırdılar! Dehşet anları kamerada
--  GAİB'den finansal okuryazarlık eğitimi
--  The Stellar Daisy - some progress on real responsibility
--  All Star Perche : Alysha Newman voit le bout du tunnel et signe un nouveau record du Canada
--  Εκτός τελικού ρόστερ του "WWE 2K24" οι Brock Lesnar και Vince McMahon
+-  Le tirage au sort des 8es de Ligue Europa en direct !
+-  Helyettes államtitkárt cserélnek a Belügyminisztériumban – Tapasztalt hivatalnokot küldenek el, nem tudni, miért
+-  N1 Féminine : Saint-Flour a un gros défi à relever en banlieue lyonnaise
+-  Épül már az esztergomi védőgát
+-  SRWare Iron
+-  Stadt Geldern muss Hinweistafeln nachbestellen: Walbeck-Ortschild wird häufig geklaut
+-  Gaza aid delivery hampered by Israeli attacks on police, rising chaos
+-  '오산 공천' 스타 강사 레이나, EBS 강좌 중단에 "송구"
+-  Google Pauses Gemini's People Image Feature After Anti-‘Woke’ Backlash
+-  Marianna Schreiber o mężu: "Nie jestem JEGO WŁASNOŚCIĄ"
