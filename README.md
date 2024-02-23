@@ -1,11 +1,11 @@
 # Latest News
--  ASV privāta kompānija nosēdina izpētes robotu uz Mēness
--  Yodha: Before Zindagi Tere Naam, Top 5 times Sidharth Malhotra made us fall for him with his love songs
--  薛瑞元抱病備詢聲音沙啞 韓國瑜送暖提醒喝熱茶：立法院很有人情味
--  NSƯT Ngọc Huyền được chồng cưng chiều: Kỷ niệm 21 năm ngày cưới chỉ đi chơi, nằm nhà ăn, không làm gì
--  Neverjetnemu Dončiću skandirali "MVP", Dallas zadel pravljično sedmico #video
--  ΤΕΕ: Πότε ολοκληρώνεται ο ψηφιακός χάρτης ακινήτων – Ποια τα οφέλη για τους πολίτες
--  Γιατρούς τραυματιοφορέα ΔΕΝ έχουμε νοσοκόμο «δεν έχουμε κ. Άδωνη.
--  Bac Lieu apunta a ser centro nacional de industria del camarón
--  ‘Superpeso’ reduce 4.6% ventas de José Cuervo en cuarto trimestre de 2023
--  越南是中国第二大胡椒供应国
+-  Muitos erros e pouco perigo: tanto desacerto causou calafrios
+-  세계 최초 민간 달착륙 역사 쓴 '인튜이티브 머신스'
+-  Dveji karo Ukrainoje metai: kur klydo ir ko išmoko Vakarai?
+-  Editorial: Vaivenes del Consejo Nacional de Concesiones
+-  Is a tax on re-selling homes in B.C. within the first two years of ownership a good idea?
+-  21-vuotias suomalais­taistelija kaatui Ukrainassa
+-  Kegeln - Goldene Stadtwappennadel für Wiener Neustädter Kegel-Obfrau Rosa Hais
+-  Isoja tiehankkeita valmiina suunnittelun puolesta rahoitusjonoon – Pohjois-Savon näkymättömyys Väyläviraston investointiohjelmassa ei ratkaise peliä
+-  7 стъпки да уцелите целта за успех в кариерата
+-  민주, 박홍근·김민석·박주민·윤건영 등 12명 단수 공천
