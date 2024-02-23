@@ -1,11 +1,11 @@
 # Latest News
--  Après 35 ans à sa tête, le directeur de cet établissement hyérois tire sa révérence
--  وزير الخارجية: مجموعة العشرين منصة حيوية للاقتصادات الرائدة
--  Bešlagić: Ja sam Bosanac i Dalmatinac, ne može se biti Bosanac i Hercegovac
--  Golf-Charlie Woods fails to advance in pre-qualifier for PGA Tour event
--  Tausende Wohnungen werden frei: Berlin erringt Sieg im Kampf gegen illegale Ferienwohnungen bei Airbnb und Co.
--  Présidentielle 2024 : Amadou Ly (Akilee) demande à Macky d’organiser l’élection dans l'esprit de la Constitution
--  خادم الحرمين: نحتفي في يوم التأسيس بـ300 عام من الاستقرار
--  نيسان أكس-تريل.. الخيار المفضل لعشاق المغامرة
--  Kolike će plaće imati medicinske sestre, učitelji, policajci? "Inflacija pojede povećanje prije nego sjedne plaća"
--  ΥΠΑΜ Τουρκίας: Τουρκικά μαχητικά θα μπορούν να κάνουν θερμή καταδίωξη στον βουλγαρικό εναέριο χώρο
+-  LIVE | Palestijnen: leger Israël weg uit Nasser-ziekenhuis na bestorming
+-  Marie Colvin: Intrepid journalist who lost an eye in northern Sri Lanka
+-  Jelentett a Magyar Telekom - Jöhet az osztalékeső?
+-  LIVE | Palestijnen: leger Israël weg uit Nasser-ziekenhuis na bestorming
+-  26-åring man luras till Tinderdejt – blir rånad
+-  Nvidia earnings keep the stock market’s bears in hibernation
+-  Balığın yaptığı harekete kimse inanamadı! Herkes ağzı açık bir şekilde izlemek zorunda kaldı
+-  Die Fäden laufen bei Reichenbach zusammen
+-  Nestorović tražio sastanak sa Lavrovim? Dragan Stanojević izneo šok tvrdnje: I ja sam dobijao pozive
+-  Baur’s CEO delivers leadership session to BOI top executives
