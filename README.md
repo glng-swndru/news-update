@@ -1,11 +1,11 @@
 # Latest News
--  Arrecadação de janeiro teve R$ 4,1 bi vindos de tributação de fundos exclusivos, diz Receita
--  Simone Tebet diz que é possível repriorizar gastos públicos
--  Πάφος: Έρχονται δυνατές μονομαχίες
--  Gmünds OB Richard Arnold nimmt Stellung zum Gutachten
--  Gmünds OB Richard Arnold nimmt Stellung zum Gutachten
--  Германският производител на автомобилни компоненти „Кайзер Аутомотив“ отваря завод в Плевен
--  De Laurentiis a Castel Volturno, nuovo vertice con Calzona nel pomeriggio
--  Acusada de "desencaminhar" Maria Cerqueira Gomes: "É um disparate"
--  Volo Ryanair Edimburgo-Tenerife: scoppia una lite tra un terzetto di passeggeri a bordo di un aereo
--  Klimato ekspertai apie miestų siaubą: betoniniai pastatai veikia it krosnys – įkaista ir spinduliuoja šilumą
+-  Grote brand in torenflat in Spaanse Valencia: tot dusver 14 gewonden, mogelijk mensen vast
+-  Zeker vier doden en veertien gewonden bij grote brand in torenflat in Spaanse kuststad Valencia
+-  Zeker vier doden en veertien gewonden bij grote brand in torenflat in Spaanse kuststad Valencia
+-  Law firm announces funeral arrangements for Otunba Ogunbanjo
+-  Ομόνοια: Μεγάλη η συνδρομή…
+-  США пригрозили новыми санкциями в случае поставок России ракет из Ирана
+-  Grote brand in torenflat in Spaanse Valencia: tot dusver 14 gewonden, mogelijk mensen vast
+-  Zeker vier doden en veertien gewonden bij grote brand in torenflat in Spaanse kuststad Valencia
+-  Grote brand in torenflat in Spaanse Valencia: mogelijk mensen vast
+-  El origen pagano del Carnaval de Venecia donde Damián Arabia estuvo de fiesta
