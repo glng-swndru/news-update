@@ -1,11 +1,11 @@
 # Latest News
--  De vroegste kampioen ooit, of spanning tot de slotdag? Dit zijn de scenario’s voor PSV
--  Lesson in inequity
--  Vegyes forintmozgás reggel
--  Dončić umalo isporučio Bukeru 40+ tripl-dabl – istorijsko veče za Karija
--  How much Maidstone United have earned from lucrative FA Cup run
--  Keçi ya da inek sütünü ihtiyacınıza göre seçin
--  【阪神】湯浅京己の２軍降格決定 岡田監督が激怒「明日から２軍やん。投げてる最中に言うたよ」 - プロ野球 - ニッカンスポーツ
--  أسعار النفط تتراجع بعد تصريح لمسؤول بالمركزي الأمريكي عن أسعار الفائدة
--  Iron-Maiden-Sänger kommt nach Dortmund: Fans können Bruce Dickinson treffen
--  Barito Putera Jaga Motivasi Demi Kalahkan Persib Bandung
+-  ASELSAN Genel Müdürü Akyol: "ASELSAN'ın misyonu KAAN'ı 'BİLGE KAAN' yapmak"
+-  Стотици протестираха в Газа за още помощи и против "Хамас"
+-  Bursalılar dikkat: T1 Tramvay Hattı hizmet veremeyecek! Tarih ve saat verildi
+-  Fleximan colpisce ancora nel Mantovano: segato l’autovelox alle porte di Asola
+-  Slovėnų snaiperis spindėjo lyg Luka Dončičius
+-  رحلة شتوية فريدة.. استمتع بجمال الطائف
+-  Selden etkilenen Artvin'de hasar tespit çalışmaları sürüyor
+-  „Vor zehn Jahren war es noch brechend voll“: Viele Lücken auf dem Holzwickeder Wochenmarkt
+-  Çetinkaya, “Hizmet aşkıyla çalışmaya devam edeceğiz”
+-  大跌20%後，撈底這兩隻美國科技股的機會來了？
