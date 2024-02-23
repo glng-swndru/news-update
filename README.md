@@ -1,11 +1,11 @@
 # Latest News
--  Samsung traci pozycję lidera w Europie. Pierwszy raz od dwóch lat
--  Tämän vuoden hittisarjan lohduton päätös kuohuttaa: ”Haluaisin vain itkeä päiväkausia”
--  DNA-Analyse nach Fund von Leichenteilen
--  Schreckgespenst geistert durch Recklinghausen: Warum häufen sich gerade jetzt die Insolvenzen?
--  Engineering Plastics Global Market Overview Report 2024, with 100+ Company Profiles Including Advansix, CHIMEI, Covestro, Envalior, Invista, Jam Petrochemical, Kuraray, Plaskolite and Taita Chemical
--  Candidatul care a acumulat cel mai mare punctaj la concursul pentru funcția de procuror general, organizat de CSP: Candidatura viitorului procuror general, pe mâna Comisiei pre-vetting
--  Motorola preparada para anuncia o Edge 50 Pro
--  Σε "πνεύμα" Τσίπρα η δήλωση Τεμπονέρα προσερχόμενος στο συνέδριο του ΣΥΡΙΖΑ
--  LOOK WHO'S BACK: The 'Breen Machine' returns to the Bughouse
--  Shin Megami Tensei V: Vengeance Doubles The Length Of The Original
+-  Pay Just $23 and Bag EarFun Free 2S Wireless Earbuds Today - CNET
+-  ‘The Boy and the Heron’ Composer Joe Hisaishi on Why the Piano Was Key to Unlocking Film’s Signature Theme
+-  Pay Just $23 and Bag EarFun Free 2S Wireless Earbuds Today - CNET
+-  Первый пилотируемый полет корабля Boeing Starliner к МКС намечен на 22 апреля
+-  Zwycięstwo Samuela Pereiry. Twórca „Soku z Buraka” musi zapłacić
+-  Pay Just $23 and Bag EarFun Free 2S Wireless Earbuds Today - CNET
+-  Latvia Parliament Bans Food Imports From Russia, Belarus
+-  Европа будет отбиваться от нападения русской армии вареньем и картошкой: Раскрыта правда про "бункеры" на границе с РФ
+-  Zwycięstwo Samuela Pereiry. Twórca „Soku z Buraka” musi zapłacić
+-  Bourgogne : vol record de bouteilles de vin, le butin estimé à 500 000 euros
