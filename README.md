@@ -1,11 +1,11 @@
 # Latest News
--  Änderungen nötig: Wie die Personalprobleme Seoane und Borussia sogar helfen können
--  Europa League last-16 draw LIVE: Liverpool, West Ham and Brighton await their fate... with AC Milan the unseeded team to avoid
--  Otthagyná munkahelyét? Nincs ezzel egyedül
--  Hétfőn lesz új köztásasági elnökünk - jelentette be Kocsis Máté
--  LKF pasisakė naujos Vilniaus arenos klausimu
--  Women’s Premier League: Shah Rukh Khan meets Mumbai Indians and Delhi Capitals squads
--  В российских КАБах обнаружили двигатели от продаваемых во Франции вентиляторов за 13 евро, - КНДИСЕ
--  MÉS: «La casa d’Emili Darder ha de tornar a la ciutat de Palma»
--  Kars'ta 18 ton 200 kilogram kaçak deterjan ele geçirildi! 2 kişi gözaltına alındı
--  Neue perfide Masche: Angebliche Vertreter locken Kunden in teure Gas-Verträge
+-  Najväčší rozdiel? Koronavírus, smial sa tréner Belgicka. Priznal, ktorý Slovák bol problémový
+-  視覚と聴覚の両方に障がいがある盲ろう者と ともに避難するために...移動やコミュニケーションの実情は
+-  Nadel, bitte: Dieser Robot lernt, selbst Wunden zu nähen
+-  Военный источник: Азербайджан может за очень короткое время уничтожить оружие, переданное Индией Армении
+-  Người mới cần lưu ý gì khi chạy xe côn?
+-  Nadel, bitte: Dieser Robot lernt, selbst Wunden zu nähen
+-  Wind Turbines Market to Reach $116.6 Billion by 2027, Unveils Latest BCC Research Study
+-  Biden missing opportunity on legalizing marijuana, advocates warn
+-  heise+ | Wie man einen Lichtleiter aus 3D-Druck-Filament erstellt
+-  Best 5G Phones of 2024 - CNET
