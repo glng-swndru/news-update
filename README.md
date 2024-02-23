@@ -1,11 +1,11 @@
 # Latest News
--  Le tirage au sort des 8es de Ligue Europa en direct !
--  Helyettes államtitkárt cserélnek a Belügyminisztériumban – Tapasztalt hivatalnokot küldenek el, nem tudni, miért
--  N1 Féminine : Saint-Flour a un gros défi à relever en banlieue lyonnaise
--  Épül már az esztergomi védőgát
--  SRWare Iron
--  Stadt Geldern muss Hinweistafeln nachbestellen: Walbeck-Ortschild wird häufig geklaut
--  Gaza aid delivery hampered by Israeli attacks on police, rising chaos
--  '오산 공천' 스타 강사 레이나, EBS 강좌 중단에 "송구"
--  Google Pauses Gemini's People Image Feature After Anti-‘Woke’ Backlash
--  Marianna Schreiber o mężu: "Nie jestem JEGO WŁASNOŚCIĄ"
+-  Art Karlsruhe: Wo Besucher und Kunst atmen können
+-  Reddit: Das ist das Besondere am Börsengang
+-  Schnabel (Bce): “La lotta contro l’inflazione non è ancora terminata. Sui tassi serve prudenza”
+-  Portugáliából érkezhet Szoboszlai Dominikék új edzője
+-  日本の伝統「ＢＥＮＴＯ」体験で３万７０００円 “欧米豪の富裕層を狙え” 福岡の新インバウンド戦略
+-  Norwich City: Tony Springett interview on Northampton Town
+-  Crime passionnel à Ouest-Foire : Une scène de jalousie vire au meurtre
+-  1 Big Problem With Nvidia's Rising Valuation
+-  Změna času 2024: Kdy začíná letní čas a proč se mění
+-  Kocaeli'de BTP adayları dernekleri ziyaret etti
