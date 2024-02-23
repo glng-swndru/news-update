@@ -1,11 +1,11 @@
 # Latest News
--  Najväčší rozdiel? Koronavírus, smial sa tréner Belgicka. Priznal, ktorý Slovák bol problémový
--  視覚と聴覚の両方に障がいがある盲ろう者と ともに避難するために...移動やコミュニケーションの実情は
--  Nadel, bitte: Dieser Robot lernt, selbst Wunden zu nähen
--  Военный источник: Азербайджан может за очень короткое время уничтожить оружие, переданное Индией Армении
--  Người mới cần lưu ý gì khi chạy xe côn?
--  Nadel, bitte: Dieser Robot lernt, selbst Wunden zu nähen
--  Wind Turbines Market to Reach $116.6 Billion by 2027, Unveils Latest BCC Research Study
--  Biden missing opportunity on legalizing marijuana, advocates warn
--  heise+ | Wie man einen Lichtleiter aus 3D-Druck-Filament erstellt
--  Best 5G Phones of 2024 - CNET
+-  TRAJKOVIĆ PRED IMT: Utakmica nosi ne tri, već šest bodova
+-  Γαλλία: Για πέμπτη ημέρα κλειστός ο Πύργος του Άιφελ
+-  900 milliárd forintos napelemparkot építenének az akkugyárak Magyarországon
+-  Einstieg ins Meditieren: So wählen Sie Ihr erstes Meditationskissen aus
+-  Tomašević kreće u obnovu doma zdravlja kojemu gravitira 50.000 Zagrepčana
+-  Val-d'Oise. Rino Della Negra est entré au Panthéon
+-  Tabiat Buruk Luna Maya Dibongkar Mantan Asisten, Bayar Rp700 Ribu demi Jaga Mood
+-  Vučević dobar, ali nedovoljan protiv moćnog Bostona
+-  Putin felicita os ‘heróis’ que lutam na Ucrânia
+-  Einstieg ins Meditieren: So wählen Sie Ihr erstes Meditationskissen aus
