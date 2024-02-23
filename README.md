@@ -1,11 +1,11 @@
 # Latest News
--  [사설] RE100 인정 못받는 원전 연구·개발에만 4조원 쓰겠다는 윤 정부
--  방통위, 딥페이크 허위정보 근절위해 민간 사업자와 협력
--  NXT CX Summit South East Asia ke-9: Memberi Pengalaman pada Kostumer Tak Hanya Andalkan AI
--  Wie Essener beim Spazieren Partner und Freunde finden
--  Де Роси: Заслужена победа, много съм щастлив
--  Vernd Úkraínumanna framlengd
--  Pemaju waspada kenaikan kos susulan prestasi ringgit semasa
--  Romanova objava o Dinamu je iznenadila mnoge: 'O moj Bože, Betis?? Ma Dinamo ovo osvaja'
--  Atlikėjas Mikutavičius dėl apgaulių jo vardu kreipėsi į policiją: „Tie dalykai turi būti užkardyti“
--  Представлена полностью обновленная Toyota C-HR 2023!
+-  ‘끝내주는 해결사’ 강기영, 끝내주는 순애보
+-  El cierre del Inadi: carne para las fieras
+-  Ceny ropy v piatok klesli
+-  Баєр зустрінеться з Майнцом: розклад матчів Бундесліги на 23 лютого
+-  Irak'ın kuzeyinde 4 terörist etkisiz hale getirildi
+-  Ukraińskie straty w wojnie. Zełenski powiedział, jaka jest prawda
+-  Yerel seçimin en çok tartışılan ismi! Lütfü Savaş: CHP göstermese bağımsız aday olurdum
+-  Bestialska napaść na warszawskiej Pradze. Mężczyzna miał zaatakować kobietę młotkiem
+-  A Covid-vakcina két új ritka és szörnyen fájdalmas mellékhatását igazolták
+-  3 saatlik elektrik kesintisi
