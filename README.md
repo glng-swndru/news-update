@@ -1,11 +1,11 @@
 # Latest News
--  Na Alemanha, índice Ifo de sentimento das empresas avança a 85,5 em fevereiro, como previsto
--  Hivatalos: márciustól új forgatókönyv lép életbe a magyar boltokban, minden vásárló érintett
--  PREPARATE I POPCORN: COSA RISPONDERÀ DE LUCA ALL’ATTACCO FRONTALE DI GIORGIA MELONI? LA DUCETTA A “PORTA A PORTA” HA SPERNACCHIATO IL GOVERNATORE PER L’UTILIZZO DEI FONDI DI COESIONE PER “LA FESTA DEL FAGIOLO E DELLA PATATA, LA RASSEGNA DELLA ZAMPOGNA, LA SAGRA DEL CICATIELLO, LA FESTA DEL CACIOCAVALLO PODOLICO”. MA PERCHÉ NON ENTRA NEL MERITO E DICE QUANTI SOLDI SIANO STATI SPESI PER QUESTE (MERITORIE) INIZIATIVE? È EVIDENTE CHE SI TRATTI DI PICCOLI CONTRIBUTI… - VIDEO: IL "LAVORA, STRONZA" DEL GOVERNATORE ALLA DUCETTA
--  Unia Europejska zatwierdziła 13. pakiet sankcji wobec Rosji
--  Az MBH új platformmal segíti a cégalapítást
--  Stock Up on Underwear and Save With These Deals at Calvin Klein, MeUndies and More - CNET
--  Sudo für Windows: Du hast die Kernfunktionen vergessen, mein Microsoft
--  Rapina in via Zorutti a Trieste: passante aggredito da un uomo armato di pistola
--  Кметът Пенчо Милков награди плувните шампиони от КПС „Ирис" Русе
--  Ivana Španović odustala od velikog takmičenja
+-  Bezahlter Vaterschaftsurlaub verwehrt, Vater klagt: Wie es in Deutschland um Familien steht
+-  Ipswich Town: Lowdown on Birmingham City clash in the Championship
+-  Kenya, UAE seal comprehensive economic partnership deal
+-  Summit Hotel Properties Announces 2024 Annual Meeting of Stockholders
+-  Cựu HLV tuyển Trung Quốc bị phạt tù chung thân
+-  Fracaso, no todo es pérdida: reflexiones y aprendizajes sobre nuestros proyectos fallidos
+-  Végső búcsút vettek Grétsy Lászlótól
+-  Yozgat polisinden kaçak makaron operasyonu: 11 bin 200 adet makaron ele geçirildi!
+-  Lucille, Maëlys, Bernard... On vous présente les "petites mains" de la 90e Fête du citron à Menton
+-  Hotel Don Giovanni boduje u hostů i v mezinárodních anketách
