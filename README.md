@@ -1,11 +1,11 @@
 # Latest News
--  Ribeirão abre Copa Sejel de Bike XCM neste domingo
--  Tanta pioggia e neve: ecco dove. La data del "colpo di scena"
--  Prioritizing anticipated needs following natural disasters crucial
--  Informação exclusiva sobre a chegada de Talles Magno ao Galo
--  Apple Boosts iMessage Security Amid Quantum Concerns
--  Ризото с грах, аспержи и пармезан: Така го приготвят в ресторантите
--  توقيع اتفاقية بين ريدت وغوغل لتدريب نماذج الذكاء الاصطناعي
--  Anak Terseret Kasus Perundungan, Vincent Rompies Mengaku Sudah 2 Minggu Tak Buka Sosial Media
--  10 best romantasy novels, from Sara J Mass to Rebecca Yarros
--  La France a formé 10.000 militaires ukrainiens depuis le début de l'invasion russe
+-  These 18 Bradenton-area restaurants, food trucks get near-perfect health inspections
+-  Swarbrick’s vision of change what the country needs
+-  女性起業家が主役の事業発表会 多様化社会に必要なサービス
+-  Kulesza zmienia narrację. Naprawdę powiedział to o Fernando Santosie
+-  Heidelberg: 21-Jährige von Straßenbahn mitgeschleift
+-  Sodas, kurį rašytoja Jurga Vilė ir komiksų autorė Miglė Anušauskaitė pasodino Jonui Mekui
+-  Your garden, February 23rd
+-  블랙핑크 지수, 개인 레이블 ‘블리수’ 설립 [연예뉴스 HOT]
+-  «Економічний безвіз». Що треба встигнути?
+-  Rebiću otvoren put za napuštanje Bešiktaša, nesuglasice sa trenerom
