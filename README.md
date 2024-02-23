@@ -1,11 +1,11 @@
 # Latest News
--  What causes the fog?
--  AK Partili Pekdemir, Pamukkale'de kırsal kalkınma hamlesi başlatacak
--  ‘후배 괴롭힘 의혹’ 페퍼 A 선수, 상벌위 참석…결론 못 내리고 재논의
--  „Männer investieren in Männer“ – kaum Geld für Gründerinnen
--  Solidarnost
--  „Männer investieren in Männer“ – kaum Geld für Gründerinnen
--  Recenzja smartfona Tecno Spark 20 Pro+ - Zaskakująco dobre aparaty za mniej niż 200 euro
--  Potwierdziło się. Były reprezentant wystartuje w wyborach. "Miasto potrzebuje zmiany"
--  Zwangsversteigerungen in Herten: Wie man beim Hauskauf 70.000 Euro sparen kann
--  "Khi xe VinFast lăn bánh trên đường, là lúc Indonesia đã sẵn sàng"
+-  Das Solingen-Foto der Woche: Hier weihnachtet es immer noch
+-  광양제철소, 공정품질부문 '모델플랜트 킥오프' 미팅
+-  Ruru Madrid at Bianca Umali, posible kayang magkaroon ng crossover sa 'Black Rider' at 'Sang'gre'?
+-  Vision und Wirklichkeit in München: Bauruinen statt Vorzeigeprojekte
+-  İçişleri Bakanı Yerlikaya: "Uyuşturucu madde imalatçılarına ve bunların satışını yapanlar ile sokak satıcılarına yönelik 46 ilde düzenlenen 'Narkoçelik-2' Operasyonlarında; 983 kg uyuşturucu madde ve 92 bin adet uyuşturucu hap ele geçirildi.
+-  Με μαχαιριές στην κοιλιά σκότωσε ο 80χρονος τη σύζυγό του στη Θεσσαλονίκη - Τους εντόπισε ο ανιψιός τους
+-  Altın alacaklar dikkat: Yükseliyor
+-  El tiempo en Santiago de Compostela: previsión meteorológica para hoy, viernes 23 de febrero
+-  Desatero akcií milovaných hedgeovými fondy. Podle Goldman Sachs násobí zisky indexu S&P 500
+-  Twoje piwonie pięknie i obficie zakwitną. Jak pobudzić krzew na wiosnę?
