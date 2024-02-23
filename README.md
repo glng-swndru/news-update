@@ -1,11 +1,11 @@
 # Latest News
--  State BJP Chief Vijayendra calls on MP V. Sreenivasa Prasad
--  Komünist Başkan, İBB seçiminde kimi destekleyeceğini açıkladı
--  Zahl der Badetoten gestiegen: Gewässer - Eine Gefahr für Leib und Leben
--  Глава МО Великобритании анонсировал передачу Украине еще 200 ракет Brimstone
--  Goodyear, 1500 işçi için yeni teklif sundu
--  Pavel jmenoval 57 nových soudců. Dočkal se i Zemanem odmítaný Bodlák
--  Вместо хирургического решения вопроса мобилизации власти месяцами "пилят" болевую точку, - Гудыменко
--  Idući tjedan bit će poznato hoće li pojeftiniti kruh u RS-u
--  Ζάκυνθος: Τη Δευτέρα απολογείται ο 27χρονος που χτύπησε και ανάγκασε την 19χρονη να αποβάλλει
--  Jak se čistí David. Michelangelovy sochy se vysavač nesmí dotknout
+-  ভালো মানের খুদের চাল যেখানে পাবেন, কেনার আগে যেসব বিষয় মনে রাখতে হয়
+-  Apple's New Sports App Focuses on Scores, Stats and Speed - CNET
+-  'Top player': 18-year-old Bayern Munich ace will 'consider all options' amid Manchester United transfer links
+-  Tiefpreis bei Amazon: Diese Premium-Soundbar von Bose löst eines der größten Probleme im Heimkino dank KI-Unterstützung
+-  Rafnar fer aftur í Völsung (Staðfest)
+-  Zorlu Töre: Polis teşkilatının personel eksikliklerinin farkındayız
+-  Deutschland gegen Montenegro: So könnt ihr die Qualifikation zur EuroBasket kostenlos im TV und Live-Stream sehen
+-  Despliegue de la Fuerza de Tarea Humanitaria Simón Bolívar
+-  Ömer öğretmenin resim ışığı
+-  Πήρε εξιτήριο ο Μπάμπα - Το πρώτο του μήνυμα και οι ευχαριστίες στον κόσμο και στον Βαγιαννίδη
