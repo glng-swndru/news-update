@@ -1,11 +1,11 @@
 # Latest News
--  Bolsonaro se cala na PF sobre tentativa de golpe; defesa alega falta de acesso ao processo
--  Hizbullah 2 kayıp daha verdi
--  Qué encontró el Gobierno en el INADI kirchnerista
--  Законопроект о штрафах за нарушение ПДД на электросамокатах внесен в Госдуму
--  Mãe de Navalni diz que Rússia a pressiona por funeral secreto de seu filho
--  Bolsonaro se cala na PF sobre tentativa de golpe; defesa alega falta de acesso ao processo
--  Chacarita pide que le den ganado el partido ante Tigre
--  I Njemačka i Francuska podržale nizozemskog premijera za šefa NATO-a
--  Dogovor o EU reformama žrtva optužbi izdaje nacionalnih interesa
--  V Slovenj Gradcu žalujejo, zapustila jih je velika strokovnjakinja
+-  Didepak Munchen, Tuchel Dikabarkan Bakal Kembali ke Inggris
+-  Why Nimona Got Saved From Disney to Become an Oscar Contender
+-  Gabriele Chiogna, da studente di fisica a docente di geologia applicata a Erlangen
+-  NBA Player props: Luka Doncic, Anthony Davis props, more at Underdog Fantasy - Feb. 22
+-  Gagal di Satu Tempat, Komplotan Pencuri Motor Beraksi Lagi 400 Meter dari Lokasi Pertama di Palmerah
+-  Pop megastar and daytime TV queen among huge names to appear in new series of Ant & Dec’s Saturday Night Takeaway
+-  OM : «Il y a de la colère», la tension monte à Marseille
+-  Pop megastar and daytime TV queen among huge names to appear in new series of Ant & Dec’s Saturday Night Takeaway
+-  B.C. serial killer Robert Pickton now eligible to apply for day parole
+-  Može li rast BDP-a pogonjen osobnom potrošnjom doseći četiri posto? I zašto to nije poželjno
