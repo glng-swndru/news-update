@@ -1,11 +1,11 @@
 # Latest News
--  Repsol reduce su deuda en más de 4.000 millones en los tres años de crisis energética
--  Pelayo Cortina Koplowitz redobla el pulso a Jobandtalent por el valor de sus acciones
--  Musiikki | ”Ylen hyllyttämä kilpailija” hurmasi yleisön UMK:ssa – Pilvi Hämäläinen kertoo, miten vitsi lähti käsistä
--  BPKH Tingkatkan Peran dalam Ekosistem Perhajian dan Keuangan Syariah
--  Bankalarda yeni dönem başladı! Duymayan şaşıp kalıyor: Artık bu kural geçerli
--  Onlyfans-tähti Crista Jaatinen joutui vakavaan onnettomuuteen – auttaja lähetti pöyristyttävän viestin
--  Justyna Steczkowska pominięta przez znaną wokalistkę. Nie podziękowała jej
--  Mbappé - Real Madrid : Cristiano Ronaldo a dicté son arrivée ?
--  Gavi stakes $1m incentive for firms investing in vaccines
--  Årsredovisningen klar: Så gick det för Bo's Traktortjänst I Örträsk Aktiebolag
+-  Put nicotine back on Poisons List, CAP urges govt
+-  הרצף נעצר: 5 נקודות לאבדיה, וושינגטון הובסה בדנבר. טריפל דאבל ליוקיץ'
+-  Nowy SUV do produkcji tylko w Polsce! To sensacyjna inwestycja
+-  Το ”έγκλημα διαρκείας” με θύμα την ελληνική Ομογένεια.
+-  Luka Dončić nastavio tamo gde je stao pre pauze: Nova odlična partija u pobedi Dalasa nad Finiksom
+-  Does Taylor Swift write all her own songs?
+-  India should become exporter of green energy by 2047 to attract capital: Kant
+-  Wegen Influenza und RS-Virus: Hochbetrieb an den Ostalb-Kliniken
+-  Xiaomi 14 Ultra ra mắt: "Kẻ hủy diệt" iPhone 15 Pro Max và Galaxy S24 Ultra, camera vượt trội mà giá lại rẻ hơn
+-  Nhiều địa phương không có dự án nhà ở xã hội nào trong 2 năm nay
