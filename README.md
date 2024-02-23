@@ -1,11 +1,11 @@
 # Latest News
--  نميري: العمل الفلسطيني هو الطريق الأوحد لـ «التحرير والعودة»
--  યમી ગૌતમને ડબલ ગુડ ન્યુઝ મળશે?, આગામી ફિલ્મ ‘આર્ટિકલ 370’ વિશે કરી અત્યંત રસપ્રદ વાતો
--  السادات يتخذ قراراً نهائياً بإنهاء حالة «اللا حرب واللا سلم»
--  Private moon lander touches down, but sending weak signal
--  عبر محطة محلية تغطي الدوحة وضواحيها.. بث التلفزيون بعد 3 شهور
--  الأهلي القطري يهنئ الأهلي المصري
--  Brock Lesnar And Vince McMahon Aren't Playable In WWE 2K24--But Aren't Gone Entirely
--  Reddit publicly files IPO papers, detailing plans to license data, sell more ads and grow its ‘user economy’
--  ප්‍රඥාවට දොරටු විවර කළ නවම් පුන් පොහොය
--  Motorcyclist dead, two in hospital after crash near Cessnock
+-  Втрати ЗСУ в п'ять разів нижчі за російські, - Зеленський
+-  E-commerce giant MercadoLibre's 4th-quarter profit stable after tax hit
+-  Target Center is on pace to sell out the Women's Basketball Big 10 Tournament for the first time
+-  Payments fintech Block sees Q1 adjusted core earnings above estimates
+-  Tom Cruise to star in Alejandro G. Iñárritu project at Warner Bros, Legendary
+-  Magic and myths
+-  Tom Cruise to star in Alejandro G. Iñárritu’s film at Warner Bros, Legendary
+-  국민의힘, 내일까지 이틀간 총선 후보 1차 경선…수도권 등 19곳 대상
+-  US returns to lunar surface for first time in over 50 years: ‘Welcome to the moon’ - The Guardian
+-  Revelan porqué Peso Pluma canceló en Viña del Mar 2024
