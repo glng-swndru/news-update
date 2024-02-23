@@ -1,11 +1,11 @@
 # Latest News
--  ਕਰੀਨਾ ਦਾ ਐਵਾਰਡ ਸ਼ੋਅ 'ਤੇ ਸੁਪਰ ਸਟਾਈਲ
--  Das ewige Spiel mit der Zeitung
--  Langanhaltender Schnupfen: Wenn er nicht mehr weggeht – Fünf Tipps
--  Miarka się przebrała! Podolski odpalił bombę. "Nie ma wypłat. Są wkur***ni"
--  25 lat "Rodziny zastępczej". Na nowo obejrzałem pierwszy odcinek i... znów pojawiły się łzy
--  1 "món" chứa tinh bột kháng giúp hạ đường huyết, ở chợ Việt rẻ bèo: Nhưng có 3 nhóm người không nên ăn
--  استقلال نیم فصل خریدهای خوبی داشت/ نمی دانم ماشاریپوف چرا تعویض شد
--  Ťažký pôrod na krásnom štadióne. Rakúšania píšu o námorníkoch na mori a najväčšom úspechu za 23 rokov
--  Pourquoi les dépenses militaires sont néfastes pour l’économie
--  Zabrał na wakacje do Japonii psa. Za 160 tys. zł. "Było warto"
+-  ABD 52 yıl sonra yeniden Ay'a iniş yaptı!
+-  ARMEX NA SAJMU GAST Predstavit ćemo novi njemački pročistač otpadnih voda
+-  Co teď může Jan Bendig udělat, aby si zachránil hlavně kariéru a pak i krk?
+-  Cinéma. Les César 2024, un tournant pour le mouvement #MeToo ?
+-  Poundsterling Gambar Raja Charles III akan Beredar di Inggris Mulai Juni 2024
+-  Kingmakers: zběsilá akce ve středověku s moderními zbraněmi
+-  ¿Abren los bancos el 24 de febrero? Esto sabemos
+-  NRES sasar 25 Rumah Ibadat Hijau setiap tahun
+-  Αναχρονιστικό- οδυνηρό όπλο του Α’ Παγκοσμίου Πολέμου: βελάκια που προκαλούσαν τρόμο - Τα έριξαν και στο Βιετνάμ
+-  Deux ans après le début de la guerre, 392 Ukrainiens vivent dans l'Yonne
