@@ -1,11 +1,11 @@
 # Latest News
--  Das Solingen-Foto der Woche: Hier weihnachtet es immer noch
--  광양제철소, 공정품질부문 '모델플랜트 킥오프' 미팅
--  Ruru Madrid at Bianca Umali, posible kayang magkaroon ng crossover sa 'Black Rider' at 'Sang'gre'?
--  Vision und Wirklichkeit in München: Bauruinen statt Vorzeigeprojekte
--  İçişleri Bakanı Yerlikaya: "Uyuşturucu madde imalatçılarına ve bunların satışını yapanlar ile sokak satıcılarına yönelik 46 ilde düzenlenen 'Narkoçelik-2' Operasyonlarında; 983 kg uyuşturucu madde ve 92 bin adet uyuşturucu hap ele geçirildi.
--  Με μαχαιριές στην κοιλιά σκότωσε ο 80χρονος τη σύζυγό του στη Θεσσαλονίκη - Τους εντόπισε ο ανιψιός τους
--  Altın alacaklar dikkat: Yükseliyor
--  El tiempo en Santiago de Compostela: previsión meteorológica para hoy, viernes 23 de febrero
--  Desatero akcií milovaných hedgeovými fondy. Podle Goldman Sachs násobí zisky indexu S&P 500
--  Twoje piwonie pięknie i obficie zakwitną. Jak pobudzić krzew na wiosnę?
+-  ਕਰੀਨਾ ਦਾ ਐਵਾਰਡ ਸ਼ੋਅ 'ਤੇ ਸੁਪਰ ਸਟਾਈਲ
+-  Das ewige Spiel mit der Zeitung
+-  Langanhaltender Schnupfen: Wenn er nicht mehr weggeht – Fünf Tipps
+-  Miarka się przebrała! Podolski odpalił bombę. "Nie ma wypłat. Są wkur***ni"
+-  25 lat "Rodziny zastępczej". Na nowo obejrzałem pierwszy odcinek i... znów pojawiły się łzy
+-  1 "món" chứa tinh bột kháng giúp hạ đường huyết, ở chợ Việt rẻ bèo: Nhưng có 3 nhóm người không nên ăn
+-  استقلال نیم فصل خریدهای خوبی داشت/ نمی دانم ماشاریپوف چرا تعویض شد
+-  Ťažký pôrod na krásnom štadióne. Rakúšania píšu o námorníkoch na mori a najväčšom úspechu za 23 rokov
+-  Pourquoi les dépenses militaires sont néfastes pour l’économie
+-  Zabrał na wakacje do Japonii psa. Za 160 tys. zł. "Było warto"
