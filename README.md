@@ -1,11 +1,11 @@
 # Latest News
--  ভালো মানের খুদের চাল যেখানে পাবেন, কেনার আগে যেসব বিষয় মনে রাখতে হয়
--  Apple's New Sports App Focuses on Scores, Stats and Speed - CNET
--  'Top player': 18-year-old Bayern Munich ace will 'consider all options' amid Manchester United transfer links
--  Tiefpreis bei Amazon: Diese Premium-Soundbar von Bose löst eines der größten Probleme im Heimkino dank KI-Unterstützung
--  Rafnar fer aftur í Völsung (Staðfest)
--  Zorlu Töre: Polis teşkilatının personel eksikliklerinin farkındayız
--  Deutschland gegen Montenegro: So könnt ihr die Qualifikation zur EuroBasket kostenlos im TV und Live-Stream sehen
--  Despliegue de la Fuerza de Tarea Humanitaria Simón Bolívar
--  Ömer öğretmenin resim ışığı
--  Πήρε εξιτήριο ο Μπάμπα - Το πρώτο του μήνυμα και οι ευχαριστίες στον κόσμο και στον Βαγιαννίδη
+-  A Hollywood vince Ken
+-  A Hollywood vince Ken
+-  Ketua Bawaslu Sebut Semua Warga Negara Bertanggung Jawab terhadap Proses Demokrasi
+-  Kola pro 26 tisíc vagonů. Železniční průmysl rostl sedmiprocentním tempem
+-  DOC // Uniunea Europeană a impus SANCȚIUNI pentru încă șase persoane din R. Moldova, care ar fi implicate în DESTABILIZĂRI. LISTA cuprinde persoane din anturajul lui Ilan Șor
+-  Милошоски ослободен и за „измама“ во случајот „Моќник“
+-  Zimbabwean Youngster Leon Chiwome Shines with Brace for Wolves Academy
+-  Il Codacons fa scattare la diffida. Ferragni "senza contraddittorio" da Fazio
+-  Svaka čast! Španci predstavili novi dres u čast Partizana! (VIDEO)
+-  A Hollywood vince Ken
