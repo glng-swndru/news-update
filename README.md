@@ -1,11 +1,11 @@
 # Latest News
--  Putin hace oídos sordos a la campaña para devolver el cuerpo de Navalni a su familia
--  Saša Lozar uputio javnu ispriku Severini: 'Znaš da mi to nije bila namjera'
--  Noi informații despre incendiul din Valencia. Ce a generat propagarea rapidă a focului. "A acționat ca o pernă de aer"
--  Sos caporalato, in Fvg troppe partite iva sospette in agricoltura
--  Onko pörssisähkö oikeasti aina edullisempi kuin määräaikainen sopimus?
--  Harald Burkart: Berliner CDU will Ordnungsmaßnahme gegen JU-Chef verhängen
--  TikTok-Rezept: In 15 Minuten fertig: Schnelle Vodka-Pasta – so kochen Sie Gigi Hadids Lieblingsessen nach
--  Aus diesem Grund macht Gabriel Kelly bei "Let's Dance" mit
--  Martin Kosovec za 24sata uoči premijere pjesme na Dori: 'Ma kakva trema, nemam pritisak'
--  İsrail 'savaş kabinesinde' erken seçim sesleri. Netanyahu'nun iktidardaki günleri sayılı
+-  Erster Standort für neues Flüchtlingsheim steht fest
+-  Die Meldungen des Tages aus dem Burgenland
+-  2023 Universal Registration Document made available
+-  Getestete Fischstäbchen häufig mit Schadstoffen belastet – so bereiten Sie den Klassiker selber zu
+-  Ілон Маск ошелешив несподіваним дописом у соцмережі
+-  A BUX picit nőtt, a Telekom drágult
+-  Redovisningen klar för senaste året: Fröklängen Fastigheter AB visar bättring
+-  Kjartan fortviler og advarer alle andre: – Det er helt håpløst
+-  Getestete Fischstäbchen häufig mit Schadstoffen belastet – so bereiten Sie den Klassiker selber zu
+-  Japanese Canadian stories explored in B.C. film ‘Seagrass’
