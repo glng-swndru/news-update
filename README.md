@@ -1,11 +1,11 @@
 # Latest News
--  Tudela among 75 towns to receive P13.3M grant
--  New Roguelike Balatro Mixes Deckbuliding With Poker
--  Kacey Musgraves Drops ‘Deeper Well’ Candle from Boy Smells, ‘I Wanted to Create a Multi-Sensorial Experience’
--  La JCE cierra cómputo electoral y revisión de votos nulos y observados en municipales
--  이수정 "한동훈, 사형제 언급은 여의도 사투리…집행 불가능" [한판승부]
--  Mercato : Terrible nouvelle pour Zidane
--  Atlanta Hawks - Toronto Raptors, en directo | NBA
--  This Official Poor Things Party Brought the Film's Freaky Glam Vibes to Life
--  PREMIJERA PREDSTAVE "BOSONOGI U PARKU": Prvi put pred vranjskom publikom romatična komedija najizvođenijeg brodvejskog pisca
--  પતંગિયાને કાંટો વાગ્યો .
+-  CL, “두려움은 누구나 있지 않을까?”
+-  Piscina, copertura e pannelli fotovoltaici abusivi
+-  මහ බැංකුවේ හැන්ද සහ අපි කන හැටි
+-  Alemania legaliza el consumo y la posesión del cannabis
+-  ක්ලිෆර්ඩ් අභියෝග කුසලාන රග්බි 28 වැනිදා සිට
+-  “10대만 맞자”…10일 사귄 연예인 이별 통보에 공갈·폭행한 30대女
+-  “El mago ha sido domado”: Cibernautas estallaron de amor tras ver fotos que publicó Jorge Valdivia junto a Maite Orsini
+-  පුස්සන් පුම්බන නම්බු නාම නීතියේ දැලට
+-  “El mago ha sido domado”: Cibernautas estallaron de amor tras ver fotos que publicó Jorge Valdivia junto a Maite Orsini
+-  Бундестаг проголосовал за легализацию каннабиса
