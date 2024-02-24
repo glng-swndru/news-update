@@ -1,11 +1,11 @@
 # Latest News
--  Porn browsing ID talk prompts Trudeau to take jab at Poilievre
--  Low-cost Lynx Air grounded permanently, flights to cease effective Monday
--  Deux courses, peu de dénivelé, une unique édition... Tout savoir sur les Cordeliers de Courcourt dimanche à Seychalles
--  Lack of competition blamed as business investment per worker drops
--  Vietnam's Largest Diameter of Onshore Wind Turbine to Date Will Be Installed at Hai Anh Wind Fart Project
--  You Can Become a Shiba Inu Millionaire, But This Needs To Happen
--  Harry Potter: la serie TV di HBO entrerà presto in produzione, debutterà su Max nel 2026
--  Hommage Willi Resetarits - Kottingbrunn: Ein Besuch im Espresso Rosi
--  AI May Not Take Your Job, But Someone Using AI Likely Will — Here's Why.
--  Σοφί Μαρσό: Η Γαλλίδα σταρ πρωταγωνιστεί σε ένα αστυνομικό - ερωτικό θρίλερ - Βίντεο
+-  “QUEL PROF CI PROVA SEMPRE” - L'UNIONE DEGLI UNIVERSITARI DE "LA SAPIENZA" DI ROMA STA RACCOGLIENDO TESTIMONIANZE E DENUNCE DI DECINE DI STUDENTESSE CHE RACCONTANO DI ESSERE STATE MOLESTATE: “IL MIO TUTOR FA CONTINUAMENTE BATTUTE E PROVA AD ABBRACCIARCI. QUANDO LO EVITO HA UN ATTEGGIAMENTO AGGRESSIVO” – “C’È UN PROFESSORE CHE CI PROVA IN MANIERA ESPLICITA CON LE MATRICOLE” – ALL’UNIVERSITÀ SONO STATI 13 I CASI DENUNCIATI NEL 2023: NON SOLO MOLESTIE IN CATTEDRA, MA ANCHE DURANTE I TIROCINI E…
+-  Vietnam's Largest Diameter of Onshore Wind Turbine to Date Will Be Installed at Hai Anh Wind Farm Project
+-  МХП – Эпицентр, Буковина – Житичи, Юракадемия – Тернополь. Смотреть LIVE
+-  Europa League Draw Set For Today
+-  Beyaz eşya tamirciliği üzerinden dolandırıcılık yapan 3 şüpheli yakalandı
+-  Tchad : Remise de peine collective aux détenus de la maison d'arrêt de Moussoro
+-  Doug Ford defends ‘patronage’ appointments of ex-staffers, says he wants ‘like-minded’ Ontario judges
+-  "الميادين": المدفعية الإسرائيلية تستهدف أطراف بلدة الخيام
+-  High Tide Welcomes Passage of First Pillar of Germany's Cannabis Legalization Plan
+-  La página de inicio de sesión de Google recibió un rediseño. Aquí hay un primer vistazo
