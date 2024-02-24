@@ -1,11 +1,11 @@
 # Latest News
--  Vóc dáng đẹp không tin nổi của bà ngoại 61 tuổi người Anh
--  Weekly review of Azerbaijan's oil prices
--  漁港で海の幸を満喫 「海鮮まつり」が4年ぶりに開催 兵庫・新温泉町
--  Mercun punca bunyi letupan kes gaduh adik-beradik
--  Demi Jurgen Klopp, Liverpool Siap Mati-matian Memenangkan Piala Liga
--  Está escolhido novo líder da CGTP. Tiago Oliveira sucede a Isabel Camarinha
--  Menos de la mitad de los compradores de vivienda en la provincia de Teruel necesitaron hipotecarse en 2023
--  Johnny Deep-Prens Selman dostluğu: Ünlü aktör Kaşıkçı cinayetini sordu
--  ”蘇り”体現で白羽の矢 横綱・照ノ富士が”再生の地”熊野で奉納土俵入り 熊野本宮大社
--  Finalistka z Dubaju zagrała z Igą Świątek. "Kim ona jest?"
+-  피겨 임주헌 · 김채연, 동계체전 남녀 고등부 우승
+-  Москва заработала больше миллиарда евро за год на продаже топлива в ЕС
+-  Calcio: Pioli, con Atalanta sfida importante per la classifica
+-  Tokyo chiude il parco Hello Kitty per minaccia terroristica
+-  Bir havayolu şirketi daha iflas etti
+-  Altoatesino 73enne morto, ferite causata da una volpe
+-  Tuấn Hải hụt Quả bóng vàng, ĐT Việt Nam "hưởng lợi"?
+-  Everton takeover: 777 unhappy with slack PL as 'standard' delay close to doubles - report
+-  Hurdacının bulduğu kemikler, ortadan kaybolan kadın katiline ait çıktı
+-  Lagani 16-inčni MSI Prestige 16 AI Evo BM1 ima premium izradu, OLED ekran i Core Ultra procesore
