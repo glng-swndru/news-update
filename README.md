@@ -1,11 +1,11 @@
 # Latest News
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 24 февруари /валутен калкулатор/
--  Власти Тульской области сообщили о втором беспилотнике, сбитом в регионе
--  Stained glass window showing dark-skinned Jesus Christ heading to Memphis museum
--  "RODITELJI SU ODVAJALI OD USTA DA MI KUPE IGRAČKE" Barbara Bobak o detinjstvu i odrastanju: Za skijanje nismo imali para...
--  Серия А. Болонья одержала пятую победу подряд и осталась четвертой
--  Metz – OL : les Gones poursuivent leur bonne série !
--  Moskva i Kijev na drugu godišnjicu rata: U Ukrajini mobilizacija, ciljevi Rusije nepromjenjeni
--  Москва и Кијев на другу годишњицу рата: У Украјини мобилизација, циљеви Русије непромјењени
--  Μανώλης Μητσιάς: Ποτέ δεν παρακάλεσα κανέναν να μου δώσει ένα τραγουδάκι, ποτέ
--  Ovo srpsko ime nosi najtužnije značenje! Ukoliko planirate da ga date detetu jednu stvar morate znati
+-  Генсек Белорусского Красного Креста попал под санкции ЕС
+-  Gamze ile Ömer arasındaki bağlar zayıflıyor! Ömer’in 45. bölümünde neler olacak? İşte yeni bölüm özeti ve fotoğrafları
+-  Husband ‘made over a million’ by eavesdropping on BP wife
+-  VREDE 2.000 MILIJARDI DOLARA: Rekordna vrednost proizvođača čipova Nvidia
+-  Эстония лишила лицензии своих хоккеистов, участвовавших в Играх будущего в России
+-  Video: VAR, 5 bàn thắng và 3 điểm xứng đáng cho Thanh Hoá
+-  தூத்துக்குடியில் விபத்தில் காயமுற்றவா் உயிரிழப்பு
+-  Небензя озвучил условие сохранения Украины
+-  ليفركوزن يفوز على ماينز ويعزز صدارته للدوري الألماني
+-  Per l’Alto Canavese è un’occasione d’oro La Volpianese vuole vincere e risalire
