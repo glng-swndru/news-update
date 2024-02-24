@@ -1,11 +1,11 @@
 # Latest News
--  “QUEL PROF CI PROVA SEMPRE” - L'UNIONE DEGLI UNIVERSITARI DE "LA SAPIENZA" DI ROMA STA RACCOGLIENDO TESTIMONIANZE E DENUNCE DI DECINE DI STUDENTESSE CHE RACCONTANO DI ESSERE STATE MOLESTATE: “IL MIO TUTOR FA CONTINUAMENTE BATTUTE E PROVA AD ABBRACCIARCI. QUANDO LO EVITO HA UN ATTEGGIAMENTO AGGRESSIVO” – “C’È UN PROFESSORE CHE CI PROVA IN MANIERA ESPLICITA CON LE MATRICOLE” – ALL’UNIVERSITÀ SONO STATI 13 I CASI DENUNCIATI NEL 2023: NON SOLO MOLESTIE IN CATTEDRA, MA ANCHE DURANTE I TIROCINI E…
--  Vietnam's Largest Diameter of Onshore Wind Turbine to Date Will Be Installed at Hai Anh Wind Farm Project
--  МХП – Эпицентр, Буковина – Житичи, Юракадемия – Тернополь. Смотреть LIVE
--  Europa League Draw Set For Today
--  Beyaz eşya tamirciliği üzerinden dolandırıcılık yapan 3 şüpheli yakalandı
--  Tchad : Remise de peine collective aux détenus de la maison d'arrêt de Moussoro
--  Doug Ford defends ‘patronage’ appointments of ex-staffers, says he wants ‘like-minded’ Ontario judges
--  "الميادين": المدفعية الإسرائيلية تستهدف أطراف بلدة الخيام
--  High Tide Welcomes Passage of First Pillar of Germany's Cannabis Legalization Plan
--  La página de inicio de sesión de Google recibió un rediseño. Aquí hay un primer vistazo
+-  Windows: Microsoft resolve finalmente bug com mais de 6 meses
+-  CRAS Jardim Caçula e Ouro Fino retomam Capoeirando na Melhor Idade
+-  LED Lighting Market worth $118.4 billion by 2029 - Exclusive Report by MarketsandMarkets™
+-  Volleyball-Regionalliga: Letzte Titelchance für den TV Lebach?
+-  Alex Scott lifts lid on his rise at Bournemouth and Pep Guardiola's ultimate compliment
+-  Team News: Barcelona vs. Getafe injury, suspension list, predicted XIs
+-  Theater im Pferdestall Ammersbek spielt fesselndes Drama
+-  Relazioni pericolose, un ciclo di incontri con l’Università di Padova
+-  Unanimidad en el pleno de Talavera para que Patrocinio estrene santuario el día 19 de marzo
+-  Em seminário, Arthur Lira defende aliança entre Eduardo Paes e Claudio Castro
