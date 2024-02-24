@@ -1,11 +1,11 @@
 # Latest News
--  Euroviisut | Ylen Puoli seitsemän -ohjelma: Windows95man sai rajuja viestejä UMK-voiton jälkeen
--  Place de la Nation: Moustapha Diouf Lambaye appelle à maintenir la mobilisation
--  ŽIVELA RAZUZDANO KAO DA SUTRA NE POSTOJI! Valjala se u DRAGOM KAMENJU, novac je volela više od svega, a njene slike vrede MILIONE
--  LIVE: MHC möter Troja – följ viktiga matchen här
--  Série de 'Harry Potter' vai ser lançada em 2026 pela Max, afirma chefe da Warner Bros.
--  STF julga se ação que discute vínculo entre Uber e motoristas tem repercussão geral
--  STF julga se ação que discute vínculo entre Uber e motoristas tem repercussão geral
--  VIDEO: SHY objavio debitantsku baladu Ti kaži da
--  Українці старанніше почали платити за світло, - YASNO
--  NVIDIA теперь стоит дороже $2 трлн — она подорожала вдвое менее чем за год
+-  Viktigt att man tillåter sig återhämtning när man är sjuk
+-  La partenza della Sun Princess dal cantiere di Panzano a Monfalcone
+-  VIDEO Najpoznatiji nogometni YouTuber u ekshibicijskog utakmici krvoločno startao na bivšu Zlatnu loptu
+-  Aston Martin F1 ne se 'concentre' pas sur la concurrence
+-  Cel teden opozarjajo o slabem vremenu, pa ljudje rinejo v gore brez opreme!
+-  Opportunities abound
+-  JLo: Zweimal sechzehnter Geburtstag in Japan
+-  Cuponazo de la ONCE de hoy viernes 23 de febrero 2024 | Comprobar resultado
+-  Mijn verzekeraar schrijft nog geld af terwijl m’n polis is beëindigd, ben ik nog verzekerd?
+-  Niezapowiadane przemówienie Andrzeja Dudy. „Musimy działać teraz”
