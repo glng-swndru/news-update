@@ -1,11 +1,11 @@
 # Latest News
--  Sesar nakon poraza od Francuske: Imali smo svoje trenutke, ali nismo ih iskoristili
--  Il Bologna scappa, si fa difficile per il Napoli. Motta: "Alchimia speciale"
--  Magician says political consultant hired him to create AI robocall ahead of New Hampshire primary
--  CAHN 'giải cứu' danh tiếng của HLV Kiatisuk
--  Laser do očí? Lehce mě oslepil, čekal jsem bouřlivější atmosféru, líčil Balvín
--  Zieke koning Charles overladen met brieven en kaarten
--  Judge says NIL compensation rules likely violate antitrust law
--  Honolulu police investigate fatal stabbing of man, 63, in Kakaako apartment
--  KOLEKTIVNA OBUKA U JEDINICI ABHO VOJSKE SRBIJE: Realizacija zadataka u protivnuklearnom, hemijskom i biološkom obezbeđenju (FOTO)
--  Laser do očí? Lehce mě oslepil, čekal jsem bouřlivější atmosféru, líčil Balvín
+-  Halifax Harbour model reveals fascinating pieces of history
+-  ""عنصر خطير" في هواتفنا يُهدد صحتنا
+-  આપણા શરીરનો આધાર અસ્થિપિંજર
+-  Pawan, Naidu will leave a clue on 2024 joint manifesto at Tadepalligudem public meeting, says Nadendla Manohar
+-  Válka na Ukrajině ještě potrvá roky. Rusko počítá do sféry svého vlivu i nás, říká analytik Bříza
+-  "NEĆE TAKO BITI, HTELA TO ONA ILI NE" Veljko Ražnatović ne voli što mu sinovi zovu Cecu po imenu: "ONA JE BABA TOM DETETU"
+-  AB, Ukrayna'ya destek mesajını yineledi
+-  ‘Barbie’ Wanted John Cena, And He Wanted To Do The Film, But His Agency Said It Was “Beneath Him” - Deadline
+-  Hakim ve savcı adayı atamaları Resmi Gazete'de
+-  「煙充満している」作業終え無人の中古車整備工場が一時”激しく炎上”－内部約200平方メートルと車両複数が焼ける…約2時間半後に鎮火 北海道札幌市東区
