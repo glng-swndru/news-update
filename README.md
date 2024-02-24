@@ -1,11 +1,11 @@
 # Latest News
--  Renungan Harian Kristen, Mazmur 149:5a, Kegirangan dalam Kemuliaan Tuhan
--  Объявлено время начала игр между "Карабахом" и "Байером"
--  El Bernabéu, los arbitrajes y la verdadera vara de medir del mejor Sergio Ramos
--  Burhaniye'de yol sevinci
--  ‘깐죽포차’ 최양락, 포차 영업 긴급 중지…“그냥 쑥대밭이 됐다”
--  Bolton's Gaskell Community Primary work cost rises to £3.8M
--  17 công ty bỗng bị đưa vào 500 lệnh trừng phạt Nga: Trung Quốc tức tốc hành động, đòi Mỹ phải sửa sai ngay
--  Rangadó vár a magyar válogatott kapusra, aki tudja a siker receptjét
--  Concerns rise over China's 1 trillion yuan EV, solar, battery exports
--  Reality Club Wakili Indonesia di SXSW 2024
+-  Teden v zvezdah: sledimo zdravi pameti
+-  Apa Benar Bawang Merah Dapat Menurunkan Demam pada Anak?
+-  Former USA gun lobby chief found guilty of corruption by jury
+-  Černobilski volkovi nimajo več raka
+-  S ukrajinským snajprem na frontě: Ztratil jsem už sto kamarádů
+-  Två år av krig – två tysta minuter
+-  Lennerd Daneels eist in gesprekje met Walid Ould-Chikh beslissende vrije trap op: ‘Je kunt me vertrouwen; komt goed’
+-  Tourist scolds Crocodiles of the World over coffee spill
+-  Kesergés
+-  Patrick und Stefan Bach: Spielertrainer des TSV Benzingen und Straßberg haben viel zu erzählen
