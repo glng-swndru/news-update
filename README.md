@@ -1,11 +1,11 @@
 # Latest News
--  Bakan Özhaseki: Sene sonuna kadar 200 bin konutu dağıtmış olacağız
--  Мілан - Аталанта: де і коли дивитися онлайн матч 26 туру Серії А 25.02.2024
--  Promesa salsera alcanza 7 millones de reproducciones con su tema “Ámame”
--  Toronto FC has many questions to answer as it gears up for new MLS season
--  Toronto FC has many questions to answer as it gears up for new MLS season
--  Toronto FC has many questions to answer as it gears up for new MLS season
--  Bloomberg: Hungría veta una declaración conjunta de la UE sobre Ucrania
--  White House reverses West Bank policy, calling Israeli settlements illegal
--  Hasil Hitung Sementara DPRD Sulawesi Utara Dapil BMR Golkar, I Ketut Sukadi Unggul, Raski Mengejar
--  ‘Tyranny will never triumph’, says UK’s Sunak over Ukraine war
+-  Filistinlileri en iyi Güney Afrika anladı
+-  イヤイヤ期の妹をピタッと泣き止ませた幼い姉の“神対応” 両親を助けた驚きの手段に「賢くて優しくて」「話し方もすごい」
+-  "Atitude desleal e de má-fé": Diretor-geral da Intercampus sobre sondagem divulgada pelo Chega
+-  How to make your brown eyes pop, and the exact products to help achieve it
+-  INSN San Borja: reconstruyen cráneo de niña mordida por perro con 15 cirugías complejas
+-  İsrail zulmüne ses çıkarmalıyız
+-  WPL 2024 Royal Challengers Bangalore vs UP Warriorz: When & Where To Watch Live
+-  Özlemle geçen 13 yıl... Necmettin Erbakan dualarla anılacak
+-  Sen aç gözlerini biz utanırız çocuk
+-  Woman identified in police chase last Friday near Gonzaga University
