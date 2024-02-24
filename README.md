@@ -1,11 +1,11 @@
 # Latest News
--  القصيم.. كبار السن يعيشون أجواء البهجة والفرح بيوم التأسيس
--  이이경, '국민 쓰레기' 박민환 소환
--  Tíu látnir eftir stórbrunann
--  Włosi zaatakowali polski klub siatkarski! Brak poszanowania zasad fair play?
--  なぜプロレスラーの生活はプロボクサーより安定しているのか？ - なぜコンビニでお金をおろさない人はお金持ちになれないのか
--  Bakan Kacır: Havacılıktaki başarımızı uzayda da elde edeceğiz
--  Selena Gomez' fühlt sich mit Benny Blanco sicher wie nie!
--  Lynx passengers face travel chaos after airline announces shutdown
--  Izvučena Loto sedmica! Dobitak iznosi neverovatnih 35 miliona
--  كيفن نكودو يواصل التوهج مع ضمك في دوري روشن
+-  LRTか､それともバスか？中国製｢ART｣とは何者か レールなし､路面の白線マーカーに沿い走行 | 海外 | 東洋経済オンライン
+-  Srpkinja Maša o teškim počecima svoje porodice na Novom Zelandu: "Pokrivali smo se kožnim jaknama i jeli sendviče mesec dana"
+-  Elfin Knight for the Guindy Grand Prix
+-  Hätten Sie das gewusst? Diese Angebote sind bei Ebay Kleinanzeigen streng verboten
+-  B.C.’s wildfire travel ban was ‘ineffective, unnecessary’: Penticton Chamber
+-  Оборотът на БФБ достигна 29 млн. лв., от които 22 млн. лв. с акции на „Градус“
+-  Interview. Élèves ukrainiens : « Il y a eu un élan de solidarité », affirme Nicole Belloubet
+-  EU otvorila Kancelariju za vještačku inteligenciju
+-  Intuitive Machines stock skyrockets after first-ever commercial moon landing
+-  Nach Leichenfund in Wien: Opfer wurde erstochen
