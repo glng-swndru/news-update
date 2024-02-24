@@ -1,11 +1,11 @@
 # Latest News
--  Windows: Microsoft resolve finalmente bug com mais de 6 meses
--  CRAS Jardim Caçula e Ouro Fino retomam Capoeirando na Melhor Idade
--  LED Lighting Market worth $118.4 billion by 2029 - Exclusive Report by MarketsandMarkets™
--  Volleyball-Regionalliga: Letzte Titelchance für den TV Lebach?
--  Alex Scott lifts lid on his rise at Bournemouth and Pep Guardiola's ultimate compliment
--  Team News: Barcelona vs. Getafe injury, suspension list, predicted XIs
--  Theater im Pferdestall Ammersbek spielt fesselndes Drama
--  Relazioni pericolose, un ciclo di incontri con l’Università di Padova
--  Unanimidad en el pleno de Talavera para que Patrocinio estrene santuario el día 19 de marzo
--  Em seminário, Arthur Lira defende aliança entre Eduardo Paes e Claudio Castro
+-  Συναγερμός στο Πλίμουθ για βόμβα του Β’ Π.Π – Εκκενώνονται περιοχές
+-  Az Emirates felvásárolta a világ legnagyobb vertikális farmját
+-  Los 5 mejores alimentos para evitar los sofocos de la menopausia, preservar la masa muscular y frenar el aumento de peso
+-  GM will resume testing its Cruise self-driving cars on public roads, report says
+-  Finding Faith: Christian vs. disciple
+-  Still a place for printing methods of the past
+-  ਸਾਲ ਭਰ ਕਣਕ ਖਾਣ ਵਾਲੇ ਸੁਣੋ ਇਹ ਵੀਡੀਓ
+-  Europe Fertilizer Market Forecast Report 2024-2030, Featuring Yara, K+S, CF Industries, GrupaAzoty, ICL Group, OCI, Sociedad Quimica y Minera de Chile and BASF
+-  Redmagic 9 Pro im Test: Schnell wie S24 Ultra und 40 Prozent günstiger
+-  INNODATA SHAREHOLDER NOTICE: Faruqi & Faruqi Securities Litigation Partner James (Josh) Wilson Encourages Investors Who Suffered Losses Exceeding $50,000 In Innodata To Contact Him Directly To Discuss Their Options
