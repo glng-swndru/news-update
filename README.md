@@ -1,11 +1,11 @@
 # Latest News
--  Заседание Кабинета Министров Туркменистана
--  Vítkovicím stačil na výhru nad Plzní jediný gól, Klimeš má šestou nulu
--  Kearifan Lokal Teatrikal di Taman Safari Bali
--  Sytuacja hydrologiczna i powodziowa pod kontrolą odpowiednich służb. "Cały czas analizujemy sytuację" [ZDJĘCIA]
--  Star Trek: Discovery's Crew Preps for Their Last Dance in New Season 5 Trailer
--  GROMOGLASAN PLJESAK Favorit Dore oduševio publiku, pogledajte kako je izgledao
--  Jokić novi predlog PES-a za Odbor direktora EPCG
--  دبابة ميركافا تستهدف بقذيفة مباشرة مدرسة المعوقين في حي "أبو طويل" في عيتا الشعب وقصف مدفعي استهدف حرج الحدب في البلدة بالإضافة إلى سقوط قذيفة في بلدة رامية
--  Mesesarok gyerekeknek: rendőrfőkapitány volt a vendég +fotók, videó
--  Lady, Just Take the L! POLITICO Journo Who Trashed Christians on MSNBC TRIES Backpedaling BUT No (Watch)
+-  القصيم.. كبار السن يعيشون أجواء البهجة والفرح بيوم التأسيس
+-  이이경, '국민 쓰레기' 박민환 소환
+-  Tíu látnir eftir stórbrunann
+-  Włosi zaatakowali polski klub siatkarski! Brak poszanowania zasad fair play?
+-  なぜプロレスラーの生活はプロボクサーより安定しているのか？ - なぜコンビニでお金をおろさない人はお金持ちになれないのか
+-  Bakan Kacır: Havacılıktaki başarımızı uzayda da elde edeceğiz
+-  Selena Gomez' fühlt sich mit Benny Blanco sicher wie nie!
+-  Lynx passengers face travel chaos after airline announces shutdown
+-  Izvučena Loto sedmica! Dobitak iznosi neverovatnih 35 miliona
+-  كيفن نكودو يواصل التوهج مع ضمك في دوري روشن
