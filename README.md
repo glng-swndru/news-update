@@ -1,11 +1,11 @@
 # Latest News
--  Ivre, un SDF pousse un unijambiste en fauteuil roulant sur une centenaire et la blesse
--  Week Ahead – Rate cut bets to be tested by inflation data
--  Валерий ИВАЩЕНКО: «Футбол – это театр, а театр без зрителей невозможен»
--  Ayuda a damnificados del incendio de Valencia
--  Kolejna wpadka posła KO na wizji. Józefaciuk: Jest mi wstyd, będę grillowany za to cały miesiąc
--  Γενί Σαφάκ: Η Τουρκία προσανατολίζεται στην αγορά των Patriot
--  Sommet extraordinaire de la CEDEAO : Macky Sall a quitté Dakar pour Abuja
--  Левски показа специалните екипи, с които ще отбележи 110-годишнината си (ВИДЕО)
--  МЕДВЕДЕВ НЕ ЖАЛИ ЗА УБИЕНИОТ РУСКИ ПИЛОТ: За куче, кучешка смрт
--  Минобороны РФ заявило о 37 ударах по объектам ВПК Украины, аэродромам, арсеналам
+-  Pesimizam ne napušta njemačke biznismene iako je manji nego prije
+-  Faculty members assail the WSU brass
+-  Thu tiền vượt quy định, một doanh nghiệp bất động sản bị phạt 500 triệu đồng
+-  ¡Es oficial! Lanzan a Jaecoo en México; ¿Cómo es y cuánto cuesta modelo de la china Chirey?
+-  Fenerbahçe’nin rakibi son 3 yılın flaş takımı
+-  7th Pay Commission: Govt. employees may get 24 percent wage hike
+-  Diduga Potong Dana Hibah Pertanian Garut dan Tasikmalaya, Anggota DPR RI Dilaporkan ke KPK
+-  Pisa: Orfini, 'c'è un problema al Viminale, si chiama Piantedosi'
+-  Responsible Statecraft: Единственото и най-добро решение е всички страни да седнат на масата за преговори, преди Украйна да бъде унищожена - Труд
+-  Tiong sacks Tourism Malaysia DG
