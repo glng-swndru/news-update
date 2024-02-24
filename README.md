@@ -1,11 +1,11 @@
 # Latest News
--  피겨 임주헌 · 김채연, 동계체전 남녀 고등부 우승
--  Москва заработала больше миллиарда евро за год на продаже топлива в ЕС
--  Calcio: Pioli, con Atalanta sfida importante per la classifica
--  Tokyo chiude il parco Hello Kitty per minaccia terroristica
--  Bir havayolu şirketi daha iflas etti
--  Altoatesino 73enne morto, ferite causata da una volpe
--  Tuấn Hải hụt Quả bóng vàng, ĐT Việt Nam "hưởng lợi"?
--  Everton takeover: 777 unhappy with slack PL as 'standard' delay close to doubles - report
--  Hurdacının bulduğu kemikler, ortadan kaybolan kadın katiline ait çıktı
--  Lagani 16-inčni MSI Prestige 16 AI Evo BM1 ima premium izradu, OLED ekran i Core Ultra procesore
+-  Your weekly horoscope with Russell Grant
+-  Geography, convenience, and political stability: Why music stars like Taylor Swift come to Singapore
+-  LIVEBLOG OMLOOP. Outsider Jasper Philipsen tempert de verwachtingen niet: “Wil meespelen voor de overwinning”
+-  Ex-Libris-Stempel: Dieses Gadget werden Bücherfans lieben
+-  Nvidia esmaga tudo e todos com resultados impressionantes e um ano recorde
+-  Tone från Umeå sminkar melloartisterna: ”Som en dröm”
+-  A summer of transformational learning
+-  Le Vietnam agit contre le blanchiment et le financement du terrorisme
+-  How Real Madrid could line-up with Mbappe and Bellingham in star-studded XI
+-  DC report on HIV and STIs shows lingering impact of the pandemic
