@@ -1,11 +1,11 @@
 # Latest News
--  One million people living with serious condition despite having no symptoms
--  Aydın merkezli 4 ilde dolandırıcılık operasyonu: 25 tutuklama
--  سوق العمل في لبنان "تبدّل".. اختاروا هذه المهن
--  Messi a battu Mbappé, voilà pourquoi !
--  Gemeinderat entscheidet über Hotel-Großprojekt in der Axamer Lizum
--  Casual Social Network game Play Together adds new NPC "Cutiepie"
--  Agriculture. Dans les coulisses du Salon avec son directeur, Arnaud Lemoine
--  Salon de l'Agriculture : Chirac, Sarkozy, Hollande... Les phrases cultes des politiques
--  Écarté deux matches, Florent Mollet retrouve le groupe du FC Nantes
--  Video: Kyjev ukázal americké tanky Abrams v bojové akci
+-  30 двойки в София ще сключат брак на 24.02.2024 г. - Труд
+-  Annu Vainio, 54, sisustaa pikkurahalla – "Hyvää saa halvemmallakin"
+-  Bir qrup QHT ABŞ-nin Azərbaycandakı diplomatik missiyalarına müraciət ünvanladı
+-  快訊／貨車遭追尾衝撞民宅！整排汽機車毀損 47歲駕駛傷重不治
+-  Nastri argento: Monica Bellucci protagonista dell'anno nei documentari
+-  Станимир Стоилов и Гьозтепе търсят нов успех в Турция днес
+-  Semih Yalçın'dan CHP'ye 'DEM Parti' tepkisi: "Hıyanetten daha beter bir satılmışlık halidir"
+-  Unfall am Bahnhof Schwerte: Jugendlicher aus dem Kreis Unna gestorben
+-  15 Temmuz gecesi Tayyip Erdoğan için ölüme koşan AK Partili isim, neden Yeniden Refah adayı oldu?
+-  Politisi Senior PKB Sebut Hak Angket Bisa Digulirkan, Tapi Bakal Sia-sia
