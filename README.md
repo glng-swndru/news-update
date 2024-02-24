@@ -1,11 +1,11 @@
 # Latest News
--  LRTか､それともバスか？中国製｢ART｣とは何者か レールなし､路面の白線マーカーに沿い走行 | 海外 | 東洋経済オンライン
--  Srpkinja Maša o teškim počecima svoje porodice na Novom Zelandu: "Pokrivali smo se kožnim jaknama i jeli sendviče mesec dana"
--  Elfin Knight for the Guindy Grand Prix
--  Hätten Sie das gewusst? Diese Angebote sind bei Ebay Kleinanzeigen streng verboten
--  B.C.’s wildfire travel ban was ‘ineffective, unnecessary’: Penticton Chamber
--  Оборотът на БФБ достигна 29 млн. лв., от които 22 млн. лв. с акции на „Градус“
--  Interview. Élèves ukrainiens : « Il y a eu un élan de solidarité », affirme Nicole Belloubet
--  EU otvorila Kancelariju za vještačku inteligenciju
--  Intuitive Machines stock skyrockets after first-ever commercial moon landing
--  Nach Leichenfund in Wien: Opfer wurde erstochen
+-  IZBIO POŽAR KOD LOZNICE Gori jedan ugostiteljski objekat
+-  Cannabis stocks rise as Germany takes ‘first big step’ toward broader legalization in Europe
+-  Смартфоны в школах Италии попали под запрет
+-  '탈당' 이수진 "믿었던 이재명…백현동 판결 딱보니 뻔해"
+-  Lakatoš trénuje mimo tým. Ze sky boxu sledoval, jak Vítkovice dál vítězí
+-  Processo in corso, l'avvocato scopre la sentenza già scritta
+-  Justin Timberlake's savage reaction to Britney Spears' heartrending autobiography
+-  ‘Chasing Flavor’ Chef, Carla Hall, Shares Her Favorite Chef To Cook With & Whether Sugar Belongs In Grits
+-  «نزوى» تختتم جلسات ذكريات البدايات مع كتّابها الأوائل
+-  Görün Taysonun atasını kim döyüşə çağırdı
