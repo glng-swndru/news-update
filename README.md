@@ -1,11 +1,11 @@
 # Latest News
--  Arıboğan: Seçimi Kılıçdaroğlu kazansaydı, ne yaptığını hiç bilmeyen bir grup gelecekti
--  Flucht vor dem Stalker – ARD-„Zielfahnder“ ermitteln wieder
--  अन्न सुरक्षा आणि शेतकरी कल्याण
--  Thẩm định tranh quý bị chuyên gia phán là đồ giả, người phụ nữ: "Tôi là con gái của họa sĩ vẽ tranh này"
--  '헤어지자' 통보한 연인 스토킹하고 사생활 폭로 협박한 40대 징역형
--  Irmão de fugitivo de presídio federal é preso no Acre; buscas continuam no RN
--  NEXT Weather: 6 p.m. forecast from Feb. 23, 2024
--  Irmão de fugitivo de presídio federal é preso no Acre; buscas continuam no RN
--  Cần Giờ cần cách tiếp cận đặc thù
--  Flucht vor dem Stalker – ARD-„Zielfahnder“ ermitteln wieder
+-  GOP Senate candidates seek to navigate IVF stance after Alabama ruling
+-  BJP will win more seats in Congress-ruled states: Kishan Reddy
+-  민주 "의사파업 비판하더니…'의료사고 면죄부' 검사 중용"
+-  Generative AI making customer support conversations more human, leading to wider adoption
+-  Chưa được cởi trói pháp lý trực diện, nhiều Condotel tiếp tục bán cắt lỗ
+-  BJP will win more seats in Congress-ruled states: Kishan Reddy
+-  Ignacio Torres: "Que me manden preso, yo voy a defender los intereses de los chubutenses"
+-  "Bão" trừng phạt của phương Tây khó bẻ gãy ngành công nghiệp quốc phòng Nga
+-  What’s all the fuss about Taylor?
+-  Everything up for grabs as customers strip away what's left of Fuddruckers
