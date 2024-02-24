@@ -1,11 +1,11 @@
 # Latest News
--  Teden v zvezdah: sledimo zdravi pameti
--  Apa Benar Bawang Merah Dapat Menurunkan Demam pada Anak?
--  Former USA gun lobby chief found guilty of corruption by jury
--  Černobilski volkovi nimajo več raka
--  S ukrajinským snajprem na frontě: Ztratil jsem už sto kamarádů
--  Två år av krig – två tysta minuter
--  Lennerd Daneels eist in gesprekje met Walid Ould-Chikh beslissende vrije trap op: ‘Je kunt me vertrouwen; komt goed’
--  Tourist scolds Crocodiles of the World over coffee spill
--  Kesergés
--  Patrick und Stefan Bach: Spielertrainer des TSV Benzingen und Straßberg haben viel zu erzählen
+-  England í dag - Arsenal mætir Newcastle í kvöld
+-  Ísland í dag - Stórleikur í Fossvogi og mikilvægur slagur gegn Finnum
+-  Barışmayı reddeden eski kız arkadaşının evini ateşe verdi!
+-  Evrópa í dag - Stórliðin þurfa sigra
+-  Головні табу і копійчані засоби: як відмити ванну вдома правильно
+-  AK Parti seçim çadırında İmamoğlu'na olay teklif! Ne kadar istiyorsunuz beni ya
+-  Recept nedelje: Vanilice
+-  Zwei Jahre Ukraine-Krieg: Das Dilemma
+-  Draisaitl prekonal Messiera, Edmonton však napriek dominancii prehral
+-  Roger Waters s’en prend violemment au chanteur de U2, Bono
