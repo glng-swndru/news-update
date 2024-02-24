@@ -1,11 +1,11 @@
 # Latest News
--  England í dag - Arsenal mætir Newcastle í kvöld
--  Ísland í dag - Stórleikur í Fossvogi og mikilvægur slagur gegn Finnum
--  Barışmayı reddeden eski kız arkadaşının evini ateşe verdi!
--  Evrópa í dag - Stórliðin þurfa sigra
--  Головні табу і копійчані засоби: як відмити ванну вдома правильно
--  AK Parti seçim çadırında İmamoğlu'na olay teklif! Ne kadar istiyorsunuz beni ya
--  Recept nedelje: Vanilice
--  Zwei Jahre Ukraine-Krieg: Das Dilemma
--  Draisaitl prekonal Messiera, Edmonton však napriek dominancii prehral
--  Roger Waters s’en prend violemment au chanteur de U2, Bono
+-  Dışişleri Bakanlığı'ndan ikinci yılında Ukrayna Savaşına ilişkin açıklama
+-  PWRD Invites Tender for Maint/Construction Of Road In Assam- 2024_PWD_36452_9
+-  Saturday's Ligue 1 predictions including Strasbourg vs. Brest
+-  La borrasca Louis pierde fuerza en su segunda jornada y se focaliza en la costa ferrolana
+-  Muhammed – en våldets eller förlåtelsens profet?
+-  Mersin'den gelen haber çok felaket... Ağaçtan tek tek toplandı. Kilosu 150 dolar 4 bin 622,80 Türk Lirası
+-  Dobré ráno, Piešťany!
+-  국민의힘, 경선 후보자들에게 투표 결과 집계 과정 공개한다
+-  Sprawdź się w trudnym quizie z wiedzy ogólnej. 15/15 jest poza zasięgiem
+-  Meurtres à Bayeux : que vaut le téléfilm inédit avec Sara Mortensen diffusé ce soir ? Notre avis
