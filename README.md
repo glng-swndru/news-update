@@ -1,11 +1,11 @@
 # Latest News
--  EUA ampliam sanções contra a Rússia por guerra contra Ucrânia e por morte de dissidente
--  Ponte Preta tem como desafio quebrar tabu diante do Corinthians na Neo Química Arena
--  Arriva a Castelbelforte la Mascherata di Primavera con 800 figuranti
--  Újra közösen táncol Radics Gigi és Baranya Dávid – fotó
--  Kamyonet kapağı ile duvar arasında sıkışan çocuk işçi can verdi
--  UFC México en vivo: horario, canales de TV, resultados de cartelera y cómo ver streaming Moreno vs. Royval
--  EUA ampliam sanções contra a Rússia por guerra contra Ucrânia e por morte de dissidente
--  Biden tells governors he's eyeing executive action on immigration, seems 'frustrated' with lawyers - The Associated Press
--  Российские преступники совершили буквально все типы зверств, перечисленные в Римском уставе - Кулеба
--  El nunca explicado cese de Ábalos: el PP lo vincula al 'caso Koldo' e impacta directamente en Sánchez
+-  [주말의 OTT] 나체주의? 폴리아모리?
+-  Baltarusijos opozicijos atsakas Minskui – rengia savuosius rinkimus
+-  Fostul cancelar austriac Sebastian Kurz a fost găsit vinovat de sperjur / Kurz a adus în spijinul său doi martori ruși
+-  Monde: Wissenschaftler entdecken drei winzige neue Monde im All
+-  Jacques Houdek opet komentira, ovaj put u nešto pozitivnijem duhu
+-  Kamloops Mounties apprehend man with weapons drawn along West Victoria Street
+-  FATF'den Türkiye açıklaması: Kriterler büyük ölçüde karşılandı
+-  Nadějný start, ale Česi na úvod boje o ME padli. S favoritem drželi krok
+-  පෙම්වතිය සමග හෝටලයට යන්න රොබරියක් දිලා
+-  Srdnatý odpor nestačil. Česi na úvod boje o ME padli, s favoritem drželi krok
