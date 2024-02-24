@@ -1,11 +1,11 @@
 # Latest News
--  Ердоган: България е съюзник и приятел на Турция (Видео)
--  Bomba xəbərdarlığı: minlərlə insan təxliyə edildi
--  Atletico Madrid Coach Says He “Won’t Force” France FIFA World Cup Winner’s Return Ahead Of Inter Milan Clash
--  Chronologie der Mannschaftsabmeldungen: Schon sieben Rückzüge im Fußballkreis Recklinghausen
--  Acetylene Carbon Black Market share, Market trends, and forecasts from 2024 to 2031.
--  Cumhurbaşkanı Erdoğan'a keman çalan Ecrin uduna kavuştu
--  Schlein, battiamoci per la legalizzazione della cannabis
--  Jandarma genel asayiş uygulamasında 47 şahıs yakalandı
--  Ekspresni skutni zavitek
--  Марио Драги уверен, что ЕС нужны срочные инвестиции в условиях меняющегося мира
+-  Prisão de Mossoró passa por ao menos 3 obras
+-  У Польщі знову висипали українську агропродукцію
+-  PDIP Beri Sinyal Siap Jadi Oposisi Prabowo-Gibran, Bagaimana dengan PKS?
+-  SV Waidhofen - Waidhofen gewinnt Derby gegen Horn
+-  Кои зодии са като коне с капаци - виждат света само в черно и бяло!
+-  Έκτακτο δελτίο από την ΕΜΥ: Έρχονται ισχυρές καταιγίδες και χαλάζι - Πού θα «χτυπήσουν» τα φαινόμενα
+-  Szabó Zsófi már évek óta érezte, hogy el kell jönnie az RTL-től, mert nem kapott elég munkát
+-  Audi schenkt der Stadt Ingolstadt einen historischen Bernsteinschatz
+-  Lions promove 4ª edição do mega costelão para equipar Hospital da Visão em Sinop
+-  Optik Kircher in Aalen: Ein in Serie ausgezeichnete Augenversteher
