@@ -1,11 +1,11 @@
 # Latest News
--  GOP Senate candidates seek to navigate IVF stance after Alabama ruling
--  BJP will win more seats in Congress-ruled states: Kishan Reddy
--  민주 "의사파업 비판하더니…'의료사고 면죄부' 검사 중용"
--  Generative AI making customer support conversations more human, leading to wider adoption
--  Chưa được cởi trói pháp lý trực diện, nhiều Condotel tiếp tục bán cắt lỗ
--  BJP will win more seats in Congress-ruled states: Kishan Reddy
--  Ignacio Torres: "Que me manden preso, yo voy a defender los intereses de los chubutenses"
--  "Bão" trừng phạt của phương Tây khó bẻ gãy ngành công nghiệp quốc phòng Nga
--  What’s all the fuss about Taylor?
--  Everything up for grabs as customers strip away what's left of Fuddruckers
+-  首相、能登被災地を視察
+-  熱海 復活も「夜は閑散」の現実
+-  정윤성-댄 애디드, 남자프로테니스 푸네 챌린저 복식 결승 진출
+-  首相が被災地入り 意見交換へ
+-  Producción de empresas constructoras liga tres meses al alza
+-  Đẩy vốn rẻ ra nền kinh tế (*): Giảm áp lực nợ xấu
+-  Điều ngành y đang cần
+-  “400명은 만난 듯…한 번은 참았다”…황정음이 남긴 불륜 암시글
+-  Int’l organisations upbeat about Vietnam’s 2024 GDP growth
+-  Vietnam - Land of famous landmarks and scenic beauty
