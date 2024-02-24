@@ -1,11 +1,11 @@
 # Latest News
--  Pesimizam ne napušta njemačke biznismene iako je manji nego prije
--  Faculty members assail the WSU brass
--  Thu tiền vượt quy định, một doanh nghiệp bất động sản bị phạt 500 triệu đồng
--  ¡Es oficial! Lanzan a Jaecoo en México; ¿Cómo es y cuánto cuesta modelo de la china Chirey?
--  Fenerbahçe’nin rakibi son 3 yılın flaş takımı
--  7th Pay Commission: Govt. employees may get 24 percent wage hike
--  Diduga Potong Dana Hibah Pertanian Garut dan Tasikmalaya, Anggota DPR RI Dilaporkan ke KPK
--  Pisa: Orfini, 'c'è un problema al Viminale, si chiama Piantedosi'
--  Responsible Statecraft: Единственото и най-добро решение е всички страни да седнат на масата за преговори, преди Украйна да бъде унищожена - Труд
--  Tiong sacks Tourism Malaysia DG
+-  Porn browsing ID talk prompts Trudeau to take jab at Poilievre
+-  Low-cost Lynx Air grounded permanently, flights to cease effective Monday
+-  Deux courses, peu de dénivelé, une unique édition... Tout savoir sur les Cordeliers de Courcourt dimanche à Seychalles
+-  Lack of competition blamed as business investment per worker drops
+-  Vietnam's Largest Diameter of Onshore Wind Turbine to Date Will Be Installed at Hai Anh Wind Fart Project
+-  You Can Become a Shiba Inu Millionaire, But This Needs To Happen
+-  Harry Potter: la serie TV di HBO entrerà presto in produzione, debutterà su Max nel 2026
+-  Hommage Willi Resetarits - Kottingbrunn: Ein Besuch im Espresso Rosi
+-  AI May Not Take Your Job, But Someone Using AI Likely Will — Here's Why.
+-  Σοφί Μαρσό: Η Γαλλίδα σταρ πρωταγωνιστεί σε ένα αστυνομικό - ερωτικό θρίλερ - Βίντεο
