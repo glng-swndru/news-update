@@ -1,11 +1,11 @@
 # Latest News
--  Your weekly horoscope with Russell Grant
--  Geography, convenience, and political stability: Why music stars like Taylor Swift come to Singapore
--  LIVEBLOG OMLOOP. Outsider Jasper Philipsen tempert de verwachtingen niet: “Wil meespelen voor de overwinning”
--  Ex-Libris-Stempel: Dieses Gadget werden Bücherfans lieben
--  Nvidia esmaga tudo e todos com resultados impressionantes e um ano recorde
--  Tone från Umeå sminkar melloartisterna: ”Som en dröm”
--  A summer of transformational learning
--  Le Vietnam agit contre le blanchiment et le financement du terrorisme
--  How Real Madrid could line-up with Mbappe and Bellingham in star-studded XI
--  DC report on HIV and STIs shows lingering impact of the pandemic
+-  越南出台行动计划 履行反洗钱反恐融资承诺
+-  Novi veliki ruski napadi. Upozorenje iz Kijeva: Putin je odredio rok, neće riskirati
+-  'If Women Were Not Safe Under...': Anurag Thakur Slams Mamata's TMC For Atrocities In Sandeshkhali
+-  أمطار رعدية ورياح نشطة.. تفاصيل طقس المملكة اليوم
+-  Yeşilçam ulduzunun qızı gözəlliyi ilə məftun etdi
+-  Agricoltura, Lollobrigida: "Italia protagonista, ma serve creare reddito"
+-  Entretien avec Jil Caplan qui fait escale en Auvergne le temps d'un concert à Blesle
+-  L’Italia under 20 di rugby batte per la prima volta e in trasferta la Francia campione del mondo
+-  L’Italia under 20 di rugby batte per la prima volta e in trasferta la Francia campione del mondo
+-  Prime Minister sends congratulations to Kuwaiti Counterpart
