@@ -1,11 +1,11 @@
 # Latest News
--  SVE JE JASNO Evroliga donela odluku, poznato šta će igrati Dubai, u priči i Pešić
--  NOVA PROVOKACIJA ALBANACA Provokator pokazao dvoglavog orla Srbima koji na KiM čekaju da podignu novac!
--  Fifteen places under Level 1 heatwave alert, according to MetMalaysia
--  Най-интересното от социалните мрежи преди Ботев Враца - Пирин
--  'EBS 강좌 중단' 與 김효은 "송구…대체 강의 제작"
--  Кой ще бъде №1 на Ботев Враца - Пирин?
--  Стотици санкционирани: САЩ наказаха и помагащите на Русия да захранва военната машина
--  Ekonomist Barış Soydan kredi kartı borcu olanları uyardı: Seçim sonrası...
--  Block’s stock heads for best day in 15 months as it’s now attractive in a new way
--  ITDC Recruitment 2024 - Manager, Chef Vacancy, Job Opening
+-  Ivre, un SDF pousse un unijambiste en fauteuil roulant sur une centenaire et la blesse
+-  Week Ahead – Rate cut bets to be tested by inflation data
+-  Валерий ИВАЩЕНКО: «Футбол – это театр, а театр без зрителей невозможен»
+-  Ayuda a damnificados del incendio de Valencia
+-  Kolejna wpadka posła KO na wizji. Józefaciuk: Jest mi wstyd, będę grillowany za to cały miesiąc
+-  Γενί Σαφάκ: Η Τουρκία προσανατολίζεται στην αγορά των Patriot
+-  Sommet extraordinaire de la CEDEAO : Macky Sall a quitté Dakar pour Abuja
+-  Левски показа специалните екипи, с които ще отбележи 110-годишнината си (ВИДЕО)
+-  МЕДВЕДЕВ НЕ ЖАЛИ ЗА УБИЕНИОТ РУСКИ ПИЛОТ: За куче, кучешка смрт
+-  Минобороны РФ заявило о 37 ударах по объектам ВПК Украины, аэродромам, арсеналам
