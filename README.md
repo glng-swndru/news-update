@@ -1,11 +1,11 @@
 # Latest News
--  Infant missing from hospital found at Kandaghari
--  Infant missing from hospital found at Kandaghari
--  JEE Main result 2024 for BArch, BPlanning when? Here’s what NTA official says
--  U.N. chief repeats call for Russia to stop invasion of Ukraine
--  मनीष तिवारी ने शुभकरण की मौत पर गहरा दुख जताया और उन्हें शहीद का दर्जा देने की मांग की
--  Ručně háčkovaní medvídci se vozí v sanitkách. Dokážou potěšit děti i seniory
--  Warriors extend Steve Kerr with market-setting deal: report
--  Warriors extend Steve Kerr with market-setting deal: report
--  다양한 서비스로 융합·진화하는 '음성AI'… 2030년 약 54조원 시장 전망
--  সাবিনা ইয়াসমিন বললেন ‘আমি সুস্থ আছি’
+-  The good and bad of Toni Kroos’ return to the German national team
+-  Khối ngoại bán ròng khớp lệnh hơn 2.200 tỷ trong tuần 19-23/2, "xả" mạnh nhất tại cổ phiếu Thế giới Di động
+-  سبب شعور جيسوس بالقلق رغم موسم الهلال المثالي
+-  Чехия будет помогать Украине изготавливать винтовки по стандартам НАТО
+-  à·ƒà¶³à¶§ à¶œà·œà¶©à¶¶à·‘ à¶ºà·�à¶±à¶ºà¶§ à¶…à¶šà¶»à¶­à·�à¶¶à·Šà¶¶à¶šà·Š
+-  ATA ta uza accion importante pa sigui traha p’un desaroyo turistico sostenibel
+-  “Harri Potter” serialının buraxılış tarixi açıqlandı
+-  සඳට ගොඩබෑ යානයට අකරතැබ්බක්
+-  كيف تُعدل نظامك الغذائي مع تقدمك في العمر؟.. خبيرة تغذية تُجيب - Masrawy - مصراوي
+-  이준석은 한국 보수의 미래일까?
