@@ -1,11 +1,11 @@
 # Latest News
--  IZBIO POŽAR KOD LOZNICE Gori jedan ugostiteljski objekat
--  Cannabis stocks rise as Germany takes ‘first big step’ toward broader legalization in Europe
--  Смартфоны в школах Италии попали под запрет
--  '탈당' 이수진 "믿었던 이재명…백현동 판결 딱보니 뻔해"
--  Lakatoš trénuje mimo tým. Ze sky boxu sledoval, jak Vítkovice dál vítězí
--  Processo in corso, l'avvocato scopre la sentenza già scritta
--  Justin Timberlake's savage reaction to Britney Spears' heartrending autobiography
--  ‘Chasing Flavor’ Chef, Carla Hall, Shares Her Favorite Chef To Cook With & Whether Sugar Belongs In Grits
--  «نزوى» تختتم جلسات ذكريات البدايات مع كتّابها الأوائل
--  Görün Taysonun atasını kim döyüşə çağırdı
+-  Lauksaimniecības produktu importa strīds: Polija skaidro, kāpēc neieradās uz tikšanos ar Ukrainas pārstāvjiem
+-  Gasto de Soriana fue 14.3% mayor que ingresos por tiendas y costos energéticos
+-  Google antoi 300 prosentin palkankorotuksen – osaajaa ei haluttu menettää kilpailijalle
+-  Linder purchases Southern Tractor & Outdoors
+-  Internally Divided ITAK is in the Eye of a Legal Storm
+-  Debbie Harry dando un concierto en Las Vegas o una primera ministra en apuros
+-  Szánthó Miklós: A harmadik világháború küszöbén állunk + videó
+-  안정환, '물따귀 때린' 김남일에 "이미 끝났다고 보면 돼"
+-  Guterres, Ucraina ferita aperta nel cuore dell'Europa
+-  Nagyra törő célokkal érkeztek az új Bears-koordinátorok
