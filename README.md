@@ -1,11 +1,11 @@
 # Latest News
--  Генсек Белорусского Красного Креста попал под санкции ЕС
--  Gamze ile Ömer arasındaki bağlar zayıflıyor! Ömer’in 45. bölümünde neler olacak? İşte yeni bölüm özeti ve fotoğrafları
--  Husband ‘made over a million’ by eavesdropping on BP wife
--  VREDE 2.000 MILIJARDI DOLARA: Rekordna vrednost proizvođača čipova Nvidia
--  Эстония лишила лицензии своих хоккеистов, участвовавших в Играх будущего в России
--  Video: VAR, 5 bàn thắng và 3 điểm xứng đáng cho Thanh Hoá
--  தூத்துக்குடியில் விபத்தில் காயமுற்றவா் உயிரிழப்பு
--  Небензя озвучил условие сохранения Украины
--  ليفركوزن يفوز على ماينز ويعزز صدارته للدوري الألماني
--  Per l’Alto Canavese è un’occasione d’oro La Volpianese vuole vincere e risalire
+-  Sesar nakon poraza od Francuske: Imali smo svoje trenutke, ali nismo ih iskoristili
+-  Il Bologna scappa, si fa difficile per il Napoli. Motta: "Alchimia speciale"
+-  Magician says political consultant hired him to create AI robocall ahead of New Hampshire primary
+-  CAHN 'giải cứu' danh tiếng của HLV Kiatisuk
+-  Laser do očí? Lehce mě oslepil, čekal jsem bouřlivější atmosféru, líčil Balvín
+-  Zieke koning Charles overladen met brieven en kaarten
+-  Judge says NIL compensation rules likely violate antitrust law
+-  Honolulu police investigate fatal stabbing of man, 63, in Kakaako apartment
+-  KOLEKTIVNA OBUKA U JEDINICI ABHO VOJSKE SRBIJE: Realizacija zadataka u protivnuklearnom, hemijskom i biološkom obezbeđenju (FOTO)
+-  Laser do očí? Lehce mě oslepil, čekal jsem bouřlivější atmosféru, líčil Balvín
