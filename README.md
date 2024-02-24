@@ -1,11 +1,11 @@
 # Latest News
--  «Die Menschen haben heute die Erwartung, dass man sie vor der Globalisierung schützt. Es ist eine Art Vollkaskomentalität», sagt der Chefökonom der WTO
--  Две години след нахлуването на Русия в Украйна – каква военна помощ оказа България на нападнатата страна
--  Raising minimum unit price of alcohol 'unfair' as 'poorest Scots hit hardest'
--  Ainoa Riesco: “La obra de arte única está sobrevalorada. ¡Viva la obra gráfica!”
--  Arjen rasituksista palautuva nukkuu paremmin – Näin tunnistat oman unen tarpeesi
--  Residentes de CAR del Inabif reciben ponencia sobre carreras de modas y diseño
--  Ane Gabarain, actriz: “Me aterraba bañarme desnuda en el río a mis 60 años”
--  CAMA takes on BWB over prepaid meters
--  Deutsche KI-Hoffnung Jonas Andrulis: «Ich finde es problematisch, dass Tech-Firmen entscheiden, was richtiges Gedankengut ist»
--  Live: Warriors v Dolphins - NRL pre-season
+-  Yvonne Fovargue MP: ​We must reduce child poverty so everyone has best start in life
+-  Komutana küfreden AKP’li aday ihraç ediliyor
+-  Une cagnotte pour Angélique, originaire d’Ottignies, qui a perdu la vie dans un accident de bateau lors de ses vacances en Guadeloupe : « Ton sourire et ta gaieté resteront à jamais dans nos cœurs »
+-  Hidden gem Edinburgh pub many locals don't even know exists share video showing exactly how to find them
+-  Schreibwarenladen in Hertener City schließt: Filialist am Markt kritisiert Energieversorger
+-  Support for Ukraine must be unwavering - Scotsman comment
+-  Editorial: Hay que frenar la impunidad
+-  Sascha Nimphius (38) bettelt für seinen Lebensunterhalt: „Möchte gerne arbeiten“
+-  Wigan's week in court
+-  Erster Entwurf steht : Zwei Millionen Euro für Umgestaltung Waltroper Plätze
