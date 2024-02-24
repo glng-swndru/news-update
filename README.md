@@ -1,11 +1,11 @@
 # Latest News
--  Bà nội trợ Hàn Quốc chia sẻ 8 thói quen dọn dẹp nhà cửa nên hình thành từ sớm để cuộc sống thoải mái hơn
--  Çin gizlilik dereceli bir uyduyu Yer Sabit Yörünge'ye fırlattı
--  Professori paljastaa keinon lamauttaa Venäjä – Ennustaa sekasortoa
--  Säckens förvåning: ”Det är nästan obegripligt”
--  台積電熊本廠今開幕！ 《晶片戰爭》作者：將鞏固台日關係
--  A Warner újabb szöget vert a Coyote vs. Acme koporsójába: Egy új pénzügyi jelentés alapján még valószínűbb, mi lesz a már elkészült film sanyarú sorsa
--  Reddit preparado para ser listado em bolsa
--  Sanagê abre exposição em Porto Alegre
--  Bereits vor Show-Aus kämpfte Wendy Williams mit Problemen!
--  141 يوما على حرب غزة | المقاومة تؤلم الاحتلال والأخير ينكل بالمدنيين
+-  Ердоган: България е съюзник и приятел на Турция (Видео)
+-  Bomba xəbərdarlığı: minlərlə insan təxliyə edildi
+-  Atletico Madrid Coach Says He “Won’t Force” France FIFA World Cup Winner’s Return Ahead Of Inter Milan Clash
+-  Chronologie der Mannschaftsabmeldungen: Schon sieben Rückzüge im Fußballkreis Recklinghausen
+-  Acetylene Carbon Black Market share, Market trends, and forecasts from 2024 to 2031.
+-  Cumhurbaşkanı Erdoğan'a keman çalan Ecrin uduna kavuştu
+-  Schlein, battiamoci per la legalizzazione della cannabis
+-  Jandarma genel asayiş uygulamasında 47 şahıs yakalandı
+-  Ekspresni skutni zavitek
+-  Марио Драги уверен, что ЕС нужны срочные инвестиции в условиях меняющегося мира
