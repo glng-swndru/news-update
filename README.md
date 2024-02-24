@@ -1,11 +1,11 @@
 # Latest News
--  Συναγερμός στο Πλίμουθ για βόμβα του Β’ Π.Π – Εκκενώνονται περιοχές
--  Az Emirates felvásárolta a világ legnagyobb vertikális farmját
--  Los 5 mejores alimentos para evitar los sofocos de la menopausia, preservar la masa muscular y frenar el aumento de peso
--  GM will resume testing its Cruise self-driving cars on public roads, report says
--  Finding Faith: Christian vs. disciple
--  Still a place for printing methods of the past
--  ਸਾਲ ਭਰ ਕਣਕ ਖਾਣ ਵਾਲੇ ਸੁਣੋ ਇਹ ਵੀਡੀਓ
--  Europe Fertilizer Market Forecast Report 2024-2030, Featuring Yara, K+S, CF Industries, GrupaAzoty, ICL Group, OCI, Sociedad Quimica y Minera de Chile and BASF
--  Redmagic 9 Pro im Test: Schnell wie S24 Ultra und 40 Prozent günstiger
--  INNODATA SHAREHOLDER NOTICE: Faruqi & Faruqi Securities Litigation Partner James (Josh) Wilson Encourages Investors Who Suffered Losses Exceeding $50,000 In Innodata To Contact Him Directly To Discuss Their Options
+-  Náramek Samsung Galaxy Fit3 se chlubí hliníkovým tělem a velkým displejem. Rozpozná sportovní aktivity, ale i pády
+-  Alltricks entre dans ses bâtiments XXL de 24.000 m², sur la zone de la Bruyère, à Châteaudun
+-  Analysis: High Yields Drive Demand For Investment-Grade Bonds, Rate Cuts Likely to Boost Market
+-  Sukob na ljevici: SDP i Možemo vrbuju popularnu zastupnicu za izbore
+-  Berlinale-Film „Les gens d’à côté“: Meister der leiseren Töne
+-  Biden Rusya'ya 500'den fazla yeni yaptırım açıkladı
+-  Navalny, ultimatum di tre ore alla madre: "Dia l'ok ai funerali segreti o verrà sepolto nel carcere"
+-  Rod Stewart reveals rule family no longer break now wife Penny Lancaster is police constable
+-  BAD NEWS for Willis: Trump's Attorneys Have Nathan Wade's Cellphone Data, Techno_Fog's Thread Has DEETS
+-  Визначився наступний суперник Джервонти
