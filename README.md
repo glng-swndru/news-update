@@ -1,11 +1,11 @@
 # Latest News
--  Cittadella, mister Gorini: «Il Catanzaro può essere la scossa. Serve coraggio per uscire dalle difficoltà»
--  Petróleo de Texas abre en 77.41 dólares el barril
--  尹, 과기부 차관급 3명 전원 교체… ‘R&D예산 삭감 논란’ 등 영향인 듯
--  Napadali su Milanovića zbog lexa Perković, a sada Plenković čini još goru stvar s EPPO-om
--  Kakve veze imaju Hrvatska i formula? Na rubu Zagreba iz godine u godinu raste nevjerojatna priča
--  Stuttgarter Thienemann Verlag: Verlag streicht N-Wort aus „Jim Knopf“
--  Fratoianni propone le scorte democratiche alle manifestazioni
--  Lula falou em mais proximidade com a Câmara, diz líder do PSB após reunião
--  Розвідка Британії розповіла, як Кремль намагається придушити інакодумство
--  Україна відкриє новий пункт пропуску на кордоні з Угорщиною, - Шмигаль
+-  SVE JE JASNO Evroliga donela odluku, poznato šta će igrati Dubai, u priči i Pešić
+-  NOVA PROVOKACIJA ALBANACA Provokator pokazao dvoglavog orla Srbima koji na KiM čekaju da podignu novac!
+-  Fifteen places under Level 1 heatwave alert, according to MetMalaysia
+-  Най-интересното от социалните мрежи преди Ботев Враца - Пирин
+-  'EBS 강좌 중단' 與 김효은 "송구…대체 강의 제작"
+-  Кой ще бъде №1 на Ботев Враца - Пирин?
+-  Стотици санкционирани: САЩ наказаха и помагащите на Русия да захранва военната машина
+-  Ekonomist Barış Soydan kredi kartı borcu olanları uyardı: Seçim sonrası...
+-  Block’s stock heads for best day in 15 months as it’s now attractive in a new way
+-  ITDC Recruitment 2024 - Manager, Chef Vacancy, Job Opening
