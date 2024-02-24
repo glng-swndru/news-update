@@ -1,11 +1,11 @@
 # Latest News
--  La caricature d'Ygreck en vidéo: délais dangereux dans les services ambulanciers
--  Roll down car windows when you nap
--  Expert tips to ensure your new puppy doesn't destroy the joint
--  Lämnar Umeåbyrå efter 20 år – blir ny ansvarig på Norrmejerier
--  Schweizer Bauteile in nordkoreanischen Raketen: Bund leitet Untersuchung ein – schweigt aber zu den Details
--  Vidović: HDZ želi protjerati sve koji bi proganjali korupciju koji nisu pod njihovom kontrolom
--  Expert tips to ensure your new puppy doesn't destroy the joint
--  Newsletter: Easy Bake emergency
--  Ariagny Daboín "Vidas Brillantes ha sido la oportunidad de seguir creciendo”
--  Spa-Gefühl „wie in den großen Fußballclubs“: Konzept für Maschinenhaus in Oer-Erkenschwick vorgestellt
+-  Fransa Ermenistan'a hava savunma sistemleri verecek
+-  Gabriel Albuquerque foi o melhor na qualificação da Taça do Mundo em Baku
+-  ФОТОФАКТ: Миссия наблюдателей ШОС возложила цветы к стеле "Минск - город-герой"
+-  Sind wir im Krieg nur Zuschauer? / Kommentar von Raimund Neuß zum zweiten Jahrestag des russischen Überfalls auf die Ukraine
+-  Кадыров сообщил о рабочей встрече с Путиным в Кремле
+-  La marca que reina en el pádel femenino
+-  «Каб з намі размаўлялі, важна ствараць пагрозу». Добраахвотнік пра «мясныя штурмы», канфлікты паміж ваярамі і «гадзіну X» для Беларусі
+-  İmamoğlu: Binali Yıldırım'dan daha memnundum, şimdiki rakibim iftiralar uydurmaya başladı
+-  Mỹ nhân Cần Thơ "chạy deadline" cưới thiếu gia, tung loạt ảnh mặc váy cưới khiến dân tình sốc visual
+-  Συμβολική επίσκεψη της Ούρσουλα φον ντερ Λάιεν στο Κιέβο
