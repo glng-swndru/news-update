@@ -1,11 +1,11 @@
 # Latest News
--  Dışişleri Bakanlığı'ndan ikinci yılında Ukrayna Savaşına ilişkin açıklama
--  PWRD Invites Tender for Maint/Construction Of Road In Assam- 2024_PWD_36452_9
--  Saturday's Ligue 1 predictions including Strasbourg vs. Brest
--  La borrasca Louis pierde fuerza en su segunda jornada y se focaliza en la costa ferrolana
--  Muhammed – en våldets eller förlåtelsens profet?
--  Mersin'den gelen haber çok felaket... Ağaçtan tek tek toplandı. Kilosu 150 dolar 4 bin 622,80 Türk Lirası
--  Dobré ráno, Piešťany!
--  국민의힘, 경선 후보자들에게 투표 결과 집계 과정 공개한다
--  Sprawdź się w trudnym quizie z wiedzy ogólnej. 15/15 jest poza zasięgiem
--  Meurtres à Bayeux : que vaut le téléfilm inédit avec Sara Mortensen diffusé ce soir ? Notre avis
+-  One million people living with serious condition despite having no symptoms
+-  Aydın merkezli 4 ilde dolandırıcılık operasyonu: 25 tutuklama
+-  سوق العمل في لبنان "تبدّل".. اختاروا هذه المهن
+-  Messi a battu Mbappé, voilà pourquoi !
+-  Gemeinderat entscheidet über Hotel-Großprojekt in der Axamer Lizum
+-  Casual Social Network game Play Together adds new NPC "Cutiepie"
+-  Agriculture. Dans les coulisses du Salon avec son directeur, Arnaud Lemoine
+-  Salon de l'Agriculture : Chirac, Sarkozy, Hollande... Les phrases cultes des politiques
+-  Écarté deux matches, Florent Mollet retrouve le groupe du FC Nantes
+-  Video: Kyjev ukázal americké tanky Abrams v bojové akci
