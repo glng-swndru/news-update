@@ -1,11 +1,11 @@
 # Latest News
--  A cikket olvasva mi is ott lehetünk a sétán
--  Ogórek miała 20 lat, kiedy wylądowała w "Bravo". "Koledzy wysłali moje zdjęcie"
--  Al via il secondo giorno del congresso di FI
--  Lauenburgs Berg rutscht: Angst und Schrecken zu allen Zeiten
--  MMA fans are only just discovering fighter with 'greatest nickname of all time'
--  A neten hirdető kóklereket nehezebb megtalálni
--  د سندرو مېلمانه
--  Alain Delon : « Grâce à Jean-Pierre Melville, il a créé son mythe »
--  Spanish police search gutted flats after nine killed
--  Frust an der Front in der Ukraine: „Ohne Munition kann kein Land einen Krieg gewinnen“
+-  Auf Sturm folgt Frühling: Kamelien von Hertenerin Elisabeth Süsterhenn sind extrem früh dran
+-  Öko-Spinner, geschäftstüchtig oder weitsichtig: Die Energie-Leistung des Jens Langensiepen
+-  Ünlü oyuncu modacıyla nişanlandı. Düğünün yapılacağı yer belli oldu
+-  KSW Epic już dzisiaj! Gdzie obejrzeć walkę Adamek - Khalidov? [TRANSMISJA NA ŻYWO, KARTA WALK]
+-  Klausk psichologo. Kodėl darbo dienomis vaiko neįmanoma prižadinti, o savaitgalį jis atsikelia anksti?
+-  Vendimia 2024: la Convivencia Real llega con ajustes
+-  Hudut Kartalları 3'ü FETÖ üyesi 5 kişiyi yakaladı
+-  Цена на азербайджанскую нефть снизалась на $2.03
+-  Barışma teklifi reddedilince dehşet saçtı! Eski kız arkadaşının evini ateşe verdi
+-  Otra vez a violentar
