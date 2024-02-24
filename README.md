@@ -1,11 +1,11 @@
 # Latest News
--  Les pharmacies et les vétérinaires de garde sur le secteur d’Issoire 24 et 25 février
--  Navala nevida u Srbiji! Ubod ove mušice izaziva opake bolesti, a u ovom slučaju može dovesti i do smrti!
--  „Let’s Dance“: Kelly-Spross Gabriel sichert sich Direktticket
--  „Let’s Dance“: Kelly-Spross Gabriel sichert sich Direktticket
--  So v Škofji Loki in Idriji vlamljali državljani Kolumbije, Kostarike in Mehike?
--  „Let’s Dance“: Kelly-Spross Gabriel sichert sich Direktticket
--  Tajemniczy balon nad USA. Amerykanie poderwali myśliwce
--  NatWest shares: is a once-in-a-lifetime opportunity on the way?
--  Сырский о второй годовщине полномасштабного вторжения: Никто в мире не верил, но Украина приняла бой и выстояла
--  Ucraina, Zelensky alza il tiro: "Presto una nuova controffensiva"
+-  I saw this new to Netflix movie 3 times in theaters — and it’s 98% on Rotten Tomatoes
+-  "La mort de Lily est le drame de tous" : la ministre déléguée à l'Enfance ne veut plus d'enfants placés à l'hôtel
+-  Hiroşima’daki atom bombalı saldırıda eriyen saate 31 bin 113 dolar
+-  הצ'אנס מבכר, ההערכה מרוני לוי ומבט לעתיד: המושאל מבאר שבע מככב בחיפה
+-  Luis Enrique donne son feu vert pour ce transfert au PSG
+-  ਅਜੇ ਨੇ ਵੀ ਕੀਤਾ ਕਾਲਾ ਜਾਦੂ Experience
+-  "TO VIŠE NIJE TVOJA KUĆA, DOĐI KOD MAME" Dea Đurđević otkrila istinu o ODNOSU sa Mladenom: Evo šta joj je majka PORUČILA
+-  Milan Atalanta, Pioli ha scelto la coppia di centrocampo: con Reijnders tocca a lui. Ultime
+-  Le Vietnam est prévu pour tirer l’essor de la richesse mondiale
+-  ABD'de askeri helikopter düştü
