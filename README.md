@@ -1,11 +1,11 @@
 # Latest News
--  30 двойки в София ще сключат брак на 24.02.2024 г. - Труд
--  Annu Vainio, 54, sisustaa pikkurahalla – "Hyvää saa halvemmallakin"
--  Bir qrup QHT ABŞ-nin Azərbaycandakı diplomatik missiyalarına müraciət ünvanladı
--  快訊／貨車遭追尾衝撞民宅！整排汽機車毀損 47歲駕駛傷重不治
--  Nastri argento: Monica Bellucci protagonista dell'anno nei documentari
--  Станимир Стоилов и Гьозтепе търсят нов успех в Турция днес
--  Semih Yalçın'dan CHP'ye 'DEM Parti' tepkisi: "Hıyanetten daha beter bir satılmışlık halidir"
--  Unfall am Bahnhof Schwerte: Jugendlicher aus dem Kreis Unna gestorben
--  15 Temmuz gecesi Tayyip Erdoğan için ölüme koşan AK Partili isim, neden Yeniden Refah adayı oldu?
--  Politisi Senior PKB Sebut Hak Angket Bisa Digulirkan, Tapi Bakal Sia-sia
+-  Loài hoa tưởng chỉ trưng cho đẹp ai ngờ là “thần dược” với sức khỏe, sắc đẹp, làm chậm lão hóa cho phụ nữ
+-  Kalamita v Taliansku. Gutová náskok pred Shiffrinovou nezvýši
+-  Stūriška Pasaules kausa BMX superkrosā 3. posmā paliek uzreiz aiz fināla
+-  Al Napoli tutto è relativo
+-  Tim slavne voditeljice koja je teško oboljela objavio njezine dijagnoze: 'Odluka je bila teška'
+-  Sunovrat londonskog velikana... Čelsi mora da izgubi u finalu kako ih UEFA ne bi kaznila!
+-  Tintas de solo bombardeado, pianos danificados: a arte numa Ucrânia em guerra
+-  Landsbergis JT Saugumo Taryboje: „Neryžtingas atsakas Rusiją tik drąsina“
+-  Erzincan il plaka, telefon ve posta kodu! Erzincan’ın kaç ilçesi var?
+-  İstanbul, İzmir, Antalya, Ankara ve Şanlıurfa'da cumartesi ve pazar evden çıkacak vatandaşlar dikkat! Aşırı kayganlaştıracak
