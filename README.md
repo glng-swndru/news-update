@@ -1,11 +1,11 @@
 # Latest News
--  Fransa Ermenistan'a hava savunma sistemleri verecek
--  Gabriel Albuquerque foi o melhor na qualificação da Taça do Mundo em Baku
--  ФОТОФАКТ: Миссия наблюдателей ШОС возложила цветы к стеле "Минск - город-герой"
--  Sind wir im Krieg nur Zuschauer? / Kommentar von Raimund Neuß zum zweiten Jahrestag des russischen Überfalls auf die Ukraine
--  Кадыров сообщил о рабочей встрече с Путиным в Кремле
--  La marca que reina en el pádel femenino
--  «Каб з намі размаўлялі, важна ствараць пагрозу». Добраахвотнік пра «мясныя штурмы», канфлікты паміж ваярамі і «гадзіну X» для Беларусі
--  İmamoğlu: Binali Yıldırım'dan daha memnundum, şimdiki rakibim iftiralar uydurmaya başladı
--  Mỹ nhân Cần Thơ "chạy deadline" cưới thiếu gia, tung loạt ảnh mặc váy cưới khiến dân tình sốc visual
--  Συμβολική επίσκεψη της Ούρσουλα φον ντερ Λάιεν στο Κιέβο
+-  Putin hace oídos sordos a la campaña para devolver el cuerpo de Navalni a su familia
+-  Saša Lozar uputio javnu ispriku Severini: 'Znaš da mi to nije bila namjera'
+-  Noi informații despre incendiul din Valencia. Ce a generat propagarea rapidă a focului. "A acționat ca o pernă de aer"
+-  Sos caporalato, in Fvg troppe partite iva sospette in agricoltura
+-  Onko pörssisähkö oikeasti aina edullisempi kuin määräaikainen sopimus?
+-  Harald Burkart: Berliner CDU will Ordnungsmaßnahme gegen JU-Chef verhängen
+-  TikTok-Rezept: In 15 Minuten fertig: Schnelle Vodka-Pasta – so kochen Sie Gigi Hadids Lieblingsessen nach
+-  Aus diesem Grund macht Gabriel Kelly bei "Let's Dance" mit
+-  Martin Kosovec za 24sata uoči premijere pjesme na Dori: 'Ma kakva trema, nemam pritisak'
+-  İsrail 'savaş kabinesinde' erken seçim sesleri. Netanyahu'nun iktidardaki günleri sayılı
