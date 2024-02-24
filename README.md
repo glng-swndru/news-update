@@ -1,11 +1,11 @@
 # Latest News
--  （麻辣教師GTO 26年後回歸 ）小栗旬驚呼鬼塚老師沒變 粉絲敲碗菜菜子合體反町
--  La serie de televisión Halo acaba de matar a un personaje icónico
--  This New Smartphone Comes With a Leica Camera Onboard
--  La reunión de Lula con Lavrov revela la sinergia entre Brasil y Rusia
--  Što mislite koju travu puši premijer?
--  Padova, l'Arzignano da superare per continuare a cullare il sogno rimonta
--  Bowen seeks fishing club's input on offshore wind licence conditions
--  "Jokić bi Dankanu isprašio zadnjicu"! Bivši košarkaš ispričao zanimljivu anegdotu!
--  台積電熊本2廠 掀雪球效應
--  周蕙登衛武營 像考進音樂資優班-笑喊要變身千面女郎演唱 指揮家簡文彬龍字頭討喜
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 24 февруари /валутен калкулатор/
+-  Власти Тульской области сообщили о втором беспилотнике, сбитом в регионе
+-  Stained glass window showing dark-skinned Jesus Christ heading to Memphis museum
+-  "RODITELJI SU ODVAJALI OD USTA DA MI KUPE IGRAČKE" Barbara Bobak o detinjstvu i odrastanju: Za skijanje nismo imali para...
+-  Серия А. Болонья одержала пятую победу подряд и осталась четвертой
+-  Metz – OL : les Gones poursuivent leur bonne série !
+-  Moskva i Kijev na drugu godišnjicu rata: U Ukrajini mobilizacija, ciljevi Rusije nepromjenjeni
+-  Москва и Кијев на другу годишњицу рата: У Украјини мобилизација, циљеви Русије непромјењени
+-  Μανώλης Μητσιάς: Ποτέ δεν παρακάλεσα κανέναν να μου δώσει ένα τραγουδάκι, ποτέ
+-  Ovo srpsko ime nosi najtužnije značenje! Ukoliko planirate da ga date detetu jednu stvar morate znati
