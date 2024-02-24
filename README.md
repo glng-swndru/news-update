@@ -1,11 +1,11 @@
 # Latest News
--  Yvonne Fovargue MP: ​We must reduce child poverty so everyone has best start in life
--  Komutana küfreden AKP’li aday ihraç ediliyor
--  Une cagnotte pour Angélique, originaire d’Ottignies, qui a perdu la vie dans un accident de bateau lors de ses vacances en Guadeloupe : « Ton sourire et ta gaieté resteront à jamais dans nos cœurs »
--  Hidden gem Edinburgh pub many locals don't even know exists share video showing exactly how to find them
--  Schreibwarenladen in Hertener City schließt: Filialist am Markt kritisiert Energieversorger
--  Support for Ukraine must be unwavering - Scotsman comment
--  Editorial: Hay que frenar la impunidad
--  Sascha Nimphius (38) bettelt für seinen Lebensunterhalt: „Möchte gerne arbeiten“
--  Wigan's week in court
--  Erster Entwurf steht : Zwei Millionen Euro für Umgestaltung Waltroper Plätze
+-  Renungan Harian Kristen, Mazmur 149:5a, Kegirangan dalam Kemuliaan Tuhan
+-  Объявлено время начала игр между "Карабахом" и "Байером"
+-  El Bernabéu, los arbitrajes y la verdadera vara de medir del mejor Sergio Ramos
+-  Burhaniye'de yol sevinci
+-  ‘깐죽포차’ 최양락, 포차 영업 긴급 중지…“그냥 쑥대밭이 됐다”
+-  Bolton's Gaskell Community Primary work cost rises to £3.8M
+-  17 công ty bỗng bị đưa vào 500 lệnh trừng phạt Nga: Trung Quốc tức tốc hành động, đòi Mỹ phải sửa sai ngay
+-  Rangadó vár a magyar válogatott kapusra, aki tudja a siker receptjét
+-  Concerns rise over China's 1 trillion yuan EV, solar, battery exports
+-  Reality Club Wakili Indonesia di SXSW 2024
