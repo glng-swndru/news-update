@@ -1,11 +1,11 @@
 # Latest News
--  ‘Anatomía de una caída’ busca 5 Oscar
--  Gina London: Weekly meetings are only productive if communication is working both ways
--  Hizan'da üzerine ağaç devrilen adam hayatını kaybetti
--  கோவில்பட்டி, கழுகுமலை முருகன் கோயில்களில் மாசி மகம் சிறப்பு பூஜை
--  El Bembibre brilla en la Copa de CyL
--  فهرست ریالی جوایز جشنواره فیلم فجر از ۱۳۹٨ تا ۱۴۰۰ / افزایش چشمگیر رقم جوایز در جشنواره امسال
--  Martes de cine de 7 mujeres en El Albéitar
--  ‘I want the Taoiseach, when he meets President Biden, to tell him to stop this genocidal war against Gaza’ – Palestinian Ambassador on St Patrick’s Day White House visit
--  Richard Curran: Global stock rally driven by AI and mass sackings leaves Irish tech staff sitting on millions?
--  Dịch vụ an nghỉ cho thú cưng: Người trong nghề bần thần trước nhiều hình ảnh đau đớn, đứng trước mặt khách nhớ 1 điều tối kỵ!
+-  Xe rẻ qua thời vàng son
+-  Fire breaks out at Beltola Survey in Guwahati city
+-  Skinnarila on nuorten aikuisten valtakuntaa – Selvitimme, missä päin Lappeenrantaa asuu eniten alle 30-vuotiaita
+-  The first two-screen laptop that doesn’t feel like a gimmick
+-  Bhopal: Two Held For Attacking Class 11 Student Over Refusal To Give Money
+-  เปิดอีกมุม ‘ธีระชัย’ แนะใช้ ‘ยานโยบายการเงิน’ ช่วยแก้ปัญหาเศรษฐกิจ
+-  Nhận định bóng đá Chelsea vs Liverpool: Đi tìm nhà vô địch
+-  The first two-screen laptop that doesn’t feel like a gimmick
+-  Campo político, crisis y shock
+-  Historia secreta de Ignacio “Nacho” Torres, el gobernador que prendió la mecha de las provincias contra Javier Milei
