@@ -1,11 +1,11 @@
 # Latest News
--  L'Eredità, "eccone un'altra". Maria Grazia massacrata: "Buona e muta"
--  Зам.-посланик Анна Тертична: С всяко отстъпване на Украйна на фронта, войната приближава ЕС и НАТО
--  Agil Alesger, Kırgızistan’ın önde gelen medya kuruluşlarında önemli görüşmeler yaptı
--  Perde il controllo dell’auto, finisce contro tre vetture parcheggiate e si ribalta
--  LAŽNA DOKTORKA ZAVELA PENZIONERA PA GA OBRLATILA Šok u Zagrebu: Obrt usledio kad mu je pokucala na vrata URADILA NEŠTO NEZAMISLIVO
--  Ukraine-Russia war: 'Your island is small and your intelligence service sucks' - a walk through Moscow on invasion anniversary
--  Waktu Utama, Niat, dan Doa Sholat Dhuha Lengkap
--  דיווח ראשוני על פצוע מירי בכניסה לבסיס האימונים החטיבתי של הנח"ל באזור ערד
--  Fenerbahçe'de Selahattin Baki: İki penaltımız verilmedi | Galatasaray olunca Mehmet Büyükekşi'nin beyni ve kalbi çelişiyor
--  Η G7 θα υποστηρίξει την Ουκρανία για όσο χρόνο χρειαστεί
+-  Carmen Barbieri reveló que deberá volver a pasar por el quirófano: “Se me rompió una prótesis”
+-  Preko 5.000 zahtjeva za nostrifikaciju diploma predato u prošloj...
+-  Zubo fantastičan četvrti u prvoj vožnji! U vodstvu je Odermatt
+-  Mario Been adviseert PSV: ‘Dit is echt een superspeler, leg hem vast’
+-  Filip Zubčić sjajno održao prvu vožnju u SAD-u: Bori se za novo postolje
+-  Carro bate em poste, fica destruído e ocupantes são arremessados
+-  2023 yılında en çok hangi cep telefonu satıldı
+-  Israel estudia un borrador de tregua en Gaza, debido a muertos por hambre extrema
+-  İspanya'da apartman yangınında can kaybı 10'a çıktı
+-  Kirúgták az őrt, miután fotók készültek az akkumulátorhulladékról Sárbogárdon
