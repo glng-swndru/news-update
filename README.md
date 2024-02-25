@@ -1,11 +1,11 @@
 # Latest News
--  Comment le RN a réussi à se banaliser : « Le fait d'avoir des discours qui structurent le débat contribue à sa légitimation »
--  Το ρωσικό υπουργείο Άμυνας ανακοίνωσε ότι κατέρριψε ουκρανικά drones πάνω από τη Μαύρη Θάλασσα και το Μπέλγκοροντ
--  Yerli üretim uçuş simülatöründe 40 bin saat devrildi
--  Si getta da un'auto in corsa a Milano, ragazzo grave
--  Лукашенко назвал главные качества для Президента Беларуси
--  Husiler: ABD ve İngiltere ülkenin çeşitli kentlerine 22 hava saldırısı düzenledi
--  Conférence de soutien à l'Ukraine : Emmanuel Macron va réunir 21 dirigeants internationaux
--  Psykologia | Viereinen jono liikkuu aina ”nopeammin” – Tutkija selittää, mikä odottamisessa ärsyttää
--  Comment le RN a réussi à se banaliser : « Le fait d'avoir des discours qui structurent le débat contribue à sa légitimation »
--  "TLO SE POMERALO DOK SAM TRČAO U DVORIŠTE..." Registrovan snažan zemljotres, ljudi u strahu da ne slede još jača podrhtavanja
+-  В Запорожской области рассказали о выселении жителей на подконтрольные Украине территории
+-  Rusya'da devlet başkanlığı seçimi için erken oy kullanma başladı
+-  Brand in Weil der Stadt: Küche brennt komplett aus
+-  Akan Beroperasi di Negara Asia Tenggara, 23 Helikopter PTDI Dibeli Indo Pacific Resources
+-  В военном городке Липецка вновь пытались снести объект культурного наследия
+-  Kim Kardashian bringt Fans im sexy Kleid um den Verstand
+-  Boodschappen uit een spuitbus
+-  Boodschappen uit een spuitbus
+-  Nazir: "Ölkənin hərbi-sənaye istehsalı və ixracı artırılacaq"
+-  Brand in Weil der Stadt: Küche brennt komplett aus
