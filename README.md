@@ -1,11 +1,11 @@
 # Latest News
--  Планински спасители: Лоши са условията за туризъм във високите части на планините
--  ÖSYM uyardı! Üniversite sınavı için başvuru süresi doluyor
--  Bigidagoe doodgeschoten
--  Konzeptalbum über Putin: Vladimir, der Schlächter
--  Marriage makes a ‘safe environment for children’
--  „Man legt sich bewusst ein Handicap zu, das dann als Ausrede benutzt wird“
--  Astrologinja Lenka: Ne oklepajte se nekih vzorcev in malenkosti
--  Calcio: Bordeaux; ansia per Elis, in coma farmacologico
--  MARKOVIĆ BLISTA NAKON POBEDE NAD RADNIKOM: Zaslužili smo, pa da slavimo titulu u maju
--  Figure AI privlači velike igrače – Bezos, Nvidia i Intel ulažu milione u startap za AI humanoidne robote
+-  Хуситы заявили об очередных обстрелах кораблей ВМС США близ Йемена
+-  Rederijdirecteur Karin Orsel: fijne noorderling, twee voeten op de vloer
+-  3 loại thực phẩm ăn vào bữa tối sẽ tăng cân nhanh
+-  Horst Naumann: Der „Traumschiff“-Schiffsarzt ist gestorben
+-  Марек - Беласица /състави/
+-  Galatasaray devler ile yarışa girdi: Abdelhamid Ait Boudlal
+-  Máris megkezdődött az orosz elnökválasztás
+-  Diže se "novi Dubai" VIDEO
+-  Ako ostavljate ove predmete u vozilima u Njemačkoj kazna do 10.000 eura
+-  Javascript mullisti web-kehittämisen – ”tuottavuus on kasvanut ihan valtavasti”
