@@ -1,11 +1,11 @@
 # Latest News
--  Vedova Attanasio, 'coltiviamo la memoria e l'identità'
--  I ragazzi dell'oncoematologia ballano Tuta gold e Mahmood risponde: "Siete fantastici"
--  En språklig specialoperation föregick kriget
--  40 günlük bebek açlıktan hayatını kaybetti! Bütün dünya İsrail vahşetini izliyor
--  Olympialaiset | Venäjän olympiakomitea sai pakit – vastauksessa esitettiin kova väite
--  Депутат Госдумы Чепа: за переговоры по Украине отвечает Запад, а не Зеленский
--  200 EURO PER FARE UN KARAOKE – GIOVEDÌ KANYE WEST HA TENUTO UNA SEDUTA DI ASCOLTO COLLETTIVO DEL SUO NUOVO DISCO, “VULTURES”, DAVANTI A MIGLIAIA DI PERSONE: IL RAPPER, IN TOTAL BLACK E MASCHERATO (SARÀ STATO LUI?) NON HA NEMMENO TOCCATO IL MICROFONO, COSÌ COME I SUOI NUMEROSI OSPITI. SEMPLICEMENTE, QUALCUNO HA SCHIACCIATO PLAY E VIA CON LE CANZONI – IL COSTO DEI BIGLIETTI PER IL "LISTENING PARTY"? DA 138 A 200 EURO…
--  Turkmenistan and France Arterail company enhance railway cooperation talks
--  İsmail Kartal'dan tek değişiklik
--  Jurgen Klopp Sebut Trofi Piala Liga Inggris Akan Jadi Bagian dari Babak Terakhir Bersama Liverpool
+-  Mobbing: Anne Wünsche hat kein Mitleid mit Amira Pocher!
+-  Bakan Amcaoğlu’nun geçirdiği bisiklet kazası sonrası köprücük kemiği kırıldı!
+-  Man United got 'very lucky' against Fulham, pundit says he should've been sent off
+-  Holzwickeder demonstrieren für Frieden: „Erbarme dich des Volkes in der Ukraine“
+-  Pikkuapulainen vilahtaa etäpalaverissa sairastumisen tai päiväkotilakon takia – "On tämä vähän humoristista välillä"
+-  Cafe Deli Margaux Leeds: Dale Spink appointed new head chef at popular Farsley bistro
+-  Grandinate in provincia di Imperia, imbiancata anche l'autostrada
+-  Тялото на Навални е предадено на майка му
+-  Xocalı soyqırımından bəhs edən yeni sayt yaradılıb
+-  St. Louis homeowners demand removal of homeless tent outside their house, sue city
