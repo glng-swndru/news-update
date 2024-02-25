@@ -1,11 +1,11 @@
 # Latest News
--  Bilanz schlägt Erwartungen: Warren Buffetts Berkshire Hathaway hält Barmittel in Rekordhöhe
--  Kocaeli'de ambulansla otomobil çarpıştı: Yaralılar var
--  전국 의사 대표들 "의대 증원 강행하면 끝까지 저항할 것"
--  STRUČNO OKO ‘Nelogične su mi Karoglanove izmjene, za voditi Hajduka trebaš iskustvo, sami se srozavaju‘
--  ТРУБИН: «Борьба началась не сегодня, не 2, не 10 лет назад»
--  İspanya'daki apartman yangınında can kaybı arttı
--  Kanonen knallen in Datteln: DJK Sportfreunde holt den Oberliga-Titel
--  "POVEĆAVAĆEMO CENU RUSKOG RATA" Lideri G7: Ukrajina može da računa na podršku
--  'I do it so the next child coming up has the opportunity': Woman continues to defy the odds and inspire the world
--  'I do it so the next child coming up has the opportunity': Woman continues to defy the odds and inspire the world
+-  Jaunzemam neizšķirts Polijā; Toberam neveiksme Šveicē
+-  Edvards: Bolji sam igrač od Dončića i Šaja, 100%
+-  Kane’s injury time goal fires Bayern past Leipzig
+-  Günstig & gut: 4K-Streaming leicht gemacht
+-  National 3 : nouvelle défaite pour la réserve du Clermont Foot, privée de succès depuis maintenant cinq rencontres
+-  בלתי ניתנת לעצירה: עם אמבפה, ריאל מדריד תשלוט טוטאלית בעשור הקרוב
+-  «العدل الدولية» تقف على انتهاكات إسرائيل
+-  150 min dollara bilet olar?
+-  National 3 : nouvelle défaite pour la réserve du Clermont Foot, privée de succès depuis maintenant cinq rencontres
+-  '공공의료'에 몰린 환자들…교수들도 떠나나
