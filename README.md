@@ -1,11 +1,11 @@
 # Latest News
--  이번주부터 은행 대출한도 확 줄어든다…'스트레스 DSR' 첫 적용
--  Pesan Ma'ruf Amin untuk AHY yang Dilantik jadi Menteri: Lanjutkan Program untuk Rakyat Kecil
--  â€˜à·„à·�à¶»à·“ à¶šà·”à¶¸à¶»à·”à¶§ à¶šà·™à¶¯à·’à¶±à¶šà·€à¶­à·Š à¶†à¶»à¶šà·Šà·‚à·�à·€à¶šà·Š à¶¯à·™à¶±à·Šà¶±à·š à¶±à·‘â€™
--  معرفی نسل جدید روابط عمومی‌ها از سوی یک شرکت استارتاپی
--  Jake Paul slams difference in Conor McGregor's rival's purse after mammoth UFC fight
--  ‘හැරී කුමරුට කෙදිනකවත් ආරක්ෂාවක් දෙන්නේ නෑ’
--  Besok, Eksekusi Putusan Sanksi Etik 78 Pegawai Rutan KPK
--  Just look who's hurling themselves into curling! Princess Beatrice takes to the ice in her Converses as she brushes up on her sporting skills with her husband Edoardo Mapelli Mozzi
--  Perbandingan Spesifikasi dan Harga HP POCO F5 dan Samsung Galaxy A34 5G di Akhir Februari 2024
--  Ultiman a balazos a un hombre en un car wash en La Ceiba
+-  ‘Anatomía de una caída’ busca 5 Oscar
+-  Gina London: Weekly meetings are only productive if communication is working both ways
+-  Hizan'da üzerine ağaç devrilen adam hayatını kaybetti
+-  கோவில்பட்டி, கழுகுமலை முருகன் கோயில்களில் மாசி மகம் சிறப்பு பூஜை
+-  El Bembibre brilla en la Copa de CyL
+-  فهرست ریالی جوایز جشنواره فیلم فجر از ۱۳۹٨ تا ۱۴۰۰ / افزایش چشمگیر رقم جوایز در جشنواره امسال
+-  Martes de cine de 7 mujeres en El Albéitar
+-  ‘I want the Taoiseach, when he meets President Biden, to tell him to stop this genocidal war against Gaza’ – Palestinian Ambassador on St Patrick’s Day White House visit
+-  Richard Curran: Global stock rally driven by AI and mass sackings leaves Irish tech staff sitting on millions?
+-  Dịch vụ an nghỉ cho thú cưng: Người trong nghề bần thần trước nhiều hình ảnh đau đớn, đứng trước mặt khách nhớ 1 điều tối kỵ!
