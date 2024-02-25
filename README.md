@@ -1,11 +1,11 @@
 # Latest News
--  Bu iddia çok konuşulur! Trabzonspor dünya yıldızı ile görüştü
--  Empieza lo bueno
--  4 ilde 'Kafes' operasyonu: 8 gözaltı
--  Голямо щастие, но и неприятности за Андреа
--  DANAS JE SVETI MELETIJE: Veruje se da danas treba uraditi JEDNU VAŽNU STVAR, nemojte se ogrešiti!
--  رئيس الدولة يهنئ الكويت باليوم الوطني
--  "OVIH 5 MILIONA SAM JA POKRADEN!" ISPLIVALA PREPISKA UBIJENOG JOVANA VUKOTIĆA: "Sve sam saznao od Zvonceta mučenog, žalio mi se"
--  England í dag - Úrslitastund á Wembley
--  दुबलेपन को दूर करने के लिए आटे में ये सफेद चीज मिलाकर बनाएं रोटी, तेजी से बढ़ेगा वजन, भर जाएगा शरीर
--  Ísland í dag - Grannaslagur í Njarðvík og þrír leikir í Boganum
+-  ÕNNITLEME! ⟩ Väärikad sünnipäevalapsed Saare- ja Muhumaal
+-  ЦИК Азербайджана: выборы в Беларуси проходят спокойно и достойно
+-  Тръмп спечели на първичните избори в Южна Каролина
+-  Osttiroler Wald bleibt die nächsten 40 Jahre ein Verlustmodell
+-  SINDI POKORILA MREŽE IZVAJANIM TELOM! Bivša modelsica pokazala kako izgleda u petoj deceniji
+-  Mayer leitet Übergabe ein - „Drei Jahre“, die lange dauerten - aber heuer ist Schluss
+-  ‘Man in de rug’, klinkt het bij de vrouwen: is er behoefte aan nieuw sportjargon?
+-  TRAMP UBEDLJIV I U JUŽNOJ KAROLINI! Novi poraz Hejli koja ne odustaje, evo kada bi trka republikanskih rivala mogla da bude GOTOVA
+-  Solomålet kan betyda nytt kontrakt för SAIK-talangen
+-  NAKON 2. TRANSPLANTACIJE BUBREGA SAZNAO DA IMA RAK! Nedeljko (17) je 10. NA SVETU SA OVIM RETKIM OBLIKOM KARCINOMA: Pobediću!
