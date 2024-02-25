@@ -1,11 +1,11 @@
 # Latest News
--  Jaunzemam neizšķirts Polijā; Toberam neveiksme Šveicē
--  Edvards: Bolji sam igrač od Dončića i Šaja, 100%
--  Kane’s injury time goal fires Bayern past Leipzig
--  Günstig & gut: 4K-Streaming leicht gemacht
--  National 3 : nouvelle défaite pour la réserve du Clermont Foot, privée de succès depuis maintenant cinq rencontres
--  בלתי ניתנת לעצירה: עם אמבפה, ריאל מדריד תשלוט טוטאלית בעשור הקרוב
--  «العدل الدولية» تقف على انتهاكات إسرائيل
--  150 min dollara bilet olar?
--  National 3 : nouvelle défaite pour la réserve du Clermont Foot, privée de succès depuis maintenant cinq rencontres
--  '공공의료'에 몰린 환자들…교수들도 떠나나
+-  電芯價跌 儲能費率依成本滾動調整
+-  アマゾンの自費出版で月に240万円稼ぐ夫婦。執筆・デザインスキル0でもビジネスとして成功させる方法
+-  崇越集團董事長︰日本築巢迎台積 缺人力是隱憂
+-  陳美鳳年輕忌穿荷葉邊 前衛造型被嫌醜
+-  VIDEO: Bitka desaťročia. Dve ťažké váhy si to rozdali ako za starých čias
+-  （法國凱薩獎）墜惡真相橫掃6大獎 導演潔絲汀獎獻女性
+-  測試3猿投放榜 悍將選中范柏絜
+-  فواید اصلی داشتن فعالیت بدنی منظم
+-  中國快艇翻覆案》海巡署長周美伍抵金 向家屬表達善意
+-  現場直擊》軟銀春訓魅力「食」足 整天一直吃
