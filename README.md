@@ -1,11 +1,11 @@
 # Latest News
--  Carmen Barbieri reveló que deberá volver a pasar por el quirófano: “Se me rompió una prótesis”
--  Preko 5.000 zahtjeva za nostrifikaciju diploma predato u prošloj...
--  Zubo fantastičan četvrti u prvoj vožnji! U vodstvu je Odermatt
--  Mario Been adviseert PSV: ‘Dit is echt een superspeler, leg hem vast’
--  Filip Zubčić sjajno održao prvu vožnju u SAD-u: Bori se za novo postolje
--  Carro bate em poste, fica destruído e ocupantes são arremessados
--  2023 yılında en çok hangi cep telefonu satıldı
--  Israel estudia un borrador de tregua en Gaza, debido a muertos por hambre extrema
--  İspanya'da apartman yangınında can kaybı 10'a çıktı
--  Kirúgták az őrt, miután fotók készültek az akkumulátorhulladékról Sárbogárdon
+-  Vidal: "Los argentinos no pueden ser rehenes de los gobernadores y el presidente"
+-  La colère des agriculteurs se retourne contre "les écolos"
+-  Військовий штучний інтелект США відстає від розробок Китаю. Пентагон б'є на сполох
+-  'Dahomey' leva o Urso de Ouro no Festival de Berlim; veja lista de vencedores
+-  مونديال الشاطئية..البرازيل وإيطاليا إلى النهائي
+-  Grayscale Transfers Over $175M in Bitcoin to Coinbase
+-  El equipo más en forma de las últimas semanas visita Jumaya (12:00 horas)
+-  Polizia usa idranti sui manifestanti a Tel Aviv, 19 arresti
+-  Defence production to touch 3 lakh crore by 2028-29: Rajnath Singh - The Times of India
+-  La colère des agriculteurs se retourne contre "les écolos"
