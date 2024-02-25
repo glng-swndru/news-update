@@ -1,11 +1,11 @@
 # Latest News
--  Qatar’s digital investments to soar to $5.7bn by 2026
--  Fine settimana medievale a Taggia, sabato sbandieratori e falconieri, domenica il Corte Storico con 400 figuranti
--  AHY Spil Sehari Bareng Presiden Jokowi, Apa yang Dirasakan?
--  Rangers thrash Hearts to move five points clear in title race
--  "Stjepović iznosi detalje sa zatvorene sjednice Odbora za bezbjednost"
--  Brzo obavite kupovinu: Sutra su zatvoreni gotovo svi trgovački centri u državi!
--  Duży problem dla Adamka. To dla niego zupełna nowość. Rywal będzie miał łatwiej
--  LIVE TV: Ολυμπιακός - ΑΕΚ
--  Landowner launches this 28-word public rant at fly-tipper
--  જાપાને વિશ્વમાં પ્રથમ વાર બનાવેલો લાકડાનો સેટેલાઇટ અમેરિકા લોંચ કરશે
+-  Due anni di ferite. Voci da Ivanivka, che riparte dopo l'occupazione russa: "I nostri nipoti non devono vivere questo"
+-  Aranyérmet nyert Somodi Maja a junior rövidpályás gyorskorcsolya-világbajnokságon
+-  Никита Коростелев: «Будем пытаться вернуть должок»
+-  Тысячи ярких огней окрасили небо Москвы в День защитника Отечества
+-  Jak Polacy oceniają rząd Donalda Tuska? Najnowszy sondaż
+-  Selçuk Üniversitesi 110 personel alacak
+-  Niyaməddin Musayevin qızı ölkəni tərk etdi
+-  Rugby - Tournoi des 6 nations. Coup dur pour le XV de France : l'ailier isérois Louis Bielle-Biarrey forfait face à l'Italie
+-  Militares desocupam área de mina ilegal que desmoronou na Venezuela
+-  Διαδηλώσεις σε Γερμανία-Γαλλία για την επέτειο ρωσικής εισβολής στην Ουκρανία
