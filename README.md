@@ -1,11 +1,11 @@
 # Latest News
--  Mehr Ausländer und immer älter: 10 Grafiken zeigen, wie Castrop-Rauxel sich verändert hat
--  پیش بینی ۱۲ هزار میلیارد تومان برای خرید اتوبوس‌های جدید پایتخت در سال آینده
--  Manchester United Merindukan Rasmus Hojlund
--  ALL-OUT SUNDAYS: LIVE! Maglalagab-LOVE ang saya ngayong Linggo kasama ang inyong AyOS Barkada
--  Real Count KPU 62,20 Persen, Sinta Rosma Yenti Masih Belum Terkejar Calon DPD Dapil Kaltim Lain
--  Pelea Milei vs gobernadores pone en jaque la reducción del déficit fiscal
--  Leier inn eks-politiker og tidligere statssekretær for å nå fram med bedre E10 i Lofoten
--  Aaj Ka Dhanu Rashifal 26 फरवरी 2024 राशिफल, आज का राशिफल | 26 February 2024 Sagittarius Horoscope Dhanu Rashifal Aaj Ka Rashifal
--  Trisha Ooi enggan diingati kerana imej seksi
--  BSF will assist youth in joining forces: IG Pathak
+-  PF 내부 정보로 부당 이익…금감원, 금융투자사 운용역들 적발
+-  Los vecinos podrán acceder al garaje del edificio incendiado en Valencia y a viviendas municipales la próxima semana
+-  وزير الطاقة يُعلن عن زيادة في الاحتياطيات المؤكدة من الغاز والمكثفات في حقل الجافورة
+-  Britští manželé trefili jackpot, když slavili třicáté výročí svatby
+-  Nga gây bất ngờ với UAV vận tải hạng nặng TVS-2MS Partizan
+-  Ölülerimize bile suç yüklüyorlar
+-  작년 HUG 분양보증 사고액 1조원 돌파…13년 만에 최대
+-  Yuva: ʻಯುವʼ ಚಿತ್ರದ ಇನ್‌ಲೈನ್‌ ಸ್ಟೋರಿ ಲೀಕ್‌!
+-  Surgeon fails in second bid to unmask Nine journalist’s sources
+-  На ковровский завод Дегтярева Австралия ввела санкции
