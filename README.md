@@ -1,11 +1,11 @@
 # Latest News
--  “Staj ve çıraklık mağduriyeti seçim öncesi son bulsun”
--  Benfica ainda é suspeito de aliciamento em 8 jogos
--  Kararın ne?
--  Menos oito mortos na estrada em janeiro
--  Roger Schmidt muda equipa a pensar nos jogos decisivos
--  PSG - Real Madrid : Feu vert pour Kylian Mbappé !
--  İslamcılığın temsil sorunu
--  Segunda-feira é o último dia para validar faturas nas contas do IRS
--  Karnival ‘Segalanya FELDA’ 2024
--  Mercenário português protege máfia albanesa
+-  Margot Robbie, Jennifer Aniston and Selena Gomez: These are the SAG Awards best-dressed
+-  Nhan sắc ngoài đời thực của nữ diễn viên phim Đào, phở và piano đang gây bão mạng
+-  Con nhà giàu và con nhà nghèo, ai dễ trầm cảm hơn? Câu trả lời của Tiến sĩ khiến hàng ngàn phụ huynh không tin nổi
+-  Quốc gia 'hàng xóm' dự kiến nhập 3 triệu tấn gạo mới 'đủ ăn' - cơ hội tăng mạnh xuất khẩu của Việt Nam đã đến
+-  Kinh tế Thái Lan đối mặt nguy cơ suy thoái
+-  BEYOND LOCAL: Wildlife selfies harm animals − even when scientists share images with warnings in the captions
+-  ডেন্টাল ভর্তি পরীক্ষা: শেষ সময়ের প্রস্তুতি ও পরীক্ষার আগের দুই দিনের করণীয়
+-  미국 반도체 기업들이 베트남으로 간 까닭은? [최준영의 경제 바로읽기]
+-  How Russia's Military Uses Volunteer Fighters To Plug Gaps In Ukraine
+-  How Russia's Military Uses Volunteer Fighters To Plug Gaps In Ukraine
