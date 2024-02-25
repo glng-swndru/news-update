@@ -1,11 +1,11 @@
 # Latest News
--  Så enkelt odlar du hemma: ”Det är ett beroende”
--  The Fire Hunter Season 2 Episode 8 Streaming: How to Watch & Stream Online
--  Nach Abmahnung wegen BVB-Torte: Anwalt des Konditors hat „bisher nichts vom BVB gehört“
--  Илия Зюмбилев: Автомобилен гигант готви мегаинвестиция в Пловдив
--  '홈런왕 6번, 우승은 0번' 38살 거포 박병호의 꿈 "반드시 우승 반지"
--  Esta es la relación que existe entre el estrés y la gastritis
--  Xabi Alonso: Die Schlossallee unter den Fußballtrainern
--  Semana clave para Marlaska: el PSOE necesita a todos sus socios para salvarle
--  Tại sao mọi người tin vào thuyết âm mưu?
--  Ven tur och retur – vi följde med skepparen bakom kulisserna
+-  Havaya pompalı tüfeklerle ateş eden magandalar yakalandı
+-  Yunanistan itti, Türk sahil güvenliği kurtardı. Sallara bindirip Bodrum açıklarına bıraktılar
+-  Samsun'da yapılan uyuşturucu operasyonunda kişiye 3 gözaltı!
+-  Call for calm after disturbance erupts outside Salah's
+-  Черчесов рассказал, как заставлял игроков польской «Легии» учить русский язык
+-  Boston nastavio seriju pobjeda
+-  Eine Netflix-Serie über den grössten Porno-Star, ein rührender Adam-Sandler-Film, dazu der Goldene Bär für die Dokumentation über die Benin-Bronzen
+-  Musi podsycać ogień 24 h na dobę. "Jeżeli nie zarobię pieniędzy, moje dzieci umrą z głodu"
+-  Lukašenko najavio predsjedničku kandidaturu na izborima 2025.
+-  Phim Hàn 'Exhuma' cán mốc 1 triệu khán giả trong thời gian kỷ lục
