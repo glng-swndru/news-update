@@ -1,11 +1,11 @@
 # Latest News
--  Fener 90+'da yandı
--  União Europeia tenta diminuir insatisfação de agricultores
--  À la Fashion Week, le couturier Burc Akyol dédie sa collection événement à la ville de Dreux
--  آیا آمریکا، اوکراین را رها می‌کند؟
--  Trump espera vitória arrasadora contra Haley nas primárias da Carolina do Sul
--  Сын звезды российской эстрады сжег кроссовки и запустил свой бренд обуви - ПРИЧИНА
--  ВИДЕО. Хиггинс вылетел из Players Championship. Определен первый финалист
--  Homem tem surto psicótico e atira em enfermeira no Hospital do Servidor de SP
--  União Europeia tenta diminuir insatisfação de agricultores
--  Букмекеры определили победителей в матчах четвертьфинала плей-офф чемпионата Казахстана
+-  L'Eredità, "eccone un'altra". Maria Grazia massacrata: "Buona e muta"
+-  Зам.-посланик Анна Тертична: С всяко отстъпване на Украйна на фронта, войната приближава ЕС и НАТО
+-  Agil Alesger, Kırgızistan’ın önde gelen medya kuruluşlarında önemli görüşmeler yaptı
+-  Perde il controllo dell’auto, finisce contro tre vetture parcheggiate e si ribalta
+-  LAŽNA DOKTORKA ZAVELA PENZIONERA PA GA OBRLATILA Šok u Zagrebu: Obrt usledio kad mu je pokucala na vrata URADILA NEŠTO NEZAMISLIVO
+-  Ukraine-Russia war: 'Your island is small and your intelligence service sucks' - a walk through Moscow on invasion anniversary
+-  Waktu Utama, Niat, dan Doa Sholat Dhuha Lengkap
+-  דיווח ראשוני על פצוע מירי בכניסה לבסיס האימונים החטיבתי של הנח"ל באזור ערד
+-  Fenerbahçe'de Selahattin Baki: İki penaltımız verilmedi | Galatasaray olunca Mehmet Büyükekşi'nin beyni ve kalbi çelişiyor
+-  Η G7 θα υποστηρίξει την Ουκρανία για όσο χρόνο χρειαστεί
