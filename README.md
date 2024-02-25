@@ -1,11 +1,11 @@
 # Latest News
--  ２／２５朝
--  Cây bạc tỷ ở huyện này của Phú Yên, năm rồi một ông nông dân bán trái đặc sản lãi 8 tỷ
--  EUA e Reino Unido atacam 18 alvos huthis no Iêmen
--  SAG Awards 2024 Red Carpet Fashion: See Every Look As the Stars Arrive
--  نیروهای مسلح یمن: یک نفکش آمریکایی را در خلیج عدن هدف قرار دادیم
--  Platili kremaciju bake, pa dobili urnu sa pepelom za koji su mislili da je njen! Leš starice pronašli u kolima, ali to nije jedino telo na imanju
--  Arteta e o desaire no Dragão: «Foi uma grande lição»
--  Onderzoekers ontdekken fossiel van 240 miljoen jaar oude ‘Chinese draak’
--  SAG Awards 2024 Red Carpet Fashion: See Every Look As the Stars Arrive - E! NEWS
--  Albert lagði upp í sigri Genoa
+-  ISANG HIMALA | The Rivermaya reunion concert we thought would never happen
+-  Zwischen Selbstkritik und Trotz: LockBit rechtfertigt cyberkriminelle Handlungen
+-  Skupovima širom sveta obeležena druga godišnjica rata u Ukrajini
+-  Prezidentka poďakovala aj Marte Valovičovej z Banky
+-  363 Atlet Berlaga di Kejuaraan Klub Mitra PB Djarum 2024
+-  Moreno "confiante na permanência" do Chaves: «Vejo a equipa cada vez melhor»
+-  Zwischen Selbstkritik und Trotz: LockBit rechtfertigt cyberkriminelle Handlungen
+-  Zwischen Selbstkritik und Trotz: LockBit rechtfertigt cyberkriminelle Handlungen
+-  Những nước Đông Nam Á hái quả ngọt nhờ 'đua' nới visa
+-  Trump alla CPAC: “Sono un orgoglioso dissente politico degli Stati Uniti”
