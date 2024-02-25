@@ -1,11 +1,11 @@
 # Latest News
--  Afgezette opperbevelhebber doodgezwegen: ‘Door veiligheidsdienst gebeld om er niet over te reppen’
--  В Лудогорец са бесни на грешник, заковават го на пейката
--  Xbox: numeri aggiornati per i giochi first party
--  Kylian Mbappe's entourage met with Man City chiefs before PSG star told club he's leaving
--  OVAKO JE NIKOLIJA IZGLEDALA PRE SVIH OPERACIJA! Vesnina ćerka promenila lični opis, šok transformacija!
--  Glasner eftir fyrsta sigurinn: Stuðningsmennirnir geta fengið sér einn til tvo bjóra
--  Bezpečnostní expert: Ukrajinci doplácejí na to, že podcenili obranu. Rusové mají od podzimu navrch
--  Terapeuten: Därför ökar tobaksanvändandet bland unga
--  Venäjän hyökkäys sai myös naiset liittymään Ukrainan armeijaan – sitten paljastui iso ongelma
--  Mediante un acuerdo con Nvidia, Uruguay busca posicionarse en inteligencia artificial
+-  Comment le RN a réussi à se banaliser : « Le fait d'avoir des discours qui structurent le débat contribue à sa légitimation »
+-  Το ρωσικό υπουργείο Άμυνας ανακοίνωσε ότι κατέρριψε ουκρανικά drones πάνω από τη Μαύρη Θάλασσα και το Μπέλγκοροντ
+-  Yerli üretim uçuş simülatöründe 40 bin saat devrildi
+-  Si getta da un'auto in corsa a Milano, ragazzo grave
+-  Лукашенко назвал главные качества для Президента Беларуси
+-  Husiler: ABD ve İngiltere ülkenin çeşitli kentlerine 22 hava saldırısı düzenledi
+-  Conférence de soutien à l'Ukraine : Emmanuel Macron va réunir 21 dirigeants internationaux
+-  Psykologia | Viereinen jono liikkuu aina ”nopeammin” – Tutkija selittää, mikä odottamisessa ärsyttää
+-  Comment le RN a réussi à se banaliser : « Le fait d'avoir des discours qui structurent le débat contribue à sa légitimation »
+-  "TLO SE POMERALO DOK SAM TRČAO U DVORIŠTE..." Registrovan snažan zemljotres, ljudi u strahu da ne slede još jača podrhtavanja
