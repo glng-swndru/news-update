@@ -1,11 +1,11 @@
 # Latest News
--  Guarita da un linfoma, oggi Marta fa da tutor ai ragazzi oncologici
--  Người cao nhất và thấp nhất thế giới tái ngộ ở Mỹ
--  Ten test idealnie sprawdzi twój umysł! 20 pytań z wiedzy ogólnej
--  Presos suspeitos de envolvimento na execução de dois homens em bar no MT
--  Özgür Özel'den Halk TV'ye özel açıklamalar...
--  Cinco trucos para dejar de consumir harinas
--  CİMER'den "Cumhurbaşkanlığı'na ait kaç uçak ve helikopter var?" sorusuna ilginç yanıt!
--  Powerball, hoy 24 de febrero: resultados de la lotería de Estados Unidos
--  Akdeniz sahillerinde deniz anası tehlikesi
--  Američke snage u akciji: Uništeni su
+-  المستشفى السلطاني يجري 80 عملية جراحية خارج مسقط
+-  Сериозно фенско присъствие за "сините" преди Левски - Арда (видео)
+-  Мы никогда не пропускали ни одних выборов: профессор из БГСХА рассказал, за что голосовал на выборах
+-  Essee | Minne katosivat kevääni kultaiset päivät? Sen kertoo Aleksei Navalnyin kuolin­päivän musiikki
+-  Bauchi residents kill robber in self-defence
+-  ضبط 5 محطات وقود تلاعبت في قراءة عدادات المضخات
+-  Jargon Nedir?
+-  Patyra rozbił bank. Jego program to hit w Telewizji Republika
+-  Wojna w Ukrainie dwa lata po inwazji Rosji. Agresor zbiera rezerwy. "Logiczny krok"
+-  Primavera, Napoli-Spezia: 2-0, azzurrini in zona play off. La classifica aggiornata
