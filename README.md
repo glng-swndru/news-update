@@ -1,11 +1,11 @@
 # Latest News
--  VIDEO | Cobán denunció hechos de violencia en el estadio Santa Lucía
--  助汽車判斷路况 料自動駕駛更進一步
--  兩周前悉新星結業 旅監未公布 稱正按程序跟進不宜評論 議員斥失職促交代
--  Bayern Munich ready to QUADRUPLE Xabi Alonso's wages to stop him joining Liverpool
--  SUN周日體育直播賽程
--  《城巿獵人》4月Netflix上架 木村文乃演冴子
--  Sora以文字生成荷李活級短片 靠OpenAI Transformer技術令畫面逼真 遠勝現有系統
--  體壇快訊：石偉雄世盃次站無緣決賽
--  Edyta Jungowska ZNÓW na salonach. Tak dziś wygląda serialowa siostra Bożenka (ZDJĘCIA)
--  「一齊打牌好神奇」 呂爵安大讚佘詩曼親切無氣場
+-  Bilanz schlägt Erwartungen: Warren Buffetts Berkshire Hathaway hält Barmittel in Rekordhöhe
+-  Kocaeli'de ambulansla otomobil çarpıştı: Yaralılar var
+-  전국 의사 대표들 "의대 증원 강행하면 끝까지 저항할 것"
+-  STRUČNO OKO ‘Nelogične su mi Karoglanove izmjene, za voditi Hajduka trebaš iskustvo, sami se srozavaju‘
+-  ТРУБИН: «Борьба началась не сегодня, не 2, не 10 лет назад»
+-  İspanya'daki apartman yangınında can kaybı arttı
+-  Kanonen knallen in Datteln: DJK Sportfreunde holt den Oberliga-Titel
+-  "POVEĆAVAĆEMO CENU RUSKOG RATA" Lideri G7: Ukrajina može da računa na podršku
+-  'I do it so the next child coming up has the opportunity': Woman continues to defy the odds and inspire the world
+-  'I do it so the next child coming up has the opportunity': Woman continues to defy the odds and inspire the world
