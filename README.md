@@ -1,11 +1,11 @@
 # Latest News
--  Xe rẻ qua thời vàng son
--  Fire breaks out at Beltola Survey in Guwahati city
--  Skinnarila on nuorten aikuisten valtakuntaa – Selvitimme, missä päin Lappeenrantaa asuu eniten alle 30-vuotiaita
--  The first two-screen laptop that doesn’t feel like a gimmick
--  Bhopal: Two Held For Attacking Class 11 Student Over Refusal To Give Money
--  เปิดอีกมุม ‘ธีระชัย’ แนะใช้ ‘ยานโยบายการเงิน’ ช่วยแก้ปัญหาเศรษฐกิจ
--  Nhận định bóng đá Chelsea vs Liverpool: Đi tìm nhà vô địch
--  The first two-screen laptop that doesn’t feel like a gimmick
--  Campo político, crisis y shock
--  Historia secreta de Ignacio “Nacho” Torres, el gobernador que prendió la mecha de las provincias contra Javier Milei
+-  Стало известно об уничтожении пехоты ВСУ на правом берегу Днепра
+-  نمایندگان رژیم صهیونیستی برای مذاکره با حماس به قطر می‌روند
+-  प्रतिनिधि सभाको बैठक बस्दै
+-  ترامب يفوز بانتخابات كارولينا الجنوبية ويكتسح هيلي بمسقط رأسها
+-  Morning Headlines 25th February : देश विदेशातील महत्त्वाच्या बातम्या एका क्लिकवर, वाचा मॉर्निंग न्यूज
+-  Student killed, 2 others injured as truck rams bike
+-  Russland: Deutschland gewährt 1.900 politisch verfolgten Russen Schutz
+-  Perbandingan HP Redmi Note 12 Pro 5G dan Redmi Note 13 Pro 5G, Manakah yang Lebih Unggul?
+-  El tiempo en Villamayor de Gállego: previsión meteorológica para hoy, domingo 25 de febrero
+-  Kurma yang Jadi Favorit Saat Ramadhan, Ternyata Punya Banyak Khasiat Setelah Direndam
