@@ -1,11 +1,11 @@
 # Latest News
--  OVA PEVAČICA GA JE NAJVIŠE RAZOČARALA: Bosanac bez zadrške o kandidatima u "Zvezdama Granda", evo ko je najbolje prošao od svih
--  FUDBALSKA "LUDNICA" U TURSKOJ: Dušan Tadić i Fenerbahče bili pred nokautom, a onda golčina, pa neverovatan 96. minut (VIDEO)
--  Pijnexpert over gordelroos: ‘Een van de pijnlijkste aandoeningen die je kunt hebben’
--  SKANDAL NA IZBORU ZA ODLAZAK NA EVROVIZIJU Pevačica prestala da peva, a u pozadini se i dalje ČUO NJEN GLAS: "Neće se ponoviti" (VIDEO)
--  Premier League: Η Φούλαμ σόκαρε τη Μάντσεστερ Γιουνάιτεντ στο 97'!
--  Torcida u Varaždinu izvjesila zastave s Betisovim obilježjima
--  Dave Bautista on How Dune: Part 2 Validates Him as an Actor | IGN Fan Fest 2024
--  Furious Man Utd fans react to two players after Fulham defeat, one was ‘worst player’ on the pitch
--  Fortsatt krevende å rekruttere til maritime fag – spesielt i nord
--  Dave Bautista on How Dune: Part 2 Validates Him as an Actor | IGN Fan Fest 2024
+-  Neue Sorgen um den VfR-Torjäger: Steffen Kienle muss verletzt vom Platz
+-  Horoscope Today 25 February 2024 : आजचा रविवार खास! सर्व 12 राशींसाठी दिवस कसा असेल? आजचे राशीभविष्य जाणून घ्या
+-  Stan fylldes av cosplay-fantaster från hela Sverige
+-  "Il est payé pour m'abattre" : Lara Fabian fait de lourdes révélations sur Thierry Ardisson
+-  Who keeps the fur baby?
+-  Who keeps the fur baby?
+-  Sunday Sport Quiz: Equestrian high jinx, England’s FA Cup and who was Ralph Doubell?
+-  How crims re-target your home - and what you can do about it
+-  Menko Luhut Pandjaitan Targetkan Pulau Samosir Jadi Destinasi Wisata Premium
+-  The search for superbugs lurking in your shopping trolley
