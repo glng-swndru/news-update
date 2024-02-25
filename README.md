@@ -1,11 +1,11 @@
 # Latest News
--  Española tenants union finds strength in numbers at Las Lomas Apartments rally
--  PM Modi inaugurates ‘Sudarshan Setu’, India’s longest cable-stayed bridge in Gujarat
--  Santa Fe inventor tries to get momentum for "air mover" he says can help firefighters
--  Greece to introduce infant formula price measures next month
--  Panel suggests wall on three sides for Metro station FOB
--  Così in campo. Allo stadio ‘Berni’ arbitra Boeddu. Il via è alle 14,30
--  Κάλεσμα ενίσχυσης Κοινωνικού Φαρμακείου Δήμου Ηρωικής Πόλης Νάουσας.
--  Thách thức kép từ dân số già tại Đông Nam Á
--  CYFD agrees to pay $5.5 million settlement over 8-year-old girl's death
--  آماری شگفت‌انگیز از جریمه رانندگان موبایل به دست توسط پلیس
+-  Now is not the time for opportunistic personal tax cuts
+-  1990s Edinburgh: 17 incredible old photos to transport you back to Edinburgh in the Nineties
+-  Πάνος Τσακλόγλου στο ethnos.gr: Καμία αύξηση των ορίων συνταξιοδότησης την επόμενη τριετία
+-  Kürzungen im Waltroper Nahverkehr: Vestische macht erste Zugeständnisse auf Druck der SPD
+-  KVÍZ: Víte, jaký postih vám hrozí za nejčastější a nejvážnější dopravní přestupky?
+-  Taschengeld für Asylbewerber: Kommunen fordern Bezahlkarte noch dieses Jahr
+-  Total fines issued in Greater Manchester for using a mobile phone while driving has risen by nearly three-quarters following law change
+-  スマホで20代女性のスカート内を撮影 女性は“短パン” 警察は“性的姿態等撮影未遂”の現行犯で32歳無職の男を逮捕
+-  ATP roundup: Karen Khachanov captures Doha championship
+-  Neubau des Betriebshofs der Abfallwirtschaft: Landkreis Northeim will klimafreundlich bauen
