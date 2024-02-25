@@ -1,11 +1,11 @@
 # Latest News
--  Murshidabad Weather Updates: আজও বৃষ্টিতে ভিজবে মাটি, তাপমাত্রা নামবে বেশ খানিকটা
--  근로자 100명 넘게 불법파견 60대 협력업체 대표 벌금형
--  «Le plus fort», il a trouvé meilleur que Mbappé au PSG
--  Aaj Ka Panchang 25 February 2024: राहु काल में न करें कोई शुभ काम, जानें क्या कहता है आज का पंचांग
--  Hoy sí hablamos del Gobierno
--  Siro López no Kiosko Alfonso
--  Habrá nuevas consecuencias en los servicios de recogida de basura
--  Surveillance by Sensor
--  Why Star Trek's Marina Sirtis Doesn't Think Picard Season 3 Is The Best Work She's Done In The Franchise
--  A large audience took part in an informative evening on Alzheimer’s and dementia
+-  «الدعوة» تنظم لقاءً تربوياً لطلاب «حمزة بن عبدالمطلب»
+-  엄정화, “일그러진 감정이 주어지면 좋겠다”
+-  ලග්ගලට සංචාරකයින් කැන්දන මොරගහකන්ද
+-  Gazda se odselio, a ona je ostala da čuva kuću: Ovo je priča o Leni sa Mokre Gore
+-  પ્રાચીન સૂક્ષ્મ શ્યામ વિવર / પ્રિમોરડીએલ બ્લેક હોલ
+-  Robbo reveals his ‘bulletproof’ 2024 SuperCoach team
+-  رواد قطر يشارك بملتقى «الكويت» للاحتفاء بـ 100 رائد كشفي
+-  જીવનનું શાસ્ત્ર .
+-  大阪マラソン、パリ懸けた戦い…たこ焼きや唐揚げ振る舞う「まいどエイド」久々設置 - 読売新聞オンライン
+-  Nghe nhạc cuối năm
