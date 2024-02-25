@@ -1,11 +1,11 @@
 # Latest News
--  Zelenskyi sodan vuosipäivänä: Me tulemme kukistamaan Venäjän
--  أبين تطلق دعوات لفتح طريق "ثرة - امحلحل" تزامنا مع فتح طريق مأرب- صنعاء
--  Пирошоу на трибуните от феновете на Черно море и ЦСКА (видео)
--  Garmin Forerunner 165 ufficiale: display AMOLED, tanti dettagli e tanta autonomia
--  Mosca, le mogli dei soldati in Ucraina depongono fiori sulla tomba del Milite Ignoto
--  TSV Landsberg legt in Kottern einen Fehlstart in die Bayernliga hin
--  ROSEN, TOP RANKED INVESTOR COUNSEL, Encourages Xponential Fitness, Inc. Investors to Secure Counsel Before Important Deadline in Securities Class Action – XPOF
--  Kelebihan Weton Tulang Wangi Darah Manis, Menarik Perhatian Makhluk Ghaib
--  “UN VOTO PER ME È IL VOSTRO BIGLIETTO PER LA LIBERTÀ DALL’INFERNO DI BIDEN” – DONALD TRUMP SI CARICA A PALLETTONI PRIMA DEL VOTO IN SOUTH CAROLINA, DOVE LA RIVALE NIKKI HALEY POTREBBE ESSERE ELIMINATA DALLE PRIMARIE (HA GOVERNATO LO STATO E LA SCONFITTA PREVISTA DAI SONDAGGI POTREBBE ESSERLE FATALE) – “SE BIDEN VINCE IL PEGGIO DEVE ANCORA VENIRE. PERCHÉ PIACCIO AGLI AFROAMERICANI? SONO STATO DISCRIMINATO COME LORO…” – SU INSTAGRAM UN MEME DEL CANE DI BIDEN…
--  América Latina se prepara para el Auge del Nearshoring en 2024
+-  Bez podrške za skraćenje mandata, Kralj vjeruje u dogovor većine
+-  Tajemnicza śmierć 2-latka. Policja pilnie apeluje o pomoc
+-  Muere mujer a la que le prendieron fuego en Salcedo
+-  PONOVO JE LEDENA KRALJICA! Kim Kardašijan napravila šok transformaciju, nove slike obišle svet
+-  Sagome Meloni, Salvini e Netanyahu con vernice rossa a Milano
+-  ONLINE: Menšík bojuje o premiérový titul, ve finále hraje s Chačanovem
+-  Dal corteo fischi alla bandiera israeliana al Pirellone
+-  Това беше - Каранга бе изгонен (видео)
+-  Belözoğlu’ndan Mağlubiyet Sonrası İstifa Açıklaması: ‘Gerekeni Yapacağım
+-  Стало відомо, яким буде новий Xbox: консоль позбудеться важливої деталі
