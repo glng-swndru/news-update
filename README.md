@@ -1,11 +1,11 @@
 # Latest News
--  Vidal: "Los argentinos no pueden ser rehenes de los gobernadores y el presidente"
--  La colère des agriculteurs se retourne contre "les écolos"
--  Військовий штучний інтелект США відстає від розробок Китаю. Пентагон б'є на сполох
--  'Dahomey' leva o Urso de Ouro no Festival de Berlim; veja lista de vencedores
--  مونديال الشاطئية..البرازيل وإيطاليا إلى النهائي
--  Grayscale Transfers Over $175M in Bitcoin to Coinbase
--  El equipo más en forma de las últimas semanas visita Jumaya (12:00 horas)
--  Polizia usa idranti sui manifestanti a Tel Aviv, 19 arresti
--  Defence production to touch 3 lakh crore by 2028-29: Rajnath Singh - The Times of India
--  La colère des agriculteurs se retourne contre "les écolos"
+-  ZTE präsentiert brillante 5G-A-Highlights auf dem MWC 2024 und enthüllt die intelligente Zukunft
+-  Vasco Seabra: «Vizela? Temos de ser agressivos, estar no nosso limite»
+-  Bijeli luk i med u službi zdravlja
+-  10 lat temu przeszczepiono mu nową twarz. „Walczyliśmy o oddech”
+-  ZEMLJOTRES POGODIO BUGARSKU: Potres se osetio južno od Sofije
+-  Dieser Mann zahlte 9.000 US-Dollar für ein Paar Donald Trump-Turnschuhe
+-  VIDEO Hrvatski borac pobijedio u KSW-u. Nokautirao je protivnika nakon 54 sekunde
+-  10 lat temu przeszczepiono mu nową twarz. „Walczyliśmy o oddech”
+-  Testspiel - In Bildern: Pitten entscheidet Test gegen Winzendorf in der Endphase
+-  민주, 대전대덕·청주흥덕 등 2인 경선… 친명-비명 구도
