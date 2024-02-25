@@ -1,11 +1,11 @@
 # Latest News
--  Стало известно об уничтожении пехоты ВСУ на правом берегу Днепра
--  نمایندگان رژیم صهیونیستی برای مذاکره با حماس به قطر می‌روند
--  प्रतिनिधि सभाको बैठक बस्दै
--  ترامب يفوز بانتخابات كارولينا الجنوبية ويكتسح هيلي بمسقط رأسها
--  Morning Headlines 25th February : देश विदेशातील महत्त्वाच्या बातम्या एका क्लिकवर, वाचा मॉर्निंग न्यूज
--  Student killed, 2 others injured as truck rams bike
--  Russland: Deutschland gewährt 1.900 politisch verfolgten Russen Schutz
--  Perbandingan HP Redmi Note 12 Pro 5G dan Redmi Note 13 Pro 5G, Manakah yang Lebih Unggul?
--  El tiempo en Villamayor de Gállego: previsión meteorológica para hoy, domingo 25 de febrero
--  Kurma yang Jadi Favorit Saat Ramadhan, Ternyata Punya Banyak Khasiat Setelah Direndam
+-  ICSI CS Result December 2023: CS Professional, Executive results today at icsi.edu
+-  Tenpin bowling in Southampton unveils brand new look
+-  京都市と独ケルンとの友好、振り返り一服 市役所内で茶会、姉妹都市60周年催し報告
+-  Bürgerbegehren zur Errichtung einer Landesaufnahmestelle
+-  Andraš je najstariji obućar u Srbiji: Otkrio svoju tajnu za dugovečnost, ali i događaj kog će se sećati zauvek
+-  Zwischen Miete und Eigentum: Bauverein Bentheim wird 100 Jahre alt
+-  Bayern Munich 2 – 1 RB Leipzig
+-  Top News at 9 AM: Donald Trump wins South Carolina’s Republican primary, International drugs trafficking network busted, and more
+-  Enyhe, tavaszias idővel zárul a hét
+-  ダイソーで110円の「AirPods＆EarPods用シリコンカバー」でフィット感が大幅アップ！
