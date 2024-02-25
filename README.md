@@ -1,11 +1,11 @@
 # Latest News
--  PF 내부 정보로 부당 이익…금감원, 금융투자사 운용역들 적발
--  Los vecinos podrán acceder al garaje del edificio incendiado en Valencia y a viviendas municipales la próxima semana
--  وزير الطاقة يُعلن عن زيادة في الاحتياطيات المؤكدة من الغاز والمكثفات في حقل الجافورة
--  Britští manželé trefili jackpot, když slavili třicáté výročí svatby
--  Nga gây bất ngờ với UAV vận tải hạng nặng TVS-2MS Partizan
--  Ölülerimize bile suç yüklüyorlar
--  작년 HUG 분양보증 사고액 1조원 돌파…13년 만에 최대
--  Yuva: ʻಯುವʼ ಚಿತ್ರದ ಇನ್‌ಲೈನ್‌ ಸ್ಟೋರಿ ಲೀಕ್‌!
--  Surgeon fails in second bid to unmask Nine journalist’s sources
--  На ковровский завод Дегтярева Австралия ввела санкции
+-  Española tenants union finds strength in numbers at Las Lomas Apartments rally
+-  PM Modi inaugurates ‘Sudarshan Setu’, India’s longest cable-stayed bridge in Gujarat
+-  Santa Fe inventor tries to get momentum for "air mover" he says can help firefighters
+-  Greece to introduce infant formula price measures next month
+-  Panel suggests wall on three sides for Metro station FOB
+-  Così in campo. Allo stadio ‘Berni’ arbitra Boeddu. Il via è alle 14,30
+-  Κάλεσμα ενίσχυσης Κοινωνικού Φαρμακείου Δήμου Ηρωικής Πόλης Νάουσας.
+-  Thách thức kép từ dân số già tại Đông Nam Á
+-  CYFD agrees to pay $5.5 million settlement over 8-year-old girl's death
+-  آماری شگفت‌انگیز از جریمه رانندگان موبایل به دست توسط پلیس
