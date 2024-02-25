@@ -1,11 +1,11 @@
 # Latest News
--  Now is not the time for opportunistic personal tax cuts
--  1990s Edinburgh: 17 incredible old photos to transport you back to Edinburgh in the Nineties
--  Πάνος Τσακλόγλου στο ethnos.gr: Καμία αύξηση των ορίων συνταξιοδότησης την επόμενη τριετία
--  Kürzungen im Waltroper Nahverkehr: Vestische macht erste Zugeständnisse auf Druck der SPD
--  KVÍZ: Víte, jaký postih vám hrozí za nejčastější a nejvážnější dopravní přestupky?
--  Taschengeld für Asylbewerber: Kommunen fordern Bezahlkarte noch dieses Jahr
--  Total fines issued in Greater Manchester for using a mobile phone while driving has risen by nearly three-quarters following law change
--  スマホで20代女性のスカート内を撮影 女性は“短パン” 警察は“性的姿態等撮影未遂”の現行犯で32歳無職の男を逮捕
--  ATP roundup: Karen Khachanov captures Doha championship
--  Neubau des Betriebshofs der Abfallwirtschaft: Landkreis Northeim will klimafreundlich bauen
+-  Ege Denizi'nde peş peşe depremler korkuttu
+-  शी जिनपिंग को बताया रूस का राष्ट्रपति, फिर फिसली बाइडेन की जुबान, याददाश्त को लेकर उठ रहे सवाल
+-  Τα πρωτοσέλιδα των εφημερίδων την Κυριακή 25 Φεβρουαρίου
+-  [속보] 민주, 정청래·서영교·권칠승·이개호 등 단수 공천
+-  SAG Awards 2024 Complete Winners List: Oppenheimer dominates with big wins; Lily Gladstone takes home the best female actor trophy
+-  Partai Oposisi yang Ada Berpotensi Tidak Solid
+-  Mitch Cohen’s Blackbook: Storm Boy in ‘great shape’ for return
+-  El intendente estuvo de Konga
+-  Neue Regel gilt ab Juli: Diese kleine Box muss künftig in jedes Auto
+-  Bharat Jodo Nyay Yatra: जनता से नहीं मिले, न ही राहुल ने दिया कोई संदेश, बुलंदशहर में लोगों के हाथ लगी मायूसी
