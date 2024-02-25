@@ -1,11 +1,11 @@
 # Latest News
--  Evo zašto biste u obzir trebali uzeti vjenčanje petkom ili nedjeljom
--  В Канаде раскрыли, чьи «секретные агенты» убили эсэсовца из бывшего СССР
--  Kiev, Zaporizhzhia attaccata dai russi per 263 volte in 24 ore
--  Ecco cosa cucina Moreno Cedroni per i 40 anni della Madonnina del Pescatore
--  Sierra Kerr and Jarvis Earle dominate to claim Surfest Pro Junior titles
--  Susan Abulhawa: Pred nami se dogaja genocid, ki ga v živo prenašajo mediji
--  Elképesztően jó lett a GTA VI első előzetesének a Minecraft-ban újraforgatott változata
--  Cartón de Tony: Respetuosa colaboración
--  «Πιάστηκε» με αφορολόγητα καπνικά προϊόντα - Συνελήφθη 60χρονος στη Λεμεσό
--  দেশি প্রেমের গল্পে মুগ্ধ দর্শক
+-  Rendez-vous avec Mireille Dumas : « Être exposée, ça n’a jamais été mon truc »
+-  Де Пауль огорчен ничьей в матче «Атлетико» с «Альмерией»
+-  Razdor u porodici Navaljni! Da li je novac pozadina cele priče?
+-  ITALIJANI BLISTALI U PRVOM KOLU: Omaleni plejmejker je posebno motivisan u dresu reprezentacije!
+-  Forschergruppe in Dublin: Neue Erkenntnis über Ursache von Gehirnnebel bei Long Covid
+-  Dilber'in pavyon sahnelerine ''Ramazan'' arası
+-  Rombakan PKR Perak tak libatkan jawatan pengerusi, timbalan pengerusi
+-  Adana'da kaçakçılık operasyonu: 6 kişi tutuklandı
+-  الحوثي رداً على الضربات الأميركية البريطانية: سنصعّد هجماتنا
+-  Deutschland: Nancy Faeser will Putin-kritische Russen nach mutmaßlichem Mord in Spanien schützen
