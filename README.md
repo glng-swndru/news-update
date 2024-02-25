@@ -1,11 +1,11 @@
 # Latest News
--  Tohle nejsou hodinky, ale navigace pro motorkáře. Beeline Moto II jsou hitem Kickstarteru
--  75. Nationalfeiertag Indiens: Schwabe mit indischer Seele lädt zu Empfang in Stuttgart
--  DİKA, yabancı turizm acentelerini Mardin'de ağırladı
--  ПП-ДБ иска парламентът да осъди "терористичното поведение на Русия"
--  방탄소년단 RM, 현역 군 복무 중 근황 공개…전우들과 훈훈한 단체샷
--  [ 🛑DIRECT ] Les leaders de Bby défendent le président Macky Sall
--  Eşini ve kızlarını öldürdü; savunmasında "Ben öldürmedim, uzaylılar öldürdü" dedi
--  75. Nationalfeiertag Indiens: Schwabe mit indischer Seele lädt zu Empfang in Stuttgart
--  Экс‑владелец команды «Формулы‑1» Уилсон Фиттипальди скончался в возрасте 80 лет
--  Trovato il corpo di una decima vittima dell'incendio a Valencia
+-  سید رسول داودی
+-  Mit viel Selbstvertrauen zum Tabellen-Fünften: Warum Fortunas U23 überhaupt keine Angst vor Rot-Weiß Oberhausen hat
+-  Elveszi az autósok reményeit romániai autópálya-káosz
+-  EU-Sanktionen: Russlands politische Elite wird zur Kasse gebeten
+-  Το «ευχαριστώ» Βραχίμη για τη στήριξη από ΔΗΣΥ για Δημαρχία Αμμοχώστου
+-  Народният театър показва 5 емблематични постановки пред 50 международни гости
+-  Đơn đặt hàng của Messi khiến chủ doanh nghiệp nghẹn ngào không nói nên lời
+-  «Зенит» продлил контракт с вратарем Москвичевым
+-  Kentsel dönüşüm hibe ve kredi desteğinde detaylar: Ödeme planı nasıl olacak?
+-  Минобороны РФ сообщило о сбитом украинском дроне над Белгородской областью
