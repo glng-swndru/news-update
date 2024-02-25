@@ -1,11 +1,11 @@
 # Latest News
--  Aussie champs win, break drought in thriller
--  青山学院大・黒田も参加！「２０２４そうじゃ吉備路マラソン」ハーフマラソン結果【岡山・総社市】
--  Четирима българи спечелиха поясите на SENSHI в зрелищно издание със седем нокаута
--  Найден новый признак болезни, вызывающей головокружение
--  Evropská komise začala vyšetřovat TikTok. Je to první velký test legislativy DSA
--  Διεθνής κατακραυγή: Ο δεύτερος θάνατος του Αλεξέι Ναβάλνι
--  Así se enrolla un burrito
--  "이태원 참사 잊었나"…경각심 잃은 불법건축물 '이행강제금 완화' 입법 추진 논란
--  FINALE ENGLESKOG LIGA KUPA: Hoće li Poketino razbiti kletvu ''Vemblija'' ili će Klop bajno započeti poslednju polusezonu na klupi Liverpula?
--  Juniori v Amerike opäť excelovali. Štyria Slováci boli hviezdami duelov
+-  Day, Rogers claim Summer of Surf series win after Classic finish
+-  Treviso, chi è la maîtresse da un milione all’anno: la lista dei clienti nelle mani dei carabinieri
+-  Пеевски въведе руските пропагандни клишета в българското медийно пространство
+-  زلزال بقوة 5.8 ريختر يضرب منطقة شينجيانغ بالصين
+-  Kim Kardashian 100 bin dolarlık Tesla Cybertruck ile şov yaptı
+-  Banklar Rusiyanın aktivlərinin müsadirə edilməsindən qorxurlar
+-  Treviso, chi è la maîtresse da un milione all’anno: la lista dei clienti nelle mani dei carabinieri
+-  Pusat AI Diluncurkan Pemerintah Arab Saudi, Apa Saja Tujuannya?
+-  „Великата смрад“: Вонящи факти от историята на Лондон (ВИДЕО)
+-  6 причини да пиете чай от магданоз
