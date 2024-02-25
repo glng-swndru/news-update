@@ -1,11 +1,11 @@
 # Latest News
--  ISANG HIMALA | The Rivermaya reunion concert we thought would never happen
--  Zwischen Selbstkritik und Trotz: LockBit rechtfertigt cyberkriminelle Handlungen
--  Skupovima širom sveta obeležena druga godišnjica rata u Ukrajini
--  Prezidentka poďakovala aj Marte Valovičovej z Banky
--  363 Atlet Berlaga di Kejuaraan Klub Mitra PB Djarum 2024
--  Moreno "confiante na permanência" do Chaves: «Vejo a equipa cada vez melhor»
--  Zwischen Selbstkritik und Trotz: LockBit rechtfertigt cyberkriminelle Handlungen
--  Zwischen Selbstkritik und Trotz: LockBit rechtfertigt cyberkriminelle Handlungen
--  Những nước Đông Nam Á hái quả ngọt nhờ 'đua' nới visa
--  Trump alla CPAC: “Sono un orgoglioso dissente politico degli Stati Uniti”
+-  Murshidabad Weather Updates: আজও বৃষ্টিতে ভিজবে মাটি, তাপমাত্রা নামবে বেশ খানিকটা
+-  근로자 100명 넘게 불법파견 60대 협력업체 대표 벌금형
+-  «Le plus fort», il a trouvé meilleur que Mbappé au PSG
+-  Aaj Ka Panchang 25 February 2024: राहु काल में न करें कोई शुभ काम, जानें क्या कहता है आज का पंचांग
+-  Hoy sí hablamos del Gobierno
+-  Siro López no Kiosko Alfonso
+-  Habrá nuevas consecuencias en los servicios de recogida de basura
+-  Surveillance by Sensor
+-  Why Star Trek's Marina Sirtis Doesn't Think Picard Season 3 Is The Best Work She's Done In The Franchise
+-  A large audience took part in an informative evening on Alzheimer’s and dementia
