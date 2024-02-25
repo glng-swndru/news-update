@@ -1,11 +1,11 @@
 # Latest News
--  ليكيب الفرنسية تنتقد حكيمي: يعمل بالنظام البطيء
--  Borguľa vo vytrvalostných pretekoch juniorov obsadil 41. miesto
--  A magyar válogatott középpályása kulcsfontosságú gólt szerzett klubcsapatában
--  Kein glanzvoller Abgang
--  Ukrajna tavaly megháromszorozta fegyvergyártását
--  Kadın futbolcuların derbisin de kazanan Gölcük
--  Luana Piovani diz que está apaixonada, mas não se casará novamente 'nem se Jesus descer'
--  Hiroşima'ya atom bombasının atıldığı anı gösteren saat 31 bin dolara satıldı
--  Hajto nie gryzł się w język. "To czas, aby zajęli się tym politycy"
--  Savaşın ikinci yıl dönümünde Kiev'den dikkat çeken açıklama
+-  The worst Leeds streets for crime in 2023 named by new West Yorkshire Police figures including Elland Road
+-  Srhljivka v središču Ljubljane! Imel je oster predmet, črne lase z redko brado in brki
+-  CEA Bétera y Peñota Dental Alusigma, campeones de España de Duatlón por Clubes 2024 en Albacete
+-  Eight gorgeous pups at Dogs Trust Leeds looking for new homes including loveable stray found with broken leg
+-  Chalmers pressures Senate on tax cuts
+-  Salon de l'agriculture : "Nous avons les meilleurs fromages de chèvre", explique François Bonneau, président de la Région Centre-Val de Loire
+-  Ex Man United & Arsenal Veteran To Start Lecce Vs Inter Milan Serie A Clash
+-  Handball, Regionalliga: Der nächste Tiefschlag für die SGL
+-  Billie Eilish live auf Leinwand gebannt: Mal-Event mit Künstler Frank Burkamp
+-  Amargo debut de Ilaix Moriba como titular
