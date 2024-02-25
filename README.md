@@ -1,11 +1,11 @@
 # Latest News
--  Peta Raihan Suara PKS di Pulau Jawa: Jadi Jawara di Jakarta, Tiga Besar di Jabar
--  Казахстанец завоевал «золото» лицензионного этапа Кубка мира
--  الدوري الإنجليزي.. إيوبي يمنح فولهام فوزاً نادراً على مانشستر يونايتد
--  Comment a-t-on pu vous cacher une remise aussi folle sur ce casque Bluetooth Bose ?
--  LIVEBLOG STVV-WESTERLO. Westerlo mist de 0-1, Ito brengt STVV op voorsprong!
--  رداً على قصف عيتا الشعب.. "حزب الله" يضرب بـ"البركان" ثكنة إسرائيليّة
--  Istra 1961 s igračem manje svladala Rudeš
--  Serkan Özbalta: "Hiçbir şey bitmedi itidalli olmamız lazım"
--  AB Yüksek Temsilcisi: İsrail'in yeni yerleşim planı kışkırtıcı ve tehlikeli
--  Ipswich Town: Alex Jones' player ratings from Birmingham City win
+-  OVA PEVAČICA GA JE NAJVIŠE RAZOČARALA: Bosanac bez zadrške o kandidatima u "Zvezdama Granda", evo ko je najbolje prošao od svih
+-  FUDBALSKA "LUDNICA" U TURSKOJ: Dušan Tadić i Fenerbahče bili pred nokautom, a onda golčina, pa neverovatan 96. minut (VIDEO)
+-  Pijnexpert over gordelroos: ‘Een van de pijnlijkste aandoeningen die je kunt hebben’
+-  SKANDAL NA IZBORU ZA ODLAZAK NA EVROVIZIJU Pevačica prestala da peva, a u pozadini se i dalje ČUO NJEN GLAS: "Neće se ponoviti" (VIDEO)
+-  Premier League: Η Φούλαμ σόκαρε τη Μάντσεστερ Γιουνάιτεντ στο 97'!
+-  Torcida u Varaždinu izvjesila zastave s Betisovim obilježjima
+-  Dave Bautista on How Dune: Part 2 Validates Him as an Actor | IGN Fan Fest 2024
+-  Furious Man Utd fans react to two players after Fulham defeat, one was ‘worst player’ on the pitch
+-  Fortsatt krevende å rekruttere til maritime fag – spesielt i nord
+-  Dave Bautista on How Dune: Part 2 Validates Him as an Actor | IGN Fan Fest 2024
