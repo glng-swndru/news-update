@@ -1,11 +1,11 @@
 # Latest News
--  Ege Denizi'nde peş peşe depremler korkuttu
--  शी जिनपिंग को बताया रूस का राष्ट्रपति, फिर फिसली बाइडेन की जुबान, याददाश्त को लेकर उठ रहे सवाल
--  Τα πρωτοσέλιδα των εφημερίδων την Κυριακή 25 Φεβρουαρίου
--  [속보] 민주, 정청래·서영교·권칠승·이개호 등 단수 공천
--  SAG Awards 2024 Complete Winners List: Oppenheimer dominates with big wins; Lily Gladstone takes home the best female actor trophy
--  Partai Oposisi yang Ada Berpotensi Tidak Solid
--  Mitch Cohen’s Blackbook: Storm Boy in ‘great shape’ for return
--  El intendente estuvo de Konga
--  Neue Regel gilt ab Juli: Diese kleine Box muss künftig in jedes Auto
--  Bharat Jodo Nyay Yatra: जनता से नहीं मिले, न ही राहुल ने दिया कोई संदेश, बुलंदशहर में लोगों के हाथ लगी मायूसी
+-  Żepp - February 25, 2024
+-  â€˜à¶‘à¶§à·Šà¶šà·�â€™ à¶…à¶­à·Šà·ƒà¶±à·Š à¶šà·… à¶´à·ƒà·” à¶»à¶§à¶§ à·ƒà·Šà·€à·›à¶»à·“à¶­à·Šà·€à¶º à¶…à·„à·’à¶¸à·’à¶ºà·’
+-  'We invited driver who killed our son to his funeral - then he showed his true colours'
+-  Islanders - February 25, 2024
+-  OVO JE ISTINA O ŠABANU I MIROSLAVU ILIĆU Ovako je Šaulić pred smrt govorio o slavuju narodne muzike
+-  PISALI JOJ "LAKO JE TEBI", A KOD KUĆE JE PROLAZILA GOLGOTU Influenserki Bojani Mutić je umro stariji sin, mlađem sa bore za život, a muke godinama ne prestaju: "Danima ne spavam"
+-  Army sweethearts killed in crash ‘packed more into two years than most do in lifetime’
+-  Escritores, bandidos y vaqueiros
+-  I live in the garbage capital of Birmingham and I'm dreading the City Council cuts
+-  Napi trükkös matek feladat: Mi a megoldás?
