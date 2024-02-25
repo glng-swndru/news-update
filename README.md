@@ -1,11 +1,11 @@
 # Latest News
--  Bez podrške za skraćenje mandata, Kralj vjeruje u dogovor većine
--  Tajemnicza śmierć 2-latka. Policja pilnie apeluje o pomoc
--  Muere mujer a la que le prendieron fuego en Salcedo
--  PONOVO JE LEDENA KRALJICA! Kim Kardašijan napravila šok transformaciju, nove slike obišle svet
--  Sagome Meloni, Salvini e Netanyahu con vernice rossa a Milano
--  ONLINE: Menšík bojuje o premiérový titul, ve finále hraje s Chačanovem
--  Dal corteo fischi alla bandiera israeliana al Pirellone
--  Това беше - Каранга бе изгонен (видео)
--  Belözoğlu’ndan Mağlubiyet Sonrası İstifa Açıklaması: ‘Gerekeni Yapacağım
--  Стало відомо, яким буде новий Xbox: консоль позбудеться важливої деталі
+-  Guarita da un linfoma, oggi Marta fa da tutor ai ragazzi oncologici
+-  Người cao nhất và thấp nhất thế giới tái ngộ ở Mỹ
+-  Ten test idealnie sprawdzi twój umysł! 20 pytań z wiedzy ogólnej
+-  Presos suspeitos de envolvimento na execução de dois homens em bar no MT
+-  Özgür Özel'den Halk TV'ye özel açıklamalar...
+-  Cinco trucos para dejar de consumir harinas
+-  CİMER'den "Cumhurbaşkanlığı'na ait kaç uçak ve helikopter var?" sorusuna ilginç yanıt!
+-  Powerball, hoy 24 de febrero: resultados de la lotería de Estados Unidos
+-  Akdeniz sahillerinde deniz anası tehlikesi
+-  Američke snage u akciji: Uništeni su
