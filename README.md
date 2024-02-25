@@ -1,11 +1,11 @@
 # Latest News
--  Havaya pompalı tüfeklerle ateş eden magandalar yakalandı
--  Yunanistan itti, Türk sahil güvenliği kurtardı. Sallara bindirip Bodrum açıklarına bıraktılar
--  Samsun'da yapılan uyuşturucu operasyonunda kişiye 3 gözaltı!
--  Call for calm after disturbance erupts outside Salah's
--  Черчесов рассказал, как заставлял игроков польской «Легии» учить русский язык
--  Boston nastavio seriju pobjeda
--  Eine Netflix-Serie über den grössten Porno-Star, ein rührender Adam-Sandler-Film, dazu der Goldene Bär für die Dokumentation über die Benin-Bronzen
--  Musi podsycać ogień 24 h na dobę. "Jeżeli nie zarobię pieniędzy, moje dzieci umrą z głodu"
--  Lukašenko najavio predsjedničku kandidaturu na izborima 2025.
--  Phim Hàn 'Exhuma' cán mốc 1 triệu khán giả trong thời gian kỷ lục
+-  ليكيب الفرنسية تنتقد حكيمي: يعمل بالنظام البطيء
+-  Borguľa vo vytrvalostných pretekoch juniorov obsadil 41. miesto
+-  A magyar válogatott középpályása kulcsfontosságú gólt szerzett klubcsapatában
+-  Kein glanzvoller Abgang
+-  Ukrajna tavaly megháromszorozta fegyvergyártását
+-  Kadın futbolcuların derbisin de kazanan Gölcük
+-  Luana Piovani diz que está apaixonada, mas não se casará novamente 'nem se Jesus descer'
+-  Hiroşima'ya atom bombasının atıldığı anı gösteren saat 31 bin dolara satıldı
+-  Hajto nie gryzł się w język. "To czas, aby zajęli się tym politycy"
+-  Savaşın ikinci yıl dönümünde Kiev'den dikkat çeken açıklama
