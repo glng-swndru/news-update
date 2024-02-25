@@ -1,11 +1,11 @@
 # Latest News
--  Day, Rogers claim Summer of Surf series win after Classic finish
--  Treviso, chi è la maîtresse da un milione all’anno: la lista dei clienti nelle mani dei carabinieri
--  Пеевски въведе руските пропагандни клишета в българското медийно пространство
--  زلزال بقوة 5.8 ريختر يضرب منطقة شينجيانغ بالصين
--  Kim Kardashian 100 bin dolarlık Tesla Cybertruck ile şov yaptı
--  Banklar Rusiyanın aktivlərinin müsadirə edilməsindən qorxurlar
--  Treviso, chi è la maîtresse da un milione all’anno: la lista dei clienti nelle mani dei carabinieri
--  Pusat AI Diluncurkan Pemerintah Arab Saudi, Apa Saja Tujuannya?
--  „Великата смрад“: Вонящи факти от историята на Лондон (ВИДЕО)
--  6 причини да пиете чай от магданоз
+-  Evo zašto biste u obzir trebali uzeti vjenčanje petkom ili nedjeljom
+-  В Канаде раскрыли, чьи «секретные агенты» убили эсэсовца из бывшего СССР
+-  Kiev, Zaporizhzhia attaccata dai russi per 263 volte in 24 ore
+-  Ecco cosa cucina Moreno Cedroni per i 40 anni della Madonnina del Pescatore
+-  Sierra Kerr and Jarvis Earle dominate to claim Surfest Pro Junior titles
+-  Susan Abulhawa: Pred nami se dogaja genocid, ki ga v živo prenašajo mediji
+-  Elképesztően jó lett a GTA VI első előzetesének a Minecraft-ban újraforgatott változata
+-  Cartón de Tony: Respetuosa colaboración
+-  «Πιάστηκε» με αφορολόγητα καπνικά προϊόντα - Συνελήφθη 60χρονος στη Λεμεσό
+-  দেশি প্রেমের গল্পে মুগ্ধ দর্শক
