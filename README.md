@@ -1,11 +1,11 @@
 # Latest News
--  На Ольшанке в Гродно может появиться небольшой ФОК для местных жителей: землю под него выставили на аукцион
--  2024 Elections: IEC to reveal independent candidates list
--  '로또 청약' 개포아파트 무순위 청약에 101만 명 몰려
--  CHP Bursa Büyükşehir Belediye Başkan adayı Bozbey metroda gençlerle sohbet etti
--  Vaucluse. Une fillette de sept ans tuée par un engin de chantier dans une propriété
--  Ex-Bundesliga-Profi: Ze Roberto debütiert in der Baller League
--  Alevi kadınlar Ankara'da buluştu: Daha çok dayanışma
--  Клуб Абдулазимовой вышел в полуфинал
--  Újra gyengül a forint, közel a 390-es szint
--  Denizli'de kayıp Süleyman Özsoydan 24 saattir dağ taş aranıyor
+-  Sportschool ONE Gym Venlo haalt zevenduizend euro op voor zieke Loa
+-  名物うどん “まかない飯”が人気看板メニューに アツアツ“おじやうどん” 広島市・太閤うどん
+-  ‘Monster, held, legende’: Britse pers lyrisch na ‘masterclass’ Virgil van Dijk
+-  Charlotte is home to 3 of the ‘most outstanding’ hotels in the world, Forbes says
+-  ‘임종석 공천’ 이르면 27일 결론
+-  Community holding 'standout' to show support for Brockton High School students, staff
+-  heise+ | Loslegen mit Kurzbefehlen: So arbeiten Sie mit Apples Shortcuts auf dem iPhone
+-  Employers in fight over ‘quality of life’
+-  WTI Oil retreats to $76 on low demand and trimmed positioning
+-  Is a $100 standing desk worth buying?
