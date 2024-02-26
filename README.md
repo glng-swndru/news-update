@@ -1,11 +1,11 @@
 # Latest News
--  à¶…à¶°à·’à¶šà¶»à¶« 27 à¶šà·Š à¶œà·’à¶±à·’ à¶­à·�à¶¶à·– à¶…à¶º à¶»à¶§à·š à¶ºà·”à¶šà·Šà¶­à·’à¶º à¶œà·�à¶± à¶…à·„à¶±à·€à·�
--  Grote zorgen over tekorten antibiotica voor kinderen: ‘Moet er eerst een slachtoffer vallen?’
--  수업 거부하던 인하대 의과대학 학생 81% 휴학계 제출
--  France-Italie : les coups de cœur et les coups de griffe de notre envoyé spécial
--  Szatírt fogtak Tatabányán, és letartóztatták a baloldali polgármester emberét - ez volt a hét vármegyénkben
--  Reporte de Mastercard señala a Costa Rica como uno de los países de Latinoamérica con más intentos de ataques cibernéticos en 2023
--  Perth artist combined passion and talent to create ceramics business
--  'Betraying the bush': Andrew Forrest lashes green energy go-slow - The Australian Financial Review
--  YKS başvurularında bugün son gün
--  Đội bóng của Văn Lâm 'thắp lửa' cho cuộc đua vô địch V-League
+-  VUČIĆ DANAS POČINjE KONSULTACIJE O MANDATARU: Prvi razgovori sa predstavnicima izbornih lista zakazani za 8 i 30
+-  Google Pixel 7a : Amazon casse le prix du smartphone de 22 %
+-  Guerre Israël-Hamas : Tsahal présente un plan pour l'"évacuation" des civils de la bande de Gaza
+-  Guerre Israël-Hamas : Tsahal présente un plan pour l'"évacuation" des civils de la bande de Gaza
+-  Who is August Brooksbank, Princess Eugenie’s son?
+-  Ukraine – Die Lage am Morgen: Selenski deutet neuen Plan für Krieg an – Mutmaßliche Hinrichtung Kriegsgefangener erschüttert Kiew
+-  Медицинские пункты начнут работу на особо опасных участках дорог в РК
+-  Guerre Israël-Hamas : Tsahal présente un plan pour l'"évacuation" des civils de la bande de Gaza
+-  O ili 'Sibirya Soğukları' vurdu!
+-  Who is August Brooksbank, Princess Eugenie’s son?
