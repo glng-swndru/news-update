@@ -1,11 +1,11 @@
 # Latest News
--  Lenovo ThinkPad X1 Carbon G12 dizüstü bilgisayar incelemesi: Üç yıl sonra ilk büyük yenileme
--  "삼성전자, 국내 200대 기업 중 ESG 종합평가 1위"
--  Tentara AS Nekat Bakar Diri di Depan Kedubes Israel
--  Xe ga giá 31 triệu, thiết kế đẹp hơn hẳn Vision khiến dân tình xôn xao có gì đặc biệt?
--  လူထုအခြေပြု ခရီးသွားလုပ်ငန်း ခရီးစဉ်ဒေသအသစ်ကို ညောင်ဦးမြို့တွင် ဖော်ဆောင်မည်
--  금감원 지적에 카카오모빌리티 회계 기준 변경
--  분위기 달아오른 한화… 오키나와에서 가을야구 향해 담금질
--  අධික රස්නයෙන් මරණ අවදානමක්
--  대전 곳곳에서 꿈씨 패밀리 만난다…활동 본격화
--  이개호 단수공천에 담양·함평·영광·장성 지역구 경쟁후보들 반발
+-  Canadian women’s squad finish third at HSBC SVNS, men finish 12th
+-  Kira sorunu geçim sorununa dönüştü
+-  Professora agride e goza com alunos em Camarate
+-  Uus Dikritik Karena Sebut Cewek Lagi Haid seperti Penderita Bipolar
+-  नफे सिंह राठी की हत्या, सियासी रंजिश या कोई और वजह... उठे ये सवाल
+-  Ukrainian troops improvising medical supplies: UNIFIER training commander
+-  Vendaval de golos atrasa 'leão' e isola as 'águias'
+-  Stock Radar: Time to buy? SBI Life breaks out from consolidation range since December 2023, says Shitij Gandhi
+-  Darçın diabetdən əziyyət çəkən xəstələrə necə təsir edir?
+-  The trials and tribulations of transferring your car registration
