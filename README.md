@@ -1,11 +1,11 @@
 # Latest News
--  VUČIĆ DANAS POČINjE KONSULTACIJE O MANDATARU: Prvi razgovori sa predstavnicima izbornih lista zakazani za 8 i 30
--  Google Pixel 7a : Amazon casse le prix du smartphone de 22 %
--  Guerre Israël-Hamas : Tsahal présente un plan pour l'"évacuation" des civils de la bande de Gaza
--  Guerre Israël-Hamas : Tsahal présente un plan pour l'"évacuation" des civils de la bande de Gaza
--  Who is August Brooksbank, Princess Eugenie’s son?
--  Ukraine – Die Lage am Morgen: Selenski deutet neuen Plan für Krieg an – Mutmaßliche Hinrichtung Kriegsgefangener erschüttert Kiew
--  Медицинские пункты начнут работу на особо опасных участках дорог в РК
--  Guerre Israël-Hamas : Tsahal présente un plan pour l'"évacuation" des civils de la bande de Gaza
--  O ili 'Sibirya Soğukları' vurdu!
--  Who is August Brooksbank, Princess Eugenie’s son?
+-  Deux chefs de Toulon et Ollioules décrochent la médaille d'or aux Olympiades culinaires
+-  STELLANTIS- AYVENS Y CO HAN LLEGADO A UN ACUERDO MARCO MULTIMILLONARIO...
+-  Glasgow Marie Curie charity shop staff walk out on 'strike'
+-  Can you guess how much these items sold for on BBC Bargain Hunt?
+-  Atasi Kenaikan Harga Beras, Pemkot Depok Siap Gelar Bazar Murah dan Operasi Pasar
+-  So viele ukrainische Geflüchtete leben im Landkreis Osnabrück
+-  3 Bedroom Home in Helena - $505,000
+-  Schlechte Leistungsbeurteilung im Job? Das können Sie jetzt tun
+-  Menikah, Nessie Judge Anggun Berkebaya Putih dengan Detail Ekor Panjang
+-  Erik ten Hag names the ‘very sharp’ Manchester United youngster who impressed him against Fulham
