@@ -1,11 +1,11 @@
 # Latest News
--  Карлос Насар изведе тима си до върха във Втора бундеслига
--  批夏立言6度挑敏感時機赴中 民進黨團：台灣民意支持嚴正執法
--  പെർളയിൽ 100 കിലോ കഞ്ചാവുമായി രണ്ടുപേർ പിടിയിൽ
--  Wahju Prihandono Membuka Pelatihan Pengelolaan BMN Akt II Badiklat Kumham Sulut
--  Просроченные лекарства использовали в медпунктах школ Караганды
--  [스경X오키나와]모두가 류현진을 환영할 때, 이태양은 1985년생 고참을 떠올렸다 “우람이형, 이럴 때 함께 했으면”
--  Forget Tay! Fans go wild over Anna Paul as she attends Taylor Swift's Sydney show
--  Taiwan’s Pacific ally Tuvalu names Feleti Teo as new prime minister
--  EPL 리버풀, 연장 혈투 끝 첼시 꺾고 카라바오컵 우승
--  [스경X오키나와]모두가 류현진을 환영할 때, 이태양은 1985년생 고참을 떠올렸다 “우람이형, 이럴 때 함께 했으면”
+-  Yolcu otobüsü otomobille çarpıştı: 4 yaralı
+-  Suncorp pushes big premium increase in bid to grow profit margins - The Australian Financial Review
+-  黃國昌2026新北市長入選項 侯友宜：藍人才多、對地方了解透徹
+-  Kuasa Hukum Sebut Firli Bahuri Sudah Tiba di Bareskrim Polri
+-  Malaysia must elevate itself internationally as a supporter of peace, says King
+-  В азербайджанском городе пять членов одной семьи отравились угарным газом
+-  'Loss of dignity' difficult to witness in Gaza, medical volunteer says
+-  Tiền đổ mạnh vào Nhóm thuỷ sản, cổ phiếu VHC, ANV, ASM tím hàng loạt: Điều gì đang xảy ra?
+-  اَلْجوهر المفْقود..!!
+-  Dinslaken: Achtung Autofahrer, hier stehen Radarfallen
