@@ -1,11 +1,11 @@
 # Latest News
--  Zamjenik ukrajinskog premijera: U Poljskoj uništeno 160 tona ukrajinskog žita
--  Минское и московское "Динамо" встретятся в первом раунде плей-офф Кубка Гагарина
--  Oamenii de afaceri deveniți politicieni, ale căror familii câștigă contracte de sute de milioane de euro din bani publici
--  Live: Λέτσε - Ίντερ
--  Przebił Małysza i Stocha! Wspaniałe osiągnięcie znanego skoczka
--  Зеленський: Цей рік переломний, від нього може залежати формат закінчення війни
--  Nella casa di Pertini a Stella, tra libri, pipe e foto ricordo. A 34 anni dalla scomparsa, ecco perché resta l’indimenticato Presidente partigiano
--  Bewährtes, Neues, Rekordverdächtiges und zwei Jubiläen
--  Bantai Getafe 4-0, Felix Sebut Barcelona Beri Tekanan Hebat kepada Real Madrid
--  Bewährtes, Neues, Rekordverdächtiges und zwei Jubiläen
+-  Burkina Faso'da kiliseye düzenlenen saldırıda 15 kişi öldü
+-  Ucrania tiene un plan para una nueva ofensiva contra Rusia, dice Zelenski
+-  UK weather maps show north-south divide as 400-mile snow bomb brings -3C Arctic freeze
+-  Sigvaldi og félagar norskir bikarmeistarar
+-  Kvalifikacije za Eurobasket: Iznenađenje u Botevgradu - Bugarska...
+-  Boston Celtics bate New York Knicks com facilidade e chega a 8ª vitória seguida
+-  Nyt puhuu Iivo Niskanen – kiistää rajut väitteet käytöksestään Kuopiossa
+-  Країни ЄС почали активніше купувати м'ясо українського виробництва: куди ще експортуємо
+-  Michelin-koorts: krijgt ons land er straks een nieuw driesterrenrestaurant bij? “Nieuw Hof van Cleve maakt opmars”
+-  충주 다가구 주택 불…1명 화상입어
