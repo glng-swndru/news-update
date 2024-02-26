@@ -1,11 +1,11 @@
 # Latest News
--  “너희가 뭐가 달라?”…의사들 반발에 정색하는 조승우 화제
--  Aatas Lonjakan Gula Darah dan Cegah Diabates, Zaidul Akbar Bagikan Resep Sehat Bahan Mudah Didapat
--  El SMN emitió una alerta naranja por tormentas para toda la provincia de Entre Ríos
--  Fristen und Neuerungen: Steuererklärung für 2023 abgeben: Das müssen Sie beachten
--  Tôi 72 tuổi, từ chối khi con trai hỏi vay 1,7 tỷ đồng, giờ "ngã bệnh" mới ân hận: Đừng giữ bo bo tiền tiết kiệm!
--  황운하·소병철 불출마 선언···민주당 현역 15명째
--  Opt femei, care au fost acuzate de vrăjitorie, au murit otrăvite. Alte câteva zeci au ajuns la spital
--  Vulin: Pokažite koji je grad ljepše i iskrenije od Zagreba dočekao Hitlerovu vojsku
--  Blackburn menace jailed and banned from driving again
--  De Beers в 2023 году сократила EBITDA почти в 20 раз
+-  Aktuelle Studie: Darmentzündung erneut mit Alzheimer-Krankheit in Verbindung gebracht
+-  Zmiany w składce zdrowotnej. "Cały czas w logice Polskiego Ładu"
+-  Зендая - В епос за милиони - Труд
+-  SNP chief executive Murray Foote staying away from key election work
+-  Pelaku Curanmor Bersenjata Airsoft Gun Diamuk Massa di Cisaranten Bandung
+-  İsrail ordusu, "Refah planını" Savaş Kabinesi'ne sundu
+-  New map shows most common illegal drugs flooding the streets in Kent
+-  How to find a cruise excursion you’ll actually enjoy
+-  Estados en los que menos pagan sus préstamos de autos en EEUU
+-  Protestas de los agricultores, en directo: las tractoradas vuelven a Madrid
