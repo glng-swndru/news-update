@@ -1,11 +1,11 @@
 # Latest News
--  Nisu ih impresionirali "milion(er)i" - Hofenhajm slavio u Dortmundu (video)
--  Olimpija brez zadetka v Brunicu
--  Aankomende zomer gaat Ajax een berg geld kosten, maar het kan niet anders
--  Nikola Jović suspendovan
--  Column Willem van Hanegem | Aankomende zomer gaat Ajax een berg geld kosten, maar het kan niet anders
--  Minamino, malice et talent... Voici les notes des joueurs après la victoire de l'AS Monaco à Lens
--  مدير تربية مديرية الضالع يفتتح المعرض السنوي بمدرسة الشهيد السنمي الموحدة
--  Alagoas Brancas: “Nem um metro cúbico de cimento” onde uma estrela rara flutua nas águas
--  Blokada poljskih kmetov na meji z Nemčijo
--  Incidente stradale nel Brindisino, due morti e un ferito
+-  Между Сербией и Хорватией разгорелся скандал
+-  تعرف على سعر الصرف وبيع العملات مساء الاحد بعدن
+-  Pisa, le parole di chi c'era: "Tenevamo le braccia alzate per far vedere che non eravamo armate"
+-  Сальдо раскритиковал Зеленского за обещанное «особенное» выступление
+-  Сакаряспор на Здравко Димитров загуби от лидера в Първа лига на Турция
+-  Endo yfirgaf Wembley á hækjum
+-  CHP'li Yavuzyılmaz paylaştı: İliç'te yığın liçi onayını Murat Kurum vermiş
+-  Critican a directivas de Nacional por dejar solo a Maturana en palco de El Campín
+-  Eindelijk stond er in ‘Kamp Waes’ een proef op het programma waarbij ook de meest doorwinterde couch potato zich iets kon voorstellen
+-  Minuto Consumidor: sabe que está a participar nos prémios da Fatura da sorte?
