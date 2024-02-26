@@ -1,11 +1,11 @@
 # Latest News
--  Между Сербией и Хорватией разгорелся скандал
--  تعرف على سعر الصرف وبيع العملات مساء الاحد بعدن
--  Pisa, le parole di chi c'era: "Tenevamo le braccia alzate per far vedere che non eravamo armate"
--  Сальдо раскритиковал Зеленского за обещанное «особенное» выступление
--  Сакаряспор на Здравко Димитров загуби от лидера в Първа лига на Турция
--  Endo yfirgaf Wembley á hækjum
--  CHP'li Yavuzyılmaz paylaştı: İliç'te yığın liçi onayını Murat Kurum vermiş
--  Critican a directivas de Nacional por dejar solo a Maturana en palco de El Campín
--  Eindelijk stond er in ‘Kamp Waes’ een proef op het programma waarbij ook de meest doorwinterde couch potato zich iets kon voorstellen
--  Minuto Consumidor: sabe que está a participar nos prémios da Fatura da sorte?
+-  Polt Péterék elmondták, melyik korrupciós mérésnek hisznek
+-  Ronaldo skoraði úr víti í sigri Al-Nassr - Markahæstur með 22 mörk
+-  "Imam dobru ideju!" Miljana spremna na sve kako bi bila sama sa Darjanom, sada od produkcije tražila ovo
+-  Израиль отложит операцию в Рафахе
+-  Gus Ipul Sarankan PKB Terima Hasil Pemilu
+-  Toluca hunde a Tijuana en el 'Infierno' con su triunfo en la jornada 8 de la Liga MX
+-  Україна, ймовірно, модернізувала старі ракети до ЗРК С-200, щоб бити на 250 км, - Forbes
+-  مدير عام تبن يدشن المخيم الطبي لإزالة المياه البيضاء
+-  Seks pozisyonunu “yenilikçi fitness” diye tanıttılar
+-  Аугсбург - Фрайбург 2:1 /репортаж/
