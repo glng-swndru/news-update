@@ -1,11 +1,11 @@
 # Latest News
--  Superclasico berbaere bitti: İşte muhteşem görüntüler
--  Mon bistro de quartier à Vichy : Le Helder, le café où ne vienne que les habitués
--  Wataru Endo in celebratory mood after playing part in Liverpool's League Cup triumph
--  Генич о том, что судьи будут объявлять решения после ВАР: «А какой в этом смысл? Может, лучше переговоры у монитора озвучивать, а не констатацию решения?»
--  Ronaldinho Acun'dan Survivor için ne kadar para aldı?
--  На Украине заявили о сложной ситуации для ВСУ на многих направлениях
--  Lo spettacolo del Premier Padel su Supertennis. Carraro: "L'anno della svolta"
--  Elazığ’da maden ocağında göçük...
--  9 yaşındaki kızın ölümü intihar değil cinayet çıktı!
--  Το Οικονομικό Φόρουμ των Δελφών IX επιστρέφει 10 με 13 Απριλίου 2024
+-  Japonský modul SLIM přečkal lunární noc a nečekaně obnovil spojení se Zemí
+-  à¶¸à·™à·Š à·€à·ƒà¶»à·š à¶¢à¶½ à¶œà·�à·ƒà·Šà¶­à·” à·€à·�à¶©à·’ à·€à·“à¶¸à¶šà·Š à¶±à·‘
+-  Домашна млечна салата, поръсена с орехи
+-  ［김성근 칼럼］제2의 선동열과 이대호를 위하여···슈퍼 파워를 만드는 부드러움
+-  Уряд схвалив оформлення тимчасового посвідчення громадянина України на окупованих територіях
+-  Yokogawa Releases OpreX Carbon Footprint Tracer to Support Decarbonization in the Process Manufacturing Industries
+-  Magičan potez Luke Modrića podsjetio je na detalj otprije 11 godina: 'I tada su sumnjali u njega'
+-  ‘의처증’에 이혼 요구한 아내 폭행·흉기로 살해한 70대, 구속 송치
+-  Auto ziņas: no kā gatavots "Volvo" jaunākais elektromobilis EX30?
+-  Предупреждават за опасност от лавини у нас
