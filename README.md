@@ -1,11 +1,11 @@
 # Latest News
--  Burkina Faso'da kiliseye düzenlenen saldırıda 15 kişi öldü
--  Ucrania tiene un plan para una nueva ofensiva contra Rusia, dice Zelenski
--  UK weather maps show north-south divide as 400-mile snow bomb brings -3C Arctic freeze
--  Sigvaldi og félagar norskir bikarmeistarar
--  Kvalifikacije za Eurobasket: Iznenađenje u Botevgradu - Bugarska...
--  Boston Celtics bate New York Knicks com facilidade e chega a 8ª vitória seguida
--  Nyt puhuu Iivo Niskanen – kiistää rajut väitteet käytöksestään Kuopiossa
--  Країни ЄС почали активніше купувати м'ясо українського виробництва: куди ще експортуємо
--  Michelin-koorts: krijgt ons land er straks een nieuw driesterrenrestaurant bij? “Nieuw Hof van Cleve maakt opmars”
--  충주 다가구 주택 불…1명 화상입어
+-  MI vs GG, WPL 2024: Harmanpreet, Amelia shine as Mumbai Indians beat Gujarat Giants by 5 wickets
+-  Napoli pareggia, Pistocchi sentenzia: "Non è guarito, missione impossibile per la Champions"
+-  Betis Sevilla porazil ve španělské fotbalové lize 3:1 oslabené Bilbao
+-  Cucchi: "Nel Napoli cambiano solo gli allenatori, i problemi restano"
+-  Jaime David pide a Leonel que "se sacrifique" y apoye a Abel
+-  Adana Demirspor başkanı Murat Sancak istifa etti
+-  Meydanlarda 'Cumhur' fırtınası: 3 günde 220 bin
+-  Hafta boyunca hava nasıl olacak ? İşte gün gün hava durumu tahminleri
+-  «Куньлунь» — СКА: видеообзор матча КХЛ
+-  السيد: لا داعي للهلع…
