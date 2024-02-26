@@ -1,11 +1,11 @@
 # Latest News
--  Германия ведет тайные переговоры с Индией о военной помощи Украине. Речь идет о поставках сотен тысяч снарядов
--  Внимание: новый опрос на портале Gorod.lv
--  Die Ballettschule Ina Zurek bleibt weiter in Sulingen
--  مقارنة بين فوفانا وسافيتش قبل مواجهة الهلال والاتفاق
--  Enrique skipti Mbappe af velli - „Fyrr eða síðar þurfum við að venjast því að spila án hans“
--  Presidente da Guiné-Bissau tem “ciúmes” de Amílcar Cabral?
--  CIAK, MI GIRA! - MENTRE INFURIA LA GUERRA DEI FERRAGNEZ, IL CINEMA, VAI A CAPIRE PERCHÉ, FESTEGGIA VITA, OPERE E CANNONI D’ERBA DI BOB MARLEY IN UN BIOPIC DEFINITO MODESTO DA TUTTA LA CRITICA, “BOB MARLEY: ONE LOVE”, CHE VINCE IL WEEKEND DA NOI CON 1 MILIONE 207 MILA EURO. SOLO IERI HA INCASSATO 411 MILA EURO CON 53 MILA SPETTATORI. MAGARI IL RITORNO AL REGGAE E AI CANNONI CI PORTERÀ A RAGIONARE IN MANIERA DIVERSA ANCHE SUL DISASTRO POLITICO DEL PAESE… - VIDEO
--  大津・石山寺の大河ドラマ「光る君へ」館、来館１万人達成 当初予想の2倍のペース
--  Gun safety scrutinised after police Glock allegedly used in murders
--  Ex Ilva: incontro sindacati-Urso domani a Taranto ++
+-  Superclasico berbaere bitti: İşte muhteşem görüntüler
+-  Mon bistro de quartier à Vichy : Le Helder, le café où ne vienne que les habitués
+-  Wataru Endo in celebratory mood after playing part in Liverpool's League Cup triumph
+-  Генич о том, что судьи будут объявлять решения после ВАР: «А какой в этом смысл? Может, лучше переговоры у монитора озвучивать, а не констатацию решения?»
+-  Ronaldinho Acun'dan Survivor için ne kadar para aldı?
+-  На Украине заявили о сложной ситуации для ВСУ на многих направлениях
+-  Lo spettacolo del Premier Padel su Supertennis. Carraro: "L'anno della svolta"
+-  Elazığ’da maden ocağında göçük...
+-  9 yaşındaki kızın ölümü intihar değil cinayet çıktı!
+-  Το Οικονομικό Φόρουμ των Δελφών IX επιστρέφει 10 με 13 Απριλίου 2024
