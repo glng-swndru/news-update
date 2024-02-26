@@ -1,11 +1,11 @@
 # Latest News
--  خلال يناير الماضي.. رصد 5,687 مخالفة للمباني في جدة
--  米アルコア、豪アルミナに22億ドルの買収提案－独占交渉入り - Bloomberg - ブルームバーグ
--  Nuova pediatra all’ambulatorio municipale
--  Milan-Atalanta, Pioli: “Rigore? Troppo poco per il metro di Orsato. Leao…”
--  Policía Cibernética investiga filtración de teléfonos de miembros de Morena: Noroña
--  Survivor'da acil durum konseyi! Pınar ile kavga eden Sema diskalifiye mi oldu?
--  NZD/USD forecast: signal ahead of RBNZ rate decision
--  Bree Hall scores 18, No. 1 South Carolina women has 6 in double figures to rout Kentucky 103-55
--  Il primo singolo del 17enne Locro Best oggi il debutto sul red carpet del Nhero
--  Milan-Atalanta 1-1: il tabellino della gara
+-  Spirit Awards: ‘Anatomy Of A Fall’, ‘Four Daughters’, Da’Vine Joy Randolph And Nick Offerman Among Early Winners - Deadline
+-  Argentinské finále v Riu de Janeiro ovládl hladce Báez
+-  "이게 뭔 일"…알리 들어가봤더니 낯 뜨거운 추천 검색어
+-  Otomobil ve yolcu otobüsü çarpıştı: Yaralılar var
+-  Medical Examiner identifies man fatally stabbed in Keeaumoku area
+-  Volunteers across the islands count 2,141 humpback whales
+-  Argentinské finále v Riu de Janeiro ovládl hladce Báez
+-  Man, 39, injured in Ewa Beach robbery
+-  [뉴스딱] 점심값 500원…아이들 1천 명 찾은 식당 '훈훈'
+-  Kauai pedestrian, 55, dies after being struck by vehicle
