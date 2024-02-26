@@ -1,11 +1,11 @@
 # Latest News
--  Gümüşhane'den Türkiye için kara haber geldi! Sakın renklerine bakıp aldanmayın aslında durum çok vahim
--  Знаете ли колко често се полива кактус
--  Após resgate no mar em Vila do Conde, Marinha destaca "alerta ativo" para agitação marítima
--  Cum să prepari savarina acasă. Trucul ca să faci prăjitura adorată în România
--  Feltre, gli alpini della sezione Ana sfilano per la città
--  SZĽH kritizuje Ružičku, na MS do Česka ho nevezme. Životná chyba, môže si za to sám, vraví komentátor.
--  Poslovni rezultati kompanija potaknuli Crobexe na rekordne razine
--  Angriffe auf Politiker: Werden die Grünen zum Feindbild?
--  Król Karol III wydał oświadczenie, w którym wychwalał Ukraińców. „Prawdziwe męstwo”
--  Król Karol III wydał oświadczenie, w którym wychwalał Ukraińców. „Prawdziwe męstwo”
+-  Эксперт Тимочко: у ВСУ нет носителей и инфраструктуры для немецких ракет Taurus
+-  Mordkommission ermittelt: Tote Frau mit Stichverletzungen in Hünxer Ladenlokal entdeckt
+-  Thousands pack Old Sacramento for Mardi Gras Carnaval
+-  Ukrajina skupi ruski A-50 nije srušila Patriotom nego ovom brutalnom raketom
+-  Eleições EUA: Haley diz que tem o dever de seguir para evitar disputa ao 'estilo soviético'
+-  Ludilo! Opozicija zahtevala nove izbore u Beogradu, a sad ih neće i optužuje Vučića!
+-  رابطة المحترفين تحدد مواعيد 5 جولات
+-  Malut United Vs Semen Padang Tanpa Pemenang, Ada Cekcok, Pelatih Kena Kartu Kuning
+-  Fazilet Özdenefe: Köpek balığının öldürülmüş olması nedeniyle gurur duyulacak bir durum yok
+-  Konstanze Klosterhalfen: Schlechte Gefühle beim Comeback
