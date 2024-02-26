@@ -1,11 +1,11 @@
 # Latest News
--  Stebbins teaches freshmen life skills to promote better mental health
--  Belarus Lideri Lukaşenko Aydınlık ve Ulusal Kanal'ın sorularını yanıtladı
--  Fi: Tripodi, 'con elezione Tajani inizia nuovo futuro'
--  LIVE: Ανόρθωση – ΑΠΟΕΛ 0-0 (pics)
--  Ankaragücü - Fenerbahçe Türkiye Kupası maç biletleri çıktı! Fiyatları gören şok oldu
--  NBA-Előjáték: Lillardban bízik a Bucks, hajrát nyitna a rájátszásért a Lakers
--  GALLERY: Police Emerald Society 2nd Annual Oyster Roast Fundraiser
--  One of world's biggest cities may be months from running out of water
--  „Füllen Putins Kriegskasse immer weiter mit Geld“: Deutschland bezieht weiter Gas aus Russland
--  „Füllen Putins Kriegskasse immer weiter mit Geld“: Deutschland bezieht weiter Gas aus Russland
+-  Recy Home trabaja en el desarrollo y la industrialización de su centro de gestión de residuos en Tarancón
+-  5 giáo sư đại học trẻ nhất lịch sử thế giới
+-  Helldivers 2, la capacità dei server è stata aumentata ancora: Arrowhead guarda avanti
+-  10 películas de terror muy buenas que se transmiten en Netflix ahora mismo
+-  Stationshuset – en historia om kärlek, öl och makt
+-  Begini Cara Polres Simalungun Jamin Keamanan di Jalan Raya dan Balap Liar
+-  Não sente o mesmo pelo seu parceiro? Estas são as frases que podem estar prejudicando a relação
+-  9 VEŽBI ZA POBOLjŠANjE MOŽDANE AKTIVNOSTI: Stimulišu mozak, bistre um i jačaju svaku moždanu ćeliju (VIDEO)
+-  Millions of iPhone owners can unlock three freebies worth £123 – the first is 3 months of Apple TV+
+-  Geoană: Dacă Rusia va interveni în Transnistria, NATO va condamna acest fapt și va continua să sprijine Republica Moldova
