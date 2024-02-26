@@ -1,11 +1,11 @@
 # Latest News
--  12檔ETF 去年配息後維持正報酬
--  今後の波乱をヘッジする8つの投資。7人のストラテジストは「ゴルディロックス」を信じていない
--  일본·북미 삼킨 ‘르세라핌 파워’
--  藍委投票 將禮讓民眾黨一席召委
--  VÍDEO: Gyökeres confirma reviravolta do Sporting em Vila do Conde
--  Zamjenik ukrajinskog premijera: 'U Poljskoj uništeno 160 tona ukrajinskog žita'
--  歐力士偷心攻勢犀利 女球迷飆升189%
--  威能帝黃子鵬 週日雙先發巨人
--  原子邦妮MV北海道取景 吳子霏雪地獨舞查查落淚
--  龍千玉挺曹西平創業 前小叔開口來者不拒
+-  સિવિલ ખાતે 437 કરોડના ખર્ચે બનનાર અદ્યતન હોસ્પિટલનું ઇ-ખાતમુહૂર્ત કરાયું
+-  Schock in der 98. Minute: VfB Hüls ärgert sich über Schiedsrichter
+-  Долар - лев. Колко струва един щатски долар към един български лев днес, 26 февруари /валутен калкулатор/
+-  نبرد میلان و آتالانتا برنده نداشت
+-  Kakaopreis auf Rekordstand: Wird die Tafel Schokolade bei Nestlé und Mondelez teurer oder kleiner?
+-  Weekly MoneyFM Podcasts: Stock winners & losers of Indonesia’s presidential elections
+-  Baby Lasagna je pobjednik Dore
+-  Sarah Michelle Gellar speaks in favour of Shannen Doherty after Alyssa Milano feud
+-  Perez ziet probleem voor Ajax: ‘Hij voelt zich te goede speler om te verdedigen’
+-  Μίλαν σε…κρίση, δεύτερο σερί «στραβοπάτημα»! (ΒΑΘΜΟΛΟΓΙΑ)
