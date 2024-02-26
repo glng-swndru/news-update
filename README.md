@@ -1,11 +1,11 @@
 # Latest News
--  Polemik Jalur Sepeda, DPRD DKI segera Panggil Dishub
--  Năm 2024, trường hợp nào được miễn thuế, phí khi sang tên Sổ đỏ?
--  Coca-Cola brings back 'happiness in a bottle' after fans demand return of popular flavour
--  Xúc động lá đơn xin gác lại việc học, xung phong nhập ngũ của nữ sinh Ê-đê
--  テックレビュー： 食品・栄養新製品開発のための人工知能とチャットGPTの限界
--  서울청장 "윤 대통령 조작 영상 ID 확보…곧 압수수색"
--  'Not in dreamland': WTO aims for modest outcomes at Abu Dhabi meeting
--  星國砸蛋網美凱蒂「揪乾妹極樂台男」！1男只給5分鐘 PO裸身辣照惹議
--  The best, worst, and most surprising moments from the 39th Independent Spirit Awards
--  日米共同訓練「アイアン・フィスト24」始まる 離島防衛など想定した【長崎県佐世保市】
+-  OPINION: SD sviker löftet till arbetslösa och sjukskrivna
+-  ‘মিস্টার পারফেকশনিস্ট’ তকমা নিয়ে মুখ বললেন আমির
+-  L’éphéméride du 26 février : joyeux anniversaire à Sébastien Loeb !
+-  Profesorius Laurinaitis pasidalijo, kaip pats įveikė perdegimą: grįždavau namo, kaip įsiutęs šuo
+-  Editorial: Picadillo territorial
+-  إحصائيات أوتافيو أمام الشباب
+-  I Need To Talk About The Lexus TX's Bizarre Cup Holders - Gizmodo Australia
+-  Photo – Italy Star Celebrates Inter Milan Serie A Route Of Lecce: ‘My Obsession!’
+-  Karl-Heinz Rummenigge pleased with Bayern Munich’s winter transfer window overall
+-  Spragos Baltijos šalių pasieniuose? Dalis sankcionuojamų prekių ir toliau gali pasiekti Rusiją
