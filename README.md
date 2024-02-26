@@ -1,11 +1,11 @@
 # Latest News
--  Sportschool ONE Gym Venlo haalt zevenduizend euro op voor zieke Loa
--  名物うどん “まかない飯”が人気看板メニューに アツアツ“おじやうどん” 広島市・太閤うどん
--  ‘Monster, held, legende’: Britse pers lyrisch na ‘masterclass’ Virgil van Dijk
--  Charlotte is home to 3 of the ‘most outstanding’ hotels in the world, Forbes says
--  ‘임종석 공천’ 이르면 27일 결론
--  Community holding 'standout' to show support for Brockton High School students, staff
--  heise+ | Loslegen mit Kurzbefehlen: So arbeiten Sie mit Apples Shortcuts auf dem iPhone
--  Employers in fight over ‘quality of life’
--  WTI Oil retreats to $76 on low demand and trimmed positioning
--  Is a $100 standing desk worth buying?
+-  "Все забыли, что такое ресторан". Леонид Могдалов назвал главные ошибки в этом бизнесе
+-  China Is Stockpiling for the Next Phase of the Chip Wars
+-  لتسهيل المعاملات.. "العدل" تعلن إطلاق البطاقة الرقمية للمحامين
+-  Самая суровая работа в Гродно: кем и за сколько можно устроиться в тюрьму
+-  Poliklinike Affidea – sinonim za izvrsnost u pružanju zdravstvene skrbi
+-  King Charles has 'no bond' with Prince Archie and Princess Lilibet for heartbreaking reason
+-  Vibrant Hanfu Parade sparks enthusiasm in Valletta
+-  Jokic faz história e comanda vitória do Denver Nuggets diante dos Warriors na NBA
+-  "ONE SU UNAKAZILE NAŠU PROFESIJU" Ivana Krunić o elitnoj prosituciji: Kada kažem da sam pevačica...
+-  "المقاومة ستفاجئ العدو كما فاجأته اليوم"... نائب الحزب: العدوان على بعلبك لن يمر دون رد
