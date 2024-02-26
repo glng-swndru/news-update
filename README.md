@@ -1,11 +1,11 @@
 # Latest News
--  Kata Kemenag soal Kalender Hijriyah Global Tunggal yang Diberlakukan Muhammadiyah
--  Apple'ın giyilebilir teknolojilere dair yol haritası: Akıllı gözlükler ve kameralı AirPods
--  Jeep cuts US pricing as new leaders alter strategy ahead of EV launches
--  Overdoing these healthy foods can be harmful for kids
--  「日本版DBS」骨子案、近く与党に提示へ 安全確保措置が義務に
--  Eintrittspreise fürs Bädle bleiben fast unverändert
--  Reforestación con dron: el proyecto piloto que busca revivir la Sierra de Arteaga
--  Ineos Fusilier: Hayallerinizdeki elektrikli retro arazi aracı!
--  Guinness-gulping Irish racehorse bought for just €850 to line up at Cheltenham as trainer John Hanlon praises support
--  岸田内閣支持率が発足後最低…自民党支持率も政権復帰後最低に【与党キャップ横堀拓也の世論調査解説】
+-  Κλιμάκωση στο Λίβανο - Ισραηλινά πλήγματα στο Μπάαλμπεκ (ΒΙΝΤΕΟ)
+-  Far west tra Vigne Nuove e Talenti: la spaccata al Pewex, gli estintori svuotati durante l'inseguimento
+-  Preisüberwacher Stefan Meierhans spürt Sorgen der Bevölkerung angesichts der Teuerung
+-  MWC 2024: Surranópályán gurult be a Xiaomi SU7
+-  SRAMNO PONAŠANjE TUŽITELjKE BOŽOVIĆ: Ne zanima je ubistvo mladića (23) u Beogradu
+-  Hoàng Kim Khánh khoe ảnh Koenigsegg Regera đang về Việt Nam cùng garage chật kín xe, CĐM thắc mắc: ‘Sao còn chỗ cho siêu phẩm’
+-  Ế ẩm, nhiều ngân hàng tiếp tục hạ giá bất động sản thế chấp mong sớm "thoát hàng"
+-  선관위, ‘조국신당’ 사용 불허···‘조국’ 포함은 가능
+-  Education in crisis | Eastern Cape department offices left powerless
+-  Są nowe wieści ws. przyszłości Szczęsnego. "Juventus wybrał następcę"
