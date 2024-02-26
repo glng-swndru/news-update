@@ -1,11 +1,11 @@
 # Latest News
--  Spirit Awards: ‘Anatomy Of A Fall’, ‘Four Daughters’, Da’Vine Joy Randolph And Nick Offerman Among Early Winners - Deadline
--  Argentinské finále v Riu de Janeiro ovládl hladce Báez
--  "이게 뭔 일"…알리 들어가봤더니 낯 뜨거운 추천 검색어
--  Otomobil ve yolcu otobüsü çarpıştı: Yaralılar var
--  Medical Examiner identifies man fatally stabbed in Keeaumoku area
--  Volunteers across the islands count 2,141 humpback whales
--  Argentinské finále v Riu de Janeiro ovládl hladce Báez
--  Man, 39, injured in Ewa Beach robbery
--  [뉴스딱] 점심값 500원…아이들 1천 명 찾은 식당 '훈훈'
--  Kauai pedestrian, 55, dies after being struck by vehicle
+-  Napadač Bordeauxa u komi nakon sudara na terenu
+-  Kahvaltı yapan öğrenci daha özgüvenli
+-  Une embarcation se perd 12h à Makemo
+-  Close as we’ll ever get to the truth
+-  It’s clear the young Nats are on the way. Less clear: Who will lead them.
+-  Amorim: «Acho que Trincão e Inácio devem estar fora com o Benfica»
+-  Golf Course Owner Tasks Aiyedatiwa on Road Surfacing Ahead of March Competition
+-  Inter de Milão goleia Lecce (4-0) e fica mais perto do ‘Scudetto’
+-  테슬라 제친 비야디, 페라리와 경쟁 위해 3억 전기차 출시
+-  日本株は連日の最高値更新か、ＡＩ期待広がる－半導体関連買いが継続 - ブルームバーグ
