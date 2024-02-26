@@ -1,11 +1,11 @@
 # Latest News
--  Polt Péterék elmondták, melyik korrupciós mérésnek hisznek
--  Ronaldo skoraði úr víti í sigri Al-Nassr - Markahæstur með 22 mörk
--  "Imam dobru ideju!" Miljana spremna na sve kako bi bila sama sa Darjanom, sada od produkcije tražila ovo
--  Израиль отложит операцию в Рафахе
--  Gus Ipul Sarankan PKB Terima Hasil Pemilu
--  Toluca hunde a Tijuana en el 'Infierno' con su triunfo en la jornada 8 de la Liga MX
--  Україна, ймовірно, модернізувала старі ракети до ЗРК С-200, щоб бити на 250 км, - Forbes
--  مدير عام تبن يدشن المخيم الطبي لإزالة المياه البيضاء
--  Seks pozisyonunu “yenilikçi fitness” diye tanıttılar
--  Аугсбург - Фрайбург 2:1 /репортаж/
+-  年収が高い会社ランキング2023【従業員100人未満・500社完全版】朝日放送が11位、スクエニは？ - ニッポンなんでもランキング！
+-  年収が高い会社ランキング2023【従業員100人未満】5位はテレビ局、ITバブルで注目を集めた1位は？ - ニッポンなんでもランキング！
+-  Осімхен хоче продовжити кар'єру в АПЛ
+-  Preporođeni Tobi vodio Sloveniju do pobede
+-  Kraft najbolji u Obersdorfu
+-  ПВО сбила беспилотник ВСУ на подлете к Белгороду
+-  Άννα Κουρή: Ζω μια ήσυχη ζωή με τον άντρα μου, χωρίς γαργαλιστικά περιστατικά
+-  Ato em Cubatão lembra 40 anos do incêndio da Vila Socó
+-  وزير الخارجية يصل جنيف لترؤّس وفد المملكة في الأمم المتحدة رفيعة المستوى
+-  Preporođeni Tobi vodio Sloveniju do pobede
