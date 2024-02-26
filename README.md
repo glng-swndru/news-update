@@ -1,11 +1,11 @@
 # Latest News
--  Yolcu otobüsü otomobille çarpıştı: 4 yaralı
--  Suncorp pushes big premium increase in bid to grow profit margins - The Australian Financial Review
--  黃國昌2026新北市長入選項 侯友宜：藍人才多、對地方了解透徹
--  Kuasa Hukum Sebut Firli Bahuri Sudah Tiba di Bareskrim Polri
--  Malaysia must elevate itself internationally as a supporter of peace, says King
--  В азербайджанском городе пять членов одной семьи отравились угарным газом
--  'Loss of dignity' difficult to witness in Gaza, medical volunteer says
--  Tiền đổ mạnh vào Nhóm thuỷ sản, cổ phiếu VHC, ANV, ASM tím hàng loạt: Điều gì đang xảy ra?
--  اَلْجوهر المفْقود..!!
--  Dinslaken: Achtung Autofahrer, hier stehen Radarfallen
+-  "On peut manger de tout, c’est juste une question d’équilibre" : à l'hôpital de Chartres, une diététicienne accompagne des patients souffrant d'obésité
+-  صحفي : الموظفون في ابين لم يتسلموا حتى اليوم مرتبات شهر يناير
+-  Εντυπωσιακό: Ανακάλυψαν απολίθωμα «κινεζικού δράκου» 240 εκατομμυρίων ετών
+-  CLASS ACT: St Mark's CE Primary School, Wigan
+-  Faces and places in Golborne High Street over the years
+-  "On peut manger de tout, c’est juste une question d’équilibre" : à l'hôpital de Chartres, une diététicienne accompagne des patients souffrant d'obésité
+-  Soomaaliya oo ka fekeraysa in diyaaradaha caalamiga ee Hargeysa ka dega lagu qasbo inay Muqdisho oo maraan
+-  Truck driver behind bars accused of high-speed chase while drunk
+-  Filmhouse and film festival set to be backed as Edinburgh protects £4.58m arts funding pot
+-  На 26 февруари рожден ден имат
