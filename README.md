@@ -1,11 +1,11 @@
 # Latest News
--  Σέρρες: ΙΧ «προσγειώθηκε» σε σταθμευμένα αυτοκίνητα στο κέντρο της πόλης
--  Dva desetljeća od avionske nesreće u kojoj su poginuli makedonski predsjednik i čitava delegacija
--  Saznajte sve o poznatima uz novi dodatak Stars! Uz to vas čeka poklon iznenađenja
--  Elazığ'da trafik kazası: 1 yaralı
--  'Oppenheimer' ganha principais categorias da premiação do Sindicato dos Atores dos EUA
--  Energi dan Sumber Daya Mineral Bengkulu untuk Kesejahteraan Masyarakat
--  Schalke: Führungsspieler abgetaucht - So droht die 3. Liga
--  %100 elektrikli Renault 5, retro tasarımıyla Cenevre'de tanıtıldı
--  Огнеборец на почивка потуши пожар в хотел, в който е отседнал
--  Названы российские регионы с самым доступным бензином
+-  На Ольшанке в Гродно может появиться небольшой ФОК для местных жителей: землю под него выставили на аукцион
+-  2024 Elections: IEC to reveal independent candidates list
+-  '로또 청약' 개포아파트 무순위 청약에 101만 명 몰려
+-  CHP Bursa Büyükşehir Belediye Başkan adayı Bozbey metroda gençlerle sohbet etti
+-  Vaucluse. Une fillette de sept ans tuée par un engin de chantier dans une propriété
+-  Ex-Bundesliga-Profi: Ze Roberto debütiert in der Baller League
+-  Alevi kadınlar Ankara'da buluştu: Daha çok dayanışma
+-  Клуб Абдулазимовой вышел в полуфинал
+-  Újra gyengül a forint, közel a 390-es szint
+-  Denizli'de kayıp Süleyman Özsoydan 24 saattir dağ taş aranıyor
