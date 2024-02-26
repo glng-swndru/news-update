@@ -1,11 +1,11 @@
 # Latest News
--  Aktuelle Studie: Darmentzündung erneut mit Alzheimer-Krankheit in Verbindung gebracht
--  Zmiany w składce zdrowotnej. "Cały czas w logice Polskiego Ładu"
--  Зендая - В епос за милиони - Труд
--  SNP chief executive Murray Foote staying away from key election work
--  Pelaku Curanmor Bersenjata Airsoft Gun Diamuk Massa di Cisaranten Bandung
--  İsrail ordusu, "Refah planını" Savaş Kabinesi'ne sundu
--  New map shows most common illegal drugs flooding the streets in Kent
--  How to find a cruise excursion you’ll actually enjoy
--  Estados en los que menos pagan sus préstamos de autos en EEUU
--  Protestas de los agricultores, en directo: las tractoradas vuelven a Madrid
+-  à¶…à¶°à·’à¶šà¶»à¶« 27 à¶šà·Š à¶œà·’à¶±à·’ à¶­à·�à¶¶à·– à¶…à¶º à¶»à¶§à·š à¶ºà·”à¶šà·Šà¶­à·’à¶º à¶œà·�à¶± à¶…à·„à¶±à·€à·�
+-  Grote zorgen over tekorten antibiotica voor kinderen: ‘Moet er eerst een slachtoffer vallen?’
+-  수업 거부하던 인하대 의과대학 학생 81% 휴학계 제출
+-  France-Italie : les coups de cœur et les coups de griffe de notre envoyé spécial
+-  Szatírt fogtak Tatabányán, és letartóztatták a baloldali polgármester emberét - ez volt a hét vármegyénkben
+-  Reporte de Mastercard señala a Costa Rica como uno de los países de Latinoamérica con más intentos de ataques cibernéticos en 2023
+-  Perth artist combined passion and talent to create ceramics business
+-  'Betraying the bush': Andrew Forrest lashes green energy go-slow - The Australian Financial Review
+-  YKS başvurularında bugün son gün
+-  Đội bóng của Văn Lâm 'thắp lửa' cho cuộc đua vô địch V-League
