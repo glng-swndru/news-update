@@ -1,11 +1,11 @@
 # Latest News
--  Brasil vence a Colômbia e se classifica para o mata-mata da Copa Ouro Feminina
--  ‘Big Virg’ staat op en stelt in slotfase de League Cup veilig voor Liverpool
--  أبين .. اتفاق نهائي لعملية تسويق وتسعير الموز في إطار جمعية الدلتا لمزارعي الموز
--  EDITORIAL | Does the party of failed promises deserve a another chance?
--  Early jacaranda bloom sparks debate about climate change in Mexico
--  Νομοσχέδιο για τις παραλίες: Όταν το δημόσιο συμφέρον ταυτίζεται με το εισπρακτικό συμφέρον
--  Fatalne wieści dla Małysza i Stocha po konkursie w Oberstdorfie
--  LIVE Eredivisie: Heerenveen al snel aan de leiding in Volendam
--  నాలుగో తరగతి ఉద్యోగుల సంఘం ఎన్నిక ఏకగ్రీవం
--  ماليزيا.. متدرب في "تقني تبوك" يحصد ذهبية المعرض الدولي للاختراعات
+-  Now streaming and on DVD: 'Next Goal Wins' has trouble scoring
+-  Info watchdog probing record destruction allegations related to ArriveCan app
+-  "Hihetetlen": Pedro Pascal végre kommentálta, hogy ő lett Mr. Fantastic az MCU Fantasztikus Négyesében
+-  Fencers encouraged by Ontario Winter Games competition
+-  Country star Corb Lund criticizes Alberta minister over coal mine support
+-  Info watchdog probing record destruction allegations related to ArriveCan app
+-  I Germundö finns inget dåligt väder
+-  ｢第2青函トンネル｣議論はどこまで進んでいるか 津軽海峡にもう1本､貨物と新幹線が別々に走る | 新幹線 | 東洋経済オンライン
+-  Com políticos de MS, apoiadores lotam Paulista em defesa de Bolsonaro
+-  Venezolanos en Chile agradecen a España y piden más mediación por los "presos políticos"
