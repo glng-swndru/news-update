@@ -1,11 +1,11 @@
 # Latest News
--  MI vs GG, WPL 2024: Harmanpreet, Amelia shine as Mumbai Indians beat Gujarat Giants by 5 wickets
--  Napoli pareggia, Pistocchi sentenzia: "Non è guarito, missione impossibile per la Champions"
--  Betis Sevilla porazil ve španělské fotbalové lize 3:1 oslabené Bilbao
--  Cucchi: "Nel Napoli cambiano solo gli allenatori, i problemi restano"
--  Jaime David pide a Leonel que "se sacrifique" y apoye a Abel
--  Adana Demirspor başkanı Murat Sancak istifa etti
--  Meydanlarda 'Cumhur' fırtınası: 3 günde 220 bin
--  Hafta boyunca hava nasıl olacak ? İşte gün gün hava durumu tahminleri
--  «Куньлунь» — СКА: видеообзор матча КХЛ
--  السيد: لا داعي للهلع…
+-  Canal abierto: Cuéntenos su opinión sobre el remake de Avatar de Netflix
+-  Debüt mit literarischer Schlagkraft
+-  Fórmula 1: calendario completo de la temporada 2024, que comenzará el 2 de marzo en Baréin
+-  محادثات باريس تسجل اختراقا وقصف الاحتلال مستمر
+-  Millet bahçesine spor aleti istiyorlar
+-  Due morti e due feriti gravi in incidente stradale in Calabria
+-  Moskau redet nicht über Tote
+-  7th International Pakistan Army Team Spirit Exercise-2024 begins in Pabbi
+-  "J’ai l’impression de voir des mini-moi" : Héléna (Star Academy) surprise par ses fans à une séance de dédicace
+-  Perez ziet ‘groot lichtpunt’ in selectie van Ajax ondanks 2-0 nederlaag bij AZ
