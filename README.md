@@ -1,11 +1,11 @@
 # Latest News
--  Skal vi ha krise hver gang?
--  Gosh, Golly, Gee, Can't Help But Notice AP Left Out an IMPORTANT Part of the Georgia Killer's Description
--  Titelstrijd ligt weer helemaal open na comfortabele 0-3-zege van KSC Dikkelvenne bij Eendracht Aalst
--  Rétvári Bence akkorát kommunistázott, hogy a Fideszben ülő volt KISZ-titkárok is megemlegetik
--  Tony Tornado relembra encontro com Janis Joplin: 'Peguei-a no colo'
--  Memòria de Mallorca: «PP i VOX podran derogar una llei però no ens podran llevar la memòria»
--  Tony Tornado relembra encontro com Janis Joplin: 'Peguei-a no colo'
--  Juan Román Riquelme asistió por primera vez como dirigente al estadio Monumental
--  جيرارد vs جيسوس.. مواجهة إنجليزية برتغالية
--  ממשיכה לעשות חיל: 0:3 לנבחרת הנשים של גאורגיה של איריס אנטמן על מקדוניה
+-  Съдят тираджия за смъртта на четирима футболисти - Труд
+-  – Det er godt å se at innsatsen vår betyr noe
+-  L'Auvergne doit se contenter de places d'honneur, ce dimanche, aux championnats de France U18-U20 en salle
+-  AJ Auxerre, tempête Louis, colère des agriculteurs, vins de l'Yonne médaillés à Paris... L'essentiel de l'actualité de la semaine
+-  《進擊的巨人》聯名服飾！完結篇「米卡莎圍巾」經典場景感人集結
+-  Bob-WM: Ammour-Brüder und Buckwitz holen Medaillen für Thüringen
+-  LOTTO RESULT Today, Monday, February 26, 2024
+-  Kuba Sienkiewcz ma znane dzieci, ale nie tylko. Jego ciotką była słynna aktorka
+-  L'Auvergne doit se contenter de places d'honneur, ce dimanche, aux championnats de France U18-U20 en salle
+-  Hidetaka Miyazaki lascerà spazio a nuovi director per i prossimi soulslike di FromSoftware
