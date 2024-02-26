@@ -1,11 +1,11 @@
 # Latest News
--  フライブルクが敵地でアウクスブルクに敗れて5戦未勝利…堂安律は先発フル出場
--  Роналду неприличным жестом отреагировал на выкрики «Месси!» с трибун
--  浸水対策「雨水管」設置工事始まる 福島町～三篠町３．５キロ 広島市西区
--  ３位・岡大入学試験 ２位・詐欺容疑で逮捕状 １位は…＜週末ランキング 岡山・香川＞
--  4-те зодии, които ще намерят нова любов през седмицата, 26-03 февруари/март 2024
--  PKPS, KPKM tingkat jaminan makanan
--  Cảnh tượng "ná thở" khi xếp hàng tại một khu vui chơi ở Đà Lạt, đợi 30 phút vẫn chưa tới lượt
--  유통량 최대인 미국 100달러 지폐, 쓰기는 가장 어려워
--  Katso, miltä Konnunsuon aurinkovoimala näyttäisi maisemassa – Rakentaminen alkaa nopeimmillaan jo tänä vuonna
--  「ポケモンカードゲーム」公認ラウンジ SHIBUYA TSUTAYA5階にオープンへ
+-  Polemik Jalur Sepeda, DPRD DKI segera Panggil Dishub
+-  Năm 2024, trường hợp nào được miễn thuế, phí khi sang tên Sổ đỏ?
+-  Coca-Cola brings back 'happiness in a bottle' after fans demand return of popular flavour
+-  Xúc động lá đơn xin gác lại việc học, xung phong nhập ngũ của nữ sinh Ê-đê
+-  テックレビュー： 食品・栄養新製品開発のための人工知能とチャットGPTの限界
+-  서울청장 "윤 대통령 조작 영상 ID 확보…곧 압수수색"
+-  'Not in dreamland': WTO aims for modest outcomes at Abu Dhabi meeting
+-  星國砸蛋網美凱蒂「揪乾妹極樂台男」！1男只給5分鐘 PO裸身辣照惹議
+-  The best, worst, and most surprising moments from the 39th Independent Spirit Awards
+-  日米共同訓練「アイアン・フィスト24」始まる 離島防衛など想定した【長崎県佐世保市】
