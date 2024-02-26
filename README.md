@@ -1,11 +1,11 @@
 # Latest News
--  Эксперт Тимочко: у ВСУ нет носителей и инфраструктуры для немецких ракет Taurus
--  Mordkommission ermittelt: Tote Frau mit Stichverletzungen in Hünxer Ladenlokal entdeckt
--  Thousands pack Old Sacramento for Mardi Gras Carnaval
--  Ukrajina skupi ruski A-50 nije srušila Patriotom nego ovom brutalnom raketom
--  Eleições EUA: Haley diz que tem o dever de seguir para evitar disputa ao 'estilo soviético'
--  Ludilo! Opozicija zahtevala nove izbore u Beogradu, a sad ih neće i optužuje Vučića!
--  رابطة المحترفين تحدد مواعيد 5 جولات
--  Malut United Vs Semen Padang Tanpa Pemenang, Ada Cekcok, Pelatih Kena Kartu Kuning
--  Fazilet Özdenefe: Köpek balığının öldürülmüş olması nedeniyle gurur duyulacak bir durum yok
--  Konstanze Klosterhalfen: Schlechte Gefühle beim Comeback
+-  Копыток: бизнес активно участвует в голосовании на выборах депутатов и выражает свою позицию
+-  Anneke en Elte zijn 65 jaar getrouwd: blijven liefhebben en kijken naar de dingen die je nog wel kunt
+-  Илон Мъск пусна робота Оптимус да се разходи (ВИДЕО)
+-  ČARAPANI BI NOVOM POBEDOM UŠLI U PLEJ – OF ZONU: Napredak dočekuje Novi Pazar
+-  Perheet | Isä Meilahdesta keksi yksin­kertaisen keinon, jolla Helsingin keskusta heräisi henkiin kertaheitolla
+-  ‘인기가요’ 다이몬, 열정X사랑X도전 다채 매력 담은 ‘스파크’
+-  Ako ste propustili spektakl u MasterChef-u, pogledajte reprizu danas na Prva TV
+-  Vujović: Raskol u PES-u uvod u vanredne izbore
+-  Korb für den FC Bayern: Wunschspieler sagt öffentlich ab
+-  Korb für den FC Bayern: Wunschspieler sagt öffentlich ab
