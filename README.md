@@ -1,11 +1,11 @@
 # Latest News
--  Deux chefs de Toulon et Ollioules décrochent la médaille d'or aux Olympiades culinaires
--  STELLANTIS- AYVENS Y CO HAN LLEGADO A UN ACUERDO MARCO MULTIMILLONARIO...
--  Glasgow Marie Curie charity shop staff walk out on 'strike'
--  Can you guess how much these items sold for on BBC Bargain Hunt?
--  Atasi Kenaikan Harga Beras, Pemkot Depok Siap Gelar Bazar Murah dan Operasi Pasar
--  So viele ukrainische Geflüchtete leben im Landkreis Osnabrück
--  3 Bedroom Home in Helena - $505,000
--  Schlechte Leistungsbeurteilung im Job? Das können Sie jetzt tun
--  Menikah, Nessie Judge Anggun Berkebaya Putih dengan Detail Ekor Panjang
--  Erik ten Hag names the ‘very sharp’ Manchester United youngster who impressed him against Fulham
+-  منها خصم قيمة الاستحقاق.. أبرز الأسئلة عن خدمات برنامج حساب المواطن
+-  Bartın'a şok uygulama yapıldı
+-  Prof. Dr. Naci Görür'den peş peşe depremlerin ardından kritik uyarı
+-  「SLIM」月面の夜を超える 極寒に耐え、通信再開の快挙
+-  Dışişleri Bakanlığından Hocalı Katliamı'nın 32. yılına ilişkin anma mesajı
+-  Kırşehir'e farklı branşlarda 19 hekim atandı
+-  Vanspor, Erokspor karşısında yara aldı! Maç sonu tansiyon yükseldi
+-  Kıyı Emniyetine 9 işçi alınacak
+-  Džordž Kluni zabranio ženi da gleda „Betmena“, a Kejt Vinslet se stidi „Titanika“: Ovi glumci svoje velike uloge vide kao promašaje
+-  Mahasiswa Untag Surabaya Ciptakan Program Prediksi Cuaca dengan Algoritma ANN
