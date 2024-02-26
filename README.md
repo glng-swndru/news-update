@@ -1,11 +1,11 @@
 # Latest News
--  Japonský modul SLIM přečkal lunární noc a nečekaně obnovil spojení se Zemí
--  à¶¸à·™à·Š à·€à·ƒà¶»à·š à¶¢à¶½ à¶œà·�à·ƒà·Šà¶­à·” à·€à·�à¶©à·’ à·€à·“à¶¸à¶šà·Š à¶±à·‘
--  Домашна млечна салата, поръсена с орехи
--  ［김성근 칼럼］제2의 선동열과 이대호를 위하여···슈퍼 파워를 만드는 부드러움
--  Уряд схвалив оформлення тимчасового посвідчення громадянина України на окупованих територіях
--  Yokogawa Releases OpreX Carbon Footprint Tracer to Support Decarbonization in the Process Manufacturing Industries
--  Magičan potez Luke Modrića podsjetio je na detalj otprije 11 godina: 'I tada su sumnjali u njega'
--  ‘의처증’에 이혼 요구한 아내 폭행·흉기로 살해한 70대, 구속 송치
--  Auto ziņas: no kā gatavots "Volvo" jaunākais elektromobilis EX30?
--  Предупреждават за опасност от лавини у нас
+-  Kata Kemenag soal Kalender Hijriyah Global Tunggal yang Diberlakukan Muhammadiyah
+-  Apple'ın giyilebilir teknolojilere dair yol haritası: Akıllı gözlükler ve kameralı AirPods
+-  Jeep cuts US pricing as new leaders alter strategy ahead of EV launches
+-  Overdoing these healthy foods can be harmful for kids
+-  「日本版DBS」骨子案、近く与党に提示へ 安全確保措置が義務に
+-  Eintrittspreise fürs Bädle bleiben fast unverändert
+-  Reforestación con dron: el proyecto piloto que busca revivir la Sierra de Arteaga
+-  Ineos Fusilier: Hayallerinizdeki elektrikli retro arazi aracı!
+-  Guinness-gulping Irish racehorse bought for just €850 to line up at Cheltenham as trainer John Hanlon praises support
+-  岸田内閣支持率が発足後最低…自民党支持率も政権復帰後最低に【与党キャップ横堀拓也の世論調査解説】
