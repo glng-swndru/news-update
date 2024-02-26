@@ -1,11 +1,11 @@
 # Latest News
--  Šokantno: Rendgenski snimak bebe zaprepastio lekare VIDEO
--  İstanbul'da terör operasyonunda yakalanan 10 şüpheli tutuklandı!
--  Casa su Misura, oltre 20mila visitatori per l'edizione "zero" in Fiera a Padova
--  هل تصدق؟ معجون الأسنان بالنعناع قد يؤثر على جودة نومك!
--  Martin Dzilah 1m94 bị HAGL thanh lý vì 4 tháng... ngồi "xơi nước"
--  Teams ready to exploit Everton as new contract clauses emerge - report
--  Zapečeni karfiol! Topi se u ustima, a ovaj začin je ključan za savršen ukus
--  Cristóbal Balenciaga: en busca de la excelencia (II)
--  Общество Daugavpils Runners приглашает присоединяться к 30-минутному забегу
--  DIRECTO | Última hora del conflicto Hamas-Israel
+-  Meteo: arriva il maltempo; pioggia debole su Romagna e San Marino
+-  Premier palestinese presenta le dimissioni ad Abu Mazen
+-  Tässä on vuoden 2023 kaunein postimerkki – kansallismaisema on suunnittelijan mukaan kuva suomalaisesta sielusta
+-  Eduquemos a nuestros hijos
+-  9,6 triệu người hóng drama của "tiên nữ mukkbang" Quỳnh Trương "vạch mặt" hot girl nghi đạo nhái mình: Vẫn chưa ngã ngũ
+-  El obispo de Bologna, San Faustiniano, protagonista del santoral del 26 de febrero
+-  Altro che Cybertruck: i nuovi concept della Fiat Panda sono veramente cyberpunk!
+-  LIVE | Oekraïense inlichtingenbaas dreigt: ‘Ik zou burgers niet aanraden Krimbrug te gebruiken’
+-  iiyama LEVELθ、9万円台から買えるミニタワーゲーミングPC
+-  美·日은 커피 리필 된다는데…국내 스타벅스 “도입 안한다”
