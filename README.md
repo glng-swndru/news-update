@@ -1,11 +1,11 @@
 # Latest News
--  Now streaming and on DVD: 'Next Goal Wins' has trouble scoring
--  Info watchdog probing record destruction allegations related to ArriveCan app
--  "Hihetetlen": Pedro Pascal végre kommentálta, hogy ő lett Mr. Fantastic az MCU Fantasztikus Négyesében
--  Fencers encouraged by Ontario Winter Games competition
--  Country star Corb Lund criticizes Alberta minister over coal mine support
--  Info watchdog probing record destruction allegations related to ArriveCan app
--  I Germundö finns inget dåligt väder
--  ｢第2青函トンネル｣議論はどこまで進んでいるか 津軽海峡にもう1本､貨物と新幹線が別々に走る | 新幹線 | 東洋経済オンライン
--  Com políticos de MS, apoiadores lotam Paulista em defesa de Bolsonaro
--  Venezolanos en Chile agradecen a España y piden más mediación por los "presos políticos"
+-  Nisu ih impresionirali "milion(er)i" - Hofenhajm slavio u Dortmundu (video)
+-  Olimpija brez zadetka v Brunicu
+-  Aankomende zomer gaat Ajax een berg geld kosten, maar het kan niet anders
+-  Nikola Jović suspendovan
+-  Column Willem van Hanegem | Aankomende zomer gaat Ajax een berg geld kosten, maar het kan niet anders
+-  Minamino, malice et talent... Voici les notes des joueurs après la victoire de l'AS Monaco à Lens
+-  مدير تربية مديرية الضالع يفتتح المعرض السنوي بمدرسة الشهيد السنمي الموحدة
+-  Alagoas Brancas: “Nem um metro cúbico de cimento” onde uma estrela rara flutua nas águas
+-  Blokada poljskih kmetov na meji z Nemčijo
+-  Incidente stradale nel Brindisino, due morti e un ferito
