@@ -1,11 +1,11 @@
 # Latest News
--  SOL Parti, Kocaeli adaylarını tanıttı
--  Rekordní hodnota českých akcií by mohla dále růst, odhadují analytici. Většímu posílení brání ČEZ
--  Evdeki televizyonu satmak isteyen ağabeyini öldürdü
--  Petit Teatre Quotidià: aquesta setmana, 'Ho tornaré a fer'
--  Tangerine Dream | Athens | March 11
--  800 ألف ريال غرامة على شركتين لمخالفتهما نظام المنافسة
--  Буданов пообіцяв окупантам "нові сюрпризи" у Криму
--  Ruské rakety zničili kostol a železničnú stanicu na východe Ukrajiny
--  Codul Muncii 2024 - Drepturile pe care trebuie să le cunoască orice angajat
--  "Dove arriva la neve". L'allerta di Giuliacci: sarà abbondante
+-  Gümüşhane'den Türkiye için kara haber geldi! Sakın renklerine bakıp aldanmayın aslında durum çok vahim
+-  Знаете ли колко често се полива кактус
+-  Após resgate no mar em Vila do Conde, Marinha destaca "alerta ativo" para agitação marítima
+-  Cum să prepari savarina acasă. Trucul ca să faci prăjitura adorată în România
+-  Feltre, gli alpini della sezione Ana sfilano per la città
+-  SZĽH kritizuje Ružičku, na MS do Česka ho nevezme. Životná chyba, môže si za to sám, vraví komentátor.
+-  Poslovni rezultati kompanija potaknuli Crobexe na rekordne razine
+-  Angriffe auf Politiker: Werden die Grünen zum Feindbild?
+-  Król Karol III wydał oświadczenie, w którym wychwalał Ukraińców. „Prawdziwe męstwo”
+-  Król Karol III wydał oświadczenie, w którym wychwalał Ukraińców. „Prawdziwe męstwo”
