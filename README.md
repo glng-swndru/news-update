@@ -1,11 +1,11 @@
 # Latest News
--  Zapatillas escolares: las sneakers negras que se posicionan como las favoritas en el modo “Back To School”
--  Moord Wiersum en Peter R. de Vries, aanhouding Weski en Taghi: extreemste rechtszaak komt tot climax
--  2 million animals dead as extreme winter weather hits Mongolia
--  FC Utrecht-middenvelder Ramselaar maakt prachtige overstap naar Azië
--  Nytt bakslag för skolskjuts – företag drar sig ur
--  Sticking to game plan key in win over Ulinzi, says Swords' Ochieng'
--  Simples Nacional: adesão até março é mito, saiba tudo dos planos da receita federal
--  Leicester City press conference live as Enzo Maresca talks injuries and Bournemouth FA Cup tie
--  ПОСЛЕДНОТО ИНТЕРВЈУ НА НАВАЛНИ НИКОГАШ НЕОБЈАВЕНО: „Западот им служи на бандитите, ги кријат валканите пари на Путин“
--  /R E P E A T -- MEDIA ADVISORY - FEDERAL GOVERNMENT TO MAKE HOUSING ANNOUNCEMENT IN MOUNT PEARL/
+-  Σέρρες: ΙΧ «προσγειώθηκε» σε σταθμευμένα αυτοκίνητα στο κέντρο της πόλης
+-  Dva desetljeća od avionske nesreće u kojoj su poginuli makedonski predsjednik i čitava delegacija
+-  Saznajte sve o poznatima uz novi dodatak Stars! Uz to vas čeka poklon iznenađenja
+-  Elazığ'da trafik kazası: 1 yaralı
+-  'Oppenheimer' ganha principais categorias da premiação do Sindicato dos Atores dos EUA
+-  Energi dan Sumber Daya Mineral Bengkulu untuk Kesejahteraan Masyarakat
+-  Schalke: Führungsspieler abgetaucht - So droht die 3. Liga
+-  %100 elektrikli Renault 5, retro tasarımıyla Cenevre'de tanıtıldı
+-  Огнеборец на почивка потуши пожар в хотел, в който е отседнал
+-  Названы российские регионы с самым доступным бензином
