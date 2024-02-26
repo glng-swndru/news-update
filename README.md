@@ -1,11 +1,11 @@
 # Latest News
--  Vindkraft i «bakgården»
--  '성난 사람들' 미 제작자조합 TV시리즈 부문 최우수상
--  Nuteista moteris, pati sau išsirašiusi net 85 suklastotus preparato „Xanax“ receptus
--  PÖRSSIT: Euroopan pörsseissä lievää laskua viikon aluksi
--  Співробітник Сенату США передав Україні снайперське спорядження і потрапив під слідство
--  HARGA HP Samsung Terbaru Februari 2024: Galaxy S22 Ultra, Galaxy S23, Galaxy A54 5G, Galaxy A14
--  Milica Đ. Stamenkovski &quot;patrioti&quot; Jovanoviću: DOS se nikada neće vratiti na vlast!
--  Les joueurs de MW3 réclament le retour d’un mode compétitif populaire
--  Merkez Bankası ilk kez açıkladı: Ticari gayrimenkul fiyatları ikiye katlandı
--  Elazığ'da maden ocağında göçük meydana geldi!
+-  Германия ведет тайные переговоры с Индией о военной помощи Украине. Речь идет о поставках сотен тысяч снарядов
+-  Внимание: новый опрос на портале Gorod.lv
+-  Die Ballettschule Ina Zurek bleibt weiter in Sulingen
+-  مقارنة بين فوفانا وسافيتش قبل مواجهة الهلال والاتفاق
+-  Enrique skipti Mbappe af velli - „Fyrr eða síðar þurfum við að venjast því að spila án hans“
+-  Presidente da Guiné-Bissau tem “ciúmes” de Amílcar Cabral?
+-  CIAK, MI GIRA! - MENTRE INFURIA LA GUERRA DEI FERRAGNEZ, IL CINEMA, VAI A CAPIRE PERCHÉ, FESTEGGIA VITA, OPERE E CANNONI D’ERBA DI BOB MARLEY IN UN BIOPIC DEFINITO MODESTO DA TUTTA LA CRITICA, “BOB MARLEY: ONE LOVE”, CHE VINCE IL WEEKEND DA NOI CON 1 MILIONE 207 MILA EURO. SOLO IERI HA INCASSATO 411 MILA EURO CON 53 MILA SPETTATORI. MAGARI IL RITORNO AL REGGAE E AI CANNONI CI PORTERÀ A RAGIONARE IN MANIERA DIVERSA ANCHE SUL DISASTRO POLITICO DEL PAESE… - VIDEO
+-  大津・石山寺の大河ドラマ「光る君へ」館、来館１万人達成 当初予想の2倍のペース
+-  Gun safety scrutinised after police Glock allegedly used in murders
+-  Ex Ilva: incontro sindacati-Urso domani a Taranto ++
