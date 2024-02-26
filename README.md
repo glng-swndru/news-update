@@ -1,11 +1,11 @@
 # Latest News
--  POČELO GLASANJE ZA PREDSEDNIKA RUSIJE Glasa se u meteorološkim i polarnim stanicama, kampovima za uzgoj irvasa...
--  لولو هايبر ماركت يطلق عرض «المذاق البولندي» في قطر
--  PRIMA PAGINA MATTINO - Napoli, i soliti noti. Osi non basta
--  Banfield no se dio por vencido y en la última rescató un punto ante Lanús
--  尹 지지율 8개월 만에 40%대 회복…국민의힘 43.5%·민주당 39.5%[리얼미터]
--  આર્થિક વિકાસને ઝડપી બનાવવા માટેની થીયરીમાં સતત બદલાવ
--  Nicolás Massot acusó a Javier Milei de mentir sobre sus ingresos y lo desafió a mostrar su declaración jurada
--  “Me miran con cara de horror”: Manini dijo que trabajo obligatorio de presos es “mínimo”
--  그레타 리, “관습에서 벗어나 참을 수 없는 정신과 열정에 이끌리는”
--  Conheça as mansões de famosos como Bruno Gagliasso e Simone Mendes disponíveis para aluguel
+-  Trading ideas: Sime Darby Property, IOI, Telekom, Mi Tech, Greatech, Malakoff, Matrix, Sports Toto and SAM
+-  USA hinnangul suudab Ukraina Vene okupatsiooniarmeed sõjaliselt lüüa
+-  전유진, 1등 하자마자 고향으로…아픈 父와 뭉클 데이트 (현역가왕 갈라쇼)
+-  김종인 "이낙연·이준석 합당, 깨질 수밖에 없었다"
+-  Ở vùng núi xa xôi của Quảng Bình có lễ hội đập trống, đập xong nam nữ rủ nhau vào rừng tình tự
+-  법무부 초대 국제법무국장에 정홍식 중앙대 교수
+-  Milei volvió a apuntar contra el gobernador de Chubut: “Pobrecito, Nachito no la ve”
+-  إحصائيات ناتشو أمام إشبيلية
+-  Pesawat Luar Angkasa Odysseus dari Intuitive Machines Terbalik Saat Mendarat
+-  Momen Warga Berebut Gunungan Durian di Panen Raya dan Jambore Desa Kebonrejo Kediri
