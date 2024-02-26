@@ -1,11 +1,11 @@
 # Latest News
--  年収が高い会社ランキング2023【従業員100人未満・500社完全版】朝日放送が11位、スクエニは？ - ニッポンなんでもランキング！
--  年収が高い会社ランキング2023【従業員100人未満】5位はテレビ局、ITバブルで注目を集めた1位は？ - ニッポンなんでもランキング！
--  Осімхен хоче продовжити кар'єру в АПЛ
--  Preporođeni Tobi vodio Sloveniju do pobede
--  Kraft najbolji u Obersdorfu
--  ПВО сбила беспилотник ВСУ на подлете к Белгороду
--  Άννα Κουρή: Ζω μια ήσυχη ζωή με τον άντρα μου, χωρίς γαργαλιστικά περιστατικά
--  Ato em Cubatão lembra 40 anos do incêndio da Vila Socó
--  وزير الخارجية يصل جنيف لترؤّس وفد المملكة في الأمم المتحدة رفيعة المستوى
--  Preporođeni Tobi vodio Sloveniju do pobede
+-  身柄確保の瞬間映像…札幌コンビニ店員3人刺され1人死亡 容疑者の男（43）「殺そうとした」
+-  Турска лира - лев. Колко струва една турска лира към един български лев днес, 26 февруари /валутен калкулатор/
+-  China’s AI stocks are surging. Here are the names to watch
+-  گالانت به تشدید حملات تا تسلیم شدن حزب‌الله تهدید کرد!
+-  Travis’ wild Katy Perry confession surfaces
+-  Kayseri'de 2 bin 500 nüfuslu mahalle, oy kullanmayacak
+-  친명 '본선행' · 비명 '경선행'…민주당 내홍 격화
+-  '고물가' 이어지자 '국민가게' 다이소 괄목 성장
+-  В Крыму гремели взрывы
+-  Se registra segundo candidato a magistrado y comisión cree que habrá el número suficiente
