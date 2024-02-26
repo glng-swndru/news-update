@@ -1,11 +1,11 @@
 # Latest News
--  સિવિલ ખાતે 437 કરોડના ખર્ચે બનનાર અદ્યતન હોસ્પિટલનું ઇ-ખાતમુહૂર્ત કરાયું
--  Schock in der 98. Minute: VfB Hüls ärgert sich über Schiedsrichter
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 26 февруари /валутен калкулатор/
--  نبرد میلان و آتالانتا برنده نداشت
--  Kakaopreis auf Rekordstand: Wird die Tafel Schokolade bei Nestlé und Mondelez teurer oder kleiner?
--  Weekly MoneyFM Podcasts: Stock winners & losers of Indonesia’s presidential elections
--  Baby Lasagna je pobjednik Dore
--  Sarah Michelle Gellar speaks in favour of Shannen Doherty after Alyssa Milano feud
--  Perez ziet probleem voor Ajax: ‘Hij voelt zich te goede speler om te verdedigen’
--  Μίλαν σε…κρίση, δεύτερο σερί «στραβοπάτημα»! (ΒΑΘΜΟΛΟΓΙΑ)
+-  خلال يناير الماضي.. رصد 5,687 مخالفة للمباني في جدة
+-  米アルコア、豪アルミナに22億ドルの買収提案－独占交渉入り - Bloomberg - ブルームバーグ
+-  Nuova pediatra all’ambulatorio municipale
+-  Milan-Atalanta, Pioli: “Rigore? Troppo poco per il metro di Orsato. Leao…”
+-  Policía Cibernética investiga filtración de teléfonos de miembros de Morena: Noroña
+-  Survivor'da acil durum konseyi! Pınar ile kavga eden Sema diskalifiye mi oldu?
+-  NZD/USD forecast: signal ahead of RBNZ rate decision
+-  Bree Hall scores 18, No. 1 South Carolina women has 6 in double figures to rout Kentucky 103-55
+-  Il primo singolo del 17enne Locro Best oggi il debutto sul red carpet del Nhero
+-  Milan-Atalanta 1-1: il tabellino della gara
