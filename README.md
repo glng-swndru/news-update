@@ -1,11 +1,11 @@
 # Latest News
--  Família do Sistema Solar aumentou! Mais luas são descobertas nos planetas Urano e Netuno
--  La Policía Local vuelve a demostrar que está más cerca de los ciudadanos
--  透過型ディスプレーがスゴい！ レノボがMWCでThinkPad／ThinkBook新モデル発表
--  ‘Tracker’ showcasing B.C.’s Interior in big-budget small screen TV series
--  La Rioja no pudo pagar vencimientos por u$s26 millones y buscará renegociar la deuda
--  A taxa climática
--  Magic: The Gathering's Future Is Filled With Fallout, Assassins, and Adorable Animal Heroes
--  André Rizek critica Tite por praticamente defender Daniel Alves
--  Retailer Corporate Strategies in Sustainability with Focus on Amazon, Decathlon, Fast Retailing, Natura &Co, Recreational Equipment and Vinted UAB
--  Camille Cosby Net Worth 2024: What Is Bill Cosby’s Wife Worth?
+-  Samsung Galaxy Ring health tracker will measure and report heart rate, breathing rate, movement and how long it takes to get to sleep - The Australian Financial Review
+-  Schlein, cambia il vento, c'era chi non ci scommetteva
+-  શું મોઢું-દાંત સાફ રાખવા માઉથવૉશ જરૂરી છે?
+-  Công ty Nguyễn Bính sẽ xuất khẩu bún tươi Việt Nam ra thế giới trong năm 2024
+-  Data, Census and Developmental Policy
+-  藥師月薪上看12萬 身價爆漲原因曝光
+-  Avellaneda y la Provincia trabajan juntos en la integración social y urbana
+-  Otkriven jeziv uzrok smrti poznatog glumca: Zvezda "Beverli Hilsa" umrla zbog predoziranja drogom!
+-  Japan Consumer Inflation Slows in January for Third Straight Month
+-  Google, Pfizer contrarrestan racha positiva de Nvidia y Tesla
