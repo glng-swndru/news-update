@@ -1,11 +1,11 @@
 # Latest News
--  SJB initiates no-confidence motion against Speaker over OSA
--  Sony'de yüzler gülüyor: Helldivers 2 satışları 3 milyonu aştı
--  BTP Küçükçekmece Adayı İrdemen: Önceliğimiz deprem
--  HDZ: Zagreb nikad nije imao više novca, a sve je zapušteniji
--  Breathing new life into vanishing Territory steakhouse
--  Przełom u reprezentanta Polski? Trener wreszcie się nad nim rozpływa
--  Gut-wrenching way Columbia astronauts learnt they were about to die as shuttle fell to Earth
--  Travel All Seven Continents with Holland America Line in 2026
--  Mirosław Baka jest "byłym katolikiem". "Nie podoba mi się alians Kościoła z PiS-em"
--  Bauchspeicheldrüsenkrebs: Immer mehr Frauen erkranken an stillem Killer
+-  Pela primeira vez, país exporta para UE com certificado de origem
+-  Paro docente: con adhesión dispar, comenzaron las clases en 8 provincias
+-  Menino mata aula com primo e desaparece ao nadar no Rio Miranda
+-  攻めにも守りにも強い11期以上「連続増配ランキング」1位花王、2位と3位は？ - 高配当＆高成長！新NISAで狙う日本株
+-  Policjanci zatrzymali go do standardowej kontroli. Wpadł, bo był nerwowy
+-  ΒΙΝΤΕΟ: Ολόκληρη η συνέντευξη του Σωφρόνη – Η σύγκρουση με Γιάνσον και η σχέση με τον Παπασταύρου
+-  Jind News: 37 महिलाओं को राशन डिपो देने की प्रक्रिया पूरी
+-  JOŠ JEDAN RUS LIKVIDIRAN U ŠPANIJI PRE KUZMINOVA? Šok detalji ubistva pilota koji je prebegao u Ukrajinu OTAC SE ODREKAO IZDAJNIKA
+-  Mond: »Odysseus« sendet Fotos
+-  Policiais e educadores em Sorriso participam do Círculo de Paz para prevenção de conflitos
