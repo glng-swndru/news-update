@@ -1,11 +1,11 @@
 # Latest News
--  این حق من است
--  DEM'li Sırrı Sakık'tan CHP'ye Özgür Özel'e ve İmamoğlu'na sert sözler: "Size kaybettireceğiz"
--  Nikano birdies final hole to claim last NZ Open spot
--  ‘I am going to make sure we have like-minded judges,’ Ford doubles down amid Ontario court outcry
--  Attacking coach happy with buildup off ball
--  Trump has kept up his old, creepy affections for Putin
--  Wie ein 62-Seelen-Dorf im Kreis Greiz einen Klassik-Star zu sich holt
--  Община Кърджали ще плати 3000 лв. на дете, гонено от бездомни кучета
--  FEST u Sava centru od 1. do 3. marta
--  Real Madrid TV vuelve al ataque con los árbitros
+-  “Região bastante perigosa”, afirma morador durante instalação de base da Guarda
+-  Paytm's Vijay Shekhar Sharma steps down from payments bank board - The Times of India
+-  Ünlü oyuncu Tolga Savacı vefat etti
+-  Landtagswahlen | Bündnis Sahra Wagenknecht: Joker für Ostdeutschland
+-  Anschlussfinanzierung : Was dafür spricht, sich die Bauzinsen jetzt zu sichern
+-  Záda telefonu jako žádná jiná. Toto je technologie, která dá sbohem nudnému zadnímu krytu
+-  "Ne postoji tačna dijagnoza, ali simptomi su ukazivali na loše mentalno stanje"
+-  «Visam jābūt ar enerģiju, tad būs interesanti» – aizvadīts Stinga mūzikas vakars džeza noskaņās
+-  Antonio Cassano torna in campo, approdo in Serie B. E' ufficiale, ma il calcio non c'entra
+-  Η άγνωστη σχέση Jacob Rothschild με Κύπρο και Σιακόλα
