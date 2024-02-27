@@ -1,11 +1,11 @@
 # Latest News
--  Hazine ve Maliye Bakanı Şimşek'ten kredi kartı taksitleriyle ilgili açıklama
--  Kihalnak a japánok?
--  "C'est pas vrai, c'est triste", une ancienne chroniqueuse de Laurent Bignolas (Télématin) dénonce son gros mensonge
--  Kezd felpörögni az amerikai hadsereg, megint lelőttek valamit az égről
--  AI 挹注，1 月外銷訂單 484.2 億美元翻紅年增 1.9%
--  [MWC 24] '갤럭시 링' 껴 보고 싶다는 황현식 LG유플러스 "온디바이스 AI가 혁명 가져올 것"
--  Baraże Euro 2024. Michał Probierz zagra "va banque" w kluczowych meczach dla reprezentacji Polski? Oto sekretny plan selekcjonera
--  Test: Seek Thermal Compact
--  Genfer Autosalon: Diese Premieren lassen den Autosalon noch glänzen
--  Efekt Bjelica! Pogledajte koji je Union Berlin otkad je on trener
+-  Aéronautique : « Il faut des femmes passionnées, avec une vraie vocation »
+-  Colonial escapa del castigo de Ibex 35 tras vender un proyecto residencial por 130 millones
+-  Nvidia GeForce Now yakında reklam göstermeye başlayacak
+-  Mit US-Girl Amber Liu: Salmünster klopft ans Tor zur 3. Liga
+-  Вражеский истребитель-бомбардировщик Су-34 уничтожен на Восточном направлении, - Олещук
+-  Stuff we shouldn’t be doing in the first place
+-  タスクや期日を忘れるうっかりミスをなくしたい。正解は、無印良品の機能的な付箋の「セット使い」だった
+-  Asiantuntija neuvoo, miten rahat jäävät helpommin säästöön
+-  2年連続の寄港 強襲揚陸艦「USSアメリカ」大阪港に 背景に「必ずしも良くない」東アジア情勢
+-  Mbappé : Surprise, le Real Madrid prépare un sale coup au PSG !
