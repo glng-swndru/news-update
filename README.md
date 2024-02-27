@@ -1,11 +1,11 @@
 # Latest News
--  Ukraine welcomes West's discussion of direct intervention, Russia warns against it
--  Bakić izabran u idealni tim 24. kola prvenstva Grčke
--  Ruskega aktivista Orlova obsodili na dve leti in pol zapora
--  Macrons Ausweitung der ukrainischen Kampfzone
--  Paris Olimpiyat Oyunları'na doğru - Tekvando
--  Песков занервничал после слов Макрона о возможности введения войск НАТО в Украину
--  Drama švedskega reprezentanta: klub prosi za spoštovanje zasebnosti
--  홍준표 quot;법조인 한물갔듯, 의사들도 똑같아질 것quot;
--  Découverte macabre à Bambey : Une jeune fille retrouvée morte dans un puits
--  Kommunikation mit Alzheimer-Erkrankten: Das sollten Sie beachten
+-  Vers la fin du permis de conduire à vie? Un débat au Parlement européen provoque une bronca en France
+-  "Meloni passeggiava, ai manganelli hanno risposto con le matite": Todde perde già l'uso del freno
+-  Saksamaa koondise legend teenib kebabiäriga miljoneid
+-  Manchester United press conference LIVE Nottingham Forest vs Man Utd team news and Erik ten Hag latest
+-  Escritor Carlos Fonseca ganó el Premio Anne Seghers: ‘Necesitamos autores que vayan contra lo ya dicho’
+-  Πακιστάν: Ο πρώην πρωθυπουργός και η σύζυγός του κατηγορούνται για διαφθορά
+-  “You risk becoming invisible” - why WFH hurts women workers hardest
+-  VfB Stuttgart: So lief der Start in die Trainingswoche
+-  Πάει Ολλανδία ο ΠτΔ – Βλέπει Ρούτε και Βασιλιά
+-  YKS için geç başvuru tarihleri belli oldu! Alınacak sınav harcı ise cep yakacak..
