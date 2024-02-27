@@ -1,11 +1,11 @@
 # Latest News
--  Robert Rooli kolm investeerimissoovitust, mida ta uuesti alustades teisiti teeks
--  Moon landing photo captures U.S. spacecraft right after tipping
--  A brit cégek többsége megszenvedi a vörös-tengeri hajózási fennakadásokat
--  Rosja i Ukraina mogą się bić na kolejnym froncie. Tym razem w Mołdawii
--  Hille lilleline elu saja toataimega: „Kui viimaks magamisaseme üles tõstsin, oli voodialune läbi lippide tunginud ratsuritähe õisi täis…“
--  Nam nhân viên IT 30 tuổi bị nhồi máu cơ tim cấp, bác sĩ cảnh báo đừng chủ quan bỏ qua 1 dấu hiệu tưởng chừng bình thường này
--  Iz Kine stiže laptop sa providnim ekranom VIDEO
--  Sú deild í Evrópu sem er á hvað mestri uppleið
--  "Quand je suis sorti, je savais que c'était fini pour le guide et mon cousin" : rescapé de l'avalanche au Mont-Dore, il raconte
--  Percorso pedonale sul lungomare, il Comune ci ripensa: non si farà all'Addaura ma solo per 150 metri a Vergine Maria
+-  Ukraine welcomes West's discussion of direct intervention, Russia warns against it
+-  Bakić izabran u idealni tim 24. kola prvenstva Grčke
+-  Ruskega aktivista Orlova obsodili na dve leti in pol zapora
+-  Macrons Ausweitung der ukrainischen Kampfzone
+-  Paris Olimpiyat Oyunları'na doğru - Tekvando
+-  Песков занервничал после слов Макрона о возможности введения войск НАТО в Украину
+-  Drama švedskega reprezentanta: klub prosi za spoštovanje zasebnosti
+-  홍준표 quot;법조인 한물갔듯, 의사들도 똑같아질 것quot;
+-  Découverte macabre à Bambey : Une jeune fille retrouvée morte dans un puits
+-  Kommunikation mit Alzheimer-Erkrankten: Das sollten Sie beachten
