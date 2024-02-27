@@ -1,11 +1,11 @@
 # Latest News
--  Elképesztő, amit a Magyar Telekom csinál - Érik a fordulat?
--  Rumour: New Report From Nikkei Corroborates 'Switch 2' Delay Into 2025
--  Pedro Pascal Discusses The Last Of Us Season 2 After Winning SAG Award
--  Elektro, Hybride, Verbrenner, Wasserstoff: Welche Antriebstechnologie ist die beste – und für welchen Zweck?
--  Зеленський підписав закон про демобілізацію строковиків
--  Holland America Line Visits All Seven Continents and Includes an Antarctic Experience on 2026 Grand World Voyage
--  Parkautomat defekt: Was es zu beachten gilt, um Knöllchen zu vermeiden
--  Ross and Rocky Lynch of the Driver Era Plot North American Tour (EXCLUSIVE)
--  PEVALA "KELE, KELE" U BEOGRADU I ZALUDELA CEO SVET! Pevačica Sirušo 16 godina kasnije izgleda LEPŠE NEGO IKAD
--  Villi juhlii kymmentä vuottaan runoilla ja kurakakuilla – salolaisen kulttuuritalon tarina alkoi luvallisella valtauksella
+-  Norwich City: David Wagner on Sunderland at Carrow Road
+-  Alstom, primo treno a idrogeno pronto per i test in Germania
+-  Primeiro-ministro palestino Mohammad Shtayyeh renuncia ao cargo
+-  Srpkinje doputovale na Island: Jače za Saru Pavlović
+-  Kompromitująca seria siatkarek przerwana! Wygrały po 23 porażkach
+-  Премьер Словакии на встрече лидеров ЕС инициирует обсуждение урегулирования на Украине
+-  7 razloga noćnog mokrenja kod dece: Većina je bezazlena, ali ako su stalno žedna, a urin promeni boju - javite se lekaru
+-  Убитите руски военни в Украйна са 75 хил., сочат данни от документи
+-  UHVAĆENI NA DELU! Uhapšeni mladić i devojka iz Titela zbog TRGOVINE DROGOM, policija na licu mesta zatekla i kupca
+-  IMAŠ PRAVO, OSTVARI GA "Pa ne naručujem se na frizuru, trebam liječničku pomoć": Mnogi pacijenti sve nezadovoljni praksom doktora opće medicine, evo što napraviti
