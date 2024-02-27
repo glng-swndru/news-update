@@ -1,11 +1,11 @@
 # Latest News
--  Венгрия поддержала Азербайджан в ПАСЕ
--  Восстановление контроля над Крымом является стратегической задачей для Украины, - замминистра обороны Клименков
--  For the love of buckets: KFC Canada launches search for ultimate Finger Lickin’ Good Basketball Celebrations
--  Handball-Bezirksoberliga: Janina Gruber beißt sich durch
--  Ant McPartlin and Anne Marie can't stop grinning after quitting ITV show to 'focus on family'
--  Heartbreaking Development Involving 11-Year-Old Detroit Girl Shot in Drive-By While She Slept
--  Рублев вышел во второй круг турнира в Дубае
--  Schmuggel von 2,3 Tonnen Kokain: Lange Haftstrafen
--  Galatasaray, VAR incelemesiyle penaltı kazandı!
--  Täter vermutlich in Schwalmtal: Pilot mit Laserstrahl geblendet – Spur führt nach Amern
+-  Lenja pita s jabukama i cimetom! Savršeno uživanje u ukusnim i mirisnim zalogajima
+-  Die Meldungen des Tages aus dem Burgenland
+-  Rokytka divočel na koncertě pro Ukrajinu: Víte, kdo jsem? Z VIP ho vyhodili, chce jít na policii
+-  Un Briviste refuse d'obtempérer... pour aller se garer 900 mètres plus loin, devant son immeuble
+-  Les agriculteurs du Puy-de-Dôme récompensés pour leur fresque paysagère réalisée pendant le Tour de France
+-  Loukkaantuminen vesitti 300:n pelin merkkipaalun – torniolainen Tuomas Salmela haluaa kuntoutua pudotuspelihurmokseen Porissa
+-  Japan Stocks: High Can Go Higher
+-  Paramount and Hasbro: A Match Made in Heaven? 3 Things Investors Should Know About Their Latest Partnership.
+-  Instáč: Svaly Leoše Mareše, vtip Burešové na adresu Kozuba a tajná láska Kočendové
+-  'He's playing him': Gary Neville blasts actions of £50m Chelsea star towards Liverpool player
