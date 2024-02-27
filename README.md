@@ -1,11 +1,11 @@
 # Latest News
--  More funding needed to help growing threat of weed explosion
--  O que o Corinthians precisa fazer para se classificar no Paulistão? Confira cenários
--  청풍명월 제천 '중부내륙 철도여행지' 인기...단체 관광객 줄이어
--  พลัง อว. "สืบสาน-รักษา-ต่อยอด" ภูมิปัญญาไทยสู่ผลิตภัณฑ์ Soft Power ฟื้นช่างศิลป์อย่างยั่งยืน
--  한총리 “257개 인증제도 재검토…연 1500억원 기업부담 경감”
--  Monday’s high temperatures set records in the Illinois Valley
--  Reformas constitucionales energéticas bajarán precio de la luz: Bartlett
--  Gazan sota | Biden toivoo tuli­tauon alkavan lähi­päivien aikana
--  Exército apura arsenal em apartamento incendiado em Campinas
--  저소득청년 월세 최대 20만원까지, 경기도 '청년월세 특별지원'
+-  Why is the Y chromosome disappearing?
+-  Why is the Y chromosome disappearing? - Deseret News
+-  Netflix might kill your subscription if you’re still paying through Apple
+-  "팔찌? 스마트폰?"…손목에 감는 '벤더블폰' 나왔다[MWC 24]
+-  RAMALAN SHIO Hari Ini Selasa 27 Februari 2024: Peruntungan Shio Macan Shio Monyet hingga Shio Babi
+-  Fátima Bernardes se despede da Globo, mas essas 21 fotos da jornalista mostram que seu legado na TV é inesquecível
+-  Animal Planet Presenter Will Visit Costa Rica To Share His Most Extreme Adventures
+-  [심층] 하이브, BTS 없이도 가파른 성장세
+-  Skuad Muda dan Berbahaya Menurut Bung Ropan, 4 Pemain Abroad ini Harus Memperkuat Timnas Indonesia di Piala Asia U-23
+-  Being An Influencer Is The Dream Job Of Ticos This 2024
