@@ -1,11 +1,11 @@
 # Latest News
--  Lenja pita s jabukama i cimetom! Savršeno uživanje u ukusnim i mirisnim zalogajima
--  Die Meldungen des Tages aus dem Burgenland
--  Rokytka divočel na koncertě pro Ukrajinu: Víte, kdo jsem? Z VIP ho vyhodili, chce jít na policii
--  Un Briviste refuse d'obtempérer... pour aller se garer 900 mètres plus loin, devant son immeuble
--  Les agriculteurs du Puy-de-Dôme récompensés pour leur fresque paysagère réalisée pendant le Tour de France
--  Loukkaantuminen vesitti 300:n pelin merkkipaalun – torniolainen Tuomas Salmela haluaa kuntoutua pudotuspelihurmokseen Porissa
--  Japan Stocks: High Can Go Higher
--  Paramount and Hasbro: A Match Made in Heaven? 3 Things Investors Should Know About Their Latest Partnership.
--  Instáč: Svaly Leoše Mareše, vtip Burešové na adresu Kozuba a tajná láska Kočendové
--  'He's playing him': Gary Neville blasts actions of £50m Chelsea star towards Liverpool player
+-  FC Bayern holt Max Eberl: Nun könnten gleich mehrere Topverdiener den Verein verlassen
+-  Der Regisseur von Epic Mickey will immer noch Epic Mickey 3 machen
+-  Парламентът в Будапеща избра нов президент на Унгария
+-  Kubová končí a chce do MOV: Budu lákat na bonbonky, žebro bylo hřebíček
+-  Gedenkmünzen vorgestellt: 6210 Euro für einen George Michael in Gold
+-  Ekrem İmamoğlu, Halk Buluşması programında konuştu
+-  MSB görüntüleri paylaştı! 'AL HARES MANE-2024 Tatbikatı' devam ediyor
+-  Mimo dużej różnicy wieku są razem od 12 lat. Małgorzata Szumowska mówi: fajnie być żoną
+-  قطار يجتاز 70 كيلومترا بلا سائق
+-  Macarıstanın yeni prezidenti kimdir?
