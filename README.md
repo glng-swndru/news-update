@@ -1,11 +1,11 @@
 # Latest News
--  Fiorentina-Lazio 2-1, vittoria in rimonta dei viola
--  Disastro Chieti, Iezzo rassegna le dimissioni da allenatore
--  Голкипер «Истиклола» Ятимов рассказал, в каком случае согласился бы перейти в российский клуб
--  Coronation Street favourite set to exit as scandalous affair is finally exposed
--  全国高校「国公立医学部合格力」ランキング・ベスト50【2024年入試版】 - ダイヤモンド・オンライン
--  京都市が木造住宅の倒壊対策に「本気モード」 耐震化補助を大幅引き上げへ
--  Tusk ma powody do dumy. Koalicja Obywatelska wychodzi na prowadzenie
--  Salvador sedia debate nacional sobre preservação e segurança jurídica
--  Hélder pede desculpa à namorada após cumplicidade com Débora: "Mereço um castigo"
--  [단독]"삼성 파운드리發 세입 급증…규제 풀테니 韓 기업들 오라"
+-  Các nước châu Âu không có hỗ trợ của Hoa Kỳ cần gửi 20% chi tiêu quốc phòng cho Kiev
+-  ¿Qué es la E.firma del SAT y cómo obtenerla por primera vez? AQUÍ te decimos cómo paso a paso
+-  Senadores no kirchneristas, entre ellos Mónica Silva de Río Negro, pidieron tratar el DNU y ponen en jaque a Villarruel
+-  Qatar Youth Hostels fosters sustainable tourism with 'Green Fort' initiative
+-  Isto sim, é uma pratada de massa a sério. E é mais saudável do que julga
+-  "Rekla sam Milošu ako hoće da osvoji Zlatu..." Zorica Brunclik pre svadbe zetu postavila ultimatum (VIDEO)
+-  Moedas globais: dólar cai ante euro, em dia de dado de moradia abaixo do previsto nos EUA
+-  Beşiktaş'ta taksimetre açmadan yolcu taşıyan sürücüye çifte ceza
+-  Moedas globais: dólar cai ante euro, em dia de dado de moradia abaixo do previsto nos EUA
+-  Hrvatski košarkaši upisali prvu pobjedu u kvalifikacijama za EuroBasket 2025.
