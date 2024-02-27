@@ -1,11 +1,11 @@
 # Latest News
--  Vers la fin du permis de conduire à vie? Un débat au Parlement européen provoque une bronca en France
--  "Meloni passeggiava, ai manganelli hanno risposto con le matite": Todde perde già l'uso del freno
--  Saksamaa koondise legend teenib kebabiäriga miljoneid
--  Manchester United press conference LIVE Nottingham Forest vs Man Utd team news and Erik ten Hag latest
--  Escritor Carlos Fonseca ganó el Premio Anne Seghers: ‘Necesitamos autores que vayan contra lo ya dicho’
--  Πακιστάν: Ο πρώην πρωθυπουργός και η σύζυγός του κατηγορούνται για διαφθορά
--  “You risk becoming invisible” - why WFH hurts women workers hardest
--  VfB Stuttgart: So lief der Start in die Trainingswoche
--  Πάει Ολλανδία ο ΠτΔ – Βλέπει Ρούτε και Βασιλιά
--  YKS için geç başvuru tarihleri belli oldu! Alınacak sınav harcı ise cep yakacak..
+-  Özhaseki, Malatya'da konutların bütün hak sahiplerine teslim tarihini açıkladı
+-  Confiança da Indústria fica estável em fevereiro, em 97,4 pontos, afirma FGV
+-  Tribunal de Dakar : Une dame vole le téléphone d’un boucher et s’enfuit avec l’appareil
+-  Ayşe İkiz
+-  Metin Arslan
+-  Cremlino,conflitto inevitabile se Nato manda truppe a Kiev
+-  Court documents shed new details in killing of nursing student at University of Georgia
+-  인플레이션 지표 발표로 미국 주식 선물 소폭 상승
+-  '문 정부 출신' 임종석 공천 배제…이재명 대표 속내는?
+-  תתחילו להתכונן לאביב: כך משיגים את מראה הקוביות המיוחל בחמישה צעדים
