@@ -1,11 +1,11 @@
 # Latest News
--  "Все забыли, что такое ресторан". Леонид Могдалов назвал главные ошибки в этом бизнесе
--  China Is Stockpiling for the Next Phase of the Chip Wars
--  لتسهيل المعاملات.. "العدل" تعلن إطلاق البطاقة الرقمية للمحامين
--  Самая суровая работа в Гродно: кем и за сколько можно устроиться в тюрьму
--  Poliklinike Affidea – sinonim za izvrsnost u pružanju zdravstvene skrbi
--  King Charles has 'no bond' with Prince Archie and Princess Lilibet for heartbreaking reason
--  Vibrant Hanfu Parade sparks enthusiasm in Valletta
--  Jokic faz história e comanda vitória do Denver Nuggets diante dos Warriors na NBA
--  "ONE SU UNAKAZILE NAŠU PROFESIJU" Ivana Krunić o elitnoj prosituciji: Kada kažem da sam pevačica...
--  "المقاومة ستفاجئ العدو كما فاجأته اليوم"... نائب الحزب: العدوان على بعلبك لن يمر دون رد
+-  Движение метро на Теремки должно возобновиться до конца лета, если не будет "помощников", - Кандибор
+-  Вчинив "як Іуда": батько героя-пілота Кузьмінова висловився про мертвого сина
+-  Kiralarda yüzde 25 zam sınırı kalkıyor mu?
+-  В Дрибинском районе главный бухгалтер предприятия АПК незаконно начислила себе более Br33 тыс.
+-  Ν. Ανδρουλάκης: Συνταγματικοί ακροβατισμοί για διευθέτηση συμφερόντων - Συνένοχο το ΠΑΣΟΚ δεν θα είναι
+-  Teresa García: el retiro de fondos a PBA es "un avasallamiento al federalismo"
+-  Bursa'da metruk binaya baskın: Çok sayıda cins köpek koruma altına aldı
+-  جامعة الحكمة تعلن أسماء الفائزين بالمنح التنافسية السنوية في مختلف التخصصات
+-  Döbbenetes állítás: Navalnij már a szabadság kapujában állt, ezért kellett meghalnia
+-  FOTO "Ți-ai făcut operație?". Ivana Knoll a recunoscut tot: motivul pentru care arată atât de bine
