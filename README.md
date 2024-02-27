@@ -1,11 +1,11 @@
 # Latest News
--  “Região bastante perigosa”, afirma morador durante instalação de base da Guarda
--  Paytm's Vijay Shekhar Sharma steps down from payments bank board - The Times of India
--  Ünlü oyuncu Tolga Savacı vefat etti
--  Landtagswahlen | Bündnis Sahra Wagenknecht: Joker für Ostdeutschland
--  Anschlussfinanzierung : Was dafür spricht, sich die Bauzinsen jetzt zu sichern
--  Záda telefonu jako žádná jiná. Toto je technologie, která dá sbohem nudnému zadnímu krytu
--  "Ne postoji tačna dijagnoza, ali simptomi su ukazivali na loše mentalno stanje"
--  «Visam jābūt ar enerģiju, tad būs interesanti» – aizvadīts Stinga mūzikas vakars džeza noskaņās
--  Antonio Cassano torna in campo, approdo in Serie B. E' ufficiale, ma il calcio non c'entra
--  Η άγνωστη σχέση Jacob Rothschild με Κύπρο και Σιακόλα
+-  Банки РФ с 4 марта смогут досрочно забирать средства с депозитов ЦБ
+-  Om anderen te inspireren stuitert Akwasi Frimpong (38) nog altijd op een slee naar beneden
+-  Raubfisch kommuniziert bei Jagd über Farbwechsel
+-  Двое детей пострадали при обстреле села в Белгородской области
+-  Zorgen om worstelende Feyenoord-spits Santiago Giménez: ‘Hij valt wel heel ver terug nu’
+-  Ampelanlagen in der Schillerstraße werden umgebaut
+-  "OVO JE ISTORIJSKI DAN": Oglasio se Kristerson nakon što je Mađarska dozvolila ulazak Švedske u NATO
+-  Szwecja dołączy do NATO. Historyczna decyzja Węgier
+-  Szwecja dołączy do NATO. Historyczna decyzja Węgier
+-  Киркоров заявил, что не переживает из-за введённых против него санкций Австралии
