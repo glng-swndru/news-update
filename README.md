@@ -1,11 +1,11 @@
 # Latest News
--  Pratham
--  Michigan államban folytatódik az amerikai előválasztások folyamata
--  80 Mitra Universitas Indonesia Tawarkan Magang MBKM di Dalam dan Luar Negeri
--  İstanbullular dikkat! Kağıthane Tüneli trafiğe kapatılacak
--  Biden: Israel hat Waffenruhe über Ramadan zugestimmt
--  Gazze'de Ramazan ayı boyunca ateşkes ilan edildi! Ateşkesi ABD duyurdu...
--  Antalyaspor Başkanı Boztepe hakeme isyan etti: Biz bugün 8 gol atsak, hakem 9. golü attıracaktı
--  Döviz kurlarında son durum: Euro ve dolar, tarihi yüksek seviyede!
--  スターバックスにSAKURAシーズン第2弾 「花見抹茶 クリーム フラペチーノ」と「花見 ブロンド ラテ」登場
--  Macron ne isključuje raspoređivanje francuske vojske u Ukrajini
+-  Lekue sigue sin volver al grupo, pero...
+-  Drei Fragen, drei Antworten: Schreckgespenst NIS2
+-  Hướng dẫn bà con trồng chè sạch, một HTX ở Thái Nguyên nâng giá trị cây chè lên tầm cao mới
+-  Спорт по телевизията днес – 27 февруари 2024 г.
+-  尹대통령 "국가돌봄체계, 저출산 해결 실마리…늘봄학교 총력 지원"
+-  "Đào, phở và piano" vì sao chưa được chiếu tại CGV, Lotte?
+-  금융·자동차 저PBR주들 대폭 하락...밸류업 실망감 '후폭풍'
+-  جنوبی کوریا کے مال میں بنجی جمپ کے بعد 60 سالہ خاتون کی موت
+-  Speculative Euphoria And The Fear Of Missing Out
+-  Media Vietnam Takut-takuti Shin Tae-yong, Karier Sang Pelatih Disebut Terancam
