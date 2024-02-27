@@ -1,11 +1,11 @@
 # Latest News
--  Путин возглавил рейтинг мировых лидеров по уровню одобрения среди граждан
--  Schaeffler Announces New Automotive Manufacturing Facility
--  Resultados de la quiniela y tómbola vespertina del lunes 26 de febrero
--  Report présidentielle : Mohamed Boun Abdallah Dionne dit niet à l’interruption du processus électoral par respect des droits acquis
--  تبقى جبهة الجنوب الهمّ الوطني الاول
--  Jeder geht mit einem Lächeln ‘raus
--  Prince Harry, Meghan Markle give major career update with latest move
--  „Mjög dýrmætt fyrir Manchester City“
--  "UPOZNALA SAM SVEKRA I SVEKRVU" Milica Todorović o dečku Lazaru - Spomenula njegove roditelje, pa priznala: "HOĆU MALO DA GA ISPRLJAM, ALI SE NE DA"
--  BEOGRAĐANKA UŠLA SA SINOM U KNJIŽARU PA DOŽIVELA ŠOK Zbog njene objave gore mreže: "Čika nije čuo"
+-  SJB initiates no-confidence motion against Speaker over OSA
+-  Sony'de yüzler gülüyor: Helldivers 2 satışları 3 milyonu aştı
+-  BTP Küçükçekmece Adayı İrdemen: Önceliğimiz deprem
+-  HDZ: Zagreb nikad nije imao više novca, a sve je zapušteniji
+-  Breathing new life into vanishing Territory steakhouse
+-  Przełom u reprezentanta Polski? Trener wreszcie się nad nim rozpływa
+-  Gut-wrenching way Columbia astronauts learnt they were about to die as shuttle fell to Earth
+-  Travel All Seven Continents with Holland America Line in 2026
+-  Mirosław Baka jest "byłym katolikiem". "Nie podoba mi się alians Kościoła z PiS-em"
+-  Bauchspeicheldrüsenkrebs: Immer mehr Frauen erkranken an stillem Killer
