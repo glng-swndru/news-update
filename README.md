@@ -1,11 +1,11 @@
 # Latest News
--  Глава МВД прокомментировал возможности проведения досрочных выборов в Кнессет
--  Meta dezenformasyona karşı safları sıkılaştırıyor
--  Suora lähetys: Henriksson jättää puheen­johtajuuden
--  „Iki“ komunikacijai vadovaus Kitovė
--  मनी लॉन्ड्रिंग मामले में राजद के पूर्व विधायक अरुण यादव के ठिकाने पर ईडी ने की छापेमारी, घर बाहर लगी समर्थकों की भीड़
--  DRŽAVA ČASTI Pojedini diplomati dobivaju naknadu za smještaj iako imaju vlastiti stan, za Ministarstvo to nije problem
--  Как да изберем най-добрата мазнина за пържене?
--  한국씨티은행, 1사1교 금융교육 우수사례 ‘금감원장상’ 수상
--  Заболеваемость COVID-19 в РФ за неделю уменьшилась почти на 9%
--  Täyssähköinen uutuusauto tähtää premiumiksi – IM:n tuonti Suomeen alkaa ensi vuonna
+-  오늘의 인사 종합
+-  Media: Trzy lata i koniec! Zidane gotowy na wielki powrót. "Najważniejszy projekt"
+-  People are just discovering ‘most insane piece of TV’ starring Gogglebox legend
+-  Artemis Halı halka arzı başladı: Kaç gün sürecek?, Kaç lot verecek?
+-  Nóng: Bắt khẩn cấp sao nam khỏa thân đi lại trên phố, mất kiểm soát vì dùng ma túy
+-  Turpmākajos gados bezdarba līmenis Latvijā samazināsies līdz 5%, prognozē Finanšu ministrija
+-  ST 27 februari 1999: Äntligen vinst för Timrå igen
+-  Why gaudy Vice was rejected by clean-living Generation Z
+-  NON CI VOLEVA UN GENIO PER CAPIRE CHE PAOLO TRUZZU NON ERA IL CAVALLO GIUSTO SU CUI PUNTARE: IL SINDACO DI CAGLIARI, APPENA QUALCHE MESE FA, SI PIAZZÒ TERZULTIMO NELLA CLASSIFICA DI GRADIMENTO DEGLI AMMINISTRATORI DI TUTTA ITALIA. PROPRIO I SUOI STESSI CITTADINI LO HANNO PRESO A SCHIAFFI: NEL CAPOLUOGO CHE AMMINISTRA, ALESSANDRA TODDE HA PRESO IL 53% DEI VOTI, MENTRE IL CENTRODESTRA SI È FERMATO AL 35 – LA “GENERAZIONE ATREJU” (CONOSCE MELONI DA STUDENTE UNIVERSITARIO), IL PADEL, IL TATUAGGIO “TRUX” – VIDEO PROFETICO: QUANDO DICEVA “NON SIAMO LA CAVIA PER ESPERIMENTO PD-M5S”
+-  Despite being arrested in ’78 I have welcomed cops at Mardi Gras. Not now
