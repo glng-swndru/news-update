@@ -1,11 +1,11 @@
 # Latest News
--  Tiền lương không còn là ưu tiên số 1 của ứng viên khi tìm việc?
--  Чи варто говорити про посилення мобілізації в Україні: у ТЦК дали відповідь
--  Biologists: Fishers show signs of recolonizing Ohio after nearly 175 years
--  Нідерланди виділять гроші на снаряди для України
--  Kartal'da kontrolden çıkan araç bariyerlere ve taksiye çarptı: 4 yaralı
--  Wondershare Filmora for Mobile Gives Users the Power of Desktop Editing in Their Pocket
--  Meet IFS officer, who cleared UPSC exam at 23 in her first attempt, got AIR 94, is posted in...
--  प्रधानमंत्री ने 34 तमिलनाडु रेलवे स्टेशनों के आधुनिकीकरण की आधारशिला रखी
--  Se IBK Lockerud Mariestad - Endre IF
--  巨人來台戰兄弟、樂天 國家隊王牌投手出馬
+-  ਕਿਮ ਸ਼ਰਮਾ ਦਾ ਗਲੈਮਰ ਤਾਂ ਵੇਖੋ
+-  From brain to stomach, here’s what long-haul travel does to your body
+-  發揮煲劇最佳質素 NordVPN@Apple TV 4K 實測
+-  Boojum enjoyed record revenues of more than €31m ahead of sale
+-  Gardaí probe if Kerry grandfather (83) was shot dead after row with man he knew
+-  Disney Dreamlight Valley Gets A New Update, Here Are The Full Patch Notes
+-  ‘Mafia hitman’ put bleach into communion wine in bid to kill Italian priest who spoke out against ’Ndrangheta
+-  マクドナルドで近日発売「チ〇チ〇〇〇チ」メニュー名クイズに注目集まる
+-  Lucinda O’Sullivan’s review: 'Restaurant Patrick Guilbaud is the biz — it should be Ireland’s first 3-star’
+-  Un impacto de Dart deforma Dimorphos
