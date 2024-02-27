@@ -1,11 +1,11 @@
 # Latest News
--  FDL Studio Legale e Tributario Opens The Eastern Europe desk With The Hiring Of The New Of Counsel Zoya Ilyenka
--  Σκρέκας: Θα δούμε μειώσεις σε προϊόντα έως και 15%
--  Ważny sponsor polskiego klubu mówi: To koniec!
--  ‘공무상 비밀 누설’ 현직 경찰관 징역 1년 6개월 실형…“수사 공정성 훼손”
--  의총 불참 예고했던 이재명 대표 ‘깜짝 등장’ [청계천 옆 사진관]
--  MİT’ten Suriye’de nokta terör operasyonu
--  MTB Marathon van WTC Ruinen afgelast vanwege natte en drassige bospaden: 'Lijkt ons verstandiger'
--  Доктор Мясников развеял миф о похмелье
--  Минобороны сообщило об ударах БПЛА и артиллерии по позициям ВСУ у Крынок
--  美中直航增班、兩岸線虧損 法人估華航與長榮航今年獲利下降
+-  Можело! 2 пъти повече плащат глоби на КАТ, като идват електронно
+-  This superstar forcibly kissed 15-year-old co-star on set, left her traumatised, in tears; defended it saying...
+-  Дибала с първи хеттрик от октомври 2018 г.
+-  Mbappé - PSG : Un dîner pour tout changer à l’Élysée ?
+-  Überraschungsfest - Mit Blaulicht ging es für Teesdorfs Bürgermeister in die Pension
+-  Biden, 'Israele fermerà operazioni a Gaza durante Ramadan'
+-  INSÄNDARE: Låt sopgubben göra sitt jobb
+-  "Akvamen i izgubljeno kraljevstvo" stiže na striming VIDEO
+-  Policisté zasahují v sídle tenisového svazu, prověřují podezřelé využívání státních dotací
+-  KKR, Broadcom’un son kullanıcı odaklı bilgi işlem birimini 4 milyar dolara satın alıyor
