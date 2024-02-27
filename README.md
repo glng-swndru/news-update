@@ -1,11 +1,11 @@
 # Latest News
--  Можело! 2 пъти повече плащат глоби на КАТ, като идват електронно
--  This superstar forcibly kissed 15-year-old co-star on set, left her traumatised, in tears; defended it saying...
--  Дибала с първи хеттрик от октомври 2018 г.
--  Mbappé - PSG : Un dîner pour tout changer à l’Élysée ?
--  Überraschungsfest - Mit Blaulicht ging es für Teesdorfs Bürgermeister in die Pension
--  Biden, 'Israele fermerà operazioni a Gaza durante Ramadan'
--  INSÄNDARE: Låt sopgubben göra sitt jobb
--  "Akvamen i izgubljeno kraljevstvo" stiže na striming VIDEO
--  Policisté zasahují v sídle tenisového svazu, prověřují podezřelé využívání státních dotací
--  KKR, Broadcom’un son kullanıcı odaklı bilgi işlem birimini 4 milyar dolara satın alıyor
+-  Suchtfaktor Smartphone: Studie: Problematische Social-Media-Nutzung bei Kindern weiter hoch
+-  صحنه خواستگاری مرحوم معین محمودزاده از بهاره افشاری در نیوکمپ | ببینید
+-  Wolff est très heureux de la Mercedes F1… mais Red Bull ‘semble être devant'
+-  BBB 24: Wanessa Camargo e Yasmin Brunet criticam voz de Davi: 'Anasalado para caramba'
+-  7 لاعبين يمثلون منتخب الجولف في البطولة الخليجية بقطر
+-  İstanbul’da uygun fiyatlı ve güzel çay içilecek yerler
+-  Suchtfaktor Smartphone: Studie: Problematische Social-Media-Nutzung bei Kindern weiter hoch
+-  Einsteinin aivot varastanut patologi katosi kuin tuhka tuuleen – siiderilaatikossa köllötellyt yllätys oli viedä jalat alta
+-  Suchtfaktor Smartphone: Studie: Problematische Social-Media-Nutzung bei Kindern weiter hoch
+-  Izbrali so novi evropski avtomobil leta
