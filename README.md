@@ -1,11 +1,11 @@
 # Latest News
--  賣地收入73億跌76% 測量界料下季重推住宅地
--  مقر «سیا» در زیرزمین‌های اوکراین
--  I tested best breads for making toasties from Asda to Waitrose – winner was 65p less than brand leader & tasted great
--  彭博：螞蟻擬購瑞信在華投行
--  ITV Celebrity Big Brother chaos revealed as host Will Best opens up over 'intense' moment
--  بررسی نحوه خدمت‌رسانی به مشتریان در استان سیستان و بلوچستان توسط مدیرعامل بانک ملی ایران
--  BBC bosses in huge battle to get new Gavin & Stacey festive special for Christmas as streaming giants plot to grab show
--  Belgravia Place收近千票 最快今加推
--  Work Underway to Upgrade Electric System in Western Pennsylvania
--  نبض شاخص - ۱۴۰۲/۱۲/۰۸
+-  Fiorentina-Lazio 2-1, vittoria in rimonta dei viola
+-  Disastro Chieti, Iezzo rassegna le dimissioni da allenatore
+-  Голкипер «Истиклола» Ятимов рассказал, в каком случае согласился бы перейти в российский клуб
+-  Coronation Street favourite set to exit as scandalous affair is finally exposed
+-  全国高校「国公立医学部合格力」ランキング・ベスト50【2024年入試版】 - ダイヤモンド・オンライン
+-  京都市が木造住宅の倒壊対策に「本気モード」 耐震化補助を大幅引き上げへ
+-  Tusk ma powody do dumy. Koalicja Obywatelska wychodzi na prowadzenie
+-  Salvador sedia debate nacional sobre preservação e segurança jurídica
+-  Hélder pede desculpa à namorada após cumplicidade com Débora: "Mereço um castigo"
+-  [단독]"삼성 파운드리發 세입 급증…규제 풀테니 韓 기업들 오라"
