@@ -1,11 +1,11 @@
 # Latest News
--  أربع علامات مرضية رغم الشعور بأنك بخير!
--  천안 아파트 건설 현장서 근로자 1명 추락사…40m 높이서 떨어져
--  Edificio pericolante: chiusa la strada
--  Uznemirujući prizori: preminuo američki vojnik koji se zapalio ispred izraelske ambasade, sve je prenosio na internetu
--  De Rienzo difende Juan Jesus: "No al cyberbullismo. Chi gli augura il peggio non è tifoso"
--  Großer Wirbel um Hofmanns "Arschloch-Sager"
--  Žestoka izjava Čovića: Neka se u Partizanu dogovore ko laže, predsednik ili trener
--  Osam borbenih okršaja i Rusi su zauzeli još jedno naselje! Kijev priznao poraz
--  Τρόμος σε πτήση της Emirates: Μεθυσμένος επιβάτης επιτέθηκε σε αεροσυνοδό και τον ακινητοποίησαν
--  Verletzter Spieler bespuckt: Die Attacken der Dresdner Fans gegen Felix Götze sind ein Armutszeugnis
+-  "Selfiju taisīja prezidents - pastarītis." Rinkēvičs publisko prezidentu selfiju
+-  Zee Cine Awards 2024: Alia Bhatt unveils the trophy in style [Video]
+-  Singapore households took on more debt in Q4
+-  Fiat’s Mega Panda Concept Revives The 80s Panda 4X4 In Spectacular Style
+-  Prokuratura chce uchylenia immunitetu Ryszarda Czarneckiego
+-  اليمن تشارك في اجتماع وزراء التجارة العرب وتسهيل الاستثمار في أبوظبي
+-  Gravina: «Riforma del calcio indispensabile»
+-  BBT.live and Advantech to Showcase Next-Generation Secure Connectivity Solution for Service Providers at MWC2024 Barcelona
+-  Diduga Tidak Dukung Pencalegan Istrinya, Kades di Situbondo Langsung Pecat 2 Kepala RT
+-  أسهل طريقة وسريعة لنقل المحادثات من هاتف قديم إلى هاتف جديد
