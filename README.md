@@ -1,11 +1,11 @@
 # Latest News
--  AKP'li Çelik'in hedefinde muhalefet var : 'Milletten özür dilemeliler...'
--  वैश्विक बाजार मुद्रास्फीति के आंकड़ों का अनुमान लगाते हैं
--  جندي أمريكي يحرق نفسه أمام سفارة إسرائيل بواشنطن
--  Ετοιμάζεται για τα καρναβάλια ο Δήμος Λάρνακας
--  Kalça Ağrısı: Nedenleri ve Çözüm Yolları
--  Esra Erol güzellik sırrını ilk kez paylaştı! Ne pahalı kremler ne botoks… Bebek gibi cildinin sırrı yüzünü onunla yıkamasıymış
--  Hungarian parliament elects top court chief as new president
--  Ördög Nóra elárulta, kiknek van esélyük megnyerni a Next Top Model Hungaryt
--  Udine, mozione di sentimenti nei confronti del comparto agricolo
--  Mumbai: After tough talk by govt, quota leader Manoj Jarange Patil calls off fast
+-  Surprise, Mbappé lâché par le vestiaire du PSG ?
+-  BRICS: China Finds World’s Largest Metamorphic Rock Oilfield
+-  Inaugural Lanka T10 to be held in December
+-  Krokusse blühen schon – so verlängern Sie die Blüte
+-  Daily Lotto results: Monday, 26 February 2024
+-  Matri Secures Funding on Shark Tank India Season 3: An In-Depth Look
+-  Viren Botheju fastest driver at Eliyakanda Hill Climb; Isuru Maduranga fastest rider
+-  Montag, der 26. Februar 2024: Schweden wird NATO-Mitglied, Bäume werden umgepflanzt und Möckern bleibt bunt
+-  Δεν μπορείς να «τη βγεις» εύκολα σε Ιχθύ και υπάρχει λόγος
+-  Transcript : Albemarle Corporation Presents at BMO 33rd Global Metals, Mining & Critical Minerals Conference 2024, Feb-26-2024 01:30 PM
