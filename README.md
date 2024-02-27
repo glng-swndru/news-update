@@ -1,11 +1,11 @@
 # Latest News
--  Движение метро на Теремки должно возобновиться до конца лета, если не будет "помощников", - Кандибор
--  Вчинив "як Іуда": батько героя-пілота Кузьмінова висловився про мертвого сина
--  Kiralarda yüzde 25 zam sınırı kalkıyor mu?
--  В Дрибинском районе главный бухгалтер предприятия АПК незаконно начислила себе более Br33 тыс.
--  Ν. Ανδρουλάκης: Συνταγματικοί ακροβατισμοί για διευθέτηση συμφερόντων - Συνένοχο το ΠΑΣΟΚ δεν θα είναι
--  Teresa García: el retiro de fondos a PBA es "un avasallamiento al federalismo"
--  Bursa'da metruk binaya baskın: Çok sayıda cins köpek koruma altına aldı
--  جامعة الحكمة تعلن أسماء الفائزين بالمنح التنافسية السنوية في مختلف التخصصات
--  Döbbenetes állítás: Navalnij már a szabadság kapujában állt, ezért kellett meghalnia
--  FOTO "Ți-ai făcut operație?". Ivana Knoll a recunoscut tot: motivul pentru care arată atât de bine
+-  أربع علامات مرضية رغم الشعور بأنك بخير!
+-  천안 아파트 건설 현장서 근로자 1명 추락사…40m 높이서 떨어져
+-  Edificio pericolante: chiusa la strada
+-  Uznemirujući prizori: preminuo američki vojnik koji se zapalio ispred izraelske ambasade, sve je prenosio na internetu
+-  De Rienzo difende Juan Jesus: "No al cyberbullismo. Chi gli augura il peggio non è tifoso"
+-  Großer Wirbel um Hofmanns "Arschloch-Sager"
+-  Žestoka izjava Čovića: Neka se u Partizanu dogovore ko laže, predsednik ili trener
+-  Osam borbenih okršaja i Rusi su zauzeli još jedno naselje! Kijev priznao poraz
+-  Τρόμος σε πτήση της Emirates: Μεθυσμένος επιβάτης επιτέθηκε σε αεροσυνοδό και τον ακινητοποίησαν
+-  Verletzter Spieler bespuckt: Die Attacken der Dresdner Fans gegen Felix Götze sind ein Armutszeugnis
