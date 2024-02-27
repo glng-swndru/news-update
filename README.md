@@ -1,11 +1,11 @@
 # Latest News
--  Samsung Galaxy Ring health tracker will measure and report heart rate, breathing rate, movement and how long it takes to get to sleep - The Australian Financial Review
--  Schlein, cambia il vento, c'era chi non ci scommetteva
--  શું મોઢું-દાંત સાફ રાખવા માઉથવૉશ જરૂરી છે?
--  Công ty Nguyễn Bính sẽ xuất khẩu bún tươi Việt Nam ra thế giới trong năm 2024
--  Data, Census and Developmental Policy
--  藥師月薪上看12萬 身價爆漲原因曝光
--  Avellaneda y la Provincia trabajan juntos en la integración social y urbana
--  Otkriven jeziv uzrok smrti poznatog glumca: Zvezda "Beverli Hilsa" umrla zbog predoziranja drogom!
--  Japan Consumer Inflation Slows in January for Third Straight Month
--  Google, Pfizer contrarrestan racha positiva de Nvidia y Tesla
+-  More funding needed to help growing threat of weed explosion
+-  O que o Corinthians precisa fazer para se classificar no Paulistão? Confira cenários
+-  청풍명월 제천 '중부내륙 철도여행지' 인기...단체 관광객 줄이어
+-  พลัง อว. "สืบสาน-รักษา-ต่อยอด" ภูมิปัญญาไทยสู่ผลิตภัณฑ์ Soft Power ฟื้นช่างศิลป์อย่างยั่งยืน
+-  한총리 “257개 인증제도 재검토…연 1500억원 기업부담 경감”
+-  Monday’s high temperatures set records in the Illinois Valley
+-  Reformas constitucionales energéticas bajarán precio de la luz: Bartlett
+-  Gazan sota | Biden toivoo tuli­tauon alkavan lähi­päivien aikana
+-  Exército apura arsenal em apartamento incendiado em Campinas
+-  저소득청년 월세 최대 20만원까지, 경기도 '청년월세 특별지원'
