@@ -1,11 +1,11 @@
 # Latest News
--  'It's absurd': Toronto taxpayers face even-bigger bill as FIFA World Cup costs climb
--  Патрушев прилетел на Кубу
--  České znění vtipů jsme brainstormovali v hospodě, říká o seriálu Simpsonovi překladatel Petr Šaroch
--  Everest Medicines and Kezar Life Sciences Receive IND Approval from China NMPA for PALIZADE Trial in Lupus Nephritis
--  Macky à la presse Étrangère: " diguéne eubam sen bagages, yobouwatt sen cameras délou"
--  લગ્નના શૃંગારની સજાવટ .
--  Carlos Moedas: “Nem pensar que ministro das Finanças é melhor que presidente da Câmara de Lisboa; presidente dá coisas, ministro tira”
--  الهی: دوست داشتم برای جبران غیبتم در جام تختی، یک برد خوب بیاورم/ ذهنم در کشتی بچه است!
--  昭和30年代にiPhoneのCM？「センスが大爆発」のもしも動画が話題
--  Tərkibində yaşıl çaydan 137 dəfə çox antioksidant var
+-  Família do Sistema Solar aumentou! Mais luas são descobertas nos planetas Urano e Netuno
+-  La Policía Local vuelve a demostrar que está más cerca de los ciudadanos
+-  透過型ディスプレーがスゴい！ レノボがMWCでThinkPad／ThinkBook新モデル発表
+-  ‘Tracker’ showcasing B.C.’s Interior in big-budget small screen TV series
+-  La Rioja no pudo pagar vencimientos por u$s26 millones y buscará renegociar la deuda
+-  A taxa climática
+-  Magic: The Gathering's Future Is Filled With Fallout, Assassins, and Adorable Animal Heroes
+-  André Rizek critica Tite por praticamente defender Daniel Alves
+-  Retailer Corporate Strategies in Sustainability with Focus on Amazon, Decathlon, Fast Retailing, Natura &Co, Recreational Equipment and Vinted UAB
+-  Camille Cosby Net Worth 2024: What Is Bill Cosby’s Wife Worth?
