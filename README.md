@@ -1,11 +1,11 @@
 # Latest News
--  Pothole repairs gaining ground with 7,000 fixed, says mayor
--  Is a 65-cent hike in the minimum wage in B.C. too much, too little or the right amount?
--  Remake of iconic 1980s drama Shogun shifts focus to Japanese characters
--  Cancer researcher launches fundraising drive in mum's honour
--  Human remains found in Sydney double murder investigation
--  Residents, leaders clash over burial of unclaimed bodies
--  Merrill Osmond of The Osmonds to play final gig in Eastleigh
--  Xôn xao thông tin nhóm người lạ kéo đến nhà Nam Em
--  Aerial photo shows construction of West End care home
--  Salon tieliikenteessä tapahtui ihme, jota on tavoiteltu kymmeniä vuosia – ”Nollavisio on mahdollinen”
+-  Kicsoda a Liverpool váratlan hőse, aki Klopp szerint a világ legjobb cserekapusa?
+-  احداث سالن۳ایرانشهر باتکنولوژی جدید/بلک‌باکسی قرینه سالن سمندریان
+-  Kommentti: Teinityttö Vladimir Putinin vierellä hätkäytti – Venäjän johtaja lähetti taas irvokkaan viestin
+-  Oil Futures Rise, Buoyed by Demand From Refineries
+-  台灣大哥大「半夜突斷網」 用戶灌爆粉專求補償！業者：臨時維護
+-  Tin nóng bóng đá Việt 27/2: Việt Nam có bản quyền trận gặp Indonesia, Bùi Tiến Dũng bị treo giò
+-  Professorn om Nato: ”Vår identitet förändras”
+-  Indonesian media outlets expect to conclude deals with digital platforms by August
+-  Проект 920-километрового газопровода "Ухта - Чебоксары" отложен
+-  Bus: Eine Bildergeschichte über einen kleinen Stups in einem Bus voller Griesgrame
