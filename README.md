@@ -1,11 +1,11 @@
 # Latest News
--  Các nước châu Âu không có hỗ trợ của Hoa Kỳ cần gửi 20% chi tiêu quốc phòng cho Kiev
--  ¿Qué es la E.firma del SAT y cómo obtenerla por primera vez? AQUÍ te decimos cómo paso a paso
--  Senadores no kirchneristas, entre ellos Mónica Silva de Río Negro, pidieron tratar el DNU y ponen en jaque a Villarruel
--  Qatar Youth Hostels fosters sustainable tourism with 'Green Fort' initiative
--  Isto sim, é uma pratada de massa a sério. E é mais saudável do que julga
--  "Rekla sam Milošu ako hoće da osvoji Zlatu..." Zorica Brunclik pre svadbe zetu postavila ultimatum (VIDEO)
--  Moedas globais: dólar cai ante euro, em dia de dado de moradia abaixo do previsto nos EUA
--  Beşiktaş'ta taksimetre açmadan yolcu taşıyan sürücüye çifte ceza
--  Moedas globais: dólar cai ante euro, em dia de dado de moradia abaixo do previsto nos EUA
--  Hrvatski košarkaši upisali prvu pobjedu u kvalifikacijama za EuroBasket 2025.
+-  পশ্চিমের সঙ্গে দূরত্বই কি সংঘাত দীর্ঘায়িত করছে?
+-  봉준호 할리우드 영화 ‘미키17’ 개봉 연기를 바라보는 시선
+-  Skeletal remains found near Kamloops landfill
+-  Harry Potter proof copy, bought for pennies, sells for more than $13K
+-  600 mil ou 185 mil? Entenda as estimativas de público no ato pró-Bolsonaro na Paulista
+-  AC Milan slap price tag on Bayern Munich left-back candidate Theo Hernández
+-  Caroline Derpienski "ZAATAKOWANA" przez polskich fanów w stolicy. "Ja jestem otwarta na fotki!" (ZDJĘCIA)
+-  윤 대통령, 서산동부전통시장 찾아 상인 격려·시민 환영에 화답[뉴시스Pic]
+-  謠言終結站》美軍援台灣是二手品？國防部：不實臆測
+-  Θάνος Κιούσης: Έκανα πρόταση γάμου ντυμένος ναύαρχος
