@@ -1,11 +1,11 @@
 # Latest News
--  Why is the Y chromosome disappearing?
--  Why is the Y chromosome disappearing? - Deseret News
--  Netflix might kill your subscription if you’re still paying through Apple
--  "팔찌? 스마트폰?"…손목에 감는 '벤더블폰' 나왔다[MWC 24]
--  RAMALAN SHIO Hari Ini Selasa 27 Februari 2024: Peruntungan Shio Macan Shio Monyet hingga Shio Babi
--  Fátima Bernardes se despede da Globo, mas essas 21 fotos da jornalista mostram que seu legado na TV é inesquecível
--  Animal Planet Presenter Will Visit Costa Rica To Share His Most Extreme Adventures
--  [심층] 하이브, BTS 없이도 가파른 성장세
--  Skuad Muda dan Berbahaya Menurut Bung Ropan, 4 Pemain Abroad ini Harus Memperkuat Timnas Indonesia di Piala Asia U-23
--  Being An Influencer Is The Dream Job Of Ticos This 2024
+-  Tribute to singer and musician Acharya
+-  Apostador no Nortão fica milionário após acertar sozinho 15 números na loteria
+-  Érika Hilton pede investigação sobre despesas com estadias de Bolsonaro no Bandeirantes
+-  Niranjan Hiranandani, his son Darshan Hiranandani fail to appear before ED due to...
+-  Érika Hilton pede investigação sobre despesas com estadias de Bolsonaro no Bandeirantes
+-  Tribute to singer and musician Acharya
+-  Érika Hilton pede investigação sobre despesas com estadias de Bolsonaro no Bandeirantes
+-  ‘This is the one that could backfire’: Montagna’s shock call on Swans … but fellow expert sees it ‘a bit differently’
+-  Jaldo afirmó que Chubut "tiene que pagar la deuda" y que Torres "dice la verdad a medias"
+-  Se incendia la casa de ‘Gio’, joven asesinado por padrinos de un anexo, en Saltillo
