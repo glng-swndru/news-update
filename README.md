@@ -1,11 +1,11 @@
 # Latest News
--  Bitcoin ve Ethereum uçuşa geçti! Yükselişin nedeni belli oldu
--  Україна може зробити більше для боротьби з корупцією, - Держдеп США
--  England í dag - Úrvalsdeildarslagur í 16-liða úrslitum
--  Ísland í dag - Landsleikur og Lengjubikar
--  홍익표 “임혁백, 하위평가자 열람 거부에 유감…의원 의견 듣겠다”
--  Þjóðadeild kvenna í dag - Öll heimaliðin nema Ísland með forystu
--  Biden: Gazze’de ateşkes çok yakın
--  Evrópa í dag - Efstudeildaslagir í undanúrslitum og 8-liða
--  I quarant’anni degli Accordi di Villa Madama
--  Ankara'da 'Tevhid Dergisi' adı altında DEAŞ yapılanması! Çok sayıda gözaltı kararı
+-  Pratham
+-  Michigan államban folytatódik az amerikai előválasztások folyamata
+-  80 Mitra Universitas Indonesia Tawarkan Magang MBKM di Dalam dan Luar Negeri
+-  İstanbullular dikkat! Kağıthane Tüneli trafiğe kapatılacak
+-  Biden: Israel hat Waffenruhe über Ramadan zugestimmt
+-  Gazze'de Ramazan ayı boyunca ateşkes ilan edildi! Ateşkesi ABD duyurdu...
+-  Antalyaspor Başkanı Boztepe hakeme isyan etti: Biz bugün 8 gol atsak, hakem 9. golü attıracaktı
+-  Döviz kurlarında son durum: Euro ve dolar, tarihi yüksek seviyede!
+-  スターバックスにSAKURAシーズン第2弾 「花見抹茶 クリーム フラペチーノ」と「花見 ブロンド ラテ」登場
+-  Macron ne isključuje raspoređivanje francuske vojske u Ukrajini
