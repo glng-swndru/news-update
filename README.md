@@ -1,11 +1,11 @@
 # Latest News
--  Survivor: Ο Γκιουλέκας «καρφώνει» Σταμάτη και Ασημίνα - Ήταν στην τέντα του γιατρού και έψαχναν στρατηγική κατά του Τζέιμς
--  Maďarský parlament schválil vstup Švédska do NATO
--  Long-Lost Sisters Who Built the Largest Black-Owned Wine Company in the U.S. Reveal How to Break Into a Notoriously Tough Industry
--  Дано да има повече милионери като дарителя на Алма матер
--  桐島聡容疑者と断定 書類送検へ
--  Man charged with Tupelo home burglary
--  電気代最安値の電力会社が「総額だと最高値」の怪!?複雑な料金計算に中古車業界に倣う“ある施策”の待望論 - エネルギー動乱
--  ‘A good shake’: Aftershocks hit Canterbury after 5.1 magnitude earthquake
--  El Gobierno sólo ha vendido a comunidades y ayuntamientos el 1,6% de las viviendas de Sareb ofrecidas en 2023
--  Man held without bond for aggravated domestic violence
+-  賣地收入73億跌76% 測量界料下季重推住宅地
+-  مقر «سیا» در زیرزمین‌های اوکراین
+-  I tested best breads for making toasties from Asda to Waitrose – winner was 65p less than brand leader & tasted great
+-  彭博：螞蟻擬購瑞信在華投行
+-  ITV Celebrity Big Brother chaos revealed as host Will Best opens up over 'intense' moment
+-  بررسی نحوه خدمت‌رسانی به مشتریان در استان سیستان و بلوچستان توسط مدیرعامل بانک ملی ایران
+-  BBC bosses in huge battle to get new Gavin & Stacey festive special for Christmas as streaming giants plot to grab show
+-  Belgravia Place收近千票 最快今加推
+-  Work Underway to Upgrade Electric System in Western Pennsylvania
+-  نبض شاخص - ۱۴۰۲/۱۲/۰۸
