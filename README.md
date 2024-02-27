@@ -1,11 +1,11 @@
 # Latest News
--  DHMZ JAVLJA Cijela obala sutra pod žutim upozorenjem
--  Arnar stefnir KA - Telur sig eiga rétt á bónus
--  L'Paille à Sonique attire 650 personnes en deux soirées de concerts à Luisant
--  Dışişleri Bakan Yardımcısı Ahmet Yıldız: İsrail uluslararası hukuku ihlal eden eylemlerden sorumlu tutulmalı
--  이재명 부부 같은 날 법정행…혐의 부인
--  VoIP Testing with SIP Emulation and Conformance Test Suite
--  НА ЖИВО: Берое - Лудогорец 0:2, снаряд на Руан Секо увеличи преднината на гостите
--  Убийство с юмрук при спор за паркиране (Обзор) - Труд
--  Borsa: Milano chiude debole (-0,3%), balza Leonardo, giù Campari
--  Cork's Greenes Restaurant marks 'last service' as venue announces shift in dining style
+-  Венгрия поддержала Азербайджан в ПАСЕ
+-  Восстановление контроля над Крымом является стратегической задачей для Украины, - замминистра обороны Клименков
+-  For the love of buckets: KFC Canada launches search for ultimate Finger Lickin’ Good Basketball Celebrations
+-  Handball-Bezirksoberliga: Janina Gruber beißt sich durch
+-  Ant McPartlin and Anne Marie can't stop grinning after quitting ITV show to 'focus on family'
+-  Heartbreaking Development Involving 11-Year-Old Detroit Girl Shot in Drive-By While She Slept
+-  Рублев вышел во второй круг турнира в Дубае
+-  Schmuggel von 2,3 Tonnen Kokain: Lange Haftstrafen
+-  Galatasaray, VAR incelemesiyle penaltı kazandı!
+-  Täter vermutlich in Schwalmtal: Pilot mit Laserstrahl geblendet – Spur führt nach Amern
