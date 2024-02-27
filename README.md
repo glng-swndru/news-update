@@ -1,11 +1,11 @@
 # Latest News
--  Von süß bis herzhaft: Einfache Pistazien-Rezepte und wie man sie knackt
--  Stvari Eltona Džona prodate na aukciji za osam miliona dolara
--  Sardegna, si assottiglia distanza tra Truzzu e Todde
--  غدًا.. العرض الأول لمسرحية "صناع المحتوى" على مسرح بكر الشدي
--  WellSpan Health and Evangelical Community Hospital Announce Definitive Agreement to Combine Health Systems
--  In Oberhausen sinken die Preise für Häuser und Wohnungen
--  Kieselsteine mitnehmen verboten: Bis zu 1.000 Euro Bußgeld an griechischem Strand
--  Czasy AI nie wykluczają książki i czytania
--  Lenovo stellt das erste durchsichtiges Notebook der Welt vor
--  Le Dinali Kebab a ouvert rue Sainte-Catherine, à Quimper
+-  DHMZ JAVLJA Cijela obala sutra pod žutim upozorenjem
+-  Arnar stefnir KA - Telur sig eiga rétt á bónus
+-  L'Paille à Sonique attire 650 personnes en deux soirées de concerts à Luisant
+-  Dışişleri Bakan Yardımcısı Ahmet Yıldız: İsrail uluslararası hukuku ihlal eden eylemlerden sorumlu tutulmalı
+-  이재명 부부 같은 날 법정행…혐의 부인
+-  VoIP Testing with SIP Emulation and Conformance Test Suite
+-  НА ЖИВО: Берое - Лудогорец 0:2, снаряд на Руан Секо увеличи преднината на гостите
+-  Убийство с юмрук при спор за паркиране (Обзор) - Труд
+-  Borsa: Milano chiude debole (-0,3%), balza Leonardo, giù Campari
+-  Cork's Greenes Restaurant marks 'last service' as venue announces shift in dining style
