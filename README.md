@@ -1,11 +1,11 @@
 # Latest News
--  삼성 갤럭시링 하반기 출시… 수면·심장 건강 체크
--  Akrabalar arasında kanlı çatışma: 3 ölü, 2 yaralı
--  大陸人來台買房剩16件創新低 房仲指3原因導致
--  Uttar Pradesh: Banker drags man for 3 km on his car’s bonnet in Ghaziabad; arrested
--  Balkonkraftwerke: Warum Norderstedt PV-Anlagen nicht fördert
--  Legal challenge against Sask. pronoun policy halted, government to file appeal
--  Lars Boje Mathiesen teaser for muligt nyt parti
--  Как изменились цены на продукты за три года: посмотрели, что дорожало больше всего
--  Ολοκληρώνεται σήμερα η διήμερη επίσκεψη του Προέδρου της Ιταλίας στην Κύπρο
--  Mai multe țări UE sunt pregătite să cumpere arme din afara Europei pentru Ucraina
+-  Ciel nuageux, trois bouchers icaunais en concours au Salon de l'agriculture, huit idées de sorties pour toute la famille... Les infos pratiques de ce mardi 27 février
+-  Podatek od najmu 2024. Sprawdź, co się zmienia. Eksperci zwracają uwagę na wyższy podatek od nieruchomości. O ile wzrośnie danina?
+-  Takeda Signs Manufacturing Partnership With India's Biological E. For Dengue Vaccine QDENGA - Nasdaq
+-  Les haussiers de la livre sterling se calment, pour l'instant
+-  EN DIRECT - Guerre en Ukraine : plusieurs pays de l'UE prêts à acheter des armes hors d'Europe pour Kiev
+-  L'association A Bicyclette déménage avenue Victor-Hugo à Tulle
+-  Hamas: Gazze için kendini yakan ABD'li askerin ölümünden Biden yönetimi sorumlu
+-  Recibe una buena cifra en dólares para el pago de la calefacción (+detalles)
+-  Vad gör man när längtan är över?
+-  Oroscopo di oggi (martedì 27 febbraio 2024): segno per segno
