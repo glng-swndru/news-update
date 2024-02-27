@@ -1,11 +1,11 @@
 # Latest News
--  Suchtfaktor Smartphone: Studie: Problematische Social-Media-Nutzung bei Kindern weiter hoch
--  صحنه خواستگاری مرحوم معین محمودزاده از بهاره افشاری در نیوکمپ | ببینید
--  Wolff est très heureux de la Mercedes F1… mais Red Bull ‘semble être devant'
--  BBB 24: Wanessa Camargo e Yasmin Brunet criticam voz de Davi: 'Anasalado para caramba'
--  7 لاعبين يمثلون منتخب الجولف في البطولة الخليجية بقطر
--  İstanbul’da uygun fiyatlı ve güzel çay içilecek yerler
--  Suchtfaktor Smartphone: Studie: Problematische Social-Media-Nutzung bei Kindern weiter hoch
--  Einsteinin aivot varastanut patologi katosi kuin tuhka tuuleen – siiderilaatikossa köllötellyt yllätys oli viedä jalat alta
--  Suchtfaktor Smartphone: Studie: Problematische Social-Media-Nutzung bei Kindern weiter hoch
--  Izbrali so novi evropski avtomobil leta
+-  Глава МВД прокомментировал возможности проведения досрочных выборов в Кнессет
+-  Meta dezenformasyona karşı safları sıkılaştırıyor
+-  Suora lähetys: Henriksson jättää puheen­johtajuuden
+-  „Iki“ komunikacijai vadovaus Kitovė
+-  मनी लॉन्ड्रिंग मामले में राजद के पूर्व विधायक अरुण यादव के ठिकाने पर ईडी ने की छापेमारी, घर बाहर लगी समर्थकों की भीड़
+-  DRŽAVA ČASTI Pojedini diplomati dobivaju naknadu za smještaj iako imaju vlastiti stan, za Ministarstvo to nije problem
+-  Как да изберем най-добрата мазнина за пържене?
+-  한국씨티은행, 1사1교 금융교육 우수사례 ‘금감원장상’ 수상
+-  Заболеваемость COVID-19 в РФ за неделю уменьшилась почти на 9%
+-  Täyssähköinen uutuusauto tähtää premiumiksi – IM:n tuonti Suomeen alkaa ensi vuonna
