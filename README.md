@@ -1,11 +1,11 @@
 # Latest News
--  Kicsoda a Liverpool váratlan hőse, aki Klopp szerint a világ legjobb cserekapusa?
--  احداث سالن۳ایرانشهر باتکنولوژی جدید/بلک‌باکسی قرینه سالن سمندریان
--  Kommentti: Teinityttö Vladimir Putinin vierellä hätkäytti – Venäjän johtaja lähetti taas irvokkaan viestin
--  Oil Futures Rise, Buoyed by Demand From Refineries
--  台灣大哥大「半夜突斷網」 用戶灌爆粉專求補償！業者：臨時維護
--  Tin nóng bóng đá Việt 27/2: Việt Nam có bản quyền trận gặp Indonesia, Bùi Tiến Dũng bị treo giò
--  Professorn om Nato: ”Vår identitet förändras”
--  Indonesian media outlets expect to conclude deals with digital platforms by August
--  Проект 920-километрового газопровода "Ухта - Чебоксары" отложен
--  Bus: Eine Bildergeschichte über einen kleinen Stups in einem Bus voller Griesgrame
+-  한방병원서 마약 빼돌려 투약한 20대 간호사 체포
+-  국민의힘 "민주당 공천, 이재명 호위무사에 하사하는 전리품"
+-  웃음 가득한 ‘로기완’ 제작보고회 [포토]
+-  넷플릭스 ‘로기완’ 제작보고회 [포토]
+-  민주, ‘서울시 이승만 기념관’에…“차라리 을사오적 기념관까지 만들라”
+-  هشدار درباره رژیم‌های غذایی خودسرانه | اما رژیم های لاغری جدید و فستینگ علمی‌اند؟
+-  बिहारको कम्पनी 'वि-विनर'को ठगीमा यसरी फसिरहेका छन् नेपाली...
+-  Domartjafs och udda greppet – så blev han bäst
+-  민주당, 서울 중·성동갑 임종석 공천 배제…전현희 전략공천
+-  Stefano Pioli Kecam Ofisial VAR
