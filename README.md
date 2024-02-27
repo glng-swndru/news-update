@@ -1,11 +1,11 @@
 # Latest News
--  寒気の影響で冷たい風が吹きつける 新潟県内は強風・高波に注意を
--  伊万里市で車が正面衝突 デイサービスから帰宅途中の80代女性死亡【佐賀県】
--  27日の東京株式市場 前日のＮＹ市場で「半導体大手の株価上昇」受け史上最高値更新も……その後は下げに転じる
--  Medvedev says Australian Open final loss 'easy' to get over
--  Chồng nổi tiếng thấy vợ bán hàng online cực khổ tặng cho chiếc túi hiệu giá bằng cả căn nhà: Làm gì mà giàu cỡ này?
--  Thị trường xe điện đang hạ nhiệt bỗng nhận được cú "vote" quý giá từ Hiệp hội Phổi Hoa Kỳ: Chuyển sang sử dụng ô tô không phát thải giúp cứu sống 508 trẻ sơ sinh, ngăn ngừa hàng triệu bệnh tật ở trẻ em
--  রাজধানীর যেসব এলাকায় ৩ ঘণ্টা গ্যাস থাকবে না আজ
--  PTP carries out first LNG bunkering operation
--  Rekkakuski Leevi Saarela tuntee parhaat lounaspaikat, ja yksi niistä löytyy Tirilästä
--  Makan Siang Gratis Prabowo-Gibran Masuk APBN 2025, Detail Anggaran Tunggu Sebulan Lagi
+-  Безнадеждно: Пак спирачки за единствения конкурент на Путин за президент
+-  Финансова инжекция ще получат 4 зодии във вторник!
+-  Luật đất đai 2024: Các trường hợp vi phạm pháp luật nào sẽ bị thu hồi đất?
+-  Kỳ lạ hiện tượng Shein: Thương hiệu vô danh ở Trung Quốc trở thành hãng thời trang quốc tế đầu tiên của nước nhà, trị giá 30 tỷ USD, cho Amazon, Zara, H&M 'hít khói'
+-  „გუდა“ – თუშეთის მეცხვარეებისგან დაწყებული გუდის ყველის დამზადების წესი და ტრადიცია
+-  Omalizumab boosts tolerance to multiple food allergies, study finds
+-  LEDARE: Peters familj pratar om honom som om han fortfarande lever
+-  Барриос считает, что Хамес может перейти в «Зенит»
+-  ロッテ「チョコパイ」の“生”デザートに「ニューヨークチーズケーキ」味の新作 季節限定で3月1日から
+-  Pazienti ammassati nei sotterranei, vigilantes che dormono. Una notte negli ospedali di Roma (VIDEO)
