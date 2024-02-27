@@ -1,11 +1,11 @@
 # Latest News
--  Özhaseki, Malatya'da konutların bütün hak sahiplerine teslim tarihini açıkladı
--  Confiança da Indústria fica estável em fevereiro, em 97,4 pontos, afirma FGV
--  Tribunal de Dakar : Une dame vole le téléphone d’un boucher et s’enfuit avec l’appareil
--  Ayşe İkiz
--  Metin Arslan
--  Cremlino,conflitto inevitabile se Nato manda truppe a Kiev
--  Court documents shed new details in killing of nursing student at University of Georgia
--  인플레이션 지표 발표로 미국 주식 선물 소폭 상승
--  '문 정부 출신' 임종석 공천 배제…이재명 대표 속내는?
--  תתחילו להתכונן לאביב: כך משיגים את מראה הקוביות המיוחל בחמישה צעדים
+-  TFF açıkladı: Galatasaray-Rizespor maçının günü ve saati değişti!
+-  Nesli tükenme tehlikesi yaşayan Porsuk cep telefonuyla görüntülendi
+-  Macy's prevede vendite annuali inferiori alle stime e chiude 150 negozi
+-  PUB to build world’s largest facility to help remove CO2 from ocean
+-  La démolition de l'ancien collège de Gallardon va très bientôt démarrer
+-  Smartphone addiction fuels loneliness and reduces well-being, study finds
+-  Aérea encontra rato em avião e impede voos por três dias
+-  खाली जेब, टूटे सपने और हताश मन, फिर एक्ट्रेस के फोन की बजी घंटी और...
+-  Marihuana će biti legalizovana u Srbiji? Koluvija: Konoplja nije droga i nije opasna! (VIDEO)
+-  Spanish court dismisses lawsuit over LaLiga's $2.1 billion deal
