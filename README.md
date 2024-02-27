@@ -1,11 +1,11 @@
 # Latest News
--  작년 후원금 국민의힘 18억 1위…진보당 14억, 민주당 4억 2천 만
--  St. Louis School gets 100% on I-READ
--  Taylor Swift’s private jet takes off from Syd
--  County poll workers get a pay raise
--  Sudah Ikhtiar dan Doa Tapi Rezeki Masih Seret, Mengapa?
--  Alleged arsonist charged with lighting four fires at Table Top, Thurgoona
--  Taylor Swift’s jet takes off from Syd
--  베베쿡, 아기 동결건조 간식 신제품 ‘처음먹는 치즈큐브 3종’ 출시
--  Affinity Equity to Call Bids for Malaysia Hospital
--  Governo publica regras para auditoria de apostas esportivas
+-  Taupō and Tūrangi adopt a pet: Meet Daisy and Rose
+-  夜空に浮かんだ星が示すものは何？ 解けると気持ちいい“謎解き問題”に挑戦しよう
+-  Laporan Dugaan Pelecehan Seksual Rektor UP di Bareskrim Dilimpahkan ke Polda Metro Jaya
+-  Перспектива другого президентства Трампа непокоїть розвідувальників США, - Politico
+-  Sẵn sàng chuyển mình thành quận, một huyện tại Hà Nội đầu tư hàng loạt tuyến đường nghìn tỷ
+-  Pedro Passos Coelho diz que "resultado natural é a vitória da AD"
+-  Chris Evans e Alba Baptista espalham sorrisos por Lisboa
+-  Mulher encontrada dentro de uma mala levou facada no coração
+-  Gold Silver Price Today: हफ्ते के दूसरे दिन जाने सोने - चांदी की कीमत में कितना आया उतार चढ़ाव
+-  Марта Костюк – Энн Ли. ​Смотреть онлайн. LIVE трансляция
