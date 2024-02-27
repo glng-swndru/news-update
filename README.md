@@ -1,11 +1,11 @@
 # Latest News
--  "Selfiju taisīja prezidents - pastarītis." Rinkēvičs publisko prezidentu selfiju
--  Zee Cine Awards 2024: Alia Bhatt unveils the trophy in style [Video]
--  Singapore households took on more debt in Q4
--  Fiat’s Mega Panda Concept Revives The 80s Panda 4X4 In Spectacular Style
--  Prokuratura chce uchylenia immunitetu Ryszarda Czarneckiego
--  اليمن تشارك في اجتماع وزراء التجارة العرب وتسهيل الاستثمار في أبوظبي
--  Gravina: «Riforma del calcio indispensabile»
--  BBT.live and Advantech to Showcase Next-Generation Secure Connectivity Solution for Service Providers at MWC2024 Barcelona
--  Diduga Tidak Dukung Pencalegan Istrinya, Kades di Situbondo Langsung Pecat 2 Kepala RT
--  أسهل طريقة وسريعة لنقل المحادثات من هاتف قديم إلى هاتف جديد
+-  Elképesztő, amit a Magyar Telekom csinál - Érik a fordulat?
+-  Rumour: New Report From Nikkei Corroborates 'Switch 2' Delay Into 2025
+-  Pedro Pascal Discusses The Last Of Us Season 2 After Winning SAG Award
+-  Elektro, Hybride, Verbrenner, Wasserstoff: Welche Antriebstechnologie ist die beste – und für welchen Zweck?
+-  Зеленський підписав закон про демобілізацію строковиків
+-  Holland America Line Visits All Seven Continents and Includes an Antarctic Experience on 2026 Grand World Voyage
+-  Parkautomat defekt: Was es zu beachten gilt, um Knöllchen zu vermeiden
+-  Ross and Rocky Lynch of the Driver Era Plot North American Tour (EXCLUSIVE)
+-  PEVALA "KELE, KELE" U BEOGRADU I ZALUDELA CEO SVET! Pevačica Sirušo 16 godina kasnije izgleda LEPŠE NEGO IKAD
+-  Villi juhlii kymmentä vuottaan runoilla ja kurakakuilla – salolaisen kulttuuritalon tarina alkoi luvallisella valtauksella
