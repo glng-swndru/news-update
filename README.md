@@ -1,11 +1,11 @@
 # Latest News
--  Whatsapp faz 15 anos e incorpora IA na atualização
--  સહિયર સમીક્ષા .
--  V Domžalah prejeli sto predlogov za participativni proračun
--  디어밍, ‘버려진 왕녀는 반역한다’ OST 주자 참여…28일 발표
--  14 Şubat Sevgililer Günü yemeği dönüşü 2 kardeşin öldüğü kaza kamerada
--  STR rules won't hurt tourism
--  14 Şubat Sevgililer Günü yemeği dönüşü 2 kardeşin öldüğü kaza kamerada
--  Hljóðmengun ógn við hvali
--  Çalhanoğlu sıradan çıxdı
--  Japanac najavio kraj karijere
+-  'It's absurd': Toronto taxpayers face even-bigger bill as FIFA World Cup costs climb
+-  Патрушев прилетел на Кубу
+-  České znění vtipů jsme brainstormovali v hospodě, říká o seriálu Simpsonovi překladatel Petr Šaroch
+-  Everest Medicines and Kezar Life Sciences Receive IND Approval from China NMPA for PALIZADE Trial in Lupus Nephritis
+-  Macky à la presse Étrangère: " diguéne eubam sen bagages, yobouwatt sen cameras délou"
+-  લગ્નના શૃંગારની સજાવટ .
+-  Carlos Moedas: “Nem pensar que ministro das Finanças é melhor que presidente da Câmara de Lisboa; presidente dá coisas, ministro tira”
+-  الهی: دوست داشتم برای جبران غیبتم در جام تختی، یک برد خوب بیاورم/ ذهنم در کشتی بچه است!
+-  昭和30年代にiPhoneのCM？「センスが大爆発」のもしも動画が話題
+-  Tərkibində yaşıl çaydan 137 dəfə çox antioksidant var
