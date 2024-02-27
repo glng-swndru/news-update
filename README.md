@@ -1,11 +1,11 @@
 # Latest News
--  Pela primeira vez, país exporta para UE com certificado de origem
--  Paro docente: con adhesión dispar, comenzaron las clases en 8 provincias
--  Menino mata aula com primo e desaparece ao nadar no Rio Miranda
--  攻めにも守りにも強い11期以上「連続増配ランキング」1位花王、2位と3位は？ - 高配当＆高成長！新NISAで狙う日本株
--  Policjanci zatrzymali go do standardowej kontroli. Wpadł, bo był nerwowy
--  ΒΙΝΤΕΟ: Ολόκληρη η συνέντευξη του Σωφρόνη – Η σύγκρουση με Γιάνσον και η σχέση με τον Παπασταύρου
--  Jind News: 37 महिलाओं को राशन डिपो देने की प्रक्रिया पूरी
--  JOŠ JEDAN RUS LIKVIDIRAN U ŠPANIJI PRE KUZMINOVA? Šok detalji ubistva pilota koji je prebegao u Ukrajinu OTAC SE ODREKAO IZDAJNIKA
--  Mond: »Odysseus« sendet Fotos
--  Policiais e educadores em Sorriso participam do Círculo de Paz para prevenção de conflitos
+-  Survivor: Ο Γκιουλέκας «καρφώνει» Σταμάτη και Ασημίνα - Ήταν στην τέντα του γιατρού και έψαχναν στρατηγική κατά του Τζέιμς
+-  Maďarský parlament schválil vstup Švédska do NATO
+-  Long-Lost Sisters Who Built the Largest Black-Owned Wine Company in the U.S. Reveal How to Break Into a Notoriously Tough Industry
+-  Дано да има повече милионери като дарителя на Алма матер
+-  桐島聡容疑者と断定 書類送検へ
+-  Man charged with Tupelo home burglary
+-  電気代最安値の電力会社が「総額だと最高値」の怪!?複雑な料金計算に中古車業界に倣う“ある施策”の待望論 - エネルギー動乱
+-  ‘A good shake’: Aftershocks hit Canterbury after 5.1 magnitude earthquake
+-  El Gobierno sólo ha vendido a comunidades y ayuntamientos el 1,6% de las viviendas de Sareb ofrecidas en 2023
+-  Man held without bond for aggravated domestic violence
