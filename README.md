@@ -1,11 +1,11 @@
 # Latest News
--  FC Bayern holt Max Eberl: Nun könnten gleich mehrere Topverdiener den Verein verlassen
--  Der Regisseur von Epic Mickey will immer noch Epic Mickey 3 machen
--  Парламентът в Будапеща избра нов президент на Унгария
--  Kubová končí a chce do MOV: Budu lákat na bonbonky, žebro bylo hřebíček
--  Gedenkmünzen vorgestellt: 6210 Euro für einen George Michael in Gold
--  Ekrem İmamoğlu, Halk Buluşması programında konuştu
--  MSB görüntüleri paylaştı! 'AL HARES MANE-2024 Tatbikatı' devam ediyor
--  Mimo dużej różnicy wieku są razem od 12 lat. Małgorzata Szumowska mówi: fajnie być żoną
--  قطار يجتاز 70 كيلومترا بلا سائق
--  Macarıstanın yeni prezidenti kimdir?
+-  AKP'li Çelik'in hedefinde muhalefet var : 'Milletten özür dilemeliler...'
+-  वैश्विक बाजार मुद्रास्फीति के आंकड़ों का अनुमान लगाते हैं
+-  جندي أمريكي يحرق نفسه أمام سفارة إسرائيل بواشنطن
+-  Ετοιμάζεται για τα καρναβάλια ο Δήμος Λάρνακας
+-  Kalça Ağrısı: Nedenleri ve Çözüm Yolları
+-  Esra Erol güzellik sırrını ilk kez paylaştı! Ne pahalı kremler ne botoks… Bebek gibi cildinin sırrı yüzünü onunla yıkamasıymış
+-  Hungarian parliament elects top court chief as new president
+-  Ördög Nóra elárulta, kiknek van esélyük megnyerni a Next Top Model Hungaryt
+-  Udine, mozione di sentimenti nei confronti del comparto agricolo
+-  Mumbai: After tough talk by govt, quota leader Manoj Jarange Patil calls off fast
