@@ -1,11 +1,11 @@
 # Latest News
--  De Cian felice per la Dolomiti. «Il gruppo sta creando una mentalità vincente»
--  Na Alemanha, índice GfK de confiança do consumidor para março sinaliza leve melhora
--  Maltempo, allerta per il Bacchiglione al confine tra Vicenza e Padova
--  ¿Se viene Gran Hermano Uruguay? Ángel de Brito lo anunció y las redes reaccionaron
--  Drei Mal lebenslange Haft für Drogenbande in Niederlanden: Der bisher größte Mordprozess
--  【速報】岸田首相28日の政倫審見送り受け「引き続き説明促していく」
--  Maltempo, allerta per il Bacchiglione al confine tra Vicenza e Padova
--  Untersuchung des GDV: Über 28.000 Adressen in NRW sind hochwassergefährdet – diese Stadt trifft es besonders
--  Olympics-Skateboarders ready to feel the Paris 2024 love
--  Araştırma: 12 milimetrelik balık, 140 desibelin üstünde ses çıkarabiliyor
+-  Robert Rooli kolm investeerimissoovitust, mida ta uuesti alustades teisiti teeks
+-  Moon landing photo captures U.S. spacecraft right after tipping
+-  A brit cégek többsége megszenvedi a vörös-tengeri hajózási fennakadásokat
+-  Rosja i Ukraina mogą się bić na kolejnym froncie. Tym razem w Mołdawii
+-  Hille lilleline elu saja toataimega: „Kui viimaks magamisaseme üles tõstsin, oli voodialune läbi lippide tunginud ratsuritähe õisi täis…“
+-  Nam nhân viên IT 30 tuổi bị nhồi máu cơ tim cấp, bác sĩ cảnh báo đừng chủ quan bỏ qua 1 dấu hiệu tưởng chừng bình thường này
+-  Iz Kine stiže laptop sa providnim ekranom VIDEO
+-  Sú deild í Evrópu sem er á hvað mestri uppleið
+-  "Quand je suis sorti, je savais que c'était fini pour le guide et mon cousin" : rescapé de l'avalanche au Mont-Dore, il raconte
+-  Percorso pedonale sul lungomare, il Comune ci ripensa: non si farà all'Addaura ma solo per 150 metri a Vergine Maria
