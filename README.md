@@ -1,11 +1,11 @@
 # Latest News
--  Ontario euthanizes 84 raccoons and accuses rehabber of mistreating animals
--  Vento fortissimo a Heathrow, l’aereo non riesce ad atterrare
--  Babacan’dan 'genç aday' eleştirisine cevap: Bakma genç göründüğüne!
--  Bộ Y tế đề nghị báo cáo vụ phát hiện ma túy trong bệnh viện
--  Erdal Beşikçioğlu tüm salona bakın ne ısmarladı! Oğuzhan Uğur dayanamayıp 'Bu para nereden geliyor?' diye sordu
--  Paul McCartney confesses personal regrets hidden in much-loved Beatles song lyrics
--  Rəsmi Bakıdan Ermənistan XİN-in iddialarına
--  OTAC MI JE BIO NA SAMRTI DOK SAM DEBITOVAO! Prošao kroz PAKAO, a sada napada titulu sa SRBINOM: Nisam izlazio, ljudi su UBIJANI!
--  Novosadska policija uhapsila Britanca zbog prodaje droge: Imao marihuanu, MDMA, ulje kanabisa...
--  Man pleads guilty in deaths of 2 officers at Virginia college in 2022 and is sentenced to life
+-  Οι Ολυμπιακοί Κύκλοι επέστρεψαν στο Παναθηναϊκό Στάδιο
+-  Unterstützung der Kenia-Hilfe: Angel hat eine ganze Mannschaft als Paten
+-  Umgang mit Kind darf nicht an Geldzahlungen geknüpft sein
+-  Лавров жесткой шуткой ответил на ультиматум Зеленского о заключении мира с Украиной: Вот, что он сказал
+-  India has become third-largest Startup ecosystem in the world, says Piyush Goyal
+-  Umgang mit Kind darf nicht an Geldzahlungen geknüpft sein
+-  Braun: Polacy nie sprostają wyzwaniom, jeśli będą na krótkiej smyczy międzynarodowych oligarchów
+-  Van'da ambulans helikopter yüksekten düşen hasta için havalandı
+-  Un fotograf a depus plângere împotriva tatălui lui Taylor Swift, acuzându-l că l-a agresat
+-  ‘Kırmızı kil’ üreticileri! BAE, ürünlerinizi ithal edecek
