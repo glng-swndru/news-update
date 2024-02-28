@@ -1,11 +1,11 @@
 # Latest News
--  "KRALJ OBRVA" KOJI JE ZAVEO INFLUENSERKU ZARAĐUJE 100.000 € MESEČNO! "Nisam naročito pametan, mrzelo me da radim"
--  Promijenjen termin utakmice između Širokog Brijega i Veleža
--  Prince George city council pushes back against short-term rental rules
--  Los Premios Max de teatro se celebrarán por primera vez en Tenerife, en el Auditorio Adán Martín
--  Around 46% of T-bills allotted to retail investors in each auction in 2024
--  Emilie Tran Nguyen, réalisatrice de "Je ne suis pas chinetoque", a grandi à Clermont-Ferrand
--  Wird eine der besten Netflix-Serien fortgesetzt? Diese 4 Stars sollen in Staffel 2 angeblich die Hauptrollen übernehmen
--  بدء الحلقة التدريبية لـ"برنامج الفحص الطبي قبل الزواج"
--  Alger riposte au refus d’Albares d’aborder la question du Sahara
--  Column: Het klassieke strijdpunt onder rooie voormannen en -vrouwen: ‘Hoe goed ken jij de werkman eigenlijk?’
+-  Handballer Luca Tschentscher: Der Nächste aus dem Bottwartal
+-  На востоке Москвы восстановили движение транспорта после утечки воды
+-  Fazl sees system collapsing due to establishment's interference
+-  Vidović: Postpotresna izgradnja postala sjajan poligon za izvlačenje novaca
+-  Huawei на Световния мобилен конгрес: Нови тенденции в модата и технологиите
+-  SaS: Neschválením výdavkových limitov vláda ženie SR na grécku cestu
+-  珠洲市の港で漁船引き揚げ作業 能登地震で津波など被害
+-  Deutschland muss ESC-Song wegen Kraftausdruck zensieren
+-  U20 nữ Việt Nam thắng đậm Uzbekistan trước thềm U20 châu Á 2024
+-  Ministrica za zdravje Fides znova pozvala k zamrznitvi stavke
