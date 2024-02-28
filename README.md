@@ -1,11 +1,11 @@
 # Latest News
--  Paulo Raimundo admite que "não é fácil ser como Jerónimo de Sousa"
--  A new regulator for nutraceuticals?
--  Meclis, Çalışmalarına ara veriyor
--  Boavista está impedido de inscrever jogadores
--  Arthur Cabral desiludido com condição de suplente
--  Kemendikbud Tak Setuju Anak Vincent Rompies dan Geng Dikeluarkan Dari Sekolah, Kenapa?
--  “28 Şubat Siyonizm'in oyunudur"
--  Conceição proíbe pensamento no clássico
--  A série ‘Harry Potter’ será lançada em uma plataforma de streaming, quando?
--  Sinopsis Lovely Runner, Drakor Romantis Byun Woo Seok dan Kim Hye Yoon
+-  ២ថ្ងៃជាប់គ្នា សមត្ថកិច្ចបង្ក្រាបបទល្មើសនេសាទ ៦ ទីតាំង​នៅ​ស្រុក​ឯកភ្នំ
+-  빌라 전세포비아에…전세가율 80% 넘는 거래 70→28%
+-  «Распоясавшиеся европейские сателлиты». Посол России заявил, что США осознают последствия отправки войск на Украину
+-  Railway यात्रियों के लिए खुशखबरी, सरकार ने 50 प्रतिशत तक घटाया पैसेंजर ट्रेनों का किराया
+-  Army personnel file shows Maine reservist who killed 18 people received glowing reviews
+-  México aplicará aranceles a importaciones de acero de EEUU si le impone nuevos tributos
+-  북미 정상회담 통역 이연향 "현실 아닌 듯…어느 회담보다 긴장"
+-  高嶋ちさ子、父愛用の“懐かしの品”に「こんな古いの……いつのだろう」 「現役で使えている事に驚き」と反響
+-  Rigorini e falli di mano: il regolamento che distrugge il calcio, caos dopo Milan-Atalante
+-  日テレ・郡司恭子アナ、髪型に悩むもファンからは絶賛「どんな髪型でも似合う」「完璧な美しさを持っている」
