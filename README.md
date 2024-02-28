@@ -1,11 +1,11 @@
 # Latest News
--  Wounded Warrior BC Run makes its way through Sayward to Campbell River
--  Can Ataklı'dan skandal çağrı! Erdoğan'a hadsiz sözler: 1 Nisan'da Türkiye'de kabus başlar
--  Lara Trump officially announces for RNC co-chair, as Trump tightens grip on GOP
--  EEUU admite riesgos financieros si Occidente desbloquea el valor de los activos rusos
--  පා පුවරුවෙන් වැටී තරුණයෙක් මරුට
--  Neologismo: autovoxofilia
--  Helena annexes 11.6 acres on eastern edge of town
--  "Sport mit Haltung" - Förderpreis für Kampf gegen Rassismus und Diskriminierung
--  Ryanair se narugao Wizz Airu zbog ukidanja linije za Dalmaciju
--  Hockey sur glace - Ligue Magnus. Briançon douche Chamonix, pas de miracle pour Gap à Rouen, Grenoble ne sera pas deuxième...les résultats de la 43e journée
+-  חוליית מחבלים הותקפה במרחב עייתא א-שעב בלבנון
+-  STF arquiva inquérito da Lava Jato sobre suposto repasse de propina a Aécio
+-  Monty Williams is absolutely right about bad officials missing obvious calls
+-  Iskustvo 30 000 parova: Ovako treba rješavati sukobe u vezi
+-  ZTE's New Flip Phone Is Cheaper Than the iPhone 15 and Galaxy S24 - CNET
+-  ブライトンに大打撃…三笘薫が背中の負傷で2-3カ月離脱へ。指揮官は今季絶望の可能性を認める - Goal.com
+-  Perché tutti parlano di uno smartphone e un computer che in realtà non esistono
+-  "Temos de aprender ao longo da vida". António Costa voltou à escola (mas chegou atrasado logo no primeiro dia)
+-  Oje sürmek orucu bozar mı?
+-  Who Are The Four Astronauts Selected For India's Crewed Space Mission Gaganyaan? Details Here - News18
