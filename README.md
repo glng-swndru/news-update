@@ -1,11 +1,11 @@
 # Latest News
--  Ισοπεδωτικοί οι Μιλγουόκι Μπακς με σούπερ σταρ τους Αντετοκούνμπο και Λίλαρντ!
--  Kao na modnoj pisti: Kraljica Rania spojila komade koje bi baš svatko poželio
--  Öğrenciler polis ekiplerini yakından tanıyor
--  Deputat: Su qıtlığı ilə bağlı birbaşa dövləti qınamaq düzgün olmaz
--  Meglepő adatok érkeztek az okostelefonos fizetésekről
--  Manav reyonunda çarşamba indirimi! Patates ve çileğin fiyatı dikkat çekti
--  Lần đầu đến Việt Nam, máy bay “made in Trung Quốc” bịt kín 1 thứ
--  U Španiji uhapšen Belivukov “vojnik” Milinko Brašnjević
--  Essity's Annual Report for 2023
--  Un bărbat l-a omorât pe iubitul fostei concubine, apoi și-a pus capat zilelor, în localitatea Heleşteni
+-  Malatya'da devrilen otomobildeki 4 kişi yaralandı
+-  민주 조오섭, '불법 경선 의혹' 상대 측에 공개질의서
+-  Hrvati recikliraju sve više, ali i dalje manje od prosjeka EU, a naši susjedi su na dnu liste
+-  Ncc in piazza contro la "lobby dei tassisti romani" e il ministro Salvini
+-  Beroemde talkshowhost Jon Stewart barst op tv in tranen uit om overlijden van zijn hondje
+-  Tilastokärki jyrää uusilla ajatuksilla – ”Näillä vuosilla on jo tullut opittua kantapään kautta”
+-  Beroemde talkshowhost Jon Stewart barst op tv in tranen uit om overlijden van zijn hondje
+-  이재욱, ♥카리나와 함께하는 여행 예능 가능할까? (살롱드립2)
+-  Dvě derby za sebou. Jak to pohárové může ovlivnit souboj o ligový titul?
+-  Dünya’nın en yaşlı 11 insanı
