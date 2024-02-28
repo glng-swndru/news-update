@@ -1,11 +1,11 @@
 # Latest News
--  TNO: Niemand in Europa zit meer en langer dan de Nederlander
--  Zoniqx Bekerja Sama dengan Ripple untuk Peningkatan Manajemen Aset Digital
--  Bon plan : à Agen, les jeunes font du troc
--  Mitgliederversammlung - Wagramer FF stellt ihr neues Fahrzeug vor
--  Global Automotive Composites Strategic Analysis Report, 2022-2024 and Forecasts to 2030: Automotive Composite Manufacturers Embrace Industry 4.0, but Challenges Remain
--  L'OL avec Lucas Perri et son équipe type contre Strasbourg
--  Biden jokes Taylor Swift endorsement is 'classified' in interview with late-night comic Seth Meyers
--  In deze straat is het oorlog en de gemeente ‘doet niets’: ‘Ik wil niet dat dit eindigt zoals in Weiteveen’
--  Biden jokes Taylor Swift endorsement is 'classified' in interview with late-night comic Seth Meyers
--  Les types d’armures et les statistiques de Helldivers 2 démystifiés
+-  Take a look inside Seth Rogen’s Vancouver penthouse, up for sale for $2.3M
+-  Avocatul lui Alexei Navalnîi, Vasili Dubkov, arestat la Moscova
+-  Take a look inside Seth Rogen’s Vancouver penthouse, up for sale for $2.3M
+-  حزب الله لم يحدد حتى اللحظة موعدا للاجتماع مع تكتل الاعتدال الوطني
+-  LIVE: Följ Boltic–IFK Motala i elitseriekvalet
+-  Избягалият в България руски депутат Генадий Гудков е обявен за терорист
+-  Live Boltic-IFK Motala: Följ matchen här.
+-  Im Osten Recklinghausens: Trinkwasser kommt mit weniger Druck aus der Leitung
+-  Así se juega la octava jornada del campeonato
+-  Transport authority's 'crazy' planning objections 'killing off' rural West Cork
