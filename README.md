@@ -1,11 +1,11 @@
 # Latest News
--  Do you support Ruto and Raila truce?
--  Les services publics ont-ils déserté les quartiers de Liège ?
--  [영상] 울분 토한 임종석 "왜 이렇게까지 하나"…컷오프 전날 친명 유튜브 나온 공관위원 발언에 '발칵'
--  İstanbul Gençlik Oyunları'nda Valorant şampiyonu belli oldu
--  Asuntosalkun liikevaihto kasvoi – Myös nettovuokratuotoissa nousua
--  Soul Strike tier list - Characters ranked according to performance
--  港股異動 | 華潤燃氣(01193)漲超4% 小摩指其即將公佈的業績及經營指引有望超出市場預期
--  Palo Alto Networks Aktienanalyse: Erwartungen nicht getroffen, Wachstum lässt nach
--  Tourism Ministry urged to explain listing of bak kut teh as national heritage food
--  Kastamonu'da kazada yaralanan bebek hayatını kaybetti
+-  In the Serengeti, sisterhood is the key to survival
+-  Die richtige Kleidung fürs Bewerbungsbild: So hinterlassen Sie einen guten Eindruck
+-  Chuyên gia thể chất kiêm cựu vận động viên Olympic chia sẻ các dự đoán cho năm 2024
+-  Con trai Phó Chủ tịch SeABank mới chỉ bán được 1/3 số cổ phiếu đã đăng ký
+-  In the Serengeti, sisterhood is the key to survival
+-  Marktplatz für Maulwürfe – Wie Insider ihr Wissen im Darknet verkaufen
+-  Bergkrosset gör banorna svårcyklade
+-  Ferstapen najplaćeniji ali "skinuće" ga Hamilton u Ferariju
+-  Widower tells of ‘disgust’ wife was not attended to when her heart alarm went off
+-  Ruud Gullit: ‘NEC, Go Ahead Eagles, niemand is meer bang voor Ajax’
