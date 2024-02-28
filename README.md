@@ -1,11 +1,11 @@
 # Latest News
--  China’s Country Garden teeters on the edge
--  Vietnamese firms attend Hong Kong gem, jewellery shows
--  Le parc Fun Loisirs revient s'installer à Dreux pour les vacances d'hiver
--  Mætum einu besta liði heims
--  “Er is telepathie tussen De Bruyne en Haaland, ze zijn wereldklasse”: zelfs Roy Keane spaart lof niet na vier assists KDB
--  Unhinged AI: Microsoft’s CoPilot Under Fire for Bullying and Mockery
--  Keine Gebührenerhöhung: Strikter Sparkurs mit wenig Schmerzen
--  Wielki quiz o gwiazdach. Prawda czy fałsz? 50/50 to wyczyn
--  Καίρια ζητήματα που απασχολούν τη ροδακινοκαλλιέργεια τέθηκαν στον ΥφΑΑΤ από την Επιτροπή Ροδακινοπαραγωγών Συλλόγων 5 νομών
--  За опозицията в Русия е все по-невъзможно: Думата забрани рекламата на "чуждестранни агенти"
+-  Rami Kütüphanesi'nde yeni düzenleme: Kimlik kartının barkodu turnikeye okutularak giriliyor
+-  Путин на церемонии прощания с Лебедевым пообщался с его супругой и дочерью
+-  Plivači Sport time iz Beograda se vratili sa 15 medalja
+-  Držák na bagetu či vlajka na voliči. Pět nezvyklých detailů nového Renaultu 5
+-  Освен Хасково: Кой е най-големият град в Хасковска област?
+-  Hamas accartoccia l'ottimismo di Biden: "Dagli Stati Uniti un documento sionista"
+-  Este stare de dezastru în Texas. O fabrică de arme nucleare, închisă. Zeci de localități, devastate | VIDEO
+-  Malaysian ringgit undervalued, hoped to trade higher
+-  Песков напомнил Орбану, что Россия не представляет угрозы для других государств
+-  U RS pokrenuta inicijativa: Jeleni Trivan uručiti ključeve grada Banjaluke
