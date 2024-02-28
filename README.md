@@ -1,11 +1,11 @@
 # Latest News
--  Tormis Laine võidutses kontinentaalkarikasarja etapil
--  Вишеградската четворка се раздели за разрешаването на войната в Украйна
--  Omwonenden ‘Polenhotels’ trekken samen op: tegen overlast én tegen uitbuiting van migranten
--  Niko ne zna da li će Rajan Gosling osvojiti Oskara, ali fanovi „Barbi“ iščekuju dodelu zbog nečeg drugog
--  Jopa yli 100 euroa kuussa lisää – Asiantuntija vinkkaa varman keinon ”isompaan eläkepottiin”
--  Hideo Kojima qualifie Oscar Isaac de “pathétique et peu attrayant” (gratuit)
--  Πρίγκιπας Ουίλιαμ: Απών απο το μνημόσυνο του νονού του, τέως βασιλιά Κωνσταντίνου - Ποιος ο λόγος που δεν παρέστη
--  Broken wheel blamed for 61-car train derailment near Hope in 2020
--  TecCrypto.com Gears Up for Bitcoin Halving - A Milestone Moment for the Mining Industry
--  Kevin Sorbo Headlines the Global Heart Ministries Annual Connecting Hearts Gala
+-  SCREEN、レーザーテック…株価も業績も絶好調の「半導体株」今から買っても大丈夫？ - 高配当＆高成長！新NISAで狙う日本株
+-  مجلس الأمن يدعو للمشاركة بمبادرة باتيلي ويلوح بالعقوبات
+-  Newcomer Jennifer Esteen runs to unseat long-time Alameda County Supervisor Nate Miley
+-  News24 | Banyana Banyana book a date with familiar foe Nigeria in fight for Olympics qualification
+-  الكتاب.. أنفضله ورقيا أم رقميا؟!
+-  أزمة النقد العربي
+-  Departamento de Estado descarta envío de tropas de EEUU a Ucrania comentado por Macron
+-  19,1 stopnia. Tyle dzisiaj zarejestrował IMGW. A temperatura w prognozie się pnie. Jak bardzo i do kiedy?
+-  Shannon Matthews' kidnapper Michael Donovan now from prison pen pal to 'bizarre' public sighting
+-  Вторая бронза на чемпионате Европы
