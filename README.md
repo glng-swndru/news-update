@@ -1,11 +1,11 @@
 # Latest News
--  The Future Of Trust And Verification For Social Media Platforms
--  U redu je ako niste u redu
--  Productivity growth falls to lowest on record as commission lays blame
--  꽉 막힌 출근길 못 보고 덮쳤다…8중 추돌로 3명 사망
--  Aron glaður með niðurstöðuna - Ekki mikið að pæla í tilboði Blika
--  Friert sie nicht? Yeliz Koc posiert halb nackt im Schnee
--  Yapay zeka destekli fotoğraf düzenleme uygulaması Photoroom, 43 milyon dolar yatırım aldı
--  건보공단 지난해 4조 흑자…누적준비금 역대 최대
--  Zwei Unfälle in Recklinghausen: 41-jährige Recklinghäuserin wird schwer verletzt
--  ĐILASOVCI OTIŠLI U BRISEL DA SE PREPORUČE ZAPADU Nude im sankcije Rusiji zarad dolaska na vlast! (VIDEO)
+-  Koliko dugo može mačka ostati sama kod kuće
+-  غوغل أضافت شيئاً مذهلاً إلى تطبيق خرائط غوغل وإليك طريقة تفعيله
+-  Two independent markets planned for Norwich Arts Centre
+-  OVO JE ŽENA KOJU JE UBIO NEVENČANI SUPRUG: Nožem joj presudio dok su bili u gostima, pa pokušao da pobegne (FOTO)
+-  Jātnieku federācijas prezidents Blaus neizpratnē, kāpēc viņu vēlas atbrīvot no amata
+-  Özgür Özel Muğla'da konuşuyor
+-  Зеленски и албанският премиер подписаха споразумения, за какво се разбраха (ВИДЕО)
+-  ChatGPT aids in discovering potential Alzheimer’s treatments through drug repurposing
+-  Jharkhand: बजट सत्र में नहीं शामिल हो सकेंगे हेमंत सोरेन, हाई कोर्ट ने खारिज की याचिका
+-  Rise of the Ronin'den yeni fragman yayınlandı
