@@ -1,11 +1,11 @@
 # Latest News
--  이재욱·카리나 열애…"첫 만남 순간부터 사랑에 빠져"
--  Gobierno reemplaza el Potenciar Trabajo por dos planes y eliminan la intermediación
--  Jonathan Caicedo vuelve a competir en Europa
--  Dorival Júnior admite ansiedade por 1ª convocação na seleção e revela lista com '55 nomes'
--  Kazara kendini vuran kişi öldü
--  વસંત એટલે પ્રકૃતિની કવિતા...
--  WallStreet : consolide à l'horizontal, stats US plus mitigées
--  Capital y La Banda abonarán los sueldos de febrero el jueves 29
--  ضمن منافسات بطولة العالم لسباقات التحمل .. اعلان دليل المشجعين لـ «سباق قطر 1812»
--  ડી જ્યુરે એન્ડ ડી ફેક્ટો : કાયદો અને હકીકત
+-  GoldMining Announces Filing of Financial Statements, MD&A, Annual Information Form and Annual Report on Form 40-F
+-  直擊野生Hebe「中性女友人相陪」！0偽裝出遊全被拍 感情狀況曝光
+-  KIJK LIVE. Strafschoppen in Sociedad-Mallorca, wie plaatst zich als eerste voor finale Copa del Rey?
+-  GoldMining Announces Filing of Financial Statements, MD&A, Annual Information Form and Annual Report on Form 40-F
+-  심상치 않은 가족…배두나X류승범X백윤식 ‘가족계획’ 대본 리딩 현장
+-  Pistoleiros contratados por detento para matarem rapaz são condenados a 12 anos
+-  Atual campeão, Medvedev volta às quadras com vitória sobre Shevchenko na estreia em Dubai
+-  Bringing jobs, investment to the region | Energy exec eyes New England
+-  Cremonese, Falletti: "Il gol mi mancava. L'obiettivo è arrivare in Serie A con questa maglia"
+-  Ex-law partner is evasive as attorneys press for details on Willis and Wade's romance in Trump case
