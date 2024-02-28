@@ -1,11 +1,11 @@
 # Latest News
--  VIDEO // Un șofer BEAT a fost la un pas să se RĂSTOARNE cu mașina sa, după ce a ignorat somațiile inspectorilor de patrulare. Urmărire ca în filme în satul Târnova, raionul Dondușeni
--  Iran initiates drilling new wells in shared gas field with Qatar
--  Entscheidende Abstimmung in der EU: Letzter Anlauf für die Lieferkette
--  Adele moet shows van maart in Las Vegas uitstellen om ziekte
--  Jest data pogrzebu Aleksieja Nawalnego
--  Darp ettikleri kişiye zorla 1 milyon liralık senet imzalattılar!
--  Adele moet shows van maart in Las Vegas uitstellen om ziekte
--  Baidu earnings missed by ¥2.33, revenue fell short of estimates
--  Още на първи кръг: 14% от кандидатите за директори на училища отпадаха
--  Savaş alanında kaydedildi! Gökyüzünde şoke eden görüntü
+-  'Supervivientes' tendrá una edición 'All Stars' para celebrar sus 20 años en Telecinco
+-  Rusya Dışişleri Bakanı Lavrov Türkiye'ye geliyor
+-  Pazīstams īru popmūziķis vaino Teilori Sviftu par sātanisku rituālu piekopšanu
+-  Elezioni farsa in Iran, parte l’operazione boicottaggio: la rivolta contro la dittatura, obiettivo astensione all’80%
+-  Večer uoči presice Bruna Marića zanimljivo društvo u Hiltonu, Marić, Vrbanović, Šprajcer... Evo tko je još bio tamo
+-  Расим Балаев заявил о других кандидатах на пост председателя нового союза кино
+-  Ölü yunus sahile vurdu
+-  Rusija osudila Ukrajinca na 11 i pol godina zatvora zbog špijunaže
+-  Το F1 24 ανεβάζει ταχύτητες και θα κυκλοφορήσει μέσα στην άνοιξη
+-  Başkan Palancıoğlu: "Önümüzdeki 5 yıl inşallah Türkiye'de ses getirecek projelerimiz olacak"
