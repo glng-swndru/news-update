@@ -1,11 +1,11 @@
 # Latest News
--  Huawei Mate 60 RS Ultimate si nepořídíte, přesto si jej rádi prohlédnete
--  Na elke vakantie merken plastisch chirurgen gevolgen van mislukte ingreep in het buitenland: ‘Dramatisch’
--  "Fracassati con una martellata": lo show di Santoro imbarazza Floris, gelo in studio
--  どん兵衛×『FFVIIリバース』の映像「片翼のどんぎつね 篇」が公開！これはクラス1stのチョイス
--  P2E, 게임의 경계를 넓히다
--  Goedkope ‘butt lift’ in Turkije, maar als het misgaat moet Nederlandse arts het oplossen: ‘Dramatisch’
--  Goedkope ‘butt lift’ in Turkije, maar als het misgaat moet Nederlandse arts het oplossen: ‘Dramatisch’
--  ‘Ploey 2’ Flies to Multiple Territories After Debuting at European Film Market With The Playmaker (EXCLUSIVE)
--  How one of Australia’s best festivals keeps reinventing itself
--  Injection Pen Market Size Projected to Grow at a 7.2% CAGR until 2031, Reaching a Valuation of USD 73.7 billion | Exclusive Report by Transparency Market Research, Inc.
+-  China’s Country Garden teeters on the edge
+-  Vietnamese firms attend Hong Kong gem, jewellery shows
+-  Le parc Fun Loisirs revient s'installer à Dreux pour les vacances d'hiver
+-  Mætum einu besta liði heims
+-  “Er is telepathie tussen De Bruyne en Haaland, ze zijn wereldklasse”: zelfs Roy Keane spaart lof niet na vier assists KDB
+-  Unhinged AI: Microsoft’s CoPilot Under Fire for Bullying and Mockery
+-  Keine Gebührenerhöhung: Strikter Sparkurs mit wenig Schmerzen
+-  Wielki quiz o gwiazdach. Prawda czy fałsz? 50/50 to wyczyn
+-  Καίρια ζητήματα που απασχολούν τη ροδακινοκαλλιέργεια τέθηκαν στον ΥφΑΑΤ από την Επιτροπή Ροδακινοπαραγωγών Συλλόγων 5 νομών
+-  За опозицията в Русия е все по-невъзможно: Думата забрани рекламата на "чуждестранни агенти"
