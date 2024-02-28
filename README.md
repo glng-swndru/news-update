@@ -1,11 +1,11 @@
 # Latest News
--  Kastamonu Üniversitesi yeni açılan bölümlerle büyümeye devam ediyor
--  Szef giganta w dziedzinie AI radzi młodym: Uczcie się rolnictwa, nie programowania
--  Ιδρύθηκε Σύνδεσμος Πτυχιούχων Πολιτικής Επιστήμης
--  Lộ không gian phòng ngủ của Quang Hải và Chu Thanh Huyền qua khoảnh khắc chàng cầu thủ chải tóc cho vợ
--  Trump pobijedio na predizborima republikanaca u Michiganu
--  Prosecutions of PSNI officers accused of criminality must be sped up: Beattie
--  Szef giganta w dziedzinie AI radzi młodym: Uczcie się rolnictwa, nie programowania
--  Yıldırım, "Malatya deprem bölgesinde en az desteği ve katkıyı alan ildir"
--  Israel minister says Arab trade ties unphased by Gaza war
--  S&P 500: Keep Sticking With the Low-Risk, High-Reward Trade
+-  Защищая Украину, воин Андрей Козинский погиб в районе Работино.. ФОТО
+-  전진당 피타 “당의 생존 위해 필사 투쟁할 것”
+-  5 chính sách mới có hiệu lực từ tháng 3/2024: Thay đổi loạt lệ phí, bổ sung số định danh cá nhân
+-  लेभिटको आक्रामक अर्धशतकमा नेदरल्यान्ड्सले नेपाललाई दियो १८५ रनको लक्ष्य
+-  Seal ist Elektroboot und Wohnwagen in einem
+-  Adele forced to postpone entire month of shows as illness 'took a toll' on her voice
+-  Κ. Καραμανλής για τα Τέμπη: Η προσωπική οδύνη και η συναίσθηση της πολιτικής ευθύνης με οδήγησαν στην παραίτηση
+-  [뉴블더] "한 개 결제 안 됐네?"…무인매장 갔다가 날벼락
+-  [종합] 코스피, 1.04% 오른 2652.29 마감…한미반도체 8.9%↑
+-  প্রেসিডেন্ট বনাম পার্লামেন্ট: পাকিস্তানে এখন কী হতে যাচ্ছে
