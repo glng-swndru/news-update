@@ -1,11 +1,11 @@
 # Latest News
--  롯데정보통신, ‘AI·빅데이터·클라우드’ 활용 스마트팜 공개… 도시농부 지원하고 키운다
--  Từng gây bão toàn cầu với Nokia, Ericsson, thời hoàng kim của ngành công nghệ châu Âu giờ chỉ còn là dĩ vãng, bị Mỹ và Trung Quốc bỏ xa: Vì đâu nên nỗi?
--  Anupamaa spoiler: Anuj drunk-dials Anu after seeing her growing fondness for Yashdeep; will he finally confess his true feelings?
--  ইংরেজি - ষষ্ঠ শ্রেণি
--  à¶‰à¶±à·Šà¶¯à·’à¶ºà·�à·€ à·�à·Šâ€�à¶»à·“ à¶½à¶‚à¶šà·�à·€à·š à·€à·’à¶¯à·”à¶½à·’ à¶¶à¶½à¶º à¶…à¶­à·Š à¶±à·œà·„à¶»à·“
--  Biden and Trump win Michigan primaries, edging closer to a rematch
--  NBA feud escalates as New Orleans Pelicans roast Stephen A Smith
--  ඉන්දියාව ශ්‍රී ලංකාවේ විදුලි බලය අත් නොහරී
--  Pengantin Wanita Cuci Semua Piring Kotor setelah Pesta, Sang Mertua Sebut karena Sudah Diberi Mahar
--  Descubren quién es la chica que deslumbró en el Motagua - Olimpia
+-  Cambio de líder en la 2014-15
+-  Measles outbreaks: unvaccinated people face three-week stay at home after being in creche, school or hospital
+-  Vivir cerca de restaurantes y bares aumenta la insuficiencia cardíaca
+-  Slovenija bo center za naše posle v regiji
+-  押し寄せる3千人の作業員 巨大事業で変わる種子島の空気と経済の形
+-  Victoria Catterson says it would be ‘indescribable’ to be part of history-making Irish women’s relay team in Paris
+-  OpenAI says ChatGPT was ‘hacked’ by ‘The New York Times’ to get evidence for lawsuit
+-  Descubra se você é uma pessoa teimosa ao escolher o tipo de cadeado que mais gosta
+-  تردد در جاده‌های لغزنده طرقبه شاندیز خطرساز است
+-  कॉलेज एडमिशन:IIM इंदौर में IPMAT 2024 के लिए आवेदन जारी, 26 मार्च लास्ट डेट, इंटरव्यू से सिलेक्शन
