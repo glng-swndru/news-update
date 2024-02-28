@@ -1,11 +1,11 @@
 # Latest News
--  'Supervivientes' tendrá una edición 'All Stars' para celebrar sus 20 años en Telecinco
--  Rusya Dışişleri Bakanı Lavrov Türkiye'ye geliyor
--  Pazīstams īru popmūziķis vaino Teilori Sviftu par sātanisku rituālu piekopšanu
--  Elezioni farsa in Iran, parte l’operazione boicottaggio: la rivolta contro la dittatura, obiettivo astensione all’80%
--  Večer uoči presice Bruna Marića zanimljivo društvo u Hiltonu, Marić, Vrbanović, Šprajcer... Evo tko je još bio tamo
--  Расим Балаев заявил о других кандидатах на пост председателя нового союза кино
--  Ölü yunus sahile vurdu
--  Rusija osudila Ukrajinca na 11 i pol godina zatvora zbog špijunaže
--  Το F1 24 ανεβάζει ταχύτητες και θα κυκλοφορήσει μέσα στην άνοιξη
--  Başkan Palancıoğlu: "Önümüzdeki 5 yıl inşallah Türkiye'de ses getirecek projelerimiz olacak"
+-  4 Ways to Lock In Yields Above 5%
+-  Chữ và nghĩa: 'Thiếu tháng Giêng mất khoai…'
+-  Genesis reflects on bad spell and the future
+-  Sony, PlayStation bölümünden yaklaşık 900 kişiyi işten çıkarıyor
+-  Nhiếp ảnh gia Khánh Phan: Săn ảnh với đôi chân chưa biết mỏi mệt
+-  Efter åtta år – klartecken för nya handelsområdet: ”Väldigt positivt!”
+-  “Arriba del columpio”: Alcalde de Marchigüe responde a troleo de Luis Slimming en Viña 2024
+-  Les pluies ont-elles été assez abondantes pour recharger les nappes phréatiques?
+-  ローソンが中国華北地域への進出加速 山東省に1000店舗出店へ
+-  Medical Properties Trust Stock Has 21% Upside, According to 1 Wall Street Analyst
