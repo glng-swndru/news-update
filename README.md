@@ -1,11 +1,11 @@
 # Latest News
--  Проблем за Байдън с арабите в САЩ: Засега печели наравно с Тръмп първичните избори
--  Sukses Raup 617 Juta Dolar AS, Film Wonka Kemungkinan Besar Dibuat Sekuel
--  عن تعرض سفينة لهجوم قبالة سواحل الحديدة
--  Total shutdown of Third Mainland Bridge today
--  Russia restructures military districts amid warnings of NATO war
--  Inter Milan dan Tren Menang 1 Gol vs Atalanta
--  Maltempo: ancora interrotta linea ferroviaria Milano-Venezia
--  Başvurular bitti! Sağlık Bakanlığı 8 bin işçi alımı için kura tarihi ne zaman açıklanacak? İşte detaylar..
--  Tomada de posse do governo dos Açores está agendada para segunda-feira
--  Đăng ký sáng chế, Klara S và VF 3 sẽ là 'quân bài' tiên phong của VinFast tại Ấn Độ?
+-  Oroscopo del giorno del 28 febbraio 2024: i segni più fortunati secondo le Stelle
+-  Manken Simurg Sarsılmaz Diyarbakır'da muhtar adayı omdu! 'Muhtarım da muhtarım'...
+-  Ministre Bērziņa: Redzam, ka pašvaldībām ir grūtības ar budžetu izveidi 2024.gadam
+-  How a Sacramento City College student sparked the creation of a Black academic and cultural hub
+-  White Rock named 'crowning jewel' of happiness in new travel blog
+-  일본 후쿠시마원전 오염수 4차 방류 개시…17일간 7천800톤
+-  Hà Nội lên kế hoạch sáp nhập 25 phường tại 5 quận
+-  Brezilya basını bunu konuşuyor: Acun Ilıcalı, Ronaldinho'ya Survivor için kaç para ödedi?
+-  DVYE ETF: Not Too Conducive
+-  Embattled China property giant Country Garden faces liquidation petition - The Guardian
