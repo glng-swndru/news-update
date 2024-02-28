@@ -1,11 +1,11 @@
 # Latest News
--  In the Serengeti, sisterhood is the key to survival
--  Die richtige Kleidung fürs Bewerbungsbild: So hinterlassen Sie einen guten Eindruck
--  Chuyên gia thể chất kiêm cựu vận động viên Olympic chia sẻ các dự đoán cho năm 2024
--  Con trai Phó Chủ tịch SeABank mới chỉ bán được 1/3 số cổ phiếu đã đăng ký
--  In the Serengeti, sisterhood is the key to survival
--  Marktplatz für Maulwürfe – Wie Insider ihr Wissen im Darknet verkaufen
--  Bergkrosset gör banorna svårcyklade
--  Ferstapen najplaćeniji ali "skinuće" ga Hamilton u Ferariju
--  Widower tells of ‘disgust’ wife was not attended to when her heart alarm went off
--  Ruud Gullit: ‘NEC, Go Ahead Eagles, niemand is meer bang voor Ajax’
+-  Kastamonu Üniversitesi yeni açılan bölümlerle büyümeye devam ediyor
+-  Szef giganta w dziedzinie AI radzi młodym: Uczcie się rolnictwa, nie programowania
+-  Ιδρύθηκε Σύνδεσμος Πτυχιούχων Πολιτικής Επιστήμης
+-  Lộ không gian phòng ngủ của Quang Hải và Chu Thanh Huyền qua khoảnh khắc chàng cầu thủ chải tóc cho vợ
+-  Trump pobijedio na predizborima republikanaca u Michiganu
+-  Prosecutions of PSNI officers accused of criminality must be sped up: Beattie
+-  Szef giganta w dziedzinie AI radzi młodym: Uczcie się rolnictwa, nie programowania
+-  Yıldırım, "Malatya deprem bölgesinde en az desteği ve katkıyı alan ildir"
+-  Israel minister says Arab trade ties unphased by Gaza war
+-  S&P 500: Keep Sticking With the Low-Risk, High-Reward Trade
