@@ -1,11 +1,11 @@
 # Latest News
--  TFF açıkladı: Galatasaray-Rizespor maçının günü ve saati değişti!
--  Nesli tükenme tehlikesi yaşayan Porsuk cep telefonuyla görüntülendi
--  Macy's prevede vendite annuali inferiori alle stime e chiude 150 negozi
--  PUB to build world’s largest facility to help remove CO2 from ocean
--  La démolition de l'ancien collège de Gallardon va très bientôt démarrer
--  Smartphone addiction fuels loneliness and reduces well-being, study finds
--  Aérea encontra rato em avião e impede voos por três dias
--  खाली जेब, टूटे सपने और हताश मन, फिर एक्ट्रेस के फोन की बजी घंटी और...
--  Marihuana će biti legalizovana u Srbiji? Koluvija: Konoplja nije droga i nije opasna! (VIDEO)
--  Spanish court dismisses lawsuit over LaLiga's $2.1 billion deal
+-  Ontario euthanizes 84 raccoons and accuses rehabber of mistreating animals
+-  Vento fortissimo a Heathrow, l’aereo non riesce ad atterrare
+-  Babacan’dan 'genç aday' eleştirisine cevap: Bakma genç göründüğüne!
+-  Bộ Y tế đề nghị báo cáo vụ phát hiện ma túy trong bệnh viện
+-  Erdal Beşikçioğlu tüm salona bakın ne ısmarladı! Oğuzhan Uğur dayanamayıp 'Bu para nereden geliyor?' diye sordu
+-  Paul McCartney confesses personal regrets hidden in much-loved Beatles song lyrics
+-  Rəsmi Bakıdan Ermənistan XİN-in iddialarına
+-  OTAC MI JE BIO NA SAMRTI DOK SAM DEBITOVAO! Prošao kroz PAKAO, a sada napada titulu sa SRBINOM: Nisam izlazio, ljudi su UBIJANI!
+-  Novosadska policija uhapsila Britanca zbog prodaje droge: Imao marihuanu, MDMA, ulje kanabisa...
+-  Man pleads guilty in deaths of 2 officers at Virginia college in 2022 and is sentenced to life
