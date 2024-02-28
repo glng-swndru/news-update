@@ -1,11 +1,11 @@
 # Latest News
--  Happy with restoration work
--  Президент WBO рассказал о дальнейших планах Кроуфорда
--  Cik daudz soļu jāveic katru dienu lai zaudētu svaru? Atbild ārsts Pēteris Apinis
--  Nikšić: Ostali ano otvoreni da ćemo pokušati sve da uradimo bilo koji zakon
--  ООН: Бандити крадат от помощите за Газа и ги продават на черния пазар
--  İsrail dostu firmalardan pişkinlik: ‘Boykot listesindeki markalar hala suçlunun safında!’
--  Uraltes Handwerk präsentiert sich im Saale-Orla-Kreis
--  Editorial Cartoon February 28, 2024
--  Балахнин прокомментировал переход Глушакова в «Урарту»
--  Cumhurbaşkanı Yardımcısı Yılmaz, Londra'da Türk toplum ve iş dünyası temsilcileriyle buluştu
+-  Dog Man the Musical coming to The Art House
+-  Erre vártunk: csökkennek az árak a boltokban
+-  Youth League: FC Porto vence AZ nos penáltis e está nos quartos
+-  Verdi ruft Lufthansa-Bodenpersonal zu mehrtägigem Warnstreik auf
+-  کابینہ نے نیپرا او ر اوگرا قوانین میں ترامیم کی منظوری دیدی
+-  Sigurður VE 15 ex Sigurður ÍS 33
+-  Anuncian la instalación de sistemas de energía solar en mercados de San Salvador
+-  تفاصيل مباحثات ولي العهد مع الرئيس الأوكراني
+-  Faciaya ramak kaldı! Akaryakıt istasyonunda çıkan yangını çalışanlar söndürdü
+-  Motorista morre e outro fica gravemente ferido após colisão
