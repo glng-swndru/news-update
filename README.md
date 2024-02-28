@@ -1,11 +1,11 @@
 # Latest News
--  Trabzonspor’da Başakşehir maçı öncesinde flaş bir gelişme yaşandı!
--  WSJ: Пока мир смотрел в другую сторону, Северная Корея стала большой угрозой
--  Quadrilha do Piauí usava MS como entrada para drogas que abastecem o Nordeste
--  اليونيسيف: مليون طفل في غزة يعانون انعدام الأمن الغذائي الحاد
--  Diyarbakır Ağız ve Diş Sağlığı Hastanesi poliklinik sayısını artırdı
--  الأونروا تؤكد زيادة تأزم الأوضاع الإنسانية في غزة
--  Адв. Величков за ФрогНюз: Част от прокуратурата се държи като прикриватура? Йордан Петров да излезе на светло
--  Strani ulagači zapošljavaju oko 50 posto zaposlenih, ostvaruju 60 posto dobiti i 62 posto ukupnih investicija
--  Ryan Gravenberch komt met de schrik vrij bij Liverpool na spijkerharde tackle
--  Ryan Gravenberch komt met de schrik vrij bij Liverpool na spijkerharde tackle
+-  "KRALJ OBRVA" KOJI JE ZAVEO INFLUENSERKU ZARAĐUJE 100.000 € MESEČNO! "Nisam naročito pametan, mrzelo me da radim"
+-  Promijenjen termin utakmice između Širokog Brijega i Veleža
+-  Prince George city council pushes back against short-term rental rules
+-  Los Premios Max de teatro se celebrarán por primera vez en Tenerife, en el Auditorio Adán Martín
+-  Around 46% of T-bills allotted to retail investors in each auction in 2024
+-  Emilie Tran Nguyen, réalisatrice de "Je ne suis pas chinetoque", a grandi à Clermont-Ferrand
+-  Wird eine der besten Netflix-Serien fortgesetzt? Diese 4 Stars sollen in Staffel 2 angeblich die Hauptrollen übernehmen
+-  بدء الحلقة التدريبية لـ"برنامج الفحص الطبي قبل الزواج"
+-  Alger riposte au refus d’Albares d’aborder la question du Sahara
+-  Column: Het klassieke strijdpunt onder rooie voormannen en -vrouwen: ‘Hoe goed ken jij de werkman eigenlijk?’
