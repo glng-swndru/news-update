@@ -1,11 +1,11 @@
 # Latest News
--  Snapdragon X Elite en yakın rakibiyle kıyaslandı: AI performansı rakipsiz
--  Ceny ropy v utorok večer vzrástli aj pre neistotu ohľadom možného prímeria v Gaze
--  Паричен лунен календар за март 2024 г.
--  Why Norwegian Cruise Line Stock Jumped on Tuesday
--  Bus met kindje erin belandt op dak na ongeval op kruising
--  Izvučen Loto Džoker: Srećni dobitnik osvojio 12.513.070 dinara
--  Cemil Tugay'dan 'Neden Özgür Özel' sorusuna yanıt: 'Seçmenlerimizin tepkilerini gördüm...'
--  Бойко отримав тренерську ліцензію категорії В
--  Samiti për Ukrainën, zbardhet axhenda e plotë
--  대전충남보건의료노조 "의사 단체행동으로 의료사고 일촉즉발 상황, 정상화하라" 촉구
+-  Tormis Laine võidutses kontinentaalkarikasarja etapil
+-  Вишеградската четворка се раздели за разрешаването на войната в Украйна
+-  Omwonenden ‘Polenhotels’ trekken samen op: tegen overlast én tegen uitbuiting van migranten
+-  Niko ne zna da li će Rajan Gosling osvojiti Oskara, ali fanovi „Barbi“ iščekuju dodelu zbog nečeg drugog
+-  Jopa yli 100 euroa kuussa lisää – Asiantuntija vinkkaa varman keinon ”isompaan eläkepottiin”
+-  Hideo Kojima qualifie Oscar Isaac de “pathétique et peu attrayant” (gratuit)
+-  Πρίγκιπας Ουίλιαμ: Απών απο το μνημόσυνο του νονού του, τέως βασιλιά Κωνσταντίνου - Ποιος ο λόγος που δεν παρέστη
+-  Broken wheel blamed for 61-car train derailment near Hope in 2020
+-  TecCrypto.com Gears Up for Bitcoin Halving - A Milestone Moment for the Mining Industry
+-  Kevin Sorbo Headlines the Global Heart Ministries Annual Connecting Hearts Gala
