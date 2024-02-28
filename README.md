@@ -1,11 +1,11 @@
 # Latest News
--  Защищая Украину, воин Андрей Козинский погиб в районе Работино.. ФОТО
--  전진당 피타 “당의 생존 위해 필사 투쟁할 것”
--  5 chính sách mới có hiệu lực từ tháng 3/2024: Thay đổi loạt lệ phí, bổ sung số định danh cá nhân
--  लेभिटको आक्रामक अर्धशतकमा नेदरल्यान्ड्सले नेपाललाई दियो १८५ रनको लक्ष्य
--  Seal ist Elektroboot und Wohnwagen in einem
--  Adele forced to postpone entire month of shows as illness 'took a toll' on her voice
--  Κ. Καραμανλής για τα Τέμπη: Η προσωπική οδύνη και η συναίσθηση της πολιτικής ευθύνης με οδήγησαν στην παραίτηση
--  [뉴블더] "한 개 결제 안 됐네?"…무인매장 갔다가 날벼락
--  [종합] 코스피, 1.04% 오른 2652.29 마감…한미반도체 8.9%↑
--  প্রেসিডেন্ট বনাম পার্লামেন্ট: পাকিস্তানে এখন কী হতে যাচ্ছে
+-  Prancūzijos naikintuvas prie Estijos krantų perėmė Rusijos žvalgybinį lėktuvą
+-  Trevligt bemötande på Hörselenheten
+-  A year after Greece's worst train disaster, railway safety fears persist
+-  Phấn đấu trở thành mắt xích quan trọng trong chuỗi giá trị công nghiệp bán dẫn
+-  Warning to avoid social media trends that expose your personal information
+-  Merkez Hakem Kurulu'nda flaş istifa!
+-  جريمة تعنيف طفلة تهز سوريا.. اعتداء وحشي يتسبب بإصابات بليغة
+-  Tous les films à l'affiche cette semaine à Vichy
+-  Tác giả Samantha Clayton chia sẻ các dự đoán cho năm 2024
+-  Sampdoria, al "Ferraris" sette sconfitte su 14 gare: Feralpisalò e Ascoli sono decisive
