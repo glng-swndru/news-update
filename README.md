@@ -1,11 +1,11 @@
 # Latest News
--  Com 23 rotas, governo do Estado vai finalizar entrega de kits escolares em março
--  푸틴 국정연설 다음날 ‘나발니 장례식’···모스크바서 치른다
--  Jetzt muss die Sexualpädagogik aufarbeiten!
--  Tak Kalah Dari Aaliyah Massaid, Ini Koleksi Tas Mewah Milik Thariq Halilintar yang Harganya Bikin Geleng Kepala
--  Heart attack: Expert warns vitamin deficiency can lead to poor cardiac health
--  Реал Сосьєдад — Мальорка 1:2: огляд матчу
--  10 Arti Mimpi Kaki Diamputasi: Ingin Balas Dendam Hingga Percintaan Bermasalah!
--  Royal Wedding Anak Mentan Amran Sulaiman Jadi Sorotan, Cuma Prasmanannya Saja Ditaksir Rp 1,4 MIliar
--  Quand Raphaël Quenard, révélation masculine des César 2024, tournait en Limousin
--  政大挑戰UBA冠軍4連霸 「狂勝50分」持續不敗神話
+-  Istra prva na udaru: Stižu obilne 'prljave' kiše i saharska prašina
+-  Une présumée attaque de loups sur une ponette a eu lieu à Breil-sur-Roya
+-  Hakkari'de 221 kilogram külçe altın ele geçirildi
+-  UK's Northern Ireland amnesty law in breach of human rights, court rules
+-  Şehir Hastanesi taksi durak yeri ihalesine 2 kişi katıldı
+-  Вижте какво реши Министерски съвет днес, 28 февруари 2024 г. - Труд
+-  Watch: Abela, Grech in initial reactions to Sofia inquiry report
+-  Kapuas Hulu 2, Diperkirakan 7 Parpol Dapat 8 Kursi di DPRD
+-  ЦИК 1 марта примет решение о созыве первой сессии Палаты представителей
+-  Unmissable opportunities for aesthetic enthusiasts
