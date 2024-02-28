@@ -1,11 +1,11 @@
 # Latest News
--  네타냐후 “미국인들 여전히 우리 지지” 바이든 발언 반격
--  Thiago Galhardo é liberado pelo Fortaleza para tratamento da saúde mental após atentado
--  ☀️ Morning digest February 28
--  ‘비전투병’으로 한발 물러선 프랑스…美ㆍEUㆍNATO “파병 없어”
--  HONOR beleuchtet die Zukunft der KI in intelligenten Geräten auf dem MWC
--  කෘෂිකර්මය නංවන්න වියට්නාමය සමග අත්වැල් බැඳ ගනී
--  NEXT Weather: 6 p.m. forecast from Feb. 27, 2024
--  MYRTLEFORD: Netball gains, losses, prospects and Q&A with coach Liv La Spina
--  '듄: 파트2' 주역 티모시 샬라메×젠데이아 '유퀴즈'에 뜬다
--  Presentan la nueva colección de CH Carolina Herrera de la temporada de verano 2024
+-  대한노인회 영동군지회 노인일자리 참여자교육
+-  영동신흥갤러리개관 지역작가초대전
+-  中国で物価下落、香港住民が買い出し旅行で殺到 - WSJ発
+-  청주시역대 최대국비 98억 확보 그린리모델링사업본격시동
+-  청주시 하수도원인자부담금 단위단가인상
+-  청주시 유튜버슈파TV와 클린캠핑 페스티벌개최 업무협약체결
+-  Malo ko zna! Dea Đurđević se sa samo 16 godina pojavila u "Zvezdama Granda", evo kako je tada izgledala
+-  청주시 임산부친환경농산물지원사업 신청하세요
+-  보은속리산한우 우량 암 송아지릴레이사업 전달식
+-  청주서부소방서 해빙기 소방용수시설 비상소화장치일제점검
