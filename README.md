@@ -1,11 +1,11 @@
 # Latest News
--  Warming ocean could hurt future for snow crab, as DFO holds line on stock assessment
--  How a rethink of supervision at stables could curtail bullying in sumo
--  谷原章介の長男が芸能界へ 生みの親・いしだ壱成にメッセージも？
--  WB Police Constable/Lady Constable recruitment 2024 notification released; 3734 posts on offer
--  Hamza Dağ, İzmir iş dünyasıyla istişare toplantısında bir araya geldi
--  TAAG retoma serviço de cargas Luanda-Liége estimando transportar 320 toneladas por mês
--  Ha ilyen, ártalmatlannak tűnő tünetek jelentkeznek a bőrén, azonnal menjen el vastagbélrák szűrésre
--  Một bước đơn giản giúp Sabeco "cấu" miếng bánh thị phần của Heineken và Carlsberg trên kênh TMĐT, mở ra lời giải "bài toán" nồng độ cồn
--  UniDoc and HP Inc. Enter OEM Agreement
--  元プラス・マイナス岩橋、騒動を謝罪 3分半に7回頭下げる「短絡的な行動」「すごい情けない」 今後は「1人で何かしら…」【報告ほぼ全文】 - ORICON NEWS
+-  VIDEO // Un șofer BEAT a fost la un pas să se RĂSTOARNE cu mașina sa, după ce a ignorat somațiile inspectorilor de patrulare. Urmărire ca în filme în satul Târnova, raionul Dondușeni
+-  Iran initiates drilling new wells in shared gas field with Qatar
+-  Entscheidende Abstimmung in der EU: Letzter Anlauf für die Lieferkette
+-  Adele moet shows van maart in Las Vegas uitstellen om ziekte
+-  Jest data pogrzebu Aleksieja Nawalnego
+-  Darp ettikleri kişiye zorla 1 milyon liralık senet imzalattılar!
+-  Adele moet shows van maart in Las Vegas uitstellen om ziekte
+-  Baidu earnings missed by ¥2.33, revenue fell short of estimates
+-  Още на първи кръг: 14% от кандидатите за директори на училища отпадаха
+-  Savaş alanında kaydedildi! Gökyüzünde şoke eden görüntü
