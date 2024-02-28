@@ -1,11 +1,11 @@
 # Latest News
--  Planung der Wohnmobilstellplätze in Gschwend kommt voran
--  Asaja C-LM afirma que la PAC "no es rentable" y pide a Bruselas que aumente el presupuesto o la cambie "radicalmente"
--  Muslim, Jewish and Arab film and TV workers in the UK report decline in mental health since October 2023
--  MDB brings together key stakeholders from the commercial banking sector to foster a strategic dialogue and step up collaboration
--  Taxa de 5% para super-ricos do G20 acabaria com fome, diz Oxfam
--  İşte Avrupa'da yılın otomobili!
--  Индекс потребдоверия в США в феврале неожиданно упал до 106,7 пункта
--  Bakan Güler, İngiltere Savunma Bakanı Shapps ile bir araya geldi
--  Правительством урегулированы вопросы проведения экономической оценки экосистемных услуг
--  Dodik: SPC ključna za opstanak srpskog naroda
+-  Ryanair jde proti proudu a zdraží letenky. Vinu hází na nedostatek letadel
+-  Geoffrey Wever a dedica un dia pa duna les di Derecho Constitucional
+-  Nu kan Alexander pusta ut: "Skönt att det löste sig"
+-  New Study: School Nurses Are Untapped Resource to Combat Chronic Absenteeism
+-  Pagaliau operetė – „Grafas Liuksemburgas“ Kauno valstybiname muzikiniame teatre
+-  Warum das Gasthaus Schwanen in Schwäbisch Gmünd einen Koch sucht
+-  'I'm going to' - Southampton boss makes Jurgen Klopp admission ahead of Liverpool FA Cup clash
+-  heise-Angebot: Machine Learning & KI: Frühbucherrabatt für Minds Mastering Machines endet bald
+-  Bnny Open Up to Love’s Highs and Lows
+-  Nu kan Alexander pusta ut: "Skönt att det löste sig"
