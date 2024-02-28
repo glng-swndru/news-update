@@ -1,11 +1,11 @@
 # Latest News
--  VIDEO Kosovski mediji: Radoičić navodno pesnicom udara nekadašnjeg...
--  Jääkiekko | Supermalli Cindy Crawford näytti kiekko­taitojaan – riemukas tuuletus kruunasi suorituksen
--  Real-Estate Investor Gets 'Great Deal' on $30.1 Million Beverly Hills Spec Mansion
--  SAD: To što ste im zamrznuli, uputite Ukrajini
--  Apple zastavil práci na vlastním elektrickém autě, projekt trval dekádu
--  Torres acusó a Bullrich de "usar el conflicto" de Chubut para "plantarse" contra Macri por el PRO
--  Silver alert issued for missing senior: Winnipeg police
--  Italia nuk kënaqet nga sulmuesit/ Mediat: Axurrët, jo favoritë për të fituar Kampionatin Europian
--  Met vijfde hattrick voor Flames wijst Wullaert de weg in alweer ruime zege tegen Hongarije
--  Com mandato cassado, Tavares sofre novo revés na Justiça ao tentar sair do PRTB
+-  В Госдепе исключили отправку военных и инструкторов на Украину
+-  Kathairos Solutions and Doig River First Nation Embark on Strategic Environmental Initiative to Reduce Methane Emissions
+-  Cientistas do CERN querem criar um colisor para investigar a matéria escura
+-  Beim Schüleraustausch geht es um mehr als Sprache
+-  Cartoon Corner
+-  Manifestazione degli agricoltori pugliesi a Bari: in 800 manifestano sotto la sede del Consiglio regionale
+-  “Yeni İzmit’te en önemli paydaşımız muhtarlarımız olacak”
+-  Ayvalık açıklarında 39 düzensiz göçmen kurtarıldı
+-  Белоруссия призвала ВТО пересмотреть процедуры присоединения новых государств
+-  Донски е четвъртфиналист в Португалия
