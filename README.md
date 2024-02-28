@@ -1,11 +1,11 @@
 # Latest News
--  חוליית מחבלים הותקפה במרחב עייתא א-שעב בלבנון
--  STF arquiva inquérito da Lava Jato sobre suposto repasse de propina a Aécio
--  Monty Williams is absolutely right about bad officials missing obvious calls
--  Iskustvo 30 000 parova: Ovako treba rješavati sukobe u vezi
--  ZTE's New Flip Phone Is Cheaper Than the iPhone 15 and Galaxy S24 - CNET
--  ブライトンに大打撃…三笘薫が背中の負傷で2-3カ月離脱へ。指揮官は今季絶望の可能性を認める - Goal.com
--  Perché tutti parlano di uno smartphone e un computer che in realtà non esistono
--  "Temos de aprender ao longo da vida". António Costa voltou à escola (mas chegou atrasado logo no primeiro dia)
--  Oje sürmek orucu bozar mı?
--  Who Are The Four Astronauts Selected For India's Crewed Space Mission Gaganyaan? Details Here - News18
+-  Eby issues apology, as B.C. Doukhobor survivors ask for direct compensation
+-  (((VIDEO))) Así funciona el laboratorio de Psicología para el deporte nacional
+-  B.C. Premier apologizes to Sons of Freedom Doukhobors, survivors ask for compensation changes
+-  B.C. Premier apologizes to Sons of Freedom Doukhobors, survivors ask for compensation changes
+-  Eby issues apology, as B.C. Doukhobor survivors ask for direct compensation
+-  Eby issues apology, as B.C. Doukhobor survivors ask for direct compensation
+-  Ketua KPU Sebut PSU di KL Masuk Kategori Luar Biasa
+-  今夜「相棒22」第18話 右京vsIQ150の天才少年、頭脳戦は最終局面へ
+-  Eby issues apology, as B.C. Doukhobor survivors ask for direct compensation
+-  B.C. Premier apologizes to Sons of Freedom Doukhobors, survivors ask for compensation changes
