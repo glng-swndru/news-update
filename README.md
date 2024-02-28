@@ -1,11 +1,11 @@
 # Latest News
--  Prancūzijos naikintuvas prie Estijos krantų perėmė Rusijos žvalgybinį lėktuvą
--  Trevligt bemötande på Hörselenheten
--  A year after Greece's worst train disaster, railway safety fears persist
--  Phấn đấu trở thành mắt xích quan trọng trong chuỗi giá trị công nghiệp bán dẫn
--  Warning to avoid social media trends that expose your personal information
--  Merkez Hakem Kurulu'nda flaş istifa!
--  جريمة تعنيف طفلة تهز سوريا.. اعتداء وحشي يتسبب بإصابات بليغة
--  Tous les films à l'affiche cette semaine à Vichy
--  Tác giả Samantha Clayton chia sẻ các dự đoán cho năm 2024
--  Sampdoria, al "Ferraris" sette sconfitte su 14 gare: Feralpisalò e Ascoli sono decisive
+-  Ισοπεδωτικοί οι Μιλγουόκι Μπακς με σούπερ σταρ τους Αντετοκούνμπο και Λίλαρντ!
+-  Kao na modnoj pisti: Kraljica Rania spojila komade koje bi baš svatko poželio
+-  Öğrenciler polis ekiplerini yakından tanıyor
+-  Deputat: Su qıtlığı ilə bağlı birbaşa dövləti qınamaq düzgün olmaz
+-  Meglepő adatok érkeztek az okostelefonos fizetésekről
+-  Manav reyonunda çarşamba indirimi! Patates ve çileğin fiyatı dikkat çekti
+-  Lần đầu đến Việt Nam, máy bay “made in Trung Quốc” bịt kín 1 thứ
+-  U Španiji uhapšen Belivukov “vojnik” Milinko Brašnjević
+-  Essity's Annual Report for 2023
+-  Un bărbat l-a omorât pe iubitul fostei concubine, apoi și-a pus capat zilelor, în localitatea Heleşteni
