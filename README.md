@@ -1,11 +1,11 @@
 # Latest News
--  Οι Ολυμπιακοί Κύκλοι επέστρεψαν στο Παναθηναϊκό Στάδιο
--  Unterstützung der Kenia-Hilfe: Angel hat eine ganze Mannschaft als Paten
--  Umgang mit Kind darf nicht an Geldzahlungen geknüpft sein
--  Лавров жесткой шуткой ответил на ультиматум Зеленского о заключении мира с Украиной: Вот, что он сказал
--  India has become third-largest Startup ecosystem in the world, says Piyush Goyal
--  Umgang mit Kind darf nicht an Geldzahlungen geknüpft sein
--  Braun: Polacy nie sprostają wyzwaniom, jeśli będą na krótkiej smyczy międzynarodowych oligarchów
--  Van'da ambulans helikopter yüksekten düşen hasta için havalandı
--  Un fotograf a depus plângere împotriva tatălui lui Taylor Swift, acuzându-l că l-a agresat
--  ‘Kırmızı kil’ üreticileri! BAE, ürünlerinizi ithal edecek
+-  Trabzonspor’da Başakşehir maçı öncesinde flaş bir gelişme yaşandı!
+-  WSJ: Пока мир смотрел в другую сторону, Северная Корея стала большой угрозой
+-  Quadrilha do Piauí usava MS como entrada para drogas que abastecem o Nordeste
+-  اليونيسيف: مليون طفل في غزة يعانون انعدام الأمن الغذائي الحاد
+-  Diyarbakır Ağız ve Diş Sağlığı Hastanesi poliklinik sayısını artırdı
+-  الأونروا تؤكد زيادة تأزم الأوضاع الإنسانية في غزة
+-  Адв. Величков за ФрогНюз: Част от прокуратурата се държи като прикриватура? Йордан Петров да излезе на светло
+-  Strani ulagači zapošljavaju oko 50 posto zaposlenih, ostvaruju 60 posto dobiti i 62 posto ukupnih investicija
+-  Ryan Gravenberch komt met de schrik vrij bij Liverpool na spijkerharde tackle
+-  Ryan Gravenberch komt met de schrik vrij bij Liverpool na spijkerharde tackle
