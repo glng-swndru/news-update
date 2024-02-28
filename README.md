@@ -1,11 +1,11 @@
 # Latest News
--  Cambio de líder en la 2014-15
--  Measles outbreaks: unvaccinated people face three-week stay at home after being in creche, school or hospital
--  Vivir cerca de restaurantes y bares aumenta la insuficiencia cardíaca
--  Slovenija bo center za naše posle v regiji
--  押し寄せる3千人の作業員 巨大事業で変わる種子島の空気と経済の形
--  Victoria Catterson says it would be ‘indescribable’ to be part of history-making Irish women’s relay team in Paris
--  OpenAI says ChatGPT was ‘hacked’ by ‘The New York Times’ to get evidence for lawsuit
--  Descubra se você é uma pessoa teimosa ao escolher o tipo de cadeado que mais gosta
--  تردد در جاده‌های لغزنده طرقبه شاندیز خطرساز است
--  कॉलेज एडमिशन:IIM इंदौर में IPMAT 2024 के लिए आवेदन जारी, 26 मार्च लास्ट डेट, इंटरव्यू से सिलेक्शन
+-  Sáng nay Thủ tướng chủ trì Hội nghị triển khai nhiệm vụ phát triển thị trường chứng khoán năm 2024
+-  Descontento va más allá de Israel y Gaza: votantes de nueva generación
+-  比亚迪打响“电比油低”价格战，压力给到外国车企
+-  【コンビニ店員3人死傷事件】1度目の来店時に殺意抱く？「刃物取りに一度帰宅した」と容疑者供述―「俺を撃て」と警察官に発砲促すような発言も 北海道札幌市
+-  អតីតខ្សែប្រយុទ្ធជប៉ុន Okazaki នឹងចូលនិវត្តន៍នៅចុងបញ្ចប់រដូវកាលនេះ
+-  JGBs Fall, Tracking Declines in U.S. Treasurys
+-  ナワリヌイ氏の告別式会場が見つからないと明らかに ロシア当局が圧力の可能性
+-  青年コミック誌で作者名の表記ミス発覚で謝罪訂正 「こんなおもろいお詫びがあるか」
+-  【2023年7月に発生】ススキノ首切断殺人事件 親子3人の“鑑定留置”終了―刑事責任は問える？ 父親を移送 娘と母親は28日午後に 北海道札幌市
+-  山崎怜奈、生配信スタジオの外に目を向けたら……野生の武井壮とバッタリ遭遇 コンクリートジャングルでの出会いに「めちゃくちゃびっくり」
