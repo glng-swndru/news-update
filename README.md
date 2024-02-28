@@ -1,11 +1,11 @@
 # Latest News
--  Handballer Luca Tschentscher: Der Nächste aus dem Bottwartal
--  На востоке Москвы восстановили движение транспорта после утечки воды
--  Fazl sees system collapsing due to establishment's interference
--  Vidović: Postpotresna izgradnja postala sjajan poligon za izvlačenje novaca
--  Huawei на Световния мобилен конгрес: Нови тенденции в модата и технологиите
--  SaS: Neschválením výdavkových limitov vláda ženie SR na grécku cestu
--  珠洲市の港で漁船引き揚げ作業 能登地震で津波など被害
--  Deutschland muss ESC-Song wegen Kraftausdruck zensieren
--  U20 nữ Việt Nam thắng đậm Uzbekistan trước thềm U20 châu Á 2024
--  Ministrica za zdravje Fides znova pozvala k zamrznitvi stavke
+-  Planung der Wohnmobilstellplätze in Gschwend kommt voran
+-  Asaja C-LM afirma que la PAC "no es rentable" y pide a Bruselas que aumente el presupuesto o la cambie "radicalmente"
+-  Muslim, Jewish and Arab film and TV workers in the UK report decline in mental health since October 2023
+-  MDB brings together key stakeholders from the commercial banking sector to foster a strategic dialogue and step up collaboration
+-  Taxa de 5% para super-ricos do G20 acabaria com fome, diz Oxfam
+-  İşte Avrupa'da yılın otomobili!
+-  Индекс потребдоверия в США в феврале неожиданно упал до 106,7 пункта
+-  Bakan Güler, İngiltere Savunma Bakanı Shapps ile bir araya geldi
+-  Правительством урегулированы вопросы проведения экономической оценки экосистемных услуг
+-  Dodik: SPC ključna za opstanak srpskog naroda
