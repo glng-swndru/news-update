@@ -1,11 +1,11 @@
 # Latest News
--  शादी का झांसा देकर नाबालिग से दुष्कर्म, आरोपित गिरफ्तार
--  Матч «Блэкберн» — «Ньюкасл» в 1/8 финала Кубка Англии задержали на 15 минут
--  What to Expect From These 3 Q4 Earnings Late Reporters
--  What to Expect From These 3 Q4 Earnings Late Reporters
--  Egonu contro Vannacci: la pallavolista si oppone all'archiviazione per diffamazione
--  Parlamentares discutem possibilidade de CPI da Saúde em Pelotas
--  Wunderdogs Celebrates Placement on Inc. 5000 Regionals: Pacific List with 283% Revenue Growth
--  DPS pokreće inicijativu za smjenu Mandića
--  Another Netflix price increase is coming this year, analysts forecast
--  'Eu, Capitão' tenta o Oscar com odisseia de refugiados entre o Senegal e a Itália
+-  Спікер Палати представників США після зустрічі з Байденом зробив заяву
+-  Joinville oferece mais 1,8 mil exames de mamografia e preventivo gratuitos em Unidade Móvel
+-  Blue Jays starter Alek Manoah struggles in first spring training game
+-  ¿Los menores de edad pueden solicitar el Real ID en California?
+-  Marinho diz que está “amarrando detalhes” do PL que acaba com saque-aniversário do FGTS
+-  سلاح بی‌توجهی
+-  基金特區：宏利：A股港股望成環球資金目標 美股再升空間有限 日股短期或需「唞一唞」
+-  مزایده حواله خودروهای لوکس
+-  瑞銀：「國家隊」藉ETF淨買A股逾4100億
+-  Horizon é o novo filme de Velho Oeste de Kevin Costner; confira o trailer
