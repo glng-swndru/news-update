@@ -1,11 +1,11 @@
 # Latest News
--  Malatya'da devrilen otomobildeki 4 kişi yaralandı
--  민주 조오섭, '불법 경선 의혹' 상대 측에 공개질의서
--  Hrvati recikliraju sve više, ali i dalje manje od prosjeka EU, a naši susjedi su na dnu liste
--  Ncc in piazza contro la "lobby dei tassisti romani" e il ministro Salvini
--  Beroemde talkshowhost Jon Stewart barst op tv in tranen uit om overlijden van zijn hondje
--  Tilastokärki jyrää uusilla ajatuksilla – ”Näillä vuosilla on jo tullut opittua kantapään kautta”
--  Beroemde talkshowhost Jon Stewart barst op tv in tranen uit om overlijden van zijn hondje
--  이재욱, ♥카리나와 함께하는 여행 예능 가능할까? (살롱드립2)
--  Dvě derby za sebou. Jak to pohárové může ovlivnit souboj o ligový titul?
--  Dünya’nın en yaşlı 11 insanı
+-  Huawei Mate 60 RS Ultimate si nepořídíte, přesto si jej rádi prohlédnete
+-  Na elke vakantie merken plastisch chirurgen gevolgen van mislukte ingreep in het buitenland: ‘Dramatisch’
+-  "Fracassati con una martellata": lo show di Santoro imbarazza Floris, gelo in studio
+-  どん兵衛×『FFVIIリバース』の映像「片翼のどんぎつね 篇」が公開！これはクラス1stのチョイス
+-  P2E, 게임의 경계를 넓히다
+-  Goedkope ‘butt lift’ in Turkije, maar als het misgaat moet Nederlandse arts het oplossen: ‘Dramatisch’
+-  Goedkope ‘butt lift’ in Turkije, maar als het misgaat moet Nederlandse arts het oplossen: ‘Dramatisch’
+-  ‘Ploey 2’ Flies to Multiple Territories After Debuting at European Film Market With The Playmaker (EXCLUSIVE)
+-  How one of Australia’s best festivals keeps reinventing itself
+-  Injection Pen Market Size Projected to Grow at a 7.2% CAGR until 2031, Reaching a Valuation of USD 73.7 billion | Exclusive Report by Transparency Market Research, Inc.
