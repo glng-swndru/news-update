@@ -1,11 +1,11 @@
 # Latest News
--  LIVE OEKRAÏNE. Zelensky arriveert in Albanië voor veiligheidsconferentie - Britse legerleider: “Oekraïne nog maandenlang gedwongen tot verdedigen”
--  Spletna križanka in sudoku Slovenskih novic (28. februar)
--  Menang Skor 6-2, Haaland 5 Gol, De Bruyne 4 Assist: Man City Udah Kayak Main PS
--  Police investigating attempted carjacking in Kitchener
--  Hazardous spills increasing, B.C. not prepared or transparent
--  PSG : Le clan Mbappé répond à Luis Enrique
--  Stock Market Today: All You Need To Know Going Into Trade On Feb. 28
--  Глава IBA назвал число желающих участвовать в Играх Дружбы
--  Iconic Dusit Thani Bangkok to reopen
--  Grupo Caoa planeja marca própria e ajusta parcerias com Chery e Hyundai
+-  元宵節の若者イベントが大盛況 中国・成都市
+-  OCBC Q4 profit up 12% to $1.62 billion; to pay final dividend of 42 cents
+-  'Apple abbandona i piani per la sua auto elettrica'
+-  Mali : 31 morts dans l'accident d'un car tombé d'un pont
+-  سلبریتی‌ها در راستای پیشگیری از جرائم فعالیت کنند
+-  OCBC Q4 profit up 12% to $1.62 billion; to pay final dividend of 42 cents - The Straits Times
+-  Ariana asah panah di tiga negara
+-  성균관·유림 “근친혼 범위 4촌 이내 축소는 가족 파괴…검토 즉각 중단해야”
+-  ලෝක ශූරතා බර ඉසිලීමේ තරගාවලියට ශ්‍රී ලංකාවෙන් තිදෙනෙක්
+-  „Atsiuntė daugiau ginklų nei visi Vakarai kartu sudėjus.“ Neįtikėtina žinia
