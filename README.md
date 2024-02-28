@@ -1,11 +1,11 @@
 # Latest News
--  Спікер Палати представників США після зустрічі з Байденом зробив заяву
--  Joinville oferece mais 1,8 mil exames de mamografia e preventivo gratuitos em Unidade Móvel
--  Blue Jays starter Alek Manoah struggles in first spring training game
--  ¿Los menores de edad pueden solicitar el Real ID en California?
--  Marinho diz que está “amarrando detalhes” do PL que acaba com saque-aniversário do FGTS
--  سلاح بی‌توجهی
--  基金特區：宏利：A股港股望成環球資金目標 美股再升空間有限 日股短期或需「唞一唞」
--  مزایده حواله خودروهای لوکس
--  瑞銀：「國家隊」藉ETF淨買A股逾4100億
--  Horizon é o novo filme de Velho Oeste de Kevin Costner; confira o trailer
+-  VIDEO Kosovski mediji: Radoičić navodno pesnicom udara nekadašnjeg...
+-  Jääkiekko | Supermalli Cindy Crawford näytti kiekko­taitojaan – riemukas tuuletus kruunasi suorituksen
+-  Real-Estate Investor Gets 'Great Deal' on $30.1 Million Beverly Hills Spec Mansion
+-  SAD: To što ste im zamrznuli, uputite Ukrajini
+-  Apple zastavil práci na vlastním elektrickém autě, projekt trval dekádu
+-  Torres acusó a Bullrich de "usar el conflicto" de Chubut para "plantarse" contra Macri por el PRO
+-  Silver alert issued for missing senior: Winnipeg police
+-  Italia nuk kënaqet nga sulmuesit/ Mediat: Axurrët, jo favoritë për të fituar Kampionatin Europian
+-  Met vijfde hattrick voor Flames wijst Wullaert de weg in alweer ruime zege tegen Hongarije
+-  Com mandato cassado, Tavares sofre novo revés na Justiça ao tentar sair do PRTB
