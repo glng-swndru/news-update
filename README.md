@@ -1,11 +1,11 @@
 # Latest News
--  ២ថ្ងៃជាប់គ្នា សមត្ថកិច្ចបង្ក្រាបបទល្មើសនេសាទ ៦ ទីតាំង​នៅ​ស្រុក​ឯកភ្នំ
--  빌라 전세포비아에…전세가율 80% 넘는 거래 70→28%
--  «Распоясавшиеся европейские сателлиты». Посол России заявил, что США осознают последствия отправки войск на Украину
--  Railway यात्रियों के लिए खुशखबरी, सरकार ने 50 प्रतिशत तक घटाया पैसेंजर ट्रेनों का किराया
--  Army personnel file shows Maine reservist who killed 18 people received glowing reviews
--  México aplicará aranceles a importaciones de acero de EEUU si le impone nuevos tributos
--  북미 정상회담 통역 이연향 "현실 아닌 듯…어느 회담보다 긴장"
--  高嶋ちさ子、父愛用の“懐かしの品”に「こんな古いの……いつのだろう」 「現役で使えている事に驚き」と反響
--  Rigorini e falli di mano: il regolamento che distrugge il calcio, caos dopo Milan-Atalante
--  日テレ・郡司恭子アナ、髪型に悩むもファンからは絶賛「どんな髪型でも似合う」「完璧な美しさを持っている」
+-  롯데정보통신, ‘AI·빅데이터·클라우드’ 활용 스마트팜 공개… 도시농부 지원하고 키운다
+-  Từng gây bão toàn cầu với Nokia, Ericsson, thời hoàng kim của ngành công nghệ châu Âu giờ chỉ còn là dĩ vãng, bị Mỹ và Trung Quốc bỏ xa: Vì đâu nên nỗi?
+-  Anupamaa spoiler: Anuj drunk-dials Anu after seeing her growing fondness for Yashdeep; will he finally confess his true feelings?
+-  ইংরেজি - ষষ্ঠ শ্রেণি
+-  à¶‰à¶±à·Šà¶¯à·’à¶ºà·�à·€ à·�à·Šâ€�à¶»à·“ à¶½à¶‚à¶šà·�à·€à·š à·€à·’à¶¯à·”à¶½à·’ à¶¶à¶½à¶º à¶…à¶­à·Š à¶±à·œà·„à¶»à·“
+-  Biden and Trump win Michigan primaries, edging closer to a rematch
+-  NBA feud escalates as New Orleans Pelicans roast Stephen A Smith
+-  ඉන්දියාව ශ්‍රී ලංකාවේ විදුලි බලය අත් නොහරී
+-  Pengantin Wanita Cuci Semua Piring Kotor setelah Pesta, Sang Mertua Sebut karena Sudah Diberi Mahar
+-  Descubren quién es la chica que deslumbró en el Motagua - Olimpia
