@@ -1,11 +1,11 @@
 # Latest News
--  TikTokからユニバーサル・ミュージック・パブリッシング・グループの楽曲も削除される
--  Vụ gần 200 học viên cai nghiện bỏ trốn: Bộ LĐ-TB-XH báo cáo gì với Chính phủ?
--  MCMC and TikTok took down 8,071 undesirable videos, Dewan Rakyat told
--  정부, 의협 간부 5명 첫 고발…의대 정원 배분도 진행
--  ‘We Have Become Our Own Enemy’: Polish Farmers’ Remarkable Protest Against Europe’s Self-Destruction
--  Bragantino vence Águilas Doradas nos pênaltis e vai à 3ª fase da Libertadores
--  임종석 "명문정당 믿었는데…중성동갑 전략공천 재고해달라"
--  Kriget i Ukraina hade varit slut om vi hade skickat mer hjälp
--  В Гродненской области выявлено 1602 случая заражения ВИЧ-инфекцией: стало известно и о количестве инфицированных СПИДом
--  Nhiều ngân hàng dự kiến bán vốn cho nước ngoài trong năm 2024
+-  Falling rice price is only short-term, upward trend to continue: Experts
+-  Beat the Beast from ITV's The Chase at pub quiz night
+-  テイラー・スウィフト父のカメラマン暴行報道にテイラー側が声明 脅しに反応しただけ
+-  Mettricks in Portswood to reopen after three months
+-  Психолог рассказала, как реагировать на открытки от родственников в мессенджерах
+-  VREMENSKA PROGNOZA ZA 28. FEBRUAR: Prolećni dan pred nama, evo kada stiže OBRT
+-  Экономист рассказала о минусах и плюсах рассрочки
+-  Ekspertas: nėra taip, kad Vokietijos kariai stovi eilėje dėl to, kad galėtų tarnauti Lietuvoje
+-  Alen Delonun evi cəbhəxana imiş
+-  Po didinamuoju stiklu – baltarusių migracija: jei bėga nuo režimo, kodėl grįžta 7 kartus per metus?
