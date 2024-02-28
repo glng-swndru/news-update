@@ -1,11 +1,11 @@
 # Latest News
--  SCREEN、レーザーテック…株価も業績も絶好調の「半導体株」今から買っても大丈夫？ - 高配当＆高成長！新NISAで狙う日本株
--  مجلس الأمن يدعو للمشاركة بمبادرة باتيلي ويلوح بالعقوبات
--  Newcomer Jennifer Esteen runs to unseat long-time Alameda County Supervisor Nate Miley
--  News24 | Banyana Banyana book a date with familiar foe Nigeria in fight for Olympics qualification
--  الكتاب.. أنفضله ورقيا أم رقميا؟!
--  أزمة النقد العربي
--  Departamento de Estado descarta envío de tropas de EEUU a Ucrania comentado por Macron
--  19,1 stopnia. Tyle dzisiaj zarejestrował IMGW. A temperatura w prognozie się pnie. Jak bardzo i do kiedy?
--  Shannon Matthews' kidnapper Michael Donovan now from prison pen pal to 'bizarre' public sighting
--  Вторая бронза на чемпионате Европы
+-  शादी का झांसा देकर नाबालिग से दुष्कर्म, आरोपित गिरफ्तार
+-  Матч «Блэкберн» — «Ньюкасл» в 1/8 финала Кубка Англии задержали на 15 минут
+-  What to Expect From These 3 Q4 Earnings Late Reporters
+-  What to Expect From These 3 Q4 Earnings Late Reporters
+-  Egonu contro Vannacci: la pallavolista si oppone all'archiviazione per diffamazione
+-  Parlamentares discutem possibilidade de CPI da Saúde em Pelotas
+-  Wunderdogs Celebrates Placement on Inc. 5000 Regionals: Pacific List with 283% Revenue Growth
+-  DPS pokreće inicijativu za smjenu Mandića
+-  Another Netflix price increase is coming this year, analysts forecast
+-  'Eu, Capitão' tenta o Oscar com odisseia de refugiados entre o Senegal e a Itália
