@@ -1,11 +1,11 @@
 # Latest News
--  Falling rice price is only short-term, upward trend to continue: Experts
--  Beat the Beast from ITV's The Chase at pub quiz night
--  テイラー・スウィフト父のカメラマン暴行報道にテイラー側が声明 脅しに反応しただけ
--  Mettricks in Portswood to reopen after three months
--  Психолог рассказала, как реагировать на открытки от родственников в мессенджерах
--  VREMENSKA PROGNOZA ZA 28. FEBRUAR: Prolećni dan pred nama, evo kada stiže OBRT
--  Экономист рассказала о минусах и плюсах рассрочки
--  Ekspertas: nėra taip, kad Vokietijos kariai stovi eilėje dėl to, kad galėtų tarnauti Lietuvoje
--  Alen Delonun evi cəbhəxana imiş
--  Po didinamuoju stiklu – baltarusių migracija: jei bėga nuo režimo, kodėl grįžta 7 kartus per metus?
+-  Gary Sinise’s Son, McCanna Anthony Sinise, Dies at 33
+-  So viel Geld wird in die Langscheder Straße gesteckt: Land investiert Hunderte Millionen Euro
+-  Dos proyectos de vecinos priman en el sector La Mariscal
+-  Chạy đua sinh con năm thìn 2024: Chuyên gia phụ sản cảnh báo những hệ lụy khó lường
+-  Dự án hàng nghìn tỷ của Tập đoàn Hòa Phát (HPG) tại Hưng Yên vừa bị Thanh tra Chính phủ "điểm tên" vi phạm
+-  Danramil Idi Rayeuk Coffee Morning Bersama Insan Pers
+-  V-League 2023-2024: Ngôi đầu bảng liệu sẽ đổi chủ?
+-  Grüne im Visier von AfD und Populisten: Nicht von „Rechten und Spinnern einschüchtern“ lassen
+-  Mit Fahrrad zum Autowerk: Geh- und Radweg an der Alten Seehausener Straße wird ab Sommer gebaut
+-  Troubled Demon, Blues weapon’s big steps towards returns as Oliver VFL selection call explained
