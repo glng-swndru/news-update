@@ -1,11 +1,11 @@
 # Latest News
--  »GTA VI«: Angestellte von Rockstar Games sollen fünf Tage die Woche ins Büro
--  software-architektur.tv: API-Team mit Dr. Miriam Greis und Lisa Moritz
--  W drodze na Księżyc 11 razy był skazany na porażkę. Na koniec poślizgnął się i złamał nogę
--  Путин заплаши с удари по западни държави и риск от ядрена война
--  Kunst im Bilker Bunker : Neue Welten zwischen meterdicken Wänden
--  software-architektur.tv: API-Team mit Dr. Miriam Greis und Lisa Moritz
--  Почина американският комик Ричард Луис
--  Domaćinstva u Njemačkoj opterećena povećanim troškovima energanata
--  फिल्म दुकान के ट्रेलर लॉन्च पर उर्वशी रौतेला और डॉ. संदीप रेड्डी वांगा साथ नजर आए !
--  Služba CAMS:Emisie CO2 v Amazónii sú pre požiare najvyššie za 21 rokov
+-  Löhne steigen etwas stärker als die Inflation
+-  Apple Investors Grow Impatient on Artificial Intelligence
+-  Em nova investida, Lula afirma que 'Vale não é dona do Brasil'
+-  "On parle toujours de la libération de la femme, mais… " : Frédéric Taddeï nous dévoile son nouveau projet surprenant qui risque de faire parler
+-  Auf den Spuren von Staffbase: Zehn Teams in der Chemnitzer „Höhle der Löwen“
+-  Geschwindigkeitskontrollen an der Bussardstraße in Kaarst: Mit 48 Stundenkilometern in Tempo-30-Zone unterwegs
+-  Ima 93 godine, a izgleda bolje nego s 50: 'Ovo je pet tajni mog izgleda'
+-  Juuri nyt | Presidentti Niinistö pitää 12-vuotisen kautensa viimeisen tiedotustilaisuuden – seuraa suoraa lähetystä
+-  Mit mond a kínai horoszkóp?
+-  Erik ten Hag, Marcus Rashford and the Man Utd mess that could end badly for everyone
