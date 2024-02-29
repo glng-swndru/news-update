@@ -1,11 +1,11 @@
 # Latest News
--  Свой пост покидает американский сенатор, считающий Россию величайшим противником США
--  Буданов поставив крапку у питанні "замороження" війни в Україні
--  Аль-Наср – Аль-Хазем. Прогноз и анонс на матч чемпионата Саудовской Аравии
--  Teenager killed and several others injured in northern Jefferson County crash
--  Patrick Mahomes Has One Simple Request for the NFL Combine Broadcast
--  काठमाडौं महानगरमा दुई लाख करदाताले तिर्दैनन् नियमित कर
--  28 จังหวัดยังโงหัวไม่ขึ้นจากฝุ่น PM2.5
--  Cận cảnh hàng trăm biệt thự bạc tỷ “đắp chiếu” của Công ty CP Đệ Tam ở Bắc Ninh
--  KB국민은행, 서민금융 우수 대부업체에 1000억 원 지원
--  Australian dollar forlorn as bullhawks flee
+-  Meghan Markle wears new 'drama' sunglasses with a very surprising price tag
+-  MEDIA ADVISORY - Minister Wilkinson to Make an Announcement at the Canadian Nuclear Association Annual Conference
+-  Leland Little Auctions Holds Third Annual Sporting Art Fair
+-  Alpine braced for worst-case scenario after Ryan Reynolds and Travis Kelce's F1 investment
+-  미국 달 탐사선 다리 부러져 '기우뚱'…"가동 멈추고 2주 뒤 깨울 것"
+-  Polizei findet Granate in Klettes Wohnung
+-  Leland Little Auctions Holds Third Annual Sporting Art Fair
+-  Police Organised Community Engagement Event
+-  ATP roundup: Jiri Lehecka pulls off upset at Dubai
+-  KoDATA-기술보증기금, 기술거래 서포터즈 업무협약 체결
