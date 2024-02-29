@@ -1,11 +1,11 @@
 # Latest News
--  Parlamento dividido aprova proibição de mineração de criptomoedas
--  Uno a uno, todos los aumentos que llegan en marzo
--  David van Laar doet in dertig dagen elf keer de 'Matthäus-Passion' van Bach. 'Ik zing nu anders dan vorig jaar'
--  Dulces antojos: Las 10 mejores pastelerías para visitar en Lima
--  Barraux. Loïc Chichignoud rêve de devenir champion de France de pizza
--  Hunter Schafer was among protestors arrested during President Joe Biden's appearance on 'Late Night'
--  La opinión de Radi ante la fase actual del Covid y sobre si todos deben ser vacunados
--  Ideološka podijeljenost aktera parlamentarne većine zabrinjava
--  Paulina Rzeźniczak prosi o rady w sprawie córki. Z tym problemem nie mogą sobie poradzić
--  Bakan Tekin: Öğrenciler en az 40 saat sosyal sorumluluk projelerinde yer alacak
+-  Tarım arazisini dolduran vatandaşa dudak uçuklatan ceza
+-  Familia ya Mtanzania aliyefariki Marekani yafunguka
+-  "Будем совершенствоваться". В ГКНТ обозначили направления развития в Год качества
+-  Trove of ancient skulls, bones found during construction project
+-  États-Unis. Le chef des républicains au Sénat Mitch McConnell va quitter ses fonctions
+-  Schillaci apre prima riunione ministri G7, '3 priorità per 2024'
+-  Trove of ancient skulls, bones found during construction project
+-  Inside Westlife's Mark Feehily's stunning home sold for over €1 million
+-  STJ deve julgar no próximo dia 20 pedido da Itália para Robinho cumprir pena no Brasil
+-  STJ deve julgar no próximo dia 20 pedido da Itália para Robinho cumprir pena no Brasil
