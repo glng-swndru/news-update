@@ -1,11 +1,11 @@
 # Latest News
--  McCrary Institute at Auburn University announces new podcast - part of new strategy for research institute
--  Paris City Hall says no Olympic Games policing plans were lost in theft of a worker's computer gear
--  Canary Islands tourists warned over 'shocking scam' that could eat up holiday budget
--  Вьетнам стал вторым крупнейшим экспортёром смартфонов после Китая, а доля Индии почти не растёт
--  Írsku reprezentáciu dočasne povedie bývalý hráč Manchestru United
--  Save $110 on a 1-Year Intuit QuickBooks Online Subscription With This Deal - CNET
--  Fenerbahçe Galatasaray'a cevap verdi, demediğini bırakmadı! "Dursun Özbek'e sesleniyoruz, pişman edeceğiz"
--  Ogromna tragedia. Znaleziono ciało 19-latka
--  Профильные ведомства РФ рассмотрят просьбу Приднестровья о защите региона
--  Confira regras aprovadas para as eleições 2024
+-  Le PSG plagié par une franchise de NBA !
+-  La vie rêvée des autres : la fiction inspirée de l'affaire Flactif a-t-elle été tournée au Grand-Bornand ?
+-  Waarom betalen voor je betaalrekening? ING spant de kroon met 43,80 euro per jaar
+-  Польща може тимчасово закрити кордон для агропродукції з України, – Туск
+-  Waarom betalen voor je betaalrekening? ING spant de kroon met 43,80 euro per jaar
+-  ‘Stop met resoluties en sancties. Pak Poetin aan als de maffia’
+-  Famed London telecom tower to be converted into a luxury stay by the group behind NYC’s TWA Hotel
+-  Gold Prices Crash to $2,027: Why Is the Precious Metal Falling?
+-  ЗСУ зіткнулися з нестачею запчастин для західної зброї: як вирішується проблема
+-  Kosten betaalrekeningen steeds hoger: waarom betaal je de bank om jouw geld te stallen?
