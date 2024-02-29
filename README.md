@@ -1,11 +1,11 @@
 # Latest News
--  Taxação global faria ricos reconsiderarem mudar de país, diz ministro da Noruega
--  Ilha dos Frades é paraíso a ser descoberto no coração da baía de Todos-os-Santos
--  Cận cảnh những dự án nghìn tỷ của Tập đoàn Phúc Sơn tại Vĩnh Phúc
--  Quilombos do Recôncavo Baiano querem conquistar turistas brasileiros
--  Link Live Streaming Babak 16 Besar German Open 2024 di SPOTV dan BWF TV, 29 Februari 2024
--  Open finance completa três anos com desafio de expansão no país
--  The eagle and the regulator
--  Dự án 16.293 tỷ đồng ở Hà Nội sắp đón tin vui: Khám phá viễn cảnh "hồi sinh" khó tin của sông Tô Lịch
--  'Te jogam na rua como lixo, sem nenhum apoio', diz ex-detento de Guantánamo
--  Ação contra redes sociais pode redefinir limites da liberdade de expressão
+-  藍白挺縮短入籍年限 民進黨反對：中國藉中配影響台灣民主
+-  Τροχαία: H Ελλάδα έχει το υψηλότερο ποσοστό θανάτων μοτοσικλετιστών στην ΕΕ
+-  Terminal problems causing "pain" for regional agriculture exporters
+-  Donald Trump kicked off yet another state ballot - blasts 'activist Democrat judge'
+-  Ultra-processed food linked to 32 harmful effects to health, review finds - The Guardian
+-  "Полювання" української "Лелеки" на техніку росіян: де та як працює дрон
+-  看病變貴了！明起「8家醫院」升級 急診最多漲350元
+-  Pembayaran TTP di 13 OPD Pemkab Mansel Ditunda, Ini Penyebabnya
+-  미국 텍사스 산불, 서울 5배 면적 태우며 확산…"한인 피해 없어"
+-  Sandeshkhali Accused Sheikh Shahjahan, On The Run For 55 Days, Arrested
