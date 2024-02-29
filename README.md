@@ -1,11 +1,11 @@
 # Latest News
--  Tak bawiły się dzieci w Jutrosinie podczas ferii zimowych
--  Davutoğlu'ndan Erdoğan'a 'mülakat' tepkisi: Dayısı olan değil hak eden kazansın
--  Tóth Gabi párja: „Érdekes, mennyi hazugságot és hülyeséget írnak rólam”
--  Кордоба — об уходе Ахметова в «Зенит»: «Не вижу повода для злости. При встрече пожму ему руку»
--  Fermato con della cocaina, a casa nascondeva altra droga, una pistola rubata e una scacciacani
--  Borsa: l'Asia corre guardando alla Fed, l'Europa resta ferma
--  Terry Crews recalls early career struggles that 'changed his life forever'
--  Înundații devastatoare în Italia. Oamenii au fost salvați și cu ajutorul unor elicoptere
--  Na iOS přechází z Androidu poměrně stálé procento uživatelů. Jen minimum z nich však pořizuje nejnovější iPhony
--  Policja znalazła granatnik w Chrzanowie. Internauci: "Szymczyk pewnie zgubił", "pytaliście w KGP?"
+-  Rukomet: Raspored kvalifikacijskog turnira za Olimpijske igre, evo kada igra Hrvatska
+-  민주 홍영표, 탈당 시사…"새 정치 고민하는 분과 뜻 세울 것"
+-  Populiariosios italų grupės „Måneskin” narė Victoria de Angelis surengs pasirodymą Vilniuje
+-  Kiev: abbattuto caccia russo Su-34, l'undicesimo in un mese
+-  FC Bayern: Max Eberl mit neuem Plan – Für wen sich der Tuchel-Abgang im Sommer auszahlen könnte
+-  टी-२० सिरिज : त्रिवि मैदानमा नेदरल्यान्ड्सले नामिबियाविरूद्ध जोड्यो २४७ रन
+-  Türkiye ekonomisi yıllık yüzde 4,5, son çeyrekte yüzde 4 büyüdü
+-  КЛОПП – о разгроме Саутгемптона: «Тяжелая игра в ужасно сложной ситуации»
+-  Yüzündeki kıllar yüzünden kocası 'erkeğim' diye sesleniyor! Sevil Albahan, canlı yayında yardım istedi
+-  Mekani poput oblaka i lakše probavljivi: evo u čemu je njihova tajna, nas su oduševili...
