@@ -1,11 +1,11 @@
 # Latest News
--  Aussie game developer breaks out after Sonic success
--  Hope's Angel: Eltern von Stillgeburten sprechen in Sankt Augustin mit Bundestagspräsidentin Bärbel Bas
--  Bourgoin-Jallieu. Projets d'urbanisme : quand les habitants se mobilisent pour défendre leur cadre de vie
--  «Абрамсы» начали гореть на Украине: Стало известно, как США перевооружаются для противостояния с Россией и Китаем
--  Frédéric, 51 ans, porté disparu après avoir tenté de sauver ses chiens dans la Sambre à Thuin : les recherches ont repris ce mercredi, avec des plongeurs de la Protection civile
--  San Antonio – The Strongest (2-0): minuto a minuto
--  「支持者なし」票が10万超、バイデン氏のガザ政策に抗議 ミシガン州予備選
--  Aussie game developer breaks out after Sonic success
--  Até quando o calor segue em SP? Veja previsão
--  ‘Bedroom coder’: Aussie game developer breaks out after Sonic success
+-  Nem lesz semmi a Mercedes-Maybach überluxus szabadidő-szedánjából
+-  Krišto izvijestila Koopmana o pozitivnom napretku BiH u ispunjenju kriterija za otvaranje pregovora s EU
+-  بالفيديو..الكعبي يسجل هدفه 13 في الدوري اليوناني
+-  Tolga Savacı'nın vasiyeti ortaya çıktı!
+-  Police 'assessing' hate speech complaint against Lee Anderson
+-  Benedek Ágota felnőtteknek szóló könyve miatt is bírságot kapott a Libri
+-  Tenis. Hubert Hurkacz w ćwierćfinale turnieju w Dubaju! Czas na francuskiego zdolniachę Ugo Humberta. Zagrają po raz piąty w karierze
+-  Superrezerwowy bohaterem! Lider ekstraklasy w półfinale Fortuna Pucharu Polski
+-  NEW Episode: The White House 1600 Sessions Podcast "President Jimmy Carter: Faith, Family, and a Presidency"
+-  VELIKI CILJEVI KOJI VODE KA SUŠTINSKOM RAZVOJU Vučić na svečanoj večeri povodom Regionalnog samita
