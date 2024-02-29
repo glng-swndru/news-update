@@ -1,11 +1,11 @@
 # Latest News
--  Baghpat Lok Sabha Election 2024: बागपत में इस बार जयंत भी बीजेपी के साथ, सपा-कांग्रेस के 'लड़के' कर पाएंगे खेला?
--  อนุ กมธ.งบฯ 67 ตัด งบฯ ฝายปูน 1.2 พันล้าน ทิ้ง ตั้งข้อสังเกตส่อทุจริต
--  Финляндия не запрещала Украине применять передаваемое оружие для ударов по РФ
--  Martirii Horea, Cloşca şi Crişan au fost comemorați la Alba Iulia. „O lecție de istorie extraordinară"
--  Hello Kitty, Japan's Cutest Ambassador to the World Sponsored
--  HD현대 손 들어준 방사청… KDDX 다시 원점으로
--  Вашингтон подкрепи суверенитета на Молдова, Зеленски разговаря с Мая Санду
--  Még hogy recesszió? Valósággal hasítanak az európai tőzsdék
--  Berufseinstieg als Filmproduzentin: Anna Weber erzählt von ihrem ersten Jahr im Job
--  米SEC、オープンAIに召喚状＝関係筋 - WSJ発
+-  Vakıflar'dan kiracıya yüzde 900 zam! Kasım 2023'te 1.125 TL olan evin kirası şimdi 10 bin TL!
+-  PARTIZAN DOČEKUJE EFES U VEOMA BITNOM MEČU: Evo gde gledati spektakl iz beogradske Arene
+-  Nockherberg 2024: Spitze zum Schluss? Wen Andreas Steinfatt bei seiner Abschiedsrede unerwähnt lässt
+-  O ülkede işe dönmeyen grevdeki doktorlar tutuklanacak
+-  Bitcoin vượt 60.000 USD, Tổng thống El Salvador ‘flex’ khoản lãi 40%, nhưng dứt khoát: ‘Chúng tôi còn lâu mới bán’
+-  Napoli znalazło następcę Zielińskiego. 25 milionów euro
+-  Napoli znalazło następcę Zielińskiego. 25 milionów euro
+-  İstanbul'da göz gözü görmüyor! Boğaz, trafiğe kapandı
+-  İstanbul'da sis etkili oluyor; bazı vapur seferleri iptal edildi
+-  讀賣巨人日奈混血歐可耶瑠偉帥氣來台 法國姨丈來接機
