@@ -1,11 +1,11 @@
 # Latest News
--  Why has Karnataka extended deadline again for motorists to install high-security registration plates?
--  Ser Estudiante: baja calificación incita a cambios en la enseñanza
--  VREMENSKA PROGNOZA ZA 29. FEBRUAR: Toplo i promenljivo oblačno, u pojedinim delovima Srbije kiša
--  В Воронеже взлетели цены на «китайцев»
--  الكشف عن وجهة ليفاندوفسكي المحتملة في دوري روشن
--  Brazil Data Center Market Growth Opportunities Report 2023-2029: Coverage of 68 Existing Facilities, 21 Upcoming Facilities and 9 States – Sao Paulo is the Premier Hub for Investments
--  Hampshire Police join operation to tackle rural crimes
--  Laphan selvitys: Jos hoitoa halutaan pienillä paikkakunnilla, niin se on vietävä ihmisten kotiin – pienet terveyskeskukset jäämässä historiaan
--  সালাহ–ডি ব্রুইনাকে ডাকছে সৌদির ফুটবল
--  Solent University masked ball at Saint Mary's Stadium
+-  Kommentti: Vladimir Putinin Venäjää halveksitaan ja pelätään – hänellä on yhä tukenaan yksi todellinen mahti­mies
+-  Алекс Николов и Лубе Чивитанова се класираха на полуфинал в Шампионската лига
+-  CPT Markets：美国EIA原油库存增加令油价尾盘回吐涨幅！日内关注美国1月核心PCE物价指数
+-  Rick And Morty's Showrunnners Confirm Major Character Will Return After Season 7, And That Seems Like Terrible News For The Heroes
+-  ‘A remarkable woman’: Rinky Chakma, Miss India Tripura 2017, passes away at 29
+-  春季特別展 古代ガラス 輝く意匠と技法
+-  5 Argumente dafür, 5 Argumente dagegen: Pro & Contra zur Gebühren-Erstattung in Castrop-Rauxel
+-  Hành trình trao nhận yêu thương cùng "Triệu bước chân nhân ái"
+-  遠野なぎこ、1カ月で新恋人と破局 手元には指輪キラリ 交際中のマッチングアプリ利用も示唆「逆だったら最悪に嫌」
+-  発売当時を再現した「コーヒーガム」「ジューシー＆フレッシュガム」、ロッテから復刻
