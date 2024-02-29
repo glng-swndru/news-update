@@ -1,11 +1,11 @@
 # Latest News
--  Nem lesz semmi a Mercedes-Maybach überluxus szabadidő-szedánjából
--  Krišto izvijestila Koopmana o pozitivnom napretku BiH u ispunjenju kriterija za otvaranje pregovora s EU
--  بالفيديو..الكعبي يسجل هدفه 13 في الدوري اليوناني
--  Tolga Savacı'nın vasiyeti ortaya çıktı!
--  Police 'assessing' hate speech complaint against Lee Anderson
--  Benedek Ágota felnőtteknek szóló könyve miatt is bírságot kapott a Libri
--  Tenis. Hubert Hurkacz w ćwierćfinale turnieju w Dubaju! Czas na francuskiego zdolniachę Ugo Humberta. Zagrają po raz piąty w karierze
--  Superrezerwowy bohaterem! Lider ekstraklasy w półfinale Fortuna Pucharu Polski
--  NEW Episode: The White House 1600 Sessions Podcast "President Jimmy Carter: Faith, Family, and a Presidency"
--  VELIKI CILJEVI KOJI VODE KA SUŠTINSKOM RAZVOJU Vučić na svečanoj večeri povodom Regionalnog samita
+-  Novas regras para demissão de concursados de estatais não têm efeito retroativo, decide STF
+-  Mikropoduzetnici u zamci cijena, globalnih konkurenata i nedostatka kapitala
+-  Nesporazum! TSC hitno objavio drugo saopštenje pred Zvezdu!
+-  Máxima twijfelt over VN-rol: ‘Veel progressie gemaakt, anderen kunnen het voortzetten’
+-  You have 'super vision' if you can spot stealthy crab in under 35 seconds
+-  Selvitys: Yhä harvempi suomalainen pelaa rahapelejä – Peliongelmat kuitenkin lisääntyvät
+-  Zašto je Putin ovo uradio?! Tajne akcije Moskve najvljuju veliki obračun! Ni Kina nije prošla ispod radara, ako je ovo tačno...
+-  එත්නෝ­ස්පෝර්ට්ස් මහා සභාව අද
+-  Natura ingressa no ramo de artigos para casa
+-  Etages marknadsföring gör narr av fulla ungdomar
