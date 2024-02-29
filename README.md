@@ -1,11 +1,11 @@
 # Latest News
--  금융당국, 함영주 DLF 2심 승소에..."재판부 입장 존중...상고 여부 검토"
--  Dünyanın en hızlı Formula 1 pilotu Max Verstappen bu kez en hızlı drone ile yarıştı
--  Halk TV ekranlarında CHP'ye İzmir resti: 'İzmirliler muhalefetten bezmiş durumda'
--  Volleyball - Kurzen Prozess gegen Hausmannstätten
--  Así será el reconocimiento de Dodgers a Fernando Valenzuela
--  Кой е най-бърз в Левски, кой се облича най-добре и пуска музиката? Отговаря Патрик-Габриел Галчев
--  Səfərbərlik Xidmətinin 136 əməkdaşı məsuliyyətə cəlb edilib
--  Gewerbeflächen in der Esslinger Innenstadt: Warum manch frühere Toplage heute kaum noch gefragt ist
--  Új Vulkan implementációval érkezett a friss AMD Software
--  Вицепремиер Мария Габриел откри новата зала за катерене "Балкан" в София - Труд
+-  'It's not bloody Gaza!' Council meeting descends into chaos with Palestine protesters
+-  Търговията на европейските фондови пазари започна с известен оптимизъм
+-  中国大湾区の「スーパー工事」 獅子洋大橋で西アンカーブロックが設置完了
+-  Mazot gübre desteği yattı mı? 2024 mazot ve gübre desteği ne kadar oldu, zamlandı mı?
+-  Österreich kann ab erstem März Rasern das Auto abnehmen
+-  Ratne igre pod palicom mašina: "Veštačka inteligencija je ključni igrač"
+-  Nghiên cứu cho thấy người sinh vào tháng này trong năm ít bị cúm nhất, thử xem bạn có nằm trong số đó
+-  İki araştırma üniversitesinden örnek işbirliği
+-  Ngày tàn của ngành bán đàn piano: Giảm giá mạnh nhất 10 năm nhưng chẳng ai thèm mua, từ biểu tượng của giới thượng lưu thành trò xa xỉ phí thời gian và tốn tiền
+-  Aditya Dhar Lauds Wife Yami Gautam, Says 'She Is A Fearless Actor, Only Goes By Her Gut And Not People's Opinion'
