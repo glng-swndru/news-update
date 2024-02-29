@@ -1,11 +1,11 @@
 # Latest News
--  Trabzonspor 1-0 Rams Başakşehir (MAÇ SONUCU-ÖZET) | Fırtına yarı finale yükseldi! | Ziraat Türkiye Kupası | A Spor izle
--  Horner, absuelto
--  Deere & Company Announces Quarterly Dividend
--  Keir Starmer 'sat there while antisemitism ran rife in his party'
--  DETE ZALEPILO TETOVAŽU PO SRED LICA Majka se uhvatila za glavu od muke, a onda joj sinula genijalna ideja, pogledajte šta je uradila
--  Pomoću ovog jednostavnog trika produžite rok trajanja hleba
--  Femke Halsema mag tot 2030 burgemeester van Amsterdam blijven: ‘Toch een beetje ontroerd’
--  Латвия допустила отправку своих войск в Украину
--  Pomoću ovog jednostavnog trika produžite rok trajanja hleba
--  Tiebreaks nekken Tallon Griekspoor in Dubai, Botic van de Zandschulp van de baan geveegd
+-  La Volta Buona, scintille tra Balivo e Simona Marchini su Ilary Blasi: "Allora, chi triti?"
+-  Σταμάτησε η διαδικασία αφύπνισης του Μανώλη Μαυρομμάτη - Η κατάσταση της συζύγου του
+-  Anticipo: las cifras que mira el Gobierno y que pueden tensar más con provincias
+-  Podcast Übersteiger: Kurtulus Öztürk spricht über bewegende Karriere und seine neue Aufgabe
+-  Vizinha de pelotão da PM sofre tentativa de furto: "é de dia e de noite"
+-  Jaunu albumu izdod Eirovīzijas dalībnieki "Citi zēni"
+-  Zehn Teams aus ganz NRW: Riesenstimmung bei Männerballett-Tanzturnier in Goch
+-  Time to Invest in Crypto: SOFTSWISS 2023 Gaming Market Overview
+-  La Cruz Roja junta útiles y pide que se sumen voluntarios
+-  UN pins hope on multilateral consensus to tackle ecological crisis
