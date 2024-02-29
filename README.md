@@ -1,11 +1,11 @@
 # Latest News
--  Understanding How Neptune Affects Pisces
--  Nothing nalákal na design modelu Phone (2a). Foťáky má jako oči, kryt baterie inspirovalo metro v New Yorku
--  رسالة من أبو الغيط للرئيس الفلسطيني..هذا ما تضمنته!
--  Gaziantep'i Üzen Vefatlar! Gaziantep'te Günün Defin Listesi... Bugün Gaziantep'te Kimler Vefat Etti?
--  LS Polls: Cong to Contest 16 Seats in Kerala; Announcement of Candidates Soon
--  Son dakika... ABD ekonomisi beklentilerin altında büyüdü
--  جدة.. ​​​​​​​فتح الحركة المرورية على عبارات مجرى السيل بحي الأمير فواز
--  Biển số lục quý 8 ‘hàng độc’ chốt giá quy đổi gần 7 tỷ đồng tại Úc
--  Analiza: KPO podniesie PKB o 1,2 pkt proc.
--  Va in ospedale e viene rimesso: muore dopo due giorni
+-  LIVE MN - Youth League, Milan-Braga (1-0): Sia si fa perdonare, Stalmach fuori per infortunio
+-  Feci olay! Eşini ve 2 akrabasını öldürüp mağarada saklandı
+-  Hamas-leider roept op tot bestorming van de al-Aqsamoskee tijdens ramadan
+-  TPHCM đánh bại Bình Định trên sân nhà
+-  Yaşar Kemal'in Elia Kazan'a öğüdü... Teoman bu işe ne diyecek
+-  Abruzzo: Lollobrigida, 'sono fiducioso'
+-  No miracles in RS polls from State
+-  Ny tävling i publikens smak: "Kan bli jättebra"
+-  Caso Vannacci: Crosetto, 'parole Salvini? Non c'è nulla a orologeria'
+-  ПОКАЖАА КАКО ПРИНУДУВААТ ВРАБОТЕН ДА ДАДЕ ОТКАЗ: Гигантите имаа „специјални техники“
