@@ -1,11 +1,11 @@
 # Latest News
--  藍白挺縮短入籍年限 民進黨反對：中國藉中配影響台灣民主
--  Τροχαία: H Ελλάδα έχει το υψηλότερο ποσοστό θανάτων μοτοσικλετιστών στην ΕΕ
--  Terminal problems causing "pain" for regional agriculture exporters
--  Donald Trump kicked off yet another state ballot - blasts 'activist Democrat judge'
--  Ultra-processed food linked to 32 harmful effects to health, review finds - The Guardian
--  "Полювання" української "Лелеки" на техніку росіян: де та як працює дрон
--  看病變貴了！明起「8家醫院」升級 急診最多漲350元
--  Pembayaran TTP di 13 OPD Pemkab Mansel Ditunda, Ini Penyebabnya
--  미국 텍사스 산불, 서울 5배 면적 태우며 확산…"한인 피해 없어"
--  Sandeshkhali Accused Sheikh Shahjahan, On The Run For 55 Days, Arrested
+-  3 зодии, на които всички ще завиждат през март 2024
+-  車庫建設作業中の男性死亡 はしごから転落か 鹿児島・南九州市
+-  Powerful New Zealand Team Hope To Fire At World Indoor Champs
+-  Lappeenrannan alueen postinumeroihin isoja muutoksia – Näihin paikkoihin ne kohdistuvat
+-  「被爆者の森」で木の植え替え 石川県の兼六園菊桜と沖縄県の寒緋桜を植樹 広島
+-  石川・穴水町の仮設住宅に29日から入居開始 県内の仮設住宅入居申し込みは7800件超える【能登半島地震】
+-  「被爆者の森」で木の植え替え 石川県の兼六園菊桜と沖縄県の寒緋桜を植樹 広島
+-  「アジアNo.1のグローバル企業へ」国内シェアの“4分の1”占める巨大企業が誕生！「ツルハ」「ウエルシア」経営統合へ 北海道
+-  巴川の水位や氾濫する場所の予測情報は非公開へ 避難呼びかけの判断に活用 静岡市
+-  정부 "의료개혁 무력화 위해 의사들에 거짓 퍼뜨리면 엄정 대응"
