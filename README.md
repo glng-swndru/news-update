@@ -1,11 +1,11 @@
 # Latest News
--  Chris Paul and Dwyane Wade let the No. 3 keep them from teaming up in Miami
--  Долар - лев. Колко струва един щатски долар към един български лев днес, 29 февруари /валутен калкулатор/
--  The best drones of 2024: Expert tested and reviewed
--  à¶»à¶§ à¶»à·�à¶šà·’à¶ºà·� à¶´à·™à¶±à·Šà·€à·� à¶¸à·”à¶¯à¶½à·Š à·€à¶‚à¶ à·� à¶šà·… à¶ºà·”à·€à·…à¶šà·Š à¶¯à·�à¶½à·š
--  CNPS reduz novamente teto de juros do consignado para beneficiários do INSS, de 1,76% a 1,72%
--  Legacy Act posed a fake and phony argument from get-go
--  Niagara employment sector worried about impact of international student cap
--  CNPS reduz novamente teto de juros do consignado para beneficiários do INSS, de 1,76% a 1,72%
--  CMG and CBC/Radio-Canada sign a tentative agreement
--  "Slučaj Horner" završen! Red Bul ostaje sa starim šefom tima!
+-  Greenway Announces Third Quarter Financial Statements
+-  "Je me suis battue pendant des dizaines d'années" : Kelly Massol (Qui veut être mon associé ?) témoigne sur son combat contre "l'obésité morbide"
+-  Lijfarts: Joe Biden “fit genoeg” om taken uit te voeren als president
+-  【今日は何の日】 2月29日は「に◯◯◯の日」
+-  Beylikdüzü’nde asansör boşluğuna düşen işçi öldü
+-  Beylikdüzü’nde asansör boşluğuna düşen işçi öldü
+-  สธ.ช่วยน้องปุ๊ "เด็กชาย 5 ขวบ" ป่วยประหลาด หนังแตกลอก เลือดไหลท่วม ทรมานถึง 3 ปี
+-  Валансьєнн по пенальті здолав Руан та вийшов до півфіналу Кубку Франції
+-  El anochecer lunar podría señalar el fin del módulo de aterrizaje Odysseus
+-  Sahel : L’Algérie organise un exercice militaire avec munitions réelles près du Mali
