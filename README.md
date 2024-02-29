@@ -1,11 +1,11 @@
 # Latest News
--  BIDENI KOMISTUSKIVI: Detroidi naabruskonna moslemid kutsusid üles tema vastu hääletama
--  La rimonta c'è, missione compiuta! Il Padova vola in finale di Coppa Italia C!
--  Αναστάσιος Ράμμος: «Ήμουν χρόνια εθισμένος στις ουσίες, έπινα ανθρώπους» (vid)
--  Ligue des nations : les Bleues s'inclinent en finale contre l'Espagne
--  Prva pobeda Ilićevog Atromitosa posle mesec dana
--  ArcelorMittal S.A.: ArcelorMittal publishes its Annual Report 2023 on Form 20-F
--  Was die Menschen im Schaltjahr 2024 umtreibt
--  Ligue des nations : les Bleues s'inclinent en finale contre l'Espagne
--  Tragjike/ Vrasje në Korçë, autori qëlloi drejt një personi dhe më pas vrau veten
--  Премьер Франции Атталь рассказал, каких военных можно отправить на Украину
+-  No. 17 Saint Mary's impressive turnaround has team on verge of WCC title
+-  Dizel jeneratör tarih oluyor! Toyota ve ABD’li Kohler’den enerji iş birliği
+-  Mercato : Le PSG prépare une folie à 100M€ ?
+-  За 50 г. на сцената AC/DC пускат албумите си на плочи
+-  Netflix : cette série pleine d'adrénaline est renouvelée pour une saison 7
+-  Chatbots’ inaccurate, misleading responses about US elections threaten to keep voters from polls
+-  半導体株高をけん引する「材料・装置メーカー29社」、日本が誇る“4大技術”とは？ - 狂騒！半導体
+-  Here are the Best Methods for Sanitizing All of Your Beauty Tools
+-  Budućnost ubjedljva protiv Orlova
+-  Proč je přestupný. Ve staré češtině mělo toto přídavné jméno širší užití
