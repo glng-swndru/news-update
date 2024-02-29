@@ -1,11 +1,11 @@
 # Latest News
--  Китай разработи робот за защита на културни паметници
--  Wrzuć do czajnika obierki z ziemniaków. Uporczywy brud zniknie
--  이사철 앞둔 서울 아파트 ‘전세값’ 들썩…성동구 한 주 새 0.16% ‘급등’
--  Τα πρωτοσέλιδα των εφημερίδων την Πέμπτη 29 Φεβρουαρίου
--  Лідер республіканців у Сенаті США, який підтримував Україну, залишить свою посаду
--  Μακρόν:«Έτοιμος» να συνεργαστεί με τη ΣΑ για να υπάρξει «διαρκής» ειρήνη
--  Agnelli, Opa da 1mld e 44mln dell'Avvocato. Le origini del tesoro offshore
--  Tiada pegawai SPRM hubungi Wan Saiful - Azam Baki
--  Лидеры Конгресса на встрече с Байденом не смогли договориться о помощи Украине
--  Лазейку для точечной застройки временно прикрыли в Алматы
+-  Baghpat Lok Sabha Election 2024: बागपत में इस बार जयंत भी बीजेपी के साथ, सपा-कांग्रेस के 'लड़के' कर पाएंगे खेला?
+-  อนุ กมธ.งบฯ 67 ตัด งบฯ ฝายปูน 1.2 พันล้าน ทิ้ง ตั้งข้อสังเกตส่อทุจริต
+-  Финляндия не запрещала Украине применять передаваемое оружие для ударов по РФ
+-  Martirii Horea, Cloşca şi Crişan au fost comemorați la Alba Iulia. „O lecție de istorie extraordinară"
+-  Hello Kitty, Japan's Cutest Ambassador to the World Sponsored
+-  HD현대 손 들어준 방사청… KDDX 다시 원점으로
+-  Вашингтон подкрепи суверенитета на Молдова, Зеленски разговаря с Мая Санду
+-  Még hogy recesszió? Valósággal hasítanak az európai tőzsdék
+-  Berufseinstieg als Filmproduzentin: Anna Weber erzählt von ihrem ersten Jahr im Job
+-  米SEC、オープンAIに召喚状＝関係筋 - WSJ発
