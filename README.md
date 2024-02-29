@@ -1,11 +1,11 @@
 # Latest News
--  Procuraduría reitera pedido al Poder Judicial para tener jueces exclusivos en casos Lava Jato
--  Rennes : on a testé Mousse, nouveau bar restaurant de la place Sainte-Anne
--  Les trois choses à retenir dans le groupe du CA Brive qui va défier Béziers ce jeudi soir
--  USD/CAD climbs into ten-week high above 1.3600, but mixed US GDP caps gains
--  TRE analisa publicação patrocinada de Camila Jara pedindo voto fora do prazo
--  Taylor Swift aterriza en Singapur tras el incidente con un paparazi en Australia
--  شو الوضع؟ رمضان بين بشائر الهدنة في غزة أم مخاطر الحرب في لبنان... و"الإعتدال" تواصل جولتها
--  Sprengstoff in Wohnung von Ex-RAF-Terroristin Klette in Berlin-Kreuzberg gefunden
--  Roubos e furtos caem na cidade de São Paulo em janeiro
--  CHP'nin TRT için verdiği grup önerisine AK Parti ve MHP'den ret
+-  Inauguration of the “Great Museum of Chichén Itzá”
+-  PS5 Pro'nun AI yükseltme teknolojisi detaylanıyor: GPU tabanlı olacak
+-  Schnell gemacht und herrlich lecker: Crispy Kartoffelsalat aus dem Ofen
+-  Luis Enrique débarque au PSG, c’est la révolution
+-  Phishing-Links und Schock-SMS: Betrügerbande gefasst
+-  Do Ženevy se vrátil autosalon. Ukázal novinku, Auto roku i jedno velké „ale“
+-  «Η μόνη μου περιουσία είναι το αμαξίδιο με τα σκουπίδια μου»: Ένας διαφορετικός υποψήφιος δήμαρχος Κωνσταντινούπολης
+-  Norris ziet dat twee teams al zijn vertrokken: "Dat is duidelijk"
+-  Голем финансиски хороскоп за пролет 2024 година! Парични приливи повеќе од било кога, но морате да ги научите лекциите кои доаѓаат во март
+-  Coromandel Cure tourism campaign a success, visitor spend up
