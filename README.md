@@ -1,11 +1,11 @@
 # Latest News
--  “Divieto insurrezionalista”. Un altro giudice vuole bloccare la corsa di Trump
--  Texas’taki orman yangınlarında 1 kişi hayatını kaybetti
--  Ataşehir'de asker eğlencesinde kavga:1 yaralı
--  Samsung Semiconductor Unveils New R&D Powerhouse in Bengaluru
--  Çorlu tren katliamı davasında yine karar çıkmadı
--  مشروع رأس الحكمة يؤكد متانة وقوة العلاقات الإماراتية المصرية - الاقتصادي
--  Brent petrol güne düşüşle başladı, varil fiyatı yüzde 0,06 azaldı! Akaryakıta bir indirim gelir mi?
--  Bilecik’te uyuşturucu operasyonu: Yasal işlem yapıldı!
--  ゆりやん、指輪の絵文字添え“緊急会見”「え 大谷くんまさか笑」「すっごいビックリ」と反響
--  ورشة عمل بعنوان "حساسية النزاع" في مديرية الشيخ عثمان ، عدن
+-  금융당국, 함영주 DLF 2심 승소에..."재판부 입장 존중...상고 여부 검토"
+-  Dünyanın en hızlı Formula 1 pilotu Max Verstappen bu kez en hızlı drone ile yarıştı
+-  Halk TV ekranlarında CHP'ye İzmir resti: 'İzmirliler muhalefetten bezmiş durumda'
+-  Volleyball - Kurzen Prozess gegen Hausmannstätten
+-  Así será el reconocimiento de Dodgers a Fernando Valenzuela
+-  Кой е най-бърз в Левски, кой се облича най-добре и пуска музиката? Отговаря Патрик-Габриел Галчев
+-  Səfərbərlik Xidmətinin 136 əməkdaşı məsuliyyətə cəlb edilib
+-  Gewerbeflächen in der Esslinger Innenstadt: Warum manch frühere Toplage heute kaum noch gefragt ist
+-  Új Vulkan implementációval érkezett a friss AMD Software
+-  Вицепремиер Мария Габриел откри новата зала за катерене "Балкан" в София - Труд
