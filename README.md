@@ -1,11 +1,11 @@
 # Latest News
--  Greenway Announces Third Quarter Financial Statements
--  "Je me suis battue pendant des dizaines d'années" : Kelly Massol (Qui veut être mon associé ?) témoigne sur son combat contre "l'obésité morbide"
--  Lijfarts: Joe Biden “fit genoeg” om taken uit te voeren als president
--  【今日は何の日】 2月29日は「に◯◯◯の日」
--  Beylikdüzü’nde asansör boşluğuna düşen işçi öldü
--  Beylikdüzü’nde asansör boşluğuna düşen işçi öldü
--  สธ.ช่วยน้องปุ๊ "เด็กชาย 5 ขวบ" ป่วยประหลาด หนังแตกลอก เลือดไหลท่วม ทรมานถึง 3 ปี
--  Валансьєнн по пенальті здолав Руан та вийшов до півфіналу Кубку Франції
--  El anochecer lunar podría señalar el fin del módulo de aterrizaje Odysseus
--  Sahel : L’Algérie organise un exercice militaire avec munitions réelles près du Mali
+-  Richard Lewis, de 'Two And A Half Men', morre aos 76 anos
+-  Taranto, Gravina in visita allo stadio: "Evitare l'estromissione dalla C per le strutture"
+-  Young people fall out of love with wedding traditions as asking the father’s permission and the bride taking their partner’s name could become a thing of the past
+-  Richard Lewis, de ‘Two And A Half Men’, morre aos 76 anos
+-  Richard Lewis, de 'Two And A Half Men', morre aos 76 anos
+-  St. Catharines to host active living fair for ages 50-plus
+-  Plenković najavio dolazak aviona, Šeks prozvao mentalne nasljednike komunista
+-  Prediksi dan Line Up PSBS Biak vs Persiraja Banda Aceh di Semifinal Leg II Liga 2
+-  Paramount+ Orders New ‘NCIS’ Spin-Off Starring Cote de Pablo, Michael Weatherly - Variety
+-  Condominium Developers Association raises concerns over proposed protectionist measures in tile industry
