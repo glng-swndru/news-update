@@ -1,11 +1,11 @@
 # Latest News
--  Mais de 30 mil pessoas manifestam-se um ano após desastre ferroviário na Grécia para exigir justiça
--  우리카드 얼어붙게 만든 레오의 ‘강서브’…OK금융, 우리카드 3-2 격파
--  Bošnjačka stranka podržava inicijativu opozicije
--  Nothing Phone 2a renders leaked in a video ahead of the 5th March launch
--  Volvió
--  SPÖ will mehr Tempo beim Hallenbadbau
--  Brnabić: Srbija nastavlja sa implementacijom preporuka ODIHR!
--  Припаркованные возле домов машины оказываются с разбитыми стеклами. Причиной может быть упавший снег
--  真面目がばかをみる…「納税は議員が判断」発言に怒り心頭 「#確定申告ボイコット」拡散も
--  Україна отримала $760 млн від Японії та Норвегії
+-  Understanding How Neptune Affects Pisces
+-  Nothing nalákal na design modelu Phone (2a). Foťáky má jako oči, kryt baterie inspirovalo metro v New Yorku
+-  رسالة من أبو الغيط للرئيس الفلسطيني..هذا ما تضمنته!
+-  Gaziantep'i Üzen Vefatlar! Gaziantep'te Günün Defin Listesi... Bugün Gaziantep'te Kimler Vefat Etti?
+-  LS Polls: Cong to Contest 16 Seats in Kerala; Announcement of Candidates Soon
+-  Son dakika... ABD ekonomisi beklentilerin altında büyüdü
+-  جدة.. ​​​​​​​فتح الحركة المرورية على عبارات مجرى السيل بحي الأمير فواز
+-  Biển số lục quý 8 ‘hàng độc’ chốt giá quy đổi gần 7 tỷ đồng tại Úc
+-  Analiza: KPO podniesie PKB o 1,2 pkt proc.
+-  Va in ospedale e viene rimesso: muore dopo due giorni
