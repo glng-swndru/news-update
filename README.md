@@ -1,11 +1,11 @@
 # Latest News
--  PIF et ATP annoncent un partenariat stratégique pluriannuel pour accélérer la croissance du tennis mondial
--  Qadın bədənini vurğulayan yeni trend müəyyənləşdi
--  Woodland fire forces closure of bike preserve in Neosho's Morse Park
--  Man Utd star Bruno Fernandes limps out of stadium in major concern for Man City clash
--  Prvi takav slučaj: Vrhovni sud SAD-a odlučivat će ima li Trump imunitet od kaznenog progona
--  Probation granted Webb City man in Carterville shooting
--  Trump esulta per la decisione della Corte Suprema sull'immunità
--  Bilbrand på pendlarparkering – uppges sprida sig
--  [삼성선물] 에너지 시황 - 수요에 대한 우려
--  RCMP investigate ‘targeted’ assault at Colwood home
+-  IFMT abre contratação de professores em Sinop, Sorriso e mais 11 cidades
+-  ФОТО. Ман Юнайтед довел фаната. Болельщик разбил телевизор и повредил руку
+-  Mobile value-added services (MVAS) market, 58% of market growth is expected in APAC, Technavio
+-  ફર્ઝી સીરીઝ જોઈ પુણેથી કરન્સી પેપર મગાવી નકલી નોટો છાપી
+-  Corte dos EUA decidirá sobre reivindicação de imunidade de Trump em caso eleitoral de 2020
+-  NCIS is bringing back Tony and Ziva for their own streaming spin-off
+-  클로이 오, “어떤 소식이든 이젠 그날만 휩쓸리려 해요”
+-  طقس الخميس.. أتربة مثارة على أجزاء من الشرقية
+-  Salesforce falls short of expectations with sales guidance despite AI investments
+-  Coquihalla Highway closed southbound amid winter storm
