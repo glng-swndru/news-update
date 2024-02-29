@@ -1,11 +1,11 @@
 # Latest News
--  الأخبار: «زيادات» القطاع العام: حفلة الترقيع مستمرّة
--  Governor signs bills to spur housing and infrastructure development
--  Zelensky seeks more ammunition support at southeastern European summit in Albania
--  ရန်ကုန်-မော်လမြိုင်-ဘားအံ လမ်းက တံတားကျိုး၊ PDF တွေ ကလေးမြို့တက္ကသိုလ်က ကျောင်းသားနဲ့ ဆရာ/ဆရာမတွေ ယာယီထိန်းသိမ်းထား
--  Fransa Ukraynaya qoşun göndərir?
--  LEDARE: SD:s svek om a-kassan är värre än man tror
--  ماهي الخطة
--  Μπούκαραν σε ταβέρνα: Πυροβόλησαν, έδεσαν κόσμο, έκλεψαν και έφυγαν
--  Malasia acelerará implementación de inversiones para crecimiento económico
--  윤 대통령, 저커버그와 회동…"가짜뉴스, 자유민주주의 위협"
+-  «Эдмонтон» — «Сент-Луис»: видеообзор матча НХЛ
+-  Korea Północna wysyła miliony pocisków do Rosji. Seul: W zamian otrzymują żywność, jej ceny już spadły
+-  John Mousinho on his lowest point - and the 'wake-up call' which revitalised Portsmouth's promotion charge
+-  Έρευνα γνώμης: Η Συντήρηση κυριαρχεί επειδή είναι διασπασμένες οι προοδευτικές δυνάμεις
+-  Дресингът за салата, който се превърна в ХИТ сред домакините
+-  Пътуванията към и от България растат
+-  On film: Watch this 1960 ship launch from Thompsons yard in Sunderland
+-  KB국민은행, 삼일절 특별영상 ‘민족의 혼을 노래한 영화인, 나운규’ 공개
+-  ¿Qué recipientes se pueden meter en la freidora de aire?
+-  Miguel A. Torres, de Familia Torres, en el top 100 mundial de los líderes climáticos según 'Time'
