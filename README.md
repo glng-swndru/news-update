@@ -1,11 +1,11 @@
 # Latest News
--  Löhne steigen etwas stärker als die Inflation
--  Apple Investors Grow Impatient on Artificial Intelligence
--  Em nova investida, Lula afirma que 'Vale não é dona do Brasil'
--  "On parle toujours de la libération de la femme, mais… " : Frédéric Taddeï nous dévoile son nouveau projet surprenant qui risque de faire parler
--  Auf den Spuren von Staffbase: Zehn Teams in der Chemnitzer „Höhle der Löwen“
--  Geschwindigkeitskontrollen an der Bussardstraße in Kaarst: Mit 48 Stundenkilometern in Tempo-30-Zone unterwegs
--  Ima 93 godine, a izgleda bolje nego s 50: 'Ovo je pet tajni mog izgleda'
--  Juuri nyt | Presidentti Niinistö pitää 12-vuotisen kautensa viimeisen tiedotustilaisuuden – seuraa suoraa lähetystä
--  Mit mond a kínai horoszkóp?
--  Erik ten Hag, Marcus Rashford and the Man Utd mess that could end badly for everyone
+-  LIVE NOW: It’s Thursday, Feb. 29 and our top stories include an upscale Mississauga steak house closing, a goose rescue in Brampton and 'Smile Days' in Bolton
+-  La Revuelta de la España vaciada volverá a salir a las calles en su quinto aniversario
+-  Ethereum 4.000 Dolar Yolunda, SOL, DOGE ve SHIB’de Hedef Neresi?
+-  Julia Nawalnaja: Das andere Russland hat ein Gesicht
+-  TMC leader Shajahan Sheikh suspended from party for six years following arrest
+-  Coups de feu au Val des Rougières à Hyères: l'État et la justice prennent des mesures pour apaiser la situation
+-  Chủ tịch Trần Đình Long khẳng định, Hòa Phát thành công vì KHÔNG bị biến thành tập đoàn họ hàng: Làm việc tại công ty "gia đình trị" tại sao khiến nhân viên sợ hãi?
+-  Sandeshkhali, Sheikh Shahjahan: Arrested Trinamool strongman Sheikh Shahjahan suspended for 6 years by party - NDTV
+-  Μόσχα: Απέτρεψε αποβίβαση ουκρανών κομάντο στην κατεχόμενη Ουκρανία
+-  Morta ad Ischia, sul corpo alcune ecchimosi
