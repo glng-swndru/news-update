@@ -1,11 +1,11 @@
 # Latest News
--  Mobbing: impennata di richieste di aiuto dai dipendenti pubblici
--  Μαν. Μαυρομμάτης: Σε κρίσιμη κατάσταση στη ΜΕΘ – Σταμάτησε η διαδικασία αφύπνισής του
--  Les émojis "famille" genrés ont disparu de l'iPhone, remplacés par des silhouettes neutres
--  Palestinci: Hamas neće biti deo vlade
--  GLOBAL ROLLS OUT THE RED CARPET FOR 12 NEW HOUSEGUESTS JOINING A HOLLYWOOD NORTH EDITION OF BIG BROTHER CANADA
--  رئيس جامعة شبوة يثمن توجيهات المحافظ بن الوزير بتزويد كلية الحاسوب بمختبر علمي.
--  Vesel dan za Bavčarja, pravnomočno je oproščen
--  Lema le pidió a Cosse recorrer más y dar respuesta a la “zona de exclusión” de Montevideo
--  Abbotsford Film Society screens Shaft for Black History Month
--  Les émojis "famille" genrés ont disparu de l'iPhone, remplacés par des silhouettes neutres
+-  Aussie game developer breaks out after Sonic success
+-  Hope's Angel: Eltern von Stillgeburten sprechen in Sankt Augustin mit Bundestagspräsidentin Bärbel Bas
+-  Bourgoin-Jallieu. Projets d'urbanisme : quand les habitants se mobilisent pour défendre leur cadre de vie
+-  «Абрамсы» начали гореть на Украине: Стало известно, как США перевооружаются для противостояния с Россией и Китаем
+-  Frédéric, 51 ans, porté disparu après avoir tenté de sauver ses chiens dans la Sambre à Thuin : les recherches ont repris ce mercredi, avec des plongeurs de la Protection civile
+-  San Antonio – The Strongest (2-0): minuto a minuto
+-  「支持者なし」票が10万超、バイデン氏のガザ政策に抗議 ミシガン州予備選
+-  Aussie game developer breaks out after Sonic success
+-  Até quando o calor segue em SP? Veja previsão
+-  ‘Bedroom coder’: Aussie game developer breaks out after Sonic success
