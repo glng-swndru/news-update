@@ -1,11 +1,11 @@
 # Latest News
--  윤성옥 방심위원 “대통령 풍자영상 심의는 규정·절차 위반”
--  Из-под Авдеевки воинов отвели не подготовленные позиции, а в чистое поле. Этот вопрос нужно было рассматривать на Ставке, - Бутусов
--  태연, “은은하고 부드러운 잔향으로 남고 싶다”
--  "الأفواج الأمنية" تقبض على شخصين لترويج نبات القات المخدر بجازان
--  Infiniti QX 80: Aus Monograph Concept wird Autograph-Serie
--  Taifa Stars kujipima nguvu na Bulgaria
--  Rząd Niemiec szykuje się na atak Rosji. Cztery etapy
--  Konur rilancia: "Il Napoli vuole ingaggiare Jorginho gratis in estate"
--  Русия осъди украинец на 12 г. затвор, обвинен в шпионаж
--  Yaşar, sanayici ve iş insanlarıyla buluştu
+-  »GTA VI«: Angestellte von Rockstar Games sollen fünf Tage die Woche ins Büro
+-  software-architektur.tv: API-Team mit Dr. Miriam Greis und Lisa Moritz
+-  W drodze na Księżyc 11 razy był skazany na porażkę. Na koniec poślizgnął się i złamał nogę
+-  Путин заплаши с удари по западни държави и риск от ядрена война
+-  Kunst im Bilker Bunker : Neue Welten zwischen meterdicken Wänden
+-  software-architektur.tv: API-Team mit Dr. Miriam Greis und Lisa Moritz
+-  Почина американският комик Ричард Луис
+-  Domaćinstva u Njemačkoj opterećena povećanim troškovima energanata
+-  फिल्म दुकान के ट्रेलर लॉन्च पर उर्वशी रौतेला और डॉ. संदीप रेड्डी वांगा साथ नजर आए !
+-  Služba CAMS:Emisie CO2 v Amazónii sú pre požiare najvyššie za 21 rokov
