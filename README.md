@@ -1,11 +1,11 @@
 # Latest News
--  Lom har rekruttert to nye legar
--  MIONA UHVAĆENA U LAŽI Raskrinkana do srži, otkriveno sve o prstenu koji nosi, Ša zapenio od besa!
--  Termine zu „Nightwash“ im März 2024: Wo gibt es die Comedy-Show zu sehen?
--  Naître le 29 février : « Certains trouvent ça rigolo, d’autres non »
--  Депутат призова телевизиите да не излъчват Олимпиадата в Русия - Труд
--  Erősödéssel kezdtek a vezető nyugat-európai tőzsdék
--  TFF Başkanı Büyükekşi: Vatandaşlarımız her gün arıyor
--  TVP musi wypłacić Krzysztofowi Skibie odszkodowanie. Zapadł wyrok. Chodzi o film o Zatoce Sztuki
--  Mihael Furjan: Vladino odustajanje od ponavljanja poreza na ekstradobit dokazuje da je to bio loš potez
--  Νέο πανεκπαιδευτικό συλλαλητήριο στις 12 το μεσημέρι στα Προπύλαια
+-  윤성옥 방심위원 “대통령 풍자영상 심의는 규정·절차 위반”
+-  Из-под Авдеевки воинов отвели не подготовленные позиции, а в чистое поле. Этот вопрос нужно было рассматривать на Ставке, - Бутусов
+-  태연, “은은하고 부드러운 잔향으로 남고 싶다”
+-  "الأفواج الأمنية" تقبض على شخصين لترويج نبات القات المخدر بجازان
+-  Infiniti QX 80: Aus Monograph Concept wird Autograph-Serie
+-  Taifa Stars kujipima nguvu na Bulgaria
+-  Rząd Niemiec szykuje się na atak Rosji. Cztery etapy
+-  Konur rilancia: "Il Napoli vuole ingaggiare Jorginho gratis in estate"
+-  Русия осъди украинец на 12 г. затвор, обвинен в шпионаж
+-  Yaşar, sanayici ve iş insanlarıyla buluştu
