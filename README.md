@@ -1,11 +1,11 @@
 # Latest News
--  Novas regras para demissão de concursados de estatais não têm efeito retroativo, decide STF
--  Mikropoduzetnici u zamci cijena, globalnih konkurenata i nedostatka kapitala
--  Nesporazum! TSC hitno objavio drugo saopštenje pred Zvezdu!
--  Máxima twijfelt over VN-rol: ‘Veel progressie gemaakt, anderen kunnen het voortzetten’
--  You have 'super vision' if you can spot stealthy crab in under 35 seconds
--  Selvitys: Yhä harvempi suomalainen pelaa rahapelejä – Peliongelmat kuitenkin lisääntyvät
--  Zašto je Putin ovo uradio?! Tajne akcije Moskve najvljuju veliki obračun! Ni Kina nije prošla ispod radara, ako je ovo tačno...
--  එත්නෝ­ස්පෝර්ට්ස් මහා සභාව අද
--  Natura ingressa no ramo de artigos para casa
--  Etages marknadsföring gör narr av fulla ungdomar
+-  BIDENI KOMISTUSKIVI: Detroidi naabruskonna moslemid kutsusid üles tema vastu hääletama
+-  La rimonta c'è, missione compiuta! Il Padova vola in finale di Coppa Italia C!
+-  Αναστάσιος Ράμμος: «Ήμουν χρόνια εθισμένος στις ουσίες, έπινα ανθρώπους» (vid)
+-  Ligue des nations : les Bleues s'inclinent en finale contre l'Espagne
+-  Prva pobeda Ilićevog Atromitosa posle mesec dana
+-  ArcelorMittal S.A.: ArcelorMittal publishes its Annual Report 2023 on Form 20-F
+-  Was die Menschen im Schaltjahr 2024 umtreibt
+-  Ligue des nations : les Bleues s'inclinent en finale contre l'Espagne
+-  Tragjike/ Vrasje në Korçë, autori qëlloi drejt një personi dhe më pas vrau veten
+-  Премьер Франции Атталь рассказал, каких военных можно отправить на Украину
