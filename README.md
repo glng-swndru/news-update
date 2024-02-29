@@ -1,11 +1,11 @@
 # Latest News
--  'It's not bloody Gaza!' Council meeting descends into chaos with Palestine protesters
--  Търговията на европейските фондови пазари започна с известен оптимизъм
--  中国大湾区の「スーパー工事」 獅子洋大橋で西アンカーブロックが設置完了
--  Mazot gübre desteği yattı mı? 2024 mazot ve gübre desteği ne kadar oldu, zamlandı mı?
--  Österreich kann ab erstem März Rasern das Auto abnehmen
--  Ratne igre pod palicom mašina: "Veštačka inteligencija je ključni igrač"
--  Nghiên cứu cho thấy người sinh vào tháng này trong năm ít bị cúm nhất, thử xem bạn có nằm trong số đó
--  İki araştırma üniversitesinden örnek işbirliği
--  Ngày tàn của ngành bán đàn piano: Giảm giá mạnh nhất 10 năm nhưng chẳng ai thèm mua, từ biểu tượng của giới thượng lưu thành trò xa xỉ phí thời gian và tốn tiền
--  Aditya Dhar Lauds Wife Yami Gautam, Says 'She Is A Fearless Actor, Only Goes By Her Gut And Not People's Opinion'
+-  Cyclisme : Un défenseur inattendu pour Alaphilippe !
+-  Nach TV-Rückzug: "Let's Dance"-Star feiert RTL-Comeback
+-  Debatte an der UdK Berlin: Diskurs? Festgefahren
+-  ALKOHOL ZA VOLANTOM: Nafúkal takmer 2,6 promile
+-  Europarlement stemt in met nieuwe rijbewijsregels: straks volwaardig rijbewijs voor 17-jarigen?
+-  Universal Music CEO on TikTok dispute: ‘My phone is open, unfortunately, 24 hours a day.’
+-  Dikkat hava kirliliği kalbi vuruyor! Gaziantep hava kirliliğinde kaçıncı sırada?
+-  Ђокић: Најава дефилеа у Брчком - груба провокација
+-  بالفيديو.. أمطار رعدية متفاوتة الغزارة على محافظة مسقط
+-  Мать Мбаппе посетила Мадрид для переговоров с «Реалом» и поиска жилья для Килиана (Relevo)
