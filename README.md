@@ -1,11 +1,11 @@
 # Latest News
--  Vakıflar'dan kiracıya yüzde 900 zam! Kasım 2023'te 1.125 TL olan evin kirası şimdi 10 bin TL!
--  PARTIZAN DOČEKUJE EFES U VEOMA BITNOM MEČU: Evo gde gledati spektakl iz beogradske Arene
--  Nockherberg 2024: Spitze zum Schluss? Wen Andreas Steinfatt bei seiner Abschiedsrede unerwähnt lässt
--  O ülkede işe dönmeyen grevdeki doktorlar tutuklanacak
--  Bitcoin vượt 60.000 USD, Tổng thống El Salvador ‘flex’ khoản lãi 40%, nhưng dứt khoát: ‘Chúng tôi còn lâu mới bán’
--  Napoli znalazło następcę Zielińskiego. 25 milionów euro
--  Napoli znalazło następcę Zielińskiego. 25 milionów euro
--  İstanbul'da göz gözü görmüyor! Boğaz, trafiğe kapandı
--  İstanbul'da sis etkili oluyor; bazı vapur seferleri iptal edildi
--  讀賣巨人日奈混血歐可耶瑠偉帥氣來台 法國姨丈來接機
+-  Zła i dobra wiadomość. Donald Trump poznał dwa rozstrzygnięcia sądów
+-  Zła i dobra wiadomość. Donald Trump poznał dwa rozstrzygnięcia sądów
+-  윤재옥 “쌍특검법이 쌍권총도 아니고…오늘 정리 돼야”
+-  Zła i dobra wiadomość. Donald Trump poznał dwa rozstrzygnięcia sądów
+-  Motorine indirim geliyor
+-  So geht's weiter im deutschen Frauenfußball
+-  Bjart með köflum sunnan heiða
+-  Kafes-50 operasyonuyla 2 organize suç örgütü daha çökertildi
+-  Отдельный госорган предложили создать для борьбы с наркобизнесом в Казахстане
+-  Historisches aus Marbach: Eine Bestseller-Autorin aus Marbach
