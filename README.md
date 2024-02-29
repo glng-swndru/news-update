@@ -1,11 +1,11 @@
 # Latest News
--  Tarım arazisini dolduran vatandaşa dudak uçuklatan ceza
--  Familia ya Mtanzania aliyefariki Marekani yafunguka
--  "Будем совершенствоваться". В ГКНТ обозначили направления развития в Год качества
--  Trove of ancient skulls, bones found during construction project
--  États-Unis. Le chef des républicains au Sénat Mitch McConnell va quitter ses fonctions
--  Schillaci apre prima riunione ministri G7, '3 priorità per 2024'
--  Trove of ancient skulls, bones found during construction project
--  Inside Westlife's Mark Feehily's stunning home sold for over €1 million
--  STJ deve julgar no próximo dia 20 pedido da Itália para Robinho cumprir pena no Brasil
--  STJ deve julgar no próximo dia 20 pedido da Itália para Robinho cumprir pena no Brasil
+-  Mobbing: impennata di richieste di aiuto dai dipendenti pubblici
+-  Μαν. Μαυρομμάτης: Σε κρίσιμη κατάσταση στη ΜΕΘ – Σταμάτησε η διαδικασία αφύπνισής του
+-  Les émojis "famille" genrés ont disparu de l'iPhone, remplacés par des silhouettes neutres
+-  Palestinci: Hamas neće biti deo vlade
+-  GLOBAL ROLLS OUT THE RED CARPET FOR 12 NEW HOUSEGUESTS JOINING A HOLLYWOOD NORTH EDITION OF BIG BROTHER CANADA
+-  رئيس جامعة شبوة يثمن توجيهات المحافظ بن الوزير بتزويد كلية الحاسوب بمختبر علمي.
+-  Vesel dan za Bavčarja, pravnomočno je oproščen
+-  Lema le pidió a Cosse recorrer más y dar respuesta a la “zona de exclusión” de Montevideo
+-  Abbotsford Film Society screens Shaft for Black History Month
+-  Les émojis "famille" genrés ont disparu de l'iPhone, remplacés par des silhouettes neutres
