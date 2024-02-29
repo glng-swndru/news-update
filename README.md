@@ -1,11 +1,11 @@
 # Latest News
--  Proteste de amploare în Grecia. 30.000 de oameni în stradă la un an de la cel mai grav accident feroviar din istoria țării
--  New compostable Tim Hortons lids earn mixed reviews on P.E.I.
--  Ce spun fanii lui Beyoncé despre noul său hit. „De ce sună atât de familiar”
--  Oberstufen-Schulverband soll weiterverfolgt werden
--  Una nuova testimonianza nel caso Resinovich a Chi l'ha visto
--  Tantang Bali United, Persis Solo Bawa Modal Berharga ke Bali
--  Россия не может выступать в роли миротворца в урегулировании в Приднестровье, - МИД Украины
--  Court judgment gives Canada, Ontario 60 days to pay out $10B treaty settlement
--  Scarborough Canadian Tire terrorist refuses to sign peace bond, will be jailed for six months
--  Pri ruskom nálete na východe Ukrajiny zahynuli dve osoby
+-  [영화평 300]시네마의 위엄
+-  Bumble-Aktie verliert deutlich: Bumble streicht nach enttäuschenden Zahlen ein Drittel der Belegschaft
+-  İthal çakma ayakkabı furyası yaşanıyor
+-  Snowflake nomina il nuovo amministratore delegato Sridhar Ramaswamy
+-  의료계 내부 목소리 '제각각'…전공의들은 침묵
+-  Užas u Splitu: Muškarac pratio ženu automobilom i prijetio joj nožem
+-  Esnafa finansman destek kredisinde limit artırıldı
+-  Greve dos sindicatos da aviação paralisa voos na Argentina
+-  BIK:s tvåmålsskytt efter vinsten: ”Huvudsakligen stabil insats i lurig match”
+-  Inflation in the air: Price of plane tickets has soared in Argentina, report shows
