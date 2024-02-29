@@ -1,11 +1,11 @@
 # Latest News
--  Inauguration of the “Great Museum of Chichén Itzá”
--  PS5 Pro'nun AI yükseltme teknolojisi detaylanıyor: GPU tabanlı olacak
--  Schnell gemacht und herrlich lecker: Crispy Kartoffelsalat aus dem Ofen
--  Luis Enrique débarque au PSG, c’est la révolution
--  Phishing-Links und Schock-SMS: Betrügerbande gefasst
--  Do Ženevy se vrátil autosalon. Ukázal novinku, Auto roku i jedno velké „ale“
--  «Η μόνη μου περιουσία είναι το αμαξίδιο με τα σκουπίδια μου»: Ένας διαφορετικός υποψήφιος δήμαρχος Κωνσταντινούπολης
--  Norris ziet dat twee teams al zijn vertrokken: "Dat is duidelijk"
--  Голем финансиски хороскоп за пролет 2024 година! Парични приливи повеќе од било кога, но морате да ги научите лекциите кои доаѓаат во март
--  Coromandel Cure tourism campaign a success, visitor spend up
+-  Parlamento dividido aprova proibição de mineração de criptomoedas
+-  Uno a uno, todos los aumentos que llegan en marzo
+-  David van Laar doet in dertig dagen elf keer de 'Matthäus-Passion' van Bach. 'Ik zing nu anders dan vorig jaar'
+-  Dulces antojos: Las 10 mejores pastelerías para visitar en Lima
+-  Barraux. Loïc Chichignoud rêve de devenir champion de France de pizza
+-  Hunter Schafer was among protestors arrested during President Joe Biden's appearance on 'Late Night'
+-  La opinión de Radi ante la fase actual del Covid y sobre si todos deben ser vacunados
+-  Ideološka podijeljenost aktera parlamentarne većine zabrinjava
+-  Paulina Rzeźniczak prosi o rady w sprawie córki. Z tym problemem nie mogą sobie poradzić
+-  Bakan Tekin: Öğrenciler en az 40 saat sosyal sorumluluk projelerinde yer alacak
