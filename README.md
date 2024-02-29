@@ -1,11 +1,11 @@
 # Latest News
--  Koliko dugo može mačka ostati sama kod kuće
--  غوغل أضافت شيئاً مذهلاً إلى تطبيق خرائط غوغل وإليك طريقة تفعيله
--  Two independent markets planned for Norwich Arts Centre
--  OVO JE ŽENA KOJU JE UBIO NEVENČANI SUPRUG: Nožem joj presudio dok su bili u gostima, pa pokušao da pobegne (FOTO)
--  Jātnieku federācijas prezidents Blaus neizpratnē, kāpēc viņu vēlas atbrīvot no amata
--  Özgür Özel Muğla'da konuşuyor
--  Зеленски и албанският премиер подписаха споразумения, за какво се разбраха (ВИДЕО)
--  ChatGPT aids in discovering potential Alzheimer’s treatments through drug repurposing
--  Jharkhand: बजट सत्र में नहीं शामिल हो सकेंगे हेमंत सोरेन, हाई कोर्ट ने खारिज की याचिका
--  Rise of the Ronin'den yeni fragman yayınlandı
+-  Mais de 30 mil pessoas manifestam-se um ano após desastre ferroviário na Grécia para exigir justiça
+-  우리카드 얼어붙게 만든 레오의 ‘강서브’…OK금융, 우리카드 3-2 격파
+-  Bošnjačka stranka podržava inicijativu opozicije
+-  Nothing Phone 2a renders leaked in a video ahead of the 5th March launch
+-  Volvió
+-  SPÖ will mehr Tempo beim Hallenbadbau
+-  Brnabić: Srbija nastavlja sa implementacijom preporuka ODIHR!
+-  Припаркованные возле домов машины оказываются с разбитыми стеклами. Причиной может быть упавший снег
+-  真面目がばかをみる…「納税は議員が判断」発言に怒り心頭 「#確定申告ボイコット」拡散も
+-  Україна отримала $760 млн від Японії та Норвегії
