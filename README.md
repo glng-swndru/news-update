@@ -1,11 +1,11 @@
 # Latest News
--  No. 17 Saint Mary's impressive turnaround has team on verge of WCC title
--  Dizel jeneratör tarih oluyor! Toyota ve ABD’li Kohler’den enerji iş birliği
--  Mercato : Le PSG prépare une folie à 100M€ ?
--  За 50 г. на сцената AC/DC пускат албумите си на плочи
--  Netflix : cette série pleine d'adrénaline est renouvelée pour une saison 7
--  Chatbots’ inaccurate, misleading responses about US elections threaten to keep voters from polls
--  半導体株高をけん引する「材料・装置メーカー29社」、日本が誇る“4大技術”とは？ - 狂騒！半導体
--  Here are the Best Methods for Sanitizing All of Your Beauty Tools
--  Budućnost ubjedljva protiv Orlova
--  Proč je přestupný. Ve staré češtině mělo toto přídavné jméno širší užití
+-  周顯：租金生活成本太高困擾港
+-  U.S. Has Launched 230 Attacks on Houthis Over Red Sea Disruption
+-  Rasaku out, Sauturaga in for LA 7s
+-  دعوت انتخاباتی اصحاب رسانه
+-  PlayStation Plus Mart oyunları resmen duyuruldu!
+-  「登六」不大事慶祝 羅霖想拍拖認有追求者
+-  都大申應科大 政府消息：沒定數量目標
+-  رای «هیچ‌کدام»؛ رقیب جدی بایدن
+-  考慮財政 基建步伐改人工島推遲 發展「略後於北都」 測量師料對房屋供應影響有限
+-  Grêmio enfrenta o São Luiz em busca do penta da Recopa Gaúcha
