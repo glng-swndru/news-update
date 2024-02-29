@@ -1,11 +1,11 @@
 # Latest News
--  Nga phản hồi đề nghị giúp đỡ của Transnistria
--  It's Yield... Not Spread
--  PSG : Neymar se moque du pote de Mbappé !
--  Favorīts atraujas vēl vairāk
--  Meteoroloji açıkladı: Göz gözü görmeyecek! Yağış yok, yoğun sis ve pus var! İşte il il 29 Şubat 2024 Perşembe hava durumu
--  Καταγγελίες πανεπιστημιακών για το νομοσχέδιο για τα ιδιωτικά ΑΕΙ: Σημαντικές διαφορές από τις διατάξεις που υπήρχαν στη διαβούλευση
--  Quatre provinces du Nord cultivent leurs liens avec le Guangxi
--  Майкъла пред Gol.bg: Браво на Илиан Илиан и на ръководството на Черно море!
--  ABD'nin kara listesi belli oldu! Tam 16 Türk firması listeye adını yazdırdı
--  Super League 1: Ο «λυτρωτής» Πόνσε, τα γκολ νίκης από Κωνσταντέλια, Ελ Κααμπί και όλα τα highlights από το Παναθηναϊκός - Άρης
+-  الأخبار: «زيادات» القطاع العام: حفلة الترقيع مستمرّة
+-  Governor signs bills to spur housing and infrastructure development
+-  Zelensky seeks more ammunition support at southeastern European summit in Albania
+-  ရန်ကုန်-မော်လမြိုင်-ဘားအံ လမ်းက တံတားကျိုး၊ PDF တွေ ကလေးမြို့တက္ကသိုလ်က ကျောင်းသားနဲ့ ဆရာ/ဆရာမတွေ ယာယီထိန်းသိမ်းထား
+-  Fransa Ukraynaya qoşun göndərir?
+-  LEDARE: SD:s svek om a-kassan är värre än man tror
+-  ماهي الخطة
+-  Μπούκαραν σε ταβέρνα: Πυροβόλησαν, έδεσαν κόσμο, έκλεψαν και έφυγαν
+-  Malasia acelerará implementación de inversiones para crecimiento económico
+-  윤 대통령, 저커버그와 회동…"가짜뉴스, 자유민주주의 위협"
