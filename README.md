@@ -1,11 +1,11 @@
 # Latest News
--  Richard Lewis, de 'Two And A Half Men', morre aos 76 anos
--  Taranto, Gravina in visita allo stadio: "Evitare l'estromissione dalla C per le strutture"
--  Young people fall out of love with wedding traditions as asking the father’s permission and the bride taking their partner’s name could become a thing of the past
--  Richard Lewis, de ‘Two And A Half Men’, morre aos 76 anos
--  Richard Lewis, de 'Two And A Half Men', morre aos 76 anos
--  St. Catharines to host active living fair for ages 50-plus
--  Plenković najavio dolazak aviona, Šeks prozvao mentalne nasljednike komunista
--  Prediksi dan Line Up PSBS Biak vs Persiraja Banda Aceh di Semifinal Leg II Liga 2
--  Paramount+ Orders New ‘NCIS’ Spin-Off Starring Cote de Pablo, Michael Weatherly - Variety
--  Condominium Developers Association raises concerns over proposed protectionist measures in tile industry
+-  Muğla'da tarım arazisini doldurduran kişiye 411 bin lira ceza
+-  મહિલાની હત્યા પાછળ આડા સંબંધ કે ઘરકંકાસ ? પોલીસ મુંઝવણમાં
+-  U.S. stocks close lower ahead of inflation data
+-  Izabrano 12 najboljih radova – finalista na konkursu "Idemo u Pariz, Srećko i Friž te vode na Olimpijske igre!"
+-  Empire Life reports fourth quarter results
+-  ફરજમોકૂફ PI તરલ ભટ્ટને 386 બેંક ખાતાંની વિગતો આપનાર દીપ શાહની ધરપકડ
+-  무결점 비주얼…황민현, ‘Lullaby’ 첫 오피셜 포토 공개
+-  Alvino: "Napoli finalmente famelico. Con Kvara e Osimhen nulla è impossibile"
+-  FC Porto compra mais 35 por cento do passe de Samuel Portugal por 1,5 milhões
+-  FA Cup: Τα πιτσιρίκια της Λίβερπουλ έκλεισαν ραντεβού με τη Μάντσεστερ Γιουνάιτεντ στους «8» - Δείτε τα γκολ
