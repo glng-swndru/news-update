@@ -1,11 +1,11 @@
 # Latest News
--  Beschwerde über Fremdparker nahe dem LAFP in Selm: Anwohner wünscht sich Parkverbotszone
--  CRNA GORA SE CRVENI OD STIDA! Ceo svet se smeje nameštaljki u Podgorici, bivši napadač Partizana glavni akter (VIDEO)
--  2024 február asztrofotója: A Hold előtt elsuhanó repülő
--  Хапов рассказал, за что Смородская убрала его из «Локомотива»
--  Confindustria, per la Fiera di Milano rispunta Alessia Magistroni
--  Bersani contro Meloni: "Me la vedo travestita come nonna di Cappuccetto Rosso"
--  [단독] 김우민, '금메달 프로젝트' 위해 내일부터 호주 전훈
--  Pomnik ofiar ludobójstwa na Wołyniu stanie na Powązkach? Jest projekt uchwały
--  FHN Akademiyasına kursant qəbulu elan edilir
--  النفير بباريس.. سرقة الخطة الأمنية ومعلومات حساسة خاصة بالأولمبياد
+-  “Divieto insurrezionalista”. Un altro giudice vuole bloccare la corsa di Trump
+-  Texas’taki orman yangınlarında 1 kişi hayatını kaybetti
+-  Ataşehir'de asker eğlencesinde kavga:1 yaralı
+-  Samsung Semiconductor Unveils New R&D Powerhouse in Bengaluru
+-  Çorlu tren katliamı davasında yine karar çıkmadı
+-  مشروع رأس الحكمة يؤكد متانة وقوة العلاقات الإماراتية المصرية - الاقتصادي
+-  Brent petrol güne düşüşle başladı, varil fiyatı yüzde 0,06 azaldı! Akaryakıta bir indirim gelir mi?
+-  Bilecik’te uyuşturucu operasyonu: Yasal işlem yapıldı!
+-  ゆりやん、指輪の絵文字添え“緊急会見”「え 大谷くんまさか笑」「すっごいビックリ」と反響
+-  ورشة عمل بعنوان "حساسية النزاع" في مديرية الشيخ عثمان ، عدن
