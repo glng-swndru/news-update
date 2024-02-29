@@ -1,11 +1,11 @@
 # Latest News
--  3 зодии, на които всички ще завиждат през март 2024
--  車庫建設作業中の男性死亡 はしごから転落か 鹿児島・南九州市
--  Powerful New Zealand Team Hope To Fire At World Indoor Champs
--  Lappeenrannan alueen postinumeroihin isoja muutoksia – Näihin paikkoihin ne kohdistuvat
--  「被爆者の森」で木の植え替え 石川県の兼六園菊桜と沖縄県の寒緋桜を植樹 広島
--  石川・穴水町の仮設住宅に29日から入居開始 県内の仮設住宅入居申し込みは7800件超える【能登半島地震】
--  「被爆者の森」で木の植え替え 石川県の兼六園菊桜と沖縄県の寒緋桜を植樹 広島
--  「アジアNo.1のグローバル企業へ」国内シェアの“4分の1”占める巨大企業が誕生！「ツルハ」「ウエルシア」経営統合へ 北海道
--  巴川の水位や氾濫する場所の予測情報は非公開へ 避難呼びかけの判断に活用 静岡市
--  정부 "의료개혁 무력화 위해 의사들에 거짓 퍼뜨리면 엄정 대응"
+-  Why has Karnataka extended deadline again for motorists to install high-security registration plates?
+-  Ser Estudiante: baja calificación incita a cambios en la enseñanza
+-  VREMENSKA PROGNOZA ZA 29. FEBRUAR: Toplo i promenljivo oblačno, u pojedinim delovima Srbije kiša
+-  В Воронеже взлетели цены на «китайцев»
+-  الكشف عن وجهة ليفاندوفسكي المحتملة في دوري روشن
+-  Brazil Data Center Market Growth Opportunities Report 2023-2029: Coverage of 68 Existing Facilities, 21 Upcoming Facilities and 9 States – Sao Paulo is the Premier Hub for Investments
+-  Hampshire Police join operation to tackle rural crimes
+-  Laphan selvitys: Jos hoitoa halutaan pienillä paikkakunnilla, niin se on vietävä ihmisten kotiin – pienet terveyskeskukset jäämässä historiaan
+-  সালাহ–ডি ব্রুইনাকে ডাকছে সৌদির ফুটবল
+-  Solent University masked ball at Saint Mary's Stadium
