@@ -1,11 +1,11 @@
 # Latest News
--  LIVE NOW: It’s Thursday, Feb. 29 and our top stories include an upscale Mississauga steak house closing, a goose rescue in Brampton and 'Smile Days' in Bolton
--  La Revuelta de la España vaciada volverá a salir a las calles en su quinto aniversario
--  Ethereum 4.000 Dolar Yolunda, SOL, DOGE ve SHIB’de Hedef Neresi?
--  Julia Nawalnaja: Das andere Russland hat ein Gesicht
--  TMC leader Shajahan Sheikh suspended from party for six years following arrest
--  Coups de feu au Val des Rougières à Hyères: l'État et la justice prennent des mesures pour apaiser la situation
--  Chủ tịch Trần Đình Long khẳng định, Hòa Phát thành công vì KHÔNG bị biến thành tập đoàn họ hàng: Làm việc tại công ty "gia đình trị" tại sao khiến nhân viên sợ hãi?
--  Sandeshkhali, Sheikh Shahjahan: Arrested Trinamool strongman Sheikh Shahjahan suspended for 6 years by party - NDTV
--  Μόσχα: Απέτρεψε αποβίβαση ουκρανών κομάντο στην κατεχόμενη Ουκρανία
--  Morta ad Ischia, sul corpo alcune ecchimosi
+-  Salvini: “Lunedì sarò a Genova con Piantedosi per l’avvio dei lavori del tunnel subportuale”
+-  DSÖ: Gazze'deki korkunç şiddet ve acı sona ermeli
+-  Dune Part 2 review: Blockbuster action perfect for IMAX screens - CTV News
+-  Vyleen White’s family vows to ‘fight for justice’ after grandmother killed
+-  Mercedes F1 a 'résolu les problèmes sous-jacents' mais manque d'appui
+-  Kinza Hashmi reveals she received her first showbiz paycheck Rs500,000 at 16
+-  Streaming today: ‘The Parades’ on Netflix – 29 February 2024
+-  Merkez Bankası'ndan enflasyon açıklaması
+-  Путин предложил расширить программу «Пушкинская карта»
+-  Kas īsti ir "bezdūmu valsts"? Latvijai par šādu statusu pagaidām atliek vien sapņot
