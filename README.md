@@ -1,11 +1,11 @@
 # Latest News
--  Miss India Tripura 2017 Rinky Chakma passes away at 28 after prolonged battle with cancer
--  Súlyos döntésre szánta el magát az Electronic Arts
--  İspanya basını: Mbappe'nin ailesi Madrid'de ev bakıyor
--  Miền Bắc rét đỉnh điểm
--  A következő Dacia Sanderóból már elektromos változat is lesz
--  Indonesia thay đổi lớn cho tham vọng tại U23 Châu Á
--  Air Peace announces N1.2m for London route
--  Borsa güne yükselişle başladı
--  South Mill Champs и Grupo APAL объединяются для расширения производства грибов в Мексике
--  Промес по-прежнему находится в ОАЭ. Ночью он не вылетел из страны
+-  Türk firmasından Libya'ya 140 milyon dolarlık yatırım
+-  Как обеспечивается доступность дошкольного образования в области, рассказали в Миноблисполкоме
+-  Vegalsa-Eroski y sus clientes aportaron más de 184.800 euros a causas sociales en 2023
+-  Schock-Studie: Demenz durch Bluthochdruck – Uni-Chefarzt warnt: Salzkonsum besonders riskant
+-  Bronnen De T.: LINKS kabinet in beeld
+-  Gironde : les chasseurs veulent conserver leurs traditions
+-  Pasif içiciliğe maruz kalan süt bebeklerin yüzde 75'i risk altında
+-  Csak döcögött tavaly Magyarország szolgáltatásexportja
+-  Sir Jim Ratcliffe has already convinced transfer target to sign for him once, Man Utd have clear advantage
+-  Futures stars, pression : comment les bénévoles gèrent l'hébergement des jeunes footballeurs du TSF
