@@ -1,11 +1,11 @@
 # Latest News
--  'A permit is not a shovel in the ground': Mississauga out on millions in funding for missing provincial housing target
--  通信キャリア3社、閣議決定されたNTT法改正案について、廃止を含めた検討の時限設定に反発
--  Best Roblox adventure games to play in 2024
--  ZAVIRITE U GARDEROBER NAJBOGATIJE PEVAČICE! Sve pršti od luksuza, samo u cipelama ima na desetine hiljada evra
--  Monatelange Notbetreuung in der Stephanus-Kita: Elternbeirat will Kooperationen – Träger sehen Probleme
--  Slate Magazine
--  Ganjar Pranowo Kalah Pilpres 2024, Alam Ganjar Bocorkan Target Luar Biasa ke Erick Thohir
--  غارة على عيتا الشعب
--  Farmaajo: Waxaan dalka ugusoo laabtay inaan ka qeyb qaato xal u raadinta arrimaha dastuurka
--  الفصائل الفلسطينية المجتمعة في موسكو أصدرت بيانا مشتركا من تسعة بنود
+-  Elon Musk Sues OpenAI, Sam Altman for Breach of Contract
+-  المجال الجوي للصحراء مقابل فتح معبر مليلية.. وجبهة البوليساريو تعترض بشدة على الصفقة
+-  BTS' V collaborates with Jackie Chan for Ad campaign; Delighting fans worldwide
+-  Gyűlik a tömeg Alekszej Navalnij moszkvai temetésén, rengeteg a rendőr
+-  Dottoressa aggredita in ospedale in provincia di Cremona
+-  MP da reoneração gera novo embate
+-  Edan! Arema FC Sempurna di 3 Laga Beruntun, Persikabo jadi Korban
+-  Türk profesör ''kadınların ilgilenmediği tek uğraş'' diyerek anlattı
+-  MP da reoneração gera novo embate
+-  Euro Bölgesi'nde işsizlik ocakta geriledi
