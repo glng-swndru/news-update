@@ -1,11 +1,11 @@
 # Latest News
--  Ibovespa fecha em queda de 0,87%
--  França denuncia ‘disparos israelenses injustificáveis’ durante entrega de ajuda em Gaza
--  Sirski culpa a los comandantes ucranianos en el frente de cometer "errores de cálculo"
--  Bandićevo grobno mjesto pod tajnim izvidima
--  Honolulu man to be sentenced for making child pornography
--  Técnico do Monsoon na Série A-2, Bruno Coutinho reencontrará o Pelotas
--  Zdravi odnosi: Šta vezu ili brak čini srećnima?
--  Owners might face felony charges in dog attacks
--  NE JEDAN NEGO DVA MBAPEA STIŽU U REAL! Kilijan uslovio Madriđane
--  Tamara Tyasmara Berteriak Melihat Yudha Arfandi, Ini yang Disampaikannya
+-  Bank of America looking for a summer S&P 500 rally, eyeing towards 5,600
+-  Ucrania pierde un poderoso aliado en el Senado de EEUU
+-  «ثقافي الصم» يستقبل وفداً من فلسطين
+-  Jo vetëm gërsheta! Fotot mahnitëse nga rrugët e Londrës, Parisit e Milanos
+-  Sepeda Motor Tertabrak Kereta Api di Semarang, Bocah 4 Tahun Tewas
+-  قلب الطاولة على النواخذة.. المرخـية يعـود عـن طـريق الوكــرة
+-  بدء حظر صيد «القبقب» لمدة 60 يوماً
+-  Šokantan razgovor djelatnice socijalne skrbi s djetetom: "Tata se neće zaustaviti, ići će dalje, a ti ćeš na vještačenje i aparate da vide govoriš li istinu"
+-  Final Copa del Rey 2023/2024: Athletic Bilbao vs Real Mallorca
+-  이정후, 두 번째 시범경기에서 첫 홈런…3타수 2안타 폭발
