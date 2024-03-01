@@ -1,11 +1,11 @@
 # Latest News
--  Türk firmasından Libya'ya 140 milyon dolarlık yatırım
--  Как обеспечивается доступность дошкольного образования в области, рассказали в Миноблисполкоме
--  Vegalsa-Eroski y sus clientes aportaron más de 184.800 euros a causas sociales en 2023
--  Schock-Studie: Demenz durch Bluthochdruck – Uni-Chefarzt warnt: Salzkonsum besonders riskant
--  Bronnen De T.: LINKS kabinet in beeld
--  Gironde : les chasseurs veulent conserver leurs traditions
--  Pasif içiciliğe maruz kalan süt bebeklerin yüzde 75'i risk altında
--  Csak döcögött tavaly Magyarország szolgáltatásexportja
--  Sir Jim Ratcliffe has already convinced transfer target to sign for him once, Man Utd have clear advantage
--  Futures stars, pression : comment les bénévoles gèrent l'hébergement des jeunes footballeurs du TSF
+-  Finge di essere residente in Croazia ed evade 4 milioni
+-  В Минской области более 1,3 тыс. школьников изучают китайский язык
+-  Kiev, Zaporizhzhia bombardata 200 volte in 24 ore
+-  Iran: Khamenei, andate a votare per deludere i nemici
+-  Chủ tịch Tập đoàn Hoa Sen Lê Phước Vũ: Khởi nghiệp như học võ, phải bái tổ bái sư, học từ chiêu đứng tấn cơ bản, nếu thất bại thì coi là học phí
+-  นักธุรกิจสวิส-ภรรยาชาวไทย ยกมือไหว้ขอโทษ "เตะหมอ" ทนายเชื่อได้บทเรียนแล้ว
+-  Finanční napětí v hokejovém Litvínově? Drama je vypořádáno, uklidnila starostka
+-  Бойко Борисов иска с Петков да направят по-работещо правителство
+-  Stock market is open tomorrow. Timings, trading strategy, do’s and don’ts for special session
+-  Finanční napětí v hokejovém Litvínově? Drama je vypořádáno, uklidnila starostka
