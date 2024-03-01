@@ -1,11 +1,11 @@
 # Latest News
--  Pokémon Card Fervor Has An Artist Scared For His Safety
--  Immunsystem stärken: Zehn Lebensmittel für gute Abwehrkräfte
--  A healthy ruling
--  Šminka koja skida godine! Male cake koje treba da zna svaka žena posle 40.
--  Εργαζόμενοι συνταξιούχοι: Πρεμιέρα τον Μάρτιο για τις νέες εισφορές
--  الحريري طالب المجتمع الدولي بالتحرك فورا لوضع حد للمجازر الإسرائيلية بحق الفلسطينيين
--  Gori Rusija! Ovo nije normalno! HIMARS opet pobio gomilu vojnika! Američko oružje seje smrt iz dana u dan!
--  Komoly gondot okoz a migránsok hátrahagyott szemete
--  Immunsystem stärken: Zehn Lebensmittel für gute Abwehrkräfte
--  Immunsystem stärken: Zehn Lebensmittel für gute Abwehrkräfte
+-  Pornhub operator broke federal privacy law, federal watchdog finds
+-  La actividad económica cayó un 3% desestacionalizado
+-  急成長モノタロウのボスコン出身社長を直撃！今に生きる、コンサル時代に得た「3つのスキル」とは？ - コンサル大解剖
+-  Pakistan: seguaci di Khan disturbano prima seduta del Parlamento
+-  Emmerdale spoilers: Chas Dingle delivers shock news that could change Cain, Aaron and Caleb’s lives
+-  В госдепе заявили, что не располагают данными о подготовке Москвой ядерного удара
+-  Přerovské volejbalistky se přiblížily postupu do play off, Olymp zvítězil
+-  Landsliðsmaðurinn fór hamförum
+-  Levituojantis Kinijoje sukurtas traukinys pagerino pasaulio greičio rekordą – siekia aplenkti lėktuvą
+-  Pornhub operator broke privacy law by failing to ensure valid consent, watchdog finds
