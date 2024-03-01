@@ -1,11 +1,11 @@
 # Latest News
--  Elon Musk Sues OpenAI, Sam Altman for Breach of Contract
--  المجال الجوي للصحراء مقابل فتح معبر مليلية.. وجبهة البوليساريو تعترض بشدة على الصفقة
--  BTS' V collaborates with Jackie Chan for Ad campaign; Delighting fans worldwide
--  Gyűlik a tömeg Alekszej Navalnij moszkvai temetésén, rengeteg a rendőr
--  Dottoressa aggredita in ospedale in provincia di Cremona
--  MP da reoneração gera novo embate
--  Edan! Arema FC Sempurna di 3 Laga Beruntun, Persikabo jadi Korban
--  Türk profesör ''kadınların ilgilenmediği tek uğraş'' diyerek anlattı
--  MP da reoneração gera novo embate
--  Euro Bölgesi'nde işsizlik ocakta geriledi
+-  Obi Mikel að vinna í því að koma Osimhen til Chelsea
+-  Два беспилотника ВСУ сбили в небе над российским регионом
+-  Quarterhill to Announce Q4 and Fiscal 2023 Financial Results
+-  London paedophile drove to Wakefield to meet 12-year-old girl 'just for KFC'
+-  From Tokyo to Milan Runways: Onitsuka Tiger Commemorates its 75th Anniversary with a New Collection
+-  Aquaron Acquisition Corp. Announces Additional Contribution to Trust Account to Extend Period to Consummate Business Combination
+-  Как немецкие офицеры планировали уничтожить Крымский мост: полная расшифровка переговоров
+-  Saffie Joseph Jr. arribó a 1.000 fotos en su carrera
+-  Nová sezona F1. Hamiltonův poslední tanec v Mercedesu, najde se vyzyvatel?
+-  「関与は一切ない」高木毅議員 政倫審で改めて主張
