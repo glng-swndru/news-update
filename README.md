@@ -1,11 +1,11 @@
 # Latest News
--  "Zlatna krvna grupa" je najvrednija: Ima je manje od 50 ljudi u svetu i jedna Srpkinja
--  Königliche Heilpraktik: "King-Charles-Effekt": Wie der Esoterik-Spleen des Monarchen der Alternativmedizin nützen kann
--  Fluminense enfrenta LDU pelo título da Recopa Sul-Americana
--  Comienza este viernes la huelga de la plantilla de Siemens encargada del mantenimiento de maquinaria de Airbus Illescas
--  Königin Camilla empfängt Selenskyjs Frau in London
--  Якщо Україна програє, НАТО воюватиме з РФ - Остін
--  Königliche Heilpraktik: "King-Charles-Effekt": Wie der Esoterik-Spleen des Monarchen der Alternativmedizin nützen kann
--  Königin Camilla empfängt Selenskyjs Frau in London
--  State Attorney Generals Sue RealPage, Landlords Over 'Astronomical' Rent Hikes: 'This Was Not A Fair Market At Work'
--  Pourquoi le ton monte entre l'Algérie et le Mali
+-  【精神科医が教える】 ストレスを感じる“合わない人”との上手な付き合い方 - 精神科医Tomyが教える 30代を悩まず生きる言葉
+-  Lənkəranda ağır qəza: ölən və yaralananlar var
+-  Nächster Schritt: Larsa Pippen und Marcus kaufen ein Haus!
+-  „Friesenjung“ Joost fährt mit „Europapa“ zum ESC
+-  Gasleck durch Baggerarbeiten: Großeinsatz in Lingen
+-  Były rzecznik Lewicy Marek Kacprzak przeszedł do "serca" TVP
+-  CHP'de Lütfü Savaş krizi neden yaşandı? CHP Genel Başkanı Özgür Özel tv100’e konuştu
+-  Süper Lig'den 7 kulübe para cezası
+-  À Callac, la PLB Muco revient avec une grande journée « Solidarité » en juin !
+-  Рядко признание за провал: Ким Чен Ун заяви, че го е срам и съжалява
