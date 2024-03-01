@@ -1,11 +1,11 @@
 # Latest News
--  Le résident d'un Ehpad à Aix-en-Provence meurt après avoir été agressé par son voisin de chambre
--  AI може да замени и мобилните приложения
--  财报速递：网易年度营收首超千亿 游戏业务战绩斐然
--  Зульфия Ханбабаева и Замиг Гусейнов спели о любви-ВИДЕО
--  Le résident d'un Ehpad à Aix-en-Provence meurt après avoir été agressé par son voisin de chambre
--  Moody’s: Γιατί η ΕΚΤ θα "σπάσει" την παράδοση και θα κινηθεί νωρίτερα από τη Fed στη μείωση των επιτοκίων
--  Demandaron por más de 50 mil dólares a Disney por la muerte de una médica en uno de sus parques
--  "Ако Украйна падне, наистина вярвам, че НАТО ще се изправи срещу Русия”
--  Petrol opozoril, da ima zaradi tega še vedno težave
--  Çinli bilim insanları, dünyada ilk kez iki keçiyi klonladı
+-  Negativkalorien: Gibt es Lebensmittel, die beim Verdauen mehr Kalorien verbrauchen als sie enthalten?
+-  مصر.. انتحار فتاة بسبب صورة في "دورة مياه" يثير ضجة واسعة
+-  Lazio Milan, Reijnders in panchina: confronto con Pioli, è successo a Milanello. Ultime
+-  Far from the border, Mexico’s safest state is moving closer to the US
+-  Bulgaria Delays Decision on Nuclear Waste Storage Amid European Discussions
+-  Hon har sett alla Oscars-nominerade filmer
+-  Ormiston Primrose frustrated by repeated postponements
+-  Noord-Holland! Neem eerste week april VRIJ
+-  松山市議の交通費過大受給うけ 政治倫理検討協議会【愛媛】
+-  Manager, Spion, "Priester": Das unheimliche Doppelleben des Jan Marsalek
