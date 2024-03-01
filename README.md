@@ -1,11 +1,11 @@
 # Latest News
--  Pornhub operator broke federal privacy law, federal watchdog finds
--  La actividad económica cayó un 3% desestacionalizado
--  急成長モノタロウのボスコン出身社長を直撃！今に生きる、コンサル時代に得た「3つのスキル」とは？ - コンサル大解剖
--  Pakistan: seguaci di Khan disturbano prima seduta del Parlamento
--  Emmerdale spoilers: Chas Dingle delivers shock news that could change Cain, Aaron and Caleb’s lives
--  В госдепе заявили, что не располагают данными о подготовке Москвой ядерного удара
--  Přerovské volejbalistky se přiblížily postupu do play off, Olymp zvítězil
--  Landsliðsmaðurinn fór hamförum
--  Levituojantis Kinijoje sukurtas traukinys pagerino pasaulio greičio rekordą – siekia aplenkti lėktuvą
--  Pornhub operator broke privacy law by failing to ensure valid consent, watchdog finds
+-  Kuba traži pomoć UN zbog nestašice hrane
+-  Znate li što je thai funk? Nizozemski Yīn Yīn donosi ga u Močvaru: ‘Volimo Hrvatsku! Ne možemo dočekati koncert‘
+-  Trem SP a Campinas: consórcio liderado por Grupo Comporte vence com proposta única
+-  Trem SP a Campinas: consórcio liderado por Grupo Comporte vence com proposta única
+-  На Харьковщине планируют принудительно эвакуировать семьи с детьми из 18 сел, - Синегубов
+-  România urcă în topul celor mai influente țări din lume. Pe ce loc ne aflăm
+-  Arteta admits Arsenal could rely on goal difference to win League
+-  Уничтожение дроном российского танка Т-90 "Прорыв" на Лиманском направлении. ВИДЕО
+-  Fransız Milletvekili Portes, İsrail'in Paris Büyükelçisinin sınır dışı edilmesini istedi
+-  ПВО сбила беспилотник над Белгородской областью
