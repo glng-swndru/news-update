@@ -1,11 +1,11 @@
 # Latest News
--  Vučić o Šenahovoj izjavi: To bi bilo kao kad bih ja rekao da je on, po svemu sudeći, belosvetski lopov!
--  Índice da bolsa de valores brasileira registra queda
--  Apple се отказва от проекта за електрически автомобили
--  Sara Jo: 'Aleksandra Prijović mi je na rođendanu prijateljice puštala svoje demo snimke'
--  Potwierdziło się najgorsze! Koniec sezonu dla reprezentanta Polski
--  ‘Šef‘ varaždinskog stadiona otkrio detalje burne prošlosti: Hajdukove sam igrače spajao s curama, nisu imali ‘spiku‘
--  Jako Menšík... Lehečka si zranil hrací ruku, čtvrtfinále v Dubaji skrečoval
--  Hubschrauberabsturz in Norwegen: Mindestens ein Toter nach Trainingsflug für Ölkonzern Equinor
--  Teszek én mindenre, futár vagyok! - magyarázta a gyorshajtását egy sofőr
--  Cumhurbaşkanı Yardımcısı Yılmaz, IFRC Başkanı Forbes'ı ağırladı
+-  تنفيذي القطن يهنئ بقدوم الشهر المبارك لعام 1445هـ
+-  الإمارات.. امتحانات نهاية الفصل الدراسي الثاني 13 مارس
+-  Afyonkarahisar'da korkutan deprem!
+-  Digitalisierung - „digi4Wirtschaft“: Neuauflage bringt Millionen Fördergeld für Betriebe
+-  Blink Fitness Hosts New Girls Weight Training Event, Brings Back Popular Women in the Weight Room Series for Women's History Month
+-  ولاية أمريكية ثالثة تصدر قراراً بمنع ترشح ترامب للرئاسة
+-  [책과 삶] ‘만일-그리고-그렇다면’ 세상을 보는 자폐인의 체계…인류 진보를 이끌다
+-  Infarto, diabetes o depresión: las consecuencias de comer ultraprocesados para la salud
+-  В российском городе гигантская сосулька поглотила флаг РФ
+-  Полковник рассказал о тактике Российской армии в Работино
