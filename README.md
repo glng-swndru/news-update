@@ -1,11 +1,11 @@
 # Latest News
--  ЦСКА и "Лудогорец" се разминаха в полуфиналите за Купата на България
--  CG News: लोकसभा चुनाव से पहले नौ मार्च को रायपुर में होगा किसानों का महासम्मेलन, रक्षा मंत्री राजनाथ सिंह होंगे शामिल
--  Meeste Leidenaars zien een gedoogbeleid voor stoepplantjes wel zitten, maar een uitgesproken minderheid doet het stadsbestuur twijfelen. ’Het blijft onkruid’
--  Kaarinassa luennoidaan pin-upista ja Marilynista
--  Ex-autarca de Montalegre em liberdade mas continua proibido de ir ao concelho
--  Los agricultores catalanes votarán levantar o no los cortes de carreteras antes de medianoche tras las medidas anunciadas por la Generalitat
--  Hoe één (1) rechter wekenlange bizarre censuur kon opleggen in de zaak-Kasem/De Vries
--  Polski klub zdemolował rywali w walce o finał europejskiego pucharu. Miazga
--  Medina e Filipe avançam no ISA Games; Yago Dora cai para a repescagem
--  Polski klub zdemolował rywali w walce o finał europejskiego pucharu. Miazga
+-  Más de 50 jubilados se quedaron sin gratificación en el Concello Ourense
+-  «بيتك» احتفى... بالأعياد الوطنية
+-  El concejal Fernández Martín busca novedades para los bomberos de Ourense
+-  Coopération : Les EAU comptent coordonner leurs actions sociales au Sénégal
+-  वाफ वुमन्स च्याम्पियनसिपको उपाधि भिडन्तमा नेपाल पराजित
+-  Fresh Vine Wine Inc Reaches Marketing Agreement with Splash Wines, Inc., the Highest Rated Direct-to-Consumer Digital Wine Company in the USA
+-  Greg Morton bringing the laughs to annual Komedy for Kidneys show
+-  МИХАВКО: «Мое взаимопонимание с другими защитниками уже на высоком уровне»
+-  La Diputación de Ourense abre el plazo para las ayudas a asociaciones de comerciantes
+-  தி.மு.க., ஆட்சியில் போதை பழக்கம் பரவல் : தமிழகத்தை மீட்டெடுக்க ஒன்றிணைவோம் - அண்ணாமலை வீடியோ வெளியீடு
