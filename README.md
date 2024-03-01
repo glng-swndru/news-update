@@ -1,11 +1,11 @@
 # Latest News
--  Bruno Marić više nije šef hrvatskih sudaca
--  Hrvatski proizvodi sve traženiji u Europi: Austrijanci vole naš ajvar, a Slovenci mlince
--  Израелски министър иска военна служба и за ултраортодоксалните евреи
--  Hołownia: Możemy zacząć płacić krwią naszych dzieci
--  30 yaşındaki genç geçirdiği kalp krizi sonrası hayatını kaybetti
--  Omtzigt sorteert steeds nadrukkelijker voor op gedoogrol en zet zo VVD voor het blok
--  My Second Term Cabinet Will Be Inclusive – Diri
--  Bahri Wins Guinness World Record for Largest Mobile Desalination Plant
--  Proyecto de Microsoft hará que tus juegos se vean y corran mejor que nunca en PC
--  अनंत अंबानी और राधिका मर्चेंट की प्री-वेडिंग में पूरे परिवार के साथ पहुंचे शाहरुख खान, वीडियो में दिखा SRK का जलवा
+-  Японии уже нужна дорогая йена
+-  Chelsea To Pay Record Fee For Zimbabwean Star
+-  كهرباء سرار تعلن عن خفض ساعات التشغيل ابتداء من مساء اليوم
+-  Cha mẹ dạy con theo 4 kiểu này, chẳng trách con càng lớn càng cục tính, nóng nảy
+-  Anant Ambani-Radhika Merchant’s Pre-Wedding: Manish Malhotra along with international celebs, guests arrive in Jamnagar [Video]
+-  Evangelische Kirchengemeinde Hückeswagen und LKG Scheideweg: Im Tauf-Streit droht ein Ende der Zusammenarbeit
+-  PF prende três e faz buscas em sete Estados para investigar financiadores e fomentadores do 8/1
+-  Fashion Week: Karl Lagerfeld, Jil Sander – und jetzt Chemena Kamali: Eine Deutsche mischt die Modewelt auf
+-  Fashion Week: Karl Lagerfeld, Jil Sander – und jetzt Chemena Kamali: Eine Deutsche mischt die Modewelt auf
+-  Mega Metal’den 35 milyon dolarlık yeni anlaşma
