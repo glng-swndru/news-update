@@ -1,11 +1,11 @@
 # Latest News
--  Chipre: Pedro Marques coloca Apollon nas meais-finais da Taça
--  تحليل الذهب اليوم 01/03
--  민주, 친명 정성호·김병기 단수공천…올드보이 박지원·정동영 경선행
--  Акции Dell подскочили на 19% на квартальной отчетности и повышении дивидендов
--  من اين سيأتي المصرف المركزي بالدولار؟
--  Koliki će biti prihodi gradova u prvoj godini bez prireza?
--  В Казахстан переводят деньги из России и Норвегии
--  BiH slavi Dan neovisnosti: Čak 99,7 posto glasača izglasalo državu ravnopravnih naroda
--  Gemma Bovery Streaming: Watch & Stream Online via Amazon Prime Video
--  Meta plant keine Vertragsverlängerungen mit australischen Medien
+-  Jövő héten visszatérhetnek az éjszakai fagyok
+-  ශිෂ්‍යත්වයේ නැවත සමීක්ෂණ ප්‍රතිඵල ගැන අමාත්‍යංශයෙන් නිවේදනයක්
+-  Prvaki lige NBA, med njimi tudi Čančar, ganili nekdanjega soigralca #video
+-  Galletas nube: sin harina y sin azúcar, una opción saludable para tu alimentación
+-  Jennie巴黎豪華套房滾床單 慵懶模樣被香奈兒捕捉
+-  陸政協委員提案：產業政策調整前 多徵求意見降低對企業衝擊
+-  Prva žena europskih Zelenih otkriva plan za budućnost EU-a
+-  Sakarya'da feci ölüm: Kıyafeti patoz ile traktör miline dolanan kadın hayatını kaybetti
+-  Koldo afirmó haber entregado al cabecilla de la trama "la llave de José Luis Ábalos"
+-  Na autocesti A1 uočen vuk
