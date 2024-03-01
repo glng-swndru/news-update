@@ -1,11 +1,11 @@
 # Latest News
--  Negativkalorien: Gibt es Lebensmittel, die beim Verdauen mehr Kalorien verbrauchen als sie enthalten?
--  مصر.. انتحار فتاة بسبب صورة في "دورة مياه" يثير ضجة واسعة
--  Lazio Milan, Reijnders in panchina: confronto con Pioli, è successo a Milanello. Ultime
--  Far from the border, Mexico’s safest state is moving closer to the US
--  Bulgaria Delays Decision on Nuclear Waste Storage Amid European Discussions
--  Hon har sett alla Oscars-nominerade filmer
--  Ormiston Primrose frustrated by repeated postponements
--  Noord-Holland! Neem eerste week april VRIJ
--  松山市議の交通費過大受給うけ 政治倫理検討協議会【愛媛】
--  Manager, Spion, "Priester": Das unheimliche Doppelleben des Jan Marsalek
+-  'A permit is not a shovel in the ground': Mississauga out on millions in funding for missing provincial housing target
+-  通信キャリア3社、閣議決定されたNTT法改正案について、廃止を含めた検討の時限設定に反発
+-  Best Roblox adventure games to play in 2024
+-  ZAVIRITE U GARDEROBER NAJBOGATIJE PEVAČICE! Sve pršti od luksuza, samo u cipelama ima na desetine hiljada evra
+-  Monatelange Notbetreuung in der Stephanus-Kita: Elternbeirat will Kooperationen – Träger sehen Probleme
+-  Slate Magazine
+-  Ganjar Pranowo Kalah Pilpres 2024, Alam Ganjar Bocorkan Target Luar Biasa ke Erick Thohir
+-  غارة على عيتا الشعب
+-  Farmaajo: Waxaan dalka ugusoo laabtay inaan ka qeyb qaato xal u raadinta arrimaha dastuurka
+-  الفصائل الفلسطينية المجتمعة في موسكو أصدرت بيانا مشتركا من تسعة بنود
