@@ -1,11 +1,11 @@
 # Latest News
--  نائب أمير الرياض يؤدي صلاة الميت على الأميرة هيا بنت سعود بن محمد بن مقرن بن مشاري
--  O WhatsApp segue o Telegram e finalmente permite buscar conversas por data no Android
--  Asamblea Nacional destituyó y censuró a Fausto Murillo como vocal del Consejo de la Judicatura y censuró a Juan José Morillo, vocal de la Judicatura
--  Lula defende manutenção de zona de paz na América do Sul
--  Arbeitslosigkeit steigt im Februar weiter an
--  Lewandowski zdradził, jak Barcelona chce pożegnać Xaviego. "To dla nas bardzo ważne"
--  Qatar to mark Gulf Healthy Cities Day
--  ضمن عملية الفارس الشهم 2.. "الهلال الأحمر" يفتتح 300 وحدة سكنية ضمن مشروع الألف منزل التي يجري تنفيذها باللاذقية
--  Эксперт Алиев: нацпроект «Семья» станет новым этапом развития института семьи
--  El efecto dominó de Bitcoin: ¿Qué altcoins están subiendo?
+-  Froma Harrop: Thank Alabama for being honest about embryos
+-  Fraud is Everywhere — Are You Safe? Follow This Guide to Secure Online Transactions
+-  Omstander klimt in graafmachine die in sloot kiepert: 'Waarom liep deze bewoner hier?'
+-  Angstzustände beim Autofahren: Wenn die Autobahn Panik auslöst
+-  À Brest, le soleil a brillé par son absence en février
+-  Scott Foley To Lead Netflix Rom-Com ‘La Dolce Villa’ From ‘Mean Girls’ Helmer Mark Waters
+-  En arrêtant de fumer avant 40 ans, on regagne toute son espérance de vie, selon une étude au long cours
+-  Blir Storlienbygget eit moderne bibliotek?
+-  Trouwe terreinmeester (‘géén terreinknecht’) Ludie Ermens (1936-2024) zette ‘de lekkerste thee van Nederland’
+-  Bahn, ÖPNV, Lufthansa und Co.: Wird in Deutschland mittlerweile mehr gestreikt?
