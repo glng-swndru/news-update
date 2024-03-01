@@ -1,11 +1,11 @@
 # Latest News
--  [속보] 민주, 정성호·김병기·김윤덕·한병도 단수공천
--  Tuvākajā nedēļā bieži spīdēs saule
--  [속보] 민주, 비명계 이인영 단수공천…친문 전해철-친명 양문석 경선
--  [속보] 민주, '올드보이' 박지원·정동영 경선…윤재갑·김성주와 대결
--  “Blijf gefocust op seizoensstart”: Horner reageert kort nadat anonieme bron vermeend WhatsApp-gesprek met jongedame lekt
--  Nawalny: Putins würdeloses Nachtreten
--  Bayer-Aktie: Aktivistischer Investor Ubben soll in den Bayer-Aufsichtsrat
--  Bikin Was-was Jembatan Sungai Masjid
--  Sixt-Aktie gibt nachbörslich nach: Im ersten Quartal wohl keine Gewinne
--  Турци и гърци пълнят торби с мартеници в Пловдив. Продавачи: Догодина отваряме сергии в Одрин (снимки)
+-  Мадуро призвал Венесуэлу готовиться к «вторжению США»
+-  Borrell a Macron odsúdili incident v Gaze s potravinou pomocou
+-  Visa-Karte verabschiedet sich – Amazon-Kunden stehen vor vielen Fragen
+-  Collaborative Robot Market to Develop at CAGR of 41.3% during Forecast Period, Observes TMR Study
+-  台積電跌1元收689 台股小跌31點來到18936點
+-  Przypominamy: Już od dziś zaparkujesz na podziemnym parkingu przy dworcu PKP. Zmiany także w rozkładach jazdy MPK
+-  한동훈, '민주당 탈당' 김영주와 전격회동
+-  Heizungsgesetz in der Praxis: Wie die neue Förderung für den Heizungstausch funktioniert
+-  Telangana government issues DSC notification for 11,062 teacher posts
+-  VIDEO ⟩ Girgensons veicina "Sabres" uzvaru ar trīs spēka paņēmieniem
