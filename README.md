@@ -1,11 +1,11 @@
 # Latest News
--  Jövő héten visszatérhetnek az éjszakai fagyok
--  ශිෂ්‍යත්වයේ නැවත සමීක්ෂණ ප්‍රතිඵල ගැන අමාත්‍යංශයෙන් නිවේදනයක්
--  Prvaki lige NBA, med njimi tudi Čančar, ganili nekdanjega soigralca #video
--  Galletas nube: sin harina y sin azúcar, una opción saludable para tu alimentación
--  Jennie巴黎豪華套房滾床單 慵懶模樣被香奈兒捕捉
--  陸政協委員提案：產業政策調整前 多徵求意見降低對企業衝擊
--  Prva žena europskih Zelenih otkriva plan za budućnost EU-a
--  Sakarya'da feci ölüm: Kıyafeti patoz ile traktör miline dolanan kadın hayatını kaybetti
--  Koldo afirmó haber entregado al cabecilla de la trama "la llave de José Luis Ábalos"
--  Na autocesti A1 uočen vuk
+-  NIJE MOGAO DA ZAUSTAVI SUZE ZBOG OBRADOVIĆA! Najemotivnija scena iz Arene: Željkov kum se POTPUNO SLOMIO! Zaplakao na klupi! VIDEO
+-  Hoa mắt với lâu đài dát vàng của "đại gia đồng nát" ở Nghệ An, đến toilet cũng phủ vàng bóng loáng
+-  وزیر آموزش و پرورش در میان رای‌اولی‌ها رای خود را به صندوق انداخت
+-  "A sociedade tolera muito mais os disparates dos homens"
+-  Jacobio Pharma Receives IND Approval for P53 Y220C Activator JAB-30300 in the U.S.
+-  Una losa volcada bajo el Mediterráneo sería la causa de los terremotos en el sur de España
+-  Traversi, coordinatore del M5S in Liguria: “Con il Pd alleanza non scontata, serve un federatore”
+-  Kraj za Kecmanovića u četvrtfinalu Akapulka
+-  Uno de cada tres autobuses escolares son sancionados por la DGT por estos motivos
+-  Ersin Tatar, 3’üncü Antalya Diplomasi Forumu’nda temaslarda bulunacak
