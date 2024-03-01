@@ -1,11 +1,11 @@
 # Latest News
--  Погба след наказанието за 4 г.: Сърцето ми е разбито, шокиран съм
--  Bhopal: Team Equinox Of MANIT Develops E-Kart For ₹10 Lakh To Promote Innovation, Engineering Excellence…
--  The volume of Turkmenistan's industrial liquid fuel exports to Azerbaijan released
--  Los 78 dólares: Un nivel imposible para el crudo WTI
--  Malatya'da deprem
--  정품이라더니 가품…쿠팡서 산 '중국산 레고' 바뀐 건가
--  West Kelowna family fundraising to purchase van for daughter with cerebral palsy
--  Magenta al top, Oltrepo e Casteggio da podio al Pavia serve subito un cambio di passo
--  La Cagnina, oggi l’ultimo saluto Sciaccaluga lo ricorda commosso
--  Spaccasassi presidente, continuità per Vigevano
+-  Ibovespa fecha em queda de 0,87%
+-  França denuncia ‘disparos israelenses injustificáveis’ durante entrega de ajuda em Gaza
+-  Sirski culpa a los comandantes ucranianos en el frente de cometer "errores de cálculo"
+-  Bandićevo grobno mjesto pod tajnim izvidima
+-  Honolulu man to be sentenced for making child pornography
+-  Técnico do Monsoon na Série A-2, Bruno Coutinho reencontrará o Pelotas
+-  Zdravi odnosi: Šta vezu ili brak čini srećnima?
+-  Owners might face felony charges in dog attacks
+-  NE JEDAN NEGO DVA MBAPEA STIŽU U REAL! Kilijan uslovio Madriđane
+-  Tamara Tyasmara Berteriak Melihat Yudha Arfandi, Ini yang Disampaikannya
