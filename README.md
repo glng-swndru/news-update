@@ -1,11 +1,11 @@
 # Latest News
--  NIJE MOGAO DA ZAUSTAVI SUZE ZBOG OBRADOVIĆA! Najemotivnija scena iz Arene: Željkov kum se POTPUNO SLOMIO! Zaplakao na klupi! VIDEO
--  Hoa mắt với lâu đài dát vàng của "đại gia đồng nát" ở Nghệ An, đến toilet cũng phủ vàng bóng loáng
--  وزیر آموزش و پرورش در میان رای‌اولی‌ها رای خود را به صندوق انداخت
--  "A sociedade tolera muito mais os disparates dos homens"
--  Jacobio Pharma Receives IND Approval for P53 Y220C Activator JAB-30300 in the U.S.
--  Una losa volcada bajo el Mediterráneo sería la causa de los terremotos en el sur de España
--  Traversi, coordinatore del M5S in Liguria: “Con il Pd alleanza non scontata, serve un federatore”
--  Kraj za Kecmanovića u četvrtfinalu Akapulka
--  Uno de cada tres autobuses escolares son sancionados por la DGT por estos motivos
--  Ersin Tatar, 3’üncü Antalya Diplomasi Forumu’nda temaslarda bulunacak
+-  Miss India Tripura 2017 Rinky Chakma passes away at 28 after prolonged battle with cancer
+-  Súlyos döntésre szánta el magát az Electronic Arts
+-  İspanya basını: Mbappe'nin ailesi Madrid'de ev bakıyor
+-  Miền Bắc rét đỉnh điểm
+-  A következő Dacia Sanderóból már elektromos változat is lesz
+-  Indonesia thay đổi lớn cho tham vọng tại U23 Châu Á
+-  Air Peace announces N1.2m for London route
+-  Borsa güne yükselişle başladı
+-  South Mill Champs и Grupo APAL объединяются для расширения производства грибов в Мексике
+-  Промес по-прежнему находится в ОАЭ. Ночью он не вылетел из страны
