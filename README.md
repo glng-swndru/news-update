@@ -1,11 +1,11 @@
 # Latest News
--  Finge di essere residente in Croazia ed evade 4 milioni
--  В Минской области более 1,3 тыс. школьников изучают китайский язык
--  Kiev, Zaporizhzhia bombardata 200 volte in 24 ore
--  Iran: Khamenei, andate a votare per deludere i nemici
--  Chủ tịch Tập đoàn Hoa Sen Lê Phước Vũ: Khởi nghiệp như học võ, phải bái tổ bái sư, học từ chiêu đứng tấn cơ bản, nếu thất bại thì coi là học phí
--  นักธุรกิจสวิส-ภรรยาชาวไทย ยกมือไหว้ขอโทษ "เตะหมอ" ทนายเชื่อได้บทเรียนแล้ว
--  Finanční napětí v hokejovém Litvínově? Drama je vypořádáno, uklidnila starostka
--  Бойко Борисов иска с Петков да направят по-работещо правителство
--  Stock market is open tomorrow. Timings, trading strategy, do’s and don’ts for special session
--  Finanční napětí v hokejovém Litvínově? Drama je vypořádáno, uklidnila starostka
+-  Olkiluoto 3 pysähtyy 37 päiväksi – nyt kerrottiin syyt pitkälle seisokille
+-  Hradec a nemilé drama na konec. Narazí na Vítkovice? A kde série začne?
+-  Antrasis BVP įvertis: per ketvirtį mažėjo 0,1 proc., per metus augo 0,2 proc.
+-  조정훈·이인선, 국민의힘 경선 승리···‘현역 불패’ 재확인
+-  Yerel seçimlere bir ay kaldı
+-  Байден заподозрил китайские электрокары в шпионаже
+-  Переговоры Алиева и министра Италии
+-  Dudaszó: LeBron James egy lépésre került a 40 000 ponttól, újabb Lakers-győzelem
+-  المكتب السياسي لحزب "الحوار" زار نائبة رئيس "الوطني الحر" وتشديد على ضرورة إنهاء الفراغ الرئاسي
+-  В НАТО заявили об отсутствии ядерной угрозы со стороны России
