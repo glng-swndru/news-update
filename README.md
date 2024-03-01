@@ -1,11 +1,11 @@
 # Latest News
--  Más de 50 jubilados se quedaron sin gratificación en el Concello Ourense
--  «بيتك» احتفى... بالأعياد الوطنية
--  El concejal Fernández Martín busca novedades para los bomberos de Ourense
--  Coopération : Les EAU comptent coordonner leurs actions sociales au Sénégal
--  वाफ वुमन्स च्याम्पियनसिपको उपाधि भिडन्तमा नेपाल पराजित
--  Fresh Vine Wine Inc Reaches Marketing Agreement with Splash Wines, Inc., the Highest Rated Direct-to-Consumer Digital Wine Company in the USA
--  Greg Morton bringing the laughs to annual Komedy for Kidneys show
--  МИХАВКО: «Мое взаимопонимание с другими защитниками уже на высоком уровне»
--  La Diputación de Ourense abre el plazo para las ayudas a asociaciones de comerciantes
--  தி.மு.க., ஆட்சியில் போதை பழக்கம் பரவல் : தமிழகத்தை மீட்டெடுக்க ஒன்றிணைவோம் - அண்ணாமலை வீடியோ வெளியீடு
+-  NHL fines Leafs head coach Keefe $25,000 after disagreement with refs
+-  ФОТО. Дисквалифицированный Роналду из спортзала: «Не могу остановиться»
+-  NHL fines Leafs head coach Keefe $25,000 after disagreement with refs
+-  Седмина останаха в битката за БФС
+-  Massot aseguró que Milei está “en modo influencer” y pidió: “Me gustaría verlo arremangarse”
+-  Hitno obraćanje Duške Vučinić: Javila se pred sam početak "Pesme za Evroviziju" sa jakom porukom
+-  El jockey Matías Rodríguez cree que Zapatazo está listo para recuperarse
+-  ढिंग टांग : दुखावलेली कोमल मने...!
+-  В Госдуме пообещали НАТО участь Украины в случае продолжения агрессии
+-  Dünya yıldızı futboldan men edildi! Doping testi pozitif!
