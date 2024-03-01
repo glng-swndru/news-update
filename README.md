@@ -1,11 +1,11 @@
 # Latest News
--  Olkiluoto 3 pysähtyy 37 päiväksi – nyt kerrottiin syyt pitkälle seisokille
--  Hradec a nemilé drama na konec. Narazí na Vítkovice? A kde série začne?
--  Antrasis BVP įvertis: per ketvirtį mažėjo 0,1 proc., per metus augo 0,2 proc.
--  조정훈·이인선, 국민의힘 경선 승리···‘현역 불패’ 재확인
--  Yerel seçimlere bir ay kaldı
--  Байден заподозрил китайские электрокары в шпионаже
--  Переговоры Алиева и министра Италии
--  Dudaszó: LeBron James egy lépésre került a 40 000 ponttól, újabb Lakers-győzelem
--  المكتب السياسي لحزب "الحوار" زار نائبة رئيس "الوطني الحر" وتشديد على ضرورة إنهاء الفراغ الرئاسي
--  В НАТО заявили об отсутствии ядерной угрозы со стороны России
+-  Neuer VW Tiguan: Dritte Generation des Kompakt-SUV kommt noch mal als Verbrenner
+-  Ma przejąć mandat po Kamińskim, liczy, że będzie w klubie PiS. „Proponuję wszystkim ostudzić emocje”
+-  Emeryci i renciści dorobią więcej. Nowe limity od marca
+-  Barcelona ætlar að bjóða í Cancelo en hættir við Felix
+-  プライム・ストラテジー、ローカル環境での​LLM導入・保守サービス「Magatama.AI」を発表
+-  映画『ナポレオン』Apple TV+で世界配信 リドリー・スコット監督によるアカデミー賞ノミネート作品
+-  Maserati GranCabrio 2024 Nikmatnya Tanpa Atap Berkekuatan 542 HP
+-  A startup’s technology takes aim at lithium-ion batteries’ fire problem
+-  Avec leurs chansons, ils tentent de faire voyager les enfants malades depuis leur lit d'hôpital
+-  막강해진 엄기준→부활한 이준…‘7인의 부활’ 1차 티저 공개
