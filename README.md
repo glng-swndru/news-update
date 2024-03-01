@@ -1,11 +1,11 @@
 # Latest News
--  Froma Harrop: Thank Alabama for being honest about embryos
--  Fraud is Everywhere — Are You Safe? Follow This Guide to Secure Online Transactions
--  Omstander klimt in graafmachine die in sloot kiepert: 'Waarom liep deze bewoner hier?'
--  Angstzustände beim Autofahren: Wenn die Autobahn Panik auslöst
--  À Brest, le soleil a brillé par son absence en février
--  Scott Foley To Lead Netflix Rom-Com ‘La Dolce Villa’ From ‘Mean Girls’ Helmer Mark Waters
--  En arrêtant de fumer avant 40 ans, on regagne toute son espérance de vie, selon une étude au long cours
--  Blir Storlienbygget eit moderne bibliotek?
--  Trouwe terreinmeester (‘géén terreinknecht’) Ludie Ermens (1936-2024) zette ‘de lekkerste thee van Nederland’
--  Bahn, ÖPNV, Lufthansa und Co.: Wird in Deutschland mittlerweile mehr gestreikt?
+-  ЦСКА и "Лудогорец" се разминаха в полуфиналите за Купата на България
+-  CG News: लोकसभा चुनाव से पहले नौ मार्च को रायपुर में होगा किसानों का महासम्मेलन, रक्षा मंत्री राजनाथ सिंह होंगे शामिल
+-  Meeste Leidenaars zien een gedoogbeleid voor stoepplantjes wel zitten, maar een uitgesproken minderheid doet het stadsbestuur twijfelen. ’Het blijft onkruid’
+-  Kaarinassa luennoidaan pin-upista ja Marilynista
+-  Ex-autarca de Montalegre em liberdade mas continua proibido de ir ao concelho
+-  Los agricultores catalanes votarán levantar o no los cortes de carreteras antes de medianoche tras las medidas anunciadas por la Generalitat
+-  Hoe één (1) rechter wekenlange bizarre censuur kon opleggen in de zaak-Kasem/De Vries
+-  Polski klub zdemolował rywali w walce o finał europejskiego pucharu. Miazga
+-  Medina e Filipe avançam no ISA Games; Yago Dora cai para a repescagem
+-  Polski klub zdemolował rywali w walce o finał europejskiego pucharu. Miazga
