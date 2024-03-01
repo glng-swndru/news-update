@@ -1,11 +1,11 @@
 # Latest News
--  NHL fines Leafs head coach Keefe $25,000 after disagreement with refs
--  ФОТО. Дисквалифицированный Роналду из спортзала: «Не могу остановиться»
--  NHL fines Leafs head coach Keefe $25,000 after disagreement with refs
--  Седмина останаха в битката за БФС
--  Massot aseguró que Milei está “en modo influencer” y pidió: “Me gustaría verlo arremangarse”
--  Hitno obraćanje Duške Vučinić: Javila se pred sam početak "Pesme za Evroviziju" sa jakom porukom
--  El jockey Matías Rodríguez cree que Zapatazo está listo para recuperarse
--  ढिंग टांग : दुखावलेली कोमल मने...!
--  В Госдуме пообещали НАТО участь Украины в случае продолжения агрессии
--  Dünya yıldızı futboldan men edildi! Doping testi pozitif!
+-  "Zlatna krvna grupa" je najvrednija: Ima je manje od 50 ljudi u svetu i jedna Srpkinja
+-  Königliche Heilpraktik: "King-Charles-Effekt": Wie der Esoterik-Spleen des Monarchen der Alternativmedizin nützen kann
+-  Fluminense enfrenta LDU pelo título da Recopa Sul-Americana
+-  Comienza este viernes la huelga de la plantilla de Siemens encargada del mantenimiento de maquinaria de Airbus Illescas
+-  Königin Camilla empfängt Selenskyjs Frau in London
+-  Якщо Україна програє, НАТО воюватиме з РФ - Остін
+-  Königliche Heilpraktik: "King-Charles-Effekt": Wie der Esoterik-Spleen des Monarchen der Alternativmedizin nützen kann
+-  Königin Camilla empfängt Selenskyjs Frau in London
+-  State Attorney Generals Sue RealPage, Landlords Over 'Astronomical' Rent Hikes: 'This Was Not A Fair Market At Work'
+-  Pourquoi le ton monte entre l'Algérie et le Mali
