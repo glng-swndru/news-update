@@ -1,11 +1,11 @@
 # Latest News
--  ハイブリッド車の「エコ度」は十分か 米で論争勃発 - WSJ PickUp
--  'I'm a big boy' - Southampton defender addresses criticism from fans
--  "이러니 자꾸 뚫리지" 韓 기업 직원 62%가 "위험한 줄은 알지만 일단 클릭"
--  Hythe: Tilley's Bakery could shut after key staff move on
--  '5-star jail': Shiv Sena (UBT) leader Sanjay Raut takes a dig at Centre for current parliamentary setup
--  Madras University in finacial cricis, staff protest over unpaid salary
--  Uredba o ograničenju visine cena brašna T-400 i T-500 sutra stupa na snagu
--  North America Humic Acid Market Forecast to 2030: Rising Demand for Natural Feed Additives and Growing Demand for Organic Food Products - CAGR of 11% Forecast During 2022-2030
--  Tại sao uống cà phê có thể nhuận tràng?
--  La Pradera: comercio, diversión y su lucha contra la delincuencia
+-  Mehr Unfälle auf A24 +++ Arbeitsmarkt in OPR im Februar stabil +++ Zweite Rocknacht in Kyritz
+-  Kritik an Heuballen-Aktion +++ So lebt es sich als Roland Kaiser +++ Ideen-Briefkasten in Perleberg
+-  Защитник Руха: «Изучаем сильные и слабые стороны Колоса»
+-  Nächster Schritt zur Flüchtlingsunterkunft in Elstal +++ MAP rutscht tiefer in die Krise +++ Grünes Licht für Rechzentrum in Brieselang
+-  Schleppen von Mülltonnen ist ärgerlich +++ 1600 Firmen in einem Netzwerk vereint +++ Gastwirte der Region in Bedrängnis
+-  Iran, aperti i seggi per le elezioni legislative
+-  Das bietet der neue Bürgerservice in Potsdam ++ Gerücht unter Eltern: Fremder in einem Schlaatzer Hort ++ Schwielowsee erhöht alle Abgaben
+-  Vợ mẫu tây Bùi Tiến Dũng khoe visual cực cuốn khi chồng vắng nhà, nhan sắc còn nổi bần bật hơn cả lúc đi diễn
+-  'Vua đất nện' Nadal hướng tới cột mốc lớn tại Indian Wells
+-  Wir sind für die Stille hier: Ein Roman über eine Kindheit in Transsylvanien
