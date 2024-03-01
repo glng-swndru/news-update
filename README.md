@@ -1,11 +1,11 @@
 # Latest News
--  Nehirde cesedi bulunan kadın eşini ihbar etmişti, oğlu tutuklandı
--  Amsterdamse politiechef Frank Paauw beoogd nieuwe KNVB-voorzitter
--  Antojos en la Av. Caminos del Inca: 5 propuestas que debes probar si estás por Surco
--  Slovenský soud zastavil část trestní novely. Ta měla přinést nižší tresty za korupci i kratší promlčení u vražd
--  CHP'den Bursa'da görkemli açılış! Dr. Ceyhun İrgil Sağlık Müzesi'nin açılış törenine CHP lideri Özel de katıldı...
--  Prioritas Liverpool Pada Musim Panas 2024: Perkuat Lini Pertahanan
--  Corée du Sud : un milliardaire offre une prime de 70 000 euros à ses employés devenus parents
--  Aide au logement : Près de 52 000 demandes déposées jusqu’au 27 février
--  Макрон о своем заявлении относительно отправки иностранных войск в Украину: "Каждое слово взвешено, продумано и весомо"
--  Margarin kutularının içerisinden uyuşturucu çıktı
+-  نائب أمير الرياض يؤدي صلاة الميت على الأميرة هيا بنت سعود بن محمد بن مقرن بن مشاري
+-  O WhatsApp segue o Telegram e finalmente permite buscar conversas por data no Android
+-  Asamblea Nacional destituyó y censuró a Fausto Murillo como vocal del Consejo de la Judicatura y censuró a Juan José Morillo, vocal de la Judicatura
+-  Lula defende manutenção de zona de paz na América do Sul
+-  Arbeitslosigkeit steigt im Februar weiter an
+-  Lewandowski zdradził, jak Barcelona chce pożegnać Xaviego. "To dla nas bardzo ważne"
+-  Qatar to mark Gulf Healthy Cities Day
+-  ضمن عملية الفارس الشهم 2.. "الهلال الأحمر" يفتتح 300 وحدة سكنية ضمن مشروع الألف منزل التي يجري تنفيذها باللاذقية
+-  Эксперт Алиев: нацпроект «Семья» станет новым этапом развития института семьи
+-  El efecto dominó de Bitcoin: ¿Qué altcoins están subiendo?
