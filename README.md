@@ -1,11 +1,11 @@
 # Latest News
--  Dr Michael Mosley warns of worst time to snack - can lead to major health problems
--  San Mamés se ríe del Cholo en el enésimo descalabro de Simeone
--  La policía detiene también a la pareja del presunto autor de la agresión mortal al discapacitado de Valencia
--  La policía detiene también a la pareja del presunto autor de la agresión mortal al discapacitado de Valencia
--  ONLINE: Začíná halové MS v atletice, jako první z Čechů se představí čtvrtkaři
--  卒業を前に校舎被災… 中学生が間借り先の小学校で“感謝の歌”披露 能登半島地震2カ月【新潟市】
--  Бавария ни върна български престъпници с изтърпени присъди
--  Mythical Retellings, Mars Colonies, and Reincarnated Lovers: March’s Best Sci-Fi and Fantasy Books
--  홍진경, “큰 목표를 설정하지도, 하고 싶지도 않아요””
--  Polisen: De genade inte över spåret
+-  Le résident d'un Ehpad à Aix-en-Provence meurt après avoir été agressé par son voisin de chambre
+-  AI може да замени и мобилните приложения
+-  财报速递：网易年度营收首超千亿 游戏业务战绩斐然
+-  Зульфия Ханбабаева и Замиг Гусейнов спели о любви-ВИДЕО
+-  Le résident d'un Ehpad à Aix-en-Provence meurt après avoir été agressé par son voisin de chambre
+-  Moody’s: Γιατί η ΕΚΤ θα "σπάσει" την παράδοση και θα κινηθεί νωρίτερα από τη Fed στη μείωση των επιτοκίων
+-  Demandaron por más de 50 mil dólares a Disney por la muerte de una médica en uno de sus parques
+-  "Ако Украйна падне, наистина вярвам, че НАТО ще се изправи срещу Русия”
+-  Petrol opozoril, da ima zaradi tega še vedno težave
+-  Çinli bilim insanları, dünyada ilk kez iki keçiyi klonladı
