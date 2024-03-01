@@ -1,11 +1,11 @@
 # Latest News
--  Slaptas skanios picos ingredientas – padažas: kokį pasirinkti?
--  Advierten sobrecosto de materiales por S/ 1 millón en pavimentación urbana en Amarilis
--  Yayın ihalesi iptal edildi: Teklif bedelleri yetersiz
--  Hivatalossá váltak a magyar válogatott következő mérkőzéseinek kezdési időpontja
--  قمة ملتهبة بين الهلال واتحاد جدة في الدوري السعودي - العربية
--  Lengyelország saját szankciót vethet be Oroszország ellen
--  Sumiço de Kate Middleton intriga internautas e gera memes
--  SRBIJA DOBILA NOVOG SELEKTORA: Boris Rojević u misiji vraćanja rukometa na staze stare slave
--  Funerali di Navalny, la denuncia di Più Europa: “Ci hanno negato il visto per la Russia”
--  Funerali di Navalny, +Europa accusa Mosca: “Ci hanno negato il visto per andare in Russia”
+-  Bruno Marić više nije šef hrvatskih sudaca
+-  Hrvatski proizvodi sve traženiji u Europi: Austrijanci vole naš ajvar, a Slovenci mlince
+-  Израелски министър иска военна служба и за ултраортодоксалните евреи
+-  Hołownia: Możemy zacząć płacić krwią naszych dzieci
+-  30 yaşındaki genç geçirdiği kalp krizi sonrası hayatını kaybetti
+-  Omtzigt sorteert steeds nadrukkelijker voor op gedoogrol en zet zo VVD voor het blok
+-  My Second Term Cabinet Will Be Inclusive – Diri
+-  Bahri Wins Guinness World Record for Largest Mobile Desalination Plant
+-  Proyecto de Microsoft hará que tus juegos se vean y corran mejor que nunca en PC
+-  अनंत अंबानी और राधिका मर्चेंट की प्री-वेडिंग में पूरे परिवार के साथ पहुंचे शाहरुख खान, वीडियो में दिखा SRK का जलवा
