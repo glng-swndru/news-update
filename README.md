@@ -1,11 +1,11 @@
 # Latest News
--  Мадуро призвал Венесуэлу готовиться к «вторжению США»
--  Borrell a Macron odsúdili incident v Gaze s potravinou pomocou
--  Visa-Karte verabschiedet sich – Amazon-Kunden stehen vor vielen Fragen
--  Collaborative Robot Market to Develop at CAGR of 41.3% during Forecast Period, Observes TMR Study
--  台積電跌1元收689 台股小跌31點來到18936點
--  Przypominamy: Już od dziś zaparkujesz na podziemnym parkingu przy dworcu PKP. Zmiany także w rozkładach jazdy MPK
--  한동훈, '민주당 탈당' 김영주와 전격회동
--  Heizungsgesetz in der Praxis: Wie die neue Förderung für den Heizungstausch funktioniert
--  Telangana government issues DSC notification for 11,062 teacher posts
--  VIDEO ⟩ Girgensons veicina "Sabres" uzvaru ar trīs spēka paņēmieniem
+-  Singapore istituisce il Giorno delle vittime della droga
+-  Pourquoi c'est important. Élections en Iran : la victoire annoncée des conservateurs
+-  Noci: proprietà, benefici e quante assumerne al giorno
+-  Le clan Delon continue de s’écharper par médias interposés
+-  100 Hari jadi Tersangka tapi Masih Bebas, Abraham Samad dkk Desak Kapolri Tahan Firli Bahuri
+-  3 Tim Tolak Lepas Pemain ke Timnas Indonesia U-23 Termasuk Persija, PSSI Colek Petinggi Klub
+-  Ísland um helgina - Víkingar á Dalvík
+-  Manipur Assembly adopts resolution urging Centre to end ceasefire pact with Kuki militant groups
+-  Les Bee Gees s'invitent à la chambre des métiers et de l'artisanat de l'Allier
+-  Bursa'da bu yola dikkat! Yapım çalışmaları dolayısıyla...
