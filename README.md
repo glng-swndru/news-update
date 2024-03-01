@@ -1,11 +1,11 @@
 # Latest News
--  Por una vez en la vida: Javier Arias
--  শিক্ষক–কর্মকর্তা নিয়োগে অনিয়মের অভিযোগ
--  ‘Another day from hell’ – over 100 killed in Gaza as Israelis fire on people waiting for aid delivery
--  A licitación la explotación del bar de Grisuela
--  ‘This terrible crisis makes me angry,’ says Focus Ireland concert host Laura Whitmore
--  Pól Ó Conghaile: Snippets of Irish bring our landscape to life in surprising ways
--  Las campeonas se dan un baño de masas en la fiesta por el título en la Liga de Naciones
--  First-time buyers forced to borrow thousands of euro more to secure a home as house prices surge
--  La Cultural, el aspirante al ascenso con menos gol
--  Platinum Industries IPO allotment – How to check allotment, GMP, listing date and more
+-  НАТО передислоцировало истребители на восточном фланге
+-  Tăng trần giá vé máy bay gây tác động ra sao?
+-  Taylor Swift: Pop-Ikone und Milliardärin
+-  Nhiều công ty tài chính đổi chủ
+-  Hàng loạt ô tô "hot" chuẩn bị đổ bộ thị trường Việt ngay trong năm 2024
+-  KPU Buka Pendaftaran Pemantau Pilkada 2024, Ini Deretan Tugas dan Wewenangnya
+-  「混むのかなと思いながら来た」JR北海道バス 1月に続き『減便』―札幌駅前と“新さっぽろ駅”や“手稲駅”結ぶ4路線17便
+-  Cerita Andre Taulany Bikin ATF Band, Dibayar Lebih Mahal dari Dewa 19
+-  県立高校で卒業式 1万705人が旅立ちの春 保護者や在校生が卒業生の門出を祝う＜福島県＞
+-  安芸高校で最後の卒業式 県立高校再編で５０年の歴史に幕 別れを惜しみ６０人が巣立つ
