@@ -1,11 +1,11 @@
 # Latest News
--  تنفيذي القطن يهنئ بقدوم الشهر المبارك لعام 1445هـ
--  الإمارات.. امتحانات نهاية الفصل الدراسي الثاني 13 مارس
--  Afyonkarahisar'da korkutan deprem!
--  Digitalisierung - „digi4Wirtschaft“: Neuauflage bringt Millionen Fördergeld für Betriebe
--  Blink Fitness Hosts New Girls Weight Training Event, Brings Back Popular Women in the Weight Room Series for Women's History Month
--  ولاية أمريكية ثالثة تصدر قراراً بمنع ترشح ترامب للرئاسة
--  [책과 삶] ‘만일-그리고-그렇다면’ 세상을 보는 자폐인의 체계…인류 진보를 이끌다
--  Infarto, diabetes o depresión: las consecuencias de comer ultraprocesados para la salud
--  В российском городе гигантская сосулька поглотила флаг РФ
--  Полковник рассказал о тактике Российской армии в Работино
+-  Slaptas skanios picos ingredientas – padažas: kokį pasirinkti?
+-  Advierten sobrecosto de materiales por S/ 1 millón en pavimentación urbana en Amarilis
+-  Yayın ihalesi iptal edildi: Teklif bedelleri yetersiz
+-  Hivatalossá váltak a magyar válogatott következő mérkőzéseinek kezdési időpontja
+-  قمة ملتهبة بين الهلال واتحاد جدة في الدوري السعودي - العربية
+-  Lengyelország saját szankciót vethet be Oroszország ellen
+-  Sumiço de Kate Middleton intriga internautas e gera memes
+-  SRBIJA DOBILA NOVOG SELEKTORA: Boris Rojević u misiji vraćanja rukometa na staze stare slave
+-  Funerali di Navalny, la denuncia di Più Europa: “Ci hanno negato il visto per la Russia”
+-  Funerali di Navalny, +Europa accusa Mosca: “Ci hanno negato il visto per andare in Russia”
