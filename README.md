@@ -1,11 +1,11 @@
 # Latest News
--  الرئيس تبون: "بحثنا خلال المحادثات سبل تعزيز التعاون بين الجزائر والموزمبيق في مختلف المجالات"
--  Da Vicenza arriva una buona notizia: le bombe d'acqua possono anche non provocare alluvioni e morti
--  Biden ja Trump püüavad USA-Mehhiko piiril valijaid enda poole võita
--  Nova ugibanja o Putinovi bolezni, to je razkril nekdanji šef MI6
--  Venemaa keelab pooleks aastaks bensiini ekspordi
--  Na novogoriški železniški postaji odkrili še eno letalsko bombo
--  Einsatz im Roten Meer: Erster scharfer Einsatz – und ein böser Zweifel
--  National Park Foundation and National Park Service Announce $40 Million Gift to Meet Urgent Need for Employee Housing at Yellowstone National Park
--  Glasgow engineering giant Weir Group underlines 'resilience'
--  Police Briefs
+-  Nehirde cesedi bulunan kadın eşini ihbar etmişti, oğlu tutuklandı
+-  Amsterdamse politiechef Frank Paauw beoogd nieuwe KNVB-voorzitter
+-  Antojos en la Av. Caminos del Inca: 5 propuestas que debes probar si estás por Surco
+-  Slovenský soud zastavil část trestní novely. Ta měla přinést nižší tresty za korupci i kratší promlčení u vražd
+-  CHP'den Bursa'da görkemli açılış! Dr. Ceyhun İrgil Sağlık Müzesi'nin açılış törenine CHP lideri Özel de katıldı...
+-  Prioritas Liverpool Pada Musim Panas 2024: Perkuat Lini Pertahanan
+-  Corée du Sud : un milliardaire offre une prime de 70 000 euros à ses employés devenus parents
+-  Aide au logement : Près de 52 000 demandes déposées jusqu’au 27 février
+-  Макрон о своем заявлении относительно отправки иностранных войск в Украину: "Каждое слово взвешено, продумано и весомо"
+-  Margarin kutularının içerisinden uyuşturucu çıktı
