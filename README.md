@@ -1,11 +1,11 @@
 # Latest News
--  Handball-Bezirksoberliga: HSV setzt auf die Beckenbauer-Philosophie
--  7 знака, че Вселената ви защитава и ви дава най-доброто
--  Italia-Usa: Fitto, 'rientro Forti bellissima notizia, Meloni chiude vicenda dolorosa'
--  ما دلالات زيارة بن مبارك لموسكو بعد تعيينه رئيساً للحكومة اليمنية؟
--  DA LI FRANCUSKI SPECIJALCI KREĆU PUT UKRAJINE? Makron sazvao hitan sastanak lidera svih stranaka
--  Korkunç olay! 8 yaşındaki çocuk sulama havuzuna düştü
--  Bulgária leállította a kőolajimportot Oroszországból
--  Пілот Ред Булл виграв першу кваліфікацію сезону Формули-1
--  United Imaging Intelligence a dévoilé ses solutions de radiologie de nouvelle génération à l'ECR 2024
--  Italia-Usa: Fitto, ‘rientro Forti bellissima notizia, Meloni chiude vicenda dolorosa’
+-  Zara ponovno otvara svoje trgovine u Ukrajini od 1. travnja
+-  Hoe een transfervrije Nederlander na een jaar onzekerheid in Dubai belandde
+-  ಮಂಗನ ಕಾಯಿಲೆ ಅಥವಾ Monkey Fever (ಕುಶಲವೇ ಕ್ಷೇಮವೇ)
+-  Vandalism quashed by celebration of diversity a middle school in Langford
+-  13 yaşındaki çocuk av tüfeğiyle vuruldu
+-  Darmkrebs: Fünf Tipps, um einem Tumor vorzubeugen
+-  Cruzeiro acelera busca por atacante! Fim da janela de transferências próximo
+-  Grade 12 Frances Kelsey student dies in highway crash near Shawnigan Lake
+-  Zašto će 2024. biti godina bitcoina
+-  Mercato : Un joueur du PSG propose un transfert surprise !
