@@ -1,11 +1,11 @@
 # Latest News
--  PH swimmers collect 6 medals in AAGC
--  الرياض يخطف انتصار من الأخدود بثنائية في روشن
--  Yolanda Díaz defiende a Sánchez y acusa a la oposición de «intentar tumbar al Gobierno»
--  Теннисиста Рублёва сняли с полуфинала турнира в Дубае за оскорбление судьи
--  Ný reglugerð um umferðarmerki tekur gildi í dag
--  Cumbre radical: encuentro militante en El Mollar
--  ماذا قال "ميشيل" مدرب الترجي عن مباراة الغد
--  Bayern: Autofahrer bei Unfall mit Traktor schwer verletzt
--  Kovliar, con fiebre, es la gran duda del Obradoiro para visitar al Girona
--  Президент Финляндии захотел обладать «реальными средствами ядерного сдерживания»
+-  UN salutes B.C. group for coastal estuary protection efforts
+-  Da oggi il passaporto si potrà richiedere alle Poste: ecco il progetto Polis
+-  INVESTOR DEADLINE APPROACHING: Faruqi & Faruqi, LLP Investigates Claims on Behalf of Investors of Lantronix
+-  Neue Schneiderei in Waltroper Innenstadt: Sedef Yenilmez entwarf schon für die Modekette Zara
+-  Tainá Hinckel fala após conquista de vaga para Olimpíadas 2024: “É um sonho”
+-  Pogba, il commento di Cobolli Gigli: «Il vero errore è stato riprenderlo»
+-  Holt Marco Odermatt vorzeitig die kleine Kristallkugel? Der Riesenslalom von Aspen im Ticker
+-  De Kraantjes (Een huis vol) zien we nooit meer terug in Nederland: ‘Meer tijd voor elkaar’
+-  Smart watches are not medical devices but are collecting all our health data
+-  MAJA MARINKOVIĆ 10 PUTA KOSILA OČI! Starleta nije štedela za operacije, evo koliko je HILJADA EVRA potrošila kad se podvuče crta
