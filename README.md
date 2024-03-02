@@ -1,11 +1,11 @@
 # Latest News
--  Zara ponovno otvara svoje trgovine u Ukrajini od 1. travnja
--  Hoe een transfervrije Nederlander na een jaar onzekerheid in Dubai belandde
--  ಮಂಗನ ಕಾಯಿಲೆ ಅಥವಾ Monkey Fever (ಕುಶಲವೇ ಕ್ಷೇಮವೇ)
--  Vandalism quashed by celebration of diversity a middle school in Langford
--  13 yaşındaki çocuk av tüfeğiyle vuruldu
--  Darmkrebs: Fünf Tipps, um einem Tumor vorzubeugen
--  Cruzeiro acelera busca por atacante! Fim da janela de transferências próximo
--  Grade 12 Frances Kelsey student dies in highway crash near Shawnigan Lake
--  Zašto će 2024. biti godina bitcoina
--  Mercato : Un joueur du PSG propose un transfert surprise !
+-  Imate li je u kuhinji? Iz prodaje se povlači jedna vrsta soli
+-  Utalványokkal engeszteli ki utasait a BKK
+-  Ivanovićeva Baskonija primila 111 poena na Bosforu, poraz Zvezde,...
+-  Live: Μονακό - Παρί Σεν Ζερμέν
+-  Funérailles d’Alexeï Navalny : plusieurs dizaines d’arrestations lors des hommages en Russie
+-  Whakaari Yanardağı patlamasında tur şirketleri 7,8 milyon dolar tazminat ödeyecek
+-  Funérailles d’Alexeï Navalny : plusieurs dizaines d’arrestations lors des hommages en Russie
+-  Funérailles d’Alexeï Navalny : plusieurs dizaines d’arrestations lors des hommages en Russie
+-  Jovem detido por abuso sexual de uma criança de 12 anos em Chaves
+-  Funérailles d’Alexeï Navalny : plusieurs dizaines d’arrestations lors des hommages en Russie
