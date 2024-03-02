@@ -1,11 +1,11 @@
 # Latest News
--  बिहार में 1 अप्रैल से सस्ती बिजली मिलेगी:टैरिफ रेट में 2% की कमी, विद्युत विनियामक आयोग का फैसला, बिजली कंपनियों का प्रस्ताव खारिज
--  Corinthians aprimora cobranças de falta para 'furar' a retranca do Santo André
--  Saga Vanninen paljasti – tämän takia hän murjotti kesken MM-sensaation
--  ดันไทยฮับการบิน นายกฯ ชู 5 ปี สุวรรณภูมิท็อป 20 ขยายสนามบินทุกภูมิภาค
--  Jurgen Klopp gives 'rather serious' Alisson Becker injury update as Liverpool sale dismissed
--  मधेपुरा-मुरलीगंज रेलखंड पर भैरोपट्टी के पास की घटना:पति ने सिम कार्ड तोड़कर फेंका तो बेटी के साथ पत्नी ट्रेन के आगे कूदी, दोनों की मौत
--  結婚直後にSBを戦力外 妻は涙
--  Le Creuset's new Everyday Enamelware line will make your summer spread pop - CNET
--  Love Island couple in major SPLIT clue – as one of the villa’s most promising romances looks to be in tatters
--  Solana Surges 30%: How High Can SOL Go This Weekend?
+-  Sem Carelli, Carpini prepara o São Paulo com '4 centroavantes' para clássico com o Palmeiras
+-  El desacuerdo entre Francia y Alemania llega en el peor momento para Ucrania
+-  Aaj Ka Rashifal,2 मार्च 2024: मेष, तुला, कुंभ समेत इन राशियों के लिए दिन रहेगा शुभ, पढ़े अपना आज का राशिफल
+-  Ayat Alquran dan Hadits Singkat Padat Ini Selaras Jelaskan Siapa Yahudi dan Nasrani
+-  الأمن: ضبط شخص اعتدى على 4 مصلين في أحد مساجد الرصيفة
+-  આફ્રિકા બેઠેલા ઇશાકના ડ્રગ્સનું નેટવર્ક સંભાળનારની ધરપકડ
+-  بورصات أوروبا.. المؤشر ستوكس يسجل أعلى مستوى على الإطلاق
+-  Janet Yellen y el 'friendshoring' de Chile
+-  Verstappen inicia la defensa de su título en la Fórmula 1 con una ‘pole’ en Baréin #1Mar
+-  Maroc : Marjane ouvre son premier hypermarché à Laâyoune
