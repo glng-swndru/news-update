@@ -1,11 +1,11 @@
 # Latest News
--  3 hatalmas baki, amit takarítás közben szinte mindenki elkövet
--  Betyg: Det skorrar lite falskt och lite skånskt
--  Wochenenddienste - Ärztenotdienste am 2. und 3. März im Bezirk Scheibbs
--  Nana's ranked Watford's number 1 restaurant - here's why
--  Fekete
--  Jean-Pierre Raffarin rend hommage à Jean-Pierre Soisson, Paris-Nice, nuages... Les infos pratiques de ce samedi 2 mars
--  کلنجارهای ارتش آمریکا با هوش مصنوعی
--  3 hatalmas baki, amit takarítás közben szinte mindenki elkövet
--  3 hatalmas baki, amit takarítás közben szinte mindenki elkövet
--  V sobotu bude teplo a oblačno
+-  VERNICI DANAS SLAVE DVA VELIKA SVECA: Običaji nalažu da se obavezno uradi JEDNA STVAR, nemojte se ogrešiti
+-  Pred 80 rokmi sa narodil charizmatický herec Pavol Mikulík
+-  В Японии близ горы Кадзафуки сошла лавина
+-  पहिलो ओभरमै करण केसीले लिए दुई विकेट
+-  Brutális fizetések, titkos paktumok, Hamilton atombombája − indul az F1-szezon
+-  Phát hiện đường dây mua bán "hàng nóng" do một 9X ở TP HCM cầm đầu
+-  Udine, raccolta dei rifiuti “casa per casa”: inchiesta per frode sull’appalto Net, 4 indagati
+-  Elon Musk, ChatGPT'yi geliştiren OpenAI'a dava açtı
+-  Sới bạc “lộ thiên” công viên Hoà Bình: Tạm giữ hình sự 5 đối tượng sau phản ánh của Dân Việt
+-  NCT 위시, 패기 넘치네…데뷔곡 퍼포먼스 공개
