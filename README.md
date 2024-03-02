@@ -1,11 +1,11 @@
 # Latest News
--  Boeing in Talks to Buy Troubled Supplier Spirit AeroSystems - WSJ - The Wall Street Journal
--  Amir to participate in GECF Summit Saturday
--  Salon de l'agriculture. Christophe Béchu et Marc Fesneau visés par des jets d'oeufs
--  Остин уже приготовил «пробирку Пауэлла»: Зачем шеф Пентагона изо всех сил пугает американцев войной с русскими
--  La ciudad revisa el plan para trasladar a San Lázaro la gasolinera de Vegueta
--  Dewa United Cetak Rekor Mentereng, Jan Olde Riekerink Optimistis Bungkam Persija
--  Cənub Qaz Dəhlizi həmrəyliyin və əməkdaşlığın parlaq nümunəsidir
--  EuroMed: İsrail'in yardım için bekleyen sivilleri vurduğunu doğruladık
--  Société. Punaises de lit : le gouvernement accuse la Russie d'avoir « amplifié » la psychose
--  Salon de l'agriculture. Christophe Béchu et Marc Fesneau visés par des jets d'oeufs
+-  PH swimmers collect 6 medals in AAGC
+-  الرياض يخطف انتصار من الأخدود بثنائية في روشن
+-  Yolanda Díaz defiende a Sánchez y acusa a la oposición de «intentar tumbar al Gobierno»
+-  Теннисиста Рублёва сняли с полуфинала турнира в Дубае за оскорбление судьи
+-  Ný reglugerð um umferðarmerki tekur gildi í dag
+-  Cumbre radical: encuentro militante en El Mollar
+-  ماذا قال "ميشيل" مدرب الترجي عن مباراة الغد
+-  Bayern: Autofahrer bei Unfall mit Traktor schwer verletzt
+-  Kovliar, con fiebre, es la gran duda del Obradoiro para visitar al Girona
+-  Президент Финляндии захотел обладать «реальными средствами ядерного сдерживания»
