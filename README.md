@@ -1,11 +1,11 @@
 # Latest News
--  Polícia prende quatro pessoas ligadas à milícia de Ronnie Lessa e Suel
--  S&P Global: PMI industrial do Brasil sobe de 52,8 em janeiro a 54,1 fevereiro, pico em 20 meses
--  Jeddah's Middle Corniche waterfront to close for maintenance from Sunday
--  Green Link Walk launched by TfL to extend Walk London Network
--  20-year incumbent faces challenger in Morgan County school board race
--  Dinh thự 70 triệu USD của người sáng lập Evergrande bị rao bán
--  Dünyanın en büyük 10 stadyumu
--  Navalny begraven in Moskou
--  Udovica Navalnog objavila potresnu oproštajnu poruku: "Ne znam kako živjeti bez tebe"
--  Πώς η τηλεοπτική “Δυναστεία” άλλαξε τα σπίτια της Εκάλης τη δεκαετία του ’80
+-  I danni all'agricoltura di cinghiali e lupi: servono soluzioni. Chiesto un tavolo tecnico alla regione
+-  Moreninhas recebe quadra recreativa que atenderá crianças
+-  Inflação na zona do euro segue em baixa em fevereiro, a 2,6%
+-  Путин подписал указ о призыве на военные сборы граждан, пребывающих в запасе
+-  Ważna zmiana na granicy. Jest decyzja MSWiA
+-  Menteşe'de trafik kazası: 1 yaralı
+-  Nvidia GeForce RTX 4060 Ti: Die kleinste 16-GB-GeForce ist jetzt ab 423 Euro erhältlich
+-  MIKK MARRAN ⟩ RMK ei taha Saarnaki pärandkultuuri objektile ajutist lahendust
+-  Elon Musk sues OpenAI and Sam Altman, claiming "stark betrayal" of the AI company's mission
+-  Inflação na zona do euro segue em baixa em fevereiro, a 2,6%
