@@ -1,11 +1,11 @@
 # Latest News
--  ذكريات جسر ملون
--  우주소녀 다영·EDEN(안이든), 닥터슬럼프 OST 참여…'사랑한다는 말은' 발표
--  Clássicos em Portugal: Otávio na pele de debutante
--  Славия приема Ботев Пловдив в непредвидим сблъсък
--  Alanya'ya sağanak yağış geliyor
--  Fresh Andi: „Gyerek nélkül is kerek az életem”
--  Neue Feuerwache in Waltrop: Wirtschaftlichste Variante soll Ende März ermittelt sein
--  프로듀싱팀 베이스캠프, 새 싱글 'survive' 발표…제이씨 유카 피처링
--  «Με χτύπησε κουτουλιά με το κράνος»: Καταγγελία φοιτητή στο OPEN για αστυνομική βία
--  Dauerregen setzt Landwirtschaft zu : „Es kommt auf den Boden an“
+-  "Altadis será un nuevo polo de atracción en Sevilla, como las setas de la Encarnación"
+-  'Intimidating' signs put up near Swindon traveller site
+-  Die Magie des Farbewerfens: Im Atelier von Jochen Hein
+-  ВС США нанесли удар по хуситам
+-  BEDAŞ ve AYEDAŞ' tan uyarı geldi: Bugün hazır olun! 21 ilçede akşama kadar sürecek büyük elektrik kesintisi yaşanacak
+-  اللجنة الحكومية بتعز تعلن جاهزيتها لفتح طريقين رئيسيين
+-  Quemando Billetes
+-  Esős napunk lesz, ne hagyja otthon az esernyőjét!
+-  Sensex hits new all-time high, Nifty scales new peak as markets remain upbeat on positive growth data
+-  PBB Prediksi Suhu Bumi di 2024 Lebih Panas, Negara-Negara Dunia Diminta Siaga
