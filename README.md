@@ -1,11 +1,11 @@
 # Latest News
--  Moj dom je moje delo, moj dom je umetnost nasploh
--  Who is Sen. Katie Britt? What to know about the Alabama lawmaker chosen to respond to Biden's State of the Union
--  Bị kiểm tra nồng độ cồn, tài xế bỏ xe, chạy lên chung cư khóa cửa trốn
--  유엔, 주북한 상주조정관에 ‘베테랑 외교관’ 콜롬바노 임명
--  Scottish law firm Holmes Mackillop reveals new director
--  Edinburgh pub demolition for student flats rejected
--  오타니, 결혼 발표 후 첫 시범경기서 3출루 활약…출루율 0.667
--  Temno poglavje ameriške zgodovine
--  İlon Mask “OpenAI”nin rəhbərini məhkəməyə verdi
--  Amazon начнёт тестирование своего спутникового интернета уже в апреле
+-  ذكريات جسر ملون
+-  우주소녀 다영·EDEN(안이든), 닥터슬럼프 OST 참여…'사랑한다는 말은' 발표
+-  Clássicos em Portugal: Otávio na pele de debutante
+-  Славия приема Ботев Пловдив в непредвидим сблъсък
+-  Alanya'ya sağanak yağış geliyor
+-  Fresh Andi: „Gyerek nélkül is kerek az életem”
+-  Neue Feuerwache in Waltrop: Wirtschaftlichste Variante soll Ende März ermittelt sein
+-  프로듀싱팀 베이스캠프, 새 싱글 'survive' 발표…제이씨 유카 피처링
+-  «Με χτύπησε κουτουλιά με το κράνος»: Καταγγελία φοιτητή στο OPEN για αστυνομική βία
+-  Dauerregen setzt Landwirtschaft zu : „Es kommt auf den Boden an“
