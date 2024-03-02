@@ -1,11 +1,11 @@
 # Latest News
--  Ingólfur aftur til Ólafsvíkur
--  Chinas Cyberspione, Spionage, Hacker, Datenleak, Sabotage – Podcast
--  WNBA mock draft: Clark a lock at No. 1, but who comes next? - ESPN
--  Берлин изрази оптимизъм относно мирните преговори Армения - Азербайджан
--  Agression contre Maimouna Ndour Faye : Abdou K Fofana et TAS marquent leur indignation
--  Заседание Кабинета Министров Туркменистана
--  LOVRO KOS SLAVIO U LAHTIJU: Slovenački ski skakač trijumfovao u Finskoj
--  Table toppers Kandy weakened by exit of Captain/Acting Captain
--  FOTOD ⟩ Tallinnas mälestati Aleksei Navalnõid Vene saatkonna ees küünalde ja lilledega
--  Base M5S in rivolta sul Gargano: “Manca il confronto tra iscritti ed eletti”
+-  Handball-Bezirksoberliga: HSV setzt auf die Beckenbauer-Philosophie
+-  7 знака, че Вселената ви защитава и ви дава най-доброто
+-  Italia-Usa: Fitto, 'rientro Forti bellissima notizia, Meloni chiude vicenda dolorosa'
+-  ما دلالات زيارة بن مبارك لموسكو بعد تعيينه رئيساً للحكومة اليمنية؟
+-  DA LI FRANCUSKI SPECIJALCI KREĆU PUT UKRAJINE? Makron sazvao hitan sastanak lidera svih stranaka
+-  Korkunç olay! 8 yaşındaki çocuk sulama havuzuna düştü
+-  Bulgária leállította a kőolajimportot Oroszországból
+-  Пілот Ред Булл виграв першу кваліфікацію сезону Формули-1
+-  United Imaging Intelligence a dévoilé ses solutions de radiologie de nouvelle génération à l'ECR 2024
+-  Italia-Usa: Fitto, ‘rientro Forti bellissima notizia, Meloni chiude vicenda dolorosa’
