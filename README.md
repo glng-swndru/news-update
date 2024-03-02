@@ -1,11 +1,11 @@
 # Latest News
--  MIODRAG KRIVOKAPIĆ: Nerešeno u Dandiju
--  Yangında kullanılamaz hale gelen 3 bloklu apartman tahliye ediliyor
--  Ferrara Nostra, cala il sipario. Savini: “Fiera delle battaglie, ora con Fabbri. Assessorato? Perché no”
--  Der Jason-Radek-Fond sucht neues Ladenlokal: Verein muss Stadtgalerie Datteln verlassen
--  Frutteti protetti contro i danni causati dai cambiamenti climatici: dalla Regione bandi per oltre 70 milioni di euro
--  Muke za Rajakovića - poraz i lom prsta najjačeg aduta; Prst stradao i Vestbruku
--  Später Jungautor: Peter Schröder aus Unna stellt mit Tattoo seinen zweiten Roman vor
--  У россиян появились серьезные проблемы с авиацией
--  Na Ptuju se bodo uresničile Sanje
--  Зеленський відреагував на удар по Одесі
+-  Puy-de-Dôme : un pavillon détruit par un incendie à Saint-Ferréol-des-Côtes
+-  Očuh ubice MMA borca osuđivani vođa navijača "Rada": Nokautirao žandarma na utakmici
+-  Showbiz Việt: Sốt với loạt mỹ nhân khoe eo "con kiến"!
+-  康寧大學捐2.2億！鼓勵就讀嬰幼保育+長照學系 還有獎學金
+-  "احد آزادیخواه" منتخب مردم ملایر شد
+-  В Госдуме оценили вероятность бойкота Олимпиады западными странами
+-  Burak Sakçı minklere tecrübelerini aktardı
+-  Οι περίφημες «φαμ φατάλ» των φιλμ νουάρ: 10 θρυλικές και αξέχαστες πρωταγωνίστριες
+-  Kadınlar bu merkezlerde fazla kilolarından kurtuluyor
+-  Kesin aday listeleri yarın açıklanacak
