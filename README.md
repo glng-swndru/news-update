@@ -1,11 +1,11 @@
 # Latest News
--  One U.S. Ally's Formula for Dealing With Trump: Pull Closer to America
--  Jake White: Bulls need to be street smart against the Stormers
--  TENBY TODAY: All kurled up at Tenby Friendship Club
--  민주, 홍영표 컷오프 확정…'친문' 탈당 선봉장 되나
--  Les infos qui ont pu vous échapper cette semaine en pays de Brest
--  Chung cư mini ‘chống nạng’: Cấp phép 5, chủ đầu tư xây 8 tầng
--  국힘 '현역 불패' 영남서 깨졌다…3선 김용태 고양정 투입
--  Поздняков: Международный олимпийский комитет стал заложником коммерциализациии
--  Tổ công tác đặc biệt gỡ gì cho doanh nghiệp ở Bà Rịa - Vũng Tàu?
--  Biến căng: Sao nam bị tung bằng chứng ngoại tình và quay lén, lộ luôn thông tin đời tư gây sốc sau khi để quên laptop ở nhà bạn gái
+-  Amt für Migration und Flüchtlinge bekommt mehr Stellen
+-  Піолі назвав ціль Мілана в поточному сезоні
+-  İsrail’den Lübnan’a hava saldırısı: Hizbullah'ın 5 üyesi öldürüldü
+-  ‘Enough is enough': Brampton landlord licensing pilot sees broad public support at telephone town hall
+-  Brampton educator finalist for 2024 MusiCounts Teacher of the Year Award
+-  Fala sobre a filha com trissomia 21 e lamenta: "Ainda há muito preconceito"
+-  PEILING Ipsos I&O: PVV blijft maar GROEIEN
+-  Ertuğruloğlu, Antalya Diplomasi Forumu’nda…
+-  V deň Navaľného pohrebu bolo v Rusku zadržaných viac ako 100 ľudí
+-  পূর্ব ইউক্রেনের একটি শহর ঘেরাও করেছে রুশ সেনাবাহিনী
