@@ -1,11 +1,11 @@
 # Latest News
--  İbn Sinanın kitabında yer alan möcüzəvi soğan suyu: Burnunuza çəkin və...
--  Cartón de Tony: Aferrados
--  Иниеста с уникален рекорд - 1000 официални мача
--  Sestdien vietām gaiss uzsils līdz +11 grādiem
--  Muğla'da 6. Hamsi Festivali düzenlenecek
--  Міноборони Естонії прогнозує важкий період для України
--  Fashion icon Iris Apfel dies at 102
--  Apple reverses decision to remove Home Screen web apps in EU - The Register
--  Erzincan'da DHKP/C propagandası yapan 1 kişi tutuklandı
--  Corridas, novilladas : le calendrier et les cartels de la temporada 2024 dans le Sud-Ouest
+-  Degerfors i förarsätet – men kan ställas inför nya kaosminuter: ”Kommer ha koll”
+-  Intel Core i9-14900KS fiyatı ortaya çıktı: Cep yakacak
+-  Heidenheim – Eintracht Frankfurt: horario y dónde ver el partido de la Jornada 24
+-  Espanyol – Huesca: horario y dónde ver el partido de la Jornada 29
+-  Rapina da mezzo milione e fuga su un furgone rubato: caccia ai banditi. Dimesso il vigilante picchiato
+-  Spendenaktion Vest Future auch in Dorsten: Zirkus in der Pestalozzischule
+-  BILDEXTRA: VIF bilder från 2007 till 2009
+-  Edirne'de 18 düzensiz göçmen yakalandı
+-  Moški, rojeni v teh treh astroloških znakih, so najslabši vozniki
+-  Stade de Reims – Lille: horario y dónde ver el partido de la Jornada 24
