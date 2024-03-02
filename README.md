@@ -1,11 +1,11 @@
 # Latest News
--  VERNICI DANAS SLAVE DVA VELIKA SVECA: Običaji nalažu da se obavezno uradi JEDNA STVAR, nemojte se ogrešiti
--  Pred 80 rokmi sa narodil charizmatický herec Pavol Mikulík
--  В Японии близ горы Кадзафуки сошла лавина
--  पहिलो ओभरमै करण केसीले लिए दुई विकेट
--  Brutális fizetések, titkos paktumok, Hamilton atombombája − indul az F1-szezon
--  Phát hiện đường dây mua bán "hàng nóng" do một 9X ở TP HCM cầm đầu
--  Udine, raccolta dei rifiuti “casa per casa”: inchiesta per frode sull’appalto Net, 4 indagati
--  Elon Musk, ChatGPT'yi geliştiren OpenAI'a dava açtı
--  Sới bạc “lộ thiên” công viên Hoà Bình: Tạm giữ hình sự 5 đối tượng sau phản ánh của Dân Việt
--  NCT 위시, 패기 넘치네…데뷔곡 퍼포먼스 공개
+-  İbn Sinanın kitabında yer alan möcüzəvi soğan suyu: Burnunuza çəkin və...
+-  Cartón de Tony: Aferrados
+-  Иниеста с уникален рекорд - 1000 официални мача
+-  Sestdien vietām gaiss uzsils līdz +11 grādiem
+-  Muğla'da 6. Hamsi Festivali düzenlenecek
+-  Міноборони Естонії прогнозує важкий період для України
+-  Fashion icon Iris Apfel dies at 102
+-  Apple reverses decision to remove Home Screen web apps in EU - The Register
+-  Erzincan'da DHKP/C propagandası yapan 1 kişi tutuklandı
+-  Corridas, novilladas : le calendrier et les cartels de la temporada 2024 dans le Sud-Ouest
