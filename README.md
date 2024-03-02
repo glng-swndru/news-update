@@ -1,11 +1,11 @@
 # Latest News
--  Sem Carelli, Carpini prepara o São Paulo com '4 centroavantes' para clássico com o Palmeiras
--  El desacuerdo entre Francia y Alemania llega en el peor momento para Ucrania
--  Aaj Ka Rashifal,2 मार्च 2024: मेष, तुला, कुंभ समेत इन राशियों के लिए दिन रहेगा शुभ, पढ़े अपना आज का राशिफल
--  Ayat Alquran dan Hadits Singkat Padat Ini Selaras Jelaskan Siapa Yahudi dan Nasrani
--  الأمن: ضبط شخص اعتدى على 4 مصلين في أحد مساجد الرصيفة
--  આફ્રિકા બેઠેલા ઇશાકના ડ્રગ્સનું નેટવર્ક સંભાળનારની ધરપકડ
--  بورصات أوروبا.. المؤشر ستوكس يسجل أعلى مستوى على الإطلاق
--  Janet Yellen y el 'friendshoring' de Chile
--  Verstappen inicia la defensa de su título en la Fórmula 1 con una ‘pole’ en Baréin #1Mar
--  Maroc : Marjane ouvre son premier hypermarché à Laâyoune
+-  Al menos 44 personas han muerto por dengue en Perú este año
+-  Диетолог рассказала, полезно ли употреблять оливковое масло натощак
+-  Pogba Responds To Ban
+-  રોબોટ વિશે આટલું જાણો છો? .
+-  મેલેરિયા ફેલાવતો વિશિષ્ટ જંતુ : મચ્છર
+-  Pioli commenta l'arbitraggio: "La partita era nervosa, difficile da gestire. A volte vengono fischiati contatti che..."
+-  लोह पातळी आणि चाचण्या
+-  સૂક્ષ્મ જીવ બેકટેરિયાનો શોધક : રોબર્ટ કોચ
+-  Lengjubikarinn: Haukar með fullt hús stiga - Ýmir skoraði níu
+-  Cuiabá pode ter a primeira aldeia indígena urbana do Brasil
