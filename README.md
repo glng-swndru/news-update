@@ -1,11 +1,11 @@
 # Latest News
--  I danni all'agricoltura di cinghiali e lupi: servono soluzioni. Chiesto un tavolo tecnico alla regione
--  Moreninhas recebe quadra recreativa que atenderá crianças
--  Inflação na zona do euro segue em baixa em fevereiro, a 2,6%
--  Путин подписал указ о призыве на военные сборы граждан, пребывающих в запасе
--  Ważna zmiana na granicy. Jest decyzja MSWiA
--  Menteşe'de trafik kazası: 1 yaralı
--  Nvidia GeForce RTX 4060 Ti: Die kleinste 16-GB-GeForce ist jetzt ab 423 Euro erhältlich
--  MIKK MARRAN ⟩ RMK ei taha Saarnaki pärandkultuuri objektile ajutist lahendust
--  Elon Musk sues OpenAI and Sam Altman, claiming "stark betrayal" of the AI company's mission
--  Inflação na zona do euro segue em baixa em fevereiro, a 2,6%
+-  Lady Gabriella Windsor's husband Thomas Kingston cause of death revealed
+-  La "evaluación" que hizo Pablo Frontini de Temperley
+-  INVESTOR DEADLINE APPROACHING: Faruqi & Faruqi, LLP Investigates Claims on Behalf of Investors of Hut 8
+-  Study finds over a billion people worldwide are obese
+-  Tarjoustuote täysin laskutaidottomille? Näin Rusta selitti ”inhimillistä virhettä”
+-  Carille confirma Cazares como camisa 10 do Santos contra o Bragantino
+-  PARKIRAĆEMO I DVA AUTOBUSA PROTIV ZVEZDE AKO TREBA! Lazetić se javio: Mi imamo svoju TABELU, njima je bitno za titulu!
+-  Grow Your Savings Faster With APYs up to 5.5% - Best CD Rates Today, March 1, 2024 - CNET
+-  Dragon's Dogma 2 And 26 More Games To Get Hyped For In March
+-  "Nessun errore". Strage di Erba, la verità del Pg di Brescia
