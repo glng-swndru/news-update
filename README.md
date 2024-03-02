@@ -1,11 +1,11 @@
 # Latest News
--  Repülőkről fogja a segélyeket Gázára dobni az amerikai hadsereg az elkövetkező napokban
--  Subota je istorijski dan za fudbal! Sprema se revolucija!
--  "신체 사진 가지고 있다"는 '배우 L씨'가 이서진?..소속사, 강경대응 예고
--  Turabi'den küfürlü açıklama geldi!
--  Duna House: februárban 10 754 ingatlan cserélt gazdát
--  Palermo: mueren dos obreros en un derrumbe de una obra en constrcción
--  مقدمات النشرات المسائيّة
--  Coronation Street legend sacked over use of underhanded practices
--  Tem novo trabalho (surpreendente) e explica: "Sou atriz mas..."
--  Duits defensieministerie gaat na of communicatie luchtmacht wordt afgeluisterd door Russen
+-  2021 Boğasına Damga Vuran Pazaryeri Bitti Mi? Tam Yüzde 33 Düştü!
+-  Qatar reaffirms its support for Afghan people
+-  U.S. stocks close higher
+-  Le C'Chartres TT croqué par les Loups d'Angers
+-  Milei cuestionó la creación de universidades que "se ha convertido en un negocio de la política"
+-  САЩ ще пускат храна от самолети в Газа
+-  Τάκης Παπαματθαίου: Έπαιζα με 40 πυρετό χωρίς να ξέρω ότι είναι πνευμονία
+-  Grosso bug per Xiaomi: un aggiornamento causa il bootloop per diversi smartphone
+-  Atama kararları Resmi Gazete'de: 4 ile yeni emniyet müdürü atandı
+-  ALARM U BUNDESVERU: Kontraobaveštajci proveravaju moguće presretanje razgovora nemačkih oficira
