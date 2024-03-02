@@ -1,11 +1,11 @@
 # Latest News
--  Amt für Migration und Flüchtlinge bekommt mehr Stellen
--  Піолі назвав ціль Мілана в поточному сезоні
--  İsrail’den Lübnan’a hava saldırısı: Hizbullah'ın 5 üyesi öldürüldü
--  ‘Enough is enough': Brampton landlord licensing pilot sees broad public support at telephone town hall
--  Brampton educator finalist for 2024 MusiCounts Teacher of the Year Award
--  Fala sobre a filha com trissomia 21 e lamenta: "Ainda há muito preconceito"
--  PEILING Ipsos I&O: PVV blijft maar GROEIEN
--  Ertuğruloğlu, Antalya Diplomasi Forumu’nda…
--  V deň Navaľného pohrebu bolo v Rusku zadržaných viac ako 100 ľudí
--  পূর্ব ইউক্রেনের একটি শহর ঘেরাও করেছে রুশ সেনাবাহিনী
+-  Amenazas persisten en zona de deslizamiento en Aguas Zarcas
+-  Ovih 35 ljudi su ušli u Dinamovu Skupštinu bez da su birani
+-  SKY - Napoli-Juventus, ultimissime di formazione: Calzona ne cambia due (GRAFICO)
+-  A nők mondanak igazán lesújtó véleményt a magyar felsőoktatásról - vajon miért?
+-  औरंगाबाद में तेजस्वी यादव पर जमकर बरसे पीएम मोदी, कहा- 'परिवारवादी लोगों की राजनीति को बिहार ने नकारा'
+-  [내일 날씨]오전까지 대부분 지역에 비·눈…꽃샘추위 꺾인다
+-  Women mean business: How DWP Jobcentres can help you overcome barriers to work
+-  Karaköy Projesi Anıtlar Kurulu'nda
+-  Yalın: Konserlerim evlendirme dairesine döndü
+-  Centre, Tripura and TIPRA Motha sign pact to address tribal community’s grievances
