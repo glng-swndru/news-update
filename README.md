@@ -1,11 +1,11 @@
 # Latest News
--  The Switchin omistaja vaihtuu – Lappeenrannan tehtaan kasvun eväät löytyvät nyt maailman meriltä
--  La alianza británica, el puño de hierro de Escrivá y la falta de modelo en las telecos
--  Álex Miñana, el realizador televisivo que pasó de ‘Crónicas marcianas’ y ‘El hormiguero’ a Twitch
--  Mercato - PSG : Le transfert d’une star pour 2025 ?
--  ‘Reina roja’ quiere ser muchas cosas y se queda en un entretenido cliché
--  Barcelona Diminta Lepas Pemain Bintang Demi Pangkas Pengeluaran, Frenkie de Jong dan Robert Lewandowski Masuk Daftar?
--  La grandeza y su antípoda
--  Benarkan Jual Rumah Mewahnya yang Viral, Ustadz Solmed Singgung Soal Keuntungan yang Didapat
--  Ngày 12-3, xử phúc thẩm vụ thiếu tá quân đội tông chết nữ sinh Ninh Thuận
--  Planen in Düsseldorf : Hochhäuser ängstigen Bürger
+-  Moj dom je moje delo, moj dom je umetnost nasploh
+-  Who is Sen. Katie Britt? What to know about the Alabama lawmaker chosen to respond to Biden's State of the Union
+-  Bị kiểm tra nồng độ cồn, tài xế bỏ xe, chạy lên chung cư khóa cửa trốn
+-  유엔, 주북한 상주조정관에 ‘베테랑 외교관’ 콜롬바노 임명
+-  Scottish law firm Holmes Mackillop reveals new director
+-  Edinburgh pub demolition for student flats rejected
+-  오타니, 결혼 발표 후 첫 시범경기서 3출루 활약…출루율 0.667
+-  Temno poglavje ameriške zgodovine
+-  İlon Mask “OpenAI”nin rəhbərini məhkəməyə verdi
+-  Amazon начнёт тестирование своего спутникового интернета уже в апреле
