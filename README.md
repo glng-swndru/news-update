@@ -1,11 +1,11 @@
 # Latest News
--  Imate li je u kuhinji? Iz prodaje se povlači jedna vrsta soli
--  Utalványokkal engeszteli ki utasait a BKK
--  Ivanovićeva Baskonija primila 111 poena na Bosforu, poraz Zvezde,...
--  Live: Μονακό - Παρί Σεν Ζερμέν
--  Funérailles d’Alexeï Navalny : plusieurs dizaines d’arrestations lors des hommages en Russie
--  Whakaari Yanardağı patlamasında tur şirketleri 7,8 milyon dolar tazminat ödeyecek
--  Funérailles d’Alexeï Navalny : plusieurs dizaines d’arrestations lors des hommages en Russie
--  Funérailles d’Alexeï Navalny : plusieurs dizaines d’arrestations lors des hommages en Russie
--  Jovem detido por abuso sexual de uma criança de 12 anos em Chaves
--  Funérailles d’Alexeï Navalny : plusieurs dizaines d’arrestations lors des hommages en Russie
+-  Saône-et-Loire. Miss Saône-et-Loire ce soir : les 12 prétendantes se dévoilent
+-  Az MLSZ megtalálta Gera Zoltán utódját
+-  KO(Š)MENTAR: Zadarski stroj melje i juri prema senzaciji, žuti im nisu dorasli protivnik
+-  Sisu 2024: UFPE informa data de publicação do edital para convocação da Lista de Espera
+-  Oferta: Final Fantasy VII Rebirth acaba de salir y ya bajó de precio; aprovecha el descuento
+-  S tržišta se povlači ova vrsta soli
+-  « Annulation des élections de représentativité syndicale »: Les précisons du ministère du travail
+-  Lekapcsolták a „bűnözők Amazonját”, százezreknél kopogtathat a rendőrség
+-  Świątek pokazała, jak relaksuje się przed kolejnym turniejem. Co za widoki! (ZDJĘCIA)
+-  Svete pripremi se! Više nije pitanje hoće li, već kada početi rat sa Rusijom: Šef Pentagona potvrdio
