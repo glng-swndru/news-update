@@ -1,11 +1,11 @@
 # Latest News
--  كلام ميقاتي يكشف معطيات متناقضة بين الجهود الدولية للهدنة والتصعيد الميداني
--  Gazze'deki Sağlık Bakanlığı sözcüsü uyardı: BM derhal harekete geçmeli! Kuzeyde binlerce Filistinli ölümle karşı karşıya
--  Fernández: desplegaron un gran operativo de descacharreo, limpieza y fumigación en el barrio Águila
--  Klasemen Liga 1: Atas Panas, Bawah Keras
--  [김호중, 클래식 단독쇼 ‘더 심포니’ 개최…KBS 교향악단과 협업
--  [40억 청담아파트 29억에 경매나왔다…이것 모르면 낭패! [부동산360]
--  [[속보] 민주, 이재명 계양을 단수공천
--  Papa Francisco advierte sobre el ‘peor de los peligros': la ideología de género
--  Seeds of connection bridging cultures and communities
--  Empresarios del comercio y el campo respaldaron a Milei y enviaron un mensaje a gobernadores
+-  Descubre qué te depara el horóscopo de hoy según tu signo
+-  Igualdad quiere penalizar a los puteros como vía abolicionista
+-  Lazio Vs AC MIlan: Pioli Ngamuk Pulisic Disebut Tak Sportif
+-  ENVIRONNEMENT - Des arbres plantés à l’entrée de Toliara
+-  La leyenda Celsa García presenta su libro en Llanes
+-  Beer keg bandits: gardaí probe whether gang caught on CCTV are linked to years of thefts nationally
+-  Kathy Donaghy: Technology can exacerbate or alleviate loneliness, but it’s up to us to get the balance right
+-  Regionalplan: Kiesfirma befürchtet massive Umweltbelastung
+-  Arpaviejas llena de adrenalina Studio 54
+-  Global Bioprocess Validation Market Research Report 2022-2024 and 2030: Biosimilars Gain from Patent Expiry of Major Drugs, Driving Gains for Bioprocess Validation
