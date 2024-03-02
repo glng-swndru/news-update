@@ -1,11 +1,11 @@
 # Latest News
--  Delo.ua та журнал «ТОП-100. Рейтинги найбільших» нагородили переможців рейтингу «ТопФінанс»
--  Atriz de 72 anos recebe ordem de despejo: "Vim para cá em 1971..."
--  Φορέας υποδοχής το Στ’ Δημοτικό Σχολείο Λεμεσού (ΚΒ) - Αγ. Νικολάου
--  Discussion | Health insurance may get a lot more expensive
--  Dans le Brivadois, le PETR du Pays de Lafayette travaille sur son nouveau contrat local de santé
--  Saturday's Scottish Premiership predictions including Rangers vs. Motherwell
--  Abyste ve VR nevráželi do stěn. S podložkou HoloTile chodíte do všech stran, stejně vás udrží na místě
--  Костюк наказала Павлюченкову и пробилась в полуфинал турнира в Сан-Диего
--  Danas isplata penzija za samostalce na tekući račun
--  Непомнящий: «Среди тренеров РПЛ я бы выделил Юрана и Осинькина»
+-  Uomo ucciso nell'Astigiano, la figlia è in stato d'arresto
+-  Draper withdraws from Mexican Open semi-final with illness
+-  Danes suh le ta del Slovenije, kmalu spet pod ničlo
+-  A história da colecção de arte que era para o Chiado e acabou em Serralves
+-  Секретарь Совбеза РА: Система безопасности Армении полностью рухнула
+-  Green Brigade claims of 'police brutality' after fan arrest dismissed
+-  IO SO’ GIORGIA E I GIORNALISTI NON SONO UN CAZZO – DOPO IL FACCIA A FACCIA CON BIDEN NELLO STUDIO OVALE, LA DUCETTA ANNULLA IL PUNTO STAMPA – UNA MOSSA SENZA PRECEDENTI, PER EVITARE L'IMBARAZZO DELLE DOMANDE SULLE TENSIONI CON MATTARELLA, INCAZZATO NERO PER GLI ATTACCHI SCOMPOSTI DELLA MELONI. DOMANDE CHE AVREBBERO OSCURATO IL VIAGGIO-SPOT ALLA CASA BIANCA (APPUNTAMENTO DI PRASSI PER IL PRESIDENTE DEL G7) – LO STUPORE DEI CRONISTI AMERICANI – LE PRESSIONI DI SLEEPY JOE PER STRAPPARE ALLA RUSSIA I FONDI DELLA BANCA CENTRALE DI MOSCA CONGELATI NEGLI ISTITUTI EUROPEI…
+-  Detoks pluća: Možete li ih zaista očistiti i poništiti nastalo oštećenje?
+-  To się dzieje. Koszmarne wieści dla Hurkacza. Rywal już go dopadł, a to nie koniec
+-  Kontroverzna učesnica poznatog šoua otvorena za vezu sa ženom VIDEO
