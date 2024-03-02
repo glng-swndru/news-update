@@ -1,11 +1,11 @@
 # Latest News
--  Đào tạo tiểu thương bán hàng online
--  MA CHE ALTRO BISOGNA FARE PER ESSERE ESPULSI DA QUESTO PAESE! - JAMAL KILAL, IL 30ENNE MAROCCHINO CHE GLI ANARCHICI HANNO PROVATO A LIBERARE A TORINO PRENDENDO D’ASSALTO UN’AUTO DELLA POLIZIA, HA UN CARNET DI CONDANNE: STUPRO DI GRUPPO, RAPINE, FURTI, VIOLENZA, DANNEGGIAMENTO ED EVASIONE – SU DI LUI PENDEVA UN PROVVEDIMENTO DI ESPULSIONE, MA GLI È BASTATO TRASFERIRSI IN UN’ALTRA CITTÀ PER RICOMINCIARE A DELINQUERE E…
--  Calamocha marca el inicio de la temporada aragonesa
--  Orbán Viktortól kapott támogatást a rasszista nyilatkozat miatt eltiltott Mészöly Géza
--  Chây ỳ lên sàn, doanh nghiệp bị phạt 350 triệu đồng
--  Lavrova Makronla bağlı sual verildi: Güldü
--  ÚKOZP chce zastupovať svojich klientov pred Ústavným súdom SR
--  Белоруссия повысила минимальные экспортные цены на молочную продукцию
--  «Lupi a due passi dal centro abitato», Ganis posta la foto su Facebook
--  Χρήστος Καπενής στο ethnos.gr: «Θα άλλαζα τον φανατισμό και τον φόβο σε κάθε τι διαφορετικό»
+-  One U.S. Ally's Formula for Dealing With Trump: Pull Closer to America
+-  Jake White: Bulls need to be street smart against the Stormers
+-  TENBY TODAY: All kurled up at Tenby Friendship Club
+-  민주, 홍영표 컷오프 확정…'친문' 탈당 선봉장 되나
+-  Les infos qui ont pu vous échapper cette semaine en pays de Brest
+-  Chung cư mini ‘chống nạng’: Cấp phép 5, chủ đầu tư xây 8 tầng
+-  국힘 '현역 불패' 영남서 깨졌다…3선 김용태 고양정 투입
+-  Поздняков: Международный олимпийский комитет стал заложником коммерциализациии
+-  Tổ công tác đặc biệt gỡ gì cho doanh nghiệp ở Bà Rịa - Vũng Tàu?
+-  Biến căng: Sao nam bị tung bằng chứng ngoại tình và quay lén, lộ luôn thông tin đời tư gây sốc sau khi để quên laptop ở nhà bạn gái
