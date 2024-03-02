@@ -1,11 +1,11 @@
 # Latest News
--  Wahlkampf - Zwettler Volkspartei geht auf Ideensammlungs-Tour durch die Gemeinde
--  "Sanatorium miłości". To tu zamieszkali uczestnicy. Nie każdego stać na taki pobyt
--  Pointing fingers, tracking debt levels
--  Prince William 'extremely concerned' about U.K.'s soaring antisemitism
--  ‘Life changing’: People with diabetes greet treatment coverage with joy
--  Илиян Тодоров, убиецът от "Соло", лети към България
--  Valentina Romani i capelli sono il focus del suo look con Kerastase
--  Bad Bunny será presentador en la gala del Oscar
--  ‘Bachelor’ Joey Graziade explains the yellow tone of his eyes caused by Gilbert syndrome
--  The Best Headphones for Travel
+-  Boeing in Talks to Buy Troubled Supplier Spirit AeroSystems - WSJ - The Wall Street Journal
+-  Amir to participate in GECF Summit Saturday
+-  Salon de l'agriculture. Christophe Béchu et Marc Fesneau visés par des jets d'oeufs
+-  Остин уже приготовил «пробирку Пауэлла»: Зачем шеф Пентагона изо всех сил пугает американцев войной с русскими
+-  La ciudad revisa el plan para trasladar a San Lázaro la gasolinera de Vegueta
+-  Dewa United Cetak Rekor Mentereng, Jan Olde Riekerink Optimistis Bungkam Persija
+-  Cənub Qaz Dəhlizi həmrəyliyin və əməkdaşlığın parlaq nümunəsidir
+-  EuroMed: İsrail'in yardım için bekleyen sivilleri vurduğunu doğruladık
+-  Société. Punaises de lit : le gouvernement accuse la Russie d'avoir « amplifié » la psychose
+-  Salon de l'agriculture. Christophe Béchu et Marc Fesneau visés par des jets d'oeufs
