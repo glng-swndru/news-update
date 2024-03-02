@@ -1,11 +1,11 @@
 # Latest News
--  Cuộc đổ bộ thất bại đau đớn khiến quân Ukraine tháo chạy tán loạn, 20 biệt kích thiệt mạng ở Kherson
--  Viral video: Elephant stops trucks to steal sugarcane, internet reacts
--  В России участились случаи подделки запчастей
--  복지부 “의협 압수수색, 의사 압박 아냐”···내일 의사 2만명 집회
--  Anganewadi Jatra : सिंधुदुर्गातील आंगणेवाडीत भराडीदेवीची यात्रा, दर्शनासाठी सकाळपासूनच मोठी गर्दी
--  American fashion icon Iris Apfel has died aged 102 at her Palm Springs home
--  Xanh SM Laos Launches Electric Taxi Service In Savannakhet
--  Soal PPKN Kelas 7 SMP Kurikulum Merdeka Semester Genap dan Kunci Jawaban
--  禪師「40-20法則」定律 冠軍法則能生效嗎
--  Dani Barretto Shows Support For Pura Luka Vega After Latter Was Arrested Again
+-  Se retiran de la competencia
+-  Jimat banyak di Pusat Pakaian Hari-Hari
+-  Hampshire M3 and M27 road closures for March 2 and 3
+-  L’éphéméride du 2 mars : il y a 55 ans, l’avion supersonique « Concorde » prend son envol pour la première fois
+-  Boligen i Selnesveien er akkurat solgt – dette ble prisen
+-  Chồng Nam Em nói cuộc đời vốn bình yên trước khi vợ đến, khẳng định đọc được suy nghĩ của đối phương
+-  Originelle Idee: Erstes „Candle-Light-Shopping“ in Quickborn
+-  Zaťovič se dočkal vstupu do Klubu střelců: Nevěřil jsem, že to zvládnu…
+-  Mercato - OM : Le vestiaire balance sur la signature de Gasset
+-  Skylark Golf Club in Whiteley announces new ownership
