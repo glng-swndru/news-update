@@ -1,11 +1,11 @@
 # Latest News
--  Al menos 44 personas han muerto por dengue en Perú este año
--  Диетолог рассказала, полезно ли употреблять оливковое масло натощак
--  Pogba Responds To Ban
--  રોબોટ વિશે આટલું જાણો છો? .
--  મેલેરિયા ફેલાવતો વિશિષ્ટ જંતુ : મચ્છર
--  Pioli commenta l'arbitraggio: "La partita era nervosa, difficile da gestire. A volte vengono fischiati contatti che..."
--  लोह पातळी आणि चाचण्या
--  સૂક્ષ્મ જીવ બેકટેરિયાનો શોધક : રોબર્ટ કોચ
--  Lengjubikarinn: Haukar með fullt hús stiga - Ýmir skoraði níu
--  Cuiabá pode ter a primeira aldeia indígena urbana do Brasil
+-  地震大国日本、今の住まいの注意点と対策 マンションでは在宅避難を念頭に
+-  運転手にもFAや二刀流 交通業者
+-  Billiat To Return To Warriors Fold?
+-  Cacat penglihatan tetapi mampu baca al-Quran
+-  Prosecutors press judge for summer trial for Trump in classified docs case, but no date set
+-  Opinion: Why boards, C-suite leaders must cultivate a sustainability culture
+-  Frontier Tournament: No. 1 Montana Tech survives, earns chance to three-peat
+-  SOMBORAC (47) I BAČKOTOPOLČANIN (32) UHAPŠENI ZBOG SUMNJE DA SU DILERI DROGE Policija im našla kokaina i dve digitalne vagice
+-  Pedestrian killed after crash involving pickup truck in Victoria
+-  La escalada verbal
