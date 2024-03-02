@@ -1,11 +1,11 @@
 # Latest News
--  Morsko dobro završilo pripreme za tendere, čekaju "zeleno svjetlo"...
--  KKV: Käytettyjen autojen kaupassa piintyneitä ongelmia, joissa ostajille valehdellaan – tässä ovat autokaupan yleisimmät ongelmatilanteet
--  Karim Wade : « l'attaque contre Maimouna Ndour Faye est une attaque contre tous »
--  Pasquetta a Lu Mbroia con Giancarlo Paglialunga trio
--  Motorsport: Die neue Formel-1-Saison bietet reichlich Zündstoff – vor allem neben der Rennstrecke
--  4 Reasons You Shouldn't Give Up on Teladoc Stock
--  Dachbodentheater im Schäferhof Oberhone startet in seine 25. Spielzeit
--  Here's what you can buy for less than $500,000 in nine Ottawa neighbourhoods
--  Hunian Ikonik Baru Hadir di Lokasi Strategis Jakarta Selatan
--  Bonito é tão Disney que só falta bagre sair da água e cantar
+-  Polícia prende quatro pessoas ligadas à milícia de Ronnie Lessa e Suel
+-  S&P Global: PMI industrial do Brasil sobe de 52,8 em janeiro a 54,1 fevereiro, pico em 20 meses
+-  Jeddah's Middle Corniche waterfront to close for maintenance from Sunday
+-  Green Link Walk launched by TfL to extend Walk London Network
+-  20-year incumbent faces challenger in Morgan County school board race
+-  Dinh thự 70 triệu USD của người sáng lập Evergrande bị rao bán
+-  Dünyanın en büyük 10 stadyumu
+-  Navalny begraven in Moskou
+-  Udovica Navalnog objavila potresnu oproštajnu poruku: "Ne znam kako živjeti bez tebe"
+-  Πώς η τηλεοπτική “Δυναστεία” άλλαξε τα σπίτια της Εκάλης τη δεκαετία του ’80
