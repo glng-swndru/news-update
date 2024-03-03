@@ -1,11 +1,11 @@
 # Latest News
--  Gulácsiék győztek, Schäferék nagy csatában kikaptak
--  Es gibt derzeit nichts, was den Markt vom Kurs abbringt
--  Awantura przed konwencją PiS: Ogłoszono alarm. "Tak działają prowokatorzy"
--  انفجار خانه بمب‌گذاری‌شده به روی نظامیان صهیونیست از سوی قسام
--  Харлан завоювала бронзу Кубку світу
--  Premier League: Pas greșit pentru Chelsea / Rezultatele zilei
--  Serie C, 29ª giornata - Tutti in extremis. Vince il Pontedera, pareggiano Olbia e Gubbio
--  KAKAV ŠOK U PREMIJER LIGI: Nunjez spasao Liverpul u 99. minutu i prekinuo 40-godišnje prokletstvo
--  'U jaslicama više neće biti mjesta, pa u selu od 350 kuća moramo graditi već četvrti vrtić'
--  Flaş… Flaş… İstanbul’da doğal gaz patlaması
+-  Quatre projets d’investissement envisagés par le CPAS la hulpois : 1.2 millions d’euros sont prévus
+-  Precaución en la A-6 y diversión en Pedrafita do Cebreiro: así llega la nieve a la montaña de Lugo
+-  Wake up, poor sleepers: Uncovering the real causes behind insomnia and avoiding quick fixes
+-  [QUIZ] Te kultowe dobranocki oglądał (prawie) każdy Polak. Sprawdź, co z nich pamiętasz
+-  מחצית ראשונה: מכבי ת"א - מכבי פ"ת 0:0
+-  সহকারী পুলিশ সুপার হলেন ৩৭ পরিদর্শক
+-  برنامج النقل التلفزي لمباريات الدولة الاولى من مرحلة البلاي اوف
+-  Guardalà: «Yildiz o Chiesa? Allegri orientato a schierare lui vicino Vlahovic»
+-  Here are Google’s custom Android pins from MWC 2024 [Gallery]
+-  Полиция приведена в состояние повышенной готовности
