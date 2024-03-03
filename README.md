@@ -1,11 +1,11 @@
 # Latest News
--  Як Україні вдається масово "приземляти" літаки РФ: генерал розкрив "рецепт" успіху
--  Twitter: „Hvar er Auddi Blö?“
--  유독 많은 비 광주·전남, 해빙기 붕괴 사고 '불안불안'
--  Vertido de crudo y fertilizante por naufragio de buque subraya riesgos de ataques hutíes en Mar Rojo
--  “약속 지키지 않았다”…일론 머스크, 샘 올트먼·오픈AI 상대로 소송
--  TG3 Mondo del 02/03/2024
--  ПРЕМИНУЛА БАКА ЛЕПОСАВА, ЈЕДНА ОД ПОСЛЕДЊИХ СРПКИЊА У ПРИШТИНИ: Када на КиМ утихне једна српска душа, то као да је нестао град
--  V Duisburgu demonštrovalo proti krajnej pravici 15-tisíc ľudí
--  Polygamous Mormon Sect Is Actually a Sex Trafficking Cult: Lawsuit
--  最低賃金一律に 議会意見書が最多
+-  Tasa turística: una propuesta razonable
+-  ನಗರದಲ್ಲಿ ಇಂದು: ಬೆಂಗಳೂರು ನಗರದ ಈ ದಿನದ ಕಾರ್ಯಕ್ರಮಗಳು
+-  Дубль Драйзайтля принес «Эдмонтону» победу над «Сиэтлом»
+-  ಚಿನಕುರಳಿ ಕಾರ್ಟೂನ್: ಮಾರ್ಚ್‌ 03 ಭಾನುವಾರ 2024
+-  ಚಿಕ್ಕಮಗಳೂರು| ಒಂದೇ ದಿನ 6 ಜನರಲ್ಲಿ ಕೆಎಫ್‌ಡಿ ದೃಢ
+-  Spletna križanka in sudoku Slovenskih novic (3. marec)
+-  Start young to never get old
+-  அரசியல் கடமைகளில் இருந்து என்னை விடுவியுங்கள்: நட்டாவுக்கு கம்பீா் எம்.பி. கடிதம்
+-  Clarity and knowledge
+-  این عادت مغزتان را کوچک می کند
