@@ -1,11 +1,11 @@
 # Latest News
--  Elon Musk processa criador do ChatGPT
--  "Глибоке нерозуміння": у партії Шольца прокоментували конфлікт канцлера ФРН та Макрона
--  Julio Torres estrena "El Problemista" junto a Tilda Swinton
--  هوش مصنوعی باعث تشدید نابرابری‌ها در جهان می‌شود؟
--  Uma peça para fazer rebentar o Mundo, em exibição em Almada
--  “La Pantera” Elis, su éxito y su trabajo social, ahora busca vencer la adversidad
--  Madhya Pradesh: Ratlam's Riyawan Garlic Receives Coveted GI Tag
--  Rui Moreira vota AD contra "complicómetro" do Estado
--  Barcelona SC vs. Imbabura por la Liga Pro: horarios, canales de TV y ‘streaming’ para ver en vivo
--  Georgina desfila com vestido de homenagem a Cristiano Ronaldo
+-  박민식 전 보훈장관 “필승으로 보답”…강서을 출마 선언
+-  BEYOND LOCAL: We designed wormlike, limbless robots that navigate obstacle courses − they could be used for search and rescue one day
+-  Hot girl cầu lông Thùy Linh sắp đạt cột mốc chưa từng có trong sự nghiệp, sáng cửa dự Olympic 2024
+-  गन्ने से भरा ट्रक पलटने से भाई-बहन समेत एक ही परिवार के तीन लोगों की मौत, दो अन्य गंभीर रूप से घायल
+-  Nhật Bản nới lỏng quy định thị thực, cho phép sinh viên nước ngoài ở lại làm việc
+-  Jan Zieliński z kolejnym tytułem! Koncert Polaka w finale, turniejowa "1" bez szans
+-  9일만에 20만개…요즘 편의점 디저트 1위라는 빵의 정체
+-  8 شهداء باستهداف طائرات العدو الاسرائيلي لمنزل بالقرب من مدرسة أبو حسين بمخيم جباليا شمال غزة
+-  പള്‍സ് പോളിയോ ഇമ്മ്യൂണൈസേഷന്‍ ഇന്ന്; 23.28 ലക്ഷം കുട്ടികള്‍; 23,471 ബൂത്തുകള്‍; അര ലക്ഷത്തോളം ആരോഗ്യപ്രവർത്തകർ
+-  안산시, 상하수도사업소 ‘상록水 홍보관 운영’ 재개
