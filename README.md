@@ -1,11 +1,11 @@
 # Latest News
--  Ana Brnabić poručila Rotu: Nije lako, ali možete! Pozovite ako vam je potrebna podrška (FOTO)
--  Upīte/Kaluma Siguldā ierindojas sestajā vietā; Ziediņas/Zvilnas duets piedzīvo kritienu
--  Mulher morre ao bater moto na traseira de carro
--  Pse: lungo colloquio Schlein-Sanchez a margine congresso a Roma
--  Milionski pregledi, hiljade komentara: Da li Jutjub ukazuje na pobednika PZE? VIDEO
--  Нова висока сграда ще изникне в широкия център на София
--  Infraestructura, allanar los caminos y salvar los obstáculos
--  Semper Augustus - Tesla: Mag Seven May Be Shrinking
--  Antalya'da bir evde albino piton bulundu
--  Schianto nella notte, auto vola nel canale: guidatore positivo all'alcoltest
+-  Каррі подарував свою майку росіянину Хабібу після матчу Голден Стейт в НБА - відео
+-  Link Live Streaming Premier League Brentford vs Chelsea 2 Maret 2024 di Vidio
+-  Ukraine : l’Allemagne enquête sur une "très grave fuite" de l'armée après la diffusion d'enregistrements militaires
+-  Toujours aussi bon, le Samsung Galaxy S21 est à prix abordable en passant par ce site
+-  Započela proizvodnja BMW-a serije 5 Touring: Osim benzinskog, dizelskog, plug-in hibridnog pogona i potpuno električni
+-  Данило Дончич: Играхме умно - Труд
+-  Süper Lig'in yayın ihalesi sonuçlandı! 600 milyon dolar değerindeydi: İşte yeni bedeli
+-  Huthien ohjusiskussa vaurioitunut rahtialus upposi Punaisellamerellä
+-  Ukraine : l’Allemagne enquête sur une "très grave fuite" de l'armée après la diffusion d'enregistrements militaires
+-  2024 Genesis G70 Shooting Brake review
