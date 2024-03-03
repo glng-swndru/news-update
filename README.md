@@ -1,11 +1,11 @@
 # Latest News
--  Підполковник, начальник штабу та інші "шишки": у ЗСУ показали "мінусованих" росіян
--  Palmeiras confirma recebimento de ATA da FIFA que reconhece o Mundial de 1951
--  El Arenteiro se estrella contra un Tarragona más solvente en las áreas (0-1)
--  الوداد يودع دوري أبطال إفريقيا رغم الفوز أمام أسيك الإيفواري(فيديو)
--  Futbolda yayın ihalesi sonuçlandı: İşte kazanan kanal
--  148 يوما من العدوان.. ارتفاع شهداء غزة إلى 30320
--  ФОТО. Борнмут назвал Забарного самым недооцененным защитником АПЛ
--  Trasladado al hospital un hombre herido en un accidente de tráfico en Rianxo
--  "Ne vem, zakaj tako dolg napad. Dvomim, da so to pričakovali."
--  Abuso grupal en Palermo: según los jueces las condenas fueron leves porque no hubo un plan
+-  Liverpool vence o Nottingham Forest com gol nos acréscimos e garante liderança no Inglês
+-  Fancy the island life? Historical Australian Goodnight Island up for grabs
+-  Liverpool 90+9'da kazandı! İşte Nunez'in mucize dokunuşu
+-  Delírio de grandeza e culto da personalidade inventam o PIBão do Lula
+-  A megalomaniac making threats, the West dithering. There's a 1938 vibe about this
+-  Ulster v Dragons | Province aim to kick off post-Dan McFarland era with victory
+-  The violent death of a star and why it happens
+-  Der Tag in Kamen und Bergkamen: Brief zum Feuerwehrskandal – Bauantrag für Römerberg-Ruine
+-  A megalomaniac making threats, the West dithering. There's a 1938 vibe about this
+-  Sunday Age sport quiz: A remarkable 1916 stat and which AFL club has an alphabetical hurdle?
