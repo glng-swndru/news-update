@@ -1,11 +1,11 @@
 # Latest News
--  ALARM ZA DEMOKRATE Trump bi mogao pomesti Bidena
--  Рома продължава отличната си серия, вече е само на точка от Шампионската лига
--  Κατερίνα Στεφανίδη: Σε live streaming ο τελικός της Ελληνίδας πρωταθλήτριας στο επί κοντώ του Παγκοσμίου της Γλασκώβης
--  Biagiarelli: «I consumatori possono fare la differenza»
--  Rússia grava militares da Alemanha discutindo entrega de mísseis teleguiados à Ucrânia
--  Rússia grava militares da Alemanha discutindo entrega de mísseis teleguiados à Ucrânia
--  Uno a uno, quiénes son los gobernadores que ya adelantaron su apoyo al pacto del Presidente
--  Naša zemlja jedna od najboljih za život! Gujon: Vaša dela će ostati vašoj deci!
--  Ventotto miliardi di volte la massa del Sole
--  Będą królować w ogrodzie wczesną wiosną. Posadź w tym terminie
+-  AC Milan Gaet Tammy Abraham di Musim 2024/2025?
+-  Barone: “Bonaventura deve raggiungere il 70% delle partite giocate per rinnovare”
+-  Aups sélectionné parmi les "100 Plus beaux détours de France"
+-  ‘Se vai avanti con la pista ti facciamo fuori’
+-  Delegado del partido de Nayib Bukele se instala en el Centro de Procesamiento de Resultados Electorales
+-  Душан Керкез: Георги Николов има нужда от време да разбере какво искаме, защото той понякога прегаря - Труд
+-  Futbalisti AS Rím zvíťazili na pôde AC Monza 4:1
+-  صفاقس : تعرّض جامع بُوشعالة بطريق قرمدة للسرقة
+-  سرود و سخن
+-  আমি চলচ্চিত্রে নিয়মিতই হতে চাই: সাফা কবির
