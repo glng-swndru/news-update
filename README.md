@@ -1,11 +1,11 @@
 # Latest News
--  Quatre projets d’investissement envisagés par le CPAS la hulpois : 1.2 millions d’euros sont prévus
--  Precaución en la A-6 y diversión en Pedrafita do Cebreiro: así llega la nieve a la montaña de Lugo
--  Wake up, poor sleepers: Uncovering the real causes behind insomnia and avoiding quick fixes
--  [QUIZ] Te kultowe dobranocki oglądał (prawie) każdy Polak. Sprawdź, co z nich pamiętasz
--  מחצית ראשונה: מכבי ת"א - מכבי פ"ת 0:0
--  সহকারী পুলিশ সুপার হলেন ৩৭ পরিদর্শক
--  برنامج النقل التلفزي لمباريات الدولة الاولى من مرحلة البلاي اوف
--  Guardalà: «Yildiz o Chiesa? Allegri orientato a schierare lui vicino Vlahovic»
--  Here are Google’s custom Android pins from MWC 2024 [Gallery]
--  Полиция приведена в состояние повышенной готовности
+-  Kein Schiri: Samstagabend-Spiel der SG Hofen/Hüttlingen wird abgesagt
+-  آشنایی با امکانات دهکده المپیک پاریس
+-  Lille de Paulo Fonseca vence Reims e segue nos lugares europeus
+-  بنك مسقط يدشن برنامج "نسور" لتدريب وتطوير مهارات موظفي الفروع
+-  Marko schrikt zich een hoedje van Verstappen en Red Bull: "Ongelooflijk"
+-  Минэнерго Азербайджана сообщило о планах по добыче около 49 млрд куб.м газа в 2024 г.
+-  Azərbaycan və Braziliya arasında əməkdaşlıq gündəliyi müzakirə olunub
+-  Enginn verktaki við varnargarða og vélar færðar
+-  Beinahe-Unfall in Winnenden: Kurve geschnitten - Polizei vermeidet Zusammenstoß um Haaresbreite
+-  La Spezia, lo speaker dello stadio Picco fa una comparsata in tv e l’Inps gli richiede indietro la pensione
