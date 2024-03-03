@@ -1,11 +1,11 @@
 # Latest News
--  서울 강서구에서 50대 여성 차량에 깔려 중상
--  VIDEO Severini pukle hlače na pozornici, no brzo se snašla
--  【問題】2024に何をたすと「9の倍数」になるか計算できる？ - 小学生がたった1日で19×19までかんぺきに暗算できる本 計算の達人編
--  Namoro com Cristina Ferreira rende trabalho em televisão
--  NYT: Байден уступает своим соперникам в избирательной кампании
--  Inter Miami vs Orlando referee changed at last minute as damning photos emerge of him wearing shirt of Lionel Messi’ side
--  World Athletics Indoor Championships: DAY 2 - Evening Session - Glasgow
--  Točkasta koalicija ima plan za HDZ: "Oduzet ćemo mandate točno onome kome treba"
--  Lotto e 10eLotto, estrazione di sabato 2 marzo 2024: i numeri vincenti
--  Pullman Juventus arrivato al Parker's alle 19.50. Mega scorta di polizia, la reazione dei napoletani
+-  ALARM ZA DEMOKRATE Trump bi mogao pomesti Bidena
+-  Рома продължава отличната си серия, вече е само на точка от Шампионската лига
+-  Κατερίνα Στεφανίδη: Σε live streaming ο τελικός της Ελληνίδας πρωταθλήτριας στο επί κοντώ του Παγκοσμίου της Γλασκώβης
+-  Biagiarelli: «I consumatori possono fare la differenza»
+-  Rússia grava militares da Alemanha discutindo entrega de mísseis teleguiados à Ucrânia
+-  Rússia grava militares da Alemanha discutindo entrega de mísseis teleguiados à Ucrânia
+-  Uno a uno, quiénes son los gobernadores que ya adelantaron su apoyo al pacto del Presidente
+-  Naša zemlja jedna od najboljih za život! Gujon: Vaša dela će ostati vašoj deci!
+-  Ventotto miliardi di volte la massa del Sole
+-  Będą królować w ogrodzie wczesną wiosną. Posadź w tym terminie
