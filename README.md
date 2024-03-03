@@ -1,11 +1,11 @@
 # Latest News
--  박민식 전 보훈장관 “필승으로 보답”…강서을 출마 선언
--  BEYOND LOCAL: We designed wormlike, limbless robots that navigate obstacle courses − they could be used for search and rescue one day
--  Hot girl cầu lông Thùy Linh sắp đạt cột mốc chưa từng có trong sự nghiệp, sáng cửa dự Olympic 2024
--  गन्ने से भरा ट्रक पलटने से भाई-बहन समेत एक ही परिवार के तीन लोगों की मौत, दो अन्य गंभीर रूप से घायल
--  Nhật Bản nới lỏng quy định thị thực, cho phép sinh viên nước ngoài ở lại làm việc
--  Jan Zieliński z kolejnym tytułem! Koncert Polaka w finale, turniejowa "1" bez szans
--  9일만에 20만개…요즘 편의점 디저트 1위라는 빵의 정체
--  8 شهداء باستهداف طائرات العدو الاسرائيلي لمنزل بالقرب من مدرسة أبو حسين بمخيم جباليا شمال غزة
--  പള്‍സ് പോളിയോ ഇമ്മ്യൂണൈസേഷന്‍ ഇന്ന്; 23.28 ലക്ഷം കുട്ടികള്‍; 23,471 ബൂത്തുകള്‍; അര ലക്ഷത്തോളം ആരോഗ്യപ്രവർത്തകർ
--  안산시, 상하수도사업소 ‘상록水 홍보관 운영’ 재개
+-  Gaza Ceasefire की रूपरेखा पर सहमत हो गया है Israel, Hamas को करना होगा फैसला : अमेरिका
+-  Anant Ambani-Radhika Merchant Pre-Wedding: Shah Rukh Khan, Salman Khan, Aamir Khan dance to Naatu Naatu; netizens call them 'legends'
+-  4 kiểu tập luyện giúp phòng đau tim, đột quỵ, chỉ tốn 15 phút/ngày: Tập từ sớm tim mạch sẽ rất biết ơn
+-  Чемпион PFL: «Нганну понимает, что не сможет избежать боя со мной»
+-  Meloni: "“Non ce l’avevo con Mattarella, la sinistra lo usa contro di me”"
+-  Tạo cơ hội cho người trẻ
+-  トム・キムがセンターシャフトの“新パター”を投入
+-  डीसीएलको उपाधि दंगाली लायन्सलाई, बसिर अहमद सर्वोत्कृष्ट खेलाडी
+-  Weight Loss Pills, Low Carb Diets, Fitness Apps, Market For Weight Loss Is Booming| Health 360 - India Today
+-  India move to the top of WTC points table after Australia beat New Zealand in 1st Test in Wellington
