@@ -1,11 +1,11 @@
 # Latest News
--  ASV sāk piegādāt palīdzību Gazai, pārtiku nometot no lidmašīnām
--  مترو به این مناطق تهران رسید | افزایش ۱۵ درصدی مسافران مترو با احداث دو ایستگاه جدید
--  Εκτροχιασμός τρένου στην Πενσυλβάνια: Τα βαγόνια έπεσαν στο ποτάμι - Εικόνες από το σημείο
--  Bishop urges govt to recognize Church annulment of marriage
--  NHL-Előjáték: Revansra készül a Panthers és a Maple Leafs is
--  Jablonec - Hr. Králové 1:1, hosté nevyužili přesilu a remizovali počtvrté v řadě
--  Jablonec - Hr. Králové 1:1, hosté nevyužili přesilu a remizovali počtvrté v řadě
--  Yer ve saat verdi... Ekrem İmamoğlu'ndan Murat Kurum'a 'Gazze'ye yardım' daveti: 'Çekinme gel, bekliyorum...'
--  Mordkommission ermittelt in Oberhausen: Tote Frau bei Behindertenwerkstatt entdeckt – 27-Jähriger festgenommen
--  "Thổi bay" đối thủ Hàn Quốc, hot girl cầu lông Việt Nam thẳng tiến vào chung kết giải đấu tại châu Âu
+-  Cycling-Pogacar wins Strade Bianche after 81km solo attack
+-  Is It Time to Buy Target Stock for Its Meaty 3% Yield?
+-  ZLATIN SIN NEUTEŠAN ZBOG SMRTI UJAKA Njegove reči kidaju dušu, nema ko na ovo nije zaplakao
+-  Halford seeks re-election in October
+-  Испанската полиция разби фалшификаторска мрежа за банкноти от сто евро
+-  Amazon: Im April kommt die nächste Preiserhöhung
+-  Javier Milei anunció cierre de medio de comunicación con 78 años de historia
+-  Getafe - Las Palmas, en directo | LaLiga EA Sports
+-  Manly believe long Vegas stay can give them advantage
+-  Así puedes cobrar en el Sistema Patria los bonos José Gregorio Hernández, Lactancia Materna y Parto Humanizado
