@@ -1,11 +1,11 @@
 # Latest News
--  Kein Schiri: Samstagabend-Spiel der SG Hofen/Hüttlingen wird abgesagt
--  آشنایی با امکانات دهکده المپیک پاریس
--  Lille de Paulo Fonseca vence Reims e segue nos lugares europeus
--  بنك مسقط يدشن برنامج "نسور" لتدريب وتطوير مهارات موظفي الفروع
--  Marko schrikt zich een hoedje van Verstappen en Red Bull: "Ongelooflijk"
--  Минэнерго Азербайджана сообщило о планах по добыче около 49 млрд куб.м газа в 2024 г.
--  Azərbaycan və Braziliya arasında əməkdaşlıq gündəliyi müzakirə olunub
--  Enginn verktaki við varnargarða og vélar færðar
--  Beinahe-Unfall in Winnenden: Kurve geschnitten - Polizei vermeidet Zusammenstoß um Haaresbreite
--  La Spezia, lo speaker dello stadio Picco fa una comparsata in tv e l’Inps gli richiede indietro la pensione
+-  Підполковник, начальник штабу та інші "шишки": у ЗСУ показали "мінусованих" росіян
+-  Palmeiras confirma recebimento de ATA da FIFA que reconhece o Mundial de 1951
+-  El Arenteiro se estrella contra un Tarragona más solvente en las áreas (0-1)
+-  الوداد يودع دوري أبطال إفريقيا رغم الفوز أمام أسيك الإيفواري(فيديو)
+-  Futbolda yayın ihalesi sonuçlandı: İşte kazanan kanal
+-  148 يوما من العدوان.. ارتفاع شهداء غزة إلى 30320
+-  ФОТО. Борнмут назвал Забарного самым недооцененным защитником АПЛ
+-  Trasladado al hospital un hombre herido en un accidente de tráfico en Rianxo
+-  "Ne vem, zakaj tako dolg napad. Dvomim, da so to pričakovali."
+-  Abuso grupal en Palermo: según los jueces las condenas fueron leves porque no hubo un plan
