@@ -1,11 +1,11 @@
 # Latest News
--  Japan to launch new dialogue on banning nuclear material production
--  Осужденного в Якутии жителя Саратовской области задержали после 10 лет розысков
--  CJ대한통운, 택배상품 간선운송에 자율주행 시범 도입
--  6 Tips Menyimpan Sisa Lauk Supaya Tidak Cepat Basi untuk Sahur
--  Community rallies in class action for Aboriginal cultural fishing rights
--  José Sacristán, de nuevo sobre el escenario, busca a su sucesor en 'La colección' de Juan Mayorga
--  Optimising collaborative efforts to advance psychological knowledge
--  В российском регионе сдетонировали два беспилотника ВСУ
--  Healthier Thaksin visited City Pillar
--  Mukesh Ambani's Reliance makes a big Rs 4286 crore purchase, he is now owner of...
+-  이지스자산운용, 신재생에너지 블라인드펀드 조성 추진
+-  VR gengur frá kjara­samningi
+-  Burton's our five-eighth, can be more involved: Ciraldo
+-  P-8A 초계기 6대, 6월 한국 이송…北 잠수함 잡을 ‘수중 킬체인’
+-  GFD divers find body of missing fisherman
+-  Phát huy văn hóa VNPoly trong giai đoạn mới chuẩn bị cho khôi phục sản xuất kinh doanh
+-  Bakan Uraloğlu'ndan İmamoğlu'na cevap!
+-  山本4失点「来週につなげたい」
+-  أتربة مثارة على أجزاء من المدينة المنورة
+-  Young engineers thrive under pressure
