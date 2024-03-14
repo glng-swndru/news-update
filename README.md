@@ -1,11 +1,11 @@
 # Latest News
--  “مقص” تحجج به الاحتلال لمنع دخول مساعدات إلى غزة.. ما القصة؟ (شاهد)
--  Mini-Serie mit Laura Berlin über ein großes Tabu
--  NRL great Willie Mason spots ‘petty’ two-word sign in Raiders’ sheds... and he loved it
--  머스크 스페이스X, 역대 가장 큰 우주선 ‘스타십’ 14일 재발사
--  Kelowna city parks waking up after winter
--  Tổ chức sàn việc làm cho lao động ngoại thành
--  Railumu to play for late cousin
--  Delhi में कार ने कई लोगों को कुचला, महिला की मौत
--  Reliance to buy Paramount's entire 13.01% stake in Viacom18 for $517 mn - Business Standard
--  أتلتيكو مدريد يقصي الوصيف ويبلغ ربع نهائي دوري ابطال اوروبا
+-  Japan to launch new dialogue on banning nuclear material production
+-  Осужденного в Якутии жителя Саратовской области задержали после 10 лет розысков
+-  CJ대한통운, 택배상품 간선운송에 자율주행 시범 도입
+-  6 Tips Menyimpan Sisa Lauk Supaya Tidak Cepat Basi untuk Sahur
+-  Community rallies in class action for Aboriginal cultural fishing rights
+-  José Sacristán, de nuevo sobre el escenario, busca a su sucesor en 'La colección' de Juan Mayorga
+-  Optimising collaborative efforts to advance psychological knowledge
+-  В российском регионе сдетонировали два беспилотника ВСУ
+-  Healthier Thaksin visited City Pillar
+-  Mukesh Ambani's Reliance makes a big Rs 4286 crore purchase, he is now owner of...
