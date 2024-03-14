@@ -1,11 +1,11 @@
 # Latest News
--  „Топлофикация-София“ се готви да увеличи двойно заплатите: Общински съветник пита
--  Италия очаква значително намаление на цената на тока на регулирания пазар
--  „МЕ РАЗБУДИ, МИСЛЕВ ДЕКА ЌЕ СЕ УРНЕ КУЌАТА И ДЕКА ГРАДОТ Е УНИШТЕН“: Застрашувачки земјотрес во Црна Гора, почувствуван и во Сараево и Белград
--  Düşme hattında kritik maç
--  Laura (25) diplomirala je unatoč paralizi i sljepoći: Ne odustajte!
--  Adam Małysz musi znać ryzyko! Jego wujek przestrzega. "Nie może być przepychanek. Rola nie do pozazdroszczenia"
--  iQoo Z9 5G is now available to buy in India: Check prices, bank discount offers, specifications
--  Tégláról téglára épül Mészáros Lőrinc magánegészségügyi birodalma
--  Kejriwal moves Sessions Court challenging summons issued to him on ED complaints
--  [포토] ‘연꽃 방주’ 속 추상화
+-  Man reklamerar klocka – höll inte tiden
+-  HSBC Türkiye'nin Enflasyon Tahminini Yükseltti!
+-  NOVI NALET UKRAJINSKIH DRONOVA: Ruske snage uništile 14 bespilotnih letelica u pograničnim oblastima
+-  케플러, 24일 KIA 타이거즈 홈구장 ‘챔피언스 필드’서 개막전 축하 공연
+-  Donald Trump was once the owner of Taj Mahal, but it was different
+-  НХЛ: Едмонтон долає Вашингтон, Колорадо - Ванкувер
+-  Gazze’ye yardım konusunda AB uzmanları Güney Kıbrıs'ta
+-  Забарный коротко оценил свой первый гол в АПЛ
+-  Kronik hastalıklar erken teşhis edilebilecek
+-  HSBC Türkiye'nin büyüme tahminini güncelledi
