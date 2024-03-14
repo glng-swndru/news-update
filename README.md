@@ -1,11 +1,11 @@
 # Latest News
--  The secret meeting Gerapetritis – Jerome, the “communicational paraskia”, the old and the new “Stasinocards”, J. Pyatt and the look towards the sea wind and the reversals in the market Consulting
--  Датчики контролируют скорость на 13 участках дорог Минска
--  金門海域大陸漁船翻側6人落海 2死2獲救2失蹤
--  不滿邱國正發言如「自走砲」？ 總統府澄清：非事實！
--  Narkotacirlərə qarşı əməliyyatlar keçirildi - FOTO
--  Huawei Nova 12i Muncul di Situs Sertifikasi NBTC
--  [ITmedia PC USER] MSI、軽量13.3型ビジネスノート「Prestige 13Evo」にショップ限定バリエーションモデル
--  Wakil Italia di Liga Champions 2023/2024: Rontok, Habis, Tak Tersisa
--  Bundestag debattiert über Empfehlungen zur Ernährung
--  정부 "전공의 집단 사직, 한 달 지나도 효력 자동 발생 안 해"
+-  ПВО за ночь перехватила 14 дронов ВСУ над Белгородской и Курской областями
+-  윤 대통령 “영암∼광주에 2.6조 투입해 초고속도로 추진”
+-  हमास के हमले मारे गए नेपालियों के परिवारों को इजराइल आजीवन आर्थिक सहयोग देगा
+-  Stärker als Fentanyl: Eine Droge tötet immer mehr Menschen
+-  Shreyas Iyer’s IPL participation in doubt as back injury intensifies
+-  Касым-Жомарт Токаев поздравил казахстанцев с Амал күні
+-  Stärker als Fentanyl: Eine Droge tötet immer mehr Menschen
+-  Гасперини заявил, что в ответном матче «Аталанты» со «Спортингом» важна поддержка болельщиков
+-  Londonā parāda autonomās okeānu un iekšējo ūdeņu izpētes iekārtas
+-  Девушка-боец из Грузии побила на улице мужчину, который обозвал её чуркой
