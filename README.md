@@ -1,11 +1,11 @@
 # Latest News
--  Newsblog: EU-Staaten einigen sich auf Finanzierung von Waffen für Ukraine
--  Britanija zabranjuje strano vlasništvo u medijima
--  Weriye Cabdikariin Axmed Bulxan oo lagu dilay magaalada Cabudwaaq
--  Decisi i nuovi 'stipendi' per medici e infermieri in Lombardia
--  Битка за 1/4 финалите Лига на конференциите, Десподов и ПАОК с тежка задача
--  Двама бивши футболисти на Левски се срещнаха в Япония
--  США закликали країни НАТО збільшити оборонні внески до 2% ВВП
--  Telangana High Court refuses to stay release of Razakar movie
--  ÖSYM'nin YKS'den elde ettiği gelir dudak uçuklattı
--  В Италии оценили требования Путина о гарантиях Запада
+-  Vòng 1/8 Cúp Quốc gia 2023/24: Những trận cầu cảm xúc và bất ngờ
+-  ホンダ「斬新ミニバン」存在！ めちゃ「スタイリッシュボディ」にガラス張り天井採用！ ド迫力“ガルウイングドア”装備の「スカイデッキ」とは(くるまのニュース)
+-  機能的はアタリマエ!? カワサキが2024年春夏新作アパレルを公開(バイクのニュース)
+-  44 lata bez Anny Jantar. Jaka była prywatnie gwiazda polskiej piosenki?
+-  11年前沒車沒房「穿拖鞋」登記結婚 黃文星補拍婚紗：我做到了
+-  Анди Мъри оцелява след най-жестокото клане във Великобритания - Труд
+-  Днес ще има валежи от дъжд в цялата страна - Труд
+-  日産が「最後のR35 GT-R」発売！ 次期モデルも検討！ 2025年モデルは何が変わったのか(VAGUE)
+-  Adler-Runde-Chef Handl: „Wir sind sehr transparent“
+-  Польща вирішила замінити понад 50 послів у різних країнах світу
