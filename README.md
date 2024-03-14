@@ -1,11 +1,11 @@
 # Latest News
--  전사라, ‘피라미드 게임’ 속 최 선생 역 완벽 소화 “오래 연기할 수 있는 배우 될 것”
--  وزیر راه: از حضور چینی‌ها در بخش مسکن استقبال می کنیم/پیشنهاد ورود فناوری سریع ساخت چینی
--  Dev derbinin hakemi belli oldu
--  Pourquoi Kylian Mbappé a de moins en moins de chance d'être aux Jeux olympiques de Paris
--  İsrail medyası: "Netanyahu ve Gallant Gazze'ye insani yardım konusunda tartıştı"
--  Maren Rombold aus Kleve startet Aktion „Post vom Osterhasen“
--  Die Herausforderung: In 72 Stunden den Wagnershof sanieren
--  Kiina arvostelee Yhdysvaltain edustajainhuoneen Tiktok-linjausta "roiston logiikasta"
--  한동훈 "이종섭, 내일이라도 공수처가 부르면 들어올 것 같다"
--  Pourquoi Kylian Mbappé a de moins en moins de chance d'être aux Jeux olympiques de Paris
+-  نمو التدفق السياحي في ظفار بنسبة 18.4%.. وتنفيذ مشروعات جديدة لتحقيق الاستدامة السياحية
+-  Fadillah buat lawatan mengejut ke KLIA
+-  Breaking News | 100 நாள் வேலை திட்ட நிலுவைத் தொகையை விடுவியுங்கள் - முதல்வர் மு.க.ஸ்டாலின்
+-  Học viện Hàng không Việt Nam mở ngành mới, công bố 6 phương thức tuyển
+-  전남 늘봄학교 찾은 윤 대통령 "적기에 신속한 지원할 것"
+-  Kes saman syarikat barangan kemas Lebanon, permohonan Rosmah didengar 29 Mei
+-  В Белгороде при обстреле пострадали шесть человек
+-  Astronomy's big event: Rare solar eclipse to occur in April 2024 after 126 years - The Times of India
+-  Une femme tuée en Alsace, son mari mis en examen
+-  Dolar kaç tl? 14 Mart 2024 euro, dolar, sterlin kaç TL?
