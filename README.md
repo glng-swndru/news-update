@@ -1,11 +1,11 @@
 # Latest News
--  Happy 1,000th Game, Wordle! Here Are the Best Starter Words to Use - CNET
--  Kara yollarında son durumlar ne oldu? İşte 14 Mart kara yollarında son durumlar
--  Bauarbeiten in Gärtringen stocken: Zeitverzug bei gleich drei Bauprojekten
--  Auch Freitag weitere Streiks: Warnstreik legt Flugbetrieb in Köln/Bonn weitgehend lahm
--  जलवायु परिवर्तनका अवसर सम्बोधन गर्न बृहत रणनीति आवश्यक छ: प्रधानमन्त्री
--  Време е за решителни реванши в Лига Европа
--  Gol de Ian de Jesús | Reta FC 3-5 Tanos FC | J7 | La People's League
--  特急「しらゆき」「いなほ」車両に「上沼垂色」復刻へ 往年の国鉄特急の色(乗りものニュース)
--  2 Pengasuh Ponpes di Trenggalek Dipolisikan Atas Dugaan Pencabulan Santriwati
--  Nouveau round de négociations entre les médecins libéraux et l'Assurance maladie
+-  Newsblog: EU-Staaten einigen sich auf Finanzierung von Waffen für Ukraine
+-  Britanija zabranjuje strano vlasništvo u medijima
+-  Weriye Cabdikariin Axmed Bulxan oo lagu dilay magaalada Cabudwaaq
+-  Decisi i nuovi 'stipendi' per medici e infermieri in Lombardia
+-  Битка за 1/4 финалите Лига на конференциите, Десподов и ПАОК с тежка задача
+-  Двама бивши футболисти на Левски се срещнаха в Япония
+-  США закликали країни НАТО збільшити оборонні внески до 2% ВВП
+-  Telangana High Court refuses to stay release of Razakar movie
+-  ÖSYM'nin YKS'den elde ettiği gelir dudak uçuklattı
+-  В Италии оценили требования Путина о гарантиях Запада
