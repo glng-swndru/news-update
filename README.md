@@ -1,11 +1,11 @@
 # Latest News
--  Tak zákazy, nebo rozvoj? Bezosův fond napumpuje miliony do umělého masa
--  Nauja fotografijos mentorystės platforma Panevėžyje įgauna pagreitį
--  ROĐENA BRAĆA OČIMA NE MOGU DA SE GLEDAJU: Vilijam i Hari povukli SRAMAN potez pred događaj u čast njihove majke, totalni ŠOK!
--  Beats Studio Buds Hit a Bargain $85, but This Deal Expires Soon - CNET
--  Wie is de Mol-winnaar herkend op schilderij uit 1620, bezorgde kijker: ‘Heeft Fons hier toestemming voor gegeven?’
--  Glastonbury setzt diesmal auf Sängerinnen als Headliner
--  எனது கணித வகுப்பு அனுபவங்கள் | உலக கணித தினம்
--  Kocaelispor kural hatası için başvurdu
--  Kartal Belediyesi ''Yeşili ile mavisi ile bu dünya bizim'' dedi
--  Paddleboard guide’s wish comes true after dugong sighting off Tanjung Aru beach
+-  Trybunał Julii Przyłębskiej zajmie się wnioskiem w sprawie komisji kopertowej. Co zarzucają jej posłowie PiS?
+-  23enne originario della Guinea fermato e picchiato dai carabinieri: "Denuncerò, non ho fatto nulla"
+-  Video shows individual in handcuffs after woman found dead in Scarborough home
+-  Hong Kong Market ends lower
+-  Azərbaycan “Avroviziya 2024” müsabiqəsində hansı mahnı ilə təmsil olunacaq?
+-  TikTok e la privacy, ecco perché le intelligence occidentali lo temono tanto
+-  Reddit’s IPO could open door ‘a little bit more’ for other public offerings in 2024
+-  Kreivys: teismai turėtų palaikyti vartotojus ginče su elektros tiekėjais dėl netesybų
+-  Нганну: Я ще не закінчив з боксом
+-  KKM hesaplarındaki düşüş serisi devam ediyor
