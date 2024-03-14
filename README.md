@@ -1,11 +1,11 @@
 # Latest News
--  نمو التدفق السياحي في ظفار بنسبة 18.4%.. وتنفيذ مشروعات جديدة لتحقيق الاستدامة السياحية
--  Fadillah buat lawatan mengejut ke KLIA
--  Breaking News | 100 நாள் வேலை திட்ட நிலுவைத் தொகையை விடுவியுங்கள் - முதல்வர் மு.க.ஸ்டாலின்
--  Học viện Hàng không Việt Nam mở ngành mới, công bố 6 phương thức tuyển
--  전남 늘봄학교 찾은 윤 대통령 "적기에 신속한 지원할 것"
--  Kes saman syarikat barangan kemas Lebanon, permohonan Rosmah didengar 29 Mei
--  В Белгороде при обстреле пострадали шесть человек
--  Astronomy's big event: Rare solar eclipse to occur in April 2024 after 126 years - The Times of India
--  Une femme tuée en Alsace, son mari mis en examen
--  Dolar kaç tl? 14 Mart 2024 euro, dolar, sterlin kaç TL?
+-  Jetzt: Bundestag debattiert Unions-Antrag
+-  CUET 2024 preparation tips: 6 ways to ace your university entrance exams
+-  У Борнмуті оцінили дебютний гол Забарного за клуб
+-  Puola kutsuu kotiin kymmeniä diplomaatteja
+-  Ursula von der Leyen már nem sokáig viselkedhet királynőként
+-  ಲೋಕಸಭೆ ಚುನಾವಣೆ: ಪಂಜಾಬ್ ಮಾಜಿ ಸಿಎಂ ಅಮರೀಂದರ್ ಸಿಂಗ್ ಪತ್ನಿ ಬಿಜೆಪಿ ಸೇರ್ಪಡೆ
+-  Truffe agli anziani, 2 arrestati e 4 denunciati. La polizia li ha beccati in autostrada
+-  Populära komikern kommer till Linköping i höst
+-  NARLIDERE BELEDİYESİ’NDEN HAFTA SONU İKİ AYRI ETKİNLİK
+-  Забарный превзошел Мудрика и установил уникальное достижение в АПЛ
