@@ -1,11 +1,11 @@
 # Latest News
--  Man reklamerar klocka – höll inte tiden
--  HSBC Türkiye'nin Enflasyon Tahminini Yükseltti!
--  NOVI NALET UKRAJINSKIH DRONOVA: Ruske snage uništile 14 bespilotnih letelica u pograničnim oblastima
--  케플러, 24일 KIA 타이거즈 홈구장 ‘챔피언스 필드’서 개막전 축하 공연
--  Donald Trump was once the owner of Taj Mahal, but it was different
--  НХЛ: Едмонтон долає Вашингтон, Колорадо - Ванкувер
--  Gazze’ye yardım konusunda AB uzmanları Güney Kıbrıs'ta
--  Забарный коротко оценил свой первый гол в АПЛ
--  Kronik hastalıklar erken teşhis edilebilecek
--  HSBC Türkiye'nin büyüme tahminini güncelledi
+-  전사라, ‘피라미드 게임’ 속 최 선생 역 완벽 소화 “오래 연기할 수 있는 배우 될 것”
+-  وزیر راه: از حضور چینی‌ها در بخش مسکن استقبال می کنیم/پیشنهاد ورود فناوری سریع ساخت چینی
+-  Dev derbinin hakemi belli oldu
+-  Pourquoi Kylian Mbappé a de moins en moins de chance d'être aux Jeux olympiques de Paris
+-  İsrail medyası: "Netanyahu ve Gallant Gazze'ye insani yardım konusunda tartıştı"
+-  Maren Rombold aus Kleve startet Aktion „Post vom Osterhasen“
+-  Die Herausforderung: In 72 Stunden den Wagnershof sanieren
+-  Kiina arvostelee Yhdysvaltain edustajainhuoneen Tiktok-linjausta "roiston logiikasta"
+-  한동훈 "이종섭, 내일이라도 공수처가 부르면 들어올 것 같다"
+-  Pourquoi Kylian Mbappé a de moins en moins de chance d'être aux Jeux olympiques de Paris
