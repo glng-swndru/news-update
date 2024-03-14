@@ -1,11 +1,11 @@
 # Latest News
--  Jetzt: Bundestag debattiert Unions-Antrag
--  CUET 2024 preparation tips: 6 ways to ace your university entrance exams
--  У Борнмуті оцінили дебютний гол Забарного за клуб
--  Puola kutsuu kotiin kymmeniä diplomaatteja
--  Ursula von der Leyen már nem sokáig viselkedhet királynőként
--  ಲೋಕಸಭೆ ಚುನಾವಣೆ: ಪಂಜಾಬ್ ಮಾಜಿ ಸಿಎಂ ಅಮರೀಂದರ್ ಸಿಂಗ್ ಪತ್ನಿ ಬಿಜೆಪಿ ಸೇರ್ಪಡೆ
--  Truffe agli anziani, 2 arrestati e 4 denunciati. La polizia li ha beccati in autostrada
--  Populära komikern kommer till Linköping i höst
--  NARLIDERE BELEDİYESİ’NDEN HAFTA SONU İKİ AYRI ETKİNLİK
--  Забарный превзошел Мудрика и установил уникальное достижение в АПЛ
+-  Hver eru áhrif aukinnar umferðar skemmtiferðaskipa?
+-  Народното събрание одобри договор със САЩ за нови ядрени мощности в АЕЦ "Козлодуй"
+-  肘折名物・巨大雪だるま 30代目「おおくら君」完成 地元中学生がデザイン 山形・大蔵村
+-  Dubrovčani dobili obavijest o potresu na mobitelima, ovako to možete uključiti na Androidu
+-  Pogledajte kako su Messi i Suarez uveli Inter Miami u četvrtfinale Kupa prvaka
+-  Chủ thẻ tín dụng bị đòi 8,8 tỉ đồng từ khoản dư nợ 8,5 triệu đồng 11 năm trước nói gì?
+-  Halbfinale gegen Bayer Leverkusen: Warum Fortuna bei der Verteilung der Pokaltickets in einer Zwickmühle steckte
+-  Football: Ogawa, Nagatomo in Japan squad for North Korea ties, Ito out
+-  Cuaca panas: Dua kes kelesuan haba direkod di Sabah
+-  Djevojka Leona Dajakua oduševila figurom nakon poroda: 'Ne vjerujem'
