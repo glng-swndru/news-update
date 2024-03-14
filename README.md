@@ -1,11 +1,11 @@
 # Latest News
--  1. Lig'de 27. haftanın programı
--  Apuntan a un nuevo escenario minero
--  Bursa'da iş kurma fikriyle gelen gençlere ve kadınlara 100 bin lira hibe vaadi!
--  Deprem uzmanı 2 fayı işaret etti: ''Aynı anda kırılırsa 7.7'lik deprem olur''
--  Bu ölkə İsrail ordusuna qoşulan vətəndaşlarını HƏBS EDƏCƏK
--  المركزي الصيني يضخ 3 مليارات يوان في النظام المصرفي
--  "Единството е много ценно": Някои от важните моменти в живота на патриарх Неофит (видео)
--  Hadirkan 4 Fitur Baru, BTN Mobile Makin Agresif di Awal Tahun
--  SUKOB U ŠIBENIKU Napao susjeda i teško ga ozlijedio
--  Жителя белгородского Грайворона при обстреле ВСУ ранило возле магазина
+-  Доведеният баща на Матю Пери: Той се чувстваше така, сякаш побеждава в битката си със зависимостите
+-  Machtkampf beim VfB Stuttgart: So schlägt Claus Vogt zurück
+-  Biến động giá xăng dầu trong nước từ 15h chiều nay
+-  Cựu Cục trưởng Đỗ Thị Nhàn nói 'xấu hổ' vì nhận 5,2 triệu USD
+-  Inflaatio hidastui Suomessa helmikuussa
+-  Bukan 2 Kursi Menteri, Prabowo Mesti Buat Tawaran Menggiurkan untuk Nasdem
+-  Ngân hàng lớn nhất hệ thống công bố lãi suất cho vay bình quân theo chỉ đạo của Thủ tướng và NHNN
+-  Zweite Niederlage binnen fünf Tagen für Wörsdörfer-Elf
+-  Machtkampf beim VfB Stuttgart: So schlägt Claus Vogt zurück
+-  Israel plant für Rafah-Zivilisten „humanitäre Inseln“
