@@ -1,11 +1,11 @@
 # Latest News
--  BitRealms Secures Early-Stage Investment, Spearheading the Integration of Inscriptions in the Bitcoin Gaming Space
--  奠边府大捷70周年：法国国防通信和视听部推出奠边府战役图片集
--  謝淑薇闖印地安泉女雙4強 尋求賽史第4冠有望重返球后寶座
--  Βαρσοβία: Ξοδεύει πάνω από 27 εκατ. ευρώ για αντιαεροπορικά καταφύγια
--  Waspada, 6 Orang Warga Kota Bandung Meninggal Dunia Akibat DBD
--  പോലീസ് ജീപ്പ് തകര്‍ത്ത കേസ്: ഡി.വൈ.എഫ്.ഐ. നേതാവിനെ കാപ്പചുമത്തി നാടുകടത്തി
--  Kemenperin Dorong Pemulihan Sektor Industri Minuman lewat Program Restrukturisasi Mesin
--  KDA FC lancar kempen ‘keep the hope alive’
--  Va a prisión por violencia familiar
--  Đà Nẵng: Con gái cựu binh Gạc Ma nhận học bổng toàn phần
+-  청년 전세 대출 악용해 13억 챙긴 20대 브로커…또래 8명도 가담
+-  指名手配のトケマッチ元社員が数年前に知人と“投資トラブル” 「投資の運用みたいな形で人からお金を預かって飛んだ」知人が証言
+-  Upcoming IPO - मात्र डेढ़ लाख में बैंकों को सॉफ्टवेयर देने वाली आईटी कंपनी में साझेदारी
+-  Haiti PM Henry's road to resignation
+-  Tiền gửi ở ngân hàng cao kỷ lục, đạt 14 triệu tỷ đồng
+-  Tersingkir dari All England 2024., Ahsan/Hendra Tetap Senang Bisa Main Lagi Usai Cedera
+-  เตือน ลูกหลานเฝ้าระวังผู้สูงอายุ แก๊งคอลเซ็นเตอร์ พุ่งเป้า หลอกสูญเงิน
+-  화홍병원, 진료 역량 강화를 위해 척추·뇌 분야 등 신규 의료진 영입
+-  Europarat: Rechte von Transmenschen besser schützen
+-  Europarat: Rechte von Transmenschen besser schützen
