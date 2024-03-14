@@ -1,11 +1,11 @@
 # Latest News
--  software-architektur.tv: Softwarearchitektur auf große Organisationen skalieren
--  Nhiều tình tiết bất ngờ vụ dùng thẻ tín dụng 8,5 triệu đồng, phải trả hơn 8,8 tỉ đồng
--  "Szantażowanie prezydenta". Ekspert mocno o planach Sikorskiego
--  Radović izabran nezakonito, institucije da daju odgovor
--  حريق بمستودع غاز يسفر عن إصابة 38 شخصًا بتونس
--  Την ερχόμενη Τετάρτη τα πορίσματα για τα Τέμπη στην Ολομέλεια
--  Trao giải thưởng cho các tác phẩm sân khấu xuất sắc năm 2023
--  ΜΠΟΡΕΙ ΚΑΙ… ΟΛΛΑΝΔΙΑ
--  Yağ çekmeden patates kızartma tekniği! İşi bilmek yeterli oluyor... 42 yıllık aşçı sırrı
--  Plano de transição no Haiti fracassa por falta de acordo entre partidos políticos
+-  Tak zákazy, nebo rozvoj? Bezosův fond napumpuje miliony do umělého masa
+-  Nauja fotografijos mentorystės platforma Panevėžyje įgauna pagreitį
+-  ROĐENA BRAĆA OČIMA NE MOGU DA SE GLEDAJU: Vilijam i Hari povukli SRAMAN potez pred događaj u čast njihove majke, totalni ŠOK!
+-  Beats Studio Buds Hit a Bargain $85, but This Deal Expires Soon - CNET
+-  Wie is de Mol-winnaar herkend op schilderij uit 1620, bezorgde kijker: ‘Heeft Fons hier toestemming voor gegeven?’
+-  Glastonbury setzt diesmal auf Sängerinnen als Headliner
+-  எனது கணித வகுப்பு அனுபவங்கள் | உலக கணித தினம்
+-  Kocaelispor kural hatası için başvurdu
+-  Kartal Belediyesi ''Yeşili ile mavisi ile bu dünya bizim'' dedi
+-  Paddleboard guide’s wish comes true after dugong sighting off Tanjung Aru beach
