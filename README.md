@@ -1,11 +1,11 @@
 # Latest News
--  දුර්වල ආණ්ඩුකරණය ආර්ථිකයටත් බලපාලා
--  BBB 24: Leidy pergunta para brothers: 'Com quem você não quer contato lá fora?'; Veja respostas
--  Bosnijos ir Juodkalnijos pasienio regione įvyko 5,4 balo žemės drebėjimas
--  Сладък аромат на ягоди и втори шанс за щастие
--  Borås vågade inte visa henne – Open Art törs
--  Konut satışları Şubat ayında yüzde 17,3 arttı
--  à¶¯à·”à¶»à·Šà·€à¶½ à¶†à¶«à·Šà¶©à·”à¶šà¶»à¶«à¶º à¶†à¶»à·Šà¶®à·’à¶šà¶ºà¶§à¶­à·Š à¶¶à¶½à¶´à·�à¶½à·�
--  BBB 24: Leidy pergunta para brothers: 'Com quem você não quer contato lá fora?'; Veja respostas
--  Malatyada esnafın konteynerde Ramazan mesaisi
--  Адиль Керимли о важности создания единой культурной платформы тюркских государств
+-  1. Lig'de 27. haftanın programı
+-  Apuntan a un nuevo escenario minero
+-  Bursa'da iş kurma fikriyle gelen gençlere ve kadınlara 100 bin lira hibe vaadi!
+-  Deprem uzmanı 2 fayı işaret etti: ''Aynı anda kırılırsa 7.7'lik deprem olur''
+-  Bu ölkə İsrail ordusuna qoşulan vətəndaşlarını HƏBS EDƏCƏK
+-  المركزي الصيني يضخ 3 مليارات يوان في النظام المصرفي
+-  "Единството е много ценно": Някои от важните моменти в живота на патриарх Неофит (видео)
+-  Hadirkan 4 Fitur Baru, BTN Mobile Makin Agresif di Awal Tahun
+-  SUKOB U ŠIBENIKU Napao susjeda i teško ga ozlijedio
+-  Жителя белгородского Грайворона при обстреле ВСУ ранило возле магазина
