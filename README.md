@@ -1,11 +1,11 @@
 # Latest News
--  ПВО за ночь перехватила 14 дронов ВСУ над Белгородской и Курской областями
--  윤 대통령 “영암∼광주에 2.6조 투입해 초고속도로 추진”
--  हमास के हमले मारे गए नेपालियों के परिवारों को इजराइल आजीवन आर्थिक सहयोग देगा
--  Stärker als Fentanyl: Eine Droge tötet immer mehr Menschen
--  Shreyas Iyer’s IPL participation in doubt as back injury intensifies
--  Касым-Жомарт Токаев поздравил казахстанцев с Амал күні
--  Stärker als Fentanyl: Eine Droge tötet immer mehr Menschen
--  Гасперини заявил, что в ответном матче «Аталанты» со «Спортингом» важна поддержка болельщиков
--  Londonā parāda autonomās okeānu un iekšējo ūdeņu izpētes iekārtas
--  Девушка-боец из Грузии побила на улице мужчину, который обозвал её чуркой
+-  Chủ tịch PVN muốn huy động hơn 250 nghìn tỷ đồng từ vốn tín dụng
+-  Love Is Blind reunion chaos as Trevor walks off after being angrily confronted by hosts
+-  元「NMB48」の白間美優、初代ルフィ役俳優と“限定結婚” 「私たち結婚しました」出演で“指輪”キラリ
+-  Autor Radetzkého pochodu, J. Strauss st., sa narodil pred 220 rokmi
+-  Veränderungen im erweiterten Vorstand des «Appenzeller Bier»-Fanclubs
+-  走りの味付けをアルファードと差別化「トヨタ・ヴェルファイア」【最新ミニバン車種別解説 TOYOTA VELLFIRE】(MotorFan)
+-  정부, 6대 수산물 600톤 푼다...366억 투입해 '할인 지원'
+-  Thaksin makes first trip to Chiang Mai since parole release
+-  Rời Ả Rập, Neymar có 'bến đỗ trong mơ' trước khi giải nghệ
+-  PRED CRVENO-BELIMA JE TEŽAK ZADATAK! Evo gde možete da gledate meč Zvezde i Makabija!
