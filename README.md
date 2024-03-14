@@ -1,11 +1,11 @@
 # Latest News
--  Konya'da Türk Yıldızları'na ait askeri eğitim uçağı düştü! 1 personel şehit
--  Landini chiama la piazza: verso sciopero Cgil-Uil, possibile manifestazione a Roma il 20 aprile
--  İETT otobüsüne cam yüklü kamyonet çarptı: Yurttaşlar panikle kendini dışarı attı
--  Более 1700 обучающихся Гомельской области являются членами военно-патриотических клубов
--  Messi og Suárez skutu Inter Miami áfram
--  5 начина да укротите глада за сладко
--  На каква дълбочина се засаждат картофите?
--  ஃபோகஸ்டு மியூச்சுவல் ஃபண்ட் திட்டங்கள்; முதலீடு செய்வது எப்படி?
--  Újabb baleset történt egy Boeinggel: landolás közben letért a kifutópályáról
--  Gió mùa Đông Bắc mạnh lại sắp tràn xuống miền Bắc?
+-  software-architektur.tv: Softwarearchitektur auf große Organisationen skalieren
+-  Nhiều tình tiết bất ngờ vụ dùng thẻ tín dụng 8,5 triệu đồng, phải trả hơn 8,8 tỉ đồng
+-  "Szantażowanie prezydenta". Ekspert mocno o planach Sikorskiego
+-  Radović izabran nezakonito, institucije da daju odgovor
+-  حريق بمستودع غاز يسفر عن إصابة 38 شخصًا بتونس
+-  Την ερχόμενη Τετάρτη τα πορίσματα για τα Τέμπη στην Ολομέλεια
+-  Trao giải thưởng cho các tác phẩm sân khấu xuất sắc năm 2023
+-  ΜΠΟΡΕΙ ΚΑΙ… ΟΛΛΑΝΔΙΑ
+-  Yağ çekmeden patates kızartma tekniği! İşi bilmek yeterli oluyor... 42 yıllık aşçı sırrı
+-  Plano de transição no Haiti fracassa por falta de acordo entre partidos políticos
