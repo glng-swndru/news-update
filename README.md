@@ -1,11 +1,11 @@
 # Latest News
--  Por qué una venta de TikTok es casi imposible pese a la presión de EE. UU.
--  Alper Gezeravcı: "Yapmış olduğumuz Türk astronot ve bilim misyonu hedeflerimizden sadece bir tanesiydi"
--  Groningen gooide zes procent minder afval weg in 2023
--  Alieneihin liitetty signaali olikin peräisin rekasta
--  Jandroković: Zbog kriza i ratova je iznimno važno imati stabilnost koju nudi HDZ
--  Black Isle man (65) inspired by cancer battler lass set for second half marathon in a week
--  Trasladan al hospital a una mujer que se quemó las manos en incendio en su cocina, en A Coruña
--  Update on child seen throwing a stone at peacock aviary
--  Firefighting at night
--  POZNAT UZROK SMRTI MARKA KOJI JE NESTAO PRE 10 DANA Stigli rezultati obdukcije, evo šta su našli kod njega
+-  Κοινοπραξία στο Βασιλικό: Έχουμε εμπειρία και μέσα για υλοποίηση έργου
+-  BBB 24: Ex-mulher de Buda reclama de críticas e rebate: 'Querem me ver na cama mesmo, sofrendo!"
+-  ΥΠΕΞ: Το ΣτΕ υπενθυμίζει την ευθύνη Τουρκίας να συμμορφωθεί με αποφάσεις για α
+-  Niemcy blokują dostawę rakiet Taurus, ale Scholz zapewnia Zełenskiego o wsparciu
+-  "IMAM 62 KILOGRAMA NA 175 CM" Lidija Vukićević je NA OVAJ NAČIN skinula višak, pa u sedmoj deceniji izgleda kao model: "Energije imam mnogo više"
+-  Deux ex-présidents de l'Adavirs 89, Pierre Monnoir et Lionel Reber, convoqués en correctionnelle pour harcèlement moral
+-  Земеделците получиха над 7 млн. лева по втория транш за намален акциз върху газьола
+-  Денков: Когато имаше разделение, Неофит правеше така, че да бъдем обединени
+-  Por qué Maluma se llama así: el referente del reggaeton que comenzó vendiendo sánguches
+-  BBB 24: Ex-mulher de Buda reclama de críticas e rebate: 'Querem me ver na cama mesmo, sofrendo!"
