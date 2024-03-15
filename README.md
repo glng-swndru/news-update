@@ -1,11 +1,11 @@
 # Latest News
--  El Ejecutivo argentino critica rechzado sufrido en el Senado
--  Internal translocation of rhinos taking place in Chitwan
--  Гол с передачи Миранчука принес «Аталанте» победу над «Спортингом»
--  Ajax vliegt uit Europa na pijnlijke nederlaag bij Aston Villa
--  Opluchting op Jan Breydel: Club zet Molde vlot opzij en staat in kwartfinales Conference League
--  Poli civici, la sperimentazione funziona. Ora il Campidoglio prepara un nuovo regolamento
--  Internal translocation of rhinos taking place in Chitwan
--  Forest Rights Act implementation mixed in 5 States, shows report
--  Allanaron una vivienda buscando armas de fuego: hallaron marihuana y dinero
--  Man dies after falling from flat window in Glasgow as police probe 'unexplained' death
+-  ۷ علت خارش مداوم در گوش را بشناسید
+-  B.C. coastal island land being donated for protection
+-  B.C. coastal island land being donated for protection
+-  El temible dato de Lamar Jackson y Derrick Henry que ilusiona a Baltimore Ravens
+-  B.C. coastal island land being donated for protection
+-  B.C. coastal island land being donated for protection
+-  Trener Wozniackiej zachwycał się grą Dunki. I nagle niesamowity zwrot
+-  B.C. coastal island land being donated for protection
+-  60 migrants feared dead in Mediterranean crossing: rescue organization
+-  Liga Europa: Atalanta-Sporting, 2-1 (crónica)
