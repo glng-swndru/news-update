@@ -1,11 +1,11 @@
 # Latest News
--  Рейнджерс - Бенфіка 0:1: огляд матчу
--  Nove zabrinjavajuće izjave Macrona: 'Europa se mora pripremiti za rat ako želi mir'
--  Pierce Brosnan fined after pleading guilty to walking off trail in Yellowstone National Park
--  還流経緯の謎深まる 政倫審
--  Riu Hotels regresa a Isla Mauricio con dos nuevos establecimientos
--  Quận Thanh Xuân khảo sát đánh giá phường đạt chuẩn đô thị văn minh
--  Pepê Gonçalves ganha seletiva do Pré-Olímpico de Canoagem e se garante em Paris-2024
--  Wackliger Walk: Heidi Klum sortiert fleißig Models aus
--  Biden: Fuerza Armada de EE.UU. permanecerá en Haití el tiempo que requiera el entorno de seguridad
--  Road contractor fined after pedestrian slips, suffers leg fracture
+-  르세라핌 허윤진, '캘리 클락슨 쇼' 출연…맥스와 듀엣 무대
+-  „Germany‘s Next Topmodel“ 2024: Der perfekte Walk endet für ein Model an der Lampe
+-  Services returning as Hamilton works to restore IT system following ransomware attack
+-  Otvorena biračka mesta na predsedničkim izborima u Rusiji
+-  Al Nassr đứng trước nguy cơ trắng tay ở mùa giải này là vì... Ronaldo?
+-  Un Gobierno europeo entregó más de 100.000 dólares para financiar película XXX “hardcore”
+-  噴火警戒レベル、一部を見直し運用開始 阿蘇中岳第1火口
+-  Rood Wit’62 moet op zoek naar een nieuwe trainer; Mark Lommen per direct opgestapt
+-  St. John's blasts Seton Hall in Big East quarterfinals, to face No. 2 UConn next
+-  NBA star RJ Barrett is granted personal leave from the Toronto Raptors 'following the shock death of his younger brother Nathan' - as former coach reveals news on social media
