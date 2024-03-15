@@ -1,11 +1,11 @@
 # Latest News
--  සුලෝහිත එක්දින සටනට නොමිලේ ප්‍රවේශපත් ලබා ගැනීමේ අවස්ථාවක්
--  Clinical trial shows 'dramatic and rapid' progress against aggressive brain cancer
--  Vali Eldivan kurum amirleriyle iftar programında bir araya geldi
--  மக்களவைத் தோ்தலின் போது ஆயிரக்கணக்கான விவசாயிகள் போராட்டம்
--  Cusco: escolar acaba grave luego de tragarse moneda de un sol en su primer día de clases (VIDEO)
--  Ghi 11 bàn sau 2 lượt, Liverpool ra oai ở Europa League
--  Abdullahi Re-elected as President of Nigeria Archery Federation
--  Destituyen a tres funcionarios de Guerrero tras asesinato de estudiante de Ayotzinapa
--  4 livestock farmers feted with CM Award
--  Canciller de Brasil espera que elecciones en Venezuela sean aceptadas por todos
+-  Ολυμπιακός: Οι ξέφρενοι πανηγυρισμοί μετά την επική πρόκριση, το μπουγέλο στον Μεντιλίμπαρ και το πάρτι στα αποδυτήρια - Βίντεο
+-  Nga tuyên bố chiến thắng quan trọng, quân Ukraine rút chạy: Thế gọng kìm siết chặt, 3.000 lính bị vây hãm
+-  Türkiyədəki zəlzələni proqnozlaşdıran alim: “Seysmik qiyamət qopacaq, Yer titrəyəcək”
+-  ಚುರುಮುರಿ: ರಾಜಕೀಯ ಅಂದ್ರೆ...
+-  ಕೌಂಟಿ ಕ್ಲಬ್‌ ಎದುರು ನಿಶ್ಚಲ್ ಶತಕ
+-  9 điều cha mẹ không được quên khi nuôi dạy con trai
+-  韓韶禧、柳俊烈「零變裝」約會！多名遊客目擊 差8歲兄妹戀早傳開
+-  Mega-sena acumula e prêmio vai a R$ 58 milhões
+-  EPL HONOURS ZIM TEENAGE FORWARD
+-  「宇宙への原子炉設置はロシアの優先事項」 プーチン大統領(CNN.co.jp)
