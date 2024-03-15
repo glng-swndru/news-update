@@ -1,11 +1,11 @@
 # Latest News
--  Villarreal - OM : Marcelino "fier" d'avoir "écrasé" Marseille !
--  TikTok é multado na Itália por não impedir disseminação de conteúdo prejudicial
--  Laylatul Qadr 2024 - Un CRD pour réussir l’organisation de cet événement si cher à Sokhna Bintu Khadim Rassoul
--  [모닝와이드] 오늘의 주요뉴스
--  Herkes buradan ev almak için sıraya girdi; Bu ilçenin Türkiye’de eşi benzeri yok
--  49 Remaja Ditangkap Polisi, Tawuran Gagal
--  Biden opposes US Steel sale to Nippon Steel
--  Judge enriching anti-graft law
--  TikTok é multado na Itália por não impedir disseminação de conteúdo prejudicial
--  京都府京田辺市がまとめた複合型公共施設の基本構想案とは？JR京田辺駅北側一帯に整備予定
+-  Хуситы намерены атаковать суда Израиля в Индийском океане
+-  Во Франции решили создадать собственный реестр иноагентов
+-  Shearer guilty of ice-fuelled theft of guns keen to turn life around
+-  ''Olympiacos'' uzvar derbijā, ''Fenerbahce'' uzstāda Eirolīgas trejaču rekordu
+-  Jakirović: Da je Špikić zabio, to bi ih dokrajčilo
+-  Inflación al productor presiona a las acciones americanas
+-  Trener PAOK-a objasnio zašto je Dinamo pao u Solunu: Znali smo...
+-  Turkish ambassador hosts Iftar in honour of media professionals
+-  Barselona ostala neosvojiva tvrđava! Partizan nemoćan u Kataloniji
+-  U OVOJ KUĆI NAĐENA SU TELA BRATA I SESTRE Porodična tragedija u Gornjem Milanovcu: Oglasio se sin preminulog muškarca (FOTO)
