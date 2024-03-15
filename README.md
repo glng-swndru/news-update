@@ -1,11 +1,11 @@
 # Latest News
--  Šumoborci krenuli u novu sezonu pošumljavanja, već posadili čak 6.000 sadnica
--  Renunció pero Milei lo mantiene como rehén del Estado
--  "Его мысли только о том, чтобы развивать "Карабах"
--  "도주 대사" 총공세…"임명 철회 없다"
--  Our review of Edward Scissorhands at Mayflower Theatre
--  Победительница конкурса "Женщина года": от нашей активной позиции зависит развитие страны
--  Мистерията на минимума на Маундер: Защо Слънцето е било толкова слабо през 1600 г.
--  Kersteditie Heel Holland bakt mét BN’ers
--  Markus Söder wütet gegen neues Gesetz: "Wir wollen, dass der Unfug gestoppt wird"
--  Avião de pequeno porte cai no interior da Bahia
+-  Jacek Nizinkiewicz: Od tego wystąpienia Jarosława Kaczyńskiego zależy przyszłość PiS. Partia boi się o prezesa
+-  Nach „Nein“ zu Taurus: Scholz verspricht Selenskyj Waffen
+-  Japonya'da Fukuşima açıklarında 5.6 büyüklüğünde deprem
+-  Confindustria, Gozzi ha il quorum per candidarsi. Ma è polemica: è fuori tempo massimo
+-  Prince Edward raises eyebrows during Badminton rally against sporty wife Duchess Sophie
+-  Posljednji izborni dar od 503 milijuna eura: Ovako će Vlada rasporediti novac iz proračuna
+-  Špičkový smartphone za 20 tisíc? Google Pixel 8 Pro teď koupíte o 7 tisíc levněji než z Německa
+-  Splićanin je bio sebi faca jer ima Gucci tepih u autu, kad mu je dosadio - evo što je uradio! Koji obraz đon
+-  London burning. I rimedi maldestri di Sunak, tra le derive d'odio e l'assalto al Telegraph
+-  Svečanost povodom proglašenja Mostara Europskim gradom vina Dionisio za 2024.
