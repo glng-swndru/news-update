@@ -1,11 +1,11 @@
 # Latest News
--  रूस में राष्ट्रपति पद के चुनाव के लिए मतदान शुरू
--  Avskaffa regionerna – förstatliga sjukvården
--  Elderly Queensland woman injured in sand boarding accident on Moreton Island near Brisbane
--  Rusya'da devlet başkanlığı seçimi: İlk kez 3 gün sürecek
--  Кучеров 6-й раз за карьеру набрал 5 очков в одном матче в НХЛ
--  Úmysel alebo náhoda?! Slafkovský si pripísal parádnu asistenciu, po sóle od vlastnej bránky bodoval aj Nemec
--  ആമസോണില്‍ പ്രീമിയം കളക്ടീവ് സെയില്‍. വുമന്‍സ് ജാക്കറ്റിന് മികച്ച ഓഫര്‍
--  SNP Humza Yousaf right to flag Brexit Scottish finances hole
--  Άρχισε η τριήμερη ψηφοφορία για τις Προεδρικές στη Ρωσία
--  Warum sich Maria Springwald für mehr einsetzt als die Unisex-Toilette im Pfarrheim
+-  「老公會顧娃」被讚稱 蘿莉塔：棒個鳥？這不是應該的嗎？
+-  Putin anuncia el despliegue de tropas y armamento pesado ruso en la frontera con Finlandia
+-  "Kura müdahale edilecek, ÖTV ve KDV’de artış olacak" iddialarına yalanlama
+-  MKMK Mulai Gelar Sidang Dugaan Pelanggaran Etik Hakim MK, Ada Nama Saldi Isra hingga Anwar Usman
+-  ۷۲ هزار هکتار از شالیزاهای گیلان شخم اولیه شدند
+-  Tourismus-Bilanz: Kreis Euskirchen setzt auf Nachhaltigkeit und neue Fahrrad-Angebote
+-  Russia al voto, aperti i seggi per le elezioni presidenziali
+-  यमन के हूतियों ने किया बड़ा दावा, उड़ जाएंगे अमेरिका-ब्रिटेन के होश
+-  Gazze'deki hükümet: İsrail, yardım beklenen yerlerin koordinatlarını kasten hedef alıyor
+-  Tourismus-Bilanz: Kreis Euskirchen setzt auf Nachhaltigkeit und neue Fahrrad-Angebote
