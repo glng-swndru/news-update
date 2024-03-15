@@ -1,11 +1,11 @@
 # Latest News
--  Pixalate Releases List of Mobile Apps With the Highest Invalid Traffic (IVT, Including Ad Fraud) in February 2024 Across Google, Apple App Stores: Spider Solitaire, Draft Max Among Most Impacted
--  Как залових Червения пират
--  Трейлер ремастера Shadows of the Damned от авторов No More Heroes и Resident Evil подтвердил скорый показ демо
--  Legislature decides WA schools should include LGBTQ+ history
--  El Racing, pendiente de la recuperación de Jon García
--  Revitalising Sri Lanka through Social Solidarity Economy
--  Sprint biatlonistek v Canmore ovládla Vittozziová. Voborníková dokončila závod na dvanáctém místě
--  Χρίστου: «Ο Ταμασού επέλεξε να επιφέρει την κάθαρση - Δεν άγγιξα χρήματα»
--  KANDIR(MA) BİZİ EY İKTİDAR
--  Столтенберг обяви колко са руските жертви във войната досега, цифрата е стряскаща
+-  Elárulta az ukrán főparancsnok, mi lehet a győzelem kulcsa
+-  Кросбі може отримати новий контракт із 10,5 млн доларів за рік
+-  Peel Region seeks input to help improve child care services
+-  El Senado argentino rechaza el “mega decreto” de Milei
+-  Roma, De Rossi: "I tre attaccanti di stasera hanno dimostrato di meritarsi più spazio"
+-  'Gotovo 50.000 djece pati od neke mentalne teškoće, a ne uspijevaju dobiti potrebnu podršku'
+-  أسهم أوروبا تهبط من مستويات قياسية بسبب ضبابية مسار خفض الفائدة
+-  Itävaltalaistähdet hyllytettiin, video törkeästä laulusta leviää
+-  Nascido em Paraisópolis, banco quer ser “BNDES da favela”
+-  Očekujete povratak Ivana Perišića već protiv Lokomotive? Evo što se događa iza kulisa najveće priče godine
