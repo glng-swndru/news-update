@@ -1,11 +1,11 @@
 # Latest News
--  DMK-Congress can never develop Tamil Nadu: PM Modi at Kanyakumari
--  【影片】《淚之女王》金智媛出席品牌活動！當記者要求「臉頰愛心」時，讓「洪海仁」害羞地笑了
--  한동훈 "살만하면 2번 찍든지? 대단히 후져…모두 투표"
--  Eşine bu lafı söyleyen artık tazminat ödeyecek
--  Руската църква не е потвърдила присъствие на опелото на патриарх Неофит
--  BN Hotel, Türkiye'nin en çok beğenilen ilk 10 oteli arasına girdi
--  Ukraine-Krieg: Macron bleibt bei seiner Haltung zu Bodentruppen vor Treffen mit Scholz
--  Oil companies trims petrol and diesel prices by Rs 2
--  Eskişehir Demirspor hükmen kazanacak!
--  Olivia Rodrigo'nun konserinde doğum kontrol hapları dağıtıldı
+-  Rihanna Hot Dance: रिहाना ने अंबानी के जश्न में लगाए चार चांद, SRK के गाने पर दिखाया देसी अंदाज
+-  Latvijai būs jāsamaksā EK 300 000 eiro naudas sods par EP direktīvas nepildīšanu elektronisko sakaru jomā
+-  Twice displaced, Crimean Tatar woman longs for home 10 years after annexation
+-  Copper surges to $9 000 as bulls see global economy on mend
+-  Dünya mediası "Qarabağ"dan yazır
+-  राष्ट्र की सांस्कृतिक एकता के अग्रदूत थे जगद्गुरु शंकराचार्य: प्रो.संजय द्विवेदी
+-  החשוד שהצית רימון עשן צהוב ביציע הפועל י-ם בדרבי הורחק לשנתיים מהמגרשים
+-  Anadolu Üniversitesi Elazığ dersine çalışıyor!
+-  Χαλκίδα: 12χρονος επιτέθηκε σε συνομήλικό του και τον απείλησε με μαχαίρι
+-  Мозг человека по-особенному обрабатывает родной язык, выяснили ученые
