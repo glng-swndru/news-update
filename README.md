@@ -1,11 +1,11 @@
 # Latest News
--  Ausbildungskapazitäten für Zugführer bei der Feuerwehr sollen in Thüringen verdreifacht werden
--  Cổ phiếu tăng trần 5 phiên liên tiếp, VRC giải trình gì?
--  Bitcoin retreats from record high as 'bubble' talk grows louder
--  Chồng cầm dao giết vợ vì nghi ngờ cặp bồ và bản án 11 năm tù
--  앙심품고 신고자 보복 살해한 전과 26범 무기징역 확정
--  Cooperstown woman accused of sending confidential criminal file to man facing felony charges
--  Cancer patients in the Philippines falling for alternative 'cures'
--  В Беларуси задержали уроженца Таджикистана, уклонившегося от службы в армии РФ
--  ‘ที่ปรึกษานายกฯ’ สะกิด ‘แบงก์ชาติ’ หั่นดอกเบี้ย หลังเงินเฟ้อติดลบ 5 เดือนซ้อน!
--  「赤ひげ功労賞」の片山院長が舞鶴市長に受賞報告(産経新聞)
+-  RECENZE: Fentasy před drogami varuje, ale jako thriller selhává
+-  토요일 낮 21도 ‘포근’…미세먼지 ‘기승’ 오후 비로 조금 해소
+-  Гродненцы с приходом весны начали жечь мусор и сухую растительность. Соблюдают ли правила безопасности?
+-  SIF-tränaren om ramadan: ”Kroppen vänjer sig fort – som fräschast nu”
+-  ŠPANSKA LIGA PRIJAVLJUJE RASISTIČKE PORUKE UPUĆENU FUDBALERU REALA: Jezive uvrede i to na meču Atletiko - Inter?!
+-  SKORO BEZ PROMENE: Zvanični srednji kurs danas je 117,1969 dinara za jedan evro
+-  Gabung Ducati, Marc Marquez Langsung Disponsori Audi dan Boleh Pilih Hadiah Mobil Mewah
+-  Gazastreifen: Hamas wirft Israel erneut Schüsse auf Menschenmenge vor
+-  3房就夠住「投資選4房更好賺」？大票搖頭：1趨勢是主流
+-  UEFA Avrupa Konferans Ligi'nde çeyrek finale çıkan takımlar belli oldu
