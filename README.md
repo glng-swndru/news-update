@@ -1,11 +1,11 @@
 # Latest News
--  Tiktok ला रहा नया फोटो शेयरिंग App, Instagram को मिलेगी कड़ी टक्कर
--  Giappone nomina un ex ufficiale come sacerdote shintoista del Santuario Yasukuni
--  马来西亚是亚洲投资条件最好的国家
--  Dünya Matematik Günü’nde Bursa'da matematik tarihi müzesi açıldı
--  대통령실 “이종섭 빼돌리기, 말도 안되는 주장…공수처 수사권 남용”
--  Elazığ’da hapis cezası bulunan 24 zanlı yakalandı
--  Personalsituation vor Heidenheim: Borussias Trainer stärkt „Wirbelsäule“ Weigl
--  地震で停止の処理水放出を再開
--  Brent petrolün varil fiyatı 85,27 dolar
--  Celebrities who are certified siklista!
+-  Correlações e causalidades
+-  Baharın müjdecisi 'leylek' kar altında kaldı
+-  Festival del cibo di strada, sagre, tatuaggi e Garage Sale: un weekend dal sapore primaverile
+-  Službeno predstavljen Asus Zenfone 11 Ultra
+-  [아시아증시] 일제히 하락…美 기술주 하락 여파 이어져
+-  OM : Le retour de Marcelino vire au clash !
+-  "Cards Ahoy!" x "NARAKA": The First Shot of Chain Game Revival with a 90% Retention Rate
+-  Başer'in yeni projesiyle sertifikalı aşçılar yetiştirilecek
+-  La historia en el mármol de Ivan Meštrović
+-  Prozess am Amtsgericht Dortmund: Fat Comedy nach Angriff auf Oliver Pocher am Freitag vor Gericht
