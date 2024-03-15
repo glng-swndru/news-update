@@ -1,11 +1,11 @@
 # Latest News
--  Ücretli çalışan sayısı yıllık yüzde 2,8 arttı
--  Đề nghị làm rõ quy định CSGT được trích lại 70% tiền xử phạt
--  Bilecik'te 14 Mart Tıp Bayramı kutlandı
--  Dončič chýbal Dallasu, Oklahoma sa vrátila na čelo. Výhru Bostonu opäť režíroval Brown
--  Eylem Tok ve oğlunun yurtdışına kaçmasına yardım eden Bülent Cİhantimur ifadeye çağrıldı!
--  Скрепить ряды, законопатить пробоины. Внутренняя политика в России: модели развития, вызовы, цели и методы их достижения
--  Meghan Markle: Was hinter ihrer Rückkehr zu Instagram steckt
--  "Le président fait peur" : les réactions de l'opposition après les déclarations de Macron sur la guerre en Ukraine
--  시민사회수석 ‘언론인 회칼 테러’ 언급에 비판 잇달아
--  Forbes: Руската армия ефективно използва комбинация от дронове и артилерия срещу украинските въоръжени сили - Труд
+-  Tiktok ला रहा नया फोटो शेयरिंग App, Instagram को मिलेगी कड़ी टक्कर
+-  Giappone nomina un ex ufficiale come sacerdote shintoista del Santuario Yasukuni
+-  马来西亚是亚洲投资条件最好的国家
+-  Dünya Matematik Günü’nde Bursa'da matematik tarihi müzesi açıldı
+-  대통령실 “이종섭 빼돌리기, 말도 안되는 주장…공수처 수사권 남용”
+-  Elazığ’da hapis cezası bulunan 24 zanlı yakalandı
+-  Personalsituation vor Heidenheim: Borussias Trainer stärkt „Wirbelsäule“ Weigl
+-  地震で停止の処理水放出を再開
+-  Brent petrolün varil fiyatı 85,27 dolar
+-  Celebrities who are certified siklista!
