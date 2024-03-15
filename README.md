@@ -1,11 +1,11 @@
 # Latest News
--  В Физули возвращаются еще 35 семей бывших вынужденных переселенцев
--  Video: los goles de Nacional vs Always Ready y las claves que decidieron la tanda de penales
--  Number of residents back to their native lands in Azerbaijan’s Fuzuli
--  Vietnam prioriza garantizar la seguridad alimentaria
--  Bengaluru: Karnataka cabinet decides to acquire Palace Grounds land for road widening
--  Thiès / Grève de 1.300 cheminots retraités : "Nous prendrons en considération les problématiques de ses cheminots retraités" (Anta Babacar Ngom).
--  Roundtable connects Vietnam with businesses of Italy’s Basilicata region
--  이재명, '험지' 울산서 "민생 파탄 심판"...오후 부산 방문
--  Ley de Tierras 2024 atraerá inversiones en bienes raíces de vietnamitas en ultramar
--  İstanbul'da asayiş uygulamasında 481 şüpheli yakalandı
+-  Ausbildungskapazitäten für Zugführer bei der Feuerwehr sollen in Thüringen verdreifacht werden
+-  Cổ phiếu tăng trần 5 phiên liên tiếp, VRC giải trình gì?
+-  Bitcoin retreats from record high as 'bubble' talk grows louder
+-  Chồng cầm dao giết vợ vì nghi ngờ cặp bồ và bản án 11 năm tù
+-  앙심품고 신고자 보복 살해한 전과 26범 무기징역 확정
+-  Cooperstown woman accused of sending confidential criminal file to man facing felony charges
+-  Cancer patients in the Philippines falling for alternative 'cures'
+-  В Беларуси задержали уроженца Таджикистана, уклонившегося от службы в армии РФ
+-  ‘ที่ปรึกษานายกฯ’ สะกิด ‘แบงก์ชาติ’ หั่นดอกเบี้ย หลังเงินเฟ้อติดลบ 5 เดือนซ้อน!
+-  「赤ひげ功労賞」の片山院長が舞鶴市長に受賞報告(産経新聞)
