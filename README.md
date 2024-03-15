@@ -1,11 +1,11 @@
 # Latest News
--  Klimaziel 2030: Drastischer Co2-Rückgang? Stimmt – ist aber Augenwischerei
--  PRR proposal part of govt's effort to provide conducive homes for Malaysians
--  Kein Schnee im Schwarzwald: Skiclub Urach kritisiert: „Für die Einheimischen wird nichts gemacht!“
--  Meghan Markle gives nod to royal family with new brand
--  Un incendio en un contenedor alerta a los vecinos de s'Escorxador
--  Muda says it again: We're not joining PN roadshow
--  Monster review: Hirokazu Kore-eda’s subtle, smart and beautiful work is up there with Shoplifters
--  Çanakkale açıklarında göçmen botu battı: 16 ölü
--  "Tudor alla Lazio farà il 4-3-3 come gli aveva chiesto De Laurentiis": il retroscena
--  Klimaziel 2030: Drastischer Co2-Rückgang? Stimmt – ist aber Augenwischerei
+-  Kuolleet | Lasse Virenin olympiavoittajaksi valmentanut Rolf Haikkola on kuollut
+-  Lena Meyer-Landrut: Darum hatte sie "totalen Respekt" vor "WSMDS"
+-  'Bu alanı imara açabilmek için her türlü oyun oynanıyor'
+-  Iran: Drangsalierung von Frauen und kein Ende in Sicht
+-  Pet razloga zbog kojih je važno djecu uključiti u sport i u tome ostati dosljedan
+-  IN RUSSIA PUTIN NON VUOLE VINCERE: VUOLE STRAVINCERE – NEL PAESE NON SANNO PIÙ CHE INVENTARSI PER COMPRARE L’ELETTORATO: DALLE LOTTERIE AI PRANZI AI CONCERTI GRATIS PER ARRIVARE FINO AI REGALI CHE VANNO DAGLI IPHONE AI PRODOTTI DELLA DYSON – “MAD VLAD” NON VUOLE PERDERE CONSENSO MA, ANCHE SECONDO I SONDAGGI INDIPENDENTI, LE PREFERENZE SONO INTORNO ALL’80% - I TRE RIVALI AMMESSI ALLE ELEZIONI FANNO PARTE DELL’OPPOSIZIONI SISTEMICA, APPENDICE DEL CREMLINO E…
+-  Песков: Франция все повече се въвлича в конфликта в Украйна, превръщайки Русия във враг - Труд
+-  Wen die Freien Wähler Ostalb zur Kreistagswahl aufstellen
+-  Iran: Justiz unterstützt gezielt Drangsalierung von Frauen
+-  Разин объяснил необходимость тренировок с баллонами между сериями плей-офф КХЛ
