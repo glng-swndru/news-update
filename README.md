@@ -1,11 +1,11 @@
 # Latest News
--  Pisco registra más de 600 pacientes con dengue y 186 tuvieron que ser hospitalizados
--  ΠΑΣΟΚ: Τα πρώτα ονόματα των υποψηφίων ευρωβουλευτών
--  Raut takes a jab at BJP over electoral bonds, says it is `biggest scam of India`
--  Parteien: CDU-Fraktion lehnt Agrarstrukturgesetz ab
--  Hamas - Die Geschichte einer Radikalisierung
--  3ο Δημοτικό Σχολείο Βέροιας : Εργαστήρια Δεξιοτήτων «Σταματώ τις διακρίσεις, αποδέχομαι τον Άλλον»
--  老婆月薪5萬！只肯「放5000元到共同帳戶」 一票搖頭
--  Rubén López firma por la némesis del Pamesa este año
--  Sonja Kovač s partnerom proslavila poseban dan: 'Čeka nas najdivnije putovanje u životu'
--  Ce se întâmplă în corpul tău dacă mănânci zilnic pâine ținută în frigider
+-  Un jeune homme grièvement blessé par des coups de couteau, dans le quartier de Croix-de-Neyrat, à Clermont-Ferrand
+-  Pokles stavebnej produkcie v Česku sa v januári výrazne zrýchlil
+-  The Bear fornyes for sesong 4 som skal spilles inn etter sesong 3
+-  Федерация гимнастики Азербайджана возобновила проведение Международного турнира по спортивной гимнастике "AGF Trophy"
+-  Un jeune homme grièvement blessé par des coups de couteau, dans le quartier de Croix-de-Neyrat, à Clermont-Ferrand
+-  Медведев за резолюцията за връщането на румънското злато: Разни идиоти от ЕП отново са си развихрили апетита - Труд
+-  В Одесі пролунали вибухи, є влучання (оновлено)
+-  NextGenWork wird die Arbeitswelt revolutionieren / Mancher Arbeitgeber wird sich wundern
+-  Bursa PERDER üyeleri iftar programında buluştu
+-  Bungay bench causes neighbours to protest against council
