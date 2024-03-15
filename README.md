@@ -1,11 +1,11 @@
 # Latest News
--  Novinarka N1 i pro-opozicioni analitičar priznali: Za izbore u Beogradu problem sa medijima ne postoji!
--  Djevojčici kod Zadra u školi zalijepili pa počupali obrve
--  कांग्रेसको अवरोधपछि प्रतिनिधि सभा बैठक स्थगित
--  DEBATT: De små skolorna i Krokoms kommun behövs!
--  유튜브서 막말→강성층 업고 공천→검증 부실로 취소… 예고된 ‘공천 참사’
--  Burnthouse Lane in Little Melton to close for 11 days
--  Zagrepčani masovno prijavljivali zemljotres kojeg nije bilo
--  Россиянин расправился с матерью и получил семь лет колонии
--  Jio यूजर्स के लिए खुशखबरी: 399 रुपये में मिलेगा Wifi, अनलिमिटेड 5G डेटा और कॉल्स
--  Long Time Coming – Rhys Moran 2.0 delighted to return following 3-year absence
+-  Popular holiday destination announces new plans to crack down on overtourism
+-  Çanakkale'de batan bottaki düzensiz göçmenler dron ile aranıyor
+-  Terrortámadás az afrikai fővárosban
+-  UK civil servants issue urgent warning as they threaten strike over major new rule
+-  Interzicerea centralelor de apartament va afecta puternic România / Asociația Energia Inteligentă: Autoritățile trebuie să ceară o derogare până în 2050
+-  Leser sorgen für Rekordergebnis
+-  El Papa dejó en claro que su dimisión es «una hipótesis lejana»
+-  Kịch bản giúp đội tuyển Việt Nam bỏ xa Indonesia, "về đích sớm" ở vòng loại thứ hai World Cup 2026
+-  越南坚持男女平等 维护妇女合法权益
+-  Zielgenau und grausam: So sicherte sich Putin seine Macht
