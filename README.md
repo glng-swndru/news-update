@@ -1,11 +1,11 @@
 # Latest News
--  Weg vrij voor 56 meter hoge woontoren aan de Leidse Papiermolen. Bezwaren tegen omvang worden niet erkend
--  Pilne spotkanie rządu z rolnikami. Nieprzypadkowy termin rozmów
--  NARODNA BANKA SRBIJE SAOPŠTILA Ovo je zvanični srednji kurs evra za petak
--  Dachowanie opla na Kalinowskiego w Białymstoku. Kierowca zahaczył o autobus
--  Николай и Йоан са сигурни кандидати за патриарх - Труд
--  Litio: la Justicia ordenó detener la explotación en el Salar del Hombre Muerto en Catamarca
--  OD MAJA SVAKI TAKSI BELE BOJE: Vozačima u prestonici za mesec i po dana ističe rok da automobili budu u skladu sa propisima
--  Mitchell Starc to be KKR's X-factor in IPL: Gautam Gambhir
--  LAVROV: Spoljna politika Rusije bazirana na nacionalnim interesima
--  The RECOVERY Milestone
+-  Chemiekonzern unter Druck: Lanxess: Erst bricht der Gewinn ein, nun die Aktie
+-  Amazon device deals: Save up to 50% on Ring devices this March
+-  Amazon device deals: Save up to 50% on Ring devices this March
+-  Зачем нужно отменять электрички три уикенда подряд — подробное объяснение от мэрии
+-  De Brujne preskače okupljanje reprezentacije zbog povrede
+-  Venezia, dal Comune un contributo per i commercianti danneggiati dagli atti vandalici
+-  Vermeulen Autoschade: 'Wat een man kan, kan ik ook'
+-  Apple było kiedyś na skraju bankructwa. Ten sprzęt uratował giganta przed upadkiem
+-  نقيب المحامين في بيروت زار سجن رومية واطلع من قائد سرية السجون على الاوضاع
+-  Golaha Wasiirrada XFS oo ansixiyay magacaabista Golaha Warbaahinta Qaranka
