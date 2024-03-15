@@ -1,11 +1,11 @@
 # Latest News
--  「老公會顧娃」被讚稱 蘿莉塔：棒個鳥？這不是應該的嗎？
--  Putin anuncia el despliegue de tropas y armamento pesado ruso en la frontera con Finlandia
--  "Kura müdahale edilecek, ÖTV ve KDV’de artış olacak" iddialarına yalanlama
--  MKMK Mulai Gelar Sidang Dugaan Pelanggaran Etik Hakim MK, Ada Nama Saldi Isra hingga Anwar Usman
--  ۷۲ هزار هکتار از شالیزاهای گیلان شخم اولیه شدند
--  Tourismus-Bilanz: Kreis Euskirchen setzt auf Nachhaltigkeit und neue Fahrrad-Angebote
--  Russia al voto, aperti i seggi per le elezioni presidenziali
--  यमन के हूतियों ने किया बड़ा दावा, उड़ जाएंगे अमेरिका-ब्रिटेन के होश
--  Gazze'deki hükümet: İsrail, yardım beklenen yerlerin koordinatlarını kasten hedef alıyor
--  Tourismus-Bilanz: Kreis Euskirchen setzt auf Nachhaltigkeit und neue Fahrrad-Angebote
+-  Perrot Duval-Aktie: Perrot Duval hat in den ersten neun Monaten einen Verlust eingefahren
+-  Politologs: Izteiktu līderu gaidāmajās EP vēlēšanās visdrīzāk nebūs
+-  à¶±à·™à¶¯à·”à¶±à·Šà¶šà·šà¶«à·’ à¶´à·œà¶½à·“à·ƒà·’à¶ºà¶§ à¶‘à¶»à·™à·„à·’à·€ à·€à·’à¶»à·�à¶°à¶­à·�
+-  إفطار جماعي بلا مخلفات في المدينة التعليمية
+-  Make Alia Bhatt’s pregnancy snack: Delicious Gur Sandesha recipe
+-  Det anständiga är att inte skylla ifrån sig
+-  中華男籃最新歸化人選 夢想家大B、攻城獅狄帝納討論
+-  금융위 부위원장 “ELS 등 고위험 상품, 실효성 높은 규제 검토 중”
+-  Kort sagt om kollektivtrafik, arbetstider och Dragon Gate
+-  Kütahya ve Afyonkarahisar’da kaçak silah ticareti operasyonu
