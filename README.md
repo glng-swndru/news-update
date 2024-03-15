@@ -1,11 +1,11 @@
 # Latest News
--  Popular holiday destination announces new plans to crack down on overtourism
--  Çanakkale'de batan bottaki düzensiz göçmenler dron ile aranıyor
--  Terrortámadás az afrikai fővárosban
--  UK civil servants issue urgent warning as they threaten strike over major new rule
--  Interzicerea centralelor de apartament va afecta puternic România / Asociația Energia Inteligentă: Autoritățile trebuie să ceară o derogare până în 2050
--  Leser sorgen für Rekordergebnis
--  El Papa dejó en claro que su dimisión es «una hipótesis lejana»
--  Kịch bản giúp đội tuyển Việt Nam bỏ xa Indonesia, "về đích sớm" ở vòng loại thứ hai World Cup 2026
--  越南坚持男女平等 维护妇女合法权益
--  Zielgenau und grausam: So sicherte sich Putin seine Macht
+-  Bezirk Amstetten - Serienunfall forderte Todesopfer und drei teils Schwerverletzte
+-  Nick Cave & the Bad Seeds komen in oktober naar het Sportpaleis
+-  Банка у нас с рекорд в печалбите
+-  Patėvis prisiminė mirusį Matthew Perry: jis buvo laimingas ir tikėjo, kad pasveiks
+-  US Life & Non-Life Insurance Market Poised for Strong Growth: In-Depth Analysis Unveiled
+-  Vi brevbärare har slitit hårt i vinter
+-  An der A99: PV-Anlage ganz ohne Bauantrag
+-  INSÄNDARE: Vi brevbärare har slitit hårt i vinter
+-  OKX Ventures Invests in Meson Network to Enhance AI Infrastructure
+-  जीवन चलाउनेले सिआइबीलाई चार घण्टा दिएको बयान गायब
