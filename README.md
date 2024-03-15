@@ -1,11 +1,11 @@
 # Latest News
--  Хуситы намерены атаковать суда Израиля в Индийском океане
--  Во Франции решили создадать собственный реестр иноагентов
--  Shearer guilty of ice-fuelled theft of guns keen to turn life around
--  ''Olympiacos'' uzvar derbijā, ''Fenerbahce'' uzstāda Eirolīgas trejaču rekordu
--  Jakirović: Da je Špikić zabio, to bi ih dokrajčilo
--  Inflación al productor presiona a las acciones americanas
--  Trener PAOK-a objasnio zašto je Dinamo pao u Solunu: Znali smo...
--  Turkish ambassador hosts Iftar in honour of media professionals
--  Barselona ostala neosvojiva tvrđava! Partizan nemoćan u Kataloniji
--  U OVOJ KUĆI NAĐENA SU TELA BRATA I SESTRE Porodična tragedija u Gornjem Milanovcu: Oglasio se sin preminulog muškarca (FOTO)
+-  El Ejecutivo argentino critica rechzado sufrido en el Senado
+-  Internal translocation of rhinos taking place in Chitwan
+-  Гол с передачи Миранчука принес «Аталанте» победу над «Спортингом»
+-  Ajax vliegt uit Europa na pijnlijke nederlaag bij Aston Villa
+-  Opluchting op Jan Breydel: Club zet Molde vlot opzij en staat in kwartfinales Conference League
+-  Poli civici, la sperimentazione funziona. Ora il Campidoglio prepara un nuovo regolamento
+-  Internal translocation of rhinos taking place in Chitwan
+-  Forest Rights Act implementation mixed in 5 States, shows report
+-  Allanaron una vivienda buscando armas de fuego: hallaron marihuana y dinero
+-  Man dies after falling from flat window in Glasgow as police probe 'unexplained' death
