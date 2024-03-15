@@ -1,11 +1,11 @@
 # Latest News
--  RECENZE: Fentasy před drogami varuje, ale jako thriller selhává
--  토요일 낮 21도 ‘포근’…미세먼지 ‘기승’ 오후 비로 조금 해소
--  Гродненцы с приходом весны начали жечь мусор и сухую растительность. Соблюдают ли правила безопасности?
--  SIF-tränaren om ramadan: ”Kroppen vänjer sig fort – som fräschast nu”
--  ŠPANSKA LIGA PRIJAVLJUJE RASISTIČKE PORUKE UPUĆENU FUDBALERU REALA: Jezive uvrede i to na meču Atletiko - Inter?!
--  SKORO BEZ PROMENE: Zvanični srednji kurs danas je 117,1969 dinara za jedan evro
--  Gabung Ducati, Marc Marquez Langsung Disponsori Audi dan Boleh Pilih Hadiah Mobil Mewah
--  Gazastreifen: Hamas wirft Israel erneut Schüsse auf Menschenmenge vor
--  3房就夠住「投資選4房更好賺」？大票搖頭：1趨勢是主流
--  UEFA Avrupa Konferans Ligi'nde çeyrek finale çıkan takımlar belli oldu
+-  रूस में राष्ट्रपति पद के चुनाव के लिए मतदान शुरू
+-  Avskaffa regionerna – förstatliga sjukvården
+-  Elderly Queensland woman injured in sand boarding accident on Moreton Island near Brisbane
+-  Rusya'da devlet başkanlığı seçimi: İlk kez 3 gün sürecek
+-  Кучеров 6-й раз за карьеру набрал 5 очков в одном матче в НХЛ
+-  Úmysel alebo náhoda?! Slafkovský si pripísal parádnu asistenciu, po sóle od vlastnej bránky bodoval aj Nemec
+-  ആമസോണില്‍ പ്രീമിയം കളക്ടീവ് സെയില്‍. വുമന്‍സ് ജാക്കറ്റിന് മികച്ച ഓഫര്‍
+-  SNP Humza Yousaf right to flag Brexit Scottish finances hole
+-  Άρχισε η τριήμερη ψηφοφορία για τις Προεδρικές στη Ρωσία
+-  Warum sich Maria Springwald für mehr einsetzt als die Unisex-Toilette im Pfarrheim
