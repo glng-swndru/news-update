@@ -1,11 +1,11 @@
 # Latest News
--  Elárulta az ukrán főparancsnok, mi lehet a győzelem kulcsa
--  Кросбі може отримати новий контракт із 10,5 млн доларів за рік
--  Peel Region seeks input to help improve child care services
--  El Senado argentino rechaza el “mega decreto” de Milei
--  Roma, De Rossi: "I tre attaccanti di stasera hanno dimostrato di meritarsi più spazio"
--  'Gotovo 50.000 djece pati od neke mentalne teškoće, a ne uspijevaju dobiti potrebnu podršku'
--  أسهم أوروبا تهبط من مستويات قياسية بسبب ضبابية مسار خفض الفائدة
--  Itävaltalaistähdet hyllytettiin, video törkeästä laulusta leviää
--  Nascido em Paraisópolis, banco quer ser “BNDES da favela”
--  Očekujete povratak Ivana Perišića već protiv Lokomotive? Evo što se događa iza kulisa najveće priče godine
+-  【今すぐ逃げて】あなたの人間関係をぶち壊す「有害な人」の特徴とは？ - 気になるあの本を読んでみた！ベストセラー目のつけどころ
+-  روایت فرماندهان صهیونیست از نبردهای بی‌سابقه در خان‌یونس
+-  Diretor comemora retorno do Mixto para uma semifinal de estadual após 11 anos
+-  مؤسسة رؤيا المستقبل وكشافة أبين يدشنان توزيع وجبة عشاء للصائمين بزنجبار
+-  Doppelbürger, Provokateur und Bänklischutter – so tickt Nils Fiechter
+-  ++ Confindustria: in due al voto, Garrone e Orsini ++
+-  Kate Middleton scandal: leading photo agency announces Kensington Palace no longer 'trusted source' - Fox News
+-  Este viernes concluye el plazo del concurso literario 'Yolanda Sáenz de Tejada' de El Bonillo (Albacete)
+-  The Finals Season 2 patch notes - New map, gadgets, weapons and game show event
+-  Beyoncé, Elon Musk... Emmanuel Macron a décoré Bernard Arnault à l'Élysée, du beau monde présent
