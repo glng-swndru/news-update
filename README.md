@@ -1,11 +1,11 @@
 # Latest News
--  Bakar, litijum, retki metali: Nemačka zavisna od uvoza sirovina
--  Пчели прекъснаха мача между Алкарас и Зверев в Индиън Уелс
--  Erneute Klage gegen Herzogin Meghan wird für Schwester teuer
--  В Русия започна тридневно гласуване. Планът на Кремъл е Путин да покаже "рекордни резултати"
--  国道1号のボトルネック克服へ トンネル貫通後の進捗は？ 藤枝バイパス4車線化(乗りものニュース)
--  Fenerbahçe’nin çeyrek finaldeki muhtemel rakipleri belli oldu
--  “달리는 우리를 막을 수 없다”…한계에 도전하는 ‘여성 울트라 마라토너’ [플랫]
--  Xài thẻ tín dụng phát sinh nợ hơn 8 triệu bị đòi gần 9 tỷ sau 11 năm, nhưng nếu lỡ xài 15 triệu và cùng lãi suất thì phải trả hơn 75 tỷ đồng
--  Bayraktar AKINCI bir testi daha başarıyla geçti
--  Rohini Vrat 2024: जीवन के सभी कष्टों से मुक्ति दिला सकता है, यहां पढ़ें पौराणिक कथा
+-  ONWARD® Medical Reaffirms Guidance, Shares 2024 Strategic Priorities, and Releases Unaudited Q4 Financial Highlights
+-  Opération sauvetage de 1.800 poules pondeuses près de Montluçon
+-  Bergomi: «La Juve andrà in Champions. Scudetto? Ci ha creduto, ma poi è crollata…»
+-  Scared man 'felt safe' on Inverness rooftops
+-  Bientôt des vêtements Made in Puisaye grâce à la couturière de Toucy
+-  Zu viele Flüchtlinge: Stadt richtet Sammelunterkunft ein
+-  പ്രണയം, പക, വര്‍ഷങ്ങളുടെ വേട്ടയാടല്‍, കൊലപാതകം; ഒരു സൈബര്‍ 'നാഗവല്ലി'യുടെ കഥ
+-  DWP faces ‘outrage’ and ‘paranoia’ if it continues plans to ‘spy’ on bank accounts
+-  Europa League 2023-2024: resultado y clasificación tras la Octavos - Vuelta
+-  Ранок у Білгороді розпочався з вибухів
