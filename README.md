@@ -1,11 +1,11 @@
 # Latest News
--  В результате нового обстрела Белгорода погиб один человек
--  Infineon- und STMicro-Aktien unter Druck: China will wohl mehr Elektronikchips von heimischen Anbietern
--  Frio e calculista, diz Fernando Pavão sobre vilão Mathias, de "Família é Tudo"
--  VIDEO SA ŽNJANA: Pogledajte kako izgleda veliko splitsko gradilište na snimkama iz zraka
--  "Azərbaycan kişisi axmaq, gəzəyən kimi..."
--  Tokat'ta dolu etkili oldu
--  Sınırdan geçmeye çalışan 3 terörist yakalandı
--  12 điều mẹ chồng đừng làm với con dâu, hôn nhân của các con sẽ bền vững hơn
--  Fenerbahçe, Türk futbol tarihinde bir ilki başardı!
--  Penjelasan MenPAN-RB soal ASN Bisa Isi Jabatan TNI/Polri
+-  Une nonagénaire percutée à Cagnes-sur-Mer, l'avenue Général-Leclerc coupée
+-  《再戰明天》中國公布工業生產等數據，藥明康德潤啤公布業績
+-  فوج الهندسة في الجيش فكك صاروخا في حراجل
+-  「アニヲタWiki（仮）」現管理者の権限をアットウィキが永久停止 不審な広告設置で
+-  Parkson Retail Group Ltd enters into RM1.6bil loan agreement
+-  Моя цель - выйти в финал Международного турнира по спортивной гимнастике "AGF Trophy"
+-  90% động vật hoang dã bị săn bắt vào nhà hàng, quán nhậu
+-  Lý Hoàng Nam vào bán kết Giải M25 ở Ấn Độ
+-  Real donio odluku koja se neće svidjeti Mbappéu: Kapetanu Francuske uskratit će veliku želju
+-  Умъртвяват патици във ферма във Ветрен заради птичи грип
