@@ -1,11 +1,11 @@
 # Latest News
--  Rihanna Hot Dance: रिहाना ने अंबानी के जश्न में लगाए चार चांद, SRK के गाने पर दिखाया देसी अंदाज
--  Latvijai būs jāsamaksā EK 300 000 eiro naudas sods par EP direktīvas nepildīšanu elektronisko sakaru jomā
--  Twice displaced, Crimean Tatar woman longs for home 10 years after annexation
--  Copper surges to $9 000 as bulls see global economy on mend
--  Dünya mediası "Qarabağ"dan yazır
--  राष्ट्र की सांस्कृतिक एकता के अग्रदूत थे जगद्गुरु शंकराचार्य: प्रो.संजय द्विवेदी
--  החשוד שהצית רימון עשן צהוב ביציע הפועל י-ם בדרבי הורחק לשנתיים מהמגרשים
--  Anadolu Üniversitesi Elazığ dersine çalışıyor!
--  Χαλκίδα: 12χρονος επιτέθηκε σε συνομήλικό του και τον απείλησε με μαχαίρι
--  Мозг человека по-особенному обрабатывает родной язык, выяснили ученые
+-  Ücretli çalışan sayısı yıllık yüzde 2,8 arttı
+-  Đề nghị làm rõ quy định CSGT được trích lại 70% tiền xử phạt
+-  Bilecik'te 14 Mart Tıp Bayramı kutlandı
+-  Dončič chýbal Dallasu, Oklahoma sa vrátila na čelo. Výhru Bostonu opäť režíroval Brown
+-  Eylem Tok ve oğlunun yurtdışına kaçmasına yardım eden Bülent Cİhantimur ifadeye çağrıldı!
+-  Скрепить ряды, законопатить пробоины. Внутренняя политика в России: модели развития, вызовы, цели и методы их достижения
+-  Meghan Markle: Was hinter ihrer Rückkehr zu Instagram steckt
+-  "Le président fait peur" : les réactions de l'opposition après les déclarations de Macron sur la guerre en Ukraine
+-  시민사회수석 ‘언론인 회칼 테러’ 언급에 비판 잇달아
+-  Forbes: Руската армия ефективно използва комбинация от дронове и артилерия срещу украинските въоръжени сили - Труд
