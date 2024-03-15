@@ -1,11 +1,11 @@
 # Latest News
--  【今すぐ逃げて】あなたの人間関係をぶち壊す「有害な人」の特徴とは？ - 気になるあの本を読んでみた！ベストセラー目のつけどころ
--  روایت فرماندهان صهیونیست از نبردهای بی‌سابقه در خان‌یونس
--  Diretor comemora retorno do Mixto para uma semifinal de estadual após 11 anos
--  مؤسسة رؤيا المستقبل وكشافة أبين يدشنان توزيع وجبة عشاء للصائمين بزنجبار
--  Doppelbürger, Provokateur und Bänklischutter – so tickt Nils Fiechter
--  ++ Confindustria: in due al voto, Garrone e Orsini ++
--  Kate Middleton scandal: leading photo agency announces Kensington Palace no longer 'trusted source' - Fox News
--  Este viernes concluye el plazo del concurso literario 'Yolanda Sáenz de Tejada' de El Bonillo (Albacete)
--  The Finals Season 2 patch notes - New map, gadgets, weapons and game show event
--  Beyoncé, Elon Musk... Emmanuel Macron a décoré Bernard Arnault à l'Élysée, du beau monde présent
+-  I’d like Diane Abbott to be Labour MP again, says Angela Rayner - The Guardian
+-  CONFERENCE LEAGUE - Fiorentina-Maccabi Haifa 1-1, toscani qualificati ai quarti
+-  FGR inicia acciones legales contra juez por revés en caso del Viaducto Bicentenario
+-  L’ex-juge Jacques Delisle sort de détention
+-  Europa League: 3-1 allo Slavia, il Milan ai quarti
+-  Brazil and Argentina agree on reciprocal open skies policy
+-  HÜDAPAR'lı vekilin 'renk' açıklamasına Dündar'dan yorum: "Domuz bağının ip rengini de seçebiliyor muyuz"
+-  Kavan Ratnayaka appointed as Chairman of BOC
+-  Brazil and Argentina agree on reciprocal open skies policy
+-  Brazil and Argentina agree on reciprocal open skies policy
