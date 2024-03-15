@@ -1,11 +1,11 @@
 # Latest News
--  Une nonagénaire percutée à Cagnes-sur-Mer, l'avenue Général-Leclerc coupée
--  《再戰明天》中國公布工業生產等數據，藥明康德潤啤公布業績
--  فوج الهندسة في الجيش فكك صاروخا في حراجل
--  「アニヲタWiki（仮）」現管理者の権限をアットウィキが永久停止 不審な広告設置で
--  Parkson Retail Group Ltd enters into RM1.6bil loan agreement
--  Моя цель - выйти в финал Международного турнира по спортивной гимнастике "AGF Trophy"
--  90% động vật hoang dã bị săn bắt vào nhà hàng, quán nhậu
--  Lý Hoàng Nam vào bán kết Giải M25 ở Ấn Độ
--  Real donio odluku koja se neće svidjeti Mbappéu: Kapetanu Francuske uskratit će veliku želju
--  Умъртвяват патици във ферма във Ветрен заради птичи грип
+-  Bütçe şubatta 153,8 milyar lira açık verdi: Hani tasarruf yapacaktık?
+-  Luxie, artiste bordelaise, tout en pop mélancolique et douceur en première partie d’Isaac Delusion
+-  Bohmstedt: Landwirt und Helfer sterben nach Sturz in Gülleschacht
+-  Isère et Pays de Savoie. Provencia innove pour recruter : "Ils ont la réponse le lendemain matin"
+-  Ağzında emzikle dolaşan yavru sokak köpeği görenleri gülümsetti
+-  Bohmstedt: Landwirt und Helfer sterben nach Sturz in Gülleschacht
+-  Caso Mormile, altre due condanne per l’agguato contro l’educatore carcerario ucciso dalla ‘ndrangheta
+-  Com atraso, Receita libera envio do Imposto de Renda pelo celular e tablet; veja passo a passo
+-  مسئولان و رسانه ها در خصوص نقشه دشمن‌ شفاف‌سازی کنند
+-  Dörfles-Esbach: Wo’s für die Feuerwehr zu eng wird
