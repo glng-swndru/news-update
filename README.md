@@ -1,11 +1,11 @@
 # Latest News
--  Rengeteg lehetőség áll a vállalkozni vágyók előtt, hangzott el a hajdú-bihari iparkamarai évnyitón
--  A nemzet ifjúsága megmutatta erejét
--  Eisdielen in Recklinghausen: So viel kostet 2024 eine Kugel Eis
--  Découvrez Tina Modotti, photographe révolutionnaire
--  Economic growth looms over climate
--  Economic growth looms over climate
--  Cuidá tu cerebro: el síntoma que hay que tener en cuenta para evitar perder la memoria con el envejecimiento
--  Bildungsticket für den Kreis Rendsburg-Eckernförde kommt im Sommer
--  Big Lots supports the American Heart Association's Life is Why campaign as they champion women's heart health
--  Six clubs to blow out cobwebs
+-  Weg vrij voor 56 meter hoge woontoren aan de Leidse Papiermolen. Bezwaren tegen omvang worden niet erkend
+-  Pilne spotkanie rządu z rolnikami. Nieprzypadkowy termin rozmów
+-  NARODNA BANKA SRBIJE SAOPŠTILA Ovo je zvanični srednji kurs evra za petak
+-  Dachowanie opla na Kalinowskiego w Białymstoku. Kierowca zahaczył o autobus
+-  Николай и Йоан са сигурни кандидати за патриарх - Труд
+-  Litio: la Justicia ordenó detener la explotación en el Salar del Hombre Muerto en Catamarca
+-  OD MAJA SVAKI TAKSI BELE BOJE: Vozačima u prestonici za mesec i po dana ističe rok da automobili budu u skladu sa propisima
+-  Mitchell Starc to be KKR's X-factor in IPL: Gautam Gambhir
+-  LAVROV: Spoljna politika Rusije bazirana na nacionalnim interesima
+-  The RECOVERY Milestone
