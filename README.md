@@ -1,11 +1,11 @@
 # Latest News
--  Kuolleet | Lasse Virenin olympiavoittajaksi valmentanut Rolf Haikkola on kuollut
--  Lena Meyer-Landrut: Darum hatte sie "totalen Respekt" vor "WSMDS"
--  'Bu alanı imara açabilmek için her türlü oyun oynanıyor'
--  Iran: Drangsalierung von Frauen und kein Ende in Sicht
--  Pet razloga zbog kojih je važno djecu uključiti u sport i u tome ostati dosljedan
--  IN RUSSIA PUTIN NON VUOLE VINCERE: VUOLE STRAVINCERE – NEL PAESE NON SANNO PIÙ CHE INVENTARSI PER COMPRARE L’ELETTORATO: DALLE LOTTERIE AI PRANZI AI CONCERTI GRATIS PER ARRIVARE FINO AI REGALI CHE VANNO DAGLI IPHONE AI PRODOTTI DELLA DYSON – “MAD VLAD” NON VUOLE PERDERE CONSENSO MA, ANCHE SECONDO I SONDAGGI INDIPENDENTI, LE PREFERENZE SONO INTORNO ALL’80% - I TRE RIVALI AMMESSI ALLE ELEZIONI FANNO PARTE DELL’OPPOSIZIONI SISTEMICA, APPENDICE DEL CREMLINO E…
--  Песков: Франция все повече се въвлича в конфликта в Украйна, превръщайки Русия във враг - Труд
--  Wen die Freien Wähler Ostalb zur Kreistagswahl aufstellen
--  Iran: Justiz unterstützt gezielt Drangsalierung von Frauen
--  Разин объяснил необходимость тренировок с баллонами между сериями плей-офф КХЛ
+-  В результате нового обстрела Белгорода погиб один человек
+-  Infineon- und STMicro-Aktien unter Druck: China will wohl mehr Elektronikchips von heimischen Anbietern
+-  Frio e calculista, diz Fernando Pavão sobre vilão Mathias, de "Família é Tudo"
+-  VIDEO SA ŽNJANA: Pogledajte kako izgleda veliko splitsko gradilište na snimkama iz zraka
+-  "Azərbaycan kişisi axmaq, gəzəyən kimi..."
+-  Tokat'ta dolu etkili oldu
+-  Sınırdan geçmeye çalışan 3 terörist yakalandı
+-  12 điều mẹ chồng đừng làm với con dâu, hôn nhân của các con sẽ bền vững hơn
+-  Fenerbahçe, Türk futbol tarihinde bir ilki başardı!
+-  Penjelasan MenPAN-RB soal ASN Bisa Isi Jabatan TNI/Polri
