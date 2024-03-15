@@ -1,11 +1,11 @@
 # Latest News
--  Correlações e causalidades
--  Baharın müjdecisi 'leylek' kar altında kaldı
--  Festival del cibo di strada, sagre, tatuaggi e Garage Sale: un weekend dal sapore primaverile
--  Službeno predstavljen Asus Zenfone 11 Ultra
--  [아시아증시] 일제히 하락…美 기술주 하락 여파 이어져
--  OM : Le retour de Marcelino vire au clash !
--  "Cards Ahoy!" x "NARAKA": The First Shot of Chain Game Revival with a 90% Retention Rate
--  Başer'in yeni projesiyle sertifikalı aşçılar yetiştirilecek
--  La historia en el mármol de Ivan Meštrović
--  Prozess am Amtsgericht Dortmund: Fat Comedy nach Angriff auf Oliver Pocher am Freitag vor Gericht
+-  Novinarka N1 i pro-opozicioni analitičar priznali: Za izbore u Beogradu problem sa medijima ne postoji!
+-  Djevojčici kod Zadra u školi zalijepili pa počupali obrve
+-  कांग्रेसको अवरोधपछि प्रतिनिधि सभा बैठक स्थगित
+-  DEBATT: De små skolorna i Krokoms kommun behövs!
+-  유튜브서 막말→강성층 업고 공천→검증 부실로 취소… 예고된 ‘공천 참사’
+-  Burnthouse Lane in Little Melton to close for 11 days
+-  Zagrepčani masovno prijavljivali zemljotres kojeg nije bilo
+-  Россиянин расправился с матерью и получил семь лет колонии
+-  Jio यूजर्स के लिए खुशखबरी: 399 रुपये में मिलेगा Wifi, अनलिमिटेड 5G डेटा और कॉल्स
+-  Long Time Coming – Rhys Moran 2.0 delighted to return following 3-year absence
