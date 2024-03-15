@@ -1,11 +1,11 @@
 # Latest News
--  Ürdün'den Mescid-i Aksa'nın kapılarına demir bariyer yerleştiren İsrail'e tepki
--  Словакия не захотела делать из России врага
--  Боррель заявил о «зашедшем в чужой сад» Папе Римском из-за его слов об Украине
--  Bošković: Optužbe Krapovića neosnovane
--  WATCH: Viral Pet Video – 14 March 2024
--  Apanas celebra su III Feria del Stock en Toledo este sábado
--  SpaceX : le vaisseau Starship a été "perdu" lors de son troisième vol test en redescendant vers la Terre
--  България номинира Кристалина Георгиева за втори мандат като управляващ директор на МВФ - Труд
--  NEXT Weather: 9 a.m. forecast from March 14, 2024
--  Бывший чемпион UFC: «Грусто было видеть, как Нганну отправили в нокаут»
+-  Šumoborci krenuli u novu sezonu pošumljavanja, već posadili čak 6.000 sadnica
+-  Renunció pero Milei lo mantiene como rehén del Estado
+-  "Его мысли только о том, чтобы развивать "Карабах"
+-  "도주 대사" 총공세…"임명 철회 없다"
+-  Our review of Edward Scissorhands at Mayflower Theatre
+-  Победительница конкурса "Женщина года": от нашей активной позиции зависит развитие страны
+-  Мистерията на минимума на Маундер: Защо Слънцето е било толкова слабо през 1600 г.
+-  Kersteditie Heel Holland bakt mét BN’ers
+-  Markus Söder wütet gegen neues Gesetz: "Wir wollen, dass der Unfug gestoppt wird"
+-  Avião de pequeno porte cai no interior da Bahia
