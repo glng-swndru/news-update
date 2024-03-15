@@ -1,11 +1,11 @@
 # Latest News
--  Wall Street apre in rialzo, Dj +0,30%, Nasdaq +0,14%
--  SpaceX Starship LIVE: Rocket successfully launches to cheers after previous explosions
--  What is Luke Littler’s net worth and career earnings?
--  Tiffany Anschutz, LCSW, President & Founder of Sage Recovery & Wellness Center, Spoke at TxSUS.org: Transforming Texas Through No-Cost Continuing Education for Substance Use Professionals
--  Carillon Reams Unconstrained Bond Fund (Class R-6 shares) wins 2024 Best Absolute Return Bond Fund for second year in a row
--  What is Luke Littler’s net worth and career earnings?
--  Spá ó­breyttum vöxtum en meiri bjart­sýni
--  Ministerstvo: Léků na černý kašel či záškrt je dost, dovážejí se další vakcíny
--  Economia diversificada compensará perdas em safra, diz Riedel
--  Economia diversificada compensará perdas em safra, garante Riedel
+-  Ernst De Geer: ”Det är skönt att se andra göra bort sig”
+-  ФСБ поймала вымогавшего деньги у бизнесменов криминального авторитета
+-  Bolile renale „întineresc”. Cel mai tânăr pacient din R. Moldova care necesită transplant renal are 23 de ani
+-  США разрешили Starlink работать в миллиметровом диапазоне волн
+-  МКС подготовили к прибытию экипажа с представительницей Беларуси
+-  Chambéry. Quand Raphaël Quenard était stagiaire dans l’équipe d’une députée savoyarde
+-  Natalità, Trojano (Sigo): "Chiedere a esperti per dubbi e limiti fertilità e Pma"
+-  L’infermiera aggredita a Trieste: «Mi hanno tirato un casco in faccia, tornare al lavoro non è stato facile»
+-  Premier recibe al asesor especial de Alianza Parlamentaria de Amistad Japón-Vietnam
+-  Politico: США допустили поддержку наземной операции Израиля в городе Рафах
