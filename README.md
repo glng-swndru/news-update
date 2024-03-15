@@ -1,11 +1,11 @@
 # Latest News
--  Un jeune homme grièvement blessé par des coups de couteau, dans le quartier de Croix-de-Neyrat, à Clermont-Ferrand
--  Pokles stavebnej produkcie v Česku sa v januári výrazne zrýchlil
--  The Bear fornyes for sesong 4 som skal spilles inn etter sesong 3
--  Федерация гимнастики Азербайджана возобновила проведение Международного турнира по спортивной гимнастике "AGF Trophy"
--  Un jeune homme grièvement blessé par des coups de couteau, dans le quartier de Croix-de-Neyrat, à Clermont-Ferrand
--  Медведев за резолюцията за връщането на румънското злато: Разни идиоти от ЕП отново са си развихрили апетита - Труд
--  В Одесі пролунали вибухи, є влучання (оновлено)
--  NextGenWork wird die Arbeitswelt revolutionieren / Mancher Arbeitgeber wird sich wundern
--  Bursa PERDER üyeleri iftar programında buluştu
--  Bungay bench causes neighbours to protest against council
+-  Klimaziel 2030: Drastischer Co2-Rückgang? Stimmt – ist aber Augenwischerei
+-  PRR proposal part of govt's effort to provide conducive homes for Malaysians
+-  Kein Schnee im Schwarzwald: Skiclub Urach kritisiert: „Für die Einheimischen wird nichts gemacht!“
+-  Meghan Markle gives nod to royal family with new brand
+-  Un incendio en un contenedor alerta a los vecinos de s'Escorxador
+-  Muda says it again: We're not joining PN roadshow
+-  Monster review: Hirokazu Kore-eda’s subtle, smart and beautiful work is up there with Shoplifters
+-  Çanakkale açıklarında göçmen botu battı: 16 ölü
+-  "Tudor alla Lazio farà il 4-3-3 come gli aveva chiesto De Laurentiis": il retroscena
+-  Klimaziel 2030: Drastischer Co2-Rückgang? Stimmt – ist aber Augenwischerei
