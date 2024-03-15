@@ -1,11 +1,11 @@
 # Latest News
--  Perrot Duval-Aktie: Perrot Duval hat in den ersten neun Monaten einen Verlust eingefahren
--  Politologs: Izteiktu līderu gaidāmajās EP vēlēšanās visdrīzāk nebūs
--  à¶±à·™à¶¯à·”à¶±à·Šà¶šà·šà¶«à·’ à¶´à·œà¶½à·“à·ƒà·’à¶ºà¶§ à¶‘à¶»à·™à·„à·’à·€ à·€à·’à¶»à·�à¶°à¶­à·�
--  إفطار جماعي بلا مخلفات في المدينة التعليمية
--  Make Alia Bhatt’s pregnancy snack: Delicious Gur Sandesha recipe
--  Det anständiga är att inte skylla ifrån sig
--  中華男籃最新歸化人選 夢想家大B、攻城獅狄帝納討論
--  금융위 부위원장 “ELS 등 고위험 상품, 실효성 높은 규제 검토 중”
--  Kort sagt om kollektivtrafik, arbetstider och Dragon Gate
--  Kütahya ve Afyonkarahisar’da kaçak silah ticareti operasyonu
+-  くふうハヤテ、記念すべき開幕戦でオリ先発・宮城大弥に沈黙…５回まで２安打７三振 - スポーツ報知
+-  »Helgoland 513«: Letzte Serie bei Sky Deutschland mit Martina Gedeck und Alexander Fehling
+-  Čarli se vrača: kuža po letu dni spet doma, kaj vse je doživel, ne ve nihče
+-  ‘깐부 할아버지’ 배우 오영수…강제추행 혐의 1심서 징역형 집행유예
+-  सीनियर BJD नेता प्रसन्ना आचार्य का हुआ एक्सीडेंट, ट्रक से टकराई कार; गंभीर रूप से हुए घायल
+-  Η Χαμάς ανακοινώνει τον θάνατο 14 ανθρώπων «σε ισραηλινά πυρά»
+-  Ruští vzbouřenci válčí v Belgorodské a Kurské oblasti, tvrdí ukrajinská rozvědka
+-  NBA: įspūdingas „Celtics“ žvaigždžių rezultatyvumas, Antetokounmpo jėga ir be Dončičiaus sustabdyti „Mavericks“
+-  Azerbaijani oil prices show rise
+-  擊潰太陽3巨頭！塞爾提克鎖定季後賽 主帥衝上場封阻引熱議
