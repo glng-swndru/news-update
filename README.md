@@ -1,11 +1,11 @@
 # Latest News
--  Обзор Apple MacBook Air 13 M3 - Работает быстрее, поддерживает Wi-Fi 6E
--  «Kinds of Kindness»: Αυτή είναι η νέα ταινία του Λάνθιμου με την Έμα Στόουν - Πότε κάνει πρεμιέρα
--  MOBING &quot;PUNOG I PRAZNOG STOLA&quot; Ukoliko vam se ovo dešava na poslu - žrtva ste zlostavljanja na radnom mestu
--  Some QNAP NAS devices affected by a critical vulnerability, updates available right now
--  Casagrande e Globo vencem ação na Justiça contra Maurício Souza por fala homofóbica
--  Fire starts behind Yolo Food Bank in Woodland, crews respond
--  Em aceno a evangélicos, membros do governo Lula participam de encontro de pastores
--  The Fall Guy broke Casino Royale’s record for flipping a car around
--  PAOK pokazao da su Dinamo i Hajduk podjednako loši: Treneri su skupi, a najskuplje je ne biti prvak
--  【米国市況】株・国債下落、ＰＰＩ堅調で利下げ観測後退－148円前半 - ブルームバーグ
+-  Villarreal - OM : Marcelino "fier" d'avoir "écrasé" Marseille !
+-  TikTok é multado na Itália por não impedir disseminação de conteúdo prejudicial
+-  Laylatul Qadr 2024 - Un CRD pour réussir l’organisation de cet événement si cher à Sokhna Bintu Khadim Rassoul
+-  [모닝와이드] 오늘의 주요뉴스
+-  Herkes buradan ev almak için sıraya girdi; Bu ilçenin Türkiye’de eşi benzeri yok
+-  49 Remaja Ditangkap Polisi, Tawuran Gagal
+-  Biden opposes US Steel sale to Nippon Steel
+-  Judge enriching anti-graft law
+-  TikTok é multado na Itália por não impedir disseminação de conteúdo prejudicial
+-  京都府京田辺市がまとめた複合型公共施設の基本構想案とは？JR京田辺駅北側一帯に整備予定
