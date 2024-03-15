@@ -1,11 +1,11 @@
 # Latest News
--  Jacek Nizinkiewicz: Od tego wystąpienia Jarosława Kaczyńskiego zależy przyszłość PiS. Partia boi się o prezesa
--  Nach „Nein“ zu Taurus: Scholz verspricht Selenskyj Waffen
--  Japonya'da Fukuşima açıklarında 5.6 büyüklüğünde deprem
--  Confindustria, Gozzi ha il quorum per candidarsi. Ma è polemica: è fuori tempo massimo
--  Prince Edward raises eyebrows during Badminton rally against sporty wife Duchess Sophie
--  Posljednji izborni dar od 503 milijuna eura: Ovako će Vlada rasporediti novac iz proračuna
--  Špičkový smartphone za 20 tisíc? Google Pixel 8 Pro teď koupíte o 7 tisíc levněji než z Německa
--  Splićanin je bio sebi faca jer ima Gucci tepih u autu, kad mu je dosadio - evo što je uradio! Koji obraz đon
--  London burning. I rimedi maldestri di Sunak, tra le derive d'odio e l'assalto al Telegraph
--  Svečanost povodom proglašenja Mostara Europskim gradom vina Dionisio za 2024.
+-  Rengeteg lehetőség áll a vállalkozni vágyók előtt, hangzott el a hajdú-bihari iparkamarai évnyitón
+-  A nemzet ifjúsága megmutatta erejét
+-  Eisdielen in Recklinghausen: So viel kostet 2024 eine Kugel Eis
+-  Découvrez Tina Modotti, photographe révolutionnaire
+-  Economic growth looms over climate
+-  Economic growth looms over climate
+-  Cuidá tu cerebro: el síntoma que hay que tener en cuenta para evitar perder la memoria con el envejecimiento
+-  Bildungsticket für den Kreis Rendsburg-Eckernförde kommt im Sommer
+-  Big Lots supports the American Heart Association's Life is Why campaign as they champion women's heart health
+-  Six clubs to blow out cobwebs
