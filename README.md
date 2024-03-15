@@ -1,11 +1,11 @@
 # Latest News
--  Пентагон про допомогу Україні у кредит: Не кращий варіант
--  당정, 농축산물 긴급 가격안정자금 1천500억 원 내주 투입
--  주원, 수줍은 볼하트 (야한 사진관)[DA포토]
--  ‘Nearshoring’ fortalecerá diplomacia y comercio México-Suecia: Economía
--  수도권·호남 챙기랴 영남 눈치 보랴…한동훈 고민은? [뉴스와이드]
--  部活動で暴力・暴言・ハラスメント「受けた」生徒181人 うち72人が「相談できず」 沖縄県が実態調査 - 沖縄タイムス＋プラス プレミアム
--  DK아시아, 인천 서구 ‘빛의 도시’로 조성 한다
--  Sayap-sayap Penopang Bayer Leverkusen
--  Dues of Rs10.5b to be paid to retired officers, employees of KMC: Mayor Karachi
--  全銀協会長 金融緩和策の修正が近いと認識示す(ABEMA TIMES)
+-  الخارجية" الأميركية: "حزب الله" يقود لبنان إلى وضع خطر
+-  Jerarca del Ministerio del Interior dijo que el aumento del precio en el transporte fluvial lo fijó el consorcio ganador
+-  کمیسر اتحادیه اروپا خواستار فشار بر رژیم صهیونیستی برای افزایش ورود کمک‌ها به غزه شد
+-  US expects reforms from new Palestinian prime minister
+-  음문석, 애교 장착한 미소 (야한 사진관)[DA포토]
+-  Comintel Corporation Bhd changera son symbole boursier de COMCORP à BNASTRA
+-  “파뜨리사제 한의학”..러시아 의료진, 자생한방병원 찾은 까닭은?
+-  Can Mustafizur ace death over challenge for CSK amid Pathirana’s injury?
+-  Семь природных пожаров ликвидировали за сутки в Приморье
+-  Health Tips: તાવ પછી ઝડપથી સાજા થવું હોય તો ન કરવી આ 3 ભુલ, આ ભુલના કારણે જ લાંબી ચાલે બીમારી
