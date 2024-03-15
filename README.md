@@ -1,11 +1,11 @@
 # Latest News
--  Borrelli sõnul otsustatakse Ukraina sõja tulemus kevadel ja suvel
--  북한 미공개 핵순항미사일 호위함 동해 실전 배치-NK 뉴스
--  Governor's addiction initiative sees 7 participants in 2.5 years
--  멈춰버린 3호선…바쁜 출근길 지하철역 나서는 시민들 [포토]
--  Chicago Boat Show setting sail for Rosemont in 2025
--  Judge rejects Trump bid to throw out classified documents case
--  MLB 슈퍼스타들 한국 왔다…김하성·고우석 포함 샌디에이고 입국
--  Coles rubbishes 'wild' claims it secretly gives every customer an 'electronic signature' when they enter
--  Da Ayuntamiento de Monclova homenaje a Servando ‘La Yegua’ González; beisbolista de lustre
--  Top 7 News Harian Jogja, Jumat 15 Maret 2024, Perkembangan Kasus Antraks Hingga Kegiatan Pasar Murah
+-  සුලෝහිත එක්දින සටනට නොමිලේ ප්‍රවේශපත් ලබා ගැනීමේ අවස්ථාවක්
+-  Clinical trial shows 'dramatic and rapid' progress against aggressive brain cancer
+-  Vali Eldivan kurum amirleriyle iftar programında bir araya geldi
+-  மக்களவைத் தோ்தலின் போது ஆயிரக்கணக்கான விவசாயிகள் போராட்டம்
+-  Cusco: escolar acaba grave luego de tragarse moneda de un sol en su primer día de clases (VIDEO)
+-  Ghi 11 bàn sau 2 lượt, Liverpool ra oai ở Europa League
+-  Abdullahi Re-elected as President of Nigeria Archery Federation
+-  Destituyen a tres funcionarios de Guerrero tras asesinato de estudiante de Ayotzinapa
+-  4 livestock farmers feted with CM Award
+-  Canciller de Brasil espera que elecciones en Venezuela sean aceptadas por todos
