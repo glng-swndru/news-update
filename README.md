@@ -1,11 +1,11 @@
 # Latest News
--  ۷ علت خارش مداوم در گوش را بشناسید
--  B.C. coastal island land being donated for protection
--  B.C. coastal island land being donated for protection
--  El temible dato de Lamar Jackson y Derrick Henry que ilusiona a Baltimore Ravens
--  B.C. coastal island land being donated for protection
--  B.C. coastal island land being donated for protection
--  Trener Wozniackiej zachwycał się grą Dunki. I nagle niesamowity zwrot
--  B.C. coastal island land being donated for protection
--  60 migrants feared dead in Mediterranean crossing: rescue organization
--  Liga Europa: Atalanta-Sporting, 2-1 (crónica)
+-  Voyager 1 sends back surprising response after ‘poke’ from NASA - CNN
+-  Rasistički skandal potresa Evropu! Navijači Atletika Vinisijusa nazvali šimpanzom, Brazilac se hitno oglasio! (FOTO)
+-  Ridwan Kamil: IKN Harus Layak Huni dan Manusiawi
+-  VÍDEO: Leverkusen sofre para quebrar Qarabag, e Roma gere vantagem
+-  Huir del alarmismo y consensuar el uso de pantallas
+-  RTE Act: School Choices For Disadvantaged Students
+-  Wahl für Wladimir Putins Machterhalt beginnt – Behörde droht Protestlern mit Haftstrafen
+-  Estados Unidos devuelve a Perú un documento robado del siglo XVI y recuperado por el FBI
+-  Volkswagen quer produzir em Espanha elétrico com preço a rondar os 20 mil euros
+-  Liverpool elimina sin piedad al Sparta Praga con global de escándalo en la Europa League
