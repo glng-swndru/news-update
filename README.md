@@ -1,11 +1,11 @@
 # Latest News
--  The U.S. reduced the number of $20 bills in circulation in 2022, something it hadn’t done in decades. Here’s why.
--  Curso de Inteligência Artificial será oferecido gratuitamente
--  Spá 6,6% verðbólgu í mars
--  Nauczyciel z Gorzowa wspiął się na słup. Krzyczał, że chce rozmawiać z prezydentem
--  WEB3.0 Digitalne Dalmacija - kako razvijati aplikacije za novu generaciju interneta?
--  Konya'da son 15 yılda askeri uçak kazalarında 7'si pilot 8 askeri personel şehit oldu
--  Pećanac obišao Debeljake: Politika je na terenu s građanima
--  Курортите ни от Южното Черноморие с обща туристическа реклама
--  Ürdün'den Mescidi Aksa'nın kapılarına demir bariyer yerleştiren İsrail'e tepki
--  Thị trường gọi xe công nghệ Việt Nam ước tính đạt 0,88 tỷ USD năm 2024
+-  Как выглядит разлив рек на Полесье с высоты птичьего полета
+-  PCR Plastic Packaging Market Size Expected to Reach USD 72.93 Bn by 2032
+-  From Pickleball to Archery, Cunard Reveals Queen Anne Daytime Activities
+-  OM : Deschamps interpelle Gasset
+-  Za voznika osebnega avtomobila usoden trk s tovornjakom
+-  Cómo justificar por no poder ser miembro de mesa electoral
+-  Pianist Giorgi Gigashvili im Beethovensaal: So schön spielt sonst keiner Bach
+-  فوز "النجمة" على "البرج" و"الصفاء" على "الراسينغ"
+-  Branthwaite, Gordon get England chance ahead of Euros
+-  Pianist Giorgi Gigashvili im Beethovensaal: So schön spielt sonst keiner Bach
