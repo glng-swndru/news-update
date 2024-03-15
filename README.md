@@ -1,11 +1,11 @@
 # Latest News
--  Voyager 1 sends back surprising response after ‘poke’ from NASA - CNN
--  Rasistički skandal potresa Evropu! Navijači Atletika Vinisijusa nazvali šimpanzom, Brazilac se hitno oglasio! (FOTO)
--  Ridwan Kamil: IKN Harus Layak Huni dan Manusiawi
--  VÍDEO: Leverkusen sofre para quebrar Qarabag, e Roma gere vantagem
--  Huir del alarmismo y consensuar el uso de pantallas
--  RTE Act: School Choices For Disadvantaged Students
--  Wahl für Wladimir Putins Machterhalt beginnt – Behörde droht Protestlern mit Haftstrafen
--  Estados Unidos devuelve a Perú un documento robado del siglo XVI y recuperado por el FBI
--  Volkswagen quer produzir em Espanha elétrico com preço a rondar os 20 mil euros
--  Liverpool elimina sin piedad al Sparta Praga con global de escándalo en la Europa League
+-  Рейнджерс - Бенфіка 0:1: огляд матчу
+-  Nove zabrinjavajuće izjave Macrona: 'Europa se mora pripremiti za rat ako želi mir'
+-  Pierce Brosnan fined after pleading guilty to walking off trail in Yellowstone National Park
+-  還流経緯の謎深まる 政倫審
+-  Riu Hotels regresa a Isla Mauricio con dos nuevos establecimientos
+-  Quận Thanh Xuân khảo sát đánh giá phường đạt chuẩn đô thị văn minh
+-  Pepê Gonçalves ganha seletiva do Pré-Olímpico de Canoagem e se garante em Paris-2024
+-  Wackliger Walk: Heidi Klum sortiert fleißig Models aus
+-  Biden: Fuerza Armada de EE.UU. permanecerá en Haití el tiempo que requiera el entorno de seguridad
+-  Road contractor fined after pedestrian slips, suffers leg fracture
