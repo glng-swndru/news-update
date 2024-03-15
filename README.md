@@ -1,11 +1,11 @@
 # Latest News
--  „Vytis-VDU“ pergalingu dvitaškiu pratęsime patiesė Delininkaičio tempiamą Jurbarko ekipą
--  Gas and Oil Pipeline Leak Detector Global Market Report 2024, Featuring Schneider Electric, Synodon, Siemens, Teledyne FLIR and Atmos International
--  COLIN CAMPBELL: If lukewarm ‘fling’ is scrapped give Eden Court the chance to make merry
--  Lengjubikarinn: Aron Bjarnason með dramatískt sigurmark
--  Aruba a firma MOU cu Stenden University
--  Veel Friezen stropen de mouwen op tijdens vrijwilligersactie NLdoet
--  Pc:lle kaksi peliä ilmaiseksi – mieleen­painuva K18-pläjäys on kätketty helmi
--  Roger Arntsen var en varm, empatisk og følsom mann
--  Energy retrofits planned for West Kelowna’s Royal LePage Place
--  EL ONLINE: West Ham - Freiburg 2:0. Souček má asistenci, Bowen zvýšil
+-  Pixalate Releases List of Mobile Apps With the Highest Invalid Traffic (IVT, Including Ad Fraud) in February 2024 Across Google, Apple App Stores: Spider Solitaire, Draft Max Among Most Impacted
+-  Как залових Червения пират
+-  Трейлер ремастера Shadows of the Damned от авторов No More Heroes и Resident Evil подтвердил скорый показ демо
+-  Legislature decides WA schools should include LGBTQ+ history
+-  El Racing, pendiente de la recuperación de Jon García
+-  Revitalising Sri Lanka through Social Solidarity Economy
+-  Sprint biatlonistek v Canmore ovládla Vittozziová. Voborníková dokončila závod na dvanáctém místě
+-  Χρίστου: «Ο Ταμασού επέλεξε να επιφέρει την κάθαρση - Δεν άγγιξα χρήματα»
+-  KANDIR(MA) BİZİ EY İKTİDAR
+-  Столтенберг обяви колко са руските жертви във войната досега, цифрата е стряскаща
