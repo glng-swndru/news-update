@@ -1,11 +1,11 @@
 # Latest News
--  'Concerned and perplexed': Alberta police force move catches unions off guard
--  Šešelj: Ne smemo nasedati na zamke koje nam Zapad postavlja na Kosovu i Metohiji! (VIDEO)
--  Serenay Sarıkaya'nın Kore kalbi olay oldu! Koreli yıldızlarla 'Heyy Guys' paylaşımı
--  El líder demócrata en el Senado acusa a Netanyahu de ser un obstáculo para la paz y pide nuevas elecciones en Israel
--  La Curva Fiesole se la prende con i giocatori del Maccabi Haifa: tensione a fine partita
--  França lança batalha contra ‘fast fashion’
--  Lehečka nestačil ve čtvrtfinále v Indian Wells na letos suverénního Sinnera
--  لقاء يجمع بين العيسي والمحرمي في عدن
--  França lança batalha contra ‘fast fashion’
--  Καθαρά Δευτέρα 2024: Με τι καιρό θα πετάξουμε χαρταετό - Τα μέτρα της τροχαίας για το τριήμερο
+-  TUGA KOD GORNjEG MILANOVCA: Otkriven razlog smrti brata i sestre u selu Sinoševići
+-  IGT PlayDigital Content Now Live in All Seven US iGaming States with Recent Games Deployment in Rhode Island
+-  كانت في طريقها للبيع في المغرب.. اسبانيا تصادر سيارات فاخرة مسروقة
+-  The Best Diet For Weight Gain: Healthy High Calorie Foods For Weight Gain
+-  NAKON VESTI O TRUDNOĆI NE PRESTAJE DA PROVOCIRA! Stomak Katarine Živković ponovo je tema KOMENTARISANJA: Pogledajte ove kadrove
+-  More ski resorts worldwide to face low snow levels — study
+-  In Gedenken an Dietmar Leyendecker: Ein Platz in Xantens Stadtrat blieb am Donnerstagabend frei
+-  بوريل: الكارثة في غزة ليست طبيعية وعلينا الضغط لفتح الحدود
+-  MEDIA ADVISORY - HOUSING ANNOUNCEMENT IN MORIN-HEIGHTS
+-  Prezident Poľska vyzval členov NATO k zvýšeniu výdavkov na obranu
