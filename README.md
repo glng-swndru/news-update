@@ -1,11 +1,11 @@
 # Latest News
--  কোরিয়া সরকারের ২ হাজার ২০০টি বৃত্তির খোঁজখবর
--  Höjda skatter och lånade pengar löser inte sjukvården
--  Проспект «Вашингтона» Суздалев забил лакросс-гол в Западной хоккейной лиге
--  Saale-Holzland-Kreis sucht eine neue Königin
--  Simak Prakiraan Cuaca di Riau, Ini Kata BMKG
--  Meteoroloji'den kuvvetli yağış ve toz taşınımı uyarısı! İşte il il 16 Mart 2024 hava durumu
--  Müssen Schulen für den Kriegsfall üben, Frau Ministerin?
--  Слънчево ще е днес, с валежи на места
--  Военный журналист Бентли заявил, что победа России в СВО предотвратит Армагеддон
--  2 cụ bà tử vong trong vụ tai nạn giao thông nghiêm trọng ở huyện Bình Chánh
+-  이범수·이윤진, 14년만에 이혼 절차 [공식입장]
+-  New low-height streetlight poles to ensure better visibility in Noida: Officials
+-  Ātruma cilts: kā tūkstošiem latviešu par F1 fano
+-  Минобороны: ВСУ несут потери в живой силе и технике под ударами беспилотников РФ
+-  Антонов заявил об отсутствии единства среди стран G7 по теме изъятия активов РФ
+-  Empacador de tienda de autoservicio muere de un infarto, en Saltillo
+-  OBITUARY Prasenjit Talukdar
+-  Riksvei 7 over Hardangervidda stengt for personbiler
+-  A Famed Danish Chef Is Offering High-End Space Dining For $500,000
+-  Hội nghị báo cáo viên Trung ương: Cơ hội để 63 tỉnh thành cả nước học hỏi, trao đổi kinh nghiệm thực tiễn
