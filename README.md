@@ -1,11 +1,11 @@
 # Latest News
--  ABŞ Tehrandan SEPAH-ın ləğvini istəyir
--  रूस में राष्ट्रपति चुनाव के लिए दूसरे दिन मतदान जारी
--  رونالدو يصل لرقم ميتروفيتش
--  Bahn und GDL verhandeln wieder - Einigung laut Bahn in Sicht
--  Vandalizam na groblju u Erdutu počinila djeca
--  VZ Kort: Feyenoord-spits Santiago Gimenez opgeroepen voor interlands Mexico
--  Konkursitingimused jätsid väikelinna ilma poest ja pangaautomaadist
--  Pożar hali w Wielkopolsce. Strażacy walczą z ogniem, część budynku się zawaliła
--  SDP-ovka: Mnogi istaknuti SDP-ovci nisu znali što spremaju Milanović i Grbin
--  《災後調查日誌》情侶誕生？孫浩俊&孔升妍被爆戀愛兩年，女方火速否認
+-  Mislite da je Modrić naš najbolji igrač u Španjolskoj? Zasjenio ga je drugi Hrvat
+-  Bos Apple Dituding Tipu Investor Berujung Gugatan, Rp 7,9 Triliun Terbuang
+-  "Той ни научи на толерантност и обич": Държавните лица отдават почит на Неофит
+-  Doa Saat Jeda Sholat Tarawih Ramadhan 2024 dengan Tulisan Latin, Simak Penjelasan Ustaz Adi Hidayat
+-  Alev Alatlı Eğitim ve Sanat Merkezi Açıldı
+-  Beograd: Kraljevski doček za Zedera i kritike iz Njemačke
+-  Izrael odobrio plan napada na Rafah, ali u Katar ipak šalje delegaciju na pregovore o primirju
+-  ગુજરાતની છેલ્લી 3 લોકસભા ચૂંટણીનું A TO Z:2009માં કોઈ પાર્ટી 3 લાખની લીડથી જીતી નહોતી, 2019માં ભાજપે 15 સીટ 3 લાખથી વધુની લીડથી જીતી
+-  Shane Watson no longer in race to coach Green Shirts
+-  "Ma l'ha chiesto davvero?": Affari tuoi, scatta la rivolta contro Nicoletta
