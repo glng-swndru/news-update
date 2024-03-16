@@ -1,11 +1,11 @@
 # Latest News
--  Scamarcio interpreta Fiorio in Race of Glory. Quando la Lancia superò l’Audi nei rally
--  Le Stelle di Branko, ecco le previsioni di sabato 16 marzo
--  Novi potres u Crnoj Gori, nema materijalne štete
--  Küpü ve içindekini gören çiftçi büyük bir tuzağa düştü! Dedektifler harekete geçti
--  Menu, prices: Malaysia’s Secret Recipe is back, opens new branch in Makati City
--  Galatasaray yarın Kasımpaşa konuk oluyor
--  Nagpur में मवेशियों की तस्करी को लेकर दो गुटों में झड़प, एक घायल
--  MÜSİAD Malatya Şubesi genç ticaret elçilerini iftarda ağırladı
--  Batan bottaki kayıp göçmenleri arama çalışmaları sürüyor
--  Τι να προσέχουν οι καταναλωτές για την αγορά τροφίμων τη Σαρακοστή
+-  Başkan Gürün'den 18 Mart mesajı
+-  Flughafen Düsseldorf : So können Passagiere ihr Gepäck am Automaten aufgeben
+-  Faik Güngör Ortaokulu'ndan robot yarışmasında büyük başarı
+-  İrakli Kobaxidze Şəhidlər xiyabanını ziyarət edib
+-  Millet Partisi Genel Başkanı Cuma Nacar'dan Yeniçağ’a ziyaret. 'Türkiye yeniden hukuk devleti olmak zorunda'
+-  Yasaklar 5 gün sonra başlıyor! 32 ilde oy verme saatleri değişti
+-  Bank launches 'attractive' fixed Cash ISA and earns 'excellent' rating
+-  Murat Kurum: "Deprem siyasi ayrım yapmıyor, hepimizi enkaz altında bırakıyor"
+-  Erste Lebenszeichen auf dem Immobilienmarkt
+-  Cercetătorii, îngroziți de modul în care clima se degradează: Ce ne avertizează, care sunt pericolele
