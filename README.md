@@ -1,11 +1,11 @@
 # Latest News
--  Chute mortelle sur l'aire de jeux de Courtille en 2016 : la ville de Guéret jugée à 85% fautive
--  В Беларуси зарегистрирован отечественный препарат для борьбы с листогрызущими вредителями
--  Ministrija: Kaķu un sesku apzīmēšanu ar mikroshēmu varēs veikt tikai praktizējošs veterinārārsts
--  Удари дронів по НПЗ: у Росії стрімко зростають ціни на бензин
--  Tornadoes leave a trail of destruction in central US and kill at least 3 in Ohio
--  Scholz trifft Macron und Tusk: „Werden ab sofort noch mehr Waffen für Ukraine beschaffen“
--  10 Pemain Persib Bandung Pukul Persikabo 1973, Cek Klasemen Liga 1 di Sini
--  A Milli Takım'ın kadrosu açıklandı
--  "Hotel Paradise". Tak wyglądała Luiza przed operacją nosa. "Nie zamierzam się tego wypierać"
--  Chute mortelle sur l'aire de jeux de Courtille en 2016 : la ville de Guéret jugée à 85% fautive
+-  Bakan Uraloğlu: Kütahya'ya hizmetleri devam ettireceğiz, onları tekamüle erdirmiş olacağız
+-  Ümit Millilerin aday kadrosu açıklandı
+-  CDU erhält Großspende über 300.000 Euro
+-  Exclusive Rishi Sunak interview: UK prime minister explains why he hopes indie support will safeguard the UK film industry
+-  Издательские проекты БЕЛТА победили в номинации "Беларусь помнит" конкурса "Искусство книги"
+-  Женщина родила ребенка с 10-сантиметровым хвостом
+-  Разгромившему прачечную в Кобрине мужчине вынесли приговор
+-  Steiner : Je suis resté trop longtemps chez Haas F1
+-  Exclusive Rishi Sunak interview: UK prime minister explains why he hopes indie support will safeguard the UK film industry
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Fair Isaac Corporation - FICO
