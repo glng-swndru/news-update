@@ -1,11 +1,11 @@
 # Latest News
--  Neupravičeno dopovračila med epidemijo
--  Мать Боатенга написала адвокату в 2021-м, что Джером «годами издевался над женщинами психологически и физически». Игрока обвиняли в домашнем насилии
--  Ankara 2024 Yerel Seçim Sonuçları
--  ČNB zahájila řízení s Podnikatelskou družstevní záložnou. Nesmí přijímat vklady a dávat úvěry
--  Jan Böhmermann sagt Haltestellen in Bremer Buslinie 90 an
--  Jan Böhmermann sagt Haltestellen in Bremer Buslinie 90 an
--  بلينكن: الوسطاء يعملون لسد الفجوات المتبقية للتوصل إلى اتفاق بشأن الاسرى ووقف إطلاق النار في غزة
--  Drama pri Stari Fužini: otrok v kanjonu padel 20 metrov v globino
--  Yasak bölgeye girmişti! James Bond yıldızı Pierce Brosnan'ın cezası belli oldu
--  Во Всероссийской академии внешней торговли сменится ректор
+-  Chinese cranes in B.C. ports raise concerns after U.S. security probe (BC)
+-  Italia-Egitto: Meloni al Cairo per accordo con Ue, avanti anche con Piano Mattei
+-  Fußball Bezirksliga: Topspiel in Schramberg
+-  YVR food workers threaten to strike over living wages (BC)
+-  Putin casts online vote in Presidential elections (VIDEO)
+-  Enda McEvoy: I've had luck on Fridays, but not as much as Willie Mullins
+-  ALKARAZ ZABORAVIO NA NOVAKA: Španac nema dilemu ko je najbolji teniser sveta!
+-  Katić i Vujović potpisali memorandum: Kompletna revitalizacija tvrđave Španjola do 2027. godine
+-  Putin casts online vote in Presidential elections (VIDEO)
+-  Qui est Mikhaïl Khodorkovski, l'ancien magnat du pétrole qui s'oppose à Vladimir Poutine ?
