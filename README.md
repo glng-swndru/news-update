@@ -1,11 +1,11 @@
 # Latest News
--  Bütçe şubatta 153,8 milyar lira açık verdi: Hani tasarruf yapacaktık?
--  Luxie, artiste bordelaise, tout en pop mélancolique et douceur en première partie d’Isaac Delusion
--  Bohmstedt: Landwirt und Helfer sterben nach Sturz in Gülleschacht
--  Isère et Pays de Savoie. Provencia innove pour recruter : "Ils ont la réponse le lendemain matin"
--  Ağzında emzikle dolaşan yavru sokak köpeği görenleri gülümsetti
--  Bohmstedt: Landwirt und Helfer sterben nach Sturz in Gülleschacht
--  Caso Mormile, altre due condanne per l’agguato contro l’educatore carcerario ucciso dalla ‘ndrangheta
--  Com atraso, Receita libera envio do Imposto de Renda pelo celular e tablet; veja passo a passo
--  مسئولان و رسانه ها در خصوص نقشه دشمن‌ شفاف‌سازی کنند
--  Dörfles-Esbach: Wo’s für die Feuerwehr zu eng wird
+-  Große gegenseitige Toleranz: Christen und Muslime in Afrika
+-  Gratis training ter ondersteuning van mantelzorgers Gulpen-Wittem
+-  LIVE TEXT/ Numărul victimelor de la Odesa a crescut la 14, după atacul cu rachete rusești. Război în Ucraina, ziua 751
+-  Premijer Plenković reagirao na datum izbora: ‘Neobično što je sredinom tjedna, ali...‘
+-  Online Poker Market Trends, Forecast and Competitive Analysis to 2030: Rapid Growth Forecasted for Smartphone Poker Games and Services, with Europe Witnessing the Highest Growth
+-  Португалия присоединяется к чешской инициативе поставок артснарядов Украине
+-  الحوثيون يعلنون استهداف سفينة إسرائيلية بالبحر الأحمر
+-  Θεριακλής προκάλεσε αναστάτωση σε πτήση: Τον κατέβασαν από το αεροπλάνο και τον συνέλαβαν στο αεροδρόμιο «Μακεδονία»
+-  Suivez en direct la conférence de presse de Sonko et Diomaye
+-  Produtor de 'Zona de Interesse' discorda de fala de Jonathan Glazer no Oscar
