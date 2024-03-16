@@ -1,11 +1,11 @@
 # Latest News
--  Kuchnia bez górnych szafek i to z dodatkiem różowego? Olga Frycz się na to odważyła. Zobaczcie, jaki jest efekt
--  Cybersécurité : la gendarmerie teste son personnel avant les JO de Paris, 10 % échouent
--  В станице Бекешевской на Ставрополье благоустроят центральную площадь
--  6 alkollü, 19 ehliyetsiz... 6 kaçak tutuklandı, 39 araç trafikten men edildi
--  32 ilde oy verme saatleri değişti. Yasaklar 5 gün sonra başlıyor
--  Beauport takes the Midlands Grand National glory
--  [프로배구] 현대건설, 페퍼저축에 3-1... 13년만에 챔프전 직행
--  Россиянка захотела скрыть беременность от мужа и сделала аборт на седьмом месяце
--  U Hrvatskoj je postao legenda, a danas je vozač kombija: 'Žao mi je što sam otišao'
--  Azərbaycan Prezidenti və Gürcüstan Baş nazirinin təkbətək görüşü başlayıb
+-  Видео на живо: Литийно шествие изпраща патриарх Неофит до църквата "Св.Неделя", където ще бъде погребан
+-  Recensione del portatile Lenovo IdeaPad Slim 5 14: Un tuttofare di successo con un display OLED
+-  المقاومة: استهداف موقع البغدادي بالاسلحة وإصابته إصابة مباشرة
+-  Ananasın içindeki vitaminler nelerdir? Faydaları
+-  North Yorkshire café named one of UK's best brunch spots
+-  Ultimi veloci rovesci, poi anticiclone e temperature in aumento
+-  Japonya Dışişleri Bakanı: Gazze'ye "insani deniz koridoru girişimine" katılacağız
+-  Borsa İstanbul'da en çok kazandıran hisseler belli oldu
+-  Sabiduría popular
+-  Sikkim Assembly Elections 2024: EC Announces Schedule for Vidhan Sabha Polls, Check Polling and Result Dates
