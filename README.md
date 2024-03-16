@@ -1,11 +1,11 @@
 # Latest News
--  Bakan Uraloğlu: Kütahya'ya hizmetleri devam ettireceğiz, onları tekamüle erdirmiş olacağız
--  Ümit Millilerin aday kadrosu açıklandı
--  CDU erhält Großspende über 300.000 Euro
--  Exclusive Rishi Sunak interview: UK prime minister explains why he hopes indie support will safeguard the UK film industry
--  Издательские проекты БЕЛТА победили в номинации "Беларусь помнит" конкурса "Искусство книги"
--  Женщина родила ребенка с 10-сантиметровым хвостом
--  Разгромившему прачечную в Кобрине мужчине вынесли приговор
--  Steiner : Je suis resté trop longtemps chez Haas F1
--  Exclusive Rishi Sunak interview: UK prime minister explains why he hopes indie support will safeguard the UK film industry
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Fair Isaac Corporation - FICO
+-  «Σε ραντεβού πήγες; Να μου δώσεις τα μισά»: Οργή για τα SMS του Μίχου στη 12χρονη
+-  3D LOTTO RESULT Today, Saturday, March 16, 2024
+-  NRMP® Celebrates Match Day for the 2024 Main Residency Match®, Releases Results for Over 44,000 Applicants and Almost 6,400 Residency Programs
+-  Milanović se nakon šokantne odluke oglasio i na Facebooku: Odlučio sam se kandidirati
+-  Signing of primary dealer agreements
+-  МО: Киев лишился 16 танков при попытке прорыва на территорию России
+-  Ronde des Aulnes : idéale pour établir un temps repère sur 10 ou 5 km
+-  Champions League Quarter-Final Draw Live Updates: Real Madrid to take on Manchester City; Arsenal to face Bayern Munich - The Indian Express
+-  Urteil nach Pocher-Ohrfeige: Ein spontaner Angriff? Das wollte im Gerichtssaal niemand glauben
+-  2100 yıllık yazıtta şaşırtan mesaj
