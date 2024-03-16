@@ -1,11 +1,11 @@
 # Latest News
--  Für Fans von "Damsel" und "Fluch der Karibik": Trailer zu neuer Disney-Serie verspricht rasantes Fantasy-Abenteuer
--  Making the Strong Business Case for Driving Human Brilliance
--  Iconic Aussie brands celebrate milestones
--  Георги Иванов - Гонзо стана президент на БФС - Труд
--  Autobus perde le ruote sul Passante di Mestre, salvi i 50 ragazzi a bordo
--  Agronomo patarimai, ką būtina nuveikti kieme jau dabar, kad kaimyno veja nebūtų žalesnė
--  Nur für Business Accounts: Instagram testet File Sharing in DMs
--  Renata Lusin verrät neue Details zu ihrer Schwangerschaft
--  Creation of BRICS Currency Important To End US Dollar, Says Diplomat
--  Kanye West's wife Bianca Censori leaves jet with mum in see-through thong bodysuit amid family feud
+-  Думе предложили расширить антиотмывочные меры на операции с цифровым рублем
+-  BIVI 4-DAY DEADLINE ALERT: Hagens Berman Encourages BioVie (BIVI) Investors with Substantial Losses to Contact Firm Before Mar. 19th Deadline
+-  Thijs Römer heeft zich gemeld bij gevangenis voor uitzitten celstraf
+-  Insgesamt zehn Städte betroffen: Letzte Generation kündigt für Samstag Proteste in Köln an
+-  Türk Hava Yolları’nın İstanbul seferleri iptal oldu
+-  Thijs Römer heeft zich gemeld bij gevangenis voor uitzitten celstraf
+-  Leids kasteeltje als kunstgalerie. ’We willen alleen bezoekers over de vloer die in kunst geïnteresseerd zijn’
+-  Turgut Altınok mal varlığını açıkladı
+-  Orcas that hunt the world's biggest predators may be a new population, say scientists
+-  Долар на новому історичному максимумі в Україні
