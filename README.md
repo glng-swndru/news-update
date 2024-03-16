@@ -1,11 +1,11 @@
 # Latest News
--  VIDEO Brozovićevog suigrača pogodili čašom u glavu. Hrvat pobjesnio i krenuo u obračun
--  16 March: On this day in history
--  BPS Maluku Utara Catat Impor Alat Berat Terbanyak Masuk ke Area Tambang
--  Kryzys męskości. Chłopcy od małego słyszą: "Musisz być twardy jak tatuś"
--  SEDI DOLE! MICIĆ BACIO NA POD JEDNOG OD NAJBOLJIH KOŠARKAŠA NA SVETU! Duel Vase i Durenta obilazi planetu! (VIDEO)
--  Nagyon gáz lett a Star Wars: Battlefront Classic Collection
--  Mektić i Koolhof pobjednici Mastersa u Indian Wellsu, Hrvat otkrio što je presudilo meč
--  Figures reveal scale of post-Windsor Framework checks on goods entering Northern Ireland from Great Britain
--  Kiukkuinen forssalainen pakeni liha­piirakat taskussa
--  Novi zemljotres u Crnoj Gori, jačine 3,6 stepeni Rihtera
+-  История воссоединения Крыма с Россией
+-  Pressestimmen: "Deutschland ist auf Kurs" – trotzdem liegt bei der Klimapolitik noch vieles im Argen
+-  యుఎన్‌జిఎలో పాకిస్థాన్‌పై విరుచుకుపడిన భారత్‌
+-  Porque não entrar na Primavera com uma mão-cheia de totopos?
+-  Krejčí málem hrdinou. V závěru proti Utahu minul trojku, Atlanta v NBA těsně padla
+-  Vedci na Marse objavili obrovskú sopku
+-  بالفيديو.. الاحتلال يرتكب مذبحة جديدة وتكدس عدد كبير من الشهداء بـ"مستشفى الأقصى"
+-  Krejčí málem hrdinou. V závěru proti Utahu minul trojku, Atlanta v NBA těsně padla
+-  岸田首相「緊張感を持って」自民青年局・女性局の全国大会で “ダンスショー”“エッフェル塔”｜FNNプライムオンライン - FNNプライムオンライン
+-  Gazze'de kanlı gece. Yine katliam yaptılar
