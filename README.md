@@ -1,11 +1,11 @@
 # Latest News
--  「ゴアテックス素材のジャケット（メンズ）」おすすめ人気ランキング！ 2位は「THE NORTH FACE（ザ・ノース・フェイス） クラウドジャケット NP62305」、1位は？【2024年3月版】(ねとらぼ)
--  България се сбогува с патриарх Неофит
--  Saturday's Scottish Premiership predictions including Celtic vs. St Johnstone
--  北陸新幹線敦賀延伸で特別番組放送パート2(テレビ信州)
--  S broda Open Arms iskrcali 200 tona hrane u Pojas Gaze
--  Orban spreman da "okupira" Brisel
--  3 Stocks That Could Create Lasting Generational Wealth
--  France-Angleterre (Tournoi des Six Nations) : à quelle heure et sur quelle chaîne voir le match ?
--  Bubur Suro, Takjil Legendaris yang Hanya Ada Saat Ramadan
--  Surová krása techniky: Fascinující fotografie opuštěných míst v hledáčku ruského dobrodruha
+-  BİSAM: Açlık sınırı 16 bin, yoksulluk sınırı 55 bin lirayı geçti
+-  Resmi Gazete'de yayımlandı: Kredi kartı kullananlar dikkat, oranlar yükseldi
+-  Ramadan 2024: Tips to stay hydrated and energised during the fasting period
+-  То, что говорят общественности отличается от того, что говорится за закрытыми дверями
+-  Лидери на "Хамас" са се срещнали с хусите, за да координират действията си срещу Израел
+-  Former Lieutenant Governor Says Trump's Hostile Takeover Of Republican Party Will Backfire: 'What Was Once The RNC Is Now The Trump National Committee'
+-  Metoda simplă pentru a adormi rapid. Este mai bună decât orice somnifer, spun specialiștii
+-  MP LS Election Dates Live: मप्र की 29 सीटों पर चार चरणों में चुनाव? तारीख का एलान आज, यहां इनमें होगा मुकाबला
+-  Kadınlarda akciğer kanseri vakalarında artış yaşanıyor
+-  Το Σύνδρομο της Παραζάλης
