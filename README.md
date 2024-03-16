@@ -1,11 +1,11 @@
 # Latest News
--  Tout ce qu'il faut savoir avant le match du XV de France face à l'Angleterre ce samedi soir
--  Chanakya Niti: ये होती है चरित्रहीन महिलाओं की पहचान, हर मर्द को जानना है जरुरी
--  Tout ce qu'il faut savoir avant le match du XV de France face à l'Angleterre ce samedi soir
--  Boeing urges airlines to check switches after New Zealand-bound plane plunge
--  Imagini virale pe internet. Un individ s-a filmat în timp ce pare să urineze pe mormântul părinților lui Putin | VIDEO
--  Cô gái làm trợ lý cá nhân cho giới siêu giàu: Lương rất cao nhưng đành từ bỏ vì “không có chiếc túi hiệu nào xứng đáng đánh đổi với tự do"
--  Osimhen, da Torino: "Presa una decisione in vista dell'Inter"
--  Kapa dole, Saldanja! Najbolji igrač Partizana pružio podršku igraču Zvezde /FOTO/
--  Yıllar sonra itiraf etti... Eski rol arkadaşı Johnny Depp hakkında konuştu
--  Sven Ivanić primio najprestižniju nagradu hrvatskog iseljeništva u Generalnom konzulatu RH u Zürichu
+-  ABŞ Tehrandan SEPAH-ın ləğvini istəyir
+-  रूस में राष्ट्रपति चुनाव के लिए दूसरे दिन मतदान जारी
+-  رونالدو يصل لرقم ميتروفيتش
+-  Bahn und GDL verhandeln wieder - Einigung laut Bahn in Sicht
+-  Vandalizam na groblju u Erdutu počinila djeca
+-  VZ Kort: Feyenoord-spits Santiago Gimenez opgeroepen voor interlands Mexico
+-  Konkursitingimused jätsid väikelinna ilma poest ja pangaautomaadist
+-  Pożar hali w Wielkopolsce. Strażacy walczą z ogniem, część budynku się zawaliła
+-  SDP-ovka: Mnogi istaknuti SDP-ovci nisu znali što spremaju Milanović i Grbin
+-  《災後調查日誌》情侶誕生？孫浩俊&孔升妍被爆戀愛兩年，女方火速否認
