@@ -1,11 +1,11 @@
 # Latest News
--  Mislite da je Modrić naš najbolji igrač u Španjolskoj? Zasjenio ga je drugi Hrvat
--  Bos Apple Dituding Tipu Investor Berujung Gugatan, Rp 7,9 Triliun Terbuang
--  "Той ни научи на толерантност и обич": Държавните лица отдават почит на Неофит
--  Doa Saat Jeda Sholat Tarawih Ramadhan 2024 dengan Tulisan Latin, Simak Penjelasan Ustaz Adi Hidayat
--  Alev Alatlı Eğitim ve Sanat Merkezi Açıldı
--  Beograd: Kraljevski doček za Zedera i kritike iz Njemačke
--  Izrael odobrio plan napada na Rafah, ali u Katar ipak šalje delegaciju na pregovore o primirju
--  ગુજરાતની છેલ્લી 3 લોકસભા ચૂંટણીનું A TO Z:2009માં કોઈ પાર્ટી 3 લાખની લીડથી જીતી નહોતી, 2019માં ભાજપે 15 સીટ 3 લાખથી વધુની લીડથી જીતી
--  Shane Watson no longer in race to coach Green Shirts
--  "Ma l'ha chiesto davvero?": Affari tuoi, scatta la rivolta contro Nicoletta
+-  Easyjet set to fly back into the FTSE 100 next week
+-  那賀町木頭・美波町日和佐・阿南市蒲生田で今年最高気温を観測【徳島】(JRT四国放送)
+-  Ricostruita la statuetta di Gesù distrutta da un vandalo a Trieste
+-  【福島第一原発に高さ１６メートルの防潮堤が完成】巨大な日本海溝津波に備える(福島中央テレビ)
+-  Giorgetti: “Importante avere fisco meno gravoso e più equo. Portiamo avanti la riforma a tempi record”
+-  Beşiktaş Maçının VAR Hakemi Açıklandı
+-  Учёные открыли первый в мире природный нетрадиционный сверхпроводник
+-  Pengamat Ini Nilai Anggap Bioetanol Bukan Solusi Memperbaiki Kualitas Udara
+-  V živo: Zadnja tekma za Mikaelo, Neja po piko na i
+-  Google Drive si prepara a semplificare la ricerca dei file, complicandola!
