@@ -1,11 +1,11 @@
 # Latest News
--  Awantura o ambasadorów. Andrzej Duda się wścieknie. Były szef MSZ wyjaśnia
--  Учащаяся колледжа продавала в Telegram скачанную из интернета порнографию
--  "Bakı və İrəvanın mövqeləri yaxınlaşıb" - Mirzoyan AÇIQLADI
--  Ultraviolence, mobilité des dealers… La stratégie antistups atteint-elle ses limites ?
--  Усередині РФ немає армії, залишилися "дітлахи": експерт - про прорив добровольців у Росію
--  Las multas electorales por no votar en Ecuador son acumulables
--  Charancieu. La future école est sortie de terre
--  Kaczyński przed komisją ds. Pegasusa. „Intelektualna orka prezesa”
--  Übergewichtigen-Fußball: So ticken die Rhinos Rüttenscheid
--  United Airlines might replace Boeing's delayed planes with Airbus models
+-  At least 2 dead from tornadoes in Ohio
+-  ,,Nem vagyunk túl sokan, a bajnokság vége felé elfogytunk bizonyos tényezők miatt, azonban a társaság annál lelkesebb"
+-  Rückruf bei Lidl: Hersteller macht großen Fehler bei Abfüllung von beliebtem Snack
+-  Cour Suprême : Débouté par le juge des référés, les militants du Pds rouge de colère
+-  GORE ŠIMANOVCI! Aneli i Janjuš RASKINULI: Ti si zlo, ovo je kraj! Ahmićeva van sebe (VIDEO)
+-  Müderris Ne Demek?
+-  Confirmado: Los Teros tendrán partidos soñados contra tres potencias del rugby mundial en Montevideo
+-  Субботин - лауреатам премии в области качества: главную оценку вашей работе дают люди
+-  Головченко рассказал, при каких условиях может быть отменен запрет на ввоз отдельных товаров из Литвы
+-  Почти половина пшеницы урожая 2023 года соответствует 4-му классу качества
