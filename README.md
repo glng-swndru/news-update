@@ -1,11 +1,11 @@
 # Latest News
--  BİSAM: Açlık sınırı 16 bin, yoksulluk sınırı 55 bin lirayı geçti
--  Resmi Gazete'de yayımlandı: Kredi kartı kullananlar dikkat, oranlar yükseldi
--  Ramadan 2024: Tips to stay hydrated and energised during the fasting period
--  То, что говорят общественности отличается от того, что говорится за закрытыми дверями
--  Лидери на "Хамас" са се срещнали с хусите, за да координират действията си срещу Израел
--  Former Lieutenant Governor Says Trump's Hostile Takeover Of Republican Party Will Backfire: 'What Was Once The RNC Is Now The Trump National Committee'
--  Metoda simplă pentru a adormi rapid. Este mai bună decât orice somnifer, spun specialiștii
--  MP LS Election Dates Live: मप्र की 29 सीटों पर चार चरणों में चुनाव? तारीख का एलान आज, यहां इनमें होगा मुकाबला
--  Kadınlarda akciğer kanseri vakalarında artış yaşanıyor
--  Το Σύνδρομο της Παραζάλης
+-  Зайън Уилямсън блести за Ню Орлиънс
+-  Ev alacak herkesi ilgilendiriyor: Konut satışında piyasa ne zaman düzelir?
+-  The Walking Dead: The Ones Who Live otrzyma 2. sezon? Showrunner spin-offu o szansach na kontynuację
+-  Чоловік вистрибнув із вікна військкомату в Чернівцях: подробиці від омбудсмена
+-  Kolumbijský prezident chce zmeniť ústavu
+-  ‘Indian manufacturing sector embracing smart solutions led by advanced tech’
+-  ”Sairaussakko”, paikallinen sopiminen, vientimalli – näin kuumat kiista­kysymykset on ratkaistu Ruotsissa ja Tanskassa
+-  Ehemaliger Vizepräsident Pence steht nicht hinter Trump
+-  ಶಾಂಭವಿ ನೀರು ಕೈಗಾರಿಕೆಗೆ ಬೇಡ
+-  اضافه شدن۱۰ دستگاه ون جدید به ناوگان سامانه جانبازان و معلولان
