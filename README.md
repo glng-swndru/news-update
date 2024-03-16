@@ -1,11 +1,11 @@
 # Latest News
--  Думе предложили расширить антиотмывочные меры на операции с цифровым рублем
--  BIVI 4-DAY DEADLINE ALERT: Hagens Berman Encourages BioVie (BIVI) Investors with Substantial Losses to Contact Firm Before Mar. 19th Deadline
--  Thijs Römer heeft zich gemeld bij gevangenis voor uitzitten celstraf
--  Insgesamt zehn Städte betroffen: Letzte Generation kündigt für Samstag Proteste in Köln an
--  Türk Hava Yolları’nın İstanbul seferleri iptal oldu
--  Thijs Römer heeft zich gemeld bij gevangenis voor uitzitten celstraf
--  Leids kasteeltje als kunstgalerie. ’We willen alleen bezoekers over de vloer die in kunst geïnteresseerd zijn’
--  Turgut Altınok mal varlığını açıkladı
--  Orcas that hunt the world's biggest predators may be a new population, say scientists
--  Долар на новому історичному максимумі в Україні
+-  Maastohiihto | Lauri Vuorinen on lyönyt Harri Kirvesniemen ällikällä – ”Melkoinen paukku”
+-  Bois historiska guld: "Största jag varit med om"
+-  La NASA busca astronautas por 150.000 euros al año y con disponibilidad para viajar, incluso a la Luna
+-  "Не ініціюватимемо жодної ескалації": лідери Франції, ФРН та Польщі зробили спільну заяву
+-  "Золота лихоманка"-2024: чому золото скуповують всі, крім українців
+-  Album von Judas Priest erstmals Platz eins
+-  El Gobierno presenta un programa para incorporar a 3.400 profesores ayudante doctor en las universidades públicas
+-  Τσεχία: Αύξηση ρεκόρ των κρουσμάτων κοκκύτη
+-  "Il Piano Mattei sottrae risorse all'Africa". Meloni parla, Bonelli delira: cosa scorda
+-  Governador Eduardo Riedel supervisiona obras em Dourados nesta sexta-feira
