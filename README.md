@@ -1,11 +1,11 @@
 # Latest News
--  Impallomeni: "Alla Lazio serve un allenatore di azione e Tudor lo è"
--  Expedition vor Neuseeland: Forscher entdecken 100 neue Arten in der Tiefsee
--  Muharrem İnce: Başarabileceğimize inanıyoruz
--  Chaotischer Wanderausflug: Frau flieht in Panik vor Schafen – schadenfroher Freund filmt die amüsante Szene
--  Müsavat Ne Demek?
--  Minister Tomáš: Opozícia sa teraz chytila RTVS, lebo je pred voľbami. Zmeny sú potrebné
--  Mass. establishes nation's first Office of the Energy Transformation
--  Il Teatro dell'Assurdo di Ionesco in scena al Sociale di Mantova
--  Expedition vor Neuseeland: Forscher entdecken 100 neue Arten in der Tiefsee
--  "Очень хочу поступить в Академию МВД". В СК назвали победителей правовой олимпиады среди школьников
+-  Chute mortelle sur l'aire de jeux de Courtille en 2016 : la ville de Guéret jugée à 85% fautive
+-  В Беларуси зарегистрирован отечественный препарат для борьбы с листогрызущими вредителями
+-  Ministrija: Kaķu un sesku apzīmēšanu ar mikroshēmu varēs veikt tikai praktizējošs veterinārārsts
+-  Удари дронів по НПЗ: у Росії стрімко зростають ціни на бензин
+-  Tornadoes leave a trail of destruction in central US and kill at least 3 in Ohio
+-  Scholz trifft Macron und Tusk: „Werden ab sofort noch mehr Waffen für Ukraine beschaffen“
+-  10 Pemain Persib Bandung Pukul Persikabo 1973, Cek Klasemen Liga 1 di Sini
+-  A Milli Takım'ın kadrosu açıklandı
+-  "Hotel Paradise". Tak wyglądała Luiza przed operacją nosa. "Nie zamierzam się tego wypierać"
+-  Chute mortelle sur l'aire de jeux de Courtille en 2016 : la ville de Guéret jugée à 85% fautive
