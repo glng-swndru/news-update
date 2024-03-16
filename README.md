@@ -1,11 +1,11 @@
 # Latest News
--  先發輪值受傷病困擾 太空人追求國聯賽揚史奈爾
--  '막말 논란' 장예찬 거취 고심…박용진 대신 '전략 경선'
--  Bích Tuyền và Thanh Thúy được gọi tên sau khi có tin 3 VĐV Việt Nam ứng tuyển ở Hàn Quốc, hé lộ thể thức và mức lương hấp dẫn
--  Cả 4 võ sĩ taekwondo Việt Nam không giành được vé dự Olympic 2024
--  العدل الدولية تحدد موعدا للنظر بدعوى ضد ألمانيا بشأن غزة
--  В Курской области объявили ракетную опасность
--  ¿Más incertidumbre sobre el parole humanitario?
--  Gallos Blancos venció a los Bravos de Juárez con uno menos
--  ही आहे 5 स्टार सेफ्टी रेटिंगची भारतातील सर्वात स्वस्त SUV! 26 चं मायलेज
--  Thirsty Boy
+-  Amitabh Bachchan shuts down hospitalisation rumours, attends ISPL 2024 final [WATCH]
+-  Tunç Soyer'den veda: Vicdanım rahat bir şekilde ayrılıyorum
+-  チャリティー活動の意味合いも込めて 三好市のゴルフ場でプロアマ選手権大会開催【徳島】(JRT四国放送)
+-  Alligator eats other alligator in viral video, internet is shocked
+-  'Best beach in Spain' near hotel hotspot a £15 flight from Birmingham Airport
+-  Không khí lạnh tăng cường, miền Bắc đón tin vui vì sắp hết nồm ẩm khó chịu
+-  Nắng nóng gia tăng tại TPHCM và Nam bộ, khuyến cáo người dân bảo vệ sức khỏe
+-  Crimen organizado, el principal riesgo político en Latinoamérica
+-  Tiga beranak cedera diserang pembantu kedai
+-  PM Modi to launch BJP poll campaign in Karnataka today with rally in Cong Prez Kharge's home turf
