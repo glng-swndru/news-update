@@ -1,11 +1,11 @@
 # Latest News
--  Maastohiihto | Lauri Vuorinen on lyönyt Harri Kirvesniemen ällikällä – ”Melkoinen paukku”
--  Bois historiska guld: "Största jag varit med om"
--  La NASA busca astronautas por 150.000 euros al año y con disponibilidad para viajar, incluso a la Luna
--  "Не ініціюватимемо жодної ескалації": лідери Франції, ФРН та Польщі зробили спільну заяву
--  "Золота лихоманка"-2024: чому золото скуповують всі, крім українців
--  Album von Judas Priest erstmals Platz eins
--  El Gobierno presenta un programa para incorporar a 3.400 profesores ayudante doctor en las universidades públicas
--  Τσεχία: Αύξηση ρεκόρ των κρουσμάτων κοκκύτη
--  "Il Piano Mattei sottrae risorse all'Africa". Meloni parla, Bonelli delira: cosa scorda
--  Governador Eduardo Riedel supervisiona obras em Dourados nesta sexta-feira
+-  Radweg über das BBS-Gelände in Verden wird deutlich teurer
+-  Г-7 предупреди Иран да не дава на Русия балистични ракети за войната
+-  Dudak uçuklatan ceza! Köpeğin doktora havlaması sahibine pahalıya patladı
+-  Čaputová se v ČR setká s Pavlem i Fialou, uctí památku obětí střelby na FF UK
+-  Extremism rears its ugly head again in Thessaloniki
+-  Un bombardeo múltiple ruso sobre Odesa (Ucrania) deja al menos 19 muertos y 70 heridos
+-  Tri godine uzimala mirovinu preminule osobe
+-  Campanha viraliza ao mostrar como 'suposições negativas' afetam pessoas com síndrome de Down
+-  Luke Littler opponent finally makes good on promise after vowing to 'smash' darts star
+-  Se realizó con éxito la Campaña de Detección de Glaucoma
