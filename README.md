@@ -1,11 +1,11 @@
 # Latest News
--  Видео на живо: Литийно шествие изпраща патриарх Неофит до църквата "Св.Неделя", където ще бъде погребан
--  Recensione del portatile Lenovo IdeaPad Slim 5 14: Un tuttofare di successo con un display OLED
--  المقاومة: استهداف موقع البغدادي بالاسلحة وإصابته إصابة مباشرة
--  Ananasın içindeki vitaminler nelerdir? Faydaları
--  North Yorkshire café named one of UK's best brunch spots
--  Ultimi veloci rovesci, poi anticiclone e temperature in aumento
--  Japonya Dışişleri Bakanı: Gazze'ye "insani deniz koridoru girişimine" katılacağız
--  Borsa İstanbul'da en çok kazandıran hisseler belli oldu
--  Sabiduría popular
--  Sikkim Assembly Elections 2024: EC Announces Schedule for Vidhan Sabha Polls, Check Polling and Result Dates
+-  Venäjä | Ukrainan miehitetyillä alueilla ”presidentin­vaalit” ovat vieläkin suurempi farssi kuin Venäjällä
+-  ЗА ТУРИСТИТЕ УШТЕ ЕДНО НЕПРИЈАТНО ИЗНЕНАДУВАЊЕ - овој додатен трошок за сместувањето на море веќе не е симболичен
+-  Femminicidio sventato, ai domiciliari chi fornì la pistola
+-  Solana Meme Coin BOME Makes Explosive Debut on Binance Amid 1,198% Gain
+-  Россиянам дали советы, как сделать блины более полезными
+-  Deux morts dans de nouvelles attaques sur le sol russe en pleine présidentielle
+-  IPL 2024: संजू सैमसन की कप्तानी को लेकर ध्रुव जुरेल का बयान, जानें क्या कहा?
+-  Deux morts dans de nouvelles attaques sur le sol russe en pleine présidentielle
+-  İlham Əliyev və İrakli Kobaxidze mətbuata bəyanatlarla çıxış edirlər - CANLI
+-  Швьонтек: Спілкувалися з Костюк більше на тему війни в Україні
