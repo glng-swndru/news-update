@@ -1,11 +1,11 @@
 # Latest News
--  Easyjet set to fly back into the FTSE 100 next week
--  那賀町木頭・美波町日和佐・阿南市蒲生田で今年最高気温を観測【徳島】(JRT四国放送)
--  Ricostruita la statuetta di Gesù distrutta da un vandalo a Trieste
--  【福島第一原発に高さ１６メートルの防潮堤が完成】巨大な日本海溝津波に備える(福島中央テレビ)
--  Giorgetti: “Importante avere fisco meno gravoso e più equo. Portiamo avanti la riforma a tempi record”
--  Beşiktaş Maçının VAR Hakemi Açıklandı
--  Учёные открыли первый в мире природный нетрадиционный сверхпроводник
--  Pengamat Ini Nilai Anggap Bioetanol Bukan Solusi Memperbaiki Kualitas Udara
--  V živo: Zadnja tekma za Mikaelo, Neja po piko na i
--  Google Drive si prepara a semplificare la ricerca dei file, complicandola!
+-  Kuchnia bez górnych szafek i to z dodatkiem różowego? Olga Frycz się na to odważyła. Zobaczcie, jaki jest efekt
+-  Cybersécurité : la gendarmerie teste son personnel avant les JO de Paris, 10 % échouent
+-  В станице Бекешевской на Ставрополье благоустроят центральную площадь
+-  6 alkollü, 19 ehliyetsiz... 6 kaçak tutuklandı, 39 araç trafikten men edildi
+-  32 ilde oy verme saatleri değişti. Yasaklar 5 gün sonra başlıyor
+-  Beauport takes the Midlands Grand National glory
+-  [프로배구] 현대건설, 페퍼저축에 3-1... 13년만에 챔프전 직행
+-  Россиянка захотела скрыть беременность от мужа и сделала аборт на седьмом месяце
+-  U Hrvatskoj je postao legenda, a danas je vozač kombija: 'Žao mi je što sam otišao'
+-  Azərbaycan Prezidenti və Gürcüstan Baş nazirinin təkbətək görüşü başlayıb
