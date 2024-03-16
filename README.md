@@ -1,11 +1,11 @@
 # Latest News
--  At least 2 dead from tornadoes in Ohio
--  ,,Nem vagyunk túl sokan, a bajnokság vége felé elfogytunk bizonyos tényezők miatt, azonban a társaság annál lelkesebb"
--  Rückruf bei Lidl: Hersteller macht großen Fehler bei Abfüllung von beliebtem Snack
--  Cour Suprême : Débouté par le juge des référés, les militants du Pds rouge de colère
--  GORE ŠIMANOVCI! Aneli i Janjuš RASKINULI: Ti si zlo, ovo je kraj! Ahmićeva van sebe (VIDEO)
--  Müderris Ne Demek?
--  Confirmado: Los Teros tendrán partidos soñados contra tres potencias del rugby mundial en Montevideo
--  Субботин - лауреатам премии в области качества: главную оценку вашей работе дают люди
--  Головченко рассказал, при каких условиях может быть отменен запрет на ввоз отдельных товаров из Литвы
--  Почти половина пшеницы урожая 2023 года соответствует 4-му классу качества
+-  لماذا لم تشنّ إسرائيل حتّى الآن حرباً شاملة على حزب الله؟
+-  Akşener'den Erdoğan'a: 31 Mart'a kadar bunları yap, oylar senin olsun
+-  RTU saņēmusi anonīmu informāciju par mācībspēka iespējamu nepieļaujamu uzvedību
+-  Eski Trabzonsporlu Gomez adamını buldu!
+-  Suara Fans: AC Milan Siap Membuat Orang-orang Roma yang Agung Itu Menangis!
+-  Un nuovo store per l'aeroporto di Bari: apre il punto vendita Fiore 19.57
+-  Fact check: No Palestinian identity on Canadian passports?
+-  Русия удари Одеса от Крим с ракета "Искандер-М"
+-  Ömeroğlu: “Birlikte kazanalım”
+-  Западному зрителю пытаются «скормить» «ужасы» российских выборов: «Тут люди фотографируются!»
