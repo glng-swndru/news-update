@@ -1,11 +1,11 @@
 # Latest News
--  Radweg über das BBS-Gelände in Verden wird deutlich teurer
--  Г-7 предупреди Иран да не дава на Русия балистични ракети за войната
--  Dudak uçuklatan ceza! Köpeğin doktora havlaması sahibine pahalıya patladı
--  Čaputová se v ČR setká s Pavlem i Fialou, uctí památku obětí střelby na FF UK
--  Extremism rears its ugly head again in Thessaloniki
--  Un bombardeo múltiple ruso sobre Odesa (Ucrania) deja al menos 19 muertos y 70 heridos
--  Tri godine uzimala mirovinu preminule osobe
--  Campanha viraliza ao mostrar como 'suposições negativas' afetam pessoas com síndrome de Down
--  Luke Littler opponent finally makes good on promise after vowing to 'smash' darts star
--  Se realizó con éxito la Campaña de Detección de Glaucoma
+-  Luís Figo reforça estatuto de putativo candidato à presidência da FPF
+-  Jeroni Obrador estrena la película de realidad virtual 'Ànima performativa'
+-  جمعية خديجة التنموية تدشن توزيع وجبة العشاء لعدد 50 من الأسر الأشد فقراً في خنفر
+-  Des "efforts à faire" et une "marge de progression" du niveau des élèves icaunais en maths
+-  Gov Ododo Visits FGN Power Company, Seeks Improved Power In Kogi
+-  Ralf Schumacher sends eight-word warning to Ferrari about Lewis Hamilton
+-  Transfer mu propada zbog bizarnog razloga! Danskog fudbalera tetovaža košta dolaska u Premijer ligu! (FOTO)
+-  Odluka stupa na snagu u ponedeljak: Oglasila se NBS sa najnovijim informacijama
+-  Премьер Латвии Силиня после визита в Вашингтон: Конгресс США нашел процедурный путь для компромисса относительно помощи Украине
+-  МВнР: Работи се активно по случая с отвлечените българи на борда на Galaxy Leader
