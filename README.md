@@ -1,11 +1,11 @@
 # Latest News
--  Yanardağ alarmı! Köyler tahliye edilmeye başlandı
--  A volcano in Iceland is erupting for the fourth time in 3 months, sending plumes of lava skywards
--  Haiti and the future of the Black Person
--  «Mis padres estuvieron casi tres años de alquiler»
--  What happened to Greg Vaughan from Days of Our Lives?
--  Sao nam Vbiz gây sốc tuyên bố vỡ nợ sau khi chia tay vợ đại gia, cuộc sống kín tiếng hiện tại gây tò mò
--  "If You Have Courage...": Congress' Priyank Kharge On BJP's "Dynast" Jibe
--  Teo Gutiérrez enciende polémica y revela problemas en la Selección de Pékerman
--  14:30 STVV – Club Brugge
--  Rio de Janeiro tem sensação térmica recorde de 60,1ºC; previsão para domingo é de mais calor
+-  ආර්ථිකය වගේම රටේ පාරිසරික සම්පත් කළමනාකරණය සඳහාත් අපට පැහැදිලි වැඩපිළිවෙළක් නැහැ
+-  Lawsuit accuses Italo Ferrari’s companies of stiffing local contractor
+-  HNB General Insurance සහ සම්පත් කාඩ්පත් අතර නව සහයෝගීතාවය හරහා රක්ෂණාවරණ සඳහා පොලී රහිත පහසු ගෙවීමේ සැලසුම්
+-  Gareth Southgate refuses to rule out controversial England return for Man Utd outcast Mason Greenwood
+-  4월부터 암보험료 오르고 종신보험료 내린다
+-  ಕವನ: ಒಂದು ಬೀಜದ ವ್ಯಥೆ
+-  İsrail ordusu yardım bekleyenleri de katlediyor
+-  Man held on charge of killing wife, smothering daughter
+-  Nota 4 para João Gonçalves. “Dois amarelos a Lacava justos”
+-  Fome agrava-se em Gaza, novas negociações no Qatar
