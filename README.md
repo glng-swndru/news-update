@@ -1,11 +1,11 @@
 # Latest News
--  El Granada CF quiere ganar darse un homenaje frente al Atlético de Madrid
--  Newsquawk Week Ahead: FOMC, BoJ, RBA, BoE, SNB, PBoC LPR, NVDA GTC & more
--  MHP'nin büyük kurultayı bugün yapılacak
--  Шойгу засвітився у командному пункті ЧФ РФ: наказав підвищувати "живучість кораблів"
--  Florian Silbereisen reagiert verärgert bei seiner Überraschungsshow: "Hab noch ein Hühnchen mit euch zu rupfen!"
--  Meragukan Peluang Menang Juventus
--  Ρωσία: Έφηβη σκοτώθηκε σε ουκρανικό βομβαρδισμό στη Μπέλγκοροντ
--  Fußball-Kreisklasse: Buß gegen Wettermann: Für 90 Minuten ruht die Freundschaft
--  U Sarajevu otvoreno biračko mjesto za izbore u Rusiji
--  Nienburg: Motorrräder werden verstärkt kontrolliert
+-  Сепеда достроково переміг Г'юза в елімінаторі ВІДЕО
+-  Edith Peter bleibt Vorsitzende des Partnerschaftsvereins Geretsried-Chamalières
+-  '우크라 파병' 논란 마크롱 "언젠가 서방 지상작전 필요할 수도"
+-  Tatar: Kuzey Kıbrıs Türk Cumhuriyeti, Türk dünyasının vazgeçilmez bir parçasıdır
+-  „Одличен советник“: медиумите ја означија ќерката на Ким Џонг-ун како „кадар за најмногу позиции“
+-  BTS' V breaks his own records with new single 'FRI(END)S'
+-  Macron über Verhältnis zu Scholz: „Zwischen dem Bundeskanzler und mir hat es nie Ärger gegeben“
+-  VIDEO Curryjeva krađa i dugački prekidi upropastili LeBronovu utakmicu sezone
+-  Российские ДРГ чаще всего пытаются зайти в Украину через Сумщину, - Госпогранслужба
+-  Francúzsky prezident naznačil, že v určitom bode bude možno potrebné vykonať pozemné operácie na Ukrajine
