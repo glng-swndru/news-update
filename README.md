@@ -1,11 +1,11 @@
 # Latest News
--  НА ЖИВО: Манчестър Сити - Нюкасъл 2:0, Бернардо Силва с втори гол
--  Манчестър Сити - Нюкасъл 2:0 /първо полувреме/
--  Cavanşir Məmmədov: “Arvadımdan başqa hər şeyi dəyişmişəm” - VİDEO
--  Why next three months are crucial for Indian football
--  השר סמוטריץ' נגד יציאת המשלחת לקטאר: הגיע הזמן להתפכח מהקונספציות וללמוד מטעויות
--  Vittozziová triumfovala v stíhačke a získala malý glóbus
--  Taylor S & the civilian-industrial complex
--  Fahrettin Koca açıkladı! Yan dal uzmanlığında mecburi hizmetle ilgili düzenleme geliyor
--  Casademont Zaragoza: prohibido fallar ante el colista
--  "Не збираються закінчувати найближчим часом": Буданов - про плани російських добровольців
+-  מפגיני שמאל הציתו אש מחוץ לקריה בת"א, 4 נעצרו בקיסריה
+-  Vještački snijeg možda već naredne sezone
+-  90s star David Gallagher looks completely unrecognizable with bald head and beard as 7th Heaven star reunites with cast
+-  Tories want Boris Johnson to re-emerge as campaign trail 'centrepiece' to boost fortunes
+-  Бастрыкина наградили орденом Петра Великого
+-  Kedubes Jepang Ingin Istilah Limbah Nuklir Diganti Air Olahan ALPS
+-  Raffo destacó "el gran legado" de la nota crediticia y el Frente Amplio cuestionó la "mezquindad"
+-  கால்வாயில் மூழ்கி சிறுமி பலி
+-  Jeste li vidjeli što radi David Beckham na vrhu metalnih ljestava? Victorija je hrabrila supruga prilikom penjanja
+-  NSW Police shot Western Sydney man Bradley Balzan after stopping him for wearing a hoodie - ABC News
