@@ -1,11 +1,11 @@
 # Latest News
--  Unabomber, svolta nelle indagini: nuovi test, ecco chi c'è nel mirino
--  Съдът намали обезщетението за момиче, бито и унижавано от полицията
--  Φρικτή καταγγελία στη Ζάκυνθο: Ασελγούσε στην 6χρονη κόρη του - Το είπε στη μητέρα του το παιδί
--  Προειδοποιήσεις για κρούσμα ιλαράς σε πτήση από την Πάφο στην Ιρλανδία
--  Ecografía a Luis Mejía: qué puede pasar con el arquero de Nacional con miras al clásico ante Peñarol
--  En Creuse, un jeune homme de 17 ans héliporté à Limoges après un accident de moto
--  НА ЖИВО: Манчестър Сити - Нюкасъл 0:0
--  En Creuse, un jeune homme de 17 ans héliporté à Limoges après un accident de moto
--  Çorum'un asırlık taş binasında büyük dönüşüm
--  Lengjubikarinn: Mikael Hrafn með þrennu gegn Sindra
+-  وزارت بهداشت فقط تأمین‌کننده ۲۵ درصد سلامت جامعه است
+-  Grease: Elvis rejected last chance at greatest dream then died on day they sang his name
+-  Police seek ID of two people wanted in neighborhood assault
+-  Trabzonspor Kulübü Yönetim Kurulu Üyesi Yazıcı, öğrencilerle bir araya geldi
+-  Milžiniška kompanijos „Polar Night Energy“ smėlio baterija šildys Suomijos miestą ...
+-  Padrino López: Venezuela responderá proporcionalmente a provocaciones en Esequibo
+-  Un footballeur de 13 ans perd la vie lors d'un match à Sens
+-  Полузащитник «Лутона» стал автором уникального достижения
+-  Sulama kanalında sürüklenen erkek bedeni paniğe yol açtı, kimliği tespit edildi
+-  Cumhurbaşkanı Yardımcısı Yılmaz'dan enflasyon açıklaması
