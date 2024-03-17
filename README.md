@@ -1,11 +1,11 @@
 # Latest News
--  Eld­gos hafið
--  هجمات الحوثيين تعيد قراصنة الصومال
--  Филиппо: недопустимо отправлять Киеву миллиарды евро вместо поиска мира
--  Hokejisté Pardubic a Sparty vyhráli druhé zápasy, ve čtvrtfinále vedou 2:0
--  "Mam talent!". Złoty przycisk dla uczestniczki z psem. Co na to fani? "Program schodzi na psy"
--  USA: Mann erschießt drei Menschen und nimmt Geiseln
--  USA: Mann erschießt drei Menschen und nimmt Geiseln
--  У разі чергової ескалації Франція готова відреагувати, але ініціатором агресії не стане
--  قصف معاد لحرج بلدة كونين ووادي السلوقي
--  Hokejisté Pardubic a Sparty vedou ve čtvrtfinále 2:0 na zápasy
+-  Medvegyev árulónak nevezte a tüntetőket
+-  Régional 1 : le Sporting Châtaigneraie a résisté au pressing de la réserve de Chamalières
+-  پیش‌بینی ترسناک یک اقتصاددان: سخت‌ترین سال اقتصادی پس از انقلاب را در پیش داریم!
+-  Türkiye Yüzyılı'nın Emekçileri İftar Programı'nda renkli anlar! Başkan Erdoğan'a sürpriz hediye
+-  Tentativa de resgatar homem no esgoto deixa seis mortos na Argentina
+-  Enerverende kelderkraker tussen Excelsior en RKC levert geen winnaar op
+-  Blitz da lei seca tem 15 presos por embriaguez e 34 veículos removidos em Mato Grosso
+-  Beşiktaş galibiyeti unuttu
+-  Régional 1 : le Sporting Châtaigneraie a résisté au pressing de la réserve de Chamalières
+-  Scivola e muore nel Po a Torino mentre cerca di fare una foto
