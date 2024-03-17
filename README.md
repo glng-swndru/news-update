@@ -1,11 +1,11 @@
 # Latest News
--  ආර්ථිකය වගේම රටේ පාරිසරික සම්පත් කළමනාකරණය සඳහාත් අපට පැහැදිලි වැඩපිළිවෙළක් නැහැ
--  Lawsuit accuses Italo Ferrari’s companies of stiffing local contractor
--  HNB General Insurance සහ සම්පත් කාඩ්පත් අතර නව සහයෝගීතාවය හරහා රක්ෂණාවරණ සඳහා පොලී රහිත පහසු ගෙවීමේ සැලසුම්
--  Gareth Southgate refuses to rule out controversial England return for Man Utd outcast Mason Greenwood
--  4월부터 암보험료 오르고 종신보험료 내린다
--  ಕವನ: ಒಂದು ಬೀಜದ ವ್ಯಥೆ
--  İsrail ordusu yardım bekleyenleri de katlediyor
--  Man held on charge of killing wife, smothering daughter
--  Nota 4 para João Gonçalves. “Dois amarelos a Lacava justos”
--  Fome agrava-se em Gaza, novas negociações no Qatar
+-  قصة نجاح مذهلة.. من راسبة في البكالوريا إلى صاحبة مخبر كبير في أمريكا.. شاهدوا:
+-  Air Jordan 2 Low “Cherry Blossom” Release Details Revealed
+-  Minha avó é um perigo! Idosa é presa por vender drogas
+-  Kilo verdiren iğneye onay çıktı
+-  Beşiktaş mağlubiyeti unuttu! Üçüncülük zora girdi
+-  ಡಬ್ಲ್ಯುಪಿಎಲ್ ಫೈನಲ್ ಇಂದು: ಸ್ಮೃತಿ ಬಳಗಕ್ಕೆ ಡೆಲ್ಲಿ ಕ್ಯಾಪಿಟಲ್ಸ್‌ ಸವಾಲು
+-  İtaliyada bomba partladıldı: "Sson dərəcə ciddi hadisə idi"
+-  Man City vào bán kết FA Cup
+-  Murat Kurum: ''Bayrampaşa’nın yarınları için hep mücadele eden tarafta olacağız''
+-  Paso atrás del Sima Granada para alcanzar sus aspiraciones
