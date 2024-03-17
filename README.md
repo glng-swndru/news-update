@@ -1,11 +1,11 @@
 # Latest News
--  وزارت بهداشت فقط تأمین‌کننده ۲۵ درصد سلامت جامعه است
--  Grease: Elvis rejected last chance at greatest dream then died on day they sang his name
--  Police seek ID of two people wanted in neighborhood assault
--  Trabzonspor Kulübü Yönetim Kurulu Üyesi Yazıcı, öğrencilerle bir araya geldi
--  Milžiniška kompanijos „Polar Night Energy“ smėlio baterija šildys Suomijos miestą ...
--  Padrino López: Venezuela responderá proporcionalmente a provocaciones en Esequibo
--  Un footballeur de 13 ans perd la vie lors d'un match à Sens
--  Полузащитник «Лутона» стал автором уникального достижения
--  Sulama kanalında sürüklenen erkek bedeni paniğe yol açtı, kimliği tespit edildi
--  Cumhurbaşkanı Yardımcısı Yılmaz'dan enflasyon açıklaması
+-  Palast auf Distanz: Teure Skandal-Hochzeit für Märtha Louise
+-  Kazakhstan keen to heighten exports to Uzbekistan
+-  Palast auf Distanz: Teure Skandal-Hochzeit für Märtha Louise
+-  Mitropoliji sporno da dijete od 15 godina i starije može u ličnim...
+-  Виттоцци победила в гонке преследования на этапе Кубка мира в Канаде
+-  TUČNJAVA U TRGOVINI Kupac policajcu opsovao majku, ovaj ga nokautirao
+-  Mike Pence's Donald Trump snub shows huge Republican rift opening up as MAGA at war
+-  PSG : Luis Enrique a pris une décision pour Mbappé ?
+-  ABŞ və Kanadanın Buxara Yəhudiləri Konqresinin nümayəndə heyəti Diasporla İş üzrə Dövlət Komitəsində olub
+-  Palast auf Distanz: Teure Skandal-Hochzeit für Märtha Louise
