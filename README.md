@@ -1,11 +1,11 @@
 # Latest News
--  Série A2 do Paulista define os últimos classificados e os confrontos das quartas
--  Municipios de Chalatenango registran mayores temperaturas este sábado
--  Lazio, Sarri sonrası galibiyet hasretine son verdi
--  Av mevsimi!
--  Kartal'ın ayağı kaydı
--  Kırık
--  Şanlıurfa'da Yeniden Refah Partisi'nde istifa depremi: AK Parti'ye geçtiler
--  13:30 JUVENTUS – GENOA
--  Pega par de cuadrangulares: Randy Arozarena luce su poder con Rays de Tampa Bay
--  Ceca nikada bolje nije izgledala: U brutalnoj haljini...dekolte "puca", a šlic do kuka otkriva mnogo toga
+-  WPL 2024 Final : फॉर्मात असलेल्या दिल्लीला अधिक संधी; आज स्मृती अन् लेनिंग पहिल्या विजेतेपदासाठी भिडणार
+-  شقيقان يعشقان تحدي القراءة العربي
+-  Michela Cava scores twice, Minnesota bursts past New York, 5-1
+-  Paulo Lona eleito presidente do Sindicato dos Magistrados do MP
+-  El icónico Faro de Chetumal está listo para recibir visitantes
+-  Discover the mind-blowing art of matchcraft, pioneered over decades by a self-taught Australian sculptor
+-  Timings of liquor shops for Holi extended
+-  State writes to ECI again on Chahal extension
+-  Perú encabeza la certificación de compras sostenibles en Latinoamérica
+-  María Bárbara y Miguel Riquelme destacan los buenos resultados en seguridad en Coahuila
