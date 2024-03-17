@@ -1,11 +1,11 @@
 # Latest News
--  Clătite și consultații ginecologice. Rușii, ademeniți la urne pentru a-i oferi lui Putin o prezență record la alegerile prezidențiale
--  भारतको लोक सभा निर्वाचन तालिका सार्वजनिक, पहिलो चरणको मतदान वैशाख ७ मा
--  Vinç devrildi: Üsküdar sahil yolu kapandı
--  DIREKT: Hård tidig duell – följ Kif Örebro
--  Brand i garagelänga – brandkår på plats
--  Vozači budite oprezni: Malo poznati prometni znak može vas koštati od 100 eura
--  SUNIOG: Zabrana dinara ozbiljno uticala na Srbe na KiM, hitno rešiti to pitanje
--  Meteoroloji'den kuvvetli yağış ve toz taşınımı uyarısı
--  Sit-in contro i tagli alla sanità pubblica della Cgil, il segretario Buscemi: "Tutti i cittadini hanno diritto alle cure"
--  柏木由紀、中3加入から17年「AKB48は、人生そのものです」【卒業スピーチ全文】 - ORICON NEWS
+-  Bari-Sampdora, Depaoli torna dal primo minuto al San Nicola | Aggiornamenti e statistiche
+-  Göztepe-Keçiörengücü maçı hangi kanalda? Saat kaçta? Şifresiz mi?
+-  NAJVEĆA TAJNA LEPE BRENE! ČUVENI SPORTISTA JE PROGURAO: Video sam kako je "zajahala" Popovića! Dopalo mi se - KRENUO SAM U AKCIJU!
+-  Ministério manda recolher dez marcas de azeite extravirgem; veja quais
+-  Dubovská si 11. místem ve slalomu vylepšila sezonní maximum v SP
+-  رئيس بنك الطعام العماني لـ"الرؤية": التعامل مع 38.7 طن من "الأكل المطبوخ".. وتنفيذ 14 مبادرة لـ"صون النعمة" ودعم المستحقين
+-  Bukber di Warkop Jurnalis, Kapolrestabes Medan: Sinergitas Polri dan Media Harus Dirawat
+-  EEUU | Conozca los beneficios de las tarjetas de crédito Macy’s
+-  "أسياد" تدعو القطاع الخاص للمشاركة في توفير حلول النقل البري
+-  Norris n'est pas encore 'totalement satisfait' de la MCL38
