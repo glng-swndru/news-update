@@ -1,11 +1,11 @@
 # Latest News
--  Россияне за границей начали собираться в очереди на голосование с раннего утра
--  Şentepe tarihinin en büyük yatırımı hizmete açıldı
--  Soláry, kam se podíváš. Elektrárnám dochází místo, musí být kreativní
--  ’De Kaag’ had een warm kloppend hart, vooral als het koud werd. Aad Kagenaar schaatste twee keer de Elfstedentocht | In memoriam
--  Nazirlikdən XƏBƏRDARLIQ - Martın 18-də...
--  à¶´à·�à·ƒà¶½à·Š à¶šà¶»à·�à¶­à·š à¶´à·”à·„à·”à¶«à·”à¶šà·�à¶»à·’à¶ºà¶œà·š à¶¸à·€ à¶šà·”à¶©à·” à¶‘à¶šà·Šà¶š à¶¸à·�à¶§à·Šà¶§à·”
--  DPS Kotor: Izbor Savjeta MZ Škaljari pretvoren u incident
--  De ce nu este bine să luăm medicamente după ureche, doar ca să ne simțim mai bine. Ce spun medicii specialiști
--  VILIJAM NE NOSI BURMU DOK SVET BRUJI O NJEGOVOJ NAVODNOJ PRELJUBI: Svi misle da je LJUBAVNICA RAZLOG, a evo šta stoji iza svega
--  පාසල් කරාතේ පුහුණුකාරියගේ මව කුඩු එක්ක මාට්ටු
+-  Alerte Météo: Une couche de poussière et température élevées attendues ce dimanche
+-  Siirtli kaşif yapay zekalı robot asker yaptı!
+-  Il villino delle Tigri, all'Annunziata un piccolo gioiello di architettura coppedeana
+-  Las agencias de calificación alertan de la fragmentación política española
+-  Cai Xiaoqing tỏa sáng, bóng chuyền nữ Thanh Hóa hạ đẹp Quảng Ninh ở giải VĐQG
+-  Basilicata, la rinuncia di Lacerenza manda in tilt il centrosinistra
+-  Đà Lạt: Sẽ xây dựng nhà vệ sinh trên đèo Prenn cho du khách
+-  Феновете на "Ботев" (Пд) скочиха срещу избора на Георги Иванов-Гонзо за президент на БФС
+-  الاتحاد الدولي يخصص أكثر من مليارين دولار لدعم تطوير الاتحادات
+-  ثبت سفارش واردات "2800 تاکسی برقی" بستیون، دانگ‌فنگ و لونا برای تهران انجام شد
