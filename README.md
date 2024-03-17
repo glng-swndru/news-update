@@ -1,11 +1,11 @@
 # Latest News
--  Trânsito matou 12 motociclistas este ano na Capital
--  قوى الأمن: توقيف عصابة سرقة سيارات تنشط في مناطق جبل لبنان
--  Gineitis žaidė visas rungtynes, o „Torino“ laimėjo išvykoje
--  Emofilia, Ghio (Sobi): "Importante parlare del benessere delle articolazioni"
--  Juve, Allegri: "Rabiot non ha i 90 minuti ma averlo a disposizione è già un bel segnale"
--  Denizli'de devrilen hafif ticari aracın sürücüsü öldü
--  Upokojenci: Generacija Z je lena in ne želi delati
--  S. BELUPO - RIJEKA 0:1 Galešić ponovno spasio Rijeku i zadržao je na vrhu
--  Αυξημένη επιτήρηση στο Καρναβάλι της Πάτρας για μηνιγγίτιδα - Τα ανησυχητικά συμπτώματα
--  Rijeka slavi Niku Galešića, igrača koji je opet osigurao pobjedu u Koprivnici
+-  Şəmkirdə yeznə qaynını bıçaqladı
+-  Lucas Souza e Jaquelline Grohalski são flagrados juntos após término e ex-peoa brinca: Tomou o chá do norte, já era
+-  A ROTH DI COLLO - ADELPHI SOTTRAE A EINAUDI I DIRITTI DELLE OPERE PER L’ITALIA DEL GRANDE SCRITTORE AMERICANO - I ROMANZI DI PHILIPH ROTH SONO STATI ACQUISITI DALLA CASA EDITRICE MILANESE, ORFANA DAL 2021 DELLO STORICO ANIMATORE ROBERTO CALASSO, DOPO UNA LUNGA TRATTATIVA CON L’AGENZIA LETTERARIA WYLIE - PARE CHE L’ACCORDO SIA STATO RAGGIUNTO PER UNA CIFRA INTORNO AL MILIONE DI EURO – CHE SMACCO DI IMMAGINE E COMMERCIALE PER EINAUDI E IL GRUPPO MONDADORI!
+-  Meet B.C. boy Lucas Mason Yao, who has memorized 2,030 digits of pi
+-  Mercato - PSG : Ce transfert à 130M€ est déjà acté
+-  Klima-Demos: Letzte Generation protestiert am Stuttgarter Flughafen
+-  Loire. Détenu retrouvé pendu : sa famille porte plainte contre la prison de Roanne
+-  Meet B.C. boy Lucas Mason Yao, who has memorized 2,030 digits of pi
+-  Meet B.C. boy Lucas Mason Yao, who has memorized 2,030 digits of pi
+-  The Bachelor's Joey makes 'undeniable' Maria confession in Women Tell All bombshell teaser
