@@ -1,11 +1,11 @@
 # Latest News
--  影片曝！亂把菸蒂丟進地下孔洞 他手賤炸死自己和同伴
--  24歲韓聲優李宇梨突逝世！ 配音《名偵探柯南》…剛過完生日
--  A TRUE FRIEND
--  Hugo Borst interrumpeert plots emotioneel interview: ‘Wat lult hij allemaal?’
--  Трамп назвал Байдена угрозой для США
--  Duyanlar Kayseri’ye gitmek için yola çıktı; Dünyada eşi benzeri yok
--  LACIO U GOSTIMA POBEDIO FROZINONE: Rimljani u goleadi do sva tri boda
--  Quando abril vier
--  Palmeiras atinge perfeição no 1º tempo, atropela Ponte Preta e se garante na semifinal
--  Quando abril vier
+-  Yanardağ alarmı! Köyler tahliye edilmeye başlandı
+-  A volcano in Iceland is erupting for the fourth time in 3 months, sending plumes of lava skywards
+-  Haiti and the future of the Black Person
+-  «Mis padres estuvieron casi tres años de alquiler»
+-  What happened to Greg Vaughan from Days of Our Lives?
+-  Sao nam Vbiz gây sốc tuyên bố vỡ nợ sau khi chia tay vợ đại gia, cuộc sống kín tiếng hiện tại gây tò mò
+-  "If You Have Courage...": Congress' Priyank Kharge On BJP's "Dynast" Jibe
+-  Teo Gutiérrez enciende polémica y revela problemas en la Selección de Pékerman
+-  14:30 STVV – Club Brugge
+-  Rio de Janeiro tem sensação térmica recorde de 60,1ºC; previsão para domingo é de mais calor
