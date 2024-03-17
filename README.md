@@ -1,11 +1,11 @@
 # Latest News
--  SHAREHOLDER UPDATE: Halper Sadeh LLC Investigates HRT, NGM, SCTL
--  A101'den halk gününde Ramazan indirimi yaşanıyor! 12'li Mistral tuvalet kağıdı yok pahasına satılıyor
--  Pregazili domaćina: Hrvatska se plasirala na Olimpijske igre u velikom stilu!
--  Видеообзор матча чемпионата Казахстана «Рахмет» — «Астана» 5:2
--  Đukanović o posjeti Dodika Crnoj Gori: Nacionalisti nisu izvukli...
--  Ucraina: Fratoianni, 'da Macron parole avventate'
--  Milan? Già tutto finito: l'avvocato rivela perché l'inchiesta si sta sgonfiando subito
--  İslam Memiş altın için 'son 5 gün' diyerek uyardı: Ortalık kızışacak
--  Pakistan'daki bombalı saldırılarda 7 asker öldü
--  Córka Anny Lewandowskiej wylewa siódme poty na siłowni. Są mięśnie. "Jestem z niej dumna"
+-  Със заплаха за 8 г. затвор Русия пресича палежите на бюлетини от избирателите
+-  VIŠE OSOBA RANjENO U PUCNjAVI U PENSILVANIJI: Policija još nije pronašla napadača, izdato hitno upozorenje
+-  "IPL Won't Be Moved Overseas": BCCI Secretary Jay Shah Confirms After Lok Sabha Election Date Announcement | Cricket News - NDTV Sports
+-  "Левски" се върна на победния път с разгром над "Етър"
+-  Власт и митрополити се оттеглиха, хиляди миряни още хвърлят пръст върху ковчега на патриарх Неофит (Снимки)
+-  الإمارات تستقبل دفعة جديدة من الأطفال الفلسطينيين الجرحى ومرضى السرطان
+-  "Ritiro la mia candidatura". Lacerenza, altro disastro per Schlein e Conte: parole pesanti
+-  Патриарх Кирил: Сърбите са най-надеждните православни братя
+-  Juggling act: UST Tigresses survive prelims week, complete UAAP 1st-round sweep
+-  **Basilicata: Lacerenza rinuncia alla candidatura**
