@@ -1,11 +1,11 @@
 # Latest News
--  Közel a felére fogyott a nő, aki 108 kilót nyomott: így csinálta
--  Nhìn con trai hơn 40 tuổi vẫn sống lủi thủi, tôi rơi nước mắt: Không ngờ sai lầm trong quá khứ của bố mẹ ám ảnh con đến vậy
--  Protagonista de Dragonball Evolución se disculpa por "arruinar" la obra de Akira Toriyama
--  Burnley– Brentford sýndur beint á mbl.is
--  Qumral şıdırğı rəqsi ilə GÜNDƏM OLDU
--  Viikon tv-poiminta: Hei, me luistellaan! Pohjalainen miesryhmä rikkoo perinteisen mieskuvan rajoja
--  Man. Utd – Sheffield United: El partido de fútbol de Jornada 29 , en directo
--  STRANKA REPUBLIKA Za predsjednicu kutinske organizacije izabrana poznata zviždačica Adrijana Cvrtila
--  Irene Ravache apresenta peça em Porto Alegre neste final de semana
--  Study: Researchers Identify 25 Air Pollutants Associated With Asthma Symptoms
+-  «Рахмет» оказался сильнее «Астаны»
+-  Sexting: Unsere Autorin ist verheiratet – und schickt Sexnachrichten an einen anderen Mann
+-  Sağlık Bakanlığı ile DAÜ, 65 yaş üstü hastalara unutkanlık ve depresyon testi uygulayacak
+-  Női kézi BL: Ferencváros–Brest
+-  Vodári budú bezplatne analyzovať vodu
+-  Sporni pogodak Rijeci donio sva tri boda
+-  "هناك مشروع شيطاني يحاك للبنان"... مرتضى: لا نريد التقسيم
+-  Проф. Денчев за патриарх Неофит: Говореше благо, пееше като славей
+-  ‘빌드업’ 황인혁, 아쉬움 남기며 아름다운 퇴장
+-  Woman killed in late night shooting in Tamarac home, deputies say
