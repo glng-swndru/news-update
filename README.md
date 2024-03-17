@@ -1,11 +1,11 @@
 # Latest News
--  באשדוד מודאגים מהמצב בטבלה: ״חייבים נקודות״. אוואני יהיה כשיר לפלייאוף?
--  Συγκεντρώνεται με στόχο το Euro 2024 η Εθνική Ελλάδας!
--  Vejić o Livaji: Sutra ćemo nova dva murala iscrtat negdje u gradu, je*eš jedan penal
--  MHP Genel Başkanı Devlet Bahçeli'nin koluna ne oldu? MHP'den konu ile ilgili açıklama geldi!
--  In partenza a Forlì il corso gratuito di "tecnologo delle produzioni arredamenti in legno"
--  Vejić o Livajinoj panenki: Zaboli te, Markane, Hajduk ti nije do koljena
--  Araç sahiplerinin yüzü bu defa gülecek! Benzin ve otogaza dev indirim geldi: ING Bank duyurdu, son tarih 31 Mart
--  В Британии сообщили об обстреле судна в Аденском заливе близ Йемена
--  Hamburg beklagt mangelndes Engagement für Seehäfen
--  面試完「很快被錄取」是雷缺？ 過來人曝經驗：審很快
+-  Észak-Korea betör a streaming piacra, hamarosan bárki nézheti az állami propagandát
+-  Vi måste stärka flickor och kvinnors rättigheter varje dag
+-  2024 年奠边国家旅游年暨洋紫荆花节开幕
+-  Le aperture inglesi - Coventry "magico" col Wolverhampton: oggi Man United-Liverpool
+-  Kocaman, Şevkatiye’de destek istedi
+-  BJP कम से कम उत्तर प्रदेश में 40 लोकसभा सीटें गंवाने जा रही है, समाजवादी पार्टी नेता रामगोपाल यादव का दावा
+-  Żona Skiby miała raka. Teraz mówi o problemach zdrowotnych muzyka. "Całymi dniami płakałam"
+-  Şehit öğretmen Şenay Aybüke Yalçın'ın adı Cumhuriyet Yaşam Merkezi'nde yaşatılacak
+-  Mattarella, fermare le guerre in Ucraina e Medio Oriente
+-  Bật mí công thức làm món mì gà tiềm thơm ngon bổ dưỡng
