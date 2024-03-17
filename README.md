@@ -1,11 +1,11 @@
 # Latest News
--  Ketua KWI Apresiasi Program Kolaborasi Pemuda Katolik
--  "Cena za milczenie". Romaszewska ujawnia kulisy zwolnienia z Biełsatu
--  Kane breaks 60-year record and Musiala dazzles in Bayern romp
--  Salernitana, Milan: "Ennesima sconfitta pesante, faremo riflessioni anche su Liverani"
--  National 3 : Moulins-Yzeure enchaîne avec une deuxième victoire de rang et un neuvième match consécutif sans défaite
--  Özgür Özel atanamayan öğretmenler'e dikkat çekti:'Hakkımızı söke söke alacağız'
--  Princess Kate tipped to release second family picture in weeks after fierce backlash
--  நிதி நிறுவன மோசடி குறித்து பொதுமக்கள் புகார் தரலாம்: பொருளாதார குற்றப்பிரிவு அறிவிப்பு
--  Çin'de orman yangını! Rüzgarın etkisiyle hızla büyüdü
--  National 3 : Moulins-Yzeure enchaîne avec une deuxième victoire de rang et un neuvième match consécutif sans défaite
+-  Fernanda Lima desabafa sobre dor da morte da mãe: -Parece mentira
+-  பேவா் பிளாக் சாலை திறப்பு
+-  الآن من الميدان.. هكذا يبدو وضع جنوب لبنان
+-  OPET U CENTRU POZORNOSTI Evo zašto princ William ne nosi vjenčani prsten
+-  ベストセラー著者が語る「旧統一教会問題」と「カルト教祖の共通点」 - ビジネスを強くする教養
+-  Zidane revient au Real Madrid !
+-  Joao Felix? "I don't think about footballers who play for other teams"
+-  Kiskeya Life
+-  Martusciello Lazio, Montolivo racconta: «A me è capitato con l’esonero di Allegri»
+-  不倫妻役を演じきった篠田麻里子 娘にも「いつか胸を張って見せたい」
