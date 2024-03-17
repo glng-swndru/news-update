@@ -1,11 +1,11 @@
 # Latest News
--  정승제, 영화관·엘베 있는 집 공개…“제주도에 같은 집 1채 더”
--  Bezpečí a fotbálek. Do ulic vyjíždí uličnický autobus. Vrátí do osvědčených lokalit
--  Neuer Vulkanausbruch auf Island
--  Từ vụ đập kính ô tô: Ứng xử như thế nào khi xảy ra va chạm giao thông?
--  ترامب: الانتخابات الرئاسية ستشكل تحولا في التاريخ الأميركي
--  Минус 1160 оккупантов, 11 танков и 24 ББМ. ВСУ обновили статистику потерь
--  Manchester City 22 Laga, 19 Kali Menang, Tak Terkalahkan
--  أطباء يلجأون للذكاء الاصطناعي للتواصل مع مرضاهم
--  Il linfoma, la chemio, la paura. Oggi Rossella con il suo violoncello suona anche per la ricerca
--  35 беспилотников нейтрализовали за ночь над территорией РФ
+-  12 modela haljina u najljepšim nijansama zelene boje
+-  Dua Nelayan yang Hilang Akhirnya Ditemukan, Innalillahi
+-  Macron sull'Ucraina prova la sua debolezza
+-  В Беларуси открылись участки для голосования на выборах президента России
+-  Tekab 308 Presisi Sat Reskrim Polres Lampung Utara Ringkus Seorang Residivis Pelaku Curat
+-  Apacze, pociski lotnicze i co jeszcze? Polska z amerykańskiego sklepu nie wychodzi. Ceny robią wrażenie | Apacze, pociski lotnicze i co jeszcze? Polska nie wychodzi z amerykańskiego sklepu. Ceny robią wrażenie
+-  SAVEZNICI POZIVAJU NETANJAHUA DA ODLOŽI NAPAD NA RAFU Izrael šalje delegaciju u Katar na pregovore s Hamasom (FOTO/VIDEO)
+-  Рогов: участок загорелся в запорожской Каменке-Днепровской после атаки БПЛА
+-  207 hv, 339 Nm ja 175 km/h – Tähän uuteen korealaiseen sähköautoon saa 1 000 000 km akkutakuun 73 kWh akkuun
+-  Yola çıkacakları ilgilendiren haber! Kara yollarının yapım, bakım ve onarım çalışmalarında son durum
