@@ -1,11 +1,11 @@
 # Latest News
--  מפגיני שמאל הציתו אש מחוץ לקריה בת"א, 4 נעצרו בקיסריה
--  Vještački snijeg možda već naredne sezone
--  90s star David Gallagher looks completely unrecognizable with bald head and beard as 7th Heaven star reunites with cast
--  Tories want Boris Johnson to re-emerge as campaign trail 'centrepiece' to boost fortunes
--  Бастрыкина наградили орденом Петра Великого
--  Kedubes Jepang Ingin Istilah Limbah Nuklir Diganti Air Olahan ALPS
--  Raffo destacó "el gran legado" de la nota crediticia y el Frente Amplio cuestionó la "mezquindad"
--  கால்வாயில் மூழ்கி சிறுமி பலி
--  Jeste li vidjeli što radi David Beckham na vrhu metalnih ljestava? Victorija je hrabrila supruga prilikom penjanja
--  NSW Police shot Western Sydney man Bradley Balzan after stopping him for wearing a hoodie - ABC News
+-  Calcio, la Triestina cerca il bis in casa della Pro Sesto. Bordin: «Morale buono ma attenti alle insidie»
+-  Profesor Đulabić za Dnevnik Nove TV tvrdi: "Postoje dvije opcije, Milanović mora podnijeti ostavku u jednom slučaju"
+-  Nuri Bilge Ceylan'dan Ferhat Göçer'e özür!
+-  "المقاومة الإسلامية": ‏استهدفنا تجمعاً لجنود العدو على تلة الكرنتينا بالأسلحة الصاروخية‏
+-  Cette série Netflix est totalement éclatée au sol mais on ne peut pas s'empêcher de la regarder
+-  في إشارة لتعطيل المحافظ لقرارات الحكومة.. الشرمي يتحدث عن مشكلة أراضي وعقارات أبين
+-  India recaptures ship MV Ruen from Somali pirates, rescues crew
+-  Prima Edizione di “Messina Città del Dono”, così tutti gli studenti premiati
+-  A Fehérvár FC Kecskeméten szakította meg nyeretlenségi sorozatát
+-  Krimovke v Bukarešto z zaostankom šestih golov
