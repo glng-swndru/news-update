@@ -1,11 +1,11 @@
 # Latest News
--  'Postoji stereotip da su kvizaši izrazito seksi i duhoviti, a na meni se najbolje vidi da je to točno'
--  Raashii Khanna : హాలీవుడ్ రేంజ్​లో ముస్తాబైన రాశిఖన్నా.. న్యూ లుక్ దేనికోసమో మరి
--  Sat Binmas Polresta Gorontalo Kota Gelar Halal Bil halal dan Bukber Dengan Saka Bhayangkara
--  Wrexham: Ty Pawb to host several events over Easter
--  Sabah's hardcore poverty rate not the same as revealed in Parliament, claims Hajiji
--  Free propose une box internet avec fibre, Disney+ et Prime Video (prix intéressant)
--  Aileler tapu mağduru: Müteahhit kayıp, mülk sahipleri çaresiz
--  Ljudi ne mogu da veruju šta rade! Da li je ovo potez godine?
--  Алкарас спря серията на Синер за финал в Индиън Уелс
--  天生雙陰道！辣妹同時約會2男 嬌喊「一人用一個」不算劈腿
+-  罕見防守戰！ 布朗森狂飆42分率領尼克擊敗國王
+-  Konec americké demokracie. Pokud nevyhrajeme, další volby nebudou, řekl Trump
+-  Red sunca, red oblaka. Na jugu mogući i pljuskovi u nedjelju, a temperature rastu do 20 Celzija
+-  Palesha qualified for the Paris Para Olympics
+-  10 bản hợp đồng đầu tiên của Klopp tại Liverpool giờ ra sao?
+-  Premierul Netanyahu vrea ”victoria totală” împotriva Hamas. A fost aprobată operațiunea militară a Israelului în Rafah, Gaza
+-  סכנין נקנסה ב-15 אלף שקל על "ביזוי ההמנון"
+-  Vì sao vay ngân hàng trên 100 triệu đồng phải cung cấp thông tin người liên quan?
+-  Nach der Flut: Orgel in der Gemünder Kirche wird nach Sanierung erstmals wieder erklingen
+-  Nach der Flut: Orgel in der Gemünder Kirche wird nach Sanierung erstmals wieder erklingen
