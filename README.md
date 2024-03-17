@@ -1,11 +1,11 @@
 # Latest News
--  Със заплаха за 8 г. затвор Русия пресича палежите на бюлетини от избирателите
--  VIŠE OSOBA RANjENO U PUCNjAVI U PENSILVANIJI: Policija još nije pronašla napadača, izdato hitno upozorenje
--  "IPL Won't Be Moved Overseas": BCCI Secretary Jay Shah Confirms After Lok Sabha Election Date Announcement | Cricket News - NDTV Sports
--  "Левски" се върна на победния път с разгром над "Етър"
--  Власт и митрополити се оттеглиха, хиляди миряни още хвърлят пръст върху ковчега на патриарх Неофит (Снимки)
--  الإمارات تستقبل دفعة جديدة من الأطفال الفلسطينيين الجرحى ومرضى السرطان
--  "Ritiro la mia candidatura". Lacerenza, altro disastro per Schlein e Conte: parole pesanti
--  Патриарх Кирил: Сърбите са най-надеждните православни братя
--  Juggling act: UST Tigresses survive prelims week, complete UAAP 1st-round sweep
--  **Basilicata: Lacerenza rinuncia alla candidatura**
+-  Trânsito matou 12 motociclistas este ano na Capital
+-  قوى الأمن: توقيف عصابة سرقة سيارات تنشط في مناطق جبل لبنان
+-  Gineitis žaidė visas rungtynes, o „Torino“ laimėjo išvykoje
+-  Emofilia, Ghio (Sobi): "Importante parlare del benessere delle articolazioni"
+-  Juve, Allegri: "Rabiot non ha i 90 minuti ma averlo a disposizione è già un bel segnale"
+-  Denizli'de devrilen hafif ticari aracın sürücüsü öldü
+-  Upokojenci: Generacija Z je lena in ne želi delati
+-  S. BELUPO - RIJEKA 0:1 Galešić ponovno spasio Rijeku i zadržao je na vrhu
+-  Αυξημένη επιτήρηση στο Καρναβάλι της Πάτρας για μηνιγγίτιδα - Τα ανησυχητικά συμπτώματα
+-  Rijeka slavi Niku Galešića, igrača koji je opet osigurao pobjedu u Koprivnici
