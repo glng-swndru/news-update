@@ -1,11 +1,11 @@
 # Latest News
--  이스라엘·하마스 휴전 협상 재개…하마스 한발 물러섰지만, 이스라엘은 중재안 퇴짜
--  Dikjarat stat ta’ emerġenza wara li reġa’ żbroffa vulkan fl-Iżlanda
--  So vulkanizerji dvignili cene? Preverili smo!
--  افتتاح القاعة التعليمية الذكية بمدرسة الرسالة في شمال الباطنة
--  Despídete del cambio de hora en marzo: la decisión de la UE y lo que dice el BOE
--  Delayed by corruption
--  POSLE ŠEST DANA SAM DOBIO OTKAZ! Srpski pevač sve otkrio: Sačekala me koverta i zahvalnica
--  Tim Gabungan Gelar Razia, 54 Pelaku Tawuran dan Ratusan Kendaraan Tanpa Dokumen Diamankan
--  В Островце судили водителя, который в пригородной деревне при движении задним ходом смертельно травмировал женщину
--  Vučić danas prima učenike osnovnih škola sa KiM!
+-  정승제, 영화관·엘베 있는 집 공개…“제주도에 같은 집 1채 더”
+-  Bezpečí a fotbálek. Do ulic vyjíždí uličnický autobus. Vrátí do osvědčených lokalit
+-  Neuer Vulkanausbruch auf Island
+-  Từ vụ đập kính ô tô: Ứng xử như thế nào khi xảy ra va chạm giao thông?
+-  ترامب: الانتخابات الرئاسية ستشكل تحولا في التاريخ الأميركي
+-  Минус 1160 оккупантов, 11 танков и 24 ББМ. ВСУ обновили статистику потерь
+-  Manchester City 22 Laga, 19 Kali Menang, Tak Terkalahkan
+-  أطباء يلجأون للذكاء الاصطناعي للتواصل مع مرضاهم
+-  Il linfoma, la chemio, la paura. Oggi Rossella con il suo violoncello suona anche per la ricerca
+-  35 беспилотников нейтрализовали за ночь над территорией РФ
