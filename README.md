@@ -1,11 +1,11 @@
 # Latest News
--  Calcio, la Triestina cerca il bis in casa della Pro Sesto. Bordin: «Morale buono ma attenti alle insidie»
--  Profesor Đulabić za Dnevnik Nove TV tvrdi: "Postoje dvije opcije, Milanović mora podnijeti ostavku u jednom slučaju"
--  Nuri Bilge Ceylan'dan Ferhat Göçer'e özür!
--  "المقاومة الإسلامية": ‏استهدفنا تجمعاً لجنود العدو على تلة الكرنتينا بالأسلحة الصاروخية‏
--  Cette série Netflix est totalement éclatée au sol mais on ne peut pas s'empêcher de la regarder
--  في إشارة لتعطيل المحافظ لقرارات الحكومة.. الشرمي يتحدث عن مشكلة أراضي وعقارات أبين
--  India recaptures ship MV Ruen from Somali pirates, rescues crew
--  Prima Edizione di “Messina Città del Dono”, così tutti gli studenti premiati
--  A Fehérvár FC Kecskeméten szakította meg nyeretlenségi sorozatát
--  Krimovke v Bukarešto z zaostankom šestih golov
+-  Fulam nadigrao Totenhem
+-  Serie A, il Lecce vince 1-0 con la Salernitana all'Arechi
+-  Gorąca modelka łączona z Neymarem zdradziła sekret swojego idealnego tyłka. Będziecie wstrząśnięci i zmieszani [ZDJĘCIA]
+-  Beauty buffs 'ditch' anti-ageing moisturisers for £24 product claimed to tighten skin in 10-minutes
+-  Emekliye bayram ikramiyesi yatacağı tarih resmen kesinleşti
+-  Денков и Габриел се срещнаха с Вселенския патриарх Вартоломей
+-  "Черноморец" на първи финал за купата на България след 1975 г.
+-  Salernitana-Lecce 0-1: le pagelle, il tabellino e tutti i risultati della 29^ giornata di Serie A
+-  «Фулхэм» разгромил «Тоттенхэм» в домашнем матче
+-  POKUŠALI DA BACE DROGU VREDNU MILIJARDU EVRA: Srbi uhapšeni u Irskoj, dve tone kokaina zamalo završilo u moru (FOTO)
