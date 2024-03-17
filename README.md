@@ -1,11 +1,11 @@
 # Latest News
--  David Barro, proposat com a nou director del museu d'Es Baluard
--  Wolfsburg uručio otkaz Niki Kovaču
--  Kết quả xổ số (KQXS) hôm nay Chủ nhật ngày 17/3/2024
--  A Miss World Hungary tavalyi győztese, Hacsi Boglárka fájdalmas vallomása: apa nélkül nőtt fel – videó
--  Пентагон разработал переносной детектор инопланетных кораблей
--  Mưa rét dài ngày sắp diễn ra do gió mùa Đông Bắc tràn về
--  Gaziantepli Şenpekmezci'nin hikayesi: Yarım asırlık ud sevdası
--  İsrail güçleri işgal altındaki Batı Şeria'da 25 Filistinliyi gözaltına aldı
--  ¿Ya no hay principios ni valores?
--  Hazal Kaya'dan kıskançlık itirafı: O işlere tutuluyorum
+-  Rissa in città, si spaccano la faccia a bottigliate
+-  Damar yolu ile verilen serumda mikroplastik çıktı
+-  Zapatos colombianos hechos con marihuana: un emprendimiento que resignifica la huella de la violencia
+-  Elektroauto-Wartung: Das Märchen vom unkaputtbaren Auto
+-  Bursa Yıldırım Belediyesi’nden önce eğitim sonra iş
+-  Sivasspor'un galibiyet hasreti 3 maça çıktı
+-  Darwin Núñez: Talismã também na seleção
+-  Nijer, ABD ile askeri iş birliğini sonlandırdı
+-  Élethosszabbítást ígér a főváros
+-  Hrvatska nije imala klub ovako visoko u ABA ligi još otkad je Cedevita bila u Zagrebu
