@@ -1,11 +1,11 @@
 # Latest News
--  Сепеда достроково переміг Г'юза в елімінаторі ВІДЕО
--  Edith Peter bleibt Vorsitzende des Partnerschaftsvereins Geretsried-Chamalières
--  '우크라 파병' 논란 마크롱 "언젠가 서방 지상작전 필요할 수도"
--  Tatar: Kuzey Kıbrıs Türk Cumhuriyeti, Türk dünyasının vazgeçilmez bir parçasıdır
--  „Одличен советник“: медиумите ја означија ќерката на Ким Џонг-ун како „кадар за најмногу позиции“
--  BTS' V breaks his own records with new single 'FRI(END)S'
--  Macron über Verhältnis zu Scholz: „Zwischen dem Bundeskanzler und mir hat es nie Ärger gegeben“
--  VIDEO Curryjeva krađa i dugački prekidi upropastili LeBronovu utakmicu sezone
--  Российские ДРГ чаще всего пытаются зайти в Украину через Сумщину, - Госпогранслужба
--  Francúzsky prezident naznačil, že v určitom bode bude možno potrebné vykonať pozemné operácie na Ukrajine
+-  באשדוד מודאגים מהמצב בטבלה: ״חייבים נקודות״. אוואני יהיה כשיר לפלייאוף?
+-  Συγκεντρώνεται με στόχο το Euro 2024 η Εθνική Ελλάδας!
+-  Vejić o Livaji: Sutra ćemo nova dva murala iscrtat negdje u gradu, je*eš jedan penal
+-  MHP Genel Başkanı Devlet Bahçeli'nin koluna ne oldu? MHP'den konu ile ilgili açıklama geldi!
+-  In partenza a Forlì il corso gratuito di "tecnologo delle produzioni arredamenti in legno"
+-  Vejić o Livajinoj panenki: Zaboli te, Markane, Hajduk ti nije do koljena
+-  Araç sahiplerinin yüzü bu defa gülecek! Benzin ve otogaza dev indirim geldi: ING Bank duyurdu, son tarih 31 Mart
+-  В Британии сообщили об обстреле судна в Аденском заливе близ Йемена
+-  Hamburg beklagt mangelndes Engagement für Seehäfen
+-  面試完「很快被錄取」是雷缺？ 過來人曝經驗：審很快
