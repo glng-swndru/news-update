@@ -1,11 +1,11 @@
 # Latest News
--  罕見防守戰！ 布朗森狂飆42分率領尼克擊敗國王
--  Konec americké demokracie. Pokud nevyhrajeme, další volby nebudou, řekl Trump
--  Red sunca, red oblaka. Na jugu mogući i pljuskovi u nedjelju, a temperature rastu do 20 Celzija
--  Palesha qualified for the Paris Para Olympics
--  10 bản hợp đồng đầu tiên của Klopp tại Liverpool giờ ra sao?
--  Premierul Netanyahu vrea ”victoria totală” împotriva Hamas. A fost aprobată operațiunea militară a Israelului în Rafah, Gaza
--  סכנין נקנסה ב-15 אלף שקל על "ביזוי ההמנון"
--  Vì sao vay ngân hàng trên 100 triệu đồng phải cung cấp thông tin người liên quan?
--  Nach der Flut: Orgel in der Gemünder Kirche wird nach Sanierung erstmals wieder erklingen
--  Nach der Flut: Orgel in der Gemünder Kirche wird nach Sanierung erstmals wieder erklingen
+-  Grandi elogi europei a Meloni, ma la guerra totale a Mosca non è la soluzione
+-  卒コン明けの柏木由紀、AKB新体制始動コンに1曲だけ参加「24時間も経たずに帰ってくるなんて…」 - ORICON NEWS
+-  Rendkívüli állapotot hirdettek a vulkánkitörés miatt + videó
+-  Qobustanda qumbara və odlu silahlar aşkarlandı
+-  Šiliausko gautas 260 tūkstančių eurų kyšis atiteko Lietuvos valstybei
+-  "Periode normalisieren": Jessica Biel klärt ihre Söhne auf!
+-  Девочка-подросток погибла в Белгороде при обстреле ВСУ
+-  국힘 경북 마지막 공천 구미을..."대통령실이 현역 제꼈다"
+-  Ето кой ще е новият президент на Европейската филмова академия
+-  Ege değil, Akdeniz değil, İstanbul kıyılarında objektiflere yakalandılar... Sürü halinde çılgınlar gibi eğleniyorlardı
