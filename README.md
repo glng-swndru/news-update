@@ -1,11 +1,11 @@
 # Latest News
--  Grandi elogi europei a Meloni, ma la guerra totale a Mosca non è la soluzione
--  卒コン明けの柏木由紀、AKB新体制始動コンに1曲だけ参加「24時間も経たずに帰ってくるなんて…」 - ORICON NEWS
--  Rendkívüli állapotot hirdettek a vulkánkitörés miatt + videó
--  Qobustanda qumbara və odlu silahlar aşkarlandı
--  Šiliausko gautas 260 tūkstančių eurų kyšis atiteko Lietuvos valstybei
--  "Periode normalisieren": Jessica Biel klärt ihre Söhne auf!
--  Девочка-подросток погибла в Белгороде при обстреле ВСУ
--  국힘 경북 마지막 공천 구미을..."대통령실이 현역 제꼈다"
--  Ето кой ще е новият президент на Европейската филмова академия
--  Ege değil, Akdeniz değil, İstanbul kıyılarında objektiflere yakalandılar... Sürü halinde çılgınlar gibi eğleniyorlardı
+-  El Granada CF quiere ganar darse un homenaje frente al Atlético de Madrid
+-  Newsquawk Week Ahead: FOMC, BoJ, RBA, BoE, SNB, PBoC LPR, NVDA GTC & more
+-  MHP'nin büyük kurultayı bugün yapılacak
+-  Шойгу засвітився у командному пункті ЧФ РФ: наказав підвищувати "живучість кораблів"
+-  Florian Silbereisen reagiert verärgert bei seiner Überraschungsshow: "Hab noch ein Hühnchen mit euch zu rupfen!"
+-  Meragukan Peluang Menang Juventus
+-  Ρωσία: Έφηβη σκοτώθηκε σε ουκρανικό βομβαρδισμό στη Μπέλγκοροντ
+-  Fußball-Kreisklasse: Buß gegen Wettermann: Für 90 Minuten ruht die Freundschaft
+-  U Sarajevu otvoreno biračko mjesto za izbore u Rusiji
+-  Nienburg: Motorrräder werden verstärkt kontrolliert
