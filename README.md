@@ -1,11 +1,11 @@
 # Latest News
--  人權組織：敘利亞松露採集者誤觸地雷 至少19死
--  PRÉSIDENTIELLE_2024 | TEMPS D'ANTENNE AMADOU BA / Coalition BENNO BOKK YAAKAAR
--  Căng thẳng việc làm ở Trung Quốc
--  El monólogo del Ourense CF anula al Valladolid Promesas en media hora (4-1)
--  El COB perdió el pulso de su dura pugna en el último cuarto del Pisuerga (81-71)
--  Dieci anni per il modello virtuoso del riuso L’evento al Mercatino
--  Borgofranco, dopo i furti arrivano 20 telecamere in più
--  L’arte contemporanea di Bonotti parla alle donne delle donne
--  Bionaz confermato per la quinta volta alla guida degli alpini
--  QUYSC researchers develop innovative theoretical model
+-  Série A2 do Paulista define os últimos classificados e os confrontos das quartas
+-  Municipios de Chalatenango registran mayores temperaturas este sábado
+-  Lazio, Sarri sonrası galibiyet hasretine son verdi
+-  Av mevsimi!
+-  Kartal'ın ayağı kaydı
+-  Kırık
+-  Şanlıurfa'da Yeniden Refah Partisi'nde istifa depremi: AK Parti'ye geçtiler
+-  13:30 JUVENTUS – GENOA
+-  Pega par de cuadrangulares: Randy Arozarena luce su poder con Rays de Tampa Bay
+-  Ceca nikada bolje nije izgledala: U brutalnoj haljini...dekolte "puca", a šlic do kuka otkriva mnogo toga
