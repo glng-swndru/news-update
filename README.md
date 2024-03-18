@@ -1,11 +1,11 @@
 # Latest News
--  Dolar haftaya rekorla başladı
--  快訊／選訓委員火速通過 曾豪駒接任12強總教練
--  Харин ждет интенсивной игры против Сербии и Парагвая
--  Ünlü karikatüristten seçimi kazanan Putin'e destek
--  황대헌 반칙에 메달도 국대도 놓친 박지원…“이쯤 되면 고의적” 네티즌 비난
--  뇌경색 아내 10년 간 간호하다…생활고에 아내 살해한 남편 자수
--  Anupamaa to Jhanak: Take traditional style inspiration from Top TV serial bahus
--  Dos eclipses, dos lluvias de estrellas y tres lunas llenas: todos los eventos astronómicos de esta primavera
--  People’s Pharmacy: Is this a little-known miracle cure for warts?
--  5 Tipe Kepribadian Kucing yang Perlu Anda Ketahui
+-  Fabiana Justus volta a hospital para novo ciclo de tratamento contra a leucemia
+-  "Attaccare l'Europa? Putin lo farà": l'analista evoca lo scenario da incubo
+-  In Italia il congedo di paternità è più che triplicato: chi ne usufruisce di più vive al Nord
+-  I VERI DITTATORI LI RICONOSCI DAGLI AMICI – DOPO LA VITTORIA ALLE ELEZIONI FARSA DI PUTIN, SONO CORSI A FARE LE CONGRATULAZIONI A “MAD VLAD” SOLO I LEADER AUTORITARI O CAPETTI DELLE REPUBBLICHE DELLE BANANE: I PIÙ LESTI SONO STATI IL VASSALLO LUKASHENKO E L’INCUBO DEI PARRUCCHIERI ASIATICI, IL NORD COREANO KIM JONG-UN – BOLIVIA, CUBA, TAGIKISTAN: I PAESI CHE HANNO FATTO I COMPLIMENTI A PUTIN, FINO ALL’EX PRESIDENTE RUSSO, MEDVEDEV: “VITTORIA CLAMOROSA” (SE LO DICE LUI…)
+-  Япония отправит на Луну двух астронавтов
+-  Il barbecue finisce con una macchina incendiata
+-  BILLA отчита дефлация при продажните си цени
+-  MSI expects double-digit increases in motherboards, graphics cards, and notebook shipments
+-  Οι επιστήμονες έδωσαν την απάντηση: Το διαστρικό σήμα που για χρόνια θεωρούνταν απόδειξη εξωγήινης ζωής ήταν πιθανότατα ένα φορτηγό!
+-  Koç Holding Hisse Değerlendirmesi
