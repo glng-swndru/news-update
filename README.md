@@ -1,11 +1,11 @@
 # Latest News
--  Nova Iguaçu vence o Vasco e pega o Flamengo na 1° final da sua história
--  大規模再編のSAP、AI強化の前に「クラウドERP」は売れているのか？
--  今夜最終回の「君が心をくれたから」永野芽郁、笑顔でクランクアップ「この役と向き合えたことを自信に変えたい」 - スポーツ報知
--  ختام دوري الطائرة «الجمعة» المقبل
--  Shawnee farmer has been waiting months for city to fix giant hole in his land
--  Labour to create returns-and-enforcement unit to remove failed asylum seekers
--  Harry Kane to report for England duty after Bayern Munich injury scare in major pre-Euro 2024 boost
--  Everyone must get behind the Prime Minister's plan, says James Daly
--  ‘ಲೋಕಸಭೆ ಚುನಾವಣೆ: ಪರ್ಯಾಯದತ್ತ ಯೋಚಿಸಿ’
--  ビットコインと金がともに高騰しているのは偶然…まったく違う理由がある
+-  Campagne électorale à Tamba et Kolda : Khalifa Sall compte favoriser une coopération avec les pays frontaliers
+-  Подменят мантинели по магистрала "Тракия", шофирайте разумно
+-  Customs seizes 2.7 kg gold worth 1.5 cr in 5 cases
+-  В Крыму увеличат количество пунктов досмотра на Крымском мосту во избежание летних пробок
+-  North Korea launches apparent ballistic missile as top U.S. diplomat visits Seoul
+-  Pistocchi: "Meret bravissimo. Proteste Inter per due interventi del Napoli"
+-  裏金問題 説明責任「果たされていない」84％ ANN世論調査(ABEMA TIMES)
+-  羽球》奧運積分榜遭山口茜超車 戴資穎世界第3岌岌可危
+-  Hétfői sportműsor: Valter Attila a katalán körversenyen
+-  تشافي بالعلامة الكاملة أمام سيميوني
