@@ -1,11 +1,11 @@
 # Latest News
--  Người dân tự ý đặt biển cấm dừng, đỗ xe để 'dành lại lòng đường, vỉa hè' ở Hà Nội
--  안성 스티로폼 제조공장서 지게차 운전자 숨진 채 발견
--  Teacher Shot Dead By Cop: শিক্ষকের সঙ্গে বচসা! গুলি করে খুন করল পুলিশ কনস্টেবল
--  Черноморец е новият носител на Купата на България по баскетбол
--  ‘노무현 비하 논란’ 양문석, 盧 묘역 찾았지만… 자질 논란은 계속
--  Арести след шоуто на „Олд Трафорд“ - Труд
--  Более 2,6 млн человек победили в розыгрышах «Миллион призов» в Москве
--  自転車の小学生 はねられ重体
--  "Prizma" kraujas malā – čempionu pirmā iespēja pielikt sērijai punktu
--  Tesla nostaa Model Y:n hintaa useissa Euroopan maissa
+-  Radevormwald: Verfahren um drei Gramm Cannabis eingestellt
+-  Guide d'achat : Quels sont les meilleurs smartphones compatibles avec le wifi 7 ?
+-  GIS ostrzega: wirus zapalenia wątroby i pałeczki Salmonelli w polskich supermarketach. Sprawdź, czy kupowałeś ostatnio te owoce i sałatkę?
+-  Βροχές και καταιγίδες στο «μενού» του καιρού το επόμενο τριήμερο
+-  La campagne présidentielle vers une semaine décisive : Où en est-on avec le processus et les tendances qui se dessinent… ?
+-  （影）烏軍反擊了! 遭無人機突襲 莫斯科3機場全關閉 多處煉油廠爆炸
+-  Türk somonu ve çayına tanıtım desteği
+-  Conai: “Nel 2024 il riciclo sfiorerà il 75%”. Capuano: “Obiettivo superato con sei anni di anticipo”
+-  Pilot dan Kopilot Tertidur, Pakar: Pengaruhi Kepercayaan Maskapai Batik Air
+-  İki araç kafa kafaya çarpıştı: 1 kişi hayatını kaybetti, 3 yaralı
