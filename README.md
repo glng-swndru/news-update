@@ -1,11 +1,11 @@
 # Latest News
--  வெளிநாட்டு மாணவர்கள் மீது குஜராத்தில் தாக்குதல்
--  Rahu Kaal and other inauspicious timings (18 March 2024): Nashik, Pune, Surat and more
--  O transparentima Porta koji su osvanuli u subotu na sjeveru Poljuda oglasio se i slavni trener
--  Ρωσία: Η Γιούλια Ναβάλναγια έγραψε "Ναβάλνι" στο ψηφοδέλτιό της
--  Po takšni drami je padla odločitev o potniku na OI
--  Watch unseen moment Greg Rutherford suffered freak Dancing on Ice accident
--  Putin all'87,8% dei voti secondo i primi exit poll
--  鉄人・遠藤航がフル出場のリバプール、マンUとの死闘を落としてFAカップ敗退。クロップ最終年で４冠の夢が潰える - サッカーダイジェストWeb
--  Loriol-du-Comtat. Première départementale pour la gestion de proximité des biodéchets
--  Sevinc həyat yoldaşı ilə
+-  Expert: Atacul cu dronă din Transnistria, un trucaj. ”Este o operațiune mai largă a FSB” VIDEO
+-  "الاونروا": وصول المساعدات إلى غزة "مسألة حياة أو موت"
+-  Autorităţile de la Chişinău neagă că ar fi avut loc un atac asupra regiunii transnistrene. „Provoacă frică şi panică"
+-  Sergi García, con capa de héroe en su partido 200
+-  ANKETA Tko će biti prvak HNL-a? Ovo je raspored Rijeke, Hajduka i Dinama do kraja prvenstva...
+-  Russia election: Putin wins with 88% support, exit poll says
+-  Poľský turista spadol z hrebeňa vo Veľkej Fatre, pomáhali aj leteckí záchranári
+-  U Zagrebu danas radi samo jedan veći šoping-centar. Stvorila se gužva
+-  अहमदनगर दक्षिणेतून डॉ. अशोक सोनवणे लढणार लोकसभा
+-  Ясни са полуфиналите във ФА Къп
