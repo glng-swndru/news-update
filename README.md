@@ -1,11 +1,11 @@
 # Latest News
--  Meghan Markle 'not cashing in on Royal title' with new lifestyle brand as duchess defended
--  Sokak ortasında acımasızca katledildi! Vahşetin detayları ortaya çıktı
--  Lilja Rannveig á von á sínu þriðja barni
--  „Honda“ ir „Nissan“ yra pasirengusios suvienyti jėgas ir kurti elektrines transporto ...
--  Friedrich Merz fordert Gespräche über europäischen Nuklearschirm
--  In Memoriam | Geen 60 geworden, maar voor 80 jaar geleefd. Overal was wel iemand die Klaas Ebeltjes (1963-2023) kende
--  שר הביטחון גלנט: "בזכות הפעולה הקרקעית הגענו למידע שהביא לסיכולים ולהצלחות"
--  Barrondo brilla en Europa
--  С нетерпением ждем, когда Азербайджан примет COP29 - Йенс Столтенберг
--  Netanyahu, 'prima sgombero civili poi operazione Rafah'
+-  'BBB 24': Produção muda Monstro para evitar que participantes passem mal
+-  Piksi na slatkim mukama, još jedan Srbin rešeta kao u transu! Ratkov novim golom raspametio Evropu (VIDEO)
+-  MULTILIVE JPL. Cercle nu al op weg naar zege én staat virtueel in play-off 1, KV Mechelen valt uit top zes
+-  İsmail Kartal'a yabancı cisim isabet etti!
+-  Iivo Niskanen löi hanskat tiskiin – Harri Kirvesniemi ihmettelee erikoista tilannetta: ”Jotain sellaista siellä nyt on”
+-  'BBB 24': Produção muda Monstro para evitar que participantes passem mal
+-  Стала известна оценка Яремчука за проигранный матч Валенсии в Ла Лиге
+-  Bauluðu á Sterling - „Þurfum að styðja hann“
+-  Tele-Taxi y Ayuntamiento coordinan el dispositivo para la Semana Santa
+-  ஏர் இந்தியாவில் 180 பணியாளர்கள் நீக்கம்; என்ன காரணம்
