@@ -1,11 +1,11 @@
 # Latest News
--  Radevormwald: Verfahren um drei Gramm Cannabis eingestellt
--  Guide d'achat : Quels sont les meilleurs smartphones compatibles avec le wifi 7 ?
--  GIS ostrzega: wirus zapalenia wątroby i pałeczki Salmonelli w polskich supermarketach. Sprawdź, czy kupowałeś ostatnio te owoce i sałatkę?
--  Βροχές και καταιγίδες στο «μενού» του καιρού το επόμενο τριήμερο
--  La campagne présidentielle vers une semaine décisive : Où en est-on avec le processus et les tendances qui se dessinent… ?
--  （影）烏軍反擊了! 遭無人機突襲 莫斯科3機場全關閉 多處煉油廠爆炸
--  Türk somonu ve çayına tanıtım desteği
--  Conai: “Nel 2024 il riciclo sfiorerà il 75%”. Capuano: “Obiettivo superato con sei anni di anticipo”
--  Pilot dan Kopilot Tertidur, Pakar: Pengaruhi Kepercayaan Maskapai Batik Air
--  İki araç kafa kafaya çarpıştı: 1 kişi hayatını kaybetti, 3 yaralı
+-  日鉄呉の従業員７８６人が再就職 ３千人のうち半数が配置転換や離職対象 広島労働局
+-  Следователи проводят проверку по случаю гибели при пожаре двух человек в Червенском районе
+-  1 acción a comprar y otra a vender esta semana: Nvidia y Nike
+-  Прокуратурата бездейства срещу опасна ескалация на фашистка пропаганда
+-  Which seat is safest on an aeroplane and where should you sit in case of emergency?
+-  Todos os concertos marcados para 2024 em Portugal
+-  QuickCheck: Did two traders in Kedah almost scuffle with enforcement officers?
+-  Câte calorii trebuie să consumăm zilnic în funcție de sex, vârstă și activitate. Care sunt sfaturile nutriționiștilor
+-  POTICAJI Više od 16 milijuna KM izdvaja se za energetsku efikasnost u FBiH
+-  Califican de delictivo el pedido de Milei y Espert para que los bonaerenses no paguen el aumento de impuestos
