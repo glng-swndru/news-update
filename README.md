@@ -1,11 +1,11 @@
 # Latest News
--  日鉄呉の従業員７８６人が再就職 ３千人のうち半数が配置転換や離職対象 広島労働局
--  Следователи проводят проверку по случаю гибели при пожаре двух человек в Червенском районе
--  1 acción a comprar y otra a vender esta semana: Nvidia y Nike
--  Прокуратурата бездейства срещу опасна ескалация на фашистка пропаганда
--  Which seat is safest on an aeroplane and where should you sit in case of emergency?
--  Todos os concertos marcados para 2024 em Portugal
--  QuickCheck: Did two traders in Kedah almost scuffle with enforcement officers?
--  Câte calorii trebuie să consumăm zilnic în funcție de sex, vârstă și activitate. Care sunt sfaturile nutriționiștilor
--  POTICAJI Više od 16 milijuna KM izdvaja se za energetsku efikasnost u FBiH
--  Califican de delictivo el pedido de Milei y Espert para que los bonaerenses no paguen el aumento de impuestos
+-  "21-8, ma che ci va a fare?!": Daniele travolto dopo l'ultimo pacco, un caso ad Affari Tuoi
+-  Woman spends over Rs 10 lakh to look like a cat; says, ‘never felt more myself’
+-  Путин встретится с главами фракций в Государственной Думе
+-  В Приднестровье возбудили уголовное дело после удара по военному вертолету
+-  Một công ty tăng trưởng nhanh hơn cả Nvidia, vốn hóa tăng 12 lần lên 60 tỷ USD chỉ sau 1 năm AI bùng nổ
+-  BVB-Rätsel um Gregor Kobel: Entscheidung für die Länderspielphase gefallen
+-  Първан Симеонов: Борисов с хиперход, нищо непревдидено
+-  "Четко отображать жизнь района, его развитие во всех сферах". Крупко о роли региональных СМИ
+-  Holi 2024: Colourful Holi images and holiday messages for students from teachers
+-  Nezavisna platforma Sjever predstavila program: 'Očekujemo tri mandata'
