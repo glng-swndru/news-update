@@ -1,11 +1,11 @@
 # Latest News
--  Nếu chậm làm việc này trong năm 2024, người dân sẽ bị phạt rất nặng, cần phải chú ý
--  Ariana Grande scores another big achievement on top charts
--  Xe điện VinFast VF 9 'lướt' rớt giá ngang ngửa một chiếc Honda BR-V chỉ sau 1 năm lăn bánh
--  Industrial real estate emerges out of storm
--  Bihar: Police arrest 313 for Bihar teacher recruitment exam paper leak
--  股市熱潮席捲房市 李同榮：「科學園區」效應有過度集中風險
--  Putin zafer sonrası halka seslendi: Tüm Rus halkına teşekkür ediyorum
--  DOAMU Jilid 2, Ini Kata Partai Gerindra Papua Barat
--  양문석, 봉하 찾아 "유가족과 노 전 대통령 그리워한 국민께 사죄"
--  苑裡市場5年前大火燒光！白沙屯媽祖鑾轎「開進重建工地」賜福
+-  Perfekte Eltern: Warum diese Idealbild oft unerreicht bleibt
+-  "Untold Herstory": Gripping Film Uncovers the Unsung Heroines of Taiwan's Democratic Struggle
+-  Putin gana las elecciones en Rusia con más del 87% de los votos
+-  "Untold Herstory": Gripping Film Uncovers the Unsung Heroines of Taiwan's Democratic Struggle
+-  Chán phố thị, tăng ca 22h đêm không hết việc, 6 thanh niên bỏ việc lương cao lên núi dựng "biệt phủ": Sống thong thả, có lao động không lo thiếu tiền
+-  China's retail sales grow 5.5% in Jan-Feb period
+-  藤井聡太棋王と大谷翔平投手に共通点！？ベテラン棋士「センターフライかなと思ったら…」の例えにファンも首肯「なるほど」「野球星人と将棋星人」(ABEMA TIMES)
+-  ১৫ ঘণ্টা পর ঢাকা-চট্টগ্রাম রুটে ট্রেন চলাচল স্বাভাবিক
+-  Giants star Jesse Hogan relishing his AFL resurgence
+-  Giants star Jesse Hogan relishing his AFL resurgence
