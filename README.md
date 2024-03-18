@@ -1,11 +1,11 @@
 # Latest News
--  岩手県全域に暴風雪警報 ＪＲで運休も 遠野市で住宅のトタン屋根はがれる被害
--  「マイナス金利」解除検討へ 日銀が金融政策決定会合 春闘では高水準の賃上げ率
--  Police survey for survivors of rape and sexual assault
--  Les paiements sans numéraires bondissent de plus de 63%
--  拡声器を使って騒ぎ職員の業務を妨害した疑い 近畿大学・19歳大学生が書類送検 大阪府警
--  Jhanak Serial Spoiler: Aniruddha gets jealous about Jhanak's second marriage; Arshi plans to expose latter
--  Vượt qua Freiburg, Bayer Leverkusen thiết lập kỷ lục lịch sử
--  تعرف على نص كلمة رئيس الإتحاد السوداني في الذكري السادسة لرحيل شروني
--  Đánh bại Medvedev, Alcaraz bảo vệ thành công chức vô địch ở Indian Wellls, lập cột mốc đặc biệt
--  Uber to pay $178 million in Australia taxi class action settlement - Reuters
+-  センバツ高校野球開会式 別海と北海の選手たちも力強く行進｜NHK 北海道のニュース - nhk.or.jp
+-  Ông Phạm Nhật Vượng lập công ty phát triển trạm sạc toàn cầu, cam kết đổ 10.000 tỷ trong 2 năm tới
+-  안성 스티로폼 공장서 40대 작업자 숨진 채 발견
+-  สถานการณ์ไฟป่าของแม่ฮ่องสอน หนักขึ้น จนต้องเสริมชุดเหยี่ยวไฟ
+-  Giá vàng sáng 18/3 rơi mốc 82 triệu đồng/lượng
+-  Fortnite Myths and Mortals Hades Cinematic Short
+-  Lewis Hamilton’s $11 Million “Terrible to Drive” Supercar Is Lando Norris’ Dream Car
+-  Cận cảnh căn biệt thự cổ 700 tỷ đồng mà Trương Mỹ Lan xin không kê biên
+-  Inilah 120 Caleg DPRD Provinsi Jateng yang Melenggang ke Gedung Berlian, Perolehan Jumlah Kursi
+-  Gobierno dominicano evacúa a 27 de sus ciudadanos desde Haití
