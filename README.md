@@ -1,11 +1,11 @@
 # Latest News
--  Ramazan geldi, balık tezgahları boş kaldı
--  Търг за разпределение на офшорен вятърен капацитет в Норвегия е заплашен от провал
--  La résidence-hôtel "Le Tropique" de Juan-les-Pins a trouvé preneur, voici ce que va devenir le bâtiment
--  Muş Valisi Çakır'dan 18 Mart Şehitleri Anma Günü ve Çanakkale Deniz Zaferi mesajı
--  Ish-banori i Big Brother VIP i propozon për martesë partneres së tij në mes të emisionit
--  Define avcıları hayalet köyü talan etti! 400 yıllık köy bu hale geldi...
--  Salvador Illa allana el camino a Puigdemont y su regreso: "No alterará en nada"
--  放火で祖父殺害の罪に問われた孫（24）に懲役１８年を求刑「暴言吐かれ怒り抱えていた」検察
--  放火で祖父殺害の罪に問われた孫（24）に懲役１８年を求刑「暴言吐かれ怒り抱えていた」検察
--  [글로벌D리포트] 아이슬란드 화산 또 폭발…관광지 블루라군 폐쇄
+-  Tütüncü: "Biz Antalya'ya sevdalıyız"
+-  Bežanje pred čebelami, dvomi, a na koncu … #video
+-  Criscitiello esplode: "Un disastro completo. Il pesce puzza dalla testa"
+-  Marco Polo: The travel writer who shocked medieval Europe
+-  Feuerwehr findet Leiche in brennender Wohnung
+-  Cara Berkomunikasi dengan Kucing yang Perlu Anda Ketahui
+-  Линейка се обърна след катастрофа край "Опълченска"
+-  NX Belgium Wins Logistics Service Provider Award at 17th Brussels Airport Awards
+-  U soudu v Plzni se zpovídá Ukrajinec ze znásilnění a pokusu o vraždu školačky
+-  Mattarella,la sfida del Covid vinta con lo sforzo di tutti
