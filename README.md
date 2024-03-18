@@ -1,11 +1,11 @@
 # Latest News
--  Атанас Караиванов: Прехвърлянето на администрирането на Първа и Втора лига ще се случи до 2 години - Труд
--  DRAMA NA ALKARAZOVOJ KONFERENCIJI! Uključio se ALARM, svi su morali da NAPUSTE ZGRADU - Španac se uplašio, pa krenuo da se šali!
--  Eksperti: Aktuālās tendences grīdas segumiem, ko noteikti vajadzētu ņemt vērā izvēloties
--  Céline Dion will wieder auf der Bühne stehen
--  DIP zaprimio prvu kandidaturu za izbore
--  Habib Touhami: Où allons-nous ?
--  Wraca VAT na żywność. Tuż po świętach niektóre sklepy mogą być zamknięte
--  “더 어려운 이웃 위해…” 70대 어르신이 건넨 70만원 봉투
--  Baby ciclista travolto da Suv ad Ameglia, gravissimo in ospedale
--  Yatırımcıları kuyumcuların önünde kuyruk olacak! Hazır düşüşteyken almak isteyenlere müjde: İşte 18 Mart altın fiyatları
+-  Ramazan geldi, balık tezgahları boş kaldı
+-  Търг за разпределение на офшорен вятърен капацитет в Норвегия е заплашен от провал
+-  La résidence-hôtel "Le Tropique" de Juan-les-Pins a trouvé preneur, voici ce que va devenir le bâtiment
+-  Muş Valisi Çakır'dan 18 Mart Şehitleri Anma Günü ve Çanakkale Deniz Zaferi mesajı
+-  Ish-banori i Big Brother VIP i propozon për martesë partneres së tij në mes të emisionit
+-  Define avcıları hayalet köyü talan etti! 400 yıllık köy bu hale geldi...
+-  Salvador Illa allana el camino a Puigdemont y su regreso: "No alterará en nada"
+-  放火で祖父殺害の罪に問われた孫（24）に懲役１８年を求刑「暴言吐かれ怒り抱えていた」検察
+-  放火で祖父殺害の罪に問われた孫（24）に懲役１８年を求刑「暴言吐かれ怒り抱えていた」検察
+-  [글로벌D리포트] 아이슬란드 화산 또 폭발…관광지 블루라군 폐쇄
