@@ -1,11 +1,11 @@
 # Latest News
--  Student medicine Leo nadigrao svih petero lovaca i osvojio je 20.000 eura u 'Superpotjeri'
--  Fußball: So lief der Bezirksliga-Spieltag
--  Fenerbahçe, 3 yıl sonra Trabzon'da kazandı
--  Фанаты «Трабзонспора» напали на футболистов «Фенербахче» после матча чемпионата Турции
--  Kelly Clarkson sues ex-husband Brandon again after winning different lawsuit last year
--  الكاف: إما وحدة صف وطني موحدة لمواجهة الانقلابيين وإما بات استعادة الدولة ضربًا من المستحيل
--  Bayraktar AKINCI’dan İHA-230 ile çifte atışla 12'den vurdu
--  FAO Food Price Index declines further in February
--  Swiatek trionfa a Indian Wells: 19° titolo in carriera, Sakkari ko in due set
--  Arnulf delte dramatisk historie: – Etter hvert forsto jeg alvoret
+-  Championship: Leeds á toppinn
+-  Руски ракетни удари в Украйна, има ранени и щети
+-  Varadkar: Sinn Fein-led government ‘a high risk’, but powers limited at Stormont
+-  برعاية الهلال الأحمر الإماراتي.. تدشين مأدبة إفطار الصائم في مدينة جعار محافظة أبين
+-  Slabiji zemljotres kod Nikšića, treslo i u BiH
+-  İsmail Kartal'dan Trabzonspor maçında yaşanan olaylara tepki: “Oğlumun kafası şişmiş, çocuğa vurmuşlar”
+-  Bakan Yerlikaya açıkladı! Soruşturma başlatıldı
+-  Morreu Nuno Júdice, "um dos mais prolíficos poetas". Marcelo dá "pesar"
+-  Hungria-Portugal, em direto
+-  “Hoje, está aqui tanta gente que nem se pode andar”: bastaram 27 graus para encher a praia de Santo Amaro de Oeiras
