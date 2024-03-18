@@ -1,11 +1,11 @@
 # Latest News
--  Putin prezydentem. Mocny komunikat polskiego MSZ ws. wyborów w Rosji. "To urąga wszelkim standardom"
--  МЕДИУМИТЕ СЕ ПОДГОТВУВААТ ЗА УБИСТВО НА ВУЧИЌ, ИСТОТО МУ ГО НАПРАВИЈА И НА ЏИНЏИЌ: Шокантно тврдење на професорот Вулетиќ
--  Нападник Мілана Жіру має намір продовжити кар'єру в МЛС
--  BEBA ROĐENA SA REPOM OD 10 CENTIMETARA: Snimak se širi internetom i šokira svet! Evo šta kažu lekari o ovom fenomenu (VIDEO)
--  Mandorlo in fiore, Tempio d’oro alla Colombia
--  Hokejisté Třince a Litvínova vstoupili vítězně do čtvrtfinále play off
--  Somalia supports UN resolution to combat rising Islamophobia globally
--  Five homicides within 24 hours in Birmingham
--  "On habitait une maison à Neuilly" : Michel Serrault a fait vivre un enfer à ses voisins, sa fille Nathalie raconte
--  Dominacija plivača Sport timea na Zimskom državnom prvenstvu BiH
+-  وزير الصحة يلتقي المدير التنفيذي للأكاديمية الدولية للصحة المجتمعية
+-  Caught on camera: Turkey hunter's startling encounter with Florida panther
+-  Stiftung Warentest: Die beste Zahnpasta
+-  Володин заявил, что результат голосования на выборах превзошел все ожидания
+-  El Palmer Mallorca cae y el Fibwi podría descenderlo en el derbi
+-  Caught on camera: Turkey hunter's startling encounter with Florida panther
+-  Montrealers revel in St. Patrick's Day fun at 199th parade - CTV News Montreal
+-  Azərbaycan karateçisi Premyer Liqa turnirində üçüncü yeri tutub
+-  НА ЖИВО: Атлетико Мадрид - Барселона 0:0
+-  Кметът на София и "Боец" имат различни версии за протест пред посолството на Москва
