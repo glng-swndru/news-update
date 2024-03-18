@@ -1,11 +1,11 @@
 # Latest News
--  與비례 1번 ‘장애인 변호사’ 최보윤...4번 진종오, 8번 인요한
--  Apple: Tim Cooks Äußerungen kosten Unternehmen fast eine halbe Milliarde Dollar
--  3 ngôi sao bóng chuyền nữ Việt Nam mỗi người nhận thưởng trị giá gần 1 tỷ, hạnh phúc viên mãn trong đời tư
--  Ceny ropy v pondelok ráno vzrástli
--  Кирил Петков: Прекарах нощта с надежда, отстъпихме дори Мария Габриел да е премиер и външен министър - Труд
--  Zar je i desetero profesora prava 'instruirano od Plenkovića'!?
--  Daniele Capezzone: gli anti-semiti padroni delle università
--  Tổng hợp những loại hình thẩm mỹ vừa túi tiền, đủ để thay đổi diện mạo cho chị em
--  Loài cá nhìn như cây nấm giá hơn 2 tỷ đồng, đại gia giấu tên xuống tiền mua về làm cá cảnh
--  ĐT Việt Nam nhận 'doping' lớn trước ngày sang Indonesia
+-  Dolar haftaya rekorla başladı
+-  快訊／選訓委員火速通過 曾豪駒接任12強總教練
+-  Харин ждет интенсивной игры против Сербии и Парагвая
+-  Ünlü karikatüristten seçimi kazanan Putin'e destek
+-  황대헌 반칙에 메달도 국대도 놓친 박지원…“이쯤 되면 고의적” 네티즌 비난
+-  뇌경색 아내 10년 간 간호하다…생활고에 아내 살해한 남편 자수
+-  Anupamaa to Jhanak: Take traditional style inspiration from Top TV serial bahus
+-  Dos eclipses, dos lluvias de estrellas y tres lunas llenas: todos los eventos astronómicos de esta primavera
+-  People’s Pharmacy: Is this a little-known miracle cure for warts?
+-  5 Tipe Kepribadian Kucing yang Perlu Anda Ketahui
