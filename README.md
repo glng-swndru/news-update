@@ -1,11 +1,11 @@
 # Latest News
--  "21-8, ma che ci va a fare?!": Daniele travolto dopo l'ultimo pacco, un caso ad Affari Tuoi
--  Woman spends over Rs 10 lakh to look like a cat; says, ‘never felt more myself’
--  Путин встретится с главами фракций в Государственной Думе
--  В Приднестровье возбудили уголовное дело после удара по военному вертолету
--  Một công ty tăng trưởng nhanh hơn cả Nvidia, vốn hóa tăng 12 lần lên 60 tỷ USD chỉ sau 1 năm AI bùng nổ
--  BVB-Rätsel um Gregor Kobel: Entscheidung für die Länderspielphase gefallen
--  Първан Симеонов: Борисов с хиперход, нищо непревдидено
--  "Четко отображать жизнь района, его развитие во всех сферах". Крупко о роли региональных СМИ
--  Holi 2024: Colourful Holi images and holiday messages for students from teachers
--  Nezavisna platforma Sjever predstavila program: 'Očekujemo tri mandata'
+-  Les sangliers pullulent aux portes de nos villes
+-  La famiglia trevigiana: «Per fare la spesa oggi bisogna essere contabili. I negozi di quartiere sono meglio dell’iper»
+-  Esports Caster Ocean Sharma Appointed as National Presenter for IPL 2024; a First in Indian Esports and Sports Broadcasting History
+-  Ne stišavaju se reakcije nakon Putinove pobjede. Zelenski: 'On je diktator pijan od vlasti...'
+-  Alzheimer, un balzo nella diagnosi: l’ospedale San Martino e l’Università di Genova scrivono le nuove linee guida
+-  U sklopu donacijskog natječaja Ploče i Luka ZAjedno - za ljepši i bolji grad odabrano 15 projekata
+-  Les sangliers pullulent aux portes de nos villes
+-  Zaferin coşkusu Muratpaşa sokaklarını sardı
+-  Bakan Bolat: "AK Parti döneminde İzmir'e 455 milyar liralık kamu yatırımı yapıldı"
+-  Amazon-Angebot wird bald eingestellt: Wer jetzt nicht reagiert, riskiert Verluste
