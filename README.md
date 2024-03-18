@@ -1,11 +1,11 @@
 # Latest News
--  Fabiana Justus volta a hospital para novo ciclo de tratamento contra a leucemia
--  "Attaccare l'Europa? Putin lo farà": l'analista evoca lo scenario da incubo
--  In Italia il congedo di paternità è più che triplicato: chi ne usufruisce di più vive al Nord
--  I VERI DITTATORI LI RICONOSCI DAGLI AMICI – DOPO LA VITTORIA ALLE ELEZIONI FARSA DI PUTIN, SONO CORSI A FARE LE CONGRATULAZIONI A “MAD VLAD” SOLO I LEADER AUTORITARI O CAPETTI DELLE REPUBBLICHE DELLE BANANE: I PIÙ LESTI SONO STATI IL VASSALLO LUKASHENKO E L’INCUBO DEI PARRUCCHIERI ASIATICI, IL NORD COREANO KIM JONG-UN – BOLIVIA, CUBA, TAGIKISTAN: I PAESI CHE HANNO FATTO I COMPLIMENTI A PUTIN, FINO ALL’EX PRESIDENTE RUSSO, MEDVEDEV: “VITTORIA CLAMOROSA” (SE LO DICE LUI…)
--  Япония отправит на Луну двух астронавтов
--  Il barbecue finisce con una macchina incendiata
--  BILLA отчита дефлация при продажните си цени
--  MSI expects double-digit increases in motherboards, graphics cards, and notebook shipments
--  Οι επιστήμονες έδωσαν την απάντηση: Το διαστρικό σήμα που για χρόνια θεωρούνταν απόδειξη εξωγήινης ζωής ήταν πιθανότατα ένα φορτηγό!
--  Koç Holding Hisse Değerlendirmesi
+-  Borsa: Asia chiude brillante, attesa per i tassi, Tokyo +2,67%
+-  Как в России прошло голосование на выборах президента. Фоторепортаж
+-  DIÁR: Prehľad udalostí na pondelok 18. marca (podcast a video)
+-  Bilecik'te badem ağaçları çiçek açtı
+-  രാഷ്ട്രപതിക്ക് രാജി സമർപ്പിച്ചു:തെരഞ്ഞെടുപ്പിൽ മത്സരിക്കാൻ തെലുങ്കാന ഗവർണർ
+-  Sve više ljudi se žali na misteriozni virus, ovo su simptomi
+-  Code per i battelli e ore di attesa per il bus, l’invasione dei turisti sul lago di Como
+-  Rapport: Sony sägs ha pausat PSVR2-produktionen
+-  Kayseri’de 7 şahsa terörden yasal işlem yapıldı!
+-  Global and China Automotive Memory Chip and Storage Industry Report 2024: UFS 4.0, PCIe SSD for Central Computing, CXL Memory Expansion Technology
