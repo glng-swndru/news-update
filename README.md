@@ -1,11 +1,11 @@
 # Latest News
--  Snag Some Costco Gift Cards When Buying a Costco Membership - CNET
--  Cerita Indra Birowo Syuting Series Pay Later Bareng Fajar Sadboy
--  Orosz-NATO háború – elszálltak az indulatok, világégésre kell készülni?
--  Clip 16 giây đau xót: Nữ sinh Bắc Giang băng qua đường ray dù rào chắn đã hạ, bị tàu đâm tử vong
--  Mehr als 600 Laufbegeisterte gehen in Pleidelsheim auf die Strecke
--  120 boenden står tomma: ”Måste vara startklara att avveckla”
--  פורסמו ההרכבים לרבע גמר הגביע האנגלי בין ליברפול למנצ'סטר יונייטד
--  [고양이 눈]내 마음이 보이니
--  Ministerul de Externe din România „condamnă ferm deschiderea secțiilor de votare pentru alegerile rusești în Transnistria”
--  Montar toros, atracción del festival folclórico de La Mitra
+-  Biden se lanza contra DeSantis y Trump: “Demasiado anciano y mentalmente incompetente”
+-  Жерар Пике: «Игра «Барселоны» – пример для мира: она выигрывает так, что люди получают удовольствие. «Реалу» этого никогда не достичь»
+-  ExxonMobil descubre nuevas reservas de petróleo en Guyana en la zona de disputa con Venezuela
+-  حمله نتانیاهو به بایدن ؛ با این سرعت ...
+-  El Barça es posa les botes en un horari de calçotada
+-  Destici, Mehmet Şimşek'e seslendi: 'Vergiyi kaldır'
+-  Emraan Hashmi dishes on Bollywood struggles and upcoming films
+-  34:31 gegen Österreich: Deutsche Handballer qualifizieren sich für Olympia – Gislason bleibt Trainer
+-  Zár alá vétel bírói engedély nélküli – új büntetőeljárási szabályok léptek hatályba
+-  Jabanquijija, la maleku que sobrevivió a un hombre violento para ser celebrada en el Teatro Nacional
