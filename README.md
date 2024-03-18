@@ -1,11 +1,11 @@
 # Latest News
--  Κατατέθηκε η πρώτη αγωγή για το Ασημακοπούλου leaks
--  Ohne Reservierung geht nichts: Weltweites Restaurant-Phänomen kommt nach München
--  В Вооружённых силах РФ явка на президентских выборах составила 99,8%
--  "الانوار" الفائز على "البوشرية" أكمل عقد نصف نهائي بطولة الطائرة
--  Dostali wizy, ale nie przyjechali. Poseł KO: To mógł być kanał przerzutowy
--  PM trocou tiros com suspeitos de morte em tabacaria
--  Entscheidung steht bevor: Saar-Polizisten fordern von Anke Rehlinger Stopp des Cannabis-Gesetzes
--  انضمام محمد شريف مهاجم الخليج لقائمة منتخب مصر
--  Yunanistan Başbakanı Miçotakis: Gazze'deki durumdan derin endişe duyuyorum
--  "Silahlı Qüvvələrimizdə aparılan islahatlar yaxşı nəticələr vermişdir"
+-  La Roma vince a fatica contro il Sassuolo: il commento di Pistocchi
+-  【CDOの考え】「情報が古い人」にならないための習慣 - CDO思考
+-  Grillsaison eröffnet: Das Reich des Bratwurstkönigs schrumpft
+-  Оккупанты нанесли ракетный удар по Конотопу: повреждены объекты гражданской инфраструктуры (обновлено)
+-  Regionali, intesa Pd-M5s-Avs: è Marrese il candidato in Basilicata
+-  La Real Sociedad perdona en la primera parte y acaba pidiendo la hora
+-  La zona baja de la tabla de Primera RFEF, en llamas
+-  La zona baja de la tabla de Primera RFEF, en llamas
+-  Shorttrack-WM: Lisa Eckstein als 17. beste Deutsche
+-  Putin seguirá en el Kremlin tras lograr el 87,5% de los votos
