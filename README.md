@@ -1,11 +1,11 @@
 # Latest News
--  민주당 "이종섭, 정당한 인사? 오만 · 불통의 마이웨이 선언"
--  Sfântul Patrick, sărbătorit și la București. Românii și turiștii străini s-au distrat pe muzică tradițională irlandeză
--  A beteg ország megkapja a diagnózist, egyelőre nem vágnak
--  Счупиха автобус на градския транспорт в Бургас
--  Мариус Куркински: Аз няма да имам деца (СНИМКА)
--  Meet and Greet RCTI 2024, Fans asal Bandung Ini Bahagia Bisa Foto Bareng Pemain 'Doa Di Langit Malam'
--  "Il était debout sur la pédale de frein": que s'est-il vraiment passé lors de l'accident mortel au péage de Fréjus en 2020?
--  צה"ל: השגנו שליטה במתחם בית החולים שיפא, כ-80 נעצרו
--  De tävlar i "Paradise"
--  Lewandowski na szczycie! Nawet Bellingham nie może się równać
+-  NTU scientist admits sending messages to arrange for commercial sex with children
+-  [ITmedia Mobile] 古いAndroidスマホ／ケータイ向け「おサイフケータイ」がサポート終了 2025年3月をもって
+-  SLUŽBENA BELEŠKA OTKRILA HOROR Kristijan iz Kovina prešao u Kaliđericu zbog zabrane prilaska, ali onda su ga procenili kao lak plen, i počeo je progon!
+-  ALKARAZ PRETI ĐOKOVIĆU! Španac može da sruši Novaka sa trona - ovaj turnir je ključni
+-  EL-SEN görev şehidini anıyor
+-  Apple zahlt 490 Millionen Dollar in Sammelklage
+-  Niebywałe, co piszą o Lewandowskim w Hiszpanii! Brawo, brawo
+-  Prezzo petrolio in aumento, Wti scambiato a 81,41 dollari
+-  Özel'den Erdoğan'a Filistin çağrısı: İsrail ile ticareti durdurun
+-  Apple zahlt 490 Millionen Dollar in Sammelklage
