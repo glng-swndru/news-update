@@ -1,11 +1,11 @@
 # Latest News
--  Irving donio pobjedu Dalasu protiv Denvera
--  Goca Tržan zvala Boška Jakovljevića da se pojavi u njenom spotu: Bivši maneken nije želeo da pristane dok se ne ispuni jedan uslov
--  "하늘이로 살아가는 하루하루가 행복" 박신혜, 닥터슬럼프 종영 소감
--  ايت بوعياش للفوتصال ينهزم بميدانه أمام المتصدر صقر اكادير(فيديو)
--  10만 원 딸기 뷔페도 문전성시…딸기가 '핫'해진 이유는?
--  Hundreds join Pierre Poilievre for 'Axe the Tax' rally in Halifax - CBC.ca
--  دليل إرشادي لمتعهدي الإعاشة
--  AİHM davalarında Türkiye zirvede
--  У православных наступил Великий пост
--  Huawei and partners win TM Forum Assets Award
+-  Nova Iguaçu vence o Vasco e pega o Flamengo na 1° final da sua história
+-  大規模再編のSAP、AI強化の前に「クラウドERP」は売れているのか？
+-  今夜最終回の「君が心をくれたから」永野芽郁、笑顔でクランクアップ「この役と向き合えたことを自信に変えたい」 - スポーツ報知
+-  ختام دوري الطائرة «الجمعة» المقبل
+-  Shawnee farmer has been waiting months for city to fix giant hole in his land
+-  Labour to create returns-and-enforcement unit to remove failed asylum seekers
+-  Harry Kane to report for England duty after Bayern Munich injury scare in major pre-Euro 2024 boost
+-  Everyone must get behind the Prime Minister's plan, says James Daly
+-  ‘ಲೋಕಸಭೆ ಚುನಾವಣೆ: ಪರ್ಯಾಯದತ್ತ ಯೋಚಿಸಿ’
+-  ビットコインと金がともに高騰しているのは偶然…まったく違う理由がある
