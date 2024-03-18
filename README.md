@@ -1,11 +1,11 @@
 # Latest News
--  La Roma vince a fatica contro il Sassuolo: il commento di Pistocchi
--  【CDOの考え】「情報が古い人」にならないための習慣 - CDO思考
--  Grillsaison eröffnet: Das Reich des Bratwurstkönigs schrumpft
--  Оккупанты нанесли ракетный удар по Конотопу: повреждены объекты гражданской инфраструктуры (обновлено)
--  Regionali, intesa Pd-M5s-Avs: è Marrese il candidato in Basilicata
--  La Real Sociedad perdona en la primera parte y acaba pidiendo la hora
--  La zona baja de la tabla de Primera RFEF, en llamas
--  La zona baja de la tabla de Primera RFEF, en llamas
--  Shorttrack-WM: Lisa Eckstein als 17. beste Deutsche
--  Putin seguirá en el Kremlin tras lograr el 87,5% de los votos
+-  Suara PKB Melonjak, Syaiful Huda Siap Bertarung pada Pilgub Jabar 2024
+-  Hrachovina válel. Třinec? Řekneme si po sérii. Rozhodčí nás nechali hrát
+-  Renato Gaúcho celebra 'pequena vantagem' do Grêmio sobre Caxias, mas avisa: 'Nada Ganho'
+-  Volejbalová Příbram podruhé porazila Liberec a sahá po semifinále
+-  Gov. Greg Abbott wants Legislature to rein in investors behind large-scale home purchases
+-  Moldova dismisses reported drone strike in breakaway enclave as provocation
+-  Sergej Jakirović: U Grčkoj smo dobili šamarčinu, a Baturina mora na pregled
+-  U ukrajinskom granatiranju poginuo ruski član komisije!
+-  Kristinos gyvenimą pakeitė metai be cukraus, pieno ir perdirbtų produktų
+-  **Basilicata: Pd, 'giornate difficili ma risultato positivo, ostinati su unità centrosinistra'**
