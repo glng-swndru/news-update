@@ -1,11 +1,11 @@
 # Latest News
--  ЦИК: Путин президент с 87,26%
--  Housing association boss's £3m home while family rots in mouldy property
--  Клоп: Ще се постараем да победим, когато отново излезем на "Олд Трафорд"
--  Deutsche prallt in Tirol mit Gleitschirm gegen Seilbahn
--  Dialog-powered 105th Hill Country Battle of the Blues ends in a draw
--  Sá rautt fyrir tuð
--  Chính trị gia Pháp: Tại sao NATO coi Nga là kẻ thù chính
--  Putin tem um objetivo "vaidoso": ultrapassar Estaline no número de dias no poder
--  Путин рассказал о своей мечте
--  HAMAS'tan İsrailli esirler açıklaması
+-  Indonesia's Christie wins first All England badminton title
+-  Assessores econômicos de Trump apresentam três nomes para presidência do Fed
+-  Michiel Kramer baart opzien met keiharde kritiek op scheidsrechter Joey Kooij
+-  SuraVision Celebrates One Year of Advanced Eye Care in Houston: A Testament to Safety, Innovation, and Personalized Care
+-  출근길 영하권 추위 곳곳 ‘한파특보’…건조한데 강풍
+-  Assessores econômicos de Trump apresentam três nomes para presidência do Fed
+-  Барселона спечели убедително гостуването си на Атлетико Мадрид
+-  При взрыве котла на индийском заводе ранения получили более 40 рабочих
+-  응봉산 개나리 축제 등 성동구 봄꽃 축제 이어져
+-  برشلونة يسحق أتلتيكو مدريد ويرتقي للمركز الثاني في الليغا
