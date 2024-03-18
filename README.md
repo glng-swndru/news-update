@@ -1,11 +1,11 @@
 # Latest News
--  NTU scientist admits sending messages to arrange for commercial sex with children
--  [ITmedia Mobile] 古いAndroidスマホ／ケータイ向け「おサイフケータイ」がサポート終了 2025年3月をもって
--  SLUŽBENA BELEŠKA OTKRILA HOROR Kristijan iz Kovina prešao u Kaliđericu zbog zabrane prilaska, ali onda su ga procenili kao lak plen, i počeo je progon!
--  ALKARAZ PRETI ĐOKOVIĆU! Španac može da sruši Novaka sa trona - ovaj turnir je ključni
--  EL-SEN görev şehidini anıyor
--  Apple zahlt 490 Millionen Dollar in Sammelklage
--  Niebywałe, co piszą o Lewandowskim w Hiszpanii! Brawo, brawo
--  Prezzo petrolio in aumento, Wti scambiato a 81,41 dollari
--  Özel'den Erdoğan'a Filistin çağrısı: İsrail ile ticareti durdurun
--  Apple zahlt 490 Millionen Dollar in Sammelklage
+-  경기 광주 초월읍 가구공장서 화재…인명피해 없어
+-  Таня Димитрова, МВнР: Моряците на кораба "Руен" пътуват към Оман, те са в добро здраве - Труд
+-  매수할 주식 1종목, 매도할 주식 1종목: 엔비디아, 나이키
+-  신상정보 공개 성범죄 전력자, 초등학생에 사적 연락하다 입건
+-  J Kumar Infraprojects wins project of Rs 334.25 cr
+-  Liste d'attesa nella Sanità veneta, Regione alla ricerca di oculisti e dermatologi
+-  한소희, 오늘 하와이서 귀국…연인 류준열과 따로
+-  Provinciali, finisce 10 a 2: il Pd sbanca, batosta annunciata per il centrodestra
+-  金管會員工幫忙匯款？ 官方急喊：詐騙！不要上當
+-  Kela: Yleisen asumistuen ja työttömyys­tukien leikkaukset koskevat noin puolta miljoonaa ihmistä
