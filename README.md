@@ -1,11 +1,11 @@
 # Latest News
--  Asking a memory expert about lapses by Biden, Trump
--  Dolazak Putina na čelo Rusije je smrtna kazna za Zapad! Posle izbora BRIKS postaje još moćniji (VIDEO)
--  World Food Programme said famine is imminent in Gaza if aid is not increased exponentially
--  Brüksel'de Gazze'ye destek protestosu
--  Chiara Nasti incinta, vola in Egitto con la mamma e Thiago: «La vera ricchezza è questa». Dov'è Mattia Zaccagni?
--  Abraham in panchina per Roma-Sassuolo: rientro sempre più vicino
--  יוזמה חדשה במודיעין עילית: אוטובוסים לגברים בלבד
--  وزير الخارجية يودع سفيرة الصين
--  Trekvaartestafette doet in het najaar Leiden aan. ’De historie beleven’
--  Chaves-V. Guimarães, 0-1 (1.ª parte)
+-  Public warned vs marijuana-flavored vapes
+-  A Monfalcone regolamento di conti con rissa: spuntano anche catene e martelli
+-  First UK weather map for April turns orange as huge 277-mile storm drenches Britain
+-  ONLINE: Sparta - Hradec Králové, Kairinena nahrazuje v záloze Sadílek
+-  UFC: Jon Jones shares tense moment with Tom Aspinall after Brit puts hand on shoulder
+-  PSV vs Twente: ¿A qué hora juega 'Chucky' Lozano HOY y dónde ver ONLINE?
+-  ONLINE: Sparta - Hradec Králové, Kairinena nahrazuje v záloze Sadílek
+-  UŽIVO RUDEŠ - DINAMO 0:0 Jakirović izmiješao sastav, odabrao je vrlo napadačkih 11
+-  రూ.150 కోట్లతో నియోజకవర్గ అభివృద్ధి
+-  DOJ: BuCor can repossess land ceded to DAR, LGUs
