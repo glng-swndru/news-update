@@ -1,11 +1,11 @@
 # Latest News
--  Man. United – Liverpool, staðan er 0:0
--  Wasser mit oder ohne Kohlensäure? Das ist gesünder
--  AfD Brandenburg | Hand in Hand gegen die AfD
--  Ball im Comödienhaus: Glanz und Glamour der „Goldenen Zwanziger“
--  „Die Partei“ verliert in Hemmingen ihren Gemeinderatssitz
--  5 things to know about India, Seychelles 10-day mega war game
--  Ueda schiet Feyenoord na bizarre fout Van Ottele naar late zege in Heerenveen
--  Dries Mertens: "Karakterimizi gösterdik!"
--  Miloš Medenica se članovima krimi-grupe hvalio da ima tri carinika...
--  L'UE va signer un accord de partenariat pour 7,4 milliards d'euros avec l'Égypte
+-  Asking a memory expert about lapses by Biden, Trump
+-  Dolazak Putina na čelo Rusije je smrtna kazna za Zapad! Posle izbora BRIKS postaje još moćniji (VIDEO)
+-  World Food Programme said famine is imminent in Gaza if aid is not increased exponentially
+-  Brüksel'de Gazze'ye destek protestosu
+-  Chiara Nasti incinta, vola in Egitto con la mamma e Thiago: «La vera ricchezza è questa». Dov'è Mattia Zaccagni?
+-  Abraham in panchina per Roma-Sassuolo: rientro sempre più vicino
+-  יוזמה חדשה במודיעין עילית: אוטובוסים לגברים בלבד
+-  وزير الخارجية يودع سفيرة الصين
+-  Trekvaartestafette doet in het najaar Leiden aan. ’De historie beleven’
+-  Chaves-V. Guimarães, 0-1 (1.ª parte)
