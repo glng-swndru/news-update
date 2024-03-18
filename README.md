@@ -1,11 +1,11 @@
 # Latest News
--  Biden se lanza contra DeSantis y Trump: “Demasiado anciano y mentalmente incompetente”
--  Жерар Пике: «Игра «Барселоны» – пример для мира: она выигрывает так, что люди получают удовольствие. «Реалу» этого никогда не достичь»
--  ExxonMobil descubre nuevas reservas de petróleo en Guyana en la zona de disputa con Venezuela
--  حمله نتانیاهو به بایدن ؛ با این سرعت ...
--  El Barça es posa les botes en un horari de calçotada
--  Destici, Mehmet Şimşek'e seslendi: 'Vergiyi kaldır'
--  Emraan Hashmi dishes on Bollywood struggles and upcoming films
--  34:31 gegen Österreich: Deutsche Handballer qualifizieren sich für Olympia – Gislason bleibt Trainer
--  Zár alá vétel bírói engedély nélküli – új büntetőeljárási szabályok léptek hatályba
--  Jabanquijija, la maleku que sobrevivió a un hombre violento para ser celebrada en el Teatro Nacional
+-  Roman Michelko: odvolanie riaditeľa RTVS bez dôvodu v zákone nebude. V Bruseli pôsobí piata kolóna
+-  Deutschland gegen Österreich: Handballer qualifizieren sich für Olympia – Gislason bleibt Trainer
+-  QRCS to launch 15 food security projects across the globe
+-  DEM Parti İstanbul adayları Nevruz kutlamalarından seslendi: "Kendimize oy vereceğiz"
+-  Alan Myers shares new Everton point deduction prediction in Nottingham Forest verdict
+-  Deutschland gegen Österreich: Handballer qualifizieren sich für Olympia – Gislason bleibt Trainer
+-  Cadena perpetua para venezolano tras asalto y homicidio
+-  Here's the Best Airline Stock to Buy for 2024
+-  松本市長選 接戦制し現職の臥雲義尚氏が再選 新人・菱山氏と477票差 投票率は44.67%で過去最低
+-  Zweitliga-Quartett souverän - auch der HSV wieder dabei
