@@ -1,11 +1,11 @@
 # Latest News
--  Dünya için bir tehdit olabilir! Elon Musk ve ABD istihbaratının gizli projesi ifşa oldu...
--  Уникална драма на "Олд Трафорд"! Юнайтед излъга Ливърпул в 121-вата минута (ВИДЕО)
--  İmzalar atıldı! AB'den Mısır açıklaması: Tarihi bir anlaşma!
--  Более 62 тыс. человек посетили XXXI Минскую международную книжную выставку-ярмарку
--  LIVE buitenlands voetbal | Kerk helpt Van Bommel aan punt, Leverkusen blijft winnen, streep door Atalanta-Fiorentina
--  Cleo, ex de Rômulo Arantes Neto, o parabeniza por casamento com Mari Saad
--  Chứng khoán tuần tới (từ 18 đến 22-3): Ngóng cuộc họp về lãi suất của FED
--  Microsoft Office 2024: Neue Stand-Alone-Version der Office-Apps erscheint heuer
--  Derbi öncesi Trabzonspor'da son gelişmeler!
--  Drama u Bergamu! Pozlilo direktoru Fiorentine. Utakmica je odgođena
+-  Meghan Markle 'not cashing in on Royal title' with new lifestyle brand as duchess defended
+-  Sokak ortasında acımasızca katledildi! Vahşetin detayları ortaya çıktı
+-  Lilja Rannveig á von á sínu þriðja barni
+-  „Honda“ ir „Nissan“ yra pasirengusios suvienyti jėgas ir kurti elektrines transporto ...
+-  Friedrich Merz fordert Gespräche über europäischen Nuklearschirm
+-  In Memoriam | Geen 60 geworden, maar voor 80 jaar geleefd. Overal was wel iemand die Klaas Ebeltjes (1963-2023) kende
+-  שר הביטחון גלנט: "בזכות הפעולה הקרקעית הגענו למידע שהביא לסיכולים ולהצלחות"
+-  Barrondo brilla en Europa
+-  С нетерпением ждем, когда Азербайджан примет COP29 - Йенс Столтенберг
+-  Netanyahu, 'prima sgombero civili poi operazione Rafah'
