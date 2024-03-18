@@ -1,11 +1,11 @@
 # Latest News
--  八食センター「くりやランド」来場者数が１５万人達成 大型アスレチック遊具やクライミング体験が人気(青森放送)
--  10 đặc điểm của kiểu người phụ nữ tinh tế từ cốt cách, sống đầy chất riêng và hạnh phúc
--  Caetano e Bethânia dão pistas sobre turnê e lembram relação com Dona Canô
--  'Incredibly rare' Beatles vinyl found in charity shop sells for thousands
--  Ringgit opens lower ahead of Fed meeting this week
--  Путин побеждает на выборах президента с 87,34% голосов после обработки 98% протоколов
--  Gazan sota | Israelilais­joukot hyökkäsivät al-Shifan sairaalan alueelle
--  Krank beim Jobwechsel - was nun?
--  สภาพอากาศวันนี้ กลางวันร้อนจัด สูงสุด 40 องศาฯ มีฝนฟ้าคะนองบางแห่ง
--  Gemini’s flawed AI racial images seen as warning of tech titans’ power
+-  Nếu chậm làm việc này trong năm 2024, người dân sẽ bị phạt rất nặng, cần phải chú ý
+-  Ariana Grande scores another big achievement on top charts
+-  Xe điện VinFast VF 9 'lướt' rớt giá ngang ngửa một chiếc Honda BR-V chỉ sau 1 năm lăn bánh
+-  Industrial real estate emerges out of storm
+-  Bihar: Police arrest 313 for Bihar teacher recruitment exam paper leak
+-  股市熱潮席捲房市 李同榮：「科學園區」效應有過度集中風險
+-  Putin zafer sonrası halka seslendi: Tüm Rus halkına teşekkür ediyorum
+-  DOAMU Jilid 2, Ini Kata Partai Gerindra Papua Barat
+-  양문석, 봉하 찾아 "유가족과 노 전 대통령 그리워한 국민께 사죄"
+-  苑裡市場5年前大火燒光！白沙屯媽祖鑾轎「開進重建工地」賜福
