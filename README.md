@@ -1,11 +1,11 @@
 # Latest News
--  KPPU Bakal Panggil Tujuh Maskapai Terkait Dugaan Kenaikan Harga Tiket Jelang Lebaran
--  Thực hư Hoa hậu Thùy Tiên chịu chi 68 tỷ đồng mua cổ phần Miss Grand International?
--  Merzļikinam un Blue Jackets sagrāve pret Jets
--  Yargı'da duygu dolu anlar... İzleyenler bu sahneye ağladı! 'Bir kerecik bana çiçeğimi göster'
--  Megválasztották Európa első fekete kormányfőjét
--  ‘Wishing the races away’: Ugly Ricciardo low sparked brutal call to end ‘spiral’. Now path is ‘clear’
--  H-2 Pengumuman Rekapitulasi Nasional KPU, Masih Ada 5 Provinsi Lagi yang Belum Rampung
--  「不適切にも」批判なくP驚き
--  Kreml will Putin als haushohen Wahlsieger feiern
--  Политическа игра на ръба на скалата: Политиолог за бъдещето на управлението
+-  Most u Brna je v havarijním stavu, nahradí ho nový. Tisíce řidičů čeká objížďka
+-  【速報】強風の影響で湖西線で徐行運転 サンダーバードの一部が米原経由に
+-  Четырехкратный чемпион АПЛ расхвалил Мудрика после матча с Лестером
+-  [오늘의여행]한화리조트, 워터밤 속초 2년 연속 개최 外
+-  NEET UG 2024 application correction window opens today at exams.nta.ac.in; Details here
+-  Три передачи Бучневича позволили «Сент-Луису» обыграть в матче НХЛ «Анахайм»
+-  Bất ngờ bên trong chiếc vali lạ trên vỉa hè khiến công an quân đội phải phong tỏa một tuyến đường
+-  Blizanci i Lavovi bit će osjetljivi i svadljivi, a pred Vodenjacima i Ribama su povoljne promjene
+-  Za javnost je Jackie Kennedy Onassis bila princeza, no njezina mlađa sestra sve je osvojila ljepotom i stilom
+-  Phim "Quật mộ trùng ma" doanh thu ấn tượng rạp Việt
