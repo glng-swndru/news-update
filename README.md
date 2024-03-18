@@ -1,11 +1,11 @@
 # Latest News
--  Suara PKB Melonjak, Syaiful Huda Siap Bertarung pada Pilgub Jabar 2024
--  Hrachovina válel. Třinec? Řekneme si po sérii. Rozhodčí nás nechali hrát
--  Renato Gaúcho celebra 'pequena vantagem' do Grêmio sobre Caxias, mas avisa: 'Nada Ganho'
--  Volejbalová Příbram podruhé porazila Liberec a sahá po semifinále
--  Gov. Greg Abbott wants Legislature to rein in investors behind large-scale home purchases
--  Moldova dismisses reported drone strike in breakaway enclave as provocation
--  Sergej Jakirović: U Grčkoj smo dobili šamarčinu, a Baturina mora na pregled
--  U ukrajinskom granatiranju poginuo ruski član komisije!
--  Kristinos gyvenimą pakeitė metai be cukraus, pieno ir perdirbtų produktų
--  **Basilicata: Pd, 'giornate difficili ma risultato positivo, ostinati su unità centrosinistra'**
+-  Putin prezydentem. Mocny komunikat polskiego MSZ ws. wyborów w Rosji. "To urąga wszelkim standardom"
+-  МЕДИУМИТЕ СЕ ПОДГОТВУВААТ ЗА УБИСТВО НА ВУЧИЌ, ИСТОТО МУ ГО НАПРАВИЈА И НА ЏИНЏИЌ: Шокантно тврдење на професорот Вулетиќ
+-  Нападник Мілана Жіру має намір продовжити кар'єру в МЛС
+-  BEBA ROĐENA SA REPOM OD 10 CENTIMETARA: Snimak se širi internetom i šokira svet! Evo šta kažu lekari o ovom fenomenu (VIDEO)
+-  Mandorlo in fiore, Tempio d’oro alla Colombia
+-  Hokejisté Třince a Litvínova vstoupili vítězně do čtvrtfinále play off
+-  Somalia supports UN resolution to combat rising Islamophobia globally
+-  Five homicides within 24 hours in Birmingham
+-  "On habitait une maison à Neuilly" : Michel Serrault a fait vivre un enfer à ses voisins, sa fille Nathalie raconte
+-  Dominacija plivača Sport timea na Zimskom državnom prvenstvu BiH
