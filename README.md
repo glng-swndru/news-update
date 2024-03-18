@@ -1,11 +1,11 @@
 # Latest News
--  Campagne électorale à Tamba et Kolda : Khalifa Sall compte favoriser une coopération avec les pays frontaliers
--  Подменят мантинели по магистрала "Тракия", шофирайте разумно
--  Customs seizes 2.7 kg gold worth 1.5 cr in 5 cases
--  В Крыму увеличат количество пунктов досмотра на Крымском мосту во избежание летних пробок
--  North Korea launches apparent ballistic missile as top U.S. diplomat visits Seoul
--  Pistocchi: "Meret bravissimo. Proteste Inter per due interventi del Napoli"
--  裏金問題 説明責任「果たされていない」84％ ANN世論調査(ABEMA TIMES)
--  羽球》奧運積分榜遭山口茜超車 戴資穎世界第3岌岌可危
--  Hétfői sportműsor: Valter Attila a katalán körversenyen
--  تشافي بالعلامة الكاملة أمام سيميوني
+-  北, 동해상으로 탄도미사일 발사…한달 만에 미사일 도발
+-  Předsedové odborů budou jednat o přípravě sněmu s volbou vedení ČMKOS
+-  PSV blijft nog op koers om de beste eredivisieploeg ooit te worden: dit is daarvoor nodig
+-  Lộ diện thiết kế của iPhone SE 4 dự đoán sẽ được Apple ra mắt trong tháng này
+-  Le nuove AirPods in cantiere: oltre alla USB-C c'è di più
+-  Путин о конфликте России и НАТО: вряд ли кто-то хочет третьей мировой войны
+-  Exclusive-Reddit's IPO as much as five times oversubscribed, sources say
+-  PSG : Avec son triplé, Kylian Mbappé compte 188 buts en Ligue 1 et dépasse une légende de l’OL
+-  ЗМІ розкрили деталі руйнівного удару по НПЗ у Краснодарському краї
+-  BRS MP and MLA cross over to Congress
