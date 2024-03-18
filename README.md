@@ -1,11 +1,11 @@
 # Latest News
--  U Londonu bez pobjednika, Aston Vila uzela bod
--  Trump: "Si no me eligen será un baño de sangre para el país"
--  Schonungslose Wahrheit: Diese Karte zeigt dir alle Funklöcher von Telekom, Vodafone & O2
--  Gefahren der russischen Diktatur: Putins Scheinwahl
--  Манчестър Ю - Ливърпул 1:2 (първо полувреме)
--  Gefahren der russischen Diktatur: Putins Scheinwahl
--  Mehmet Şimşek'in açıklamaları sonrası merak konusu oldu: İşte bir yılda emekli olan öğretmen sayısı
--  "Izbori" u Rusiji. Tisuće Rusa ispunile zadnju želju Navalnog, više od 70 uhićenih
--  Le Ragazze Punk, dopo X Factor pubblicano il nuovo singolo 'Luv U''
--  Κως: 18χρονος αποπειράθηκε να βιάσει 8χρονη στο ΚΥΤ του νησιού
+-  Come fare soldi con X (Twitter)
+-  Soccer-Milan defeat Verona 3-1 to consolidate second place in Serie A
+-  Kanzler in Israel: Scholz macht einen guten Job in Nahost
+-  Docs mystified for months at boy's bruises - then delivered devastating diagnosis - The Mirror
+-  Sieg und Niederlage gegen Landshut: U20 der DEG verpasst knapp den perfekten Start ins Play-off-Halbfinale
+-  Kanzler in Israel: Scholz macht einen guten Job in Nahost
+-  Persona 5 took six years to go multiplatform, but leakers are claiming Persona 6 will be on Xbox too
+-  NASA busca astronautas para la carrera espacial de la nueva era, ¿quién puede aplicar?
+-  Bakan Fidan'dan açıklama: Söz aldık! Bizimle hareket edecekler
+-  Präsidentschaftswahl in Russland | Die Schwäche der Opposition
