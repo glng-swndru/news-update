@@ -1,11 +1,11 @@
 # Latest News
--  Perfekte Eltern: Warum diese Idealbild oft unerreicht bleibt
--  "Untold Herstory": Gripping Film Uncovers the Unsung Heroines of Taiwan's Democratic Struggle
--  Putin gana las elecciones en Rusia con más del 87% de los votos
--  "Untold Herstory": Gripping Film Uncovers the Unsung Heroines of Taiwan's Democratic Struggle
--  Chán phố thị, tăng ca 22h đêm không hết việc, 6 thanh niên bỏ việc lương cao lên núi dựng "biệt phủ": Sống thong thả, có lao động không lo thiếu tiền
--  China's retail sales grow 5.5% in Jan-Feb period
--  藤井聡太棋王と大谷翔平投手に共通点！？ベテラン棋士「センターフライかなと思ったら…」の例えにファンも首肯「なるほど」「野球星人と将棋星人」(ABEMA TIMES)
--  ১৫ ঘণ্টা পর ঢাকা-চট্টগ্রাম রুটে ট্রেন চলাচল স্বাভাবিক
--  Giants star Jesse Hogan relishing his AFL resurgence
--  Giants star Jesse Hogan relishing his AFL resurgence
+-  岩手県全域に暴風雪警報 ＪＲで運休も 遠野市で住宅のトタン屋根はがれる被害
+-  「マイナス金利」解除検討へ 日銀が金融政策決定会合 春闘では高水準の賃上げ率
+-  Police survey for survivors of rape and sexual assault
+-  Les paiements sans numéraires bondissent de plus de 63%
+-  拡声器を使って騒ぎ職員の業務を妨害した疑い 近畿大学・19歳大学生が書類送検 大阪府警
+-  Jhanak Serial Spoiler: Aniruddha gets jealous about Jhanak's second marriage; Arshi plans to expose latter
+-  Vượt qua Freiburg, Bayer Leverkusen thiết lập kỷ lục lịch sử
+-  تعرف على نص كلمة رئيس الإتحاد السوداني في الذكري السادسة لرحيل شروني
+-  Đánh bại Medvedev, Alcaraz bảo vệ thành công chức vô địch ở Indian Wellls, lập cột mốc đặc biệt
+-  Uber to pay $178 million in Australia taxi class action settlement - Reuters
