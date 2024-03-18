@@ -1,11 +1,11 @@
 # Latest News
--  경기 광주 초월읍 가구공장서 화재…인명피해 없어
--  Таня Димитрова, МВнР: Моряците на кораба "Руен" пътуват към Оман, те са в добро здраве - Труд
--  매수할 주식 1종목, 매도할 주식 1종목: 엔비디아, 나이키
--  신상정보 공개 성범죄 전력자, 초등학생에 사적 연락하다 입건
--  J Kumar Infraprojects wins project of Rs 334.25 cr
--  Liste d'attesa nella Sanità veneta, Regione alla ricerca di oculisti e dermatologi
--  한소희, 오늘 하와이서 귀국…연인 류준열과 따로
--  Provinciali, finisce 10 a 2: il Pd sbanca, batosta annunciata per il centrodestra
--  金管會員工幫忙匯款？ 官方急喊：詐騙！不要上當
--  Kela: Yleisen asumistuen ja työttömyys­tukien leikkaukset koskevat noin puolta miljoonaa ihmistä
+-  與비례 1번 ‘장애인 변호사’ 최보윤...4번 진종오, 8번 인요한
+-  Apple: Tim Cooks Äußerungen kosten Unternehmen fast eine halbe Milliarde Dollar
+-  3 ngôi sao bóng chuyền nữ Việt Nam mỗi người nhận thưởng trị giá gần 1 tỷ, hạnh phúc viên mãn trong đời tư
+-  Ceny ropy v pondelok ráno vzrástli
+-  Кирил Петков: Прекарах нощта с надежда, отстъпихме дори Мария Габриел да е премиер и външен министър - Труд
+-  Zar je i desetero profesora prava 'instruirano od Plenkovića'!?
+-  Daniele Capezzone: gli anti-semiti padroni delle università
+-  Tổng hợp những loại hình thẩm mỹ vừa túi tiền, đủ để thay đổi diện mạo cho chị em
+-  Loài cá nhìn như cây nấm giá hơn 2 tỷ đồng, đại gia giấu tên xuống tiền mua về làm cá cảnh
+-  ĐT Việt Nam nhận 'doping' lớn trước ngày sang Indonesia
