@@ -1,11 +1,11 @@
 # Latest News
--  Expert: Atacul cu dronă din Transnistria, un trucaj. ”Este o operațiune mai largă a FSB” VIDEO
--  "الاونروا": وصول المساعدات إلى غزة "مسألة حياة أو موت"
--  Autorităţile de la Chişinău neagă că ar fi avut loc un atac asupra regiunii transnistrene. „Provoacă frică şi panică"
--  Sergi García, con capa de héroe en su partido 200
--  ANKETA Tko će biti prvak HNL-a? Ovo je raspored Rijeke, Hajduka i Dinama do kraja prvenstva...
--  Russia election: Putin wins with 88% support, exit poll says
--  Poľský turista spadol z hrebeňa vo Veľkej Fatre, pomáhali aj leteckí záchranári
--  U Zagrebu danas radi samo jedan veći šoping-centar. Stvorila se gužva
--  अहमदनगर दक्षिणेतून डॉ. अशोक सोनवणे लढणार लोकसभा
--  Ясни са полуфиналите във ФА Къп
+-  Κατατέθηκε η πρώτη αγωγή για το Ασημακοπούλου leaks
+-  Ohne Reservierung geht nichts: Weltweites Restaurant-Phänomen kommt nach München
+-  В Вооружённых силах РФ явка на президентских выборах составила 99,8%
+-  "الانوار" الفائز على "البوشرية" أكمل عقد نصف نهائي بطولة الطائرة
+-  Dostali wizy, ale nie przyjechali. Poseł KO: To mógł być kanał przerzutowy
+-  PM trocou tiros com suspeitos de morte em tabacaria
+-  Entscheidung steht bevor: Saar-Polizisten fordern von Anke Rehlinger Stopp des Cannabis-Gesetzes
+-  انضمام محمد شريف مهاجم الخليج لقائمة منتخب مصر
+-  Yunanistan Başbakanı Miçotakis: Gazze'deki durumdan derin endişe duyuyorum
+-  "Silahlı Qüvvələrimizdə aparılan islahatlar yaxşı nəticələr vermişdir"
