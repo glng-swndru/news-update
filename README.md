@@ -1,11 +1,11 @@
 # Latest News
--  Borsa: Asia chiude brillante, attesa per i tassi, Tokyo +2,67%
--  Как в России прошло голосование на выборах президента. Фоторепортаж
--  DIÁR: Prehľad udalostí na pondelok 18. marca (podcast a video)
--  Bilecik'te badem ağaçları çiçek açtı
--  രാഷ്ട്രപതിക്ക് രാജി സമർപ്പിച്ചു:തെരഞ്ഞെടുപ്പിൽ മത്സരിക്കാൻ തെലുങ്കാന ഗവർണർ
--  Sve više ljudi se žali na misteriozni virus, ovo su simptomi
--  Code per i battelli e ore di attesa per il bus, l’invasione dei turisti sul lago di Como
--  Rapport: Sony sägs ha pausat PSVR2-produktionen
--  Kayseri’de 7 şahsa terörden yasal işlem yapıldı!
--  Global and China Automotive Memory Chip and Storage Industry Report 2024: UFS 4.0, PCIe SSD for Central Computing, CXL Memory Expansion Technology
+-  Aktionärssammelklage: Apple zahlt wegen Cook-Äußerung halbe Milliarde US-Dollar
+-  TV-Soaps: Das passiert heute in den Soaps
+-  Mucha nubosidad, calor y humedad para el comienzo de la semana en Tucumán
+-  Владимир Путин уверенно побеждает на президентских выборах в России
+-  Miroslav Lekić za "Nezavisne": Žarko Laušević je bio glumac potpune fizičke i mentalne predanosti
+-  Piazza Affari per la prima volta sopra i 34mila punti
+-  3월에 보유할 만한 10달러 미만 주식 3종목
+-  ”Till och med Benke lydde”
+-  Riciclo, Italia top in Europa
+-  Home cooking ideas: How to win a £100 Sainsbury's Voucher
