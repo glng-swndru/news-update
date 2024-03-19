@@ -1,11 +1,11 @@
 # Latest News
--  McCain Foods Partners with Plover Whiting Youth Athletics to Refurbish Woyak Sports Complex
--  Πάφος: Επεισόδια μεταξύ Ελληνοκυπρίων και Σύρων – Στο σημείο η Αστυνομία
--  PLD entrena su personal defiendan el voto próximas elecciones
--  "Mi faccio carcerà, ma ti ammazzo": picchia l'ex compagna fino a farla sanguinare
--  VEF dublieri - RSU - graujoši uzvar basketbola klasikas fārmklubu duelī
--  Estos son los 5 celulares más potentes del 2024, según AnTuTu
--  CCZ alerta para letalidade da raiva e disponibiliza vacinação para cães e gatos
--  Las acciones de empresas energéticas pierden contra la inflación: ¿mejor conservarlas o vender?
--  Avropa nazirləri Rusiya aktivlərindən Ukrayna üçün istifadəyə dair konsesus əldə ediblər
--  Finra fines M1 Finance over misleading social media influencer posts
+-  Эрдоган подтвердил планы провести летом контртеррористические операции в Ираке и Сирии
+-  Alfreð: Gylfi hefur rétt á sínum tilfinningum
+-  Online wellness content: 3 ways to tell evidence-based health information from pseudoscience
+-  Santiago del Moro anunció la vuelta de un ex participante a Gran Hermano con una misión especial
+-  Aşırı tuz tüketimi hangi rahatsızlıkları tetikler?
+-  Edo guber polls: Tinubu predicts victory for APC
+-  MeteoGiuliacci, i giorni in cui cambia tutto: "Svolta importante"
+-  Cayeron 230 mm en 12 días sobre la Expoactiva, pero los cultivos están excelentes
+-  Случаят със забавената линейка, при който почина мъж: Фелдшерът е нарушил протокола
+-  Alfreð: Gylfi á rétt á sínum tilfinningum
