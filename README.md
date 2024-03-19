@@ -1,11 +1,11 @@
 # Latest News
--  Глобяват търговци и граждани заради нерегламентирано изхвърляне на отпадъци
--  विदेशी कोषों की बिकवाली के बीच शुरुआती कारोबार में सेंसेक्स, निफ्टी में गिरावट
--  फेड बैठक से पहले सोने की कीमतें 2,150 डॉलर के पार; तांबे की कीमतों में गिरावट
--  Allergy Relief Medication Manufacturing Plant Cost 2024: Industry Trends, Machinery and Raw Materials
--  “당할 수만 없어서...” 스파이어엔터 대표, 성추행당한 CCTV 영상까지 공개한 이유
--  Красный снег и поезда смерти: как 75 лет назад убивали евреев в Гродно
--  Pokud chceme mír, musíme se připravit na válku, říká šéf Evropské rady Michel
--  Funkmasten alle 1000 Meter: Deutsche Bahn beginnt Testfahrten für 5G im ICE
--  Today's front pages - March 19, 2024
--  Funkmasten alle 1000 Meter: Deutsche Bahn beginnt Testfahrten für 5G im ICE
+-  Turistler akın akın o ülkeleri ziyaret ediyor! Bakın Türkiye kaçıncı sırada...
+-  Man Utd, Chelsea and Liverpool may benefit from Nottingham Forest points deduction - Express
+-  Balıkesir'de korkutan deprem
+-  Ще има отстъпления от списъка с министри: Политолог за ротацията
+-  SON DƏQİQƏ! Əhaliyə müraciət edildi
+-  Първата творба на Банкси за 2024 г. разбуни духовете в Лондон (ВИДЕО)
+-  「今夜どうなるのか…」長野県内で大規模停電 変電所の設備に鳥が接触 3万戸以上に影響
+-  Lisa Vanderpump wasn't shocked by Jax Taylor's break-up
+-  [그래픽] 22대 총선 격전지 - 서울 서대문을
+-  Japonya, 17 yıl sonra ilk kez faiz artırdı
