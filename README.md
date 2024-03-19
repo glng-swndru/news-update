@@ -1,11 +1,11 @@
 # Latest News
--  A conturbada relação entre Lula e o Congresso Nacional e a estrita necessidade de diálogo institucional
--  Penelope Bourbon returns to Rio
--  נתניהו אחרי השיחה עם ביידן: הסיוע ההומניטרי הכרחי
--  Linke Forderungen zur Gesundheitspolitik: Eine kostenlose Brille für alle
--  Usa, 'nessuna telefonata di congratulazioni a Putin'
--  Vuelo de Latam que se desplomó 100 metros: apuntan a insólito error humano al momento de servir comida al piloto
--  Framboð til stjórnar Brims hf. á aðalfundi félagsins 21. mars 2024
--  Naked Attraction's Anna Richardson opens up on new boyfriend after Sue Perkins split
--  Schlagerstar Henry Valentino ist mit 95 Jahren verstorben!
--  MINIMAKS SA ALI EKSPRESA IZ****O ELITU KOJA GA JE NAPRAVILA "NEZAVISNIM INTELEKTUALCEM"! Biljana Srbljanović o Ivanu Ivanoviću
+-  Пік могутності Путіна пройдено. Що далі?
+-  Vitórias da Ucrânia sobre frota russa no Mar Negro fortalecem exportações
+-  Az MI miatt lehet egyre sürgetőbb az LPDDR6 megjelenése is
+-  Grid launches Rainbow Six Siege Data Portal for esports teams
+-  Nottingham Forest issue furious statement in reply to Premier League after points docked
+-  Una estadística privada indica que la inflación mensual de Milei se estaría acercando a la que dejó Massa
+-  Még mindig rejtély, hogy mivel támadták meg világszerte az amerikai diplomatákat
+-  Pizza atisô bình dân trong nhà hàng gần trăm năm tuổi
+-  QSE sees strong buying interests; M-cap adds QR1bn
+-  Engin Koyun’un istifası kabul edildi... Başkanlığa Recep Durul vekalet edecek
