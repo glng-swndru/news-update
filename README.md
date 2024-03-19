@@ -1,11 +1,11 @@
 # Latest News
--  KOLIKO ĆE NA KRAJU KOŠTATI ERO? Vlada HNŽ dodatno se zadužila za 15 milijuna maraka za smještaj županijskih tijela
--  Hết trồng 3.000 tấn rau xanh giữa sa mạc, các Tiểu vương quốc Ả Rập khiến thế giới ngỡ ngàng khi chi gần 500 tỷ đồng “gieo mây trên trời”
--  Österreich erweitert Exportchancen für Schweineteile nach China
--  Woman climbs building upset over rejected marriage proposal
--  La Audiencia de Barcelona celebrará el martes una vista para resolver la libertad de Alves
--  На Украине отмечен рост дезертирства, с начала года уже почти 4,7 тыс. случаев
--  Ski club has to make every flake count to keep the trails open in mild winter
--  Hazine, altın tahvili ve altına dayalı kira sertifikası ihraç etti
--  Oso ataca a 5 personas, entre ellas un niño, en turística localidad eslovaca
--  Yargı’nın son bölümüne tepki yağdı! Tuğçe’nin başına gelenler sosyal medyayı ayağa kaldırdı: ‘Bunu yazarken utanmadınız mı?’
+-  Feds paying close attention to B.C. policies as a national reference point
+-  Model and actor Cara Delevingne’s Los Angeles home is destroyed in fire
+-  Ibovespa tem viés de alta com NY e minério,antes das decisões de juros nos EUA e no Brasil
+-  Model and actor Cara Delevingne’s Los Angeles home is destroyed in fire
+-  Feds paying close attention to B.C. policies as a national reference point
+-  Elégedetlenek a közigazgatási alkalmazottak Romániában
+-  Warum Telepolis für Ihre Unterstützung wirbt – und was wir dafür tun
+-  Model and actor Cara Delevingne’s Los Angeles home is destroyed in fire
+-  Juazeirense desembarca em Maceió para enfrentar o CRB pela Copa do Nordeste
+-  Model and actor Cara Delevingne’s Los Angeles home is destroyed in fire
