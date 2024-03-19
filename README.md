@@ -1,11 +1,11 @@
 # Latest News
--  Guerra Israel - Hamás, en directo: última hora de la guerra en Gaza hoy, 19 de marzo
--  Murat Kurum ''Kanal İstanbul'' sorusuna bu yanıtı verdi
--  Pemkot Surabaya Larang ASN Mudik Pakai Mobil Dinas, Siap-siap Jika Melanggar
--  Staatslabor wieder im Krisenmodus
--  “몰려오는 ESG 수출규제.…경쟁 차별화 기회 삼아야”
--  Bộ Chính trị điều động, chỉ định nhân sự giữ chức Bí thư Tỉnh ủy, Quyền Bí thư Tỉnh ủy
--  Crs say council 'unethical and unfair' to aircraft maintenance business
--  "Ông lớn" Big 4 hạ lãi suất cho vay mua nhà xuống mức siêu thấp: Còn 6,5%/năm áp dụng 2 năm đầu tiên
--  திருச்சியில் ரூ.13,45,730 பணம் பறிமுதல்; தேர்தல் பறக்கும் படையினர் அதிரடி
--  ‘অস্বাস্থ্যকর’ বাতাস নিয়ে আজ বিশ্বে তৃতীয় ঢাকা
+-  Araba piyasasında Şubat ayı sürprizi! Araç alacaklar için kritik tarih verildi
+-  ÖTV istisnası! Limit güncellemesi yapıldı, 1 milyon 591 bin TL oldu
+-  Renunció la militante de 23 años que cobraba un sueldo millonario en el Renaper
+-  옥주현, 뮤지컬 캐스팅 독식 논란 언급…“당당한가 물으면 YES”
+-  강태오, 담백한 전역 소감…“뜻 깊은 시간이었다”
+-  Az eltűnő tyúkóltolóajtó rémképe
+-  Hojlund vui mừng khi khiến những người chỉ trích câm lặng
+-  Döviz Kredileri Patladı...
+-  願書提出ミス「生徒には非がない」、高校側が特例で３人に受験機会設ける - 読売新聞オンライン
+-  한동훈, 이종섭·황상무 논란에 “입장 변함 없다…선거 앞 민감해야”
