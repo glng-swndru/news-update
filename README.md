@@ -1,11 +1,11 @@
 # Latest News
--  Présidentielle 2024 : Léna Sène quitte Karim Wade pour...
--  Anforderungen an Cybersecurity steigen, Pkw-Angebot schrumpft​
--  Anforderungen an Cybersecurity steigen, Pkw-Angebot schrumpft​
--  Būtingės terminalo krova šiemet augo 15 proc. iki 1,6 mln. tonų
--  Familiares tienen que comprar insumos en IPS para sus pacientes en UTI
--  Fatma Çimen Tuğlu: Yaşlılarımızı unutmayalım ve onlara her zaman sevgi ve saygıyla yaklaşalım
--  Ingatlant értékesített? Ne feledkezzen meg az adójáról!
--  அதிமுக சார்பில் ஓபிஎஸ்.. கொடுத்த அழைப்பு.. அதிர்ந்த அரங்கம் | OPS | ADMK | BJP | NDA | Tamil News
--  El Banco de Japón ha subido sus tasas 10 puntos básicos
--  Bloomberg о дроновых ударах по российским НПЗ: Минус 10-15% ежедневной нефтепереработки
+-  Ali Babacan 'Ümit Özdağ'la gizli protokol'ü anlattı
+-  Foggia fuori dal piano di riequilibrio, la Direl plaude all'operato di Dicesare: “Fine di un incubo”
+-  Milli takımlara en fazla futbolcu gönderen kulüp belli oldu
+-  Aydın ve Ege kıyılarının sesi yükseliyor: Kirliliğe dur deyin!
+-  Seimo pirmininkė: ketvirtadienį rengiama nepasitikėjimo kancleriu procedūra
+-  'I've been married for 18 years and only just found out my kids aren't mine'
+-  Dursun Özbek'ten flaş açıklamalar!
+-  Thần đồng toán học 12 tuổi dạy trực tuyến cho sinh viên đại học
+-  Mahasiswa Desak KPK Usut Dugaan Keterlibatan Menhub di Kasus Korupsi Kereta Api
+-  Китайската армия и държавните медии критикуват САЩ след доклад на Ройтерс за шпионски сателити на SpaceX
