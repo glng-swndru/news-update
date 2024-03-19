@@ -1,11 +1,11 @@
 # Latest News
--  ΕΕΥ: Προαγωγές στη θέση Βοηθού Διευθυντή Α΄ Μέσης Γενικής Εκπαίδευσης για ΣΕΑ
--  Bayram günlərindən sonrakı ilk dərs günlərinin vaxtı
--  Top-division rookie Takerufuji continues unbeaten march
--  Шон СТРИКЛЕНД: «Я богат и успешен, но опасен для людей»
--  Negentiende-eeuwse schoolmeesterwoning uit Skingen is Duurzaamste Huis van Fryslân
--  Neue staatliche Unterstützung ab 1.4.: Wer jetzt Qualifizierungsgeld beantragen kann
--  [경제직필]가계부채와 정부부채의 변주곡
--  Jornalista alvo de buscas da Polícia Judiciária
--  Mattarella, estinguere i fuochi di guerra in Europa
--  Polarluft erreicht NRW: DWD erwartet Kälteeinbruch in Köln und Region – Graupel und Schnee möglich
+-  Olisiko ”Lohjan mallissa” ratkaisu salolaisten ahdinkoon? Näin lippurahat liikkuvat Salon naapurissa
+-  Festnahme wegen Terrorverdacht: Mutmaßliche Islamisten festgenommen – Anschlagsplan in Schweden
+-  Cumhurbaşkanı Erdoğan: İBB nereye gittiği belli olmayan deste deste para görüntüleriyle anılmaktadır
+-  Uskumatu juhtum: Küprose liigas tahtsid ühe mängu mõlemad meeskonnad saada loobumiskaotuse
+-  Funsat tem mais de duas mil oportunidade de emprego
+-  Denizli İş Dünyası, Hazine ve Maliye Bakanı Mehmet Şimşek ile İstişare Toplantısı Gerçekleştirdi
+-  Một công trình Việt rộng 13.000m2 đạt giải lớn về kiến trúc thế giới: Nằm ở "hòn ngọc xanh", chỉ cách TP.HCM hơn 1,5h đi xe
+-  PayPay「ポイント運用」利用者が1500万人を突破 ポイントの平均増加率はプラス42.7％
+-  Toledo quiere mejorar el diálogo entre sus barrios con unas jornadas de convivencia que engloban más de 100 acciones
+-  MATSO BAşkanı Güngör: "Sektörde eğitim almış kişiler kaliteyi artırıyor"
