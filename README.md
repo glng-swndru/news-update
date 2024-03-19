@@ -1,11 +1,11 @@
 # Latest News
--  Trabzonspor'a ceza gelecek mi? Fenerbahçe maçı sonrası...
--  麻將館無良老闆教唆員工販毒 花蓮警逮4人...查獲咖啡毒包
--  Bursa'nın meşhur restoranı Köfteci Yusuf'un hangi şehirlerde şubeleri var?
--  東元參展智慧城市展 大秀智慧電力解決方案
--  Anthony Edwards throws down monster slam as Timberwolves win - ESPN
--  '노무현 비하' 막말 자꾸 드러나는 양문석…사위 곽상언 "공천 취소 사안 아냐"
--  पाकिस्तान के केंद्रीय बैंक ने ब्याज दरों में नहीं किया कोई बदलाव
--  케이옥션, 베르나르 프리츠-이우환 등 국내외 유명작가 작품 98점 경매 출품
--  17 yıl sonra ilk kez: Japonya, faiz politikasını değiştirdi
--  Goalkeeper says avoiding relegation is now main target for Inverness
+-  Hvalavinir vilja að Ísland segi sig úr NAMMCO
+-  Watch: Pilot makes a special announcement with baby daughter to celebrate her first flight with him
+-  DR Kongo will wieder hinrichten: Das Land „von Verrätern reinigen“
+-  TCS Shares Tank Over 3% After Tata Sons Divests 0.65% Stake
+-  Bursa'da üniversitelilere özel ayrıcalıklı spor merkezi
+-  Hãng bay Việt vừa trả hết tàu bay: Từng được hãng ngoại mua rồi trả lại, lỗ luỹ kế 10.700 tỷ đồng
+-  End of an era as Japan ends negative interest rates – business live - The Guardian
+-  Dailes teātrī gaidāma pirmizrāde igauņu režisoru iestudējumam «Meistars un Margarita»
+-  Tužne vijesti, iznenada preminuo bivši NHL igrač, bio je u vezi s drugom tenisačicom svijeta
+-  Four to answer bail over Matthew Griggs murder in Sprowston
