@@ -1,11 +1,11 @@
 # Latest News
--  Autocracies outnumber democracies worldwide
--  'Kinh đô ô tô' của Mỹ mất ngủ vì Trung Quốc: Số phận của nhiều hãng xe hơi và hàng triệu công nhân bị đe dọa bởi những chiếc xe điện có giá chỉ nhỉnh hơn Vespa
--  Trump under fire over ‘bloodbath’ comment
--  1분기 ‘자랑스러운 중소기업인’에 김동섭ㆍ김재중 대표 선정
--  Autocracies outnumber democracies worldwide
--  Việt Nam phát hiện một loài rắn mới chưa từng được công bố trước đó ở Đắk Nông
--  Rose Hanbury Buka Suara tentang Rumor Perselingkuhannya dengan Pangeran William
--  VIP Chuyên sâu: Preview FOMC tháng 3: Lạm phát cao dai dẳng cản trở ông Powell hạ lãi suất – Top 3 điều cần theo dõi (Phần 2 -hết)
--  MTI: Mudik Lebaran Tahun Ini Hadapi Tantangan Cuaca yang Berat
--  US Supreme Court sceptical of curbing govt contact with social media firms
+-  Guerra Israel - Hamás, en directo: última hora de la guerra en Gaza hoy, 19 de marzo
+-  Murat Kurum ''Kanal İstanbul'' sorusuna bu yanıtı verdi
+-  Pemkot Surabaya Larang ASN Mudik Pakai Mobil Dinas, Siap-siap Jika Melanggar
+-  Staatslabor wieder im Krisenmodus
+-  “몰려오는 ESG 수출규제.…경쟁 차별화 기회 삼아야”
+-  Bộ Chính trị điều động, chỉ định nhân sự giữ chức Bí thư Tỉnh ủy, Quyền Bí thư Tỉnh ủy
+-  Crs say council 'unethical and unfair' to aircraft maintenance business
+-  "Ông lớn" Big 4 hạ lãi suất cho vay mua nhà xuống mức siêu thấp: Còn 6,5%/năm áp dụng 2 năm đầu tiên
+-  திருச்சியில் ரூ.13,45,730 பணம் பறிமுதல்; தேர்தல் பறக்கும் படையினர் அதிரடி
+-  ‘অস্বাস্থ্যকর’ বাতাস নিয়ে আজ বিশ্বে তৃতীয় ঢাকা
