@@ -1,11 +1,11 @@
 # Latest News
--  Feds paying close attention to B.C. policies as a national reference point
--  Model and actor Cara Delevingne’s Los Angeles home is destroyed in fire
--  Ibovespa tem viés de alta com NY e minério,antes das decisões de juros nos EUA e no Brasil
--  Model and actor Cara Delevingne’s Los Angeles home is destroyed in fire
--  Feds paying close attention to B.C. policies as a national reference point
--  Elégedetlenek a közigazgatási alkalmazottak Romániában
--  Warum Telepolis für Ihre Unterstützung wirbt – und was wir dafür tun
--  Model and actor Cara Delevingne’s Los Angeles home is destroyed in fire
--  Juazeirense desembarca em Maceió para enfrentar o CRB pela Copa do Nordeste
--  Model and actor Cara Delevingne’s Los Angeles home is destroyed in fire
+-  В Европа са 4 от 5-те най-предпочитани от инвеститорите дестинации
+-  Mardin'de seçime aracına taşlı saldırı: 1 yaralı
+-  DARA BUBAMARA 40 DANA BEZ DEČKA! Pevačica otkriva zbog čega je sama: Posvetila sam se sebi, uveče je kriza...
+-  Snoqualmie Casino announces their New Country Roundup event
+-  Açúcar: Agradeça aos fundos
+-  Reckitt Benckiser sees modest bounce following $7.1 billion market-cap wipeout
+-  Санітарна зона в Україні та обмін Навального: Пєскову довелося пояснювати слова Путіна
+-  बिहार: इंडिया गठबंधन में भी सीट बंटवारा हो गया तय, लेकिन कई सीटों पर अभी भी फंसी है बात
+-  Woman accused of murdering husband was abused by him for years, son says - The Guardian
+-  Fire awakens family in Townsend Avenue home in Helena
