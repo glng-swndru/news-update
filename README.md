@@ -1,11 +1,11 @@
 # Latest News
--  La petrolera BP inicia el diálogo sobre campos de gas con Trinidad y Venezuela
--  এহাল বৃদ্ধ দম্পতীৰ এখন খাদ্যৰ বিপণি, খাদ্যৰ বিপণিখনত সদায় ভিৰ হয় বহু লোকৰ
--  현존 최고 ‘베토벤 스페셜리스트’ 부흐빈더 6월 내한 ‘피아노 협주곡’ 진수성찬 차린다
--  Los 70 pediatras que han obtenido plaza por concurso de méritos deberán incorporarse antes del 19 de abril
--  Ross-shire musicians make mark at music festival
--  Hodges Ward Elliott Arranges Sale of Three Select-Service Hotels
--  DEVIN пусна първите си бутилки, направени от 100% рециклиран PET
--  Mercato immobiliare, cresce la domanda di acquisto dalle giovani coppie: tra gli affitti prevalgono i contratti transitori
--  Koray Avcı'dan Selami Şahin şarkısı: 'Ne faydası var' parçasını seslendirdi...
--  Американский журналист Херш: «Россия преуспела в создании крайне отрицательного образа в вопросе допинга. Весь мир понял – она пойдет на что угодно ради победы»
+-  Raquel vai abrir nova FUNASE na região metropolitana e fará contratação sem concurso de 271 agentes
+-  Un nuovo giardino in via Ricchioni con area sport e giochi: "Recuperato uno spazio abbandonato"
+-  Advogado preso após tentar matar a ex-mulher vai responder a processo na OAB-PE
+-  Ekrem İmamoğlu'ndan CHP Kağızman adayı Sergül Keskin'e destek
+-  EKSKLUZIVNO ZA KURIR! BIZNISMEN IZ VRŠCA OTKRIO SVE DETALJE O OTMICI SINA: Sačekali ga posle rođendana i 7 sati ga tukli i mučili!
+-  Tulliani, 'ho nascosto a Fini origine denaro per casa Monaco'
+-  Hämeenlinna keskustelee Oma Hämeen kanssa kiinteistöjen vaihdosta – Näistä kiinteistöistä on kyse
+-  Yet another fraud warning: Beware of scammers impersonating RCMP
+-  A cada 10 minutos, um motociclista é parado por irregularidades no trânsito
+-  147 100 млади българи не работят и не учат, но харчат джобни от 500 до 2300 лв. на месец (графика)
