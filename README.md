@@ -1,11 +1,11 @@
 # Latest News
--  Ερντογάν: Η Κύπρος θα ήταν όλη δική μας σήμερα, αν δεν σταματούσαμε το 1974
--  B.C. to provide $80 million to help farmers cope with drought
--  Samsunspor'dan Trabzonspor-Fenerbahçe maçında çıkan olaylarla ilgili açıklama
--  Sergejus Maslobojevas po pergalės Vilniuje: „Mano tikslas - susigrąžinti „Glory“ čempiono diržą“
--  Mato Grosso do Sul participa na definição de políticas públicas para a cultura nacional
--  Larm om trafikolycka
--  Проучване на New-Europe: Около половината от гласовете за Путин са фалшифицирани (ВИДЕО)
--  Ertuğrul Doğan'dan sert sözler: 'Hiç kimse Trabzonspor’un şerefli taraftarını...'
--  Парапланеристка загина след удар в лифт в Австрия - Труд
--  Gold underfoot? B.C. could hold vast reserves of natural hydrogen (BC)
+-  Linkedin harkitsee uutta aluevaltausta – ratko pulmia, saa pisteitä
+-  Entrevista de Wanessa Camargo no Fantástico divide opiniões
+-  “Falta muito para se fazer”, diz Lula ao abrir reunião ministerial
+-  Após anúncio de término, Dado Dolabella canta música sobre coração partido: Um grande amor não pode terminar assim
+-  Рақамлаштириш соҳасида хизмат кўрсатиш бўйича экспорт шартномавий ҳужжатларни халқаро платформаларда расмийлаштиришга рухсат берилади
+-  Internado, Anderson Leonardo passa por procedimento para dor e aguarda avaliação para alta hospitalar
+-  Жителей белгородского села вывезут для ликвидации взрывоопасного предмета
+-  Nura Suridən Xəyyam Nisanov barədə ŞOK SÖZLƏR - VİDEO
+-  Il riconoscimento delle elezioni di Putin per l'occidente è una strada senza scampo
+-  Școlile sunt obligate să publice autorizaţia de securitate la incendiu, potrivit unui proiect adoptat de Senat
