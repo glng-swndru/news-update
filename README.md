@@ -1,11 +1,11 @@
 # Latest News
--  Meet Shreyanka Patil, RCB fans' new favourite, who was awarded Purple Cap in WPL 2024, she is from...
--  Paysera България планира IPO на пазара за растеж на БФБ
--  Männer der HSG Saalfeld/Könitz verteidigen Tabellenspitze
--  Совет министров иностранных дел ЕС одобрил €5 миллиардов на военную поддержку Украины, - МИД Украины
--  Elezioni amministrative Cagliari 2024: data, candidati e sondaggi
--  Wspólna inicjatywa Polski i Niemiec. "To jest jedna z najważniejszych koalicji"
--  Covid, giornata nazionale delle vittime. Crosetto: "Combattuto un nemico comune"
--  Yamaç paraşütü yapan akademisyen kayalıklara düştü
--  Željka Sopića smo uhvatili u zanimljivom društvu i pitali za fotografiju, evo kako je odgovorio
--  « La situation n’est plus supportable » : pourquoi les fonctionnaires se mettent-ils en grève ce mardi ?
+-  Lewandowski aż złapał się za głowę. Takiego pytania jeszcze nigdy nie dostał
+-  Merkez Bankası'nın faiz kararı ne olacak?
+-  이종섭 · 황상무로 대립한 날…비례 공천 '반발'
+-  Hate crime reports and antisemitic incidents in Toronto are rising, police chief says
+-  Bencana Jateng, Ratusan Ribu Jiwa Terdampak, 15 Orang Meninggal Dunia
+-  Hate crime reports and antisemitic incidents in Toronto are rising, police chief says
+-  Vier Verletzte in Solingen: Einer in Lebensgefahr
+-  Трагедия в Казанлък! 10-годишно дете почина в двора на училище
+-  Misshandelte Jugendliche aus Klinik entlassen: Ermittlungen
+-  На частку українського транзитного зерна в портах Польщі припадає 10%, – ЗМІ
