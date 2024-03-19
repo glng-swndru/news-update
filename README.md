@@ -1,11 +1,11 @@
 # Latest News
--  Araba piyasasında Şubat ayı sürprizi! Araç alacaklar için kritik tarih verildi
--  ÖTV istisnası! Limit güncellemesi yapıldı, 1 milyon 591 bin TL oldu
--  Renunció la militante de 23 años que cobraba un sueldo millonario en el Renaper
--  옥주현, 뮤지컬 캐스팅 독식 논란 언급…“당당한가 물으면 YES”
--  강태오, 담백한 전역 소감…“뜻 깊은 시간이었다”
--  Az eltűnő tyúkóltolóajtó rémképe
--  Hojlund vui mừng khi khiến những người chỉ trích câm lặng
--  Döviz Kredileri Patladı...
--  願書提出ミス「生徒には非がない」、高校側が特例で３人に受験機会設ける - 読売新聞オンライン
--  한동훈, 이종섭·황상무 논란에 “입장 변함 없다…선거 앞 민감해야”
+-  Does a Ugandan MP still value the electorate?
+-  Jain Religion: जैन धर्म में मृत्यु पर इस तरह विजय प्राप्त करते हैं संत, काफी कठिन है समाधि की अनोखी परंपरा
+-  Telkomsel and Huawei Inaugurate Indonesia's First 5G Smart Warehouse and 5G Innovation Center
+-  İki organize suç örgütü çökertildi: 25 şüpheli gözaltında
+-  Korišćenje kapele u Golubovcima koštaće 80 eura
+-  NVIDIA GTC出現機器人大軍！ 黃仁勳宣布推出人型機器人
+-  水上バイク事故多発 飲酒で操縦の場合3カ月以下の懲役も 改正条例案が滋賀県で可決
+-  Thần đồng toán học 12 tuổi dạy trực tuyến cho sinh viên đại học
+-  ‘팀킬 논란’ 황대헌, 연이은 반칙에 임효준 소환
+-  INSÄNDARE: Beröva inte Gävleborna möjligheten att nå sin kustpärla
