@@ -1,11 +1,11 @@
 # Latest News
--  Was passiert, wenn Trump nicht zahlen kann?
--  Berane: Uhapšeno pet osoba osumnjičenih za nanošenje tjelesnih...
--  Кулеба запросил срочную помощь у ЕС и США для Украины
--  رقم تاريخي مرعب لنادي الجيش الملكي
--  Cotação do Brent para entrega em maio sobe 1,82% para 86,89 dólares
--  İşte incecik yufka açmanın püf noktası; Hem daha lezzetli hem kağıt gibi
--  [모닝와이드] 오늘의 주요뉴스
--  Вірт: Лунін більше заслуговує грати у стартовому складі
--  Madhya Pradesh: Vijayvargiya Inaugurates Election Office, Extols Modi's Leadership In Khargone
--  Procurila prva snimka Kate Middleton nakon Božića, evo kako se ponaša i izgleda usred svih teorija zavjera koje o njoj kruže!
+-  QRCS gives handicraft training for poor women in Bangladesh
+-  Włoski klub ma nowego trenera. Czy to pomoże w powrocie do czołówki?
+-  Stephen Samuel Transforms Industries: From Premier Pharmacy Services to Evolve Realty & Development Corp.
+-  Gökhan Zan'ın para pazarlığı iddiası: Kilit isim Turgay Kocakaya KRT'ye konuştu
+-  Delcath Systems bổ nhiệm COO mới để tăng cường hoạt động
+-  Juan Jesus attacca Acerbi: “Mi ha detto negro e ora si rimangia tutto, anche le scuse. Non ci sto, basta razzismo”
+-  Juan Jesus attacca Acerbi: “Mi ha detto negro e ora si rimangia tutto, anche le scuse. Non ci sto, basta razzismo”
+-  ऑपरेशन बढ़ाने के लिए डेल्कैथ सिस्टम्स ने नए सीओओ का नाम दिया
+-  مدير عام صندوق نظافة أبين يسلم مدير عام خنفر 200 كشافة لإضاءة شوارع المديرية
+-  حاكم عجمان وولي عهده يتقبلان تهاني ولي عهد رأس الخيمة والمهنئين برمضان
