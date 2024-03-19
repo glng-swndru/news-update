@@ -1,11 +1,11 @@
 # Latest News
--  GIFT Nifty indicates subdued opening
--  Mehrere Automodelle fallen Cyber-Security-Regeln zum Opfer
--  나주시, 구강건강 교육
--  Cục CSGT: Phát hiện 132 bất hợp lý trong tổ chức giao thông cao tốc
--  [ITmedia エンタープライズ] 富士通がマルウェア感染を報告 侵入経路などは現在調査中
--  Khai thác hiệu quả nguồn lực đất đai
--  ۷۴ سال پیش نفت به ملت رسید
--  კობახიძე: მნიშვნელოვანია, რომ ილია თოფურიას საქართველოს მოქალაქეობა შეუნარჩუნდეს
--  與, 비례대표 공천 논란…'당정 갈등' 대리전 양상
--  Mudik Gratis Idul Fitri 1445 Hijriah dari Pelindo Group, Rute Makassar-Palopo dan Makassar-Bulukumba
+-  Paul Munster Enggan Meremehkan Tim Papan Bawah Liga 1, Sentil Zona Degradasi
+-  Cegah Kebakaran dan Pencurian, Pemudik Diminta Lapor RT/RW
+-  Woman with ‘world’s biggest cheeks’ reveals what she wants from ideal boyfriend
+-  Woman lives with 2 vaginas and 2 uteruses due to rare condition; find out what it is
+-  第1子妊娠中の峯岸みなみが近況報告 夫が「双子」の可能性についても言及
+-  大谷翔平選手 韓国代表戦に出場 ３打数ノーヒット 開幕前 最後のエキシビションマッチ
+-  Tamil Nadu: PM Modi to share stage with NDA alliance leaders in Salem public meeting today
+-  Движение грузовиков по Военно-Грузинской дороге временно запрещено
+-  Azureも他社クラウド移行時のデータ転送料を無料に Google Cloud、AWSに続き
+-  Fessenden, ND, man dies in tractor accident Monday
