@@ -1,11 +1,11 @@
 # Latest News
--  QRCS gives handicraft training for poor women in Bangladesh
--  Włoski klub ma nowego trenera. Czy to pomoże w powrocie do czołówki?
--  Stephen Samuel Transforms Industries: From Premier Pharmacy Services to Evolve Realty & Development Corp.
--  Gökhan Zan'ın para pazarlığı iddiası: Kilit isim Turgay Kocakaya KRT'ye konuştu
--  Delcath Systems bổ nhiệm COO mới để tăng cường hoạt động
--  Juan Jesus attacca Acerbi: “Mi ha detto negro e ora si rimangia tutto, anche le scuse. Non ci sto, basta razzismo”
--  Juan Jesus attacca Acerbi: “Mi ha detto negro e ora si rimangia tutto, anche le scuse. Non ci sto, basta razzismo”
--  ऑपरेशन बढ़ाने के लिए डेल्कैथ सिस्टम्स ने नए सीओओ का नाम दिया
--  مدير عام صندوق نظافة أبين يسلم مدير عام خنفر 200 كشافة لإضاءة شوارع المديرية
--  حاكم عجمان وولي عهده يتقبلان تهاني ولي عهد رأس الخيمة والمهنئين برمضان
+-  대전건설단체총연합회 제12회 정기총회 개최...지역건설업 발전 방안 모색
+-  대전지방보혼청, 서해수호날 계기 '제2연평해전·천암함' 국가유공자 유족 위문
+-  PRÉSIDENTIELLE 2024 | TEMPS D'ANTENNE BASSIROU DIOMAYE DIAKHAR FAYE
+-  北, 초대형방사포 사격훈련…김정은 “적 수도 붕괴 완비 태세”
+-  "موسم رمضان".. فعاليات ترسم البهجة والفرح على الأطفال بحائل
+-  Israel e Hamas se enfrentam no maior hospital de Gaza
+-  الكاف: الحوثية جعلت الناس يعيشون في وضع سيء ويزدادون فقرًا
+-  Taylor Swift shares important message about Tortured Poets Department
+-  'Air Bidens': President Biden's sneakers choice sparks curiosity over social media
+-  Reba McEntire’s NBC Comedy Pilot Adds Tokala Black Elk, Rex Linn & Pablo Castelblanco
