@@ -1,11 +1,11 @@
 # Latest News
--  Turistler akın akın o ülkeleri ziyaret ediyor! Bakın Türkiye kaçıncı sırada...
--  Man Utd, Chelsea and Liverpool may benefit from Nottingham Forest points deduction - Express
--  Balıkesir'de korkutan deprem
--  Ще има отстъпления от списъка с министри: Политолог за ротацията
--  SON DƏQİQƏ! Əhaliyə müraciət edildi
--  Първата творба на Банкси за 2024 г. разбуни духовете в Лондон (ВИДЕО)
--  「今夜どうなるのか…」長野県内で大規模停電 変電所の設備に鳥が接触 3万戸以上に影響
--  Lisa Vanderpump wasn't shocked by Jax Taylor's break-up
--  [그래픽] 22대 총선 격전지 - 서울 서대문을
--  Japonya, 17 yıl sonra ilk kez faiz artırdı
+-  Trabzonspor'a ceza gelecek mi? Fenerbahçe maçı sonrası...
+-  麻將館無良老闆教唆員工販毒 花蓮警逮4人...查獲咖啡毒包
+-  Bursa'nın meşhur restoranı Köfteci Yusuf'un hangi şehirlerde şubeleri var?
+-  東元參展智慧城市展 大秀智慧電力解決方案
+-  Anthony Edwards throws down monster slam as Timberwolves win - ESPN
+-  '노무현 비하' 막말 자꾸 드러나는 양문석…사위 곽상언 "공천 취소 사안 아냐"
+-  पाकिस्तान के केंद्रीय बैंक ने ब्याज दरों में नहीं किया कोई बदलाव
+-  케이옥션, 베르나르 프리츠-이우환 등 국내외 유명작가 작품 98점 경매 출품
+-  17 yıl sonra ilk kez: Japonya, faiz politikasını değiştirdi
+-  Goalkeeper says avoiding relegation is now main target for Inverness
