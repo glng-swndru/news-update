@@ -1,11 +1,11 @@
 # Latest News
--  [오늘의 IR] 현대자동차, 싱가포르서 회사소개 및 주요 사업현황에 대한 투자자 이해 증진
--  Soccer-Real Madrid slam referee for not reporting abuse against Vinicius Jr
--  Đặc sản béo nung núc "độc nhất vô nhị" ở Việt Nam khiến người rùng mình, kẻ khiếp sợ nhưng ăn là si mê
--  Türkiyə insansız sualtı qayıqlar hazırlamağı planlaşdırır
--  Introducing ‘Mr. Sanders’: Chef Hercules Noble Debuts New Restaurant On Ponsonby Road
--  Cross border response as fire sparked in shed at Wodonga petrol station
--  Nvidia lanza Blackwell y NIM: El futuro de la inteligencia artificial
--  الدبيبة يؤكد أن الوضع الاقتصادي لا يستدعي فرض ضريبة على الصرف بسبب سداد الدّين العام وتحقيق فائض
--  دستمزد کارگران ۳۵درصد افزایش یافت/ نمایندگان کارگری درجلسه نبودند
--  حداقل دستمزدکارگران ۳۵.۳درصد افزایش یافت/ سایر سطوح ۲۲ درصد
+-  Dogodilo se na današnji datum, 19. mart
+-  தோட்டத்தில் கஞ்சா பதுக்கிய வழக்கு: உரிமையாளருக்கு 12 ஆண்டுகள் சிறை
+-  한동훈, 동작 · 서대문 · 마포 등 '한강벨트' 찾아 지원 사격
+-  강동구 ‘주민참여예산 제안사업’ 공모
+-  Les positions s’affinent à la Coupe de Tahiti
+-  Lavanta yağının saça faydası var mı, nasıl kullanılır?
+-  Inter, l'ex Bordon: "Caso Acerbi gravissimo, giusta l'esclusione dalla Nazionale"
+-  Debut vocal recital of Shenuk Wijesinghe
+-  Dogodilo se na današnji datum, 19. mart
+-  "케이뱅크, 올해 순익 5배 성장할 것…대출 여력 9.8조까지 증가"
