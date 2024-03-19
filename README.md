@@ -1,11 +1,11 @@
 # Latest News
--  Wann die toxische Beziehung zur Chance für Paare werden kann
--  Россия, Китай и Иран усилили свое военное присутствие в Антарктиде
--  Wann die toxische Beziehung zur Chance für Paare werden kann
--  Česko jako postsovětský satelit? Americký deník upravil titulek článku o munici pro Ukrajinu
--  Kullarspor’un haftası
--  Gazze'de halkın tek iftar ve sahur seçeneği konserve yiyecek
--  Recent surge in gas prices in the GTA only the 'beginning,' analyst says
--  Колко време трябва да се пече баницата, за да хване златистата коричка
--  Celebree School Raises $215,000 for Children's Hospitals Across the Country
--  Crown Princess Victoria of Sweden rewears statement dress emblazoned with swans as she visits the Foreign Service Academy in Bangladesh
+-  Meet Shreyanka Patil, RCB fans' new favourite, who was awarded Purple Cap in WPL 2024, she is from...
+-  Paysera България планира IPO на пазара за растеж на БФБ
+-  Männer der HSG Saalfeld/Könitz verteidigen Tabellenspitze
+-  Совет министров иностранных дел ЕС одобрил €5 миллиардов на военную поддержку Украины, - МИД Украины
+-  Elezioni amministrative Cagliari 2024: data, candidati e sondaggi
+-  Wspólna inicjatywa Polski i Niemiec. "To jest jedna z najważniejszych koalicji"
+-  Covid, giornata nazionale delle vittime. Crosetto: "Combattuto un nemico comune"
+-  Yamaç paraşütü yapan akademisyen kayalıklara düştü
+-  Željka Sopića smo uhvatili u zanimljivom društvu i pitali za fotografiju, evo kako je odgovorio
+-  « La situation n’est plus supportable » : pourquoi les fonctionnaires se mettent-ils en grève ce mardi ?
