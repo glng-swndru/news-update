@@ -1,11 +1,11 @@
 # Latest News
--  민주 "151석이 최대 희망 목표…1당 힘겨운 '반집 싸움'"
--  새미래, 오픈 프라이머리 공약…"패권공천 막아야"
--  Halstead Town thrash Coggeshall Town in Essex Senior League
--  Ragnar Oratmangoen Tidak Sabar Main Lawan Vietnam di Gelora Bung Karno: Semua Suporter Datang, Ini Gila!
--  한동훈 “종북세력 막을 세력은 국힘 뿐…죽어도 서서 죽겠다”
--  Đắt hơn thịt, mận đầu mùa giá gần 300.000 đồng/kg, khách không tiếc tiền mua
--  Labor Minister ‘Not Sure’ If US Is Australia’s Most Trusted Ally
--  مؤتمر "المذاهب الإسلامية": الأزمة الفلسطينية أعظم كارثة إنسانية في عصرنا
--  For the dough: alleged thief spotted stretching before bakery break-in
--  مؤتمر "المذاهب الإسلامية" يخصص جلسة للتضامن مع غزة
+-  黃仁勳GTC大會秀新晶片 AI氣象系統讓全球看見台灣
+-  Məşhur aktrisanın ödədiyi kirayə dodaq uçuqlatdı
+-  Porziņģis gūst 20 punktus «Celtics» uzvarā NBA mačā pret «Pistons»
+-  越南国会常务委员会第31次会议：扩大免签政策有利于越南旅游业的发展
+-  В России экс-участник военных действий застрелил мужчину в ресторане
+-  Porziņģis atgriežas ar 20 punktiem «Celtics» uzvarā pār «Pistons»
+-  الحل الوحيد أمام الهلال في حال عدم تأجيل مباراته مع الأهلي
+-  El tiempo en Ogíjares: previsión meteorológica para hoy, martes 19 de marzo
+-  車が何らかの理由で動き後退…79歳女性が意識不明の重体 マニュアル車 サイドブレーキがかかっていたかなど調べる
+-  Une politique de visa favorable stimule la reprise du tourisme
