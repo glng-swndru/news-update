@@ -1,11 +1,11 @@
 # Latest News
--  Dışişleri Bakanı Hakan Fidan’dan net mesaj: Artık ulusal bir güvenlik tehdidi olmuştur
--  عامل اقليم الحسيمة يتفقد مؤسسات الرعاية الاجتماعية
--  김부겸 "임종석 선대위 합류할 것… 양문석 재검증 요청"
--  AB Yüksek Temsilcisi Borrell: Tek çözüm, İsrail'e siyasi baskı uygulamaktır
--  'Significant milestone' for new R&A facility GolfIt!
--  Calvin Ridley: este salario recibirá en los Titans, su nuevo equipo de la NFL
--  KAD TI BIVŠA NAPRAVI PAKAO OD ŽIVOTA! Vlahovića nastavlja da progoni plavuša sa skutera: Pogledajte poslednju PODVALU Elene Sofije
--  Lava is still moving very slowly
--  Emekli vatandaş çalışıyorsa iktidarın ayıbı
--  80-letnik pričakoval bajno dediščino iz Kanade, a dobil ...
+-  Hajto domaga się wstrząsu w kadrze. Niewiarygodne, kogo by wymienił
+-  காா்களில் கட்சிக் கொடி கட்டினாலும்பிரசார வாகனமாக கருதப்படும்: புதுச்சேரி மாவட்ட ஆட்சியா் அறிவிப்பு
+-  Şehitler Abidesi'ne özel ışıklandırma: Türk Bayrağı yansıtıldı!
+-  Golobradi Hrvat jurio 254 km/h kroz Sloveniju. Dobio je paprenu kaznu
+-  Grizman zbog povrede prekida rekordni niz
+-  Coroner releases preliminary cause of death for 18-year-old found in Versailles lake - WLWT Cincinnati
+-  Новак Ѓоковиќ е „мајстор“ на кежуал стилот: Познатиот тенисер во едно од најдобрите модни изданија досега
+-  "Majku kritikujem jer nastupa": Nikoliji se ne dopada što Vesna Zmijanac peva ugroženog zdravlja, iznela detalje njenog stanja (VIDEO)
+-  Minden jegy elkelt a pénteki magyar-törökre
+-  San Francisco 49ers llegan a acuerdo con Joshua Dobbs
