@@ -1,11 +1,11 @@
 # Latest News
--  【速報】天皇皇后両陛下が3月22日に能登半島地震の被災地へ 日帰りで輪島と珠洲をお見舞い 現地の負担を考慮
--  Китай увеличил импорт газа
--  Setelah Kunjungan Bill Gates, Kota Wisata di Vietnam Ini Diminati Banyak Turis
--  Emelec: Cuerpo técnico y jugadores reconocen que el rendimiento debe mejorar
--  Bruno Mars out of casino debt accusations?
--  박용진 "서울 후보 뽑아달라는 호소를 전주에서…기막힌 상황"
--  More Beautiful Weather For California
--  Pulgar, do Flamengo, é cortado dos amistosos do Chile por desgaste muscular
--  Méo mặt với phí, lãi thẻ ngân hàng
--  Rahasia Penting Menunaikan Sholat Tarawih
+-  Caso Viaducto Bicentenario: Juzgadores exhiben deficiencia de la FGR
+-  لقاء بوزارة التربية مع منظمة اليونيسيف بعدن
+-  Chefs d'entreprises de presse sénégalaise reçus en audience: Le Président Macky Sall accorde un effacement des impôts et taxes dus par ces entreprises
+-  سفير الدولة في كولومبيا يقدم أوراق اعتماده
+-  Корвет ТОФ провел учение по борьбе безэкипажными катерами в Японском море
+-  Mulher é presa acusada de levar filha recém-nascida para bar em Sorriso
+-  Alcaraz bảo vệ thành công chức vô địch BNP Paribas Open nhờ những cú forehand
+-  Chefs d'entreprises de presse sénégalaise reçus en Audience: Le Président Macky Sall accorde un effacement des impôts et taxes dus par ces entreprises
+-  얼굴 꽁꽁 숨긴 정준영, 오늘(19일) 새벽 만기 출소 [DA:투데이]
+-  Mosby legal-defense fund donor list to remain secret following circuit court ruling
