@@ -1,11 +1,11 @@
 # Latest News
--  Эрдоган подтвердил планы провести летом контртеррористические операции в Ираке и Сирии
--  Alfreð: Gylfi hefur rétt á sínum tilfinningum
--  Online wellness content: 3 ways to tell evidence-based health information from pseudoscience
--  Santiago del Moro anunció la vuelta de un ex participante a Gran Hermano con una misión especial
--  Aşırı tuz tüketimi hangi rahatsızlıkları tetikler?
--  Edo guber polls: Tinubu predicts victory for APC
--  MeteoGiuliacci, i giorni in cui cambia tutto: "Svolta importante"
--  Cayeron 230 mm en 12 días sobre la Expoactiva, pero los cultivos están excelentes
--  Случаят със забавената линейка, при който почина мъж: Фелдшерът е нарушил протокола
--  Alfreð: Gylfi á rétt á sínum tilfinningum
+-  Dışişleri Bakanı Hakan Fidan’dan net mesaj: Artık ulusal bir güvenlik tehdidi olmuştur
+-  عامل اقليم الحسيمة يتفقد مؤسسات الرعاية الاجتماعية
+-  김부겸 "임종석 선대위 합류할 것… 양문석 재검증 요청"
+-  AB Yüksek Temsilcisi Borrell: Tek çözüm, İsrail'e siyasi baskı uygulamaktır
+-  'Significant milestone' for new R&A facility GolfIt!
+-  Calvin Ridley: este salario recibirá en los Titans, su nuevo equipo de la NFL
+-  KAD TI BIVŠA NAPRAVI PAKAO OD ŽIVOTA! Vlahovića nastavlja da progoni plavuša sa skutera: Pogledajte poslednju PODVALU Elene Sofije
+-  Lava is still moving very slowly
+-  Emekli vatandaş çalışıyorsa iktidarın ayıbı
+-  80-letnik pričakoval bajno dediščino iz Kanade, a dobil ...
