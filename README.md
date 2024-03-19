@@ -1,11 +1,11 @@
 # Latest News
--  Meryl Streep, para siempre en Oviedo: el zapato de tacón de la actriz ya preside el Calatrava
--  El conflicto en DXC se encona: la empresa se niega a negociar con los sindicatos que apoyan la huelga
--  El diagnóstico de Arango: "Somos una región declinante pero con grandes oportunidades"
--  Óscar Puente, que no acudirá a la reunión con Moriyón, visita a la alcaldesa de Santander
--  NC calls for DPM and Home Minister Lamichhane's resignation
--  윤 대통령 "의사면허로 국민 위협 안돼"…물가 경각심 주문
--  NC calls for DPM and Home Minister Lamichhane's resignation
--  WTO acknowledges Vietnam’s contributions to multilateral trade system
--  अधिकृतस्तरको कर्मचारी तोकेर मिटर ब्याजपीडितको उजुरी लिन गृहमन्त्रालयको निर्देशन
--  Evergrande-Chef lebenslang vom Aktienhandel ausgeschlossen
+-  GIFT Nifty indicates subdued opening
+-  Mehrere Automodelle fallen Cyber-Security-Regeln zum Opfer
+-  나주시, 구강건강 교육
+-  Cục CSGT: Phát hiện 132 bất hợp lý trong tổ chức giao thông cao tốc
+-  [ITmedia エンタープライズ] 富士通がマルウェア感染を報告 侵入経路などは現在調査中
+-  Khai thác hiệu quả nguồn lực đất đai
+-  ۷۴ سال پیش نفت به ملت رسید
+-  კობახიძე: მნიშვნელოვანია, რომ ილია თოფურიას საქართველოს მოქალაქეობა შეუნარჩუნდეს
+-  與, 비례대표 공천 논란…'당정 갈등' 대리전 양상
+-  Mudik Gratis Idul Fitri 1445 Hijriah dari Pelindo Group, Rute Makassar-Palopo dan Makassar-Bulukumba
