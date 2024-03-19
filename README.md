@@ -1,11 +1,11 @@
 # Latest News
--  Raquel vai abrir nova FUNASE na região metropolitana e fará contratação sem concurso de 271 agentes
--  Un nuovo giardino in via Ricchioni con area sport e giochi: "Recuperato uno spazio abbandonato"
--  Advogado preso após tentar matar a ex-mulher vai responder a processo na OAB-PE
--  Ekrem İmamoğlu'ndan CHP Kağızman adayı Sergül Keskin'e destek
--  EKSKLUZIVNO ZA KURIR! BIZNISMEN IZ VRŠCA OTKRIO SVE DETALJE O OTMICI SINA: Sačekali ga posle rođendana i 7 sati ga tukli i mučili!
--  Tulliani, 'ho nascosto a Fini origine denaro per casa Monaco'
--  Hämeenlinna keskustelee Oma Hämeen kanssa kiinteistöjen vaihdosta – Näistä kiinteistöistä on kyse
--  Yet another fraud warning: Beware of scammers impersonating RCMP
--  A cada 10 minutos, um motociclista é parado por irregularidades no trânsito
--  147 100 млади българи не работят и не учат, но харчат джобни от 500 до 2300 лв. на месец (графика)
+-  KOLIKO ĆE NA KRAJU KOŠTATI ERO? Vlada HNŽ dodatno se zadužila za 15 milijuna maraka za smještaj županijskih tijela
+-  Hết trồng 3.000 tấn rau xanh giữa sa mạc, các Tiểu vương quốc Ả Rập khiến thế giới ngỡ ngàng khi chi gần 500 tỷ đồng “gieo mây trên trời”
+-  Österreich erweitert Exportchancen für Schweineteile nach China
+-  Woman climbs building upset over rejected marriage proposal
+-  La Audiencia de Barcelona celebrará el martes una vista para resolver la libertad de Alves
+-  На Украине отмечен рост дезертирства, с начала года уже почти 4,7 тыс. случаев
+-  Ski club has to make every flake count to keep the trails open in mild winter
+-  Hazine, altın tahvili ve altına dayalı kira sertifikası ihraç etti
+-  Oso ataca a 5 personas, entre ellas un niño, en turística localidad eslovaca
+-  Yargı’nın son bölümüne tepki yağdı! Tuğçe’nin başına gelenler sosyal medyayı ayağa kaldırdı: ‘Bunu yazarken utanmadınız mı?’
