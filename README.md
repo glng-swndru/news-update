@@ -1,11 +1,11 @@
 # Latest News
--  Paul Munster Enggan Meremehkan Tim Papan Bawah Liga 1, Sentil Zona Degradasi
--  Cegah Kebakaran dan Pencurian, Pemudik Diminta Lapor RT/RW
--  Woman with ‘world’s biggest cheeks’ reveals what she wants from ideal boyfriend
--  Woman lives with 2 vaginas and 2 uteruses due to rare condition; find out what it is
--  第1子妊娠中の峯岸みなみが近況報告 夫が「双子」の可能性についても言及
--  大谷翔平選手 韓国代表戦に出場 ３打数ノーヒット 開幕前 最後のエキシビションマッチ
--  Tamil Nadu: PM Modi to share stage with NDA alliance leaders in Salem public meeting today
--  Движение грузовиков по Военно-Грузинской дороге временно запрещено
--  Azureも他社クラウド移行時のデータ転送料を無料に Google Cloud、AWSに続き
--  Fessenden, ND, man dies in tractor accident Monday
+-  Autocracies outnumber democracies worldwide
+-  'Kinh đô ô tô' của Mỹ mất ngủ vì Trung Quốc: Số phận của nhiều hãng xe hơi và hàng triệu công nhân bị đe dọa bởi những chiếc xe điện có giá chỉ nhỉnh hơn Vespa
+-  Trump under fire over ‘bloodbath’ comment
+-  1분기 ‘자랑스러운 중소기업인’에 김동섭ㆍ김재중 대표 선정
+-  Autocracies outnumber democracies worldwide
+-  Việt Nam phát hiện một loài rắn mới chưa từng được công bố trước đó ở Đắk Nông
+-  Rose Hanbury Buka Suara tentang Rumor Perselingkuhannya dengan Pangeran William
+-  VIP Chuyên sâu: Preview FOMC tháng 3: Lạm phát cao dai dẳng cản trở ông Powell hạ lãi suất – Top 3 điều cần theo dõi (Phần 2 -hết)
+-  MTI: Mudik Lebaran Tahun Ini Hadapi Tantangan Cuaca yang Berat
+-  US Supreme Court sceptical of curbing govt contact with social media firms
