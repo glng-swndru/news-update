@@ -1,11 +1,11 @@
 # Latest News
--  Tanzverbot an Karfreitag: Das sind die Regeln um Ostern
--  Tóc Tiên lên thẳng trang chủ Bvlgari sau 5 ngày “gây bão” ôm eo Lisa (BLACKPINK)
--  東北自動車道の下り線で事故 横転したタンクローリーから白いガス
--  Tanzverbot an Karfreitag: Das sind die Regeln um Ostern
--  Singer complains face used for deepfake pornography
--  'Segera ambil tindakan terhadap dalang stoking kalimah ALLAH'
--  スポーツ、学業、研究 優れた実績残した生徒・学生４人を表彰 「岩崎育英文化財団賞」授賞式(MBC南日本放送)
--  【続報・動画】広島市のコンビニで男が刃物振り回し2人ケガ 1人は重傷(広島テレビ ニュース)
--  【速報】東北道下り線でタンクローリーなど2台がからむ事故 横転したタンクローリーから白いガス 炭酸ガス積載
--  Realist NATO: dostumun dostu mənim də dostumdur...
+-  INVL Baltic Farmland plans to earn EUR 420 thousand net profit in 2024
+-  Qualcomm zeigt Snapdragon 8s Gen 3 für günstigere Highend-Smartphones
+-  Güney Sudan kavruluyor! Sıcaklık artınca eğitime ara verildi
+-  Bingöl’ün kar esareti Mart ortasında hala devam ediyor! 15 köy şiddetli kar yağışı nedeniyle ulaşıma kapandı
+-  Brindisi, ora i gatti hanno finalmente una casa
+-  VIA DALLA STRADA, ARRIVA LA CENTENARIA! - NON MOLLA IL VOLANTE GIUSEPPINA MOLINARI, LA 103ENNE DELLA PROVINCIA DI FERRARA A CUI È STATA SEQUESTRATA LA MACCHINA PERCHÉ BECCATA ALLA GUIDA DI NOTTE CON LA PATENTE SCADUTA E SENZA ASSICURAZIONE: “I CARABINIERI MI HANNO DETTO CHE NON AVREI POTUTO PIÙ GUIDARE. HO RISPOSTO CHE AVREI SCRITTO AL PRESIDENTE MATTARELLA. HO PRESO UN APPUNTAMENTO PER RINNOVARLA. HO ORDINATO UNA VESPA. L’HO USATA PER VENT’ANNI, SO GUIDARLA"
+-  Разследват незаконна сеч в с. Люти дол край Мездра
+-  ‘고딩엄빠’ 고현정, 역대 시즌 최초로 아버지와 등장…“살아갈 힘 없어 보이는 딸”
+-  Georg Fischer hält Umsatz dank Uponor-Übernahme
+-  Kevin Johansen y Ricardo Liniers, una fusión creativa
