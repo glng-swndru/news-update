@@ -1,11 +1,11 @@
 # Latest News
--  ଆମ୍ବକୁ ବିପଦ ରେଡ୍‌ବ୍ୟାଣ୍ଡ୍‌ ପୋକ
--  Canberrans asked to help name part of future CIT campus
--  California lawmakers pass more carveouts from new fast food labor law
--  Atropelló a una adolescente, huyó y le disparó a la Policía Federal con una escopeta
--  금천구, 스마트폴(신호등·CCTV) 설치 어린이 교통안전 앞장
--  중앙의료원장 “교수들이 환자 지켜 주리라 믿어…공공의대 필요해”
--  전남도 '통합의대 신설안' 수용될까…'의견 수렴' 논란
--  “Le hacíamos fuerza”: La confesión de Sebastián Viera sobre Nacional romperá muchos corazones en Junior
--  국민은행, 4월까지 환전수수료 100% 면제
--  Brown scores 31 points, White gets 1st career triple-double in Celtics’ 119-94 win over Detroit
+-  민주 "151석이 최대 희망 목표…1당 힘겨운 '반집 싸움'"
+-  새미래, 오픈 프라이머리 공약…"패권공천 막아야"
+-  Halstead Town thrash Coggeshall Town in Essex Senior League
+-  Ragnar Oratmangoen Tidak Sabar Main Lawan Vietnam di Gelora Bung Karno: Semua Suporter Datang, Ini Gila!
+-  한동훈 “종북세력 막을 세력은 국힘 뿐…죽어도 서서 죽겠다”
+-  Đắt hơn thịt, mận đầu mùa giá gần 300.000 đồng/kg, khách không tiếc tiền mua
+-  Labor Minister ‘Not Sure’ If US Is Australia’s Most Trusted Ally
+-  مؤتمر "المذاهب الإسلامية": الأزمة الفلسطينية أعظم كارثة إنسانية في عصرنا
+-  For the dough: alleged thief spotted stretching before bakery break-in
+-  مؤتمر "المذاهب الإسلامية" يخصص جلسة للتضامن مع غزة
