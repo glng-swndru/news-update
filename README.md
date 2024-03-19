@@ -1,11 +1,11 @@
 # Latest News
--  Over 100.000 Fortinet-enheder sårbare for cyberangreb: Danske enheder også ramt
--  Economia aquecida traz dúvida sobre ritmo de queda de juros
--  Почина съпругата на бизнесмена Димитър Георгиев, той е сломен
--  Dimensional Fund Advisors Ltd. : Form 8.3 - Urban Logistics REIT plc - Ordinary Shares
--  Зам.-шефът на македонските железници: Изграждането на жп линия Северна Македония- България-Албания не е лесна задача
--  Юлия Навалная: Путин не е легитимният президент на Русия
--  Scotland boss Steve Clarke loses 'one of his men' as first withdrawal announced from squad
--  Urteil am Langericht Traunstein: Neun Jahre Haft wegen Mordes an Studentin Hanna
--  Kota: Girl kidnapped from hostel, father receives ransom call
--  El IMPEFE afronta un incremento de un 23% en su presupuesto para fines de promoción y crecimiento económico
+-  ΕΕΥ: Προαγωγές στη θέση Βοηθού Διευθυντή Α΄ Μέσης Γενικής Εκπαίδευσης για ΣΕΑ
+-  Bayram günlərindən sonrakı ilk dərs günlərinin vaxtı
+-  Top-division rookie Takerufuji continues unbeaten march
+-  Шон СТРИКЛЕНД: «Я богат и успешен, но опасен для людей»
+-  Negentiende-eeuwse schoolmeesterwoning uit Skingen is Duurzaamste Huis van Fryslân
+-  Neue staatliche Unterstützung ab 1.4.: Wer jetzt Qualifizierungsgeld beantragen kann
+-  [경제직필]가계부채와 정부부채의 변주곡
+-  Jornalista alvo de buscas da Polícia Judiciária
+-  Mattarella, estinguere i fuochi di guerra in Europa
+-  Polarluft erreicht NRW: DWD erwartet Kälteeinbruch in Köln und Region – Graupel und Schnee möglich
