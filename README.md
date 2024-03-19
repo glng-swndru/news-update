@@ -1,11 +1,11 @@
 # Latest News
--  INVL Baltic Farmland plans to earn EUR 420 thousand net profit in 2024
--  Qualcomm zeigt Snapdragon 8s Gen 3 für günstigere Highend-Smartphones
--  Güney Sudan kavruluyor! Sıcaklık artınca eğitime ara verildi
--  Bingöl’ün kar esareti Mart ortasında hala devam ediyor! 15 köy şiddetli kar yağışı nedeniyle ulaşıma kapandı
--  Brindisi, ora i gatti hanno finalmente una casa
--  VIA DALLA STRADA, ARRIVA LA CENTENARIA! - NON MOLLA IL VOLANTE GIUSEPPINA MOLINARI, LA 103ENNE DELLA PROVINCIA DI FERRARA A CUI È STATA SEQUESTRATA LA MACCHINA PERCHÉ BECCATA ALLA GUIDA DI NOTTE CON LA PATENTE SCADUTA E SENZA ASSICURAZIONE: “I CARABINIERI MI HANNO DETTO CHE NON AVREI POTUTO PIÙ GUIDARE. HO RISPOSTO CHE AVREI SCRITTO AL PRESIDENTE MATTARELLA. HO PRESO UN APPUNTAMENTO PER RINNOVARLA. HO ORDINATO UNA VESPA. L’HO USATA PER VENT’ANNI, SO GUIDARLA"
--  Разследват незаконна сеч в с. Люти дол край Мездра
--  ‘고딩엄빠’ 고현정, 역대 시즌 최초로 아버지와 등장…“살아갈 힘 없어 보이는 딸”
--  Georg Fischer hält Umsatz dank Uponor-Übernahme
--  Kevin Johansen y Ricardo Liniers, una fusión creativa
+-  안동, 미혼남녀 만남 '커플예감, 힐링피크닉'
+-  Agentur schlägt Alarm: Warum die Welt beim Ausbau Erneuerbarer Energien immer noch zu langsam ist
+-  영양, 봄철 산불 제로 총력전 돌입
+-  Serie D: le dieci meraviglie della 27esima giornata
+-  이상일 용인시장 “국가인권위 인권교육원 착공 환영”
+-  Câtă apă ar trebui să bem pe zi și care sunt cele mai bune ore pentru băut apă. Sfatul nutriționiștilor
+-  Este TikTok cu adevărat un pericol pentru Occident? Ce spun experții în Securitate și ce argumentează compania
+-  포항 북구, 건축 인·허가지 해빙기 위험요소 집중 점검
+-  ליגת ווינר בכדוריד חזרה: הכל לקראת המחזור הדרמטי בשישי
+-  Yeni emekli olacaklar için hayati uyarı
