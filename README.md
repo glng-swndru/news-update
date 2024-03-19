@@ -1,11 +1,11 @@
 # Latest News
--  駅長務め40年、村の夫婦が支えた花の駅 待合室に流れる温かい時間
--  São Paulo teve déficit de R$ 62,2 milhões em 2023, apesar de aumento na arrecadação
--  地表からマグマ噴き上がる アイスランドで最大規模の噴火 非常事態宣言で地元住民は避難 温泉施設の観光客に退避命令
--  Bahlil Sebut RI Bakal Kuasai 61 Persen Saham Freeport, Bagaimana Caranya?
--  Government has become B.C.’s growth sector as spending rises
--  B.C. warns residents to prepare for 'prolonged wildfire season'
--  "WBC서 퍼펙트게임 할게요"…야구대표팀 문동주, 또 한 뼘 자랐다
--  代表「楽しかった！」→全員「運動会！」 卒業式で定番の“あの呼びかけ”はいつ始まったの？
--  ペダルをこがずに進める！ シニアの移動手段としても？ 免許不要の新世代モビリティ「電動サイクル」の実力とは(VAGUE)
--  Íslandsmeistarinn fær ekki að mæta Messi
+-  [오늘의 IR] 현대자동차, 싱가포르서 회사소개 및 주요 사업현황에 대한 투자자 이해 증진
+-  Soccer-Real Madrid slam referee for not reporting abuse against Vinicius Jr
+-  Đặc sản béo nung núc "độc nhất vô nhị" ở Việt Nam khiến người rùng mình, kẻ khiếp sợ nhưng ăn là si mê
+-  Türkiyə insansız sualtı qayıqlar hazırlamağı planlaşdırır
+-  Introducing ‘Mr. Sanders’: Chef Hercules Noble Debuts New Restaurant On Ponsonby Road
+-  Cross border response as fire sparked in shed at Wodonga petrol station
+-  Nvidia lanza Blackwell y NIM: El futuro de la inteligencia artificial
+-  الدبيبة يؤكد أن الوضع الاقتصادي لا يستدعي فرض ضريبة على الصرف بسبب سداد الدّين العام وتحقيق فائض
+-  دستمزد کارگران ۳۵درصد افزایش یافت/ نمایندگان کارگری درجلسه نبودند
+-  حداقل دستمزدکارگران ۳۵.۳درصد افزایش یافت/ سایر سطوح ۲۲ درصد
