@@ -1,11 +1,11 @@
 # Latest News
--  대전건설단체총연합회 제12회 정기총회 개최...지역건설업 발전 방안 모색
--  대전지방보혼청, 서해수호날 계기 '제2연평해전·천암함' 국가유공자 유족 위문
--  PRÉSIDENTIELLE 2024 | TEMPS D'ANTENNE BASSIROU DIOMAYE DIAKHAR FAYE
--  北, 초대형방사포 사격훈련…김정은 “적 수도 붕괴 완비 태세”
--  "موسم رمضان".. فعاليات ترسم البهجة والفرح على الأطفال بحائل
--  Israel e Hamas se enfrentam no maior hospital de Gaza
--  الكاف: الحوثية جعلت الناس يعيشون في وضع سيء ويزدادون فقرًا
--  Taylor Swift shares important message about Tortured Poets Department
--  'Air Bidens': President Biden's sneakers choice sparks curiosity over social media
--  Reba McEntire’s NBC Comedy Pilot Adds Tokala Black Elk, Rex Linn & Pablo Castelblanco
+-  PRÉSIDENTIELLE 2024 | TEMPS D'ANTENNE IDRISSA SECK / Coalition IDY 2024
+-  Fechamento dos grãos de soja em Chicago
+-  STRAVA I UŽAS Poznati teniser se samo srušio na teren, jeziva scena iz Majamija (VIDEO)
+-  ಬೆಳಗಾವಿ | ಬಾಣಂತಿ, ಮಗು ಸಾವು: ನಿರ್ಲಕ್ಷ್ಯ ಆರೋಪ
+-  How the first lady's role has evolved over time
+-  Técnico exalta Novorizontino após classificação para semifinal do Paulistão: "Pode muito mais"
+-  Ivrea ancora male, incassate tre reti dal fanalino di coda Villarbasse
+-  É preciso um "Benfica perfeito". Vem aí história no futebol feminino português
+-  Sangiustese sogna ancora Superato 3-1 il Piossasco
+-  Com time de MS, Confederação divulga confrontos da Copa do Brasil feminina
