@@ -1,11 +1,11 @@
 # Latest News
--  'सिर्फ जंग लडनी आती है', ॲक्शनने भरपूर जॉन अब्राहमचा 'वेदा' चित्रपट
--  Україна проведе товариський матч із однією з найкращих збірних Європи
--  Présidentielle 2024-Enseignement élémentaire : Les syndicats invitent les candidats à signer leur charte
--  В Беларуси в январе-феврале построили 3,6 тыс. квартир
--  Bursa'nın bu mahallesinde sahur vakti davul çalınmıyor ürperten rivayet ortaya çıktı
--  MİT'ten terör örgütü PKK'ya nokta operasyon
--  Εφορία: «Ψηφιακό μάτι» σε τραπεζικούς λογαριασμούς, θυρίδες και ηλεκτρονικά πορτοφόλια
--  Uzmanından ağrı kesici ilaç uyarısı
--  Как се пише: абитурентски, абитуриентски или абитюрентски?
--  Egemen Korkmaz’dan açıklama! “Tepkisiz kalamazdım”
+-  Минобороны рассказало о подвиге связиста, спасшего подразделение от потерь
+-  Droitwich Cricket Club to host annual Easter egg hunt
+-  Fernhill Heath homes plan met with backlash despite rethink
+-  Olerex suundus restorani- ja majutusärisse
+-  [속보] 민주당 서울 강북을 경선 박용진 패배
+-  Clifton residents and Harriett Baldwin MP unite for litter pick
+-  IFS Appoints Merlin Knott as President of IFS assyst
+-  Murió tras ser mordido por un lagarto venenoso que compró para tener como mascota
+-  AstraZeneca, Fusion Pharmaceuticals'ı 2 milyar dolara satın alıyor
+-  24 часа по-късно: Няма бял дим над парламента - Мария Габриел не дойде с мандата, преговорите са прекъснати? (СНИМКИ)
