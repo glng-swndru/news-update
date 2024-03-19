@@ -1,11 +1,11 @@
 # Latest News
--  Does a Ugandan MP still value the electorate?
--  Jain Religion: जैन धर्म में मृत्यु पर इस तरह विजय प्राप्त करते हैं संत, काफी कठिन है समाधि की अनोखी परंपरा
--  Telkomsel and Huawei Inaugurate Indonesia's First 5G Smart Warehouse and 5G Innovation Center
--  İki organize suç örgütü çökertildi: 25 şüpheli gözaltında
--  Korišćenje kapele u Golubovcima koštaće 80 eura
--  NVIDIA GTC出現機器人大軍！ 黃仁勳宣布推出人型機器人
--  水上バイク事故多発 飲酒で操縦の場合3カ月以下の懲役も 改正条例案が滋賀県で可決
--  Thần đồng toán học 12 tuổi dạy trực tuyến cho sinh viên đại học
--  ‘팀킬 논란’ 황대헌, 연이은 반칙에 임효준 소환
--  INSÄNDARE: Beröva inte Gävleborna möjligheten att nå sin kustpärla
+-  Зарубежные поставщики Intel и TSMC не спешат строить свои предприятия в Аризоне
+-  Gemeenten geven dit jaar meer uit, maar Friese musea hoeven niet op extra geld te rekenen
+-  Agreement with Spanco still in force, says Finance Ministry
+-  Bitlis-Baykan karayolunda heyelan!
+-  Rusiya üçün beş ssenari - Azərbaycana hansı sərf edir...
+-  إنشاء مركز الاعتماد العُماني لتعزيز الثقة في مخرجات جهات تقويم المطابقة بالسلطنة
+-  Cung cầu suy yếu, thị trường giằng co biên độ hẹp, khối ngoại tiếp tục xả mạnh
+-  「フェリーニューこしき」機関整備で３便欠航 しけで海の便に乱れも(MBC南日本放送)
+-  이재명 "최대 목표 151석…우리는 박근혜도 내쫓았다"
+-  Da perla di Leverkusen al crollo in Borsa: bruciati 75 mld Bayer paga a caro prezzo il "matrimonio" con Monsanto
