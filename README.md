@@ -1,11 +1,11 @@
 # Latest News
--  Laković: Vlada stabilna; Stjepović: Šaranović odbio da udari na SPO
--  Încă o disparție în România, după cea a lui Radu Aryan. Un bărbat a anunțat că fiul său este de negăsit
--  США не собираются поздравлять Путина с победой на выборах
--  Ο Ερντογάν συνεχάρη τον Πούτιν
--  Polovina hlasů pro Putina byla podvržena, ukázala Špilkinova metoda
--  Bošnjaković: Odluka Ustavnog suda je očekivana, Hajdaš Dončić: Taj sud je kumska veza
--  Валерия Велева: Водещата роля е на ГЕРБ
--  Alimentos Centenario inauguró su nueva planta de distribución en Montevideo
--  கத்தியால் தாக்கி இளைஞா்களிடம் வழிப்பறி
--  செம்மரக்கடத்தல் தடுப்புப் படை அதிகாரிகளுக்கு பயிற்சி
+-  McCain Foods Partners with Plover Whiting Youth Athletics to Refurbish Woyak Sports Complex
+-  Πάφος: Επεισόδια μεταξύ Ελληνοκυπρίων και Σύρων – Στο σημείο η Αστυνομία
+-  PLD entrena su personal defiendan el voto próximas elecciones
+-  "Mi faccio carcerà, ma ti ammazzo": picchia l'ex compagna fino a farla sanguinare
+-  VEF dublieri - RSU - graujoši uzvar basketbola klasikas fārmklubu duelī
+-  Estos son los 5 celulares más potentes del 2024, según AnTuTu
+-  CCZ alerta para letalidade da raiva e disponibiliza vacinação para cães e gatos
+-  Las acciones de empresas energéticas pierden contra la inflación: ¿mejor conservarlas o vender?
+-  Avropa nazirləri Rusiya aktivlərindən Ukrayna üçün istifadəyə dair konsesus əldə ediblər
+-  Finra fines M1 Finance over misleading social media influencer posts
