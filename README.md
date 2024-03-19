@@ -1,11 +1,11 @@
 # Latest News
--  Минобороны рассказало о подвиге связиста, спасшего подразделение от потерь
--  Droitwich Cricket Club to host annual Easter egg hunt
--  Fernhill Heath homes plan met with backlash despite rethink
--  Olerex suundus restorani- ja majutusärisse
--  [속보] 민주당 서울 강북을 경선 박용진 패배
--  Clifton residents and Harriett Baldwin MP unite for litter pick
--  IFS Appoints Merlin Knott as President of IFS assyst
--  Murió tras ser mordido por un lagarto venenoso que compró para tener como mascota
--  AstraZeneca, Fusion Pharmaceuticals'ı 2 milyar dolara satın alıyor
--  24 часа по-късно: Няма бял дим над парламента - Мария Габриел не дойде с мандата, преговорите са прекъснати? (СНИМКИ)
+-  Fangi lést á Sogni
+-  Kampanja je službeno počela
+-  À Lorient, un feu de broussaille se déclare sur la pénétrante
+-  'Remote' destination is among the 'most magical places on Earth' with beautiful salt pools
+-  Moto - Enduro. Podium pour la Bourgogne Franche-Comté sur l’enduro des régions
+-  CarrefourSA’dan kuyruk oluşturan kampanya! Piyasanın en ucuz ramazan pidesi! Bu fırsat kaçmaz
+-  Milas'taki cinayetin zanlısı 12 gün sonra teslim oldu
+-  مجموعة الدانوب تساهم في حملة "وقف الأم" بــ10 ملايين درهم
+-  ”لانضباطك أثر“.. حملة توعوية لتعزيز الانضباط المدرسي في الأحساء
+-  Bakan Göktaş: Mahalle odaklı kreş modeliyle bakım ve eğitim hizmeti veren kurumların yaygınlaştırılmasını önemsiyoruz
