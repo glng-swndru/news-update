@@ -1,11 +1,11 @@
 # Latest News
--  פלסטיני נפצע באורח קשה בתאונה סמוך למצפה יריחו
--  «Eu com 22 anos jogava no Sporting, portanto como posso estar de acordo com a Superliga?»
--  Ботев Пловдив договори контрола с градски съперник
--  KPU Papua dan Papua Pegunungan Masih Rekap Provinsi, Rabu Hasil Pemilu Ditetapkan
--  Bağcılar'da makas atan trafik canavarına 27 bin TL ceza
--  BRNABIĆ ODGOVORILA TEPIĆKI: Jedan istina i jedan ustav je za Mariniku i elitu, a drugi je za sve nas obične građane
--  中東歴訪の中国大使、ハマス指導者と会談 カタールで(CNN.co.jp)
--  I convocati di San Marino per l'amichevole con Saint Kitts e Navis
--  Стало известно о подлежащем разделу жилье блогерши Лерчек
--  Na planeti samo sedam država ima čist vazduh
+-  Over 100.000 Fortinet-enheder sårbare for cyberangreb: Danske enheder også ramt
+-  Economia aquecida traz dúvida sobre ritmo de queda de juros
+-  Почина съпругата на бизнесмена Димитър Георгиев, той е сломен
+-  Dimensional Fund Advisors Ltd. : Form 8.3 - Urban Logistics REIT plc - Ordinary Shares
+-  Зам.-шефът на македонските железници: Изграждането на жп линия Северна Македония- България-Албания не е лесна задача
+-  Юлия Навалная: Путин не е легитимният президент на Русия
+-  Scotland boss Steve Clarke loses 'one of his men' as first withdrawal announced from squad
+-  Urteil am Langericht Traunstein: Neun Jahre Haft wegen Mordes an Studentin Hanna
+-  Kota: Girl kidnapped from hostel, father receives ransom call
+-  El IMPEFE afronta un incremento de un 23% en su presupuesto para fines de promoción y crecimiento económico
