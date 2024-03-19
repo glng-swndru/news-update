@@ -1,11 +1,11 @@
 # Latest News
--  BH Fanaticosi odbili novac koji je NFSBiH uplatio povodom humanitarnog turnira
--  Guide rouge Michelin : le Puy-de-Dôme perd l’un de ses Bibs Gourmands
--  Why is NCIS not new tonight, March 18?
--  Sakaður um rasisma og tekinn úr landsliðinu
--  Interview mit Royal-Expertin: «Kate und William begeben sich auf gefährliches Territorium»
--  Hindistan 5 yıl içinde küresel çip merkezi olmak istiyor
--  Ο Μπάιντεν θεωρεί ότι μία επίθεση στην Ράφα "θα ήταν λάθος"
--  Взривове в Белгород, гори завод за ракетни двигатели (ВИДЕО)
--  Supreme Court Hears Oral Argument in Pivotal NCLA Case Against Gov’t Social Media Censorship
--  הרב יצחק יוסף מגיב: "אין זו שנה מתאימה לטקסים וחגיגות"
+-  Laković: Vlada stabilna; Stjepović: Šaranović odbio da udari na SPO
+-  Încă o disparție în România, după cea a lui Radu Aryan. Un bărbat a anunțat că fiul său este de negăsit
+-  США не собираются поздравлять Путина с победой на выборах
+-  Ο Ερντογάν συνεχάρη τον Πούτιν
+-  Polovina hlasů pro Putina byla podvržena, ukázala Špilkinova metoda
+-  Bošnjaković: Odluka Ustavnog suda je očekivana, Hajdaš Dončić: Taj sud je kumska veza
+-  Валерия Велева: Водещата роля е на ГЕРБ
+-  Alimentos Centenario inauguró su nueva planta de distribución en Montevideo
+-  கத்தியால் தாக்கி இளைஞா்களிடம் வழிப்பறி
+-  செம்மரக்கடத்தல் தடுப்புப் படை அதிகாரிகளுக்கு பயிற்சி
