@@ -1,11 +1,11 @@
 # Latest News
--  Зарубежные поставщики Intel и TSMC не спешат строить свои предприятия в Аризоне
--  Gemeenten geven dit jaar meer uit, maar Friese musea hoeven niet op extra geld te rekenen
--  Agreement with Spanco still in force, says Finance Ministry
--  Bitlis-Baykan karayolunda heyelan!
--  Rusiya üçün beş ssenari - Azərbaycana hansı sərf edir...
--  إنشاء مركز الاعتماد العُماني لتعزيز الثقة في مخرجات جهات تقويم المطابقة بالسلطنة
--  Cung cầu suy yếu, thị trường giằng co biên độ hẹp, khối ngoại tiếp tục xả mạnh
--  「フェリーニューこしき」機関整備で３便欠航 しけで海の便に乱れも(MBC南日本放送)
--  이재명 "최대 목표 151석…우리는 박근혜도 내쫓았다"
--  Da perla di Leverkusen al crollo in Borsa: bruciati 75 mld Bayer paga a caro prezzo il "matrimonio" con Monsanto
+-  Глобяват търговци и граждани заради нерегламентирано изхвърляне на отпадъци
+-  विदेशी कोषों की बिकवाली के बीच शुरुआती कारोबार में सेंसेक्स, निफ्टी में गिरावट
+-  फेड बैठक से पहले सोने की कीमतें 2,150 डॉलर के पार; तांबे की कीमतों में गिरावट
+-  Allergy Relief Medication Manufacturing Plant Cost 2024: Industry Trends, Machinery and Raw Materials
+-  “당할 수만 없어서...” 스파이어엔터 대표, 성추행당한 CCTV 영상까지 공개한 이유
+-  Красный снег и поезда смерти: как 75 лет назад убивали евреев в Гродно
+-  Pokud chceme mír, musíme se připravit na válku, říká šéf Evropské rady Michel
+-  Funkmasten alle 1000 Meter: Deutsche Bahn beginnt Testfahrten für 5G im ICE
+-  Today's front pages - March 19, 2024
+-  Funkmasten alle 1000 Meter: Deutsche Bahn beginnt Testfahrten für 5G im ICE
