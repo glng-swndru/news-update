@@ -1,11 +1,11 @@
 # Latest News
--  Hajto domaga się wstrząsu w kadrze. Niewiarygodne, kogo by wymienił
--  காா்களில் கட்சிக் கொடி கட்டினாலும்பிரசார வாகனமாக கருதப்படும்: புதுச்சேரி மாவட்ட ஆட்சியா் அறிவிப்பு
--  Şehitler Abidesi'ne özel ışıklandırma: Türk Bayrağı yansıtıldı!
--  Golobradi Hrvat jurio 254 km/h kroz Sloveniju. Dobio je paprenu kaznu
--  Grizman zbog povrede prekida rekordni niz
--  Coroner releases preliminary cause of death for 18-year-old found in Versailles lake - WLWT Cincinnati
--  Новак Ѓоковиќ е „мајстор“ на кежуал стилот: Познатиот тенисер во едно од најдобрите модни изданија досега
--  "Majku kritikujem jer nastupa": Nikoliji se ne dopada što Vesna Zmijanac peva ugroženog zdravlja, iznela detalje njenog stanja (VIDEO)
--  Minden jegy elkelt a pénteki magyar-törökre
--  San Francisco 49ers llegan a acuerdo con Joshua Dobbs
+-  Apagão no centro de SP: Moradores da região reclamam. Santa Casa opera com gerador
+-  Ali Ece, Galatasaray'ın yıldızını anlattı: "Çok enteresan bir adam"
+-  à¶¶à·œà¶»à·”à·€ à¶…à¶­à·š à¶´à¶­à·Šà¶­à·” à·€à·“ à·„à¶­à¶» à¶œà·”à¶«à¶ºà¶šà·Š à¶´à·”à¶¯à¶±à·Šà¶± à·€à·™à¶½à·�
+-  ‘Ensure continuous drinking water supply in Krishna district’
+-  Harcèlement, voiture brûlée : deux policiers costarmoricains s’affrontent au tribunal
+-  Prezidentskí FAVORITI v prvej debate: Pellegrini pripustil, že by sa mohol stretnúť s Putinom
+-  ONS registra recorde na demanda máxima de carga de energia
+-  Kovesi cere mai mulți bani pentru EPPO, dar Comisia Europeană contestă cifrele pe care le-a prezentat. Ce replică a dat
+-  Novi mandat - nova ekonomija: Zašto Putin sad ne smije okončati rat u Ukrajini
+-  Apagão no centro de SP: Moradores da região reclamam. Santa Casa opera com gerador
