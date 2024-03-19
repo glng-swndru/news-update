@@ -1,11 +1,11 @@
 # Latest News
--  Sự bắt đầu của huyền thoại Barca
--  World Bank approves loan to back Kazakhstan in its efforts to shift to greener economy
--  ઉ.પ્ર.ના આંબેડકરનગરમાં બે ભાઈઓએ જૂની કારમાં ફેરફાર કરી હેલિકોપ્ટર બનાવ્યું : પોલીસે તે કાર જપ્ત કરી
--  Fazenda prepara mudança em IR sobre aplicações financeiras, diz Haddad
--  Qld snake catcher warns bird owners to choose right cages
--  Paso a Nado de los Ríos Orinoco y Caron avanza la organización
--  Global Additive Manufacturing Market 2024-2028 - Low Wastage of Cartridges in Additive Printing and Limited Time Required for 3D Printing to Lead to Sizable Demand in the Market
--  USP and New Zealand Ministry of Foreign Affairs and Trade (MFAT) join forces to enhance inclusive education in the Pacific
--  Bác sĩ tư nhân giảm giờ làm, đóng cửa phòng khám cuối tuần để biểu tình, ngành y Hàn Quốc tiếp tục bị khủng hoảng
--  બેંગલુરુમાં અઝાન સમયે હુનમાન ચાલીસા વગાડવા બદલ મારપીટ : ત્રણની ધરપકડ
+-  高盛重磅预测：日本央行周二加息！
+-  Овечкин вышел на 37-е место по числу проведенных матчей в НХЛ
+-  Bybit'in Deposit Dash Etkinliğini Ethereum Yükseltmesi Ateşliyor
+-  기업 인력 해소 위해 '경단녀' 대안 부상…지자체는 '나 몰라라'
+-  심상치 않은 대전 미분양…분양 불안감 상승
+-  저출산 대응·지역 경제 위해선 지자체가 경단녀 적극 지원해야
+-  공공요금, 농산물 값 이어 개인서비스요금도 줄줄이 인상…물가 언제 잡히나
+-  تساوي الليل والنهار.. النصف الشمالي للأرض يشهد بداية الربيع رسميا
+-  Méo mặt với phí, lãi thẻ ngân hàng
+-  “EV9 받은 상만 17개”…현대차·기아 전기차, 전 세계 시상식 휩쓸다
