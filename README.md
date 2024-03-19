@@ -1,11 +1,11 @@
 # Latest News
--  Lewandowski aż złapał się za głowę. Takiego pytania jeszcze nigdy nie dostał
--  Merkez Bankası'nın faiz kararı ne olacak?
--  이종섭 · 황상무로 대립한 날…비례 공천 '반발'
--  Hate crime reports and antisemitic incidents in Toronto are rising, police chief says
--  Bencana Jateng, Ratusan Ribu Jiwa Terdampak, 15 Orang Meninggal Dunia
--  Hate crime reports and antisemitic incidents in Toronto are rising, police chief says
--  Vier Verletzte in Solingen: Einer in Lebensgefahr
--  Трагедия в Казанлък! 10-годишно дете почина в двора на училище
--  Misshandelte Jugendliche aus Klinik entlassen: Ermittlungen
--  На частку українського транзитного зерна в портах Польщі припадає 10%, – ЗМІ
+-  BBC journo baffled as evidence supplied shows differential Everton treatment
+-  Udine, finisce il Ramadan: tutti a giocare a pallone alle 3 di notte
+-  Khabar Jo Mudda Bane | 7 ਫਾਸਟ ਚਾਰਜਿੰਗ ਮਸ਼ੀਨਾਂ ਦਾ ਪੁਰਜਾ-ਪੁਰਜਾ ਸਾਫ਼ | Chandigarh News | News18 Punjab
+-  逾百人齊挺太陽花10周年晚會 布條諷黃國昌：人格和假髮一樣歪
+-  سلسلة استهدافات للمقاومة... اسلحة صاروخية ومدفعية واصابات مباسرة!
+-  “Akkoord over meer loon voor cabinepersoneel Brussels Airlines”
+-  LISTED: Swindon schools set to recieve new road safety measures
+-  FOTO: Prvi akvatlon v Novem mestu
+-  [날씨] 전국에 비 · 눈 내려…강원 · 경북 폭설 예상돼 주의
+-  В Москве осудят мужчину за расправу над собутыльником
