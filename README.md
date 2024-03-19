@@ -1,11 +1,11 @@
 # Latest News
--  Hvalavinir vilja að Ísland segi sig úr NAMMCO
--  Watch: Pilot makes a special announcement with baby daughter to celebrate her first flight with him
--  DR Kongo will wieder hinrichten: Das Land „von Verrätern reinigen“
--  TCS Shares Tank Over 3% After Tata Sons Divests 0.65% Stake
--  Bursa'da üniversitelilere özel ayrıcalıklı spor merkezi
--  Hãng bay Việt vừa trả hết tàu bay: Từng được hãng ngoại mua rồi trả lại, lỗ luỹ kế 10.700 tỷ đồng
--  End of an era as Japan ends negative interest rates – business live - The Guardian
--  Dailes teātrī gaidāma pirmizrāde igauņu režisoru iestudējumam «Meistars un Margarita»
--  Tužne vijesti, iznenada preminuo bivši NHL igrač, bio je u vezi s drugom tenisačicom svijeta
--  Four to answer bail over Matthew Griggs murder in Sprowston
+-  Tanzverbot an Karfreitag: Das sind die Regeln um Ostern
+-  Tóc Tiên lên thẳng trang chủ Bvlgari sau 5 ngày “gây bão” ôm eo Lisa (BLACKPINK)
+-  東北自動車道の下り線で事故 横転したタンクローリーから白いガス
+-  Tanzverbot an Karfreitag: Das sind die Regeln um Ostern
+-  Singer complains face used for deepfake pornography
+-  'Segera ambil tindakan terhadap dalang stoking kalimah ALLAH'
+-  スポーツ、学業、研究 優れた実績残した生徒・学生４人を表彰 「岩崎育英文化財団賞」授賞式(MBC南日本放送)
+-  【続報・動画】広島市のコンビニで男が刃物振り回し2人ケガ 1人は重傷(広島テレビ ニュース)
+-  【速報】東北道下り線でタンクローリーなど2台がからむ事故 横転したタンクローリーから白いガス 炭酸ガス積載
+-  Realist NATO: dostumun dostu mənim də dostumdur...
