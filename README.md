@@ -1,11 +1,11 @@
 # Latest News
--  В Европа са 4 от 5-те най-предпочитани от инвеститорите дестинации
--  Mardin'de seçime aracına taşlı saldırı: 1 yaralı
--  DARA BUBAMARA 40 DANA BEZ DEČKA! Pevačica otkriva zbog čega je sama: Posvetila sam se sebi, uveče je kriza...
--  Snoqualmie Casino announces their New Country Roundup event
--  Açúcar: Agradeça aos fundos
--  Reckitt Benckiser sees modest bounce following $7.1 billion market-cap wipeout
--  Санітарна зона в Україні та обмін Навального: Пєскову довелося пояснювати слова Путіна
--  बिहार: इंडिया गठबंधन में भी सीट बंटवारा हो गया तय, लेकिन कई सीटों पर अभी भी फंसी है बात
--  Woman accused of murdering husband was abused by him for years, son says - The Guardian
--  Fire awakens family in Townsend Avenue home in Helena
+-  Wann die toxische Beziehung zur Chance für Paare werden kann
+-  Россия, Китай и Иран усилили свое военное присутствие в Антарктиде
+-  Wann die toxische Beziehung zur Chance für Paare werden kann
+-  Česko jako postsovětský satelit? Americký deník upravil titulek článku o munici pro Ukrajinu
+-  Kullarspor’un haftası
+-  Gazze'de halkın tek iftar ve sahur seçeneği konserve yiyecek
+-  Recent surge in gas prices in the GTA only the 'beginning,' analyst says
+-  Колко време трябва да се пече баницата, за да хване златистата коричка
+-  Celebree School Raises $215,000 for Children's Hospitals Across the Country
+-  Crown Princess Victoria of Sweden rewears statement dress emblazoned with swans as she visits the Foreign Service Academy in Bangladesh
