@@ -1,11 +1,11 @@
 # Latest News
--  Apagão no centro de SP: Moradores da região reclamam. Santa Casa opera com gerador
--  Ali Ece, Galatasaray'ın yıldızını anlattı: "Çok enteresan bir adam"
--  à¶¶à·œà¶»à·”à·€ à¶…à¶­à·š à¶´à¶­à·Šà¶­à·” à·€à·“ à·„à¶­à¶» à¶œà·”à¶«à¶ºà¶šà·Š à¶´à·”à¶¯à¶±à·Šà¶± à·€à·™à¶½à·�
--  ‘Ensure continuous drinking water supply in Krishna district’
--  Harcèlement, voiture brûlée : deux policiers costarmoricains s’affrontent au tribunal
--  Prezidentskí FAVORITI v prvej debate: Pellegrini pripustil, že by sa mohol stretnúť s Putinom
--  ONS registra recorde na demanda máxima de carga de energia
--  Kovesi cere mai mulți bani pentru EPPO, dar Comisia Europeană contestă cifrele pe care le-a prezentat. Ce replică a dat
--  Novi mandat - nova ekonomija: Zašto Putin sad ne smije okončati rat u Ukrajini
--  Apagão no centro de SP: Moradores da região reclamam. Santa Casa opera com gerador
+-  Was passiert, wenn Trump nicht zahlen kann?
+-  Berane: Uhapšeno pet osoba osumnjičenih za nanošenje tjelesnih...
+-  Кулеба запросил срочную помощь у ЕС и США для Украины
+-  رقم تاريخي مرعب لنادي الجيش الملكي
+-  Cotação do Brent para entrega em maio sobe 1,82% para 86,89 dólares
+-  İşte incecik yufka açmanın püf noktası; Hem daha lezzetli hem kağıt gibi
+-  [모닝와이드] 오늘의 주요뉴스
+-  Вірт: Лунін більше заслуговує грати у стартовому складі
+-  Madhya Pradesh: Vijayvargiya Inaugurates Election Office, Extols Modi's Leadership In Khargone
+-  Procurila prva snimka Kate Middleton nakon Božića, evo kako se ponaša i izgleda usred svih teorija zavjera koje o njoj kruže!
