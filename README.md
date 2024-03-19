@@ -1,11 +1,11 @@
 # Latest News
--  PRÉSIDENTIELLE 2024 | TEMPS D'ANTENNE IDRISSA SECK / Coalition IDY 2024
--  Fechamento dos grãos de soja em Chicago
--  STRAVA I UŽAS Poznati teniser se samo srušio na teren, jeziva scena iz Majamija (VIDEO)
--  ಬೆಳಗಾವಿ | ಬಾಣಂತಿ, ಮಗು ಸಾವು: ನಿರ್ಲಕ್ಷ್ಯ ಆರೋಪ
--  How the first lady's role has evolved over time
--  Técnico exalta Novorizontino após classificação para semifinal do Paulistão: "Pode muito mais"
--  Ivrea ancora male, incassate tre reti dal fanalino di coda Villarbasse
--  É preciso um "Benfica perfeito". Vem aí história no futebol feminino português
--  Sangiustese sogna ancora Superato 3-1 il Piossasco
--  Com time de MS, Confederação divulga confrontos da Copa do Brasil feminina
+-  駅長務め40年、村の夫婦が支えた花の駅 待合室に流れる温かい時間
+-  São Paulo teve déficit de R$ 62,2 milhões em 2023, apesar de aumento na arrecadação
+-  地表からマグマ噴き上がる アイスランドで最大規模の噴火 非常事態宣言で地元住民は避難 温泉施設の観光客に退避命令
+-  Bahlil Sebut RI Bakal Kuasai 61 Persen Saham Freeport, Bagaimana Caranya?
+-  Government has become B.C.’s growth sector as spending rises
+-  B.C. warns residents to prepare for 'prolonged wildfire season'
+-  "WBC서 퍼펙트게임 할게요"…야구대표팀 문동주, 또 한 뼘 자랐다
+-  代表「楽しかった！」→全員「運動会！」 卒業式で定番の“あの呼びかけ”はいつ始まったの？
+-  ペダルをこがずに進める！ シニアの移動手段としても？ 免許不要の新世代モビリティ「電動サイクル」の実力とは(VAGUE)
+-  Íslandsmeistarinn fær ekki að mæta Messi
