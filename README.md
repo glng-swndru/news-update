@@ -1,11 +1,11 @@
 # Latest News
--  A Milli Takım'da Ferdi Kadıoğlu ve Cengiz Ünder kadrodan çıkartıldı
--  Alanya'da Şehitlik Alanı ve Anıt Projesi'nin temeli törenle atıldı
--  Evolv Technologies (EVLV) Crashes After Disclosing SEC Investigation - Hagens Berman
--  "الأرصاد": أمطار على محافظة رفحاء والمراكز التابعة لها
--  Dernière répétition pour ces collégiens creusois avant de chanter au Zénith de Limoges
--  Anker: Bluetooth-Box SoundCore 2 ist heute stark reduziert
--  Former Speaker Mahara to be kept at hospital
--  3 оплаквания, които показват, че правите твърде много кардио
--  TikTok creators speak to app's positive economic, social impact as possible ban looms
--  Red Bull: Jos Verstappen pidió “calma” previo al tercer Gran Premio de Fórmula 1 del año
+-  Ερντογάν: Η Κύπρος θα ήταν όλη δική μας σήμερα, αν δεν σταματούσαμε το 1974
+-  B.C. to provide $80 million to help farmers cope with drought
+-  Samsunspor'dan Trabzonspor-Fenerbahçe maçında çıkan olaylarla ilgili açıklama
+-  Sergejus Maslobojevas po pergalės Vilniuje: „Mano tikslas - susigrąžinti „Glory“ čempiono diržą“
+-  Mato Grosso do Sul participa na definição de políticas públicas para a cultura nacional
+-  Larm om trafikolycka
+-  Проучване на New-Europe: Около половината от гласовете за Путин са фалшифицирани (ВИДЕО)
+-  Ertuğrul Doğan'dan sert sözler: 'Hiç kimse Trabzonspor’un şerefli taraftarını...'
+-  Парапланеристка загина след удар в лифт в Австрия - Труд
+-  Gold underfoot? B.C. could hold vast reserves of natural hydrogen (BC)
