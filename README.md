@@ -1,11 +1,11 @@
 # Latest News
--  Na to szły dotacje MON za Błaszczaka. Na liście fundacja Rydzyka, parafie i koła gospodyń wiejskich
--  Emre Altuğ yeğeni Eren Altuğ'la pozunu paylaştı! "Aşırı benziyorlar"
--  リアリティある世界観！新潟市新津美術館で“写実絵画”の作品展 ３月２０日スタート
--  Al-Qur'an Akbar Raksasa, Wisata Religi saat Ngabuburit
--  ZVEZDA FILMOVA ZA ODRASLE PONOVO U AKCIJI SA UKRAJINSKIM VOJNICIMA! O ovome bruji svet, a njena poruka je JASNA (FOTO/VIDEO)
--  Když nebudeme používat AI, tak nám ujede vlak, říká šéf kyberúřadu. Praha hostí konferenci Cyber Security
--  Скандал в Аржентина - обвиниха 4-ма футболисти в изнасилване на журналистка - Труд
--  Projednávání kauzy soudce Sováka bylo opět odročeno. Nedorazil jeden z hlavních obžalovaných
--  Gourmet Authentic potvrda je održivog pristupa i originalnog eno-gastro doživljaja u obiteljskim i malim hotelima
--  Ivana Paradžiković prisjetila se oca: 'Ni dan danas ne znam što to znači, ali znam da me mnogo volio'
+-  פלסטיני נפצע באורח קשה בתאונה סמוך למצפה יריחו
+-  «Eu com 22 anos jogava no Sporting, portanto como posso estar de acordo com a Superliga?»
+-  Ботев Пловдив договори контрола с градски съперник
+-  KPU Papua dan Papua Pegunungan Masih Rekap Provinsi, Rabu Hasil Pemilu Ditetapkan
+-  Bağcılar'da makas atan trafik canavarına 27 bin TL ceza
+-  BRNABIĆ ODGOVORILA TEPIĆKI: Jedan istina i jedan ustav je za Mariniku i elitu, a drugi je za sve nas obične građane
+-  中東歴訪の中国大使、ハマス指導者と会談 カタールで(CNN.co.jp)
+-  I convocati di San Marino per l'amichevole con Saint Kitts e Navis
+-  Стало известно о подлежащем разделу жилье блогерши Лерчек
+-  Na planeti samo sedam država ima čist vazduh
