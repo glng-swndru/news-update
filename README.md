@@ -1,11 +1,11 @@
 # Latest News
--  Construction begins on new Vancouver Art Gallery, featuring traditional Coast Salish design
--  Two premiership dark horses emerge; stark draw reality for Bunnies: NRL Power Rankings
--  Kris Jenner announces her sister, Karen Houghton, has died
--  한화, 달착륙선 등 차세대 발사체 개발 사업자 선정… “민간 주도 우주시대 개막 초읽기”
--  CBF suspende punição e Sete de Setembro voltará a disputar jogos
--  스트레이 키즈, 8월 美 뮤직 페스티벌 ‘롤라팔루자 시카고’ 헤드라이너 출격
--  Anti-DEI bill passed by Alabama lawmakers, heads to Governor's desk
--  ‘फॉरेन्सिक सायन्स’मधील संधी
--  Trump wins Kansas GOP primary
--  Star Awards 2024: Taiwanese host Matilda Tao, Korean actor Kim Jae-hoon among 94 nominees for Most Popular Artistes - CNA
+-  국민의힘 내부서 이종섭 사퇴 요구 잇달아…황상무 사퇴엔 "만시지탄"
+-  Direct Tax: सरकार की छप्परफाड़ कमाई, डायरेक्ट टैक्स कलेक्शन 20 फीसदी बढ़कर 18.90 लाख करोड़ रुपये हुआ
+-  IPL 2024 के लिए Rishabh Pant दिल्ली कैपिटल्स के कप्तान किये गये नियुक्त
+-  ليس مجرد حلم.. افتتاح أول فندق في العالم بالفضاء
+-  [단독]또 “여고서 칼부림” 예고글, 수위 더 높아져… 해당 학교는 방과후 활동 중단
+-  Weltglückstag - Schweiz rutscht eine Position runter
+-  Торопченко забросил 14-ю шайбу в текущем сезоне НХЛ
+-  Singapore pulls ahead in Southeast Asia’s race to win back Chinese tourists
+-  Tennis rallies around Sabalenka at Miami Open after boyfriend's death
+-  Tras el triunfo de Putin, las miradas ahora apuntan a Estados Unidos y Trump
