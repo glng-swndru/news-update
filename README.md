@@ -1,11 +1,11 @@
 # Latest News
--  Dədə-baba qripinin qayıdışı...
--  SPSL Komitmen Tingkatkan Layanan Logistik
--  Зеленський назвав кількість ракет, КАБів та "шахедів", які запустила РФ з початку березня
--  Şemdinli-Derecik yolu ulaşıma kapandı
--  Βαρόνη Mobarik: «Η Βρετανία θα έπρεπε να αναγνωρίσει την ΤΔΒΚ»,
--  Cardiomiopatie per 350mila italiani, ‘roadmap’ per cure e assistenza migliori
--  ஸ்டாலின், உதயநிதி படங்கள் அச்சிட்ட பனியன்கள் பறிமுதல் - ராமநாதபுரத்தில் ஒரே நாளில் சிக்கிய ரூ.11 லட்சம்
--  מנכ"ל שחטאר זועם: טוטנהאם הציעה לנו בוטנים על סולומון, זה לא הוגן
--  Feito com inteligência artificial, sistema avisa motoristas sobre animais silvestres na pista
--  Luka Modrić dobio poziv legende: 'Nedostaje jedan takav, možda bi nam se htio pridružiti'
+-  "LA STAMPA" DI JOHN ELKANN MANDA UN AVVISO DI SFRATTO A MAX ALLEGRI - IL TECNICO È LEGATO AL CLUB FINO AL 2025 MA IL QUOTIDIANO EVOCA UN CAMBIO IN PANCHINA: "È NEL PIENO DIRITTO DEL CLUB DECIDERE DI CAMBIARE E RECIDERE L'ULTIMO FILO CON LA GESTIONE DI ANDREA AGNELLI, IL PRESIDENTE CHE GLI AFFIDÒ LA RICOSTRUZIONE" - "SERPEGGIANO INDISCREZIONI SU SONDAGGI PER ALTRI TECNICI, DA THIAGO MOTTA A RAFFAELE PALLADINO..."
+-  Українські хакери атакували державні та приватні об’єкти РФ. ГУР оцінило збитки ворога у сотні тисяч доларів
+-  Taxas de juros abrem em alta, mas viram para o negativo com títulos norte-americanos
+-  تحيات جلالة السلطان لرئيس أستونيا ينقلها سفيرنا لدى المملكة المتحدة
+-  Новият Джеймс Бонд е ясен: Ето кой актьор най-вероятно ще изиграе Агент 007
+-  Baseball: A new ball game for reliever Yuki Matsui in MLB
+-  Fed Başkanı Powell, Yarın Şahin Bir Değişime İşaret Edecek mi?
+-  Prioritise Kedah's development and leave matters under Federal Govt to me, Saifuddin tells Sanusi
+-  Yakın arkadaşını öldüren sanık: "Uyuşturucu parasından dolayı kendisine borcum vardı"
+-  Gazeteci Levent Gültekin'e ‘Cumhurbaşkanına hakaretten’ 11 ay hapis cezası
