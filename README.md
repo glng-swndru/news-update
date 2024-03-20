@@ -1,11 +1,11 @@
 # Latest News
--  “ASAN xidmət” bu tarixədək İŞLƏMƏYƏCƏK
--  Nejšťastnější zemí světa je opět Finsko. Česko je osmnácté, Slovensko se propadlo
--  FOTBOLL PÅ SLÄTTEN: Hört och hänt i lokala fotbollen
--  İzmir terör operasyonu: 18 gözaltı
--  Капризов обновил рекорд «Миннесоты» по скорости забрасывания 150 шайб
--  Film “48 sati i jedan minut” u Nikšićkom pozorištu
--  Šlágr NBA proti Minnesotě ovládl Denver, Jokić si zapsal 35 bodů. Orlando má jistotu předkola play off
--  의대 증원 82% 지역에 몰리자 대학들 “환영”…미니 의대 “동아줄 잡았다”
--  Primer Ministro instó a fortalecer medidas de gestión de mercado del oro
--  Україна почне виробляти власні 155-мм артилерійські снаряди
+-  Di sebalik isu gaji, Radhi positif persiapan KDA FC
+-  大谷選手の“半生”絵本「野球しようぜ！大谷翔平ものがたり」 岩手県内でも発売 タイトルは大谷選手直筆
+-  Disparition d'Émile : Un passé trouble pour le grand-père dans une communauté, une affaire de violences refait surface
+-  Nvidia Led the First Phase of Artificial Intelligence (AI), but These 2 Growth Stocks Will Lead the Next Phases, According to a Wall Street Team
+-  Samsung Galaxy S24 Ultra, Nisan ayında dev bir kamera güncellemesi alacak
+-  Présidentielle 2024 : Ibrahima Macodou Fall choisit Amadou Ba
+-  Mo: Idf, '90 terroristi eliminati in operazione al Shifa'
+-  "업무 힘들다"…3개월 차 남양주시청 공무원 숨진 채 발견
+-  Bolsas da Ásia fecham em alta, após China manter juros e à espera de anúncio do Fed
+-  [속보] 일본 정부 "시모노세키 전복 한국 선적 선박 구조자 9명 중 7명 사망"
