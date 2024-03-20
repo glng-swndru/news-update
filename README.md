@@ -1,11 +1,11 @@
 # Latest News
--  Form 8.5 (EPT/RI) - Mattioli Woods
--  Eskişehir'de trafiğe kayıtlı araç sayısı 343 bin 111'e ulaştı.
--  Государство будет продавать белорусам не только пустые участки, но и сразу с коттеджами?
--  15 İlde Bölücü Terör Örgütüne yönelik eş zamanlı olarak düzenlenen "BOZDOĞAN-12" operasyonlarında 139 şüpheli yakalandı.
--  Az ENSZ emberi jogi főbiztosa is háborús bűnnek tartja Gáza halálra éheztetését (videó)
--  Havyar çalan hırsız tutuklandı
--  Žalba stopirala tender za auto-put
--  Kiderült, hogy mennyit fizetett a MOL az Újpestért
--  Нападнаха възрастен мъж, взеха му 50 лв. - Труд
--  Vučićevu ženu snimili u javnosti nakon dugo vremena: Brak im obilježila i obiteljska tragedija
+-  “ASAN xidmət” bu tarixədək İŞLƏMƏYƏCƏK
+-  Nejšťastnější zemí světa je opět Finsko. Česko je osmnácté, Slovensko se propadlo
+-  FOTBOLL PÅ SLÄTTEN: Hört och hänt i lokala fotbollen
+-  İzmir terör operasyonu: 18 gözaltı
+-  Капризов обновил рекорд «Миннесоты» по скорости забрасывания 150 шайб
+-  Film “48 sati i jedan minut” u Nikšićkom pozorištu
+-  Šlágr NBA proti Minnesotě ovládl Denver, Jokić si zapsal 35 bodů. Orlando má jistotu předkola play off
+-  의대 증원 82% 지역에 몰리자 대학들 “환영”…미니 의대 “동아줄 잡았다”
+-  Primer Ministro instó a fortalecer medidas de gestión de mercado del oro
+-  Україна почне виробляти власні 155-мм артилерійські снаряди
