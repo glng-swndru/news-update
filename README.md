@@ -1,11 +1,11 @@
 # Latest News
--  La nouvelle promesse de Diomaye Faye pour conjurer cette « malédiction » s’il est élu président
--  Diourbel : Les 11 maires du département font allégeance à Amadou Bâ
--  أبل تستعد لطرح iPhone 16 خلال 6 أشهر
--  AMERIČKI AMBASADOR HIL: Niko nije bio oduševljen bombardovanjem, postojala je nada da se može izbeći
--  What Is a Regency and Who Will Be Named Regent if King Charles Can’t Perform His Duties?
--  I apstinencija ima svoje dobre strane
--  முக்கூடல் அருகே இளைஞரை தாக்கியதாக ஒருவா் கைது
--  Fake News und Foto-Pannen: Wie die britischen Royals das Vertrauen der Bevölkerung verspielen
--  Partizan pobedio Baskoniju! Dramatična završnica pripala crno-belima
--  تلال مايو يفوز على الشعلة في الدوري الرمضاني بيافع رصد
+-  In un appartamento del centro una struttura per anziani abusiva
+-  Ujeli 16 izrazitoprehitrih voznikov
+-  Figure skating wants ice princesses. Amber Glenn said, ‘Screw it.’
+-  Rusos y bielorrusos quedan fuera del desfile de la apertura de los JJOO de Paris 2024
+-  Zwrot ws. przyszłości klubu ekstraklasy. Czeka na to latami
+-  Cijene nafte porasle prema 86 američkih dolara
+-  Stephen A. Smith flummoxed by NCAA women's college basketball March Madness decision
+-  Global Diabetic Macular Edema Treatment Market by Treatment (Corticosteroid Injections, Drugs, Laser Treatment), End-User (Hospitals, Ophthalmology Clinics) - Forecast 2024-2030
+-  SOUTHERN GLAZER'S WORKERS JOIN TEAMSTERS
+-  Dünya Sağlık Örgütü’nden kızamık uyarısı
