@@ -1,11 +1,11 @@
 # Latest News
--  Дали е државна тајна производната цена на струјата од РЕК Битола?
--  Nézzen körül márciusban a biztonság kedvéért!
--  Wissenstest in Auggenthal - Teilnehmerrekord und weiße Fahne für 284 Feuerwehr-Youngsters
--  Informasi Lengkap Soal Kualifikasi Piala Dunia 2026 Zona Asia
--  名單曝光！美國海軍計畫2025退役19艦 部份將成「零件捐贈者」
--  Holi celebration e-mail, invitation and holiday announcement for employees
--  SC Felixdorf - Felixdorfer Titelträume verblassen
--  EVNGENCO3 làm việc với tập đoàn Wartsila về dự án nhà máy điện linh hoạt
--  Transaction in Own Shares
--  Số lao động rút BHXH một lần giảm?
+-  尹 대통령 “기업인 마음껏 뛰도록 뒷받침하는 게 정부 역할”
+-  Repubblica apre sulla Roma: "Prezzi alle stelle per l'Europa League, i tifosi protestano"
+-  What went down when Samantha bumped into ex-hubby Chaitanya at Prime Video event?
+-  김준호 “솔로인 줄 알고 들이대신 거예요?” 탁재훈에게 돌직구 (돌싱포맨)
+-  Clima de malestar con Milei en la Corte
+-  Alain-Fabien Delon : le tendre message de sa mère pour son anniversaire
+-  時津・元村郷で車3台が絡む事故 ケガ人複数の模様【長崎】
+-  Az új EU szabályozás vonatkozik az iOS-re és a rajta elérhető böngészőkre
+-  දුමින්ද නාගමුව-ලහිරු වීරසේකර අත්අඩංගුවට
+-  Merzļikins neiziet uz ledus "Blue Jackets" zaudējumā "Red Wings" hokejistiem
