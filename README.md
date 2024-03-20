@@ -1,11 +1,11 @@
 # Latest News
--  "Contro di me, censura della Rai": Mimmo Lucano frigna (e viene smentito a tempo record)
--  Leao e un futuro al Milan, Paganini analizza: «Ha dato messaggi indicativi ma la strategia usata con Tonali…»
--  Totti e le parole a sorpresa su Dybala: "Fossi un dirigente della Roma ci penserei bene"
--  一夜にしてモンスタークレーマーが大応援団長になる瞬間 - スタートアップ芸人
--  “We hoorden kort maar hevig remmen, gevolgd door geschreeuw dat door merg en been ging”: jongetje (7) komt om het leven na aanrijding door vrachtwagen
--  Bergonzi: «Espulsione Vlahovic? Ingenuo e imperdonabile, ha detto qualcosa a Giua»
--  Interview. Olivier Véran ne briguera pas la mairie de Grenoble... mais tacle déjà Alain Carignon
--  „Ich übe jeden Tag Klavier“: Warum Gangsta-Rapper Xatar in der Kölner Philharmonie auftritt
--  MOĆNICI KOJI IMAJU ŽENE I LJUBAVNICE! Naša pevačica šokirala priznanjem: Važno je da donose novac
--  Tajani, 'favorevoli agli eurobond per la difesa comune'
+-  Albanski premier zgrabil novinarko in jo odrinil #video
+-  Finance Minister directs to expedite preparations for Investment Summit
+-  Finance Minister directs to expedite preparations for Investment Summit
+-  Ha te is így tettél, bukhatod a jogsit
+-  Kate Middleton's favourite high-street cashmere jumper that's 'flattering on everyone' reduced by £58
+-  É por isto que não deve caminhar ao mesmo tempo que usa o telemóvel
+-  Ракетная опасность объявлена в Курской области
+-  Crnogorskom društvu fale instrumenti kojima bi se suočili sa pojavom vršnjačkog nasilja
+-  Europee, Nardella: "Disponibile a candidarmi, ma decide il Pd"
+-  Ex-prefeito é condenado a pagar multa de R$ 5 mil por propaganda antecipada
