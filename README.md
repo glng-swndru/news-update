@@ -1,11 +1,11 @@
 # Latest News
--  Ван Леувен прокомментировал информацию о работе в Полесье
--  There was just a major breakthrough in the hunt for life on Mars
--  Ata evini unutmadı
--  BYD Seal, luces y sombras del coche eléctrico que pudo reinar
--  Това е най-високо разположената столица в света, над 3600 м надморска височина
--  Διαμαρτυρία Κούρδων στη Λεμεσό για την τουρκική κατοχή στο Αφρίν
--  «Scoop» sur Netflix : découvrez la bande-annonce du film choc sur le prince Andrew
--  Meloni, la maggioranza è compatta su politica estera ed economica
--  Marcan para el matadero las vacas de la explotación con tuberculosis de Manzaneda
--  В Индонезии наводнение нанесло ущерб домам 250 тыс. жителей острова Ява
+-  Куртуа прокомментировал новую травму: «Небольшая неудача, которая сделает меня намного сильнее»
+-  2024’e damgasını vuracak güneş gözlüğü markaları
+-  Inauguration of IIM Jammu
+-  Ozvaly se stovky židovských umělců. Odsuzují oscarový projev režiséra o Gaze
+-  Billones de euros: a Europa le auguran la quiebra y crisis económica
+-  Визначився перший фіналіст жіночої волейбольної Суперліги України
+-  Юве се нуждае от звездна селекция
+-  Sakal Vidya School Expo : ‘सकाळ’सोबत मुलांच्या शाळा प्रवेशाचा ‘श्रीगणेशा’
+-  Les associations et SDF choqués après le meurtre, à Vannes
+-  Nashik MD Drugs Case: नाशिकमध्ये रस्त्यावरच वजनकाटा घेऊन ‘एमडी’ची विक्री! एकाला अटक; 58 हजारांची एमडी पावडर जप्त
