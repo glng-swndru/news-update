@@ -1,11 +1,11 @@
 # Latest News
--  Presidente da Petrobras nega pressão do governo Lula em sua gestão
--  暦の上では「春分」なのに・・・石川県内は荒天 落雷や強い雨に注意を(テレビ金沢)
--  International Happiness Day 2024: What is this year’s theme and its key aspects?
--  '대마초 40배' 고농축 대마오일 꿀로 위장… 밀수범 2명 구속 송치
--  Presidente da Petrobras nega pressão do governo Lula em sua gestão
--  İzmir'de feci kaza: Yolun karşısına geçen çifti ölüm ayırdı
--  【速報】JR京都線の京都－高槻駅間で運転見合わせ 向日町駅で線路内の人と列車が接触
--  Национален форум „Смелост, солидарност, социална работа“ в София отбеляза професионалния празник на експертите в социалната грижа у нас
--  Kongres AS Larang Dana AS untuk UNRWA hingga Maret 2025
--  Massa saman F1 RM373 juta
+-  과일값 잡아라…정부, 바나나 · 오렌지 1천 800톤 직수입
+-  Solid Menuju Munas, Golkar Sidoarjo: Karya Airlangga Luar Biasa
+-  Alat memasak 'steamboat' meletup, tujuh beranak cedera
+-  Peniaga mengaku beri suapan kepada pegawai TNB
+-  JKSSB Inspector answer key 2024 objection window closes today
+-  Detik-detik Aktor Donny Kesuma Embuskan Napas Terakhir, Sang Anak Sebut Campur Aduk, Tak Tertolong
+-  Las Divas Doradas rinden homenaje a Coco Marusix: Efraín Aguilar, Marisol, Jimmy Santi y otros artistas también participaron
+-  🔴 En direct : Blinken au Moyen-Orient pour discuter d'une trêve à Gaza, au bord de la famine
+-  Reps Propose Five Months Paid Leave For Mourning Widows
+-  A béke megőrzése az érdeke a szerbeknek és a magyaroknak is
