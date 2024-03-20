@@ -1,11 +1,11 @@
 # Latest News
--  Tüketici güven endeksi açıklandı
--  Tiga Keuntungan Persebaya Surabaya Gaet Junior Brandao dari Bhayangkara FC, Penerus David Da Silva?
--  Sensex gains 183 pts; consumer durables slide; VIX slips 2.40%
--  尹 “이승만 놓은 레일 위 박정희란 기관차 달려”…건국전쟁 언급
--  Денков: Можем да седнем на масата на преговорите и да ги довършим по разумен начин - Труд
--  Châteaudun : l'ancien commerçant, Gérard Champagne, est décédé
--  Збірна України U-19 зіграє перший матч відбору на Євро-2024 проти Північної Македонії
--  Литва призывает партнеров помочь Украине оборудованием для разминирования и обучения
--  Apple Watch'a önemli bir Samsung Galaxy Watch özelliği geliyor
--  La gastronomia giapponese più amata di Milano ora confeziona piatti pronti da portare a casa
+-  Bursa Çalı Kavşağı-Hasanağa Bağlantı Yolu ile Emek-Şehir Hastanesi Metro Hattı'nın ilk istasyonu açılıyor
+-  Bancos promueven estrategias de finanzas sostenibles
+-  Тръмп иска да бъде прекратено делото за заговор за подмяна на изборните резултати през 2020 г.
+-  Армения ратифицировала соглашение о статусе миссии ЕС на границе с Азербайджаном
+-  Minimální mzda je od ledna 2024 vyšší. Ministerstvo má stanovený jasný cíl
+-  What’s New in Java 22? Oracle’s Latest Update for Developers
+-  सिडिओ सरूवासम्बन्धी संशोधित कार्यविधिमा के छ?
+-  Nvidia скоро начнёт использовать память HBM от Samsung
+-  Vì sao Phần Lan được xếp vị trí số 1 về chỉ số hạnh phúc?
+-  Положението е „Извини се, бе“: Асен Генов за политическата ситуация в страната (СНИМКА)
