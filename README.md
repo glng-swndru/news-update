@@ -1,11 +1,11 @@
 # Latest News
--  Pettersson produces 3 points as Canucks beat Buffalo Sabres 3-2
--  Pettersson produces 3 points as Canucks beat Buffalo Sabres 3-2
--  Pettersson produces 3 points as Canucks beat Buffalo Sabres 3-2
--  Dirljiva i bolna ljubavna priča Leonarda Cohena i Marianne pretočena u jednu od iščekivanijih serija godine
--  Indonesia dan India Jalin Kerjasama Angkasa Luar
--  Akaryakıtta kritik hamle, EPDK harekete geçildi...
--  Mokasinke u ovom izdanju postale su novi predmet žudnje
--  경기도경제과학진흥원, 인공지능(AI) 관련 사업에 40억 원 집중 투입
--  기업은행-국가보훈부, 청년 제대군인 맞춤형 카드 개발 업무협약
--  Pettersson produces 3 points as Canucks beat Buffalo Sabres 3-2
+-  From Fake News to Fair Vote: Meta’s Unveils Strategy for India’s Elections
+-  Bosnien-Herzegowina gegen die Ukraine live im TV und Stream: Hier läuft das EM-Playoff-Halbfinale
+-  Scorpions coach wary of wily Hurricanes
+-  Betrugs-SMS aufgetaucht: Kunden von DHL, Hermes und Netflix müssen aufpassen
+-  [속보] 성범죄자 조두순, 야간외출 제한 명령 위반 징역 3개월…법정구속
+-  Declarația de avere a lui Cătălin Cîrstoiu, candidatul PSD-PNL la Primăria Capitalei - 25 de conturi bancare și un Cadillac
+-  Kort sagt om torghandel, Rörberg, färdtjänst, biljetter
+-  இந்தியா முழுவதும் உள்ள குடும்பத் தலைவிகளுக்கு மகளிர் உரிமைத் தொகை.. தேர்தல் வாக்குறுதிகளை பட்டியலிட்ட முதல்வர் மு.க.ஸ்டாலின்!!
+-  Malgré le recul de l'inflation, notre relevé de prix dans les grandes surfaces d'Aurillac ne baisse pas
+-  Đổi mới sáng tạo để tiếp cận và khai thác bền vững 5 giá trị của rừng
