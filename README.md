@@ -1,11 +1,11 @@
 # Latest News
--  Türkiye'yi seçtiler: 31 milyar dolarlık rekor yatırım!
--  Jadwal Berbuka Puasa Hari Kesembilan Ramadan di Bali Rabu 20 Maret 2024 dan Fadilahnya
--  Rescuers search for missing crew after South Korean tanker capsizes
--  Već sedam godina zaredom ova je država najsretnija na svijetu
--  Rescuers search for missing crew after South Korean tanker capsizes
--  Acerbi non avrebbe offeso solo Juan Jesus, ma altri quattro calciatori
--  «У меня очень большой диапазон гонораров: от 100 долларов до 10 тысяч долларов»
--  Ravintolat | Ovella kävi kuhina, kun Teemu Laurellin uuden ravintolan ikkunoista poistettiin pressut
--  Ce mercredi, à Namur aussi, la Justice déclare l’État belge hors-la-loi et coupable de la tuer à petit feu
--  오현경, 엄마 미모 따라잡는 딸과 함께♥
+-  Form 8.5 (EPT/RI) - Mattioli Woods
+-  Eskişehir'de trafiğe kayıtlı araç sayısı 343 bin 111'e ulaştı.
+-  Государство будет продавать белорусам не только пустые участки, но и сразу с коттеджами?
+-  15 İlde Bölücü Terör Örgütüne yönelik eş zamanlı olarak düzenlenen "BOZDOĞAN-12" operasyonlarında 139 şüpheli yakalandı.
+-  Az ENSZ emberi jogi főbiztosa is háborús bűnnek tartja Gáza halálra éheztetését (videó)
+-  Havyar çalan hırsız tutuklandı
+-  Žalba stopirala tender za auto-put
+-  Kiderült, hogy mennyit fizetett a MOL az Újpestért
+-  Нападнаха възрастен мъж, взеха му 50 лв. - Труд
+-  Vučićevu ženu snimili u javnosti nakon dugo vremena: Brak im obilježila i obiteljska tragedija
