@@ -1,11 +1,11 @@
 # Latest News
--  Donald Tusk odpowiada na zarzuty PiS: Słudzy kłamstwa oraz korupcji, w skrócie "skok"
--  Drôme. À Saint-Vallier, la municipalité a lancé son permis de végétaliser
--  Sicherheitsupdates für Firefox und Thunderbird
--  Türkiye'ye bomba perşembe uyarısı şimdi geldi. Sakın atlamadan bakın
--  Der Abstieg scheint vom Tisch
--  Loại hạt đặc trưng của Việt Nam liên tục hốt bạc từ Đông sang Tây: giá trong nước lập đỉnh lịch sử 30 năm, nhiều nhà đầu tư lựa chọn chỉ sau dầu và vàng
--  Avropanın alüminium qadağası Rusiya şirkətini 3.4 milyard dollarlıq gəlirdən məhrum edəcək
--  RAIFFEISEN BANKA traži rukovoditelja poslovnog odnosa sa Premium klijentima - digitalna prodaja u Mostaru
--  Napoli’s Jesus accuses Italy defender Acerbi of racist abuse
--  Điểm danh những hàng sứa đỏ huyền thoại ở Hà Nội, bỏ túi ngay để đi ăn không phải chờ "dài cổ"
+-  BettorEdge to Offer Responsible Gaming Resources and Connections to Problem Gambling Care through Birches Health Partnership
+-  Evo tko je sve i zašto otpao iz SDP-ove velike koalicije: A ovako su govorili prije 2 tjedna
+-  "Продължаваме промяната - Демократична България" ще обсъжда тепърва министрите
+-  Генералният мениджър на Фиорентина Джо Бароне почина - Труд
+-  Klare Ansage: Was Uli Hoeneß von Max Eberl und der neuen Führung des FC Bayern fordert
+-  Гендиректор Фиорентины Бароне умер в возрасте 57 лет
+-  Jharkhand: Fake call centre busted by CID in Ranchi, 2 arrested
+-  Biden tenta reconquistar eleitores hispânicos em Nevada e Arizona
+-  老挝恢复增值税10%税率
+-  Искажение показателей, дробление актов надзора: в Могилевской области выявили нарушения в сфере строительства
