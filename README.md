@@ -1,11 +1,11 @@
 # Latest News
--  Vinko Marinović: Svi zajedno smo zaslužili da se malo odmorimo
--  Може да отложим приемането на еврото с няколко месеца?
--  Hercegovac svake godine kupuje novi mercedes, imao ih više od 50
--  The multifaceted challenges that await incoming IEK leadership
--  Sky Days Net Worth 2024: Updated Wealth Of The Black Ink Crew Star
--  Европу призвали готовиться к войне с Россией, Молдова выслала российского дипломата - ВЕЧЕРНИЙ ДАЙДЖЕСТ VESTI.AZ
--  Mercedes-AMG Introduces Entry-Level GT Coupe with a Four-Cylinder Engine
--  Astronomlar,1,3 milyon süper kütleli kara delik içeren yeni bir haritasını oluşturdu
--  Gulfarium Marine Adventure Park Partners with Manatee Rescue and Rehabilitation Partnership (MRP) to Enhance Conservation Efforts
--  Leichter Genuss: Einfache Ravioli mit cremiger Spinat-Ricotta-Füllung in Salbei-Butter
+-  Free ice cream cones, water ice to welcome spring: Where to grab yours - Fox Business
+-  Beint frá Búdapest - Skiptar skoðanir á ákvörðuninni um Albert
+-  Ilinčić, Božović, Rovčanin i Vučković predloženi za direktore
+-  Inghilterra. Litiga con il motociclista e lo scaraventa giù dal ponte con la sua auto, il video
+-  CHP otobüsüne taş atılmıştı! Trabzon Valiliği'nden açıklama geldi
+-  Addio a Joe Barone, pilastro della Fiorentina: il calcio italiano in lutto
+-  Marc Degryse ziet hoe Mannaert hard gemist wordt bij Club: “Hij had spelers nog kunnen prikkelen”
+-  Sirius på jakt efter lagkaptenen
+-  "Kroję do serka wiejskiego i na kanapki". Nie każdy wie, że ten grzyb jest jadalny
+-  Alcançar a felicidade é desafiador, mas é possível seguir um caminho para estimular emoções positivas
