@@ -1,11 +1,11 @@
 # Latest News
--  Ev sahibi, zam yüzünden tartıştığı kiracısını vurdu
--  Meloni al Senato: “No all’invio di truppe in Ucraina, rischio escalation. Elezioni farsa, Navalny non sarà dimenticato. Israele-Palestina, sì alla soluzione dei due Stati”
--  KEVADINE PÖÖRIPÄEV: vaata, mida soovitavad sel päeval ette võtta selgeltnägija Teresa Mängel ja astroloog Igor Mang
--  Bundesweites Einreiseverbot gegen Extremisten Sellner
--  Wayne Brady’s New Pansexual Dating Life Leads to ‘Shocking’ DMs
--  Cumhurbaşkanı Erdoğan: Hangi kökene mensup olursa olsun her vatandaşımız başımızın tacıdır
--  SBT paga páginas e perfis de influencers na internet para divulgar nova programação
--  Kritik an Bezahlabo für Facebook und Instagram: Meta schlägt Preissenkung vor
--  Donald Trump rages he'll have to sell assets at 'fire sale prices' to pay $464m bond
--  Подходяща риба при определени заболявания
+-  Donald Tusk odpowiada na zarzuty PiS: Słudzy kłamstwa oraz korupcji, w skrócie "skok"
+-  Drôme. À Saint-Vallier, la municipalité a lancé son permis de végétaliser
+-  Sicherheitsupdates für Firefox und Thunderbird
+-  Türkiye'ye bomba perşembe uyarısı şimdi geldi. Sakın atlamadan bakın
+-  Der Abstieg scheint vom Tisch
+-  Loại hạt đặc trưng của Việt Nam liên tục hốt bạc từ Đông sang Tây: giá trong nước lập đỉnh lịch sử 30 năm, nhiều nhà đầu tư lựa chọn chỉ sau dầu và vàng
+-  Avropanın alüminium qadağası Rusiya şirkətini 3.4 milyard dollarlıq gəlirdən məhrum edəcək
+-  RAIFFEISEN BANKA traži rukovoditelja poslovnog odnosa sa Premium klijentima - digitalna prodaja u Mostaru
+-  Napoli’s Jesus accuses Italy defender Acerbi of racist abuse
+-  Điểm danh những hàng sứa đỏ huyền thoại ở Hà Nội, bỏ túi ngay để đi ăn không phải chờ "dài cổ"
