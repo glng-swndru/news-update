@@ -1,11 +1,11 @@
 # Latest News
--  Firm Retention Summary: Hornblower
--  ‘Worst jersey ever’: Fans react as RCB unveil new jersey for IPL 2024
--  미 국무부 "홍콩판 국가보안법에 우려…미 국익 · 시민 영향 검토"
--  ‘Classrooms, care and communities’ will highlight Wednesday’s budget, Moe says
--  Liverpool se interessa pela IA do Google para cobranças de escanteio
--  FOTOGALERIJA: Provjerite kako je bilo na Poljudu
--  Ex-cop punched inspector he caught having sex with his wife in Screwfix car park, court told
--  Neon, Waypoint to collaborate on production slate of $10m-plus features
--  Ограничения на посещение лесов действуют в семи районах Беларуси
--  Unternehmensempfang in Hockenheim diesmal regional gestaltet
+-  "Contro di me, censura della Rai": Mimmo Lucano frigna (e viene smentito a tempo record)
+-  Leao e un futuro al Milan, Paganini analizza: «Ha dato messaggi indicativi ma la strategia usata con Tonali…»
+-  Totti e le parole a sorpresa su Dybala: "Fossi un dirigente della Roma ci penserei bene"
+-  一夜にしてモンスタークレーマーが大応援団長になる瞬間 - スタートアップ芸人
+-  “We hoorden kort maar hevig remmen, gevolgd door geschreeuw dat door merg en been ging”: jongetje (7) komt om het leven na aanrijding door vrachtwagen
+-  Bergonzi: «Espulsione Vlahovic? Ingenuo e imperdonabile, ha detto qualcosa a Giua»
+-  Interview. Olivier Véran ne briguera pas la mairie de Grenoble... mais tacle déjà Alain Carignon
+-  „Ich übe jeden Tag Klavier“: Warum Gangsta-Rapper Xatar in der Kölner Philharmonie auftritt
+-  MOĆNICI KOJI IMAJU ŽENE I LJUBAVNICE! Naša pevačica šokirala priznanjem: Važno je da donose novac
+-  Tajani, 'favorevoli agli eurobond per la difesa comune'
