@@ -1,11 +1,11 @@
 # Latest News
--  Most-anticipated web series to release in 2024
--  Aaron Taylor-Johnson's £1.85m home in 'new Notting Hill' with wife and famous neighbours
--  Hard to keep up lately
--  Autonomes Fahren: Technik vs. Regulatorik | c’t uplink
--  Cuál es la enzima estomacal que ayuda a digerir las proteínas
--  Présence de légionellose à la piscine d’Oupeye, celle-ci sera fermée jusqu’au 1er avril prochain
--  Dreamcast Shooter 'Rainbow Cotton' Is Getting A Remake On Switch
--  Warum ein Australier Geld für eine Flutlichtanlage in Glauchau spendet
--  South Africa's Data Center Market Witnesses Robust Growth Amid Increasing Demand for IT Infrastructure and Cloud Services - Competition, Forecast & Opportunities, 2028
--  Memphis: Quincy Promes er áfram vinur minn
+-  Szef Pentagonu złożył obietnicę przed spotkaniem w Ramstein. „USA nie pozwolą Ukrainie upaść”
+-  ECBs Kazaks: He is comfortable with current market pricing on rates
+-  ŞOK'tan Apple iPhone 15 Pro'da dev bayram indirimi! İşte 19 - 26 Mart ŞOK'un cep telefonu fiyatları
+-  Dans le sud de la Creuse, les élus d'Aubusson n'ont pas tous la même vision de l'avenir
+-  Nucléaire. La fusion de l'ASN et de l'IRSN approuvée in extremis à l'Assemblée
+-  Nackenschlag für Notzinger
+-  ‘Quadrupèdia’, o cómo la posición física sirve para reflexionar sobre los orígenes y los abusos
+-  Американският посланик Кенет Мертен: България има много важна роля в НАТО
+-  Dans le sud de la Creuse, les élus d'Aubusson n'ont pas tous la même vision de l'avenir
+-  Netanyahu defiant on Rafah invasion as officials meet in Qatar for ceasefire talks
