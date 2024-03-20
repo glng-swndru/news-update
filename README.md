@@ -1,11 +1,11 @@
 # Latest News
--  Szef Pentagonu złożył obietnicę przed spotkaniem w Ramstein. „USA nie pozwolą Ukrainie upaść”
--  ECBs Kazaks: He is comfortable with current market pricing on rates
--  ŞOK'tan Apple iPhone 15 Pro'da dev bayram indirimi! İşte 19 - 26 Mart ŞOK'un cep telefonu fiyatları
--  Dans le sud de la Creuse, les élus d'Aubusson n'ont pas tous la même vision de l'avenir
--  Nucléaire. La fusion de l'ASN et de l'IRSN approuvée in extremis à l'Assemblée
--  Nackenschlag für Notzinger
--  ‘Quadrupèdia’, o cómo la posición física sirve para reflexionar sobre los orígenes y los abusos
--  Американският посланик Кенет Мертен: България има много важна роля в НАТО
--  Dans le sud de la Creuse, les élus d'Aubusson n'ont pas tous la même vision de l'avenir
--  Netanyahu defiant on Rafah invasion as officials meet in Qatar for ceasefire talks
+-  Herzinsuffizienz: Millionen Menschen leiden an Herzschwäche – ein neuartiges Pflaster verspricht vielen Heilung
+-  Тото Волф: Дано постигнем напредък в Мелбърн
+-  Aryna Sabalenka surprinde după moartea iubitului ei - Decizia luată în privința participării la WTA Miami
+-  Ismét az Operaházra szegeződtek a tekintetek, de nem az történt, mint amit vártak
+-  Herzinsuffizienz: Millionen Menschen leiden an Herzschwäche – ein neuartiges Pflaster verspricht vielen Heilung
+-  ¿Dónde jugaría Chivas en caso de veto en el Estadio Akron por actos racistas?
+-  VUČIĆ SA PREDSTAVNICAMA ŽENSKE ROMSKE MREŽE: Razgovori o najbitnijim problemima sa kojima se suočavaju u brojnim sferama
+-  Pueblo Libre despliega una nueva unidad de serenos en moto para intervenir ante robos al paso
+-  PFDK sevkleri açıklandı! Olaylı Trabzonspor - Fenerbahçe maçı sonrası Süper Lig detayı
+-  Evinin önüne çöp atanlara karşı bulduğu yöntem çare oldu: Öyle bir not yazdı ki...! Her geçen durup inceliyor
