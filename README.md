@@ -1,11 +1,11 @@
 # Latest News
--  Autotest: de Kia EV9 laat een grootse indruk achter – SUV met veel slimmigheden biedt uitdaging in Nederlands parkeervak
--  0:18-Debakel des FC Bad Dürrheim: Was der suspendierte Torwart des Bezirksligisten denkt
--  Miunchene pristatomas Linos Lapelytės kūrinys žmonių balsams ir bažnyčių varpams
--  Prievidza vydala doposiaľ 940 hlasovacích preukazov pre prvé kolo
--  'Thrilled' - Newcastle United confirm 'multi-year' deal following £65m agreements
--  津田健次郎、マネージャーは「相棒」 好きなところを公開告白 - ORICON NEWS
--  Üzerlerinde sentetik ecza hapı ile yakalandılar
--  Pemimpin Ponpes Al Zaytun Panji Gumilang Divonis 1 Tahun Penjara Kasus Penistaan Agama
--  Αποκλειστική νοσοκόμα «ξάφριζε» ασθενείς στο «Μεταξά» - Επιτέθηκε σε νοσοκόμα και θυρωρό
--  سرلشکر باقری آغاز سال نو را به ملت ایران تبریک گفت
+-  Limon çekirdeklerini yıllarca çöpe attığınıza pişman olacaksınız. Binbir derde şifa oluyor
+-  Ankara-İstanbul YHT hattında seyahat süresi 35 dakika daha kısalıyor
+-  Seçime günler kala 7 büyükşehirin anket sonuçları yayımlandı! İşte Bursa'da yapılan son sonuçlar...
+-  Un soldado que rescató a su comandante del tanque 'Aliosha' es condecorado con la Orden del Valor
+-  İsmail Kartal o yoksa ben de yokum demişti! 9 milyon euroluk yıldız futbolcunun değeri düştü: Ali Koç kara kara düşünüyor
+-  UE anuncia acordo para impor limite às importações agrícolas da Ucrânia
+-  تقرير أمريكي: خلاف في الاتحاد الأوروبي بشأن تشديد العقوبات على إيران
+-  Caso Ocean Viking, si discuterà l'eccezione di incostituzionalità del decreto Piantedosi
+-  Учени борят ХИВ с генно инженерство - Труд
+-  Govt acknowledges providing incentives to sugar producer after stopping sugar subsidies
