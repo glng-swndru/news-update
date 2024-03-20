@@ -1,11 +1,11 @@
 # Latest News
--  İTÜ kampüsünde patlama ve yangın: 1 kişi yaralandı
--  NEKI SU TRAJNO POVUČENI Evo kojih lijekova nikako nema u ljekarnama
--  Pāvests atkal aicina uz sarunām par karu pārtraukšanu Ukrainā un Gazas joslā
--  윤 대통령 "위대한 유산 '민주주의', 미래세대에 전해줘야"
--  Еврокомиссия предложит облегчить порядок приема новых членов в ЕС, - Politico
--  V B.Bystrici doteraz vydali pre prvé kolo volieb zhruba 2640 preukazov
--  "Vučice" za vikend napadaju titulu
--  Ketua PMI Kunjungi Korban Banjir di Demak
--  "La marque était très abimée" : le groupe d'Ehpad Orpea change de nom deux ans après le scandale
--  Joe Barone, in mattinata 2 mila persone alla camera ardente
+-  Dani Alves quedó en libertad provisional, bajo una fianza millonaria
+-  Reklam Kurulu, e-ticaret sitelerindeki üyelik şartlarını inceledi
+-  Halvor Egner Granerud v Planici ne bo letel
+-  Рекорди на резервите в Англия
+-  „Тайният син“ на Чарлз III проговори за измамата с изчезването на Кейт Мидълтън
+-  BHOPAL NEWS - इंजीनियर पति ने ट्रेन से चादर चुराया पत्नी ने शिकायत कर दी
+-  Κατέπεσε F-16 στην Ελλάδα - Εγκατέλειψε ο πιλότος
+-  EU: Privremeni sporazum o liberalizaciji trgovine za Ukrajinu
+-  기상 악화로 정박하다…일본 앞바다서 전복돼 8명 사망
+-  Terrortámadást tervezett a parlament ellen két férfi Svédországban, elfogták őket
