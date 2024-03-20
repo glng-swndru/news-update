@@ -1,11 +1,11 @@
 # Latest News
--  Θρίλερ στη Ρωσία: 13 εργάτες παγιδεύτηκαν σε χρυσωρυχείο - Εικόνες από προσπάθειες απεγκλωβισμού
--  Anklage: Deutscher Soldat soll für Russland spioniert haben
--  Θρήνος στη Φιορεντίνα και το ιταλικό ποδόσφαιρο: Πέθανε ο CEO των Βιόλα, Τζο Μπαρόνε
--  Šéf úradu vlády má na krku obvinenie. ÚŠP v kauze súvisiacej s Fondom národného majetku obvinil päť osôb
--  Христо Проданов от БСП коментира кабинета "Габриел"
--  'Misleading' - Finance Expert explains why Nott'm Forest points deduction differs to Everton
--  The Acolyte Trailer Sends Star Wars To The High Republic Era
--  Fenerbahçe'den Genel Kurul için KAP bildirimi
--  Rusija planira evakuaciju 9.000 djece iz sela na granici sa...
--  Ukrajinu šokuje, že americká vojenská pomoc zůstává zablokovaná, řekl Kuleba
+-  BBB 24: Alane questiona 'amizade rasa' de Leidy e ambas brigam: 'Para de falar comigo'
+-  Bafana boss Broos upset at Mokwena’s comments about Sundowns players’ injuries
+-  Testele de exersare pentru absolvenții școlii primare, ai gimnaziilor și liceelor, publicate: „Nu este ceva ce copiii nu învață la clasă”
+-  Akcja policji w gabinecie lekarskim. Jest komentarz założyciela placówki
+-  Stationäre Versorgung | Krankenhausreform: Der Reformstreit endet nicht
+-  Akcja policji w gabinecie lekarskim. Jest komentarz założyciela placówki
+-  BBB 24: Alane questiona 'amizade rasa' de Leidy e ambas brigam: 'Para de falar comigo'
+-  Alexa, öffne die Tür! Ring Intercom macht Ihre Gegensprechanlage smart
+-  BBB 24: Alane questiona 'amizade rasa' de Leidy e ambas brigam: 'Para de falar comigo'
+-  Senato, studente mima il gesto della pistola contro la Meloni in Aula. Poi si scusa
