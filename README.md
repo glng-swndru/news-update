@@ -1,11 +1,11 @@
 # Latest News
--  BettorEdge to Offer Responsible Gaming Resources and Connections to Problem Gambling Care through Birches Health Partnership
--  Evo tko je sve i zašto otpao iz SDP-ove velike koalicije: A ovako su govorili prije 2 tjedna
--  "Продължаваме промяната - Демократична България" ще обсъжда тепърва министрите
--  Генералният мениджър на Фиорентина Джо Бароне почина - Труд
--  Klare Ansage: Was Uli Hoeneß von Max Eberl und der neuen Führung des FC Bayern fordert
--  Гендиректор Фиорентины Бароне умер в возрасте 57 лет
--  Jharkhand: Fake call centre busted by CID in Ranchi, 2 arrested
--  Biden tenta reconquistar eleitores hispânicos em Nevada e Arizona
--  老挝恢复增值税10%税率
--  Искажение показателей, дробление актов надзора: в Могилевской области выявили нарушения в сфере строительства
+-  Θρίλερ στη Ρωσία: 13 εργάτες παγιδεύτηκαν σε χρυσωρυχείο - Εικόνες από προσπάθειες απεγκλωβισμού
+-  Anklage: Deutscher Soldat soll für Russland spioniert haben
+-  Θρήνος στη Φιορεντίνα και το ιταλικό ποδόσφαιρο: Πέθανε ο CEO των Βιόλα, Τζο Μπαρόνε
+-  Šéf úradu vlády má na krku obvinenie. ÚŠP v kauze súvisiacej s Fondom národného majetku obvinil päť osôb
+-  Христо Проданов от БСП коментира кабинета "Габриел"
+-  'Misleading' - Finance Expert explains why Nott'm Forest points deduction differs to Everton
+-  The Acolyte Trailer Sends Star Wars To The High Republic Era
+-  Fenerbahçe'den Genel Kurul için KAP bildirimi
+-  Rusija planira evakuaciju 9.000 djece iz sela na granici sa...
+-  Ukrajinu šokuje, že americká vojenská pomoc zůstává zablokovaná, řekl Kuleba
