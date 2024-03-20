@@ -1,11 +1,11 @@
 # Latest News
--  阿根廷专家：越南是南方共同市场与东盟贸易合作中的典范
--  Large police presence, hazmat suits seen in Rutland Centennial Park
--  【春分の日】強風の中墓前に手を合わせる人の姿
--  Tesla China Witnesses Dip in New Vehicle Registrations
--  Bertāns negūst punktus «Hornets» zaudējumā NBA spēlē pret «Magic»
--  이윤진, 이혼 소송 중인 이범수 저격글인가 “뻔뻔한 상판대기는 뭐냐”
--  Hotel housing trend takes hold in Sacramento
--  体罰などで教師３人を懲戒処分 鹿児島県教委
--  ‘That’s a dream’: Virat Kohli on RCB doubling it up in IPL 2024 after Mandhana & Co. win WPL title
--  Спасатели планируют бурить скважину на месте завала на руднике "Пионер"
+-  حماس: دشمن با تهدید و باج‌گیری نمی‌تواند به اهداف خود برسد
+-  Gương mặt thất thần của bà Trương Mỹ Lan sau khi bị đề nghị tuyên án tử
+-  S kolesom do aktivnega prostega časa
+-  NeuroDerm gibt die Veröffentlichung positiver Ergebnisse der Phase-3-Studie BouNDless bekannt, in der ND0612 bei Patienten mit motorischen Schwankungen der Parkinson-Krankheit untersucht wurde
+-  Ухилянт з Вінниці заплатив $3 000 за переправу до Молдови - ДПСУ
+-  U.S. efforts to close loopholes that gave Russia---the aggressor in the war with Ukraine---access to the international banking system appear to be paying off.
+-  U.S. stocks advanced, with the S&P 500 rising 0.6% to a record and the Dow and Nasdaq gaining 0.8% and 0.4%, respectively.
+-  '딸 특혜채용 청탁 혐의' 송봉섭 전 선관위 사무차장 소환 조사
+-  The global experiment with negative interest rates ended when the last holdout, the Bank of Japan, moved its key policy rate back to at least zero.
+-  Unilever said it plans to make its ice-cream division, which includes Ben & Jerry's, Popsicle and other brands, a stand-alone business.
