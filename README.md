@@ -1,11 +1,11 @@
 # Latest News
--  【大國博弈】中國１月減持美債１８６億美元，終止連增兩個月
--  ガザ北部に人道支援物資２００トン到着、海上輸送で(CNN.co.jp)
--  Gracias a Palworld, Xbox vivió uno de sus mejores meses en toda su historia en enero
--  バイクを“端っこ”に追いやるな！ 「バイク中心」で考えたらヒラメキ “ありそうで無かった”道の駅のバイク駐車場案とは？(乗りものニュース)
--  Will AI help or hurt workers? At SXSW, that depends on who you ask.
--  이찬원 “장윤정과 재혼 가짜뉴스에 마음고생…국밥집서 등짝 맞아” (한끗차이)
--  المحافظ لملس يؤكد على أهمية تعدد الخدمات والتسهيلات المالية والمصرفية المقدمة للمجتمع
--  황선홍 감독에게도 선수들에게도 중요한 태국전…내용과 결과 다 잡아라
--  GDP bình quân từng chỉ bằng 1/3 Lào, 1/6 Philippines, Việt Nam mất 9 năm vượt Lào, bao nhiêu năm vượt Philippines?
--  Electoral Office Rolls Out Training of Senior Polling Officials
+-  Construction begins on new Vancouver Art Gallery, featuring traditional Coast Salish design
+-  Two premiership dark horses emerge; stark draw reality for Bunnies: NRL Power Rankings
+-  Kris Jenner announces her sister, Karen Houghton, has died
+-  한화, 달착륙선 등 차세대 발사체 개발 사업자 선정… “민간 주도 우주시대 개막 초읽기”
+-  CBF suspende punição e Sete de Setembro voltará a disputar jogos
+-  스트레이 키즈, 8월 美 뮤직 페스티벌 ‘롤라팔루자 시카고’ 헤드라이너 출격
+-  Anti-DEI bill passed by Alabama lawmakers, heads to Governor's desk
+-  ‘फॉरेन्सिक सायन्स’मधील संधी
+-  Trump wins Kansas GOP primary
+-  Star Awards 2024: Taiwanese host Matilda Tao, Korean actor Kim Jae-hoon among 94 nominees for Most Popular Artistes - CNA
