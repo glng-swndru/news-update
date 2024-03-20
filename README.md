@@ -1,11 +1,11 @@
 # Latest News
--  Odgovor Marku Kovačeviću: Za sve je kriv Mark Zakerberg
--  “La corriente succionó mis zapatos”: el terror que sintió el pasajero sentado junto a la puerta del avión de Alaska Airlines que se abrió en pleno vuelo
--  ＮＹ外為市場＝円4カ月ぶり安値、ドル堅調 ＦＲＢ金利見通しに注目 - ロイター (Reuters Japan)
--  جدة.. عربات الـ"فود ترك" تتنافس لتقديم الأطباق الرمضانية الشعبية
--  Prince Harry worried over Kate Middleton disappearance rumours
--  De que você é dono?
--  MCE 2024 Милан: экологичное охлаждение, отопление и горячее водоснабжение от Midea RAC
--  Clip Money Inc. Announces Re-Allocation of Previously Issued Options
--  ترمب: إذا أصبحت رئيسا فلن أتأخر أبدا في ترحيل المهاجرين غير القانونيين وضبط أمن الحدود
--  Ersen Martin hayatını kaybetti
+-  La nouvelle promesse de Diomaye Faye pour conjurer cette « malédiction » s’il est élu président
+-  Diourbel : Les 11 maires du département font allégeance à Amadou Bâ
+-  أبل تستعد لطرح iPhone 16 خلال 6 أشهر
+-  AMERIČKI AMBASADOR HIL: Niko nije bio oduševljen bombardovanjem, postojala je nada da se može izbeći
+-  What Is a Regency and Who Will Be Named Regent if King Charles Can’t Perform His Duties?
+-  I apstinencija ima svoje dobre strane
+-  முக்கூடல் அருகே இளைஞரை தாக்கியதாக ஒருவா் கைது
+-  Fake News und Foto-Pannen: Wie die britischen Royals das Vertrauen der Bevölkerung verspielen
+-  Partizan pobedio Baskoniju! Dramatična završnica pripala crno-belima
+-  تلال مايو يفوز على الشعلة في الدوري الرمضاني بيافع رصد
