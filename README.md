@@ -1,11 +1,11 @@
 # Latest News
--  Róchez deja claro: “Este es el clásico centroamericano”
--  골든차일드 이장준, 아이돌 최초 피지컬 전쟁 합류 (피지컬:100)
--  [삼성선물] 에너지 시황 - 공급에 대한 우려
--  Andskotans demókratar og Trump-hatarar
--  Alcalde de Toledo, "consternado" tras la aparición de 4 cadáveres, pide esperar a investigación para sacar conclusiones
--  [사설] 총선 후보 등록 시작…명암 교차하는 여야
--  Álvaro Obregón brinda a vecinos información de protección civil en casos de sismo
--  Samoa MP proposes raising retirement age to address teacher and doctor shortages
--  R.I. Senate passes gun safe storage bill
--  Descarta IEE impugnaciones contra aspirantes a la Alcaldía de Parral
+-  DAOs instructed to place facilitation desk to hear usury victims' problems
+-  "네패스아크, AP 수요 늘어나 매출 긍정적…목표주가↑"
+-  ಲೋಕಸಭೆ ಚುನಾವಣೆ: ಕರಡಿ ಸಂಗಣ್ಣ ನಿರ್ಧಾರ ನಾಳೆ
+-  Žhavá novinka společnosti Bybit: P2P obchodování kryptoměn s nulovými transakčními poplatky
+-  DAOs instructed to place facilitation desk to hear usury victims' problems
+-  මධ්‍යම පළාත් ක්‍රීඩක වර්ණ ප්‍රදානය
+-  تفحيط واستعراض بالسيارة.. إيقاف سائق عرض سلامة المارة بالناظور للخطر
+-  Clip: Khẩu lựu pháo M2A1 - "vị anh hùng thầm lặng" bắn phát mở màn trong chiến dịch Điện Biên Phủ
+-  Gezeravcı uzaydan çektiği İzmir fotoğraflarını paylaştı
+-  النصر يعترض.. و«العمومية» تختار الـ 11
