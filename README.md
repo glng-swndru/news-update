@@ -1,11 +1,11 @@
 # Latest News
--  Манфред Вебер призова партиите в България да подкрепят кабинета на Габриел
--  Corporación América Airports reports 5.4% YoY rise in passenger traffic in February
--  Γερμανία: Το «Σχήμα Ράμσταϊν» επαναβεβαιώνει την στήριξή του στην Ουκρανία
--  Умєров розповів про результати Рамштайну
--  Državljanin BiH pretukao 18-godišnjaka, u teškom je stanju
--  Državljanin BiH pretukao 18-godišnjaka, u teškom je stanju
--  FIFA'dan 5 Süper Lig kulübüne transfer yasağı
--  Cidade de SP tem 3º verão mais quente das últimas décadas; o que esperar do outono?
--  Tăng quản trị rủi ro trên thị trường chứng khoán
--  Učenik osnovne škole imao listu za odstrel, napokon se oglasio ravnatelj: Ovakve situacije trebaju ostati unutar škole!
+-  Odgovor Marku Kovačeviću: Za sve je kriv Mark Zakerberg
+-  “La corriente succionó mis zapatos”: el terror que sintió el pasajero sentado junto a la puerta del avión de Alaska Airlines que se abrió en pleno vuelo
+-  ＮＹ外為市場＝円4カ月ぶり安値、ドル堅調 ＦＲＢ金利見通しに注目 - ロイター (Reuters Japan)
+-  جدة.. عربات الـ"فود ترك" تتنافس لتقديم الأطباق الرمضانية الشعبية
+-  Prince Harry worried over Kate Middleton disappearance rumours
+-  De que você é dono?
+-  MCE 2024 Милан: экологичное охлаждение, отопление и горячее водоснабжение от Midea RAC
+-  Clip Money Inc. Announces Re-Allocation of Previously Issued Options
+-  ترمب: إذا أصبحت رئيسا فلن أتأخر أبدا في ترحيل المهاجرين غير القانونيين وضبط أمن الحدود
+-  Ersen Martin hayatını kaybetti
