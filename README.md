@@ -1,11 +1,11 @@
 # Latest News
--  Куртуа прокомментировал новую травму: «Небольшая неудача, которая сделает меня намного сильнее»
--  2024’e damgasını vuracak güneş gözlüğü markaları
--  Inauguration of IIM Jammu
--  Ozvaly se stovky židovských umělců. Odsuzují oscarový projev režiséra o Gaze
--  Billones de euros: a Europa le auguran la quiebra y crisis económica
--  Визначився перший фіналіст жіночої волейбольної Суперліги України
--  Юве се нуждае от звездна селекция
--  Sakal Vidya School Expo : ‘सकाळ’सोबत मुलांच्या शाळा प्रवेशाचा ‘श्रीगणेशा’
--  Les associations et SDF choqués après le meurtre, à Vannes
--  Nashik MD Drugs Case: नाशिकमध्ये रस्त्यावरच वजनकाटा घेऊन ‘एमडी’ची विक्री! एकाला अटक; 58 हजारांची एमडी पावडर जप्त
+-  Firm Retention Summary: Hornblower
+-  ‘Worst jersey ever’: Fans react as RCB unveil new jersey for IPL 2024
+-  미 국무부 "홍콩판 국가보안법에 우려…미 국익 · 시민 영향 검토"
+-  ‘Classrooms, care and communities’ will highlight Wednesday’s budget, Moe says
+-  Liverpool se interessa pela IA do Google para cobranças de escanteio
+-  FOTOGALERIJA: Provjerite kako je bilo na Poljudu
+-  Ex-cop punched inspector he caught having sex with his wife in Screwfix car park, court told
+-  Neon, Waypoint to collaborate on production slate of $10m-plus features
+-  Ограничения на посещение лесов действуют в семи районах Беларуси
+-  Unternehmensempfang in Hockenheim diesmal regional gestaltet
