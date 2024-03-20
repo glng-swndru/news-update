@@ -1,11 +1,11 @@
 # Latest News
--  "LA STAMPA" DI JOHN ELKANN MANDA UN AVVISO DI SFRATTO A MAX ALLEGRI - IL TECNICO È LEGATO AL CLUB FINO AL 2025 MA IL QUOTIDIANO EVOCA UN CAMBIO IN PANCHINA: "È NEL PIENO DIRITTO DEL CLUB DECIDERE DI CAMBIARE E RECIDERE L'ULTIMO FILO CON LA GESTIONE DI ANDREA AGNELLI, IL PRESIDENTE CHE GLI AFFIDÒ LA RICOSTRUZIONE" - "SERPEGGIANO INDISCREZIONI SU SONDAGGI PER ALTRI TECNICI, DA THIAGO MOTTA A RAFFAELE PALLADINO..."
--  Українські хакери атакували державні та приватні об’єкти РФ. ГУР оцінило збитки ворога у сотні тисяч доларів
--  Taxas de juros abrem em alta, mas viram para o negativo com títulos norte-americanos
--  تحيات جلالة السلطان لرئيس أستونيا ينقلها سفيرنا لدى المملكة المتحدة
--  Новият Джеймс Бонд е ясен: Ето кой актьор най-вероятно ще изиграе Агент 007
--  Baseball: A new ball game for reliever Yuki Matsui in MLB
--  Fed Başkanı Powell, Yarın Şahin Bir Değişime İşaret Edecek mi?
--  Prioritise Kedah's development and leave matters under Federal Govt to me, Saifuddin tells Sanusi
--  Yakın arkadaşını öldüren sanık: "Uyuşturucu parasından dolayı kendisine borcum vardı"
--  Gazeteci Levent Gültekin'e ‘Cumhurbaşkanına hakaretten’ 11 ay hapis cezası
+-  Ev sahibi, zam yüzünden tartıştığı kiracısını vurdu
+-  Meloni al Senato: “No all’invio di truppe in Ucraina, rischio escalation. Elezioni farsa, Navalny non sarà dimenticato. Israele-Palestina, sì alla soluzione dei due Stati”
+-  KEVADINE PÖÖRIPÄEV: vaata, mida soovitavad sel päeval ette võtta selgeltnägija Teresa Mängel ja astroloog Igor Mang
+-  Bundesweites Einreiseverbot gegen Extremisten Sellner
+-  Wayne Brady’s New Pansexual Dating Life Leads to ‘Shocking’ DMs
+-  Cumhurbaşkanı Erdoğan: Hangi kökene mensup olursa olsun her vatandaşımız başımızın tacıdır
+-  SBT paga páginas e perfis de influencers na internet para divulgar nova programação
+-  Kritik an Bezahlabo für Facebook und Instagram: Meta schlägt Preissenkung vor
+-  Donald Trump rages he'll have to sell assets at 'fire sale prices' to pay $464m bond
+-  Подходяща риба при определени заболявания
