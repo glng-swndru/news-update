@@ -1,11 +1,11 @@
 # Latest News
--  Acun Ilıcalı’dan olaylı Trabzonspor-Fenerbahçe maçının hakemi Halil Umut Meler’e çağrı
--  Hrvatski logoraši obilježili 30. obljetnicu raspuštanja logora Armije BiH 'IV. osnovna škola'
--  Meteorolog Dnevnika Nove TV Darijo Brzoja otkriva kakvo vas vrijeme očekuje na prvi dan proljeća
--  Taurus-Streit in der Ampel: Olaf Scholz verteidigt sich in der FDP-Fraktion
--  Cimeri ga silovali drškom od metle! Do smrti zlostavljani zatvorenik, bio žrtva permanentnog nasilja?!
--  Путин призвал парламент руководствоваться интересами дела при формировании кабмина
--  Alertan por armas nucleares que Vladimir Putin quiere enviar al espacio
--  Manuel Serrão, Júlio Magalhães e suspeitas de fraude milionária. Entenda a Operação Maestro
--  Cabinet nod to import another 42 Mn eggs for festive season
--  Battle of the Golden Shield at Ruwanwella
+-  Netanyahu Lagi-lagi Tolak Permintaan Biden untuk Batalkan Serangan Rafah
+-  Bayraktar TB3 bir testi daha başarıyla geçti! 9 saat havada kaldı
+-  Ucraini ancora in difficoltà sul terreno, Zelensky: "a marzo colpiti da 900 bombe guidate"
+-  UPDATE: RCMP swarm Kelowna’s Orchard Park Mall
+-  Irak'ın kuzeyine hava harekatı: 27 hedef imha edildi
+-  Where To Get The Chain Of Hades In Fortnite
+-  'CARCOSA': Pentagon Gives Cyber Program Same Name as True Detective Pedophile Temple
+-  CTO Realty Growth Announces Sale of Mixed-Use Property in Santa Fe, New Mexico for $20.0 Million
+-  Picton Main Street reconstruction continues April 1
+-  Hreinasta loftið í Evrópu hér
