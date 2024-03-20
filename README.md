@@ -1,11 +1,11 @@
 # Latest News
--  حماس: دشمن با تهدید و باج‌گیری نمی‌تواند به اهداف خود برسد
--  Gương mặt thất thần của bà Trương Mỹ Lan sau khi bị đề nghị tuyên án tử
--  S kolesom do aktivnega prostega časa
--  NeuroDerm gibt die Veröffentlichung positiver Ergebnisse der Phase-3-Studie BouNDless bekannt, in der ND0612 bei Patienten mit motorischen Schwankungen der Parkinson-Krankheit untersucht wurde
--  Ухилянт з Вінниці заплатив $3 000 за переправу до Молдови - ДПСУ
--  U.S. efforts to close loopholes that gave Russia---the aggressor in the war with Ukraine---access to the international banking system appear to be paying off.
--  U.S. stocks advanced, with the S&P 500 rising 0.6% to a record and the Dow and Nasdaq gaining 0.8% and 0.4%, respectively.
--  '딸 특혜채용 청탁 혐의' 송봉섭 전 선관위 사무차장 소환 조사
--  The global experiment with negative interest rates ended when the last holdout, the Bank of Japan, moved its key policy rate back to at least zero.
--  Unilever said it plans to make its ice-cream division, which includes Ben & Jerry's, Popsicle and other brands, a stand-alone business.
+-  Bank Negara: Malaysia records 11.5bil e-payment transactions in 2023
+-  Mega Millions jackpot raised Tuesday to an estimated $893 million. The numbers are in. Did you win?
+-  La antena de la Cámara de Comercio de Oviedo dio de alta a veinte empresas en la comarca del Caudal el pasado año
+-  Wagner College students celebrate first March Madness win in school's history
+-  Mueblería del descanso
+-  La costera de angula más corta de la historia finaliza con 850 kilos capturados en la ría del Nalón
+-  Mega Millions jackpot raised Tuesday to an estimated $893 million. The numbers are in. Did you win?
+-  La Asturias expatriada ya es el tercer concejo (aunque solo el 1,5% ha nacido en la región)
+-  病院に約３時間居座り…警察が説得も帰らず 建造物不退去で無職の男（69）を現行犯逮捕も否認【新潟】
+-  Savia nueva para el Grupo Covadonga: "Conoce como nadie este club"
