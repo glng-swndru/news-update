@@ -1,11 +1,11 @@
 # Latest News
--  Bursa Çalı Kavşağı-Hasanağa Bağlantı Yolu ile Emek-Şehir Hastanesi Metro Hattı'nın ilk istasyonu açılıyor
--  Bancos promueven estrategias de finanzas sostenibles
--  Тръмп иска да бъде прекратено делото за заговор за подмяна на изборните резултати през 2020 г.
--  Армения ратифицировала соглашение о статусе миссии ЕС на границе с Азербайджаном
--  Minimální mzda je od ledna 2024 vyšší. Ministerstvo má stanovený jasný cíl
--  What’s New in Java 22? Oracle’s Latest Update for Developers
--  सिडिओ सरूवासम्बन्धी संशोधित कार्यविधिमा के छ?
--  Nvidia скоро начнёт использовать память HBM от Samsung
--  Vì sao Phần Lan được xếp vị trí số 1 về chỉ số hạnh phúc?
--  Положението е „Извини се, бе“: Асен Генов за политическата ситуация в страната (СНИМКА)
+-  Türkiye'yi seçtiler: 31 milyar dolarlık rekor yatırım!
+-  Jadwal Berbuka Puasa Hari Kesembilan Ramadan di Bali Rabu 20 Maret 2024 dan Fadilahnya
+-  Rescuers search for missing crew after South Korean tanker capsizes
+-  Već sedam godina zaredom ova je država najsretnija na svijetu
+-  Rescuers search for missing crew after South Korean tanker capsizes
+-  Acerbi non avrebbe offeso solo Juan Jesus, ma altri quattro calciatori
+-  «У меня очень большой диапазон гонораров: от 100 долларов до 10 тысяч долларов»
+-  Ravintolat | Ovella kävi kuhina, kun Teemu Laurellin uuden ravintolan ikkunoista poistettiin pressut
+-  Ce mercredi, à Namur aussi, la Justice déclare l’État belge hors-la-loi et coupable de la tuer à petit feu
+-  오현경, 엄마 미모 따라잡는 딸과 함께♥
