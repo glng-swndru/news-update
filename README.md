@@ -1,11 +1,11 @@
 # Latest News
--  尹 대통령 “기업인 마음껏 뛰도록 뒷받침하는 게 정부 역할”
--  Repubblica apre sulla Roma: "Prezzi alle stelle per l'Europa League, i tifosi protestano"
--  What went down when Samantha bumped into ex-hubby Chaitanya at Prime Video event?
--  김준호 “솔로인 줄 알고 들이대신 거예요?” 탁재훈에게 돌직구 (돌싱포맨)
--  Clima de malestar con Milei en la Corte
--  Alain-Fabien Delon : le tendre message de sa mère pour son anniversaire
--  時津・元村郷で車3台が絡む事故 ケガ人複数の模様【長崎】
--  Az új EU szabályozás vonatkozik az iOS-re és a rajta elérhető böngészőkre
--  දුමින්ද නාගමුව-ලහිරු වීරසේකර අත්අඩංගුවට
--  Merzļikins neiziet uz ledus "Blue Jackets" zaudējumā "Red Wings" hokejistiem
+-  Tüketici güven endeksi açıklandı
+-  Tiga Keuntungan Persebaya Surabaya Gaet Junior Brandao dari Bhayangkara FC, Penerus David Da Silva?
+-  Sensex gains 183 pts; consumer durables slide; VIX slips 2.40%
+-  尹 “이승만 놓은 레일 위 박정희란 기관차 달려”…건국전쟁 언급
+-  Денков: Можем да седнем на масата на преговорите и да ги довършим по разумен начин - Труд
+-  Châteaudun : l'ancien commerçant, Gérard Champagne, est décédé
+-  Збірна України U-19 зіграє перший матч відбору на Євро-2024 проти Північної Македонії
+-  Литва призывает партнеров помочь Украине оборудованием для разминирования и обучения
+-  Apple Watch'a önemli bir Samsung Galaxy Watch özelliği geliyor
+-  La gastronomia giapponese più amata di Milano ora confeziona piatti pronti da portare a casa
