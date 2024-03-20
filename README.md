@@ -1,11 +1,11 @@
 # Latest News
--  Herzinsuffizienz: Millionen Menschen leiden an Herzschwäche – ein neuartiges Pflaster verspricht vielen Heilung
--  Тото Волф: Дано постигнем напредък в Мелбърн
--  Aryna Sabalenka surprinde după moartea iubitului ei - Decizia luată în privința participării la WTA Miami
--  Ismét az Operaházra szegeződtek a tekintetek, de nem az történt, mint amit vártak
--  Herzinsuffizienz: Millionen Menschen leiden an Herzschwäche – ein neuartiges Pflaster verspricht vielen Heilung
--  ¿Dónde jugaría Chivas en caso de veto en el Estadio Akron por actos racistas?
--  VUČIĆ SA PREDSTAVNICAMA ŽENSKE ROMSKE MREŽE: Razgovori o najbitnijim problemima sa kojima se suočavaju u brojnim sferama
--  Pueblo Libre despliega una nueva unidad de serenos en moto para intervenir ante robos al paso
--  PFDK sevkleri açıklandı! Olaylı Trabzonspor - Fenerbahçe maçı sonrası Süper Lig detayı
--  Evinin önüne çöp atanlara karşı bulduğu yöntem çare oldu: Öyle bir not yazdı ki...! Her geçen durup inceliyor
+-  Vinko Marinović: Svi zajedno smo zaslužili da se malo odmorimo
+-  Може да отложим приемането на еврото с няколко месеца?
+-  Hercegovac svake godine kupuje novi mercedes, imao ih više od 50
+-  The multifaceted challenges that await incoming IEK leadership
+-  Sky Days Net Worth 2024: Updated Wealth Of The Black Ink Crew Star
+-  Европу призвали готовиться к войне с Россией, Молдова выслала российского дипломата - ВЕЧЕРНИЙ ДАЙДЖЕСТ VESTI.AZ
+-  Mercedes-AMG Introduces Entry-Level GT Coupe with a Four-Cylinder Engine
+-  Astronomlar,1,3 milyon süper kütleli kara delik içeren yeni bir haritasını oluşturdu
+-  Gulfarium Marine Adventure Park Partners with Manatee Rescue and Rehabilitation Partnership (MRP) to Enhance Conservation Efforts
+-  Leichter Genuss: Einfache Ravioli mit cremiger Spinat-Ricotta-Füllung in Salbei-Butter
