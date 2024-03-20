@@ -1,11 +1,11 @@
 # Latest News
--  From Fake News to Fair Vote: Meta’s Unveils Strategy for India’s Elections
--  Bosnien-Herzegowina gegen die Ukraine live im TV und Stream: Hier läuft das EM-Playoff-Halbfinale
--  Scorpions coach wary of wily Hurricanes
--  Betrugs-SMS aufgetaucht: Kunden von DHL, Hermes und Netflix müssen aufpassen
--  [속보] 성범죄자 조두순, 야간외출 제한 명령 위반 징역 3개월…법정구속
--  Declarația de avere a lui Cătălin Cîrstoiu, candidatul PSD-PNL la Primăria Capitalei - 25 de conturi bancare și un Cadillac
--  Kort sagt om torghandel, Rörberg, färdtjänst, biljetter
--  இந்தியா முழுவதும் உள்ள குடும்பத் தலைவிகளுக்கு மகளிர் உரிமைத் தொகை.. தேர்தல் வாக்குறுதிகளை பட்டியலிட்ட முதல்வர் மு.க.ஸ்டாலின்!!
--  Malgré le recul de l'inflation, notre relevé de prix dans les grandes surfaces d'Aurillac ne baisse pas
--  Đổi mới sáng tạo để tiếp cận và khai thác bền vững 5 giá trị của rừng
+-  Máme dosah, kdo je víc! Klus a Klusová palestinují za peníze bohatých a klikání chudých
+-  در تعطیلات نوروز کجا برویم؟ | تهرانگردی با درشکه تا پیاده روی با تورها
+-  Σοβαρό τροχαίο στον Πειραιά - Στο νοσοκομείο ένας 22χρονος οδηγός
+-  Bez překvapení. Trump i Biden v USA ovládli další sérii stranických primárek
+-  „Lena war an 6 von 7 Tagen weg – ich habe zu Hause gewartet“
+-  Nasıl yani bakan bey...
+-  Energie zur Selbstversorgung: Mein Haus, mein Auto, mein Windrad
+-  Zahl nichtdeutscher Verdächtiger gestiegen: „Wir müssen über Ausländerkriminalität sprechen“
+-  PM Shehbaz awards Rs2.5 million cash prize to Pakistan’s javelin star Arshad Nadeem
+-  'കള്ളി എന്നുവിളിച്ച് അധിക്ഷേപം, വൃത്തികെട്ട ഭാഷ ഉപയോഗിക്കുന്നു'; നിയമപരമായി നേരിടുമെന്ന് കെ.കെ ശൈലജ
