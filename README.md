@@ -1,11 +1,11 @@
 # Latest News
--  Limon çekirdeklerini yıllarca çöpe attığınıza pişman olacaksınız. Binbir derde şifa oluyor
--  Ankara-İstanbul YHT hattında seyahat süresi 35 dakika daha kısalıyor
--  Seçime günler kala 7 büyükşehirin anket sonuçları yayımlandı! İşte Bursa'da yapılan son sonuçlar...
--  Un soldado que rescató a su comandante del tanque 'Aliosha' es condecorado con la Orden del Valor
--  İsmail Kartal o yoksa ben de yokum demişti! 9 milyon euroluk yıldız futbolcunun değeri düştü: Ali Koç kara kara düşünüyor
--  UE anuncia acordo para impor limite às importações agrícolas da Ucrânia
--  تقرير أمريكي: خلاف في الاتحاد الأوروبي بشأن تشديد العقوبات على إيران
--  Caso Ocean Viking, si discuterà l'eccezione di incostituzionalità del decreto Piantedosi
--  Учени борят ХИВ с генно инженерство - Труд
--  Govt acknowledges providing incentives to sugar producer after stopping sugar subsidies
+-  【気象情報】中越の山沿いで最大７０ｃｍの降雪予想 警報級の大雪となる恐れも
+-  Az Orbán-kormány már a kultúrára is ráteszi a kezét
+-  Bce, contro il caro-vita giù i consumi delle famiglie
+-  Innalzamento di fascia della Questura, arrivano rassicurazioni: “Governo al lavoro”
+-  Kaptan Furkan Emre Ünver yetişecek mi?
+-  Überfall in Waiblingen: 17-Jähriger wird geschlagen und ausgeraubt
+-  ANSES: quiénes cobran hoy, 20 de marzo
+-  Ex maggiordomo Berlusconi fa causa per arretrati durante covid
+-  Azzurri: Spalletti si inchina a Sinner, 'prendete esempio'
+-  BC japonês encerra ciclo de oito anos de juros negativos
