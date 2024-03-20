@@ -1,11 +1,11 @@
 # Latest News
--  Di sebalik isu gaji, Radhi positif persiapan KDA FC
--  大谷選手の“半生”絵本「野球しようぜ！大谷翔平ものがたり」 岩手県内でも発売 タイトルは大谷選手直筆
--  Disparition d'Émile : Un passé trouble pour le grand-père dans une communauté, une affaire de violences refait surface
--  Nvidia Led the First Phase of Artificial Intelligence (AI), but These 2 Growth Stocks Will Lead the Next Phases, According to a Wall Street Team
--  Samsung Galaxy S24 Ultra, Nisan ayında dev bir kamera güncellemesi alacak
--  Présidentielle 2024 : Ibrahima Macodou Fall choisit Amadou Ba
--  Mo: Idf, '90 terroristi eliminati in operazione al Shifa'
--  "업무 힘들다"…3개월 차 남양주시청 공무원 숨진 채 발견
--  Bolsas da Ásia fecham em alta, após China manter juros e à espera de anúncio do Fed
--  [속보] 일본 정부 "시모노세키 전복 한국 선적 선박 구조자 9명 중 7명 사망"
+-  В Якутии на несущей стене детсада появились трещины
+-  Prevc razkril, pod kakšnim pogojem bi se vrnil v skoke
+-  Casa de Aung San Suu Kyi em Mianmar vai à leilão mas não recebe ofertas
+-  Débat télévisé autour des programmes : Serigne Mboup veut échanger en face-to-face avec les 18 autres candidats
+-  Začalo astronomické jaro. Na 21. březen připadne až v roce 2102
+-  TFF'de ilk gire geldi! Talat Papatya istifa etti...
+-  Karsta metruk binalar tek tek yıkılıyor
+-  Без осадков и до +12°С ожидается в Беларуси 21 марта
+-  I ove godine hoteli i kampovi dižu cijene soba, hrane i pića: Objavili su detaljne brojke
+-  Polizei fasst Millionendiebin am Bremer Flughafen
