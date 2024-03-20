@@ -1,11 +1,11 @@
 # Latest News
--  O țară a inundat piața din SUA cu produsele sale: Un mare pericol îi lovește pe americani
--  50 ವರ್ಷಗಳ ಹಿಂದೆ | ರಾಜ್ಯ ಕಾಂಗ್ರೆಸ್ ನಾಯಕತ್ವ ಬದಲಾವಣೆಗೆ ಯತ್ನ
--  【労災】倉庫内でフォークリフトによる選果ミカン移送中に倒れ作業員死亡…排気ガスでＣＯ中毒か（浜松市）(Daiichi-TV（静岡第一テレビ）)
--  Mom who left toddler home alone for 10 days while on holiday jailed for life
--  Primeira condenação por Cyberflashing na Inglaterra
--  Antony Blinken says all of Gaza needs humanitarian assistance
--  Mega-sena acumula novamente e prêmio vai para R$ 75 milhões
--  She gifts colourful sparrow nests
--  [오늘의 환율전망] 원/달러 환율, FOMC 앞두고 하락 출발 예상
--  Extended Paid Parental Leave Set to Narrow Gender Pay Gap: Peak Union Body
+-  【大國博弈】中國１月減持美債１８６億美元，終止連增兩個月
+-  ガザ北部に人道支援物資２００トン到着、海上輸送で(CNN.co.jp)
+-  Gracias a Palworld, Xbox vivió uno de sus mejores meses en toda su historia en enero
+-  バイクを“端っこ”に追いやるな！ 「バイク中心」で考えたらヒラメキ “ありそうで無かった”道の駅のバイク駐車場案とは？(乗りものニュース)
+-  Will AI help or hurt workers? At SXSW, that depends on who you ask.
+-  이찬원 “장윤정과 재혼 가짜뉴스에 마음고생…국밥집서 등짝 맞아” (한끗차이)
+-  المحافظ لملس يؤكد على أهمية تعدد الخدمات والتسهيلات المالية والمصرفية المقدمة للمجتمع
+-  황선홍 감독에게도 선수들에게도 중요한 태국전…내용과 결과 다 잡아라
+-  GDP bình quân từng chỉ bằng 1/3 Lào, 1/6 Philippines, Việt Nam mất 9 năm vượt Lào, bao nhiêu năm vượt Philippines?
+-  Electoral Office Rolls Out Training of Senior Polling Officials
