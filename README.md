@@ -1,11 +1,11 @@
 # Latest News
--  Olisiko ”Lohjan mallissa” ratkaisu salolaisten ahdinkoon? Näin lippurahat liikkuvat Salon naapurissa
--  Festnahme wegen Terrorverdacht: Mutmaßliche Islamisten festgenommen – Anschlagsplan in Schweden
--  Cumhurbaşkanı Erdoğan: İBB nereye gittiği belli olmayan deste deste para görüntüleriyle anılmaktadır
--  Uskumatu juhtum: Küprose liigas tahtsid ühe mängu mõlemad meeskonnad saada loobumiskaotuse
--  Funsat tem mais de duas mil oportunidade de emprego
--  Denizli İş Dünyası, Hazine ve Maliye Bakanı Mehmet Şimşek ile İstişare Toplantısı Gerçekleştirdi
--  Một công trình Việt rộng 13.000m2 đạt giải lớn về kiến trúc thế giới: Nằm ở "hòn ngọc xanh", chỉ cách TP.HCM hơn 1,5h đi xe
--  PayPay「ポイント運用」利用者が1500万人を突破 ポイントの平均増加率はプラス42.7％
--  Toledo quiere mejorar el diálogo entre sus barrios con unas jornadas de convivencia que engloban más de 100 acciones
--  MATSO BAşkanı Güngör: "Sektörde eğitim almış kişiler kaliteyi artırıyor"
+-  Dədə-baba qripinin qayıdışı...
+-  SPSL Komitmen Tingkatkan Layanan Logistik
+-  Зеленський назвав кількість ракет, КАБів та "шахедів", які запустила РФ з початку березня
+-  Şemdinli-Derecik yolu ulaşıma kapandı
+-  Βαρόνη Mobarik: «Η Βρετανία θα έπρεπε να αναγνωρίσει την ΤΔΒΚ»,
+-  Cardiomiopatie per 350mila italiani, ‘roadmap’ per cure e assistenza migliori
+-  ஸ்டாலின், உதயநிதி படங்கள் அச்சிட்ட பனியன்கள் பறிமுதல் - ராமநாதபுரத்தில் ஒரே நாளில் சிக்கிய ரூ.11 லட்சம்
+-  מנכ"ל שחטאר זועם: טוטנהאם הציעה לנו בוטנים על סולומון, זה לא הוגן
+-  Feito com inteligência artificial, sistema avisa motoristas sobre animais silvestres na pista
+-  Luka Modrić dobio poziv legende: 'Nedostaje jedan takav, možda bi nam se htio pridružiti'
