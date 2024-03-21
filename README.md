@@ -1,11 +1,11 @@
 # Latest News
--  Duitse EK-keeper moet trainingskamp verlaten vanwege spierscheuring en mist oefenduel met Oranje
--  Tre big della politica russa sono poco graditi a Putin: il presidente vuole la rivoluzione
--  আরও ৩৯ জনের করোনা শনাক্ত
--  Shareholders that lost money on Ventyx Biosciences, Inc. (VTYX) should contact The Gross Law Firm about pending Class Action - VTYX
--  Espancada, criança fica com hidrocefalia e padrasto é condenado a regime aberto
--  Global Upstream Bioprocessing Market Projected to Reach $25 Billion by 2030 - Analysis by Product Type, Workflow, Usage Type, Mode, and Region
--  JetBlue Cuts 16 Routes, Leaves Five Cities After Spirit Merger Debacle
--  Indonésie: naufrage d'un bateau transportant des Rohingyas
--  Lost Money on Innoviz Technologies Ltd. (INVZ)? Join Class Action Suit Seeking Recovery – Contact The Gross Law Firm
--  Domper voor Duitsland: Manuel Neuer mist oefeninterlands tegen Frankrijk en Nederland
+-  Pobjede Bokelja i Otrant-Olimpika, bez golova u Igalu
+-  Pronašli smo najudobnije hlače: Nose se od jutra do mraka, a koštaju manje od 30 eura
+-  Urteil rechtskräftig: 14 Jahre Haft für Tod von jesidischem Mädchen
+-  Заплашиха с изхвърляне Ман Сити и Челси от Висшата лига
+-  Nová fáze čínského dobývání Měsíce: satelit na odvrácené straně, pak vzorky
+-  Бундеслига токшоу (20.03.2024)
+-  坂本花織(23)今季プログラムが誕生したゆかりの地で3連覇を誓う【世界フィギュア2024】
+-  Mostra di modellismo e giocattoli, un appuntamento per gli appassionati e non solo
+-  Фицо сожалеет, что на саммите ЕС не будут говорить о мире в Украине
+-  Може ли да се пие вино по време на пости?
