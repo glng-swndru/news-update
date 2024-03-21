@@ -1,11 +1,11 @@
 # Latest News
--  Hristina Slavić pobjednik konkursa "Zlatno pero"
--  De Luca ancora contro il Governo: "Dovete spararmi in testa, ma non ci ricatterete"
--  Dopo 40 anni da abbonato, tifoso rispedisce la tessera all’Udinese
--  Lack of autism funding leaves B.C. man and his son in a lurch
--  Người phụ nữ khóc ròng khi biết dạ dày "thủng lỗ chỗ" và chảy máu chỉ vì uống thứ này như nước
--  Do Collingwood have a premiership hangover or is this their sober reality?
--  Η Ρουμανία αντιδρά στις γεωτρήσεις φυσικού αερίου της Τουρκίας στη Μαύρη Θάλασσα
--  Bir sevilen uygulama daha Windows 7/8 ve 10’dan çekiliyor!
--  தோல் கழிவுநீரை வெளியேற்றிய தொழிற்சாலைக்கு சீல்
--  One simple position change can solve Man Utd's biggest issue, Ten Hag must do it vs Brentford - opinion
+-  'I had my chance': Simon Coveney rules himself out of running for Fine Gael leadership
+-  Es argentino, se fue a vivir al exterior y reveló lo que nadie te cuenta de emigrar al "mejor país del mundo": "No esperes..."
+-  EUA: criança de 3 anos ao volante de um camião em andamento quando este atropelou e matou uma criança de 2 anos
+-  Formula 1 pilotu Hamilton'dan Gazze'de ateşkes çağrısı
+-  Federal Reserve mantém juros nos EUA entre 5,25% e 5,50%
+-  Gráfico de pontos aponta que 9 dirigentes do Fed veem juros entre 4,50% e 4,75% no fim de 2024
+-  Hajduk traži pokretanje disciplinskog postupka protiv suca Igora Pajača
+-  «Modello nozionistico di scuole e università, compensi ingiusti rispetto al lavoro richiesto: quale felicità per i giovani?»
+-  Antony Blinken beginnt sechste Nahost-Reise in sechs Monaten
+-  Hakkari'de sağanak sebebiyle yol çöktü
