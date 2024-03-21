@@ -1,11 +1,11 @@
 # Latest News
--  à¶´à¶»à·�à¶§à·š à¶±à·“à¶­à·’à¶º à¶…à¶­à·Šà·„à·’à¶§à·”à·€à¶± à¶´à¶±à¶­ à¶¸à·�à¶­à·’à·ƒà¶¶à¶ºà¶§
--  중등 인강 엠베스트, ‘2028 대입 통합형·융합형 수능 과목 체제 도입’ 의견 제시
--  Стало известно, почему бобовые полезнее мяса
--  Income Tax Department ने आम चुनाव में कालेधन पर लगाम लगाने के लिए दिल्ली में बनाया नियंत्रण कक्ष
--  Bé gái bị hiếp dâm, cướp tài sản vì rủ 'bạn trai' về nhà chơi
--  조수진, "성범죄에서 무죄란 없는 걸까 고민…." 게시 논란
--  Anil Ambani’s Reliance making strong comeback, shares hit the top again after settling Rs 4000000000… - DNA India
--  천하람 “양향자 비례 불만, 이창한 포함 안돼 서운한 것 같아”
--  Frustrated homeowners say developer 'cut corners' on Cambridgeshire estate
--  24મી માર્ચની રાત્રે હોલિકા દહન યોજાશે:જાણો હોળીની અગ્નિ શા માટે અન્ન અને પૂજા-સામગ્રીની આહુતિ આપવામાં આવે છે?
+-  McDermott Strengthens London Office with Senior Appointment
+-  포스코그룹 장인화 회장 체제 출범…주총 · 이사회서 선출
+-  CELAC, Filistin'in BM'ye tam üye olarak tanınmasını istedi
+-  오타니 쇼헤이 돈에 손댄 통역사…“막역한 사이였는데 뒤통수”
+-  2분기 전기요금 동결…연료비조정단가 현수준 유지
+-  México alista escrito para litigio contra Texas por ley antimigrante SB4
+-  ¿Qué sanciones podría aplicar el SAT si no declaras impuestos este 2024?
+-  GIST, 장애물 피해 착륙하는 AI 드론 기술 개발
+-  Expresidentes piden fin del "terrorismo de Estado" venezolano contra María Corina Machado
+-  Kenapa Rasa Ngantuk saat Nyetir Lebih Berat daripada Seharian Depan Laptop?
