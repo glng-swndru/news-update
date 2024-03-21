@@ -1,11 +1,11 @@
 # Latest News
--  배달비 상승에도 대전 배달 매출 증가세…"소비자 부담 여전"
--  한화이글스, 2018년 이후 암흑 흑역사 끊는다.
--  Thế Giới Di Động sẽ chi hơn 700 tỷ đồng trả cổ tức năm 2023, muốn đưa Era Blue thành chuỗi bán điện máy số một Indonesia
--  Xử lý dứt điểm những khâu còn yếu, những vụ án tham nhũng, tiêu cực nghiêm trọng
--  涉竊大谷1.4億簽賭！水原一平「翻譯兼密友」 大谷官宣照也有他
--  Xe máy Honda giảm giá: Future 125 chỉ còn hơn 30 triệu đồng, Wave Alpha giảm 2 triệu đồng
--  Dia Mundial da Água: conheça as ações em Segurança Hídrica promovidas pelo MIDR
--  Milyonların gözü qarşısında qadın futbolçunu öpən federasiya prezidentinin həbsinə order verildi - VİDEO
--  सौंदर्यीकरण व मूर्ति निर्माण नहीं होने पर परिवाद दायर
--  [부산여론조사] 국힘 제친 진보당, 연제 노정현 9.3%P 우세
+-  「最後はカンと経験」世界唯一の救難飛行艇「US-2」の訓練とは 密着取材で見えた実力(乗りものニュース)
+-  トランプ氏、ガザ紛争を傍観 政権批判は盛んだが
+-  トランプ氏、ガザ紛争を傍観 政権批判は盛んだが - WSJ発
+-  上越・北陸新幹線 運転見合わせ
+-  【速報】岸田首相 関東で震度5弱「今のところ被害の報告受けていない」
+-  [총선의제 긴급점검] 도시철도 2·3·4·5호선 건설 일류 교통도시 대전 만든다
+-  [사진뉴스] 이장우 대전시장, 상급종합병원 비상진료 현장점검
+-  علماء: بقعة شمسية تتوسع وعاصفة مغناطيسية قوية تقترب لتضرب الأرض
+-  錦欣生殖 博反彈贏面大
+-  Quem seria o novo James Bond? Este é o ator que substituiria Daniel Craig
