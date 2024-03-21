@@ -1,11 +1,11 @@
 # Latest News
--  Dedektif Gibi İz Sürdü, Öpüşen Heykellerden Aldatıldığını Anladı! Ali&Nino Boşanması, Ünlü İş İnsanına Pahalıya Patladı
--  Cel mai iubit serial de acțiune românesc este pe VOYO
--  Judi dalam talian berselindung di sebalik kedai tudung
--  Başkan Çolakbayrakdar: "Down sendromluların her zaman farkında ve daima yanındayız"
--  Vom Mut, sich Johann Sebastian Bach zu stellen
--  ಟಿಕೆಟ್ ಕೈತಪ್ಪಿದ್ದಕ್ಕೆ BSY ವಿರುದ್ಧ ಅತೃಪ್ತರ ಸಮರ; ಈಶ್ವರಪ್ಪ, ಮಾಧುಸ್ವಾಮಿ ಬಳಿಕ ಸದಾನಂದ ಗೌಡರ ಸರದಿ
--  LPG'ye de zam geliyor
--  Израелски изтребител ликвидира двама въоръжени нападатели в бежански лагер на Западния бряг
--  Στον εισαγγελέα παραποιημένα πιστοποιητικά εισαγόμενων μεταχειρισμένων οχημάτων
--  BIH SE NADA OTVARANJU PREGOVORA SA EU: Čeka se odluka Brisela
+-  Виктор Майгуров: «Хотел бы попробовать себя в фигурном катании. Базовые упражнения, прыжки, поддержки – наверное, это не сложно»
+-  遭衛福部指沒訪視凱凱！ 新北社會局轟「斷章取義」列3聲明反駁
+-  Sabatini: "Sono una macchina da debiti. Ma si leggono solo complimenti"
+-  Cum a reușit un bărbat să se urce în avion fără bilet. Acum riscă pedeapsa cu închisoarea
+-  Lok Sabha polls पर Artificial intelligence कैसे डाल सकती है असर? डीपफेक, वॉयस क्लोनिंग के जरिए मतदाताओं को रिझाने की कोशिश
+-  Kinevezték a jobboldali kormányfőt Európa egyik legbaloldalibb országában, de a neheze még csak most jön
+-  Focar de RUJEOLĂ într-un centru de plasament temporar pentru refugiați din Chișinău: 11 persoane, internate în spital
+-  VIDEO Moment emoționant la WTA Miami - Prima victorie după 11 luni
+-  Salman Rushdie: AI only poses threat to unoriginal writers
+-  Denizli'nin 12 mahallesine süt soğutma tankı dağıtıldı
