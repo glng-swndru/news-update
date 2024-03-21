@@ -1,11 +1,11 @@
 # Latest News
--  Rückblick, Vorschau und Neuwahl bei der Melachbühne Sellrain
--  제3차 민주주의 정상회의 폐회…윤 대통령 "위대한 여정 계속"
--  ES nosūtījusi Ukrainai pirmo maksājumu no 50 miljardu eiro atbalsta fonda
--  Kazakhstan decreases trade turnover with EAEU nations
--  'Someone is waiting for this gift'; Spokane family shares journey of organ donation
--  Encerram na próxima semana inscrições para cursos técnicos integrado da IFMT
--  الدكتوراه في القانون للمحامي أسامة الأصبحي بامتياز مع مرتبة الشرف من القاهرة
--  Ever wanted to be a beekeeper? Annual bee lending program returns to West Vancouver library
--  Ever wanted to be a beekeeper? Annual bee lending program returns to West Vancouver library
--  Has German chancellor lost his authority over Taurus debate?
+-  Assange team sees no sign of resolving US charges after reported plea deal talks
+-  الدولار يتراجع بعد بيان المركزي الأمريكي
+-  What are the betting lines for NC State vs. Texas Tech in the NCAA Tournament?
+-  Oglasila se Uprava saobraćajne policije! Evo u kom gradu se sprovodi detaljna kontrola
+-  PREVISÃO DO TEMPO: quinta-feira (21) com previsão de chuva para o estado de São Paulo
+-  Former police board member claims Victoria police face 'crisis of integrity'
+-  Megan Fox confirms Machine Gun Kelly engagement ended, offers cryptic status update
+-  Вики Томова стартира с победа на Мастърс-а в Маями, чака я трудно препятствие
+-  Šok, eden največjih zvezdnikov izpadel iz ekipe, izpušča Planico!
+-  Белый дом запретил вывешивать ЛГБТ-флаг в посольствах США
