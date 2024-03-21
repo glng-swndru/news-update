@@ -1,11 +1,11 @@
 # Latest News
--  "בהחלט בא בחשבון": בטויוטה עובדים על אח ללנד קרוזר
--  DNA Nanotechnology Market worth $24.3 Bn by 2031 - Exclusive Report by InsightAce Analytic Pvt. Ltd.
--  Ini Panduan Waktu Minum Air Putih saat Puasa dan 6 Manfaatnya untuk Kesehatan Tubuh
--  4 Years Later: The Portfolio Decision I'm Glad I Didn't Make
--  [포토] ‘승봉도 가는 길 뱃길에서’
--  Beloved fantasy novel, 'The Neverending Story,' is coming back to the big screen
--  Pörssit | Helsingin pörssi nousussa Wall Streetin vanavedessä
--  Умер Вернор Виндж, один из самых прославленных писателей-фантастов
--  Депутат ГД Чаплин объяснил, законно ли вывешивание долгов россиян в подъездах
--  Νέα ήττα στη Βουλή των Λόρδων και καθυστέρηση στο νομοσχέδιο για Ρουάντα
+-  Хьонес: Не е лесно да привлечем Шаби Алонсо
+-  IL FUTURO DA CYBORG È GIA’ QUI – NEURALINK, LA STARTUP DI ELON MUSK, PUBBLICA UN VIDEO IN CUI IL 29ENNE TETRAPLEGICO, NOLAND ARBAUGH, GIOCA A SCACCHI “CON LA LA MENTE” SUL COMPUTER UTILIZZANDO UN IMPIANTO CEREBRALE – IL PAZIENTE DESCRIVE IL MODO IN CUI RIESCE A SPOSTARE IL CURSORE SULLO SCHERMO MENTRE L'IMPIANTO TRADUCE LA SUA INTENZIONE: “È PAZZESCO, MI HA CAMBIATO LA VITA" – A GENNAIO NEURALINK HA POSIZIONATO IL SUO PRIMO IMPIANTO CEREBRALE NELL’UOMO…
+-  Elektrik aboneleri dikkat! 3.7 milyon aileden o para alınmayacak: Elektrik faturaları için karar açıklandı
+-  Как можно использовать лимонную и апельсиновую кожуру в быту — проверенные способы
+-  「穴から抜け出すために、もっと大きな賭けを」“電撃解雇”水原氏をむしばんだギャンブル依存症…経験者語る恐怖
+-  Edinborgarhúsið: Mikael Máni með tónleika
+-  Cancelo, allarme rientrato per l’ex Juve: esclusi problemi al cuore
+-  Malaysia police looking for owner of $142,000 found in suitcase in Petaling Jaya mall carpark
+-  EVgo launches first prefabricated EV charging station
+-  「静岡県で人気の海鮮丼」ランキング！ 2位は豪華な丼が味わえる静岡市駿河区の「清水港みなみ」、1位は？【2024年3月版】(ねとらぼ)
