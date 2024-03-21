@@ -1,11 +1,11 @@
 # Latest News
--  Moszkva és Párizs ütközőpályára lépett
--  Tschechien stuft Russland als größte Sicherheitsgefahr ein
--  Sven Botman'dan kötü haber
--  Amíg ön aludt, újabb földrengést jelentettek
--  Prabowo Subianto élu nouveau président de l'Indonésie
--  Con lươn 30 cm trong bụng nam thanh niên
--  В Лиде дети готовили еду и подожгли квартиру
--  ‘Oćemo uvest‘ VAR i na hodnike?‘; Kako je Livaja od Keanu Reevesa postao žrtva, a Hajdukova titula ostala kod Gizdića
--  حلمي بكر.. جدل الوفاة يتصدر الواجهة بعد 21 يوما على رحيل الموسيقار
--  Berova: Çürük elmalar varsa bu elmalar temizlenecektir
+-  තෙවැනි වාරිකය ලෙස ඇමෙරිකානු ඩොලර් 337 ලැබෙයි
+-  “7代目ジェームズ・ボンドは「キック・アス」主演俳優” 報道にSNSはすでに祝福ムード「007！」「ボンド役として完璧」
+-  Etablering af warrantordning for selskabets direktion og ledende medarbejdere i SP Group A/S
+-  Gen Z Has Issues. What Bosses Need to Know
+-  Straßenbahnen und Busse fahren in Bremen wieder
+-  «Billie’s Party» από τη Θεατρική Ομάδα stereo-τύποι του ΔΗ.ΠΕ.ΘΕ. Βέροιας | ΕΡΑΣΙΤΕΧΝΙΚΗ ΣΚΗΝΗ 2024
+-  Grant of warrants to the Executive Board and Managers at SP Group A/S
+-  Zato so Finci toliko bolj srečni kot mi
+-  Američki šef diplomacije: Pozivamo na trenutni prekid vatre u Gazi
+-  İkinci el araç alacaklar dikkat: Şubatta en çok satılan markalar belli oldu
