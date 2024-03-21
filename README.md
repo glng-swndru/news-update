@@ -1,11 +1,11 @@
 # Latest News
--  Höher, schneller, weiter: Weltglückstag: Warum wir endlich aufhören sollten, ständig dem großen Glück nachzujagen
--  Волейболистки "Минчанки-2" одержали вторую победу на седьмом этапе Молодежной лиги России
--  Pogačar vyhral 3. etapu Okolo Katalánska, vedie aj celkovo
--  На обновление оборудования медучреждений в Минской области в 2023 году направлено более Br33 млн
--  Важен играч се завръща за Барселона
--  MrBeast regalará 5 millones de dólares al ganador de su nuevo reality show en Amazon Prime
--  Konserttiarvio | Tekeekö ikä näkymättömäksi, pohti Wanhan kutomon herkkäsävyinen konsertti
--  Prezident tanınmış iş adamını yüksək medalla təltif etdi – FOTO
--  ¿Qué es y cómo funciona el seguro de gastos médicos?
--  Oğuz'dan söz alan sendikalar grevi askıya aldı
+-  Premijer Plenković daje izjavu
+-  Équipe de France : Un coup de théâtre se confirme pour Benzema
+-  Teg: Motorled blir stadsgata
+-  4 Steps to Take Before Asking Investors for Money
+-  Booking.com: So locken Abzocker Kunden in die Falle
+-  Bildungslücken bei Kindern: Schwer erziehbar sind nur die Erwachsenen
+-  Gewerbetreibende sollen in Leverkusen schneller Räume finden: WFL geht mit Standortportal an den Start
+-  С до 90 000 лв. ще се финансират проекти за заетост на хора с трайни увреждания
+-  ABŞ Rusiyaya qarşı sanksiyaların siyahısını yenilədi
+-  50 Jahre Städtepartnerschaft: Französische Schüler aus Loches zu Gast in Wermelskirchen
