@@ -1,11 +1,11 @@
 # Latest News
--  Auto contro tir sulla bretella Ivrea-Santhià, un ferito
--  European Commission plans 'gradual, reversible' enlargement
--  La campaña de la caballa ofrece 110 puestos de trabajo en A Mariña
--  Cum arată lista PSD-PNL pentru europarlamentare. Locuri fruntașe pentru Mihai Tudose, Rareș Bogdan și Gabriela Firea
--  모건 스탠리, 야라 인터내셔널 목표가를 NOK380으로 하향 조정
--  Minimální mzda se má po roce 2024 valorizovat, rozhodla vláda. NBÚ povede Čuřín
--  European Commission plans 'gradual, reversible' enlargement
--  La campaña de la caballa ofrece 110 puestos de trabajo en A Mariña
--  Propane Available: U-Haul of Spanish Springs Now Refilling Tanks
--  Federal government refers three cases of suspected contractor fraud to RCMP
+-  "Tradimento e rissa". Manfuso sgancia la bomba sulla rottura Ferragni-Fedez
+-  "La situation économique s'est dégradée depuis janvier 2024", assure le président de la CPME28
+-  ما هو App Mall .. الاسم الجديد لمتجر التطبيقات في HyperOS لهواتف شياومي
+-  Διαψεύδει η Γαλλία αναφορές περί αποστολής 2.000 στρατιωτών στην Ουκρανία
+-  Bildung: Den Schulabschluss im zweiten Anlauf nachholen
+-  Адмирал ВМС США заявил о посещении Земли внеземной цивилизацией
+-  Prefeito do Rio posta vídeo de Madonna em meio a rumores de show da cantora em Copacabana
+-  Vier mutmaßliche Autodiebe festgenommen
+-  All the publications who came to Pub Crawl (and how to work with them)
+-  Niagara Falls survey to gauge interest in new Queen Street business organization
