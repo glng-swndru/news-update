@@ -1,11 +1,11 @@
 # Latest News
--  'I had my chance': Simon Coveney rules himself out of running for Fine Gael leadership
--  Es argentino, se fue a vivir al exterior y reveló lo que nadie te cuenta de emigrar al "mejor país del mundo": "No esperes..."
--  EUA: criança de 3 anos ao volante de um camião em andamento quando este atropelou e matou uma criança de 2 anos
--  Formula 1 pilotu Hamilton'dan Gazze'de ateşkes çağrısı
--  Federal Reserve mantém juros nos EUA entre 5,25% e 5,50%
--  Gráfico de pontos aponta que 9 dirigentes do Fed veem juros entre 4,50% e 4,75% no fim de 2024
--  Hajduk traži pokretanje disciplinskog postupka protiv suca Igora Pajača
--  «Modello nozionistico di scuole e università, compensi ingiusti rispetto al lavoro richiesto: quale felicità per i giovani?»
--  Antony Blinken beginnt sechste Nahost-Reise in sechs Monaten
--  Hakkari'de sağanak sebebiyle yol çöktü
+-  OVA FUNKCIJA JE ZA MENE VELIKA ČAST I PRIVILEGIJA Brnabić: Živela Srbija!
+-  Hajdučija uz Budvi - nezakonito postavljene rampe na putu za...
+-  Huoltovarmuus | HVK:n Känkänen: Bensiinin ja dieselin saatavuus­häiriöt todennäköisesti yleistyvät
+-  Cumhurbaşkanı Erdoğan, Çankırı'yı ziyaret edecek
+-  Co dalej z kwotą wolną od podatku? "Chcą blokować prace nad realizacją własnej obietnicy"
+-  Blinken, tekrar Orta Doğu turuna çıkıyor
+-  Caravana retorna a Mato Grosso do Sul e oferece oportunidades para empreendedores
+-  MSB duyurdu: 2 terörist teslim oldu
+-  Putino politinė metamorfozė – kaip didėjo jo priešiškumas Vakarams
+-  ¿Es buen momento para construir?: los indicadores que miran los inversores
