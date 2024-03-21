@@ -1,11 +1,11 @@
 # Latest News
--  French regulators fine Google $272 million in dispute with news publishers (Business)
--  Η κατάσταση στους δρόμους αυτή την ώρα - 30λεπτες καθυστερήσεις στην Αττική Οδό, ρεύμα προς Ελευσίνα
--  오키나와현 및 日 주류회사, LG에 우승기념 아와모리주 증정…“통합우승과 축배 다시 한 번 함께하길”
--  Руска агресия в Харков: Ударено е предприятие, има жертви и ранени (ВИДЕО)
--  Vietnam Devlet Başkanı Vo Van Thuong görevinden istifa etti
--  Heidelberg: Prostituierte wegen Millionenbetrugs zu Haftstrafe verurteilt
--  Offerte Primavera Amazon: super sconti dal mondo della tecnologia
--  Döpur mæting hjá íslenskum stuðningsmönnum
--  Trabzonspor Başkanı Ertuğrul Doğan: "Merak ediyorum Türkiye'nin neresinde hangi şehrinde bugüne kadar sahaya giren biri herhangi bir darp olayına karışmadığı halde tutuklanmıştır."
--  A németek még mindig bíznak a Volkswagenben
+-  Pedoseksuele zwemleraar Benno L. weer in de fout: hoe zit het ook alweer met veelbesproken Brabantse misbruikzaak
+-  Por revolucionar la teoría de la probabilidad, un profesor de Matemáticas recibió el Premio Abel
+-  'Devil Comet' Set to Align With Total Solar Eclipse for Unique April Display - Gizmodo
+-  Bandidos tinham "mercadinho" para lavar dinheiro em prisão
+-  اسعار الدولار تستقر في بغداد وتنخفض باربيل مع الاغلاق
+-  India Test-Fires 1st Indigenously-Made 1500 HP Military Tank Engine
+-  Başkan Çerçioğlu'ndan 'Vizyonaydın' projesi
+-  Average monthly UK rent up 9% – the highest annual increase recorded - The Guardian
+-  Pier Silvio Berlusconi e Silvia Toffanin, nuova casa a Portofino: la villa da 20 milioni di euro
+-  Pedoseksuele zwemleraar Benno L. weer in de fout: hoe zit het ook alweer met veelbesproken Brabantse misbruikzaak
