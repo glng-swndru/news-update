@@ -1,11 +1,11 @@
 # Latest News
--  1 phân vàng là gì, bằng bao nhiêu chỉ vàng, giá bao nhiêu tiền?
--  新幹線の真ん中にある肘掛けにルール？記事に疑問視する声、JR東海が回答
--  Ron DeSantis to ban homeless people from sleeping on the street or in parks under new law
--  【速報】相談者の秘密を他人に漏らす 花園大、ハラスメント相談員を懲戒処分
--  新幹線の「真ん中肘掛け」は「上座の窓側が使える」ルールは本当か 紹介したネット記事に批判集まる(弁護士ドットコムニュース)
--  Sharon Stone says Lorne Michaels "saved her life" after protestors stormed her SNL monologue
--  Janhvi Kapoor to Sara Ali Khan: Bollywood Gen Z star kids who have immense love for saree
--  न्यूरालिंक की चिप दिमाग में लगाकर वीडियो गेम खेल रहा लकवाग्रस्त शख्स, एलन मस्क ने बताया 'टैलीपैथी'
--  This week Movie Release: ஒன்னு புதுசு.. ஒன்னு ரீ-ரிலீஸ் .. இந்த வாரம் வெளியாகும் 2 தமிழ் படங்கள்!
--  ISI chief ‘briefs’ President
+-  Cố vấn của Biden không đề cập việc giành lại lãnh thổ Ukraine
+-  ‘역시 캡틴’ 손흥민, 이강인과 눈 마주치자 웃으며 장난
+-  “La noche adentro”, la película mendocina sobre la dictadura, estrena hoy en cines
+-  Yeni günde hava nasıl olacak? MGM 21 Mart Perşembe Türkiye geneli hava durumunu açıkladı
+-  Polícia encontra quatro toneladas de frios clandestinos em comércios
+-  Soccer-'Ready for anybody', USWNT relish tough Olympic draw
+-  32 Chinese warplanes detected around Taiwan
+-  अभिभावक शिक्षा किन ?
+-  20 Soal & Kunci Jawaban Geografi Kelas 11 SMA Semester 2: Sumber Daya Perikanan Prinsip Pembangunan
+-  SHIBA INU: INCROYABLE ANNONCE DE BINANCE SUR SON RIVAL POPULAIRE!
