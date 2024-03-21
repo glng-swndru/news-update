@@ -1,11 +1,11 @@
 # Latest News
--  "화장솜에 세균·곰팡이 득실…안전기준 없이 유통"
--  UPDATE 1-Hong Kong central bank keeps key rate unchanged, tracking Fed move
--  Gold Scales New Peaks on Fed Rate Cut Views
--  정부 "비수도권 전공의 배정 비율 45%, 입학 정원 규모에 맞춰 높여갈 것"
--  Ordnung muss sein - auch beim Toilettenpapier
--  Holi Hai!: Short and funny Holi party quotes for a colourful bash
--  Rugby-Waratah Nawaqanitawase expects family support in Fiji fortress
--  Giá sầu riêng hôm nay 21/3: Sầu riêng nghịch vụ đẩy kim ngạch xuất khẩu rau quả quý I tăng vọt
--  Diyarbakır'da 169 kilogram esrar ele geçirildi
--  Relawan Turunkan Paksa Bendera Nasdem di Markas Timnas Amin
+-  Miti continues to accelerate, facilitate investments to achieve economic growth target - Tengku Zafrul
+-  США и Южная Корея подготовили армии к городской войне
+-  Тази дреха състарява жените над 50 години
+-  Spara på det som inte är nödvändigt
+-  Cutremur cu magnitudinea 5,3, joi dimineață. În ce zonă s-a produs
+-  BBC: Z Kyjeva hlásia výbuchy, na viacerých miestach horí, sú zranení
+-  В Белгороде объявили ракетную опасность
+-  Garbecks Kirche: Kommunion in Balve
+-  Brioude, écrin de la première biennale des métiers d'art
+-  Leonardo Servi, pilota aerei a 22 anni:«Volevo fare qualcosa di diverso»
