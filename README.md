@@ -1,11 +1,11 @@
 # Latest News
--  Entenda a condenação de Robinho e os argumentos da defesa
--  نصف نهائي مثير ببطولة الوجبة
--  அதிமுக ஒன்றியச் செயலா் விபத்தில் பலி
--  세종교육청-NH농협 세종본부, 금고협력·교육사랑카드기금 전달식
--  공정위 상임위원에 김정기 시장감시국장
--  ABD Dışişleri Bakanı Blinken, Suudi Arabistan Dışişleri Bakanı Farhan ile görüştü
--  Motosikletli yunus ekibine çarpıp kaçmışlardı: O şahıslar yakalandı!
--  Keçiörenli gençten Altınok’a: ‘Malvarlığınızla birlikte tüm Ankara'ya komşuymuşsunuz’
--  WSJ: минюст США предложил адвокатам Ассанжа возможность смягчения обвинений
--  기준금리 또 동결…물가 상승세에도 "올해 세 번 내릴 것"
+-  Облачный ИИ-суперомпьютер AWS Project Ceiba получит 21 тыс. суперчипов NVIDIA GB200
+-  U.S.: Democratic Senators Asked Biden to Press for Palestinian State Creation · Global Voices
+-  Câmara aprova projeto que acaba com saidinha temporária; texto vai à sanção
+-  „Valencia“ iškovojo sunkią ir svarbią pergalę lenktynėse dėl vietos įkrintamosiose
+-  CORRECTION – Preferred Bank Announces Quarterly Cash Dividend
+-  QU launches website for Class of 2024 graduation ceremony
+-  Ovako će izgledati izborne liste SDP-a: Sedam do osam ulaznih mjesta u Sabor prepušta se partnerima
+-  AYM yeni başkanını seçiyor
+-  Câmara aprova projeto que acaba com saidinha temporária; texto vai à sanção
+-  Vessicchio: "Da bravo calciatore a mastino cattivo. Una trasformazione vergognosa"
