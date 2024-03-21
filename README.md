@@ -1,11 +1,11 @@
 # Latest News
--  Premijer Plenković daje izjavu
--  Équipe de France : Un coup de théâtre se confirme pour Benzema
--  Teg: Motorled blir stadsgata
--  4 Steps to Take Before Asking Investors for Money
--  Booking.com: So locken Abzocker Kunden in die Falle
--  Bildungslücken bei Kindern: Schwer erziehbar sind nur die Erwachsenen
--  Gewerbetreibende sollen in Leverkusen schneller Räume finden: WFL geht mit Standortportal an den Start
--  С до 90 000 лв. ще се финансират проекти за заетост на хора с трайни увреждания
--  ABŞ Rusiyaya qarşı sanksiyaların siyahısını yenilədi
--  50 Jahre Städtepartnerschaft: Französische Schüler aus Loches zu Gast in Wermelskirchen
+-  Duitse EK-keeper moet trainingskamp verlaten vanwege spierscheuring en mist oefenduel met Oranje
+-  Tre big della politica russa sono poco graditi a Putin: il presidente vuole la rivoluzione
+-  আরও ৩৯ জনের করোনা শনাক্ত
+-  Shareholders that lost money on Ventyx Biosciences, Inc. (VTYX) should contact The Gross Law Firm about pending Class Action - VTYX
+-  Espancada, criança fica com hidrocefalia e padrasto é condenado a regime aberto
+-  Global Upstream Bioprocessing Market Projected to Reach $25 Billion by 2030 - Analysis by Product Type, Workflow, Usage Type, Mode, and Region
+-  JetBlue Cuts 16 Routes, Leaves Five Cities After Spirit Merger Debacle
+-  Indonésie: naufrage d'un bateau transportant des Rohingyas
+-  Lost Money on Innoviz Technologies Ltd. (INVZ)? Join Class Action Suit Seeking Recovery – Contact The Gross Law Firm
+-  Domper voor Duitsland: Manuel Neuer mist oefeninterlands tegen Frankrijk en Nederland
