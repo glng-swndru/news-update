@@ -1,11 +1,11 @@
 # Latest News
--  Assange team sees no sign of resolving US charges after reported plea deal talks
--  الدولار يتراجع بعد بيان المركزي الأمريكي
--  What are the betting lines for NC State vs. Texas Tech in the NCAA Tournament?
--  Oglasila se Uprava saobraćajne policije! Evo u kom gradu se sprovodi detaljna kontrola
--  PREVISÃO DO TEMPO: quinta-feira (21) com previsão de chuva para o estado de São Paulo
--  Former police board member claims Victoria police face 'crisis of integrity'
--  Megan Fox confirms Machine Gun Kelly engagement ended, offers cryptic status update
--  Вики Томова стартира с победа на Мастърс-а в Маями, чака я трудно препятствие
--  Šok, eden največjih zvezdnikov izpadel iz ekipe, izpušča Planico!
--  Белый дом запретил вывешивать ЛГБТ-флаг в посольствах США
+-  Promotoria denuncia Jair Renan Bolsonaro por falsidade ideológica e uso de documento falso
+-  Concepción Cedillo asiste al Pregón de la Semana Santa de Toledo en la Catedral Primada
+-  Ibovespa fecha acima de 129 mil pontos, com apetite por risco após Fed
+-  京都府福知山市の「ふくちやま児童合唱団」 創立50周年発表会で歌声響かせ、節目祝う
+-  China blasts criticism of Hong Kong security law
+-  Ibovespa fecha acima de 129 mil pontos, com apetite por risco após Fed
+-  Ibovespa fecha acima de 129 mil pontos, com apetite por risco após Fed
+-  Глава PFL назвал потенциальную дату дебюта Нганну в промоушене
+-  Concepción Cedillo asiste al Pregón de la Semana Santa de Toledo en la Catedral Primada
+-  Taş Kağıt Makas dizisinde ortalık fena karıştı; Bu detay herkesi şaşkına çevirecek
