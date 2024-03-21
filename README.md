@@ -1,11 +1,11 @@
 # Latest News
--  Pedoseksuele zwemleraar Benno L. weer in de fout: hoe zit het ook alweer met veelbesproken Brabantse misbruikzaak
--  Por revolucionar la teoría de la probabilidad, un profesor de Matemáticas recibió el Premio Abel
--  'Devil Comet' Set to Align With Total Solar Eclipse for Unique April Display - Gizmodo
--  Bandidos tinham "mercadinho" para lavar dinheiro em prisão
--  اسعار الدولار تستقر في بغداد وتنخفض باربيل مع الاغلاق
--  India Test-Fires 1st Indigenously-Made 1500 HP Military Tank Engine
--  Başkan Çerçioğlu'ndan 'Vizyonaydın' projesi
--  Average monthly UK rent up 9% – the highest annual increase recorded - The Guardian
--  Pier Silvio Berlusconi e Silvia Toffanin, nuova casa a Portofino: la villa da 20 milioni di euro
--  Pedoseksuele zwemleraar Benno L. weer in de fout: hoe zit het ook alweer met veelbesproken Brabantse misbruikzaak
+-  Giovanni Allevi: Ho camminato all'inferno e da 13 globuli bianchi ho riscoperto la gioia di essere vivo"
+-  "Będą ścigani przez wiele dziesięcioleci". Pieskow reaguje na słowa unijnego komisarza
+-  Bios Srl: “Disinfestazione da zanzare, è il momento di intervenire con trattamenti mirati e attenti all'ambiente”
+-  HÜDA PAR Genel Başkanı Yapıcıoğlu: "Belediyelerimizin kaynaklarını halkımızın hizmeti için ayıracağız"
+-  Could The Acolyte Deal With One of Star Wars' Biggest Problems?
+-  Baka Zorana Milanovića na samrti je otkrila tajnu o njemu koju je skrivala 15 godina, ni njegova majka to nije znala!
+-  Företagare trött på svåra trafikläget på Turbinvägen
+-  "RADIO SAM KAO UČITELJ DECE BOGATIH RUSA, TAJ SVET JE NEVEROVATAN" Na odmor idu helikopterom, nose patike od 1.000 dolara, a reči jedne devojčice NIKAD NEĆE ZABORAVITI
+-  Putin's prized £130M 'Blackjack' bomber targeted as Russian airbase blown up by Ukraine
+-  KRS Dam water level dips to 87.31 ft amid scorching heat
