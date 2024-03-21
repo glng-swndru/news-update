@@ -1,11 +1,11 @@
 # Latest News
--  Van'da ekiplerin yoğun kar mesaisi devam ediyor! Ulaşıma kapanan 446 yerleşim yerinin 373'ü yeniden ulaşıma açıldı
--  Suggestions collecting for govt. policies and programmes
--  Le Brestois Pierre Karleskind parmi les vingt étoiles montantes du Parlement européen
--  [속보] 尹대통령, 민생특보에 주기환 전 국민의힘 광주시당위원장 임명
--  Quella fermata di via Belgio che crea solo disagi
--  Lý do 8 giám đốc doanh nghiệp bị đề nghị tạm hoãn xuất cảnh
--  Göğüs Hastalıkları Uzmanı Dr. Özsaraç hasta kabulüne başladı
--  USA e Giappone: contesto macro positivo. E le borse?
--  Botschaft an Putin?: Macron lässt beim Boxen die Muskeln spielen
--  Općina Seget onemogućila ulaganje pola milijuna eura
+-  Tennis star Aryna Sabalenka breaks silence after death of ex-boyfriend Konstantin Koltsov - LBC
+-  “Soán ngôi” đất nền, chung cư trở thành phân khúc bất động sản hút khách bậc nhất Hà Nội
+-  Yeni AYM Başkanı belli oldu! Kadir Özkaya kimdir?
+-  大谷翔平未現身球員更衣室！氣氛變沉重 道奇人員只睡4小時
+-  Kakve su osobe koje nose ime Vesna?
+-  Ist Apfelessig der neue Schlankmacher?
+-  Ali Koç'un sözleri camiada kriz çıkardı! "Fenerbahçe'ye yapılmış en büyük kötülük"
+-  Nhiều khu vực bất động sản tại Long An “nóng”, “lạnh” bất thường khi loạt ông lớn Vinhomes, Ecopark…liên tục đổ bộ đầu tư dự án "khủng”
+-  Tekirdağ'da katliam gibi kaza: Çok sayıda ölü ve yaralı var
+-  إداري منتخب اليمن: دوري أدنوك للمحترفين من الأفضل عربيا | دبي الرياضية - dubaisports.ae
