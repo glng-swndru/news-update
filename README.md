@@ -1,11 +1,11 @@
 # Latest News
--  16 пострадали при катастрофи за денонощие
--  Noordwijk krijgt 50 meter hoog reuzenrad op het Gat van Palace. ’De boulevard kan wel wat moois gebruiken’
--  Ankara yeni güne karla uyandı
--  Пленный рассказал о воюющих в рядах ВСУ наёмниках из Японии, Израиля и Британии
--  OVAJ MINUS SE NE ŠALI, POLA SRBIJE JUTROS ISPOD NULE! Ali skače na +19! Gradovi hladniji od Crnog vrha a na ove 2 muke žale se svi
--  Клубове от Европа и Азия кръжат около звезда на Левски
--  Miał grozić zabójstwem liderom rolników. Sprawa ma drugie dno
--  Miał grozić zabójstwem liderom rolników. Sprawa ma drugie dno
--  PM mahu penguatkuasaan lebih kerap tangani isu beras tempatan
--  Çin’in Başkenti, Bayrağının Anlamı, Nüfusu, Ana Dili, Para Birimi
+-  Neuauflage - „Alone in the Dark“ lockt mit Monstern und Mystery
+-  Đội hình tối ưu của ĐT Việt Nam đấu ĐT Indonesia: Hoàng Đức là trung tâm
+-  Osterfeuer 2024 in Werne: Stadt genehmigt 46 Feuer
+-  Spremite se! Ako ovo NATO prihvati - imamo treći svetski rat! Ukrajina gori, stigao hitan poziv iz Kijeva: Uđite...
+-  Arus Mudik Lebaran, Kendaraan Sumbu Tiga Dilarang Masuk Tol Trans Jawa & Arteri Jateng
+-  Siap Layangkan Gugatan, Ganjar: MK Benteng Terakhir
+-  KPK Panggil Mantan Petinggi PT Hutama Karya
+-  National park approves giving rights of way notice to councils
+-  11監委反對彈劾陳宗彥！ 藍黨團列黑名單：監察院剩洗白老鼠屎功能
+-  Watch: Police seize a car converted into a ‘helicopter’
