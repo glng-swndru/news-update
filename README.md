@@ -1,11 +1,11 @@
 # Latest News
--  Облачный ИИ-суперомпьютер AWS Project Ceiba получит 21 тыс. суперчипов NVIDIA GB200
--  U.S.: Democratic Senators Asked Biden to Press for Palestinian State Creation · Global Voices
--  Câmara aprova projeto que acaba com saidinha temporária; texto vai à sanção
--  „Valencia“ iškovojo sunkią ir svarbią pergalę lenktynėse dėl vietos įkrintamosiose
--  CORRECTION – Preferred Bank Announces Quarterly Cash Dividend
--  QU launches website for Class of 2024 graduation ceremony
--  Ovako će izgledati izborne liste SDP-a: Sedam do osam ulaznih mjesta u Sabor prepušta se partnerima
--  AYM yeni başkanını seçiyor
--  Câmara aprova projeto que acaba com saidinha temporária; texto vai à sanção
--  Vessicchio: "Da bravo calciatore a mastino cattivo. Una trasformazione vergognosa"
+-  ඇමැති බිරිය අධිකරණ නියොගයක් කඩලා
+-  90-vuotias yhdistys on yhä toimelias ja ajassa mukana, Haukiputaan maa- ja kotitalousnaiset juhlivat
+-  Sud ukinuo oslobađajuću presudu za ratni zločin protiv civila u Rosuljama
+-  Çetinkaya hız kesmiyor
+-  'She can overcome anything': Teen diagnosed with cancer after surviving rare disease
+-  'She can overcome anything': Teen diagnosed with cancer after surviving rare disease
+-  Kanada İsrail'e askeri ihracata devam edecek
+-  مجلس شباب الثورة يدين المجزرة الحوثية بحق المدنيين في رداع البيضاء..
+-  Ranil’s reticence, Basil’s broken base, Harsha’s Hotel California and Eran’s fire-and-fury
+-  Bargiggia: "La 'sentenza' su Acerbi è già arrivata"
