@@ -1,11 +1,11 @@
 # Latest News
--  “돋보이는 주총장 패션”…이부진 사장 “올해도 이 브랜드 입었네”
--  Ticketless parking fines to remain despite Minister's plea for change
--  美聯儲維持今年降息3次預測，金價突破2200美元創歷史新高
--  Futbol ailesi iftarda buluştu! Büyükekşi'den kulüplere 'iftara gelin' telefonu
--  Councillors approve amendment to prohibit ward budget-funded billboard greetings
--  Imigresen gempur kilang, lokasi panas, tahan 44 PATI
--  RBM admits foreign exchange mismatch
--  Motorola Moto G34 5G akıllı telefon incelemesi - Paradan tasarruf etmek istemeyenler için telefon
--  Polda Metro Jaya Gelar Mudik Gratis, Ini Cara Daftarnya
--  아산서 한밤 중 여관 화재...투숙객 1명 사망·3명 부상
+-  à¶´à¶»à·�à¶§à·š à¶±à·“à¶­à·’à¶º à¶…à¶­à·Šà·„à·’à¶§à·”à·€à¶± à¶´à¶±à¶­ à¶¸à·�à¶­à·’à·ƒà¶¶à¶ºà¶§
+-  중등 인강 엠베스트, ‘2028 대입 통합형·융합형 수능 과목 체제 도입’ 의견 제시
+-  Стало известно, почему бобовые полезнее мяса
+-  Income Tax Department ने आम चुनाव में कालेधन पर लगाम लगाने के लिए दिल्ली में बनाया नियंत्रण कक्ष
+-  Bé gái bị hiếp dâm, cướp tài sản vì rủ 'bạn trai' về nhà chơi
+-  조수진, "성범죄에서 무죄란 없는 걸까 고민…." 게시 논란
+-  Anil Ambani’s Reliance making strong comeback, shares hit the top again after settling Rs 4000000000… - DNA India
+-  천하람 “양향자 비례 불만, 이창한 포함 안돼 서운한 것 같아”
+-  Frustrated homeowners say developer 'cut corners' on Cambridgeshire estate
+-  24મી માર્ચની રાત્રે હોલિકા દહન યોજાશે:જાણો હોળીની અગ્નિ શા માટે અન્ન અને પૂજા-સામગ્રીની આહુતિ આપવામાં આવે છે?
