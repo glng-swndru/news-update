@@ -1,11 +1,11 @@
 # Latest News
--  ඇමැති බිරිය අධිකරණ නියොගයක් කඩලා
--  90-vuotias yhdistys on yhä toimelias ja ajassa mukana, Haukiputaan maa- ja kotitalousnaiset juhlivat
--  Sud ukinuo oslobađajuću presudu za ratni zločin protiv civila u Rosuljama
--  Çetinkaya hız kesmiyor
--  'She can overcome anything': Teen diagnosed with cancer after surviving rare disease
--  'She can overcome anything': Teen diagnosed with cancer after surviving rare disease
--  Kanada İsrail'e askeri ihracata devam edecek
--  مجلس شباب الثورة يدين المجزرة الحوثية بحق المدنيين في رداع البيضاء..
--  Ranil’s reticence, Basil’s broken base, Harsha’s Hotel California and Eran’s fire-and-fury
--  Bargiggia: "La 'sentenza' su Acerbi è già arrivata"
+-  Julie Goodyear’s husband watching ITV Coronation Street star 'slowly fade away' in dementia battle
+-  Dodgers fire Ohtani’s interpreter fired after allegations of gambling, theft
+-  Port Authority Board Mulls Final Costs For Nearly Completed State Pier In New London
+-  Last time I trained with England I left in ambulance with gruesome injury… now I’m grabbing my second chance, says Gomez
+-  'I almost quit football age 15 after heartbreak – now I may make England debut vs Brazil'
+-  仮面ライダー出身・半田健人が語る昭和歌謡「修正も編集もできない。だからゆらぎがあった」
+-  Bovine Lactoferrin Market : Asia-Pacific Region to Witness Notable Growth, Owing to Launch of Bovine Lactoferrin Product
+-  Ivanka Trump zablistala u sandalama koje ćemo uskoro viđati na svakom koraku
+-  Counterpoint: Nitrates in groundwater: Think of the problem this way
+-  Förum ekki að gera einhverja vitleysu
