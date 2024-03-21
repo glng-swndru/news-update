@@ -1,11 +1,11 @@
 # Latest News
--  向社工人員感謝致意 陳建仁：持續檢討不足、給與社工支持
--  32歳ですい臓がんステージ4のYouTuber、殺害予告したアンチが書類送検 詐病あらためて強く否定「証明書類を刑事さんにお見せした」
--  [날씨] 꽃샘추위 차츰 누그러져…큰 일교차 주의
--  Siyaset sadece İstanbul'da değil tüm Türkiye'de
--  南苏丹希望与越南促进多方面合作关系
--  Jamestown Regional Airport awarded $2.6M for project, equipment
--  삼성전자, 또 52주 신저가 경신…6만 원대도 위태
--  Bộ Chính trị điều động, chỉ định nhân sự lãnh đạo 2 tỉnh
--  Anayasa Mahkemesi'nin yeni başkanı bugün belli olacak
--  [단독] 삼성전자 14년 근무 뒤 백혈병 얻어 숨진 엔지니어, 산재소송 2심서 승소
+-  CGT: Kerajaan unjur hasil tambahan RM800 juta
+-  Экс-премьер Украины Азаров назвал сказками заверения фон дер Ляйен принять страну в ЕС
+-  Kasus DBD DKI Jakarta: Imbauan Heru untuk Mengenakan Pakaian Panjang Anak hingga Pengaruh Musim Pancaroba
+-  Emekliye seyyanen zam gelecek mi? AK Parti'den açıklama
+-  පොල්තෙල් වංචාවේ සුමන හිමි රිමාන්ඩ්
+-  SKORO BEZ PROMENE: Zvanični srednji kurs je 117,2010 dinara za jedan evro
+-  Ukraine's capital Kyiv is under Russian missile attack, mayor says
+-  “청년 허리 휜다”… 서울 ‘신축 원룸’ 월세 101만원
+-  Jerry Sineneng directs first sexy film: 'Proud ako rito'
+-  여, 이종섭 귀국에 여론반전 기대…일각에선 사퇴 요구도
