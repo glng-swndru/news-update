@@ -1,11 +1,11 @@
 # Latest News
--  Dogodilo se na današnji datum, 21. mart
--  Arms, weapons, ammo banned in South Goa
--  Dòng sông bắt nguồn từ dãy Trường Sơn: Gắn với "tọa độ lửa", chỉ dài 77km nhưng có tới hơn 100 thác nước
--  강남구, 자치구 최초 모아타운 신청기준 동의율 50%로 강화
--  [채권뷰] 브라질 10년물 금리 10.9bp 하락…미국채 10년물 연 4.28%
--  Thierry Henry đặt mục tiêu Pháp vô địch Olympic Paris 2024
--  Dogodilo se na današnji datum, 21. mart
--  State prisoner pleads guilty in 2023 attempted escape in Howard County
--  Πρωτοσέλιδα αθλητικών εφημερίδων για την Πέμπτη 21 Μαρτίου 2024
--  Schreck in Solingen: Mann flüchtet nach Auffahrunfall mit fremdem Auto und zwei Kindern
+-  Una News: भटोली में युवक से 2.50 ग्राम हेरोइन बरामद
+-  Tennistähti Sabalenka kommentoi entisen poikaystävänsä itsemurhaa
+-  Narendra Modi government nurtured a ‘billionaire raj’ more unequal than even British Raj: Congress
+-  Analyse des offres programmatiques des candidats à la présidentielle du 24 mars 2024 : Mame Boye Diao et Khalifa Sall font les meilleures offres
+-  Fourth of 6 former Mississippi officers sentenced to 40 years in the torture of 2 Black men - CNN
+-  偷大谷1.4億非法簽賭 翻譯水原一平起底！昔被封「天才」
+-  Entidades do setor produtivo pedem cortes maiores na Selic
+-  South Okanagan Medical Foundation helps raise $20 million in 5 years
+-  Spoločnosť Midea KWHA predstavuje na MCE 2024 v Miláne rad ohrievačov vody energetickej triedy A
+-  Diretor da Petrobras diz que projeto na Colômbia pode ter gás suficiente para exportação
