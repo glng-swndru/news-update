@@ -1,11 +1,11 @@
 # Latest News
--  CGT: Kerajaan unjur hasil tambahan RM800 juta
--  Экс-премьер Украины Азаров назвал сказками заверения фон дер Ляйен принять страну в ЕС
--  Kasus DBD DKI Jakarta: Imbauan Heru untuk Mengenakan Pakaian Panjang Anak hingga Pengaruh Musim Pancaroba
--  Emekliye seyyanen zam gelecek mi? AK Parti'den açıklama
--  පොල්තෙල් වංචාවේ සුමන හිමි රිමාන්ඩ්
--  SKORO BEZ PROMENE: Zvanični srednji kurs je 117,2010 dinara za jedan evro
--  Ukraine's capital Kyiv is under Russian missile attack, mayor says
--  “청년 허리 휜다”… 서울 ‘신축 원룸’ 월세 101만원
--  Jerry Sineneng directs first sexy film: 'Proud ako rito'
--  여, 이종섭 귀국에 여론반전 기대…일각에선 사퇴 요구도
+-  Självkritisk Brynäsforward tillbaka efter körtelfeber
+-  Självkritisk Brynäsforward tillbaka efter körtelfeber
+-  Nigeria Launches National Privacy, Digital Awareness Campaign To Safeguard Personal Data
+-  전남 동부권 정치권·지자체장, 순천대 의대 신설 촉구
+-  コインベース、Baseのトラフィック急増で送金詰まりを警告
+-  豆瓣醬驚現“完整鼠頭”？ 廠家舉證質疑造假
+-  Btp da esportazione: la spinta degli stranieri è utile a ridurre il costo del debito
+-  Cường Đô La - Đàm Thu Trang chia sẻ bí quyết quan trọng khi dạy con, bảo sao Subeo càng lớn càng ngoan, tình cảm
+-  Editorial | Probidad en la selección de jueces nacionales
+-  Ngân hàng lỗi cho khách hàng rút tiền thoải mái, người dân ồ ạt xếp hàng dài rút cả chục tỷ
