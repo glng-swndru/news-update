@@ -1,11 +1,11 @@
 # Latest News
--  غارتان على يارون استهدفتا الحرج في البلدة وحي البيادر
--  وزير الداخلية يدشّن مقر القوة الخاصة للأمن البيئي بحائل
--  La ruptura de Níger con EEUU demuestra que África está cansada de la "falta de respeto" de Occidente
--  Comunele din România în care este interzis să tai porcul. Șapte zile nu ai voie să faci așa ceva
--  Kinder: Fünf Schwestern lassen einen Traum in Rosa Wirklichkeit werden
--  Argus, Exelon hisseleri için Al notunu ve 45$ hisse hedefini koruyor
--  El euro blue cerró a $1087 para la compra y $1120 para la venta este miércoles 20 de marzo de 2024
--  SOFIJA RAJOVIĆ POSLALA PORUKU JELISAVETI ORAŠANIN! U jeku skandala o aferi sa Teodosićem, glumica prizanala kako stvari stoje
--  Γεωργιάδης: Το 95% των νοσοκομείων της χώρας θα κάνει απογευματινά χειρουργεία σε λίγο καιρό
--  Zablistao kod Milojevića, a onda - šok! Kanga izbačen iz tima!
+-  Hristina Slavić pobjednik konkursa "Zlatno pero"
+-  De Luca ancora contro il Governo: "Dovete spararmi in testa, ma non ci ricatterete"
+-  Dopo 40 anni da abbonato, tifoso rispedisce la tessera all’Udinese
+-  Lack of autism funding leaves B.C. man and his son in a lurch
+-  Người phụ nữ khóc ròng khi biết dạ dày "thủng lỗ chỗ" và chảy máu chỉ vì uống thứ này như nước
+-  Do Collingwood have a premiership hangover or is this their sober reality?
+-  Η Ρουμανία αντιδρά στις γεωτρήσεις φυσικού αερίου της Τουρκίας στη Μαύρη Θάλασσα
+-  Bir sevilen uygulama daha Windows 7/8 ve 10’dan çekiliyor!
+-  தோல் கழிவுநீரை வெளியேற்றிய தொழிற்சாலைக்கு சீல்
+-  One simple position change can solve Man Utd's biggest issue, Ten Hag must do it vs Brentford - opinion
