@@ -1,11 +1,11 @@
 # Latest News
--  Dani Alves quedó en libertad provisional, bajo una fianza millonaria
--  Reklam Kurulu, e-ticaret sitelerindeki üyelik şartlarını inceledi
--  Halvor Egner Granerud v Planici ne bo letel
--  Рекорди на резервите в Англия
--  „Тайният син“ на Чарлз III проговори за измамата с изчезването на Кейт Мидълтън
--  BHOPAL NEWS - इंजीनियर पति ने ट्रेन से चादर चुराया पत्नी ने शिकायत कर दी
--  Κατέπεσε F-16 στην Ελλάδα - Εγκατέλειψε ο πιλότος
--  EU: Privremeni sporazum o liberalizaciji trgovine za Ukrajinu
--  기상 악화로 정박하다…일본 앞바다서 전복돼 8명 사망
--  Terrortámadást tervezett a parlament ellen két férfi Svédországban, elfogták őket
+-  French regulators fine Google $272 million in dispute with news publishers (Business)
+-  Η κατάσταση στους δρόμους αυτή την ώρα - 30λεπτες καθυστερήσεις στην Αττική Οδό, ρεύμα προς Ελευσίνα
+-  오키나와현 및 日 주류회사, LG에 우승기념 아와모리주 증정…“통합우승과 축배 다시 한 번 함께하길”
+-  Руска агресия в Харков: Ударено е предприятие, има жертви и ранени (ВИДЕО)
+-  Vietnam Devlet Başkanı Vo Van Thuong görevinden istifa etti
+-  Heidelberg: Prostituierte wegen Millionenbetrugs zu Haftstrafe verurteilt
+-  Offerte Primavera Amazon: super sconti dal mondo della tecnologia
+-  Döpur mæting hjá íslenskum stuðningsmönnum
+-  Trabzonspor Başkanı Ertuğrul Doğan: "Merak ediyorum Türkiye'nin neresinde hangi şehrinde bugüne kadar sahaya giren biri herhangi bir darp olayına karışmadığı halde tutuklanmıştır."
+-  A németek még mindig bíznak a Volkswagenben
