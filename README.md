@@ -1,11 +1,11 @@
 # Latest News
--  张尧浠：美联储降息预期回暖、黄金再创历史前景仍乐观
--  GUILTY GEAR -STRIVE- A.B.A Announce Trailer
--  Đắng lòng công nhân làm thêm với tiền công "bèo bọt"
--  大谷翔平選手の資金を盗んだとして告発された水原一平通訳をドジャースが解雇、ギャンブルの負債返済に使用か
--  Южная Корея и США провели учения по ведению боя в условиях города
--  Gözler Merkez Bankası'nda: Yılın üçüncü faiz kararı bugün açıklanacak
--  Wychwood Lane
--  El tiempo en Huesca: previsión meteorológica para hoy, jueves 21 de marzo
--  大規模緩和の一部の施策、市場機能にマイナスの影響＝植田日銀総裁
--  「父を刺しました」と男が交番へ…自宅の脱衣所にいた79歳父親を刃物で刺して殺害か 48歳息子を逮捕(東海テレビ)
+-  [SBS Star] Han Go Eun Says She Once She Cried Asking Her Husband If She Got Married Just to Cook for Him
+-  "นิพิฏฐ์" ฟันธง "บิ๊กต่อ" แพ้ รับเหนือคาดหมาย นายกฯ เซ็นย้ายช่วยราชการ
+-  응급의학회 "환자 지키겠다…정부, 전공의 복귀 설득해야"
+-  부산 사상구, 지방세 정기세무조사 본격 추진
+-  Horóscopo de hoy, 21 de marzo: predicciones de amor y trabajo según tu signo del zodiaco
+-  9 Situs Psikiater Online Gratis untuk Pemeriksaan Awal, Mudah Diakses
+-  林官房長官「引き続き震度5弱程度の地震発生に注意を」埼玉・栃木で震度5弱受け(ABEMA TIMES)
+-  Benn, Seguin, Stankoven score in 2nd period, Stars beat Coyotes 5-2
+-  ΟΗΕ: Το εμπόλεμο Σουδάν υφίσταται μία από τις χειρότερες ανθρωπιστικές καταστροφές στη σύγχρονη ιστορία
+-  [포토] 대한상의 임시의원총회 회장 선출
