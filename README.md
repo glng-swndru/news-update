@@ -1,11 +1,11 @@
 # Latest News
--  [상보] 일본증시 닛케이, 연준 호재에 사상 최고치 경신
--  Ciidamada Itoobiya oo qabtay 50 tuhmane ah oo maleegayay weeraro Argagixiso oo lala beegsan laha magaalada Addis Ababa
--  애경산업, 100억원 규모 자사주 매입
--  鮮芋仙被踢爆！陸2門市「後厨滿屋黑蟲」恐怖畫面曝 總部急發聲
--  'कांग्रेस के बैंक खाते फ्रीज', राहुल गांधी-सोनिया गांधी ने की प्रेस कॉन्फ्रेंस, कहा- चुनावी खर्चे के लिए पैसे नहीं
--  'KLPGA 신인왕' 김민별, 효성에프엠에스와 후원 재계약
--  Uttar Pradesh: Allahabad HC expunges Bareilly judge’s remarks lauding Chief Minister Adityanath
--  Rohingya Right To Live In India | 'विकासशील देश, सीमित संसाधन', केंद्र सरकार ने रोहिंग्या के रहने के अधिकार को खारिज किया
--  Jakut Dua Kali Diterjang Banjir, Tina Toon Soroti Program Pemprov DKI
--  Komoly egészségügyi problémákat okozhat egy gyakori vécézési szokás
+-  L’oro schizza a valori record: ecco perché conviene investire nel metallo giallo e quanto rende
+-  Indices trim gains; realty shares in demand; VIX drops 5.64%
+-  В Калинковичах задержали мужчину с более 800 граммами насвая
+-  Lodhran man kills pregnant wife, 18-month-old daughter over domestic dispute
+-  Oltóanyaghiány fenyeget: súlyosbodhat a járvány?
+-  조국 "22대 국회 '관권선거 의혹' 국정조사 추진"
+-  Dukhan Bank AGM approves 16% cash dividend for shareholders
+-  Facebook i Instagram imaju poteškoće, korisnici prijavljuju brojne probleme
+-  Обмислят по-строг регламент за служебния абонамент в София
+-  Нацбанк планує спростити обмін пошкоджених банкнот гривні
