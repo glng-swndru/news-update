@@ -1,11 +1,11 @@
 # Latest News
--  JK Mengaku Sebagai Nabi, Polisi Bertindak, Ternyata Warga Kota Tebing Tinggi
--  Justiça dos EUA suspende de novo lei antimigração do Texas em mais um capítulo da crise na fronteira
--  CHP Sarıyer Belediye Başkan Adayı Mustafa Oktay Aksu: "Oylarımızı böldürmeyecek, Sarıyer’e sahip çıkacağız"
--  Fernández: un total de 172 alumnos del último año del secundario recibieron tablets
--  FED giữ nguyên lãi suất cao nhất 23 năm, dự kiến 3 đợt cắt giảm trong 2024, chứng khoán lập tức phá kỷ lục: Duy có điều thay đổi trong tuyên bố
--  Dismal Budget Outlook Calls for Urgent Action
--  Karpuz üretiminde Türkiye’de birinci oldu
--  The best laptop deals right now
--  Assan Ouédraogo kommt in Schwung: Soppy und Schallenberg drohen länger auszufallen!
--  Assan Ouédraogo kommt in Schwung: Soppy und Schallenberg drohen länger auszufallen!
+-  Vic dana: Zaljubljeni par
+-  San Valentino Torio, la succursale dell’Istituto "Domenico Rea" avrà presto suoi laboratori
+-  Cancelo junta-se à seleção depois de ter passado nos testes médicos
+-  [D-20]총선판 3대 변수가 여야 운명 가른다…'투표율·2030·수도권'
+-  Κύπρος: Στα 376 τα νέα περιστατικά καρκίνου του παχέος εντέρου - Ο 3ος σε συχνότητα εμφάνισης
+-  29 nüvə başlığına sahib Fransa HƏRƏKƏTƏ KEÇDİ
+-  [D-20]‘정권심판론’vs‘여당 프리미엄’ 팽팽…조국혁신당은 7~9석
+-  マイナス金利解除後「追加利上げ」ハードル高く、円高進行の余地は限定的 - マーケットフォーカス
+-  Maldini a Miami: l’ex dirigente del Milan al Masters 1000 per la sfida Berrettini-Murray. I DETTAGLI
+-  [D-20]과반정당은 안 나올 것…1당은 국민의힘 가능성↑
