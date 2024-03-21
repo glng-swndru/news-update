@@ -1,11 +1,11 @@
 # Latest News
--  Meta Quest 3 and PSVR 2 are both on offer in Amazon's Spring sale - which should you buy?
--  Manisa için zirai don uyarısı
--  Kohli, Pant in spotlight as IPL mega-show returns, WCup looms
--  Il piano e la lista di Merlyn spingono Tim in Borsa
--  Chinesa Tencent frustra expectativas de lucro e receita no 4º trimestre de 2023
--  Dukung Program Pemerintah, DHL Luncurkan Pusat Logistik Kendaraan Listrik Pertama se-Asia di Batam
--  Ditadura e memória: o que Brasil pode aprender com Argentina
--  Cap Skirring : une nouvelle découverte macabre installe la polémique
--  Fahri Trafik Müfettişlerinin park cezası yazma yetkileri alındı
--  Clermont Foot : ce qui attend les internationaux durant la trêve
+-  Protest rolników. Kierujący potrącił uczestnika strajku. Jest nagranie
+-  Σε αυξημένη ετοιμότητα η Πυροσβεστική, λέει ο Εκπρόσωπος Τύπου της Δύναμης
+-  Reserva Federal mantiene intacta la tasa de referencia
+-  Protest rolników. Kierujący potrącił uczestnika strajku. Jest nagranie
+-  Трио от ЛА Лейкърс пропуска остатъка от сезона
+-  Espagne : Albares s’emporte contre l’«obsession anti-Maroc» de la droite
+-  Fighting Walleye look to repeat as SIJHL champions
+-  USD/JPY enters BoJ intervention zone after rallying into 151.000s
+-  رواية جروح من عبق الماضي -20
+-  "Elle combattait la maladie" : Laëtitia Krupa, journaliste et chroniqueuse d'On n'est pas couché, est morte à 48 ans
