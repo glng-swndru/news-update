@@ -1,11 +1,11 @@
 # Latest News
--  Kihallgatták Magyar Pétert: itt a főügyészség jegyzőkönyve
--  Anhebung empfohlen: GEZ-Gebühr im weltweiten Vergleich: So viel Rundfunkbeitrag zahlt man anderswo
--  대전시, 도시철도 1호선 식장산역 건축 설계공모
--  معلومات عن سقوط شهيد لحركة أمل...!
--  TikTok-Postings: Gefährderansprache an 16-Jährige: Die Polizei hat mit Kanonen auf Spatzen geschossen
--  Anhebung empfohlen: GEZ-Gebühr im weltweiten Vergleich: So viel Rundfunkbeitrag zahlt man anderswo
--  "190회 찔렀는데 우발이라니" 딸 잃은 母의 눈물…동거남 2심서 25년 구형
--  Cryopeak Energy Solutions Enters Long-Term Agreement with Foran Mining to Provide Low Carbon Fuel for Power Generatio
--  Finding Canadian talent at national combine is crucial for success in CFL
--  U Splitu uhićeni dileri droge
+-  Höher, schneller, weiter: Weltglückstag: Warum wir endlich aufhören sollten, ständig dem großen Glück nachzujagen
+-  Волейболистки "Минчанки-2" одержали вторую победу на седьмом этапе Молодежной лиги России
+-  Pogačar vyhral 3. etapu Okolo Katalánska, vedie aj celkovo
+-  На обновление оборудования медучреждений в Минской области в 2023 году направлено более Br33 млн
+-  Важен играч се завръща за Барселона
+-  MrBeast regalará 5 millones de dólares al ganador de su nuevo reality show en Amazon Prime
+-  Konserttiarvio | Tekeekö ikä näkymättömäksi, pohti Wanhan kutomon herkkäsävyinen konsertti
+-  Prezident tanınmış iş adamını yüksək medalla təltif etdi – FOTO
+-  ¿Qué es y cómo funciona el seguro de gastos médicos?
+-  Oğuz'dan söz alan sendikalar grevi askıya aldı
