@@ -1,11 +1,11 @@
 # Latest News
--  「最後はカンと経験」世界唯一の救難飛行艇「US-2」の訓練とは 密着取材で見えた実力(乗りものニュース)
--  トランプ氏、ガザ紛争を傍観 政権批判は盛んだが
--  トランプ氏、ガザ紛争を傍観 政権批判は盛んだが - WSJ発
--  上越・北陸新幹線 運転見合わせ
--  【速報】岸田首相 関東で震度5弱「今のところ被害の報告受けていない」
--  [총선의제 긴급점검] 도시철도 2·3·4·5호선 건설 일류 교통도시 대전 만든다
--  [사진뉴스] 이장우 대전시장, 상급종합병원 비상진료 현장점검
--  علماء: بقعة شمسية تتوسع وعاصفة مغناطيسية قوية تقترب لتضرب الأرض
--  錦欣生殖 博反彈贏面大
--  Quem seria o novo James Bond? Este é o ator que substituiria Daniel Craig
+-  “돋보이는 주총장 패션”…이부진 사장 “올해도 이 브랜드 입었네”
+-  Ticketless parking fines to remain despite Minister's plea for change
+-  美聯儲維持今年降息3次預測，金價突破2200美元創歷史新高
+-  Futbol ailesi iftarda buluştu! Büyükekşi'den kulüplere 'iftara gelin' telefonu
+-  Councillors approve amendment to prohibit ward budget-funded billboard greetings
+-  Imigresen gempur kilang, lokasi panas, tahan 44 PATI
+-  RBM admits foreign exchange mismatch
+-  Motorola Moto G34 5G akıllı telefon incelemesi - Paradan tasarruf etmek istemeyenler için telefon
+-  Polda Metro Jaya Gelar Mudik Gratis, Ini Cara Daftarnya
+-  아산서 한밤 중 여관 화재...투숙객 1명 사망·3명 부상
