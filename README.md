@@ -1,11 +1,11 @@
 # Latest News
--  තෙවැනි වාරිකය ලෙස ඇමෙරිකානු ඩොලර් 337 ලැබෙයි
--  “7代目ジェームズ・ボンドは「キック・アス」主演俳優” 報道にSNSはすでに祝福ムード「007！」「ボンド役として完璧」
--  Etablering af warrantordning for selskabets direktion og ledende medarbejdere i SP Group A/S
--  Gen Z Has Issues. What Bosses Need to Know
--  Straßenbahnen und Busse fahren in Bremen wieder
--  «Billie’s Party» από τη Θεατρική Ομάδα stereo-τύποι του ΔΗ.ΠΕ.ΘΕ. Βέροιας | ΕΡΑΣΙΤΕΧΝΙΚΗ ΣΚΗΝΗ 2024
--  Grant of warrants to the Executive Board and Managers at SP Group A/S
--  Zato so Finci toliko bolj srečni kot mi
--  Američki šef diplomacije: Pozivamo na trenutni prekid vatre u Gazi
--  İkinci el araç alacaklar dikkat: Şubatta en çok satılan markalar belli oldu
+-  Dedektif Gibi İz Sürdü, Öpüşen Heykellerden Aldatıldığını Anladı! Ali&Nino Boşanması, Ünlü İş İnsanına Pahalıya Patladı
+-  Cel mai iubit serial de acțiune românesc este pe VOYO
+-  Judi dalam talian berselindung di sebalik kedai tudung
+-  Başkan Çolakbayrakdar: "Down sendromluların her zaman farkında ve daima yanındayız"
+-  Vom Mut, sich Johann Sebastian Bach zu stellen
+-  ಟಿಕೆಟ್ ಕೈತಪ್ಪಿದ್ದಕ್ಕೆ BSY ವಿರುದ್ಧ ಅತೃಪ್ತರ ಸಮರ; ಈಶ್ವರಪ್ಪ, ಮಾಧುಸ್ವಾಮಿ ಬಳಿಕ ಸದಾನಂದ ಗೌಡರ ಸರದಿ
+-  LPG'ye de zam geliyor
+-  Израелски изтребител ликвидира двама въоръжени нападатели в бежански лагер на Западния бряг
+-  Στον εισαγγελέα παραποιημένα πιστοποιητικά εισαγόμενων μεταχειρισμένων οχημάτων
+-  BIH SE NADA OTVARANJU PREGOVORA SA EU: Čeka se odluka Brisela
