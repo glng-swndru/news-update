@@ -1,11 +1,11 @@
 # Latest News
--  Amazon shoppers 'ditch' teeth whitening kits for bestselling £20 powder that gives results even dentists approve of
--  Milli Savunma Bakanı Güler Kahramanmaraş'ta konuştu! "Irak ile ortak harekat merkezi kuracağız"
--  Relator do Código Eleitoral recua e mantém permissão a manifestações em igrejas
--  Sierra-at-Tahoe says 30-foot snow crack discovered after storms
--  El único albergue migratorio en frontera de Arizona-México se queda sin fondos
--  Bloomberg: Шмыгаль допустил, что в ВСУ мобилизуют менее 500 тысяч человек
--  Fallece a los 48 años Winrich PM, fundador de Club 25 y popular promotor de la noche mallorquina
--  Алдонин считает, что у сборной России есть хорошие шансы в матче с Сербией
--  Relator do Código Eleitoral recua e mantém permissão a manifestações em igrejas
--  April board meeting to ratify new Ireland manager
+-  JK Mengaku Sebagai Nabi, Polisi Bertindak, Ternyata Warga Kota Tebing Tinggi
+-  Justiça dos EUA suspende de novo lei antimigração do Texas em mais um capítulo da crise na fronteira
+-  CHP Sarıyer Belediye Başkan Adayı Mustafa Oktay Aksu: "Oylarımızı böldürmeyecek, Sarıyer’e sahip çıkacağız"
+-  Fernández: un total de 172 alumnos del último año del secundario recibieron tablets
+-  FED giữ nguyên lãi suất cao nhất 23 năm, dự kiến 3 đợt cắt giảm trong 2024, chứng khoán lập tức phá kỷ lục: Duy có điều thay đổi trong tuyên bố
+-  Dismal Budget Outlook Calls for Urgent Action
+-  Karpuz üretiminde Türkiye’de birinci oldu
+-  The best laptop deals right now
+-  Assan Ouédraogo kommt in Schwung: Soppy und Schallenberg drohen länger auszufallen!
+-  Assan Ouédraogo kommt in Schwung: Soppy und Schallenberg drohen länger auszufallen!
