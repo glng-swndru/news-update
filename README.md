@@ -1,11 +1,11 @@
 # Latest News
--  L’oro schizza a valori record: ecco perché conviene investire nel metallo giallo e quanto rende
--  Indices trim gains; realty shares in demand; VIX drops 5.64%
--  В Калинковичах задержали мужчину с более 800 граммами насвая
--  Lodhran man kills pregnant wife, 18-month-old daughter over domestic dispute
--  Oltóanyaghiány fenyeget: súlyosbodhat a járvány?
--  조국 "22대 국회 '관권선거 의혹' 국정조사 추진"
--  Dukhan Bank AGM approves 16% cash dividend for shareholders
--  Facebook i Instagram imaju poteškoće, korisnici prijavljuju brojne probleme
--  Обмислят по-строг регламент за служебния абонамент в София
--  Нацбанк планує спростити обмін пошкоджених банкнот гривні
+-  Van'da ekiplerin yoğun kar mesaisi devam ediyor! Ulaşıma kapanan 446 yerleşim yerinin 373'ü yeniden ulaşıma açıldı
+-  Suggestions collecting for govt. policies and programmes
+-  Le Brestois Pierre Karleskind parmi les vingt étoiles montantes du Parlement européen
+-  [속보] 尹대통령, 민생특보에 주기환 전 국민의힘 광주시당위원장 임명
+-  Quella fermata di via Belgio che crea solo disagi
+-  Lý do 8 giám đốc doanh nghiệp bị đề nghị tạm hoãn xuất cảnh
+-  Göğüs Hastalıkları Uzmanı Dr. Özsaraç hasta kabulüne başladı
+-  USA e Giappone: contesto macro positivo. E le borse?
+-  Botschaft an Putin?: Macron lässt beim Boxen die Muskeln spielen
+-  Općina Seget onemogućila ulaganje pola milijuna eura
