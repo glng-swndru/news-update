@@ -1,11 +1,11 @@
 # Latest News
--  Cortes de árvores em São Bernardo revoltam moradora
--  ΥΠΕΣ: Κλείνουν οι εκκρεμότητες για την εφαρμογή της μεταρρύθμισης της ΤΑ
--  "Мосбиржа" запустит фьючерсы еще на два иностранных ETF
--  Investeringsforeningen Stonehenge – Årsrapport 2023
--  Länderspiel-Test vor EM: Nagelsmanns Frankreich-Startelf steht wohl: Mit einem Neuling
--  Santé : "La demande en vaccination contre la Covid-19 est très faible" (El Hadj Mamadou Ndiaye, Directeur de la Prévention)
--  Khám phá bất ngờ: Một số dạng sự sống có thể đang trú ẩn trên Sao Kim
--  Schülersprecher über Bildungskrise: „Wir haben fatale Zustände“
--  Crisis en Haití: Cuba evacuará ciudadanos cuando se reanuden vuelos
--  Vụ tá hỏa với hóa đơn tiền nước 57 triệu đồng: Sawaco có phản hồi chính thức
+-  Son Dakika... Halkalı-Kapıkule Hızlı Tren Hattı'nda Göçük: 2 İşçi Kurtarılmayı Bekliyor
+-  Helmi Loukasmäen ja Dannyn välit muuttuivat
+-  Jorge Ferraresi se reunió con el exintendente "Cacho" Alvarez
+-  گل‌محمدی؛ گزینه هدایت تیم امید/ عبدی سرمربی جوانان شد
+-  ΔΗΣΥ: Κατέθεσε πρόταση νόμου για φορολογική ελάφρυνση των μεσαίων εισοδημάτων
+-  دريان اتصل بالرئيس الحريري مطمئنا الى صحته
+-  Celtics garantem vitória no fim e Oklahoma City Thunder lidera Conferência Oeste
+-  В Україні різко знизились ціни на картоплю: названа головна причина
+-  Airfare alert: Minneapolis to Dublin in May, from $476
+-  Росія відкрила полювання на кораблі ВМС ЗСУ, - BILD
