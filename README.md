@@ -1,11 +1,11 @@
 # Latest News
--  Giovanni Allevi: Ho camminato all'inferno e da 13 globuli bianchi ho riscoperto la gioia di essere vivo"
--  "Będą ścigani przez wiele dziesięcioleci". Pieskow reaguje na słowa unijnego komisarza
--  Bios Srl: “Disinfestazione da zanzare, è il momento di intervenire con trattamenti mirati e attenti all'ambiente”
--  HÜDA PAR Genel Başkanı Yapıcıoğlu: "Belediyelerimizin kaynaklarını halkımızın hizmeti için ayıracağız"
--  Could The Acolyte Deal With One of Star Wars' Biggest Problems?
--  Baka Zorana Milanovića na samrti je otkrila tajnu o njemu koju je skrivala 15 godina, ni njegova majka to nije znala!
--  Företagare trött på svåra trafikläget på Turbinvägen
--  "RADIO SAM KAO UČITELJ DECE BOGATIH RUSA, TAJ SVET JE NEVEROVATAN" Na odmor idu helikopterom, nose patike od 1.000 dolara, a reči jedne devojčice NIKAD NEĆE ZABORAVITI
--  Putin's prized £130M 'Blackjack' bomber targeted as Russian airbase blown up by Ukraine
--  KRS Dam water level dips to 87.31 ft amid scorching heat
+-  Meta Quest 3 and PSVR 2 are both on offer in Amazon's Spring sale - which should you buy?
+-  Manisa için zirai don uyarısı
+-  Kohli, Pant in spotlight as IPL mega-show returns, WCup looms
+-  Il piano e la lista di Merlyn spingono Tim in Borsa
+-  Chinesa Tencent frustra expectativas de lucro e receita no 4º trimestre de 2023
+-  Dukung Program Pemerintah, DHL Luncurkan Pusat Logistik Kendaraan Listrik Pertama se-Asia di Batam
+-  Ditadura e memória: o que Brasil pode aprender com Argentina
+-  Cap Skirring : une nouvelle découverte macabre installe la polémique
+-  Fahri Trafik Müfettişlerinin park cezası yazma yetkileri alındı
+-  Clermont Foot : ce qui attend les internationaux durant la trêve
