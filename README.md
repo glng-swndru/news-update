@@ -1,11 +1,11 @@
 # Latest News
--  "Tradimento e rissa". Manfuso sgancia la bomba sulla rottura Ferragni-Fedez
--  "La situation économique s'est dégradée depuis janvier 2024", assure le président de la CPME28
--  ما هو App Mall .. الاسم الجديد لمتجر التطبيقات في HyperOS لهواتف شياومي
--  Διαψεύδει η Γαλλία αναφορές περί αποστολής 2.000 στρατιωτών στην Ουκρανία
--  Bildung: Den Schulabschluss im zweiten Anlauf nachholen
--  Адмирал ВМС США заявил о посещении Земли внеземной цивилизацией
--  Prefeito do Rio posta vídeo de Madonna em meio a rumores de show da cantora em Copacabana
--  Vier mutmaßliche Autodiebe festgenommen
--  All the publications who came to Pub Crawl (and how to work with them)
--  Niagara Falls survey to gauge interest in new Queen Street business organization
+-  غارتان على يارون استهدفتا الحرج في البلدة وحي البيادر
+-  وزير الداخلية يدشّن مقر القوة الخاصة للأمن البيئي بحائل
+-  La ruptura de Níger con EEUU demuestra que África está cansada de la "falta de respeto" de Occidente
+-  Comunele din România în care este interzis să tai porcul. Șapte zile nu ai voie să faci așa ceva
+-  Kinder: Fünf Schwestern lassen einen Traum in Rosa Wirklichkeit werden
+-  Argus, Exelon hisseleri için Al notunu ve 45$ hisse hedefini koruyor
+-  El euro blue cerró a $1087 para la compra y $1120 para la venta este miércoles 20 de marzo de 2024
+-  SOFIJA RAJOVIĆ POSLALA PORUKU JELISAVETI ORAŠANIN! U jeku skandala o aferi sa Teodosićem, glumica prizanala kako stvari stoje
+-  Γεωργιάδης: Το 95% των νοσοκομείων της χώρας θα κάνει απογευματινά χειρουργεία σε λίγο καιρό
+-  Zablistao kod Milojevića, a onda - šok! Kanga izbačen iz tima!
