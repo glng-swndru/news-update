@@ -1,11 +1,11 @@
 # Latest News
--  Una News: भटोली में युवक से 2.50 ग्राम हेरोइन बरामद
--  Tennistähti Sabalenka kommentoi entisen poikaystävänsä itsemurhaa
--  Narendra Modi government nurtured a ‘billionaire raj’ more unequal than even British Raj: Congress
--  Analyse des offres programmatiques des candidats à la présidentielle du 24 mars 2024 : Mame Boye Diao et Khalifa Sall font les meilleures offres
--  Fourth of 6 former Mississippi officers sentenced to 40 years in the torture of 2 Black men - CNN
--  偷大谷1.4億非法簽賭 翻譯水原一平起底！昔被封「天才」
--  Entidades do setor produtivo pedem cortes maiores na Selic
--  South Okanagan Medical Foundation helps raise $20 million in 5 years
--  Spoločnosť Midea KWHA predstavuje na MCE 2024 v Miláne rad ohrievačov vody energetickej triedy A
--  Diretor da Petrobras diz que projeto na Colômbia pode ter gás suficiente para exportação
+-  Elastic N.V. CTO Shay Banon sells shares worth over $28 million
+-  Ряд китайских банков перестали принимать платежи из России в юанях
+-  Mercedes-Benz triệu hồi hơn 100.000 ô tô vì nguy cơ hỏa hoạn
+-  Rússar segja Ísland styðja úkraínska nasista
+-  Do 40 odsto kupaca mlađe od 13 godina: Švedski lanac apoteka zabranio prodaju krema protiv starenja kože deci
+-  Harmonise efforts at tackling inflation – LCCI
+-  Google defends Digital Markets Act changes, cites complex trade-offs
+-  메리츠증권 “마이크론, 어닝서프라이즈 신호탄…메모리업체 연말까지 주가상승”
+-  උසාවියට අපහාස කළ නීතිඥයා රිමාන්ඩ් – නඩුව අවසන් වනතුරු නීතිඥභාවයත් අහෝසියි
+-  최상목 부총리 "부동산 PF시장 질서있는 연착륙 유도에 만전"
