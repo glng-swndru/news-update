@@ -1,11 +1,11 @@
 # Latest News
--  OVA FUNKCIJA JE ZA MENE VELIKA ČAST I PRIVILEGIJA Brnabić: Živela Srbija!
--  Hajdučija uz Budvi - nezakonito postavljene rampe na putu za...
--  Huoltovarmuus | HVK:n Känkänen: Bensiinin ja dieselin saatavuus­häiriöt todennäköisesti yleistyvät
--  Cumhurbaşkanı Erdoğan, Çankırı'yı ziyaret edecek
--  Co dalej z kwotą wolną od podatku? "Chcą blokować prace nad realizacją własnej obietnicy"
--  Blinken, tekrar Orta Doğu turuna çıkıyor
--  Caravana retorna a Mato Grosso do Sul e oferece oportunidades para empreendedores
--  MSB duyurdu: 2 terörist teslim oldu
--  Putino politinė metamorfozė – kaip didėjo jo priešiškumas Vakarams
--  ¿Es buen momento para construir?: los indicadores que miran los inversores
+-  Amazon shoppers 'ditch' teeth whitening kits for bestselling £20 powder that gives results even dentists approve of
+-  Milli Savunma Bakanı Güler Kahramanmaraş'ta konuştu! "Irak ile ortak harekat merkezi kuracağız"
+-  Relator do Código Eleitoral recua e mantém permissão a manifestações em igrejas
+-  Sierra-at-Tahoe says 30-foot snow crack discovered after storms
+-  El único albergue migratorio en frontera de Arizona-México se queda sin fondos
+-  Bloomberg: Шмыгаль допустил, что в ВСУ мобилизуют менее 500 тысяч человек
+-  Fallece a los 48 años Winrich PM, fundador de Club 25 y popular promotor de la noche mallorquina
+-  Алдонин считает, что у сборной России есть хорошие шансы в матче с Сербией
+-  Relator do Código Eleitoral recua e mantém permissão a manifestações em igrejas
+-  April board meeting to ratify new Ireland manager
