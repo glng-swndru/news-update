@@ -1,11 +1,11 @@
 # Latest News
--  Σύσκεψη για την επίσπευση υλοποίησης του Great Sea Interconnector
--  Ankara Büyükşehir'den örnek proje: Ücretsiz HPV aşısı
--  Overwatch 2 : le Héros Venture dévoilé avec un gros changement dans le Passe de Combat pour la Saison 10
--  Ovo su najvrijedniji igrači HNL-a: Primjećujete li i vi nešto čudno na ovom popisu?
--  Union ZP vníma vyhlášku k financiám skôr negatívne, VšZP ju akceptuje
--  Kremeľ: Plán EÚ použiť zmrazené aktíva pre Ukrajinu je porušením práva
--  Victorian home in Raydon with pool for sale at £1.75m
--  "Inimmaginabile". La decisione di Harry su Re Carlo spiazza tutti
--  Los aspirantes a 174 plazas de difícil cobertura del Sergas por concurso de méritos pueden empezar a elegir destino este jueves
--  هشدار؛ به تلگرام و اینستاگرام برای برای خرید و فروش ارز اعتماد نکنید
+-  Kihallgatták Magyar Pétert: itt a főügyészség jegyzőkönyve
+-  Anhebung empfohlen: GEZ-Gebühr im weltweiten Vergleich: So viel Rundfunkbeitrag zahlt man anderswo
+-  대전시, 도시철도 1호선 식장산역 건축 설계공모
+-  معلومات عن سقوط شهيد لحركة أمل...!
+-  TikTok-Postings: Gefährderansprache an 16-Jährige: Die Polizei hat mit Kanonen auf Spatzen geschossen
+-  Anhebung empfohlen: GEZ-Gebühr im weltweiten Vergleich: So viel Rundfunkbeitrag zahlt man anderswo
+-  "190회 찔렀는데 우발이라니" 딸 잃은 母의 눈물…동거남 2심서 25년 구형
+-  Cryopeak Energy Solutions Enters Long-Term Agreement with Foran Mining to Provide Low Carbon Fuel for Power Generatio
+-  Finding Canadian talent at national combine is crucial for success in CFL
+-  U Splitu uhićeni dileri droge
