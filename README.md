@@ -1,11 +1,11 @@
 # Latest News
--  Виктор Майгуров: «Хотел бы попробовать себя в фигурном катании. Базовые упражнения, прыжки, поддержки – наверное, это не сложно»
--  遭衛福部指沒訪視凱凱！ 新北社會局轟「斷章取義」列3聲明反駁
--  Sabatini: "Sono una macchina da debiti. Ma si leggono solo complimenti"
--  Cum a reușit un bărbat să se urce în avion fără bilet. Acum riscă pedeapsa cu închisoarea
--  Lok Sabha polls पर Artificial intelligence कैसे डाल सकती है असर? डीपफेक, वॉयस क्लोनिंग के जरिए मतदाताओं को रिझाने की कोशिश
--  Kinevezték a jobboldali kormányfőt Európa egyik legbaloldalibb országában, de a neheze még csak most jön
--  Focar de RUJEOLĂ într-un centru de plasament temporar pentru refugiați din Chișinău: 11 persoane, internate în spital
--  VIDEO Moment emoționant la WTA Miami - Prima victorie după 11 luni
--  Salman Rushdie: AI only poses threat to unoriginal writers
--  Denizli'nin 12 mahallesine süt soğutma tankı dağıtıldı
+-  MINISTARSTVO ZDRAVLJA DOSTAVILO IZVEŠTAJ TUŽILAŠTVU Završen stručni nadzor u bolnici u Sremskoj Mitrovici zbog smrti bebe
+-  Euro Area’s Top Economies Retreat, Holding Back Growth in Bloc
+-  Z kuşağı sosyal medya yüzünden "orta yaş krizi" yaşıyor
+-  Lithuania reports decline in grain flow from Russia amid tighter controls
+-  Israel-Hamas war: US says 'gaps narrowing' in truce talks
+-  Manisa BBSK cimnastikçileri şampiyonaya damgasını vurdu
+-  A los 82 años, murió el exjefe montonero Roberto Perdía
+-  De familie van der Weij zwijgt niet langer meer, maar is trots op de strijd voor het vrije woord
+-  Felszállt a füst: közös listán indul a választásokon a DK, az MSZP és a Párbeszéd
+-  Tieners die aanslag beraamden in Brussel hadden ook plan om Eiffeltoren neer te halen met explosieven
