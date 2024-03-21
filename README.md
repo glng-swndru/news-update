@@ -1,11 +1,11 @@
 # Latest News
--  TBS斎藤慎太郎アナ、元チームメイトの実況を担当し感慨「私も頑張らねば」
--  Dune: Awakening - Tráiler de Avance
--  Страна другая, проблемы те же: более 14% жителей Литвы не хватает денег даже на еду
--  '2천억 대 인수 계약금 소송' 아시아나항공, 2심도 현산에 승소
--  Giá vàng thế giới lập đỉnh, vàng trong nước sẽ ra sao?
--  Diljit Dosanjh’s adorable reaction to Deepika Padukone’s surprise gift | Watch
--  Ai có quyền cấp, khóa, mở khóa tài khoản định danh điện tử của công dân từ 1/7?
--  South West women collect Trigg Point crowns
--  South West women collect Trigg Point crowns
--  Gustavo Gorriti no publicó en Twitter que “Alan García está viviendo en Suiza”
+-  [국내 주식] 로보인베스팅 오늘의 관심주 : 파라다이스
+-  越南与新加坡扩大经贸和能源合作
+-  Le Vietnam souligne le rôle des femmes et des jeunes dans la prévention des conflits
+-  Pannun murder plot: US says working with India to hold those behind conspiracy accountable
+-  صفا في الإمارات: تطبيع "الحزب" مع الخليج ام قضية الموقوفين فقط؟
+-  Vietnam highlights women, youth’s role in conflict prevention
+-  В порту Петербурга отказались от операций с одним веществом из-за дронов
+-  Ratificación del tratado marítimo pone fin a 100 años de disputas: Cancillería hondureña
+-  Условия жизни работников рудника "Пионер"
+-  Internal Ministry Appeals People Not To Share Their Bank Cards Due To Cyber Fraudsters
