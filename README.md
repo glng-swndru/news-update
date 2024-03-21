@@ -1,11 +1,11 @@
 # Latest News
--  Хьонес: Не е лесно да привлечем Шаби Алонсо
--  IL FUTURO DA CYBORG È GIA’ QUI – NEURALINK, LA STARTUP DI ELON MUSK, PUBBLICA UN VIDEO IN CUI IL 29ENNE TETRAPLEGICO, NOLAND ARBAUGH, GIOCA A SCACCHI “CON LA LA MENTE” SUL COMPUTER UTILIZZANDO UN IMPIANTO CEREBRALE – IL PAZIENTE DESCRIVE IL MODO IN CUI RIESCE A SPOSTARE IL CURSORE SULLO SCHERMO MENTRE L'IMPIANTO TRADUCE LA SUA INTENZIONE: “È PAZZESCO, MI HA CAMBIATO LA VITA" – A GENNAIO NEURALINK HA POSIZIONATO IL SUO PRIMO IMPIANTO CEREBRALE NELL’UOMO…
--  Elektrik aboneleri dikkat! 3.7 milyon aileden o para alınmayacak: Elektrik faturaları için karar açıklandı
--  Как можно использовать лимонную и апельсиновую кожуру в быту — проверенные способы
--  「穴から抜け出すために、もっと大きな賭けを」“電撃解雇”水原氏をむしばんだギャンブル依存症…経験者語る恐怖
--  Edinborgarhúsið: Mikael Máni með tónleika
--  Cancelo, allarme rientrato per l’ex Juve: esclusi problemi al cuore
--  Malaysia police looking for owner of $142,000 found in suitcase in Petaling Jaya mall carpark
--  EVgo launches first prefabricated EV charging station
--  「静岡県で人気の海鮮丼」ランキング！ 2位は豪華な丼が味わえる静岡市駿河区の「清水港みなみ」、1位は？【2024年3月版】(ねとらぼ)
+-  Cortes de árvores em São Bernardo revoltam moradora
+-  ΥΠΕΣ: Κλείνουν οι εκκρεμότητες για την εφαρμογή της μεταρρύθμισης της ΤΑ
+-  "Мосбиржа" запустит фьючерсы еще на два иностранных ETF
+-  Investeringsforeningen Stonehenge – Årsrapport 2023
+-  Länderspiel-Test vor EM: Nagelsmanns Frankreich-Startelf steht wohl: Mit einem Neuling
+-  Santé : "La demande en vaccination contre la Covid-19 est très faible" (El Hadj Mamadou Ndiaye, Directeur de la Prévention)
+-  Khám phá bất ngờ: Một số dạng sự sống có thể đang trú ẩn trên Sao Kim
+-  Schülersprecher über Bildungskrise: „Wir haben fatale Zustände“
+-  Crisis en Haití: Cuba evacuará ciudadanos cuando se reanuden vuelos
+-  Vụ tá hỏa với hóa đơn tiền nước 57 triệu đồng: Sawaco có phản hồi chính thức
