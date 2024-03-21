@@ -1,11 +1,11 @@
 # Latest News
--  McDermott Strengthens London Office with Senior Appointment
--  포스코그룹 장인화 회장 체제 출범…주총 · 이사회서 선출
--  CELAC, Filistin'in BM'ye tam üye olarak tanınmasını istedi
--  오타니 쇼헤이 돈에 손댄 통역사…“막역한 사이였는데 뒤통수”
--  2분기 전기요금 동결…연료비조정단가 현수준 유지
--  México alista escrito para litigio contra Texas por ley antimigrante SB4
--  ¿Qué sanciones podría aplicar el SAT si no declaras impuestos este 2024?
--  GIST, 장애물 피해 착륙하는 AI 드론 기술 개발
--  Expresidentes piden fin del "terrorismo de Estado" venezolano contra María Corina Machado
--  Kenapa Rasa Ngantuk saat Nyetir Lebih Berat daripada Seharian Depan Laptop?
+-  TBS斎藤慎太郎アナ、元チームメイトの実況を担当し感慨「私も頑張らねば」
+-  Dune: Awakening - Tráiler de Avance
+-  Страна другая, проблемы те же: более 14% жителей Литвы не хватает денег даже на еду
+-  '2천억 대 인수 계약금 소송' 아시아나항공, 2심도 현산에 승소
+-  Giá vàng thế giới lập đỉnh, vàng trong nước sẽ ra sao?
+-  Diljit Dosanjh’s adorable reaction to Deepika Padukone’s surprise gift | Watch
+-  Ai có quyền cấp, khóa, mở khóa tài khoản định danh điện tử của công dân từ 1/7?
+-  South West women collect Trigg Point crowns
+-  South West women collect Trigg Point crowns
+-  Gustavo Gorriti no publicó en Twitter que “Alan García está viviendo en Suiza”
