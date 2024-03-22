@@ -1,11 +1,11 @@
 # Latest News
--  És íme, az első készülék Snapdragon 7+ Gen 3-mal
--  Osvanuli plakati s Milanovićevom rečenicom. DIP rekao smije li to SDP koristiti
--  Stream Systems announces strategic executive hire:
--  Bittium saa uuden talousjohtajan
--  САП вышла из подчинения Офиса Генпрокурора и стала независимым органом
--  Хачатурянц заявил, что мог стать руководителем «Спартака»
--  【医者が教える】心の底からぐっすりと眠るための「習慣」ベスト2 - 頭んなか「メンヘラなとき」があります。
--  Devises : le $ reprend le terrain perdu après FED, et +encore
--  "VOJNI ROK TREBA DA BUDE OBAVEZAN I TU NEMA DISKUSIJE" Analitičari obrazlažu zašto je NEOPHODNO da SVI građani Srbije služe vojsku
--  UŽIVO! PARTIZAN - REAL MADRID: Košarkaški SPEKTAKL u prestonici Srbije! Crno-beli u KRCATOJ Areni dočekuju Madriđane!
+-  【新NISA】知識ゼロのド素人でも「ほったらかしで5000万円」がつくれる“すごいカラクリ” - 気になるあの本を読んでみた！ベストセラー目のつけどころ
+-  39 பட்டாசு ஆலைகளின் உரிமம் தற்காலிக ரத்து
+-  Stiže novi val poskupljenja cigareta: Cijene popularnih marki idu gore, evo kada i za koliko
+-  Kundgebung auf dem Landwehrplatz: Pflegeverbände protestieren in Saarbrücken gegen Rechtsextremismus
+-  Šef diplomacije BiH: Milanović je populist, ne treba se obazirati na njegove izjave
+-  Blinken aponta ‘avanços’ para normalização de relações Israel-Arábia Saudita
+-  Se confirmó el horario para el clásico de Peñarol vs Nacional y será bien temprano
+-  Son dakika! Balıkesir'de korkutan deprem!
+-  'I was at my wits end with my skin, but Amazon's £11 anti-ageing serum with 76,000 ratings gives me better results than Botox'
+-  Nika Prevc: "Tega si nisem niti pod razno predstavljala!"
