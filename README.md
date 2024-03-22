@@ -1,11 +1,11 @@
 # Latest News
--  Ndiop et Fatick : Abdoulaye Diagne mobilise pour la victoire d'Amadou Bâ au 1er tour
--  Ceny elektřiny a plynu v roce 2024 klesly. Jak reagují dodavatelé?
--  Économie verte/ 2e édition de Women Entrepreneurs for Africa : 3000 femmes seront subventionnées
--  Ahmad Sahroni Akui Nasdem Terima Rp 840 Juta dari Syahrul Yasin Limpo: Rp800 Juta Sudah Dikembalikan
--  Serie C, Benevento-Monopoli match clou
--  Кои са най-добрите сосове за спагети?
--  Премьер Польши одобрил итог первых 100 дней работы своего правительства
--  "아무도 없겠지?"…생중계된 차량털이, 5분 만에 '덜미'
--  Футболист на "Локо" (Пд) сложи шина заради травма
--  工研院與日商瑞穗銀行三大合作 助攻台日新創藍海市場
+-  NÄDALA KOOK | Riisi-virsikukook
+-  "Relax Guide 2024": Südtirol: Das sind die Top Wellness-Hotels in den Dolomiten
+-  Özçelik gençlerle buluştu
+-  Ανησυχία για τη 19χρονη που προσβλήθηκε από μηνιγγίτιδα στην Πάτρα - Νέα επιπλοκή στην υγεία της
+-  La Catedral de Teruel acoge un concierto de la Polifónica Turolense
+-  Новый квартал частной застройки начали осваивать в Ивацевичах
+-  三菱自動車 パジェロ復活を検討
+-  PRIJEVARA U ZADRU Uzeo novac za stolariju koju nikad nije napravio
+-  Fiamme nella centrale idroelettrica del Dnipro, i vigili del fuoco domano l'incendio
+-  RG Burig richtet Ski-Finale aus und holt einen Kreistitel
