@@ -1,11 +1,11 @@
 # Latest News
--  Predaj starších domov v USA vzrástol a dosiahol ročné maximum
--  ‘Pobjegao sam iz Zagreba na djedovinu u Liku i postao seljak - to mi je najbolji potez u životu!‘
--  Kuwait and Egypt charity sign $10 million deal
--  Baby Lasagna bit će prezenter na Porinu: 'Osjećam malu tremu koju zasjenjuje osjećaj časti...'
--  Abriss oder Lösung? So steht es ums Austria Salzburgs Stadion
--  Medical students raise awareness on donation for cancer treatment
--  Der Tag in Luxemburg: Polizei warnt vor falschen Mitarbeitern karitativer Organisationen
--  "Brakuje słów". Tusk odpowiada na list Dudy
--  PuroClean Named a Top 100 Franchise for Women by Franchise Business Review
--  Nab This Helpful Password Manager for Under $1 Per Month for Your First Year - CNET
+-  Главы МИД Вышеградской четверки разошлись во взглядах по военной помощи Украине
+-  Rui Costa adverte sobre 'falsa expectativa' de que Voa Brasil resolverá preço das passagens
+-  Yunanistan: İsrail'in Refah'a saldırması büyük bir insani felakete yol açar
+-  Getöteter 15-Jähriger in Köln : Warum musste Dara sterben?
+-  Qərb şirkətləri Rusiyadan yüz milyonlarla dəyərində titan alıb
+-  Festnahme in Reutlingen: 23-Jähriger schießt mehrfach auf Bekannten
+-  Kate Middleton security breach sparks outrage
+-  Atentado matou 20 pessoas na cidade afegã de Kandahar, diz fonte médica
+-  Предотвращена попытка провоза из Ирана крупной партии наркотиков
+-  Brizard e la partita a scacchi con Piazza: «Mi piace pensare alle contromisure più adatte per sorprendere il coach di Milano. Vincere domenica sarebbe importantissimo». VIDEO
