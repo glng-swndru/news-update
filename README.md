@@ -1,11 +1,11 @@
 # Latest News
--  Debut Bersama Timnas Indonesia, Performa Jay Idzes Lawan Vietnam Dapat Pujian
--  VOQUZ Labs: Großes Potenzial
--  Supremo derruba 'revisão da vida toda' no INSS
--  Rubata un’ambulanza in ospedale a San Daniele, ritrovata ore dopo vicino Codroipo
--  Hristodulidis, AB Zirve Toplantısı çerçevesinde Guterres’le görüştü
--  Amerika traži od Ukrajine da prestane s napadima na ruske rafinerije
--  Saab får order på studier inför nytt stridsflygplan
--  Tierschützerin und Autorin: Michi Schreiber: "Frei sein hat viel mehr mit dem Inneren als dem Äußeren zu tun"
--  Acuerdo de almas
--  Indie přestala odebírat ruskou ropu dodávanou společností Sovcomflot
+-  Colloqui individuali e cambio di modulo in vista: come cambia la Lazio con Tudor
+-  AKO ZAHARJAN TAKO OLAKO PRETRČI SERGEJA, ŠTA ĆEMO PROTIV SAKE, KEJNA, HOJLUNDA? Kukala nam majka sa ovakvom Srbijom na EURO 2024!
+-  Песков: банки в ЕС понимают катастрофические последствия экспроприации российских активов
+-  Russischer Angriffskrieg in der Ukraine: Kreml: Militärische Spezialoperation wegen Westen jetzt „Krieg“
+-  L'incessante lavoro dei vigili del fuoco per domare le fiamme nel capannone a Saonara
+-  تشدید برخورد با خرده فروشان مواد مخدر و معتادان متجاهر در تعطیلات نوروزی
+-  両陛下が輪島朝市を訪問 涙ぐむ女性に「大変でしたね」 中学をお見舞い
+-  Da Treviso a Jesolo in bici e ritorno in bus: ecco il nuovo servizio lungo il Sile
+-  L'incessante lavoro dei vigili del fuoco per domare le fiamme nel capannone a Saonara
+-  Адриан ПУКАНЫЧ: «Решающую роль сыграли замены Реброва»
