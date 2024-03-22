@@ -1,11 +1,11 @@
 # Latest News
--  Holi 2024 in Jaipur: Find top events, festivals, parties here
--  Otteluseuranta | Konkarivalmentaja ei jaksa jauhaa jargonia – "KalPa on ollut aina KalPa"
--  Sharon Cuneta's realizations after social media detox
--  ملكة بريطانيا كاميلا: تشارلز يتحسّن بشكل جيد جدًا
--  CENE ZLATA NA NOVOM ISTORIJSKOM MAKSIMUMU: Ne nazire se kraj rastu vrednosti plemenitog metala
--  Русе е домакин на среща на кметове от Североизточна България
--  Amazon schenkt dir Music Unlimited: So kommst du dran
--  Vereadora quer tombar praça e cobra capoeira em escolas para combater racismo
--  Ricarda Lang als Dampfwalze - eine Klatsche aus der bayerischen Provinz
--  Semur-en-Auxois. Meurtre de Danièle Beauné : Bruno Arioli condamné à trente ans de réclusion criminelle
+-  Орбан поздрави Путин с преизбирането му за президент - Труд
+-  Europejski kraj okrył się hańbą. Kolejny gest przyjaźni z Rosją
+-  XPlan.ai Confirms Premier Precision in Peer-Reviewed Clinical Study of its 2D-to-3D Knee Reconstruction Solution
+-  Guido Süller se emocionó hasta las lágrimas al ver una foto familiar: "Pido perdón si alguna vez la avergoncé"
+-  Europejski kraj okrył się hańbą. Kolejny gest przyjaźni z Rosją
+-  Avante terá concorrente pela prefeitura de Ipojuca
+-  Russland schickt Häftlinge in den Krieg: Zwei Straflager in Sibirien sind leer und schließen
+-  V Senici našli telo zastrelenej cyklistky. Vrahom má byť bývalý manžel, ktorý si potom vzal život
+-  Промоутер Усика: Немає жодної гарантії, що бій із Фʼюрі коли-небудь таки відбудеться
+-  Vizille. Conseil municipal : le budget 2024 est voté… sans heurts
