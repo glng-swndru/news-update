@@ -1,11 +1,11 @@
 # Latest News
--  Bursa Malaysia to keep ticking higher as upside bias remains
--  TS. Trương Văn Phước phân tích lý do đằng sau tăng trưởng tín dụng âm và biến động mạnh của giá vàng, đôla
--  Crackdown to curb ‘job-stealing’ foreigners
--  Meerdere coureurs sneller dan Max Verstappen, check hier de tussentijden
--  Oil Falls, Weighed by USD Strength, Possible Gaza Cease-Fire
--  한 총리 "공보의 · 군의관 247명 추가 지원…시니어 의사 고용"
--  남능미 “다음 생 며느리는 이영자·박나래 원한다” 왜?
--  Max Verstappen bovenaan afgelost door Lando Norris, check hier de tussentijden
--  Испания – Колумбия. Прогноз и анонс на товарищеский матч
--  Max Verstappen bovenaan afgelost door Lando Norris, check hier de tussentijden
+-  「水原一平氏がドジャースを追い出される」 SNSで「大きなスーツケース」持って移動する姿が拡散されるも……実際は「デマ投稿」
+-  은퇴 예고한 추신수, 마지막 시즌에 다양한 기부활동 진행
+-  Bupati Manokwari Sebut 2 Bidang Ini Jadi Program Prioritas
+-  Walmart shopper is over self-checkout change that would see her pay $100 more each month
+-  Bí ẩn ngôi đền nghi là của "người ngoài Trái đất": Cách xây dựng khiến nhà khoa học không thể lý giải
+-  【社説】先進国は政府主導の産業政策に「オールイン」、韓国も後れを取ってはならない(中央日報日本語版)
+-  Guggenheim says it 'did not authorize' Beyoncé 'Cowboy Carter' promo display
+-  위글위글X틱톡 라이브, 콜라보레이션 ‘곰이 왔나봄’ 이벤트
+-  메타리치 공모전 1차 심사발표
+-  뉴다이브, '벚꽃축제 진해군항제' 어플 출시
