@@ -1,11 +1,11 @@
 # Latest News
--  Concurso BNDES: Fundação Cesgranrio organizou últimos 7 editais
--  Раскрыто негативное влияние порно на мужчин
--  Au procès du "violeur de Tinder", le déni de "culpabilité, face aux témoignages des plaignantes
--  ¿En qué canal ver, Panamá vs. México por TV y streaming online?
--  Expertos nacionales participan en la I Jornada de cómic de la UAL
--  Middlton aylar sonra görüntüləndi
--  4月8日に販売が開始される新型GRヤリスの価格発表 新開発の2ペダル8段ATは35万円高(ENGINE WEB)
--  Hotel Resnik se sprema za nadolazeću turističku sezonu
--  どうしてイスラエル・ハマス戦争では経済制裁の話が上がらないの？(週プレNEWS)
--  한동훈 "'조카 살인에 데이트폭력' 이재명 닮은꼴"…이재명 "5·18 부정하는 반역 집단 심판해야" [총선 말말말]
+-  Eylem Tok ve oğluna ilişkin yeni iddia: 'Amerika'da 1 yıllığına rezidans kiraladılar'
+-  Polres Buleleng Gerebek Gudang di Sidetapa, Sita 27 Mobil, Satu Pelaku Masuk DPO
+-  "미친X들" 발언 중 '입틀막'...유시민, '막말 논란' 일듯
+-  ΑΕΚ: Ο βασικός λόγος της ανάκαμψης
+-  Vídeo: alemães querem 'trabalhar menos' e governo busca mão de obra estrangeira
+-  MPF vê fraude na compra de blindados pela PRF entre 2019 e 2022
+-  Orban: Ideologija otvorenog društva neće zavladati, bacit ćemo je na smetljište historije
+-  صراع ثلاثي على لقب بطولة «الثمامة»
+-  «الوطنية للصرافة» يهزم الهندسة ببطولة صالح صقر
+-  Tchad : arrestation de 175 personnes et saisie d'armes après les affrontements à Tiléguey
