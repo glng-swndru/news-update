@@ -1,11 +1,11 @@
 # Latest News
--  Ceny dovozu do Nemecka v januári opäť klesli, 11. mesiac po sebe
--  Mustikkakeitto voi loppua kaupoista, jos Suomen marjayritykset eivät saa poimijoita Thaimaasta – "Marjan talteenotto tulee romahtamaan"
--  Erzurum'da Gebe Misafirhanesi ilgi odağı
--  Ülkemin değerini anladım deyip tıpış tıpış döndü! Paris'e giden Hayat Bilgisi oyuncusundan şaşırtan itiraf
--  6 loại 'rác nhỏ' là 'xơ miễn phí', vun một nắm vào chậu hoa đảm bảo đất sẽ tươi tốt
--  [단독]사모펀드 라데팡스, 임종윤 한미약품 사장 명예훼손으로 고소
--  'HGS veya İSPARK borcunuz var' mesajına dikkat! Linke tıklarken iki kere düşünün
--  NAJLEPŠA LJUBAVNA PRIČA 19. VEKA: Kruna Mihailović i Jovan Obrenović junaci nove predstave, koja će se igrati u Beogradu i Čačku
--  Szász Júlia: „Azt hittem, hogy meghaltam”
--  ΑΕΚ: Τα εισιτήρια με ΑΠΟΕΛ
+-  ILO experts agree on living wage
+-  NÖ Bergbahnen - Zahlreiche Sommer-Ausflugsziele bereits zu Ostern geöffnet
+-  Preminuo Martin Grinfild, krojač odijela američkih predsjednika...
+-  Volopa partners with ClearBank
+-  Klajā nāk Klaudijas Heinermanes fotogrāmata Sibīrijas trimdinieki – brīvības cīnītāji
+-  ডিজিটাল প্রযুক্তি - নবম শ্রেণি নতুন শিক্ষাক্রম নতুন বই
+-  Şırnak Üniversitesinde yazılım laboratuvarı açıldı
+-  Podsumowanie 100 dni rządów. Hołownia: Wyprzedzamy kalendarz
+-  Žilinka: V trestných veciach exšéfa SIS som nikdy osobne nekonal
+-  Žilinka sa ohradil voči kritike: V trestných veciach exšéfa SIS Pčolinského som nikdy osobne nekonal
