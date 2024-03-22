@@ -1,11 +1,11 @@
 # Latest News
--  Phổi thủng lỗ chỗ, cô gái 29 tuổi tử vong tại bệnh viện: Bác sĩ phát hiện nguyên nhân đáng sợ
--  Des graines et des Jeux
--  Вулкан Эбеко на Северных Курилах выбросил двухкилометровый столб пепла
--  ‘ফ্রি-তে’ সেরে যাবে ডায়াবেটিস! সকাল-বিকেলের এই ছোট্ট কাজেই কাহিল হবে ব্লাডসুগার
--  「無免許だったので逃走した」 親子が乗る車に衝突し“ひき逃げ” ブラジル国籍の２７歳男を逮捕 福岡
--  白營駁滿意度墊底稱「以八擋百」CP值高 黃捷：乾脆留1席CP值最高
--  SolaX Power wird Partner von Borussia Dortmund
--  Maguire tak mahu Southgate kendali United
--  У Харкові пролунала серія вибухи
--  Bộ GD-ĐT công bố đề thi tham khảo kỳ thi tốt nghiệp THPT 2024, có gì khác biệt so với 2023?
+-  Канада намалява броя на временно пребиваващите в страната
+-  İzmir'de korkunç olay: Bagajdaki cesetle sabaha kadar gezmişler
+-  丫頭主持春酒穿超辣！胸下「橫開3大洞」 鏡頭一拉近⋯北半球被看光
+-  افزایش شمار کودکان فقیر در انگلیس
+-  VN: bendes rukken steeds verder op in Haïti, leider gedood door politie
+-  Analysts positive on SunCon's data centre job win
+-  एपल की बड़ी मुश्किलें: पहले मुकदमा दायर, अब शेयर बाजार में तगड़ा झटका; एक ही दिन में गंवाए 113 अरब डॉलर
+-  VN: bendes rukken steeds verder op in Haïti, leider gedood door politie
+-  VN: bendes rukken steeds verder op in Haïti, leider gedood door politie
+-  Banan qabığını necə istifadə etmək olar?
