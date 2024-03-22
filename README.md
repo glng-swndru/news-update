@@ -1,11 +1,11 @@
 # Latest News
--  MARINIKA TEPIĆ PODRŽALA DINKA GRUHONJIĆA
--  全国で相次ぐ「はしか」感染 広島でもワクチン需要が高まる 一部で不足も
--  Spalletti: "Accoglienza incredibile, venire negli USA è stata la scelta giusta..."
--  「紅麹コレステヘルプ」摂取した人に腎疾患等を確認 小林製薬が商品の自主回収を発表
--  Sahur için anne ve babasını uyandırmak istedi, acı gerçekle karşılaştı
--  “Neftçi”dən komandanı tərk edəcək oyunçularla bağlı AÇIQLAMA
--  Médicos exigen renuncia de Mora al frente del Cones
--  فريق كوكي المتوقع في دوري روشن
--  Πτώση F-16: Εξιτήριο για τον υποσμηναγό Παναγιώτη Αποστολάκη
--  Il curioso caso del casello autostradale: se la sbarra non funziona l'utente paga di più
+-  Debut Bersama Timnas Indonesia, Performa Jay Idzes Lawan Vietnam Dapat Pujian
+-  VOQUZ Labs: Großes Potenzial
+-  Supremo derruba 'revisão da vida toda' no INSS
+-  Rubata un’ambulanza in ospedale a San Daniele, ritrovata ore dopo vicino Codroipo
+-  Hristodulidis, AB Zirve Toplantısı çerçevesinde Guterres’le görüştü
+-  Amerika traži od Ukrajine da prestane s napadima na ruske rafinerije
+-  Saab får order på studier inför nytt stridsflygplan
+-  Tierschützerin und Autorin: Michi Schreiber: "Frei sein hat viel mehr mit dem Inneren als dem Äußeren zu tun"
+-  Acuerdo de almas
+-  Indie přestala odebírat ruskou ropu dodávanou společností Sovcomflot
