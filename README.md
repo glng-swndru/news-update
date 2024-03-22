@@ -1,11 +1,11 @@
 # Latest News
--  Στο «σφυρί» εμπορικά και υγειονομικού ενδιαφέροντος καταστήματα στο μνημείο της Καλλιθέας
--  Část úseku trasy metra C nejezdí kvůli závadě na trati
--  くふうハヤテ 念願の初勝利
--  Bingöl'de kar yağışı nedeniyle tüm okullar tatil edildi
--  Dani Alves y su salida de prisión, en directo hoy: la última hora de su libertad provisional y su fianza de un millón de euros
--  DEBATT: Oppositionen spelar högt med andras pengar
--  Pengamat: Golkar jadi Pemain Kunci Stabilitas Politik Rezim Prabowo-Gibran
--  V Košiciach možno využiť bezplatnú analýzu vody
--  Dani Alves y su salida de prisión, en directo hoy: la última hora de su libertad provisional y su fianza de un millón de euros
--  Böbrek taşı oluşumuna duvar örüyor. Şifa deposu ot ortaya çıktı
+-  Donald Tusk podsumował 100 dni swojego rządu. „Chciałem szybciej i więcej”
+-  Everywoman announces 2024 Women in Tech Awards winners
+-  OSTALI SPORTOVI: "Tip" - tiket za petak
+-  [스브스픽] "대한민국 의료시스템 박살내자"…의사 커뮤니티, 수사 착수
+-  의사들, 미국으로 간다고?…정부 "행정처분 받은 의사는 불가능"
+-  Đại hội đồng LHQ tuyên bố 2025 là 'Năm của Hòa bình và Niềm tin Quốc tế'
+-  KPK Sita Aset Hotel Milik Abdul Ghani Kasuba
+-  Controversies off the track follow Formula 1 to Australia for the season's third Grand Prix
+-  DNK hoeft niet te rekenen op extra steun van de gemeente Assen. Teleurstelling bij cultuurhart: 'Veel geld gaat naar de huur van het gebouw'
+-  Smartphone-Top-Ten fest in der Hand von Apple und Samsung
