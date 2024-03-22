@@ -1,11 +1,11 @@
 # Latest News
--  Datenbankanbieter Redis ändert sein Lizenzmodell – erneut
--  Україна за березень експортувала до країн Африки 20% обсягів цукру
--  Україна збільшила експорт цукру до країн Африки
--  Saudi defense minister discusses with Yemen’s prime minister UN road map for peace
--  NASA: двигатели ракеты «Союз-2.1а» не включились в положенное время
--  Geri sayım başladı, Meclis'e geliyor: Kripto düzenlemesinde dikkat çeken 'hapis cezası' detayı!
--  Gauahar Khan and Zaid Darbar reveal son Zehaan’s face at Masjid Al Haram; see here
--  Automotive Electronics Control Unit Management Market is Expected to Cross USD 112.88 Billion by 2031, According to TMR Analysis
--  Άνοιξε στα δύο η Καλλιρόης: Το ιστορικό τραπεζικό ριφιφί του 1992 υπεύθυνο για την καθίζηση
--  Sister Wives' Christine Brown defends social media use after Garrison’s death: 'I know!'
+-  Segundo Encuentro de Mujeres Iberoamericanas
+-  Toronto & York Region Labour Council and Urban Alliance on Race Relations urge City Council to get serious about eliminating racism in Toronto
+-  The BMW Vision Neue Klasse X Concept Brings Back Small, Skinny Kidney Grilles
+-  Famous journalist is ordered to immediately demolish illegal swimming pool in idyllic coastal Mallorca location
+-  Nga tước quyền công dân của người tung tin sai về quân đội
+-  Venda de moradias usadas nos EUA subiu 9,5% em fevereiro ante janeiro
+-  Até logo!
+-  Child Care Solutions Need to Target Most Vulnerable Communities, Report Argues
+-  Cannabis-Expertin der FDP: „Die CSU tut gerne so, als gäbe es überhaupt keine Drogen in Bayern“
+-  Media advisory - Minister Guilbeault to make an announcement to support the conservation and improvement of the St. Lawrence ecosystem
