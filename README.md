@@ -1,11 +1,11 @@
 # Latest News
--  Klimatpolitiken sågas: "Onödigt riskfylld"
--  SDP postavio jumbo plakate i otkrio slogan. Isti je objavio i Zoran Milanović na Facebooku
--  Fortnite will finally get a first-person mode later this year, but it's not coming to Battle Royale just yet
--  她天天爬山突然體力變差、痠痛以為老化 竟罹急性淋巴性白血病
--  VfB Stuttgart: Torhüter glänzen beim Fußballtennis
--  What To Do In Unveils The Ultimate Guide to Fuerteventura: The Hawaii of Europe
--  VfB Stuttgart: Torhüter glänzen beim Fußballtennis
--  Cambridge pair found in Hespeler with stolen vehicle face list of charges
--  Pezzi di vetro nel pane a scuola a Milano, indaga la Procura
--  تاج:انتخاب ویلموتس بدترین تصمیمم بود/بایدقهرمان می‌شدیم
+-  Ronald Koeman verklapt wie er gaan keepen in oefeninterlands en geeft Wijnaldum steuntje in de rug
+-  千葉の母親殺害切断事件、裁判やり直しへ 東京高裁が一審判決を破棄
+-  Suche nach Bond-Darsteller: Wer wird der siebte 007?
+-  Camtek Declares a Cash Dividend of $1.33 per Share
+-  Deneyenlerin %99’u başarısız oluyor! Görseldeki atmosfere uymayan nesneyi yalnızca benzersiz bir gözlem yeteneğine sahip kişiler bulabilir
+-  "Qərbə yaxın cinahdan Ermənistana yeni müttəfiqlik təklifləri görə bilərik, odur ki..."- Siyasi şərhçi
+-  Był film, będzie serial. Nie słabnie zainteresowanie rodziną Guccich
+-  GENERAL ŠIL: FRANCUSKI VOJNICI SU NA GOTOVS! - Upozoravajući autorski tekst šefa generalštaba francuskih kopnenih snaga
+-  President Ruto launches medium-term economic plan
+-  Ronald Koeman verklapt wie er gaan keepen in oefeninterlands en geeft Wijnaldum steuntje in de rug
