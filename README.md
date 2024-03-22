@@ -1,11 +1,11 @@
 # Latest News
--  Eylem Tok ve oğluna ilişkin yeni iddia: 'Amerika'da 1 yıllığına rezidans kiraladılar'
--  Polres Buleleng Gerebek Gudang di Sidetapa, Sita 27 Mobil, Satu Pelaku Masuk DPO
--  "미친X들" 발언 중 '입틀막'...유시민, '막말 논란' 일듯
--  ΑΕΚ: Ο βασικός λόγος της ανάκαμψης
--  Vídeo: alemães querem 'trabalhar menos' e governo busca mão de obra estrangeira
--  MPF vê fraude na compra de blindados pela PRF entre 2019 e 2022
--  Orban: Ideologija otvorenog društva neće zavladati, bacit ćemo je na smetljište historije
--  صراع ثلاثي على لقب بطولة «الثمامة»
--  «الوطنية للصرافة» يهزم الهندسة ببطولة صالح صقر
--  Tchad : arrestation de 175 personnes et saisie d'armes après les affrontements à Tiléguey
+-  UMRO POZNATI POLITIČAR Patio od teške bolest, kao i njegov brat
+-  Despite Gaza conflict, Israel among main natural gas exporters to Egypt
+-  رئيس الوزراء يهنئ الأم اليمنية في عيدها العالمي الـ 21 مارس
+-  "Zmajevi" će sačekati na prvu EURO promociju, Ukrajina preokrenula...
+-  Anti-migrant rhetoric rampant as Bulgaria joins Schengen zone
+-  Red social Reddit debutó en Wall Street y sus acciones aumentaron hasta 70%
+-  РФ вперше за місяць вивела в море ракетоносії
+-  Despite Gaza conflict, Israel among main natural gas exporters to Egypt
+-  Ευρωπαϊκό Συμβούλιο: Με παγωμένα ρωσικά κεφάλαια σχεδιάζουν να χρηματοδοτήσουν τα οπλικά συστήματα της Ουκρανίας
+-  Кой активира Костадинов да спасява Сглобката? - Труд
