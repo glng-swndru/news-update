@@ -1,11 +1,11 @@
 # Latest News
--  Segundo Encuentro de Mujeres Iberoamericanas
--  Toronto & York Region Labour Council and Urban Alliance on Race Relations urge City Council to get serious about eliminating racism in Toronto
--  The BMW Vision Neue Klasse X Concept Brings Back Small, Skinny Kidney Grilles
--  Famous journalist is ordered to immediately demolish illegal swimming pool in idyllic coastal Mallorca location
--  Nga tước quyền công dân của người tung tin sai về quân đội
--  Venda de moradias usadas nos EUA subiu 9,5% em fevereiro ante janeiro
--  Até logo!
--  Child Care Solutions Need to Target Most Vulnerable Communities, Report Argues
--  Cannabis-Expertin der FDP: „Die CSU tut gerne so, als gäbe es überhaupt keine Drogen in Bayern“
--  Media advisory - Minister Guilbeault to make an announcement to support the conservation and improvement of the St. Lawrence ecosystem
+-  Vecinos de la vivienda de Ourense en la que explotó un depósito de gas propano: «Fue un zambombazo impresionante»
+-  USA žalují firmu Apple, u chytrých telefonů podle nich udržuje monopol
+-  تقرير رسمي: تراجع أسعار معظم المواد الغذائية.. هل أحس به المواطنون؟
+-  New headteacher appointed at Thurston Community College
+-  Нови зарядни станции за електрически лодки в Бургас
+-  Technologiekonzern: Wegen des iPhones: US-Justizministerium reicht Klage gegen Apple ein
+-  Quinte Conversation donates land and water to meet Canadian target
+-  PZPN podjął decyzję. Wszystko jasne ws. dachu na Narodowym
+-  Women’s Ministry plans to develop e-filing system for sexual harassment victims to channel complaints
+-  Сбой в системе на сутки приостановил движение грузовиков на границе с Калининградом
