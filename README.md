@@ -1,11 +1,11 @@
 # Latest News
--  「水原一平氏がドジャースを追い出される」 SNSで「大きなスーツケース」持って移動する姿が拡散されるも……実際は「デマ投稿」
--  은퇴 예고한 추신수, 마지막 시즌에 다양한 기부활동 진행
--  Bupati Manokwari Sebut 2 Bidang Ini Jadi Program Prioritas
--  Walmart shopper is over self-checkout change that would see her pay $100 more each month
--  Bí ẩn ngôi đền nghi là của "người ngoài Trái đất": Cách xây dựng khiến nhà khoa học không thể lý giải
--  【社説】先進国は政府主導の産業政策に「オールイン」、韓国も後れを取ってはならない(中央日報日本語版)
--  Guggenheim says it 'did not authorize' Beyoncé 'Cowboy Carter' promo display
--  위글위글X틱톡 라이브, 콜라보레이션 ‘곰이 왔나봄’ 이벤트
--  메타리치 공모전 1차 심사발표
--  뉴다이브, '벚꽃축제 진해군항제' 어플 출시
+-  Miền Bắc nắng đẹp, cục bộ có mưa dông
+-  Giá vàng nhẫn quay đầu giảm mạnh
+-  ลดน้ำในคลองเตรียมรับฝน สาเหตุน้ำแสนแสบเป็นสีดำ
+-  Man arrested after reportedly sneaking onto plane using picture of another person's ticket
+-  Ukraine war briefing: anti-Putin forces behind raids into Russia speak out
+-  Nigeria poised to lead Africa in digital techm we’ve gifted youths and capable hands to actualise our vision – Tinubu tells Meta
+-  El tiempo en La Almunia de Doña Godina: previsión meteorológica para hoy, viernes 22 de marzo
+-  Approaches To Creating Unified Payment System In Central Asia Differ Greatly - Expert (Exclusive)
+-  JG Summit buys out BPI from Tyme
+-  PM Pashinyan's Upcoming Meeting In Brussels Exposes True Face Of Armenia - Azerbaijani MP
