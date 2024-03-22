@@ -1,11 +1,11 @@
 # Latest News
--  EU-Gipfel: Mehr Hilfe für die Ukraine
--  Heritage Capital Group Advises Pacific Steel on Sale
--  EagleRider Launches Exciting New UTV Off-Road Tour Series in Las Vegas
--  Zderzenie czterech aut pod Dziwnówkiem. Dramatyczna akcja ratunkowa
--  Tajemnicze zgony na Zagłębiu. W rok na plebaniach zginęły trzy osoby
--  BISER MORA 2024: Od primjene AI u kulinarstvu preko brojnih eno-gastro radionica do prvih nagrada natjecateljima
--  Adana'da eşi Melisa İşler'in sırtından silahla vurduğu Uğur İşler öldü
--  صور| رواد المسجد الحرام يصطحبون أطفالهم أثناء أداء العمرة في رمضان
--  A 48 h du scrutin: La député Aida Gaye quitte Birima Mangara de l'Udp et retourne à l’Apr
--  EU-Gipfel: Mehr Hilfe für die Ukraine
+-  El municipio bandeño dió inicio al Taller "Crecer en Música" para niños y adolescentes
+-  BYD produzirá baterias na Zona Franca de Manaus
+-  Half moon, full speed ahead for Boeing jet
+-  Half moon, full speed ahead for Boeing jet
+-  Googlella luvattomat keinot tekoälyn kouluttamisessa – nyt lävähti jättisakko Euroopassa
+-  Ujawniono zarobki Lewandowskiego. Hiszpanie piszą wprost, co o tym sądzą
+-  Mrsic elogia a Mocho Fernández antes del derbi gallego: «Tiene mucho mérito llevar 13 años en ACB»
+-  Half moon, full speed ahead for Boeing jet
+-  Werkloosheid in de regio loopt op; in jaar tijd 1200 mensen met uitkering erbij
+-  "Nənəm ölən günü qırmızı geyinib efirə çıxdım" - Elgiz Əkbər
