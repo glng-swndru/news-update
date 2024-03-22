@@ -1,11 +1,11 @@
 # Latest News
--  Governo Lula se distancia de atos da esquerda contra Bolsonaro e em defesa da democracia
--  Collab Ranger Pemuda Garut Diharap Perkuat Mitigasi Bencana
--  MİT'ten sınır ötesi operasyon! Yeşil listedeki hain etkisiz hale getirildi
--  IPL 2024: Major setback for CSK as star bowler set to miss matches, check details
--  Beşiktaş'ta Gedson'dan olay sözler
--  KADA JE IDEALNO VREME ZA PENZIONISANJE: Mnogi radnici u Srbiji i ne dočekaju penziju, evo kad je najbolje vreme da napustite posao
--  Meteo, “calo marcato delle temperature”. Dove colpisce, l'avviso di Sottocorona
--  Davinson Sanchez'in dönüş maçı belli oldu
--  Policija u Trilju informira građane o opasnostima prijevara na internetu
--  Zuckerberg, Elon Musk'ın büyük "kaydırma" hayalini elinden aldı
+-  DRAMA U NUKLEARKI ZAPOROŽJE NAKON RUSKOG NAPADA: Jedan od najvećih ruskih udara od početka rata! POLA UKRAJINE BEZ STRUJE (VIDEO)
+-  Notice convening Extraordinary General Meeting in A.P. Møller - Mærsk A/S
+-  Primer bimestre, con recaudación positiva
+-  Ketamina: qué es, cómo actúa y cuáles son los efectos y riesgos esta droga
+-  Quản lý tài chính qua "những chiếc lọ": Nữ nhân viên văn phòng U40 đã "cân" cả gia đình 4 người với thu nhập 17 triệu đồng ở Hà Nội thế nào?
+-  공인회계사 1차 합격자 3022명…작년보다 약 400명 늘어
+-  Ramazan Sokağı'nda nostaljik bir akşam
+-  Montella'dan Semih Kılıçsoy açıklaması
+-  개혁신당 선대위 출범...총괄선대위원장에 이주영·천하람
+-  EU-Gipfelbeschlüsse: Grünes Licht für Bosnien, rotes für Israel
