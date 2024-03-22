@@ -1,11 +1,11 @@
 # Latest News
--  Madonna é confirmada no Brasil; veja anúncio
--  Hasil Final Four Nusantara Cup 2024 Hari Kelima: Vita Solo Petik Kemenangan, Tectona Melangkah ke Grand Final
--  Man körde på parkeringsvakt – fick elchockas av polis
--  Ekrem İmamoğlu ve Murat Kurum arasında 'köfteci' tartışması
--  مكافحة المخدرات تقبض على مقيم لترويج 1.2 كيلوجرام من مادة الشبو بتبوك
--  UŽIVO Knežević: Milovića treba smijeniti, kroz imenovanje novog...
--  Expectativas y dudas en Córdoba por el “voucher” anunciado para alumnos de escuelas privadas
--  بدعم كويتي مؤسسة الجبل التنموية تعتزم تنفيذ مشروع بئر مياه بمناطق الجبل بردفان
--  Lite e schiaffi tra due studenti del Fermi. Interviene la polizia
--  UŽIVO Knežević: Odluka o izboru Radovića za v.d. direktora...
+-  És íme, az első készülék Snapdragon 7+ Gen 3-mal
+-  Osvanuli plakati s Milanovićevom rečenicom. DIP rekao smije li to SDP koristiti
+-  Stream Systems announces strategic executive hire:
+-  Bittium saa uuden talousjohtajan
+-  САП вышла из подчинения Офиса Генпрокурора и стала независимым органом
+-  Хачатурянц заявил, что мог стать руководителем «Спартака»
+-  【医者が教える】心の底からぐっすりと眠るための「習慣」ベスト2 - 頭んなか「メンヘラなとき」があります。
+-  Devises : le $ reprend le terrain perdu après FED, et +encore
+-  "VOJNI ROK TREBA DA BUDE OBAVEZAN I TU NEMA DISKUSIJE" Analitičari obrazlažu zašto je NEOPHODNO da SVI građani Srbije služe vojsku
+-  UŽIVO! PARTIZAN - REAL MADRID: Košarkaški SPEKTAKL u prestonici Srbije! Crno-beli u KRCATOJ Areni dočekuju Madriđane!
