@@ -1,11 +1,11 @@
 # Latest News
--  Terceiro acusado de matar homem a facadas se apresenta na delegacia
--  Martínez e os golos sofridos: «Perdemos a concentração em duas ações»
--  "LG생활건강, 면세 중심 실적 회복 기대…목표가↑"
--  Bánh đậu xanh Hải Dương, tiết canh, bún đậu mắm tôm và 42 đặc sản Việt Nam "bỗng dưng muốn khóc"
--  Todo o mercado da música vai mudar por causa da IA
--  Crveni tim pobijedio, a Jakob je najavio pakleni plan: 'Moramo u duel poslati najboljeg člana'
--  Resmi Gazete'de yayınlandı: AYM'nin yeni başkanı Kadir Özkaya oldu
--  Todo o mercado da música vai mudar por causa da IA
--  «Unha inimiga do pobo», de Talía Teatro, coróase nos María Casares 2024
--  Todo o mercado da música vai mudar por causa da IA
+-  Gwyneth Paltrow remains sweatless and perfectly composed while eating spicy wings on 'Hot Ones'
+-  Winnipeg city council votes to reopen Portage and Main
+-  Nicole Kidman, Henry Golding Set for 'Nine Perfect Strangers' Season 2
+-  Brahim dio su palabra de jugar con Marruecos hace un año y medio, según el seleccionador marroquí
+-  Alex Garland's 'Civil War' Tracking for Terrific $20M-Plus Opening
+-  'I felt an urgent need for empathy': the Iranian-American director uniting her two cultures in film
+-  'Crazy Stupid Love' Directing Duo Glenn Ficarra And John Requa To Direct 'Misadventure' For Sony
+-  뷔 '프렌즈' MV 리액션 영상에 연예계 인맥 총출동
+-  Skywalker Saga Marathon Coming to Theaters on May the 4th
+-  المملكة تدين وتستنكر التفجير الإرهابي الذي وقع في إقليم قندهار جنوب أفغانستان
