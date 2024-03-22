@@ -1,11 +1,11 @@
 # Latest News
--  Häufig Cannabis im Spiel: Hunderte Drogen-Unfälle im Südwesten im vergangenen Jahr
--  Zomato CEO Deepinder Goyal marries Mexican model Grecia Munoz
--  Häufig Cannabis im Spiel: Hunderte Drogen-Unfälle im Südwesten im vergangenen Jahr
--  Comunicazione, presentato il progetto "Marca Polare"
--  Mustafa Bozbey’den sert çıkış: Türkçe'yi unuttunuz da Bulgarca'ya Yunanca'ya mı başladınız!
--  Bộ Y tế chỉ đạo kiểm tra, xử lý việc đào tạo y khoa sau loạt bài trên Báo Người Lao Động
--  Analiză: Aproape 4.000 de celebrităţi s-au dovedit a fi victime ale pornografiei deepfake
--  UN Security Council to vote on Gaza ceasefire with uncertain outcome
--  Prete morto in seminario a Trieste, la Procura generale: «Condanna a 21 anni per don Piccoli»
--  Dostál vychytal v NHL poprvé čisté konto
+-  Στο «σφυρί» εμπορικά και υγειονομικού ενδιαφέροντος καταστήματα στο μνημείο της Καλλιθέας
+-  Část úseku trasy metra C nejezdí kvůli závadě na trati
+-  くふうハヤテ 念願の初勝利
+-  Bingöl'de kar yağışı nedeniyle tüm okullar tatil edildi
+-  Dani Alves y su salida de prisión, en directo hoy: la última hora de su libertad provisional y su fianza de un millón de euros
+-  DEBATT: Oppositionen spelar högt med andras pengar
+-  Pengamat: Golkar jadi Pemain Kunci Stabilitas Politik Rezim Prabowo-Gibran
+-  V Košiciach možno využiť bezplatnú analýzu vody
+-  Dani Alves y su salida de prisión, en directo hoy: la última hora de su libertad provisional y su fianza de un millón de euros
+-  Böbrek taşı oluşumuna duvar örüyor. Şifa deposu ot ortaya çıktı
