@@ -1,11 +1,11 @@
 # Latest News
--  Главы МИД Вышеградской четверки разошлись во взглядах по военной помощи Украине
--  Rui Costa adverte sobre 'falsa expectativa' de que Voa Brasil resolverá preço das passagens
--  Yunanistan: İsrail'in Refah'a saldırması büyük bir insani felakete yol açar
--  Getöteter 15-Jähriger in Köln : Warum musste Dara sterben?
--  Qərb şirkətləri Rusiyadan yüz milyonlarla dəyərində titan alıb
--  Festnahme in Reutlingen: 23-Jähriger schießt mehrfach auf Bekannten
--  Kate Middleton security breach sparks outrage
--  Atentado matou 20 pessoas na cidade afegã de Kandahar, diz fonte médica
--  Предотвращена попытка провоза из Ирана крупной партии наркотиков
--  Brizard e la partita a scacchi con Piazza: «Mi piace pensare alle contromisure più adatte per sorprendere il coach di Milano. Vincere domenica sarebbe importantissimo». VIDEO
+-  Aus für Benziner und Diesel: BMW-Chef fordert Reform der Regeln zum Verbrennerverbot
+-  Chồng Đặng Tiểu Tô Sa: Thiếu gia kín tiếng, trước khi kết hôn từng có 7 năm làm bạn thân với "tiểu thư Hà Thành"
+-  Ravezzani: «Pioli ha una grande colpa, il futuro vincente del Milan si gioca su questa scelta» – ESCLUSIVA
+-  Solar Cable Market Poised For Continued Growth, Expected To Reach $1.59 Billion By 2028 As Per The Business Research Company's Solar Cable Global Market Report 2024
+-  Missouri teen charged with beating up Kaylee Gain was 'defending herself,' family says
+-  'Whack' - Gary Neville and Roy Keane drop verdict on potential second Everton point deduction
+-  Visszatérhet a Nokia 3210
+-  Alpes-de-Haute-Provence. Une formation de berger vacher transhumant ouverte à Carmejane
+-  Pope expels disgraced former bishop, says Belgian church
+-  ‘Chinese presence in WPS not stopping Balikatan’
