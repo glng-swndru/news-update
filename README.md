@@ -1,11 +1,11 @@
 # Latest News
--  Madonna agradece aos fãs brasileiros 'por todo o amor e devoção'
--  Madonna agradece aos fãs brasileiros 'por todo o amor e devoção'
--  Conselho de Administração do FMI aprova terceira parcela de ajuda à Ucrânia
--  카카오페이, 글로벌 전등 끄기 캠페인 ‘2024 어스아워’ 동참
--  복지장관 “2000명 재논의 여지 없어…교수 이탈 대비 자원 총동원 계획”
--  新たな“福井の顔”に！ 北陸新幹線「E7系・W7系」そういえばなぜ“鼻が長くない”のか？(乗りものニュース)
--  ICTK, 증권신고서 제출…상반기 코스닥 상장 목표
--  Madonna agradece aos fãs brasileiros 'por todo o amor e devoção'
--  The Office'in yeni dizisi için çalışmalara başlandığı öne sürüldü
--  Australian Households Riding Out Pain of Soaring Rates, RBA Says
+-  “世界一若く見える”５８歳イケメン男性、ムキムキの近影が大反響「信じられない」「体は２５歳です」 - スポーツ報知
+-  Муж Свитолиной Монфис обыграл серба на старте Мастерса в Майами
+-  Acting President of the Socialist Republic of Vietnam Vo Thi Anh Xuan
+-  한 총리 "25일 공보의·군의관 247명 추가…시니어 의사 고용 지원"
+-  World Water Day 2024: Leveraging water for peace
+-  World Water Day 2024: What is this year’s theme?
+-  “Culpando a la víctima”: Roberto Cox desata polémica en redes por sus comentarios sobre caso de violencia de género
+-  制御棒収納箱の落下確認、福島第1原発1号機 内部動画を公開(福島民友新聞)
+-  FW Ratingen: 21.03.24, Kellerbrand Ratingen-Lintorf. 21.03.24, 22:15 Uhr
+-  "Prima il Parlamento, poi il vertice Pd": la 'talpa' rivela il golpe di Stefano Bonaccini
