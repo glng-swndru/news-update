@@ -1,11 +1,11 @@
 # Latest News
--  Donald Tusk podsumował 100 dni swojego rządu. „Chciałem szybciej i więcej”
--  Everywoman announces 2024 Women in Tech Awards winners
--  OSTALI SPORTOVI: "Tip" - tiket za petak
--  [스브스픽] "대한민국 의료시스템 박살내자"…의사 커뮤니티, 수사 착수
--  의사들, 미국으로 간다고?…정부 "행정처분 받은 의사는 불가능"
--  Đại hội đồng LHQ tuyên bố 2025 là 'Năm của Hòa bình và Niềm tin Quốc tế'
--  KPK Sita Aset Hotel Milik Abdul Ghani Kasuba
--  Controversies off the track follow Formula 1 to Australia for the season's third Grand Prix
--  DNK hoeft niet te rekenen op extra steun van de gemeente Assen. Teleurstelling bij cultuurhart: 'Veel geld gaat naar de huur van het gebouw'
--  Smartphone-Top-Ten fest in der Hand von Apple und Samsung
+-  Belfast table tennis club makes Olympian effort in world record rally attempt
+-  Félelmetes képet fest az egyedi chatbotokat kínáló GPT Store
+-  Diễn biến mới vụ kiện giữa em gái và con gái của cố NSƯT Vũ Linh
+-  Fußball-Verbandsliga: SV Fellbach: Keine Geschenke verteilen
+-  Missili e droni russi sull'Ucraina: senza luce milioni di persone, a rischio Zaporizhzhia. Zelensky: "È il costo dei ritardi"
+-  Volvo Group and Renault Group complete creation of a joint venture for an all-new generation of electric vans: Flexis SAS
+-  1 thứ ai cũng dùng 2 lần/ngày nhưng lại cực "bẩn", âm thầm đưa vi khuẩn vào miệng mà không hay
+-  Polres Bangka Barat Lakukan Patroli Malam, Cegah Balap Liar di Perkantoran Pemkab Bangka Barat
+-  Le mani della mala sui trasporti e lo spettro dell'assessore ombra
+-  Equity ETFs Attract Their Largest Weekly Net Inflows Since December 20, 2023
