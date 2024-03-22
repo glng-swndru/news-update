@@ -1,11 +1,11 @@
 # Latest News
--  Belfast table tennis club makes Olympian effort in world record rally attempt
--  Félelmetes képet fest az egyedi chatbotokat kínáló GPT Store
--  Diễn biến mới vụ kiện giữa em gái và con gái của cố NSƯT Vũ Linh
--  Fußball-Verbandsliga: SV Fellbach: Keine Geschenke verteilen
--  Missili e droni russi sull'Ucraina: senza luce milioni di persone, a rischio Zaporizhzhia. Zelensky: "È il costo dei ritardi"
--  Volvo Group and Renault Group complete creation of a joint venture for an all-new generation of electric vans: Flexis SAS
--  1 thứ ai cũng dùng 2 lần/ngày nhưng lại cực "bẩn", âm thầm đưa vi khuẩn vào miệng mà không hay
--  Polres Bangka Barat Lakukan Patroli Malam, Cegah Balap Liar di Perkantoran Pemkab Bangka Barat
--  Le mani della mala sui trasporti e lo spettro dell'assessore ombra
--  Equity ETFs Attract Their Largest Weekly Net Inflows Since December 20, 2023
+-  Governo Lula se distancia de atos da esquerda contra Bolsonaro e em defesa da democracia
+-  Collab Ranger Pemuda Garut Diharap Perkuat Mitigasi Bencana
+-  MİT'ten sınır ötesi operasyon! Yeşil listedeki hain etkisiz hale getirildi
+-  IPL 2024: Major setback for CSK as star bowler set to miss matches, check details
+-  Beşiktaş'ta Gedson'dan olay sözler
+-  KADA JE IDEALNO VREME ZA PENZIONISANJE: Mnogi radnici u Srbiji i ne dočekaju penziju, evo kad je najbolje vreme da napustite posao
+-  Meteo, “calo marcato delle temperature”. Dove colpisce, l'avviso di Sottocorona
+-  Davinson Sanchez'in dönüş maçı belli oldu
+-  Policija u Trilju informira građane o opasnostima prijevara na internetu
+-  Zuckerberg, Elon Musk'ın büyük "kaydırma" hayalini elinden aldı
