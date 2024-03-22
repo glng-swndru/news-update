@@ -1,11 +1,11 @@
 # Latest News
--  가출 후 돌아온 12살 아들 야구방망이로 폭행…학대 유죄
--  "Kvaratskhelia, ADL ha sparato una cifra monstre per allontanare le pretendenti". I dettagli
--  "Ayrılmağımız ona pis təsir etdi"
--  Tyler's golden moment aboard Neasham-trained stayer in feature race
--  Geçmişini bilmeyen, geleceğe güvenle bakamaz
--  Rusko podniklo rozsáhlý úder na Ukrajinu, podle Kyjeva mířilo na energetiku
--  Scooter sürücüleri sigorta yaptırabilecek
--  Nāciju līgas pusfinālā ASV izglābjas pret Jamaiku un nodrošina klasisko finālu
--  أوكرانيا: أكبر هجوم على مواقع الطاقة وإصابة أكبر محطة كهرومائية في البلاد
--  Bulgaristan, kontrolleri sıklaştırdı! TIR kuyruğu oluştu
+-  Một hãng bay gây 'sốc' khi chấp nhận cả tiếp viên tốt nghiệp hết lớp 12, chỉ cần cao 1m6, thu nhập gần 70 triệu/tháng
+-  Затварят част от ул. „Петър Шилев" в Пловдив заради реконструкцията на "Голямоконарско шосе"
+-  Almanya'da Eren Dinkçi kapışması! Galatasaray'ın gözdesi için dikkat çeken serbest kalma bedeli....
+-  Tomaszewski wpadł w furię, gdy zobaczył, co zrobił Probierz. "Tak grają wiejskie drużyny"
+-  Türkiye yılın ilk iki ayında 4,3 milyon yabancı ziyaretçi ağırladı
+-  Erdogan új külpolitikai kurzusa – rejtett aknákkal
+-  Ankara Siteler'de bulunan mobilya atölyesinde yangın!
+-  Los Angeles, uomo armato dirotta un bus e si schianta contro un hotel
+-  Amadou Bâ : « Élu président, je compte mettre en place un gouvernement d’unité bâti sur les valeurs de la République, la démocratie et les libertés…»
+-  Sedicenne padovana con la divisa dell’Esercito: giurerà alla Scuola militare Teulié
