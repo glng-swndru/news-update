@@ -1,11 +1,11 @@
 # Latest News
--  Một hãng bay gây 'sốc' khi chấp nhận cả tiếp viên tốt nghiệp hết lớp 12, chỉ cần cao 1m6, thu nhập gần 70 triệu/tháng
--  Затварят част от ул. „Петър Шилев" в Пловдив заради реконструкцията на "Голямоконарско шосе"
--  Almanya'da Eren Dinkçi kapışması! Galatasaray'ın gözdesi için dikkat çeken serbest kalma bedeli....
--  Tomaszewski wpadł w furię, gdy zobaczył, co zrobił Probierz. "Tak grają wiejskie drużyny"
--  Türkiye yılın ilk iki ayında 4,3 milyon yabancı ziyaretçi ağırladı
--  Erdogan új külpolitikai kurzusa – rejtett aknákkal
--  Ankara Siteler'de bulunan mobilya atölyesinde yangın!
--  Los Angeles, uomo armato dirotta un bus e si schianta contro un hotel
--  Amadou Bâ : « Élu président, je compte mettre en place un gouvernement d’unité bâti sur les valeurs de la République, la démocratie et les libertés…»
--  Sedicenne padovana con la divisa dell’Esercito: giurerà alla Scuola militare Teulié
+-  Ndiop et Fatick : Abdoulaye Diagne mobilise pour la victoire d'Amadou Bâ au 1er tour
+-  Ceny elektřiny a plynu v roce 2024 klesly. Jak reagují dodavatelé?
+-  Économie verte/ 2e édition de Women Entrepreneurs for Africa : 3000 femmes seront subventionnées
+-  Ahmad Sahroni Akui Nasdem Terima Rp 840 Juta dari Syahrul Yasin Limpo: Rp800 Juta Sudah Dikembalikan
+-  Serie C, Benevento-Monopoli match clou
+-  Кои са най-добрите сосове за спагети?
+-  Премьер Польши одобрил итог первых 100 дней работы своего правительства
+-  "아무도 없겠지?"…생중계된 차량털이, 5분 만에 '덜미'
+-  Футболист на "Локо" (Пд) сложи шина заради травма
+-  工研院與日商瑞穗銀行三大合作 助攻台日新創藍海市場
