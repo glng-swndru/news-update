@@ -1,11 +1,11 @@
 # Latest News
--  Rem Uykusu Nedir?
--  A Gazprom megkezdte a Szibéria ereje és a Szahalin gázvezeték összekötését
--  С «Лестера» могут снять очки за нарушение финансовых правил
--  DFB-Wechsel von Adidas zu Nike: Robert Habeck übt Kritik
--  Apie kovą dėl įkrintamųjų kalbėti nenorėjęs Trinchieri: noriu, kad mano žaidėjai pasimėgautų šia savaite
--  김부겸 "이종섭 사태로 정권심판론 불 붙어…민주당 제1당 목표"
--  Gara-gara PPP Tersingkir, Kursi DPR Illiza Digantikan Ghufran ZA
--  Колби КОВИНГТОН: «Пол нокаутирует Тайсона за две минуты»
--  Video Shows Neuralink's First Human Brain Chip Patient Playing Chess: 'It Has Already Changed My Life'
--  Skott mot bostad i Norrköping
+-  Bülent Uygun'dan iddialı şampiyonluk sözleri
+-  Avignon. La vigne taillée, nouveau cap pour les Compagnons des Côtes du Rhône
+-  RUSI OTKRILI: Srbija doživela ogroman pritisak da odustane od meča sa Rusijom! Evo šta se dešavalo iza kulisa i zašto Srbe sad još više cene
+-  Osłabiona Industria dała koncert w Płocku. Kalisz z pewnym awansem do play-offów
+-  Gynybos planą atskleidęs Trinchieri: „Kaune fanai su treneriu yra nusikaltimų partneriai“
+-  AS Wanti-wanti Israel Nasib Warga Sipil di Rafah
+-  نائب وزير البيئة يدشن تطبيق «ميداني» لضبط المخالفات إلكترونياً
+-  Ilha em Guarujá (SP) ganha selo de sustentabilidade inédito nas Américas
+-  Fofana schittert, Duranville debuteert: jonge Duivels trekken met vertrouwen naar Spanje na makkelijke zege tegen Malta
+-  Силам оборони вдалося стабілізувати обстановку на Сході – Сирський
