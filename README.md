@@ -1,11 +1,11 @@
 # Latest News
--  Jackpot World Launches New "Leprechaun's Clovers" Slot Game to Celebrate St. Patrick's Day
--  Удар по Хмельницькому: мер розповів, як місто долає наслідки (відео)
--  Congress Nears Finish Line in Marathon Fight Over Federal Spending
--  الركراكي: جميع المغاربة تأثروا بالإقصاء والهدف الآن هو الفوز بكأس إفريقيا
--  Farb-Attacke auf Bushaltestelle in Marl: Unbekannte hinterlassen Spur der Verwüstung
--  FLASH – CHE CE FAMO CON L’INTELLIGENZA ARTIFICIALE UNA VOLTA CHE DIVENTERÀ UN’APP NEI NOSTRI TELEFONINI? È STATO IL TEMA DELL’INCONTRO, A MOUNTAIN VIEW, TRA IL GRAN VISIR DI GOOGLE, SUNDAR PICHAI, E ANDREA CECCHERINI, PRESIDENTE DELL’OSSERVATORIO GIOVANI-EDITORI…
--  Kapalıçarşı'da 'altın' kıtlığı: 5 bin dolarlık makas
--  Jackpot World Launches New "Leprechaun's Clovers" Slot Game to Celebrate St. Patrick's Day
--  9,50€ de plus par mois pour un appartement de 54m², 16€ pour une maison: de combien va augmenter votre taxe foncière à Nice?
--  БУРГАС СКЪРБИ ЗА ЗАГУБАТА НА ГОЛЕМИЯ ПИСАТЕЛ И ИНТЕЛЕКТУАЛЕЦ АЛЕК ПОПОВ
+-  Rekonstruktion: Videos, Hakenkreuze, eine verpatzte Gefährderansprache: So kam es zum Sturm im Wasserglas von Ribnitz-Damgarten
+-  Samuxda kəndi su basdı
+-  Izrael protestuje zbog prijetnje Erdogana da će 'Netanjahua poslati Alahu'
+-  9년 만에 적자 · 치솟는 연체율…저축은행 '경고등'
+-  Cijene stambenih nekretnina u Njemačkoj pale prvi put od 2007.
+-  Orbán Viktor: Diktálhatnak bármit Brüsszelben, mi a béke pártján maradunk!
+-  Leclerc lidera 2º treino livre e se anima com a Ferrari: ‘Melhor chance de conseguir a pole’
+-  Talas Osmanlı Sokağı'nda nevruz coşkusu
+-  South Lanarkshire Council grant £5000 to Burnhill Action Group
+-  Nowe Chlebiotki - miejsce w którym stara szkoła zyskała nowe życie dzięki wyjątkowemu marzycielowi
