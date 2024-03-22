@@ -1,11 +1,11 @@
 # Latest News
--  Son Dakika... Halkalı-Kapıkule Hızlı Tren Hattı'nda Göçük: 2 İşçi Kurtarılmayı Bekliyor
--  Helmi Loukasmäen ja Dannyn välit muuttuivat
--  Jorge Ferraresi se reunió con el exintendente "Cacho" Alvarez
--  گل‌محمدی؛ گزینه هدایت تیم امید/ عبدی سرمربی جوانان شد
--  ΔΗΣΥ: Κατέθεσε πρόταση νόμου για φορολογική ελάφρυνση των μεσαίων εισοδημάτων
--  دريان اتصل بالرئيس الحريري مطمئنا الى صحته
--  Celtics garantem vitória no fim e Oklahoma City Thunder lidera Conferência Oeste
--  В Україні різко знизились ціни на картоплю: названа головна причина
--  Airfare alert: Minneapolis to Dublin in May, from $476
--  Росія відкрила полювання на кораблі ВМС ЗСУ, - BILD
+-  Klimatpolitiken sågas: "Onödigt riskfylld"
+-  SDP postavio jumbo plakate i otkrio slogan. Isti je objavio i Zoran Milanović na Facebooku
+-  Fortnite will finally get a first-person mode later this year, but it's not coming to Battle Royale just yet
+-  她天天爬山突然體力變差、痠痛以為老化 竟罹急性淋巴性白血病
+-  VfB Stuttgart: Torhüter glänzen beim Fußballtennis
+-  What To Do In Unveils The Ultimate Guide to Fuerteventura: The Hawaii of Europe
+-  VfB Stuttgart: Torhüter glänzen beim Fußballtennis
+-  Cambridge pair found in Hespeler with stolen vehicle face list of charges
+-  Pezzi di vetro nel pane a scuola a Milano, indaga la Procura
+-  تاج:انتخاب ویلموتس بدترین تصمیمم بود/بایدقهرمان می‌شدیم
