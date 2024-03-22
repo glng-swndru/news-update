@@ -1,11 +1,11 @@
 # Latest News
--  Gwyneth Paltrow remains sweatless and perfectly composed while eating spicy wings on 'Hot Ones'
--  Winnipeg city council votes to reopen Portage and Main
--  Nicole Kidman, Henry Golding Set for 'Nine Perfect Strangers' Season 2
--  Brahim dio su palabra de jugar con Marruecos hace un año y medio, según el seleccionador marroquí
--  Alex Garland's 'Civil War' Tracking for Terrific $20M-Plus Opening
--  'I felt an urgent need for empathy': the Iranian-American director uniting her two cultures in film
--  'Crazy Stupid Love' Directing Duo Glenn Ficarra And John Requa To Direct 'Misadventure' For Sony
--  뷔 '프렌즈' MV 리액션 영상에 연예계 인맥 총출동
--  Skywalker Saga Marathon Coming to Theaters on May the 4th
--  المملكة تدين وتستنكر التفجير الإرهابي الذي وقع في إقليم قندهار جنوب أفغانستان
+-  Trung tâm Hỗ trợ Nông dân tỉnh Hòa Bình: 20 năm vượt nhiều khó khăn, đạt thành tích lớn
+-  "Tatort" aus Köln: Die tote Prostituierte aus dem Kanal
+-  "Tatort" aus Köln: Die tote Prostituierte aus dem Kanal
+-  Fazenda reduz previsão oficial de inflação para 3,5% em 2024
+-  Hiểm họa gia tăng từ rác thải điện tử
+-  La puesta en marcha de una planta forestal fortalece a un sector que será clave en 2024
+-  Gempa Megathrust Bisa Bikin Jakarta Lumpuh, Begini Penjelasan BMKG
+-  Incrível: Ana Catarina Nogueira derrota líderes do ranking mundial de padel
+-  Власти Молдавии признали присутствие своих граждан в рядах ВСУ
+-  "Tatort" aus Köln: Die tote Prostituierte aus dem Kanal
