@@ -1,11 +1,11 @@
 # Latest News
--  KPÖ an der Schwelle zum Nationalrat oder: Von Hausmachten und Schwankungsbreiten
--  Entergy Texas declares quarterly dividend on preferred stock
--  Китай требует у США не вмешиваться
--  Manhattan DA says no additional delay needed in Trump hush money criminal trial, blasts ‘grab-bag of meritless’ filings - CNN
--  SRBIJA IMA NOVU ŠAMPIONKU: Prva seniorska pobeda u karijeri, a Lana Vujović ima samo 15 godina!
--  Ministar Hrnjić posjetio maslinare: Strategija poljoprivrede prepoznaje mlade i njihov rad (VIDEO)
--  Auf den Tauerntunnel folgt das Große Festspielhaus
--  Ministério da Fazenda reduz projeção para o IPCA de 2024, de 3,55% para 3,50%
--  Portugal-Ilhas Faroé, em direto
--  Auto cappottate a Livorno, raffica di meme sui social: dal kit Lego per i piloti labronici a Need for Speed
+-  EU-Gipfel: Mehr Hilfe für die Ukraine
+-  Heritage Capital Group Advises Pacific Steel on Sale
+-  EagleRider Launches Exciting New UTV Off-Road Tour Series in Las Vegas
+-  Zderzenie czterech aut pod Dziwnówkiem. Dramatyczna akcja ratunkowa
+-  Tajemnicze zgony na Zagłębiu. W rok na plebaniach zginęły trzy osoby
+-  BISER MORA 2024: Od primjene AI u kulinarstvu preko brojnih eno-gastro radionica do prvih nagrada natjecateljima
+-  Adana'da eşi Melisa İşler'in sırtından silahla vurduğu Uğur İşler öldü
+-  صور| رواد المسجد الحرام يصطحبون أطفالهم أثناء أداء العمرة في رمضان
+-  A 48 h du scrutin: La député Aida Gaye quitte Birima Mangara de l'Udp et retourne à l’Apr
+-  EU-Gipfel: Mehr Hilfe für die Ukraine
