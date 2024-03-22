@@ -1,11 +1,11 @@
 # Latest News
--  Motorine Gece Yarısından İtibaren İndirim Geliyor
--  Hrvatski startup Skaut, nova vaučer platforma među 10 najboljih u regiji
--  Les Avenières-Veyrins-Thuellin. Le site de captage des eaux de Veyrins-Thuellin est en service
--  Meghozta a kampány az Auchan kedvét: belép a magyar lakásbiztosítási piacra
--  Lidl изпраща 11 българчета на полуфинал на UEFA EURO 2024
--  Fuerzas armadas en la calle: Patricia Bullrich le respondió a Villarruel y la llamó a debatir
--  बिहार: देश का सबसे बड़ा निर्माणाधीन पुल ध्वस्त, एक की मौत, 40 लोगों के दबे होने की खबर
--  Med slovesno razglasitvijo v Planici jo je bila sama sreča
--  準備進む試合会場の様子は？“オイシックス”２３日ホーム開幕戦！「ファンの期待に応えられるよう全力で」
--  Venezuela's Parliament adds Essequibo to official maps
+-  MARINIKA TEPIĆ PODRŽALA DINKA GRUHONJIĆA
+-  全国で相次ぐ「はしか」感染 広島でもワクチン需要が高まる 一部で不足も
+-  Spalletti: "Accoglienza incredibile, venire negli USA è stata la scelta giusta..."
+-  「紅麹コレステヘルプ」摂取した人に腎疾患等を確認 小林製薬が商品の自主回収を発表
+-  Sahur için anne ve babasını uyandırmak istedi, acı gerçekle karşılaştı
+-  “Neftçi”dən komandanı tərk edəcək oyunçularla bağlı AÇIQLAMA
+-  Médicos exigen renuncia de Mora al frente del Cones
+-  فريق كوكي المتوقع في دوري روشن
+-  Πτώση F-16: Εξιτήριο για τον υποσμηναγό Παναγιώτη Αποστολάκη
+-  Il curioso caso del casello autostradale: se la sbarra non funziona l'utente paga di più
