@@ -1,11 +1,11 @@
 # Latest News
--  Μπακς - Νετς 115-108: Λίλαρντ και Αντετοκούνμπο «οδήγησαν» στη νίκη
--  “Fatale Fehlentscheidung“: Merz würde Legalisierung von Cannabis bei Wahlsieg rückgängig machen
--  Su grumtynėmis ant dziudo tatamio kovą Algarvės stadione lyginęs Jankauskas: pasidavėme varžovų provokacijoms
--  MONETA Money Bank, a.s.: Publikace pozvánky na VH, Výroční finanční zprávy za rok 2023 a Zprávy o udržitelnosti za rok 2023
--  Praha nabídne Komerční bance 3,65 mld. Kč za budovu na Václavském náměstí
--  Siang Ini, Prabowo Temui Surya Paloh di Nasdem Tower
--  Küçükçekmece'de hareketli gece! İlk müdahale olay yerinde yapıldı
--  ഉൻ അഴകും അവരോടെ സ്റ്റൈലും ഇന്നും വിട്ടുപോകലെയ്; ഗുരുവായൂർ ക്ഷേത്ര ദർശനം നടത്തി സംയുക്തയും ബിജു മേനോനും
--  Škoda Superb Combi: Fünf Meter »Preiswürdigkeit«
--  Si chiude la "Settimana della sostenibilità" con Zaia, Da Ros, Zamagni e Balbo
+-  Scorpions prepare for stern batting on day three against Hurricanes
+-  Αντιπροσωπεία της Βόρειας Κορέας περιοδεύει σε Κίνα, Βιετνάμ και Λάος
+-  ‘Pixels of Possibility’
+-  Competitive-looking Sir Howard Stakes
+-  Bursa Orman İşletme Müdürlüğüne ait kamyonet şarampole yuvarlandı! Çok sayıda yaralı...
+-  İzmir'de zincirleme kaza: 2 ölü, 7 yaralı
+-  במיטב המסורת: פורים גשום, עם טמפטרורות נמוכות מהרגיל בעונה
+-  Economic condition horrible in Congress regime: Bommai
+-  Recenzja laptopa Lenovo IdeaPad Pro 5 14AHP9 - Wydajny ultraprzenośny laptop z procesorem Ryzen 8000 i ekranem OLED 120 Hz
+-  Спорт по телевизията днес
