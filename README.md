@@ -1,11 +1,11 @@
 # Latest News
--  Vecinos de la vivienda de Ourense en la que explotó un depósito de gas propano: «Fue un zambombazo impresionante»
--  USA žalují firmu Apple, u chytrých telefonů podle nich udržuje monopol
--  تقرير رسمي: تراجع أسعار معظم المواد الغذائية.. هل أحس به المواطنون؟
--  New headteacher appointed at Thurston Community College
--  Нови зарядни станции за електрически лодки в Бургас
--  Technologiekonzern: Wegen des iPhones: US-Justizministerium reicht Klage gegen Apple ein
--  Quinte Conversation donates land and water to meet Canadian target
--  PZPN podjął decyzję. Wszystko jasne ws. dachu na Narodowym
--  Women’s Ministry plans to develop e-filing system for sexual harassment victims to channel complaints
--  Сбой в системе на сутки приостановил движение грузовиков на границе с Калининградом
+-  Northwest Biotherapeutics Appoints Seasoned Business Executive and Investor To Its Board of Directors
+-  Northwest Biotherapeutics Appoints Seasoned Business Executive and Investor To Its Board of Directors
+-  Единый рынок электроэнергии стран Балтии может начать действовать к 2027 году
+-  Spojené štáty žalujú firmu Apple, pri smartfónoch podľa nich udržuje nezákonný monopol
+-  MK: Suhartoyo, Saldi Isra, dan Arief Hidayat Jadi Ketua Panel Sengketa Pileg
+-  Hallitus päätti 30 miljoonan lisärahoituksesta ampumatarvikkeiden yhteishankintaan Ukrainaan
+-  Lufthansa-Aktie dennoch fester: Brussels Airlines-Piloten planen erneute Arbeitsniederlegung
+-  كنعان من نقابة المحامين: الودائع التزامات وليست خسائر وبعض من يتحدّث من السلطة عن استعادة الأموال المنهوبة شارك في عمليّة النهب
+-  Ein neuer Sechser beim FC Bayern soll kommen: Das Aus für Joshua Kimmich?
+-  Polri: Kondisi Kamtibmas Aman Pasca Penetapan Pemilu
