@@ -1,11 +1,11 @@
 # Latest News
--  Trajnost in trdoživost sta v človeškem kapitalu
--  Vì sao tập đoàn Phương Trang xuất hiện tại toà xử án Vạn Thịnh Phát?
--  Idén kiengedhetik a börtönből Gyurcsány volt titkosszolgálati főnökét
--  Alumni SMA Sari Putra Jambi Gelar Buka Bersama di Gudhas Village
--  Labu rep Hanifah appointed new Opposition leader in Negri state assembly
--  Садыр Жапаров заложил капсулу под строительство нового ипподрома «Аккула»
--  West Bengal Higher Secondary Council Puts Ban on E-Smoking at Schools
--  Läuferpaar aus Niederurnen geht mit Medaillen-Energie in den Frühling
--  О взрывах сообщают в Харькове, Запорожье и Одессе
--  Meinungen gehen weit auseinander: So wollen direktbetroffene Verbände die Bündner Wohnungsnot bekämpfen
+-  Nachfrage nach Paketen geht Ostern durch die Decke
+-  Timnas Indonesia Selangkah Lagi di Atas Malaysia pada Ranking FIFA
+-  JAL、24年3月期最終益100億円上振れで増配に 25年3月期は1000億円予想(Aviation Wire)
+-  Rùng rợn lời kể của người dân sống quanh 'căn cứ người ngoài hành tinh', kỳ quái nhất là dấu vết UFO
+-  Valtion it-keskus saamassa uuden lakisääteisen tehtävän
+-  [ITmedia PC USER] ASUS、75％レイアウト採用ゲーミングキーボード「ROG Azoth」に白色カラバリモデルを追加
+-  Bihar के सुपौल में बड़ा हादसा, कोसी नदी पर बना रहे पुल का स्लैब गिरा, एक की मौत कई दबे
+-  Future And Metro Boomin Unleash “We Don’t Trust You” Collab Project
+-  На Хмельниччині у низці міст зникло світло
+-  Wirtschaft in Mönchengladbach: Steigende Zinsen bringen Stadtsparkasse höheren Überschuss
