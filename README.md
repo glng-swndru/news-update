@@ -1,11 +1,11 @@
 # Latest News
--  Northwest Biotherapeutics Appoints Seasoned Business Executive and Investor To Its Board of Directors
--  Northwest Biotherapeutics Appoints Seasoned Business Executive and Investor To Its Board of Directors
--  Единый рынок электроэнергии стран Балтии может начать действовать к 2027 году
--  Spojené štáty žalujú firmu Apple, pri smartfónoch podľa nich udržuje nezákonný monopol
--  MK: Suhartoyo, Saldi Isra, dan Arief Hidayat Jadi Ketua Panel Sengketa Pileg
--  Hallitus päätti 30 miljoonan lisärahoituksesta ampumatarvikkeiden yhteishankintaan Ukrainaan
--  Lufthansa-Aktie dennoch fester: Brussels Airlines-Piloten planen erneute Arbeitsniederlegung
--  كنعان من نقابة المحامين: الودائع التزامات وليست خسائر وبعض من يتحدّث من السلطة عن استعادة الأموال المنهوبة شارك في عمليّة النهب
--  Ein neuer Sechser beim FC Bayern soll kommen: Das Aus für Joshua Kimmich?
--  Polri: Kondisi Kamtibmas Aman Pasca Penetapan Pemilu
+-  Predaj starších domov v USA vzrástol a dosiahol ročné maximum
+-  ‘Pobjegao sam iz Zagreba na djedovinu u Liku i postao seljak - to mi je najbolji potez u životu!‘
+-  Kuwait and Egypt charity sign $10 million deal
+-  Baby Lasagna bit će prezenter na Porinu: 'Osjećam malu tremu koju zasjenjuje osjećaj časti...'
+-  Abriss oder Lösung? So steht es ums Austria Salzburgs Stadion
+-  Medical students raise awareness on donation for cancer treatment
+-  Der Tag in Luxemburg: Polizei warnt vor falschen Mitarbeitern karitativer Organisationen
+-  "Brakuje słów". Tusk odpowiada na list Dudy
+-  PuroClean Named a Top 100 Franchise for Women by Franchise Business Review
+-  Nab This Helpful Password Manager for Under $1 Per Month for Your First Year - CNET
