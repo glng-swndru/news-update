@@ -1,11 +1,11 @@
 # Latest News
--  【新NISA】知識ゼロのド素人でも「ほったらかしで5000万円」がつくれる“すごいカラクリ” - 気になるあの本を読んでみた！ベストセラー目のつけどころ
--  39 பட்டாசு ஆலைகளின் உரிமம் தற்காலிக ரத்து
--  Stiže novi val poskupljenja cigareta: Cijene popularnih marki idu gore, evo kada i za koliko
--  Kundgebung auf dem Landwehrplatz: Pflegeverbände protestieren in Saarbrücken gegen Rechtsextremismus
--  Šef diplomacije BiH: Milanović je populist, ne treba se obazirati na njegove izjave
--  Blinken aponta ‘avanços’ para normalização de relações Israel-Arábia Saudita
--  Se confirmó el horario para el clásico de Peñarol vs Nacional y será bien temprano
--  Son dakika! Balıkesir'de korkutan deprem!
--  'I was at my wits end with my skin, but Amazon's £11 anti-ageing serum with 76,000 ratings gives me better results than Botox'
--  Nika Prevc: "Tega si nisem niti pod razno predstavljala!"
+-  Tamburini nominato procuratore capo a Mantova
+-  Giornata mondiale dell'acqua: bisogna combattere gli sprechi
+-  Soygun için kuyumcuya girdi, silah tutukluk yapınca çantayı bırakıp kaçtı
+-  Adana dolu ile beyaza büründü
+-  Balıkesir'de korkutan deprem
+-  'Absolutely Brilliant Marketing': Dunkin's Latest Marketing Stunt Praised as 'Culturally Relevant' by Gen Z
+-  Νέες αποκαλύψεις: 16χρονη περιγράφει πώς μπλέχτηκε στα «δίχτυα» του κυκλώματος μαστροπείας – Τι λέει για την 25χρονη
+-  MT II will Revanche gegen Bielefeld
+-  EU žali zbog pogubljenja mentalno zaostalog muškarca u Džordžiji
+-  Карпин о том, что лучше бы Гайича не удаляли: «100%. Результатом довольны, но информации не получили. После 2:0 подрасслабились»
