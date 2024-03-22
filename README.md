@@ -1,11 +1,11 @@
 # Latest News
--  EM 2024: Das pinke DFB-Trikot – Müller machte große Augen
--  Broşür kavgasında tek kurşunla iki kardeşi vurmuştu: Canımı kurtardım
--  New dividend policy sends the Phoenix Group share price up 10%. Time to buy?
--  На аварийном руднике "Пионер" собрали максимум техники
--  Adnan Özdenizer
--  તમારું પોતાનું લોહી વાળને જાડા બનાવે છે:PRP થેરાપીથી વાળ ખરવાનું બંધ થાય છે, મેનોપોઝ અને હેર ટ્રાન્સપ્લાન્ટમાં વધુ ફાયદાકારક છે
--  Spontan-Urlaub über Ostern? 5 tolle Tipps
--  IMF:n johtokunta hyväksyi 880 miljoonan dollarin maksun Ukrainalle
--  Bennington College hosts Milford Graves exhibition
--  Дворкович: «Матч между сборными России и Сербии был действительно товарищеским»
+-  Jackpot World Launches New "Leprechaun's Clovers" Slot Game to Celebrate St. Patrick's Day
+-  Удар по Хмельницькому: мер розповів, як місто долає наслідки (відео)
+-  Congress Nears Finish Line in Marathon Fight Over Federal Spending
+-  الركراكي: جميع المغاربة تأثروا بالإقصاء والهدف الآن هو الفوز بكأس إفريقيا
+-  Farb-Attacke auf Bushaltestelle in Marl: Unbekannte hinterlassen Spur der Verwüstung
+-  FLASH – CHE CE FAMO CON L’INTELLIGENZA ARTIFICIALE UNA VOLTA CHE DIVENTERÀ UN’APP NEI NOSTRI TELEFONINI? È STATO IL TEMA DELL’INCONTRO, A MOUNTAIN VIEW, TRA IL GRAN VISIR DI GOOGLE, SUNDAR PICHAI, E ANDREA CECCHERINI, PRESIDENTE DELL’OSSERVATORIO GIOVANI-EDITORI…
+-  Kapalıçarşı'da 'altın' kıtlığı: 5 bin dolarlık makas
+-  Jackpot World Launches New "Leprechaun's Clovers" Slot Game to Celebrate St. Patrick's Day
+-  9,50€ de plus par mois pour un appartement de 54m², 16€ pour une maison: de combien va augmenter votre taxe foncière à Nice?
+-  БУРГАС СКЪРБИ ЗА ЗАГУБАТА НА ГОЛЕМИЯ ПИСАТЕЛ И ИНТЕЛЕКТУАЛЕЦ АЛЕК ПОПОВ
