@@ -1,11 +1,11 @@
 # Latest News
--  CHP Alanya'dan flaş pankart hamlesi! Suç duyurusunda bulundu
--  Na obniżki stóp procentowych poczekamy do przyszłego roku
--  Deutsche Bahn zu Stuttgart 21: Kopfbahnhof soll auch 2026 noch in Betrieb sein
--  У Полтаві відкрився центр рекрутингу для ЗСУ
--  Uspjeh karijere hrvatske judašice i to točno godinu nakon operacije
--  Rakojević: Moramo da igramo puno brže i jednostavnije
--  Arte, Pesaro 24 ospita la performance 'Spark' di Daan Roosegaarde
--  Arte, Pesaro 24 ospita la performance 'Spark' di Daan Roosegaarde
--  These are the noise cancelling earbuds Samsung fans should use instead of AirPods
--  Port of Vancouver boasts record cargo volume, despite strike and cooling economy
+-  Son dakika... Lütfü Savaş'a mitingde saldırı. Konuşma yaparken aşağı atıldı
+-  Αδιανόητο: Ο σύζυγός της τη βιντεοσκοπούσε στην τουαλέτα και διοχέτευε γυμνές φωτογραφίες της
+-  Nederlands Zuivelmuseum klaar voor nieuw seizoen
+-  TANAP vasitəsilə qaz nəqlinin həcmi 60 milyard kubmetrə çatıb
+-  ¿Qué es la prisión suspendida?
+-  Karte za Dua Lipu u Puli su ekspresno rasprodane, ali odmah su osvanule u oglasnicima: Cijene su vrtoglave!
+-  ERLING HALAND UVREDIO NORVEŠKU: O njegovoj izjavi bruji cela zemlja!
+-  Monique Pascoe
+-  Sondaż CBOS. Jest zmiana na podium
+-  ATP drop five tournaments from 2025 calendar as three events get promotions
