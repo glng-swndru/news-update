@@ -1,11 +1,11 @@
 # Latest News
--  INSÄNDARE: Flera orsaker till långa köer för starroperation
--  ניצחונות לבוסטון, מינסוטה ואוקלהומה, הפסד דרמטי לוומבי למרות משחק גדול
--  Дальневосточные регионы отменяют массовые мероприятия в связи с терактом в Подмосковье
--  Ökobilanz von Schoko-Osterhasen: Je dunkler, desto besser
--  Perak FC sukar lepaskan pemain ke Sukma sebab bajet
--  JNU Student Union Elections: 73 per cent voter turnout, results to be declared tomorrow
--  Aturan untuk Pengembangan AI di Jepang Makin Dipertimbangkan
--  Предимно слънчево и по-топло ще е днес
--  Flera orsaker till långa köer för starroperation
--  Ökobilanz von Schoko-Osterhasen: Je dunkler, desto besser
+-  Jawaban Anies Ditanya Peluang Jadi Menteri di Kabinet Prabowo
+-  Erst der investigative Film, nun das Bühnenprogramm – Cedric Schild ist der Komiker der Stunde. Was macht ihn so erfolgreich?
+-  Los elementos incontrolables que tienen en vilo a los viticultores
+-  ארגנטינה ניצחה 0:3 את אל סלוודור, ספרד נכנעה 1:0 לקולומביה
+-  12년 만의 괴물 복귀전…최원호 감독 “다른 팀엔 없는 류현진”, 염경엽 감독 “충분히 공략 가능”
+-  مجلس الأمن يرجئ التصويت على مشروع قرار حول غزة
+-  Πάρκα στην Αθήνα: 3+1 οάσεις πρασίνου για αξέχαστες βόλτες
+-  Co widzisz na tym obrazku? Odpowiedź zdradzi prawdę o twojej osobowości
+-  조국, 제주도 찾아 "4·3 왜곡·폄훼 멈추게 할 것"
+-  Murat Kurum İstanbul'da kaybederse Yeniden Refah Partisi bunun cezasını seçmenden alır mı?
