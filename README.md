@@ -1,11 +1,11 @@
 # Latest News
--  Kevin O Chris adianta o que vai tocar no Lollapalooza: 'sons que fizeram a história do funk'
--  Europei U.21: Italia-Lettonia 2-0
--  Polícia recupera veículo roubado no centro de Sinop; ladrões dominaram mulher
--  El Obradoiro y el Breogán miden sus pulsaciones y sus urgencias en el derbi
--  Ovos de Páscoa tem variação de até 89% no valor em Campo Grande
--  Prognoze katastrofalne! Rusi objavili nove brojke masakra u Moskvi: Više od 40 nastradalo, preko 100 ranjeno
--  Kevin O Chris adianta o que vai tocar no Lollapalooza: 'sons que fizeram a história do funk'
--  Moskvadakı terrorda zərərçəkənlərin sayı 140-a yüksəldi
--  Shooting and explosion reported inside concert hall in Moscow region
--  Europei U.21: Italia-Lettonia 2-0
+-  Mažeikiuose – ekspozicija, kokios kitose Baltijos šalyse nėra
+-  Księżna Kate ucina plotki: Mam raka. Internet od tygodni żyje sprawą jej zniknięcia
+-  Amazon shoppers 'ditch' teeth whitening strips for £20 solution even dentists love for erasing yellow stains
+-  Buenos Aires Governor Kicillof turns to BRICS for financial help
+-  Galler Prensesi Kate Middleton, kanser tedavisi gördüğünü açıkladı
+-  Introvertiertes Grübeln bis energetische Wucht: So war der Auftakt zum Freejazz-Festival in Saarbrücken
+-  Μακελειό στη Μόσχα: Συνελήφθη ύποπτος για τις επιθέσεις με τους 40 νεκρούς - Δείτε βίντεο
+-  بدعم من فاعلي خير .. مبادرة "تراحم" الإنسانية توزع كراسي متحركة وسلال غذائية ومواد إيوائية بأبين
+-  Названо вооружение открывших стрельбу в «Крокус Сити Холле»
+-  Texans sign CB C.J. Henderson
