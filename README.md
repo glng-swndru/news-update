@@ -1,11 +1,11 @@
 # Latest News
--  Reddit Resmi Melantai di Bursa AS, Harga Saham Langsung Meningkat
--  Hãy nấu đậu phụ theo cách này đi: Vừa thơm lừng gian bếp, hương vị đậm đà mềm ngon vô cùng
--  Вместо яйца: Ето какво да сложите в тестото по време на пости
--  На Тодоровден: Кои зодии ги очаква съботна кушия?
--  D.O.日官網驚曝「6月亞巡開跑」！ 連唱12場…台北是海外首站
--  Följ med in i hemliga ordens salar
--  マッサージ店で売上金5万4000円など奪ったか 大学生（19）と無職の男（22）を逮捕 名古屋・中区(中京テレビＮＥＷＳ)
--  Motoristas têm até o dia 31 para fazer exame toxicológico obrigatório
--  Black Files Declassified (2020) Season 1 Streaming: Watch & Stream Online via HBO Max
--  신안군, 분재정원 명자나무 분재 특별전 개최
+-  INSÄNDARE: Flera orsaker till långa köer för starroperation
+-  ניצחונות לבוסטון, מינסוטה ואוקלהומה, הפסד דרמטי לוומבי למרות משחק גדול
+-  Дальневосточные регионы отменяют массовые мероприятия в связи с терактом в Подмосковье
+-  Ökobilanz von Schoko-Osterhasen: Je dunkler, desto besser
+-  Perak FC sukar lepaskan pemain ke Sukma sebab bajet
+-  JNU Student Union Elections: 73 per cent voter turnout, results to be declared tomorrow
+-  Aturan untuk Pengembangan AI di Jepang Makin Dipertimbangkan
+-  Предимно слънчево и по-топло ще е днес
+-  Flera orsaker till långa köer för starroperation
+-  Ökobilanz von Schoko-Osterhasen: Je dunkler, desto besser
