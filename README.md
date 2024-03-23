@@ -1,11 +1,11 @@
 # Latest News
--  Xem U23 Việt Nam vs U23 Tajikistan mấy giờ, trực tiếp kênh nào?
--  Corte no orçamento da NASA: os telescópios Chandra e Hubble estão em perigo?
--  Noticias de Kate Middleton EN VIVO | Anuncia que padece cáncer HOY 22 de marzo
--  BEYOND LOCAL: Canadians respond to cancer diagnosis for Princess of Wales
--  Vietnam aiming for world-class healthcare facilities by 2050
--  “レトルトごはんのパック1個を手に持ったまま”男はコンビニの外へと向かう「万引きするつもりだった」窃盗未遂の現行犯で59歳男を逮捕 北海道苫小牧市
--  રૂપિયો 83.43ના નવા તળિયે પટકાયો આયાતી ચીજો વધુ મોંધી થશે
--  Nữ ca sĩ Việt xinh đẹp cưới chồng hơn 26 tuổi, đào hoa, qua 3 đời vợ, ở nhà thuê vẫn hạnh phúc
--  Bộ trưởng Giao thông nói ưu thế 'trời cho' nhưng khai thác chưa hiệu quả
--  Auktion von Pattie Boyd: Liebesbrief von Eric Clapton für 140.000 Euro versteigert
+-  Judge denies nonprofit lawsuit to stop Mass. stadium renovation project
+-  A admirável Heloïse Huthart
+-  पावरप्ले में काफी विकेट गंवा दिये, 15-20 रन और बनाने चाहिए थे : RCB Captain
+-  Moskova'daki terör saldırısına ilişkin Putin'e bilgi verildi
+-  PGN : Pipa Jargas Bojonegoro-Lamongan Aman, Tak Terdampak Gempa Tuban
+-  Moscow Gunmen Attack: মস্কোর কনসার্ট হলে বন্দুকবাজদের হামলা, মৃত ৬০-এর বেশি !
+-  Andrea Legarreta sufre la pérdida de su sobrino tras accidente de motocicleta
+-  Tòa nhà chọc trời chống động đất 9 độ richter tại Nhật Bản
+-  Sérsveitin kölluð til og maður hand­tekinn í Hag­kaup
+-  Así reaccionan las redes acerca de la pronunciación de Alejandra Jaramillo desmintiendo cobro de póliza de Efraín Ruales
