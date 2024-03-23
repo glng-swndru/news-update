@@ -1,11 +1,11 @@
 # Latest News
--  Dringender Rückruf bei Rewe: Verzehr von beliebter Wurst ist ein Verletzungsrisiko
--  Women's NCAA Tournament Day 1 recap
--  KULTUURIS KUUM ⟩ Ülo Sooster – kunstnik, keda nõukogude võim ümber ei kasvatanud
--  Muğla'da 4,3 büyüklüğünde deprem
--  В пяти минутах от «Крокус Сити Холла» заработает центр помощи пострадавшим
--  Muğla'da korkutan deprem: AFAD büyüklüğünü duyurdu
--  Спорт по телевизията днес
--  마트서 미끄러진 수레에 척추 골절됐는데..한 달째 보상 못 받은 노인 [영상]
--  اینترنت کهکشانی، راهی برای برقراری اولین ارتباط با بیگانگان فضایی
--  Ram Manohar Lohia birth anniversary: Lesser-known facts about freedom activist and political leader
+-  Universo WcDonald’s: la fiebre del anime conquista la realidad
+-  SPNB perkenal cat insulasi panas guna sekam padi
+-  МЧС: тушение очагов пожара в «Крокус Сити Холле» займет ещё полтора-два часа
+-  Passage suspended over A55 was visited by urban explorers who vowed never to return
+-  First-time suppliers happy with TLN’s speed networking event
+-  Bursa Osmangazi Belediye Başkanı Dündar: Vatandaşlarımızın desteğiyle hizmete devam edeceğiz
+-  Один из зрителей обезвредил террориста в «Крокус Сити Холл» и спас десятки человек
+-  LIVE GAZA. Nieuwe stemming over Amerikaanse resolutie voor staakt-het-vuren uitgesteld
+-  Tere Bin 2: Makers of Wahaj Ali, Yumna Zaidi starrer share BTS from season 1; fans go gaga over their adorable off-screen bond
+-  Mehmet Çetinkaya dinleyenleri şok etti: "Karabük açık hava genelevine döndü"
