@@ -1,11 +1,11 @@
 # Latest News
--  4 ülkeden Filistin kararı! Resmen anlaşmaya vardılar
--  Стало известно о росте числа жертв теракта в «Крокус Сити Холле»
--  ෆිෆා ශ්‍රී ලංකා කලාපීය තරගාවලිය: ආරම්භක තරගයෙන් මධ්‍යම අප්‍රිකානු රාජ්‍යයට පහසු ජයක්
--  FREE £2 SHOP BET with William Hill
--  Vierte Live-Show von "Let's Dance": Lina Larissa Strahl muss sich verabschieden
--  CEO SVET POLUDEO ZA NjIM: Napravite zlatno mleko od kurkume
--  ಚುನಾವಣೆಯಲ್ಲಿ ಸ್ಪರ್ಧೆ ಕುರಿತು ಎರಡು ದಿನಗಳಲ್ಲಿ ನಿರ್ಧಾರ–ವೀಣಾ ಕಾಶಪ್ಪನವರ
--  Vierte Live-Show von "Let's Dance": Lina Larissa Strahl muss sich verabschieden
--  Vierte Live-Show von "Let's Dance": Lina Larissa Strahl muss sich verabschieden
--  Dukung Dekarbonisasi, Kilang Cilacap Pasang PLTS 0,99 MWp
+-  Макрон осудил теракт в Подмосковье и выразил соболезнования
+-  Vote-counting machine foes hoped for a surge of success in New Hampshire. They got barely a ripple
+-  காரிலிருந்த கஞ்சா பறிமுதல்: இளம் பெண்ணிடம் விசாரணை
+-  ದಿನ ಭವಿಷ್ಯ: ಈ ರಾಶಿಯ ಅವಿವಾಹಿತರಿಗೆ ವಿವಾಹ ಯೋಗ ಕೂಡಿ ಬರುವುದು
+-  Royal Mint rarest coins as 50p sells for £186 on eBay
+-  深交所對聯綱光電保薦人中信證券(600030.SH)啓動現場督導
+-  La Selección Argentina estrena la temporada con El Salvador
+-  Bắc Bộ và Trung Bộ có mưa rải rác
+-  Play Off e salvezza: tutto in gioco nell'ultima di Regular Season
+-  Top 3: Rekrutmen Bersama BUMN 2024 Dibuka 23 Maret 2024
