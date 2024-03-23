@@ -1,11 +1,11 @@
 # Latest News
--  マツダのスポーティSUV「CX-60」で行くゴルフは快適？ 改良で乗り心地が良化!? “ゴルフ場への移動”がストレスフリーに(VAGUE)
--  Phong tỏa gấp công trường phát hiện ''kho tiền'' sâu 1.500m dưới lòng đất, công nghệ cao vào cuộc
--  Episode Terbaru Bima S Season 2 Part 3 Betrayer di MNCTV
--  無料なのに全然お得じゃない!?「無料車検」って一体なに(バイクのニュース)
--  DA Tshwane caucus spokesperson Kwena Moloto loves his hair and his city
--  VFF lên tiếng về chuyện chia tay HLV Troussier
--  틱톡 쓰면 나도 몰래 중국 스파이 된다? 美 퇴출 임박
--  Análisis: el desatino de la desinformación sobre los aumentos de las tarifas
--  Irish Bella Ungkap Alasan Makin Sibuk Sejak Bercerai dari Ammar Zoni
--  贈賄で逮捕の建設業者 入札資格停止の措置期間が12カ月以上へ 三重県の新コンプライアンス規定(三重テレビ放送)
+-  ACV xử lý "cục nợ" nghìn tỷ của Vietnam Airlines, Vietjet, Bamboo Airways thế nào?
+-  《瑞鎮家2》在冰島店開拍！店裡的外觀在網路上曝光，門口貼著「今日主廚崔宇植」是升職了嗎XD
+-  Единая лига ВТБ выразила соболезнования родным погибших во время трагедии в «Крокус Сити Холле»
+-  ميلان يستعد للاستغناء عن خدمات مايك مينيان
+-  “어젯밤 9시20분에 왔어요”…한화-LG 개막전 보려고 ‘오픈런’, 현장 티켓 12분 만에 동나
+-  Polis Qırmızı meydanı əhatəyə alıb - VİDEO
+-  待望の最強決定戦開催、Netflix映画「範馬刃牙VSケンガンアシュラ」制作＆配信決定
+-  気象庁「目視観測」東京・大阪除き終了へ “記録途絶”を惜しむ声も(テレビ朝日系（ANN）)
+-  Descubren dos de los 'filamentos originales' de estrellas que formaron la Vía Láctea>
+-  Ashok Chavan Nanded Loksabha : अशोक चव्हाणांच्या हस्ते प्रचार कार्यालयाचं उद्घाटन
