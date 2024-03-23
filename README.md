@@ -1,11 +1,11 @@
 # Latest News
--  Plavci su pobijedili u servisu, a show je napustila Sara: 'Žao mi je, ali ako griješiš, ispadaš...'
--  Xətai rayonunda iki avtomobil toqquşub: Xəsarət alanlar var - FOTO
--  Восемь несовершеннолетних госпитализировали после теракта в «Крокус Сити Холле»
--  Skandal u Zenici: Najveća zvezda Ukrajine ušla u sukob sa navijačima BiH
--  مواعيد مباريات يوم السبت المتنوع
--  俳優の寺田農さんが死去 所属事務所「最後まで仕事を続けながら治療」
--  Turnir vatrenih: Egipat pobijedio u prvom polufinalu, evo što to znači za hrvatsku reprezentaciju
--  Successful Stable Genius Billionaire Unable to Secure $454 Million Court Bond
--  Dissequestrata legna per trentamila euro
--  Spi Cgil, i pensionati attivi «Stiamo difendendo la sanità»
+-  What we know and don't know about Kate's cancer diagnosis
+-  「一番列車が出発」北大阪急行の延伸区間開業で箕面萱野駅から梅田駅まで最速25分
+-  Пассажирам разрешили без сборов вернуть билеты на поезда из-за теракта
+-  MLADA TRAŽILA RAZVOD 48 SATI NAKON VENČANJA &quot;Ne verujem mu više&quot; (FOTO)
+-  경찰, '이선균 수사정보 유출' 경찰관 구속 영장 신청
+-  Poznato je odakle dolaze napadači? Oglasio se ISIL: ‘Naši borci su se sigurno vratili u svoju bazu‘
+-  شاهد فرحة لاعبي المنتخب الوطني والأنصار بعد تسجيل غويري الهدف الأول أمام بوليفيا
+-  17 sayıdan dönen Fenerbahçe 1 sayı farkla yenildi!
+-  Власти десятков стран выразили соболезнования и осудили теракт в Москве
+-  Teror u Moskvy konsternoval Evropu. Strašlivé, reagoval Bílý dům
