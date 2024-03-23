@@ -1,11 +1,11 @@
 # Latest News
--  Dólar fecha em alta a R$ 4,99 em linha com exterior, mas tem estabilidade na semana
--  Военные РФ уничтожили беспилотники над Воронежской и Белгородской областями
--  Gençlerbirliği futbolcuların borcunu ödedi, transfer yasağından kurtuldu
--  Williams down to one car after Albon crash
--  Tips Gigi dan Mulut Sehat Selama Puasa
--  Objava princeze od Walesa stigla je mjesec i pol nakon one kralja Charlesa III
--  Tokat'ta Down sendromlu kız çocukları ile annelerine ücretsiz cilt bakımı
--  Congressman Steven Horsford Secures $500,000 in Funding for the New West Las Vegas Library Construction
--  Dow записа най-силната си седмица от началото на годината въпреки дневния спад
--  Marquez impresses despite crash in Portugal practice
+-  Princ Harry i Meghan se oglasili o dijagnozi Kate Middleton...
+-  Teroristický útok u Moskvy si podle ruských úřadů vyžádal nejméně 40 mrtvých
+-  Berichte: Trump kehrt mit Medien-Deal an Börse zurück
+-  Megnevezte az orosz kormányzat is a terrortámadás elkövetőit
+-  Ibovespa cai 0,88% aos 127 mil pontos com temor fiscal e expectativa de Selic maior
+-  Berichte: Trump kehrt mit Medien-Deal an Börse zurück
+-  La “solita” Pallacanestro Trieste non sa battere le big in trasferta: a Torino rimedia un centello
+-  Zahlreiche Belastungsfaktoren der Tesla-Aktie: Tesla-Durststrecke bald beendet?
+-  UN chief Guterres to visit Gaza border on Saturday
+-  영국 왕세자빈, 암 진단 받아…"2월 말부터 화학요법"
