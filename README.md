@@ -1,11 +1,11 @@
 # Latest News
--  环球下周看点：鲍威尔携联储众票委来袭 美重磅通胀数据即将揭晓
--  Chủ tịch Tân Hoàng Minh khóc, xin lỗi người mua trái phiếu và những điều đáng chú ý trong lời nói sau cùng
--  Erick Thohir Beri Peringatan: Sepak Bola Negara-negara Asia Tenggara Sudah Meningkat
--  Danse avec les stars : Nouveau favori ? Énorme surprise, une candidate 1ère du classement après avoir frôlé l'élimination
--  خلف العديد من القتلى والجرحى.. المملكة المغربية تدين هجوم موسكو
--  2 cổ phiếu tăng 710% và 185% trong 4 năm, có khả năng sắp chia tách: Nhà đầu tư dài hạn có thể cân nhắc ‘món hời đáng giá’ này
--  Yüzde 5 vergi indiriminden yararlanabilecek gelir vergisi mükellefleri
--  Ukrayna: Moskova'daki saldırıda yer aldığımız yönündeki suçlamaları reddediyoruz
--  ALKÜ’de 'Su Yönetimi Çalıştayı' yapıldı
--  Luis Díaz desdibuja a España (0-1)
+-  엔비디아, AI 의료 로봇 개발…"간호사보다 뛰어나"
+-  Por que as baterias térmicas estão emocionando Bill Gates?
+-  Van Hooijdonk fluit Wijnaldum terug na opmerking over examen in Oranje
+-  Faustão respira sem ajuda de aparelhos e ainda se adapta a novo rim, diz hospital
+-  Mauro Cid sai preso após depoimento no STF
+-  Faustão respira sem ajuda de aparelhos e ainda se adapta a novo rim, diz hospital
+-  Faustão respira sem ajuda de aparelhos e ainda se adapta a novo rim, diz hospital
+-  Pasa Robinho primera noche en cárcel de casos de gran repercusión
+-  Bully Ray Defends Mercedes Mone’s Comments On Her Reported Big Money AEW Deal
+-  Grieving Aryna Sabalenka retains focus to see off Paula Badosa in Miami Open
