@@ -1,11 +1,11 @@
 # Latest News
--  Ünlü gazeteciden şok Alanya iddiası: Yabancı emlak mafyası cinayetler işliyor
--  Kesan Jay Idzes Bermain di Hadapan 57.690 Penonton: Luar Biasa!
--  Come al Bataclan, al raduno rock vicino Mosca, a Manchester: le altre stragi ai concerti
--  AZAL Moskvadan yola düşənlərə MÜRACİƏT ETDİ
--  Enis Bardhi’nin mücadelesi yetmedi!
--  Fiyatlar uçtu, Türkiye'nin turizm cenneti hayalet şehre dönüştü
--  Karogs rokās un uz priekšu! «Radio Naba» mūzikas topa jaunumi
--  L’Fsb nel mirino, tutti i buchi nei servizi segreti russi nell’attentato alla Crocus City Hall
--  Erikoinen tulkinta terrori-iskusta leviää Venäjän mediassa – eivät usko Isisin osallisuuteen
--  FSB: Podezřelí z útoku měli údajně kontakty na ukrajinské straně
+-  Tendencias y perspectivas macroeconómicas para el 2024
+-  Filiz Ceritoğlu Sengel Halk Buluşmasında Projelerini Anlattı
+-  Jesús Taboada, propietario de Casa Taboada en Viveiro: «Os domingos e os festivos son os días nos que máis vendemos»
+-  Üniversite hocaları yabancı öğrenci sorununun perde arkasını anlattı. Amfilerde neler oluyor?
+-  Sa thải HLV Troussier, VFF không cần đền bù khi nào?
+-  Patrimonio anziano prosciugato, badante condannata nel Ravennate
+-  В Беларуси меняется закон о рекламе. К чему готовиться блогерам и простым пользователям соцсетей
+-  "Una tassa da pagare, ma non fanno più ascolto": Antonio Ricci stronca le Veline
+-  Cem Kotan: ''Muhittin başkanımızın koyduğu hizmet çıtasını yükselteceğiz''
+-  İki otomobilin çarpıştığı kazada 2 kişi yaralandı
