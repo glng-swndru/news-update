@@ -1,11 +1,11 @@
 # Latest News
--  Judge denies nonprofit lawsuit to stop Mass. stadium renovation project
--  A admirável Heloïse Huthart
--  पावरप्ले में काफी विकेट गंवा दिये, 15-20 रन और बनाने चाहिए थे : RCB Captain
--  Moskova'daki terör saldırısına ilişkin Putin'e bilgi verildi
--  PGN : Pipa Jargas Bojonegoro-Lamongan Aman, Tak Terdampak Gempa Tuban
--  Moscow Gunmen Attack: মস্কোর কনসার্ট হলে বন্দুকবাজদের হামলা, মৃত ৬০-এর বেশি !
--  Andrea Legarreta sufre la pérdida de su sobrino tras accidente de motocicleta
--  Tòa nhà chọc trời chống động đất 9 độ richter tại Nhật Bản
--  Sérsveitin kölluð til og maður hand­tekinn í Hag­kaup
--  Así reaccionan las redes acerca de la pronunciación de Alejandra Jaramillo desmintiendo cobro de póliza de Efraín Ruales
+-  川口春奈、ありのままの手の写真を公開「頑張り屋さんの手」などの声
+-  Пострадавшие в Crocus City Hall c тяжелыми ожогами госпитализированы в НИИ Склифосовского
+-  Fitch'ten dikkat çeken İngiltere kararı
+-  守秘義務は？大谷翔平と妻の「婚前契約」報道に弁護士業界が騒然
+-  舒華相隔2個月更新IG！ 性感透紗「現身太魯閣」：我很好
+-  大谷翔平と妻の「婚前契約」報道に弁護士業界も騒然「守秘義務はどうなってる？」(弁護士ドットコムニュース)
+-  نتيجة حربها في غزة..الولايات المتحدة "قلقة" على سمعة إسرائيل
+-  У Росії горить ще один НПЗ – соцмережі
+-  Irjen Karyoto Siapkan Skema Pengamanan di Jakarta saat Ditinggal Mudik Lebaran Warganya
+-  TP.HCM vinh danh 11 nữ doanh nhân xuất sắc và nổi bật
