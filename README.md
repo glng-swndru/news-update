@@ -1,11 +1,11 @@
 # Latest News
--  沖縄国際大ヘリ墜落事故から20年 米軍機の民間地墜落事故を想定し日米で合同訓練 消火・救護手順や規制線の設定法等を確認 沖縄・嘉手納(The News Lens Japan)
--  I compared Lindt chocolate bunnies to Aldi, M&S, Asda and Sainsbury's and I'll never buy two again
--  At Least 60 Killed, 100 Injured in Mass Shooting Outside Moscow
--  Exército dos EUA ataca três instalações huthis no Iêmen
--  Khu công nghiệp 6.300 tỷ đồng ở miền núi phía Bắc sắp khởi công
--  충북대 의대 학장단 5명 전원 보직 사임…“의대 증원 항의 표시”
--  Более 60 погибших, оружие и множество патронов. Следственный комитет показал место теракта в «Крокус Сити Холле»
--  World Climate Day Special | जगाला रेड अलर्ट : अस्वस्थता निर्देशांक वाढला
--  ரஷிய பயங்கரவாத தாக்குதல் - பிரதமர் மோடி கண்டனம்
--  Duke, Vermont coaches discuss underdog-favored crowd at March Madness: 'The roof would've came off this place'
+-  マツダのスポーティSUV「CX-60」で行くゴルフは快適？ 改良で乗り心地が良化!? “ゴルフ場への移動”がストレスフリーに(VAGUE)
+-  Phong tỏa gấp công trường phát hiện ''kho tiền'' sâu 1.500m dưới lòng đất, công nghệ cao vào cuộc
+-  Episode Terbaru Bima S Season 2 Part 3 Betrayer di MNCTV
+-  無料なのに全然お得じゃない!?「無料車検」って一体なに(バイクのニュース)
+-  DA Tshwane caucus spokesperson Kwena Moloto loves his hair and his city
+-  VFF lên tiếng về chuyện chia tay HLV Troussier
+-  틱톡 쓰면 나도 몰래 중국 스파이 된다? 美 퇴출 임박
+-  Análisis: el desatino de la desinformación sobre los aumentos de las tarifas
+-  Irish Bella Ungkap Alasan Makin Sibuk Sejak Bercerai dari Ammar Zoni
+-  贈賄で逮捕の建設業者 入札資格停止の措置期間が12カ月以上へ 三重県の新コンプライアンス規定(三重テレビ放送)
