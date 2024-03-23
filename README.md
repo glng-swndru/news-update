@@ -1,11 +1,11 @@
 # Latest News
--  Ümitler hazırlık maçında güldü
--  MAJKA MIONE JOVANOVIĆ SE HITNO OBRATILA STANISLAVU! Učesnici ostali u potpuno šoku, Ša pobesneo
--  Теракт в "Крокус Сити Холле": главное на данный момент
--  El Gobierno condenó el ataque terrorista que dejó al menos 40 muertos en Moscú
--  Ankara'da tefecilik soruşturması: 11 tutuklama
--  Tales Of Kenzera: ZAU Helped Me Cope With My Own Loss
--  Calm restored in Pawlet after Banyai arrest
--  'I'm just a regular guy': Meet the B.C. man who just won $58M playing Lotto 6/49
--  Majer za Index: Dinamo će biti prvak iako je Rijeka trenutačno u najboljoj poziciji
--  Doğu Perinçek'ten Moskova saldırısı açıklaması: Zaferi engelleme şansları yok
+-  Mercato : Un crack a signé au PSG, il hallucine
+-  İlham Əliyev Putinə başsağlığı verib
+-  Yayıncı Cem Kıran Moskova saldırısının ayrıntılarını anlattı
+-  Got $3,000? 1 Stocks to Build TFSA Wealth in the Next 3 Years
+-  Moskovadaki silahlı saldırganlara yönelik operasyon devam ediyor
+-  West Kelowna residents approve borrowing up to $8M for new fire hall
+-  Infortunio Maignan: decisione presa per Francia Germania, le ULTIME sul portiere del Milan
+-  Podoljak: Ukrajnának semmi köze a moszkvai támadáshoz
+-  Belaukiant prezidento sprendimo dėl Kasčiūno, politologė primena: daugelio politikų biografija „spalvinga“
+-  Peoples Financial Services Corp. and FNCB Bancorp, Inc. Announce Receipt of Shareholder Approval for Merger
