@@ -1,11 +1,11 @@
 # Latest News
--  Universo WcDonald’s: la fiebre del anime conquista la realidad
--  SPNB perkenal cat insulasi panas guna sekam padi
--  МЧС: тушение очагов пожара в «Крокус Сити Холле» займет ещё полтора-два часа
--  Passage suspended over A55 was visited by urban explorers who vowed never to return
--  First-time suppliers happy with TLN’s speed networking event
--  Bursa Osmangazi Belediye Başkanı Dündar: Vatandaşlarımızın desteğiyle hizmete devam edeceğiz
--  Один из зрителей обезвредил террориста в «Крокус Сити Холл» и спас десятки человек
--  LIVE GAZA. Nieuwe stemming over Amerikaanse resolutie voor staakt-het-vuren uitgesteld
--  Tere Bin 2: Makers of Wahaj Ali, Yumna Zaidi starrer share BTS from season 1; fans go gaga over their adorable off-screen bond
--  Mehmet Çetinkaya dinleyenleri şok etti: "Karabük açık hava genelevine döndü"
+-  IPL 2024: KKR vs SRH WhatsApp status to share and download
+-  Лукашенко подтвердил высокую заинтересованность Беларуси в интенсификации контактов с Пакистаном
+-  Экипажи корабля "Союз МС-25" в резервный день старта проводили из гостиницы в Байконуре на космодром
+-  ΗΠΑ:«Επιβεβαιώνουν» την ευθύνη του Ισλαμικού Κράτους για την επίθεση στη Μόσχα
+-  8 ilde eş zamanlı operasyon: 24 DEAŞ'lı yakalandı
+-  Один из зрителей «Крокус Сити Холла» обезвредил террориста
+-  آزادسازی اراضی کشاورزی میلیاردی در ساری
+-  Reklam amaçlı olarak yüzünün çalındığını iddia etti! "İlişki hapları tanıttığım bir reklamda kullanıldı"
+-  Saudi Pro League, si cambia: meno spese per volere della famiglia reale
+-  PUAN SİLME VE KÜME DÜŞÜRME KALDIRILDI!
