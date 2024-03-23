@@ -1,11 +1,11 @@
 # Latest News
--  뷔의 고백 通했다…‘프렌즈’, 英 오피셜 싱글 차트서 자체 최고 성적
--  Hạn chế nhập khẩu “siêu thực phẩm” cho nhà giàu, Trung Quốc làm dự án chưa từng có, sản lượng 50 tấn/năm
--  西谷監督が“甲子園最多タイ”の68勝目…大阪桐蔭なぜ今年も強い？ 節目の大舞台で先発《154キロ右腕》平嶋桂知が「背番号1」を背負う“納得のワケ”
--  Đáy đại dương đang bị xé toạc ngoài khơi Canada
--  آج کی تراویح میں پڑھے جانے والے قرآن ِ پا ک کی تفہیم
--  El tiempo en Arroyo de la Luz: previsión meteorológica para hoy, sábado 23 de marzo
--  【早报】国常会重磅部署 事关房地产；中通快递与峰飞航空签订V2000CG大型eVTOL航空器购机协议
--  МО РФ сообщило об уничтожении средств связи и наблюдения ВСУ под Артемовском
--  МО РФ сообщило об ударе по позициям ВСУ на донецком направлении
--  巨星农牧连续三年出栏增速超70% 产能释放遇上低迷周期致上市首亏|财报解读
+-  Khai mạc Amazing Binh Dinh Fest năm 2024
+-  Elvish Yadav Snake Venom Controversy: Munawar Faruqui reacts to Bigg Boss OTT 2 winner's release; says 'I am so...'
+-  Rocket surge back to steal two points in Belleville
+-  Cầu thủ bị HLV Troussier 'bỏ quên' ghi bàn duy nhất, U23 Việt Nam quật ngã 'gã khổng lồ' Nhật Bản, tạo địa chấn ở giải châu Á
+-  Akademisi Untad Ahlis Djirimu Dorong Pembangunan Hilirisasi Sawit di Sulawesi Tengah
+-  आईपीएल 2024 - चेन्नई सुपर किंग्स ने आरसीबी को 6 विकेट से हराया
+-  'Koboi' Mampang Ditangkap, Airsoft Gun dan Korek Pistol Disita Polisi
+-  Moscow Attack: ISIS ने ली आतंकी हमले की जिम्मेदारी, अब तक 60 की मौत, 145 से ज्यादा घायल
+-  「この山も一緒に登る」がん診断のキャサリン妃、弟が心のこもったメッセージで寄り添う
+-  Cómo jugaron los pibes de la Selección: Pérez fue de arranque, debutó el Colo Barco, Garnacho voló y Buonanotte mostró chispazos
