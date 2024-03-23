@@ -1,11 +1,11 @@
 # Latest News
--  Apple's plans for AI devices in China could involve Baidu
--  Rússia e China vetam na ONU a resolução dos EUA que pede cessar-fogo imediato em Gaza
--  «Им требуется оправдание перед народом»: итальянский военкор об эскалации конфликта со стороны Запада
--  Il voto al Consiglio di sicurezza dell'Onu: veto di Russia e Cina sulla risoluzione Usa per Gaza
--  Police Foil Robbery Attempt, Kill 3 Suspects In Rivers
--  Nível do mar subiu devido ao El Niño e às mudanças climáticas, diz Nasa
--  Ica återkallar te – fel på förpackningen
--  Uluslararası İlaç Kimyası Kongresi 12. kez düzenlendi
--  Savoie. Pourquoi 4 800 collégiens ont dégusté 240 kg de fromages de Savoie
--  Hunt for Britain's hidden 'Atlantis'... off the coast of Hull! Ancient island settlement of Ravenser Odd was swallowed by the North Sea nearly 700 years ago
+-  VfB Stuttgart: Rücktritt? So reagiert das VfB-Präsidium auf die Forderung der Fans
+-  Para Haddad, cortes do Fed podem ajudar BC a buscar Selic menor do que a projetada
+-  Sôi nổi Lễ hội thanh niên TP HCM 2024
+-  Para Haddad, cortes do Fed podem ajudar BC a buscar Selic menor do que a projetada
+-  Quay Lane in Reydon near Southwold to reopen after flooding
+-  En su reaparición, Kate Middleton habló del príncipe William y los rumores de infidelidad
+-  Ovaj film na platnu je ujedinio glumačke ikone iz svih generacija, bliži mu se premijera u Zagrebu
+-  Tomašević pohvalio obnovu Zagreba pa kritizirao ministra: "Nadam se da će država što prije to učiniti"
+-  Uživao je na godišnjem, otišao u Viroviticu, primijetio da nešto nije u redu s retrovizorom, a onda na servisu - šok!
+-  Πέθανε ο πρώην εισαγγελέας του Αρείου Πάγου Δημήτρης Λινός: Τα συλλυπητήρια του Α.Π.
