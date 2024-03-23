@@ -1,11 +1,11 @@
 # Latest News
--  Johns' Boys pays tribute to 'gentleman' Gareth Rawlinson
--  Localizan en Ciudad Real a una niña de 13 años embarazada y casada a la fuerza y detienen al marido y padres
--  Mit 51 Jahren: Hollywood-Schauspielerin Cameron Diaz zum zweiten Mal Mutter
--  Başkan Büyükkılıç, Kapalı Çarşı ve Camikebir esnafı ile buluştu
--  首や腹部に傷…入所者同士のトラブルか 養護老人ホームで70代男性2人死亡 福岡・北九州市
--  Megszólalt a magyar külügy arról, hogy vannak-e magyar áldozatai a moszkvai terrortámadásnak
--  Esad'dan Putin'e taziye mesajı
--  The North West Company, Inc. Résultats du quatrième trimestre et conférence téléphonique
--  تعرض أطراف عيتا الشعب ورامية لقصف مباشر
--  44 человека находятся в тяжелом состоянии после теракта в "Крокус сити холле"
+-  Ünlü gazeteciden şok Alanya iddiası: Yabancı emlak mafyası cinayetler işliyor
+-  Kesan Jay Idzes Bermain di Hadapan 57.690 Penonton: Luar Biasa!
+-  Come al Bataclan, al raduno rock vicino Mosca, a Manchester: le altre stragi ai concerti
+-  AZAL Moskvadan yola düşənlərə MÜRACİƏT ETDİ
+-  Enis Bardhi’nin mücadelesi yetmedi!
+-  Fiyatlar uçtu, Türkiye'nin turizm cenneti hayalet şehre dönüştü
+-  Karogs rokās un uz priekšu! «Radio Naba» mūzikas topa jaunumi
+-  L’Fsb nel mirino, tutti i buchi nei servizi segreti russi nell’attentato alla Crocus City Hall
+-  Erikoinen tulkinta terrori-iskusta leviää Venäjän mediassa – eivät usko Isisin osallisuuteen
+-  FSB: Podezřelí z útoku měli údajně kontakty na ukrajinské straně
