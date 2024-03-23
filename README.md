@@ -1,11 +1,11 @@
 # Latest News
--  Macaristan Başbakanı Viktor Orban, Brüksel'de savaş atmosferi olduğunu söyledi
--  Dalla Via (Intesa), 'da AI criticità su etica e protezione dati'
--  100 years of RCAF: High Flying Facts - 03
--  Francesca Curmi reaches doubles final in Cyprus tennis tournament
--  Aumento a jubilados y pensionados ANSES: ¿cuánto cobro en abril?
--  Egyre lejjebb csúszik Balog Zoltán – De nem az ereszen
--  Rapper Bushido feiert Comeback in Berlin
--  Trump's social media company will go public after merger with shell company is approved
--  Musik: Rapper Bushido feiert Comeback in Berlin
--  Rusya ve Çin, Gazze ateşkesini veto etti
+-  雪碧護友「游否希不是壞人」 喊話受害者報警：拍片像小朋友吵架
+-  Documentaristi a convegno a Milano su come leggere gli archivi
+-  Centro de Recolha Animal de Oliveira do Bairro já tem carrinha de apoio
+-  Macron: Varaju se svi koji misle da će se Rusija zaustaviti na Krimu
+-  Zahlenwerk insgesamt noch positiv
+-  La direttrice Ue Veronica Manfredi: ormai la siccità sta toccando un po' tutta l'Europa
+-  Retenciones en salidas de Madrid y complicaciones en Valdepeñas y Maqueda en la Operación Salida Semana Santa
+-  “Tüketici Haklarının Korunması ve Piyasa Gözetimi Forumu” düzenlendi
+-  Pagati meno di 4 euro all'ora e senza riposo, non è sfruttamento del lavoro. Imprenditore assolto
+-  Juliano Cazarré atualiza estado da filha após procedimento para trocar cânula
