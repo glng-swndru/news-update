@@ -1,11 +1,11 @@
 # Latest News
--  ЛНЗ – Минай. Прогноз и анонс на матч чемпионата Украины
--  Google lança mostra virtual em homenagem aos 200 anos do Senado brasileiro
--  Google lança mostra virtual em homenagem aos 200 anos do Senado brasileiro
--  Eutoub Senegal - Amadou BA en XXL pour convaincre
--  Eutoub Senegal / Amadou Bâ en mode XXL pour convaincre
--  Bik Karlskoga sänkte Södertälje i förlängning
--  Justiça aceita pedido de recuperação judicial do Dia Brasil
--  Justiça aceita pedido de recuperação judicial do Dia Brasil
--  أكياس اللبن وقارورات المياه يعرضها أحد التجار أمام أشعة الشمس.. شاهد كيف تعامل معه أعوان الرقابة
--  GALERIE: Premiéra očekávaného filmu Havel! Kdo všechno dorazil?
+-  Mr. Jorge Álvarez Rendón Merida chronicler dies at 77
+-  Hockey sur Glace - Ligue Magnus. « On a perdu le fil du match » : Grenoble surpris par Bordeaux, le gardien des Boxers impitoyable
+-  Alkollü motosiklet sürücüsü kaldırıma çıkıp direğe çarptı
+-  Руководство Королевства Бахрейн решительно осудило теракт в «Крокус Сити Холле»
+-  ‘Cayla’s Kitchen’ segment features Spicy Pike Sandwiches
+-  NASA Johnson Space Center to Host Visit by Texas Governor Greg Abbott
+-  Meloni-Macron, da Kiev ai dubbi su Ursula von der Leyen: al consiglio Ue il bilaterale dopo gli screzi
+-  BMKG Pastikan Penyeberangan Laut di Pulau Jawa Aman Setelah Gempa Beruntun
+-  Estado Islâmico reivindica autoria de ataque que matou 40 pessoas em Moscou
+-  Disfata/Kuqezinjtë e nisin vitin me humbje 0-3 përballë amerikano-latinëve të Kilit
