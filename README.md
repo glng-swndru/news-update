@@ -1,11 +1,11 @@
 # Latest News
--  Mercato : Un crack a signé au PSG, il hallucine
--  İlham Əliyev Putinə başsağlığı verib
--  Yayıncı Cem Kıran Moskova saldırısının ayrıntılarını anlattı
--  Got $3,000? 1 Stocks to Build TFSA Wealth in the Next 3 Years
--  Moskovadaki silahlı saldırganlara yönelik operasyon devam ediyor
--  West Kelowna residents approve borrowing up to $8M for new fire hall
--  Infortunio Maignan: decisione presa per Francia Germania, le ULTIME sul portiere del Milan
--  Podoljak: Ukrajnának semmi köze a moszkvai támadáshoz
--  Belaukiant prezidento sprendimo dėl Kasčiūno, politologė primena: daugelio politikų biografija „spalvinga“
--  Peoples Financial Services Corp. and FNCB Bancorp, Inc. Announce Receipt of Shareholder Approval for Merger
+-  Dólar fecha em alta a R$ 4,99 em linha com exterior, mas tem estabilidade na semana
+-  Военные РФ уничтожили беспилотники над Воронежской и Белгородской областями
+-  Gençlerbirliği futbolcuların borcunu ödedi, transfer yasağından kurtuldu
+-  Williams down to one car after Albon crash
+-  Tips Gigi dan Mulut Sehat Selama Puasa
+-  Objava princeze od Walesa stigla je mjesec i pol nakon one kralja Charlesa III
+-  Tokat'ta Down sendromlu kız çocukları ile annelerine ücretsiz cilt bakımı
+-  Congressman Steven Horsford Secures $500,000 in Funding for the New West Las Vegas Library Construction
+-  Dow записа най-силната си седмица от началото на годината въпреки дневния спад
+-  Marquez impresses despite crash in Portugal practice
