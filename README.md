@@ -1,11 +1,11 @@
 # Latest News
--  Çanakkale'de 112 Motorize ekipleri hayat kurtaracak
--  "Città senza confini”: costruire comunità inclusive e promuovere pari opportunità, incontro a Bari
--  Sanità, Sansavini (Gruppo Villa Maria): “Vogliamo investire ancora sul territorio”
--  Chú rể ở Lạng Sơn nhập viện nguy kịch, cô dâu mắt đỏ hoe trao nhẫn cưới khiến y bác sĩ rớt nước mắt
--  La Liga'nın en değerli 20 futbolcusu açıklandı: İlk 6'nın tamamı Real Madrid'den
--  Число погибших в результате теракта в «Крокусе» выросло
--  Baia di Sistiana e Portopiccolo, i beni dei Fari venduti per ricavare 2 milioni a favore dei creditori
--  Türkiye'nin ilk uçak fabrikası HÜRJET'i kanatlandıracak
--  Dan Morega, după ce a fost internat din nou la Psihiatrie: Eu mă lupt cu mafia! Doctorii îmi dau pastile de liniștire
--  OpenAI kreće u osvajanje Hollywooda
+-  Mega Millions jackpot grows to $1.1B after no grand prize win - New York Post
+-  GRACE MUGABE SUCKED INTO LAND ROW
+-  Сенат США ухвалив бюджетний пакет для уникнення шатдауну
+-  Cele trei indicii ale implicării serviciilor secrete subordonate lui Putin în atacul terorist de la Moscova. Observațiile unui analist rus
+-  Lok Sabha Elections: मध्यप्रदेश में उम्मीदवार ने 25 हजार रुपये की जमानत राशि ऐसे की जमा, तरीका जानकर रह जाएंगे हैरान
+-  Ekspert: Odpowiedzią Rosji na atak terrorystyczny pod Moskwą będzie "ekstremalna przemoc"
+-  Siloam Hospitals Bali Raih Penghargaan dari Dinas Pemadam Kebakaran
+-  Why is Cammy Kerr enjoying a change of role at Caley Thistle?
+-  Russia detains suspects after a Moscow concert hall attack leaves at least 93 dead
+-  Grave in ospedale pedone travolto in via San Giovannino
