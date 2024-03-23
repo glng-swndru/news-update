@@ -1,11 +1,11 @@
 # Latest News
--  Vụ khủng bố ở Moscow: Giải cứu 12 người Việt về nhà an toàn
--  ΑΚΕΛ: Βαθύτατη θλίψη για τον θάνατο του κορυφαίου Νίκου Χαραλάμπους
--  Военно-Грузинскую дорогу открыли для легковушек и автобусов
--  Doctor Who'nun yeni sezon tarihi belli oldu
--  Neon Genesis Evangelion: modelo mexicana cativa seus fãs com um cosplay de Asuka Langley
--  Konzervatívne investície začali vďaka vysokým sadzbám opäť zarábať
--  원희룡 "민주당, 계양을 25년 방치해놓고 2년 된 정부탓"
--  Hermès é alvo de ação por restringir venda da Birkin
--  ‘Miami Bici 2‘: Kraljevstvo za Borata, komedija o dvojici Rumunja u Americi kandidat je za listu najgorih filmova godine
--  【速報】ガンバロウズ、75－90で鹿児島に苦杯
+-  Szentkirályi Alexandra: Budapestnek nincs újabb öt éve hamis ígéretekre (videó)
+-  Blinkit delivers gujiya mould in JUST 3 minutes, CEO Albinder Dhinsa reacts
+-  Taşıt kredisi sınırları değişti
+-  Lokführer bemerkte Aufprall - Über 400 Fahrgäste stranden nach Unfall in Tunnel
+-  Özgür Özel: Süleyman Soylu Türkiye'de 2 Kişiye Kafayı Taktı!
+-  SKANDAL U JUTARNJEM PROGRAMU Jovana Jeremić pobesnela, pa žestoko zapretila u emisiji uživo: "NEKO ĆE DA ODGOVARA"
+-  Onlookers tackle driver allegedly attempting to flee serious crash
+-  Szentkirályi Alexandra: Budapestnek nincs újabb öt éve hamis ígéretekre (videó)
+-  Szentkirályi Alexandra: Budapestnek nincs újabb öt éve hamis ígéretekre (videó)
+-  “Agrietada”, una obra sobre dos hermanas en busca de su identidad: En este contexto se potencia el mensaje
