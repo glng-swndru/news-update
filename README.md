@@ -1,11 +1,11 @@
 # Latest News
--  Onda выпустила материнскую плату с LGA 1700, оснащённую слотами для памяти DDR4 и DDR5
--  Türkeli'de Ormancılık Haftası etkinlikleri
--  Fietsster en auto botsen in Waalwijk, fietsster lichtgewond
--  Beşiktaş, genç oyuncusu ile profesyonel sözleşme imzaladı
--  Rural Britons furious as new report issues warning over £15bn Vodafone and Three merger
--  Klara wyprowadziła Roberta Lewandowskiego na boisko. My patrzymy na jej stopy
--  VIDEO | 80 anni fa l'eccidio delle Fosse Ardeatine: la cerimonia con il presidente Mattarella
--  IIT Guwahati’s algorithm to encode brain networks of healthy humans, patients with Parkinson’s
--  قطاع المهن الحرة في "تيار المستقبل" أعلن دعمه ترشيح بيار جعارة لمركز نقيب المهندسين في بيروت
--  Untersiemau: Leinenpflicht bröckelt
+-  Governo do Japão promete seguir trabalhando com BoJ para derrotar a deflação
+-  Polisi Buru Pelaku Perampokan Minimarket di Simalungun yang Sebabkan Karyawan Luka Bacok
+-  Subotica: Gradonačelnik Bakić prisustvovao obeležavanju Dana Hemijsko-tehnološke škole
+-  Stuttgarter Polizei sucht Zeugen: Auto geht nach Unfall in Flammen auf –Schwerverletzte Fahrerin rettet sich
+-  Jack Black Is Ready For School Of Rock Sequel And Suggests A Great Title For It
+-  Friendly: Morocco vs Angola predicted lineups
+-  مكتب الصحة بالمهرة يختتم الدورة التدريبية في معالجة حالات الإسهال المائي الحاد ومكافحة العدوى
+-  Stuttgarter Polizei sucht Zeugen: Auto geht nach Unfall in Flammen auf –Schwerverletzte Fahrerin rettet sich
+-  Almanya’da esrar kullanımı yasallaştı
+-  Il settore privato paga di più: i regolatori non trovano talenti per l'IA. Fatica anche il Garante per la privacy
