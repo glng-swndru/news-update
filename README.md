@@ -1,11 +1,11 @@
 # Latest News
--  Khai mạc Amazing Binh Dinh Fest năm 2024
--  Elvish Yadav Snake Venom Controversy: Munawar Faruqui reacts to Bigg Boss OTT 2 winner's release; says 'I am so...'
--  Rocket surge back to steal two points in Belleville
--  Cầu thủ bị HLV Troussier 'bỏ quên' ghi bàn duy nhất, U23 Việt Nam quật ngã 'gã khổng lồ' Nhật Bản, tạo địa chấn ở giải châu Á
--  Akademisi Untad Ahlis Djirimu Dorong Pembangunan Hilirisasi Sawit di Sulawesi Tengah
--  आईपीएल 2024 - चेन्नई सुपर किंग्स ने आरसीबी को 6 विकेट से हराया
--  'Koboi' Mampang Ditangkap, Airsoft Gun dan Korek Pistol Disita Polisi
--  Moscow Attack: ISIS ने ली आतंकी हमले की जिम्मेदारी, अब तक 60 की मौत, 145 से ज्यादा घायल
--  「この山も一緒に登る」がん診断のキャサリン妃、弟が心のこもったメッセージで寄り添う
--  Cómo jugaron los pibes de la Selección: Pérez fue de arranque, debutó el Colo Barco, Garnacho voló y Buonanotte mostró chispazos
+-  沖縄国際大ヘリ墜落事故から20年 米軍機の民間地墜落事故を想定し日米で合同訓練 消火・救護手順や規制線の設定法等を確認 沖縄・嘉手納(The News Lens Japan)
+-  I compared Lindt chocolate bunnies to Aldi, M&S, Asda and Sainsbury's and I'll never buy two again
+-  At Least 60 Killed, 100 Injured in Mass Shooting Outside Moscow
+-  Exército dos EUA ataca três instalações huthis no Iêmen
+-  Khu công nghiệp 6.300 tỷ đồng ở miền núi phía Bắc sắp khởi công
+-  충북대 의대 학장단 5명 전원 보직 사임…“의대 증원 항의 표시”
+-  Более 60 погибших, оружие и множество патронов. Следственный комитет показал место теракта в «Крокус Сити Холле»
+-  World Climate Day Special | जगाला रेड अलर्ट : अस्वस्थता निर्देशांक वाढला
+-  ரஷிய பயங்கரவாத தாக்குதல் - பிரதமர் மோடி கண்டனம்
+-  Duke, Vermont coaches discuss underdog-favored crowd at March Madness: 'The roof would've came off this place'
