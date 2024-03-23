@@ -1,11 +1,11 @@
 # Latest News
--  Governo do Japão promete seguir trabalhando com BoJ para derrotar a deflação
--  Polisi Buru Pelaku Perampokan Minimarket di Simalungun yang Sebabkan Karyawan Luka Bacok
--  Subotica: Gradonačelnik Bakić prisustvovao obeležavanju Dana Hemijsko-tehnološke škole
--  Stuttgarter Polizei sucht Zeugen: Auto geht nach Unfall in Flammen auf –Schwerverletzte Fahrerin rettet sich
--  Jack Black Is Ready For School Of Rock Sequel And Suggests A Great Title For It
--  Friendly: Morocco vs Angola predicted lineups
--  مكتب الصحة بالمهرة يختتم الدورة التدريبية في معالجة حالات الإسهال المائي الحاد ومكافحة العدوى
--  Stuttgarter Polizei sucht Zeugen: Auto geht nach Unfall in Flammen auf –Schwerverletzte Fahrerin rettet sich
--  Almanya’da esrar kullanımı yasallaştı
--  Il settore privato paga di più: i regolatori non trovano talenti per l'IA. Fatica anche il Garante per la privacy
+-  Macaristan Başbakanı Viktor Orban, Brüksel'de savaş atmosferi olduğunu söyledi
+-  Dalla Via (Intesa), 'da AI criticità su etica e protezione dati'
+-  100 years of RCAF: High Flying Facts - 03
+-  Francesca Curmi reaches doubles final in Cyprus tennis tournament
+-  Aumento a jubilados y pensionados ANSES: ¿cuánto cobro en abril?
+-  Egyre lejjebb csúszik Balog Zoltán – De nem az ereszen
+-  Rapper Bushido feiert Comeback in Berlin
+-  Trump's social media company will go public after merger with shell company is approved
+-  Musik: Rapper Bushido feiert Comeback in Berlin
+-  Rusya ve Çin, Gazze ateşkesini veto etti
