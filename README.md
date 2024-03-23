@@ -1,11 +1,11 @@
 # Latest News
--  Tepid Nike outlook dents shares
--  Study demonstrates safe reduction of lymph node removal in breast cancer patients
--  Widmo wojny z Rosją? Szef Komitetu Wojskowego NATO zadeklarował gotowość
--  Дисконт Urals к Brent в расчете нефтяных налогов увеличен с $15 до $20 за баррель с января
--  Şüpheli sıfatıyla ifade verdi! Canan Kaftancıoğlu'ndan 'gayrimeşru kayıt' açıklaması
--  Alleged squatters suspected of murdering NYC woman arrested in Pennsylvania
--  North Korea vs Japan World Cup qualifier to take place at neutral venue
--  My Block: The rural Wisconsin town that became the 'Cheese Capital of the World'
--  King Charles 'worries about his legacy' amid cancer battle
--  Hamburgery z groźną bakterią! Ich spożycie grozi zatruciem! Najnowsze ostrzeżenia GIS 22.03.2024
+-  CHP Alanya'dan flaş pankart hamlesi! Suç duyurusunda bulundu
+-  Na obniżki stóp procentowych poczekamy do przyszłego roku
+-  Deutsche Bahn zu Stuttgart 21: Kopfbahnhof soll auch 2026 noch in Betrieb sein
+-  У Полтаві відкрився центр рекрутингу для ЗСУ
+-  Uspjeh karijere hrvatske judašice i to točno godinu nakon operacije
+-  Rakojević: Moramo da igramo puno brže i jednostavnije
+-  Arte, Pesaro 24 ospita la performance 'Spark' di Daan Roosegaarde
+-  Arte, Pesaro 24 ospita la performance 'Spark' di Daan Roosegaarde
+-  These are the noise cancelling earbuds Samsung fans should use instead of AirPods
+-  Port of Vancouver boasts record cargo volume, despite strike and cooling economy
