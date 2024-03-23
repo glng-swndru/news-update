@@ -1,11 +1,11 @@
 # Latest News
--  МБАППЕ: «Когда мне будет о чем объявить, я сделаю это как мужчина»
--  Breiðablik gerði jafntefli við lið úr efstu deild í Þýskalandi
--  Global fertility rates may become too low to sustain population levels, study says
--  Ten kandydat na burmistrza Kamiennej Góry podbija sieć. Obiecuje każdemu kebab, jak wygra
--  Hautes-Alpes. Train de nuit Paris-Briançon : «Convaincre l’État de s’engager sur ce sujet»
--  "Чи намагатимуться росіяни далі руйнувати ДніпроГЕС? Я б не виключав такого варіанту розвитку подій", - науковець Михайло Ромащенко
--  Brasil atinge 2 milhões de casos prováveis de dengue
--  Congreso Latinoamericano de Coaching ICF Argentina 2024
--  Canopy Growth’s stock doubles to record weekly gain after Germany votes to legalize pot
--  Nike izazvao bijes kod Engleza zbog novog dresa: Svima smeta jedan bitan detalj
+-  Закъснение за 5 млн. лв.: ремонтът на ул. "Шести септември" приключва над година по-късно
+-  Stuttgart 21: Was Stadt, Land und Region bei Stuttgart 21 von der Bahn wissen wollen
+-  'Família É Tudo': Lupita é presa
+-  Stuttgart 21: Was Stadt, Land und Region bei Stuttgart 21 von der Bahn wissen wollen
+-  Kamala Harris marks first visit to Puerto Rico as vice president, riling some in the US territory
+-  Hubert Dubielczyk (82) zog seine toten Kumpel aus dem Schutt: „Dann kamen mir die Tränen“
+-  Kamala Harris marks first visit to Puerto Rico as vice president, riling some in the US territory
+-  Susana Pecoy: "Nuestro gobierno comprende la lógica del sector, lo apoya desde el principio y lo seguirá haciendo"
+-  Dalić uoči sudara u Kairu: ‘On je jedan od najboljih, šteta što svijet neće vidjeti okršaj njega i Modrića‘
+-  All creatures great and small - Kamo vet Grant Macpherson on life as a rural vet in Northland
