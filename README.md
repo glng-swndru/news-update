@@ -1,11 +1,11 @@
 # Latest News
--  Kriti Kharbanda reveals Pulkit Samrat always carries tampons with him; netizens have mixed reactions
--  Moscow concert hall shooting: Graphic video shows terrorists firing into crowd as 12 dead
--  Sjutra pretežno sunčano, do 20 stepeni
--  Dhananjaya, Kamindu rescue Sri Lanka after disastrous start in first Test
--  "ZA UBISTVO STARCA U ZATVORU ON SNOSI NAJVEĆU ODGOVORNOST" Stručnjaci i bivši robijaš ukazali na JEDNU osobu iz zatvorskog OSOBLJA
--  Lotto e 10eLotto, estrazione di venerdì 22 marzo 2024: i numeri vincenti
--  Diagnose im Fokus - Diagnose Borderline: Wie man die Erkrankung erkennt
--  Πρωτοβουλία για την υγεία - Ο Μαρινάκης υποδέχτηκε τον Σούνακ στο γήπεδο της Νότιγχαμ Φόρεστ (Βίντεο)
--  PM hits out at Kate social media conspiracy theorists as he praises her bravery
--  Prozess gegen Jugendliche wegen Angriffs mitten in Gmünd: Kann das LKA noch helfen?
+-  Kevin O Chris adianta o que vai tocar no Lollapalooza: 'sons que fizeram a história do funk'
+-  Europei U.21: Italia-Lettonia 2-0
+-  Polícia recupera veículo roubado no centro de Sinop; ladrões dominaram mulher
+-  El Obradoiro y el Breogán miden sus pulsaciones y sus urgencias en el derbi
+-  Ovos de Páscoa tem variação de até 89% no valor em Campo Grande
+-  Prognoze katastrofalne! Rusi objavili nove brojke masakra u Moskvi: Više od 40 nastradalo, preko 100 ranjeno
+-  Kevin O Chris adianta o que vai tocar no Lollapalooza: 'sons que fizeram a história do funk'
+-  Moskvadakı terrorda zərərçəkənlərin sayı 140-a yüksəldi
+-  Shooting and explosion reported inside concert hall in Moscow region
+-  Europei U.21: Italia-Lettonia 2-0
