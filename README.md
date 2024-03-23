@@ -1,11 +1,11 @@
 # Latest News
--  Tendencias y perspectivas macroeconómicas para el 2024
--  Filiz Ceritoğlu Sengel Halk Buluşmasında Projelerini Anlattı
--  Jesús Taboada, propietario de Casa Taboada en Viveiro: «Os domingos e os festivos son os días nos que máis vendemos»
--  Üniversite hocaları yabancı öğrenci sorununun perde arkasını anlattı. Amfilerde neler oluyor?
--  Sa thải HLV Troussier, VFF không cần đền bù khi nào?
--  Patrimonio anziano prosciugato, badante condannata nel Ravennate
--  В Беларуси меняется закон о рекламе. К чему готовиться блогерам и простым пользователям соцсетей
--  "Una tassa da pagare, ma non fanno più ascolto": Antonio Ricci stronca le Veline
--  Cem Kotan: ''Muhittin başkanımızın koyduğu hizmet çıtasını yükselteceğiz''
--  İki otomobilin çarpıştığı kazada 2 kişi yaralandı
+-  Hamza Dağ'dan Özgür Özel'e: "Seçim yaklaştıkça CHP'nin en kısa süreli genel başkanı olma korkusu var"
+-  Adli: "Sono come un giocatore di scacchi che muove i pezzi giusti al momento giusto"
+-  Ασύλληπτη τραγωδία στη Μόσχα: Τουλάχιστον 115 νεκροί μετά το μακελειό στο εμπορικό κέντρο
+-  Tận dụng thế mạnh ‘trời cho’ để nâng tỉ trọng vận tải hàng hải, đường thủy lên 50%
+-  To oni zaatakowali pod Moskwą. Do Rosjan dociera ponura prawda, że ich państwo jest słabe
+-  Steven Knight açıkladı: Cillian Murphy, Peaky Blinders'ın filminde rol alacak mı?
+-  ГЕРБ: Защо Васил Терзиев предложи 18 частни имота в Южен Парк за изкупуване?
+-  Бившата на Влахович му показа какво е изпуснал
+-  Sumo: Asanoyama pauses rookie Takerufuji's historic title tilt
+-  Akaryakıt fiyatları yine değişti, bu kez indirim geldi! İşte güncel fiyatlar
