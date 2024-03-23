@@ -1,11 +1,11 @@
 # Latest News
--  雪碧護友「游否希不是壞人」 喊話受害者報警：拍片像小朋友吵架
--  Documentaristi a convegno a Milano su come leggere gli archivi
--  Centro de Recolha Animal de Oliveira do Bairro já tem carrinha de apoio
--  Macron: Varaju se svi koji misle da će se Rusija zaustaviti na Krimu
--  Zahlenwerk insgesamt noch positiv
--  La direttrice Ue Veronica Manfredi: ormai la siccità sta toccando un po' tutta l'Europa
--  Retenciones en salidas de Madrid y complicaciones en Valdepeñas y Maqueda en la Operación Salida Semana Santa
--  “Tüketici Haklarının Korunması ve Piyasa Gözetimi Forumu” düzenlendi
--  Pagati meno di 4 euro all'ora e senza riposo, non è sfruttamento del lavoro. Imprenditore assolto
--  Juliano Cazarré atualiza estado da filha após procedimento para trocar cânula
+-  Apple's plans for AI devices in China could involve Baidu
+-  Rússia e China vetam na ONU a resolução dos EUA que pede cessar-fogo imediato em Gaza
+-  «Им требуется оправдание перед народом»: итальянский военкор об эскалации конфликта со стороны Запада
+-  Il voto al Consiglio di sicurezza dell'Onu: veto di Russia e Cina sulla risoluzione Usa per Gaza
+-  Police Foil Robbery Attempt, Kill 3 Suspects In Rivers
+-  Nível do mar subiu devido ao El Niño e às mudanças climáticas, diz Nasa
+-  Ica återkallar te – fel på förpackningen
+-  Uluslararası İlaç Kimyası Kongresi 12. kez düzenlendi
+-  Savoie. Pourquoi 4 800 collégiens ont dégusté 240 kg de fromages de Savoie
+-  Hunt for Britain's hidden 'Atlantis'... off the coast of Hull! Ancient island settlement of Ravenser Odd was swallowed by the North Sea nearly 700 years ago
