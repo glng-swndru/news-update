@@ -1,11 +1,11 @@
 # Latest News
--  竞争激烈·5G开销大 固网营运商更有赚头
--  Trista vädertrenden fortsätter – så blir det i helgen
--  Schulen in Mönchengladbach ohne Internet: Wann das Glasfaserkabel am Europaplatz repariert wird
--  Aston Martin poaches Bentley CEO in new shake up
--  Coupe du Maire – Dames 2024 : Detenteur du trophée, le DUC croise Flying Star, et la finaliste malheureuse l’ASCVD affronte le SIBAC, en huitième de finale
--  Mass Upanayana
--  Concurso ISS Barra Mansa: salário inicial de R$ 1.3 mil
--  Champions League in TV und Live-Stream am 09.04.: So sehen Sie die Viertelfinals Arsenal vs. Bayern und Real vs. Manchester City live
--  Obrona cywilna w Polsce. Szefowie MON i MSWiA przekazali ważne informacje
--  Obrona cywilna w Polsce. Szefowie MON i MSWiA przekazali ważne informacje
+-  6% minder vis aangevoerd door Belgische vissers: inktvis voor het eerst meest gevangen soort
+-  Hangrutsch neben dem Aalener Ostalb-Klinikum entwurzelt Bäume
+-  Lopez suona la carica: «Bari, niente scherzi»
+-  Rückblick auf Schulteswahl in Freiberg/Neckar: Die Wahl in Freiberg setzt ein deutliches Zeichen für die Region
+-  George Cross awarded to mine disposal expert buried alive in Blitz could fetch £120k
+-  World Water Day 2024: TV9 Network, Livpure partner to spread awareness on clean drinking water
+-  Bežný účet platobnej bilancie Grécka sa vrátil do prebytku
+-  Çalışkan öncelikli hedefini açıkladı: Konut sorununu kökten çözeceğiz!
+-  МО на Русия: Руските въоръжени сили нанесоха 49 ответни удара за седмица в отговор на обстрел и опити за пробив на ВСУ - Труд
+-  Gazastreifen: Uno-Sicherheitsrat kann sich nicht auf Waffenruhe einigen
