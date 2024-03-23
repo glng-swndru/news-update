@@ -1,11 +1,11 @@
 # Latest News
--  ‘Afscheid nemen nog moeilijk’. Hermina Hoekstra gaat na 34 jaar met pensioen bij Zorggroep Noorderboog
--  Maldives-India | రుణ భారం నుంచి రిలీఫ్ ఇవ్వండి.. భారత్ ను కోరిన మాల్దీవుల అధ్యక్షుడు మొయిజ్జు
--  Ataque terrorista en Rusia deja 40 muertos y más de 100 heridos
--  Kiểm tra huấn luyện diễu binh kỷ niệm Chiến thắng Điện Biên Phủ
--  Özel'den Hamza Dağ'a: "Mustafa Kemal'e 'ayyaş' diyen adamın yardımcısı sen değil misin?"
--  На 22 март отбелязваме Световния ден на водата под мотото „Вода за мир“ - Труд
--  Blinken, l'attacco a Rafah isolerebbe ancor di più Israele
--  Borsa: Milano tira il fiato (+0,05%), rimbalza Nexi
--  48 giờ ở Bình Thuận
--  CHP'li Lütfü Savaş'a sahnede saldırı
+-  МБАППЕ: «Когда мне будет о чем объявить, я сделаю это как мужчина»
+-  Breiðablik gerði jafntefli við lið úr efstu deild í Þýskalandi
+-  Global fertility rates may become too low to sustain population levels, study says
+-  Ten kandydat na burmistrza Kamiennej Góry podbija sieć. Obiecuje każdemu kebab, jak wygra
+-  Hautes-Alpes. Train de nuit Paris-Briançon : «Convaincre l’État de s’engager sur ce sujet»
+-  "Чи намагатимуться росіяни далі руйнувати ДніпроГЕС? Я б не виключав такого варіанту розвитку подій", - науковець Михайло Ромащенко
+-  Brasil atinge 2 milhões de casos prováveis de dengue
+-  Congreso Latinoamericano de Coaching ICF Argentina 2024
+-  Canopy Growth’s stock doubles to record weekly gain after Germany votes to legalize pot
+-  Nike izazvao bijes kod Engleza zbog novog dresa: Svima smeta jedan bitan detalj
