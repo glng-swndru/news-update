@@ -1,11 +1,11 @@
 # Latest News
--  6% minder vis aangevoerd door Belgische vissers: inktvis voor het eerst meest gevangen soort
--  Hangrutsch neben dem Aalener Ostalb-Klinikum entwurzelt Bäume
--  Lopez suona la carica: «Bari, niente scherzi»
--  Rückblick auf Schulteswahl in Freiberg/Neckar: Die Wahl in Freiberg setzt ein deutliches Zeichen für die Region
--  George Cross awarded to mine disposal expert buried alive in Blitz could fetch £120k
--  World Water Day 2024: TV9 Network, Livpure partner to spread awareness on clean drinking water
--  Bežný účet platobnej bilancie Grécka sa vrátil do prebytku
--  Çalışkan öncelikli hedefini açıkladı: Konut sorununu kökten çözeceğiz!
--  МО на Русия: Руските въоръжени сили нанесоха 49 ответни удара за седмица в отговор на обстрел и опити за пробив на ВСУ - Труд
--  Gazastreifen: Uno-Sicherheitsrat kann sich nicht auf Waffenruhe einigen
+-  Onda выпустила материнскую плату с LGA 1700, оснащённую слотами для памяти DDR4 и DDR5
+-  Türkeli'de Ormancılık Haftası etkinlikleri
+-  Fietsster en auto botsen in Waalwijk, fietsster lichtgewond
+-  Beşiktaş, genç oyuncusu ile profesyonel sözleşme imzaladı
+-  Rural Britons furious as new report issues warning over £15bn Vodafone and Three merger
+-  Klara wyprowadziła Roberta Lewandowskiego na boisko. My patrzymy na jej stopy
+-  VIDEO | 80 anni fa l'eccidio delle Fosse Ardeatine: la cerimonia con il presidente Mattarella
+-  IIT Guwahati’s algorithm to encode brain networks of healthy humans, patients with Parkinson’s
+-  قطاع المهن الحرة في "تيار المستقبل" أعلن دعمه ترشيح بيار جعارة لمركز نقيب المهندسين في بيروت
+-  Untersiemau: Leinenpflicht bröckelt
