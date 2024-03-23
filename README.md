@@ -1,11 +1,11 @@
 # Latest News
--  VfB Stuttgart: Rücktritt? So reagiert das VfB-Präsidium auf die Forderung der Fans
--  Para Haddad, cortes do Fed podem ajudar BC a buscar Selic menor do que a projetada
--  Sôi nổi Lễ hội thanh niên TP HCM 2024
--  Para Haddad, cortes do Fed podem ajudar BC a buscar Selic menor do que a projetada
--  Quay Lane in Reydon near Southwold to reopen after flooding
--  En su reaparición, Kate Middleton habló del príncipe William y los rumores de infidelidad
--  Ovaj film na platnu je ujedinio glumačke ikone iz svih generacija, bliži mu se premijera u Zagrebu
--  Tomašević pohvalio obnovu Zagreba pa kritizirao ministra: "Nadam se da će država što prije to učiniti"
--  Uživao je na godišnjem, otišao u Viroviticu, primijetio da nešto nije u redu s retrovizorom, a onda na servisu - šok!
--  Πέθανε ο πρώην εισαγγελέας του Αρείου Πάγου Δημήτρης Λινός: Τα συλλυπητήρια του Α.Π.
+-  Tepid Nike outlook dents shares
+-  Study demonstrates safe reduction of lymph node removal in breast cancer patients
+-  Widmo wojny z Rosją? Szef Komitetu Wojskowego NATO zadeklarował gotowość
+-  Дисконт Urals к Brent в расчете нефтяных налогов увеличен с $15 до $20 за баррель с января
+-  Şüpheli sıfatıyla ifade verdi! Canan Kaftancıoğlu'ndan 'gayrimeşru kayıt' açıklaması
+-  Alleged squatters suspected of murdering NYC woman arrested in Pennsylvania
+-  North Korea vs Japan World Cup qualifier to take place at neutral venue
+-  My Block: The rural Wisconsin town that became the 'Cheese Capital of the World'
+-  King Charles 'worries about his legacy' amid cancer battle
+-  Hamburgery z groźną bakterią! Ich spożycie grozi zatruciem! Najnowsze ostrzeżenia GIS 22.03.2024
