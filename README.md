@@ -1,11 +1,11 @@
 # Latest News
--  Delhi Police To Crack Down On Drunken Driving, Red-Light Jumping On Holi
--  Foot : peu inspirés, les Bleus assommés à domicile par l'Allemagne
--  Sans idée, la France se fait punir par l'Allemagne en amical
--  Almanya, Fransa'yı devirdi
--  Od šljokica do kože: Ovo su sve modne kombinacije pjevača na 31. dodjeli nagrade Porin...
--  Sans idée, la France se fait punir par l'Allemagne en amical
--  Oktagon na stadionu v Německu. 55 tisíc diváků další motivací Vémoly?
--  Sans idée, la France se fait punir par l'Allemagne en amical
--  Sans idée, la France se fait punir par l'Allemagne en amical
--  Sans idée, la France se fait punir par l'Allemagne en amical
+-  National 2 : Chamalières a su aller chercher un précieux succès devant Hyères
+-  Эммануэль «Рокки» Макрон. Снимки президента-боксера вызвали противоречивую реакцию во Франции
+-  Dal Dora al Chiusella il commercio cresce e lavora insieme all’imprenditoria
+-  Reuters: в Белом доме утверждают, что Киев не имеет отношения к теракту в Красногорске
+-  Nuovo Piano regolatore Le proposte dei cittadini fino al 20 di maggio
+-  National 2 : Chamalières a su aller chercher un précieux succès devant Hyères
+-  Oggi l’addio a Firmina Fey storica bidella delle medie e appassionata allevatrice
+-  Rivarolo omaggia la custode della storia Mariuccia Manzone
+-  יו"ר הפועל ת"א: "אירוע מזוויע", ינאי: "מיציתי את 'להתבייש'"
+-  Caluso mette in vendita anche la ex scuola della frazione Rodallo
