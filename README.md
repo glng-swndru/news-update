@@ -1,11 +1,11 @@
 # Latest News
--  «إبهار» تعتزم إطلاق معارض ومشاريع متميزة
--  PREDSEDNIČKI IZBORI U SLOVAČKOJ: Pelegrini ubedljivo vodi, u drugom krugu suočavanje sa Korčokom
--  Blake Lively pede desculpas por piada com foto editada de Kate Middleton
--  انتقالي الحوطة يدشن توزيع السلل الغذائية لأسر الشهداء بالمديرية
--  Quack running clinic in chawl booked
--  Blake Lively pede desculpas por piada com foto editada de Kate Middleton
--  Blake Lively pede desculpas por piada com foto editada de Kate Middleton
--  30 promesas 2024: Yaydoo, una solución para reducir gastos
--  Charkhi Dadri News: वन रक्षकों के 82 फीसदी पद खाली, हरियाली पर चल रही आरी...
--  8.7L students to appear for SSLC exam tomorrow; phones banned
+-  Nông dân Cà Mau xây dựng nhiều mô hình kinh tế tập thể từ Quỹ Hỗ trợ nông dân
+-  Decades After Sean Penn Helped Make Vans Explode In Popularity Thanks To Fast Times At Ridgemont High, The Owner Found A Way To Thank Him
+-  MOSKVA, DAN POSLE Najmanje 133 ubijeno - potraga se nastavlja, uhapšeni teroristi strani državljani
+-  16 arrested in connection with Al Shabaab SYL Hotel attack
+-  서리(Seori), '은하수를 삼킨 밤의 입김' 로킹해졌네
+-  ریزش ارز ژاپن ادامه دارد؟
+-  Vasas razočaran, Jugaši oduševljeni: ‘Ovo su utakmice s kojima momčad raste!‘. Doznali smo kad je ždrijeb četvrtfinala Eurocupa
+-  В Белом доме снова заявили о непричастности Киева к теракту
+-  Nagpur-bound car catches fire, all 4 passengers escape unhurt
+-  Yamuna Nagar News: चिराग योजना में छाया अंधेरा, सीटों का ब्योरा देने में संजीदा नहीं स्कूल
