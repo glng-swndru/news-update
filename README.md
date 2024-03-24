@@ -1,11 +1,11 @@
 # Latest News
--  Voľby prezidenta: Brodili sa v bahne aj volili. Mladý rybár vníma, ako politika rozdeľuje rodiny
--  BV 24/7. Achter de schermen van het Schlagerfestival en Gert Verhulst en Koen Crucke klinken op vriendschap
--  Xiaomi 14 review: Compact smartphone with high-end performance
--  تعليق استخدام تيليغرام في إسبانيا مؤقتاً.. فما السبب؟
--  Coast Guard, Ahousaht remove dangerous boats (BC)
--  Números do Datafolha mostram que bandeira do aborto está longe da sociedade
--  İş İnsanı Kenan Ateş'in gözüyle Said-i Nursi
--  Murat Kurum: Gece gündüz sözünü tutan başkan olacağız
--  Sau Vĩnh Phúc đến Kiên Giang, Quảng Nam: Việt Nam bắt đầu xử lý lãnh đạo tín nhiệm thấp
--  Без да знаете, така разрушавате бъбреците си
+-  Yamaçtan Kopan Kayalar Otomobile Hasar Verdi
+-  Kaczyński z przewrotnym „komplementem” dla rządzących. „Są w tym bardzo dobrzy”
+-  МЧС России опубликовало список погибших в теракте в "Крокус сити холле"
+-  Kaczyński z przewrotnym „komplementem” dla rządzących. „Są w tym bardzo dobrzy”
+-  Kaczyński z przewrotnym „komplementem” dla rządzących. „Są w tym bardzo dobrzy”
+-  Boy, 12, arrested after teen girl stabbed - Kent Online
+-  इपिक कार्ड नहीं है तो 12 अन्य वैकल्पिक पहचान दस्तावेज दिखा कर भी कर सकेंगे मतदान
+-  Domenica delle Palme, al via la Settimana Santa: processione con il vescovo Morrone
+-  Sirius mötte Brage – här är betygen på alla spelare
+-  Süper Lig'e kariyer rekoru kıran yıldız için Montella'ya ağzına geleni söyledi: Yazıklar olsun hocam
