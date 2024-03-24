@@ -1,11 +1,11 @@
 # Latest News
--  Se ne va Maurizio Pollini, addio al poeta del pianoforte
--  Израиль вызывал турецкого посла после того, как Эрдоган угрожал Нетаниягу
--  "Shutdown" abgewendet: Im letzten Moment: US-Senat verabschiedet Haushaltspaket
--  Shukra Gochar 2024: मार्च में इस दिन शुक्र करेंगे राशि परिवर्तन, इन राशियों का भाग्य चमकेगा
--  Доц. Искрен Иванов: Атентатът в Москва можеше да бъде избегнат, ако властта бе послушала службите на САЩ
--  Moskova saldırısındaki saldırgan sorgulandı: Türkiye'den mi geldi?
--  Prawda o relacjach w domu Świątek. Ojciec w końcu to wyznał
--  "Shutdown" abgewendet: Im letzten Moment: US-Senat verabschiedet Haushaltspaket
--  Терористите са аватар на мощна специална служба - Труд
--  A14 westbound near Newmarket closed due to overturned HGV
+-  INTERPOL: Rusya'nın yürüttüğü soruşturmaya destek vermeye hazırız
+-  Doznajemo: Pajač je Draganu Olujić prijavio i policiji, kamera nije ‘iz ruke‘. Evo zašto snimka možda nije cjelovita
+-  우크라 "모스크바 테러와 무관…러 주장 터무니없어"
+-  Rakam değil can! Gazze'de öldürülenlerin sayısı 32 bin 142'ye yükseldi
+-  Coast Guard, Ahousaht remove dangerous boats
+-  Anschlag in Moskau: Suche nach dem Motiv: Warum Terroristen des Islamisches Staats Russland angreifen
+-  Anschlag in Moskau: Suche nach dem Motiv: Warum Terroristen des Islamisches Staats Russland angreifen
+-  Présidentielle 2024 - Le Cudis invite à choisir le meilleur dirigeant
+-  Altında yeni moda belli oldu!
+-  Rusya: Ukrayna, Avrupa'da terörizmin yayılmasının merkezi haline döndü
