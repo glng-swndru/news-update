@@ -1,11 +1,11 @@
 # Latest News
--  Sprinklers and drip irrigation help Iraqis beat drought
--  "Không phải iPhone, đây là món đồ tôi mua 5 năm rồi mà không hề muốn thay mới": Thật đáng kinh ngạc!
--  Akankah Shin Tae-yong Turunkan Semua Pemain Naturalisasi Timnas Indonesia di Kandang Vietnam?
--  Озвучені збитки енергосистеми України від атак РФ
--  Makna dan Keistimewaan Ayat Seribu Dinar, Begini Cara Amalkan Surat At Talaq di Bulan Ramadhan
--  BANG JAGO, Koboi Jalanan Todongkan Pistol ke Pengendara Lain
--  프로야구 23일 개막전, 5개 구장 모두 매진 사례
--  [기고]미래 먹거리 생명공학 시급한 대한민국
--  케이메디허브, 신약 유효물질의 타깃 분석 서비스 출시
--  बिहार में भाकपा माले दिखायेगी दम, जेएनयू छात्र सहित आयेंगे देश भर से 40 स्टार कैंपेनर
+-  BJP MP Ramesh accused no. 1 in Rs 450-crore forgery case
+-  آنتونف : حملات تروریستی و ترکیبی غرب تغییری در سیاست روسیه ایجاد نمی کند
+-  David Cubillán regresa a Trotamundos
+-  UAE conglomerate seeks intrude on China’s JCHX Zambian copper deal
+-  【33%OFF】Amazonで「Fire TV Stick 4K (第2世代)」がセール中
+-  Akhir Pekan, Harga Emas Antam Stagnan
+-  March Madness: No. 3 Illinois blows out No. 11 Duquesne to reach Sweet 16 for first time in nearly two decades
+-  Люди несут цветы к месту теракта
+-  Ngamar di Hotel Melati Saat Ramadan, Enam Pasangan Mesum di Cirebon Diciduk
+-  RR vs LSG Head To Head: राजस्थान के सामने घर पर होगी लखनऊ की चुनौती, अब तक ऐसा रहा रिकॉर्ड
