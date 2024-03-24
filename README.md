@@ -1,11 +1,11 @@
 # Latest News
--  LIVE | 'Russische kruisraket drong Pools luchtruim binnen'
--  DMO: Nigeria Paid $3.5bn To Service External Debt Stock Of $42.5bn In 2023
--  樂天新莊開幕門票賣6千張 大巨蛋3戰預售破1萬2
--  Fabiola, la exmujer de Bertín Osborne, estalla al conocer el test de paternidad: "No tiene..."
--  Büyükşehir’in eğitim kurumlarında ‘Etüt-Kütüphane’ dönemi
--  Phát hiện mới cho thấy nước từng tồn tại trên sao Hỏa cách đây gần 4 tỷ năm
--  Gisele Bündchen: 'Depresiju i napadaje panike sam uspjela riješiti promjenom prehrane'
--  Lava O2 Smartphone With 50MP Dual AI Camera Launched In India At Rs 7,999; Check Specs, Availability
--  Seyir halindeki otomobil alev alev yanmaya başladı
--  Мотошествие в подкрепа на хората с репродуктивни проблеми ще се проведе в София - Труд
+-  «Ενεργοποιήθηκε» η πολωνική αεροπορία μετά τη νέα μαζική επίθεση της Ρωσίας στην Ουκρανία
+-  Kemény hét elé néz a magyar kormány - Varga Mihálynak is el kell mondania az igazságot
+-  ŠTA JE PREVENTIVNA HEMIOTERAPIJA KOJOM SE PRINCEZA LEČI? Sastoji se od 3 faze, a evo kog kojih vrsta raka se najčešće primenjuje
+-  Wijkbewoners zamelen geld in om oude boerderij om te toveren tot Huis van de Wijk
+-  Potres 6.1 po Richteru pogodio Indoneziju
+-  ΑΠΟΕΛ: Παραμένει το φαβορί
+-  مالیاتی برای کاهش فشار بر بازار مسکن
+-  Toàn cảnh tuyến đường nối 2 quận trị giá 740 tỉ sau hơn 1 năm thi công
+-  „Ich spreche so, wie ich spreche, und das reicht mir!“
+-  „Ich brauche keinen Deutschunterricht!“
