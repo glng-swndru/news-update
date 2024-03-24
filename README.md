@@ -1,11 +1,11 @@
 # Latest News
--  Росія підняла стратегічну авіацію: в небі 14 літаків Ту-95МС
--  وفد من بنك اليمن والخليج يزور دار الايتام بعدن
--  支援物資を待つ住民にイスラエル軍の攻撃、１９人死亡 ガザ当局(CNN.co.jp)
--  Giảng viên Bách khoa nói về nhóm ngành có điểm chuẩn cao nhất HUST, 9 điểm/môn vẫn trượt, chưa ra trường đã được mời về làm việc
--  Contribution of 5 centrally-run cities to 2023 socio-economic development
--  Enjoying vegetarian pho in Hanoi
--  Holika Dahan 2024: होलिका दहन से जुड़ी लोक परंपराएं कब और कैसे शुरू हुई, जानिए पौराणिक और वैदिक इतिहास
--  北九州の老人ホームで男性２人死亡、何らかのトラブルか…第三者が関与の形跡なし
--  Microsoft prvi u svijetu premašio 3 bilijuna tržišne kapitalizacije
--  BEYOND LOCAL: Solar eclipses caused by fantastic celestial coincidence of scale and distance
+-  대통령실 "미복귀 전공의 면허정지, 절차대로 진행"
+-  Ở tuổi 65, vợ chồng tôi khổ sở không yên vì con cái: Giá như ngày xưa con xin tiền, hãy thông minh, sáng suốt mà nói câu này!
+-  「江戸川区で人気のラーメン」ランキング！ 2位は濃厚ながらすっきりとした味わいが魅力の「麺や えいちつー」、1位は？【2024年3月版】(ねとらぼ)
+-  குற்றாலம், புளியறையில் ரூ. 6.98 லட்சம் பறிமுதல்
+-  AI熱潮重演2000年泡沫？ 巴黎銀行點出關鍵「盈餘動能」差異
+-  コンテナ船がクレーンに突っ込む 「ぶつかった！倒れるぞ！」3基を次々と倒す トルコ
+-  Analysis-Google, Apple breakups on the agenda as global regulators target tech
+-  タイヤの前にある「謎のベロ」何のため!? 存在すら「気付いてなかった」声も！ めちゃ“地味”だけど「重要」なパーツの目的とは(くるまのニュース)
+-  Nhìn HLV Troussier, thấy bầu Đức đã đúng
+-  인제서 실종된 40대, 16시간 만에 야산 ‘방공호’서 발견
