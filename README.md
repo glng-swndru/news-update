@@ -1,11 +1,11 @@
 # Latest News
--  Região de Coimbra lidera projeto europeu que monitoriza impacto do turismo sustentável
--  Ötlinger Blitzstart ins Padel-Abenteuer
--  「大変なご支持と援助」U-23ウクライナ代表の監督が日本に感謝を伝える
--  Карпин отреагировал на теракт в «Крокусе»
--  Lollapalooza 2024: 2° dia é marcado por muita lama e 'roteiro perfeito' dos Titãs; leia balanço
--  Lollapalooza 2024: 2° dia é marcado por muita lama e 'roteiro perfeito' dos Titãs; leia balanço
--  Carlotta Sacerdote prima professoressa ordinaria universitaria in forze all'Asl di Novara
--  İstinat duvarı, gecekondunun üzerine devrildi
--  Schnee in Süddeutschland: Bis zu zehn Zentimetern gemessen
--  Doanh nghiệp địa ốc thay đổi chiến lược để thích nghi với xu hướng mới
+-  CİMER'e şikayeti sayesinde dünyaevine girdi Cumhurbaşkanım ben bu kızı istiyorum
+-  China verbannt AMD, Intel und Microsoft aus Regierungscomputern
+-  Projekt in Denkendorf: Gemeinschaftsschuppen statt vieler Hütten
+-  Lacagta Ay Real Madrid U Diyaarisay Afduubka Alexander-Arnold Oo La Shaaciyey
+-  Российские военные уничтожили в зоне СВО 11 крылатых ракет Storm Shadow
+-  China verbannt AMD, Intel und Microsoft aus Regierungscomputern
+-  Meta, yerel seçime hazır: Manipülasyonla mücadele ekibi kuruldu
+-  China verbannt AMD, Intel und Microsoft aus Regierungscomputern
+-  На зданиях белорусских диппредставительств в России приспущены флаги в знак солидарности с россиянами
+-  Lobotka, Il Mattino: "Il Barca gli offre il doppio del Napoli, le cifre"
