@@ -1,11 +1,11 @@
 # Latest News
--  ĐOKOVIĆU PORODICA ZNAČI VIŠE OD TENISA! Nasmijan pored Jelene i mora - zato je otkazao turnir! (FOTO)
--  Konobarica u Karlovcu palila šank, pa opekla par gostiju
--  RBI To Conduct Special Audit For Regulatory Breaches By IIFL Finance, JM Financial Products
--  Nagła zmiana planów w reprezentacji Polski. PZPN nie miał wyjścia
--  Karşıyaka Sahilinde bulunan 35 mülteci mahkemeye çıkarıldı!
--  Hennessey сделает из Dodge Challenger 1700-сильный гиперкар
--  I gioielli del rettorato di Trieste si svelano alle Giornate del Fai
--  Konobarica u Karlovcu palila šank, pa opekla par gostiju
--  Izvještaj o radu menadžera Opštine Tivat: Pobrić obezbijedila...
--  Nagła zmiana planów w reprezentacji Polski. PZPN nie miał wyjścia
+-  Декілька клубів МЛС зацікавилися нападником Шахтаря
+-  Stohl András kitálalt Eszenyi Enikőről: „Mindenkinek gyomorgörcse volt”
+-  Снежна буря в Заалбах донесе четвърти кристален глобус за Марко Одермат
+-  „Loriots dramatische Werke“ in der Komödie im Marquardt: Holleri du Dödel di
+-  Conductoras de plataforma capturaron a supuesto abusador
+-  UDST affirms commitment to innovation in sustainability
+-  Présidentielle 2024 - Ouakam : Une absence des mandataires des candidats constatée dans les bureaux de vote...
+-  Überschalljet XB-1 fliegt erstmals
+-  Vietnam aprecia prioridades de Comunidad Sociocultural de la ASEAN en 2024
+-  Tırtıklı bıçak nasıl bilenir? Ekmek bıçağı bilemenin en kolay ve doğru yolu
