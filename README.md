@@ -1,11 +1,11 @@
 # Latest News
--  "Ich hatte so viel Spaß": Stefano Zarrella über "Let's Dance"-Comeback
--  El enojo con "La sindicata" y el pedido por la "cabeza" del diputado: el duro descargo del sector de Olmos
--  TV: Se kapten Gredig fullborda Endre vändning
--  Bursa'da güpegündüz dehşet anları: Cezaevinden izinli çıktı, ablasını bıçakla rehin aldı!
--  Aos 51 anos, Cameron Diaz anuncia a chegada do segundo filho
--  Beşiktaş'ta Altan Öymen Kütüphanesi açıldı
--  Георги Глушков участва в заседание на управата на европейския баскетбол
--  David Štokinger izneo jasan stav: Samo je Srbija istinski neutralna u Evropi!
--  PBKS ने दिल्ली कैपिटल्स को 4 विकेट से दी मात, सैम करन ने खेली अर्धशतकीय पारी
--  "Ich hatte so viel Spaß": Stefano Zarrella über "Let's Dance"-Comeback
+-  Voľby prezidenta: Brodili sa v bahne aj volili. Mladý rybár vníma, ako politika rozdeľuje rodiny
+-  BV 24/7. Achter de schermen van het Schlagerfestival en Gert Verhulst en Koen Crucke klinken op vriendschap
+-  Xiaomi 14 review: Compact smartphone with high-end performance
+-  تعليق استخدام تيليغرام في إسبانيا مؤقتاً.. فما السبب؟
+-  Coast Guard, Ahousaht remove dangerous boats (BC)
+-  Números do Datafolha mostram que bandeira do aborto está longe da sociedade
+-  İş İnsanı Kenan Ateş'in gözüyle Said-i Nursi
+-  Murat Kurum: Gece gündüz sözünü tutan başkan olacağız
+-  Sau Vĩnh Phúc đến Kiên Giang, Quảng Nam: Việt Nam bắt đầu xử lý lãnh đạo tín nhiệm thấp
+-  Без да знаете, така разрушавате бъбреците си
