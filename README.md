@@ -1,11 +1,11 @@
 # Latest News
--  【クルマ好きが選ぶ】2023年度に注目を浴びたクルマ・ベスト100、90位～81位篇 メルセデスAMG、アウディRS、プジョー308とハンドリングが楽しいクルマが競い合う！(ENGINE WEB)
--  レクサス新型「小さな高級車」登場！ 全長4.2m級ボディに「クラス超え」上質さがスゴい！ 新型「LBX」の動画が公開に(くるまのニュース)
--  年々早まる「ラン活」 “ランドセル”はいつ購入したらいいの？ セイバンに聞いた商品選びのコツ(オトナンサー)
--  В ракетах, использованных РФ за одну атаку против энергосистемы Украины, было не менее 300 типов компонентов из десяти стран, - Зеленский
--  "Balotelli era un talento pazzesco ma senza cervello". Il retroscena
--  Infortunio Kjaer, tegola per il Milan! Pioli perde il danese, le ultime sulle condizioni
--  Zelensky: "Putin ci incolpa per l'attentato? Assolutamente prevedibile"
--  Affari tuoi su Rai1: scelta saggia per una coppia reggina, scampa la beffa finale e vince
--  Turtai ir galia, kurių nori Rusija: ką Kremlius gautų užėmęs Ukrainą
--  CGTP não tem dúvidas que "tem de aumentar a contestação"
+-  Silbereisen: Vor 200 Leuten spielen macht auch Spaß
+-  Europe’s far-right vows hard line on immigration, but cracks emerge
+-  استمرار هطول الأمطار على الشرقية.. و"الدفاع المدني" يحذر
+-  Belgio, Meunier: "Ci mancano gli automatismi. Il livello è aumentato un po' nel tempo"
+-  Fire funnet døde på adresse i Ål
+-  Silbereisen: Vor 200 Leuten spielen macht auch Spaß
+-  Γεωργία - Ελλάδα: Ο Πογέτ ετοιμάζει 11άδα που δεν θα έχει φοβερές διαφορές με αυτή με Καζακστάν (vids)
+-  صندوق الشهداء يواصل توزيع وجبات الإفطار في نجران
+-  تحذيرات طارئة لقيادات الصف الأول للحوثيين والقيادات الميدانية ووزارة الاتصالات بصنعاء تعمم المخاوف
+-  Bacaan Injil Katolik Hari Ini Minggu 24 Maret 2024, Perayaan Minggu Palma
