@@ -1,11 +1,11 @@
 # Latest News
--  Неделя започва със слънце, но по обяд идват облаци и ще нахлува студ
--  Princess of Wales ‘enormously touched’ by messages of support after cancer diagnosis - The Guardian
--  Phát hiện resort duy nhất của Việt Nam nhận liền 2 giải lớn quốc tế: Cách Hà Nội 300km, sở hữu con đường “vẽ tay” mang kỷ lục quốc gia
--  Prince William, Kate Middleton issue joint statement after major news
--  “외국인 친구와 제주올레 걸어요”···제주올레, 워킹메이트 자원봉사자 양성과정 모집
--  Princess of Wales 'enormously touched' by messages of support after cancer diagnosis - The Guardian
--  Murat Kurum İstanbullulara müjdeyi verdi!
--  Einige Einzelhändler wollen „Spuckschutz“ beibehalten
--  Starp bobsleju un motokrosu
--  Capitalise on second chance policy to forge brighter future, expert urges
+-  ארה"ב - MLS: פ.צ לוס אנג'לס - נאשוויל
+-  Tips Gaya Make Up Lebaran: Korean Natural Look yang Glam
+-  APA - N A C H R I C H T E N Ü B E R B L I C K
+-  Nasa erwartet Nova-Explosion: Ausbruch von der Erde aus zu sehen
+-  Smart farming: Integrating technology to tackle india’s nutritional crisis
+-  WHL roundup: Tulk paces Hitmen to 6-3 win over Broncos
+-  Biden oder Trump? Was der wahre amerikanische Traum ist
+-  A Hollywood se le ha puesto ‘cara de Ozempic’: por qué puedes parecer diez años mayor tras pincharte la droga de la delgadez
+-  Trabajo detecta un agujero de seis millones de euros en la facturación de conciertos por toda España
+-  Esther Acebo: “No sabes la ilusión que me hace que me reconozcan por algo distinto a ‘La casa de papel”
