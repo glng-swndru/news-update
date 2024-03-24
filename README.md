@@ -1,11 +1,11 @@
 # Latest News
--  Padres vow to fulfill late owner Seidler's dream of bringing a World Series title to San Diego
--  Польща має намір посилити присутність своєї армії на кордоні з Білоруссю
--  Nhân vật hai mặt gây sốc trên phim Việt giờ vàng
--  Holi 2024: Banks to remain closed in these states on March 25; check list here
--  Chủ tịch Quốc hội Vương Đình Huệ dự Lễ kỷ niệm 20 năm tái lập tỉnh Đắk Nông
--  Fueron 66 personas ‘levantadas’ en Culiacán; 24 continúan desaparecidos
--  Defence Minister Rajnath Singh to visit Siachen today, will celebrate Holi with military personnel
--  World News | Afghanistan: 3 Children Killed in Bullet Explosion in Helmand Province
--  Här skrotar Marcus Ericsson i kvalet
--  ¿Dónde está Vladimir Cerrón? el líder de Perú Libre cumple 170 días prófugo de la justicia
+-  Росія підняла стратегічну авіацію: в небі 14 літаків Ту-95МС
+-  وفد من بنك اليمن والخليج يزور دار الايتام بعدن
+-  支援物資を待つ住民にイスラエル軍の攻撃、１９人死亡 ガザ当局(CNN.co.jp)
+-  Giảng viên Bách khoa nói về nhóm ngành có điểm chuẩn cao nhất HUST, 9 điểm/môn vẫn trượt, chưa ra trường đã được mời về làm việc
+-  Contribution of 5 centrally-run cities to 2023 socio-economic development
+-  Enjoying vegetarian pho in Hanoi
+-  Holika Dahan 2024: होलिका दहन से जुड़ी लोक परंपराएं कब और कैसे शुरू हुई, जानिए पौराणिक और वैदिक इतिहास
+-  北九州の老人ホームで男性２人死亡、何らかのトラブルか…第三者が関与の形跡なし
+-  Microsoft prvi u svijetu premašio 3 bilijuna tržišne kapitalizacije
+-  BEYOND LOCAL: Solar eclipses caused by fantastic celestial coincidence of scale and distance
