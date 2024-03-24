@@ -1,11 +1,11 @@
 # Latest News
--  «Ενεργοποιήθηκε» η πολωνική αεροπορία μετά τη νέα μαζική επίθεση της Ρωσίας στην Ουκρανία
--  Kemény hét elé néz a magyar kormány - Varga Mihálynak is el kell mondania az igazságot
--  ŠTA JE PREVENTIVNA HEMIOTERAPIJA KOJOM SE PRINCEZA LEČI? Sastoji se od 3 faze, a evo kog kojih vrsta raka se najčešće primenjuje
--  Wijkbewoners zamelen geld in om oude boerderij om te toveren tot Huis van de Wijk
--  Potres 6.1 po Richteru pogodio Indoneziju
--  ΑΠΟΕΛ: Παραμένει το φαβορί
--  مالیاتی برای کاهش فشار بر بازار مسکن
--  Toàn cảnh tuyến đường nối 2 quận trị giá 740 tỉ sau hơn 1 năm thi công
--  „Ich spreche so, wie ich spreche, und das reicht mir!“
--  „Ich brauche keinen Deutschunterricht!“
+-  Former Indian Air Force chief Rakesh Kumar Singh Bhadauria joins BJP; who is he?
+-  Presiden Macron Dituduh Membahayakan Eropa
+-  Holi preparations: Mosques draped; streets ready for Ram Baraat in UP
+-  Prijava Ustavnom sudu - pokradeni izbori u Indoneziji: Odlazeći...
+-  Telangana Lok Sabha constituency 2024 elections: Know polling date, candidates, past results
+-  Napoli, scelto il nuovo difensore? "Circola una voce da Castel Volturno"
+-  Sainsu išlo "kao po loju", u ponovnom prekidu dominacije Red Bula...
+-  Alarmă la bordul unui avion Boeing 737. Mesajul FBI primit de pasageri care a stârnit panică
+-  Διπλή σεληνιακή Άλως εμφανίστηκε στον ουρανό της Λάρνακας (ΦΩΤΟ)
+-  リズムゲーム機の楽曲を複製 中国人の男を著作権法違反容疑で逮捕
