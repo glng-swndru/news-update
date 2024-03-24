@@ -1,11 +1,11 @@
 # Latest News
--  Euphorie! Aber wieso verkaufen die Insider so massiv?
--  Richmond, USA: Kurioser Anblick, ernster Hintergrund: Weshalb diese US-Tierpfleger in Virgina jetzt Fuchsmasken tragen
--  „Romano ist in einer super Form“: Österreichs Bundestrainer Rangnick schwärmt von Werder-Profi Schmid
--  IU每吃一口飯竟要嚼150次！牙齒不堪重負被醫生警告「住口」，自曝外賣愛點糖醋肉
--  Başkan Büyükkılıç: "Layık olmak için çaba göstereceğim"
--  Conversatorios
--  Ljudi gorjeli u klubu u Karlovcu, dvije djevojke teško ozlijeđene: 'Prijatelj mi se valjao u plamenu i borio za život'
--  Ned's Declassified stars apologize to Drake Bell after sexual joke mocking Quiet on Set
--  Koreografija sa Zvezdinog stadiona zgrozila svijet
--  Princess Kate 'coping better than you think' as expert reveals she planned video weeks ago
+-  Região de Coimbra lidera projeto europeu que monitoriza impacto do turismo sustentável
+-  Ötlinger Blitzstart ins Padel-Abenteuer
+-  「大変なご支持と援助」U-23ウクライナ代表の監督が日本に感謝を伝える
+-  Карпин отреагировал на теракт в «Крокусе»
+-  Lollapalooza 2024: 2° dia é marcado por muita lama e 'roteiro perfeito' dos Titãs; leia balanço
+-  Lollapalooza 2024: 2° dia é marcado por muita lama e 'roteiro perfeito' dos Titãs; leia balanço
+-  Carlotta Sacerdote prima professoressa ordinaria universitaria in forze all'Asl di Novara
+-  İstinat duvarı, gecekondunun üzerine devrildi
+-  Schnee in Süddeutschland: Bis zu zehn Zentimetern gemessen
+-  Doanh nghiệp địa ốc thay đổi chiến lược để thích nghi với xu hướng mới
