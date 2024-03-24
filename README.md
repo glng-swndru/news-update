@@ -1,11 +1,11 @@
 # Latest News
--  LG 염경엽 감독 “류현진, 개막전 컨디션 좋지 않았다”
--  PLATA 400 EVRA, OBUKA MOŽDA I 110 DANA Evo kako bi bi mogao da izgleda OBAVEZNI VOJNI ROK i kada pada konačna odluka
--  PLATA 400 EVRA, OBUKA MOŽDA I 110 DANA Evo kako bi bi mogao da izgleda OBAVEZNI VOJNI ROK i kada pada konačna odluka
--  金融業百萬年薪職缺來了 6大銀行MA徵才計畫一次看
--  Let us pray - Part 8
--  추미애, “차은우보다 이재명이 잘 생겨”…나경원에겐 “더 예뻐지세요”
--  మా ఊరు అంటే ఇష్టం!
--  Asuransi Proteksi Jiwa Terencana Plus: Inovasi Layanan Terbaru Sinergi dari BRI dan BRI Life
--  EC notifies scheme for Kashmiri migrants to vote in 2024 LS elections
--  Asuransi Proteksi Jiwa Terencana Plus: Inovasi Layanan Terbaru Sinergi dari BRI dan BRI Life
+-  Неделя започва със слънце, но по обяд идват облаци и ще нахлува студ
+-  Princess of Wales ‘enormously touched’ by messages of support after cancer diagnosis - The Guardian
+-  Phát hiện resort duy nhất của Việt Nam nhận liền 2 giải lớn quốc tế: Cách Hà Nội 300km, sở hữu con đường “vẽ tay” mang kỷ lục quốc gia
+-  Prince William, Kate Middleton issue joint statement after major news
+-  “외국인 친구와 제주올레 걸어요”···제주올레, 워킹메이트 자원봉사자 양성과정 모집
+-  Princess of Wales 'enormously touched' by messages of support after cancer diagnosis - The Guardian
+-  Murat Kurum İstanbullulara müjdeyi verdi!
+-  Einige Einzelhändler wollen „Spuckschutz“ beibehalten
+-  Starp bobsleju un motokrosu
+-  Capitalise on second chance policy to forge brighter future, expert urges
