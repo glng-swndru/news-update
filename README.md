@@ -1,11 +1,11 @@
 # Latest News
--  Genova, San Fruttuoso scende in piazza contro il degrado: “Vogliamo un quartiere più verde e sicuro”
--  Domenica ecologica a Roma, domani blocco delle auto: orari e mappa zone
--  Il 27 marzo a Potenza una raccolta straordinaria di plasma. Al via le prenotazioni
--  Domenica ecologica a Roma, domani blocco delle auto: orari e mappa zone
--  Prince William hinted at Kate Middleton's cancer battle on last public outing?
--  "Їм доведеться зробити ще більше": екс-чиновник Пентагону оцінив допомогу Європи Україні
--  Supporters van amateurclub planten vlak voor de derby een appelboom op middenstip van rivaal
--  Union Minister Nitin Gadkari’s advice to sons if they desire to join politics
--  Yapay zeka hangi meslekleri ortadan kaldıracak?
--  Top 10 cổ phiếu tăng/giảm mạnh nhất tuần: Cổ phiếu bất động sản "dậy sóng", hai mã tăng trên 70% sau một tuần
+-  Olanda, Van Dijk duro: "Dobbiamo migliorare se vogliamo fare qualcosa all'Europeo"
+-  Vecinos del B° San Fernando recibieron asesoramiento sobre trámites y gestiones municipales
+-  Mobilövervakade mordoffer – döms till livstid
+-  Калевска-Ванчева ја нема на кандидатските листи на СДСМ
+-  Nemecké bobistky sa stali víťazkami pretekov Svetového pohára
+-  Sold out o τελικός της Ελλάδας στη Γεωργία στην Τιφλίδα!
+-  SAD usvojio 1,2 bilijuna dolara vrijedan proračun, izbjegnuta blokada
+-  صبحية لمناسبة عيد الأم من تنظيم مركز دده في "القوّات"
+-  Comment une voix d'Hollywood est devenue la passionaria de la ligne Polt
+-  الصليب الأحمر يشيد بجهود سلطنة عمان الداعمة للسلام
