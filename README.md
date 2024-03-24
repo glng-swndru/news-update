@@ -1,11 +1,11 @@
 # Latest News
--  Streit am Borsigplatz eskaliert: Blutige Auseinandersetzung – womöglich Messer im Spiel
--  [ 🛑DIRECT ] EDITION SPECIALE / Présidentielle 2024: Jour de vote au Senegal !
--  Voditelj ‘Garaže Lapad‘ o prozivkama na račun cjenika: ‘Pravila su ista za sve, nema besplatne šetnje kroz garažu. A mjesta za parking uvijek ima, zadnji put smo bili puni kad je igrao film ‘50 nijansi sive‘...‘
--  HAK izdao upozorenje: Imamo dvije prometne nesreće na A1, jedna kod Gospića, druga blizu Benkovca, vozi se uz ograničenja!
--  Antalya'da dükkan sahibi ile seçim broşürü dağıtmak isteyenler arasında çıkan kavga ölümle sonuçlandı
--  İstanbul'da 6 kilo 225 gram uyuşturucu madde ele geçirildi
--  "Prima il mancato rinnovo, poi 7 giorni a letto...": Ferrari, lo sfogo di Carlos Sainz dopo il trionfo
--  Mladić s Muskovim čipom u mozgu napravio nešto nezamislivo: Prva objava na platformi X napisana mislima
--  Росія повторно атакувала Львівщину "Кинджалами": є "прильоти"
--  Meclis yarın yasama göreviyle toplanacak
+-  Diáspora haitiana no ve solución a crisis en Haití
+-  El Museo Termas de Río Hondo anunció sus horarios para Semana Santa
+-  La valorizzazione di Borgo Castello a Gorizia: una caffetteria alla Lanterna d’oro
+-  Mùa nóng nhưng giá máy lạnh giảm
+-  Starkbierfest: Live vom Palmator 2024 auf dem Adlersberg
+-  Izbornik Dalić otkrio što nije bilo dobro, ali i zbog koga je zabrinut
+-  İnternette 100 bin liraya 'satılık bebek' ilanı: "Borçlarım var"
+-  서울 송파구 탄천 인근 공터서 불…1명 사망
+-  Koalice věří, že Korčok udrží náskok. Člen vedení STAN nechce „rohožku Fica“
+-  No-Gos in der Gastro: Elf Dinge, die Gäste im Restaurant machen – und jeder Kellner hasst
