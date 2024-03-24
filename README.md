@@ -1,11 +1,11 @@
 # Latest News
--  INTERPOL: Rusya'nın yürüttüğü soruşturmaya destek vermeye hazırız
--  Doznajemo: Pajač je Draganu Olujić prijavio i policiji, kamera nije ‘iz ruke‘. Evo zašto snimka možda nije cjelovita
--  우크라 "모스크바 테러와 무관…러 주장 터무니없어"
--  Rakam değil can! Gazze'de öldürülenlerin sayısı 32 bin 142'ye yükseldi
--  Coast Guard, Ahousaht remove dangerous boats
--  Anschlag in Moskau: Suche nach dem Motiv: Warum Terroristen des Islamisches Staats Russland angreifen
--  Anschlag in Moskau: Suche nach dem Motiv: Warum Terroristen des Islamisches Staats Russland angreifen
--  Présidentielle 2024 - Le Cudis invite à choisir le meilleur dirigeant
--  Altında yeni moda belli oldu!
--  Rusya: Ukrayna, Avrupa'da terörizmin yayılmasının merkezi haline döndü
+-  Aygün Kazımovadan Röya ilə bağlı paylaşım
+-  Burno je, kažu, bilo na Županijskom HDZ-u: Nediljka Dujića predložio Grad Skradin, Željko Burić odbio ga staviti na listu
+-  Fenerbahçe'den açıklama: Biz onlara büyük geliriz, bizi yiyemezler
+-  Fiorentina, discorso di Commisso: "Torno negli USA, ci rivedremo tra poche settimane"
+-  Hasil Race 1 WorldSBK Catalunya 2024: Toprak Razgatlioglu Bawa BMW Menang
+-  Hürriyet’e doğum günü sürprizi
+-  Giorgetti, 'tassare le grandi multinazionali è necessario'
+-  Gaziantep'te korkunç kaza: Lütfiye Kökçin ve Suat Kökçin öldü
+-  ‘Dragon Ball’ theme park planned in Saudi Arabia
+-  BU routs Maine, advances to epic Hockey East championship clash vs. top-seeded BC
