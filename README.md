@@ -1,11 +1,11 @@
 # Latest News
--  Чизкейк з 3 інгредієнтів: легкий рецепт незвичайного йогуртового торта
--  Why free agency won’t rescue the Tigers or Pies (or nearly any AFL team)
--  Context is everything: Revisiting Chris Lilley’s Jonah after Leniu-Mam saga
--  'So many of us are parents': workplace discrimination lingers 30 years on
--  Context is everything: Revisiting Chris Lilley’s Jonah after Leniu-Mam saga
--  LIVE | Zwak België kan ook na rust geen vuist maken tegen stugge Ieren
--  Após temporal no RJ, 7 pessoas morreram e 90 foram resgatadas
--  Popular method of teaching reading and writing 'leaves learning to chance'
--  FOTO Učenici i djelatnici mostarske škole sudjelovali u utrci, imali su i svoje navijače
--  Sunday Age sport quiz: A flashback to ’96 at Albert Park and what do you do at Cape Kidnappers?
+-  Ierland geeft België huiswerk mee, Oranje’s EK-opponent Oostenrijk klopt Slowakije na droomstart
+-  Ierland geeft België huiswerk mee, Oranje’s EK-opponent Oostenrijk klopt Slowakije na droomstart
+-  Jsou v boxerském zápase, ale snaží se hrát šachy. Analytik podrobil slovenskou opozici kritice
+-  غوتيريش: الفلسطينيون يعيشون كابوسا لا ينتهي
+-  Ирландия и Белгия не успяха да си вкарат в контрола
+-  Milanović se obrušio na HDZ: 'Kriminalna banda falsificirala moju izjavu i krenula plašiti'
+-  Levice zdolali basketbalistov Iskry Svit tesne 92:91
+-  Força que combateu Estado Islâmico na Síria alerta que grupo ainda é uma ameaça internacional
+-  #CHAMPS2024 | JC’s Nooks takes Class Three boys' middle distance double
+-  Força que combateu Estado Islâmico na Síria alerta que grupo ainda é uma ameaça internacional
