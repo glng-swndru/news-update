@@ -1,11 +1,11 @@
 # Latest News
--  Cassano disse a Spalletti: "Non stai allenando quelle pippe". La reazione del mister
--  Đối thủ mới của Toyota Yaris và Mazda2 hatchback rục rịch làm phiên bản hiệu suất cao, giá quy đổi dự kiến hơn 700 triệu
--  [스경X이슈] 김수현 사진 올린 김새론 SNS, 비난글로 아수라장→댓글창 닫고 침묵
--  Посол Ваган организовал прием по случаю Национального Дня Пакистана
--  小S「看蔡沐妍女兒拉琴」片段曝光！ 網熱議：對小孩有一套
--  OVAJ TERORISTIČKI NAPAD MOŽE BITI PREKRETNICA, KAO I 2001. GODINE! Bjegović o onome što stoji iza i ispred strašnog događaja
--  TRENUCI UŽASA U MOSKVI: Isplivao NAJNOVIJI snimak, ljudi panično beže dok terorista puca na njih (VIDEO)
--  Eskişehir'de motosiklet hırsızlığı
--  Không hổ danh là “vua quảng cáo” tiêu 3 tỷ/ngày, tỷ lệ chọi cho vị trí Marketing tại Vinamilk là 1:150, khó hơn đại học Top đầu Việt Nam
--  Samuel L. Jackson og Vincent Cassel slår seg sammen i en dyster krimthriller
+-  UQ researchers use new dosing technology to enhance ICU antibiotic treatment
+-  Uğurcan Çakır adım adım Galatasaray'a!
+-  Kriminalität: Zu laute Musik - Polizei ermittelt gegen Mann aus Burg
+-  Runners to take on biosphere reserve track
+-  Sieben Braunkohle-Blöcke stehen vor endgültiger Stilllegung
+-  Ausflugtipps für Baden-Württemberg: 5 schöne und geheimnisvolle Schlösser und Burgen
+-  LIVEBLOG GENT-WEVELGEM VROUWEN. Concurrente minder voor Kopecky: Van Empel is niet fit en haakt af
+-  Kriminalität: Zu laute Musik - Polizei ermittelt gegen Mann aus Burg
+-  "Uztaisiet man krūtis kā 90. gadu striptīza dejotājai," ar dismorfofobiju sirgstošā Megana Foksa atklāj visu par savām plastiskajām operācijām
+-  Erdoğan ile Şimşek'in emekli ikramiyeleri nedeniyle tartıştığı iddiasına İletişim Başkanlığından yalanlama
