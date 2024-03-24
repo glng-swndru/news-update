@@ -1,11 +1,11 @@
 # Latest News
--  ארה"ב - MLS: פ.צ לוס אנג'לס - נאשוויל
--  Tips Gaya Make Up Lebaran: Korean Natural Look yang Glam
--  APA - N A C H R I C H T E N Ü B E R B L I C K
--  Nasa erwartet Nova-Explosion: Ausbruch von der Erde aus zu sehen
--  Smart farming: Integrating technology to tackle india’s nutritional crisis
--  WHL roundup: Tulk paces Hitmen to 6-3 win over Broncos
--  Biden oder Trump? Was der wahre amerikanische Traum ist
--  A Hollywood se le ha puesto ‘cara de Ozempic’: por qué puedes parecer diez años mayor tras pincharte la droga de la delgadez
--  Trabajo detecta un agujero de seis millones de euros en la facturación de conciertos por toda España
--  Esther Acebo: “No sabes la ilusión que me hace que me reconozcan por algo distinto a ‘La casa de papel”
+-  Berita Basket: Tampil di BCL Asia 2024, Prawira Harum Bandung Bagi Fokus dengan IBL
+-  Vụ Tân Hoàng Minh: Nhà đầu tư lấy lại tiền bị chiếm đoạt như thế nào?
+-  Росстат привел оценку численности населения РФ на начало 2024 года
+-  لاہور سمیت پنجاب کے مختلف شہروں میں بارش سے موسم خوشگوار
+-  Việt Nam nỗ lực nâng cao thành tích và phòng chống doping cho vận động viên thành tích cao
+-  Пассажирка обвинила водителя такси в изнасиловании
+-  ‘개막전 패전’ 류현진 “첫 경기라 잘하고 싶었는데…주사 한대 맞았다”
+-  이영선 공천취소…민주 세종시당 “무거운 마음으로 사과”
+-  बीकानेर: खेलते-खेलते सीढ़ियों से गिरने से बालिका की मौत
+-  Márciustól pontozzák a smasszerek az elítélteket
