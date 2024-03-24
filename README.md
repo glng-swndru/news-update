@@ -1,11 +1,11 @@
 # Latest News
--  Depressive Eltern: Wenn Mama keine Freude empfinden kann
--  Turkcell Kadınlar Süper Ligi'nde dev derbi zamanı
--  Recent weeks just the latest example that sport remains a boys' club
--  북 대남기구 지우기 계속… 이번엔 ’조국전선’ 해체
--  Mexico: Scores of kidnapped victims rescued, dozens still missing
--  Gaziantep'te uyuşturucu bulunduran 3 kişi yakalandı
--  Eski eşle sular durulmuyor! Tülin Şahin'e hapis talebi
--  Inget intresse för rimliga elpriser
--  Bakan Özhaseki: "Ülkemizi depreme dirençli bir hale getireceğiz"
--  Tein 700 euron käsikonsolista Windows-pohjaisen työkoneen – huvi ja hyöty samassa paketissa?
+-  LIVE | 'Russische kruisraket drong Pools luchtruim binnen'
+-  DMO: Nigeria Paid $3.5bn To Service External Debt Stock Of $42.5bn In 2023
+-  樂天新莊開幕門票賣6千張 大巨蛋3戰預售破1萬2
+-  Fabiola, la exmujer de Bertín Osborne, estalla al conocer el test de paternidad: "No tiene..."
+-  Büyükşehir’in eğitim kurumlarında ‘Etüt-Kütüphane’ dönemi
+-  Phát hiện mới cho thấy nước từng tồn tại trên sao Hỏa cách đây gần 4 tỷ năm
+-  Gisele Bündchen: 'Depresiju i napadaje panike sam uspjela riješiti promjenom prehrane'
+-  Lava O2 Smartphone With 50MP Dual AI Camera Launched In India At Rs 7,999; Check Specs, Availability
+-  Seyir halindeki otomobil alev alev yanmaya başladı
+-  Мотошествие в подкрепа на хората с репродуктивни проблеми ще се проведе в София - Труд
