@@ -1,11 +1,11 @@
 # Latest News
--  İstanbul'da korkunç kaza! Otomobil bariyerlere saplandı
--  Stigla zima usred proljeća: U Sloveniji pao snijeg, a neke dijelove pogodila je i jaka tuča
--  “Would likely leave” – Transfer insider claims Leeds could lose star duo if they don’t win promotion
--  Biden hükümetin kapanmasını önleyen tasarıyı imzaladı
--  Au Pakistan, où 96% de la population est interdite d’alcool, la saga d’une bière qui se vend bien
--  Britain in shock after Princess Kate’s cancer announcement
--  Naukowiec obnażył Karasia. Kompromitacja taka, że to się nie mieści w głowie
--  BELA KUĆA OSUDILA TERORISTIČKI NAPAD U MOSKVI: Označila jednog neprijatelja koji mora biti poražen
--  ANA BRNABIĆ OŠTRO ODGOVORILA ĐILASU: Čovek koji je iskoristio političku funkciju da ukrade od građana Srbije 172.000 EVRA DNEVNO
--  PM Modi inaugurates Bhutan hospital built with India aid - The Times of India
+-  【クルマ好きが選ぶ】2023年度に注目を浴びたクルマ・ベスト100、90位～81位篇 メルセデスAMG、アウディRS、プジョー308とハンドリングが楽しいクルマが競い合う！(ENGINE WEB)
+-  レクサス新型「小さな高級車」登場！ 全長4.2m級ボディに「クラス超え」上質さがスゴい！ 新型「LBX」の動画が公開に(くるまのニュース)
+-  年々早まる「ラン活」 “ランドセル”はいつ購入したらいいの？ セイバンに聞いた商品選びのコツ(オトナンサー)
+-  В ракетах, использованных РФ за одну атаку против энергосистемы Украины, было не менее 300 типов компонентов из десяти стран, - Зеленский
+-  "Balotelli era un talento pazzesco ma senza cervello". Il retroscena
+-  Infortunio Kjaer, tegola per il Milan! Pioli perde il danese, le ultime sulle condizioni
+-  Zelensky: "Putin ci incolpa per l'attentato? Assolutamente prevedibile"
+-  Affari tuoi su Rai1: scelta saggia per una coppia reggina, scampa la beffa finale e vince
+-  Turtai ir galia, kurių nori Rusija: ką Kremlius gautų užėmęs Ukrainą
+-  CGTP não tem dúvidas que "tem de aumentar a contestação"
