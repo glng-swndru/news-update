@@ -1,11 +1,11 @@
 # Latest News
--  Kto powinien odpaść z "Tańca z gwiazdami"? ZAGŁOSUJ
--  Ден на траур в Русия в памет на жертвите от атентата край Москва
--  Kolejny atak Państwa Islamskiego. Nie żyje kilkadziesiąt osób
--  Quel cippo scolorito nei 40 anni dalla morte di Enrico Berlinguer: i cittadini chiedono di salvarlo
--  Bündnis „Gemeinsam für Demokratie und Vielfalt“ protestiert in Wolfratshausen
--  葉門反抗軍朝紅海射飛彈 擊中中國油輪
--  ZAVLADALA PANIKA U DENVERU - JOKIĆ ZBOG BOLA PROPUSTIO MEČ! Otkriven stepen POVREDE dvostrukog MVP NBA lige!
--  Pořádný boj o voliče začne až teď. Slovensko čeká nejtěsnější druhé kolo v historii
--  Delhi Police ने चार लोगों को पकड़ा, तीन करोड़ रुपये नकद बरामद किए
--  Horozlar Hakkında 9 İlginç Bilgi
+-  Depressive Eltern: Wenn Mama keine Freude empfinden kann
+-  Turkcell Kadınlar Süper Ligi'nde dev derbi zamanı
+-  Recent weeks just the latest example that sport remains a boys' club
+-  북 대남기구 지우기 계속… 이번엔 ’조국전선’ 해체
+-  Mexico: Scores of kidnapped victims rescued, dozens still missing
+-  Gaziantep'te uyuşturucu bulunduran 3 kişi yakalandı
+-  Eski eşle sular durulmuyor! Tülin Şahin'e hapis talebi
+-  Inget intresse för rimliga elpriser
+-  Bakan Özhaseki: "Ülkemizi depreme dirençli bir hale getireceğiz"
+-  Tein 700 euron käsikonsolista Windows-pohjaisen työkoneen – huvi ja hyöty samassa paketissa?
