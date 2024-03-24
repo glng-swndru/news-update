@@ -1,11 +1,11 @@
 # Latest News
--  Power of the Past celebrates agriculture's legacy
--  UKRAJINA KUPUJE NUKLEARNE REAKTORE OD BUGARA: Oprema ruskog dizajna biće ugrađeni u nuklearnu elektranu "Hmelnitski"
--  Madhya Pradesh: 70-Year-Old Man Dies In Clash; Kin Place Body On Road, Protest
--  Bella Campos aponta racismo ao ser confundida com atendente em restaurante
--  Naudingai žaidęs Krivas prisidėjo prie Padegimo universiteto išmetimo iš „Kovo beprotybės“
--  Fotbalisté Slovenska po bleskovém gólu podlehli v přípravě Rakousku
--  Popular Indiana State Fair & Corteva Agriscience program to return
--  Vento oltre i 100 chilometri orari, si piega un albero lungo la Dora
--  F1, dove vedere GP Australia 2024: streaming e diretta TV8?
--  Eb-felkészülés: Franciaország–Németország
+-  Agente Buffon sicuro: «Allegri? Non è facile cambiare, è un allenatore forte. Ha vinto tanto»
+-  Premijer i ministar zdravstva na obilježavanju Dana narcisa: Plenković poveo i svog sina
+-  Guterres Refah Sınır Kapısı'ndan Gazzelilere seslendi: Yalnız değilsiniz
+-  2 "Magnificent Seven" Stocks to Buy Hand Over Fist Right Now
+-  DA LI SU HEROJI HALIJARDA STVARNI ILI IZMIŠLJENI LIKOVI? Istoričar odgovara na goruće pitanje koje muči publiku, a ovo je ISTINA
+-  Rzeźniczakowie reagują na komentarze ludzi, którzy NIE DAWALI im szans! "Ile się naczytaliśmy, że MI SIĘ ZNUDZISZ..." (WIDEO)
+-  Guirassy Milan, Moncada spiazza tutti: ha assicurato questa cosa all’entourage della punta! ULTIMISSIME
+-  Emin Agalarov thanks everyone who showed dedication after terror attack in Russia
+-  Beraksi Seperti Koboi Jalanan, HHR Diamankan Polisi
+-  ギリシャ悲劇のごとく消えた2つの欧州像、ドロールとショイブレが遺したもの - World Voice
