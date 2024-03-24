@@ -1,11 +1,11 @@
 # Latest News
--  Una avería en la red de suministro deja sin agua varios edificios de la Calzada das Gándaras
--  Antalya kampı yarın başlayacak
--  Aussagen zur Energiewende: Öl-Industrie widerspricht Baerbock und Habeck
--  Yerel seçime bir hafta kaldı | Kaç seçmen oy kullanacak?
--  Dalić objasnio koje tri stvari zamjera vatrenima protiv Tunisa: 'Ivušić neće braniti u finalu'
--  Potres 3.8 po Richteru pogodio Kvarner
--  "DAO MI JE VIZIT KARTU, OSTALO JE ISTORIJA" Kristina Radenković mesecima plakala zbog verenika, ljubavna priča nalik filmu
--  &quot;ZELENSKI JE DOVOLJNO GLUP&quot; Zaharova analizirala ukrajinskog predsednika
--  Стало известно, когда выйдет Apple Vision Pro 2
--  Karamürsel Bey işte bu hiç olmadı: 61-73
+-  Cassano disse a Spalletti: "Non stai allenando quelle pippe". La reazione del mister
+-  Đối thủ mới của Toyota Yaris và Mazda2 hatchback rục rịch làm phiên bản hiệu suất cao, giá quy đổi dự kiến hơn 700 triệu
+-  [스경X이슈] 김수현 사진 올린 김새론 SNS, 비난글로 아수라장→댓글창 닫고 침묵
+-  Посол Ваган организовал прием по случаю Национального Дня Пакистана
+-  小S「看蔡沐妍女兒拉琴」片段曝光！ 網熱議：對小孩有一套
+-  OVAJ TERORISTIČKI NAPAD MOŽE BITI PREKRETNICA, KAO I 2001. GODINE! Bjegović o onome što stoji iza i ispred strašnog događaja
+-  TRENUCI UŽASA U MOSKVI: Isplivao NAJNOVIJI snimak, ljudi panično beže dok terorista puca na njih (VIDEO)
+-  Eskişehir'de motosiklet hırsızlığı
+-  Không hổ danh là “vua quảng cáo” tiêu 3 tỷ/ngày, tỷ lệ chọi cho vị trí Marketing tại Vinamilk là 1:150, khó hơn đại học Top đầu Việt Nam
+-  Samuel L. Jackson og Vincent Cassel slår seg sammen i en dyster krimthriller
