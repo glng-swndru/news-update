@@ -1,11 +1,11 @@
 # Latest News
--  KIJK. Getest: met de hond op restaurant: "Enkel de groentjes bleven liggen”
--  Ovakvu pomu još niste vidjeli, osvanula je u poznatoj grupi koju okuplja vrijedna Kate Bećir, a krasit će prostore...
--  Opositor de Maduro diz que Lula relativiza dor dos venezuelanos ao negar ditadura
--  Croazia-Tunisia, le formazioni ufficiali: Erlic e Pasalic titolari, out Vlasic
--  Антимафиоти хванаха мъж с 32 кг амфетамини в Бургас
--  عائلة 2.0 | الحلقة الثالثة عشر | Aayla 2.0 | Episode 13
--  Ziua Poliției Române, prilej de distracție pentru copii. Cum i-au răsfățat agenții pe cei mici
--  Mbappe: O güne kadar her şeyin çözüleceğini düşünüyorum
--  Bari, Tenerini (Fi): 'Grave se Emiliano affidò Decaro ai clan'
--  Scientists identify earliest building blocks of Milky Way galaxy, name them Shakti, Shiva
+-  Power of the Past celebrates agriculture's legacy
+-  UKRAJINA KUPUJE NUKLEARNE REAKTORE OD BUGARA: Oprema ruskog dizajna biće ugrađeni u nuklearnu elektranu "Hmelnitski"
+-  Madhya Pradesh: 70-Year-Old Man Dies In Clash; Kin Place Body On Road, Protest
+-  Bella Campos aponta racismo ao ser confundida com atendente em restaurante
+-  Naudingai žaidęs Krivas prisidėjo prie Padegimo universiteto išmetimo iš „Kovo beprotybės“
+-  Fotbalisté Slovenska po bleskovém gólu podlehli v přípravě Rakousku
+-  Popular Indiana State Fair & Corteva Agriscience program to return
+-  Vento oltre i 100 chilometri orari, si piega un albero lungo la Dora
+-  F1, dove vedere GP Australia 2024: streaming e diretta TV8?
+-  Eb-felkészülés: Franciaország–Németország
