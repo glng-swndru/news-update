@@ -1,11 +1,11 @@
 # Latest News
--  Olanda, Van Dijk duro: "Dobbiamo migliorare se vogliamo fare qualcosa all'Europeo"
--  Vecinos del B° San Fernando recibieron asesoramiento sobre trámites y gestiones municipales
--  Mobilövervakade mordoffer – döms till livstid
--  Калевска-Ванчева ја нема на кандидатските листи на СДСМ
--  Nemecké bobistky sa stali víťazkami pretekov Svetového pohára
--  Sold out o τελικός της Ελλάδας στη Γεωργία στην Τιφλίδα!
--  SAD usvojio 1,2 bilijuna dolara vrijedan proračun, izbjegnuta blokada
--  صبحية لمناسبة عيد الأم من تنظيم مركز دده في "القوّات"
--  Comment une voix d'Hollywood est devenue la passionaria de la ligne Polt
--  الصليب الأحمر يشيد بجهود سلطنة عمان الداعمة للسلام
+-  Terrorattentat von Moskau: Blutbad im Konzertsaal
+-  SOLOTÜRK pilotları İstanbul'da havacılık tutkunlarıyla buluştu
+-  Biden'dan 1,2 trilyon dolarlık imza: Hükümet 'kapanmaktan' kurtuldu
+-  SHAREHOLDER ALERT: Pomerantz Law Firm Reminds Shareholders with Losses on their Investment in Sunnova Energy International Inc. of Class Action Lawsuit and Upcoming Deadlines – NOVA
+-  Schwab High-Yield Investor Checking: Earn Interest and Get Valuable ATM Perks - CNET
+-  Za zamachem pod Moskwą stoją służby? Kijów: Rosyjski reżim ma długą historię prowokacji
+-  Censo 2024: suman 708 arrestados y 68 aprehendidos en el país
+-  Schwab High-Yield Investor Checking: Earn Interest and Get Valuable ATM Perks - CNET
+-  Bahçeşehir Koleji'nden evinde kritik galibiyet
+-  IS-Terrorattentat von Moskau: Blutbad im Konzertsaal
