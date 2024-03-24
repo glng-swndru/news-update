@@ -1,11 +1,11 @@
 # Latest News
--  Ierland geeft België huiswerk mee, Oranje’s EK-opponent Oostenrijk klopt Slowakije na droomstart
--  Ierland geeft België huiswerk mee, Oranje’s EK-opponent Oostenrijk klopt Slowakije na droomstart
--  Jsou v boxerském zápase, ale snaží se hrát šachy. Analytik podrobil slovenskou opozici kritice
--  غوتيريش: الفلسطينيون يعيشون كابوسا لا ينتهي
--  Ирландия и Белгия не успяха да си вкарат в контрола
--  Milanović se obrušio na HDZ: 'Kriminalna banda falsificirala moju izjavu i krenula plašiti'
--  Levice zdolali basketbalistov Iskry Svit tesne 92:91
--  Força que combateu Estado Islâmico na Síria alerta que grupo ainda é uma ameaça internacional
--  #CHAMPS2024 | JC’s Nooks takes Class Three boys' middle distance double
--  Força que combateu Estado Islâmico na Síria alerta que grupo ainda é uma ameaça internacional
+-  الفنان صدام العدلة يلهب حماسة الأطفال المصريين واليمنيين بورشتين نوعيتين
+-  ما حقيقة الخلاف القائم بين دياز وحكيم زياش؟.. الجامعة توضح
+-  Irlanda falha penálti e empata com a Bélgica
+-  Holi: The celebration ofnature’s transformation
+-  Демонстранты разожгли костер посреди дороги в Тель-Авиве: вызваны пожарные
+-  First Alert Weather: Saturday 3/23 3 p.m. update
+-  Acusación de Romina Celeste a Orsi: ¿campaña de trolls en redes sociales? Esto dice una consultora
+-  Bahar Kalkanı Harekat Bölgesi'nde 1 askerimiz şehit oldu
+-  Is Overthinking A Mindful Musing Or Mental Mayhem?
+-  Eb-felkészülés: Pozsonyban nyert Ausztria, Belgium nem bírt az írekkel
