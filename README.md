@@ -1,11 +1,11 @@
 # Latest News
--  Без нови заразени, излекувани и починали от коронавирус у нас за денонощие
--  NF2 : malgré une belle réaction, Cournon a fini par s'incliner face à Mauguio
--  김정은, 푸틴에 위로 전문…“극악무도 테러 정당화 안돼”
--  Oto potencjalna rywalka Świątek w Miami! Doskonale się znają
--  TUŽNE VESTI: Preminuo Abdulah Sidran
--  NF2 : malgré une belle réaction, Cournon a fini par s'incliner face à Mauguio
--  استبعاد ناصر الدوسري من معسكر الأخضر بسبب الإصابة
--  시주금 1억4천 가져간 60대 여성 항소심도 무죄…이유는?
--  Kek je spremljal: Anglija izgubila, Danci neodločeno
--  غوتيريش: منع وصول المساعدات الإنسانية إلى غزة مأساوي ومثير للغضب
+-  «إبهار» تعتزم إطلاق معارض ومشاريع متميزة
+-  PREDSEDNIČKI IZBORI U SLOVAČKOJ: Pelegrini ubedljivo vodi, u drugom krugu suočavanje sa Korčokom
+-  Blake Lively pede desculpas por piada com foto editada de Kate Middleton
+-  انتقالي الحوطة يدشن توزيع السلل الغذائية لأسر الشهداء بالمديرية
+-  Quack running clinic in chawl booked
+-  Blake Lively pede desculpas por piada com foto editada de Kate Middleton
+-  Blake Lively pede desculpas por piada com foto editada de Kate Middleton
+-  30 promesas 2024: Yaydoo, una solución para reducir gastos
+-  Charkhi Dadri News: वन रक्षकों के 82 फीसदी पद खाली, हरियाली पर चल रही आरी...
+-  8.7L students to appear for SSLC exam tomorrow; phones banned
