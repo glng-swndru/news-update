@@ -1,11 +1,11 @@
 # Latest News
--  Fenerbahçe'den Galatasaray'a transfer çalımı
--  Verstappen-Desaster nach Defekt - Sainz nach OP Sieger
--  Creighton outlasts Oregon in 2OT to advance in NCAA tournament - ESPN
--  Man with disability left for dead after assault
--  Pakistan mulls resuming trade ties with India; Foreign Minister Ishaq Dar signals diplomatic shift
--  Muss Garbeck Patronatsfest neu erfinden?
--  «Крокус Сити Холл» восстановят после теракта
--  Русия нанесе мощен въздушен удар по Киев (ВИДЕО)
--  „Formulės-1“ etape Australijoje laimėjo Sainzas, Verstappenas nefinišavo
--  은퇴 정주현 "우승 기억에 남아…김현수 형 온 후 LG 달라졌다"
+-  Kto powinien odpaść z "Tańca z gwiazdami"? ZAGŁOSUJ
+-  Ден на траур в Русия в памет на жертвите от атентата край Москва
+-  Kolejny atak Państwa Islamskiego. Nie żyje kilkadziesiąt osób
+-  Quel cippo scolorito nei 40 anni dalla morte di Enrico Berlinguer: i cittadini chiedono di salvarlo
+-  Bündnis „Gemeinsam für Demokratie und Vielfalt“ protestiert in Wolfratshausen
+-  葉門反抗軍朝紅海射飛彈 擊中中國油輪
+-  ZAVLADALA PANIKA U DENVERU - JOKIĆ ZBOG BOLA PROPUSTIO MEČ! Otkriven stepen POVREDE dvostrukog MVP NBA lige!
+-  Pořádný boj o voliče začne až teď. Slovensko čeká nejtěsnější druhé kolo v historii
+-  Delhi Police ने चार लोगों को पकड़ा, तीन करोड़ रुपये नकद बरामद किए
+-  Horozlar Hakkında 9 İlginç Bilgi
