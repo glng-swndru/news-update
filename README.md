@@ -1,11 +1,11 @@
 # Latest News
--  삼성전자, 필터 교체 필요없는 공기청정기 출시
--  Linda Bean, an entrepreneur, GOP activist and granddaughter of outdoor retailer LL Bean, has died
--  '중국서 구금' 손준호, 10개월만에 석방돼 귀국
--  Moscow Concert Hall attack suspects admit guilt in court, face terrorism charges
--  韓-루마니아, 원전·방산 등 경제협력 강화 논의
--  추미애 "차은우보다 이재명"에 전여옥 "안귀령 따라쟁이"
--  Кейт Миддлтон вместе с семьей уехала в неизвестном направлении
--  Scholarships to open exciting doors for future agriculture leaders
--  கன்னட ஹீரோ நடித்த ‘இவன் அவனேதான்’
--  Bacaan Niat dan Tata Cara Sholat Gerhana Bulan Sendirian Dirumah, Lengkap Arab, Latin dan Artinya
+-  Suomalais­vahdit säkenövät: Kaapo Kähkönen piti nollan, Korpisalo taivutti Edmontonin
+-  Siyasetin kaynağı
+-  UIM-ABP 世界水上摩托锦标赛在越南归仁圆满落幕
+-  「吉祥・如藝」49萬起即簽約，住近市府站 達永聯手新潤顛覆北市心購屋觀念
+-  Pj Bupati Maybrat Borong Semua Dagangan di Pasar Kampung Fuog, Wujud Gerakkan Perekonomian Lokal
+-  【京都】行列がすごすぎて予約制になったお店も。絶品ドーナツ〈Kew〉〈RONMADOR〉(Hanako Web)
+-  ‘พาณิชย์-DITP’ ส่งทูตพาณิชย์คุนหมิง ถกผู้บริหารด่าน เปิดทางสะดวกผลไม้ไทย
+-  লিভার ভালো রাখে লাউ! ওজন এবং উচ্চ রক্তচাপও থাকে নিয়ন্ত্রণে
+-  ‘স্বাধীনতার ঘোষক’ প্রশ্নে আদালতের নির্দেশনা সত্ত্বেও কেন আইন করছে না সরকার?
+-  Sparbrief vs. Finanzberater: Welche Strategie ist die richtige Wahl?
