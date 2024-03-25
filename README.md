@@ -1,11 +1,11 @@
 # Latest News
--  Минпромторг предложил запретить отдельные виды ПЭТ-упаковки с 1 сентября
--  ДАЛИ АМЕРИКА СЕ ДВИЖИ КОН „КИНЕСКИ КАПИТАЛИЗАМ“ - никој веќе не верува дека ефикасноста на профитот ја определува распределбата на парите
--  樹齢600年“日本一の大アカマツ”で演奏会・楽器になってよみがえる 山形・最上町
--  "La Provence" : Rodolphe Saadé rétropédale, le directeur de la rédaction réintégré après la Une jugée "ambiguë" sur Emmanuel Macron
--  La Torre Mangana de Cuenca se tiñe de morado al toque del Miserere
--  Сомневающихся в легитимности Зеленского предложили считать предателями Украины
--  Sovyetlerin Estonya Soykırımı 75. yılında anıldı
--  Nuovo allarme bomba a Trani: treni sospesi e scuole chiuse
--  Por consejo de Harvard, durante el fin de semana hay que dormir todo lo posible
--  HLV Troussier: 'ĐT Việt Nam cần có trách nhiệm, tôi không đá thay họ được'
+-  Rachitismo Xlh, da Aismee sostegno psicologico anche online
+-  Китай вывел спутник-ретранслятор Queqiao-2 на окололунную орбиту
+-  Starke Rabatte: Amazon Oster-Angebote 2024: Das sind die besten Deals am Montag
+-  Gabi Novak za 24sata: 'Pukla su mi dva kralješka. Skoro mjesec dana nisam ustala iz kreveta...'
+-  Dimensional Fund Advisors Ltd. : Form 8.3 - Redrow plc - Ordinary Shares
+-  Erhürman: Sokaksa sokak Meclis'se Meclis, bu zihniyetten kurtulmalıyız
+-  Fahranfänger betrunken: Drei Verletzte bei Unfall
+-  Zerodha’s Nikhil Kamath Opens Up About School Dropout Experience: ‘My parents Had Given Up On Me’
+-  KEP adresi nedir? KEP adresi Nasıl alınır? Soru ve cevaplarla KEP adresi kavramı
+-  Mosca, 'no comment sulle rivendicazioni dell'Isis'
