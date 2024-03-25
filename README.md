@@ -1,11 +1,11 @@
 # Latest News
--  Endlich beschwerdefrei - Scheidenpilz: Wie wird die Infektion effektiv behandelt?
--  Stellantis-Aktie unbeeindruckt: Etwa 400 Mitarbeitern in den USA soll gekündigt werden
--  Поисковую операцию на месте теракта в «Крокусе» продлили
--  Baustart für Batteriezellfabrik in Schleswig-Holstein
--  Junge WLB in Esslingen: Auf der Suche nach Elvis sich selbst gefunden
--  Stellantis-Aktie nahezu unbewegt: In den USA drohen rund 400 Entlassungen
--  CHP'deki 'para sayma' görüntüleri hakkında 3 kişi daha ifadeye çağrılacak
--  В СБУ натякнули, хто причетний до ударів по російських НПЗ
--  Генсек РФС о возвращении России: «Разговор с УЕФА строится так: «Коллеги, допустите нас до ближайшего разумного цикла отбора». Я бы хотел, чтобы нас вернули в еврокубки завтра, но это невозможно»
--  Barca će dragulja platiti 40 milijuna eura. Uskoro bi mogla zaraditi puno više
+-  Омбудсмен Турции посетит лагеря военнопленных в России и Украине
+-  Elazığ'da seramik atölyesi eğitimleri düzenlendi
+-  Con đặt tiền giả qua mạng để cha đem đi tiêu thụ
+-  Крупко нацелил аграриев с каждым днем наращивать темпы и не терять ни момента
+-  Danijela Dvornik podijelila smiješnu uspomenu na pokojnog svekra Borisa: "Jednom nas nije mogao dobiti pa je zvao Ellu na mobitel..."
+-  Un po' in smart working, un po' in ufficio: come cambia il lavoro in Italia dopo la pandemia
+-  의대 교수 사직 행렬-진료 축소 현실화… “정부에 속아선 안돼” 강경론 우세
+-  Restare umani nonostante l’intelligenza artificiale
+-  Komadina: U potresu kod Fužina nema materijalnih šteta ni ozlijeđenih
+-  Cumhurbaşkanı Erdoğan'dan önemli açıklamalar
