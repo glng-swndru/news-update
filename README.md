@@ -1,11 +1,11 @@
 # Latest News
--  Neue Beleuchtung in der Kapelle
--  الهيئة العليا للأعمال الخيرية والأوقاف والزكاة.. ضرورة تفرضها طبيعة المرحلة
--  Suvendu Adhikari: এবার 'অন্য রকম' ভোটের হুঁশিয়ারি শুভেন্দু অধিকারীর | ABP Ananda LIVE
--  LIVEBLOG GENT-WEVELGEM. Van der Poel gooit een bommetje op de Kemmelberg, Lidl-Trek maakt indruk
--  Rusya: Ukrayna'daki enerji merkezleri ve yabancı silahlar vuruldu
--  Ostatnie luźne chwile przed meczem z Walią. Piłkarze na wycieczce w kinie
--  Những điều cần biết về Lễ hội ẩm thực Pháp 2024: Khám phá nền ẩm thực hàng đầu thế giới, trải nghiệm nhiều hoạt động thú vị!
--  ALO SAZNAJE! I SRBI ŽRTVE TERORISTA U Moskvi poginuli bračni par i sin (6) iz Vojvodine
--  Villa i centrum brinner – släckningsarbete pågår
--  Otkazan spust u Zalbahu, Odermatu mali kristalni globus
+-  В Испании по подозрению в мошенничестве задержаны 12 членов преступной группы, в том числе россияне
+-  Za rasismus dostal fotbalový trenér Rada rekordní osmiměsíční stopku. Trest nechápe
+-  İstanbul mitinginde konuşan Erdoğan: İstanbul'un temel sorunu vizyon ve beceri eksikliğidir
+-  Kriti Kharbanda, Pulkit Samrat share blissful moments from their Haldi ceremony
+-  Combates se intensificam em Gaza e Guterres pede o fim do ‘pesadelo’ da guerra
+-  Combates se intensificam em Gaza e Guterres pede o fim do ‘pesadelo’ da guerra
+-  "Egy nő, akinek golyó fúródott a halántékába, pont mellettem esett el" – megrázó részletek a moszkvai dráma túlélőitől
+-  Campanha de vacinação contra a gripe começa nesta segunda em Juiz de Fora; veja os grupos prioritários e onde se vacinar
+-  ৭ বাৰ বিবাহ বিচ্ছেদ, কুখ্যাত গেংষ্টাৰো আছিল এইগৰাকী নায়িকাৰ প্ৰেমিক!
+-  Otpisani igrač Cityja: Guardiola je lagao o meni
