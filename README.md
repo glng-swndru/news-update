@@ -1,11 +1,11 @@
 # Latest News
--  "موانئ": إضافة خدمة الشحن "galex" إلى ميناء الملك عبدالعزيز بالدمام
--  Rusia lanza varios ataques al sector energético y de defensa de Ucrania en el último día de combates
--  Макс Верстапен бесен след отпадането: Голяма глупост, нали?
--  Citizens should be aware of the burden of total Government expenditure
--  غيابات الأخضر أمام طاجيكستان في تصفيات كأس العالم
--  Real purchasing power of people halved
--  Stari trik koji štedi vrijeme: „Ne koristim peglu otkako sam saznala za ovo“
--  Jääkiekko | Jesse Puljujärvi runnoi helpottavan maalin Sidney Crosbyn avustuksella
--  Attentat: Spekulationen und Trauer nach Terroranschlag in Russland
--  Escursionista ferito alle Cinque Terre, interviene il Soccorso alpino
+-  De trainer regelt een spelersbusje, valt in, scoort en ziet zijn ploeg maar liefst tien goals maken
+-  Mahkemeden şok karar. Telegram askıya alındı
+-  Prestanak padavina i razvedravanje
+-  Проблемите за Холгер Руне продължават - датчанинът отново бе шокиран
+-  Beckham diz que chorou ao contratar Messi para o Inter Miami após esperar 5 anos
+-  Israel announces reform on public transport fares
+-  Συνέντευξη Μητσοτάκη στο καναδικό CTV: Πηγαίνουμε από ρεκόρ σε ρεκόρ στις επενδύσεις, η Ελλάδα έχει γυρίσει οριστικά σελίδα
+-  Beckham diz que chorou ao contratar Messi para o Inter Miami após esperar 5 anos
+-  Ερντογάν: «Όνειρο 80 χρόνων η λειτουργία της Αγίας Σοφίας ως τέμενος»
+-  Vedení města Mladá Boleslav dlouhodobě podporuje zrychlení železničního spojení s Prahou
