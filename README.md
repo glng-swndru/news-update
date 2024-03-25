@@ -1,11 +1,11 @@
 # Latest News
--  Rachitismo Xlh, da Aismee sostegno psicologico anche online
--  Китай вывел спутник-ретранслятор Queqiao-2 на окололунную орбиту
--  Starke Rabatte: Amazon Oster-Angebote 2024: Das sind die besten Deals am Montag
--  Gabi Novak za 24sata: 'Pukla su mi dva kralješka. Skoro mjesec dana nisam ustala iz kreveta...'
--  Dimensional Fund Advisors Ltd. : Form 8.3 - Redrow plc - Ordinary Shares
--  Erhürman: Sokaksa sokak Meclis'se Meclis, bu zihniyetten kurtulmalıyız
--  Fahranfänger betrunken: Drei Verletzte bei Unfall
--  Zerodha’s Nikhil Kamath Opens Up About School Dropout Experience: ‘My parents Had Given Up On Me’
--  KEP adresi nedir? KEP adresi Nasıl alınır? Soru ve cevaplarla KEP adresi kavramı
--  Mosca, 'no comment sulle rivendicazioni dell'Isis'
+-  Endlich beschwerdefrei - Scheidenpilz: Wie wird die Infektion effektiv behandelt?
+-  Stellantis-Aktie unbeeindruckt: Etwa 400 Mitarbeitern in den USA soll gekündigt werden
+-  Поисковую операцию на месте теракта в «Крокусе» продлили
+-  Baustart für Batteriezellfabrik in Schleswig-Holstein
+-  Junge WLB in Esslingen: Auf der Suche nach Elvis sich selbst gefunden
+-  Stellantis-Aktie nahezu unbewegt: In den USA drohen rund 400 Entlassungen
+-  CHP'deki 'para sayma' görüntüleri hakkında 3 kişi daha ifadeye çağrılacak
+-  В СБУ натякнули, хто причетний до ударів по російських НПЗ
+-  Генсек РФС о возвращении России: «Разговор с УЕФА строится так: «Коллеги, допустите нас до ближайшего разумного цикла отбора». Я бы хотел, чтобы нас вернули в еврокубки завтра, но это невозможно»
+-  Barca će dragulja platiti 40 milijuna eura. Uskoro bi mogla zaraditi puno više
