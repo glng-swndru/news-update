@@ -1,11 +1,11 @@
 # Latest News
--  Linguère : « J’ai constaté que dans mon bureau, la coalition Benno Bokk Yaakaar a deux représentants » (Habib Sy)
--  Koja hrana nosi najveći rizik za potrošače? Ovi proizvodi su najčešće povučeni, poznato i odakle dolaze
--  Mặt cỏ sân Mỹ Đình "ghi điểm" trước trận ĐT Việt Nam quyết đấu ĐT Indonesia
--  Cumhurbaşkanı Erdoğan: Ekrem bey yarı zamanlı mesai yaptı
--  Báo Trung Quốc: “Tuyển Trung Quốc đã tệ nhưng tuyển Việt Nam còn tệ hơn”
--  Mega Millions jackpot rises to $1.1 billion
--  Kleinostheim erwartet finanziell schwierige Jahre
--  Auditores fiscais ampliam ações na Bahia e interditam pátio do Porto de Salvador
--  İzmir Büyükşehir duyurdu! 9 gemici personel alımı yapılacak
--  Oddenino: «Nemmeno alla Juve sanno se succederà questa cosa»
+-  Neue Beleuchtung in der Kapelle
+-  الهيئة العليا للأعمال الخيرية والأوقاف والزكاة.. ضرورة تفرضها طبيعة المرحلة
+-  Suvendu Adhikari: এবার 'অন্য রকম' ভোটের হুঁশিয়ারি শুভেন্দু অধিকারীর | ABP Ananda LIVE
+-  LIVEBLOG GENT-WEVELGEM. Van der Poel gooit een bommetje op de Kemmelberg, Lidl-Trek maakt indruk
+-  Rusya: Ukrayna'daki enerji merkezleri ve yabancı silahlar vuruldu
+-  Ostatnie luźne chwile przed meczem z Walią. Piłkarze na wycieczce w kinie
+-  Những điều cần biết về Lễ hội ẩm thực Pháp 2024: Khám phá nền ẩm thực hàng đầu thế giới, trải nghiệm nhiều hoạt động thú vị!
+-  ALO SAZNAJE! I SRBI ŽRTVE TERORISTA U Moskvi poginuli bračni par i sin (6) iz Vojvodine
+-  Villa i centrum brinner – släckningsarbete pågår
+-  Otkazan spust u Zalbahu, Odermatu mali kristalni globus
