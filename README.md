@@ -1,11 +1,11 @@
 # Latest News
--  The 116 Best Amazon Big Spring Sale Deals to Shop on the Final Day - CNET
--  Prague Airport Nears Pre-Pandemic Glory with Global Expansion Plans
--  Российские банки призвали простить долги погибших в «Крокус Сити Холле»
--  Türk Ocakları'nın 112'nci kuruluş yıldönümü için tören yapıldı
--  Princess Eugenie 'reluctant' to take on more royal duties due to major fear about workload
--  Calciatore 15enne estrae pistola finta dopo una partita
--  В старых флагманских смартфонах Samsung появятся новейшие ИИ-функции
--  W kinie, u fryzjera i na bazarku. Rafał Trzaskowski pokazał nowy spot
--  Top 10 regions with most expensive car insurance for older drivers unveiled
--  След 20 години на върха: Tesla Model Y детронира Toyota Corolla като най-продаваната кола в света
+-  VIDEO: Krievija atkal apšaudījusi Kijivu ar raķetēm
+-  Elon Musk promete un dispositivo que permitirá curar la ceguera: "Ya está funcionando en monos"
+-  “SONO IL BRACCIO DESTRO DI PUTIN E TU NON SEI NESSUNO!” – A NAPOLI UNA BADANTE RUSSA DI 48 ANNI MALTRATTAVA L’ANZIANO DI CUI SAREBBE DOVUTA PRENDERE CURA. LA DONNA SBROCCAVA IN MODO PARTICOLARE QUANDO IL POVERETTO, IN SEDIA A ROTELLE, NON LE DAVA I SOLDI PER L’ALCOL – L’UOMO È RIUSCITO AD AVVERTIRE LA FIGLIA DEI MALTRATTAMENTI SUBÌTI. QUANDO I CARABINIERI SONO ARRIVATI HANNO TROVATO LEI CHE RACCOGLIEVA UN PIATTO APPENA TIRATO ALL’ANZIANO...
+-  "Новая глава в войне с терроризмом": мировые СМИ о нападении на "Крокус Сити Холл"
+-  Faits divers. Homicides et violences en série à Dijon et son agglomération : où en est-on ?
+-  10년 공들인 애플은 포기…베일 벗은 '샤오미 전기차'
+-  Dendias'tan Türkiye açıklaması: Revizyonizmde ısrar ediyorlar
+-  القيادة تهنئ رئيسة الجمهورية الهيلينية بذكرى استقلال بلادها
+-  Apple, Google und Facebook: EU-Kommission eröffnet Untersuchung wegen Marktmissbrauchs
+-  शिक्षा मन्त्रालयले भन्यो- सरकारी स्कूलमा कुनै पनि शुल्क नलिनू
