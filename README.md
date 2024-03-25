@@ -1,11 +1,11 @@
 # Latest News
--  В Ереване обезвредили напавшего на полицейский участок
--  Útočníci pred policajnou stanicou v Jerevane odpálili granát
--  Bijna genoeg handtekeningen voor Katwijks parkeerreferendum. ’We maken ons grote zorgen over de uitkomst’
--  Sam Smith e SZA se apresentam no último dia do Lollapalooza 2024
--  اجتماع ممثلي وزارة التربية والتعليم بعدن مع ممثلي كتلة التعليم الوطنية
--  Heimsieg gegen HC Erlangen: Paraden von Julian Buchele beflügeln Frisch Auf Göppingen
--  Rompe una tubería de agua y deja sin suministro a los vecinos de Freixeiro
--  "Cosa aspetta la signora Schlein". Terremoto: scandalo Decaro-Emiliano, qua viene giù il Pd
--  25 март Благовещение: Благи вести за Овните, нещо "блажно" за Лъвовете
--  Rijeka će ulaznice za utakmicu s Hajdukom prodavati samo članovima
+-  ДЕТЕ ЗАГИНА НА ТРКА НА АВТОМОБИЛИ ВО УНГАРИЈА: Се појавија застрашувачки снимки, 30 лица се повредени (ВИДЕО)
+-  Genieten: Cavani (37) scoort op fenomenale wijze in Argentinië
+-  Šibenik u drami pobijedio Cibaliju, Slavonci doživjeli peh, borba za elitu sve uzbudljivija
+-  Lando Norris told to undergo surgery as Carlos Sainz taunts McLaren star
+-  Visibilia e casa Alberoni, quante grane per Daniela Santanché
+-  Handball-Bundesliga: TVB Stuttgart liefert eine zweite Hälfte zum Vergessen ab
+-  BJP West Bengal Candidates fifth list: Dilip Ghosh,Tapas Roy among candidates in fray for LS polls
+-  San Marino - Saint Kitts i Nevis. Relacja live i wynik na żywo
+-  Geolier in cattedra all'Università, clamoroso: rivolta anche a sinistra
+-  ROSEN, A GLOBALLY RESPECTED LAW FIRM, Encourages Barclays PLC Investors to Secure Counsel Before Important Deadline in Securities Class Action – VXX
