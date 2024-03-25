@@ -1,11 +1,11 @@
 # Latest News
--  전 세계 완주자 20명뿐인 ‘세계에서 가장 힘든 마라톤’…최초 여성 완주자 탄생
--  La sospensione e poi le botte: preside picchiato dal compagno della madre di uno studente
--  Relaciones exteriores 2026 (I)
--  Pressestimmen: Terroranschlag bei Moskau: "Auch Deutschland bleibt im Fadenkreuz des IS"
--  Популярный метод похудения оказался смертельно опасным: как не стать жертвой собственного тела
--  Първо в "24 часа": Мария Габриел подаде отказ да бъде избрана за премиер (Вижте пълния текст на документа)
--  Atacado pelo Daesh, Putin quer vingar-se nos ucranianos, mas as vítimas podem ser novamente os russos
--  В Вилейке пенсионерку после топки печи госпитализировали с ожогами
--  Sokakta yaşayan kimsesizlerin ihtiyaçlarının karşılanması için yayımlanan genelgenin tarihi uzatıldı
--  Shraddha Kapoor की लेटेस्ट तस्वीरों में फैंस ने की ताका झांक, दिख गया कुछ ऐसा कि चर्चा का मुद्दा बन गयी अभिनेत्री की Love Life
+-  Kejati Kalteng Pastikan Optimalisasi Penanganan Perkara di Kejari Seruyan
+-  23-latek włamał się do salonu urody, a potem… zasnął. Nietypowa interwencja
+-  Coppia morta nell’incidente aereo, il figlio: «Mio padre era un pilota esperto»
+-  (ВИДЕО) Украинците нападнаа една од најголемите термоелектрани на југот на Русија
+-  Обрушение породы произошло на уральской шахте "РусАла"
+-  민주당 "대통령실 '조그마한 사고' 경악과 분노"
+-  트럼프 공탁금 납부 시한 코앞…은행계좌·전용기 등 압류되나
+-  Зеленський привітав працівників СБУ з професійним святом
+-  트럼프 공탁금 납부 시한 코앞…은행계좌·전용기 등 압류되나
+-  „Brunnen werden immer wichtiger“
