@@ -1,11 +1,11 @@
 # Latest News
--  Fußball-Landesliga: SGE Bedburg-Hau hadert nach 0:6 mit dem Schiedsrichter
--  Unfall bei Schneeglätte: Fahrerin und sechs Kinder verletzt
--  Unfall bei Schneeglätte: Fahrerin und sechs Kinder verletzt
--  Lorena Wiebes wint Gent - Wevelgem na zenuwslopende eindsprint en fotofinish
--  Lorena Wiebes wint Gent - Welvegem na fotofinish
--  Ostra wypowiedź Miedwiediewa: To nasz główny cel
--  Lorena Wiebes wint Gent-Wevelgem na fotofinish: 'Probeerde mezelf naar de finish te gooien’
--  Lorena Wiebes wint Gent - Wevelgem na zenuwslopende eindsprint en fotofinish
--  Komponist und Dirigent Péter Eötvös: Meister zeitgenössischer Musik gestorben
--  Lorena Wiebes wint Gent - Wevelgem na zenuwslopende eindsprint en fotofinish
+-  "Zar se to radi na prijateljskoj utakmici?" Novi haos Granita Džake, poludeo zbog poteza protivnika i krenuo u obračun
+-  Atac terorist la Moscova. Washingtonul subliniază că nu există „implicare ucraienană”
+-  توقيع اتفاقية «ربط - المرحلة الثانية» وتوسعة شبكة الكهرباء في محافظة ظفار بـ 322 مليون ريال
+-  Кафу из-за долгов продает виллу в Сан-Паулу – ее оценили в 7,4 млн евро. Экс-игрок «Милана» должен около 3,3 млн евро кредиторам
+-  Gana’nın Başkenti, Bayrağının Anlamı, Nüfusu, Ana Dili, Para Birimi
+-  Riti della Settimana Santa Nojana: fede e tradizione popolare come metafora di rinascita
+-  SV Schott gegen FC Carl Zeiss: „Jena ist die kleine Fußballhauptstadt des Freistaats“
+-  ПП-ДБ с последен призив към ГЕРБ: "Да подпишем споразумение с премиер Мария Габриел"
+-  Ministros de Lula prestam solidariedade a Anielle Franco e cobram esclarecimento do crime
+-  La inesperada e insólita lesión del Kun Agüero con la camiseta de Independiente
