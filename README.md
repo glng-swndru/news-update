@@ -1,11 +1,11 @@
 # Latest News
--  Врачи назвали пять самых вредных овощей
--  СК: в Красноярском крае раскрыли убийство, совершённое почти 19 лет назад
--  Vremea azi, 25 martie. O zi friguroasă, cu ploi în majoritatea zonelor țării. Care vor fi maximele termice
--  Hanya 1 Jam Diperiksa, Ini yang Didalami KPK ke Wakil Ketua MPR Fadel Muhammad
--  Het weer van maandag: droog met sluierbewolking
--  Как бързо да разтегнете тесни обувки: 5 ефективни съвета
--  Argentinci se prisjetili brutalne diktature, 30.000 ljudi je oteto, mučeno i ubijeno
--  Aaron Boone: "Para ellos es un partido histórico, para nosotros fue un juego más"
--  William e Kate non sono pronti a fare pace: non si fidano di Harry e Meghan
--  William e Kate non sono pronti a fare pace: non si fidano di Harry e Meghan
+-  HLV Troussier: "Tôi không thể vào sân đá thay các câu thủ được"
+-  Yargıtay'da başkanlık seçimi bugün yapılacak
+-  최시원, 아동 권리 보호 위해 기부금 전달…"어린이들 건강하게 자라길"
+-  International Astronomical Union approves Statio Shiv Shakti name for Chandrayaan 3 landing site
+-  Feuer in Solingen: Wohnungsbrand mit vier Verletzten
+-  영어유치원 월 평균 120만원 넘어…세종이 가장 비싸
+-  Deniz ulaşımına fırtına engeli: Çok sayıda sefer iptal
+-  想念最棒的台南球迷與台灣味 賀亮德懷念美食迫不及待來台
+-  Franciaországban a legmagasabb szintre emelték a terrorkészültséget
+-  Phi tần thường tìm cách "thân mật" với thái giám: Quy tắc ngầm trong hậu cung để đạt được thứ này
