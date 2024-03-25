@@ -1,11 +1,11 @@
 # Latest News
--  「桃の滴」リニューアル発表! 伝統の味、京都伏見の日本酒が新たな魅力を引き出し4月11日～新発売(おとなの週末)
--  Equipo vietnamita gana título mundial de billar
--  Phương án nào cho việc 'lên đời' chung cư cũ?
--  Bijapur: नक्सलियों की गोलाबारी में डीआरजी जवान घायल
--  Pengorbanan Xavi dan Kebangkitan Barcelona
--  Nữ ca sĩ Vbiz xuất thân từ nhà nông, giờ chưa đến 30 tuổi đã có nhà khắp nơi, kim cương cỡ đại có cả bộ sưu tập
--  Elon Musk thất bại ‘toàn tập’ với X: Hơn 1 năm chưa thể lôi kéo người làm nội dung, nền tảng chi trả hoa hồng không nhất quán, thua xa YouTube, TikTok
--  Ứng viên vô địch khẳng định sức mạnh ở giải bóng đá sinh viên
--  驗船中心：MEPC明年上半年批准防止船舶污染國際公約修正案
--  「裏切者を忘れずに名前を特定しろ」プーチン氏7600万票で圧勝も…2200万票が不正との指摘 開票作業中映像も物議 ロシア
+-  „Cap San Diego“: Welchen besonderen Job Hund Edda an Bord hat
+-  Holi in Mathura: हाईड्रोलिक पिचकारी से बरसे टेसू के रंग, आनंदित होकर झूम उठे भक्त
+-  Nhiệt độ ngoài trời ở TPHCM, Nam Bộ có thể lên hơn 40 độ
+-  '민주노총 와해 의혹' 허영인 SPC 회장, 피의자로 검찰 출석
+-  Kerala News Live Updates: മുഖ്യമന്ത്രി നേതൃത്വം നൽകുന്ന സിഎഎ വിരുദ്ധ റാലി ഇന്ന് മലപ്പുറത്ത്
+-  Suvendu Adhikari: 'গোয়ালঘর দেখিয়ে আবাসের টাকা লুঠ করেছে তৃণমূল', তীব্র নিশানা করলেন শুভেন্দু
+-  Weyco Group Needs Some More Time To Play Out
+-  Weyco Group Needs Some More Time To Play Out
+-  Amanda Bynes shares rare selfie at dinner with friends as fans cry ‘so sorry’ after shocking Quiet On Set docuseries
+-  பா.ஜ.க கூட்டணி : வைரம் பதித்த பேனாவை தொலைத்த சிவகங்கை வேட்பாளர்
