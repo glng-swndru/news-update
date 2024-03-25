@@ -1,11 +1,11 @@
 # Latest News
--  De trainer regelt een spelersbusje, valt in, scoort en ziet zijn ploeg maar liefst tien goals maken
--  Mahkemeden şok karar. Telegram askıya alındı
--  Prestanak padavina i razvedravanje
--  Проблемите за Холгер Руне продължават - датчанинът отново бе шокиран
--  Beckham diz que chorou ao contratar Messi para o Inter Miami após esperar 5 anos
--  Israel announces reform on public transport fares
--  Συνέντευξη Μητσοτάκη στο καναδικό CTV: Πηγαίνουμε από ρεκόρ σε ρεκόρ στις επενδύσεις, η Ελλάδα έχει γυρίσει οριστικά σελίδα
--  Beckham diz que chorou ao contratar Messi para o Inter Miami após esperar 5 anos
--  Ερντογάν: «Όνειρο 80 χρόνων η λειτουργία της Αγίας Σοφίας ως τέμενος»
--  Vedení města Mladá Boleslav dlouhodobě podporuje zrychlení železničního spojení s Prahou
+-  Gültepe’de iftar başka oluyor
+-  Kinga Rusin wbija szpilę (?) Robertowi Karasiowi i wspomina o pewnych substancjach. "Przyjęliśmy DOZWOLONĄ dawkę przyjemności"
+-  Newcastle não tira os olhos de dois jogadores do Sporting
+-  Ето кой е вторият съперник на Григор Димитров на Мастърс 1000 в Маями
+-  Овечкин забил два гола в 172-й раз в карьере в НХЛ
+-  Verhuizingen zijn op komst; Renado verkast met twee andere clubs naar nieuw complex en vv Drachten gaat naar de zaterdag
+-  HMVV swingt dit seizoen weer, met dank aan een Rick van den Borne-show: ‘Dit is zoveel mooier’
+-  Objavljeni novi detalji o stanju kralja Charlesa koji boluje od raka
+-  Galicia y Canarias, las más morosas con el Defensor del Pueblo
+-  "Svaki prisilan transfer stanovništva je ratni zločin"
