@@ -1,11 +1,11 @@
 # Latest News
--  Başkan Altay: “Konya her manada örnek ve öncü bir şehir olmaya devam edecek”
--  Cổ phiếu VNDIRECT khớp lệnh đột biến, 7% công ty đổi chủ
--  Ankita Lokhande and Vicky Jain Play Holi, Host a Mega Bash For Friends In Mumbai | Watch
--  이채민♥류다인, 열애 인정 “동료로 지내다 감정 생겨...따뜻한 시선으로 봐 달라”(공식입장)[M+이슈]
--  Perbedaan Timun Suri dan Blewah, Campuran Minuman Segar Buka Puasa
--  Zemljotres na Papui Novoj Gvineji: Najmanje pet osoba poginulo ,...
--  Трампа уличили в игре в гольф вместо проведения предвыборной кампании
--  Tanzshow bei RTL: „Let’s Dance“ 2024: Alle Tänze, alle Punkte – wer ist raus?
--  美股脫碳風口來了！63億美元撥款來襲，這三隻美股或成大贏家
--  Gombnyomásos megoldás válthatja fel a sárga csekket
+-  EuroLeague: Ο «βασιλιάς» Μάικ Τζέιμς και τα εντυπωσιακά νούμερα των Πίτερς, Ναν
+-  Alta allerta terrorismo in Italia: riunione al Viminale dopo l'attentato a Mosca
+-  Optuženima za napad u Moskvi određen pritvor
+-  Ozarboyjon fuqarosi “Krokus”dagi terakt vaqtida yuzdan ortiq odamni qutqardi.
+-  TKDK 2024’te 248 Milyon Avro hibe dağıtacak!
+-  बैंकॉक मोटर शो में चीनी ईवी निर्माता स्पॉटलाइट
+-  Başkan Ali Kemal Deveciler, esnaf ve vatandaşlarla buluştu
+-  Największy projekt komunikacyjny w historii Gdańska
+-  “Kim milyoner olmak ister?”də 5 milyon qazandı
+-  Ariana Madix buys new home in LA amid legal dispute with ex Tom Sandoval
