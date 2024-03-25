@@ -1,11 +1,11 @@
 # Latest News
--  Омбудсмен Турции посетит лагеря военнопленных в России и Украине
--  Elazığ'da seramik atölyesi eğitimleri düzenlendi
--  Con đặt tiền giả qua mạng để cha đem đi tiêu thụ
--  Крупко нацелил аграриев с каждым днем наращивать темпы и не терять ни момента
--  Danijela Dvornik podijelila smiješnu uspomenu na pokojnog svekra Borisa: "Jednom nas nije mogao dobiti pa je zvao Ellu na mobitel..."
--  Un po' in smart working, un po' in ufficio: come cambia il lavoro in Italia dopo la pandemia
--  의대 교수 사직 행렬-진료 축소 현실화… “정부에 속아선 안돼” 강경론 우세
--  Restare umani nonostante l’intelligenza artificiale
--  Komadina: U potresu kod Fužina nema materijalnih šteta ni ozlijeđenih
--  Cumhurbaşkanı Erdoğan'dan önemli açıklamalar
+-  The 116 Best Amazon Big Spring Sale Deals to Shop on the Final Day - CNET
+-  Prague Airport Nears Pre-Pandemic Glory with Global Expansion Plans
+-  Российские банки призвали простить долги погибших в «Крокус Сити Холле»
+-  Türk Ocakları'nın 112'nci kuruluş yıldönümü için tören yapıldı
+-  Princess Eugenie 'reluctant' to take on more royal duties due to major fear about workload
+-  Calciatore 15enne estrae pistola finta dopo una partita
+-  В старых флагманских смартфонах Samsung появятся новейшие ИИ-функции
+-  W kinie, u fryzjera i na bazarku. Rafał Trzaskowski pokazał nowy spot
+-  Top 10 regions with most expensive car insurance for older drivers unveiled
+-  След 20 години на върха: Tesla Model Y детронира Toyota Corolla като най-продаваната кола в света
