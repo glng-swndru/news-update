@@ -1,11 +1,11 @@
 # Latest News
--  [스프] 잠시 찾아왔다가 금방 사라진 '복지국가' 미국, 그리고 지금은?
--  Warning vegetable and grain shortages could soon hit supermarket shelves
--  [영상] 하루 300㎜ 폭우 떠내려 가는 차들…‘62도 폭염’ 뒤 브라질, 23명 사망
--  Suivez la déclaration de Amadou Ba
--  Bunny BMX, Go-Karts And New Zealand’s Biggest Bouncy Castle
--  Direct / Suivez la déclaration du candidat Amadou Bâ
--  [영상] 하루 300㎜ 폭우 떠내려 가는 차들…‘62도 폭염’ 뒤 브라질, 23명 사망
--  Josh Barnett On How He Got Shayna Baszler For Bloodsport X
--  وسط تحذيرات من المجاعة.. إسرائيل تمنع الأونروا من توصيل المساعدات لشمالي غزة
--  ABŞ və Yaponiya 60 il aradan sonra təhlükəsizlik paktını yeniləyir
+-  籲蔡英文登太平島！ 馬英九：不為利誘、不為勢劫
+-  Kenerak spesies eksotik Sungai Pahang
+-  'Vị đắng' hạt cà phê Việt Nam: Giá bán vọt lên mức cao nhất thế giới nhưng DN thua lỗ kỷ lục, 'cơn ác mộng' xảy ra như thế nào?
+-  Thừa nhận mệt mỏi, tuyển thủ Indonesia vẫn quyết thắng ĐT Việt Nam
+-  Re–Live Pia Wurtzbach’s Crowning Glory With Her Wax Figure in Madame Tussauds Singapore
+-  서울시 '기후동행카드' 고양시 참여…지하철 우선 도입
+-  서울 기후동행카드에 고양 참여…상반기 중 경의중앙·서해선 등 서비스
+-  Borsa: Shanghai apre a -0,25%, Shenzhen a -0,30%
+-  【ファッション】羽織れる「恐竜」タオル…身に着けたところがメッチャ斬新？(LASISA)
+-  고양시도 서울 '기후동행카드' 동참…"경기 북부 편의↑"
