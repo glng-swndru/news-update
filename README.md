@@ -1,11 +1,11 @@
 # Latest News
--  THY pilotu 30 günde 2 dünya rekoru kırdı
--  Tai nạn ở Lạng Sơn khiến bé trai tử vong: Tài xế đã còi để cảnh báo nhưng cháu bé cúi xuống nhặt kẹo
--  Valódi felvétel vagy generált video? Íme, a YouTube MI címkézési rendszere
--  Đầu tư gần 3.000 tỷ đồng nâng cấp tuyến Quốc lộ kết nối 2 tỉnh miền Tây
--  이다해, 군살 없는 모노키니…옆구리 구멍까지 ‘핫하다 핫해’ [DA★]
--  Evine çağırmıştı! TikTok’ta kız çocuklarını taciz eden emekli uzman çavuş gözaltına alındı
--  “‘내가 참을걸’ 신고 후회하던 교사 안타까워”...서울 지역교권보호위 구성
--  Jangankan Kalah, Seri Aja Timnas Indonesia Ogah! Shin Tae-yong: Kami di Vietnam untuk Menang
--  Светофоры временно отключат на участке ул.Казинца в Минске
--  Hatay'da deprem hasarlı evde yangın
+-  Songkran festival expected to lure millions of tourists to Thai province
+-  à¶šà·”à¶«à·” à¶¸à·�à·…à·” à¶šà¶±à·Šà¶§à·šà¶±à¶»à·Š à¶œà·�à¶± à·ƒà·“à¶…à¶ºà·’à¶©à·“ à¶´à¶»à·“à¶šà·Šà·‚à¶«à¶ºà¶šà·Š
+-  කුණු මාළු කන්ටේනර් ගැන සීඅයිඩී පරීක්ෂණයක්
+-  İcra başçısını öldürmək istəyən şəxs həbs edildi
+-  Festa del Popolo Veneto, gli auguri di Zaia: «Aspiriamo alla pace»
+-  [자막뉴스] 귀에 붕대 감고 등장한 테러범…잔혹한 고문 장면 공개
+-  Olajfinomítót akarhattak felrobbantani Oroszországban + videó
+-  Tales from the river
+-  “Lò đào tạo” đại gia Việt: Không phải trường chuyên, ngôi trường THPT ít ai biết đến này mới là nơi xuất phát của Phạm Nhật Vượng và loạt doanh nhân khác
+-  "Наслаждавайте се": Макрон раздаде безплатни презервативи на младежите във Франция
