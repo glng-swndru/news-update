@@ -1,11 +1,11 @@
 # Latest News
--  EN PRIVÉ AVEC Sandrine Quétier très proche de Fabrice Michelin, son ex et père de ses enfants : "Le secret, c'est..."
--  "OK, boomer?": os centennials e millennials são mais infelizes do que os baby boomers
--  Selbst der Gäste-Trainer gratuliert: SSV Vorsfelde lässt gegen Meppen II nichts zu
--  Wind farms investigated after 'overcharging customers by £100m' - The Telegraph
--  ONLINE: Kometa - Litvínov 1:1. Kirk poslal zápas do prodloužení
--  Velika anketa SN: Odaberite 23 igrača koja bi Dalić trebao voditi na Euro
--  Зидан — о Беллингеме: «Потрясающий футболист, «Реалу» повезло»
--  AI Act - AI Act jako evropské nařízení bude mít přímý vliv na celou Evropskou unii a nevyžaduje žádnou další transpozici do národních právních řádů
--  VELIKA VEST IZ NOVOG SADA Poznati srpski biznismen postao potpredsednik Vojvodine
--  ஆலங்காயம் ஒன்றிய திமுக ஆலோசனை கூட்டம்
+-  "موانئ": إضافة خدمة الشحن "galex" إلى ميناء الملك عبدالعزيز بالدمام
+-  Rusia lanza varios ataques al sector energético y de defensa de Ucrania en el último día de combates
+-  Макс Верстапен бесен след отпадането: Голяма глупост, нали?
+-  Citizens should be aware of the burden of total Government expenditure
+-  غيابات الأخضر أمام طاجيكستان في تصفيات كأس العالم
+-  Real purchasing power of people halved
+-  Stari trik koji štedi vrijeme: „Ne koristim peglu otkako sam saznala za ovo“
+-  Jääkiekko | Jesse Puljujärvi runnoi helpottavan maalin Sidney Crosbyn avustuksella
+-  Attentat: Spekulationen und Trauer nach Terroranschlag in Russland
+-  Escursionista ferito alle Cinque Terre, interviene il Soccorso alpino
