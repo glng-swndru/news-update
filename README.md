@@ -1,11 +1,11 @@
 # Latest News
--  Calcit osvojil pokal, Kubanec paral živce Mariborčanom
--  Dode bij ernstig tramongeval in Den Haag, zwarte hekken rond tram geplaatst
--  Siekiant mažinti tekstilės atliekų, gamintojai atsakomybę norėtų perkelti pardavėjams
--  Nâng cao thu nhập cho diêm dân
--  Dode bij ernstig tramongeval in Den Haag, zwarte hekken rond tram geplaatst
--  Ernstig tramongeval in Den Haag: persoon overleden, tram ontspoord
--  Valančiūno atstovaujama „Pelicans“ įveikė Rytų konferencijos autsaiderius
--  Dode bij ernstig tramongeval in Den Haag, zwarte hekken rond tram geplaatst
--  Ernstig tramongeval in Den Haag: persoon overleden, tram ontspoord
--  택시 잇단 충돌로 승객 1명 사망…"급발진 사고" 주장
+-  Meteorolojiden İzmir için Kuvvetli Yağış Uyarısı
+-  Пока идет война в Украине, нарушения воздушного пространства Польши российскими ракетами будут продолжаться, - спикер Сейма Головня
+-  LJUBAVNA PRIČA OVOG BOSANCA RASPLAČE BUKVALNO SVAKOGA &quot;13 godina čekam da popijem kafu sa njom...&quot;
+-  الخارجية الفلسطينية: الاحتلال يعمق المجاعة بمنع عمل الأونروا شمال غزة
+-  Embassy hosts Iftar for Turkish academics
+-  Özgür Özel’den gençlere çağrı. 'Gençlerin başka ülkeyi hayal etmesi beka sorunudur'
+-  Homenagem a Marielle na Câmara ganha dimensão de ato político com prisões
+-  Росія створила власний морський дрон, але він виявився невдалим, - Буданов
+-  Sitting Volleyball: Gisagara yeretse Gasabo igihandure iyitwara igikombe
+-  Після теракту у Москві Макрон зібрав Раду нацбезпеки: ухвалено рішення
