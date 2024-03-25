@@ -1,11 +1,11 @@
 # Latest News
--  Прогноз по ценам на нефть резко повысили
--  IZ AUTOMOBILA U PLAMENU SPASAO DEČAKA (3) Ante je heroj Hrvatske: Kamo sreće da sam mu spasio i majku...
--  동작구, 13톤 쓰레기 더미 속 ‘저장강박 해방’ 주거환경 개선
--  Great Celebrity Bake Off 2024: Viewers beg TV bosses to give Danny Dyer his own cookery show following hilarious appearance
--  快訊／沈默數天 大谷翔平明天將公開說明水原一平事件
--  Oil-la-la How Olive Oil Is Becoming Liquid Gold
--  PM Hun Manet highlights the five factors necessary for building an inclusive, resilient, and sustainable nation
--  L’albero di Pasqua nelle case degli italiani: spunti creativi per addobbarlo
--  AUD/USD finds some support above the 0.6500 mark, Australian CPI data eyed
--  అభివృద్ధి వైపు టీడీపీ.. డ్రగ్స్‌ వైపు వైసీపీ
+-  Relembre o assassinato de Marielle Franco e entenda por que investigação demorou 6 anos
+-  ජපන් අගමැති උතුරු කොරියන් නායකයා හමුවන්න කැමතියි
+-  Muslims observe Ramadan amid tension of Israel-Hamas war
+-  В Одессе прогремели взрывы, повреждена энергетическая инфраструктура
+-  Relembre o assassinato de Marielle Franco e entenda por que investigação demorou 6 anos
+-  DRAMA NA PUTU BERANE-ROŽAJE: Sneg pada na severu Crne Gore, na Lokvama zavejana vozila (FOTO)
+-  à¶¢à¶´à¶±à·Š à¶…à¶œà¶¸à·�à¶­à·’ à¶‹à¶­à·”à¶»à·” à¶šà·œà¶»à·’à¶ºà¶±à·Š à¶±à·�à¶ºà¶šà¶ºà·� à·„à¶¸à·”à·€à¶±à·Šà¶± à¶šà·�à¶¸à¶­à·’à¶ºà·’
+-  Candidatos à presidência do Senegal cumprimentam adversário antissistema por vitória
+-  AECB é campeã do Campeonato Brasileiro de handebol
+-  ¿Qué santos se celebran hoy, lunes 25 de marzo de 2024? Consulta el santoral
