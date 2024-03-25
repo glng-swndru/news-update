@@ -1,11 +1,11 @@
 # Latest News
--  „Cap San Diego“: Welchen besonderen Job Hund Edda an Bord hat
--  Holi in Mathura: हाईड्रोलिक पिचकारी से बरसे टेसू के रंग, आनंदित होकर झूम उठे भक्त
--  Nhiệt độ ngoài trời ở TPHCM, Nam Bộ có thể lên hơn 40 độ
--  '민주노총 와해 의혹' 허영인 SPC 회장, 피의자로 검찰 출석
--  Kerala News Live Updates: മുഖ്യമന്ത്രി നേതൃത്വം നൽകുന്ന സിഎഎ വിരുദ്ധ റാലി ഇന്ന് മലപ്പുറത്ത്
--  Suvendu Adhikari: 'গোয়ালঘর দেখিয়ে আবাসের টাকা লুঠ করেছে তৃণমূল', তীব্র নিশানা করলেন শুভেন্দু
--  Weyco Group Needs Some More Time To Play Out
--  Weyco Group Needs Some More Time To Play Out
--  Amanda Bynes shares rare selfie at dinner with friends as fans cry ‘so sorry’ after shocking Quiet On Set docuseries
--  பா.ஜ.க கூட்டணி : வைரம் பதித்த பேனாவை தொலைத்த சிவகங்கை வேட்பாளர்
+-  "Chuẩn bị tốt nhân sự đại hội Đảng, bầu cử đại biểu Quốc hội và HĐND"
+-  Русия удари с дронове Одеса, засегната е енергийна инфраструктура
+-  Обвиняемый в теракте в «Крокусе» Фаридуни публиковал в соцсетях фото из Стамбула
+-  مأساة في الضنية.. طفل فارق الحياة بطريقة مروعة
+-  Medium-Term JGBs May Fall if Talk Spreads Within BOJ for Early Rate Hike
+-  Gjorde mål och skadade sig: ”Typiskt”
+-  बाहरी दिल्ली में गोदाम में आग लगी, दमकल के 34 वाहन भेजे गए
+-  Uno-Palästinenserhilfswerk wirft Israel Verbot von Hilfslieferungen in nördlichen Gazastreifen vor
+-  Gjorde mål och skadade sig: ”Typiskt”
+-  NASTAVLJA SE SUĐENJE RODITELJIMA DEČAKA UBICE Kecmanovići će danas svedočiti po tužbi porodice Adriane Dukić
