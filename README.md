@@ -1,11 +1,11 @@
 # Latest News
--  달라진 한화, LG에 8-4 승리…페라자 연타석·채은성 쐐기포
--  محافظ تعز ومدير مكتب التربية يكرمان مؤسسة الكريمي التنموية لتدخلاتها في قطاع التعليم
--  Ba thành viên thông báo mắc ung thư trong vòng 2 tháng, Hoàng gia Anh đang gặp khủng hoảng chưa từng có?
--  Kamal Haasan shares an update about Indian 2 and Indian 3 - 123telugu
--  Haaland nói thẳng điều anh ghét nhất trong bóng đá
--  인천시, 옛 경인도로변 11개 구역 재정비 · 활성화 추진
--  Jerawat dan Bibir Kering, Masalah Kulit Saat Berpuasa di Cuaca Ekstrem
--  맘스터치, 몽골 '맘세권' 넓힌다…울란바토르에 4호점 개장
--  5 Keistimewaan Membaca Sholawat kepada Nabi Muhammad SAW di Bulan Ramadhan, Dikabulkan Doa
--  今仍暖熱中南部高溫飆37度 明鋒面報到、北東降溫轉雨
+-  Vạ lây vì 'làn sóng' hủy thẻ tín dụng sau vụ nợ 8,5 triệu thành 8,8 tỷ đồng tại Eximbank
+-  [그래픽] 비례대표 공천현황-새로운미래
+-  Bulan Suci Ramadhan Tak Hilangkan Semangat Babinsa Komsos Dengan Warga Binaan
+-  Nicolla Porcela y xCry graban vídeo musical en Yucatán: ¿qué es Crycola?
+-  KCC건설, 1430억 규모 국군재정관리단 발주 사업 수주
+-  [테크리포트]뜨거운 AI 식히기…윤활유의 변신 어디까지
+-  LS Polls Live: Ghaziabad BJP MP VK Singh To Not Contest This Year's Election
+-  【東証 最高値更新】バブル再来か 停滞脱却か 生活実感とずれ 金融資産の流動鍵＜鈴木徹のニュースがわかる＞
+-  「射撃場も同然だった」…ロシアテロ、過去のコンサート・フェスティバルの悪夢ふたたび(中央日報日本語版)
+-  Murder arrest at Heathrow Airport after man hit by car - BBC.com
