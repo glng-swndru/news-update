@@ -1,11 +1,11 @@
 # Latest News
--  "Zar se to radi na prijateljskoj utakmici?" Novi haos Granita Džake, poludeo zbog poteza protivnika i krenuo u obračun
--  Atac terorist la Moscova. Washingtonul subliniază că nu există „implicare ucraienană”
--  توقيع اتفاقية «ربط - المرحلة الثانية» وتوسعة شبكة الكهرباء في محافظة ظفار بـ 322 مليون ريال
--  Кафу из-за долгов продает виллу в Сан-Паулу – ее оценили в 7,4 млн евро. Экс-игрок «Милана» должен около 3,3 млн евро кредиторам
--  Gana’nın Başkenti, Bayrağının Anlamı, Nüfusu, Ana Dili, Para Birimi
--  Riti della Settimana Santa Nojana: fede e tradizione popolare come metafora di rinascita
--  SV Schott gegen FC Carl Zeiss: „Jena ist die kleine Fußballhauptstadt des Freistaats“
--  ПП-ДБ с последен призив към ГЕРБ: "Да подпишем споразумение с премиер Мария Габриел"
--  Ministros de Lula prestam solidariedade a Anielle Franco e cobram esclarecimento do crime
--  La inesperada e insólita lesión del Kun Agüero con la camiseta de Independiente
+-  AXA Sigorta Kadınlar Kupa Voley şampiyonu Fenerbahçe Opet oldu
+-  Kiepsko zaczęli, świetnie skończyli. Bogdanka LUK Lublin pewna gry w fazie play-off! [zdjęcia]
+-  Berlusconi: Russo, 'ennesima lezione per tutti da uomo di statura'
+-  Manthali-Lukla direct flights begin
+-  Islamska država objavila novi video napada u Moskvi
+-  Gledajte na Informer TV: Podkast sa generalom Goranom Radosavljevićem Gurijem!
+-  Christian Horner accuser 'paying hundreds of thousands and hires David Cameron ally'
+-  Linha do tempo mostra os seis anos de investigação do caso Marielle, de 2018 a 2024
+-  Mikrohausexperte im Interview: „Das Tiny House ist für Leute mit Geld“
+-  Karlsone, Ivanova un Hudjakova nopelna Jelgavai pirmo bronzu
