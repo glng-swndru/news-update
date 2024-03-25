@@ -1,11 +1,11 @@
 # Latest News
--  Qatillərdən biri martın əvvəlində “Crocus”da olub və şəkil çəkdirib - FOTO
--  Küresel piyasalarda yatırımcıların odağında ne var?
--  Omnisports. Focus : le week-end sport en 10 images 📸
--  Kranj za 18 ton manj usran
--  ‘수지맞은 우리’ 함은정, 첫 의사 役 “자문 구하고 서적 찾아봐”
--  10 sztár, aki hazudott, hogy megkapjon egy szerepet
--  نجم التعاون يتفوق على ثنائي الهلال والنصر
--  Mass. Congolese community decries Trump’s harmful calumny
--  Odwet za TikToka? Chiny zakazują procesorów Intela i AMD oraz Windowsa
--  PSV'ers Dest en Tilmann in finale Nations League met VS te sterk voor Mexico van Feyenoorder Giménez
+-  Poljoprivredni potencijali Mladenovca su veliki, ali moraju da se razvijaju i šire (FOTO)
+-  Israel geht auf einige Hamas-Forderungen ein
+-  Toplam 295 sayı atılan maçı Lakers kazandı
+-  "요소수 사태 재발은 없다"…'요소 공급망 얼라이언스' 발족
+-  Dr Johannes-Paul Richter: tarczycę powinno się sprawdzić co najmniej raz w życiu
+-  Агуеро заявив про бажання повернутися в професійний футбол
+-  Nathalie Saint-Cricq à Pessac : « J’aime le principe d’aller fouiller dans les archives, de téléphoner, de chercher dans les livres »
+-  ‘11G 4승7패’ 흔들리는 골든스테이트, 플레이-인 토너먼트도 장담 못한다
+-  The Herald investigates the two Glasgow School of Art fires
+-  Srpkinja se požalila kako je buduća svekrva i zaova stalno sabotiraju pa dobila punu podršku od svih: "Osećam se kao višak a njega baš briga"
