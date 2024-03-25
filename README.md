@@ -1,11 +1,11 @@
 # Latest News
--  Pernikahan Palsu, Modus Baru Perdagangan Perempuan Filipina
--  Frankrijk schroeft dreigingsniveau op naar hoogste niveau na terreuraanslag in Moskou
--  Procons de MS vão receber R$ 1 milhão para projetos voltados ao consumidor
--  Dostál neodvrátil prohru Anaheimu, Colorado smazalo čtyřbrankovou ztrátu
--  [모닝와이드] 오늘의 주요뉴스
--  Alors qu'il conduisait sans permis dans le Var, il cause de graves blessures dans un délit de fuite
--  Hokejisté Colorada porazili v NHL Pittsburgh, i když prohrávali 0:4
--  Семь человек погибли в Рио-де-Жанейро в результате проливных дождей
--  Frankrijk verhoogt terreuralarm naar hoogste niveau na aanslag in Moskou
--  Netwerk24 | 6 wat glo rooftog beplan in Johannesburg aangekeer
+-  Calcit osvojil pokal, Kubanec paral živce Mariborčanom
+-  Dode bij ernstig tramongeval in Den Haag, zwarte hekken rond tram geplaatst
+-  Siekiant mažinti tekstilės atliekų, gamintojai atsakomybę norėtų perkelti pardavėjams
+-  Nâng cao thu nhập cho diêm dân
+-  Dode bij ernstig tramongeval in Den Haag, zwarte hekken rond tram geplaatst
+-  Ernstig tramongeval in Den Haag: persoon overleden, tram ontspoord
+-  Valančiūno atstovaujama „Pelicans“ įveikė Rytų konferencijos autsaiderius
+-  Dode bij ernstig tramongeval in Den Haag, zwarte hekken rond tram geplaatst
+-  Ernstig tramongeval in Den Haag: persoon overleden, tram ontspoord
+-  택시 잇단 충돌로 승객 1명 사망…"급발진 사고" 주장
