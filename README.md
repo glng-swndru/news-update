@@ -1,11 +1,11 @@
 # Latest News
--  Tragedia di Sottomarina, i pompieri: "Intervenuti subito ma era già troppo tardi"
--  UK, Kuwait celebrate years of partnership, plant trees
--  ΣΥΡΙΖΑ-ΠΣ: Η Θήβα είναι πολύ κοντά στην… Κουμουνδούρου
--  Los granos de hielo en el espacio contienen signos de vida
--  Des grains de glace dans l’espace contiennent des signes de vie
--  Kreisliga Buchen: Ein Phantomtor, das eigentlich gar keines war
--  Țara iubită de români care nu reușește să își vândă casele cu doar un euro. Care sunt motivele
--  Microsoft anuncia las nuevas versiones de Windows que recibirán Copilot a finales de mes
--  След 30 години в замъка Уоруик: Бухалът Ърни се пенсионира
--  Θανάσης Πολυκανδριώτης για Πίτσα Παπαδοπούλου: «Την είδα, τη γουστάρισα και της έδωσα το τηλέφωνό μου»
+-  2 daughters, 2 parents, and echoes of a murder that rocked Indigenous activism
+-  Dick Advocaat komt met Curaçao in tweede oefenduel niet verder dan gelijkspel
+-  2 daughters, 2 parents, and echoes of a murder that rocked Indigenous activism
+-  Bahn bietet Zugbegleitern Tragen von Bodycams an
+-  2 daughters, 2 parents, and echoes of a murder that rocked Indigenous activism
+-  2 daughters, 2 parents, and echoes of a murder that rocked Indigenous activism
+-  2 daughters, 2 parents, and echoes of a murder that rocked Indigenous activism
+-  Fiorentina Femminile: commozione per Joe Barone, ma al Viola Park l'Inter vince 3-0
+-  Osumnjičeni za teroristički napad u Moskvi dovedeni u Istražni...
+-  Dick Advocaat komt met Curaçao in tweede oefenduel niet verder dan gelijkspel
