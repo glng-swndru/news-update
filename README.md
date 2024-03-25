@@ -1,11 +1,11 @@
 # Latest News
--  Poljoprivredni potencijali Mladenovca su veliki, ali moraju da se razvijaju i šire (FOTO)
--  Israel geht auf einige Hamas-Forderungen ein
--  Toplam 295 sayı atılan maçı Lakers kazandı
--  "요소수 사태 재발은 없다"…'요소 공급망 얼라이언스' 발족
--  Dr Johannes-Paul Richter: tarczycę powinno się sprawdzić co najmniej raz w życiu
--  Агуеро заявив про бажання повернутися в професійний футбол
--  Nathalie Saint-Cricq à Pessac : « J’aime le principe d’aller fouiller dans les archives, de téléphoner, de chercher dans les livres »
--  ‘11G 4승7패’ 흔들리는 골든스테이트, 플레이-인 토너먼트도 장담 못한다
--  The Herald investigates the two Glasgow School of Art fires
--  Srpkinja se požalila kako je buduća svekrva i zaova stalno sabotiraju pa dobila punu podršku od svih: "Osećam se kao višak a njega baš briga"
+-  THY pilotu 30 günde 2 dünya rekoru kırdı
+-  Tai nạn ở Lạng Sơn khiến bé trai tử vong: Tài xế đã còi để cảnh báo nhưng cháu bé cúi xuống nhặt kẹo
+-  Valódi felvétel vagy generált video? Íme, a YouTube MI címkézési rendszere
+-  Đầu tư gần 3.000 tỷ đồng nâng cấp tuyến Quốc lộ kết nối 2 tỉnh miền Tây
+-  이다해, 군살 없는 모노키니…옆구리 구멍까지 ‘핫하다 핫해’ [DA★]
+-  Evine çağırmıştı! TikTok’ta kız çocuklarını taciz eden emekli uzman çavuş gözaltına alındı
+-  “‘내가 참을걸’ 신고 후회하던 교사 안타까워”...서울 지역교권보호위 구성
+-  Jangankan Kalah, Seri Aja Timnas Indonesia Ogah! Shin Tae-yong: Kami di Vietnam untuk Menang
+-  Светофоры временно отключат на участке ул.Казинца в Минске
+-  Hatay'da deprem hasarlı evde yangın
