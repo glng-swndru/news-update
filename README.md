@@ -1,11 +1,11 @@
 # Latest News
--  Suomalais­vahdit säkenövät: Kaapo Kähkönen piti nollan, Korpisalo taivutti Edmontonin
--  Siyasetin kaynağı
--  UIM-ABP 世界水上摩托锦标赛在越南归仁圆满落幕
--  「吉祥・如藝」49萬起即簽約，住近市府站 達永聯手新潤顛覆北市心購屋觀念
--  Pj Bupati Maybrat Borong Semua Dagangan di Pasar Kampung Fuog, Wujud Gerakkan Perekonomian Lokal
--  【京都】行列がすごすぎて予約制になったお店も。絶品ドーナツ〈Kew〉〈RONMADOR〉(Hanako Web)
--  ‘พาณิชย์-DITP’ ส่งทูตพาณิชย์คุนหมิง ถกผู้บริหารด่าน เปิดทางสะดวกผลไม้ไทย
--  লিভার ভালো রাখে লাউ! ওজন এবং উচ্চ রক্তচাপও থাকে নিয়ন্ত্রণে
--  ‘স্বাধীনতার ঘোষক’ প্রশ্নে আদালতের নির্দেশনা সত্ত্বেও কেন আইন করছে না সরকার?
--  Sparbrief vs. Finanzberater: Welche Strategie ist die richtige Wahl?
+-  [콘텐츠 핫&뉴] ‘FC온라인’ 최상위 리그 KT 롤스터 우승
+-  Depredación en nuestro Atlántico Sur
+-  NCOP backs Expropriation Bill despite constitutional concerns
+-  More Vietnamese people go cashless: Visa study
+-  Bí ẩn những ngôi mộ xa hoa hơn 800 năm tuổi
+-  Ông Trump sắp có tiền “khủng” để thoát nguy?
+-  Devastating blaze rips through buildings, police vehicles in Mthatha
+-  Με δράσεις 38 εκατ. ευρώ σχεδιάζουν αντιπυρικές ζώνες σε Έβρο, Εύβοια, Χαλκίδα, Μεσσηνία, Λακωνία
+-  日産「謎のマーチ」がスゴい！ 1億円超え「イタルGT-R風」デザインの激レア車、発見!? 京都校に展示されるワケ(くるまのニュース)
+-  勇士附加賽告急！ 柯瑞喊話：願上場更多時間拚戰績
