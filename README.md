@@ -1,11 +1,11 @@
 # Latest News
--  VIDEO: Krievija atkal apšaudījusi Kijivu ar raķetēm
--  Elon Musk promete un dispositivo que permitirá curar la ceguera: "Ya está funcionando en monos"
--  “SONO IL BRACCIO DESTRO DI PUTIN E TU NON SEI NESSUNO!” – A NAPOLI UNA BADANTE RUSSA DI 48 ANNI MALTRATTAVA L’ANZIANO DI CUI SAREBBE DOVUTA PRENDERE CURA. LA DONNA SBROCCAVA IN MODO PARTICOLARE QUANDO IL POVERETTO, IN SEDIA A ROTELLE, NON LE DAVA I SOLDI PER L’ALCOL – L’UOMO È RIUSCITO AD AVVERTIRE LA FIGLIA DEI MALTRATTAMENTI SUBÌTI. QUANDO I CARABINIERI SONO ARRIVATI HANNO TROVATO LEI CHE RACCOGLIEVA UN PIATTO APPENA TIRATO ALL’ANZIANO...
--  "Новая глава в войне с терроризмом": мировые СМИ о нападении на "Крокус Сити Холл"
--  Faits divers. Homicides et violences en série à Dijon et son agglomération : où en est-on ?
--  10년 공들인 애플은 포기…베일 벗은 '샤오미 전기차'
--  Dendias'tan Türkiye açıklaması: Revizyonizmde ısrar ediyorlar
--  القيادة تهنئ رئيسة الجمهورية الهيلينية بذكرى استقلال بلادها
--  Apple, Google und Facebook: EU-Kommission eröffnet Untersuchung wegen Marktmissbrauchs
--  शिक्षा मन्त्रालयले भन्यो- सरकारी स्कूलमा कुनै पनि शुल्क नलिनू
+-  Meghan Markle’s ‘domestic goddess’ business may be inspired by another Californian brand
+-  Kozan polisi uygulamada ruhsatsız tabanca ele geçirdi
+-  Службата за сигурност на Украйна е била мишената на руските балистични ракети по Киев (ВИДЕО)
+-  Sainsbury’s Good Friday and Easter Sunday 2024 opening times: What time are stores open?
+-  Lo que dejó el fin de semana: una candidata para la Corte Suprema y la visita de una diputada al Centro Armenio
+-  Touristin (21) am Hauptbahnhof Regensburg sexuell belästigt
+-  Fruits, veggie vendors suffer financial losses
+-  Sainsbury’s Good Friday and Easter Sunday 2024 opening times: What time are stores open?
+-  TV Wetzlar beendet in Neustadt seine Negativserie
+-  Ucraina, su Kiev il missile ipersonico Zircon: come funziona
