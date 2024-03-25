@@ -1,11 +1,11 @@
 # Latest News
--  Мошенники придумали новую схему кражи данных пользователей «Госуслуг»
--  Năm 2024, kinh doanh online bao nhiêu phải nộp thuế thu nhập cá nhân để không phạm luật?
--  36 yıl önce pazardan aldığı broşun gerçek fiyatını öğrenince şoke oldu
--  Amadeu Paixão reclama 348 mil euros ao FC Porto
--  राम्चेवासीले पाए खानेपानी
--  Vụ thanh niên ở Hải Dương tát liên tục vào mặt bé gái lớp 7: Hé lộ nguồn cơn sự việc
--  Haitians stock up in Dominican Republic, away from capital violence
--  禾意遭法院認證「偽合作社」 內政部：已列重點稽查對象
--  Bintang Muda Arsenal Ini Idolakan Rasmus Hojlund
--  Ramalan Zodiak Kesehatan Besok Selasa 26 Maret 2024: Kondisi Gemini, Virgo, Capricorn Baik
+-  China's construction for Indonesia's new capital Nusantara to lead growing overseas city-building portfolio
+-  「魚に優しい釣り針」45歳社長が開発 「琵琶湖の宝石に最高」
+-  Moskau: Verdächtige bekennen sich schuldig
+-  SPK bir şirketin halka arzına izin verdi
+-  Навални беше последната бяла лястовица в съпротивата
+-  Qatar Rail holds annual staff Iftar event
+-  Anreize für Migration
+-  台智光案柯文哲怪蔣萬安用3M 游淑慧曝內幕：很難懂嗎？
+-  F1日本GP 近鉄白子駅に2023年表彰台3選手の手形を刻印したモニュメント
+-  Dr Wee thanks the 'men in blue' on 217th Police Day
