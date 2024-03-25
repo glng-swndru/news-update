@@ -1,11 +1,11 @@
 # Latest News
--  EU Commissioner Thierry Breton and GSB Chariman Josip Heit in the fight against online defamation
--  Berjaya di Swiss Open 2024, Lanny/Ribka Koleksi Gelar BWF Super 300 Perdana
--  Вечерен виц: Какво е ЧНГ в България?
--  Neljän auton ketjukolari Turussa – kymmenen osallista
--  Klatschen verboten: Freiberger läuten mit Johannespassion das Ende der Fastenzeit ein
--  Kate ‘extremamente comovida’ com as mensagens de apoio após anúncio de câncer
--  Yunanistan'da NATO trenini durdurup 'Katil eve dön' yazdılar!
--  Presidente del Incoop apuesta a la tecnología para fiscalizar las cooperativas
--  Στα ύψη το πολιτικό θερμόμετρο με φόντο τα Τέμπη: Πρόταση μομφής από την αντιπολίτευση - «Καλοδεχούμενη», λέει η κυβέρνηση
--  Présidentielle 2024: une très forte affluence à Touba
+-  Tragedia di Sottomarina, i pompieri: "Intervenuti subito ma era già troppo tardi"
+-  UK, Kuwait celebrate years of partnership, plant trees
+-  ΣΥΡΙΖΑ-ΠΣ: Η Θήβα είναι πολύ κοντά στην… Κουμουνδούρου
+-  Los granos de hielo en el espacio contienen signos de vida
+-  Des grains de glace dans l’espace contiennent des signes de vie
+-  Kreisliga Buchen: Ein Phantomtor, das eigentlich gar keines war
+-  Țara iubită de români care nu reușește să își vândă casele cu doar un euro. Care sunt motivele
+-  Microsoft anuncia las nuevas versiones de Windows que recibirán Copilot a finales de mes
+-  След 30 години в замъка Уоруик: Бухалът Ърни се пенсионира
+-  Θανάσης Πολυκανδριώτης για Πίτσα Παπαδοπούλου: «Την είδα, τη γουστάρισα και της έδωσα το τηλέφωνό μου»
