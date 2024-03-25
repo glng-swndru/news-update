@@ -1,11 +1,11 @@
 # Latest News
--  [콘텐츠 핫&뉴] ‘FC온라인’ 최상위 리그 KT 롤스터 우승
--  Depredación en nuestro Atlántico Sur
--  NCOP backs Expropriation Bill despite constitutional concerns
--  More Vietnamese people go cashless: Visa study
--  Bí ẩn những ngôi mộ xa hoa hơn 800 năm tuổi
--  Ông Trump sắp có tiền “khủng” để thoát nguy?
--  Devastating blaze rips through buildings, police vehicles in Mthatha
--  Με δράσεις 38 εκατ. ευρώ σχεδιάζουν αντιπυρικές ζώνες σε Έβρο, Εύβοια, Χαλκίδα, Μεσσηνία, Λακωνία
--  日産「謎のマーチ」がスゴい！ 1億円超え「イタルGT-R風」デザインの激レア車、発見!? 京都校に展示されるワケ(くるまのニュース)
--  勇士附加賽告急！ 柯瑞喊話：願上場更多時間拚戰績
+-  「桃の滴」リニューアル発表! 伝統の味、京都伏見の日本酒が新たな魅力を引き出し4月11日～新発売(おとなの週末)
+-  Equipo vietnamita gana título mundial de billar
+-  Phương án nào cho việc 'lên đời' chung cư cũ?
+-  Bijapur: नक्सलियों की गोलाबारी में डीआरजी जवान घायल
+-  Pengorbanan Xavi dan Kebangkitan Barcelona
+-  Nữ ca sĩ Vbiz xuất thân từ nhà nông, giờ chưa đến 30 tuổi đã có nhà khắp nơi, kim cương cỡ đại có cả bộ sưu tập
+-  Elon Musk thất bại ‘toàn tập’ với X: Hơn 1 năm chưa thể lôi kéo người làm nội dung, nền tảng chi trả hoa hồng không nhất quán, thua xa YouTube, TikTok
+-  Ứng viên vô địch khẳng định sức mạnh ở giải bóng đá sinh viên
+-  驗船中心：MEPC明年上半年批准防止船舶污染國際公約修正案
+-  「裏切者を忘れずに名前を特定しろ」プーチン氏7600万票で圧勝も…2200万票が不正との指摘 開票作業中映像も物議 ロシア
