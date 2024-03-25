@@ -1,11 +1,11 @@
 # Latest News
--  "Razlog nije drama u zadnjih nekoliko tjedana": Otkriveno zašto je Kate snimila video
--  MotoGP Portugal Berakhir Dramatis, Martin Juara, Acosta Naik Podium, Pecco dan Marquez Bersenggolan Lalu Jatuh
--  CGTN: China advances battle against tuberculosis - Canada NewsWire
--  Présidentielle 2024: Amadou Bâ se dit très confiant de sa victoire, dès le premier tour
--  Mauricas: dėl pingančios energijos PVM planas gali būti nesurinktas
--  Moskva terrorunda "erməni izi" necə gizlədilir: Ermənilərə Rusiyada xaos üçün psixoloji terror sifariş edilib
--  Ердоган призова избирателите масово да гласуват за кандидатите на управляващата партия на предстоящите местните избори
--  Evangelina Anderson reveló el dramático episodio que vivió con Martín Demichelis en Marbella
--  Kanselo: Gvardiola je širio laži o meni, Siti ih nije demantovao
--  Литвинович стал третьим на этапе Кубка мира по прыжкам на батуте в Германии
+-  EU Commissioner Thierry Breton and GSB Chariman Josip Heit in the fight against online defamation
+-  Berjaya di Swiss Open 2024, Lanny/Ribka Koleksi Gelar BWF Super 300 Perdana
+-  Вечерен виц: Какво е ЧНГ в България?
+-  Neljän auton ketjukolari Turussa – kymmenen osallista
+-  Klatschen verboten: Freiberger läuten mit Johannespassion das Ende der Fastenzeit ein
+-  Kate ‘extremamente comovida’ com as mensagens de apoio após anúncio de câncer
+-  Yunanistan'da NATO trenini durdurup 'Katil eve dön' yazdılar!
+-  Presidente del Incoop apuesta a la tecnología para fiscalizar las cooperativas
+-  Στα ύψη το πολιτικό θερμόμετρο με φόντο τα Τέμπη: Πρόταση μομφής από την αντιπολίτευση - «Καλοδεχούμενη», λέει η κυβέρνηση
+-  Présidentielle 2024: une très forte affluence à Touba
