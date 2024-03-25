@@ -1,11 +1,11 @@
 # Latest News
--  В Испании по подозрению в мошенничестве задержаны 12 членов преступной группы, в том числе россияне
--  Za rasismus dostal fotbalový trenér Rada rekordní osmiměsíční stopku. Trest nechápe
--  İstanbul mitinginde konuşan Erdoğan: İstanbul'un temel sorunu vizyon ve beceri eksikliğidir
--  Kriti Kharbanda, Pulkit Samrat share blissful moments from their Haldi ceremony
--  Combates se intensificam em Gaza e Guterres pede o fim do ‘pesadelo’ da guerra
--  Combates se intensificam em Gaza e Guterres pede o fim do ‘pesadelo’ da guerra
--  "Egy nő, akinek golyó fúródott a halántékába, pont mellettem esett el" – megrázó részletek a moszkvai dráma túlélőitől
--  Campanha de vacinação contra a gripe começa nesta segunda em Juiz de Fora; veja os grupos prioritários e onde se vacinar
--  ৭ বাৰ বিবাহ বিচ্ছেদ, কুখ্যাত গেংষ্টাৰো আছিল এইগৰাকী নায়িকাৰ প্ৰেমিক!
--  Otpisani igrač Cityja: Guardiola je lagao o meni
+-  Левски трепери за бразилец
+-  ¿Cómo es vivir de ‘echar el cuento’? Tres artistas dan su narración oral
+-  « Nous nous sommes battus pour arriver à ce jour », Aliou Mamadou Dia
+-  Sankt-Peterburqda London Mall ticarət mərkəzi təxliyyə edilib - şahidlərin VİDEOSU
+-  Тези домашни локумки ще ви напомнят за вкуса на детството
+-  Ledene kocke - najbolji kremasti kolač koji svi obožavaju
+-  Microsoft Surface Go 4: Solides 2-in-1 mit Schwächen
+-  Viagra linked to 50 percent reduction of Alzheimer's risks in new study
+-  В Сенегале проходят президентские выборы
+-  HLV Mourinho xác nhận tái xuất, nhận đề nghị tiếp quản bến đỗ trong mơ
