@@ -1,11 +1,11 @@
 # Latest News
--  Meteorolojiden İzmir için Kuvvetli Yağış Uyarısı
--  Пока идет война в Украине, нарушения воздушного пространства Польши российскими ракетами будут продолжаться, - спикер Сейма Головня
--  LJUBAVNA PRIČA OVOG BOSANCA RASPLAČE BUKVALNO SVAKOGA &quot;13 godina čekam da popijem kafu sa njom...&quot;
--  الخارجية الفلسطينية: الاحتلال يعمق المجاعة بمنع عمل الأونروا شمال غزة
--  Embassy hosts Iftar for Turkish academics
--  Özgür Özel’den gençlere çağrı. 'Gençlerin başka ülkeyi hayal etmesi beka sorunudur'
--  Homenagem a Marielle na Câmara ganha dimensão de ato político com prisões
--  Росія створила власний морський дрон, але він виявився невдалим, - Буданов
--  Sitting Volleyball: Gisagara yeretse Gasabo igihandure iyitwara igikombe
--  Після теракту у Москві Макрон зібрав Раду нацбезпеки: ухвалено рішення
+-  L’illuminazione sarà più “green” Via all’accordo
+-  밝기 조절해 '탈탈'…중고 거래 사이트 뒤져 140만 원어치 가로채
+-  Solemne traslado del Cristo de la Expiración a hombros de los hermanos de La Pasión
+-  Miles de argentinos participaron de la movilización por el Día Nacional de la Memoria por la Verdad y la Justicia
+-  La lucha de las Madres Plaza de Mayo por los desaparecidos de la dictadura argentina
+-  Azərbaycanda tur-səyahətlər bahalaşıb - VİDEO
+-  Solemne traslado del Cristo de la Expiración a hombros de los hermanos de La Pasión
+-  DALMATINAC KRENUO DA SADI KROMPIR PA NALETEO NA POSKOKA Učinio je nešto što mnogi nisu očekivali
+-  COMENTARIO A DECAMERÓN
+-  Dante e l’astronomia martedì l’happening di Ascom e Artigiani
