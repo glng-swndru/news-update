@@ -1,11 +1,11 @@
 # Latest News
--  籲蔡英文登太平島！ 馬英九：不為利誘、不為勢劫
--  Kenerak spesies eksotik Sungai Pahang
--  'Vị đắng' hạt cà phê Việt Nam: Giá bán vọt lên mức cao nhất thế giới nhưng DN thua lỗ kỷ lục, 'cơn ác mộng' xảy ra như thế nào?
--  Thừa nhận mệt mỏi, tuyển thủ Indonesia vẫn quyết thắng ĐT Việt Nam
--  Re–Live Pia Wurtzbach’s Crowning Glory With Her Wax Figure in Madame Tussauds Singapore
--  서울시 '기후동행카드' 고양시 참여…지하철 우선 도입
--  서울 기후동행카드에 고양 참여…상반기 중 경의중앙·서해선 등 서비스
--  Borsa: Shanghai apre a -0,25%, Shenzhen a -0,30%
--  【ファッション】羽織れる「恐竜」タオル…身に着けたところがメッチャ斬新？(LASISA)
--  고양시도 서울 '기후동행카드' 동참…"경기 북부 편의↑"
+-  달라진 한화, LG에 8-4 승리…페라자 연타석·채은성 쐐기포
+-  محافظ تعز ومدير مكتب التربية يكرمان مؤسسة الكريمي التنموية لتدخلاتها في قطاع التعليم
+-  Ba thành viên thông báo mắc ung thư trong vòng 2 tháng, Hoàng gia Anh đang gặp khủng hoảng chưa từng có?
+-  Kamal Haasan shares an update about Indian 2 and Indian 3 - 123telugu
+-  Haaland nói thẳng điều anh ghét nhất trong bóng đá
+-  인천시, 옛 경인도로변 11개 구역 재정비 · 활성화 추진
+-  Jerawat dan Bibir Kering, Masalah Kulit Saat Berpuasa di Cuaca Ekstrem
+-  맘스터치, 몽골 '맘세권' 넓힌다…울란바토르에 4호점 개장
+-  5 Keistimewaan Membaca Sholawat kepada Nabi Muhammad SAW di Bulan Ramadhan, Dikabulkan Doa
+-  今仍暖熱中南部高溫飆37度 明鋒面報到、北東降溫轉雨
