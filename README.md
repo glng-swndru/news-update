@@ -1,11 +1,11 @@
 # Latest News
--  Songkran festival expected to lure millions of tourists to Thai province
--  à¶šà·”à¶«à·” à¶¸à·�à·…à·” à¶šà¶±à·Šà¶§à·šà¶±à¶»à·Š à¶œà·�à¶± à·ƒà·“à¶…à¶ºà·’à¶©à·“ à¶´à¶»à·“à¶šà·Šà·‚à¶«à¶ºà¶šà·Š
--  කුණු මාළු කන්ටේනර් ගැන සීඅයිඩී පරීක්ෂණයක්
--  İcra başçısını öldürmək istəyən şəxs həbs edildi
--  Festa del Popolo Veneto, gli auguri di Zaia: «Aspiriamo alla pace»
--  [자막뉴스] 귀에 붕대 감고 등장한 테러범…잔혹한 고문 장면 공개
--  Olajfinomítót akarhattak felrobbantani Oroszországban + videó
--  Tales from the river
--  “Lò đào tạo” đại gia Việt: Không phải trường chuyên, ngôi trường THPT ít ai biết đến này mới là nơi xuất phát của Phạm Nhật Vượng và loạt doanh nhân khác
--  "Наслаждавайте се": Макрон раздаде безплатни презервативи на младежите във Франция
+-  전 세계 완주자 20명뿐인 ‘세계에서 가장 힘든 마라톤’…최초 여성 완주자 탄생
+-  La sospensione e poi le botte: preside picchiato dal compagno della madre di uno studente
+-  Relaciones exteriores 2026 (I)
+-  Pressestimmen: Terroranschlag bei Moskau: "Auch Deutschland bleibt im Fadenkreuz des IS"
+-  Популярный метод похудения оказался смертельно опасным: как не стать жертвой собственного тела
+-  Първо в "24 часа": Мария Габриел подаде отказ да бъде избрана за премиер (Вижте пълния текст на документа)
+-  Atacado pelo Daesh, Putin quer vingar-se nos ucranianos, mas as vítimas podem ser novamente os russos
+-  В Вилейке пенсионерку после топки печи госпитализировали с ожогами
+-  Sokakta yaşayan kimsesizlerin ihtiyaçlarının karşılanması için yayımlanan genelgenin tarihi uzatıldı
+-  Shraddha Kapoor की लेटेस्ट तस्वीरों में फैंस ने की ताका झांक, दिख गया कुछ ऐसा कि चर्चा का मुद्दा बन गयी अभिनेत्री की Love Life
