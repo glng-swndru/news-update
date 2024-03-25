@@ -1,11 +1,11 @@
 # Latest News
--  國軍弟兄加持戰神「戰力強」！大勝雲豹喜獲3連勝
--  ONLINE: Kometa - Litvínov 0:0. Brněnský nápor, Zaťovič trefil tyč
--  Вице-президент США Гаррис отвергла заявление Путина о причастности Украины к теракту в "Крокусе": Нет никаких доказательств
--  Fronda, Canino secure Chess Olympiad berths
--  Qatar Chamber, MoL examine businessmen’s perspectives on mandatory health insurance system
--  Police search for Paul Reynolds from Hollesley Bay prison
--  Guerra in Ucraina, nuovo attacco contro Kiev: missile russo entra nello spazio aereo polacco
--  Росія не заслуговує на образ країни-жертви. Чому це треба пояснювати Заходу?
--  충대의대 교수진 "한동훈 중재안서 의대 증원 논의 없어… 오늘부터 사직서 제출"
--  De kan vinna årets fågelholk
+-  Jail for posting and boasting in coalition crime plan
+-  وزير الشؤون الدينية يعطي إشارة انطلاق فعاليات الدورة 49 لمسابقة لترتيل لقران الكريم
+-  Frühjahrsjahrmarkt in Osnabrück: Organisatoren ziehen positive Bilanz
+-  ODT quiz: March 25
+-  Kicker, Spielautomat, Tanzclub: Damit will die neue Bar „The Keyf“ bei Gästen punkten
+-  Nyt on paras aika vaihtaa huonekasvin mullat – Hortonomi Elisa Vappula kertoo, miten se onnistuu
+-  Financiers shun nuclear, upbeat on climate investment
+-  SWERTRES RESULT Today, Monday, March 25, 2024
+-  De möter hot och våld när de ska rädda liv
+-  Maignan Milan, c’è ancora distanza tra le parti: le NOVITA’ sul rinnovo del portiere francese
