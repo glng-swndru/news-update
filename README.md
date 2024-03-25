@@ -1,11 +1,11 @@
 # Latest News
--  EuroLeague: Ο «βασιλιάς» Μάικ Τζέιμς και τα εντυπωσιακά νούμερα των Πίτερς, Ναν
--  Alta allerta terrorismo in Italia: riunione al Viminale dopo l'attentato a Mosca
--  Optuženima za napad u Moskvi određen pritvor
--  Ozarboyjon fuqarosi “Krokus”dagi terakt vaqtida yuzdan ortiq odamni qutqardi.
--  TKDK 2024’te 248 Milyon Avro hibe dağıtacak!
--  बैंकॉक मोटर शो में चीनी ईवी निर्माता स्पॉटलाइट
--  Başkan Ali Kemal Deveciler, esnaf ve vatandaşlarla buluştu
--  Największy projekt komunikacyjny w historii Gdańska
--  “Kim milyoner olmak ister?”də 5 milyon qazandı
--  Ariana Madix buys new home in LA amid legal dispute with ex Tom Sandoval
+-  「きのこの山」そっくりワイヤレスイヤホン 耳に装着! 世界144言語の同時翻訳も搭載
+-  Azerbaycan'da terör eylemleri gerçekleştirmeyi planlayan zanlı tutuklandı
+-  Chistera, courses tranchantes... pour son retour à XV, Antoine Dupont s'est illustré malgré la défaite de Toulouse à Bordeaux
+-  Koruma altındaki köyde definecilere göz açtırılmıyor
+-  Chistera, courses tranchantes... pour son retour à XV, Antoine Dupont s'est illustré malgré la défaite de Toulouse à Bordeaux
+-  S Jaishankar Meets Singapore FM Vivian Balakrishnan To Discuss Bilateral Ties, Trade Concerns
+-  Gençlerden Çetinkaya’ya tam destek
+-  Lazio, Tudor valuta la rosa a disposizione: ma per giugno ci sono diversi "fedelissimi"
+-  Chistera, courses tranchantes... pour son retour à XV, Antoine Dupont s'est illustré malgré la défaite de Toulouse à Bordeaux
+-  Francja podnosi stopień zagrożenia terrorystycznego po ataku w Moskwie
