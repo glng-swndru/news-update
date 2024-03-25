@@ -1,11 +1,11 @@
 # Latest News
--  Левски трепери за бразилец
--  ¿Cómo es vivir de ‘echar el cuento’? Tres artistas dan su narración oral
--  « Nous nous sommes battus pour arriver à ce jour », Aliou Mamadou Dia
--  Sankt-Peterburqda London Mall ticarət mərkəzi təxliyyə edilib - şahidlərin VİDEOSU
--  Тези домашни локумки ще ви напомнят за вкуса на детството
--  Ledene kocke - najbolji kremasti kolač koji svi obožavaju
--  Microsoft Surface Go 4: Solides 2-in-1 mit Schwächen
--  Viagra linked to 50 percent reduction of Alzheimer's risks in new study
--  В Сенегале проходят президентские выборы
--  HLV Mourinho xác nhận tái xuất, nhận đề nghị tiếp quản bến đỗ trong mơ
+-  "Razlog nije drama u zadnjih nekoliko tjedana": Otkriveno zašto je Kate snimila video
+-  MotoGP Portugal Berakhir Dramatis, Martin Juara, Acosta Naik Podium, Pecco dan Marquez Bersenggolan Lalu Jatuh
+-  CGTN: China advances battle against tuberculosis - Canada NewsWire
+-  Présidentielle 2024: Amadou Bâ se dit très confiant de sa victoire, dès le premier tour
+-  Mauricas: dėl pingančios energijos PVM planas gali būti nesurinktas
+-  Moskva terrorunda "erməni izi" necə gizlədilir: Ermənilərə Rusiyada xaos üçün psixoloji terror sifariş edilib
+-  Ердоган призова избирателите масово да гласуват за кандидатите на управляващата партия на предстоящите местните избори
+-  Evangelina Anderson reveló el dramático episodio que vivió con Martín Demichelis en Marbella
+-  Kanselo: Gvardiola je širio laži o meni, Siti ih nije demantovao
+-  Литвинович стал третьим на этапе Кубка мира по прыжкам на батуте в Германии
