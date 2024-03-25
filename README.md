@@ -1,11 +1,11 @@
 # Latest News
--  ДЕТЕ ЗАГИНА НА ТРКА НА АВТОМОБИЛИ ВО УНГАРИЈА: Се појавија застрашувачки снимки, 30 лица се повредени (ВИДЕО)
--  Genieten: Cavani (37) scoort op fenomenale wijze in Argentinië
--  Šibenik u drami pobijedio Cibaliju, Slavonci doživjeli peh, borba za elitu sve uzbudljivija
--  Lando Norris told to undergo surgery as Carlos Sainz taunts McLaren star
--  Visibilia e casa Alberoni, quante grane per Daniela Santanché
--  Handball-Bundesliga: TVB Stuttgart liefert eine zweite Hälfte zum Vergessen ab
--  BJP West Bengal Candidates fifth list: Dilip Ghosh,Tapas Roy among candidates in fray for LS polls
--  San Marino - Saint Kitts i Nevis. Relacja live i wynik na żywo
--  Geolier in cattedra all'Università, clamoroso: rivolta anche a sinistra
--  ROSEN, A GLOBALLY RESPECTED LAW FIRM, Encourages Barclays PLC Investors to Secure Counsel Before Important Deadline in Securities Class Action – VXX
+-  EN PRIVÉ AVEC Sandrine Quétier très proche de Fabrice Michelin, son ex et père de ses enfants : "Le secret, c'est..."
+-  "OK, boomer?": os centennials e millennials são mais infelizes do que os baby boomers
+-  Selbst der Gäste-Trainer gratuliert: SSV Vorsfelde lässt gegen Meppen II nichts zu
+-  Wind farms investigated after 'overcharging customers by £100m' - The Telegraph
+-  ONLINE: Kometa - Litvínov 1:1. Kirk poslal zápas do prodloužení
+-  Velika anketa SN: Odaberite 23 igrača koja bi Dalić trebao voditi na Euro
+-  Зидан — о Беллингеме: «Потрясающий футболист, «Реалу» повезло»
+-  AI Act - AI Act jako evropské nařízení bude mít přímý vliv na celou Evropskou unii a nevyžaduje žádnou další transpozici do národních právních řádů
+-  VELIKA VEST IZ NOVOG SADA Poznati srpski biznismen postao potpredsednik Vojvodine
+-  ஆலங்காயம் ஒன்றிய திமுக ஆலோசனை கூட்டம்
