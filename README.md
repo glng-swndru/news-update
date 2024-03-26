@@ -1,11 +1,11 @@
 # Latest News
--  玄関の扉を開けば本棚。新大久保に出現、「完全予約制書店」(Forbes JAPAN)
--  【地元の50～60代に聞いた】子どもを入学させたいと思う「京都府の私立高校」ランキング！ 2位は「洛南高校」、1位は？(ねとらぼ)
--  Концерт итальянского певца Pupo отменили в Бельгии из-за выступления в России
--  Medicinska sestra se vraća pornografiji nakon što je dala otkaz 2008. godine: Na odluku je uticao lično - muž
--  Petróleo de Texas subió hasta los $81,95 el barril
--  Quordle today – hints and answers for Tuesday, March 26 (game #792)
--  Mercato : Un compatriote de Messi à l’OM ? Il annonce une fake-news
--  Kantongi Opsi Selain Xabi Alonso, Bayern Munchen Mulai Pepet Roberto De Zerbi
--  После теракта в «Крокусе» кинопремьеры останутся в прежнем графике
--  「頑張った姿見せられた」能登地震で被災、日本航空石川高校の代打 滋賀の球児の思い
+-  محافظ محافظة لحج اللواء أحمد تركي يلتقي وفد الاتحاد الاوروبي UNDP في اليمن
+-  В ЕС высказались об идее создания единой армии
+-  Estas são as razões pelas quais o Telegram terá que encerrar suas operações na Espanha
+-  برعاية المحافظ ابن الوزير : مكتب الثقافة يختتم المسابقة الكبرى بتتويج هشام الحطيبي بلقب بيرق منشد شبوة لعام 2024م
+-  Angry The Bachelor fans fuming as technical issue 'ruins' finale - 'this is ridiculous'
+-  하나은행, 일본 최대 결제대행사 GMO-PG와 ‘해외결제 간편정산 서비스’ 시행
+-  Pilibhit में होली पर ढोल और संगीत बजाने को लेकर दो पक्ष भिड़े, चार घायल
+-  작년 시외 · 고속버스 · 터미널 매출, 2019년의 70% 수준 그쳐
+-  ‘비주얼 발라더’ 예덕, 오늘(26일) 데뷔곡 ‘괜찮다 말을 해’ 발매
+-  Crime News: ਨਵਾਂ ਘਰ ਬਣਾਉਣ ਲੱਗੇ ਘੱਟ ਗਏ ਪੈਸੇ, ਮੁਲਜ਼ਮਾਂ ਨੇ ਗੁਆਂਢੀ ਦੇ ਮੁੰਡੇ ਨੂੰ ਹੀ ਕਰ ਲਿਆ ਕਿਡਨੈਪ, ਜਦੋਂ ਨਹੀਂ ਮਿਲੇ ਪੈਸੇ ਤਾਂ...
