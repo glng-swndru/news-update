@@ -1,11 +1,11 @@
 # Latest News
--  2 Republican candidates set to primary for IA-01 seat
--  Ван дер Ваарт: Ако Депай е във форма, Нидерландия може да спечели Евро 2024
--  Ким Кардашьян рассталась с футболистом Бекхэмом после полугода отношений
--  Ekrem İmamoğlu 50 milyon dolarlık 3 villayı kabul etti!
--  AGCO para parte da operação na fábrica de colheitadeiras em Santa Rosa
--  Nederlander met nul interlands maakt furore: ‘Deze zomer gaat hij naar topclub’
--  Putin: ‘Znamo tko je počinio masakr, ali zanima nas i ovo - tko je te ljude čekao u Ukrajini?‘
--  Konya'da drift yapan sürücüye 41 bin 319 lira ceza kesildi
--  Şanlıurfaspor'da maaş krizi
--  México acerca de resolución de la ONU sobre alto al fuego en el Ramadán en Gaza: "Ha tardado mucho"
+-  Le ministre des Armées Sébastien Lecornu en visite dans le Var ce mercredi
+-  Caso Vélez: confirmaron la prisión domiciliaria para tres futbolistas
+-  Detectan más contratos sospechosos en el ex Ministerio de las Mujeres
+-  Jambret di Bali Kian Ganas, Dua Bule Spanyol Jadi Korban, Jejak Pelaku Tertinggal
+-  Военни спасиха бедстващи хора край връх Голям Перелик
+-  Researchers develop a novel sensor for the detection of bacteria
+-  Billeteras cripto tendrán que inscribirse en la CNV: cómo será el registro y a quién alcanza
+-  Medijs: Kariņš par dārgajiem avioreisiem vainu uzveļ Valsts kancelejai
+-  Dolly Parton Was ‘Outraged’ and ‘Scared to Death’ by the Way Her Future Husband Introduced Her to His Mom
+-  A una semana, continúan los traslados tras incendio en La Victoria
