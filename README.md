@@ -1,11 +1,11 @@
 # Latest News
--  EKSKLUZIVNO! KURIR IMAO UVID U NAJNOVIJE ISTRAŽIVANJE O BEOGRADU! SNS raste, Đilasova lista u padu, a evo gde će apstinenti
--  Hoteles registrarán lleno total
--  Сборка процессоров Baikal в России столкнулась с высоким уровнем брака — эксперименты продолжаются
--  Blinken ítrekaði andstöðu við innrás
--  Key Bridge in Baltimore Collapses Rammed by Boat, Cars in Water
--  2 công thức bánh ăn sáng có thể thưởng thức bốn mùa quanh năm mà không lo béo
--  Xiaomi bán áo công nhân: Được CEO Lei Jun mặc, "cháy hàng" chỉ sau vài giây
--  İstanbul'da terör örgütü DEAŞ'a yönelik operasyonda 17 zanlı yakalandı
--  Bahn kommt GDL bei 35-Stunden-Woche entgegen
--  Présidentielle 2024 : La Commune de Latmingué épargné des ravages de Diomaye 2024
+-  Η Ουκρανία χτύπησε με πύραυλο πολεμικό πλοίο που της απέσπασε η Ρωσία το 2014
+-  Estados Unidos: se derrumbó un puente en Baltimore tras ser embestido por un buque carguero y varios autos cayeron al río
+-  В Русской драме состоится премьера спектакля "Войцек"
+-  Alka Vuica ide na sljedeće izbore, a sjećate li se kad se htjela kandidirati za predsjednicu?
+-  Zamlı promosyon almak isteyen emekliler ne yapmalı?
+-  이도현, '군백기'는 없다…입대 후에 얻은 '천만 배우' 타이틀
+-  ФСБ: арестованы подозреваемые в рейдерском захвате производства минеральной воды
+-  Galatasaray'dan Kerem Aktürkoğlu kararı!
+-  Tragedia a Baltimora: crolla un ponte sul fiume: colpito da una nave cargo
+-  Replay.lv marta gide: podkāstere Kristiāna Grāmatiņa
