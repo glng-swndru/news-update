@@ -1,11 +1,11 @@
 # Latest News
--  ശിവനാടാർ യൂണിവേഴ്‌സിറ്റി പ്രവേശന പരീക്ഷ
--  Селиваненко об игре Медведева в Майами: «Даниил показывает свой самобытный теннис»
--  Израиль заявил о невозможности остановить войну в Газе
--  രണ്ടര വയസുകാരിയുടെ മരണത്തിന് കാരണം തലയ്ക്കും നെഞ്ചിലുമേറ്റ പരിക്ക്,​ പോസ്റ്റ്‌മോർട്ടം റിപ്പോർട്ട് പുറത്ത്
--  Caso Nada Cella, il giudice: “Su Annalucia Cecere solo sospetti, ma Soracco ha depistato ed era sul luogo del delitto”. Ecco il documento
--  China barra uso de chips da Intel e AMD em computadores do governo
--  Automobilski div u SAD-u podijelio 400 otkaza
--  Eine Standortstrategie für Vegesack: Acht Ideen – ein Ziel
--  Se encuentra en marcha el flamante Cuerpo de Prevención Urbana de San Francisco
--  Kia fiyatlara harakiri yaptı! 160 bin TL birden düşürdü
+-  Österreich: Autofahrer überrollt Ehefrau und bemerkt Unfall erst nach dem Einkaufen
+-  Erdbeben bei Syke in Niedersachsen verursacht leichte Schäden
+-  Роналдо не первый. Названы лучшие нападающие в истории Бразилии
+-  Ora de vară 2024. Când se schimbă ora în R. Moldova: Ceasurile se dau înainte, iar noaptea devine mai scurtă
+-  Dva dny na horské dráze. Siao Him Fa se ze dna odrazil k historickému skoku
+-  KuCoin Pioneers as the First FIU-Compliant Global Crypto Exchange in India
+-  Österreich: Autofahrer überrollt Ehefrau und bemerkt Unfall erst nach dem Einkaufen
+-  Ce au simțit pasagerii din avionul TAROM când a fost lovit de fulger, după decolarea de la Otopeni
+-  Absturz des Twitter-Nachfolgers: X verliert 15 Prozent der App-Nutzer seit Musks Übernahme
+-  Çiftçi’den miting gibi açık hava toplantısı
