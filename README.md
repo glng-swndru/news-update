@@ -1,11 +1,11 @@
 # Latest News
--  「いびき」で隣人から苦情 損害賠償のリスクは？ 弁護士が解説(オトナンサー)
--  ホンダの原付二種ネイキッド「CB125R」 アップデートされた2024年モデルを欧州で発表(バイクのニュース)
--  First Alert Weather: Clouds rule Tuesday, rain moves in Wednesday
--  Simony publica homenagem à Kate Middleton após princesa revelar diagnóstico de câncer
--  Presidente Macron concede ao cacique Raoni a maior honraria da França durante visita a Belém
--  マジ!? 日産が新型「ムラーノ」24年度内に発表！ “ラグジュアリーSUV”刷新!? 先進“顔”採用か(くるまのニュース)
--  Марк Гурман нашёл в иске Минюста США к Apple надуманные обвинения — они отвлекают от реальных проблем
--  Gyokeres Milan, nessun contatto tra club e giocatore! I TRE aspetti che rendono difficile la trattativa
--  Congress final list of candidates for Telangana likely by March 28
--  Selección Mexicana: Sisniega no pone en duda continuidad de Lozano
+-  5点の衣類「白すぎる」 検察側証人から思わぬ“援護”【袴田さん再審公判】(あなたの静岡新聞)
+-  Indra Sjafri Cari Total 46 Pemain untuk Pembentukan Skuad Timnas U-20
+-  Putin'e göre ABD saldırıda Kievin izi olmadığına dünyayı ikna etmeye çalışıyor
+-  Summit Midstream Partners, LP Announces 2023 K-1 Tax Package Availability
+-  وسيلة مقران: في الأعراس كانو يخلو الفرح ويسقسوني علاش ما عندكش الذراري!
+-  Нова треньорска смяна в Балкан
+-  IPO WATCH - 7 कंपनियों के आईपीओ ओपन है 61% तक रिटर्न का GMP Trend
+-  欧州委員会、Alphabet、Apple、Metaを対象に初のDMA（デジタル市場法）違反調査開始
+-  Summit Midstream Partners, LP Announces 2023 K-1 Tax Package Availability
+-  欧州委員会、Alphabet、Apple、Metaを対象に初のDMA（デジタル市場法）違反調査開始 - ITmedia NEWS
