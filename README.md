@@ -1,11 +1,11 @@
 # Latest News
--  Lavori per la mobilità ciclabile: 40 divieti di sosta temporanei
--  «Viejales» en las aulas y otras noticias del día
--  Išmaniosios apyrankės – ligos istorija ant riešo
--  Potice so ocenili, nato pa razdelili. Zlati tudi dijaki (FOTO)
--  Juristisches Nachspiel: Gemeinden wollen Baufirmen klagen
--  Gironde : les catcheurs de Pessac passent à la vitesse supérieure
--  いよいよ上場したソラコム スイングバイIPO達成のインパクトとは？
--  Myndaveisla 2: Valur í úrslit eftir sigur á Stjörnunni
--  Zdravko se je odpeljal z renaultom in izginil
--  One Za'abeel obtient le titre de Guinness World Records pour le plus long bâtiment en porte-à-faux du monde
+-  Città della Speranza, parte la staffetta che attraversa l'Italia da Nord a Sud
+-  İzmir'in yeni metro hattına bakanlıktan onay!
+-  Ясна е третата битка от галата на Кобрата - Труд
+-  Opservatorija za ljudska prava: Devet proiranskih boraca ubijeno u...
+-  Проф. Пламен Киров: Гласуването на оттеглянето на кандидатурата за премиер на Мария Габриел е излишна процедура
+-  Inklusion am Arbeitsplatz - Unwissenheit und Unsicherheit
+-  Burak Deniz'in Şehrazad dizisindeki partneri belli oldu
+-  Murteza Özün, “Esnafı düşünen biz olacağız”
+-  El tiempo en Villaviciosa de Córdoba: esta es la previsión meteorológica de hoy, martes 26 de marzo
+-  "Attentato compiuto da estremisti islamici, ma gli Usa...": il sospetto di Putin
