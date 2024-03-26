@@ -1,11 +1,11 @@
 # Latest News
--  Se Nyströmskas värde för vår stad och dess ungdom
--  Upisi u gradske dječje vrtiće počinju 30. ožujka – najteže će biti djeci jasličke dobi
--  Özçelik: "Meslek odalarımız çözüm ortağımız olacak"
--  ارتفاع أرباح «سينومي سنترز» 49% إلى 1.5 مليار ريال في 2023
--  Dax weiterhin nahe seines Rekordhochs
--  “WhatsApp”dan videolarla bağlı YENİLİK
--  Южную рокаду в Москве достроят до конца текущего года
--  Galaxy Z Fold 6, Galaxy S24 Ultra'nın öne çıkan özelliğine sahip olabilir
--  ФСБ предотвратила теракт в пункте приема гумпомощи в Самарской области
--  Avtomobil almaq istəyənlərin NƏZƏRİNƏ - VİDEO
+-  Tarifstreit beendet: Darauf haben sich Bahn und GDL geeinigt
+-  Reservar diez pisos en venta en A Mariña en 2 horas
+-  Vjerovali ili ne: 20-godišnja vozačica prošla kroz crveno i dvojicu policajaca poslala u bolnicu
+-  Megasaray Hotels Open’da ana tablo heyecanı başlıyor
+-  Роман Долидзе подерется с Энтони Эрнандесом 1 июня на UFC 302
+-  2024年《土地法》使海外越南人对回国投资倍感振奋并更加放心
+-  Venēcijas mākslas biennālē atklās Amandas Ziemeles veidoto Latvijas paviljonu
+-  Ukrainas raķešu triecienā bojāts krievu kuģis Konstantin Oļšanskij
+-  Jugendliche (16) quetscht sich in Pettendorf die Hand ein – Drei Finger teilweise abgetrennt
+-  مقارنة بين منتخب السعودية وطاجكيستان
