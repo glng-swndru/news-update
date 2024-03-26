@@ -1,11 +1,11 @@
 # Latest News
--  غوتيريش: لتقديم تعويضات عن الاتجار بالعبيد عبر المحيط الأطلسي
--  Kurum: İstanbul'a hizmetkar olmak için yola çıktık
--  В Кремле оценили условия допуска россиян к Олимпиаде-2024
--  “Con Decaro dalla sorella del boss, non ha mai smentito”. Emiliano inguaia la sinistra
--  [화보] 라미란 “찌질해도 창피하지 않아요”
--  Mumbai में छह मंजिला इमारत में आग लगने के बाद 50 लोगों को बचाया गया, कोई हताहत नहीं
--  OVO JE DOM VODITELJKE SLAGALICE I 18 GODINA STARIJEG MUŽA! Ljuljaška na terasi, kutak sa ikonama, biblioteka - LUKS NA SVE STRANE
--  [화보] 라미란 “찌질해도 창피하지 않아요”
--  立院重演「喝水事件」 王世堅讚韓國瑜：人在江湖，早晚要還的
--  Воробьев: «Очень рад выходу «Автомобилиста» и «Трактора» в полуфинал Кубка Гагарина»
+-  EKSKLUZIVNO! KURIR IMAO UVID U NAJNOVIJE ISTRAŽIVANJE O BEOGRADU! SNS raste, Đilasova lista u padu, a evo gde će apstinenti
+-  Hoteles registrarán lleno total
+-  Сборка процессоров Baikal в России столкнулась с высоким уровнем брака — эксперименты продолжаются
+-  Blinken ítrekaði andstöðu við innrás
+-  Key Bridge in Baltimore Collapses Rammed by Boat, Cars in Water
+-  2 công thức bánh ăn sáng có thể thưởng thức bốn mùa quanh năm mà không lo béo
+-  Xiaomi bán áo công nhân: Được CEO Lei Jun mặc, "cháy hàng" chỉ sau vài giây
+-  İstanbul'da terör örgütü DEAŞ'a yönelik operasyonda 17 zanlı yakalandı
+-  Bahn kommt GDL bei 35-Stunden-Woche entgegen
+-  Présidentielle 2024 : La Commune de Latmingué épargné des ravages de Diomaye 2024
