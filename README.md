@@ -1,11 +1,11 @@
 # Latest News
--  5点の衣類「白すぎる」 検察側証人から思わぬ“援護”【袴田さん再審公判】(あなたの静岡新聞)
--  Indra Sjafri Cari Total 46 Pemain untuk Pembentukan Skuad Timnas U-20
--  Putin'e göre ABD saldırıda Kievin izi olmadığına dünyayı ikna etmeye çalışıyor
--  Summit Midstream Partners, LP Announces 2023 K-1 Tax Package Availability
--  وسيلة مقران: في الأعراس كانو يخلو الفرح ويسقسوني علاش ما عندكش الذراري!
--  Нова треньорска смяна в Балкан
--  IPO WATCH - 7 कंपनियों के आईपीओ ओपन है 61% तक रिटर्न का GMP Trend
--  欧州委員会、Alphabet、Apple、Metaを対象に初のDMA（デジタル市場法）違反調査開始
--  Summit Midstream Partners, LP Announces 2023 K-1 Tax Package Availability
--  欧州委員会、Alphabet、Apple、Metaを対象に初のDMA（デジタル市場法）違反調査開始 - ITmedia NEWS
+-  Vsak torek tečaj družabne igre go
+-  Reports: Raptors backup centre Jontay Porter part of gambling investigation
+-  ماسك يخسر دعوى قضائية ضد مركز لمراقبة خطاب الكراهية
+-  Estudio revela que los celulares pueden escuchar las conversaciones, incluso estando apagados. ¿Cómo es posible?
+-  Raptors backup centre Jontay Porter part of gambling investigation: Reports
+-  Gaziantep Şehitkamil Seçim Sonuçları 2024 - Gaziantep Şehitkamil Kim Kazandı?
+-  Adana Seyhan Seçim Sonuçları 2024 - Adana Seyhan Kim Kazandı?
+-  Konya Selçuklu Seçim Sonuçları 2024 - Konya Selçuklu Kim Kazandı?
+-  Bursa Yıldırım Seçim Sonuçları 2024 - Bursa Yıldırım Kim Kazandı?
+-  Antalya Kepez Seçim Sonuçları 2024 - Antalya Kepez Kim Kazandı?
