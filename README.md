@@ -1,11 +1,11 @@
 # Latest News
--  Près de 130 collèges et lycées visés par des menaces depuis la semaine dernière
--  Janja convida senadoras e deputadas para jantar no Alvorada após cobrança
--  6 Female Finance Influencers Changing the Way We Think About Money - CNET
--  Près de 130 collèges et lycées visés par des menaces depuis la semaine dernière
--  "Putin non è un mostro": Santoro spiazza Parenzo. E perde le staffe su Kiev
--  Disse får veikon­trak­ter for en halv milli­ard
--  Нов скандал в сливенската църква
--  Bakan Yumaklı, Ankara'da tohum dağıtım törenine katıldı
--  Uhapšen zbog višemilionske utaje poreza! Hitno saopštenje Poreske uprave
--  Prognose: Sinkendes Zinsniveau : Sparkasse Merzig-Wadern erzielt gutes Ergebnis in schwierigen Zeiten
+-  Biblijski spektakl u Imotskome; građani su htjeli razgrnuti rimske vojnike i pomoći Isusu kojega je utjelovio ekonomist
+-  German football's switch: 'Maybe Nike won by accident'
+-  German football's switch: 'Maybe Nike won by accident'
+-  Yusuf Güney'den bomba açıklama: Sevgilim 100 yaşında çok güzel bir kadın
+-  Rundfunk in het theater: een meedogenloze lachmachine
+-  Ethereum im Spannungsfeld: Upgrade-Chaos und ETF-Zögern gegen Marktzuversicht
+-  Šalčininkų komisariato viršininkas dėl greičio viršijimo prarado teisę vairuoti
+-  Precios: ¿cuáles son las camionetas menos caras y más vendidas?
+-  Київ атакували "Циркони": експерт зробив різку заяву на адресу Заходу
+-  ايرلندا: استخدام سلاح التجويع في غزة انتهاك للقانون الدولي
