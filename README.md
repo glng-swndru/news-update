@@ -1,11 +1,11 @@
 # Latest News
--  Η Ουκρανία χτύπησε με πύραυλο πολεμικό πλοίο που της απέσπασε η Ρωσία το 2014
--  Estados Unidos: se derrumbó un puente en Baltimore tras ser embestido por un buque carguero y varios autos cayeron al río
--  В Русской драме состоится премьера спектакля "Войцек"
--  Alka Vuica ide na sljedeće izbore, a sjećate li se kad se htjela kandidirati za predsjednicu?
--  Zamlı promosyon almak isteyen emekliler ne yapmalı?
--  이도현, '군백기'는 없다…입대 후에 얻은 '천만 배우' 타이틀
--  ФСБ: арестованы подозреваемые в рейдерском захвате производства минеральной воды
--  Galatasaray'dan Kerem Aktürkoğlu kararı!
--  Tragedia a Baltimora: crolla un ponte sul fiume: colpito da una nave cargo
--  Replay.lv marta gide: podkāstere Kristiāna Grāmatiņa
+-  Thông tin mới nhất về BHTN, sẽ được Nhà nước hỗ trợ đóng BHTN, hàng triệu lao động cần nắm được
+-  Senior přišel vyčinit Rakušanovi. Influencer přiznal, že šlo o nachystanou scénku
+-  Survivor'da Nagihan'ın ölümden döndüğü anlar: Yunus Emre resmen bodoslama çarptı
+-  Hitno! Rusija izdala nalog za hapšenje šefa Službe bezbednosti Ukrajine zbog terorizma!
+-  Smarte Tools: Fahrradtrends 2024: Mit diesen Gadgets macht das Biken noch mehr Spaß
+-  韓國瑜又吃水煎包 秀合照喊：認真上班認真吃飯！
+-  SSC GD Constable Recruitment 2024: Admit card out for re-exam; here’s how to download
+-  Alanya'ya gelen otobüs kaza yaptı! Yaralılar var...
+-  Haushaltsstreit in Hamminkeln: SPD kritisiert CDU scharf - Neß wehrt sich
+-  India's biggest flop was also most expensive Indian film, director never made another film, heroine got no work in India
