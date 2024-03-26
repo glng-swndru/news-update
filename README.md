@@ -1,11 +1,11 @@
 # Latest News
--  나이 속인 청소년에 술·담배 판매한 소상공인 법으로 보호
--  Riña de hermanos termina mal; reportan ataque con arma blanca, en Dzidzantún
--  Wali Kota Depok Keluarkan SE Kesiapsiagaan Peningkatan Kasus DBD
--  Fortalecen vínculos entre localidades de Vietnam y Suiza
--  DILG to deploy Revitalized Pulis Sa Barangay in drug-affected villages
--  UP: Fire breaks out at horticulture dumping yard near Noida city centre
--  UP: Fire breaks out at horticulture dumping yard near Noida city centre
--  永瀬拓矢九段が透明人間になっちゃった！？仲間との会話に“声だけ出演” ファンは爆笑「天の声w」/将棋・ABEMA地域対抗戦(ABEMA TIMES)
--  ¿A alistar velar? Bogotá podría vivir un apagón: posibles razones y fechas
--  한미그룹 "가처분 신청 기각으로 글로벌 빅파마 도약 길 열려"
+-  Análisis técnico de Horizon Forbidden West: Puntos de referencia de portátiles y ordenadores de sobremesa
+-  OFC 2024: Alphawave Semi und InnoLight präsentieren LPO-Module mit PCIe 6.0® -Subsystem-Lösung und niedriger Latenzzeit für leistungsstarke KI-Infrastrukturen
+-  Chuyển nhượng tín chỉ carbon ở Việt Nam, giá bao nhiêu là hợp lý, nông dân hưởng lợi còn ít?
+-  자동 적립 안된 카드 포인트 12억 원 고객에 환급…시스템도 개선
+-  6 Zodiak yang Paling Mudah untuk Jatuh Cinta, Apa Zodiakmu Termasuk?
+-  Tesco, Sainsbury's, Coop and M&S stores that will open on Easter Sunday
+-  دارندگان شناسنامه‌ جلد قرمز بخوانند | نحوه تعویض شناسنامه‌های قدیمی
+-  Shikhar Dhawan: "हमें इसकी कीमत चुकानी पड़ी...", हार के बाद कप्तान शिखर धवन ने मैच के टर्निंग पॉइंट को लेकर गिना दी ये बड़ी गलती
+-  Latihan Soal Biologi Kelas 12 SMA Kurikulum Merdeka Semester Genap dan Kunci Jawaban
+-  Buxarestdən Kişineuya uçan təyyarəni ildırım vurdu
