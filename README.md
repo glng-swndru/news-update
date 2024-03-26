@@ -1,11 +1,11 @@
 # Latest News
--  United States Gift Card and Incentive Card Market Growth Dynamics Databook 2024 - Payment Firms are Partnering with Gift Card Providers to Tap into the Growing Popularity
--  Davutoğlu'ndan Denizli'de 'İsrail'le ticareti kesin' açıklaması: Askerlerin yedikleri konserveler bile Türkiye'den gidiyor
--  داني ألفيش يدفع مليون يورو ويقترب من مغادرة السجن
--  ‘이혼 소송’ 황정음 “골프가 제일 싫어” 천만뷰 예약 돌직구 (짠한형)
--  مجلس الوزراء يكلف الجهات المعنية بحصر الأضرار الناجمة عن التقلبات الجوية
--  Koke renueva por el Atlético de Madrid hasta 2025
--  Verfassungsschutzpräsident Thüringen: "Konkrete Gefahr auch für uns in Deutschland": Experte gibt Einschätzung zur Bedrohung ab
--  Ex-rbb-Verwaltungsratsvorsitzender Wolf verweigert Aussage im Untersuchungsausschuss vor Landtag
--  ЕК одобри още 170 млн. лв. за български земеделски производители
--  „Als Vorgruppe von Pur erreichen wir ein großes Publikum“
+-  JEDAN DETALJ U OBRAĆANJU KEJT MIDLTON JE SVIMA PROMAKAO: Nije slučajno odabrala BAŠ OVO MESTO za govor, krije POSEBNU SIMBOLIKU
+-  Gold so wertvoll wie nie
+-  Ποιους λόγους είχε το Ισλαμικό Κράτος για να επιτεθεί στη Ρωσία και ποια θα μπορούσε να είναι η απάντηση Πούτιν
+-  Preços do etanol caem em 11 Estados e no DF, diz ANP; valor médio recua 0,28%
+-  Satellit für chinesische Mondmission erreicht Umlaufbahn
+-  Elon Musk's X-Service Desperately Needs Quality Content – Quality Content Just Doesn't Seem to Need X
+-  Mršić stipendista Opštine Tivat na Fakultetu za medireranske...
+-  मधेशका सभामुखलाई ‘महामुर्ख’को उपाधि
+-  İşyerlerinde İşçi Sağlığı ve İş Güvenliği konusu GSOMEM'de konuşuldu
+-  Quand Zinédine Zidane encense Jude Bellingham (Real Madrid)
