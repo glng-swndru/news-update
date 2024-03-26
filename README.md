@@ -1,11 +1,11 @@
 # Latest News
--  В «Зените» заявили, что никто из легионеров клуба не высказывал желание покинуть Россию
--  Воины 25-й Сичеславской бригады успешно отразили вражеский штурм на Авдеевском направлении. ВИДЕО
--  Guterres: İsrail, Gazze'ye insani yardım sevkiyatını kolaylaştırmak zorundadır
--  Putin še kar vztraja: Rusija sumi, da bi Ukrajina lahko ukazala napad v koncertni dvorani (VIDEO)
--  Útok spáchali islamisté, prohlásil Putin. Stále ale hledá spojení s Kyjevem.
--  2. Handball-Bundesliga: Ein Abschied aus Dormagen mit vielen Emotionen
--  Jovetić pogodio za pobjedu Crne Gore protiv Sjeverne Makedonije
--  Supertransfer voor piepjonge hoofdscout: van KKD naar AC Milan
--  Süllyedő csónakból mentették ki a horgászokat a balatoni rendőrök
--  Frau verschanzt sich mit Messer in Praxis: SEK-Einsatz
+-  Karabük Üniversitesi Rektörlüğü: Hukuki süreç başlatıldı
+-  НАЈЧЕВСКА: Едните беа на власт 11 години, а другите 8 години и ништо не направија за да ги подобрат условите за живот на студентите
+-  Ankara'da fırtına etkili oldu: Aydınlatma direği yola devrildi
+-  Между Нетаниягу и Ганцем произошли разногласия из-за резолюции по Газе
+-  ĆERKA ŽELJKA JOKSIMOVIĆA ŽIVI U RUSTIČNOM STANU Odselila se iz tatine vile - svuda dominiraju DVE BOJE, pokazala i pogled sa prozora (FOTO)
+-  రాప్తాడులో టీడీపీదే గెలుపు
+-  Bir yabancı öğrenci skandalı da Pamukkale Üniversitesi'nde. Para karşılığı not yükseltilip kayıt yapılmış
+-  Segist ekki viss um að Zinchenko geti spilað - Virkaði frískur á æfingunni
+-  Guaguas Municipales alcanzó 47,9 millones de viajeros en 2023 y beneficios de 2,2 millones
+-  Shohei Ohtani afirma que nunca ha apostado en deportes
