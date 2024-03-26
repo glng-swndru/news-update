@@ -1,11 +1,11 @@
 # Latest News
--  LIVE GAZA. Verenigd Koninkrijk dropt 10 ton hulpgoederen boven Gaza - Veiligheidsraad roept op tot onmiddellijk staakt-het-vuren in Gaza
--  음주운전 40대 잡고 봤더니…임금 선불 받고 잠적한 지명수배자
--  Have you got ‘smartphone finger’? - Toowoomba Chronicle
--  ＪＲ幕張豊砂駅前開発プロジェクト開業式典、土沢壇千葉支社長「駅と街でにぎわい創出」(産経新聞)
--  Immigrants could face jail if they refuse deportation
--  세종갑 새미래 김종민 "민주당 당원들에게 사과한다"
--  Kiến nghị thiết kế mẫu thẻ bảo hiểm y tế ghi hạn dùng
--  Man who killed North Idaho family sentenced to life without parole. ‘Needlessly murdered’
--  Kim Kardashian 'copies' Kanye West's wife Bianca Censori in topless snap after 'split'
--  Bitcoin rises 7.15%, tops $70,000 again
+-  總統到立院可以「即問即答」嗎？ 黃暐瀚給答案了
+-  Anpi e sinistra, una polemica assurda: usano le Fosse Ardeatine contro Giorgia Meloni
+-  New York City celebrity owl Flaco was exposed to pigeon virus and rat poison before death, tests show
+-  Nema svetla na kraju tunela: Jedanaesti vezani poraz za Rajakovića i Toronto
+-  US Shocker: New York Police Officer Fatally Shot and Killed During Traffic Stop in Queens (See Pic)
+-  Александрова обыграла Свентек и вышла в четвертьфинал турнира в Майами
+-  マルコメ「プラス糀 生みそ 糀美人」にゴキブリ混入か 10万点を自主回収へ
+-  Stronger ties between Vietnamese, Swiss localities expected
+-  New York City celebrity owl Flaco was exposed to pigeon virus and rat poison before death, tests show
+-  Australia's Canva Targets Professional Designers With U.K. Acquisition
