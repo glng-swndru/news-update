@@ -1,11 +1,11 @@
 # Latest News
--  Vsak torek tečaj družabne igre go
--  Reports: Raptors backup centre Jontay Porter part of gambling investigation
--  ماسك يخسر دعوى قضائية ضد مركز لمراقبة خطاب الكراهية
--  Estudio revela que los celulares pueden escuchar las conversaciones, incluso estando apagados. ¿Cómo es posible?
--  Raptors backup centre Jontay Porter part of gambling investigation: Reports
--  Gaziantep Şehitkamil Seçim Sonuçları 2024 - Gaziantep Şehitkamil Kim Kazandı?
--  Adana Seyhan Seçim Sonuçları 2024 - Adana Seyhan Kim Kazandı?
--  Konya Selçuklu Seçim Sonuçları 2024 - Konya Selçuklu Kim Kazandı?
--  Bursa Yıldırım Seçim Sonuçları 2024 - Bursa Yıldırım Kim Kazandı?
--  Antalya Kepez Seçim Sonuçları 2024 - Antalya Kepez Kim Kazandı?
+-  NÓNG: Declan Rice chính thức thay Maguire làm đội trưởng tuyển Anh
+-  Trồng loại quả lúc non làm rau, già đơ thì bán xơ cho khách Hàn, Nhật, anh nông dân lãi 300 triệu đồng/năm
+-  El cementerio "La Piedad" comunicó sus horarios durante Semana Santa
+-  Turné Leoše Mareše boří všechna očekávání: Přidejte další koncerty, žadoní fanoušci!
+-  Nottingham Forest Ajukan Banding Pengurangan Empat Poin dari Liga Primer
+-  'Vị đắng' hạt cà phê Việt Nam: Giá bán vọt lên mức cao nhất thế giới nhưng DN thua lỗ kỷ lục, 'cơn ác mộng' xảy ra như thế nào?
+-  Pru Life UK’s new offering: Life insurance with guaranteed annual payouts and cashback in 7 years
+-  В Apple предостерегли от «превращения» iPhone в Android
+-  صحة المنصورة يواصل إستقبال المرضى في المخيم الطبي الرمضاني المجاني
+-  "인간발 바이러스 동물 감염, 동물발 인간 감염의 2배"
