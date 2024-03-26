@@ -1,11 +1,11 @@
 # Latest News
--  DNEVNI HOROSKOP ZA UTORAK, 26. MART Biku slede neprijatna iznenađenja na poslu, a Škorpiji bura u ljubavi!
--  Sarı: "Tahir Bey borç ödemek yerine gider ayak bütçeyi eritmektedir"
--  Sveikos odos priežiūros ritualai ir hiperpigmentacija
--  Dovanos vyrams: nuo elektronikos prekių iki smagių pramogų
--  Президент РФ назвал теракт в Crocus акцией устрашения, выгодной для тех, кто воюет с Россией
--  Tarım İl Müdürlüğü için acil tahliye kararı
--  André de Paula anuncia apoio do PSD a pré-candidatura de Adilma Lacerda em Ipojuca
--  RCB : బోణీ కొట్టిన బెంగళూరు.. పంజాబ్ పై 4వికెట్ల తేడాతో విజయం..!
--  Madonna confirma show gratuito em Copacabana
--  أمسية رمضانية لمنتسبي المنطقة الأمنية الأولى بمدينة مأرب
+-  Kamara Harris anuncia medidas e investimentos em meio à visita de presidente da Guatemala
+-  Kamara Harris anuncia medidas e investimentos em meio à visita de presidente da Guatemala
+-  Canucks prospect Jonathan Lekkerimaki reporting to Abbotsford
+-  Felfedték: egy NATO-tagállamban jártak nem sokkal a merénylet előtt a moszkvai terrortámadás elkövetői
+-  Заснований українцями лондонський фонд 1991 Ventures залучив $18 мільйонів для інвестування в українські стартапи
+-  Стало известно о показаниях обвиняемых в теракте в «Крокусе» о заказчиках
+-  Атентаторите от "Крокус сити хол" са подновили в Турция разрешителните си за пребиваване в Русия
+-  ΠΑΛΙ Ο ΜΟΛ!
+-  सोनेदराची झळाळी काय सांगतेय?
+-  KuCoin Pioneers sa stáva prvou globálnou kryptoburzou v Indii, ktorá spĺňa kritériá FIU
