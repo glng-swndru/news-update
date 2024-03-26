@@ -1,11 +1,11 @@
 # Latest News
--  NÓNG: Declan Rice chính thức thay Maguire làm đội trưởng tuyển Anh
--  Trồng loại quả lúc non làm rau, già đơ thì bán xơ cho khách Hàn, Nhật, anh nông dân lãi 300 triệu đồng/năm
--  El cementerio "La Piedad" comunicó sus horarios durante Semana Santa
--  Turné Leoše Mareše boří všechna očekávání: Přidejte další koncerty, žadoní fanoušci!
--  Nottingham Forest Ajukan Banding Pengurangan Empat Poin dari Liga Primer
--  'Vị đắng' hạt cà phê Việt Nam: Giá bán vọt lên mức cao nhất thế giới nhưng DN thua lỗ kỷ lục, 'cơn ác mộng' xảy ra như thế nào?
--  Pru Life UK’s new offering: Life insurance with guaranteed annual payouts and cashback in 7 years
--  В Apple предостерегли от «превращения» iPhone в Android
--  صحة المنصورة يواصل إستقبال المرضى في المخيم الطبي الرمضاني المجاني
--  "인간발 바이러스 동물 감염, 동물발 인간 감염의 2배"
+-  Amplica Labs Welcomes Veteran Technologist Raffi Krikorian as New Advisor to Support Advances on AI
+-  Dragon Ball: más de 40 artistas peruanos hacen un gran mural en honor a Akira Toriyama
+-  مجلس الشؤون الاقتصادية والتنمية يناقش عددا من التقارير والموضوعات
+-  Glišović obišao Timočku brigadu i 31. i 32. pešadijski bataljon u Zaječaru
+-  黃明志等車到一半「突被黑衣男追」！驚險畫面全被拍 下秒結局反轉
+-  Soal dan Jawaban Bahasa Indonesia Kelas 12 Halaman 180, Tugas 1: Fakta Menjadi Artikel
+-  El precio medio por la compra de coche eléctrico sube un 7% hasta los 30.515 euros
+-  Anitta abre álbum de fotos de viagem pré-aniversário pela Groenlândia
+-  Ericsson kurangkan 1,200 pekerja
+-  '8년 전 우승 멤버 또 뭉쳤다' 3연승 신바람의 OK금융, 여세 몰아 정상까지?
