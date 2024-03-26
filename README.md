@@ -1,11 +1,11 @@
 # Latest News
--  İcradan satılık oteller!
--  Save big on the best OLED PC gaming monitors at Samsung this week
--  Save big on the best OLED PC gaming monitors at Samsung this week
--  Inside Becky Lynch’s rise from ‘drinking cans on street corners' to WWE superstardom
--  Amazon busca empleados en Argentina: ofrece sueldo de hasta UN MILLÓN de pesos
--  السفارة في الكويت: نقل مواطن تعرض لوضع صحي حرج لاستكمال علاجه بالمملكة
--  Türkiyədən Akkuyu AES-lə bağlı QƏRAR
--  Timnas Indonesia U-20 Ikuti Turnamen di Spanyol Sebelum Berburu Tiket ke Piala Dunia U-20 2025
--  Kültür Yolu Festivali 13 Nisan'da Adana'da başlıyor
--  Održana ekoakcija “MB kuglice za naše more” u Crikvenici
+-  Black Press closes sale of company; emerges from creditor protection
+-  GREH ZAPADA "Berliner cajtung": Pre 25 godina bombardovanje SRJ početak prekretnice
+-  Local chef crafts healthy meal kits to combat hunger
+-  Mass. sets new eligibility rules for migrants in emergency shelters
+-  В Кремле назвали условие для восстановления общения народов России и Украины
+-  Ob prazniku občine Kamnik
+-  Pallacanestro Trieste scommette su Reyes per uscire dalla crisi
+-  ஊட்டி வந்த சுற்றுலாப் பயணிகளிடம் பறக்கும் படை பணம் பறிமுதல்... கதறி அழுத பஞ்சாபி பெண்!
+-  Black Press closes sale of company; emerges from creditor protection
+-  Президент Малави ввел чрезвычайное положение в связи с наводнениями
