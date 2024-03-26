@@ -1,11 +1,11 @@
 # Latest News
--  Amplica Labs Welcomes Veteran Technologist Raffi Krikorian as New Advisor to Support Advances on AI
--  Dragon Ball: más de 40 artistas peruanos hacen un gran mural en honor a Akira Toriyama
--  مجلس الشؤون الاقتصادية والتنمية يناقش عددا من التقارير والموضوعات
--  Glišović obišao Timočku brigadu i 31. i 32. pešadijski bataljon u Zaječaru
--  黃明志等車到一半「突被黑衣男追」！驚險畫面全被拍 下秒結局反轉
--  Soal dan Jawaban Bahasa Indonesia Kelas 12 Halaman 180, Tugas 1: Fakta Menjadi Artikel
--  El precio medio por la compra de coche eléctrico sube un 7% hasta los 30.515 euros
--  Anitta abre álbum de fotos de viagem pré-aniversário pela Groenlândia
--  Ericsson kurangkan 1,200 pekerja
--  '8년 전 우승 멤버 또 뭉쳤다' 3연승 신바람의 OK금융, 여세 몰아 정상까지?
+-  ගිලන් රථයක් තිබුණානම් ලක්මාල් බේරාගන්න තිබුණා – මහා ශිෂ්‍ය සංගමයේ කණ්ඩායම් නායක
+-  स्त्रियांचे मानसशास्त्र
+-  [오늘의 뉴욕증시 무버] 트럼프 업은 DWAC 35% 이상 폭등…게임스톱도 15.42%↑
+-  Kolombiya Cumhurbaşkanı: Gazze atom bombası atılan Hiroşima gibi
+-  Sambil Menangis, Vinicius Junior Ungkap Pelecehan Rasial Hancurkan Semangat Bermainnya
+-  Savka Pollak explicó por qué rechazó entrar a “Tierra Brava” a pesar de la suculenta oferta
+-  Trump en lugar de pagar recibió respiro judicial y económico
+-  '통산 9번째 꽃가마' 문준석, 동료 허선행 넘고 태백장사
+-  Ohio man jailed for threats against Arizona’s then-secretary of state
+-  Ohio man jailed for threats against Arizona’s then-secretary of state
