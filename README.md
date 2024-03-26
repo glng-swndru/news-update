@@ -1,11 +1,11 @@
 # Latest News
--  Agencja Mienia Wojskowego sprzedaje sprzęt rolniczy. Do kupienia legendarne Ursusy i przyczepy transportowe
--  پایان بلبشوی سوارکاری!
--  Делото срещу близнаците от Цалапица започва отначало
--  商湯（２０）全年虧損擴大至６４﹒４億人幣，不派息
--  Archivada la causa penal contra el exalcalde Cifre por la paralización de urbanizaciones sensibles
--  Chincha: intervienen taller mecánico donde desmantelaban motos robadas
--  31 Mart 2024 Bartın yerel seçim sonuçları: Bartın Büyükşehir Belediye Başkanı kim kazandı, hangi partiden? YSK Bartın belediye başkan adayları
--  Resilienz : Profi-Geigerin Anne-Sophie Mutter erklärt, wie sie mit Stress umgeht
--  Непознати факти за забележителния филм "Адаптация"
--  Samsung Galaxy Tab S6 Lite Tabletin Güncellenmiş 2024 Versiyonu Tanıtıldı!
+-  Anne Hathaway sahnede düşük yaptığını açıkladı
+-  ‘Forneres’ de Campos
+-  Nie żyje 22-letni siatkarski trener. Przed śmiercią został oskarżony
+-  Pourquoi Kate Middleton suit-elle une chimiothérapie préventive?
+-  Nach Taurus-Leaks: Neues BSI-Sicherheitskennzeichen für Videokonferenzen
+-  'Dormir na embaixada e conversar com embaixador é crime?', questiona Bolsonaro
+-  Inilah Doa Puasa Ramadhan Hari ke 16 dan 17, Mintalah Ampunan Kepada Allah SWT!
+-  Why do we have eggs at Easter and why do we eat chocolate?
+-  1.5 milyar liralık 3 villayı mal beyanında göstermeyen İmamoğlu'na Kurum'dan tepki
+-  'I lost 100lbs with grim method - it isn't for everyone and my family were grossed out'
