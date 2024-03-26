@@ -1,11 +1,11 @@
 # Latest News
--  Alpes du Sud. Les vins des Hautes-Alpes en route pour les sommets
--  KOGA OVO NE BI NALJUTILO? Mladoženja napisao poruku na cipelama, a mladi pao mrak na oči
--  De Duitse bondscoach Nagelsmann kent het ritme van hosanna of kruisig hem
--  Anak Buah AKBP Candra Sasongko Bongkar Pengedar Narkoba Jaringan Lapas
--  "Можемо дочекатися наступу на Суми, Харків і Київ": ветеран зробив тривожний прогноз
--  Suuntaatko pääsiäisenä mökille? Muista nämä asiat isompien vahinkojen välttämiseksi
--  Billings man pleads not guilty to law enforcement vehicle break-ins
--  Трамп согласился внести залог в $175 млн по делу о мошенничестве
--  푸틴 "테러, 급진 이슬람 소행이지만 우크라의 공격"
--  اغلاق مطعمي المراسيم والشرق الأوسط بعدن بصورة تعسفية
+-  2 Republican candidates set to primary for IA-01 seat
+-  Ван дер Ваарт: Ако Депай е във форма, Нидерландия може да спечели Евро 2024
+-  Ким Кардашьян рассталась с футболистом Бекхэмом после полугода отношений
+-  Ekrem İmamoğlu 50 milyon dolarlık 3 villayı kabul etti!
+-  AGCO para parte da operação na fábrica de colheitadeiras em Santa Rosa
+-  Nederlander met nul interlands maakt furore: ‘Deze zomer gaat hij naar topclub’
+-  Putin: ‘Znamo tko je počinio masakr, ali zanima nas i ovo - tko je te ljude čekao u Ukrajini?‘
+-  Konya'da drift yapan sürücüye 41 bin 319 lira ceza kesildi
+-  Şanlıurfaspor'da maaş krizi
+-  México acerca de resolución de la ONU sobre alto al fuego en el Ramadán en Gaza: "Ha tardado mucho"
