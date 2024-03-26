@@ -1,11 +1,11 @@
 # Latest News
--  Adam Neumann reportedly bids to buy back WeWork for more than $500 million
--  ‘Letter sent to Election Commission’: NCW seeks action against Supriya Shrinate for post on Kangana Ranaut
--  Bardhaman-Durgapur भी मेरे लिए एक परिचित क्षेत्र है : Dilip Ghosh
--  全球货币政策转向在即，如何赚钱？——美国风险探测仪系列六
--  김부겸 “조국혁신당, 협력 관계는 맞지만 합당은 어려워”
--  MISE A JOUR Switch : le firmware 18.00 est disponible, de bonnes nouveautés en vue ?
--  인요한 “이재명·조국, 민주주의 위협…행동하는 양심 있나”
--  "Заткніться, тварюки": Соловйов в істериці накинувся на жителів Бєлгорода
--  THR 2024: Saatnya Para PNS & PPPK Cek Saldo, Oh Honorer Bukan ASN
--  Hơn 1.000 người tham dự sự kiện trải nghiệm cuộc sống đích thực tại LUMIÈRE Evergreen - The Aura
+-  اجتماع أمراء المناطق يشيد بتوجيهات القيادة لخدمة ضيوف الرحمن في رمضان
+-  Americans warned to destroy the eggs of species invading 20 states: 'Smash and scrape'
+-  بالتفصيل.. ما معنى اقتراب أسعار النفط من "التقاطع الذهبي"؟
+-  まさかの日産「次期スカイライン」初公開!? 「丸目4灯テール」デザインが明らかに！ 期待大な“V38型”は「セダン」それとも「SUV」？(くるまのニュース)
+-  旺盛な工場建設需要の裏にある解体業にも注目【坂本慎太郎の街歩き投資ラボ】(週プレNEWS)
+-  Microsoft Bing Chief Exiting Role After Suleyman Named AI Leader - Bloomberg
+-  'The Bonza effect': How many Novocastrians flew with airline over past year
+-  Sanatan IDC in North
+-  Xbox sales are ‘flatlining’ in Europe as publishers consider dropping support
+-  [속보] 尹 "집단행동 대응·경험 토대로 의료대응 체계 혁신할 것"
