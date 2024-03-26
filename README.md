@@ -1,11 +1,11 @@
 # Latest News
--  اجتماع أمراء المناطق يشيد بتوجيهات القيادة لخدمة ضيوف الرحمن في رمضان
--  Americans warned to destroy the eggs of species invading 20 states: 'Smash and scrape'
--  بالتفصيل.. ما معنى اقتراب أسعار النفط من "التقاطع الذهبي"؟
--  まさかの日産「次期スカイライン」初公開!? 「丸目4灯テール」デザインが明らかに！ 期待大な“V38型”は「セダン」それとも「SUV」？(くるまのニュース)
--  旺盛な工場建設需要の裏にある解体業にも注目【坂本慎太郎の街歩き投資ラボ】(週プレNEWS)
--  Microsoft Bing Chief Exiting Role After Suleyman Named AI Leader - Bloomberg
--  'The Bonza effect': How many Novocastrians flew with airline over past year
--  Sanatan IDC in North
--  Xbox sales are ‘flatlining’ in Europe as publishers consider dropping support
--  [속보] 尹 "집단행동 대응·경험 토대로 의료대응 체계 혁신할 것"
+-  沖縄2月の入域観光客数、前年比20.3%増の71万9200人 外国客は3.3倍 - 沖縄タイムス＋プラス プレミアム
+-  Schröder vor 80. Geburtstag: Bereue keine Entscheidung
+-  La pillola abortiva alla prova della Corte Suprema Usa
+-  AUD and NZD pop again right around PBoC fixing time
+-  Juliana Cardoso Advogados: new Wealth Planning boutique in São Paulo
+-  2 ngành được tăng lương nhiều nhất từ 1-7-2024
+-  ولاية فلوريدا تمنع الأطفال دون 14 عاماً من استخدام وسائل التواصل الاجتماعي
+-  The Bachelor viewers spot painful moment Joey chose winner - 'knew in instant it was over'
+-  à·€à¶»à·�à¶º à¶±à¶œà¶»à¶º à¶œà·�à¶± à¶šà·�à¶¶à·’à¶±à¶§à·Š à¶­à·“à¶»à¶«à¶ºà¶šà·Š
+-  Những đại án làm 'đau đầu' chính quyền Đà Nẵng
