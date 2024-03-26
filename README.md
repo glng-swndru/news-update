@@ -1,11 +1,11 @@
 # Latest News
--  Moskvadakı teraktın arxasında hansı ölkə dayanır? - ƏSAS VERSİYA
--  Bitlis'te eğitime 'kar' engeli
--  Gras auf der Wiesn? Cannabis-Regeln auf dem Volksfest offen
--  #video Trojni dvojček Dončića ob zmagi proti Utahu
--  Chhattisgarh: बस्‍तर से कांग्रेस प्रत्याशी कवासी लखमा का रुपये बांटते फोटो वायरल, दर्ज हुआ FIR, मंत्री केदार कश्‍यप ने EC से की थी शिकायत
--  Terör örgütü FETÖPDY'ye yönelik 2 ilde eşzamanlı operasyonda 6 gözaltı kararı
--  米可白曝懷孕真相！公開「巔峰體重」身體2改變：臉都綠了
--  한동훈표 저출생 공약, 이재명은 “매우 칭찬” 정의당은 “부자만 혜택”
--  Eda Erdem, ABD'nin ödülüne aday
--  Rusų erdvėlaivis „Sojuz“ prisijungė prie Tarptautinės kosminės stoties
+-  Noua inteligență artificială care-ți zice tot despre viața ta și apoi îți prezice moartea: Ce spun experții în AI
+-  Ακόμη πιο χαμηλά τιμολόγια ρεύματος τον Απρίλιο "δείχνει" η χονδρεμπορική
+-  Stotine Slovenca čekali su Ronalda sa samo jednom željom. Ostala je neispunjena
+-  Insulin und Antidiabetika
+-  جيش الاحتلال: إصابة 31 عسكريا إسرائيليا في غزة خلال 48 ساعة
+-  Ta simbol so v Katinem pretresljivem videu opazili le redki
+-  【快挙】｢一番の親孝行ができた｣ 尊富士(24) 110年ぶりの新入幕優勝を支えた母の存在 恩師が語る少年時代
+-  담양 죽녹원 아트센터·한국 대나무박물관… 신개념 미디어아트 ‘실감 콘텐츠’ 전시
+-  [ITmedia PC USER] ベンキュー、DisplayHDR 400にも対応した映像編集向け31.5型4K液晶ディスプレイ
+-  파격적인 권나라 “지금은 날 위해 사는 중”
