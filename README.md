@@ -1,11 +1,11 @@
 # Latest News
--  Anne Hathaway sahnede düşük yaptığını açıkladı
--  ‘Forneres’ de Campos
--  Nie żyje 22-letni siatkarski trener. Przed śmiercią został oskarżony
--  Pourquoi Kate Middleton suit-elle une chimiothérapie préventive?
--  Nach Taurus-Leaks: Neues BSI-Sicherheitskennzeichen für Videokonferenzen
--  'Dormir na embaixada e conversar com embaixador é crime?', questiona Bolsonaro
--  Inilah Doa Puasa Ramadhan Hari ke 16 dan 17, Mintalah Ampunan Kepada Allah SWT!
--  Why do we have eggs at Easter and why do we eat chocolate?
--  1.5 milyar liralık 3 villayı mal beyanında göstermeyen İmamoğlu'na Kurum'dan tepki
--  'I lost 100lbs with grim method - it isn't for everyone and my family were grossed out'
+-  Какво да засадя в домашната градина през АПРИЛ?
+-  6 „безобидни“ навика, които крадат красотата ви
+-  Buse Terim ile Volkan Bahçekapılı 10 yıllık evliliklerini bitirdi
+-  Два вражеских пехотинца идут по полевой дороге, по обе стороны которой лежат тела ликвидированных россиян: "Наши пацаны... Вот еще кусок человека. Вот нога человека". ВИДЕО
+-  Župan Koren: Na dan županije nismo zvali predsjednika, nadamo se dolasku premijera
+-  Polícia hľadá svedkov dopravnej nehody v obci Prečín
+-  El espacio 'Las estaciones del arte' de Diputación de Toledo recibe las obras de María Luisa Martín y José Carlos Calvo
+-  ‘How will other clubs react?’: Fiery debate erupts over NRL’s potential interest in buying Leichhardt
+-  Avignon. Ateliers olfactifs et de cockails, dégustations... la distillerie Manguin développe le spiritourisme
+-  China state-affiliated cyber actors target UK democratic institutions
