@@ -1,11 +1,11 @@
 # Latest News
--  Oscarlı oyuncu Olivia Colman'dan Hollywood'daki maaş eşitsizliğine tepki
--  Trump’s net-worth balloons to $6.4B, joins list of world's 500 richest people, on eve of his media company's Nasdaq debut - New York Post
--  Kriegerverein Emmerich: Zusammenschluss von Veteranen
--  Konya’da 4 TIR'ın karıştığı zincirleme kaza
--  Promotion de la culture vietnamienne lors d'un défilé international à Macao en Chine
--  Everybody Playing Everybody in SNL 1975
--  炸物、燒金紙害罹支氣管炎！高雄女告5人討30萬 慘遭鄰居打臉
--  不只金門！台中港外4大陸漁船「越界不捕撈」 海巡署強力驅離
--  «Даллас» выиграл у «Юты», Дончич сделал трипл-дабл
--  В Барнауле у экс-главы структуры противопожарной службы изъяли имущество на 300 млн рублей
+-  美국방부 정책차관 장기공석 계속…대행도 곧 사임
+-  In Wurzbach über Tagespflegekosten informiert
+-  Αγρότες: Σήμερα το συμβούλιο των Υπουργών Γεωργίας της Ε.Ε. – Στην ατζέντα αγροτική κρίση και Ουκρανία
+-  Recenzja techniczna Horizon Forbidden West: Testy porównawcze laptopów i komputerów stacjonarnych
+-  군인권센터 "'출국금지' 해병대 사령관, 이달 말 해외 출장 시도"
+-  İYİ Parti'de ihanet ihanet üstüne
+-  拉希德·穆拉在UIM-ABP世界水上摩托锦标赛平定赛区获得花样表演赛第一名
+-  港股月份及第一季結算在即 後市橫行格局｜內銀第一季股價表現彪炳 不過向上空間有限｜百度不一定為AAPL的中國AI合作首選
+-  Harta Trump Melesat Tembus Rp102 T, Masuk 500 Orang Terkaya di Dunia
+-  الدوسري: شاشة الحلم السعودي ستبث خبر المستقبل
