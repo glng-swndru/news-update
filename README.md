@@ -1,11 +1,11 @@
 # Latest News
--  Tarifstreit beendet: Darauf haben sich Bahn und GDL geeinigt
--  Reservar diez pisos en venta en A Mariña en 2 horas
--  Vjerovali ili ne: 20-godišnja vozačica prošla kroz crveno i dvojicu policajaca poslala u bolnicu
--  Megasaray Hotels Open’da ana tablo heyecanı başlıyor
--  Роман Долидзе подерется с Энтони Эрнандесом 1 июня на UFC 302
--  2024年《土地法》使海外越南人对回国投资倍感振奋并更加放心
--  Venēcijas mākslas biennālē atklās Amandas Ziemeles veidoto Latvijas paviljonu
--  Ukrainas raķešu triecienā bojāts krievu kuģis Konstantin Oļšanskij
--  Jugendliche (16) quetscht sich in Pettendorf die Hand ein – Drei Finger teilweise abgetrennt
--  مقارنة بين منتخب السعودية وطاجكيستان
+-  מכבי ישראל ערכה אליפות טניס שולחן מיוחדת למתמודדי פרקינסון
+-  Kastamonu'ya turist akını olması için önemli çalışma
+-  ANALÝZA: Teď je čas pro blonďáka. Co by měl trenér Hašek změnit
+-  Мосгорсуд продлил арест журналисту WSJ Гершковичу по делу о шпионаже
+-  Две шофьорки се удариха челно, загина 70-годишната
+-  Michael Frontzeck wird 60: „Borussia verbinde ich mit Heimat“
+-  «سينومي سنترز»: توزيع 356.25 مليون ريال أرباحا نقدية عن 6 أشهر
+-  Mobil Göç Noktası araçları 151 düzensiz göçmeni tespit etti
+-  Facianın eşiğinden dönüldü... Doğalgaz tüplerini taşıyan dorsede yangın!
+-  Mắc huyết áp cao, mạch máu xơ vữa, người phụ nữ làm 3 việc trong nửa năm: Kết quả nhận được gây bất ngờ
