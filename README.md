@@ -1,11 +1,11 @@
 # Latest News
--  大谷翔平沉默5日 預計明天4:00「首度公開回應」涉賭案
--  CEO da Boeing anuncia demissão em meio à crise
--  UN-Sicherheitsrat verabschiedet Resolution gegen Israel – USA enthält sich
--  Orbán Viktor megígérte, de ezt sem tartotta be – Mégsem jár az állami támogatás a recski károsultaknak
--  HumanFirst Announces New Market Expansion To Bring GenAI-Powered Data Productivity to CPaaS Providers
--  Ratgeber Wohnen: Wo Ihr Gestaltungsfreiraum bei Balkon und Garten endet
--  Capturan a un hombre en Altos de la Torre que tenía un fusil, un revólver y municiones
--  ইংরেজি - সপ্তম শ্রেণি
--  Muğla'da korkutan deprem! AFAD duyurdu
--  Kamery pokazały, co zrobiła gwiazda polskiej siatkówki. "Sabotaż" [WIDEO]
+-  BOI touts PHL ‘hub’ image in int’l mining convention in Canada
+-  Corona: Karl Lauterbach verneint politische Einmischung in RKI-Empfehlungen
+-  Overseas voters seen to hit 3M as internet voting draws interest
+-  PHL, China swap protests on RORE mission in WPS
+-  Lazio Juve, si lavora alla Continassa. Ecco le ULTIME sugli infortunati
+-  DoTr chief, Miaa GM check Naia terminal for Holy Week
+-  France – Chili : un hommage pour les victimes de l’attentat de Moscou
+-  Польща хоче збудувати 70-метрові наглядові вежі поблизу Білорусі
+-  Bohol to include DOT in review unit for protected zones
+-  UŽIVO! KIPAR - SRBIJA: Piksijevi Orlovi na popravnom posle Rusije! Neočekivan sastav
