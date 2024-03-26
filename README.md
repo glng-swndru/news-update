@@ -1,11 +1,11 @@
 # Latest News
--  Noua inteligență artificială care-ți zice tot despre viața ta și apoi îți prezice moartea: Ce spun experții în AI
--  Ακόμη πιο χαμηλά τιμολόγια ρεύματος τον Απρίλιο "δείχνει" η χονδρεμπορική
--  Stotine Slovenca čekali su Ronalda sa samo jednom željom. Ostala je neispunjena
--  Insulin und Antidiabetika
--  جيش الاحتلال: إصابة 31 عسكريا إسرائيليا في غزة خلال 48 ساعة
--  Ta simbol so v Katinem pretresljivem videu opazili le redki
--  【快挙】｢一番の親孝行ができた｣ 尊富士(24) 110年ぶりの新入幕優勝を支えた母の存在 恩師が語る少年時代
--  담양 죽녹원 아트센터·한국 대나무박물관… 신개념 미디어아트 ‘실감 콘텐츠’ 전시
--  [ITmedia PC USER] ベンキュー、DisplayHDR 400にも対応した映像編集向け31.5型4K液晶ディスプレイ
--  파격적인 권나라 “지금은 날 위해 사는 중”
+-  Lavori per la mobilità ciclabile: 40 divieti di sosta temporanei
+-  «Viejales» en las aulas y otras noticias del día
+-  Išmaniosios apyrankės – ligos istorija ant riešo
+-  Potice so ocenili, nato pa razdelili. Zlati tudi dijaki (FOTO)
+-  Juristisches Nachspiel: Gemeinden wollen Baufirmen klagen
+-  Gironde : les catcheurs de Pessac passent à la vitesse supérieure
+-  いよいよ上場したソラコム スイングバイIPO達成のインパクトとは？
+-  Myndaveisla 2: Valur í úrslit eftir sigur á Stjörnunni
+-  Zdravko se je odpeljal z renaultom in izginil
+-  One Za'abeel obtient le titre de Guinness World Records pour le plus long bâtiment en porte-à-faux du monde
