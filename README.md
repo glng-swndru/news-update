@@ -1,11 +1,11 @@
 # Latest News
--  LTV Lieldienu brīvdienās – dokumentālo filmu un koncertierakstu pirmizrādes
--  Teacher, students sue over Arkansas' ban on critical race theory
--  Liên Hiệp Quốc thông qua Nghị quyết Ngày Quốc tế Vui chơi do Việt Nam đề xuất
--  AMD Zenプロセッサ搭載デバイスのDRAMに干渉して不具合を引き起こす「ZenHammer」攻撃が発見される、「Rowhammer」攻撃の亜種か
--  개그맨 지상렬 모친상…빈소는 인천 가천대 길병원 장례식장
--  Slovenija bogatejša za univerzo, to sporočajo
--  'Irish heiress' who claimed to be witch and psychic 'stole $170,000 from victims'
--  Urteil zu Berufungsantrag Assanges erwartet
--  Taxpayer Alleges Illegal Adjustments in Refund by Income Tax Dept: Madras HC Directs to Submit Consolidated Grievances before JAO [Read Order]
--  ６時間で５０万ドル…高度３０キロの宇宙カプセル、ミシュランシェフ料理も提供(中央日報日本語版)
+-  Istorija: Sabonis užfiksavo ilgiausią dvigubų dublių seriją NBA
+-  2022년 물산업 매출 59.7조, 전년比 4.8%↑
+-  Ngột ngạt khi tháng nào chồng cũng bắt báo cáo tài chính gia đình
+-  فقط جواد عزتی می فروشد | رختکن شلوغ بازنده‌ها خریداری ندارد
+-  Egy követ fújhatnak a globalisták és a radikális iszlamisták
+-  Ne boste verjeli, koliko časa si bo vzel cenilec za zloglasno sodno stavbo!
+-  Aktif Dukung Gaya Hidup Sehat, Arutmin Indonesia Raih Dua Rekor MURI
+-  Proyek Tol Becakayu Seksi 2B Dilelang Rp 5,84 T
+-  Tajvan testirao protuzračnu obranu i najavio intenziviranje vojnih vježbi
+-  Rai Tre è finalmente varia: ci sono la sinistra e la destra
