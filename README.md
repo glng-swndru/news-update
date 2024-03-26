@@ -1,11 +1,11 @@
 # Latest News
--  Özgür Özel, partisinin Gaziantep mitingine katıldı
--  Un ex-président de l'OGC Nice condamné à de la prison ferme pour des tentatives d'escroquerie en bande organisée
--  Jak zmieniała się Joanna Wołosz? Zdjęcia polskiej gwiazdy siatkówki
--  Sla, neurologo Silani: "Molto importante formulazione orodispersibile riluzolo"
--  Violencia en Jalisco: Encuentran 5 personas muertas
--  Trump in tribunale: "Questo processo è una bufala, è caccia alle streghe"
--  Contrôles routiers à Marcilly-sur-Eure : alcool et stupéfiants
--  Panatta: "Amo Napoli, mi piace tutto: anche il casino. E' il senso della vita"
--  ಲಂಚ: ಲೆಕ್ಕ ಸಹಾಯಕಿ ಅಮಾನತು
--  10تطبيقات أندرويد غير موجودة في تصنيفات متجر غوغل رغم أنها مهمة وعليك تحميلها
+-  大谷翔平沉默5日 預計明天4:00「首度公開回應」涉賭案
+-  CEO da Boeing anuncia demissão em meio à crise
+-  UN-Sicherheitsrat verabschiedet Resolution gegen Israel – USA enthält sich
+-  Orbán Viktor megígérte, de ezt sem tartotta be – Mégsem jár az állami támogatás a recski károsultaknak
+-  HumanFirst Announces New Market Expansion To Bring GenAI-Powered Data Productivity to CPaaS Providers
+-  Ratgeber Wohnen: Wo Ihr Gestaltungsfreiraum bei Balkon und Garten endet
+-  Capturan a un hombre en Altos de la Torre que tenía un fusil, un revólver y municiones
+-  ইংরেজি - সপ্তম শ্রেণি
+-  Muğla'da korkutan deprem! AFAD duyurdu
+-  Kamery pokazały, co zrobiła gwiazda polskiej siatkówki. "Sabotaż" [WIDEO]
