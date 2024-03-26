@@ -1,11 +1,11 @@
 # Latest News
--  Análisis técnico de Horizon Forbidden West: Puntos de referencia de portátiles y ordenadores de sobremesa
--  OFC 2024: Alphawave Semi und InnoLight präsentieren LPO-Module mit PCIe 6.0® -Subsystem-Lösung und niedriger Latenzzeit für leistungsstarke KI-Infrastrukturen
--  Chuyển nhượng tín chỉ carbon ở Việt Nam, giá bao nhiêu là hợp lý, nông dân hưởng lợi còn ít?
--  자동 적립 안된 카드 포인트 12억 원 고객에 환급…시스템도 개선
--  6 Zodiak yang Paling Mudah untuk Jatuh Cinta, Apa Zodiakmu Termasuk?
--  Tesco, Sainsbury's, Coop and M&S stores that will open on Easter Sunday
--  دارندگان شناسنامه‌ جلد قرمز بخوانند | نحوه تعویض شناسنامه‌های قدیمی
--  Shikhar Dhawan: "हमें इसकी कीमत चुकानी पड़ी...", हार के बाद कप्तान शिखर धवन ने मैच के टर्निंग पॉइंट को लेकर गिना दी ये बड़ी गलती
--  Latihan Soal Biologi Kelas 12 SMA Kurikulum Merdeka Semester Genap dan Kunci Jawaban
--  Buxarestdən Kişineuya uçan təyyarəni ildırım vurdu
+-  Oscarlı oyuncu Olivia Colman'dan Hollywood'daki maaş eşitsizliğine tepki
+-  Trump’s net-worth balloons to $6.4B, joins list of world's 500 richest people, on eve of his media company's Nasdaq debut - New York Post
+-  Kriegerverein Emmerich: Zusammenschluss von Veteranen
+-  Konya’da 4 TIR'ın karıştığı zincirleme kaza
+-  Promotion de la culture vietnamienne lors d'un défilé international à Macao en Chine
+-  Everybody Playing Everybody in SNL 1975
+-  炸物、燒金紙害罹支氣管炎！高雄女告5人討30萬 慘遭鄰居打臉
+-  不只金門！台中港外4大陸漁船「越界不捕撈」 海巡署強力驅離
+-  «Даллас» выиграл у «Юты», Дончич сделал трипл-дабл
+-  В Барнауле у экс-главы структуры противопожарной службы изъяли имущество на 300 млн рублей
