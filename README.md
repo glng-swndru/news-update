@@ -1,11 +1,11 @@
 # Latest News
--  'Tiada keputusan rasmi UMNO, Warisan jalinan kerjasama' - Shafie Apdal
--  Il Piano Nazionale Pluriennale sull’eliminazione della Violenza
--  Người tình lo ngại Jake Paul bị Mike Tyson hạ đo ván
--  Rischio di scontri etnici dopo la strage: Mosca nel caos, cosa sta succedendo
--  Bahçelievler'de annesini ve kız kardeşini öldüren şahıs camide intihar etti
--  De un trozo de manguera en la zapatilla a la revolución de las nubes estructurales
--  Uttarakhand Election News : पूर्व बसपा नेता सुबोध राकेश भाजपा में शामिल.
--  CLIP: Du khách nước ngoài thích thú xuống ruộng thu hoạch lúa với nông dân miền Tây
--  CSK vs GT IPL 2024 Free LIVE Streaming Details: Timings, Telecast Date, When And Where To Watch Chennai Super Kings Vs Gujarat Titans, Match No 7, In India Online And On TV Channel?
--  Маршессо установил новый рекорд «Вегаса» по голам в овертаймах
+-  LTV Lieldienu brīvdienās – dokumentālo filmu un koncertierakstu pirmizrādes
+-  Teacher, students sue over Arkansas' ban on critical race theory
+-  Liên Hiệp Quốc thông qua Nghị quyết Ngày Quốc tế Vui chơi do Việt Nam đề xuất
+-  AMD Zenプロセッサ搭載デバイスのDRAMに干渉して不具合を引き起こす「ZenHammer」攻撃が発見される、「Rowhammer」攻撃の亜種か
+-  개그맨 지상렬 모친상…빈소는 인천 가천대 길병원 장례식장
+-  Slovenija bogatejša za univerzo, to sporočajo
+-  'Irish heiress' who claimed to be witch and psychic 'stole $170,000 from victims'
+-  Urteil zu Berufungsantrag Assanges erwartet
+-  Taxpayer Alleges Illegal Adjustments in Refund by Income Tax Dept: Madras HC Directs to Submit Consolidated Grievances before JAO [Read Order]
+-  ６時間で５０万ドル…高度３０キロの宇宙カプセル、ミシュランシェフ料理も提供(中央日報日本語版)
