@@ -1,11 +1,11 @@
 # Latest News
--  Kamara Harris anuncia medidas e investimentos em meio à visita de presidente da Guatemala
--  Kamara Harris anuncia medidas e investimentos em meio à visita de presidente da Guatemala
--  Canucks prospect Jonathan Lekkerimaki reporting to Abbotsford
--  Felfedték: egy NATO-tagállamban jártak nem sokkal a merénylet előtt a moszkvai terrortámadás elkövetői
--  Заснований українцями лондонський фонд 1991 Ventures залучив $18 мільйонів для інвестування в українські стартапи
--  Стало известно о показаниях обвиняемых в теракте в «Крокусе» о заказчиках
--  Атентаторите от "Крокус сити хол" са подновили в Турция разрешителните си за пребиваване в Русия
--  ΠΑΛΙ Ο ΜΟΛ!
--  सोनेदराची झळाळी काय सांगतेय?
--  KuCoin Pioneers sa stáva prvou globálnou kryptoburzou v Indii, ktorá spĺňa kritériá FIU
+-  В «Зените» заявили, что никто из легионеров клуба не высказывал желание покинуть Россию
+-  Воины 25-й Сичеславской бригады успешно отразили вражеский штурм на Авдеевском направлении. ВИДЕО
+-  Guterres: İsrail, Gazze'ye insani yardım sevkiyatını kolaylaştırmak zorundadır
+-  Putin še kar vztraja: Rusija sumi, da bi Ukrajina lahko ukazala napad v koncertni dvorani (VIDEO)
+-  Útok spáchali islamisté, prohlásil Putin. Stále ale hledá spojení s Kyjevem.
+-  2. Handball-Bundesliga: Ein Abschied aus Dormagen mit vielen Emotionen
+-  Jovetić pogodio za pobjedu Crne Gore protiv Sjeverne Makedonije
+-  Supertransfer voor piepjonge hoofdscout: van KKD naar AC Milan
+-  Süllyedő csónakból mentették ki a horgászokat a balatoni rendőrök
+-  Frau verschanzt sich mit Messer in Praxis: SEK-Einsatz
