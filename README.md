@@ -1,11 +1,11 @@
 # Latest News
--  Meghan Markle’s ‘domestic goddess’ business may be inspired by another Californian brand
--  Kozan polisi uygulamada ruhsatsız tabanca ele geçirdi
--  Службата за сигурност на Украйна е била мишената на руските балистични ракети по Киев (ВИДЕО)
--  Sainsbury’s Good Friday and Easter Sunday 2024 opening times: What time are stores open?
--  Lo que dejó el fin de semana: una candidata para la Corte Suprema y la visita de una diputada al Centro Armenio
--  Touristin (21) am Hauptbahnhof Regensburg sexuell belästigt
--  Fruits, veggie vendors suffer financial losses
--  Sainsbury’s Good Friday and Easter Sunday 2024 opening times: What time are stores open?
--  TV Wetzlar beendet in Neustadt seine Negativserie
--  Ucraina, su Kiev il missile ipersonico Zircon: come funziona
+-  United States Gift Card and Incentive Card Market Growth Dynamics Databook 2024 - Payment Firms are Partnering with Gift Card Providers to Tap into the Growing Popularity
+-  Davutoğlu'ndan Denizli'de 'İsrail'le ticareti kesin' açıklaması: Askerlerin yedikleri konserveler bile Türkiye'den gidiyor
+-  داني ألفيش يدفع مليون يورو ويقترب من مغادرة السجن
+-  ‘이혼 소송’ 황정음 “골프가 제일 싫어” 천만뷰 예약 돌직구 (짠한형)
+-  مجلس الوزراء يكلف الجهات المعنية بحصر الأضرار الناجمة عن التقلبات الجوية
+-  Koke renueva por el Atlético de Madrid hasta 2025
+-  Verfassungsschutzpräsident Thüringen: "Konkrete Gefahr auch für uns in Deutschland": Experte gibt Einschätzung zur Bedrohung ab
+-  Ex-rbb-Verwaltungsratsvorsitzender Wolf verweigert Aussage im Untersuchungsausschuss vor Landtag
+-  ЕК одобри още 170 млн. лв. за български земеделски производители
+-  „Als Vorgruppe von Pur erreichen wir ein großes Publikum“
