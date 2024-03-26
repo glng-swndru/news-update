@@ -1,11 +1,11 @@
 # Latest News
--  Başkan Böcek: "İş adamlarımızla işbirliği içinde çalışacağız"
--  Treasury yields steady as traders eye critical inflation data at end of week
--  Apollonia Llewellyn düğünüde tercih ettiği kıyafetle eleştirildi
--  Bán mía chục giá cao, nông dân thu nhập hơn 10 triệu đồng/công
--  “옛날 ‘강시영화’ 느낌 났으면 했는데...” 장재현 감독이 말하는 <파묘>
--  МЧС: обследование двух скважин в руднике «Пионер» завершится в ближайшие дни
--  Voli e hotel troppo cari niente gite scolastiche: addio alle città europee
--  Störung bei "Fortnite"?: Spielen zur Zeit nicht möglich - daran liegt es
--  IPL 2024: पहले मैच में हार के बाद मुंबई को लगा बड़ा झटका, सूर्यकुमार SRH के खिलाफ मैच से बाहर
--  Streamen & Surfen: Tablet bis 200 Euro: Modelle von Amazon, Samsung, Lenovo & Co. im Vergleich
+-  Se Nyströmskas värde för vår stad och dess ungdom
+-  Upisi u gradske dječje vrtiće počinju 30. ožujka – najteže će biti djeci jasličke dobi
+-  Özçelik: "Meslek odalarımız çözüm ortağımız olacak"
+-  ارتفاع أرباح «سينومي سنترز» 49% إلى 1.5 مليار ريال في 2023
+-  Dax weiterhin nahe seines Rekordhochs
+-  “WhatsApp”dan videolarla bağlı YENİLİK
+-  Южную рокаду в Москве достроят до конца текущего года
+-  Galaxy Z Fold 6, Galaxy S24 Ultra'nın öne çıkan özelliğine sahip olabilir
+-  ФСБ предотвратила теракт в пункте приема гумпомощи в Самарской области
+-  Avtomobil almaq istəyənlərin NƏZƏRİNƏ - VİDEO
