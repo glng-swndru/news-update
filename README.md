@@ -1,11 +1,11 @@
 # Latest News
--  Salute, con prevenzione e cure dentali di qualità risparmi per oltre 9 mld l'anno
--  "Enflasyon 2025’te yüzde 15’lere, 2026'da tek hanelere düşecek"
--  Britons driven off the road as car insurance surges by 46%
--  Boeing chief executive Calhoun to leave as firm faces safety crisis
--  Salute, con prevenzione e cure dentali di qualità risparmi per oltre 9 mld l'anno
--  Sept alpinistes secourus dans les Hautes-Pyrénées après une chute de 200 m
--  Падение загадочного светящегося объекта в российском регионе попало на видео
--  Президент Таджикистана озаботился репутацией страны после теракта
--  La Région Nouvelle-Aquitaine décide de reporter l'attribution de la subvention au projet de l'usine à pellets en Creuse
--  Мужчина похитил и съел человеческую ногу
+-  Özgür Özel, partisinin Gaziantep mitingine katıldı
+-  Un ex-président de l'OGC Nice condamné à de la prison ferme pour des tentatives d'escroquerie en bande organisée
+-  Jak zmieniała się Joanna Wołosz? Zdjęcia polskiej gwiazdy siatkówki
+-  Sla, neurologo Silani: "Molto importante formulazione orodispersibile riluzolo"
+-  Violencia en Jalisco: Encuentran 5 personas muertas
+-  Trump in tribunale: "Questo processo è una bufala, è caccia alle streghe"
+-  Contrôles routiers à Marcilly-sur-Eure : alcool et stupéfiants
+-  Panatta: "Amo Napoli, mi piace tutto: anche il casino. E' il senso della vita"
+-  ಲಂಚ: ಲೆಕ್ಕ ಸಹಾಯಕಿ ಅಮಾನತು
+-  10تطبيقات أندرويد غير موجودة في تصنيفات متجر غوغل رغم أنها مهمة وعليك تحميلها
