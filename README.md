@@ -1,11 +1,11 @@
 # Latest News
--  Zwei Verletzte bei Autounfall in Warendorf
--  Deutscher Raumausstatter ist insolvent: Alle Filialen sollen nun verkauft werden
--  Über 90 Jahre Tradition: Deutscher Matratzen-Gigant hat Insolvenz angemeldet
--  Women's NCAA Tournament Day 4 recap
--  Reckless driving causing carnage
--  Auto überschlägt sich: Drei Verletzte in Rheinbach
--  La Légendaire, un vin volcanique vieilli à 1.200 mètres d'altitude dans le Cantal
--  Viral Pemotor Heboh Isi BBM Bercampur Air di SPBU Bekasi, Pertamina Buka Suara
--  PJ cops nab man over spate of car break-ins in Kelana Jaya
--  Zwei Tote in Wohnung entdeckt: Mordkommission ermittelt
+-  Ушли в зону вылета. Клуб АПЛ будет судиться с лигой
+-  Glasgow School of Art Fires: Expert warned of risk
+-  Kaljavelli ja puolukkapepu olivat pääsiäispöydän herkkuruokaa sata vuotta sitten Järviseudulla: muutamia tutumpia juhlaelementtejä vilahteli
+-  İletişim devi 1200 kişi işten çıkaracak. Rakipleri dahil herkes şokta
+-  Pleite zum Abschluss: Friedberger Volleyballer verlieren in Eibelstadt
+-  Man neergestoken bij de Basic Fit in Oss, dader nog spoorloos: ‘Hangt zo'n sfeertje hier’
+-  Yeni başkan belli oluyor: Yargıtay seçiminde ikinci gün!
+-  SPD nach Besuch in Skandal-Moschee in München unter Druck: "Völlig unreflektiert"
+-  전의교협 “주 52시간 근무 지켜달라”…수련병원에 공문
+-  Who is in charge at the Glasgow School of Art?
