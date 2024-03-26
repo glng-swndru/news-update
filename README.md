@@ -1,11 +1,11 @@
 # Latest News
--  JEDAN DETALJ U OBRAĆANJU KEJT MIDLTON JE SVIMA PROMAKAO: Nije slučajno odabrala BAŠ OVO MESTO za govor, krije POSEBNU SIMBOLIKU
--  Gold so wertvoll wie nie
--  Ποιους λόγους είχε το Ισλαμικό Κράτος για να επιτεθεί στη Ρωσία και ποια θα μπορούσε να είναι η απάντηση Πούτιν
--  Preços do etanol caem em 11 Estados e no DF, diz ANP; valor médio recua 0,28%
--  Satellit für chinesische Mondmission erreicht Umlaufbahn
--  Elon Musk's X-Service Desperately Needs Quality Content – Quality Content Just Doesn't Seem to Need X
--  Mršić stipendista Opštine Tivat na Fakultetu za medireranske...
--  मधेशका सभामुखलाई ‘महामुर्ख’को उपाधि
--  İşyerlerinde İşçi Sağlığı ve İş Güvenliği konusu GSOMEM'de konuşuldu
--  Quand Zinédine Zidane encense Jude Bellingham (Real Madrid)
+-  Près de 130 collèges et lycées visés par des menaces depuis la semaine dernière
+-  Janja convida senadoras e deputadas para jantar no Alvorada após cobrança
+-  6 Female Finance Influencers Changing the Way We Think About Money - CNET
+-  Près de 130 collèges et lycées visés par des menaces depuis la semaine dernière
+-  "Putin non è un mostro": Santoro spiazza Parenzo. E perde le staffe su Kiev
+-  Disse får veikon­trak­ter for en halv milli­ard
+-  Нов скандал в сливенската църква
+-  Bakan Yumaklı, Ankara'da tohum dağıtım törenine katıldı
+-  Uhapšen zbog višemilionske utaje poreza! Hitno saopštenje Poreske uprave
+-  Prognose: Sinkendes Zinsniveau : Sparkasse Merzig-Wadern erzielt gutes Ergebnis in schwierigen Zeiten
