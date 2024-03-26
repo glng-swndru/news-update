@@ -1,11 +1,11 @@
 # Latest News
--  Istorija: Sabonis užfiksavo ilgiausią dvigubų dublių seriją NBA
--  2022년 물산업 매출 59.7조, 전년比 4.8%↑
--  Ngột ngạt khi tháng nào chồng cũng bắt báo cáo tài chính gia đình
--  فقط جواد عزتی می فروشد | رختکن شلوغ بازنده‌ها خریداری ندارد
--  Egy követ fújhatnak a globalisták és a radikális iszlamisták
--  Ne boste verjeli, koliko časa si bo vzel cenilec za zloglasno sodno stavbo!
--  Aktif Dukung Gaya Hidup Sehat, Arutmin Indonesia Raih Dua Rekor MURI
--  Proyek Tol Becakayu Seksi 2B Dilelang Rp 5,84 T
--  Tajvan testirao protuzračnu obranu i najavio intenziviranje vojnih vježbi
--  Rai Tre è finalmente varia: ci sono la sinistra e la destra
+-  Zwei Verletzte bei Autounfall in Warendorf
+-  Deutscher Raumausstatter ist insolvent: Alle Filialen sollen nun verkauft werden
+-  Über 90 Jahre Tradition: Deutscher Matratzen-Gigant hat Insolvenz angemeldet
+-  Women's NCAA Tournament Day 4 recap
+-  Reckless driving causing carnage
+-  Auto überschlägt sich: Drei Verletzte in Rheinbach
+-  La Légendaire, un vin volcanique vieilli à 1.200 mètres d'altitude dans le Cantal
+-  Viral Pemotor Heboh Isi BBM Bercampur Air di SPBU Bekasi, Pertamina Buka Suara
+-  PJ cops nab man over spate of car break-ins in Kelana Jaya
+-  Zwei Tote in Wohnung entdeckt: Mordkommission ermittelt
