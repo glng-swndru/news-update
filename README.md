@@ -1,11 +1,11 @@
 # Latest News
--  Técnico da Espanha exalta Vini Jr. e se surpreende com Endrick, mas pede cautela
--  Wizpr: Über Ring Fernseher und andere smarte Geräte bedienen
--  L'addio di Fedez a Muschio Selvaggio: "Passa nelle mani di Luis. Io e Marra ci leviamo dai c..."
--  3 uşaq anası azərbaycanlı həkimin əlində öldü - FOTOLAR
--  Osterfeuer in Berglen: Am Ostersamstag brennen hier 3000 Holzpaletten
--  Unrivaled NCAA March Madness Betting Offer: Meridianbet Tops the Charts with 200+ Betting Options per Game
--  L'addio di Fedez a Muschio Selvaggio: "Passa nelle mani di Luis. Io e Marra ci leviamo dai c..."
--  Gazze'de acil ateşkes BM Güvenlik Konseyi'nde kabul edildi
--  МФ: Стартира информационният сайт за еврото в България
--  Família de Di María ameaçada na Argentina: «Disparamos chumbo»
+-  Salute, con prevenzione e cure dentali di qualità risparmi per oltre 9 mld l'anno
+-  "Enflasyon 2025’te yüzde 15’lere, 2026'da tek hanelere düşecek"
+-  Britons driven off the road as car insurance surges by 46%
+-  Boeing chief executive Calhoun to leave as firm faces safety crisis
+-  Salute, con prevenzione e cure dentali di qualità risparmi per oltre 9 mld l'anno
+-  Sept alpinistes secourus dans les Hautes-Pyrénées après une chute de 200 m
+-  Падение загадочного светящегося объекта в российском регионе попало на видео
+-  Президент Таджикистана озаботился репутацией страны после теракта
+-  La Région Nouvelle-Aquitaine décide de reporter l'attribution de la subvention au projet de l'usine à pellets en Creuse
+-  Мужчина похитил и съел человеческую ногу
