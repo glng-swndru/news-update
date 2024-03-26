@@ -1,11 +1,11 @@
 # Latest News
--  Ушли в зону вылета. Клуб АПЛ будет судиться с лигой
--  Glasgow School of Art Fires: Expert warned of risk
--  Kaljavelli ja puolukkapepu olivat pääsiäispöydän herkkuruokaa sata vuotta sitten Järviseudulla: muutamia tutumpia juhlaelementtejä vilahteli
--  İletişim devi 1200 kişi işten çıkaracak. Rakipleri dahil herkes şokta
--  Pleite zum Abschluss: Friedberger Volleyballer verlieren in Eibelstadt
--  Man neergestoken bij de Basic Fit in Oss, dader nog spoorloos: ‘Hangt zo'n sfeertje hier’
--  Yeni başkan belli oluyor: Yargıtay seçiminde ikinci gün!
--  SPD nach Besuch in Skandal-Moschee in München unter Druck: "Völlig unreflektiert"
--  전의교협 “주 52시간 근무 지켜달라”…수련병원에 공문
--  Who is in charge at the Glasgow School of Art?
+-  Moskvadakı teraktın arxasında hansı ölkə dayanır? - ƏSAS VERSİYA
+-  Bitlis'te eğitime 'kar' engeli
+-  Gras auf der Wiesn? Cannabis-Regeln auf dem Volksfest offen
+-  #video Trojni dvojček Dončića ob zmagi proti Utahu
+-  Chhattisgarh: बस्‍तर से कांग्रेस प्रत्याशी कवासी लखमा का रुपये बांटते फोटो वायरल, दर्ज हुआ FIR, मंत्री केदार कश्‍यप ने EC से की थी शिकायत
+-  Terör örgütü FETÖPDY'ye yönelik 2 ilde eşzamanlı operasyonda 6 gözaltı kararı
+-  米可白曝懷孕真相！公開「巔峰體重」身體2改變：臉都綠了
+-  한동훈표 저출생 공약, 이재명은 “매우 칭찬” 정의당은 “부자만 혜택”
+-  Eda Erdem, ABD'nin ödülüne aday
+-  Rusų erdvėlaivis „Sojuz“ prisijungė prie Tarptautinės kosminės stoties
