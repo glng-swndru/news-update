@@ -1,11 +1,11 @@
 # Latest News
--  Biblijski spektakl u Imotskome; građani su htjeli razgrnuti rimske vojnike i pomoći Isusu kojega je utjelovio ekonomist
--  German football's switch: 'Maybe Nike won by accident'
--  German football's switch: 'Maybe Nike won by accident'
--  Yusuf Güney'den bomba açıklama: Sevgilim 100 yaşında çok güzel bir kadın
--  Rundfunk in het theater: een meedogenloze lachmachine
--  Ethereum im Spannungsfeld: Upgrade-Chaos und ETF-Zögern gegen Marktzuversicht
--  Šalčininkų komisariato viršininkas dėl greičio viršijimo prarado teisę vairuoti
--  Precios: ¿cuáles son las camionetas menos caras y más vendidas?
--  Київ атакували "Циркони": експерт зробив різку заяву на адресу Заходу
--  ايرلندا: استخدام سلاح التجويع في غزة انتهاك للقانون الدولي
+-  Técnico da Espanha exalta Vini Jr. e se surpreende com Endrick, mas pede cautela
+-  Wizpr: Über Ring Fernseher und andere smarte Geräte bedienen
+-  L'addio di Fedez a Muschio Selvaggio: "Passa nelle mani di Luis. Io e Marra ci leviamo dai c..."
+-  3 uşaq anası azərbaycanlı həkimin əlində öldü - FOTOLAR
+-  Osterfeuer in Berglen: Am Ostersamstag brennen hier 3000 Holzpaletten
+-  Unrivaled NCAA March Madness Betting Offer: Meridianbet Tops the Charts with 200+ Betting Options per Game
+-  L'addio di Fedez a Muschio Selvaggio: "Passa nelle mani di Luis. Io e Marra ci leviamo dai c..."
+-  Gazze'de acil ateşkes BM Güvenlik Konseyi'nde kabul edildi
+-  МФ: Стартира информационният сайт за еврото в България
+-  Família de Di María ameaçada na Argentina: «Disparamos chumbo»
