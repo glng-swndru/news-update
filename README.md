@@ -1,11 +1,11 @@
 # Latest News
--  Jednání Izraele v Gaze nese znaky genocidy, tvrdí zpráva OSN
--  Open Call: Vilcek Foundation to Award $150,000 in Prizes to Immigrant Scientists in 2025
--  의대 교수 집단사직 강행…'주 52시간 진료' 시작
--  Evacuan a casi un millar de personas de un centro médico de Moscú tras aviso de bomba
--  “Ferma VIP”, macja më e famshme në Shqipëri, Sokoli “rrëmben” vëmëndjen gjatë spektaklit
--  צה"ל על הירי לכרמי צור: זוהתה פגיעה בבית ביישוב ונמצא קליע
--  First stage of Darwins Walk revealed as part of Grand Cliff Top Walk opening
--  "Знаю цю дату": голова Мукачівської РДА спрогнозував, коли відбудеться новий наступ РФ
--  ಕ್ಷೇತ್ರ ಮಹಾತ್ಮೆ; ಬೆಂಗಳೂರು ದಕ್ಷಿಣ
--  原油先物が上昇、ロシアの産油抑制指示や地政学的緊張で - ロイター (Reuters Japan)
+-  İcradan satılık oteller!
+-  Save big on the best OLED PC gaming monitors at Samsung this week
+-  Save big on the best OLED PC gaming monitors at Samsung this week
+-  Inside Becky Lynch’s rise from ‘drinking cans on street corners' to WWE superstardom
+-  Amazon busca empleados en Argentina: ofrece sueldo de hasta UN MILLÓN de pesos
+-  السفارة في الكويت: نقل مواطن تعرض لوضع صحي حرج لاستكمال علاجه بالمملكة
+-  Türkiyədən Akkuyu AES-lə bağlı QƏRAR
+-  Timnas Indonesia U-20 Ikuti Turnamen di Spanyol Sebelum Berburu Tiket ke Piala Dunia U-20 2025
+-  Kültür Yolu Festivali 13 Nisan'da Adana'da başlıyor
+-  Održana ekoakcija “MB kuglice za naše more” u Crikvenici
