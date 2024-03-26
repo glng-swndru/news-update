@@ -1,11 +1,11 @@
 # Latest News
--  Advice on homes is priceless
--  部員2人の相撲部 ようやくかなった団体戦出場…2年生大将が他県ライバルに意地の「白星」【山形発】
--  ‘A different Crown is emerging’: Here’s why we granted Crown a casino licence
--  横浜・北山田で「さくら祭り」 公式キャラクター名前投票も(みんなの経済新聞ネットワーク)
--  Acusados con signos claros de tortura
--  Trump to face trialin hush-money case in April, but avoids having assets seized
--  やはり残酷な悪役!? 曹操に「粛清」された男たち…孔融、楊修、荀彧たちの共通点(歴史人)
--  국토부, 고흥·울진 신규 국가산단 예타 면제 신속 추진…지방 최초
--  મેનેજમેન્ટ ફંડા by એન રઘુરામન:2025 માટે સેટ કરો મોટા ફાઇનેન્શિયલ ગોલ; નાની-નાની બચતની ટેવ પાડો
--  Hiker (78) who died after fall on Croagh Patrick praised for donating body to science
+-  나이 속인 청소년에 술·담배 판매한 소상공인 법으로 보호
+-  Riña de hermanos termina mal; reportan ataque con arma blanca, en Dzidzantún
+-  Wali Kota Depok Keluarkan SE Kesiapsiagaan Peningkatan Kasus DBD
+-  Fortalecen vínculos entre localidades de Vietnam y Suiza
+-  DILG to deploy Revitalized Pulis Sa Barangay in drug-affected villages
+-  UP: Fire breaks out at horticulture dumping yard near Noida city centre
+-  UP: Fire breaks out at horticulture dumping yard near Noida city centre
+-  永瀬拓矢九段が透明人間になっちゃった！？仲間との会話に“声だけ出演” ファンは爆笑「天の声w」/将棋・ABEMA地域対抗戦(ABEMA TIMES)
+-  ¿A alistar velar? Bogotá podría vivir un apagón: posibles razones y fechas
+-  한미그룹 "가처분 신청 기각으로 글로벌 빅파마 도약 길 열려"
