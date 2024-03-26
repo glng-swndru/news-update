@@ -1,11 +1,11 @@
 # Latest News
--  沖縄2月の入域観光客数、前年比20.3%増の71万9200人 外国客は3.3倍 - 沖縄タイムス＋プラス プレミアム
--  Schröder vor 80. Geburtstag: Bereue keine Entscheidung
--  La pillola abortiva alla prova della Corte Suprema Usa
--  AUD and NZD pop again right around PBoC fixing time
--  Juliana Cardoso Advogados: new Wealth Planning boutique in São Paulo
--  2 ngành được tăng lương nhiều nhất từ 1-7-2024
--  ولاية فلوريدا تمنع الأطفال دون 14 عاماً من استخدام وسائل التواصل الاجتماعي
--  The Bachelor viewers spot painful moment Joey chose winner - 'knew in instant it was over'
--  à·€à¶»à·�à¶º à¶±à¶œà¶»à¶º à¶œà·�à¶± à¶šà·�à¶¶à·’à¶±à¶§à·Š à¶­à·“à¶»à¶«à¶ºà¶šà·Š
--  Những đại án làm 'đau đầu' chính quyền Đà Nẵng
+-  LIVE GAZA. Verenigd Koninkrijk dropt 10 ton hulpgoederen boven Gaza - Veiligheidsraad roept op tot onmiddellijk staakt-het-vuren in Gaza
+-  음주운전 40대 잡고 봤더니…임금 선불 받고 잠적한 지명수배자
+-  Have you got ‘smartphone finger’? - Toowoomba Chronicle
+-  ＪＲ幕張豊砂駅前開発プロジェクト開業式典、土沢壇千葉支社長「駅と街でにぎわい創出」(産経新聞)
+-  Immigrants could face jail if they refuse deportation
+-  세종갑 새미래 김종민 "민주당 당원들에게 사과한다"
+-  Kiến nghị thiết kế mẫu thẻ bảo hiểm y tế ghi hạn dùng
+-  Man who killed North Idaho family sentenced to life without parole. ‘Needlessly murdered’
+-  Kim Kardashian 'copies' Kanye West's wife Bianca Censori in topless snap after 'split'
+-  Bitcoin rises 7.15%, tops $70,000 again
