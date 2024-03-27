@@ -1,11 +1,11 @@
 # Latest News
--  Marak Gangguan Kamtibmas Selama Ramadan, Sekda Ajak Masyarakat Tingkatkan Kewaspadaan
--  Tập đoàn Generali ghi nhận kết quả kinh doanh tăng trưởng ấn tượng
--  Daniel Brennan (CA Brive) avant le déplacement au Stade Montois: « On a la même ambition qu’au départ, remonter en Top 14 »
--  Thấy gì đằng sau việc chuỗi tóc nam 30Shine thay đổi nhận diện thương hiệu?
--  Polda Jabar Bakal Terapkan Ganjil Genap Situasional di Kawasan Puncak Saat Mudik
--  STY Cerita Kutukan Timnas Indonesia, Mental Vietnam Drop Bikin Skuad Garuda Garang
--  Nam Dược được vinh danh giải thưởng Hàng Việt Nam chất lượng cao năm 2024
--  BGHL (GBP): NAV(s)
--  Israel says UN resolution damaged Gaza ceasefire talks
--  Pour l’ancien patron de la police aux frontières, il faut "cesser les postures idéologiques" sur l’immigration
+-  Препарат от коронавируса «МИР 19» получил постоянную регистрацию
+-  ಸಿರಿಗೆರೆ : ಎಸ್.ಎಸ್.ಕೇರ್ ಟ್ರಸ್ಟ್‍ನಿಂದ ಆರೋಗ್ಯ ತಪಾಸಣೆ
+-  X-Reaktionen zum Sieg der DFB-Elf: „Ich weiß nicht, ob ich Maxistädt oder dieses Tor heiraten möchte!“
+-  '그림자 조세' 부담금 18개 폐지·14개 금액 감면…尹 "무책임하게 방치"[종합]
+-  Çaldıran'da Yıldırım gibi etkili yatırımlar
+-  Baturina i dalje upitan za Split: Jakirović ne smije ponoviti istu grešku, u derbiju nema čekanja!
+-  Украйна вдига оборотите в оръжейното производство, готви се за руска офанзива (ВИДЕО)
+-  Государства ОДКБ выступают за дальнейшую консолидацию в противодействии терроризму
+-  X-Reaktionen zum Sieg der DFB-Elf: „Ich weiß nicht, ob ich Maxistädt oder dieses Tor heiraten möchte!“
+-  ЦСКА готви мащабен проект за нова база
