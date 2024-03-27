@@ -1,11 +1,11 @@
 # Latest News
--  Liderlerin Oy Kullanacakları Adresler Belli Oldu
--  27 Mart Dünya Tiyatro Günü | Ferhan Şensoy bağlaması ile söylüyor: Güldürdüm gidiyorum…
--  Biglietti aerei sempre più cari? "La colpa è anche dell'Inps": ecco perchè
--  Disparition de Lina: les trois gardes à vue "ont été levées"
--  한수원, 양수발전소 유치 5개 지자체와 통합 협의회 구성
--  Euforie neměla konce. Litvínov slavil do noci, hrdinové museli znovu na led
--  Співачка Ешлі Тісдейл вдруге стане мамою
--  Punimet për Unazën Lindore të Tiranës, si do devijohet trafiku këtë segment rrugor
--  İzmir'de tiyatro coşkusu yaşanacak
--  Disparition de Lina: les trois gardes à vue "ont été levées"
+-  Kocaeli'de dehşet! Tartıştığı ağabeyini bıçaklayarak öldürdü
+-  CHP Büyükşehir adayı Aras; "Her ilçeye çocuk kreşi yapacağız"
+-  Menparekraf: Kenaikan PPN 12 Persen Tak Berdampak ke Pariwisata RI
+-  Vicenza, il consiglio comunale reintroduce la clausola antifascista
+-  Detenidas tres personas por el accidente laboral que costó la vida de un joven en el polígono de Carballo
+-  Gerabronn: Auto überschlägt sich - Fahrer wird schwer verletzt
+-  تغيير في نهج اليابان السلمي.. خطوة نحو بيع أسلحة فتاكة
+-  Vicenza, il consiglio comunale reintroduce la clausola antifascista
+-  Vučević: Pritisci na Srbiju nikad veći, sednica Političkog komiteta SE jedan od njih
+-  Renault Group va céder à Nissan jusqu’à 100 242 900 actions Nissan représentant environ 2,5 % du capital de Nissan
