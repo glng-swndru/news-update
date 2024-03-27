@@ -1,11 +1,11 @@
 # Latest News
--  Bakı metrosunda alışma baş verdi
--  Weather warning issued as Storm Nelson to bring 70mph winds ahead of Easter
--  1500 مستفيد من حملة ”تعافي“ للتوعية بأضرار المخدرات في الدمام
--  Asiatische WM-Qualifikation: Überraschender Abgang von Mahmoud Dahoud vor Debüt für Syrien
--  Nabavite originalne MS softverske ključeve! Windows 11 Pro snižen na 13,25 €!
--  Banyana can take charge of Nigeria tie with good result in Abuja: Ellis
--  Corona-Zahlen im Landkreis Prignitz aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Erzurum Büyükşehir Belediyesi organik gübre üretecek
--  Кравцов призвал сделать предмет «История» массовым по сдаче ЕГЭ
--  Yenul a căzut până la minimul ultimilor 34 de ani față de dolar
+-  Ďakujem za všetko, priateľ môj. Djokovič oznámil, že ukončil spoluprácu s chorvátskym trénerom Ivaniševičom
+-  有罪判決の村杉蝉之介が活動休止 謝罪コメント発表「年齢にそぐわない愚鈍さに恥じ入るばかり」
+-  אפגניסטאן מתייבשת. מי שלא ברח מהמדינה בגלל הבצורת שם את מבטחו באל
+-  अखिलकी नेत्री रक्षा बम पक्राउ
+-  Minstens 5 doden door ongeval met Flixbus in Duitsland
+-  Von klassisch bis lustig: Whatsapp: Die schönsten Grüße und Sprüche für Ostern 2024
+-  امدادرسانی به بیش از 18 هزار نفر در طرح امداد و نجات نوروزی
+-  Adana ve İskenderun arası kaç km?
+-  Attacco Mosca, Russia insiste su ‘pista ucraina’ e punta il dito sugli Usa
+-  Der Meister des Stahls: US-Künstler Richard Serra gestorben – im Saarland prägen seine riesigen Plastiken markante Plätze
