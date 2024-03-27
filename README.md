@@ -1,11 +1,11 @@
 # Latest News
--  ФОТО. Лицо и эмоции Мудрика после победного гола против Исландии
--  Centrale nucléaire : “Nous pensons pouvoir démarrer le processus de construction, au plus tard en 2025”(ministre en charge de l'énergie, Yacouba Zabré Gouba)
--  احمد الصالح يزور العائلتين المتضررتين من حريق الشيخ عثمان ، وينقل لهما تعازي الرئيس العليمي
--  Expert tells jury it was 'exceedingly unlikely' Constance Marten's baby died from cold
--  Nema predaje! Predsednik Vučić objavio fotografiju sa starijim sinom (FOTO)
--  Apesar de nota dura da Venezuela, Brasil quer manter canais de diálogo com Maduro
--  Sgravi fiscali alle imprese premio a chi investe in città
--  Sensia, per i banchetti un boom richieste Accolte 200 domande
--  Ladrão arromba loja no Nortão e leva 8 celulares
--  La giornata di sport per aiutare i progetti sul tema dell’autismo
+-  Miami Heat - Golden State Warriors, en directo | NBA
+-  ભાસ્કર એક્સકલુઝિવ:ફ્લૂના હઠીલા વાઈરસ, દિવસ-રાતના તાપમાનમાં 15 ડિગ્રી તફાવતથી દર 10માંથી 7 બાળકને ખાંસી, શરદી અને તાવ
+-  「移動する中国」は活気に満ち人間味にもあふれていた
+-  إعداد استراتيجية جديدة لمصرف الريان
+-  Salas VIP del Juan Santamaría: Conozca algunas tarjetas que brindan acceso gratuito
+-  「後悔もあるんじゃないか」 オッペンハイマーの国、被爆者は信じた：朝日新聞デジタル - 朝日新聞デジタル
+-  Cop injured in 'accidental firing' while cleaning weapon at police post in Ram temple complex
+-  ボーイングに必要なのは過去との決別 - WSJ PickUp
+-  【地元の女性に聞いた】住みやすいと思う「名古屋市16区」ランキング！ 2位は「名東区」、1位は？(ねとらぼ)
+-  Exercising twice a week or more ‘significantly reduces risk of insomnia’
