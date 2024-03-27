@@ -1,11 +1,11 @@
 # Latest News
--  Мирослав Иванов: ГЕРБ предпочита избори, а не реформи
--  Christina Applegate: „Levetettem a melleim és minden éjjel sírtam”
--  Обявиха най-големия награден фонд в историята на културизма в България
--  Işık, Hristodulidis’e izolasyonların kaldırılması için girişim yapma çağrısında bulundu
--  Springer: Jak jednośladem pokonać w życiu wiele dróg | Rowery, nie bajki. Podkast rowerowy. Odc. 1
--  Na GPW pachnie zbliżającymi się świętami
--  Občni zbor Etnološkega društva Prforcenhaus
--  Başbakan Üstel: Kıbrıs Türk Devlet Tiyatroları binası için nisan ayında ihaleye çıkılıyor
--  'The Amazon Of Sports' Has Already Cornered Baseball's Apparel Market And Is Now On The Verge Of Subsuming Baseball Cards, Too #'The #Amazon #Sports' #Already #Cornered #Baseball's #Apparel #Market #Verge #Subsuming #Baseball #Cards, #Investment #Fund #Contract #Company #Employee
--  Фотофакт: ДТП на перекрестке улиц Ятниеку и Айзпилсетас
+-  ADAS Market worth 655 million Units by 2030 - Exclusive Report by MarketsandMarkets™
+-  Fast fashion retailer H&M beats blues with profit growth
+-  Imotski osigurao 35 tisuća eura za uskrsnice umirovljenicima
+-  Güven Bengihan, Meclis’in “yasalara uymadığını” iddia etti
+-  「ハッチバック」の最近発売されたモデルランキング！ 2位は「スズキ スペーシア」、1位は？【2024年3月・カーセンサー調べ】(ねとらぼ)
+-  "Ma scolarité était chaotique", révèle François Civil, à l’affiche ce mercredi de "Pas de vagues"
+-  Seis congresistas apuntan ahora al fiscal de la Nación: los argumentos de la denuncia constitucional en su contra
+-  Bőven jut exportra is a magyar tormából
+-  Ansvarig: Lovar bättre färdtjänst när vintern är över
+-  Carpaccio-toast met parmezaan en tuinkers (voor Pasen!) | wat eten we vandaag
