@@ -1,11 +1,11 @@
 # Latest News
--  Ďakujem za všetko, priateľ môj. Djokovič oznámil, že ukončil spoluprácu s chorvátskym trénerom Ivaniševičom
--  有罪判決の村杉蝉之介が活動休止 謝罪コメント発表「年齢にそぐわない愚鈍さに恥じ入るばかり」
--  אפגניסטאן מתייבשת. מי שלא ברח מהמדינה בגלל הבצורת שם את מבטחו באל
--  अखिलकी नेत्री रक्षा बम पक्राउ
--  Minstens 5 doden door ongeval met Flixbus in Duitsland
--  Von klassisch bis lustig: Whatsapp: Die schönsten Grüße und Sprüche für Ostern 2024
--  امدادرسانی به بیش از 18 هزار نفر در طرح امداد و نجات نوروزی
--  Adana ve İskenderun arası kaç km?
--  Attacco Mosca, Russia insiste su ‘pista ucraina’ e punta il dito sugli Usa
--  Der Meister des Stahls: US-Künstler Richard Serra gestorben – im Saarland prägen seine riesigen Plastiken markante Plätze
+-  La Ville de Nice annonce l'annulation de l'implantation d'une boutique éphémère Shein à Nice
+-  WhatsApp popravlja problem koji dugo muči korisnike
+-  Cumhurbaşkanı Erdoğan'dan Diyarbakır'da önemli açıklamalar
+-  بورصة مسقط تفقد 44 نقطة.. وقيمة التداول عند 5 ملايين ريال
+-  Ресторант OXBO със специална изненада за ценителите на виното и гастрономията
+-  Safeguarding practice 'inadequate' in last weeks of murdered Finley Boden's life
+-  مسلسل "الحشاشين": أكبر ظاهرة ثقافية وتحفة تاريخية تساهم بإثراء الشاشة خلال شهر رمضان المبارك
+-  Lula teme PL sobre motoristas de Uber após greves no país
+-  Detienen a asaltantes de autobuses en Hermosillo
+-  WindTre offre il 5G illimitato ma limitato a 10 Mbps. Senza parole
