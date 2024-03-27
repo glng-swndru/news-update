@@ -1,11 +1,11 @@
 # Latest News
--  Ντόναλντ Τραμπ: Πουλάει Βίβλους σε συνεργασία με σταρ της μουσικής κάντρι
--  Rüyada Eşiyle Kavga Etmek: Evlilikteki Gerginliklerin Yansıması mı?
--  Attention Sotera Health Company Investors: Company Investigated by the Portnoy Law Firm
--  Rijeka sprema nekoliko velikih transfera? Jedan igrač privukao posebnu pažnju: ‘On će definitivno u Serie A‘
--  LeMaitre to Present at the 23rd Annual Needham Virtual Healthcare Conference
--  ردفان ونوجد يتأهلان لربع النهائي دوري الرمضاني لكرة القدم لأندية محافظة سقطرى
--  Marmaris'te 31 düzensiz göçmen yakalandı
--  Formația de blues-rock AXIS revine la București cu un concert de excepție, pentru promovarea albumului ”Electric Peace”
--  Mescid-i Aksa'da teravih namazı kılındı
--  Fatih Erbakan: MHP'yi geride bıraktık, şimdi İYİ Parti var
+-  Lançando novo álbum, Shakira afirma que Gerard Piqué a arrastava para baixo: Agora posso realmente trabalhar
+-  Сборная Чехии обыграла Армению в товарищеском матче
+-  Mannheim scheitert vorzeitig - Eisbären Berlin im Halbfinale
+-  Vem aí! Netflix anuncia Nova Cena, primeiro reality musical brasileiro de rap e trap, e revela os nomes que compõem o júri
+-  Tomasz Karolak ZNÓW parkuje auto warte 400 tysięcy złotych w NIEDOZWOLONYM MIEJSCU. Towarzyszyła mu 16-letnia córka (ZDJĘCIA)
+-  船衝突で橋崩落 6人が不明 直前に電気系統トラブルか? 米・ボルティモア
+-  اعلام حمایت وزارت فرهنگ از طرح‌های خلاقانه و آیینی
+-  Kate Middleton ,Prince William 'unwilling' to forgive Prince Harry, insider reveals in major update
+-  Amazon speeds up prescription delivery in NYC, LA - Fox Business
+-  மாற்றுக்கட்சியினா் அதிமுகவில் ஐக்கியம்
