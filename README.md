@@ -1,11 +1,11 @@
 # Latest News
--  快訊／寶林案9受害 蔣萬安：無論是罕見細菌或「人為」都會盡快說明
--  ‘가정 폭력 폭로’ 티아라 출신 아름, 극단적 선택 시도...현재 회복 중 [M+이슈]
--  Fiscalía de Morelos y partidos analizan medidas de protección para candidatos
--  "1ｍ 높이에 떨어져도 사망"…지붕·사다리·비계 추락사고 주의
--  4 Poin Pernyataan Ganjar Pranowo: Dari Jabatan Menteri hingga Kiprah di Luar Pemerintahan
--  “아빠 찾아주세요”… 가족 신고·경찰 신속 대응에 보이스피싱 막았다
--  공정위, '하도급 대금 후려치기' 동원로엑스 과징금 1천800만 원
--  AMYLYX PHARMACEUTICALS SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Amylyx Pharmaceuticals, Inc. - AMLX
--  슈가 월드투어 콘서트, 극장에서 본다… IMAX로 상영
--  Bộ GTVT giữ đề xuất đường sắt tốc độ cao Bắc – Nam với thiết kế 350 km/h
+-  BBB 24: Leidy é a décima quarta eliminada do reality, com 88,33% dos votos
+-  NSND Thanh Lam tình tứ bên chồng bác sĩ, sắc vóc đẹp như thế nào mà khán giả khen hết lời?
+-  Les actions de Krispy Kreme ont grimpé de 40 % parce que McDonald’s vendra ses beignets partout aux États-Unis.
+-  OVs applaud revisions to land, real estate-related laws
+-  BBB 24: Leidy é a décima quarta eliminada do reality, com 88,33% dos votos
+-  SK Hynix, the exclusive partner to Nvidia's most advanced graphic-processor units, plans to invest roughly $4 billion to build an advanced chip-packaging facility in Indiana.
+-  Major U.S. stock indexes declined, with the S&P 500, Nasdaq and Dow industrials retreating 0.3%, 0.4% and 0.1%, respectively.
+-  Shares of Trump's social-media company surged 16% on their first day of trading, giving the early-stage company a market value of roughly $8 billion and boosting the presidential candidate's fortune.
+-  Latin American immigrants are starting businesses at more than twice the rate of the U.S. population as a whole, an analysis of Census Bureau data shows.
+-  Thành lập 3 tiểu ban để chuẩn bị Đại hội Đảng bộ TP HCM lần thứ 12
