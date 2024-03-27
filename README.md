@@ -1,11 +1,11 @@
 # Latest News
--  Erosione costiera e crollo della pista ciclabile: aperto il cantiere per la messa ìn sicurezza
--  Carlos Morínigo es destituido sin explicación de la Gerencia de Salud
--  Itália: Juan Jesus muda ícone nas redes sociais em resposta a Acerbi
--  صور من تدريبات لاعبو الريال الغير دوليين
--  Anuncia por sorpresa que dejará Osasuna a final de temporada
--  Rakojević: Očekivali smo više, ali smo i zaslužili mnogo više
--  Николай Басков перечислил деньги жертвам теракта в "Крокусе"
--  Travelers through Maine’s biggest airport can now fly to the moon. Or, at least, a chunk of it
--  MSB ve Ticaret Bakanlığı'ndan 'İsrail ile iş birliği ve silah ticareti' iddialarına cevap
--  [날씨] 봄처럼 포근…전국 하늘 대체로 맑고 큰 일교차
+-  Wat drijft terreurgroep IS-K voor de aanslag in Moskou? ‘Het hoofddoel is fundraising’
+-  Открита тренировка на Кубрат и Тервел Пулеви
+-  Mansur Yavaş : ''PKK'lılar Belçika'da Türklere saldırıyor, Dışişleri Bakanı nerede ?''
+-  Imputan a Policía que mató de un balazo a su pareja en Itauguá
+-  Five Nights at Freddy’s 2 tendrá un detalle que encantará a los fans de la franquicia
+-  Сложился, как игрушечный: инженер объяснил, почему рухнул мост в Балтиморе
+-  Dilenci, para vermeyen kadını bıçakladı!
+-  Näillä Nesteen asemilla on puutteita poltto­aineiden saatavuudessa – katso lista
+-  Gosek wygłosił monolog do domofonu Ziobry. "Nie idźcie tą drogą"
+-  Así tendrás que comportarte en Palma para evitar que te multen
