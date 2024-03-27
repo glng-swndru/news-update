@@ -1,11 +1,11 @@
 # Latest News
--  Critican a Duna: Parte 2 por falta de inclusión de personas de Medio Oriente y el Norte de África
--  Critican a Duna: Parte 2 por falta de inclusión de personas de Medio Oriente y el Norte de África
--  Probierz przemówił po awansie. Nagle wypalił o kadrowiczu. "Dziecko, które znam od lat"
--  Antonio Decaro candidato del Pd alle Europee: l'annuncio di Elly Schlein
--  Глава Росгвардии пообещал отомстить за любое покушение на Россию и ее граждан
--  英高等法院、アサンジュ被告の米引き渡し判断保留(CNN.co.jp)
--  Petróleo cai impulsionado por produtos refinados
--  Daníel Leó: Menn eru ennþá í áfalli
--  Зеленский поздравил сборную Украины с выходом на Евро-2024
--  Soccer-Mainoo gives England something different, Southgate says after Belgium draw
+-  比亞迪（０１２１１）去年純利增８１％，派息３﹒０９６元人幣
+-  《國企紅籌》大唐新能源（１７９８）年度純利跌２１％，派息７分
+-  Petrus Resources Announces Year End 2023 Financial, Operating & Reserves Results
+-  ශ්‍රී ලංකාව වසර 11 කට පසුව භූතානය පරදවයි
+-  JR増戸駅前に2代目「安兵衛桜」 新たに2本の木を植樹(みんなの経済新聞ネットワーク)
+-  Nos EUA, eleitores democratas e republicanos são a favor de taxar grandes fortunas
+-  Desde Taiwán se invertirán $ 20 millones en Ecuador para desde aquí exportar buses eléctricos a Latinoamérica
+-  Погиб глава организации, участники которой спасли более 100 людей в «Крокусе»
+-  [속보] 한동훈 "국회의사당 세종시 완전 이전 추진"
+-  Nueva fórmula previsional: por qué será beneficiosa para los jubilados
