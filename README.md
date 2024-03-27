@@ -1,11 +1,11 @@
 # Latest News
--  Outraged at increase
--  Giornata di eco-trekking e raccolta rifiuti al bosco Incoronata
--  Besê Hozat: "İktidar yerel seçimler sonrasında çözüme değil çatışmaya yönelecek"
--  ایپل، الفابیٹ اور میٹا کیخلاف تحقیقات کا اعلان
--  حسام حسن يعلن تشكيل منتخب مصر لمواجهة كرواتيا في نهائي بطولة كأس عاصمة مصر
--  Retail space remains scarce across Metro Vancouver
--  Ümit Milliler, 90+1'de puanı kaptı!
--  La actividad económica cayó 4,3% en enero y acumula tres meses de fuerte contracción
--  Per smūgius Sirijoje žuvo 15 žmonių, tarp jų – Irano gvardijos narys ir PSO darbuotojas
--  НА ЖИВО: Германия срещу Нидерландия - съставите
+-  Κλήρωση Eurojackpot: Οι τυχεροί αριθμοί
+-  Correia e Redan spingono la Triestina calcio vicina al terzo posto
+-  Canciller de Armenia confía que colectividad sea “el puente” para más comercio con Uruguay
+-  Tartıştığı market müdürüne kabusu yaşattı
+-  Yeni Klinik Açmak İçin Öneriler
+-  QU hosts Dr Zakir Naik for Ramadan lecture
+-  Vulić: Nasljedniče nacističke, srbomrzačke politike, Christiane Schmidtu ...
+-  【じつは腰に悪い】座ってスマホ操作をするときの注意点とは？ - イラストでわかる 肩・腰・ひざの痛みが消える日常動作大図鑑
+-  FILMSKA BITKA ZA OSVAJANjE SLOBODA: Dodelom nagrade za životno delo Lordanu Zafranoviću otvoren Martovski festival
+-  Alkohola tirdzniecības ierobežojumi: kādi ir argumenti par un pret?
