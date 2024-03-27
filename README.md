@@ -1,11 +1,11 @@
 # Latest News
--  États-Unis. Un juge impose des restrictions de parole à Trump pour son procès pénal
--  No risk to public after shooting on private property: Saanich police
--  Украина – Исландия. 2:1 – Мудрик забил на 84-й! Онлайн-трансляция
--  « Communication du Président Diomaye Faye: L’art oratoire n’est pas inné-priorité à l’essentiel », Par Mohamed Gassama
--  Bh. vozač digao njemačku policiju "na noge": Djeci dijelio slatkiše iz kombija
--  No risk to public after shooting on private property: Saanich police
--  ALLIED GOLD ANNOUNCES FOURTH QUARTER AND YEAR END 2023 RESULTS: ESTABLISHING A SUSTAINABLE PRODUCTION PLATFORM WHICH LAYS THE FOUNDATION FOR SIGNIFICANT GROWTH AT IMPROVING COSTS
--  États-Unis. Un juge impose des restrictions de parole à Trump pour son procès pénal
--  Bh. vozač digao njemačku policiju "na noge": Djeci dijelio slatkiše iz kombija
--  États-Unis. Un juge impose des restrictions de parole à Trump pour son procès pénal
+-  GameStop shares fall sharply because the company missed revenue expectations
+-  DFB-Team: Mit Euphorie und neuer Sicherheit zur EM
+-  Karstā vannā kopā ar mākslinieku. Dzīvesprieka un tuvības gars Pavela Althamera izstādē Berlīnē
+-  রোনালদোদের হারের রাতে ফ্রান্স-জার্মানির জয় ও ইংল্যান্ডের ফেরা
+-  DFB-Team: Mit Euphorie und neuer Sicherheit zur EM
+-  NEXT Weather: 4 p.m. report on March 26, 2024
+-  Γη της ελιάς: Η δίκη της Χάιδως βρίσκεται σε εξέλιξη και ο Λυκούργος στριμώχνει τον Βαφέα
+-  Dolly Parton Said Her Husband Has Always Carried ‘a Little Torch’ for Jane Fonda
+-  Mlada jahačica poslije pada ostala je u kolicima i donijela najtežu odluku: ‘Ovo nije egzistencija koju želim‘
+-  Rúben Neves: «Preferimos perder este jogo do que jogos do Europeu»
