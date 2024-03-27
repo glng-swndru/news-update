@@ -1,11 +1,11 @@
 # Latest News
--  Havas New York Welcomes Taras Wayner as Its Newest Executive Creative Director
--  Demokrat Parti'den AK Parti yalanlaması
--  Известно, сколько журналистов будут освещать матч Украина – Исландия
--  Mesagne, ristrutturati due beni confiscati: diventeranno centri per donne vittime di violenza
--  Радев ще връчи утре мандата за правителство на ПП-ДБ
--  Halálos rallyfutam: Elhunyt a balesetben súlyosan megsérült kislány is
--  ABD'de tüketici güveni daha kötümser
--  Hrvatska U-19 reprezentacija porazom od Rumunjske završila kvalifikacije za Euro
--  Donald Trump - Ein Ex-Präsident vor Gericht
--  Saison-Start für Eiscafés: Was die Kugel Eis in Mönchengladbach kostet
+-  '손흥민-이강인 합작골' 한국, 태국에 3대 0 완승
+-  Attacco Mosca, all’asta il coltello usato per tagliare l’orecchioa presunto attentatore
+-  İngiltere, Çin Maslahatgüzarını Dışişleri Bakanlığına çağırdı
+-  Notification on the transactions concluded by manager in issuer's securities
+-  Mosca ha trovato i suoi capri espiatori. Accusa Kyiv, Washington e Londra per la strage
+-  Kenyan families weep for starvation cult victims as first bodies released
+-  Roma capitale dei femminicidi: 50 negli ultimi cinque anni. Le opposizioni in Regione chiedono un cambio di passo
+-  La Policía Nacional de Teruel detiene a tres personas y desmantela un punto de venta en la ciudad
+-  «Vamos hasta el final de la mano de Dios»: MCM promete no abandonar ruta electoral
+-  முருகன், ராபர்ட் பயஸ், ஜெயக்குமார் பாஸ்போர்ட் ரெடி: ஒரிரு வாரத்தில் இலங்கை செல்வர் - தமிழக அரசு
