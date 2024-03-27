@@ -1,11 +1,11 @@
 # Latest News
--  Одного из главных злодеев Baldur’s Gate 3 можно было взять к себе в команду — глава Larian рассказал о вырезанном из игры контенте
--  PÖRSSI: Marimekko ja Terveystalo nousussa
--  Davor Božinović: 'Na državnoj granici nema napetosti i pucnjave, a što bi neki htjeli...'
--  Joaquín Prat recibirá el próximo 20 de abril el Premio 'Su Peso en Miel de la Alcarria 2024' en el municipio de Peñalver
--  Joaquín Prat recibirá el próximo 20 de abril el Premio 'Su Peso en Miel de la Alcarria 2024' en el municipio de Peñalver
--  Prozess in Mönchengladbach: Verwahrloste Kinder im Wald – Vater verteidigt erneut Schläge mit dem Gürtel
--  Επίθεση αυτοκτονίας με έξι νεκρούς στο Πακιστάν
--  Piranha и Goliath се присъединяват към концерта на Brujeria в "Маймунарника"
--  Esenyurt'ta doğal gazdan kaynaklı patlama
--  Letošní sezona na hradech a zámcích bude ve znamení rodu Habsburků
+-  PS5's Game Help Feature Expands Expands With Auto-Recorded Clips To Help Others
+-  La Superlega va avanti: chiesta in Spagna la registrazione delle tre competizioni
+-  Dream Job: Upgraded Points Will Pay You $1,500 To Binge-Watch Travel Movies
+-  Al Pirelli Hangar Bicocca Nari Ward con Ground Break
+-  AFIP subasta 40 celulares iPhone: cómo participar y cuáles serán los precios de base
+-  Frankreich sieht sich trotz Terrorgefahr für Olympia gerüstet
+-  "Se il Napoli vende Osimhen punterei su un 2002 fortissimo". Il consiglio dell'esperto
+-  북한, 하루 만에 돌변 “일본과 어떤 접촉도 거부”…기시다 “현안 해결 노력”
+-  Espectacular persecución de seis narcolanchas en las costas de Cádiz y el Guadalquivir
+-  Poznati teniser ŠOKIRAO SVE IZJAVOM O ĐOKOVIĆU: Pred njim je dug put, još uvek nije najbolji ikada
