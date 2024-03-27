@@ -1,11 +1,11 @@
 # Latest News
--  South Park: Snow Day Tips - 7 Things To Know Before You Play
--  Las acciones de Tesla se recuperan en la conducción autónoma y Reddit vuelve a aparecer, pero el mercado está en neutral
--  NPP leaders have approved sale of SOEs after tender – SJB
--  STF arquiva inquéritos que investigavam Kassab por doações da Odebrecht
--  "SRCE MI SE SLAMA!" Pričalo se da su Bebi Dol i Slađane bile u lošim odnosima, a evo kako je pevačica reagovala na tužne vesti
--  Ölümler sonrası Everst'te GPS zorunluluğu
--  Lombardia: Comune Orio al Serio acquisisce 87mila mq da Comune Bergamo
--  Chambéry. Des affiches à la gloire de Pétain sur le campus : “Nous ne laisserons rien passer”, indique la ministre
--  Tesla stock rebounds on self-driving and Reddit pops again — but the market is in neutral
--  Mourinho: "Orgoglioso di quanto fatto a Roma. Rifiutata due volte la panchina portoghese"
+-  Regulasi Kualifikasi Piala Dunia 2026 Zona Asia: Mungkinkah Timnas Indonesia Tembus Putaran Final Piala Dunia?
+-  Sukses Remukkan Vietnam, Timnas Indonesia Disebut Tampilkan Performa Terbaik
+-  Испанский патруль сопроводил российские корабли
+-  Martim Neto: «Vir aos sub-21 era um objetivo que já tinha traçado»
+-  Белью: Ф'юрі занадто великий для Усика
+-  U aksidentua në kokë dhe rrezikoi jetën, avokatja i zhvat dëmshpërblimin
+-  НА ЖИВО: Германия 1:1 Нидерландия, блицкриг във Франкфурт
+-  Libre depuis son départ de Strasbourg, Frédéric Antonetti va rebondir dans son club de coeur
+-  Football: Germany's Rüdiger sues over Ramadan gesture
+-  Szef FSB znalazł winnych zamachu pod Moskwą. Wskazał trzy państwa
