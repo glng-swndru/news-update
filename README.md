@@ -1,11 +1,11 @@
 # Latest News
--  Lançando novo álbum, Shakira afirma que Gerard Piqué a arrastava para baixo: Agora posso realmente trabalhar
--  Сборная Чехии обыграла Армению в товарищеском матче
--  Mannheim scheitert vorzeitig - Eisbären Berlin im Halbfinale
--  Vem aí! Netflix anuncia Nova Cena, primeiro reality musical brasileiro de rap e trap, e revela os nomes que compõem o júri
--  Tomasz Karolak ZNÓW parkuje auto warte 400 tysięcy złotych w NIEDOZWOLONYM MIEJSCU. Towarzyszyła mu 16-letnia córka (ZDJĘCIA)
--  船衝突で橋崩落 6人が不明 直前に電気系統トラブルか? 米・ボルティモア
--  اعلام حمایت وزارت فرهنگ از طرح‌های خلاقانه و آیینی
--  Kate Middleton ,Prince William 'unwilling' to forgive Prince Harry, insider reveals in major update
--  Amazon speeds up prescription delivery in NYC, LA - Fox Business
--  மாற்றுக்கட்சியினா் அதிமுகவில் ஐக்கியம்
+-  États-Unis. Un juge impose des restrictions de parole à Trump pour son procès pénal
+-  No risk to public after shooting on private property: Saanich police
+-  Украина – Исландия. 2:1 – Мудрик забил на 84-й! Онлайн-трансляция
+-  « Communication du Président Diomaye Faye: L’art oratoire n’est pas inné-priorité à l’essentiel », Par Mohamed Gassama
+-  Bh. vozač digao njemačku policiju "na noge": Djeci dijelio slatkiše iz kombija
+-  No risk to public after shooting on private property: Saanich police
+-  ALLIED GOLD ANNOUNCES FOURTH QUARTER AND YEAR END 2023 RESULTS: ESTABLISHING A SUSTAINABLE PRODUCTION PLATFORM WHICH LAYS THE FOUNDATION FOR SIGNIFICANT GROWTH AT IMPROVING COSTS
+-  États-Unis. Un juge impose des restrictions de parole à Trump pour son procès pénal
+-  Bh. vozač digao njemačku policiju "na noge": Djeci dijelio slatkiše iz kombija
+-  États-Unis. Un juge impose des restrictions de parole à Trump pour son procès pénal
