@@ -1,11 +1,11 @@
 # Latest News
--  比亞迪（０１２１１）去年純利增８１％，派息３﹒０９６元人幣
--  《國企紅籌》大唐新能源（１７９８）年度純利跌２１％，派息７分
--  Petrus Resources Announces Year End 2023 Financial, Operating & Reserves Results
--  ශ්‍රී ලංකාව වසර 11 කට පසුව භූතානය පරදවයි
--  JR増戸駅前に2代目「安兵衛桜」 新たに2本の木を植樹(みんなの経済新聞ネットワーク)
--  Nos EUA, eleitores democratas e republicanos são a favor de taxar grandes fortunas
--  Desde Taiwán se invertirán $ 20 millones en Ecuador para desde aquí exportar buses eléctricos a Latinoamérica
--  Погиб глава организации, участники которой спасли более 100 людей в «Крокусе»
--  [속보] 한동훈 "국회의사당 세종시 완전 이전 추진"
--  Nueva fórmula previsional: por qué será beneficiosa para los jubilados
+-  Profundo dolor en las redes sociales por la muerte de Florencia Montenegro luego del accidente en la Costanera
+-  Число обращений за психологической помощью после теракта резко выросло
+-  Bandara Radin Inten: Ramp Check Pesawat Telah Dilakukan
+-  Григор Димитров с нова победа и сигурен двубой с Карлос Алкарас
+-  Barril del Brent llegó hasta los $86,25
+-  삼성전자, 헨켈과 '비스포크 AI콤보' 세탁건조기 세제코스 개발
+-  TFSA Millionaires Are Learning They Can Still Be Taxed
+-  Mercato - PSG : Ça part dans tous les sens pour le nouveau crack italien !
+-  Chia tay HLV Troussier, VFF không phải đền bù 40 tỷ đồng
+-  Jadwal Pekan Suci Paskah 2024 di Gereja Baciro Yogyakarta
