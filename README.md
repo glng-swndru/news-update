@@ -1,11 +1,11 @@
 # Latest News
--  La Ville de Nice annonce l'annulation de l'implantation d'une boutique éphémère Shein à Nice
--  WhatsApp popravlja problem koji dugo muči korisnike
--  Cumhurbaşkanı Erdoğan'dan Diyarbakır'da önemli açıklamalar
--  بورصة مسقط تفقد 44 نقطة.. وقيمة التداول عند 5 ملايين ريال
--  Ресторант OXBO със специална изненада за ценителите на виното и гастрономията
--  Safeguarding practice 'inadequate' in last weeks of murdered Finley Boden's life
--  مسلسل "الحشاشين": أكبر ظاهرة ثقافية وتحفة تاريخية تساهم بإثراء الشاشة خلال شهر رمضان المبارك
--  Lula teme PL sobre motoristas de Uber após greves no país
--  Detienen a asaltantes de autobuses en Hermosillo
--  WindTre offre il 5G illimitato ma limitato a 10 Mbps. Senza parole
+-  Bývalý gólman Zlámal měnil dres. Uvedl se hattrickem, Bosák si z něj utahoval
+-  "Cocaina e alcol, test su chi ci governa": toghe, il procuratore Gratteri alza la posta
+-  Sopir Truk Ugal-ugalan Diduga Penyebab Tabrakan Beruntun di Gerbang Tol Halim
+-  Чемпион мира по боксу из Казахстана побил россиянина в полуфинале турнира в Баку
+-  Финансовая нагрузка на казахстанцев вырастет
+-  Fans React To Fatima Sana Shaikh Not Getting 'Due Recognition' For Her Work
+-  Il gruppo LEGO inaugura il 26° negozio in Italia: sarà nel cuore di Milano
+-  В ООН нашли веские основания для обвинения Израиля в геноциде
+-  Abisini boğazını keserek öldüren zanlı adliyeye sevk edildi
+-  ADHD medication proves most effective in treating symptoms, new study finds
