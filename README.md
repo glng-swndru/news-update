@@ -1,11 +1,11 @@
 # Latest News
--  Nouriel Roubini im Porträt: Das steckt hinter "Dr.Doom"
--  DNEVNI HOROSKOP ZA 27. MART: Blizanci moraju da se prilagode drugima, Lav je napravio odličan poslovni plan
--  [특징주] CJ대한통운, 올해 실적 상승 전망에 5.6%↑
--  Death threats and security concerns hinder creation of Haiti council
--  Bakan Yerlikaya duyurdu: 'Alevler' suç örgütü çökertildi
--  Belgian companies ready to do business in Jamaica
--  陳智菡質疑「寶林案」動作慢 北市：24日接獲新北通報、隔天就稽查
--  7 hospitalized in Dededo crash
--  믿었던 외인 투수도 무너지는 키움, 마운드 불안이 생각보다 더 크다
--  Kuriozalne sceny po meczu, Polak dał "popis". Wstyd cytować, co wykrzyczał
+-  NEAR ปฏิวัติการโอนเงิน! เปิดตัวธุรกรรม Multichain ผ่านบัญชีเดียว
+-  대낮 차도 뛰어다닌 타조 ‘타돌이’ 탈출 이유 있었다
+-  Senior enforcement agency officer held for abetment in RM1.8mil false claims case
+-  Mikä maali! Jesse Puljujärvi pyssytti upean osuman
+-  Tačno u 10 časova! Vučić danas sa ambasadorima zemalja Kvinte
+-  2 Wanita di Surabaya Tewas Terlindas Truk Trailer di Jembatan Greges
+-  Sensex jumps over 200 points Nifty above 22,000 as RIL and Maruti drive gains
+-  Ce Moulinois avait un "vieux rêve" : il a changé de vie pour le réaliser
+-  إطلاق مبادرة "إفطار صائم" في محطات وقود "المها"
+-  Λάρνακα: Χειροπέδες σε μέλος εγκληματικής οργάνωσης - Καταζητείτο από Γερμανία
