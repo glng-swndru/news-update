@@ -1,11 +1,11 @@
 # Latest News
--  கல்லூரி மாணவா்கள் பைக் பேரணி
--  블핑 리사, ‘한국 VS 태국’ 축구 어느팀 응원했나…“탕평응원”
--  Tek adam rejimi ülkeyi çökertiyor
--  EURO 2024'e son iki bilet Ukrayna ve Polonya'nın!
--  Polen fixiert Platz in Österreichs EURO-Gruppe
--  경주 월지 벽돌의 '손자국' 주인은…"키 153∼160㎝ 남성"
--  Cuauhtémoc Blanco pide licencia para dejar temporalmente su cargo como gobernador de Morelos
--  Agotadas las entradas para el evento principal de Sonidos Líquidos en junio
--  VIDEO: Golčina Lovre Majera koja će vas oduševiti
--  قرار مجلس الأمن بوقف الحرب
+-  Alabama high court authorizes execution date for man convicted in 2004 slaying
+-  El Banco Mundial aportará fondos al Gobierno para ayudar en el gasto social
+-  B.C. court finds City of Vernon's arguments 'without merit' in case of 13-month licence delay
+-  世盃亞洲區外圍賽國足4:1挫新加坡 升上小組次席
+-  러 로사톰 "우즈베크 원전 건설에 한국·프랑스 참여할 것"
+-  Italia, Amelia "esclude" Raspadori e Politano dai convocati di Euro 2024: le scelte dell'ex portiere
+-  ANC FAILS TO DE-REGISTER MK PARTY
+-  Former A3 Agents Marienor Madrilejo & Emma Clarke Leave Gersh Three Months After Acquisition
+-  世盃亞洲區外圍賽國足4:1挫新加坡 升上小組次席
+-  “장이수, 시리즈 사상 가장 강렬한 컴백”…‘범죄도시4’ 스틸 공개
