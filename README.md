@@ -1,11 +1,11 @@
 # Latest News
--  Препарат от коронавируса «МИР 19» получил постоянную регистрацию
--  ಸಿರಿಗೆರೆ : ಎಸ್.ಎಸ್.ಕೇರ್ ಟ್ರಸ್ಟ್‍ನಿಂದ ಆರೋಗ್ಯ ತಪಾಸಣೆ
--  X-Reaktionen zum Sieg der DFB-Elf: „Ich weiß nicht, ob ich Maxistädt oder dieses Tor heiraten möchte!“
--  '그림자 조세' 부담금 18개 폐지·14개 금액 감면…尹 "무책임하게 방치"[종합]
--  Çaldıran'da Yıldırım gibi etkili yatırımlar
--  Baturina i dalje upitan za Split: Jakirović ne smije ponoviti istu grešku, u derbiju nema čekanja!
--  Украйна вдига оборотите в оръжейното производство, готви се за руска офанзива (ВИДЕО)
--  Государства ОДКБ выступают за дальнейшую консолидацию в противодействии терроризму
--  X-Reaktionen zum Sieg der DFB-Elf: „Ich weiß nicht, ob ich Maxistädt oder dieses Tor heiraten möchte!“
--  ЦСКА готви мащабен проект за нова база
+-  Baltimore: Ronioci će tragati za šestero za koje se pretpostavlja da su poginuli
+-  Auto ticinese in sosta blocca la strada e impedisce ai residenti di andare a lavorare
+-  [스브스픽] 루카셴코, 푸틴과 엇박자 "테러범 첫 도주지는 벨라루스"
+-  Rangers fans' reconnect tipped to give Ibrox club edge in title run-in
+-  "Diablo 4" stößt mit Raytracing zum Game Pass
+-  Ребров: Дві гри були дуже важкими й нервовими
+-  Van Basten nie wytrzymał po awansie Polaków. Nie czekał do Euro. Uderzył już teraz
+-  Türkiye'nin büyüme tahminini yükseltti
+-  Глава ФПБК сообщил о начале процедуры признания Пугачевой иноагентом
+-  Rangers fans' reconnect tipped to give Ibrox club edge in title run-in
