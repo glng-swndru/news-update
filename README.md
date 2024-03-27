@@ -1,11 +1,11 @@
 # Latest News
--  Thai Binh promeut sa coopération avec une localité allemande
--  Sắp thu phí không dừng đồng loạt tại 5 sân bay
--  Á hậu bỏ hào quang showbiz về quê bán bún cá
 -  Đình chỉ công tác 1 phó đội trưởng Công an huyện Long Thành
--  Who Was Oppenheimer? The Intelligent Ambiguity of Christopher Nolan's Latest Film
--  루카셴코, ‘절친’ 푸틴과 불협화음…“테러범, 벨라루스 입국 실패해 우크라로”
--  بازی با مرگ و زندگی برای «سود» بیشتر؛ درآمدهای میلیون دلاری افغانستان
--  越南参加英国最具规模食品饮料展
--  Jadwal Timnas Indonesia vs Irak Grup F Piala Dunia, Skuad Shin Tae Yong Bisa Lolos Lebih Cepat
--  40 Soal & Kunci Jawaban PAI Kelas 7 SMP Semester 2 : Sebab Diperbolehkannya Bertayamum
+-  Louis Vuitton bötfälls i Sverige
+-  Zwischen Elversberg und Friedrichsthal: Ungewöhnlicher Geisterfahrer auf A8 – Mann (34) entgeht Frontalcrash
+-  Lämnade fotbollen – blev Sveriges nya supertalang
+-  Байден снова оскорбил Путина
+-  Khởi tố kỹ sư nhận hối lộ, làm ngơ việc múc đất dự án đường cao tốc
+-  LPBank tài trợ vốn vay với lãi suất ưu đãi cho doanh nghiệp siêu nhỏ
+-  【袴田さん再審】証人尋問３日目…血痕の色について。検察側と弁護側の証人5人同時に尋問「対質」も。(Daiichi-TV（静岡第一テレビ）)
+-  「いろんな車に乗れて楽しかった」 消防車や大型バス、タクシーなどさまざまな乗り物が集合 島根県出雲市(日本海テレビ)
+-  Kate Middleton leaning on her parents for support amid cancer battle: They're 'the real anchors in her life' - Page Six
