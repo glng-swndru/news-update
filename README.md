@@ -1,11 +1,11 @@
 # Latest News
--  Alabama high court authorizes execution date for man convicted in 2004 slaying
--  El Banco Mundial aportará fondos al Gobierno para ayudar en el gasto social
--  B.C. court finds City of Vernon's arguments 'without merit' in case of 13-month licence delay
--  世盃亞洲區外圍賽國足4:1挫新加坡 升上小組次席
--  러 로사톰 "우즈베크 원전 건설에 한국·프랑스 참여할 것"
--  Italia, Amelia "esclude" Raspadori e Politano dai convocati di Euro 2024: le scelte dell'ex portiere
--  ANC FAILS TO DE-REGISTER MK PARTY
--  Former A3 Agents Marienor Madrilejo & Emma Clarke Leave Gersh Three Months After Acquisition
--  世盃亞洲區外圍賽國足4:1挫新加坡 升上小組次席
--  “장이수, 시리즈 사상 가장 강렬한 컴백”…‘범죄도시4’ 스틸 공개
+-  Critican a Duna: Parte 2 por falta de inclusión de personas de Medio Oriente y el Norte de África
+-  Critican a Duna: Parte 2 por falta de inclusión de personas de Medio Oriente y el Norte de África
+-  Probierz przemówił po awansie. Nagle wypalił o kadrowiczu. "Dziecko, które znam od lat"
+-  Antonio Decaro candidato del Pd alle Europee: l'annuncio di Elly Schlein
+-  Глава Росгвардии пообещал отомстить за любое покушение на Россию и ее граждан
+-  英高等法院、アサンジュ被告の米引き渡し判断保留(CNN.co.jp)
+-  Petróleo cai impulsionado por produtos refinados
+-  Daníel Leó: Menn eru ennþá í áfalli
+-  Зеленский поздравил сборную Украины с выходом на Евро-2024
+-  Soccer-Mainoo gives England something different, Southgate says after Belgium draw
