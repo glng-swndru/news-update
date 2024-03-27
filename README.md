@@ -1,11 +1,11 @@
 # Latest News
--  NEAR ปฏิวัติการโอนเงิน! เปิดตัวธุรกรรม Multichain ผ่านบัญชีเดียว
--  대낮 차도 뛰어다닌 타조 ‘타돌이’ 탈출 이유 있었다
--  Senior enforcement agency officer held for abetment in RM1.8mil false claims case
--  Mikä maali! Jesse Puljujärvi pyssytti upean osuman
--  Tačno u 10 časova! Vučić danas sa ambasadorima zemalja Kvinte
--  2 Wanita di Surabaya Tewas Terlindas Truk Trailer di Jembatan Greges
--  Sensex jumps over 200 points Nifty above 22,000 as RIL and Maruti drive gains
--  Ce Moulinois avait un "vieux rêve" : il a changé de vie pour le réaliser
--  إطلاق مبادرة "إفطار صائم" في محطات وقود "المها"
--  Λάρνακα: Χειροπέδες σε μέλος εγκληματικής οργάνωσης - Καταζητείτο από Γερμανία
+-  Gigi Dall'Igna Kecewa Kemenangan Jorge Martin Diwarnai Insiden Pecco Bagnaia vs Marc Marquez
+-  Yaban domuzu ortalığı savaş alanına çevirdi, 3 araç birbirine girdi
+-  Acht nieuwe kamers voor te vroeg geboren baby's en ouders in MCL in Leeuwarden
+-  BROD SRUŠIO MOST, NESTALI PUTARI: Svi detalji nesreće u Baltimoru koja je potresla SAD (FOTO)
+-  볼티모어 다리 붕괴에 미국 공급망 타격…“대체 항구 혼잡·지연 예상”
+-  Πρόταση δυσπιστίας: "Θα δοθούν απαντήσεις για όλα"- Ποια διλήμματα θα θέσει η κυβέρνηση
+-  RELIEF FOR FIVE COPS ACCUSED OF STEALING CRIME SCENE CASH
+-  Ukraine: Front im Osten unter Druck – Präsident Selenskyj tauscht Spitze des Sicherheitsrates aus
+-  Sabaha kadar bomba yağdı; İsrail Refah'ı cehenneme çevirdi
+-  Zemřel slavný sochař Richard Serra, kritici jeho dílo označovali za ohyzdné
