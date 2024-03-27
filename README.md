@@ -1,11 +1,11 @@
 # Latest News
--  Wat drijft terreurgroep IS-K voor de aanslag in Moskou? ‘Het hoofddoel is fundraising’
--  Открита тренировка на Кубрат и Тервел Пулеви
--  Mansur Yavaş : ''PKK'lılar Belçika'da Türklere saldırıyor, Dışişleri Bakanı nerede ?''
--  Imputan a Policía que mató de un balazo a su pareja en Itauguá
--  Five Nights at Freddy’s 2 tendrá un detalle que encantará a los fans de la franquicia
--  Сложился, как игрушечный: инженер объяснил, почему рухнул мост в Балтиморе
--  Dilenci, para vermeyen kadını bıçakladı!
--  Näillä Nesteen asemilla on puutteita poltto­aineiden saatavuudessa – katso lista
--  Gosek wygłosił monolog do domofonu Ziobry. "Nie idźcie tą drogą"
--  Así tendrás que comportarte en Palma para evitar que te multen
+-  Почистващи бомби за тоалетна и още 5 лайфхака за белотата в дома
+-  Venezuela dice no permitirá que la UE deprestigie el proceso electoral
+-  Przeszukania mieszkań posłów Ziobry. Romanowski: To celowe, gangsterskie zagranie
+-  Nie skorzystałeś z wcześniejszej emerytury? Możesz ubiegać się o rekompensatę
+-  В МИД возмутились действиями Франции на заседании СБ ООН
+-  Men shouldn't be scared to have their own places like the Garrick Club
+-  ساني لا يعرف الدور الذي سيؤديه في يورو 2024
+-  Przeszukania mieszkań posłów Ziobry. Romanowski: To celowe, gangsterskie zagranie
+-  Przeszukania mieszkań posłów Ziobry. Romanowski: To celowe, gangsterskie zagranie
+-  الدبلوماسية العمانية وقرار مجلس الأمن
