@@ -1,11 +1,11 @@
 # Latest News
--  Κλήρωση Eurojackpot: Οι τυχεροί αριθμοί
--  Correia e Redan spingono la Triestina calcio vicina al terzo posto
--  Canciller de Armenia confía que colectividad sea “el puente” para más comercio con Uruguay
--  Tartıştığı market müdürüne kabusu yaşattı
--  Yeni Klinik Açmak İçin Öneriler
--  QU hosts Dr Zakir Naik for Ramadan lecture
--  Vulić: Nasljedniče nacističke, srbomrzačke politike, Christiane Schmidtu ...
--  【じつは腰に悪い】座ってスマホ操作をするときの注意点とは？ - イラストでわかる 肩・腰・ひざの痛みが消える日常動作大図鑑
--  FILMSKA BITKA ZA OSVAJANjE SLOBODA: Dodelom nagrade za životno delo Lordanu Zafranoviću otvoren Martovski festival
--  Alkohola tirdzniecības ierobežojumi: kādi ir argumenti par un pret?
+-  South Park: Snow Day Tips - 7 Things To Know Before You Play
+-  Las acciones de Tesla se recuperan en la conducción autónoma y Reddit vuelve a aparecer, pero el mercado está en neutral
+-  NPP leaders have approved sale of SOEs after tender – SJB
+-  STF arquiva inquéritos que investigavam Kassab por doações da Odebrecht
+-  "SRCE MI SE SLAMA!" Pričalo se da su Bebi Dol i Slađane bile u lošim odnosima, a evo kako je pevačica reagovala na tužne vesti
+-  Ölümler sonrası Everst'te GPS zorunluluğu
+-  Lombardia: Comune Orio al Serio acquisisce 87mila mq da Comune Bergamo
+-  Chambéry. Des affiches à la gloire de Pétain sur le campus : “Nous ne laisserons rien passer”, indique la ministre
+-  Tesla stock rebounds on self-driving and Reddit pops again — but the market is in neutral
+-  Mourinho: "Orgoglioso di quanto fatto a Roma. Rifiutata due volte la panchina portoghese"
