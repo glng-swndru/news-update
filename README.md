@@ -1,11 +1,11 @@
 # Latest News
--  Corey Perry had perfect response to Oilers teammate Hyman's 50th goal | Offside - Daily Hive
--  Kars'ta kar ve sis nedeniyle ulaşım güçlükle sağlanıyor
--  Гладилин рассказал сценарий, при котором «Спартак» сможет войти в число призеров РПЛ
--  قهرمان المپیک آسیب دید و اردوی تیم ملی را ترک کرد
--  A Los Angeles Residency Envisions a Radical Future for Experimental Art
--  Sosyal medya fenomeni, kardeşinin düğünündeki tarzı yüzünden yerden yere vuruldu
--  Watch: Drunk driver chased through maize field by police before fatal head-on crash
--  Ny skottlossning: Boende upptäckte skotthål i entrén
--  Scholz podporil rýchly vstup krajín západného Balkánu do EÚ
--  Vic dana: Vjenčanje ili ne?
+-  Ντόναλντ Τραμπ: Πουλάει Βίβλους σε συνεργασία με σταρ της μουσικής κάντρι
+-  Rüyada Eşiyle Kavga Etmek: Evlilikteki Gerginliklerin Yansıması mı?
+-  Attention Sotera Health Company Investors: Company Investigated by the Portnoy Law Firm
+-  Rijeka sprema nekoliko velikih transfera? Jedan igrač privukao posebnu pažnju: ‘On će definitivno u Serie A‘
+-  LeMaitre to Present at the 23rd Annual Needham Virtual Healthcare Conference
+-  ردفان ونوجد يتأهلان لربع النهائي دوري الرمضاني لكرة القدم لأندية محافظة سقطرى
+-  Marmaris'te 31 düzensiz göçmen yakalandı
+-  Formația de blues-rock AXIS revine la București cu un concert de excepție, pentru promovarea albumului ”Electric Peace”
+-  Mescid-i Aksa'da teravih namazı kılındı
+-  Fatih Erbakan: MHP'yi geride bıraktık, şimdi İYİ Parti var
