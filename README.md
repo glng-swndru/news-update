@@ -1,11 +1,11 @@
 # Latest News
--  ADAS Market worth 655 million Units by 2030 - Exclusive Report by MarketsandMarkets™
--  Fast fashion retailer H&M beats blues with profit growth
--  Imotski osigurao 35 tisuća eura za uskrsnice umirovljenicima
--  Güven Bengihan, Meclis’in “yasalara uymadığını” iddia etti
--  「ハッチバック」の最近発売されたモデルランキング！ 2位は「スズキ スペーシア」、1位は？【2024年3月・カーセンサー調べ】(ねとらぼ)
--  "Ma scolarité était chaotique", révèle François Civil, à l’affiche ce mercredi de "Pas de vagues"
--  Seis congresistas apuntan ahora al fiscal de la Nación: los argumentos de la denuncia constitucional en su contra
--  Bőven jut exportra is a magyar tormából
--  Ansvarig: Lovar bättre färdtjänst när vintern är över
--  Carpaccio-toast met parmezaan en tuinkers (voor Pasen!) | wat eten we vandaag
+-  Bakı metrosunda alışma baş verdi
+-  Weather warning issued as Storm Nelson to bring 70mph winds ahead of Easter
+-  1500 مستفيد من حملة ”تعافي“ للتوعية بأضرار المخدرات في الدمام
+-  Asiatische WM-Qualifikation: Überraschender Abgang von Mahmoud Dahoud vor Debüt für Syrien
+-  Nabavite originalne MS softverske ključeve! Windows 11 Pro snižen na 13,25 €!
+-  Banyana can take charge of Nigeria tie with good result in Abuja: Ellis
+-  Corona-Zahlen im Landkreis Prignitz aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Erzurum Büyükşehir Belediyesi organik gübre üretecek
+-  Кравцов призвал сделать предмет «История» массовым по сдаче ЕГЭ
+-  Yenul a căzut până la minimul ultimilor 34 de ani față de dolar
