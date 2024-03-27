@@ -1,11 +1,11 @@
 # Latest News
--  【韓網熱帖】金秀賢&金智媛Netflix畫報
--  Bakan Kacır sahurda gençlerle bir araya geldi
--  복지차관 “사회복지사 권익지원센터 설치…근로 여건 개선”
--  이스라엘 협상단, 카타르서 철수...“유엔 휴전안이 협상 방해”
--  '제35차 2024 상반기 재능나눔 공헌대상&창조혁신경영대상 시상식' 개최
--  Pierce Brosnan Gives Aaron Taylor-Johnson His Blessing to Be the Next James Bond: ‘The Man Has the Chops, Talent and the Charisma’
--  جهاد حسام الدين: المخرجة نادين خان كانت دايما بتشجعنى فى مسار إجبارى
--  Gwalior News: बैटरी रीसाइकल करने वाली फैक्ट्री में शार्ट सर्किट से लगी आग, नौ गाड़ी पानी डाल कर काबू पाया
--  ยังไร้วี่แวว “ด.ช.จะแนะ” ชาวลาหู่วัย 2 ขวบ หายจากบ้านครบ 4 วัน
--  Menanti Karir Politik Ganjar Usai Pilpres, Cocok Pasangan dengan Ahok Maju Pilgub Jakarta 2024
+-  快訊／寶林案9受害 蔣萬安：無論是罕見細菌或「人為」都會盡快說明
+-  ‘가정 폭력 폭로’ 티아라 출신 아름, 극단적 선택 시도...현재 회복 중 [M+이슈]
+-  Fiscalía de Morelos y partidos analizan medidas de protección para candidatos
+-  "1ｍ 높이에 떨어져도 사망"…지붕·사다리·비계 추락사고 주의
+-  4 Poin Pernyataan Ganjar Pranowo: Dari Jabatan Menteri hingga Kiprah di Luar Pemerintahan
+-  “아빠 찾아주세요”… 가족 신고·경찰 신속 대응에 보이스피싱 막았다
+-  공정위, '하도급 대금 후려치기' 동원로엑스 과징금 1천800만 원
+-  AMYLYX PHARMACEUTICALS SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Amylyx Pharmaceuticals, Inc. - AMLX
+-  슈가 월드투어 콘서트, 극장에서 본다… IMAX로 상영
+-  Bộ GTVT giữ đề xuất đường sắt tốc độ cao Bắc – Nam với thiết kế 350 km/h
