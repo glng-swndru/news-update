@@ -1,11 +1,11 @@
 # Latest News
--  Özgür Özel'den kutlama mesajı
--  VIDEO Kandidat za gol godine! Komentatori su vrištali od šoka
--  Trei state NATO se pregătesc pentru un război cu Rusia. Legătura cu ultimele afirmații făcute de Trump la adresa aliaților
--  Επίσκεψη του υφυπουργού Εσωτερικών, αρμόδιου για θέματα Μακεδονίας και Θράκης, κ. Στάθη Κωνσταντινίδη, στην Ημαθία
--  Luke Littler U-turns on retiring at 27 as teen sets target to become darts GOAT
--  ثلاثة أخبار مبهجة عن النصر دفعة واحدة
--  Page destaca el tirón gastronómico de C-LM y su efecto en los datos de turismo
--  В ДНР военные уничтожили украинский наземный дрон
--  Россиянин на спор помочился на Вечный огонь и попал под суд
--  Autoridades dos EUA presumem que 6 desaparecidos em colapso de ponte morreram
+-  Türkiye’de en çok satılan otomobil sıralaması değişti
+-  Tennis: Sinner supera O'Connell, vola ai quarti a Miami
+-  Autor i një vrasjeje në vitin 2016, arrestohet 39-vjeçari në Durrës
+-  Police investigate Lincoln Court burglary in Kessingland
+-  Tennis: Sinner supera O'Connell, vola ai quarti a Miami
+-  Pazar günü sandığa gitmeyecek olanların dikkatine!
+-  «Амур» готов платить Радулову 200 млн в год: 100 млн зарплаты и 100 млн бонусов («Бизнес Online»)
+-  'Životni slom Ivaniševića. Nedavno je imao skandal zbog razvoda, sada je dobio otkaz od Đokovića'
+-  POČEO SASTANAK: Vučić razgovara sa ambasadorima zemalja Kvinte
+-  Lega, su Santanchè maggioranza compatta e leader in sintonia
