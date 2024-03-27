@@ -1,11 +1,11 @@
 # Latest News
--  Regulasi Kualifikasi Piala Dunia 2026 Zona Asia: Mungkinkah Timnas Indonesia Tembus Putaran Final Piala Dunia?
--  Sukses Remukkan Vietnam, Timnas Indonesia Disebut Tampilkan Performa Terbaik
--  Испанский патруль сопроводил российские корабли
--  Martim Neto: «Vir aos sub-21 era um objetivo que já tinha traçado»
--  Белью: Ф'юрі занадто великий для Усика
--  U aksidentua në kokë dhe rrezikoi jetën, avokatja i zhvat dëmshpërblimin
--  НА ЖИВО: Германия 1:1 Нидерландия, блицкриг във Франкфурт
--  Libre depuis son départ de Strasbourg, Frédéric Antonetti va rebondir dans son club de coeur
--  Football: Germany's Rüdiger sues over Ramadan gesture
--  Szef FSB znalazł winnych zamachu pod Moskwą. Wskazał trzy państwa
+-  Corey Perry had perfect response to Oilers teammate Hyman's 50th goal | Offside - Daily Hive
+-  Kars'ta kar ve sis nedeniyle ulaşım güçlükle sağlanıyor
+-  Гладилин рассказал сценарий, при котором «Спартак» сможет войти в число призеров РПЛ
+-  قهرمان المپیک آسیب دید و اردوی تیم ملی را ترک کرد
+-  A Los Angeles Residency Envisions a Radical Future for Experimental Art
+-  Sosyal medya fenomeni, kardeşinin düğünündeki tarzı yüzünden yerden yere vuruldu
+-  Watch: Drunk driver chased through maize field by police before fatal head-on crash
+-  Ny skottlossning: Boende upptäckte skotthål i entrén
+-  Scholz podporil rýchly vstup krajín západného Balkánu do EÚ
+-  Vic dana: Vjenčanje ili ne?
