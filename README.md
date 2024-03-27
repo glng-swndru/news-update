@@ -1,11 +1,11 @@
 # Latest News
--  BBB 24: Leidy é a décima quarta eliminada do reality, com 88,33% dos votos
--  NSND Thanh Lam tình tứ bên chồng bác sĩ, sắc vóc đẹp như thế nào mà khán giả khen hết lời?
--  Les actions de Krispy Kreme ont grimpé de 40 % parce que McDonald’s vendra ses beignets partout aux États-Unis.
--  OVs applaud revisions to land, real estate-related laws
--  BBB 24: Leidy é a décima quarta eliminada do reality, com 88,33% dos votos
--  SK Hynix, the exclusive partner to Nvidia's most advanced graphic-processor units, plans to invest roughly $4 billion to build an advanced chip-packaging facility in Indiana.
--  Major U.S. stock indexes declined, with the S&P 500, Nasdaq and Dow industrials retreating 0.3%, 0.4% and 0.1%, respectively.
--  Shares of Trump's social-media company surged 16% on their first day of trading, giving the early-stage company a market value of roughly $8 billion and boosting the presidential candidate's fortune.
--  Latin American immigrants are starting businesses at more than twice the rate of the U.S. population as a whole, an analysis of Census Bureau data shows.
--  Thành lập 3 tiểu ban để chuẩn bị Đại hội Đảng bộ TP HCM lần thứ 12
+-  Revirkissande en risk för gravida och barn
+-  Erhöhung der Mehrwertsteuer: Gas wird wieder teurer
+-  Rộ tin đồn Hà Thanh Xuân kết hôn với Quang Lê
+-  ’Finest legal minds in country’ couldn’t save Peter Wright from ban as Dons’ full tribunal risk revealed
+-  【影片】《寄生獸：灰色部隊》發佈會：《屍速列車》導演延尚昊新作，攜手實力派演員具教煥&全少妮
+-  LEDARE: Revirkissande en risk för gravida och barn
+-  Губернатор вспомнил военное прошлое и пригрозил уничтожить энергосистему Украины
+-  مقررة أممية تتهم إسرائيل بارتكاب إبادة جماعية ضد الفلسطينيين
+-  한동훈 "국회 세종 이전…여의도는 문화·금융 중심지로"
+-  De salgadeiro a vigia, Capital tem 2 mil vagas no mercado de trabalho
