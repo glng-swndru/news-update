@@ -1,11 +1,11 @@
 # Latest News
--  GameStop shares fall sharply because the company missed revenue expectations
--  DFB-Team: Mit Euphorie und neuer Sicherheit zur EM
--  Karstā vannā kopā ar mākslinieku. Dzīvesprieka un tuvības gars Pavela Althamera izstādē Berlīnē
--  রোনালদোদের হারের রাতে ফ্রান্স-জার্মানির জয় ও ইংল্যান্ডের ফেরা
--  DFB-Team: Mit Euphorie und neuer Sicherheit zur EM
--  NEXT Weather: 4 p.m. report on March 26, 2024
--  Γη της ελιάς: Η δίκη της Χάιδως βρίσκεται σε εξέλιξη και ο Λυκούργος στριμώχνει τον Βαφέα
--  Dolly Parton Said Her Husband Has Always Carried ‘a Little Torch’ for Jane Fonda
--  Mlada jahačica poslije pada ostala je u kolicima i donijela najtežu odluku: ‘Ovo nije egzistencija koju želim‘
--  Rúben Neves: «Preferimos perder este jogo do que jogos do Europeu»
+-  ФОТО. Лицо и эмоции Мудрика после победного гола против Исландии
+-  Centrale nucléaire : “Nous pensons pouvoir démarrer le processus de construction, au plus tard en 2025”(ministre en charge de l'énergie, Yacouba Zabré Gouba)
+-  احمد الصالح يزور العائلتين المتضررتين من حريق الشيخ عثمان ، وينقل لهما تعازي الرئيس العليمي
+-  Expert tells jury it was 'exceedingly unlikely' Constance Marten's baby died from cold
+-  Nema predaje! Predsednik Vučić objavio fotografiju sa starijim sinom (FOTO)
+-  Apesar de nota dura da Venezuela, Brasil quer manter canais de diálogo com Maduro
+-  Sgravi fiscali alle imprese premio a chi investe in città
+-  Sensia, per i banchetti un boom richieste Accolte 200 domande
+-  Ladrão arromba loja no Nortão e leva 8 celulares
+-  La giornata di sport per aiutare i progetti sul tema dell’autismo
