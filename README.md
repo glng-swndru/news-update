@@ -1,11 +1,11 @@
 # Latest News
--  Revirkissande en risk för gravida och barn
--  Erhöhung der Mehrwertsteuer: Gas wird wieder teurer
--  Rộ tin đồn Hà Thanh Xuân kết hôn với Quang Lê
--  ’Finest legal minds in country’ couldn’t save Peter Wright from ban as Dons’ full tribunal risk revealed
--  【影片】《寄生獸：灰色部隊》發佈會：《屍速列車》導演延尚昊新作，攜手實力派演員具教煥&全少妮
--  LEDARE: Revirkissande en risk för gravida och barn
--  Губернатор вспомнил военное прошлое и пригрозил уничтожить энергосистему Украины
--  مقررة أممية تتهم إسرائيل بارتكاب إبادة جماعية ضد الفلسطينيين
--  한동훈 "국회 세종 이전…여의도는 문화·금융 중심지로"
--  De salgadeiro a vigia, Capital tem 2 mil vagas no mercado de trabalho
+-  Thai Binh promeut sa coopération avec une localité allemande
+-  Sắp thu phí không dừng đồng loạt tại 5 sân bay
+-  Á hậu bỏ hào quang showbiz về quê bán bún cá
+-  Đình chỉ công tác 1 phó đội trưởng Công an huyện Long Thành
+-  Who Was Oppenheimer? The Intelligent Ambiguity of Christopher Nolan's Latest Film
+-  루카셴코, ‘절친’ 푸틴과 불협화음…“테러범, 벨라루스 입국 실패해 우크라로”
+-  بازی با مرگ و زندگی برای «سود» بیشتر؛ درآمدهای میلیون دلاری افغانستان
+-  越南参加英国最具规模食品饮料展
+-  Jadwal Timnas Indonesia vs Irak Grup F Piala Dunia, Skuad Shin Tae Yong Bisa Lolos Lebih Cepat
+-  40 Soal & Kunci Jawaban PAI Kelas 7 SMP Semester 2 : Sebab Diperbolehkannya Bertayamum
