@@ -1,11 +1,11 @@
 # Latest News
--  Mối quan hệ giữa chồng mới với 2 con gái riêng của Phạm Quỳnh Anh bị lộ qua chi tiết này
--  Zaniolo vuole tornare in Serie A: "Solo una squadra non accetterei mai, è improponibile"
--  Co se ví o teroristech z Moskvy: Jsou z brutální odnože IS, cíl nevolili náhodně
--  Microsoft Teams is getting smarter Copilot AI features
--  Idete li na koncerte? Ako je odgovor potvrdan, živjet ćete dulje!
--  Pháp lúng túng trong trận đấu đầu tiên sau 7 năm mà không có Antoine Griezman
--  RADE JE BIO DRČAN, BEZOBRAZAN! Bivši saigrač pomenuo Bogdanovića: "Nismo mogli da pretpostavimo..."
--  Have $500? 2 Absurdly Cheap Stocks Long-Term Investors Should Buy Right Now
--  Rediscovering baking’s joy
--  Pengelola Bandara Radin Inten II Pastikan Ramp Check Pesawat Telah Dilakukan
+-  Havas New York Welcomes Taras Wayner as Its Newest Executive Creative Director
+-  Demokrat Parti'den AK Parti yalanlaması
+-  Известно, сколько журналистов будут освещать матч Украина – Исландия
+-  Mesagne, ristrutturati due beni confiscati: diventeranno centri per donne vittime di violenza
+-  Радев ще връчи утре мандата за правителство на ПП-ДБ
+-  Halálos rallyfutam: Elhunyt a balesetben súlyosan megsérült kislány is
+-  ABD'de tüketici güveni daha kötümser
+-  Hrvatska U-19 reprezentacija porazom od Rumunjske završila kvalifikacije za Euro
+-  Donald Trump - Ein Ex-Präsident vor Gericht
+-  Saison-Start für Eiscafés: Was die Kugel Eis in Mönchengladbach kostet
