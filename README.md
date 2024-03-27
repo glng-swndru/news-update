@@ -1,11 +1,11 @@
 # Latest News
--  المملكة تدين إعلان الاحتلال الإسرائيلي مصادرة أراضٍ فلسطينية في الأغوار
--  عاجل /المملكة تدين إعلان الاحتلال الإسرائيلي مصادرة أراضي في الأغوار بفلسطين المحتلة
--  تطبيق روبين هود يطلق بطاقة ائتمان جديدة لدعم التمويل الشخصي
--  เทงบฯ ปี 68 ให้ ศธ. 2.7 พันล้าน จ้าง "ภารโรง" อยู่เวรแทน "ครู"
--  《淚之女王》金秀賢一集入帳8億，片酬佔400億製作費三分之一！業界：他是物超所值的演員
--  「心は女性」マッサージ装い部下の女性にわいせつな行為をした罪 男に懲役6年の実刑判決
--  Kỳ lạ thương hiệu 200 năm tuổi không hề có bộ phận marketing nhưng được định giá 30 tỷ USD, khiến hàng triệu phụ nữ điên đảo dù giá bán 'trên trời'
--  세종시 구급대원 도움...구급차서 새 생명 탄생
--  UN's Gaza Ceasefire Call Doesn't Legally Matter Much
--  "อิชิอิ" เชื่อมั่น ทีมชาติไทย ยังมีโอกาสเข้ารอบ 3 คัดบอลโลก
+-  Стало известно о сокращении числа иностранных наемников на фронте в ДНР
+-  23條立法│陳弘毅︰違法標準清晰 市民最需要留意是煽動意圖罪
+-  [특징주] 하나투어, 경영권 매각 추진 '급락'
+-  북한, 서해서 선박 8척 유류 불법환적 정황…유류고도 신설
+-  태국전 승리 위해 '이것' 노력했다…'투잡 임무' 완수한 황선홍 감독의 기자회견
+-  개정 재건축 초과이익 환수법 시행…부담금 청구서 날아온다
+-  Gustavo Petro: İsrail, BMGK'nin kararına uymazsa diplomatik ilişkileri keseceğiz
+-  3월 기업 체감경기 소폭 반등…반도체↑·철강↓
+-  Viral Surat Edaran Kapolri soal Tangkap Debt Collector, ini Penjelasan Mabes Polri
+-  Congresistas buscan interpelar a ministra Hania Pérez de Cuéllar
