@@ -1,11 +1,11 @@
 # Latest News
--  Thủ tướng Israel bất ngờ đổi ý với Mỹ
--  "2월 서울 아파트 전월세 거래량, 작년 대비 절반 수준 감소"
--  Владимир Путин призвал бережно относиться к единству народов России
--  Nghệ sĩ Phước Sang đột quỵ lần 2 có tiền sử mắc bệnh này, ai có dấu hiệu tương tự cần cảnh giác!
--  तमिलनाडु: MDMK के सांसद गणेशमूर्ति का निधन
--  Setelah Pensiun Mau Jadi Apa, Lionel Messi?
--  News24 | FEATURE | 'I'm going to build a legend here': Rüdger van Wyk's New Dawn at Doolhof Wine Estate
--  "У нас є два слова": 100-річний чоловік та 96-річна жінка розкрили секрет кохання і довголіття
--  Adobe's new AI aims to become the invisible helping hand for marketing teams and creatives
--  Sheryl Crow: Making albums is 'a waste of time and money' because of how people listen
+-  寶林中毒案延燒！ 侯友宜：第一時間要求業者下架、停止製造
+-  Two nabbed, 4,400 litres of subsidised diesel seized in Perak
+-  中国高官「冷戦思考捨て団結を」 アジア各国に平和維持呼びかけ(共同通信)
+-  Mark Zuckerberg says Nvidia CEO Jensen Huang is basically the Taylor Swift of tech
+-  Китайска медийна група представи продукции, изработени с помощта на изкуствен интелект
+-  "אי אפשר לרתום בנייה לגרף כלכלי"
+-  숭실대 이시준 교수, 한국일어일문학회 회장 취임
+-  ภาพราคาทองคําวันนี้ คาดว่าจะเคลื่อนไหวในกรอบทิศทางขาขึ้น
+-  Да сринем Харков квартал по квартал: Призив на пропагандист номер 1 на Русия (ВИДЕО)
+-  Xe container bốc cháy như đuốc trên cầu Phú Mỹ, giao thông ùn tắc
