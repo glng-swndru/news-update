@@ -1,11 +1,11 @@
 # Latest News
--  山崎賢人、上白石萌音が注いだビールを豪快ジョッキ飲み 「うま（笑）」と思わず笑顔 - ORICON NEWS
--  "Olainfarm" meitasuzņēmums Krievijā sponsorē pasākumus, kuros figurē kara atbalstītāji
--  Японского журналиста поразила поездка в Мариуполь
--  بورصة طوكيو.. الأسهم اليابانية تفتح على انخفاض
--  CEO trẻ nhất của Bosch Việt Nam làm Chủ tịch EuroCham
--  Vijayawada: YS Jagan Mohan Reddy will take oath as CM for 2nd consecutive time says Kodali Nani
--  1000-lb Best Friends Season 1 Streaming: Watch & Stream Online via HBO Max
--  Mata Rantai Konflik di Suriah dan Misi Legiun Internasional Ukraina
--  東京電力 柏崎刈羽原発7号機 4月15日にも燃料装荷へ(テレビ朝日系（ANN）)
--  নজরে কোচবিহার লোকসভা আসন! শক্তি বোঝাচ্ছে প্রস্তুত দুই শিবির!
+-  Thủ tướng Israel bất ngờ đổi ý với Mỹ
+-  "2월 서울 아파트 전월세 거래량, 작년 대비 절반 수준 감소"
+-  Владимир Путин призвал бережно относиться к единству народов России
+-  Nghệ sĩ Phước Sang đột quỵ lần 2 có tiền sử mắc bệnh này, ai có dấu hiệu tương tự cần cảnh giác!
+-  तमिलनाडु: MDMK के सांसद गणेशमूर्ति का निधन
+-  Setelah Pensiun Mau Jadi Apa, Lionel Messi?
+-  News24 | FEATURE | 'I'm going to build a legend here': Rüdger van Wyk's New Dawn at Doolhof Wine Estate
+-  "У нас є два слова": 100-річний чоловік та 96-річна жінка розкрили секрет кохання і довголіття
+-  Adobe's new AI aims to become the invisible helping hand for marketing teams and creatives
+-  Sheryl Crow: Making albums is 'a waste of time and money' because of how people listen
