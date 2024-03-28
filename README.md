@@ -1,11 +1,11 @@
 # Latest News
--  Los Reyes y la princesa Leonor, de cena en Zaragoza
--  JUST IN — German airline Lufthansa and Verdi labor union reach deal for ground staff, preventing further strikes
--  Mel Fronckowiak e Rodrigo Santoro anunciam gravidez
--  Vor den Klassikern: Radsport-Star Wout van Aert stürzt schwer und bricht sich mehrere Knochen
--  Тренер Украины U-19 рассказал о лидерах команды и задаче на Евро-2024
--  Mesi: Završiću karijeru kada budem osjetio da ne mogu da igram na...
--  ۸ فیلم اکشن که باید قبل از اتمام تعطیلات حتما ببینید | از عروس زردپوش «بیل را بکش» تا آدمکش محزون «جان ویک»
--  Bu Meşrubatı İçmek Bağışıklık Sisteminizi Altüst Ediyor: Canan Karatay 'Sakın' Diyerek Uyardı
--  Deprem konutları yükselmeye devam ediyor! Mehmet Özhaseki son rakamları verdi
--  وزیر اعلیٰ خیبر پختونخوا علی امین خان گنڈاپور کی زیر صدارت سرکاری اورنجی نئی ہاوسنگ سکیموں سے متعلق ایک اہم اجلاس
+-  Luise Aschenbrenner in „Disko 76“: Tanz die Rebellion!
+-  Bakan Özhaseki'den belediyelere kentsel dönüşüm çağrısı: Kapı sonuna kadar açık
+-  Lea Michele is pregnant with her second child with husband Zandy Reich
+-  O banka emekli promosyonunda vites artırdı! Bankaların promosyon yarışı emekliye yarıyor
+-  Pitali smo Splićane da li još uvijek pretvaraju cijene iz eura u kune: ‘Nadam se da će opet vratiti našu kunu!‘
+-  İsmailağa Cemaati, Cübbeli Ahmet Hoca'yı tarikattan kovdu
+-  Limpieza de tanques de agua: Cinco pasos para hacerlo y prevenir el dengue
+-  Luise Aschenbrenner in „Disko 76“: Tanz die Rebellion!
+-  Lukiko saapuneessa tekstiviestissä henkilötunnuksesi? Se saattoi rikkoa lakia
+-  Luise Aschenbrenner in „Disko 76“: Tanz die Rebellion!
