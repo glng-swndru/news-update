@@ -1,11 +1,11 @@
 # Latest News
--  Após prejuízo de R$ 1 bilhão, JBS diz que margens estão melhores, mas vê desafios
--  What could cause large vessels to lose power?
--  الإضاءة الاصطناعية تؤثر على الساعة البيولوجية
--  Vuelven las terrazas al Paseo Marítimo con el fin de la primera fase de las obras
--  TBMM Başkanı Kurtulmuş'tan Hannover Başkonsolosluğuna yapılan saldırıya ilişkin açıklama: Güçlü Türk diasporasını parçalamayı hiç kimse başaramayacaktır
--  Лолита рассказала об отношениях с Ивлеевой после «голой вечеринки»
--  Инспектори от ДАИ-Пловдив искат по-високи заплати, отказват изпити на кандидат-шофьори
--  СКР раскрыл количество поступивших заявлений о пропавших в «Крокусе»
--  Galatasaray, Fenerbahçe ve Trabzonspor, PFDK'ya sevk edildi
--  The Feeling’s Dan Gillespie Sells: ‘We didn’t want to be a super-cool indie band’
+-  Chuva forte em Lisboa: carros retidos no viaduto Duarte Pacheco
+-  Sikorski: Polsko zdvojnásobí příspěvek do české muniční iniciativy pro Ukrajinu
+-  هيئة الإغاثة والإعمال الإنسانية تدشن المرحلة الثانية من هدية القائد الزبيدي للأسر الأشد فقراً بمديرية صيرة
+-  Relight: Stadt zieht positive Bilanz – Festival soll alle zwei Jahre stattfinden
+-  Evropska komisija predstavila planove za uvođenje evropske diplome
+-  Mide sağlığı olumsuz etkileniyor!
+-  Най-малкият град в България е без аптека и лекар
+-  STEGLA ME JE S OBE RUKE I VIKALA UPOMOĆ! Potresno svedočenje Slađaninog prijatelja nakon što je odveo u bolnicu, IMALA JE PLANOVE
+-  Zmagovalca bo dala Plaža 1581 metrov nad morjem
+-  IPL 2024: Travis Head hits quickest ever fifty for SRH in tournament
