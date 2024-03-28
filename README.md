@@ -1,11 +1,11 @@
 # Latest News
--  BC SPCA optimistic positive changes for farm animals are on the way
--  What’s the CPP Contribution Amount for 2024?
--  ‘Negrete’ morre em confronto com policiais do DOF em Itaporã
--  Nuvei Stock: What Investors Need to Know About a Potential Buyout
--  Acusado de abuso sexual, el arquero Sebastián Sosa recuperó la libertad tras pagar una fianza de $50 millones
--  Alan Shearer makes new admission about exit-linked Everton star after int'l snub
--  Aziz Yıldırım, Ali Koç'un çağrısını reddetti: "Kim şampiyon yapmak istemiyor? Kim? Adı ne?"
--  El euro blue cerró a $1065 para la compra y $1098 para la venta este miércoles 27 de marzo de 2024
--  Iling-Junior, la doppietta con l’Inghilterra U21 non basta: la Juve può metterlo sul mercato
--  NAŠ POZNATI REPER POSTAJE OTAC! U moru razvoda i loših vesti ova će vam BAŠ POPRAVITI DAN
+-  Woolpert przejmuje irlandzką firmę Murphy Geospatial, czołową europejską firmę zajmującą się rozwiązaniami geoprzestrzennymi
+-  Fiebre del chocolate: Precios disparados por escasez global
+-  Marcinho Oliveira pede ajuda aos governos estadual e federal para enfrentar problemas ocasionados por chuvas em Santaluz
+-  Financial Institutions names new Principal Accounting Officer
+-  Предприятия Тверской области примут участие в строительстве ВСМ Москва-Санкт-Петербург
+-  Apagão atinge relógios de rua em bairros de São Paulo
+-  Vic dana: Cijena diplome i znanje
+-  4 غيابات تضرب الهلال قبل مباراة الشباب.. وجيسوس يحسم مصير الخامس
+-  Oponašanje drugih, kao način prihvatanja
+-  Empresas de Diamantino contratam 535 novos profissionais, Juara 82 e Nova Mutum 45
