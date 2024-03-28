@@ -1,11 +1,11 @@
 # Latest News
--  Residential and Commercial HVAC Claims Saw Increased Risk in 2023
--  CHP Bursa Büyükşehir Belediye Başkan Adayı Bozbey: Bize oy vermemişleri ikna edelim
--  NCLA Asks Supreme Court to Resolve Circuit Split over Standing in Social Media Censorship Cases
--  Partono i lavori per il nuovo bike park: oltre al ciclodromo anche una pista di pattinaggio
--  Egyre több a panasz: jégpálya lett a gyepből az Európa-bajnokság egyik stadionjában
--  Motosierra: el Gobierno definió con cuántos empleados públicos se queda en 2024
--  Vahşet yangından sonra ortaya çıktı... Elleri arkadan bağlanmış bir ceset bulundu!
--  Tinejdžeri koriste antiejdž preparate – dermatolog upozorava na posljedice
--  Tartaruga salvata in Puglia con una corazza stampata in 3D
--  Vesić: Priče o Beogradu 3 - Elegantan čak i u izrešetanom ogrtaču (VIDEO)
+-  Elazığ'da asayiş uygulaması: 10 şüpheli gözaltına alındı
+-  Punkte in Flensburg: Geheimes System nutzt Gesetzeslücke aus
+-  Yasa dışı yollarla sınırı geçmeye çalışan 1'i FETÖ mensubu 2 kişi yakalandı
+-  El Pleno aprueba aceptar la delegación para la recaudación de tributos locales de Valverde de Júcar y Torrejoncillo del Rey
+-  SMAILAGIĆ ZABRINUT: "Naravno da nas je poremetilo!"
+-  قافلة طحين من لايف إلى غزة عبر جسر الملك حسين بالتعاون مع الهيئة الخيرية الهاشمية‎
+-  У "Дронарні" запустили новий курс для інженерів БпЛА за підтримки FAVBET Tech
+-  GIPSY KINGS BY ANDRE REYES DONOSE NEZABORAVNI MUZIČKI SPEKTAKL U BEOGRAD NA VODI: DVA SATA SIROVE ENERGIJE I ČISTE STRASTI!
+-  Soccer - Richarlison battled depression after Brazil World Cup exit
+-  Власти Польши приостановили все учения после гибели пятого за месяц военного
