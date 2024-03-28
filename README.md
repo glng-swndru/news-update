@@ -1,11 +1,11 @@
 # Latest News
--  Elazığ'da asayiş uygulaması: 10 şüpheli gözaltına alındı
--  Punkte in Flensburg: Geheimes System nutzt Gesetzeslücke aus
--  Yasa dışı yollarla sınırı geçmeye çalışan 1'i FETÖ mensubu 2 kişi yakalandı
--  El Pleno aprueba aceptar la delegación para la recaudación de tributos locales de Valverde de Júcar y Torrejoncillo del Rey
--  SMAILAGIĆ ZABRINUT: "Naravno da nas je poremetilo!"
--  قافلة طحين من لايف إلى غزة عبر جسر الملك حسين بالتعاون مع الهيئة الخيرية الهاشمية‎
--  У "Дронарні" запустили новий курс для інженерів БпЛА за підтримки FAVBET Tech
--  GIPSY KINGS BY ANDRE REYES DONOSE NEZABORAVNI MUZIČKI SPEKTAKL U BEOGRAD NA VODI: DVA SATA SIROVE ENERGIJE I ČISTE STRASTI!
--  Soccer - Richarlison battled depression after Brazil World Cup exit
--  Власти Польши приостановили все учения после гибели пятого за месяц военного
+-  Turgut Altınok, ABB Başkanı Mansur Yavaş'ı istifaya davet etti
+-  Maailman paras ammatti
+-  Woman gives honest advice telling people how to quit their job: 'You are replaceable'
+-  Passarinhos, sinuca e cerveja aproximaram Lessa e irmãos Brazão, suspeitos no caso Marielle
+-  Ortstermin am Ratsholzdeich: Projekt „Dynamische Aue“ nimmt jetzt richtig Fahrt auf
+-  Overwatch 2 Fans Have Already Embraced Its New, Non-Binary Hero
+-  Украинские СМИ сообщили о взрывах в Николаеве
+-  GTA 6 удивит игроков погодой
+-  DIRECTO Atentado en Rusia, en directo: última hora de los detenidos, víctimas, heridos y la guerra en Ucrania
+-  Los fans de Overwatch 2 ya han abrazado a su nuevo héroe no binario
