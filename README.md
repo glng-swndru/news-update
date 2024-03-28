@@ -1,11 +1,11 @@
 # Latest News
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Vanda Pharmaceutical Inc. - VNDA
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Community Health, Inc. - CYH
--  Lula mandou esquecer, Bachelet mandou lembrar
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Methode Electronics Inc. - MEI
--  All we know about Kate Middleton’s ‘preventative chemotherapy’ treatment
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Behalf of Investors of Comtech Telecommunications Corp. - CMTL
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims On Behalf of Investors of CI&T Inc. - CINT
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Bristol-Myers Squibb Company - BMY
--  SHAREHOLDER ALERT: Pomerantz Law Firm Investigates Claims on Behalf of Investors of Fair Isaac Corporation- FICO
--  ඉන්දියාවේ හොඳම සංවේදී ගීතයට හිමි සම්මානය ශ්‍රී ලංකාවේ වින්ඩි ගුණතිලකට
+-  Kia honored with dual accolades at 2024 Newsweek World's Greatest Auto Disruptors Awards
+-  Симоньян предложила ввести ответственность за участие в антироссийских чатах
+-  한소희, ♥류준열과 열애 홍역 딛고 11일만 근황 공개
+-  Kia honored with dual accolades at 2024 Newsweek World's Greatest Auto Disruptors Awards
+-  Vers un bail dérogatoire de 2 à 3 ans
+-  비트코인 1% 하락하는데 ‘이더파이’는 50% 폭등
+-  Xəbərdarlıq alan TV kanallar bu verilişlərlərlə bağlı TƏDBİR görməyə başladı - VİDEO
+-  ΠΑΣΟΚ για δηλώσεις Παππά: Είναι φαντασιώσεις
+-  Joe Lieberman, former senator and vice-president nominee, dead aged 82
+-  9 projects planned over 5 years for Oak Bay bike network
