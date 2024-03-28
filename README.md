@@ -1,11 +1,11 @@
 # Latest News
--  Chuva forte em Lisboa: carros retidos no viaduto Duarte Pacheco
--  Sikorski: Polsko zdvojnásobí příspěvek do české muniční iniciativy pro Ukrajinu
--  هيئة الإغاثة والإعمال الإنسانية تدشن المرحلة الثانية من هدية القائد الزبيدي للأسر الأشد فقراً بمديرية صيرة
--  Relight: Stadt zieht positive Bilanz – Festival soll alle zwei Jahre stattfinden
--  Evropska komisija predstavila planove za uvođenje evropske diplome
--  Mide sağlığı olumsuz etkileniyor!
--  Най-малкият град в България е без аптека и лекар
--  STEGLA ME JE S OBE RUKE I VIKALA UPOMOĆ! Potresno svedočenje Slađaninog prijatelja nakon što je odveo u bolnicu, IMALA JE PLANOVE
--  Zmagovalca bo dala Plaža 1581 metrov nad morjem
--  IPL 2024: Travis Head hits quickest ever fifty for SRH in tournament
+-  سامسونغ باي توقف عمليات الدفع مع نظام مير الروسي بدءاً من 3 أبريل
+-  Commesse Anas, il figlio di Verdini chiede il patteggiamento
+-  Татарстанский Акибанк хочет взыскать с Euroclear 521 млн рублей убытка
+-  İran Cumhurbaşkanı Reisi: Gazze'de yaşananlar, ABD için utanç kaynağı
+-  Martín Berasategui, operado tras sufrir una aparatosa caída
+-  Scuola Mezzocammino, presentato il progetto. Ora la conferenza dei servizi, i lavori nel 2025
+-  ‘Extremely Hard To Believe’: Russia Doubts Islamic State’s Ability To Conduct Moscow Terror Attack
+-  Ahmet Davutoğlu'ndan flaş IMF iddiası. AKP'nin neden emekliye para vermediğini açıkladı
+-  Dinamo u pet dana ima tri leta u Split i iz Splita. Nakon Kupa spremaju tradicionalnu feštu?!
+-  Кабинетът в оставка поиска 100% от дивидентите на държавните дружества
