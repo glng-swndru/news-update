@@ -1,11 +1,11 @@
 # Latest News
--  Οργή μετά την κακοποίηση λύκου: Νεαροί τον καταδίωκαν με όχημα και «ανέβασαν» βίντεο στα social media
--  Umjesto dva kvarta dalje u Splitu, pacijenticu sanitet odvezao na Vis
--  الاستظلال بالسَبْعِ الطِباق
--  Gutierrez neuer FCA-Präsident
--  Peskov: Hələlik rəsmi versiya açıqlanmayıb
--  Erdoğan: Kırıkkale, CHP’ye oy verme yanlışına Allah’ın izniyle düşmez
--  Southgate ponders tough choices
--  إنذار أحمر.. مركز الأرصاد يحذر من طقس منطقتين
--  Oil Bulls Fail Again: Is This the End of Increases in Black Gold?
--  Most vagy soha – úgy tűnik, hogy soha! Már alig kíváncsiak Rákay Philip filmjére
+-  BC SPCA optimistic positive changes for farm animals are on the way
+-  What’s the CPP Contribution Amount for 2024?
+-  ‘Negrete’ morre em confronto com policiais do DOF em Itaporã
+-  Nuvei Stock: What Investors Need to Know About a Potential Buyout
+-  Acusado de abuso sexual, el arquero Sebastián Sosa recuperó la libertad tras pagar una fianza de $50 millones
+-  Alan Shearer makes new admission about exit-linked Everton star after int'l snub
+-  Aziz Yıldırım, Ali Koç'un çağrısını reddetti: "Kim şampiyon yapmak istemiyor? Kim? Adı ne?"
+-  El euro blue cerró a $1065 para la compra y $1098 para la venta este miércoles 27 de marzo de 2024
+-  Iling-Junior, la doppietta con l’Inghilterra U21 non basta: la Juve può metterlo sul mercato
+-  NAŠ POZNATI REPER POSTAJE OTAC! U moru razvoda i loših vesti ova će vam BAŠ POPRAVITI DAN
