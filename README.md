@@ -1,11 +1,11 @@
 # Latest News
--  Čavara i Delmas: Francuska će nastaviti podržavati BiH u procesu europskih integracija
--  Autobahn-Unfälle: Die schwersten Unglücke mit Reisebussen in Deutschland
--  Soccer - Age won't determine when I retire, says Messi
--  Disney Plus: Neue Betrugsmasche entdeckt – darauf musst du achten
--  A third of Asian Americans who live in poverty have college degrees. What’s going on?
--  OMANISCHE INVESTITIONSBEHÖRDE LEGT DEN 5,2 MILLIARDEN DOLLAR SCHWEREN „FUTURE FUND OMAN" AUF, UM NATIONALE INVESTITIONSPROJEKTE ZU FINANZIEREN, AUSLÄNDISCHE DIREKTINVESTITIONEN ANZUZIEHEN UND KLEINE UNTERNEHMEN ZU UNTERSTÜTZEN
--  Pliveme vám do piva. Centrum Málagy zaplavily nenávistné vzkazy turistům
--  Yen hits 34-year low ahead of key US data
--  Investors in Palo Alto Networks Inc. Should Contact The Gross Law Firm Before April 26, 2024 to Discuss Your Rights – PANW
--  Asl di Latina, finalmente arriva la nomina: la commissaria straordinaria è Sabrina Cenciarelli
+-  BBB 24: Camila Moura decide por divórcio de Lucas Henrique
+-  Започна конкурсът "Най-добър младежки стартъп в България 2024"
+-  BBB 24: Camila Moura decide por divórcio de Lucas Henrique
+-  Бывший CEO МТС Алексей Корня вошел в набсовет Х5
+-  PlayStation Plus abril: descarga un título de un estudio de Xbox y un juegazo de 2023
+-  Erdoğan'dan Batman'da ekonomiye dair net mesaj
+-  Александър Димитров: Много малко ни дели от класиране на Европейско първенство
+-  BBB 24: Camila Moura decide por divórcio de Lucas Henrique
+-  "Ne znam šta da kažem!" Nikolija Jovanović van sebe zbog nestanka male Danke: "Ovo je najveći strah svih roditelja!"
+-  Aspach im Rems-Murr-Kreis: Vier Unfälle sorgen für Chaos
