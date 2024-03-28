@@ -1,11 +1,11 @@
 # Latest News
--  Sapanca Gölü'ne sızan akaryakıt temizlenmeye çalışılıyor
--  Conseil des ministres de ce mercredi 27 mars 2024
--  الألغام الأرضية تهديد متزايد في إفريقيا الوسطى
--  滋賀・長浜市沖の葛籠尾崎湖底遺跡で土器発見100年 滋賀県が琵琶湖の水中遺跡の魅力発信へ
--  Tarolt az RTL, a Sztárbox és Az Árulók a legjobb műsorok között
--  Фуқаролик жамияти институтлари фаолиятидаги муаммолар таҳлил қилинди
--  Путин поделился ощущениями после управления вертолетом
--  Chemours 4Q Loss Narrows After Investigation Prompts Delay
--  Дагестан бьет рекорды: Инфляция превысила 10% в феврале 2024 года
--  'Trail of Flowers' by Sierra Ferrell Review: Traditional Country Gets a Contemporary Twist
+-  Korwin-Mikke rzucił w Trzaskowskiego świerszczem. „Mężczyznom szkodzi brak mięsa”
+-  Korwin-Mikke rzucił w Trzaskowskiego świerszczem. „Mężczyznom szkodzi brak mięsa”
+-  القضاء الأميركي يمرر دعوى ضد «كوينباس» لتداولها رموزاً غير مسجلة
+-  Korwin-Mikke rzucił w Trzaskowskiego świerszczem. „Mężczyznom szkodzi brak mięsa”
+-  Francia, el primer país de la UE que podría aplicar una economía de guerra
+-  [1보] 국제유가 하락…WTI 0.33%↓
+-  Terremoti: scossa di magnitudo 4.5 in provincia di Udine
+-  Phillies-Braves and Brewers-Mets openers postponed a day to Friday due to rainy forecasts
+-  Terremoti: scossa di magnitudo 4.5 in provincia di Udine
+-  Lengjubikarinn: Breiðablik meistari í þriðja sinn
