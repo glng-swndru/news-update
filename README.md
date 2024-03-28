@@ -1,11 +1,11 @@
 # Latest News
--  Strasburq kafedralı bomba xəbərdarlığına görə təxliyə edildi
--  Venezuela opposition faces split, a boon for Maduro
--  PARTIZAN DOBIO SJAJNE VESTI IZ PIONIRA: Valensija izgubila od Makabija, evo šta to znači za crno-bele
--  OD DANKE (2) NI TRAGA NI GLASA: Gotovo dva dana traje potraga za devojčicom kod Bora, a odgovora na pitanje šta se desilo sa detetom - nema
--  "조종 불능 선박 접근 중"…긴박했던 상황 공개
--  Completada la venta de los Orioles de Baltimore a Cal Ripken Jr. y el exjugador de la NBA Grant Hill
--  El cantante Luis R. Conriquez reveló fue golpeado por su ex
--  LIVE | Doden en gewonden bij Russische aanvallen op meerdere regio’s, Loekasjenko spreekt Poetin tegen
--  Belgrade – palankus rezultatas „Žalgiriui“
--  Kanada premašila 40 miliona stanovnika
+-  Illinois stabbing attack: Four dead, five injured after knifeman rampage in Rockford
+-  Njarðvíkingar áfram í öðru sæti
+-  Chinese President Xi pledges continuous support to Sri Lanka
+-  Asya’nın sanat fuarı pandemi öncesi ihtişamına kavuştu
+-  Homem que afirma ser petista e corrupto não é líder do MST e sim ex-candidato do PRTB
+-  Michael Gove blasts Labour attempts to exploit Tory divisions on levelling up Britain
+-  Hollanda’da Kuran yakan provokatör gözaltında
+-  Boυλή: Οξύτατη αντιπαράθεση Μ. Βορίδη, Ν. Ανδρουλάκη και Ζ. Κωνσταντοπούλου
+-  Meistaradeild kvenna: Chelsea í undanúrslit
+-  Tensioni al liceo Plinio, studenti: "Aggrediti mentre strappavamo i manifesti di estrema destra"
