@@ -1,11 +1,11 @@
 # Latest News
--  Korwin-Mikke rzucił w Trzaskowskiego świerszczem. „Mężczyznom szkodzi brak mięsa”
--  Korwin-Mikke rzucił w Trzaskowskiego świerszczem. „Mężczyznom szkodzi brak mięsa”
--  القضاء الأميركي يمرر دعوى ضد «كوينباس» لتداولها رموزاً غير مسجلة
--  Korwin-Mikke rzucił w Trzaskowskiego świerszczem. „Mężczyznom szkodzi brak mięsa”
--  Francia, el primer país de la UE que podría aplicar una economía de guerra
--  [1보] 국제유가 하락…WTI 0.33%↓
--  Terremoti: scossa di magnitudo 4.5 in provincia di Udine
--  Phillies-Braves and Brewers-Mets openers postponed a day to Friday due to rainy forecasts
--  Terremoti: scossa di magnitudo 4.5 in provincia di Udine
--  Lengjubikarinn: Breiðablik meistari í þriðja sinn
+-  Strasburq kafedralı bomba xəbərdarlığına görə təxliyə edildi
+-  Venezuela opposition faces split, a boon for Maduro
+-  PARTIZAN DOBIO SJAJNE VESTI IZ PIONIRA: Valensija izgubila od Makabija, evo šta to znači za crno-bele
+-  OD DANKE (2) NI TRAGA NI GLASA: Gotovo dva dana traje potraga za devojčicom kod Bora, a odgovora na pitanje šta se desilo sa detetom - nema
+-  "조종 불능 선박 접근 중"…긴박했던 상황 공개
+-  Completada la venta de los Orioles de Baltimore a Cal Ripken Jr. y el exjugador de la NBA Grant Hill
+-  El cantante Luis R. Conriquez reveló fue golpeado por su ex
+-  LIVE | Doden en gewonden bij Russische aanvallen op meerdere regio’s, Loekasjenko spreekt Poetin tegen
+-  Belgrade – palankus rezultatas „Žalgiriui“
+-  Kanada premašila 40 miliona stanovnika
