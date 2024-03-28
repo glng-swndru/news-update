@@ -1,11 +1,11 @@
 # Latest News
--  معلومات لافتة يكشفها ضباط وجنود إسرائيليون حول غرق قواتهم في وحل غزة!
--  مجلس الاعتماد الأكاديمي وضمان جودة التعليم العالي وجامعة المهرة يقيمان أمسية رمضانية في المعايير البرامجية
--  이수희 강동구청장 ‘고향사랑기부 인증 챌린지’ 동참
--  مشائخ وعقال ووجهاء من أبين يناشدون الرئيس وأعضاء مجلس الرئاسة بفتح طريق نقيل ثرة وامحلحل
--  Aditi Rao Hydari, Siddharth are now married | All you need to know about their love story
--  В США в результате поножовщины погибли четыре человека
--  溫碧霞拍照到一半「遭蠟燭火燒頭」 認了頭髮變少：需要修復
--  How I used ChatGPT to make a playlist based on Taylor Swift’s Shake It Off
--  Tim Khusus akan Dibentuk Terkait Dugaan TPPO Mahasiswa Berkedok Magang di Jerman
--  Queen Camilla Shares Update on Kate Middleton Amid Cancer Battle
+-  China Medical System （867.HK）2023 Annual Results: Despite of the Temporary Financial Performance Pressure Fresh Catalysts Emerged from Successive Innovation Breakthroughs
+-  CPT Markets：鲍威尔带鸽上场，重申降息立场! 苹果科技光环褪色，惨摔4％!
+-  6월 모평부터 학원 모의고사 ‘판박이’ 차단…문제지 발간 계획 요청
+-  Tszyu tension escalates amid Americans’ ‘disrespect’ claim as ‘weasel’ manager hits back
+-  Critique du Lenovo Legion Pro 7 16 (2024) : La crème de la crème des ordinateurs portables RTX 4080
+-  Lowongan Kerja Jasa Marga 2024 Lewat Rekrutmen Bersama BUMN, Seluruh Sarjana bisa Daftar
+-  2027 Election: Labour Party To Reserve Ticket For Peter Obi
+-  焦點股》越峰：SiC需求成長 直衝漲停
+-  Verizon ofrece a los fans del fútbol la oportunidad de asistir al “ElClásico”de LALIGA en España
+-  Боец РФ рассказал, что ВСУ оставили в Новомихайловке военные билеты с отметками Британии
