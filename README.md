@@ -1,11 +1,11 @@
 # Latest News
--  Turgut Altınok, ABB Başkanı Mansur Yavaş'ı istifaya davet etti
--  Maailman paras ammatti
--  Woman gives honest advice telling people how to quit their job: 'You are replaceable'
--  Passarinhos, sinuca e cerveja aproximaram Lessa e irmãos Brazão, suspeitos no caso Marielle
--  Ortstermin am Ratsholzdeich: Projekt „Dynamische Aue“ nimmt jetzt richtig Fahrt auf
--  Overwatch 2 Fans Have Already Embraced Its New, Non-Binary Hero
--  Украинские СМИ сообщили о взрывах в Николаеве
--  GTA 6 удивит игроков погодой
--  DIRECTO Atentado en Rusia, en directo: última hora de los detenidos, víctimas, heridos y la guerra en Ucrania
--  Los fans de Overwatch 2 ya han abrazado a su nuevo héroe no binario
+-  Após prejuízo de R$ 1 bilhão, JBS diz que margens estão melhores, mas vê desafios
+-  What could cause large vessels to lose power?
+-  الإضاءة الاصطناعية تؤثر على الساعة البيولوجية
+-  Vuelven las terrazas al Paseo Marítimo con el fin de la primera fase de las obras
+-  TBMM Başkanı Kurtulmuş'tan Hannover Başkonsolosluğuna yapılan saldırıya ilişkin açıklama: Güçlü Türk diasporasını parçalamayı hiç kimse başaramayacaktır
+-  Лолита рассказала об отношениях с Ивлеевой после «голой вечеринки»
+-  Инспектори от ДАИ-Пловдив искат по-високи заплати, отказват изпити на кандидат-шофьори
+-  СКР раскрыл количество поступивших заявлений о пропавших в «Крокусе»
+-  Galatasaray, Fenerbahçe ve Trabzonspor, PFDK'ya sevk edildi
+-  The Feeling’s Dan Gillespie Sells: ‘We didn’t want to be a super-cool indie band’
