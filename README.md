@@ -1,11 +1,11 @@
 # Latest News
--  Gustav från Vimmerby vågar göra film om det skämmiga
--  Boconó ganó segundo y tercer lugar en Congreso Internacional de Café en Mérida
--  Las ventas de juegos digitales continúan eliminando GameStop, dice un analista
--  New bill of rights helping renters unveiled by Trudeau in B.C.
--  PKR gains further strength against USD
--  Rührei aus dem Backofen: So kommen auch große Portionen warm an den Tisch
--  Speden lapsuudenkoti myynnissä Kuopiossa – nykyinen omistaja: "Olen pohtinut myyntiä vuoden verran"
--  Íme Magyarország legbefolyásosabb hölgyei - Forbes lista
--  Iconic female warrior at centre of New Zealand troupe’s Mana Wahine
--  Kars'ta 4 katlı otelin çatısı alev aldı. Korkutan yangın
+-  Los Reyes y la princesa Leonor, de cena en Zaragoza
+-  JUST IN — German airline Lufthansa and Verdi labor union reach deal for ground staff, preventing further strikes
+-  Mel Fronckowiak e Rodrigo Santoro anunciam gravidez
+-  Vor den Klassikern: Radsport-Star Wout van Aert stürzt schwer und bricht sich mehrere Knochen
+-  Тренер Украины U-19 рассказал о лидерах команды и задаче на Евро-2024
+-  Mesi: Završiću karijeru kada budem osjetio da ne mogu da igram na...
+-  ۸ فیلم اکشن که باید قبل از اتمام تعطیلات حتما ببینید | از عروس زردپوش «بیل را بکش» تا آدمکش محزون «جان ویک»
+-  Bu Meşrubatı İçmek Bağışıklık Sisteminizi Altüst Ediyor: Canan Karatay 'Sakın' Diyerek Uyardı
+-  Deprem konutları yükselmeye devam ediyor! Mehmet Özhaseki son rakamları verdi
+-  وزیر اعلیٰ خیبر پختونخوا علی امین خان گنڈاپور کی زیر صدارت سرکاری اورنجی نئی ہاوسنگ سکیموں سے متعلق ایک اہم اجلاس
