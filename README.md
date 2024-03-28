@@ -1,11 +1,11 @@
 # Latest News
--  ChargeLab Bolsters leadership team with two key hires: VP of Finance and Head of Growth
--  Why these best-selling authors are playing a dangerous game
--  Latvija iš šalies išsiunčia vieną Rusijos ambasados diplomatą
--  Safety first: Big fence to stop people climbing Gibraltar Falls
--  Global warming may be slowing Earth's spin and affecting how we keep time - ABC News
--  It’s taken four films, but Jack Black’s boisterous panda finally grows up
--  Csökkent a BUX szerdán
--  This film shows the horrific truth behind the journey of asylum seekers
--  Coeur d'Alene Police Department interviewing University of Utah players over racist attack
--  Rattenbury challenged to explain preference for 'dud' pokies policy
+-  Zware val maakt einde aan voorjaarsambities van Wout van Aert: geen Ronde, geen Roubiax
+-  Lula edita decreto que prioriza debêntures incentivadas para projetos sustentáveis
+-  Regione Lazio,appello a Meloni su superbonus aree sisma
+-  Началась продажа билетов на Евро-2024 для болельщиков сборной Украины
+-  Δόμνα Μιχαηλίδου: Καμία ανοχή σε όσους καταστρατηγούν την εργατική νομοθεσία
+-  New Jersey ticket claims Mega Millions jackpot, but 1 California ticket sold for $1 million
+-  Πέτρος Ίμβριος για το «Ζάρι» της Μαρίνας Σάττι: Δεν έχει μια ταυτότητα, δεν είναι αυτό η Ελλάδα
+-  Ramadan a Monfalcone: il Comune indica il Palabocce di Panzano dopo lo stop ai due centri islamici
+-  ПВО сбила 16 воздушных целей над Белгородом
+-  "Magistrati politicizzati complicano l'opera sui migranti". Meloni contro le toghe rosse
