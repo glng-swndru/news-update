@@ -1,11 +1,11 @@
 # Latest News
--  China Medical System （867.HK）2023 Annual Results: Despite of the Temporary Financial Performance Pressure Fresh Catalysts Emerged from Successive Innovation Breakthroughs
--  CPT Markets：鲍威尔带鸽上场，重申降息立场! 苹果科技光环褪色，惨摔4％!
--  6월 모평부터 학원 모의고사 ‘판박이’ 차단…문제지 발간 계획 요청
--  Tszyu tension escalates amid Americans’ ‘disrespect’ claim as ‘weasel’ manager hits back
--  Critique du Lenovo Legion Pro 7 16 (2024) : La crème de la crème des ordinateurs portables RTX 4080
--  Lowongan Kerja Jasa Marga 2024 Lewat Rekrutmen Bersama BUMN, Seluruh Sarjana bisa Daftar
--  2027 Election: Labour Party To Reserve Ticket For Peter Obi
--  焦點股》越峰：SiC需求成長 直衝漲停
--  Verizon ofrece a los fans del fútbol la oportunidad de asistir al “ElClásico”de LALIGA en España
--  Боец РФ рассказал, что ВСУ оставили в Новомихайловке военные билеты с отметками Британии
+-  Mickey Harte ready to lead Derry to a final date with Dublin’s danger men
+-  Infrastructure budgets ‘too low’ to meet rises in costs and demand, warns construction chief
+-  なぜ、日本といえば「侍」「切腹」なのか？ フランス人がドン引きした幕末の切腹事件とは(歴史人)
+-  Martin McGuinness may never have been a British agent — but he was clearly seen as someone who had to be protected
+-  Göring-Eckardt: Corona-Aufarbeitung nicht missbrauchen
+-  Republicans criticised for claiming Joe Biden to blame?for collapse of bridge
+-  Mau Tukar Uang Lebaran? Ini Lokasi dan Tanggal Kas Keliling BI Jabodebek
+-  백두산, 결국 중국명 '창바이산'으로 세계지질공원 등재
+-  Cash in the attic: How to make money from your household clutter, old toys and unwanted wedding gifts
+-  UK weather warnings for wind and rain issued in run-up to Easter weekend - The Guardian
