@@ -1,11 +1,11 @@
 # Latest News
--  Woolpert przejmuje irlandzką firmę Murphy Geospatial, czołową europejską firmę zajmującą się rozwiązaniami geoprzestrzennymi
--  Fiebre del chocolate: Precios disparados por escasez global
--  Marcinho Oliveira pede ajuda aos governos estadual e federal para enfrentar problemas ocasionados por chuvas em Santaluz
--  Financial Institutions names new Principal Accounting Officer
--  Предприятия Тверской области примут участие в строительстве ВСМ Москва-Санкт-Петербург
--  Apagão atinge relógios de rua em bairros de São Paulo
--  Vic dana: Cijena diplome i znanje
--  4 غيابات تضرب الهلال قبل مباراة الشباب.. وجيسوس يحسم مصير الخامس
--  Oponašanje drugih, kao način prihvatanja
--  Empresas de Diamantino contratam 535 novos profissionais, Juara 82 e Nova Mutum 45
+-  Sapanca Gölü'ne sızan akaryakıt temizlenmeye çalışılıyor
+-  Conseil des ministres de ce mercredi 27 mars 2024
+-  الألغام الأرضية تهديد متزايد في إفريقيا الوسطى
+-  滋賀・長浜市沖の葛籠尾崎湖底遺跡で土器発見100年 滋賀県が琵琶湖の水中遺跡の魅力発信へ
+-  Tarolt az RTL, a Sztárbox és Az Árulók a legjobb műsorok között
+-  Фуқаролик жамияти институтлари фаолиятидаги муаммолар таҳлил қилинди
+-  Путин поделился ощущениями после управления вертолетом
+-  Chemours 4Q Loss Narrows After Investigation Prompts Delay
+-  Дагестан бьет рекорды: Инфляция превысила 10% в феврале 2024 года
+-  'Trail of Flowers' by Sierra Ferrell Review: Traditional Country Gets a Contemporary Twist
