@@ -1,11 +1,11 @@
 # Latest News
--  Luise Aschenbrenner in „Disko 76“: Tanz die Rebellion!
--  Bakan Özhaseki'den belediyelere kentsel dönüşüm çağrısı: Kapı sonuna kadar açık
--  Lea Michele is pregnant with her second child with husband Zandy Reich
--  O banka emekli promosyonunda vites artırdı! Bankaların promosyon yarışı emekliye yarıyor
--  Pitali smo Splićane da li još uvijek pretvaraju cijene iz eura u kune: ‘Nadam se da će opet vratiti našu kunu!‘
--  İsmailağa Cemaati, Cübbeli Ahmet Hoca'yı tarikattan kovdu
--  Limpieza de tanques de agua: Cinco pasos para hacerlo y prevenir el dengue
--  Luise Aschenbrenner in „Disko 76“: Tanz die Rebellion!
--  Lukiko saapuneessa tekstiviestissä henkilötunnuksesi? Se saattoi rikkoa lakia
--  Luise Aschenbrenner in „Disko 76“: Tanz die Rebellion!
+-  ChargeLab Bolsters leadership team with two key hires: VP of Finance and Head of Growth
+-  Why these best-selling authors are playing a dangerous game
+-  Latvija iš šalies išsiunčia vieną Rusijos ambasados diplomatą
+-  Safety first: Big fence to stop people climbing Gibraltar Falls
+-  Global warming may be slowing Earth's spin and affecting how we keep time - ABC News
+-  It’s taken four films, but Jack Black’s boisterous panda finally grows up
+-  Csökkent a BUX szerdán
+-  This film shows the horrific truth behind the journey of asylum seekers
+-  Coeur d'Alene Police Department interviewing University of Utah players over racist attack
+-  Rattenbury challenged to explain preference for 'dud' pokies policy
