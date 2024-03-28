@@ -1,11 +1,11 @@
 # Latest News
--  Thủ tướng Chính phủ phê chuẩn nhân sự mới ở 2 tỉnh
--  Car crashes into Citrus Height tree, causes road closures
--  Pirincin 7 faydası
--  本月期指在反覆偏軟中結算
--  Aaj ka Mesh rashifal 28 march 2024: पैसों की किल्लत का सामना करना पड़ेगा
--  Damaged pipe at Kogopon water plant fixed
--  פצועה קשה ופצועה בינוני לאחר שרכב הדרדר לתעלה במחלף שורק
--  Ignora señal de alto, choca y se estrella contra casa; proyecta a camioneta hacia poste en Saltillo
--  Роналду накричал на арбитра после поражения от Словении
--  پیشنهاد طب سنتی؛ هر روز یک مدل آجیل بخورید!
+-  NTSB analyzes ship’s onboard data for clues to collision that caused collapse of Key Bridge
+-  Mato Grosso do Sul registra 5 mil novos postos de trabalho em fevereiro
+-  美联储沃勒“放鹰”！不急于降息，应推迟或减少降息
+-  암사동 '선사현대아파트' 리모델링 추진…조건부 통과
+-  김종인 "뚱딴지같이 국회 세종 이전? 한동훈, 표심 못 얻어"
+-  美聯儲沃勒“放鷹”！不急於降息，應推遲或減少降息
+-  天皇皇后両陛下長女 愛子さまが神武天皇陵をご参拝／奈良(奈良テレビ放送)
+-  Coinbase to integrate USDC Balance Storage on its Base Blockchain
+-  日圓跌至1990年來低位 港人「唱平錢」找換店：成交按周增2成
+-  Javier Milei chama presidente colombiano de assassino terrorista; Colômbia expulsa diplomatas argentinos
