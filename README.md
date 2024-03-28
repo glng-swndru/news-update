@@ -1,11 +1,11 @@
 # Latest News
--  Bývalý gólman Zlámal měnil dres. Uvedl se hattrickem, Bosák si z něj utahoval
--  "Cocaina e alcol, test su chi ci governa": toghe, il procuratore Gratteri alza la posta
--  Sopir Truk Ugal-ugalan Diduga Penyebab Tabrakan Beruntun di Gerbang Tol Halim
--  Чемпион мира по боксу из Казахстана побил россиянина в полуфинале турнира в Баку
--  Финансовая нагрузка на казахстанцев вырастет
--  Fans React To Fatima Sana Shaikh Not Getting 'Due Recognition' For Her Work
--  Il gruppo LEGO inaugura il 26° negozio in Italia: sarà nel cuore di Milano
--  В ООН нашли веские основания для обвинения Израиля в геноциде
--  Abisini boğazını keserek öldüren zanlı adliyeye sevk edildi
--  ADHD medication proves most effective in treating symptoms, new study finds
+-  Residential and Commercial HVAC Claims Saw Increased Risk in 2023
+-  CHP Bursa Büyükşehir Belediye Başkan Adayı Bozbey: Bize oy vermemişleri ikna edelim
+-  NCLA Asks Supreme Court to Resolve Circuit Split over Standing in Social Media Censorship Cases
+-  Partono i lavori per il nuovo bike park: oltre al ciclodromo anche una pista di pattinaggio
+-  Egyre több a panasz: jégpálya lett a gyepből az Európa-bajnokság egyik stadionjában
+-  Motosierra: el Gobierno definió con cuántos empleados públicos se queda en 2024
+-  Vahşet yangından sonra ortaya çıktı... Elleri arkadan bağlanmış bir ceset bulundu!
+-  Tinejdžeri koriste antiejdž preparate – dermatolog upozorava na posljedice
+-  Tartaruga salvata in Puglia con una corazza stampata in 3D
+-  Vesić: Priče o Beogradu 3 - Elegantan čak i u izrešetanom ogrtaču (VIDEO)
