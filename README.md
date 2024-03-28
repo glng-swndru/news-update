@@ -1,11 +1,11 @@
 # Latest News
--  寶林中毒案延燒！ 侯友宜：第一時間要求業者下架、停止製造
--  Two nabbed, 4,400 litres of subsidised diesel seized in Perak
--  中国高官「冷戦思考捨て団結を」 アジア各国に平和維持呼びかけ(共同通信)
--  Mark Zuckerberg says Nvidia CEO Jensen Huang is basically the Taylor Swift of tech
--  Китайска медийна група представи продукции, изработени с помощта на изкуствен интелект
--  "אי אפשר לרתום בנייה לגרף כלכלי"
--  숭실대 이시준 교수, 한국일어일문학회 회장 취임
--  ภาพราคาทองคําวันนี้ คาดว่าจะเคลื่อนไหวในกรอบทิศทางขาขึ้น
--  Да сринем Харков квартал по квартал: Призив на пропагандист номер 1 на Русия (ВИДЕО)
--  Xe container bốc cháy như đuốc trên cầu Phú Mỹ, giao thông ùn tắc
+-  【社説】円安値更新に見る世界経済への為替リスク - WSJ発
+-  【社説】円安値更新に見る世界経済への為替リスク
+-  Quang Nam works to stop boats from staying unconnected to vessel monitoring system
+-  Προσοχή! Πυκνή ομίχλη στο οδικό δίκτυο (ΦΩΤΟ)
+-  Слънчево време и пролетни температури днес
+-  Боец UFC Рузибоев ответил, кого хочет вызвать из октагона в случае победы над Дюма
+-  Solar eclipse to draw record crowd to Niagara Falls
+-  深挖加拿大-东盟商务理事会与胡志明市的合作潜力
+-  Murat Kurum: 1.7 puan farkla seçimi kazanacağız
+-  Profil Pink Spiders yang Melaju ke Final Menyingkirkan Red Sparks
