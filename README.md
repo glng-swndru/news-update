@@ -1,11 +1,11 @@
 # Latest News
--  Dabl-dabl Micića za pobedu! Šarlot slavio protiv Klivlenda
--  Leite e o achismo em segurança
--  【速報】紅麹サプリ摂取した人の死者4人に 小林製薬「事実及び因果関係を確認中」
--  Leite e o achismo em segurança
--  Dabl-dabl Micića za pobedu, sjajan i Pokuševski - Šarlot slavio protiv Klivlenda! /VIDEO/
--  Hàng chục cửa hàng trên đất vàng phố Huế, Hà Nội đóng cửa, treo biển cho thuê
--  Leite e o achismo em segurança
--  美副國務卿康貝爾首次通話中國副外長 強調台海和平穩定重要性
--  आज चली जाएगी अरविंद केजरीवाल की कुर्सी? CM पद से हटाने की याचिका पर दिल्ली HC में सुनवाई
--  'States are expected to...': India strongly objects to US remarks on Delhi CM Arvind Kejriwal's arrest
+-  معلومات لافتة يكشفها ضباط وجنود إسرائيليون حول غرق قواتهم في وحل غزة!
+-  مجلس الاعتماد الأكاديمي وضمان جودة التعليم العالي وجامعة المهرة يقيمان أمسية رمضانية في المعايير البرامجية
+-  이수희 강동구청장 ‘고향사랑기부 인증 챌린지’ 동참
+-  مشائخ وعقال ووجهاء من أبين يناشدون الرئيس وأعضاء مجلس الرئاسة بفتح طريق نقيل ثرة وامحلحل
+-  Aditi Rao Hydari, Siddharth are now married | All you need to know about their love story
+-  В США в результате поножовщины погибли четыре человека
+-  溫碧霞拍照到一半「遭蠟燭火燒頭」 認了頭髮變少：需要修復
+-  How I used ChatGPT to make a playlist based on Taylor Swift’s Shake It Off
+-  Tim Khusus akan Dibentuk Terkait Dugaan TPPO Mahasiswa Berkedok Magang di Jerman
+-  Queen Camilla Shares Update on Kate Middleton Amid Cancer Battle
