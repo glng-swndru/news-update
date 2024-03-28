@@ -1,11 +1,11 @@
 # Latest News
--  NTSB analyzes ship’s onboard data for clues to collision that caused collapse of Key Bridge
--  Mato Grosso do Sul registra 5 mil novos postos de trabalho em fevereiro
--  美联储沃勒“放鹰”！不急于降息，应推迟或减少降息
--  암사동 '선사현대아파트' 리모델링 추진…조건부 통과
--  김종인 "뚱딴지같이 국회 세종 이전? 한동훈, 표심 못 얻어"
--  美聯儲沃勒“放鷹”！不急於降息，應推遲或減少降息
--  天皇皇后両陛下長女 愛子さまが神武天皇陵をご参拝／奈良(奈良テレビ放送)
--  Coinbase to integrate USDC Balance Storage on its Base Blockchain
--  日圓跌至1990年來低位 港人「唱平錢」找換店：成交按周增2成
--  Javier Milei chama presidente colombiano de assassino terrorista; Colômbia expulsa diplomatas argentinos
+-  HLV Park Hang Seo xử lý khéo khi bị hỏi về khả năng trở lại dẫn ĐT Việt Nam
+-  CEO Boeing Dave Calhoun Bersiap Mundur, Melawan Badai Sepanjang Kepemimpinannya
+-  Four people dead and five others injured in northern Illinois stabbing: Suspect in custody - cops
+-  HLV Troussier và giấc mộng dở dang cùng ĐT Việt Nam
+-  売り切れってあるの？ バイクを走らせるのに必須のガソリンスタンドの仕組みとは(バイクのニュース)
+-  Stok Gula Pasir di Jogja Menipis, Pembelian Dibatasi
+-  La ciencia revela el sorprendente comportamiento del cerebro en un recital: esto pasa en tus neuronas cuando ves a tu artista favorito en vivo
+-  충청권 국가산단·종합병원 등 대규모 투자사업 탄력 전망
+-  મુંબઈની ગલીઓમાં આર્યનના વેબ શોનું શૂટિંગ શરુ
+-  オックスフォード英語辞典に「takoyaki（たこやき）」「onigiri（おにぎり）」「karaage（唐揚げ）」23の日本語追加
