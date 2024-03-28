@@ -1,11 +1,11 @@
 # Latest News
--  【肩・首が悲鳴】寝ころんでスマホを操作するときの注意点とは？ - イラストでわかる 肩・腰・ひざの痛みが消える日常動作大図鑑
--  Watch: Emma Stone, Yorgos Lanthimos reunite for 'Kinds of Kindness'
--  „Fólk bara séð mjög afmarkaðan kafla af mér“
--  Jojo Todynho posa com look monocromático e fãs comentam processo de emagrecimento
--  Einblicke in die einzige Bananenreiferei: Ihre Supermarkt-Bananen kommen aus Völklingen – zu Besuch an einem im Saarland einzigartigen Ort
--  Watch: Emma Stone, Yorgos Lanthimos reunite for 'Kinds of Kindness'
--  Paciente de MS agora é prioridade e pode receber novo coração a qualquer momento
--  Источник: «Спартак» ведет работы по утеплению «Лукойл Арены»
--  Revelan origen de mexicanos víctimas del derrumbe Key Bridge
--  Baltimoren siltaturma | Silta­romahdus sulki yhden Yhdys­valtojen vilkkaimmista satamista – Näin se vaikuttaa
+-  Οργή μετά την κακοποίηση λύκου: Νεαροί τον καταδίωκαν με όχημα και «ανέβασαν» βίντεο στα social media
+-  Umjesto dva kvarta dalje u Splitu, pacijenticu sanitet odvezao na Vis
+-  الاستظلال بالسَبْعِ الطِباق
+-  Gutierrez neuer FCA-Präsident
+-  Peskov: Hələlik rəsmi versiya açıqlanmayıb
+-  Erdoğan: Kırıkkale, CHP’ye oy verme yanlışına Allah’ın izniyle düşmez
+-  Southgate ponders tough choices
+-  إنذار أحمر.. مركز الأرصاد يحذر من طقس منطقتين
+-  Oil Bulls Fail Again: Is This the End of Increases in Black Gold?
+-  Most vagy soha – úgy tűnik, hogy soha! Már alig kíváncsiak Rákay Philip filmjére
