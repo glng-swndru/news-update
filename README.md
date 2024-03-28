@@ -1,11 +1,11 @@
 # Latest News
--  別子の春風に揺れるカタクリの花 新居浜・ゆらぎの森「自然楽しんで」盗難被害で年々減少【愛媛】
--  Kon Tum: Bức tranh tài chính số thay đổi hoàn toàn sau 2 năm triển khai thanh toán không tiền mặt
--  Ciudad Ho Chi Minh aspira a fortalecer cooperación con localidades norcoreanas
--  Vốn hóa Techcombank tăng vọt 11.000 tỷ đồng ngay sau quyết định 10 năm mới có 1 lần
--  小学校の教頭を酒気帯び運転で現行犯逮捕 乗用車で帰宅途中、玉突き事故起こす＜福島・鏡石町＞
--  «Лейкерс» переиграли «Мемфис». Леброн оформил трипл-дабл
--  Módulo espacial japonês sobrevive a segunda noite lunar
--  Kapan Gantung Sepatu? Lionel Messi Beri Jawabannya
--  Cegah Demam Berdarah
--  28-ми март ще е Празник на късмета за 4 зодии!
+-  山崎賢人、上白石萌音が注いだビールを豪快ジョッキ飲み 「うま（笑）」と思わず笑顔 - ORICON NEWS
+-  "Olainfarm" meitasuzņēmums Krievijā sponsorē pasākumus, kuros figurē kara atbalstītāji
+-  Японского журналиста поразила поездка в Мариуполь
+-  بورصة طوكيو.. الأسهم اليابانية تفتح على انخفاض
+-  CEO trẻ nhất của Bosch Việt Nam làm Chủ tịch EuroCham
+-  Vijayawada: YS Jagan Mohan Reddy will take oath as CM for 2nd consecutive time says Kodali Nani
+-  1000-lb Best Friends Season 1 Streaming: Watch & Stream Online via HBO Max
+-  Mata Rantai Konflik di Suriah dan Misi Legiun Internasional Ukraina
+-  東京電力 柏崎刈羽原発7号機 4月15日にも燃料装荷へ(テレビ朝日系（ANN）)
+-  নজরে কোচবিহার লোকসভা আসন! শক্তি বোঝাচ্ছে প্রস্তুত দুই শিবির!
