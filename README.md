@@ -1,11 +1,11 @@
 # Latest News
--  Illinois stabbing attack: Four dead, five injured after knifeman rampage in Rockford
--  Njarðvíkingar áfram í öðru sæti
--  Chinese President Xi pledges continuous support to Sri Lanka
--  Asya’nın sanat fuarı pandemi öncesi ihtişamına kavuştu
--  Homem que afirma ser petista e corrupto não é líder do MST e sim ex-candidato do PRTB
--  Michael Gove blasts Labour attempts to exploit Tory divisions on levelling up Britain
--  Hollanda’da Kuran yakan provokatör gözaltında
--  Boυλή: Οξύτατη αντιπαράθεση Μ. Βορίδη, Ν. Ανδρουλάκη και Ζ. Κωνσταντοπούλου
--  Meistaradeild kvenna: Chelsea í undanúrslit
--  Tensioni al liceo Plinio, studenti: "Aggrediti mentre strappavamo i manifesti di estrema destra"
+-  Énergie. EDF prévoit de raccorder l'EPR de Flamanville au réseau « à l'été 2024 »
+-  ウォラーＦＲＢ理事、利下げ急ぐことない－遅らせるか回数減少も - ブルームバーグ
+-  Fußball-Oberliga: Der 1. FC Kleve siegt und klärt erste Personalien
+-  فريق المحامين الشباب بالدريوش يتألق في نسخة المرحوم الأستاذ علي فهمي من دوري كرة القدم بأجدير
+-  Ekrem İmamoğlu yüzde 48,6'ya yükselirken Murat Kurum yüzde 37,0'a düştü
+-  Macron: Como está sendo negociado atualmente, acordo entre Mercosul e UE é péssimo
+-  Nach 75 Minuten Rückstand: SV Sonsbeck luchst dem VfB Homberg noch einen Punkt ab
+-  Police form new 'special' monkey unit
+-  Costituzione in dono ai neo diciottenni «Traccia da seguire»
+-  A Rivarolo è vivo il ricordo delle vittime di guerra e mafia
