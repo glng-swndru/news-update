@@ -1,11 +1,11 @@
 # Latest News
--  سامسونغ باي توقف عمليات الدفع مع نظام مير الروسي بدءاً من 3 أبريل
--  Commesse Anas, il figlio di Verdini chiede il patteggiamento
--  Татарстанский Акибанк хочет взыскать с Euroclear 521 млн рублей убытка
--  İran Cumhurbaşkanı Reisi: Gazze'de yaşananlar, ABD için utanç kaynağı
--  Martín Berasategui, operado tras sufrir una aparatosa caída
--  Scuola Mezzocammino, presentato il progetto. Ora la conferenza dei servizi, i lavori nel 2025
--  ‘Extremely Hard To Believe’: Russia Doubts Islamic State’s Ability To Conduct Moscow Terror Attack
--  Ahmet Davutoğlu'ndan flaş IMF iddiası. AKP'nin neden emekliye para vermediğini açıkladı
--  Dinamo u pet dana ima tri leta u Split i iz Splita. Nakon Kupa spremaju tradicionalnu feštu?!
--  Кабинетът в оставка поиска 100% от дивидентите на държавните дружества
+-  Retiradas las decoraciones de Semana Santa de las principales calles de Albacete por las rachas de viento
+-  נפטר חתן פרס ישראל ההיסטוריון פרופ' אברהם גרוסמן והוא בן 88
+-  Eleonora Giorgi operata, le è stato asportato il tumore al pancreas. I figli: “È andata bene”
+-  Επαφές Τούρκων αξιωματούχων στα κατεχόμενα για το ζήτημα των «πανεπιστημίων»
+-  ¿Cómo identificar números de WhatsApp dedicados al fraude?
+-  Xóchitl Gálvez declara que programas no dependen del voto
+-  Židia na Ukrajine oslávili sviatok Purim
+-  Weniger Sitzen senkt Blutdruck bei Älteren in Studie
+-  Már gyártófüggetlenül is nyomoz az alkalmazás-összeomlások után az AMD
+-  Crna Gora kredibilan partner u borbi protiv terorizma
