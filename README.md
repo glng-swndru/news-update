@@ -1,11 +1,11 @@
 # Latest News
--  HLV Park Hang Seo xử lý khéo khi bị hỏi về khả năng trở lại dẫn ĐT Việt Nam
--  CEO Boeing Dave Calhoun Bersiap Mundur, Melawan Badai Sepanjang Kepemimpinannya
--  Four people dead and five others injured in northern Illinois stabbing: Suspect in custody - cops
--  HLV Troussier và giấc mộng dở dang cùng ĐT Việt Nam
--  売り切れってあるの？ バイクを走らせるのに必須のガソリンスタンドの仕組みとは(バイクのニュース)
--  Stok Gula Pasir di Jogja Menipis, Pembelian Dibatasi
--  La ciencia revela el sorprendente comportamiento del cerebro en un recital: esto pasa en tus neuronas cuando ves a tu artista favorito en vivo
--  충청권 국가산단·종합병원 등 대규모 투자사업 탄력 전망
--  મુંબઈની ગલીઓમાં આર્યનના વેબ શોનું શૂટિંગ શરુ
--  オックスフォード英語辞典に「takoyaki（たこやき）」「onigiri（おにぎり）」「karaage（唐揚げ）」23の日本語追加
+-  Dabl-dabl Micića za pobedu! Šarlot slavio protiv Klivlenda
+-  Leite e o achismo em segurança
+-  【速報】紅麹サプリ摂取した人の死者4人に 小林製薬「事実及び因果関係を確認中」
+-  Leite e o achismo em segurança
+-  Dabl-dabl Micića za pobedu, sjajan i Pokuševski - Šarlot slavio protiv Klivlenda! /VIDEO/
+-  Hàng chục cửa hàng trên đất vàng phố Huế, Hà Nội đóng cửa, treo biển cho thuê
+-  Leite e o achismo em segurança
+-  美副國務卿康貝爾首次通話中國副外長 強調台海和平穩定重要性
+-  आज चली जाएगी अरविंद केजरीवाल की कुर्सी? CM पद से हटाने की याचिका पर दिल्ली HC में सुनवाई
+-  'States are expected to...': India strongly objects to US remarks on Delhi CM Arvind Kejriwal's arrest
