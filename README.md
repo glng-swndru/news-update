@@ -1,11 +1,11 @@
 # Latest News
--  【社説】円安値更新に見る世界経済への為替リスク - WSJ発
--  【社説】円安値更新に見る世界経済への為替リスク
--  Quang Nam works to stop boats from staying unconnected to vessel monitoring system
--  Προσοχή! Πυκνή ομίχλη στο οδικό δίκτυο (ΦΩΤΟ)
--  Слънчево време и пролетни температури днес
--  Боец UFC Рузибоев ответил, кого хочет вызвать из октагона в случае победы над Дюма
--  Solar eclipse to draw record crowd to Niagara Falls
--  深挖加拿大-东盟商务理事会与胡志明市的合作潜力
--  Murat Kurum: 1.7 puan farkla seçimi kazanacağız
--  Profil Pink Spiders yang Melaju ke Final Menyingkirkan Red Sparks
+-  Apertura alla città e sviluppo, così rinasce il Porto di Catania
+-  Former football chief and Celtic suitor Roger Mitchell book
+-  Somali military kills over 80 Al-Shabaab militants in multi-region operations
+-  Mucit İşadamı Mehmet Şimşek Hayatını Kaybetti
+-  Spinneys Breaks Ground In Dokki With 26Th Store Opening
+-  Rupee Turns Flat At 83.33 Against US Dollar In Early Trade
+-  Bakının əsas yollarında TIXAC var
+-  Japan tourism agency picks model areas aiming to address overtourism
+-  食安風波連環爆 王必勝：再做綜合檢討是可以的
+-  삼성생명, 부유층 고객 대상 '예술자산클래스' 개최
